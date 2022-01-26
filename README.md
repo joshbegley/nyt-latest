@@ -2,7 +2,7 @@
 `Williams died before finishing the new season of his documentary series “Black Market.” The producers completed it with the help of some famous friends.`\
 https://nytimes.com/2022/01/26/arts/television/michael-k-williams-black-market.html?searchResultPosition=1
 
-**Justice Stephen G. Breyer to retire from the Supreme Court.**\
+**Justice Stephen G. Breyer to Retire From Supreme Court**\
 `The vacancy will give President Biden his first chance to name a new justice. He has promised to nominate a Black woman.`\
 https://nytimes.com/2022/01/26/us/stephen-breyer-retire-supreme-court.html?searchResultPosition=2
 
