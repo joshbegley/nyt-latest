@@ -1,5 +1,5 @@
 **Kurdish-led Militia in Syria Says It Has Retaken Prison Stormed by ISIS**\
-`The Syrian Democratic Forces said it had regained control of a prison in the northeastern Syrian city of Hasaka days after it was attacked by Islamic State fighters.`\
+`The Syrian Democratic Forces said they had regained control of a prison in the northeastern Syrian city of Hasaka days after it was attacked by Islamic State fighters.`\
 https://nytimes.com/2022/01/26/world/middleeast/syria-prison-isis-hostages.html?searchResultPosition=1
 
 **How the Omicron Surge Is Straining California’s Health Care Workers**\
