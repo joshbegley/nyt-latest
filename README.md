@@ -1,6 +1,6 @@
 **Which Republicans might support a Biden nominee for the Supreme Court? Few, if any.**\
 `Many Senate Republicans have, as a matter of course, opposed Mr. Biden’s nominees for seats on the lower federal courts.`\
-https://nytimes.com/2022/01/26/us/politics/republicans-supreme-court-murkowski-collins-graham.html?searchResultPosition=1
+https://nytimes.com/2022/01/26/us/politics/republicans-supreme-court.html?searchResultPosition=1
 
 **Jana Bennett, Former Director of BBC Television, Dies at 66**\
 `She transformed the presentation of science on TV and was considered one of the most influential women in her industry.`\
