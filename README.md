@@ -10,7 +10,7 @@ https://nytimes.com/2022/01/26/us/politics/democrats-china-competitiveness-bill.
 `Though Democrats do not need to worry about Republicans using a filibuster against the forthcoming nominee, winning confirmation is no slam dunk.`\
 https://nytimes.com/2022/01/26/us/politics/biden-scotus-nominee-filibuster.html?searchResultPosition=3
 
-**Kurdish-led Forces End Prison Siege, Defeating ISIS Fighters**\
+**Kurdish-Led Forces End Prison Siege, Defeating ISIS Fighters**\
 `The six-day battle put a spotlight on the humanitarian and security issues left unresolved after the Islamic State’s so-called caliphate was destroyed.`\
 https://nytimes.com/2022/01/26/world/middleeast/syria-isis.html?searchResultPosition=4
 
