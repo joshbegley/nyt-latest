@@ -20,7 +20,7 @@ https://nytimes.com/2022/01/25/opinion/ukraine-russia-putin.html?searchResultPos
 
 **Cawthorn Challenge Raises the Question: Who Is an ‘Insurrectionist’?**\
 `The challenge to Representative Madison Cawthorn’s re-election bid could set a precedent to challenge other Republicans who encouraged the Jan. 6 attack.`\
-https://nytimes.com/2022/01/25/us/politics/cawthorn-insurrectionist-jan-6-republicans.html?searchResultPosition=6
+https://nytimes.com/2022/01/25/us/politics/madison-cawthorn-jan-6.html?searchResultPosition=6
 
 **Rare Heavy Snowstorm Shuts Down Roads and Traps Motorists in Greece**\
 `Heavy snowfall covered parts of the Greek capital of Athens up to a foot deep, which left emergency services scrambling to rescue people stranded in their cars.`\
