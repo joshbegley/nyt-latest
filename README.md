@@ -1,40 +1,40 @@
-**A Healthy Danielle Collins Arrives in the Australian Open Semifinals**\
-`Less than a year after an endometriosis diagnosis led to the removal of a tennis-ball sized cyst, the 27th seeded American will play No. 7 Iga Swiatek in a semifinal.`\
-https://nytimes.com/2022/01/26/sports/tennis/collins-australian-open.html?searchResultPosition=1
+**The ISIS Hostages: ‘These Children Should Not Have Been There’**\
+`About 700 boys have been held for years in a prison in Syria because their parents joined the Islamic State. Now their lives are in danger.`\
+https://nytimes.com/2022/01/26/world/middleeast/syria-prison-hostage-boys-isis.html?searchResultPosition=1
 
-**Requiem for Party Dresses Lost**\
-`The return never quite happened. So what do we wear now? Schiaparelli, Chanel and Dior grapple gorgeously with the question.`\
-https://nytimes.com/2022/01/26/fashion/couture-dior-chanel-schiaparelli-paris.html?searchResultPosition=2
+**For Skiers, a Winter of Discontent**\
+`With resorts having trouble hiring and employees calling out sick, visitors have been frustrated by idled lifts, limited services and closed terrain. Some of the biggest complaints have come from Epic Pass holders.`\
+https://nytimes.com/2022/01/26/travel/ski-resort-labor-shortage.html?searchResultPosition=2
 
-**Australian Government Buys Copyright to Indigenous Flag**\
-`The flag had been at the center of a dispute, but the move allows anyone to reproduce its design without seeking permission or paying a fee.`\
-https://nytimes.com/2022/01/26/world/australia/aboriginal-flag.html?searchResultPosition=3
+**A Staunch Critic of the N.Y.P.D. Grapples With Deaths of 2 Officers**\
+`Harlem Councilwoman Kristin Richardson Jordan, who has equated the policing system to slavery, is now considering how to deliver her message in a district mourning for two officers.`\
+https://nytimes.com/2022/01/26/us/politics/kristin-richardson-jordan-nypd.html?searchResultPosition=3
 
-**Spoonfed**\
-`What do you think this image is communicating?`\
-https://nytimes.com/2022/01/26/learning/spoonfed.html?searchResultPosition=4
+**The Evolution of Black Music, and a Man’s Soul, in One Show**\
+`The new show “Black No More,” inspired by a 1931 satirical novel about race relations, has “the point of view of people who are very much products of now.”`\
+https://nytimes.com/2022/01/26/theater/black-no-more-trotter-ridley-new-group.html?searchResultPosition=4
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/01/26/crosswords/spelling-bee-forum.html?searchResultPosition=5
+**Robbinsville, N.J.: A Diverse Community ‘at the Center of It All’**\
+`The Mercer County township in the middle of the state is growing rapidly, but there’s still plenty of open space.`\
+https://nytimes.com/2022/01/26/realestate/robbinsville-nj-a-diverse-community-at-the-center-of-it-all.html?searchResultPosition=5
 
-**Trevor Noah Weighs In on Biden’s Hot Mic Drop**\
-`“You see? This is what happens when you have been on Zoom calls for two years — you forget that real life doesn’t have a mute button,” Noah said of the president’s comments about a Fox News reporter.`\
-https://nytimes.com/2022/01/26/arts/television/trevor-noah-biden-hot-mic.html?searchResultPosition=6
+**After 16 Years in ‘Hadestown,’ Anaïs Mitchell Emerges With a New Album**\
+`The singer-songwriter fully plunged into her acclaimed theater project. Since then, her life changed wildly — and she recaptured the desire to record her own music.`\
+https://nytimes.com/2022/01/26/arts/music/anais-mitchell.html?searchResultPosition=6
 
-**Word of the Day: wherewithal**\
-`This word has appeared in 53 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/01/26/learning/word-of-the-day-wherewithal.html?searchResultPosition=7
+**Even Low Levels of Soot Can Be Deadly to Older People, Research Finds**\
+`The four-year air pollution study, which followed 68.5 million older Americans, was the first of its kind.`\
+https://nytimes.com/2022/01/26/climate/air-pollution-study-epa.html?searchResultPosition=7
 
-**A Legal Challenge to Rules Against Legal Advice from Nonlawyers**\
-`A nonprofit wants to train volunteers to help consumers defend themselves in debt collection cases.`\
-https://nytimes.com/2022/01/26/nyregion/legal-advice-volunteers-consumer-debt.html?searchResultPosition=8
+**Oura Ring 3 Review: A Missed Opportunity for Wearable Tech**\
+`At a time when we are concerned about health, the smart ring, which can track sleep and body temperature, is too flawed to recommend.`\
+https://nytimes.com/2022/01/26/technology/personaltech/oura-ring-3-review.html?searchResultPosition=8
 
-**Your Wednesday Briefing**\
-`A flurry of Russian military drills.`\
-https://nytimes.com/2022/01/26/briefing/russia-military-travel-rules-isis.html?searchResultPosition=9
+**In California, a New Fight to Stop Building in the Path of Fire**\
+`A proposed luxury development in hills already scarred by wildfire is raising questions about the continued push to build in areas at highest risk.`\
+https://nytimes.com/2022/01/26/us/wildfire-development-california-legal.html?searchResultPosition=9
 
-**Quotation of the Day: Democrats Shy From a Return To Strict Limits**\
-`Quotation of the Day for January 26, 2022.`\
-https://nytimes.com/2022/01/26/todayspaper/quotation-of-the-day-democrats-shy-from-a-return-to-strict-limits.html?searchResultPosition=10
+**Can Hugo Boss Actually Be Cool?**\
+`The brand built by selling Wall Street suits is trying to reinvent itself for the post-office age.`\
+https://nytimes.com/2022/01/26/style/hugo-boss-rebrand.html?searchResultPosition=10
 
