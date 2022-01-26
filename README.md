@@ -10,7 +10,7 @@ https://nytimes.com/2022/01/26/briefing/coronavirus-briefing-europes-split-over-
 `The NATO secretary general Jens Stoltenberg criticized Russia’s continued military buildup along Ukraine’s borders but stressed that a diplomatic solution to the standoff was still possible.`\
 https://nytimes.com/video/world/europe/100000008177426/nato-response-russia-ukraine-stoltenberg.html?searchResultPosition=3
 
-**At the Australian Open, the Last Men Standing Have Been Through the Ringer**\
+**At the Australian Open, the Last Men Standing Have Been Through the Wringer**\
 `The men’s singles semifinals will feature No. 6 Rafael Nadal against No. 7 Matteo Berrettini, and No. 2 Daniil Medvedev against No. 4 Stefanos Tsitsipas.`\
 https://nytimes.com/2022/01/26/sports/tennis/medvedev-nadal-tsitsipas-berrettini.html?searchResultPosition=4
 
