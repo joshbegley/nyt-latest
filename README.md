@@ -1,4 +1,4 @@
-**Melania Trump’s Auction of a Hat Hit by Plunge in Cryptocurrency**\
+**Melania Trump’s Auction of Hat Hit by Plunge in Cryptocurrency**\
 `The former first lady is selling a hat she wore for a visit by the French president amid volatility in the value of the digital currency being used for the auction.`\
 https://nytimes.com/2022/01/25/us/politics/melania-trump-auction-hat-cryptocurrency.html?searchResultPosition=1
 
