@@ -18,7 +18,7 @@ https://nytimes.com/interactive/2022/01/26/travel/abstract-architecture-quiz-ii.
 `In the wake of Bill Gates and Melinda French Gates’s divorce, their foundation adds members to its new governing board.`\
 https://nytimes.com/2022/01/26/business/gates-foundation-new-trustees.html?searchResultPosition=5
 
-**As Bitcoin tumbles, the I.M.F. urges El Salvador to end its crypto embrace.**\
+**The I.M.F. urges El Salvador to end its embrace of crypto as Bitcoin tumbles.**\
 `The price of Bitcoin has fallen by more than 50 percent from its peak in November, which could prove costly for institutions that have bought into digital currencies.`\
 https://nytimes.com/2022/01/26/business/bitcoin-el-salvador.html?searchResultPosition=6
 
