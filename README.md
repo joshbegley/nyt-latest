@@ -4,7 +4,7 @@ https://nytimes.com/2022/01/26/us/politics/biden-scotus-nominee-filibuster.html?
 
 **Kurdish-led Forces End Prison Siege, Defeating ISIS Fighters**\
 `The six-day battle put a spotlight on the humanitarian and security issues left unresolved after the Islamic State’s so-called caliphate was destroyed.`\
-https://nytimes.com/2022/01/26/world/middleeast/syria-prison-isis.html?searchResultPosition=2
+https://nytimes.com/2022/01/26/world/middleeast/syria-isis.html?searchResultPosition=2
 
 **How the Computer Chip Shortage Could Incite a U.S. Conflict With China**\
 `A war game and study by a think tank illustrate how dependent the world is on Taiwan’s semiconductor foundries.`\
