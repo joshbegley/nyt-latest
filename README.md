@@ -4,7 +4,7 @@ https://nytimes.com/video/world/europe/100000008176812/blinken-russia-ukraine-le
 
 **Why Online Stars Are Mad at Apple**\
 `Creators who want to make a living online say the fees are too high.`\
-https://nytimes.com/2022/01/26/technology/online-creators-apple-fees.html?searchResultPosition=2
+https://nytimes.com/2022/01/26/technology/apple-fees-online-creators.html?searchResultPosition=2
 
 **Why the Renewed Interest in Crystals? The Pandemic.**\
 `Designers say sales of jewelry that provide comfort and some believe helps healing “is exploding at the seams.”`\
