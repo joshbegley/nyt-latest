@@ -7,7 +7,7 @@ https://nytimes.com/2022/01/25/us/politics/justice-department-fake-trump-elector
 https://nytimes.com/2022/01/25/opinion/ukraine-russia-putin.html?searchResultPosition=2
 
 **Cawthorn Challenge Raises the Question: Who Is an ‘Insurrectionist’?**\
-`Lawyers are using an obscure clause in the Constitution to challenge a House Republican’s re-election bid in a case that could spawn similar efforts against others who encouraged the Jan. 6 attack.`\
+`The challenge to Representative Madison Cawthorn’s re-election bid could set a precedent to challenge other Republicans who encouraged the Jan. 6 attack.`\
 https://nytimes.com/2022/01/25/us/politics/cawthorn-insurrectionist-jan-6-republicans.html?searchResultPosition=3
 
 **Rare Heavy Snowstorm Shuts Down Roads and Traps Motorists in Greece**\
