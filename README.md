@@ -20,7 +20,7 @@ https://nytimes.com/interactive/2022/01/26/well/move/start-working-out.html?sear
 
 **Awaiting Report on Parties, Johnson Faces Fire Over an Afghan Evacuation**\
 `Email messages made public by Parliament suggest the British prime minister authorized the evacuation of cats and dogs from an animal charity, despite denying doing so.`\
-https://nytimes.com/2022/01/26/world/europe/boris-johnson-gray-report-lockdown-parties.html?searchResultPosition=6
+https://nytimes.com/2022/01/26/world/europe/boris-johnson-lockdown-party.html?searchResultPosition=6
 
 **Fed, Citing High Inflation and Strong Job Market, Signals Rate Increase ‘Soon’**\
 `Markets expect the Fed to raise interest rates at their next meeting in March, and possibly four times this year, amid high inflation.`\
