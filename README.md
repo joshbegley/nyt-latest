@@ -1,6 +1,6 @@
 **Stewart Rhodes, Oath Keepers Leader, Is Denied Bail on Sedition Charge**\
 `A federal judge said Mr. Rhodes, who was charged in connection with the Jan. 6 attack on the Capitol, was a flight risk partly because of “elaborate escape tunnels” in his backyard.`\
-https://nytimes.com/2022/01/26/us/politics/stewart-rhodes-sedition-bail.html?searchResultPosition=1
+https://nytimes.com/2022/01/26/us/politics/stewart-rhodes-oath-keepers.html?searchResultPosition=1
 
 **Republican Rift on Ukraine Could Undercut U.S. Appeals to Allies**\
 `G.O.P. leaders are attacking President Biden for what they call a weak response to Russian aggression, but their far-right flank is questioning U.S. involvement, and even its alliance with Kyiv.`\
