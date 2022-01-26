@@ -1,40 +1,40 @@
+**For This Tearful TV Potter, It’s All About the Clay**\
+`Keith Brymer Jones has judged amateur ceramic makers’ work on “The Great Pottery Throw Down” since 2015. When it’s good, it still moves him.`\
+https://nytimes.com/2022/01/26/arts/television/great-pottery-throw-down-keith-brymer-jones.html?searchResultPosition=1
+
 **‘Don’t Be Frivolous. Don’t Be Miserable. Don’t Be Scared.’**\
 `The novelist Sheila Heti puts her diary in alphabetical order to see if she’s changed over the years.`\
-https://nytimes.com/interactive/2022/01/26/opinion/sheila-heti-alphabetized-diary-defg.html?searchResultPosition=1
+https://nytimes.com/interactive/2022/01/26/opinion/sheila-heti-alphabetized-diary-defg.html?searchResultPosition=2
 
 **Macron’s Comments on Algeria Resonate as Elections Loom**\
 `The French president acknowledged the suffering of colonists who fled Algeria after the war of independence, a group that has long voted heavily in favor of the right in France.`\
-https://nytimes.com/2022/01/26/world/europe/macron-algeria-pieds-noirs.html?searchResultPosition=2
+https://nytimes.com/2022/01/26/world/europe/macron-algeria-pieds-noirs.html?searchResultPosition=3
 
 **Olavo de Carvalho, Bolsonaro’s Far-Right Guru, Dies at 74**\
 `He was the intellectual leader of Brazil’s far-right movement and a conspiracy theorist who mocked the pandemic. He died days after announcing he had Covid.`\
-https://nytimes.com/2022/01/26/world/americas/olavo-de-carvalho-dead.html?searchResultPosition=3
+https://nytimes.com/2022/01/26/world/americas/olavo-de-carvalho-dead.html?searchResultPosition=4
 
 **Sweden’s Songwriters Dominated U.S. Pop. Now, They’re Looking to Korea.**\
 `Dozens of songwriters and producers in Stockholm make a living from K-pop — even if they can’t speak Korean.`\
-https://nytimes.com/2022/01/26/arts/music/sweden-kpop-bts-red-velvet.html?searchResultPosition=4
+https://nytimes.com/2022/01/26/arts/music/sweden-kpop-bts-red-velvet.html?searchResultPosition=5
 
 **Charles Ray Is Pushing Sculpture to Its Limit**\
 `With four surveys, the challenging Los Angeles artist has redefined his art form in a flat-screen world.`\
-https://nytimes.com/2022/01/26/arts/design/charles-ray-figure-ground-met-museum.html?searchResultPosition=5
+https://nytimes.com/2022/01/26/arts/design/charles-ray-figure-ground-met-museum.html?searchResultPosition=6
 
 **New York City schools will shorten isolation to 5 days for most students who test positive.**\
 `Longer isolation will still be required for some preschoolers. The change brings the school system’s policy in line with recent federal and state guidance.`\
-https://nytimes.com/2022/01/26/nyregion/schools-kids-covid-test-quarantine.html?searchResultPosition=6
+https://nytimes.com/2022/01/26/nyregion/schools-kids-covid-test-quarantine.html?searchResultPosition=7
 
 **Art Basel to Run New Paris Art Fair. Just Don’t Call it ‘Art Basel Paris.’**\
 `The new fair will run every October at the Grand Palais, a glittering venue that had been home to the FIAC contemporary art fair for the last 47 years.`\
-https://nytimes.com/2022/01/26/arts/design/art-basel-new-paris-art-fair.html?searchResultPosition=7
+https://nytimes.com/2022/01/26/arts/design/art-basel-new-paris-art-fair.html?searchResultPosition=8
 
 **Your Body’s Thirst Messenger Is in an Unexpected Place**\
 `Scientists traced how a mouse’s brain gets the signal that it had enough to drink. Something similar may happen in humans.`\
-https://nytimes.com/2022/01/26/science/thirst-brain-neurons.html?searchResultPosition=8
+https://nytimes.com/2022/01/26/science/thirst-brain-neurons.html?searchResultPosition=9
 
 **Air Fry a Cheesecake**\
 `Chicken Parmesan, garlicky brussels sprouts and more recipes for the beloved countertop appliance.`\
-https://nytimes.com/2022/01/26/dining/air-fry-a-cheesecake.html?searchResultPosition=9
-
-**Do Neti Pots Really Work?**\
-`Nasal rinsing has been used for thousands of years to relieve sinus inflammation, congestion, allergy symptoms and more. Here’s what the evidence says.`\
-https://nytimes.com/2022/01/26/well/live/neti-pot.html?searchResultPosition=10
+https://nytimes.com/2022/01/26/dining/air-fry-a-cheesecake.html?searchResultPosition=10
 
