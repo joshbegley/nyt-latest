@@ -1,10 +1,10 @@
+**A Singer Brings His Authentic Self to the Philharmonic**\
+`Anthony Roth Costanzo, a restless countertenor with a vast network of collaborators, has planned a wide-reaching festival.`\
+https://nytimes.com/2022/01/26/arts/music/anthony-roth-costanzo-ny-phil.html?searchResultPosition=1
+
 **For Michael K. Williams, a Legacy Interrupted**\
 `Williams died before finishing the new season of his documentary series “Black Market.” The producers completed it with the help of some famous friends.`\
-https://nytimes.com/2022/01/26/arts/television/michael-k-williams-black-market.html?searchResultPosition=1
-
-**Justice Stephen G. Breyer to retire from the Supreme Court.**\
-`The vacancy will give President Biden his first chance to name a new justice. He has promised to nominate a Black woman.`\
-https://nytimes.com/2022/01/26/us/stephen-breyer-retire-supreme-court.html?searchResultPosition=2
+https://nytimes.com/2022/01/26/arts/television/michael-k-williams-black-market.html?searchResultPosition=2
 
 **Broadway Grosses Fall, but Average Attendance Rises, as Shows Close**\
 `Theaters were a bit more crowded, but there were fewer shows running as several closed amid the spread of the Omicron variant.`\
