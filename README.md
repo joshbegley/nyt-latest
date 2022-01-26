@@ -16,7 +16,7 @@ https://nytimes.com/2022/01/26/theater/black-no-more-trotter-ridley-new-group.ht
 
 **Robbinsville, N.J.: A Diverse Community ‘at the Center of It All’**\
 `The Mercer County township in the middle of the state is growing rapidly, but there’s still plenty of open space.`\
-https://nytimes.com/2022/01/26/realestate/robbinsville-nj-a-diverse-community-at-the-center-of-it-all.html?searchResultPosition=5
+https://nytimes.com/2022/01/26/realestate/robbinsville-nj.html?searchResultPosition=5
 
 **After 16 Years in ‘Hadestown,’ Anaïs Mitchell Emerges With a New Album**\
 `The singer-songwriter fully plunged into her acclaimed theater project. Since then, her life changed wildly — and she recaptured the desire to record her own music.`\
