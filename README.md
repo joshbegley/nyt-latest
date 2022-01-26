@@ -1,6 +1,6 @@
 **Boeing posts a $4.2 billion quarterly loss as delays persist in 787 production.**\
 `The aircraft maker took a $3.5 billion charge because of problems in addressing Dreamliner flaws to the F.A.A.’s satisfaction.`\
-https://nytimes.com/2022/01/26/business/boeing-posts-a-4-2-billion-quarterly-loss-as-delays-persist-in-787-production.html?searchResultPosition=1
+https://nytimes.com/2022/01/26/business/boeing-earnings.html?searchResultPosition=1
 
 **In Some Markets, Cooler Heads Are Prevailing**\
 `Wild swings in stocks haven’t shown up in other assets.`\
