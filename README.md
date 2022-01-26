@@ -12,7 +12,7 @@ https://nytimes.com/2022/01/25/us/politics/melania-trump-auction-hat-cryptocurre
 
 **Justice Dept. Is Reviewing Role of Fake Trump Electors, Top Official Says**\
 `Lisa O. Monaco, the deputy attorney general, told CNN that she could not “say anything more on ongoing investigations.”`\
-https://nytimes.com/2022/01/25/us/politics/justice-department-fake-trump-electors.html?searchResultPosition=4
+https://nytimes.com/2022/01/25/us/politics/justice-department-trump.html?searchResultPosition=4
 
 **Bring Back the Free World**\
 `Putin wants to divide and conquer. We shouldn’t let him.`\
