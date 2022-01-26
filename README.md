@@ -1,6 +1,6 @@
 **Judge Ketanji Brown Jackson is among the leading candidates to succeed Justice Breyer.**\
-`By Charlie Savage`\
-https://nytimes.com/2022/01/26/us/politics/ketanji-brown-jackson.html?searchResultPosition=1
+`Judge Jackson, 51, already successfully went through the Senate confirmation process last year.`\
+https://nytimes.com/2022/01/26/us/politics/ketanji-brown-jackson-supreme-court.html?searchResultPosition=1
 
 **Leglike Limb Regrows on Legless Frogs in New Experiment**\
 `Scientists describe a process by which African clawed frogs can regrow an imperfect but functional lost limb.`\
