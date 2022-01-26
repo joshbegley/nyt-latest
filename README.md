@@ -3,7 +3,7 @@
 https://nytimes.com/interactive/2022/01/26/opinion/sheila-heti-alphabetized-diary-defg.html?searchResultPosition=1
 
 **Macron’s Comments on Algeria Resonate as Elections Loom**\
-`The French president acknowledged the suffering of colonists who fled Algeria after the war of independence, a group that has long voted heavily in favor of the far right in France.`\
+`The French president acknowledged the suffering of colonists who fled Algeria after the war of independence, a group that has long voted heavily in favor of the right in France.`\
 https://nytimes.com/2022/01/26/world/europe/macron-algeria-pieds-noirs.html?searchResultPosition=2
 
 **Olavo de Carvalho, Bolsonaro’s Far-Right Guru, Dies at 74**\
