@@ -1,4 +1,4 @@
-**YouTube Bans Right-Wing Media Personality Dan Bongino**\
+**YouTube Bars Right-Wing Media Personality Dan Bongino**\
 `Already suspended under the platform’s Covid-19 misinformation rules, he continued to post videos daring YouTube to ban him.`\
 https://nytimes.com/2022/01/26/technology/youtube-bans-dan-bongino.html?searchResultPosition=1
 
