@@ -30,7 +30,7 @@ https://nytimes.com/2022/01/26/us/california-redwoods-native-american-conservati
 `Donald Trump’s shadow hangs over the Ukraine crisis.`\
 https://nytimes.com/2022/01/26/briefing/russia-ukraine-trump-nato.html?searchResultPosition=8
 
-**E.P.A. Chief Vows to ‘Do Better’ to Protect Poor Communities From Environmental Harm**\
+**E.P.A. Chief Vows to ‘Do Better’ to Protect Poor Communities**\
 `The Environmental Protection Agency on Wednesday will announce stepped-up enforcement and monitoring to help disadvantaged communities struggling with polluted air and water.`\
 https://nytimes.com/2022/01/26/climate/epa-environmental-justice-regan.html?searchResultPosition=9
 
