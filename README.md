@@ -11,7 +11,7 @@ https://nytimes.com/2022/01/26/opinion/breyer-supreme-court-retirement.html?sear
 https://nytimes.com/2022/01/26/arts/television/jeopardy-amy-schneider.html?searchResultPosition=3
 
 **North Korea Launches 2 Ballistic Missiles, South Korea Says**\
-`A flurry of missile activity has raised tensions in the region at a sensitive time.`\
+`It was the North’s ​sixth missile test this month, the South Korean military said.`\
 https://nytimes.com/2022/01/26/world/asia/north-korea-missile-test.html?searchResultPosition=4
 
 **Breyer’s Retirement Gives Democrats a Dose of (Cautious) Optimism**\
