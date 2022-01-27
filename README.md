@@ -15,7 +15,7 @@ https://nytimes.com/2022/01/27/sports/tennis/dylan-alcott-australian-open.html?s
 https://nytimes.com/2022/01/27/sports/football/ben-roethlisberger-retires-steelers.html?searchResultPosition=4
 
 **School Board in Tennessee Bans Teaching of Holocaust Novel ‘Maus’**\
-`The board voted unanimously to remove “Maus,” a Pulitzer Prize-winning graphic novel, from classrooms because it contained swear words, according to minutes from the meeting.`\
+`The board voted unanimously to remove the Pulitzer Prize-winning graphic novel from classrooms because it contained swear words, according to minutes from the meeting.`\
 https://nytimes.com/2022/01/27/us/maus-banned-holocaust-tennessee.html?searchResultPosition=5
 
 **Don Wilson, Who Gave the Ventures Their Distinctive Rhythm, Dies at 88**\
