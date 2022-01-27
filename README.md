@@ -2,7 +2,7 @@
 `Lewis Rothlein and Jeff Chen double down.`\
 https://nytimes.com/2022/01/26/crosswords/daily-puzzle-2022-01-27.html?searchResultPosition=1
 
-**The University Mistakenly Told 58 Students They’d Won Full Rides. It’ll Pay Their Tuition Anyway.**\
+**A University Mistakenly Told 58 Students They’d Won Full Rides. It’ll Pay Their Tuition Anyway.**\
 `Central Michigan University said the error was made by school staff members who were testing new messaging technology.`\
 https://nytimes.com/2022/01/26/us/central-michigan-university-scholarship-mistake.html?searchResultPosition=2
 
