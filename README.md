@@ -1,40 +1,40 @@
-**Russia’s Military, Once Creaky, Is Modern and Lethal**\
-`A significantly upgraded military has emerged as a key tool of Vladimir Putin’s foreign policy, as he flexes his might around the globe and, most ominously, on the Ukraine border.`\
-https://nytimes.com/2022/01/27/world/europe/russia-military-putin-ukraine.html?searchResultPosition=1
+**Why Is Everyone Going to the Dominican Republic?**\
+`The country is a rare pandemic success story, with recent visitor numbers far surpassing those of most other Caribbean destinations. Easy entry rules are a draw, but some locals are uneasy.`\
+https://nytimes.com/2022/01/27/travel/dominican-republic-tourism-pandemic.html?searchResultPosition=1
 
-**Yes, Omicron Is Loosening Its Hold. But the Pandemic Has Not Ended.**\
-`With spotty immunity in the population and a churn of new variants, the coronavirus is likely to become a persistent but hopefully manageable threat.`\
-https://nytimes.com/2022/01/27/health/omicron-covid-pandemic.html?searchResultPosition=2
+**12 New Books Coming in February**\
+`Epics from Olga Tokarczuk and Marlon James, long-awaited new novels by Sheila Heti and Julie Otsuka, Chuck Klosterman’s investigation into the 1990s and more.`\
+https://nytimes.com/2022/01/27/books/february-new-books.html?searchResultPosition=2
 
-**Helen, With the Gold Teeth**\
-`Ms. Harris makes intricate, stylized grills using a network of vendors in New York City’s diamond district.`\
-https://nytimes.com/2022/01/27/us/helen-with-the-gold-teeth-grills.html?searchResultPosition=3
+**Sotheby’s to Auction Gerald Genta Watch Paintings**\
+`Works by the designer of the Royal Oak and the Nautilus are to be sold online this spring.`\
+https://nytimes.com/2022/01/27/fashion/watches-gerald-genta-auction-sothebys.html?searchResultPosition=3
 
-**Did I Turn Off the Stove? Yes, but Maybe Not the Gas**\
-`New research that finds gas stoves emit methane, a potent greenhouse gas, even when turned off and adds to the debate over electrifying homes.`\
-https://nytimes.com/2022/01/27/climate/gas-stoves-methane-emissions.html?searchResultPosition=4
+**5 Things to Do This Weekend**\
+`Our critics and writers have selected noteworthy cultural events to experience virtually and in person in New York City.`\
+https://nytimes.com/2022/01/27/arts/things-to-do-this-weekend.html?searchResultPosition=4
 
-**The Hot New Thing in Dating? Actually Going on Dates.**\
-`Long, aimless conversations on apps have led fatigued singles back to the basics: meeting IRL.`\
-https://nytimes.com/2022/01/27/style/thursday-dating-app-mixers.html?searchResultPosition=5
+**Transportation Dept. Outlines Plan to Address Rising Traffic Deaths**\
+`The department said it would use new funding in the infrastructure law to carry out the strategy, which touches on issues ranging from speed limits to emergency medical care.`\
+https://nytimes.com/2022/01/27/us/politics/dot-traffic-deaths-plan.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/01/27/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**It’s Hard to Tell When the Crypto Bubble Will Burst, or If There Is One**\
+`Die-hard enthusiasts, slick operators and the lure of riches have kept digital asset prices soaring. Traditional notions of value don’t apply.`\
+https://nytimes.com/2022/01/27/business/crypto-price-bubble.html?searchResultPosition=6
 
-**Police in Ukraine arrested the suspect in a missile factory shooting after an hourslong manhunt.**\
-`The gunman, a national guard soldier, opened fire “for undetermined reasons,” the police said, at an aerospace facility that has been a focus of weapons proliferation concerns.`\
-https://nytimes.com/2022/01/27/world/europe/ukraine-soldiers-shooting.html?searchResultPosition=7
+**For Pre-Owned Watch Sales, Richard Mille Bets on Retail**\
+`Projections show online sales are what’s growing, but the independent brand thinks customers still like brick and mortar.`\
+https://nytimes.com/2022/01/27/fashion/watches-preowned-sales-richard-mille.html?searchResultPosition=7
 
-**Word of the Day: incontrovertible**\
-`This word has appeared in 30 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/01/27/learning/word-of-the-day-incontrovertible.html?searchResultPosition=8
+**Can Biden Avert a Crisis With North Korea?**\
+`Kim Jong-un, the North Korean leader, has done six missile tests this month — equal to all of 2021 — and called on the nation to prepare for “long-term confrontation.”`\
+https://nytimes.com/2022/01/27/us/politics/north-korea-biden-tests.html?searchResultPosition=8
 
-**Late Night Reflects on Stephen Breyer’s Retirement Plan**\
-`“Yep, at 83, Breyer only has two options: either retire or play quarterback for the Tampa Bay Buccaneers,” Jimmy Fallon said.`\
-https://nytimes.com/2022/01/27/arts/television/late-night-stephen-breyer.html?searchResultPosition=9
+**What Does a Forehand Winner Sound Like? Clink, Blip-Blip-Blip!**\
+`At the Australian Open tennis tournament, new technology is translating the movement of the ball into sounds to help blind and low-vision fans follow the action.`\
+https://nytimes.com/2022/01/27/sports/tennis/australian-open-blind-fans.html?searchResultPosition=9
 
-**For the Manhattan D.A., a New Emphasis on Gun Crime**\
-`Alvin Bragg, who campaigned on lenient policies, appointed a prosecutor dedicated to preventing gun violence.`\
-https://nytimes.com/2022/01/27/nyregion/manhattan-da-gun-crimes.html?searchResultPosition=10
+**Cases Dismissed, Judges Replaced: Texas Struggles to Prosecute Migrants**\
+`More than 2,500 migrants have been arrested on trespassing charges under a program created last year by Gov. Greg Abbott. About 900 are still being held in state prisons.`\
+https://nytimes.com/2022/01/27/us/operation-lone-star-texas.html?searchResultPosition=10
 
