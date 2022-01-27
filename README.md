@@ -36,5 +36,5 @@ https://nytimes.com/interactive/2022/sports/olympics/medal-count-results.html?se
 
 **Johnson Vows to Release Full Report on Lockdown Parties**\
 `The findings of an inquiry into the parties at Downing Street have yet to be made public. Information that may compromise a police investigation is currently being removed from the report.`\
-https://nytimes.com/2022/01/27/world/europe/johnson-vows-to-release-full-report-on-lockdown-parties.html?searchResultPosition=10
+https://nytimes.com/2022/01/27/world/europe/boris-johnson-report-downing-street-parties.html?searchResultPosition=10
 
