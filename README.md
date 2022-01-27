@@ -22,8 +22,8 @@ https://nytimes.com/2022/01/27/style/thursday-dating-app-mixers.html?searchResul
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2022/01/27/crosswords/spelling-bee-forum.html?searchResultPosition=6
 
-**Five soldiers in Ukraine are shot dead at a factory.**\
-`A national guard soldier opened fire at a missile and rocket factory in the eastern part of the country “for undetermined reasons,” the police said.`\
+**Police in Ukraine arrested the suspect in a missile factory shooting after an hourslong manhunt.**\
+`The gunman, a national guard soldier, opened fire “for undetermined reasons,” the police said, at an aerospace facility that has been a focus of weapons proliferation concerns.`\
 https://nytimes.com/2022/01/27/world/europe/ukraine-soldiers-shooting.html?searchResultPosition=7
 
 **Word of the Day: incontrovertible**\
