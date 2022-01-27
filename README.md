@@ -1,5 +1,5 @@
 **Biden is not the first president to promise to select his nominee from a specific demographic group.**\
-`By Michael D. Shear`\
+`President Biden’s pledge to nominate a Black woman to the Supreme Court has drawn conservatives’ criticism. But they may just have a short memory.`\
 https://nytimes.com/2022/01/27/us/politics/biden-nominee-woman-black.html?searchResultPosition=1
 
 **‘Futura’ Review: Youth, Italian Style**\
