@@ -11,7 +11,7 @@ https://nytimes.com/interactive/2022/01/27/smarter-living/wirecutter/clean-stain
 https://nytimes.com/2022/01/27/business/economy/biden-economy-politics.html?searchResultPosition=3
 
 **Directors Guild Nominations Focus on Veterans Like Jane Campion and Steven Spielberg**\
-`Four women also made the cut for nomi.`\
+`The films of all five contenders are also up for Producers Guild Awards, suggesting that they will make up the top tier of best-picture nominees at the Oscars.`\
 https://nytimes.com/2022/01/27/movies/directors-guild-award-nominations-list.html?searchResultPosition=4
 
 **F.C.C. revokes the ability of China Unicom to operate in the U.S.**\
