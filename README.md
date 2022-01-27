@@ -16,7 +16,7 @@ https://nytimes.com/2022/01/26/world/asia/north-korea-missile-test.html?searchRe
 
 **Breyer’s Retirement Gives Democrats a Dose of (Cautious) Optimism**\
 `After a series of legislative losses, the chance for President Biden to fulfill a promise by nominating a Black woman was seen by progressives as a chance to show he could still bring about change.`\
-https://nytimes.com/2022/01/26/us/politics/breyers-retirement-gives-democrats-a-dose-of-cautious-optimism.html?searchResultPosition=5
+https://nytimes.com/2022/01/26/us/politics/democrats-stephen-breyer-retirement.html?searchResultPosition=5
 
 **‘Sundown’ Review: Stuck in Shallow Waters in Acapulco**\
 `In this Michel Franco film, a family escapes to the beach in Acapulco, the onetime sun-baked paradise that has become an epicenter of violence.`\
