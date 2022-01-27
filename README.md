@@ -8,7 +8,7 @@ https://nytimes.com/2022/01/27/arts/dance/jamar-roberts-new-york-city-ballet.htm
 
 **Stocks climb as a strong report on the economy helps offset Wall Street’s interest rates fears.**\
 `The S&P 500 rose 1.4 percent in early trading, after posting a second day of losses on Wednesday, while the Nasdaq composite rose 1.3 percent.`\
-https://nytimes.com/2022/01/27/business/stocks-climb-as-a-strong-report-on-the-economy-helps-offset-wall-streets-interest-rates-fears.html?searchResultPosition=3
+https://nytimes.com/2022/01/27/business/stock-market-today.html?searchResultPosition=3
 
 **How Are People Spending Their Home-Equity Loans?**\
 `A study reveals the most popular plans for home equity dollars in large U.S. metro areas.`\
