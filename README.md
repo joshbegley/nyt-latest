@@ -1,6 +1,6 @@
 **A Covid case in Beijing’s Olympic bubble is linked to a German team.**\
 `A supervisor who tested positive is asymptomatic and is now in a quarantine hotel, the German Olympic Sports Confederation said.`\
-https://nytimes.com/2022/01/27/world/asia/covid-beijings-olympic-germany.html?searchResultPosition=1
+https://nytimes.com/2022/01/27/world/asia/covid-case-beijing-olympics-germany.html?searchResultPosition=1
 
 **After Breyer**\
 `The latest on the coming Supreme Court nomination.`\
