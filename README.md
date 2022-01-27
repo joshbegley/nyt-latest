@@ -30,11 +30,11 @@ https://nytimes.com/2022/01/27/arts/television/jussie-smollett-sentencing-date.h
 `Michael Avenatti is representing himself at his trial in Manhattan, and is expected to cross-examine Ms. Daniels personally.`\
 https://nytimes.com/2022/01/27/nyregion/michael-avenatti-stormy-daniels-trial.html?searchResultPosition=8
 
+**Read Justice Breyer’s letter of resignation from the Supreme Court.**\
+`The associate justice was appointed to the Supreme Court in 1994 by President Bill Clinton.`\
+https://nytimes.com/2022/01/27/us/politics/breyer-resignation-letter-scotus.html?searchResultPosition=9
+
 **A #MeToo Moment Shakes Israel’s Ultra-Orthodox**\
 `An acclaimed religious children’s author was accused of abusing women and children. Then he killed himself, sending shock waves through the conservative community.`\
-https://nytimes.com/2022/01/27/world/middleeast/a-metoo-moment-shakes-israels-ultra-orthodox.html?searchResultPosition=9
-
-**A ‘NATO Nerd’ Thrown Into the Crisis Over Russia and Ukraine**\
-`Julianne Smith is the new U.S. ambassador to NATO, a post empty for a year, trying to consult and lead while bandaging the wounds of the Trump years.`\
-https://nytimes.com/2022/01/27/world/europe/ukraine-russia-nato-smith-ambassador.html?searchResultPosition=10
+https://nytimes.com/2022/01/27/world/middleeast/a-metoo-moment-shakes-israels-ultra-orthodox.html?searchResultPosition=10
 
