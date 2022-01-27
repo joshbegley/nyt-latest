@@ -2,13 +2,13 @@
 `Every person on Earth shares in the quest that the giant observatory will now begin.`\
 https://nytimes.com/2022/01/27/science/james-webb-space-telescope.html?searchResultPosition=1
 
-**Homes for Sale in Brooklyn and Manhattan**\
-`This week’s properties are in Harlem, Greenwich Village and Park Slope.`\
-https://nytimes.com/2022/01/27/realestate/housing-makrket-nyc.html?searchResultPosition=2
-
 **Homes for Sale in New York and New Jersey**\
 `This week’s properties are a five-bedroom in Bronxville, N.Y., and a three-bedroom in Upper Freehold, N.J.`\
-https://nytimes.com/2022/01/27/realestate/housing-market-near-nyc.html?searchResultPosition=3
+https://nytimes.com/2022/01/27/realestate/housing-market-near-nyc.html?searchResultPosition=2
+
+**Homes for Sale in Brooklyn and Manhattan**\
+`This week’s properties are in Harlem, Greenwich Village and Park Slope.`\
+https://nytimes.com/2022/01/27/realestate/housing-makrket-nyc.html?searchResultPosition=3
 
 **On the Market in the New York Region**\
 `This week’s properties are a five-bedroom in Eastchester, N.Y., and a three-bedroom in Upper Freehold, N.J.`\
