@@ -10,7 +10,7 @@ https://nytimes.com/2022/01/27/arts/music/classical-music-albums.html?searchResu
 `“I was thinking about Balanchine a lot,” said Roberts, Ailey’s choreographer in residence, who is making his first work for New York City Ballet.`\
 https://nytimes.com/2022/01/27/arts/dance/jamar-roberts-new-york-city-ballet.html?searchResultPosition=3
 
-**Stocks climb as a strong report on the economy helps offset Wall Street’s interest rate fears.**\
+**Stocks climb as a strong economic report helps ease interest rate fears.**\
 `The S&P 500 rose 1.4 percent in early trading, after posting a second day of losses on Wednesday, while the Nasdaq composite rose 1.3 percent.`\
 https://nytimes.com/2022/01/27/business/stock-market-today.html?searchResultPosition=4
 
