@@ -1,4 +1,4 @@
-**Five soldiers in Ukraine are shot dead at a military factory.**\
+**Five soldiers in Ukraine are shot dead at a factory.**\
 `A national guard soldier opened fire at a missile and rocket factory in the eastern part of the country “for undetermined reasons,” the police said.`\
 https://nytimes.com/2022/01/27/world/europe/ukraine-soldiers-shooting.html?searchResultPosition=1
 
