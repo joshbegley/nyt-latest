@@ -6,8 +6,8 @@ https://nytimes.com/2022/01/27/learning/whats-going-on-in-this-graph-feb-2-2022.
 `What we’re eating.`\
 https://nytimes.com/2022/01/27/at-home/newsletter.html?searchResultPosition=2
 
-**Producers Guild Nominations Put ‘Dune’ in Play**\
-`The group’s choices can influence what academy voters do at the Oscars. That’s why the omissions of “Spider-Man: No Way Home” and “No Time to Die” may be significant.`\
+**Producers Guild Nominations Keep ‘Dune’ in Play**\
+`The group’s choices often influence what academy voters do at the Oscars. That’s why the omissions of “Spider-Man: No Way Home” and “No Time to Die” may be significant.`\
 https://nytimes.com/2022/01/27/movies/producers-guild-award-nominations.html?searchResultPosition=3
 
 **In Dog DNA, Small Size Has an Ancient Pedigree**\
