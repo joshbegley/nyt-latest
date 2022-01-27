@@ -30,7 +30,7 @@ https://nytimes.com/2022/01/26/sports/baseball/carlos-beltran-hall-of-fame.html?
 `Alvin Bragg campaigned on lenient policies aimed at making the justice system fairer. But a string of violent episodes early in his tenure is testing his resolve.`\
 https://nytimes.com/2022/01/26/nyregion/alvin-bragg-gun-violence.html?searchResultPosition=8
 
-**Biden Promised a Black Female Justice**\
+**Biden Promised a Black Woman on the Supreme Court**\
 `Now is the time for another step toward all voices being heard.`\
 https://nytimes.com/2022/01/26/opinion/supreme-court-black-woman.html?searchResultPosition=9
 
