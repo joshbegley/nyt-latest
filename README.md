@@ -1,6 +1,6 @@
 **U.K. Police Ask for Report on Boris Johnson to Withhold Details**\
 `The request would mean that the senior civil servant Sue Gray’s report on her investigation into Downing Street parties is unlikely to lay out the most serious accusations in full.`\
-https://nytimes.com/2022/01/28/world/europe/boris-johnson-police-parties.html?searchResultPosition=1
+https://nytimes.com/2022/01/28/world/europe/boris-johnson-party-sue-gray-report.html?searchResultPosition=1
 
 **The New Spy Wars**\
 `A tale about Israel, Pegasus and the world.`\
