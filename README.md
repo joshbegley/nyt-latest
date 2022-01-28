@@ -34,7 +34,7 @@ https://nytimes.com/2022/01/28/sports/football/nfl-quarterbacks.html?searchResul
 `Some dancers recoiled at the prospect of volunteering their services at this year’s Super Bowl halftime show: “You can’t make a living off of exposure.”`\
 https://nytimes.com/2022/01/28/arts/dance/super-bowl-halftime-show-volunteer-dancers-pay.html?searchResultPosition=9
 
-**The F.A.A. says it has reached a deal over 5G service at airports.**\
+**The F.A.A. announces progress in expanding 5G service at airports.**\
 `The federal agency said an agreement with Verizon and AT&T would enable the wireless providers to expand their networks while allowing aircraft to land safely.`\
 https://nytimes.com/2022/01/28/technology/faa-5g-verizon-att.html?searchResultPosition=10
 
