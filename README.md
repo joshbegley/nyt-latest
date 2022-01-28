@@ -2,7 +2,7 @@
 `Sweetening federal stimulus and AmeriCorps funds with state and local money, the state is cranking out tens of thousands of Youth Service jobs.`\
 https://nytimes.com/2022/01/28/us/california-pandemic-peace-corps.html?searchResultPosition=1
 
-**Inflation Runs at Fastest Pace Since 1982 as Wages Rise**\
+**Inflation Runs at Fastest Pace Since 1982 and Wages Rise**\
 `Inflation is still coming in high and wages are strong, trends that may prod the Federal Reserve to increases rates several times this year.`\
 https://nytimes.com/2022/01/28/business/pce-inflation-federal-reserve.html?searchResultPosition=2
 
