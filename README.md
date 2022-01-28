@@ -1,4 +1,4 @@
-**Mourners Remember N.Y.P.D. Officer Killed in Shooting: ‘He Was Joy.’**\
+**Mourners Remember N.Y.P.D. Officer Killed in Shooting: ‘He Was Joy’**\
 `Detective Jason Rivera, 22, is among the youngest police officers killed in the line of duty in New York City.`\
 https://nytimes.com/2022/01/28/nyregion/nypd-jason-rivera-funeral.html?searchResultPosition=1
 
