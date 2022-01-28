@@ -22,7 +22,7 @@ https://nytimes.com/2022/01/28/technology/covid-vaccines-misinformation.html?sea
 `The deliberative process that our team followed with Obama’s nominees is outdated. Democrats should move as quickly as possible.`\
 https://nytimes.com/2022/01/28/opinion/politics/supreme-court-justice-democrat.html?searchResultPosition=6
 
-**White House Alarmism Over Russia Strains Ukraine-U.S. Partnership**\
+**White House Warnings Over Russia Strain Ukraine-U.S. Partnership**\
 `While Ukraine’s president complained about “acute and burning” warnings from Washington, the Pentagon issued a dire new appraisal asserting Russia has amassed enough troops to invade his entire country.`\
 https://nytimes.com/2022/01/28/world/europe/biden-ukraine-russia-diplomacy.html?searchResultPosition=7
 
