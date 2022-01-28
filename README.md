@@ -3,7 +3,7 @@
 https://nytimes.com/2022/01/28/briefing/pegasus-spyware-espionage-cyberwarfare.html?searchResultPosition=1
 
 **‘Who Do You Want Controlling Your Food?’**\
-`Issues in the industry that were exposed by the pandemic reflect decades of economic transformation in the U.S.`\
+`Issues in the beef industry that were exposed by the pandemic reflect decades of economic transformation in the U.S.`\
 https://nytimes.com/2022/01/28/podcasts/the-daily/beef-prices-cattle-ranchers.html?searchResultPosition=2
 
 **Man Held for Five Days in Jail Over Mistaken Identity, His Lawyer Says**\
