@@ -1,40 +1,40 @@
-**Lesson of the Day: ‘How to Draw a Feeling’**\
-`In this lesson, students will learn how an illustrator created a visual representation of the word “languishing.” Then, they will illustrate emotions they have felt during the pandemic.`\
-https://nytimes.com/2022/01/28/learning/lesson-plans/lesson-of-the-day-how-to-draw-a-feeling.html?searchResultPosition=1
+**On Patrol: 12 Days With a Taliban Police Unit in Kabul**\
+`Tasked with guarding a Shiite shrine, a police unit offers a telling snapshot of the Taliban’s rank-and-file fighters and the challenges Afghanistan’s rulers face in governing a diverse nation.`\
+https://nytimes.com/2022/01/28/world/asia/afghanistan-taliban-kabul-shiites.html?searchResultPosition=1
 
-**How Diverse Is Your School?**\
-`Would you characterize your school as being diverse in terms of the racial and socioeconomic makeup of the student body?`\
-https://nytimes.com/2022/01/28/learning/how-diverse-is-your-school.html?searchResultPosition=2
+**In the Bronx, a Push to Save Cass Gilbert’s Train Stations**\
+`Two of the stations designed by the famed architect more than 100 years ago for the old ‘Consolidated’ railroad have a chance to be transformed for new uses.`\
+https://nytimes.com/2022/01/28/realestate/cass-gilbert-train-stations-bronx.html?searchResultPosition=2
 
-**The Lives of Black Women, at Home and Abroad**\
-`Three debut novels — by Kai Harris, Nikki May and Destiny O. Birdsong — follow female protagonists struggling to find their place.`\
-https://nytimes.com/2022/01/28/books/review/what-the-fireflies-knew-kai-harris-wahala-nikki-may-destiny-o-birdsong-nobodys-magic.html?searchResultPosition=3
+**Cass Gilbert’s Abandoned Train Stations**\
+`Local groups are hoping to rejuvenate two historic train halls that have been off limits for decades.`\
+https://nytimes.com/slideshow/2022/01/28/realestate/cass-gilberts-abandoned-train-stations.html?searchResultPosition=3
 
-**New in Paperback: ‘Let the Lord Sort Them’ and ‘The Five Wounds’**\
-`Six new paperbacks to check out this week.`\
-https://nytimes.com/2022/01/28/books/review/new-paperbacks.html?searchResultPosition=4
+**After 600 Years, Swiss City at Last Has a Woman on Night Watch**\
+`Lausanne has kept a night watch atop its cathedral since 1405, but it never appointed a woman to the role until Cassandre Berdoz, after a long fight, landed a job that was her “childhood dream.”`\
+https://nytimes.com/2022/01/28/world/europe/lausanne-switzerland-night-watch.html?searchResultPosition=4
 
-**The New York Times News Quiz, January 28, 2022**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://nytimes.com/interactive/2022/01/28/briefing/news-quiz-breyer-ukraine-jeopardy.html?searchResultPosition=5
+**16 Men Died in New York City Jails Last Year. Who Were They?**\
+`The stories of those who died in custody offer an intimate, firsthand look at the crisis gripping the New York City jail system.`\
+https://nytimes.com/2022/01/28/nyregion/rikers-island-prisoner-deaths.html?searchResultPosition=5
 
-**5 Things to Do This Weekend**\
-`A selection of entertainment options, including a guide to sci-fi films that are streaming now.`\
-https://nytimes.com/interactive/2022/01/28/arts/weekend-editors-picks-sci-fi-reminiscence.html?searchResultPosition=6
+**Tonga’s Proud Diaspora Confronts Daunting Challenge of Disaster Response**\
+`Tens of thousands of overseas Tongans, intimately tied to their homeland, are contending with the pandemic, snarled supply chains and limited communications.`\
+https://nytimes.com/2022/01/28/world/australia/tonga-diaspora-recovery.html?searchResultPosition=6
 
-**Trading Excess for Intimacy**\
-`Valentino and Fendi explore the canons of couture while Glenn Martens makes a superb debut at Gaultier.`\
-https://nytimes.com/2022/01/28/style/valentino-gaultier-fendi-couture.html?searchResultPosition=7
+**Two Simple Tricks That Help Owls Stay in Their New Homes**\
+`A study shows that there is a way to successfully transplant burrowing owls to new habitats when developers build over their homes.`\
+https://nytimes.com/2022/01/28/science/burrowing-owls-transplants.html?searchResultPosition=7
 
-**For Olympic Sponsors, ‘China Is an Exception’**\
-`Pressure is mounting on companies to condemn the country’s human rights violations, but executives say the Games should not be politicized.`\
-https://nytimes.com/2022/01/28/business/olympic-sponsors-china-beijing.html?searchResultPosition=8
+**The Battle for the World’s Most Powerful Cyberweapon**\
+`A Times investigation reveals how Israel reaped diplomatic gains around the world from NSO’s Pegasus spyware — a tool America itself purchased but is now trying to ban.`\
+https://nytimes.com/2022/01/28/magazine/nso-group-israel-spyware.html?searchResultPosition=8
 
-**Where Is Jeffrey Epstein’s Money Going?**\
-`Settlements, upkeep and lawyers have whittled his $600 million estate to about $185 million. A civil fraud suit in the Virgin Islands could wipe out more.`\
-https://nytimes.com/2022/01/28/business/jeffrey-epstein-estate.html?searchResultPosition=9
+**Will There Be Mardi Gras?**\
+`Yes. And Coachella, too. After canceling many major events over the last two years, organizers are going forward in the first months of 2022, though there may be adjustments.`\
+https://nytimes.com/2022/01/28/travel/mardi-gras-coachella.html?searchResultPosition=9
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/01/28/crosswords/spelling-bee-forum.html?searchResultPosition=10
+**How Prabal Gurung Plans to Fall in Love This Year**\
+`Also, Bevy Smith and Marina Rust share where they have hunkered down this winter.`\
+https://nytimes.com/2022/01/28/style/how-prabal-gurung-plans-to-fall-in-love-this-year.html?searchResultPosition=10
 
