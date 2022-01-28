@@ -2,7 +2,7 @@
 `A tale about Israel, Pegasus and the world.`\
 https://nytimes.com/2022/01/28/briefing/pegasus-spyware-espionage-cyberwarfare.html?searchResultPosition=1
 
-**What Beef Can Tell Us About the American Economy**\
+**‘Who Do You Want Controlling Your Food?’**\
 `Issues in the industry that were exposed by the pandemic reflect decades of economic transformation in the U.S.`\
 https://nytimes.com/2022/01/28/podcasts/the-daily/beef-prices-cattle-ranchers.html?searchResultPosition=2
 
