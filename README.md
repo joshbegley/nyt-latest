@@ -8,7 +8,7 @@ https://nytimes.com/2022/01/28/nyregion/michael-avenatti-stormy-daniels.html?sea
 
 **As Breyer Pondered Retirement, Biden Bet on a Hands-Off Strategy**\
 `The president believed pressuring the court’s oldest justice to retire might backfire. A chorus of liberals took a different approach.`\
-https://nytimes.com/2022/01/28/us/politics/breyer-biden-retirement-strategy.html?searchResultPosition=3
+https://nytimes.com/2022/01/28/us/politics/biden-breyer-retirement.html?searchResultPosition=3
 
 **It’s Time to End Race-Based Affirmative Action**\
 `Socioeconomic class is a better justification for it.`\
@@ -19,7 +19,7 @@ https://nytimes.com/2022/01/28/opinion/affirmative-action.html?searchResultPosit
 https://nytimes.com/2022/01/28/us/veterans-earplugs-3m-lawsuit.html?searchResultPosition=5
 
 **Adams Blames Bail Law After Release of Teen Charged in Officer Shooting**\
-`Mayor Eric Adams said he was “outraged” that a teenager accused of shooting a police officer in the Bronx had been freed on bond.`\
+`Mayor Eric Adams said he was “outraged” that a teenager accused in the shooting of a police officer in the Bronx had been freed on bond.`\
 https://nytimes.com/2022/01/28/nyregion/adams-bail-reform-police.html?searchResultPosition=6
 
 **Ukraine, Inflation, N.F.L. Playoffs: Your Friday Evening Briefing**\
