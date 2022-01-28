@@ -26,13 +26,13 @@ https://nytimes.com/slideshow/2022/01/28/realestate/cass-gilberts-abandoned-trai
 `Lausanne has kept a night watch atop its cathedral since 1405, but it never appointed a woman to the role until Cassandre Berdoz, after a long fight, landed a job that was her “childhood dream.”`\
 https://nytimes.com/2022/01/28/world/europe/lausanne-switzerland-night-watch.html?searchResultPosition=7
 
-**16 Men Died in New York City Jails Last Year. Who Were They?**\
-`The stories of those who died in custody offer an intimate, firsthand look at the crisis gripping the New York City jail system.`\
-https://nytimes.com/2022/01/28/nyregion/rikers-island-prisoner-deaths.html?searchResultPosition=8
-
 **Tonga’s Proud Diaspora Confronts Daunting Challenge of Disaster Response**\
 `Tens of thousands of overseas Tongans, intimately tied to their homeland, are contending with the pandemic, snarled supply chains and limited communications.`\
-https://nytimes.com/2022/01/28/world/australia/tonga-diaspora-recovery.html?searchResultPosition=9
+https://nytimes.com/2022/01/28/world/australia/tonga-diaspora-recovery.html?searchResultPosition=8
+
+**16 Men Died in New York City Jails Last Year. Who Were They?**\
+`The stories of those who died in custody offer an intimate, firsthand look at the crisis gripping the New York City jail system.`\
+https://nytimes.com/2022/01/28/nyregion/rikers-island-prisoner-deaths.html?searchResultPosition=9
 
 **Two Simple Tricks That Help Owls Stay in Their New Homes**\
 `A study shows that there is a way to successfully transplant burrowing owls to new habitats when developers build over their homes.`\
