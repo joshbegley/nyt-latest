@@ -1,6 +1,6 @@
 **Jan. 6 Committee Subpoenas Fake Trump Electors**\
 `The panel demanded information from 14 people who were part of bogus slates of electors for President Donald J. Trump, digging deeper into an aspect of his efforts to overturn the 2020 election.`\
-https://nytimes.com/2022/01/28/us/jan-6-committee-subpoenas-fake-trump-electors.html?searchResultPosition=1
+https://nytimes.com/2022/01/28/us/politics/jan-6-committee-trump-electors.html?searchResultPosition=1
 
 **The Equal Rights Amendment Is Now the Law of the Land. Isn’t It?**\
 `Alas, the Constitution doesn’t always mean what it says.`\
