@@ -1,4 +1,4 @@
-**Kamau Bell: Bill Cosby is Key to Understanding America**\
+**Kamau Bell: Bill Cosby Is Key to Understanding America**\
 `The comic and commentator discusses his new documentary, “We Need to Talk About Cosby,” and what Cosby’s story reveals about the “two runaway forces of oppression in America.”`\
 https://nytimes.com/2022/01/28/arts/television/bill-cosby-kamau-bell.html?searchResultPosition=1
 
