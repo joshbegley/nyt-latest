@@ -4,7 +4,7 @@ https://nytimes.com/2022/01/28/us/politics/what-mattered-this-week.html?searchRe
 
 **‘The Exiles’ and ‘Nanny’ Win Top Prizes at Sundance**\
 `A documentary revisiting dissidents from the Tiananmen Square massacre and a horror film about an undocumented domestic worker took the U.S. Grand Jury prizes at the festival.`\
-https://nytimes.com/2022/01/28/movies/sundance-winners-the-exiles-nanny.html?searchResultPosition=2
+https://nytimes.com/2022/01/28/movies/sundance-winners-exiles-nanny.html?searchResultPosition=2
 
 **U.S. Blocks $130 Million in Aid for Egypt Over Rights Abuses**\
 `The Middle Eastern ally continues to buy billions of dollars worth of military equipment from the United States.`\
