@@ -11,20 +11,20 @@ https://nytimes.com/2022/01/29/world/canada/china-olympics-canada.html?searchRes
 https://nytimes.com/2022/01/29/sports/tennis/barty-collins-australian-open.html?searchResultPosition=3
 
 **‘We’re Afraid of Everything’: Ukrainians Remember a Deadly Rocket Attack**\
-`Amid fears of an escalation with Russia, mourners gathered in Mariupol, Ukraine, to remember those killed in 2015, when shelling struck a neighborhood.`\
+`As residents in Mariupol, Ukraine, remember those killed in 2015 during shelling involving Russia-backed separatists, soldiers there said they would to defend their city in the event of a Russian invasion. right?`\
 https://nytimes.com/video/world/europe/100000008180128/ukraine-mariupol-russia.html?searchResultPosition=4
 
 **As Covid Shots for Kids Stall, Appeals Are Aimed at Wary Parents**\
 `Getting more young school-age children vaccinated is crucial for ending the pandemic, public health officials say, and many are focusing on that group.`\
 https://nytimes.com/2022/01/29/health/covid-vaccine-children.html?searchResultPosition=5
 
-**Facing a Ban, a School District Fights to Keep ‘Indian’ Nickname**\
-`Residents in a divided predominantly white town in upstate New York are fighting a state ruling to remove the Native American mascot.`\
-https://nytimes.com/2022/01/29/nyregion/native-american-mascot-cambridge.html?searchResultPosition=6
-
 **ISIS, Thriving in Unstable Places, Proves It’s Still a Threat**\
 `The Islamic State may no longer be able to control territory, but it has shown in Syria and Iraq that it can still pull off opportunistic military operations.`\
-https://nytimes.com/2022/01/29/world/middleeast/isis-syria-iraq.html?searchResultPosition=7
+https://nytimes.com/2022/01/29/world/middleeast/isis-syria-iraq.html?searchResultPosition=6
+
+**Facing a Ban, a School District Fights to Keep ‘Indian’ Nickname**\
+`Residents in a divided predominantly white town in upstate New York are fighting a state ruling to remove the Native American mascot.`\
+https://nytimes.com/2022/01/29/nyregion/native-american-mascot-cambridge.html?searchResultPosition=7
 
 **Canadian Trucker Convoy Descends on Ottawa to Protest Vaccine Mandates**\
 `The “Freedom Convoy” began as a response to Covid vaccine requirements for some truckers, but its political aims have since broadened.`\
