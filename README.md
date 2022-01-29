@@ -32,7 +32,7 @@ https://nytimes.com/2022/01/29/opinion/slavery-history.html?searchResultPosition
 
 **Watch Live: New York’s Governor Gives Update on Winter Storm**\
 `The snowstorm hit New York, New Jersey and other areas of the Northeast, and is expected to bring blizzard conditions.`\
-https://nytimes.com/video/nyregion/100000008181864/winter-storm-new-york-live-video.html?searchResultPosition=9
+https://nytimes.com/video/embedded/nyregion/100000008181864/winter-storm-new-york-live-video.html?searchResultPosition=9
 
 **Italian Lawmakers Say They Have Agreed to Re-Elect Sergio Mattarella as President**\
 `Mr. Mattarella has presided over a chaotic seven years in which the country swung wildly from the left to the right, acting as the guardrails of Italy’s democracy.`\
