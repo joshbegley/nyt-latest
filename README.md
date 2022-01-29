@@ -36,5 +36,5 @@ https://nytimes.com/2022/01/29/us/politics/american-woman-islamic-state-fluke-ek
 
 **As Storms Intensify, the Job of TV Weather Person Gets More Serious**\
 `Once considered comic relief to anchors, television meteorologists are making it clear to viewers that they are covering a crisis in real time.`\
-https://nytimes.com/2022/01/29/business/tv-weather-climate-change.html?searchResultPosition=10
+https://nytimes.com/2022/01/29/business/meteorologists-storm-weather-climate-change.html?searchResultPosition=10
 
