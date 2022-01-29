@@ -1,5 +1,5 @@
 **Giants Hire Brian Daboll as Coach**\
-`Daboll had been the Bills’ offensive coordinator under Joe Schoen, who the Giants hired as G.M. earlier this week after his tenure in Buffalo.`\
+`Daboll had been the Bills’ offensive coordinator under Joe Schoen, whom the Giants hired as G.M. earlier this week after his tenure in Buffalo.`\
 https://nytimes.com/2022/01/28/sports/football/giants-coach-brian-daboll.html?searchResultPosition=1
 
 **Goldman Sachs awards its C.E.O. a raise to $35 million after a record year.**\
