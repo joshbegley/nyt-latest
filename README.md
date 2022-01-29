@@ -1,6 +1,6 @@
 **Joni Mitchell Plans to Follow Neil Young Off Spotify, Citing ‘Lies’**\
 `“Irresponsible people are spreading lies that are costing people their lives,” she wrote after the site was accused of spreading vaccine misinformation.`\
-https://nytimes.com/2022/01/28/arts/joni-mitchell-plans-to-follow-neil-young-off-spotify-citing-lies.html?searchResultPosition=1
+https://nytimes.com/2022/01/28/arts/joni-mitchell-neil-young-spotify.html?searchResultPosition=1
 
 **Area of Recession**\
 `Andrew Ries and Caitlin Reid team up on a fast-moving Saturday challenge.`\
