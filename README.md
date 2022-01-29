@@ -15,7 +15,7 @@ https://nytimes.com/video/us/100000008182136/winter-storm-massachusetts-governor
 https://nytimes.com/2022/01/29/us/scott-merryman-kansas-charged-biden.html?searchResultPosition=4
 
 **Speculation About Tom Brady’s Retirement Intensifies**\
-`The seven-time Super Bowl champion redefined success in the modern era as quarterback of the New England Patriots and Tampa Bay Buccaneers.`\
+`An ESPN report sent observers scrambling on Saturday, but neither Brady’s agent, his team or the N.F.L. could confirm that the Buccaneers’ had made a decision about his football career.`\
 https://nytimes.com/2022/01/29/sports/football/tom-brady-retirement.html?searchResultPosition=5
 
 **Esteban Torres, Congressional Advocate for Latinos, Dies at 91**\
