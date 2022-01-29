@@ -31,7 +31,7 @@ https://nytimes.com/2022/01/29/us/january-snowstorms.html?searchResultPosition=7
 https://nytimes.com/2022/01/29/world/canada/china-olympics-canada.html?searchResultPosition=8
 
 **Ashleigh Barty Wins Australian Open Women’s Singles Title**\
-`The top ranked woman’s player defeated the American Danielle Collins to become the first Australian to win the Grand Slam singles title there since 1978. “I’m so proud to be an Aussie,” she said.`\
+`The top ranked women’s player defeated the American Danielle Collins to become the first Australian to win the Grand Slam singles title there since 1978. “I’m so proud to be an Aussie,” she said.`\
 https://nytimes.com/2022/01/29/sports/tennis/barty-collins-australian-open.html?searchResultPosition=9
 
 **‘My Soul Is Crying’: Ukrainians Remember a Deadly Rocket Attack**\
