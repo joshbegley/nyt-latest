@@ -8,7 +8,7 @@ https://nytimes.com/2022/01/29/us/supreme-court-black-women-biden.html?searchRes
 
 **Watch Live: Massachusetts Governor Gives Update on Winter Storm**\
 `Gov. Charlie Baker of Massachusetts joins public safety and transportation officials in providing details on the storm.`\
-https://nytimes.com/video/us/100000008182136/winter-storm-massachusetts-governor-live-video.html?searchResultPosition=3
+https://nytimes.com/video/embedded/us/100000008182136/winter-storm-massachusetts-governor-live-video.html?searchResultPosition=3
 
 **Officials Charge Man Who Said He Was ‘Coming for’ Biden**\
 `A Kansas man also described members of the Secret Service as “agents of darkness” and threatened one agent with a bullet, according to court records.`\
