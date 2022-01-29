@@ -7,7 +7,7 @@ https://nytimes.com/2022/01/29/world/americas/long-island-nurses-fake-vaccine-ca
 https://nytimes.com/2022/01/29/us/supreme-court-black-women-biden.html?searchResultPosition=2
 
 **Watch Live: Massachusetts Governor Gives Update on Winter Storm**\
-`Gov. Charlie Baker is expected to join public safety and transportation officials in providing details on the storm.`\
+`Gov. Charlie Baker joins public safety and transportation officials in providing details on the storm.`\
 https://nytimes.com/video/us/100000008182136/winter-storm-massachusetts-governor-live-video.html?searchResultPosition=3
 
 **Officials Charge Man Who Said He Was ‘Coming for’ Biden**\
