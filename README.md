@@ -19,7 +19,7 @@ https://nytimes.com/2022/01/29/us/politics/supreme-court-confirmation-battles.ht
 https://nytimes.com/2022/01/29/us/cargo-ship-cookbooks-overboard.html?searchResultPosition=5
 
 **The snowstorm drops 5 inches on Central Park as it makes its way to New England.**\
-`People across the region were bracing for a day of freezing temperatures and heavy snowfall. There was potential for widespread power failures.`\
+`People across the region were bracing for a day of freezing temperatures and heavy snowfall. More than 115,000 households were without power in Massachusetts.`\
 https://nytimes.com/2022/01/29/us/snowfall-total.html?searchResultPosition=6
 
 **What Does ‘a Desk for Working Parents’ Mean?**\
