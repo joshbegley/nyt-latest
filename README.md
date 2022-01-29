@@ -1,6 +1,6 @@
 **Watch Live: Connecticut’s Governor Gives Update on Winter Storm**\
 `Snow blanketed parts of New Jersey to Connecticut and other areas across the Northeast on Saturday.`\
-https://nytimes.com/video/us/100000008181986/winter-storm-connecticut-live-video.html?searchResultPosition=1
+https://nytimes.com/video/embedded/us/100000008181986/winter-storm-connecticut-live-video.html?searchResultPosition=1
 
 **Democrats Decried Dark Money. Then They Won With It in 2020.**\
 `A New York Times analysis reveals how the left outdid the right at raising and spending millions from undisclosed donors to defeat Donald Trump and win power in Washington.`\
