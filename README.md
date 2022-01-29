@@ -2,13 +2,13 @@
 `Amid fears of an escalation with Russia, mourners in Mariupol, Ukraine, gathered to remember the 30 people who were killed in 2015 when rockets believed to have been fired from separatist-controlled territory struck a neighborhood. The mourners told us they were resolved to defend their city.`\
 https://nytimes.com/video/world/europe/100000008180128/ukraine-mariupol-russia.html?searchResultPosition=1
 
-**Facing a Ban, a School District Fights to Keep ‘Indian’ Nickname**\
-`Residents in a divided predominantly white town in upstate New York are fighting a state ruling to remove the Native American mascot.`\
-https://nytimes.com/2022/01/29/nyregion/native-american-mascot-cambridge.html?searchResultPosition=2
-
 **As Covid Shots for Kids Stall, Appeals Are Aimed at Wary Parents**\
 `Getting more young school-age children vaccinated is crucial for ending the pandemic, public health officials say, and many are focusing on that group.`\
-https://nytimes.com/2022/01/29/health/covid-vaccine-children.html?searchResultPosition=3
+https://nytimes.com/2022/01/29/health/covid-vaccine-children.html?searchResultPosition=2
+
+**Facing a Ban, a School District Fights to Keep ‘Indian’ Nickname**\
+`Residents in a divided predominantly white town in upstate New York are fighting a state ruling to remove the Native American mascot.`\
+https://nytimes.com/2022/01/29/nyregion/native-american-mascot-cambridge.html?searchResultPosition=3
 
 **ISIS, Thriving in Unstable Places, Proves It’s Still a Threat**\
 `The Islamic State may no longer be able to control territory, but it has shown in Syria and Iraq that it can still pull off opportunistic military operations.`\
