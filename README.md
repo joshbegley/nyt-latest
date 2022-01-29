@@ -1,6 +1,6 @@
 **Two Long Island nurses made more than $1.5 million in a fake vaccine card scheme, prosecutors say.**\
 `The nurses sold fake vaccination cards and entered false information into New York’s immunization database.`\
-https://nytimes.com/2022/01/29/world/americas/long-island-nurses-fake-vaccine-cards.html?searchResultPosition=1
+https://nytimes.com/2022/01/29/us/long-island-nurses-fake-vaccine-cards.html?searchResultPosition=1
 
 **Black Women in Law Feel Pride and Frustration Ahead of Court Nominee**\
 `As Biden prepares to nominate the first Black woman to the nation’s highest court, members of this small, elite group are watching with complicated emotions.`\
@@ -15,7 +15,7 @@ https://nytimes.com/video/embedded/us/100000008182136/winter-storm-massachusetts
 https://nytimes.com/2022/01/29/us/scott-merryman-kansas-charged-biden.html?searchResultPosition=4
 
 **Speculation About Tom Brady’s Retirement Intensifies**\
-`An ESPN report sent observers scrambling on Saturday, but neither Brady’s agent, his team or the N.F.L. could confirm that the Buccaneers’ quarterback had made a decision about his football career.`\
+`An ESPN report sent observers scrambling on Saturday, but neither Brady’s agent, his team or the N.F.L. could confirm that the Buccaneers’ had made a decision about his football career.`\
 https://nytimes.com/2022/01/29/sports/football/tom-brady-retirement.html?searchResultPosition=5
 
 **Esteban Torres, Congressional Advocate for Latinos, Dies at 91**\
