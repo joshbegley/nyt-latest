@@ -34,7 +34,7 @@ https://nytimes.com/2022/01/28/arts/joni-mitchell-neil-young-spotify.html?search
 `Andrew Ries and Caitlin Reid team up on a fast-moving Saturday challenge.`\
 https://nytimes.com/2022/01/28/crosswords/daily-puzzle-2022-01-29.html?searchResultPosition=9
 
-**Covid-19 is complicating preparations for the East Coast’s snowstorm.**\
-`The intensity of the storm could further strain staffing stretched thin by the Omicron variant. Some officials are considering hiring crews from outside the region.`\
+**Covid-19 complicates preparations for the East Coast’s snowstorm.**\
+`The storm’s intensity could further strain staffing stretched by the Omicron variant. Some officials were considering hiring crews from outside the region.`\
 https://nytimes.com/2022/01/28/us/covid-19-snowstorm-staffing-shortages.html?searchResultPosition=10
 
