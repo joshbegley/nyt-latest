@@ -27,7 +27,7 @@ https://nytimes.com/2022/01/29/world/canada/china-olympics-canada.html?searchRes
 https://nytimes.com/2022/01/29/sports/tennis/barty-collins-australian-open.html?searchResultPosition=7
 
 **‘We’re Afraid of Everything’: Ukrainians Remember a Deadly Rocket Attack**\
-`As residents in Mariupol, Ukraine, remember those killed in 2015 during shelling involving Russia-backed separatists, soldiers there said they would to defend their city in the event of a Russian invasion. right?`\
+`Residents in Mariupol, a Ukrainian front-line city rocked by shelling in 2015, mourn the dead as they brace for a potential Russian escalation.`\
 https://nytimes.com/video/world/europe/100000008180128/ukraine-mariupol-russia.html?searchResultPosition=8
 
 **As Covid Shots for Kids Stall, Appeals Are Aimed at Wary Parents**\
