@@ -34,7 +34,7 @@ https://nytimes.com/2022/01/29/world/canada/china-olympics-canada.html?searchRes
 `The top ranked woman’s player defeated the American Danielle Collins to become the first Australian to win the Grand Slam singles title there since 1978. “I’m so proud to be an Aussie,” she said.`\
 https://nytimes.com/2022/01/29/sports/tennis/barty-collins-australian-open.html?searchResultPosition=9
 
-**‘We’re Afraid of Everything’: Ukrainians Remember a Deadly Rocket Attack**\
+**‘My Soul Is Crying”: Ukrainians Remember a Deadly Rocket Attack**\
 `Residents in Mariupol, a Ukrainian front-line city rocked by shelling in 2015, mourn the dead as they brace for a potential Russian escalation.`\
 https://nytimes.com/video/world/europe/100000008180128/ukraine-mariupol-russia.html?searchResultPosition=10
 
