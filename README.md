@@ -2,7 +2,7 @@
 `Ross Trudeau never lets us down, does he?`\
 https://nytimes.com/2022/01/29/crosswords/daily-puzzle-2022-01-30.html?searchResultPosition=1
 
-**Flooding on Nantucket, and High WindsAlong the Massachusetts Coast.**\
+**Flooding on Nantucket, and High Winds Along the Massachusetts Coast.**\
 `Some roads were closed and parking lots inundated across Cape Cod and the state’s South Shore. Residents braced for the 9 p.m. high tide.`\
 https://nytimes.com/2022/01/29/us/nantucket-storm-flooding-massachusetts.html?searchResultPosition=2
 
