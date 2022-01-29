@@ -1,5 +1,5 @@
 **Ashleigh Barty Wins Australian Open Women’s Singles Title**\
-`The top-ranked woman’s player defeated the American Danielle Collins to become the first Australian player to win the Grand Slam singles title there since 1978.`\
+`The top ranked woman’s player defeated the American Danielle Collins to become the first Australian player to win the Grand Slam singles title there since 1978.`\
 https://nytimes.com/2022/01/29/sports/tennis/barty-collins-australian-open.html?searchResultPosition=1
 
 **‘We’re Afraid of Everything’: Ukrainians Remember a Deadly Rocket Attack**\
