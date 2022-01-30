@@ -7,7 +7,7 @@ https://nytimes.com/2022/01/30/todayspaper/quotation-of-the-day-bitterness-from-
 https://nytimes.com/2022/01/30/us/politics/trump-speech-texas.html?searchResultPosition=2
 
 **North Korea’s Latest Missile Test Appears to Be Its Boldest in Years**\
-`Flight data indicates that the launch carried out Sunday was the North’s most powerful since 2017. South Korean analysts expect further escalations from Kim Jong-un.`\
+`Flight data indicates that the launch on Sunday was the North’s most powerful since 2017. South Korean analysts expect further escalations from Kim Jong-un.`\
 https://nytimes.com/2022/01/29/world/asia/north-korea-missile-test.html?searchResultPosition=3
 
 **Over 30 inches of snow has fallen in parts of Massachusetts, with power outages along the coast.**\
