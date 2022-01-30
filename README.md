@@ -26,8 +26,8 @@ https://nytimes.com/2022/01/30/books/book-ban-us-schools.html?searchResultPositi
 `Lithuanian efforts to stop potash, a key fertilizer ingredient, from Belarus from crossing its territory to punish the country’s authoritarian leader may play into Russia’s hands.`\
 https://nytimes.com/2022/01/30/world/europe/lithuania-belarus-potash.html?searchResultPosition=7
 
-**Britain Toughens Its Stance on Russia, and Russia Seeks Answers From NATO**\
-`Britain is seeking to broaden the range of sanctions available if Russia invades Ukraine. Meanwhile, Russia asked NATO for clarity.`\
+**Britain Toughens Stance on Russia, as Russia Presses NATO for Assurances**\
+`Britain moved to broaden the range of sanctions available if Russia invades Ukraine, as Moscow sent an “urgent demand” to NATO to clarify its stance.`\
 https://nytimes.com/2022/01/30/world/europe/russia-ukraine-britain-sanctions-ireland.html?searchResultPosition=8
 
 **England extends vaccines to vulnerable children ages 5 to 11.**\
