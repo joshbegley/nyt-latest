@@ -28,7 +28,7 @@ https://nytimes.com/2022/01/30/sports/soccer/manchester-united-mason-greenwood-a
 
 **Twenty Years of Sub-Four-Minute Miles**\
 `Nick Willis ran a mile in under four minutes for the 20th straight year. It set off one of the more remarkable celebrations for a ninth-place finish.`\
-https://nytimes.com/2022/01/30/sports/nick-willis-mile.html?searchResultPosition=8
+https://nytimes.com/2022/01/30/sports/nick-willis-wanamaker-mile-millrose-games.html?searchResultPosition=8
 
 **The Hard-Line Russian Advisers Who Have Putin’s Ear**\
 `Three reactionary security officials dedicated to “traditional values” and restoring Soviet glory will figure prominently in the decision whether to invade Ukraine.`\
