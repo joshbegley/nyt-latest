@@ -1,5 +1,5 @@
-**Rafael Nadal Wins Australian Open, and His 21st Grand Slam Title**\
-`The No. 6 seed broke his tie with Novak Djokovic and Roger Federer on Sunday night by beating Daniil Medvedev in five sets to win the men’s singles title.`\
+**Rafael Nadal Wins the Australian Open, His 21st Grand Slam Title**\
+`The No. 6 seed, Nadal broke his tie with Novak Djokovic and Roger Federer in major men’s singles career victories by beating Daniil Medvedev in five sets.`\
 https://nytimes.com/2022/01/30/sports/tennis/nadal-medvedev-australian-open.html?searchResultPosition=1
 
 **‘Stealth’ Variant No Cause for Alarm, but Could Slow Case Decline**\
