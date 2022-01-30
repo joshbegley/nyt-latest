@@ -1,6 +1,6 @@
 **Your Monday Briefing: U.S. Floats Russian Sanctions**\
 `Also, the defeat of ISIS fighters in Syria and China’s pandemic surveillance state.`\
-https://nytimes.com/2022/01/30/briefing/your-monday-briefing-us-floats-russian-sanctions.html?searchResultPosition=1
+https://nytimes.com/2022/01/30/briefing/us-russian-sanctions.html?searchResultPosition=1
 
 **University Mistakenly Tells 5,500 Students They Won Huge Scholarships**\
 `Oakland University in Michigan said “human error” was to blame for the incorrect emails. It was the second university in the state this month to make such a mistake.`\
