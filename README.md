@@ -1,5 +1,5 @@
 **The Hard-Line Russian Advisers Who Have Putin’s Ear**\
-`Three reactionary security officials dedicated to the restoration of the Soviet empire will figure prominently in the decision whether to invade Ukraine.`\
+`Three reactionary security officials dedicated to “traditional values” and restoring Soviet glory will figure prominently in the decision whether to invade Ukraine.`\
 https://nytimes.com/2022/01/30/world/europe/putin-top-advisers-ukraine.html?searchResultPosition=1
 
 **‘There’s Nothing Quite as Distressing as This Piece’**\
