@@ -3,7 +3,7 @@
 https://nytimes.com/2022/01/30/us/oakland-university-scholarship-mistake.html?searchResultPosition=1
 
 **When All-White Was All Right**\
-`By Charles M. Blow`\
+`“Only when we disentangle the concepts of whiteness and maleness from the concept of power can we see the damage the association has done.”`\
 https://nytimes.com/2022/01/30/opinion/supreme-court-nomination-identity-politics.html?searchResultPosition=2
 
 **N.Y.C. is offering free home delivery of Covid antiviral pills, though supply is limited.**\
