@@ -1,5 +1,5 @@
 **Canada Beats U.S., Cementing a Soccer Power Shift**\
-`Sunday’s victory in a World Cup qualifier moved Canada to the brink of its first World Cup berth since 1986, and reasserted its sudden dominance in North America.`\
+`The victory in a World Cup qualifier moved Canada to the cusp of its first World Cup berth since 1986, and reasserted its sudden dominance in North America.`\
 https://nytimes.com/2022/01/30/sports/soccer/canada-usmnt-world-cup.html?searchResultPosition=1
 
 **Spotify Responds to Complaints About Covid Misinformation**\
