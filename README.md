@@ -1,40 +1,40 @@
+**The Week in Business: Higher Interest Rates Are Coming**\
+`Inflation is high. The markets are volatile. Economic growth in the world’s two biggest economies is expected to slow. And the Winter Olympics begin.`\
+https://nytimes.com/2022/01/30/business/the-week-in-business-interest-rates-stock-market.html?searchResultPosition=1
+
+**What to Watch in the 49ers-Rams N.F.C. Championship Game**\
+`The N.F.C. West rivals meet for the third time this season with a Super Bowl berth on the line. Sean McVay will try to end the 49ers’ six-game win streak over his Rams by relying on a talented roster.`\
+https://nytimes.com/2022/01/30/sports/49ers-rams-nfc-championship.html?searchResultPosition=2
+
 **Winter Storm, Russia, N.F.L.: Your Weekend Briefing**\
 `Here’s what you need to know about the week’s top stories.`\
-https://nytimes.com/2022/01/30/briefing/winter-storm-russia-nfl.html?searchResultPosition=1
+https://nytimes.com/2022/01/30/briefing/winter-storm-russia-nfl.html?searchResultPosition=3
 
 **The Sunday Read: ‘The Joys (and Challenges) of Sex After 70’**\
 `Sex can drop off in our final decades. But for those who keep going, it can be the best of their lives.`\
-https://nytimes.com/2022/01/30/podcasts/the-daily/sex-old-age-sunday-read.html?searchResultPosition=2
+https://nytimes.com/2022/01/30/podcasts/the-daily/sex-old-age-sunday-read.html?searchResultPosition=4
 
 **What to Watch as Kansas City Hosts the Bengals in the A.F.C. Championship**\
 `Joe Burrow and the Bengals are all that stand in the way of Kansas City’s return to a third consecutive Super Bowl.`\
-https://nytimes.com/2022/01/30/sports/football/chiefs-bengals-afc-championship.html?searchResultPosition=3
+https://nytimes.com/2022/01/30/sports/football/chiefs-bengals-afc-championship.html?searchResultPosition=5
 
 **Homes That Sold for Around $1 Million**\
 `Recent residential sales in New York City and the region.`\
-https://nytimes.com/2022/01/30/realestate/homes-that-sold-for-around-1-million.html?searchResultPosition=4
+https://nytimes.com/2022/01/30/realestate/homes-that-sold-for-around-1-million.html?searchResultPosition=6
 
 **‘It’s Just Stressful’: Students Feel the Weight of Pandemic Uncertainty**\
 `The pandemic has changed children. Some can’t shake that feeling of instability. Others are taking on adult responsibilities. And anxiety is all around.`\
-https://nytimes.com/2022/01/30/us/students-pandemic-virtual-learning.html?searchResultPosition=5
+https://nytimes.com/2022/01/30/us/students-pandemic-virtual-learning.html?searchResultPosition=7
 
 **Inflation and Deficits Don’t Dim the Appeal of U.S. Bonds**\
 `Treasury rates remain strikingly low, partly because of the safety government debt offers corporations and retirees. Whether that endures is crucial to federal spending.`\
-https://nytimes.com/2022/01/30/business/economy/treasury-bond-yields-inflation.html?searchResultPosition=6
+https://nytimes.com/2022/01/30/business/economy/treasury-bond-yields-inflation.html?searchResultPosition=8
 
 **U.S. Forces Return to Combat as Allies Struggle to Subdue ISIS Fighters**\
 `The fighting was the most intense urban warfare involving American troops in Iraq and Syria since the fall of the ISIS caliphate.`\
-https://nytimes.com/2022/01/30/world/isis-prison-syria.html?searchResultPosition=7
+https://nytimes.com/2022/01/30/world/isis-prison-syria.html?searchResultPosition=9
 
 **Rolling With Wee Man, and His Fans**\
 `Reporting a magazine profile, a reporter learned a lot about the “Jackass” star, and found a passion for the show hidden among her peers.`\
-https://nytimes.com/2022/01/30/insider/rolling-with-wee-man-and-his-fans.html?searchResultPosition=8
-
-**Guns, Race, Abortion: Jennifer Haigh’s New Novel Humanizes Hot-Button Topics**\
-`Haigh’s latest book, “Mercy Street,” is set at a women’s clinic in Boston where the threat of violence is pervasive.`\
-https://nytimes.com/2022/01/30/books/review-mercy-street-jennifer-haigh.html?searchResultPosition=9
-
-**On ‘S.N.L.,’ Biden Hopes That Memes Can Help the Crisis in Ukraine**\
-`This weekend’s episode, hosted by Willem Dafoe, featured music from Katy Perry and a welcome guest appearance by Peyton Manning.`\
-https://nytimes.com/2022/01/30/arts/television/snl-willem-dafoe-katy-perry.html?searchResultPosition=10
+https://nytimes.com/2022/01/30/insider/rolling-with-wee-man-and-his-fans.html?searchResultPosition=10
 
