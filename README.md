@@ -1,40 +1,40 @@
+**‘Someone Had Stolen My Friend’s Shoes’**\
+`A shoe mystery in an Upper West Side apartment building, from this week's Metropolitan Diary.`\
+https://nytimes.com/interactive/2022/01/31/nyregion/ny-metropolitan-diary.html?searchResultPosition=1
+
 **$1.9 Million Homes in California**\
 `A Mission Revival house in San Francisco, a mountain estate in Ojai and a 1918 bungalow in San Jose.`\
-https://nytimes.com/2022/01/31/realestate/home-prices-california.html?searchResultPosition=1
+https://nytimes.com/2022/01/31/realestate/home-prices-california.html?searchResultPosition=2
 
 **What You Get for $1.9 Million in California**\
 `A Mission Revival house in San Francisco, a mountain estate in Ojai and a 1918 bungalow in San Jose.`\
-https://nytimes.com/slideshow/2022/01/31/realestate/what-you-get-for-1-9-million-in-california.html?searchResultPosition=2
+https://nytimes.com/slideshow/2022/01/31/realestate/what-you-get-for-1-9-million-in-california.html?searchResultPosition=3
 
 **The Joe Rogan debate poses an existential question for Spotify.**\
 `The streaming service says it is not responsible for moderating content on its platform, but many believe it should act more like a media company because it pays for that content.`\
-https://nytimes.com/2022/01/31/business/joe-rogan-spotify.html?searchResultPosition=3
+https://nytimes.com/2022/01/31/business/joe-rogan-spotify.html?searchResultPosition=4
 
 **California’s Single-Payer Health Care Proposal Faces Crucial Vote**\
 `The bill must pass the State Assembly on Monday to survive.`\
-https://nytimes.com/2022/01/31/us/single-payer-health-care-california.html?searchResultPosition=4
+https://nytimes.com/2022/01/31/us/single-payer-health-care-california.html?searchResultPosition=5
 
 **Does Spotify Have an Identity Crisis?**\
 `In response to criticism of Joe Rogan’s podcast, the streaming service says it’s a platform, not a media company. That’s a familiar refrain.`\
-https://nytimes.com/2022/01/31/business/dealbook/spotify-rogan-ek.html?searchResultPosition=5
+https://nytimes.com/2022/01/31/business/dealbook/spotify-rogan-ek.html?searchResultPosition=6
 
 **Europe’s economy shows resilience to a surge in coronavirus infections.**\
 `The eurozone economy grew 0.3 percent in the last three months of 2021, despite a contraction in its traditional engine, Germany.`\
-https://nytimes.com/2022/01/31/business/europe-economy-omicron.html?searchResultPosition=6
+https://nytimes.com/2022/01/31/business/europe-economy-omicron.html?searchResultPosition=7
 
 **Omicron surge across Asia restricts travel during the Lunar New Year weekend.**\
 `The Omicron variant has dampened the plans of tens of millions of people across several Asian countries to travel for the holiday.`\
-https://nytimes.com/2022/01/31/world/asia/omicron-asia-lunar-new-year.html?searchResultPosition=7
+https://nytimes.com/2022/01/31/world/asia/omicron-asia-lunar-new-year.html?searchResultPosition=8
 
 **#MeToo Scandal at a Dutch TV Show Spurs a Sexual Assault Reckoning**\
 `The allegations against four men appearing on the Dutch version of “The Voice” talent show have helped to prompt a surge in reports of sexual assaults, victims’ groups say.`\
-https://nytimes.com/2022/01/31/world/europe/metoo-voice-holland-netherlands.html?searchResultPosition=8
+https://nytimes.com/2022/01/31/world/europe/metoo-voice-holland-netherlands.html?searchResultPosition=9
 
 **The Power of Boosters**\
 `New C.D.C. data shows their effectiveness.`\
-https://nytimes.com/2022/01/31/briefing/boosters-cdc-covid-effectiveness.html?searchResultPosition=9
-
-**Women under financial stress are more likely to be abused during the pandemic, researchers find.**\
-`Women who experienced financial hardship as a result of the pandemic were also more likely to be abused by their partners, according to an Australian study.`\
-https://nytimes.com/2022/01/31/world/australia/covid-women-violence-australia.html?searchResultPosition=10
+https://nytimes.com/2022/01/31/briefing/boosters-cdc-covid-effectiveness.html?searchResultPosition=10
 
