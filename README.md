@@ -10,7 +10,7 @@ https://nytimes.com/video/world/europe/100000008183963/boris-johnson-party.html?
 `The E.P.A. will resume enforcing limits on the release of mercury, a neurotoxin linked to developmental damage in children, from coal-burning power plants.`\
 https://nytimes.com/2022/01/31/climate/epa-mercury-pollution-coal.html?searchResultPosition=3
 
-**The maker of Hubble contact lenses will pay $3.5 million in F.T.C. settlement**\
+**The maker of Hubble contact lenses will pay $3.5 million in F.T.C. settlement.**\
 `Industry professionals told The Times in 2019 that Hubble switched people out of their prescribed lens brands and into Hubble’s lenses, which could be harmful to customers.`\
 https://nytimes.com/2022/01/31/business/hubble-contact-lenses-ftc.html?searchResultPosition=4
 
