@@ -22,19 +22,19 @@ https://nytimes.com/2022/01/31/nyregion/to-go-drinks-new-york.html?searchResultP
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2022/01/31/crosswords/spelling-bee-forum.html?searchResultPosition=6
 
-**U.S. and Russia prepare to confront each other at the U.N. over Ukraine.**\
-`The Americans see the Security Council meeting as an opportunity to force Russia to explain itself, while Russia calls the meeting a diplomatic farce.`\
-https://nytimes.com/2022/01/31/world/europe/ukraine-security-council.html?searchResultPosition=7
-
 **Prosecutors Strike Hate-Crime Plea Deals in Ahmaud Arbery Killing**\
 `The victim’s mother denounced the deals made with two of the three men convicted of murder, saying she wants a federal trial to put any self-defense arguments to rest.`\
-https://nytimes.com/2022/01/31/us/ahmaud-arbery-hate-crime-plea-deal.html?searchResultPosition=8
+https://nytimes.com/2022/01/31/us/ahmaud-arbery-hate-crime-plea-deal.html?searchResultPosition=7
 
 **What’s on TV This Week: ‘Missing in Brooks County’ and ‘Sisters With Transistors’**\
 `A documentary about a Texas border region plays as part of PBS’s “Independent Lens” series. And a documentary about women in electronic music airs on Showtime.`\
-https://nytimes.com/2022/01/31/arts/television/whats-on-tv-this-week-missing-in-brooks-county-and-sisters-with-transistors.html?searchResultPosition=9
+https://nytimes.com/2022/01/31/arts/television/whats-on-tv-this-week-missing-in-brooks-county-and-sisters-with-transistors.html?searchResultPosition=8
 
 **Your Monday Briefing**\
 `Proposed sanctions against Russia.`\
-https://nytimes.com/2022/01/31/briefing/china-pandemic-russia-sanctions.html?searchResultPosition=10
+https://nytimes.com/2022/01/31/briefing/china-pandemic-russia-sanctions.html?searchResultPosition=9
+
+**No Corrections: Jan. 31, 2022**\
+`No corrections appeared in print on Monday, Jan. 31, 2022.`\
+https://nytimes.com/2022/01/31/pageoneplus/no-corrections-jan-31-2022.html?searchResultPosition=10
 
