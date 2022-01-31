@@ -35,6 +35,6 @@ https://nytimes.com/2022/01/30/sports/football/nfl-takeaways-kansas-city-bengals
 https://nytimes.com/2022/01/30/nyregion/new-york-redistricting-congressional-map.html?searchResultPosition=9
 
 **Portugal’s Socialists Win the Most Seats in Parliament, but Not the Majority**\
-`The governing party emerged victorious from a snap election, but without the majority needed to avoid forming a coalition in the fractious parliament.`\
+`The governing party emerged victorious from a snap election, but without the majority needed to avoid forming a coalition in the fractious Parliament.`\
 https://nytimes.com/2022/01/30/world/europe/portugal-election.html?searchResultPosition=10
 
