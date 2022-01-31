@@ -14,8 +14,8 @@ https://nytimes.com/2022/01/30/sports/afc-championship-halftime-show.html?search
 `Prince and Chuck make the world a better place, each in his own underhanded way.`\
 https://nytimes.com/2022/01/30/arts/television/billions-recap-episode-2.html?searchResultPosition=4
 
-**What We Learned From the A.F.C. Championship Game**\
-`The Bengals’ defense had the antidote for Patrick Mahomes’s late-game magic.`\
+**What We Learned From the N.F.L.’s Conference Championships**\
+`The Bengals’ defense had the antidote for Patrick Mahomes’s late-game magic, and the Rams did just enough to keep San Francisco’s offense in check.`\
 https://nytimes.com/2022/01/30/sports/football/nfl-takeaways-kansas-city-bengals.html?searchResultPosition=5
 
 **N.Y. Democrats Could Gain 3 House Seats Under Proposed District Lines**\
