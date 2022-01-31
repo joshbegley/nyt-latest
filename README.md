@@ -22,13 +22,13 @@ https://nytimes.com/2022/01/31/realestate/renters-astoria-queens.html?searchResu
 `Residents have been waiting almost a century for new stations. Some aren’t sure they’ll be built.`\
 https://nytimes.com/2022/01/31/nyregion/second-avenue-subway-harlem.html?searchResultPosition=6
 
-**Nothing’s More Fun Than Picking the Next Supreme Court Justice. Right?**\
-`Sometimes fulfilling a campaign promise gets tricky.`\
-https://nytimes.com/2022/01/31/opinion/supreme-court-justice.html?searchResultPosition=7
-
 **What We Can Learn From How the 1918 Pandemic Ended**\
 `Overconfidence, indifference and weariness are perhaps the biggest dangers.`\
-https://nytimes.com/2022/01/31/opinion/covid-pandemic-end.html?searchResultPosition=8
+https://nytimes.com/2022/01/31/opinion/covid-pandemic-end.html?searchResultPosition=7
+
+**Nothing’s More Fun Than Picking the Next Supreme Court Justice. Right?**\
+`Sometimes fulfilling a campaign promise gets tricky.`\
+https://nytimes.com/2022/01/31/opinion/supreme-court-justice.html?searchResultPosition=8
 
 **Documenting Los Angeles’s Unlikely Urban Fishermen**\
 `The act of fishing in Los Angeles seems almost defiant: a tranquil outdoors activity against a backdrop of concrete, litter and highway overpasses.`\
