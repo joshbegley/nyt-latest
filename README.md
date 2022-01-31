@@ -19,7 +19,7 @@ https://nytimes.com/2022/01/31/business/dealbook/stock-market-wall-street.html?s
 https://nytimes.com/interactive/2022/01/31/world/europe/report-of-sue-gray-investigation-into-downing-street-lockdown-parties.html?searchResultPosition=5
 
 **Watch Live: Johnson Addresses Investigation Into Lockdown Parties**\
-`Prime Minister Boris Johnson of Britain speaks after receiving a report into claims of parties at Downing Street that violated England’s Covid rules in 2020. Mr. Johnson has been accused of lying about what he knew about the parties.`\
+`Prime Minister Boris Johnson of Britain is scheduled to speak after receiving a report into claims of parties at Downing Street that violated England’s Covid rules in 2020. Mr. Johnson has been accused of lying about what he knew about the parties.`\
 https://nytimes.com/video/world/europe/100000008183546/boris-johnson-speech.html?searchResultPosition=6
 
 **Covid’s New Divide: Risk Takers vs. the Risk Averse**\
