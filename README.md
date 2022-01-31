@@ -24,7 +24,7 @@ https://nytimes.com/2022/01/31/sports/basketball/jimmy-butler-miami-heat.html?se
 
 **Spotify’s Joe Rogan Problem Isn’t Going Away**\
 `The controversy is different, in many ways, from the other conflicts between online stars and the companies that give them a platform.`\
-https://nytimes.com/2022/01/31/technology/joe-rogan-spotify.html?searchResultPosition=7
+https://nytimes.com/2022/01/31/technology/joe-rogan-spotify-controversy.html?searchResultPosition=7
 
 **Prime Minister Justin Trudeau of Canada tests positive for the coronavirus.**\
 `Mr. Trudeau, who has been isolating since Thursday after a coronavirus exposure, confirmed his positive test result on Monday morning.`\
