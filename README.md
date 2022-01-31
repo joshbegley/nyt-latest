@@ -30,7 +30,7 @@ https://nytimes.com/2022/01/31/world/europe/putin-sanctions-list.html?searchResu
 `The anchor is expected to be off for several weeks, leaving MSNBC with a hole in the coveted 9 p.m. weeknight time slot.`\
 https://nytimes.com/2022/01/31/business/media/rachel-maddow-msnbc-hiatus.html?searchResultPosition=8
 
-**Biden Will Designate Qatar as Major Non-NATO Ally**\
+**Biden Designates Qatar as a Major Non-NATO Ally**\
 `The move clears the way for greater security cooperation and investment at a time when President Biden is seeking help boosting natural gas supplies in Europe.`\
 https://nytimes.com/2022/01/31/us/politics/biden-qatar-nato.html?searchResultPosition=9
 
