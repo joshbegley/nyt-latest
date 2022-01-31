@@ -1,40 +1,40 @@
-**Learning With the ‘Black History, Continued’ Series**\
-`In this extended lesson plan, students will use this special Times series to deepen, expand and challenge their understanding of Black life, culture and history in America.`\
-https://nytimes.com/2022/01/31/learning/lesson-plans/learning-with-the-black-history-continued-series.html?searchResultPosition=1
+**Trump’s Grip on G.O.P. Faces New Strains**\
+`Shifts in polls of Republicans, disagreements on endorsements and jeers over vaccines hint at daylight between the former president and the right-wing movement he spawned.`\
+https://nytimes.com/2022/01/31/us/politics/trump-grip-republicans-polls.html?searchResultPosition=1
 
-**Albany Story: Drinks to Go, the Pandemic and Lobbyists**\
-`Takeout drinks were legalized early in the pandemic, but only temporarily. Lobbyists for liquor stores headed off a move to make them permanent.`\
-https://nytimes.com/2022/01/31/nyregion/albany-story-drinks-to-go-the-pandemic-and-lobbyists.html?searchResultPosition=2
+**In Kazakh Uprising, Reports of Widespread Abuses by Security Forces**\
+`Through crowdsourcing, rights groups say they are documenting a campaign of beatings and torture “on a massive scale.”`\
+https://nytimes.com/2022/01/31/world/europe/kazakhstan-uprising-abuse-torture.html?searchResultPosition=2
 
-**‘Everyone’s Looking for Plastic.’ As Waste Rises, So Does Recycling.**\
-`Plagued by plastic pollution, Senegal wants to replace pickers at the garbage dump with a formal recycling system that takes advantage of the new market for plastics.`\
-https://nytimes.com/2022/01/31/world/africa/senegal-plastic-waste-recycling.html?searchResultPosition=3
+**How Facebook Is Morphing Into Meta**\
+`Shifting a 68,000-person social networking company toward the theoretical metaverse has caused internal disruption and uncertainty.`\
+https://nytimes.com/2022/01/31/technology/facebook-meta-change.html?searchResultPosition=3
 
-**Migrant Worker’s Tale of Inequality Grips China, Then Is Erased**\
-`A man with Covid revealed a parallel universe to well-off Chinese and became a symbol of inequality. The government found him inconvenient to its narrative.`\
-https://nytimes.com/2022/01/31/business/migrant-worker-poverty-in-china.html?searchResultPosition=4
+**Plea in Murder-for-Hire Plot Revives Questions About 2 Unsolved Deaths**\
+`The son of a New Jersey couple found dead in 2014 cites “eerily similar” circumstances in new revelations about a killing that year.`\
+https://nytimes.com/2022/01/31/nyregion/sean-caddle-mark-sheridan-parents-deaths.html?searchResultPosition=4
 
-**To-Go Drinks Had Plenty of Fans in New York. Just Not the Right Ones.**\
-`Lawmakers are considering whether to permanently legalize to-go drinks, setting off a clash between liquor stores and restaurants.`\
-https://nytimes.com/2022/01/31/nyregion/to-go-drinks-new-york.html?searchResultPosition=5
+**When Life Changed, Reiki, Tarot and a Home Redo Were There to Help**\
+`Helen Ho was laid off from her urban planning job at the beginning of the pandemic. She saw it as a chance to focus on the things she really liked doing.`\
+https://nytimes.com/2022/01/31/realestate/renters-astoria-queens.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/01/31/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**Will East Harlem Ever Get its Long-Delayed Subway?**\
+`Residents have been waiting almost a century for new stations. Some aren’t sure they’ll be built.`\
+https://nytimes.com/2022/01/31/nyregion/second-avenue-subway-harlem.html?searchResultPosition=6
 
-**Prosecutors Strike Hate-Crime Plea Deals in Ahmaud Arbery Killing**\
-`The victim’s mother denounced the deals made with two of the three men convicted of murder, saying she wants a federal trial to put any self-defense arguments to rest.`\
-https://nytimes.com/2022/01/31/us/ahmaud-arbery-hate-crime-plea-deal.html?searchResultPosition=7
+**Nothing’s More Fun Than Picking the Next Supreme Court Justice. Right?**\
+`Sometimes fulfilling a campaign promise gets tricky.`\
+https://nytimes.com/2022/01/31/opinion/supreme-court-justice.html?searchResultPosition=7
 
-**What’s on TV This Week: ‘Missing in Brooks County’ and ‘Sisters With Transistors’**\
-`A documentary about a Texas border region plays as part of PBS’s “Independent Lens” series. And a documentary about women in electronic music airs on Showtime.`\
-https://nytimes.com/2022/01/31/arts/television/whats-on-tv-this-week-missing-in-brooks-county-and-sisters-with-transistors.html?searchResultPosition=8
+**What We Can Learn From How the 1918 Pandemic Ended**\
+`Overconfidence, indifference and weariness are perhaps the biggest dangers.`\
+https://nytimes.com/2022/01/31/opinion/covid-pandemic-end.html?searchResultPosition=8
 
-**Your Monday Briefing**\
-`Proposed sanctions against Russia.`\
-https://nytimes.com/2022/01/31/briefing/china-pandemic-russia-sanctions.html?searchResultPosition=9
+**Documenting Los Angeles’s Unlikely Urban Fishermen**\
+`The act of fishing in Los Angeles seems almost defiant: a tranquil outdoors activity against a backdrop of concrete, litter and highway overpasses.`\
+https://nytimes.com/2022/01/31/travel/urban-fishing-los-angeles.html?searchResultPosition=9
 
-**No Corrections: Jan. 31, 2022**\
-`No corrections appeared in print on Monday, Jan. 31, 2022.`\
-https://nytimes.com/2022/01/31/pageoneplus/no-corrections-jan-31-2022.html?searchResultPosition=10
+**Nashville’s Voters Are Silenced, and a Good Public Servant Is Gone**\
+`Representative Jim Cooper won re-election again and again because he is a good politician and a good man. But he finally lost to Republican gerrymandering.`\
+https://nytimes.com/2022/01/31/opinion/nashville-gerrymander-voting-jim-cooper.html?searchResultPosition=10
 
