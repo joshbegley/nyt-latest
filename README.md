@@ -1,4 +1,4 @@
-**At the Logistics Games, Just Arriving Is a Victory**\
+**At the ‘Logistics Games,’ Just Arriving Is a Victory**\
 `Wrestling P.C.R. tests, QR codes and a ticking clock, officials tasked with getting teams to Beijing say planning is the Olympics’ newest high-stakes event.`\
 https://nytimes.com/2022/01/31/sports/olympics/olympics-beijing-travel.html?searchResultPosition=1
 
