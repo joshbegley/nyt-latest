@@ -7,7 +7,7 @@ https://nytimes.com/2022/01/30/arts/television/billions-recap-episode-2.html?sea
 https://nytimes.com/2022/01/30/sports/football/nfl-takeaways-kansas-city-bengals.html?searchResultPosition=2
 
 **N.Y. Democrats Could Gain 3 House Seats Under Proposed District Lines**\
-`A new map drawn by legislative leaders would reconfigure state congressional districts to benefit Democrats in their fight to maintain a  grip on the House of Representatives.`\
+`The state Republican chairman denounced a new map that would reconfigure congressional districts to benefit Democrats  as “filthy, partisan gerrymandering.”`\
 https://nytimes.com/2022/01/30/nyregion/new-york-redistricting-congressional-map.html?searchResultPosition=3
 
 **Portugal’s Socialists Win the Most Seats in Parliament, but Not the Majority**\
