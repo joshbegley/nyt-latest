@@ -3,7 +3,7 @@
 https://nytimes.com/2022/01/31/sports/olympics/olympics-beijing-travel.html?searchResultPosition=1
 
 **Two Bridgeport Officers Suspended Over Handling of Women’s Deaths**\
-`The mayor put the officers on leave, citing “lack of sensitivity” in the cases of Lauren Smith-Fields and Brenda Lee Rawls, who died in Bridgeport, Conn., on the same day.`\
+`The mayor put the officers on leave, citing a “lack of sensitivity” in their handling of the cases of Lauren Smith-Fields and Brenda Lee Rawls, who died in Bridgeport, Conn., on the same day.`\
 https://nytimes.com/2022/01/31/nyregion/lauren-smith-fields-brenda-lee-rawls-bridgeport-police.html?searchResultPosition=2
 
 **Disgraced Running Coach Was Barred for Life for Alleged Sexual Assault**\
