@@ -1,40 +1,40 @@
+**At the Logistics Games, Just Arriving Is a Victory**\
+`Wrestling P.C.R. tests, QR codes and a ticking clock, officials tasked with getting teams to Beijing say planning is the Olympics’ newest high-stakes event.`\
+https://nytimes.com/2022/01/31/sports/olympics/olympics-beijing-travel.html?searchResultPosition=1
+
 **Two Bridgeport Officers Suspended Over Handling of Women’s Deaths**\
 `The mayor put the officers on leave, citing “lack of sensitivity” in the cases of Lauren Smith-Fields and Brenda Lee Rawls, who died in Bridgeport, Conn., on the same day.`\
-https://nytimes.com/2022/01/31/nyregion/lauren-smith-fields-brenda-lee-rawls-bridgeport-police.html?searchResultPosition=1
+https://nytimes.com/2022/01/31/nyregion/lauren-smith-fields-brenda-lee-rawls-bridgeport-police.html?searchResultPosition=2
 
 **Disgraced Running Coach Was Barred for Life for Alleged Sexual Assault**\
 `An arbitrator’s ruling, revealed for the first time, shows that allegations of physical assault prompted a lifetime ban for Alberto Salazar, the former coach of the Nike Oregon Project.`\
-https://nytimes.com/2022/01/31/sports/alberto-salazar-sexual-assault.html?searchResultPosition=2
+https://nytimes.com/2022/01/31/sports/alberto-salazar-sexual-assault.html?searchResultPosition=3
 
 **Review: An Opera Sings of a World on the Verge of Ending**\
 `Ricky Ian Gordon’s “The Garden of the Finzi-Continis” is set in a community of Italian Jews just before World War II.`\
-https://nytimes.com/2022/01/31/arts/music/garden-finzi-continis-opera-review.html?searchResultPosition=3
+https://nytimes.com/2022/01/31/arts/music/garden-finzi-continis-opera-review.html?searchResultPosition=4
 
 **Chicken Reported to Be Doing Well After Successful Restaurant Transplant**\
 `Barbuto, Jonathan Waxman’s long-running West Village restaurant, has brought its charms to a new address, including that celebrated roast chicken.`\
-https://nytimes.com/2022/01/31/dining/barbuto-review.html?searchResultPosition=4
+https://nytimes.com/2022/01/31/dining/barbuto-review.html?searchResultPosition=5
 
 **New Space, Same Old Classics**\
 `The gnocchi, the roasted potatoes and the chicken with salsa verde are all on the menu at Barbuto’s new location.`\
-https://nytimes.com/slideshow/2022/01/31/dining/barbuto-nyc.html?searchResultPosition=5
+https://nytimes.com/slideshow/2022/01/31/dining/barbuto-nyc.html?searchResultPosition=6
 
 **‘I’m Not for Everybody’: Jimmy Butler on Evolving with the Miami Heat**\
 `As Butler leads the Heat to the No. 1 seed in the N.B.A.’s Eastern Conference, he said he increasingly sees his role as allowing others to shine.`\
-https://nytimes.com/2022/01/31/sports/basketball/jimmy-butler-miami-heat.html?searchResultPosition=6
+https://nytimes.com/2022/01/31/sports/basketball/jimmy-butler-miami-heat.html?searchResultPosition=7
 
 **Spotify’s Joe Rogan Problem Isn’t Going Away**\
 `The controversy is different, in many ways, from the other conflicts between online stars and the companies that give them a platform.`\
-https://nytimes.com/2022/01/31/technology/joe-rogan-spotify-controversy.html?searchResultPosition=7
+https://nytimes.com/2022/01/31/technology/joe-rogan-spotify-controversy.html?searchResultPosition=8
 
 **Prime Minister Justin Trudeau of Canada tests positive for the coronavirus.**\
 `Mr. Trudeau, who has been isolating since Thursday after a coronavirus exposure, confirmed his positive test result on Monday morning.`\
-https://nytimes.com/2022/01/31/world/canada/justin-trudeau-covid.html?searchResultPosition=8
+https://nytimes.com/2022/01/31/world/canada/justin-trudeau-covid.html?searchResultPosition=9
 
 **Video of Mentally Ill Woman Chained in Shack Stirs Anger in China**\
 `Public discussion of mental illness has grown in recent years, but in rural areas, resources and acceptance are still limited.`\
-https://nytimes.com/2022/01/31/world/asia/china-chained-woman-video.html?searchResultPosition=9
-
-**Boris Johnson Is Hanging by a Thread**\
-`Is this the end for the prime minister?`\
-https://nytimes.com/2022/01/31/opinion/gray-report-boris-johnson.html?searchResultPosition=10
+https://nytimes.com/2022/01/31/world/asia/china-chained-woman-video.html?searchResultPosition=10
 
