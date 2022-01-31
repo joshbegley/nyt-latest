@@ -30,8 +30,8 @@ https://nytimes.com/2022/01/31/world/europe/putin-macron-ukraine.html?searchResu
 `A deadline of April 1, imposed in the fall when Delta was raging, may not be the right policy for Omicron, the health secretary, Sajid Javid, said on Monday.`\
 https://nytimes.com/2022/01/31/world/europe/vaccine-mandate-uk-nhs.html?searchResultPosition=8
 
-**‘Poor Kids’: Bodies of 2 Youths Found Near Syrian Prison Where 500 Died**\
-`The U.S.-backed Syrian militia that recaptured the prison gave a fuller account of the fighting that lasted for more than a week, saying about 500 people died, most of them linked to ISIS.`\
+**Teenage Inmates Found Among the 500 Dead in Syria Prison Attack**\
+`The bodies of at least two boys were found on a street behind the prison — the first confirmed deaths among up to 700 teenagers who had been detained there because they were the children of ISIS fighters.`\
 https://nytimes.com/2022/01/31/world/middleeast/syria-prison-isis-boys.html?searchResultPosition=9
 
 **In a New Documentary, Janet Jackson Is Hiding in Plain Sight**\
