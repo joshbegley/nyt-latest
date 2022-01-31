@@ -4,7 +4,7 @@ https://nytimes.com/2022/01/31/business/hubble-contact-lenses-ftc.html?searchRes
 
 **John K. Singlaub, General Who Clashed With Jimmy Carter, Dies at 100**\
 `After a career in military intelligence, waging war in Europe, Korea and Vietnam, he was forced out of the U.S. Army. He then aided the contras in Nicaragua.`\
-https://nytimes.com/2022/01/31/us/politics/john-k-singlaub-dead.html?searchResultPosition=2
+https://nytimes.com/2022/01/31/us/john-k-singlaub-dead.html?searchResultPosition=2
 
 **At the ‘Logistics Games,’ Just Arriving Is a Victory**\
 `Wrestling P.C.R. tests, QR codes and a ticking clock, officials tasked with getting teams to Beijing say planning is the Olympics’ newest high-stakes event.`\
