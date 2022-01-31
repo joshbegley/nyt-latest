@@ -4,7 +4,7 @@ https://nytimes.com/2022/01/31/briefing/coronavirus-briefing-nyc-recovery.html?s
 
 **Indicted Trump Ally Says Prosecutors Stalled Case Until After Election**\
 `Thomas J. Barrack Jr., who is charged with illegally lobbying then-President Donald J. Trump, suggested that the delay in his prosecution was politically motivated.`\
-https://nytimes.com/2022/01/31/nyregion/tom-barrack-lobbying-charge-trump.html?searchResultPosition=2
+https://nytimes.com/2022/01/31/nyregion/thomas-barrack-trump.html?searchResultPosition=2
 
 **Russia-Ukraine, Boris Johnson, Lunar New Year: Your Monday Evening Briefing**\
 `Here’s what you need to know at the end of the day.`\
