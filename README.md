@@ -1,5 +1,5 @@
 **N.Y. Democrats Could Gain 3 House Seats Under Proposed District Lines**\
-`A new map drawn by legislative leaders would reconfigure state congressional districts to benefit Democrats in their fight to maintain a grip on the House of Representatives.`\
+`A new map drawn by legislative leaders would reconfigure state congressional districts to benefit Democrats in their fight to maintain a  grip on the House of Representatives.`\
 https://nytimes.com/2022/01/30/nyregion/new-york-redistricting-congressional-map.html?searchResultPosition=1
 
 **Portugal’s Socialists Win the Most Seats in Parliament, but Not the Majority**\
