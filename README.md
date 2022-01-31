@@ -1,6 +1,6 @@
 **Leader of Australian Megachurch Steps Down After Charge Over Father’s Sexual Abuse**\
 `Brian Houston, who was the leader of Hillsong, is accused of concealing past abuse by his father, who later died and was never charged.`\
-https://nytimes.com/2022/01/30/world/australia/brian-houston-hillsong.html?searchResultPosition=1
+https://nytimes.com/2022/01/31/world/australia/brian-houston-hillsong.html?searchResultPosition=1
 
 **‘I Have No Idea What You Just Said’: Concert Drowns Out A.F.C. Halftime Analysis**\
 `As the “NFL on CBS” crew broke down the first half of the game, a performance by the country music singer Walker Hayes was so loud, it made the commentary all but inaudible.`\
