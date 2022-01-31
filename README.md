@@ -4,7 +4,7 @@ https://nytimes.com/2022/01/31/business/media/rachel-maddow-msnbc-hiatus.html?se
 
 **Biden Will Designate Qatar as Major Non-NATO Ally**\
 `The move clears the way for greater security cooperation and investment at a time when President Biden is seeking help boosting natural gas supplies in Europe.`\
-https://nytimes.com/2022/01/31/us/politics/biden-qatar-major-non-nato-ally.html?searchResultPosition=2
+https://nytimes.com/2022/01/31/us/politics/biden-qatar-nato.html?searchResultPosition=2
 
 **Multilayered Paintings That Pay Tribute to Hip-Hop Dances**\
 `In his latest works, the artist Troy Lamarr Chew II has embedded references to the Bart Simpson, the Shopping Cart and many other familiar moves.`\
