@@ -30,11 +30,11 @@ https://nytimes.com/2022/01/31/opinion/covid-pandemic-end.html?searchResultPosit
 `Sometimes fulfilling a campaign promise gets tricky.`\
 https://nytimes.com/2022/01/31/opinion/supreme-court-justice.html?searchResultPosition=8
 
+**Fever? Sore Throat? Just Check ‘No’**\
+`Attestation forms for Covid may be turning us into fibbers.`\
+https://nytimes.com/2022/01/31/fashion/covid-form-fibs.html?searchResultPosition=9
+
 **Documenting Los Angeles’s Unlikely Urban Fishermen**\
 `The act of fishing in Los Angeles seems almost defiant: a tranquil outdoors activity against a backdrop of concrete, litter and highway overpasses.`\
-https://nytimes.com/2022/01/31/travel/urban-fishing-los-angeles.html?searchResultPosition=9
-
-**Nashville’s Voters Are Silenced, and a Good Public Servant Is Gone**\
-`Representative Jim Cooper won re-election again and again because he is a good politician and a good man. But he finally lost to Republican gerrymandering.`\
-https://nytimes.com/2022/01/31/opinion/nashville-gerrymander-voting-jim-cooper.html?searchResultPosition=10
+https://nytimes.com/2022/01/31/travel/urban-fishing-los-angeles.html?searchResultPosition=10
 
