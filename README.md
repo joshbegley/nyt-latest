@@ -26,15 +26,15 @@ https://nytimes.com/2022/02/01/learning/lesson-plans/lesson-of-the-day-covid-tes
 `A reporter covering online disinformation takes you through how she debunks false information with the help of data, advice from experts and a little detective work.`\
 https://nytimes.com/2022/02/01/learning/annotated-by-the-author-covid-test-misinformation-spikes-along-with-spread-of-omicron.html?searchResultPosition=7
 
+**Orban, visiting Moscow, is accused of stoking acrimony with the E.U.**\
+`Prime Minister Viktor Orban of Hungary is perhaps the closest ally of President Vladimir V. Putin within the 27-member bloc.`\
+https://nytimes.com/2022/02/01/world/europe/orban-putin-eu.html?searchResultPosition=8
+
 **Prices and Ire, Rising**\
 `Inflation is up, and Americans are mad. But it’s not a simple story.`\
-https://nytimes.com/2022/02/01/briefing/inflation-anger-us-covid.html?searchResultPosition=8
+https://nytimes.com/2022/02/01/briefing/inflation-anger-us-covid.html?searchResultPosition=9
 
 **Dutch Publisher Apologizes Over Disputed Anne Frank Book**\
 `Ambo Anthos Publishers said it would delay printing more copies. HarperCollins, the book’s publisher in the United States, declined to comment.`\
-https://nytimes.com/2022/02/01/books/anne-frank-dutch-publisher-apologizes.html?searchResultPosition=9
-
-**Did Democrats Make Inflation Worse?**\
-`Higher prices are imperiling the party’s chances of holding on to power in Washington. How much have Democrats’ own policies contributed to the problem?`\
-https://nytimes.com/2022/02/01/podcasts/the-daily/inflation-pandemic-biden-economy.html?searchResultPosition=10
+https://nytimes.com/2022/02/01/books/anne-frank-dutch-publisher-apologizes.html?searchResultPosition=10
 
