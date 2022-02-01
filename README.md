@@ -15,7 +15,7 @@ https://nytimes.com/2022/01/31/theater/shhhh-review.html?searchResultPosition=3
 https://nytimes.com/2022/01/31/crosswords/daily-puzzle-2022-02-01.html?searchResultPosition=4
 
 **Pfizer is expected to ask the F.D.A. to authorize its Covid vaccine for children under 5.**\
-`Pfizer and BioNTech in mid-December announced that two doses of the vaccine, given at a tenth of the amount of an adult dosing, did not produce a strong enough immune response in children ages 2 to 4.`\
+`By Sharon LaFraniere and Noah Weiland`\
 https://nytimes.com/2022/01/31/us/politics/children-covid-vaccine.html?searchResultPosition=5
 
 **Fatal Gang Fight Spurs Nationwide Lockdown of Federal Prison System**\
