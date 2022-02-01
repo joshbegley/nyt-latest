@@ -1,6 +1,6 @@
 **101 of the Best Songs About California**\
 `An unscientific guide to the tracks that evoke the Golden State.`\
-https://nytimes.com/2022/02/01/us/best-songs-california.html?searchResultPosition=1
+https://nytimes.com/2022/02/01/us/california-songs.html?searchResultPosition=1
 
 **Warehouse Space Is the Latest Thing Being Hoarded**\
 `Logistics firms are finding new options to deal with a scarcity of storage, including building multistory facilities and choosing locations farther from coastal ports.`\
