@@ -4,7 +4,7 @@ https://nytimes.com/video/world/europe/100000008184823/uk-health-workers-vaccine
 
 **Former Pence Chief of Staff Has Testified to the Jan. 6 Committee**\
 `Marc Short, who has firsthand knowledge of former President Donald J. Trump’s pressure campaign on his vice president to throw out the election results, appeared under subpoena.`\
-https://nytimes.com/2022/01/31/us/marc-short-january-6-committee.html?searchResultPosition=2
+https://nytimes.com/2022/01/31/us/marc-short-mike-pence.html?searchResultPosition=2
 
 **Trump Announces Entering 2022 With $122 Million in the Bank**\
 `The former president said his overall war chest so far stood at $122 million — more than double the cash on hand of the Republican National Committee.`\
