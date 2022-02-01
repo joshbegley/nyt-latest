@@ -1,5 +1,5 @@
 **Brian Flores Sues N.F.L., Claiming Bias in Giants Coaching Search**\
-`The former head coach of the Miami Dolphins, claimed in a class-action lawsuit filed Tuesday that the N.F.L. discriminated against him and other Black coaches in their hiring practices.`\
+`The former head coach of the Miami Dolphins claimed in a class-action lawsuit filed Tuesday that the N.F.L. discriminated against him and other Black coaches in their hiring practices.`\
 https://nytimes.com/2022/02/01/sports/football/brian-flores-giants-discrimination-lawsuit.html?searchResultPosition=1
 
 **Thousands Told to Evacuate as North Carolina Fertilizer Plant Burns**\
