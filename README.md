@@ -2,7 +2,7 @@
 `On inflation-fighting, 2022 isn’t 1980.`\
 https://nytimes.com/2022/02/01/opinion/inflation-recession-us-economy.html?searchResultPosition=1
 
-**A Normal Supply Chain? It’s ‘Unlikely’ in 2022**\
+**A Normal Supply Chain? It’s ‘Unlikely’ in 2022.**\
 `The chaos at ports, warehouses and retailers will probably persist through the year, and perhaps even longer.`\
 https://nytimes.com/2022/02/01/business/supply-chain-disruption.html?searchResultPosition=2
 
