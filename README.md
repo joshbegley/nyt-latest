@@ -1,4 +1,4 @@
-**A Year After a Coup, Myanmar Is Mired in Conflict and Chaos**\
+**A Year After Coup, Myanmar Is Mired in Conflict and Chaos**\
 `Daily protests, once loud and colorful, have been replaced by an eerie quiet. To mark the anniversary of the military takeover, protest leaders have called for a “silent strike.”`\
 https://nytimes.com/2022/02/01/world/asia/myanmar-coup-anniversary-sanctions.html?searchResultPosition=1
 
