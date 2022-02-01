@@ -14,8 +14,8 @@ https://nytimes.com/2022/02/01/sports/olympics/netherlands-speedskating-beijing-
 `A question about what doesn’t make a mammal a mammal.`\
 https://nytimes.com/interactive/2022/02/01/science/science-quiz-mammals.html?searchResultPosition=4
 
-**Whoopi Goldberg Says Holocaust Was ‘Not About Race’**\
-`Ms. Goldberg later apologized after her comments on an episode of her show “The View,” which come amid growing ignorance about the Holocaust and rising antisemitism.`\
+**Whoopi Goldberg Apologizes for Saying Holocaust Was ‘Not About Race’**\
+`Ms. Goldberg’s comments, on Monday’s episode of “The View,” came amid growing ignorance about the Holocaust and rising antisemitism.`\
 https://nytimes.com/2022/02/01/us/whoopi-goldberg-holocaust.html?searchResultPosition=5
 
 **Anders Behring Breivik, Killer in 2011 Norway Massacre, Is Denied Parole**\
