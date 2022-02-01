@@ -1,6 +1,6 @@
 **Trump Had Role in Weighing Proposals to Seize Voting Machines**\
 `New accounts show that the former president was more directly involved than previously known in plans developed by outside advisers to use national security agencies to seek evidence of fraud.`\
-https://nytimes.com/2022/01/31/us/politics/trump-election-fraud.html?searchResultPosition=1
+https://nytimes.com/2022/01/31/us/politics/donald-trump-election-results-fraud-voting-machines.html?searchResultPosition=1
 
 **Review: In ‘Intimate Apparel,’ Letting the Seamstress Sing**\
 `Lynn Nottage’s play about a Black woman in 1905 becomes an opera, with music by Ricky Ian Gordon, that forefronts voices ignored by history.`\
