@@ -11,7 +11,7 @@ https://nytimes.com/2022/02/01/briefing/coronavirus-briefing-shots-for-young-kid
 https://nytimes.com/2022/02/01/briefing/russia-tom-brady-milky-way.html?searchResultPosition=3
 
 **Questions Remain After Highway Crash Involving Monkeys**\
-`A Pennsylvania woman who had contact with them says she has signs of illness, but no one else has reported symptoms. And the airline that shipped them to the U.S. is getting out of the business.`\
+`A Pennsylvania woman who had contact with them says she has signs of illness, but no one else has reported symptoms. And the airline that shipped them is getting out of the business.`\
 https://nytimes.com/2022/02/01/us/cdc-monkeys-pennsylvania-truck-crash.html?searchResultPosition=4
 
 **The Morning at Night: A New York Times Event**\
