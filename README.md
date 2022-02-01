@@ -10,7 +10,7 @@ https://nytimes.com/video/world/europe/100000008184823/uk-health-workers-vaccine
 `Marc Short, who has firsthand knowledge of former President Donald J. Trump’s pressure campaign on his vice president to throw out the election results, appeared under subpoena.`\
 https://nytimes.com/2022/01/31/us/marc-short-mike-pence.html?searchResultPosition=3
 
-**Trump Announces Entering 2022 With $122 Million in the Bank**\
+**Trump Announces He Is Entering 2022 With $122 Million in the Bank**\
 `The former president said his overall war chest so far was more than double the cash on hand of the Republican National Committee.`\
 https://nytimes.com/2022/01/31/us/politics/trump-campaign-filing.html?searchResultPosition=4
 
