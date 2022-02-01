@@ -32,7 +32,7 @@ https://nytimes.com/2022/02/01/learning/annotated-by-the-author-covid-test-misin
 
 **Orban, visiting Moscow, is accused of stoking acrimony with the E.U.**\
 `Prime Minister Viktor Orban of Hungary is perhaps the closest ally of President Vladimir V. Putin within the 27-member bloc.`\
-https://nytimes.com/2022/02/01/world/europe/orban-putin-eu.html?searchResultPosition=9
+https://nytimes.com/2022/02/01/world/europe/viktor-orban-putin.html?searchResultPosition=9
 
 **Prices and Ire, Rising**\
 `Inflation is up, and Americans are mad. But it’s not a simple story.`\
