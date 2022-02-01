@@ -3,7 +3,7 @@
 https://nytimes.com/2022/02/01/us/whoopi-goldberg-holocaust.html?searchResultPosition=1
 
 **Anders Behring Breivik, Killer in 2011 Norway Massacre, Is Denied Parole**\
-`Mr. Breivik, who killed 77 people in two attacks, has served 10 years of a 21-year sentence.`\
+`Mr. Breivik, who killed 77 people in the worst crime in modern Norwegian history, has served 10 years of a 21-year sentence.`\
 https://nytimes.com/2022/02/01/world/europe/anders-behring-breivik-norway-parole.html?searchResultPosition=2
 
 **The Rampaging Pigs of the San Francisco Bay Area**\
