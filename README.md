@@ -4,7 +4,7 @@ https://nytimes.com/2022/02/01/us/best-songs-california.html?searchResultPositio
 
 **Warehouse Space Is the Latest Thing Being Hoarded**\
 `Logistics firms are finding new options to deal with a scarcity of storage, including building multistory facilities and choosing locations farther from coastal ports.`\
-https://nytimes.com/2022/02/01/business/warehouse-hoarding-supply-chain.html?searchResultPosition=2
+https://nytimes.com/2022/02/01/business/warehouses-supply-chain.html?searchResultPosition=2
 
 **Recent Commercial Real Estate Transactions**\
 `Recent commercial real estate transactions in New York.`\
