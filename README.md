@@ -1,6 +1,6 @@
 **Israeli Commanders Disciplined in Death of Palestinian-American Man**\
 `Three Israeli military commanders have been reprimanded and reassigned after an investigation into the death of a 78-year-old man after he was detained.`\
-https://nytimes.com/2022/02/01/world/middleeast/israeli-commanders-disciplined-in-death-of-palestinian-american-man.html?searchResultPosition=1
+https://nytimes.com/2022/02/01/world/middleeast/israel-commanders-palestinian-man.html?searchResultPosition=1
 
 **A Manager of a Certain Vintage**\
 `Baseball’s players may be locked out, but Dusty Baker, at 72, is hard at work in his vineyards, trusting advice from Willie Stargell and paying tribute to Henry Aaron.`\
