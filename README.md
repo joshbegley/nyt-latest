@@ -36,5 +36,5 @@ https://nytimes.com/2022/02/01/style/tiny-modern-love-stories-i-cried-without-kn
 
 **White House Chooses Doug Jones to Guide Supreme Court Nominee**\
 `Once President Biden chooses a nominee, Mr. Jones will serve as a “sherpa,” introducing her to senators and preparing her for hearings.`\
-https://nytimes.com/2022/02/01/us/politics/doug-jones-senate-supreme-court.html?searchResultPosition=10
+https://nytimes.com/2022/02/01/us/politics/doug-jones-supreme-court.html?searchResultPosition=10
 
