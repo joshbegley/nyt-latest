@@ -14,7 +14,7 @@ https://nytimes.com/2022/01/31/us/marc-short-mike-pence.html?searchResultPositio
 `The former president said his overall war chest so far was more than double the cash on hand of the Republican National Committee.`\
 https://nytimes.com/2022/01/31/us/politics/trump-campaign-filing.html?searchResultPosition=4
 
-**What a Serpentine District Says About N.Y.’s New Congressional Map**\
+**What a Serpentine District Says About N.Y. Democrats’ Gerrymandering**\
 `The peculiar redrawing of Representative Jerrold Nadler’s district led to the joke that it was “jerrymandered.” The reasons for the new lines were politically complicated.`\
 https://nytimes.com/2022/01/31/nyregion/gerrymander-redistrict-ny-nadler.html?searchResultPosition=5
 
