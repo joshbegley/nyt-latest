@@ -26,15 +26,15 @@ https://nytimes.com/2022/02/01/todayspaper/quotation-of-the-day-taking-on-everes
 `Meyers Taylor and her U.S. teammate Josh Williamson joined a growing list of Olympians with the coronavirus. The schedule may allow them enough time to recover and compete.`\
 https://nytimes.com/2022/02/01/sports/olympics/elana-meyers-taylor-coronavirus-olympics.html?searchResultPosition=7
 
-**Can Jennifer Lopez Save the Rom-Com?**\
-`After navigating the treacherous waters of celebrity, the superstar is betting on “Marry Me,” a movie that sounds a lot like her personal life.`\
-https://nytimes.com/2022/02/01/movies/jennifer-lopez-marry-me.html?searchResultPosition=8
-
 **Despite Labor Shortages, Workers See Few Gains in Economic Security**\
 `The pandemic has supposedly given service workers leverage. But many still have unstable hours and incomes because employers like the flexibility.`\
-https://nytimes.com/2022/02/01/business/economy/part-time-work.html?searchResultPosition=9
+https://nytimes.com/2022/02/01/business/economy/part-time-work.html?searchResultPosition=8
 
 **As the U.S. Pulls Back From the Mideast, China Leans In**\
 `China is expanding its ties to Middle Eastern states with vast infrastructure investments and cooperation on technology and security.`\
-https://nytimes.com/2022/02/01/world/middleeast/china-middle-east.html?searchResultPosition=10
+https://nytimes.com/2022/02/01/world/middleeast/china-middle-east.html?searchResultPosition=9
+
+**With Low-Tech, Trench Warfare, Ukraine’s Army Isn’t NATO Caliber**\
+`The United States and its allies have trained and helped equip the Ukrainian army. But it has little resemblance to the kind of sophisticated, contemporary military that distinguishes NATO members.`\
+https://nytimes.com/2022/02/01/world/europe/ukraine-army-nato-russia.html?searchResultPosition=10
 
