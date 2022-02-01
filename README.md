@@ -1,4 +1,4 @@
-**U.S., Allies Close to Reviving Nuclear Deal With Iran, Officials Say**\
+**U.S. and Allies Close to Reviving Nuclear Deal With Iran, Officials Say**\
 `A return to a 2015 accord is on the table, but the next decisions are up to the new government in Tehran, the Biden administration says.`\
 https://nytimes.com/2022/01/31/us/politics/iran-nuclear-deal-biden.html?searchResultPosition=1
 
