@@ -8,7 +8,7 @@ https://nytimes.com/2022/02/01/us/fertilizer-plant-fire-winston-salem-nc.html?se
 
 **The Best Movies and TV Shows Coming to HBO, Hulu, Apple TV+ and More in February**\
 `Every month, streaming services add movies and TV shows to its library. Here are our picks for some of February’s most promising new titles.`\
-https://nytimes.com/2022/02/01/arts/television/movies-tv-hbo-hulu-apple-feb.html?searchResultPosition=3
+https://nytimes.com/2022/02/01/arts/television/hbo-hulu-apple-tv-streaming.html?searchResultPosition=3
 
 **G.M.’s profit jumped in 2021 despite disruptions from the global chip shortage.**\
 `The company made $10 billion in profit for 2021, a 55 percent increase from 2020.`\
