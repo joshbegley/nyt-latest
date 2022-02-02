@@ -7,7 +7,7 @@ https://nytimes.com/2022/02/01/us/politics/pfizer-vaccine-kids.html?searchResult
 https://nytimes.com/2022/02/01/us/politics/trump-election-jan-6-voting-machines.html?searchResultPosition=2
 
 **U.S. Sends Top Security Official to Help NATO Brace for Russian Cyberattacks**\
-`Intelligence assessments suggest that a Russian invasion of Ukraine could be preceded by cyberattacks on Ukraine’s electric grid, its communications systems and its government.`\
+`Intelligence assessments suggest that a Russian invasion of Ukraine would most likely be preceded by cyberattacks on Ukraine’s electric grid, its communications systems and its government.`\
 https://nytimes.com/2022/02/01/us/politics/russia-ukraine-cybersecurity-nato.html?searchResultPosition=3
 
 **Biden Administration Rejects Use of Testimony Obtained From Torture in Guantánamo Trial**\
