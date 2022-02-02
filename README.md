@@ -1,5 +1,5 @@
-**It’s Gold, Baby. But Niclas Castello’s Cube Is Nothing New as Art.**\
-`The artist’s solid gold cube, which appeared for one day in Central Park, was Instagram bait, an NFT promotion, and even kind of pretty. But as art?`\
+**It’s Gold, Baby. But Niclas Castello’s Cube Is Nothing New in Art.**\
+`The artist’s solid gold cube, which appeared for one day in Central Park, was Instagram bait, an NFT promotion and even kind of pretty.`\
 https://nytimes.com/2022/02/02/arts/design/gold-cube-niclas-castello.html?searchResultPosition=1
 
 **Republicans Who Voted to Impeach Trump Out-Raised Primary Rivals**\
