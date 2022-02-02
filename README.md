@@ -30,11 +30,11 @@ https://nytimes.com/2022/02/02/arts/television/pamela-anderson-tommy-lee-hulu.ht
 `With “MeatEater” on Netflix and a growing roster of podcasts, he is teaching a new kind of hunter about how killing animals can be part of loving nature.`\
 https://nytimes.com/2022/02/02/magazine/meateater-netflix-steve-rinella.html?searchResultPosition=8
 
-**Why Are Oil Prices So High and Will They Stay That Way?**\
-`Geopolitical tensions and a growing disparity between supply and demand have driven up prices. Here is what that means and what could happen next.`\
-https://nytimes.com/2022/02/02/business/economy/oil-price.html?searchResultPosition=9
-
 **Where a Thousand Digital Eyes Keep Watch Over the Elderly**\
 `As Japan rapidly ages, it is envisioning fundamental changes, even in infrastructure. Is electronic surveillance an answer to its epidemic of dementia?`\
-https://nytimes.com/2022/02/02/us/politics/japan-elderly-surveillance.html?searchResultPosition=10
+https://nytimes.com/2022/02/02/business/japan-elderly-surveillance.html?searchResultPosition=9
+
+**Why Are Oil Prices So High and Will They Stay That Way?**\
+`Geopolitical tensions and a growing disparity between supply and demand have driven up prices. Here is what that means and what could happen next.`\
+https://nytimes.com/2022/02/02/business/economy/oil-price.html?searchResultPosition=10
 
