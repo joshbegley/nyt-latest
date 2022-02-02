@@ -1,6 +1,6 @@
 **Dolly Parton, Eminem and A Tribe Called Quest Are Rock Hall Nominees**\
 `This year’s slate of 17 acts eligible for induction span rap, country, folk, pop and more.`\
-https://nytimes.com/2022/02/02/arts/music/dolly-parton-eminem-rock-and-roll-hall-of-fame.html?searchResultPosition=1
+https://nytimes.com/2022/02/02/arts/music/dolly-parton-eminem-rock-hall-of-fame.html?searchResultPosition=1
 
 **Monica Vitti, ‘Queen of Italian Cinema,’ Dies at 90**\
 `Both sensual and cerebral, she made her mark on the international scene in the 1960s, when visionary directors like Michelangelo Antonioni were remaking the cinema landscape.`\
