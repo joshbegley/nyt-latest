@@ -1,6 +1,6 @@
 **Let the Games begin (early): Curling gets things started.**\
 `A full 48 hours before the opening ceremony, mixed doubles curling is opening the Winter Olympics.`\
-https://nytimes.com/2022/02/02/sports/let-the-games-begin-early-curling-gets-things-started.html?searchResultPosition=1
+https://nytimes.com/2022/02/02/sports/curling-olympics.html?searchResultPosition=1
 
 **With oil markets tightening, OPEC and its allies meet to discuss output.**\
 `By Stanley Reed`\
