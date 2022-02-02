@@ -32,7 +32,7 @@ https://nytimes.com/2022/02/02/business/media/nyt-earnings-q4-2021.html?searchRe
 
 **‘Last Looks’ Review: A Hollywood Murder Mystery Full of Clichés**\
 `A former police officer is drawn back into duty in a case involving a drunken TV star, played by Mel Gibson, and the plot thickens.`\
-https://nytimes.com/2022/02/02/arts/last-looks-review.html?searchResultPosition=9
+https://nytimes.com/2022/02/02/movies/last-looks-review.html?searchResultPosition=9
 
 **Let the Games begin (early): Curling gets things started.**\
 `A full 48 hours before the opening ceremony, mixed doubles curling is opening the Winter Olympics.`\
