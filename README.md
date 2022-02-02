@@ -8,7 +8,7 @@ https://nytimes.com/2022/02/02/technology/personaltech/laser-vacuum-robot-mop.ht
 
 **A Venice Biennale Informed by the Pandemic Will Spotlight Women**\
 `For the 59th edition of the longest-running survey of contemporary art, Cecilia Alemani selected mostly female artists, many of color, from around the world.`\
-https://nytimes.com/2022/02/02/arts/venice-biennale-alemani-women-art.html?searchResultPosition=3
+https://nytimes.com/2022/02/02/arts/design/venice-biennale-alemani-women-art.html?searchResultPosition=3
 
 **What to Know Ahead of the Olympics**\
 `The 2022 Winter Olympics in Beijing officially begin Friday. I’ll walk you through the latest.`\
