@@ -1,6 +1,6 @@
 **Biden Administration Rejects Use of Torture in Guantánamo Terror Trial**\
 `The Justice Department rejected an interpretation by the retired chief prosecutor that lawyers could sometimes use statements obtained during C.I.A. interrogations.`\
-https://nytimes.com/2022/02/01/us/politics/torture-guantanamo-terrorism-trial.html?searchResultPosition=1
+https://nytimes.com/2022/02/01/us/politics/torture-guantanamo-terrorism-biden.html?searchResultPosition=1
 
 **Jan. 6 Panel Examining Trump’s Role in Proposals to Seize Voting Machines**\
 `The House committee is looking into efforts by the former president’s outside advisers to create a legal basis for national security agencies to help reverse his defeat in 2020.`\
