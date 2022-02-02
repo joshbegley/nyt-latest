@@ -6,8 +6,8 @@ https://nytimes.com/2022/02/02/arts/television/tom-brady-trump-documents.html?se
 `This word has appeared in 23 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2022/02/02/learning/word-of-the-day-broach.html?searchResultPosition=2
 
-**In Clash with U.S. Over Ukraine, Putin Has a Lifeline from China**\
-`President Biden could find his plans to punish Russia undermined by Xi Jinping, a champion of autocracy. But China moves cautiously during crises.`\
+**In Clash With U.S. Over Ukraine, Putin Has a Lifeline From China**\
+`President Biden could find his plans to punish Russia undermined by Xi Jinping, a longtime ally of Mr. Putin. But China moves cautiously during crises.`\
 https://nytimes.com/2022/02/02/world/asia/russia-ukraine-china-putin-xi.html?searchResultPosition=3
 
 **Washington Football Team to Get a New Name on Wednesday**\
