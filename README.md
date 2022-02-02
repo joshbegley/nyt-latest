@@ -7,7 +7,7 @@ https://nytimes.com/video/world/americas/100000008186958/peru-oil-spill-protest-
 https://nytimes.com/2022/02/01/theater/prayer-for-the-french-republic-review.html?searchResultPosition=2
 
 **Tonga, struck by twin disasters, will go into lockdown after two virus cases emerge.**\
-`Two workers who were helping to distribute aid shipments after a volcanic eruption and tsunami at the Tongan wharf tested positive.`\
+`Two workers who were helping to distribute aid shipments at the Tongan wharf after a volcanic eruption and tsunami tested positive.`\
 https://nytimes.com/2022/02/01/world/asia/tonga-lockdown.html?searchResultPosition=3
 
 **Corrections: Feb. 2, 2022**\
