@@ -8,7 +8,7 @@ https://nytimes.com/2022/02/02/us/winter-storm-warning-snow.html?searchResultPos
 
 **Grindr is pulled from Apple’s app store in China.**\
 `The dating app removed itself from Apple’s platform in China because of concerns over data regulations.`\
-https://nytimes.com/2022/02/02/business/grindr-is-pulled-from-apples-app-store-in-china.html?searchResultPosition=3
+https://nytimes.com/2022/02/02/business/grindr-apple-app-store-china.html?searchResultPosition=3
 
 **Google Vanquished a Rival in Prague. Payback Could Hurt.**\
 `A small search engine company in the Czech Republic helped inspire a law that is poised to put major limits on tech giants like Google.`\
