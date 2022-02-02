@@ -11,8 +11,8 @@ https://nytimes.com/2022/02/02/arts/last-looks-review.html?searchResultPosition=
 https://nytimes.com/2022/02/02/sports/curling-olympics.html?searchResultPosition=3
 
 **With oil markets tightening, OPEC and its allies meet to discuss output.**\
-`By Stanley Reed`\
-https://nytimes.com/2022/02/02/business/with-oil-markets-tightening-opec-and-its-allies-meet-to-discuss-output.html?searchResultPosition=4
+`High prices and strong demand would suggest it was time for a major increase, but uncertainty around Ukraine leaves the oil producers in an awkward spot.`\
+https://nytimes.com/2022/02/02/business/opec-meeting-oil.html?searchResultPosition=4
 
 **Part-Time Work During a Labor Shortage**\
 `A tight job market is unlikely to reverse inequality.`\
