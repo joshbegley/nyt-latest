@@ -1,6 +1,6 @@
 **New Life for the Wyeth Legacy Five Miles Out to Sea**\
 `Colby College has acquired two islands off Maine that inspired the first family of American art, and will show newly discovered works that Andrew Wyeth drew in secret.`\
-https://nytimes.com/2022/02/02/arts/design/-wyeth-maine-art-jamie-andrew.html?searchResultPosition=1
+https://nytimes.com/2022/02/02/arts/design/andrew-wyeth-colby-college-acquisition.html?searchResultPosition=1
 
 **Vindman, Key Figure in Trump Impeachment, Alleges Retaliation in Lawsuit**\
 `The former Army colonel, who worked on the National Security Council, said in a lawsuit that Donald Trump Jr. and others carried out a campaign of intimidation against him.`\
