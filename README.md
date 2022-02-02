@@ -12,7 +12,7 @@ https://nytimes.com/video/us/politics/100000008188534/biden-cancer-moonshot.html
 
 **How Spiking Energy Prices Complicate the Fight Against Global Warming**\
 `Oil and gas prices are soaring, while coal use is reaching record highs worldwide. Here’s what the upheaval could mean for climate policies across the globe.`\
-https://nytimes.com/2022/02/02/climate/oil-prices-climate-change.html?searchResultPosition=4
+https://nytimes.com/2022/02/02/climate/oil-gas-prices-climate-change.html?searchResultPosition=4
 
 **‘Black Cake,’ by Charmaine Wilkerson: An Excerpt**\
 `An excerpt from “Black Cake,” by Charmaine Wilkerson`\
