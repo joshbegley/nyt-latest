@@ -18,7 +18,7 @@ https://nytimes.com/video/us/politics/100000008187624/ukraine-russia-us-troops.h
 `Brittany Bowe, a three-time Olympic speedskater, was selected to step in for Meyers Taylor, who was selected by her teammates but tested positive for the coronavirus.`\
 https://nytimes.com/2022/02/02/sports/olympics/us-flag-bearers-opening-ceremony.html?searchResultPosition=5
 
-**Jeff Zucker Exits CNN After Relationship With Senior Executive**\
+**Jeff Zucker Resigns From CNN After Relationship With Top Executive**\
 `The relationship came up during the network’s investigation into the former anchor Chris Cuomo. “I was required to disclose it when it began but I didn’t,” Mr. Zucker wrote in a memo to colleagues.`\
 https://nytimes.com/2022/02/02/business/media/jeff-zucker-cnn.html?searchResultPosition=6
 
