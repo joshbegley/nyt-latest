@@ -11,7 +11,7 @@ https://nytimes.com/2022/02/02/books/i-must-betray-you-ruta-sepetys-ya.html?sear
 https://nytimes.com/2022/02/02/technology/sms-whatsapp.html?searchResultPosition=3
 
 **‘No Future Here’: More Than a Million Afghans Flee as Economy Collapses**\
-`Thousands of Afghans are trying to sneak into Iran and Pakistan each day, in an intensified migration scramble that is stoking fears in Europe.`\
+`Thousands of Afghans are trying to sneak into Iran and Pakistan each day, in a humanitarian crisis that is stoking fears in Europe.`\
 https://nytimes.com/2022/02/02/world/asia/afghanistan-migration-refugees.html?searchResultPosition=4
 
 **How One Ski Town Rallied in a Warming World**\
