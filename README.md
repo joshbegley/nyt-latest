@@ -11,7 +11,7 @@ https://nytimes.com/2022/02/02/opinion/trump-campaign-fundraising.html?searchRes
 https://nytimes.com/2022/02/02/sports/usa-swimming-transgender-athletes-ncaa-lia-thomas.html?searchResultPosition=3
 
 **Read the Dec. 9 Memo on Alternate Trump Electors**\
-`This document elaborated on earlier memo for preparing alternate Trump slates of electors in Biden-won states and helped to shape a crucial strategy President Donald J. Trump embraced in his efforts to overturn his election loss.`\
+`This memo is among the earliest known efforts to put on paper proposals for preparing alternate Trump slates of electors in Biden-won states and helped to shape a crucial strategy President Donald J. Trump embraced in his efforts to overturn his election loss.`\
 https://nytimes.com/interactive/2022/02/02/us/trump-electors-memo-december.html?searchResultPosition=4
 
 **Yale to Evaluate Policies on Donor Gifts and Influence**\
