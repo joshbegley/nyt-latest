@@ -1,4 +1,4 @@
-**Biden Administration Rejects Use of Torture in Guantánamo Terror Trial**\
+**Biden Administration Rejects Use of Testimony Obtained From Torture in Guantánamo Trial**\
 `The Justice Department rejected an interpretation by the retired chief prosecutor that lawyers could sometimes use statements obtained during C.I.A. interrogations.`\
 https://nytimes.com/2022/02/01/us/politics/torture-guantanamo-terrorism-biden.html?searchResultPosition=1
 
