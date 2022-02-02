@@ -1,5 +1,5 @@
 **Five Takeaways on Ukraine Crisis, After Putin Breaks Silence**\
-`Tensions appear to have cooled amid a flurry of diplomacy in Moscow and Kyiv, but the threat of conflict may not have passed.`\
+`The threat of conflict may not have passed, despite a flurry of diplomacy in Moscow and Kyiv.`\
 https://nytimes.com/2022/02/02/world/europe/putin-russia-ukraine-us.html?searchResultPosition=1
 
 **Trial Guide: The U.S.S. Cole Bombing Case at Guantánamo Bay**\
