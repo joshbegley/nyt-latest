@@ -15,8 +15,8 @@ https://nytimes.com/video/nyregion/100000008187999/wilbert-mora-funeral-nypd-ada
 https://nytimes.com/2022/02/02/style/flower-supply-shortage.html?searchResultPosition=4
 
 **The U.S. Army will begin dismissing vaccine holdouts.**\
-`Other branches of the military, including the Air Force, have already begun discharging members who refuse to comply with the mandate.`\
-https://nytimes.com/2022/02/02/world/us-army-vaccine-mandate.html?searchResultPosition=5
+`Other branches of the military, including the Air Force, have already begun discharging members who refused to comply with the mandate.`\
+https://nytimes.com/2022/02/02/us/us-army-vaccine-mandate.html?searchResultPosition=5
 
 **‘Mercy Street,’ by Jennifer Haigh: An Excerpt**\
 `An excerpt from “Mercy Street,” by Jennifer Haigh`\
