@@ -1,6 +1,6 @@
 **How a Plea Deal in the Arbery Hate Crime Case Unraveled**\
 `Prosecutors thought they had come up with an iron-clad deal to put Ahmaud Arbery’s killers away. But for his family, it wasn’t enough.`\
-https://nytimes.com/2022/02/02/us/how-a-plea-deal-in-the-arbery-hate-crime-case-unraveled.html?searchResultPosition=1
+https://nytimes.com/2022/02/02/us/ahmaud-arbery-murder-plea-deal.html?searchResultPosition=1
 
 **He Suffered Under Romania’s Dictatorship. Then He Was Forced to Spy for It.**\
 `Ruta Sepetys’s latest historical Y.A. novel, “I Must Betray You,” follows the life of a teenager who is blackmailed to become an informer for a repressive Communist regime.`\
