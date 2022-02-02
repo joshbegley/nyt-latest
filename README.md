@@ -30,8 +30,8 @@ https://nytimes.com/video/world/americas/100000008186958/peru-oil-spill-protest-
 `Joshua Harmon’s ambitious new play toggles between a contemporary Jewish family facing growing antisemitism and their relatives during World War II.`\
 https://nytimes.com/2022/02/01/theater/prayer-for-the-french-republic-review.html?searchResultPosition=8
 
-**Tonga, struck by twin disasters, will go into lockdown after two virus cases emerge.**\
-`Two workers who were helping to distribute aid shipments at the Tongan wharf after a volcanic eruption and tsunami tested positive.`\
+**Tonga, struck by twin disasters, will go into lockdown over five virus cases.**\
+`Among the infected are two workers who were helping to distribute aid shipments at the Tongan wharf after a volcanic eruption and tsunami tested positive.`\
 https://nytimes.com/2022/02/01/world/asia/tonga-lockdown.html?searchResultPosition=9
 
 **Corrections: Feb. 2, 2022**\
