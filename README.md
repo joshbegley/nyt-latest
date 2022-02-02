@@ -1,40 +1,40 @@
-**When is the opening ceremony?**\
-`The Winter Games kick off Friday night at Beijing’s National Stadium.`\
-https://nytimes.com/2022/02/02/sports/olympics/when-is-olympics-opening-ceremony.html?searchResultPosition=1
+**$700,000 Homes in Texas, Oregon and North Carolina**\
+`A Tudor Revival house in Dallas, an 1896 Victorian in Portland and a post-and-beam cottage in Fairview.`\
+https://nytimes.com/2022/02/02/realestate/home-prices-texas-oregon-north-carolina.html?searchResultPosition=1
 
-**Shintaro Ishihara, Outspoken Nationalist Governor of Tokyo, Dies at 89**\
-`An author as well as a politician, he was known for feuding with China over disputed islands and calling for Japan to assert itself against the United States.`\
-https://nytimes.com/2022/02/02/world/asia/shintaro-ishihara-dead.html?searchResultPosition=2
+**6 Days, 8 Dives and Breathtaking Beauty Off the Coast of Honduras**\
+`The waters encircling the island of Roatán offer some of the most accessible reef diving anywhere. As travel picks up, the focus is on balancing the return of tourism (and divers) with the fragility of the marine environment.`\
+https://nytimes.com/2022/02/02/travel/roatan-honduras-coral-reef.html?searchResultPosition=2
 
-**Biden Promised 500 Million Free Covid Tests. Then He Had to Find Them.**\
-`Millions of Americans are now receiving tests through the new mail program, which health experts said came too late to meet demand during the brunt of Omicron wave.`\
-https://nytimes.com/2022/02/02/us/politics/biden-covid-tests.html?searchResultPosition=3
+**What You Get for $700,000**\
+`A Tudor Revival house in Dallas; an 1896 Victorian in Portland, Ore.; and a post-and-beam cottage in Fairview, N.C.`\
+https://nytimes.com/slideshow/2022/02/02/realestate/what-you-get-for-700000.html?searchResultPosition=3
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/02/02/crosswords/spelling-bee-forum.html?searchResultPosition=4
+**5 Minutes That Will Make You Love Music for Dance**\
+`Reggae, house, step, ballet, tap, jazz: Listen to the sounds that have inspired great choreographers.`\
+https://nytimes.com/2022/02/02/arts/music/classical-music-dance.html?searchResultPosition=4
 
-**Wordle**\
-`Do you play? What do you think about the fact that The Times has purchased the game?`\
-https://nytimes.com/2022/02/02/learning/wordle.html?searchResultPosition=5
+**Trump Likes Viktor Orban Almost as Much as He Likes Himself. Why Is That?**\
+`It’s not too soon to start worrying about the Republican Party’s 2025 agenda.`\
+https://nytimes.com/2022/02/02/opinion/trump-republicans-2025.html?searchResultPosition=5
 
-**Late Night Talks Tom Brady’s Retirement**\
-`“You know you’ve been around a long time when you debuted the same year as ‘The Thong Song,’” Jimmy Fallon joked on Tuesday.`\
-https://nytimes.com/2022/02/02/arts/television/tom-brady-trump-documents.html?searchResultPosition=6
+**‘Pam & Tommy’: A Story of Sex, Crimes and Videotape**\
+`A new Hulu series starring Lily James and Sebastian Stan is a picaresque romp through the history of the stolen sex tape that changed pop culture.`\
+https://nytimes.com/2022/02/02/arts/television/pamela-anderson-tommy-lee-hulu.html?searchResultPosition=6
 
-**Word of the Day: broach**\
-`This word has appeared in 23 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/02/02/learning/word-of-the-day-broach.html?searchResultPosition=7
+**‘An Environmentalist With a Gun’: Inside Steven Rinella’s Hunting Empire**\
+`With “MeatEater” on Netflix and a growing roster of podcasts, he is teaching a new kind of hunter about how killing animals can be part of loving nature.`\
+https://nytimes.com/2022/02/02/magazine/meateater-netflix-steve-rinella.html?searchResultPosition=7
 
-**In Clash With U.S. Over Ukraine, Putin Has a Lifeline From China**\
-`President Biden could find his plans to punish Russia undermined by Xi Jinping, a longtime ally of Mr. Putin. But China moves cautiously during crises.`\
-https://nytimes.com/2022/02/02/world/asia/russia-ukraine-china-putin-xi.html?searchResultPosition=8
+**Why Are Oil Prices So High and Will They Stay That Way?**\
+`Geopolitical tensions and a growing disparity between supply and demand have driven up prices. Here is what that means and what could happen next.`\
+https://nytimes.com/2022/02/02/business/economy/oil-price.html?searchResultPosition=8
 
-**Washington Football Team to Get a New Name on Wednesday**\
-`After a nearly two-year search, the team will unveil its new name and logo.`\
-https://nytimes.com/2022/02/02/sports/washington-football-team-new-name.html?searchResultPosition=9
+**Where a Thousand Digital Eyes Keep Watch Over the Elderly**\
+`As Japan rapidly ages, it is envisioning fundamental changes, even in infrastructure. Is electronic surveillance an answer to its epidemic of dementia?`\
+https://nytimes.com/2022/02/02/us/politics/japan-elderly-surveillance.html?searchResultPosition=9
 
-**Your Wednesday Briefing**\
-`Putin blames the U.S. for the standoff over Ukraine.`\
-https://nytimes.com/2022/02/01/briefing/putin-ukraine-supply-chain-coronavirus.html?searchResultPosition=10
+**Why These Women Are Determined to Clear Cuomo’s Name**\
+`Five months after Andrew Cuomo’s resignation, a small army of ardent loyalists is donating money and swarming social media to support the former governor.`\
+https://nytimes.com/2022/02/02/nyregion/cuomo-supporters.html?searchResultPosition=10
 
