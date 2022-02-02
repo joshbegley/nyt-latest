@@ -16,7 +16,7 @@ https://nytimes.com/2022/02/02/style/ashley-flowers-crime-junkie-deck.html?searc
 
 **One Day in the ‘Parallel Universe’ of a London I.C.U.**\
 `Britain’s government may have lifted coronavirus restrictions, but hospital workers say the return to a normal rhythm of work is still a long way off.`\
-https://nytimes.com/2022/02/02/world/europe/covid-coronavirus-london-icu-pandemic-vaccines.html?searchResultPosition=5
+https://nytimes.com/2022/02/02/world/europe/covid-london-icus.html?searchResultPosition=5
 
 **W.H.O. Cautions Against Countries Lifting Pandemic Measures**\
 `The World Health Organization’s director general said it was premature for any country to “surrender” or “declare victory” over the coronavirus, and urged caution about relaxing restrictions too hastily.`\
