@@ -18,7 +18,7 @@ https://nytimes.com/2022/02/03/podcasts/daily-memorial-covid.html?searchResultPo
 `Were you bamboozled by Adam Wagner’s puzzle?`\
 https://nytimes.com/2022/02/02/crosswords/daily-puzzle-2022-02-03.html?searchResultPosition=5
 
-**U.S. Break Out, in More Ways Than One**\
+**U.S. Overcomes Honduras, the Cold and Some Doubts**\
 `After losing to Canada and coming under withering criticism, the team rebounded with a win over Honduras and a goal from the substitute Christian Pulisic.`\
 https://nytimes.com/2022/02/02/sports/soccer/usmnt-honduras-world-cup-qualifying.html?searchResultPosition=6
 
