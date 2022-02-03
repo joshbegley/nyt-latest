@@ -22,8 +22,8 @@ https://nytimes.com/2022/02/02/arts/music/drakeo-the-ruler-live-nation-lawsuit.h
 `Outreach by a top administration official dovetails with a broader shift to the center among Democratic leaders on criminal justice issues.`\
 https://nytimes.com/2022/02/02/us/politics/policing-white-house-law-enforcement.html?searchResultPosition=6
 
-**Biden Calls Out Putin’s Actions — but Is He Pushing Moscow to War?**\
-`The Biden administration’s goal is to cut the Russians off at each turn by exposing their plans. But that strategy could provoke Russian President Vladimir V. Putin.`\
+**Is Biden’s Strategy With Putin Working, or Provoking Moscow to War?**\
+`The Biden administration’s goal is to cut the Russians off at each turn by exposing their plans. But that approach could provoke Russian President Vladimir V. Putin.`\
 https://nytimes.com/2022/02/02/us/politics/biden-putin-strategy.html?searchResultPosition=7
 
 **The Post Office Is Buying Gas-Powered Trucks, Despite Biden Climate Order**\
