@@ -18,13 +18,13 @@ https://nytimes.com/2022/02/03/business/economy/food-prices-inflation-world.html
 `The San Francisco Art Institute, which has been plagued by crippling debt, has formalized plans to integrate with — and eventually be acquired by — the University of San Francisco.`\
 https://nytimes.com/2022/02/03/arts/design/san-francisco-art-institute-merger.html?searchResultPosition=5
 
+**How to Cook to Feel Good**\
+`Tofu curry, garlic rasam and dumpling soup deserve a spot in your rotation.`\
+https://nytimes.com/2022/02/03/dining/how-to-cook-to-feel-good.html?searchResultPosition=6
+
 **‘Moonfall’ Review: Out of Orbit**\
 `Halle Berry and Patrick Wilson save the world from a rogue moon in the latest disaster movie from the director of “Independence Day.”`\
-https://nytimes.com/2022/02/03/movies/moonfall-review-out-of-orbit.html?searchResultPosition=6
-
-**How to Cook to Feel Good**\
-`Brothy curry, garlicky rasam and dumpling soup deserve a spot in the rejuvenation rotation.`\
-https://nytimes.com/2022/02/03/dining/how-to-cook-to-feel-good.html?searchResultPosition=7
+https://nytimes.com/2022/02/03/movies/moonfall-review-out-of-orbit.html?searchResultPosition=7
 
 **Bill Fitch, Who Coached Celtics to the ’81 Title, Is Dead at 89**\
 `Hailed for reviving sagging teams, he was voted one of the top 10 coaches in the N.B.A.’s first half century and was twice named coach of the year.`\
