@@ -16,7 +16,7 @@ https://nytimes.com/2022/02/03/world/europe/austria-covid-vaccine-mandate.html?s
 
 **Apple Made a Change That Is Hammering Internet Companies Like Meta**\
 `After Apple made it harder to track people on the internet, even tech giants felt the effects.`\
-https://nytimes.com/2022/02/03/technology/apple-internet-privacy-meta.html?searchResultPosition=5
+https://nytimes.com/2022/02/03/technology/apple-privacy-changes-meta.html?searchResultPosition=5
 
 **‘Alone With You’ Review: An Anniversary for One**\
 `A woman hoping for a romantic night with her girlfriend instead finds herself trapped in her Brooklyn apartment, facing down demons.`\
