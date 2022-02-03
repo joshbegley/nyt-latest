@@ -1,5 +1,5 @@
 **Thomas Bach can expect questions about Peng Shuai at a news conference today.**\
-`The Chinese tennis player and Olympian largely disappeared from public life after making sexual abuse accusations against a political official in November.`\
+`The Chinese tennis player largely disappeared from public life after making sexual abuse accusations. But her case may not be the only uncomfortable topic.`\
 https://nytimes.com/2022/02/03/sports/tennis/peng-shuai-olympics.html?searchResultPosition=1
 
 **Word of the Day: edifice**\
