@@ -1,40 +1,40 @@
+**How Malaysia Got in on the Secondhand Clothing Boom**\
+`Sellers from the country have become a reliable source of sought-after labels, finding high value in discarded items.`\
+https://nytimes.com/2022/02/03/style/malaysia-secondhand-clothing-grailed-etsy-ebay.html?searchResultPosition=1
+
+**Natural Gas Shipments, Mostly From U.S., Ease Europe’s Energy Crunch**\
+`As Russia squeezes supplies, a parade of tankers carrying liquefied natural gas is coming to Europe’s rescue.`\
+https://nytimes.com/2022/02/03/business/natural-gas-europe-us.html?searchResultPosition=2
+
+**January Jobs Report May Disappoint. It Is Sure to Perplex.**\
+`Omicron’s impact is likely to be reflected unevenly in the data, and normal seasonal patterns may have been upended.`\
+https://nytimes.com/2022/02/03/business/economy/jobs-report-covid-omicron.html?searchResultPosition=3
+
+**Could Detroit Become the Next Fashion City?**\
+`In bringing an exhibition of creative talent to New York, the fashion label Deviate wants to show that Detroit has more to offer than a quick hit of novelty for luxury giants.`\
+https://nytimes.com/2022/02/03/style/could-detroit-become-the-next-fashion-city.html?searchResultPosition=4
+
+**Art School Looked Like a Lot of Fun In the ’90s**\
+`A homage to a predigital era has popped up, as a crowdsourced art project that lives, paradoxically, on Instagram.`\
+https://nytimes.com/2022/02/03/style/art-school-looked-like-a-lot-of-fun-in-the-90s.html?searchResultPosition=5
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2022/02/03/crosswords/spelling-bee-forum.html?searchResultPosition=6
+
+**Brady**\
+`What information is this graph conveying? Why was it published this week?`\
+https://nytimes.com/2022/02/03/learning/brady.html?searchResultPosition=7
+
 **Thomas Bach can expect questions about Peng Shuai at a news conference today.**\
 `The Chinese tennis player largely disappeared from public life after making sexual abuse accusations. But her case may not be the only uncomfortable topic.`\
-https://nytimes.com/2022/02/03/sports/tennis/peng-shuai-olympics.html?searchResultPosition=1
+https://nytimes.com/2022/02/03/sports/tennis/peng-shuai-olympics.html?searchResultPosition=8
 
 **Word of the Day: edifice**\
 `This word has appeared in 51 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/02/03/learning/word-of-the-day-edifice.html?searchResultPosition=2
+https://nytimes.com/2022/02/03/learning/word-of-the-day-edifice.html?searchResultPosition=9
 
 **Late Night Comments on the Washington Commanders**\
 `The hosts didn’t think much of the N.F.L. team’s long-awaited new name. Jimmy Kimmel pointed out that it’s also the name of the president’s dog.`\
-https://nytimes.com/2022/02/03/arts/television/jimmy-kimmel-washington-commanders.html?searchResultPosition=3
-
-**Europe Thinks Putin Is Planning Something Even Worse Than War**\
-`The threat of war could be more destructive than war itself.`\
-https://nytimes.com/2022/02/03/opinion/putin-russia-ukraine-europe.html?searchResultPosition=4
-
-**Reports of Civilian Casualties as U.S. Raid in Syria Appears to Target Qaeda Leader**\
-`Helicopter-borne Special Operations troops carried out the risky predawn commando assault.`\
-https://nytimes.com/2022/02/03/us/politics/us-raid-syria.html?searchResultPosition=5
-
-**The Politics of Redistricting in New York**\
-`Maps of congressional districts approved by the Democratic-controlled Legislature in Albany could flip as many as three House seats now held by Republicans.`\
-https://nytimes.com/2022/02/03/nyregion/new-york-redistricting.html?searchResultPosition=6
-
-**Your Thursday Briefing**\
-`Military developments in Eastern Europe.`\
-https://nytimes.com/2022/02/03/briefing/russia-ukraine-afghanistan-migrants.html?searchResultPosition=7
-
-**When Are the Olympics? Here Is the Schedule for Beijing.**\
-`The opening ceremony will be held on Friday. A few sports start early, but the bulk of the action begins on Saturday. Here’s when to watch what.`\
-https://nytimes.com/article/winter-olympics-schedule.html?searchResultPosition=8
-
-**It slices, it dices: It’s an Alpine ski.**\
-`An analyst on USA’s broadcast coverage cut through fruit to demonstrate how dangerously sharp the edge of a ski can be. The skier Ted Ligety joined in, sabering open a champagne bottle.`\
-https://nytimes.com/2022/02/02/sports/olympics/alpine-ski-nbc-bode-miller.html?searchResultPosition=9
-
-**Have You Lost a Loved One During the Pandemic?**\
-`The Daily wants to honor Americans who have died from the coronavirus.`\
-https://nytimes.com/2022/02/03/podcasts/daily-memorial-covid.html?searchResultPosition=10
+https://nytimes.com/2022/02/03/arts/television/jimmy-kimmel-washington-commanders.html?searchResultPosition=10
 
