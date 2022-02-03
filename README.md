@@ -23,7 +23,7 @@ https://nytimes.com/2022/02/02/us/politics/policing-white-house-law-enforcement.
 https://nytimes.com/2022/02/02/us/politics/biden-putin-strategy.html?searchResultPosition=6
 
 **The Post Office Is Buying Gas-Powered Trucks, Despite Biden Climate Order**\
-`The president wants an all-electric federal fleet, but the postmaster general is spending billions on gas-powered vehicles. That’s prompted calls for his resignation.`\
+`The president wants an electric federal fleet, but Postmaster Louis DeJoy is spending billions on gas-powered vehicles. That’s prompted scrutiny and calls for his resignation.`\
 https://nytimes.com/2022/02/02/climate/postal-service-trucks-electric-climate.html?searchResultPosition=7
 
 **Memos Show Roots of Trump’s Focus on Jan. 6 and Alternate Electors**\
@@ -34,7 +34,7 @@ https://nytimes.com/2022/02/02/us/politics/trump-jan-6-memos.html?searchResultPo
 `This memo is among the earliest known efforts to put on paper proposals for preparing alternate slates of Trump electors in Biden-won states and helped to shape a crucial strategy President Donald J. Trump’s lawyers embraced in his efforts to overturn his election loss.`\
 https://nytimes.com/interactive/2022/02/02/us/trump-electors-memo-november.html?searchResultPosition=9
 
-**Guess Who Wants Your Money?**\
+**Guess Who Wants Your Money**\
 `Trump had his hand out 266 times in January.`\
 https://nytimes.com/2022/02/02/opinion/trump-campaign-fundraising.html?searchResultPosition=10
 
