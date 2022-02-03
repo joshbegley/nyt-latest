@@ -18,7 +18,7 @@ https://nytimes.com/2022/02/03/learning/whats-going-on-in-this-graph-feb-9-2022.
 `Allison Gollust, an executive vice president, has worked alongside Mr. Zucker for two decades. He cited their relationship as he abruptly resigned.`\
 https://nytimes.com/2022/02/03/business/media/jeff-zucker-allison-gollust-cnn.html?searchResultPosition=5
 
-**Rotterdam to Dismantle Bridge for Jeff Bezos’s Superyacht**\
+**Rotterdam to Dismantle Bridge for Jeff Bezos’ Superyacht**\
 `The middle section of the Dutch port’s historic Koningshaven Bridge will be temporarily dismantled so that a boat being built for Jeff Bezos, the founder of Amazon, can traverse the city.`\
 https://nytimes.com/2022/02/03/world/europe/jeff-bezos-yacht-rotterdam-bridge.html?searchResultPosition=6
 
