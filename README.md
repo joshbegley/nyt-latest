@@ -23,7 +23,7 @@ https://nytimes.com/2022/02/02/us/politics/policing-white-house-law-enforcement.
 https://nytimes.com/2022/02/02/us/politics/biden-putin-strategy.html?searchResultPosition=6
 
 **The Post Office Is Buying Gas-Powered Trucks, Despite Biden Climate Order**\
-`The president wants an all-electric federal fleet, but the postmaster general is spending billions on gas-powered vehicles. That’s prompted a call for his resignation.`\
+`The president wants an all-electric federal fleet, but the postmaster general is spending billions on gas-powered vehicles. That’s prompted a calls for his resignation.`\
 https://nytimes.com/2022/02/02/climate/postal-service-trucks-electric-climate.html?searchResultPosition=7
 
 **Memos Show Roots of Trump’s Focus on Jan. 6 and Alternate Electors**\
