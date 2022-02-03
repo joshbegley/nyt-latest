@@ -24,7 +24,7 @@ https://nytimes.com/2022/02/03/briefing/russia-ukraine-afghanistan-migrants.html
 
 **When Are the Olympics? Here Is the Schedule for Beijing.**\
 `The opening ceremony will be held on Friday. A few sports start early, but the bulk of the action begins on Saturday. Here’s when to watch what.`\
-https://nytimes.com/2022/02/03/sports/olympics/winter-olympics-schedule.html?searchResultPosition=7
+https://nytimes.com/article/winter-olympics-schedule.html?searchResultPosition=7
 
 **It slices, it dices: It’s an Alpine ski.**\
 `An analyst on USA’s broadcast coverage cut through fruit to demonstrate how dangerously sharp the edge of a ski can be. The skier Ted Ligety joined in, sabering open a champagne bottle.`\
