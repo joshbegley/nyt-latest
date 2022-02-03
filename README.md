@@ -1,6 +1,6 @@
 **It slices, it dices: It’s an Alpine ski**\
 `An analyst on USA’s broadcast coverage cut through fruit to demonstrate how dangerously sharp the edge of a ski can be. The skier Ted Ligety joined in, sabering open a champagne bottle.`\
-https://nytimes.com/2022/02/02/sports/olympics/alpine-ski-knife-nbc.html?searchResultPosition=1
+https://nytimes.com/2022/02/02/sports/olympics/alpine-ski-nbc-bode-miller.html?searchResultPosition=1
 
 **Have You Lost a Loved One During the Pandemic?**\
 `The Daily wants to honor Americans who have died from the coronavirus.`\
