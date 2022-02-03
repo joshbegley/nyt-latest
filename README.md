@@ -19,7 +19,7 @@ https://nytimes.com/2022/02/02/us/politics/biden-putin-strategy.html?searchResul
 https://nytimes.com/2022/02/02/climate/postal-service-trucks-electric-climate.html?searchResultPosition=5
 
 **Memos Show Roots of Trump’s Focus on Jan. 6 and Alternate Electors**\
-`Little more than two weeks after Election Day, lawyers working with the Trump campaign set out a rationale for creating alternate slates of electors as part of an effort to buy time to overturn the results.`\
+`Just over two weeks after Election Day, lawyers working with the Trump campaign set out a rationale for creating alternate slates of electors as part of an effort to buy time to overturn the results.`\
 https://nytimes.com/2022/02/02/us/politics/trump-jan-6-memos.html?searchResultPosition=6
 
 **Read the Nov. 18 Memo on Alternate Trump Electors**\
