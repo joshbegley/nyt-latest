@@ -1,6 +1,6 @@
-**U.S. Exposes What it Says is Russian Effort to Fabricate Pretext for Invasion**\
-`Officials said a Russians were planning a fake video showing an attack by Ukrainians on Russian territory or on Russian speakers in eastern Ukraine.`\
-https://nytimes.com/2022/02/03/us/politics/us-exposes-what-it-says-is-russian-effort-to-fabricate-pretext-for-invasion.html?searchResultPosition=1
+**U.S. Exposes What It Says Is Russian Effort to Fabricate Pretext for Invasion**\
+`Officials said Russians were planning a fake video showing an attack by Ukrainians on Russian territory or Russian speakers in eastern Ukraine.`\
+https://nytimes.com/2022/02/03/us/politics/russia-ukraine-invasion-pretext.html?searchResultPosition=1
 
 **Biden Details Special Forces Raid That Killed Islamic State Leader**\
 `President Biden said that the operation to kill Abu Ibrahim al-Hashimi al-Qurayshi in northwest Syria “took a major terrorist leader off the battlefield.”`\
