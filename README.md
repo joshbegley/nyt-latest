@@ -1,6 +1,6 @@
 **‘Live With the Virus’? For Australians, It’s Taken Some Getting Used To.**\
 `Australia once stamped out every Covid outbreak. Now it’s done with all that. The policy U-turn, and the soaring case numbers, caught many off guard.`\
-https://nytimes.com/2022/02/03/world/australia/living-with-the-virus.html?searchResultPosition=1
+https://nytimes.com/2022/02/03/world/australia/australia-covid-policy.html?searchResultPosition=1
 
 **Winter Olympics Open Amid Walls, Masks and Clouds of Disinfectant**\
 `With few spectators and strict security to separate China’s population from Olympic visitors, the Games are subdued.`\
