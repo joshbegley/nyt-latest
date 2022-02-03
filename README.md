@@ -19,7 +19,7 @@ https://nytimes.com/2022/02/03/sports/olympics/who-will-light-cauldron-opening-c
 https://nytimes.com/2022/02/03/arts/jean-jacques-beineix-dead.html?searchResultPosition=5
 
 **U.S. Exposes What It Says Is Russian Effort to Fabricate Pretext for Invasion**\
-`Officials said Russians were planning a fake video showing an attack by Ukrainians on Russian territory or Russian speakers in eastern Ukraine.`\
+`Officials said Russia was planning a fake video showing an attack by Ukrainians on Russian territory or Russian speakers in eastern Ukraine.`\
 https://nytimes.com/2022/02/03/us/politics/russia-ukraine-invasion-pretext.html?searchResultPosition=6
 
 **Biden Details Special Forces Raid That Killed Islamic State Leader**\
