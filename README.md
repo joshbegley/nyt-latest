@@ -6,7 +6,7 @@ https://nytimes.com/2022/02/03/opinion/desantis-trump-republicans.html?searchRes
 `Two major biographies, James Curtis’s “Buster Keaton” and Dana Stevens’s “Camera Man,” take on the brilliant funnyman and filmmaker.`\
 https://nytimes.com/2022/02/03/books/review/buster-keaton-a-filmmakers-life.html?searchResultPosition=2
 
-**Covid continues to sideline athletes as they gear up for competition.**\
+**Coronavirus continues to sideline athletes as they gear up for competition.**\
 `Twenty-six new infections were reported as of Thursday, bringing the total number of confirmed positive cases to 287.`\
 https://nytimes.com/2022/02/03/sports/olympics/athletes-covid-beijing.html?searchResultPosition=3
 
