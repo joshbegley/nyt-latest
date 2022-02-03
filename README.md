@@ -1,6 +1,6 @@
 **Biden Vows to N.Y. Officials That He Won’t ‘Abandon Our Streets’**\
 `The president visited New York City to show his support for law enforcement and detail his plans to work with the city to control gun violence.`\
-https://nytimes.com/2022/02/03/nyregion/biden-visit-adams.html?searchResultPosition=1
+https://nytimes.com/2022/02/03/nyregion/biden-new-york-gun-violence.html?searchResultPosition=1
 
 **What’s in Our Queue? Young Fathers and More**\
 `I’m the art editor at The Times. Here are five things I've been watching, reading and listening to.`\
