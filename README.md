@@ -1,40 +1,40 @@
+**Europe Thinks Putin Is Planning Something Even Worse Than War**\
+`The threat of war could be more destructive than war itself.`\
+https://nytimes.com/2022/02/03/opinion/putin-russia-ukraine-europe.html?searchResultPosition=1
+
 **Reports of Civilian Casualties as U.S. Raid in Syria Appears to Target Qaeda Leader**\
 `Helicopter-borne Special Operations troops carried out the risky predawn commando assault.`\
-https://nytimes.com/2022/02/03/us/politics/us-raid-syria.html?searchResultPosition=1
+https://nytimes.com/2022/02/03/us/politics/us-raid-syria.html?searchResultPosition=2
 
 **The Politics of Redistricting in New York**\
 `Maps of congressional districts approved by the Democratic-controlled Legislature in Albany could flip as many as three House seats now held by Republicans.`\
-https://nytimes.com/2022/02/03/nyregion/new-york-redistricting.html?searchResultPosition=2
+https://nytimes.com/2022/02/03/nyregion/new-york-redistricting.html?searchResultPosition=3
 
 **Your Thursday Briefing**\
 `Military developments in Eastern Europe.`\
-https://nytimes.com/2022/02/03/briefing/russia-ukraine-afghanistan-migrants.html?searchResultPosition=3
+https://nytimes.com/2022/02/03/briefing/russia-ukraine-afghanistan-migrants.html?searchResultPosition=4
 
 **When Are the Olympics? Here Is the Schedule for Beijing.**\
 `The opening ceremony will be held on Friday. A few sports start early, but the bulk of the action begins on Saturday. Here’s when to watch what.`\
-https://nytimes.com/2022/02/03/sports/olympics/winter-olympics-schedule.html?searchResultPosition=4
+https://nytimes.com/2022/02/03/sports/olympics/winter-olympics-schedule.html?searchResultPosition=5
 
 **It slices, it dices: It’s an Alpine ski.**\
 `An analyst on USA’s broadcast coverage cut through fruit to demonstrate how dangerously sharp the edge of a ski can be. The skier Ted Ligety joined in, sabering open a champagne bottle.`\
-https://nytimes.com/2022/02/02/sports/olympics/alpine-ski-nbc-bode-miller.html?searchResultPosition=5
+https://nytimes.com/2022/02/02/sports/olympics/alpine-ski-nbc-bode-miller.html?searchResultPosition=6
 
 **Have You Lost a Loved One During the Pandemic?**\
 `The Daily wants to honor Americans who have died from the coronavirus.`\
-https://nytimes.com/2022/02/03/podcasts/daily-memorial-covid.html?searchResultPosition=6
+https://nytimes.com/2022/02/03/podcasts/daily-memorial-covid.html?searchResultPosition=7
 
 **Shakespearean Fool**\
 `Were you bamboozled by Adam Wagner’s puzzle?`\
-https://nytimes.com/2022/02/02/crosswords/daily-puzzle-2022-02-03.html?searchResultPosition=7
+https://nytimes.com/2022/02/02/crosswords/daily-puzzle-2022-02-03.html?searchResultPosition=8
 
 **U.S. Overcomes Honduras, the Cold and Some Doubts**\
 `After losing to Canada and coming under withering criticism, the team rebounded with a win over Honduras and a goal from the substitute Christian Pulisic.`\
-https://nytimes.com/2022/02/02/sports/soccer/usmnt-honduras-world-cup-qualifying.html?searchResultPosition=8
+https://nytimes.com/2022/02/02/sports/soccer/usmnt-honduras-world-cup-qualifying.html?searchResultPosition=9
 
 **Quotation of the Day: One Day in the ‘Parallel Universe’ of a London I.C.U.**\
 `Quotation of the day for Thursday, February 3, 2022.`\
-https://nytimes.com/2022/02/02/todayspaper/quotation-of-the-day-one-day-in-the-parallel-universe-of-a-london-icu.html?searchResultPosition=9
-
-**New Zealand Announces Plan to Reopen Its Borders**\
-`Prime Minister Jacinda Ardern said the country would begin to ease strict border controls and quarantine rules for citizens and travelers who have received at least two doses of a Covid-19 vaccine.`\
-https://nytimes.com/video/world/asia/100000008188926/new-zealand-covid-travel-restrictions.html?searchResultPosition=10
+https://nytimes.com/2022/02/02/todayspaper/quotation-of-the-day-one-day-in-the-parallel-universe-of-a-london-icu.html?searchResultPosition=10
 
