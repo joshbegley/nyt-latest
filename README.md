@@ -4,7 +4,7 @@ https://nytimes.com/2022/02/02/sports/olympics/alpine-ski-nbc-bode-miller.html?s
 
 **Have You Lost a Loved One During the Pandemic?**\
 `The Daily wants to honor Americans who have died from the coronavirus.`\
-https://nytimes.com/2022/02/03/admin/daily-memorial-covid.html?searchResultPosition=2
+https://nytimes.com/2022/02/03/podcasts/daily-memorial-covid.html?searchResultPosition=2
 
 **Shakespearean Fool**\
 `Were you bamboozled by Adam Wagner’s puzzle?`\
