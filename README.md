@@ -14,8 +14,8 @@ https://nytimes.com/2022/02/03/business/uk-energy-prices-bills-rise.html?searchR
 `A leak at a refinery tarred miles of Pacific Coast beaches. The company blames waves caused by a distant volcano eruption, but the Peruvian government has vowed to “defend the sea.”`\
 https://nytimes.com/2022/02/03/world/americas/peru-oil-spill.html?searchResultPosition=4
 
-**Witnesses describe what they saw: ‘Those who remain will die.’**\
-`By Ben Hubbard`\
+**Witnesses describe what happened: ‘Those who remain will die.’**\
+`Families living on the outskirts of Atmeh, Syria, said the U.S. raid that killed the ISIS leader made for a night of fear.`\
 https://nytimes.com/2022/02/03/world/us-syria-raid-witnesses.html?searchResultPosition=5
 
 **In Miami, Climbing Ballet’s Everest: ‘Swan Lake’**\
