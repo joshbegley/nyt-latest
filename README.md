@@ -30,11 +30,11 @@ https://nytimes.com/2022/02/03/us/disabled-hikers-outdoor-access.html?searchResu
 `Our critics and writers have selected noteworthy cultural events to experience virtually and in person in New York City.`\
 https://nytimes.com/2022/02/03/arts/things-to-do-this-weekend.html?searchResultPosition=8
 
+**Putin, Facing Sanction Threats, Has Been Saving for This Day**\
+`Since paying the price for annexing Crimea in 2014, Russia has tried to make its economy sanctions-proof, hoarding currency to insulate the country.`\
+https://nytimes.com/2022/02/03/world/europe/putin-sanctions-proofing.html?searchResultPosition=9
+
 **I Can’t Solve the Problem. But I Can Take a Stand.**\
 `Joe Rogan can continue to air misinformation. Spotify can continue to look the other way. Today at least, I won’t.`\
-https://nytimes.com/2022/02/03/opinion/culture/joe-rogan-spotify-roxane-gay.html?searchResultPosition=9
-
-**In New York City Sewage, a Mysterious Coronavirus Signal**\
-`For the past year, scientists have been looking for the source of strange coronavirus sequences that have appeared in the city’s wastewater.`\
-https://nytimes.com/2022/02/03/health/coronavirus-wastewater-new-york.html?searchResultPosition=10
+https://nytimes.com/2022/02/03/opinion/culture/joe-rogan-spotify-roxane-gay.html?searchResultPosition=10
 
