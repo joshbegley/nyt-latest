@@ -1,40 +1,40 @@
+**Pennsylvania Doctor Accused of Prescribing Ivermectin for Covid Is Fired**\
+`Tower Health Medical Group said in a statement that it learned of the allegations on Wednesday. After an investigation, the doctor’s employment was “terminated effective immediately.”`\
+https://nytimes.com/2022/02/04/us/pennsylvania-doctor-ivermectin-fired.html?searchResultPosition=1
+
 **Read the full resolution**\
 `The Republican National Committee’s resolution censures Representatives Liz Cheney and Adam Kinzinger.`\
-https://nytimes.com/interactive/2022/02/04/us/rnc-jan6-resolution.html?searchResultPosition=1
+https://nytimes.com/interactive/2022/02/04/us/rnc-jan6-resolution.html?searchResultPosition=2
 
 **Meet the U.S. Figure Skating Team**\
 `Figure skating events began even before Beijing’s opening ceremony. Here are the athletes I’ll be watching.`\
-https://nytimes.com/interactive/2022/02/04/sports/olympics/us-figure-skating-team.html?searchResultPosition=2
+https://nytimes.com/interactive/2022/02/04/sports/olympics/us-figure-skating-team.html?searchResultPosition=3
 
 **Russian Troops in Final Stages of Readiness Add to Worries for Ukraine**\
 `Though the Kremlin’s intentions are unclear, Ukrainian officials are newly worried about the Crimean Peninsula, where Russia has deployed 10,000 additional troops, they said.`\
-https://nytimes.com/2022/02/04/world/europe/russian-troops-ukraine-crimean-peninsula.html?searchResultPosition=3
+https://nytimes.com/2022/02/04/world/europe/russian-troops-ukraine-crimean-peninsula.html?searchResultPosition=4
 
 **Michael Avenatti Is Found Guilty of Stealing From Stormy Daniels**\
 `They were once united in an effort to topple Donald J. Trump. But even then, a jury found, Mr. Avenatti was stealing from his famous client.`\
-https://nytimes.com/2022/02/04/nyregion/michael-avenatti-stormy-daniels-verdict.html?searchResultPosition=4
+https://nytimes.com/2022/02/04/nyregion/michael-avenatti-stormy-daniels-verdict.html?searchResultPosition=5
 
 **For Gambling Addicts, Super Bowl Betting Isn’t Good, Clean Fun**\
 `A flood of online sports betting since the Supreme Court struck down limits on the states in 2018`\
-https://nytimes.com/2022/02/04/opinion/gambling-super-bowl.html?searchResultPosition=5
+https://nytimes.com/2022/02/04/opinion/gambling-super-bowl.html?searchResultPosition=6
 
 **Yale Kamisar, Known as the ‘Father’ of the Miranda Rule, Dies at 92**\
 `His legal scholarship, cited in more than 30 Supreme Court cases, shaped modern criminal procedure, including protections for the rights of the accused.`\
-https://nytimes.com/2022/02/04/us/yale-kamisar-dead.html?searchResultPosition=6
+https://nytimes.com/2022/02/04/us/yale-kamisar-dead.html?searchResultPosition=7
 
 **Newly Published, From Quincy Troupe to Art Censorship**\
 `A selection of books published this week.`\
-https://nytimes.com/2022/02/04/books/review/new-this-week.html?searchResultPosition=7
+https://nytimes.com/2022/02/04/books/review/new-this-week.html?searchResultPosition=8
 
 **Mushroom Paintings, Reading Speeds and Other Letters to the Editor**\
 `Readers respond to recent issues of the Sunday Book Review.`\
-https://nytimes.com/2022/02/04/books/review/mushroom-paintings-reading-speeds-and-other-letters-to-the-editor.html?searchResultPosition=8
+https://nytimes.com/2022/02/04/books/review/mushroom-paintings-reading-speeds-and-other-letters-to-the-editor.html?searchResultPosition=9
 
 **Opening Ceremony Fashion: Best and Worst**\
 `Here's how several countries approached the parade of nations.`\
-https://nytimes.com/interactive/2022/02/04/fashion/olympics-opening-ceremony-fashion.html?searchResultPosition=9
-
-**Review: City Ballet Gets a Modern Dance Fix**\
-`A new work by the Ailey veteran Jamar Roberts shared a program with revivals by Pam Tanowitz and Kyle Abraham.`\
-https://nytimes.com/2022/02/04/arts/dance/review-city-ballet-jamar-roberts.html?searchResultPosition=10
+https://nytimes.com/interactive/2022/02/04/fashion/olympics-opening-ceremony-fashion.html?searchResultPosition=10
 
