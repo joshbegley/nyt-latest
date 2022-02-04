@@ -1,40 +1,40 @@
+**Captain Cook’s Ship Caught in Center of a Maritime Rift**\
+`After researchers in Australia reported finding the wreck of the Endeavour off Rhode Island, their U.S. partners issued a startling rebuke.`\
+https://nytimes.com/2022/02/04/world/australia/captain-james-cook-hmb-endeavour.html?searchResultPosition=1
+
 **‘The Worst Person in the World’ | Anatomy of a Scene**\
 `The director Joachim Trier narrates a sequence from his film featuring Renate Reinsve.`\
-https://nytimes.com/video/movies/100000008187193/the-worst-person-in-the-world-scene.html?searchResultPosition=1
+https://nytimes.com/video/movies/100000008187193/the-worst-person-in-the-world-scene.html?searchResultPosition=2
 
 **Zero Covid in China**\
 `China’s zero-Covid policy has kept deaths very low. Can it continue?`\
-https://nytimes.com/2022/02/04/briefing/zero-covid-china-olympics.html?searchResultPosition=2
+https://nytimes.com/2022/02/04/briefing/zero-covid-china-olympics.html?searchResultPosition=3
 
 **A ‘Zero Covid’ Olympics**\
 `What it’s like inside China’s Covid superbubble — and whether the nation’s strict approach to the virus can last.`\
-https://nytimes.com/2022/02/04/podcasts/the-daily/a-zero-covid-olympics.html?searchResultPosition=3
+https://nytimes.com/2022/02/04/podcasts/the-daily/a-zero-covid-olympics.html?searchResultPosition=4
 
 **The Tale of Pam and Tommy, and Weather Reporters Get Serious: The Week in Narrated Articles**\
 `Five articles from around The Times, narrated just for you.`\
-https://nytimes.com/2022/02/04/podcasts/pamela-anderson-weather-person-narrated-articles.html?searchResultPosition=4
+https://nytimes.com/2022/02/04/podcasts/pamela-anderson-weather-person-narrated-articles.html?searchResultPosition=5
 
 **The Exploitation of ‘Freedom’ in America**\
 `America’s ugly history of distorting what the word means.`\
-https://nytimes.com/2022/02/04/opinion/ugly-freedom-discrimination-racism-sexism.html?searchResultPosition=5
+https://nytimes.com/2022/02/04/opinion/ugly-freedom-discrimination-racism-sexism.html?searchResultPosition=6
 
 **The Housing Situation Is Dire. But Progress Is Still Possible.**\
 `In the South Bronx, developers found ways to build an array of sleek, affordable apartments in two subsidized housing developments. Is this a way forward?`\
-https://nytimes.com/2022/02/04/arts/design/affordable-housing-lambert-bronx.html?searchResultPosition=6
+https://nytimes.com/2022/02/04/arts/design/affordable-housing-lambert-bronx.html?searchResultPosition=7
 
 **On Ukraine, Many Russians Have No Doubt: It’s the Fault of the U.S.**\
 `The idea that the U.S. and NATO are fomenting the crisis between Russia and Ukraine is hammered home daily by the Kremlin’s propaganda machine.`\
-https://nytimes.com/2022/02/04/world/europe/russia-public-opinion-ukraine-us-nato.html?searchResultPosition=7
+https://nytimes.com/2022/02/04/world/europe/russia-public-opinion-ukraine-us-nato.html?searchResultPosition=8
 
 **‘All He’s Looking for Is a Sincere Shot’**\
 `Those close to Brian Flores say his lawsuit against the N.F.L. is in keeping with the sense of moral rectitude he learned from his mother as he grew up in a Brooklyn housing project.`\
-https://nytimes.com/2022/02/04/sports/football/brian-flores-discrimination-lawsuit-nfl-dolphins-giants.html?searchResultPosition=8
+https://nytimes.com/2022/02/04/sports/football/brian-flores-discrimination-lawsuit-nfl-dolphins-giants.html?searchResultPosition=9
 
 **To Stop Gun Violence, This Police Captain Is Trying a Novel Approach**\
 `An N.Y.P.D. precinct in Brooklyn is seeing promise in a different kind of response to a shooting last spring: paying 15 teenagers to attend a “healing circle.”`\
-https://nytimes.com/2022/02/04/nyregion/nypd-gun-violence-prevention.html?searchResultPosition=9
-
-**A Black Iraqi’s Sudden Career in TV News: ‘They Wanted to See All Colors’**\
-`Randa Abd Al-Aziz was joking with friends in a Baghdad cafe when she got a surprise job offer: broadcasting the news in Iraq, whose Black citizens have little media presence and even less power.`\
-https://nytimes.com/2022/02/04/world/middleeast/iraq-tv-black-news-anchor.html?searchResultPosition=10
+https://nytimes.com/2022/02/04/nyregion/nypd-gun-violence-prevention.html?searchResultPosition=10
 
