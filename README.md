@@ -1,4 +1,4 @@
-**Pelosi warns U.S. athletes not to anger the Chinese government with protests.**\
+**Pelosi warns U.S. athletes not to anger China’s government with protests.**\
 `The House speaker said protests could prompt reprisals from a “ruthless” Chinese government.`\
 https://nytimes.com/2022/02/04/sports/olympics/pelosi-protests.html?searchResultPosition=1
 
