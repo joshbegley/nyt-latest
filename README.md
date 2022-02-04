@@ -1,6 +1,6 @@
 **‘Book of Love’ Review: Lust (Eventually) in Translation**\
 `Unbeknown to the author of an uninspired romance novel, the book takes a sharp turn into erotic territory in its Spanish-language release.`\
-https://nytimes.com/2022/02/04/arts/book-of-love-review.html?searchResultPosition=1
+https://nytimes.com/2022/02/04/movies/book-of-love-review.html?searchResultPosition=1
 
 **Loving Him More When He Walks Out the Door**\
 `A daily reminder of mortality can be more gift than burden.`\
