@@ -1,40 +1,40 @@
-**‘The First Thing You Need to Know About Boris Johnson Is He’s a Liar’**\
-`To help make sense of the scandal surrounding the Prime Minister, we enlisted the help of satirical newscaster Jonathan Pie.`\
-https://nytimes.com/video/opinion/100000008187776/boris-johnson-party-scandal.html?searchResultPosition=1
+**The Exploitation of ‘Freedom’ in America**\
+`America’s ugly history of distorting what the word means.`\
+https://nytimes.com/2022/02/04/opinion/ugly-freedom-discrimination-racism-sexism.html?searchResultPosition=1
 
-**Lesson of the Day: ‘She Interviews Celebrities Before School. And She’s Only 11.’**\
-`In this lesson, students will learn about a young journalist who has talked with Alicia Keys, Tom Holland and Jay-Z. Who is your dream celebrity to interview?`\
-https://nytimes.com/2022/02/04/learning/lesson-plans/lesson-of-the-day-she-interviews-celebrities-before-school-and-shes-only-11.html?searchResultPosition=2
+**The Housing Situation Is Dire. But Progress Is Still Possible.**\
+`In the South Bronx, developers found ways to build an array of sleek, affordable apartments in two subsidized housing developments. Is this a way forward?`\
+https://nytimes.com/2022/02/04/arts/design/affordable-housing-lambert-bronx.html?searchResultPosition=2
 
-**From Liverpool to London, Tighter Wallets and Colder Homes**\
-`In Britain, prices are rising at the fastest pace in three decades. People on the lowest incomes are running out of ways to cut back, and the worst is yet to come.`\
-https://nytimes.com/2022/02/04/business/uk-inflation-cost-of-living.html?searchResultPosition=3
+**‘All He’s Looking for Is a Sincere Shot’**\
+`Those close to Brian Flores say his lawsuit against the N.F.L. is in keeping with the sense of moral rectitude he learned from his mother as he grew up in a Brooklyn housing project.`\
+https://nytimes.com/2022/02/04/sports/football/brian-flores-discrimination-lawsuit-nfl-dolphins-giants.html?searchResultPosition=3
 
-**Lawmakers Press Amazon on Sales of Chemical Used in Suicides**\
-`Even as grieving families tried to warn Amazon and other e-commerce sites of the danger, there were more purchases and more deaths.`\
-https://nytimes.com/2022/02/04/technology/amazon-suicide-poison-preservative.html?searchResultPosition=4
+**To Stop Gun Violence, This Police Captain Is Trying a Novel Approach**\
+`An N.Y.P.D. precinct in Brooklyn is seeing promise in a different kind of response to a shooting last spring: paying 15 teenagers to attend a “healing circle.”`\
+https://nytimes.com/2022/02/04/nyregion/nypd-gun-violence-prevention.html?searchResultPosition=4
 
-**At CNN, Personal and Corporate Tensions Collide After Jeff Zucker’s Exit**\
-`Inside the media giant, unease has been mounting: over the network’s corporate ownership, the firing of Chris Cuomo and a looming merger with Discovery.`\
-https://nytimes.com/2022/02/04/business/media/jeff-zucker-cnn.html?searchResultPosition=5
+**A Black Iraqi’s Sudden Career in TV News: ‘They Wanted to See All Colors’**\
+`Randa Abd Al-Aziz was joking with friends in a Baghdad cafe when she got a surprise job offer: broadcasting the news in Iraq, whose Black citizens have little media presence and even less power.`\
+https://nytimes.com/2022/02/04/world/middleeast/iraq-tv-black-news-anchor.html?searchResultPosition=5
 
-**Mystery Money**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2022/02/04/learning/mystery-money.html?searchResultPosition=6
+**They Rushed to Buy in the Pandemic. Here’s What They Would Change.**\
+`A frenzied sellers’ market led some people to make harried decisions when buying their homes that they now regret.`\
+https://nytimes.com/2022/02/04/realestate/home-buying-regret.html?searchResultPosition=6
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/02/04/crosswords/spelling-bee-forum.html?searchResultPosition=7
+**Scandal on a Wealthy Island: A Priest, a Murder and a Mystery**\
+`The Rev. Canon Paul Wancura led a quiet, privileged life. But after his shocking death, a sexual abuse allegation followed.`\
+https://nytimes.com/2022/02/04/nyregion/shelter-island-murder-priest.html?searchResultPosition=7
 
-**Pelosi warns U.S. athletes not to anger China’s government with protests.**\
-`The House speaker said protests could prompt reprisals from a “ruthless” Chinese government.`\
-https://nytimes.com/2022/02/04/sports/olympics/pelosi-protests.html?searchResultPosition=8
+**On Ukraine, Many Russians Have No Doubt: It’s the Fault of the U.S.**\
+`The idea that the U.S. and NATO are fomenting the crisis between Russia and Ukraine is hammered home daily by the Kremlin’s propaganda machine.`\
+https://nytimes.com/2022/02/04/world/europe/russia-public-opinion-ukraine-us-nato.html?searchResultPosition=8
 
-**A Search Begins for the Wreck Behind an Epic Tale of Survival**\
-`Ernest Shackleton’s ship Endurance was crushed by Antarctic ice in 1915. Now, a team of researchers is heading to the Weddell Sea where it went down.`\
-https://nytimes.com/2022/02/04/climate/shackleton-endurance-shipwreck-search.html?searchResultPosition=9
+**The Dissenters Trying to Save Evangelicalism From Itself**\
+`Heartbroken by the path their church has taken, they seek a renewal.`\
+https://nytimes.com/2022/02/04/opinion/evangelicalism-division-renewal.html?searchResultPosition=9
 
-**New Zealand Inquiry Finds Hundreds of Reports of Abuse by Priests**\
-`The complaints, going back seven decades, attest to the pervasiveness of sexual and other abuse within the Catholic Church and are part of a worldwide reckoning.`\
-https://nytimes.com/2022/02/04/world/australia/new-zealand-catholic-abuse.html?searchResultPosition=10
+**How a Sports Bar Manager Spends Her Sundays**\
+`Abby Dowd, often with a megaphone, ministers to the football fans who call Blue Haven East “church.”`\
+https://nytimes.com/2022/02/04/nyregion/sports-bar-nyc.html?searchResultPosition=10
 
