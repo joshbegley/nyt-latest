@@ -3,7 +3,7 @@
 https://nytimes.com/interactive/2022/02/04/fashion/olympics-opening-ceremony-fashion.html?searchResultPosition=1
 
 **Review: City Ballet Gets a Modern Dance Fix**\
-`A new work by the Ailey veteran Jamar Roberts shared a program with reprisals by Pam Tanowitz and Kyle Abraham.`\
+`A new work by the Ailey veteran Jamar Roberts shared a program with revivals by Pam Tanowitz and Kyle Abraham.`\
 https://nytimes.com/2022/02/04/arts/dance/review-city-ballet-jamar-roberts.html?searchResultPosition=2
 
 **Lone ISIS Bomber Carried Out Attack at Kabul Airport, Pentagon Says**\
