@@ -1,10 +1,10 @@
 **More Cheddar for Your Bread**\
 `“Every single thing that you use has gone up in price —  it’s the containers, the seasonings, the olives!” Nine sandwich vendors talk inflation.`\
-https://nytimes.com/2022/02/04/business/more-cheddar-for-your-bread.html?searchResultPosition=1
+https://nytimes.com/2022/02/04/business/inflation-sandwiches.html?searchResultPosition=1
 
 **U.S. Study Finds Further Regulation of the Art Market Not Needed Now**\
 `A Treasury Department report says that, while the market can be vulnerable to money laundering, there are more pressing regulatory issues to address.`\
-https://nytimes.com/2022/02/04/arts/art-market-regulation.html?searchResultPosition=2
+https://nytimes.com/2022/02/04/arts/design/art-market-regulation.html?searchResultPosition=2
 
 **The Winter Show, Postponed Because of Omicron Surge, Sets April Dates**\
 `One of New York City’s leading art fairs will be set on five floors of the former Barneys flagship location on Madison Avenue.`\
