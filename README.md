@@ -7,7 +7,7 @@ https://nytimes.com/2022/02/04/style/love-letter-newsletter-remembering-your-mor
 https://nytimes.com/2022/02/04/us/politics/pence-trump-election.html?searchResultPosition=2
 
 **Don’t Assume Ilya Shapiro’s ‘Lesser Black Woman’ Tweet Was Racist**\
-`And Georgetown shouldn’t have placed him on leave.`\
+`Georgetown shouldn’t have placed him on leave.`\
 https://nytimes.com/2022/02/04/opinion/supreme-court-georgetown-twitter.html?searchResultPosition=3
 
 **Pennsylvania Doctor Accused of Prescribing Ivermectin for Covid Is Fired**\
