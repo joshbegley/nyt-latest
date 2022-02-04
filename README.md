@@ -1,6 +1,6 @@
 **Russian Troops in Final Stages of Readiness Add to Worries for Ukraine**\
 `Though the Kremlin’s intentions are unclear, Ukrainian officials are newly worried about the Crimean Peninsula, where Russia has deployed 10,000 additional troops, they said.`\
-https://nytimes.com/2022/02/04/world/europe/russian-troops-in-final-stages-of-readiness-add-to-worries-for-ukraine.html?searchResultPosition=1
+https://nytimes.com/2022/02/04/world/europe/russian-troops-ukraine-crimean-peninsula.html?searchResultPosition=1
 
 **Michael Avenatti Is Found Guilty of Stealing From Stormy Daniels**\
 `They were once united in an effort to topple Donald J. Trump. But even then, a jury found, Mr. Avenatti was stealing from his famous client.`\
