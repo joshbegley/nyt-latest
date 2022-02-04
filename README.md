@@ -1,5 +1,5 @@
 **U.S. broadcast coverage Friday includes curling and the opening ceremony.**\
-`Figure skating’s team event, featuring the world champion Nathan Chen, will be rebroadcast at 4 p.m.`\
+`Figure skating’s team event, featuring the world champion Nathan Chen, will be rebroadcast at 4 p.m. Eastern.`\
 https://nytimes.com/2022/02/04/sports/olympics/broadcast-coverage-olympics.html?searchResultPosition=1
 
 **A Fashionable Start to the Lunar New Year**\
