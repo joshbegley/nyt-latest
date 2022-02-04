@@ -1,5 +1,5 @@
 **Minneapolis Police Video Shows Officer Killing Armed Man on Couch**\
-`Amir Locke, 22, was fatally shot by officers carrying out a search warrant. He was lying under a blanket until an officer kicked the couch, revealing a gun, body camera video shows.`\
+`Amir Locke, 22, was fatally shot as the police carried out a search warrant. He was lying under a blanket until an officer kicked the couch, revealing a gun, body camera video shows.`\
 https://nytimes.com/2022/02/03/us/amir-locke-minneapolis-police-shooting.html?searchResultPosition=1
 
 **Variety: Diagramless**\
