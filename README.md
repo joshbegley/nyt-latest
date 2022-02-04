@@ -8,7 +8,7 @@ https://nytimes.com/2022/02/04/us/pennsylvania-doctor-ivermectin-fired.html?sear
 
 **Read the Republican Censure of Cheney and Kinzinger Read the Republican Censure of Cheney and Kinzinger**\
 `The Republican National Committee’s resolution censures Representatives Liz Cheney and Adam Kinzinger.`\
-https://nytimes.com/interactive/2022/02/04/us/rnc-jan6-resolution.html?searchResultPosition=3
+https://nytimes.com/interactive/2022/02/04/us/rnc-resolution-censure-cheney-kinziger.html?searchResultPosition=3
 
 **Meet the U.S. Figure Skating Team**\
 `Figure skating events began even before Beijing’s opening ceremony. Here are the athletes I’ll be watching.`\
