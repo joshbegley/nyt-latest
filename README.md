@@ -26,7 +26,7 @@ https://nytimes.com/2022/02/04/sports/olympics/pelosi-protests.html?searchResult
 `Ernest Shackleton’s ship Endurance was crushed by Antarctic ice in 1915. Now, a team of researchers is heading to the Weddell Sea where it went down.`\
 https://nytimes.com/2022/02/04/climate/shackleton-endurance-shipwreck-search.html?searchResultPosition=7
 
-**New Zealand Inquiry Finds Thousands of Reports of Abuse by Priests**\
+**New Zealand Inquiry Finds Hundreds of Reports of Abuse by Priests**\
 `The complaints, going back seven decades, attest to the pervasiveness of sexual and other abuse within the Catholic Church and are part of a worldwide reckoning.`\
 https://nytimes.com/2022/02/04/world/australia/new-zealand-catholic-abuse.html?searchResultPosition=8
 
