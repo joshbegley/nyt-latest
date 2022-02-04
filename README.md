@@ -1,6 +1,6 @@
 **Need a Life Coach? This 5-Year-Old Can Help.**\
 `A child’s advice for coping with anxiety has gone viral after his mother shared it on Twitter. (Hint: It involves doughnuts, dinosaurs and Dolly Parton.)`\
-https://nytimes.com/2022/02/03/well/mind/need-a-life-coach-this-5-year-old-can-help.html?searchResultPosition=1
+https://nytimes.com/2022/02/03/well/mind/life-coach-5-year-old.html?searchResultPosition=1
 
 **Corrections: Feb. 4, 2022**\
 `Corrections that appeared in print on Friday, Feb. 4, 2022.`\
