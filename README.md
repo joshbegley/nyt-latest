@@ -2,8 +2,8 @@
 `Whether you’re participating in our contest or not, these useful ideas and adaptations can help you with any interview project.`\
 https://nytimes.com/2022/02/04/learning/piloting-a-project-tips-and-handouts-from-teachers-working-with-our-profile-unit.html?searchResultPosition=1
 
-**In a provocative ending, China picks an athlete with Uyghur heritage to help light the cauldron.**\
-`The choice seemed designed to answer criticisms of China’s mass detention and re-education campaign targeting Uyghur Muslims in the western region of Xinjiang.`\
+**In a provocative choice, China picks an athlete with a Uyghur name to help light the cauldron.**\
+`The pick seemed designed to answer criticisms of China’s mass detention and re-education campaign targeting Uyghur Muslims in the western region of Xinjiang.`\
 https://nytimes.com/2022/02/04/sports/olympics/cauldron-lighting-opening-ceremony-uyghur-china.html?searchResultPosition=2
 
 **Thousands of Students Missing Out on College Grants, Study Finds**\
