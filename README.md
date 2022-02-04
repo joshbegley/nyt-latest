@@ -6,7 +6,7 @@ https://nytimes.com/2022/02/04/opinion/supreme-court-georgetown-twitter.html?sea
 `Tower Health Medical Group said in a statement that it learned of the allegations on Wednesday. After an investigation, the doctor’s employment was “terminated effective immediately.”`\
 https://nytimes.com/2022/02/04/us/pennsylvania-doctor-ivermectin-fired.html?searchResultPosition=2
 
-**Read the Republican Censure of Cheney and Kinzinger Read the Republican Censure of Cheney and Kinzinger**\
+**Read the Republican Censure of Cheney and Kinzinger**\
 `The Republican National Committee’s resolution censures Representatives Liz Cheney and Adam Kinzinger.`\
 https://nytimes.com/interactive/2022/02/04/us/rnc-resolution-censure-cheney-kinziger.html?searchResultPosition=3
 
