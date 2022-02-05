@@ -10,8 +10,8 @@ https://nytimes.com/2022/02/05/us/mark-esper-pentagon-memoir.html?searchResultPo
 `A multimedia project reveals the vulnerable sides of Winter Olympic athletes.`\
 https://nytimes.com/2022/02/05/insider/insider-olympics-fear.html?searchResultPosition=3
 
-**Will Lawmakers Do Anything to Protect the 2024 Election?**\
-`The Electoral Count Act needs fixing. Now. `\
+**Jan. 6 Was a Warning. Will Lawmakers Do Anything to Protect the 2024 Election?**\
+`The Electoral Count Act needs fixing. Now.`\
 https://nytimes.com/2022/02/05/opinion/electoral-count-act-congress.html?searchResultPosition=4
 
 **Abortion Views, and Personal Stories**\
