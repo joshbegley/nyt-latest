@@ -1,6 +1,6 @@
 **A Jamaican bobsledder filed an appeal over the women’s qualifying process.**\
 `She argues that the sport favors European athletes over those from smaller countries elsewhere.`\
-https://nytimes.com/2022/02/04/sports/olympics/a-jamaican-bobsledder-filed-an-appeal-over-the-womens-qualifying-process.html?searchResultPosition=1
+https://nytimes.com/2022/02/04/sports/olympics/jamaican-bobsledder-jazmine-fenlator-victorian.html?searchResultPosition=1
 
 **The Right One Can Produce a Smile**\
 `Turn that frown upside down! We get Kameron Austin Collins on a Saturday.`\
