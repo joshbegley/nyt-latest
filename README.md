@@ -3,7 +3,7 @@
 https://nytimes.com/2022/02/05/us/big-board-dc-vaccine-mandate.html?searchResultPosition=1
 
 **Effort to Rescue a 5-Year-Old Transfixes Morocco, Only to End Sadly**\
-`The 4-day rescue operation failed to save the life of Rayan Oram, who plunged down a 100-foot well, a devastating outcome to the many Moroccans who were captivated by the effort to save him.`\
+`The 4-day rescue operation failed to save the life of Rayan, who plunged down a 100-foot well, a devastating outcome to the many Moroccans who were captivated by the effort to save him.`\
 https://nytimes.com/2022/02/05/world/africa/morocco-boy-well.html?searchResultPosition=2
 
 **Martine Colette, Who Rescued Exotic Animals, Is Dead at 79**\
