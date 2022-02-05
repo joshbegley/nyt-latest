@@ -15,7 +15,7 @@ https://nytimes.com/2022/02/05/realestate/apartment-building-fire-safety.html?se
 https://nytimes.com/2022/02/05/us/dinosaur-tracks-moab-utah.html?searchResultPosition=4
 
 **China wins its first gold of the Games in a new mixed-gender short-track event.**\
-`By Kevin Draper and Chris Buckley`\
+`Fans cheered wildly — despite a pandemic-related no-cheering rule — as the host country won a medal on the first full day of competition.`\
 https://nytimes.com/2022/02/04/sports/olympics/china-wins-speedskating-relay-gold.html?searchResultPosition=5
 
 **Afghan Refugees Face Two-Tier System in Europe**\
