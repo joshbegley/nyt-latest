@@ -30,7 +30,7 @@ https://nytimes.com/2022/02/04/sports/olympics/casey-dawson-speedskater-covid-po
 `Former Vice President Mike Pence said he had no legal authority to change the outcome of the 2020 election, offering his most forceful rejection of Donald Trump’s efforts to overturn the results.`\
 https://nytimes.com/video/us/politics/100000008193255/pence-trump-election-2020.html?searchResultPosition=8
 
-**Southwest will start selling alcohol on flights again.**\
+**Southwest plans to start selling alcohol on flights again.**\
 `A flight attendants’ union said the decision was “unsafe and irresponsible.”`\
 https://nytimes.com/2022/02/04/us/southwest-airlines-alcohol.html?searchResultPosition=9
 
