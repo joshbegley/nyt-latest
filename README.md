@@ -34,7 +34,7 @@ https://nytimes.com/2022/02/04/pageoneplus/corrections-feb-5-2022.html?searchRes
 `The difference between gold and silver might come down to these head-to-head matchups.`\
 https://nytimes.com/2022/02/04/sports/olympics/beijing-olympics-matchups.html?searchResultPosition=9
 
-**U.S. snowboarder Jamie Anderson seeks another medal as women’s competition begins.**\
+**Competing with icy winds, U.S. snowboarder Jamie Anderson qualifies to seek another medal.**\
 `A third gold medal may be a tall order. The top rider this season has been Zoi Sadowski-Synnott of New Zealand, who beat Anderson two weeks ago at the X Games`\
 https://nytimes.com/2022/02/04/sports/olympics/jamie-anderson-slopestyle-snowboarding.html?searchResultPosition=10
 
