@@ -22,7 +22,7 @@ https://nytimes.com/2022/02/05/crosswords/spelling-bee-forum.html?searchResultPo
 `The actor creates a skull painting at a borrowed artist’s studio in Brooklyn.`\
 https://nytimes.com/2022/02/05/style/adrien-brody-painting-brooklyn.html?searchResultPosition=6
 
-**U.S. broadcast coverage on Saturday continues with curling, speedskating and hockey.**\
+**U.S. broadcast coverage continues with curling, speedskating and hockey.**\
 `The first medals in biathlon, short track and skiing events at the Beijing Games will be up for grabs.`\
 https://nytimes.com/2022/02/05/sports/watch-curling-speedskating-hockey.html?searchResultPosition=7
 
