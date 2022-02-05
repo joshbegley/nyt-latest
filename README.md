@@ -18,8 +18,8 @@ https://nytimes.com/2022/02/05/business/dealbook/michael-lewis-revisits-liars-po
 `We travel not just to escape, but to find novelty, new heights and new sensations.`\
 https://nytimes.com/2022/02/05/briefing/covid-travel-weekend-culture.html?searchResultPosition=5
 
-**U.S. women’s hockey will play Russia without Brianna Decker.**\
-`While the absence of Decker will hurt, the U.S. team’s deep bench includes other players who have made multiple Olympic appearances.`\
+**U.S. women’s hockey play Russia without Brianna Decker.**\
+`While the absence of Decker hurts, the U.S. team’s deep bench includes other players who have made multiple Olympic appearances.`\
 https://nytimes.com/2022/02/05/sports/olympics/us-roc-womens-hockey.html?searchResultPosition=6
 
 **Mikaela Shiffrin and Aleks Kilde Are Ski Racing’s Power Couple**\
