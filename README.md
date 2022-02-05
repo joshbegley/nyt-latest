@@ -1,5 +1,5 @@
 **Therese Johaug of Norway wins the first gold medal of the 2022 Olympics.**\
-`American Jessie Diggins comes in sixth, nearly a minute later.`\
+`The American Jessie Diggins comes in sixth, nearly a minute behind the winner.`\
 https://nytimes.com/2022/02/04/sports/olympics/therese-johaug-wins-skiathlon-gold.html?searchResultPosition=1
 
 **Amid Coups and Covid, Africa Focuses on What’s Most Important: Soccer**\
