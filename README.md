@@ -1,4 +1,4 @@
-**Ecuador’s Top Court Backs Indigenous Groups in Mining and Drilling Suit**\
+**Ecuador Court Gives Indigenous Groups a Boost in Mining and Drilling Disputes**\
 `The ruling, which requires the government to seek consent for new projects, could put the brakes on the president’s plan to increase oil production.`\
 https://nytimes.com/2022/02/04/climate/ecuador-indigenous-constitutional-court.html?searchResultPosition=1
 
