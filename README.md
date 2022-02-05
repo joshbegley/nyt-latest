@@ -22,7 +22,7 @@ https://nytimes.com/2022/02/04/us/politics/government-national-security-announce
 `The speaker of the Republican-controlled Arizona House — who supported Donald J. Trump in 2020 — just torpedoed a bill that would have let lawmakers reject the results of an election.`\
 https://nytimes.com/2022/02/04/us/politics/arizona-republicans-rusty-bowers-voting-rights.html?searchResultPosition=6
 
-**North Carolina Court Says G.O.P. Political Maps Are Unconstitutional**\
+**North Carolina Court Says G.O.P. Political Maps Violate State Constitution**\
 `The State Supreme Court said maps of the state’s 14 House districts and state legislative districts violated guarantees of free elections, speech and assembly.`\
 https://nytimes.com/2022/02/04/us/north-carolina-redistricting-gerrymander-unconstitutional.html?searchResultPosition=7
 
