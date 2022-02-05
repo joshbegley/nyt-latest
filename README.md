@@ -1,6 +1,6 @@
 **Adrien Brody Returns to His First Love: Painting**\
 `The actor creates a skull painting at a borrowed artist’s studio in Brooklyn.`\
-https://nytimes.com/2022/02/05/style/adrien-brody-returns-to-his-first-love-painting.html?searchResultPosition=1
+https://nytimes.com/2022/02/05/style/adrien-brody-painting-brooklyn.html?searchResultPosition=1
 
 **U.S. broadcast coverage on Saturday continues with curling, speedskating and hockey.**\
 `The first medals in biathlon, short track and skiing events at the Beijing Games will be up for grabs.`\
