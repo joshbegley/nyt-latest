@@ -18,8 +18,8 @@ https://nytimes.com/2022/02/05/us/brown-deer-shooting-wisconsin.html?searchResul
 `Americans will compete for gold medals in the women’s slopestyle final and the men’s downhill.`\
 https://nytimes.com/2022/02/05/sports/olympics/watch-figure-skating-snowboarding-skiing.html?searchResultPosition=5
 
-**Jeff Zucker Didn’t Save Democracy**\
-`But some unheroic realism from Republicans just might.`\
+**At This Point, I’ll Bet on Susan Collins Over the Resistance**\
+`Some unheroic realism from Republicans might foster the most important response to the events of Jan. 6.`\
 https://nytimes.com/2022/02/05/opinion/jeff-zucker-susan-collins-trump-cheney.html?searchResultPosition=6
 
 **In Scrutinizing Trump and His Allies, Jan. 6 Panel Adopts Prosecution Tactics**\
