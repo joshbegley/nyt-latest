@@ -1,40 +1,40 @@
-**Long-Track Speedskating: How It Works and Who’s Worth Watching**\
-`Among the top skaters, Americans like Brittany Bowe and Joey Mantia will take on Dutch powerhouses like Irene Schouten and Thomas Krol.`\
-https://nytimes.com/2022/02/05/sports/olympics/long-track-speedskating.html?searchResultPosition=1
+**A Side-Effect of China’s Strict Virus Policy: Abandoned Fruit**\
+`The closure of Chinese land borders and the tightened screening of goods have driven Southeast Asian fruit farmers into debt. Many have had to abandon their harvest.`\
+https://nytimes.com/2022/02/05/world/asia/virus-vietnam-china-fruit.html?searchResultPosition=1
 
-**Therese Johaug of Norway wins the first gold medal of the 2022 Olympics.**\
-`The American Jessie Diggins comes in sixth, nearly a minute behind the winner.`\
-https://nytimes.com/2022/02/04/sports/olympics/therese-johaug-wins-skiathlon-gold.html?searchResultPosition=2
+**Amid Slowdown, Immigration Is Driving U.S. Population Growth**\
+`A declining birthrate and pandemic deaths helped drive U.S. population growth to historic lows. But immigration appears to be back on the rise.`\
+https://nytimes.com/2022/02/05/us/immigration-census-population.html?searchResultPosition=2
 
-**Amid Coups and Covid, Africa Focuses on What’s Most Important: Soccer**\
-`Many countries competing in the Africa Cup of Nations are enduring security, economic and political crises, but the tournament offers visions of unity, solidarity and joy.`\
-https://nytimes.com/2022/02/05/world/africa/africa-cup-of-nations-soccer-unity.html?searchResultPosition=3
+**Leader’s Death Is Another Blow for ISIS, but It’s Hardly the End**\
+`The Islamic State is a shadow of its former self. But it’s likely to keep adapting and enduring, even after the U.S. raid that killed its top commander.`\
+https://nytimes.com/2022/02/05/world/middleeast/isis-qurayshi-death.html?searchResultPosition=3
 
-**Race, Crash, Surgery, Rehab. Then Repeat.**\
-`Nearly every Olympic skier gets hurt at some point, given that they speed down an icy slopes, sometimes at 80 miles per hour. Advances in orthopedic medicine ensure that most find a way back.`\
-https://nytimes.com/2022/02/05/sports/olympics/skiing-crashes-injuries.html?searchResultPosition=4
+**Beijing Wanted the Winter Olympics. All It Needed Was Snow.**\
+`The environmentally unfriendly secret of winter sports is that many competitions take place on artificial snow. China’s water-scarce capital had to go to enormous lengths to make enough of it.`\
+https://nytimes.com/2022/02/05/climate/snow-winter-olympics.html?searchResultPosition=4
 
-**Don’t Touch. Don’t Even Look. Invest Like Your Senators Should.**\
-`Stocks are swinging all over the place. It’s a good time to take your hands off the wheel — here’s how to let go.`\
-https://nytimes.com/2022/02/05/your-money/stock-portfolio-investment-management.html?searchResultPosition=5
+**Facing Tough Election, Orban Turns to Putin for Support**\
+`The Hungarian leader made his name by defying Moscow. But he has increasingly turned toward Russia in an effort to secure the natural gas he needs to keep energy prices low and voters happy.`\
+https://nytimes.com/2022/02/05/world/viktor-orban-putin-energy.html?searchResultPosition=5
 
-**‘Guernica’ Antiwar Tapestry to Be Rehung at U.N.**\
-`The canvas replica of Picasso’s painting, symbolizing war’s horrors, had been a photogenic fixture at the United Nations for decades before its owner, the Rockefeller family, removed it last year.`\
-https://nytimes.com/2022/02/05/world/americas/guernica-tapestry-un-rockefeller.html?searchResultPosition=6
+**Inside the Fox News That Donald Trump Helped Build**\
+`Roger Ailes understood the appeal Mr. Trump had for Fox viewers. He didn’t foresee how together they would redefine the limits of political discourse in a way the country is still living with.`\
+https://nytimes.com/2022/02/05/business/trump-fox-news.html?searchResultPosition=6
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/02/05/crosswords/spelling-bee-forum.html?searchResultPosition=7
+**All Options Are Not on the Table as Biden Moves Troops Closer to Ukraine**\
+`The president’s opposition to sending U.S. troops into Ukraine reflects the mood of a war-wary Washington, as well as concerns about Russia’s nuclear arsenal.`\
+https://nytimes.com/2022/02/05/us/politics/biden-ukraine-russia-war.html?searchResultPosition=7
 
-**Adrien Brody Returns to His First Love: Painting**\
-`The actor creates a skull painting at a borrowed artist’s studio in Brooklyn.`\
-https://nytimes.com/2022/02/05/style/adrien-brody-painting-brooklyn.html?searchResultPosition=8
+**The Mile High Club, Complete With Membership Cards**\
+`Love Cloud, an airplane charter business, offers private flights that help couples take their relationships (and relations) to new heights.`\
+https://nytimes.com/2022/02/05/style/love-cloud-las-vegas-mile-high-club.html?searchResultPosition=8
 
-**U.S. broadcast coverage continues with freestyle skiing and hockey.**\
-`The U.S. women’s hockey team faces the Russia Olympic Committee team in a preliminary game`\
-https://nytimes.com/2022/02/05/sports/watch-curling-speedskating-hockey.html?searchResultPosition=9
+**A Skating Legend Powered by Slights, Real and Perceived**\
+`Ireen Wüst willed herself to become the world’s best speedskater. She arrives in Beijing chasing a gold medal in her fifth straight Olympics.`\
+https://nytimes.com/2022/02/05/sports/olympics/ireen-wust-speedskating-dutch.html?searchResultPosition=9
 
-**Planning for the 2026 Winter Games is already underway.**\
-`Milan and Cortina d’Ampezzo, Italy, will host the next event, where two million visitors are expected.`\
-https://nytimes.com/2022/02/04/sports/olympics/milano-cortina-2026.html?searchResultPosition=10
+**Earnings Are Driving the Market but It’s Not Clear Where**\
+`The stock market has begun swinging wildly as companies like Google, Facebook, Apple, Starbucks and Exxon Mobil reveal their earnings and hint at divergent prospects for the year ahead.`\
+https://nytimes.com/2022/02/05/business/stock-market-earnings.html?searchResultPosition=10
 
