@@ -34,7 +34,7 @@ https://nytimes.com/2022/02/05/business/dealbook/michael-lewis-revisits-liars-po
 `We travel not just to escape, but to find novelty, new heights and new sensations.`\
 https://nytimes.com/2022/02/05/briefing/covid-travel-weekend-culture.html?searchResultPosition=9
 
-**U.S. women’s hockey play Russia without Brianna Decker.**\
-`While the absence of Decker hurts, the U.S. team’s deep bench includes other players who have made multiple Olympic appearances.`\
+**A rare sight at the Olympics: the Russian flag.**\
+`The banned item made an appearance as the Russian Olympic Committee faced the United States in a preliminary women’s hockey match.`\
 https://nytimes.com/2022/02/05/sports/olympics/us-roc-womens-hockey.html?searchResultPosition=10
 
