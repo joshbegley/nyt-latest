@@ -14,8 +14,8 @@ https://nytimes.com/2022/02/05/world/africa/morocco-boy-well.html?searchResultPo
 `Her wildlife sanctuary just outside Los Angeles was among the first of its kind and was supported by Hollywood luminaries.`\
 https://nytimes.com/2022/02/05/us/martine-colette-dead.html?searchResultPosition=4
 
-**2 Dead and 2 Wounded in Shooting Near Milwaukee, Police Say**\
-`A gunman fired at police officers from the second floor of an apartment building in Brown Deer, Wis., on Saturday. They were not injured, officials said.`\
+**Three Dead and One Wounded in Shooting Near Milwaukee, Police Say**\
+`A gunman, who took his own life, fired at police officers from the second floor of an apartment building in Brown Deer, Wis., after fatally shooting two other people.`\
 https://nytimes.com/2022/02/05/us/brown-deer-shooting-wisconsin.html?searchResultPosition=5
 
 **U.S. prime-time broadcast coverage on Saturday includes figure skating, snowboarding and skiing.**\
