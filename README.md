@@ -20,7 +20,7 @@ https://nytimes.com/2022/02/05/world/middleeast/isis-qurayshi-death.html?searchR
 
 **Beijing Wanted the Winter Olympics. All It Needed Was Snow.**\
 `The environmentally unfriendly secret of winter sports is that many competitions take place on artificial snow. China’s water-scarce capital had to go to enormous lengths to make enough of it.`\
-https://nytimes.com/2022/02/05/climate/snow-winter-olympics.html?searchResultPosition=6
+https://nytimes.com/2022/02/05/sports/olympics/snow-winter-olympics.html?searchResultPosition=6
 
 **Facing Tough Election, Orban Turns to Putin for Support**\
 `The Hungarian leader made his name by defying Moscow. But he has increasingly turned toward Russia in an effort to secure the natural gas he needs to keep energy prices low and voters happy.`\
