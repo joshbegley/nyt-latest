@@ -20,7 +20,7 @@ https://nytimes.com/2022/02/05/us/brown-deer-shooting-wisconsin.html?searchResul
 
 **U.S. prime-time broadcast coverage on Saturday includes figure skating, snowboarding and skiing.**\
 `Americans will compete for gold medals in the women’s slopestyle final and the men’s downhill.`\
-https://nytimes.com/2022/02/05/sports/olympics/watch-figure-skating-snowboarding-skiing.html?searchResultPosition=6
+https://nytimes.com/2022/02/05/sports/olympics/olympics-tv-schedule-tonight.html?searchResultPosition=6
 
 **At This Point, I’ll Bet on Susan Collins Over the Resistance**\
 `Some unheroic realism from Republicans might foster the most important response to the events of Jan. 6.`\
