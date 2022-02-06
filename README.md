@@ -31,7 +31,7 @@ https://nytimes.com/2022/02/05/world/europe/camilla-queen-elizabeth-jubilee.html
 https://nytimes.com/2022/02/05/sports/olympics/downhill-mens-skiing-canceled.html?searchResultPosition=8
 
 **The Russian team vaults past the United States for the top spot in figure skating.**\
-`Kamila Valieva of Russia had the highest score of the women’s short program, helping her team eclipse the Americans, who had been in first place. The Russian men maintained the lead. Karen Chen of the United States fell.`\
+`Kamila Valieva of Russia had the highest score of the women’s short program, helping her team eclipse the United States, which had been in first place. Karen Chen of the United States fell.`\
 https://nytimes.com/2022/02/05/sports/olympics/russia-figure-skating.html?searchResultPosition=9
 
 **U.S. Warns of Grim Toll if Putin Pursues Full Invasion of Ukraine**\
