@@ -3,7 +3,7 @@
 https://nytimes.com/2022/02/06/us/charles-vert-willie-dead.html?searchResultPosition=1
 
 **Who Are We Caring for in the I.C.U.?**\
-`Sometimes doctors owe care to family members, too.`\
+`A doctor reckons with what’s owed to a patient’s family members.`\
 https://nytimes.com/2022/02/06/opinion/intensive-care-patient-hospital.html?searchResultPosition=2
 
 **My Trans Journey: A History in 6 Passports**\
