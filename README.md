@@ -16,7 +16,7 @@ https://nytimes.com/2022/02/06/crosswords/spelling-bee-forum.html?searchResultPo
 
 **Zoi Sadowski-Synnott Leads Slopestyle’s New Guard**\
 `The three medalists at these Olympics affirmed the arrival of the next generation of snowboarders, a group that is supplanting the two-time gold medalist Jamie Anderson.`\
-https://nytimes.com/2022/02/06/sports/olympics/snowboarding-slopestyle-sadowski-synnott-marino.html?searchResultPosition=5
+https://nytimes.com/2022/02/06/sports/olympics/snowboarding-gold-new-zealand.html?searchResultPosition=5
 
 **Alexander Bolshunov of Russia wins the gold in the men’s skiathlon.**\
 `Johannes Klaebo, the standout skier on Norway’s powerful team, had been a favorite going into the grueling race but never contended.`\
