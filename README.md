@@ -2,8 +2,8 @@
 `On the eve of the 70th anniversary of the start of her reign, Elizabeth said she wanted the Duchess of Cornwall to hold the title of Queen Consort once Prince Charles is king.`\
 https://nytimes.com/2022/02/05/world/europe/camilla-queen-elizabeth-jubilee.html?searchResultPosition=1
 
-**Jamie Anderson vies for a third straight gold medal in slopestyle snowboarding.**\
-`Anderson is a strong contender, though not the favorite. New Zealand’s Zoi Sadowski-Synnott beat her two weeks ago at the X Games.`\
+**Julia Marino places second in women’s slopestyle snowboarding, earning the U.S. its first medal in Beijing.**\
+`Jamie Anderson placed ninth, ending her bid for a third straight gold in the event.`\
 https://nytimes.com/2022/02/05/sports/olympics/us-gold-medal-snowboarding-slopestyle.html?searchResultPosition=2
 
 **The downhill men’s race was delayed because of high winds.**\
