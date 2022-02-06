@@ -2,8 +2,8 @@
 `Anderson is a strong contender, though not the favorite. New Zealand’s Zoi Sadowski-Synnott beat her two weeks ago at the X Games.`\
 https://nytimes.com/2022/02/05/sports/olympics/snowboard-jamie-anderson.html?searchResultPosition=1
 
-**Skiers prepare to hurtle down an unfamiliar and treacherous course.**\
-`The pandemic has kept the new racecourse outside Beijing from hosting preparatory events over the past two years.`\
+**The downhill men’s race was delayed because of high winds.**\
+`The pandemic has kept the new racecourse outside Beijing from hosting preparatory events over the past two years. Extreme weather has added to racers’ unease about the course.`\
 https://nytimes.com/2022/02/05/sports/olympics/olympics-skiing-men.html?searchResultPosition=2
 
 **For a U.S. figure skater, an opportunity, and pressure, to shine in the team event.**\
