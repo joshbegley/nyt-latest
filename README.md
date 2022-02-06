@@ -26,8 +26,8 @@ https://nytimes.com/2022/02/05/obituaries/lata-mangeshkar-dead.html?searchResult
 `On the eve of the 70th anniversary of the start of her reign, Elizabeth said she wanted the Duchess of Cornwall to hold the title of Queen Consort once Prince Charles is king.`\
 https://nytimes.com/2022/02/05/world/europe/camilla-queen-elizabeth-jubilee.html?searchResultPosition=7
 
-**The downhill men’s race is postponed a day because of high winds.**\
-`The pandemic has kept the new racecourse outside Beijing from hosting preparatory events over the past two years. Extreme weather has added to racers’ unease about the course.`\
+**The men’s downhill is postponed one day because of high winds.**\
+`Extreme weather has added to racers’ unease about the unfamiliar new racecourse outside Beijing.`\
 https://nytimes.com/2022/02/05/sports/olympics/downhill-mens-skiing-canceled.html?searchResultPosition=8
 
 **Led by a 15-year-old, Russia’s team glides past the U.S. in figure skating.**\
