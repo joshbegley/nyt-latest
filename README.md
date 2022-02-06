@@ -14,7 +14,7 @@ https://nytimes.com/2022/02/05/world/europe/camilla-queen-elizabeth-jubilee.html
 `Jamie Anderson placed ninth, ending her bid for a third straight gold in the event.`\
 https://nytimes.com/2022/02/05/sports/olympics/snowboarding-slopestyle-us-gold-medal.html?searchResultPosition=4
 
-**The downhill men’s race was delayed because of high winds.**\
+**The downhill men’s race is canceled because of high winds.**\
 `The pandemic has kept the new racecourse outside Beijing from hosting preparatory events over the past two years. Extreme weather has added to racers’ unease about the course.`\
 https://nytimes.com/2022/02/05/sports/olympics/olympics-skiing-men.html?searchResultPosition=5
 
