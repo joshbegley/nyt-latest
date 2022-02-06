@@ -7,7 +7,7 @@ https://nytimes.com/2022/02/05/sports/olympics/downhill-skiing-men.html?searchRe
 https://nytimes.com/2022/02/05/sports/olympics/karen-chen-team-figure-skating.html?searchResultPosition=2
 
 **U.S. Warns of Grim Toll if Putin Pursues Full Invasion of Ukraine**\
-`Biden administration officials told lawmakers that a large-scale Russian invasion could kill as many as 50,000 Ukrainian civilians and prompt a refugee crisis in Europe.`\
+`Biden administration officials told lawmakers that a large-scale Russian invasion could kill as many as 50,000 civilians and prompt a refugee crisis in Europe.`\
 https://nytimes.com/2022/02/05/us/politics/russia-ukraine-invasion.html?searchResultPosition=3
 
 **Truck Convoy Protests Descend on Major Canadian Cities**\
