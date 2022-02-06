@@ -4,7 +4,7 @@ https://nytimes.com/2022/02/05/world/europe/camilla-queen-elizabeth-jubilee.html
 
 **Julia Marino places second in women’s slopestyle snowboarding, earning the U.S. its first medal in Beijing.**\
 `Jamie Anderson placed ninth, ending her bid for a third straight gold in the event.`\
-https://nytimes.com/2022/02/05/sports/olympics/us-gold-medal-snowboarding-slopestyle.html?searchResultPosition=2
+https://nytimes.com/2022/02/05/sports/olympics/snowboarding-slopestyle-us-gold-medal.html?searchResultPosition=2
 
 **The downhill men’s race was delayed because of high winds.**\
 `The pandemic has kept the new racecourse outside Beijing from hosting preparatory events over the past two years. Extreme weather has added to racers’ unease about the course.`\
