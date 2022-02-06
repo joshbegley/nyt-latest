@@ -34,7 +34,7 @@ https://nytimes.com/2022/02/06/us/politics/electoral-count-act-overhaul.html?sea
 `The president suffers from the same blind spot as other white liberal leaders throughout history.`\
 https://nytimes.com/2022/02/06/opinion/biden-mcconnell-friendship.html?searchResultPosition=9
 
-**Australia’s first Olympic curling team claims another win — against their coach.**\
-`The showdown was a final wrinkle in a tumultuous journey for the Australian team.`\
-https://nytimes.com/2022/02/05/sports/olympics/australia-canada-curling.html?searchResultPosition=10
+**Teenage Inmates in Syria Lack Food and Medicine, Aid Group Says**\
+`UNICEF was given the first glimpse of teenage detainees at a prison attacked by ISIS two weeks ago in northeastern Syria.`\
+https://nytimes.com/2022/02/06/world/middleeast/syria-prison-teenage-detainees.html?searchResultPosition=10
 
