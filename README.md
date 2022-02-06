@@ -1,30 +1,30 @@
+**The New Guard of Slopestyle Snowboarding**\
+`The three medalists’ victory at these Olympics affirms the arrival of the next generation, perhaps supplanting Jamie Anderson as the queen of slopestyle.`\
+https://nytimes.com/2022/02/06/sports/olympics/slopestyle-sadowski-synnott-marino.html?searchResultPosition=1
+
 **A young star of Norway’s cross-country skiing team looks to dominate in Beijing.**\
 `In his first Olympic race four years ago, Johannes Klaebo finished 10th in the skiathlon. But at these Games, he is a heavy favorite.`\
-https://nytimes.com/2022/02/05/sports/olympics/johannes-klaebo-norway.html?searchResultPosition=1
+https://nytimes.com/2022/02/05/sports/olympics/johannes-klaebo-norway.html?searchResultPosition=2
 
 **Corrections: Feb. 6, 2022**\
 `Corrections that appeared in print on Sunday, Feb. 6, 2022.`\
-https://nytimes.com/2022/02/06/pageoneplus/corrections-feb-6-2022.html?searchResultPosition=2
+https://nytimes.com/2022/02/06/pageoneplus/corrections-feb-6-2022.html?searchResultPosition=3
 
 **Quotation of the Day: New York’s Hospitals Emerge, Resilient, From Omicron Wave**\
 `Quotation of the Day for Sunday, February 6, 2022.`\
-https://nytimes.com/2022/02/06/todayspaper/quotation-of-the-day-new-yorks-hospitals-emerge-resilient-from-omicron-wave.html?searchResultPosition=3
+https://nytimes.com/2022/02/06/todayspaper/quotation-of-the-day-new-yorks-hospitals-emerge-resilient-from-omicron-wave.html?searchResultPosition=4
 
 **U.S. overnight broadcast coverage includes figure skating, snowboarding and skiing.**\
 `In the women’s slopestyle snowboarding final, Jamie Anderson of the United States vies to add a third gold medal to her collection.`\
-https://nytimes.com/2022/02/06/sports/olympics/olympics-tv-schedule.html?searchResultPosition=4
+https://nytimes.com/2022/02/06/sports/olympics/olympics-tv-schedule.html?searchResultPosition=5
 
 **Lata Mangeshkar, Bollywood’s Most Beloved Voice, Dies at 92**\
 `Ms. Mangeshkar, a revered figure in India, recorded songs for countless films — not appearing onscreen herself, but providing characters’ singing voices.`\
-https://nytimes.com/2022/02/05/obituaries/lata-mangeshkar-dead.html?searchResultPosition=5
+https://nytimes.com/2022/02/05/obituaries/lata-mangeshkar-dead.html?searchResultPosition=6
 
 **Queen Elizabeth Paves the Way for Camilla to One Day Be Called Queen**\
 `On the eve of the 70th anniversary of the start of her reign, Elizabeth said she wanted the Duchess of Cornwall to hold the title of Queen Consort once Prince Charles is king.`\
-https://nytimes.com/2022/02/05/world/europe/camilla-queen-elizabeth-jubilee.html?searchResultPosition=6
-
-**Julia Marino wins silver in slopestyle snowboarding, earning the U.S. its first medal in Beijing.**\
-`Jamie Anderson placed ninth, ending her bid for a third straight gold in the event.`\
-https://nytimes.com/2022/02/05/sports/olympics/snowboarding-slopestyle-us-gold-medal.html?searchResultPosition=7
+https://nytimes.com/2022/02/05/world/europe/camilla-queen-elizabeth-jubilee.html?searchResultPosition=7
 
 **The downhill men’s race is postponed because of high winds.**\
 `The pandemic has kept the new racecourse outside Beijing from hosting preparatory events over the past two years. Extreme weather has added to racers’ unease about the course.`\
