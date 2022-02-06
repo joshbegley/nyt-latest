@@ -10,9 +10,9 @@ https://nytimes.com/2022/02/05/sports/olympics/snowboard-jamie-anderson.html?sea
 `The pandemic has kept the new racecourse outside Beijing from hosting preparatory events over the past two years. Extreme weather has added to racers’ unease about the course.`\
 https://nytimes.com/2022/02/05/sports/olympics/olympics-skiing-men.html?searchResultPosition=3
 
-**For a U.S. figure skater, an opportunity, and pressure, to shine in the team event.**\
-`Karen Chen missed out on the team competition in 2018. The Americans are leading in the three-day event but will face a challenge from Russian athletes.`\
-https://nytimes.com/2022/02/05/sports/olympics/karen-chen-team-figure-skating.html?searchResultPosition=4
+**The Russian team vaults past the United States for the top spot in figure skating.**\
+`Kamila Valieva of Russia had the highest score of the night, helping her team eclipse the United States, which had been in first place.  Karen Chen of the United States fell.`\
+https://nytimes.com/2022/02/05/sports/olympics/russia-figure-skating.html?searchResultPosition=4
 
 **U.S. Warns of Grim Toll if Putin Pursues Full Invasion of Ukraine**\
 `Biden administration officials told lawmakers that a large-scale Russian invasion could kill as many as 50,000 civilians and prompt a refugee crisis in Europe.`\
