@@ -1,6 +1,6 @@
 **The New Guard of Slopestyle Snowboarding**\
 `The three medalists’ victory at these Olympics affirms the arrival of the next generation, perhaps supplanting Jamie Anderson as the queen of slopestyle.`\
-https://nytimes.com/2022/02/06/sports/olympics/slopestyle-sadowski-synnott-marino.html?searchResultPosition=1
+https://nytimes.com/2022/02/06/sports/olympics/snowboarding-slopestyle-sadowski-synnott-marino.html?searchResultPosition=1
 
 **A young star of Norway’s cross-country skiing team looks to dominate in Beijing.**\
 `In his first Olympic race four years ago, Johannes Klaebo finished 10th in the skiathlon. But at these Games, he is a heavy favorite.`\
