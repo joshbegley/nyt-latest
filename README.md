@@ -3,11 +3,11 @@
 https://nytimes.com/2022/02/06/sports/olympics/olympics-tv-schedule-tonight.html?searchResultPosition=1
 
 **Mikaela Shiffrin faces stiff competition from rivals in women’s giant slalom.**\
-`By Bill Pennington`\
+`An overarching story line of the women’s World Cup circuit this season has been a hotly contested duel between Shiffrin and her chief rival, Petra Vlhova of Slovakia.`\
 https://nytimes.com/2022/02/06/sports/olympics/mikaela-shiffrin-olympics.html?searchResultPosition=2
 
 **Russia leads the U.S. going into the final day of the figure skating team event.**\
-`By Juliet Macur`\
+`The Russian athletes passed the Americans in the standings to take over the top spot.`\
 https://nytimes.com/2022/02/06/sports/olympics/figure-skating.html?searchResultPosition=3
 
 **George Crumb, Eclectic Composer Who Searched for Sounds, Dies at 92**\
