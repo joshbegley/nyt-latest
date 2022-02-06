@@ -1,6 +1,6 @@
 **A young star of Norway’s cross-country skiing team looks to dominate in Beijing.**\
 `In his first Olympic race four years ago, Johannes Klaebo finished 10th in the skiathlon. But at these Games, he is a heavy favorite.`\
-https://nytimes.com/2022/02/05/sports/olympics/a-young-star-of-norways-cross-country-skiing-team-looks-to-dominate-in-beijing.html?searchResultPosition=1
+https://nytimes.com/2022/02/05/sports/olympics/johannes-klaebo-norway.html?searchResultPosition=1
 
 **Corrections: Feb. 6, 2022**\
 `Corrections that appeared in print on Sunday, Feb. 6, 2022.`\
