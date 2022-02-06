@@ -1,6 +1,6 @@
 **Skiers prepare to hurtle down an unfamiliar and treacherous course.**\
 `The pandemic has kept the new racecourse outside Beijing from hosting preparatory events over the past two years.`\
-https://nytimes.com/2022/02/05/sports/olympics/downhill-skiing-men.html?searchResultPosition=1
+https://nytimes.com/2022/02/05/sports/olympics/olympics-skiing-men.html?searchResultPosition=1
 
 **For a U.S. figure skater, an opportunity, and pressure, to shine in the team event.**\
 `Karen Chen missed out on the team competition in 2018. The Americans are leading in the three-day event but will face a challenge from Russian athletes.`\
