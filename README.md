@@ -11,7 +11,7 @@ https://nytimes.com/2022/02/05/sports/olympics/snowboard-jamie-anderson.html?sea
 https://nytimes.com/2022/02/05/sports/olympics/olympics-skiing-men.html?searchResultPosition=3
 
 **The Russian team vaults past the United States for the top spot in figure skating.**\
-`Kamila Valieva of Russia had the highest score of the night, helping her team eclipse the United States, which had been in first place.  Karen Chen of the United States fell.`\
+`Kamila Valieva of Russia had the highest score of the night, helping her team eclipse the United States, which had been in first place. Karen Chen of the United States fell.`\
 https://nytimes.com/2022/02/05/sports/olympics/russia-figure-skating.html?searchResultPosition=4
 
 **U.S. Warns of Grim Toll if Putin Pursues Full Invasion of Ukraine**\
