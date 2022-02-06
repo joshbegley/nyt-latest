@@ -30,7 +30,7 @@ https://nytimes.com/2022/02/05/world/europe/camilla-queen-elizabeth-jubilee.html
 `The pandemic has kept the new racecourse outside Beijing from hosting preparatory events over the past two years. Extreme weather has added to racers’ unease about the course.`\
 https://nytimes.com/2022/02/05/sports/olympics/downhill-mens-skiing-canceled.html?searchResultPosition=8
 
-**The Russian team vaults past the United States for the top spot in figure skating.**\
+**Led by a 15-year-old, Russia’s team glides past the U.S. in figure skating.**\
 `Kamila Valieva of Russia had the highest score of the women’s short program, helping her team eclipse the United States, which had been in first place. Karen Chen of the United States fell.`\
 https://nytimes.com/2022/02/05/sports/olympics/russia-figure-skating.html?searchResultPosition=9
 
