@@ -2,7 +2,7 @@
 `On the eve of the 70th anniversary of the start of her reign, Elizabeth said she wanted the Duchess of Cornwall to hold the title of Queen Consort once Prince Charles is king.`\
 https://nytimes.com/2022/02/05/world/europe/camilla-queen-elizabeth-jubilee.html?searchResultPosition=1
 
-**Julia Marino places second in women’s slopestyle snowboarding, earning the U.S. its first medal in Beijing.**\
+**Julia Marino wins silver in slopestyle snowboarding, earning the U.S. its first medal in Beijing.**\
 `Jamie Anderson placed ninth, ending her bid for a third straight gold in the event.`\
 https://nytimes.com/2022/02/05/sports/olympics/snowboarding-slopestyle-us-gold-medal.html?searchResultPosition=2
 
