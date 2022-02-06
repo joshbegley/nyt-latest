@@ -18,8 +18,8 @@ https://nytimes.com/2022/02/05/us/politics/russia-ukraine-invasion.html?searchRe
 `Demonstrations that began with truckers critical of vaccine mandates continued for a second straight weekend, as thousands across Ottawa, Toronto and Quebec City protested for a number of political causes.`\
 https://nytimes.com/video/world/canada/100000008193907/canada-protests-trucks-vaccine-mandates.html?searchResultPosition=5
 
-**Police Killing of Man During Raid Brings Out Protesters in Minneapolis**\
-`Demonstrators march downtown days after the fatal shooting of Amir Locke, 22.`\
+**‘We Need Something Different’: Protesters March in Minneapolis After Police Killing**\
+`A large crowd of demonstrators gathered downtown days after the fatal shooting of Amir Locke, 22.`\
 https://nytimes.com/2022/02/05/us/amir-locke-minneapolis-police-shooting.html?searchResultPosition=6
 
 **Sci-Fi Showdown**\
