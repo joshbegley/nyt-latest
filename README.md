@@ -4,7 +4,7 @@ https://nytimes.com/2022/02/05/world/europe/camilla-queen-elizabeth-jubilee.html
 
 **Jamie Anderson vies for a third straight gold medal in slopestyle snowboarding.**\
 `Anderson is a strong contender, though not the favorite. New Zealand’s Zoi Sadowski-Synnott beat her two weeks ago at the X Games.`\
-https://nytimes.com/2022/02/05/sports/olympics/snowboard-jamie-anderson.html?searchResultPosition=2
+https://nytimes.com/2022/02/05/sports/olympics/us-gold-medal-snowboarding-slopestyle.html?searchResultPosition=2
 
 **The downhill men’s race was delayed because of high winds.**\
 `The pandemic has kept the new racecourse outside Beijing from hosting preparatory events over the past two years. Extreme weather has added to racers’ unease about the course.`\
