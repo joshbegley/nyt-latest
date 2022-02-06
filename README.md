@@ -1,40 +1,40 @@
-**Queen Elizabeth, Anchor in a Storm-Tossed Britain, Marks 70-Year Reign**\
-`The milestone puts the queen, 95, in rarefied company: Only three other monarchs are documented to have reigned for more than 70 years.`\
-https://nytimes.com/2022/02/06/world/europe/queen-elizabeth-platinum-jubilee.html?searchResultPosition=1
+**Afghanistan’s Health Care System Is Collapsing Under Stress**\
+`Hospitals and clinics are struggling to hold up amid a cash shortage and a vast surge of malnutrition and disease. By one estimate, 90 percent may close in the next few months.`\
+https://nytimes.com/2022/02/06/world/asia/afghanistans-health-care-system.html?searchResultPosition=1
 
-**Time For a Victory Lap***\
-`*Some terms and conditions apply. Modern Monetary Theory, the buzziest economic idea in decades, got a pandemic tryout of sorts. Now inflation is testing its limits.`\
-https://nytimes.com/2022/02/06/business/economy/modern-monetary-theory-stephanie-kelton.html?searchResultPosition=2
+**Germany’s ‘Invisible’ Chancellor Heads to Washington Amid Fierce Criticism**\
+`Olaf Scholz will try to repair Germany’s credibility in the Ukraine crisis when he meets President Biden on Monday. Next on his agenda: Kyiv and Moscow.`\
+https://nytimes.com/2022/02/06/world/europe/germany-chancellor-scholz-biden-washington-ukraine-russia.html?searchResultPosition=2
 
-**How a Butterfly Refuge at the Texas Border Became the Target of Far-Right Lies**\
-`Becoming the focus of conspiracy theories about child sex trafficking has caused the National Butterfly Center to shut its doors for now.`\
-https://nytimes.com/2022/02/06/us/butterfly-center-texas.html?searchResultPosition=3
+**Hoping for ‘Endemic’: The Travel Industry Readies for a New Phase**\
+`A growing call to consider the coronavirus a permanent fixture in our lives is resonating among travel operators. But that would not necessarily mean the virus is no longer dangerous.`\
+https://nytimes.com/2022/02/06/travel/travel-trends-endemic-virus.html?searchResultPosition=3
 
-**‘I Was Feeling Tired and Frustrated as the Train Rumbled North’**\
-`Consolation of a sort on the A train, a kindred spirit on the F and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2022/02/06/nyregion/metropolitan-diary.html?searchResultPosition=4
+**How Yiddish Scholars Are Rescuing Women’s Novels From Obscurity**\
+`Works written decades ago, often by female Jewish immigrants, were dismissed as insignificant or unmarketable. But in the past several years, translators devoted to the literature are making it available to a wider readership.`\
+https://nytimes.com/2022/02/06/books/yiddish-women-novels-fiction.html?searchResultPosition=4
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/02/06/crosswords/spelling-bee-forum.html?searchResultPosition=5
+**‘Taking the Voters Out of the Equation’: How the Parties Are Killing Competition**\
+`The number of competitive House districts is dropping, as both Republicans and Democrats use redistricting to draw themselves into safe seats.`\
+https://nytimes.com/2022/02/06/us/politics/redistricting-competition-midterms.html?searchResultPosition=5
 
-**Zoi Sadowski-Synnott Leads Slopestyle’s New Guard**\
-`The three medalists at these Olympics affirmed the arrival of the next generation of snowboarders, a group that is supplanting the two-time gold medalist Jamie Anderson.`\
-https://nytimes.com/2022/02/06/sports/olympics/snowboarding-gold-new-zealand.html?searchResultPosition=6
+**Maybe There’s a Use for Crypto After All**\
+`Helium, a wireless network powered by cryptocurrency, hints at the practical promise of decentralized services.`\
+https://nytimes.com/2022/02/06/technology/helium-cryptocurrency-uses.html?searchResultPosition=6
 
-**Alexander Bolshunov of Russia wins the gold in the men’s skiathlon.**\
-`Johannes Klaebo, the standout skier on Norway’s powerful team, had been a favorite going into the grueling race but never contended.`\
-https://nytimes.com/2022/02/05/sports/olympics/alexander-bolshunov-wins-skiathlon.html?searchResultPosition=7
+**Climate Change Enters the Therapy Room**\
+`Ten years ago, psychologists proposed that a wide range of people would suffer anxiety and grief over climate. Skepticism about that idea is gone.`\
+https://nytimes.com/2022/02/06/health/climate-anxiety-therapy.html?searchResultPosition=7
 
-**Corrections: Feb. 6, 2022**\
-`Corrections that appeared in print on Sunday, Feb. 6, 2022.`\
-https://nytimes.com/2022/02/06/pageoneplus/corrections-feb-6-2022.html?searchResultPosition=8
+**Why the World’s Best Skiers Don’t Always Win at the Olympics.**\
+`Nothing solidifies a skier’s status like an Olympic medal. But winning one depends not only on training, but also luck and the right conditions.`\
+https://nytimes.com/2022/02/06/sports/soccer/skiing-medals.html?searchResultPosition=8
 
-**Quotation of the Day: New York’s Hospitals Emerge, Resilient, From Omicron Wave**\
-`Quotation of the Day for Sunday, February 6, 2022.`\
-https://nytimes.com/2022/02/06/todayspaper/quotation-of-the-day-new-yorks-hospitals-emerge-resilient-from-omicron-wave.html?searchResultPosition=9
+**Homes That Sold for Around $750,000**\
+`Recent residential sales in New York City and the region.`\
+https://nytimes.com/2022/02/06/realestate/home-sales-750000-dollars.html?searchResultPosition=9
 
-**U.S. overnight broadcast coverage includes figure skating, snowboarding and skiing.**\
-`In the women’s slopestyle snowboarding final, Jamie Anderson of the United States vies to add a third gold medal to her collection.`\
-https://nytimes.com/2022/02/06/sports/olympics/olympics-tv-schedule.html?searchResultPosition=10
+**Two Sports Injuries, Two Different Outcomes at Olympic Venues**\
+`An injured Polish athlete was slow to receive treatment after a training crash. The response was faster when a U.S. women’s hockey player was hurt.`\
+https://nytimes.com/2022/02/06/sports/olympics/sports-injuries-beijing.html?searchResultPosition=10
 
