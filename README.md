@@ -26,7 +26,7 @@ https://nytimes.com/2022/02/05/obituaries/lata-mangeshkar-dead.html?searchResult
 `On the eve of the 70th anniversary of the start of her reign, Elizabeth said she wanted the Duchess of Cornwall to hold the title of Queen Consort once Prince Charles is king.`\
 https://nytimes.com/2022/02/05/world/europe/camilla-queen-elizabeth-jubilee.html?searchResultPosition=7
 
-**The downhill men’s race is postponed because of high winds.**\
+**The downhill men’s race is postponed a day because of high winds.**\
 `The pandemic has kept the new racecourse outside Beijing from hosting preparatory events over the past two years. Extreme weather has added to racers’ unease about the course.`\
 https://nytimes.com/2022/02/05/sports/olympics/downhill-mens-skiing-canceled.html?searchResultPosition=8
 
