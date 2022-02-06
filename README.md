@@ -2,7 +2,7 @@
 `The president suffers from the same blind spot as other white liberal leaders throughout history.`\
 https://nytimes.com/2022/02/06/opinion/biden-mcconnell-friendship.html?searchResultPosition=1
 
-**Australia’s first Olympic curling team claims its first win — against their coach.**\
+**Australia’s first Olympic curling team claims another win — against their coach.**\
 `The showdown was a final wrinkle in a tumultuous journey for the Australian team.`\
 https://nytimes.com/2022/02/05/sports/olympics/australia-canada-curling.html?searchResultPosition=2
 
