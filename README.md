@@ -18,9 +18,9 @@ https://nytimes.com/2022/02/06/crosswords/spelling-bee-forum.html?searchResultPo
 `The three medalists at these Olympics affirmed the arrival of the next generation of snowboarders, a group that is supplanting the two-time gold medalist Jamie Anderson.`\
 https://nytimes.com/2022/02/06/sports/olympics/snowboarding-slopestyle-sadowski-synnott-marino.html?searchResultPosition=5
 
-**A young star of Norway’s cross-country skiing team looks to dominate in Beijing.**\
-`In his first Olympic race four years ago, Johannes Klaebo finished 10th in the skiathlon. But at these Games, he is a heavy favorite.`\
-https://nytimes.com/2022/02/05/sports/olympics/johannes-klaebo-norway.html?searchResultPosition=6
+**Alexander Bolshunov of Russia wins the gold in the men’s skiathlon.**\
+`Johannes Klaebo, the standout skier on Norway’s powerful team, had been a favorite going into the grueling race but never contended.`\
+https://nytimes.com/2022/02/05/sports/olympics/alexander-bolshunov-wins-skiathlon.html?searchResultPosition=6
 
 **Corrections: Feb. 6, 2022**\
 `Corrections that appeared in print on Sunday, Feb. 6, 2022.`\
