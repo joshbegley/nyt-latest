@@ -31,7 +31,7 @@ https://nytimes.com/2022/02/07/world/asia/chinese-doctor-li-wenliang-covid-warni
 https://nytimes.com/interactive/2022/02/07/learning/Monaco-Geography-Quiz.html?searchResultPosition=8
 
 **Ireen Wüst becomes the first person to win individual golds at five Olympics.**\
-`The Dutch speedskater, 35, set an Olympic record in the 1,500 meters.`\
+`The Dutch speedskater, 35, set an Olympic record in the 1,500 meters, then said she would retire.`\
 https://nytimes.com/2022/02/06/sports/olympics/ireen-wust-wins-speedskating-medals.html?searchResultPosition=9
 
 **Bolsonaro Tried to Stop Kids Getting Vaccinated, and Failed**\
