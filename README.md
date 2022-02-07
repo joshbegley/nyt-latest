@@ -22,9 +22,9 @@ https://nytimes.com/2022/02/07/world/asia/taiwan-china-ukraine-russia.html?searc
 `Derek Chauvin was sentenced to 22 and a half years for the murder, but what about the other officers who were at the scene?`\
 https://nytimes.com/2022/02/07/podcasts/the-daily/george-floyd-trial.html?searchResultPosition=6
 
-**Biden adopts recommendations for promoting union membership.**\
-`Many of the steps, proposed by a White House task force, would make it easier for federal workers and employees of contractors to unionize.`\
-https://nytimes.com/2022/02/07/business/economy/biden-adopts-recommendations-for-promoting-union-membership.html?searchResultPosition=7
+**President Biden adopts steps for promoting union membership.**\
+`Many of the recommendations, proposed by a White House task force, would make it easier for federal workers and employees of contractors to unionize.`\
+https://nytimes.com/2022/02/07/business/economy/biden-union-membership.html?searchResultPosition=7
 
 **Two years after his death, the Chinese doctor who warned of the virus is remembered.**\
 `Social media users flocked to an online profile for Dr. Li Wenliang, who provided an early warning about the coronavirus in 2019.`\
