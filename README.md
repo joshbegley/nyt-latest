@@ -19,8 +19,8 @@ https://nytimes.com/2022/02/06/sports/olympics/snowboarding-mens-slopestyle.html
 https://nytimes.com/2022/02/06/arts/billions-recap-episode-3.html?searchResultPosition=5
 
 **What are those blue lines on the snow?**\
-`By Lauren McCarthy`\
-https://nytimes.com/2022/02/06/sports/olympics/blue-lines-skiing.html?searchResultPosition=6
+`Your slalom skiing questions, answered.`\
+https://nytimes.com/live/2022/02/06/sports/olympics-winter-medals-results/blue-lines-skiing?searchResultPosition=6
 
 **Men’s downhill tries again after high winds delayed competition a day.**\
 `The giant slalom and the downhill take place on different slopes and with different skiers.`\
