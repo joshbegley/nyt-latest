@@ -22,19 +22,19 @@ https://nytimes.com/2022/02/07/world/asia/taiwan-china-ukraine-russia.html?searc
 `Derek Chauvin was sentenced to 22 and a half years for the murder, but what about the other officers who were at the scene?`\
 https://nytimes.com/2022/02/07/podcasts/the-daily/george-floyd-trial.html?searchResultPosition=6
 
+**Biden adopts recommendations for promoting union membership.**\
+`Many of the steps, proposed by a White House task force, would make it easier for federal workers and employees of contractors to unionize.`\
+https://nytimes.com/2022/02/07/business/economy/biden-adopts-recommendations-for-promoting-union-membership.html?searchResultPosition=7
+
 **Two years after his death, the Chinese doctor who warned of the virus is remembered.**\
 `Social media users flocked to an online profile for Dr. Li Wenliang, who provided an early warning about the coronavirus in 2019.`\
-https://nytimes.com/2022/02/07/world/asia/chinese-doctor-li-wenliang-covid-warning.html?searchResultPosition=7
+https://nytimes.com/2022/02/07/world/asia/chinese-doctor-li-wenliang-covid-warning.html?searchResultPosition=8
 
 **How Much Do You Know About Monaco?**\
 `Can you find Monaco on a map? What else do you know about this European nation with 39,000 people?`\
-https://nytimes.com/interactive/2022/02/07/learning/Monaco-Geography-Quiz.html?searchResultPosition=8
+https://nytimes.com/interactive/2022/02/07/learning/Monaco-Geography-Quiz.html?searchResultPosition=9
 
 **Ireen Wüst becomes the first person to win individual golds at five Olympics.**\
 `The Dutch speedskater, 35, set an Olympic record in the 1,500 meters, then said she would retire.`\
-https://nytimes.com/2022/02/06/sports/olympics/ireen-wust-wins-speedskating-medals.html?searchResultPosition=9
-
-**Bolsonaro Tried to Stop Kids Getting Vaccinated, and Failed**\
-`The president’s sabotage efforts have foundered.`\
-https://nytimes.com/2022/02/07/opinion/bolsonaro-brazil-vaccines-kids.html?searchResultPosition=10
+https://nytimes.com/2022/02/06/sports/olympics/ireen-wust-wins-speedskating-medals.html?searchResultPosition=10
 
