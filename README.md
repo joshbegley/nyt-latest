@@ -1,5 +1,5 @@
 **The Magic of Meringues**\
-`Don’t be intimidated by this marvel of food science: It’s much easier than you think to get the dreamy, lofty egg whites of your dreams. Melissa Clark explains.`\
+`Don’t be intimidated by this marvel of food science: It’s much easier than you think to get the lofty egg whites of your dreams. Melissa Clark explains.`\
 https://nytimes.com/2022/02/07/dining/meringues-baking.html?searchResultPosition=1
 
 **How to Make the Best Meringues**\
