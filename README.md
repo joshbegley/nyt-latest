@@ -3,7 +3,7 @@
 https://nytimes.com/2022/02/07/business/tesla-racial-bias-elon-musk-tweets.html?searchResultPosition=1
 
 **The Republican Strategy on a Supreme Court Nominee**\
-`G.O.P. strategy on a Supreme Court nomination. Also: Gerrymandering; masks in school; a defense of meat; hard truths about gambling.`\
+`A reader offers the G.O.P. a suggestion about the hearing. Also: Gerrymandering; masks in school; a defense of meat; hard truths about gambling.`\
 https://nytimes.com/2022/02/07/opinion/letters/republicans-supreme-court-nominee.html?searchResultPosition=2
 
 **A Slip and a Slow Start Cost Two Stars Alpine Gold**\
