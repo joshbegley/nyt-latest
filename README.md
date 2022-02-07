@@ -18,23 +18,23 @@ https://nytimes.com/2022/02/06/sports/olympics/snowboarding-mens-slopestyle.html
 `Prince forms an unsavory alliance to help make a giant land grab. Chuck grabs a bullhorn.`\
 https://nytimes.com/2022/02/06/arts/billions-recap-episode-3.html?searchResultPosition=5
 
-**What are those blue lines on the snow?**\
-`Your slalom skiing questions, answered.`\
-https://nytimes.com/live/2022/02/06/sports/olympics-winter-medals-results/blue-lines-skiing?searchResultPosition=6
-
 **Men’s downhill tries again after high winds delayed competition a day.**\
 `The giant slalom and the downhill take place on different slopes and with different skiers.`\
-https://nytimes.com/2022/02/06/sports/olympics/mens-downhill.html?searchResultPosition=7
+https://nytimes.com/2022/02/06/sports/olympics/mens-downhill.html?searchResultPosition=6
 
 **Peng Shuai, the Chinese tennis player, meets I.O.C. leader at the Olympics.**\
 `Peng largely disappeared from public life after making sexual abuse allegations against a powerful political official.`\
-https://nytimes.com/2022/02/06/sports/olympics/peng-shuai-olympics-ioc.html?searchResultPosition=8
+https://nytimes.com/2022/02/06/sports/olympics/peng-shuai-olympics-ioc.html?searchResultPosition=7
 
 **Ottawa Mayor Declares State of Emergency Amid Antigovernment Protests**\
 `A 10-day demonstration by truckers and other protesters has ensnarled Canada’s capital and led officials to warn that things could turn violent.`\
-https://nytimes.com/2022/02/06/world/americas/canada-trucker-protest-ottawa.html?searchResultPosition=9
+https://nytimes.com/2022/02/06/world/americas/canada-trucker-protest-ottawa.html?searchResultPosition=8
 
 **Home Depot Worker Swapped $387,500 in Fake Bills for Real Ones, Officials Say**\
 `The U.S. Secret Service said Adrian Jean Pineda bought prop $100 bills, which are used for entertainment purposes, and swapped them for genuine currency for four years.`\
-https://nytimes.com/2022/02/06/us/home-depot-counterfeit-money.html?searchResultPosition=10
+https://nytimes.com/2022/02/06/us/home-depot-counterfeit-money.html?searchResultPosition=9
+
+**Athletes take to social media to give fans a view from inside the bubble.**\
+`Olympians’ videos provide glimpses of food, accommodations, Covid tests and the frigid weather in Beijing.`\
+https://nytimes.com/2022/02/06/sports/olympics/tik-tok-olympic-village-athletes.html?searchResultPosition=10
 
