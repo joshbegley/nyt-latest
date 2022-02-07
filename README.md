@@ -1,5 +1,5 @@
 **Led by Mark McMorris, men’s snowboard slopestyle final promises to be dizzying.**\
-`By John Branch`\
+`Mark McMorris of Canada, the top rider of the past decade, is searching for his first Olympic gold medal.`\
 https://nytimes.com/2022/02/06/sports/olympics/snowboarding-mens-slopestyle.html?searchResultPosition=1
 
 **‘Billions’ Season 6, Episode 3 Recap: Street Fighting Man**\
