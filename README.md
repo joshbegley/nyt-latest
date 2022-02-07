@@ -22,7 +22,7 @@ https://nytimes.com/2022/02/06/arts/billions-recap-episode-3.html?searchResultPo
 `The giant slalom and the downhill take place on different slopes and with different skiers.`\
 https://nytimes.com/2022/02/06/sports/olympics/mens-downhill.html?searchResultPosition=6
 
-**Peng Shuai, the Chinese tennis player, meets I.O.C. leader at the Olympics.**\
+**Peng Shuai, the Chinese tennis player, meets I.O.C. leader in Beijing.**\
 `Peng largely disappeared from public life after making sexual abuse allegations against a powerful political official.`\
 https://nytimes.com/2022/02/06/sports/olympics/peng-shuai-olympics-ioc.html?searchResultPosition=7
 
