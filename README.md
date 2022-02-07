@@ -26,13 +26,13 @@ https://nytimes.com/2022/02/07/sports/olympics/snowboarding-freeskiing-olympics-
 `The new bans are a response to contemporary political forces whose true motivation has nothing to do with books.`\
 https://nytimes.com/2022/02/07/opinion/culture/maus-tennessee-book-bans.html?searchResultPosition=7
 
-**How the Deaths of N.Y.P.D. Officers Have Shaped Eric Adams**\
-`The mayor’s views on policing are tied in part to his relationships with families of officers killed on the job, as well as with police abuse victims.`\
-https://nytimes.com/2022/02/07/nyregion/eric-adams-liu-police.html?searchResultPosition=8
-
 **Shopping for Cake Stands**\
 `Because you might want to bake a cake for Valentine’s Day.`\
-https://nytimes.com/2022/02/07/realestate/shopping-for-cake-stands.html?searchResultPosition=9
+https://nytimes.com/2022/02/07/realestate/cake-stands-shopping.html?searchResultPosition=8
+
+**How the Deaths of N.Y.P.D. Officers Have Shaped Eric Adams**\
+`The mayor’s views on policing are tied in part to his relationships with families of officers killed on the job, as well as with police abuse victims.`\
+https://nytimes.com/2022/02/07/nyregion/eric-adams-liu-police.html?searchResultPosition=9
 
 **Is the Coronavirus in Your Backyard?**\
 `White-tailed deer could become a reservoir for the virus, putting people and animals at risk, health experts say.`\
