@@ -30,8 +30,8 @@ https://nytimes.com/2022/02/06/sports/olympics/olympics-tv-schedule-tonight.html
 `An overarching story line of the women’s World Cup circuit this season has been a hotly contested duel between Shiffrin and her chief competitor, Petra Vlhova of Slovakia.`\
 https://nytimes.com/2022/02/06/sports/olympics/mikaela-shiffrin-falls-down.html?searchResultPosition=8
 
-**Russia leads the U.S. and Japan in the final day of the figure skating team event.**\
-`The Russian athletes passed the Americans in the standings to take over the top spot.`\
+**Russia is headed for gold on the final day of the figure skating team event.**\
+`Led by Kamila Valieva, the 15-year-old phenom, the Russian athletes have secured the top spot.`\
 https://nytimes.com/2022/02/06/sports/olympics/figure-skating.html?searchResultPosition=9
 
 **George Crumb, Eclectic Composer Who Searched for Sounds, Dies at 92**\
