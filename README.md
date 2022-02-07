@@ -24,7 +24,7 @@ https://nytimes.com/2022/02/07/sports/baseball/mlb-lockout.html?searchResultPosi
 
 **Royal Nod for ‘Queen Camilla’ Caps Years of Image Repair**\
 `Queen Elizabeth II has put to rest decades of speculation by giving Prince Charles’ wife, Camilla, what some see as her “stamp of approval.”`\
-https://nytimes.com/2022/02/07/world/europe/queen-charles-camilla-royals-uk.html?searchResultPosition=7
+https://nytimes.com/2022/02/07/world/europe/camilla-queen.html?searchResultPosition=7
 
 **Rivals Nathan Chen and Yuzuru Hanyu will meet again in the men’s short program.**\
 `The event takes on new urgency for the Americans after Chen’s teammate Vincent Zhou withdrew from the men’s singles competition.`\
