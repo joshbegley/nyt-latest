@@ -22,8 +22,8 @@ https://nytimes.com/2022/02/06/sports/olympics/eileen-gu-china-gold.html?searchR
 `The men’s downhill event gets going after being postponed by high winds.`\
 https://nytimes.com/2022/02/06/sports/olympics/olympics-tv-schedule-overnight-events.html?searchResultPosition=6
 
-**Led by Mark McMorris, men’s snowboard slopestyle final promises to be dizzying.**\
-`Mark McMorris of Canada, the top rider of the past decade, is searching for his first Olympic gold medal.`\
+**Max Parrot of Canada wins gold in men’s snowboard slopestyle.**\
+`Su Yiming of China won the silver, and Mark McMorris, the top rider of the past decade, came in third.`\
 https://nytimes.com/2022/02/06/sports/olympics/snowboarding-mens-slopestyle.html?searchResultPosition=7
 
 **‘Billions’ Season 6, Episode 3 Recap: Street Fighting Man**\
