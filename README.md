@@ -22,7 +22,7 @@ https://nytimes.com/2022/02/06/us/home-depot-counterfeit-money.html?searchResult
 `Olympians’ videos provide glimpses of food, accommodations, Covid tests and the frigid weather in Beijing.`\
 https://nytimes.com/2022/02/06/sports/olympics/tik-tok-olympic-village-athletes.html?searchResultPosition=6
 
-**U.S. prime-time broadcast coverage on Sunday includes luge, figure skating and skiing.**\
+**U.S. prime-time broadcast coverage includes luge, figure skating and skiing.**\
 `Bryce Bennett and Ryan Cochran-Siegle of the United States are medal hopefuls in the men’s downhill event.`\
 https://nytimes.com/2022/02/06/sports/olympics/olympics-tv-schedule-tonight.html?searchResultPosition=7
 
