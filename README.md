@@ -4,7 +4,7 @@ https://nytimes.com/video/nyregion/100000008196106/school-mask-mandate-new-jerse
 
 **Producer of ‘The Matrix Resurrections’ sues Warner Bros. over how the film was released.**\
 `The suit by Village Roadshow claims Warner Bros. rushed the release of the movie to help boost HBO Max subscriptions, a revenue stream Village Roadshow doesn’t share in.`\
-https://nytimes.com/2022/02/07/business/hbo-max-matrix-lawsuit.html?searchResultPosition=2
+https://nytimes.com/2022/02/07/business/matrix-resurrections-lawsuit.html?searchResultPosition=2
 
 **1 Person Is Killed in Grocery Store Shooting in Washington State**\
 `A gunman opened fire inside a Fred Meyer supermarket in Richland, Wash., on Monday, killing one person and injuring a second, the authorities said.`\
@@ -20,7 +20,7 @@ https://nytimes.com/2022/02/07/technology/peter-thiel-facebook.html?searchResult
 
 **Watch Live: Biden and Scholz Hold Joint News Conference**\
 `President Biden and Olaf Scholz, the new chancellor of Germany, are expected to discuss the crisis in Ukraine.`\
-https://nytimes.com/video/us/politics/100000008196297/biden-scholz-press-conference-live-video.html?searchResultPosition=6
+https://nytimes.com/video/embedded/us/politics/100000008196297/biden-scholz-press-conference-live-video.html?searchResultPosition=6
 
 **Jill Biden Is ‘Disappointed’ that Free Community College Is Off the Table**\
 `The first lady said at a summit of community college leaders that a proposal to waive two years of tuition was no longer part of a social spending bill that Democrats were trying to salvage.`\
