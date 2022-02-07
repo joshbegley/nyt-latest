@@ -14,7 +14,7 @@ https://nytimes.com/video/nyregion/100000008196106/school-mask-mandate-new-jerse
 `The suit by Village Roadshow claims Warner Bros. rushed the release of the movie to help boost HBO Max subscriptions, a revenue stream Village Roadshow doesn’t share in.`\
 https://nytimes.com/2022/02/07/business/matrix-resurrections-lawsuit.html?searchResultPosition=4
 
-**1 Person Is Killed in Grocery Store Shooting in Washington State**\
+**One Person Is Killed in Grocery Store Shooting in Washington State**\
 `A gunman opened fire inside a Fred Meyer supermarket in Richland, Wash., on Monday, killing one person and injuring a second, the authorities said.`\
 https://nytimes.com/2022/02/07/us/shooting-richland-fred-meyer.html?searchResultPosition=5
 
