@@ -1,40 +1,40 @@
-**Short-Track Speedskating: How It Works and Who’s Worth Watching**\
-`Long-track speedskating is all about grace and efficiency. Short track is often about chaos.`\
-https://nytimes.com/2022/02/07/sports/olympics/speedskating-short-track.html?searchResultPosition=1
+**A Photographer’s View of Jordan’s Many Splendors**\
+`For 10 days, a photojournalist drove across Jordan from north to south, visiting several of the country’s most treasured sites. Here’s what he saw.`\
+https://nytimes.com/2022/02/07/travel/jordan-petra-road-trip.html?searchResultPosition=1
 
-**The Goal Is to Go Fast. Just Not Too Fast.**\
-`Technology and safety are colliding in sliding sports, where sleds made for speed are finding tracks built to slow them down.`\
-https://nytimes.com/2022/02/07/sports/safety-luge-skeleton-olympics.html?searchResultPosition=2
+**Turkey’s Doctors Are Leaving, the Latest Casualty of Spiraling Inflation**\
+`Doctors, worn down by grueling hours and violence, are emigrating in rising numbers, undermining one of President Recep Tayyip Erdogan’s signature achievements.`\
+https://nytimes.com/2022/02/07/world/asia/turkey-inflation-doctors.html?searchResultPosition=2
 
-**Lesson of the Day: ‘What We Know About Unfolding the James Webb Space Telescope’**\
-`In this lesson, students will learn about the history and journey of the most powerful observatory in space and what it might discover. Then, they will research a question of their own about the universe.`\
-https://nytimes.com/2022/02/07/learning/lesson-plans/lesson-of-the-day-what-we-know-about-unfolding-the-james-webb-space-telescope.html?searchResultPosition=3
+**That Sigh You Hear Is the Sound of Danger Escaping From Risky Sports**\
+`Increasingly, competitive snowboarders and freeskiers are practicing their aerial tricks by landing on cushy airbags instead of hard snow. Purists wonder: Where’s the sport in that?`\
+https://nytimes.com/2022/02/07/sports/olympics/snowboarding-freeskiing-olympics-airbags.html?searchResultPosition=3
 
-**Ending the School Mask Mandate in N.J. and Studying Wastewater in N.Y.**\
-`Gov. Philip Murphy is expected to allow school districts to permit students and teachers to go without masks.`\
-https://nytimes.com/2022/02/07/nyregion/ending-the-school-mask-mandate-in-nj-and-studying-wastewater-in-ny.html?searchResultPosition=4
+**In Tennessee, the ‘Maus’ Controversy Is the Least of Our Worries**\
+`The new bans are a response to contemporary political forces whose true motivation has nothing to do with books.`\
+https://nytimes.com/2022/02/07/opinion/culture/maus-tennessee-book-bans.html?searchResultPosition=4
 
-**The Tsunami Could Kill Thousands. Can They Build An Escape?**\
-`A major quake in the Pacific Northwest, expected sooner or later, will most likely create waves big enough to wipe out entire towns. Evacuation towers may be the only hope, if they ever get built.`\
-https://nytimes.com/2022/02/07/us/tsunami-northwest-evacuation-towers.html?searchResultPosition=5
+**How the Deaths of N.Y.P.D. Officers Have Shaped Eric Adams**\
+`The mayor’s views on policing are tied in part to his relationships with families of officers killed on the job, as well as with police abuse victims.`\
+https://nytimes.com/2022/02/07/nyregion/eric-adams-liu-police.html?searchResultPosition=5
 
-**A Henry Darger Dispute: Who Inherits the Rights to a Loner’s Genius?**\
-`Since this reclusive artist died in 1973, his landlords have controlled work left behind in his apartment. Now relatives are challenging that stewardship in court.`\
-https://nytimes.com/2022/02/07/arts/design/henry-darger-estate.html?searchResultPosition=6
+**Shopping for Cake Stands**\
+`Because you might want to bake a cake for Valentine’s Day.`\
+https://nytimes.com/2022/02/07/realestate/shopping-for-cake-stands.html?searchResultPosition=6
 
-**They Made Millions on Luna, Solana and Polygon: Crypto’s Boom Beyond Bitcoin**\
-`The ranks of cryptocurrency speculators have swelled, with even obscure tokens minting the newly wealthy: at least on the blockchain.`\
-https://nytimes.com/2022/02/07/technology/cryptocurrency-luna-solana-polygon.html?searchResultPosition=7
+**Is the Coronavirus in Your Backyard?**\
+`White-tailed deer could become a reservoir for the virus, putting people and animals at risk, health experts say.`\
+https://nytimes.com/2022/02/07/health/coronavirus-deer-animals.html?searchResultPosition=7
 
-**N.J. Governor to End School Mask Mandate in Move to ‘Normalcy’**\
-`For the first time since the start of the pandemic, New Jersey districts will be permitted to allow students and teachers to stop wearing masks.`\
-https://nytimes.com/2022/02/07/nyregion/nj-school-mask-mandate-murphy.html?searchResultPosition=8
+**Republicans, Wooing Trump Voters, Make Fauci Their Boogeyman**\
+`G.O.P. candidates, tapping into voters’ frustrations with a seemingly endless pandemic, are stepping up their attacks on Dr. Anthony S. Fauci.`\
+https://nytimes.com/2022/02/07/us/politics/fauci-republicans-trump.html?searchResultPosition=8
 
-**Lucid Air: A Fresh Face With 500 Miles to a Charge, and Horsepower to Spare**\
-`Chasing Tesla, companies like Lucid are finding that starting an E.V. from scratch has its advantages. A comparison with Mercedes-Benz’s new EQS shows how.`\
-https://nytimes.com/2022/02/07/business/lucid-air-review.html?searchResultPosition=9
+**What We Lose When Work Gets Too Casual**\
+`The pandemic has eroded many of the formalities of white-collar work — changes that may benefit employers more than their employees.`\
+https://nytimes.com/2022/02/07/opinion/culture/casual-workplace-remote-office.html?searchResultPosition=9
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/02/07/crosswords/spelling-bee-forum.html?searchResultPosition=10
+**‘Democracy Is Life’: The Grass-Roots Movement Taking On Sudan’s Generals**\
+`Hundreds of loosely connected “resistance committees” are organizing nonviolent protests, tracking the injured and dead and demanding a government led by civilians.`\
+https://nytimes.com/2022/02/07/world/africa/sudan-protest-movement.html?searchResultPosition=10
 
