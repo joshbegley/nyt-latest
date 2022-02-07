@@ -2,7 +2,7 @@
 `The soundtrack to Disney’s latest animated film holds at the top of Billboard’s album chart in its 10th week out.`\
 https://nytimes.com/2022/02/07/arts/music/encanto-soundtrack-billboard-chart.html?searchResultPosition=1
 
-**‘Pure Colour’ Asks Earnest Questions About Love, Mortality and God**\
+**‘Pure Colour’ Seeks Answers About Love, Mortality and God**\
 `In Sheila Heti’s new novel, a young woman considers the state of civilization and briefly joins her dead father on another plane of existence.`\
 https://nytimes.com/2022/02/07/books/review-pure-colour-sheila-heti.html?searchResultPosition=2
 
