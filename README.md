@@ -3,7 +3,7 @@
 https://nytimes.com/2022/02/06/sports/olympics/mens-downhill.html?searchResultPosition=1
 
 **Peng Shuai, the Chinese tennis player, meets I.O.C. leader at the Olympics.**\
-`Peng Shuai largely disappeared from public life after making sexual abuse allegations against a powerful political official.`\
+`Peng largely disappeared from public life after making sexual abuse allegations against a powerful political official.`\
 https://nytimes.com/2022/02/06/sports/olympics/peng-shuai-thomas-back-olympics.html?searchResultPosition=2
 
 **Ottawa Mayor Declares State of Emergency Amid Antigovernment Protests**\
