@@ -31,7 +31,7 @@ https://nytimes.com/2022/02/06/sports/olympics/tik-tok-olympic-village-athletes.
 https://nytimes.com/2022/02/06/sports/olympics/olympics-tv-schedule-tonight.html?searchResultPosition=8
 
 **Mikaela Shiffrin falls in the giant slalom and is disqualified from the event.**\
-`An overarching story line of the women’s World Cup circuit this season has been a hotly contested duel between Shiffrin and her chief competitor, Petra Vlhova of Slovakia.`\
+`Shiffrin has four races remaining in the Olympics, but the giant slalom was seen as a good opportunity for her to win gold.`\
 https://nytimes.com/2022/02/06/sports/olympics/mikaela-shiffrin-falls-down.html?searchResultPosition=9
 
 **Russia is headed for gold on the final day of the figure skating team event.**\
