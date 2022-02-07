@@ -1,6 +1,6 @@
 **Are You Ready to ‘Live With’ the Coronavirus?**\
 `We’re asking readers about plans for their post-Omicron lives and what “living with the virus” means to them.`\
-https://nytimes.com/2022/02/07/nyregion/are-you-ready-to-live-with-the-coronavirus.html?searchResultPosition=1
+https://nytimes.com/2022/02/07/nyregion/live-with-the-coronavirus.html?searchResultPosition=1
 
 **The Day in Falls**\
 `Sometimes the Olympics are about success. Sometimes they’re about the other side of it.`\
