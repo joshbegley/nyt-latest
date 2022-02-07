@@ -16,7 +16,7 @@ https://nytimes.com/2022/02/07/world/middleeast/syria-kurds.html?searchResultPos
 
 **Fire Erupts at Brooklyn Building Under Construction**\
 `No injuries were reported, a New York Fire Department spokesman said on Monday. It was unclear whether residents in nearby buildings were required to evacuate.`\
-https://nytimes.com/2022/02/07/us/brooklyn-fire.html?searchResultPosition=5
+https://nytimes.com/2022/02/07/nyregion/brooklyn-fire.html?searchResultPosition=5
 
 **The New Frontier in Antitrust Fights?**\
 `A proposed union of budget airlines could test competition policy.`\
