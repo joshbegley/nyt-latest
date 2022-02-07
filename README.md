@@ -26,7 +26,7 @@ https://nytimes.com/2022/02/06/sports/olympics/olympics-tv-schedule-tonight.html
 `An overarching story line of the women’s World Cup circuit this season was a hotly contested duel between Shiffrin and her chief competitor, Petra Vlhova of Slovakia.`\
 https://nytimes.com/2022/02/06/sports/olympics/mikaela-shiffrin-falls-down.html?searchResultPosition=7
 
-**Russia leads the U.S. in the final day of the figure skating team event.**\
+**Russia leads the U.S. and Japan in the final day of the figure skating team event.**\
 `The Russian athletes passed the Americans in the standings to take over the top spot.`\
 https://nytimes.com/2022/02/06/sports/olympics/figure-skating.html?searchResultPosition=8
 
