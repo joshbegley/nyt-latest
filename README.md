@@ -1,5 +1,5 @@
 **Rivals Nathan Chen and Yuzuru Hanyu will meet again in the men’s short program.**\
-`By Juliet Macur`\
+`The event takes on new urgency for the Americans after Chen’s teammate Vincent Zhou withdrew from the men’s singles competition.`\
 https://nytimes.com/2022/02/06/sports/olympics/mens-figure-skating-short-program.html?searchResultPosition=1
 
 **How The Sims Became the Internet’s Most Exciting Place to Eat**\
