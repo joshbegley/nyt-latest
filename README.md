@@ -14,8 +14,8 @@ https://nytimes.com/2022/02/06/sports/olympics/tik-tok-olympic-village-athletes.
 `Bryce Bennett and Ryan Cochran-Siegle of the United States are medal hopefuls in the men’s downhill event.`\
 https://nytimes.com/2022/02/06/sports/olympics/olympics-tv-schedule-tonight.html?searchResultPosition=4
 
-**Mikaela Shiffrin faces stiff competition from rivals in women’s giant slalom.**\
-`An overarching story line of the women’s World Cup circuit this season has been a hotly contested duel between Shiffrin and her chief competitor, Petra Vlhova of Slovakia.`\
+**Mikaela Shiffrin falls in the giant slalom and is disqualified from the event.**\
+`An overarching story line of the women’s World Cup circuit this season was a hotly contested duel between Shiffrin and her chief competitor, Petra Vlhova of Slovakia.`\
 https://nytimes.com/2022/02/06/sports/olympics/mikaela-shiffrin-falls-down.html?searchResultPosition=5
 
 **Russia leads the U.S. going into the final day of the figure skating team event.**\
