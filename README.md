@@ -1,4 +1,4 @@
-**House Moves to Shore Up Postal Service, Working to Avert Insolvency**\
+**House Passes Bill to Shore Up Postal Service, Working to Avert Insolvency**\
 `Supporters say the legislation, which has bipartisan support, would address the agency’s financial woes while requiring it maintain a delivery standard of at least six days a week.`\
 https://nytimes.com/2022/02/08/us/politics/postal-service-overhaul-house.html?searchResultPosition=1
 
