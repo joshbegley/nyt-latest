@@ -32,7 +32,7 @@ https://nytimes.com/2022/02/08/travel/birdwatching-ontario-alqonquin.html?search
 
 **Sometimes Shaun White’s Troubles Start When He’s 20 Feet in the Air**\
 `White, who is competing in his fifth and final Olympics, talks about what he has learned in a lifetime of scary tricks, star turns and hard landings.`\
-https://nytimes.com/2022/02/08/sports/olympics/shaun-white-olympics-fear.html?searchResultPosition=9
+https://nytimes.com/2022/02/08/sports/olympics/shaun-white-olympics-snowboard.html?searchResultPosition=9
 
 **Answering the Call of the Wild With a Dog-Sled Trek**\
 `Traversing a frozen lake with a team of dogs is an escapist dream in the winter wonderland of Southern Maine. Just remember the brake — and no Instagram selfies.`\
