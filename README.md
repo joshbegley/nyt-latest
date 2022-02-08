@@ -10,31 +10,31 @@ https://nytimes.com/2022/02/08/sports/football/tim-krumrie-bengals-super-bowl.ht
 `A guide to everything you need to know about the nominations for the 94th annual Academy Awards on Tuesday morning.`\
 https://nytimes.com/2022/02/08/movies/oscar-nominations-time.html?searchResultPosition=3
 
-**Judging by his performance in the team competition, Nathan Chen appears to be in good form.**\
-`By Juliet Macur`\
-https://nytimes.com/2022/02/07/sports/olympics/judging-by-his-performance-in-the-team-competition-nathan-chen-appears-to-be-in-good-form.html?searchResultPosition=4
-
 **About those cooling towers next to big air events …**\
 `The large, drab concrete cooling towers are from an old steelworks.`\
-https://nytimes.com/2022/02/07/sports/olympics/cooling-towers-big-air-skiing.html?searchResultPosition=5
+https://nytimes.com/2022/02/07/sports/olympics/cooling-towers-big-air-skiing.html?searchResultPosition=4
 
 **Yuzuru Hanyu, Nathan Chen’s chief rival, starts his short program with a costly mistake.**\
 `His missed quad cost him a lot of points, but he was so technically good otherwise that he remains in the fight for a medal.`\
-https://nytimes.com/2022/02/07/sports/olympics/yuzuru-hanyu-mistake.html?searchResultPosition=6
+https://nytimes.com/2022/02/07/sports/olympics/yuzuru-hanyu-mistake.html?searchResultPosition=5
 
 **Brianna Decker is staying in Beijing to help the United States through the women’s hockey tournament.**\
 `By Alan Blinder`\
-https://nytimes.com/2022/02/07/sports/olympics/brianna-decker-is-staying-in-beijing-to-help-the-united-states-through-the-womens-hockey-tournament.html?searchResultPosition=7
+https://nytimes.com/2022/02/07/sports/olympics/brianna-decker-is-staying-in-beijing-to-help-the-united-states-through-the-womens-hockey-tournament.html?searchResultPosition=6
 
 **NBC says that Leslie Jones can keep offering her commentary on the Olympics.**\
 `The comedian had suggested that she was being pressured to give up her role as an armchair expert on the Games, but the network said the situation “has been resolved.”`\
-https://nytimes.com/2022/02/07/sports/olympics/leslie-jones-olympics-nbc.html?searchResultPosition=8
+https://nytimes.com/2022/02/07/sports/olympics/leslie-jones-olympics-nbc.html?searchResultPosition=7
 
 **‘Simply the Facts’: Blinken Defends Allegations Against Russia**\
 `Antony Blinken, the secretary of state, said that the United States was seeking to fight Russia’s disinformation campaign by exposing the country’s plot to create a fake video depicting a Ukrainian attack.`\
-https://nytimes.com/video/us/politics/100000008196901/ukraine-blinken-russia-disinformation.html?searchResultPosition=9
+https://nytimes.com/video/us/politics/100000008196901/ukraine-blinken-russia-disinformation.html?searchResultPosition=8
 
 **See the jumps executed by Lee Si-hyeong of South Korea.**\
 `Look at the jumps by the figure skater.`\
-https://nytimes.com/2022/02/07/sports/olympics/lee-si-hyeong-jumps.html?searchResultPosition=10
+https://nytimes.com/2022/02/07/sports/olympics/lee-si-hyeong-jumps.html?searchResultPosition=9
+
+**The Constructors of This Puzzle**\
+`Jack Joshi, Jackson Janes and Adam Aaronson work as a unit.`\
+https://nytimes.com/2022/02/07/crosswords/daily-puzzle-2022-02-08.html?searchResultPosition=10
 
