@@ -23,8 +23,8 @@ https://nytimes.com/2022/02/07/us/air-force-sutherland-springs-shooting-settleme
 https://nytimes.com/2022/02/07/theater/tambo-bones-review-dave-harris.html?searchResultPosition=6
 
 **What is the difference between the short program and the long program?**\
-`By Jeré Longman`\
-https://nytimes.com/2022/02/07/sports/olympics/what-is-the-difference-between-the-short-program-and-the-long-program.html?searchResultPosition=7
+`The short programs are under 3 minutes. The long programs last for 4.`\
+https://nytimes.com/2022/02/07/sports/olympics/short-program-long-program-olympic-figure-skating.html?searchResultPosition=7
 
 **Black Woman’s Bid to Regain Voting Rights Ends With a 6-Year Prison Sentence**\
 `Missteps by various officials put a Tennessee woman on a collision course with the law. Supporters say the sentence underscores racial disparities in voter fraud cases.`\
