@@ -1,6 +1,6 @@
 **Can MDMA Save a Marriage?**\
 `For some couples on the brink of divorce, taking the illegal psychedelic drug was a last resort — but it ended up being the only thing that worked.`\
-https://nytimes.com/2022/02/08/well/mind/mdma-molly-marriage.html?searchResultPosition=1
+https://nytimes.com/2022/02/08/well/mind/marriage-molly-mdma.html?searchResultPosition=1
 
 **Adams Wants Tougher Bail Laws. Can He Get Other Democrats to Agree?**\
 `Mayor Eric Adams will need buy-in from prosecutors, judges and a Democratic-led State Legislature that may balk at some of his tough-on-crime prescriptions.`\
