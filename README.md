@@ -24,7 +24,7 @@ https://nytimes.com/2022/02/08/dining/nyc-restaurant-news.html?searchResultPosit
 
 **A Once Firm Antiwar Alliance Splinters Over Ukraine**\
 `The complex dynamics among veterans’ groups reflect general exhaustion with war among American voters and shifting domestic politics.`\
-https://nytimes.com/2022/02/08/us/politics/us-veterans-ukraine-russia.html?searchResultPosition=7
+https://nytimes.com/2022/02/08/us/politics/russia-ukraine-veterans.html?searchResultPosition=7
 
 **‘Love in the Time of Contagion’ Observes Mutations in Domestic Life**\
 `Laura Kipnis’s new book is about how relationships, including her own, have changed during the pandemic.`\
