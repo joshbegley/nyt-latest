@@ -4,11 +4,11 @@ https://nytimes.com/2022/02/08/briefing/mask-mandates-covid-new-jersey.html?sear
 
 **Swiss Banker’s Trial Rivets With Fraud Charges and Strip Club Visits**\
 `Pierin Vincenz, a former chief executive of Raiffeisen, is accused of making millions through illegal outside deals and filing eyebrow-raising expenses.`\
-https://nytimes.com/2022/02/08/business/raiffeisen-pierin-vincenz-swiss-trial.html?searchResultPosition=2
+https://nytimes.com/2022/02/08/business/raiffeisen-pierin-vincenz-fraud-trial.html?searchResultPosition=2
 
 **‘Fight Club’ Ending Is Restored in China After Censorship Outcry**\
 `Last month, viewers noticed that the ending of the 1999 film had been replaced with a pro-government message. Now the ending is back, and the message is gone.`\
-https://nytimes.com/2022/02/08/world/asia/china-fightclub-tencent.html?searchResultPosition=3
+https://nytimes.com/2022/02/08/world/asia/china-fightclub-censorship-tencent.html?searchResultPosition=3
 
 **Is Russia Bluffing?**\
 `A full-scale invasion of Ukraine would most likely be bloody and expensive. Can the West find the unity needed to head off the danger?`\
