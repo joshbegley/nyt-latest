@@ -19,7 +19,7 @@ https://nytimes.com/2022/02/07/sports/olympics/nathan-chen-short-program.html?se
 https://nytimes.com/2022/02/08/briefing/biden-ukraine-israel-spying.html?searchResultPosition=5
 
 **U.S. overnight broadcast coverage includes cross-country skiing, women’s snowboarding and speedskating.**\
-`Cross-country skiing qualifiers begin at 3 a.m. Eastern time.`\
+`Cross-country skiing qualifiers begin at 3 a.m. Eastern.`\
 https://nytimes.com/2022/02/07/sports/olympics/watch-skiing-snowboarding-speedskating.html?searchResultPosition=6
 
 **As Officials Look Away, Hate Speech in India Nears Dangerous Levels**\
