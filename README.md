@@ -1,6 +1,6 @@
 **Second Gentleman Evacuated After Bomb Threat During School Visit**\
 `Doug Emhoff, the second gentleman, was evacuated while visiting a high school in Washington for an event to honor Black History Month.`\
-https://nytimes.com/2022/02/08/us/politics/doug-emhoff-bomb-threat.html?searchResultPosition=1
+https://nytimes.com/2022/02/08/us/politics/doug-emhoff-dc-bomb-threat.html?searchResultPosition=1
 
 **Norma Waterson, a Key Figure in Britain’s Folk Revival, Dies at 82**\
 `With her familial singing group, the Watersons, and later as a solo performer, she helped revitalize traditional music from the north of England.`\
