@@ -2,9 +2,9 @@
 `The large, drab concrete cooling towers are from an old steelworks.`\
 https://nytimes.com/2022/02/07/sports/olympics/cooling-towers-big-air-skiing.html?searchResultPosition=1
 
-**Yuzuru Hanyu, Nathan Chen’s chief rival, starts his short program with a mistake.**\
-`By Juliet Macur`\
-https://nytimes.com/2022/02/07/sports/olympics/yuzuru-hanyu-is-in-second-place-after-his-short-program.html?searchResultPosition=2
+**Yuzuru Hanyu, Nathan Chen’s chief rival, starts his short program with a costly mistake.**\
+`His missed quad cost him a lot of points, but he was so technically good otherwise that he remains in the fight for a medal.`\
+https://nytimes.com/2022/02/07/sports/olympics/yuzuru-hanyu-mistake.html?searchResultPosition=2
 
 **NBC says that Leslie Jones can keep offering her commentary on the Olympics.**\
 `The comedian had suggested that she was being pressured to give up her role as an armchair expert on the Games, but the network said the situation “has been resolved.”`\
