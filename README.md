@@ -24,7 +24,7 @@ https://nytimes.com/video/us/politics/100000008198640/mcconnell-rnc-censure-capi
 
 **With Mask Restrictions Set to Lift, a Haze of Uncertainty Lingers**\
 `Public health experts agree that school mask mandates should not last forever, but differ on whether the time has come to remove them.`\
-https://nytimes.com/2022/02/08/health/covid-masks-restrictions.html?searchResultPosition=7
+https://nytimes.com/2022/02/08/health/covid-mask-restrictions.html?searchResultPosition=7
 
 **House Passes Bill to Shore Up Postal Service, Working to Avert Insolvency**\
 `Supporters say the legislation, which has bipartisan support, would address the agency’s financial woes while requiring it maintain a delivery standard of at least six days a week.`\
