@@ -1,4 +1,4 @@
-**Nvidia Deal to Buy ARM From SoftBank Is Off After Setbacks**\
+**Nvidia Deal to Buy Arm From SoftBank Is Off After Setbacks**\
 `The deal, which was initially valued at $40 billion, encountered regulatory scrutiny, including an F.T.C. lawsuit.`\
 https://nytimes.com/2022/02/07/technology/nvidia-arm-softbank-deal.html?searchResultPosition=1
 
