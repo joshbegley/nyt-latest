@@ -1,6 +1,6 @@
 **Sweden’s Nikolaj Majorov skates to ‘Sound of Silence.’ And we get to hear the lyrics!**\
-`By Juliet Macur`\
-https://nytimes.com/2022/02/07/sports/olympics/swedens-nikolaj-majorov-skates-to-sound-of-silence-and-we-get-to-hear-the-lyrics.html?searchResultPosition=1
+`Nikolaj Majorov of Sweden just skated to “Sound of Silence” by Disturbed, which is, in my opinion, an amazing version of the song.`\
+https://nytimes.com/2022/02/07/sports/olympics/swedens-nikolaj-majorov-sound-of-silence.html?searchResultPosition=1
 
 **New York Deer Infected With Omicron, Study Finds**\
 `White-tailed deer on Staten Island have become the first wild animals with documented Omicron infections. The coronavirus has now been found in deer in 15 states.`\
@@ -28,7 +28,7 @@ https://nytimes.com/2022/02/07/opinion/todd-gitlin-liberal.html?searchResultPosi
 
 **Rivals Nathan Chen and Yuzuru Hanyu will meet again in the men’s short program.**\
 `The event takes on new urgency for the Americans after Chen’s teammate Vincent Zhou withdrew from the men’s singles competition.`\
-https://nytimes.com/2022/02/07/sports/olympics/rivals-nathan-chen-and-yuzuru-hanyu-will-meet-again-in-the-mens-short-program.html?searchResultPosition=8
+https://nytimes.com/2022/02/07/sports/olympics/chen-hanyu.html?searchResultPosition=8
 
 **Macron Meets Putin in a Push for Diplomacy Over Ukraine**\
 `President Emmanuel Macron of France traveled to Moscow to meet with President Vladimir V. Putin of Russia, amid mounting Western fears that Russia could attack neighboring Ukraine in the coming weeks.`\
