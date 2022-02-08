@@ -7,7 +7,7 @@ https://nytimes.com/2022/02/08/nyregion/in-arrears-and-anxious.html?searchResult
 https://nytimes.com/2022/02/08/world/australia/australia-apology-brittany-higgins.html?searchResultPosition=2
 
 **How Eileen Gu Won Gold in Big Air With Two Giant Jumps**\
-`Move by move, here’s a breakdown of the two high-scoring tricks that vaulted Gu to victory. Her final jump was one she had never tried in competition.`\
+`Move by move, here’s a look at the two high-scoring tricks that vaulted Gu to victory. Her final jump was one she had never tried in competition.`\
 https://nytimes.com/interactive/2022/02/08/sports/olympics/eileen-gu-big-air.html?searchResultPosition=3
 
 **Hong Kong announces its toughest social-distancing rules yet as cases reach record highs.**\
