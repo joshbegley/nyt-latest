@@ -1,6 +1,6 @@
 **See the jumps executed by Lee Si-hyeong of South Korea.**\
-`By The New York Times`\
-https://nytimes.com/2022/02/07/sports/olympics/see-the-jumps-executed-by-lee-si-hyeong-of-south-korea.html?searchResultPosition=1
+`Look at the jumps by the figure skater.`\
+https://nytimes.com/2022/02/07/sports/olympics/lee-si-hyeong-jumps.html?searchResultPosition=1
 
 **The Constructors of This Puzzle**\
 `Jack Joshi, Jackson Janes and Adam Aaronson work as a unit.`\
@@ -8,7 +8,7 @@ https://nytimes.com/2022/02/07/crosswords/daily-puzzle-2022-02-08.html?searchRes
 
 **Donovan Carrillo is the first Mexican man to advance to the long program.**\
 `He’s also the first Mexican man to skate at the Olympics in 30 years.`\
-https://nytimes.com/2022/02/07/sports/olympics/donovan-carrillo-is-the-first-mexican-man-to-advance-to-the-long-program.html?searchResultPosition=3
+https://nytimes.com/2022/02/07/sports/olympics/donovan-carrillo-olympics-mexico.html?searchResultPosition=3
 
 **South Korea is appealing the disqualification of two short-track speedskaters.**\
 `The South Korean Olympic Committee said that the relationship between the international sports community and the referees “was biased and not transparent.”`\
