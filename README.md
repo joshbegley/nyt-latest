@@ -1,5 +1,5 @@
 **Donovan Carrillo is the first Mexican man to advance to the long program.**\
-`By Juliet Macur`\
+`He’s also the first Mexican man to skate at the Olympics in 30 years.`\
 https://nytimes.com/2022/02/07/sports/olympics/donovan-carrillo-is-the-first-mexican-man-to-advance-to-the-long-program.html?searchResultPosition=1
 
 **South Korea is appealing the disqualification of two short-track speedskaters.**\
