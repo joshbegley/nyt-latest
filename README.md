@@ -23,7 +23,7 @@ https://nytimes.com/2022/02/07/us/air-force-sutherland-springs-shooting-settleme
 https://nytimes.com/2022/02/07/theater/tambo-bones-review-dave-harris.html?searchResultPosition=6
 
 **What is the difference between the short program and the long program?**\
-`The short programs are under 3 minutes. The long programs last for 4.`\
+`The short programs are under three minutes. The long programs last for four.`\
 https://nytimes.com/2022/02/07/sports/olympics/short-program-long-program-olympic-figure-skating.html?searchResultPosition=7
 
 **Black Woman’s Bid to Regain Voting Rights Ends With a 6-Year Prison Sentence**\
