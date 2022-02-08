@@ -12,7 +12,7 @@ https://nytimes.com/interactive/2022/02/08/sports/olympics/eileen-gu-big-air.htm
 
 **Hong Kong announces its toughest social-distancing rules yet as cases reach record highs.**\
 `Among the new restrictions, public gatherings will be limited to two people as the city faces its largest virus outbreak so far.`\
-https://nytimes.com/2022/02/08/world/asia/hong-kong-covid-social-distancing-rules.html?searchResultPosition=4
+https://nytimes.com/2022/02/08/world/asia/hong-kong-covid-social-distancing.html?searchResultPosition=4
 
 **For a Modern ‘Brady Bunch,’ a Modernist Family Home in Seattle**\
 `When a music industry veteran and a novelist married, they had six children between them. The challenge was creating a place where everyone would be comfortable.`\
