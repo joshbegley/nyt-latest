@@ -8,7 +8,7 @@ https://nytimes.com/2022/02/07/us/politics/house-bill-forced-arbitration.html?se
 
 **Trump Gives Documents Improperly Taken From White House to Archives**\
 `The incident raised more questions about the former president’s adherence to the Presidential Records Act, which requires preservation of White House documents.`\
-https://nytimes.com/2022/02/07/us/politics/trump-documents-national-archives.html?searchResultPosition=3
+https://nytimes.com/2022/02/07/us/politics/trump-national-archives-documents.html?searchResultPosition=3
 
 **As Protest Paralyzes Canada’s Capital, Far-Right Activists Abroad Embrace It**\
 `It may be only a few hundred demonstrators occupying Ottawa’s streets to protest government overreach, but their message has aroused passions around the world.`\
