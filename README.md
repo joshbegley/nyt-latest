@@ -22,19 +22,19 @@ https://nytimes.com/2022/02/08/learning/word-of-the-day-coherent.html?searchResu
 `The crisis in Ukraine has been a trial by fire for the country’s new chancellor, Olaf Scholz.`\
 https://nytimes.com/2022/02/08/opinion/germany-ukraine-scholz-biden.html?searchResultPosition=6
 
+**Ryan Cochran-Siegle delivers the first U.S. Alpine medal in super-G.**\
+`By Matthew Futterman`\
+https://nytimes.com/2022/02/07/sports/olympics/ryan-cochran-siegle-silver-alpine-super-g.html?searchResultPosition=7
+
 **Corrections: Feb. 8, 2022**\
 `Corrections that appeared in print on Tuesday, Feb. 8, 2022.`\
-https://nytimes.com/2022/02/08/pageoneplus/corrections-feb-8-2022.html?searchResultPosition=7
+https://nytimes.com/2022/02/08/pageoneplus/corrections-feb-8-2022.html?searchResultPosition=8
 
 **Nathan Chen nails his short program and leaps into first place.**\
 `Chen, the American star, scored 113.97 points.`\
-https://nytimes.com/2022/02/07/sports/olympics/nathan-chen-short-program.html?searchResultPosition=8
+https://nytimes.com/2022/02/07/sports/olympics/nathan-chen-short-program.html?searchResultPosition=9
 
 **Your Tuesday Briefing**\
 `Diplomatic efforts between the West and Russia.`\
-https://nytimes.com/2022/02/08/briefing/biden-ukraine-israel-spying.html?searchResultPosition=9
-
-**U.S. overnight broadcast coverage includes cross-country skiing, women’s snowboarding and speedskating.**\
-`Cross-country skiing qualifiers begin at 3 a.m. Eastern.`\
-https://nytimes.com/2022/02/07/sports/olympics/watch-skiing-snowboarding-speedskating.html?searchResultPosition=10
+https://nytimes.com/2022/02/08/briefing/biden-ukraine-israel-spying.html?searchResultPosition=10
 
