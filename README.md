@@ -4,7 +4,7 @@ https://nytimes.com/2022/02/08/well/mind/marriage-molly-mdma.html?searchResultPo
 
 **Adams Wants Tougher Bail Laws. Can He Get Other Democrats to Agree?**\
 `Mayor Eric Adams will need buy-in from prosecutors, judges and a Democratic-led State Legislature that may balk at some of his tough-on-crime prescriptions.`\
-https://nytimes.com/2022/02/08/nyregion/adams-crime-plan.html?searchResultPosition=2
+https://nytimes.com/2022/02/08/nyregion/crime-plan-eric-adams.html?searchResultPosition=2
 
 **‘Clue’ Review: A Whodunit That Looks a Lot Like a Board Game**\
 `This Paper Mill Playhouse production is a welcome throwback to an era of physical comedy.`\
