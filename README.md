@@ -10,8 +10,8 @@ https://nytimes.com/2022/02/07/sports/olympics/lee-si-hyeong-jumps.html?searchRe
 `Jack Joshi, Jackson Janes and Adam Aaronson work as a unit.`\
 https://nytimes.com/2022/02/07/crosswords/daily-puzzle-2022-02-08.html?searchResultPosition=3
 
-**Donovan Carrillo is the first Mexican man to advance to the long program.**\
-`He’s also the first Mexican man to skate at the Olympics in 30 years.`\
+**Donovan Carrillo is the first Mexican skater to advance to the long program.**\
+`He’s also the first Mexican to skate at the Olympics in 30 years.`\
 https://nytimes.com/2022/02/07/sports/olympics/donovan-carrillo-olympics-mexico.html?searchResultPosition=4
 
 **South Korea is appealing the disqualification of two short-track speedskaters.**\
