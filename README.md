@@ -36,5 +36,5 @@ https://nytimes.com/slideshow/2022/02/08/realestate/in-seattle-a-home-for-a-brad
 
 **In the Heart of Winter, An Abundance of Wildlife**\
 `From great gray owls in Minnesota to bison in Central Florida (yes, Florida), there are innumerable opportunities this winter to view animals — in the wild and even on city streets.`\
-https://nytimes.com/2022/02/08/travel/winter-wildlife-viewing.html?searchResultPosition=10
+https://nytimes.com/2022/02/08/travel/winter-wildlife-florida-hawaii.html?searchResultPosition=10
 
