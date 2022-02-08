@@ -6,35 +6,35 @@ https://nytimes.com/2022/02/07/sports/olympics/cooling-towers-big-air-skiing.htm
 `His missed quad cost him a lot of points, but he was so technically good otherwise that he remains in the fight for a medal.`\
 https://nytimes.com/2022/02/07/sports/olympics/yuzuru-hanyu-mistake.html?searchResultPosition=2
 
+**Brianna Decker is staying in Beijing to help the United States through the women’s hockey tournament.**\
+`By Alan Blinder`\
+https://nytimes.com/2022/02/07/sports/olympics/brianna-decker-is-staying-in-beijing-to-help-the-united-states-through-the-womens-hockey-tournament.html?searchResultPosition=3
+
 **NBC says that Leslie Jones can keep offering her commentary on the Olympics.**\
 `The comedian had suggested that she was being pressured to give up her role as an armchair expert on the Games, but the network said the situation “has been resolved.”`\
-https://nytimes.com/2022/02/07/sports/olympics/leslie-jones-olympics-nbc.html?searchResultPosition=3
+https://nytimes.com/2022/02/07/sports/olympics/leslie-jones-olympics-nbc.html?searchResultPosition=4
 
 **‘Simply the Facts’: Blinken Defends Allegations Against Russia**\
 `Antony Blinken, the secretary of state, said that the United States was seeking to fight Russia’s disinformation campaign by exposing the country’s plot to create a fake video depicting a Ukrainian attack.`\
-https://nytimes.com/video/us/politics/100000008196901/ukraine-blinken-russia-disinformation.html?searchResultPosition=4
+https://nytimes.com/video/us/politics/100000008196901/ukraine-blinken-russia-disinformation.html?searchResultPosition=5
 
 **See the jumps executed by Lee Si-hyeong of South Korea.**\
 `Look at the jumps by the figure skater.`\
-https://nytimes.com/2022/02/07/sports/olympics/lee-si-hyeong-jumps.html?searchResultPosition=5
+https://nytimes.com/2022/02/07/sports/olympics/lee-si-hyeong-jumps.html?searchResultPosition=6
 
 **The Constructors of This Puzzle**\
 `Jack Joshi, Jackson Janes and Adam Aaronson work as a unit.`\
-https://nytimes.com/2022/02/07/crosswords/daily-puzzle-2022-02-08.html?searchResultPosition=6
+https://nytimes.com/2022/02/07/crosswords/daily-puzzle-2022-02-08.html?searchResultPosition=7
 
 **Donovan Carrillo is the first Mexican skater to advance to the long program.**\
 `He’s also the first Mexican to skate at the Olympics in 30 years.`\
-https://nytimes.com/2022/02/07/sports/olympics/donovan-carrillo-olympics-mexico.html?searchResultPosition=7
+https://nytimes.com/2022/02/07/sports/olympics/donovan-carrillo-olympics-mexico.html?searchResultPosition=8
 
 **South Korea is appealing the disqualification of two short-track speedskaters.**\
 `The South Korean Olympic Committee said that the relationship between the international sports community and the referees “was biased and not transparent.”`\
-https://nytimes.com/2022/02/07/sports/olympics/south-korea-speedskaters-appeal-china.html?searchResultPosition=8
+https://nytimes.com/2022/02/07/sports/olympics/south-korea-speedskaters-appeal-china.html?searchResultPosition=9
 
 **What jump will you hear most about at these Olympics?**\
 `The quad, of course, which requires four revolutions and has nothing to do with the courtyard at your alma mater.`\
-https://nytimes.com/2022/02/07/sports/olympics/quad-jump-figure-skating.html?searchResultPosition=9
-
-**Nvidia Deal to Buy Arm From SoftBank Is Off After Setbacks**\
-`The deal, which was initially valued at $40 billion, encountered regulatory scrutiny, including an F.T.C. lawsuit.`\
-https://nytimes.com/2022/02/07/technology/nvidia-arm-softbank-deal.html?searchResultPosition=10
+https://nytimes.com/2022/02/07/sports/olympics/quad-jump-figure-skating.html?searchResultPosition=10
 
