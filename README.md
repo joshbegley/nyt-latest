@@ -4,7 +4,7 @@ https://nytimes.com/2022/02/08/opinion/oxford-comma.html?searchResultPosition=1
 
 **Government Reveals Trove of Evidence in First Jan. 6 Trial**\
 `With a Texas man set to go on trial this month, prosecutors released a detailed list of their witnesses and evidence, including testimony from the defendant’s two teenage children.`\
-https://nytimes.com/2022/02/08/us/jan-6-trial-guy-wesley-reffitt.html?searchResultPosition=2
+https://nytimes.com/2022/02/08/us/trial-jan-6-guy-wesley-reffitt.html?searchResultPosition=2
 
 **Andrew Garfield on ‘Tick, Tick … Boom,’ Jonathan Larson and the Spidey Connection**\
 `The actor received his second Oscar nomination and says the “lion’s share” of attention should go to the composer he plays in the movie.`\
