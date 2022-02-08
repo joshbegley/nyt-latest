@@ -3,8 +3,8 @@
 https://nytimes.com/2022/02/07/sports/olympics/south-korea-speedskaters-appeal-china.html?searchResultPosition=1
 
 **What jump will you hear most about at these Olympics?**\
-`By Jeré Longman`\
-https://nytimes.com/2022/02/07/sports/olympics/what-jump-will-you-hear-most-about-at-these-olympics.html?searchResultPosition=2
+`The quad, of course, which requires four revolutions and has nothing to do with the courtyard at your alma mater.`\
+https://nytimes.com/2022/02/07/sports/olympics/quad-jump-figure-skating.html?searchResultPosition=2
 
 **Nvidia Deal to Buy Arm From SoftBank Is Off After Setbacks**\
 `The deal, which was initially valued at $40 billion, encountered regulatory scrutiny, including an F.T.C. lawsuit.`\
@@ -18,13 +18,13 @@ https://nytimes.com/2022/02/07/sports/olympics/womens-hockey-us-canada.html?sear
 `The move does not change the requirement for masks in classrooms.`\
 https://nytimes.com/2022/02/07/us/california-indoor-mask-mandate.html?searchResultPosition=5
 
-**Biden’s Top Science Adviser Resigns After Acknowledging ‘Demeaning’ Behavior**\
+**Biden’s Top Science Adviser Resigns After Acknowledging Demeaning Behavior**\
 `The adviser, Eric S. Lander, had apologized for his workplace conduct. The president had pledged to immediately fire any official who acted that way toward colleagues.`\
 https://nytimes.com/2022/02/07/us/politics/eric-lander-resigns-white-house.html?searchResultPosition=6
 
 **Aleksandr Selevko of Estonia powers through with a dislocated shoulder.**\
-`By Juliet Macur`\
-https://nytimes.com/2022/02/07/sports/olympics/aleksandr-selevko-of-estonia-powers-through-with-a-dislocated-shoulder.html?searchResultPosition=7
+`Several days ago he dislocated his right shoulder in training.`\
+https://nytimes.com/2022/02/07/sports/olympics/aleksandr-selevko-dislocated-shoulder.html?searchResultPosition=7
 
 **Sweden’s Nikolaj Majorov skates to ‘Sound of Silence.’ And we get to hear the lyrics!**\
 `Nikolaj Majorov of Sweden just skated to “Sound of Silence” by Disturbed, which is, in my opinion, an amazing version of the song.`\
