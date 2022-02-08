@@ -10,7 +10,7 @@ https://nytimes.com/2022/02/07/us/politics/electoral-count-act-reform.html?searc
 `He drew on his own experiences in the Marines to depict brutality within the corps, drawing acclaim Off Off Broadway.`\
 https://nytimes.com/2022/02/07/theater/kenneth-brown-dead.html?searchResultPosition=3
 
-**Like Owls and Seabirds Today, Pterosaurs Coughed Up Food They Couldn’t Digest**\
+**How 2 Pterosaurs’ Last Meals Ended Up in the Fossil Record**\
 `Paleontologists in China found pellets of undigested food — just like ones owls leave behind — preserved with pterosaur fossils.`\
 https://nytimes.com/2022/02/07/science/pterosaurs-pellets-food.html?searchResultPosition=4
 
