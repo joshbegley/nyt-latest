@@ -2,7 +2,7 @@
 `Prime Minister Justin Trudeau defiantly called for an end to protests in Canada’s capital, where truckers and anti-vaccine groups have paralyzed the city center.`\
 https://nytimes.com/video/world/canada/100000008197723/canada-trucker-protest-trudeau.html?searchResultPosition=1
 
-**Struggling to Survive, Boris Johnson Circles the Wagons**\
+**Boris Johnson Shuffles Team to Tamp Down Mutiny Within His Party**\
 `The British prime minister shuffles his team to tamp down a growing mutiny within his Conservative Party over his leadership.`\
 https://nytimes.com/2022/02/08/world/europe/boris-johnson-uk-scandal.html?searchResultPosition=2
 
