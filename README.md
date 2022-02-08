@@ -10,8 +10,8 @@ https://nytimes.com/2022/02/08/sports/olympics/china-uyghur-olympics.html?search
 `The complete list of Academy Award nominees for 2022.`\
 https://nytimes.com/2022/02/08/movies/2022-oscars-nominees-list.html?searchResultPosition=3
 
-**Retired Pope Asks Forgiveness Over Abuse Cases but Denies Wrongdoing**\
-`A report commissioned by the Roman Catholic Church in Munich had accused Benedict of mishandling at least four cases of sexual abuse by priests when he was the archbishop there.`\
+**Retired Pope Asks Forgiveness Over Handling of Abuse Cases**\
+`But Benedict, responding to a report that accused him of mishandling at least four cases of sexual abuse by priests when he was an archbishop in Germany, denied any wrongdoing.`\
 https://nytimes.com/2022/02/08/world/europe/pope-benedict-abuse-germany.html?searchResultPosition=4
 
 **Europe Cuts Payments to Poland in Court Dispute Over Mine**\
