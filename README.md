@@ -4,7 +4,7 @@ https://nytimes.com/video/world/europe/100000008198566/germany-poland-france-rus
 
 **$270,000 Homes in Pennsylvania, New York and Wisconsin**\
 `A Cape Cod cottage in Coraopolis, an Italianate home in Buffalo and a Tudor Revival house in Appleton.`\
-https://nytimes.com/2022/02/08/realestate/home-prices-pennsylvania-new-york-wisconsin.html?searchResultPosition=2
+https://nytimes.com/2022/02/08/realestate/ny-wisconsin-pennsylvania-home-prices.html?searchResultPosition=2
 
 **What You Get for $270,000 in Pennsylvania, New York and Wisconsin**\
 `A Cape Cod cottage in Coraopolis, Pa.; an Italianate home in Buffalo; and a Tudor Revival house in Appleton, Wis.`\
