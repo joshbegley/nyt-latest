@@ -1,5 +1,5 @@
 **Barrow Group Announces New $4 Million Performing Arts Center**\
-`The 35-year-old Off Broadway company and actor training center will open a new space, which will include a 60-seat theater and five sound studios, in April.`\
+`The 35-year-old Off Broadway company and training center will open a new space, which will include a 60-seat theater and five studios, in April.`\
 https://nytimes.com/2022/02/09/theater/barrow-group-performing-arts-center.html?searchResultPosition=1
 
 **Pelosi Says She Would Accept Stock Ban for Lawmakers and Judges**\
