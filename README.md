@@ -1,4 +1,4 @@
-**Trial Begins for Angels Employee Over Role in Tyler Skaggs’ Death**\
+**Trial Begins for Angels Employee Over Role in Tyler Skaggs’s Death**\
 `Eric Kay is accused of supplying Skaggs with counterfeit drugs that led to the pitcher’s death. Kay’s lawyers say it was Skaggs who was Kay’s drug dealer.`\
 https://nytimes.com/2022/02/08/sports/baseball/tyler-skaggs-eric-kay-trial.html?searchResultPosition=1
 
