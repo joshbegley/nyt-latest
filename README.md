@@ -1,5 +1,5 @@
 **Lindsey Jacobellis claims the U.S.’s first gold, and redemption.**\
-`The win came after three memorable blunders at previous Winter Games.`\
+`The win came after a memorable blunder at the 2006 Olympics.`\
 https://nytimes.com/2022/02/08/sports/olympics/lindsey-jacobellis-us-first-gold-snowboard.html?searchResultPosition=1
 
 **In the N.F.L., It’s Fourth-and-It-Doesn’t-Matter**\
