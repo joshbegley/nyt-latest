@@ -20,7 +20,7 @@ https://nytimes.com/2022/02/09/us/politics/navy-fighter-jet-china.html?searchRes
 
 **West Ham Fines Kurt Zouma Over Cat Abuse Video**\
 `Zouma, a defender who also plays for the French national soccer team, lost a sponsorship deal with Adidas on Wednesday after a video circulated online of him kicking his cat.`\
-https://nytimes.com/2022/02/09/sports/soccer/kurt-zouma-cat-fine.html?searchResultPosition=6
+https://nytimes.com/2022/02/09/sports/soccer/kurt-zouma-cat-abuse.html?searchResultPosition=6
 
 **When Do Masks Come Off? The Hard Truth About Lifting Covid Restrictions**\
 `Policymakers need to be humble about what we don’t know, especially with Covid-19.`\
