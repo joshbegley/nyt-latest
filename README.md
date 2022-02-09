@@ -2,7 +2,7 @@
 `After conflicting announcements over who would look into sexual harassment allegations made against Daniel Snyder, N.F.L. Commissioner Roger Goodell said the league would oversee the inquiry.`\
 https://nytimes.com/2022/02/09/sports/football/snyder-harassment-investigation-washington.html?searchResultPosition=1
 
-**A Product of Public Universities, Michelle Childs Would Be Unconventional Court Pick**\
+**A Product of Public Universities, Michelle Childs Would Be an Unconventional Court Pick**\
 `The judge is seen by some as a long shot for the Supreme Court, but supporters say her bipartisan backing and the appeal of her humble ascent should not be overlooked.`\
 https://nytimes.com/2022/02/09/us/politics/michelle-childs-supreme-court.html?searchResultPosition=2
 
@@ -20,7 +20,7 @@ https://nytimes.com/2022/02/09/movies/irwin-young-dead.html?searchResultPosition
 
 **Jan. 6 Inquiry Subpoenas Navarro, Who Worked to Overturn Election**\
 `Peter Navarro, a White House adviser to former President Donald J. Trump, has written and spoken about his work on a plan to get Congress to reject the results of the 2020 election.`\
-https://nytimes.com/2022/02/09/us/politics/peter-navarro-jan6-subpoena.html?searchResultPosition=6
+https://nytimes.com/2022/02/09/us/politics/peter-navarro-jan6-inquiry.html?searchResultPosition=6
 
 **This Galápagos Volcano Produced a ‘Mesmerizing’ River of Fire**\
 `When Wolf Volcano erupted last month in a remote corner of Ecuador, its lava trail extended for miles in an orange line so bright that it was visible from space.`\
