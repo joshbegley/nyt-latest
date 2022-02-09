@@ -1,6 +1,6 @@
 **Life Under the Specter of War: Images From Ukraine**\
 `With Russian forces menacing from three sides, Ukrainians are stoically keeping to their daily routines, but reminders of the looming threat are getting hard to avoid. `\
-https://nytimes.com/2022/02/09/world/europe/life-under-the-specter-of-war-images-from-ukraine.html?searchResultPosition=1
+https://nytimes.com/2022/02/09/world/europe/ukraine-photos.html?searchResultPosition=1
 
 **Nathan Chen Is Winning by Not Trying So Hard to Win**\
 `Chen was fixated on winning an Olympic gold medal in 2018 and was crushed when he didn’t. Learning that there is more to life than skating, he says, has made him a better skater.`\
@@ -16,7 +16,7 @@ https://nytimes.com/2022/02/09/business/truck-driver-shortage.html?searchResultP
 
 **Ellenville, N.Y.: A ‘Tight-Knit Community’ With Room to Grow**\
 `With the recent arrival of city transplants, the Ulster County village has new life and energy: ‘We call it Ellenville rising.’`\
-https://nytimes.com/2022/02/09/realestate/ellenville-ny-a-tight-knit-community-with-room-to-grow.html?searchResultPosition=5
+https://nytimes.com/2022/02/09/realestate/ellenville-ny.html?searchResultPosition=5
 
 **Remembering Grace Mirabella and Her Inventive Magazine**\
 `Her namesake glossy challenged the expectations of what a fashion publication could be. Her former collaborators recall how it, and Ms. Mirabella, shaped them.`\
