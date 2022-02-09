@@ -1,6 +1,6 @@
 **Entertainment Weekly, InStyle and other magazines owned by Barry Diller’s group to end print editions.**\
 `Six titles owned by Dotdash Meredith will become digital-only publications as the company tries “embracing the inevitable digital future.”`\
-https://nytimes.com/2022/02/09/business/media/entertainment-weekly-barry-diller-dotdash-meredith.html?searchResultPosition=1
+https://nytimes.com/2022/02/09/business/media/entertainment-weekly-dotdash-meredith-print.html?searchResultPosition=1
 
 **The Environmentally Unfriendly Secret of the Beijing Olympics**\
 `The I.O.C. awarded this year’s Winter Games to a place almost completely lacking in snow. China’s water-scarce capital had to go to enormous lengths to make it.`\
