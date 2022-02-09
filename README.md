@@ -12,7 +12,7 @@ https://nytimes.com/interactive/2022/02/09/well/lasting-relationship-tips.html?s
 
 **N.F.L. to Investigate New Harassment Claims Against Commanders’ Owner**\
 `After conflicting announcements over who would look into sexual harassment allegations made against Daniel Snyder, N.F.L. Commissioner Roger Goodell said the league would oversee the inquiry.`\
-https://nytimes.com/2022/02/09/sports/football/snyder-harassment-investigation-washington.html?searchResultPosition=4
+https://nytimes.com/2022/02/09/sports/football/nfl-dan-snyder-sexual-harassment.html?searchResultPosition=4
 
 **A Product of Public Universities, Michelle Childs Would Be an Unconventional Court Pick**\
 `The judge is seen by some as a long shot for the Supreme Court, but supporters say her bipartisan backing and the appeal of her humble ascent should not be overlooked.`\
