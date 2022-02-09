@@ -36,5 +36,5 @@ https://nytimes.com/2022/02/09/magazine/bob-odenkirk-better-call-saul.html?searc
 
 **Where’s Liz Cheney? The Wyoming Republican’s Exile From Wyoming Republicans**\
 `The congresswoman hasn’t attended Republican Party events in person in her state in years, amid a wave of local conservative hostility. “I’m not going to convince the crazies,” she said.`\
-https://nytimes.com/2022/02/09/us/politics/cheney-wyoming-republicans.html?searchResultPosition=10
+https://nytimes.com/2022/02/09/us/politics/liz-cheney-wyoming-republicans.html?searchResultPosition=10
 
