@@ -24,7 +24,7 @@ https://nytimes.com/2022/02/09/t-magazine/honey-beauty-moisturizer-oil.html?sear
 
 **Here’s Where You Still Need to Wear Masks in the New York Region**\
 `New York, New Jersey and Connecticut have all announced plans to loosen certain restrictions, but all of them continue to require masks in some places.`\
-https://nytimes.com/2022/02/09/nyregion/new-york-nj-connecticut-mask-rules.html?searchResultPosition=7
+https://nytimes.com/2022/02/09/nyregion/ny-mask-mandate-rules.html?searchResultPosition=7
 
 **Here’s How Each Best-Picture Nominee Could Win an Oscar**\
 `“Belfast” and “The Power of the Dog” will probably face off for the top prize, but each contender has a path to other statuettes. We explain.`\
