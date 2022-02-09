@@ -28,7 +28,7 @@ https://nytimes.com/2022/02/09/sports/olympics/watch-figure-skating-nathan-chen.
 
 **In ‘Anonymous Sex,’ No Strings — and No Bylines**\
 `An anthology of erotic short fiction keeps the award-winning writers a dirty secret.`\
-https://nytimes.com/2022/02/09/books/review/anonymous-sex-hillary-jordan-cheryl-lu-lien-tan.html?searchResultPosition=8
+https://nytimes.com/2022/02/09/books/review/anonymous-sex-book.html?searchResultPosition=8
 
 **House Hunting in Mexico City: Wood and Marble Mingle in a Stylish Triplex**\
 `Investors ‘are selling properties in Mexico City to reinvest in other countries,’ local agents say, boosting inventory and tamping down prices.`\
