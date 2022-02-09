@@ -1,5 +1,5 @@
 **Grisly Killing of North Carolina Family Was Work of ‘Dixie Mafia,’ Sheriff Says**\
-`Investigators identified four suspects in the 1972 killings of Bryce, Virginia and Bobby Durham. Three of the men are dead, and one is serving a life sentence for another murder.`\
+`Investigators identified four suspects in the 1972 killings of Bryce, Virginia and Bobby Durham. Three of the men are dead, and one is serving a life sentence for other murders.`\
 https://nytimes.com/2022/02/09/us/dixe-mafia-murder-durham-north-carolina.html?searchResultPosition=1
 
 **C.D.C. Director Urges Caution in Easing Mask Rules**\
