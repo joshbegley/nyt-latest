@@ -10,7 +10,7 @@ https://nytimes.com/2022/02/09/sports/nordic-combined-skiing.html?searchResultPo
 `Wednesday’s halfpipe qualifier will be his last Olympic event.`\
 https://nytimes.com/2022/02/08/sports/olympics/shaun-white-snowboarding-olympics.html?searchResultPosition=3
 
-**NBC lingered on Shiffrin after fall, drawning anger.**\
+**NBC lingered on Shiffrin after fall, drawing anger.**\
 `Simone Biles tweeted in support of Shiffrin.`\
 https://nytimes.com/2022/02/08/sports/olympics/nbc-shiffrin-fall-biles.html?searchResultPosition=4
 
