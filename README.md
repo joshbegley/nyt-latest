@@ -15,7 +15,7 @@ https://nytimes.com/2022/02/09/briefing/ukraine-russia-winter-olympics.html?sear
 https://nytimes.com/2022/02/09/nyregion/mask-off-new-york.html?searchResultPosition=4
 
 **Colby Stevenson of the U.S. earns silver in men’s big air.**\
-`Birk Ruud of Norway won gold with a 1,980-degree jump.`\
+`Birk Ruud of Norway wins gold with a 1,980-degree jump.`\
 https://nytimes.com/2022/02/08/sports/olympics/colby-stevenson-silver-mens-big-air.html?searchResultPosition=5
 
 **Can the Rooney Rule Survive? Should It?**\
