@@ -14,8 +14,8 @@ https://nytimes.com/2022/02/09/sports/rooney-rule-nfl-coaches.html?searchResultP
 `Athletes compete in cross-country skiing, which requires endurance, and ski jumping, the daredevil event that rewards courage.`\
 https://nytimes.com/2022/02/09/sports/nordic-combined-skiing.html?searchResultPosition=4
 
-**Shaun White falls on his first halfpipe qualifying run, with one run to go.**\
-`Wednesday’s halfpipe qualifier is the start of his last Olympic event.`\
+**Shaun White will have a final shot at gold.**\
+`He advanced out of Wednesday’s halfpipe qualifier.`\
 https://nytimes.com/2022/02/08/sports/olympics/shaun-white-snowboarding-olympics.html?searchResultPosition=5
 
 **After another heartbreaking fall, Mikaela Shiffrin searches for answers.**\
