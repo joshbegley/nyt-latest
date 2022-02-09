@@ -22,7 +22,7 @@ https://nytimes.com/2022/02/09/world/europe/germany-covid-restrictions.html?sear
 `Banks worry outsized compensation may not be enough to hold onto top performers.`\
 https://nytimes.com/2022/02/09/business/dealbook/wall-street-pay.html?searchResultPosition=6
 
-**Instant Olympians: Just Add Ice**\
+**Instant Olympians: Remove N.H.L.; Assemble New Rosters**\
 `Many of the men’s hockey players in Beijing expected to watch the Winter Games on TV. Then the N.H.L. decided not to send its players, and the game changed.`\
 https://nytimes.com/2022/02/09/sports/olympics/hockey-nhl-olympics.html?searchResultPosition=7
 
