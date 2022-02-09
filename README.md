@@ -22,19 +22,19 @@ https://nytimes.com/2022/02/08/sports/olympics/shaun-white-snowboarding-olympics
 `Simone Biles tweeted in support of the American skier.`\
 https://nytimes.com/2022/02/08/sports/olympics/nbc-shiffrin-fall-biles.html?searchResultPosition=6
 
-**The world surpasses 400 million known coronavirus cases and confronts how to live with Covid.**\
-`The total has doubled in only six months as the most recent surge took a toll.`\
-https://nytimes.com/live/2022/02/08/world/covid-test-vaccine-cases/400-million-covid-cases?searchResultPosition=7
-
 **Latest vaccine policy in Los Angeles County is aimed at a defiant sheriff.**\
 `The move will apply pressure to the sheriff’s department, which has a vaccination rate of 54 percent.`\
-https://nytimes.com/2022/02/08/world/vaccine-mandate-la-county-sherriff.html?searchResultPosition=8
+https://nytimes.com/2022/02/08/world/vaccine-mandate-la-county-sherriff.html?searchResultPosition=7
 
 **This is how huge a halfpipe is.**\
 `Snowboarders hurtle down a chute as long as the Space Needle is high and swoop up sides the height of a two-story building.`\
-https://nytimes.com/2022/02/08/sports/olympics/snowboarding-halfpipe-dimensions.html?searchResultPosition=9
+https://nytimes.com/2022/02/08/sports/olympics/snowboarding-halfpipe-dimensions.html?searchResultPosition=8
 
 **Despite a Common Misconception**\
 `Grant Thackray sets the record straight.`\
-https://nytimes.com/2022/02/08/crosswords/daily-puzzle-2022-02-09.html?searchResultPosition=10
+https://nytimes.com/2022/02/08/crosswords/daily-puzzle-2022-02-09.html?searchResultPosition=9
+
+**See the Halfpipe Snowboarders Take Flight in Beijing**\
+`Chloe Kim and Shaun White began their quest to defend their gold medals with qualifying rounds in Zhangjiakou, China.`\
+https://nytimes.com/2022/02/08/sports/olympics/photos-halfpipe-snowboarding.html?searchResultPosition=10
 
