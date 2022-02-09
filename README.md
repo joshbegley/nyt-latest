@@ -6,7 +6,7 @@ https://nytimes.com/2022/02/09/business/jerome-chazen-dead.html?searchResultPosi
 `She will replace Eric S. Rosengren, who retired as the Boston Fed’s president early last year.`\
 https://nytimes.com/2022/02/09/business/economy/boston-fed-president-susan-collins.html?searchResultPosition=2
 
-**New York State’s Indoor Mask Mandate for Businesses Expires**\
+**New York State’s Indoor Mask Mandate for Businesses Will Expire**\
 `Gov. Kathy Hochul announced that New York’s mask-or-vaccine mandate would end Feb. 10, though the mandate’s expiration would not affect a separate state requirement that masks be worn in school.`\
 https://nytimes.com/video/nyregion/100000008199981/new-york-mask-mandate-indoors-ended.html?searchResultPosition=3
 
