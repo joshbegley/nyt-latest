@@ -12,7 +12,7 @@ https://nytimes.com/interactive/2022/02/09/us/lost-vaccination-card.html?searchR
 
 **Met Museum to Renovate Its Ancient Near East and Cypriot Galleries**\
 `Construction for the $40 million project is expected to start next year and finish in 2025.`\
-https://nytimes.com/2022/02/09/arts/design/met-museum-renovate-near-east-and-cypriot-galleries.html?searchResultPosition=4
+https://nytimes.com/2022/02/09/arts/design/met-galleries-renovations.html?searchResultPosition=4
 
 **‘It Was a Crusade’: Karen Brooks Hopkins Revisits Her BAM Tenure**\
 `In a new memoir, the former president of the Brooklyn Academy of Music reflects on some of the organization’s most memorable stagings and artists.`\
