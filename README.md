@@ -11,14 +11,14 @@ https://nytimes.com/2022/02/09/world/africa/uganda-congo-reparations.html?search
 https://nytimes.com/2022/02/09/business/uber-says-its-business-is-bouncing-back-from-a-pandemic-induced-slump.html?searchResultPosition=3
 
 **Windsor Mayor Requests Help to Manage Bridge Protesters**\
-`The mayor of Windsor, Ontario, requested additional resources and personnel from Canada’s provincial and federal governments to deal with a protest by truckers on the Ambassador Bridge.`\
+`Drew Dilkens, the mayor of Windsor, Ontario, requested additional resources and personnel from Canada’s provincial and federal governments to deal with a protest by truckers on the Ambassador Bridge.`\
 https://nytimes.com/video/world/canada/100000008200176/canada-bridge-trucker-protests-windsor.html?searchResultPosition=4
 
 **Modern Love Podcast: First Love Mixtape**\
 `What is the song you were obsessed with as a teenager? Listen to our season premiere — and share your song.`\
 https://nytimes.com/2022/02/09/podcasts/modern-love-first-mixtape.html?searchResultPosition=5
 
-**Finns Don’t Wish ‘Finlandization’ on Ukraine — or Anyone**\
+**Finns Don’t Wish ‘Finlandization’ on Ukraine (or Anyone)**\
 `The Cold War term for a kind of stifled sovereignty has gained attention as a possible solution to the standoff with Russia. But the nation it’s named for would rather forget about it.`\
 https://nytimes.com/2022/02/09/world/europe/finlandization-ukraine-russia-nato.html?searchResultPosition=6
 
