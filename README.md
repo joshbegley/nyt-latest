@@ -2,7 +2,7 @@
 `The Speaker of the House said she would agree to a ban on the ownership and trading of individual stocks by members of Congress if the ban also included members of the judicial branch.`\
 https://nytimes.com/video/us/politics/100000008199989/pelosi-stock-trading-ban.html?searchResultPosition=1
 
-**In Ukraine Crisis, Putin’s Choices Are Both Varied and Stark**\
+**In Ukraine Crisis, Putin Faces a Stark Choice**\
 `Russia can seize control over Ukraine or keep strong economic ties to Europe. It will be hard to do both.`\
 https://nytimes.com/2022/02/09/world/europe/ukraine-crisis-putin-choices.html?searchResultPosition=2
 
