@@ -4,11 +4,11 @@ https://nytimes.com/2022/02/09/theater/barrow-group-performing-arts-center.html?
 
 **Pelosi Says She Would Accept Stock Ban for Lawmakers and Judges**\
 `The speaker had resisted a ban, which has been championed by lawmakers in competitive re-election races. Now she says she would be open to it if it included the judicial branch.`\
-https://nytimes.com/2022/02/09/us/politics/congress-stock-trading.html?searchResultPosition=2
+https://nytimes.com/2022/02/09/us/politics/pelosi-stock-trading-congress.html?searchResultPosition=2
 
 **The Biden administration remains cautious about easing masking and other Covid safety measures.**\
 `The White House is starting to plan a pandemic exit strategy, but will not move as fast as some governors are on lifting mask mandates and other restrictions.`\
-https://nytimes.com/2022/02/09/us/politics/biden-administration-masking-covid.html?searchResultPosition=3
+https://nytimes.com/2022/02/09/us/politics/biden-administration-masks-covid.html?searchResultPosition=3
 
 **An anti-vaccine convoy forms in France, mimicking Canada’s protesters.**\
 `Dozens of drivers are heading for the French capital to oppose the government’s vaccine rules, a direct echo of the “Freedom Convoy” protests in Ottawa.`\
