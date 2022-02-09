@@ -1,4 +1,4 @@
-**Shaun White will compete in his last Olympics**\
+**Shaun White will compete in his last Olympics.**\
 `Wednesday’s halfpipe qualifier will be his last Olympic event.`\
 https://nytimes.com/2022/02/08/sports/olympics/shaun-white-snowboarding-olympics.html?searchResultPosition=1
 
