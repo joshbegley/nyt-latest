@@ -16,7 +16,7 @@ https://nytimes.com/2022/02/09/arts/design/met-museum-renovate-near-east-and-cyp
 
 **‘It Was a Crusade’: Karen Brooks Hopkins Revisits Her BAM Tenure**\
 `In a new memoir, the former president of the Brooklyn Academy of Music reflects on some of the organization’s most memorable stagings and artists.`\
-https://nytimes.com/2022/02/09/theater/karen-brooks-hopkins-brooklyn-academy-of-music.html?searchResultPosition=5
+https://nytimes.com/2022/02/09/theater/bam-karen-brooks-hopkins.html?searchResultPosition=5
 
 **‘Celebrity Book Club’ Goes Live**\
 `Steven Phillips-Horst and Lily Marotta, the hosts of a dishy podcast that deconstructs the bizarre genre of memoirs by the rich and famous, branch out with a stage show.`\
