@@ -8,7 +8,7 @@ https://nytimes.com/2022/02/09/us/politics/congress-stock-trading.html?searchRes
 
 **The Biden administration remains cautious about easing masking and other Covid safety measures.**\
 `The White House is starting to plan a pandemic exit strategy, but will not move as fast as some governors are on lifting mask mandates and other restrictions.`\
-https://nytimes.com/2022/02/09/us/politics/the-biden-administration-remains-cautious-about-easing-masking-and-other-covid-safety-measures.html?searchResultPosition=3
+https://nytimes.com/2022/02/09/us/politics/biden-administration-masking-covid.html?searchResultPosition=3
 
 **An anti-vaccine convoy forms in France, mimicking Canada’s protesters.**\
 `Dozens of drivers are heading for the French capital to oppose the government’s vaccine rules, a direct echo of the “Freedom Convoy” protests in Ottawa.`\
