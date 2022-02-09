@@ -1,6 +1,6 @@
 **Ryan Cochran-Siegle’s Stunning Success at the Olympics Took a Village**\
 `The American skier’s ascent to ski racing’s mountaintop and a silver medal in the super-G is a tribute to the strength and influence of his extended skiing family.`\
-https://nytimes.com/2022/02/09/sports/olympics/ryan-cochran-siegle-silver-medal-ski-super-g-vermont.html?searchResultPosition=1
+https://nytimes.com/2022/02/09/sports/olympics/ryan-cochran-siegle-silver-medal.html?searchResultPosition=1
 
 **Word of the Day: cantankerous**\
 `This word has appeared in 30 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
