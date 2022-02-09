@@ -2,13 +2,13 @@
 `With Russian forces menacing from three sides, Ukrainians are stoically keeping to their daily routines, but reminders of the looming threat are getting hard to avoid. `\
 https://nytimes.com/2022/02/09/world/europe/life-under-the-specter-of-war-images-from-ukraine.html?searchResultPosition=1
 
-**‘Sleep No More’ Awakens After a Long Hibernation**\
-`The pandemic has reshaped aspects of the show, which reopens Feb. 14, but its once and future influence on the theatrical life of the city remains undeniable.`\
-https://nytimes.com/2022/02/09/theater/sleep-no-more-reopens.html?searchResultPosition=2
-
 **Nathan Chen Is Winning by Not Trying So Hard to Win**\
 `Chen was fixated on winning an Olympic gold medal in 2018 and was crushed when he didn’t. Learning that there is more to life than skating, he says, has made him a better skater.`\
-https://nytimes.com/2022/02/09/sports/olympics/nathan-chen-olympics.html?searchResultPosition=3
+https://nytimes.com/2022/02/09/sports/olympics/nathan-chen-skating.html?searchResultPosition=2
+
+**‘Sleep No More’ Awakens After a Long Hibernation**\
+`The pandemic has reshaped aspects of the show, which reopens Feb. 14, but its once and future influence on the theatrical life of the city remains undeniable.`\
+https://nytimes.com/2022/02/09/theater/sleep-no-more-reopens.html?searchResultPosition=3
 
 **The Real Reason America Doesn’t Have Enough Truck Drivers**\
 `A 1,000-mile journey through the middle of America reveals the fundamental reason for truck driver shortages: It is a job full of stress, physical deprivation and loneliness.`\
