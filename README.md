@@ -1,4 +1,4 @@
-**An Anti-Vaxxer Dies of Covid. Do You Empathize or Gloat?**\
+**An Anti-Vaxxer Dies of Covid. Do You Empathize?**\
 `A variety of reactions when someone who is against vaccination dies of Covid. Also: China’s Olympic charade; an F.D.A. decision.`\
 https://nytimes.com/2022/02/09/opinion/letters/anti-vaxxer-covid-gloating.html?searchResultPosition=1
 
