@@ -24,7 +24,7 @@ https://nytimes.com/2022/02/08/sports/olympics/nbc-shiffrin-fall-biles.html?sear
 
 **The world surpasses 400 million known coronavirus cases and confronts how to live with Covid.**\
 `The total has doubled in only six months as the most recent surge took a toll.`\
-https://nytimes.com/2022/02/08/world/400-million-covid-cases.html?searchResultPosition=7
+https://nytimes.com/live/2022/02/08/world/covid-test-vaccine-cases/400-million-covid-cases?searchResultPosition=7
 
 **Latest vaccine policy in Los Angeles County is aimed at a defiant sheriff.**\
 `The move will apply pressure to the sheriff’s department, which has a vaccination rate of 54 percent.`\
