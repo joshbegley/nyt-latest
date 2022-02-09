@@ -31,7 +31,7 @@ https://nytimes.com/2022/02/09/sports/nordic-combined-skiing.html?searchResultPo
 https://nytimes.com/2022/02/08/sports/olympics/shaun-white-snowboarding-olympics.html?searchResultPosition=8
 
 **After another heartbreaking fall, Mikaela Shiffrin searches for answers.**\
-`Simone Biles tweeted in support of the American skier.`\
+`Simone Biles tweets in support of the American skier.`\
 https://nytimes.com/2022/02/08/sports/olympics/nbc-shiffrin-fall-biles.html?searchResultPosition=9
 
 **Latest vaccine policy in Los Angeles County is aimed at a defiant sheriff.**\
