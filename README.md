@@ -1,5 +1,5 @@
 **The U.S. States That Are Ending Mask Mandates**\
-`Several governors have moved to ease mask requirements in since Jan. 1. Here’s how policies are changing.`\
+`Several governors have moved to ease mask requirements since Jan. 1. Here’s how policies are changing.`\
 https://nytimes.com/article/mask-mandates-us.html?searchResultPosition=1
 
 **Your Thursday Briefing: U.S. Mask Mandates Lift**\
