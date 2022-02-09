@@ -1,5 +1,5 @@
-**Boris Johnson Plans to End Britain’s Covid Restrictions Early**\
-`Prime Minister Boris Johnson outlined plans to lift Britain’s last domestic pandemic rules within weeks, including the legal requirement for those who test positive to isolate.`\
+**Boris Johnson Plans to End England’s Covid Restrictions Early**\
+`Prime Minister Boris Johnson of Britain outlined plans to lift England’s last domestic pandemic rules within weeks, including the legal requirement for those who test positive to isolate.`\
 https://nytimes.com/video/world/europe/100000008199682/boris-johnson-uk-end-covid-rules.html?searchResultPosition=1
 
 **Syl Johnson, Soul Singer With a Cult Following, Dies at 85**\
