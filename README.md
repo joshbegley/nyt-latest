@@ -24,7 +24,7 @@ https://nytimes.com/2022/02/10/t-magazine/valentines-day-gift-guide.html?searchR
 
 **A Collection of the Best Wordle Tips and Tricks**\
 `We gathered a list of the best tips for a strong strategy and successful game of Wordle.`\
-https://nytimes.com/2022/02/10/crosswords/best-wordle-tips-and-tricks.html?searchResultPosition=7
+https://nytimes.com/2022/02/10/crosswords/best-wordle-tips.html?searchResultPosition=7
 
 **I Stopped Drinking. Why Should That Affect My Social Life?**\
 `A reader whose migraines made alcohol consumption intolerable feels misunderstood — and left out of happy hour.`\
