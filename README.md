@@ -15,7 +15,7 @@ https://nytimes.com/2022/02/10/us/super-bowl-honorary-captains-school-deaf-river
 https://nytimes.com/2022/02/10/world/europe/northern-ireland-brexit.html?searchResultPosition=4
 
 **Prices climbed 7.5 percent in January, the fastest inflation since 1982.**\
-`Consumer Price Index data show that prices are climbing more rapidly than economists expected.`\
+`Consumer Price Index data show that prices climbed over the past year more rapidly than economists expected. On a monthly basis, prices rose 0.6 percent.`\
 https://nytimes.com/2022/02/10/business/economy/inflation-cpi-january-2022.html?searchResultPosition=5
 
 **Memo on Guantánamo Detainee Medical Care**\
