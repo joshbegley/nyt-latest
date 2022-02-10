@@ -2,7 +2,7 @@
 `Gov. Kathy Hochul said the indoor mask mandate for businesses would expire today. Other states loosened pandemic rules, deepening confusion about what is and is not required.`\
 https://nytimes.com/2022/02/10/nyregion/mask-or-vax-rule-lifted-but-that-doesnt-mean-no-masks.html?searchResultPosition=1
 
-**Nathan Chen Wins Figure Skating Gold, Claiming Prize That Eluded Him**\
+**Nathan Chen Wins Figure Skating Gold, Claiming a Prize That Eluded Him**\
 `Chen scored 218.63 with a free skate set to an Elton John medley, validating his status as the world’s best figure skater.`\
 https://nytimes.com/2022/02/09/sports/olympics/nathan-chen-wins-gold-figure-skating.html?searchResultPosition=2
 
