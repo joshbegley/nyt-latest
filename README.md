@@ -1,6 +1,6 @@
 **For Donovan Carrillo, the first Mexican skater in the long program, it all started with a girl named Lisa.**\
 `And he’s already looking forward to the next step in his journey.`\
-https://nytimes.com/2022/02/09/sports/olympics/donovan-carillo-figure-skating.html?searchResultPosition=1
+https://nytimes.com/2022/02/09/sports/olympics/donovan-carrillo-figure-skating.html?searchResultPosition=1
 
 **Rock Genre**\
 `August Miller makes a playful and precise debut.`\
