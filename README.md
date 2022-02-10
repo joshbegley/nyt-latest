@@ -7,7 +7,7 @@ https://nytimes.com/2022/02/10/briefing/ukraine-finland-winter-olympics.html?sea
 https://nytimes.com/2022/02/10/nyregion/mask-or-vax-rule-lifted-but-that-doesnt-mean-no-masks.html?searchResultPosition=2
 
 **Nathan Chen Wins Figure Skating Gold, Claiming a Prize That Eluded Him**\
-`Chen scored 218.63 with a free skate set to an Elton John medley, validating his status as the world’s best figure skater.`\
+`After falling short of expectations in 2018, the American star validated his status as the world’s best figure skater.`\
 https://nytimes.com/2022/02/09/sports/olympics/nathan-chen-wins-gold-figure-skating.html?searchResultPosition=3
 
 **U.S. overnight broadcast coverage includes snowboard cross and speedskating.**\
