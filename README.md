@@ -1,6 +1,6 @@
 **Too Young to Feel So Old**\
 `After nearly two years spent in a computer crouch, my favorite sweater and I have gone fuzzy.`\
-https://nytimes.com/2022/02/10/style/self-care/covid-feeling-old.html?searchResultPosition=1
+https://nytimes.com/2022/02/10/style/self-care/covid-pandemic-aging.html?searchResultPosition=1
 
 **The Times may publish documents about Project Veritas, a court says.**\
 `A state appeals court said that a judge’s order preventing publication of the documents would not be enforced until a formal appeal could be heard.`\
