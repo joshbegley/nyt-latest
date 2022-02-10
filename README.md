@@ -6,7 +6,7 @@ https://nytimes.com/2022/02/09/sports/olympics/donovan-carillo-figure-skating.ht
 `August Miller makes a playful and precise debut.`\
 https://nytimes.com/2022/02/09/crosswords/daily-puzzle-2022-02-10.html?searchResultPosition=2
 
-**For Brendan Kerry, Skating Runs in the Family**\
+**For Brendan Kerry, skating runs in the family.**\
 `His mother, Monica MacDonald, and her partner Rodney Clarke were the first ice dancers to compete for Australia at the Olympics.`\
 https://nytimes.com/2022/02/09/sports/olympics/brendan-kerry-figure-skating.html?searchResultPosition=3
 
