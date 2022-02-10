@@ -1,40 +1,40 @@
-**See the True Cost of Your Cheap Chicken**\
-`A few powerful companies condemn billions of chickens to short, miserable lives, bred to their biological limits.`\
-https://nytimes.com/video/opinion/100000007886421/factory-farming-chicken.html?searchResultPosition=1
+**School Districts Must Make an Important Decision: Mask or Not?**\
+`With the end of many statewide mask mandates, it’s up to local districts whether they will keep the requirement. Communities anticipate political and emotional fights ahead.`\
+https://nytimes.com/2022/02/10/us/school-mask-mandates.html?searchResultPosition=1
 
-**Mikaela Shiffrin will compete in the super-G.**\
-`Shiffrin skied off course early in two races, the slalom and giant slalom. She’ll look to rebound, again, in the super-G.`\
-https://nytimes.com/2022/02/10/sports/olympics/mikaela-shiffrin-super-g-race.html?searchResultPosition=2
+**Facebook’s Failures of Invention**\
+`We’re seeing the limits of Facebook’s strategy to buy or copy other people’s best ideas.`\
+https://nytimes.com/2022/02/10/opinion/facebook-stock-meta-innovation.html?searchResultPosition=2
 
-**New Playwrights’ Voices, in the Land Where Directors Rule**\
-`Bold takes on classic works defined theater in Germany for decades. But many playhouses are turning to new works by international dramatists.`\
-https://nytimes.com/2022/02/10/theater/minime-volksbuehne-doughnuts-thalia-theater.html?searchResultPosition=3
+**A New Look for ‘Ulysses’**\
+`Eduardo Arroyo, a Spanish artist who died in 2018, provided drawings, watercolors and collages for an illustrated edition of the James Joyce novel.`\
+https://nytimes.com/2022/02/10/books/ulysses-james-joyce-illustrated.html?searchResultPosition=3
 
-**The Misleading Math of Prenatal Tests**\
-`How can “99.9 percent reliable” be wrong most of the time? In this lesson, students use the laws of probability, including Bayes’ theorem, to get to the bottom of this paradox.`\
-https://nytimes.com/2022/02/10/learning/lesson-plans/the-misleading-math-of-prenatal-tests.html?searchResultPosition=4
+**How Billions in Infrastructure Funding Could Worsen Global Warming**\
+`Highway expansions tend to bring more greenhouse gas emissions. A few states are trying to change that dynamic, but it won’t be easy.`\
+https://nytimes.com/2022/02/10/climate/highways-climate-change-traffic.html?searchResultPosition=4
 
-**The Fine Art of Staging a Blockbuster**\
-`With a string of successes, Matthew Yokobosky is giving the Brooklyn Museum’s fashion exhibitions an edge over similar fare at the Met.`\
-https://nytimes.com/2022/02/10/style/the-fine-art-of-staging-a-blockbuster.html?searchResultPosition=5
+**How a Long Island Republican Used a Mask Rebellion to Revive His Career**\
+`Since a surprise win on Long Island, Bruce Blakeman has been on a seemingly single-minded mission to challenge and defy Gov. Kathy Hochul over mask mandates.`\
+https://nytimes.com/2022/02/10/nyregion/bruce-blakeman-republican-star.html?searchResultPosition=5
 
-**The N.F.L. Wants to Be a Player in a City of Players**\
-`The league’s new West Coast headquarters, in the shadow of SoFi Stadium, gives it a large footprint in the land of big media deals.`\
-https://nytimes.com/2022/02/10/sports/football/nfl-los-angeles-headquarters.html?searchResultPosition=6
+**Hollywood’s First Family of Putting It Out There**\
+`In a book, web series and music, Will, Jada, Jaden and Willow have remade a star household for the new era of reality-driven celebrity.`\
+https://nytimes.com/2022/02/10/arts/music/will-jada-willow-jaden-smith.html?searchResultPosition=6
 
-**Fashion Is Getting an Inclusion Rider**\
-`Coming soon to the catwalks: a contractual diversity pledge already adopted by some in Hollywood.`\
-https://nytimes.com/2022/02/10/style/fashion-is-getting-an-inclusion-rider.html?searchResultPosition=7
+**An Amelia Earhart Mystery Solved (Not That Mystery)**\
+`How the pilot’s long-lost aviator helmet came to spend the better part of a century in a closet somewhere in Minnesota.`\
+https://nytimes.com/2022/02/10/nyregion/amelia-earhart-aviator-helmet.html?searchResultPosition=7
 
-**‘This Is Not My City’: Protesters Turn a Quiet Capital Upside Down**\
-`The Ottawa protesters are giddy with their sense of collective purpose. But local residents see the demonstration as an unruly, disrespectful and even dangerous occupation.`\
-https://nytimes.com/2022/02/10/world/canada/ottawa-truckers-protest.html?searchResultPosition=8
+**What’s New in the Caribbean for 2022**\
+`Islands across the region are investing in infrastructure and new resorts, hoping that their popularity as pandemic escapes can translate into returning visitors.`\
+https://nytimes.com/2022/02/10/travel/caribbean-new-developments.html?searchResultPosition=8
 
-**Where Fashion and Food Mingle and the Chopsticks Are for Sale**\
-`The designer Humberto Leon talks about love and merch at Chifa, his family’s Los Angeles restaurant.`\
-https://nytimes.com/2022/02/10/style/where-fashion-and-food-mingle-and-the-chopsticks-are-for-sale.html?searchResultPosition=9
+**A Gene Sequencing Pioneer Battles Over What It Can Buy**\
+`Is Illumina, a gene-sequencing powerhouse, trying to speed innovation in the field of cancer blood tests or thwart it with an acquisition?`\
+https://nytimes.com/2022/02/10/business/illumina-gene-sequencing-ftc.html?searchResultPosition=9
 
-**Streetwear Is Dead**\
-`Long live fashion. They are actually one and the same.`\
-https://nytimes.com/2022/02/10/style/streetwear-is-dead.html?searchResultPosition=10
+**5 Things to Do This Weekend**\
+`Our critics and writers have selected noteworthy cultural events to experience virtually and in person in New York City.`\
+https://nytimes.com/2022/02/10/arts/things-to-do-this-weekend.html?searchResultPosition=10
 
