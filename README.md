@@ -4,7 +4,7 @@ https://nytimes.com/2022/02/10/arts/television/bel-air-whitney-houston-national-
 
 **U.S. Military Offers New Details on Raid That Led to Death of ISIS Leader**\
 `The explosion that killed Abu Ibrahim al-Hashimi al-Qurayshi in Syria was most likely caused by a bomb he had rigged, U.S. military officials said.`\
-https://nytimes.com/2022/02/10/us/politics/isis-us-raid-syria.html?searchResultPosition=2
+https://nytimes.com/2022/02/10/us/politics/abu-ibrahim-al-hashimi-al-qurayshi-isis.html?searchResultPosition=2
 
 **M.L.B. Commissioner: Losing Games Would Be ‘Disastrous’**\
 `With the lockout continuing, and camps scheduled to open next week, Rob Manfred is still optimistic the sides can come together so the regular season can begin on time.`\
