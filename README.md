@@ -3,7 +3,7 @@
 https://nytimes.com/video/us/politics/100000008201893/senate-sexual-assault-arbitration-gillibrand.html?searchResultPosition=1
 
 **Why are all of these Olympic skiers wearing tape on their faces?**\
-`By Lauren McCarthy`\
+`The trend was perhaps first started by the skier Ted Ligety, who wore a strip of tape reading “U.S.A.” at the 2018 Winter Games.`\
 https://nytimes.com/2022/02/09/sports/olympics/skiing-face-tape.html?searchResultPosition=2
 
 **The Creators of ‘On Sugarland’ Build a Site of Mourning and Repair**\
