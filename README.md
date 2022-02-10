@@ -20,7 +20,7 @@ https://nytimes.com/2022/02/09/health/mask-rules-cdc.html?searchResultPosition=5
 
 **Bob Saget Died of Head Trauma, Family Says**\
 `The comedian and former “Full House” star accidentally hit his head on something and then went to sleep, they said.`\
-https://nytimes.com/2022/02/09/us/bog-saget-cause-of-death-head-trauma.html?searchResultPosition=6
+https://nytimes.com/2022/02/09/us/bob-saget-cause-of-death-head-trauma.html?searchResultPosition=6
 
 **Masks Come Off in More States, but Not Everyone Is Grinning**\
 `Some Americans cheered the moves, mostly by Democratic governors, but others questioned the timing, with more than 200,000 new virus infections being reported each day.`\
