@@ -14,7 +14,7 @@ https://nytimes.com/video/world/canada/100000008202166/watch-live-mayor-of-winds
 `As a pop star who weds a math teacher in a stunt wedding, Jennifer Lopez is all business. But the original songs shine.`\
 https://nytimes.com/2022/02/10/movies/marry-me-review.html?searchResultPosition=4
 
-**‘Inventing Anna’ Review: The Soho Scammer, Explained at Length**\
+**‘Inventing Anna’ Review: The SoHo Scammer, Explained at Length**\
 `Shonda Rhimes turns an absorbing real-life story into a Netflix drama, at nine hours and change.`\
 https://nytimes.com/2022/02/10/arts/television/inventing-anna-review-netflix.html?searchResultPosition=5
 
