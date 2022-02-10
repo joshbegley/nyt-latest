@@ -15,7 +15,7 @@ https://nytimes.com/2022/02/10/realestate/housing-market-near-nyc.html?searchRes
 https://nytimes.com/slideshow/2022/02/10/realestate/on-the-market-in-the-new-york-region.html?searchResultPosition=4
 
 **Sting Sells His Songwriting Catalog to Universal Music**\
-`The deal, worth an estimated $250 million, covers his entire output as a songwriter, including solo work and hits by the Police like “Every Breath You Take.”`\
+`The deal, worth an estimated $250 million or more, covers his entire output as a songwriter, including solo work and hits by the Police like “Every Breath You Take.”`\
 https://nytimes.com/2022/02/10/arts/music/sting-sells-catalog-universal.html?searchResultPosition=5
 
 **T’s Valentine’s Day Gift Guide**\
