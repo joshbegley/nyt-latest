@@ -14,7 +14,7 @@ https://nytimes.com/2022/02/10/science/black-death.html?searchResultPosition=3
 `I’m the audience editor for The Times’s Culture desk. Here are five things I've been watching and listening to.`\
 https://nytimes.com/interactive/2022/02/10/arts/editors-recommendations-abbott-elementary.html?searchResultPosition=4
 
-**The U.S. men’s hockey team opened its Olympics by beating China.**\
+**The U.S. men’s hockey team opens its Olympics by beating China.**\
 `With a roster filled with college players and far more shots on goal, the team outdistanced China, 8-0.`\
 https://nytimes.com/2022/02/09/sports/olympics/us-hockey-win-china.html?searchResultPosition=5
 
