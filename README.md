@@ -3,7 +3,7 @@
 https://nytimes.com/2022/02/10/learning/whats-going-on-in-this-graph-feb-16-2022.html?searchResultPosition=1
 
 **Native Hawaiians Collect Ancestors’ Skulls From European Museums**\
-`A delegation from Hawaii is on a five-city tour to bring some home. Europe has thousands more human remains taken from around the world.`\
+`A delegation from Hawaii is on a five-city tour to bring human remains home, some of thousands of such remnants in Europe taken from around the world.`\
 https://nytimes.com/2022/02/10/arts/design/hawaii-remains-europe.html?searchResultPosition=2
 
 **What Do You Know About Peatlands? Tell Us.**\
