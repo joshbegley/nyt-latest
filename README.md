@@ -1,6 +1,6 @@
 **Biden’s Hidden Health Care Triumph**\
 `Blockbuster enrollments are good news — but will poltiics kill progress?`\
-https://nytimes.com/2022/02/10/opinion/bidens-hidden-health-care-triumph.html?searchResultPosition=1
+https://nytimes.com/2022/02/10/opinion/biden-health-care-triumph.html?searchResultPosition=1
 
 **A 1,500-Year-Old Riddle Solved: Yes, It Was a Terra-Cotta Porta-Potty**\
 `The proof was in the, er, concretion.`\
