@@ -20,7 +20,7 @@ https://nytimes.com/2022/02/10/movies/playground-review.html?searchResultPositio
 
 **Watch Live: Mayor of Windsor Canada Addresses Trucker Protests**\
 `Protestors opposing vaccine mandates have blocked some of the busiest routes linking Canada to the United States.`\
-https://nytimes.com/video/world/canada/100000008202166/watch-live-mayor-of-windsor-canada-addresses-trucker-protests.html?searchResultPosition=6
+https://nytimes.com/video/embedded/world/canada/100000008202166/watch-live-mayor-of-windsor-canada-addresses-trucker-protests.html?searchResultPosition=6
 
 **‘Marry Me’ Review: Putting ‘I Do’ on the To-Do List**\
 `As a pop star who weds a math teacher in a stunt wedding, Jennifer Lopez is all business. But the original songs shine.`\
