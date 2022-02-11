@@ -1,6 +1,6 @@
 **A Staple of Grandma’s Medicine Cabinet Gets Hot on TikTok**\
 `People have coated their faces in Vaseline for decades, but a TikTok trend with a catchy name (“slugging,” anyone?) has introduced the skin-protecting petroleum jelly to new users, baffling some longtime devotees.`\
-https://nytimes.com/2022/02/11/business/vaseline-on-face-tik-tok.html?searchResultPosition=1
+https://nytimes.com/2022/02/11/business/vaseline-slugging-tiktok.html?searchResultPosition=1
 
 **To Lure Back Audiences, Spoleto Festival Plans an Ambitious Season**\
 `The performing arts group in Charleston, S.C., will host 120 events in May and June, its first full season since the start of the pandemic.`\
