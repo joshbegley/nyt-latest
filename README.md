@@ -1,6 +1,6 @@
 **Panel Approves Transfer of Saudi Engineer From Guantánamo Bay**\
 `The decision means that a majority of detainees at the wartime prison are cleared for transfer if U.S. diplomats can forge security deals with countries to receive them`\
-https://nytimes.com/2022/02/10/us/politics/gitmo-saudi-prisoner-release.html?searchResultPosition=1
+https://nytimes.com/2022/02/10/us/politics/hassan-abdullah-al-sharbi-guantanamo-bay.html?searchResultPosition=1
 
 **The Slippery Science of Skeleton**\
 `Researchers are still figuring out how to enable athletes in the face-first Olympic sled race to go even faster.`\
