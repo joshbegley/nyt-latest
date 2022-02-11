@@ -3,7 +3,7 @@
 https://nytimes.com/2022/02/10/sports/football/aaron-rodgers-mvp-nfl-hall-of-fame.html?searchResultPosition=1
 
 **Russia’s star figure skater tested positive for a banned substance.**\
-`It wasn’t clear if Russia would still get the gold in team figure skating.`\
+`She propelled Russia to a win in the team figure skating competition this week, but it was not yet clear if the gold medal would be awarded.`\
 https://nytimes.com/2022/02/10/sports/olympics/kamila-valieva-trimetazidine.html?searchResultPosition=2
 
 **He Became an Olympic Sensation, Without a Shirt and Without Competing**\
