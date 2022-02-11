@@ -1,4 +1,4 @@
-**Russia’s star figure skater tested positive for a banned substance**\
+**Russia’s star figure skater tested positive for a banned substance.**\
 `It wasn’t clear if Russia would still get the gold in team figure skating.`\
 https://nytimes.com/2022/02/10/sports/olympics/kamila-valieva-trimetazidine.html?searchResultPosition=1
 
