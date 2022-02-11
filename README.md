@@ -19,7 +19,7 @@ https://nytimes.com/2022/02/10/us/politics/cia-data-privacy.html?searchResultPos
 https://nytimes.com/2022/02/10/arts/tall-girl-2-review.html?searchResultPosition=5
 
 **Who is Ayumu Hirano?**\
-`By Alexandra E. Petri`\
+`Hirano disrupted the competition landscape when he became the first person to land a triple cork — three flips performed on a rotation while grabbing the board.`\
 https://nytimes.com/2022/02/10/sports/olympics/ayumu-hirano-snowboard-halfpipe.html?searchResultPosition=6
 
 **Who is Scotty James? Well, he’s no longer an underdog.**\
