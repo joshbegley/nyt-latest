@@ -1,4 +1,4 @@
-**Taylor Swift and Ed Sheeran Raise the Ante, and 13 More New Songs**\
+**Taylor Swift and Ed Sheeran Up the Ante, and 13 More New Songs**\
 `Hear tracks by Jazmine Sullivan, Brandee Younger, Caroline Polachek and others.`\
 https://nytimes.com/2022/02/11/arts/music/playlist-taylor-swift-ed-sheeran-doja-cat.html?searchResultPosition=1
 
