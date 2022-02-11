@@ -4,7 +4,7 @@ https://nytimes.com/2022/02/11/dining/braised-short-rib-stew.html?searchResultPo
 
 **Border blockades lead carmakers to shut down facilities as far as Alabama.**\
 `Some companies are trying to use U.S.-Canada border crossings hundreds of miles from the bridges connecting Ontario and Michigan that have been blocked by protesters.`\
-https://nytimes.com/2022/02/11/world/canada/border-blockades-have-led-carmakers-to-shut-down-facilities-as-far-as-alabama.html?searchResultPosition=2
+https://nytimes.com/2022/02/11/world/canada/canada-protests-autos.html?searchResultPosition=2
 
 **Bob Wall, Martial Arts Master Who Sparred With Bruce Lee, Dies at 82**\
 `He taught thousands of senseis how to run a dojo, all the while trading kicks onscreen with Lee and Chuck Norris.`\
