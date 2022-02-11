@@ -16,7 +16,7 @@ https://nytimes.com/2022/02/11/sports/olympics/ayumu-hirano-channel-japan.html?s
 
 **What to Know About the Super Bowl**\
 `The state’s mask mandate will still be in place when the Rams and the Bengals face off in Inglewood this weekend.`\
-https://nytimes.com/2022/02/11/us/super-bowl-masks.html?searchResultPosition=5
+https://nytimes.com/2022/02/11/us/super-bowl-inglewood.html?searchResultPosition=5
 
 **What’s black and white, weighs half a pound and is popular in China?**\
 `Olympics memorabilia has become an unexpected hit in China, and none more so than a plush stuffed panda that is the mascot of the Beijing Games.`\
