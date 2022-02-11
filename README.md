@@ -19,7 +19,7 @@ https://nytimes.com/2022/02/11/sports/israel-adesanya-robert-whittaker-middlewei
 https://nytimes.com/2022/02/11/movies/toshiro-mifune-film-forum.html?searchResultPosition=5
 
 **How a Tawdry Steakhouse Melee Transfixed Miami Politics**\
-`A city commissioner was dining at Morton’s. A lobbyist approached him with a beef that wasn’t about lunch. Everyone called the police. The incident has dominated Miami’s political chatter for days.`\
+`A city commissioner was dining at Morton’s. A lobbyist came up with a beef that wasn’t about lunch. Everyone called the police. The incident has dominated Miami’s political chatter for days.`\
 https://nytimes.com/2022/02/11/us/miami-restaurant-gimenez-arrested.html?searchResultPosition=6
 
 **Douglas Trumbull, Visual Effects Wizard, Dies at 79**\
