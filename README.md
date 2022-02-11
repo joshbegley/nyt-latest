@@ -1,40 +1,40 @@
-**The Chinese men’s hockey team has an international cast.**\
-`Making its debut in the Winter Olympics, the team had to reach far and wide to cobble together a competitive roster.`\
-https://nytimes.com/2022/02/10/sports/olympics/chinese-mens-hockey-team.html?searchResultPosition=1
+**What Elon Musk Did and Didn’t Reveal About SpaceX’s Starship Rocket**\
+`The founder of the private space company rehashed his broad vision of colonizing Mars, but he provided few clear details about when Starship would get to orbit.`\
+https://nytimes.com/2022/02/11/science/elon-musk-starship-rocket.html?searchResultPosition=1
 
-**How much is a gold medal actually worth?**\
-`Gold medals are required to be at least 92.5 percent silver, and are plated with about 6 grams of pure gold.`\
-https://nytimes.com/2022/02/10/sports/olympics/gold-medal-price-value.html?searchResultPosition=2
+**Beyond Cool, She Was Fly. Her Confidence Gave Me Wings.**\
+`I had no example of love, not for girls that looked like me. Until my cousin Tiffany.`\
+https://nytimes.com/2022/02/11/style/modern-love-confidence-self-love.html?searchResultPosition=2
 
-**Aaron Rodgers Wins Fourth N.F.L. M.V.P. Award**\
-`He became the fifth player to win consecutive Most Valuable Player Awards and now trails only Peyton Manning on the career list. The Pro Football Hall of Fame also welcomed eight new members.`\
-https://nytimes.com/2022/02/10/sports/football/aaron-rodgers-mvp-nfl-hall-of-fame.html?searchResultPosition=3
+**Accepting Applications for a Black Boyfriend**\
+`After a lifetime of dating white men, I hoped a new romance could offer a chance at love, and at embracing my own Blackness.`\
+https://nytimes.com/2022/02/11/style/modern-love-black-boyfriend-applications.html?searchResultPosition=3
 
-**Star Russian Figure Skater Tested Positive for Banned Substance**\
-`Kamila Valieva propelled Russia to a win in the team figure skating competition this week, but it was not yet clear if the gold medal would be awarded.`\
-https://nytimes.com/2022/02/10/sports/olympics/kamila-valieva-trimetazidine.html?searchResultPosition=4
+**Love Isn’t a Zero-Sum Game**\
+`I thought the open relationship was the problem. But it was me.`\
+https://nytimes.com/2022/02/11/style/modern-love-queer-dating-open-relationship.html?searchResultPosition=4
 
-**He Became an Olympic Sensation, Without a Shirt and Without Competing**\
-`A flag-bearer for American Samoa lit up the internet when he appeared at the opening ceremony in Beijing wearing very little clothing in subfreezing weather.`\
-https://nytimes.com/2022/02/10/world/asia/beijing-olympics-shirtless-torch-samoa.html?searchResultPosition=5
+**What Is Black Love Today?**\
+`In a special collaboration between Modern Love and Black History, Continued, we gathered stories that illuminate how Black people live, and love, in this moment.`\
+https://nytimes.com/2022/02/11/style/what-is-black-love-today.html?searchResultPosition=5
 
-**Review: Even With Hugh Jackman, ‘The Music Man’ Goes Flat**\
-`Sutton Foster also stars in this neat, perky, overly cautious Broadway revival of a musical that needs to be more of a con.`\
-https://nytimes.com/2022/02/10/theater/the-music-man-review.html?searchResultPosition=6
+**Our Bond Was Thicker Than Blood**\
+`No matter how hard I prayed, my father never appeared. But my godfather always did.`\
+https://nytimes.com/2022/02/11/style/modern-love-bond-father.html?searchResultPosition=6
 
-**A Virginia Deputy Attorney General Quits as Praise for Jan. 6 Rioters Surfaces**\
-`After a report about Facebook posts, the Virginia Attorney General’s Office said it had “parted ways” with Monique Miles for her “lack of transparency.”`\
-https://nytimes.com/2022/02/10/us/monique-miles-virginia-resigns.html?searchResultPosition=7
+**Two Boys on Bicycles, Falling in Love**\
+`He gave me a ring. He also punched me in the eye. I learned a lot that summer about how “nice-nasty” the world can be.`\
+https://nytimes.com/2022/02/11/style/modern-love-black-boys.html?searchResultPosition=7
 
-**Variety: Acrostic**\
-`Emily Cox and Henry Rathvon remind us of some famous choppers on a famous chopper.`\
-https://nytimes.com/2022/02/10/crosswords/variety-acrostic.html?searchResultPosition=8
+**She Wouldn’t Break Her Heart to Mend Mine**\
+`She was a healer, but was I ready to be fixed?`\
+https://nytimes.com/2022/02/11/style/modern-love-healer-heartbreak.html?searchResultPosition=8
 
-**What Friendly Opponents May Do**\
-`Trenton Charlson stacks ’em high and stacks ’em well.`\
-https://nytimes.com/2022/02/10/crosswords/daily-puzzle-2022-02-11.html?searchResultPosition=9
+**Was It Me? Or My Teeth?**\
+`In America, a smile is like a résumé. I was afraid mine wasn’t closing the deal.`\
+https://nytimes.com/2022/02/11/style/modern-love-teeth-smile.html?searchResultPosition=9
 
-**Hacker Who Sold Pirated Video Games Gets More Than 3 Years in Prison**\
-`Gary Bowser, 52, pleaded guilty for his role in a group that sold pirated video games for devices like the Nintendo Switch, costing companies more than $65 million, prosecutors said.`\
-https://nytimes.com/2022/02/10/technology/nintendo-hacker-gary-bowser.html?searchResultPosition=10
+**Finding Each Other in the Place They Had Always Been**\
+`Denise Parnell and Whitney Hardy, both from the Memphis area, first crossed paths in the city in 2009. Five years later, they reconnected. A year after that, they were ready to go on a date.`\
+https://nytimes.com/2022/02/11/style/denise-parnell-whitney-hardy-wedding.html?searchResultPosition=10
 
