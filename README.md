@@ -30,7 +30,7 @@ https://nytimes.com/interactive/2022/02/11/sports/super-bowl-questions.html?sear
 `China placed its first skeleton athlete in the Winter Olympics only four years ago.`\
 https://nytimes.com/2022/02/10/sports/olympics/mens-skeleton-yan-wengang.html?searchResultPosition=8
 
-**What is trimetazidine, and would it have helped Kamila Valieva of Russia?**\
+**What is trimetazidine? Would it have helped Kamila Valieva of Russia?**\
 `News that the figure skater had tested positive for the banned substance raised questions that have come up in past doping scandals.`\
 https://nytimes.com/2022/02/11/sports/olympics/trimetazidine-doping-kamila-valieva.html?searchResultPosition=9
 
