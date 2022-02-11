@@ -14,7 +14,7 @@ https://nytimes.com/video/us/politics/100000008204606/russia-ukraine-invasion-pu
 `Inspired by trucker-led protests in Canada, French demonstrators set out from cities across the country in thousands of vehicles to oppose virus restrictions.`\
 https://nytimes.com/video/world/europe/100000008204331/french-protests-canadian-trucker.html?searchResultPosition=4
 
-**Whether He’s Talking ‘Amélie’ or ‘BigBug,’ Jean-Pierre Jeunet Doesn’t Hold Back**\
+**Whether He’s Talking ‘Amélie’ or ‘Bigbug,’ Jean-Pierre Jeunet Doesn’t Hold Back**\
 `The French director is candid about his fights with Harvey Weinstein and his reasons for working with Netflix. And he can’t hide his joy about a rerelease of “Amélie.”`\
 https://nytimes.com/2022/02/11/movies/jean-pierre-jeunet-bigbug-amelie.html?searchResultPosition=5
 
