@@ -1,40 +1,40 @@
+**Love Letter: What is Black Love Today?**\
+`We gathered stories that illuminate how Black people live, and love, in this moment.`\
+https://nytimes.com/2022/02/11/style/love-letter-newsletter-what-is-black-love-today.html?searchResultPosition=1
+
+**More Brew and Less Buzz, With Low-Alcohol Beers**\
+`While all the attention goes to the extremes — strong ales and alcohol-free beers — craft brewers are increasingly aiming for the sweet spot in the middle.`\
+https://nytimes.com/2022/02/11/dining/drinks/low-alcohol-beer.html?searchResultPosition=2
+
+**Weeknights Are for Lovers**\
+`Feed your sweeties Thai curry risotto, pork chops in lemon-caper sauce and a shrimp stew for two.`\
+https://nytimes.com/2022/02/11/dining/weeknight-recipes-valentine.html?searchResultPosition=3
+
 **It’s Time to Answer Your Questions About Super Bowl LVI**\
 `Answering questions you know are crucial for Sunday, and some ones we know you’re secretly thinking about.`\
-https://nytimes.com/interactive/2022/02/11/sports/super-bowl-questions.html?searchResultPosition=1
+https://nytimes.com/interactive/2022/02/11/sports/super-bowl-questions.html?searchResultPosition=4
+
+**Yan Wengang wins bronze in men’s skeleton, China’s first medal in a sliding sport.**\
+`China placed its first skeleton athlete in the Winter Olympics only four years ago.`\
+https://nytimes.com/2022/02/10/sports/olympics/mens-skeleton-yan-wengang.html?searchResultPosition=5
 
 **What is trimetazidine, and would it have helped Kamila Valieva of Russia?**\
 `News that the figure skater had tested positive for the banned substance raised questions that have come up in past doping scandals.`\
-https://nytimes.com/2022/02/11/sports/olympics/trimetazidine-doping-kamila-valieva.html?searchResultPosition=2
+https://nytimes.com/2022/02/11/sports/olympics/trimetazidine-doping-kamila-valieva.html?searchResultPosition=6
 
 **She Had Never Acted, and Could Barely Read. Now, She’s an Egyptian Movie Star.**\
 `A stay-at-home mother deprived of an education, Damiana Nassar played a woman much like herself in “Feathers,” a Cannes winner that few in Egypt can see.`\
-https://nytimes.com/2022/02/11/world/middleeast/damiana-nassar-feathers-egypt.html?searchResultPosition=3
+https://nytimes.com/2022/02/11/world/middleeast/damiana-nassar-feathers-egypt.html?searchResultPosition=7
 
 **How to Organize Your Digital Files**\
 `Find what you're looking for faster.`\
-https://nytimes.com/interactive/2022/02/11/smarter-living/wirecutter/organize-digital-files.html?searchResultPosition=4
+https://nytimes.com/interactive/2022/02/11/smarter-living/wirecutter/organize-digital-files.html?searchResultPosition=8
 
 **James Webb Telescope Sends Home a Selfie and 18 Images of Starlight**\
 `The spacecraft recorded a series of images of a target star that will be used to help its mirrors prepare for scientific research.`\
-https://nytimes.com/2022/02/11/science/webb-telescope-selfie-pictures.html?searchResultPosition=5
+https://nytimes.com/2022/02/11/science/webb-telescope-selfie-pictures.html?searchResultPosition=9
 
 **On the Scene: ‘Music Man,’ a Big Broadway Bet 🎺**\
 `“The Music Man,” a big-budget, star-studded musical, opened Thursday, hoping to provide Broadway with a much-needed boost.`\
-https://nytimes.com/interactive/2022/02/11/theater/music-man-broadway.html?searchResultPosition=6
-
-**Watch Jennifer Lopez Perform in ‘Marry Me’**\
-`The director Kat Coiro narrates a sequence from her film featuring the actress and Maluma.`\
-https://nytimes.com/2022/02/11/movies/marry-me-clip-jennifer-lopez.html?searchResultPosition=7
-
-**‘Marry Me’ | Anatomy of a Scene**\
-`The director Kat Coiro narrates a sequence from her film featuring Jennifer Lopez, Owen Wilson and Maluma.`\
-https://nytimes.com/video/movies/100000008203959/marry-me-scene.html?searchResultPosition=8
-
-**A private school in Brooklyn is N.Y.C.’s first to make masks optional, despite the state’s mandate.**\
-`A spokesman for the state’s Department of Health called the decision at Poly Prep Country Day School a “violation.”`\
-https://nytimes.com/2022/02/11/nyregion/poly-prep-school-masks.html?searchResultPosition=9
-
-**Ontario Declares State of Emergency as Protests Disrupt Supply Chains**\
-`Doug Ford, the premier of Ontario, warned that protesters who do not clear transit routes could face a maximum penalty of $100,000, up to a year in prison and the potential loss of commercial and personal licenses.`\
-https://nytimes.com/video/world/canada/100000008203755/canada-truck-coronavirus-protests.html?searchResultPosition=10
+https://nytimes.com/interactive/2022/02/11/theater/music-man-broadway.html?searchResultPosition=10
 
