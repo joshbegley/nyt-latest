@@ -7,7 +7,7 @@ https://nytimes.com/2022/02/11/sports/olympics/watch-snowboarding-biathlon-hocke
 https://nytimes.com/2022/02/11/sports/olympics/australia-medals-winter-games.html?searchResultPosition=2
 
 **Canada Toughens Stance on Protests, Promising ‘Robust’ Police Response**\
-`After treading lightly for weeks, officials obtained a court order to halt the blockade of a major route to the United States.`\
+`After treading lightly for weeks, officials obtained a court order to halt the blockade of a major route to the United States. They also vowed fines and arrests.`\
 https://nytimes.com/2022/02/11/canada-toughens-stance-on-protests-promising-robust-police-response.html?searchResultPosition=3
 
 **Bob Saget’s Autopsy Report Describes Severe Skull Fractures**\
