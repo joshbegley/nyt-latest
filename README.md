@@ -1,6 +1,6 @@
 **Fast Sleds, Black Women and Two Decades of Medals**\
 `A generation after the bobsledder Vonetta Flowers became the first Black athlete to win gold at the Winter Olympics, Black women dominate the U.S. bobsled team.`\
-https://nytimes.com/2022/02/11/sports/olympics/fast-sleds-black-women-and-two-decades-of-medals.html?searchResultPosition=1
+https://nytimes.com/2022/02/11/sports/olympics/us-bobsled-team-black-athletes.html?searchResultPosition=1
 
 **A speedskating rivalry between the Netherlands and Sweden heats up in Beijing.**\
 `Nils van der Poel of Sweden has won every distance race he entered this year.`\
