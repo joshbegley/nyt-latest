@@ -23,7 +23,7 @@ https://nytimes.com/2022/02/10/sports/olympics/taylor-gold-chase-josey-snowboard
 https://nytimes.com/video/world/americas/100000008203019/canada-protest-fake-911-calls.html?searchResultPosition=6
 
 **Shaun White goes for gold in his last Olympic event.**\
-`The 35-year-old snowboarding legend faces competition from a field of heir apparents.`\
+`The 35-year-old snowboarding legend faces competition from a field of heirs apparent.`\
 https://nytimes.com/2022/02/10/sports/olympics/shaun-white-olympics-halfpipe.html?searchResultPosition=7
 
 **What to Know About the KF94 Mask**\
