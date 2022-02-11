@@ -1,40 +1,40 @@
+**In ‘Severance,’ Adam Scott Gets to Work**\
+`The actor’s latest role is in another workplace series, but this one is more dystopian and involves elective brain surgery. Real-life parallels abound.`\
+https://nytimes.com/2022/02/11/arts/television/severance-adam-scott.html?searchResultPosition=1
+
+**Jazz Freed Keith LaMar’s Soul. Can It Help Him Get Off Death Row?**\
+`With concerts and a new album, musicians are trying to draw attention to the case of an inmate, convicted in the death of five other prisoners, who they believe deserves a new trial.`\
+https://nytimes.com/2022/02/11/arts/music/keith-lamar-death-row-freedom-first.html?searchResultPosition=2
+
+**Russia-Backed Separatists Conduct Military Exercises, Ukraine Warns**\
+`The warning was the latest evidence of a shift by officials in the government of President Volodymyr Zelensky toward a more alarming analysis.`\
+https://nytimes.com/2022/02/11/world/europe/ukraine-russia-diplomacy.html?searchResultPosition=3
+
+**For Three Avant-Garde Musicians, It’s Time for Pop**\
+`New albums by Jeff Tobias, Joseph White and Dave Ruder all have some experimental edges. But they also have catchy hooks.`\
+https://nytimes.com/2022/02/11/arts/music/new-york-classical-music-pop.html?searchResultPosition=4
+
 **Switzerland, Long a Safe Haven for Tobacco Ads, Weighs a Ban**\
 `Voters will decide Sunday on whether to prohibit the ads in places where they can be seen by children under 18.`\
-https://nytimes.com/2022/02/11/world/europe/switzerland-tobacco-ads-vote.html?searchResultPosition=1
+https://nytimes.com/2022/02/11/world/europe/switzerland-tobacco-ads-vote.html?searchResultPosition=5
 
 **Don’t Expect Higher Savings Rates Anytime Soon**\
 `The Fed will probably begin raising interest rates in March, but rates paid to depositors are likely to rise at a slower pace. Here are some of your options.`\
-https://nytimes.com/2022/02/11/your-money/savings-rates-interest.html?searchResultPosition=2
+https://nytimes.com/2022/02/11/your-money/savings-rates-interest.html?searchResultPosition=6
 
 **The Lox Story: From Scandinavia to New York**\
 `In Monday’s puzzle, LOX was the answer to the clue “Schmear topper.”`\
-https://nytimes.com/2022/02/11/crosswords/lox-story-crossword-clue.html?searchResultPosition=3
+https://nytimes.com/2022/02/11/crosswords/lox-story-crossword-clue.html?searchResultPosition=7
 
 **Dance, I Said — Dance! And Leave the Package on the Porch.**\
 `The combination of next-day delivery, Ring surveillance footage and TikTok has put a spotlight on Amazon drivers. But it’s also created a new main character: the package itself.`\
-https://nytimes.com/2022/02/11/arts/amazon-tiktok-box-delivery.html?searchResultPosition=4
+https://nytimes.com/2022/02/11/arts/amazon-tiktok-box-delivery.html?searchResultPosition=8
 
 **A broadcaster’s lineup creates a halfpipe cliffhanger in Japan.**\
 `Ayumu Hirano was in position to win heading into his final run, and his fans were glued to the television. Then the signal dropped.`\
-https://nytimes.com/2022/02/11/sports/olympics/ayumu-hirano-channel-japan.html?searchResultPosition=5
+https://nytimes.com/2022/02/11/sports/olympics/ayumu-hirano-channel-japan.html?searchResultPosition=9
 
 **What to Know About the Super Bowl**\
 `The state’s mask mandate will still be in place when the Rams and the Bengals face off in Inglewood this weekend.`\
-https://nytimes.com/2022/02/11/us/super-bowl-inglewood.html?searchResultPosition=6
-
-**What’s black and white, weighs half a pound and is popular in China?**\
-`Olympics memorabilia has become an unexpected hit in China, and none more so than a plush stuffed panda that is the mascot of the Beijing Games.`\
-https://nytimes.com/2022/02/11/sports/olympics/bing-dwen-dwen-mascot.html?searchResultPosition=7
-
-**A Pandemic Puppy Changed the Way I See (and Hear and Smell) My World**\
-`As a first-time dog owner, I didn’t anticipate how thoroughly a dog would demand that I experience my neighborhood from a different perspective.`\
-https://nytimes.com/2022/02/11/realestate/pandemic-puppy.html?searchResultPosition=8
-
-**The Auto Industry’s Trucker Problem**\
-`A blockade of key trade routes between the U.S. and Canada is roiling car makers’ businesses.`\
-https://nytimes.com/2022/02/11/business/dealbook/truckers-protests-cars.html?searchResultPosition=9
-
-**A Staple of Grandma’s Medicine Cabinet Gets Hot on TikTok**\
-`People have coated their faces in Vaseline for decades, but a TikTok trend with a catchy name (“slugging,” anyone?) has introduced the skin-protecting petroleum jelly to new users, baffling some longtime devotees.`\
-https://nytimes.com/2022/02/11/business/vaseline-slugging-tiktok.html?searchResultPosition=10
+https://nytimes.com/2022/02/11/us/super-bowl-inglewood.html?searchResultPosition=10
 
