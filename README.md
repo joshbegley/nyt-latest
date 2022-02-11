@@ -1,5 +1,5 @@
 **Hacker Who Sold Pirated Video Games Gets More Than 3 Years in Prison**\
-`The hacker, Gary Bowser, 52, pleaded guilty for his role in a group that sold pirated video games for devices like the Nintendo Switch, costing companies more than $65 million, prosecutors said.`\
+`Gary Bowser, 52, pleaded guilty for his role in a group that sold pirated video games for devices like the Nintendo Switch, costing companies more than $65 million, prosecutors said.`\
 https://nytimes.com/2022/02/10/technology/nintendo-hacker-gary-bowser.html?searchResultPosition=1
 
 **Protests Against Covid Restrictions Continue in Canada**\
