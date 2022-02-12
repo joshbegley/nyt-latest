@@ -23,7 +23,7 @@ https://nytimes.com/video/world/americas/100000008204412/canada-trucker-protests
 https://nytimes.com/2022/02/11/us/trump-documents-criminal-law.html?searchResultPosition=6
 
 **Lindsey Jacobellis and Nick Baumgartner win the debut of mixed team snowboard cross.**\
-`The two oldest American snowboarders at the Games have exhibited perseverance in their age-defying Olympic runs.`\
+`Jacobellis, 36, won her second gold medal of the Beijing Games after leaving empty-handed in four previous Olympics. Baumgartner, 40, won his first Olympic medal.`\
 https://nytimes.com/2022/02/11/sports/olympics/lindsey-jacobellis-nick-baumgartner-snowboard-cross.html?searchResultPosition=7
 
 **Where the Canadian Trucker Protests Are Happening**\
