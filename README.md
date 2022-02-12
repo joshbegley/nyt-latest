@@ -18,8 +18,8 @@ https://nytimes.com/video/world/americas/100000008204412/canada-trucker-protests
 `The former president’s telephone habits and penchant for destroying papers have investigators examining the Presidential Records Act and other statutes.`\
 https://nytimes.com/2022/02/11/us/trump-documents-criminal-law.html?searchResultPosition=5
 
-**Old guard goes for gold in the debut of mixed team snowboard cross.**\
-`Lindsey Jacobellis and Nick Baumgartner have exhibited perseverance in their age-defying Olympic runs.`\
+**Lindsey Jacobellis and Nick Baumgartner win gold in mixed team snowboard cross.**\
+`The two oldest American snowboarders at the Games have exhibited perseverance in their age-defying Olympic runs.`\
 https://nytimes.com/2022/02/11/sports/olympics/lindsey-jacobellis-nick-baumgartner-snowboard-cross.html?searchResultPosition=6
 
 **Where the Canadian Trucker Protests Are Happening**\
