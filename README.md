@@ -1,4 +1,4 @@
-**Valieva is “innocent and clean,” her coach declares ahead of eligibility hearing.**\
+**Valieva is ‘innocent and clean,’ her coach declares ahead of eligibility hearing.**\
 `A hearing on Sunday could determine if the star Russian figure skater Kamila Valieva will be allowed to continue competing at the Olympics.`\
 https://nytimes.com/2022/02/11/sports/olympics/valieva-is-innocent-and-clean-her-coach-declares-ahead-of-eligibility-hearing.html?searchResultPosition=1
 
