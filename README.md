@@ -1,5 +1,5 @@
-**Yes, There’s a Romance to Long-Term Relationships**\
-`Marriage and parenthood don’t have to be where passion goes to die.`\
+**Yes, There’s a Romance to Marriage**\
+`And parenthood doesn’t have to be where passion goes to die.`\
 https://nytimes.com/2022/02/12/opinion/valentines-day-marriage.html?searchResultPosition=1
 
 **U.S. Battles Putin by Disclosing His Next Possible Moves**\
