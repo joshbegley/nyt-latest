@@ -30,7 +30,7 @@ https://nytimes.com/2022/02/11/sports/olympics/covid-cases-athletes.html?searchR
 `The two powerhouses had to cobble together rosters after the N.H.L. declined to allow its players to compete.`\
 https://nytimes.com/2022/02/12/sports/olympics/mens-hockey-us-canada.html?searchResultPosition=8
 
-**U.S. overnight coverage includes cross country, ice dancing and skeleton.**\
+**U.S. overnight coverage includes ice dancing and skeleton.**\
 `Ice dancers bring the drama to the rink at 6 a.m.`\
 https://nytimes.com/2022/02/12/sports/olympics/watch-ice-dancing-skeleton-hockey.html?searchResultPosition=9
 
