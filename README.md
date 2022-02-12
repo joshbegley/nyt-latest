@@ -18,7 +18,7 @@ https://nytimes.com/2022/02/12/sports/joe-burrow-style-super-bowl.html?searchRes
 `Robert Thomas and Cheron Selton were charged in Allegheny County for killing five people. After four years of pretrial detention, one had charges dismissed and the other was acquitted at trial.`\
 https://nytimes.com/2022/02/12/us/robert-thomas-cheron-selton-wilkinsburg-lawsuit.html?searchResultPosition=5
 
-**Valieva is ‘innocent and clean,’ her coach declares ahead of eligibility hearing.**\
+**Valieva Is ‘Innocent and Clean,’ Her Coach Declares**\
 `A hearing on Sunday could determine if the star Russian figure skater Kamila Valieva will be allowed to continue competing at the Olympics.`\
 https://nytimes.com/2022/02/11/sports/olympics/valieva-doping-coach-clean.html?searchResultPosition=6
 
