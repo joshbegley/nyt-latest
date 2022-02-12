@@ -1,6 +1,6 @@
 **We Aren’t in Vegas Anymore**\
 `Our society’s rules for gambling are becoming more internally consistent and more socially disastrous.`\
-https://nytimes.com/2022/02/12/opinion/we-arent-in-vegas-anymore.html?searchResultPosition=1
+https://nytimes.com/2022/02/12/opinion/super-bowl-gambling-sports.html?searchResultPosition=1
 
 **Black Authors Shake Up Brazil’s Literary Scene**\
 `Young Black Brazilians are publishing on their own terms, achieving the critical and commercial success that eluded past generations of writers from marginalized communities.`\
