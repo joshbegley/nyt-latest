@@ -3,7 +3,7 @@
 https://nytimes.com/2022/02/12/arts/television/inventing-anna-true-story.html?searchResultPosition=1
 
 **Artistry and Grace: See Ice Dancing’s Short Program**\
-`Twenty-three teams are bringing power and passion to the ice. Here are the latest photos as the competition begins in Beijing.`\
+`Twenty-three teams are bringing power and passion to the ice. Take a look at these photos from the competition in Beijing.`\
 https://nytimes.com/2022/02/12/sports/olympics/ice-dancing-rhythm-dance.html?searchResultPosition=2
 
 **Are Activist Short Sellers Misunderstood?**\
