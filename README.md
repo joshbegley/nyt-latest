@@ -8,7 +8,7 @@ https://nytimes.com/2022/02/12/us/robert-thomas-cheron-selton-wilkinsburg-lawsui
 
 **Valieva is ‘innocent and clean,’ her coach declares ahead of eligibility hearing.**\
 `A hearing on Sunday could determine if the star Russian figure skater Kamila Valieva will be allowed to continue competing at the Olympics.`\
-https://nytimes.com/2022/02/11/sports/olympics/valieva-is-innocent-and-clean-her-coach-declares-ahead-of-eligibility-hearing.html?searchResultPosition=3
+https://nytimes.com/2022/02/11/sports/olympics/valieva-doping-coach-clean.html?searchResultPosition=3
 
 **Blinken Says U.S. Has a ‘Long-Term Future’ in the Pacific Islands**\
 `The secretary of state promised a new embassy in the Solomon Islands and help on issues like climate change, as Washington vies with Beijing for influence in the region.`\
