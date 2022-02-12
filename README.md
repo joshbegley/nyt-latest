@@ -34,7 +34,7 @@ https://nytimes.com/2022/02/12/world/middleeast/settler-violence-west-bank.html?
 `Strong feelings can develop, even within the confines of strong — and necessary —boundaries. `\
 https://nytimes.com/2022/02/12/opinion/culture/jeff-zucker-workplace-romance.html?searchResultPosition=9
 
-**Where Liberalism Could Dream Bigger**\
-`Democrats need to realize that America’s future does not lie in Europe’s past.`\
+**Can Democrats See What’s Coming?**\
+`They need to realize that America’s future does not lie in Europe’s past.`\
 https://nytimes.com/2022/02/12/opinion/yellen-supply-side-liberalism.html?searchResultPosition=10
 
