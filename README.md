@@ -1,40 +1,40 @@
-**Curling’s Scottish Soundtrack, Delivered by Bagpipers from Beijing**\
-`An Olympic arena’s house band is devoted to a sound, not stones. “I honestly don’t know much about the rules,” one musician said. “What we like most is the bagpipes.”`\
-https://nytimes.com/2022/02/12/sports/olympics/curling-bagpipes-china.html?searchResultPosition=1
+**For N.F.L. Perfection, a Steep Price**\
+`Nick Buoniconti, Jim Kiick and Jake Scott, of the undefeated 1972 Miami Dolphins, were each found to have C.T.E., the brain disease linked to head hits, bringing to six the number of players diagnosed from that team.`\
+https://nytimes.com/2022/02/12/sports/football/dolphins-nfl-cte.html?searchResultPosition=1
 
-**Emmanuel Macron in His Labyrinth**\
-`The French leader recounted his face-off with Vladimir Putin and dismissed Washington’s exchange of letters with Moscow, gambling that his diplomacy could pay off before April elections.`\
-https://nytimes.com/2022/02/12/world/europe/macron-putin-ukraine.html?searchResultPosition=2
+**Running a Business Under the Shadow of War**\
+`“When you’re constantly thinking about invading Russians you’re not going to go buy a new phone, or a car, or a house.”`\
+https://nytimes.com/2022/02/12/business/ukraine-business-economy.html?searchResultPosition=2
 
-**Far From the Big City, New Economic Life**\
-`Incomes are low in small-town Tennessee, but so is the cost of living. That attraction could be a key to reviving many rural areas.`\
-https://nytimes.com/2022/02/12/business/economy/small-town-living-standard.html?searchResultPosition=3
+**After Pak and Beeple, What’s Next for NFT Collectors? Art Made With a Paintbrush**\
+`Now crypto collectors are investing in something more tangible, and traditional, like paintings and sculpture. And art dealers are rushing to woo them.`\
+https://nytimes.com/2022/02/12/arts/design/nft-collectors-physical-artworks.html?searchResultPosition=3
 
-**Business Booms at Kroger-Owned Grocery Stores, but Workers Are Left Behind**\
-`A number of the stores’ nearly 500,000 employees have reported being homeless, receiving government food stamps or relying on food banks.`\
-https://nytimes.com/2022/02/12/business/kroger-grocery-stores-workers-pay.html?searchResultPosition=4
+**When Working for Racial Justice Means Taking Black History Month Off**\
+`The period when firms are ordinarily flooded with requests instead became a reminder, for clients, that this work should persist all throughout the year.`\
+https://nytimes.com/2022/02/12/business/black-history-month-diversity-inclusion.html?searchResultPosition=4
 
-**Eric Adams Is Pushing a Plan to Speed Up Buses. Will It Work?**\
-`Mayor Eric Adams has promised 150 miles of new bus lanes in New York City, but some drivers and businesses say they have created headaches in the past.`\
-https://nytimes.com/2022/02/12/nyregion/nyc-bus-lanes.html?searchResultPosition=5
+**Slow Fashion Meets Melrose Place**\
+`Emily Bode expands her men’s wear brand into the heart of Los Angeles’s shopping district.`\
+https://nytimes.com/2022/02/12/style/slow-fashion-meets-melrose-place.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/02/12/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**Teachers Tackle Black History Month, Under New Restrictions**\
+`In states where laws now limit classroom discussions about race and discrimination, many teachers are watching what they say, and are more anxious about their jobs.`\
+https://nytimes.com/2022/02/12/us/black-history-month-schools-teachers.html?searchResultPosition=6
 
-**China’s Hockey Squad Shows a Powerhouse’s Weakness: Team Sports**\
-`The Chinese team in the Beijing Olympics could shock the Games. But it is more likely to underscore how little infrastructure the country has for team sports.`\
-https://nytimes.com/2022/02/12/sports/olympics/china-hockey-team-sports.html?searchResultPosition=7
+**Selling Trump: A Profitable Post-Presidency Like No Other**\
+`Much as he did while in the White House, Donald Trump has thoroughly blurred the lines between his political ambitions and his business interests, with a wide-ranging set of moneymaking ventures.`\
+https://nytimes.com/2022/02/12/us/politics/donald-trump-business-interests.html?searchResultPosition=7
 
-**A U.S. Olympic snowboarding coach is under investigation.**\
-`Peter Foley denied the accusations of sexual misconduct that were made by a former athlete.`\
-https://nytimes.com/2022/02/11/sports/olympics/peter-foley-snowboarding-coach-accusations.html?searchResultPosition=8
+**Meet Me at 3 A.M. For a Cup of Coffee.**\
+`The pandemic has allowed some people to return to a former way of sleeping: in segments.`\
+https://nytimes.com/2022/02/12/style/segmented-sleep.html?searchResultPosition=8
 
-**Coronavirus spiked, and then sputtered, at the Winter Games.**\
-`Case numbers have fallen off sharply since peaking on Feb. 2.`\
-https://nytimes.com/2022/02/11/sports/olympics/covid-cases-athletes.html?searchResultPosition=9
+**A Million More Trees for New York City: Leaders Want a Greener Canopy**\
+`The city’s five borough presidents are also urging the mayor to honor a pledge to spend 1 percent of the municipal budget on parks.`\
+https://nytimes.com/2022/02/12/nyregion/a-million-more-trees-for-new-york-city-leaders-want-a-greener-canopy.html?searchResultPosition=9
 
-**The U.S. men’s hockey team beats Canada in a preliminary game.**\
-`The two powerhouses had to cobble together rosters after the N.H.L. declined to allow its players to compete.`\
-https://nytimes.com/2022/02/12/sports/olympics/mens-hockey-us-canada.html?searchResultPosition=10
+**‘I Had Never Felt Worse’: Long Covid Sufferers Are Struggling With Exercise**\
+`And experts have some theories as to why.`\
+https://nytimes.com/2022/02/12/well/move/long-covid-exercise.html?searchResultPosition=10
 
