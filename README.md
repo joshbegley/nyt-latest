@@ -2,8 +2,8 @@
 `Case numbers have fallen off sharply since peaking on Feb. 2.`\
 https://nytimes.com/2022/02/11/sports/olympics/covid-cases-athletes.html?searchResultPosition=1
 
-**Canada and the United States are clashing in men’s hockey.**\
-`The two powerhouses had to cobble together teams after the N.H.L. declined to allow its players to compete.`\
+**The U.S. men’s hockey team beats Canada in a preliminary game.**\
+`The two powerhouses had to cobble together rosters after the N.H.L. declined to allow its players to compete.`\
 https://nytimes.com/2022/02/12/sports/olympics/mens-hockey-us-canada.html?searchResultPosition=2
 
 **U.S. overnight coverage includes cross country, ice dancing and skeleton.**\
