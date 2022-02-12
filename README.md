@@ -18,23 +18,23 @@ https://nytimes.com/2022/02/12/crosswords/spelling-bee-forum.html?searchResultPo
 `The Chinese team in the Beijing Olympics could shock the Games. But it is more likely to underscore how little infrastructure the country has for team sports.`\
 https://nytimes.com/2022/02/12/sports/olympics/china-hockey-team-sports.html?searchResultPosition=5
 
+**A U.S. Olympic snowboarding coach is under investigation.**\
+`Peter Foley denied the accusations of sexual misconduct that were made by a former athlete.`\
+https://nytimes.com/2022/02/11/sports/olympics/peter-foley-snowboarding-coach-accusations.html?searchResultPosition=6
+
 **Coronavirus spiked, and then sputtered, at the Winter Games.**\
 `Case numbers have fallen off sharply since peaking on Feb. 2.`\
-https://nytimes.com/2022/02/11/sports/olympics/covid-cases-athletes.html?searchResultPosition=6
+https://nytimes.com/2022/02/11/sports/olympics/covid-cases-athletes.html?searchResultPosition=7
 
 **The U.S. men’s hockey team beats Canada in a preliminary game.**\
 `The two powerhouses had to cobble together rosters after the N.H.L. declined to allow its players to compete.`\
-https://nytimes.com/2022/02/12/sports/olympics/mens-hockey-us-canada.html?searchResultPosition=7
+https://nytimes.com/2022/02/12/sports/olympics/mens-hockey-us-canada.html?searchResultPosition=8
 
 **U.S. overnight coverage includes cross country, ice dancing and skeleton.**\
 `Ice dancers bring the drama to the rink at 6 a.m.`\
-https://nytimes.com/2022/02/12/sports/olympics/watch-ice-dancing-skeleton-hockey.html?searchResultPosition=8
+https://nytimes.com/2022/02/12/sports/olympics/watch-ice-dancing-skeleton-hockey.html?searchResultPosition=9
 
 **Walmart says vaccinated workers no longer have to wear masks in most states.**\
 `The retailer said it was taking action after governors from Connecticut to California ended mask mandates recently.`\
-https://nytimes.com/2022/02/12/world/walmart-mask-mandate-for-vaccinated-workers.html?searchResultPosition=9
-
-**Quotation of the Day: Musk Boosts His Plans for Mars, but Many Hurdles Remain**\
-`Quotation of the Day for Saturday, February 12, 2022.`\
-https://nytimes.com/2022/02/12/todayspaper/quotation-of-the-day-musk-boosts-his-plans-for-mars-but-many-hurdles-remain.html?searchResultPosition=10
+https://nytimes.com/2022/02/12/world/walmart-mask-mandate-for-vaccinated-workers.html?searchResultPosition=10
 
