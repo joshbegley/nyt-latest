@@ -22,15 +22,15 @@ https://nytimes.com/2022/02/12/sports/baseball/mlb-lockout-spring-training.html?
 `Western officials made another diplomatic push on Saturday to dissuade President Vladimir V. Putin from invading Ukraine.`\
 https://nytimes.com/2022/02/12/world/europe/russia-ukraine-war-biden-putin.html?searchResultPosition=7
 
+**Can’t keep up with the Olympic triumphs and heartbreak? Here’s what’s still to come.**\
+`In the final week of the Beijing Games, a host of stars are competing in anticipated events.`\
+https://nytimes.com/2022/02/12/sports/olympics/winter-games-events-remaining-schedule.html?searchResultPosition=8
+
 **Change of Heart**\
 `David Steinberg’s Sunday puzzle hits us in a sweet spot.`\
-https://nytimes.com/2022/02/12/crosswords/daily-puzzle-2022-02-13.html?searchResultPosition=8
+https://nytimes.com/2022/02/12/crosswords/daily-puzzle-2022-02-13.html?searchResultPosition=9
 
 **Stephanie Selby, ‘A Very Young Dancer’ Who Inspired Many, Dies at 56**\
 `A 1976 book of photographs and text traced her year at the School of American Ballet and made her famous. But a darker story lay underneath.`\
-https://nytimes.com/2022/02/12/arts/dance/stephanie-selby-dead.html?searchResultPosition=9
-
-**Zoology and Org Charts**\
-`Our critic recommends old and new books.`\
-https://nytimes.com/2022/02/12/books/read-like-the-wind.html?searchResultPosition=10
+https://nytimes.com/2022/02/12/arts/dance/stephanie-selby-dead.html?searchResultPosition=10
 
