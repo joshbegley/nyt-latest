@@ -1,40 +1,40 @@
+**Swiss Approve Ban on Tobacco Ads**\
+`Health advocates have said that the legislation, which was approved in a referendum, was a significant step toward tightening the country’s loose tobacco regulations.`\
+https://nytimes.com/2022/02/13/world/europe/switzerland-tobacco-vote.html?searchResultPosition=1
+
+**Why the Beijing Olympics Are So Hard to Watch**\
+`Instead of showing the best of what humanity can do, this year’s Olympics seem to reflect what we can’t.`\
+https://nytimes.com/2022/02/13/opinion/culture/beijing-olympics-inspiring-moments.html?searchResultPosition=2
+
+**In Anxious Times, Black History Can Be a Blueprint for Survival**\
+`It is not a viable strategy to close our minds against the threat by believing all is already lost.`\
+https://nytimes.com/2022/02/13/opinion/apocalyptic-thinking-black-history.html?searchResultPosition=3
+
+**You’ve Done Self Care. You’ve Languished. Now Try This.**\
+`As with just about everything related to Covid, we’re sick of languishing, too.`\
+https://nytimes.com/2022/02/13/opinion/culture/pandemic-languishing-behavioral-activation.html?searchResultPosition=4
+
+**Covid Drugs May Work Well, but Our Health System Doesn’t**\
+`The people who need treatments the most may be the least likely to get them. `\
+https://nytimes.com/2022/02/13/opinion/covid-drugs.html?searchResultPosition=5
+
+**What to Cook This Week**\
+`It’s time for Super Bowl recipes, whether you watch the game or not: carne asada, nachos and more.`\
+https://nytimes.com/2022/02/13/dining/what-to-cook-this-week.html?searchResultPosition=6
+
 **The U.S. beats Germany to finish the men’s hockey preliminary round with a 3-0 record.**\
 `The United States, which has its youngest team at an Olympics since 1994, secured a spot in a quarterfinal game with the 3-2 victory.`\
-https://nytimes.com/2022/02/12/sports/olympics/us-germany-hockey.html?searchResultPosition=1
+https://nytimes.com/2022/02/12/sports/olympics/us-germany-hockey.html?searchResultPosition=7
 
 **The Sports Betting Bowl**\
 `As legalized sports betting expands to more states, Super Bowl LVI is expected to be the biggest wagering day in history.`\
-https://nytimes.com/interactive/2022/02/13/sports/football/super-bowl-bets.html?searchResultPosition=2
+https://nytimes.com/interactive/2022/02/13/sports/football/super-bowl-bets.html?searchResultPosition=8
 
 **Sigal Barsade, 56, Dies; Argued That It’s OK to Show Emotions at Work**\
 `Her pioneering research showed that feelings have a place in the office, and that good leaders should learn to embrace that fact.`\
-https://nytimes.com/2022/02/13/business/sigal-barsade-dead.html?searchResultPosition=3
+https://nytimes.com/2022/02/13/business/sigal-barsade-dead.html?searchResultPosition=9
 
 **Before a Disputed Drug Test, a Russian Figure Skater Had a Rapid Rise**\
 `Kamila Valieva, the teenager who tested positive for a banned substance, throwing her sport in disarray at the Olympics, likes stuffed animals and yearns to travel. And she has stunned seasoned veterans with her grace and athleticism.`\
-https://nytimes.com/2022/02/13/sports/olympics/russia-valieva-doping-skating.html?searchResultPosition=4
-
-**The Quiet Flight of Muslims From France**\
-`All the talk of France’s presidential election campaign is about immigration. But it is the expanding emigration of French Muslims that points to a deeper crisis for the country.`\
-https://nytimes.com/2022/02/13/world/europe/france-election-muslims-islam-macron-zemmour-le-pen-pecresse.html?searchResultPosition=5
-
-**Erin Jackson wins gold in the 500, becoming the first African American woman to win a speedskating medal.**\
-`Jackson, 29, was the dominant 500-meter skater in the world this year.`\
-https://nytimes.com/2022/02/12/sports/olympics/erin-jackson-gold-speedskating.html?searchResultPosition=6
-
-**50 Years Later, Some Question Value of U.S.-China ‘Panda Diplomacy’**\
-`In 1972, China sent two pandas to the United States as a gesture of good will. In recent years, experts say the animals have taken on a new role: softening China’s authoritarian image.`\
-https://nytimes.com/2022/02/13/world/asia/panda-diplomacy-bill.html?searchResultPosition=7
-
-**What to Watch in the Super Bowl on Sunday**\
-`The Los Angeles Rams and the Cincinnati Bengals meet at SoFi Stadium, with kickoff scheduled for 6:30 p.m. Eastern time (3:30 p.m. Pacific). The game will be televised on NBC.`\
-https://nytimes.com/2022/02/13/sports/football/super-bowl-how-to-watch.html?searchResultPosition=8
-
-**We Asked: What Is Black Love Today?**\
-`A new collaboration between Modern Love and the Black History, Continued project showcases the voices of writers, thinkers, journalists and readers to answer that question.`\
-https://nytimes.com/2022/02/13/insider/black-love-history-valentines.html?searchResultPosition=9
-
-**Kamila Valieva’s CAS hearing has started. Here’s how it will play out.**\
-`The hearing will determine if the Russian figure skater who failed a pre-Olympics doping test will be able to continue to compete at the Beijing Games.`\
-https://nytimes.com/2022/02/12/sports/olympics/kamila-valievas-cas-hearing-doping.html?searchResultPosition=10
+https://nytimes.com/2022/02/13/sports/olympics/russia-valieva-doping-skating.html?searchResultPosition=10
 
