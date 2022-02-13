@@ -12,7 +12,7 @@ https://nytimes.com/2022/02/13/opinion/letters/tara-westover-educated-college.ht
 
 **Good Riddance to Good Taste**\
 `Shayne Oliver returns, and Eckhaus Latta celebrates a decade. New York fashion is on the move.`\
-https://nytimes.com/2022/02/13/style/shayne-oliver-proenza-schouler-eckhaus-latta-nyfw.html?searchResultPosition=4
+https://nytimes.com/2022/02/13/style/nyfw-proenza-schouler-shayne-oliver-eckhaus-latta.html?searchResultPosition=4
 
 **‘We’re All Sort of Primed for Addiction’**\
 `The other public health crisis we’re living through right now.`\
