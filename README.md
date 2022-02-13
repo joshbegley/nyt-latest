@@ -6,8 +6,8 @@ https://nytimes.com/2022/02/12/us/politics/rudolph-giuliani-january-6-committee.
 `Winter weather catches up to a Games that has relied on artificial snow.`\
 https://nytimes.com/2022/02/12/sports/olympics/beijing-games-snow.html?searchResultPosition=2
 
-**Weather pushes Eileen Gu’s slopestyle qualifiers to another day.**\
-`The freestyle skier will wait to compete after a dramatic, come-from-behind victory in big air.`\
+**Weather pushes slopestyle qualifiers to Monday.**\
+`Eileen Gu will be competing in hopes of winning her second gold medal.`\
 https://nytimes.com/2022/02/12/sports/olympics/eileen-gu-freestyle-skiing-slopestyle.html?searchResultPosition=3
 
 **New Covid data show New York returning to pre-Omicron surge levels.**\
