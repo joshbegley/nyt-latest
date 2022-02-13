@@ -1,4 +1,4 @@
-**Beijing is dusted with real snow for a second day.**\
+**Olympic venues get real snow, a rarity.**\
 `Winter weather catches up to a Games that has relied on artificial snow.`\
 https://nytimes.com/2022/02/12/sports/olympics/beijing-games-snow.html?searchResultPosition=1
 
