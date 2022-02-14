@@ -14,7 +14,7 @@ https://nytimes.com/2022/02/14/nyregion/redistricting-gerrymandering-albany-ny.h
 `Embedded in abortion laws in Texas are disputed assertions about embryonic development and the procedure’s risks. Chief among them: whether the early embryo has a heart.`\
 https://nytimes.com/2022/02/14/health/abortion-heartbeat-debate.html?searchResultPosition=4
 
-**Ivan Reitman, Director of ‘Ghostbusters,’ Is Dead at 75**\
+**Ivan Reitman, Director of ‘Ghostbusters’ and ‘Animal House,’ Is Dead at 75**\
 `The filmmaker injected giant marshmallow boogeymen and toga parties into popular culture with movies that included “National Lampoon’s Animal House,” “Stripes” and “Kindergarten Cop.”`\
 https://nytimes.com/2022/02/14/movies/ivan-reitman-dead.html?searchResultPosition=5
 
