@@ -34,7 +34,7 @@ https://nytimes.com/2022/02/13/us/american-air-emergency-landing.html?searchResu
 `How a young virtual currency exchange got Hollywood’s resident skeptic to film his first Super Bowl commercial.`\
 https://nytimes.com/2022/02/13/business/media/larry-david-super-bowl-ftx-crypto.html?searchResultPosition=9
 
-**Canada Moves to Open Blockaded Bridge, but in Ottawa Truckers Won’t Budge**\
-`Amid progress at a border bridge, Ottawa remained frozen by an antigovernment protest. There were signs of a slight thaw, with truckers said to be weighing pulling out of part of the capital.`\
-https://nytimes.com/2022/02/13/world/americas/canada-trucker-protest.html?searchResultPosition=10
+**Odell Beckham Jr. will not return to the game due to a knee injury.**\
+`Beckham had scored a touchdown for the Rams in the first half before leaving the game.`\
+https://nytimes.com/2022/02/13/sports/football/odell-beckham-jr-leaves-game-with-left-knee-injury.html?searchResultPosition=10
 
