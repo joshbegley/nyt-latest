@@ -27,7 +27,7 @@ https://nytimes.com/interactive/2022/02/14/sports/olympics/cas-valieva-russia-ru
 https://nytimes.com/2022/02/14/arts/television/whats-on-tv-this-week-the-eyes-of-tammy-faye-we-need-to-talk-about-cosby.html?searchResultPosition=7
 
 **Arbitrators rule that a Russian figure skater can continue to compete at the Games.**\
-`The ruling, related to questions around use of a banned substance, means Kamila Valieva can take to the ice on Tuesday when the short program begins.`\
+`The ruling, related to questions around use of a banned substance, means Kamila Valieva can take the ice Tuesday when the women’s short program begins.`\
 https://nytimes.com/2022/02/14/sports/olympics/kamila-valieva-ruling.html?searchResultPosition=8
 
 **Your Monday Briefing**\
