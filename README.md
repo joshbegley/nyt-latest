@@ -26,7 +26,7 @@ https://nytimes.com/2022/02/14/climate/western-drought-megadrought.html?searchRe
 `For many cities, the Games make no economic sense. National pride and an enthusiasm for building transportation infrastructure change the equation for Beijing.`\
 https://nytimes.com/2022/02/14/business/economy/olympics-china-economics.html?searchResultPosition=7
 
-**Auto Production Restarts After the Ambassador Bridge Is Cleared**\
+**Auto production restarts after the Ambassador Bridge is cleared.**\
 `But the industry might not return to normal for days, and it still faces a chronic chip shortage that has stunted global production.`\
 https://nytimes.com/2022/02/14/business/canada-protest-auto-supply-chain.html?searchResultPosition=8
 
