@@ -1,5 +1,5 @@
-**In China, Look for The One Where Ross’ Ex-Wife Isn’t Gay**\
-`“Friends” has become the latest target of China’s censorship campaign. The awkward cuts have not been missed by fans of the show in the country.`\
+**‘Friends’ in China: Look for The One Where Ross’ Ex-Wife Isn’t Gay**\
+`The popular sitcom has become the latest target of China’s censorship campaign. The awkward cuts have not been missed by fans of the show in the country.`\
 https://nytimes.com/2022/02/14/business/china-friends-censored.html?searchResultPosition=1
 
 **The Big Short: Miniskirts Make Their Return**\
