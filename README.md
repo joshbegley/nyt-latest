@@ -2,7 +2,7 @@
 `Can you find São Tomé & Príncipe on a map? What else do you know about this small African nation with a population of about 200,000?`\
 https://nytimes.com/interactive/2022/02/14/learning/Saotome-Geography-Quiz.html?searchResultPosition=1
 
-**The Unrescued**\
+**‘We’ve Never Been Smuggled Before’**\
 `After the U.S. withdrew, thousands of Afghans have been trying to escape. But how do we decide who deserves refuge?`\
 https://nytimes.com/2022/02/14/opinion/refugees-migrants-afghanistan.html?searchResultPosition=2
 
