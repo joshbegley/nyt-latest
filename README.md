@@ -12,7 +12,7 @@ https://nytimes.com/2022/02/14/us/rabbi-simcha-krauss-dead.html?searchResultPosi
 
 **An Exhilarating Set of Cecil Taylor’s Jazz Arrives, 49 Years Later**\
 `A performance recorded at Town Hall in 1973 went unreleased, partly because of its length. A digital-only arrival this week includes the 88-minute track “Autumn/Parade.”`\
-https://nytimes.com/2022/02/14/arts/music/an-exhilarating-set-of-cecil-taylors-jazz-arrives-49-years-later.html?searchResultPosition=4
+https://nytimes.com/2022/02/14/arts/music/cecil-taylor-return-concert.html?searchResultPosition=4
 
 **Navy Nuclear Engineer Pleads Guilty in Submarine Espionage Case**\
 `Jonathan Toebbe, who was arrested in October along with his wife, will face 12 years or more in prison under a plea deal with federal prosecutors.`\
