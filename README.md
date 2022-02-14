@@ -11,7 +11,7 @@ https://nytimes.com/2022/02/14/crosswords/food-english-foreign-languages.html?se
 https://nytimes.com/interactive/2022/02/14/learning/Saotome-Geography-Quiz.html?searchResultPosition=3
 
 **‘We’ve Never Been Smuggled Before’**\
-`After the U.S. withdrew, thousands of Afghans have been trying to escape. But how do we decide who deserves refuge?`\
+`After the U.S. withdrawal and with their country’s economy collapsing, countless Afghans are trying to escape. Who does the West consider worthy of saving?`\
 https://nytimes.com/2022/02/14/opinion/refugees-migrants-afghanistan.html?searchResultPosition=4
 
 **Pedestrian Deaths Spike in U.S. as Reckless Driving Surges**\
