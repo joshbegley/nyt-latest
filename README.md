@@ -16,7 +16,7 @@ https://nytimes.com/2022/02/13/business/media/dr-evil-lindsay-lohan-super-bowl-c
 
 **N.F.L. was ‘aware’ Eminem planned to kneel during halftime performance.**\
 `The rapper took a knee after performing, in an apparent nod to Colin Kaepernick’s protest.`\
-https://nytimes.com/2022/02/13/sports/football/nfl-was-aware-eminem-planned-to-kneel-during-halftime-performance.html?searchResultPosition=5
+https://nytimes.com/2022/02/13/sports/football/nfl-eminem-kneel-super-bowl-halftime.html?searchResultPosition=5
 
 **Alexandra Stepanova and Ivan Bukin are in fifth place, in their first Olympics.**\
 `Making it to the Games has been a longtime goal but a frustrating reality for Bukin.`\
