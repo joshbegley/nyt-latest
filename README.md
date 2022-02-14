@@ -32,7 +32,7 @@ https://nytimes.com/video/world/europe/100000008206442/russia-military-ukraine.h
 
 **Luxury Resort in Spain Must Be Demolished, Court Finds**\
 `The complex at Marina Isla de Valdecañas, which includes a four-star hotel, was in breach of environmental rules, the Spanish Supreme Court said.`\
-https://nytimes.com/2022/02/14/world/europe/spain-luxury-hotel-demolished.html?searchResultPosition=9
+https://nytimes.com/2022/02/14/world/europe/spain-luxury-hotel-environment.html?searchResultPosition=9
 
 **Why Biathlon Should Be the New Curling**\
 `Believe it or not, a skiing race combined with rifle shooting is my favorite Winter Olympics event.`\
