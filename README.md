@@ -1,4 +1,4 @@
-**Germany’s chancellor promises support while in Kyiv, on eve of meeting with Putin.**\
+**Germany’s chancellor promises support while in Kyiv, on the eve of a meeting with Putin.**\
 `The German leader said he would encourage business to invest in Ukraine, but ruled out sending weaponry.`\
 https://nytimes.com/2022/02/14/world/europe/olaf-scholz-germany-ukraine.html?searchResultPosition=1
 
