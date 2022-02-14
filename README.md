@@ -1,10 +1,10 @@
-**U.S. prime-time broadcast coverage includes Alpine skiing, freestyle skiing and snowboarding.**\
-`The two-time Olympic gold medalist Mikaela Shiffrin competes in the women’s downhill, her first time contending in the event at an Olympic Games.`\
-https://nytimes.com/2022/02/14/sports/olympics/watch-skiing-snowboarding-hockey.html?searchResultPosition=1
-
 **Eileen Gu goes for gold in slopestyle, but a tough field stands in her way.**\
 `Gu’s biggest rival is Kelly Sildaru of Estonia, who finished first in qualifying rounds. Several other women have a chance to reach the podium.`\
-https://nytimes.com/2022/02/14/sports/olympics/skiing-slopestyle.html?searchResultPosition=2
+https://nytimes.com/2022/02/14/sports/olympics/skiing-slopestyle.html?searchResultPosition=1
+
+**U.S. prime-time broadcast coverage includes Alpine skiing, freestyle skiing and snowboarding.**\
+`The two-time Olympic gold medalist Mikaela Shiffrin competes in the women’s downhill, her first time contending in the event at an Olympic Games.`\
+https://nytimes.com/2022/02/14/sports/olympics/watch-skiing-snowboarding-hockey.html?searchResultPosition=2
 
 **Coronavirus Briefing: The New Mask Normal**\
 `How to think about masking now.`\
