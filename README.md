@@ -1,6 +1,6 @@
 **Pastor Resigns After Incorrectly Performing Thousands of Baptisms**\
 `The pastor of a Catholic church in Phoenix changed one word in administering the sacrament, rendering baptisms performed there invalid, the church said.`\
-https://nytimes.com/2022/02/14/us/catholic-priest-resigns-phoenix.html?searchResultPosition=1
+https://nytimes.com/2022/02/14/us/catholic-priest-baptisms-phoenix.html?searchResultPosition=1
 
 **Camilla tests positive for the coronavirus.**\
 `The announcement is likely to fan further concerns about the health of Queen Elizabeth II, who was in contact with Charles, her eldest son, two days before he tested positive.`\
