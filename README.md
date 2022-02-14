@@ -4,7 +4,7 @@ https://nytimes.com/video/world/europe/100000008208342/russia-ukraine-putin-lavr
 
 **Ontario Easing Covid Rules, Ending Vaccine Passport System on March 1**\
 `Doug Ford, the premier of Ontario, announced that the province would soon no longer require people show proof of vaccination to enter any indoor spaces, and that indoor capacity limits would also be loosened.`\
-https://nytimes.com/video/world/canada/100000008208455/canada-protests-coronavirus-ontario.html?searchResultPosition=2
+https://nytimes.com/video/world/canada/canada-protests-coronavirus-ontario.html?searchResultPosition=2
 
 **Germany’s chancellor promises support while in Kyiv, on the eve of a meeting with Putin.**\
 `The German leader said he would encourage business to invest in Ukraine, but ruled out sending weaponry.`\
@@ -34,7 +34,7 @@ https://nytimes.com/2022/02/14/science/elephants-ivory-dna.html?searchResultPosi
 `Fueled by climate change, the drought that started in 2000 is now the driest two decades since 800 A.D.`\
 https://nytimes.com/2022/02/14/climate/western-drought-megadrought.html?searchResultPosition=9
 
-**Hosting the Olympics Is Costly. For China, It’s Worth Every Billion.**\
-`For many cities, the Games make no economic sense. National pride and an enthusiasm for building transportation infrastructure change the equation for Beijing.`\
-https://nytimes.com/2022/02/14/business/economy/olympics-china-economics.html?searchResultPosition=10
+**Ontario will no longer require people show proof of vaccination to enter any indoor spaces.**\
+`Doug Ford, the premier, said that the change was based on the diminishing number of coronavirus cases and hospitalizations, and was not a concession to the protester.`\
+https://nytimes.com/2022/02/14/world/canada/doug-ford-announcement-ontario.html?searchResultPosition=10
 
