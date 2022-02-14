@@ -36,5 +36,5 @@ https://nytimes.com/2022/02/13/business/media/larry-david-super-bowl-ftx-crypto.
 
 **Odell Beckham Jr. will not return to the game due to a knee injury.**\
 `Beckham had scored a touchdown for the Rams in the first half before leaving the game.`\
-https://nytimes.com/2022/02/13/sports/football/odell-beckham-jr-leaves-game-with-left-knee-injury.html?searchResultPosition=10
+https://nytimes.com/2022/02/13/sports/football/odell-beckham-jr-knee-injury.html?searchResultPosition=10
 
