@@ -3,7 +3,7 @@
 https://nytimes.com/2022/02/14/world/americas/nicaragua-universities-ortega-dictatorship.html?searchResultPosition=1
 
 **Federal Reserve officials call for a measured response to inflation.**\
-`Central bankers panned the idea that they will hike interest rates between meetings. Nor have they settled on a big rate increase.`\
+`Central bankers panned the idea that they will raise interest rates between meetings. Nor have they settled on a big rate increase.`\
 https://nytimes.com/2022/02/14/business/federal-reserve-rates-inflation.html?searchResultPosition=2
 
 **Jurors will resume deliberations in Sarah Palin’s lawsuit against The Times.**\
