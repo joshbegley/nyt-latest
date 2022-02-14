@@ -14,8 +14,8 @@ https://nytimes.com/interactive/2022/02/14/sports/olympics/cas-valieva-russia-ru
 `Jessica Chastain’s newly Oscar-nominated performance as Tammy Faye Bakker airs on HBO. And W. Kamau Bell’s docuseries about Bill Cosby wraps up on Showtime.`\
 https://nytimes.com/2022/02/14/arts/television/whats-on-tv-this-week-the-eyes-of-tammy-faye-we-need-to-talk-about-cosby.html?searchResultPosition=4
 
-**Arbitrators have ruled that a Russian figure skater can continue to compete at the Games.**\
-`The ruling, related to questions around use of a banned substance, means she can take to the ice on Tuesday when the short program begins.`\
+**Arbitrators rule that a Russian figure skater can continue to compete at the Games.**\
+`The ruling, related to questions around use of a banned substance, means Kamila Valieva can take to the ice on Tuesday when the short program begins.`\
 https://nytimes.com/2022/02/14/sports/olympics/kamila-valieva-ruling.html?searchResultPosition=5
 
 **Your Monday Briefing**\
