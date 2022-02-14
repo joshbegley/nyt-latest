@@ -14,13 +14,13 @@ https://nytimes.com/interactive/2022/02/14/learning/Saotome-Geography-Quiz.html?
 `After the U.S. withdrawal and with their country’s economy collapsing, countless Afghans are trying to escape. Who does the West consider worthy of saving?`\
 https://nytimes.com/2022/02/14/opinion/refugees-migrants-afghanistan.html?searchResultPosition=4
 
-**Pedestrian Deaths Spike in U.S. as Reckless Driving Surges**\
-`Fatalities are climbing to record levels two years into the pandemic. Authorities cite drivers’ anxiety levels, larger vehicles and fraying social norms.`\
-https://nytimes.com/2022/02/14/us/pedestrian-deaths-pandemic.html?searchResultPosition=5
-
 **The Right’s Would-Be Kingmaker**\
 `Peter Thiel, one of Donald J. Trump’s biggest donors in 2016, has re-emerged as a prime financier of the Make America Great Again movement.`\
-https://nytimes.com/2022/02/14/technology/republican-trump-peter-thiel.html?searchResultPosition=6
+https://nytimes.com/2022/02/14/technology/republican-trump-peter-thiel.html?searchResultPosition=5
+
+**Pedestrian Deaths Spike in U.S. as Reckless Driving Surges**\
+`Fatalities are climbing to record levels two years into the pandemic. Authorities cite drivers’ anxiety levels, larger vehicles and fraying social norms.`\
+https://nytimes.com/2022/02/14/us/pedestrian-deaths-pandemic.html?searchResultPosition=6
 
 **Glimpses of Northern India’s Vanishing Nomads**\
 `For centuries, Kharnak nomads have raised livestock in one of the most hauntingly beautiful — and inhospitable — places on earth. Can their traditions outlast a generational exodus?`\
