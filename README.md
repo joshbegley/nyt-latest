@@ -1,40 +1,40 @@
+**Baffled by the Chaos in Canada? So Are Canadians.**\
+`The protests seem to challenge the cherished image that Canadians are moderate, rule-following and just plain nice. But was that really a myth all along?`\
+https://nytimes.com/2022/02/14/world/americas/canada-trucker-protests.html?searchResultPosition=1
+
 **Watch Live: Trudeau Speaks as Protests in Ottawa Continue**\
 `The protests in Canada’s capital enter their third week, snarling traffic and cutting off access to the country’s Parliament, Supreme Court and the prime minister’s office.`\
-https://nytimes.com/video/world/canada/100000008209149/trudeau-canada-protest-live.html?searchResultPosition=1
+https://nytimes.com/video/world/canada/100000008209149/trudeau-canada-protest-live.html?searchResultPosition=2
 
 **New Zealand Anti-Vaccine Mandate Protesters Undeterred by Loud Music**\
 `Officials blasted a playlist of polarizing hits in an attempt to disperse approximately 3,000 demonstrators who were camped in front of Parliament. Many responded by dancing and singing.`\
-https://nytimes.com/video/world/australia/100000008208977/anti-vaccine-protesters-music-new-zealand.html?searchResultPosition=2
+https://nytimes.com/video/world/australia/100000008208977/anti-vaccine-protesters-music-new-zealand.html?searchResultPosition=3
 
 **Your Tuesday Briefing: Russia talks of diplomacy**\
 `Ukraine hinted at giving up its NATO ‘dream’`\
-https://nytimes.com/2022/02/14/briefing/ukraine-nato-canada-protests.html?searchResultPosition=3
+https://nytimes.com/2022/02/14/briefing/ukraine-nato-canada-protests.html?searchResultPosition=4
 
 **Canadians are responsible for roughly half the money raised online for the trucker convoy, leaked data shows.**\
 `A close look at donor data — from crowdfunding campaigns to Bitcoin fund-raisers — reveals a cross-border mix of motives in support of the Canada convoy.`\
-https://nytimes.com/2022/02/14/world/canada/canada-trucker-protests-donations.html?searchResultPosition=4
+https://nytimes.com/2022/02/14/world/canada/canada-trucker-protests-donations.html?searchResultPosition=5
 
 **We Weren’t Wrong to Love ‘The Cosby Show’**\
 `But we have to leave it behind for the same reasons we were drawn to it`\
-https://nytimes.com/2022/02/14/opinion/cosby-show-documentary.html?searchResultPosition=5
+https://nytimes.com/2022/02/14/opinion/cosby-show-documentary.html?searchResultPosition=6
 
 **Tone of Ukraine Crisis Shifts as Russia Signals Openness to Talk More**\
 `Diplomacy is “far from exhausted,” Russia’s foreign minister said, while President Volodymyr Zelensky of Ukraine said the prospect of his country joining NATO might be just a “dream.”`\
-https://nytimes.com/2022/02/14/world/europe/ukraine-russia-putin-zelensky-scholz-nato.html?searchResultPosition=6
+https://nytimes.com/2022/02/14/world/europe/ukraine-russia-putin-zelensky-scholz-nato.html?searchResultPosition=7
 
 **Accounting Firm Cuts Ties With Trump and Retracts Financial Statements**\
 `The statements are at the center of two investigations into whether the former president and his company exaggerated the value of their assets.`\
-https://nytimes.com/2022/02/14/nyregion/mazars-trump-organization-financial-statements.html?searchResultPosition=7
+https://nytimes.com/2022/02/14/nyregion/mazars-trump-organization-financial-statements.html?searchResultPosition=8
 
 **Rekindling the Flame at Danny Meyer’s Ci Siamo**\
 `After an uneven patch, the Union Square Hospitality Group returns to form with Hillary Sterling’s Italian food and a wood-fired hearth.`\
-https://nytimes.com/2022/02/14/dining/restaurant-review-ci-siamo.html?searchResultPosition=8
+https://nytimes.com/2022/02/14/dining/restaurant-review-ci-siamo.html?searchResultPosition=9
 
 **Italian Cuisine with an American Crackle**\
 `Ci Siamo is a showcase for the chef Hillary Sterling’s lively, inviting style.`\
-https://nytimes.com/slideshow/2022/02/14/dining/ci-siamo-nyc.html?searchResultPosition=9
-
-**U.S. defense secretary will visit Belgium and Eastern Europe this week.**\
-`He will consult with leaders of NATO and visit American troops in Poland.`\
-https://nytimes.com/2022/02/14/world/europe/us-defense-secretary-austin-belgium-europe.html?searchResultPosition=10
+https://nytimes.com/slideshow/2022/02/14/dining/ci-siamo-nyc.html?searchResultPosition=10
 
