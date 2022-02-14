@@ -1,6 +1,6 @@
 **Crypto companies weren’t the only advertising first-timers.**\
 `Betting apps, and companies urging viewers to take better care of their bodies, have filled up a lot of the commercial time.`\
-https://nytimes.com/2022/02/13/business/media/super-bowl-commercials-crypto.html?searchResultPosition=1
+https://nytimes.com/2022/02/13/business/media/coinbase-crypto-super-bowl-commercials.html?searchResultPosition=1
 
 **Flight Makes Emergency Landing After Passenger Tries to Enter Cockpit**\
 `An American Airlines flight from Los Angeles to Washington, D.C., was diverted to Kansas City, Mo., after a man tried to open an exit door and was subdued by crew members and other passengers.`\
