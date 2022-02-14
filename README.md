@@ -4,7 +4,7 @@ https://nytimes.com/2022/02/14/briefing/ukraine-olympics-canada-blockade.html?se
 
 **Super Bowl’s Hollywood Moment Outshines N.F.L.’s Problems**\
 `Football saw its biggest star, Tom Brady, retire, new allegations of sexual harassment against a team owner, and a lawsuit that claimed the N.F.L. discriminates in its hiring. None of it seemed to matter on Sunday.`\
-https://nytimes.com/2022/02/14/sports/football/super-bowl-nfl-ratings.html?searchResultPosition=2
+https://nytimes.com/2022/02/14/sports/football/nfl-super-bowl-hollywood.html?searchResultPosition=2
 
 **U.S. snowboarder Jamie Anderson fails to qualify for big air final.**\
 `She had taken the silver medal in 2018 Games when the event made its debut.`\
