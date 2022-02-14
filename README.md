@@ -18,23 +18,23 @@ https://nytimes.com/2022/02/14/travel/kharnak-nomads-ladakh-india.html?searchRes
 `Republicans say the policy helps undocumented immigrants disappear; many immigrants say it has prevented them from following the government’s instructions.`\
 https://nytimes.com/2022/02/14/us/politics/border-immigrants-expedited-asylum.html?searchResultPosition=5
 
+**Instagram Is Making Valentine’s Day Even Lonelier**\
+`Romantic love is a beautiful thing, but it is not the only way to feel connected, to feel seen, to feel loved.`\
+https://nytimes.com/2022/02/14/opinion/facebook-valentines-day-lonliness.html?searchResultPosition=6
+
 **A Succession Drama, Chinese Style, Starring Xi Jinping**\
 `As a party congress approaches, it’s increasingly clear that Xi Jinping plans another five-year term. But if he has ideas about a successor, he has hidden them well.`\
-https://nytimes.com/2022/02/14/world/asia/china-xi-jinping.html?searchResultPosition=6
+https://nytimes.com/2022/02/14/world/asia/china-xi-jinping.html?searchResultPosition=7
 
 **The ‘Zen Mayor’: How Eric Adams Mixes Tough Talk With Spinach Smoothies**\
 `Mr. Adams has tied his interest in nutrition, meditation and fitness to his views on how to lead New York at a challenging time.`\
-https://nytimes.com/2022/02/14/us/politics/eric-adams-wellness-vegan.html?searchResultPosition=7
+https://nytimes.com/2022/02/14/us/politics/eric-adams-wellness-vegan.html?searchResultPosition=8
 
 **A Plea for Help After a Quarter-Century in a ‘Penal Tomb’**\
 `Dennis Hope, who has been held in solitary confinement in a Texas prison for more than half his life, asked the Supreme Court to set limits on prolonged isolation.`\
-https://nytimes.com/2022/02/14/us/supreme-court-solitary-confinement.html?searchResultPosition=8
+https://nytimes.com/2022/02/14/us/supreme-court-solitary-confinement.html?searchResultPosition=9
 
 **Germany Tries to Loosen Its Ties to Russian Gas Pipelines**\
 `An increasingly belligerent Russia, an energy crunch and a new Green minister of economics all add up to a change of direction in Germany’s policy on natural gas.`\
-https://nytimes.com/2022/02/14/world/europe/germany-energy-russia-gas-pipeline.html?searchResultPosition=9
-
-**Instagram Is Making Valentine’s Day Even Lonelier**\
-`Romantic love is a beautiful thing, but it is not the only way to feel connected, to feel seen, to feel loved.`\
-https://nytimes.com/2022/02/14/opinion/facebook-valentines-day-lonliness.html?searchResultPosition=10
+https://nytimes.com/2022/02/14/world/europe/germany-energy-russia-gas-pipeline.html?searchResultPosition=10
 
