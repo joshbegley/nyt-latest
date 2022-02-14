@@ -1,5 +1,5 @@
-**In fifth: Alexandra Stepanova and Ivan Bukin.**\
-`The skating partners are competing in their first Olympics.`\
+**Alexandra Stepanova and Ivan Bukin are in fifth place, in their first Olympics.**\
+`Making it to the Games has been a longtime goal but a frustrating reality for Bukin.`\
 https://nytimes.com/2022/02/13/sports/olympics/alexandra-stepanova-ivan-bukin-ice-dancing.html?searchResultPosition=1
 
 **Kaillie Humphries aims for gold in new Olympic sport, monobob.**\
