@@ -26,13 +26,13 @@ https://nytimes.com/2022/02/14/us/pedestrian-deaths-pandemic.html?searchResultPo
 `For centuries, Kharnak nomads have raised livestock in one of the most hauntingly beautiful — and inhospitable — places on earth. Can their traditions outlast a generational exodus?`\
 https://nytimes.com/2022/02/14/travel/kharnak-nomads-ladakh-india.html?searchResultPosition=7
 
-**A Succession Drama, Chinese Style, Starring Xi Jinping**\
-`As a party congress approaches, it’s increasingly clear that Xi Jinping plans another five-year term. But if he has ideas about a successor, he has hidden them well.`\
-https://nytimes.com/2022/02/14/world/asia/china-xi-jinping.html?searchResultPosition=8
-
 **Quick Fix to Help Overwhelmed Border Officials Has Left Migrants in Limbo**\
 `Republicans say the policy helps undocumented immigrants disappear; many immigrants say it has prevented them from following the government’s instructions.`\
-https://nytimes.com/2022/02/14/us/politics/border-immigrants-expedited-asylum.html?searchResultPosition=9
+https://nytimes.com/2022/02/14/us/politics/border-immigrants-expedited-asylum.html?searchResultPosition=8
+
+**A Succession Drama, Chinese Style, Starring Xi Jinping**\
+`As a party congress approaches, it’s increasingly clear that Xi Jinping plans another five-year term. But if he has ideas about a successor, he has hidden them well.`\
+https://nytimes.com/2022/02/14/world/asia/china-xi-jinping.html?searchResultPosition=9
 
 **A Plea for Help After a Quarter-Century in a ‘Penal Tomb’**\
 `Dennis Hope, who has been held in solitary confinement in a Texas prison for more than half his life, asked the Supreme Court to set limits on prolonged isolation.`\
