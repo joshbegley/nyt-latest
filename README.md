@@ -2,7 +2,7 @@
 `The protests in Canada’s capital enter their third week, snarling traffic and cutting off access to the country’s Parliament, Supreme Court and the prime minister’s office.`\
 https://nytimes.com/video/world/canada/100000008209149/trudeau-canada-protest-live.html?searchResultPosition=1
 
-**New Zealand Anti-Vaccine Protesters Undeterred by Loud Music**\
+**New Zealand Anti-Vaccine Mandate Protesters Undeterred by Loud Music**\
 `Officials blasted a playlist of polarizing hits in an attempt to disperse approximately 3,000 demonstrators who were camped in front of Parliament. Many responded by dancing and singing.`\
 https://nytimes.com/video/world/australia/100000008208977/anti-vaccine-protesters-music-new-zealand.html?searchResultPosition=2
 
