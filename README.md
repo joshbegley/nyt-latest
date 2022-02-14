@@ -2,8 +2,8 @@
 `For many cities, the Games make no economic sense. National pride and an enthusiasm for building transportation infrastructure change the equation for Beijing.`\
 https://nytimes.com/2022/02/14/business/economy/olympics-china-economics.html?searchResultPosition=1
 
-**The auto industry restarts production after Ambassador Bridge is cleared.**\
-`But the industry might not return to normal for days and will still face a chronic chip shortage that has reduced production around the world.`\
+**Auto Production Restarts After the Ambassador Bridge Is Cleared**\
+`But the industry might not return to normal for days, and it still faces a chronic chip shortage that has stunted global production.`\
 https://nytimes.com/2022/02/14/business/canada-protest-auto-supply-chain.html?searchResultPosition=2
 
 **Nicaragua Seizes Universities, Inching Toward Dictatorship**\
