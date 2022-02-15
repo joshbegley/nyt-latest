@@ -1,4 +1,4 @@
-**Stocks rally after Russia announces it will withdraw troops from Ukraine.**\
+**Stocks rally after Russia announces it will withdraw stroops from Ukraine border.**\
 `The military standoff, which had dragged Wall Street lower in recent days, showed signs of de-escalating, easing concerns over disruptions in global energy supplies.`\
 https://nytimes.com/2022/02/15/business/stocks-bonds-wall-street.html?searchResultPosition=1
 
@@ -22,19 +22,19 @@ https://nytimes.com/2022/02/15/movies/hercule-poirot-agatha-christie-kenneth-bra
 `Recent commercial real estate transactions in New York.`\
 https://nytimes.com/2022/02/15/business/new-york-commercial-real-estate.html?searchResultPosition=6
 
+**Karen Chen of the U.S. falls on a triple loop.**\
+`By Juliet Macur`\
+https://nytimes.com/2022/02/15/sports/olympics/karen-chen-figure-skating-fall.html?searchResultPosition=7
+
 **Jurors will continue to deliberate in Sarah Palin’s libel case against The Times.**\
 `A federal judge said Monday that he planned to dismiss the case, ruling that Ms. Palin’s legal team had failed to meet the high legal standard required to prove that the newspaper defamed her.`\
-https://nytimes.com/2022/02/15/business/media/sarah-palin-new-york-times.html?searchResultPosition=7
+https://nytimes.com/2022/02/15/business/media/sarah-palin-new-york-times.html?searchResultPosition=8
 
 **Elon Musk quietly donated nearly $6 billion last year. Where did it go?**\
 `Mr. Musk gave just over five million shares of Tesla to charity in November, making him the second-biggest donor last year, behind only Bill Gates and Melinda French Gates.`\
-https://nytimes.com/2022/02/15/business/elon-musk-tesla-charity.html?searchResultPosition=8
+https://nytimes.com/2022/02/15/business/elon-musk-tesla-charity.html?searchResultPosition=9
 
 **Who Got Elon Musk’s Billions?**\
 `The Tesla chief quietly disclosed a huge donation, but didn’t say where it went.`\
-https://nytimes.com/2022/02/15/business/dealbook/elon-musk-billion-philanthropy.html?searchResultPosition=9
-
-**California Athletes to Watch at the Olympics This Week**\
-`The Golden State sent more competitors to the Beijing Games than any other state.`\
-https://nytimes.com/2022/02/15/us/california-athletes-olympics.html?searchResultPosition=10
+https://nytimes.com/2022/02/15/business/dealbook/elon-musk-billion-philanthropy.html?searchResultPosition=10
 
