@@ -22,7 +22,7 @@ https://nytimes.com/2022/02/15/us/politics/jan-6-subpoenas-trump.html?searchResu
 `Now that Facebook has renamed itself Meta, that’s what employees will be known as, the company said.`\
 https://nytimes.com/2022/02/15/technology/metamates-meta-facebook.html?searchResultPosition=6
 
-**P.J. O’Rourke, Outspoken Political Satirist, Dies at 74**\
+**P.J. O’Rourke, Conservative Political Satirist, Dies at 74**\
 `In magazine and newspaper articles and best sellers, he was a voice from the right skewering whatever in government or culture he thought needed it.`\
 https://nytimes.com/2022/02/15/books/pj-orourke-dead.html?searchResultPosition=7
 
