@@ -1,5 +1,5 @@
 **Israeli Leader Meets Bahraini Counterpart, Signaling Regional Shift**\
-`The trip by Naftali Bennett to the kingdom, the first official visit by an Israeli prime minister, showcased growing ties between his country and several Arab governments.`\
+`The trip to the kingdom by Naftali Bennett, the first official visit by an Israeli prime minister, showcased growing ties between his country and several Arab governments.`\
 https://nytimes.com/2022/02/15/world/middleeast/israel-bahrain-naftali-bennett-official-visit.html?searchResultPosition=1
 
 **Travel’s Theme for 2022? ‘Go Big’**\
