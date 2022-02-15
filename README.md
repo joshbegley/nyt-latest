@@ -26,8 +26,8 @@ https://nytimes.com/2022/02/14/arts/television/the-gilded-age-black-history.html
 `Claire Rimkus’s puzzle sports a fabulous theme.`\
 https://nytimes.com/2022/02/14/crosswords/daily-puzzle-2022-02-15.html?searchResultPosition=7
 
-**Mikaela Shiffrin competes for first time in Olympic downhill skiing.**\
-`The event is Shiffrin’s weakest, but her goal has been to race in all five alpine events at these Games.`\
+**Corrine Suter of Switzerland wins gold in Olympic downhill skiing.**\
+`Mikaela Shiffrin finished 18th in her weakest event at these Games.`\
 https://nytimes.com/2022/02/14/sports/olympics/mikaela-shiffrin-downhill-skiing.html?searchResultPosition=8
 
 **Husband in $3.6 Billion Bitcoin Case Held While Wife Gets Bond**\
