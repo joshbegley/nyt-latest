@@ -30,9 +30,9 @@ https://nytimes.com/2022/02/14/arts/television/the-gilded-age-black-history.html
 `Claire Rimkus’s puzzle sports a fabulous theme.`\
 https://nytimes.com/2022/02/14/crosswords/daily-puzzle-2022-02-15.html?searchResultPosition=8
 
-**Corrine Suter of Switzerland wins gold in Olympic downhill skiing.**\
-`Mikaela Shiffrin finished 18th in her weakest event at these Games.`\
-https://nytimes.com/2022/02/14/sports/olympics/mikaela-shiffrin-downhill-skiing.html?searchResultPosition=9
+**Corinne Suter of Switzerland wins gold in Olympic downhill skiing.**\
+`Mikaela Shiffrin raced in the event for her first time at an Olympics Games. She finished in 18th place.`\
+https://nytimes.com/2022/02/14/sports/olympics/mikaela-shiffrin-corinne-suter-downhill-skiing.html?searchResultPosition=9
 
 **Husband in $3.6 Billion Bitcoin Case Held While Wife Gets Bond**\
 `A judge appeared more concerned by the flight risk posed by Ilya Lichtenstein than by his wife, Heather Morgan, in a case accusing them of a sweeping scheme to launder stolen cryptocurrency.`\
