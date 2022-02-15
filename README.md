@@ -24,7 +24,7 @@ https://nytimes.com/2022/02/15/business/media/super-bowl-2022-ratings.html?searc
 
 **Former Honduras President Detained**\
 `Police surrounded Juan Orlando Hernández’s home after the government got an extradition request from the U.S., where he has been accused of having ties to drug traffickers.`\
-https://nytimes.com/2022/02/15/world/americas/honduras-juan-orlando-hernandez.html?searchResultPosition=7
+https://nytimes.com/2022/02/15/world/americas/honduras-president-juan-orlando-hernandez-detained.html?searchResultPosition=7
 
 **N.Y.’s attorney general recovers $400,000 for consumers who say they were misled by testing labs.**\
 `As demand for coronavirus tests surged, some companies offered expedited testing but failed to provide results as fast as promised, officials said.`\
