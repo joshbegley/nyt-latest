@@ -22,7 +22,7 @@ https://nytimes.com/2022/02/15/health/fda-califf-senate-vote.html?searchResultPo
 `Linus Sebastian started out making wacky videos. Now he employs fashion designers and logistics experts.`\
 https://nytimes.com/2022/02/15/technology/linus-sebastian-youtube-company.html?searchResultPosition=6
 
-**Bar Tulix, Mexican in the Former Burger & Barrel Space, Will Open in SoHo**\
+**Bar Tulix to Serve Mexican in the Former Burger & Barrel Space in Soho**\
 `A new location of Charles Pan-fried Chicken, options at the Moynihan Food Hall, and more restaurant news.`\
 https://nytimes.com/2022/02/15/dining/nyc-restaurant-news.html?searchResultPosition=7
 
