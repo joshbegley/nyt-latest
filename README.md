@@ -24,7 +24,7 @@ https://nytimes.com/2022/02/15/sports/olympics/kamila-valieva-short-program.html
 
 **Office Lobbies Get Security Makeover, but Not One You Will See**\
 `Subtle changes — like mobile apps that will replace ID badges for workers and visitors — are meant to ease the flow at the turnstile while minimizing contact.`\
-https://nytimes.com/2022/02/15/business/office-return-lobby-security.html?searchResultPosition=7
+https://nytimes.com/2022/02/15/business/contactless-office-lobby-return-to-work.html?searchResultPosition=7
 
 **Spring Bags in a Rainbow of Hues**\
 `This season, try an eye-catching tote in yellow, green or violet.`\
