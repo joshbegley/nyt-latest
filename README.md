@@ -12,7 +12,7 @@ https://nytimes.com/2022/02/14/world/americas/justin-trudeau-emergencies-act-can
 
 **Prosecutor Outlines Arbery Killers’ Use of Racial Slurs**\
 `The three white men are facing federal hate crime charges in Mr. Arbery’s death. In opening arguments, their lawyers said that they were motivated by concern about crime in their South Georgia neighborhood.`\
-https://nytimes.com/2022/02/14/us/prosecutor-outlines-arbery-killers-use-of-racial-slurs.html?searchResultPosition=4
+https://nytimes.com/2022/02/14/us/prosecutor-arbery-killers-racial-slurs.html?searchResultPosition=4
 
 **Killing of Christina Yuna Lee Heightens Safety Fears in Chinatown**\
 `Ms. Lee, who was described as “irreplaceable,” was stabbed to death in her apartment after a man followed her into her building.`\
