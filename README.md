@@ -10,8 +10,8 @@ https://nytimes.com/slideshow/2022/02/14/homepage/14ukraine-unity-fader.html?sea
 `Jared Isaacman, who flew in the company’s capsule last year, is chartering a repeat voyage that will expose the space-suited crew to space.`\
 https://nytimes.com/2022/02/14/science/spacex-spacewalk-tourists.html?searchResultPosition=3
 
-**Japan’s Economy Expanded in 2021 for the First Time in Three Years**\
-`Consumers came out in droves as the virus nearly disappeared in the fourth quarter of 2021, but the advent of Omicron makes another three-month contraction likely.`\
+**Japan’s Economy Surged in the Brief Window Before Omicron**\
+`Consumers came out in droves as the virus nearly disappeared in the fourth quarter of 2021, but the advent of the new variant makes another contraction likely.`\
 https://nytimes.com/2022/02/14/business/japan-economy-gdp-covid.html?searchResultPosition=4
 
 **Trudeau Declares Rare Public Emergency to Quell Protests**\
