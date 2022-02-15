@@ -1,4 +1,4 @@
-**Stocks rally after Russia announces it will withdraw stroops from Ukraine border.**\
+**Stocks rally after Russia says it will withdraw some troops from Ukraine’s border.**\
 `The military standoff, which had dragged Wall Street lower in recent days, showed signs of de-escalating, easing concerns over disruptions in global energy supplies.`\
 https://nytimes.com/2022/02/15/business/stocks-bonds-wall-street.html?searchResultPosition=1
 
@@ -23,7 +23,7 @@ https://nytimes.com/2022/02/15/movies/hercule-poirot-agatha-christie-kenneth-bra
 https://nytimes.com/2022/02/15/business/new-york-commercial-real-estate.html?searchResultPosition=6
 
 **Karen Chen of the U.S. falls on a triple loop.**\
-`By Juliet Macur`\
+`It was the same jump she fell on during the team competition.`\
 https://nytimes.com/2022/02/15/sports/olympics/karen-chen-figure-skating-fall.html?searchResultPosition=7
 
 **Jurors will continue to deliberate in Sarah Palin’s libel case against The Times.**\
