@@ -26,7 +26,7 @@ https://nytimes.com/2022/02/15/nyregion/sandy-hook-families-settlement.html?sear
 `The Berlin International Film Festival is honoring the superstar of art house cinema with a lifetime achievement award. She took us through some career highlights.`\
 https://nytimes.com/2022/02/15/movies/isabelle-huppert-career.html?searchResultPosition=7
 
-**Indonesian Teacher Is Sentenced to Life for Yearslong Child Abuse**\
+**Indonesian Teacher Gets Life in Prison for Years of Raping Students**\
 `In a case that outraged the nation, the founder of a school was convicted of raping 13 students, fathering nine children with them.`\
 https://nytimes.com/2022/02/15/world/asia/indonesia-teacher-child-sex-abuse.html?searchResultPosition=8
 
