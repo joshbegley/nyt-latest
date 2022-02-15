@@ -6,8 +6,8 @@ https://nytimes.com/2022/02/15/learning/word-of-the-day-illuminate.html?searchRe
 `Juan Orlando Hernández, who stepped down as president last month, was recently accused in a drug-trafficking case in federal court in New York.`\
 https://nytimes.com/2022/02/15/world/americas/honduras-president-extradition.html?searchResultPosition=2
 
-**The I.O.C. responds to criticism after panel clears Russian skater to compete.**\
-`If Kamila Valieva wins a medal on Tuesday, as expected, none of the top three finishers would get their medals until a doping investigation is complete.`\
+**The I.O.C. responds to criticism after a panel clears a Russian skater to compete.**\
+`If Kamila Valieva wins a medal on Tuesday as expected, none of the top three finishers will receive their medals until a doping investigation is complete.`\
 https://nytimes.com/2022/02/15/sports/olympics/olympic-committee-russian-figure-skater.html?searchResultPosition=3
 
 **Tough Talk and Smoothies**\
