@@ -2,7 +2,7 @@
 `The move is a blow to the western state of Michoacan in Mexico, which exports roughly $3 billion worth of the fruit annually.`\
 https://nytimes.com/2022/02/15/business/us-mexico-avocado-ban.html?searchResultPosition=1
 
-**Kamila Valieva had three drugs that could be used to treat heart conditions in her sample. Only one is banned.**\
+**Kamila Valieva had three substances that could be used to treat heart conditions in her sample. Only one is banned.**\
 `The medications were revealed in a document filed in her arbitration hearing on Sunday.`\
 https://nytimes.com/2022/02/14/sports/olympics/valieva-drug-test-heart-medications.html?searchResultPosition=2
 
