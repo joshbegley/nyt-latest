@@ -24,7 +24,7 @@ https://nytimes.com/interactive/2022/02/15/well/eat/food-nutrition-aging.html?se
 
 **On Ukraine, U.S. and Russia Wage Signaling War to Avert Actual War**\
 `Each side is trying to convince the other that the price of conflict is too high. It is a complex game played with deliberate ambiguity, raising the risk of lethal miscalculation.`\
-https://nytimes.com/2022/02/15/world/europe/putin-biden-signals-interpreter.html?searchResultPosition=7
+https://nytimes.com/2022/02/15/world/europe/us-russia-ukraine-war.html?searchResultPosition=7
 
 **Transcript: Ezra Klein Interviews Janet Lansbury**\
 `A conversation with the parenting expert.`\
