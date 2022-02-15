@@ -8,11 +8,11 @@ https://nytimes.com/2022/02/15/learning/the-winners-of-our-seventh-annual-studen
 
 **Julia Fox and the Ultimate Revenge Dress**\
 `LaQuan Smith gets a lift from an unexpected source, and Coach channels Kurt Cobain.`\
-https://nytimes.com/2022/02/15/style/julia-fox-laquan-smith-coach-tory-burch.html?searchResultPosition=3
+https://nytimes.com/2022/02/15/style/julia-fox-laquan-smith-new-york-fashion-week.html?searchResultPosition=3
 
 **New York Fashion Week Style: From Midriffs to Snow Boots**\
 `The kickoff of the fall 2022 ready-to-wear shows in New York City brought along all the seasons.`\
-https://nytimes.com/2022/02/15/style/new-york-fashion-week-style-from-midriffs-to-snow-boots.html?searchResultPosition=4
+https://nytimes.com/2022/02/15/style/new-york-fashion-week-style.html?searchResultPosition=4
 
 **SculptureCenter Names New Director**\
 `Sohrab Mohebbi, 41, a curator at large for the center, steps into the role vacated by Christian Rattemeyer, who departed after less than a year.`\
