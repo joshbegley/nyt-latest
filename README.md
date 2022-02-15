@@ -36,5 +36,5 @@ https://nytimes.com/2022/02/15/sports/olympics/karen-chen-figure-skating-fall.ht
 
 **Jurors will continue to deliberate in Sarah Palin’s libel case against The Times.**\
 `A federal judge said Monday that he planned to dismiss the case, ruling that Ms. Palin’s legal team had failed to meet the high legal standard required to prove that the newspaper defamed her.`\
-https://nytimes.com/2022/02/15/business/media/sarah-palin-new-york-times.html?searchResultPosition=10
+https://nytimes.com/2022/02/15/business/media/sarah-palin-new-york-times-jurors.html?searchResultPosition=10
 
