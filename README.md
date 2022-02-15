@@ -8,7 +8,7 @@ https://nytimes.com/2022/02/15/us/politics/us-russia-putin-intelligence.html?sea
 
 **Jan. 6 Inquiry Subpoenas 6 Tied to False Pro-Trump Elector Effort**\
 `The committee is digging deeper into a plan by former President Donald J. Trump’s allies to reverse his election loss in key states by sending fake slates of electors who would say he won.`\
-https://nytimes.com/2022/02/15/us/politics/jan-6-inquiry-subpoenas-6-tied-to-false-pro-trump-elector-effort.html?searchResultPosition=3
+https://nytimes.com/2022/02/15/us/politics/jan-6-subpoenas-trump.html?searchResultPosition=3
 
 **Out With the Facebookers. In With the Metamates.**\
 `Now that Facebook has renamed itself Meta, that’s what employees will be known as, the company said.`\
