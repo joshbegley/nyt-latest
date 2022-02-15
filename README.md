@@ -26,15 +26,15 @@ https://nytimes.com/2022/02/15/travel/trends-spring-2022.html?searchResultPositi
 `The comedian has made this Upper East Side apartment his own with entertainment and sports memorabilia — and lots of books.`\
 https://nytimes.com/2022/02/15/realestate/how-alex-edelman-grew-to-love-his-familys-condo-shvach-sofa-and-all.html?searchResultPosition=7
 
+**With Indoor Ski Resorts and Curling Schools, China Lifts Xi’s Sports Dream**\
+`China said it succeeded on a vow by Xi Jinping, the country’s top leader, to nurture millions of winter sports enthusiasts. But will the interest last after the Winter Games end?`\
+https://nytimes.com/2022/02/15/world/asia/olympics-china-snowsports.html?searchResultPosition=8
+
 **A Fast-Moving Sport Slogs Through Two-Nation Dominance**\
 `Women’s hockey offers plenty of thrills, but the parity it has long promised has not yet materialized.`\
-https://nytimes.com/2022/02/15/sports/olympics/hockey-us-canada.html?searchResultPosition=8
+https://nytimes.com/2022/02/15/sports/olympics/hockey-us-canada.html?searchResultPosition=9
 
 **4 Bed, 3 Bath, No Garage Door: The Unlikely Woes Holding Up Home Building**\
 `Supply-chain complications are giving the industry and buyers fits.`\
-https://nytimes.com/2022/02/15/upshot/homes-garage-door-shortage.html?searchResultPosition=9
-
-**With Indoor Ski Resorts and Curling Schools, China Lifts Xi’s Sports Dream**\
-`China said it succeeded on a vow by Xi Jinping, the country’s top leader, to nurture millions of winter sports enthusiasts. But will the interest last after the Winter Games end?`\
-https://nytimes.com/2022/02/15/world/asia/olympics-china-snowsports.html?searchResultPosition=10
+https://nytimes.com/2022/02/15/upshot/homes-garage-door-shortage.html?searchResultPosition=10
 
