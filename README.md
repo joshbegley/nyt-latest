@@ -22,19 +22,19 @@ https://nytimes.com/2022/02/15/technology/metamates-meta-facebook.html?searchRes
 `In magazine and newspaper articles and best sellers, he was a voice from the right skewering whatever in government or culture he thought needed it.`\
 https://nytimes.com/2022/02/15/books/pj-orourke-dead.html?searchResultPosition=6
 
+**Coachella plans to return with no masks or vaccines required.**\
+`Coachella, one of the biggest music festivals of the pre-pandemic era, once drew up to 125,000 fans a day to Southern California.`\
+https://nytimes.com/2022/02/15/arts/coachella-masks-vaccines-covid.html?searchResultPosition=7
+
 **Prince Andrew’s Deal With Accuser Leaves Many Questions Lingering**\
 `One question is who will pay for the settlement with the woman who accused him of raping her as a teen. But wider questions about his finances and behavior also dog the royal family.`\
-https://nytimes.com/2022/02/15/world/europe/prince-andrew-settlement-epstein.html?searchResultPosition=7
+https://nytimes.com/2022/02/15/world/europe/prince-andrew-settlement-epstein.html?searchResultPosition=8
 
 **Where Did the Cool Kids Party During Fashion Week?**\
 `LaQuan Smith, Christian Siriano and Document Journal drew fun crowds.`\
-https://nytimes.com/2022/02/15/style/where-did-the-cool-kids-party-during-fashion-week.html?searchResultPosition=8
+https://nytimes.com/2022/02/15/style/where-did-the-cool-kids-party-during-fashion-week.html?searchResultPosition=9
 
 **Russian Invasion of Ukraine Still ‘Distinctly Possible,’ Biden Says**\
 `President Biden said his administration had not verified Russia’s claim that it was pulling troops back from Ukraine’s border and vowed to pursue a diplomatic resolution to prevent an invasion.`\
-https://nytimes.com/video/us/politics/100000008211323/biden-ukraine-crisis-russia-troops.html?searchResultPosition=9
-
-**What Is Going on With Kanye West? A Timeline**\
-`The artist now known as Ye has vacillated between begging Kim Kardashian to take him back and publicly criticizing her — all while briefly dating someone new.`\
-https://nytimes.com/2022/02/15/style/kanye-west-kim-kardashian-divorce-timeline.html?searchResultPosition=10
+https://nytimes.com/video/us/politics/100000008211323/biden-ukraine-crisis-russia-troops.html?searchResultPosition=10
 
