@@ -8,7 +8,7 @@ https://nytimes.com/2022/02/15/climate/sea-level-rise-global-warming.html?search
 
 **The Super Bowl drew 112 million viewers, the most in five years.**\
 `The halftime show attracted a bigger audience than the year before.`\
-https://nytimes.com/2022/02/15/business/media/super-bowl-ratings.html?searchResultPosition=3
+https://nytimes.com/2022/02/15/business/media/super-bowl-2022-ratings.html?searchResultPosition=3
 
 **Former Honduras President Detained**\
 `Police surrounded Juan Orlando Hernández’s home after the government got an extradition request from the U.S., where he has been accused of having ties to drug traffickers.`\
