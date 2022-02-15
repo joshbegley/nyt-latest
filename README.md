@@ -1,40 +1,40 @@
+**U.S. Arms Sent to Ukraine Would Blunt but Not Stop a Russian Invasion**\
+`The effectiveness of the weapons against the better-equipped Russian Army depends on what Moscow orders its troops to do.`\
+https://nytimes.com/2022/02/15/us/politics/us-ukraine-weapons.html?searchResultPosition=1
+
+**A ‘Fair Fares’ Program So Exclusive, Barely Anyone Can Qualify For It**\
+`A city program gives 260,000 low-income New Yorkers half-price transit rides. Advocates and transit leaders are calling on the mayor to expand his investment.`\
+https://nytimes.com/2022/02/15/nyregion/nyc-mta-discount-fare.html?searchResultPosition=2
+
+**‘Heiresses’ Adds Up the Melancholy and Danger of Inherited Wealth**\
+`Ranging from the 17th century to the 21st, Laura Thompson’s book examines the lives of ostensibly fortunate daughters.`\
+https://nytimes.com/2022/02/15/books/review-heiresses-laura-thompson.html?searchResultPosition=3
+
 **‘Icahn: The Restless Billionaire’ Review: Right on the Money**\
 `The war stories of the famed financier Carl C. Icahn power this deft documentary portrait.`\
-https://nytimes.com/2022/02/15/movies/icahn-the-restless-billionaire-review.html?searchResultPosition=1
+https://nytimes.com/2022/02/15/movies/icahn-the-restless-billionaire-review.html?searchResultPosition=4
 
 **Tyson Foods will ease its mask rules at ‘some’ meat processing plants.**\
 `The meatpacking giant said that fully vaccinated workers at “some facilities” could begin to remove their masks at work, but it did not say which plants or offices were affected.`\
-https://nytimes.com/2022/02/15/business/tyson-foods-mask-mandate.html?searchResultPosition=2
+https://nytimes.com/2022/02/15/business/tyson-foods-mask-mandate.html?searchResultPosition=5
 
 **In France, a Racist Conspiracy Theory Edges Into the Mainstream**\
 `Valérie Pécresse, the center-right presidential candidate, used the phrase ‘great replacement’ in a speech punctuated with coded attacks on immigrants and Muslims.`\
-https://nytimes.com/2022/02/15/world/europe/france-elections-pecresse-great-replacement.html?searchResultPosition=3
+https://nytimes.com/2022/02/15/world/europe/france-elections-pecresse-great-replacement.html?searchResultPosition=6
 
 **How We Are Failing Mentally Ill People**\
 `Readers describe a mental health system that one calls “inhumane, disgraceful.” Also: Columnists too downbeat on President Biden.`\
-https://nytimes.com/2022/02/15/opinion/letters/mental-illness.html?searchResultPosition=4
+https://nytimes.com/2022/02/15/opinion/letters/mental-illness.html?searchResultPosition=7
 
 **Your Body Knows You’re Burned Out**\
 `Here’s how to recognize the physical symptoms of work-related stress — and what to do about them.`\
-https://nytimes.com/2022/02/15/well/live/burnout-work-stress.html?searchResultPosition=5
+https://nytimes.com/2022/02/15/well/live/burnout-work-stress.html?searchResultPosition=8
 
 **Navalny Appears in Penal Camp Court to Face More Charges**\
 `Aleksei A. Navalny, the jailed Russian opposition leader, faces charges of embezzlement and contempt of court that could extend his time in jail by 15 years.`\
-https://nytimes.com/2022/02/15/world/europe/alexsei-navalny-russia-court.html?searchResultPosition=6
+https://nytimes.com/2022/02/15/world/europe/alexsei-navalny-russia-court.html?searchResultPosition=9
 
 **Settlement Reached With Gun Maker in Sandy Hook Massacre**\
 `Victims’ families had sued the maker of the AR-15-style weapon used in the attack at an elementary school in Newtown, Conn.`\
-https://nytimes.com/2022/02/15/nyregion/sandy-hook-families-settlement.html?searchResultPosition=7
-
-**Isabelle Huppert Doesn’t Watch Her Past Films, but She Will Discuss Them**\
-`The Berlin International Film Festival is honoring the superstar of art house cinema with a lifetime achievement award. She took us through some career highlights.`\
-https://nytimes.com/2022/02/15/movies/isabelle-huppert-career.html?searchResultPosition=8
-
-**Indonesian Teacher Gets Life in Prison for Years of Raping Students**\
-`In a case that outraged the nation, the founder of a school was convicted of raping 13 students, fathering nine children with them.`\
-https://nytimes.com/2022/02/15/world/asia/indonesia-teacher-child-sex-abuse.html?searchResultPosition=9
-
-**4 Dead and Many Missing After Spanish Fishing Vessel Sinks in Atlantic**\
-`A fishing boat carrying 24 people sank about 280 miles off the coast of Newfoundland, Canada, early Tuesday morning, Spanish officials said.`\
-https://nytimes.com/2022/02/15/world/europe/spanish-fishing-boat-sinks-canada.html?searchResultPosition=10
+https://nytimes.com/2022/02/15/nyregion/sandy-hook-families-settlement.html?searchResultPosition=10
 
