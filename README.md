@@ -10,7 +10,7 @@ https://nytimes.com/2022/02/14/crosswords/daily-puzzle-2022-02-15.html?searchRes
 `The downhill is Shiffrin’s weakest event, but her goal is to race in all five alpine events at these Games.`\
 https://nytimes.com/2022/02/14/sports/olympics/mikaela-shiffrin-downhill-skiing.html?searchResultPosition=3
 
-**Husband in $3.6 Billion Bitcoin Case Held While Wife Gets Bail**\
+**Husband in $3.6 Billion Bitcoin Case Held While Wife Gets Bond**\
 `A judge appeared more concerned by the flight risk posed by Ilya Lichtenstein than by his wife, Heather Morgan, in a case accusing them of a sweeping scheme to launder stolen cryptocurrency.`\
 https://nytimes.com/2022/02/14/us/politics/ilya-lichtenstein-heather-morgan-bitcoin-bail.html?searchResultPosition=4
 
