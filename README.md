@@ -4,7 +4,7 @@ https://nytimes.com/2022/02/15/health/fda-califf-senate-vote.html?searchResultPo
 
 **This YouTube Star Is Also a Retail Empire**\
 `Linus Sebastian started out making wacky videos. Now he employs fashion designers and logistics experts.`\
-https://nytimes.com/2022/02/15/technology/creator-economy-linus-media-group.html?searchResultPosition=2
+https://nytimes.com/2022/02/15/technology/linus-sebastian-youtube-company.html?searchResultPosition=2
 
 **Bar Tulix, Mexican in the Former Burger & Barrel Space, to Open in SoHo**\
 `A new location of Charles Pan-fried Chicken, options at the Moynihan Food Hall, and more restaurant news.`\
