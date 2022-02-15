@@ -7,7 +7,7 @@ https://nytimes.com/2022/02/15/sports/olympics/anna-shcherbakova-russian-skater.
 https://nytimes.com/2022/02/15/sports/olympics/alexandra-trusova-roc-short-program.html?searchResultPosition=2
 
 **Stocks rebound after Russia says it will withdraw some troops from Ukraine’s border.**\
-`The military standoff, which had dragged Wall Street lower in recent days, showed signs of de-escalating, easing concerns over disruptions in global energy supplies.`\
+`The military standoff, which had dragged Wall Street lower in recent days, showed signs of de-escalating, easing concerns over disruptions of global energy supplies.`\
 https://nytimes.com/2022/02/15/business/stocks-bonds-wall-street.html?searchResultPosition=3
 
 **Kamila Valieva lands in first place, despite a stumble.**\
