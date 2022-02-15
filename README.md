@@ -19,7 +19,7 @@ https://nytimes.com/2022/02/15/sports/olympics/alexandra-trusova-roc-short-progr
 https://nytimes.com/2022/02/15/business/stocks-bonds-wall-street.html?searchResultPosition=5
 
 **Kamila Valieva lands in first place, despite a stumble.**\
-`By Juliet Macur`\
+`She was still far ahead of her competitors.`\
 https://nytimes.com/2022/02/15/sports/olympics/kamila-valieva-short-program.html?searchResultPosition=6
 
 **Office Lobbies Get Security Makeover, but Not One You Will See**\
