@@ -16,7 +16,7 @@ https://nytimes.com/2022/02/15/sports/olympics/alexandra-trusova-roc-short-progr
 
 **Stocks rebound after Russia says it will withdraw some troops from Ukraine’s border.**\
 `The military standoff, which had dragged Wall Street lower in recent days, showed signs of de-escalating, easing concerns over disruptions of global energy supplies.`\
-https://nytimes.com/2022/02/15/business/stocks-bonds-wall-street.html?searchResultPosition=5
+https://nytimes.com/2022/02/15/business/stocks-wall-street-russia-ukraine.html?searchResultPosition=5
 
 **Kamila Valieva lands in first place, despite a stumble.**\
 `She was still far ahead of her competitors.`\
