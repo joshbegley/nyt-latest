@@ -1,4 +1,4 @@
-**Coastal Sea Levels in U.S. to Rise a Foot by 2050, Study Finds**\
+**Coastal Sea Levels in U.S. to Rise a Foot by 2050, Study Confirms**\
 `More precise measurements indicate that the increase will happen “no matter what we do about emissions.”`\
 https://nytimes.com/2022/02/15/climate/sea-level-rise-global-warming.html?searchResultPosition=1
 
