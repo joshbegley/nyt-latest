@@ -6,8 +6,8 @@ https://nytimes.com/2022/02/14/us/louisville-mayoral-candidate-craig-greenberg-s
 `Corrections that appeared in print on Tuesday, Feb. 15, 2022.`\
 https://nytimes.com/2022/02/14/pageoneplus/editors-note-feb-15-2022.html?searchResultPosition=2
 
-**Stripped of Election Oversight, She’s Running for Colorado Secretary of State**\
-`Tina Peters, the Mesa County clerk, joins the ranks of 2020 election deniers who are seeking to oversee their states’ elections.`\
+**2020 Election Denier Will Run for Top Elections Position in Colorado**\
+`Tina Peters, the Mesa County clerk, has been stripped of her county election oversight but is seeking to oversee her state’s elections as secretary of state.`\
 https://nytimes.com/2022/02/14/us/tina-peters-colorado-election.html?searchResultPosition=3
 
 **Canada to Expand Oversight of Crowdfunding Platforms**\
