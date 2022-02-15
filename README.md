@@ -22,7 +22,7 @@ https://nytimes.com/2022/02/15/podcasts/the-daily/ukraine-russia-invasion.html?s
 `The people around me came into sharper focus, by which I mean their fears, struggles and triumphs. `\
 https://nytimes.com/2022/02/15/opinion/blindness-friendship.html?searchResultPosition=6
 
-**How the Ukraine Conflict Could Reshape Europe’s Reliance on Russia**\
+**How a Ukraine Conflict Could Reshape Europe’s Reliance on Russia**\
 `Europe needs Russian natural gas to help heat homes, generate electricity and power factories — a crucial factor in the diplomatic crisis.`\
 https://nytimes.com/interactive/2022/02/15/business/energy-environment/russia-gas-europe-ukraine.html?searchResultPosition=7
 
