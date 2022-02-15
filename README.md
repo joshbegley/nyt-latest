@@ -1,40 +1,40 @@
-**The Joy of Cooking (Insects)**\
-`Climate-conscious cooking means getting creative.`\
-https://nytimes.com/video/opinion/100000007866988/edible-insects-protein.html?searchResultPosition=1
+**How Alex Edelman Grew to Love His Family’s Condo, ‘Shvach’ Sofa and All**\
+`The comedian has made this Upper East Side apartment his own with entertainment and sports memorabilia — and lots of books.`\
+https://nytimes.com/2022/02/15/realestate/how-alex-edelman-grew-to-love-his-familys-condo-shvach-sofa-and-all.html?searchResultPosition=1
 
-**Lesson of the Day: ‘‘Jeuje,’ ‘Zhoosh,’ ‘Zhuzh’: A Word of Many Spellings, and Meanings’**\
-`In this lesson, students will learn about the linguistic evolution of a slang word. Then, they will research the etymology of one of their favorite slang words.`\
-https://nytimes.com/2022/02/15/learning/lesson-plans/lesson-of-the-day-jeuje-zhoosh-zhuzh-a-word-of-many-spellings-and-meanings.html?searchResultPosition=2
+**4 Bed, 3 Bath, No Garage Door: The Unlikely Woes Holding Up Home Building**\
+`Supply-chain complications are giving the industry and buyers fits.`\
+https://nytimes.com/2022/02/15/upshot/homes-garage-door-shortage.html?searchResultPosition=2
 
-**U.S. speedskaters are third in team pursuit, but bronze feels like a letdown.**\
-`The Americans hold the world record in the event, but lost to Russia in the semifinals after a lineup change.`\
-https://nytimes.com/2022/02/14/sports/olympics/speedskating-team-pursuit.html?searchResultPosition=3
+**With Indoor Ski Resorts and Curling Schools, China Lifts Xi’s Sports Dream**\
+`China said it succeeded on a vow by Xi Jinping, the country’s top leader, to nurture millions of winter sports enthusiasts. But will the interest last after the Winter Games end?`\
+https://nytimes.com/2022/02/15/world/asia/olympics-china-snowsports.html?searchResultPosition=3
 
-**A 2,700-Year-Old Figurine Revives a Weighty Mystery**\
-`A bronze statuette recovered from a river in Germany may have been part of an early Scandinavian weight system, some archaeologists believe.`\
-https://nytimes.com/2022/02/15/science/archaeology-germany-tollense-trade.html?searchResultPosition=4
+**‘It Isn’t the Coolest Choice, But I’m Happy Here’**\
+`Alex Edelman’s apartment on the Upper East Side is filled with entertainment and sports memorabilia, but mostly books. Lots and lots of books.`\
+https://nytimes.com/slideshow/2022/02/15/realestate/it-isnt-the-coolest-choice-but-im-happy-here.html?searchResultPosition=4
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/02/15/crosswords/spelling-bee-forum.html?searchResultPosition=5
+**A Fast-Moving Sport Slogs Through Two-Nation Dominance**\
+`Women’s hockey offers plenty of thrills, but the promised parity has not yet materialized.`\
+https://nytimes.com/2022/02/15/sports/olympics/hockey-us-canada.html?searchResultPosition=5
 
-**Wildlife in Winter**\
-`What creatures might you see in the wild where you live right now?`\
-https://nytimes.com/2022/02/15/learning/wildlife-in-winter.html?searchResultPosition=6
+**Who Is the Real China? Eileen Gu or the Chained Woman?**\
+`The women’s starkly different circumstances — celebrated vs. silenced — reflect that to the Chinese state everyone is a tool that serves a purpose until it does not.`\
+https://nytimes.com/2022/02/15/business/china-eileen-gu-peng-shuai-chained-woman.html?searchResultPosition=6
 
-**On Mars, a NASA Rover and Helicopter’s Year of Surprise and Discovery**\
-`The past 12 months on Mars have been both “exciting” and “exhausting” for scientists and engineers minding Perseverance and Ingenuity. And the mission is only really getting started.`\
-https://nytimes.com/2022/02/15/science/mars-perseverance-one-year.html?searchResultPosition=7
+**The New Secret Chicken Recipe? Animal Cells.**\
+`Here’s an early taste of the laboratory-grown meat that companies are racing to bring to market, and a look at the questions it raises about how we feed ourselves.`\
+https://nytimes.com/2022/02/15/dining/cell-cultured-meat.html?searchResultPosition=7
 
-**NASA Isn’t the Only Space Program Celebrating a Year at Mars**\
-`China and the United Arab Emirates have also had a successful 12 months on the red planet.`\
-https://nytimes.com/2022/02/15/science/mars-china-emirates.html?searchResultPosition=8
+**A World Away From Ukraine, Russia Is Courting Latin America**\
+`The Ukraine crisis has revived a struggle over Latin America between the U.S. and Russia, as Vladimir V. Putin seeks greater influence in the region.`\
+https://nytimes.com/2022/02/15/world/americas/russia-putin-latin-america-bolsonaro.html?searchResultPosition=8
 
-**Stephen Colbert Sets the Mood for Valentine’s Day With His Viewers**\
-`“Hey, don’t mind me, I’ll just be over here doing my thang — a long monologue,” Colbert joked.`\
-https://nytimes.com/2022/02/15/arts/television/stephen-colbert-valentines-day.html?searchResultPosition=9
+**How Josh Mandel, Son of Suburban Ohio, Became a Right-Wing Warrior**\
+`The Senate candidate was a rising Republican when he abandoned his moderate roots. Now, those who have watched his transformation wonder if his rhetoric reflects who he really is.`\
+https://nytimes.com/2022/02/15/us/josh-mandel-ohio-trump.html?searchResultPosition=9
 
-**Word of the Day: illuminate**\
-`This word has appeared in 184 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/02/15/learning/word-of-the-day-illuminate.html?searchResultPosition=10
+**The White House Is Taking On Environmental Racism, but It Won’t Mention Race**\
+`Communities of color bear a disproportionate burden from pollution, research shows. But using race to allocate federal help could result in legal problems.`\
+https://nytimes.com/2022/02/15/climate/environmental-justice-race-biden.html?searchResultPosition=10
 
