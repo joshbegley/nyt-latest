@@ -1,5 +1,5 @@
 **Louisville Mayoral Candidate Says Gunman Shot at Him in Campaign Office**\
-`The candidate, Craig Greenberg, was unharmed, but the attack left a bullet hole in his sweater. A suspect was detained, but no motive has been announced.`\
+`The candidate, Craig Greenberg, was unharmed, but the attack left a bullet hole in his sweater. A man was charged with attempted murder, the police said.`\
 https://nytimes.com/2022/02/14/us/louisville-mayoral-candidate-craig-greenberg-shooting.html?searchResultPosition=1
 
 **Editors’ Note: Feb. 15, 2022**\
