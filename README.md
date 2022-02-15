@@ -12,7 +12,7 @@ https://nytimes.com/2022/02/15/well/live/burnout-work-stress.html?searchResultPo
 
 **Navalny Appears in Penal Camp Court to Face More Charges**\
 `Aleksei A. Navalny, the jailed Russian opposition leader, faces charges of embezzlement and contempt of court that could extend his time in jail by 15 years.`\
-https://nytimes.com/2022/02/15/world/europe/navalny-russia-court.html?searchResultPosition=4
+https://nytimes.com/2022/02/15/world/europe/alexsei-navalny-russia-court.html?searchResultPosition=4
 
 **Settlement Reached With Gun Maker in Sandy Hook Massacre**\
 `Victims’ families had sued the maker of the AR-15-style weapon used in the attack at an elementary school in Newtown, Conn.`\
