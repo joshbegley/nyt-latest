@@ -8,7 +8,7 @@ https://nytimes.com/2022/02/16/nyregion/ken-kurson-trump-kushner-plea.html?searc
 
 **TelevisaUnivision Unveils Plans for Streaming Service in Spanish**\
 `It’s called ViX. A free ad-supported tier will start on March 31, and a premium subscription service will follow later this year.`\
-https://nytimes.com/2022/02/16/business/media/televisaunivision-unveils-plans-for-streaming-service-in-spanish.html?searchResultPosition=3
+https://nytimes.com/2022/02/16/business/media/univision-streaming-service-vix.html?searchResultPosition=3
 
 **It’s Stew Time (Unless It’s Not)**\
 `A new recipe for eintopf from Yewande Komolafe, and more recipes for both cold and warmer weather.`\
