@@ -1,40 +1,40 @@
-**Top European Court Rules E.U. Can Freeze Aid to Poland and Hungary**\
-`In a landmark decision, the European Court of Justice cleared the way for the bloc to cut billions in aid on the grounds that members are eroding rule-of-law checks and balances.`\
-https://nytimes.com/2022/02/16/world/europe/eu-court-funds-hungary-poland.html?searchResultPosition=1
+**$1.8 Million Homes in Maine, California and New Mexico**\
+`A contemporary house in Stoneham, a midcentury-modernist home in Pasadena and a pueblo-style retreat in Santa Fe.`\
+https://nytimes.com/2022/02/16/realestate/housing-market-maine-california-new-mexico.html?searchResultPosition=1
 
-**In Orlando, 25 Mysterious Basquiats Come Under the Magnifying Glass**\
-`Vibrant paintings on cardboard said to be by the artist were found in the storage unit of a Hollywood screenwriter. Will a museum show resolve questions about their authenticity — or raise new ones?`\
-https://nytimes.com/2022/02/16/arts/design/basquiat-painting-orlando-mumford-museum.html?searchResultPosition=2
+**What You Get for $1.8 Million**\
+`A contemporary house in Stoneham, Maine; a midcentury-modernist home in Pasadena, Calif.; and a pueblo-style retreat in Santa Fe, N.M.`\
+https://nytimes.com/slideshow/2022/02/16/realestate/what-you-get-for-1-8-million.html?searchResultPosition=2
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/02/16/crosswords/spelling-bee-forum.html?searchResultPosition=3
+**‘I Just Feel the Best When I Wear Them’**\
+`The American figure skater Karen Chen performs in glittering dresses designed and sewn by her mother.`\
+https://nytimes.com/2022/02/16/sports/olympics/karen-chen-figure-skating-dresses.html?searchResultPosition=3
 
-**Word of the Day: ignominious**\
-`This word has appeared in 27 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/02/16/learning/word-of-the-day-ignominious.html?searchResultPosition=4
+**Canaan and North Canaan, Conn.: Once Sleepy, Now Awakening**\
+`The Litchfield County towns used to be considered too remote by many second-home buyers. But thanks to the pandemic — and remote work — that’s changed.`\
+https://nytimes.com/2022/02/16/realestate/canaan-and-north-canaan-conn-once-sleepy-now-awakening.html?searchResultPosition=4
 
-**Late Night Dunks on Trump for Getting Dumped During Tax Season**\
-`“It’s like getting divorced on Christmas Eve,” Jimmy Kimmel joked.`\
-https://nytimes.com/2022/02/16/arts/television/accountants-dump-trump-jimmy-kimmel.html?searchResultPosition=5
+**Beijing Got All Ready for Olympic Curling. But About the Ice …**\
+`The ice makers of Olympic curling are part physicist, part meteorologist, part engineer. They know that creating a stage for a world-class event is all about the process.`\
+https://nytimes.com/2022/02/16/sports/olympics/curling-ice.html?searchResultPosition=5
 
-**How the Quad Jump Is Changing Women’s Figure Skating**\
-`Before the doping scandal, Kamila Valieva was best known for her perfectly executed quadruple jumps. See how she and her Russian teammates have made the quad essential for Olympic gold.`\
-https://nytimes.com/interactive/2022/02/16/sports/olympics/quad-jumps-figure-skating.html?searchResultPosition=6
+**A Conservative Group Pushes Beyond an End to Affirmative Action**\
+`The Pacific Legal Foundation is behind lawsuits that challenge elite public high schools that are changing their admissions policies to diversify their student body.`\
+https://nytimes.com/2022/02/16/us/school-admissions-affirmative-action.html?searchResultPosition=6
 
-**I’m Russian, and My Family Is Ukrainian. War Would Be a Tragedy.**\
-`Conflict between the two countries would travesty centuries of commingling.`\
-https://nytimes.com/2022/02/16/opinion/russia-ukraine-war.html?searchResultPosition=7
+**The Olympians Caught Up in the U.S.-China Rivalry**\
+`American athletes of Chinese descent at the Games are targets of patriotic and even nationalistic sentiment from both countries: sometimes adoring, sometimes hostile.`\
+https://nytimes.com/2022/02/16/world/asia/olympics-china-american-athletes.html?searchResultPosition=7
 
-**Broadcast coverage on Wednesday includes a lot of hockey.**\
-`The top teams in men’s hockey play in the quarterfinals.`\
-https://nytimes.com/2022/02/16/sports/olympics/watch-hockey-biathlon-skiing.html?searchResultPosition=8
+**Living In ... Canaan and North Canaan, Conn.**\
+`The Litchfield County towns were once considered too remote by many second-home buyers. But thanks to the pandemic — and remote work — that’s changed.`\
+https://nytimes.com/slideshow/2022/02/16/realestate/living-in-canaan-and-north-canaan-conn.html?searchResultPosition=8
 
-**Eleven Years After the Sandy Hook Massacre, a $73 Million Settlement**\
-`The deal with Remington, which made the rifle used in the attack, appears to be the largest involving a gun manufacturer and relatives of victims.`\
-https://nytimes.com/2022/02/16/nyregion/sandy-hook-remington.html?searchResultPosition=9
+**5 Monologues, Each a Showcase for Asian American Actors Over 60**\
+`“Out of Time” at the Public Theater is intended to showcase the talents of older actors. “People want to dismiss your stories,” the show’s director says. Not here.`\
+https://nytimes.com/2022/02/16/theater/out-of-time-asian-american-actors.html?searchResultPosition=9
 
-**‘Wolf Play’ Review: What Keeps a Family From Falling to Pieces?**\
-`Hansol Jung’s new play looks at the broken adoption of a little boy who is plucked from South Korea and moved to one American home, then shunted to another.`\
-https://nytimes.com/2022/02/16/theater/wolf-play-review-soho-rep.html?searchResultPosition=10
+**Executives Are Quitting to Spend Time With Family … Really**\
+`At the highest levels of corporate America, top executives are reassessing the role of work in their lives, stepping back and walking away.`\
+https://nytimes.com/2022/02/16/business/executives-quitting.html?searchResultPosition=10
 
