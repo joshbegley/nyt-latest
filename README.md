@@ -4,7 +4,7 @@ https://nytimes.com/2022/02/16/us/politics/biden-immigration-haiti.html?searchRe
 
 **Another Kind of Face Mask**\
 `The blingy butterflies of the 1990s hatch into a new shape at New York Fashion Week.`\
-https://nytimes.com/2022/02/16/style/another-kind-of-face-mask.html?searchResultPosition=2
+https://nytimes.com/2022/02/16/style/butterfly-mask-new-york-fashion-week.html?searchResultPosition=2
 
 **Taking Aim at Environmental Racism, Without Mentioning Race**\
 `President Biden says he wants to alleviate the outsize burdens that Americans of color face from pollution. But using race to allocate help could mean legal trouble.`\
