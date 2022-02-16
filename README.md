@@ -8,7 +8,7 @@ https://nytimes.com/2022/02/16/world/europe/russian-painting-eyes-security-guard
 
 **Retail sales jumped in January, rebounding from a drop the month before.**\
 `Retail sales rose 3.8 percent during the month, swinging higher after a 2.5 percent drop in December.`\
-https://nytimes.com/2022/02/16/business/retail-sales-jumped-in-january-rebounding-from-a-drop-the-month-before.html?searchResultPosition=3
+https://nytimes.com/2022/02/16/business/retail-sales-january.html?searchResultPosition=3
 
 **The Suit Is Back**\
 `At least according to the designer Peter Do. So is New York, according to Michael Kors.`\
