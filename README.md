@@ -1,5 +1,5 @@
 **How a Secret Assault Allegation Against an Anchor Upended CNN**\
-`The network’s top-rated host and its president both were forced out, following ethical lapses, an office romance and a letter from a lawyer for “Jane Doe.”`\
+`The network’s top-rated host and its president were forced out following ethical lapses, an office romance and a letter from a lawyer for “Jane Doe.”`\
 https://nytimes.com/2022/02/15/business/jeff-zucker-cnn.html?searchResultPosition=1
 
 **Sonny Perdue Is Sole Finalist to Lead Georgia’s Public Universities**\
