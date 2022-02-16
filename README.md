@@ -8,7 +8,7 @@ https://nytimes.com/interactive/2022/02/16/style/fashion-week-first-time.html?se
 
 **Texas sues to strike down the federal mask mandate for air travelers.**\
 `The state’s attorney general said the mandate was unconstitutional, even though the Supreme Court recently declined to hear a similar case.`\
-https://nytimes.com/2022/02/16/business/texas-sues-to-strike-down-the-federal-mask-mandate-for-air-travelers.html?searchResultPosition=3
+https://nytimes.com/2022/02/16/business/texas-airport-federal-mask-mandate.html?searchResultPosition=3
 
 **A former Goldman Sachs banker says the plot to loot a Malaysian sovereign wealth fund was laid out in 2012.**\
 `Tim Leissner testified at the trial of a former colleague, Roger Ng, who faces bribery and money-laundering charges.`\
