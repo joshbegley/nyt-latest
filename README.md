@@ -8,7 +8,7 @@ https://nytimes.com/interactive/2022/02/16/well/live/16healthquiz-02162022.html?
 
 **Queen’s Jubilee Year Just Started, but Bad News Hasn’t Stopped for Royals**\
 `A day after Prince Andrew settled a sexual assault lawsuit, the police announced they were investigating a charity led by Prince Charles.`\
-https://nytimes.com/2022/02/16/world/europe/andrew-settlement-prince-charles.html?searchResultPosition=3
+https://nytimes.com/2022/02/16/world/europe/andrew-prince-charles-charity.html?searchResultPosition=3
 
 **Defiant Ottawa Protesters Brace for a Clampdown**\
 `The response of law enforcement in the nation’s capital has been painfully sluggish for many residents. But police signaled they may finally be ready to move in.`\
