@@ -12,7 +12,7 @@ https://nytimes.com/2022/02/16/sports/olympics/karen-chen-figure-skating-dresses
 
 **Canaan and North Canaan, Conn.: Once Sleepy, Now Awakening**\
 `The Litchfield County towns used to be considered too remote by many second-home buyers. But thanks to the pandemic — and remote work — that’s changed.`\
-https://nytimes.com/2022/02/16/realestate/canaan-and-north-canaan-conn-once-sleepy-now-awakening.html?searchResultPosition=4
+https://nytimes.com/2022/02/16/realestate/canaan-north-canaan-ct.html?searchResultPosition=4
 
 **Beijing Got All Ready for Olympic Curling. But About the Ice …**\
 `The ice makers of Olympic curling are part physicist, part meteorologist, part engineer. They know that creating a stage for a world-class event is all about the process.`\
