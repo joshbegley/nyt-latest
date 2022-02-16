@@ -11,12 +11,12 @@ https://nytimes.com/2022/02/16/us/san-francisco-ousts-school-board-members.html?
 https://nytimes.com/2022/02/16/nyregion/kathy-hochul-governor.html?searchResultPosition=3
 
 **Beyond the Statistics in Pedestrian Fatalities**\
-`Across the U.S. pedestrian deaths have surged during the pandemic. A reporter wanted to understand why.`\
+`Across the U.S. pedestrian deaths have surged during the pandemic. I wanted to understand why.`\
 https://nytimes.com/interactive/2022/02/16/us/pedestrian-deaths-traffic.html?searchResultPosition=4
 
 **Yes, There Were Fashion Week Parties**\
 `Rodarte, Diesel and Shayne Oliver held parties on Friday night.`\
-https://nytimes.com/2022/02/16/style/yes-there-were-fashion-week-parties.html?searchResultPosition=5
+https://nytimes.com/2022/02/16/style/ny-fashion-week-2022-parties.html?searchResultPosition=5
 
 **It’s Time We Reclaim Our Focus**\
 `In his new book, Johann Hari investigates how our brains have been broken by technology — and what we can do to fight back.`\
