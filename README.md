@@ -1,6 +1,6 @@
 **Watch Live: Canadian Police Give Update on Manitoba Border Protests**\
 `The Royal Canadian Mounted Police deliver an update on efforts to clear protesters who blockaded the Emerson, Manitoba border crossing.`\
-https://nytimes.com/video/world/canada/100000008212536/canadian-police-emerson-border-blockade-live.html?searchResultPosition=1
+https://nytimes.com/video/embedded/world/canada/100000008212536/canadian-police-emerson-border-blockade-live.html?searchResultPosition=1
 
 **Climate Change Anxiety and Therapy**\
 `The couch is OK, but activism is crucial to lessen despair and address the crisis, readers say. Also: The Sandy Hook lawsuit.`\
@@ -24,7 +24,7 @@ https://nytimes.com/2022/02/16/nyregion/ken-kurson-trump-kushner-plea.html?searc
 
 **TelevisaUnivision Unveils Plans for Streaming Service in Spanish**\
 `It’s called ViX. A free ad-supported tier will start on March 31, and a premium subscription service will follow later this year.`\
-https://nytimes.com/2022/02/16/business/media/univision-streaming-service-vix.html?searchResultPosition=7
+https://nytimes.com/2022/02/16/business/media/televisa-univision-vix-streaming-platform.html?searchResultPosition=7
 
 **It’s Stew Time (Unless It’s Not)**\
 `A new recipe for eintopf from Yewande Komolafe, and more recipes for both cold and warmer weather.`\
