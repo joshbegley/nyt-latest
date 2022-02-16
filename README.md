@@ -3,7 +3,7 @@
 https://nytimes.com/2022/02/16/nyregion/budget-adams-police-nyc.html?searchResultPosition=1
 
 **A union election at the Amazon warehouse on Staten Island is set for March.**\
-`The timing of the vote coincides with an election at Amazon’s warehouse in Bessemer, Ala., outside of Birmingham.`\
+`The timing of the vote coincides with an election at Amazon’s warehouse in Bessemer, Ala., outside Birmingham.`\
 https://nytimes.com/2022/02/16/technology/amazon-staten-island-union.html?searchResultPosition=2
 
 **How Are You Feeling About Returning to the Office? We Want to Hear About It.**\
@@ -16,7 +16,7 @@ https://nytimes.com/2022/02/16/movies/alcarras-wins-berlin-film-festival.html?se
 
 **Mikaela Shiffrin’s Alpine Career Is Far From Over**\
 `The skier’s setbacks in Beijing fit the historical narrative arc of many greats in the sport, including her compatriots Bode Miller, Lindsey Vonn and Ted Ligety.`\
-https://nytimes.com/2022/02/16/sports/olympics/mikaela-shiffrin-ski.html?searchResultPosition=5
+https://nytimes.com/2022/02/16/sports/olympics/mikaela-shiffrin-alpine-ski.html?searchResultPosition=5
 
 **C.D.C. Prepping New Guidance as Omicron Wave Recedes**\
 `Dr. Rochelle Walensky, director of the Centers for Disease Control and Prevention, said the agency would soon issue new guidance, including on masks, for the next phase of the pandemic.`\
