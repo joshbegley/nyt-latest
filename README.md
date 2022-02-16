@@ -15,7 +15,7 @@ https://nytimes.com/2022/02/15/theater/merchant-of-venice-theater-for-a-new-audi
 https://nytimes.com/2022/02/15/crosswords/daily-puzzle-2022-02-16.html?searchResultPosition=4
 
 **The U.S. men’s hockey team is taking on Slovakia in a quarterfinal game.**\
-`The game, at National Indoor Stadium, could be a potent test for the Americans. Slovakia beat Germany, 4-0, on Tuesday.`\
+`The game, at National Indoor Stadium, is a potent test for the Americans. Slovakia beat Germany, 4-0, on Tuesday.`\
 https://nytimes.com/2022/02/15/sports/olympics/mens-hockey-us-slovakia.html?searchResultPosition=5
 
 **Quotation of the Day: Stark Transformation From Ohio Moderate to Trump’s ‘No. 1 Ally’**\
