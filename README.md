@@ -20,7 +20,7 @@ https://nytimes.com/2022/02/16/style/yes-there-were-fashion-week-parties.html?se
 
 **It’s Time We Reclaim Our Focus**\
 `In his new book, Johann Hari investigates how our brains have been broken by technology — and what we can do to fight back.`\
-https://nytimes.com/2022/02/16/well/mind/attention-span-focus-johann-hari.html?searchResultPosition=6
+https://nytimes.com/2022/02/16/well/mind/focus-johann-hari.html?searchResultPosition=6
 
 **Congressional Democrats Ask Biden to Review Treatment of Black Migrants**\
 `Senator Chuck Schumer, the majority leader, is among 100 Democrats seeking a review of how Black migrants are treated by the immigration enforcement system.`\
