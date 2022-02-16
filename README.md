@@ -10,7 +10,7 @@ https://nytimes.com/2022/02/16/podcasts/the-daily/canada-truckers-protests.html?
 `A new book focuses on “difficult adult children,” offspring who need complex help into their later lives.`\
 https://nytimes.com/2022/02/16/opinion/parenting-adult-children.html?searchResultPosition=3
 
-**There’s a good reason Jessie Diggins didn’t win a second gold in the team sprint.**\
+**Jessie Diggins is fifth in the team sprint.**\
 `The German pair of Katharina Hennig and Victoria Carl won the gold, followed by the Swedes and the Russians.`\
 https://nytimes.com/2022/02/16/sports/olympics/jessie-diggins-rosie-brennan-ski.html?searchResultPosition=4
 
