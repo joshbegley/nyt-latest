@@ -2,8 +2,8 @@
 `Test your knowledge of this week’s health news.`\
 https://nytimes.com/interactive/2022/02/16/well/live/16healthquiz-02162022.html?searchResultPosition=1
 
-**The Queen’s Jubilee Year Has Just Started, but the Bad News Won’t Stop for Royals**\
-`A day after Andrew settled a sexual assault lawsuit, the police announced they were investigating a charity led by Prince Charles.`\
+**The Queen’s Jubilee Year Has Just Started, but the Bad News Hasn’t Stop for Royals**\
+`A day after Prince Andrew settled a sexual assault lawsuit, the police announced they were investigating a charity led by Prince Charles.`\
 https://nytimes.com/2022/02/16/world/europe/andrew-settlement-prince-charles.html?searchResultPosition=2
 
 **Defiant Ottawa Protesters Brace for a Clampdown**\
