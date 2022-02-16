@@ -34,7 +34,7 @@ https://nytimes.com/2022/02/16/world/putin-table.html?searchResultPosition=8
 `Amid frustrations about remote learning and changes to admissions for an elite high school, parents — led by Asian Americans — kicked out three board members.`\
 https://nytimes.com/2022/02/16/us/san-francisco-school-board.html?searchResultPosition=9
 
-**How Kathy Hochul Went From Unexpected Governor to Certain Front-Runner**\
+**How Kathy Hochul Went From Unexpected Governor to Clear Front-Runner**\
 `New York’s first female governor, who quickly and quietly assembled a campaign juggernaut, will get the Democratic Party’s backing in her re-election campaign on Thursday.`\
 https://nytimes.com/2022/02/16/nyregion/kathy-hochul-governor.html?searchResultPosition=10
 
