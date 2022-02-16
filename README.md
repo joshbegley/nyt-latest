@@ -12,7 +12,7 @@ https://nytimes.com/2022/02/16/sports/olympics/chinese-food-bubble-hotels.html?s
 
 **The Myth of the Magic Sports Beard**\
 `The Super Bowl hero Cooper Kupp is just the latest star athlete with unruly facial hair to see his performance explode.`\
-https://nytimes.com/2022/02/16/style/the-myth-of-the-magic-sports-beard.html?searchResultPosition=4
+https://nytimes.com/2022/02/16/style/sports-magic-beard.html?searchResultPosition=4
 
 **Nope to Metamates, Googlers and Puritans**\
 `It’s time for tech employees to outgrow their cutesy names. Please.`\
