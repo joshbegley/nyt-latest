@@ -8,7 +8,7 @@ https://nytimes.com/2022/02/16/opinion/letters/climate-anxiety-therapy.html?sear
 
 **P.J. O’Rourke Wrote With High, Cranky Style in a Shrinking Tradition**\
 `O’Rourke, who died on Tuesday at 74, was a sharp-toothed satirist whose conservatism wasn’t doctrinaire.`\
-https://nytimes.com/2022/02/16/books/pj-orourke-appraisal.html?searchResultPosition=3
+https://nytimes.com/2022/02/16/books/pj-orourke-books-essays.html?searchResultPosition=3
 
 **Long a Foundational Material, Concrete is Now a Finishing Touch**\
 `Traditionally used industrially, concrete has become a preferred medium for those who seek austere and unusual décor.`\
