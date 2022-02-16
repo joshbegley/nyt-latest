@@ -24,7 +24,7 @@ https://nytimes.com/2022/02/16/us/afghan-refugees-humanitarian-parole.html?searc
 
 **British Officer Breaks a Barrier With Solo Trip to the South Pole**\
 `Harpreet Chandi is apparently the first woman of color to complete the expedition alone. She traveled for 40 days, pulling nearly 200 pounds of gear.`\
-https://nytimes.com/2022/02/16/world/europe/south-pole-indian-woman.html?searchResultPosition=7
+https://nytimes.com/2022/02/16/world/europe/preet-chandi-south-pole-expedition.html?searchResultPosition=7
 
 **On the Edge of a Polish Forest, Where Some of Putin’s Darkest Fears Lurk**\
 `A U.S. missile facility in Poland is at the heart of an issue animating the Kremlin’s calculations over whether to go to war against Ukraine.`\
