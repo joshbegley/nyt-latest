@@ -26,7 +26,7 @@ https://nytimes.com/2022/02/16/world/europe/south-pole-indian-woman.html?searchR
 `A U.S. missile facility in Poland is at the heart of an issue animating the Kremlin’s calculations over whether to go to war against Ukraine.`\
 https://nytimes.com/2022/02/16/world/europe/poland-missile-base-russia-ukraine.html?searchResultPosition=7
 
-**Shark Kills Swimmer in Rare Death Off Sydney Coast, Officials Say**\
+**Shark Kills Swimmer in Rare Death Off Sydney Coast**\
 `The fatal shark bite occurred on Wednesday near Little Bay. Mayor Dylan Parker of Randwick City, Australia, said, “To lose someone to a shark attack like this is chilling.”`\
 https://nytimes.com/2022/02/16/world/australia/sydney-shark-attack.html?searchResultPosition=8
 
