@@ -36,5 +36,5 @@ https://nytimes.com/interactive/2022/02/16/opinion/sheila-heti-alphabetized-diar
 
 **An activist who has advocated secession by western provinces becomes the public face of the Canada protests.**\
 `Tamara Lich, an Alberta activist, has channeled the truckers’ grievances, raised money and deployed social media to become a leading voice among the protesters.`\
-https://nytimes.com/2022/02/16/world/canada/tamara-lich-protest-organizer.html?searchResultPosition=10
+https://nytimes.com/2022/02/16/world/canada/tamara-lich-canada-protests-organizer.html?searchResultPosition=10
 
