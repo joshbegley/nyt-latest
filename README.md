@@ -1,5 +1,5 @@
 **How the Quad Jump Is Changing Women’s Figure Skating**\
-`Before the doping scandal, Kamila Valieva was best known for her perfectly executed quadruple jumps. She and her Russian teammates have made the quad essential for Olympic gold.`\
+`Before the doping scandal, Kamila Valieva was best known for her perfectly executed quadruple jumps. See how she and her Russian teammates have made the quad essential for Olympic gold.`\
 https://nytimes.com/interactive/2022/02/16/sports/olympics/quad-jumps-figure-skating.html?searchResultPosition=1
 
 **I’m Russian, and My Family Is Ukrainian. War Would Be a Tragedy.**\
