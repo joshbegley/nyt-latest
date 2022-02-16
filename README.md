@@ -4,7 +4,7 @@ https://nytimes.com/2022/02/16/technology/metamates-googlers.html?searchResultPo
 
 **Woman Sues Over Death of Child Born in Georgia Jail**\
 `Tiana Hill gave birth to her child in the Clayton County Jail. She contends that officials did not do enough to treat her while she was in labor and did not take her to a hospital in time.`\
-https://nytimes.com/2022/02/16/us/georgia-mom-sues-jail-clayton-county.html?searchResultPosition=2
+https://nytimes.com/2022/02/16/us/georgia-birth-clayton-county.html?searchResultPosition=2
 
 **Who built Putin’s long table? Competing claims arise from Spain and Italy.**\
 `The oval behemoth, where President Vladimir V. Putin has met with world leaders, has become a subject of memes and think pieces, and now of a disagreement between furniture makers.`\
