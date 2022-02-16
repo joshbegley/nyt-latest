@@ -2,7 +2,7 @@
 `The men were previously convicted of murder. The government is now trying to build a case that racism fueled their actions.`\
 https://nytimes.com/2022/02/15/us/ahmaud-arbery-trial-hate-crimes.html?searchResultPosition=1
 
-**Review: In ‘Black No More,’ Race Is Skin Deep but Racism Isn’t**\
+**Review: In ‘Black No More,’ Race Is Skin Deep, but Racism Isn’t**\
 `A new musical imagines the invention of a decolorizing process. Will it save Black Americans from hatred or destroy them?`\
 https://nytimes.com/2022/02/15/theater/black-no-more-review.html?searchResultPosition=2
 
