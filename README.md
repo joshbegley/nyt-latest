@@ -18,8 +18,8 @@ https://nytimes.com/2022/02/16/nyregion/sandy-hook-remington.html?searchResultPo
 `Hansol Jung’s new play looks at the broken adoption of a little boy who is plucked from South Korea and moved to one American home, then shunted to another.`\
 https://nytimes.com/2022/02/16/theater/wolf-play-review-soho-rep.html?searchResultPosition=5
 
-**San Francisco Voters Recall 3 Board of Education Members**\
-`It was a victory for parents, particularly Asian Americans, angered by the district’s decision-making during the pandemic.`\
+**In Landslide, San Francisco Forces Out 3 Board of Education Members**\
+`The recall, which galvanized Asian Americans, was a victory for parents angered by the district’s priorities during the pandemic.`\
 https://nytimes.com/2022/02/16/us/san-francisco-school-board-recall.html?searchResultPosition=6
 
 **If a Medal Arrives in the Mail, Does It Still Shine?**\
