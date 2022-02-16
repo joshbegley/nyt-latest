@@ -34,7 +34,7 @@ https://nytimes.com/2022/02/16/sports/olympics/julia-marino-snowboard-big-air.ht
 `Jens Stoltenberg, the NATO secretary general, holds a news conference during the alliance’s defense ministers’ meeting.`\
 https://nytimes.com/video/world/europe/100000008212362/nato-stoltenberg-russia-ukraine-live-video.html?searchResultPosition=9
 
-**The airline industry grapples with Russia’s military buildup around Ukraine.**\
-`By Matthew Mpoke Bigg`\
-https://nytimes.com/2022/02/16/world/europe/the-airline-industry-grapples-with-russias-military-buildup-around-ukraine.html?searchResultPosition=10
+**How Jonathan Larson Taught Me to Become a Better Critic**\
+`In the film version of “Tick, Tick … Boom!,” about a composer who dreams of Broadway, a “Rent” die-hard discovers more to love in musical theater.`\
+https://nytimes.com/2022/02/16/theater/tick-tick-boom-jonathan-larson.html?searchResultPosition=10
 
