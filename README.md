@@ -30,8 +30,8 @@ https://nytimes.com/2022/02/16/world/europe/uk-covid-vaccine-children-ages-5-to-
 `With hits like “Lollipop,” she became a top woman songwriter in the early 1960s, but she quit the business in frustration over the theft of her work.`\
 https://nytimes.com/2022/02/16/arts/music/beverly-ross-dead.html?searchResultPosition=8
 
-**In the Olympic Bubble, a Quest for the Great Food of China**\
-`Most of Beijing was off limits because of the pandemic. But international visitors made discoveries, swapped tips and celebrated finds on social media and a Google doc.`\
+**In the Olympic Bubble, a Small Taste of the Food Finds of China**\
+`Most of Beijing was off limits because of the pandemic. But international visitors celebrated food discoveries and swapped restaurant tips on social media and a Google doc.`\
 https://nytimes.com/2022/02/16/sports/olympics/chinese-food-bubble-hotels.html?searchResultPosition=9
 
 **The Myth of the Magic Sports Beard**\
