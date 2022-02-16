@@ -22,7 +22,7 @@ https://nytimes.com/2022/02/16/opinion/letters/climate-anxiety-therapy.html?sear
 `O’Rourke, who died on Tuesday at 74, was a sharp-toothed satirist whose conservatism wasn’t doctrinaire.`\
 https://nytimes.com/2022/02/16/books/pj-orourke-books-essays.html?searchResultPosition=6
 
-**Long a Foundational Material, Concrete is Now a Finishing Touch**\
+**Long a Foundational Material, Concrete Is Now a Finishing Touch**\
 `Traditionally used industrially, concrete has become a preferred medium for those who seek austere and unusual décor.`\
 https://nytimes.com/2022/02/16/style/concrete-home-decor.html?searchResultPosition=7
 
