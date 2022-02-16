@@ -1,5 +1,5 @@
 **Top European Court Rules E.U. Can Freeze Aid to Poland and Hungary**\
-`In a landmark decision, the European Court of Justice approved the bloc’s decision to cut billions in aid on the grounds that members are eroding rule-of-law checks and balances.`\
+`In a landmark decision, the European Court of Justice cleared the way for the bloc to cut billions in aid on the grounds that members are eroding rule-of-law checks and balances.`\
 https://nytimes.com/2022/02/16/world/europe/eu-court-funds-hungary-poland.html?searchResultPosition=1
 
 **In Orlando, 25 Mysterious Basquiats Come Under the Magnifying Glass**\
