@@ -8,7 +8,7 @@ https://nytimes.com/2022/02/16/us/politics/biden-trump-white-house-visitor-logs.
 
 **British inflation climbs to 5.5 percent, highest in 30 years.**\
 `The higher-than-expected reading has increased speculation that the Bank of England could raise rates again as soon as next month.`\
-https://nytimes.com/2022/02/16/business/britain-inflation.html?searchResultPosition=3
+https://nytimes.com/2022/02/16/business/uk-inflation-rate.html?searchResultPosition=3
 
 **Florida Woman Used Pandemic-Relief Loan to Pay a Hit Man, Police Say**\
 `The authorities say that Jasmine Martinez, 33, of Miami, received the loan two weeks before the shooting death of Le’Shonte Jones as she walked with her toddler.`\
