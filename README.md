@@ -18,7 +18,7 @@ https://nytimes.com/2022/02/16/us/politics/missouri-gun-rights-law.html?searchRe
 `The former president has spent decades inventing facts and figures to suit his needs. Now, dropped by his accountants, he is making new claims.`\
 https://nytimes.com/2022/02/16/business/trump-wealth-mazars.html?searchResultPosition=5
 
-**After a Plague, a Labor Reckoning**\
+**In Medieval Europe, a Pandemic Changed Work Forever. Can It Happen Again?**\
 `The peasant uprisings that erupted after the plague epidemic in 14th-century Europe may offer some  warning of turmoil to come. `\
 https://nytimes.com/2022/02/16/opinion/sunday/covid-plague-work-labor.html?searchResultPosition=6
 
