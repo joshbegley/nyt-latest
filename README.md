@@ -4,7 +4,7 @@ https://nytimes.com/video/world/europe/100000008214583/un-security-council-ukrai
 
 **Want a Profitable Short-Term Rental? Try These Spots.**\
 `A performance analysis by AirDNA isolates the best places to invest.`\
-https://nytimes.com/2022/02/17/realestate/want-a-profitable-short-term-rental-try-these-spots.html?searchResultPosition=2
+https://nytimes.com/2022/02/17/realestate/short-term-rentals.html?searchResultPosition=2
 
 **After 30 Years of Peace, Ukraine Crisis Shakes Europeans**\
 `The happy complacency of post-Cold War peace is being shattered by Russia’s threats, demands and massive military buildup around Ukraine.`\
