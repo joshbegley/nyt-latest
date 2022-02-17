@@ -1,6 +1,6 @@
 **What began as a fringe protest gains an outsized megaphone amid media attention and global anxiety**\
 `Even after the last trucks are gone, the demonstrations will serve as a template for how small groups can draw intense interest.`\
-https://nytimes.com/2022/02/17/world/canada/fringe-protests-outsized-attention.html?searchResultPosition=1
+https://nytimes.com/2022/02/17/world/canada/ottawa-protests-media-attention.html?searchResultPosition=1
 
 **Could Wages and Prices Spiral Upward in America?**\
 `A labor shortage that began as businesses reopened from pandemic lockdowns is helping to push up pay. The Fed is watching carefully.`\
