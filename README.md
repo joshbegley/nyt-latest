@@ -2,7 +2,7 @@
 `Quotation of the Day for Thursday, February 17, 2022.`\
 https://nytimes.com/2022/02/16/todayspaper/quotation-of-the-day-oh-you-want-a-garage-door.html?searchResultPosition=1
 
-**Eileen Gu qualifies at freeski halfpipe, taking aim at third medal in Beijing.**\
+**Eileen Gu gets highest score at freeski halfpipe, taking aim at third medal in Beijing.**\
 `Gu has already won a gold and a silver, and she sees the halfpipe competition as her strongest event.`\
 https://nytimes.com/2022/02/16/sports/olympics/eileen-gu-halfpipe-qualifying-skiing.html?searchResultPosition=2
 
