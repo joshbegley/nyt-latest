@@ -8,13 +8,13 @@ https://nytimes.com/2022/02/17/business/economy/wages-price-spiral.html?searchRe
 
 **London Police Officers Charged Over Offensive WhatsApp Messages**\
 `The messages were uncovered during the investigation into Wayne Couzens, a London police officer who kidnapped, raped and murdered Sarah Everard in March 2021.`\
-https://nytimes.com/2022/02/17/world/london-police-everard-whatsapp-charges.html?searchResultPosition=3
+https://nytimes.com/2022/02/17/world/whatsapp-london-police-charges.html?searchResultPosition=3
 
 **4-Year-Old and His Grandmother Were Killed by Poison, Police Say**\
 `There have been no arrests in the case, the police said, but the deaths of Wilhelm Ducatl and Tofoon Man are being investigated as homicides.`\
 https://nytimes.com/2022/02/17/nyregion/grandmother-boy-poisoned-thallium.html?searchResultPosition=4
 
-**N.Y. Attorney General Can Question Trump and 2 Children, Judge Rules**\
+**N.Y. Attorney General Can Interview Trump and 2 Children, Judge Rules**\
 `Former President Donald J. Trump and two of his children had sought to block Letitia James, the attorney general, from interviewing them under oath.`\
 https://nytimes.com/2022/02/17/nyregion/trump-investigation-letitia-james.html?searchResultPosition=5
 
