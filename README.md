@@ -4,7 +4,7 @@ https://nytimes.com/2022/02/16/briefing/ukraine-troops-prince-charles.html?searc
 
 **It’s Berry Tasty!**\
 `To celebrate his New York Times debut, Aaron M. Rosenberg throws a little party, and you’re invited.`\
-https://nytimes.com/2022/02/16/crosswords/2022-02-17.html?searchResultPosition=2
+https://nytimes.com/2022/02/16/crosswords/daily-puzzle-2022-02-17.html?searchResultPosition=2
 
 **Quotation of the Day: Oh, You Want a Garage Door?**\
 `Quotation of the Day for Thursday, February 17, 2022.`\
