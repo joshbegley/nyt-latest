@@ -26,7 +26,7 @@ https://nytimes.com/2022/02/17/arts/music/rokia-kone-jacknife-lee-bamanan-review
 `The Russian star at the center of a doping scandal turned in an uncharacteristically disappointing performance. And then the real drama began.`\
 https://nytimes.com/2022/02/16/sports/olympics/russian-reactions-nbc-valieva-fall.html?searchResultPosition=7
 
-**The U.S. adds WeChat and AliExpress to a list of foreign counterfeiters.**\
+**The U.S. adds WeChat and AliExpress to a list of notorious piracy markets.**\
 `The Biden administration added several major Chinese businesses to a list of counterfeiters, but removed any mention of Amazon’s foreign operations.`\
 https://nytimes.com/2022/02/17/business/us-trade-counterfeit-china.html?searchResultPosition=8
 
