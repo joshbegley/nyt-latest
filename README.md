@@ -1,4 +1,4 @@
-**N.Y. Attorney General Can Interview Trump and 2 Children, Judge Rules**\
+**N.Y. Attorney General Can Question Trump and 2 Children, Judge Rules**\
 `Former President Donald J. Trump and two of his children had sought to block Letitia James, the attorney general, from interviewing them under oath.`\
 https://nytimes.com/2022/02/17/nyregion/trump-investigation-letitia-james.html?searchResultPosition=1
 
