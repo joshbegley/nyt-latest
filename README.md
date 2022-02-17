@@ -26,15 +26,15 @@ https://nytimes.com/2022/02/17/sports/olympics/mariah-bell-free-skate.html?searc
 `The automotive retailer said tight demand and limited supply, driven by shortages in computer chips, is likely to continue well into the year.`\
 https://nytimes.com/2022/02/17/business/autonation-cars-dealers.html?searchResultPosition=7
 
+**The ‘kiss and cry’ booth is really a hard bench.**\
+`The bench doesn’t look very comfortable. It’s also not a comfortable moment for skaters awaiting their judgment.`\
+https://nytimes.com/2022/02/17/sports/olympics/kiss-and-cry-skating.html?searchResultPosition=8
+
 **The Queer Indigenous Artists Reclaiming a Fluid Sense of Gender**\
 `Colonialist conceptions of gender have long sought to erase more expansive views. But a new generation is making work that honors their cultures’ beliefs on their own terms.`\
-https://nytimes.com/2022/02/17/t-magazine/queer-indigenous-artists-gender.html?searchResultPosition=8
+https://nytimes.com/2022/02/17/t-magazine/queer-indigenous-artists-gender.html?searchResultPosition=9
 
 **‘Uncharted’ Review: Steal, Fight, Repeat**\
 `This inaptly titled treasure-hunt adventure recycles all the familiar clichés while giving Tom Holland a strenuous physical workout.`\
-https://nytimes.com/2022/02/17/arts/uncharted-review.html?searchResultPosition=9
-
-**‘Pursuit’ Review: An Action Thriller Destined for the Bargain Bin**\
-`John Cusack and Emile Hirsch try to save this Brian Skiba movie, but who will save them?`\
-https://nytimes.com/2022/02/17/arts/pursuit-review.html?searchResultPosition=10
+https://nytimes.com/2022/02/17/arts/uncharted-review.html?searchResultPosition=10
 
