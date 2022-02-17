@@ -24,7 +24,7 @@ https://nytimes.com/2022/02/17/opinion/happiness-confidence-struggle.html?search
 
 **First Arabic Film by Netflix Stirs Fierce Morality Debate**\
 `Critics argued that the remake of the Italian film “Perfect Strangers” flouted moral standards by projecting Western norms out of sync with the largely religious public across much of the Arab world.`\
-https://nytimes.com/2022/02/17/world/middleeast/arabic-film-netflix-debate.html?searchResultPosition=7
+https://nytimes.com/2022/02/17/world/middleeast/netflix-movies-arabic-debate.html?searchResultPosition=7
 
 **Australia gives a green light to Moderna’s coronavirus vaccine for children aged 6 to 11.**\
 `The country is the first to grant provisional authority for the Moderna vaccine to be used in children younger than 12.`\
