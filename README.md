@@ -3,7 +3,7 @@
 https://nytimes.com/2022/02/17/opinion/school-board-recall.html?searchResultPosition=1
 
 **Google Creates $100 Million Fund for Skills Training Program**\
-`The project is a big bet on scaling up programs that have proven effective in lifting low-income workers into middle-class jobs and careers.`\
+`The project is a big bet on scaling up programs that have proved effective in lifting low-income workers into middle-class jobs and careers.`\
 https://nytimes.com/2022/02/17/business/google-creates-100-million-fund-for-skills-training-program.html?searchResultPosition=2
 
 **Zwirner Announces Plans for New Los Angeles Gallery**\
