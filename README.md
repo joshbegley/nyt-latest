@@ -1,6 +1,6 @@
 **Gail Halvorsen, ‘Candy Bomber’ in Berlin Airlift, Dies at 101**\
 `Lieutenant Halvorsen came up with the idea to drop candies, chocolate and chewing gum for the children of West Berlin during a tense Cold War standoff.`\
-https://nytimes.com/2022/02/17/us/gail-halvorsen-dead.html?searchResultPosition=1
+https://nytimes.com/2022/02/17/us/gail-halvorsen-obituary.html?searchResultPosition=1
 
 **Skates**\
 `What do you think this image is communicating? How does it apply to your life?`\
