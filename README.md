@@ -2,7 +2,7 @@
 `The three-building complex will open in January 2023 with an exhibition of new work by the Los Angeles-based artist Njideka Akunyili Crosby.`\
 https://nytimes.com/2022/02/17/arts/design/zwirner-new-los-angeles-gallery.html?searchResultPosition=1
 
-**What began as a fringe protest gains an outsized megaphone amid media attention and global anxiety**\
+**What began as a fringe protest gains an outsize megaphone amid media attention and global anxiety.**\
 `Even after the last trucks are gone, the demonstrations will serve as a template for how small groups can draw intense interest.`\
 https://nytimes.com/2022/02/17/world/canada/ottawa-protests-media-attention.html?searchResultPosition=2
 
