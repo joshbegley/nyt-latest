@@ -4,7 +4,7 @@ https://nytimes.com/interactive/2022/02/17/sports/olympics/shcherbakova-gold-val
 
 **A Look Inside the Chicken Industry**\
 `Readers call for change in how chickens are raised and marketed; an executive defends industry practices. Also: A Canadian view; reading classics aloud.`\
-https://nytimes.com/2022/02/17/opinion/letters/a-look-inside-the-chicken-industry.html?searchResultPosition=2
+https://nytimes.com/2022/02/17/opinion/letters/chicken-industry.html?searchResultPosition=2
 
 **What Was Stonehenge For? The Answer Might Be Simpler Than You Thought.**\
 `Astronomical calculator? Spaceship landing pad? Shrine to the Earth Mother? An exhibition at the British Museum uses the latest research to look past outlandish theories.`\
