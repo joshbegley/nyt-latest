@@ -1,40 +1,40 @@
+**Could Wages and Prices Spiral Upward in America?**\
+`A labor shortage that began as businesses reopened from pandemic lockdowns is helping to push up pay. The Fed is watching carefully.`\
+https://nytimes.com/2022/02/17/business/economy/could-wages-and-prices-spiral-upward-in-america.html?searchResultPosition=1
+
 **London Police Officers Charged Over Offensive WhatsApp Messages**\
 `The messages were uncovered during the investigation into Wayne Couzens, a London police officer who kidnapped, raped and murdered Sarah Everard in March 2021.`\
-https://nytimes.com/2022/02/17/world/london-police-everard-whatsapp-charges.html?searchResultPosition=1
+https://nytimes.com/2022/02/17/world/london-police-everard-whatsapp-charges.html?searchResultPosition=2
 
 **4-Year-Old and His Grandmother Were Killed by Poison, Police Say**\
 `There have been no arrests in the case, the police said, but the deaths of Wilhelm Ducatl and Tofoon Man are being investigated as homicides.`\
-https://nytimes.com/2022/02/17/nyregion/grandmother-boy-poisoned-thallium.html?searchResultPosition=2
+https://nytimes.com/2022/02/17/nyregion/grandmother-boy-poisoned-thallium.html?searchResultPosition=3
 
 **N.Y. Attorney General Can Question Trump and 2 Children, Judge Rules**\
 `Former President Donald J. Trump and two of his children had sought to block Letitia James, the attorney general, from interviewing them under oath.`\
-https://nytimes.com/2022/02/17/nyregion/trump-investigation-letitia-james.html?searchResultPosition=3
+https://nytimes.com/2022/02/17/nyregion/trump-investigation-letitia-james.html?searchResultPosition=4
 
 **Why Some Red States Aren’t Going for Broke on Abortion — Yet**\
 `A recent rash of 15-week abortion bans gives us a glimpse of post-Roe America.`\
-https://nytimes.com/2022/02/17/opinion/abortion-florida-15-week-ban.html?searchResultPosition=4
+https://nytimes.com/2022/02/17/opinion/abortion-florida-15-week-ban.html?searchResultPosition=5
 
 **Spotify Bet Big on Joe Rogan. It Got More Than It Counted On.**\
 `The deal that brought his podcast to Spotify is said to be worth over $200 million, more than was previously known. Accusations that he spreads misinformation have roiled the company.`\
-https://nytimes.com/2022/02/17/arts/music/spotify-joe-rogan-misinformation.html?searchResultPosition=5
+https://nytimes.com/2022/02/17/arts/music/spotify-joe-rogan-misinformation.html?searchResultPosition=6
 
 **Languedoc Reds: Still Searching for an Identity**\
 `For this region, once known for its vast output of inexpensive wines, the journey toward recognition has been long and winding. Is a destination any closer?`\
-https://nytimes.com/2022/02/17/dining/drinks/wine-school-languedoc-reds.html?searchResultPosition=6
+https://nytimes.com/2022/02/17/dining/drinks/wine-school-languedoc-reds.html?searchResultPosition=7
 
 **New Wines From Old Spanish Vines**\
 `A younger generation of growers and producers looks to ancient vineyards and heritage grapes to give a new identity to Spanish red wines.`\
-https://nytimes.com/2022/02/17/dining/drinks/wine-school-red-spain.html?searchResultPosition=7
+https://nytimes.com/2022/02/17/dining/drinks/wine-school-red-spain.html?searchResultPosition=8
 
 **‘The Automat’ Review: Put a Nickel in the Slot for Nostalgia**\
 `A documentary about Horn & Hardart’s automated cafeterias is sweet and shaggy, but an engrossing tale of cultural harmony.`\
-https://nytimes.com/2022/02/17/movies/the-automat-review.html?searchResultPosition=8
+https://nytimes.com/2022/02/17/movies/the-automat-review.html?searchResultPosition=9
 
 **Faith Ringgold’s Path of Maximum Resistance**\
 `A survey of her trailblazing, 40-year career in Manhattan shows us how, as a Black artist, she survived and thrived.`\
-https://nytimes.com/2022/02/17/arts/design/faith-ringgold-new-museum.html?searchResultPosition=9
-
-**The Dangerous Beauty of Jacques-Louis David**\
-`A landmark exhibition of drawings at the Met brings us into the studio of the French Revolution’s chief propagandist, and stages the ultimate showdown of culture and politics.`\
-https://nytimes.com/2022/02/17/arts/design/met-museum-drawings-french-revolution.html?searchResultPosition=10
+https://nytimes.com/2022/02/17/arts/design/faith-ringgold-new-museum.html?searchResultPosition=10
 
