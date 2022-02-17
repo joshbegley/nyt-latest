@@ -1,40 +1,40 @@
-**Looking Straight at the Struggles of Old Age**\
-`In two Paris theater productions, there’s no sugarcoating the physical decline that comes at the end of a long life.`\
-https://nytimes.com/2022/02/17/theater/alexander-zeldin-death-in-the-family.html?searchResultPosition=1
+**Family History Inspires a New Watch Brand**\
+`His ancestors in Russia and Switzerland made timepieces, so Adam Lassner decided that he should, too.`\
+https://nytimes.com/2022/02/17/fashion/watches-adam-benedict-switzerland.html?searchResultPosition=1
 
-**France and Allies to Begin Withdrawal From Mali**\
-`The military campaign was supposed to last only a few weeks, but French soldiers have been fighting insurgents in the African country for a decade.`\
-https://nytimes.com/2022/02/17/world/africa/mali-france-withdrawal.html?searchResultPosition=2
+**Vocabulary in Context: Halftime Show**\
+`Test your vocabulary and reading comprehension with this quiz based on the Times article "Rap Takes Over Super Bowl Halftime, Balancing Celebration and Protest."`\
+https://nytimes.com/interactive/2022/02/17/learning/17HalftimeShowVocabLN.html?searchResultPosition=2
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/02/17/crosswords/spelling-bee-forum.html?searchResultPosition=3
+**Babies Have Entered the Chat**\
+`Up close and personal with work-from-home parents — and their unruly new colleagues.`\
+https://nytimes.com/2022/02/17/magazine/babies-work-meeting.html?searchResultPosition=3
 
-**Julia Fox, Eric Adams and the Return of the Suit**\
-`Here’s what I saw at New York Fashion Week.`\
-https://nytimes.com/2022/02/17/style/julia-fox-eric-adams-and-the-return-of-the-suit.html?searchResultPosition=4
+**South Korea, a Virus Success Story, Now Finds Its Model Unsustainable**\
+`With Omicron spreading quickly, the government says it will focus on the most vulnerable, while asking others to look after themselves at home.`\
+https://nytimes.com/2022/02/17/world/asia/south-korea-covid-spread.html?searchResultPosition=4
 
-**F.A.A. Administrator Steve Dickson Will Resign Next Month**\
-`In a letter to staff, Mr. Dickson said it was “time to go home” to his family after a tumultuous period of more than two years leading the agency.`\
-https://nytimes.com/2022/02/17/us/politics/steve-dickson-faa-resigns.html?searchResultPosition=5
+**The $1.7 Billion Student Loan Deal That Was Too Good to Be True**\
+`The settlement was portrayed as a win-win for 39 states and the loan giant Navient. But thousands who received predatory loans will still have to pay.`\
+https://nytimes.com/2022/02/17/business/navient-student-loan-settlement.html?searchResultPosition=5
 
-**Word of the Day: vice versa**\
-`This term has appeared in 204 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/02/17/learning/word-of-the-day-vice-versa.html?searchResultPosition=6
+**A Child’s TikTok Stardom Opens Doors. Then a Gunman Arrives.**\
+`Their daughter’s online venture plunged a Florida family into a nightmare, but they decided not to pull the plug.`\
+https://nytimes.com/2022/02/17/us/politics/tiktok-ava-majury.html?searchResultPosition=6
 
-**Jimmy Kimmel Critiques Trump’s Latest Rambling Statement**\
-`“Only Donald Trump would defend himself against charges that he overvalued his assets by re-overvaluing his assets,” Kimmel said.`\
-https://nytimes.com/2022/02/17/arts/television/jimmy-kimmel-trump-financial-claims.html?searchResultPosition=7
+**Can an Old Skier Learn New Tricks?**\
+`With Olympic skiers and snowboarders flying through the air, how hard can a simple 360 be? As it turns out, pretty hard.`\
+https://nytimes.com/2022/02/17/travel/ski-tricks-utah.html?searchResultPosition=7
 
-**No Covid cases were detected on Wednesday, a first for the Games.**\
-`China created a closed-loop system to keep visitors separate from the population, one of many efforts aimed at stomping out infections.`\
-https://nytimes.com/2022/02/17/sports/olympics/covid-cases-beijing-olympics.html?searchResultPosition=8
+**5 Things to Do This Weekend**\
+`Our critics and writers have selected noteworthy cultural events to experience virtually and in person in New York City.`\
+https://nytimes.com/2022/02/17/arts/things-to-do-this-weekend.html?searchResultPosition=8
 
-**The U.S. men’s curling team, defending its gold medal, advances to the semifinals.**\
-`The win comes after a shaky run that left the outcome of the team’s Olympic run uncertain.`\
-https://nytimes.com/2022/02/17/sports/olympics/curling-us-men-semifinals.html?searchResultPosition=9
+**Intel’s True Believer**\
+`Patrick Gelsinger is back running a company he first joined at 18. The chip maker was a Silicon Valley titan that lost its luster. As the world craves chips, can Intel make its comeback?`\
+https://nytimes.com/2022/02/17/technology/intels-true-believer-patrick-gelsinger.html?searchResultPosition=9
 
-**Sandra Naeslund of Sweden takes the gold in the ski cross final.**\
-`In the event, four skiers burst out of the start house at the same time and race down the course all at once.`\
-https://nytimes.com/2022/02/16/sports/olympics/womens-ski-cross.html?searchResultPosition=10
+**Inspired by Milan, Cartier’s Architects Redesign a Flagship**\
+`Along with interior touches that echo the city’s features, the store now has a V.I.P. area meant to encourage visitors to linger.`\
+https://nytimes.com/2022/02/17/fashion/watches-retail-cartier-milan.html?searchResultPosition=10
 
