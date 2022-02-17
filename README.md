@@ -20,7 +20,7 @@ https://nytimes.com/2022/02/17/arts/design/faith-ringgold-new-museum.html?search
 
 **The Dangerous Beauty of Jacques-Louis David**\
 `A landmark exhibition of drawings at the Met brings us into the studio of the French Revolution’s chief propagandist, and stages the ultimate showdown of culture and politics.`\
-https://nytimes.com/2022/02/17/arts/design/david-drawings-painter-french-revolution-met-museum.html?searchResultPosition=6
+https://nytimes.com/2022/02/17/arts/design/met-museum-drawings-french-revolution.html?searchResultPosition=6
 
 **Dr. Herbert Benson, Who Saw the Mind as Medicinal, Dies at 86**\
 `A cardiologist and best-selling author, he was initially a skeptic before finding that a person can influence bodily health through Eastern-style meditation.`\
