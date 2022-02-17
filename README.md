@@ -12,7 +12,7 @@ https://nytimes.com/2022/02/17/us/senate-vote-speed.html?searchResultPosition=3
 
 **Bobsleds Come Down Fast. This Is How They Go Back Up.**\
 `After they rocket down the track, it takes a crew and some patience to get them back to the top.`\
-https://nytimes.com/2022/02/17/sports/olympics/bobsleds-come-down-fast-this-is-how-they-go-back-up.html?searchResultPosition=4
+https://nytimes.com/2022/02/17/sports/olympics/bobsled-olympics.html?searchResultPosition=4
 
 **Why Podcasts Are Becoming Netflix**\
 `Podcasts have been a freewheeling corner of digital life, but the potential for profits is changing that.`\
