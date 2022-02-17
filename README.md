@@ -30,7 +30,7 @@ https://nytimes.com/2022/02/17/sports/olympics/curling-us-men-semifinals.html?se
 `In the event, four skiers burst out of the start house at the same time and race down the course all at once.`\
 https://nytimes.com/2022/02/16/sports/olympics/womens-ski-cross.html?searchResultPosition=8
 
-**The U.S. overnight broadcast coverage includes hockey and figure skating.**\
+**The U.S. overnight broadcast coverage includes figure skating and hockey.**\
 `Russia’s figure skating star, Kamila Valieva, is leading the women’s individual competition.`\
 https://nytimes.com/2022/02/16/sports/olympics/the-us-overnight-broadcast-coverage-includes-hockey-and-figure-skating.html?searchResultPosition=9
 
