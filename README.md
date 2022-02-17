@@ -18,7 +18,7 @@ https://nytimes.com/2022/02/17/sports/olympics/covid-cases-beijing-olympics.html
 `The win comes after a shaky run that left the outcome of the team’s Olympic run uncertain.`\
 https://nytimes.com/2022/02/17/sports/olympics/curling-us-men-semifinals.html?searchResultPosition=5
 
-**Sandra Naeslund of Sweden dominates heading into the big final in ski cross.**\
+**Sandra Naeslund of Sweden takes the gold in the ski cross final.**\
 `In the event, four skiers burst out of the start house at the same time and race down the course all at once.`\
 https://nytimes.com/2022/02/16/sports/olympics/womens-ski-cross.html?searchResultPosition=6
 
