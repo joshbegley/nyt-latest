@@ -4,7 +4,7 @@ https://nytimes.com/2022/02/17/world/canada/fringe-protests-outsized-attention.h
 
 **Could Wages and Prices Spiral Upward in America?**\
 `A labor shortage that began as businesses reopened from pandemic lockdowns is helping to push up pay. The Fed is watching carefully.`\
-https://nytimes.com/2022/02/17/business/economy/could-wages-and-prices-spiral-upward-in-america.html?searchResultPosition=2
+https://nytimes.com/2022/02/17/business/economy/wages-price-spiral.html?searchResultPosition=2
 
 **London Police Officers Charged Over Offensive WhatsApp Messages**\
 `The messages were uncovered during the investigation into Wayne Couzens, a London police officer who kidnapped, raped and murdered Sarah Everard in March 2021.`\
