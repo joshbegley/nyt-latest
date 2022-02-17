@@ -6,13 +6,13 @@ https://nytimes.com/2022/02/17/realestate/housing-market-near-nyc.html?searchRes
 `This week’s properties are in Carroll Gardens, Battery Park City and Greenwich Village.`\
 https://nytimes.com/2022/02/17/realestate/housing-market-near-nyc.html?searchResultPosition=2
 
-**On the Market in New York City**\
-`This week’s properties are in Carroll Gardens, Battery Park City and Greenwich Village.`\
-https://nytimes.com/slideshow/2022/02/17/realestate/on-the-market-in-new-york-city.html?searchResultPosition=3
-
 **On the Market in the New York Region**\
 `This week’s properties are a three-bedroom house in White Plains, N.Y., and a five-bedroom in Hopewell, N.J.`\
-https://nytimes.com/slideshow/2022/02/17/realestate/on-the-market-in-the-new-york-region.html?searchResultPosition=4
+https://nytimes.com/slideshow/2022/02/17/realestate/on-the-market-in-the-new-york-region.html?searchResultPosition=3
+
+**On the Market in New York City**\
+`This week’s properties are in Carroll Gardens, Battery Park City and Greenwich Village.`\
+https://nytimes.com/slideshow/2022/02/17/realestate/on-the-market-in-new-york-city.html?searchResultPosition=4
 
 **An Art-Filled Hotel Inside a Former Wall Street Trading Hub**\
 `Plus: a Brooklyn design destination, a new Niki de Saint Phalle biography and more recommendations from T Magazine.`\
