@@ -24,7 +24,7 @@ https://nytimes.com/2022/02/17/nyregion/threes-brewing-vaccine-mandates.html?sea
 
 **Letitia James Doesn’t Need to Run for Governor to Grab the Spotlight**\
 `Ms. James, the New York attorney general, highlighted her work on matters related to former President Donald J. Trump as she accepted a nomination for re-election.`\
-https://nytimes.com/2022/02/17/nyregion/tish-james-attorney-general.html?searchResultPosition=7
+https://nytimes.com/2022/02/17/nyregion/letitia-james-ny-attorney-general.html?searchResultPosition=7
 
 **‘You Have to Give Us Respect’: How Asian Americans Fueled the San Francisco Recall**\
 `The landslide vote to remove three school board members cut across ethnicities and income levels. But Chinese American voters and volunteers were crucial to victory, organizers say.`\
