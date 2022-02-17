@@ -34,7 +34,7 @@ https://nytimes.com/interactive/2022/02/17/learning/17HalftimeShowVocabLN.html?s
 `Up close and personal with work-from-home parents — and their unruly new colleagues.`\
 https://nytimes.com/2022/02/17/magazine/babies-work-meeting.html?searchResultPosition=9
 
-**South Korea, a Virus Success Story, Now Finds Its Model Unsustainable**\
-`With Omicron spreading quickly, the government says it will focus on the most vulnerable, while asking others to look after themselves at home.`\
-https://nytimes.com/2022/02/17/world/asia/south-korea-covid-spread.html?searchResultPosition=10
+**The $1.7 Billion Student Loan Deal That Was Too Good to Be True**\
+`The settlement was portrayed as a win-win for 39 states and the loan giant Navient. But thousands who received predatory loans will still have to pay.`\
+https://nytimes.com/2022/02/17/business/navient-student-loan-settlement.html?searchResultPosition=10
 
