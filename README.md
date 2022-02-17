@@ -1,6 +1,6 @@
 **Two Teenagers Were Fighting. Only the Black One Was Handcuffed.**\
 `A video of the fight at a New Jersey mall circulated widely online. Gov. Philip D. Murphy said the appearance of “racially disparate treatment” was “deeply, deeply disturbing.”`\
-https://nytimes.com/2022/02/17/nyregion/two-teenagers-were-fighting-only-the-black-one-was-handcuffed.html?searchResultPosition=1
+https://nytimes.com/2022/02/17/nyregion/mall-fight-bridgewater-commons-new-jersey.html?searchResultPosition=1
 
 **Artillery Exchanges in Eastern Ukraine May Presage Invasion, U.S. Warns**\
 `As shelling intensified in the east, officials warned that Moscow might use false claims of “genocide” against Russians in the region as a pretext for an attack.`\
