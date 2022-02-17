@@ -4,7 +4,7 @@ https://nytimes.com/2022/02/16/sports/olympics/eileen-gu-halfpipe-qualifying-ski
 
 **Justice Department Sues Missouri Over Expansive Gun-Rights Law**\
 `Attorney General Merrick Garland argued that the law allowing citizens to sue police for $50,000 for violating their right to bear arms was unconstitutional.`\
-https://nytimes.com/2022/02/16/us/politics/justice-department-missouri-gun-rights.html?searchResultPosition=2
+https://nytimes.com/2022/02/16/us/politics/missouri-gun-rights-law.html?searchResultPosition=2
 
 **For Trump, a Perilous Exclamation Point to Years of Wealth Inflation**\
 `The former president has spent decades inventing facts and figures to suit his needs. Now, dropped by his accountants, he is making new claims.`\
