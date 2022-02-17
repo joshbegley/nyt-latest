@@ -14,7 +14,7 @@ https://nytimes.com/2022/02/17/arts/television/jimmy-kimmel-trump-financial-clai
 `China created a closed-loop system to keep visitors separate from the population, one of many efforts aimed at stomping out infections.`\
 https://nytimes.com/2022/02/17/sports/olympics/covid-cases-beijing-olympics.html?searchResultPosition=4
 
-**U.S. men’s curling team, defending its gold medal, advances to the semifinals.**\
+**The U.S. men’s curling team, defending its gold medal, advances to the semifinals.**\
 `The win comes after a shaky run that left the outcome of the team’s Olympic run uncertain.`\
 https://nytimes.com/2022/02/17/sports/olympics/curling-us-men-semifinals.html?searchResultPosition=5
 
