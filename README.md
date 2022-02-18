@@ -1,40 +1,40 @@
-**What is the Munich Security Conference?**\
-`The gathering was founded in 1963 as a way for Western leaders to discuss threats and dangers in an informal setting. This year’s focus is on the fabric of Europe.`\
-https://nytimes.com/2022/02/18/world/europe/what-is-munich-security-conference.html?searchResultPosition=1
+**China’s Fastest Olympics Entrant? Climb Aboard.**\
+`A journey by high-speed train offers a window on the nation’s future, as well as some of the past it would like to leave behind.`\
+https://nytimes.com/2022/02/18/sports/olympics/chinas-fastest-olympics-entrant-climb-aboard.html?searchResultPosition=1
 
-**Dolls and Drinks for Likes and Clicks**\
-`The American Girl Cafe has become an unlikely party spot for influencers and their imitators.`\
-https://nytimes.com/2022/02/18/style/american-girl-cafe-harry-hill-serena-kerrigan.html?searchResultPosition=2
+**Bots and Fake Accounts Push China’s Vision of Winter Olympic Wonderland**\
+`The country’s propagandists have used a variety of tools online to promote a vision of the Games that is free of rancor or controversy.`\
+https://nytimes.com/2022/02/18/technology/china-olympics-propaganda.html?searchResultPosition=2
 
-**Fashion’s Favorite London Canteen**\
-`The Rocha family — Max, Simone, John and Odette — opens a restaurant.`\
-https://nytimes.com/2022/02/18/style/max-rocha-cafe-cecilia.html?searchResultPosition=3
+**‘Fortress Australia’ Has a New Message: Come Back**\
+`For nearly two years, the country projected a harsh message of rigidity and “rules are rules.” Can travelers depend on the chilled-out, welcoming Australia that it says it is now?`\
+https://nytimes.com/2022/02/18/travel/australia-tourism-covid.html?searchResultPosition=3
 
-**‘Texas Chainsaw Massacre’ Review: The Blade Is Back**\
-`Leatherface returns to terrorize a fresh batch of innocents in this poorly plotted, efficiently executed Netflix blood bath.`\
-https://nytimes.com/2022/02/18/movies/texas-chainsaw-massacre-review.html?searchResultPosition=4
+**In Nashville, a Gerrymander Goes Beyond Politics to the City’s Core**\
+`Tennessee was long known for a brand of moderate Southern politics. Nashville, a blue island in a red state, is finding that the old rules no longer apply.`\
+https://nytimes.com/2022/02/18/us/nashville-gerrymandering-republican-democrat.html?searchResultPosition=4
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/02/18/crosswords/spelling-bee-forum.html?searchResultPosition=5
+**These Vaccines Have Been Embraced by the World. Why Not in China?**\
+`Beijing once said it had two mRNA shots within reach and ready for approval — one homemade and one produced by a foreign company. Today, neither are available.`\
+https://nytimes.com/2022/02/18/business/china-coronavirus-vaccines.html?searchResultPosition=5
 
-**Trevor Noah: Russia Loves Playing Chess**\
-`Noah said Russia has been preparing to play chess while Americans “love dumb games now,” poking fun at a preference for Wordle.`\
-https://nytimes.com/2022/02/18/arts/television/trevor-noah-russia-ukraine.html?searchResultPosition=6
+**What’s Behind the Battle to Rename a Broken-Down Brooklyn Playground?**\
+`Connie Hawkins was destined for basketball stardom until his career was unjustly derailed. But a new effort to honor him is complicated by one fact. He’s not the only legend in the neighborhood.`\
+https://nytimes.com/2022/02/18/nyregion/connie-hawkins-brooklyn-basketball-playground.html?searchResultPosition=6
 
-**Word of the Day: slake**\
-`This word has appeared in two articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/02/18/learning/word-of-the-day-slake.html?searchResultPosition=7
+**Dance Class Is in Session: Flail, Get Weird, Unlock Yourself**\
+`With collaborators like Miranda July and Evan Rachel Wood, Angela Trimbur stands out among social-media-savvy choreographers whose accessible movement found audiences during the pandemic.`\
+https://nytimes.com/2022/02/18/arts/dance/angela-trimbur-online-dance.html?searchResultPosition=7
 
-**Thomas Bach, the I.O.C. president, rebukes a Chinese official over political comments.**\
-`The rare criticism from the Olympic chief came in response to remarks about Taiwan.`\
-https://nytimes.com/2022/02/17/sports/olympics/ioc-thomas-bach-chinese-official.html?searchResultPosition=8
+**Why Chinese Americans Are Talking About Eileen Gu**\
+`The critical crossfire Ms. Gu has faced has implications that go far beyond the Olympic slopes, Chinese Americans say. And some see themselves in the duality she has embraced.`\
+https://nytimes.com/2022/02/18/nyregion/eileen-gu-chinese-american.html?searchResultPosition=8
 
-**What Australia’s Success at the Winter Olympics Does (and Doesn’t) Tell You**\
-`Australia has won more medals than ever at the 2022 Winter Games, but it’s hard to tell if global respect can turn the country into a winter sports wonderland.`\
-https://nytimes.com/2022/02/18/world/australia/australia-winter-olympics-medals.html?searchResultPosition=9
+**A Critique of Government That Liberals Need to Hear**\
+`The economist and libertarian Alex Tabarrok discusses the public choice theory of government failure.`\
+https://nytimes.com/2022/02/18/opinion/ezra-klein-podcast-alex-tabarrok.html?searchResultPosition=9
 
-**Corrections: Feb. 18, 2022**\
-`Corrections that appeared in print on Friday, Feb. 18, 2022.`\
-https://nytimes.com/2022/02/18/pageoneplus/corrections-feb-18-2022.html?searchResultPosition=10
+**They Wanted to Roll Back Tough-on-Crime Policies. Then Violent Crime Surged.**\
+`With violent crime rates rising and elections looming, progressive prosecutors are facing resistance to their plans to roll back stricter crime policies of the 1990s.`\
+https://nytimes.com/2022/02/18/us/politics/prosecutors-midterms-crime.html?searchResultPosition=10
 
