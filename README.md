@@ -1,5 +1,5 @@
 **Police Forces Swell in Ottawa as Prelude to Clamp Down**\
-`The unrest in the nation’s capital and the attention of the global media at a time of anxiety have amplified the impact of the protests.`\
+`More than 100 police have assembled in a staging area with heavy equipment and Ottawa police have issued a new warning that protesters must immediately leave or face arrest.`\
 https://nytimes.com/2022/02/18/world/canada/canada-protest-arrests.html?searchResultPosition=1
 
 **Hundreds Rescued From Burning Ferry Near Greek Island**\
