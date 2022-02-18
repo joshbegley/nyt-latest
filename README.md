@@ -35,6 +35,6 @@ https://nytimes.com/2022/02/18/arts/music/tyshawn-sorey-rothko-chapel.html?searc
 https://nytimes.com/2022/02/18/world/europe/france-election-macron-zemmour-le-pen.html?searchResultPosition=9
 
 **The bobsledder Elana Meyers Taylor will get to be a flag-bearer for the U.S. after all.**\
-`She had been chosen to carry the flag in the opening ceremony, but was replaced after she tested positive for the coronavirus.`\
+`Chosen to carry the flag in the opening ceremony, but denied the honor after she tested positive for the coronavirus, Meyers Taylor will perform the role in the closing ceremony instead.`\
 https://nytimes.com/2022/02/17/sports/olympics/elana-meyers-taylor-closing-ceremony.html?searchResultPosition=10
 
