@@ -30,8 +30,8 @@ https://nytimes.com/2022/02/18/world/europe/putin-russia-ukraine.html?searchResu
 `The sealing of the case against Hadley Palmer, 53, who must register as a sex offender for secretly filming minors, has revived questions about judicial favoritism for the wealthy. Lawyers say they were trying to protect her victims.`\
 https://nytimes.com/2022/02/18/nyregion/hadley-palmer-greenwich.html?searchResultPosition=8
 
-**It’s Norway’s Games Again. What’s the Secret?**\
-`Norway’s outsize standing at the top of the Winter Games medal count has drawn experts from other countries to try to figure out how the tiny nation keeps doing it.`\
+**It’s Norway’s Games Again. What’s Its Secret?**\
+`Norway won its record 15th gold medal on Friday, the kind of success that has drawn experts from other countries trying figure out how the tiny nation keeps doing it.`\
 https://nytimes.com/2022/02/18/sports/its-norways-games-again-whats-the-secret.html?searchResultPosition=9
 
 **South Korea prepares for another Covid-era national election.**\
