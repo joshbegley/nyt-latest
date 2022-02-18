@@ -1,5 +1,5 @@
 **Police Forces Swell in Ottawa as Prelude to Clamp Down**\
-`The unrest in the nation’s capital and the attention of the global media at a time of anxiety has amplified the impact of the protests.`\
+`The unrest in the nation’s capital and the attention of the global media at a time of anxiety have amplified the impact of the protests.`\
 https://nytimes.com/2022/02/18/world/canada/canada-protest-arrests.html?searchResultPosition=1
 
 **Hundreds Rescued From Burning Ferry Near Greek Island**\
@@ -8,7 +8,7 @@ https://nytimes.com/2022/02/18/world/europe/greece-ferry-fire.html?searchResultP
 
 **At 80, Tamara Moskvina Is Still Going for the Standing Ovation**\
 `In five decades as a coach, she has prodded — sometimes literally — four skating pairs to Olympic titles. She stands a good chance to be part of a fifth gold medal in Beijing.`\
-https://nytimes.com/2022/02/18/sports/olympics/tamara-moskvina-beijing-olympics-pairs-figure-skating.html?searchResultPosition=3
+https://nytimes.com/2022/02/18/sports/olympics/tamara-moskvina-coach-pairs-figure-skating.html?searchResultPosition=3
 
 **In Brazil, a Museum Within a Museum Restores a Legacy**\
 `The Afro-Brazilian activist Abdias do Nascimento envisioned a museum of Black art. More than 70 years later, it has taken up residence at the Inhotim Institute.`\
