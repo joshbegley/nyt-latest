@@ -1,6 +1,6 @@
 **What Australia’s Success at the Winter Olympics Does (and Doesn’t) Tell You**\
 `Australia has won more medals than ever at the 2022 Winter Games, but it’s hard to tell if global respect can turn the country into a winter sports wonderland.`\
-https://nytimes.com/2022/02/18/world/australia/what-australias-success-at-the-winter-olympics-does-and-doesnt-tell-you.html?searchResultPosition=1
+https://nytimes.com/2022/02/18/world/australia/australia-winter-olympics-medals.html?searchResultPosition=1
 
 **Corrections: Feb. 18, 2022**\
 `Corrections that appeared in print on Friday, Feb. 18, 2022.`\
