@@ -1,6 +1,6 @@
 **China’s Fastest Olympics Entrant? Climb Aboard.**\
 `A journey by high-speed train offers a window on the nation’s future, as well as some of the past it would like to leave behind.`\
-https://nytimes.com/2022/02/18/sports/olympics/chinas-fastest-olympics-entrant-climb-aboard.html?searchResultPosition=1
+https://nytimes.com/2022/02/18/world/asia/china-fast-train-olympics.html?searchResultPosition=1
 
 **Bots and Fake Accounts Push China’s Vision of Winter Olympic Wonderland**\
 `The country’s propagandists have used a variety of tools online to promote a vision of the Games that is free of rancor or controversy.`\
