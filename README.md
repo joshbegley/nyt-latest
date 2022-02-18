@@ -18,8 +18,8 @@ https://nytimes.com/2022/02/18/sports/olympics/pairs-figure-skating-short-progra
 `The partisan gap in Covid deaths is still growing, but more slowly.`\
 https://nytimes.com/2022/02/18/briefing/red-covid-partisan-deaths-vaccines.html?searchResultPosition=5
 
-**Storm Eunice Slams Britain With Dangerously High Winds**\
-`Wind gusts of up to 90 miles per hour were expected in parts of the country. One weather official said the storm would be the worst the country has seen in 30 years.`\
+**Storm Eunice Slams Northern Europe With Dangerously High Winds**\
+`A wind gust of 122 miles per hour was recorded in England, where one weather official said the storm would be the worst the country had seen in 30 years.`\
 https://nytimes.com/2022/02/18/world/europe/eunice-storm-damage.html?searchResultPosition=6
 
 **Two veteran U.S. pilots hope to extend medal streaks in the two-woman bobsled.**\
