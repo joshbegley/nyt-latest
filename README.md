@@ -1,4 +1,4 @@
-**Eileen Gu takes aim at another gold medal, this time in halfpipe.**\
+**Eileen Gu takes aim at another gold medal, this time in freeski halfpipe.**\
 `The skier, who grew up in California but competes for China, has emerged as one of the stars of the Beijing Games.`\
 https://nytimes.com/2022/02/17/sports/olympics/eileen-gu-halfpipe-skiing.html?searchResultPosition=1
 
