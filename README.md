@@ -19,7 +19,7 @@ https://nytimes.com/2022/02/18/sports/olympics/pairs-figure-skating-short-progra
 https://nytimes.com/2022/02/18/briefing/red-covid-partisan-deaths-vaccines.html?searchResultPosition=5
 
 **Storm Eunice Slams Northern Europe With Dangerously High Winds**\
-`A wind gust of 122 miles per hour was recorded in England, where one weather official said the storm would be the worst the country had seen in 30 years.`\
+`A gust of 122 miles per hour was recorded in England, where one weather official said the storm would be the worst the country had seen in 30 years.`\
 https://nytimes.com/2022/02/18/world/europe/eunice-storm-damage.html?searchResultPosition=6
 
 **Two veteran U.S. pilots hope to extend medal streaks in the two-woman bobsled.**\
