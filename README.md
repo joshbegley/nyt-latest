@@ -10,7 +10,7 @@ https://nytimes.com/2022/02/17/crosswords/variety-puns-and-anagrams.html?searchR
 `Aimee Lucido whets our craving for words and favors to savor.`\
 https://nytimes.com/2022/02/17/crosswords/daily-puzzle-2022-02-18.html?searchResultPosition=3
 
-**Fire Causes Major Damage to Historic Golf Club Outside Detroit**\
+**Fire at Historic Golf Club Outside Detroit Causes Major Damage**\
 `The Oakland Hills Country Club in Bloomfield Township, Mich., which was founded in 1916, has hosted six U.S. Open tournaments and numerous star golfers, including Jack Nicklaus and Tiger Woods.`\
 https://nytimes.com/2022/02/17/us/oakland-hills-country-club-fire.html?searchResultPosition=4
 
