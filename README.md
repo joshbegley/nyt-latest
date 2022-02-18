@@ -6,7 +6,7 @@ https://nytimes.com/2022/02/18/business/draftkings-earnings-4q-2021.html?searchR
 `A year of surprise and discovery on Mars. Also in this edition: Anna Sorokin on “Inventing Anna,” and what to do about work-related burnout.`\
 https://nytimes.com/interactive/2022/02/18/briefing/the-weekender.html?searchResultPosition=2
 
-**Police Forces Swell in Ottawa as Prelude to Clamp Down**\
+**Police Forces Swell in Ottawa as Prelude to Clampdown**\
 `More than 100 police have assembled in a staging area with heavy equipment and Ottawa police have issued a new warning that protesters must immediately leave or face arrest.`\
 https://nytimes.com/2022/02/18/world/canada/canada-protest-arrests.html?searchResultPosition=3
 
