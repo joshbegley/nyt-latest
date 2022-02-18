@@ -4,7 +4,7 @@ https://nytimes.com/2022/02/18/arts/sidney-miller-dead.html?searchResultPosition
 
 **What Students Are Saying About Banning Books From School Libraries**\
 `Teenagers share their nuanced views on the various book banning efforts spreading across the country.`\
-https://nytimes.com/2022/02/18/learning/what-students-are-saying-about-banning-books-from-school-libraries.html?searchResultPosition=2
+https://nytimes.com/2022/02/18/learning/students-book-bans.html?searchResultPosition=2
 
 **Rising Mortgage Rates Add to the Challenge of Buying a House**\
 `The average rate on a 30-year, fixed-rate mortgage is now the highest since May 2019. And home prices are expected to rise, though probably more slowly.`\
