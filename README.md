@@ -1,6 +1,6 @@
 **A Fall From the Society Pages to Prison Unsettles Greenwich**\
 `The sealing of the case against Hadley Palmer, 53, who must register as a sex offender for secretly filming minors, has revived questions about judicial favoritism for the wealthy. Lawyers say they were trying to protect her victims.`\
-https://nytimes.com/2022/02/18/nyregion/a-fall-from-the-society-pages-to-prison-unsettles-greenwich.html?searchResultPosition=1
+https://nytimes.com/2022/02/18/nyregion/hadley-palmer-greenwich.html?searchResultPosition=1
 
 **It’s Norway’s Games Again. What’s the Secret?**\
 `Norway’s outsize standing at the top of the Winter Games medal count has drawn experts from other countries to try to figure out how the tiny nation keeps doing it.`\
