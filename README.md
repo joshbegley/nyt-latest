@@ -4,7 +4,7 @@ https://nytimes.com/2022/02/18/podcasts/transcript-ezra-klein-interviews-alex-ta
 
 **No New Incursion, but Putin Has Already Weakened Ukraine’s Economy**\
 `Flights have been canceled, commercial shipping is threatened, and people fear an invasion is coming.`\
-https://nytimes.com/2022/02/18/world/europe/ukraine-economy-putin-weaken.html?searchResultPosition=2
+https://nytimes.com/2022/02/18/world/europe/ukraine-economy-putin.html?searchResultPosition=2
 
 **20-Minute Olive Pasta**\
 `Yasmin Fahr’s recipe blisters Castelvetranos in olive oil, then tosses them with feta and short, curly noodles for bold flavor.`\
