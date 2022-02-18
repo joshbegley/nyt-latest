@@ -22,7 +22,7 @@ https://nytimes.com/2022/02/17/nyregion/cuomo-melissa-derosa-sexual-harassment.h
 `Gov. Gavin Newsom of California unveiled the state’s new approach to living with the coronavirus, moving away from what he called a “crisis mindset” and beginning to treat the virus as a manageable risk.`\
 https://nytimes.com/video/us/100000008216218/california-newsom-covid-endemic-announcement.html?searchResultPosition=6
 
-**Eileen Gu wins gold in freestyle halfpipe, earning her third medal in China.**\
+**Eileen Gu wins gold in freeski halfpipe, earning her third medal in China.**\
 `The skier, who grew up in California and competes for China, has emerged as one of the stars of the Beijing Games.`\
 https://nytimes.com/2022/02/17/sports/olympics/eileen-gu-halfpipe-skiing-gold.html?searchResultPosition=7
 
