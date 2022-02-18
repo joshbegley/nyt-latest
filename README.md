@@ -31,7 +31,7 @@ https://nytimes.com/2022/02/18/arts/music/tyshawn-sorey-rothko-chapel.html?searc
 https://nytimes.com/2022/02/18/world/europe/france-election-macron-zemmour-le-pen.html?searchResultPosition=8
 
 **The bobsledder Elana Meyers Taylor will get to be a flag-bearer for the U.S. after all.**\
-`She had been chosen to carry the flag in the opening ceremony, but was replaced by the speedskater Brittany Bowe after she tested positive for the coronavirus.`\
+`She had been chosen to carry the flag in the opening ceremony, but was replaced after she tested positive for the coronavirus.`\
 https://nytimes.com/2022/02/17/sports/olympics/elana-meyers-taylor-closing-ceremony.html?searchResultPosition=9
 
 **N.Y. Officials Announce Plan to Remove Homeless People From Subways**\
