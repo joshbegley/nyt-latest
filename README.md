@@ -30,11 +30,11 @@ https://nytimes.com/2022/02/18/sports/olympics/two-woman-bobsled.html?searchResu
 `Burned out and exasperated, many nurses are quitting the profession, leaving the U.S. health system with a critical shortage.`\
 https://nytimes.com/2022/02/18/podcasts/the-daily/covid-nursing-shortages.html?searchResultPosition=8
 
+**Fanatics is buying Mitchell & Ness, a fellow sports merchandiser.**\
+`Mitchell & Ness, founded in 1904, is known for its throwback jerseys, which sell for $100 to $400.`\
+https://nytimes.com/2022/02/18/business/fanatics-mitchell-ness-sports-merchandise.html?searchResultPosition=9
+
 **U.S. Approval of Smart Headlights Has a Catch: They Can’t Be Too Bright**\
 `Adaptive beam headlights continually reshape the light they throw to avoid blinding oncoming drivers.`\
-https://nytimes.com/2022/02/18/business/us-approves-smart-headlights.html?searchResultPosition=9
-
-**Fanatics is buying Mitchell & Ness, a fellow sports merchandiser.**\
-`Mitchell & Ness, founded in 1904, is known for its throwback jerseys, which go from $100 to $400.`\
-https://nytimes.com/2022/02/18/business/fanatics-mitchell-ness-sports-merchandise.html?searchResultPosition=10
+https://nytimes.com/2022/02/18/business/us-approves-smart-headlights.html?searchResultPosition=10
 
