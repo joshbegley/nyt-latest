@@ -16,7 +16,7 @@ https://nytimes.com/interactive/2022/02/18/dining/cellular-meat.html?searchResul
 
 **Kazakhstan’s Internet Shutdown Offers Lessons for Russia-Ukraine Crisis**\
 `Control of the internet is increasingly part of any modern conflict.`\
-https://nytimes.com/2022/02/18/technology/kazakhstan-internet-shutdown-russia-ukraine-conflict.html?searchResultPosition=5
+https://nytimes.com/2022/02/18/technology/kazakhstan-internet-russia-ukraine.html?searchResultPosition=5
 
 **‘Animal Farm,’ Bambi and Other Letters to the Editor**\
 `Readers respond to recent issues of the Sunday Book Review.`\
