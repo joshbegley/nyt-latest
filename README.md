@@ -26,8 +26,8 @@ https://nytimes.com/2022/02/17/sports/olympics/figure-skating-scoring-explained.
 `In a settlement agreement, the estate of Harper Lee, who wrote “To Kill a Mockingbird,” renewed the movie sequel and remake rights of Cecilia Peck and other successors and heirs to the makers of the original 1962 film.`\
 https://nytimes.com/2022/02/17/arts/gregory-peck-mockingbird-sequel.html?searchResultPosition=7
 
-**Read the document**\
-`The Court of Arbitration for Sports releases its 41-page ruling on why it allowed Kamila Valieva to compete in Beijing.`\
+**Read the Full Ruling from the Court of Arbitration for Sport on Kamila Valieva**\
+`The Court of Arbitration for Sport releases its 41-page ruling on why it allowed Kamila Valieva to compete in Beijing.`\
 https://nytimes.com/interactive/2022/02/17/sports/olympics/court-of-arbitration-for-sport-ruling-on-kamila-valieva.html?searchResultPosition=8
 
 **The top court in sports explains ‘irreparable harm’ decision that allowed Kamila Valieva to compete.**\
