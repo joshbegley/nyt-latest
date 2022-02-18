@@ -2,7 +2,7 @@
 `The skier, who grew up in California but competes for China, has emerged as one of the stars of the Beijing Games.`\
 https://nytimes.com/2022/02/17/sports/olympics/eileen-gu-halfpipe-skiing.html?searchResultPosition=1
 
-**Ship Carrying 1,100 Porsches and Many Other Luxury Cars Is Burning and Adrift**\
+**Ship Carrying 1,100 Porsches and Other Luxury Cars Is Burning and Adrift**\
 `A fire broke out Wednesday morning in the cargo hold of the ship, which departed from Emden, Germany, on Feb. 10 and was due to arrive in Davisville, R.I., on Wednesday.`\
 https://nytimes.com/2022/02/17/world/europe/felicity-ace-vessel-fire.html?searchResultPosition=2
 
