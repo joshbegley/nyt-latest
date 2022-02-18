@@ -28,7 +28,7 @@ https://nytimes.com/2022/02/17/well/help-friend-support.html?searchResultPositio
 
 **Durham Distances Himself From Furor in Right-Wing Media Over Filing**\
 `The special counsel implicitly acknowledged that White House internet data he discussed, which conservative outlets have portrayed as proof of spying on the Trump White House, came from the Obama era.`\
-https://nytimes.com/2022/02/17/us/durham-right-wing-news-media.html?searchResultPosition=8
+https://nytimes.com/2022/02/17/us/durham-right-wing-media-trump.html?searchResultPosition=8
 
 **Kevin McCarthy Backs Liz Cheney’s Challenger, Escalating a Party Feud**\
 `The top House Republican’s unusual intervention in a primary marked the party’s latest move against Ms. Cheney, who has been a vocal critic of Donald J. Trump.`\
