@@ -10,7 +10,7 @@ https://nytimes.com/2022/02/18/crosswords/daily-puzzle-2022-02-19.html?searchRes
 `For the first time since the 1998 Winter Games, Jamaica has a four-man bobsled team in the Olympics.`\
 https://nytimes.com/2022/02/17/sports/olympics/jamaica-bobsled.html?searchResultPosition=3
 
-**Mikaela Shiffrin has one more race left: the mixed team event.**\
+**Mikaela Shiffrin’s final race, the mixed team event, postponed due to high winds.**\
 `The event is the only mixed gender ski racing event at the Winter Games.`\
 https://nytimes.com/2022/02/18/sports/olympics/mikaela-shiffrin-alpine-skiing-mixed-team.html?searchResultPosition=4
 
