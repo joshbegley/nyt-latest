@@ -7,7 +7,7 @@ https://nytimes.com/2022/02/19/crosswords/spelling-bee-forum.html?searchResultPo
 https://nytimes.com/2022/02/19/sports/alexandra-burghardt-winter-games.html?searchResultPosition=2
 
 **As warnings of war grow louder, Ukrainians try to keep their bearings.**\
-`By Valerie Hopkins and Maria Varenikova`\
+`The crisis has taken a toll on many Ukrainians.`\
 https://nytimes.com/2022/02/19/world/europe/as-warnings-of-war-grow-louder-ukrainians-try-to-keep-their-bearings.html?searchResultPosition=3
 
 **Overnight broadcast coverage includes figure skating and bobsledding.**\
