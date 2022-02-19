@@ -1,6 +1,6 @@
 **Two Olympics in Six Months: How Alexandra Burghardt Sprinted to the Winter Games**\
 `Within weeks of competing in Tokyo, Burghardt was considered an Olympic favorite in a winter sport she had never tried.`\
-https://nytimes.com/2022/02/19/sports/two-olympics-in-six-months-how-alexandra-burghardt-sprinted-to-the-winter-games.html?searchResultPosition=1
+https://nytimes.com/2022/02/19/sports/alexandra-burghardt-winter-games.html?searchResultPosition=1
 
 **As warnings of war grow louder, Ukrainians try to keep their bearings.**\
 `By Valerie Hopkins and Maria Varenikova`\
