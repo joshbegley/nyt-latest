@@ -22,8 +22,8 @@ https://nytimes.com/2022/02/19/world/europe/ukraine-russia-donbas.html?searchRes
 `A photographer’s sidewalk view of style around the fashion shows.`\
 https://nytimes.com/2022/02/19/style/new-york-fashion-week-style.html?searchResultPosition=6
 
-**Figure Skating’s Final Bow in Beijing**\
-`The pairs free skate is the last figure skating competition of the Games, after two weeks of artistry on the ice and tumult off it. See the latest photos here.`\
+**Chinese Pair Wins a Final Gold in Figure Skating**\
+`The pairs free skate was the last figure skating competition of the Games, after two weeks of artistry on the ice and tumult off it.`\
 https://nytimes.com/2022/02/19/sports/olympics/pairs-figure-skating-free-skate-finals.html?searchResultPosition=7
 
 **An Earlier Trek to Ottawa Had a Different Tone but Still Captured the Nation**\
