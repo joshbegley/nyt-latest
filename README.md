@@ -26,7 +26,7 @@ https://nytimes.com/2022/02/19/us/politics/infrastructure-plan-asphalt.html?sear
 `Readers discuss how racial and sexual issues and Donald Trump have led to strife and whether and how evangelism should be saved.`\
 https://nytimes.com/2022/02/19/opinion/letters/evangelical-christians.html?searchResultPosition=7
 
-**Truckers Arrested at Gunpoint as Police Advance Against Ottawa Protest**\
+**With a Show of Force, Police Rout Truckers**\
 `The operation appeared to be a final salvo in the government’s effort to break up weekslong protests that have roiled Canada’s capital.`\
 https://nytimes.com/2022/02/19/world/canada/canada-truckers-arrested.html?searchResultPosition=8
 
