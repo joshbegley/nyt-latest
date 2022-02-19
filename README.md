@@ -1,40 +1,40 @@
-**Moments From the Beijing Winter Games, Frame by Frame**\
-`See the Winter Olympics in a series of composite images.`\
-https://nytimes.com/interactive/2022/02/19/sports/olympics/winter-olympics-photos-pictures.html?searchResultPosition=1
+**When the Heart Belongs to Carhartt**\
+`A beloved store in a small hometown closes, but the residents still need their work wear.`\
+https://nytimes.com/2022/02/19/style/caplans-army-store-closure.html?searchResultPosition=1
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/02/19/crosswords/spelling-bee-forum.html?searchResultPosition=2
+**Why Ukraine Matters: What to Know About the Crisis With Russia**\
+`Here’s how the country ended up at the center of a global crisis.`\
+https://nytimes.com/article/ukraine-russia-putin.html?searchResultPosition=2
 
-**Two Olympics in Six Months: How Alexandra Burghardt Sprinted to the Winter Games**\
-`Within weeks of competing in Tokyo, Burghardt was considered an Olympic favorite in a winter sport she had never tried.`\
-https://nytimes.com/2022/02/19/sports/alexandra-burghardt-winter-games.html?searchResultPosition=3
+**How the Fight Over Abortion Rights Has Changed the Politics of South Texas**\
+`In the Laredo region, long a Democratic stronghold, that single issue appears to be driving the decision for many voters, the majority of whom are Catholic.`\
+https://nytimes.com/2022/02/19/us/texas-laredo-abortion.html?searchResultPosition=3
 
-**As warnings of war grow louder, Ukrainians try to keep their bearings.**\
-`The crisis has taken a toll on many Ukrainians.`\
-https://nytimes.com/2022/02/19/world/europe/as-warnings-of-war-grow-louder-ukrainians-try-to-keep-their-bearings.html?searchResultPosition=4
+**When Architects Made Worlds**\
+`MoMA explores an era of sweeping change, when South Asian architects — pioneering women, among them — redefined the postcolonial era and helped construct new nation states.`\
+https://nytimes.com/2022/02/19/arts/design/project-of-independence-moma-review.html?searchResultPosition=4
 
-**Overnight broadcast coverage includes figure skating and bobsledding.**\
-`The pairs skating event ends tonight, and the top Chinese duo are in the lead.`\
-https://nytimes.com/2022/02/18/sports/olympics/watch-pairs-figure-skating.html?searchResultPosition=5
+**Pandemic’s Economic Impact Is Easing, but Aftershocks May Linger**\
+`States are lifting mask mandates, and demand is bouncing back quickly after Omicron. Supply constraints are proving harder to escape.`\
+https://nytimes.com/2022/02/19/business/covid-economy.html?searchResultPosition=5
 
-**Quotation of the Day: Unequal Enforcement Led Officials to Repeal a Seattle Helmet Law**\
-`Quotation of the Day for Saturday, February 19, 2022.`\
-https://nytimes.com/2022/02/19/todayspaper/quotation-of-the-day-unequal-enforcement-led-officials-to-repeal-a-seattle-helmet-law.html?searchResultPosition=6
+**The Battle Over Race, Tradition and an Elite Private School’s Mascot**\
+`Collegiate’s Dutchman character got a makeover after students demanded the exclusive Manhattan school “address its own problems with racism and intolerance.”`\
+https://nytimes.com/2022/02/19/nyregion/collegiate-mascot-dutchman.html?searchResultPosition=6
 
-**Corrections: Feb. 19, 2022**\
-`Corrections that appeared in print on Saturday, Feb. 19, 2022.`\
-https://nytimes.com/2022/02/19/pageoneplus/corrections-feb-19-2022.html?searchResultPosition=7
+**Once He Kept Russia at a Distance. Now He Is a Docile Putin Satrap.**\
+`President Aleksandr G. Lukashenko of Belarus once skillfully managed Moscow, but now he is doing the Kremlin’s bidding in Russia’s confrontation with Ukraine.`\
+https://nytimes.com/2022/02/19/world/europe/lukashenko-belarus-russia-ukraine.html?searchResultPosition=7
 
-**How much does a bobsled weigh?**\
-`Each division of the sledding events at the Games requires a different weight for the sled.`\
-https://nytimes.com/2022/02/18/sports/olympics/bobsled-weight.html?searchResultPosition=8
+**‘I Identify as an Angler’: Meet Erica Nelson, a Female, Indigenous Fly Fishing Guide**\
+`She hooks tree branches, slips on rocks, and shines a light on the topics nobody talks about in her sport.`\
+https://nytimes.com/2022/02/19/travel/female-indigenous-fly-fishing-guide.html?searchResultPosition=8
 
-**Two Americans took medals in the freestyle skiing halfpipe.**\
-`David Wise earned the silver and Alex Ferreira the bronze. Nico Porteous of New Zealand won gold.`\
-https://nytimes.com/2022/02/18/sports/olympics/david-wise-alex-ferreira-skiing-halfpipe.html?searchResultPosition=9
+**Fringe Scheme to Reverse 2020 Election Splits Wisconsin G.O.P.**\
+`False claims that Donald J. Trump can be reinstalled in the White House are picking up steam — and spiraling further from reality as they go.`\
+https://nytimes.com/2022/02/19/us/politics/wisconsin-election-decertification.html?searchResultPosition=9
 
-**‘Botheration!’**\
-`Billy Bratton’s Saturday puzzle has fangs.`\
-https://nytimes.com/2022/02/18/crosswords/daily-puzzle-2022-02-19.html?searchResultPosition=10
+**Should You Still Wear a Mask?**\
+`Experts weigh in on where, and when, you can safely take one off.`\
+https://nytimes.com/article/mask-mandates-guidelines.html?searchResultPosition=10
 
