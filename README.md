@@ -20,7 +20,7 @@ https://nytimes.com/video/world/canada/100000008218261/ottawa-police-clash-with-
 
 **After Calling One Witness, Defense Rests in Arbery Hate Crimes Trial**\
 `A federal jury will hear closing arguments on Monday and then determine whether the three men convicted of Ahmaud Arbery’s murder killed him because he was Black.`\
-https://nytimes.com/2022/02/18/us/ahmaud-arbery-trial.html?searchResultPosition=6
+https://nytimes.com/2022/02/18/us/ahmaud-arbery-mcmichael-trial.html?searchResultPosition=6
 
 **Seattle Bike Helmet Rule Is Dropped Amid Racial Justice Concerns**\
 `Analysis showed that the King County regulation was enforced disproportionately against homeless people and people of color. Critics say the repeal will jeopardize safety.`\
