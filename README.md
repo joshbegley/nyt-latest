@@ -22,19 +22,19 @@ https://nytimes.com/2022/02/18/us/politics/biden-ukraine-russia.html?searchResul
 `The doctor and his wife tested positive after caring for their two sick children.`\
 https://nytimes.com/2022/02/18/world/vivek-murthy-family-covid.html?searchResultPosition=6
 
+**Videos show reported explosions near Luhansk.**\
+`By Christoph Koettl, Brenna Smith, Haley Willis and Masha Froliak`\
+https://nytimes.com/2022/02/18/world/europe/videos-show-reported-explosions-near-luhansk.html?searchResultPosition=7
+
 **Ottawa Police Clash With Protesters**\
 `Police officers made dozens of arrests as they moved to clear protesters from the streets of the Canadian capital where a truck blockade had been disrupting daily life for weeks.`\
-https://nytimes.com/video/world/canada/100000008218261/ottawa-police-clash-with-protesters.html?searchResultPosition=7
+https://nytimes.com/video/world/canada/100000008218261/ottawa-police-clash-with-protesters.html?searchResultPosition=8
 
 **After Calling One Witness, Defense Rests in Arbery Hate Crimes Trial**\
 `A federal jury will hear closing arguments on Monday and then determine whether the three men convicted of Ahmaud Arbery’s murder killed him because he was Black.`\
-https://nytimes.com/2022/02/18/us/ahmaud-arbery-mcmichael-trial.html?searchResultPosition=8
+https://nytimes.com/2022/02/18/us/ahmaud-arbery-mcmichael-trial.html?searchResultPosition=9
 
 **Seattle Bike Helmet Rule Is Dropped Amid Racial Justice Concerns**\
 `Analysis showed that the King County regulation was enforced disproportionately against homeless people and people of color. Critics say the repeal will jeopardize safety.`\
-https://nytimes.com/2022/02/18/us/seattle-bicycle-helmet.html?searchResultPosition=9
-
-**The Ebony Test Kitchen, Where Black Cuisine Was Celebrated, Is Reborn**\
-`The vibrant room is the centerpiece of a new exhibition in Harlem focused on the African American food experience.`\
-https://nytimes.com/2022/02/18/dining/ebony-test-kitchen.html?searchResultPosition=10
+https://nytimes.com/2022/02/18/us/seattle-bicycle-helmet.html?searchResultPosition=10
 
