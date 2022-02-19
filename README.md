@@ -1,5 +1,5 @@
 **Figure Skating’s Final Bow in Beijing**\
-`The pairs free skate is the last figure skating competition of the Games, after two weeks of artistry on the ice and tumult off it.`\
+`The pairs free skate is the last figure skating competition of the Games, after two weeks of artistry on the ice and tumult off it. See the latest photos here.`\
 https://nytimes.com/2022/02/19/sports/olympics/pairs-figure-skating-free-skate-finals.html?searchResultPosition=1
 
 **An Earlier Trek to Ottawa Had a Different Tone but Still Captured the Nation**\
