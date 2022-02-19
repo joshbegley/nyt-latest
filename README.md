@@ -1,6 +1,6 @@
 **Biden Says Putin Has Chosen ‘Catastrophic’ War Over Diplomacy**\
 `President Biden spoke amid fears that Russia was setting the stage for an invasion that could ignite the biggest conflict in Europe in decades.`\
-https://nytimes.com/2022/02/18/us/politics/ukraine-russia.html?searchResultPosition=1
+https://nytimes.com/2022/02/18/us/politics/biden-ukraine-russia.html?searchResultPosition=1
 
 **The U.S. surgeon general and his family have Covid.**\
 `The doctor and his wife tested positive after caring for their two sick children.`\
