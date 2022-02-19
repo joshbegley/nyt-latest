@@ -1,40 +1,40 @@
+**How much does a bobsled weigh?**\
+`Each division of the sledding events at the Games requires a different weight for the sled.`\
+https://nytimes.com/2022/02/18/sports/olympics/bobsled-weight.html?searchResultPosition=1
+
 **Two Americans took medals in the freestyle skiing halfpipe.**\
 `David Wise earned the silver and Alex Ferreira the bronze. Nico Porteous of New Zealand won gold.`\
-https://nytimes.com/2022/02/18/sports/olympics/david-wise-alex-ferreira-skiing-halfpipe.html?searchResultPosition=1
+https://nytimes.com/2022/02/18/sports/olympics/david-wise-alex-ferreira-skiing-halfpipe.html?searchResultPosition=2
 
 **‘Botheration!’**\
 `Billy Bratton’s Saturday puzzle has fangs.`\
-https://nytimes.com/2022/02/18/crosswords/daily-puzzle-2022-02-19.html?searchResultPosition=2
+https://nytimes.com/2022/02/18/crosswords/daily-puzzle-2022-02-19.html?searchResultPosition=3
 
 **After 24 years, the four-man Jamaican bobsled team is back.**\
 `For the first time since the 1998 Winter Games, Jamaica has a four-man bobsled team in the Olympics.`\
-https://nytimes.com/2022/02/17/sports/olympics/jamaica-bobsled.html?searchResultPosition=3
+https://nytimes.com/2022/02/17/sports/olympics/jamaica-bobsled.html?searchResultPosition=4
 
 **Mikaela Shiffrin’s final race, the mixed team event, is postponed because of high winds.**\
 `The event is the only mixed-gender ski racing event at the Winter Games.`\
-https://nytimes.com/2022/02/18/sports/olympics/mikaela-shiffrin-alpine-skiing-mixed-team.html?searchResultPosition=4
+https://nytimes.com/2022/02/18/sports/olympics/mikaela-shiffrin-alpine-skiing-mixed-team.html?searchResultPosition=5
 
 **Biden Says Putin Has Chosen ‘Catastrophic’ War Over Diplomacy**\
 `President Biden spoke amid fears that Russia was setting the stage for an invasion that could ignite the biggest conflict in Europe in decades.`\
-https://nytimes.com/2022/02/18/us/politics/biden-ukraine-russia.html?searchResultPosition=5
+https://nytimes.com/2022/02/18/us/politics/biden-ukraine-russia.html?searchResultPosition=6
 
 **The U.S. surgeon general and his family have Covid.**\
 `The doctor and his wife tested positive after caring for their two sick children.`\
-https://nytimes.com/2022/02/18/world/vivek-murthy-family-covid.html?searchResultPosition=6
+https://nytimes.com/2022/02/18/world/vivek-murthy-family-covid.html?searchResultPosition=7
 
 **Videos show reported explosions near Luhansk.**\
 `By Christoph Koettl, Brenna Smith, Haley Willis and Masha Froliak`\
-https://nytimes.com/2022/02/18/world/europe/videos-show-reported-explosions-near-luhansk.html?searchResultPosition=7
+https://nytimes.com/2022/02/18/world/europe/videos-show-reported-explosions-near-luhansk.html?searchResultPosition=8
 
 **Ottawa Police Clash With Protesters**\
 `Police officers made dozens of arrests as they moved to clear protesters from the streets of the Canadian capital where a truck blockade had been disrupting daily life for weeks.`\
-https://nytimes.com/video/world/canada/100000008218261/ottawa-police-clash-with-protesters.html?searchResultPosition=8
+https://nytimes.com/video/world/canada/100000008218261/ottawa-police-clash-with-protesters.html?searchResultPosition=9
 
 **After Calling One Witness, Defense Rests in Arbery Hate Crimes Trial**\
 `A federal jury will hear closing arguments on Monday and then determine whether the three men convicted of Ahmaud Arbery’s murder killed him because he was Black.`\
-https://nytimes.com/2022/02/18/us/ahmaud-arbery-mcmichael-trial.html?searchResultPosition=9
-
-**Seattle Bike Helmet Rule Is Dropped Amid Racial Justice Concerns**\
-`Analysis showed that the King County regulation was enforced disproportionately against homeless people and people of color. Critics say the repeal will jeopardize safety.`\
-https://nytimes.com/2022/02/18/us/seattle-bicycle-helmet.html?searchResultPosition=10
+https://nytimes.com/2022/02/18/us/ahmaud-arbery-mcmichael-trial.html?searchResultPosition=10
 
