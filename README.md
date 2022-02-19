@@ -1,5 +1,5 @@
 **After 24 years, the four-man Jamaican bobsled team is back.**\
-`By Lauren McCarthy`\
+`For the first time since the 1998 Winter Games, Jamaica has a four-man bobsled team in the Olympics.`\
 https://nytimes.com/2022/02/17/sports/olympics/jamaica-bobsled.html?searchResultPosition=1
 
 **Mikaela Shiffrin has one more race left: the mixed team event.**\
