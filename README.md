@@ -1,5 +1,5 @@
 **Two Americans took medals in the freestyle skiing halfpipe.**\
-`David Wise earned the silver and Alex Ferreira the bronze.`\
+`David Wise earned the silver and Alex Ferreira the bronze. Nico Porteous of New Zealand won gold.`\
 https://nytimes.com/2022/02/18/sports/olympics/david-wise-alex-ferreira-skiing-halfpipe.html?searchResultPosition=1
 
 **‘Botheration!’**\
