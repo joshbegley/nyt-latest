@@ -18,19 +18,19 @@ https://nytimes.com/2022/02/19/sports/olympics/watch-pairs-figure-skating-bobsle
 `Prepare to feel the satisfaction of finishing this Sunday puzzle by Victor Barocas. Why? Because it’s un oeuf.`\
 https://nytimes.com/2022/02/19/crosswords/daily-puzzle-2022-02-20.html?searchResultPosition=6
 
+**Shelling escalates in eastern Ukraine, as U.S. officials warn of pretexts for a Russian invasion.**\
+`By Steven Erlanger`\
+https://nytimes.com/2022/02/19/world/europe/shelling-escalates-in-eastern-ukraine-as-us-officials-warn-of-pretexts-for-a-russian-invasion.html?searchResultPosition=7
+
 **Steelers Hire Brian Flores as an Assistant Amid His N.F.L. Lawsuit**\
 `The former Dolphins head coach who has accused the league and its 32 teams of discriminatory hiring practices against Black coaches will join the Steelers as a senior defensive assistant linebackers coach.`\
-https://nytimes.com/2022/02/19/sports/football/brian-flores-steelers-lawsuit.html?searchResultPosition=7
+https://nytimes.com/2022/02/19/sports/football/brian-flores-steelers-lawsuit.html?searchResultPosition=8
 
 **Peter Earnest, C.I.A. Veteran Who Ran a Spy Museum, Dies at 88**\
 `He ran secret agents and later served as the agency’s spokesman. Both roles prepared him well for his role as the International Spy Museum’s first director.`\
-https://nytimes.com/2022/02/19/us/peter-earnest-dead.html?searchResultPosition=8
+https://nytimes.com/2022/02/19/us/peter-earnest-dead.html?searchResultPosition=9
 
 **Canadian Police Arrest Dozens at Ottawa Protest**\
 `Officers in riot gear pushed to regain the area around the Parliament building in Ottawa, where demonstrations have roiled the nation’s capital for weeks and parked trucks have blocked the city’s downtown core.`\
-https://nytimes.com/video/world/canada/100000008218938/canada-truckers-arrested-ottawa.html?searchResultPosition=9
-
-**‘Be Calm,’ He Said, as Mortar Shells Fell on the Road Behind Us**\
-`As shelling intensified in eastern Ukraine, a seemingly routine press tour turned into a frantic rush to safety.`\
-https://nytimes.com/2022/02/19/world/europe/ukraine-russia-shelling.html?searchResultPosition=10
+https://nytimes.com/video/world/canada/100000008218938/canada-truckers-arrested-ottawa.html?searchResultPosition=10
 
