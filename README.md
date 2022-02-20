@@ -18,7 +18,7 @@ https://nytimes.com/2022/02/20/world/asia/olympics-closing-ceremony-beijing.html
 `Americans kept shopping last month. China’s sunny version of the Olympics. And the potential impact on energy markets of a  Ukraine invasion.`\
 https://nytimes.com/2022/02/20/business/the-week-in-business-a-step-toward-data-privacy.html?searchResultPosition=5
 
-**Mass Shooting at a Portland Protest Against Police Violence Leaves 1 Dead**\
+**Shooting at a Portland Protest Against Police Violence Leaves 1 Dead**\
 `Five other people were wounded, the police said. Few details about the shooting were immediately released.`\
 https://nytimes.com/2022/02/20/us/portland-shooting-protest.html?searchResultPosition=6
 
