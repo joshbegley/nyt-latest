@@ -36,5 +36,5 @@ https://nytimes.com/2022/02/20/world/europe/queen-elizabeth-covid-royal-family.h
 
 **Here’s what would happen if Queen Elizabeth were too ill to carry out her duties.**\
 `According to Buckingham Palace, if the queen needs to suspend her official duties because of illness or because she is abroad, two or more counselors of state can act on her behalf.`\
-https://nytimes.com/2022/02/20/world/europe/heres-what-would-happen-if-queen-elizabeth-were-too-ill-to-carry-out-her-duties.html?searchResultPosition=10
+https://nytimes.com/2022/02/20/world/europe/queen-elizabeth-duties-royal-family.html?searchResultPosition=10
 
