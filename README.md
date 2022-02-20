@@ -2,7 +2,7 @@
 `Before Queen Elizabeth II’s diagnosis, Prime Minister Boris Johnson had been expected to announce the lifting of the remaining coronavirus restrictions in England.`\
 https://nytimes.com/2022/02/20/world/europe/queen-covid-boris-johnson.html?searchResultPosition=1
 
-**The Class of 2022 Prepares to Enter a Work World in Flux**\
+**College Seniors Prepare to Enter a Work World in Flux**\
 `As workplaces transformed by the pandemic negotiate a “new normal,” DealBook asked college seniors across the country what they hope it will look like.`\
 https://nytimes.com/2022/02/20/business/dealbook/the-class-of-2022-prepares-to-enter-a-work-world-in-flux.html?searchResultPosition=2
 
