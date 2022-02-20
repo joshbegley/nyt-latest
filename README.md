@@ -1,40 +1,40 @@
+**Justice Dept. Is Set to Modify Trump-Era Program Aimed at Fighting Chinese Threats**\
+`Critics said the China Initiative unfairly targeted Asian professors and contributed to a rising tide of anti-Asian sentiment.`\
+https://nytimes.com/2022/02/20/us/politics/justice-department-china-initiative.html?searchResultPosition=1
+
+**Marc Brown on the End of ‘Arthur’ and His Favorite Fan Theories**\
+`With the beloved PBS children’s show ending after 25 seasons, its 75-year-old creator answered some off-the-wall questions about his 8-year-old aardvark.`\
+https://nytimes.com/2022/02/20/arts/television/marc-brown-arthur-ending.html?searchResultPosition=2
+
+**Bond Between China and Russia Alarms U.S. and Europe Amid Ukraine Crisis**\
+`The Biden administration plans to build up global coalitions to counter a pact between Vladimir V. Putin and Xi Jinping, portending a new type of Cold War.`\
+https://nytimes.com/2022/02/20/us/politics/russia-china-ukraine-biden.html?searchResultPosition=3
+
+**Homes That Sold for About $500,000 or Less**\
+`Recent residential sales in New York City and the region.`\
+https://nytimes.com/2022/02/20/realestate/homes-that-sold-for-about-500000-or-less.html?searchResultPosition=4
+
+**Capturing the Raw Emotion of Parents and the Pandemic’s ‘Zoom Babies’**\
+`The New York Times Magazine’s photo essay showcases intimate portraits of parents and their babies in virtual work meetings — reminiscent of Renaissance-era paintings.`\
+https://nytimes.com/2022/02/20/insider/capturing-the-raw-emotion-of-parents-and-the-pandemics-zoom-babies.html?searchResultPosition=5
+
+**Cold Water Plunges Are Trendy. Can They Really Reduce Anxiety and Depression?**\
+`Early research suggests this age-old practice might benefit mental health, but more research is needed.`\
+https://nytimes.com/2022/02/20/well/mind/cold-plunge-mental-health.html?searchResultPosition=6
+
+**Ambitions and Emotions Run Hot in ‘The Founders,’ a History of PayPal**\
+`Jimmy Soni’s book tells the story of how an ensemble of entrepreneurs, including Elon Musk and Peter Thiel, helped the online payment system prevail.`\
+https://nytimes.com/2022/02/20/books/review-founders-paypal-jimmy-soni.html?searchResultPosition=7
+
 **The Next Affordable City Is Already Too Expensive**\
 `In Spokane, Wash., home prices jumped 60 percent in the past two years. The increase is fueled by buyers fleeing the boom in cities like Austin. Who will have to flee next?`\
-https://nytimes.com/2022/02/20/business/economy/spokane-housing-expensive-cities.html?searchResultPosition=1
+https://nytimes.com/2022/02/20/business/economy/spokane-housing-expensive-cities.html?searchResultPosition=8
 
 **New Twist in Pandemic’s Impact on Schools: Substitutes in Camouflage**\
 `Deployed to classrooms in New Mexico to help with crippling staff shortages, National Guard troops are employing their informal motto, “Semper Gumby” — Always Flexible.`\
-https://nytimes.com/2022/02/20/us/politics/substitute-teachers-national-guard-new-mexico.html?searchResultPosition=2
+https://nytimes.com/2022/02/20/us/politics/substitute-teachers-national-guard-new-mexico.html?searchResultPosition=9
 
 **‘As the Adjustment Was Being Made, I Tapped the Woman on the Shoulder’**\
 `Stocking up on a key ingredient, telling it to the judge and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2022/02/20/nyregion/metropolitan-diary.html?searchResultPosition=3
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/02/20/crosswords/spelling-bee-forum.html?searchResultPosition=4
-
-**Corrections: Feb. 20, 2022**\
-`Corrections that appeared in print on Sunday, Feb. 20, 2022.`\
-https://nytimes.com/2022/02/20/pageoneplus/corrections-feb-20-2022.html?searchResultPosition=5
-
-**Quotation of the Day: As Virus Eases, Economic Blow Keeps Rippling**\
-`Quotation of the Day for Sunday, February 20, 2022.`\
-https://nytimes.com/2022/02/20/todayspaper/quotation-of-the-day-as-virus-eases-economic-blow-keeps-rippling.html?searchResultPosition=6
-
-**India’s Congress Party Faces a Test of Survival as Punjab Votes**\
-`A defeat here, one of the few states where the once-dominant party still retains power, would be a major blow.`\
-https://nytimes.com/2022/02/20/world/asia/india-election-punjab-congress-party.html?searchResultPosition=7
-
-**How to watch the closing ceremony, and what to expect when it begins.**\
-`Based on ceremonies of the recent past, it is possible to predict some of what we can expect to see when the event begins at 8 p.m. on Sunday in Beijing.`\
-https://nytimes.com/2022/02/20/sports/olympics/closing-ceremony-beijing-olympics.html?searchResultPosition=8
-
-**Emile Francis Dies at 95; Rebuilt N.H.L.’s Rangers as Coach and General Manager**\
-`After earning the nickname “the Cat” as a nimble goaltender, he led the New York team to a winning record and coached stars like Eddie Giacomin, Rod Gilbert and Brad Park.`\
-https://nytimes.com/2022/02/20/obituaries/emile-francis-dead.html?searchResultPosition=9
-
-**Germany wins gold and silver in four-man bobsled.**\
-`The country won a medal in every sliding event except monobob.`\
-https://nytimes.com/2022/02/19/sports/olympics/bobsled-germany-four-man.html?searchResultPosition=10
+https://nytimes.com/2022/02/20/nyregion/metropolitan-diary.html?searchResultPosition=10
 
