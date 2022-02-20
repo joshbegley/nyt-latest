@@ -2,8 +2,8 @@
 `Explorers have started combing the Weddell Sea for Ernest Shackleton’s Endurance, which sank in 1915.`\
 https://nytimes.com/slideshow/2022/02/19/homepage/searching-for-shackletons-lost-ship.html?searchResultPosition=1
 
-**After delay, Shiffrin will compete in a final race for the U.S.**\
-`The team event includes a mix of men and women competitors.`\
+**After delay, Mikaela Shiffrin competes in a final race for the U.S.**\
+`The team event includes a mix of men and women competing for their countries in head-to-head races. It’s Shiffrin’s final chance for a medal at the Beijing Games.`\
 https://nytimes.com/2022/02/19/sports/olympics/mikaela-shiffrin-mixed-team-skiing.html?searchResultPosition=2
 
 **What’s left? Five final golds, and then the closing ceremony.**\
