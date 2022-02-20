@@ -1,5 +1,5 @@
-**Jessie Diggins wins silver in the 30-kilometer race, her third Olympic medal.**\
-`Diggins won a bronze medal in the individual sprint earlier in the Beijing Games.`\
+**Diggins wins silver for the U.S. in the 30-kilometer race, her third medal in Beijing.**\
+`The American won a bronze medal in the individual sprint earlier in the Beijing Games.`\
 https://nytimes.com/2022/02/19/sports/olympics/jessie-diggins-cross-country-skiing-silver-medal.html?searchResultPosition=1
 
 **Finland and Russia play for the gold in men’s hockey.**\
