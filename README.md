@@ -22,7 +22,7 @@ https://nytimes.com/2022/02/20/obituaries/emile-francis-dead.html?searchResultPo
 `The American cross-country skier took second in the 30-kilometer freestyle, a marathon race that is not one of her top events.`\
 https://nytimes.com/2022/02/19/sports/olympics/jessie-diggins-cross-country-skiing-silver-medal.html?searchResultPosition=6
 
-**Finland beats Russia, 2-1, for the gold in men’s hockey.**\
+**Finland beats Russia, 2-1, to win its first gold in men’s hockey.**\
 `The Finns brought an aggressive attack to the ice, more than doubling the Russians in shots in the first period alone.`\
 https://nytimes.com/2022/02/19/sports/olympics/finland-russia-mens-hockey.html?searchResultPosition=7
 
