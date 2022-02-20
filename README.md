@@ -1,6 +1,6 @@
 **Blitzkrieg or Minor Incursion? Putin’s Choice Could Determine World Reaction**\
 `President Vladimir V. Putin of Russia may be looking for fissures in the Western alliance, which so far has been united against him.`\
-https://nytimes.com/2022/02/20/us/politics/putin-analysis.html?searchResultPosition=1
+https://nytimes.com/2022/02/20/us/politics/putin-ukraine-strategy.html?searchResultPosition=1
 
 **Israel plans to open its borders to unvaccinated tourists.**\
 `After weathering the Omicron wave, the country is turning to testing to try to let in more visitors safely.`\
