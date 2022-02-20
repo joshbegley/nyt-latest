@@ -4,7 +4,7 @@ https://nytimes.com/2022/02/20/business/oil-prices-russia-ukraine-iran.html?sear
 
 **Satellite images show a new phase of Russian military readiness.**\
 `Several units or troops have been deployed outside of bases or training grounds, as Russian units continue moving closer to the border with Ukraine.`\
-https://nytimes.com/2022/02/20/world/europe/russia-ukraine-satellite-images-troops-move.html?searchResultPosition=2
+https://nytimes.com/2022/02/20/world/europe/russia-military-ukraine-border.html?searchResultPosition=2
 
 **Blitzkrieg or Minor Incursion? Putin’s Choice Could Determine World Reaction**\
 `President Vladimir V. Putin of Russia may be looking for fissures in the Western alliance, which so far has been united against him.`\
