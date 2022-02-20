@@ -10,13 +10,13 @@ https://nytimes.com/2022/02/20/health/covid-cdc-data.html?searchResultPosition=2
 `But the Kremlin signaled little optimism regarding a diplomatic path, saying Western countries were pushing Ukraine’s government to a “military solution.”`\
 https://nytimes.com/2022/02/20/world/europe/putin-macron-ukraine.html?searchResultPosition=3
 
-**Coming Attractions: Seven Winter Olympians to Watch in 2026**\
-`As the Beijing Games end, we asked our writers to tell us about 2022 Olympians who might be expected to peak at the Milan-Cortina Games in four years.`\
-https://nytimes.com/2022/02/20/sports/olympics/winter-olympics-athletes-2026.html?searchResultPosition=4
-
 **Vast Leak Exposes How Credit Suisse Served Strongmen and Spies**\
 `Leaked data on more than 18,000 accounts shows that the Swiss bank missed or ignored red flags.`\
-https://nytimes.com/2022/02/20/business/credit-suisse-leak-swiss-bank.html?searchResultPosition=5
+https://nytimes.com/2022/02/20/business/credit-suisse-leak-swiss-bank.html?searchResultPosition=4
+
+**Coming Attractions: Seven Winter Olympians to Watch in 2026**\
+`As the Beijing Games end, we asked our writers to tell us about 2022 Olympians who might be expected to peak at the Milan-Cortina Games in four years.`\
+https://nytimes.com/2022/02/20/sports/olympics/winter-olympics-athletes-2026.html?searchResultPosition=5
 
 **These vaccines have been embraced by the world. Why not in China?**\
 `By Alexandra Stevenson`\
