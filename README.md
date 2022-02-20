@@ -10,8 +10,8 @@ https://nytimes.com/2022/02/20/sports/olympics/closing-ceremony-beijing-olympics
 `After earning the nickname “the Cat” as a nimble goaltender, he led the New York team to a winning record and coached stars like Eddie Giacomin, Rod Gilbert and Brad Park.`\
 https://nytimes.com/2022/02/20/obituaries/emile-francis-dead.html?searchResultPosition=3
 
-**Diggins wins silver for the U.S. in the 30-kilometer race, her third medal in Beijing.**\
-`The American won a bronze medal in the individual sprint earlier in the Beijing Games.`\
+**Jessie Diggins wins silver for the U.S., her third medal in Beijing.**\
+`The American cross-country skier took second in the 30-kilometer freestyle, a marathon race that is not one of her top events.`\
 https://nytimes.com/2022/02/19/sports/olympics/jessie-diggins-cross-country-skiing-silver-medal.html?searchResultPosition=4
 
 **Finland and Russia play for the gold in men’s hockey.**\
