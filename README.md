@@ -36,5 +36,5 @@ https://nytimes.com/2022/02/20/sports/ncaabasketball/michigan-wisconsin-fight-ju
 
 **A Subdued Munich Conference Hears a Troubling Word: Appeasement**\
 `President Volodymyr Zelensky of Ukraine reminded his Western counterparts of what was supposed to be an unforgettable lesson from Europe’s past.`\
-https://nytimes.com/2022/02/20/world/europe/ukraine-russia-appeasement.html?searchResultPosition=10
+https://nytimes.com/2022/02/20/world/europe/ukraine-zelensky-munich-conference.html?searchResultPosition=10
 
