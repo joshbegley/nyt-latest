@@ -1,4 +1,4 @@
-**Newsom’s new Covid plans aims to move California state out of ‘crisis mode.’**\
+**Newsom’s new Covid plan aims to move California state out of ‘crisis mode.’**\
 `He and other U.S. governors are shifting to policies that acknowledge the need to live with the continuing uncertainty over possible new variants.`\
 https://nytimes.com/2022/02/20/health/newsom-california-covid-plan.html?searchResultPosition=1
 
