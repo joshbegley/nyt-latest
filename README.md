@@ -34,7 +34,7 @@ https://nytimes.com/2022/02/20/sports/olympics/closing-ceremony-beijing-olympics
 `After earning the nickname “the Cat” as a nimble goaltender, he led the New York team to a winning record and coached stars like Eddie Giacomin, Rod Gilbert and Brad Park.`\
 https://nytimes.com/2022/02/20/obituaries/emile-francis-dead.html?searchResultPosition=9
 
-**Jessie Diggins wins silver for the U.S., her third Olympic medal.**\
-`The American cross-country skier took second in the 30-kilometer freestyle, a marathon race that is not one of her top events.`\
-https://nytimes.com/2022/02/19/sports/olympics/jessie-diggins-cross-country-skiing-silver-medal.html?searchResultPosition=10
+**Germany wins gold and silver in four-man bobsled.**\
+`The country won a medal in every sliding event except monobob.`\
+https://nytimes.com/2022/02/19/sports/olympics/bobsled-germany-four-man.html?searchResultPosition=10
 
