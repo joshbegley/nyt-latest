@@ -7,7 +7,7 @@ https://nytimes.com/2022/02/20/world/europe/ukraine-russia-appeasement.html?sear
 https://nytimes.com/2022/02/20/briefing/your-monday-briefing-shelling-in-ukraine-intensifies.html?searchResultPosition=2
 
 **Carl Icahn Pushes McDonald’s to Change Way It Sources Its Pork**\
-`The billionaire investor has proposed two candidates for the company’s board.`\
+`The billionaire investor has proposed two candidates for the company’s board. The company argues that his demands are unreasonable given the current U.S. pork supply.`\
 https://nytimes.com/2022/02/20/business/dealbook/mcdonalds-pork-carl-icahn.html?searchResultPosition=3
 
 **Charley Taylor, Running Back Turned Hall of Fame Receiver, Dies at 80**\
