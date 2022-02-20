@@ -10,8 +10,8 @@ https://nytimes.com/2022/02/19/sports/olympics/watch-pairs-figure-skating-bobsle
 `Prepare to feel the satisfaction of finishing this Sunday puzzle by Victor Barocas. Why? Because it’s un oeuf.`\
 https://nytimes.com/2022/02/19/crosswords/daily-puzzle-2022-02-20.html?searchResultPosition=4
 
-**Pittsburgh Steelers Hire Brian Flores Amid His N.F.L. Lawsuit**\
-`The former Dolphins head coach who has accused the league of discriminatory hiring practices against Black coaching candidates joins the Steelers as a defensive assistant coach.`\
+**Steelers Hire Brian Flores as an Assistant Amid His N.F.L. Lawsuit**\
+`The former Dolphins head coach who has accused the league and its 32 teams of discriminatory hiring practices against Black coaches will join the Steelers as a senior defensive assistant linebackers coach.`\
 https://nytimes.com/2022/02/19/sports/football/brian-flores-steelers-lawsuit.html?searchResultPosition=5
 
 **Peter Earnest, C.I.A. Veteran Who Ran a Spy Museum, Dies at 88**\
