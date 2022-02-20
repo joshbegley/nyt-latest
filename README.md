@@ -6,8 +6,8 @@ https://nytimes.com/interactive/2022/02/19/books/how-a-book-is-made.html?searchR
 `Explorers have started combing the Weddell Sea for Ernest Shackleton’s Endurance, which sank in 1915.`\
 https://nytimes.com/slideshow/2022/02/19/homepage/searching-for-shackletons-lost-ship.html?searchResultPosition=2
 
-**After delay, Mikaela Shiffrin competes in a final race for the U.S.**\
-`The team event includes a mix of men and women competing for their countries in head-to-head races. It’s Shiffrin’s final chance for a medal at the Beijing Games.`\
+**Mikaela Shiffrin loses a last shot at a medal as the U.S. mixed team falls short.**\
+`The team event includes a mix of men and women competing for their countries in head-to-head races. It was Shiffrin’s final chance for a medal at the Beijing Games.`\
 https://nytimes.com/2022/02/19/sports/olympics/mikaela-shiffrin-mixed-team-skiing.html?searchResultPosition=3
 
 **What’s left? Five final golds, and then the closing ceremony.**\
