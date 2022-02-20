@@ -1,40 +1,40 @@
+**‘Mr. Bachmann and His Class’ Review: Learning From the Best**\
+`Maria Speth’s enthralling documentary spends a year in the classroom of an unconventional teacher in a German industrial town.`\
+https://nytimes.com/2022/02/20/movies/mr-bachmann-and-his-class-review.html?searchResultPosition=1
+
+**The Problem With the Pandemic Plot**\
+`Literary novelists are struggling with whether, and how, to incorporate Covid into their fiction.`\
+https://nytimes.com/2022/02/20/books/pandemic-fiction.html?searchResultPosition=2
+
 **Michigan and Wisconsin Game Ends With Altercation in Handshake Line**\
 `Upset by Wisconsin calling a timeout with a large lead in the final minute, Michigan Coach Juwan Howard landed a slap on a Badgers assistant and players from both teams had a scrum.`\
-https://nytimes.com/2022/02/20/sports/ncaabasketball/michigan-wisconsin-fight-juwan-howard.html?searchResultPosition=1
+https://nytimes.com/2022/02/20/sports/ncaabasketball/michigan-wisconsin-fight-juwan-howard.html?searchResultPosition=3
 
 **A Subdued Munich Conference Hears a Troubling Word: Appeasement**\
 `President Volodymyr Zelensky of Ukraine reminded his Western counterparts of what was supposed to be an unforgettable lesson from Europe’s past.`\
-https://nytimes.com/2022/02/20/world/europe/ukraine-russia-appeasement.html?searchResultPosition=2
+https://nytimes.com/2022/02/20/world/europe/ukraine-russia-appeasement.html?searchResultPosition=4
 
 **Your Monday Briefing: Shelling in Ukraine intensifies**\
 `Plus the Olympics end and Queen Elizabeth II tests positive.`\
-https://nytimes.com/2022/02/20/briefing/your-monday-briefing-shelling-in-ukraine-intensifies.html?searchResultPosition=3
+https://nytimes.com/2022/02/20/briefing/your-monday-briefing-shelling-in-ukraine-intensifies.html?searchResultPosition=5
 
 **Carl Icahn Pushes McDonald’s to Change Way It Sources Its Pork**\
 `The billionaire investor has proposed two candidates for the company’s board. The company argues that his demands are unreasonable given the current U.S. pork supply.`\
-https://nytimes.com/2022/02/20/business/dealbook/mcdonalds-pork-carl-icahn.html?searchResultPosition=4
+https://nytimes.com/2022/02/20/business/dealbook/mcdonalds-pork-carl-icahn.html?searchResultPosition=6
 
 **Charley Taylor, Running Back Turned Hall of Fame Receiver, Dies at 80**\
 `After changing positions, he became the most prolific receiver in N.F.L. history and helped make Washington a force in the league.`\
-https://nytimes.com/2022/02/20/sports/football/charley-taylor-dead.html?searchResultPosition=5
+https://nytimes.com/2022/02/20/sports/football/charley-taylor-dead.html?searchResultPosition=7
 
 **This Is the Russia-China Friendship that Nixon Feared**\
 `Fifty years after Nixon’s  trip to Beijing, China grows stronger than the Soviet Union ever was.`\
-https://nytimes.com/2022/02/20/opinion/nixon-china.html?searchResultPosition=6
+https://nytimes.com/2022/02/20/opinion/nixon-china.html?searchResultPosition=8
 
 **Scrappy and Invaluable, a Unique Music Ensemble Returns**\
 `The Boston Modern Orchestra Project turned 25 last year, but celebrated on Friday at Symphony Hall with a characteristic mix of rarities.`\
-https://nytimes.com/2022/02/20/arts/music/boston-modern-orchestra-project-bmop.html?searchResultPosition=7
+https://nytimes.com/2022/02/20/arts/music/boston-modern-orchestra-project-bmop.html?searchResultPosition=9
 
 **A Solemn Sunday in Kyiv**\
 `I went to the central square in Kyiv on Sunday to watch a memorial that in many ways helps explain the current crisis.`\
-https://nytimes.com/interactive/2022/02/20/world/europe/kyiv-memorial.html?searchResultPosition=8
-
-**Biden Administration Halts New Drilling in Legal Fight Over Climate Costs**\
-`The Justice Department is pausing new federal oil and gas leases and permits after a judge blocked the government from weighing the cost of climate damage in decisions.`\
-https://nytimes.com/2022/02/20/climate/cost-of-carbon-biden-climate.html?searchResultPosition=9
-
-**Queen Elizabeth Tests Positive for Coronavirus, as England Is Poised to Relax Rules**\
-`The queen, who recently marked her 70th anniversary on the throne, has faced a series of health issues since late last year.`\
-https://nytimes.com/2022/02/20/world/europe/queen-elizabeth-covid-royal-family.html?searchResultPosition=10
+https://nytimes.com/interactive/2022/02/20/world/europe/kyiv-memorial.html?searchResultPosition=10
 
