@@ -30,11 +30,11 @@ https://nytimes.com/2022/02/20/arts/television/billions-recap-episode-5.html?sea
 `The authorities said it appeared to be a murder-suicide.`\
 https://nytimes.com/2022/02/20/your-money/bernie-madoff-sister-dead.html?searchResultPosition=8
 
-**If war flames in Ukraine, these two little enclaves may be the spark.**\
-`By Andrew E. Kramer`\
-https://nytimes.com/2022/02/20/world/europe/if-war-flames-in-ukraine-these-two-little-enclaves-may-be-the-spark.html?searchResultPosition=9
-
 **Justin Bieber tests positive for the coronavirus, leading to the postponement of shows.**\
 `Two performances, so far, are being rescheduled, his tour said, after an outbreak “within the team.”`\
-https://nytimes.com/2022/02/20/arts/bieber-covid-positive.html?searchResultPosition=10
+https://nytimes.com/2022/02/20/arts/bieber-covid-positive.html?searchResultPosition=9
+
+**Hank the Tank, a 500-Pound Bear, Ransacks a California Community**\
+`Paintballs, bean bags, sirens and Tasers cannot keep the “exceptionally large bear” from seeking leftover pizza and other food. Officials say he has broken into at least 28 homes since July.`\
+https://nytimes.com/2022/02/20/us/lake-tahoe-bear.html?searchResultPosition=10
 
