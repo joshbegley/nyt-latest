@@ -18,7 +18,7 @@ https://nytimes.com/2022/02/21/obituaries/paul-farmer-dead.html?searchResultPosi
 `“Burning Questions” collects sundry pieces the author has written (and sometimes spoken) since 2004.`\
 https://nytimes.com/2022/02/21/books/review-margaret-atwood-burning-questions-essays.html?searchResultPosition=5
 
-**Russia plans to recognize Donetsk and Luhansk. This is why it matters.**\
+**Why it matters that Russia just recognized Donetsk and Luhansk.**\
 `The act of recognition is fraught with meaning because the borders claimed by the Russia-backed leaders of the two breakaway regions extend into space controlled by the Ukrainian army.`\
 https://nytimes.com/2022/02/21/world/europe/donetsk-luhansk-donbas-ukraine.html?searchResultPosition=6
 
