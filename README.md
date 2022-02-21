@@ -18,23 +18,23 @@ https://nytimes.com/2022/02/21/opinion/ukraine-russia-zelensky-putin.html?search
 `Braving tigers and other dangers, frontline workers face difficult working conditions as they try to keep the peace between humans and wildlife.`\
 https://nytimes.com/2022/02/21/world/asia/india-forest-rangers.html?searchResultPosition=5
 
+**U.S. says Russia has a list of Ukrainians to kill or detain after an invasion.**\
+`A U.S. ambassador cited “credible information” that Russian forces have compiled a list of Ukrainians to be targeted after an invasion.`\
+https://nytimes.com/2022/02/20/world/europe/us-russia-ukraine-kill-list.html?searchResultPosition=6
+
 **Your Monday Briefing**\
 `Putin’s plan to invade Ukraine.`\
-https://nytimes.com/2022/02/20/briefing/putin-russia-elizabeth-coronavirus.html?searchResultPosition=6
+https://nytimes.com/2022/02/20/briefing/putin-russia-elizabeth-coronavirus.html?searchResultPosition=7
 
 **Word of the Day: menagerie**\
 `This word has appeared in 47 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/02/20/learning/word-of-the-day-menagerie.html?searchResultPosition=7
+https://nytimes.com/2022/02/20/learning/word-of-the-day-menagerie.html?searchResultPosition=8
 
 **‘Billions’ Season 6, Episode 5 Recap: All in the Family**\
 `This week, the ties that bind are feeling extra tight for Chuck, Prince and Scooter.`\
-https://nytimes.com/2022/02/20/arts/television/billions-recap-episode-5.html?searchResultPosition=8
+https://nytimes.com/2022/02/20/arts/television/billions-recap-episode-5.html?searchResultPosition=9
 
 **Bernie Madoff’s Sister and Her Husband Are Found Dead in Florida**\
 `The authorities said it appeared to be a murder-suicide.`\
-https://nytimes.com/2022/02/20/your-money/bernie-madoff-sister-dead.html?searchResultPosition=9
-
-**If war flames in Ukraine, these two little enclaves may be the spark.**\
-`By Andrew E. Kramer`\
-https://nytimes.com/2022/02/20/world/europe/if-war-flames-in-ukraine-these-two-little-enclaves-may-be-the-spark.html?searchResultPosition=10
+https://nytimes.com/2022/02/20/your-money/bernie-madoff-sister-dead.html?searchResultPosition=10
 
