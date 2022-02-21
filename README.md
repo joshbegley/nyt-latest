@@ -35,6 +35,6 @@ https://nytimes.com/2022/02/21/nyregion/are-you-planning-a-pandemic-wedding-were
 https://nytimes.com/2022/02/21/opinion/22cottom-student-loan-debt.html?searchResultPosition=9
 
 **8 Subway Attacks Over Weekend Show Challenge Adams Faces on Crime**\
-`The mayor and governor released a safety plan for the subways that focused on homelessness. But few homeless people were involved in the attacks that spanned Friday evening to Monday morning.`\
+`The mayor and governor released a safety plan for the subways that focused on homelessness. But a homeless person was believed to be responsible in only one of the attacks over the weekend.`\
 https://nytimes.com/2022/02/21/nyregion/nyc-subway-attacks-stabbing.html?searchResultPosition=10
 
