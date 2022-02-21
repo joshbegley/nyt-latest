@@ -34,7 +34,7 @@ https://nytimes.com/2022/02/21/nyregion/nyc-subway-attacks-stabbing.html?searchR
 `Western officials warn that Russia is paving a path toward war.`\
 https://nytimes.com/2022/02/21/briefing/putin-recognizes-separatists-ukraine-australia-tourists.html?searchResultPosition=9
 
-**Highlights from Putin’s address on breakaway regions in Ukraine.**\
-`President Vladimir V. Putin said he would recognize the independence of two Russian-backed territories in eastern Ukraine. Here are highlights from his 40-minute speech.`\
-https://nytimes.com/2022/02/21/world/europe/putin-speech-transcript.html?searchResultPosition=10
+**Maps: Russia and Ukraine Edge Closer to War**\
+`Two breakaway territories in eastern Ukraine are at the center of the conflict after Russia recognized their independence.`\
+https://nytimes.com/interactive/2022/world/europe/ukraine-maps.html?searchResultPosition=10
 
