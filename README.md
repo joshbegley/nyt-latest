@@ -18,7 +18,7 @@ https://nytimes.com/2022/02/20/us/lake-tahoe-bear.html?searchResultPosition=4
 `Russian-backed separatists in the Luhansk and Donetsk regions once got just passing attention. They loom much larger now as many fear what may come next in Ukraine.`\
 https://nytimes.com/2022/02/20/world/europe/ukraine-russia-separatists.html?searchResultPosition=5
 
-**Oil Prices Climb as Russia Menaces Ukraine**\
+**Oil Prices Seesaw as Russia Menaces Ukraine**\
 `While oil traders keep an eye on Russia, they’re also looking to a possible nuclear deal with Iran that could help add to global supplies.`\
 https://nytimes.com/2022/02/20/business/oil-prices-russia-ukraine-iran.html?searchResultPosition=6
 
