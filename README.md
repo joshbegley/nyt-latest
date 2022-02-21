@@ -23,8 +23,8 @@ https://nytimes.com/2022/02/21/nyregion/nyc-subway-attacks-stabbing.html?searchR
 https://nytimes.com/2022/02/21/briefing/putin-recognizes-separatists-ukraine-australia-tourists.html?searchResultPosition=6
 
 **Highlights from Putin’s address on breakaway regions in Ukraine.**\
-`By Valerie Hopkins`\
-https://nytimes.com/2022/02/21/world/europe/highlights-from-putins-address-on-breakaway-regions-in-ukraine.html?searchResultPosition=7
+`President Vladimir V. Putin said he would recognize the independence of two Russian-backed territories in eastern Ukraine. Here are highlights from his 40-minute speech.`\
+https://nytimes.com/2022/02/21/world/europe/putin-speech-transcript.html?searchResultPosition=7
 
 **On the ground: A column of Russian vehicles, and soldiers without insignia.**\
 `By Ivan Nechepurenko`\
