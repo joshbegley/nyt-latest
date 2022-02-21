@@ -27,7 +27,7 @@ https://nytimes.com/2022/02/21/business/nelson-partners-student-housing.html?sea
 https://nytimes.com/2022/02/21/theater/broadway-amber-gray-hadestown-macbeth.html?searchResultPosition=7
 
 **Medina Spirit Stripped of 2021 Kentucky Derby Win**\
-`The horse’s trainer, Bob Baffert, was suspended and fined after his horse failed a postrace drug test last year.`\
+`The horse’s trainer, Bob Baffert, was suspended and fined after his horse failed a post-race drug test last year.`\
 https://nytimes.com/2022/02/21/sports/horse-racing/medina-spirit-kentucky-derby.html?searchResultPosition=8
 
 **Paul Farmer, Pioneer of Global Health, Dies at 62**\
