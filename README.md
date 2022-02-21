@@ -19,7 +19,7 @@ https://nytimes.com/2022/02/21/world/europe/france-street-noise.html?searchResul
 https://nytimes.com/2022/02/21/us/politics/irs-facial-recognition.html?searchResultPosition=5
 
 **Doom Watching ‘Euphoria’**\
-`It’s one on the most popular shows on television right now. But sometimes even the fans need to calm down after an episode.`\
+`It’s one of the most popular shows on television right now. But sometimes even the fans need to calm down after an episode.`\
 https://nytimes.com/2022/02/21/style/euphoria-series-doom-watching.html?searchResultPosition=6
 
 **When People Take Pandemic Precautions, Gorillas Breathe Easier**\
