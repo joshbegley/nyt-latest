@@ -14,7 +14,7 @@ https://nytimes.com/2022/02/20/business/oil-prices-russia-ukraine-iran.html?sear
 `Several units or troops have been deployed outside of bases or training grounds, as Russian units continue moving closer to the border with Ukraine.`\
 https://nytimes.com/2022/02/20/world/europe/russia-military-ukraine-border.html?searchResultPosition=4
 
-**Blitzkrieg or Minor Incursion? Putin’s Choice Could Determine World Reaction**\
+**Blitzkrieg or Minor Incursion? Putin’s Choice Could Determine World Reaction.**\
 `President Vladimir V. Putin of Russia may be looking for fissures in the Western alliance, which so far has been united against him.`\
 https://nytimes.com/2022/02/20/us/politics/putin-ukraine-strategy.html?searchResultPosition=5
 
