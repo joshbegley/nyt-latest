@@ -1,6 +1,6 @@
 **Uproar Over ‘Crack Pipes’ Puts Biden Drug Strategy at Risk**\
 `President Biden has made “harm reduction” a central pillar of his plan to fight a record number of drug-related deaths, but a conservative backlash is threatening the effort.`\
-https://nytimes.com/2022/02/21/us/politics/uproar-over-crack-pipes-puts-biden-drug-strategy-at-risk.html?searchResultPosition=1
+https://nytimes.com/2022/02/21/us/politics/biden-harm-reduction-crack-pipes.html?searchResultPosition=1
 
 **The I.C.U. Patient, and the Family**\
 `Exploring the dilemmas involving patients, their families and health care providers in end-of-life care. Also: Quotation marks; calling and driving.`\
