@@ -8,7 +8,7 @@ https://nytimes.com/2022/02/22/technology/apple-netherlands-app-store.html?searc
 
 **Volkswagen is considering a plan to spin off Porsche in a public offering.**\
 `The move would raise money at a time when automaker is investing heavily in electric cars and batteries.`\
-https://nytimes.com/2022/02/22/automobiles/porsche-ipo-volkswagen.html?searchResultPosition=3
+https://nytimes.com/2022/02/22/automobiles/volkswagen-porsche-ipo.html?searchResultPosition=3
 
 **Hong Kong Mandates Covid-19 Testing for All Residents**\
 `Hong Kong’s more than seven million residents will be required to take three coronavirus tests over a short period in March, as the territory faces its worst outbreak.`\
