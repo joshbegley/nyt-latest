@@ -4,7 +4,7 @@ https://nytimes.com/2022/02/22/us/lanhee-chen-california-controller.html?searchR
 
 **Queen Elizabeth cancels all virtual engagements as she recovers from Covid.**\
 `The queen “is still experiencing mild coldlike symptoms,” Buckingham Palace said, adding that she would “continue with light duties.”`\
-https://nytimes.com/2022/02/22/world/europe/queen-covid-virtual-engagements.html?searchResultPosition=2
+https://nytimes.com/2022/02/22/world/europe/covid-queen-elizabeth.html?searchResultPosition=2
 
 **The Economic Stakes of the Ukraine Crisis**\
 `The global implications of the escalating conflict remain hard to figure.`\
