@@ -11,7 +11,7 @@ https://nytimes.com/2022/02/22/nyregion/school-mask-mandate-new-york-poll.html?s
 https://nytimes.com/2022/02/22/business/media/dow-jones-return-to-office.html?searchResultPosition=3
 
 **Canada Freezes Hundreds of Accounts Tied to Protests**\
-`As a court denied bail to one protest organizer arrested, banks have locked up hundreds of accounts linked to others under an emergency order invoked by the government.`\
+`As a court denied bail to one arrested protest organizer, banks have locked up hundreds of accounts linked to others under an emergency order invoked by the government.`\
 https://nytimes.com/2022/02/22/world/americas/canada-protest-finances.html?searchResultPosition=4
 
 **Tiny Love Stories: ‘He Was My Mother’s Type, Not Mine’**\
