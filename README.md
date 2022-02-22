@@ -1,6 +1,6 @@
 **The Russia-Ukraine Crisis Is Shaking Markets and Portfolios**\
 `Global markets typically rebound from war and disaster, and they are likely to do so this time, too. But Russia’s nuclear arsenal raises the risks beyond calculation.`\
-https://nytimes.com/2022/02/22/business/the-russia-ukraine-crisis-is-shaking-markets-and-portfolios.html?searchResultPosition=1
+https://nytimes.com/2022/02/22/business/russia-ukraine-markets.html?searchResultPosition=1
 
 **European Union Agrees to Impose Sanctions Against Russia**\
 `Ursula von der Leyen, the president of the European Commission, announced that the European Union approved a package of sanctions aimed at cutting off Russian individuals and entities from financial markets.`\
