@@ -35,6 +35,6 @@ https://nytimes.com/2022/02/22/sports/basketball/morgan-stanley-nba.html?searchR
 https://nytimes.com/2022/02/22/business/medical-retail-medtail-real-estate.html?searchResultPosition=9
 
 **The West’s Delusion of Energy Independence**\
-`America it must secure the raw materials that a clean energy future requires. `\
+`America must secure the raw materials that a clean energy future requires. `\
 https://nytimes.com/2022/02/22/opinion/russia-ukraine-energy-conflict.html?searchResultPosition=10
 
