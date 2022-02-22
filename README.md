@@ -6,7 +6,7 @@ https://nytimes.com/2022/02/21/world/europe/putin-ukraine-russia.html?searchResu
 `Russia president is trying to hide his poor leadership by becoming a nationalist avenger.`\
 https://nytimes.com/2022/02/21/opinion/putin-ukraine-nato.html?searchResultPosition=2
 
-**Former Officers Finish Defense in George Floyd Murder Trial**\
+**Former Officers Finish Defense in George Floyd Trial**\
 `With testimony concluded in the trial of three former officers for their role in George Floyd’s death, the jury is set to hear closing arguments.`\
 https://nytimes.com/2022/02/21/us/george-floyd-murder-trial-defense.html?searchResultPosition=3
 
