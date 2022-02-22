@@ -28,7 +28,7 @@ https://nytimes.com/interactive/2022/02/21/headway/peat-carbon-climate-change.ht
 
 **Watch Live: U.N. Security Council’s Emergency Meeting on Ukraine**\
 `The U.N. Security Council is meeting to discuss the Russian government’s recognition of two separatist regions in eastern Ukraine and its order to deploy Russian troops to them.`\
-https://nytimes.com/video/world/europe/100000008221455/un-security-council-putin-russia-ukraine-live.html?searchResultPosition=8
+https://nytimes.com/video/embedded/world/europe/100000008221455/un-security-council-putin-russia-ukraine-live.html?searchResultPosition=8
 
 **Putin Calls Ukrainian Statehood a Fiction. History Suggests Otherwise.**\
 `In a speech, President Vladimir V. Putin bent Ukraine’s complex history into his own version that served as a justification for his cleaving off more of its territory.`\
