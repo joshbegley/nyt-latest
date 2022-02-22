@@ -20,7 +20,7 @@ https://nytimes.com/2022/02/22/t-magazine/mexican-food-vegetarian-vegan.html?sea
 
 **U.S. Soccer and Women’s Players Agree to Settle Equal Pay Lawsuit**\
 `Under the terms of the agreement, the athletes will receive $24 million and a pledge from the federation to equalize pay for the men’s and women’s national teams.`\
-https://nytimes.com/2022/02/22/sports/soccer/uswnt-equal-pay-lawsuit.html?searchResultPosition=6
+https://nytimes.com/2022/02/22/sports/soccer/us-womens-soccer-equal-pay.html?searchResultPosition=6
 
 **Ukraine Enclaves Long Steeped in Conflict Face New Peril**\
 `A decision by Russia to recognize two separatist territories and order in troops raises the risks of intensified fighting in an already fraught region where violence has defined life for nearly a decade.`\
