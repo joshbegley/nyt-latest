@@ -34,7 +34,7 @@ https://nytimes.com/2022/02/21/sports/baseball/mlb-lockout.html?searchResultPosi
 `Rural Congolese villagers are being asked to protect one of earth’s most precious ecosystems. What can other places contribute to our shared future?`\
 https://nytimes.com/2022/02/21/special-series/peatlands-community-letter.html?searchResultPosition=9
 
-**What Do the Protectors of Congo’s Peatlands Get in Return?**\
-`The world is suddenly focused on a huge natural carbon store in the Congo Basin. Its guardians are asking what they're owed for keeping it intact.`\
-https://nytimes.com/interactive/2022/02/21/headway/peatlands-congo-climate-change.html?searchResultPosition=10
+**U.S. diplomatic staff have relocated from Ukraine to Poland.**\
+`By Edward Wong`\
+https://nytimes.com/2022/02/21/world/europe/us-diplomatic-staff-have-relocated-from-ukraine-to-poland.html?searchResultPosition=10
 
