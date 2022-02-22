@@ -24,7 +24,7 @@ https://nytimes.com/2022/02/22/us/supreme-court-web-designer-same-sex-marriage.h
 
 **Fed officials firm up plans for a swift pullback of economic help.**\
 `Central bankers are preparing investors for a series of steady rate increases and a prompt start to Federal Reserve balance sheet shrinking.`\
-https://nytimes.com/2022/02/22/business/economy/federal-reserve-interest-rate-increases.html?searchResultPosition=7
+https://nytimes.com/2022/02/22/business/economy/fed-interest-rates.html?searchResultPosition=7
 
 **White House weighs how hard to hit Putin with sanctions.**\
 `Early indications suggested the Biden administration would hold some punishments back in hopes of preventing a broader attack.`\
