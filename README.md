@@ -4,7 +4,7 @@ https://nytimes.com/2022/02/22/world/europe/russia-putin-ukraine-europe-cold-war
 
 **In Kyiv, a Soldier’s Funeral and Vows of Defiance**\
 `Ukrainians have been preparing for a possible military escalation by Russia for months. They were somber but largely defiant.`\
-https://nytimes.com/2022/02/22/world/europe/in-kyiv-a-soldiers-funeral-and-vows-of-defiance.html?searchResultPosition=2
+https://nytimes.com/2022/02/22/world/europe/kyiv-ukraine-military-casualties.html?searchResultPosition=2
 
 **Your Wednesday Briefing: The West Sanctions Russia**\
 `President Biden condemned what he called the “beginning of a Russian invasion of Ukraine.”`\
