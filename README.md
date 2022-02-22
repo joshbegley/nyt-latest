@@ -27,7 +27,7 @@ https://nytimes.com/2022/02/22/dining/yoleles-kitchen-towels-pierre-thiam.html?s
 https://nytimes.com/2022/02/22/opinion/letters/russia-ukraine-putin.html?searchResultPosition=7
 
 **President Biden is expected to join European leaders in announcing new sanctions against Russia.**\
-`The White House and world leaders condemned Russia’s moves aga, calling it a clear violation of Ukraine’s borders.`\
+`The White House and world leaders condemned Russia’s moves against Ukraine, calling it a clear violation of the country’s borders.`\
 https://nytimes.com/2022/02/22/world/europe/biden-russia-sanctions.html?searchResultPosition=8
 
 **Watch Live: Biden Delivers Speech on Russia and Ukraine**\
