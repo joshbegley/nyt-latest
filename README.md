@@ -35,7 +35,7 @@ https://nytimes.com/2022/02/22/business/dealbook/ukraine-russia-economy.html?sea
 `The two Jefferson Parish officers each face one count of manslaughter after police officials said they shot an unarmed man in a parked car. The use of force was “not justified,” the sheriff said.`\
 https://nytimes.com/2022/02/22/us/jefferson-parish-shooting-daniel-vallee.html?searchResultPosition=9
 
-**Germany puts a stop to Nord Stream 2, a key Russian natural gas pipeline.**\
-`Germany halted certification of the pipeline linking the country to Russia in response to the Kremlin’s recognition of two separatist regions in Ukraine.`\
-https://nytimes.com/2022/02/22/business/nord-stream-russia-germany.html?searchResultPosition=10
+**The E.U. drafts a set of immediate sanctions against Russia.**\
+`The diplomats said the draft included 27 individuals and entities, including political, military, business and financial entities.`\
+https://nytimes.com/2022/02/22/world/europe/eu-russia-ukraine-sanctions.html?searchResultPosition=10
 
