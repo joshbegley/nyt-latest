@@ -26,13 +26,13 @@ https://nytimes.com/2022/02/22/podcasts/the-daily/russia-ukraine-conflict.html?s
 `Adrienne Adams has to consider both public safety and some of her members’ determination to overhaul the Police Department.`\
 https://nytimes.com/2022/02/22/nyregion/a-balancing-act-for-the-new-city-council-leader.html?searchResultPosition=7
 
-**It Was Supposed to Be a Spec House. Then the Builder Got Emotionally Involved.**\
-`Building a house in the Graduate Hospital neighborhood of Philadelphia was a business opportunity — that’s all. But something changed along the way.`\
-https://nytimes.com/2022/02/22/realestate/it-was-supposed-to-a-spec-house-then-the-builder-got-emotionally-involved.html?searchResultPosition=8
-
 **The Long Crusade of Clarence and Ginni Thomas**\
 `The Supreme Court justice and his wife battled for years for a more conservative America. New reporting shows how far she was willing to go after Donald Trump’s 2020 election loss.`\
-https://nytimes.com/2022/02/22/magazine/clarence-ginni-thomas.html?searchResultPosition=9
+https://nytimes.com/2022/02/22/magazine/clarence-thomas-ginni-thomas.html?searchResultPosition=8
+
+**It Was Supposed to Be a Spec House. Then the Builder Got Emotionally Involved.**\
+`Building a house in the Graduate Hospital neighborhood of Philadelphia was a business opportunity — that’s all. But something changed along the way.`\
+https://nytimes.com/2022/02/22/realestate/it-was-supposed-to-a-spec-house-then-the-builder-got-emotionally-involved.html?searchResultPosition=9
 
 **A Philadelphia Spec House That Was Too Good to Sell**\
 `Building a house in the Graduate Hospital neighborhood of Philadelphia was a business opportunity — that’s all. But something changed along the way.`\
