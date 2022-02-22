@@ -16,7 +16,7 @@ https://nytimes.com/2022/02/22/world/europe/france-election-macron.html?searchRe
 
 **Three men are found guilty of hate crimes in Arbery killing.**\
 `A federal jury ruled that the three men were motivated by racism. They had previously been convicted of murder in state court.`\
-https://nytimes.com/2022/02/22/us/guilty-hate-crimes.html?searchResultPosition=5
+https://nytimes.com/2022/02/22/us/gregory-mcmichael-travis-mcmichael-william-bryan.html?searchResultPosition=5
 
 **An Old Problem Suddenly Dominates Australia’s Election: ‘Dark Money’**\
 `Chinese financing, unreported donations, payouts from coal barons: The new political season is shining an unaccustomed light on a culture of opacity.`\
