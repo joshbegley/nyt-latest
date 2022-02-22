@@ -26,15 +26,15 @@ https://nytimes.com/2022/02/22/dining/yoleles-kitchen-towels-pierre-thiam.html?s
 `Readers respond to developments in the Russia-Ukraine crisis. Also: A farewell to Jane Brody; the overlooked translator; a tribute to truckers.`\
 https://nytimes.com/2022/02/22/opinion/letters/russia-ukraine-putin.html?searchResultPosition=7
 
+**President Biden is expected to join European leaders in announcing new sanctions against Russia.**\
+`The White House and world leaders condemned Russia’s moves aga, calling it a clear violation of Ukraine’s borders.`\
+https://nytimes.com/2022/02/22/world/europe/biden-russia-sanctions.html?searchResultPosition=8
+
 **Watch Live: Biden Delivers Speech on Russia and Ukraine**\
 `President Biden is expected to impose severe sanctions on Russia over President Vladimir V. Putin’s action in Ukraine.`\
-https://nytimes.com/video/us/politics/100000008221968/biden-russia-ukraine-sanctions-live.html?searchResultPosition=8
+https://nytimes.com/video/us/politics/100000008221968/biden-russia-ukraine-sanctions-live.html?searchResultPosition=9
 
 **In Georgia, Feb. 23 is now Ahmaud Arbery Day.**\
 `The state of Georgia will formally memorialize Ahmaud Arbery on Wednesday, the second anniversary of his death.`\
-https://nytimes.com/2022/02/22/us/georgia-ahmaud-arbery-day.html?searchResultPosition=9
-
-**‘Encanto’ Soundtrack Continues to Dominate Billboard Charts**\
-`An album of music from Disney’s animated movie earned its sixth week at No. 1, while Eminem and Dr. Dre benefited from small Super Bowl boosts.`\
-https://nytimes.com/2022/02/22/arts/music/encanto-soundtrack-billboard-chart.html?searchResultPosition=10
+https://nytimes.com/2022/02/22/us/georgia-ahmaud-arbery-day.html?searchResultPosition=10
 
