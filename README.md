@@ -11,7 +11,7 @@ https://nytimes.com/2022/02/22/business/bloomingdales-sephora-sexual-wellness-pr
 https://nytimes.com/2022/02/22/us/politics/warren-treasury-accounting-firms.html?searchResultPosition=3
 
 **Will It Croqueta? Miami Pushes the Limits of a Favorite Snack.**\
-`These creamy finger foods have come in flavors like ham, chicken or fish. But now, a new generation of chefs are experimenting.`\
+`These creamy finger foods have come in flavors like ham, chicken or fish. But a new generation of chefs is  experimenting.`\
 https://nytimes.com/2022/02/22/dining/miami-croquetas.html?searchResultPosition=4
 
 **Big banks are keeping a close eye on Russia-Ukraine tensions.**\
