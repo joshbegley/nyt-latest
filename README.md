@@ -12,7 +12,7 @@ https://nytimes.com/2022/02/22/world/australia/federal-election-dark-money.html?
 
 **Europe Considers a Modest Initial Set of Sanctions on Russia**\
 `The hope is to restrain Moscow by keeping bigger penalties in reserve, but the question is whether the bloc could stay united on more serious measures if they were needed over several years.`\
-https://nytimes.com/2022/02/22/world/europe/europe-russia-sanctions-ukraine.html?searchResultPosition=4
+https://nytimes.com/2022/02/22/world/europe/eu-sanctions-russia-ukraine.html?searchResultPosition=4
 
 **The USWNT vs. U.S. Soccer: an Equal Pay Timeline**\
 `A six-year legal fight that saw victories on the field and losses in federal court ended with a multimillion-dollar settlement. Here’s how the sides got here.`\
@@ -20,7 +20,7 @@ https://nytimes.com/2022/02/22/sports/us-soccer-equal-pay.html?searchResultPosit
 
 **Supreme Court to Hear Case of Web Designer Who Objects to Same-Sex Marriage**\
 `The case may settle a question left open in 2018: how to reconcile claims of religious liberty with laws barring discrimination based on sexual orientation.`\
-https://nytimes.com/2022/02/22/us/supreme-court-web-designer-same-sex-marriage.html?searchResultPosition=6
+https://nytimes.com/2022/02/22/us/colorado-supreme-court-same-sex-marriage.html?searchResultPosition=6
 
 **Fed officials firm up plans for a swift pullback of economic help.**\
 `Central bankers are preparing investors for a series of steady rate increases and a prompt start to Federal Reserve balance sheet shrinking.`\
