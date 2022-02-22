@@ -24,7 +24,7 @@ https://nytimes.com/2022/02/22/dining/nyc-restaurant-openings.html?searchResultP
 
 **Bloomingdale’s, Sephora and the Embrace of Sexual Wellness**\
 `With careful rebranding, word choice and packaging, products like vibrators and lubricants have become newly palatable to higher-end retailers.`\
-https://nytimes.com/2022/02/22/business/bloomingdales-sephora-sexual-wellness-products.html?searchResultPosition=7
+https://nytimes.com/2022/02/22/business/sephora-bloomingdales-sexual-wellness.html?searchResultPosition=7
 
 **The Treasury is asked to investigate its hiring of lawyers from big accounting firms.**\
 `The request was sent by Senator Elizabeth Warren and Representative Pramila Jayapal after a New York Times report on the revolving door between the department and the biggest accounting firms.`\
