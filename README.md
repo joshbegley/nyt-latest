@@ -19,7 +19,7 @@ https://nytimes.com/2022/02/22/dining/portale-restaurant-cinnamon-buns.html?sear
 https://nytimes.com/2022/02/22/dining/atoboy-dominique-ansel.html?searchResultPosition=5
 
 **Get Ready for Carnival With New Orleans-Inspired Doughnuts**\
-`Fany Gerson, an owner of Fan-Fan Doughnuts in Bed-Stuy, Brooklyn, is baking them with a nod to king cakes.`\
+`Fany Gerson, an owner of Fan-Fan Doughnuts in Bedford-Stuyvesant, Brooklyn, is baking them with a nod to king cakes.`\
 https://nytimes.com/2022/02/22/dining/fan-fan-doughnuts-mardi-gras.html?searchResultPosition=6
 
 **DeliverZero Aims to Eliminate Single-Use Takeout Containers**\
