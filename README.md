@@ -1,6 +1,6 @@
 **Hercules Mulligan Mixes Rum and Rye Into an ‘Irish Old-Fashioned’**\
 `This bottled cocktail with a splash of bitters deserves a slice of fresh ginger.`\
-https://nytimes.com/2022/02/22/dining/hercules-mulligan-mixes-irish-old-fashioned.html?searchResultPosition=1
+https://nytimes.com/2022/02/22/dining/cocktail-old-fashioned-hercules-mulligan.html?searchResultPosition=1
 
 **Freshly Baked Cinnamon Buns, Courtesy of Portale**\
 `The restaurant now sells the pastry chef Kaity Mitchell’s treat ready to bake at home.`\
