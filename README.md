@@ -23,8 +23,8 @@ https://nytimes.com/2022/02/22/theater/shakespeare-theater-broadway-spring.html?
 `An interview with Lanhee Chen, a Stanford University professor seeking to become the state’s top fiscal officer.`\
 https://nytimes.com/2022/02/22/us/lanhee-chen-california-controller.html?searchResultPosition=6
 
-**Queen Elizabeth cancels all virtual engagements as she recovers from Covid.**\
-`The queen “is still experiencing mild coldlike symptoms,” Buckingham Palace said, adding that she would “continue with light duties.”`\
+**Queen Elizabeth cancels all virtual engagements for the day as her mild Covid symptoms persist.**\
+`The queen  will “continue with light duties,” Buckingham Palace said, and “further engagements over the coming week will be decided upon nearer the time.”`\
 https://nytimes.com/2022/02/22/world/europe/covid-queen-elizabeth.html?searchResultPosition=7
 
 **The Economic Stakes of the Ukraine Crisis**\
