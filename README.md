@@ -1,4 +1,4 @@
-**Germany Halts Nord Stream 2 Gas Pipeline Project with Russia**\
+**Germany Halts Nord Stream 2 Gas Pipeline Project With Russia**\
 `Chancellor Olaf Scholz announced that Germany would stop the certification of the Nord Stream 2 natural gas pipeline that would link his country with Russia.`\
 https://nytimes.com/video/world/europe/100000008222343/germany-russia-nordstream-pipeline.html?searchResultPosition=1
 
