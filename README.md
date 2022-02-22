@@ -26,7 +26,7 @@ https://nytimes.com/2022/02/22/podcasts/the-daily/russia-ukraine-conflict.html?s
 `Adrienne Adams has to consider both public safety and some of her members’ determination to overhaul the Police Department.`\
 https://nytimes.com/2022/02/22/nyregion/a-balancing-act-for-the-new-city-council-leader.html?searchResultPosition=7
 
-**It Was Supposed to a Spec House. Then the Builder Got Emotionally Involved.**\
+**It Was Supposed to Be a Spec House. Then the Builder Got Emotionally Involved.**\
 `Building a house in the Graduate Hospital neighborhood of Philadelphia was a business opportunity — that’s all. But something changed along the way.`\
 https://nytimes.com/2022/02/22/realestate/it-was-supposed-to-a-spec-house-then-the-builder-got-emotionally-involved.html?searchResultPosition=8
 
