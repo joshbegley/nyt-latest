@@ -12,7 +12,7 @@ https://nytimes.com/2022/02/22/arts/television/snowfall-show-review.html?searchR
 
 **A New Exhibition Space Gives Prague’s Art Scene Some Spark**\
 `The Kunsthalle Praha opens in a former power station with a show exploring how electricity transformed art.`\
-https://nytimes.com/2022/02/22/arts/design/kunsthalle-prague-electricity-art.html?searchResultPosition=4
+https://nytimes.com/2022/02/22/arts/design/prague-petr-pudil-kunsthalle-praha.html?searchResultPosition=4
 
 **Have You Created a New Space for Your Child After a Divorce?**\
 `When parents separate, the transition to a new home can be hard for children. We’d like to hear from those who have gone through this and have advice for others.`\
