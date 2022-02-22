@@ -16,7 +16,7 @@ https://nytimes.com/2022/02/22/style/tiny-modern-love-stories-he-was-my-mothers-
 
 **Macy’s returns to prepandemic sales levels and faces a new challenge: inflation**\
 `Overall sales last year were $24.5 billion, compared with $24.6 billion in 2019. Net profit was $1.4 billion.`\
-https://nytimes.com/2022/02/22/business/macys-quarterly-report.html?searchResultPosition=5
+https://nytimes.com/2022/02/22/business/macys-sales-report.html?searchResultPosition=5
 
 **‘A Black Love Sitcom Dance’: Kyle Abraham Makes Moves to D’Angelo**\
 `In his evening-length work coming to BAM, Abraham wanted to focus on celebration and joy in Black culture, “the way we love and love on each other.”`\
