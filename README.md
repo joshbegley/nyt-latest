@@ -1,40 +1,41 @@
+**How Much Do You Really Know About Electric Vehicles?**\
+`It’s time to do a little fact-checking. 
+Test your knowledge about electric cars.`\
+https://nytimes.com/paidpost/electrify-america/electrify-america-normal-now/how-much-do-you-really-know-about-electric-vehicles.html?searchResultPosition=1
+
+**La Guardia’s New Delta Terminal to be Defined by New York Artists**\
+`Six site-specific permanent artworks will celebrate the city’s energy and diversity.`\
+https://nytimes.com/2022/02/22/arts/design/la-guardia-new-delta-terminal-artists.html?searchResultPosition=2
+
+**Five Broadway Revivals Give a Tour of Our Theatrical Past**\
+`New productions of American plays that debuted between 1942 and 2002 offer glimpses into the world in which they first emerged — and into ours.`\
+https://nytimes.com/2022/02/22/theater/broadway-plays-revivals.html?searchResultPosition=3
+
+**Sandra Oh and Jodie Comer Lay ‘Killing Eve’ to Rest**\
+`Across four seasons, the bodies mounted as their characters’ mutual obsession deepened. But like all relationships, this one, too, had to come to an end.`\
+https://nytimes.com/2022/02/22/arts/television/killing-eve-final-season-sandra-oh-jodie-comer.html?searchResultPosition=4
+
+**A Smorgasbord of Shakespeare, With Some New Trimmings**\
+`Daniel Craig and Ruth Negga head to Broadway in “Macbeth,” while “Fat Ham” and “Misdemeanor Dream” aim to lend contemporary context to classic plays.`\
+https://nytimes.com/2022/02/22/theater/shakespeare-theater-broadway-spring.html?searchResultPosition=5
+
 **This Republican Thinks He Can Win in California**\
 `An interview with Lanhee Chen, a Stanford University professor seeking to become the state’s top fiscal officer.`\
-https://nytimes.com/2022/02/22/us/lanhee-chen-california-controller.html?searchResultPosition=1
+https://nytimes.com/2022/02/22/us/lanhee-chen-california-controller.html?searchResultPosition=6
 
 **Queen Elizabeth cancels all virtual engagements as she recovers from Covid.**\
 `The queen “is still experiencing mild coldlike symptoms,” Buckingham Palace said, adding that she would “continue with light duties.”`\
-https://nytimes.com/2022/02/22/world/europe/covid-queen-elizabeth.html?searchResultPosition=2
+https://nytimes.com/2022/02/22/world/europe/covid-queen-elizabeth.html?searchResultPosition=7
 
 **The Economic Stakes of the Ukraine Crisis**\
 `The global implications of the escalating conflict remain hard to figure.`\
-https://nytimes.com/2022/02/22/business/dealbook/ukraine-russia-economy.html?searchResultPosition=3
+https://nytimes.com/2022/02/22/business/dealbook/ukraine-russia-economy.html?searchResultPosition=8
 
 **2 Louisiana Deputies Are Arrested and Fired After Fatal Shooting**\
 `The two Jefferson Parish officers each face one count of manslaughter after police officials said they shot an unarmed man in a parked car. The use of force was “not justified,” the sheriff said.`\
-https://nytimes.com/2022/02/22/us/jefferson-parish-shooting-daniel-vallee.html?searchResultPosition=4
+https://nytimes.com/2022/02/22/us/jefferson-parish-shooting-daniel-vallee.html?searchResultPosition=9
 
 **Germany puts a stop to Nord Stream 2, a key Russian natural gas pipeline.**\
 `Germany halted certification of the pipeline linking the country to Russia in response to the Kremlin’s recognition of two separatist regions in Ukraine.`\
-https://nytimes.com/2022/02/22/business/nord-stream-russia-germany.html?searchResultPosition=5
-
-**A New Wave of Plant-Based Mexican Cooking**\
-`Plus: an island auberge, nail polish from Harry Styles and more from T’s cultural compendium.`\
-https://nytimes.com/2022/02/22/t-magazine/mexican-food-vegetarian-vegan.html?searchResultPosition=6
-
-**U.S. Soccer and Women’s Players Agree to Settle Equal Pay Lawsuit**\
-`Under the terms of the agreement, the athletes will receive $24 million and a pledge from the federation to equalize pay for the men’s and women’s national teams.`\
-https://nytimes.com/2022/02/22/sports/soccer/us-womens-soccer-equal-pay.html?searchResultPosition=7
-
-**Ukraine Enclaves Long Steeped in Conflict Face New Peril**\
-`A decision by Russia to recognize two separatist territories and order in troops raises the risks of intensified fighting in an already fraught region where violence has defined life for nearly a decade.`\
-https://nytimes.com/2022/02/22/world/europe/ukraine-breakaway-regions-conflict-russia.html?searchResultPosition=8
-
-**The Ginni Thomas Question**\
-`We have a Times investigation of Ginni and Clarence Thomas — as well as the latest news from Ukraine.`\
-https://nytimes.com/2022/02/22/briefing/ginni-thomas-clarence-thomas-russia-ukraine.html?searchResultPosition=9
-
-**Russian Troops Advance**\
-`President Vladimir Putin has ordered soldiers into two regions in eastern Ukraine. What comes next?`\
-https://nytimes.com/2022/02/22/podcasts/the-daily/russia-ukraine-conflict.html?searchResultPosition=10
+https://nytimes.com/2022/02/22/business/nord-stream-russia-germany.html?searchResultPosition=10
 
