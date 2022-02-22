@@ -28,7 +28,7 @@ https://nytimes.com/2022/02/22/business/sephora-bloomingdales-sexual-wellness.ht
 
 **The Treasury is asked to investigate its hiring of lawyers from big accounting firms.**\
 `The request was sent by Senator Elizabeth Warren and Representative Pramila Jayapal after a New York Times report on the revolving door between the department and the biggest accounting firms.`\
-https://nytimes.com/2022/02/22/us/politics/warren-treasury-accounting-firms.html?searchResultPosition=8
+https://nytimes.com/2022/02/22/us/politics/treasury-elizabeth-warren-accounting-firms.html?searchResultPosition=8
 
 **Will It Croqueta? Miami Pushes the Limits of a Favorite Snack.**\
 `These creamy finger foods have come in flavors like ham, chicken or fish. But a new generation of chefs is  experimenting.`\
