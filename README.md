@@ -2,7 +2,7 @@
 `Quotation of the Day for Wednesday, February 23, 2022.`\
 https://nytimes.com/2022/02/22/todayspaper/quotation-of-the-day-residents-facing-hard-choice-as-fighting-nears-stay-or-flee.html?searchResultPosition=1
 
-**‘Review: Learning ‘English,’ When Your Accent Is a ‘War Crime’**\
+**Review: Learning ‘English,’ When Your Accent Is a ‘War Crime’**\
 `In a rich new play by Sanaz Toossi, four Iranians and their language teacher find second selves in a second tongue.`\
 https://nytimes.com/2022/02/22/theater/english-review-sanaz-toossi.html?searchResultPosition=2
 
