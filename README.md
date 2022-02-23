@@ -20,7 +20,7 @@ https://nytimes.com/2022/02/23/arts/rameshbabu-praggnanandhaa-chess-pragg.html?s
 
 **Russian Mercenaries Have Covertly Entered Separatist Enclaves in Ukraine**\
 `Two senior European security officials say that the paramilitary fighters are inside the rebel territories of Ukraine to lay the groundwork for war.`\
-https://nytimes.com/2022/02/23/world/europe/russian-mercenaries-ukraine.html?searchResultPosition=6
+https://nytimes.com/2022/02/23/world/europe/russian-ukraine-mercenaries.html?searchResultPosition=6
 
 **IMAX Looks Beyond Movies to Live Events**\
 `To combat the decline of theatergoing, the large-format cinema company will show events like concerts, stand-up comedy and e-sports tournaments.`\
