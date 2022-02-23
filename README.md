@@ -4,7 +4,7 @@ https://nytimes.com/2022/02/23/world/europe/ukraine-targeted-town.html?searchRes
 
 **Hearing on Henry Darger Estate Dispute Is Postponed**\
 `Distant relatives are seeking to gain control of the outsider artist’s estate from a former landlord, who has said that Darger gave the art and literary works he created to her husband.`\
-https://nytimes.com/2022/02/23/arts/design/henry-darger-hearing-postponed.html?searchResultPosition=2
+https://nytimes.com/2022/02/23/arts/design/henry-darger-hearing.html?searchResultPosition=2
 
 **A Truck Caravan With Far-Right Links Heads to Washington, D.C.**\
 `Many backers of the caravan, planned as an American version of last month’s chaotic Canadian protest, have connections to the violent attack on the Capitol in January 2021.`\
