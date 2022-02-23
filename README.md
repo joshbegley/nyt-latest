@@ -11,8 +11,8 @@ https://nytimes.com/interactive/2022/02/23/well/live/23healthquiz-02232022.html?
 https://nytimes.com/2022/02/23/us/politics/justice-department-china-trump.html?searchResultPosition=3
 
 **On Edge of War, No Exodus From Ukraine but Anxiety Grows**\
-`With Russian troops in eastern Ukraine, there is a sense that something terrible may be coming. But on one train journey, Ukrainians were not sure what exactly.`\
-https://nytimes.com/2022/02/23/world/ukraine-kyiv-scene.html?searchResultPosition=4
+`With Russian troops in eastern Ukraine, foreboding mixes with disbelief. But on one train journey, some leaving Kyiv say they plan to return.`\
+https://nytimes.com/2022/02/23/world/ukraine-russian-troops.html?searchResultPosition=4
 
 **At 65 and Legally Blind, ‘Sister Shred’ Has Never Met a Slope She Wouldn’t Ride**\
 `Kris Nordberg still loves rolling through rock gardens and shredding powder on her ski bike — sometimes, in a nun costume.`\
