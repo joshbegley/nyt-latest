@@ -1,6 +1,6 @@
 **When It Comes to Wordle Strategies, It’s Personal**\
 `Aficionados of the deceptively simple word game, including Monica Lewinsky and J. Smith-Cameron, weigh in with their opening gambits.`\
-https://nytimes.com/2022/02/23/arts/23wordle-strategy-lewinsky.html?searchResultPosition=1
+https://nytimes.com/2022/02/23/arts/wordle-strategies.html?searchResultPosition=1
 
 **Exercise Can Build Up Your Brain. Air Pollution May Negate Those Benefits.**\
 `People who worked out in even moderately polluted air did not show the kinds of brain improvements tied to a lower risk of dementia.`\
