@@ -1,5 +1,5 @@
 **European sanctions target Putin’s inner circle.**\
-`The list appears to have been compiled in coordination with American officials who were drawing up their own set of sanctions.`\
+`The list appears to have been compiled in coordination with American officials, who were drawing up their own set of sanctions.`\
 https://nytimes.com/2022/02/23/world/europe/eu-sanctions-russia-ukraine.html?searchResultPosition=1
 
 **How China Under Xi Jinping Is Turning Away From the World**\
