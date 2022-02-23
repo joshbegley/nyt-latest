@@ -4,14 +4,14 @@ https://nytimes.com/2022/02/23/sports/at-65-and-legally-blind-sister-shred-has-n
 
 **For Some N.B.A. Prospects, a Taste of the Big Time**\
 `Members of a developmental team, the N.B.A. G League Ignite, some still in their teens, participated in the N.B.A.’s All-Star Weekend.`\
-https://nytimes.com/2022/02/23/sports/basketball/nba-basketball-prospects-ignite.html?searchResultPosition=2
+https://nytimes.com/2022/02/23/sports/basketball/nba-draft-prospects-basketball.html?searchResultPosition=2
 
 **The Potentially Grim Fate of a Ukrainian Town Called ‘Happiness’**\
 `If Russia invades, military analysts say, the border settlement’s Russian-sympathizing citizenry and its prize power plant make it a likely starting point.`\
 https://nytimes.com/2022/02/23/world/europe/russia-ukraine-target.html?searchResultPosition=3
 
 **Hearing on Henry Darger Estate Dispute Is Postponed**\
-`Distant relatives are seeking to gain control of the outsider artist’s estate from a former landlord, who has said that Darger gave the art and literary works he created to her husband.`\
+`Distant relatives are seeking to gain control of the outsider artist’s estate from a former landlord, who says that Darger gave the art and literary works he created to her husband.`\
 https://nytimes.com/2022/02/23/arts/design/henry-darger-hearing.html?searchResultPosition=4
 
 **A Truck Caravan With Far-Right Links Heads to Washington, D.C.**\
