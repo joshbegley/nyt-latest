@@ -4,7 +4,7 @@ https://nytimes.com/2022/02/23/briefing/covid-vaccine-briefing.html?searchResult
 
 **Sea Ice Around Antarctica Reaches a Record Low**\
 `The drop surprised scientists, and may help them understand more about climate change affecting Antarctica and its waters.`\
-https://nytimes.com/2022/02/23/climate/sea-ice-antarctica-record.html?searchResultPosition=2
+https://nytimes.com/2022/02/23/climate/antarctica-sea-ice-arctic.html?searchResultPosition=2
 
 **Joe Tom Easley, Gay Rights Activist Whose Marriage Made The Times, Dies at 81**\
 `Mr. Easley took a leading role in the campaign against “don’t ask, don’t tell,” the Clinton-era policy that required gay service members to hide their sexual orientation.`\
