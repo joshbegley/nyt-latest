@@ -16,7 +16,7 @@ https://nytimes.com/2022/02/23/well/live/morning-headaches.html?searchResultPosi
 
 **2 Prosecutors Leading N.Y. Trump Inquiry Resign, Clouding Case’s Future**\
 `The prosecutors had abruptly stopped presenting evidence to a grand jury in the high-stakes criminal investigation into the former president’s business practices.`\
-https://nytimes.com/2022/02/23/nyregion/donald-trump-fraud-investigation-new-york.html?searchResultPosition=5
+https://nytimes.com/2022/02/23/nyregion/trump-ny-fraud-investigation.html?searchResultPosition=5
 
 **Ukraine’s Power Gamble: Can It Survive Without Russian Energy?**\
 `As Ukraine braces for an all-out conflict with Russia, it’s testing its ability to disconnect from Russian power supplies for three days, starting Feb. 24. Experts warn the timing could be risky.`\
