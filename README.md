@@ -1,40 +1,40 @@
-**China criticizes sanctions against Russia as ineffective and warns of wider damage.**\
-`Beijing said the penalties could hurt average people and its own interests.`\
-https://nytimes.com/2022/02/23/world/europe/china-russia-ukraine-sanctions.html?searchResultPosition=1
+**My Synagogue Was Attacked, but I Will Never Stop Welcoming the Stranger**\
+`At the core of most ethical traditions is a command to open our doors, not to close them. `\
+https://nytimes.com/2022/02/23/opinion/colleyville-texas-synagogue-antisemitism.html?searchResultPosition=1
 
-**Russia’s moves in Ukraine prompt calls to move the Champions League final out of St. Petersburg.**\
-`The most vocal opposition has come from Britain, which could supply one or both of the final’s participants.`\
-https://nytimes.com/2022/02/23/sports/russia-ukraine-football.html?searchResultPosition=2
+**Allendale, N.J.: A Low-Profile, Walkable Suburb, 25 Miles From Midtown**\
+`The manicured Bergen County borough is ‘under the radar,’ but residents prefer it that way.`\
+https://nytimes.com/2022/02/23/realestate/allendale-nj-a-low-profile-walkable-suburb-25-miles-from-midtown.html?searchResultPosition=2
 
-**Four Dead in Helicopter Crash at U.S. Naval Facility in Hawaii**\
-`The helicopter was participating in a training operation when it “just went down,” killing everyone on board.`\
-https://nytimes.com/2022/02/23/us/helicopter-crash-navy-hawaii.html?searchResultPosition=3
+**Living In ... Allendale, N.J.**\
+`The manicured Bergen County borough is ‘under the radar,’ but residents prefer it that way.`\
+https://nytimes.com/slideshow/2022/02/23/realestate/living-in-allendale-nj.html?searchResultPosition=3
 
-**Rare Retrial Begins in Killing of American in Greece**\
-`Bakari Henderson, of Texas, was beaten to death in 2017. The men convicted in his case were found guilty of assault, but prosecutors are trying again with murder charges.`\
-https://nytimes.com/2022/02/23/world/europe/bakari-henderson-killing-greece-retrial.html?searchResultPosition=4
+**‘A Time of Worries’: New York City’s Ukrainians Are Anxious and Afraid**\
+`Their families back home refuse to leave. So they fret, connected like never before, but unable to change events.`\
+https://nytimes.com/2022/02/23/nyregion/a-time-of-worries-new-york-citys-ukrainians-are-anxious-and-afraid.html?searchResultPosition=4
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/02/23/crosswords/spelling-bee-forum.html?searchResultPosition=5
+**The Waco Biker Shootout and the Judgment That Never Came**\
+`How 177 arrests led to no convictions — a tangled, seven-year tale of prosecutorial hubris and tenacious defense.`\
+https://nytimes.com/2022/02/23/magazine/waco-biker-shootout.html?searchResultPosition=5
 
-**New Zealand Protest, an Echo of Canada’s, Digs In and Turns Ugly**\
-`An occupation in the capital demonstrates the dangerous influence that American disinformation is having on otherwise stable democracies.`\
-https://nytimes.com/2022/02/23/world/australia/new-zealand-protest-vaccine.html?searchResultPosition=6
+**Climate Fears on Back Burner as Fuel Costs Soar and Russia Crisis Deepens**\
+`Energy security has gained prominence while the conflict in Ukraine raises concerns over the possible interruption in the supply of oil and natural gas.`\
+https://nytimes.com/2022/02/23/business/economy/russia-ukraine-energy-security-climate-change.html?searchResultPosition=6
 
-**Word of the Day: requisition**\
-`This word has appeared in four articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/02/23/learning/word-of-the-day-requisition.html?searchResultPosition=7
+**Fed Up With Google, Conspiracy Theorists Turn to DuckDuckGo**\
+`The embrace by some conservative influencers and conspiracy theorists is part of a broader effort to shift people away from Big Tech.`\
+https://nytimes.com/2022/02/23/technology/duckduckgo-conspiracy-theories.html?searchResultPosition=7
 
-**Stephen Colbert Riffs on Joe Biden’s Sanctions Against Russia**\
-`Colbert said Putin sought to keep the peace, and imitated Russia’s president: “I keep this piece of Ukraine. I keep that piece of Ukraine. I keep all the pieces of Ukraine.”`\
-https://nytimes.com/2022/02/23/arts/television/stephen-colbert-biden-russia-putin.html?searchResultPosition=8
+**We Must Learn to Look at Grief, Even When We Want to Run Away**\
+`The suffering that Covid wrought can unite us.`\
+https://nytimes.com/2022/02/23/opinion/death-grief-covid.html?searchResultPosition=8
 
-**Climate Scientists Warn of a ‘Global Wildfire Crisis’**\
-`Worsening heat and dryness could lead to a 50 percent rise in off-the-charts fires, according to a United Nations report.`\
-https://nytimes.com/2022/02/23/climate/climate-change-un-wildfire-report.html?searchResultPosition=9
+**Finding ‘Funny Girl.’ Finally.**\
+`After nearly six decades and many false starts, the musical is returning to Broadway, with Beanie Feldstein taking on the role that made Barbra Streisand a star.`\
+https://nytimes.com/2022/02/23/theater/funny-girl-beanie-feldstein.html?searchResultPosition=9
 
-**Putin Is Making a Historic Mistake**\
-`Instead of paving Russia’s path to greatness, invading Ukraine will ensure Mr. Putin’s infamy.`\
-https://nytimes.com/2022/02/23/opinion/putin-ukraine.html?searchResultPosition=10
+**N.C.A.A. Tournament Peek: Gonzaga Remains the Favorite, but the Blue Bloods are Back**\
+`Transfers and first-year coaches will play a key role in who cuts down the nets in New Orleans in April.`\
+https://nytimes.com/2022/02/23/sports/basketball/mens-college-basketball-tournament-preview.html?searchResultPosition=10
 
