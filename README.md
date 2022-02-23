@@ -6,7 +6,7 @@ https://nytimes.com/2022/02/23/us/joe-tom-easley-dead.html?searchResultPosition=
 `Here’s what you need to know at the end of the day.`\
 https://nytimes.com/2022/02/23/briefing/ukraine-donald-trump-wordle.html?searchResultPosition=2
 
-**Ahmaud Arbery Day in Brunswick, Ga.**\
+**In Georgia for Ahmaud Arbery Day**\
 `Two years after his death, and just a day after three men were convicted in a hate crimes trial, Georgia honored his memory.`\
 https://nytimes.com/interactive/2022/02/23/us/ahmaud-arbery-day-georgia.html?searchResultPosition=3
 
