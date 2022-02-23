@@ -19,7 +19,7 @@ https://nytimes.com/interactive/2022/02/23/opinion/sheila-heti-alphabetized-diar
 https://nytimes.com/interactive/2022/02/23/burst/congo-peatlands.html?searchResultPosition=5
 
 **How 5 Companies Are Returning to the Office**\
-`After Omicron derailed return-to-office plans late last year, some companies are making a new attempt to call their workers back.`\
+`After Omicron derailed return-to-office plans late last year, some companies are making a new attempt to call their workers back. `\
 https://nytimes.com/interactive/2022/02/23/business/23RTO-Take4-Companies.html?searchResultPosition=6
 
 **Subway Will Test Platform Doors at 3 Stations**\
