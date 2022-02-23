@@ -8,7 +8,7 @@ https://nytimes.com/2022/02/23/world/ukraine-kyiv-scene.html?searchResultPositio
 
 **At 65 and Legally Blind, ‘Sister Shred’ Has Never Met a Slope She Wouldn’t Ride**\
 `Kris Nordberg still loves rolling through rock gardens and shredding powder on her ski bike — sometimes, in a nun costume.`\
-https://nytimes.com/2022/02/23/sports/at-65-and-legally-blind-sister-shred-has-never-met-a-slope-she-wouldnt-ride.html?searchResultPosition=3
+https://nytimes.com/2022/02/23/sports/colorado-ski-bike-kris-nordberg.html?searchResultPosition=3
 
 **For Some N.B.A. Prospects, a Taste of the Big Time**\
 `Members of a developmental team, the N.B.A. G League Ignite, some still in their teens, participated in the N.B.A.’s All-Star Weekend.`\
