@@ -1,6 +1,6 @@
 **Texas Governor Pushes to Investigate Medical Treatments for Trans Youth as ‘Child Abuse’**\
 `While it’s unclear whether the order could be enforced, medical providers and child welfare advocates condemned the move as dangerous.`\
-https://nytimes.com/2022/02/23/science/texas-governor-trans-child-abuse.html?searchResultPosition=1
+https://nytimes.com/2022/02/23/science/texas-abbott-transgender-child-abuse.html?searchResultPosition=1
 
 **Gary Brooker, Singer for Procol Harum, Dies at 76**\
 `The pianist and singer composed the band’s music for five decades, including the hit “A Whiter Shade of Pale.”`\
