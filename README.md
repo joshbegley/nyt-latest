@@ -4,7 +4,7 @@ https://nytimes.com/2022/02/23/opinion/colleyville-texas-synagogue-antisemitism.
 
 **Allendale, N.J.: A Low-Profile, Walkable Suburb, 25 Miles From Midtown**\
 `The manicured Bergen County borough is ‘under the radar,’ but residents prefer it that way.`\
-https://nytimes.com/2022/02/23/realestate/allendale-nj-a-low-profile-walkable-suburb-25-miles-from-midtown.html?searchResultPosition=2
+https://nytimes.com/2022/02/23/realestate/allendale-nj.html?searchResultPosition=2
 
 **Living In ... Allendale, N.J.**\
 `The manicured Bergen County borough is ‘under the radar,’ but residents prefer it that way.`\
