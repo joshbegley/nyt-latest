@@ -12,7 +12,7 @@ https://nytimes.com/2022/02/23/business/stock-market-correction.html?searchResul
 
 **European sanctions target Putin’s inner circle.**\
 `The list appears to have been compiled in coordination with American officials, who were drawing up their own set of sanctions.`\
-https://nytimes.com/2022/02/23/world/europe/eu-sanctions-russia-ukraine.html?searchResultPosition=4
+https://nytimes.com/2022/02/23/world/europe/eu-sanctions-putin-russia-ukraine.html?searchResultPosition=4
 
 **How China Under Xi Jinping Is Turning Away From the World**\
 `Global engagement has helped the nation prosper. But now, its leader seems intent on recasting the meeting of minds and cultures as a zero-sum clash.`\
