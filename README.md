@@ -1,6 +1,6 @@
 **Coronavirus Briefing: A Powerful New Vaccine**\
 `The new vaccine from Sanofi and GSK achieved 100 percent efficacy against severe disease.`\
-https://nytimes.com/2022/02/23/briefing/coronavirus-briefing-a-powerful-new-vaccine.html?searchResultPosition=1
+https://nytimes.com/2022/02/23/briefing/covid-vaccine-briefing.html?searchResultPosition=1
 
 **Sea Ice Around Antarctica Reaches a Record Low**\
 `The drop surprised scientists, and may help them understand more about climate change affecting Antarctica and its waters.`\
