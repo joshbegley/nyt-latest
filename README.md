@@ -12,7 +12,7 @@ https://nytimes.com/slideshow/2022/02/23/realestate/living-in-allendale-nj.html?
 
 **‘A Time of Worries’: New York City’s Ukrainians Are Anxious and Afraid**\
 `Their families back home refuse to leave. So they fret, connected like never before, but unable to change events.`\
-https://nytimes.com/2022/02/23/nyregion/a-time-of-worries-new-york-citys-ukrainians-are-anxious-and-afraid.html?searchResultPosition=4
+https://nytimes.com/2022/02/23/nyregion/nyc-ukrainians.html?searchResultPosition=4
 
 **The Waco Biker Shootout and the Judgment That Never Came**\
 `How 177 arrests led to no convictions — a tangled, seven-year tale of prosecutorial hubris and tenacious defense.`\
