@@ -16,7 +16,7 @@ https://nytimes.com/2022/02/24/arts/music/met-opera-don-carlos-matthew-polenzani
 
 **Biden announces new sanctions: Putin and Russia ‘will bear the consequences’ of their war.**\
 `Mr. Biden said the United States would cut off Russia’s largest banks and largest companies from the western financial markets, freeze assets of Russian elites and restrict exports of technology to Russia.`\
-https://nytimes.com/2022/02/24/us/politics/biden-sanctions-on-russia.html?searchResultPosition=5
+https://nytimes.com/2022/02/24/us/politics/biden-russia-sanctions-ukraine.html?searchResultPosition=5
 
 **‘We Will Defend Our Country,’ Ukrainian Ambassador Says**\
 `Ukraine’s ambassador to the United States said Russia’s attacks have killed at least 40 Ukrainian solders and dozens of civilians. She added that hospitals and the sealed Chernobyl nuclear disaster site were among the areas hit.`\
