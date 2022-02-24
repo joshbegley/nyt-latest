@@ -16,7 +16,7 @@ https://nytimes.com/2022/02/23/us/william-kuenzel-dead.html?searchResultPosition
 
 **Google eases pandemic rules for employees in the U.S.**\
 `The company also said it would restore many of its famed office perks.`\
-https://nytimes.com/2022/02/23/business/google-eases-pandemic-rules.html?searchResultPosition=5
+https://nytimes.com/2022/02/23/technology/google-eases-pandemic-rules.html?searchResultPosition=5
 
 **The White House says releasing more oil from reserves is ‘on the table.’**\
 `America’s emergency stockpile was tapped in November, seemingly to little effect.`\
