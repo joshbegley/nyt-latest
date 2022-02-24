@@ -11,7 +11,7 @@ https://nytimes.com/2022/02/24/reader-center/are-you-affected-by-the-conflict-in
 https://nytimes.com/2022/02/24/movies/studio-666-review-foo-fighters.html?searchResultPosition=3
 
 **Oil jumps above $100 a barrel and Asian stocks fall after invasion.**\
-`Japan’s Nikkei 225 was off just over 2.1 percent by early afternoon, while Hong Kong stocks were down 3.1 percent.`\
+`Japan’s Nikkei 225 was off just over 2.1 percent by early afternoon, while Hong Kong stocks were down 3.1 percent. Wall Street was poised for a tumble.`\
 https://nytimes.com/2022/02/24/business/economy/stock-market-today.html?searchResultPosition=4
 
 **Your Thursday Briefing**\
