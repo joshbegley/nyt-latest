@@ -16,7 +16,7 @@ https://nytimes.com/2022/02/23/todayspaper/quotation-of-the-day-sleepless-nights
 
 **Watch Live: U.N. Security Council Holds Meeting on Ukraine**\
 `Ukraine called for the emergency meeting after Russia said the leaders of two separatist regions in Ukraine had requested the Kremlin’s protection from Ukrainian “aggression.”`\
-https://nytimes.com/video/world/europe/100000008224890/ukraine-un-security-council-meeting.html?searchResultPosition=5
+https://nytimes.com/video/embedded/world/europe/100000008224890/ukraine-un-security-council-meeting.html?searchResultPosition=5
 
 **Corrections: Feb. 24, 2022**\
 `Corrections that appeared in print on Thursday, Feb. 24, 2022.`\
