@@ -14,27 +14,27 @@ https://nytimes.com/2022/02/24/style/pam-and-tommy.html?searchResultPosition=3
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2022/02/24/crosswords/spelling-bee-forum.html?searchResultPosition=4
 
+**Biden, vowing to hold Russia accountable, plans to announce ‘severe sanctions’ today.**\
+`Mr. Biden vowed to punish Moscow for “a premeditated war that will bring a catastrophic loss of life and human suffering.”`\
+https://nytimes.com/2022/02/24/world/europe/biden-russia-ukraine-sanctions.html?searchResultPosition=5
+
 **Word of the Day: macabre**\
 `This word has appeared in 96 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/02/24/learning/word-of-the-day-macabre.html?searchResultPosition=5
+https://nytimes.com/2022/02/24/learning/word-of-the-day-macabre.html?searchResultPosition=6
 
 **Seth Meyers Considers Trump’s Putin Praise**\
 `Meyers joked that Trump “narrates Putin’s every move like he is Tony Romo calling the last drive of a playoff game.”`\
-https://nytimes.com/2022/02/24/arts/television/seth-meyers-trump-putin.html?searchResultPosition=6
+https://nytimes.com/2022/02/24/arts/television/seth-meyers-trump-putin.html?searchResultPosition=7
 
 **Zelensky Declares Martial Law in Ukraine**\
 `In a televised address to the nation, President Volodymyr Zelensky of Ukraine declared martial law, but did not say what restrictions would be in place.`\
-https://nytimes.com/video/world/europe/100000008225374/ukraine-zelensky-address.html?searchResultPosition=7
+https://nytimes.com/video/world/europe/100000008225374/ukraine-zelensky-address.html?searchResultPosition=8
 
 **Are You Affected by the Conflict in Ukraine?**\
 `The New York Times would like to hear from people who are directly affected by the Russian military operations in Ukraine.`\
-https://nytimes.com/2022/02/24/reader-center/are-you-affected-by-the-conflict-in-ukraine.html?searchResultPosition=8
+https://nytimes.com/2022/02/24/reader-center/are-you-affected-by-the-conflict-in-ukraine.html?searchResultPosition=9
 
 **‘Studio 666’ Review: Foo Fighting the Devil**\
 `The band members play themselves in this horror comedy from BJ McDonnell. But the gore overtakes the (limited) fun.`\
-https://nytimes.com/2022/02/24/movies/studio-666-review-foo-fighters.html?searchResultPosition=9
-
-**Oil jumps above $100 a barrel and Asian stocks fall after invasion.**\
-`Japan’s Nikkei 225 was off just over 2.1 percent by early afternoon, while Hong Kong stocks were down 3.1 percent. Wall Street was poised for a tumble.`\
-https://nytimes.com/2022/02/24/business/economy/stock-market-today.html?searchResultPosition=10
+https://nytimes.com/2022/02/24/movies/studio-666-review-foo-fighters.html?searchResultPosition=10
 
