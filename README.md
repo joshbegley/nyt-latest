@@ -3,7 +3,7 @@
 https://nytimes.com/2022/02/24/arts/music/classical-music-recordings-albums.html?searchResultPosition=1
 
 **Russians Now See a New Side to Putin: Dragging Them Into War**\
-`The autocrat who has steered Russia for 21 years was embraced by many Russians for what they saw as his rationality and astute risk management. That image has been upended.`\
+`The autocrat who has steered Russia for 22 years was embraced by many Russians for what they saw as his rationality and astute risk management. That image has been upended.`\
 https://nytimes.com/2022/02/24/world/europe/putin-russia-ukraine.html?searchResultPosition=2
 
 **What’s Going On in This Graph? | March 2, 2022**\
