@@ -23,7 +23,7 @@ https://nytimes.com/2022/02/24/world/europe/europe-protests-ukraine-russia.html?
 https://nytimes.com/2022/02/24/realestate/around-the-world-buying-is-costlier-than-renting.html?searchResultPosition=6
 
 **The Ukraine invasion likely has the Fed on alert, but not changing course.**\
-`Central bankers are poised to raise interest rates in March. But the Russian invasion of Ukraine could hit growth, making it a risk to watch.`\
+`Central bankers are poised to raise interest rates in March. The Russian invasion of Ukraine poses a risk to economic growth but will likely exacerbate inflation.`\
 https://nytimes.com/2022/02/24/business/economy/interest-rates-russia-ukraine.html?searchResultPosition=7
 
 **Russian helicopters attack an airport near Kyiv.**\
