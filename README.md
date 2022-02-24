@@ -1,6 +1,6 @@
 **UEFA Will Strip St. Petersburg of Champions League Final**\
 `European soccer’s governing body will meet Friday to decide on a new site for the top club game of the season after Russia’s invasion of Ukraine.`\
-https://nytimes.com/2022/02/24/sports/soccer/uefa-will-strip-st-petersburg-of-champions-league-final.html?searchResultPosition=1
+https://nytimes.com/live/2022/02/24/world/russia-attacks-ukraine/uefa-will-strip-st-petersburg-of-champions-league-final?searchResultPosition=1
 
 **A Pianist Strolls Her Harlem History, and Scott Joplin’s**\
 `Lara Downes’s latest album, “Reflections: Scott Joplin Reconsidered,” is inspired by the fact that Joplin’s achievement remains fuzzy to many.`\
