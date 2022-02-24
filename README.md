@@ -22,19 +22,19 @@ https://nytimes.com/2022/02/24/realestate/around-the-world-buying-is-costlier-th
 `Central bankers are poised to raise interest rates in March. But the Russian invasion of Ukraine could hit growth, making it a risk to watch.`\
 https://nytimes.com/2022/02/24/business/economy/russia-ukraine-federal-reserve-interest-rates.html?searchResultPosition=6
 
+**Russian helicopters attack an airport near Kyiv.**\
+`Footage verified by The Times shows the most intense fighting seen so far near Ukraine’s capital, Kyiv.`\
+https://nytimes.com/2022/02/24/world/europe/russian-helicopter-attack-video.html?searchResultPosition=7
+
 **Homes for Sale in New York and New Jersey**\
 `This week’s homes are a five-bedroom house in Tenafly, N.J., and a four-bedroom in Port Washington, N.Y.`\
-https://nytimes.com/2022/02/24/realestate/housing-market-near-nyc.html?searchResultPosition=7
+https://nytimes.com/2022/02/24/realestate/housing-market-near-nyc.html?searchResultPosition=8
 
 **On the Market in the New York Region**\
 `This week’s homes are a five-bedroom in Tenafly, N.J., and a four-bedroom in Port Washington, N.Y.`\
-https://nytimes.com/slideshow/2022/02/24/realestate/on-the-market-in-the-new-york-region.html?searchResultPosition=8
+https://nytimes.com/slideshow/2022/02/24/realestate/on-the-market-in-the-new-york-region.html?searchResultPosition=9
 
 **Homes for Sale in Brooklyn and Manhattan**\
 `This week’s properties are in Chelsea, Midtown and Stuyvesant Heights.`\
-https://nytimes.com/2022/02/24/realestate/homes-for-sale-in-brooklyn-and-manhattan.html?searchResultPosition=9
-
-**On the Market in New York City**\
-`This week’s properties are in Chelsea, Midtown and Stuyvesant Heights.`\
-https://nytimes.com/slideshow/2022/02/24/realestate/on-the-market-in-new-york-city.html?searchResultPosition=10
+https://nytimes.com/2022/02/24/realestate/homes-for-sale-in-brooklyn-and-manhattan.html?searchResultPosition=10
 
