@@ -1,6 +1,6 @@
-**The trial took place with a backdrop of renewed tensions in the Twin Cities.**\
-`Protesters returned to the streets this month after a Minneapolis police officer shot and killed Amir Locke while serving a warrant.`\
-https://nytimes.com/2022/02/24/us/the-trial-took-place-with-a-backdrop-of-renewed-tensions-in-the-twin-cities.html?searchResultPosition=1
+**Day 1 of Russia’s invasion**\
+`Russian forces are advancing on Ukraine’s capital.`\
+https://nytimes.com/2022/02/24/briefing/day-1-of-russias-invasion.html?searchResultPosition=1
 
 **Pentagon Orders 7,000 More Troops to Europe**\
 `Military officials gave a grim assessment of the toll on Ukraine, saying that Russian forces were moving to decapitate the government in Kyiv.`\
