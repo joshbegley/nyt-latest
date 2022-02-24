@@ -19,8 +19,8 @@ https://nytimes.com/2022/02/24/us/storm-snow-new-england-southern-plains-mid-atl
 https://nytimes.com/video/world/europe/100000008225673/russian-forces-invade-ukraine.html?searchResultPosition=5
 
 **‘We do not expect anyone to fight for us,’ Ukraine’s defiant ambassador says from Washington.**\
-`By Michael Crowley`\
-https://nytimes.com/2022/02/24/world/europe/we-do-not-expect-anyone-to-fight-for-us-ukraines-defiant-ambassador-says-from-washington.html?searchResultPosition=6
+`Ms. Marakova said that Ukrainian forces had destroyed two Russian helicopters just outside of Kyiv, and seven aircraft in unspecific locations.`\
+https://nytimes.com/2022/02/24/world/europe/oksana-markarova-ukraine.html?searchResultPosition=6
 
 **As Russia attacked Ukraine, Trump again praised Putin and ridiculed Biden.**\
 `In a speech to donors and on Fox News, the former president claimed the crisis would not have happened if he were still in the White House.`\
