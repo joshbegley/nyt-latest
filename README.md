@@ -1,6 +1,6 @@
 **Pentagon Orders 7,000 More Troops to Europe**\
 `Military officials gave a grim assessment of the toll on Ukraine, saying that Russian forces were moving to decapitate the government in Kyiv.`\
-https://nytimes.com/2022/02/24/us/politics/us-troops-europe.html?searchResultPosition=1
+https://nytimes.com/2022/02/24/us/politics/us-troops-deploy-europe.html?searchResultPosition=1
 
 **Protesters Rally Against Russian Invasion of Ukraine**\
 `Demonstrators took to the streets in major cities, from New York City to Berlin, to condemn Russia’s invasion of Ukraine and express solidarity with the Ukrainian people.`\
