@@ -4,7 +4,7 @@ https://nytimes.com/2022/02/24/t-magazine/mens-sandals-spring-fashion-shoes.html
 
 **As the E.U. weighs new sanctions on Russia, it’s considering omitting Putin for now.**\
 `Some members, including Germany, advocated not including him so that dialogue was still possible with Russia’s top leadership.`\
-https://nytimes.com/2022/02/24/world/europe/eu-sanctions-russia-putin.html?searchResultPosition=2
+https://nytimes.com/2022/02/24/world/europe/russia-sanctions-european-union.html?searchResultPosition=2
 
 **Kharkiv, Ukraine’s second-largest city, is a major target of Russia. Here’s why.**\
 `In the Kremlin’s view, the city demonstrates the folly of Ukraine trying to live apart from Russia.`\
