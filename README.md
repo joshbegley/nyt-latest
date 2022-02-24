@@ -4,7 +4,7 @@ https://nytimes.com/2022/02/24/world/europe/ukraine-zelensky-speech.html?searchR
 
 **Rashaad Newsome Pulls Out All the Stops**\
 `His protean “Assembly,” at the Park Avenue Armory, bridges art, technology, performance, workshops — and offers an A.I. Being who will teach you how to vogue.`\
-https://nytimes.com/2022/02/24/arts/rashaad-newsome-pulls-out-all-the-stops.html?searchResultPosition=2
+https://nytimes.com/2022/02/24/arts/rashaad-newsome-assembly-exhibit.html?searchResultPosition=2
 
 **5 Classical Music Albums You Can Listen to Right Now**\
 `Bruckner, Henze, Price, Schubert and a trailblazing cellist are among the recent highlights.`\
