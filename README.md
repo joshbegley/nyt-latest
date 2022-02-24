@@ -1,6 +1,6 @@
 **Queen Elizabeth cancels virtual events for the second time since testing positive.**\
 `The 95-year-old queen would be “continuing with light duties,” Buckingham Palace said, and she has no other engagements scheduled this week.`\
-https://nytimes.com/2022/02/24/world/europe/queen-elizabeth-events-covid.html?searchResultPosition=1
+https://nytimes.com/2022/02/24/world/europe/queen-elizabeth-covid.html?searchResultPosition=1
 
 **Pakistan’s leader is in Moscow to meet with Putin about a gas pipeline.**\
 `Prime Minister Imran Khan’s long-planned visit began hours before Russian forces attacked Ukraine.`\
