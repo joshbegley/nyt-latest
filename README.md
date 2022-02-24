@@ -1,40 +1,40 @@
-**How Long Is Long Covid? Would He Ever Return to Music?**\
+**You Can Learn to Love Being Alone**\
+`Solitude doesn’t have to feel lonely. It can be restoring and refreshing with a little practice.`\
+https://nytimes.com/2022/02/24/well/live/solitude-benefit-mental-health-advice.html?searchResultPosition=1
+
+**How Long Is Long Covid? How Long Would It Keep Him From Music?**\
 `A celebrated Broadway conductor caught Covid in the first wave. Two despairing years later, he is finally reclaiming his old life, breath by breath.`\
-https://nytimes.com/2022/02/24/nyregion/long-covid-broadway-conductor-company-joel-fram.html?searchResultPosition=1
+https://nytimes.com/2022/02/24/nyregion/joel-fram-broadway-covid.html?searchResultPosition=2
 
 **12 Ways to Cook Up a Delicious Mardi Gras**\
 `The parades are back on in New Orleans, but you don’t have to travel to taste the flavors of the Carnival season.`\
-https://nytimes.com/2022/02/24/dining/mardi-gras-recipes.html?searchResultPosition=2
+https://nytimes.com/2022/02/24/dining/mardi-gras-recipes.html?searchResultPosition=3
 
 **Fox News hosts play down Russia’s attack on Ukraine.**\
 `Comments made by the stars of the network's prime-time opinion programs came in contrast to coverage by its correspondents reporting from Ukraine.`\
-https://nytimes.com/2022/02/24/business/fox-news-russia-ukraine.html?searchResultPosition=3
+https://nytimes.com/2022/02/24/business/fox-news-russia-ukraine.html?searchResultPosition=4
 
 **Videos Show Aftermath of Russian Attacks in Ukraine**\
 `Cities across Ukraine were damaged from Russian attacks. Ukrainian officials reported that more than 40 soldiers were killed and dozens wounded in fighting.`\
-https://nytimes.com/video/world/europe/100000008225725/ukraine-russia-invasion.html?searchResultPosition=4
+https://nytimes.com/video/world/europe/100000008225725/ukraine-russia-invasion.html?searchResultPosition=5
 
 **Zelensky Steps Into a Role Few Expected: Ukraine’s Wartime President**\
 `Even as doubts have lingered about his preparedness to lead, Volodymyr Zelensky, a former actor, gave the performance of his life as Russian forces prepared to invade.`\
-https://nytimes.com/2022/02/24/world/europe/ukraine-zelensky-speech.html?searchResultPosition=5
+https://nytimes.com/2022/02/24/world/europe/ukraine-zelensky-speech.html?searchResultPosition=6
 
 **Rashaad Newsome Pulls Out All the Stops**\
 `His protean “Assembly,” at the Park Avenue Armory, bridges art, technology, performance, workshops — and offers an A.I. Being who will teach you how to vogue.`\
-https://nytimes.com/2022/02/24/arts/rashaad-newsome-assembly-exhibit.html?searchResultPosition=6
+https://nytimes.com/2022/02/24/arts/rashaad-newsome-assembly-exhibit.html?searchResultPosition=7
 
 **5 Classical Music Albums You Can Listen to Right Now**\
 `Bruckner, Henze, Price, Schubert and a trailblazing cellist are among the recent highlights.`\
-https://nytimes.com/2022/02/24/arts/music/classical-music-recordings-albums.html?searchResultPosition=7
+https://nytimes.com/2022/02/24/arts/music/classical-music-recordings-albums.html?searchResultPosition=8
 
 **Russians Now See a New Side to Putin: Dragging Them Into War**\
 `The autocrat who has steered Russia for 22 years was embraced by many Russians for what they saw as his rationality and astute risk management. That image has been upended.`\
-https://nytimes.com/2022/02/24/world/europe/putin-russia-ukraine.html?searchResultPosition=8
+https://nytimes.com/2022/02/24/world/europe/putin-russia-ukraine.html?searchResultPosition=9
 
 **What’s Going On in This Graph? | March 2, 2022**\
 `What is the best way to rank countries competing in the Olympics based on the medals they won?`\
-https://nytimes.com/2022/02/24/learning/whats-going-on-in-this-graph-march-2-2022.html?searchResultPosition=9
-
-**Justice Dept. Sues to Block $13 Billion Deal by UnitedHealth Group**\
-`The agency’s lawsuit against the deal for a health technology company is the latest move by the Biden administration to quash corporate consolidation.`\
-https://nytimes.com/2022/02/24/business/doj-antitrust-lawsuit-unitedhealth.html?searchResultPosition=10
+https://nytimes.com/2022/02/24/learning/whats-going-on-in-this-graph-march-2-2022.html?searchResultPosition=10
 
