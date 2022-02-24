@@ -18,23 +18,23 @@ https://nytimes.com/2022/02/23/sports/baseball/mlb-tells-union-games-will-be-los
 `Minutes after President Vladimir Putin announced a military operation in eastern Ukraine, explosions were visible near the city of Kharkiv.`\
 https://nytimes.com/video/world/europe/100000008221157/video-explosions-ukraine.html?searchResultPosition=5
 
+**Putin announces a ‘military operation’ in Ukraine as the U.N. Security Council pleads with him to pull back.**\
+`By Anton Troianovski`\
+https://nytimes.com/2022/02/23/world/europe/putin-announces-a-military-operation-in-ukraine-as-the-un-security-council-pleads-with-him-to-pull-back.html?searchResultPosition=6
+
 **Ukrainian President Makes Plea for Peace**\
 `In a televised speech, President Volodymyr Zelensky of Ukraine addressed the people of Russia and said his country had no grievance with them and meant them no harm, even as the Kremlin appeared poised to invade.`\
-https://nytimes.com/video/world/europe/100000008224969/ukraine-zelensky-speech.html?searchResultPosition=6
+https://nytimes.com/video/world/europe/100000008224969/ukraine-zelensky-speech.html?searchResultPosition=7
 
 **Give It a Twirl!**\
 `Jake Halperin’s theme falls trippingly on the tongue.`\
-https://nytimes.com/2022/02/23/crosswords/daily-puzzle-2022-02-24.html?searchResultPosition=7
+https://nytimes.com/2022/02/23/crosswords/daily-puzzle-2022-02-24.html?searchResultPosition=8
 
 **Quotation of the Day: Sleepless Nights in Moscow as a Nation Lurches Toward Conflict**\
 `Quotation of the Day for Thursday, February 24, 2022.`\
-https://nytimes.com/2022/02/23/todayspaper/quotation-of-the-day-sleepless-nights-in-moscow-as-a-nation-lurches-toward-conflict.html?searchResultPosition=8
+https://nytimes.com/2022/02/23/todayspaper/quotation-of-the-day-sleepless-nights-in-moscow-as-a-nation-lurches-toward-conflict.html?searchResultPosition=9
 
 **Watch Live: U.N. Security Council Holds Meeting on Ukraine**\
 `Ukraine called for the emergency meeting after Russia said the leaders of two separatist regions in Ukraine had requested the Kremlin’s protection from Ukrainian “aggression.”`\
-https://nytimes.com/video/embedded/world/europe/100000008224890/ukraine-un-security-council-meeting.html?searchResultPosition=9
-
-**Corrections: Feb. 24, 2022**\
-`Corrections that appeared in print on Thursday, Feb. 24, 2022.`\
-https://nytimes.com/2022/02/23/pageoneplus/corrections-feb-24-2022.html?searchResultPosition=10
+https://nytimes.com/video/embedded/world/europe/100000008224890/ukraine-un-security-council-meeting.html?searchResultPosition=10
 
