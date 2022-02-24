@@ -20,7 +20,7 @@ https://nytimes.com/2022/02/24/world/europe/pakistans-leader-is-in-moscow-to-mee
 
 **Roman Mosaics Point to Rowdy London District’s High-End Side**\
 `The discovery of the two mosaics in Southwark, across the Thames from the City of London, has been greeted by archaeologists as “exceptional.”`\
-https://nytimes.com/2022/02/24/world/europe/roman-era-london-mosaics.html?searchResultPosition=6
+https://nytimes.com/2022/02/24/world/europe/london-roman-mosaics.html?searchResultPosition=6
 
 **In Naples, a 19th-Century Palace Passed Down for Generations**\
 `An elaborate gift from a king to his wife, Villa Lucia has enraptured for decades, and the home’s current inhabitants are continuing the love affair.`\
