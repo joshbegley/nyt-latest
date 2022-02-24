@@ -1,40 +1,40 @@
-**On London Stages, Maverick Responses to Mortality**\
-`Creative adaptations of “Wuthering Heights” and Ionesco’s “The Chairs” grapple with death and feature inclusions of the coronavirus and performance artists.`\
-https://nytimes.com/2022/02/24/theater/the-chairs-wuthering-heights.html?searchResultPosition=1
+**14 New Books Coming in March**\
+`Memoirs from Sarah Polley and Bill Barr, new novels from NoViolet Bulawayo, Claire-Louise Bennett and Pankaj Mishra, and plenty more.`\
+https://nytimes.com/2022/02/24/books/march-new-books.html?searchResultPosition=1
 
-**The Invasion of Ukraine: How Russia Attacked and What Happens Next**\
-`Explosions thundered in Ukrainian cities shortly after President Vladimir V. Putin declared the start of a “special military operation.”`\
-https://nytimes.com/2022/02/24/world/europe/ukraine-russia-attack-why.html?searchResultPosition=2
+**Courting G.O.P.’s Mainstream and Extreme, McCarthy Plots Rise to Speaker**\
+`The top House Republican is attempting a series of political contortions to try to secure his place in a party that has shifted under his feet.`\
+https://nytimes.com/2022/02/24/us/politics/kevin-mcarthy-speaker.html?searchResultPosition=2
 
-**Europe plans tougher sanctions on Russia but aims to protect its own interests.**\
-`Diplomats said several European Union members were concerned about certain sectors of Russia’s economy that could be penalized.`\
-https://nytimes.com/2022/02/24/world/europe/eu-russia-sanctions.html?searchResultPosition=3
+**Survivors of Deadly Night at Greek Border Say They Were Left to Die**\
+`The four men recalled a night of exhaustion, cold and fear when 19 died after being forced across the Turkish border.`\
+https://nytimes.com/2022/02/24/world/europe/greece-turkey-migrants-deaths.html?searchResultPosition=3
 
-**Sad Coda for Lovelorn Octogenarians Who Absconded Through Outback**\
-`Terry Gibbs was apprehended after abducting his longtime partner from her nursing home and setting out on a 3,000-mile journey. Seven weeks later, they died two days apart.`\
-https://nytimes.com/2022/02/24/world/australia/terry-gibbs-carol-lisle-outback-couple.html?searchResultPosition=4
+**Vulnerable Democrats, Seeking Distance From the Left, Offer a Midterm Agenda**\
+`The plan aims to inoculate Democrats in conservative-leaning states from Republican attacks on cultural issues, underscoring how successful the G.O.P. has been at weaponizing them.`\
+https://nytimes.com/2022/02/24/us/politics/democrats-midterm-agenda.html?searchResultPosition=4
 
-**A New Kind of Model: Giant, Inflatable, Aggressively Sexy**\
-`Diesel took a novel approach to inclusive casting at its Milan Fashion Week show.`\
-https://nytimes.com/2022/02/24/style/diesel-glenn-martens-milan-fashion-week.html?searchResultPosition=5
+**5 Things to Do This Weekend**\
+`Our critics and writers have selected noteworthy cultural events to experience virtually and in person in New York City.`\
+https://nytimes.com/2022/02/24/arts/things-to-do-this-weekend.html?searchResultPosition=5
 
-**Ukraine’s military is badly outgunned by Russia despite the West’s support.**\
-`The country’s forces “will hold up as long as there are bullets,” a top general said in December. But, he added, “without delivery of reserves, there’s not an army in the world that can hold out.”`\
-https://nytimes.com/2022/02/24/world/europe/ukraine-war-military.html?searchResultPosition=6
+**Is There Such a Thing as Black Thought?**\
+`In an uncategorizable new musical, “Black No More,” the rapper Tariq Trotter investigates Black identity — a matter that has occupied his whole career.`\
+https://nytimes.com/2022/02/24/magazine/black-thought-black-no-more.html?searchResultPosition=6
 
-**Here’s how the Russian attack is unfolding.**\
-`As President Vladimir V. Putin of Russia said on television that he had decided “to carry out a special military operation” in Ukraine, explosions were reported across the country.`\
-https://nytimes.com/2022/02/24/world/europe/how-russia-attacked-ukraine.html?searchResultPosition=7
+**Say Hello Again to the Office, Fingers Crossed**\
+`Antsy executives have a message for their employees: Plans to return to in-person work are real this time.`\
+https://nytimes.com/2022/02/24/business/return-to-office-really.html?searchResultPosition=7
 
-**How Do You Say ‘Kardashian’ in Italian?**\
-`The Ferragni sisters already have millions of followers and a reality TV show. Now they’re working on their fashion empires.`\
-https://nytimes.com/2022/02/24/style/how-do-you-say-kardashian-in-italian.html?searchResultPosition=8
+**Can a Cool Bar Make It in Rockefeller Center?**\
+`The guys behind the Smile and Ray’s are opening Pebble Bar in touristy Midtown. Celebrity friends like Pete Davidson and Nicholas Braun are investors.`\
+https://nytimes.com/2022/02/24/style/pebble-bar-rockefeller-center-hurleys.html?searchResultPosition=8
 
-**Soccer’s Fastest-Growing Market Is the One for Ideas**\
-`Wealthy teams accustomed to pursuing players are simultaneously competing for the signatures of a new era’s most sought-after talents: data analysts.`\
-https://nytimes.com/2022/02/24/sports/soccer/data-analysis.html?searchResultPosition=9
+**Using Science and Celtic Wisdom to Save Trees (and Souls)**\
+`Diana Beresford-Kroeger, a botanist and author, has created a forest with tree species handpicked for their ability to withstand a warming planet.`\
+https://nytimes.com/2022/02/24/climate/celtic-wisdom-trees-climate.html?searchResultPosition=9
 
-**How ‘Pam & Tommy’ Made Pamela Anderson Look Believable**\
-`The sixth episode of the Hulu series presents Pam as she delivers a testimony in a look carefully considered by show’s the costume, makeup and hair teams.`\
-https://nytimes.com/2022/02/24/style/pam-and-tommy.html?searchResultPosition=10
+**The Battle for the Soul of the Library**\
+`Librarians should be politically neutral. Too many aren’t.`\
+https://nytimes.com/2022/02/24/opinion/battle-library-neutrality.html?searchResultPosition=10
 
