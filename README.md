@@ -34,7 +34,7 @@ https://nytimes.com/2022/02/24/world/europe/putin-russia-ukraine.html?searchResu
 `What is the best way to rank countries competing in the Olympics based on the medals they won?`\
 https://nytimes.com/2022/02/24/learning/whats-going-on-in-this-graph-march-2-2022.html?searchResultPosition=9
 
-**Justice Dept. Plans to Block $13 Billion Deal by UnitedHealth Group**\
-`The agency’s expected lawsuit against the deal for a health technology company would be the latest move by the Biden administration to quash corporate consolidation.`\
+**Justice Dept. Sues to Block $13 Billion Deal by UnitedHealth Group**\
+`The agency’s lawsuit against the deal for a health technology company is the latest move by the Biden administration to quash corporate consolidation.`\
 https://nytimes.com/2022/02/24/business/doj-antitrust-lawsuit-unitedhealth.html?searchResultPosition=10
 
