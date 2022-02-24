@@ -12,7 +12,7 @@ https://nytimes.com/2022/02/24/movies/oscar-nominated-short-films-review.html?se
 
 **Beyond the Battlefield: What Might Happen Next in the Ukraine Crisis**\
 `Europe faces a new refugee crisis, and harsh economic penalties to punish Russia are expected to reverberate worldwide.`\
-https://nytimes.com/2022/02/24/us/politics/ukraine-what-happens-next.html?searchResultPosition=4
+https://nytimes.com/2022/02/24/us/politics/ukraine-russia-whats-next.html?searchResultPosition=4
 
 **Sotheby’s NFT Sale, Expected to Hit $30 Million, Suddenly Canceled**\
 `The CryptoPunk auction was supposed to set a new benchmark for NFT prices, but instead the consignor bowed out and posted a meme on Twitter.`\
