@@ -6,7 +6,7 @@ https://nytimes.com/2022/02/24/reader-center/are-you-affected-by-the-conflict-in
 `The band members play themselves in this horror comedy from BJ McDonnell. But the gore overtakes the (limited) fun.`\
 https://nytimes.com/2022/02/24/movies/studio-666-review-foo-fighters.html?searchResultPosition=2
 
-**Asian stocks fall on invasion news, extending a global slump.**\
+**Oil jumps above $100 a barrel and Asian stocks fall after invasion.**\
 `Japan’s Nikkei 225 was off just over 2.1 percent by early afternoon, while Hong Kong stocks were down 3.1 percent.`\
 https://nytimes.com/2022/02/24/business/economy/stock-market-today.html?searchResultPosition=3
 
