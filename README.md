@@ -1,4 +1,4 @@
-**Champions League Final, Stripped From Russia, Is Moved to Paris**\
+**Champions League Final Will Be Played in Paris, Not Russia**\
 `European soccer officials took the continent’s showpiece game from St. Petersburg as punishment for Russia’s invasion of Ukraine.`\
 https://nytimes.com/2022/02/25/sports/soccer/champions-league-final-paris-russia.html?searchResultPosition=1
 
