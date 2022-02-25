@@ -1,5 +1,5 @@
-**Biden Chooses His Supreme Court Nominee**\
-`President Biden informed his advisers that he had chosen a successor to Justice Stephen G. Breyer, who is retiring.`\
+**Biden Tells Advisers He Has Chosen His Supreme Court Nominee**\
+`President Biden’s decision ended a monthlong search to replace Justice Stephen G. Breyer, who is retiring. An announcement could come as soon as Friday.`\
 https://nytimes.com/2022/02/24/us/politics/biden-supreme-court-nominee.html?searchResultPosition=1
 
 **Sally Kellerman, Oscar-Nominated ‘MASH’ Actress, Is Dead at 84**\
