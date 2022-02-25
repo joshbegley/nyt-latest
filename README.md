@@ -4,7 +4,7 @@ https://nytimes.com/2022/02/24/us/politics/cpac-ukraine-putin.html?searchResultP
 
 **Why didn’t the U.S. cut off Russia from Swift? It’s complicated.**\
 `Removing access to the financial messaging service would be the most severe penalty but could have unwanted consequences, including compromising energy exports to Europe.`\
-https://nytimes.com/2022/02/24/business/why-didnt-the-us-cut-off-russia-from-swift-its-complicated.html?searchResultPosition=2
+https://nytimes.com/2022/02/24/business/russia-swift-financial-system.html?searchResultPosition=2
 
 **It’s Official: The Post-Cold War Era Is Over**\
 `Russian troops are attacking Ukraine. For so long, U.S. policymakers have grappled with how to prevent such a moment. Now, they must answer a different question.`\
