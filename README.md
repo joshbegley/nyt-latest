@@ -1,40 +1,40 @@
-**Who Are the Trailblazers in Girls’ Education?**\
-`Heroes both visible and invisible can motivate girls to pursue studies and become innovators.`\
-https://nytimes.com/paidpost/cartier/who-are-the-trailblazers-in-girls-education.html?searchResultPosition=1
+**East Meets West at Lincoln Center**\
+`And celebrities walk in the Blue Jacket Fashion Show for prostate cancer awareness.`\
+https://nytimes.com/2022/02/25/style/east-meets-west-at-lincoln-center.html?searchResultPosition=1
 
-**Champions League Final Will Be Played in Paris, Not Russia**\
-`European soccer officials took the continent’s showpiece game from St. Petersburg as punishment for Russia’s invasion of Ukraine.`\
-https://nytimes.com/2022/02/25/sports/soccer/champions-league-final-paris-russia.html?searchResultPosition=2
+**Michael Stipe, Another Outsider at the Art Fair**\
+`The R.E.M. singer-songwriter is parting with works from his collection of Southern artists — but their inspiration lingers on.`\
+https://nytimes.com/2022/02/25/arts/design/michael-stipe-rem-outsider-art.html?searchResultPosition=2
 
-**European Leaders Agree to a Second Wave of Russia Sanctions**\
-`The new measures will hit Russia’s access to technology and its elite’s abilities to travel and save money in Europe, but omitted other steps harder to agree on.`\
-https://nytimes.com/2022/02/25/world/europe/eu-russian-sanctions.html?searchResultPosition=3
+**After Trump Surge, a Liberal Democrat in South Texas Shifts Tactics**\
+`In her second run for Congress, Jessica Cisneros has moved from pitching progressive policies to attacking the incumbent Democrat, Representative Henry Cuellar.`\
+https://nytimes.com/2022/02/25/us/politics/latino-politics-jessica-cisneros.html?searchResultPosition=3
 
-**Funny Genre-Bending Fiction From the Creators of ‘Dragons Love Tacos’ and the ‘Spy School’ Series**\
-`Adam Rubin’s “The Ice Cream Machine” dishes on short story collections, Stuart Gibbs’s “Once Upon a Tim” on knightly adventure.`\
-https://nytimes.com/2022/02/25/books/review/adam-rubin-the-ice-cream-machine-stuart-gibbs-once-upon-a-tim.html?searchResultPosition=4
+**The Writer Who Brought Real-Life Brooklyn to Soap Operas**\
+`Mary Ryan Munisteri worked on “Ryan’s Hope,” a soap opera  set in a real place, New York City, and grounded in reality about women’s lives.`\
+https://nytimes.com/2022/02/25/nyregion/ryans-hope-soap-opera.html?searchResultPosition=4
 
-**Everything Looks Different Now**\
-`Crisis and fashion collide at Moschino and Prada.`\
-https://nytimes.com/2022/02/25/style/prada-moschino-milan-fashion-week.html?searchResultPosition=5
+**U.S. Officials Repeatedly Urged China to Help Avert War in Ukraine**\
+`Americans presented Chinese officials with intelligence on Russia’s troop buildup in hopes that President Xi Jinping would step in, but were repeatedly rebuffed.`\
+https://nytimes.com/2022/02/25/us/politics/us-china-russia-ukraine.html?searchResultPosition=5
 
-**‘No Exit’ Review: Who’s Bluffing?**\
-`In this diverting thriller, a young woman discovers a kidnapping in progress while snowed in at a rest stop`\
-https://nytimes.com/2022/02/25/movies/no-exit-review.html?searchResultPosition=6
+**‘Driven by the Potential for Joy’: Comedies Are the Thing This Spring**\
+`We spoke to four playwrights — JC Lee, Charly Evon Simpson, Bryna Turner and Ana Nogueira — whose new shows invite audiences to laugh (even if some laughs catch in the throat).`\
+https://nytimes.com/2022/02/25/theater/comedies-theater-off-broadway.html?searchResultPosition=6
 
-**Why the Toughest Sanctions on Russia Are the Hardest for Europe to Wield**\
-`Moscow relies on the money it makes by selling oil and gas, but that energy fuels Europe’s economy and heats its homes.`\
-https://nytimes.com/2022/02/25/business/economy/russia-europe-sanctions-gas-oil.html?searchResultPosition=7
+**Ex-Worker Wins $36.5 Million From Company That Hid Asbestos Damage**\
+`The verdict was the first of hundreds of cases pending against the company hired to oversee medical care and safety for workers at a mine and mill in Libby, Mont.`\
+https://nytimes.com/2022/02/25/us/asbestos-libby-montana.html?searchResultPosition=7
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/02/25/crosswords/spelling-bee-forum.html?searchResultPosition=8
+**Along Mexico’s Riviera Maya, Tourists, Drugs and Violence**\
+`On the stretch of beaches from Cancún to Tulum, there have been a number of gang-related incidents in which international visitors have been killed or injured. But that hasn’t stopped the vacationers from coming.`\
+https://nytimes.com/2022/02/25/travel/cancun-tulum-mexico-shooting.html?searchResultPosition=8
 
-**Word of the Day: galvanize**\
-`This word has appeared in 111 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/02/25/learning/word-of-the-day-galvanize.html?searchResultPosition=9
+**N.Y.P.D. Boss’s First Weeks: A Rush of Tragedy, a Rise in Scrutiny**\
+`Keechant Sewell, who took over the New York Police Department as an outsider, was immediately faced with a series of shocking crimes.`\
+https://nytimes.com/2022/02/25/nyregion/keechant-sewell-nypd-commissioner.html?searchResultPosition=9
 
-**Late Night Gets Serious About Ukraine**\
-`Hosts did their best to bring levity to their shows on an otherwise somber day.`\
-https://nytimes.com/2022/02/25/arts/television/late-night-ukraine-serious.html?searchResultPosition=10
+**Are We Measuring Our Lives in All the Wrong Ways?**\
+`The philosopher C. Thi Nguyen believes that to understand modern life, we need to understand how games work.`\
+https://nytimes.com/2022/02/25/opinion/ezra-klein-podcast-c-thi-nguyen.html?searchResultPosition=10
 
