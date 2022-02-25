@@ -14,7 +14,7 @@ https://nytimes.com/2022/02/24/opinion/defeat-trump-democrat-myths.html?searchRe
 `An annual meeting of conservatives was a launchpad for Ronald Reagan’s American idealism. Today, it’s a platform for a very different view of the world.`\
 https://nytimes.com/2022/02/24/us/politics/cpac-ukraine-putin.html?searchResultPosition=4
 
-**Why didn’t the U.S. cut off Russia from Swift? It’s complicated.**\
+**Why didn’t the U.S. cut off Russia from SWIFT? It’s complicated.**\
 `Removing access to the financial messaging service would be the most severe penalty but could have unwanted consequences, including compromising energy exports to Europe.`\
 https://nytimes.com/2022/02/24/business/russia-swift-financial-system.html?searchResultPosition=5
 
