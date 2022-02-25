@@ -1,6 +1,6 @@
 **First-time vaccination rates in the U.S. are at a new low.**\
 `As the country is on course to live with the coronavirus, the vaccination drive is vanishing.`\
-https://nytimes.com/2022/02/25/us/first-time-vaccination-rates-in-the-us-are-at-a-new-low.html?searchResultPosition=1
+https://nytimes.com/2022/02/25/us/covid-vaccination-rate.html?searchResultPosition=1
 
 **How to Discover the Life-Affirming Comforts of ‘Death Cleaning’**\
 `Professional home organizers are seeing a spike in calls from older clients who want to cut through the clutter and make their lives more livable.`\
