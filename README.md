@@ -12,7 +12,7 @@ https://nytimes.com/2022/02/25/well/move/back-pain-exercises.html?searchResultPo
 
 **NPR names Ayesha Rascoe the host of ‘Weekend Edition Sunday.’**\
 `Ms. Rascoe will fill a role that Lulu Garcia-Navarro left.`\
-https://nytimes.com/2022/02/25/business/npr-names-ayesha-rascoe-as-the-host-of-weekend-edition-sunday.html?searchResultPosition=4
+https://nytimes.com/2022/02/25/business/npr-ayesha-rascoe.html?searchResultPosition=4
 
 **The Weekender**\
 `What Yale’s happiness professor has learned. Also in this edition: the long search for the perfect “Funny Girl,” and how a book is made.`\
