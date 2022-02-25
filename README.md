@@ -1,40 +1,40 @@
+**Disney Takes Visitors to a Galaxy Far, Far Away**\
+`Star Wars: Galactic Starcruiser, opening at Walt Disney World, is part luxury hotel, part theme park ride, part role-playing game. But it will cost you.`\
+https://nytimes.com/2022/02/25/business/disney-star-wars-galactic-starcruiser.html?searchResultPosition=1
+
+**Free Options for Filing Your Taxes**\
+`Many of the no-cost online services have age or income limits. But some are available to anyone.`\
+https://nytimes.com/2022/02/25/your-money/taxes/filing-taxes-online-free.html?searchResultPosition=2
+
+**A Limestone Mansion on the Upper East Side Sells for $56 Million**\
+`The house topped sales in February, in a market that included boldface names like Norman Lear, Anthony Rapp and Nathan Lane.`\
+https://nytimes.com/2022/02/25/realestate/top-nyc-real-estate-sales.html?searchResultPosition=3
+
+**Keeping Handball Alive at Flamingo Park**\
+`In between trash talk and the discussion of various ailments, a dedicated group of seniors hopes to carry a sport to a new generation.`\
+https://nytimes.com/2022/02/25/sports/flamingo-park-handball.html?searchResultPosition=4
+
+**Why Is ‘Cyrano’ Still So Potent? Ask Anyone Who’s Loved at All.**\
+`The 19th-century French play is quite adaptable, as numerous stage and film versions have shown, including the latest musical starring Peter Dinklage.`\
+https://nytimes.com/2022/02/25/movies/cyrano-peter-dinklage.html?searchResultPosition=5
+
+**The Evolution of Friendship and FOMO**\
+`In Wednesday’s puzzle, FOMO was the answer to the clue “Social media-induced anxiety, for short.”`\
+https://nytimes.com/2022/02/25/crosswords/the-evolution-of-friendship-and-fomo.html?searchResultPosition=6
+
+**Joaquina Kalukango Isn’t Afraid to Speak Up Anymore**\
+`Before leading her first Broadway musical in “Paradise Square,” she had long deferred to others in the rehearsal room — until she realized how much she has to share.`\
+https://nytimes.com/2022/02/25/theater/joaquina-kalukango-paradise-square.html?searchResultPosition=7
+
 **‘Abrupt Changes’: China Caught in a Bind Over Russia’s Invasion of Ukraine**\
 `China has presented itself as a defender of sovereign independence. But its reluctance to denounce Russia’s aggression forces it into an awkward position.`\
-https://nytimes.com/2022/02/25/world/asia/china-russia-ukraine-sovereignty.html?searchResultPosition=1
+https://nytimes.com/2022/02/25/world/asia/china-russia-ukraine-sovereignty.html?searchResultPosition=8
 
 **Biden Chooses Ketanji Brown Jackson for Supreme Court**\
 `If confirmed, Judge Jackson, who won support from three Republicans in the Senate when elevated to a federal appeals court last year, would become the first Black woman on the Supreme Court.`\
-https://nytimes.com/2022/02/25/us/politics/ketanji-brown-jackson-supreme-court.html?searchResultPosition=2
+https://nytimes.com/2022/02/25/us/politics/ketanji-brown-jackson-supreme-court.html?searchResultPosition=9
 
 **How California Could Be Affected by the Ukraine-Russia Conflict**\
 `The latest updates on the invasion and an explanation of how California gas prices could be affected.`\
-https://nytimes.com/2022/02/25/us/california-ukraine-russia.html?searchResultPosition=3
-
-**Flight Attendants in the Pandemic and Wellness Diets for Pets: The Week in Narrated Articles**\
-`Five articles from around The Times, narrated just for you.`\
-https://nytimes.com/2022/02/25/podcasts/flight-attendants-pandemic-pets-narrated-articles.html?searchResultPosition=4
-
-**Sanctions and Consequences**\
-`The ripple effects of Russia’s invasion of Ukraine are coming into focus.`\
-https://nytimes.com/2022/02/25/business/dealbook/russia-ukraine-sanctions-energy.html?searchResultPosition=5
-
-**First-time vaccination rates in the U.S. are at a new low.**\
-`As the country is on course to live with the coronavirus, the vaccination drive is vanishing.`\
-https://nytimes.com/2022/02/25/us/covid-vaccination-rate.html?searchResultPosition=6
-
-**How to Discover the Life-Affirming Comforts of ‘Death Cleaning’**\
-`Professional home organizers are seeing a spike in calls from older clients who want to cut through the clutter and make their lives more livable.`\
-https://nytimes.com/2022/02/25/realestate/how-to-discover-the-life-affirming-comforts-of-death-cleaning.html?searchResultPosition=7
-
-**Inflation is a worry for 9 in 10 Americans polled.**\
-`A survey shows concern across generations and parties, contributing to a dour view of the economy.`\
-https://nytimes.com/2022/02/25/business/economy/inflation-americans-worry.html?searchResultPosition=8
-
-**The Queer Young Comics Redefining American Humor**\
-`For years, gay male performers were left out of the comedy landscape or tokenized within it. Now, a new wave of entertainers are succeeding by playing to themselves.`\
-https://nytimes.com/2022/02/25/t-magazine/queer-comedians-bowen-yang-jaboukie.html?searchResultPosition=9
-
-**Tell T a Joke | Bowen Yang**\
-`The comedian shares a riddle.`\
-https://nytimes.com/video/t-magazine/100000008198029/tell-t-a-joke-bowen-yang.html?searchResultPosition=10
+https://nytimes.com/2022/02/25/us/california-ukraine-russia.html?searchResultPosition=10
 
