@@ -1,6 +1,6 @@
 **They Do Business in Russia, and Now They May Pay a Price**\
 `Thousands of European companies that have operations in Russia may face collateral damage as Western sanctions aim to penalize Russia’s economy.`\
-https://nytimes.com/2022/02/26/business/russia-companies-ukraine-invasion.html?searchResultPosition=1
+https://nytimes.com/2022/02/26/business/companies-russia-ukraine-invasion.html?searchResultPosition=1
 
 **A Rare Face-to-Face Meeting as M.L.B.’s Deadline Nears**\
 `Commissioner Rob Manfred had not met Tony Clark, the head of the players’ union, since before the lockout began. Progress was made but time is running out.`\
