@@ -4,7 +4,7 @@ https://nytimes.com/2022/02/26/us/americans-russia-ukraine.html?searchResultPosi
 
 **Putin Faces Sanctions, but His Assets Remain an Enigma**\
 `On paper, the Russian president appears to own very little. Yet estimates put his hidden wealth well over $100 billion.`\
-https://nytimes.com/2022/02/26/world/europe/putin-wealth-sanctions.html?searchResultPosition=2
+https://nytimes.com/2022/02/26/world/europe/putin-sanctions-money-assets.html?searchResultPosition=2
 
 **Russia Advances on Three Cities in Face of Fierce Resistance**\
 `Ukraine’s leader said his forces had “repelled” the Russian army’s assault, while Moscow said it had merely “paused” for peace negotiations.`\
