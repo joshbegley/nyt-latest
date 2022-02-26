@@ -26,15 +26,15 @@ https://nytimes.com/video/world/europe/100000008229484/ukraine-missile-strike-ap
 `The guidance is not binding, so local requirements may still apply. The federal mask requirement on mass transit and air travel is set to expire on March 18.`\
 https://nytimes.com/2022/02/26/us/cdc-guidelines-online-tool.html?searchResultPosition=7
 
-**Videos show Ukrainians confronting Russian troops.**\
-`By Dmitriy Khavin, Ainara Tiefenthäler, Christoph Koettl and Brenna Smith`\
-https://nytimes.com/2022/02/26/world/europe/videos-show-ukrainians-confronting-russian-troops.html?searchResultPosition=8
-
 **Vladimir Putin’s Clash of Civilizations**\
 `Putin is embracing a more sinister version of the unconstrained vision that once led George W. Bush astray. `\
-https://nytimes.com/2022/02/26/opinion/vladimir-putin-clash-of-civilizations.html?searchResultPosition=9
+https://nytimes.com/2022/02/26/opinion/vladimir-putin-clash-of-civilizations.html?searchResultPosition=8
 
 **New Research Points to Wuhan Market as Pandemic Origin**\
 `Two new studies say the virus was present in animals at the Huanan seafood market in 2019.`\
-https://nytimes.com/interactive/2022/02/26/science/covid-virus-wuhan-origins.html?searchResultPosition=10
+https://nytimes.com/interactive/2022/02/26/science/covid-virus-wuhan-origins.html?searchResultPosition=9
+
+**Thousands Flee Ukraine Into Romania**\
+`Ukrainians escaping Russia’s invasion crossed into neighboring nations like Romania, creating a backlog at one key border crossing, as at least 19,000 people had reportedly entered the country since the fighting began.`\
+https://nytimes.com/video/world/europe/100000008229615/ukraine-refugees-romania.html?searchResultPosition=10
 
