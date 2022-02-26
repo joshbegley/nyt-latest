@@ -7,7 +7,7 @@ https://nytimes.com/video/world/europe/100000008229615/ukraine-refugees-romania.
 https://nytimes.com/2022/02/26/us/demetrios-papademetriou-dead.html?searchResultPosition=2
 
 **‘Everybody in Our Country Needs to Defend’**\
-`Ukrainian civilian volunteers, lightly organized into paramilitary groups, are taking the fight to the Russian army in Kyiv.`\
+`Civilian volunteers and  paramilitary groups are taking the fight to the Russian army in Kyiv, Ukraine’s capital.`\
 https://nytimes.com/2022/02/26/world/europe/ukraine-russia-civilian-military.html?searchResultPosition=3
 
 **Stranded Soccer Stars, Frantic Phone Calls and a Race to Flee Kyiv**\
