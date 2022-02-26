@@ -8,7 +8,7 @@ https://nytimes.com/2022/02/26/us/demetrios-papademetriou-dead.html?searchResult
 
 **‘Everybody in Our Country Needs to Defend’**\
 `Ukrainian civilian volunteers, lightly organized into paramilitary groups, are taking the fight to the Russian army in Kyiv.`\
-https://nytimes.com/2022/02/26/world/europe/ukraine-russia-paramilitary-civilian.html?searchResultPosition=3
+https://nytimes.com/2022/02/26/world/europe/ukraine-russia-civilian-military.html?searchResultPosition=3
 
 **Stranded Soccer Stars, Frantic Phone Calls and a Race to Flee Kyiv**\
 `“We are here asking for your help,” one Brazilian player pleaded. “There’s no way we can get out.”`\
