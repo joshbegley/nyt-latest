@@ -26,7 +26,7 @@ https://nytimes.com/2022/02/26/world/europe/putin-sanctions-money-assets.html?se
 `Ukraine’s leader said his forces had “repelled” the Russian army’s assault, while Moscow said it had merely “paused” for peace negotiations.`\
 https://nytimes.com/2022/02/26/world/europe/russia-ukraine-invasion-kyiv-kharkiv-kherson.html?searchResultPosition=7
 
-**Two Children of the Cold War Face Off in New Confrontation**\
+**Biden and Putin, Children of the Cold War, Face Off in New Confrontation**\
 `Not since John F. Kennedy and Nikita S. Khrushchev confronted each other over Berlin and Cuba have an American president and Russian leader gone eyeball to eyeball in quite such a dramatic fashion.`\
 https://nytimes.com/2022/02/26/us/politics/biden-putin-russia-us-ukraine.html?searchResultPosition=8
 
