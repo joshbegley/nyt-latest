@@ -36,5 +36,5 @@ https://nytimes.com/2022/02/26/world/canada/ottawa-trucker-protests.html?searchR
 
 **Russia Intensifies Censorship Campaign, Pressuring Tech Giants**\
 `Google, Apple and others were warned that they must comply with a new law, which would make them more vulnerable to the Kremlin’s censorship demands.`\
-https://nytimes.com/2022/02/26/technology/russia-censorship-tech-giants.html?searchResultPosition=10
+https://nytimes.com/2022/02/26/technology/russia-censorship-tech.html?searchResultPosition=10
 
