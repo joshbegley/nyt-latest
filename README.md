@@ -28,7 +28,7 @@ https://nytimes.com/2022/02/26/us/houston-riot-black-soldiers.html?searchResultP
 
 **A Medical Mystery Posed by Blurred Lanes**\
 `As I was driving during a cross-country road trip, my vision became wobbly. An extensive search for a specialist followed.`\
-https://nytimes.com/2022/02/26/health/eyesight-neuroophthamology.html?searchResultPosition=8
+https://nytimes.com/2022/02/26/health/vision-eyesight-neuro-ophthalmology.html?searchResultPosition=8
 
 **The Trucks Are Gone From Ottawa, but Their Aftermath Lingers**\
 `Streets remained blocked in Ottawa, and many issues, including compensation for those who lost income during the protests, are unresolved.`\
