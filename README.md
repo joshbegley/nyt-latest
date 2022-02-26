@@ -24,7 +24,7 @@ https://nytimes.com/2022/02/26/opinion/critical-race-theory-survey.html?searchRe
 
 **Putin’s Aggression Leaves His Right-Wing Fan Club Squirming**\
 `The Russian strongman has for years been idolized by a Who’s Who of populist, nationalist leaders. They are now stumbling over what to say.`\
-https://nytimes.com/2022/02/26/world/europe/russia-putin-salvini-le-pen.html?searchResultPosition=7
+https://nytimes.com/2022/02/26/world/europe/russia-putin-matteo-salvini-marine-le-pen.html?searchResultPosition=7
 
 **For Ukraine’s Refugees, Europe Opens Doors That Were Shut to Others**\
 `Thousands of Ukrainians will end up in countries led by nationalist governments that have been reluctant to welcome refugees in the past.`\
