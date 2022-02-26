@@ -1,6 +1,6 @@
 **Putin’s War Ushers in Crisis for Russia**\
 `Despite the Kremlin’s efforts to obscure the offensive in Ukraine, the costs of the war were already evident in both economic and social turmoil.`\
-https://nytimes.com/2022/02/26/world/europe/russia-ukraine-war-economy.html?searchResultPosition=1
+https://nytimes.com/2022/02/26/world/europe/russian-economy-ukraine-war.html?searchResultPosition=1
 
 **As battle for Kyiv rages, Ukraine’s president tries to rally his people.**\
 `“We have withstood and successfully repelled enemy attacks,” President Volodymyr Zelensky said in the video. “The fighting continues in many cities and districts of our state, but we know that we protect the country, the land, the future of children.”`\
