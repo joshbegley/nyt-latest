@@ -36,5 +36,5 @@ https://nytimes.com/2022/02/25/books/review/cost-of-living-emily-maloney.html?se
 
 **Ukraine Girds for Kyiv Attack Amid Signs of Slowing Russian Advance**\
 `President Volodymyr Zelensky warned in a video address that Russian “sabotage groups” had entered Kyiv with the aim of decapitating his government by “destroying the head of state.”`\
-https://nytimes.com/2022/02/25/world/europe/ukraine-russia-kyiv-fighting.html?searchResultPosition=10
+https://nytimes.com/2022/02/25/world/europe/kyiv-attack-invasion.html?searchResultPosition=10
 
