@@ -12,7 +12,7 @@ https://nytimes.com/video/world/europe/100000008229299/ukraine-war-border.html?s
 
 **On both sides of the Korean Peninsula, eyes are on Washington’s response to Russia.**\
 `North Korea might decide it’s time to resume weapons tests, to gain more diplomatic leverage with Washington.`\
-https://nytimes.com/2022/02/25/world/europe/russia-usa.html?searchResultPosition=4
+https://nytimes.com/2022/02/25/world/asia/russia-usa.html?searchResultPosition=4
 
 **They Do Business in Russia, and Now They May Pay a Price**\
 `Thousands of European companies that have operations in Russia may face collateral damage as Western sanctions aim to penalize Russia’s economy.`\
