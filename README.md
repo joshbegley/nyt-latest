@@ -3,7 +3,7 @@
 https://nytimes.com/2022/02/26/world/europe/russia-ukraine-war-economy.html?searchResultPosition=1
 
 **As battle for Kyiv rages, Ukraine’s president tries to rally his people.**\
-`By Valerie Hopkins`\
+`“We have withstood and successfully repelled enemy attacks,” President Volodymyr Zelensky said in the video. “The fighting continues in many cities and districts of our state, but we know that we protect the country, the land, the future of children.”`\
 https://nytimes.com/2022/02/26/world/europe/volodymyr-zelensky-ukraine-russia.html?searchResultPosition=2
 
 **What Americans Really Think About ‘Critical Race Theory’**\
