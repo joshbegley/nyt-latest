@@ -26,8 +26,8 @@ https://nytimes.com/2022/02/26/us/americans-russia-ukraine.html?searchResultPosi
 `On paper, the Russian president appears to own very little. Yet estimates put his hidden wealth well over $100 billion.`\
 https://nytimes.com/2022/02/26/world/europe/putin-sanctions-money-assets.html?searchResultPosition=7
 
-**Russia Advances on Three Cities in Face of Fierce Resistance**\
-`Ukraine’s leader said his forces had “repelled” the Russian army’s assault, while Moscow said it had merely “paused” for peace negotiations.`\
+**Russia Advances on 3 Ukrainian Cities, but Meets Fierce Resistance**\
+`Ukraine’s leader said his forces had “repelled” the Russian army’s assault. Moscow claimed it had merely “paused” for the possibility of peace negotiations.`\
 https://nytimes.com/2022/02/26/world/europe/russia-ukraine-invasion-kyiv-kharkiv-kherson.html?searchResultPosition=8
 
 **Biden and Putin, Children of the Cold War, Face Off in New Confrontation**\
