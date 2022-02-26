@@ -1,6 +1,6 @@
 **For Ukraine’s Refugees, Europe Opens Doors That Were Shut to Others**\
 `Thousands of Ukrainians will end up in countries led by nationalist governments that have been reluctant to welcome refugees in the past.`\
-https://nytimes.com/2022/02/26/us/politics/ukraine-refugee-crisis.html?searchResultPosition=1
+https://nytimes.com/2022/02/26/us/politics/ukraine-europe-refugees.html?searchResultPosition=1
 
 **Dogs Will Be Dogs. But How Much Barking Is Too Much for Neighbors?**\
 `City dwellers are expected to tolerate some amount of noise. When it comes to disruptive pets, you need to prove it’s a problem.`\
