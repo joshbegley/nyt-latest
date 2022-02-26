@@ -1,6 +1,6 @@
 **Video shows a missile hitting a residential building in Kyiv.**\
 `The missile hit a building about 1.5 miles from Sikorsky Memorial Airport.`\
-https://nytimes.com/2022/02/25/world/europe/missile-hits-building-in-kyiv-video.html?searchResultPosition=1
+https://nytimes.com/2022/02/25/world/europe/missile-hits-building-kyiv-video.html?searchResultPosition=1
 
 **Worried About Stocks? Think of Ukrainians Under Siege First.**\
 `If you have an investment portfolio or own a home, you’ve probably experienced big gains. Here’s how to use those winnings to help.`\
