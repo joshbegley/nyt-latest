@@ -6,7 +6,7 @@ https://nytimes.com/2022/02/27/business/ukraine-gas-explosion-kharkiv.html?searc
 `Democracy is on the decline worldwide, and Vladimir Putin is a big factor.`\
 https://nytimes.com/2022/02/27/briefing/putin-democracy-ukraine.html?searchResultPosition=2
 
-**A Master of the Goal Mouth Gets Better As He Goes**\
+**A Master of the Goal Mouth Gets Better as He Goes**\
 `In his 10th season, Chris Kreider of the Rangers has hit a new level, taking control of the hard-fought patch of ice in front of his opponent’s goal.`\
 https://nytimes.com/2022/02/27/sports/hockey/chris-kreider-rangers.html?searchResultPosition=3
 
