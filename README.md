@@ -26,8 +26,8 @@ https://nytimes.com/2022/02/27/sports/hockey/chris-kreider-rangers.html?searchRe
 `The U.S. and the European Union have imposed a range of financial penalties on Russia. Companies are again setting dates for return to the office. And the February jobs numbers come out.`\
 https://nytimes.com/2022/02/27/business/the-week-in-business.html?searchResultPosition=7
 
-**Flash Flooding Thumps Northeastern Australia, Leaving at Least 7 Dead**\
-`Several days of torrential downpours have pummeled towns and cities in Queensland. The state premier described the wild weather as a “rain bomb” with “waves of water just coming down.”`\
+**‘Rain Bomb’ Hits Northeastern Australia, Leaving at Least 7 Dead**\
+`Several days of downpours have pummeled Queensland, with flooding worsening in the state capital, Brisbane. The state premier described the wild weather as “waves of water just coming down.”`\
 https://nytimes.com/2022/02/27/world/asia/australia-flood-queensland.html?searchResultPosition=8
 
 **The Sunday Read: ‘The Battle for the World’s Most Powerful Cyberweapon’**\
