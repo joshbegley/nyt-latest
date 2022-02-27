@@ -16,7 +16,7 @@ https://nytimes.com/2022/02/27/business/the-week-in-business.html?searchResultPo
 
 **Flash Flooding Thumps Northeastern Australia, Leaving at Least 7 Dead**\
 `Several days of torrential downpours have pummeled towns and cities in Queensland. The state premier described the wild weather as a “rain bomb” with “waves of water just coming down.”`\
-https://nytimes.com/2022/02/27/world/asia/australia-floods-queensland.html?searchResultPosition=5
+https://nytimes.com/2022/02/27/world/asia/australia-flood-queensland.html?searchResultPosition=5
 
 **The Sunday Read: ‘The Battle for the World’s Most Powerful Cyberweapon’**\
 `A New York Times investigation reveals how Israel reaped diplomatic gains around the world from NSO’s Pegasus spyware — a tool America itself purchased but is now trying to ban.`\
