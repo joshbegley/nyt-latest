@@ -12,7 +12,7 @@ https://nytimes.com/2022/02/27/world/europe/ukraine-war-russia.html?searchResult
 
 **‘Atmospheric River’ Threatens to Pummel the Pacific Northwest**\
 `Heavy rains in the mountains of Oregon and Washington are expected to cause flooding starting on Monday, forecasters said.`\
-https://nytimes.com/2022/02/27/us/category-4-atmospheric-river-pacific-northwest.html?searchResultPosition=4
+https://nytimes.com/2022/02/27/us/atmospheric-river-pacific-northwest.html?searchResultPosition=4
 
 **War in Ukraine Forces Israel Into a Delicate Balancing Act**\
 `Israel is a strong ally of the United States, and its leaders have a good relationship with Volodymyr Zelensky, Ukraine’s Jewish president. But Israel also doesn’t want to provoke Russia.`\
