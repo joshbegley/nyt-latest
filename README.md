@@ -4,7 +4,7 @@ https://nytimes.com/2022/02/27/theater/sandblasted-review.html?searchResultPosit
 
 **Ukrainians in Britain Take Up the Cause Back Home**\
 `Whether vowing to kill Russians or offering medical supplies, Ukrainian citizens are too impatient to sit idly by.`\
-https://nytimes.com/2022/02/27/world/europe/uk-expat-fighters-ukraine.html?searchResultPosition=2
+https://nytimes.com/2022/02/27/world/europe/ukraine-uk-expat-fighters.html?searchResultPosition=2
 
 **Ukraine War Forces Hungary’s Orban Into Political Contortions**\
 `The pro-Russia, anti-immigrant Hungarian prime minister, who denounced any sanctions against Russia just weeks ago, has been forced to reverse himself as an election looms.`\
