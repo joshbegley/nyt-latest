@@ -15,7 +15,7 @@ https://nytimes.com/video/world/europe/100000008230025/ukraine-volunteers.html?s
 https://nytimes.com/paidpost/santander-bank/crafting-a-legacy-the-john-stevens-shop.html?searchResultPosition=4
 
 **North Korea Launches a Ballistic Missile, South Korea Says**\
-`It was the North’s eighth missile test of the year, after a hiatus of several weeks. Few details were immediately available.`\
+`Flight data suggested that the missile launched Sunday was less powerful than the last one the North tested, four weeks ago.`\
 https://nytimes.com/2022/02/26/world/asia/north-korea-missile-launch.html?searchResultPosition=5
 
 **New York City Ballet Promotes Three Men to Principal Dancers**\
