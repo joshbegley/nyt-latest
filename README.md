@@ -1,6 +1,6 @@
 **Ukraine’s pipeline operator says gas continues to flow after an explosion near a Kharkiv facility.**\
 `Ukraine is one of the major transmission routes for Russian gas to Europe.`\
-https://nytimes.com/2022/02/27/business/ukraines-pipeline-operator-says-gas-continues-to-flow-after-an-explosion-near-a-kharkiv-facility.html?searchResultPosition=1
+https://nytimes.com/2022/02/27/business/ukraine-gas-explosion-kharkiv.html?searchResultPosition=1
 
 **Putin vs. Democracy**\
 `Democracy is on the decline worldwide, and Vladimir Putin is a big factor.`\
