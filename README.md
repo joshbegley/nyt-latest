@@ -26,8 +26,8 @@ https://nytimes.com/2022/02/27/opinion/putin-russia-ukraine-europe.html?searchRe
 `Major League Baseball threatened to cancel some regular-season games if an agreement was not reached by Monday. Intense negotiations had yet to yield results.`\
 https://nytimes.com/2022/02/27/sports/baseball/mlb-lockout-deadline.html?searchResultPosition=7
 
-**Leo Bersani, Theorist on Gay Life, Dies at 90**\
-`He had a long career as a literary scholar, but he was best known for his writings on gay identity at the height of the AIDS crisis.`\
+**Leo Bersani, Literary Critic and Theorist on Gay Life, Dies at 90**\
+`He had a long career as a scholar of French literature, but he was best known for his writings on gay identity at the height of the AIDS crisis.`\
 https://nytimes.com/2022/02/27/books/leo-bersani-dead.html?searchResultPosition=8
 
 **2-for-1 ticket deals and other offers aim to lure New Yorkers back to the arts.**\
