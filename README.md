@@ -14,9 +14,9 @@ https://nytimes.com/2022/02/27/sports/ncaabasketball/ncaa-top-10-mens-college-ba
 `Yannick Nézet-Séguin picked up the baton at Carnegie Hall, after a conductor with ties to Vladimir Putin was dropped amid Russia’s invasion of Ukraine.`\
 https://nytimes.com/2022/02/27/arts/music/vienna-philharmonic-carnegie-hall-review.html?searchResultPosition=4
 
-**New York ends its mask mandate for schools.**\
-`Gov. Kathy Hochul’s decision heralds a return to normalcy, as the state reports its lowest positivity rate since November.`\
-https://nytimes.com/2022/02/27/world/new-york-mask-mandate-schools.html?searchResultPosition=5
+**New York State ends its mask mandate for schools.**\
+`Gov. Kathy Hochul announced an end to the statewide mandate, but empowered school districts to determine their own mask policies.`\
+https://nytimes.com/2022/02/27/nyregion/new-york-mask-mandate-schools.html?searchResultPosition=5
 
 **Once Sleepy and Picturesque, Ukrainian Villages Mobilize for War**\
 `While Russian assaults on Ukrainian cities has drawn most of the attention in the war’s early days, civilians in country towns have joined the fight, putting aside the routines of daily village life.`\
