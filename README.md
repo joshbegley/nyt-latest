@@ -8,7 +8,7 @@ https://nytimes.com/2022/02/27/us/politics/bill-barr-trump-january-6.html?search
 
 **A Stormy Day for the Top Teams in Men’s College Basketball**\
 `Seven of the top 10 teams lost in a single day, setting off fan celebrations and reinforcing the notion that the N.C.A.A. tournament will be wide open.`\
-https://nytimes.com/2022/02/27/sports/ncaabasketball/a-stormy-day-for-the-top-teams-in-mens-college-basketball.html?searchResultPosition=3
+https://nytimes.com/2022/02/27/sports/ncaabasketball/ncaa-top-10-mens-college-basketball.html?searchResultPosition=3
 
 **Review: Upended by Global Conflict, the Vienna Philharmonic Plays On**\
 `Yannick Nézet-Séguin picked up the baton at Carnegie Hall, after a conductor with ties to Vladimir Putin was dropped amid Russia’s invasion of Ukraine.`\
