@@ -19,7 +19,7 @@ https://nytimes.com/paidpost/santander-bank/crafting-a-legacy-the-john-stevens-s
 https://nytimes.com/2022/02/26/world/asia/north-korea-missile-launch.html?searchResultPosition=5
 
 **New York City Ballet Promotes Three Men to Principal Dancers**\
-`Harrison Ball, Jovani Furlan and Peter Walker were elevated to replace a trio of retiring — or soon to retire — dancers.`\
+`Harrison Ball, Jovani Furlan and Peter Walker were elevated from soloists to principals.`\
 https://nytimes.com/2022/02/26/arts/dance/new-york-city-ballet-promotes-three-men-to-principal-dancers.html?searchResultPosition=6
 
 **Putin’s critics call for boycotts of Russian vodka.**\
