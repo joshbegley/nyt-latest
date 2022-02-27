@@ -15,7 +15,7 @@ https://nytimes.com/2022/02/26/crosswords/daily-puzzle-2022-02-27.html?searchRes
 https://nytimes.com/2022/02/26/style/a-showcase-for-ukrainian-fashion-forges-on.html?searchResultPosition=5
 
 **The U.S. and Europe will bar some Russian banks from SWIFT.**\
-`The move represented a significant escalation in the effort to impose severe economic costs on Russia for its invasion of Ukraine.`\
+`The move, along with new restrictions on Russia’s central bank, represented a significant escalation in the effort to impose severe economic costs on Russia for its invasion of Ukraine.`\
 https://nytimes.com/2022/02/26/us/politics/eu-us-swift-russia.html?searchResultPosition=6
 
 **At CPAC, Ukraine and Policy Take a Back Seat to Cultural Grievances**\
