@@ -30,7 +30,7 @@ https://nytimes.com/2022/02/27/world/asia/australia-flood-queensland.html?search
 `A New York Times investigation reveals how Israel reaped diplomatic gains around the world from NSO’s Pegasus spyware — a tool America itself purchased but is now trying to ban.`\
 https://nytimes.com/2022/02/27/podcasts/the-daily/cyberweapons-pegasus-sunday-read.html?searchResultPosition=8
 
-**Why the Suit is the Shape of the Moment**\
+**Why the Suit Is the Shape of the Moment**\
 `At Gucci and Versace and all over Milan, the suit is making a return.`\
 https://nytimes.com/2022/02/27/style/suits-gucci-versace-marni-milan-fashion-week.html?searchResultPosition=9
 
