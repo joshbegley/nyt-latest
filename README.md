@@ -4,7 +4,7 @@ https://nytimes.com/2022/02/27/world/ticket-deals-new-yorkers-arts.html?searchRe
 
 **Ukraine Invasion Tests the Ties That Bind Putin and Xi**\
 `The two autocrats have brought their countries closer together than ever. But for China, the costs of Russia’s adventurism could be high.`\
-https://nytimes.com/2022/02/27/world/asia/russia-china-putin-xi-jinping.html?searchResultPosition=2
+https://nytimes.com/2022/02/27/world/asia/putin-xi-jinping-russia-china.html?searchResultPosition=2
 
 **Britain’s top diplomat says she would support people going to fight for Ukraine.**\
 `Britain’s foreign secretary said people should “absolutely” go to Ukraine and fight “if that is what they want do to.”`\
