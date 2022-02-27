@@ -14,7 +14,7 @@ https://nytimes.com/2022/02/26/world/europe/russian-vodka-brands-boycott.html?se
 `Sheldon Polonsky sets a spectacular scene in his Sunday puzzle debut.`\
 https://nytimes.com/2022/02/26/crosswords/daily-puzzle-2022-02-27.html?searchResultPosition=5
 
-**A Showcase for Ukrainian Fashion Forges On**\
+**Sheltering in Kyiv While Showing in New York**\
 `A showroom in NoHo highlights six designers with roots and family in the country.`\
 https://nytimes.com/2022/02/26/style/a-showcase-for-ukrainian-fashion-forges-on.html?searchResultPosition=6
 
