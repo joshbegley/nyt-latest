@@ -1,4 +1,4 @@
-**FIFA Will Propose Neutral Site but No Ban, Yet, for Russia**\
+**FIFA Proposes Penalties for Russia but No Ban, Yet**\
 `The penalties proposed by soccer’s governing body for a World Cup playoff next month stopped short of the all-out ban Russia’s opponents were demanding.`\
 https://nytimes.com/2022/02/27/sports/soccer/fifa-russia-poland-ukraine.html?searchResultPosition=1
 
