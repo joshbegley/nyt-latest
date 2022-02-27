@@ -12,7 +12,7 @@ https://nytimes.com/2022/02/27/arts/dance/alexei-ratmansky-leaves-bolshoi-ballet
 
 **Your Monday Briefing: Ukraine Agrees to Talks**\
 `Plus new research into the pandemic’s origins and North Korea’s latest missile test.`\
-https://nytimes.com/2022/02/27/briefing/your-monday-briefing-ukraine-agrees-to-talks.html?searchResultPosition=4
+https://nytimes.com/2022/02/27/briefing/ukraine-russia-talks.html?searchResultPosition=4
 
 **How the American Right Stopped Worrying and Learned to Love Russia**\
 `The American right has changed course since the Cold War.`\
