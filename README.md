@@ -1,4 +1,4 @@
-**After its ranks thinned, one trucker convoy halts its plan to go to Washington, but others are still on track.**\
+**After its ranks thinned, one trucker convoy halts its plan to go to Washington to protest Covid policies, but others are still on track.**\
 `Organizers urged its members still on the road to merge with other caravans headed to the nation's capital.`\
 https://nytimes.com/2022/02/26/us/trucker-convoy-protest.html?searchResultPosition=1
 
