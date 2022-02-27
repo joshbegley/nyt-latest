@@ -6,8 +6,8 @@ https://nytimes.com/2022/02/27/world/europe/uk-ukraine-liz-truss.html?searchResu
 `Chancellor Olaf Scholz announced a major increase to Germany’s defense budget, a shift in longstanding policy.`\
 https://nytimes.com/2022/02/27/world/europe/germany-military-budget-russia-ukraine.html?searchResultPosition=2
 
-**More European countries ban Russian flights from their airspace.**\
-`France, Belgium, Denmark, Iceland, Italy and the Netherlands joined at least a dozen European countries in barring Russian planes in response to the invasion of Ukraine.`\
+**More countries ban Russian flights from their airspace.**\
+`Belgium, Canada, Denmark, France, Iceland, Italy and the Netherlands joined at least a dozen European countries in barring Russian planes in response to the invasion of Ukraine.`\
 https://nytimes.com/2022/02/27/world/europe/europe-airspace-russia-planes.html?searchResultPosition=3
 
 **What’s Going On in This Picture? | Feb. 28, 2022**\
