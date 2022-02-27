@@ -1,5 +1,5 @@
 **E.U. Says It Will Finance Provision of Weapons to Ukraine**\
-`The European Union’s top official announced that the bloc would “finance the purchase and delivery” of weapons and other equipment to Ukraine and strengthen sanctions against Russia and Belarus.`\
+`The European Union’s top official said that the bloc would “finance the purchase and delivery” of weapons and other equipment to Ukraine. She also announced new sanctions against Russia and Belarus, including a ban on Russian flights in E.U. airspace.`\
 https://nytimes.com/video/world/europe/100000008230814/ukraine-russia-weapons-flight-ban.html?searchResultPosition=1
 
 **New York Lifting Statewide Mask Mandate for Schools**\
