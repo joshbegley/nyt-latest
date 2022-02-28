@@ -4,7 +4,7 @@ https://nytimes.com/2022/02/28/world/europe/russia-ukraine-military.html?searchR
 
 **Your Tuesday Briefing: Fighting Rages On**\
 `Sanctions hit Russia, crushing the ruble.`\
-https://nytimes.com/2022/02/28/briefing/ukraine-russia-sanctions-hong-kong.html?searchResultPosition=2
+https://nytimes.com/2022/02/28/briefing/ukraine-russia-china-sanctions.html?searchResultPosition=2
 
 **The White House lifts its mask mandate for fully vaccinated people.**\
 `The move takes effect Tuesday, in time for President Biden’s State of the Union address.`\
