@@ -1,40 +1,40 @@
+**An American-Forged Knife With Japanese Influences**\
+`Steelport Knife Co.’s new 6-inch chef model borrows aspects of a santoku.`\
+https://nytimes.com/2022/02/28/dining/steelport-knife.html?searchResultPosition=1
+
+**Freshen Up Your Cooking With Ingredients Straight From Jordan**\
+`A new collection of spices and condiments from Kamā Local Gourmet, in Amman, Jordan, includes local variations on za’atar, tahini and chile paste.`\
+https://nytimes.com/2022/02/28/dining/kama-local-gourmet-spices.html?searchResultPosition=2
+
+**Need an Irish Whiskey Primer? Trust the Dead Rabbit.**\
+`The new book “Paddy Drinks” serves as a reference and a guide to the Manhattan bar’s cocktail ethos.`\
+https://nytimes.com/2022/02/28/dining/the-dead-rabbit-book.html?searchResultPosition=3
+
+**Cook Up Shrimp Burgers, No Chopping Required**\
+`Del Pacifico’s wild-caught shrimp burgers come frozen and are quick to sear in a skillet.`\
+https://nytimes.com/2022/02/28/dining/del-pacifico-wild-caught-shrimp-burgers.html?searchResultPosition=4
+
+**Noma’s Fish Sauce Has No Fish at All**\
+`Noma Projects sells smoked mushroom garum, a vegan interpretation of a fermented fish sauce used for centuries.`\
+https://nytimes.com/2022/02/28/dining/noma-projects-garum.html?searchResultPosition=5
+
+**After a Pandemic Pause, the Marshal Restarts Its Dinner Series**\
+`The Hell's Kitchen restaurant will offer a series of farm-to-table meals, paired with New York wines, for the first time since 2019.`\
+https://nytimes.com/2022/02/28/dining/the-marshal-dinner-series.html?searchResultPosition=6
+
+**Stromae’s Music Delves Into Dark Topics. His Return Is Right on Time.**\
+`The Belgian singer-songwriter’s hits marry serious subject matter and dancey beats. His first album in nine years, “Multitude,” expands his spectrum of sounds.`\
+https://nytimes.com/2022/02/28/arts/music/stromae-multitude.html?searchResultPosition=7
+
 **The One Item They Had to Take When These 6 Afghans Fled**\
 `More than 120,000 people were airlifted out of Afghanistan last August, most with just a few hours to gather their belongings. Here are some of the keepsakes they chose.`\
-https://nytimes.com/2022/02/28/world/asia/afghan-evacuation-kabul.html?searchResultPosition=1
+https://nytimes.com/2022/02/28/world/asia/afghan-evacuation-kabul.html?searchResultPosition=8
 
 **Here Comes the Full Amazonification of Whole Foods**\
 `A newly revamped store in Washington shows how thoroughly Amazon has woven itself into the grocery shopping experience.`\
-https://nytimes.com/2022/02/28/technology/whole-foods-amazon-automation.html?searchResultPosition=2
+https://nytimes.com/2022/02/28/technology/whole-foods-amazon-automation.html?searchResultPosition=9
 
 **What to Cook Right Now**\
 `Tomorrow is Mardi Gras, which means today is for letting gumbo burble on the stove.`\
-https://nytimes.com/2022/02/28/dining/what-to-cook-right-now.html?searchResultPosition=3
-
-**Delegations from Russia and Ukraine hold talks in Belarus.**\
-`There were only modest hopes that the talks would help end fighting in Ukraine.`\
-https://nytimes.com/2022/02/28/world/europe/russia-ukraine-talks-belarus.html?searchResultPosition=4
-
-**For Older Americans, Some Positive Health News**\
-`Three recent developments — incremental and undramatic but encouraging — are likely to improve the lives and health of seniors.`\
-https://nytimes.com/2022/02/28/health/elderly-medicare-medicaid.html?searchResultPosition=5
-
-**Supreme Court to Hear Challenge to Law on Adopting Native American Children**\
-`The Indian Child Welfare Act calls for special solicitude for the sovereignty and heritage of tribes in adoption decisions.`\
-https://nytimes.com/2022/02/28/us/supreme-court-native-american-children.html?searchResultPosition=6
-
-**Pfizer Shot Is Far Less Effective in 5- to 11-Year-Olds Than in Older Kids, New Data Show**\
-`While protection against hospitalization is still strong, the vaccine offered almost no protection against infection, even just a month after full vaccination.`\
-https://nytimes.com/2022/02/28/health/pfizer-vaccine-kids.html?searchResultPosition=7
-
-**Switzerland says it will freeze Russian assets, setting aside a tradition of neutrality.**\
-`The decision came amid mounting public anger at Russia’s invasion of Ukraine.`\
-https://nytimes.com/2022/02/28/world/europe/switzerland-russian-assets-freeze.html?searchResultPosition=8
-
-**Toyota stops production in Japan after a possible cyberattack at a supplier.**\
-`A supplier to the automaker said it shutdown its computer network to respond to what might have been a hack or a virus.`\
-https://nytimes.com/2022/02/28/business/toyota-stoppage-cyberattack.html?searchResultPosition=9
-
-**The International Olympic Committee said athletes from Russia and Belarus should not compete as usual.**\
-`The recommendation could give cover to other organizations to take stronger action against Russia.`\
-https://nytimes.com/2022/02/28/sports/olympics/international-olympic-committee-russia-belarus.html?searchResultPosition=10
+https://nytimes.com/2022/02/28/dining/what-to-cook-right-now.html?searchResultPosition=10
 
