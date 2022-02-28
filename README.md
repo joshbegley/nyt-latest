@@ -1,4 +1,4 @@
-**Markets are roiled as sanctions on Russia take hold.**\
+**Markets are roiled as sanctions start to isolate Russia’s economy.**\
 `Energy prices jumped and stocks in Europe tumbled, while futures on Wall Street pointed to a decline when U.S. trading starts.`\
 https://nytimes.com/2022/02/28/business/russia-ukraine-stock-market.html?searchResultPosition=1
 
