@@ -1,6 +1,6 @@
 **U.S. escalates sanctions with a freeze on Russian central bank assets.**\
 `The action is likely to fuel rapid inflation in Russia as it wages war in Ukraine.`\
-https://nytimes.com/2022/02/28/us/politics/us-escalates-sanctions-with-a-freeze-on-russian-central-bank-assets.html?searchResultPosition=1
+https://nytimes.com/2022/02/28/us/politics/us-sanctions-russia-central-bank.html?searchResultPosition=1
 
 **Markets are roiled as sanctions start to isolate Russia’s economy.**\
 `Energy prices jumped and stocks in Europe tumbled, while futures on Wall Street pointed to a decline when U.S. trading starts.`\
