@@ -35,6 +35,6 @@ https://nytimes.com/2022/02/28/sports/tennis/daniil-medvedev-atp-ranking.html?se
 https://nytimes.com/2022/02/27/briefing/ukraine-war-wuhan-coronavirus.html?searchResultPosition=9
 
 **Kyrie Irving still won’t be able to play in Brooklyn if the mayor lifts some Covid restrictions next week.**\
-`Barclays Center would remain under a private sector vaccine mandate that took effect in December.`\
+`Barclays Center would remain under a private-sector vaccine mandate that took effect in December.`\
 https://nytimes.com/2022/02/27/world/kyrie-irving-covid.html?searchResultPosition=10
 
