@@ -12,7 +12,7 @@ https://nytimes.com/2022/02/28/pageoneplus/no-corrections-feb-28-2022.html?searc
 
 **Lucid Motors Will Produce Fewer Cars Than Expected**\
 `The electric car start-up cited shortages of semiconductors and other supply chain problems.`\
-https://nytimes.com/2022/02/28/business/lucid-motors-production-fourth-quarter.html?searchResultPosition=4
+https://nytimes.com/2022/02/28/business/lucid-motors-supply-chain-shortage.html?searchResultPosition=4
 
 **How Do You Feel About Lifting School Mask Mandates?**\
 `We’re looking for thoughts from parents, students and educators.`\
