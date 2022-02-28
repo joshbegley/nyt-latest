@@ -1,40 +1,40 @@
+**Speculators Win Big With Bets on Young Artists**\
+`When demand outstrips supply, there is huge money to be made by “flipping”— the practice of buying low from the artist’s gallery and reselling high at auction.`\
+https://nytimes.com/2022/02/28/arts/design/flora-yukhnovich-art-market.html?searchResultPosition=1
+
+**How Immigration Politics Is Driving Some Texas Hispanics to the G.O.P.**\
+`Former President Donald J. Trump’s brand of populism has been widely viewed as an appeal to white voters. But similar grievances have resonated in the Rio Grande Valley in a profound way.`\
+https://nytimes.com/2022/02/28/us/politics/border-grievance-politics.html?searchResultPosition=2
+
 **Ukraine Presents a Moral Crisis, Not Just a Military One**\
 `All possible outcomes involve sacrifice and suffering on a huge scale.`\
-https://nytimes.com/2022/02/28/opinion/ukraine-russia-refugees.html?searchResultPosition=1
+https://nytimes.com/2022/02/28/opinion/ukraine-russia-refugees.html?searchResultPosition=3
 
 **Out of the Desert, a Rare Fruit Garden and a Lasting Legacy**\
 `Dr. Alois Falkenstein put decades of work into breeding and cultivating rare fruits in the Arizona desert, and created a community of like-minded gardeners.`\
-https://nytimes.com/2022/02/28/dining/rare-fruit-garden-arizona.html?searchResultPosition=2
+https://nytimes.com/2022/02/28/dining/rare-fruit-garden-arizona.html?searchResultPosition=4
 
 **Deadline Day Arrives as M.L.B. and Players Continue Negotiations**\
 `The league created urgency by stating any deal made after Monday would result in canceling some regular-season games.`\
-https://nytimes.com/2022/02/28/sports/baseball/mlb-lockout-deadline.html?searchResultPosition=3
+https://nytimes.com/2022/02/28/sports/baseball/mlb-lockout-deadline.html?searchResultPosition=5
 
 **Online Dating Can Kill You. Literally.**\
 `In Jane Pek’s debut novel, “The Verifiers,” an unlikely sleuth starts out researching digital Casanovas — and finds herself involved in a possible murder.`\
-https://nytimes.com/2022/02/28/books/review/the-verifiers-jane-pek.html?searchResultPosition=4
+https://nytimes.com/2022/02/28/books/review/the-verifiers-jane-pek.html?searchResultPosition=6
 
 **Treasured Paintings Burned in Russian Invasion, Ukrainian Officials Say**\
 `Roughly 25 works by the painter Maria Primachenko were destroyed at a museum in Ivankiv, Ukraine’s Ministry of Foreign Affairs said.`\
-https://nytimes.com/2022/02/28/arts/design/maria-primachenko-paintings-destroyed-ukraine.html?searchResultPosition=5
+https://nytimes.com/2022/02/28/arts/design/maria-primachenko-paintings-destroyed-ukraine.html?searchResultPosition=7
 
 **Russian Artists Speak Out Against War, but Fear Reprisals**\
 `Two Russian artists have pulled out of the Venice Biennale and thousands are signing antiwar petitions.`\
-https://nytimes.com/2022/02/28/arts/design/russian-artists-ukraine-venice-biennale.html?searchResultPosition=6
+https://nytimes.com/2022/02/28/arts/design/russian-artists-ukraine-venice-biennale.html?searchResultPosition=8
 
 **Supreme Court Considers Limiting E.P.A.’s Ability to Address Climate Change**\
 `Members of the court’s conservative majority voiced skepticism that Congress had authorized the agency to decide what they said were major political and economic questions.`\
-https://nytimes.com/2022/02/28/us/politics/supreme-court-climate-change.html?searchResultPosition=7
+https://nytimes.com/2022/02/28/us/politics/supreme-court-climate-change.html?searchResultPosition=9
 
 **Cuomo Portrays Himself as a Victim in a Costly TV Ad Blitz**\
 `Andrew Cuomo’s still-active campaign spent $369,000 to recast the sexual harassment case against him, pushing a narrative that he was driven out of office by “political attacks.”`\
-https://nytimes.com/2022/02/28/nyregion/andrew-cuomo-tv-ad.html?searchResultPosition=8
-
-**They Are Fans of ‘Euphoria,’ but Not of Its Creator, Sam Levinson**\
-`The season finale of “Euphoria” demonstrated once again that even its most impassioned fans have decidedly mixed feelings about its writer and director.`\
-https://nytimes.com/2022/02/28/arts/television/euphoria-season-finale-sam-levinson.html?searchResultPosition=9
-
-**Kandinsky Painting Returned to Jewish Heirs by Amsterdam Museum**\
-`Dutch officials, citing their “moral duty,” gave over the work which had been held by the Stedelijk Museum since 1940.`\
-https://nytimes.com/2022/02/28/arts/design/kandinsky-painting-returned.html?searchResultPosition=10
+https://nytimes.com/2022/02/28/nyregion/andrew-cuomo-tv-ad.html?searchResultPosition=10
 
