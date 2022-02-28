@@ -14,7 +14,7 @@ https://nytimes.com/2022/02/27/us/politics/biden-ukraine-covid-supreme-court.htm
 `The decision comes as arts institutions seek to distance themselves from some Russian performers amid the invasion of Ukraine.`\
 https://nytimes.com/2022/02/27/arts/music/met-opera-putin-ukraine-peter-gelb.html?searchResultPosition=4
 
-**In Rallies Across the Country, Thousands of Americans Show Support for Ukraine**\
+**‘Ukrainian People Don’t Give Up Hope’: U.S. Rallies Express Solidarity**\
 `At events in Washington, Chicago, Boston and other cities on Sunday, demonstrators expressed their love for the country, anger at Vladimir Putin and hope for peace.`\
 https://nytimes.com/2022/02/27/us/ukraine-rallies.html?searchResultPosition=5
 
