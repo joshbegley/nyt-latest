@@ -1,40 +1,40 @@
-**Questions Continue About Homeless Shelter Operators**\
-`New York City took a hands-off approach to overseeing the operators even as it acknowledged corruption.`\
-https://nytimes.com/2022/02/28/nyregion/questions-continue-about-homeless-shelter-operators.html?searchResultPosition=1
+**$1.5 Million Homes in California**\
+`A Craftsman house in Upland, a Colonial Revival home in Alameda and a two-bedroom condominium in Beverly Hills.`\
+https://nytimes.com/2022/02/28/realestate/home-prices-california.html?searchResultPosition=1
 
-**Singapore’s Latest Ruling on Gay Sex Is ‘Cold Comfort,’ Activists Say**\
-`Plaintiffs had hoped the Court of Appeal would overturn the colonial-era law. Instead, the top court said it was not “an architect of social policy” and that any change was up to Parliament.`\
-https://nytimes.com/2022/02/28/world/asia/singapore-gay-sex-law.html?searchResultPosition=2
+**Threats Emerge in Germany as Far Right and Pandemic Protesters Merge**\
+`In the former Communist East, security officials worry that a long-running movement against Covid restrictions is becoming an incubator of political violence.`\
+https://nytimes.com/2022/02/28/world/europe/germany-covid-far-right-protests.html?searchResultPosition=2
 
-**Shelter Operator Cited for Nepotism Still Gets Millions in City Funds**\
-`New York officials found misspending by African American Planning Commission, which runs homeless shelters, but public money continued to flow.`\
-https://nytimes.com/2022/02/28/nyregion/african-american-planning-commission-nepotism.html?searchResultPosition=3
+**What You Get for $1.5 Million in California**\
+`A Craftsman house in Upland, a Colonial Revival home in Alameda and a two-bedroom condominium in Beverly Hills.`\
+https://nytimes.com/slideshow/2022/02/28/realestate/what-you-get-for-1-5-million-in-california.html?searchResultPosition=3
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/02/28/crosswords/spelling-bee-forum.html?searchResultPosition=4
+**Retail Theft Rises, and N.Y.C. Small Business Owners Are Paying the Price**\
+`In New York City, neighborhood stores are struggling to confront the crimes that have cascaded from the disruptions of the pandemic.`\
+https://nytimes.com/2022/02/28/nyregion/new-york-stores-roberies-theft.html?searchResultPosition=4
 
-**Word of the Day: meticulous**\
-`This word has appeared in 240 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/02/28/learning/word-of-the-day-meticulous.html?searchResultPosition=5
+**In Search of Panama’s Elusive Spider Monkeys**\
+`Environmental initiatives in the Azuero Peninsula offer hope for the future of a critically endangered subspecies.`\
+https://nytimes.com/2022/02/28/travel/panama-azuero-spider-monkeys.html?searchResultPosition=5
 
-**Russia’s currency plummets over fears of sanctions’ bite.**\
-`The ruble dropped to record lows against the dollar, stirring fears of inflation and bank runs, and the central bank raised a key interest rate sharply.`\
-https://nytimes.com/2022/02/27/world/europe/ruble-russias-currency-sanctions.html?searchResultPosition=6
+**Dr. Bronner’s, the Soap Company, Dips Into Psychedelics**\
+`Under the leadership of the founder’s grandsons, the company has become a big financial backer of efforts to loosen government restrictions on illegal drugs.`\
+https://nytimes.com/2022/02/28/health/ketamine-bronner-bros.html?searchResultPosition=6
 
-**What’s on TV This Week: ‘After Yang’ and the State of the Union**\
-`Colin Farrell, Jodie Turner-Smith and Justin H. Min star in a new sci-fi movie on Showtime. And President Biden delivers a State of the Union address.`\
-https://nytimes.com/2022/02/28/arts/television/whats-on-tv-this-week-after-yang-and-the-state-of-the-union.html?searchResultPosition=7
+**‘The Batman’ and Matt Reeves: Emerging From the Shadow of Other Caped Crusaders**\
+`Amid concurrent versions of the crime-fighter, this director aimed for something personal that would also serve a studio’s needs. The result is a foreboding vision.`\
+https://nytimes.com/2022/02/28/movies/the-batman-matt-reeves-robert-pattinson.html?searchResultPosition=7
 
-**Quotation of the Day: Armed or Not, Villagers Rush to Join Fight**\
-`Quotation of the Day for Monday, February 28, 2022.`\
-https://nytimes.com/2022/02/28/todayspaper/quotation-of-the-day-armed-or-not-villagers-rush-to-join-fight.html?searchResultPosition=8
+**The Best-Kept Vintage Secret in Paris**\
+`For decades, Catherine B has been a fashion resource for celebrities and collectors alike.`\
+https://nytimes.com/2022/02/28/style/catherine-b-vintage-chanel-hermes.html?searchResultPosition=8
 
-**‘You Have to Be Delusional’: A Minor Leaguer’s Hard Road to the Bigs**\
-`While big leaguers fight with owners about labor issues, minor leaguers like Jack Kruger are getting ready for another season of long bus rides and longer odds.`\
-https://nytimes.com/2022/02/28/sports/minor-league-baseball-jack-kruger.html?searchResultPosition=9
+**School Is Back in Person, but the Five-Day School Week Often Isn’t**\
+`We asked 148,000 parents how many days of school their children missed in January. A quarter said more than a week.`\
+https://nytimes.com/2022/02/28/upshot/schools-covid-closings.html?searchResultPosition=9
 
-**Daniil Medvedev Intrudes on the Big Four’s No. 1 Perch**\
-`After nearly two decades of four men trading places at tennis’s top slot, Russia’s Medvedev put an end to their reign on Monday.`\
-https://nytimes.com/2022/02/28/sports/tennis/daniil-medvedev-atp-ranking.html?searchResultPosition=10
+**Larry Summers Shares the Blame for Inflation**\
+`The Democratic economist is deeply implicated in building the system at the heart of our current predicament, and setting up our economy for failure.`\
+https://nytimes.com/2022/02/28/opinion/larry-summers-inflation.html?searchResultPosition=10
 
