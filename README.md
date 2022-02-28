@@ -1,5 +1,5 @@
-**In a tiny Appalachian village, a beloved festival returns**\
-`The Fasnacht celebration in Helvetia, W.V., draws revelers who soak in the Swiss culture — and burn Old Man Winter in effigy.`\
+**In a Tiny Appalachian Village, a Beloved Festival Returns**\
+`The Fasnacht celebration in Helvetia, W.Va., draws revelers who soak in the Swiss culture — and burn Old Man Winter in effigy.`\
 https://nytimes.com/2022/02/28/us/fasnacht-2022.html?searchResultPosition=1
 
 **As Sanctions Batter Economy, Russians Face the Anxieties of a Costly War**\
