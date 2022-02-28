@@ -1,6 +1,6 @@
 **New York City’s Next Chapter**\
 `The new mayor is rolling back virus mandates.`\
-https://nytimes.com/2022/02/28/briefing/new-york-citys-next-chapter.html?searchResultPosition=1
+https://nytimes.com/2022/02/28/briefing/nyc-virus-mandates.html?searchResultPosition=1
 
 **David Boggs, Co-Inventor of Ethernet, Dies at 71**\
 `Thanks to the invention he helped create in the 1970s, people can send email over an office network or visit a website through a coffee shop hot spot.`\
