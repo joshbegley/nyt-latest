@@ -4,7 +4,7 @@ https://nytimes.com/2022/02/28/technology/ukraine-russia-social-media.html?searc
 
 **Mission to Mars with Russia this year is now ‘very unlikely,’ European Space Agency says.**\
 `The ExoMars mission, postponed in 2020 because of the pandemic and technical issues, may miss its window to launch this year because of sanctions imposed against Russia over the invasion of Ukraine.`\
-https://nytimes.com/2022/02/28/world/europe/mars-europe-rover.html?searchResultPosition=2
+https://nytimes.com/2022/02/28/world/europe/mars-russia-europe-rover.html?searchResultPosition=2
 
 **Watch These 13 Movies Before They Leave Netflix in March**\
 `It’s awards season, and a bunch of great Oscar-winning and -nominated films are leaving this month. Check them out while you can.`\
