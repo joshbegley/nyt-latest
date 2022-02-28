@@ -15,7 +15,7 @@ https://nytimes.com/2022/02/28/sports/baseball/derek-jeter-marlins.html?searchRe
 https://nytimes.com/2022/02/28/arts/music/brooklyn-academy-plans-global-spring-season.html?searchResultPosition=4
 
 **FIFA Suspends Russia, Ejecting It From World Cup Qualifying**\
-`The decision to bar Russian clubs and national teams indefinitely came a day after FIFA was criticized for not going far enough to punish Russia for invading Ukraine.`\
+`The decision to bar Russian clubs and national teams came a day after FIFA was criticized for not going far enough to punish Russia for invading Ukraine.`\
 https://nytimes.com/2022/02/28/sports/soccer/fifa-russia-ban.html?searchResultPosition=5
 
 **Top Estée Lauder Executive Forced Out for Racist Instagram Post**\
