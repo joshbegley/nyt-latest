@@ -16,7 +16,7 @@ https://nytimes.com/2022/02/28/world/europe/russia-ukraine-global-reaction.html?
 
 **E.U. sees adequate winter energy, but seeks longer-term independence.**\
 `The organization’s energy commissioner said the Russian invasion of Ukraine had exposed vulnerabilities in European energy supplies.`\
-https://nytimes.com/2022/02/28/business/energy-environment/european-union-energy-russia.html?searchResultPosition=5
+https://nytimes.com/2022/02/28/business/energy-environment/russia-eu-energy.html?searchResultPosition=5
 
 **Shell Quits Russia, Joining BP as Oil Giants Object to Attack on Ukraine**\
 `Shell said it would exit its investments in Russia, a day after BP said it would do the same. Now companies like TotalEnergies and Exxon will face questions.`\
