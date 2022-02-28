@@ -14,8 +14,8 @@ https://nytimes.com/2022/02/28/sports/baseball/derek-jeter-marlins.html?searchRe
 `The company’s spring offerings include the British choreographer Akram Khan’s “Giselle” and the Australian comedian Hannah Gadsby.`\
 https://nytimes.com/2022/02/28/arts/music/brooklyn-academy-plans-global-spring-season.html?searchResultPosition=4
 
-**FIFA Will Ban Russia, Ejecting It From World Cup Qualifying**\
-`The decision to bar Russia indefinitely came a day after FIFA was criticized for penalties that its critics said were not strong enough.`\
+**FIFA Suspends Russia, Ejecting It From World Cup Qualifying**\
+`The decision to bar Russian clubs and national teams indefinitely came a day after FIFA was criticized for not going far enough to punish Russia for invading Ukraine.`\
 https://nytimes.com/2022/02/28/sports/soccer/fifa-russia-ban.html?searchResultPosition=5
 
 **Top Estée Lauder Executive Forced Out for Racist Instagram Post**\
