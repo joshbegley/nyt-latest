@@ -1,5 +1,5 @@
 **Putin Declares a Nuclear Alert, and Biden Seeks De-escalation**\
-`When the Russian leader ordered his nuclear forces into “special combat readiness,’’ the U.S. could have gone on high alert. Instead, the administration tried not to inflame him.`\
+`When the Russian leader ordered his nuclear forces into “special combat readiness,” the U.S. could have gone on high alert. Instead, the administration tried not to inflame him.`\
 https://nytimes.com/2022/02/27/us/politics/putin-nuclear-alert-biden-deescalation.html?searchResultPosition=1
 
 **300,000 Ukrainians Have Fled to the E.U., Officials Say**\
