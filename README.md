@@ -18,23 +18,23 @@ https://nytimes.com/2022/02/28/world/europe/switzerland-russian-assets-freeze.ht
 `A supplier to the automaker said it shutdown its computer network to respond to what might have been a hack or a virus.`\
 https://nytimes.com/2022/02/28/business/toyota-stoppage-cyberattack.html?searchResultPosition=5
 
+**The International Olympic Committee said athletes from Russia and Belarus should not compete as usual.**\
+`The recommendation could give cover to other organizations to take stronger action against Russia.`\
+https://nytimes.com/2022/02/28/sports/olympics/international-olympic-committee-russia-belarus.html?searchResultPosition=6
+
 **When an Ancestry Search Reveals Fertility Fraud**\
 `Starting in the 1960s, three physicians in Rochester, N.Y., began secretly using their own sperm to help women become pregnant.`\
-https://nytimes.com/2022/02/28/health/fertility-doctors-fraud-rochester.html?searchResultPosition=6
+https://nytimes.com/2022/02/28/health/fertility-doctors-fraud-rochester.html?searchResultPosition=7
 
 **Chris Burden’s Impossible Artworks**\
 `A new book reveals the dozens of planned pieces that the artist, known for his extreme performances and wry installations, left unrealized.`\
-https://nytimes.com/2022/02/28/t-magazine/chris-burden-art-book.html?searchResultPosition=7
+https://nytimes.com/2022/02/28/t-magazine/chris-burden-art-book.html?searchResultPosition=8
 
 **Watch Live: U.N. General Assembly Holds Special Session on Ukraine**\
 `The United Nations General Assembly meets for a rare emergency special session to address Russia’s invasion of Ukraine.`\
-https://nytimes.com/video/world/europe/100000008231396/un-emergency-session-russia-ukraine-live.html?searchResultPosition=8
+https://nytimes.com/video/world/europe/100000008231396/un-emergency-session-russia-ukraine-live.html?searchResultPosition=9
 
 **Neil Diamond Sells Entire Catalog to Universal Music**\
 `The musician behind ubiquitous hits like “Sweet Caroline” sold his songwriting rights and recordings in another major deal.`\
-https://nytimes.com/2022/02/28/arts/music/neil-diamond-catalog-sale.html?searchResultPosition=9
-
-**How Economic Warfare Is Battering Russia**\
-`“Completely unprecedented” financial sanctions against Russia are taking a global toll.`\
-https://nytimes.com/2022/02/28/business/dealbook/russia-ukraine-sanctions.html?searchResultPosition=10
+https://nytimes.com/2022/02/28/arts/music/neil-diamond-catalog-sale.html?searchResultPosition=10
 
