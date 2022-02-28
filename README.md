@@ -18,13 +18,13 @@ https://nytimes.com/2022/02/27/world/europe/ruble-russia-stock-market.html?searc
 `Can you find Lebanon on a map? What else do you know about this Middle Eastern nation with about seven million people?`\
 https://nytimes.com/interactive/2022/02/28/learning/Lebanon-Geography-Quiz.html?searchResultPosition=5
 
-**$1.5 Million Homes in California**\
-`A Craftsman house in Upland, a Colonial Revival home in Alameda and a two-bedroom condominium in Beverly Hills.`\
-https://nytimes.com/2022/02/28/realestate/home-prices-california.html?searchResultPosition=6
-
 **Threats Emerge in Germany as Far Right and Pandemic Protesters Merge**\
 `In the former Communist East, security officials worry that a long-running movement against Covid restrictions is becoming an incubator of political violence.`\
-https://nytimes.com/2022/02/28/world/europe/germany-covid-far-right-protests.html?searchResultPosition=7
+https://nytimes.com/2022/02/28/world/europe/germany-covid-far-right-protests.html?searchResultPosition=6
+
+**$1.5 Million Homes in California**\
+`A Craftsman house in Upland, a Colonial Revival home in Alameda and a two-bedroom condominium in Beverly Hills.`\
+https://nytimes.com/2022/02/28/realestate/home-prices-california.html?searchResultPosition=7
 
 **What You Get for $1.5 Million in California**\
 `A Craftsman house in Upland, a Colonial Revival home in Alameda and a two-bedroom condominium in Beverly Hills.`\
