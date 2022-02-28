@@ -1,6 +1,6 @@
 **Uber distances itself from Yandex.Taxi, the Russian ride-sharing service.**\
 `Uber said it would try to ‘accelerate’ the planned sale of its shares in the Russian service.`\
-https://nytimes.com/2022/02/28/business/uber-distances-itself-from-yandextaxi-the-russian-ride-sharing-service.html?searchResultPosition=1
+https://nytimes.com/2022/02/28/business/russia-uber-yandextaxi-ride-sharing-service.html?searchResultPosition=1
 
 **He’s Sorry, She’s Sorry, Everybody Is Sorry. Does It Matter?**\
 `Joe Rogan. Whoopi Goldberg. Glenn Youngkin. We are swimming in a sea of public contrition, where everyone’s sorry and at the same time, no one is sorry enough.`\
