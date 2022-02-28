@@ -7,8 +7,8 @@ https://nytimes.com/2022/02/28/world/europe/mars-europe-rover.html?searchResultP
 https://nytimes.com/2022/02/28/movies/netflix-march-expiring.html?searchResultPosition=2
 
 **New York City Is Rolling Back Pandemic Restrictions. Is It Too Soon?**\
-`Mayor Eric Adams plans to end certain mask and vaccine mandates in hopes of restoring a sense of normalcy. Some health experts think it’s too soon.`\
-https://nytimes.com/2022/02/28/nyregion/nyc-vaccination-mandate-masks.html?searchResultPosition=3
+`Mayor Eric Adams plans to end certain mask and vaccine mandates in hopes of restoring a sense of normalcy. Some health experts think he should wait.`\
+https://nytimes.com/2022/02/28/nyregion/nyc-vaccine-mask-mandates.html?searchResultPosition=3
 
 **No Corrections: Feb. 28, 2022**\
 `No corrections appeared in print on Monday, Feb. 28, 2022.`\
