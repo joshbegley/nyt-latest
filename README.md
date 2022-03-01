@@ -4,7 +4,7 @@ https://nytimes.com/2022/03/01/us/politics/state-of-the-union-biden-social-media
 
 **Russian Oil Finds Few Buyers Even at Deep Discounts**\
 `Some European buyers, shippers, banks and insurers have grown leery of doing business with the country in recent days.`\
-https://nytimes.com/2022/03/01/business/energy-environment/russia-oil-trade-discount.html?searchResultPosition=2
+https://nytimes.com/2022/03/01/business/energy-environment/russia-oil-price.html?searchResultPosition=2
 
 **Supply problems linked to war in Ukraine hurt European car plants.**\
 `Volkswagen and BMW said they would be forced to curtail production at multiple factories. Ukraine produces crucial electronic components.`\
