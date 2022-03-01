@@ -32,7 +32,7 @@ https://nytimes.com/2022/02/28/us/politics/house-lynching-hate-crime.html?search
 
 **‘There needs to be a tribunal’: Zelensky denounces Russia’s shelling of Kharkiv.**\
 `“Today, Russian troops shelled Kharkiv using rocket artillery,” President Volodymyr Zelensky said in a video posted on his Facebook page. “This is, without any doubt, a military crime. A peaceful city. Peaceful residential neighborhoods. Not a single military object in sight.”`\
-https://nytimes.com/2022/02/28/world/europe/zelensky-russia-kharkiv-video.html?searchResultPosition=9
+https://nytimes.com/live/2022/02/28/world/ukraine-russia-war/zelensky-russia-kharkiv-video?searchResultPosition=9
 
 **Viatris Agrees to Settle EpiPen Antitrust Litigation for $264 Million**\
 `The proposed settlement, which requires a judge’s approval, would resolve a legal battle that began after the company, in 2016, raised the price for two EpiPens to $608 from $100.`\
