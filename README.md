@@ -1,6 +1,6 @@
 **Art Briles Resigns From Grambling State**\
 `Grambling had received backlash after Briles, Baylor’s coach when leaders mishandled sexual assault accusations against players, was hired last week.`\
-https://nytimes.com/2022/02/28/sports/football/art-briles-resigns-from-grambling-state.html?searchResultPosition=1
+https://nytimes.com/2022/02/28/sports/football/art-briles-grambling-state.html?searchResultPosition=1
 
 **They Want to Break T. Rex Into 3 Species. Other Paleontologists Aren’t Pleased.**\
 `The premise, put forth in a new paper, highlights an assortment of tensions in dinosaur paleontology, including how subjective the naming of species can be.`\
