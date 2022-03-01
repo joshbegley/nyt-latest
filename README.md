@@ -1,6 +1,6 @@
 **Biden’s State of the Virus**\
 `In his State of the Union speech tonight, the President must walk a delicate line on the virus.`\
-https://nytimes.com/2022/03/01/briefing/bidens-state-of-the-virus.html?searchResultPosition=1
+https://nytimes.com/2022/03/01/briefing/biden-covid-state-of-the-union.html?searchResultPosition=1
 
 **Civilians Come Under Fire**\
 `Russian forces escalated attacks on Ukrainian cities.`\
