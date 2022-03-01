@@ -4,7 +4,7 @@ https://nytimes.com/2022/02/28/science/tyrannosaurus-rex-three-species.html?sear
 
 **As the Tanks Rolled into Ukraine, So Did Malware. Then Microsoft Entered the War.**\
 `After years of talks about the need for public-private partnerships to combat cyberattacks, the war in Ukraine is stress-testing the system.`\
-https://nytimes.com/2022/02/28/us/politics/ukraine-malware-microsoft.html?searchResultPosition=2
+https://nytimes.com/2022/02/28/us/politics/ukraine-russia-microsoft.html?searchResultPosition=2
 
 **Chinese Company Removed as Operator of Cobalt Mine in Congo**\
 `A court has given the Congolese control of one of the world’s largest sources of cobalt while allegations against the mine’s Chinese owners are investigated.`\
