@@ -2,7 +2,7 @@
 `Every month, streaming services add movies and TV shows to its library. Here are our picks for some of March’s most promising new titles.`\
 https://nytimes.com/2022/03/01/arts/television/hbo-hulu-amazon-march.html?searchResultPosition=1
 
-**Ex-Goldman banker testifying in 1MDB trial says he ‘lied a lot.’**\
+**Ex-Goldman Banker Testifying in 1MDB Trial Says he ‘lied a lot’**\
 `Tim Leissner, testifying in the trial of a former colleague accused of helping loot billions of dollars from a Malaysian sovereign wealth fund, said he misled his wives, including Kimora Lee Simmons.`\
 https://nytimes.com/2022/03/01/business/goldman-sachs-1mdb-leissner.html?searchResultPosition=2
 
