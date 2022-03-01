@@ -22,7 +22,7 @@ https://nytimes.com/2022/03/01/world/europe/ukraine-russia-war-families.html?sea
 `An excerpt from “Run and Hide,” by Pankaj Mishra`\
 https://nytimes.com/2022/03/01/books/review/run-and-hide-by-pankaj-mishra-an-excerpt.html?searchResultPosition=6
 
-**Here’s what we know about when we will have results in the Texas primary.**\
+**What we know about when we will have results in the Texas primary.**\
 `The fact that most people in Texas vote in person makes it easier and faster to tabulate votes. Most polls close at 8 p.m. Eastern.`\
 https://nytimes.com/2022/03/01/us/elections/texas-primary-results-when.html?searchResultPosition=7
 
