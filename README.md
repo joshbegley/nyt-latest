@@ -1,6 +1,6 @@
 **How much progress has the job market made during Biden’s presidency?**\
 `Labor market gains are expected to be emphasized during the State of the Union address. Progress is strong, but needs context.`\
-https://nytimes.com/2022/03/01/business/economy/how-much-progress-has-the-job-market-made-during-bidens-presidency.html?searchResultPosition=1
+https://nytimes.com/2022/03/01/business/economy/biden-jobs-state-of-the-union.html?searchResultPosition=1
 
 **Ukraine War Sets Off Europe’s Fastest Migration in Decades**\
 `At least 660,000 people, mostly women and children, fled Ukraine in the five days after Russia invaded — the most intense wave of European migration since at least the 1990s.`\
