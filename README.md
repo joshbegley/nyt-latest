@@ -2,8 +2,8 @@
 `The investigations by the state’s Department of Family and Protective Services started last week with an employee of the agency, according to the suit, after Gov. Greg Abbott called for such inquiries.`\
 https://nytimes.com/2022/03/01/us/texas-child-abuse-trans-youth.html?searchResultPosition=1
 
-**Battered by the Pandemic, London’s Underground Is Hit by a Worker Strike**\
-`Transport workers started the first of two 24-hour strikes planned for this week amid concerns over long-term financing of the rail system, unfilled posts and pensions.`\
+**Workers Strike in a London Underground Already Battered by the Pandemic**\
+`Transport workers started the first of two 24-hour strikes planned for this week amid concerns over unfilled posts, pensions and the long-term financing of the rail system.`\
 https://nytimes.com/2022/03/01/world/europe/uk-london-tube-strike.html?searchResultPosition=2
 
 **Texas voting law faces first statewide test in Tuesday’s election.**\
