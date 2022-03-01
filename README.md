@@ -2,8 +2,8 @@
 `President Volodymyr Zelensky of Ukraine accused Russia of launching rocket and missile strikes against Ukraine’s second-largest city, Kharkiv, as the two countries held negotiations to halt the ongoing war.`\
 https://nytimes.com/video/world/europe/100000008232935/russia-ukraine-negotiation-zelensky.html?searchResultPosition=1
 
-**Gunman Kills His 3 Children in Sacramento County Church**\
-`The man also fatally shot an adult before killing himself, the authorities said.`\
+**Gunman Kills His 3 Children in a Sacramento County Church**\
+`The man also fatally shot an adult before killing himself during what appeared to be a supervised visit, the authorities said.`\
 https://nytimes.com/2022/02/28/us/church-shooting-sacramento.html?searchResultPosition=2
 
 **Pop Culture Site**\
