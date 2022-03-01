@@ -12,7 +12,7 @@ https://nytimes.com/2022/03/01/nyregion/alpo-martinez-dead-shakeem-parker.html?s
 
 **TotalEnergies, a French oil company, will limit its investment in Russia.**\
 `The company’s decision to stop providing capital for new projects in Russia falls short of the exits announced by BP, Shell and Equinor.`\
-https://nytimes.com/2022/03/01/business/totalenergies-oil-russia-ukraine.html?searchResultPosition=4
+https://nytimes.com/2022/03/01/business/totalenergies-oil-russia.html?searchResultPosition=4
 
 **Creeks, Once Overlooked, Are Now Seen as Assets for Urban Renewal**\
 `Developers have recently realized the value of even the most minor waterways for commerce, but experts advise caution because of flooding risks.`\
