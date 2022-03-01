@@ -1,40 +1,40 @@
-**Texas 22nd Congressional District Primary Election Results**\
+**Texas 16th Congressional District Primary Election Results**\
 `See full results and maps from the Texas primary elections.`\
-https://nytimes.com/interactive/2022/03/01/us/elections/results-texas-us-house-district-22.html?searchResultPosition=1
+https://nytimes.com/interactive/2022/03/01/us/elections/results-texas-us-house-district-16.html?searchResultPosition=1
 
-**Texas Eighth Congressional District Primary Election Results**\
+**Texas 32nd Congressional District Primary Election Results**\
 `See full results and maps from the Texas primary elections.`\
-https://nytimes.com/interactive/2022/03/01/us/elections/results-texas-us-house-district-8.html?searchResultPosition=2
+https://nytimes.com/interactive/2022/03/01/us/elections/results-texas-us-house-district-32.html?searchResultPosition=2
 
-**Texas Comptroller Primary Election Results**\
+**Texas 18th Congressional District Primary Election Results**\
 `See full results and maps from the Texas primary elections.`\
-https://nytimes.com/interactive/2022/03/01/us/elections/results-texas-comptroller.html?searchResultPosition=3
+https://nytimes.com/interactive/2022/03/01/us/elections/results-texas-us-house-district-18.html?searchResultPosition=3
 
-**Texas 14th Congressional District Primary Election Results**\
+**Texas 36th Congressional District Primary Election Results**\
 `See full results and maps from the Texas primary elections.`\
-https://nytimes.com/interactive/2022/03/01/us/elections/results-texas-us-house-district-14.html?searchResultPosition=4
+https://nytimes.com/interactive/2022/03/01/us/elections/results-texas-us-house-district-36.html?searchResultPosition=4
 
-**Texas 35th Congressional District Primary Election Results**\
+**Texas 26th Congressional District Primary Election Results**\
 `See full results and maps from the Texas primary elections.`\
-https://nytimes.com/interactive/2022/03/01/us/elections/results-texas-us-house-district-35.html?searchResultPosition=5
+https://nytimes.com/interactive/2022/03/01/us/elections/results-texas-us-house-district-26.html?searchResultPosition=5
 
-**Texas 10th Congressional District Primary Election Results**\
+**Texas 20th Congressional District Primary Election Results**\
 `See full results and maps from the Texas primary elections.`\
-https://nytimes.com/interactive/2022/03/01/us/elections/results-texas-us-house-district-10.html?searchResultPosition=6
+https://nytimes.com/interactive/2022/03/01/us/elections/results-texas-us-house-district-20.html?searchResultPosition=6
 
-**Texas 28th Congressional District Primary Election Results**\
+**Texas 17th Congressional District Primary Election Results**\
 `See full results and maps from the Texas primary elections.`\
-https://nytimes.com/interactive/2022/03/01/us/elections/results-texas-us-house-district-28.html?searchResultPosition=7
+https://nytimes.com/interactive/2022/03/01/us/elections/results-texas-us-house-district-17.html?searchResultPosition=7
 
-**Texas 24th Congressional District Primary Election Results**\
+**Texas Fourth Congressional District Primary Election Results**\
 `See full results and maps from the Texas primary elections.`\
-https://nytimes.com/interactive/2022/03/01/us/elections/results-texas-us-house-district-24.html?searchResultPosition=8
+https://nytimes.com/interactive/2022/03/01/us/elections/results-texas-us-house-district-4.html?searchResultPosition=8
 
-**Texas Ninth Congressional District Primary Election Results**\
+**Texas 30th Congressional District Primary Election Results**\
 `See full results and maps from the Texas primary elections.`\
-https://nytimes.com/interactive/2022/03/01/us/elections/results-texas-us-house-district-9.html?searchResultPosition=9
+https://nytimes.com/interactive/2022/03/01/us/elections/results-texas-us-house-district-30.html?searchResultPosition=9
 
-**Texas 27th Congressional District Primary Election Results**\
+**Texas 23rd Congressional District Primary Election Results**\
 `See full results and maps from the Texas primary elections.`\
-https://nytimes.com/interactive/2022/03/01/us/elections/results-texas-us-house-district-27.html?searchResultPosition=10
+https://nytimes.com/interactive/2022/03/01/us/elections/results-texas-us-house-district-23.html?searchResultPosition=10
 
