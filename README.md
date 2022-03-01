@@ -26,8 +26,8 @@ https://nytimes.com/2022/02/28/world/congo-cobalt-mining-china.html?searchResult
 `Idealism has been a powerful weapon in the resistance against Russia.`\
 https://nytimes.com/2022/02/28/opinion/ukraine-victory.html?searchResultPosition=7
 
-**Ukrainian government has received more than $15 million in cryptocurrency donations.**\
-`Crypto has provided a way for investors to quickly move funds to Ukrainian fighters.`\
+**Ukraine Gets $22 Million in Crypto Donations to Fight Invasion**\
+`Cryptocurrency has provided a way for investors to quickly move funds to Ukrainian fighters.`\
 https://nytimes.com/2022/02/28/business/ukraine-crypto-donations.html?searchResultPosition=8
 
 **The U.S. expels 12 Russian diplomats for spying as Ukraine dominates action at the U.N.**\
