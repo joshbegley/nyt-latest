@@ -16,7 +16,7 @@ https://nytimes.com/2022/02/28/business/viatris-epipen-settlement.html?searchRes
 
 **Disney and Warner Bros. will pause theatrical movie releases in Russia.**\
 `Affected films include “The Batman” from Warner and “Turning Red” from Disney-Pixar.`\
-https://nytimes.com/2022/02/28/business/disney-movies-russia-turning-red.html?searchResultPosition=5
+https://nytimes.com/2022/02/28/business/disney-warner-bros-russia.html?searchResultPosition=5
 
 **Art Briles Resigns From Grambling State**\
 `Grambling had received backlash after Briles, Baylor’s coach when leaders mishandled sexual assault accusations against players, was hired last week.`\
