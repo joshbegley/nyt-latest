@@ -1,5 +1,5 @@
 **Biden’s State of the Virus**\
-`In his State of the Union speech tonight, the President must walk a delicate line on the virus.`\
+`In his State of the Union speech tonight, President Biden must walk a delicate line on the coronavirus.`\
 https://nytimes.com/2022/03/01/briefing/biden-covid-state-of-the-union.html?searchResultPosition=1
 
 **Civilians Come Under Fire**\
