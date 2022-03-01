@@ -1,4 +1,4 @@
-**I’m a Cold-War Historian. We’re In a Frightening New Era**\
+**I’m a Cold War Historian. We’re in a Frightening New Era.**\
 `Keep the airspeed, altitude and course steady: That was the mantra for American pilots who regularly encountered Soviet aircraft during the Cold War.`\
 https://nytimes.com/2022/03/01/opinion/russia-ukraine-cold-war.html?searchResultPosition=1
 
