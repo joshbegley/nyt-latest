@@ -6,8 +6,8 @@ https://nytimes.com/2022/02/28/us/politics/house-lynching-hate-crime.html?search
 `The proposed settlement, which requires a judge’s approval, would resolve a legal battle that began after the company, in 2016, raised the price for two EpiPens to $608 from $100.`\
 https://nytimes.com/2022/02/28/business/viatris-epipen-settlement.html?searchResultPosition=2
 
-**Disney will pause theatrical movie releases in Russia.**\
-`“Turning Red” was scheduled for release in about two weeks.`\
+**Disney and Warner Bros. will pause theatrical movie releases in Russia.**\
+`Affected films include “The Batman” from Warner and “Turning Red” from Disney-Pixar.`\
 https://nytimes.com/2022/02/28/business/disney-movies-russia-turning-red.html?searchResultPosition=3
 
 **Art Briles Resigns From Grambling State**\
