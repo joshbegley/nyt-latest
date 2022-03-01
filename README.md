@@ -2,7 +2,7 @@
 `The two countries have had strong economic ties for decades, but the invasion of Ukraine has spurred the government in Rome to realign with European allies — at an outsize cost.`\
 https://nytimes.com/2022/03/01/world/europe/ukraine-russia-italy-sanctions.html?searchResultPosition=1
 
-**As the World Rebukes Russia, India Tries to Stay Above the Fray**\
+**As World Rebukes Russia, India Tries to Stay Above the Fray**\
 `A nation isolated in a hostile region increasingly dominated by China, its challenge is to engage the West while not abandoning ties with an old ally.`\
 https://nytimes.com/2022/03/01/world/asia/india-russia-united-states-ukraine.html?searchResultPosition=2
 
