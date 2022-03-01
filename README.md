@@ -1,6 +1,6 @@
 **Cuomo’s New Approach to Restoring His Reputation: TV Ads**\
 `The former governor’s commercials push a narrative that he was driven from office by “political attacks.”`\
-https://nytimes.com/2022/03/01/nyregion/cuomos-new-approach-to-restoring-his-reputation-tv-ads.html?searchResultPosition=1
+https://nytimes.com/2022/03/01/nyregion/cuomos-tv-ads.html?searchResultPosition=1
 
 **At the N.F.L. Combine, Players (and Agents) Question Its Relevance**\
 `The league’s annual talent evaluation has become prime time viewing, but disputes over protocols and the rise of other scouting forums have prompted some to call for an overhaul.`\
