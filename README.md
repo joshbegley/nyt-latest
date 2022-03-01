@@ -1,4 +1,4 @@
-**Valery Gergiev, a Putin Ally, Fired as Chief Conductor iin Munich**\
+**Valery Gergiev, a Putin Ally, Fired as Chief Conductor in Munich**\
 `The conductor was dismissed from the Munich Philharmonic after he refused a demand to denounce Putin’s invasion of Ukraine.`\
 https://nytimes.com/2022/03/01/arts/music/valery-gergiev-fired-munich-ukraine.html?searchResultPosition=1
 
