@@ -12,11 +12,11 @@ https://nytimes.com/2022/03/01/business/volkswagen-bmw-autos-germany-ukraine.htm
 
 **U.K. Moves to Tighten Laws on Oligarchs. Critics Say It’s Too Late.**\
 `With most of the Western world uniting against Russia’s invasion of Ukraine, Britain is trying to plug loopholes for wealthy Russians to which it has long turned a blind eye.`\
-https://nytimes.com/2022/03/01/world/europe/ukraine-oligarchs-britain-london.html?searchResultPosition=4
+https://nytimes.com/2022/03/01/world/europe/ukraine-russia-oligarchs-uk.html?searchResultPosition=4
 
 **Palestinians Threatened With Eviction Can Stay in Their Homes — for Now**\
 `Israel’s high court stayed the eviction of four Palestinian families from their East Jerusalem homes. The eviction threat had stoked tensions that led to war in Gaza.`\
-https://nytimes.com/2022/03/01/world/middleeast/israel-palestinians-evictions-sheikh-jarrah.html?searchResultPosition=5
+https://nytimes.com/2022/03/01/world/middleeast/israel-palestinians-evictions.html?searchResultPosition=5
 
 **Your Wednesday Briefing: A Convoy Nears Kyiv**\
 `Plus the U.S. State of the Union and South Korea’s fight over multiculturalism.`\
