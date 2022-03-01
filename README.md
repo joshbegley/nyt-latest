@@ -26,15 +26,15 @@ https://nytimes.com/2022/03/01/business/totalenergies-oil-russia.html?searchResu
 `Developers have recently realized the value of even the most minor waterways for commerce, but experts advise caution because of flooding risks.`\
 https://nytimes.com/2022/03/01/business/creek-development-urban-renewal.html?searchResultPosition=7
 
+**Diplomats walk out of Lavrov’s speech at the U.N. in Geneva.**\
+`Sergey Lavrov accused Ukraine of seeking to acquire nuclear weapons, an unsubstantiated claim that Moscow has used as justification for its invasion.`\
+https://nytimes.com/2022/03/01/world/europe/lavrov-speech-un.html?searchResultPosition=8
+
 **What Winter’s Dry Spell Means for California’s Fire Season**\
 `This winter’s extreme rainfall and dryness might average out to near-normal levels of precipitation. But that’s no insurance policy against fire, scientists say.`\
-https://nytimes.com/2022/03/01/us/california-fires.html?searchResultPosition=8
+https://nytimes.com/2022/03/01/us/california-fires.html?searchResultPosition=9
 
 **Serena Williams raises $111 million for new venture fund.**\
 `The tennis star’s firm, Serena Ventures, will invest in founders with diverse points of view.`\
-https://nytimes.com/2022/03/01/business/serena-williams-venture-fund.html?searchResultPosition=9
-
-**Joining Sanctions on Russia, Italy Risks More Than Most**\
-`The two countries have had strong economic ties for decades, but the invasion of Ukraine has spurred the government in Rome to realign with European allies — at an outsize cost.`\
-https://nytimes.com/2022/03/01/world/europe/ukraine-russia-italy-sanctions.html?searchResultPosition=10
+https://nytimes.com/2022/03/01/business/serena-williams-venture-fund.html?searchResultPosition=10
 
