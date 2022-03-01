@@ -1,40 +1,40 @@
-**Former Police Chief Faked Death to Evade Charges, Officials Say**\
-`William Anthony Spivey, who resigned last year as the Chadbourn, N.C., police chief after a misconduct investigation, has been charged with more than 70 felonies, the authorities said.`\
-https://nytimes.com/2022/03/01/us/north-carolina-police-chief-fake-death.html?searchResultPosition=1
-
-**Texas 16th Congressional District Primary Election Results**\
+**Texas 37th Congressional District Primary Election Results**\
 `See full results and maps from the Texas primary elections.`\
-https://nytimes.com/interactive/2022/03/01/us/elections/results-texas-us-house-district-16.html?searchResultPosition=2
+https://nytimes.com/interactive/2022/03/01/us/elections/results-texas-us-house-district-37.html?searchResultPosition=1
 
-**Texas 32nd Congressional District Primary Election Results**\
+**Texas Eighth Congressional District Primary Election Results**\
 `See full results and maps from the Texas primary elections.`\
-https://nytimes.com/interactive/2022/03/01/us/elections/results-texas-us-house-district-32.html?searchResultPosition=3
+https://nytimes.com/interactive/2022/03/01/us/elections/results-texas-us-house-district-8.html?searchResultPosition=2
 
-**Texas 18th Congressional District Primary Election Results**\
+**Texas 14th Congressional District Primary Election Results**\
 `See full results and maps from the Texas primary elections.`\
-https://nytimes.com/interactive/2022/03/01/us/elections/results-texas-us-house-district-18.html?searchResultPosition=4
-
-**Texas 36th Congressional District Primary Election Results**\
-`See full results and maps from the Texas primary elections.`\
-https://nytimes.com/interactive/2022/03/01/us/elections/results-texas-us-house-district-36.html?searchResultPosition=5
-
-**Texas 26th Congressional District Primary Election Results**\
-`See full results and maps from the Texas primary elections.`\
-https://nytimes.com/interactive/2022/03/01/us/elections/results-texas-us-house-district-26.html?searchResultPosition=6
-
-**Texas 20th Congressional District Primary Election Results**\
-`See full results and maps from the Texas primary elections.`\
-https://nytimes.com/interactive/2022/03/01/us/elections/results-texas-us-house-district-20.html?searchResultPosition=7
-
-**Texas 17th Congressional District Primary Election Results**\
-`See full results and maps from the Texas primary elections.`\
-https://nytimes.com/interactive/2022/03/01/us/elections/results-texas-us-house-district-17.html?searchResultPosition=8
+https://nytimes.com/interactive/2022/03/01/us/elections/results-texas-us-house-district-14.html?searchResultPosition=3
 
 **Texas Fourth Congressional District Primary Election Results**\
 `See full results and maps from the Texas primary elections.`\
-https://nytimes.com/interactive/2022/03/01/us/elections/results-texas-us-house-district-4.html?searchResultPosition=9
+https://nytimes.com/interactive/2022/03/01/us/elections/results-texas-us-house-district-4.html?searchResultPosition=4
 
-**Texas 30th Congressional District Primary Election Results**\
+**Texas 19th Congressional District Primary Election Results**\
 `See full results and maps from the Texas primary elections.`\
-https://nytimes.com/interactive/2022/03/01/us/elections/results-texas-us-house-district-30.html?searchResultPosition=10
+https://nytimes.com/interactive/2022/03/01/us/elections/results-texas-us-house-district-19.html?searchResultPosition=5
+
+**Texas 38th Congressional District Primary Election Results**\
+`See full results and maps from the Texas primary elections.`\
+https://nytimes.com/interactive/2022/03/01/us/elections/results-texas-us-house-district-38.html?searchResultPosition=6
+
+**Texas 28th Congressional District Primary Election Results**\
+`See full results and maps from the Texas primary elections.`\
+https://nytimes.com/interactive/2022/03/01/us/elections/results-texas-us-house-district-28.html?searchResultPosition=7
+
+**Texas 25th Congressional District Primary Election Results**\
+`See full results and maps from the Texas primary elections.`\
+https://nytimes.com/interactive/2022/03/01/us/elections/results-texas-us-house-district-25.html?searchResultPosition=8
+
+**Texas 36th Congressional District Primary Election Results**\
+`See full results and maps from the Texas primary elections.`\
+https://nytimes.com/interactive/2022/03/01/us/elections/results-texas-us-house-district-36.html?searchResultPosition=9
+
+**Texas 17th Congressional District Primary Election Results**\
+`See full results and maps from the Texas primary elections.`\
+https://nytimes.com/interactive/2022/03/01/us/elections/results-texas-us-house-district-17.html?searchResultPosition=10
 
