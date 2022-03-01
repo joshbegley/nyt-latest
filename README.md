@@ -26,15 +26,15 @@ https://nytimes.com/2022/03/01/world/asia/india-russia-united-states-ukraine.htm
 `Analysts say that the International Energy Agency, which is organizing the meeting, could be preparing a global release of oil reserves designed to cool down markets.`\
 https://nytimes.com/2022/03/01/business/ukraine-russia-oil.html?searchResultPosition=7
 
+**Retention rates for New York City public schools declined modestly during the pandemic.**\
+`Retention varied widely by grade, but a study found more evidence of an alarming national trend: declining enrollment in younger grades.`\
+https://nytimes.com/2022/03/01/nyregion/nyc-school-retention-pandemic.html?searchResultPosition=8
+
 **March Vocabulary Challenge: Write a Story Using Our Words of the Day**\
 `How many recent Words of the Day can you use correctly in a 50-word story? Send us yours by March 31.`\
-https://nytimes.com/2022/03/01/learning/march-vocabulary-challenge-write-a-story-using-our-words-of-the-day.html?searchResultPosition=8
+https://nytimes.com/2022/03/01/learning/march-vocabulary-challenge-write-a-story-using-our-words-of-the-day.html?searchResultPosition=9
 
 **Geopolitical Risk Returns for Global Markets**\
 `Investors are weighing the implications of Russian sanctions — and a new Cold War.`\
-https://nytimes.com/2022/03/01/business/dealbook/russia-sanctions-markets-cold-war.html?searchResultPosition=9
-
-**Weekly News Quiz for Students: Ukraine Invasion, C.D.C. Guidelines, Women's Soccer**\
-`Have you been paying attention to the news recently? See how many of these 10 questions you can get right.`\
-https://nytimes.com/interactive/2022/03/01/learning/01Student-News-Quiz.html?searchResultPosition=10
+https://nytimes.com/2022/03/01/business/dealbook/russia-sanctions-markets-cold-war.html?searchResultPosition=10
 
