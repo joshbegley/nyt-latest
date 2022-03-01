@@ -1,6 +1,6 @@
 **Many nuclear power reactors in Ukraine are no longer producing electricity.**\
 `Six of the 15 reactors in the country appear to be offline at the moment, with one site close to Russian troop movements reporting half of its reactors are down.`\
-https://nytimes.com/2022/03/01/world/europe/nuclear-power-plant.html?searchResultPosition=1
+https://nytimes.com/2022/03/01/world/europe/ukraine-nuclear-power-plant.html?searchResultPosition=1
 
 **Supreme Court Hears Case of Doctors Accused of Running Pill Mills**\
 `Drawing on childhood grammar lessons, the justices considered whether the doctors were entitled to argue that they had acted in good faith.`\
