@@ -20,7 +20,7 @@ https://nytimes.com/2022/03/02/arts/music/valery-gergiev-anna-netrebko-putin-ukr
 
 **Stop-Start Schooling**\
 `The hidden costs of Omicron’s classroom closures.`\
-https://nytimes.com/2022/03/02/us/stop-start-schooling.html?searchResultPosition=6
+https://nytimes.com/2022/03/02/us/student-school-covid.html?searchResultPosition=6
 
 **Star-Studded Lakers Are Fighting Just to Make the Playoffs**\
 `LeBron James is defiant, but the fans are booing, and the season might be lost.`\
