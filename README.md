@@ -22,8 +22,8 @@ https://nytimes.com/2022/03/02/arts/design/gold-ingots-shipwreck.html?searchResu
 `As is often the case in war zones, tolls diverged. It was not immediately possible for The New York Times to provide an independent estimate.`\
 https://nytimes.com/2022/03/02/world/europe/ukraine-civilian-casualties.html?searchResultPosition=6
 
-**Ukraine Invasion Has Not Changed Plans to Raise Rates, Fed Chair Says**\
-`Jerome H. Powell, the Federal Reserve chair, said the central bank still intends to lift interest rates at its March meeting, despite uncertainty caused by Russia’s invasion of Ukraine.`\
+**Invasion Hasn’t Changed Plans to Raise Rates, Fed Chair Says**\
+`The chair, Jerome H. Powell, said the Federal Reserve still intends to lift interest rates at its March meeting, despite uncertainty caused by Russia’s invasion of Ukraine.`\
 https://nytimes.com/video/business/100000008236127/rates-ukraine-powell.html?searchResultPosition=7
 
 **The U.S. extends technology restrictions to Belarus and the Russian oil industry.**\
