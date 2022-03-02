@@ -1,32 +1,36 @@
+**The coronavirus invades cells in the penis and testicles of monkeys, researchers discover.**\
+`The study suggests that symptoms such as erectile dysfunction reported by some Covid patients may be caused directly by the virus.`\
+https://nytimes.com/2022/03/01/health/covid-erectile-dysfunction.html?searchResultPosition=1
+
 **I See Three Scenarios for How This War Ends**\
 `Every day that Putin refuses to stop we get closer to the gates of hell.`\
-https://nytimes.com/2022/03/01/opinion/ukraine-russia-putin.html?searchResultPosition=1
+https://nytimes.com/2022/03/01/opinion/ukraine-russia-putin.html?searchResultPosition=2
 
 **Spurning Rebukes, Russia Escalates Attack on Ukraine as Refugee Ranks Swell**\
 `There was no sign of possible de-escalation on the sixth day of the invasion, as Russia appeared determined to toughen its tactics against a defiant neighbor.`\
-https://nytimes.com/2022/03/01/world/europe/ukraine-russia-war.html?searchResultPosition=2
+https://nytimes.com/2022/03/01/world/europe/ukraine-russia-war.html?searchResultPosition=3
 
 **Gov. Kim Reynolds of Iowa will denounce mask mandates in the Republican rebuttal.**\
 `By Glenn Thrush`\
-https://nytimes.com/2022/03/01/us/politics/kim-reynolds-state-of-the-union.html?searchResultPosition=3
+https://nytimes.com/2022/03/01/us/politics/kim-reynolds-state-of-the-union.html?searchResultPosition=4
 
 **Exxon Mobil says it plans to leave its last remaining Russian project.**\
 `BP and Shell announced earlier that they were also seeking to leave the country after its invasion of Ukraine.`\
-https://nytimes.com/2022/03/01/business/russia-exxon.html?searchResultPosition=4
+https://nytimes.com/2022/03/01/business/russia-exxon.html?searchResultPosition=5
 
 **The Enigma of Big Thief**\
 `A conversation about the space the breakout Brooklyn band occupies in contemporary indie-rock circles, and its latest album.`\
-https://nytimes.com/2022/03/01/arts/music/popcast-big-thief.html?searchResultPosition=5
+https://nytimes.com/2022/03/01/arts/music/popcast-big-thief.html?searchResultPosition=6
 
 **At the Capitol for the State of the Union**\
 `President Biden’s State of the Union address is unfolding in a Capitol that is returning to normalcy, but some pandemic restrictions and security precautions remain in place. `\
-https://nytimes.com/interactive/2022/03/01/us/politics/state-of-the-union-behind-the-scenes.html?searchResultPosition=6
+https://nytimes.com/interactive/2022/03/01/us/politics/state-of-the-union-behind-the-scenes.html?searchResultPosition=7
 
 **Biden Must Not Allow Ukraine to Fall**\
 `Zelensky’s courage gives the administration a rare opportunity.`\
-https://nytimes.com/2022/03/01/opinion/ukraine-zelensky-biden.html?searchResultPosition=7
+https://nytimes.com/2022/03/01/opinion/ukraine-zelensky-biden.html?searchResultPosition=8
 
 **A Crisis Abroad, and a Presidential Address and an Election at Home**\
 `As President Biden delivers his first formal State of the Union address, Russia’s invasion of Ukraine escalates and the midterms begin in earnest in Texas.`\
-https://nytimes.com/2022/03/01/us/politics/state-of-the-union-biden-ukraine-midterms.html?searchResultPosition=8
+https://nytimes.com/2022/03/01/us/politics/state-of-the-union-biden-ukraine-midterms.html?searchResultPosition=9
 
