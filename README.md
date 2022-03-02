@@ -1,5 +1,5 @@
-**Nations Plan a Global Treaty to Curb Plastic Pollution**\
-`The pact would be legally binding and could go beyond cleaning up plastic waste to curbs on future production.`\
+**The World Is Awash in Plastic. Nations Plan a Treaty to Fix That.**\
+`The new pact would be legally binding and could go beyond cleaning up plastic waste to curbs on future production.`\
 https://nytimes.com/2022/03/02/climate/global-plastics-recycling-treaty.html?searchResultPosition=1
 
 **Watch Live: U.N. Votes on Whether to Condemn Russia for Invasion**\
