@@ -36,5 +36,5 @@ https://nytimes.com/2022/03/02/technology/friends-with-benefits-crypto-dao.html?
 
 **Taliban Search Operation Echoes Resented U.S. Tactics**\
 `An intrusive sweep that has spanned several provinces risks alienating Afghans and fueling the insurgency the new government is trying to stop.`\
-https://nytimes.com/2022/03/02/world/asia/taliban-searches-resistance-afghanistan.html?searchResultPosition=10
+https://nytimes.com/2022/03/02/world/asia/afghanistan-taliban-resistance.html?searchResultPosition=10
 
