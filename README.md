@@ -8,7 +8,7 @@ https://nytimes.com/2022/03/02/movies/against-the-ice-review.html?searchResultPo
 
 **Four Times Opinion Writers on War in Ukraine: ‘It Is Very Clear Putin Has No Plan B’**\
 `Lulu Garcia-Navarro, Thomas Friedman, Ross Douthat and Yara Bayoumy discuss what could come next in Ukraine.`\
-https://nytimes.com/2022/03/02/opinion/four-times-opinion-writers-on-war-in-ukraine-it-is-very-clear-putin-has-no-plan-b.html?searchResultPosition=3
+https://nytimes.com/2022/03/02/opinion/war-ukraine-putin.html?searchResultPosition=3
 
 **Prosecutors Open Arguments Against Defendant in First Jan. 6 Trial**\
 `Guy Reffitt recorded himself as he entered the Capitol with zip ties and a pistol. “We’re taking the Capitol before the day is over, ripping them out by their hair,” he said.`\
