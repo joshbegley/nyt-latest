@@ -6,7 +6,7 @@ https://nytimes.com/2022/03/02/movies/the-long-walk-review.html?searchResultPosi
 `Once starved for passengers, the trains are now full, and negotiations are underway between state-owned Finnish and Russian rail companies to increase the service.`\
 https://nytimes.com/2022/03/02/world/europe/trains-russia-finland.html?searchResultPosition=2
 
-**Ukraine, State of the Union, St. Barts: Your Wednesday Evening Briefing**\
+**Your Wednesday Evening Briefing**\
 `Here’s what you need to know at the end of the day.`\
 https://nytimes.com/2022/03/02/briefing/ukraine-state-of-the-union-st-barts.html?searchResultPosition=3
 
