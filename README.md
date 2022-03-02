@@ -8,7 +8,7 @@ https://nytimes.com/2022/03/01/us/politics/gina-raimondo-sotu-designated-survivo
 
 **Boeing and Ford suspend operations in Russia.**\
 `The U.S. manufacturing companies are the latest to shut down offices and factories since Russia invaded Ukraine.`\
-https://nytimes.com/2022/03/01/business/boeing-and-ford-suspend-operations-in-russia.html?searchResultPosition=3
+https://nytimes.com/2022/03/01/business/boeing-ford-russia.html?searchResultPosition=3
 
 **Alexander Vindman on Why It’s the ‘Beginning of the End’ for Putin**\
 `The former Ukraine expert for the National Security Council shares his take on the Russia-Ukraine war.`\
