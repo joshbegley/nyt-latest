@@ -15,7 +15,7 @@ https://nytimes.com/2022/03/01/us/politics/jan-6-panel-subpoenas.html?searchResu
 https://nytimes.com/2022/03/01/sports/baseball/mlb-lockout-manfred.html?searchResultPosition=4
 
 **Full Transcript of Biden’s State of the Union Address**\
-`President Biden delivered his annual State of the Union address. The following is a transcript of his remarks, as released by the White House.`\
+`President Biden spoke about the war in Ukraine, the coronavirus pandemic, the economy and more in his State of the Union address. The following is a transcript of his remarks.`\
 https://nytimes.com/2022/03/01/us/politics/biden-sotu-transcript.html?searchResultPosition=5
 
 **Corrections: March 2, 2022**\
