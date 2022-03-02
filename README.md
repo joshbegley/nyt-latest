@@ -2,8 +2,8 @@
 `The league will not administer the test, which has been criticized for racial bias, to draft prospects at this year’s scouting combine. Instead, teams are deploying other assessments of football acumen.`\
 https://nytimes.com/2022/03/02/sports/football/nfl-combine-draft-wonderlic.html?searchResultPosition=1
 
-**Biden’s Fed Nominees are Frozen as One Faces Republican Questions**\
-`Sarah Bloom Raskin has faced staunch G.O.P. opposition over her climate views, but her private sector work is holding up her nomination.`\
+**Biden’s Fed Nominees Are Frozen as One Faces Republican Questions**\
+`Sarah Bloom Raskin, his choice for the Federal Reserve’s head of bank oversight, has faced staunch G.O.P. opposition over her climate views. Yet her private sector work is holding up her nomination.`\
 https://nytimes.com/2022/03/02/business/economy/sarah-bloom-raskin-federal-reserve-nominee-biden.html?searchResultPosition=2
 
 **A Conductor Brings Nearly a Century of Experience to Beethoven**\
