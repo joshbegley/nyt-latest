@@ -11,7 +11,7 @@ https://nytimes.com/2022/03/02/arts/dance/new-york-city-ballet-winter-season.htm
 https://nytimes.com/2022/03/02/nyregion/rikers-beatings-nyc-jails.html?searchResultPosition=3
 
 **Shirley Hughes, Whose Books Depicted Children’s Mini-Dramas, Dies at 94**\
-`A beloved figure in her native England, Ms. Hughes wrote and illustrated more than 70 books for children of all ages and was honored by the queen.`\
+`Beloved in her native England, she wrote and illustrated more than 70 books for children of all ages, with millions of copies sold worldwide. She was honored by the queen.`\
 https://nytimes.com/2022/03/02/books/shirley-hughes-dead.html?searchResultPosition=4
 
 **NoViolet Bulawayo Believes Freedom Begins with Imagination**\
