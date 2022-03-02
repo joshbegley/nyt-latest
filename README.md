@@ -28,7 +28,7 @@ https://nytimes.com/2022/03/02/sports/football/nfl-combine-draft-wonderlic.html?
 
 **Biden’s Fed Nominees Are Frozen as One Faces Republican Questions**\
 `Sarah Bloom Raskin, his choice for the Federal Reserve’s head of bank oversight, has faced staunch G.O.P. opposition over her climate views. Yet her private sector work is holding up her nomination.`\
-https://nytimes.com/2022/03/02/business/economy/sarah-bloom-raskin-federal-reserve-nominee-biden.html?searchResultPosition=8
+https://nytimes.com/2022/03/02/business/economy/sarah-bloom-raskin-biden-fed.html?searchResultPosition=8
 
 **A Conductor Brings Nearly a Century of Experience to Beethoven**\
 `Herbert Blomstedt, 94 and leading the New York Philharmonic this week, discusses the famous opening of the Fifth Symphony.`\
