@@ -14,8 +14,8 @@ https://nytimes.com/2022/03/01/us/politics/jan-6-panel-subpoenas.html?searchResu
 `Commissioner Rob Manfred boasted of his streak of successful labor negotiations, but by effectively creating a salary cap he had to know this deal would fail.`\
 https://nytimes.com/2022/03/01/sports/baseball/mlb-lockout-manfred.html?searchResultPosition=4
 
-**Prepared Text of Biden’s State of the Union Address**\
-`President Biden is delivering his annual State of the Union address. The following is the prepared text of his remarks, as released by the White House.`\
+**Full Transcript of Biden’s State of the Union Address**\
+`President Biden delivered his annual State of the Union address. The following is a transcript of his remarks, as released by the White House.`\
 https://nytimes.com/2022/03/01/us/politics/biden-sotu-transcript.html?searchResultPosition=5
 
 **Corrections: March 2, 2022**\
