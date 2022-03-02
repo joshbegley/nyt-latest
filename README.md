@@ -1,5 +1,5 @@
-**The head of a popular Brooklyn brewery resigns after his attacks on vaccine mandates drew criticism.**\
-`Josh Stylman, a founder of Threes Brewing who called vaccine mandates ‘crimes against humanity,’ said he was leaving so he could speak his mind freely.`\
+**The head of a popular brewery in Brooklyn resigns after his attacks on vaccine mandates drew criticism.**\
+`Josh Stylman, a founder of Threes Brewing who called vaccine mandates “crimes against humanity,” said he was leaving so he could speak his mind freely.`\
 https://nytimes.com/2022/03/02/nyregion/threes-brewing-vaccine-mandate-josh-stylman.html?searchResultPosition=1
 
 **Schools Chancellor Pledges to End New York City’s ‘Betrayal’ of Students**\
