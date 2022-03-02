@@ -14,8 +14,8 @@ https://nytimes.com/2022/03/01/us/elections/texas-primaries-winners-losers-runof
 `This word has appeared in 132 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2022/03/02/learning/word-of-the-day-impede.html?searchResultPosition=4
 
-**In Texas congressional races, liberals show strength while the G.O.P. establishment largely prevails.**\
-`In the most closely watched House primary, Jessica Cisneros, a 28-year-old progressive lawyer, appeared headed for a runoff with the 17-year incumbent, Representative Henry Cuellar.`\
+**Cisneros forces Cuellar into a runoff, a sign of liberal strength in a key Texas congressional race.**\
+`In the most closely watched House primary, Representative Henry Cuellar, a longtime Democratic incumbent, was forced into a runoff with Jessica Cisneros, a 28-year-old progressive lawyer.`\
 https://nytimes.com/2022/03/01/us/elections/texas-congress-28th-liberals-republicans.html?searchResultPosition=5
 
 **State of the Union: Biden Condemns Russia, Promotes Economic Plan**\
