@@ -1,40 +1,40 @@
+**Watch Live: U.N. Votes on Whether to Condemn Russia for Invasion**\
+`In a rare emergency special session, the United Nations General Assembly is expected to vote on a resolution condemning Russia’s invasion of Ukraine.`\
+https://nytimes.com/video/world/europe/100000008235678/united-nations-vote-russia-ukraine.html?searchResultPosition=1
+
+**In Odessa, Ukrainians build defenses and wait for attacks.**\
+`Residents of Ukraine’s critical port on the Black Sea are bracing as Russian naval and ground forces approach.  “Every day they make it seem like today is the day,” the mayor said.`\
+https://nytimes.com/2022/03/02/world/europe/odessa-black-sea-ukraine-russia.html?searchResultPosition=2
+
+**Senators want to know if Russia can use cryptocurrencies to skirt sanctions.**\
+`Four Democratic lawmakers have asked Treasury officials to explain how they’re overseeing digital assets while Russia is largely frozen out of traditional commerce.`\
+https://nytimes.com/2022/03/02/business/treasury-cryptocurrencies-russia-sanctions.html?searchResultPosition=3
+
+**Broadway’s Cort Theater Will Have a New Name: James Earl Jones**\
+`The landmark theater will be renamed in honor of the 91-year-old actor who has made 21 Broadway appearances and won two competitive Tony Awards.`\
+https://nytimes.com/2022/03/02/theater/cort-theater-james-earl-jones.html?searchResultPosition=4
+
+**Autofiction for People Who Think They’re Sick of It**\
+`Claire-Louise Bennett’s second novel, “Checkout 19,” centers on the passionate collision between reader, writer and book.`\
+https://nytimes.com/2022/03/02/books/review/claire-louise-bennett-checkout-19.html?searchResultPosition=5
+
 **NATO Countries Pour Weapons Into Ukraine, Risking Conflict With Russia**\
 `Brussels is proud to be providing military aid, but Moscow may see it as a dangerous intervention and could move to disrupt the flow of arms through Poland.`\
-https://nytimes.com/2022/03/02/world/europe/nato-weapons-ukraine-russia.html?searchResultPosition=1
+https://nytimes.com/2022/03/02/world/europe/nato-weapons-ukraine-russia.html?searchResultPosition=6
 
 **Ghislaine Maxwell Juror May Be Made to Testify About His Conduct**\
 `The juror, whose failure to disclose his past abuse has clouded the guilty verdict against Ms. Maxwell, would be granted immunity from prosecution in exchange for his testimony.`\
-https://nytimes.com/2022/03/02/nyregion/ghislaine-maxwell-trial-juror.html?searchResultPosition=2
+https://nytimes.com/2022/03/02/nyregion/ghislaine-maxwell-trial-juror.html?searchResultPosition=7
 
 **House Hunting in Canada: Weathered Steel on the Shores of Nova Scotia**\
 `With remote workers flocking to its bucolic shores, the rapidly growing Atlantic province of Canada isn’t ‘looked at as the poor cousin anymore.’`\
-https://nytimes.com/2022/03/02/realestate/nova-scotia-canada-house-hunting.html?searchResultPosition=3
+https://nytimes.com/2022/03/02/realestate/nova-scotia-canada-house-hunting.html?searchResultPosition=8
 
 **A Perch Above the Atlantic in Nova Scotia**\
 `This modern three-structure property, with Atlantic Ocean views on the South Shore of Nova Scotia, is on the market for $2.95 million.`\
-https://nytimes.com/slideshow/2022/03/02/realestate/a-perch-above-the-atlantic-in-nova-scotia.html?searchResultPosition=4
+https://nytimes.com/slideshow/2022/03/02/realestate/a-perch-above-the-atlantic-in-nova-scotia.html?searchResultPosition=9
 
 **The State of the Union: Together, if Only for a Few Minutes**\
 `President Biden brought a cheerleading tone to a normal-ish address for very abnormal times.`\
-https://nytimes.com/2022/03/02/arts/television/state-of-the-union-president-biden.html?searchResultPosition=5
-
-**At the State of the Union, Dressing for Ukrainian Solidarity**\
-`Red, white (yellow) and blue were on display as President Biden addressed Congress.`\
-https://nytimes.com/2022/03/02/style/at-the-state-of-the-union-dressing-for-ukrainian-solidarity.html?searchResultPosition=6
-
-**Also at Stake in Ukraine: the Future of Two Orthodox Churches**\
-`The Russian church hopes to reunite with the independent Ukrainian branch under a single patriarch in Moscow that would allow it to control the holiest sites of Orthodoxy in the Slavic world.`\
-https://nytimes.com/2022/03/02/world/europe/russia-ukraine-orthodox-church.html?searchResultPosition=7
-
-**Putin’s War to Bring Ukraine to Heel Unites Eastern Europe in Alarm**\
-`Many countries fear that the Russian leader’s efforts to turn back the clock and reclaim a sphere of influence lost at the end of the Cold War could spell disaster for them.`\
-https://nytimes.com/2022/03/02/world/europe/ukraine-russia-eastern-europe.html?searchResultPosition=8
-
-**Set Your Schedule in Your Smartphone’s Free Calendar**\
-`As daily life feels more familiar, apps from Apple and Google can keep you organized and get you to your in-person events on time.`\
-https://nytimes.com/2022/03/02/technology/personaltech/apple-ios-google-calendar.html?searchResultPosition=9
-
-**Who’s Afraid of Ketanji Brown Jackson?**\
-`The powerful symbolism of her nomination runs deep.`\
-https://nytimes.com/2022/03/02/opinion/whos-afraid-of-ketanji-brown-jackson.html?searchResultPosition=10
+https://nytimes.com/2022/03/02/arts/television/state-of-the-union-president-biden.html?searchResultPosition=10
 
