@@ -32,7 +32,7 @@ https://nytimes.com/2022/03/02/opinion/war-ukraine-putin.html?searchResultPositi
 
 **Prosecutors Open Arguments Against Defendant in First Jan. 6 Trial**\
 `Guy Reffitt recorded himself as he entered the Capitol with zip ties and a pistol. “We’re taking the Capitol before the day is over, ripping them out by their hair,” he said.`\
-https://nytimes.com/2022/03/02/us/politics/first-jan-6-trial-opening-arguments.html?searchResultPosition=9
+https://nytimes.com/2022/03/02/us/politics/jan-6-trial-opening-arguments.html?searchResultPosition=9
 
 **A War the Kremlin Tried to Disguise Becomes a Hard Reality for Russians**\
 `Moscow posted a death toll from its attack on Ukraine for the first time, and Russians who long avoided politics are now grappling with the fact that their country is fighting a deadly conflict.`\
