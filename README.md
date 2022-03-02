@@ -20,7 +20,7 @@ https://nytimes.com/2022/03/02/movies/hell-is-empty-review.html?searchResultPosi
 
 **The E.U. is expected to grant blanket protection to Ukrainian refugees.**\
 `Under the measure, which would apply to all Ukrainian nationals, refugees would be granted the right to live, study and work across the 27-member bloc for up to three years.`\
-https://nytimes.com/2022/03/02/world/europe/eu-protection-ukraine-refugees.html?searchResultPosition=6
+https://nytimes.com/2022/03/02/world/europe/ukraine-refugees-eu.html?searchResultPosition=6
 
 **Without the Wonderlic, the N.F.L. Finds Other Ways to Test Football I.Q.**\
 `The league will not administer the test, which has been criticized for racial bias, to draft prospects at this year’s scouting combine. Instead, teams are deploying other assessments of football acumen.`\
