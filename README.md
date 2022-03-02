@@ -31,7 +31,7 @@ https://nytimes.com/2022/03/02/climate/global-plastics-recycling-treaty.html?sea
 https://nytimes.com/video/world/europe/100000008235678/united-nations-vote-russia-ukraine.html?searchResultPosition=8
 
 **In Odessa, Ukrainians build defenses and wait for attacks.**\
-`Residents of Ukraine’s critical port on the Black Sea are bracing as Russian naval and ground forces approach.  “Every day they make it seem like today is the day,” the mayor said.`\
+`Residents of Ukraine’s critical port on the Black Sea are bracing as Russian naval and ground forces approach. “Every day they make it seem like today is the day,” the mayor said.`\
 https://nytimes.com/2022/03/02/world/europe/odessa-black-sea-ukraine-russia.html?searchResultPosition=9
 
 **Senators want to know if Russia can use cryptocurrencies to skirt sanctions.**\
