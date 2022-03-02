@@ -23,7 +23,7 @@ https://nytimes.com/2022/03/02/arts/music/dua-lipa-future-nostalgia-tour-review.
 https://nytimes.com/2022/03/02/science/insect-poop-soil.html?searchResultPosition=6
 
 **U.N. General Assembly Votes to Condemn Russia for Ukraine Attacks**\
-`The U.N. General Assembly has adopted a resolution to condemn Russia’s invasion of Ukraine, with 141 countries voting in favor, five voting against and 35 abstaining.`\
+`The U.N. General Assembly has adopted a resolution to condemn Russia’s invasion of Ukraine, with the support of 141 countries. Russia and four other countries opposed the measure, and 34 abstained.`\
 https://nytimes.com/video/world/europe/100000008235859/ukraine-russia-un-vote.html?searchResultPosition=7
 
 **Reimagining Art, One Threesome at a Time**\
