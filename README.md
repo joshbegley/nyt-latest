@@ -1,40 +1,40 @@
-**Dior and Saint Laurent Face the Future**\
-`With wearable tech and reimagined classics. Vaquera comes to Paris.`\
-https://nytimes.com/2022/03/02/style/dior-saint-laurent-paris-fall-2022.html?searchResultPosition=1
+**The C.D.C. no longer recommends universal case investigation and contact tracing.**\
+`“The updated guidance is in response to changes in the nature of the pandemic and the increasing availability of new tools to prevent transmission and mitigate illness,” the agency said.`\
+https://nytimes.com/2022/03/02/health/cdc-contact-tracing.html?searchResultPosition=1
 
-**Stephen Colbert Grades Biden’s First State of the Union Address**\
-`“Many lawmakers wore the colors of the Ukrainian flag, blue and yellow,” Colbert said. “It’s a show of solidarity not seen since the last ‘Minions’ movie.”`\
-https://nytimes.com/2022/03/02/arts/television/stephen-colbert-biden-state-of-the-union.html?searchResultPosition=2
+**$3 Million Homes in Connecticut, North Carolina and Pennsylvania**\
+`A Colonial Revival house in Greenwich, a three-bedroom loft condominium in Asheville and a Gilded Age showplace in Pittsburgh.`\
+https://nytimes.com/2022/03/02/realestate/home-prices-connecticut-north-carolina-and-pennsylvania.html?searchResultPosition=2
 
-**Wilt Chamberlain’s 100-Point Game Changed the N.B.A.**\
-`For the game’s 60th anniversary, two of Chamberlain’s teammates relived the night that was a touchstone for a transcendent athlete and the white-by-design N.B.A.`\
-https://nytimes.com/2022/03/02/sports/basketball/wilt-chamberlain-100-point-game.html?searchResultPosition=3
+**Plainfield, N.J.: A Diverse City With Historic Housing**\
+`The city’s ornate Victorian homes are more affordable than those in surrounding areas. But that’s only one of the reasons that people move here.`\
+https://nytimes.com/2022/03/02/realestate/plainfield-nj-a-diverse-city-with-historic-housing.html?searchResultPosition=3
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/03/02/crosswords/spelling-bee-forum.html?searchResultPosition=4
+**Living In ... Plainfield, N.J.**\
+`The city’s ornate Victorian homes are more affordable than those in surrounding areas. But that’s only one of the reasons that people move here.`\
+https://nytimes.com/slideshow/2022/03/02/realestate/living-in-plainfield-nj.html?searchResultPosition=4
 
-**Who won, who lost and what was too close to call in the Texas primaries.**\
-`The governor’s race is set, but the two-term attorney general is heading into a runoff. Some House primaries were too close to call. Here’s what we know.`\
-https://nytimes.com/2022/03/01/us/elections/texas-primaries-winners-losers-runoffs.html?searchResultPosition=5
+**What You Get for $3 Million**\
+`A Colonial Revival house in Greenwich, Conn.; a three-bedroom loft condominium in Asheville, N.C.; and a Gilded Age showplace in Pittsburgh.`\
+https://nytimes.com/slideshow/2022/03/02/realestate/what-you-get-for-3-million.html?searchResultPosition=5
 
-**Word of the Day: impede**\
-`This word has appeared in 132 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/03/02/learning/word-of-the-day-impede.html?searchResultPosition=6
+**5 Minutes That Will Make You Love Wagner**\
+`Rian Johnson, Patti Smith, Alex Ross and others offer favorite highlights of a composer best known for his sprawling length.`\
+https://nytimes.com/2022/03/02/arts/music/wagner-opera-classical-music.html?searchResultPosition=6
 
-**Cisneros forces Cuellar into a runoff, a sign of liberal strength in a key Texas congressional race.**\
-`In the most closely watched House primary, Representative Henry Cuellar, a longtime Democratic incumbent, was forced into a runoff with Jessica Cisneros, a 28-year-old progressive lawyer.`\
-https://nytimes.com/2022/03/01/us/elections/texas-congress-28th-liberals-republicans.html?searchResultPosition=7
+**I Love London Theater. But Not London Theatergoing.**\
+`While full of fine shows, a long-awaited binge was also full of stress about how loosely audiences followed rules about staying healthy in a pandemic.`\
+https://nytimes.com/2022/03/02/theater/london-theater-pandemic-safety.html?searchResultPosition=7
 
-**State of the Union: Biden Condemns Russia, Promotes Economic Plan**\
-`During his first State of the Union address, President Biden said Russia “badly miscalculated” its decision to invade Ukraine. Mr. Biden also renewed calls to pass his social spending plan.`\
-https://nytimes.com/video/us/politics/100000008235263/state-of-the-union-biden-russia-highlights.html?searchResultPosition=8
+**They Came to Help Migrants. Now, Europe Has Turned on Them.**\
+`As the legal ordeal of two aid workers shows, anti-migrant attitudes in Greece and across Europe have hardened — to the point that the helpers have become political targets.`\
+https://nytimes.com/2022/03/02/magazine/greece-migration-ngos.html?searchResultPosition=8
 
-**How You Can Help Ukraine**\
-`There are many worthy groups asking for donations. Here are four standouts.`\
-https://nytimes.com/interactive/2022/03/02/opinion/ukraine-charity-donation-guide.html?searchResultPosition=9
+**Billionaires Clash Over the Future in a Caribbean Eden**\
+`A legal feud over a hotel in St. Barts pits development against fragile nature on this tropical Arcadia for the ultrarich. It might also signal a turning point in the hyper-development of the island.`\
+https://nytimes.com/2022/03/02/travel/st-barts-hotel-development.html?searchResultPosition=9
 
-**Biden Has the Right Idea, but the Wrong Words**\
-`A Biden doctrine is emerging, even if he got only halfway there in his State of the Union address.`\
-https://nytimes.com/2022/03/02/opinion/biden-state-of-the-union.html?searchResultPosition=10
+**Millions for Crypto Start-Ups, No Real Names Necessary**\
+`Investors give money to pseudonymous developers. Venture capitalists back founders without learning their real names. What happens when they need to know?`\
+https://nytimes.com/2022/03/02/technology/cryptocurrency-anonymity-alarm.html?searchResultPosition=10
 
