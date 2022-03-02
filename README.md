@@ -1,4 +1,4 @@
-**Powell says that rates are headed higher, even as Ukraine poses uncertainty.**\
+**Powell Says Rates Are Headed Higher, Even as Ukraine Poses Uncertainty**\
 `Federal Reserve Chair Jerome Powell said the central bank is likely to raise rates at its meeting this month, even with geopolitical upheaval.`\
 https://nytimes.com/2022/03/02/business/jerome-powell-interest-rates.html?searchResultPosition=1
 
