@@ -32,7 +32,7 @@ https://nytimes.com/2022/03/02/business/us-ukraine-belarus-technology-restrictio
 
 **The U.N. General Assembly passes a resolution strongly condemning Russia’s invasion.**\
 `The four-page document calls for an immediate halt to the conflict, urges diplomatic negotiations for a peaceful resolution and says Russia’s territorial gain through force will not be recognized.`\
-https://nytimes.com/2022/03/02/world/europe/un-condemn-russia-invasion.html?searchResultPosition=9
+https://nytimes.com/2022/03/02/world/europe/russia-un-invasion-condemn.html?searchResultPosition=9
 
 **A coalition of state attorneys general opens an investigation into TikTok.**\
 `The group is looking into the Chinese-owned video site for the harms it may pose to younger users.`\
