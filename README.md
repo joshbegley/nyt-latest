@@ -10,13 +10,13 @@ https://nytimes.com/2022/03/02/realestate/home-prices-connecticut-north-carolina
 `The city’s ornate Victorian homes are more affordable than those in surrounding areas. But that’s only one of the reasons that people move here.`\
 https://nytimes.com/2022/03/02/realestate/plainfield-nj-a-diverse-city-with-historic-housing.html?searchResultPosition=3
 
-**Living In ... Plainfield, N.J.**\
-`The city’s ornate Victorian homes are more affordable than those in surrounding areas. But that’s only one of the reasons that people move here.`\
-https://nytimes.com/slideshow/2022/03/02/realestate/living-in-plainfield-nj.html?searchResultPosition=4
-
 **What You Get for $3 Million**\
 `A Colonial Revival house in Greenwich, Conn.; a three-bedroom loft condominium in Asheville, N.C.; and a Gilded Age showplace in Pittsburgh.`\
-https://nytimes.com/slideshow/2022/03/02/realestate/what-you-get-for-3-million.html?searchResultPosition=5
+https://nytimes.com/slideshow/2022/03/02/realestate/what-you-get-for-3-million.html?searchResultPosition=4
+
+**Living In ... Plainfield, N.J.**\
+`The city’s ornate Victorian homes are more affordable than those in surrounding areas. But that’s only one of the reasons that people move here.`\
+https://nytimes.com/slideshow/2022/03/02/realestate/living-in-plainfield-nj.html?searchResultPosition=5
 
 **5 Minutes That Will Make You Love Wagner**\
 `Rian Johnson, Patti Smith, Alex Ross and others offer favorite highlights of a composer best known for his sprawling length.`\
