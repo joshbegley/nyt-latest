@@ -8,7 +8,7 @@ https://nytimes.com/2022/03/02/arts/design/magritte-auction-sothebys.html?search
 
 **First Ukraine City Falls as Russia Strikes More Civilian Targets**\
 `Russian forces seized the southern city of Kherson and besieged other cities, with casualties and destruction mounting, as Western sanctions tightened their vise grip on Russia’s economy.`\
-https://nytimes.com/2022/03/02/world/europe/russia-ukraine-war.html?searchResultPosition=3
+https://nytimes.com/2022/03/02/world/europe/kherson-ukraine-russia.html?searchResultPosition=3
 
 **How the Coronavirus Steals the Sense of Smell**\
 `The virus does not infect nerve cells that detect odors, researchers have found. Instead, it attacks nearby supporting cells.`\
