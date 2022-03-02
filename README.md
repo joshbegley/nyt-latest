@@ -24,7 +24,7 @@ https://nytimes.com/2022/03/02/world/europe/eu-protection-ukraine-refugees.html?
 
 **Without the Wonderlic, the N.F.L. Finds Other Ways to Test Football I.Q.**\
 `The league will not administer the test, which has been criticized for racial bias, to draft prospects at this year’s scouting combine. Instead, teams are deploying other assessments of football acumen.`\
-https://nytimes.com/2022/03/02/sports/football/nfl-combine-draft-wonderlic.html?searchResultPosition=7
+https://nytimes.com/2022/03/02/sports/football/nfl-wonderlic-test.html?searchResultPosition=7
 
 **Biden’s Fed Nominees Are Frozen as One Faces Republican Questions**\
 `Sarah Bloom Raskin, his choice for the Federal Reserve’s head of bank oversight, has faced staunch G.O.P. opposition over her climate views. Yet her private sector work is holding up her nomination.`\
