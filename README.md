@@ -4,7 +4,7 @@ https://nytimes.com/2022/03/02/nyregion/threes-brewing-vaccine-mandate-josh-styl
 
 **Schools Chancellor Pledges to End New York City’s ‘Betrayal’ of Students**\
 `David Banks vowed in his first major policy address since becoming chancellor to break up bureaucracy, improve literacy and emphasize wellness in schools.`\
-https://nytimes.com/2022/03/02/nyregion/david-banks-nyc-schools-chancellor.html?searchResultPosition=2
+https://nytimes.com/2022/03/02/nyregion/nyc-schools-david-banks-chancellor.html?searchResultPosition=2
 
 **China Asked Russia to Delay Ukraine War Until After Olympics, U.S. Officials Say**\
 `A Western intelligence report indicates that Chinese officials had some level of knowledge about President Vladimir V. Putin’s war plans or intentions.`\
