@@ -12,7 +12,7 @@ https://nytimes.com/2022/03/02/us/politics/russia-ukraine-china.html?searchResul
 
 **Trump Hotel Chief, Hired With Big Ambitions, Leaves a Shrinking Brand**\
 `Eric Danziger was the only outsider to lead the Trump hotel group. His departure, for family reasons, comes as the Trumps pursue a future beyond hotels.`\
-https://nytimes.com/2022/03/02/business/trump-hotels-ceo-eric-danziger.html?searchResultPosition=4
+https://nytimes.com/2022/03/02/business/trump-hotel-eric-danziger.html?searchResultPosition=4
 
 **Dua Lipa Brings Her Lockdown Anthems to the Arena**\
 `The pop star’s second album, “Future Nostalgia,” is ambitious and impressive. Onstage, the production didn’t match the LP’s ecstasy.`\
