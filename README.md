@@ -20,7 +20,7 @@ https://nytimes.com/2022/03/02/us/breonna-taylor-hankison-trial.html?searchResul
 
 **Putin’s Maestro, and the Limits of Cultural Exchange in Wartime**\
 `The Russian conductor Valery Gergiev and the diva Anna Netrebko have lost engagements because of their ties to Putin, as geopolitics and music collide once again.`\
-https://nytimes.com/2022/03/02/arts/music/valery-gergiev-anna-netrebko-putin-ukraine.html?searchResultPosition=6
+https://nytimes.com/2022/03/02/arts/music/ukraine-putin-valery-gergiev-anna-netrebko.html?searchResultPosition=6
 
 **Stop-Start Schooling**\
 `The hidden costs of Omicron’s classroom closures.`\
