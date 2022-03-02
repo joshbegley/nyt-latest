@@ -1,5 +1,5 @@
 **Unity in a Foreign Policy Crisis, but Questions Still to be Answered**\
-`President Biden emphasized the resolve of the Atlantic alliance, but acknowledged that Vladimir Putin may not be deterred from further efforts to reconstitute the Soviet bloc.`\
+`President Biden emphasized allies’ resolve in his State of the Union address, but acknowledged Russia may not be deterred from further efforts to reconstitute the Soviet bloc.`\
 https://nytimes.com/2022/03/01/us/politics/sotu-biden-putin-ukraine.html?searchResultPosition=1
 
 **Quotation of the Day: The Night That Changed the N.B.A.**\
