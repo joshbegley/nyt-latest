@@ -1,5 +1,5 @@
 **Vladimir Potanin, Russian Oligarch, Steps Down as Guggenheim Trustee**\
-`Potanin, one of the richest men in Russia and a Guggenheim Museum donor for decades, is the latest oligarch affected by widening outrage over the war in Ukraine.`\
+`Mr. Potanin, one of the richest men in Russia and a Guggenheim Museum donor for decades, is the latest oligarch affected by widening outrage over the war in Ukraine.`\
 https://nytimes.com/2022/03/02/arts/design/vladimir-potanin-russian-oligarch-guggenheim.html?searchResultPosition=1
 
 **‘Against the Ice’ Review: Snow Buddies**\
