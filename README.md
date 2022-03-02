@@ -24,7 +24,7 @@ https://nytimes.com/2022/03/02/style/at-the-state-of-the-union-dressing-for-ukra
 
 **Also at Stake in Ukraine: the Future of Two Orthodox Churches**\
 `The Russian church hopes to reunite with the independent Ukrainian branch under a single patriarch in Moscow that would allow it to control the holiest sites of Orthodoxy in the Slavic world.`\
-https://nytimes.com/2022/03/02/world/europe/also-at-stake-in-ukraine-the-future-of-two-orthodox-churches.html?searchResultPosition=7
+https://nytimes.com/2022/03/02/world/europe/russia-ukraine-orthodox-church.html?searchResultPosition=7
 
 **Putin’s War to Bring Ukraine to Heel Unites Eastern Europe in Alarm**\
 `Many countries fear that the Russian leader’s efforts to turn back the clock and reclaim a sphere of influence lost at the end of the Cold War could spell disaster for them.`\
