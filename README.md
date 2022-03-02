@@ -4,7 +4,7 @@ https://nytimes.com/2022/03/02/world/europe/trains-russia-finland.html?searchRes
 
 **Ukraine, State of the Union, St. Barts: Your Wednesday Evening Briefing**\
 `Here’s what you need to know at the end of the day.`\
-https://nytimes.com/2022/03/02/briefing/your-wednesday-evening-briefing.html?searchResultPosition=2
+https://nytimes.com/2022/03/02/briefing/ukraine-state-of-the-union-st-barts.html?searchResultPosition=2
 
 **Putin Is Brandishing the Nuclear Option. How Serious Is the Threat?**\
 `The Russian president has ordered his nuclear forces into a higher state of alert — the first time the Kremlin has done so since 1991.`\
