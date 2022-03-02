@@ -20,7 +20,7 @@ https://nytimes.com/2022/03/02/business/economy/starbucks-union-buffalo.html?sea
 
 **Phil Mickelson’s Setbacks Keep Coming, and Tiger Woods Gets a Bonus**\
 `Mickelson previously boasted that he won the PGA Tour’s new program that pays the most popular pros, but the embattled golfer finished behind his rival once again.`\
-https://nytimes.com/2022/03/02/sports/golf/mickelson-woods-pga.html?searchResultPosition=6
+https://nytimes.com/2022/03/02/sports/golf/pga-tiger-woods-phil-mickelson.html?searchResultPosition=6
 
 **Modern Love Podcast: You May Think You Know Your Parents**\
 `That is, until you have a startling revelation about them in adulthood.`\
