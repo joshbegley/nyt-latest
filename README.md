@@ -10,7 +10,7 @@ https://nytimes.com/2022/03/03/world/europe/putin-macron-call.html?searchResultP
 `Presidents plan. History laughs.`\
 https://nytimes.com/2022/03/03/opinion/biden-ukraine-putin-russia-sotu.html?searchResultPosition=3
 
-**The History of Trivia and Why Netflix Jumped Into the Game**\
+**The History of Trivia and Why Netflix is Jumping Into the Game**\
 `From bar gatherings to Zoom calls, trivia is widely popular, and Netflix wants to join the buzz.`\
 https://nytimes.com/2022/03/03/crosswords/history-trivia-netflix.html?searchResultPosition=4
 
