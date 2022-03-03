@@ -1,5 +1,5 @@
 **REI Workers in New York Vote to Unionize**\
-`The vote creates the first union at the prominent outdoor equipment and apparel retailer.`\
+`The 88-to-14 result creates the first union at the prominent outdoor equipment and apparel retailer.`\
 https://nytimes.com/2022/03/02/business/rei-union-new-york.html?searchResultPosition=1
 
 **Texas Court Halts Investigation of Parents Over Care for Transgender Youth**\
