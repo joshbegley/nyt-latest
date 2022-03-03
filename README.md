@@ -7,7 +7,7 @@ https://nytimes.com/2022/03/03/us/ukraine-flag-sales.html?searchResultPosition=1
 https://nytimes.com/2022/03/03/us/politics/doug-ducey-arizona-senate.html?searchResultPosition=2
 
 **Maryland Apartment Fire Leaves Several Injured**\
-`Officials said 911 callers reported an “explosion” at an apartment building in Silver Spring, Md., where a fire destroyed most of the structure and injured at least 10 people.`\
+`Officials said 911 calls came in reporting an explosion at the Friendly Garden Apartments complex in Silver Spring, Md., north of Washington, on Thursday morning.`\
 https://nytimes.com/video/us/100000008237832/silver-spring-maryland-fire.html?searchResultPosition=3
 
 **Review: A Soprano’s Sound Floods the Met in ‘Ariadne’**\
