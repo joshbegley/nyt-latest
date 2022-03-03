@@ -36,5 +36,5 @@ https://nytimes.com/2022/03/03/us/politics/russia-oil-ban-congress-ukraine.html?
 
 **Top U.S. health officials say they intend to offer other nations tech that might be used against Covid.**\
 `Dr. Fauci would not be specific about which technologies will be included and could not say if Moderna’s powerful coronavirus vaccine — developed in partnership with N.I.H. scientists — would be among them, he said.`\
-https://nytimes.com/2022/03/03/us/politics/us-health-officials-tech-covid.html?searchResultPosition=10
+https://nytimes.com/2022/03/03/us/politics/fauci-us-health-officials-tech-covid.html?searchResultPosition=10
 
