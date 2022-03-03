@@ -1,40 +1,40 @@
-**Hundreds Held After New Zealand-Led Investigation Into Images of Child Abuse**\
-`An international collaboration resulted in the rescue of dozens of children and exposed a secret global network used to share material on sexual abuse.`\
-https://nytimes.com/2022/03/03/world/asia/new-zealand-child-sexual-abuse.html?searchResultPosition=1
+**The ‘Disney’ for Boomers Puts Hedonism on Full Display**\
+`The Florida retirement community captures the intensity of our political moment.`\
+https://nytimes.com/2022/03/03/opinion/the-disney-for-boomers-puts-hedonism-on-full-display.html?searchResultPosition=1
 
-**Paralympics, in Reversal, Bars Athletes From Russia and Belarus**\
-`Paralympics organizers citied athlete discontent, boycott threats and a fear of violence in ejecting the athletes on the eve of the opening ceremony.`\
-https://nytimes.com/2022/03/03/sports/olympics/paralympics-russia.html?searchResultPosition=2
+**In Glitter and Leotards, They Took a Stand: Carnival Must Go On**\
+`After Brazil’s biggest party was effectively canceled for the second straight year, a group of artists rallied to play on despite police orders.`\
+https://nytimes.com/2022/03/03/world/americas/brazil-carnival-rio.html?searchResultPosition=2
 
-**As Cases Skyrocket, New Zealand Finally Faces Its Covid Reckoning**\
-`New Zealanders are anxious as they learn to live with the pandemic-related risk that has been a fact of life elsewhere for two years.`\
-https://nytimes.com/2022/03/03/world/australia/new-zealand-covid-omicron.html?searchResultPosition=3
+**The Salt, the Light, the Emptiness: Why We Love Red Hook**\
+`The isolated Brooklyn enclave, which resembles a forgotten seaside town, seems to be every New Yorker’s favorite neighborhood. At least for an afternoon. And not in flood season.`\
+https://nytimes.com/2022/03/03/nyregion/the-salt-the-light-the-emptiness-why-we-love-red-hook.html?searchResultPosition=3
 
-**Julia Fox Will Come for You**\
-`One latex-clad evening in Italy with the woman who hasn’t yet had her fill of fame.`\
-https://nytimes.com/2022/03/03/style/julia-fox-kanye-modeling-movies.html?searchResultPosition=4
+**5 Things to Do This Weekend**\
+`Our critics and writers have selected noteworthy cultural events to experience virtually and in person in New York City.`\
+https://nytimes.com/2022/03/03/arts/things-to-do-this-weekend.html?searchResultPosition=4
 
-**He Banned the Yahoos and Kept the Social X-Rays Fed**\
-`At Mortimer’s, Glenn Bernbaum reigned over social New York for decades. A new book evokes an era of pouf skirts, society walkers and ladies who lunched.`\
-https://nytimes.com/2022/03/03/style/he-banned-the-yahoos-and-kept-the-social-x-rays-fed.html?searchResultPosition=5
+**Need an Engraved Tombstone? It Could Be a Long Wait.**\
+`Supply chain issues are affecting the few memorial businesses left in New York, a former hub for the ‘old-world craft.’`\
+https://nytimes.com/2022/03/03/nyregion/tombstone-memorial-supply-chain.html?searchResultPosition=5
 
-**Strong Stance on China and Peng Shuai Helps Land WTA a New Title Sponsor**\
-`The women’s tennis tour has been without a title sponsor since 2010, but the medical diagnostics company Hologic has agreed to a multiyear deal with the WTA.`\
-https://nytimes.com/2022/03/03/sports/tennis/wta-hologic-china.html?searchResultPosition=6
+**What Rashida Tlaib Represents**\
+`She changed the Israeli-Palestinian debate in Congress by reminding her colleagues of the human stakes. It’s a burden she would rather not carry.`\
+https://nytimes.com/2022/03/03/magazine/rashida-tlaib.html?searchResultPosition=6
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/03/03/crosswords/spelling-bee-forum.html?searchResultPosition=7
+**Talking War and Market Volatility With a Giant of Economics**\
+`Eugene F. Fama, the father of the efficient-markets theory, says the stock market can’t easily process “irrational” behavior. What will happen? “Who knows?” he says.`\
+https://nytimes.com/2022/03/03/business/ukraine-putin-markets.html?searchResultPosition=7
 
-**Word of the Day: de rigueur**\
-`This term has appeared in 39 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/03/03/learning/word-of-the-day-de-rigueur.html?searchResultPosition=8
+**Across Town, Tony Bland Is Adjusting to a Different World**\
+`Bland, a former U.S.C. assistant coach arrested in 2017 as part of an F.B.I. investigation, is now coaching at a Los Angeles-area high school. He still hopes he can return to the college level.`\
+https://nytimes.com/2022/03/03/sports/basketball/tony-bland-st-bernard-usc-basketball.html?searchResultPosition=8
 
-**Late Night Recaps Biden’s Annual ‘Status Update’**\
-`Trevor Noah joked Biden’s speech was “like a birthday card from a 4-year-old: A lot of words didn’t make sense, but you got what it was trying to say.”`\
-https://nytimes.com/2022/03/03/arts/television/late-night-trevor-noah-biden.html?searchResultPosition=9
+**Her I.B.S. Was Misery. But What If She Actually Had Something Else?**\
+`For two decades, the patient was told she had irritable bowel syndrome, and now there was little she was able to eat. Then her tests showed something strange.`\
+https://nytimes.com/2022/03/03/magazine/irritable-bowel-syndrome-brucellosis.html?searchResultPosition=9
 
-**Russia Has Suffered a Crushing Moral Defeat. And Russians Know It.**\
-`For many Russians, the invasion of Ukraine is a visceral horror.`\
-https://nytimes.com/2022/03/03/opinion/russia-ukraine-war.html?searchResultPosition=10
+**Hotels Roll Out the Welcome Mat to ‘Super Commuters’**\
+`As remote work shifts to hybrid models, employees who moved to the suburbs or beyond are becoming weekly fixtures at city hotels on those days when they must make an appearance at the office.`\
+https://nytimes.com/2022/03/03/travel/hotels-commuters.html?searchResultPosition=10
 
