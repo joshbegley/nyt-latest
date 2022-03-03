@@ -16,7 +16,7 @@ https://nytimes.com/2022/03/02/us/sacramento-church-shooting.html?searchResultPo
 
 **Jan. 6 Committee Lays Out Potential Criminal Charges Against Trump**\
 `In a court filing, the panel said there was enough evidence to suggest that the former president might have engaged in a criminal conspiracy as he fought to remain in office.`\
-https://nytimes.com/2022/03/02/us/politics/jan-6-committee-trump-criminal-charges.html?searchResultPosition=5
+https://nytimes.com/2022/03/02/us/politics/trump-criminal-charges-jan-6.html?searchResultPosition=5
 
 **‘Fiat Lux’ vs. ‘Lux et Veritas’**\
 `August Lee-Kovach has his second crossword puzzle published in The New York Times.`\
