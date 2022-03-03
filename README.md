@@ -1,6 +1,6 @@
 **DakhaBrakha, a Band From Kyiv, Saw a War Coming**\
 `“We can’t make any music,” the singer and cellist Nina Garenetska said. “This is our life now: An air raid siren goes off.”`\
-https://nytimes.com/2022/03/03/arts/music/dakhabrakha-uktraine.html?searchResultPosition=1
+https://nytimes.com/2022/03/03/arts/music/dakhabrakha-ukraine.html?searchResultPosition=1
 
 **Take a Look: ‘Reading Rainbow’ Goes Live, With New Friends to Know**\
 `With a diverse young cast and a lot more dancing, a reboot of the beloved series will be livestreaming, inviting children to interact virtually.`\
