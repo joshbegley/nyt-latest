@@ -1,4 +1,4 @@
-**Tech workers at The Times vote to certify their union.**\
+**New York Times Tech Workers Vote to Certify Union**\
 `The ratification, with about 80 percent of ballots in favor, makes it the largest tech union in the United States with collective bargaining rights.`\
 https://nytimes.com/2022/03/03/business/media/new-york-times-tech-union.html?searchResultPosition=1
 
