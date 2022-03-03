@@ -1,5 +1,5 @@
 **How to Prepare for a Future of Work in Flux**\
-` `\
+`Your talent strategy is already outdated. Ethical, intelligent data deployment, innovative corporate structures and a sense of empathy can help.`\
 https://nytimes.com/paidpost/indeed/how-to-prepare-for-a-future-of-work-in-flux.html?searchResultPosition=1
 
 **Twitch Says It Will Bar Chronic Spreaders of Misinformation**\
