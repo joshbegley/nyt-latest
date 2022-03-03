@@ -3,7 +3,7 @@
 https://nytimes.com/2022/03/03/world/asia/new-zealand-child-sexual-abuse.html?searchResultPosition=1
 
 **Paralympics, in Reversal, Bars Athletes From Russia and Belarus**\
-`Overturning their day-old decision, Paralympics organizers citied athlete discontent, boycott threats and a fear of violence in ejecting the athletes on the eve of the Games.`\
+`Paralympics organizers citied athlete discontent, boycott threats and a fear of violence in ejecting the athletes on the eve of the opening ceremony.`\
 https://nytimes.com/2022/03/03/sports/olympics/paralympics-russia.html?searchResultPosition=2
 
 **As Cases Skyrocket, New Zealand Finally Faces Its Covid Reckoning**\
