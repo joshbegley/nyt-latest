@@ -1,5 +1,5 @@
 **Paralympics, in Reversal, Bars Athletes From Russia and Belarus**\
-`Overturning their day-old decision, Paralympics organizers citied athlete discontent and boycott threats in ejecting the athletes on the eve of the Games.`\
+`Overturning their day-old decision, Paralympics organizers citied athlete discontent, boycott threats and a fear of violence in ejecting the athletes on the eve of the Games.`\
 https://nytimes.com/2022/03/03/sports/olympics/paralympics-russia.html?searchResultPosition=1
 
 **As Cases Skyrocket, New Zealand Finally Faces Its Covid Reckoning**\
