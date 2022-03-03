@@ -36,5 +36,5 @@ https://nytimes.com/2022/03/03/arts/things-to-do-this-weekend.html?searchResultP
 
 **Need an Engraved Tombstone? It Could Be a Long Wait.**\
 `Supply chain issues are affecting the few memorial businesses left in New York, a former hub for the ‘old-world craft.’`\
-https://nytimes.com/2022/03/03/nyregion/tombstone-memorial-supply-chain.html?searchResultPosition=10
+https://nytimes.com/2022/03/03/nyregion/engraved-tombstone.html?searchResultPosition=10
 
