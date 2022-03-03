@@ -20,7 +20,7 @@ https://nytimes.com/2022/03/03/business/duvall-hecht-dead.html?searchResultPosit
 
 **Russia’s Isolation on Earth Moves Up Into Space**\
 `OneWeb, a British satellite maker, canceled launches reliant on Russia, which also announced it would cease selling rocket engines to American companies.`\
-https://nytimes.com/2022/03/03/science/space-russia-oneweb.html?searchResultPosition=6
+https://nytimes.com/2022/03/03/science/russia-oneweb-launch.html?searchResultPosition=6
 
 **Push for Language Access After Ida Highlights a Greater Need in N.Y.**\
 `The storm hit the city’s immigrant communities hard, and the New York attorney general called this week for severe weather alerts to be sent in more languages. Advocates say deeper changes are needed.`\
