@@ -28,7 +28,7 @@ https://nytimes.com/2022/03/03/world/americas/brazil-carnival.html?searchResultP
 
 **The Salt, the Light, the Emptiness: Why We Love Red Hook**\
 `The isolated Brooklyn enclave, which resembles a forgotten seaside town, seems to be every New Yorker’s favorite neighborhood. At least for an afternoon. And not in flood season.`\
-https://nytimes.com/2022/03/03/nyregion/the-salt-the-light-the-emptiness-why-we-love-red-hook.html?searchResultPosition=8
+https://nytimes.com/2022/03/03/nyregion/red-hook-brooklyn.html?searchResultPosition=8
 
 **5 Things to Do This Weekend**\
 `Our critics and writers have selected noteworthy cultural events to experience virtually and in person in New York City.`\
