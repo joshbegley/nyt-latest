@@ -1,6 +1,6 @@
 **More than 800 medical students, most African or Indian, are stranded in northeastern Ukraine.**\
 `“It’s always one answer” for those trying to get out of the town of Sumy, said one of the students. “The roads are blocked and they are not safe.”`\
-https://nytimes.com/2022/03/03/world/europe/foreign-medical-students-stranded-ukraine.html?searchResultPosition=1
+https://nytimes.com/2022/03/03/world/europe/medical-students-stranded-ukraine.html?searchResultPosition=1
 
 **The Biden administration asks Congress for $10 billion to support Ukraine.**\
 `By Catie Edmondson and Emily Cochrane`\
