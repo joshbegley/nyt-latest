@@ -1,4 +1,4 @@
-**Mother of Children Fatally Shot by Their Father Said She Lived in Fear**\
+**Mother of Children Killed by Their Father Said She Lived in Fear**\
 `The woman obtained a restraining order in 2021 after telling a California court, “He has not killed me because he would not know where to go with the children.”`\
 https://nytimes.com/2022/03/02/us/sacramento-church-shooting.html?searchResultPosition=1
 
