@@ -8,7 +8,7 @@ https://nytimes.com/2022/03/03/theater/christopher-ruping-wagner-ring.html?searc
 
 **This Map Shows Where Biodiversity Is Most at Risk in America**\
 `New maps provide a valuable tool to officials and scientists scrambling to protect threatened species.`\
-https://nytimes.com/interactive/2022/03/03/climate/at-risk-biodiversity-map.html?searchResultPosition=3
+https://nytimes.com/interactive/2022/03/03/climate/biodiversity-map.html?searchResultPosition=3
 
 **Vocabulary in Context: Starry Skies**\
 `Test your vocabulary and reading comprehension with this quiz based on the Times article "Beneath a Blanket of Stars."`\
