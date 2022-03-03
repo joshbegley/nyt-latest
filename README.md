@@ -24,7 +24,7 @@ https://nytimes.com/2022/03/03/opinion/the-disney-for-boomers-puts-hedonism-on-f
 
 **In Glitter and Leotards, They Took a Stand: Carnival Must Go On**\
 `After Brazil’s biggest party was effectively canceled for the second straight year, a group of artists rallied to play on despite police orders.`\
-https://nytimes.com/2022/03/03/world/americas/brazil-carnival-rio.html?searchResultPosition=7
+https://nytimes.com/2022/03/03/world/americas/brazil-carnival.html?searchResultPosition=7
 
 **The Salt, the Light, the Emptiness: Why We Love Red Hook**\
 `The isolated Brooklyn enclave, which resembles a forgotten seaside town, seems to be every New Yorker’s favorite neighborhood. At least for an afternoon. And not in flood season.`\
