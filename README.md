@@ -1,5 +1,5 @@
 **Melania Trump Event Called Off After Officials Question Fund-Raising**\
-`Florida regulators found that a company the former first lady was working with had not properly registered to solicit contributions for a charitable event.`\
+`Florida regulators found that a company working on the charitable event had not registered properly. The former first lady’s office said it would be rescheduled.`\
 https://nytimes.com/2022/03/03/us/politics/melania-trump-fund-raiser-postponed.html?searchResultPosition=1
 
 **Lukoil, a Russian Oil Company, Calls for an End to the Ukraine War**\
