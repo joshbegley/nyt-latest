@@ -12,7 +12,7 @@ https://nytimes.com/2022/03/03/world/australia/new-zealand-covid-omicron.html?se
 
 **Julia Fox Will Come for You**\
 `One latex-clad evening in Italy with the woman who hasn’t yet had her fill of fame.`\
-https://nytimes.com/2022/03/03/style/julia-fox-will-come-for-you.html?searchResultPosition=4
+https://nytimes.com/2022/03/03/style/julia-fox-kanye-modeling-movies.html?searchResultPosition=4
 
 **He Banned the Yahoos and Kept the Social X-Rays Fed**\
 `At Mortimer’s, Glenn Bernbaum reigned over social New York for decades. A new book evokes an era of pouf skirts, society walkers and ladies who lunched.`\
