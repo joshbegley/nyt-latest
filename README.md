@@ -8,7 +8,7 @@ https://nytimes.com/interactive/2022/03/03/your-money/child-credit-taxes.html?se
 
 **From ‘Zero’ to Surge**\
 `New Zealand and Hong Kong’s surges come after two years of very low cases.`\
-https://nytimes.com/2022/03/03/briefing/from-zero-to-surge.html?searchResultPosition=3
+https://nytimes.com/2022/03/03/briefing/hong-kong-new-zealand-covid-surge.html?searchResultPosition=3
 
 **Emmanuel Macron Goes Low-Key, Finally Declaring Bid for Re-election**\
 `With a war raging in Europe, the incumbent French president leads in polls and is betting that the French won’t want to change horses in the midst of the Ukraine conflict.`\
