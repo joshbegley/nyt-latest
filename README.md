@@ -1,6 +1,6 @@
 **REI Workers in New York Vote to Unionize**\
 `The vote creates the first union at the prominent outdoor equipment and apparel retailer.`\
-https://nytimes.com/2022/03/02/business/rei-union-soho-store.html?searchResultPosition=1
+https://nytimes.com/2022/03/02/business/rei-union-new-york.html?searchResultPosition=1
 
 **Texas Court Halts Investigation of Parents Over Care for Transgender Youth**\
 `One family was affected by the decision, but Gov. Greg Abbott’s order to investigate certain medically accepted treatments as child abuse is still in place.`\
