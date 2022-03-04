@@ -8,7 +8,7 @@ https://nytimes.com/2022/03/04/briefing/the-great-school-unmasking.html?searchRe
 
 **Your Friday Evening Briefing**\
 `Here’s what you need to know at the end of the day.`\
-https://nytimes.com/2022/03/04/briefing/russia-new-york-city-pets-friday-evening-briefing.html?searchResultPosition=3
+https://nytimes.com/2022/03/04/briefing/ukraine-new-york-city-pets-friday-evening-briefing.html?searchResultPosition=3
 
 **A suit filed by the A.C.L.U. accuses I.C.E. jailers of denying detainees vaccines.**\
 `One of the plaintiffs is Anna Sorokin, a Russian immigrant who for several years presented herself as a German heiress named Anna Delvey. She received a booster shot on Thursday, two days after the suit was filed.`\
