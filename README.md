@@ -24,7 +24,7 @@ https://nytimes.com/2022/03/04/arts/music/blomstedt-new-york-philharmonic-review
 
 **What Putin’s war could mean for fossil fuels**\
 `Also in this edition of the newsletter: A map that shows imperiled biodiversity in the lower 48 states.`\
-https://nytimes.com/2022/03/04/climate/ukraine-war-fossil-fuels.html?searchResultPosition=7
+https://nytimes.com/2022/03/04/climate/ukraine-russia-war-fossil-fuels.html?searchResultPosition=7
 
 **Harry Belafonte Turns 95 With a Call for Social Justice**\
 `Spike Lee, Cornel West, and Alicia Keys turn out to celebrate an entertainer who put his career on the line for the cause.`\
