@@ -1,4 +1,4 @@
-**Your Thursday Briefing**\
+**Your Friday Briefing**\
 `Russia gains ground in southern Ukraine.`\
 https://nytimes.com/2022/03/03/briefing/ukraine-covid-trump.html?searchResultPosition=1
 
