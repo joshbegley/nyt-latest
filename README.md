@@ -26,7 +26,7 @@ https://nytimes.com/interactive/2022/03/04/sports/soccer/chelsea-abramovich-sale
 `Officials made the accusation Friday as part of a display of a unified front in support of Ukraine, but rejected a plea from Kyiv to impose a no-fly zone over its airspace.`\
 https://nytimes.com/2022/03/04/world/europe/nato-ukraine-russia-cluster-bombs.html?searchResultPosition=7
 
-**Russia Blocks Facebook Inside Country, as the Kremlin Moves to Stifle Dissent**\
+**Russia blocks Facebook inside the country, as the Kremlin moves to stifle dissent.**\
 `The step could signal further restrictions against other tech companies such as Google, which owns YouTube, and Twitter. Both have also been under pressure by the Russian government.`\
 https://nytimes.com/2022/03/04/world/europe/russia-facebook-ukraine.html?searchResultPosition=8
 
