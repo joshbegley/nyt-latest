@@ -24,7 +24,7 @@ https://nytimes.com/interactive/2022/03/04/sports/soccer/chelsea-abramovich-sale
 
 **NATO Accuses Russia of Using Cluster Bombs in Ukraine**\
 `Officials made the accusation Friday as part of a display of a unified front in support of Ukraine, but rejected a plea from Kyiv to impose a no-fly zone over its airspace.`\
-https://nytimes.com/2022/03/04/world/europe/nato-ukraine-russia-war-cluster-bombs.html?searchResultPosition=7
+https://nytimes.com/2022/03/04/world/europe/nato-ukraine-russia-cluster-bombs.html?searchResultPosition=7
 
 **Ukraine War Forces a Question: How Far East Does Europe Go?**\
 `After Russia invaded, Ukraine asked to join the European Union, quickly. Moldova and Georgia have asked too. Member states would rather not answer.`\
