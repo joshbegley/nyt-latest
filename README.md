@@ -28,7 +28,7 @@ https://nytimes.com/2022/03/04/style/love-letter-newsletter-her-memory-as-role-m
 
 **The War in Ukraine Holds a Warning for the World Order**\
 `The multinational response shows that liberalism has some life left. But the challenges posed by waning U.S. power and rising authoritarianism remain formidable.`\
-https://nytimes.com/2022/03/04/world/ukraine-war-world-order.html?searchResultPosition=8
+https://nytimes.com/2022/03/04/world/ukraine-russia-war-authoritarianism.html?searchResultPosition=8
 
 **With His Sci-Fi Android, a Filmmaker Considers What It Means to Be Alive**\
 `Kogonada, whose new film is the futuristic A.I. drama “After Yang,” reflects on the nature of his work, and of existence.`\
