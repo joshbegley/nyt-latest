@@ -4,7 +4,7 @@ https://nytimes.com/2022/03/04/opinion/letters/ukraine-russia-war.html?searchRes
 
 **Volunteer Hackers Converge on Ukraine Conflict With No One in Charge**\
 `The hackers have claimed a number of disruptions over the past week blurring the lines between amateurs and groups linked to governments.`\
-https://nytimes.com/2022/03/04/technology/ukraine-volunteer-hackers-cyberattacks.html?searchResultPosition=2
+https://nytimes.com/2022/03/04/technology/ukraine-russia-hackers.html?searchResultPosition=2
 
 **Wonking Out: Putin’s Other Big Miscalculation**\
 `What will isolation do to the Russian economy?`\
@@ -32,7 +32,7 @@ https://nytimes.com/2022/03/04/arts/music/blomstedt-new-york-philharmonic-review
 
 **What Putin’s war could mean for fossil fuels**\
 `Also in this edition of the newsletter: A map that shows imperiled biodiversity in the lower 48 states.`\
-https://nytimes.com/2022/03/04/climate/ukraine-russia-war-fossil-fuels.html?searchResultPosition=9
+https://nytimes.com/2022/03/04/climate/ukraine-russia-fossil-fuels.html?searchResultPosition=9
 
 **Harry Belafonte Turns 95 With a Call for Social Justice**\
 `Spike Lee, Cornel West, and Alicia Keys turn out to celebrate an entertainer who put his career on the line for the cause.`\
