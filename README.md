@@ -1,6 +1,6 @@
 **To Boycott Russians, or Not? In Film and Beyond, That’s the Question.**\
 `A Russian moviemaker with Ukrainian roots and relatives in Kyiv denounced the war. The Glasgow Film Festival dropped his film anyway.`\
-https://nytimes.com/2022/03/04/movies/russia-ukraine-culture-boycott.html?searchResultPosition=1
+https://nytimes.com/2022/03/04/movies/film-boycott-russia-ukraine.html?searchResultPosition=1
 
 **Who Should Get Reparations in California?**\
 `A task force in charge of the state’s reparations effort, the first in the nation, is struggling to decide which Black Californians should receive payments.`\
