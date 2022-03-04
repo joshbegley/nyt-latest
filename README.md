@@ -3,7 +3,7 @@
 https://nytimes.com/video/nyregion/100000008239658/nyc-school-mask-mandate-indoor-vaccination.html?searchResultPosition=1
 
 **‘I Don’t Want to Be Called Russian Anymore’: Anxious Soviet Diaspora Rethinks Identity**\
-`Immigrants from the former the Soviet bloc were never a monolith, but they bonded over shared language and history. Now, they are shifting away from being seen as one group.`\
+`Immigrants from the former Soviet bloc were never a monolith, but they bonded over shared language and history. Now, they are shifting away from being seen as one group.`\
 https://nytimes.com/2022/03/04/us/immigrant-identity-russia-ukraine.html?searchResultPosition=2
 
 **Paralympics President Rebukes Russia at Opening Ceremony**\
