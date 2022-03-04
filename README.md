@@ -1,6 +1,6 @@
 **Supreme Court Restores Death Sentence for Boston Marathon Bomber**\
 `The Biden administration, which announced a moratorium on federal executions, has pursued the case against Dzhokhar Tsarnaev, who helped carry out the 2013 bombings.`\
-https://nytimes.com/2022/03/04/us/supreme-court-death-sentence-boston-marathon-bomber.html?searchResultPosition=1
+https://nytimes.com/2022/03/04/us/politics/supreme-court-death-sentence-boston-marathon-bomber.html?searchResultPosition=1
 
 **Decades of Neglect Leave I.R.S. in Tax Season ‘Chaos’**\
 `A shortage of staff and equipment has stalled America’s fiscal machinery.`\
