@@ -28,7 +28,7 @@ https://nytimes.com/2022/03/04/briefing/russia-invasion-ukraine-fighting.html?se
 
 **Fire at a Ukrainian nuclear plant is out, but Russian troops take control of the site.**\
 `International observers and Ukrainian officials said that as of 6 a.m. the facility was still able to function safely.`\
-https://nytimes.com/2022/03/04/world/europe/fire-at-a-ukrainian-nuclear-plant-is-out-but-russian-troops-take-control-of-the-site.html?searchResultPosition=8
+https://nytimes.com/2022/03/04/world/europe/nuclear-plant-fire.html?searchResultPosition=8
 
 **The Death of the Competitive Congressional District**\
 `The first primaries of the 2022 midterm elections show the power of the redistricting process.`\
