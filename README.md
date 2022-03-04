@@ -1,6 +1,6 @@
 **Luxury giants LVMH and Hermès will close stores in Russia temporarily.**\
 `The French brands join other Western companies in pausing retail operations as the Russian invasion of Ukraine escalates.`\
-https://nytimes.com/2022/03/04/business/luxury-giants-lvmh-and-hermes-will-close-stores-in-russia-temporarily.html?searchResultPosition=1
+https://nytimes.com/2022/03/04/business/lvmh-hermes-russia.html?searchResultPosition=1
 
 **Review: Raphael Xavier, Breaking Out of Boxes, Barely**\
 `“The Musician & the Mover,” a new work from the respected B-boy, had its New York premiere at New York Live Arts on Thursday.`\
