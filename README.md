@@ -24,7 +24,7 @@ https://nytimes.com/2022/03/04/us/reparations-california.html?searchResultPositi
 
 **Paralympics President Rebukes Russia at Opening Ceremony**\
 `Andrew Parsons denounced Russia’s invasion of Ukraine, a notable act given the International Olympic Committee’s ban on protests and political messages.`\
-https://nytimes.com/2022/03/04/world/europe/paralympics-opening-ceremony.html?searchResultPosition=7
+https://nytimes.com/2022/03/04/sports/olympics/paralympics-opening-ceremony.html?searchResultPosition=7
 
 **How to Get the Most Out of Your Dishwasher**\
 `No, you don't need to pre-rinse.`\
