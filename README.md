@@ -28,7 +28,7 @@ https://nytimes.com/2022/03/03/us/politics/boebert-greene-republicans.html?searc
 
 **Washington’s Newest Worry: The Dangers of Cornering Putin**\
 `Surprised by the speed at which sanctions have been poured on Russia, Biden’s top aides suspect that Putin’s reaction will be to double down and lash out — and perhaps expand the war.`\
-https://nytimes.com/2022/03/03/us/politics/washington-putin-worry.html?searchResultPosition=8
+https://nytimes.com/2022/03/03/us/politics/white-house-putin-sanctions.html?searchResultPosition=8
 
 **Tech Offers a Silver Lining in Ukraine**\
 `Big Tech has shown it can make meaningful choices about who can use its platforms.`\
