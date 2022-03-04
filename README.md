@@ -16,7 +16,7 @@ https://nytimes.com/2022/03/04/world/aclu-ice-covid-vaccine-booster.html?searchR
 
 **In Kyiv’s Railway Station, Rumors, Near-Stampedes and Frustration**\
 `As Russian forces begin to encircle the Ukrainian capital, tens of thousands are clambering for a way out that may soon be closed off.`\
-https://nytimes.com/2022/03/04/world/europe/kyiv-train-station-rumors.html?searchResultPosition=5
+https://nytimes.com/2022/03/04/world/europe/ukraine-kyiv-train-station.html?searchResultPosition=5
 
 **The Battle for a Nuclear Plant**\
 `The fighting in Ukraine came as the Kremlin stepped up moves to stifle dissent in Russia.`\
