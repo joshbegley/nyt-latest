@@ -24,7 +24,7 @@ https://nytimes.com/2022/03/03/briefing/ukraine-covid-trump.html?searchResultPos
 
 **Google Suspends Advertising in Russia**\
 `The move came after a Russian regulator demanded that the company stop showing ads with what the regulator claimed was false information about the invasion of Ukraine.`\
-https://nytimes.com/2022/03/03/technology/google-suspends-advertising-in-russia.html?searchResultPosition=7
+https://nytimes.com/2022/03/03/technology/google-ads-russia.html?searchResultPosition=7
 
 **Quotation of the Day: Cancel Carnival? Group of Artists Has Other Ideas.**\
 `Quotation of the Day for Friday, March 4, 2022.`\
