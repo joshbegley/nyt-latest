@@ -23,7 +23,7 @@ https://nytimes.com/2022/03/03/theater/on-sugarland-review.html?searchResultPosi
 https://nytimes.com/2022/03/03/well/live/hospital-patient-advocates.html?searchResultPosition=6
 
 **In Greene and Boebert, Democrats See a Helpful Political Target**\
-`The antics of Representatives Marjorie Taylor Greene and Lauren Boebert, as well as recent stumbles by Republicans, have drawn unflattering attention to their party.`\
+`The antics of Representatives Marjorie Taylor Greene and Lauren Boebert, as well as recent stumbles by other Republicans, have drawn unflattering attention to their party.`\
 https://nytimes.com/2022/03/03/us/politics/boebert-greene-republicans.html?searchResultPosition=7
 
 **Washington’s Newest Worry: The Dangers of Cornering Putin**\
