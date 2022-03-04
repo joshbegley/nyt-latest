@@ -1,40 +1,40 @@
-**The Brilliant Alchemy of Rick Owens**\
-`How one designer turned the tenor of the moment into beauty. Plus protective covering at Balmain and immersive surrealism at Dries Van Noten.`\
-https://nytimes.com/2022/03/04/style/rick-owens-balmain-chloe-fall-2022.html?searchResultPosition=1
+**Yes, Your Pets Can Also Put on Pandemic Pounds**\
+`Dogs and cats have surprised their owners by gaining weight during the coronavirus pandemic. Veterinarians blame the extra treats and table scraps.`\
+https://nytimes.com/2022/03/04/us/dogs-cats-pandemic-weight.html?searchResultPosition=1
 
-**Female Entrepreneurs Who Confront a Particular Kind of Troll**\
-`Food companies founded by Asian American women find social media engagement with customers helps their growth, but they also face racist and sexist comments.`\
-https://nytimes.com/2022/03/04/business/asian-food-business-online-trolls.html?searchResultPosition=2
+**How a Boutique-Fragrance Expert Spends Her Sundays**\
+`Kimberly Waters runs a perfume parlor, of sorts, out of her Harlem townhouse.`\
+https://nytimes.com/2022/03/04/nyregion/kimberly-walters-muse-fragrance.html?searchResultPosition=2
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/03/04/crosswords/spelling-bee-forum.html?searchResultPosition=3
+**Why So Many People Became Real Estate Agents in the Pandemic**\
+`The industry is drawing workers while nearly every other job sector has struggled with hiring. As few as 10 percent of them will last long enough to make a full-time living selling homes.`\
+https://nytimes.com/2022/03/04/realestate/real-estate-agents-pandemic.html?searchResultPosition=3
 
-**Word of the Day: loquacious**\
-`This word has appeared in 30 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/03/04/learning/word-of-the-day-loquacious.html?searchResultPosition=4
+**In a Run-Down Roman Villa, a Princess From Texas Awaits Her Next Act**\
+`Princess Rita Boncompagni Ludovisi, formerly Rita Jenrette, is locked in a battle over the estate of her late husband, a Roman prince.`\
+https://nytimes.com/2022/03/04/world/europe/italy-princess-rita-boncompagni-ludovisi-jenrette.html?searchResultPosition=4
 
-**Seth Meyers Roasts Ron DeSantis for Berating Teens**\
-`Meyers said Florida’s governor was like “an old man who sees a bunch of innocent teens walking by and screams, ‘Hey, you kids get on my lawn!’”`\
-https://nytimes.com/2022/03/04/arts/television/seth-meyers-ron-desantis-covid-theater.html?searchResultPosition=5
+**He Break Dances. He Pole Dances. He Sings Like an Angel.**\
+`The Polish countertenor Jakub Jozef Orlinski has the credits you’d expect for a fast-rising classical music star, and some others you might not.`\
+https://nytimes.com/2022/03/04/arts/music/jakub-joseph-orlinski-countertenor-poland.html?searchResultPosition=5
 
-**Erin Entrada Kelly on the Stranger Within**\
-`When a mysterious outsider joins a small-town Louisiana classroom, in Erin Entrada Kelly’s “Those Kids From Fawn Creek,” everything changes.`\
-https://nytimes.com/2022/03/04/books/review/erin-entrada-kelly-those-kids-from-fawn-creek.html?searchResultPosition=6
+**A Day in the Life of an Agent**\
+`The real estate industry is drawing workers while nearly every other sector has struggled to do so.`\
+https://nytimes.com/slideshow/2022/03/04/realestate/a-day-in-the-life-of-an-agent.html?searchResultPosition=6
 
-**What Happened When Kelly Yang Moved ‘Back Where She Came From’**\
-`In the semi-autobiographical novel “New From Here,” Yang looks at Covid’s effect on brotherly love, in the world and in her household.`\
-https://nytimes.com/2022/03/04/books/review/kelly-yang-new-from-here.html?searchResultPosition=7
+**The Police Aren’t Exactly Running Out of Cash**\
+`There is no real relationship between crime rates and police budgets. `\
+https://nytimes.com/2022/03/04/opinion/the-police-arent-exactly-running-out-of-cash.html?searchResultPosition=7
 
-**In Short Supply: Everything From Chocolate to Headstone Stencils**\
-`Supply chain issues have hurt old-fashioned businesses as well as high-tech ones, and monument makers are among those feeling the pain.`\
-https://nytimes.com/2022/03/04/nyregion/in-short-supply-everything-from-chocolate-to-headstone-stencils.html?searchResultPosition=8
+**The Fight Over ‘Maus’ Is Part of a Bigger Cultural Battle in Tennessee**\
+`State lawmakers, led by the governor, are rethinking what public school students should read and learn.`\
+https://nytimes.com/2022/03/04/us/maus-banned-books-tennessee.html?searchResultPosition=8
 
-**What to Read About the Russia-Ukraine War**\
-`Our reporters have been covering the crisis, from documenting military movement and the refugee exodus on the ground to analyzing global geopolitical developments.`\
-https://nytimes.com/2022/03/04/world/australia/what-to-read-about-the-russia-ukraine-war.html?searchResultPosition=9
+**The Starrett-Lehigh Building, at 90, Prepares for Its Future**\
+`The venerable city landmark, a star of industrial modernism when it opened, is adding amenities for commercial tenants, especially in creative fields.`\
+https://nytimes.com/2022/03/04/realestate/starrett-lehigh-manhattan.html?searchResultPosition=9
 
-**For a State Representative, the Ideal Candidate**\
-`Malcolm Kenyatta, a politician in Pennsylvania, worried Matthew Miller was too good to be true after they connected on social media. He proved even better than expected.`\
-https://nytimes.com/2022/03/04/style/malcolm-kenyatta-matthew-miller-wedding.html?searchResultPosition=10
+**Why Don’t All Lions Climb Trees?**\
+`Scientists believe that lions everywhere can climb up into branches, but they’re just not very good at it and need help from the right kind of tree.`\
+https://nytimes.com/2022/03/04/science/lions-climbing-trees.html?searchResultPosition=10
 
