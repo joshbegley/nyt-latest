@@ -19,7 +19,7 @@ https://nytimes.com/2022/03/04/technology/ukraine-russia-hackers.html?searchResu
 https://nytimes.com/2022/03/04/opinion/russia-ukraine-sanctions-economy.html?searchResultPosition=5
 
 **BBC suspends its operations in Russia after strict censorship law is passed.**\
-`By Tiffany Hsu`\
+`  `\
 https://nytimes.com/2022/03/04/world/europe/bbc-russia-ukraine.html?searchResultPosition=6
 
 **‘We Have No Choice’: Mothers in Ukraine Flee to Poland**\
