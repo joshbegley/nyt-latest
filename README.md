@@ -26,15 +26,15 @@ https://nytimes.com/interactive/2022/03/04/sports/soccer/chelsea-abramovich-sale
 `Officials made the accusation Friday as part of a display of a unified front in support of Ukraine, but rejected a plea from Kyiv to impose a no-fly zone over its airspace.`\
 https://nytimes.com/2022/03/04/world/europe/nato-ukraine-russia-cluster-bombs.html?searchResultPosition=7
 
+**Russia blocks Facebook inside the country, as the Kremlin moves to stifle dissent.**\
+`By Mike Isaac and Adam Satariano`\
+https://nytimes.com/2022/03/04/world/europe/russia-facebook-ukraine.html?searchResultPosition=8
+
 **Ukraine War Forces a Question: How Far East Does Europe Go?**\
 `After Russia invaded, Ukraine asked to join the European Union, quickly. Moldova and Georgia have asked too. Member states would rather not answer.`\
-https://nytimes.com/2022/03/04/world/europe/ukraine-eu-moldova-georgia.html?searchResultPosition=8
+https://nytimes.com/2022/03/04/world/europe/ukraine-eu-moldova-georgia.html?searchResultPosition=9
 
 **Akaash Singh and His Case for Bringing Back Apu**\
 `The stand-up comic, whose special has gone viral, takes issue with how some South Asians like Hari Kondabolu portray their experience in the United States.`\
-https://nytimes.com/2022/03/04/arts/television/akaash-singh-apu-the-simpsons.html?searchResultPosition=9
-
-**Capitalizing ‘Black’ Isn’t Wrong. But It Isn’t That Helpful, Either.**\
-`It’s not the type of practical solution that I favor.`\
-https://nytimes.com/2022/03/04/opinion/capitalizing-black.html?searchResultPosition=10
+https://nytimes.com/2022/03/04/arts/television/akaash-singh-apu-the-simpsons.html?searchResultPosition=10
 
