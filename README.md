@@ -8,7 +8,7 @@ https://nytimes.com/2022/03/04/arts/television/winning-time-lakers-hbo.html?sear
 
 **With Sanctions, U.S. and Europe Aim to Punish Putin and Fuel Russian Unrest**\
 `The Biden administration and European officials are crushing the Russian economy and stirring mass anxiety to pressure President Vladimir V. Putin to end his war in Ukraine.`\
-https://nytimes.com/2022/03/04/us/politics/russia-sanctions.html?searchResultPosition=3
+https://nytimes.com/2022/03/04/us/politics/russia-sanctions-ukraine.html?searchResultPosition=3
 
 **2022 Oscar Nominations: Full Ballot**\
 `See this year’s Oscar nominees and make your picks.`\
