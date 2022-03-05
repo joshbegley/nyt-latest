@@ -1,40 +1,40 @@
+**Aeroflot says it will suspend international flights.**\
+`Russia’s airline industry has been hit hard as countries around the world have imposed sanctions on the country for its invasion of Ukraine.`\
+https://nytimes.com/2022/03/05/world/europe/aeroflot-russia-international-flights-suspended.html?searchResultPosition=1
+
 **Why American Mask Makers Are Going Out of Business**\
 `Efforts to make the supply chain more resilient after pandemic shortages are no match for low-price foreign products, the companies say.`\
-https://nytimes.com/2022/03/05/business/dealbook/why-american-mask-makers-are-going-out-of-business.html?searchResultPosition=1
+https://nytimes.com/2022/03/05/business/dealbook/why-american-mask-makers-are-going-out-of-business.html?searchResultPosition=2
 
 **True Stories**\
 `Why are so many drama series based on real-life events?`\
-https://nytimes.com/2022/03/05/briefing/tv-shows-fashion-week-oscar-ballots.html?searchResultPosition=2
+https://nytimes.com/2022/03/05/briefing/tv-shows-fashion-week-oscar-ballots.html?searchResultPosition=3
 
 **While Canada Welcomes Refugees, Its Door Is Far From Wide Open**\
 `The war in Ukraine may bring another wave of asylum seekers to Canada, but they will face many controls and restrictions.`\
-https://nytimes.com/2022/03/05/world/canada/canada-refugees-ukraine.html?searchResultPosition=3
+https://nytimes.com/2022/03/05/world/canada/canada-refugees-ukraine.html?searchResultPosition=4
 
 **How the West Marshaled a Stunning Show of Unity Against Russia**\
 `In a few frantic days, the West threw out the playbook it used for decades against the Kremlin and isolated Russia with unparalleled sanctions and penalties.`\
-https://nytimes.com/2022/03/05/world/europe/russia-ukraine-invasion-sanctions.html?searchResultPosition=4
+https://nytimes.com/2022/03/05/world/europe/russia-ukraine-invasion-sanctions.html?searchResultPosition=5
 
 **Build a New City or New Humans? A Utopia in India Fights Over Future.**\
 `Backed by Prime Minister Narendra Modi, the new leadership of Auroville, an experimental commune, wants to create a model city. In the way stand trees, tree houses and a take-it-slow tradition.`\
-https://nytimes.com/2022/03/05/world/asia/auroville-india.html?searchResultPosition=5
+https://nytimes.com/2022/03/05/world/asia/auroville-india.html?searchResultPosition=6
 
 **In Ukraine’s West, Lviv Makes Itself a Vital Rear Base**\
 `Spared direct attacks so far, the city has become a transit point for thousands of fleeing refugees and for men and supplies headed to the front lines.`\
-https://nytimes.com/2022/03/05/world/europe/lviv-ukraine-war-russia.html?searchResultPosition=6
+https://nytimes.com/2022/03/05/world/europe/lviv-ukraine-war-russia.html?searchResultPosition=7
 
 **Wildlife Personalities Play a Role in Nature**\
 `Studies help explore the ways that animals — whether bold or shy, aggressive or meek, interact with their environment.`\
-https://nytimes.com/2022/03/05/science/animal-personalities.html?searchResultPosition=7
+https://nytimes.com/2022/03/05/science/animal-personalities.html?searchResultPosition=8
 
 **Advertising Acts as Another Vehicle of Protest to Ukraine War**\
 `Criticism of Russia has become a common feature of advertisements and the marketing industry.`\
-https://nytimes.com/2022/03/05/business/media/ukraine-advertising.html?searchResultPosition=8
+https://nytimes.com/2022/03/05/business/media/ukraine-advertising.html?searchResultPosition=9
 
 **The Best Time to Use Your Airline Miles? Now.**\
 `If you’re thinking of traveling and you’ve got points or miles sitting in airline and credit card accounts, the time to cash in may have arrived. Here’s what you need to know.`\
-https://nytimes.com/2022/03/05/travel/airline-miles-credit-card.html?searchResultPosition=9
-
-**TikTok Is Gripped by the Violence and Misinformation of Ukraine War**\
-`The Chinese-owned video app is dealing with a flood of war videos and the question of whether it is spreading unverified information.`\
-https://nytimes.com/2022/03/05/technology/tiktok-ukraine-misinformation.html?searchResultPosition=10
+https://nytimes.com/2022/03/05/travel/airline-miles-credit-card.html?searchResultPosition=10
 
