@@ -12,7 +12,7 @@ https://nytimes.com/2022/03/05/world/europe/israel-russia-ukraine.html?searchRes
 
 **Tony Walton, Award-Winning Stage and Screen Designer, Dies at 87**\
 `He worked with the directors Mike Nichols, Bob Fosse and Jerry Zaks, winning three Tony Awards and an Oscar for “All That Jazz.”`\
-https://nytimes.com/2022/03/05/obituaries/tony-walton-dead.html?searchResultPosition=4
+https://nytimes.com/2022/03/05/arts/tony-walton-dead.html?searchResultPosition=4
 
 **Alice von Hildebrand, Conservative Catholic Philosopher, Dies at 98**\
 `She was critical of abortion rights and gay rights, and called on women to change the world by embracing what she called feminine virtues.`\
