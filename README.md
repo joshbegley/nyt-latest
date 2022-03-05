@@ -1,6 +1,6 @@
 **How to Negotiate Your Rent (Which Is Probably Going Up)**\
 `Brokers insist that negotiations are possible, even in a competitive market. Here are some tips from the experts.`\
-https://nytimes.com/2022/03/05/realestate/how-to-negotiate-your-rent-which-is-probably-going-up.html?searchResultPosition=1
+https://nytimes.com/2022/03/05/realestate/rent-negotiation-tips.html?searchResultPosition=1
 
 **A Welcome Steeped in History: Ukrainian Refugees Arrive in Germany**\
 `Berlin has become a major hub for refugees from Ukraine, welcoming them with an outpouring of help. The response stirs memories of both bright and dark chapters of German history.`\
