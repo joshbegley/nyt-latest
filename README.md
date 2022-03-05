@@ -8,7 +8,7 @@ https://nytimes.com/2022/03/05/world/europe/russia-ukraine-invasion-sanctions.ht
 
 **Build a New City or New Humans? A Utopia in India Fights Over Future.**\
 `Backed by Prime Minister Narendra Modi, the new leadership of Auroville, an experimental commune, wants to create a model city. In the way stand trees, tree houses and a take-it-slow tradition.`\
-https://nytimes.com/2022/03/05/world/asia/build-a-new-city-or-new-humans-a-utopia-in-india-fights-over-future.html?searchResultPosition=3
+https://nytimes.com/2022/03/05/world/asia/auroville-india.html?searchResultPosition=3
 
 **In Ukraine’s West, Lviv Makes Itself a Vital Rear Base**\
 `Spared direct attacks so far, the city has become a transit point for thousands of fleeing refugees and for men and supplies headed to the front lines.`\
