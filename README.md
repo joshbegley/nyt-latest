@@ -8,7 +8,7 @@ https://nytimes.com/2022/03/04/world/europe/russia-ukraine-war.html?searchResult
 
 **Several Western news organizations suspended operations in Russia.**\
 `BBC and Bloomberg News were among the media outlets that instructed Russia-based reporters to cease news gathering after a new law cracked down on news and free speech.`\
-https://nytimes.com/2022/03/04/business/western-news-organizations-suspend-operations-russia.html?searchResultPosition=3
+https://nytimes.com/2022/03/04/business/western-media-operations-russia.html?searchResultPosition=3
 
 **Lionel James, Speedy Back Who Covered a Lot of Turf, Dies at 59**\
 `A diminutive player, he set a single-season record in 1985 for yardage gained in the N.F.L. as a running back, receiver and kick and punt returner.`\
