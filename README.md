@@ -7,7 +7,7 @@ https://nytimes.com/2022/03/04/us/politics/biden-sauli-niinisto-finland.html?sea
 https://nytimes.com/2022/03/04/us/brandon-bostian-acquitted-amtrak-derailment.html?searchResultPosition=2
 
 **Tim Considine, Young Star of ‘My Three Sons,’ Is Dead at 81**\
-`He played the oldest son, Mike, after gaining fame at 14 in the “Spin and Marty” serial on Disney’s “The Mickey Mouse Club.” But after his 1960s heyday, he faded as an actor.`\
+`He played the oldest son, Mike, after gaining fame in the “Spin and Marty” serial on Disney’s “The Mickey Mouse Club.” But after his 1960s heyday, he faded as an actor.`\
 https://nytimes.com/2022/03/04/obituaries/tim-considine-dead.html?searchResultPosition=3
 
 **China Outlines Plan to Stabilize Economy in Crucial Year for Xi**\
