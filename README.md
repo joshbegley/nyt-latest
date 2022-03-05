@@ -2,7 +2,7 @@
 `Nam Jin Yoon’s Saturday puzzle can keep a secret.`\
 https://nytimes.com/2022/03/04/crosswords/daily-puzzle-2022-03-05.html?searchResultPosition=1
 
-**Gov. Murphy ends his daily coronavirus briefings in New Jersey and tries to turn the corner.**\
+**Gov. Murphy ends his daily virus briefings in New Jersey and tries to turn the corner.**\
 `Friday’s briefing was two years to the day since the state’s first confirmed coronavirus case, Mr. Murphy said, and served as a fitting end to his pandemic updates.`\
 https://nytimes.com/2022/03/04/world/gov-murphy-ends-his-daily-coronavirus-briefings-in-new-jersey-and-tries-to-turn-the-corner.html?searchResultPosition=2
 
