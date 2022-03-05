@@ -2,7 +2,7 @@
 `Berlin has become a major hub for refugees from Ukraine, welcoming them with an outpouring of help. The response stirs memories of both bright and dark chapters of German history.`\
 https://nytimes.com/2022/03/05/world/europe/ukraine-refugees-germany.html?searchResultPosition=1
 
-**Russia Says It Has U.S. Women’s Basketball Player in Custody**\
+**Russia Says It Has American Basketball Player in Custody**\
 `The player was said to have had drug paraphernalia in her luggage at an airport that serves Moscow. A Russian news agency identified the player as W.N.B.A. center Brittney Griner.`\
 https://nytimes.com/2022/03/05/sports/basketball/russia-brittney-griner.html?searchResultPosition=2
 
