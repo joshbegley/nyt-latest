@@ -20,7 +20,7 @@ https://nytimes.com/2022/03/04/world/europe/zelensky-nato-ukraine-no-fly-zone.ht
 
 **Russians Seize Europe’s Biggest Nuclear Plant and Gain in the South as More Ukrainians Flee**\
 `The Russian military advance in Ukraine sowed more destruction and chaos, pointing to a worsening conflict, as the Kremlin also moved to restrict how it’s reported at home.`\
-https://nytimes.com/2022/03/04/world/europe/russia-ukraine-war.html?searchResultPosition=6
+https://nytimes.com/2022/03/04/world/europe/russia-military-advance-ukraine-war.html?searchResultPosition=6
 
 **Several Western news organizations suspended operations in Russia.**\
 `BBC and Bloomberg News were among the media outlets that instructed Russia-based reporters to cease news gathering after a new law cracked down on news and free speech.`\
