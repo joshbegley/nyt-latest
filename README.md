@@ -2,7 +2,7 @@
 `In a few frantic days, the West threw out the playbook it used for decades against the Kremlin and isolated Russia with unparalleled sanctions and penalties.`\
 https://nytimes.com/2022/03/05/world/europe/russia-ukraine-invasion-sanctions.html?searchResultPosition=1
 
-**Build a New City or New Humans? A Utopia in India Fights Over Future**\
+**Build a New City or New Humans? A Utopia in India Fights Over Future.**\
 `Backed by Prime Minister Narendra Modi, the new leadership of Auroville, an experimental commune, wants to create a model city. In the way stand trees, tree houses and a take-it-slow tradition.`\
 https://nytimes.com/2022/03/05/world/asia/build-a-new-city-or-new-humans-a-utopia-in-india-fights-over-future.html?searchResultPosition=2
 
