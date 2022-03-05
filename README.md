@@ -4,7 +4,7 @@ https://nytimes.com/2022/03/04/crosswords/daily-puzzle-2022-03-05.html?searchRes
 
 **Gov. Murphy ends his daily virus briefings in New Jersey and tries to turn the corner.**\
 `Friday’s briefing was two years to the day since the state’s first confirmed coronavirus case, Mr. Murphy said, and served as a fitting end to his pandemic updates.`\
-https://nytimes.com/2022/03/04/world/gov-murphy-ends-his-daily-coronavirus-briefings-in-new-jersey-and-tries-to-turn-the-corner.html?searchResultPosition=2
+https://nytimes.com/2022/03/04/world/nj-governor-murphy-covid-briefing.html?searchResultPosition=2
 
 **Quotation of the Day: In Tennessee, ‘Maus’ Fight Is Part of Bigger Battle**\
 `Quotation of the Day for Saturday, March 5, 2022.`\
