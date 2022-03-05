@@ -4,7 +4,7 @@ https://nytimes.com/2022/03/05/opinion/russia-nuclear-war.html?searchResultPosit
 
 **Israeli prime minister visits Moscow for talks with Putin on Ukraine.**\
 `Prime Minister Naftali Bennett of Israel met for three hours with President Vladimir V. Putin of Russia, the Israeli leader’s office said.`\
-https://nytimes.com/2022/03/05/world/europe/israel-prime-minister-moscow-putin.html?searchResultPosition=2
+https://nytimes.com/2022/03/05/world/europe/israel-russia-ukraine.html?searchResultPosition=2
 
 **Tony Walton, Award-Winning Stage and Screen Designer, Dies at 87**\
 `He worked with the directors Mike Nichols, Bob Fosse and Jerry Zaks, winning three Tony Awards and an Oscar for “All That Jazz.”`\
