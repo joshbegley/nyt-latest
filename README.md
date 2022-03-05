@@ -4,7 +4,7 @@ https://nytimes.com/2022/03/05/world/europe/aeroflot-russia-international-flight
 
 **Why American Mask Makers Are Going Out of Business**\
 `Efforts to make the supply chain more resilient after pandemic shortages are no match for low-price foreign products, the companies say.`\
-https://nytimes.com/2022/03/05/business/dealbook/why-american-mask-makers-are-going-out-of-business.html?searchResultPosition=2
+https://nytimes.com/2022/03/05/business/dealbook/american-mask-makers.html?searchResultPosition=2
 
 **True Stories**\
 `Why are so many drama series based on real-life events?`\
