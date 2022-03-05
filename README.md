@@ -4,11 +4,11 @@ https://nytimes.com/2022/03/05/us/florida-bay-county-wildfire.html?searchResultP
 
 **U.S. Officials Travel to Venezuela, a Russia Ally, as the West Isolates Putin**\
 `The trip is the highest-level visit by American officials to Caracas in years, driven by a desire to separate Russia from its remaining Latin American allies.`\
-https://nytimes.com/2022/03/05/world/americas/us-venezuela-oil-russia.html?searchResultPosition=2
+https://nytimes.com/2022/03/05/world/americas/venezuela-russia-usa.html?searchResultPosition=2
 
 **Blinken Arrives in Poland to Gauge Additional U.S. Aid for Ukraine**\
 `The Russian invasion has pushed more than one million refugees to flee Ukraine for neighboring nations.`\
-https://nytimes.com/2022/03/05/us/politics/ukraine-us-blinken-kuleba.html?searchResultPosition=3
+https://nytimes.com/2022/03/05/us/politics/blinken-ukraine.html?searchResultPosition=3
 
 **Fast-food chains and food producers stay open in Russia, and mostly quiet about Ukraine.**\
 `Many fast-food chains are facing growing pressure on social media platforms and from large investors to halt operations in Russia.`\
