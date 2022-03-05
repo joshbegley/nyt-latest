@@ -27,7 +27,7 @@ https://nytimes.com/2022/03/04/us/brandon-bostian-acquitted-amtrak-derailment.ht
 https://nytimes.com/2022/03/04/obituaries/tim-considine-dead.html?searchResultPosition=7
 
 **China Outlines Plan to Stabilize Economy in Crucial Year for Xi**\
-`Its new budget mandates heavy government spending and lending, as Beijing seeks to project confidence in the face of global uncertainty.`\
+`China calls for heavy government spending and lending, as its leaders seek to project confidence in the face of global uncertainty over the pandemic and war in Ukraine.`\
 https://nytimes.com/2022/03/04/world/asia/china-economy-congress.html?searchResultPosition=8
 
 **Florida Senate Passes Voting Bill to Create Election Crimes Agency**\
