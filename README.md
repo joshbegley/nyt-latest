@@ -6,8 +6,8 @@ https://nytimes.com/2022/03/05/us/maggy-hurchalla-dead.html?searchResultPosition
 `The meeting, conducted via Zoom, was the first time President Volodymyr Zelensky of Ukraine had addressed both houses of Congress since Russia’s invasion began.`\
 https://nytimes.com/2022/03/05/us/politics/zelensky-congress-no-fly-zone.html?searchResultPosition=2
 
-**Russian Forces Pound Civilians, as Putin Calls Sanctions a ‘Declaration of War’**\
-`Despite a cease-fire, Russia shelled humanitarian corridors meant for civilians to escape embattled cities, Ukraine says, while the Russian leader also warned about a no-fly zone.`\
+**Russian Forces Pound Civilians, as Putin Likens Sanctions to a ‘Declaration of War’**\
+`Despite a cease-fire, Russia shelled near humanitarian corridors meant for civilians to escape an embattled city, Ukraine says, while the Russian leader also warned about a no-fly zone.`\
 https://nytimes.com/2022/03/05/world/europe/ukraine-russia-putin.html?searchResultPosition=3
 
 **Prenatal Tests, Disabilities and the Decision Whether to Abort**\
