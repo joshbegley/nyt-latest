@@ -3,7 +3,7 @@
 https://nytimes.com/2022/03/05/us/politics/ukraine-us-blinken-kuleba.html?searchResultPosition=1
 
 **Mitchell Ryan, Who Played the Villain in ‘Lethal Weapon,’ Dies at 88**\
-`Mr. Ryan, who appeared in the television series “Dark Shadows,” also played a brutal businessman in the soap opera “Santa Barbara” and a wealthy father in the sitcom “Dharma & Greg.”`\
+`Mr. Ryan, who appeared in the TV series “Dark Shadows,” played a brutal businessman in  “Santa Barbara” and a wealthy father in the sitcom “Dharma & Greg.”`\
 https://nytimes.com/2022/03/05/arts/television/mitchell-ryan-dead.html?searchResultPosition=2
 
 **On the Scene: Ukrainians protest in Kherson**\
