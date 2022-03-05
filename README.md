@@ -28,7 +28,7 @@ https://nytimes.com/2022/03/04/pageoneplus/corrections-march-5-2022.html?searchR
 
 **Zelensky criticizes NATO over its rejection of a no-fly zone.**\
 `“All the people who will die from this day will die because of you, as well,” the Ukrainian president told NATO leaders in a video shared on social media.`\
-https://nytimes.com/2022/03/04/world/europe/zelensky-nato-ukraine-no-fly-zone.html?searchResultPosition=8
+https://nytimes.com/2022/03/04/world/europe/zelensky-nato-no-fly-zone-ukraine.html?searchResultPosition=8
 
 **Russians Seize Europe’s Biggest Nuclear Plant and Gain in the South as More Ukrainians Flee**\
 `The Russian military advance in Ukraine sowed more destruction and chaos, pointing to a worsening conflict, as the Kremlin also moved to restrict how it’s reported at home.`\
