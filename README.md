@@ -4,7 +4,7 @@ https://nytimes.com/2022/03/06/world/europe/ukraine-russia-moldova-transnistria.
 
 **What We Know About Brittney Griner’s Detention in Russia**\
 `The W.N.B.A. star was stopped at an airport outside Moscow and accused of carrying hashish oil in her luggage. But much about the case remains unclear.`\
-https://nytimes.com/2022/03/06/sports/basketball/russia-brittney-griner.html?searchResultPosition=2
+https://nytimes.com/2022/03/06/sports/basketball/brittney-griner-russia.html?searchResultPosition=2
 
 **Matt Reeves Explains the Ending of ‘The Batman’**\
 `The film’s director and co-writer talks about the tumultuous conclusion and its chilling parallels to the real world. Read this after you’ve seen the movie.`\
