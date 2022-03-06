@@ -11,7 +11,7 @@ https://nytimes.com/2022/03/04/business/gas-prices-4-dollars-per-gallon.html?sea
 https://nytimes.com/2022/03/06/us/dennis-cunningham-dead.html?searchResultPosition=3
 
 **Ready to ‘undo damage,’ some N.Y.C. restaurants cheer the lifting of an indoor vaccine mandate.**\
-`Starting Monday the city will no longer require patrons in restaurants, bars and gyms and other places indoors to show proof of vaccination, part of a rollback that includes lifting of a mask requirement in public schools.`\
+`Starting Monday the city will no longer require patrons in restaurants, bars and gyms and other places indoors to show proof of vaccination, part of a rollback that includes lifting the mask requirement in public schools.`\
 https://nytimes.com/2022/03/06/nyregion/nyc-indoor-dining-vaccine-mandate.html?searchResultPosition=4
 
 **Cuomo Re-emerges and Blames ‘Cancel Culture’ for His Fall**\
