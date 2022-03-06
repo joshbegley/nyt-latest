@@ -1,36 +1,40 @@
+**On ‘S.N.L.,’ Tucker Carlson and Laura Ingraham Make Amends**\
+`The episode, hosted by Oscar Isaac, spoofed the Fox News hosts and the former President Trump in a “Ukrainian Invasion Celebration Spectacular.”`\
+https://nytimes.com/2022/03/06/arts/television/saturday-night-live-oscar-isaac-tucker-carlson-laura-ingraham.html?searchResultPosition=1
+
+**Quotation of the Day: After Zelensky’s Plea, the West Raced to Form a United Front**\
+`Quotation of the Day for Sunday, March 6, 2022.`\
+https://nytimes.com/2022/03/06/todayspaper/quotation-of-the-day-after-zelenskys-plea-the-west-raced-to-form-a-united-front.html?searchResultPosition=2
+
 **Corrections: March 6, 2022**\
 `Corrections that appeared in print on Sunday, March 6, 2022.`\
-https://nytimes.com/2022/03/06/pageoneplus/corrections-march-6-2022.html?searchResultPosition=1
+https://nytimes.com/2022/03/06/pageoneplus/corrections-march-6-2022.html?searchResultPosition=3
 
 **Boris Johnson: Putin’s Act of Aggression Must Fail**\
 `What happens in Europe will have profound implications worldwide.`\
-https://nytimes.com/2022/03/06/opinion/boris-johnson-russia-putin-ukraine-war.html?searchResultPosition=2
+https://nytimes.com/2022/03/06/opinion/boris-johnson-russia-putin-ukraine-war.html?searchResultPosition=4
 
 **Dear China: Whose Side Are You on in Ukraine?**\
 `China is the one country that might have the power to stop Putin. `\
-https://nytimes.com/2022/03/06/opinion/putin-ukraine-china.html?searchResultPosition=3
+https://nytimes.com/2022/03/06/opinion/putin-ukraine-china.html?searchResultPosition=5
 
 **Mexico Soccer Riot Leaves 22 Injured, Officials Say**\
 `Videos posted on social media showed violent clashes between fans in a stadium in the central city of Querétaro on Saturday.`\
-https://nytimes.com/2022/03/05/world/americas/mexico-soccer-riot.html?searchResultPosition=4
+https://nytimes.com/2022/03/05/world/americas/mexico-soccer-riot.html?searchResultPosition=6
 
 **At Least 7 Killed as Powerful Storms Rampage Across Iowa, Officials Say**\
 `The National Weather Service said photos and videos suggested damage from a tornado with wind speeds of more than 135 miles per hour.`\
-https://nytimes.com/2022/03/05/us/iowa-tornado-deaths.html?searchResultPosition=5
+https://nytimes.com/2022/03/05/us/iowa-tornado-deaths.html?searchResultPosition=7
 
 **Truckers Protesting Covid Mandates Gather in Maryland**\
 `The group of truckers, called the People’s Convoy, traveled from California and could move into Washington to hold protests against pandemic restrictions.`\
-https://nytimes.com/video/us/100000008241637/truckers-protest-covid-mandates.html?searchResultPosition=6
+https://nytimes.com/video/us/100000008241637/truckers-protest-covid-mandates.html?searchResultPosition=8
 
 **Why Brittney Griner and Other W.N.B.A. Stars Play Overseas**\
 `Competing for international teams during the W.N.B.A.’s off-season is common for players. The chance to earn extra money is just one of the draws.`\
-https://nytimes.com/2022/03/05/sports/basketball/wnba-russia-brittney-griner.html?searchResultPosition=7
+https://nytimes.com/2022/03/05/sports/basketball/wnba-russia-brittney-griner.html?searchResultPosition=9
 
 **Truckers protesting Covid mandates are amassing outside the capital.**\
 `The convoy and its supporters could move into Washington to hold rallies.`\
-https://nytimes.com/2022/03/05/us/trucker-convoy-washington-protest.html?searchResultPosition=8
-
-**Russian Prisoners and Ukrainian Soldiers Describe Two Sides of the Conflict**\
-`The accounts painted a picture of a conflict consisting largely of ambushes, at least in northern Ukraine where the Russian forces are striving to encircle and capture the capital, Kyiv.`\
-https://nytimes.com/2022/03/05/world/europe/ukraine-russia-soldiers-war.html?searchResultPosition=9
+https://nytimes.com/2022/03/05/us/trucker-convoy-washington-protest.html?searchResultPosition=10
 
