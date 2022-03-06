@@ -1,6 +1,6 @@
 **On Ukraine’s Border, Moldovans Wonder: Where Will Putin Stop?**\
 `Moldovans fear that Transnistria, a region run by Russia-backed separatists in eastern Moldova, might be the next target after Ukraine.`\
-https://nytimes.com/2022/03/06/world/europe/ukraine-russia-moldova.html?searchResultPosition=1
+https://nytimes.com/2022/03/06/world/europe/ukraine-russia-moldova-transnistria.html?searchResultPosition=1
 
 **What We Know About Brittney Griner’s Detention in Russia**\
 `The W.N.B.A. star was stopped at an airport outside Moscow and accused of carrying hashish oil in her luggage. But much about the case remains unclear.`\
