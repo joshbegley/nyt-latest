@@ -1,5 +1,5 @@
 **Truckers protesting Covid mandates are amassing outside the capital.**\
-`The convoy and its supporters could move into Washington imminently.`\
+`The convoy and its supporters could move into Washington to hold rallies.`\
 https://nytimes.com/2022/03/05/us/trucker-convoy-washington-protest.html?searchResultPosition=1
 
 **Russian Prisoners and Ukrainian Soldiers Describe Two Sides of the Conflict**\
