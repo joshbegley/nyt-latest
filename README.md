@@ -1,5 +1,5 @@
 **U.S. is exploring how to send Soviet-era fighter jets to Ukraine.**\
-`The discussions follow President Volodymyr Zelensky’s passionate plea to American legislators for assistance in obtaining more lethal military aid.`\
+`The discussions follow President Volodymyr Zelensky’s impassioned plea to American legislators for assistance in obtaining more lethal military aid.`\
 https://nytimes.com/2022/03/06/world/europe/us-fighter-jets-ukraine.html?searchResultPosition=1
 
 **What’s Going On in This Picture? | March 7, 2022**\
