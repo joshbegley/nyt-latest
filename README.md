@@ -4,7 +4,7 @@ https://nytimes.com/2022/03/06/briefing/your-monday-briefing-russian-forces-atta
 
 **Gas Prices in U.S. Climb Above $4 a Gallon**\
 `The national average price on Sunday was $4.009 a gallon, approaching a record set in 2008.`\
-https://nytimes.com/2022/03/04/business/gas-prices-4-dollars-per-gallon.html?searchResultPosition=2
+https://nytimes.com/2022/03/06/business/gas-prices-4-dollars-per-gallon.html?searchResultPosition=2
 
 **Dennis Cunningham, Civil Rights Lawyer for Varied Causes, Dies at 86**\
 `He successfully represented the Black Panthers, environmentalists who accused the government of conspiracy and Attica prison inmates.`\
