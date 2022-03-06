@@ -1,6 +1,6 @@
 **Ukrainian Family’s Dash for Safety Ends in Death**\
 `Russian forces hit a bridge being used by civilians evacuating the fighting in Ukraine. Four people were killed.`\
-https://nytimes.com/2022/03/06/world/europe/ukrainian-familys-dash-for-safety-ends-in-death.html?searchResultPosition=1
+https://nytimes.com/2022/03/06/world/europe/ukrainian-family-killed-war.html?searchResultPosition=1
 
 **Walter R. Mears, ‘Boys on the Bus’ Campaign Reporter, Dies at 87**\
 `He won a Pulitzer while reporting on politics for The Associated Press, and in an enduring 1973 book he epitomized the virtues of wire service journalism.`\
