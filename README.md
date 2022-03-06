@@ -7,7 +7,7 @@ https://nytimes.com/2022/03/06/pageoneplus/corrections-march-6-2022.html?searchR
 https://nytimes.com/2022/03/06/opinion/boris-johnson-russia-putin-ukraine-war.html?searchResultPosition=2
 
 **Dear China: Whose Side Are You on in Ukraine?**\
-`China is the one country that might have the power to stop Putin. For its own sake, China would be wise to study what’s happening in Russia and Ukraine.`\
+`China is the one country that might have the power to stop Putin. `\
 https://nytimes.com/2022/03/06/opinion/putin-ukraine-china.html?searchResultPosition=3
 
 **Mexico Soccer Riot Leaves 22 Injured, Officials Say**\
