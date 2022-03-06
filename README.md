@@ -1,40 +1,40 @@
-**Here’s why Western leaders are reluctant to impose a no-fly zone over Ukraine.**\
-`Enforcing a ban on aircraft could draw more countries into conflict against Russia and set off “a full-fledged war in Europe,” NATO’s leader has warned.`\
-https://nytimes.com/2022/03/05/world/europe/what-is-no-fly-zone-nato.html?searchResultPosition=1
+**The Watch Brand MB&F Goes on the Record**\
+`It has financed what an expert calls the first catalogue raisonné, or complete history, in the watch industry.`\
+https://nytimes.com/2022/03/06/fashion/watches-mbf-maximilian-busser.html?searchResultPosition=1
 
-**The Gangs of Fashion**\
-`Marine Serre spawns an almost-riot. Loewe gets surrealist. Allegiances are being declared.`\
-https://nytimes.com/2022/03/06/style/loewe-marine-serre-paris-fashion-week.html?searchResultPosition=2
+**How to View the Northern Lights From New England and the Midwest**\
+`With careful planning, timing and luck, witnessing the aurora borealis in the Lower 48 is one of the greatest yet most rarely seen spectacles for anyone willing to sacrifice a bit of sleep.`\
+https://nytimes.com/2022/03/06/travel/northern-lights-maine-minnesota.html?searchResultPosition=2
 
-**Most Women Denied Abortions by Texas Law Got Them Another Way**\
-`New data suggests overall abortions declined much less than previously known, because women traveled out of state or ordered pills online.`\
-https://nytimes.com/2022/03/06/upshot/texas-abortion-women-data.html?searchResultPosition=3
+**In Burundi, the Drum Is a Revered Symbol of Unity. But Only Men Can Play.**\
+`Burundian drumming is a global phenomenon, featured in blockbuster movies and best-selling albums. But at home, authorities have restricted it to official functions — and banned women from performing.`\
+https://nytimes.com/2022/03/06/world/africa/burundi-drumming.html?searchResultPosition=3
 
-**High Demand for Drug to Prevent Covid in the Vulnerable, Yet Doses Go Unused**\
-`The treatment could be lifesaving for many who cannot get protection from the vaccine, but confusion about the drug has made some doctors slow to prescribe it.`\
-https://nytimes.com/2022/03/06/us/politics/evusheld-covid-treatment.html?searchResultPosition=4
+**My Wife Tracked Me, for Journalism**\
+`For a recent Times article, the reporter Kashmir Hill followed her husband’s every move using location trackers. She knew where he was at all times — what she didn’t learn, though, was what he was doing. Read about his experience, with some notes from Kashmir.`\
+https://nytimes.com/2022/03/06/insider/my-wife-tracked-me-for-journalism.html?searchResultPosition=4
 
-**‘I Tried to Pick Up My Pace, Hunching Forward Into the Wind’**\
-`A walk in the rain, a treasured program and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2022/03/06/nyregion/metropolitan-diary.html?searchResultPosition=5
+**Asian Americans Grapple With Tide of Attacks: ‘We Need Our Safety Back’**\
+`Younger Asian American leaders want to rely less on traditional policing solutions, while more traditional cultural and business groups favor them.`\
+https://nytimes.com/2022/03/06/nyregion/asian-woman-attacks.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/03/06/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**Fossil Reveals Secrets of One of the Nature’s Most Mysterious Reptiles**\
+`The specimen shows that modern tuataras found in New Zealand are little changed from ancestors that lived 190 million years.`\
+https://nytimes.com/2022/03/06/science/tuatara-fossil-reptile.html?searchResultPosition=6
 
-**A Thunderous Farewell at Duke for Coach K, Even in Defeat**\
-`Mike Krzyzewski walked Cameron Indoor Stadium’s sideline for the last time as Duke’s maestro. There was also a basketball game, which Duke lost.`\
-https://nytimes.com/2022/03/06/sports/ncaabasketball/duke-mike-krzyzewski-last-home-game.html?searchResultPosition=7
+**Homes That Sold for Around $1 Million**\
+`Recent residential sales in New York City and the region.`\
+https://nytimes.com/2022/03/06/realestate/homes-that-sold-for-around-1-million.html?searchResultPosition=7
 
-**On ‘S.N.L.,’ Tucker Carlson and Laura Ingraham Make Amends**\
-`The episode, hosted by Oscar Isaac, spoofed the Fox News hosts and the former President Trump in a “Ukrainian Invasion Celebration Spectacular.”`\
-https://nytimes.com/2022/03/06/arts/television/saturday-night-live-oscar-isaac-tucker-carlson-laura-ingraham.html?searchResultPosition=8
+**Fraud Is Flourishing on Zelle. The Banks Say It’s Not Their Problem.**\
+`Zelle, the payments platform used by millions of customers, is a popular target of scammers. But banks have been reluctant to make fraud victims whole — despite owning the system.`\
+https://nytimes.com/2022/03/06/business/payments-fraud-zelle-banks.html?searchResultPosition=8
 
-**Quotation of the Day: After Zelensky’s Plea, the West Raced to Form a United Front**\
-`Quotation of the Day for Sunday, March 6, 2022.`\
-https://nytimes.com/2022/03/06/todayspaper/quotation-of-the-day-after-zelenskys-plea-the-west-raced-to-form-a-united-front.html?searchResultPosition=9
+**Q. & A.: How to Deal With Running Injuries**\
+`How can you avoid overuse injuries? Can you run through upper body pain? What kind of cross-training is the most efficient? Your injury questions, answered.`\
+https://nytimes.com/2022/03/06/sports/running-injuries-questions.html?searchResultPosition=9
 
-**Corrections: March 6, 2022**\
-`Corrections that appeared in print on Sunday, March 6, 2022.`\
-https://nytimes.com/2022/03/06/pageoneplus/corrections-march-6-2022.html?searchResultPosition=10
+**NoViolet Bulawayo Allegorizes the Aftermath of Robert Mugabe**\
+`In “Glory,” a dictatorial elderly horse is unseated from his rule over the fictional African nation of Jidada.`\
+https://nytimes.com/2022/03/06/books/review/noviolet-bulawayo-glory.html?searchResultPosition=10
 
