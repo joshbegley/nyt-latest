@@ -1,6 +1,6 @@
 **They Weren’t Wanted at the Paralympics but Are Excelling Anyway**\
 `After a dispute over whether they should be allowed to compete, the snowboarders Cécile Hernandez and Brenna Huckaby are putting in strong performances.`\
-https://nytimes.com/2022/03/06/sports/olympics/they-werent-wanted-at-the-paralympics-but-are-excelling-anyway.html?searchResultPosition=1
+https://nytimes.com/2022/03/06/sports/olympics/beijing-paralympics-snowboard-dispute.html?searchResultPosition=1
 
 **Pressed on Putin, Russian Conductor Quits Bolshoi and French Post**\
 `Tugan Sokhiev, the Bolshoi’s music director, said he was “being asked to choose one cultural tradition” over another, at a moment Russian artists are under pressure to denounce Russia’s president.`\
