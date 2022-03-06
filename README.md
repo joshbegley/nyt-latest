@@ -11,7 +11,7 @@ https://nytimes.com/2022/03/06/opinion/letters/libraries-book-banning.html?searc
 https://nytimes.com/2022/03/06/opinion/sin-lent-grace-forgiveness.html?searchResultPosition=3
 
 **‘Falling Into Emptiness’: Ukrainian Families Feel the Pain of Separation**\
-`With most Ukrainian men legally prohibited from leaving Ukraine, the international border gates serve as a painful filter, splitting families apart as women and children move on.`\
+`With most Ukrainian men legally prohibited from leaving Ukraine, the international border gates serve as a painful filter, splitting families as women and children move on.`\
 https://nytimes.com/2022/03/06/world/europe/ukraine-poland-families-separation.html?searchResultPosition=4
 
 **Biden’s Pro-Labor Vision Goes Beyond America**\
