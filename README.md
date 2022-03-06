@@ -3,7 +3,7 @@
 https://nytimes.com/2022/03/05/world/americas/mexico-soccer-riot.html?searchResultPosition=1
 
 **At Least 7 Killed as Powerful Storms Rampage Across Iowa, Officials Say**\
-`The National Weather Service said photos and videos from around the city of Winterset suggested damage from a tornado with wind speeds between 136 and 165 miles per hour.`\
+`The National Weather Service said photos and videos suggested damage from a tornado with wind speeds of more than 135 miles per hour.`\
 https://nytimes.com/2022/03/05/us/iowa-tornado-deaths.html?searchResultPosition=2
 
 **Truckers Protesting Covid Mandates Gather in Maryland**\
