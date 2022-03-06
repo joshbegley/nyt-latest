@@ -34,7 +34,7 @@ https://nytimes.com/2022/03/06/opinion/biden-jobs-trade.html?searchResultPositio
 `What happens in the state rarely stays there.`\
 https://nytimes.com/2022/03/06/opinion/abortion-texas-sb-8-roe-v-wade.html?searchResultPosition=9
 
-**South Korea reports high turnout in early voting, but apologizes to Covid patients for a lack of preparation.**\
-`By Jin Yu Young`\
-https://nytimes.com/2022/03/06/world/asia/south-korea-reports-high-turnout-in-early-voting-but-apologizes-to-covid-patients-for-a-lack-of-preparation.html?searchResultPosition=10
+**South Korea reports high turnout in early voting, but apologizes to coronavirus patients for a lack of preparation.**\
+`South Korea is experiencing a sharp spike in coronavirus cases, its worst wave of the pandemic, but is allowing infected voters to cast a ballot in the country’s contentious presidential election.`\
+https://nytimes.com/2022/03/06/world/asia/south-korea-early-voting-covid.html?searchResultPosition=10
 
