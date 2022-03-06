@@ -22,7 +22,7 @@ https://nytimes.com/video/us/100000008241960/iowa-storm-tornados-deaths.html?sea
 `For about 10 years, Lawrence V. Ray abused and extorted a group of his daughter’s classmates at the college, prosecutors say.`\
 https://nytimes.com/2022/03/06/nyregion/larry-ray-trial-sarah-lawrence-cult.html?searchResultPosition=6
 
-**They Weren’t Wanted at the Paralympics but Are Excelling Anyway**\
+**They Weren’t Wanted at the Paralympics. They’re Excelling Anyway.**\
 `After a dispute over whether they should be allowed to compete, the snowboarders Cécile Hernandez and Brenna Huckaby are putting in strong performances.`\
 https://nytimes.com/2022/03/06/sports/olympics/beijing-paralympics-snowboard-dispute.html?searchResultPosition=7
 
