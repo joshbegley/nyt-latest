@@ -30,11 +30,11 @@ https://nytimes.com/interactive/2022/03/07/world/europe/Syrian-Asylum-Seekers-in
 `Protest against the war in Ukraine has a new cultural front — food and drink names — as people across the world show solidarity with Ukraine by renaming or boycotting Russian-made products.`\
 https://nytimes.com/2022/03/07/world/europe/poutine-putin-le-roy-jucep.html?searchResultPosition=8
 
+**Ukrainian forces have repelled another Russian assault on Mykolaiv, officials say.**\
+`As the opposing armies fought outside the strategic port city near the Black Sea, residential areas within Mykolaiv came under intensifying Russian rocket and artillery fire.`\
+https://nytimes.com/2022/03/07/world/europe/ukrainians-russians-battle-mykolaiv.html?searchResultPosition=9
+
 **E.P.A. to Tighten Tailpipe Rules for the Biggest Polluters on the Road**\
 `For the first time since 2001, the government is setting more stringent limits on pollution from trucks, vans, and buses that harms human health.`\
-https://nytimes.com/2022/03/07/climate/trucks-pollution-rules-epa.html?searchResultPosition=9
-
-**These Refugees Can’t Stay in Denmark, but They Can’t Be Sent Home**\
-`Dozens of Syrian asylum seekers are stuck in limbo after the Danish authorities decided it was safe for them to go back home and stripped their residency permits.`\
-https://nytimes.com/2022/03/07/world/europe/denmark-syrian-refugees.html?searchResultPosition=10
+https://nytimes.com/2022/03/07/climate/trucks-pollution-rules-epa.html?searchResultPosition=10
 
