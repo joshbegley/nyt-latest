@@ -1,6 +1,6 @@
 **Proud Band of Ukrainian Troops Holds Russian Assault at Bay — for Now**\
 `“Few expected such strength from our people,” said a Ukrainian colonel whose soldiers have repelled a Russian attack on the port city of Mykolaiv for three days.`\
-https://nytimes.com/2022/03/06/world/europe/proud-band-of-ukrainian-troops-holds-russian-assault-at-bay-for-now.html?searchResultPosition=1
+https://nytimes.com/2022/03/06/world/europe/ukraine-beats-russia-mykolaiv.html?searchResultPosition=1
 
 **Oil Prices Jump as U.S. Discusses Russian Import Ban**\
 `The cost of Brent crude, the international benchmark, rose about 10 percent on Sunday, reaching $130 a barrel.`\
