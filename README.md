@@ -24,7 +24,7 @@ https://nytimes.com/2022/03/07/business/ey-accounting-russia.html?searchResultPo
 
 **Amazon Is Less Able to Recover From Droughts and Logging, Study Finds**\
 `The region is nearing a threshold beyond which its forests may be replaced by grasslands, with huge repercussions for biodiversity and climate change.`\
-https://nytimes.com/2022/03/07/climate/amazon-climate-change-deforestation.html?searchResultPosition=7
+https://nytimes.com/2022/03/07/climate/amazon-rainforest-climate-change-deforestation.html?searchResultPosition=7
 
 **Queen Elizabeth holds her first face-to-face meeting after she had Covid.**\
 `The queen received Prime Minister Justin Trudeau of Canada at Windsor Castle on Monday.`\
