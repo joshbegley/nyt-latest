@@ -1,4 +1,4 @@
-**E.P.A. Plans Tighter Tailpipe Rules for the Biggest Polluters on the Road**\
+**E.P.A. to Tighten Tailpipe Rules for the Biggest Polluters on the Road**\
 `For the first time since 2001, the government is setting more stringent limits on pollution from trucks, vans, and buses that harms human health.`\
 https://nytimes.com/2022/03/07/climate/trucks-pollution-rules-epa.html?searchResultPosition=1
 
