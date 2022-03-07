@@ -8,7 +8,7 @@ https://nytimes.com/2022/03/07/dining/kesar-pista-indian-desserts.html?searchRes
 
 **Switzerland joined in sanctions, but Russia’s oil, metals and grains still trade there.**\
 `Swiss authorities estimate that 80% of Russia’s raw materials and resources are exchanged in their country.`\
-https://nytimes.com/2022/03/07/business/switzerland-joined-in-sanctions-but-russias-oil-metals-and-grains-still-trade-there.html?searchResultPosition=3
+https://nytimes.com/2022/03/07/business/switzerland-sanctions-russia.html?searchResultPosition=3
 
 **Once Victims in Southeast Europe, Jews Come to Aid Fleeing Ukrainians**\
 `Today, as in the early 1900s, Jews are once again escaping violence in southeast Europe. But the context is radically different — cathartically so for the many Israelis who have come here to join the relief effort.`\
