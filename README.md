@@ -1,6 +1,6 @@
-**Congress moves toward barring Russian energy imports and ending favorable trade relations.**\
+**Congress moves to bar Russian energy imports and end favorable trade relations.**\
 `A bipartisan group of lawmakers reached an agreement on legislation that, if passed, would bar imports of Russian energy and suspend normal trade relations with Russia and Belarus.`\
-https://nytimes.com/2022/03/07/business/us-russia-trade-relations.html?searchResultPosition=1
+https://nytimes.com/2022/03/07/business/russia-us-trade-relations.html?searchResultPosition=1
 
 **Russia, Blocked From the Global Internet, Plunges Into Digital Isolation**\
 `Russian authorities and multinational companies have erected a digital barricade between the country and the West, erasing the last remnants of independent information online.`\
