@@ -4,7 +4,7 @@ https://nytimes.com/2022/03/07/briefing/ukraine-oil-balenciaga.html?searchResult
 
 **Coronavirus Briefing: Risks to the brain**\
 `Covid-19 may cause  tissue damage and loss of gray matter`\
-https://nytimes.com/2022/03/07/briefing/covid-brain-rto.html?searchResultPosition=2
+https://nytimes.com/2022/03/07/briefing/covid-brain-damage-rto.html?searchResultPosition=2
 
 **Why China Can’t Bail Out Putin’s Economy**\
 `No, the Chinese can’t protect Russia from sanctions.`\
