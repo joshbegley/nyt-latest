@@ -24,7 +24,7 @@ https://nytimes.com/2022/03/07/nyregion/black-history-artifacts-staten-island.ht
 
 **Italian City Tied to Russia by a Revered Saint Feels the Sting of War in Ukraine**\
 `The port of Bari holds relics venerated by Orthodox Christians throughout the former Soviet bloc. Today it is also home to a spillover of tensions from Russia’s invasion.`\
-https://nytimes.com/2022/03/07/world/europe/italian-city-tied-to-russia-by-a-revered-saint-feels-the-sting-of-war-in-ukraine.html?searchResultPosition=7
+https://nytimes.com/2022/03/07/world/europe/bari-italy-russia-ukraine.html?searchResultPosition=7
 
 **Manhatta to Reopen With a Focus on Drinks**\
 `Danny Meyer’s 60th-floor restaurant, which closed at the start of the pandemic, will return on St. Patrick’s Day.`\
