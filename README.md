@@ -24,7 +24,7 @@ https://nytimes.com/2022/03/07/us/florida-covid-vaccine-kids.html?searchResultPo
 
 **Live Webinar: Teaching With ‘Black History, Continued’**\
 `Join us on March 24 as Veronica Chambers discusses the “Black History, Continued” series and the continuing importance of exploring pivotal moments and transformative figures in Black history.`\
-https://nytimes.com/2022/03/07/learning/live-webinar-teaching-with-black-history-continued.html?searchResultPosition=7
+https://nytimes.com/2022/03/07/learning/live-webinar-black-history.html?searchResultPosition=7
 
 **‘20th Hijacker’ Is Returned to Saudi Arabia for Mental Health Care**\
 `Mohammed al-Qahtani had spent 20 years at Guantánamo Bay, where he was tortured so badly that he was ineligible to be tried at the war crimes court.`\
