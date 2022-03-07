@@ -12,7 +12,7 @@ https://nytimes.com/2022/03/07/opinion/letters/ukraine-russia-war.html?searchRes
 
 **New York City Ends School Mask Mandate in a Key Step to Recovery**\
 `The lifting of the mandate in the nation’s largest school district was met with a mixture of anxiety and celebration.`\
-https://nytimes.com/2022/03/07/nyregion/nyc-school-mask-mandate-end.html?searchResultPosition=4
+https://nytimes.com/2022/03/07/nyregion/nyc-school-mask-mandate.html?searchResultPosition=4
 
 **Supreme Court Says 10 Burglaries Can Count as One Offense**\
 `The case concerned a federal law that calls for stiff sentences for gun crimes when the defendant had committed three felonies “on occasions different from one another.”`\
