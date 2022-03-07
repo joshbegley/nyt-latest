@@ -1,6 +1,6 @@
 **Metropolitan Opera Will Host Concert in Support of Ukraine**\
 `“We want Putin to know he is the enemy of artists and that we are united against his horrific actions,” the company’s general manager said.`\
-https://nytimes.com/2022/03/07/arts/music/met-opera-ukraine-concert.html?searchResultPosition=1
+https://nytimes.com/2022/03/07/arts/music/ukraine-met-opera-concert.html?searchResultPosition=1
 
 **How the ‘Encanto’ Soundtrack Became a Smash**\
 `With its eighth week at No. 1 on Billboard’s album chart, the LP featuring songs from Lin-Manuel Miranda is a lesson in how fans drive hits from social media to streaming services.`\
