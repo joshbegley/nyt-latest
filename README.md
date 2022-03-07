@@ -1,6 +1,6 @@
 **Dior’s New Chef Has Aspirations**\
 `Chef Jean Imbert’s job is to make the new Dior restaurant the go-to dining spot for the fashion crowd. Here’s how he plans to do it.`\
-https://nytimes.com/2022/03/07/style/diors-new-chef-has-aspirations.html?searchResultPosition=1
+https://nytimes.com/2022/03/07/style/diors-restaurant-chef-jean-imbert.html?searchResultPosition=1
 
 **I.A.E.A. Officials Raise Concerns Over Ukrainian Nuclear Facilities**\
 `The International Atomic Energy Agency raised concerns over the operations of nuclear power plants in Ukraine and urged for an agreement between Russia and Ukraine on safety and security.`\
