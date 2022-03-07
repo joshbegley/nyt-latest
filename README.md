@@ -1,6 +1,6 @@
 **The letter ‘Z’ has become a symbol for Russians who support the invasion of Ukraine.**\
 `The letter, painted on Russian military vehicles, is suddenly ubiquitous in Russia, prompting talk of a Kremlin public relations campaign.`\
-https://nytimes.com/2022/03/07/world/europe/russians-z-ukraine-invasion.html?searchResultPosition=1
+https://nytimes.com/2022/03/07/world/europe/russia-ukraine-letter-z.html?searchResultPosition=1
 
 **Baltics, in Russia's Shadow, Demand Tougher Stance From West**\
 `“We have no illusions about Putin’s Russia anymore,” said one Baltic official in a meeting with the U.S. secretary of state.`\
