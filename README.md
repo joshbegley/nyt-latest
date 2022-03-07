@@ -28,7 +28,7 @@ https://nytimes.com/2022/03/07/business/russia-switzerland-sanctions.html?search
 
 **Once Victims in Southeast Europe, Jews Come to Aid Fleeing Ukrainians**\
 `Today, as in the early 1900s, Jews are once again escaping violence in southeast Europe. But the context is radically different — cathartically so for the many Israelis who have come here to join the relief effort.`\
-https://nytimes.com/2022/03/07/world/europe/israel-jews-moldova-ukraine-war.html?searchResultPosition=8
+https://nytimes.com/2022/03/07/world/europe/ukraine-israel-moldova-jews.html?searchResultPosition=8
 
 **The letter ‘Z’ has become a symbol for Russians who support the invasion of Ukraine.**\
 `The letter, painted on Russian military vehicles, is suddenly ubiquitous in Russia, prompting talk of a Kremlin public relations campaign.`\
