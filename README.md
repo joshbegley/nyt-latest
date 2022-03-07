@@ -23,7 +23,7 @@ https://nytimes.com/2022/03/07/briefing/russia-ukraine-war.html?searchResultPosi
 https://nytimes.com/2022/03/07/us/east-high-school-shooting-des-moines.html?searchResultPosition=6
 
 **U.S. Weighs Russian Oil Ban as Gas Prices Surge and Ukraine War Grows**\
-`Global stocks dipped on Monday as U.S. officials discussed an oil cutoff, and gas prices neared record highs.`\
+`Global stocks dipped on Monday as U.S. officials discussed an oil cutoff, and gas prices hit a national average above $4, up more than 10 percent in a week.`\
 https://nytimes.com/2022/03/07/us/politics/biden-russia-oil-ban.html?searchResultPosition=7
 
 **Your Monday Evening Briefing**\
