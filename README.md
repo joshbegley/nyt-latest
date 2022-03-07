@@ -6,8 +6,8 @@ https://nytimes.com/2022/03/07/us/supreme-court-voting-maps.html?searchResultPos
 `Fears are growing for Ukrainians trapped in besieged cities.`\
 https://nytimes.com/2022/03/07/briefing/russia-ukraine-war.html?searchResultPosition=2
 
-**3 Teens Are Critically Wounded in Shooting Outside Iowa School**\
-`Some suspects were in custody after the shooting at East High School in Des Moines, the authorities said.`\
+**Shooting Outside Iowa School Leaves 1 Teen Dead and 2 Critically Wounded**\
+`Potential suspects were in custody after the shooting at East High School in Des Moines, the authorities said.`\
 https://nytimes.com/2022/03/07/us/east-high-school-shooting-des-moines.html?searchResultPosition=3
 
 **U.S. Weighs Russian Oil Ban as Gas Prices Surge and Ukraine War Grows**\
