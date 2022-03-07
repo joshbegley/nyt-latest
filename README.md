@@ -1,6 +1,6 @@
 **Your Tuesday Briefing: Russia escalates attacks on civilians**\
 `Plus new research warning of a drier Amazon and Xi’s relationship with Putin.`\
-https://nytimes.com/2022/03/07/briefing/russia-civilian-attacks-xi-putin.html?searchResultPosition=1
+https://nytimes.com/2022/03/07/briefing/russia-putin-xi-civilian-casualties.html?searchResultPosition=1
 
 **De Gustibus, at Macy’s, Returns With In-Person Cooking Classes**\
 `The cooking school, which features classes from chefs, now has a hybrid schedule with both virtual and in-person courses.`\
