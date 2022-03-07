@@ -20,7 +20,7 @@ https://nytimes.com/video/us/100000008243061/florida-wildfires-acres-bay-county.
 
 **Sorting Through Your Clutter? Tell Us Your Story.**\
 `We ask readers about preparing in advance or cleaning a house after the loss of a family member.`\
-https://nytimes.com/2022/03/07/opinion/letters/sorting-clutter.html?searchResultPosition=6
+https://nytimes.com/2022/03/07/opinion/letters/sort-clutter.html?searchResultPosition=6
 
 **Inside Denmark’s Immigration Centers**\
 `Here's what I saw in two centers for Syrian asylum seekers in Denmark who had their residency permits stripped.`\
