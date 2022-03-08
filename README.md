@@ -8,7 +8,7 @@ https://nytimes.com/2022/03/07/crosswords/daily-puzzle-2022-03-08.html?searchRes
 
 **Congress Gives Final Approval to Make Lynching a Hate Crime**\
 `The bill’s unanimous passage in the Senate ended more than a century of failed attempts to explicitly criminalize lynching.`\
-https://nytimes.com/2022/03/07/us/politics/lynching-bill-passes-senate.html?searchResultPosition=3
+https://nytimes.com/2022/03/07/us/politics/lynching-bill-senate.html?searchResultPosition=3
 
 **Minneapolis Teachers Announce They Will Go on Strike**\
 `Negotiations are still happening in St. Paul. The unions are asking for smaller class sizes and higher wages, while the school districts say their budgets are shrinking as enrollment declines.`\
