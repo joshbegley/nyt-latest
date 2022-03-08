@@ -12,7 +12,7 @@ https://nytimes.com/2022/03/08/t-magazine/opening-ceremony-dinner.html?searchRes
 
 **An Olympic marathoner’s journey from Kenya to the front lines in Ukraine.**\
 `Mykola Nyzhnyk was training in Kenya, the world’s distance running hotbed, when he was called up to fight in the war.`\
-https://nytimes.com/2022/03/08/sports/mykola-nyzhnyk-ukraine-olympics.html?searchResultPosition=4
+https://nytimes.com/2022/03/08/sports/mykola-nyzhnyk-ukraine-kenya.html?searchResultPosition=4
 
 **Taylor Tomlinson: A Comic With the Confidence of a Star**\
 `On her new Netflix special, “Look at You,” she demonstrates tight joke writing, carefully honed act-outs and a ruthless appetite for laughs.`\
