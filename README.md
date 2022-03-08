@@ -34,7 +34,7 @@ https://nytimes.com/2022/03/08/us/billionaires-california.html?searchResultPosit
 `The deal is intended to help Google differentiate its cloud business from that of its rivals, Amazon and Microsoft.`\
 https://nytimes.com/2022/03/08/business/google-mandiant-cybersecurity.html?searchResultPosition=9
 
-**Oil prices rise and trading is halted in nickel after price surge.**\
+**Oil prices rise with Biden poised to halt imports from Russia.**\
 `Russia is a major producer of the metal used to make steel and electric car batteries.`\
 https://nytimes.com/2022/03/08/business/oil-prices-rise-as-trading-is-halted-in-nickel-after-price-surge.html?searchResultPosition=10
 
