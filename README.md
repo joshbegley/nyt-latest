@@ -1,6 +1,6 @@
 **Chinese companies that aid Russia could be shut down, commerce secretary warns.**\
 `Gina Raimondo, the commerce secretary, said the U.S. could take “devastating” action against Chinese companies that defy Russian sanctions.`\
-https://nytimes.com/2022/03/08/business/chinese-companies-that-aid-russia-could-be-shut-down-commerce-secretary-warns.html?searchResultPosition=1
+https://nytimes.com/2022/03/08/technology/chinese-companies-russia-semiconductors.html?searchResultPosition=1
 
 **Zelensky Vows Ukraine ‘Will Not Give Up’ Against Russia**\
 `President Volodymyr Zelensky of Ukraine invoked William Shakespeare and Winston Churchill in his virtual address to the British Parliament, as he pleaded for more help against Russia’s invasion.`\
