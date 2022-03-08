@@ -35,6 +35,6 @@ https://nytimes.com/2022/03/08/us/politics/cryptocurrency-dao.html?searchResultP
 https://nytimes.com/2022/03/08/movies/calendar-girl-review.html?searchResultPosition=9
 
 **Biden is expected to ban Russian oil imports into the United States.**\
-`By Michael D. Shear`\
-https://nytimes.com/2022/03/08/world/europe/biden-is-expected-to-ban-russian-oil-imports-into-the-united-states.html?searchResultPosition=10
+`The United States receives less than 10 percent of its energy resources from Russia, but the move could have far-reaching effects.`\
+https://nytimes.com/2022/03/08/world/europe/biden-ban-russian-oil.html?searchResultPosition=10
 
