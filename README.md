@@ -18,8 +18,8 @@ https://nytimes.com/2022/03/08/business/lululemon-shoes.html?searchResultPositio
 `In this episode, we explore a few emerging themes, challenges, and behaviors that will have broad implications for businesses in 2022 – from “The Great Resignation” to global supply chain disruptions.`\
 https://nytimes.com/paidpost/accenture/built-for-change/the-new-fabric-of-life-fjord-trends-2022.html?searchResultPosition=5
 
-**Watch Live: Biden to Announce Ban on Russian Oil Imports**\
-`President Biden is expected to announce new actions to continue holding Russia accountable for its unprovoked war on Ukraine.`\
+**Watch Live: Biden Announces Ban on Russian Oil Imports**\
+`President Biden is announcing new actions to hold Russia accountable for its unprovoked war on Ukraine.`\
 https://nytimes.com/video/us/politics/100000008244614/biden-russia-oil-ban-livestream.html?searchResultPosition=6
 
 **The New York Times Pulls Its News Staff From Russia**\
