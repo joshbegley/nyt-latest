@@ -1,40 +1,40 @@
-**Pentagon Will Close Hawaii Fuel Depot That Leaked Petroleum**\
-`A November leak at the fuel-storage facility contaminated drinking water, forcing more than 3,000 military families to leave their homes for temporary accommodation.`\
-https://nytimes.com/2022/03/08/us/hawaii-navy-water.html?searchResultPosition=1
+**Once Obscured in the U.S., Lao Cooks Share and Celebrate Their Cuisine**\
+`At times spicy and bitter, salty and pungent, herbaceous and sour — Lao food is intensely delicious.`\
+https://nytimes.com/2022/03/08/dining/lao-food-cuisine.html?searchResultPosition=1
 
-**Lesson of the Day: ‘A Search Begins for the Wreck Behind an Epic Tale of Survival’**\
-`In this lesson, students will learn how a team of modern adventurers are searching the icy Antarctic seas for Ernest Shackleton’s ship Endurance over 100 years after it was lost.`\
-https://nytimes.com/2022/03/08/learning/lesson-plans/lesson-of-the-day-a-search-begins-for-the-wreck-behind-an-epic-tale-of-survival.html?searchResultPosition=2
+**Can A.I. Help Casinos Cut Down on Problem Gambling?**\
+`The opportunities seem endless. The reality is much more complicated.`\
+https://nytimes.com/2022/03/08/technology/can-ai-help-casinos-cut-down-on-problem-gambling.html?searchResultPosition=2
 
-**Louis Vuitton’s Teenage Dream**\
-`And Stella McCartney’s artistic adulting. Designers go on a tour through the ages.`\
-https://nytimes.com/2022/03/08/style/louis-vuitton-stella-mccartney-paris-fashion-week.html?searchResultPosition=3
+**Francesca Amfitheatrof Designs a Jeweled Watch for Louis Vuitton**\
+`The Mini Malle echoes details of a trunklike handbag from 2014, but with 617 diamonds.`\
+https://nytimes.com/2022/03/08/fashion/watches-francesca-amfitheatrof-louis-vuitton.html?searchResultPosition=3
 
-**Holly Golightly, Hypebeast**\
-`Givenchy makes pearls for tough girls at Paris Fashion Week.`\
-https://nytimes.com/2022/03/08/style/givenchy-matthew-williams-pearls-paris-fashion-week.html?searchResultPosition=4
+**Masked or Maskless? Now New York Students Can Choose.**\
+`Schoolchildren and their parents had a range of views on the day that the mandate requiring masks in schools was lifted.`\
+https://nytimes.com/2022/03/08/nyregion/masked-or-maskless-now-new-york-students-can-choose.html?searchResultPosition=4
 
-**The Smugglers’ Paradise of Afghanistan**\
-`For decades, the smuggling trade — of people, drugs and money — has dominated Nimruz Province. Now, as hundreds of thousands of Afghans try to flee, business has further boomed for those who hold the keys to the gate.`\
-https://nytimes.com/2022/03/08/world/asia/smugglers-afghanistan.html?searchResultPosition=5
+**How Maori Stepped In to Save a Towering Tree Crucial to Their Identity**\
+`Tāne Mahuta, an ancient tree named after the god of forests in Māori mythology, is threatened by the slow creep of an incurable disease.`\
+https://nytimes.com/2022/03/08/world/australia/new-zealand-maori-tane-mahuta-kauri.html?searchResultPosition=5
 
-**Rising Gas Prices Have Drivers Asking, ‘Is This for Real?’**\
-`The average price of a gallon of gasoline is up more than 10 percent in the last week, leading some consumers to rethink their routines and spending.`\
-https://nytimes.com/2022/03/08/business/high-gas-prices.html?searchResultPosition=6
+**Meet South Korea’s Swing Voters: Young, Broke and Angry**\
+`Frustrated over housing prices, a lack of job opportunities and a widening income gap, the once-reliable voting bloc is undecided and will most likely elect the next president.`\
+https://nytimes.com/2022/03/08/world/asia/south-korea-young-voters-election.html?searchResultPosition=6
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/03/08/crosswords/spelling-bee-forum.html?searchResultPosition=7
+**On a Dirt Court, a Ravaged School Planted the Seeds of a Championship**\
+`A Louisiana high school lost its gym when a hurricane tore through town. Practicing on a dirt court, the girls’ basketball team adopted a defiant motto: No gym, no problem.`\
+https://nytimes.com/2022/03/08/sports/louisiana-basketball-climate-change.html?searchResultPosition=7
 
-**Taste Test**\
-`Do you like trying new foods?`\
-https://nytimes.com/2022/03/08/learning/taste-test.html?searchResultPosition=8
+**A San Francisco Renovation Inspired by ‘American Gigolo’**\
+`When an interior designer and a software engineer set about renovating their new house, they had no idea what it would ultimately involve.`\
+https://nytimes.com/2022/03/08/realestate/a-san-francisco-renovation-inspired-by-american-gigolo.html?searchResultPosition=8
 
-**Finding a Retirement Home for 466 Frozen Flatworm Fragments**\
-`When researchers end their careers, where do their biological collections go?`\
-https://nytimes.com/2022/03/08/science/frozen-flatworm-retriement.html?searchResultPosition=9
+**Two Days of Russian News Coverage: An Alternate Reality of War**\
+`To watch news broadcasts of the fighting in Ukraine on the main state channels in Russia is to witness the extent of the Kremlin’s efforts to sanitize its war.`\
+https://nytimes.com/2022/03/08/us/russia-ukraine-media.html?searchResultPosition=9
 
-**Quotation of the Day: Military Giant Proves Clumsy. Rivals Notice.**\
-`Quotation of the Day for Tuesday, March 8, 2022.`\
-https://nytimes.com/2022/03/08/todayspaper/quotation-of-the-day-military-giant-proves-clumsy-rivals-notice.html?searchResultPosition=10
+**Is This the End of the Trail Map?**\
+`At ski resorts around the country, the familiar paper map is disappearing, as mountains push skiers to use apps and other digital resources. But some skiers are pushing back.`\
+https://nytimes.com/2022/03/08/travel/ski-trail-maps-disappear.html?searchResultPosition=10
 
