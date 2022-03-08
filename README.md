@@ -8,7 +8,7 @@ https://nytimes.com/2022/03/08/theater/jane-anger-review.html?searchResultPositi
 
 **Biden Offers More Free Covid Tests Although Demand Has Slowed**\
 `The White House is now letting households order a second round of at-home coronavirus tests, saying that testing remains important even as cases plummet.`\
-https://nytimes.com/2022/03/08/us/politics/more-free-covid-tests.html?searchResultPosition=3
+https://nytimes.com/2022/03/08/us/politics/free-covid-tests-biden.html?searchResultPosition=3
 
 **Back-and-Forth Continues as M.L.B. Sets Yet Another Deadline**\
 `While a 162-game season is still theoretically on the table, the latest talks could lead to another week of canceled games.`\
