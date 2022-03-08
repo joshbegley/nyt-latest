@@ -23,7 +23,7 @@ https://nytimes.com/2022/03/07/us/politics/ukraine-congress-military-spending.ht
 https://nytimes.com/2022/03/07/world/europe/ukraine-humanitarian-crisis-russia.html?searchResultPosition=6
 
 **Supreme Court Allows Court-Imposed Voting Maps in North Carolina and Pennsylvania**\
-`State courts had ruled that earlier maps for congressional elections had been warped by partisan gerrymandering.`\
+`State courts had ruled that earlier maps for congressional elections had been warped by partisan gerrymandering. Democrats stand to benefit from the justices’ decision.`\
 https://nytimes.com/2022/03/07/us/supreme-court-voting-maps.html?searchResultPosition=7
 
 **Fleeing Civilians Under Fire**\
