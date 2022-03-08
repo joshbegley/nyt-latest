@@ -16,7 +16,7 @@ https://nytimes.com/2022/03/08/style/givenchy-matthew-williams-pearls-paris-fash
 
 **The Smugglers’ Paradise of Afghanistan**\
 `For decades, the smuggling trade — of people, drugs and money — has dominated Nimruz Province. Now, as hundreds of thousands of Afghans try to flee, business has further boomed for those who hold the keys to the gate.`\
-https://nytimes.com/2022/03/08/world/asia/the-smugglers-paradise-of-afghanistan.html?searchResultPosition=5
+https://nytimes.com/2022/03/08/world/asia/smugglers-afghanistan.html?searchResultPosition=5
 
 **Rising Gas Prices Have Drivers Asking, ‘Is This for Real?’**\
 `The average price of a gallon of gasoline is up more than 10 percent in the last week, leading some consumers to rethink their routines and spending.`\
