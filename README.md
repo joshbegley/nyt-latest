@@ -28,7 +28,7 @@ https://nytimes.com/2022/03/08/sports/louisiana-basketball-climate-change.html?s
 
 **A San Francisco Renovation Inspired by ‘American Gigolo’**\
 `When an interior designer and a software engineer set about renovating their new house, they had no idea what it would ultimately involve.`\
-https://nytimes.com/2022/03/08/realestate/a-san-francisco-renovation-inspired-by-american-gigolo.html?searchResultPosition=8
+https://nytimes.com/2022/03/08/realestate/san-francisco-american-gigolo-rennovation.html?searchResultPosition=8
 
 **Two Days of Russian News Coverage: An Alternate Reality of War**\
 `To watch news broadcasts of the fighting in Ukraine on the main state channels in Russia is to witness the extent of the Kremlin’s efforts to sanitize its war.`\
