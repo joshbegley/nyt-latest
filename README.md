@@ -15,7 +15,7 @@ https://nytimes.com/2022/03/08/world/europe/battlefield-reports-ukraine-russia.h
 https://nytimes.com/2022/03/08/briefing/china-russia-xi-jinping-vladimir-putin.html?searchResultPosition=4
 
 **Companies stay in China despite political risks and travel limits.**\
-`By Keith Bradsher`\
+`Worries about pandemic restrictions and trade relations are growing, but most American companies say that they have no plans to relocate operations to other countries, a new survey shows.`\
 https://nytimes.com/2022/03/04/business/china-companies-travel-limits.html?searchResultPosition=5
 
 **Why Zelensky Poses a Unique Threat to Putin**\
