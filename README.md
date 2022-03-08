@@ -19,7 +19,7 @@ https://nytimes.com/2022/03/08/books/edmund-keeley-dead.html?searchResultPositio
 https://nytimes.com/2022/03/08/us/politics/congress-postal-service.html?searchResultPosition=8
 
 **Masking did help protect children from the virus last fall, according to a C.D.C. study.**\
-`By Benjamin Mueller`\
+`The study found that districts with full mask requirements had 23 percent lower rates of the coronavirus among students and staff members than districts without the mandates.`\
 https://nytimes.com/2022/03/08/health/covid-masks-kids-study-cdc.html?searchResultPosition=9
 
 **Review: In ‘Jane Anger,’ Revenge Is a Thorny Uphill Climb**\
