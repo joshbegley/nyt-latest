@@ -23,7 +23,7 @@ https://nytimes.com/2022/03/08/world/europe/ukraine-kyiv-hospitals.html?searchRe
 https://nytimes.com/2022/03/08/world/europe/ukraine-uk-family-scheme-refugees.html?searchResultPosition=6
 
 **Seahawks Plan to Trade Russell Wilson to the Broncos**\
-`Wilson led the Seattle Seahawks to back-to-back Super Bowl appearances, winning one, but had taken issue with being left out of personnel decisions.`\
+`Wilson led the Seattle Seahawks to back-to-back Super Bowl appearances, winning once, but had taken issue with being left out of personnel decisions.`\
 https://nytimes.com/2022/03/08/sports/football/russell-wilson-trade-broncos.html?searchResultPosition=7
 
 **Italian Senator’s Support for Putin Is Challenged During Poland Visit**\
