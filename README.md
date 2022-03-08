@@ -10,7 +10,7 @@ https://nytimes.com/2022/03/08/opinion/russia-ukraine-america.html?searchResultP
 `Opera houses and theaters in European cities are offering to help fleeing or stranded ballet dancers, even as many are still stuck in Ukraine.`\
 https://nytimes.com/2022/03/08/arts/dance/ukrainian-ballet-dancers-shelter-abroad.html?searchResultPosition=3
 
-**Sixteen Years after ‘The Road,’ Cormac McCarthy Is Publishing Two New Novels**\
+**Sixteen Years After ‘The Road,’ Cormac McCarthy Is Publishing Two New Novels**\
 `This fall, Knopf will publish two interlinked books that are a thematic and stylistic departure for the Pulitzer Prize-winning novelist.`\
 https://nytimes.com/2022/03/08/books/cormac-mccarthy-new-novels.html?searchResultPosition=4
 
@@ -18,7 +18,7 @@ https://nytimes.com/2022/03/08/books/cormac-mccarthy-new-novels.html?searchResul
 `In her new novel, Karen Joy Fowler imagines the lives of John Wilkes Booth’s troubled parents and his many siblings.`\
 https://nytimes.com/2022/03/08/books/review-booth-karen-joy-fowler.html?searchResultPosition=5
 
-**Chinese companies that aid Russia could be shut down, commerce secretary warns.**\
+**Chinese companies that aid Russia could be face U.S. repercussions, commerce secretary warns.**\
 `Gina Raimondo, the commerce secretary, said the U.S. could take “devastating” action against Chinese companies that defy Russian sanctions.`\
 https://nytimes.com/2022/03/08/technology/chinese-companies-russia-semiconductors.html?searchResultPosition=6
 
