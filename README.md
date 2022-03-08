@@ -11,7 +11,7 @@ https://nytimes.com/2022/03/07/crosswords/daily-puzzle-2022-03-08.html?searchRes
 https://nytimes.com/2022/03/07/us/politics/lynching-bill-senate.html?searchResultPosition=3
 
 **Minneapolis Teachers Announce They Will Go on Strike**\
-`Negotiations are still happening in St. Paul. The unions are asking for smaller class sizes and higher wages, while the school districts say their budgets are shrinking as enrollment declines.`\
+`The union is asking for smaller class sizes and higher wages, while the school district says its budget is shrinking because of declining enrollment. After negotiations, St. Paul averted a strike.`\
 https://nytimes.com/2022/03/07/us/minneapolis-st-paul-teachers-strike.html?searchResultPosition=4
 
 **Zelensky is seen in his office in Kyiv for the first time since invasion began.**\
