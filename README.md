@@ -15,7 +15,7 @@ https://nytimes.com/interactive/2022/03/08/nyregion/nj-budget.html?searchResultP
 https://nytimes.com/2022/03/08/business/homeland-security-data-collection.html?searchResultPosition=4
 
 **He Spent $57,000 in Covid Relief on a Pokémon Card. Now the U.S. Owns It.**\
-`The mint Charizard trading card will be auctioned off with other fraudulently obtained luxury items seized by United States Marshals. Its former owner was sentenced to three years in prison.`\
+`The mint Charizard trading card will be auctioned off with other fraudulently obtained luxury items seized by the U.S. Marshals. Its former owner was sentenced to three years in prison.`\
 https://nytimes.com/2022/03/08/us/covid-fraud-pokemon-card-charizard.html?searchResultPosition=5
 
 **Your Wednesday Briefing: Biden Bans Russian Oil**\
