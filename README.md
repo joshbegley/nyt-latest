@@ -2,7 +2,7 @@
 `The company will let go more that 3,000 employees three months after gaining notoriety for firing 900 workers in a Zoom call.`\
 https://nytimes.com/2022/03/08/business/better-mortgage-lender-layoffs.html?searchResultPosition=1
 
-**Chattanooga’s Buzzer Beater Came With Something Extra**\
+**Chattanooga’s Buzzer-Beater Came With Something Extra**\
 `Overtime? Check. Game on the line? Check. N.C.A.A. tournament at stake? Check.`\
 https://nytimes.com/2022/03/08/sports/ncaabasketball/chattanooga-buzzer-beater.html?searchResultPosition=2
 
