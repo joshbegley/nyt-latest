@@ -34,7 +34,7 @@ https://nytimes.com/2022/03/08/opinion/letters/russia-ukraine-oil-sanctions.html
 `Once the most viral video of all time, the film reads as both a digital relic and a precursor to an era in which footage of conflict dominates the internet.`\
 https://nytimes.com/2022/03/08/style/kony-2012-invisible-children.html?searchResultPosition=9
 
-**U.S. gas prices hit a record high: $4.17 a gallon.**\
+**U.S. gas prices hit a high: $4.17 a gallon.**\
 `The price of a gallon of gas has climbed in the aftermath of Russia’s invasion of Ukraine. Russia is a major producer of oil.`\
 https://nytimes.com/2022/03/08/business/us-gas-prices-record.html?searchResultPosition=10
 
