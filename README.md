@@ -32,7 +32,7 @@ https://nytimes.com/2022/03/08/learning/taste-test.html?searchResultPosition=8
 
 **Finding a Retirement Home for 466 Frozen Flatworm Fragments**\
 `When researchers end their careers, where do their biological collections go?`\
-https://nytimes.com/2022/03/08/science/finding-a-retirement-home-for-466-frozen-flatworm-fragments.html?searchResultPosition=9
+https://nytimes.com/2022/03/08/science/frozen-flatworm-retriement.html?searchResultPosition=9
 
 **Quotation of the Day: Military Giant Proves Clumsy. Rivals Notice.**\
 `Quotation of the Day for Tuesday, March 8, 2022.`\
