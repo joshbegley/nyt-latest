@@ -18,7 +18,7 @@ https://nytimes.com/2022/03/08/books/cormac-mccarthy-new-novels.html?searchResul
 `In her new novel, Karen Joy Fowler imagines the lives of John Wilkes Booth’s troubled parents and his many siblings.`\
 https://nytimes.com/2022/03/08/books/review-booth-karen-joy-fowler.html?searchResultPosition=5
 
-**Chinese companies that aid Russia could be face U.S. repercussions, commerce secretary warns.**\
+**Chinese companies that aid Russia could face U.S. repercussions, commerce secretary warns.**\
 `Gina Raimondo, the commerce secretary, said the U.S. could take “devastating” action against Chinese companies that defy Russian sanctions.`\
 https://nytimes.com/2022/03/08/technology/chinese-companies-russia-semiconductors.html?searchResultPosition=6
 
