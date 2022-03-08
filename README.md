@@ -10,8 +10,8 @@ https://nytimes.com/2022/03/08/us/politics/biden-midterms-michael-kazin.html?sea
 `He’s not a man to admit defeat, so he could just keep doubling down.`\
 https://nytimes.com/2022/03/08/opinion/putin-ukraine-russia-war.html?searchResultPosition=3
 
-**Venezuela Releases Imprisoned American After Talks With U.S.**\
-`The release of at least one American came after the Biden officials moved to thaw relations with Venezuela, long a steadfast ally of Russia.`\
+**Venezuela Releases Imprisoned Americans After Talks With U.S.**\
+`The release of at least two Americans came after the Biden officials moved to thaw relations with Venezuela, long a steadfast Russian ally.`\
 https://nytimes.com/2022/03/08/world/americas/venezuela-american-prisoner-release.html?searchResultPosition=7
 
 **Edmund Keeley Dies at 94; Shone a Light on Modern Greek Culture**\
