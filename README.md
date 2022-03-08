@@ -1,5 +1,5 @@
 **Zelensky is seen in his office in Kyiv for the first time since invasion began.**\
-`By Jesus Jiménez`\
+`The Ukrainian president told his people that he was not afraid or in hiding.`\
 https://nytimes.com/2022/03/07/world/europe/zelensky-ukraine-russia-invasion.html?searchResultPosition=1
 
 **N.Y.C. Students Return to Class After School Mask Mandate Ends**\
