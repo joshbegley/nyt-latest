@@ -6,7 +6,7 @@ https://nytimes.com/2022/03/08/world/asia/south-korea-presidential-election.html
 `A legal battle in Oklahoma over whether prisoners feel severe pain after being given the sedative, midazolam, will determine whether its use is constitutional.`\
 https://nytimes.com/2022/03/08/us/oklahoma-execution-lethal-injection-trial.html?searchResultPosition=2
 
-**How a ban Russian oil imports could have possible economic fallout.**\
+**How a ban Russian oil imports could affect the U.S. economy.**\
 `The White House is expected to stop energy imports as Russia invades Ukraine, a move that could push American gas prices higher.`\
 https://nytimes.com/2022/03/08/business/russian-oil-ban-economy.html?searchResultPosition=3
 
