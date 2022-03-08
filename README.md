@@ -1,5 +1,5 @@
 **Italian Senator’s Support for Putin Is Challenged During Poland Visit**\
-`The mayor of a Polish town bordering Ukraine presented a white T-shirt bearing an image of President Vladimir V. Putin of Russia to the far-right Italian senator Matteo Salvini, and told him he had to wear it if he wanted to meet refugees. Before the war Mr. Salvini was a fan of Mr. Putin.`\
+`The mayor of a Polish town bordering Ukraine presented a white T-shirt bearing an image of President Vladimir V. Putin of Russia to the far-right Italian senator Matteo Salvini, and told him he had to wear it if he wanted to meet refugees. Before the war, Mr. Salvini was a fan of Mr. Putin.`\
 https://nytimes.com/video/world/europe/100000008245419/salvini-putin-poland-ukraine.html?searchResultPosition=1
 
 **Weight Watchers App Gathered Data From Children, F.T.C. Says**\
