@@ -28,7 +28,7 @@ https://nytimes.com/interactive/2022/03/09/opinion/sheila-heti-alphabetized-diar
 
 **Where Fashion Stylists Shop for Vintage**\
 `Desert Vintage came from Tucson to the Lower East Side. It’s already right at home.`\
-https://nytimes.com/2022/03/09/style/where-fashion-stylists-shop-for-vintage.html?searchResultPosition=8
+https://nytimes.com/2022/03/09/style/desert-vintage-fashion-stylists.html?searchResultPosition=8
 
 **Here are some of the businesses that have pledged to cut ties with Russia.**\
 `Under pressure from investors and consumers, many Western companies have started to unwind their investments, close stores and pause sales in Russia.`\
