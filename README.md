@@ -27,7 +27,7 @@ https://nytimes.com/video/world/100000008242973/ukrainian-refugees-women-return.
 https://nytimes.com/2022/03/09/business/disney-ceo-florida-lgbtq-bill.html?searchResultPosition=7
 
 **‘Just Put the Body Outside.’ The Bloody Siege of Mariupol**\
-`Under a relentless Russian barrage, there is no heat or electricity, and people are boiling snow for water. A 6-year-old died of starvation, the authorities said.`\
+`Under a relentless Russian barrage, there is no heat or electricity, and people are boiling snow for water. A 6-year-old died of dehydration, the authorities said.`\
 https://nytimes.com/2022/03/09/world/europe/just-put-the-body-outside-the-bloody-siege-of-mariupol.html?searchResultPosition=8
 
 **Moving Through the Lens**\
