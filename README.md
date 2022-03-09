@@ -20,7 +20,7 @@ https://nytimes.com/interactive/2022/03/09/movies/godfather-anniversary-quiz.htm
 
 **$900,000 Homes in Virginia, Louisiana and New Jersey**\
 `A 1912 Greek Revival house in Hopewell, a four-bedroom home near New Orleans and a three-bedroom duplex in Jersey City.`\
-https://nytimes.com/2022/03/09/realestate/home-prices-virginia-louisiana-and-new-jersey.html?searchResultPosition=6
+https://nytimes.com/2022/03/09/realestate/home-prices-virginia-louisiana-new-jersey.html?searchResultPosition=6
 
 **What You Get for $900,000**\
 `A 1912 Greek Revival house in Hopewell, Va.; a four-bedroom home near New Orleans; and a three-bedroom duplex in Jersey City, N.J.`\
