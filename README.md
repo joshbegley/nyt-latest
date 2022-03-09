@@ -10,7 +10,7 @@ https://nytimes.com/2022/03/09/world/asia/south-korea-election-yoon-suk-yeol.htm
 `For one Black woman, embracing polyamory has allowed her to “experience the expansiveness of love.”`\
 https://nytimes.com/2022/03/09/podcasts/modern-love-polyamory-girlfriend-boyfriend.html?searchResultPosition=3
 
-**Starbucks Workers at Another Buffalo-Area Store Vote to Unionize**\
+**Starbucks Workers at 2 More Buffalo-Area Stores Vote to Unionize**\
 `The ballots were counted amid a growing nationwide campaign among the chain’s employees.`\
 https://nytimes.com/2022/03/09/business/economy/starbucks-union-vote-buffalo.html?searchResultPosition=4
 
