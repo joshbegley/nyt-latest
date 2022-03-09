@@ -7,7 +7,7 @@ https://nytimes.com/2022/03/09/business/oligarchs-money-concord.html?searchResul
 https://nytimes.com/2022/03/09/health/heart-transplant-pig-bennett.html?searchResultPosition=2
 
 **Punk Rock’s New Hope: the Ferocious, Joyful Linda Lindas**\
-`Fueled by punk conviction (and snacks), this all-girl, school-age band is ready to release its debut album, “Growing Up,” a year after their song “Racist, Sexist Boy” went viral.`\
+`Fueled by punk conviction (and snacks), this all-girl, school-age band is ready to release its debut album, “Growing Up,” nearly a year after its song “Racist, Sexist Boy” went viral.`\
 https://nytimes.com/2022/03/09/arts/music/the-linda-lindas-growing-up.html?searchResultPosition=3
 
 **Leslie Jones Gets Revved Up by Vinyl, Live Tweeting and ‘Euphoria’**\
