@@ -2,13 +2,13 @@
 `Members of the House Judiciary committee accused Amazon of obstructing its inquiry into how the company treats third-party sellers.`\
 https://nytimes.com/2022/03/09/business/amazon-antitrust-investigation.html?searchResultPosition=1
 
+**The Conference Champion Not Going to the N.C.A.A. Tournament**\
+`Bellarmine is ineligible for the tournament while the university is in the process from transitioning to Division I from Division II.`\
+https://nytimes.com/2022/03/09/sports/ncaabasketball/bellarmine-jacksonville-asun-tournament-ncaa-tournament.html?searchResultPosition=2
+
 **Englewood, N.J.: A Cosmopolitan Suburb Close to the City**\
 `The Bergen County city combines an urban vibe with the hilly terrain and residential neighborhoods of a smaller town, just a few miles from Manhattan.`\
-https://nytimes.com/2022/03/09/realestate/englewood-nj-a-cosmopolitan-suburb-close-to-the-city.html?searchResultPosition=2
-
-**The Conference Champion Not Going to the N.C.A.A. Tournament**\
-`Bellarmine is ineligible for the tournament while the university is the in process from transitioning to Division I from Division II.`\
-https://nytimes.com/2022/03/09/sports/ncaabasketball/bellarmine-jacksonville-asun-tournament-ncaa-tournament.html?searchResultPosition=3
+https://nytimes.com/2022/03/09/realestate/englewood-nj-a-cosmopolitan-suburb-close-to-the-city.html?searchResultPosition=3
 
 **Living In ... Englewood, N.J.**\
 `The Bergen County city combines an urban vibe with the hilly terrain and residential neighborhoods of a smaller town, just a few miles from Manhattan.`\
