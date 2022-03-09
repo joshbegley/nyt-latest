@@ -2,7 +2,7 @@
 `Officials said President Biden had struggled for days over the move amid deep concerns about accelerating the already rapid rise in the price of gasoline.`\
 https://nytimes.com/2022/03/08/us/politics/biden-oil-ban-russia-ukraine-putin.html?searchResultPosition=1
 
-**Mark Meadows Spread Trump’s Voter Fraud Claims. Now His Voting Record is Under Scrutiny.**\
+**Mark Meadows Spread Trump’s Voter Fraud Claims. Now His Voting Record Is Under Scrutiny.**\
 `The former Trump aide listed a mobile home in rural North Carolina as his residence at the same time that he was running operations at the White House.`\
 https://nytimes.com/2022/03/08/us/politics/mark-meadows-trump-vote-north-carolina.html?searchResultPosition=2
 
