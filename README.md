@@ -26,8 +26,8 @@ https://nytimes.com/2022/03/09/arts/ryan-coogler-bank-america.html?searchResultP
 `Russia was more isolated after sanctions.`\
 https://nytimes.com/2022/03/09/briefing/ukraine-mariupol-russia-hong-kong.html?searchResultPosition=7
 
-**A family’s dash toward safety in Ukraine ends tragically.**\
-`Tetiana Perebyinis and her two children were caught in an attack as they tried to reach safety. “The whole world should know what is happening here,” her husband said.`\
+**They Died by a Bridge in Ukraine. This Is Their Story.**\
+`Tetiana Perebyinis and her two children made a run for safety under heavy shelling from Russian artillery. Her husband describes their lives together, and their final hours.`\
 https://nytimes.com/2022/03/09/world/europe/ukraine-family-perebyinis-kyiv.html?searchResultPosition=8
 
 **Before Jussie Smollett Sentencing, His Supporters Ask for ‘Mercy’**\
