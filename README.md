@@ -32,7 +32,7 @@ https://nytimes.com/2022/03/09/sports/soccer/real-madrid-psg-benzema.html?search
 
 **Charles E. Entenmann, Last of a Storied Baking Family, Dies at 92**\
 `Working with his brothers and their mother, he helped turn the company that bore their name into a nationally known symbol of sweetness.`\
-https://nytimes.com/2022/03/09/obituaries/charles-e-entenmann-last-of-a-storied-baking-family-dies-at-92.html?searchResultPosition=9
+https://nytimes.com/2022/03/09/obituaries/charles-e-entenmann-dead.html?searchResultPosition=9
 
 **Fred Ferretti, Reporter Turned Writer on Food, Dies at 90**\
 `He covered every aspect of dining for The Times from 1969 to 1986 and then became a columnist for Gourmet magazine.`\
