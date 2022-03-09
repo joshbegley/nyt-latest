@@ -4,7 +4,7 @@ https://nytimes.com/2022/03/08/us/politics/biden-oil-ban-russia-ukraine-putin.ht
 
 **Mark Meadows Spread Trump’s Voter Fraud Claims. Now His Voting Record is Under Scrutiny.**\
 `The former Trump aide listed a mobile home in rural North Carolina as his residence at the same time that he was running operations at the White House.`\
-https://nytimes.com/2022/03/08/us/politics/mark-meadows-vote-north-carolina.html?searchResultPosition=2
+https://nytimes.com/2022/03/08/us/politics/mark-meadows-trump-vote-north-carolina.html?searchResultPosition=2
 
 **Corrections: March 9, 2022**\
 `Corrections that appeared in print on Wednesday, March 9, 2022.`\
