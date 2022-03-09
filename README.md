@@ -2,13 +2,13 @@
 `On the final day of the collections, Miu Miu offers attitude and Chanel tweed. But Comme des Garçons presents hope.`\
 https://nytimes.com/2022/03/09/style/chanel-miu-miu-comme-des-garcons-fall-2022.html?searchResultPosition=1
 
-**Republicans, Once Harsh Ukraine Critics, Pivot to Strong Support**\
-`In a matter of weeks, the center of gravity on Ukraine has sharply shifted among Republicans, muffling doubts about U.S. involvement and dismissing questions about the recent past.`\
-https://nytimes.com/2022/03/09/us/politics/republicans-ukraine.html?searchResultPosition=2
-
 **Loss of Russian Oil Leaves a Void Not Easily Filled, Straining Market**\
 `Global production will take time to ramp up, so the U.S. and other buyers will chase limited supplies, creating upheaval unseen in decades.`\
-https://nytimes.com/2022/03/09/business/energy-environment/loss-of-russian-oil-leaves-a-void-not-easily-filled-straining-market.html?searchResultPosition=3
+https://nytimes.com/2022/03/09/business/energy-environment/russia-oil-global-economy.html?searchResultPosition=2
+
+**Republicans, Once Harsh Ukraine Critics, Pivot to Strong Support**\
+`In a matter of weeks, the center of gravity on Ukraine has sharply shifted among Republicans, muffling doubts about U.S. involvement and dismissing questions about the recent past.`\
+https://nytimes.com/2022/03/09/us/politics/republicans-ukraine.html?searchResultPosition=3
 
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
