@@ -4,7 +4,7 @@ https://nytimes.com/article/russia-companies-leaving.html?searchResultPosition=1
 
 **How Western Firms Quietly Enabled Russian Oligarchs**\
 `Investment, law and lobbying firms have helped enmesh Kremlin-linked oligarchs into the Western financial and legal systems.`\
-https://nytimes.com/2022/03/09/business/oligarchs-money-concord.html?searchResultPosition=2
+https://nytimes.com/2022/03/09/business/russian-oligarchs-money-concord.html?searchResultPosition=2
 
 **Patient in Groundbreaking Heart Transplant Dies**\
 `David Bennett Sr. had received a heart from a genetically modified pig, a procedure that may yet offer hope to millions of Americans needing transplants.`\
