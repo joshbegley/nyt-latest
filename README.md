@@ -1,4 +1,4 @@
-**Californians may get gas tax rebate to combat soaring fuel prices.**\
+**Californians may get tax rebate to combat soaring fuel prices.**\
 `Gov. Gavin Newsom addressed the cost of gas, which is the highest in the nation, during his State of the State address.`\
 https://nytimes.com/2022/03/08/business/california-gas-prices-newsom.html?searchResultPosition=1
 
