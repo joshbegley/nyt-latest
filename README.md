@@ -1,10 +1,10 @@
-**Spirit-Frontier merger could hurt airline competition, legislators say.**\
-`A group of progressive senators and House members urged federal officials to scrutinize the plan, saying it could harm travelers and workers.`\
-https://nytimes.com/2022/03/10/business/spirit-frontier-airline-merger.html?searchResultPosition=1
-
 **‘I Am Here’ Review: A Holocaust Survivor Reckons With Her Pain**\
 `Decades after experiencing some of the most nightmarish moments of World War II, a woman shares her stories.`\
-https://nytimes.com/2022/03/10/movies/i-am-here-review-a-holocaust-survivor-reckons-with-her-pain.html?searchResultPosition=2
+https://nytimes.com/2022/03/10/movies/i-am-here-review.html?searchResultPosition=1
+
+**Spirit-Frontier merger could hurt airline competition, legislators say.**\
+`A group of progressive senators and House members urged federal officials to scrutinize the plan, saying it could harm travelers and workers.`\
+https://nytimes.com/2022/03/10/business/spirit-frontier-airline-merger.html?searchResultPosition=2
 
 **‘Gold’ Review: Dry Heave**\
 `Zac Efron stars in an unrelentingly miserable post-apocalyptic movie from the Australian actor and director Anthony Hayes.`\
