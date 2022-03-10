@@ -4,7 +4,7 @@ https://nytimes.com/2022/03/10/movies/offseason-review.html?searchResultPosition
 
 **A Labor Movement for the Artists Who Make Popular Culture Move**\
 `“Why are we not working together to fix our problems?” Entertainment-industry choreographers are uniting to address long-simmering issues.`\
-https://nytimes.com/2022/03/10/arts/choreographers-guild.html?searchResultPosition=2
+https://nytimes.com/2022/03/10/arts/dance/choreographers-guild.html?searchResultPosition=2
 
 **Ty Haney Is Doing Things Differently This Time**\
 `The Outdoor Voices founder has a new venture that aims to reward customers with blockchain-based assets. But do brand loyalists really want NFTs?`\
