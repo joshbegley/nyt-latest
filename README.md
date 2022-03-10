@@ -16,7 +16,7 @@ https://nytimes.com/2022/03/10/business/justice-director-covid-fraud.html?search
 
 **Businesses Assail Texas Move to Classify Care for Trans Teens as ‘Child Abuse’**\
 `A new ad signed by dozens of big companies warns, “Discrimination is bad for business.”`\
-https://nytimes.com/2022/03/10/us/politics/businesses-assail-texas-move-to-classify-care-for-trans-teens-as-child-abuse.html?searchResultPosition=5
+https://nytimes.com/2022/03/10/us/politics/businesses-texas-trans-teens-child-abuse.html?searchResultPosition=5
 
 **Thirteen governors want the federal public health emergency extended beyond April.**\
 `In a letter to the U.S. health secretary, the governors, all Democrats, said they needed more time to prepare for when the emergency expires, taking with it federal resources that state programs depend on.`\
