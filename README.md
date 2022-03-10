@@ -32,7 +32,7 @@ https://nytimes.com/2022/03/09/sports/baseball/mlb-lockout.html?searchResultPosi
 
 **Damaged Chernobyl Nuclear Plant, Occupied by Russia, Loses Outside Power**\
 `The site of the worst nuclear accident in history, where a yearslong cleanup is underway, is now dependent on power from diesel generators and backup supplies.`\
-https://nytimes.com/2022/03/09/world/europe/ukraine-chernobyl-electricity.html?searchResultPosition=9
+https://nytimes.com/2022/03/09/world/europe/ukraine-chernobyl-power.html?searchResultPosition=9
 
 **Russia Bombards Ukraine Cities and Accuses U.S. of ‘Economic War’**\
 `Misery deepened in Ukraine, where millions of people were caught in besieged cities, and in Russia, where the West’s economic sanctions were biting hard.`\
