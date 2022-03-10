@@ -35,6 +35,6 @@ https://nytimes.com/2022/03/09/us/politics/house-spending-bill.html?searchResult
 https://nytimes.com/2022/03/09/pageoneplus/corrections-march-10-2022.html?searchResultPosition=9
 
 **What a Power Cutoff Could Mean for Chernobyl’s Nuclear Waste**\
-`With no working reactors, there is no risk of a meltdown. But the ruins from the 1983 disaster still pose considerable dangers.`\
+`With no working reactors, there is no risk of a meltdown. But the ruins from the 1986 disaster still pose considerable dangers.`\
 https://nytimes.com/2022/03/09/climate/chernobyl-nuclear-waste-power-outage.html?searchResultPosition=10
 
