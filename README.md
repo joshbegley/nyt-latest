@@ -6,8 +6,8 @@ https://nytimes.com/2022/03/10/business/stellantis-cars-russia.html?searchResult
 `A show at the Metropolitan Museum, organized around a single marble sculpture, re-examines works of art representing slavery and abolition.`\
 https://nytimes.com/2022/03/10/arts/design/carpeaux-recast-met-museum-review.html?searchResultPosition=2
 
-**Prosecutors Agree to New DNA Testing in Murder Case at the Center of ‘Serial’**\
-`Serving life in prison in Maryland for the 1999 killing of Hae Min Lee, Adnan Syed is seeking a sentence reduction in his case.`\
+**Prosecutors Agree to New DNA Testing in ‘Serial’ Case**\
+`Adnan Syed, who is serving life in prison in Maryland for the 1999 killing of Hae Min Lee, still insists on his innocence and is seeking a sentence reduction.`\
 https://nytimes.com/2022/03/10/us/serial-adnan-syed-dna.html?searchResultPosition=3
 
 **When a School Desegregates, Who Gets Left Behind?**\
