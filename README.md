@@ -6,7 +6,7 @@ https://nytimes.com/2022/03/10/books/review/11-new-books-we-recommend-this-week.
 `A show in two downtown galleries surveys the Covid cityscapes of this multitalented artist, who has become one of the town’s best painters.`\
 https://nytimes.com/2022/03/10/arts/design/tabboo-cityscapes.html?searchResultPosition=2
 
-**Iraqi oil minister says high oil prices, if they last, could speed the shift to E.V.s.**\
+**Iraqi minister says high oil prices, if they last, could speed the shift to E.V.s.**\
 `Whatever the short-term benefits for producers, the market upheaval could accelerate the transition away from oil, he says.`\
 https://nytimes.com/2022/03/10/business/energy-environment/iraq-opec-oil-price.html?searchResultPosition=3
 
