@@ -7,7 +7,7 @@ https://nytimes.com/2022/03/10/briefing/ukraine-inflation-mlb.html?searchResultP
 https://nytimes.com/2022/03/10/briefing/child-vaccine-confusion.html?searchResultPosition=2
 
 **In Democratic Bastion, Liberal Rhetoric Is Out. ‘Affordability’ Is In.**\
-`In the first budget address of his second term, Gov. Philip Murphy responded to voters’ discontent at a time of surging gas costs and high taxes.`\
+`In the first budget address of his second term, Gov. Philip Murphy responded to New Jersey voters’ discontent at a time of surging gas costs and high taxes.`\
 https://nytimes.com/2022/03/10/nyregion/nj-governor-budget-address.html?searchResultPosition=3
 
 **The I.R.S. plans to hire 10,000 workers to clear a tax return backlog.**\
