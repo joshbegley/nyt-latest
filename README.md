@@ -14,7 +14,7 @@ https://nytimes.com/video/world/europe/100000008247784/ukraine-russia-humanitari
 `A federal judge said he would decide whether emails to and from John Eastman should be released to the House committee investigating the attack on the Capitol.`\
 https://nytimes.com/2022/03/09/us/politics/judge-review-emails-jan-6.html?searchResultPosition=4
 
-**Democrats Strip Covid Aid From $1.5 Trillion Spending Package**\
+**House Passes $1.5 Trillion Spending Bill as Democrats Drop Covid Aid**\
 `Facing disputes over how to cover the cost of the pandemic response effort, Democrats dropped it rather than jeopardize legislation that includes aid for Ukraine and other top priorities.`\
 https://nytimes.com/2022/03/09/us/politics/house-spending-bill.html?searchResultPosition=5
 
