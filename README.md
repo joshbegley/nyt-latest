@@ -3,7 +3,7 @@
 https://nytimes.com/2022/03/10/learning/whats-going-on-in-this-graph-march-16-2022.html?searchResultPosition=1
 
 **Turtle Nesting Season Is Back in Florida**\
-`Each year, thousands of female sea turtles make a pilgrimage to Florida’s beaches to nest.`\
+`Each year, thousands of female sea turtles make a pilgrimage to Florida’s beaches to nest. `\
 https://nytimes.com/interactive/2022/03/10/science/sea-turtle-nesting-season.html?searchResultPosition=2
 
 **Homes for Sale in New York and Connecticut**\
