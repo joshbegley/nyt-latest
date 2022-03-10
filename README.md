@@ -2,7 +2,7 @@
 `It was the first time, after years of lawsuits, that the family that owns Purdue Pharma was forced to hear directly from families who had lost loved ones to addiction.`\
 https://nytimes.com/2022/03/10/health/sacklers-opioids-victims.html?searchResultPosition=1
 
-**The war in Ukraine will likely slow global growth, the I.M.F. warns.**\
+**The war in Ukraine is likely to slow global growth, the I.M.F. warns.**\
 `The economic fallout from Russia’s invasion will depend on the outcome of the war and the duration of the sanctions.`\
 https://nytimes.com/2022/03/10/business/economy/imf-global-outlook-ukraine-war.html?searchResultPosition=2
 
