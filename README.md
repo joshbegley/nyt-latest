@@ -1,6 +1,6 @@
 **United Airlines workers with vaccine exemptions can return to their regular jobs.**\
 `The updated policy affects 2,200 employees who have been on unpaid leave or in roles not requiring in-person contact with customers.`\
-https://nytimes.com/2022/03/10/business/united-airlines-covid-vaccine.html?searchResultPosition=1
+https://nytimes.com/2022/03/10/business/united-covid-vaccine.html?searchResultPosition=1
 
 **Nelson W. Aldrich Jr., Dissector of Old Money, Dies at 86**\
 `In books and articles, he unsparingly scrutinized an American aristocracy that he knew intimately.`\
@@ -20,7 +20,7 @@ https://nytimes.com/2022/03/10/theater/this-space-between-us-review.html?searchR
 
 **2020 Census Undercounted U.S. Population by Nearly 19 Million**\
 `The Census Bureau said it had undercounted Black, Latino and Indigenous people and overcounted white and Asian Americans.`\
-https://nytimes.com/2022/03/10/us/census-bureau-undercounted-population.html?searchResultPosition=6
+https://nytimes.com/2022/03/10/us/census-undercounted-population.html?searchResultPosition=6
 
 **Dominique Morisseau Asks: ‘What Does Freedom Look Like Now?’**\
 `Her new play, “Confederates,” straddles two eras, exploring what liberation means to a present-day academic and an enslaved woman in the 1860s.`\
