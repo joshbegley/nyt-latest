@@ -1,4 +1,4 @@
-**Relatives of OxyContin Victims Confront Sacklers in Emotional Court Session**\
+**‘You Murdered My Daughter’: Relatives of OxyContin Victims Confront the Sacklers**\
 `It was the first time, after years of lawsuits, that the family that owns Purdue Pharma was forced to hear directly from families who had lost loved ones to addiction.`\
 https://nytimes.com/2022/03/10/health/sacklers-opioids-victims.html?searchResultPosition=1
 
