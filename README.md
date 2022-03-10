@@ -1,6 +1,6 @@
 **The New Financial Supermarkets**\
 `Private-equity firms were once niche players serving big clients. Now they’re trying to be everything to everyone.`\
-https://nytimes.com/2022/03/10/business/private-equity-is-the-new-financial-supermarket.html?searchResultPosition=1
+https://nytimes.com/2022/03/10/business/private-equity.html?searchResultPosition=1
 
 **Amid Murky Investigation, Key Defender Asks to Quit 9/11 Case**\
 `A defense lawyer who has spent a decade on the Guantánamo case abruptly sought to resign amid an in-house investigation.`\
