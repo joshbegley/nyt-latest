@@ -4,7 +4,7 @@ https://nytimes.com/2022/03/10/movies/the-adam-project-review.html?searchResultP
 
 **The Hunt for Oligarchs’ Money**\
 `More Russian billionaires are hit with sanctions, and their advisers face greater scrutiny.`\
-https://nytimes.com/2022/03/10/business/dealbook/abramovich-chelsea-oligarchs-sanctions.html?searchResultPosition=2
+https://nytimes.com/2022/03/10/business/dealbook/oligarchs-sanctions-abramovich-chelsea.html?searchResultPosition=2
 
 **‘I Am Here’ Review: A Holocaust Survivor Reckons With Her Pain**\
 `Decades after experiencing some of the most nightmarish moments of World War II, a woman shares her stories.`\
