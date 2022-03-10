@@ -30,7 +30,7 @@ https://nytimes.com/2022/03/10/technology/walkman-nostalgia.html?searchResultPos
 `Everyone’s favorite omnipotent being is back to reveal yet another alternate universe. But this time, he’s not giving out an education.`\
 https://nytimes.com/2022/03/10/arts/television/star-trek-picard-recap-season-2-episode-2.html?searchResultPosition=8
 
-**Americans Strongly Favor Deals for College Athletes, Poll Says**\
+**Americans Strongly Favor Moneymaking Deals for College Athletes, Poll Says**\
 `While consensus existed over college athletes being able to earn from endorsements, there were splits on gambling and paying player salaries.`\
 https://nytimes.com/2022/03/10/sports/marist-poll-college-sports-nil-gambling.html?searchResultPosition=9
 
