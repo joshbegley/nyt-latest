@@ -31,7 +31,7 @@ https://nytimes.com/2022/03/09/climate/chernobyl-nuclear-waste-power-outage.html
 https://nytimes.com/2022/03/09/us/politics/biden-pandemic-response-funding.html?searchResultPosition=8
 
 **Guatemalan Women Face Up to 10 Years in Prison Under New Abortion Law**\
-`The measure, which is expected to be signed into law by the Guatemala’s conservative president within weeks, would impose the harshest punishments for abortion of almost any country in Latin America.`\
+`The measure, which is expected to be signed into law by Guatemala’s conservative president within weeks, would impose the harshest punishments for abortion of almost any country in Latin America.`\
 https://nytimes.com/2022/03/09/world/americas/guatemala-abortion-prison.html?searchResultPosition=9
 
 **Modern-Day Moses**\
