@@ -2,7 +2,7 @@
 `Thank you to the nearly 1,500 students who participated this year. Check out the winning videos to learn 13 new words.`\
 https://nytimes.com/2022/03/10/learning/word-play-the-winners-of-our-9th-annual-15-second-vocabulary-video-contest.html?searchResultPosition=1
 
-**After the Satan Shoes, Building a Sneaker Empire (Not Evil).**\
+**After the Satan Shoes, Building a Sneaker Empire (Not Evil)**\
 `MSCHF has designs on your feet.`\
 https://nytimes.com/2022/03/10/style/mschf-sneakers-satan-shoes.html?searchResultPosition=2
 
