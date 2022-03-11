@@ -20,7 +20,7 @@ https://nytimes.com/2022/03/11/opinion/germany-ukraine-invasion.html?searchResul
 
 **U.S. Official Ends Sentence of Terrorist Who Was Tortured by C.I.A.**\
 `Majid Khan, who confessed to war crimes and turned informant in 2012, will not go free from Guantánamo Bay until U.S. diplomats find a country to take him in.`\
-https://nytimes.com/2022/03/11/us/politics/gitmo-prisoner-sentence-majid-khan.html?searchResultPosition=6
+https://nytimes.com/2022/03/11/us/politics/terrorist-gitmo-sentence-majid-khan.html?searchResultPosition=6
 
 **Ukraine War Gives Freight Firm a New Purpose: ‘I’m Fighting This Way’**\
 `After Russia’s invasion, Meest-America, which specializes in shipping goods to Eastern Europe, shifted to a singular focus.`\
