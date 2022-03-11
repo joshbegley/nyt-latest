@@ -28,7 +28,7 @@ https://nytimes.com/2022/03/11/us/covid-stimulus-money-fight.html?searchResultPo
 
 **AmfAR Heads to Billionaires Row in Palm Beach**\
 `Guests included Tommy Hilfiger, Sylvester Stallone and Christina Aguilera.`\
-https://nytimes.com/2022/03/11/style/amfar-heads-to-billionaires-row-in-palm-beach.html?searchResultPosition=8
+https://nytimes.com/2022/03/11/style/amfar-billionaires-row-palm-beach.html?searchResultPosition=8
 
 **Apps and Oranges: Behind Apple’s ‘Bullying’ on Trademarks**\
 `The company has opposed singer-songwriters, school districts and food blogs for trying to trademark names or logos featuring an apple — or a pear or pineapple.`\
