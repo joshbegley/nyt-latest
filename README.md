@@ -1,6 +1,6 @@
 **More Cities Bombarded**\
 `Russian forces widened their attacks.`\
-https://nytimes.com/2022/03/11/briefing/more-cities-bombarded.html?searchResultPosition=1
+https://nytimes.com/2022/03/11/briefing/russia-ukraine-attacked-cities.html?searchResultPosition=1
 
 **Reclaiming time lost to Covid**\
 `And a note to our readers.`\
