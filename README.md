@@ -1,4 +1,4 @@
-**Prosecutors to Drop Murder Charge in Fatal Shooting at Right-Wing Rally in Denver**\
+**Prosecutors to Drop Murder Charge in Fatal Shooting After Right-Wing Rally in Denver**\
 `The district attorney’s office said it was not able to overcome Matthew Dolloff’s claim that he had acted in “self-defense or defense of others” when he shot Lee John Keltner in 2020.`\
 https://nytimes.com/2022/03/10/us/denver-security-guard-charges-dropped.html?searchResultPosition=1
 
