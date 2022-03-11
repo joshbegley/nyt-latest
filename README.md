@@ -24,7 +24,7 @@ https://nytimes.com/2022/03/11/podcasts/transcript-ezra-klein-interviews-masha-g
 
 **Watch Live: Kamala Harris Meets With President Klaus Iohannis of Romania**\
 `The vice president is holding a joint news conference with the Romanian leader during her visit to Bucharest.`\
-https://nytimes.com/video/world/europe/100000008250238/kamala-harris-ukraine-russia-romania.html?searchResultPosition=7
+https://nytimes.com/video/embedded/world/europe/100000008250238/kamala-harris-ukraine-russia-romania.html?searchResultPosition=7
 
 **U.K. Court Rules Police Violated Rights of Sarah Everard Vigil Organizers**\
 `The judgment comes at a particularly fraught time for London’s Metropolitan Police Service, and as Parliament considers a law that would broaden police powers to clamp down on protests.`\
