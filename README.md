@@ -2,8 +2,8 @@
 `Helping a reader with a reluctant pet.`\
 https://nytimes.com/interactive/2022/03/11/smarter-living/wirecutter/dog-walking-rain.html?searchResultPosition=1
 
-**Watch Live: Biden To Call for New Trade Sanctions on Russia**\
-`Biden is expected to announce that the United States will join the G7 and the European Union in calling for the suspension of normal trade relations with Russia, a move that will raise tariffs on Russian products.`\
+**Watch Live: Biden Calls for New Trade Sanctions on Russia**\
+`Biden announces that the United States will join the G7 and the European Union in calling for the suspension of normal trade relations with Russia, a move that will raise tariffs on Russian products.`\
 https://nytimes.com/video/us/politics/100000008250283/biden-russia-trade-ukraine.html?searchResultPosition=2
 
 **The Mafia’s View of ‘The Godfather’ and How Literature Captures Upended Lives: The Week in Narrated Articles**\
