@@ -36,5 +36,5 @@ https://nytimes.com/2022/03/11/well/mind/women-sex-drive-libido.html?searchResul
 
 **Bracing for Losses, Democrats Look to Biden for a Reset**\
 `At a party retreat in Philadelphia, House Democrats hoped the president would offer a winning strategy heading into a challenging midterm election season.`\
-https://nytimes.com/2022/03/11/us/politics/democrats-biden-midterm-reset.html?searchResultPosition=10
+https://nytimes.com/2022/03/11/us/politics/democrats-biden-midterms.html?searchResultPosition=10
 
