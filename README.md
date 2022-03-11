@@ -24,7 +24,7 @@ https://nytimes.com/video/world/europe/100000008250238/kamala-harris-ukraine-rus
 
 **U.K. Court Rules Police Violated Rights of Sarah Everard Vigil Organizers**\
 `The judgment comes at a particularly fraught time for London’s Metropolitan Police Service, and as Parliament considers a law that would broaden police powers to clamp down on protests.`\
-https://nytimes.com/2022/03/11/world/europe/uk-everard-protest-court.html?searchResultPosition=7
+https://nytimes.com/2022/03/11/world/europe/uk-sarah-everard-protest-court.html?searchResultPosition=7
 
 **The Inside Story of How a ‘Bogus’ Letter Roiled Britain**\
 `Here are seven key takeaways from “The Trojan Horse Affair,” our podcast investigating a national scandal.`\
