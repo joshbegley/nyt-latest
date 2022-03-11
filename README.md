@@ -1,6 +1,6 @@
 **Saudi Blogger, Jailed and Flogged for Liberal Views, Is Freed From Prison**\
 `Amnesty International welcomed news of the release of Raif Badawi, whose case became a lightening rod for rights campaigners and reflected Saudi Arabia’s lack of tolerance for dissent.`\
-https://nytimes.com/2022/03/11/world/middleeast/raif-badawi-saudi-released.html?searchResultPosition=1
+https://nytimes.com/2022/03/11/world/middleeast/saudi-raif-badawi-liberation.html?searchResultPosition=1
 
 **Yes, You Can Make Salmon on the Stovetop Without the Smell**\
 `A simple dinner, which Genevieve Ko created for her college-bound daughter, also yielded a smart trick for silky, scentless fish.`\
