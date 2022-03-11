@@ -12,7 +12,7 @@ https://nytimes.com/interactive/2022/03/11/smarter-living/wirecutter/dog-walking
 
 **Watch Live: Biden Calls for New Trade Sanctions on Russia**\
 `Biden announces that the United States will join the G7 and the European Union in calling for the suspension of normal trade relations with Russia, a move that will raise tariffs on Russian products.`\
-https://nytimes.com/video/us/politics/100000008250283/biden-russia-trade-ukraine.html?searchResultPosition=4
+https://nytimes.com/video/embedded/us/politics/100000008250283/biden-russia-trade-ukraine.html?searchResultPosition=4
 
 **The Mafia’s View of ‘The Godfather’ and How Literature Captures Upended Lives: The Week in Narrated Articles**\
 `Five articles from around The Times, narrated just for you.`\
