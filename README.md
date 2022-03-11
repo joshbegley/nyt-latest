@@ -14,7 +14,7 @@ https://nytimes.com/2022/03/10/well/mind/coping-with-anxiety.html?searchResultPo
 `The actor was a fixture on the groundbreaking educational program. His character’s wedding to Maria on the show in 1988 captivated children and their parents.`\
 https://nytimes.com/2022/03/10/arts/television/emilio-delgado-dead.html?searchResultPosition=4
 
-**Jussie Smollett Is Sentenced to Jail for False Report of a Hate Crime**\
+**Jussie Smollett Sentenced to Jail for False Report of a Hate Crime**\
 `The actor was sentenced to five months in jail after being convicted last year of filing a false police report that said he had been the victim of a racist and homophobic attack.`\
 https://nytimes.com/2022/03/10/arts/television/jussie-smollett-sentencing.html?searchResultPosition=5
 
