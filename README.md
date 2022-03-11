@@ -16,7 +16,7 @@ https://nytimes.com/2022/03/11/well/mind/wellness-ketamine-mental-health.html?se
 
 **The New Captain of the Endurance Shipwreck Is an Anemone**\
 `A who’s who of the new invertebrate crew steering Ernest Shackleton’s sunken ship in the Weddell Sea.`\
-https://nytimes.com/2022/03/11/science/shackleton-endurance-wreck.html?searchResultPosition=5
+https://nytimes.com/2022/03/11/science/endurance-ship-ernest-shackleton.html?searchResultPosition=5
 
 **Jussie Smollett, Once an ‘Empire’ Star, Is Now in the Cook County Jail**\
 `On Thursday evening, Mr. Smollett began serving a five-month sentence for falsely reporting a hate crime, a conviction he plans to appeal.`\
