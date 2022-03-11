@@ -1,6 +1,6 @@
 **Chinese stocks listed in U.S. tumble over fears of potential delisting**\
 `The S.E.C. specified five U.S.-traded Chinese companies required to turn over audit information to regulators. The news reverberated in Asian markets Friday.`\
-https://nytimes.com/2022/03/11/business/chinese-stocks-listed-in-us-tumble-over-fears-of-potential-delisting.html?searchResultPosition=1
+https://nytimes.com/2022/03/11/business/chinese-stocks-delisting.html?searchResultPosition=1
 
 **As Ireland’s Church Retreats, the Cult of a Female Saint Thrives**\
 `The cult of Saint Brigid, with its emphasis on nature and healing, and its shift away from the patriarchal faith of traditional Catholicism in Ireland, is attracting people from around the world.`\
