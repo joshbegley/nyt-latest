@@ -36,5 +36,5 @@ https://nytimes.com/2022/03/11/opinion/russia-sanctions.html?searchResultPositio
 
 **Facebook’s Parent Company Will Make Employees Do Their Own Laundry**\
 `The company told workers on Friday that it will reduce or eliminate some of its famous perks as it prepares for a return to the office.`\
-https://nytimes.com/2022/03/11/technology/facebook-office-perks-laundry-free-dinner.html?searchResultPosition=10
+https://nytimes.com/2022/03/11/technology/facebook-meta-perks.html?searchResultPosition=10
 
