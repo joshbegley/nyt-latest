@@ -1,6 +1,6 @@
 **An Educator Read ‘I Need a New Butt!’ to Children. Then He Was Fired.**\
 `Toby Price, an assistant principal at an elementary school in Mississippi, read the book to a class of second graders over Zoom. “I am a firm believer that reluctant readers need the silly, funny books to hook them in,” he said.`\
-https://nytimes.com/2022/03/11/us/assistant-principal-fired-mississippi.html?searchResultPosition=1
+https://nytimes.com/2022/03/11/us/toby-price-mississippi.html?searchResultPosition=1
 
 **‘Stealth’ Omicron Is Stealthy No More: What’s Known About the BA.2 Variant**\
 `The subvariant of Omicron is not yet causing a new surge in the United States and probably won’t.`\
