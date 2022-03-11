@@ -30,7 +30,7 @@ https://nytimes.com/2022/03/11/world/europe/uk-everard-protest-court.html?search
 `Here are seven key takeaways from “The Trojan Horse Affair,” our podcast investigating a national scandal.`\
 https://nytimes.com/2022/03/11/podcasts/trojan-horse-podcast-takeaways.html?searchResultPosition=8
 
-**Australia considers lifting its isolation requirement for close contacts of Covid cases.**\
+**Australia considers lifting its quarantine requirement for close contacts of Covid cases.**\
 `The country is moving toward protecting the most vulnerable rather than trying to prevent all transmission of the virus.`\
 https://nytimes.com/2022/03/11/world/australia/covid-australia-close-contacts.html?searchResultPosition=9
 
