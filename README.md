@@ -28,7 +28,7 @@ https://nytimes.com/2022/03/11/us/isaiah-andrews-released-ohio.html?searchResult
 
 **The U.S. and the E.U., aiming to punish oligarchs, ban luxury exports to Russia.**\
 `The move will prevent any shipments of high-end watches, cars, apparel, alcohol and jewelry from reaching the country.`\
-https://nytimes.com/2022/03/11/business/luxury-exports-russia.html?searchResultPosition=8
+https://nytimes.com/2022/03/11/business/russia-luxury-exports.html?searchResultPosition=8
 
 **An Educator Read ‘I Need a New Butt!’ to Children. Then He Was Fired.**\
 `Toby Price, an assistant principal at an elementary school in Mississippi, read the book to a class of second graders over Zoom. “I am a firm believer that reluctant readers need the silly, funny books to hook them in,” he said.`\
