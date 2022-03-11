@@ -1,5 +1,5 @@
 **Crème de Cassis for the 21st Century**\
-`You can use this black currant-based liqueur in more than just Kir. Here’s how to use it at home.`\
+`You can use this black currant-based liqueur in more than just kir. Here’s how to use it at home.`\
 https://nytimes.com/2022/03/11/dining/drinks/creme-de-cassis-cocktails.html?searchResultPosition=1
 
 **What Do I Do With All My Old Ties?**\
