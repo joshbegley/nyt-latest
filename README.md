@@ -1,6 +1,6 @@
 **Australian Police Officer Acquitted in Death of Indigenous Teenager**\
 `Many Indigenous Australians had seen the case as a test of whether the authorities could be held accountable after what they call decades of abuses.`\
-https://nytimes.com/2022/03/11/world/australia/police-officer-acquitted-indigenous-death.html?searchResultPosition=1
+https://nytimes.com/2022/03/11/world/australia/zachary-rolfe-kumanjayi-walker.html?searchResultPosition=1
 
 **An Indian state that Covid once hit hard is now recording sharply lower deaths.**\
 `The western state of Maharashtra on Wednesday reported no daily fatalities from the virus for the third time this month.`\
