@@ -1,40 +1,40 @@
+**Watch Live: Kamala Harris Meets With President Klaus Iohannis of Romania**\
+`The vice president is holding a joint news conference with the Romanian leader during her visit to Bucharest.`\
+https://nytimes.com/video/world/europe/100000008250238/kamala-harris-ukraine-russia-romania.html?searchResultPosition=1
+
+**U.K. Court Rules Police Violated Rights of Sarah Everard Vigil Organizers**\
+`The judgment comes at a particularly fraught time for London’s Metropolitan Police Service, and as Parliament considers a law that would broaden police powers to clamp down on protests.`\
+https://nytimes.com/2022/03/11/world/europe/uk-everard-protest-court.html?searchResultPosition=2
+
 **The Inside Story of How a ‘Bogus’ Letter Roiled Britain**\
 `Here are seven key takeaways from “The Trojan Horse Affair,” our podcast investigating a national scandal.`\
-https://nytimes.com/2022/03/11/podcasts/trojan-horse-podcast-takeaways.html?searchResultPosition=1
+https://nytimes.com/2022/03/11/podcasts/trojan-horse-podcast-takeaways.html?searchResultPosition=3
 
 **Australia considers lifting its isolation requirement for close contacts of Covid cases.**\
 `The country is moving toward protecting the most vulnerable rather than trying to prevent all transmission of the virus.`\
-https://nytimes.com/2022/03/11/world/australia/covid-australia-close-contacts.html?searchResultPosition=2
+https://nytimes.com/2022/03/11/world/australia/covid-australia-close-contacts.html?searchResultPosition=4
 
 **Leo Marx, 102, Dies; Studied Clash of Nature and Culture in America**\
 `His landmark book, “The Machine in the Garden,” explored the contradiction of a “pastoral ideal” and helped define the field of American studies.`\
-https://nytimes.com/2022/03/11/books/leo-marx-dead.html?searchResultPosition=3
+https://nytimes.com/2022/03/11/books/leo-marx-dead.html?searchResultPosition=5
 
 **Watch Robert Pattinson Take Flight in ‘The Batman’**\
 `The director Matt Reeves narrates a sequence in which Batman flees the police from a rooftop using his batsuit.`\
-https://nytimes.com/2022/03/11/movies/the-batman-clip.html?searchResultPosition=4
+https://nytimes.com/2022/03/11/movies/the-batman-clip.html?searchResultPosition=6
 
 **‘The Batman’ | Anatomy of a Scene**\
 `Matt Reeves narrates a sequence from his film, starring Robert Pattinson.`\
-https://nytimes.com/video/movies/100000008249669/the-batman-scene.html?searchResultPosition=5
+https://nytimes.com/video/movies/100000008249669/the-batman-scene.html?searchResultPosition=7
 
 **Your Induction Stove Is the First Step Toward Plugging In the Whole House**\
 `If you give up the open flame now, when it comes to time to replace the furnace and water heater, you’ll be less reluctant to cap your gas line.`\
-https://nytimes.com/2022/03/11/realestate/induction-stoves.html?searchResultPosition=6
+https://nytimes.com/2022/03/11/realestate/induction-stoves.html?searchResultPosition=8
 
 **Wall Street Joins the Unbanking of Russia**\
 `Goldman and JPMorgan are the first big U.S. lenders to pull out of the country.`\
-https://nytimes.com/2022/03/11/business/dealbook/wall-street-russia-goldman-jpmorgan.html?searchResultPosition=7
+https://nytimes.com/2022/03/11/business/dealbook/wall-street-russia-goldman-jpmorgan.html?searchResultPosition=9
 
 **Iran Nuclear Talks Paused Following Russian Demands to Ease Sanctions**\
-`A deal to revive the 2015 nuclear accord with Iran is ‘essentially ready,’ a top E.U. official says, but has run into complications because of Russia’s war against Ukraine.`\
-https://nytimes.com/2022/03/11/world/europe/iran-nuclear-talks-russia.html?searchResultPosition=8
-
-**‘Impressive’ Winter Storm to Sweep the U.S. Through Saturday**\
-`Winter weather alerts were issued from Arizona to Maine. The Northeast will see the most snow, with some places expecting about a foot, meteorologists said.`\
-https://nytimes.com/2022/03/11/us/winter-storm-forecast-northeast.html?searchResultPosition=9
-
-**An Israeli Skier Shines, but Does Not Compromise, at the Paralympics**\
-`Sheina Vaspi’s membership in the Chabad movement of Judaism led to her wearing a skirt on the slopes. But skiing on the Sabbath was a nonstarter.`\
-https://nytimes.com/2022/03/11/sports/sheina-vaspi-paralympics.html?searchResultPosition=10
+`A deal to revive the 2015 nuclear accord with Iran is “essentially ready,” a top E.U. official says, but has run into complications because of Russia’s war against Ukraine.`\
+https://nytimes.com/2022/03/11/world/europe/iran-nuclear-talks-russia.html?searchResultPosition=10
 
