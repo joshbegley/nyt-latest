@@ -4,7 +4,7 @@ https://nytimes.com/2022/03/11/sports/football/johnny-grier-dead.html?searchResu
 
 **For M.L.B. and the Union, a Relationship in Need of Repair**\
 `Commissioner Rob Manfred wants to shift gears and work with the players. Tony Clark is “looking forward to those conversations.”`\
-https://nytimes.com/2022/03/11/sports/baseball/rob-manfred-tony-clark.html?searchResultPosition=2
+https://nytimes.com/2022/03/11/sports/baseball/mlb-lockout-players-union.html?searchResultPosition=2
 
 **What to Know About Cryptocurrency and Taxes**\
 `Many people began buying crypto last year. They may not realize that, in some cases, they owe taxes on it.`\
