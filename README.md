@@ -34,7 +34,7 @@ https://nytimes.com/2022/03/12/opinion/russia-europe-energy-crisis.html?searchRe
 `If progressives can’t win here, it will not bode well for their national efforts.`\
 https://nytimes.com/2022/03/12/opinion/california-democrats-liberals-progressives.html?searchResultPosition=9
 
-**The Comfort of Sports During Difficult Times**\
-`Don’t feel guilty about seeking relief by in a game.`\
-https://nytimes.com/2022/03/12/opinion/sports-ukraine-espn.html?searchResultPosition=10
+**Can Public Health Be Saved?**\
+`Americans’ trust in health insitutions is declining. Here’s how to get it back.`\
+https://nytimes.com/2022/03/12/opinion/public-health-trust.html?searchResultPosition=10
 
