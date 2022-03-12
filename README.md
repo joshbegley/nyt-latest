@@ -18,23 +18,23 @@ https://nytimes.com/video/world/europe/100000008248969/ukraine-soldier-funeral-l
 `Some surrogate mothers are trapped by the fighting as their due dates near. And newborns face uncertain fates, with many biological parents now unable to travel to Ukraine.`\
 https://nytimes.com/2022/03/12/world/europe/ukraine-surrogate-mothers-babies.html?searchResultPosition=5
 
+**The White House approves $200 million in arms and equipment for Ukraine.**\
+`With the new arms package, which officials say includes Javelin antitank missiles and Stinger antiaircraft missiles, the Biden administration has sent Ukraine $1.2 billion in weapons in the past year.`\
+https://nytimes.com/2022/03/12/us/politics/biden-ukraine-weapons.html?searchResultPosition=6
+
 **With Bombings and a Funeral, the War Arrives in Ukraine’s West**\
 `Western Ukraine has been a safe haven for Ukrainian refugees, as well as businessmen, journalists and diplomats. But attacks in two cities pierced the sense of security in the region.`\
-https://nytimes.com/2022/03/12/world/europe/ukraine-lutsk-ivano-frankivsk-russian-attacks.html?searchResultPosition=6
+https://nytimes.com/2022/03/12/world/europe/ukraine-lutsk-ivano-frankivsk-russian-attacks.html?searchResultPosition=7
 
 **Meet the Underdog of Senior Care**\
 `The Program of All-Inclusive Care for the Elderly, funded by Medicare and Medicaid, has quietly succeeded in enabling some older Americans to age in place.`\
-https://nytimes.com/2022/03/12/health/elderly-health-care-pace.html?searchResultPosition=7
+https://nytimes.com/2022/03/12/health/elderly-health-care-pace.html?searchResultPosition=8
 
 **Bringing Outsider Artists In**\
 `Summertime Gallery is redefining what outsider means, one art show at a time.`\
-https://nytimes.com/2022/03/12/style/artists-summertime-gallery-brooklyn.html?searchResultPosition=8
+https://nytimes.com/2022/03/12/style/artists-summertime-gallery-brooklyn.html?searchResultPosition=9
 
 **Russia Intensifies Campaign of Destruction in Ukraine’s Cities**\
 `A defiant mayor of a captured city was kidnapped by Russian troops, Ukrainian authorities say, an act that prompted hundreds to protest.`\
-https://nytimes.com/2022/03/12/world/europe/ukraine-russia-kyiv.html?searchResultPosition=9
-
-**The Villages in Florida: Shangri-La or Shameful?**\
-`Readers have strong views about the huge retirement community that offers countless clubs and activities and is largely white and conservative.`\
-https://nytimes.com/2022/03/12/opinion/letters/villages-florida.html?searchResultPosition=10
+https://nytimes.com/2022/03/12/world/europe/ukraine-russia-kyiv.html?searchResultPosition=10
 
