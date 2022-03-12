@@ -1,6 +1,6 @@
 **Florida’s ‘Don’t Say Gay’ Bill Will Hurt Teens Like Me**\
 `Education made me hate myself less.`\
-https://nytimes.com/2022/03/12/opinion/floridas-dont-say-gay-bill-will-hurt-teens-like-me.html?searchResultPosition=1
+https://nytimes.com/2022/03/12/opinion/florida-dont-say-gay-bill.html?searchResultPosition=1
 
 **The Ukraine War and the Retro-Future**\
 `What happens when you layer 19th-century geopolitics on 21st century reality?`\
