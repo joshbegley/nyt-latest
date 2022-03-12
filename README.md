@@ -8,7 +8,7 @@ https://nytimes.com/2022/03/12/health/elderly-health-care-pace.html?searchResult
 
 **Bringing Outsider Artists In**\
 `Summertime Gallery is redefining what outsider means, one art show at a time.`\
-https://nytimes.com/2022/03/12/style/bringing-outsider-artists-in.html?searchResultPosition=3
+https://nytimes.com/2022/03/12/style/artists-summertime-gallery-brooklyn.html?searchResultPosition=3
 
 **Russia Intensifies Campaign of Destruction in Ukraine’s Cities**\
 `A defiant mayor of a captured city was kidnapped by Russian troops, Ukrainian authorities say, an act that prompted hundreds to protest.`\
