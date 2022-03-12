@@ -30,11 +30,11 @@ https://nytimes.com/2022/03/12/world/australia/new-caledonia-coronavirus.html?se
 `As a presidential election looms, the Greens lag far behind in the polls. Analysts say the party has failed to inspire voters and show them it can rule.`\
 https://nytimes.com/2022/03/12/world/europe/france-elections-greens-environment.html?searchResultPosition=8
 
-**The Pros and Cons of Buying a Tenant-Occupied Apartment**\
-`With a renter already in place, the home could come at a lower price and generate income. But the potential pitfalls may cost more in the long run.`\
-https://nytimes.com/2022/03/12/realestate/the-pros-and-cons-of-buying-a-tenant-occupied-apartment.html?searchResultPosition=9
-
 **How to Watch the Critics Choice Awards 2022: Date, Time and Streaming**\
 `It could be a big night for “Belfast” and “West Side Story” — and might finally bring some clarity to the best actress race at the Oscars.`\
-https://nytimes.com/2022/03/12/movies/critics-choice-2022-date-time-streaming.html?searchResultPosition=10
+https://nytimes.com/2022/03/12/movies/critics-choice-2022-date-time-streaming.html?searchResultPosition=9
+
+**The Pros and Cons of Buying a Tenant-Occupied Apartment**\
+`With a renter already in place, the home could come at a lower price and generate income. But the potential pitfalls may cost more in the long run.`\
+https://nytimes.com/2022/03/12/realestate/the-pros-and-cons-of-buying-a-tenant-occupied-apartment.html?searchResultPosition=10
 
