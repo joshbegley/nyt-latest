@@ -8,7 +8,7 @@ https://nytimes.com/2022/03/12/opinion/putin-ukraine-russia.html?searchResultPos
 
 **How Ukrainian Paralympians Pushed Through Fear and Worry**\
 `By day in Beijing, athletes raced and trained. By night, they spent time on their phones, connecting with loved ones under attack back home in Ukraine.`\
-https://nytimes.com/2022/03/12/sports/olympics/paralympics-beijing-ukraine-russia-war.html?searchResultPosition=3
+https://nytimes.com/2022/03/12/sports/olympics/ukraine-paralympics-beijing-russia-war.html?searchResultPosition=3
 
 **Bobbie Nelson, Longtime Pianist for Brother Willie, Dies at 91**\
 `They grew up together playing music, and in 1973 she became a core member of the band that would take Mr. Nelson to worldwide fame.`\
