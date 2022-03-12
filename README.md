@@ -1,40 +1,40 @@
+**The Russians Might Have Expected a Warm Welcome. Instead the Mayor Labeled Them ‘Occupiers.’**\
+`The 33-year-old mayor of Melitopol, Ivan Fyodorov, encouraged defiance. Then he was arrested, and hasn’t been heard from since.`\
+https://nytimes.com/2022/03/12/world/europe/ukraine-mayor-kidnapped-ivan-fyodorov.html?searchResultPosition=1
+
 **Florida’s ‘Don’t Say Gay’ Bill Will Hurt Teens Like Me**\
 `Education made me hate myself less.`\
-https://nytimes.com/2022/03/12/opinion/florida-dont-say-gay-bill.html?searchResultPosition=1
+https://nytimes.com/2022/03/12/opinion/florida-dont-say-gay-bill.html?searchResultPosition=2
 
 **The Ukraine War and the Retro-Future**\
 `What happens when you layer 19th-century geopolitics on 21st century reality?`\
-https://nytimes.com/2022/03/12/opinion/putin-ukraine-russia.html?searchResultPosition=2
+https://nytimes.com/2022/03/12/opinion/putin-ukraine-russia.html?searchResultPosition=3
 
 **How Ukrainian Paralympians Pushed Through Fear and Worry**\
 `By day in Beijing, athletes raced and trained. By night, they spent time on their phones, connecting with loved ones under attack back home in Ukraine.`\
-https://nytimes.com/2022/03/12/sports/olympics/ukraine-paralympics-beijing-russia-war.html?searchResultPosition=3
+https://nytimes.com/2022/03/12/sports/olympics/ukraine-paralympics-beijing-russia-war.html?searchResultPosition=4
 
 **Bobbie Nelson, Longtime Pianist for Brother Willie, Dies at 91**\
 `They grew up together playing music, and in 1973 she became a core member of the band that would take Mr. Nelson to worldwide fame.`\
-https://nytimes.com/2022/03/12/arts/music/bobbie-nelson-dead.html?searchResultPosition=4
+https://nytimes.com/2022/03/12/arts/music/bobbie-nelson-dead.html?searchResultPosition=5
 
 **Street battles hit a Kyiv suburb, some of the closest fighting to the capital yet.**\
 `The capture of the once affluent suburb of Irpin would potentially help Moscow encircle the nearby capital, military analysts say.`\
-https://nytimes.com/2022/03/12/world/europe/ukraine-russia-forces-battle-kyiv.html?searchResultPosition=5
+https://nytimes.com/2022/03/12/world/europe/ukraine-russia-forces-battle-kyiv.html?searchResultPosition=6
 
 **After Days of Uncertainty, a Ukrainian Soldier Is Laid to Rest**\
 `Senior Lt. Vasyl Vyshyvanyi was killed by Russian forces on March 3, but heavy combat kept the military from evacuating his body. Six days later, he was buried in his home village outside Lviv.`\
-https://nytimes.com/video/world/europe/100000008248969/ukraine-soldier-funeral-lviv.html?searchResultPosition=6
+https://nytimes.com/video/world/europe/100000008248969/ukraine-soldier-funeral-lviv.html?searchResultPosition=7
 
 **In a Kyiv Basement, 19 Surrogate Babies Are Trapped by War but Kept Alive by Nannies**\
 `Some surrogate mothers are trapped by the fighting as their due dates near. And newborns face uncertain fates, with many biological parents now unable to travel to Ukraine.`\
-https://nytimes.com/2022/03/12/world/europe/ukraine-surrogate-mothers-babies.html?searchResultPosition=7
+https://nytimes.com/2022/03/12/world/europe/ukraine-surrogate-mothers-babies.html?searchResultPosition=8
 
 **The White House approves $200 million in arms and equipment for Ukraine.**\
 `With the new arms package, which officials say includes antitank and antiaircraft missiles, the Biden administration has sent Ukraine $1.2 billion in weapons in the past year.`\
-https://nytimes.com/2022/03/12/us/politics/biden-ukraine-weapons.html?searchResultPosition=8
+https://nytimes.com/2022/03/12/us/politics/biden-ukraine-weapons.html?searchResultPosition=9
 
 **With Bombings and a Funeral, the War Arrives in Ukraine’s West**\
 `Western Ukraine has been a safe haven for Ukrainian refugees, as well as businessmen, journalists and diplomats. But attacks in two cities pierced the sense of security in the region.`\
-https://nytimes.com/2022/03/12/world/europe/ukraine-lutsk-ivano-frankivsk-russian-attacks.html?searchResultPosition=9
-
-**Meet the Underdog of Senior Care**\
-`The Program of All-Inclusive Care for the Elderly, funded by Medicare and Medicaid, has quietly succeeded in enabling some older Americans to age in place.`\
-https://nytimes.com/2022/03/12/health/elderly-health-care-pace.html?searchResultPosition=10
+https://nytimes.com/2022/03/12/world/europe/ukraine-lutsk-ivano-frankivsk-russian-attacks.html?searchResultPosition=10
 
