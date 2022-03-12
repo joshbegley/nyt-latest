@@ -16,7 +16,7 @@ https://nytimes.com/2022/03/12/world/europe/ukraine-surrogate-mothers-babies.htm
 
 **With Bombings and a Funeral, the War Arrives in Ukraine’s West**\
 `Western Ukraine has been a safe haven for Ukrainian refugees, as well as businessmen, journalists and diplomats. But attacks in two cities pierced the sense of security in the region.`\
-https://nytimes.com/2022/03/12/world/europe/ukraine-war-russia-west.html?searchResultPosition=5
+https://nytimes.com/2022/03/12/world/europe/ukraine-lutsk-ivano-frankivsk-russian-attacks.html?searchResultPosition=5
 
 **Meet the Underdog of Senior Care**\
 `The Program of All-Inclusive Care for the Elderly, funded by Medicare and Medicaid, has quietly succeeded in enabling some older Americans to age in place.`\
