@@ -26,13 +26,13 @@ https://nytimes.com/2022/03/12/opinion/russia-europe-energy-crisis.html?searchRe
 `If progressives can’t win here, it will not bode well for their national efforts.`\
 https://nytimes.com/2022/03/12/opinion/california-democrats-liberals-progressives.html?searchResultPosition=7
 
-**Can Public Health Be Saved?**\
-`Americans’ trust in health insitutions is declining. Here’s how to get it back.`\
-https://nytimes.com/2022/03/12/opinion/public-health-trust.html?searchResultPosition=8
-
 **The Comfort of Sports During Difficult Times**\
 `Don’t feel guilty about seeking relief by in a game.`\
-https://nytimes.com/2022/03/12/opinion/sports-ukraine-espn.html?searchResultPosition=9
+https://nytimes.com/2022/03/12/opinion/sports-ukraine-espn.html?searchResultPosition=8
+
+**Can Public Health Be Saved?**\
+`Americans’ trust in health insitutions is declining. Here’s how to get it back.`\
+https://nytimes.com/2022/03/12/opinion/public-health-trust.html?searchResultPosition=9
 
 **One More Census Takeaway: The End of an Era of Counting the Nation?**\
 `Some experts are arguing that it’s time for the census to aggressively make use of government data and other sources to augment its own decennial count.`\
