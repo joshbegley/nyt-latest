@@ -3,7 +3,7 @@
 https://nytimes.com/video/world/europe/100000008248969/ukraine-soldier-funeral-lviv.html?searchResultPosition=1
 
 **In a Kyiv Basement, 19 Surrogate Babies Are Trapped by War but Kept Alive by Nannies**\
-`Some surrogate mothers are trapped by the fighting as their due dates near. And newborns face uncertain fates, with many biological parents now unable to come to Ukraine.`\
+`Some surrogate mothers are trapped by the fighting as their due dates near. And newborns face uncertain fates, with many biological parents now unable to travel to Ukraine.`\
 https://nytimes.com/2022/03/12/world/europe/ukraine-surrogate-mothers-babies.html?searchResultPosition=2
 
 **With Bombings and a Funeral, the War Arrives in Ukraine’s West**\
