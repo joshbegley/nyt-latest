@@ -35,6 +35,6 @@ https://nytimes.com/video/world/europe/100000008248969/ukraine-soldier-funeral-l
 https://nytimes.com/2022/03/12/world/europe/ukraine-surrogate-mothers-babies.html?searchResultPosition=9
 
 **The White House approves $200 million in arms and equipment for Ukraine.**\
-`With the new arms package, which officials say includes antitank and antiaircraft missiles, the Biden administration has sent Ukraine $1.2 billion in weapons in the past year.`\
+`With the new arms package, which officials say includes antitank and antiaircraft missiles, the Biden administration has authorized $1.2 billion in weapons for Ukraine in the past year.`\
 https://nytimes.com/2022/03/12/us/politics/biden-ukraine-weapons.html?searchResultPosition=10
 
