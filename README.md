@@ -1,6 +1,6 @@
 **5 West Point Cadets Overdose During Spring Break in Florida, Officials Say**\
 `The cadets, along with another young man, were exposed to what is believed to be cocaine laced with fentanyl, and two were on ventilators late Friday, officials said.`\
-https://nytimes.com/2022/03/11/us/5-west-point-cadets-overdose-during-spring-break-in-florida-officials-say.html?searchResultPosition=1
+https://nytimes.com/2022/03/11/us/west-point-cadets-fentanyl-overdose.html?searchResultPosition=1
 
 **Queen Elizabeth is skipping next week’s Commonwealth Day service.**\
 `It is still less than a month since the British monarch tested positive for the coronavirus.`\
