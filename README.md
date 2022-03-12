@@ -10,8 +10,8 @@ https://nytimes.com/2022/03/12/crosswords/daily-puzzle-2022-03-13.html?searchRes
 `The Mets ace, Max Scherzer was a vocal leader for the union during the lockout. Now he is focused on getting ready for the season.`\
 https://nytimes.com/2022/03/12/sports/baseball/max-scherzer-mets.html?searchResultPosition=3
 
-**Two Women Stabbed at Museum of Modern Art**\
-`Both victims were in stable condition. The police were searching for one man in connection with the attack.`\
+**Two Employees Stabbed at Museum of Modern Art**\
+`Both victims were in stable condition. The police said the suspect was a regular patron whose membership had been revoked.`\
 https://nytimes.com/2022/03/12/nyregion/moma-stabbing.html?searchResultPosition=4
 
 **Ron Miles, Understated Master of Jazz Cornet, Is Dead at 58**\
