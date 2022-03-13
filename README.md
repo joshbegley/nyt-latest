@@ -19,7 +19,7 @@ https://nytimes.com/2022/03/12/crosswords/daily-puzzle-2022-03-13.html?searchRes
 https://nytimes.com/2022/03/12/sports/baseball/max-scherzer-mets.html?searchResultPosition=5
 
 **MoMA Patron, Denied Admission, Stabs Two Employees**\
-`The police were still looking for the suspect, who forced his way into the museum upon discovering his membership had been revoked. Both victims were in stable condition.`\
+`The police were still looking for the suspect, who forced his way into the museum. Both victims were in stable condition.`\
 https://nytimes.com/2022/03/12/nyregion/moma-stabbing.html?searchResultPosition=6
 
 **Ron Miles, Understated Master of Jazz Cornet, Is Dead at 58**\
