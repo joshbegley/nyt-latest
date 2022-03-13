@@ -4,7 +4,7 @@ https://nytimes.com/2022/03/13/world/europe/brent-renaud-irpin.html?searchResult
 
 **Critics Choice 2022: Complete List of Nominees and Winners**\
 `The Critics Choice Awards will be broadcast live from Los Angeles beginning at 7 p.m. EST and we will be following along with updates on the winners.`\
-https://nytimes.com/2022/03/13/movies/criics-choice-2022-winners.html?searchResultPosition=2
+https://nytimes.com/2022/03/13/movies/critics-choice-2022-winners.html?searchResultPosition=2
 
 **Unsuk Chin on the Violin Concerto She Swore She’d Never Write**\
 `Unsuk Chin was inspired by Leonidas Kavakos to return to the genre, and the result comes to Carnegie Hall on Monday.`\
