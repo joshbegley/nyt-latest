@@ -15,7 +15,7 @@ https://nytimes.com/2022/03/12/arts/dance/yuriko-dead.html?searchResultPosition=
 https://nytimes.com/2022/03/12/crosswords/daily-puzzle-2022-03-13.html?searchResultPosition=4
 
 **Scherzer’s Message as Camp Opens: ‘It’s Over. Let’s Just Play Baseball.’**\
-`The Mets ace, Max Scherzer was a vocal leader for the union during the lockout. Now he is focused on getting ready for the season.`\
+`Max Scherzer was a vocal leader during the lockout, but now he is focused on getting ready for the season. He’ll have help after his team traded for yet another All-Star pitcher.`\
 https://nytimes.com/2022/03/12/sports/baseball/max-scherzer-mets.html?searchResultPosition=5
 
 **MoMA Patron, Denied Admission, Stabs Two Employees**\
