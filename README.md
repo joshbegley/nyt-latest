@@ -18,8 +18,8 @@ https://nytimes.com/2022/03/12/crosswords/daily-puzzle-2022-03-13.html?searchRes
 `Max Scherzer was a vocal leader during the lockout, but now he is focused on getting ready for the season. He’ll have help after his team traded for yet another All-Star pitcher.`\
 https://nytimes.com/2022/03/12/sports/baseball/max-scherzer-mets.html?searchResultPosition=5
 
-**MoMA Patron, Denied Admission, Stabs Two Employees**\
-`The police were still looking for the suspect, who forced his way into the museum. Both victims were in stable condition.`\
+**MoMA Patron, Denied Entry, Stabs Two Employees**\
+`The police were still looking for the suspect, who grew enraged upon discovering his membership had been revoked. Both victims were in stable condition.`\
 https://nytimes.com/2022/03/12/nyregion/moma-stabbing.html?searchResultPosition=6
 
 **Ron Miles, Understated Master of Jazz Cornet, Is Dead at 58**\
