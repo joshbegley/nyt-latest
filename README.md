@@ -22,7 +22,7 @@ https://nytimes.com/2022/03/13/opinion/ukraine-odessa-poems.html?searchResultPos
 `She changed the Israeli-Palestinian debate in Congress by reminding her colleagues of the human stakes. It’s a burden she would rather not carry.`\
 https://nytimes.com/2022/03/13/podcasts/the-daily/the-sunday-read-what-rashida-tlaib-represents.html?searchResultPosition=6
 
-**The Past and the Future Are at War in California**\
+**The Past and the Future Are at Odds in California**\
 `A legal dispute over enrollment at Berkeley shows how the old ways of enviromentalism won’t cut it in a new era of climate crisis.`\
 https://nytimes.com/2022/03/13/opinion/berkeley-enrollment-climate-crisis.html?searchResultPosition=7
 
