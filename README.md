@@ -7,7 +7,7 @@ https://nytimes.com/2022/03/13/crosswords/daily-puzzle-2022-03-14.html?searchRes
 https://nytimes.com/slideshow/2022/03/13/style/critics-choice-awards-photos.html?searchResultPosition=2
 
 **‘The Power of the Dog’ Wins Best Film at Wide-Open BAFTAs**\
-`Jane Campion won the best director prize at Britain’s Academy Awards for that tense western in an evening that saw a host of surprise winners.`\
+`Jane Campion won the best director prize at Britain’s Academy Awards for her tense western in an evening that saw a host of surprise winners.`\
 https://nytimes.com/2022/03/13/movies/baftas-winners-power-of-the-dog.html?searchResultPosition=3
 
 **Booms, Smoke and Fire Signal Horror of Russian Attack on Base**\
