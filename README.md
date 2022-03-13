@@ -1,6 +1,6 @@
 **Met Museum Names a Mexico City Architect to Lead a New Major Project.**\
 `Frida Escobedo, and not David Chipperfield, will design the Modern and contemporary wing.`\
-https://nytimes.com/2022/03/13/arts/met-museum-names-a-mexico-city-architect-to-lead-a-new-major-project.html?searchResultPosition=1
+https://nytimes.com/2022/03/13/arts/frida-escobedo-met-museum.html?searchResultPosition=1
 
 **On a Stage 5,000 Miles Away, He Sings for His Family in Ukraine**\
 `At the Metropolitan Opera, the bass-baritone Vladyslav Buialskyi has become a symbol of his country’s struggles.`\
