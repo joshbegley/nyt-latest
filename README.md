@@ -8,7 +8,7 @@ https://nytimes.com/2022/03/13/sports/football/tom-brady-retire-return-nfl.html?
 
 **Russian Airstrike at NATO’s Doorstep Raises Fears of Expanded War**\
 `Russian missiles hit a military base being used to train foreign volunteers who want to help Ukraine repel the invasion, killing a reported 35 people just 11 miles from the Polish border.`\
-https://nytimes.com/2022/03/13/world/europe/russian-airstrike-ukraine-nato.html?searchResultPosition=3
+https://nytimes.com/2022/03/13/world/europe/russian-airstrike-poland-ukraine-nato.html?searchResultPosition=3
 
 **Oil Prices Drop Slightly as Market Volatility Eases**\
 `A barrel of oil is trading at roughly $110, while gasoline is at $4.30 on average in the United States.`\
