@@ -3,7 +3,7 @@
 https://nytimes.com/interactive/2022/sports/ncaabasketball/mens-ncaa-bracket-march-madness.html?searchResultPosition=1
 
 **Tom Brady Says He Will Return to the N.F.L. and the Buccaneers**\
-`The winning quarterback of seven Super Bowls announced his retirement in February, but he reversed the decision in a statement posted to his social media accounts.`\
+`The winning quarterback in seven Super Bowls announced his retirement in February, but he reversed the decision in a statement posted to his social media accounts.`\
 https://nytimes.com/2022/03/13/sports/football/tom-brady-retire-return-nfl.html?searchResultPosition=2
 
 **Russian Airstrike at NATO’s Doorstep Raises Fears of Expanded War**\
@@ -28,7 +28,7 @@ https://nytimes.com/2022/03/13/world/europe/monastery-shelling-ukraine.html?sear
 
 **How Does It End? A Way Out of the Ukraine War Proves Elusive.**\
 `Attempts at diplomacy have hit a stone wall as President Vladimir V. Putin of Russia refuses to engage in any serious negotiation, but his endgame is unclear.`\
-https://nytimes.com/2022/03/13/us/politics/russia-ukraine-endgame.html?searchResultPosition=8
+https://nytimes.com/2022/03/13/us/politics/russia-ukraine-us-endgame.html?searchResultPosition=8
 
 **A Good One Is Square**\
 `Tune in for Stephen Hiltner’s debut puzzle.`\
