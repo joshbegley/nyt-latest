@@ -4,7 +4,7 @@ https://nytimes.com/2022/03/13/briefing/russia-ukraine-war-europe-superpower.htm
 
 **The base attacked in western Ukraine has been a hub for foreign militaries.**\
 `The base outside Lviv that was attacked by Russian forces early on Sunday was a key link between Ukraine’s armed forces and Western militaries before the war.`\
-https://nytimes.com/2022/03/13/world/europe/the-base-attacked-in-western-ukraine-has-been-a-hub-for-foreign-militaries.html?searchResultPosition=2
+https://nytimes.com/2022/03/13/world/europe/yavoriv-military-base-ukraine.html?searchResultPosition=2
 
 **What to Watch on Selection Sunday in Men’s N.C.A.A. Tournament**\
 `The 68-team field for the tournament will be revealed during a selection show that begins at 6 p.m. Eastern on CBS.`\
