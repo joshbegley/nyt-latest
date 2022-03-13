@@ -12,7 +12,7 @@ https://nytimes.com/2022/03/13/world/obama-tests-positive-covid.html?searchResul
 
 **Pro Boxing Gains Another Father-Son Duo**\
 `Giovanni Marquez, son of the former world junior middleweight champion Raul Marquez, won his professional debut, with his father going from trainer to broadcaster.`\
-https://nytimes.com/2022/03/13/sports/boxing-marquez-showtime.html?searchResultPosition=4
+https://nytimes.com/2022/03/13/sports/giovanni-raul-marquez-boxing-showtime.html?searchResultPosition=4
 
 **Russia Asked China for Military and Economic Aid for Ukraine War, U.S. Officials Say**\
 `Jake Sullivan, the U.S. national security adviser, plans to meet with a top Chinese official on Monday in Rome to discuss the war and China’s role.`\
