@@ -10,7 +10,7 @@ https://nytimes.com/video/world/europe/100000008253016/berlin-germany-protests-r
 `The 16th-century monastery is one of the three most sacred sites in Ukraine for Orthodox believers.`\
 https://nytimes.com/2022/03/13/world/europe/monastery-shelling-ukraine.html?searchResultPosition=3
 
-**Finding a Way Out of the War in Ukraine Proves Elusive**\
+**How Does It End? A Way Out of the Ukraine War Proves Elusive**\
 `Attempts at diplomacy have hit a stone wall as President Vladimir V. Putin of Russia refuses to engage in any serious negotiation, but his endgame is unclear.`\
 https://nytimes.com/2022/03/13/us/politics/russia-ukraine-endgame.html?searchResultPosition=4
 
