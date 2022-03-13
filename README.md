@@ -16,7 +16,7 @@ https://nytimes.com/2022/03/13/movies/baftas-winners-power-of-the-dog.html?searc
 
 **Booms, Smoke and Fire Signal Horror of Russian Attack on Base**\
 `Residents of a town near Poland’s border awoke to frightful sounds and an awareness they were no longer safe.`\
-https://nytimes.com/2022/03/13/world/europe/russia-ukraine-base-attack.html?searchResultPosition=5
+https://nytimes.com/2022/03/13/world/europe/russia-ukraine-military-base-attack.html?searchResultPosition=5
 
 **The ‘Cohen Tax’ Doesn’t Scare the Owner It Is Named For**\
 `Steven A. Cohen, the Mets’ team owner, has spent lavishly this off-season. Asked if he would surpass the special luxury tax aimed at limiting his spending, he said, “I probably will.”`\
