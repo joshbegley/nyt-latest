@@ -14,7 +14,7 @@ https://nytimes.com/2022/03/13/world/europe/russian-ukraine-military-base-strike
 `A barrel of oil is trading at roughly $110, while gasoline is at $4.30 on average in the United States.`\
 https://nytimes.com/2022/03/13/business/oil-prices-drop-slightly-as-market-volatility-eases.html?searchResultPosition=4
 
-**William Hurt, Oscar-Winning ‘Kiss of the Spider Woman’ Actor, Dies at 71**\
+**William Hurt, Oscar-Winning Leading Man of the 1980s, Dies at 71**\
 `A four-time Academy Award nominee, he starred in such films as “Body Heat,” “The Big Chill,” “Children of a Lesser God” and “Broadcast News.”`\
 https://nytimes.com/2022/03/13/arts/william-hurt-dead.html?searchResultPosition=5
 
