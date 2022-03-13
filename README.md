@@ -2,8 +2,8 @@
 `Gonzaga, Arizona, Kansas and Baylor are the top seeds in the N.C.A.A. men’s basketball tournament.`\
 https://nytimes.com/interactive/2022/sports/ncaabasketball/mens-ncaa-bracket-march-madness.html?searchResultPosition=1
 
-**Tom Brady Says He Will Return to N.F.L., Buccaneers**\
-`The seven-time Super Bowl-winning quarterback had announced his retirement in February, but reversed the decision in a statement posted to his social media accounts Sunday night.`\
+**Tom Brady Says He Will Return to the N.F.L. and the Buccaneers**\
+`The winning quarterback of seven Super Bowls announced his retirement in February, but he reversed the decision in a statement posted to his social media accounts.`\
 https://nytimes.com/2022/03/13/sports/football/tom-brady-retire-return-nfl.html?searchResultPosition=2
 
 **Russian Airstrike at NATO’s Doorstep Raises Fears of Expanded War**\
