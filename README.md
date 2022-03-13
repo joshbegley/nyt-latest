@@ -28,7 +28,7 @@ https://nytimes.com/2022/03/13/us/peptoc-hotline.html?searchResultPosition=7
 
 **Missiles Fired From Iran Hit Near U.S. Consulate Site in Iraq**\
 `No serious injuries were reported from the strike, outside the city of Erbil in Iraqi Kurdistan, and an American official said the consulate site was undamaged.`\
-https://nytimes.com/2022/03/13/world/asia/missiles-fired-from-iran-hit-near-us-consulate-site-in-iraq.html?searchResultPosition=8
+https://nytimes.com/2022/03/13/world/asia/iran-missiles-us-consulate-iraq.html?searchResultPosition=8
 
 **Police Seek Help to Find Suspect Who Shot 2 Homeless Men, Killing One**\
 `The victims, both of whom had been sleeping, were shot in Lower Manhattan within hours of one another, the police said.`\
