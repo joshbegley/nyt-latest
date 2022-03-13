@@ -20,7 +20,7 @@ https://nytimes.com/2022/03/13/us/politics/russia-china-ukraine.html?searchResul
 
 **‘Things Will Only Get Worse.’ Putin’s War Sends Russians Into Exile.**\
 `Thousands of Russians saw their comfortable, middle-class lives fade overnight with the invasion ordered by President Vladimir V. Putin.`\
-https://nytimes.com/2022/03/13/world/europe/russia-war-ukraine-exiles.html?searchResultPosition=6
+https://nytimes.com/2022/03/13/world/europe/russia-exiles-putin-ukraine-war.html?searchResultPosition=6
 
 **Ukrainian refugees find shelter, and a hearty welcome for their pets, in Romania.**\
 `Viktor and Rachel Borovic had only two hours to prepare to flee their city. But they were clear about what was important to them.`\
