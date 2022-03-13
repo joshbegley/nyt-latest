@@ -1,4 +1,4 @@
-**Tom Brady Says He Will Return to N.F.L., Buccaneers**\
+**Tom Brady Says He Will Return to the N.F.L. and the Buccaneers**\
 `The seven-time Super Bowl-winning quarterback had announced his retirement in February.`\
 https://nytimes.com/2022/03/13/sports/football/tom-brady-retire-return-nfl.html?searchResultPosition=1
 
