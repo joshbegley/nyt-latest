@@ -36,5 +36,5 @@ https://nytimes.com/2022/03/13/sports/soccer/chelsea-newcastle-roman-abramovich-
 
 **Met Museum Names a Mexico City Architect to Lead a New Major Project**\
 `Frida Escobedo, and not David Chipperfield, will design the Modern and contemporary wing.`\
-https://nytimes.com/2022/03/13/arts/frida-escobedo-met-museum.html?searchResultPosition=10
+https://nytimes.com/2022/03/13/arts/design/frida-escobedo-met-museum.html?searchResultPosition=10
 
