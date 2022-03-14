@@ -6,7 +6,7 @@ https://nytimes.com/2022/03/13/sports/iowa-big-ten-championshp.html?searchResult
 `South Carolina, N.C. State, Stanford and Louisville are the top seeds in the N.C.A.A. women’s basketball tournament.`\
 https://nytimes.com/interactive/2022/sports/ncaabasketball/womens-ncaa-bracket-march-madness.html?searchResultPosition=2
 
-**Maria Bakalova and other stars show support for Ukraine.**\
+**Maria Bakalova, Billy Crystal and other stars show support for Ukraine.**\
 `Most of the Critics Choice ceremony has been focused on prizes, but the war in Ukraine has been addressed in a few ways.`\
 https://nytimes.com/2022/03/13/movies/maria-bakalova-stars-support-ukraine.html?searchResultPosition=3
 
