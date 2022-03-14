@@ -19,7 +19,7 @@ https://nytimes.com/video/world/europe/100000008254128/ukraine-russia-london-oli
 https://nytimes.com/2022/03/14/theater/man-cave-review.html?searchResultPosition=5
 
 **Fox News correspondent Benjamin Hall has been injured in Ukraine.**\
-`Mr. Hall has been a longtime war correspondent who joined the network in 2015.`\
+`Mr. Hall is a longtime war correspondent who joined the network in 2015.`\
 https://nytimes.com/2022/03/14/technology/ukraine-fox-news-benjamin.html?searchResultPosition=6
 
 **A New York City Childhood Leads to Anxiety and Jokes in ‘What’s So Funny?’**\
