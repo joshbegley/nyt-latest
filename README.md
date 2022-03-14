@@ -28,7 +28,7 @@ https://nytimes.com/2022/03/14/theater/man-cave-review.html?searchResultPosition
 
 **Fox News correspondent Benjamin Hall has been injured in Ukraine.**\
 `Mr. Hall is a longtime war correspondent who joined the network in 2015.`\
-https://nytimes.com/2022/03/14/technology/ukraine-fox-news-benjamin.html?searchResultPosition=8
+https://nytimes.com/2022/03/14/technology/ukraine-fox-news-benjamin-hall.html?searchResultPosition=8
 
 **A New York City Childhood Leads to Anxiety and Jokes in ‘What’s So Funny?’**\
 `David Sipress, a cartoonist who regularly contributes to The New Yorker, remembers growing up in a city simultaneously grimier and more glamorous.`\
