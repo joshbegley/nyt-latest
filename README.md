@@ -1,6 +1,6 @@
 **Companies partially exiting Russia are under pressure to make it all or nothing.**\
 `Some companies have revised their plans after being pushed to make a more definitive break from the country.`\
-https://nytimes.com/2022/03/14/business/companies-partially-exiting-russia-are-under-pressure-to-make-it-all-or-nothing.html?searchResultPosition=1
+https://nytimes.com/2022/03/14/business/russia-companies-exit.html?searchResultPosition=1
 
 **A pregnant woman photographed after a Russian strike on a maternity hospital has died, The A.P. reports.**\
 `Her baby also died, the news organization said. The photo captured last week has become one of the defining images of human suffering in the war.`\
