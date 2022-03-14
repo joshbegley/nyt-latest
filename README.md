@@ -16,7 +16,7 @@ https://nytimes.com/2022/03/14/technology/personaltech/apple-iphone-se-review.ht
 
 **Hong Kong lacks the resources for a China-style pandemic response, the city’s leader says.**\
 `“Hong Kong is very different from many mainland cities and therefore we cannot have any comparison,” Mrs. Lam told reporters at a news conference.`\
-https://nytimes.com/2022/03/14/world/hong-kong-covid.html?searchResultPosition=5
+https://nytimes.com/2022/03/14/world/asia/hong-kong-covid.html?searchResultPosition=5
 
 **Companies partially exiting Russia are under pressure to make it all or nothing.**\
 `Some companies have revised their plans after being pushed to make a more definitive break from the country.`\
