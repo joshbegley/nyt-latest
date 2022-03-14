@@ -8,7 +8,7 @@ https://nytimes.com/2022/03/14/technology/fox-news-benjamin-hall-injured-ukraine
 
 **A New York City Childhood Leads to Anxiety and Jokes in ‘What’s So Funny?’**\
 `David Sipress, a cartoonist who regularly contributes to The New Yorker, remembers growing up in a city simultaneously grimier and more glamorous.`\
-https://nytimes.com/2022/03/14/books/review-whats-so-funny-david-sipress-cartoonist-memoir.html?searchResultPosition=3
+https://nytimes.com/2022/03/14/books/review-whats-so-funny-david-sipress.html?searchResultPosition=3
 
 **Getting Inside Putin’s Head: Is He Irrational?**\
 `Trying to figure out what makes Vladimir Putin tick. Also: China’s role; Russian war crimes; being a parent; stresses of email; don’t walk and text. `\
