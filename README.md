@@ -15,7 +15,7 @@ https://nytimes.com/video/world/europe/100000008254090/uk-ukraine-refugee-sponso
 https://nytimes.com/2022/03/14/nyregion/chokshi-leaving-health-nyc.html?searchResultPosition=4
 
 **Pete Davidson to Join Next Blue Origin Space Flight**\
-`The “Saturday Night Live’’ comedian will be one of six passengers to fly to the edge of space this month with Blue Origin, the rocket company founded by Jeff Bezos.`\
+`The “Saturday Night Live” comedian will be one of six passengers to fly to the edge of space this month with Blue Origin, the rocket company founded by Jeff Bezos.`\
 https://nytimes.com/2022/03/14/science/pete-davidson-blue-origin.html?searchResultPosition=5
 
 **This Year, Try Spring Cleaning Your Brain**\
