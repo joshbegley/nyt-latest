@@ -1,6 +1,6 @@
 **Your Tuesday Briefing: Russia Bombards Kyiv**\
 `Plus China’s effort to contain its biggest coronavirus outbreak since Wuhan.`\
-https://nytimes.com/2022/03/14/briefing/your-tuesday-briefing-russia-bombards-kyiv.html?searchResultPosition=1
+https://nytimes.com/2022/03/14/briefing/russia-bombards-kyiv.html?searchResultPosition=1
 
 **When You’re in the N.C.A.A. Tournament, but Not Fully In**\
 `The low seeding of men’s teams from historically Black universities like Texas Southern often means they must prove they belong in the field even after they’ve proved they belong.`\
