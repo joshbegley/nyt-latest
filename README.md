@@ -3,7 +3,7 @@
 https://nytimes.com/interactive/2022/sports/ncaabasketball/mens-ncaa-bracket-march-madness.html?searchResultPosition=1
 
 **Tom Brady Says He Will Return to the N.F.L. and the Buccaneers**\
-`The winning quarterback in seven Super Bowls announced his retirement in February, but he reversed the decision in a statement posted to his social media accounts.`\
+`The winning quarterback of seven Super Bowls, Brady said on social media that he would play again next season, after he had announced his retirement in February.`\
 https://nytimes.com/2022/03/13/sports/football/tom-brady-retire-return-nfl.html?searchResultPosition=2
 
 **Russian Airstrike at NATO’s Doorstep Raises Fears of Expanded War**\
