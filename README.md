@@ -4,7 +4,7 @@ https://nytimes.com/interactive/2022/sports/ncaabasketball/mens-ncaa-bracket-mar
 
 **Tom Brady Says He Will Return to the N.F.L. and the Buccaneers**\
 `The winning quarterback of seven Super Bowls, Brady said on social media that he would play again next season, after he had announced his retirement in February.`\
-https://nytimes.com/2022/03/13/sports/football/tom-brady-retire-return-nfl.html?searchResultPosition=2
+https://nytimes.com/2022/03/13/sports/football/tom-brady-returning-buccaneers.html?searchResultPosition=2
 
 **Russian Airstrike at NATO’s Doorstep Raises Fears of Expanded War**\
 `Russian missiles hit a military base being used to train foreign volunteers who want to help Ukraine repel the invasion, killing a reported 35 people just 11 miles from the Polish border.`\
