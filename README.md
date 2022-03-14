@@ -1,6 +1,6 @@
 **Ari Wegner: A Cinematographer Who Knows Actors Down to the Eyelash**\
 `The director of photography for “The Power of the Dog” spent a year on preproduction. Now she could make Oscar history as the first woman to win best cinematography.`\
-https://nytimes.com/2022/03/14/movies/power-of-the-dog-cinematographer-ari-wegner.html?searchResultPosition=1
+https://nytimes.com/2022/03/14/movies/power-of-the-dog-cinematographer.html?searchResultPosition=1
 
 **A Conductor on Why He Stayed in Russia After the Invasion Began**\
 `The Estonian American conductor Paavo Järvi chose to remain in Moscow temporarily to lead a Russian youth orchestra: “I felt a responsibility.”`\
