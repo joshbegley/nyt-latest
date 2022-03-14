@@ -20,7 +20,7 @@ https://nytimes.com/2022/03/14/dining/bad-vegan-sarma-melngailis.html?searchResu
 
 **Two Refugees, Both on Poland’s Border. But Worlds Apart.**\
 `A young man fleeing war in Sudan and a young woman evacuating Ukraine crossed into Poland at the same time. They had very different experiences.`\
-https://nytimes.com/2022/03/14/world/asia/refugees-ukraine-poland-belarus.html?searchResultPosition=6
+https://nytimes.com/2022/03/14/world/asia/ukraine-refugees-poland-belarus.html?searchResultPosition=6
 
 **School Inequality Isn’t Always Just Black and White**\
 `We care too much about the racial demographics at exclusive schools.`\
