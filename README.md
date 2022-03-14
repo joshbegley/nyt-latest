@@ -8,7 +8,7 @@ https://nytimes.com/2022/03/14/movies/best-william-hurt-movies.html?searchResult
 
 **‘Encanto’ Tops Chart for Ninth Week. Will It Be the Last?**\
 `The soundtrack, which includes TikTok-fueled hits like “We Don’t Talk About Bruno,” may soon be ousted by “7220,” a new release by the Chicago rapper Lil Durk.`\
-https://nytimes.com/2022/03/14/arts/music/encanto-soundtrack-nine-weeks-no-1.html?searchResultPosition=3
+https://nytimes.com/2022/03/14/arts/music/encanto-soundtrack-billboard.html?searchResultPosition=3
 
 **Poland Refused to Play Russia Once. It May Have to Do So Again.**\
 `Poland’s stars cornered FIFA by threatening to boycott a World Cup qualifier. Now, as Russia appeals the decision, Robert Lewandowski, Wojciech Szczesny and their teammates may have to double down.`\
