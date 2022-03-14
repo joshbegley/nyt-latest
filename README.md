@@ -1,6 +1,6 @@
 **The Nets are fined $50,000 for letting Kyrie Irving into their locker room.**\
 `The N.B.A. star is unvaccinated and subject to private-sector vaccine mandates in New York City.`\
-https://nytimes.com/2022/03/14/sports/basketball/nets-fined-kyrie-irving-covid.html?searchResultPosition=1
+https://nytimes.com/live/2022/03/14/world/covid-19-mandates-cases-vaccine/nets-fined-kyrie-irving-covid?searchResultPosition=1
 
 **Man Hit Woman in the Head 125 Times Because She Was Asian, Officials Say**\
 `A man has been charged with attempted murder as a hate crime after a vicious assault in Yonkers, N.Y., that was captured by a security camera.`\
