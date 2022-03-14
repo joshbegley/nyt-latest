@@ -35,6 +35,6 @@ https://nytimes.com/2022/03/13/world/europe/russian-airstrike-poland-ukraine-nat
 https://nytimes.com/2022/03/13/business/oil-prices-drop-slightly-as-market-volatility-eases.html?searchResultPosition=9
 
 **William Hurt, Oscar-Winning Leading Man of the 1980s, Dies at 71**\
-`A four-time Academy Award nominee, he starred in such films as “Body Heat,” “The Big Chill,” “Children of a Lesser God” and “Broadcast News.”`\
+`A four-time Academy Award nominee, he starred in such films as “Body Heat,” “The Big Chill,” “Kiss of the Spider Woman” and “Broadcast News.”`\
 https://nytimes.com/2022/03/13/arts/william-hurt-dead.html?searchResultPosition=10
 
