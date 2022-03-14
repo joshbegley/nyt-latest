@@ -10,7 +10,7 @@ https://nytimes.com/2022/03/14/well/mind/stress-anxiety-mindfulness.html?searchR
 `The N.C.A.A. men’s basketball tournament is filled with juicy matchups, interesting players and potential surprises.`\
 https://nytimes.com/2022/03/14/sports/ncaabasketball/march-madness-bracket-picks.html?searchResultPosition=3
 
-**A DIY Flower Arrangement for Holiday Decorating**\
+**A D.I.Y. Flower Arrangement for Holiday Decorating**\
 `Bouquet Box, a flower delivery company, provides dozens of stems with a reusable vase, tools and instructions.`\
 https://nytimes.com/2022/03/14/dining/bouquet-box-flower-arrangements.html?searchResultPosition=4
 
