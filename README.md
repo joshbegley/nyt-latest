@@ -26,15 +26,15 @@ https://nytimes.com/2022/03/14/arts/design/lauren-halsey-met-roof-installation.h
 `Plus China’s effort to contain its biggest coronavirus outbreak since Wuhan.`\
 https://nytimes.com/2022/03/14/briefing/russia-bombards-kyiv.html?searchResultPosition=7
 
+**The U.S. warns China not to give Russia military or economic aid.**\
+`China has said nothing about receiving such requests from Russia, but the two countries have drawn closer recently.`\
+https://nytimes.com/2022/03/14/world/europe/china-russia-military-aid-us.html?searchResultPosition=8
+
 **When You’re in the N.C.A.A. Tournament, but Not Fully In**\
 `The low seeding of men’s teams from historically Black universities like Texas Southern often means they must prove they belong in the field even after they’ve proved they belong.`\
-https://nytimes.com/2022/03/14/sports/ncaabasketball/hbcu-basketball-tournament-seeds.html?searchResultPosition=8
+https://nytimes.com/2022/03/14/sports/ncaabasketball/hbcu-basketball-tournament-seeds.html?searchResultPosition=9
 
 **Protesters Break Into London Mansion Linked to Russian Oligarch**\
 `Demonstrators decried Russia’s invasion of Ukraine from a house in Belgrave Square, one of the addresses attributed to the Russian oligarch Oleg Deripaska in the U.S. Treasury Department’s sanctions list.`\
-https://nytimes.com/video/world/europe/100000008254128/ukraine-russia-london-oligarch-mansion.html?searchResultPosition=9
-
-**‘Man Cave’ Review: Things That Go Bump in the American Night**\
-`John J. Caswell Jr.’s play is a political drama wrapped in the spooky pleasures of the horror genre.`\
-https://nytimes.com/2022/03/14/theater/man-cave-review.html?searchResultPosition=10
+https://nytimes.com/video/world/europe/100000008254128/ukraine-russia-london-oligarch-mansion.html?searchResultPosition=10
 
