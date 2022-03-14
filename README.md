@@ -36,5 +36,5 @@ https://nytimes.com/2022/03/13/world/europe/russian-airstrike-poland-ukraine-nat
 
 **Oil Prices Drop Slightly as Market Volatility Eases**\
 `A barrel of oil is trading at roughly $110, while gasoline is at $4.30 on average in the United States.`\
-https://nytimes.com/2022/03/13/business/oil-prices-drop-slightly-as-market-volatility-eases.html?searchResultPosition=10
+https://nytimes.com/2022/03/13/business/oil-prices-drop-russia-ukraine.html?searchResultPosition=10
 
