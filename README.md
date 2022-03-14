@@ -4,7 +4,7 @@ https://nytimes.com/2022/03/14/science/pete-davidson-blue-origin.html?searchResu
 
 **This Year, Try Spring Cleaning Your Brain**\
 `Five ways to soothe a mind overstimulated by anxiety, stress and streams of information.`\
-https://nytimes.com/2022/03/14/well/mind/stress-anxiety-mindfulness.html?searchResultPosition=2
+https://nytimes.com/2022/03/14/well/mind/stress-anxiety-mind.html?searchResultPosition=2
 
 **Picking an N.C.A.A. Tournament Bracket? Read This First.**\
 `The N.C.A.A. men’s basketball tournament is filled with juicy matchups, interesting players and potential surprises.`\
