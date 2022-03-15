@@ -1,5 +1,5 @@
 **Shalanda Young Confirmed to Head Biden’s Budget Office**\
-`Ms. Young is the first Black woman to lead the Office of Management and Budget, which has been without permanent leadership for more than a year.`\
+`Ms. Young is the first Black woman to lead the Office of Management and Budget, which had been without permanent leadership for more than a year.`\
 https://nytimes.com/2022/03/15/us/politics/shalanda-young-omb.html?searchResultPosition=1
 
 **Gunman in Yoga Studio Killings Raised Red Flags That Were Missed, U.S. Says**\
