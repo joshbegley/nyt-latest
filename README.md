@@ -1,6 +1,6 @@
 **Russian Mogul Is Charged With Donating Illegally to U.S. Campaigns**\
 `Andrey Muraviev was indicted on charges of making donations as a foreign national to boost licensing decisions for a marijuana business.`\
-https://nytimes.com/2022/03/14/nyregion/russian-mogul-is-charged-with-donating-illegally-to-us-campaigns.html?searchResultPosition=1
+https://nytimes.com/2022/03/14/nyregion/russian-illegal-campaign-donations.html?searchResultPosition=1
 
 **Nets Fined $50,000 for Letting Kyrie Irving Into Home Locker Room**\
 `Irving is not allowed to be with the Nets at Barclays Center because he has not been vaccinated against Covid-19.`\
