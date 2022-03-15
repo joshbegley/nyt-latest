@@ -1,40 +1,40 @@
-**Suspect in New York MoMA Stabbing Arrested in Philadelphia**\
-`The New York police had released video that it said showed the suspect, Gary Cabana, attacking workers at the Museum of Modern Art on Saturday.`\
-https://nytimes.com/2022/03/15/us/moma-stabbing-suspect-arrested.html?searchResultPosition=1
+**The People Who Draw Rocks**\
+`The Alps’ glaciers are melting, and these Swiss cartographers have work to do.`\
+https://nytimes.com/2022/03/15/arts/alps-map-glacier-rock.html?searchResultPosition=1
 
-**Lesson of the Day: ‘The Songs That Get Us Through It’**\
-`In this lesson, students will explore The New York Times Magazine’s annual music issue and create a multimedia piece that comments on the state of music today.`\
-https://nytimes.com/2022/03/15/learning/lesson-plans/lesson-of-the-day-the-songs-that-get-us-through-it.html?searchResultPosition=2
+**Oakland Cannabis Sellers, Once Full of Hope, Face a Harsh Reality**\
+`The cannabis industry, designed in part to help communities upended by the war on drugs, is being threatened by theft, racism and a market that is stacked against small operators.`\
+https://nytimes.com/2022/03/15/business/cannabis-dispensaries-oakland.html?searchResultPosition=2
 
-**Inside the High-Stakes Race to Test the Covid Tests**\
-`Researchers in Atlanta have helped the federal government evaluate dozens of Covid tests and pioneer a new model for developing novel diagnostics.`\
-https://nytimes.com/2022/03/15/health/covid-testing-variants-emory.html?searchResultPosition=3
+**Where Jerry Zaks Goes to Escape the ‘Pure Pleasure’ of the Theater**\
+`The director of ‘The Music Man’ pays more attention to the furnishings onstage than to those at home. But that suits him fine.`\
+https://nytimes.com/2022/03/15/realestate/where-jerry-zaks-goes-to-escape-the-pure-pleasure-of-the-theater.html?searchResultPosition=3
 
-**How California Is Building the Nation’s First Privacy Police**\
-`A new state agency has a $10 million budget to regulate Google, Facebook and others. But first it needs to be created.`\
-https://nytimes.com/2022/03/15/technology/california-privacy-agency-ccpa-gdpr.html?searchResultPosition=4
+**At Home With Jerry Zaks**\
+`The Tony-winning director of ‘The Music Man’ pays more attention to the furnishings onstage than to those at home. But that suits him fine.`\
+https://nytimes.com/slideshow/2022/03/15/realestate/at-home-with-jerry-zaks.html?searchResultPosition=4
 
-**In Africa, a Mix of Shots Drives an Uncertain Covid Vaccination Push**\
-`Supplies are more plentiful now but they are unpredictable and often a jumble of brands. Many places can’t meet the W.H.O.’s recommended dosing schedules.`\
-https://nytimes.com/2022/03/15/health/covid-vaccines-africa.html?searchResultPosition=5
+**Impunity for War Crimes in Syria Casts a Grim Shadow Over Ukraine**\
+`Syria, with Russian support, used many of the brutal tactics now seen in Ukraine — and its dictator stayed in power. That conflict offers lessons for Russia’s leader, analysts say.`\
+https://nytimes.com/2022/03/15/world/middleeast/russia-ukraine-invasion-syria.html?searchResultPosition=5
 
-**Spring Fashion**\
-`Early 2000s fashion is making a comeback, according to a recent Times article. What will you be wearing this spring?`\
-https://nytimes.com/2022/03/15/learning/spring-fashion.html?searchResultPosition=6
+**Big Sky Is Sprawling, Luxurious and Pricey. And, Maybe, the Future of Skiing.**\
+`With lift tickets above $225 and surcharges of up to $100 to ride the tram to the top, the vast Montana resort is delivering a high-end experience. Is it a solution to skiing’s problems?`\
+https://nytimes.com/2022/03/15/travel/big-sky-montana-skiing.html?searchResultPosition=6
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/03/15/crosswords/spelling-bee-forum.html?searchResultPosition=7
+**Michelle Yeoh’s Quantum Leaps**\
+`For her new sci-fi comedy, the martial-arts star had to attempt a more psychological kind of acrobatics.`\
+https://nytimes.com/2022/03/15/magazine/michelle-yeoh-everything-everywhere-all-at-once.html?searchResultPosition=7
 
-**Word of the Day: adversary**\
-`This word has appeared in 244 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/03/15/learning/word-of-the-day-adversary.html?searchResultPosition=8
+**Her Video Spurred Conversation. Will It Change Women’s Sports?**\
+`Sedona Prince’s viral TikTok from the 2021 N.C.A.A. women’s tournament led to a gender equity review in college basketball and to changes in the women’s event.`\
+https://nytimes.com/2022/03/15/sports/ncaabasketball/womens-march-madness-sedona-prince.html?searchResultPosition=8
 
-**Indian Court Upholds Ban on Hijabs in Schools**\
-`One school’s initial ban set off unrest and violence that spread to other schools in the southern state of Karnataka.`\
-https://nytimes.com/2022/03/15/world/asia/india-hijab-ban-schools.html?searchResultPosition=9
+**‘No Code’ Brings the Power of A.I. to the Masses**\
+`A growing number of new products allow anyone to apply artificial intelligence without having to write a line of computer code. Proponents believe the “no-code” movement will change the world.`\
+https://nytimes.com/2022/03/15/technology/ai-no-code.html?searchResultPosition=9
 
-**Attack Hits Kyiv Neighborhood**\
-`An explosion rocked a residential neighborhood in Kyiv, killing one and injuring six. It was the second attack on a civilian area in the Ukrainian capital on Monday.`\
-https://nytimes.com/video/world/europe/100000008254888/kyiv-apartment-attack.html?searchResultPosition=10
+**The Whole Point of the Constitution Was to Weaken the States**\
+`There’s a reason Madison was a federalist. `\
+https://nytimes.com/2022/03/15/opinion/madison-constitution-states-rights.html?searchResultPosition=10
 
