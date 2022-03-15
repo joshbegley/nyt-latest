@@ -28,7 +28,7 @@ https://nytimes.com/2022/03/15/podcasts/the-daily/ukraine-russia-war-family-kill
 
 **The Search for a Gunman Who Is Shooting Homeless People**\
 `The man has shot at least five homeless men in New York City and Washington, officials said.`\
-https://nytimes.com/2022/03/15/nyregion/the-search-for-a-gunman-who-is-shooting-homeless-people.html?searchResultPosition=8
+https://nytimes.com/2022/03/15/nyregion/gunman-shooting-homeless-search.html?searchResultPosition=8
 
 **The People Who Draw Rocks**\
 `The Alps’ glaciers are melting, and these Swiss cartographers have work to do.`\
