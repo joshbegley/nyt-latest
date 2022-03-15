@@ -6,7 +6,7 @@ https://nytimes.com/2022/03/15/briefing/covid-hong-kong-omicron-surge.html?searc
 `A surge in Omicron variant infections has prompted Chinese authorities to lock down residents, close factories and stop truck traffic, snarling already frayed supply chains.`\
 https://nytimes.com/2022/03/15/business/covid-china-economy.html?searchResultPosition=2
 
-**Suspect in Homeless Shootings Arrested in Washington, Police Say**\
+**Suspect in Homeless Shootings Is Arrested in Washington, Police Say**\
 `At least five homeless men sleeping outdoors in Washington and New York were attacked this month, the police said. Two of them died.`\
 https://nytimes.com/2022/03/15/us/homeless-shootings-arrest.html?searchResultPosition=3
 
