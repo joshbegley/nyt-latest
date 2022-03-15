@@ -32,7 +32,7 @@ https://nytimes.com/2022/03/15/learning/word-of-the-day-adversary.html?searchRes
 
 **Indian Court Upholds Ban on Hijabs in Schools**\
 `One school’s initial ban set off unrest and violence that spread to other schools in the southern state of Karnataka.`\
-https://nytimes.com/2022/03/15/world/asia/india-hijab-schools.html?searchResultPosition=9
+https://nytimes.com/2022/03/15/world/asia/india-hijab-ban-schools.html?searchResultPosition=9
 
 **Attack Hits Kyiv Neighborhood**\
 `An explosion rocked a residential neighborhood in Kyiv, killing one and injuring six. It was the second attack on a civilian area in the Ukrainian capital on Monday.`\
