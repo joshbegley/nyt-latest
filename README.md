@@ -1,34 +1,34 @@
+**Doug Emhoff, Vice President’s Husband, Tests Positive for the Coronavirus**\
+`Vice President Kamala Harris tested negative for the virus on Tuesday, an aide said, but Mr. Emhoff’s positive test forced her to back out of an event with President Biden.`\
+https://nytimes.com/2022/03/15/us/politics/doug-emhoff-covid.html?searchResultPosition=1
+
 **Council of Europe Expels Russia Over Its Invasion of Ukraine**\
 `The organization, Europe’s main institution governing human rights, voted to expel Russia as a member. The decision came hours after Russia had given formal notice that it would withdraw from the group.`\
-https://nytimes.com/video/world/europe/100000008256720/council-of-europe-russia-ukraine.html?searchResultPosition=1
+https://nytimes.com/video/world/europe/100000008256720/council-of-europe-russia-ukraine.html?searchResultPosition=2
 
 **Pfizer and BioNTech Seek Authorization of a Second Booster Shot for Older Americans**\
 `The move could further inflame a tortuous debate among scientists over when the coronavirus vaccines’ protection should be bolstered, and for whom.`\
-https://nytimes.com/2022/03/15/us/politics/pfizer-second-booster-shot-older-americans.html?searchResultPosition=2
+https://nytimes.com/2022/03/15/us/politics/pfizer-second-booster-shot-older-americans.html?searchResultPosition=3
 
 **Republican in Ohio Senate Primary Spoke Offensively About Asians**\
 `Mike Gibbons, a leading contender to succeed Senator Rob Portman, made the comments in a 2013 podcast on doing business in China.`\
-https://nytimes.com/2022/03/15/us/politics/mike-gibbons-ohio.html?searchResultPosition=3
+https://nytimes.com/2022/03/15/us/politics/mike-gibbons-ohio.html?searchResultPosition=4
 
 **A War of Surprises in Ukraine, Both Tragic and Inspiring**\
 `Wars bring out the best and the worst of humanity. Surprises are the only constant.`\
-https://nytimes.com/2022/03/15/opinion/russia-ukraine-putin-war.html?searchResultPosition=4
+https://nytimes.com/2022/03/15/opinion/russia-ukraine-putin-war.html?searchResultPosition=5
 
 **This Is How World War III Begins**\
 `Why Putin is likelier to double down than he is to cut his losses. `\
-https://nytimes.com/2022/03/15/opinion/russia-ukraine-world-war-iii.html?searchResultPosition=5
+https://nytimes.com/2022/03/15/opinion/russia-ukraine-world-war-iii.html?searchResultPosition=6
 
 **Cannibalistic Toads Reveal ‘Evolution in Fast Motion,’ Study Finds**\
 `The toxin that makes cane toads so poisonous is causing them to eat their young, but only in Australia, where they became an out-of-control pest.`\
-https://nytimes.com/2022/03/15/science/cane-toads-cannibals.html?searchResultPosition=6
+https://nytimes.com/2022/03/15/science/cane-toads-cannibals.html?searchResultPosition=7
 
 **European Leaders Brave Russian Bombardment in Visit to Kyiv**\
 `The prime ministers of Poland, the Czech Republic and Slovenia made the trip as a show of solidarity, but it also bared divisions with other European Union members.`\
-https://nytimes.com/2022/03/15/world/europe/ukraine-russia-war-kyiv.html?searchResultPosition=7
-
-**Doug Emhoff, the second gentleman, tests positive.**\
-`The vice president tested negative the same day.`\
-https://nytimes.com/2022/03/15/us/politics/doug-emhoff-tests-positive-vp.html?searchResultPosition=8
+https://nytimes.com/2022/03/15/world/europe/ukraine-russia-war-kyiv.html?searchResultPosition=8
 
 **Shalanda Young Confirmed to Head Biden’s Budget Office**\
 `Ms. Young is the first Black woman to lead the Office of Management and Budget, which had been without permanent leadership for more than a year.`\
