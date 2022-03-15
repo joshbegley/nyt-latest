@@ -4,7 +4,7 @@ https://nytimes.com/2022/03/15/business/ever-forward-stuck-chesapeake-bay.html?s
 
 **Maureen Howard, Novelist Who Traced Women’s Challenges, Dies at 91**\
 `In well-reviewed works like “Natural History” and “A Lover’s Almanac,” she was intent, a fellow writer said, on “making the novel do and hold more.”`\
-https://nytimes.com/2022/03/15/books/maureen-howard-novelist-who-traced-womens-challenges-dies-at-91.html?searchResultPosition=2
+https://nytimes.com/2022/03/15/books/maureen-howard-dead.html?searchResultPosition=2
 
 **Your Wednesday Briefing: E.U. Leaders Visit Kyiv**\
 `Plus the ripple effects of China’s surge of Covid cases and a once-perilous road in Afghanistan.`\
