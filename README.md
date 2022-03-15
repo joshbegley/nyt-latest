@@ -1,5 +1,5 @@
 **Health Agency Under Cuomo ‘Misled the Public’ on Nursing Home Deaths**\
-`The New York State Health Department presented nursing home data that concealed the deaths of 4100 people, according to an audit by the state comptroller.`\
+`The New York State Health Department presented nursing home data that concealed the deaths of 4,100 people, according to an audit by the state comptroller.`\
 https://nytimes.com/2022/03/15/nyregion/nursing-home-deaths-cuomo-covid.html?searchResultPosition=1
 
 **A Year After Suez Blockage, Another Evergreen Ship Is Mired in the Chesapeake**\
