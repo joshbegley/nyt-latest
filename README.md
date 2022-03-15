@@ -20,7 +20,7 @@ https://nytimes.com/2022/03/15/business/airlines-travel.html?searchResultPositio
 
 **Allison Herren Lee will step down as S.E.C. commissioner, opening another vacancy at the agency.**\
 `Ms. Lee earned praise from some of her colleagues for her decisive approach on environmental disclosures.`\
-https://nytimes.com/2022/03/15/business/allison-herren-lee-will-step-down-as-sec-commissioner-opening-another-vacancy-at-the-agency.html?searchResultPosition=6
+https://nytimes.com/2022/03/15/business/allison-herren-lee-step-down-sec-commissioner.html?searchResultPosition=6
 
 **Prepare for Interest Rate Liftoff**\
 `How high will the Fed go?`\
