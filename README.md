@@ -26,13 +26,13 @@ https://nytimes.com/2022/03/15/travel/big-sky-montana-skiing.html?searchResultPo
 `For her new sci-fi comedy, the martial-arts star had to attempt a more psychological kind of acrobatics.`\
 https://nytimes.com/2022/03/15/magazine/michelle-yeoh-everything-everywhere-all-at-once.html?searchResultPosition=7
 
-**Her Video Spurred Conversation. Will It Change Women’s Sports?**\
-`Sedona Prince’s viral TikTok from the 2021 N.C.A.A. women’s tournament led to a gender equity review in college basketball and to changes in the women’s event.`\
-https://nytimes.com/2022/03/15/sports/ncaabasketball/womens-march-madness-sedona-prince.html?searchResultPosition=8
-
 **‘No Code’ Brings the Power of A.I. to the Masses**\
 `A growing number of new products allow anyone to apply artificial intelligence without having to write a line of computer code. Proponents believe the “no-code” movement will change the world.`\
-https://nytimes.com/2022/03/15/technology/ai-no-code.html?searchResultPosition=9
+https://nytimes.com/2022/03/15/technology/ai-no-code.html?searchResultPosition=8
+
+**Her Video Spurred Conversation. Will It Change Women’s Sports?**\
+`Sedona Prince’s viral TikTok from the 2021 N.C.A.A. women’s tournament led to a gender equity review in college basketball and to changes in the women’s event.`\
+https://nytimes.com/2022/03/15/sports/ncaabasketball/womens-march-madness-sedona-prince.html?searchResultPosition=9
 
 **The Whole Point of the Constitution Was to Weaken the States**\
 `There’s a reason Madison was a federalist. `\
