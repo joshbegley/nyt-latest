@@ -8,7 +8,7 @@ https://nytimes.com/2022/03/15/arts/music/james-brown-rikers-island.html?searchR
 
 **Global Economy Sinks Deeper into Turmoil as Fed Prepares to Raise Rates**\
 `Federal Reserve officials are set to raise interest rates to control inflation, but the return to normal they had hoped to see remains painfully elusive.`\
-https://nytimes.com/2022/03/15/business/economy/global-economy-sinks-deeper-into-turmoil-as-fed-prepares-to-raise-rates.html?searchResultPosition=3
+https://nytimes.com/2022/03/15/business/economy/inflation-rates-global-economy.html?searchResultPosition=3
 
 **‘Minute-to-Minute Triage’: Weighing News Against Safety in Russia**\
 `Western news outlets are engaging in a tense debate over balancing an urgent need to bear witness with journalists’ ability to report freely under strict new laws there.`\
