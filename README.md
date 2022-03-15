@@ -10,7 +10,7 @@ https://nytimes.com/2022/03/15/opinion/test-optional-admissions.html?searchResul
 `President Volodymyr Zelensky of Ukraine urged members to imagine that the Russian attacks on Ukraine were happening to Canadian cities. He also called for more sanctions on Russia and help closing Ukraine’s airspace.`\
 https://nytimes.com/video/world/100000008256036/ukraine-russia-zelensky-canada.html?searchResultPosition=3
 
-**Biden’s Pick for Fed’s Top Bank Cop Withdraws**\
+**Biden Withdraws Nomination for Fed’s Top Bank Cop**\
 `Sarah Bloom Raskin did not appear to have the votes for Senate confirmation as Fed vice chair for supervision after a key Democrat withheld his support.`\
 https://nytimes.com/2022/03/15/business/economy/raskin-fed-nominee-withdraws.html?searchResultPosition=4
 
