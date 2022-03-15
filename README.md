@@ -27,7 +27,7 @@ https://nytimes.com/2022/03/15/business/russia-debt-bonds-default.html?searchRes
 https://nytimes.com/2022/03/15/us/politics/ukraine-politics-congress.html?searchResultPosition=7
 
 **106 Years, 4 Weeks, 1 Wreck: How Shackleton’s Ship Was Found**\
-`‘Gents, I want to introduce you to the Endurance.’ More than a century after sinking in Antarctic waters, the legendary ship was found with just days to spare.`\
+`“Gents, I want to introduce you to the Endurance.” More than a century after sinking in Antarctic waters, the legendary ship was found with just days to spare.`\
 https://nytimes.com/2022/03/15/climate/endurance-shipwreck-shackleton.html?searchResultPosition=8
 
 **The latest: Amazon’s bid for MGM is approved by European regulators.**\
