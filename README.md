@@ -1,4 +1,4 @@
-**Fake Heiress Anna Sorokin, Who Swindled Elite, Is Deported to Germany**\
+**Fake Heiress Anna Sorokin, Who Swindled Elite, to Be Deported to Germany**\
 `Ms. Sorokin, whose fictionalized story was the subject of the TV show “Inventing Anna,” had been detained by immigration authorities on charges of overstaying her visa.`\
 https://nytimes.com/2022/03/14/nyregion/anna-delvey-deported.html?searchResultPosition=1
 
