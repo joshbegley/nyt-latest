@@ -1,4 +1,4 @@
-**Dollars or Rubles? Russian Debt Payments Are Due, and Uncertain**\
+**Dollars or Rubles? Russian Debt Payments Are Due, and Uncertain.**\
 `Citing sanctions, the Russian government warned it might pay foreign debt obligations in rubles. Credit rating agencies say a default is imminent.`\
 https://nytimes.com/2022/03/15/business/russia-debt-bonds-default.html?searchResultPosition=1
 
