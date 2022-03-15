@@ -2,7 +2,7 @@
 `Three representatives reported positive coronavirus tests on Tuesday morning. Several others tested positive after a party gathering last week in Philadelphia.`\
 https://nytimes.com/2022/03/15/us/politics/democrats-covid-positive.html?searchResultPosition=1
 
-**The J.&J. Vaccine Holds Its Own as Virus Data Grows**\
+**As Virus Data Mounts, the J.&J. Vaccine Holds Its Own**\
 `Once dismissed as less effective, the vaccine now seems to be preventing infections and illness about as well as the two mRNA options.`\
 https://nytimes.com/2022/03/15/health/covid-johnson-vaccine.html?searchResultPosition=2
 
