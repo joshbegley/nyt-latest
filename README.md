@@ -7,7 +7,7 @@ https://nytimes.com/2022/03/15/world/europe/mariupol-death-toll-ukraine.html?sea
 https://nytimes.com/2022/03/15/business/media/buzzfeed-ipo-arbitration.html?searchResultPosition=2
 
 **Isla & Co. Opens in Williamsburg, Brooklyn**\
-`Vietnamese-influenced breakfast fare in Chelsea;  Thai grilled skewers in Elmhurst, Queens; and more restaurant news.`\
+`Vietnamese-influenced breakfast fare in Chelsea; Thai grilled skewers in Elmhurst, Queens; and more restaurant news.`\
 https://nytimes.com/2022/03/15/dining/nyc-restaurant-news.html?searchResultPosition=3
 
 **Five animated shows based on Dr. Seuss books are headed to Netflix.**\
