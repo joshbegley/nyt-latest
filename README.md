@@ -1,4 +1,4 @@
-**Truth is the First Casualty of War. These Reporters Tried to Save It.**\
+**Truth Is the First Casualty of War. These Reporters Tried to Save It.**\
 `Deborah Cohen’s “Last Call at the Hotel Imperial” tells the story of four foreign correspondents who sounded the alarm from Europe before World War II.`\
 https://nytimes.com/2022/03/16/books/review/last-call-at-the-hotel-imperial-deborah-cohen.html?searchResultPosition=1
 
