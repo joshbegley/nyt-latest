@@ -16,7 +16,7 @@ https://nytimes.com/2022/03/16/sports/providence-south-dakota-state-justin-minay
 
 **Nazanin Zaghari-Ratcliffe to Fly Home From Iran, U.K. Lawmaker Says**\
 `The arrest and detention of the British-Iranian charity worker in 2016 roiled relations between Britain and Iran and was denounced by rights groups.`\
-https://nytimes.com/2022/03/16/world/europe/iran-nazanin-zaghari-ratcliffe.html?searchResultPosition=5
+https://nytimes.com/2022/03/16/world/europe/iran-nazanin-zaghari-ratcliffe-released.html?searchResultPosition=5
 
 **Imagining Peace in Ukraine**\
 `Is it possible? And what could it look like?`\
