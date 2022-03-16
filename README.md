@@ -24,7 +24,7 @@ https://nytimes.com/2022/03/16/opinion/letters/ukraine-russia-war.html?searchRes
 
 **Watch Live: Ukraine’s President Speaks to Congress**\
 `U.S. lawmakers convene for Volodymyr Zelensky’s virtual address to Congress. This video may contain graphic images of violence.`\
-https://nytimes.com/video/us/politics/100000008254252/zelensky-congress-speech.html?searchResultPosition=7
+https://nytimes.com/video/embedded/us/politics/100000008254252/zelensky-congress-speech.html?searchResultPosition=7
 
 **Starbucks C.E.O. retires, and Howard Schultz steps in as interim chief executive.**\
 `Kevin Johnson, who was named chief executive in 2017, will leave his post on April 4.`\
