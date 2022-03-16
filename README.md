@@ -8,7 +8,7 @@ https://nytimes.com/2022/03/16/well/family/turning-red-periods-discussion.html?s
 
 **Russia’s Attack Rallies a Divided Nation: The United States**\
 `Americans across the political spectrum express broad support for Ukraine, though opinions diverge on what that means and how far the U.S. response should go.`\
-https://nytimes.com/2022/03/16/us/politics/russia-ukraine-united-states.html?searchResultPosition=3
+https://nytimes.com/2022/03/16/us/politics/russia-ukraine-us.html?searchResultPosition=3
 
 **Modern Love Podcast: A Mother’s Wild, Extravagant Love**\
 `She couldn’t be physically present for her daughter’s life. But she found a way to be there, still.`\
