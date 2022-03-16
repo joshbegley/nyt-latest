@@ -12,7 +12,7 @@ https://nytimes.com/2022/03/16/world/europe/sahara-sandstorm-europe.html?searchR
 
 **A Russian Ballet Star, Opposed to the Ukraine War, Quits the Bolshoi**\
 `Olga Smirnova said she was against the war in Ukraine “with all the fibers of my soul.” Now, she has joined the Dutch National Ballet.`\
-https://nytimes.com/2022/03/16/arts/dance/olga-smirnova-bolshoi-dutch-national-ballet.html?searchResultPosition=4
+https://nytimes.com/2022/03/16/arts/dance/olga-smirnova-bolshoi-ballet-ukraine-war.html?searchResultPosition=4
 
 **Chinese Officer Charged With Harassing N.Y. Congressional Candidate**\
 `Yan Xiong, a Chinese dissident who immigrated to America and is now a political candidate on Long Island, was targeted by an agent of the Chinese government, federal prosecutors said.`\
