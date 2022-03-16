@@ -1,6 +1,6 @@
 **U.S. Casts a Global Net to Stop Shipments to Russia**\
 `To try to halt the war in Ukraine, the U.S. and its allies have imposed the most sweeping export controls seen in decades on Russia. Now they have to enforce them.`\
-https://nytimes.com/2022/03/16/business/economy/us-casts-a-global-net-to-stop-shipments-to-russia.html?searchResultPosition=1
+https://nytimes.com/2022/03/16/business/economy/us-exports-russia-ukraine.html?searchResultPosition=1
 
 **Mushrooms and Speed at Alexander McQueen**\
 `The luxury brand held its first New York runway show in more than 20 years.`\
