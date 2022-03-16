@@ -19,7 +19,7 @@ https://nytimes.com/2022/03/16/learning/word-of-the-day-loathe.html?searchResult
 https://nytimes.com/2022/03/16/business/economy/ukraine-russia-refugee-crisis.html?searchResultPosition=5
 
 **Late Night Is Wowed by the Senate Actually Doing Something**\
-`“Various politician have been trying to do this for years but they kept getting clock blocked,” Jimmy Kimmel said of the Sunshine Protection Act, which passed Tuesday in the Senate.`\
+`“Various politicians have been trying to do this for years but they kept getting clock blocked,” Jimmy Kimmel said of the Sunshine Protection Act, which passed Tuesday in the Senate.`\
 https://nytimes.com/2022/03/16/arts/television/late-night-senate-daylight-saving.html?searchResultPosition=6
 
 **Russians Must Accept the Truth. We Failed.**\
