@@ -12,7 +12,7 @@ https://nytimes.com/slideshow/2022/03/16/realestate/what-you-get-for-475000.html
 
 **‘Minx’ Reveals That All Nudity Is Not Created Equal**\
 `Even at a time when naked men have become more commonplace on TV, a scene in the pilot of this HBO Max comedy stands out for its variety and realism.`\
-https://nytimes.com/2022/03/16/arts/television/minx-male-nudity.html?searchResultPosition=4
+https://nytimes.com/2022/03/16/arts/television/minx-hbo-max-male-nudity.html?searchResultPosition=4
 
 **Two Former Governors Weigh In on California’s Bullet Train**\
 `California’s monumental effort to build a high-speed rail system is at a crossroads. Plus, daylight saving time may become permanent.`\
