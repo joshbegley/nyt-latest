@@ -16,7 +16,7 @@ https://nytimes.com/2022/03/16/business/economy/us-exports-russia-ukraine.html?s
 
 **Mushrooms and Speed at Alexander McQueen**\
 `The luxury brand held its first New York runway show in more than 20 years.`\
-https://nytimes.com/2022/03/16/style/mushrooms-and-speed-at-alexander-mcqueen.html?searchResultPosition=5
+https://nytimes.com/2022/03/16/style/alexander-mcqueen-mycelium-show.html?searchResultPosition=5
 
 **How to Outlast 5-Minute Internet Fads**\
 `Hand videos by the food entertainment site Tasty reshaped the internet. The question now is what’s next.`\
