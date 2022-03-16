@@ -6,7 +6,7 @@ https://nytimes.com/2022/03/16/t-magazine/roxane-gay-cake-recipe.html?searchResu
 `The writer bakes a version of the cookbook author Tessa Huff’s layered confection — making sure not to skimp on ingredients and opting for pink frosting — in remembrance of her late brother, Joel.`\
 https://nytimes.com/video/t-magazine/100000008198550/cooking-class-roxane-gay-makes-a-milk-and-cookies-cake.html?searchResultPosition=2
 
-**Fox News journalist who was injured in Ukraine is now ‘safe.’**\
+**A Fox News journalist who was injured in Ukraine is now ‘safe.’**\
 `Benjamin Hall was seriously injured in an incident that killed a Fox News cameraman and a young Ukrainian journalist.`\
 https://nytimes.com/2022/03/16/world/europe/benjamin-hall-fox-news-ukraine-safe.html?searchResultPosition=3
 
