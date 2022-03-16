@@ -20,11 +20,11 @@ https://nytimes.com/2022/03/16/arts/hiram-maristany-dead.html?searchResultPositi
 
 **Jean Potvin, Part of the 1980s Islanders’ N.H.L. Dynasty, Dies at 72**\
 `He was traded to New York in 1973, when they were an awful expansion team, but became part of a fast-improving franchise that won its first two Stanley Cups in 1980 and ’81.`\
-https://nytimes.com/2022/03/16/sports/hockey/jean-potvin-part-of-the-1980s-islanders-nhl-dynasty-dies-at-72.html?searchResultPosition=6
+https://nytimes.com/2022/03/16/sports/hockey/jean-potvin-dead.html?searchResultPosition=6
 
 **Jussie Smollett to Be Released From Jail On Appeal, Court Orders**\
-`The appellate court ruled that he be released on bond pending his appeal of a judge’s sentence that he serve five months in jail.`\
-https://nytimes.com/2022/03/16/arts/television/jussie-smollett-ordered-released.html?searchResultPosition=7
+`The appellate court ruled that he be freed on bond pending his appeal of a judge’s sentence that he serve five months in jail.`\
+https://nytimes.com/2022/03/16/arts/television/jussie-smollett-released.html?searchResultPosition=7
 
 **Vocabulary in Context: The Linda Lindas**\
 `Test your vocabulary and reading comprehension with this quiz based on the Times article "Punk Rock’s New Hope: The Ferocious, Joyful Linda Lindas."`\
