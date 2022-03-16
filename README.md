@@ -1,6 +1,6 @@
 **Powerful Quake off Japan Rekindles Fears of Another Fukushima**\
 `Tsunami warnings in a region hit by nuclear disaster in 2011 were lifted after a few hours. The damage was still being assessed, but it appeared contained.`\
-https://nytimes.com/2022/03/16/world/asia/japan-earthuake-fukushima.html?searchResultPosition=1
+https://nytimes.com/2022/03/16/world/asia/japan-earthquake-fukushima.html?searchResultPosition=1
 
 **The Players Throwing It Back (to the Basket)**\
 `While bigs are increasingly encouraged to develop a 3-point shot, Kentucky’s Oscar Tshiebwe and Illinois’s Kofi Cockburn are averaging double-doubles with their efforts in the post.`\
