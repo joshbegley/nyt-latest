@@ -32,7 +32,7 @@ https://nytimes.com/video/us/politics/100000008257616/biden-ukraine-aid-russia-w
 
 **Watch Live: Powell Speaks After the Fed Raises Interest Rates**\
 `Jerome H. Powell, the chair of the Federal Reserve, is taking questions from reporters following the central bank’s March meeting.`\
-https://nytimes.com/video/us/100000008256989/powell-fed-meeting-live-video.html?searchResultPosition=9
+https://nytimes.com/video/embedded/us/100000008256989/powell-fed-meeting-live-video.html?searchResultPosition=9
 
 **Saharan Sands Float North to Europe, Coating Cities With Dust**\
 `A European monitoring service projected that the dust, which cast an eerie orange pall over much of the continent, could reach as far as Denmark.`\
