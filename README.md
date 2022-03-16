@@ -36,5 +36,5 @@ https://nytimes.com/2022/03/16/sports/baseball/aaron-judge-yankees.html?searchRe
 
 **Watch Live: Biden Announces New Security Assistance for Ukraine**\
 `President Biden announces additional security assistance for Ukraine as it fights back against Russia’s invasion.`\
-https://nytimes.com/video/us/politics/100000008256796/biden-ukraine-aid-speech-live.html?searchResultPosition=10
+https://nytimes.com/video/embedded/us/politics/100000008256796/biden-ukraine-aid-speech-live.html?searchResultPosition=10
 
