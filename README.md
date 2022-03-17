@@ -1,4 +1,4 @@
-**A Russian court has extended Brittney Griner’s detention.**\
+**Russian Court Extends Brittney Griner’s Detention**\
 `Griner, one of the world’s best basketball players, was detained on accusations that she had hashish oil in her luggage at an airport outside of Moscow a week before Russia invaded Ukraine.`\
 https://nytimes.com/2022/03/17/world/europe/brittney-griner-basketball-russia-detention.html?searchResultPosition=1
 
