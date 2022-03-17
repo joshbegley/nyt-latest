@@ -3,7 +3,7 @@
 https://nytimes.com/2022/03/17/dining/dom-demarco-dead-di-fara-pizza.html?searchResultPosition=1
 
 **13-Year-Old Boy Drove Truck That Hit Van in Texas, Killing 9, Officials Say**\
-`The fiery crash killed a golf coach and six of his players, along with the boy and a man who was traveling with the him.`\
+`The fiery crash killed a golf coach and six of his players, along with the boy and a man who was traveling with him.`\
 https://nytimes.com/2022/03/17/sports/golf/golf-team-crash-texas.html?searchResultPosition=2
 
 **Lia Thomas Wins an N.C.A.A. Swimming Title**\
