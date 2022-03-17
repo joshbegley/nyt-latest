@@ -1,40 +1,40 @@
+**‘Love After Love’ Review: Elegance Without a Center**\
+`Ann Hui’s World War II-era film is lovely to look at but lacks emotional depth and resonance.`\
+https://nytimes.com/2022/03/17/movies/love-after-love-review.html?searchResultPosition=1
+
+**After Years Away, These Teams Are Back on Basketball’s Big Stage**\
+`Some teams — like Illinois State and Massachusetts — will have already made history before taking the floor.`\
+https://nytimes.com/2022/03/17/sports/basketball/ncaa-womens-tournament-unusual-teams.html?searchResultPosition=2
+
+**‘Master’ Review: Get Thee to an H.B.C.U.!**\
+`Regina Hall anchors this horror movie debut from Mariama Diallo, set on a New England college campus.`\
+https://nytimes.com/2022/03/17/arts/master-review-get-thee-to-an-hbcu.html?searchResultPosition=3
+
+**Amid Russia Invasion, I.R.S. Aims to Police Oligarch Sanctions**\
+`It wants to add agents to a 3,000-person investigations unit to help crack down on attempts by Russian oligarchs to evade sanctions.`\
+https://nytimes.com/2022/03/17/us/politics/irs-russia-oligarchs-sanctions.html?searchResultPosition=4
+
+**‘The Torch’ Review: The Blues Legend Buddy Guy Sows His Legacy**\
+`A new documentary by Jim Farrell focuses on the musician’s sense of mission.`\
+https://nytimes.com/2022/03/17/arts/the-torch-review.html?searchResultPosition=5
+
+**‘Alice’ Review: American Slavery and Black Power Collide**\
+`This time-bending thriller about a woman who escapes from slavery in 1973, starring Keke Palmer and Common, is a vapid historical romp.`\
+https://nytimes.com/2022/03/17/movies/alice-review.html?searchResultPosition=6
+
+**‘Panama’ Review: Welcome to the Jungle, We Lack Fun and Games**\
+`Mel Gibson drops in from time to time in this predictable throwback thriller from Mark Neveldine.`\
+https://nytimes.com/2022/03/17/movies/panama-review.html?searchResultPosition=7
+
+**‘The Outfit’ Review: The Violent Measure of a Man**\
+`In this gangster exercise set in 1956 Chicago, Mark Rylance plays a tailor who has very large scissors and some sharp moves.`\
+https://nytimes.com/2022/03/17/movies/the-outfit-review.html?searchResultPosition=8
+
+**‘Deep Water’ Review: Love and Loathing in New Orleans**\
+`An unhappy husband raises suspicions when his wife’s lovers begin to disappear.`\
+https://nytimes.com/2022/03/17/movies/deep-water-review.html?searchResultPosition=9
+
 **In Defense of Poetry**\
 `In “Rhyme’s Rooms,” the veteran poet and avowed traditionalist Brad Leithauser explains how verse works, and why we should care.`\
-https://nytimes.com/2022/03/17/books/review/rhymes-rooms-architecture-of-poetry-brad-leithauser.html?searchResultPosition=1
-
-**A City Under Siege**\
-`We give you a rare dispatch from Mariupol, Ukraine.`\
-https://nytimes.com/2022/03/17/briefing/mariupol-siege-russia-invasion-ukraine.html?searchResultPosition=2
-
-**Four Paths Forward in Ukraine**\
-`How might the war in Ukraine unfold in the coming weeks or, potentially, months?`\
-https://nytimes.com/2022/03/17/podcasts/the-daily/ukraine-war-zelensky-putin.html?searchResultPosition=3
-
-**For Car Designers, E.V.s Offer a Blank Canvas**\
-`Frunks are just the start — think Cybertruck, not Focus.`\
-https://nytimes.com/2022/03/17/business/electric-vehicle-ev-design.html?searchResultPosition=4
-
-**UNESCO will send body armor to Ukrainian journalists.**\
-`The U.N. agency said thousands of Ukrainian journalists with no protective equipment or training were now covering the war. At least four journalists have been killed.`\
-https://nytimes.com/2022/03/17/world/europe/ukraine-unesco-body-armor-journalists.html?searchResultPosition=5
-
-**Working Remotely, Some Transgender People Saw an Opportunity to Change**\
-`After transitioning in private, they are preparing to return to the workplace at a time when gender identity itself is a politically divisive issue.`\
-https://nytimes.com/2022/03/17/business/transgender-transition-pandemic.html?searchResultPosition=6
-
-**Two Years of the Pandemic: New York Looks Back**\
-`It all began in March 2020, when we were flying blind and hoping it would be over quickly.`\
-https://nytimes.com/2022/03/17/nyregion/two-years-of-the-pandemic-new-york-looks-back.html?searchResultPosition=7
-
-**Sexual Assault Shouldn’t Taint the Selection of Potential Jurors**\
-`Juror No. 50 in the Ghislaine Maxwell trial withheld his history of abuse. That doesn’t make him a bad juror.`\
-https://nytimes.com/2022/03/17/opinion/ghislaine-maxwell-trial-juror-selection.html?searchResultPosition=8
-
-**Stars Battle It Out on London Stages**\
-`In West End productions, Jonathan Bailey and Taron Egerton play a fighting couple, and Kit Harington from “Game of Thrones” plays the warrior king in “Henry V.”`\
-https://nytimes.com/2022/03/17/theater/cock-henry-v-review.html?searchResultPosition=9
-
-**Where Jazz Lives Now**\
-`The jazz club, with its dim lighting and closely packed tables, looms large in our collective imagination. But today, the music is thriving in a host of different spaces.`\
-https://nytimes.com/2022/03/17/arts/music/jazz-club.html?searchResultPosition=10
+https://nytimes.com/2022/03/17/books/review/rhymes-rooms-architecture-of-poetry-brad-leithauser.html?searchResultPosition=10
 
