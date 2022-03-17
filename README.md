@@ -23,7 +23,7 @@ https://nytimes.com/2022/03/17/briefing/russia-ukraine-war-kharkiv.html?searchRe
 https://nytimes.com/2022/03/17/arts/humana-festival-canceled.html?searchResultPosition=6
 
 **Push for More Restrictive Bail Law Gains a Key Ally: Gov. Hochul**\
-`Ms. Hochul wants to expand the list of crimes eligible for bail in New York, and give judges the power to consider a defendant’s “dangerousness” in setting bail for certain crimes.`\
+`Ms. Hochul wants to expand the list of crimes eligible for bail in New York, and give judges the power to consider the danger a defendant poses in setting bail for certain crimes.`\
 https://nytimes.com/2022/03/17/nyregion/bail-reform-hochul-ny.html?searchResultPosition=7
 
 **Koch Industries will continue to operate its factories in Russia.**\
