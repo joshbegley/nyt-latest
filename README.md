@@ -11,7 +11,7 @@ https://nytimes.com/2022/03/17/business/koch-russia.html?searchResultPosition=2
 https://nytimes.com/2022/03/17/briefing/your-friday-briefing-the-destruction-of-ukraine.html?searchResultPosition=3
 
 **The Irish Found Their Luck in the Ivy League**\
-`Losing last year’s season to the pandemic and other Ivy League rules led to an exodus of talent. One of those players, Paul Atkinson, hit a game-winning shot for Notre Dame in the N.C.A.A. tournament.`\
+`Losing last year’s season to the pandemic, and other Ivy League rules, led to an exodus of talent. One of those players, Paul Atkinson, hit a game-winning shot for Notre Dame in the N.C.A.A. tournament.`\
 https://nytimes.com/2022/03/17/sports/notre-dame-rutgers-alabama-ncaa-tournament-paul-atkinson.html?searchResultPosition=4
 
 **Macron Centers on Experience in Crises in Bid for Second Term**\
