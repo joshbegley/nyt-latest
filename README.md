@@ -3,7 +3,7 @@
 https://nytimes.com/2022/03/17/us/vandebilt-high-school-hate-crime-louisiana.html?searchResultPosition=1
 
 **Eugene N. Parker, 94, Dies; Predicted the Existence of Solar Wind**\
-`At first, almost no one believed his findings on gigantic eruptions from the sun. Today, a NASA mission to fly through the sun’s outer atmosphere is named after him.`\
+`At first, almost no one believed his findings on gigantic eruptions from the sun. Today, a NASA mission to fly through its outer atmosphere is named after him.`\
 https://nytimes.com/2022/03/17/science/space/eugene-n-parker-dead.html?searchResultPosition=2
 
 **Gig Workers Say High Gas Prices May Be a Breaking Point**\
