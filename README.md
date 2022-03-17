@@ -1,40 +1,40 @@
-**It Could’ve Been the World’s Largest Potato, if Only It Were a Potato**\
-`A couple in New Zealand found a giant growth in their garden, named it Doug and applied to the Guinness Book of World Records. Then the results of a DNA analysis came in.`\
-https://nytimes.com/2022/03/17/world/asia/worlds-largest-potato-doug.html?searchResultPosition=1
+**Where Jazz Lives Now**\
+`The jazz club, with its dim lighting and closely packed tables, looms large in our collective imagination. But today, the music is thriving in a host of different spaces.`\
+https://nytimes.com/2022/03/17/arts/music/jazz-club.html?searchResultPosition=1
 
-**Campbell Addy Up Close**\
-`The photographer of the moment on what it takes to be seen.`\
-https://nytimes.com/2022/03/17/style/campbell-addy-feeling-seen.html?searchResultPosition=2
+**What New York Got Wrong About the Pandemic, and What It Got Right**\
+`The city was slow to react, and the vaccine rollout was flawed. Poor neighborhoods still need help. But shutdowns and mandates saved lives.`\
+https://nytimes.com/2022/03/17/nyregion/new-york-pandemic-lessons.html?searchResultPosition=2
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/03/17/crosswords/spelling-bee-forum.html?searchResultPosition=3
+**Republicans Push Crackdown on Crime Wave That Doesn’t Exist: Voter Fraud**\
+`Election fraud is exceedingly rare and often accidental. Still, G.O.P. lawmakers and prosecutors are promoting tough new enforcement efforts.`\
+https://nytimes.com/2022/03/17/us/politics/republican-voting-crime.html?searchResultPosition=3
 
-**Trevor Noah: Addressing Congress, Zelensky ‘Knew His Audience’**\
-`Ukraine’s president must have researched American history before his speech, said Noah (who speculated about how it “could have gone very wrong”).`\
-https://nytimes.com/2022/03/17/arts/television/trevor-noah-zelensky-congress.html?searchResultPosition=4
+**Museum Ships and Submarines Offer History Afloat**\
+`According to the National Park Service, some 120 vessels in the United States are designated as national historic landmarks.`\
+https://nytimes.com/2022/03/17/travel/ships-submarines-national-landmarks.html?searchResultPosition=4
 
-**Word of the Day: bona fide**\
-`This term has appeared in 69 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/03/17/learning/word-of-the-day-bona-fide.html?searchResultPosition=5
+**Inflation vs. Recession: The Fed Is Walking a Tightrope**\
+`American consumers already have high inflation. Because of the oil price shock and Russia’s war, the odds of a recession have increased, too.`\
+https://nytimes.com/2022/03/17/business/federal-reserve-inflation-recession.html?searchResultPosition=5
 
-**A Russian Rapper Brings His Banned Antiwar Message to Istanbul**\
-`The rapper, Oxxxymiron, said proceeds from his show would go to help Ukrainian refugees. Russians at the concert denounced the war but said they felt helpless to stop it.`\
-https://nytimes.com/2022/03/17/world/europe/oxxxymiron-istanbul-concert.html?searchResultPosition=6
+**‘Finish Them Off’: Aid Workers, Found on Battlefield, Executed by Soldiers**\
+`Three employees of Doctors Without Borders set out to rescue the wounded in a war zone in northern Ethiopia. Their fate shows the treacherous path for many aid workers in conflict zones.`\
+https://nytimes.com/2022/03/17/world/africa/ethiopia-tigray-aid-workers-killed.html?searchResultPosition=6
 
-**Quotation of the Day: A Divided America Is Uniting To Support a Besieged Ukraine**\
-`Quotation of the Day for Thursday March 17, 2022.`\
-https://nytimes.com/2022/03/17/todayspaper/quotation-of-the-day-a-divided-america-is-uniting-to-support-a-besieged-ukraine.html?searchResultPosition=7
+**Where the War in Ukraine Seems Justified**\
+`In countries friendly toward Russia, people are troubled by the war and loss of life, but some say they think that Putin has a point.`\
+https://nytimes.com/2022/03/17/world/war-russia-china-putin-support.html?searchResultPosition=7
 
-**Corrections: March 17, 2022**\
-`Corrections that appeared in print on Thursday, March 17, 2022.`\
-https://nytimes.com/2022/03/17/pageoneplus/corrections-march-17-2022.html?searchResultPosition=8
+**The 9 to 5 Schedule Should Be the Next Pillar of Work to Fall**\
+`The pandemic changed where many of us work. It should also change when we work.`\
+https://nytimes.com/2022/03/17/opinion/work-flexibility-hours.html?searchResultPosition=8
 
-**Honduras Judge Approves Extradition of Ex-President to U.S.**\
-`Former President Juan Orlando Hernández is facing drug-trafficking and weapons charges`\
-https://nytimes.com/2022/03/17/world/americas/honduras-extradition-juan-orlando-hernandez.html?searchResultPosition=9
+**5 Things to Do This Weekend**\
+`Our critics and writers have selected noteworthy cultural events to experience virtually and in person in New York City.`\
+https://nytimes.com/2022/03/17/arts/things-to-do-this-weekend.html?searchResultPosition=9
 
-**Your Thursday Briefing**\
-`More U.S. military aid for Ukraine.`\
-https://nytimes.com/2022/03/17/briefing/ukraine-russia-syria-graves.html?searchResultPosition=10
+**Rebuilding Her Life While She Builds Homes**\
+`Female construction workers are still a rarity, but they are on the rise. After personal losses and three bouts of Covid-19, Deyonna Hancock is finding a new start in the industry.`\
+https://nytimes.com/2022/03/17/business/pandemic-construction-women-building.html?searchResultPosition=10
 
