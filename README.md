@@ -1,6 +1,6 @@
 **What Students Are Saying About Emotional Intelligence, Speaking Their Mind at School and Underappreciated Sports**\
 `Teenage comments in response to our recent writing prompts, and an invitation to join the ongoing conversation.`\
-https://nytimes.com/2022/03/17/learning/what-students-are-saying-about-emotional-intelligence-speaking-their-mind-at-school-and-underappreciated-sports.html?searchResultPosition=1
+https://nytimes.com/2022/03/17/learning/students-emotional-intelligence-school.html?searchResultPosition=1
 
 **Watch Live: U.N. Security Council Emergency Meeting on Ukraine**\
 `The United Nations Security Council holds emergency talks on Russia’s invasion of Ukraine and the growing humanitarian crisis.`\
