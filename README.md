@@ -10,31 +10,31 @@ https://nytimes.com/video/world/europe/100000008259795/macron-second-term-french
 `Jasmina Cibic’s new exhibition explores the theatricality of nation building in Europe. She didn’t expect it to have such immediate contemporary relevance.`\
 https://nytimes.com/2022/03/17/arts/design/jasmina-cibic.html?searchResultPosition=3
 
-**Russia Is Destroying Kharkiv**\
-`Ukraine’s second largest city, a place steeped in art and Romanticism, has been targeted in a relentless barrage.`\
-https://nytimes.com/2022/03/17/world/europe/russia-is-destroying-kharkiv.html?searchResultPosition=4
-
 **Louisiana Student Recorded Whipping Black Classmate Is Charged With Hate Crime**\
-`The 15-year-old, who also appeared to throw cotton balls at the classmate in a video, was arrested on Tuesday in connection with the episode, which  “appears to be racially motivated.”`\
-https://nytimes.com/2022/03/17/us/vandebilt-high-school-hate-crime-louisiana.html?searchResultPosition=5
+`The 15-year-old, who also appeared to throw cotton balls at the classmate in a video, was arrested on Tuesday in connection with the episode, which “appears to be racially motivated.”`\
+https://nytimes.com/2022/03/17/us/vandebilt-high-school-hate-crime-louisiana.html?searchResultPosition=4
 
 **Eugene N. Parker, 94, Dies; Predicted the Existence of Solar Wind**\
 `At first, almost no one believed his findings on gigantic eruptions from the sun. Today, a NASA mission to fly through its outer atmosphere is named after him.`\
-https://nytimes.com/2022/03/17/science/space/eugene-n-parker-dead.html?searchResultPosition=6
+https://nytimes.com/2022/03/17/science/space/eugene-n-parker-dead.html?searchResultPosition=5
 
 **Gig Workers Say High Gas Prices May Be a Breaking Point**\
 `Some drivers say they find it hard to justify spending hours on the road for Uber or Lyft as fuel costs continue to tick upward.`\
-https://nytimes.com/2022/03/17/technology/gas-prices-uber-lyft-drivers.html?searchResultPosition=7
+https://nytimes.com/2022/03/17/technology/gas-prices-uber-lyft-drivers.html?searchResultPosition=6
 
 **The Art of Making Thai Noodles, Far From Thailand**\
 `Cooks in the nation’s diaspora offer wisdom on making pad Thai and other classics at home. First tip: Sometimes taste is more important than tradition.`\
-https://nytimes.com/2022/03/17/dining/pad-thai-cooking-tips.html?searchResultPosition=8
+https://nytimes.com/2022/03/17/dining/pad-thai-cooking-tips.html?searchResultPosition=7
 
 **Citigroup will pay travel costs for employee abortions in response to the Texas law.**\
 `Citigroup is the first major U.S. bank to announce a policy change in response to the legislation, which bans abortions after six weeks of pregnancy.`\
-https://nytimes.com/2022/03/17/business/citigroup-texas-abortion.html?searchResultPosition=9
+https://nytimes.com/2022/03/17/business/citigroup-texas-abortion.html?searchResultPosition=8
 
 **House Votes to Suspend Normal Trade Relations With Russia**\
 `The bill, which still needs Senate approval, is the latest in a series of measures that lawmakers have passed to support Ukraine and punish Russia for its invasion.`\
-https://nytimes.com/2022/03/17/us/politics/house-russia-trade-status.html?searchResultPosition=10
+https://nytimes.com/2022/03/17/us/politics/house-russia-trade-status.html?searchResultPosition=9
+
+**‘The Life’ Review: Turning More Than a Few New Tricks**\
+`Billy Porter brings a heavy-handed touch as the director and adapter of this 1997 musical about prostitutes and pimps in Manhattan’s bad old days.`\
+https://nytimes.com/2022/03/17/theater/the-life-review.html?searchResultPosition=10
 
