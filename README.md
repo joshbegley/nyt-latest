@@ -2,8 +2,8 @@
 `Iowa State and Loyola Chicago could pull off upsets, and you’ll want to keep an eye on the teams from the Big Ten Conference.`\
 https://nytimes.com/2022/03/18/sports/ncaa-mens-tournament-what-to-watch-friday.html?searchResultPosition=1
 
-**The New York City Half Marathon Has a Star-Studded Lineup**\
-`The race is scheduled to be run on Sunday for the first time in three years, and a number of prominent names will be at the starting line.`\
+**Running Stars Are Racing in New York City, and It’s Not the Marathon**\
+`The New York City Half Marathon is scheduled to be run on Sunday for the first time in three years, and a number of prominent names will be at the starting line.`\
 https://nytimes.com/2022/03/18/sports/nyc-half-marathon.html?searchResultPosition=2
 
 **N.C.A.A. Women’s Tournament: What to Watch as the Round of 64 Begins**\
