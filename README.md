@@ -34,7 +34,7 @@ https://nytimes.com/2022/03/18/business/office-mask-mandates.html?searchResultPo
 `The transgender youth controversy in Texas; the “Don’t Say Gay” bill in Florida; U.S. policy and North Korea.`\
 https://nytimes.com/2022/03/18/opinion/letters/transgender-youths-texas.html?searchResultPosition=9
 
-**Asian Americans Have Always Lived With Fear**\
-`In my decades growing up in New York, survival required constant vigilance. Sadly, very little has changed.`\
-https://nytimes.com/2022/03/18/opinion/asian-american-violence-fear.html?searchResultPosition=10
+**Why You Haven’t Heard About the Secret Cyberwar in Ukraine**\
+`The digital confrontation is playing out in the shadows, as inconspicuous as it is insidious.`\
+https://nytimes.com/2022/03/18/opinion/cyberwar-ukraine-russia.html?searchResultPosition=10
 
