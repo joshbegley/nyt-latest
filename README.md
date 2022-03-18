@@ -2,7 +2,7 @@
 `In Sam Chanse’s affecting play, a daughter tries to understand her mother, who resists any reminder of her escape from the Khmer Rouge.`\
 https://nytimes.com/2022/03/18/theater/what-you-are-now-review.html?searchResultPosition=1
 
-**As Diplomacy Drags On, Peace Seems Far Off in Ukraine**\
+**As diplomacy drags on, peace seems far off in Ukraine.**\
 `Western officials have little optimism that talks between Russia and Ukraine have reached a serious stage or have even confronted the most difficult issues.`\
 https://nytimes.com/2022/03/18/world/europe/ukraine-russia-peace-talks-diplomacy.html?searchResultPosition=2
 
