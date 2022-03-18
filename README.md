@@ -19,7 +19,7 @@ https://nytimes.com/2022/03/18/world/asia/china-ukraine-russia-dissent.html?sear
 https://nytimes.com/2022/03/18/sports/tennis/nadal-alcaraz-indian-wells.html?searchResultPosition=5
 
 **U.S. warns servicing or refueling some Russian-owned planes may violate trade restrictions.**\
-`Export controls introduced in late February prohibit exporting aircraft that were made in the U.S. or that use some U.S. parts to Russia, effectively grounding some international flights, the Commerce Department said.`\
+`Export controls introduced in late February prohibit exporting aircraft that were made in the U.S. or use some U.S. parts to Russia, effectively grounding some international flights, the Commerce Department said.`\
 https://nytimes.com/2022/03/18/business/economy/russia-planes-export-controls.html?searchResultPosition=6
 
 **A judge throws out D.C.’s attempt to name Zuckerberg in a privacy lawsuit.**\
