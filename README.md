@@ -12,7 +12,7 @@ https://nytimes.com/2022/03/18/arts/television/american-song-contest.html?search
 
 **How one energy company C.E.O. is trying to keep the lights on in Ukraine.**\
 `DTEK, a prominent Ukrainian power company, arranges for soldiers to escort its emergency repair crews to reach damaged transmission lines.`\
-https://nytimes.com/2022/03/18/business/economy/how-one-energy-company-ceo-is-trying-to-keep-the-lights-on-in-ukraine.html?searchResultPosition=4
+https://nytimes.com/2022/03/18/business/economy/ukraine-energy-company-russia-war.html?searchResultPosition=4
 
 **Easygoing Clothes in Shades of Cream and Khaki**\
 `Cocooning knits and enveloping jackets in neutral hues perfect for spring.`\
