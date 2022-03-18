@@ -1,4 +1,4 @@
-**Rabbi Chaim Kanievsky, Revered Talmudic Scholar, Dies at 94**\
+**Rabbi Chaim Kanievsky, Venerated Talmudic Scholar, Dies at 94**\
 `He initially insisted, “Canceling Torah study is more dangerous than the coronavirus.” But he had a change of heart, even before testing positive.`\
 https://nytimes.com/2022/03/18/obituaries/rabbi-chaim-kanievsky-dea.html?searchResultPosition=1
 
