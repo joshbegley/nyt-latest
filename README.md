@@ -3,7 +3,7 @@
 https://nytimes.com/2022/03/19/world/polio-africa-covid-vaccinations.html?searchResultPosition=1
 
 **Trucker Protest Moved by More Than Opposition to Covid Mandates**\
-`The demonstrators camped outside Washington are rallying against Covid restrictions, but fueled by a far broader set of right-wing grievances.`\
+`The demonstrators camped outside Washington are rallying against Covid restrictions, but are fueled by a far broader set of right-wing grievances.`\
 https://nytimes.com/2022/03/19/us/politics/trucker-convoy-protest.html?searchResultPosition=2
 
 **Fighting Rages in Mariupol, as Russian Forces Make Gains**\
