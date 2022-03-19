@@ -8,7 +8,7 @@ https://nytimes.com/2022/03/19/us/politics/trucker-convoy-protest.html?searchRes
 
 **Fighting Rages in Mariupol, as Russian Forces Make Gains**\
 `Ukraine said it had temporarily lost contact with officials in the strategic port city, while Russia hammered military targets around the country.`\
-https://nytimes.com/2022/03/19/world/europe/fighting-rages-in-mariupol-as-russian-forces-make-gains.html?searchResultPosition=3
+https://nytimes.com/2022/03/19/world/europe/mariupol-russia-ukraine-war.html?searchResultPosition=3
 
 **For the U.S., a Tenuous Balance in Confronting Russia**\
 `Navigating between aiding Ukraine and avoiding an escalation with Moscow has led to a tangle of decisions and sometimes tortured distinctions over weapons and other elements of policy.`\
