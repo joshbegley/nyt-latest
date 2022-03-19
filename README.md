@@ -1,40 +1,40 @@
+**Man Posing as Students Convicted in $1.4 Million Loan Scheme**\
+`Elliott Sterling of Louisiana falsified nearly 200 financial aid applications and spent at least $250,000 of the money at casinos, prosecutors said.`\
+https://nytimes.com/2022/03/19/us/student-loan-fraud-baton-rouge.html?searchResultPosition=1
+
+**Russia claims to use a hypersonic missile in attack on arms depot in Ukraine.**\
+`The United States, Russia and China have all been racing to develop hypersonic weapons, which can maneuver in flight at more than five times the speed of sound.`\
+https://nytimes.com/2022/03/19/us/politics/russia-hypersonic-missile-attack-claim.html?searchResultPosition=2
+
 **Five African nations will begin mass polio vaccination campaigns amid the pandemic.**\
 `The spread of the coronavirus interrupted routine childhood vaccinations globally, opening a door to diseases and compounding the health challenges on the African continent.`\
-https://nytimes.com/2022/03/19/world/polio-africa-covid-vaccinations.html?searchResultPosition=1
+https://nytimes.com/2022/03/19/world/polio-africa-covid-vaccinations.html?searchResultPosition=3
 
 **Trucker Protest Moved by More Than Opposition to Covid Mandates**\
 `The demonstrators camped outside Washington are rallying against Covid restrictions, but are fueled by a far broader set of right-wing grievances.`\
-https://nytimes.com/2022/03/19/us/politics/trucker-convoy-protest.html?searchResultPosition=2
+https://nytimes.com/2022/03/19/us/politics/trucker-convoy-protest.html?searchResultPosition=4
 
 **Fighting Rages in Mariupol, as Russian Forces Make Gains**\
 `Ukraine said it had temporarily lost contact with officials in the strategic port city, while Russia hammered military targets around the country.`\
-https://nytimes.com/2022/03/19/world/europe/mariupol-russia-ukraine-war.html?searchResultPosition=3
+https://nytimes.com/2022/03/19/world/europe/mariupol-russia-ukraine-war.html?searchResultPosition=5
 
 **For the U.S., a Tenuous Balance in Confronting Russia**\
 `Navigating between aiding Ukraine and avoiding an escalation with Moscow has led to a tangle of decisions and sometimes tortured distinctions over weapons and other elements of policy.`\
-https://nytimes.com/2022/03/19/us/politics/us-ukraine-russia-escalation.html?searchResultPosition=4
+https://nytimes.com/2022/03/19/us/politics/us-ukraine-russia-escalation.html?searchResultPosition=6
 
 **L.S.U.’s Mess of a Season Ends Amid Coach’s Firing**\
 `The team played without its former head coach, Will Wade, who was fired along with an assistant coach amid allegations that he illegally paid recruits.`\
-https://nytimes.com/2022/03/19/sports/ncaabasketball/lsu-will-wade.html?searchResultPosition=5
+https://nytimes.com/2022/03/19/sports/ncaabasketball/lsu-will-wade.html?searchResultPosition=7
 
 **A General Fights to Destigmatize Mental Health Issues: ‘There’s a Shame if You Show Weakness’**\
 `The military has struggled to meet the mental health needs of troops, lawmakers and service members say.`\
-https://nytimes.com/2022/03/19/us/politics/military-mental-health.html?searchResultPosition=6
+https://nytimes.com/2022/03/19/us/politics/military-mental-health.html?searchResultPosition=8
 
 **Anti-Abortion Groups Once Portrayed Women as Victims. That’s Changing.**\
 `Fully enforcing abortion bans could mean going after women.`\
-https://nytimes.com/2022/03/19/opinion/abortion-laws-bans-missouri.html?searchResultPosition=7
+https://nytimes.com/2022/03/19/opinion/abortion-laws-bans-missouri.html?searchResultPosition=9
 
 **Underground Museum in Los Angeles Has Closed**\
 `One of the country’s leading venues for Black art, the museum announced this week that its two directors have departed and its doors have shuttered.`\
-https://nytimes.com/2022/03/19/arts/design/underground-museum-los-angeles.html?searchResultPosition=8
-
-**While Putin Shrinks, Zelensky Soars**\
-`Tiny, tiny Trump and cruel fool Putin.`\
-https://nytimes.com/2022/03/19/opinion/putin-zelensky-trump-heroism.html?searchResultPosition=9
-
-**Ukraine Reminds Georgia of Its Own War With Russia. That Creates a Dilemma.**\
-`Russia invaded Georgia in 2008. To many Georgians, that means the country should stand unequivocally with Ukraine. But the government is more cautious.`\
-https://nytimes.com/2022/03/19/world/europe/ukraine-georgia-war.html?searchResultPosition=10
+https://nytimes.com/2022/03/19/arts/design/underground-museum-los-angeles.html?searchResultPosition=10
 
