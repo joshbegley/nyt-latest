@@ -1,6 +1,6 @@
 **4 U.S. Marines Killed in Osprey Crash in Norway**\
 `The police said that the tilt-rotor aircraft, which was taking part in a NATO training exercise, crashed on Friday evening, killing all crew members aboard.`\
-https://nytimes.com/2022/03/19/world/europe/us-marines-crash-norway.html?searchResultPosition=1
+https://nytimes.com/2022/03/19/world/europe/us-marines-crash-norway-aircraft.html?searchResultPosition=1
 
 **Should You Turn Your Vacation Home Into a Vacation Rental?**\
 `The revenue is enticing, but the work can be daunting. We spoke with experts about the dos and don’ts of the short-term rental market.`\
