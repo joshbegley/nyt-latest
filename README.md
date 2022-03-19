@@ -1,5 +1,5 @@
 **Texas Wildfire Destroys Dozens of Homes**\
-`Four separate fires in central Texas, collectively called the Eastland Complex Fire, have left one person dead, burned more than 45,000 acres - including 50 homes - and forced hundreds to evacuate.`\
+`Four separate fires in central Texas, collectively called the Eastland Complex fire, have left one person dead, burned more than 45,000 acres - including 50 homes - and forced hundreds to evacuate.`\
 https://nytimes.com/video/us/100000008262130/texas-wildfire-eastland.html?searchResultPosition=1
 
 **Lawsuit Accuses Google of Bias Against Black Employees**\
