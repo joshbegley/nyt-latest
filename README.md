@@ -4,7 +4,7 @@ https://nytimes.com/2022/03/19/sunday-review/pandemic-school-education.html?sear
 
 **Zelensky Pleads to Parliament for More Help. What Can Canada Offer?**\
 `The address by President Volodymyr Zelensky of Ukraine was also a reminder that Canada might indirectly benefit from the crisis.`\
-https://nytimes.com/2022/03/19/world/canada/zelensky-pleads-to-parliament-for-more-help-what-can-canada-offer.html?searchResultPosition=2
+https://nytimes.com/2022/03/19/world/canada/zelensky-canada-parliament-ukraine-war.html?searchResultPosition=2
 
 **Putin Got Ukraine Completely Wrong**\
 ` In assuming history favors his invasion, he profoundly miscalculated.`\
