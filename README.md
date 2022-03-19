@@ -1,40 +1,40 @@
+**The Battle for Kyiv Looms as a Long and Bloody Conflict**\
+`Ukraine’s capital is the biggest prize of all for the Russian military. If Russia tries to take control, it could lead to one of the biggest urban conflicts since World War II.`\
+https://nytimes.com/2022/03/19/world/europe/kyiv-ukraine-russia-war.html?searchResultPosition=1
+
+**‘They Keep Killing Us’: Violence Rages in Sudan’s Darfur Two Decades On**\
+`The resurgence of ethnically motivated attacks in the country’s restive western region has led to enormous displacement and a growing humanitarian crisis.`\
+https://nytimes.com/2022/03/19/world/africa/sudan-darfur.html?searchResultPosition=2
+
+**Ukrainians Are Trickling Into the U.S. to Warm Welcomes**\
+`Pressure is building on the Biden administration to speed up admissions for Ukrainian refugees, but some are already making their way to the United States.`\
+https://nytimes.com/2022/03/19/us/ukrainian-refugees-sponsors-us.html?searchResultPosition=3
+
+**A Recipe for Success: Pitching, Depth and Service**\
+`Billy Eppler was an executive with the Yankees, signed Shohei Ohtani to the Angels and was (briefly) a player agent. He would rather talk about the Mets’ future.`\
+https://nytimes.com/2022/03/19/sports/baseball/billy-eppler-mets.html?searchResultPosition=4
+
+**There’s a Messaging Battle Right Now Over America’s Energy Future**\
+`Climate scientists and fossil fuel executives use the same terms when they talk about an energy transition. But they mean starkly different things.`\
+https://nytimes.com/2022/03/19/climate/energy-transition-climate-change.html?searchResultPosition=5
+
+**Need a Covid Test? Here’s One, and Take Another.**\
+`Once hard to find, at-home test kits are easily available, and you may have more than you need — for now.`\
+https://nytimes.com/2022/03/19/style/need-a-covid-test-heres-one-and-take-another.html?searchResultPosition=6
+
+**Can Travel Be a Force for Peace? This Tour Leader Thinks So.**\
+`‘We tend to think of travel in terms of distance, but I think travel is really a lifestyle, a state of mind,’ says Aziz Abu Sarah of Mejdi Tours, which explores both sides of longstanding conflicts in places like Belfast and Jerusalem.`\
+https://nytimes.com/2022/03/19/travel/tour-guide-conflict.html?searchResultPosition=7
+
+**‘Give the Children the Poems and Stories of Their Own People’**\
+`A reading list hints at the richness and breadth of African American children’s writing before Brown v. Board of Education.`\
+https://nytimes.com/article/childrens-books-black-authors.html?searchResultPosition=8
+
 **After Stumbles, Biden’s Health Secretary Seeks a Reboot**\
 `A lawyer by training, Xavier Becerra helped pass the Affordable Care Act as a congressman, but he is not steeped in infectious disease. His tenure will be defined by how he handles the fallout from Covid-19.`\
-https://nytimes.com/2022/03/19/us/politics/becerra-health-pandemic-biden.html?searchResultPosition=1
+https://nytimes.com/2022/03/19/us/politics/becerra-health-pandemic-biden.html?searchResultPosition=9
 
 **Utility Bills Piled Up During the Pandemic. Will Shut-offs Follow?**\
 `Moratoriums have expired on turning off utilities for customers who have failed to pay their bills, prompting fears that thousands could be left in the dark.`\
-https://nytimes.com/2022/03/19/nyregion/ny-utility-bill-moratorium.html?searchResultPosition=2
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/03/19/crosswords/spelling-bee-forum.html?searchResultPosition=3
-
-**Quotation of the Day: Prolonged Grief Is Declared a Mental Disorder**\
-`Quotation of the Day for Saturday, March 19, 2022.`\
-https://nytimes.com/2022/03/19/todayspaper/quotation-of-the-day-prolonged-grief-is-declared-a-mental-disorder.html?searchResultPosition=4
-
-**Corrections: March 19, 2022**\
-`Corrections that appeared in print on Saturday, March 19, 2022.`\
-https://nytimes.com/2022/03/19/pageoneplus/corrections-march-19-2022.html?searchResultPosition=5
-
-**Women’s N.C.A.A. Tournament: What to Watch on Day 2**\
-`If you’re looking for underdogs to root for, plenty of teams playing on Saturday are looking for their first taste of tournament glory.`\
-https://nytimes.com/2022/03/19/sports/ncaabasketball/womens-ncaa-basketball-tournament.html?searchResultPosition=6
-
-**N.C.A.A. Men’s Tournament: What to Watch in Round 2**\
-`The round of 32 begins on Saturday, and some first-round underdogs are back on the court.`\
-https://nytimes.com/2022/03/19/sports/ncaabasketball/march-madness-second-round.html?searchResultPosition=7
-
-**Los Angeles schools will stop requiring masks in an agreement with the teachers’ union.**\
-`The nation’s second-largest public school district, which had held out even after the state dropped its mandate, will continue to strongly recommend masks in classrooms.`\
-https://nytimes.com/2022/03/18/us/los-angeles-schools-mask-mandate.html?searchResultPosition=8
-
-**Assad Visits U.A.E. in Latest Sign of Re-engagement**\
-`It was the long-shunned Syrian leader’s first trip to an Arab country since his nation’s civil war erupted in 2011.`\
-https://nytimes.com/2022/03/18/world/middleeast/bashar-al-assad-syria-uae.html?searchResultPosition=9
-
-**Don Young, Alaska Congressman Who Was Dean of the House, Dies at 88**\
-`Mr. Young, who was first elected in 1973, during the Nixon administration, became the longest-serving Republican in House history in 2019.`\
-https://nytimes.com/2022/03/18/obituaries/don-young-obituary-alaska.html?searchResultPosition=10
+https://nytimes.com/2022/03/19/nyregion/ny-utility-bill-moratorium.html?searchResultPosition=10
 
