@@ -1,40 +1,40 @@
+**Russia Is Losing Tens of Thousands of Outward-Looking Young Professionals**\
+`Many of them have been streaming into Armenia, where they can work I.T. jobs remotely, at least for a while. At cafes in the capital, Yerevan, the exiles try to plot out new lives from their laptops.`\
+https://nytimes.com/2022/03/20/world/middleeast/ukraine-russia-armenia.html?searchResultPosition=1
+
+**Truth Is Another Front in Putin’s War**\
+`The Kremlin has used a barrage of increasingly outlandish falsehoods to prop up its overarching claim that the invasion of Ukraine is justified.`\
+https://nytimes.com/2022/03/20/world/asia/russia-putin-propaganda-media.html?searchResultPosition=2
+
+**No New Taxes, but Plenty to Fight Over in New York’s Looming Budget**\
+`Potential changes to the state’s bail laws, and revisiting mayoral control of schools in New York City, among other issues, await state leaders.`\
+https://nytimes.com/2022/03/20/nyregion/budget-hochul-ny.html?searchResultPosition=3
+
+**Can Ashish Jha, ‘A Comforting Voice,’ Tamp Down Covid’s Political Divide?**\
+`Dr. Jha, the new White House coronavirus response coordinator, has built a reputation as a gifted communicator, but there is much more to the job.`\
+https://nytimes.com/2022/03/20/us/politics/ashish-jha-covid-biden.html?searchResultPosition=4
+
+**Homes That Sold for Around $625,000**\
+`Recent residential sales in New York City and the region.`\
+https://nytimes.com/2022/03/20/realestate/homes-that-sold-for-around-625000.html?searchResultPosition=5
+
+**Russian Soldiers Took Their City, Then Their Homes**\
+`As Russian forces pushed toward Kyiv, they stormed an apartment complex in a nearby suburb and held residents hostage. Some of it was caught on camera.`\
+https://nytimes.com/2022/03/20/world/russian-soldiers-video-kyiv-invasion.html?searchResultPosition=6
+
+**On Cannabis in Oakland: The ‘Most Important Kind of Story That We Do’**\
+`As equity models continue to shape recreational cannabis markets, a Times reporter checked to see how one initiative has fared. Behind an article is a network of reporting.`\
+https://nytimes.com/2022/03/20/insider/on-cannabis-in-oakland-the-most-important-kind-of-story-that-we-do.html?searchResultPosition=7
+
+**Anne Tyler, Close-Up Artist, Zooms Out for a Novel of Family Rifts**\
+`In her 24th novel, “French Braid,” Tyler works on a bigger canvas than usual to explore the costs and rewards of family life amid secrets, distance and stifled ambition.`\
+https://nytimes.com/2022/03/20/books/review/french-braid-anne-tyler.html?searchResultPosition=8
+
 **‘I Was Chatting on the Phone With a Friend While Walking Through SoHo’**\
 `A new routine, a prescient gift and more reader tales of life in New York City during the pandemic in this week’s Metropolitan Diary.`\
-https://nytimes.com/2022/03/20/nyregion/metropolitan-diary.html?searchResultPosition=1
+https://nytimes.com/2022/03/20/nyregion/metropolitan-diary.html?searchResultPosition=9
 
 **Demand for This Toad’s Psychedelic Venom Is Booming. Some Warn That’s Bad for the Toad.**\
 `In a sign of unintended consequences of the psychedelic resurgence, scientists say that the Sonoran desert toad is at risk of population collapse.`\
-https://nytimes.com/2022/03/20/us/toad-venom-psychedelic.html?searchResultPosition=2
-
-**‘I Don’t Have the Right to Cry’: Ukrainian Women Share Their Stories of Escape**\
-`In war, things can change quickly. A New York Times reporter wanted to capture — in whatever blurry way one can in a war — this moment in this war, three weeks in.`\
-https://nytimes.com/2022/03/20/world/europe/ukraine-women-escape-stories.html?searchResultPosition=3
-
-**Can Eric Adams Cheerlead New Yorkers Past the Pandemic?**\
-`The mayor is singularly focused on bringing back New York City’s economy, now that coronavirus cases have dropped.`\
-https://nytimes.com/2022/03/20/nyregion/pandemic-recovery-masks-nyc.html?searchResultPosition=4
-
-**On Eve of Confirmation Hearings, G.O.P. Steps Up Attacks on Jackson**\
-`The White House and Democrats have pushed back hard against new claims that the judge was overly lenient in certain cases, calling them a smear.`\
-https://nytimes.com/2022/03/20/us/ketanji-brown-jackson-republicans.html?searchResultPosition=5
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/03/20/crosswords/spelling-bee-forum.html?searchResultPosition=6
-
-**Corrections: March 20, 2022**\
-`Corrections that appeared in print on Sunday, March 20, 2022.`\
-https://nytimes.com/2022/03/20/pageoneplus/corrections-march-20-2022.html?searchResultPosition=7
-
-**Quotation of the Day: U.S. Isn’t Ready if Covid Surges, Scientists Warn**\
-`Quotation of the Day for Sunday, March 20, 2022.`\
-https://nytimes.com/2022/03/20/todayspaper/quotation-of-the-day-us-isnt-ready-if-covid-surges-scientists-warn.html?searchResultPosition=8
-
-**N.C.A.A. Men’s Tournament: What to Watch as the Field Narrows to 16**\
-`Eight games on Sunday will determine the final contenders who will advance to the round of 16, which begins Thursday.`\
-https://nytimes.com/2022/03/20/sports/ncaabasketball/march-madness-sunday-watch.html?searchResultPosition=9
-
-**Former Paralympic Coach Comes ‘Full Circle’ After Losing a Leg**\
-`Jon Kreamelmeyer, whose right leg was amputated last year, prefers to see it as a transformation rather than a disability.`\
-https://nytimes.com/2022/03/20/sports/ski-amputee-paralympics.html?searchResultPosition=10
+https://nytimes.com/2022/03/20/us/toad-venom-psychedelic.html?searchResultPosition=10
 
