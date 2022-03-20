@@ -30,7 +30,7 @@ https://nytimes.com/2022/03/20/opinion/putin-zelensky-ukraine.html?searchResultP
 `Chuck O’Bannon Jr., a guard for Texas Christian, grew up as his uncle Ed O’Bannon became a symbol for college athletes pushing to earn money from their fame.`\
 https://nytimes.com/2022/03/20/sports/ncaabasketball/obannon-nil-athletes.html?searchResultPosition=8
 
-**Ashley Biden’s Diary Was Shown at Trump Fund-Raiser. Weeks Later, Project Veritas Called.**\
+**Ashley Biden’s Diary Was Shown at Trump Fund-Raiser. Weeks Later, Project Veritas Called Her.**\
 `The right-wing group’s deceptive call to the president’s daughter a month before Election Day is among the new details that show how the organization worked to expose personal information about the Biden family.`\
 https://nytimes.com/2022/03/20/us/politics/project-veritas-ashley-biden-diary.html?searchResultPosition=9
 
