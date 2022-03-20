@@ -26,8 +26,8 @@ https://nytimes.com/2022/03/19/world/europe/pope-constitution-vatican.html?searc
 `She was the rare woman to pick up surfing in the 1950s. More remarkably, she continued to ride the waves into her 80s.`\
 https://nytimes.com/2022/03/19/obituaries/janet-macpherson-dead.html?searchResultPosition=8
 
-**As Crews Battle Texas Wildfires, Officials Brace for More**\
-`Weather conditions forecast for Sunday could raise the risk of more fire danger.`\
+**Sorting Through the Destruction From Several Wildfires, Texans Brace for More**\
+`Weather conditions forecast for Sunday could raise the risk of additional threats.`\
 https://nytimes.com/2022/03/19/us/eastland-fires-texas.html?searchResultPosition=9
 
 **Overlooked No More: Louise Little, Activist and Mother of Malcolm X**\
