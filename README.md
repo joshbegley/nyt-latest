@@ -22,19 +22,19 @@ https://nytimes.com/2022/03/20/obituaries/julian-heicklen-dead.html?searchResult
 `Plus China’s new Covid strategy and concerns of world hunger.`\
 https://nytimes.com/2022/03/20/briefing/russia-bomb-mariupol-china-covid.html?searchResultPosition=6
 
+**Qatar’s Most Popular Sport Isn’t What You Think It Is**\
+`In a World Cup year, the tiny Gulf nation has become synonymous with soccer. But the game of choice for the South Asian workers who help keep the state running is cricket.`\
+https://nytimes.com/2022/03/20/sports/cricket/qatar-cricket.html?searchResultPosition=7
+
 **War Brings Out Solidarity and Defiance in Ukrainians Who Remain**\
 `About two million people have stayed in Kyiv, a population galvanized by a newfound unity and its refusal to be cowed by Russian invaders.`\
-https://nytimes.com/2022/03/20/world/europe/ukraine-war-kyiv.html?searchResultPosition=7
+https://nytimes.com/2022/03/20/world/europe/ukraine-war-kyiv.html?searchResultPosition=8
 
 **It’s Now Putin’s Plan B in Ukraine vs. Biden’s and Zelensky’s Plan A**\
 `Russia’s strategic choices could become increasingly frightening to the West.`\
-https://nytimes.com/2022/03/20/opinion/putin-zelensky-ukraine.html?searchResultPosition=8
+https://nytimes.com/2022/03/20/opinion/putin-zelensky-ukraine.html?searchResultPosition=9
 
 **A Younger O’Bannon Plays in a New College Sports Landscape**\
 `Chuck O’Bannon Jr., a guard for Texas Christian, grew up as his uncle Ed O’Bannon became a symbol for college athletes pushing to earn money from their fame.`\
-https://nytimes.com/2022/03/20/sports/ncaabasketball/obannon-nil-athletes.html?searchResultPosition=9
-
-**Ashley Biden’s Diary Was Shown at Trump Fund-Raiser. Weeks Later, Project Veritas Called Her.**\
-`The right-wing group’s deceptive call to the president’s daughter a month before Election Day is among the new details that show how the organization worked to expose personal information about the Biden family.`\
-https://nytimes.com/2022/03/20/us/politics/project-veritas-ashley-biden-diary.html?searchResultPosition=10
+https://nytimes.com/2022/03/20/sports/ncaabasketball/obannon-nil-athletes.html?searchResultPosition=10
 
