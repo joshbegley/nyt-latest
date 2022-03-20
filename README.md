@@ -34,7 +34,7 @@ https://nytimes.com/2022/03/20/movies/oscars-director-campion-spielberg.html?sea
 `The erotic thriller starring Michael Douglas and Sharon Stone was a big hit that set off protests in its day, and it’s easy to see why even now.`\
 https://nytimes.com/2022/03/20/movies/basic-instinct-sharon-stone.html?searchResultPosition=9
 
-**At Least 1 Dead and 24 Wounded at an Arkansas Car Show, Police Say**\
+**1 Dead and 24 Wounded in Shooting at an Arkansas Car Show**\
 `A motive for the shooting, on Saturday night, was unknown. One person was in custody, and the authorities were searching for others who might have opened fire, the police said.`\
 https://nytimes.com/2022/03/20/us/arkansas-car-show-shooting-dumas.html?searchResultPosition=10
 
