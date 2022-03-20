@@ -14,9 +14,9 @@ https://nytimes.com/2022/03/20/learning/whats-going-on-in-this-picture-march-21-
 `China is watching Russia’s invasion of Ukraine closely.`\
 https://nytimes.com/2022/03/20/briefing/taiwan-china-ukraine-russia.html?searchResultPosition=4
 
-**The Russia I Know Is Being Erased. What’s Coming Next Is Darker.**\
+**Russia Will Remake Itself. But It Has to Crumble First.**\
 `We will rebuild Russia, of course, slowly and patiently, just like the generation before us. But not before this one crumbles first.`\
-https://nytimes.com/2022/03/20/opinion/russia-whats-next.html?searchResultPosition=5
+https://nytimes.com/2022/03/20/opinion/russia-ukraine-soviet-union.html?searchResultPosition=5
 
 **Russia Is Losing Tens of Thousands of Outward-Looking Young Professionals**\
 `Many of them have been streaming into Armenia, where they can work I.T. jobs remotely, at least for a while. At cafes in the capital, Yerevan, the exiles try to plot out new lives from their laptops.`\
