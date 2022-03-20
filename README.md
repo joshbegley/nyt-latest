@@ -1,40 +1,40 @@
+**At Least 1 Dead and 24 Wounded at an Arkansas Car Show, Police Say**\
+`A motive for the shooting, on Saturday night, was unknown. One person was in custody, and the authorities were searching for others who might have opened fire, the police said.`\
+https://nytimes.com/2022/03/20/us/arkansas-car-show-shooting-dumas.html?searchResultPosition=1
+
 **‘CODA’ Wins Producers Guild Award, Clearing a Path to Best Picture**\
 `The prize is considered the best bellwether for the Oscars, though the Apple TV+ film still faces stiff competition from “The Power of the Dog.”`\
-https://nytimes.com/2022/03/20/movies/coda-producers-guild-awards.html?searchResultPosition=1
+https://nytimes.com/2022/03/20/movies/coda-producers-guild-awards.html?searchResultPosition=2
 
 **After the ‘Trailer,’ the Blue Jays Are Excited About Their ‘Movie’**\
 `By adding Matt Chapman, a team on the rise might have the best infield in baseball. The goal: Win the World Series.`\
-https://nytimes.com/2022/03/20/sports/baseball/toronto-blue-jays.html?searchResultPosition=2
+https://nytimes.com/2022/03/20/sports/baseball/toronto-blue-jays.html?searchResultPosition=3
 
 **What’s Going On in This Picture? | March 21, 2022**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
-https://nytimes.com/2022/03/20/learning/whats-going-on-in-this-picture-march-21-2022.html?searchResultPosition=3
+https://nytimes.com/2022/03/20/learning/whats-going-on-in-this-picture-march-21-2022.html?searchResultPosition=4
 
 **Is Taiwan Next?**\
 `China is watching Russia’s invasion of Ukraine closely.`\
-https://nytimes.com/2022/03/20/briefing/taiwan-china-ukraine-russia.html?searchResultPosition=4
+https://nytimes.com/2022/03/20/briefing/taiwan-china-ukraine-russia.html?searchResultPosition=5
 
 **Russia Will Remake Itself. But It Has to Crumble First.**\
 `We will rebuild Russia, of course, slowly and patiently, just like the generation before us. But not before this one crumbles first.`\
-https://nytimes.com/2022/03/20/opinion/russia-ukraine-soviet-union.html?searchResultPosition=5
+https://nytimes.com/2022/03/20/opinion/russia-ukraine-soviet-union.html?searchResultPosition=6
 
 **Russia Is Losing Tens of Thousands of Outward-Looking Young Professionals**\
 `Many of them have been streaming into Armenia, where they can work I.T. jobs remotely, at least for a while. At cafes in the capital, Yerevan, the exiles try to plot out new lives from their laptops.`\
-https://nytimes.com/2022/03/20/world/middleeast/ukraine-russia-armenia.html?searchResultPosition=6
+https://nytimes.com/2022/03/20/world/middleeast/ukraine-russia-armenia.html?searchResultPosition=7
 
 **As Omicron Surges and Economy Suffers, China Tweaks ‘Zero Covid’**\
 `Beijing is fine-tuning its virus response playbook to try to limit the cost of restrictions. But its goal of eliminating all infections could make that difficult.`\
-https://nytimes.com/2022/03/20/world/asia/china-zero-covid.html?searchResultPosition=7
+https://nytimes.com/2022/03/20/world/asia/china-zero-covid.html?searchResultPosition=8
 
 **Truth Is Another Front in Putin’s War**\
 `The Kremlin has used a barrage of increasingly outlandish falsehoods to prop up its overarching claim that the invasion of Ukraine is justified.`\
-https://nytimes.com/2022/03/20/world/asia/russia-putin-propaganda-media.html?searchResultPosition=8
+https://nytimes.com/2022/03/20/world/asia/russia-putin-propaganda-media.html?searchResultPosition=9
 
 **No New Taxes, but Plenty to Fight Over in New York’s Looming Budget**\
 `Potential changes to the state’s bail laws, and revisiting mayoral control of schools in New York City, among other issues, await state leaders.`\
-https://nytimes.com/2022/03/20/nyregion/budget-hochul-ny.html?searchResultPosition=9
-
-**Russian Soldiers Took Their City, Then Their Homes**\
-`As Russian forces pushed toward Kyiv, they stormed an apartment complex in a nearby suburb and held residents hostage. Some of it was caught on camera.`\
-https://nytimes.com/2022/03/20/world/europe/russian-soldiers-video-kyiv-invasion.html?searchResultPosition=10
+https://nytimes.com/2022/03/20/nyregion/budget-hochul-ny.html?searchResultPosition=10
 
