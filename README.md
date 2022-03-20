@@ -4,7 +4,7 @@ https://nytimes.com/2022/03/20/world/americas/brazil-telegram-bolsonaro.html?sea
 
 **Russia Broadens Mariupol Assault as Signs of Stalemate Take Shape**\
 `The battle for Mariupol has become a grim symbol of Russia’s superior firepower and its frustration in failing to subjugate Ukraine after more than three weeks of war.`\
-https://nytimes.com/2022/03/20/world/europe/ukraine-war-russia-mariupol.html?searchResultPosition=2
+https://nytimes.com/2022/03/20/world/europe/ukraine-russia-war-mariupol.html?searchResultPosition=2
 
 **Suitable for All Ages**\
 `John Ewbank and Jeff Chen are in perfect harmony.`\
