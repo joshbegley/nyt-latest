@@ -1,5 +1,5 @@
 **At Harvard, Ketanji Brown Jackson Fought Injustices but Kept a Steely Academic Focus**\
-`Summary`\
+`A look at Judge Ketanji Brown Jackson’s career as a Harvard student shows her early passion for justice, and her strong sense of identity.`\
 https://nytimes.com/2022/03/20/us/politics/ketanji-brown-jackson-harvard.html?searchResultPosition=1
 
 **Weather Conditions Continue to Fuel Texas Fires**\
