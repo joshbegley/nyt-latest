@@ -1,6 +1,6 @@
 **War Brings Out Solidarity and Defiance in Ukrainians Who Remain**\
 `About two million people have stayed in Kyiv, a population galvanized by a newfound unity and its refusal to be cowed by Russian invaders.`\
-https://nytimes.com/2022/03/20/world/europe/ukraine-war-kyiv-invasion-russia-putin.html?searchResultPosition=1
+https://nytimes.com/2022/03/20/world/europe/ukraine-war-kyiv.html?searchResultPosition=1
 
 **It’s Now Putin’s Plan B in Ukraine vs. Biden’s and Zelensky’s Plan A**\
 `Russia’s strategic choices could become increasingly frightening to the West.`\
