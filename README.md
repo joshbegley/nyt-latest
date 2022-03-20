@@ -34,7 +34,7 @@ https://nytimes.com/2022/03/20/world/asia/russia-putin-propaganda-media.html?sea
 `Potential changes to the state’s bail laws, and revisiting mayoral control of schools in New York City, among other issues, await state leaders.`\
 https://nytimes.com/2022/03/20/nyregion/budget-hochul-ny.html?searchResultPosition=9
 
-**Can Ashish Jha, ‘A Comforting Voice,’ Tamp Down Covid’s Political Divide?**\
-`Dr. Jha, the new White House coronavirus response coordinator, has built a reputation as a gifted communicator, but there is much more to the job.`\
-https://nytimes.com/2022/03/20/us/politics/ashish-jha-covid-biden.html?searchResultPosition=10
+**Russian Soldiers Took Their City, Then Their Homes**\
+`As Russian forces pushed toward Kyiv, they stormed an apartment complex in a nearby suburb and held residents hostage. Some of it was caught on camera.`\
+https://nytimes.com/2022/03/20/world/europe/russian-soldiers-video-kyiv-invasion.html?searchResultPosition=10
 
