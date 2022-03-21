@@ -3,7 +3,7 @@
 https://nytimes.com/2022/03/21/climate/climate-change-question.html?searchResultPosition=1
 
 **A Black homeowner is suing Wells Fargo, claiming discrimination.**\
-`A lawsuit filed in federal court in California says the bank’s lending algorithms draw on racist history to deny refinancings at a higher rate for Black borrowers`\
+`A lawsuit filed in federal court in California says the bank’s lending algorithms draw on racist history to deny refinancings at a higher rate for Black borrowers.`\
 https://nytimes.com/2022/03/21/business/wells-fargo-mortgages-discrimination-suit.html?searchResultPosition=2
 
 **As Big Shows of Russian Art End in Europe, Some Wonder What’s Next**\
