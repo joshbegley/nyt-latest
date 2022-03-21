@@ -32,7 +32,7 @@ https://nytimes.com/2022/03/21/arts/design/europe-russian-art-museums.html?searc
 
 **Republicans Air Grievances During Jackson Confirmation Hearing**\
 `In his opening statements during the confirmation hearing for Judge Ketanji Brown Jackson, Senator Lindsey Graham repeatedly referred to the Democrats’ attacks on Justice Brett M. Kavanaugh.`\
-https://nytimes.com/video/us/politics/100000008264347/ketanji-brown-jackson-lindsey-graham-supreme-court.html?searchResultPosition=9
+https://nytimes.com/video/embedded/us/politics/100000008264347/ketanji-brown-jackson-lindsey-graham-supreme-court.html?searchResultPosition=9
 
 **Decoding Jane Campion’s Joke About the Williams Sisters**\
 `Humor is always a commentary on what society finds normal.`\
