@@ -8,7 +8,7 @@ https://nytimes.com/2022/03/21/movies/academy-museum-jewish-founders.html?search
 
 **U.N. Chief Warns of ‘Catastrophe’ With Continued Use of Fossil Fuels**\
 `António Guterres, the United Nations secretary general, said instead of replacing Russian oil, gas and coal, nations must pivot to clean energy.`\
-https://nytimes.com/2022/03/21/climate/united-nations-climate-crisis.html?searchResultPosition=3
+https://nytimes.com/2022/03/21/climate/united-nations-fossil-fuels-climate-crisis.html?searchResultPosition=3
 
 **Judge Ketanji Brown Jackson’s Confirmation Hearings Begin**\
 `The Senate Judiciary Committee delivered opening statements in the confirmation hearings for President Biden’s nominee to the Supreme Court.`\
