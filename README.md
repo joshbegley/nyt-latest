@@ -1,6 +1,6 @@
 **China Eastern Airlines Plane Crashes in Guangxi**\
 `More than 130 people were on board, according to Chinese state media reports. There was no immediate information on casualties or why the plane went down.`\
-https://nytimes.com/2022/03/21/world/asia/china-eastern-airlines-crash.html?searchResultPosition=1
+https://nytimes.com/2022/03/21/world/asia/china-plane-crash.html?searchResultPosition=1
 
 **Lesson of the Day: ‘For Life Advice From a Grade Schooler, Press 2’**\
 `In this lesson, students learn how elementary students created a hotline for those seeking cheerful advice during trying times. Then, they find their own ways to help others who might need a little joy.`\
