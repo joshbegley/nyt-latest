@@ -6,7 +6,7 @@ https://nytimes.com/2022/03/21/todayspaper/quotation-of-the-day-i-dont-want-to-l
 `No corrections appeared in print on Monday, March 21, 2022.`\
 https://nytimes.com/2022/03/21/pageoneplus/no-corrections-march-21-2022.html?searchResultPosition=2
 
-**The N.C.A.A. Tournament’s Sweet 16 is Open for the Taking**\
+**The N.C.A.A. Tournament’s Sweet 16 Is Open for the Taking**\
 `Even with some surprises, all the teams left have good cases to make that they can make a run toward the Final Four.`\
 https://nytimes.com/2022/03/21/sports/ncaabasketball/march-madness-sweet-16.html?searchResultPosition=3
 
