@@ -2,7 +2,7 @@
 `Men have long worn necklaces, but the newest styles are subtler — and seemingly meant to make the mind wander.`\
 https://nytimes.com/2022/03/21/t-magazine/men-necklaces-pendants-jewelry.html?searchResultPosition=1
 
-**The plane descended more than 20,000 feet in just over a minute.**\
+**The China Eastern plane descended more than 20,000 feet in just over a minute.**\
 `An hour after it took off, the flight turned horribly wrong, according to data from Flightradar24.`\
 https://nytimes.com/2022/03/21/world/asia/flight-path-eastern-airlines.html?searchResultPosition=2
 
