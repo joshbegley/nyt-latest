@@ -6,8 +6,8 @@ https://nytimes.com/2022/03/21/arts/design/christies-andy-warhol-marilyn-monroe.
 `The upcoming cookbook and memoir by Ms. Schmitt, who died this month at 90, weaves recipes in with memories of a full life.`\
 https://nytimes.com/2022/03/21/dining/sally-schmitt-six-california-kitchens.html?searchResultPosition=2
 
-**Fed Chair Powell says a more rapid removal of economic support is possible.**\
-`The Fed chair, voicing worry about inflation expectations, declared the central bank ready to do what it takes to control rapid price increases.`\
+**Powell Says Fed Could Raise Rates More Quickly to Tame Inflation**\
+`Jerome H. Powell, the chair of the Federal Reserve, voiced worry about inflation expectations and declared the central bank ready to do what it takes to control rapid price increases.`\
 https://nytimes.com/2022/03/21/business/economy/powell-fed-chair.html?searchResultPosition=3
 
 **Dress Your Spring Salads With Zeal, a Ramp Vinegar**\
