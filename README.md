@@ -20,7 +20,7 @@ https://nytimes.com/2022/03/21/briefing/russia-ukraine-war-briefing-mariupol-nuk
 
 **As Mariupol Is Bombed and Besieged, Those Trapped Fight to Survive**\
 `For three weeks, the Ukrainian port city has been without water, heat, electricity and all communication under a merciless Russian assault. Here’s what its residents have been enduring.`\
-https://nytimes.com/2022/03/21/world/europe/ukraine-mariupol-siege-russia-putin-war.html?searchResultPosition=6
+https://nytimes.com/2022/03/21/world/europe/ukraine-mariupol-russia-war.html?searchResultPosition=6
 
 **Senate Candidate’s Ex-Wife Accuses Him of Abuse**\
 `Sheena Greitens said in an affidavit that her former husband, Eric Greitens, knocked her down during an argument in 2018. Mr. Greitens, a former governor of Missouri, denied the accusation.`\
