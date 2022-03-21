@@ -4,7 +4,7 @@ https://nytimes.com/2022/03/21/world/europe/biden-russia-cyberattack.html?search
 
 **Russia’s Loss of Rocket Launch Business Becomes SpaceX’s Gain**\
 `OneWeb, a British satellite internet company, turned to SpaceX’s rockets after canceling launches with Russia’s Soyuz vehicle over the invasion of Ukraine.`\
-https://nytimes.com/2022/03/21/science/spacex-russia-oneweb.html?searchResultPosition=2
+https://nytimes.com/2022/03/21/science/russia-spacex-oneweb.html?searchResultPosition=2
 
 **Jackson vows in her opening remarks to be an independent judge who knows her ‘limited role.’**\
 `Judge Ketanji Brown Jackson committed to adopt a “neutral stance” if confirmed to the Supreme Court and promised to continue to produce expansive, “transparent” opinions.`\
