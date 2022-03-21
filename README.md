@@ -26,15 +26,15 @@ https://nytimes.com/2022/03/21/us/politics/ketanji-brown-jackson-kavanaugh.html?
 `Military experts say a new generation of nuclear weapons has raised the risk that Mr. Putin might introduce less destructive atomic arms into the battlefields in and around Ukraine.`\
 https://nytimes.com/2022/03/21/science/russia-nuclear-ukraine.html?searchResultPosition=7
 
-**Walls, Dreams and Genocide: Zelensky Invokes History to Rally Support**\
-`The Ukrainian leader, a former actor, has invoked emotional moments in the history of nations from which he is hoping to secure support. We look at five of his recent speeches.`\
-https://nytimes.com/2022/03/21/world/europe/zelensky-speeches-ukraine-russia.html?searchResultPosition=8
-
 **An E.R. Memoir Conveys Hectic Work, Empathy and Outrage**\
 `In “The Emergency,” Thomas Fisher writes about his work at a Chicago hospital and the inequities of American health care.`\
-https://nytimes.com/2022/03/21/books/review-emergency-chicago-er-thomas-fisher.html?searchResultPosition=9
+https://nytimes.com/2022/03/21/books/review-emergency-chicago-er-thomas-fisher.html?searchResultPosition=8
 
 **W.T.O. chief calls for deeper global trade to address supply chain disruptions.**\
 `Ngozi Okonjo-Iweala, the World Trade Organization’s director general, said bringing more countries into international production networks could make supply chains more resilient.`\
-https://nytimes.com/2022/03/21/business/world-trade-organization-supply-chains.html?searchResultPosition=10
+https://nytimes.com/2022/03/21/business/world-trade-organization-supply-chains.html?searchResultPosition=9
+
+**In Tunisia, an Authoritarian’s Reform Plan Meets With Skepticism**\
+`President Kais Saied, who has amassed nearly absolute power, launched a consultation he said would lead to a new constitution and elections. But the process has been shunned by many.`\
+https://nytimes.com/2022/03/21/world/middleeast/tunisia-constitution-consultation.html?searchResultPosition=10
 
