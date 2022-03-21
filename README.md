@@ -12,7 +12,7 @@ https://nytimes.com/2022/03/21/reader-center/nonprofit-wrongdoing.html?searchRes
 
 **Taylor Fritz and Iga Swiatek Break Through at Indian Wells**\
 `The tournament has been a launching pad for young players recently, including Naomi Osaka and Bianca Andreescu, who went on to win the U.S. Open in the same year.`\
-https://nytimes.com/2022/03/21/sports/tennis/womens-final-indian-wells.html?searchResultPosition=4
+https://nytimes.com/2022/03/21/sports/tennis/indian-wells-finals.html?searchResultPosition=4
 
 **Video Shows Aftermath of Passenger Plane Crash in Southern China**\
 `A Boeing 737-800 passenger plane operated by China Eastern Airlines carrying more than 130 people went down in a mountainous area of the Guangxi region.`\
