@@ -24,7 +24,7 @@ https://nytimes.com/2022/03/21/world/europe/ukraine-mariupol-siege-russia-putin-
 
 **Senate Candidate’s Ex-Wife Accuses Him of Abuse**\
 `Sheena Greitens said in an affidavit that her former husband, Eric Greitens, knocked her down during an argument in 2018. Mr. Greitens, a former governor of Missouri, denied the accusation.`\
-https://nytimes.com/2022/03/21/us/politics/eric-greitens-missouri-abuse-ex-wife.html?searchResultPosition=7
+https://nytimes.com/2022/03/21/us/politics/missouri-eric-greitens-wife.html?searchResultPosition=7
 
 **Freed British-Iranian Urges Iran to Release Others Held Unjustly**\
 `Speaking from Britain after six years of detention in Tehran, Nazanin Zaghari-Ratcliffe pleaded for others held captive by Iran to be allowed to leave.`\
