@@ -18,8 +18,8 @@ https://nytimes.com/2022/03/21/sports/ncaabasketball/march-madness-sweet-16.html
 `Russia pummels Mariupol.`\
 https://nytimes.com/2022/03/21/briefing/mariupol-ukraine-russia-china-covid.html?searchResultPosition=5
 
-**Hong Kong will lift its ban on flights from nine countries.**\
-`Carrie Lam, the chief executive, announced the measures on Monday. She also reduced the time for quarantine to seven days from 14.`\
+**Hong Kong will lift its bans on flights and cut quarantine times.**\
+`Carrie Lam, the chief executive, announced the measures on Monday, as experts said the worst of the latest wave might have passed.`\
 https://nytimes.com/2022/03/21/world/asia/hong-kong-flight-bans.html?searchResultPosition=6
 
 **N.C.A.A. Women’s Tournament: What to Watch as the Field Narrows to 16**\
