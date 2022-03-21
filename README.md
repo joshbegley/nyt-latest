@@ -1,6 +1,6 @@
 **Plan for Amazon Headquarters in South Africa in Peril After Court Order**\
 `A judge ordered construction of the development in Cape Town to be halted, saying that the developer had not properly consulted Indigenous South Africans.`\
-https://nytimes.com/2022/03/21/us/amazon-headquarters-south-africa-court-order.html?searchResultPosition=1
+https://nytimes.com/2022/03/21/us/amazon-south-africa.html?searchResultPosition=1
 
 **Christie’s to Offer a Marilyn Monroe by Warhol for an Estimated $200 Million**\
 `Proceeds from the sale, in May, of “Shot Sage Blue Marilyn,” will benefit the Thomas and Doris Ammann Foundation Zurich.`\
