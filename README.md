@@ -15,7 +15,7 @@ https://nytimes.com/interactive/2022/03/20/business/saigon-social-coronavirus-pa
 https://nytimes.com/2022/03/20/us/politics/us-rohingya-genocide.html?searchResultPosition=4
 
 **Justice Clarence Thomas Hospitalized With Flulike Symptoms, Court Says**\
-`Justice Thomas, who was hospitalized on Friday, was being treated with intravenous antibiotics and was expected to be released in a day or two, the court said on Sunday.`\
+`Justice Thomas, who has been hospitalized since Friday, is being treated with intravenous antibiotics and is expected to be released in a day or two, the Supreme Court said on Sunday.`\
 https://nytimes.com/2022/03/20/us/politics/clarence-thomas-hospitalized.html?searchResultPosition=5
 
 **At Harvard, Ketanji Brown Jackson Fought Injustices but Kept a Steely Academic Focus**\
