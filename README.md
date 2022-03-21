@@ -19,7 +19,7 @@ https://nytimes.com/2022/03/20/us/politics/clarence-thomas-hospitalized.html?sea
 https://nytimes.com/2022/03/20/us/politics/ketanji-brown-jackson-harvard.html?searchResultPosition=5
 
 **Weather Conditions Continue to Fuel Texas Fires**\
-`As the Eastland Complex kept burning in central Texas, a new fire emerged on Sunday.`\
+`Two firefighters were injured fighting a blaze on Sunday, and more evacuations were ordered.`\
 https://nytimes.com/2022/03/20/us/wildfires-texas-eastland-complex.html?searchResultPosition=6
 
 **Brazil Lifts Its Ban on Telegram After Two Days**\
