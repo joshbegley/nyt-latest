@@ -22,8 +22,8 @@ https://nytimes.com/2022/03/21/business/sec-swaps-rules.html?searchResultPositio
 `For many reasons, these varieties have either been unfairly dismissed or are little known outside their home regions. But they make joyful wines.`\
 https://nytimes.com/2022/03/21/dining/drinks/wine-grape-varieties.html?searchResultPosition=6
 
-**S.E.C. to consider climate disclosure rule at Monday meeting.**\
-`The much-anticipated rule, which would require companies to report the climate-related impact of their businesses, could be brought to a vote.`\
+**The S.E.C. moves closer to enacting a sweeping climate disclosure rule.**\
+`The much-anticipated rule would require companies to report the climate-related impact of their businesses.`\
 https://nytimes.com/2022/03/21/business/sec-climate-disclosure-rule.html?searchResultPosition=7
 
 **Watch Live: Hearings Begin for Biden’s Supreme Court Nominee**\
