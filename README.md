@@ -8,7 +8,7 @@ https://nytimes.com/2022/03/22/world/europe/russia-ukraine-pentagon.html?searchR
 
 **A Dance Company Looks to the Future With a New Artistic Team**\
 `The choreographer Nai-Ni Chen died in December. Now her company takes its next steps, beginning with a season at New York Live Arts.`\
-https://nytimes.com/2022/03/22/arts/dance/a-dance-company-looks-to-the-future-with-a-new-artistic-team.html?searchResultPosition=3
+https://nytimes.com/2022/03/22/arts/dance/nai-ni-chen-artistic-team.html?searchResultPosition=3
 
 **No Survivors Found in China Eastern Plane Crash**\
 `Investigators were still working to determine what caused the China Eastern Airlines flight carrying 132 people to crash in southern China, officials said.`\
