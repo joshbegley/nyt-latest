@@ -1,4 +1,4 @@
-**Biden to Ask Allies to Apply More Aggressive Sanctions on Russia**\
+**Biden to ask allies to apply more aggressive sanctions on Russia.**\
 `A summit meeting in Brussels is expected to focus on ways to put added pressure on Moscow.`\
 https://nytimes.com/2022/03/22/world/europe/biden-russia-sanctions-ukraine.html?searchResultPosition=1
 
