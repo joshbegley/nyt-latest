@@ -3,7 +3,7 @@
 https://nytimes.com/2022/03/22/us/politics/cruz-jackson-antiracist-baby.html?searchResultPosition=1
 
 **A Starbucks store in Seattle, the company’s hometown, votes to unionize.**\
-`The 9-0 tally was the seventh union victory in a push that began last year.`\
+`The 9-0 tally was the seventh U.S. union victory in a push that began last year.`\
 https://nytimes.com/2022/03/22/business/starbucks-union-seattle.html?searchResultPosition=2
 
 **Games ads mini overlay**\
