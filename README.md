@@ -30,11 +30,11 @@ https://nytimes.com/2022/03/22/sports/ncaabasketball/ncaa-womens-tournament-swee
 `Judge Ketanji Brown Jackson will answer her first questions from senators on Tuesday.`\
 https://nytimes.com/2022/03/22/us/politics/ketanji-brown-jackson-confirmation-hearing-day-2.html?searchResultPosition=8
 
+**Zelensky condemns Russian attacks on protesters and children.**\
+`‘It was a day of difficult events,’ the Ukrainian president said in a video address.`\
+https://nytimes.com/2022/03/21/world/europe/zelensky-speech-russia-ukraine.html?searchResultPosition=9
+
 **Vaccination rates have stalled with another potential uptick coming.**\
 `The U.S. booster campaign has stalled, with about half of eligible adults still not boosted.`\
-https://nytimes.com/2022/03/21/us/vaccination-rates-covid-cases.html?searchResultPosition=9
-
-**Echoing Conservative Grievances, Blackburn Miscasts Jackson’s Views**\
-`Senator Marsha Blackburn took quotes out of context as she leveraged a blistering attack against Judge Ketanji Brown Jackson.`\
-https://nytimes.com/2022/03/21/us/politics/blackburn-jackson.html?searchResultPosition=10
+https://nytimes.com/2022/03/21/us/vaccination-rates-covid-cases.html?searchResultPosition=10
 
