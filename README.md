@@ -36,5 +36,5 @@ https://nytimes.com/2022/03/22/theater/broadway-box-office-grosses.html?searchRe
 
 **Yvan Colonna, Corsican Jailed for French Prefect’s Murder, Dies at 61**\
 `A folk hero for Corsica’s nationalist movement, he evaded a long manhunt but was finally arrested in 2003. He died shortly after being brutally attacked in prison.`\
-https://nytimes.com/2022/03/22/world/europe/corsica-france-prison-death.html?searchResultPosition=10
+https://nytimes.com/2022/03/22/world/europe/yvan-colonna-dead.html?searchResultPosition=10
 
