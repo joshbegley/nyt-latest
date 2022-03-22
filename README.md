@@ -6,7 +6,7 @@ https://nytimes.com/2022/03/22/world/europe/italy-workers-strike-1972.html?searc
 `Search workers recovered identity cards, cellphones and purses from the crash of the Boeing plane that carried more than 130 people. But no survivors have been found.`\
 https://nytimes.com/2022/03/22/world/asia/china-eastern-boeing-crash.html?searchResultPosition=2
 
-**Gurkha Veterans Fight a Colonial-era Legacy Still Shaping Nepal**\
+**Gurkha Veterans Fight a Colonial-Era Legacy Still Shaping Nepal**\
 `Nepal’s best and brightest have been recruited while young to fight for Britain for over 200 years, with their pay and pensions a fraction of their fellow British soldiers’ for much of that time.`\
 https://nytimes.com/2022/03/22/world/asia/nepal-gurkha-veteran-protests.html?searchResultPosition=3
 
