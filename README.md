@@ -2,7 +2,7 @@
 `All three countries are navigating fraught relationships with the Biden administration amid the quickly changing geopolitical landscape precipitated by Russia’s war on Ukraine.`\
 https://nytimes.com/2022/03/22/world/middleeast/egypt-israel-united-arab-emirates-summit.html?searchResultPosition=1
 
-**Amanda Bynes, Former Child Star, Released From Conservatorship**\
+**Amanda Bynes, Former Child Star, Is Released From Conservatorship**\
 `A judge in California freed the former Nickelodeon star from the arrangement that had governed her life after highly publicized struggles with substance abuse.`\
 https://nytimes.com/2022/03/22/arts/television/amanda-bynes-conservatorship.html?searchResultPosition=2
 
