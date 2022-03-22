@@ -18,9 +18,9 @@ https://nytimes.com/interactive/2022/03/22/learning/22Student-News-Quiz.html?sea
 `The S.E.C. has proposed sweeping new rules on company climate disclosures.`\
 https://nytimes.com/2022/03/22/business/dealbook/sec-climate-rules.html?searchResultPosition=5
 
-**Aleksei Navalny Convicted of Fraud by Russian Court**\
-`Despite already being behind bars, the fiery opposition leader has been urging Russians to protest the war in Ukraine, making him even more of a liability for President Vladimir V. Putin.`\
-https://nytimes.com/2022/03/22/world/europe/navalny-prison.html?searchResultPosition=6
+**Aleksei Navalny, Fiery Putin Critic, Given 9 More Years in Prison**\
+`Despite already being behind bars, Mr. Navalny has been urging Russians to protest the war in Ukraine, making him even more of a liability for the country’s president.`\
+https://nytimes.com/2022/03/22/world/europe/russia-navalny-prison.html?searchResultPosition=6
 
 **Up Next for Jessie Buckley: More Movies, and Music**\
 `This summer, the multitalented actress and Oscar nominee will release an album with Bernard Butler.`\
