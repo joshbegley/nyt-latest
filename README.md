@@ -23,7 +23,7 @@ https://nytimes.com/2022/03/22/podcasts/the-daily/russian-oligarchs-sanctions-uk
 https://nytimes.com/2022/03/22/podcasts/transcript-ezra-klein-interviews-daniel-yergin.html?searchResultPosition=6
 
 **When Reagan Said Gay**\
-`In the 1970s the Republican Party tried to muzzle gay identity `\
+`In the 1970s the Republican Party tried to muzzle gay identity. `\
 https://nytimes.com/2022/03/22/opinion/when-reagan-said-gay.html?searchResultPosition=7
 
 **They Earn Tens of Thousands by Turning in Idling Trucks**\
