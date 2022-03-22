@@ -1,8 +1,8 @@
-**Corrections: March 23, 2022**\
-`Corrections that appeared in print on Wednesday, March 23, 2022.`\
-https://nytimes.com/2022/03/22/pageoneplus/corrections-march-23-2022.html?searchResultPosition=9
+**Project Veritas Says Justice Dept. Secretly Seized Its Emails**\
+`In a court filing, the conservative group assailed prosecutors for concealing the action in a proceeding from the investigation of how it acquired Ashley Biden’s diary.`\
+https://nytimes.com/2022/03/22/us/politics/project-veritas-emails.html?searchResultPosition=1
 
-**Rival Sept. 11 Victims Near Potential Deal to Divide Afghan Central Bank Assets**\
-`But another group opposes it. A court has not yet decided whether $3.5 billion in Afghan central bank funds can be used to pay Taliban debts.`\
-https://nytimes.com/2022/03/22/us/politics/911-families-taliban-funds.html?searchResultPosition=10
+**Pledging to ‘Stay in My Lane,’ Jackson Defends Her Record**\
+`As Republicans suggested she was soft on crime, particularly when it came to child sexual abuse, and an extremist on matters of race, the Supreme Court nominee pushed back.`\
+https://nytimes.com/2022/03/22/us/politics/ketanji-brown-jackson-hearing-republicans.html?searchResultPosition=2
 
