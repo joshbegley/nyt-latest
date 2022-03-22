@@ -1,6 +1,6 @@
 **Snowboarding Coach Faces New Accusations of Sexual Misconduct**\
 `Peter Foley, already accused of coercing athletes into posing for nude photos, now faces scrutiny from more women. He has been relieved of his duties as a U.S. Olympic coach.`\
-https://nytimes.com/2022/03/22/sports/olympics/snowboarding-coach-sexual-misconduct.html?searchResultPosition=1
+https://nytimes.com/2022/03/22/sports/olympics/peter-foley-sexual-misconduct.html?searchResultPosition=1
 
 **Virginia, the first state to set Covid workplace rules, drops them.**\
 `The rules required employers to mandate indoor masking in higher-risk areas and to report Covid outbreaks to the state’s Department of Health.`\
