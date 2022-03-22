@@ -14,27 +14,27 @@ https://nytimes.com/2022/03/22/us/ketanji-brown-jackson-judicial-philosophy.html
 `A new pact would strengthen the world’s antidemocratic axis. `\
 https://nytimes.com/2022/03/22/opinion/iran-nuclear-deal-biden.html?searchResultPosition=4
 
-**A judge on New York State’s highest court is unvaccinated and could be removed from the bench.**\
-`Since September, court employees have had the chance to either get vaccinated or apply for a religious or medical exemption. Monday marked the end of the review process for those applications.`\
-https://nytimes.com/2022/03/22/nyregion/jenny-rivera-unvaccinated.html?searchResultPosition=5
-
 **Your Tuesday Evening Briefing**\
 `Here’s what you need to know at the end of the day.`\
-https://nytimes.com/2022/03/22/briefing/your-tuesday-evening-briefing.html?searchResultPosition=6
+https://nytimes.com/2022/03/22/briefing/your-tuesday-evening-briefing.html?searchResultPosition=5
 
 **The U.S. scales back metal tariffs as Britain lifts duties on American whiskey and jeans.**\
 `The step, announced as U.S. and British officials met in Baltimore, removed trade barriers erected under former President Donald J. Trump.`\
-https://nytimes.com/2022/03/22/business/us-britain-trade.html?searchResultPosition=7
+https://nytimes.com/2022/03/22/business/us-britain-trade.html?searchResultPosition=6
 
 **‘Music Man’ Sets Box Office Record for a Reopened Broadway**\
 `The Hugh Jackman-led revival has 76 trombones, 110 cornets, and took in $3.5 million in ticket sales last week, more than any show since the pandemic began.`\
-https://nytimes.com/2022/03/22/theater/broadway-box-office-grosses.html?searchResultPosition=8
+https://nytimes.com/2022/03/22/theater/broadway-box-office-grosses.html?searchResultPosition=7
 
 **Yvan Colonna, Corsican Jailed for French Prefect’s Murder, Dies at 61**\
 `A folk hero for Corsica’s nationalist movement, he evaded a long manhunt but was finally arrested in 2003. He died shortly after being brutally attacked in prison.`\
-https://nytimes.com/2022/03/22/world/europe/corsica-france-prison-death.html?searchResultPosition=9
+https://nytimes.com/2022/03/22/world/europe/corsica-france-prison-death.html?searchResultPosition=8
 
 **Biden Heads to Europe Seeking to Bolster Russian Sanctions and Maintain Unity With Allies**\
 `A chief goal of the meetings this week is to show that Russia’s invasion of Ukraine will not lead to sniping and disagreement among the United States and its allies.`\
-https://nytimes.com/2022/03/22/us/politics/biden-ukraine-europe-trip.html?searchResultPosition=10
+https://nytimes.com/2022/03/22/us/politics/biden-ukraine-europe-trip.html?searchResultPosition=9
+
+**Snowboarding Coach Faces New Accusations of Sexual Misconduct**\
+`Peter Foley, already accused of coercing athletes into posing for nude photos, now faces scrutiny from more women. He has been relieved of his duties as a U.S. Olympic coach.`\
+https://nytimes.com/2022/03/22/sports/olympics/peter-foley-sexual-misconduct.html?searchResultPosition=10
 
