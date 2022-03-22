@@ -10,7 +10,7 @@ https://nytimes.com/2022/03/22/sports/olympics/peter-foley-sexual-misconduct.htm
 `The rules required employers to mandate indoor masking in higher-risk areas and to report Covid outbreaks to the state’s Department of Health.`\
 https://nytimes.com/2022/03/22/business/virginia-covid-workplace-safety-rules.html?searchResultPosition=3
 
-**What’s the Deal with Masks on Planes?**\
+**What’s the Deal With Masks on Planes?**\
 `Should mask rules on planes be lifted? Several British airlines have just suspended the requirement, but in the United States, the mandate, to be reviewed next month, remains. Here’s a look at where things stand.`\
 https://nytimes.com/2022/03/22/travel/masks-covid-airplanes-airports.html?searchResultPosition=4
 
