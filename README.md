@@ -19,7 +19,7 @@ https://nytimes.com/2022/03/23/movies/bronco-bullfrog-barney-platts-mills.html?s
 https://nytimes.com/2022/03/23/opinion/letters/ketanji-brown-jackson-supreme-court.html?searchResultPosition=5
 
 **Israel, Fearing Russian Reaction, Blocked Spyware for Ukraine and Estonia**\
-`The Eastern European countries had sought to buy Pegasus, spyware made by the Israeli firm NSO, to carry out intelligence operations against Russia.`\
+`The Eastern European countries had sought to buy Pegasus, spyware made by an Israeli firm, to carry out intelligence operations against Russia, according to people with knowledge of the discussions.`\
 https://nytimes.com/2022/03/23/us/politics/pegasus-israel-ukraine-russia.html?searchResultPosition=6
 
 **Vaccine Clinics Return to N.Y.C. Public Schools. Will They Work?**\
