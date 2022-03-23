@@ -24,7 +24,7 @@ https://nytimes.com/interactive/2022/03/23/business/media/liverpool-streaming-fi
 
 **Dutch Publisher of ‘The Betrayal of Anne Frank’ Halts Publication**\
 `The move came after five historians called into question the findings of the book, in which a “cold case” team sought to answer a long-running mystery.`\
-https://nytimes.com/2022/03/23/world/europe/anne-frank-dutch-publisher.html?searchResultPosition=7
+https://nytimes.com/2022/03/23/world/europe/anne-frank-informant-ambo-anthos.html?searchResultPosition=7
 
 **House Hunting in Finland: On the Baltic Sea in Greater Helsinki**\
 `Demand for homes exceeds supply in the country that set a record for residential property transactions in 2021.`\
