@@ -26,15 +26,15 @@ https://nytimes.com/2022/03/23/us/what-does-dont-say-gay-actually-say.html?searc
 `Michel van der Aa’s work, a seamless interweaving of opera, film and motion-capture performance, arrives at the Park Avenue Armory.`\
 https://nytimes.com/2022/03/23/arts/music/upload-armory-review.html?searchResultPosition=7
 
-**A top virologist who visited a Wuhan market in 2014 said he found it to be a ‘pandemic waiting to happen.’**\
-`By Carl Zimmer`\
-https://nytimes.com/live/2022/03/23/world/covid-19-mandates-cases-vaccine/wuhan-pandemic-edward-holmes?searchResultPosition=8
-
 **Review: Ronald K. Brown’s Messages of Resilience**\
 `In a program at the Joyce Theater, Brown’s company, Evidence, presented three dances that aren’t new but seem newly meaningful.`\
-https://nytimes.com/2022/03/23/arts/dance/review-ronald-k-browns-messages-of-resilience.html?searchResultPosition=9
+https://nytimes.com/2022/03/23/arts/dance/review-ronald-k-browns-messages-of-resilience.html?searchResultPosition=8
 
 **South Africa Eases Some Covid-19 Restrictions**\
 `President Cyril Ramaphosa announced that South Africa would begin lifting Covid-19 restrictions by relaxing capacity limits for venues and certain events, though an indoor mask mandate would remain in place.`\
-https://nytimes.com/video/world/africa/100000008267990/covid-19-mandates-south-africa.html?searchResultPosition=10
+https://nytimes.com/video/world/africa/100000008267990/covid-19-mandates-south-africa.html?searchResultPosition=9
+
+**Supreme Court Sides With Republicans in Case on Wisconsin Redistricting**\
+`The justices sent a case on legislative maps back to a state court for another look, but they refused a request to block the state’s congressional maps.`\
+https://nytimes.com/2022/03/23/us/politics/supreme-court-wisconsin-redistricting.html?searchResultPosition=10
 
