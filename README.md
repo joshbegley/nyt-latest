@@ -8,7 +8,7 @@ https://nytimes.com/2022/03/23/opinion/senate-primary-ohio-pennsylvania.html?sea
 
 **Renault, the biggest Western automaker in Russia, halts operations there.**\
 `The French company is a partner of Russia’s top car manufacturer.`\
-https://nytimes.com/2022/03/23/business/renault-the-biggest-western-automaker-in-russia-halts-operations-there.html?searchResultPosition=3
+https://nytimes.com/2022/03/23/business/renault-russia.html?searchResultPosition=3
 
 **The Democrat the White House Fears the Most**\
 `Senator Robert Menendez exerts a powerful influence over U.S. foreign policy, but an uneasy one. A nuclear deal with Iran could strain ties even further.`\
