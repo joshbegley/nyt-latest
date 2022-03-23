@@ -1,40 +1,40 @@
+**Biden’s Europe Sanction Push**\
+`In Brussels, NATO leaders will also discuss support for Ukraine.`\
+https://nytimes.com/2022/03/23/briefing/russia-ukraine-war-biden-nato.html?searchResultPosition=1
+
+**Kahlil Robert Irving Roves Across Millenniums at MoMA**\
+`The artist presents a vision of the contemporary in clay as a present-day Pompeii buried under an explosion of too much information.`\
+https://nytimes.com/2022/03/23/arts/design/kahlil-robert-irving-roves-across-millenniums-at-moma.html?searchResultPosition=2
+
+**Have You Suffered From Long Covid?**\
+`Tell us about the things that helped.`\
+https://nytimes.com/2022/03/23/nyregion/have-you-suffered-from-long-covid.html?searchResultPosition=3
+
+**Under Fire, Out of Fuel, No Air Support: What Intercepted Russian Radio Chatter Reveals**\
+`The Times’s Visual Investigations team analyzed dozens of battlefield radio transmissions between Russian forces during an initial invasion of the town of Makariv, outside Kyiv. They reveal an army struggling with logistical problems and communication failures.`\
+https://nytimes.com/video/world/europe/100000008266864/russia-army-radio-makariv.html?searchResultPosition=4
+
 **The Power of the Squat**\
 `It’s the one exercise most of us should be doing. But we need to do it right.`\
-https://nytimes.com/2022/03/23/well/how-to-do-squats.html?searchResultPosition=1
+https://nytimes.com/2022/03/23/well/how-to-do-squats.html?searchResultPosition=5
 
 **Your Thursday Briefing: NATO Boosts Its Eastern Presence**\
 `Plus Asia’s disappearing Covid rules and the Taliban’s reversal on girls’ schools.`\
-https://nytimes.com/2022/03/23/briefing/nato-troops-asia-covid-rules.html?searchResultPosition=2
+https://nytimes.com/2022/03/23/briefing/nato-troops-asia-covid-rules.html?searchResultPosition=6
 
 **John Roach, Pioneer of the Personal Computer, Is Dead at 83**\
 `He helped make the home computer ubiquitous by introducing the fully assembled Tandy TRS-80, which was so novel at the time that it became a museum piece.`\
-https://nytimes.com/2022/03/23/technology/personaltech/john-roach-dead.html?searchResultPosition=3
+https://nytimes.com/2022/03/23/technology/personaltech/john-roach-dead.html?searchResultPosition=7
 
 **With Eye to Russia, Biden Administration Asks Companies to Report Cyberattacks**\
 `A new law requires companies to tell the federal government about hacks, but the Cybersecurity and Infrastructure Security Agency still has to work out the details of what must be reported.`\
-https://nytimes.com/2022/03/23/us/politics/biden-russia-cyberattacks.html?searchResultPosition=4
+https://nytimes.com/2022/03/23/us/politics/biden-russia-cyberattacks.html?searchResultPosition=8
 
 **The Many Worlds of Rosalía**\
 `The Spanish phenom’s music takes in a host of global influences, making her one of the most sonically ambitious and critically dissected pop artists today.`\
-https://nytimes.com/2022/03/23/arts/music/popcast-rosalia.html?searchResultPosition=5
+https://nytimes.com/2022/03/23/arts/music/popcast-rosalia.html?searchResultPosition=9
 
 **The U.S. government accuses Russian forces of war crimes.**\
 `In a statement, the U.S. secretary of state, Antony J. Blinken, cited the destruction of “apartment buildings, schools, hospitals, critical infrastructure, civilian vehicles, shopping centers, and ambulances.”`\
-https://nytimes.com/2022/03/23/world/europe/war-crimes-russia-us.html?searchResultPosition=6
-
-**Pfizer Recalls Some Blood Pressure Drugs, Citing Cancer Risk**\
-`The move follows recalls of other medications found to have higher levels of potential carcinogens.`\
-https://nytimes.com/2022/03/23/health/pfizer-recall-blood-pressure-drug-cancer.html?searchResultPosition=7
-
-**U.N. Investigator Accuses Israel of Apartheid, Citing Permanence of Occupation**\
-`Strongly denied by Israel and its supporters, the claim is the first time that a U.N.-appointed rapporteur has accused Israel of apartheid in such an unequivocal way.`\
-https://nytimes.com/2022/03/23/world/middleeast/israel-apatheid-un.html?searchResultPosition=8
-
-**Germany’s leader says a boycott of Russian energy would imperil ‘hundreds of thousands of jobs.’**\
-`Germany, Europe’s largest economy, has been the most prominent opponent of a boycott of Russian energy. It relies on Russia for about 55 percent of its natural gas, 35 percent of its oil and half its coal.`\
-https://nytimes.com/2022/03/23/business/olaf-scholz-russia-energy.html?searchResultPosition=9
-
-**Modern Love Podcast: Confessions of a Late Bloomer**\
-`As a closeted teen, he turned to romantic comedies for connection. Over a decade later, he still feels he’s lagging behind.`\
-https://nytimes.com/2022/03/23/podcasts/modern-love-confessions-late-bloomer.html?searchResultPosition=10
+https://nytimes.com/2022/03/23/world/europe/war-crimes-russia-us.html?searchResultPosition=10
 
