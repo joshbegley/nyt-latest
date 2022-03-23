@@ -1,40 +1,40 @@
+**The U.S. Capitol will start formally reopening to tourists next week.**\
+`Tours of the Capitol were suspended for about two years over the pandemic and security concerns related to the Jan. 6 riot.`\
+https://nytimes.com/2022/03/23/us/politics/capitol-reopening-tourists.html?searchResultPosition=1
+
+**‘Bronco Bullfrog’: Hello Young Lovers**\
+`Barney Platts-Mills’s 1969 feature about aimless East End teenagers in love comes to Film Forum after a cinematic rediscovery.`\
+https://nytimes.com/2022/03/23/movies/bronco-bullfrog-barney-platts-mills.html?searchResultPosition=2
+
+**A Poised Supreme Court Nominee, and ‘Nasty Politicians’**\
+`Readers were impressed by Judge Jackson’s performance in the face of G.O.P. senators’ attacks. Also: Troops’ mental health; Trump and Ukraine; supporting teachers.`\
+https://nytimes.com/2022/03/23/opinion/letters/ketanji-brown-jackson-supreme-court.html?searchResultPosition=3
+
 **Israel, Fearing Russian Reaction, Blocked Spyware for Ukraine and Estonia**\
 `The Eastern European countries had sought to buy Pegasus, spyware made by the Israeli firm NSO, to carry out intelligence operations against Russia.`\
-https://nytimes.com/2022/03/23/us/politics/pegasus-israel-ukraine-russia.html?searchResultPosition=1
+https://nytimes.com/2022/03/23/us/politics/pegasus-israel-ukraine-russia.html?searchResultPosition=4
 
 **Vaccine Clinics Return to N.Y.C. Public Schools. Will They Work?**\
 `Adults in New York City have among the highest vaccination rates in the country. But the rates for children are far lower, raising concerns as coronavirus cases creep back up.`\
-https://nytimes.com/2022/03/23/nyregion/nyc-schools-vaccine-clinics.html?searchResultPosition=2
+https://nytimes.com/2022/03/23/nyregion/nyc-schools-vaccine-clinics.html?searchResultPosition=5
 
 **A Team From Everywhere Finds a Common Language**\
 `Arizona’s march through the N.C.A.A. men’s tournament is powered by an international roster dedicated to unselfish basketball. Coach Tommy Lloyd wouldn’t have it any other way.`\
-https://nytimes.com/2022/03/23/sports/ncaabasketball/arizona-march-madness.html?searchResultPosition=3
+https://nytimes.com/2022/03/23/sports/ncaabasketball/arizona-march-madness.html?searchResultPosition=6
 
 **There’s No Global Shopping Mall**\
 `Unlike so many of our online experiences, shopping is one area that has remained mostly local.`\
-https://nytimes.com/2022/03/23/technology/global-shopping-big-tech.html?searchResultPosition=4
+https://nytimes.com/2022/03/23/technology/global-shopping-big-tech.html?searchResultPosition=7
 
 **An Elegant Notting Hill Flat Enlivened By Maximalist Flourishes**\
 `It was renovating his home in London that helped Enis Karavil hone his aesthetic and led him to start his own design business.`\
-https://nytimes.com/2022/03/23/t-magazine/notting-hill-home-design.html?searchResultPosition=5
+https://nytimes.com/2022/03/23/t-magazine/notting-hill-home-design.html?searchResultPosition=8
 
 **Welcome to the Future. ‘Atlanta’ Has Been Waiting for You.**\
 `After four long years, the Season 3 premiere goes to strange places with a familiar confidence.`\
-https://nytimes.com/2022/03/23/arts/television/atlanta-season-3-review.html?searchResultPosition=6
+https://nytimes.com/2022/03/23/arts/television/atlanta-season-3-review.html?searchResultPosition=9
 
 **Drone Footage Shows New Orleans Tornado Aftermath**\
 `At least one person was killed and several were injured after two tornadoes struck New Orleans and the surrounding area.`\
-https://nytimes.com/video/us/100000008267654/tornado-new-orleans-extreme-weather.html?searchResultPosition=7
-
-**Coronavirus Rules Are Swiftly Falling Away in Asia, With a Big Caveat**\
-`Daily life in the region was once regulated by a snarl of virus restrictions. That is changing fast — except in mainland China, which is still rolling out lockdowns.`\
-https://nytimes.com/2022/03/23/world/asia/covid-restrictions-china.html?searchResultPosition=8
-
-**NATO doubles its battlegroups in Eastern Europe ahead of multiple summits.**\
-`The alliance’s secretary general announced the deployment of new battlegroups in Bulgaria, Hungary, Romania and Slovakia. NATO has four others in the region.`\
-https://nytimes.com/2022/03/23/world/europe/nato-troops-ukraine.html?searchResultPosition=9
-
-**Janet Yellen will discuss sanctions on Russian gold with lawmakers.**\
-`A proposal to target Russia’s gold reserves comes as the Biden administration looks to crack down on sanctions evasion.`\
-https://nytimes.com/2022/03/23/business/janet-yellen-russia-gold-sanctions.html?searchResultPosition=10
+https://nytimes.com/video/us/100000008267654/tornado-new-orleans-extreme-weather.html?searchResultPosition=10
 
