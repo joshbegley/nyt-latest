@@ -14,7 +14,7 @@ https://nytimes.com/2022/03/23/science/nasa-moon-landing.html?searchResultPositi
 `Mark F. Pomerantz, who had investigated the former president, left after the Manhattan district attorney, Alvin Bragg, halted an effort to seek an indictment.`\
 https://nytimes.com/2022/03/23/nyregion/trump-investigation-felony-resignation-pomerantz.html?searchResultPosition=4
 
-**Full Text of Mark Pomerantz’s Resignation Letter**\
+**Read the Full Text of Mark Pomerantz’s Resignation Letter**\
 `The former prosecutor who investigated Donald J. Trump believed that the former president was “guilty of numerous felony violations.”`\
 https://nytimes.com/2022/03/23/nyregion/mark-pomerantz-resignation-letter.html?searchResultPosition=5
 
