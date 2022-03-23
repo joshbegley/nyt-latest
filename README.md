@@ -1,6 +1,6 @@
 **Yellen will discuss sanctions on Russian gold with lawmakers.**\
 `A proposal to target Russia’s gold reserves comes as the Biden administration looks to crack down on sanctions evasion.`\
-https://nytimes.com/2022/03/23/business/yellen-will-discuss-sanctions-on-russian-gold-with-lawmakers.html?searchResultPosition=1
+https://nytimes.com/2022/03/23/business/janet-yellen-russia-gold-sanctions.html?searchResultPosition=1
 
 **In Empowering Women, Partnership Is Key**\
 `The head of Cartier International is a longtime advocate of advancing the agenda for women, as the company’s activities reflect.`\
