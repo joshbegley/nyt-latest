@@ -11,7 +11,7 @@ https://nytimes.com/2022/03/23/business/dealbook/recession-risk-markets.html?sea
 https://nytimes.com/2022/03/23/t-magazine/shishi-iwa-house-tokyo.html?searchResultPosition=3
 
 **The Wreck of an 1830s Whaler Offers a Glimpse of America’s Racial History**\
-`A shipwreck in the Gulf of Mexico is identified and the mystery of its multiracial crew is fate unraveled.`\
+`A shipwreck in the Gulf of Mexico is identified and the mystery of its multiracial crew’s fate unraveled.`\
 https://nytimes.com/2022/03/23/science/industry-whaling-ship-found.html?searchResultPosition=4
 
 **China Finds 1 Black Box From Plane Crash as Rain Hinders Search**\
