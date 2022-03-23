@@ -1,4 +1,4 @@
-**New Orleans Tornado Leaves a Path of Destruction**\
+**New Orleans Tornadoes Leave a Path of Destruction**\
 `At least one person was killed, and many houses were destroyed.`\
 https://nytimes.com/2022/03/23/us/new-orleans-tornado.html?searchResultPosition=1
 
