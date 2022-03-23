@@ -1,6 +1,6 @@
 **The Zelensky-Churchill Comparison? It’s Not Completely Ridiculous.**\
 `The pivotal and motivating power of individual charismatic leadership.`\
-https://nytimes.com/2022/03/23/opinion/the-zelensky-churchill-comparison-its-not-completely-ridiculous.html?searchResultPosition=1
+https://nytimes.com/2022/03/23/opinion/zelensky-churchill.html?searchResultPosition=1
 
 **Could a Crackdown on Kleptocrats Help Ukraine?**\
 `Russian oligarchs helped boost Vladimir V. Putin’s influence in the West. Can sanctions turn that pressure back on him?`\
