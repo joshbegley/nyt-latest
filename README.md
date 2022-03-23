@@ -2,7 +2,7 @@
 `Senator Josh Hawley of Missouri questioned Judge Ketanji Brown Jackson, nominee for the Supreme Court, about her decision to give a sentence shorter than recommended to an 18-year-old for sharing images of child sexual abuse.`\
 https://nytimes.com/video/us/politics/100000008267114/hawley-jackson-child-sexual-abuse-sentencing.html?searchResultPosition=1
 
-**No. 1 Ashleigh Barty, Just 26, Retiring From Tennis**\
+**No. 1 Ashleigh Barty, Just 25, Retiring From Tennis**\
 `The three-time Grand Slam champion said in a social media post, “the time is right now for me to step away and chase other dreams and to put the rackets down.”`\
 https://nytimes.com/2022/03/22/sports/tennis/ashleigh-barty-retires.html?searchResultPosition=2
 
