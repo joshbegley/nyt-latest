@@ -6,7 +6,7 @@ https://nytimes.com/video/world/europe/100000008268199/ukraine-russia-nato-battl
 `A tornado warning demands instant action. Here’s what to do if one comes your way, and how you can prepare in advance.`\
 https://nytimes.com/article/tornado-safety-tips.html?searchResultPosition=2
 
-**Graham takes a caustic path in questioning Jackson.**\
+**Graham takes a caustic tone in questioning Jackson.**\
 `The Republican Senator, a one-time supporter of Judge Jackson, has been among her most aggressive questioners.`\
 https://nytimes.com/2022/03/23/us/politics/lindsey-graham-questioning-jackson.html?searchResultPosition=3
 
