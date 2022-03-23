@@ -1,10 +1,10 @@
-**Nine Mass Shootings**\
-`A violent weekend highlights America’s continuing crime wave.`\
-https://nytimes.com/2022/03/23/briefing/crime-shootings-anomie-america.html?searchResultPosition=1
-
 **Taliban Renege on Promise to Open Afghan Girls’ Schools**\
 `The reversal of the plan to reopen high schools this week could threaten aid at a critical time, as international officials had made girls’ education a condition for greater assistance.`\
-https://nytimes.com/2022/03/23/world/asia/afghanistan-girls-schools-taliban.html?searchResultPosition=2
+https://nytimes.com/2022/03/23/world/asia/afghanistan-girls-schools-taliban.html?searchResultPosition=1
+
+**Nine Mass Shootings**\
+`A violent weekend highlights America’s continuing crime wave.`\
+https://nytimes.com/2022/03/23/briefing/crime-shootings-anomie-america.html?searchResultPosition=2
 
 **Rowayton, Conn.: A ‘Close-Knit’ Shoreline Village With Pricey Views**\
 `The Fairfield County community is surrounded by water, but you’ll pay a premium for waterfront property — if you can find it.`\
