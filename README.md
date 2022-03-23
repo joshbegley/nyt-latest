@@ -28,7 +28,7 @@ https://nytimes.com/2022/03/23/arts/music/upload-armory-review.html?searchResult
 
 **A top virologist who visited a Wuhan market in 2014 said he found it to be a ‘pandemic waiting to happen.’**\
 `By Carl Zimmer`\
-https://nytimes.com/2022/03/23/health/he-studied-viruses-for-years-in-a-wuhan-market-he-found-a-pandemic-waiting-to-happen.html?searchResultPosition=8
+https://nytimes.com/live/2022/03/23/world/covid-19-mandates-cases-vaccine/wuhan-pandemic-edward-holmes?searchResultPosition=8
 
 **Review: Ronald K. Brown’s Messages of Resilience**\
 `In a program at the Joyce Theater, Brown’s company, Evidence, presented three dances that aren’t new but seem newly meaningful.`\
