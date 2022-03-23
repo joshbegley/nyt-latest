@@ -4,7 +4,7 @@ https://nytimes.com/2022/03/23/briefing/russia-ukraine-war-biden-nato.html?searc
 
 **Kahlil Robert Irving Roves Across Millenniums at MoMA**\
 `The artist presents a vision of the contemporary in clay as a present-day Pompeii buried under an explosion of too much information.`\
-https://nytimes.com/2022/03/23/arts/design/kahlil-robert-irving-roves-across-millenniums-at-moma.html?searchResultPosition=2
+https://nytimes.com/2022/03/23/arts/design/kahlil-robert-irving-moma-review.html?searchResultPosition=2
 
 **Have You Suffered From Long Covid?**\
 `Tell us about the things that helped.`\
