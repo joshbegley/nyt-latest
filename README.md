@@ -12,7 +12,7 @@ https://nytimes.com/2022/03/23/science/abel-prize-mathematics.html?searchResultP
 
 **The Education Department says owners will have to pay if their colleges collapse.**\
 `A new rule will put the companies that own some for-profit schools on the hook if their campuses defraud students or close their doors.`\
-https://nytimes.com/2022/03/22/business/the-education-department-says-owners-will-have-to-pay-if-their-colleges-collapse.html?searchResultPosition=4
+https://nytimes.com/2022/03/22/business/for-profit-colleges-education-department.html?searchResultPosition=4
 
 **Zelensky invokes memories of Fukushima and a chemical attack in his address to Japan’s Parliament.**\
 `President Volodymyr Zelensky said that Russia’s invasion could set off a nuclear catastrophe in Chernobyl and warned that Russia could use chemical weapons like the one used in a 1995 attack in Tokyo.`\
