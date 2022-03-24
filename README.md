@@ -18,7 +18,7 @@ https://nytimes.com/2022/03/24/theater/women-directors-germany-claudia-bauer-chr
 `For much of the 20th century, before the dawn of our own wellness-focused era, madness and substance abuse were often considered prerequisites for great art.`\
 https://nytimes.com/2022/03/24/t-magazine/writers-alcohol-drugs-art.html?searchResultPosition=5
 
-**i’m goiChina’s Push to Isolate Taiwan Demands U.S. Action, Report Says**\
+**China’s Push to Isolate Taiwan Demands U.S. Action, Report Says**\
 `Chinese officials are ramping up a campaign to force United Nations agencies, governments, companies and even schools to say Taiwan is a part of China.`\
 https://nytimes.com/2022/03/24/us/politics/china-taiwan-un.html?searchResultPosition=6
 
