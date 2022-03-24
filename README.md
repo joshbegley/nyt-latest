@@ -24,7 +24,7 @@ https://nytimes.com/2022/03/24/world/europe/ukraine-war-russia-stalemate.html?se
 
 **Watch Live: Biden Holds Press Conference on Ukraine Crisis**\
 `President Biden holds a news conference after meetings with European leaders, NATO allies and representatives from the G7 countries about the international response to Russia’s invasion of Ukraine.`\
-https://nytimes.com/video/world/europe/100000008268875/biden-brussels-nato-ukraine-speech.html?searchResultPosition=7
+https://nytimes.com/video/embedded/world/europe/100000008268875/biden-brussels-nato-ukraine-speech.html?searchResultPosition=7
 
 **Corsican Reds: Unusual Wines From an Uncommon Place**\
 `The terroir, the grapes and the culture resemble those in other countries, yet are entirely their own. What makes the wines so distinctive?`\
