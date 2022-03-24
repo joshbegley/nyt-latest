@@ -28,7 +28,7 @@ https://nytimes.com/2022/03/24/style/neighbor-lawn-social-qs.html?searchResultPo
 
 **Russian crew aboard a superyacht possibly linked to Putin have left their jobs, workers say.**\
 `U.S. officials have said the Scheherezade, which is dry-docked in Italy, could be owned by the Russian leader.`\
-https://nytimes.com/2022/03/24/world/europe/russian-crew-aboard-a-superyacht-possibly-linked-to-putin-have-left-their-jobs-workers-say.html?searchResultPosition=8
+https://nytimes.com/2022/03/24/world/europe/russia-superyacht-crew-putin.html?searchResultPosition=8
 
 **U.S. Gas Prices Are Coming Back Down, but Not in California**\
 `The average price of a regular unleaded gallon hit $5.882 in the state, as Gov. Gavin Newsom unveiled a proposal to help defray the climbing costs.`\
