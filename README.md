@@ -28,7 +28,7 @@ https://nytimes.com/2022/03/24/style/how-balloons-blew-up.html?searchResultPosit
 
 **North Korea Tests New ICBM, Escalating Hostilities**\
 `It was the country’s first long-range ballistic missile test since 2017, and it raised the specter of intensified provocations and threats on the Korean Peninsula.`\
-https://nytimes.com/2022/03/24/world/asia/north-korea-icbm-launch.html?searchResultPosition=8
+https://nytimes.com/live/2022/03/24/world/north-korea-icbm-launch/north-korea-icbm-launch?searchResultPosition=8
 
 **Why Are Rolex Watches Even More Expensive Right Now?**\
 `It is difficult to buy a new Rolex these days. And the secondary market is booming into the stratosphere.`\
