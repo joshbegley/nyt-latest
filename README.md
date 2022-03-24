@@ -10,7 +10,7 @@ https://nytimes.com/2022/03/24/business/putin-rubles-russian-gas.html?searchResu
 `NATO allies agreed to provide equipment and training to Ukraine to prepare for possible Russian attacks using weapons of mass destruction.`\
 https://nytimes.com/video/world/europe/100000008269856/ukraine-russia-nato.html?searchResultPosition=3
 
-**The U.S. leveled new sanctions on Russian Parliament and defense companies.**\
+**The U.S. leveled new sanctions on Russian parliament and defense companies.**\
 `The Treasury Department warned that Russian gold sales could be subject to sanctions.`\
 https://nytimes.com/2022/03/24/business/sanctions-russia-parliament-defense-gold.html?searchResultPosition=4
 
