@@ -3,7 +3,7 @@
 https://nytimes.com/2022/03/24/world/asia/singapore-covid-restrictions.html?searchResultPosition=1
 
 **Funding Russia’s War**\
-`And the the complications of the green energy transition.`\
+`And the complications of the green energy transition.`\
 https://nytimes.com/2022/03/24/podcasts/funding-russias-war.html?searchResultPosition=2
 
 **Life’s Preference for Symmetry Is Like ‘A New Law of Nature’**\
