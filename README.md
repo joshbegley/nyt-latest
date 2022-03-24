@@ -1,6 +1,6 @@
 **‘It’s a Good Thing I Don’t Need a Lot of Sleep’**\
 `From the child tax credit to stimulus checks, there are a lot more questions this tax season, says the head of an accounting firm in Brooklyn.`\
-https://nytimes.com/2022/03/24/business/its-a-good-thing-i-dont-need-a-lot-of-sleep.html?searchResultPosition=1
+https://nytimes.com/2022/03/24/business/tax-accountant-child-tax-credit-crypto.html?searchResultPosition=1
 
 **Why I Scream When I Watch Sports**\
 `It’s too bad some athletes take booing personally. It isn’t really about them.`\
