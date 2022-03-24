@@ -8,7 +8,7 @@ https://nytimes.com/2022/03/24/t-magazine/piero-lissoni-milan-apartment.html?sea
 
 **‘The Lost City’ Review: Raiders of the 1980s Blockbusters**\
 `Sandra Bullock, Channing Tatum and a vamping Brad Pitt run around in a romantic adventure that you have seen before and will see again.`\
-https://nytimes.com/2022/03/24/movies/the-lost-city-review-raiders-of-the-1980s-blockbusters.html?searchResultPosition=3
+https://nytimes.com/2022/03/24/movies/the-lost-city-review.html?searchResultPosition=3
 
 **‘7 Days’ Review: Mothers’ Matchmaking Goes Awry**\
 `Two Indian American youngsters are set up on a date that takes an unexpected turn in this pandemic-themed comedy.`\
