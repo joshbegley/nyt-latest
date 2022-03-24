@@ -11,7 +11,7 @@ https://nytimes.com/2022/03/23/sports/kyrie-irving-nyc-vaccine-mandate.html?sear
 https://nytimes.com/2022/03/23/opinion/republicans-ketanji-brown-jackson.html?searchResultPosition=3
 
 **Ketanji Brown Jackson Survives a Final Bruising Day of Questions**\
-`Republicans on the Senate Judiciary Committee pummeled the first Black woman nominated to the Supreme Court for a second day over her sentencing record on child sex crimes.`\
+`Republicans on the Senate Judiciary Committee pummeled the first Black woman nominated to the Supreme Court for a second day over her sentencing record on cases involving child sex abuse.`\
 https://nytimes.com/2022/03/23/us/politics/ketanji-brown-jackson.html?searchResultPosition=4
 
 **Brothers, Wrongfully Convicted of Murder, Are Freed After 25 Years in Prison**\
