@@ -1,4 +1,4 @@
-**The U.S. leveled new sanctions on Russian parliament and defense companies.**\
+**The U.S. leveled new sanctions on Russian Parliament and defense companies.**\
 `The Treasury Department warned that Russian gold sales could be subject to sanctions.`\
 https://nytimes.com/2022/03/24/business/sanctions-russia-parliament-defense-gold.html?searchResultPosition=1
 
