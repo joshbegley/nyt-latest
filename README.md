@@ -4,7 +4,7 @@ https://nytimes.com/2022/03/24/arts/television/star-trek-picard-season-2-episode
 
 **In Putin’s Misbegotten War, NATO Sees Danger and Opportunity**\
 `The 30-nation alliance had regarded Russia’s invasion of Ukraine as unstoppable just a month ago, but now sees the possibility of a Russian quagmire there.`\
-https://nytimes.com/2022/03/24/world/europe/ukraine-nato-putin-opportunity.html?searchResultPosition=2
+https://nytimes.com/2022/03/24/world/europe/ukraine-nato-putin-russia.html?searchResultPosition=2
 
 **How High Inflation Will Come Down**\
 `Why 2022 really isn’t much like 1980.`\
