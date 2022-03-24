@@ -3,7 +3,7 @@
 https://nytimes.com/2022/03/24/world/europe/ukraine-belarus-russia-exiles.html?searchResultPosition=1
 
 **A C.D.C. airport surveillance program found the earliest known U.S. cases of Omicron subvariants.**\
-`By Emily Anthes`\
+`The results, which have not yet been published in a peer-reviewed journal, suggest that pooled testing of international travelers may be an effective and efficient way to keep tabs on new variants and pathogens`\
 https://nytimes.com/2022/03/24/health/cdc-us-ba2.html?searchResultPosition=2
 
 **Is America’s Economy Entering a New Normal?**\
