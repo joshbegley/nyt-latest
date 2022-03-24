@@ -22,9 +22,9 @@ https://nytimes.com/2022/03/24/your-money/bitcoin-investing-cryptocurrency.html?
 `The staple of children’s parties, awkward school-auditorium dances, and sporting events has taken on another life.`\
 https://nytimes.com/2022/03/24/style/how-balloons-blew-up.html?searchResultPosition=6
 
-**North Korea Fires Unidentified Projectile, South Korea Says**\
-`The launch appears to be the 11th missile test by the North this year and comes at a time when Washington is preoccupied with the crisis in Ukraine.`\
-https://nytimes.com/2022/03/24/world/asia/north-korea-projectile-launch.html?searchResultPosition=7
+**North Korea Tests Intercontinental Missile, Escalating Hostilities**\
+`It was the country’s first long-range ballistic missile test since 2017, and it raised the specter of intensified provocations and threats on the Korean Peninsula.`\
+https://nytimes.com/2022/03/24/world/asia/north-korea-icbm-launch.html?searchResultPosition=7
 
 **Why Are Rolex Watches Even More Expensive Right Now?**\
 `It is difficult to buy a new Rolex these days. And the secondary market is booming into the stratosphere.`\
