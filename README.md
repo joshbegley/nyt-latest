@@ -8,7 +8,7 @@ https://nytimes.com/2022/03/24/opinion/sports-fan-heckling.html?searchResultPosi
 
 **Biden Says Russia Should be Ejected from G20**\
 `Such a move would echo the 2014 decision of a smaller group of the world’s largest economies to punish it for its invasion and occupation of Ukraine’s Crimean peninsula.`\
-https://nytimes.com/2022/03/24/world/europe/biden-says-russia-should-be-ejected-from-g20.html?searchResultPosition=3
+https://nytimes.com/2022/03/24/world/europe/biden-russia-g20.html?searchResultPosition=3
 
 **U.S. Faces Mexico With Simple Goal: ‘We Just Have to Qualify’**\
 `The bitter sting of a missed World Cup shadows a young team nearing the end of its qualifying road. Three games will decide its fate.`\
