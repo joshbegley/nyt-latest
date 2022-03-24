@@ -1,4 +1,4 @@
-**Some Texans Are Finding Their Way Around S.B. 8. Here’s How**\
+**How Some Texans Are Getting Abortions Despite a Devastating Law**\
 `An influx in donations to clinics and abortion funds has thrown a financial lifeline to patients`\
 https://nytimes.com/2022/03/24/opinion/texas-abortion-funds-sb8.html?searchResultPosition=1
 
