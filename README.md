@@ -26,15 +26,15 @@ https://nytimes.com/2022/03/24/your-money/bitcoin-investing-cryptocurrency.html?
 `The staple of children’s parties, awkward school-auditorium dances, and sporting events has taken on another life.`\
 https://nytimes.com/2022/03/24/style/how-balloons-blew-up.html?searchResultPosition=7
 
-**North Korea Tests New ICBM, Escalating Hostilities**\
-`It was the country’s first long-range ballistic missile test since 2017, and it raised the specter of intensified provocations and threats on the Korean Peninsula.`\
-https://nytimes.com/live/2022/03/24/world/north-korea-icbm-launch/north-korea-icbm-launch?searchResultPosition=8
-
 **Why Are Rolex Watches Even More Expensive Right Now?**\
 `It is difficult to buy a new Rolex these days. And the secondary market is booming into the stratosphere.`\
-https://nytimes.com/2022/03/24/style/why-are-rolex-watches-even-more-expensive-right-now.html?searchResultPosition=9
+https://nytimes.com/2022/03/24/style/why-are-rolex-watches-even-more-expensive-right-now.html?searchResultPosition=8
 
 **Word of the Day: in absentia**\
 `This term has appeared in 29 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/03/24/learning/word-of-the-day-in-absentia.html?searchResultPosition=10
+https://nytimes.com/2022/03/24/learning/word-of-the-day-in-absentia.html?searchResultPosition=9
+
+**He’s Been a Killer and a Mob Associate. Is He a Hit Man?**\
+`George Bratsenis appears in a New Jersey court today to enter a plea in a murder-for-hire case.`\
+https://nytimes.com/2022/03/24/nyregion/hes-been-a-killer-and-a-mob-associate-is-he-a-hit-man.html?searchResultPosition=10
 
