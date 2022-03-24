@@ -1,40 +1,40 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2022/03/24/crosswords/spelling-bee-forum.html?searchResultPosition=1
+
+**Fed Up With Deadly Propaganda, Some Russian Journalists Quit**\
+`At least four state television employees have publicly resigned, citing regret for their roles in promoting false narratives about Ukraine.`\
+https://nytimes.com/2022/03/24/world/europe/russian-journalists-quit-propaganda.html?searchResultPosition=2
+
+**QAnon Cheers Republican Attacks on Jackson. Democrats See a Signal.**\
+`Criticism of Judge Ketanji Brown Jackson’s sentencing decisions emerged as a theme among Republicans — and renewed debate about the party’s stance toward QAnon.`\
+https://nytimes.com/2022/03/24/us/qanon-supreme-court-ketanji-brown-jackson.html?searchResultPosition=3
+
+**How to Live to 100**\
+`For one sturdy wartime survivor, living intensely has been the best revenge.`\
+https://nytimes.com/2022/03/24/style/how-to-live-to-100.html?searchResultPosition=4
+
+**Everyone Has Crypto FOMO, but Does It Belong in Your Portfolio?**\
+`A growing array of investment options make it easier to put digital tokens alongside traditional investments. Here’s what to know.`\
+https://nytimes.com/2022/03/24/your-money/bitcoin-investing-cryptocurrency.html?searchResultPosition=5
+
+**How Balloons Blew Up**\
+`The staple of children’s parties, awkward school-auditorium dances, and sporting events has taken on another life.`\
+https://nytimes.com/2022/03/24/style/how-balloons-blew-up.html?searchResultPosition=6
+
 **North Korea Fires Unidentified Projectile, South Korea Says**\
 `The launch appears to be the 11th missile test by the North this year and comes at a time when Washington is preoccupied with the crisis in Ukraine.`\
-https://nytimes.com/2022/03/24/world/asia/north-korea-projectile-launch.html?searchResultPosition=1
+https://nytimes.com/2022/03/24/world/asia/north-korea-projectile-launch.html?searchResultPosition=7
 
 **Why Are Rolex Watches Even More Expensive Right Now?**\
 `It is difficult to buy a new Rolex these days. And the secondary market is booming into the stratosphere.`\
-https://nytimes.com/2022/03/24/style/why-are-rolex-watches-even-more-expensive-right-now.html?searchResultPosition=2
+https://nytimes.com/2022/03/24/style/why-are-rolex-watches-even-more-expensive-right-now.html?searchResultPosition=8
 
 **Word of the Day: in absentia**\
 `This term has appeared in 29 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/03/24/learning/word-of-the-day-in-absentia.html?searchResultPosition=3
+https://nytimes.com/2022/03/24/learning/word-of-the-day-in-absentia.html?searchResultPosition=9
 
 **He’s Been a Killer and a Mob Associate. Is He a Hit Man?**\
 `George Bratsenis appears in a New Jersey court today to enter a plea in a murder-for-hire case.`\
-https://nytimes.com/2022/03/24/nyregion/hes-been-a-killer-and-a-mob-associate-is-he-a-hit-man.html?searchResultPosition=4
-
-**Late Night Approves of Ketanji Brown Jackson’s High Ratings**\
-`A poll found strong support for the judge’s Supreme Court nomination, but “speechmaking and hissy-fitting” continued in the Senate, said Jimmy Kimmel.`\
-https://nytimes.com/2022/03/24/arts/television/late-night-ketanji-brown-jackson.html?searchResultPosition=5
-
-**Why Is Europe Still Buying Oil From Putin?**\
-`Economic adviser to  President Volodymyr Zelensky makes the case for Europe to stop buying Russian oil and gas.`\
-https://nytimes.com/2022/03/24/opinion/why-is-europe-still-buying-oil-from-putin.html?searchResultPosition=6
-
-**I’m the Prime Minister of Estonia. Putin Can’t Think He’s Won This War.**\
-`At NATO, our focus should be simple.`\
-https://nytimes.com/2022/03/24/opinion/nato-russia-putin-estonia.html?searchResultPosition=7
-
-**Your Thursday Briefing**\
-`NATO bolsters its defenses.`\
-https://nytimes.com/2022/03/24/briefing/your-thursday-briefing.html?searchResultPosition=8
-
-**Another ‘One-in-500-Year’ Flood, and a Government Not Up to the Task**\
-`Civilians were largely left to rescue one another as a natural disaster struck Australia. It shows how the authorities are struggling to respond to climate-fueled calamities.`\
-https://nytimes.com/2022/03/24/world/australia/lismore-flood.html?searchResultPosition=9
-
-**12 Teenagers on What They Would Ask Their 40-Year-Old Selves**\
-`In a new Times Opinion focus group, teens also talked about their “addiction” to social media and being nervous to speak on sensitive subjects in class.`\
-https://nytimes.com/2022/03/24/opinion/teenagers-america.html?searchResultPosition=10
+https://nytimes.com/2022/03/24/nyregion/hes-been-a-killer-and-a-mob-associate-is-he-a-hit-man.html?searchResultPosition=10
 
