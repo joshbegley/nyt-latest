@@ -11,7 +11,7 @@ https://nytimes.com/2022/03/24/arts/television/pachinko-review.html?searchResult
 https://nytimes.com/2022/03/24/business/uber-new-york-taxis.html?searchResultPosition=3
 
 **NATO Leaders Convene for Summit on Ukraine**\
-`President Biden joined NATO leaders in Brussels. It was the first of three global meetings on Russia’s invasion of Ukraine in one day.`\
+`President Biden joined NATO leaders in Brussels for the first of three major summit meetings on Thursday over Russia’s invasion of Ukraine.`\
 https://nytimes.com/video/world/europe/100000008269719/nato-ukraine-russia-leaders-arrival.html?searchResultPosition=4
 
 **Jeremy Denk’s Memoir Features Music, Love and More Music**\
