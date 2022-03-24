@@ -2,9 +2,9 @@
 `In an 8-to-1 ruling, the court said Texas may not execute John Henry Ramirez, a death row inmate, unless his pastor can pray with and lay hands on him in the death chamber.`\
 https://nytimes.com/2022/03/24/us/politics/supreme-court-death-penalty-pastor.html?searchResultPosition=1
 
-**4 Art Gallery Shows to See Right Now**\
-`Harriet Korman at Thomas Erben; Adelita Husni-Bey at Brooklyn Army Terminal; Mel Leipzig at Gallery Henoch; Walid Raad at Paula Cooper Gallery.`\
-https://nytimes.com/2022/03/24/arts/design/4-art-gallery-shows-to-see-right-now.html?searchResultPosition=2
+**What to See in N.Y.C. Galleries Right Now**\
+`Take in spectral canvases by Thomas Sills and Etel Adnan’s drawing-like paintings.`\
+https://nytimes.com/article/new-york-art-galleries.html?searchResultPosition=2
 
 **‘Mothering Sunday’ Review: Sex, Death and Literature**\
 `A fine British cast is featured in this mildly transgressive love story set in the aftermath of World War I.`\
