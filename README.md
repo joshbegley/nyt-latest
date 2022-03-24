@@ -22,7 +22,7 @@ https://nytimes.com/2022/03/24/your-money/bitcoin-investing-cryptocurrency.html?
 `The staple of children’s parties, awkward school-auditorium dances, and sporting events has taken on another life.`\
 https://nytimes.com/2022/03/24/style/how-balloons-blew-up.html?searchResultPosition=6
 
-**North Korea Tests Intercontinental Missile, Escalating Hostilities**\
+**North Korea Tests New ICBM, Escalating Hostilities**\
 `It was the country’s first long-range ballistic missile test since 2017, and it raised the specter of intensified provocations and threats on the Korean Peninsula.`\
 https://nytimes.com/2022/03/24/world/asia/north-korea-icbm-launch.html?searchResultPosition=7
 
