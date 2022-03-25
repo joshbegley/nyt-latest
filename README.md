@@ -8,7 +8,7 @@ https://nytimes.com/interactive/2022/03/25/arts/television/best-of-late-night.ht
 
 **Watch Ryan Reynolds Meet His Past Self in ‘The Adam Project’**\
 `The director Shawn Levy narrates a sequence from the film, which also features Walker Scobell.`\
-https://nytimes.com/2022/03/25/movies/the-adam-project-clip.html?searchResultPosition=3
+https://nytimes.com/2022/03/25/movies/the-adam-project-ryan-reynolds.html?searchResultPosition=3
 
 **The Fed Bets on a ‘Soft Landing,’ but Recession Risk Looms**\
 `Central bankers have been clear that they will do what it takes to control inflation. They are betting on a soft landing, but a bumpy one is possible.`\
@@ -20,7 +20,7 @@ https://nytimes.com/video/movies/100000008271800/the-adam-project-scene.html?sea
 
 **Museums Are Cashing In on NFTs**\
 `There’s money to be made, though most institutions are wary of getting involved.`\
-https://nytimes.com/2022/03/25/arts/design/museums-are-cashing-in-on-nfts.html?searchResultPosition=6
+https://nytimes.com/2022/03/25/arts/design/museums-nfts.html?searchResultPosition=6
 
 **Messi, Ronaldo and Soccer’s Golden Sunset**\
 `This year’s World Cup will be the last for some household names, meaning soccer will go into the tournament with one elite and emerge with quite another.`\
