@@ -1,40 +1,40 @@
-**‘Can’t Cope’: Australia’s Great Barrier Reef Suffers 6th Mass Bleaching Event**\
-`This year offers a disturbing first: mass bleaching in a year of La Niña. The grim milestone points to the continued threat of climate change and greenhouse gas emissions.`\
-https://nytimes.com/2022/03/25/world/australia/great-barrier-reef-bleaching.html?searchResultPosition=1
+**Long on Europe’s Fringe, Poland Takes Center Stage as War Rages in Ukraine**\
+`Poland’s right-wing populist government has been embraced by both Brussels and Washington as a linchpin of Western solidarity and security.`\
+https://nytimes.com/2022/03/25/world/europe/poland-ukraine-russia.html?searchResultPosition=1
 
-**Recurring Floods, and Other Disasters, Take Their Toll**\
-`Beseiged communities bond through adversity.`\
-https://nytimes.com/2022/03/25/world/australia/recurring-floods-and-other-disasters-take-their-toll.html?searchResultPosition=2
+**Sri Lanka Economy Has ‘Hit Rock Bottom,’ Putting Pressure on President**\
+`A debt crisis is disrupting life across Sri Lanka, where food and fuel are suddenly either unavailable or exorbitantly priced. Protests are rising against a president with a reputation for brutality.`\
+https://nytimes.com/2022/03/25/world/asia/sri-lanka-economic-crisis.html?searchResultPosition=2
 
-**How St. Peter’s Became the Belle of the March Madness Ball**\
-`This year, Cinderella is from Jersey City.`\
-https://nytimes.com/2022/03/25/nyregion/st-peters-march-madness-sweet-16.html?searchResultPosition=3
+**Anna Sorokin Talks About Making Art**\
+`The group art show, “Free Anna Delvey,” is only the beginning for the imprisoned fake heiress.`\
+https://nytimes.com/2022/03/25/style/anna-sorokin-talks-about-making-art.html?searchResultPosition=3
 
-**Why the U.S. Can’t Quickly Wean Europe From Russian Gas**\
-`The Biden administration wants to send more natural gas to Europe, but the lack of export and import terminals will limit that effort.`\
-https://nytimes.com/2022/03/25/business/energy-environment/biden-europe-lng-natural-gas.html?searchResultPosition=4
+**How the 2022 Primaries Are Testing Trump’s Role as the G.O.P. ‘Kingpin’**\
+`Two of Donald Trump’s most prominent Senate endorsements have already backfired. Now the month of May looms large to measure his pull on the party.`\
+https://nytimes.com/2022/03/25/us/politics/trump-endorsement-primaries.html?searchResultPosition=4
 
-**One of Europe’s Largest Retailers, Still in Russia, Angers Its Ukraine Workers**\
-`The destruction of a Leroy Merlin store in Kyiv by a Russian missile underscores the conflicting interests facing companies that continue to do business in Russia.`\
-https://nytimes.com/2022/03/25/business/leroy-merlin-ukraine-russia.html?searchResultPosition=5
+**The Wallpaper That Is Also a ‘Reminder That My Ancestors Had My Back’**\
+`Sheila Bridges’s Harlem Toile de Jouy wallpaper and designs are getting even more attention. For this writer, it fills in the visual gaps of Black tradition.`\
+https://nytimes.com/2022/03/25/realestate/harlem-toile-wallpaper.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/03/25/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**What is Driving Vladimir Putin?**\
+`Understanding Putin is crucial to deciphering his goals in attacking Ukraine. The Russian American journalist Masha Gessen recommends books on the Russian president and the forces that shaped him.`\
+https://nytimes.com/article/books-putin-russia.html?searchResultPosition=6
 
-**Preteen Angst, Swedish Style**\
-`Even utopian Sweden has mean girls, but in Kristina Sigunsdotter’s “The Secrets of Cricket Karlsson” theirs is a kinder, quirkier cruelty.`\
-https://nytimes.com/2022/03/25/books/review/the-secrets-of-cricket-karlsson-kristina-sigunsdotter-ester-eriksson.html?searchResultPosition=7
+**‘I’m Old, Not an Idiot.’ One Man’s Protest Gets Attention of Spanish Banks**\
+`A campaign by a 78-year-old retired doctor with Parkinson’s disease against banks closing branches and moving services online resonates with a rapidly aging Spanish population.`\
+https://nytimes.com/2022/03/25/world/europe/spanish-banks-protest-carlos-san-juan-de-laorden.html?searchResultPosition=7
 
-**Karina Yan Glaser’s First Non-Vanderbeekers Novel**\
-`“A Duet for Home” interweaves the story lines of two music-loving preteens living in a South Bronx homeless shelter.`\
-https://nytimes.com/2022/03/25/books/review/karina-yan-glaser-a-duet-for-home.html?searchResultPosition=8
+**We Aren’t Just Watching the Decline of the Oscars. We’re Watching the End of the Movies.**\
+`Why big-screen entertainment is no longer the essential American popular art form.`\
+https://nytimes.com/2022/03/25/opinion/oscars-movies-end.html?searchResultPosition=8
 
-**Word of the Day: mettlesome**\
-`This word has appeared in one article on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/03/25/learning/word-of-the-day-mettlesome.html?searchResultPosition=9
+**Cannibalism Is More Ancient Than Once Thought, Trilobite Fossils Suggest**\
+`The “king” of the trilobites was snacking on whatever it could eat some 514 million years ago in the Cambrian era, even shelled creatures of its own species.`\
+https://nytimes.com/2022/03/25/science/cannibal-trilobites.html?searchResultPosition=9
 
-**Jimmy Kimmel: Ted Cruz ‘Outslimed Himself’ This Week**\
-`Kimmel happily reported that the children’s book Cruz singled out to make a point about race at the Senate hearings for President Biden’s Supreme Court nominee this week became a No. 1 best seller.`\
-https://nytimes.com/2022/03/25/arts/television/jimmy-kimmel-ted-cruz-ketanji-brown-jackson.html?searchResultPosition=10
+**For Taxes, Where You Hold Your Investments Really Matters**\
+`Retirement investments that are fine in tax-sheltered accounts can generate big headaches without that protection. Vanguard’s target date funds are a case in point.`\
+https://nytimes.com/2022/03/25/business/taxes-vanguard-investment-funds.html?searchResultPosition=10
 
