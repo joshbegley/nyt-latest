@@ -11,7 +11,7 @@ https://nytimes.com/2022/03/25/business/germany-russia-gas.html?searchResultPosi
 https://nytimes.com/2022/03/25/arts/music/playlist-soccer-mommy-phife-dawg.html?searchResultPosition=3
 
 **Justice Clarence Thomas Discharged From Hospital, Court Says**\
-`The Supreme Court justice, 73, was hospitalized for a week with flulike symptoms.`\
+`The Supreme Court justice, 73, had been hospitalized for a week with flulike symptoms.`\
 https://nytimes.com/2022/03/25/us/politics/justice-clarence-thomas-hospital-discharged.html?searchResultPosition=4
 
 **Five Action Movies to Stream Now**\
