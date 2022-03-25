@@ -10,7 +10,7 @@ https://nytimes.com/2022/03/25/dining/weeknight-pork-chops.html?searchResultPosi
 `South Asians in Hollywood celebrate their achievements this year.`\
 https://nytimes.com/2022/03/25/style/priyanka-chopra-jonas-and-riz-ahmed-toast-south-asians-at-pre-oscars-party.html?searchResultPosition=3
 
-**Hillary Clinton: Madeleine Albright Knew How to Push the Envelope**\
+**Hillary Clinton: Madeleine Albright Warned Us, and She Was Right**\
 `We can honor her memory by heeding her wisdom.`\
 https://nytimes.com/2022/03/25/opinion/madeleine-albright-secretary-of-state.html?searchResultPosition=4
 
