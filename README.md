@@ -12,7 +12,7 @@ https://nytimes.com/2022/03/25/podcasts/climate-activism-dune-entenmann-narrated
 
 **A surge in cases in Shanghai is testing China’s ‘zero Covid’ strategy.**\
 `China’s largest city, which has seen few cases since the start of the pandemic, is now experiencing a surge in the latest challenge to the country’s zero-tolerance approach to the virus.`\
-https://nytimes.com/2022/03/25/world/asia/surge-shanghai-china-zero-covid.html?searchResultPosition=4
+https://nytimes.com/2022/03/25/world/asia/shanghai-china-cases-surge.html?searchResultPosition=4
 
 **St. Peter’s: A Cinderella Story That Began in Jersey City**\
 `A tiny Jesuit college takes on Purdue tonight in the Sweet 16. It’s an underdog story that’s making New Jersey proud.`\
