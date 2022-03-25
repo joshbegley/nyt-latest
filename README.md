@@ -10,13 +10,13 @@ https://nytimes.com/2022/03/25/business/media/discrimination-case-washington-pos
 `At City Center, the company’s season began with a debut by its first resident choreographer, Lauren Lovette, and two masterly works by Taylor.`\
 https://nytimes.com/2022/03/25/arts/dance/review-paul-taylor-lauren-lovette.html?searchResultPosition=3
 
-**This Economist Really Loves Free Markets**\
-`Clifford Winston is a big fan of deregulation.`\
-https://nytimes.com/2022/03/25/opinion/deregulation-free-markets.html?searchResultPosition=4
-
 **Congress Needs to Finish the Fight Against Covid**\
 `The pandemic isn’t over yet, but Congress seems to have lost interest in funding public health efforts against Covid. `\
-https://nytimes.com/2022/03/25/opinion/covid-funding-congress-biden.html?searchResultPosition=5
+https://nytimes.com/2022/03/25/opinion/covid-funding-congress-biden.html?searchResultPosition=4
+
+**This Economist Really Loves Free Markets**\
+`Clifford Winston is a big fan of deregulation.`\
+https://nytimes.com/2022/03/25/opinion/deregulation-free-markets.html?searchResultPosition=5
 
 **How the Ukraine War Will Also Hurt Russia for Years to Come**\
 `Readers discuss how Russia is “being detached from the world.”  Also: Clarence and Ginni Thomas, and a refusal to recuse.`\
