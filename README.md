@@ -6,7 +6,7 @@ https://nytimes.com/video/world/europe/100000008272873/kharkiv-gas-line-ukraine-
 `Here’s what you need to know at the end of the day.`\
 https://nytimes.com/2022/03/25/briefing/russia-jackson-oscars.html?searchResultPosition=2
 
-**A Ukrainian refugee won the women’s race at the Jerusalem Marathon.**\
+**Ukrainian Refugee Wins Women’s Race at the Jerusalem Marathon**\
 `Valentyna Vereteska fled from Mykolaiv, Ukraine, to Poland with her 11-year-old daughter a month ago.`\
 https://nytimes.com/2022/03/25/world/europe/refugee-wins-jerusalem-marathon.html?searchResultPosition=3
 
