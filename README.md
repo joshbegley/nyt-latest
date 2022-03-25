@@ -6,13 +6,13 @@ https://nytimes.com/2022/03/25/world/australia/great-barrier-reef-bleaching.html
 `Beseiged communities bond through adversity.`\
 https://nytimes.com/2022/03/25/world/australia/recurring-floods-and-other-disasters-take-their-toll.html?searchResultPosition=2
 
-**Why the U.S. Can’t Quickly Wean Europe From Russian Gas**\
-`The Biden administration wants to send more natural gas to Europe, but the lack of export and import terminals will limit that effort.`\
-https://nytimes.com/2022/03/25/business/energy-environment/biden-europe-lng-natural-gas.html?searchResultPosition=3
-
 **How St. Peter’s Became the Belle of the March Madness Ball**\
 `This year, Cinderella is from Jersey City.`\
-https://nytimes.com/2022/03/25/nyregion/st-peters-march-madness-sweet-16.html?searchResultPosition=4
+https://nytimes.com/2022/03/25/nyregion/st-peters-march-madness-sweet-16.html?searchResultPosition=3
+
+**Why the U.S. Can’t Quickly Wean Europe From Russian Gas**\
+`The Biden administration wants to send more natural gas to Europe, but the lack of export and import terminals will limit that effort.`\
+https://nytimes.com/2022/03/25/business/energy-environment/biden-europe-lng-natural-gas.html?searchResultPosition=4
 
 **One of Europe’s Largest Retailers, Still in Russia, Angers Its Ukraine Workers**\
 `The destruction of a Leroy Merlin store in Kyiv by a Russian missile underscores the conflicting interests facing companies that continue to do business in Russia.`\
