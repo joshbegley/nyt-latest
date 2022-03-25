@@ -27,7 +27,7 @@ https://nytimes.com/2022/03/25/world/americas/royal-couple-caribbean-visit.html?
 https://nytimes.com/2022/03/25/business/energy-environment/biden-eu-liquefied-natural-gas-deal-russia.html?searchResultPosition=7
 
 **Judge Throws Out Maryland Congressional Map, in Blow to Democrats**\
-`The ruling, in which the judge said Democrats had drawn an “extreme gerrymander,” was the first time this redistricting cycle that the party’s maps had been rejected in court.`\
+`The ruling, in which the judge said Democrats had drawn an “extreme gerrymander,” was the first time this redistricting cycle that the party’s congressional maps had been rejected in court.`\
 https://nytimes.com/2022/03/25/us/politics/maryland-redistricting-map-judge-ruling.html?searchResultPosition=8
 
 **Review: The Philharmonic’s Conductor Returns to His Perch**\
