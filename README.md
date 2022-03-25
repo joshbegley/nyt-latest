@@ -1,40 +1,40 @@
+**17 New Nonfiction Books to Read This Season**\
+`Two journalists dive into George Floyd’s life and family; Viola Davis reflects on her career; a historian explores the brutal underpinnings of the British Empire; and more.`\
+https://nytimes.com/2022/03/25/books/new-nonfiction-books-spring-2022.html?searchResultPosition=1
+
+**18 New Works of Fiction to Read This Spring**\
+`New novels from Jennifer Egan, Ali Smith and Hernan Diaz; debuts from Aamina Ahmad and Jenny Tinghui Zhang; posthumous stories and a novel by Tove Ditlevsen; and plenty more.`\
+https://nytimes.com/2022/03/25/books/new-fiction-books-spring-2022.html?searchResultPosition=2
+
+**N.C.A.A. Women’s Tournament: What to Watch as the Round of 16 Begins**\
+`All four No. 1 seeds remain and two, South Carolina and Stanford, are in action on Friday, as is Creighton, one of two No. 10 seeds still in the field.`\
+https://nytimes.com/2022/03/25/sports/ncaabasketball/ncaa-womens-tournament-sweet-16.html?searchResultPosition=3
+
+**N.C.A.A. Men’s Tournament: What to Watch as the Sweet 16 Continues**\
+`North Carolina is in familiar territory behind its first-year coach, Hubert Davis, and St. Peter’s will try to go where no 15th men’s seed has ever gone.`\
+https://nytimes.com/2022/03/25/sports/ncaabasketball/march-madness-sweet-16-friday.html?searchResultPosition=4
+
+**The First (and Last) Time She Didn’t Come Home**\
+`My sister and I searched for clues in our mother’s desk — and in her life — for why she left us and this world.`\
+https://nytimes.com/2022/03/25/style/modern-love-first-and-last-time-she-didnt-come-home.html?searchResultPosition=5
+
+**For a Motivational Speaker, It Took Years to Feel Worthy of His Love**\
+`Lisa Nichols had built a career on helping others form lasting relationships by the time she met Marcellus Hall, who, in time, convinced her that she deserved one of her own.`\
+https://nytimes.com/2022/03/25/style/lisa-nichols-marcellus-hall-wedding.html?searchResultPosition=6
+
+**Sealing Their Relationship With a Pasta Stamp**\
+`Food helped bring Laura McDonald and Harsh Shah together. So it was only fitting for him to propose with a bowl of custom-designed corzetti.`\
+https://nytimes.com/2022/03/25/style/laura-mcdonald-harsh-shah-wedding.html?searchResultPosition=7
+
 **Nebraska Congressman Convicted in Campaign Finance Case**\
 `Representative Jeff Fortenberry was accused of lying to F.B.I. agents investigating illegal foreign donations.`\
-https://nytimes.com/2022/03/24/us/politics/jeff-fortenberry-convicted-donations.html?searchResultPosition=1
+https://nytimes.com/2022/03/24/us/politics/jeff-fortenberry-convicted-donations.html?searchResultPosition=8
 
 **Variety: Acrostic**\
 `Emily Cox and Henry Rathvon play ball!`\
-https://nytimes.com/2022/03/24/crosswords/variety-acrostic.html?searchResultPosition=2
+https://nytimes.com/2022/03/24/crosswords/variety-acrostic.html?searchResultPosition=9
 
 **Miami Beach Bans Some Alcohol Sales as Spring Break Curfew Takes Effect**\
 `“We all knew that this week and next week were going to be hard weekends, because every year, they are hard weekends,” Mayor Dan Gelber said. “Frankly, optimism, hope and luck are not plans.”`\
-https://nytimes.com/2022/03/24/us/miami-beach-alcohol-ban.html?searchResultPosition=3
-
-**Where 100 Is Not a Perfect Score**\
-`Evans Clinchy comes pretty darn close, though.`\
-https://nytimes.com/2022/03/24/crosswords/daily-puzzle-2022-03-25.html?searchResultPosition=4
-
-**China and Solomon Islands Draft Secret Security Pact, Raising Alarm in the Pacific**\
-`The leaked agreement, if signed, could help the Chinese Navy block shipping routes that played a vital role in World War II.`\
-https://nytimes.com/2022/03/24/world/asia/china-solomon-islands-security-pact.html?searchResultPosition=5
-
-**Arkansas Upsets No. 1 Gonzaga in the Round of 16**\
-`Gonzaga, the No. 1 overall seed in the men’s tournament and the title favorite, will not return to the championship game. Arkansas is in the round of 8 for the second straight year.`\
-https://nytimes.com/2022/03/24/sports/ncaabasketball/arkansas-gonzaga-sweet-16.html?searchResultPosition=6
-
-**The Secrets of Lasting Friendships**\
-`Anthropologist Robin Dunbar provides a framework.`\
-https://nytimes.com/2022/03/24/opinion/lasting-friendships-secrets.html?searchResultPosition=7
-
-**U.S. Accuses 4 Russians of Hacking Infrastructure, Including Nuclear Plant**\
-`The announcement covered hackings from 2012 to 2018, but served as yet another warning from the Biden administration of Russia’s ability to conduct such operations.`\
-https://nytimes.com/2022/03/24/us/politics/russians-cyberattacks-infrastructure-nuclear-plant.html?searchResultPosition=8
-
-**Broken Butts and Questioning Cats: Bring On Subversive Books for Kids**\
-`Sometimes stories that delight children and make adults cringe are the best way to win over new readers.`\
-https://nytimes.com/2022/03/24/well/kids-books-subversive.html?searchResultPosition=9
-
-**‘Help’ Review: Blindfolds (and Kid Gloves) Off. Let’s Analyze Whiteness.**\
-`Claudia Rankine’s heady new play dares white audiences to deny the realities of their social advantages.`\
-https://nytimes.com/2022/03/24/theater/help-review-claudia-rankine.html?searchResultPosition=10
+https://nytimes.com/2022/03/24/us/miami-beach-alcohol-ban.html?searchResultPosition=10
 
