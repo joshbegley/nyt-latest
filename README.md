@@ -1,18 +1,18 @@
+**U.S. and European leaders reach deal on trans-Atlantic data privacy.**\
+`President Biden said that the agreement included “unprecedented protections,” but the details of the new pact were not released.`\
+https://nytimes.com/2022/03/25/business/us-europe-data-privacy.html?searchResultPosition=1
+
 **A Teardrop Locket Inspired by a Parisian Flea Market Find**\
 `The necklace, by the jewelry designer Monica Rich Kosann, features a quartz pendant surrounded by diamonds and space for two photos.`\
-https://nytimes.com/2022/03/25/t-magazine/monica-rich-kosann-necklace.html?searchResultPosition=1
+https://nytimes.com/2022/03/25/t-magazine/monica-rich-kosann-necklace.html?searchResultPosition=2
 
 **It’s Spring, So Get a Head Start on Your Outdoor Space**\
 `Warmer days are ahead so you need to start washing outdoor seat cushions, pruning shrubs and doing a little decorating.`\
-https://nytimes.com/2022/03/25/realestate/weather-spring-outdoor-spaces.html?searchResultPosition=2
+https://nytimes.com/2022/03/25/realestate/weather-spring-outdoor-spaces.html?searchResultPosition=3
 
 **For U.S., Missed Chances Mean More Waiting**\
 `Fine margins are the hallmark of World Cup qualifying. For the Americans, their rivals and a handful of other teams around the world, Thursday was no different.`\
-https://nytimes.com/2022/03/25/sports/soccer/usmnt-mexico-score.html?searchResultPosition=3
-
-**Australia and El Salvador approve fourth doses of the coronavirus vaccine.**\
-`El Salvador’s president, Nayib Bukele, announced on Facebook last week that the country would make a fourth dose of the coronavirus vaccine available to its entire population.`\
-https://nytimes.com/2022/03/25/world/australia-el-salvador-approve-fourth-doses-vaccine.html?searchResultPosition=4
+https://nytimes.com/2022/03/25/sports/soccer/usmnt-mexico-score.html?searchResultPosition=4
 
 **F.D.A.’s Accelerated Drug Approvals Come Under Scrutiny**\
 `A drug to prevent preterm birth may provide the next test of the agency’s process for speedily getting drugs on the market, despite limited evidence that some work.`\
