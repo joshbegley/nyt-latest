@@ -30,11 +30,11 @@ https://nytimes.com/2022/03/25/books/new-nonfiction-books-spring-2022.html?searc
 `New novels from Jennifer Egan, Ali Smith and Hernan Diaz; debuts from Aamina Ahmad and Jenny Tinghui Zhang; posthumous stories and a novel by Tove Ditlevsen; and plenty more.`\
 https://nytimes.com/2022/03/25/books/new-fiction-books-spring-2022.html?searchResultPosition=8
 
-**N.C.A.A. Women’s Tournament: What to Watch as the Round of 16 Begins**\
-`All four No. 1 seeds remain and two, South Carolina and Stanford, are in action on Friday, as is Creighton, one of two No. 10 seeds still in the field.`\
-https://nytimes.com/2022/03/25/sports/ncaabasketball/ncaa-womens-tournament-sweet-16.html?searchResultPosition=9
-
 **N.C.A.A. Men’s Tournament: What to Watch as the Sweet 16 Continues**\
 `North Carolina is in familiar territory behind its first-year coach, Hubert Davis, and St. Peter’s will try to go where no 15th men’s seed has ever gone.`\
-https://nytimes.com/2022/03/25/sports/ncaabasketball/march-madness-sweet-16-friday.html?searchResultPosition=10
+https://nytimes.com/2022/03/25/sports/ncaabasketball/march-madness-sweet-16-friday.html?searchResultPosition=9
+
+**N.C.A.A. Women’s Tournament: What to Watch as the Round of 16 Begins**\
+`All four No. 1 seeds remain and two, South Carolina and Stanford, are in action on Friday, as is Creighton, one of two No. 10 seeds still in the field.`\
+https://nytimes.com/2022/03/25/sports/ncaabasketball/ncaa-womens-tournament-sweet-16.html?searchResultPosition=10
 
