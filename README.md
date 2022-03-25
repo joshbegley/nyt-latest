@@ -27,8 +27,8 @@ https://nytimes.com/2022/03/25/world/americas/mexico-international-airport.html?
 https://nytimes.com/2022/03/25/world/europe/biden-us-troops-poland.html?searchResultPosition=7
 
 **Manchin Backs Jackson as Democrats Unite Behind Confirmation**\
-`The support of the centrist Democrat from West Virginia shows Democrats are unifying behind Judge Ketanji Brown Jackson’s nomination in the face of strong Republican opposition.`\
-https://nytimes.com/2022/03/25/us/politics/manchin-backs-jackson-as-democrats-unite-behind-confirmation.html?searchResultPosition=8
+`The support of the centrist from West Virginia shows that Democrats are unifying behind Judge Ketanji Brown Jackson’s nomination in the face of strong Republican opposition.`\
+https://nytimes.com/2022/03/25/us/politics/manchin-jackson-supreme-court.html?searchResultPosition=8
 
 **The Weekender**\
 `A Vietnamese restaurant’s challenges during the pandemic. Also in this edition: Nicola Coughlan on “Bridgerton” and “Derry Girls” and a virus hunter in Wuhan.`\
