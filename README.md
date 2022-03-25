@@ -1,10 +1,10 @@
-**Four Best Picture Contenders Are Remakes. Does That Matter to Oscar Voters?**\
-`Academy history offers clues about how “Nightmare Alley,” “West Side Story,” “CODA” and “Dune” might fare on Sunday.`\
-https://nytimes.com/2022/03/25/movies/best-picture-remakes-oscars.html?searchResultPosition=1
-
 **There Is No Upside to an 8 A.M. Meeting**\
 `The Early Bird in your office may do as he pleases, but he should not demand that you join him.`\
-https://nytimes.com/2022/03/25/business/early-meetings-return-office.html?searchResultPosition=2
+https://nytimes.com/2022/03/25/business/early-meetings-return-office.html?searchResultPosition=1
+
+**Four Best Picture Contenders Are Remakes. Does That Matter to Oscar Voters?**\
+`Academy history offers clues about how “Nightmare Alley,” “West Side Story,” “CODA” and “Dune” might fare on Sunday.`\
+https://nytimes.com/2022/03/25/movies/best-picture-remakes-oscars.html?searchResultPosition=2
 
 **Israel to Host 3 Arab Foreign Ministers in Historic Meeting**\
 `The gathering of top diplomats from Israel, the U.A.E., Bahrain and Morocco, as well as Secretary of State Antony J. Blinken, is a sign of how quickly Middle Eastern alliances are shifting.`\
