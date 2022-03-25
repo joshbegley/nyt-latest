@@ -24,7 +24,7 @@ https://nytimes.com/2022/03/25/arts/design/museums-are-cashing-in-on-nfts.html?s
 
 **Messi, Ronaldo and Soccer’s Golden Sunset**\
 `This year’s World Cup will be the last for some household names, meaning soccer will go into the tournament with one elite and emerge with quite another.`\
-https://nytimes.com/2022/03/25/sports/soccer/messi-ronaldo-and-soccers-golden-sunset.html?searchResultPosition=7
+https://nytimes.com/2022/03/25/sports/soccer/messi-ronaldo-world-cup.html?searchResultPosition=7
 
 **Ginni and Clarence Thomas Have Done Enough Damage**\
 `Trump couldn’t ask for two better friends in his quest to harm American democracy. `\
