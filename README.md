@@ -11,7 +11,7 @@ https://nytimes.com/2022/03/26/world/europe/melenchon-france-election-left.html?
 https://nytimes.com/2022/03/26/world/europe/biden-speech-putin-ukraine.html?searchResultPosition=3
 
 **The Making of Vladimir Putin**\
-`The 22-year arc of the Russian president’s exercise of power is a study in audacity.`\
+`Tracing Putin’s 22-year slide from statesman to tyrant.`\
 https://nytimes.com/2022/03/26/world/europe/vladimir-putin-russia.html?searchResultPosition=4
 
 **China Confirms All 132 People on China Eastern Plane Died in Crash**\
