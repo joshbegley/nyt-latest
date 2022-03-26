@@ -6,8 +6,8 @@ https://nytimes.com/2022/03/25/us/ginni-thomas-january-6-committee.html?searchRe
 `Yemen’s Houthi rebels attacked an oil storage facility in the city of Jeddah. It was the group’s latest attempt to inflict economic damage on Saudi Arabia after seven years of war in neighboring Yemen.`\
 https://nytimes.com/video/world/middleeast/100000008273090/saudi-arabia-aramco-fire.html?searchResultPosition=2
 
-**Biden Administration Likely to Offer Older Americans Second Booster Shots**\
-`Federal officials appear to be coalescing around a plan to offer people 65 and older — and possibly some younger adults — the option of another booster, in case infections surge again soon.`\
+**Biden Administration Plans to Offer Older Americans Second Booster Shots**\
+`The plan will offer people 65 and older — and possibly some younger adults — the option of another booster, in case infections surge again soon.`\
 https://nytimes.com/2022/03/25/us/politics/biden-second-booster-shot-older-americans.html?searchResultPosition=3
 
 **Questlove: Collecting Is an Act of Devotion, and Creation**\
