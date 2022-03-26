@@ -1,6 +1,6 @@
-**Several Explosions Heard in Western Ukraine, Near Polish Border**\
-`Fire and smoke were visible after several explosions were heard in central Lviv, in western Ukraine, not far from Poland’s border.`\
-https://nytimes.com/video/world/europe/100000008273479/ukraine-lviv-missile-strike.html?searchResultPosition=1
+****\
+`By Valerie Hopkins`\
+https://nytimes.com/video/embedded/world/europe/100000008273479/ukraine-lviv-missile-strike.html?searchResultPosition=1
 
 **After meeting with Ukraine refugees, Biden calls Putin ‘a butcher.’**\
 `His comment came as he visited a stadium in Warsaw where the Polish authorities are assisting the waves of people who are fleeing Ukraine.`\
