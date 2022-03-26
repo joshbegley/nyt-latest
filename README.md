@@ -1,4 +1,4 @@
-**A Public Health Catastrophe Looms in Ukraine, Experts Warn**\
+**Public Health Catastrophe Looms in Ukraine, Experts Warn**\
 `Even before the war, the country struggled with epidemics of H.I.V., tuberculosis and hepatitis. The conflict threatens to undo decades of progress.`\
 https://nytimes.com/2022/03/26/health/ukraine-health-tb-hiv.html?searchResultPosition=1
 
