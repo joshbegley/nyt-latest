@@ -18,8 +18,8 @@ https://nytimes.com/2022/03/26/sports/ncaabasketball/ncaa-tournament-womens-swee
 `After upsetting the No. 1 seeds Gonzaga and Arizona, Arkansas and Houston are looking for more. Duke and Villanova stand in their way.`\
 https://nytimes.com/2022/03/26/sports/march-madness-elite-8.html?searchResultPosition=5
 
-**Foo Fighters Drummer Taylor Hawkins Dies at 50**\
-`The band confirmed the death of the hard-hitting member, but no cause was given.`\
+**Taylor Hawkins, Foo Fighters’ Drummer, Dies at 50**\
+`The band confirmed the death of the hard-hitting, charismatic musician, but no cause was given.`\
 https://nytimes.com/2022/03/25/arts/music/taylor-hawkins-foo-fighters-dead.html?searchResultPosition=6
 
 **Mass Bleaching Event Hits Australia’s Great Barrier Reef**\
