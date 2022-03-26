@@ -1,10 +1,10 @@
-**N.C.A.A. Men’s Tournament: What to Watch as the Round of 8 Begins**\
-`After upsetting the No. 1 seeds Gonzaga and Arizona, Arkansas and Houston are looking for more. Duke and Villanova stand in their way.`\
-https://nytimes.com/2022/03/26/sports/march-madness-elite-8.html?searchResultPosition=1
-
 **N.C.A.A. Women’s Tournament: What to Watch as the Round of 16 Continues**\
 `Connecticut, despite its off year, is pushing to play for another championship. North Carolina State, after disappointment last year, is fighting for redemption.`\
-https://nytimes.com/2022/03/26/sports/ncaabasketball/ncaa-tournament-womens-sweet-16.html?searchResultPosition=2
+https://nytimes.com/2022/03/26/sports/ncaabasketball/ncaa-tournament-womens-sweet-16.html?searchResultPosition=1
+
+**N.C.A.A. Men’s Tournament: What to Watch as the Round of 8 Begins**\
+`After upsetting the No. 1 seeds Gonzaga and Arizona, Arkansas and Houston are looking for more. Duke and Villanova stand in their way.`\
+https://nytimes.com/2022/03/26/sports/march-madness-elite-8.html?searchResultPosition=2
 
 **Foo Fighters Drummer Taylor Hawkins Dies at 50**\
 `The band confirmed the death of the hard-hitting member, but no cause was given.`\
