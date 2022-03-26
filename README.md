@@ -1,4 +1,4 @@
-**Escaping Mariupol, One Family at a Time**\
+**A Desperate Escape From Mariupol**\
 `Ukrainian families are taking enormous risks to try to flee Mariupol, traveling through Russian checkpoints — and in some cases land mines — to try to get to safety.`\
 https://nytimes.com/video/world/europe/100000008269834/escaping-mariupol.html?searchResultPosition=1
 
