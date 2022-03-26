@@ -19,7 +19,7 @@ https://nytimes.com/2022/03/25/us/ginni-thomas-january-6-committee.html?searchRe
 https://nytimes.com/video/world/middleeast/100000008273090/saudi-arabia-aramco-fire.html?searchResultPosition=5
 
 **Biden Administration Plans to Offer Second Booster Shots to Those 50 and Up**\
-`The plan will give people the option of another booster without recommending it.`\
+`After fraught discussions, officials decided that another shot might save thousands of lives if a new coronavirus wave hit before the fall. The F.D.A. could authorize the boosters next week.`\
 https://nytimes.com/2022/03/25/us/politics/biden-second-booster-shot-older-americans.html?searchResultPosition=6
 
 **Questlove: Collecting Is an Act of Devotion, and Creation**\
