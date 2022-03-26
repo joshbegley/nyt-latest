@@ -18,7 +18,7 @@ https://nytimes.com/2022/03/26/us/politics/ginni-thomas-donald-trump.html?search
 `Jean-Luc Mélenchon, a skilled orator and veteran politician, hopes to become the first left-wing candidate since 2012 to reach the second round of France’s presidential election.`\
 https://nytimes.com/2022/03/26/world/europe/melenchon-france-election-left.html?searchResultPosition=5
 
-**Biden denounces Russian invasion, casting it as part of a decades-long attempt to crush democracies.**\
+**Bide denounces Russian invasion, casting it as part of a decades-long attempt to crush democracies.**\
 `Speaking in Warsaw, President Biden described Vladimir V. Putin as a tyrant with “a craving for absolute power and control.”`\
 https://nytimes.com/2022/03/26/world/europe/biden-speech-putin-ukraine.html?searchResultPosition=6
 
