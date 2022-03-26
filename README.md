@@ -10,7 +10,7 @@ https://nytimes.com/video/world/middleeast/100000008273090/saudi-arabia-aramco-f
 `Federal officials appear to be coalescing around a plan to offer people 65 and older — and possibly some younger adults — the option of another booster, in case infections surge again soon.`\
 https://nytimes.com/2022/03/25/us/politics/biden-second-booster-shot-older-americans.html?searchResultPosition=3
 
-**Collecting Is an Act of Devotion, and Creation**\
+**Questlove: Collecting Is an Act of Devotion, and Creation**\
 `A collection starts as a protest against the passage of time and ends as a celebration of it.`\
 https://nytimes.com/2022/03/25/opinion/questlove-inspiration-collection.html?searchResultPosition=4
 
