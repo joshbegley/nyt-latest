@@ -1,6 +1,6 @@
 **Is Freedom of Thought Curbed on Campus?**\
 `Part 2 of a series about free speech: Responses to a college student’s essay about what she described as self-censorship at colleges. In Part 1, readers responded to a March 20 editorial.`\
-https://nytimes.com/2022/03/27/opinion/letters/freedom-speech-college.html?searchResultPosition=1
+https://nytimes.com/2022/03/27/opinion/letters/free-speech-college.html?searchResultPosition=1
 
 **What to Cook This Week**\
 `Set yourself up for a night of snacking and Oscars viewing, then plan a few meals.`\
