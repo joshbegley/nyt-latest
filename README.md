@@ -1,4 +1,4 @@
-**Ukraine’s warning**\
+**Ukraine’s Warning**\
 `Russia’s war in Ukraine is especially dangerous after decades of relative peace worldwide.`\
 https://nytimes.com/2022/03/27/briefing/ukraines-russia-global-peace.html?searchResultPosition=1
 
