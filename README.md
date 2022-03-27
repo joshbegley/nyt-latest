@@ -23,7 +23,7 @@ https://nytimes.com/2022/03/26/world/europe/uk-afghan-refugees-ukraine.html?sear
 https://nytimes.com/2022/03/26/world/europe/biden-ukraine-poland-speech.html?searchResultPosition=7
 
 **Biden to Include Minimum Tax on Billionaires in Budget Proposal**\
-`The tax would require that American households worth more than $100 million pay a rate of at least 20 percent on their full income, as well as unrealized gains in the value of liquid assets like stocks.`\
+`The tax would require that American households worth more than $100 million pay a rate of at least 20 percent on their income as well as unrealized gains in the value of liquid assets like stocks.`\
 https://nytimes.com/2022/03/26/us/politics/biden-billionaires-minimum-tax.html?searchResultPosition=8
 
 **Colorado Jury Awards $14 Million to Demonstrators Injured in George Floyd Protests**\
