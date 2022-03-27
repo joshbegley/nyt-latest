@@ -6,9 +6,9 @@ https://nytimes.com/2022/03/26/sports/ncaabasketball/duke-arkansas-score.html?se
 `The Wildcats outlasted a Cougars team that looked very much like a mirror image.`\
 https://nytimes.com/2022/03/26/sports/ncaabasketball/villanova-houston-score.html?searchResultPosition=2
 
-**Lin-Manuel Miranda will miss the Oscars after his wife tests positive for Covid.**\
+**Lin-Manuel Miranda will miss the Oscars after his wife tests positive for the coronavirus.**\
 `Mr. Miranda is up for an Academy Award for the song “Dos Oruguitas” from the Disney musical “Encanto.”`\
-https://nytimes.com/2022/03/26/world/lin-manuel-miranda-oscars.html?searchResultPosition=3
+https://nytimes.com/2022/03/26/movies/lin-manuel-miranda-oscars.html?searchResultPosition=3
 
 **Samuel L. Jackson, Danny Glover, Liv Ullmann and Elaine May Get Honorary Oscars**\
 `Denzel Washington and Bill Murray were on hand to present the awards during the off-camera ceremony.`\
