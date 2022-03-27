@@ -4,7 +4,7 @@ https://nytimes.com/2022/03/27/sports/hubert-davis-shaheen-holloway-ncaa-tournam
 
 **Nicole Kidman and Sophia Loren at Armani Pre-Oscars Party**\
 `And a parade of stars, including Kristen Stewart and Joan Collins, at Chanel dinner.`\
-https://nytimes.com/2022/03/27/style/nicole-kidman-and-sophia-loren-at-armani-pre-oscars-party.html?searchResultPosition=2
+https://nytimes.com/2022/03/27/style/nicole-kidman-armani-oscars-party.html?searchResultPosition=2
 
 **North Carolina Ends St. Peter’s Dream Season**\
 `The Tar Heels advanced to play Duke in a Final Four matchup. It will be the first N.C.A.A. tournament showdown between the two Tobacco Road rivals.`\
