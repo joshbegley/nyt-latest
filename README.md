@@ -6,7 +6,7 @@ https://nytimes.com/2022/03/26/world/lin-manuel-miranda-oscars.html?searchResult
 `Denzel Washington and Bill Murray were on hand to present the awards during the off-camera ceremony.`\
 https://nytimes.com/2022/03/26/movies/governors-awards-samuel-l-jackson-danny-glover-liv-ullmann-elaine-may.html?searchResultPosition=2
 
-**Nebraska Congressman Resigns After Being Found Guilty of Lying to F.B.I.**\
+**Nebraska Congressman to Resign After Being Found Guilty of Lying to F.B.I.**\
 `Representative Jeff Fortenberry announced he would leave his seat at the end of the month, just days after he was convicted on charges of lying to investigators about an illegal campaign donation.`\
 https://nytimes.com/2022/03/26/us/politics/jeff-fortenberry-resigns.html?searchResultPosition=4
 
