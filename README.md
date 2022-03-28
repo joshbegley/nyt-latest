@@ -30,11 +30,11 @@ https://nytimes.com/2022/03/28/technology/eco-delta-smart-village-busan-south-ko
 `A program in Melbourne, Australia, that tracks every public tree — and even gives each an email address — is seen as a way to manage climate change.`\
 https://nytimes.com/2022/03/28/special-series/befriending-trees-to-lower-a-citys-temperature.html?searchResultPosition=8
 
-**A Family Is Delighted, and a Bit Surprised, to Move to Brooklyn**\
-`Longtime Manhattanites wanted to shorten their 8-year-old son’s commute to school. They found a stronger sense of community on the other side of the East River.`\
-https://nytimes.com/2022/03/28/realestate/renters-brooklyn.html?searchResultPosition=9
-
 **Does Social Media Make Teens Unhappy? It May Depend on Their Age.**\
 `A large study in Britain found two specific windows of adolescence when some teenagers are most sensitive to social media.`\
-https://nytimes.com/2022/03/28/science/adolescents-social-media.html?searchResultPosition=10
+https://nytimes.com/2022/03/28/science/social-media-teens-mental-health.html?searchResultPosition=9
+
+**A Family Is Delighted, and a Bit Surprised, to Move to Brooklyn**\
+`Longtime Manhattanites wanted to shorten their 8-year-old son’s commute to school. They found a stronger sense of community on the other side of the East River.`\
+https://nytimes.com/2022/03/28/realestate/renters-brooklyn.html?searchResultPosition=10
 
