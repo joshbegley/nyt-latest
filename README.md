@@ -1,4 +1,4 @@
-**Will Smith Owned the Williams Sisters’ Story Onscreen. Then He Stole Their Moment**\
+**Will Smith Owned the Williams Sisters’ Story Onscreen. Then He Stole Their Moment.**\
 `An Oscar night that should have affirmed Serena and Venus’s rise to stardom instead played out in a way they have seen before — triumph tempered by mixed emotions.`\
 https://nytimes.com/2022/03/28/sports/tennis/oscars-will-smith-williams.html?searchResultPosition=1
 
