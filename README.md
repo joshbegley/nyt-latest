@@ -2,7 +2,7 @@
 `On a night when “CODA” became the first film from a streaming service to win best picture, the focus was on Will Smith’s altercation with Chris Rock.`\
 https://nytimes.com/2022/03/28/movies/the-oscars-2022.html?searchResultPosition=1
 
-**The Oscars Came Back, Busy and Punchy**\
+**An Onstage Slap Gives the Oscars More Drama Than It Bargained For**\
 `The show strained to offer something for everyone. But it could still create shocking moments.`\
 https://nytimes.com/2022/03/28/arts/television/oscars-review-chris-rock-will-smith.html?searchResultPosition=2
 
