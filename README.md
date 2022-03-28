@@ -1,40 +1,40 @@
-**Reading Poetry With the Poem Column**\
-`In this lesson, we invite students to read a poem selected by New York Times editors, then find their own poem and write about what it means to them.`\
-https://nytimes.com/2022/03/28/learning/lesson-plans/reading-poetry-with-the-poem-column.html?searchResultPosition=1
+**‘High-Rise Hell’: N.Y.C. Skyscraper’s Elevator Breakdowns Strand Tenants**\
+`A luxury residential building in the financial district with more than 750 apartments has been experiencing lengthy elevator outages since the fall.`\
+https://nytimes.com/2022/03/28/us/nyc-elevator-outage-20-exchange-place.html?searchResultPosition=1
 
-**When Nokia Pulled Out of Russia, a Vast Surveillance System Remained**\
-`The Finnish company played a key role in enabling Russia’s cyberspying, documents show, raising questions of corporate responsibility.`\
-https://nytimes.com/2022/03/28/technology/nokia-russia-surveillance-system-sorm.html?searchResultPosition=2
+**In Wisconsin: Stowing Mowers, Pleasing Bees**\
+`Can the No Mow May movement help transform the traditional American lawn — a manicured carpet of grass — into something more ecologically beneficial?`\
+https://nytimes.com/2022/03/28/travel/no-mow-may-wisconsin.html?searchResultPosition=2
 
-**Rumble, the Right’s Go-To Video Site, Has Much Bigger Ambitions**\
-`The company, supported by Donald Trump, Peter Thiel and other prominent conservatives, wants to help build a “new internet” independent from Silicon Valley’s titans.`\
-https://nytimes.com/2022/03/28/business/media/rumble-conservatives.html?searchResultPosition=3
+**Are You ‘Mask Fishing’?**\
+`As some Covid anxieties have receded, teenagers have a new word for the fear of shedding their masks to reveal their faces.`\
+https://nytimes.com/2022/03/28/style/covid-teens-face-masks.html?searchResultPosition=3
 
-**From ‘Illegal’ Hotel to Housing for the Homeless on Upper West Side**\
-`The Manhattan building used to attract tourists. But New York City officials hope its transformation is a road map for the city’s future.`\
-https://nytimes.com/2022/03/28/nyregion/royal-park-hotel-manhattan-homeless.html?searchResultPosition=4
+**New Supply Chain Risk: 22,000 Dockworkers Who May Soon Strike**\
+`With the contract of union workers at West Coast ports nearing expiration, the prospect of a labor impasse threatens another shock to the global economy.`\
+https://nytimes.com/2022/03/28/business/dockworkers-strike-supply-chain.html?searchResultPosition=4
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/03/28/crosswords/spelling-bee-forum.html?searchResultPosition=5
+**A New City, Built Upon Data, Takes Shape in South Korea**\
+`Fifty-four families volunteered to share data on everything from sleeping habits to trash volume to help developers make a city from scratch in Busan.`\
+https://nytimes.com/2022/03/28/technology/eco-delta-smart-village-busan-south-korea.html?searchResultPosition=5
 
-**2022 Oscars Red Carpet**\
-`2022 Oscars Red Carpet`\
-https://nytimes.com/slideshow/2022/03/28/homepage/2022-oscars-red-carpet.html?searchResultPosition=6
+**Befriending Trees to Lower a City’s Temperature**\
+`A program in Melbourne, Australia, that tracks every public tree — and even gives each an email address — is seen as a way to manage climate change.`\
+https://nytimes.com/2022/03/28/special-series/befriending-trees-to-lower-a-citys-temperature.html?searchResultPosition=6
 
-**What’s on TV This Week: ‘How to Survive a Pandemic’ and the Grammy Awards**\
-`A documentary about the race for the Covid-19 vaccine airs on HBO. And this year’s Grammy Awards are on CBS.`\
-https://nytimes.com/2022/03/28/arts/television/whats-on-tv-how-to-survive-a-pandemic-grammy-awards.html?searchResultPosition=7
+**A Family Is Delighted, and a Bit Surprised, to Move to Brooklyn**\
+`Longtime Manhattanites wanted to shorten their 8-year-old son’s commute to school. They found a stronger sense of community on the other side of the East River.`\
+https://nytimes.com/2022/03/28/realestate/renters-brooklyn.html?searchResultPosition=7
 
-**No Corrections: March 28, 2022**\
-`No corrections appeared in print on Monday, March 28, 2022.`\
-https://nytimes.com/2022/03/28/pageoneplus/no-corrections-march-28-2022.html?searchResultPosition=8
+**Does Social Media Make Teens Unhappy? It May Depend on Their Age.**\
+`A large study in Britain found two specific windows of adolescence when some teenagers are most sensitive to social media.`\
+https://nytimes.com/2022/03/28/science/adolescents-social-media.html?searchResultPosition=8
 
-**Quotation of the Day: Star Anchor Says Shift at Fox News Led to Exit**\
-`Quotation of the Day for Monday, March 28, 2022.`\
-https://nytimes.com/2022/03/28/todayspaper/quotation-of-the-day-star-anchor-says-shift-at-fox-news-led-to-exit.html?searchResultPosition=9
+**Washington Is Getting Extra Serious and Extra Silly**\
+`Not for the first time. `\
+https://nytimes.com/2022/03/28/opinion/biden-ukraine-jackson-cruz.html?searchResultPosition=9
 
-**Your Monday Briefing**\
-`Russia’s new tactics in Ukraine.`\
-https://nytimes.com/2022/03/28/briefing/ukraine-russia-tactics-arctic-military.html?searchResultPosition=10
+**Can Controlling Vehicles Make Streets Safer and More Climate Friendly?**\
+`Sweden has long been at the forefront of road innovation and is again leading the way with trials of a technology known as geofencing.`\
+https://nytimes.com/2022/03/28/world/europe/geofencing-sweden.html?searchResultPosition=10
 
