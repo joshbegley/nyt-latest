@@ -2,7 +2,7 @@
 `The president’s budget addresses the main attack lines that Republicans are using against him and his Democratic allies in Congress in the run-up to the midterm congressional elections.`\
 https://nytimes.com/2022/03/28/us/politics/budget-biden-politics.html?searchResultPosition=1
 
-**Missing From the Federal Budget: Biden’s Signature Policy Agenda**\
+**Missing From Biden’s Budget: His Signature Policy Agenda**\
 `The Build Back Better package that has consumed Congress for months was relegated to the footnotes.`\
 https://nytimes.com/2022/03/28/upshot/budget-biden-missing-agenda.html?searchResultPosition=2
 
