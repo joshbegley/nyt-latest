@@ -1,5 +1,5 @@
 **No Joke: When Will Smith Slapped Chris Rock at the Oscars**\
-`A sampling of the reaction to the slap that was the talk of the Oscars.`\
+`A sampling of the reaction to the slap that was the talk of the Academy Awards.`\
 https://nytimes.com/2022/03/28/opinion/letters/will-smith-chris-rock-oscars.html?searchResultPosition=1
 
 **Emphasizing fiscal responsibility, Biden looks to win support from moderates.**\
