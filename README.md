@@ -1,6 +1,6 @@
 **President Macron’s Unending Russia Diplomacy**\
 `The French leader’s outreach to his counterparts in Russia and Ukraine is stubborn. Whether it is also effective remains to be seen.`\
-https://nytimes.com/2022/03/28/world/europe/president-macrons-unending-russia-diplomacy.html?searchResultPosition=1
+https://nytimes.com/2022/03/28/world/europe/macron-france-russia-ukraine.html?searchResultPosition=1
 
 **Does the Academy Hold Movies in Contempt? Our Critics Wonder.**\
 `Whatever you make of the slap, the telecast as a whole was a frustrating night of television that seemed based on a misunderstanding of what makes films great.`\
@@ -31,7 +31,7 @@ https://nytimes.com/2022/03/28/dining/maison-jar-brooklyn.html?searchResultPosit
 https://nytimes.com/2022/03/28/dining/le-french-wine-shop-vin-sur-vingt.html?searchResultPosition=8
 
 **Snow Squall Leads to 50-Car Pileup on Pennsylvania Highway**\
-`Several tractor-trailers were involved in the chain-reaction crash on Interstate 81, about 50 miles northeast of Harrisburg, Pa.`\
+`Several tractor-trailers were involved in the chain-reaction crash on Interstate 81, about 50 miles northeast of Harrisburg, Pa. The wreckage extended for about a mile, the authorities said.`\
 https://nytimes.com/2022/03/28/us/crash-pennsylvania-snow.html?searchResultPosition=9
 
 **A Violinist Rethinks Her Devotion to Music, With Emotion and Erudition**\
