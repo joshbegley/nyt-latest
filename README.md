@@ -2,8 +2,8 @@
 `Whatever you make of the slap, the telecast as a whole was a frustrating night of television that seemed based on a misunderstanding of what makes films great.`\
 https://nytimes.com/2022/03/28/movies/academy-awards-oscars-critics.html?searchResultPosition=1
 
-**Biden stands by his Putin comments, saying he was expressing moral outrage and not a change in U.S. policy.**\
-`By Michael D. Shear`\
+**Biden says his Putin comments were fueled by moral outrage, not a U.S. policy change.**\
+`The Kremlin said it would closely monitor any statements made by Biden.`\
 https://nytimes.com/2022/03/28/world/europe/biden-putin-russia-ukraine.html?searchResultPosition=2
 
 **From Kind Bars to Vegan Mexican Food**\
