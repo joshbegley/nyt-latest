@@ -36,5 +36,5 @@ https://nytimes.com/2022/03/28/climate/sponge-cities-philadelphia-wuhan-malmo.ht
 
 **‘High-Rise Hell’: N.Y.C. Skyscraper’s Elevator Breakdowns Strand Tenants**\
 `A luxury residential building in the financial district with more than 750 apartments has been experiencing lengthy elevator outages since the fall.`\
-https://nytimes.com/2022/03/28/us/nyc-elevator-outage-20-exchange-place.html?searchResultPosition=10
+https://nytimes.com/2022/03/28/nyregion/nyc-elevator-outage-20-exchange-place.html?searchResultPosition=10
 
