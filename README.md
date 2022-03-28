@@ -4,7 +4,7 @@ https://nytimes.com/2022/03/28/dining/somos-mexican-food.html?searchResultPositi
 
 **Where to Stream ‘CODA,’ ‘Dune’ and More 2022 Oscar Winners**\
 `All of the night’s winners can be watched at home. Here’s a guide to help you find the honorees.`\
-https://nytimes.com/2022/03/28/movies/stream-oscars-winners.html?searchResultPosition=2
+https://nytimes.com/2022/03/28/movies/oscars-streaming-winners-coda.html?searchResultPosition=2
 
 **Honduran ex-President Loses Appeal to Stop Extradition to the U.S.**\
 `The Honduran Supreme Court ruled against a motion to block the extradition request filed by the United States, exhausting Juan Orlando Hernández’s last legal recourse to avoid facing trial abroad.`\
@@ -28,7 +28,7 @@ https://nytimes.com/2022/03/28/books/review-uncommon-measure-natalie-hodges.html
 
 **How We Verified Russian Radio Chatter**\
 `The Times’s Visual Investigations team analyzed dozens of battlefield radio transmissions between Russian forces during an initial invasion of the town of Makariv in Ukraine.`\
-https://nytimes.com/interactive/2022/03/28/world/europe/russian-radio-ukraine-war.html?searchResultPosition=8
+https://nytimes.com/interactive/2022/03/28/world/europe/reskin-russian-radio-ukraine-war.html?searchResultPosition=8
 
 **‘Camelot’ Is Returning to Broadway, Reimagined by Aaron Sorkin**\
 `The Lincoln Center Theater production, with a new book by Sorkin and directed by Bartlett Sher, will open in December.`\
