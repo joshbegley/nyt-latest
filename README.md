@@ -16,7 +16,7 @@ https://nytimes.com/2022/03/28/us/politics/marco-rubio-china-republicans.html?se
 
 **Local Election Officials in Georgia Oppose G.O.P. Election Bill**\
 `As Republicans rush to pass a second round of new voting and election rules, a bipartisan group of election officials is fighting back.`\
-https://nytimes.com/2022/03/28/us/politics/local-election-officials-georgia-oppose-gop-election-bill.html?searchResultPosition=5
+https://nytimes.com/2022/03/28/us/politics/georgia-election-bill.html?searchResultPosition=5
 
 **FedEx’s founder, Fred Smith, will step down as C.E.O.**\
 `Raj Subramaniam, the current president and chief operating officer, will succeed Mr. Smith, according to a news release issued by FedEx.`\
