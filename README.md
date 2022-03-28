@@ -27,7 +27,7 @@ https://nytimes.com/2022/03/28/us/covid-california.html?searchResultPosition=6
 https://nytimes.com/2022/03/28/style/oscars-fashion-red-carpet.html?searchResultPosition=7
 
 **Kyrie Irving Makes His Brooklyn Return**\
-`With new vaccine rules in place, the Nets can finally play their star guard at the Barclays Center.`\
+`With new vaccine rules in place, the Nets can finally play their star guard at Barclays Center.`\
 https://nytimes.com/2022/03/28/sports/basketball/kyrie-irving-brooklyn-nets-return.html?searchResultPosition=8
 
 **Pope Meets With Groups Requesting Apology for Indigenous Schools**\
