@@ -26,7 +26,7 @@ https://nytimes.com/2022/03/28/dining/caldo-de-costilla-beef-and-potato-soup.htm
 `A sampling of the reaction to the slap that was the talk of the Academy Awards.`\
 https://nytimes.com/2022/03/28/opinion/letters/will-smith-chris-rock-oscars.html?searchResultPosition=7
 
-**Emphasizing fiscal responsibility, Biden proposes cutting deficit by $1 trillion over a decade.**\
+**Emphasizing fiscal responsibility, Biden proposes cutting the deficit by $1 trillion over a decade.**\
 `President Biden’s 2023 budget request aims shrink the federal budget deficit by $1 trillion over a decade.`\
 https://nytimes.com/2022/03/28/us/politics/biden-budget-deficit.html?searchResultPosition=8
 
