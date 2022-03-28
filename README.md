@@ -12,7 +12,7 @@ https://nytimes.com/2022/03/28/us/politics/budget-biden-politics.html?searchResu
 
 **Missing From Biden’s Budget: His Signature Policy Agenda**\
 `The Build Back Better package that has consumed Congress for months was relegated to the footnotes.`\
-https://nytimes.com/2022/03/28/upshot/budget-biden-missing-agenda.html?searchResultPosition=4
+https://nytimes.com/2022/03/28/upshot/budget-biden-policy-agenda.html?searchResultPosition=4
 
 **Israeli Summit Mixes Historic Symbolism With Sharp Disputes**\
 `The meeting of diplomats from Israel, the U.S. and four Arab countries was momentous just for taking place. But in private, they tried to hash out differences over Iran and the war in Ukraine.`\
