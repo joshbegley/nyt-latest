@@ -16,7 +16,7 @@ https://nytimes.com/2022/03/28/business/media/oscars-ratings.html?searchResultPo
 
 **Administration moves to make funding for Indian Health Service mandatory.**\
 `The budget request for the Indian Health Service calls for increasing the agency’s budget to $9.1 billion, a more than 20 percent increase from the previous funding level.`\
-https://nytimes.com/2022/03/28/us/politics/administration-moves-to-make-funding-for-indian-health-service-mandatory.html?searchResultPosition=5
+https://nytimes.com/2022/03/28/us/politics/biden-indian-health-service-funding.html?searchResultPosition=5
 
 **A Fast, Frugal Track to a Cook’s Career? Community College.**\
 `As culinary programs dwindle and restaurants hunt for help, these local campuses are adding state-of-the-art cooking schools at a friendly price.`\
