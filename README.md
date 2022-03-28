@@ -35,6 +35,6 @@ https://nytimes.com/2022/03/27/world/europe/russia-media-zelensky.html?searchRes
 https://nytimes.com/2022/03/27/us/politics/biden-ukraine.html?searchResultPosition=9
 
 **Future Was Rosy for St. Peter’s and U.N.C. Coaches, Win or Lose**\
-`Hubert Davis stayed on track to become the first first-year coach to win the N.C.A.A. tournament, and Shaheen Holloway was still in a position to earn a huge payday.`\
+`Hubert Davis stayed on track to become the first first-year coach to win the N.C.A.A. tournament, and Shaheen Holloway is still in a position to earn a huge payday.`\
 https://nytimes.com/2022/03/27/sports/hubert-davis-shaheen-holloway-ncaa-tournament.html?searchResultPosition=10
 
