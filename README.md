@@ -8,7 +8,7 @@ https://nytimes.com/2022/03/29/sports/joan-joyce-dead.html?searchResultPosition=
 
 **Supreme Court, in Case on Veteran Hurt by Burn Pits, Debates War Powers**\
 `The justices seemed split on whether Congress can allow suits against states that discriminate against injured service members returning from conflicts.`\
-https://nytimes.com/2022/03/29/us/politics/supreme-court-burn-pits.html?searchResultPosition=3
+https://nytimes.com/2022/03/29/us/politics/supreme-court-congress-states-military.html?searchResultPosition=3
 
 **Biden Pays Respects to Don Young, Alaska Congressman**\
 `Mr. Young lay in state at the Capitol, where he was honored for his status as the longest-serving House Republican. The former representative of Alaska was 88.`\
