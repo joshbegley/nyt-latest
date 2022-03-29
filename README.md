@@ -19,7 +19,7 @@ https://nytimes.com/2022/03/29/world/europe/russia-ukraine-peace-talks-istanbul.
 https://nytimes.com/2022/03/29/world/europe/britain-russian-superyacht.html?searchResultPosition=5
 
 **Palestinian Gunman Kills 4 in Israel’s Fifth Attack in Recent Days**\
-`Israeli medics said that four people were killed and at least one other was wounded in an attack in a Tel Aviv suburb.`\
+`Israeli medics said that four people were killed in a Tel Aviv suburb, bringing the number of Israelis killed in the past two weeks to 10.`\
 https://nytimes.com/2022/03/29/world/middleeast/israel-shooting-deaths.html?searchResultPosition=6
 
 **G.O.P. Presses for Greater Edge on Florida and Ohio Congressional Maps**\
