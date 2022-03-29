@@ -2,7 +2,7 @@
 `The British authorities have joined those nations putting pressure on Vladimir Putin by targeting the assets of his wealthy supporters.`\
 https://nytimes.com/2022/03/29/world/europe/britain-russian-superyacht.html?searchResultPosition=1
 
-**Gunman Kills At Least 4 in Israel’s Fifth Attack in Recent Days**\
+**Palestinian Gunman Kills 4 in Israel’s Fifth Attack in Recent Days**\
 `Israeli medics said that four people were killed and at least one other was wounded in an attack in a Tel Aviv suburb.`\
 https://nytimes.com/2022/03/29/world/middleeast/israel-shooting-deaths.html?searchResultPosition=2
 
