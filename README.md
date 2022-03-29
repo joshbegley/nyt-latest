@@ -7,7 +7,7 @@ https://nytimes.com/2022/03/28/crosswords/daily-puzzle-2022-03-29.html?searchRes
 https://nytimes.com/2022/03/28/us/politics/vaccines-migrants-border.html?searchResultPosition=2
 
 **For UConn, a Rougher Path Than Usual Still Leads to the Final Four**\
-`After injuries, losses to unranked teams and a scare in the second round of the tournament, the Huskies advanced to their 14th straight Final Four by beating No. 1-seeded North Carolina State.`\
+`After injuries, losses to unranked teams and a second-round scare, the Huskies advanced to their 14th straight Final Four by beating No. 1-seeded North Carolina State.`\
 https://nytimes.com/2022/03/28/sports/nc-state-uconn-score.html?searchResultPosition=3
 
 **M.I.T. Will Again Require SAT and ACT Scores**\
