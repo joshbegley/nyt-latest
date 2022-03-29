@@ -22,8 +22,8 @@ https://nytimes.com/2022/03/29/technology/coda-apple-tv-streaming.html?searchRes
 `A third location for Momoya Soho, a lounge disguised as a locksmith and shoe repair, and more restaurant news.`\
 https://nytimes.com/2022/03/29/dining/nyc-restaurant-openings.html?searchResultPosition=6
 
-**In Defense of Thin Skin**\
-`Jada Pinkett Smith shouldn’t have to ‘take the joke.’ Neither should you. `\
+**Jada Pinkett Smith Shouldn’t Have to ‘Take a Joke.’ Neither Should You.**\
+`A defense of thin skin.`\
 https://nytimes.com/2022/03/29/opinion/culture/will-smith-oscars-roxane-gay.html?searchResultPosition=7
 
 **Entrepreneurship Is Alive in N.Y. Public Housing. Will the City Step Up?**\
