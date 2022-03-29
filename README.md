@@ -1,6 +1,6 @@
 **Oscars audience grew by 555,000 after Will Smith slapped Chris Rock.**\
 `But the largest audience of the night was tuned in earlier, during Troy Kotsur’s win for best supporting actor.`\
-https://nytimes.com/2022/03/29/business/oscars-ratings-will-smith-chris-rock.html?searchResultPosition=1
+https://nytimes.com/2022/03/29/business/media/oscars-ratings-will-smith-chris-rock.html?searchResultPosition=1
 
 **The BA.2 subvariant of Omicron accounts for over half of new U.S. coronavirus cases, the C.D.C. estimates.**\
 `Scientists have been keeping an eye on BA.2, one of three distinct genetically distinct varieties of the Omicron variant of the coronavirus,`\
