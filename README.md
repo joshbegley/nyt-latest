@@ -31,7 +31,7 @@ https://nytimes.com/2022/03/29/health/ba2-variant-covid-cases.html?searchResultP
 https://nytimes.com/2022/03/29/health/alcohol-drinking-heart.html?searchResultPosition=8
 
 **N.F.L. to Change Postseason Overtime Rule After Bills’ Playoff Loss**\
-`Each team will now get an overtime possession in playoff games.`\
+`Each team will now get at least one overtime possession in playoff games.`\
 https://nytimes.com/2022/03/29/sports/football/nfl-overtime-rules-playoffs.html?searchResultPosition=9
 
 **Tiny Love Stories: ‘Our Most Mundane Conversations Became Contentious’**\
