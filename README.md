@@ -22,7 +22,7 @@ https://nytimes.com/2022/03/29/health/ba2-variant-covid-cases.html?searchResultP
 `By studying the relationship between gene variants and alcohol consumption, scientists found no real cardiac benefit to drinking, even modestly.`\
 https://nytimes.com/2022/03/29/health/alcohol-drinking-heart.html?searchResultPosition=6
 
-**Bills’ Playoff Loss Spurs N.F.L. to Change Playoffs’ Overtime Rule**\
+**Bills’ Loss Spurs N.F.L. to Change Playoffs’ Overtime Rule**\
 `Each team will get an overtime possession in playoff games.`\
 https://nytimes.com/2022/03/29/sports/football/nfl-overtime-rules-playoffs.html?searchResultPosition=7
 
