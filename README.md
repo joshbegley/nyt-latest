@@ -1,4 +1,4 @@
-**Oscars viewership grew by 555,000 people after Will Smith slapped Chris Rock.**\
+**Oscars audience grew by 555,000 after Will Smith slapped Chris Rock.**\
 `But the largest audience of the night was tuned in earlier, during Troy Kotsur’s win for best supporting actor.`\
 https://nytimes.com/2022/03/29/business/oscars-ratings-will-smith-chris-rock.html?searchResultPosition=1
 
