@@ -1,40 +1,40 @@
+**As CNN+ debuts new show, Chris Wallace talks about leaving Fox News.**\
+`Mr. Wallace spoke to The Times about his decision to leave Fox News and join the new streaming platform.`\
+https://nytimes.com/2022/03/29/business/as-cnn-debuts-new-show-chris-wallace-talks-about-leaving-fox-news.html?searchResultPosition=1
+
+**Weekly News Quiz for Students: Academy Awards, National Park Birthday, Teenage Slang**\
+`Have you been paying attention to the news recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2022/03/29/learning/29Student-News-Quiz.html?searchResultPosition=2
+
 **Inside Biden’s $5.8 Trillion Wish List**\
 `The White House’s latest budget proposal enumerates its biggest policy priorities.`\
-https://nytimes.com/2022/03/29/business/dealbook/biden-budget-policy.html?searchResultPosition=1
+https://nytimes.com/2022/03/29/business/dealbook/biden-budget-policy.html?searchResultPosition=3
 
 **Art Market Grew 29% in 2021, Says Key Report (Though Some Doubt It)**\
 `A much-referenced annual study found the market had recovered to prepandemic levels. Some industry observers question the methodology.`\
-https://nytimes.com/2022/03/29/arts/design/art-basel-ubs-report-2022.html?searchResultPosition=2
+https://nytimes.com/2022/03/29/arts/design/art-basel-ubs-report-2022.html?searchResultPosition=4
 
 **Could the U.S. do More?**\
 `President Biden says that Ukraine has the full support of the U.S. Volodymyr Zelensky disagrees.`\
-https://nytimes.com/2022/03/29/briefing/ukraine-zelensky-west-response.html?searchResultPosition=3
+https://nytimes.com/2022/03/29/briefing/ukraine-zelensky-west-response.html?searchResultPosition=5
 
 **Transcript: Ezra Klein Interviews Larry Summers**\
 `A conversation with former Treasury secretary Larry Summers.`\
-https://nytimes.com/2022/03/29/podcasts/transcript-ezra-klein-interviews-larry-summers.html?searchResultPosition=4
+https://nytimes.com/2022/03/29/podcasts/transcript-ezra-klein-interviews-larry-summers.html?searchResultPosition=6
 
 **Planet Word Survived the Pandemic to Inspire a Love of Language**\
 `Lexicon Lane, the newest exhibition at Planet Word, opened March 26 and offers word-sleuthing adventures to puzzle-loving visitors.`\
-https://nytimes.com/2022/03/29/crosswords/language-planetword-museum.html?searchResultPosition=5
+https://nytimes.com/2022/03/29/crosswords/language-planetword-museum.html?searchResultPosition=7
 
 **Senator Joe Manchin’s Conflict of Interest**\
 `How the West Virginia lawmaker intervened on behalf of a coal plant, and earned millions along the way.`\
-https://nytimes.com/2022/03/29/podcasts/the-daily/joe-manchin-coal-plant-conflict.html?searchResultPosition=6
+https://nytimes.com/2022/03/29/podcasts/the-daily/joe-manchin-coal-plant-conflict.html?searchResultPosition=8
 
 **In Watches, What Does Luxury Mean Now?**\
 `Gen Z buyers, for whom inclusivity, sustainability, transparency and traceability are not negotiable, already have changed the way brands do business.`\
-https://nytimes.com/2022/03/29/fashion/watches-luxury-sustainability-social-responsibility.html?searchResultPosition=7
+https://nytimes.com/2022/03/29/fashion/watches-luxury-sustainability-social-responsibility.html?searchResultPosition=9
 
 **Jean-Claude Biver Announces His Own Watch Brand**\
 `The industry veteran and his son Pierre intend to offer the first JC Biver models late this year.`\
-https://nytimes.com/2022/03/29/fashion/watches-jean-claude-biver-switzerland.html?searchResultPosition=8
-
-**Watch Experts’ Tips: What to See and Where to Eat in Geneva**\
-`As Watches and Wonders returns as a live fair, here are some insider recommendations.`\
-https://nytimes.com/2022/03/29/fashion/watches-restaurants-tour-geneva-switzerland.html?searchResultPosition=9
-
-**At a Watch Retailer’s Helm During an Era of Change**\
-`Charlotta Eriksson, chief executive of Nymans Ur 1851, says she is steering the company through a transformative time.`\
-https://nytimes.com/2022/03/29/fashion/watches-nymans-ur-1851-stockholm.html?searchResultPosition=10
+https://nytimes.com/2022/03/29/fashion/watches-jean-claude-biver-switzerland.html?searchResultPosition=10
 
