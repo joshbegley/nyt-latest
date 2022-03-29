@@ -2,8 +2,8 @@
 `Mr. Young lay in state at the Capitol, where he was honored for his status as the longest-serving House Republican. The former representative of Alaska was 88.`\
 https://nytimes.com/video/us/politics/100000008278587/biden-don-young-capitol.html?searchResultPosition=1
 
-**Russia Says It Will Ease Bombing of a Ukrainian City Near Kyiv**\
-`But its offer, if honored, comes too late for the thousands who have already fled Chernihiv, risking the vicious siege.`\
+**A Vow to Ease Bombing Is Too Late for Many in Ukraine City Near Kyiv**\
+`Russia’s offer, if honored, comes too late for the thousands who have already fled Chernihiv.`\
 https://nytimes.com/2022/03/29/world/europe/russia-says-it-will-ease-bombing-of-a-ukrainian-city-near-kyiv.html?searchResultPosition=2
 
 **Christopher Alexander, Architect Who Humanized Urban Design, Dies at 85**\
