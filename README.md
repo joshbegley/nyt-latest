@@ -4,7 +4,7 @@ https://nytimes.com/2022/03/29/dining/desserts-that-rival-the-main-menu.html?sea
 
 **How Australia Became an N.B.A. Point Guard Pipeline**\
 `The N.B.A. Global Academy has developed a reputation for training elite young passers, including Josh Giddey, the sixth overall pick in last year’s draft.`\
-https://nytimes.com/2022/03/29/sports/how-australia-became-an-nba-point-guard-pipeline.html?searchResultPosition=2
+https://nytimes.com/2022/03/29/sports/nba-australia-guards.html?searchResultPosition=2
 
 **‘Royalty Free: The Music of Kevin MacLeod’ Review: Into the Spotlight**\
 `A musician who gives away most of his music may be heard everywhere, but few know who he is.`\
