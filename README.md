@@ -1,40 +1,40 @@
-**London Police Issue Fines for Downing Street Lockdown Parties**\
-`There was no indication of whether Prime Minister Boris Johnson was penalized, but the police decision puts a perilous political scandal back in the spotlight.`\
-https://nytimes.com/2022/03/29/world/europe/uk-lockdown-parties-fines.html?searchResultPosition=1
+**How Robots Can Assist Students With Disabilities**\
+`New tools use artificial intelligence to assist students with autism and dyslexia and address accessibility for those who are blind or deaf.`\
+https://nytimes.com/2022/03/29/technology/ai-robots-students-disabilities.html?searchResultPosition=1
 
-**Solomon Islands’ Leader Calls Concern Over China Security Deal ‘Insulting’**\
-`Prime Minister Manasseh Sogavare criticized Australia and New Zealand as assuming that the island nation could not act in its own best interests.`\
-https://nytimes.com/2022/03/29/world/asia/solomon-islands-china.html?searchResultPosition=2
+**6 Advice Podcasts to Navigate the Weirdness of Daily Life**\
+`After two years of the pandemic, these shows — covering sex and dating, office politics and family dynamics — will help you manage the return to normalcy.`\
+https://nytimes.com/2022/03/29/arts/podcasts-advice-etiquette.html?searchResultPosition=2
 
-**A Brutal Russian Playbook Reapplied in Ukraine**\
-`The besieging of cities, the deliberate targeting of civilians — they are the tactics Russia used before, in Grozny. I saw it firsthand.`\
-https://nytimes.com/2022/03/29/world/europe/russia-chechnya-grozny-ukraine.html?searchResultPosition=3
+**Contemplating Beauty in a Disabled Body**\
+`My looks don’t fit into classical ideals of order, proportion, symmetry. So what was I looking for in that gallery in Rome?`\
+https://nytimes.com/2022/03/29/magazine/beauty-disabled-body.html?searchResultPosition=3
 
-**After Mass Shooting, a Town in Arkansas Struggles to Move Forward**\
-`Dumas, Ark., has been shrinking steadily, but the diaspora returned each year for a festival that united scattered friends and family. Organizers say its future is now uncertain.`\
-https://nytimes.com/2022/03/29/us/dumas-arkansas-hood-nic-shooting.html?searchResultPosition=4
+**I Keep Hoping Larry Summers Is Wrong. What if He’s Not?**\
+`The former Treasury secretary discusses inflation, a possible recession and how the Russia-Ukraine war might exacerbate both.`\
+https://nytimes.com/2022/03/29/opinion/ezra-klein-podcast-lawrence-summers.html?searchResultPosition=4
 
-**Do Russian Oligarchs Have a Secret Weapon in London’s Libel Lawyers?**\
-`How a group of attorneys worked to keep negative stories about President Vladimir Putin’s allies out of the British media for decades.`\
-https://nytimes.com/2022/03/29/business/oligarchs-london-putin-russia.html?searchResultPosition=5
+**Rudis Sylva Finally Gets to Show Its Watches**\
+`The brand’s chief executive, Jacky Epitaux, has been waiting for the Watches and Wonders fair.`\
+https://nytimes.com/2022/03/29/fashion/watches-rudis-sylva-jacky-epitaux-switzerland.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/03/29/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**New Focus on How a Trump Tweet Incited Far-Right Groups Before Jan. 6**\
+`Federal prosecutors and congressional investigators are documenting how the former president’s “Be there, will be wild!” post became a catalyst for militants before the Capitol assault.`\
+https://nytimes.com/2022/03/29/us/politics/trump-tweet-jan-6.html?searchResultPosition=6
 
-**TV-Themed Trips**\
-`What world from a television show past or present would you most want to visit? Why?`\
-https://nytimes.com/2022/03/29/learning/tv-themed-trips.html?searchResultPosition=7
+**Lesson of the Day: ‘Friendship, Betrayal and the Fight: “Suffs” Tells the Suffragist Tale in Song’**\
+`In this lesson, students will read about a new musical that explores women’s fight for the right to vote, listen to the songs and create a poster for their own possible theater production.`\
+https://nytimes.com/2022/03/29/learning/lesson-plans/lesson-of-the-day-friendship-betrayal-and-the-fight-suffs-tells-the-suffragist-tale-in-song.html?searchResultPosition=7
 
-**Late Night Tackles the Will Smith ‘Hitch’ Slap**\
-`“It was so shocking,” Jimmy Kimmel said. “The only thing I can really compare it to is when Mike Tyson bit Evander Holyfield’s ears.”`\
-https://nytimes.com/2022/03/29/arts/television/will-smith-hitch-slap.html?searchResultPosition=8
+**Ginni Thomas May Be Off the Charts, but She Is No Outlier**\
+`There’s very little distance between the fringes of the modern Republican Party and the elites who lead it.`\
+https://nytimes.com/2022/03/29/opinion/ginni-thomas-bill-barr.html?searchResultPosition=8
 
-**Word of the Day: contortion**\
-`This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/03/29/learning/word-of-the-day-contortion.html?searchResultPosition=9
+**The Scars of Ukraine’s War, Illuminated in Fiction**\
+`Two newly translated books highlight everyday lives transformed by conflict.`\
+https://nytimes.com/2022/03/29/books/review/belorusets-kurkov-lucky-breaks-grey-bees.html?searchResultPosition=9
 
-**Elevator Woes: Down in the Dumps on the 59th Floor**\
-`Residents of an expensive Financial District high-rise are contending with frequent elevator breakdowns.`\
-https://nytimes.com/2022/03/29/nyregion/elevator-woes-down-in-the-dumps-on-the-59th-floor.html?searchResultPosition=10
+**New York’s Bail Laws, Reconsidered: 5 Things to Know**\
+`Gov. Kathy Hochul is pushing legislative leaders to adopt changes to the state’s bail laws as part of the state budget, due April 1.`\
+https://nytimes.com/2022/03/29/nyregion/bail-reform-hochul-ny.html?searchResultPosition=10
 
