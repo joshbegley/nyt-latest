@@ -1,5 +1,5 @@
 **Deadly Shooting Attack in Tel Aviv Suburb**\
-`A Palestinian gunman opened fire in Bnei Brak, an ultra-Orthodox city outside of Tel Aviv, killing multiple people. The shooting was the fifth attack in less than two weeks.`\
+`A Palestinian gunman opened fire in Bnei Brak, an ultra-Orthodox city outside of Tel Aviv, killing multiple people. The shooting was the fifth attack in less than two weeks in Israel.`\
 https://nytimes.com/video/world/middleeast/100000008279209/shooting-tel-aviv-israel.html?searchResultPosition=1
 
 **Call Logs Underscore Trump’s Efforts to Sway Lawmakers on Jan. 6**\
