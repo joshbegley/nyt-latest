@@ -31,7 +31,7 @@ https://nytimes.com/2022/03/30/arts/music/popcast-charli-xcx.html?searchResultPo
 https://nytimes.com/2022/03/30/briefing/putin-military-biden-covid-booster.html?searchResultPosition=8
 
 **New York City Clears 239 Homeless Camps. Only 5 People Move to Shelters.**\
-`“This is the first inning of a nine-inning game,” said Mayor Adams in issuing a report card on efforts to remove homeless people from streets and subways.`\
+`In the subways, nearly 80 people a week accepted shelter over a four-week period, Mayor Adams said. Officials have not yet said how many stayed off the street.`\
 https://nytimes.com/2022/03/30/nyregion/nyc-homeless-eric-adams.html?searchResultPosition=9
 
 **Are You Receiving, Providing or Paying for Long-Term Care?**\
