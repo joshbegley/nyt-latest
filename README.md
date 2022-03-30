@@ -15,7 +15,7 @@ https://nytimes.com/2022/03/30/world/europe/russian-ruble-recovery-economy.html?
 https://nytimes.com/2022/03/30/us/covid-vaccine-testing-states.html?searchResultPosition=4
 
 **The Brilliance of Charo**\
-`The guitarist, singer, actress and comedian has long wrapped her prodigious talents in a glossy, over-the-top persona. Decades later, and still going strong, it’s time to take her seriously.`\
+`The guitarist, singer, actress and comedian has long wrapped her prodigious talents in a glossy, over-the-top persona. Decades later, she’s still going strong, and it’s time to take her seriously.`\
 https://nytimes.com/2022/03/30/arts/music/charo.html?searchResultPosition=5
 
 **When the Master of the Erotic Thriller Fails to Thrill**\
