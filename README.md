@@ -1,5 +1,5 @@
 **How Aphasia Steals the Ability to Communicate**\
-`Bruce Willis announced that he was retiring from acting after being diagnosed with the condition. Here’s what we know about it.`\
+`Bruce Willis will retire from acting after being diagnosed with the condition. Here’s what we know about it.`\
 https://nytimes.com/2022/03/30/well/mind/aphasia-symptoms-treatment.html?searchResultPosition=1
 
 **Do I Need Another Booster?**\
