@@ -2,13 +2,13 @@
 `Russia keeps up attacks despite its pledge to de-escalate.`\
 https://nytimes.com/2022/03/30/briefing/russia-ukraine-war-attacks.html?searchResultPosition=1
 
-**Ivermectin Does Not Reduce Risk of Covid Hospitalization, Large Study Finds**\
-`“At some point it will become a waste of resources to continue studying an unpromising approach,” one expert said.`\
-https://nytimes.com/2022/03/30/health/covid-ivermectin-hospitalization.html?searchResultPosition=2
-
 **Covid Vaccines Did Not Protect Adolescents as Effectively During the Omicron Surge**\
 `Hospitalizations of children remained comparatively rare, but vaccine effectiveness fell sharply among adolescents who did not have life-threatening Covid-19.`\
-https://nytimes.com/2022/03/30/health/covid-vaccines-children.html?searchResultPosition=3
+https://nytimes.com/2022/03/30/health/covid-vaccines-children.html?searchResultPosition=2
+
+**Ivermectin Does Not Reduce Risk of Covid Hospitalization, Large Study Finds**\
+`“At some point it will become a waste of resources to continue studying an unpromising approach,” one expert said.`\
+https://nytimes.com/2022/03/30/health/covid-ivermectin-hospitalization.html?searchResultPosition=3
 
 **U.S. and Russian Astronauts Return from the Space Station**\
 `A spacecraft carrying a NASA astronaut and his Russian crewmates landed in Kazakhstan. Russia’s invasion of Ukraine could strain future collaboration between NASA and its Russian counterpart, Roscosmos.`\
