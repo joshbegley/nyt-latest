@@ -14,7 +14,7 @@ https://nytimes.com/2022/03/30/sports/tennis/racket-smash.html?searchResultPosit
 `In this unnerving drama based on a true crime, a lonely outsider reaches his breaking point.`\
 https://nytimes.com/2022/03/30/arts/nitram-review-slouching-toward-infamy.html?searchResultPosition=4
 
-**A Mural Lionizing an Indian Ruler Is Up for Auction. His Legacy is Contested.**\
+**A Mural Lionizing an Indian Ruler Is Sold at Auction. His Legacy is Contested.**\
 `The battle scene depicts a victory over British troops by an 18th-century Muslim, a man India’s current government would prefer was forgotten.`\
 https://nytimes.com/2022/03/30/world/asia/tipu-sultan-india-painting.html?searchResultPosition=5
 
