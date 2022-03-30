@@ -1,4 +1,4 @@
-**Bust from the Met Museum, Said to Be Looted, Is Returned to Libya**\
+**Bust From the Met Museum, Said to Be Looted, Is Returned to Libya**\
 `Investigators said the sculpture, a depiction of a veiled woman, had been stolen decades ago from a temple at Cyrene, which was once part of ancient Greece.`\
 https://nytimes.com/2022/03/30/arts/design/met-museum-bust-looted.html?searchResultPosition=1
 
