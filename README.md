@@ -1,6 +1,6 @@
 **‘Apollo 10½: A Space Age Childhood’ Review: OK, Boomer**\
 `Richard Linklater’s new animated film tells the story of the moon landing with some tongue-in-cheek revisionism.`\
-https://nytimes.com/2022/03/31/movies/apollo-10-1-2-a-space-age-childhood.html?searchResultPosition=1
+https://nytimes.com/2022/03/31/movies/apollo-10-1-2-a-space-age-childhood-review.html?searchResultPosition=1
 
 **European leaders again reject Russia’s demand that gas deliveries be paid in rubles.**\
 `Existing contracts that allow for payments in Western currencies must be upheld, European leaders insist, while economists contemplate Putin’s motives.`\
