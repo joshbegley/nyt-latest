@@ -23,7 +23,7 @@ https://nytimes.com/2022/03/31/arts/television/slow-horses-review.html?searchRes
 https://nytimes.com/2022/03/31/business/march-stocks-rebound.html?searchResultPosition=6
 
 **Biden Invokes Cold War Statute to Boost Critical Mineral Supply**\
-`The action aims to enhance American production of crucial materials for electric vehicles, defense systems and other technologies`\
+`The action aims to enhance American production of crucial materials for electric vehicles, defense systems and other technologies.`\
 https://nytimes.com/2022/03/31/business/economy/biden-invokes-cold-war-statute-to-boost-critical-mineral-supply.html?searchResultPosition=7
 
 **Dimwitted Mammals Needed Muscle More Than Brains After Dinosaurs Died**\
