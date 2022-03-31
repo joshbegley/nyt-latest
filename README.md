@@ -7,7 +7,7 @@ https://nytimes.com/interactive/2022/03/31/learning/31vocabballoonsLN.html?searc
 https://nytimes.com/2022/03/31/arts/women-reconsidered-celebrities-90s-noughties.html?searchResultPosition=2
 
 **A Nation of Spy-Catchers: Fear of Saboteurs Has Ukrainians on Edge**\
-`There are checkpoints, hotlines, and apps for reporting suspicious activities. Ukrainians worry about saboteurs mixing among them sowing mistrust and spreading misinformation.`\
+`There are checkpoints, hotlines and apps for reporting suspicious activities. Ukrainians worry about saboteurs mixing among them sowing mistrust and spreading misinformation.`\
 https://nytimes.com/2022/03/31/world/europe/ukraine-spies-saboteurs.html?searchResultPosition=3
 
 **How Rose Matafeo Shaped the Romance in ‘Starstruck’**\
