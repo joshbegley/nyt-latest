@@ -1,6 +1,6 @@
 **Faced with foreign pressure, Russians rally around Putin, poll shows.**\
 `Eighty-three percent of Russians said they approved of Mr. Putin’s actions, up from 69 percent in January, according to an independent pollster in Moscow.`\
-https://nytimes.com/2022/03/31/world/europe/faced-with-foreign-pressure-russians-rally-around-putin-poll-shows.html?searchResultPosition=1
+https://nytimes.com/2022/03/31/world/europe/putin-approval-rating-russia.html?searchResultPosition=1
 
 **Myanmar Junta’s Political Prisoners Since Coup Now Number 10,000**\
 `Most are held in deplorable conditions and face certain conviction at trial. Rights groups say the Southeast Asian nation now has the worst human rights conditions in the region.`\
