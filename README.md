@@ -1,6 +1,6 @@
 **After Record-Setting Run With St. Peter’s, Shaheen Holloway Leaves for Seton Hall**\
 `Just days after his team became the first No. 15 seed to play in the round of 8, Holloway is returning to the university where he once starred in the backcourt.`\
-https://nytimes.com/2022/03/30/sports/ncaabasketball/seton-hall-hires-shaheen-holloway-st-peters.html?searchResultPosition=1
+https://nytimes.com/2022/03/30/sports/ncaabasketball/shaheen-holloway-seton-hall-st-peters.html?searchResultPosition=1
 
 **Biden Plan Would Release a Million Barrels of Oil a Day From Reserve**\
 `A release of up to 180 million barrels in all, over 180 days, is aimed at helping ease prices at the pump.`\
