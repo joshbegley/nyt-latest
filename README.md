@@ -1,4 +1,4 @@
-**Judge Tosses New York’s District Lines, Citing Democrats’ ‘Political Bias’**\
+**G.O.P. Judge Tosses N.Y. District Lines, Citing Democrats’ ‘Bias’**\
 `The ruling by a Republican judge would send New York back to the drawing board and could delay its primaries. Democrats vowed to appeal it.`\
 https://nytimes.com/2022/03/31/nyregion/redistrict-gerrymander-new-york.html?searchResultPosition=1
 
