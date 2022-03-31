@@ -32,7 +32,7 @@ https://nytimes.com/2022/03/30/opinion/ghost-guns-control.html?searchResultPosit
 
 **9 Who Blocked Abortion Clinic Are Charged With Federal Offenses**\
 `Prosecutors said the defendants had used their bodies, furniture, chains and ropes to block the doors to an abortion clinic in Washington in 2020 and had livestreamed their actions on Facebook.`\
-https://nytimes.com/2022/03/30/us/planned-parenthood-dc-nine-charged.html?searchResultPosition=9
+https://nytimes.com/2022/03/30/us/abortion-clinic-dc-nine-charged.html?searchResultPosition=9
 
 **C.D.C. to Lift Order Restricting Immigration During the Pandemic**\
 `The change is to take effect in late May, according to people familiar with the planning, and should restore the right of migrants to request asylum once they cross the border into the United States.`\
