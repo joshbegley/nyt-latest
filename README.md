@@ -4,7 +4,7 @@ https://nytimes.com/2022/03/31/briefing/oil-russia-ukraine.html?searchResultPosi
 
 **G.O.P. Judge Tosses N.Y. District Lines, Citing Democrats’ ‘Bias’**\
 `The ruling by a Republican judge would send New York back to the drawing board and could delay its primaries. Democrats vowed to appeal it.`\
-https://nytimes.com/2022/03/31/nyregion/redistrict-gerrymander-new-york.html?searchResultPosition=2
+https://nytimes.com/2022/03/31/nyregion/judge-new-york-redistricting-gerrymandering.html?searchResultPosition=2
 
 **Jackson Vote Poses a Political Dilemma for Murkowski**\
 `The Alaska Republican is facing a difficult re-election race in which she is under attack by former President Donald J. Trump and the right. Could a vote for President Biden’s nominee save her?`\
