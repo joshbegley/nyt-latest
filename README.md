@@ -8,7 +8,7 @@ https://nytimes.com/2022/03/31/movies/gagarine-review.html?searchResultPosition=
 
 **European regulators carry out surprise raids on companies involved in natural gas.**\
 `Media reports linked the raids to subsidiaries of Gazprom, the Russian gas giant.`\
-https://nytimes.com/2022/03/31/business/germany-surprise-raids-gas-gazprom.html?searchResultPosition=3
+https://nytimes.com/2022/03/31/business/germany-gas-raids-gazprom.html?searchResultPosition=3
 
 **Did You Move to New York During the Pandemic?**\
 `Tell us how it went.`\
