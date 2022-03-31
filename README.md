@@ -20,7 +20,7 @@ https://nytimes.com/2022/03/30/us/planned-parenthood-dc-nine-charged.html?search
 
 **C.D.C. to Lift Order Restricting Immigration During the Pandemic**\
 `The change is to take effect in late May, according to people familiar with the planning, and should restore the right of migrants to request asylum once they cross the border into the United States.`\
-https://nytimes.com/2022/03/30/us/politics/immigration-title-42-cdc-biden.html?searchResultPosition=6
+https://nytimes.com/2022/03/30/us/politics/immigration-cdc-biden.html?searchResultPosition=6
 
 **Russia Steps Up Attacks Amid Reports of Rifts in Moscow**\
 `Despite claims of de-escalation, Russian forces turned their fury on Chernihiv and the suburbs of Kyiv. U.S. officials say they believe Vladimir Putin’s aides are misleading him about the war.`\
