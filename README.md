@@ -27,7 +27,7 @@ https://nytimes.com/2022/03/31/us/politics/rick-scott.html?searchResultPosition=
 https://nytimes.com/2022/03/31/briefing/oil-russia-ukraine.html?searchResultPosition=7
 
 **Judge Tosses New York District Lines**\
-`The ruling by a Republican judge would send New York back to the drawing board and could delay its primaries. Democrats vowed to appeal it.`\
+`The ruling would send New York back to the drawing board and could delay its primaries. Democrats vowed to appeal it.`\
 https://nytimes.com/2022/03/31/nyregion/judge-new-york-redistricting-gerrymandering.html?searchResultPosition=8
 
 **Jackson Vote Poses a Political Dilemma for Murkowski**\
