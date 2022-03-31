@@ -1,6 +1,6 @@
 **Museum Show Highlights Media-Makers on the Autism Spectrum**\
 `The first Marvels of Media at the Museum of the Moving Image includes an awards ceremony, a festival and an exhibition.`\
-https://nytimes.com/2022/03/30/arts/design/museum-show-highlights-media-makers-on-the-autism-spectrum.html?searchResultPosition=1
+https://nytimes.com/2022/03/30/arts/design/marvels-of-media-autism.html?searchResultPosition=1
 
 **U.S. Men’s Soccer Team Clinches World Cup Berth**\
 `Five years after a calamitous night cost them a World Cup berth, the United States took the field in Costa Rica and, by merely avoiding a calamitous defeat, earned a place in Qatar.`\
