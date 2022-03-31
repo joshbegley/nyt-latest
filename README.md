@@ -1,40 +1,40 @@
+**Stephen Merchant Is an Unsmooth Criminal**\
+`Merchant, a creator of the original “Office” and other series, recruited Christopher Walken for “The Outlaws,” his new Amazon show about community service.`\
+https://nytimes.com/2022/03/31/arts/television/stephen-merchant-the-outlaws.html?searchResultPosition=1
+
 **‘Morbius’ Review: The Other Bat, Man**\
 `Jared Leto bares his teeth as a neo-vampire who walks by day and tries to keep his monstrous thirst at bay in the latest Marvel adaptation.`\
-https://nytimes.com/2022/03/31/movies/morbius-review.html?searchResultPosition=1
+https://nytimes.com/2022/03/31/movies/morbius-review.html?searchResultPosition=2
 
 **Review: Dancing the Night Away With Brazil’s Cia Suave**\
 `The choreographer Alice Ripoll and 10 dancers from Rio de Janeiro combine youthful abandon with an exploration of social injustice in “Cria” at BAM Fisher.`\
-https://nytimes.com/2022/03/31/arts/dance/review-dancing-the-night-away-with-brazils-cia-suave.html?searchResultPosition=2
+https://nytimes.com/2022/03/31/arts/dance/review-dancing-the-night-away-with-brazils-cia-suave.html?searchResultPosition=3
 
 **The Next Big Addiction Treatment**\
 `Several psychedelic drugs are touted as effective treatments for drug and alcohol abuse. But psilocybin combined with therapy is emerging as the most effective.`\
-https://nytimes.com/2022/03/31/well/mind/psilocybin-mushrooms-addiction-therapy.html?searchResultPosition=3
+https://nytimes.com/2022/03/31/well/mind/psilocybin-mushrooms-addiction-therapy.html?searchResultPosition=4
 
 **The World Cup Draw Is Friday. Here’s How It Works.**\
 `The hard work of qualifying is over. Now the teams headed to Qatar later this year will learn their opponents.`\
-https://nytimes.com/2022/03/31/sports/soccer/world-cup-draw-time-tv.html?searchResultPosition=4
+https://nytimes.com/2022/03/31/sports/soccer/world-cup-draw-time-tv.html?searchResultPosition=5
 
 **She Took the White House Photos. Trump Moved to Take the Profit.**\
 `The former chief White House photographer made plans to publish a book of Trump photos. The former president had other plans.`\
-https://nytimes.com/2022/03/31/us/politics/trump-photographer-shealah-craighead.html?searchResultPosition=5
+https://nytimes.com/2022/03/31/us/politics/trump-photographer-shealah-craighead.html?searchResultPosition=6
 
 **Ways to Read, Write, Teach and Learn Poetry With The New York Times**\
 `Here are 30 ideas for helping your students appreciate poetry — and experiment with it themselves.`\
-https://nytimes.com/2022/03/31/learning/lesson-plans/ways-to-read-write-teach-and-learn-poetry-with-the-new-york-times.html?searchResultPosition=6
+https://nytimes.com/2022/03/31/learning/lesson-plans/ways-to-read-write-teach-and-learn-poetry-with-the-new-york-times.html?searchResultPosition=7
 
 **‘Slow Horses’ Review: Tinker Tailor Soldier Failure**\
 `Gary Oldman stars as an MI5 has-been in a darkly comic thriller about the spies no one wants to talk about.`\
-https://nytimes.com/2022/03/31/arts/television/slow-horses-review.html?searchResultPosition=7
+https://nytimes.com/2022/03/31/arts/television/slow-horses-review.html?searchResultPosition=8
 
 **Wall Street staged a comeback in March as the U.S. economy showed its resilience.**\
 `Stocks are up nearly 5 percent in March, with the S&P 500 rebounding sharply after the index dropped at the start of the year.`\
-https://nytimes.com/2022/03/31/business/march-stocks-rebound.html?searchResultPosition=8
+https://nytimes.com/2022/03/31/business/march-stocks-rebound.html?searchResultPosition=9
 
 **Biden Invokes Cold War Statute to Boost Critical Mineral Supply**\
 `The action aims to enhance American production of crucial materials for electric vehicles, defense systems and other technologies.`\
-https://nytimes.com/2022/03/31/business/economy/biden-invokes-cold-war-statute-to-boost-critical-mineral-supply.html?searchResultPosition=9
-
-**Dimwitted Mammals Needed Muscle More Than Brains After Dinosaurs Died**\
-`It may have been the smart evolutionary strategy during a chaotic chapter of Earth’s history, but it didn’t last.`\
-https://nytimes.com/2022/03/31/science/brains-mammals-fossils.html?searchResultPosition=10
+https://nytimes.com/2022/03/31/business/economy/biden-invokes-cold-war-statute-to-boost-critical-mineral-supply.html?searchResultPosition=10
 
