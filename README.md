@@ -34,7 +34,7 @@ https://nytimes.com/2022/03/31/books/nancy-milford-dead.html?searchResultPositio
 `The company reports millions of photos and videos of suspected child sexual abuse each year. But when ages are unclear, young people are treated as adults and the images are not reported to the authorities.`\
 https://nytimes.com/2022/03/31/business/meta-child-sexual-abuse.html?searchResultPosition=9
 
-**In New Orleans, the Final Four Is All About the Blues**\
+**The Men’s Final Four Is All About the Hue of the Blue**\
 `Each team in the N.C.A.A. men’s basketball Final Four — North Carolina, Duke, Kansas and Villanova — uses a shade of blue as a primary color. And each will tell you its blue is the most true.`\
 https://nytimes.com/2022/03/31/sports/ncaabasketball/final-four-blue.html?searchResultPosition=10
 
