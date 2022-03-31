@@ -10,7 +10,7 @@ https://nytimes.com/2022/03/31/nyregion/redistrict-gerrymander-new-york.html?sea
 `The Alaska Republican is facing a difficult re-election race in which she is under attack by former President Donald J. Trump and the right. Could a vote for President Biden’s nominee save her?`\
 https://nytimes.com/2022/03/31/us/politics/lisa-murkowski-ketanji-brown-jackson.html?searchResultPosition=3
 
-**Richard Howard, Acclaimed Poet and Translator, Dies at 92**\
+**Richard Howard, Acclaimed Poet and Translator, Is Dead at 92**\
 `His poetry won him a Pulitzer Prize, and his translations introduced numerous French writers to English-speaking audiences.`\
 https://nytimes.com/2022/03/31/books/richard-howard-dead.html?searchResultPosition=4
 
