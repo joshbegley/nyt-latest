@@ -1,4 +1,4 @@
-**This Final Four Is a Battle of the Blues**\
+**In New Orleans, the Final Four Is All About the Blues**\
 `Each team in the N.C.A.A. men’s basketball Final Four — North Carolina, Duke, Kansas and Villanova — uses a shade of blue as a primary color. And each will tell you its blue is the most true.`\
 https://nytimes.com/2022/03/31/sports/ncaabasketball/final-four-blue.html?searchResultPosition=1
 
