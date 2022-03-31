@@ -4,7 +4,7 @@ https://nytimes.com/2022/03/30/us/politics/alex-jones-sandy-hook-lawsuit.html?se
 
 **Bust From the Met Museum, Said to Be Looted, Is Returned to Libya**\
 `Investigators said the sculpture, a depiction of a veiled woman, had been stolen decades ago from a temple at Cyrene, which was once part of ancient Greece.`\
-https://nytimes.com/2022/03/30/arts/design/met-museum-bust-looted.html?searchResultPosition=2
+https://nytimes.com/2022/03/30/arts/design/met-museum-sculpture-libya.html?searchResultPosition=2
 
 **Richard Tuttle: Please Touch!**\
 `Whether you call “What Is the Object?” an exhibit or a collection, the display at Bard Graduate Center is utterly dependent on the good faith of its visitors.`\
