@@ -4,7 +4,7 @@ https://nytimes.com/2022/03/31/world/asia/myanmar-coup-prisoners.html?searchResu
 
 **Avoid tax and charity scams this spring.**\
 `Along with the annual wave of tax-related phishing attempts, fake Ukrainian war-relief charities are flooding the internet.`\
-https://nytimes.com/2022/03/31/business/avoid-tax-charity-scams-spring.html?searchResultPosition=2
+https://nytimes.com/2022/03/31/business/tax-charity-online-scams.html?searchResultPosition=2
 
 **Your World Cup Questions, Answered**\
 `The tournament doesn’t kick off until November. Here are the basics.`\
