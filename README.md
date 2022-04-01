@@ -2,7 +2,7 @@
 `Ms. Palin released a statement on Friday that she was entering the race to replace Representative Don Young, who died last month.`\
 https://nytimes.com/2022/04/01/us/politics/sarah-palin-running-congress-alaska.html?searchResultPosition=1
 
-**The People, United, Are Not Going to Get Very Far**\
+**Amazon’s First Union Is a False Dawn: The Rules Are Still Stacked Against Workers**\
 `Amazon workers on Staten Island have created the company’s first union. The government needs to make it easier for others to follow.`\
 https://nytimes.com/2022/04/01/opinion/amazon-workers-union.html?searchResultPosition=2
 
