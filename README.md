@@ -18,23 +18,23 @@ https://nytimes.com/2022/04/01/business/dealbook/jobs-numbers-employment.html?se
 `Edith Kanaka‘ole, who died in 1979, will appear on the coin next year along with four other notable women.`\
 https://nytimes.com/2022/04/01/us/us-quarter-women-edith-kanakaole.html?searchResultPosition=5
 
+**Energy prices in Europe soar 45 percent as inflation hits another record.**\
+`A continued run-up in prices shows how rapidly the impact of the war in Ukraine is coursing through Europe’s economy.`\
+https://nytimes.com/2022/04/01/business/economy/eurozone-inflation.html?searchResultPosition=6
+
 **Battleground Nevada**\
 `The state will help determine Senate control in this year’s midterm elections.`\
-https://nytimes.com/2022/04/01/briefing/nevada-senate-battleground-state-midterms.html?searchResultPosition=6
+https://nytimes.com/2022/04/01/briefing/nevada-senate-battleground-state-midterms.html?searchResultPosition=7
 
 **U.S. Navy to Name Ship After Justice Ruth Bader Ginsburg**\
 `The ship, a replenishment oiler, is designed to carry fuel to the Navy’s operating carrier strike groups.`\
-https://nytimes.com/2022/04/01/us/navy-ship-ruth-bader-ginsburg.html?searchResultPosition=7
+https://nytimes.com/2022/04/01/us/navy-ship-ruth-bader-ginsburg.html?searchResultPosition=8
 
 **Inside Mariupol**\
 `What the fight for the Ukrainian port city means for the future of the war.`\
-https://nytimes.com/2022/04/01/podcasts/the-daily/russia-ukraine-war-mariupol.html?searchResultPosition=8
+https://nytimes.com/2022/04/01/podcasts/the-daily/russia-ukraine-war-mariupol.html?searchResultPosition=9
 
 **A nuclear agency is investigating reports of radiation poisoning among Russian troops at Chernobyl.**\
 `Russian soldiers left the decommissioned nuclear plant and a nearby city after five weeks of occupation.`\
-https://nytimes.com/2022/04/01/world/europe/chernobyl-radiation-poisoning.html?searchResultPosition=9
-
-**Hillsong and Subversive Kids Books: The Week in Narrated Articles**\
-`Five articles from around The Times, narrated just for you.`\
-https://nytimes.com/2022/04/01/podcasts/hillsong-rumble-kids-books-narrated-articles.html?searchResultPosition=10
+https://nytimes.com/2022/04/01/world/europe/chernobyl-radiation-poisoning.html?searchResultPosition=10
 
