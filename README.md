@@ -1,4 +1,4 @@
-**Man Who Police Say Used Tinder to Hunt Women Charged in Killing of One**\
+**Man Who Police Say Used Tinder to Hunt Women Is Charged With Murder**\
 `Danueal Drayton raped and strangled Samantha Stewart in 2018, prosecutors say. He was free on bail at the time because of a paperwork mix-up.`\
 https://nytimes.com/2022/04/01/nyregion/tinder-killing-danueal-drayton.html?searchResultPosition=1
 
