@@ -30,11 +30,11 @@ https://nytimes.com/2022/04/01/travel/europe-tourism-ukraine-war.html?searchResu
 `Rising costs at the pump, war in Ukraine, an emboldened fossil fuel industry and stalled legislation have imperiled President Biden’s climate agenda.`\
 https://nytimes.com/2022/04/01/climate/biden-climate-change.html?searchResultPosition=8
 
-**How to Make Kids Feel at Home in Both Homes After a Divorce**\
-`When parents go their separate ways in a divorce, children are torn between two places — both should feel like home.`\
-https://nytimes.com/2022/04/01/realestate/divorce-kids-homes.html?searchResultPosition=9
-
 **Verifying Images of the War in Ukraine**\
 `The Times’s Visual Investigations team shares the rigorous process of confirming (or disputing) the authenticity of videos about the war in Ukraine.`\
-https://nytimes.com/2022/04/01/insider/verifying-images-of-the-war-in-ukraine.html?searchResultPosition=10
+https://nytimes.com/2022/04/01/insider/verifying-images-of-the-war-in-ukraine.html?searchResultPosition=9
+
+**How to Make Kids Feel at Home in Both Homes After a Divorce**\
+`When parents go their separate ways in a divorce, children are torn between two places — both should feel like home.`\
+https://nytimes.com/2022/04/01/realestate/divorce-kids-homes.html?searchResultPosition=10
 
