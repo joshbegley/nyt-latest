@@ -10,8 +10,8 @@ https://nytimes.com/2022/04/01/crosswords/get-to-know-the-american-crossword-puz
 `Britain’s defense minister said that Russia’s army was exhausted and that its reputation “has been trashed” as a result of President Vladimir V. Putin’s actions.`\
 https://nytimes.com/video/world/europe/100000008283437/putin-russia-ukraine-britain.html?searchResultPosition=3
 
-**Rising Wages Are Good News for Workers but a Worrying Sign for Inflation**\
-`Federal Reserve officials had already said that the pace of pay gains would not be consistent with stable inflation if sustained.`\
+**Rising Wages Are Good News for Workers but Put Pressure on the Fed**\
+`Federal Reserve officials had said that the pace of pay gains would not be consistent with stable inflation if sustained.`\
 https://nytimes.com/2022/04/01/business/economy/jobs-fed-wages.html?searchResultPosition=4
 
 **Bright Colors, Dark Subjects: Hew Locke’s Unsettling Pageant**\
