@@ -1,6 +1,6 @@
 **Judge Tosses Out New York’s New Political Districts**\
 `The ruling puts the state’s June primary elections in doubt, but Democrats said they would appeal.`\
-https://nytimes.com/2022/04/01/nyregion/judge-tosses-out-new-yorks-new-political-districts.html?searchResultPosition=1
+https://nytimes.com/2022/04/01/nyregion/new-york-redistricting.html?searchResultPosition=1
 
 **Paige Bueckers Has Performed in Minneapolis Before**\
 `In December, UConn’s star player had an ugly knee injury. On Friday night, she will try to lead her team to a national title game.`\
