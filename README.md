@@ -18,7 +18,7 @@ https://nytimes.com/video/business/economy/100000008283686/biden-jobs-report-eco
 `A first E.U.-China summit in two years was overshadowed by Ukraine and China’s alliance with Moscow and produced few results.`\
 https://nytimes.com/2022/04/01/world/europe/eu-europe-china-summit-ukraine-russia-trade.html?searchResultPosition=5
 
-**South Carolina Student, 12, Is Fatally Shot by Classmate, Sheriff Says**\
+**Boy Fatally Shoots Classmate, Both 12, in South Carolina, Sheriff Says**\
 `It was not clear what led to the shooting or where the student had obtained a handgun. The two students were familiar with each other, the authorities said.`\
 https://nytimes.com/2022/04/01/us/south-carolina-school-shooting.html?searchResultPosition=6
 
