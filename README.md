@@ -22,7 +22,7 @@ https://nytimes.com/2022/04/01/us/ukrainian-refugees-california.html?searchResul
 `Will Packer, the producer of the telecast, said that Smith had been asked to leave after slapping Chris Rock, and then there were discussions of having him physically removed.`\
 https://nytimes.com/2022/04/01/movies/oscars-will-smith-slap.html?searchResultPosition=6
 
-**‘I Feel Shame and Pain’: Pope Apologizes to Indigenous People of Canada**\
+**‘I Feel Shame’: Pope Apologizes to Indigenous People of Canada**\
 `Pope Francis also promised to visit Canada as part of a process of healing and reconciliation over the church’s involvement in an abusive system of residential schools.`\
 https://nytimes.com/2022/04/01/world/europe/pope-apology-indigenous-people-canada.html?searchResultPosition=7
 
