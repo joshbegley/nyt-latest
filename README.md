@@ -28,7 +28,7 @@ https://nytimes.com/2022/04/01/dining/passover-onion-and-rice-casserole.html?sea
 
 **Tobacco Road Prepares for Basketball Nirvana — or Apocalypse**\
 `The rivalry between Duke and North Carolina, always fearsome, is reaching new levels as the two schools meet Saturday for a chance to play in the men’s national championship game.`\
-https://nytimes.com/2022/04/01/sports/ncaabasketball/ncaa-unc-duke-rivalry-carolina.html?searchResultPosition=8
+https://nytimes.com/2022/04/01/sports/ncaabasketball/ncaa-unc-duke-rivalry.html?searchResultPosition=8
 
 **Russians Line Up Behind Putin**\
 `Most of the war’s opponents are leaving the country or keeping quiet.`\
