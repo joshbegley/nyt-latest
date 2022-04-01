@@ -1,40 +1,40 @@
+**Ted Mooney, Author of Inventive Novels, Is Dead at 70**\
+`His attention-getting first book, “Easy Travel to Other Planets,” began with dolphin-human sex. The three that followed were comparably offbeat.`\
+https://nytimes.com/2022/04/01/books/ted-mooney-dead.html?searchResultPosition=1
+
+**Researchers Find Another Clue in the Dyatlov Pass Mystery**\
+`The mystery of nine hikers who died in Russia has baffled people for more than 60 years. The authors of a recent paper think they’ve found another clue.`\
+https://nytimes.com/2022/04/01/world/europe/dyatlov-pass-avalanche-russia.html?searchResultPosition=2
+
 **Nancy Lane, Spirit Behind Studio Museum of Harlem, Dies at 88**\
 `An art collector and the institution’s longest-serving board member, she was also a pioneering Black woman in the corporate world.`\
-https://nytimes.com/2022/04/01/arts/nancy-lane-dead.html?searchResultPosition=1
+https://nytimes.com/2022/04/01/arts/nancy-lane-dead.html?searchResultPosition=3
 
 **U.S. Allows Hunters to Import Some Elephant Trophies From African Countries**\
 `After settling a lawsuit filed during the Trump administration, the Fish and Wildlife Service granted six permits to bring elephant parts into the country. It may approve more in the coming months.`\
-https://nytimes.com/2022/04/01/science/elephant-trophies-hunting.html?searchResultPosition=2
+https://nytimes.com/2022/04/01/science/elephant-trophies-hunting.html?searchResultPosition=4
 
 **What to Cook This Weekend**\
 `Try our newest recipes for qatayef, caldo de costilla and Italian broccoli salad.`\
-https://nytimes.com/2022/04/01/dining/what-to-cook-this-weekend.html?searchResultPosition=3
+https://nytimes.com/2022/04/01/dining/what-to-cook-this-weekend.html?searchResultPosition=5
 
 **Five Horror Movies to Stream Now**\
 `This month’s picks are proof that it doesn’t take big bucks to scare people’s pants off with undead messiahs, unseen demons and uncanny commotions.`\
-https://nytimes.com/2022/04/01/movies/streaming-horror-movies.html?searchResultPosition=4
+https://nytimes.com/2022/04/01/movies/streaming-horror-movies.html?searchResultPosition=6
 
 **Harry Styles Tries On Synth-Pop, and 13 More New Songs**\
 `Hear tracks by Angel Olsen, Koffee, Barrie and others.`\
-https://nytimes.com/2022/04/01/arts/music/playlist-harry-styles-angel-olsen.html?searchResultPosition=5
+https://nytimes.com/2022/04/01/arts/music/playlist-harry-styles-angel-olsen.html?searchResultPosition=7
 
 **The C.E.O. of a Running Company Who Can No Longer Run**\
 `Jim Weber, the chief executive of Brooks Running, was a devoted distance runner. Then came cancer.`\
-https://nytimes.com/2022/04/01/business/brooks-running-jim-weber.html?searchResultPosition=6
+https://nytimes.com/2022/04/01/business/brooks-running-jim-weber.html?searchResultPosition=8
 
 **Cannabis for Better Sex? Here’s What the Science Says.**\
 `The research is thin, but anecdotal experience suggests that the right dose and delivery method can make a positive difference for some people.`\
-https://nytimes.com/2022/04/01/well/live/marijuana-sex.html?searchResultPosition=7
+https://nytimes.com/2022/04/01/well/live/marijuana-sex.html?searchResultPosition=9
 
 **The Weekender**\
 `The 1950 census reveals its secrets. Also in this edition: how a star of “The O.C.” became a crypto critic, and women call out “medical gaslighting.”`\
-https://nytimes.com/interactive/2022/04/01/briefing/the-weekender.html?searchResultPosition=8
-
-**Changing Workplace and Workday Norms**\
-`Readers discuss the pros and cons of remote work and more flexible schedules. Also: A mortal Putin; Buffalo Bills’ new stadium; Senator Joe Manchin.`\
-https://nytimes.com/2022/04/01/opinion/letters/workplace-covid.html?searchResultPosition=9
-
-**Red Cross Team Headed to Mariupol to Help With Evacuations**\
-`The International Committee of the Red Cross said a team was in place to stage a mass civilian evacuation from the besieged city of Mariupol, Ukraine, but warned that the effort remains “extremely complex.”`\
-https://nytimes.com/video/world/europe/100000008283504/mariupol-ukraine-evacuation-civilians.html?searchResultPosition=10
+https://nytimes.com/interactive/2022/04/01/briefing/the-weekender.html?searchResultPosition=10
 
