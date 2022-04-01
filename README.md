@@ -1,5 +1,5 @@
 **Republicans Target Progressive Advocacy Group Amid Opposition to Jackson**\
-`Some Republicans have linked their criticism of President Biden’s Supreme Court nominee to Demand Justice, a progressive judicial advocacy group that wants to expand the court.`\
+`Some Republicans have linked their criticism of President Biden’s Supreme Court nominee to the support she has received from Demand Justice, a group that wants to expand the court.`\
 https://nytimes.com/2022/04/01/us/politics/gop-demand-justice-jackson-hearings.html?searchResultPosition=1
 
 **Russia and Ukraine Have Long Been This Filmmaker’s Subject**\
