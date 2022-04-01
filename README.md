@@ -1,5 +1,5 @@
 **How Conflicts of Interest Are Hurting the Climate**\
-`Bill McKibben, environmental activist, explains.`\
+`Bill McKibben, the environmental activist, explains.`\
 https://nytimes.com/2022/04/01/podcasts/bill-mckibben-climate.html?searchResultPosition=1
 
 **Preparing for the next wave**\
