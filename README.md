@@ -1,40 +1,40 @@
+**Judge Tosses Out New York’s New Political Districts**\
+`The ruling puts the state’s June primary elections in doubt, but Democrats said they would appeal.`\
+https://nytimes.com/2022/04/01/nyregion/judge-tosses-out-new-yorks-new-political-districts.html?searchResultPosition=1
+
+**Paige Bueckers Has Performed in Minneapolis Before**\
+`In December, UConn’s star player had an ugly knee injury. On Friday night, she will try to lead her team to a national title game.`\
+https://nytimes.com/2022/04/01/sports/ncaabasketball/paige-bueckers-uconn.html?searchResultPosition=2
+
+**What to Watch in the Women’s Final Four**\
+`On Friday, Louisville and South Carolina face off in a matchup of No. 1 seeds, followed by No. 2 Connecticut against No. 1 Stanford. The women’s national championship game is Sunday.`\
+https://nytimes.com/2022/04/01/sports/final-four-womens-march-madness.html?searchResultPosition=3
+
+**In Paris, and Each Other, They Found Home**\
+`More than a decade after Miranda Robertson studied abroad in the city of her dreams, she returned to discover the man of her dreams in Nicolas Bayle.`\
+https://nytimes.com/2022/04/01/style/miranda-robertson-nicolas-bayle-wedding.html?searchResultPosition=4
+
+**The Dentist Who Treated My Divorce**\
+`When in pain, it helps to know someone who has experience treating it.`\
+https://nytimes.com/2022/04/01/style/modern-love-the-dentist-who-treated-my-divorce.html?searchResultPosition=5
+
+**Two Swimmers Take a Deep Breath Together**\
+`Ian Slater and Michael McVicker became best friends after arriving at Brown University, where they were on the swim team. By their junior year, they were ready to dive into dating.`\
+https://nytimes.com/2022/04/01/style/ian-slater-michael-mcvicker-wedding.html?searchResultPosition=6
+
+**Picking Him Out From a Crowd**\
+`Eliza Giles knew that George Luo was “the one” after spotting him in a crowded high-school assembly 12 years ago.`\
+https://nytimes.com/2022/04/01/style/eliza-giles-george-luo-wedding.html?searchResultPosition=7
+
+**Before Love Came a Lot of Likes**\
+`To show interest in Jayla Moody, a fellow undergraduate at his college, Jordan Marshall liked bunch of her Instagram photos. She then did the same.`\
+https://nytimes.com/2022/04/01/style/jayla-moody-jordan-marshall-wedding.html?searchResultPosition=8
+
+**From the Start, Their Relationship Was ‘Uglies’**\
+`Jaclyn Tokarz met Dieter Seelig in 2015 at his bar, Plug Uglies, where she was a regular. But more than two years would pass before their romance took off.`\
+https://nytimes.com/2022/04/01/style/jaclyn-tokarz-dieter-seelig-wedding.html?searchResultPosition=9
+
 **E.P.A. Decides Against Limiting Perchlorate in Drinking Water**\
 `Drinking water for as many as 16 million Americans may be contaminated with perchlorate, a chemical that can harm the development of fetuses and children.`\
-https://nytimes.com/2022/03/31/climate/epa-perchlorate-drinking-water.html?searchResultPosition=1
-
-**Variety: Marching Bands**\
-`Brendan Emmett Quigley drums up a challenging variety puzzle.`\
-https://nytimes.com/2022/03/31/crosswords/variety-marching-bands.html?searchResultPosition=2
-
-**This Might Help Clear Things Up**\
-`Evan Mahnken opens our solving weekend.`\
-https://nytimes.com/2022/03/31/crosswords/daily-puzzle-2022-04-01.html?searchResultPosition=3
-
-**‘The Bubble’ Review: Swabs, Camera, Action**\
-`Judd Apatow’s new film is a comedy about actors trying to make a dinosaur movie during the pandemic that plays more like a documentary of actors trying to make a Covid comedy.`\
-https://nytimes.com/2022/03/31/movies/the-bubble-review-swabs-camera-action.html?searchResultPosition=4
-
-**Patrick Demarchelier, Fashion Photographer, Dies at 78**\
-`The Frenchman was famous for his portraits of supermodels and his close relationship to Princess Diana, and his images are a part of the fashion canon.`\
-https://nytimes.com/2022/03/31/style/patrick-demarchelier-dead.html?searchResultPosition=5
-
-**For Better Health, Try Fitness From the Inside Out**\
-`A career in health journalism has taught me that when it comes to living well, it’s the inner workout that counts the most.`\
-https://nytimes.com/2022/03/31/well/mind/health-fitness-lessons.html?searchResultPosition=6
-
-**Prosecutor Asks Turkey to Turn Khashoggi Murder Case Over to Saudis**\
-`All 26 suspects accused in the killing of Jamal Khashoggi, the dissident Saudi journalist, in Istanbul in 2018 are Saudi nationals.`\
-https://nytimes.com/2022/03/31/world/middleeast/turkey-khashoggi-trial-saudi-arabia.html?searchResultPosition=7
-
-**More Mixed Signals From Russia as Ukraine War Enters Sixth Week**\
-`Moscow appeared to adjust its position on humanitarian access to Mariupol, but there was little evidence to support Russian claims of a military pullback near Kyiv.`\
-https://nytimes.com/2022/03/31/world/europe/ukraine-russia-war.html?searchResultPosition=8
-
-**In Coaching, It’s Sometimes About Who You Know and Where You’ve Been**\
-`Coaches of several N.C.A.A. tournament teams either attended their universities, like North Carolina’s Hubert Davis, or started their careers there, like Kansas’ Bill Self.`\
-https://nytimes.com/2022/03/31/sports/basketball/ncaa-coaches-alumni.html?searchResultPosition=9
-
-**Russia’s War Lacks a Battlefield Commander, U.S. Officials Say**\
-`Poor logistics and flagging morale have plagued a disjointed military campaign in Ukraine, according to American officials and independent analysts.`\
-https://nytimes.com/2022/03/31/us/politics/russia-military-ukraine.html?searchResultPosition=10
+https://nytimes.com/2022/03/31/climate/epa-perchlorate-drinking-water.html?searchResultPosition=10
 
