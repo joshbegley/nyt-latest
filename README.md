@@ -15,7 +15,7 @@ https://nytimes.com/2022/03/31/movies/the-bubble-review-swabs-camera-action.html
 https://nytimes.com/2022/03/31/style/patrick-demarchelier-dead.html?searchResultPosition=4
 
 **For Better Health, Try Fitness From the Inside Out**\
-`A career in health journalism has taught me that when it comes to living well, it’s the inner workout that counts the most`\
+`A career in health journalism has taught me that when it comes to living well, it’s the inner workout that counts the most.`\
 https://nytimes.com/2022/03/31/well/mind/health-fitness-lessons.html?searchResultPosition=5
 
 **Prosecutor Asks Turkey to Turn Khashoggi Murder Case Over to Saudis**\
