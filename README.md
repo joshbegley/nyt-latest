@@ -8,7 +8,7 @@ https://nytimes.com/2022/04/02/world/europe/russia-space-station.html?searchResu
 
 **Six Nuns Came to India to Start a Hospital. They Ended Up Changing a Country.**\
 `It is hard to overstate the boldness of what the sisters at Nazareth Hospital accomplished.`\
-https://nytimes.com/2022/04/02/opinion/india-nuns-nurses-hopital.html?searchResultPosition=3
+https://nytimes.com/2022/04/02/opinion/india-nuns-nurses-hospital.html?searchResultPosition=3
 
 **Why We Can’t Quit the Guitar Solo**\
 `A guitar solo is not just a display of musical showmanship, technical mastery and bravado. At its best, it’s a moment of exquisite vulnerability.`\
