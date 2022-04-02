@@ -1,40 +1,40 @@
+**Going After That Pound of Flesh**\
+`Why do people snap, as Will Smith did, when they seem to have everything? I look to Shakespeare, the master of revenge and self-destruction, to get some insight.`\
+https://nytimes.com/2022/04/02/opinion/will-smith-oscars-shakespeare.html?searchResultPosition=1
+
+**Madrid Rivals Miami as a Haven for Latin Americans and Their Money**\
+`Turmoil and a political swing to the left have brought an influx of prominent and affluent exiles from the region to the Spanish capital in recent years.`\
+https://nytimes.com/2022/04/02/world/europe/spain-madrid-latin-america.html?searchResultPosition=2
+
+**In Brazil, Firms Sought Black Workers. Then LinkedIn Got Involved.**\
+`After Brazilian activists fought LinkedIn for removing job ads that sought Black and Indigenous candidates, the company changed its global policy.`\
+https://nytimes.com/2022/04/02/world/americas/brazil-affirmative-action-linkedin.html?searchResultPosition=3
+
+**(Bangkok): A Push for Parentheses Miffs Thais (Who Have Bigger Problems)**\
+`The government wants Thailand’s capital to be known around the world as Krung Thep Maha Nakhon (Bangkok). Thais don’t object to the name, but they’d prefer their leaders focus on fixing the economy.`\
+https://nytimes.com/2022/04/02/world/asia/bangkok-thailand-krung-thep.html?searchResultPosition=4
+
+**Man Sentenced to 650 Years in Prison in Brutal 1980s Sex Crimes**\
+`DNA on an envelope helped to seal the fate of Steven Ray Hessler, who prosecutors said violently assaulted seven women, a 16-year-old girl and two men in Shelby County, Ind., from 1982 to 1985.`\
+https://nytimes.com/2022/04/02/us/steven-ray-hessler-sentenced-shelby-county-rape-cases.html?searchResultPosition=5
+
 **Can I Force My Building to Install Electric-Car Chargers?**\
 `Changes to state law will eventually compel co-op boards to help residents charge their cars. But for now, they need to be convinced.`\
-https://nytimes.com/2022/04/02/realestate/building-electric-car-chargers.html?searchResultPosition=1
+https://nytimes.com/2022/04/02/realestate/building-electric-car-chargers.html?searchResultPosition=6
 
 **Teenagers Report Growing Anxiety. Maybe That’s Rational.**\
 `America has been a stressful place lately.`\
-https://nytimes.com/2022/04/02/opinion/cdc-teenagers.html?searchResultPosition=2
+https://nytimes.com/2022/04/02/opinion/cdc-teenagers.html?searchResultPosition=7
 
 **Cuts in Britain Could Cause a Covid Data Drought**\
 `Countries that once led the world in coronavirus monitoring are now scaling back, leaving the world less prepared to spot future variants, experts said.`\
-https://nytimes.com/2022/04/02/health/covid-testing-uk-denmark.html?searchResultPosition=3
+https://nytimes.com/2022/04/02/health/covid-testing-uk-denmark.html?searchResultPosition=8
 
 **What to Know About the Bird Flu Outbreak**\
 `More than 15 million chickens and turkeys from infected commercial and backyard flocks in 19 states have been killed, officials said.`\
-https://nytimes.com/article/bird-flu.html?searchResultPosition=4
+https://nytimes.com/article/bird-flu.html?searchResultPosition=9
 
 **How to Watch the Grammys 2022**\
 `A guide to everything you need to know for the 64th annual awards on Sunday night.`\
-https://nytimes.com/2022/04/02/arts/music/grammys-how-to-watch-live.html?searchResultPosition=5
-
-**How One Man Helped Create a Nation of Investors**\
-`Ned Johnson, the longtime leader of Fidelity, changed the way the middle class thought about its money.`\
-https://nytimes.com/2022/04/02/business/dealbook/ned-johnson-fidelity.html?searchResultPosition=6
-
-**A Ukrainian photojournalist who went missing near Kyiv is found dead.**\
-`Maks Levin, 40, was a prominent freelancer who had spent years covering the conflict in Ukraine.`\
-https://nytimes.com/2022/04/02/world/europe/ukraine-photojournalist-maks-levin-dead.html?searchResultPosition=7
-
-**With Ukraine Invasion, Hungary’s Leader Softens His Embrace of Russia**\
-`Facing an election on Sunday, Viktor Orban plays neutral peacemaker while campaigning against the “gender insanity” that he says is creeping in from the West.`\
-https://nytimes.com/2022/04/02/world/europe/hungary-orban-russia-ukraine.html?searchResultPosition=8
-
-**Israeli Troops Kill 3 Palestinian Militants in West Bank After Rise in Attacks**\
-`The Israeli authorities said the men were killed in a shootout. The security forces have ramped up their operations after a wave of violence.`\
-https://nytimes.com/2022/04/02/world/middleeast/israel-palestinians-west-bank.html?searchResultPosition=9
-
-**Torrey Peters’s Inspirations**\
-`The author of “Detransition, Baby” on Scandinavian literature and croissants.`\
-https://nytimes.com/2022/04/02/briefing/torrey-peters-oscars-will-smith-weekend.html?searchResultPosition=10
+https://nytimes.com/2022/04/02/arts/music/grammys-how-to-watch-live.html?searchResultPosition=10
 
