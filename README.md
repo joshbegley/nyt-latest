@@ -34,7 +34,7 @@ https://nytimes.com/2022/04/02/world/europe/pope-francis-putin-ukraine.html?sear
 `After bottoming out early in the pandemic, profits and spirits are soaring — and people were ready to party.`\
 https://nytimes.com/2022/04/02/business/auto-dealers-sales-profits.html?searchResultPosition=9
 
-**Imagine Another World. Now Imagine 5,000 More.**\
-`NASA recently announced that it had detected more than 5,000 exoplanets, so we asked astronomers, actors and an astronaut to share their favorite worlds orbiting distant stars.`\
-https://nytimes.com/2022/04/02/science/nasa-exoplanets-5000.html?searchResultPosition=10
+**A Slap Could Sting the Smith Family Brand**\
+`Will Smith has spent decades radiating boundless likability. His family has become known for sharing therapy sessions online. His smack at the Oscars has complicated all of that.`\
+https://nytimes.com/2022/04/02/movies/will-smith-family-oscars-slap.html?searchResultPosition=10
 
