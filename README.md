@@ -1,40 +1,40 @@
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/04/02/crosswords/spelling-bee-forum.html?searchResultPosition=1
+**One Weekend in Vegas With the Nation’s Auto Dealers**\
+`After bottoming out early in the pandemic, profits and spirits are soaring — and people were ready to party.`\
+https://nytimes.com/2022/04/02/business/auto-dealers-sales-profits.html?searchResultPosition=1
 
-**How Kyiv Has Withstood Russia’s Attacks**\
-`By Anjali Singhvi, Charlie Smart, Mika Gröndahl and James Glanz`\
-https://nytimes.com/interactive/2022/04/02/world/europe/kyiv-invasion-disaster.html?searchResultPosition=2
+**Imagine Another World. Now Imagine 5,000 More.**\
+`NASA recently announced that it had detected more than 5,000 exoplanets, so we asked astronomers, actors and an astronaut to share their favorite worlds orbiting distant stars.`\
+https://nytimes.com/2022/04/02/science/nasa-exoplanets-5000.html?searchResultPosition=2
 
-**Corrections: April 2, 2022**\
-`Corrections that appeared in print on Saturday, April 2, 2022.`\
-https://nytimes.com/2022/04/02/pageoneplus/corrections-april-2-2022.html?searchResultPosition=3
+**A Slap Could Sting the Smith Family Brand**\
+`Will Smith has spent decades radiating boundless likability. His family has become known for sharing therapy sessions online. His smack at the Oscars has complicated all of that.`\
+https://nytimes.com/2022/04/02/movies/will-smith-family-oscars-slap.html?searchResultPosition=3
 
-**Quotation of the Day: ‘I Feel Shame’: Pope Apologizes to Indigenous People of Canada**\
-`Quotation of the Day for Saturday, April 2, 2022.`\
-https://nytimes.com/2022/04/02/todayspaper/quotation-of-the-day-i-feel-shame-pope-apologizes-to-indigenous-people-of-canada.html?searchResultPosition=4
+**We Know the Pledge. Its Author, Maybe Not.**\
+`More than a century after a Baptist minister from upstate New York took credit for writing the Pledge of Allegiance, new evidence suggests the possibility of a very different story.`\
+https://nytimes.com/2022/04/02/obituaries/pledge-of-allegiance-author.html?searchResultPosition=4
 
-**What to Watch in the Men’s Final Four**\
-`No. 1 seed Kansas faces No. 2 seed Villanova in the first national semifinal, followed by the first game Duke and North Carolina have ever played in the N.C.A.A. men’s tournament, for a berth in the championship game.`\
-https://nytimes.com/2022/04/02/sports/ncaabasketball/final-four-ncaa-mens.html?searchResultPosition=5
+**A Year Above Ground**\
+`The strike at an Alabama coal mine is one of the longest in U.S. history. To make ends meet, some striking miners have picked up work at an Amazon warehouse. It’s the same warehouse where workers are trying to unionize.`\
+https://nytimes.com/2022/04/02/business/alabama-coal-mine-strike-amazon.html?searchResultPosition=5
 
-**A High School Reunion at the Final Four**\
-`Former high school teammates will face each other in Duke and North Carolina’s semifinal. And a Virginia coach is rooting for his former players to meet in a Duke-Villanova championship game.`\
-https://nytimes.com/2022/04/02/sports/ncaabasketball/final-four-former-teammates-paul-vi-high.html?searchResultPosition=6
+**Helping Hollywood Avoid Claims of Bias Is Now a Growing Business**\
+`Studios are signing up consultants to help make sure their movies or shows don’t raise any cultural red flags.`\
+https://nytimes.com/2022/04/02/business/media/hollywood-bias-consultants.html?searchResultPosition=6
 
-**With Defensive Wizardry, UConn Outlasts Stanford to Reach Title Game**\
-`The Huskies withstood several late pushes by the Cardinal to set up a showdown against South Carolina on Sunday night.`\
-https://nytimes.com/2022/04/01/sports/ncaabasketball/uconn-beats-stanford-final-four.html?searchResultPosition=7
+**Desperately Seeking Surrogates**\
+`Vaccine debates, pandemic parenting and general burnout have converged to create yet another shortage in the United States: of women willing to carry other people’s babies to term.`\
+https://nytimes.com/2022/04/02/style/surrogate-shortage-us-pandemic.html?searchResultPosition=7
 
-**Liverpool, Manchester City and a Bar Set Too High**\
-`The Premier League leaders will compete for three high-profile trophies this spring. But does failing to win them all turn a great season into a bad one?`\
-https://nytimes.com/2022/04/01/sports/soccer/liverpool-man-city.html?searchResultPosition=8
+**Asia Welcomes Travelers, But Japan Says, Not Yet**\
+`Countries across region are reopening borders to tourists, but Japan continues to turn them away. And the country is not rushing to change things.`\
+https://nytimes.com/2022/04/02/travel/japan-covid-tourism-border.html?searchResultPosition=8
 
-**Finding A Model Octopus**\
-`Finding A Model Octopus`\
-https://nytimes.com/slideshow/2022/04/01/homepage/finding-a-model-octopus.html?searchResultPosition=9
+**As Both Parties Gerrymander Furiously, State Courts Block the Way**\
+`State judges have been throwing out congressional maps they call partisan gerrymanders, in a sign of the effects of a 2019 Supreme Court ruling that pushed the issue below the federal level.`\
+https://nytimes.com/2022/04/02/us/politics/congressional-maps-gerrymandering-midterms.html?searchResultPosition=9
 
-**Dazzling Skill**\
-`What witchcraft is behind this Kyle Dolan challenge?`\
-https://nytimes.com/2022/04/01/crosswords/daily-puzzle-2022-04-02.html?searchResultPosition=10
+**Are Super Seniors the Secret to N.C.A.A. Tournament Success?**\
+`A number of the most successful teams in the 2022 tournaments feature athletes who are older than their N.B.A. counterparts.`\
+https://nytimes.com/2022/04/02/sports/basketball/super-seniors-college-basketball.html?searchResultPosition=10
 
