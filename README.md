@@ -1,5 +1,5 @@
 **How Kyiv Has Withstood Russia’s Attacks**\
-`Russia has more troops and more firepower. Why has it failed to seize the capital?`\
+`By Anjali Singhvi, Charlie Smart, Mika Gröndahl and James Glanz`\
 https://nytimes.com/interactive/2022/04/02/world/europe/kyiv-invasion-disaster.html?searchResultPosition=1
 
 **Corrections: April 2, 2022**\
