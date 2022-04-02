@@ -14,7 +14,7 @@ https://nytimes.com/2022/04/02/world/europe/ukraine-russian-defeat-vasylkiv.html
 `The transfer had been arranged during the Obama administration but was put on pause under President Donald J. Trump.`\
 https://nytimes.com/2022/04/02/us/politics/sufyian-barhoumi-guantanamo-bay.html?searchResultPosition=4
 
-**Claiming No-Confidence Vote is Compromised, Imran Khan Says He Won’t Accept Result**\
+**Claiming No-Confidence Vote Is Compromised, Imran Khan Says He Won’t Accept Result**\
 `The prime minister of Pakistan, whose coalition has lost support in the National Assembly, claimed the coming vote was a conspiracy between opposition lawmakers and the United States.`\
 https://nytimes.com/2022/04/02/world/asia/imran-khan-pakistan-no-confidence.html?searchResultPosition=5
 
