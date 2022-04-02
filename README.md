@@ -14,8 +14,8 @@ https://nytimes.com/2022/04/02/world/middleeast/yemen-cease-fire.html?searchResu
 `The ship, originally sailing to Philadelphia, apparently lost its buyer in the middle of the Atlantic. A number of tankers carrying Russian oil face similar problems.`\
 https://nytimes.com/2022/04/02/climate/oil-tankers-russia.html?searchResultPosition=4
 
-**Pope Francis says a possible visit to Ukraine is ‘on the table.’**\
-`He made the remark in response to a reporter’s question on a papal flight to Malta.`\
+**Pope Francis alludes to Putin’s bringing ‘dark shadows of war’ to Ukraine.**\
+`The pope also said in response to a reporter’s question on a papal flight to Malta that a possible visit to Kyiv was “on the table.”`\
 https://nytimes.com/2022/04/02/world/europe/pope-francis-putin-ukraine.html?searchResultPosition=5
 
 **One Weekend in Vegas With the Nation’s Auto Dealers**\
