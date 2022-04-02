@@ -1,5 +1,5 @@
-**Israeli Troops Kill 3 Palestinians in West Bank After Rise in Attacks**\
-`The Israeli authorities said the men were militants, killed in a shootout. The security forces have ramped up their operations after a wave of violence.`\
+**Israeli Troops Kill 3 Palestinian Militants in West Bank After Rise in Attacks**\
+`The Israeli authorities said the men were killed in a shootout. The security forces have ramped up their operations after a wave of violence.`\
 https://nytimes.com/2022/04/02/world/middleeast/israel-palestinians-west-bank.html?searchResultPosition=1
 
 **Torrey Peters’s Inspirations**\
