@@ -1,5 +1,5 @@
-**UConn outlasts Stanford to reach the title game with some defensive wizardry.**\
-`By Alan Blinder`\
+**With Defensive Wizardry, UConn Outlasts Stanford to Reach Title Game**\
+`The Huskies withstood several late pushes by the Cardinal to set up a showdown against South Carolina on Sunday night.`\
 https://nytimes.com/2022/04/01/sports/ncaabasketball/uconn-beats-stanford-final-four.html?searchResultPosition=1
 
 **Liverpool, Manchester City and a Bar Set Too High**\
