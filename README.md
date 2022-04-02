@@ -20,7 +20,7 @@ https://nytimes.com/interactive/2022/04/02/opinion/grammys-rock-guitar-solo.html
 
 **Pope Blames a ‘Potentate’ for Casting ‘Dark Shadows of War’ on Ukraine**\
 `Francis’ remarks during a trip to Malta were the closest he has come to pinning the war in Ukraine on President Vladimir V. Putin of Russia.`\
-https://nytimes.com/2022/04/02/world/europe/pope-francis-malta-russia-putin-ukraine.html?searchResultPosition=6
+https://nytimes.com/2022/04/02/world/europe/pope-francis-russia-putin-ukraine.html?searchResultPosition=6
 
 **‘This Is a Crime Against the Laws of Humanity’**\
 `What happened to the Black community in East St. Louis?`\
