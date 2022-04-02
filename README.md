@@ -1,5 +1,5 @@
-**South Carolina gets back in the championship game with a dominant win over Louisville.**\
-`By Remy Tumin`\
+**South Carolina Back in N.C.A.A. Championship Game With Win over Louisville**\
+`Aliyah Boston was again the centerpiece of yet another statement victory for the Gamecocks.`\
 https://nytimes.com/2022/04/01/sports/ncaabasketball/south-carolina-beats-louisville.html?searchResultPosition=1
 
 **U.S. Will Help Transfer Soviet-Made Tanks to Ukraine**\
