@@ -11,7 +11,7 @@ https://nytimes.com/video/world/europe/100000008286211/russian-missiles-strike-u
 https://nytimes.com/2022/04/03/opinion/letters/grief-children-camps.html?searchResultPosition=3
 
 **U.S. and European leaders express outrage at the images from Bucha.**\
-`Russia’s ministry of defense called the images “staged,” saying in a statement that “not a single” civilian had been injured in the town.`\
+`Russia’s Ministry of Defense called the images “staged,” saying in a statement that “not a single” civilian had been injured in the town.`\
 https://nytimes.com/2022/04/03/world/dead-civilians-bucha-ukraine.html?searchResultPosition=4
 
 **Estelle Harris, George’s Mother on ‘Seinfeld,’ Dies at 93**\
