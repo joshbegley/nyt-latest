@@ -1,5 +1,5 @@
 **Six Dead and Nine Injured in Shooting in Sacramento, Police Say**\
-`The shooting occurred in the downtown area early Sunday.`\
+`The shooting occurred in the downtown area early on Sunday.`\
 https://nytimes.com/2022/04/03/us/sacramento-shooting.html?searchResultPosition=1
 
 **The documentarian Mantas Kvedaravicius is reported killed in Mariupol.**\
