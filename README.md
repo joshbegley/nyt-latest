@@ -10,7 +10,7 @@ https://nytimes.com/2022/04/03/world/europe/pro-putin-leaders-in-hungary-and-ser
 `The 18-year-old Spaniard recently aced two significant American tournaments, reaching the semifinals at Indian Wells and winning the Miami Open.`\
 https://nytimes.com/2022/04/03/sports/tennis/carlos-alcaraz-miami-open.html?searchResultPosition=3
 
-**In a Kyiv Suburb,‘They Shot Everyone They Saw.’**\
+**In a Kyiv Suburb,‘They Shot Everyone They Saw’**\
 `With Russian forces retreating, Ukrainians in Bucha are finding scores of bodies in yards and on the roads amid mounting evidence of intentional and indiscriminate killings of civilians.`\
 https://nytimes.com/2022/04/03/world/europe/ukraine-russia-war-civilian-deaths.html?searchResultPosition=4
 
