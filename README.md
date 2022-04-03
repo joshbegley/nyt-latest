@@ -1,5 +1,5 @@
 **Opposition leaders accuse Pakistan’s prime minister of high treason.**\
-`Shehbaz Sharif, the leader of the opposition, said Prime Minister Imran Khan had violated the Constitution and asked the country’s Supreme Court to intervene.`\
+`Shehbaz Sharif, the leader of the opposition, said Prime Minister Imran Khan had violated the Constitution.`\
 https://nytimes.com/2022/04/03/world/asia/pakistan-opposition-shehbaz-sharif.html?searchResultPosition=1
 
 **Review: Two Sopranos Make an ‘Elektra’ Both Mythic and Human**\
