@@ -1,40 +1,40 @@
-**‘Toward the End of the Walk, a Bird Somewhere Ahead Burst Into Song’**\
-`Spotted at the Brooklyn Botanic Garden, a sweet subway surprise and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2022/04/03/nyregion/metropolitan-diary.html?searchResultPosition=1
+**In Switzerland, Seeing Where the Watch Magic Happens**\
+`Witnessing the peace and the ‘passion’ during a tour of Roger Dubuis.`\
+https://nytimes.com/2022/04/03/fashion/watches-factory-tours-roger-dubuis-switzerland.html?searchResultPosition=1
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/04/03/crosswords/spelling-bee-forum.html?searchResultPosition=2
+**Want to Sell Out? Have a President Wear Your Watch.**\
+`Actively Black and Teleport Watches collaborated on a sports model — then Barack Obama was photographed with it on his wrist.`\
+https://nytimes.com/2022/04/03/fashion/watches-actively-black-teleport-barack-obama.html?searchResultPosition=2
 
-**‘S.N.L.’ Spends a Night at the Oscars With Will Smith**\
-`The comedian Jerrod Carmichael hosted this weekend’s “Saturday Night Live,” which found several ways to address the Academy Awards incident in which Will Smith slapped Chris Rock.`\
-https://nytimes.com/2022/04/03/arts/television/saturday-night-live-will-smith-slap.html?searchResultPosition=3
+**‘This Is True Barbarity’: Life and Death Under Russian Occupation**\
+`The town of Trostyanets was occupied by Russian forces for a month before the Ukrainian military liberated it. Residents described weeks of hunger and horror.`\
+https://nytimes.com/2022/04/03/world/europe/ukraine-war-russia-trostyanets.html?searchResultPosition=3
 
-**Corrections: April 3, 2022**\
-`Corrections that appeared in print on Sunday, April 3, 2022.`\
-https://nytimes.com/2022/04/03/pageoneplus/corrections-april-3-2022.html?searchResultPosition=4
+**In the Ocean, It’s Snowing Microplastics**\
+`Tiny bits of plastic have infiltrated the deep sea’s main food source and could alter the ocean’s role in one of Earth’s ancient cooling processes, scientists say.`\
+https://nytimes.com/2022/04/03/science/ocean-plastic-animals.html?searchResultPosition=4
 
-**Quotation of the Day: Putin Reminds West He Has Economic Weapons as Well**\
-`Quotation of the Day for Sunday, April 3, 2022.`\
-https://nytimes.com/2022/04/03/todayspaper/quotation-of-the-day-putin-reminds-west-he-has-economic-weapons-as-well.html?searchResultPosition=5
+**Minnesota, a Mecca of Women’s Basketball, Is Having Its Moment**\
+`Minneapolis, the site of the women’s Final Four, has long produced outstanding players and rallied around its W.N.B.A. team, the Lynx.`\
+https://nytimes.com/2022/04/03/sports/ncaabasketball/minnesota-women-final-four-basketball.html?searchResultPosition=5
 
-**The Next Battleground for College Basketball: How to Divide the Money**\
-`The N.C.A.A. has made improvements to its women’s basketball tournament. Now coaches want to see the industry overhaul a system that pays conferences nothing when women’s teams win games.`\
-https://nytimes.com/2022/04/03/sports/ncaabasketball/ncaa-women-college-basketball-money.html?searchResultPosition=6
+**The Latest Covid Misinformation Star Says He Invented the Vaccines**\
+`Dr. Robert Malone says he helped invent mRNA vaccines and has been wronged for decades. Now he’s spreading unfounded claims about the vaccines and the virus.`\
+https://nytimes.com/2022/04/03/technology/robert-malone-covid.html?searchResultPosition=6
 
-**What to Watch in the N.C.A.A. Women’s Championship Game**\
-`South Carolina plays UConn at 8 p.m. Eastern on Sunday for a national championship.`\
-https://nytimes.com/2022/04/03/sports/ncaabasketball/south-carolina-uconn-national-championship.html?searchResultPosition=7
+**Surrounded by War, Compassion Endures**\
+`Small moments of humanity still sing out in Ukraine. Times journalists shared the of courage and kindness they’ve witnessed while covering the conflict.`\
+https://nytimes.com/2022/04/03/insider/surrounded-by-war-compassion-endures.html?searchResultPosition=7
 
-**North Carolina Wins the Battle of Tobacco Road, Retiring Krzyzewski**\
-`The Tar Heels will face Kansas on Monday night in the N.C.A.A. men’s championship game.`\
-https://nytimes.com/2022/04/02/sports/ncaabasketball/duke-unc-final-four.html?searchResultPosition=8
+**Why Hundreds of New York City Prosecutors Are Leaving Their Jobs**\
+`New burdens, low pay and pandemic malaise prompted the resignations of a fifth of the legal work force in Manhattan, the Bronx and Brooklyn.`\
+https://nytimes.com/2022/04/03/nyregion/why-hundreds-of-new-york-city-prosecutors-are-leaving-their-jobs.html?searchResultPosition=8
 
-**‘Macbeth’ performances on Broadway pause after Daniel Craig tests positive for the coronavirus.**\
-`The show, which just began previews on Tuesday, hopes to resume on April 8.`\
-https://nytimes.com/2022/04/02/world/daniel-craig-macbeth.html?searchResultPosition=9
+**A Canoeist Vanished. In ‘Riverman,’ Ben McGrath Sets Out to Find Him.**\
+`The true story of Dick Conant, a troubled and charismatic man who disappeared while paddling from New York to Florida.`\
+https://nytimes.com/2022/04/03/books/riverman-ben-mcgrath.html?searchResultPosition=9
 
-**Kansas Runs Past Villanova to Get to the N.C.A.A. Final, Avenging a 2018 Loss**\
-`The Jayhawks took a 10-0 lead in the opening minutes and never trailed. They will play the winner of the Duke-North Carolina game on Monday night for the national championship.`\
-https://nytimes.com/2022/04/02/sports/ncaabasketball/kansas-villanova-final-four.html?searchResultPosition=10
+**In Watches, What’s Old Is New**\
+`Brands like Zenith and Cartier are reviving retro favorites for a new generation of collectors.`\
+https://nytimes.com/2022/04/03/fashion/watches-retro-revivals-zenith-cartier.html?searchResultPosition=10
 
