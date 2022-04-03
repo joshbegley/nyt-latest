@@ -6,8 +6,8 @@ https://nytimes.com/2022/04/03/world/europe/ukraine-military-volunteers.html?sea
 `Mr. Fries, who performed under the stage name C.W. McCall, was an ad executive before he scored a hit with “Convoy,” a CB radio-inspired ode to renegade truckers.`\
 https://nytimes.com/2022/04/03/arts/music/cw-mccall-dead.html?searchResultPosition=2
 
-**Six Dead and Nine Injured in Shooting in Sacramento, Police Say**\
-`The shooting occurred in the downtown area early on Sunday.`\
+**Six Dead and Nine Wounded in Shooting in Sacramento, Police Say**\
+`The shooting occurred in the downtown area early Sunday.`\
 https://nytimes.com/2022/04/03/us/sacramento-shooting.html?searchResultPosition=3
 
 **The documentarian Mantas Kvedaravicius is reported killed in Mariupol.**\
