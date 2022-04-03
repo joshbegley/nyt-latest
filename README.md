@@ -16,7 +16,7 @@ https://nytimes.com/2022/04/03/arts/music/cw-mccall-dead.html?searchResultPositi
 
 **Six Dead and Nine Wounded in Shooting in Sacramento, Police Say**\
 `The shooting occurred in the downtown area early Sunday.`\
-https://nytimes.com/2022/04/03/us/sacramento-shooting.html?searchResultPosition=5
+https://nytimes.com/2022/04/03/us/sacramento-shooting-updates.html?searchResultPosition=5
 
 **The documentarian Mantas Kvedaravicius is reported killed in Mariupol.**\
 `Mr. Kvedaravicius, 45, had spent years covering the conflict in Ukraine. His work included “Mariupolis,” a searing portrait of the southern port city where he died.`\
