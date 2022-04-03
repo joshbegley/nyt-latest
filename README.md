@@ -22,7 +22,7 @@ https://nytimes.com/2022/04/03/arts/music/cw-mccall-dead.html?searchResultPositi
 `Opposition lawmakers have asked the court to allow them to proceed with a no-confidence vote and block the prime minister’s attempt to dissolve Parliament.`\
 https://nytimes.com/2022/04/03/world/asia/supreme-court-pakistan-imran-khan.html?searchResultPosition=6
 
-**Six Dead and Nine Wounded in Shooting in Sacramento, Police Say**\
+**6 Dead and 10 Wounded in Shooting in Sacramento, Police Say**\
 `The shooting occurred in the downtown area early Sunday.`\
 https://nytimes.com/2022/04/03/us/sacramento-shooting-updates.html?searchResultPosition=7
 
