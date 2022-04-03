@@ -1,5 +1,5 @@
-**Daniel Craig, who is starring on Broadway in ‘Macbeth,’ has tested positive for the coronavirus.**\
-`The show, which just began previews on Tuesday, is canceling all performances until April 8.`\
+**‘Macbeth’ performances on Broadway pause after Daniel Craig tests positive for the coronavirus.**\
+`The show, which just began previews on Tuesday, hopes to resume on April 8.`\
 https://nytimes.com/2022/04/02/world/daniel-craig-macbeth.html?searchResultPosition=1
 
 **Kansas Runs Past Villanova to Get to the N.C.A.A. Final, Avenging a 2018 Loss**\
