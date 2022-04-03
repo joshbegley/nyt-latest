@@ -24,7 +24,7 @@ https://nytimes.com/2022/04/03/world/europe/ukraine-russia-war-civilian-deaths.h
 
 **After Injury, Armando Bacot Isn’t Deterred by Quick Turnaround**\
 `Bacot, a North Carolina forward who returned to the semifinal against Duke after hurting his right ankle, is determined to play in Monday’s championship game against Kansas.`\
-https://nytimes.com/2022/04/03/sports/armando-bacot-unc.html?searchResultPosition=7
+https://nytimes.com/2022/04/03/sports/ncaabasketball/armando-bacot-unc.html?searchResultPosition=7
 
 **Thunder Lizard**\
 `Derek J. Angell opens our solving week with a roar.`\
