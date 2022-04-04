@@ -36,5 +36,5 @@ https://nytimes.com/2022/04/04/opinion/biden-trump-desantis-disney.html?searchRe
 
 **How the Recoil From Russian Gas Is Scrambling World Markets**\
 `Europe wants 50 billion cubic meters of additional natural gas, but supplies are tight. Prices will rise and other regions might have to do with less.`\
-https://nytimes.com/2022/04/04/business/russia-europe-natural-as.html?searchResultPosition=10
+https://nytimes.com/2022/04/04/business/russia-europe-natural-gas.html?searchResultPosition=10
 
