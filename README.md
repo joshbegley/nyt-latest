@@ -4,7 +4,7 @@ https://nytimes.com/2022/04/04/us/sacramento-shooting.html?searchResultPosition=
 
 **Julian Gaines Has a Question: ‘How Do I Paint Oregon Black?’**\
 `A love for Nike led him away his home in Chicago to a grand artist’s studio on a wind farm outside Portland.`\
-https://nytimes.com/2022/04/04/style/julian-gaines-has-a-question-how-do-i-paint-oregon-black.html?searchResultPosition=2
+https://nytimes.com/2022/04/04/style/julian-gaines-artist.html?searchResultPosition=2
 
 **Zelensky blasts Merkel and Sarkozy for denying Ukraine NATO membership.**\
 `In a video address, he said that NATO’s decision in 2008 not to give Ukraine a path to membership helped lead to atrocities by Russian forces.`\
