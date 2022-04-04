@@ -6,7 +6,7 @@ https://nytimes.com/video/world/europe/100000008287568/ukraine-nato-merkel-sarko
 `Your response may be used in an upcoming story.`\
 https://nytimes.com/2022/04/04/well/family/motherhood-advice.html?searchResultPosition=2
 
-**ICE Lawyers Directed to Clear Low- Priority Immigration Cases**\
+**ICE Lawyers Directed to Clear Low-Priority Immigration Cases**\
 `The effort could significantly reduce a backlog of asylum and deportation cases as the Biden administration anticipates a huge surge of migrants crossing the border.`\
 https://nytimes.com/2022/04/04/us/politics/ice-immigration-cases.html?searchResultPosition=3
 
