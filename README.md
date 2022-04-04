@@ -1,5 +1,5 @@
 **Glass Animals miss ceremony after lead singer tests positive for Covid-19.**\
-`The band’s song, “Heat Waves,” is currently the number one song in the country.`\
+`The band’s song, “Heat Waves,” is currently the No. 1 song in the country.`\
 https://nytimes.com/2022/04/03/arts/music/glass-animals-grammys-covid.html?searchResultPosition=1
 
 **‘Balkan Bordello’ Review: A Tragic Tale Reborn for a Time of War**\
