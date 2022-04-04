@@ -22,8 +22,8 @@ https://nytimes.com/2022/04/04/style/julian-gaines-artist.html?searchResultPosit
 `In a video address, he said that NATO’s decision in 2008 not to give Ukraine a path to membership helped lead to atrocities by Russian forces.`\
 https://nytimes.com/2022/04/04/world/europe/zelensky-nato-merkel-sarkozy.html?searchResultPosition=6
 
-**Elon Musk buys a large stake in Twitter.**\
-`The purchase makes the Tesla chief executive, who has been critical of Twitter’s content moderation policies, its biggest shareholder.`\
+**Elon Musk becomes Twitter’s largest shareholder.**\
+`The Tesla chief executive, who has been critical of Twitter’s content moderation policies, purchased 9.2 percent of the social media company.`\
 https://nytimes.com/2022/04/04/technology/elon-musk-twitter.html?searchResultPosition=7
 
 **Grammys Red Carpet: Show Girls, Tiger Queens and Pearly Kings**\
