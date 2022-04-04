@@ -1,5 +1,5 @@
 **The War Moves East, as Putin Looks for a Victory**\
-`Having failed to score a quick triumph, Russia is shifting its attention to the contested breakaway enclaves, It is also shelling large cities to tie up enemy forces and keep them out of the expected new areas of battle.`\
+`Having failed to score a quick triumph, Russia is shifting its attention to the contested breakaway enclaves, in Ukraine’s East. It is also shelling large cities to keep enemy forces from the expected new areas of battle.`\
 https://nytimes.com/2022/04/04/world/europe/ukraine-war-east-russia.html?searchResultPosition=1
 
 **‘Dating Coach’ Charged in Capitol Riot Gets Prison Term for Gun Crime**\
