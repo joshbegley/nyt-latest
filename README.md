@@ -1,5 +1,5 @@
 **Julian Gaines Has a Question: ‘How Do I Paint Oregon Black?’**\
-`A love for Nike led him away his home in Chicago to a grand studio on a wind farm outside Portland.`\
+`A love for Nike led him away his home in Chicago to a grand artist’s studio on a wind farm outside Portland.`\
 https://nytimes.com/2022/04/04/style/julian-gaines-has-a-question-how-do-i-paint-oregon-black.html?searchResultPosition=1
 
 **Zelensky blasts Merkel and Sarkozy for denying Ukraine NATO membership.**\
