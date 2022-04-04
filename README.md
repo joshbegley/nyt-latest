@@ -30,11 +30,11 @@ https://nytimes.com/2022/04/04/science/octopus-model-mbl.html?searchResultPositi
 `The casting director behind “Euphoria” and “Uncut Gems” puts real life onto big and small screens. A new book details her process.`\
 https://nytimes.com/2022/04/04/style/jennifer-venditti-euphoria-casting-director.html?searchResultPosition=8
 
-**What Other Cities Can Teach New York About Homelessness on Transit**\
-`As New York City makes a new push to relocate homeless people from the subway, the experiences of Philadelphia, San Francisco and others show the challenges ahead.`\
-https://nytimes.com/2022/04/04/nyregion/homeless-people-subway-transit-systems.html?searchResultPosition=9
-
 **Bristling Against the West, China Rallies Domestic Sympathy for Russia**\
 `China’s Communist Party is mounting an ideological campaign aimed at officials and students. The message: The country will not turn its back on Russia.`\
-https://nytimes.com/2022/04/04/world/asia/china-russia-ukraine.html?searchResultPosition=10
+https://nytimes.com/2022/04/04/world/asia/china-russia-ukraine.html?searchResultPosition=9
+
+**What Other Cities Can Teach New York About Homelessness on Transit**\
+`As New York City makes a new push to relocate homeless people from the subway, the experiences of Philadelphia, San Francisco and others show the challenges ahead.`\
+https://nytimes.com/2022/04/04/nyregion/homeless-people-subway-transit-systems.html?searchResultPosition=10
 
