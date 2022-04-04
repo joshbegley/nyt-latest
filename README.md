@@ -1,6 +1,6 @@
 **The Grammys pays tribute to Taylor Hawkins, Stephen Sondheim and other music luminaries.**\
 `The Foo Fighters drummer was honored alongside Charlie Watts, DMX and Meat Loaf, among others.`\
-https://nytimes.com/2022/04/03/arts/music/grammys-tribute-taylor-hawkins.html?searchResultPosition=1
+https://nytimes.com/2022/04/03/arts/music/grammys-in-memoriam-tribute-taylor-hawkins.html?searchResultPosition=1
 
 **Zelensky speaks to Grammys audience in a prerecorded video.**\
 `The Ukrainian president, Volodymyr Zelensky, made a plea for support before John Legend performed, sharing the stage with a poet and a singer from Ukraine.`\
