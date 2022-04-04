@@ -19,7 +19,7 @@ https://nytimes.com/2022/04/04/sports/ncaabasketball/kansas-north-carolina-natio
 https://nytimes.com/2022/04/03/arts/music/grammy-awards-jon-batiste-silk-sonic.html?searchResultPosition=5
 
 **Carrie Lam, Racked by Covid Failures, Will Not Seek New Term in Hong Kong**\
-`Mrs. Lam has been criticized by residents and pro-Beijing lawmakers for mixed messaging and mishandling the city’s fifth coronavirus outbreak.`\
+`She has been criticized by residents and pro-Beijing lawmakers for mixed messaging and mishandling the city’s fifth coronavirus outbreak.`\
 https://nytimes.com/2022/04/03/world/asia/hong-kong-carrie-lam-covid.html?searchResultPosition=6
 
 **Word of the Day: deciduous**\
