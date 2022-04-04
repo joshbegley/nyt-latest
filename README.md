@@ -1,4 +1,4 @@
-**The Dead Rabbit Will Expand Its Cocktail Empire to New Orleans and Beyond**\
+**The Cocktail Bar Dead Rabbit Will Expand to New Orleans and Beyond**\
 `New locations of the Lower Manhattan bar are in the works, and a sister bar, Hazel and Apple, will open in Charleston, S.C., this year.`\
 https://nytimes.com/2022/04/04/dining/dead-rabbit-austin-new-orleans-hazel-and-apple.html?searchResultPosition=1
 
