@@ -1,6 +1,6 @@
 **Elon Musk’s Latest Twitter Adventure**\
 `The Tesla chief bought a big stake in the social media company. What’s his plan?`\
-https://nytimes.com/2022/04/04/business/dealbook/elon-musk-twitter.html?searchResultPosition=1
+https://nytimes.com/2022/04/04/business/dealbook/twitter-stake-elon-musk.html?searchResultPosition=1
 
 **What to Know About the Sacramento Shooting**\
 `At least six people were killed and 12 wounded on Sunday in a killing that the police say involved multiple shooters.`\
