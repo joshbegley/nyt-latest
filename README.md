@@ -22,7 +22,7 @@ https://nytimes.com/2022/04/04/business/ford-stellantis-car-sales.html?searchRes
 `A beautiful set of treats, with fillings like coffee cream, mango and more, from Norman Love Confections is sure to  delight.`\
 https://nytimes.com/2022/04/04/dining/chocolate-easter-eggs.html?searchResultPosition=6
 
-**Mother of Slain 12-Year-Old Begs for Answers: ‘I’m Asking for Justice.’**\
+**Mother of Slain 12-Year-Old Begs for Answers: ‘I’m Asking for Justice’**\
 `Kade Lewin was fatally shot on Thursday evening as he sat in a parked car with family members in Brooklyn. No arrests have been made.`\
 https://nytimes.com/2022/04/04/nyregion/brooklyn-shooting-eric-adams.html?searchResultPosition=7
 
