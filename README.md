@@ -12,7 +12,7 @@ https://nytimes.com/2022/04/04/well/covid-vaccine-divorced-parents.html?searchRe
 
 **At the Grammys, the Young Succeed Most When They Seem Old**\
 `Despite nods to Gen Z, this year’s show favored history-minded performers like Silk Sonic, Jon Batiste, H.E.R. and Lady Gaga.`\
-https://nytimes.com/2022/04/04/arts/music/grammys-silk-sonic-justin-bieber-lady-gaga.html?searchResultPosition=4
+https://nytimes.com/2022/04/04/arts/music/grammys-silk-sonic-lady-gaga.html?searchResultPosition=4
 
 **$3 Million Homes in California**\
 `A Spanish-style house in Altadena, a converted 1908 barn in Tiburon and a four-bedroom home in Geyserville.`\
