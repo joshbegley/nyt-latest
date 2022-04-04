@@ -4,7 +4,7 @@ https://nytimes.com/2022/04/03/arts/music/grammys-in-memoriam-tribute-taylor-haw
 
 **Zelensky speaks to Grammys audience in a prerecorded video.**\
 `The Ukrainian president, Volodymyr Zelensky, made a plea for support before John Legend performed, sharing the stage with a poet and a singer from Ukraine.`\
-https://nytimes.com/2022/04/03/arts/music/ukraine-zelensky-john-legend.html?searchResultPosition=2
+https://nytimes.com/2022/04/03/arts/music/ukraine-zelensky-john-legend-grammys.html?searchResultPosition=2
 
 **South Carolina, a Dominant Force All Season, Delivers a Championship Over UConn**\
 `And it made its final victory over the Huskies — the 11-time champions — look easy.`\
