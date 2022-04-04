@@ -1,5 +1,5 @@
 **Carrie Lam, Racked by Covid Failures, Will Not Seek New Term in Hong Kong**\
-`Mrs. Lam has been criticized by residents and pro-Beijing lawmakers for mixed messaging and mishandling the city’s fifth  coronavirus outbreak.`\
+`Mrs. Lam has been criticized by residents and pro-Beijing lawmakers for mixed messaging and mishandling the city’s fifth coronavirus outbreak.`\
 https://nytimes.com/2022/04/03/world/asia/hong-kong-carrie-lam-covid.html?searchResultPosition=1
 
 **Word of the Day: deciduous**\
