@@ -7,7 +7,7 @@ https://nytimes.com/2022/04/04/us/politics/ketanji-brown-jackson-judiciary-commi
 https://nytimes.com/2022/04/04/us/us-colleges-that-once-championed-surveillance-virus-testing-are-backing-away.html?searchResultPosition=2
 
 **Satellite images show bodies lay in Bucha for weeks, despite Russian claims.**\
-`Russia has suggested the bodies were placed there after its soldiers left Bucha, near Kyiv, last week.`\
+`The images rebut Russia’s claim that the killing of civilians in Bucha, near Kyiv, took place after its soldiers had left town.`\
 https://nytimes.com/2022/04/04/world/europe/bucha-ukraine-bodies.html?searchResultPosition=3
 
 **Sri Lanka Protesters Defy President, Rejecting a Cabinet Shuffle**\
