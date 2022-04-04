@@ -16,7 +16,7 @@ https://nytimes.com/2022/04/04/us/politics/ketanji-brown-jackson-judiciary-commi
 
 **U.S. colleges that once championed surveillance virus testing are backing away.**\
 `Institutions that used to test everyone on campus regularly now say it’s enough just to test the unvaccinated and people with symptoms.`\
-https://nytimes.com/2022/04/04/us/us-colleges-that-once-championed-surveillance-virus-testing-are-backing-away.html?searchResultPosition=5
+https://nytimes.com/2022/04/04/us/college-covid-testing-requirements.html?searchResultPosition=5
 
 **Satellite images show bodies lay in Bucha for weeks, despite Russian claims.**\
 `The images rebut Russia’s claim that the killing of civilians in Bucha, near Kyiv, took place after its soldiers had left town.`\
