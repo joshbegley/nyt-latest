@@ -14,7 +14,7 @@ https://nytimes.com/2022/04/05/opinion/great-resignation-employment.html?searchR
 `The bill aims to compensate struggling news organizations and follows similar moves by Europe and Australia.`\
 https://nytimes.com/2022/04/05/world/canada/revenue-sharing-facebook-google.html?searchResultPosition=4
 
-**Louis C.K.’s Grammy, After ‘Global Amounts of Trouble,’ Sparks Backlash**\
+**Louis C.K.’s Grammy, After ‘Global Amounts of Trouble,’ Draws Backlash**\
 `Some comedians are questioning how the Recording Academy saw fit to bestow an award to someone who had admitted to sexual misconduct.`\
 https://nytimes.com/2022/04/05/arts/television/louis-ck-grammy-backlash.html?searchResultPosition=5
 
