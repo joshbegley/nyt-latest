@@ -1,6 +1,6 @@
 **Twitter adds Elon Musk to its board of directors.**\
 `After becoming Twitter’s largest shareholder, Elon Musk, Tesla’s chief executive, is joining the company’s board of directors.`\
-https://nytimes.com/2022/04/04/business/twitter-musk-directors.html?searchResultPosition=1
+https://nytimes.com/2022/04/04/business/twitter-elon-musk-directors.html?searchResultPosition=1
 
 **Can California Really Push Back Against Red States?**\
 `As conservative states move to enact far-right legislative agendas, California leaders say they’re spearheading the resistance.`\
@@ -11,7 +11,7 @@ https://nytimes.com/2022/04/05/us/california-legislation-push-back-red-states.ht
 https://nytimes.com/2022/04/05/books/review/frans-de-waal-different.html?searchResultPosition=3
 
 **Why Germany Can’t Just Pull the Plug on Russian Energy**\
-`Under increasing pressure to sever the country’s reliance on Russian energy, German officials must contend with deeply rooted economic ties`\
+`Under increasing pressure to sever the country’s reliance on Russian energy, German officials must contend with deeply rooted economic ties.`\
 https://nytimes.com/2022/04/05/business/germany-russia-oil-gas-coal.html?searchResultPosition=4
 
 **Weekly News Quiz for Students: Grammys, N.C.A.A. Champions, Russian Atrocities**\
