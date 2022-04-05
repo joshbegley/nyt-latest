@@ -22,7 +22,7 @@ https://nytimes.com/video/us/100000008290475/storm-hail-tornado-south.html?searc
 `The authorities said they connected Harry Edward Greenwell, who died in 2013, to at least three murders in Kentucky and Indiana, using genetic genealogy.`\
 https://nytimes.com/2022/04/05/us/i65-killer-indiana-kentucky.html?searchResultPosition=6
 
-**Joe Biden Is Still Right. Putin Has to Go.**\
+**Biden Is Still Right. Putin Has to Go.**\
 `Russian atrocities in Ukraine require the West to take a harder stance. `\
 https://nytimes.com/2022/04/05/opinion/joe-biden-putin.html?searchResultPosition=7
 
