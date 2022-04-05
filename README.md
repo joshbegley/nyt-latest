@@ -1,4 +1,4 @@
-**Yellen to warn of ‘enormous economic repercussions’ from Ukraine invasion.**\
+**Yellen to Warn of ‘Enormous Economic Repercussions’ From Ukraine Invasion**\
 `The Treasury secretary plans to highlight risks of rising food and energy prices at a congressional hearing on Wednesday.`\
 https://nytimes.com/2022/04/05/business/yellen-russia-ukraine-economy-sanctions.html?searchResultPosition=1
 
