@@ -26,13 +26,13 @@ https://nytimes.com/2022/04/04/opinion/furries-culture-war.html?searchResultPosi
 `Naomi Biden, 28, the daughter of Hunter Biden and Kathleen Buhle, will marry Peter Neal, 24, this fall.`\
 https://nytimes.com/2022/04/04/us/politics/naomi-biden-white-house-wedding-reception.html?searchResultPosition=7
 
-**A Small Earthquake on Staten Island**\
-`Why a pro-union vote at Amazon may be a big deal.`\
-https://nytimes.com/2022/04/04/opinion/amazon-union-staten-island.html?searchResultPosition=8
-
 **Sarah Palin Knows How to Get Attention. Can She Actually Win?**\
 `Endorsed by Donald Trump for Alaska’s lone House seat, the former vice-presidential candidate hopes she can mount a political comeback. But she’s not the phenomenon she once was.`\
-https://nytimes.com/2022/04/04/us/politics/sarah-palin-trump-endorsement.html?searchResultPosition=9
+https://nytimes.com/2022/04/04/us/politics/sarah-palin-trump-endorsement.html?searchResultPosition=8
+
+**A Small Earthquake on Staten Island**\
+`Why a pro-union vote at Amazon may be a big deal.`\
+https://nytimes.com/2022/04/04/opinion/amazon-union-staten-island.html?searchResultPosition=9
 
 **TikTok to the Grammys: How a ‘Bridgerton’ Musical Beat Broadway**\
 `With their award for “The Unofficial Bridgerton Musical,” two musical theater newcomers won against veterans like Andrew Lloyd Webber and Stephen Schwartz.`\
