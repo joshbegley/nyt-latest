@@ -2,7 +2,7 @@
 `Hundreds of satellites and spacecraft are keeping an eye on Russia’s nuclear forces from above. So far, they haven’t seen much to worry about.`\
 https://nytimes.com/2022/04/05/science/nuclear-weapon-russia-satellite-tracking.html?searchResultPosition=1
 
-**Jewish Man’s Death Near Paris Sparks Outrage on Election Eve**\
+**Jewish Man’s Death Near Paris Fuels Outrage on Election Eve**\
 `Newly surfaced video shows the man, who was hit by a tram in February, fleeing an assault. It has fueled suspicions of an antisemitic motive days before France’s presidential vote.`\
 https://nytimes.com/2022/04/05/world/europe/jewish-death-france-election.html?searchResultPosition=2
 
