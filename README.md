@@ -3,7 +3,7 @@
 https://nytimes.com/2022/04/05/arts/television/june-brown-dead.html?searchResultPosition=1
 
 **Alan J. Hruska, a Founder of Soho Press, Dies at 88**\
-`A litigator for 44 years, he was also a novelist, a writer, director and producer of plays and films and helped establish the independent publishing house Soho Press.`\
+`A litigator for 44 years, he was also a novelist; a writer, director and producer of plays and films; and helped establish the independent publishing house Soho Press.`\
 https://nytimes.com/2022/04/05/arts/alan-j-hruska-dead.html?searchResultPosition=2
 
 **Tiny Love Stories: ‘I Quietly, Foolishly Eloped’**\
