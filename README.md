@@ -4,7 +4,7 @@ https://nytimes.com/video/world/europe/100000008289501/eu-russia-sanctions-coal-
 
 **Twitter will stiffen moderation policies in response to the war in Ukraine.**\
 `Twitter will stop amplifying Russian government accounts and ban some tweets containing images of prisoners of war.`\
-https://nytimes.com/2022/04/05/business/twitter-policy-war.html?searchResultPosition=2
+https://nytimes.com/2022/04/05/business/twitter-policy-ukraine.html?searchResultPosition=2
 
 **E.P.A. to Propose Restrictions on Asbestos**\
 `The agency aims to ban the manufacturing and import of a type of asbestos that is used in brake pads, gaskets and other automotive products and is linked to cancer.`\
