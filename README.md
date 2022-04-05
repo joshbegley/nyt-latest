@@ -15,7 +15,7 @@ https://nytimes.com/2022/04/05/sports/baseball/louis-head-miami-marlins.html?sea
 https://nytimes.com/2022/04/05/arts/design/wojnarowicz-ppow-gallery-art-delage.html?searchResultPosition=4
 
 **Twitter adds Elon Musk to its board of directors.**\
-`After becoming Twitter’s largest shareholder, Elon Musk, Tesla’s chief executive, is joining the company’s board of directors.`\
+`After becoming Twitter’s largest shareholder, Elon Musk, Tesla’s chief executive, is joining the social media company’s board of directors.`\
 https://nytimes.com/2022/04/04/business/twitter-elon-musk-directors.html?searchResultPosition=5
 
 **Can California Really Push Back Against Red States?**\
