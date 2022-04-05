@@ -14,27 +14,27 @@ https://nytimes.com/2022/04/05/books/review/the-kings-shadow-edmund-richardson.h
 `“It Was Vulgar & It Was Beautiful,” by Jack Lowery, recounts the daring efforts of Gran Fury to bring attention and resources to the cause.`\
 https://nytimes.com/2022/04/05/books/review-it-was-vulgar-beautiful-aids-gran-fury-jack-lowery.html?searchResultPosition=4
 
+**Zelensky vilifies Russia over atrocities: ‘They killed entire families.’**\
+`The Ukrainian president delivered one of his most forceful denunciations of the invasion in a live video speech to the United Nations Security Council on Tuesday.`\
+https://nytimes.com/2022/04/05/world/europe/zelensky-russia-atrocities-ukraine.html?searchResultPosition=5
+
 **U.S. blocks Russia’s access to dollars for bond payments, heightening risk of default.**\
 `The U.S. Treasury tightened its restrictions on Russian financial transactions on Monday, when more than half a billion dollars in bond payments were due.`\
-https://nytimes.com/2022/04/05/business/russia-debt-dollars.html?searchResultPosition=5
+https://nytimes.com/2022/04/05/business/russia-debt-dollars.html?searchResultPosition=6
 
 **We have the tools to slow warming**\
 `We actually have a better shot than we did a few years ago, according to a new United Nations report. But big obstacles must be overcome.`\
-https://nytimes.com/2022/04/05/climate/we-have-the-tools-to-slow-warming.html?searchResultPosition=6
+https://nytimes.com/2022/04/05/climate/we-have-the-tools-to-slow-warming.html?searchResultPosition=7
 
 **Caviar and canned tuna: Top Fed official points out income-based inflation gaps.**\
 `Lael Brainard, a governor of the Federal Reserve, highlighted the impact of inflation on the poor and pledged to act to cool off rising prices.`\
-https://nytimes.com/2022/04/05/business/lael-brainard-inflation.html?searchResultPosition=7
+https://nytimes.com/2022/04/05/business/lael-brainard-inflation.html?searchResultPosition=8
 
 **Jason Kilar, head of WarnerMedia, announces he is leaving ahead of Discovery merger.**\
 `Mr. Kilar helped HBO Max exceed expectations, but upset some top Hollywood filmmakers in the process.`\
-https://nytimes.com/2022/04/05/business/media/jason-kilar-warnermedia-discovery.html?searchResultPosition=8
+https://nytimes.com/2022/04/05/business/media/jason-kilar-warnermedia-discovery.html?searchResultPosition=9
 
 **Ditch the Oil, and the Petro-Dictators Too**\
 `Responses to a column by Thomas L. Friedman. Also: The true patriots; Covid choices of strangers; wildflowers.`\
-https://nytimes.com/2022/04/05/opinion/letters/oil-russia-climate-change.html?searchResultPosition=9
-
-**Tiger Woods Says, ‘I Feel Like I Am Going to Play’ the Masters**\
-`Woods, who sustained significant leg injuries in a single-car crash in February 2021, has played several practice rounds at Augusta National this week.`\
-https://nytimes.com/2022/04/05/sports/golf/tiger-woods-masters.html?searchResultPosition=10
+https://nytimes.com/2022/04/05/opinion/letters/oil-russia-climate-change.html?searchResultPosition=10
 
