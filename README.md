@@ -4,7 +4,7 @@ https://nytimes.com/2022/04/05/us/politics/justice-dept-january-6-trump-allies.h
 
 **At Least 200 Feared Dead in Apartments Hit by Russia, Officials Say**\
 `After Russian forces withdrew from Borodyanka, a commuter town near Ukraine’s capital, families are searching the rubble for bodies.`\
-https://nytimes.com/2022/04/05/world/asia/ukraine-russia-borodyanka-civilians.html?searchResultPosition=2
+https://nytimes.com/2022/04/05/world/asia/ukraine-civilians-russia-borodyanka.html?searchResultPosition=2
 
 **The F.D.A. suspends use of a Glaxo antibody drug in the U.S. as an Omicron subvariant spreads.**\
 `Manufacturers said lab testing revealed that the authorized dosage of the drug was not sufficiently potent against BA.2.`\
