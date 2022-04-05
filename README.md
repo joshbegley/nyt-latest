@@ -27,7 +27,7 @@ https://nytimes.com/2022/04/05/world/europe/zelensky-russia-atrocities-ukraine.h
 https://nytimes.com/2022/04/05/business/russia-debt-dollars.html?searchResultPosition=7
 
 **We have the tools to slow warming**\
-`We actually have a better shot than we did a few years ago, according to a new United Nations report. But big obstacles must be overcome.`\
+`We actually have a better shot than we did a few years ago, according to a new United Nations report. But powerful interests stand in the way.`\
 https://nytimes.com/2022/04/05/climate/we-have-the-tools-to-slow-warming.html?searchResultPosition=8
 
 **Caviar and canned tuna: Top Fed official points out income-based inflation gaps.**\
