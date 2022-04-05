@@ -2,7 +2,7 @@
 `This word has appeared in 83 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2022/04/05/learning/word-of-the-day-decrepit.html?searchResultPosition=1
 
-**Remy Martin got the finish that Kansas wanted after a rocky season.**\
+**Remy Martin Gets Finish Kansas Wanted After Rocky Season**\
 `Martin, a transfer from Arizona State, spent a significant part of the season with a knee injury. But he excelled come tournament time.`\
 https://nytimes.com/2022/04/04/sports/ncaabasketball/remy-martin-kansas-unc.html?searchResultPosition=2
 
@@ -14,7 +14,7 @@ https://nytimes.com/2022/04/05/nyregion/woman-shot-bronx.html?searchResultPositi
 `“Trump endorsing Palin is like paste eating endorsing glue sniffing,” Kimmel joked.`\
 https://nytimes.com/2022/04/05/arts/television/kimmel-trump-palin.html?searchResultPosition=4
 
-**In a battle of bigs, Kansas’ David McCormack delivers.**\
+**In Battle of Bigs, Kansas’ David McCormack Delivers**\
 `McCormack scored 9 points in the second half, including the Jayhawks’ last two field goals, to help Kansas win the national championship.`\
 https://nytimes.com/2022/04/04/sports/ncaabasketball/david-mccormack-kansas-unc.html?searchResultPosition=5
 
