@@ -27,7 +27,7 @@ https://nytimes.com/2022/04/04/world/africa/killing-moura-mali.html?searchResult
 https://nytimes.com/2022/04/04/books/lygia-fagundes-telles-dead.html?searchResultPosition=7
 
 **U.S. government to jury in 1MDB trial: Convict even if you don’t believe our star witness.**\
-`The defense said the only evidence of involvement by Roger Ng, who is accused of receiving illegal kickbacks, was the testimony of the Tim Leissner, a former Goldman partner who admitted on the stand to lying a lot.`\
+`The defense said the only evidence of involvement by Roger Ng, who is accused of receiving illegal kickbacks, was the testimony of Tim Leissner, a former Goldman partner who admitted on the stand to lying a lot.`\
 https://nytimes.com/2022/04/04/business/1mdb-trial-roger-ng.html?searchResultPosition=8
 
 **Covid’s Toll on Diabetic Americans**\
