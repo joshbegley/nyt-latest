@@ -1,6 +1,6 @@
 **Writers Gather to Discuss the Role of Literature in Times of War and Isolation**\
 `The PEN World Voices Festival will bring together hundreds of writers, among them Abdulrazak Gurnah, Alejandro Zambra and Gary Shteyngart, and will include an address by Andrey Kurkov, a Ukrainian novelist.`\
-https://nytimes.com/2022/04/05/books/writers-gather-to-discuss-the-role-of-literature-in-times-of-war-and-isolation.html?searchResultPosition=1
+https://nytimes.com/2022/04/05/books/pen-world-voices.html?searchResultPosition=1
 
 **Richard Linklater and Sandra Adair: Three Decades of Action and Cuts**\
 `The director and the editor have collaborated on 20 features, including “Apollo 10½,” now on Netflix.`\
