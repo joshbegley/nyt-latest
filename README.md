@@ -31,7 +31,7 @@ https://nytimes.com/2022/04/06/arts/design/ulysses-jenkins-video-artist-hammer.h
 https://nytimes.com/interactive/2022/04/06/magazine/national-magazine-awards.html?searchResultPosition=8
 
 **Biden White House Keeps Student Loan Payments at Bay Amid Inflation**\
-`The administration is in a tight spot as fast inflation makes households unhappy. Trying to offset price pain risks can risk stoking demand.`\
+`The administration is in a tight spot as fast inflation makes households unhappy. Trying to offset price pain can risk stoking demand.`\
 https://nytimes.com/2022/04/06/business/economy/student-loan-pause-inflation.html?searchResultPosition=9
 
 **Doris Derby, Civil Rights Era Photographer, Dies at 82**\
