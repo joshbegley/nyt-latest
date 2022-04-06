@@ -36,5 +36,5 @@ https://nytimes.com/2022/04/06/sports/ncaabasketball/jon-scheyer-duke.html?searc
 
 **Nehemiah Persoff, Actor With a Familiar Face (and Voice), Dies at 102**\
 `His most prominent roles included three tenderly caring parents, but he was most associated with the dapper gangsters he portrayed in the movies and on television.`\
-https://nytimes.com/2022/04/06/arts/television/nehemiah-persoff-actor-with-a-familiar-face-and-voice-dies-at-102.html?searchResultPosition=10
+https://nytimes.com/2022/04/06/arts/television/nehemiah-persoff-dead.html?searchResultPosition=10
 
