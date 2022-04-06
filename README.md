@@ -28,7 +28,7 @@ https://nytimes.com/2022/04/06/us/politics/capitol-hill-fox.html?searchResultPos
 
 **House Votes to Find Two Trump Aides in Contempt in Jan. 6 Inquiry**\
 `The vote was mostly along party lines to recommend that the Justice Department charge Peter Navarro and Dan Scavino Jr. with criminal contempt of Congress for defying subpoenas.`\
-https://nytimes.com/2022/04/06/us/politics/january-6-scavino-navarro-trump-contempt.html?searchResultPosition=8
+https://nytimes.com/2022/04/06/us/politics/january-6-scavino-navarro-trump.html?searchResultPosition=8
 
 **Biden Appears to Show Support for Amazon Workers Who Voted to Unionize**\
 `“By the way, Amazon, here we come. Watch,” the president said. But the White House quickly said his remarks did not mean the government would get formally involved.`\
