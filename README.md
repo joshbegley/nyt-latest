@@ -1,6 +1,6 @@
-**Civilians Flee Eastern Ukraine as Signs Point to Stepped-Up Russian Attack**\
-`Alarmed by reports of atrocities near Kyiv, many residents of Ukraine’s east, now suffering the brunt of Russian force, are getting out while they can.`\
-https://nytimes.com/live/2022/04/06/world/ukraine-russia-war-news/ukraine-moscow-war?searchResultPosition=1
+**Ukrainians Arrive at U.S.-Mexico Border Seeking Asylum**\
+`More than 2,000 Ukrainians have arrived at the southern border over the past 10 days. The Biden administration said it would accept 100,000 refugees fleeing Russia’s invasion of Ukraine.`\
+https://nytimes.com/video/world/americas/100000008292469/ukrainians-us-mexico-border.html?searchResultPosition=1
 
 **New York Agrees to Expand Voting Access for People With Disabilities**\
 `In a settlement this week, the state agreed to make voting easier for residents with disabilities such as blindness and paralysis.`\
