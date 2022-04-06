@@ -18,7 +18,7 @@ https://nytimes.com/2022/04/06/opinion/does-the-amazon-union-win-portend-a-comeb
 `Homicides were down in the first quarter, but the statistics don’t stem anxiety that the city might be regressing to a violent past.`\
 https://nytimes.com/2022/04/06/nyregion/shootings-rising-in-new-york-coloring-perceptions-of-citys-safety.html?searchResultPosition=5
 
-**Mounting Casualties Force Russians to Assess the Costs of War**\
+**More Russians Consider Costs of War in Ukraine as Casualties Mount**\
 `Many Russians have been in the dark about their country’s losses. As news of more Russian deaths arrives, the reactions range from anger at the Kremlin to parroting the state’s messaging that blames “Nazis’’ in Ukraine.`\
 https://nytimes.com/2022/04/06/world/europe/russia-ukraine-war-casualties.html?searchResultPosition=6
 
