@@ -23,7 +23,7 @@ https://nytimes.com/2022/04/06/business/energy-environment/gas-prices-executives
 https://nytimes.com/2022/04/06/world/asia/john-lee-hong-kong.html?searchResultPosition=6
 
 **Ex-Leader of Burkina Faso Convicted in Killing of Thomas Sankara, His Predecessor**\
-`A military tribunal sentenced former President Blaise Compaoré, who is now in exile, to life imprisonment for his role in the 1987 killing.`\
+`A military tribunal sentenced former President Blaise Compaoré, who is now in exile, to life imprisonment for his role in the 1987 assassination.`\
 https://nytimes.com/2022/04/06/world/africa/burkina-faso-blaise-compaore-conviction.html?searchResultPosition=7
 
 **Jamel Shabazz: Proud Street Culture on Display**\
