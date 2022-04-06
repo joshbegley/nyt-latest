@@ -1,4 +1,4 @@
-**Russia pays dollar-denominated debt in rubles after U.S. blocks payment.**\
+**Russia pays dollar-denominated debt in rubles, risking default, after U.S. blocks payment.**\
 `Credit rating agencies have indicated that payments in a currency different from the one the debt was sold in would count as a default once the grace period expired.`\
 https://nytimes.com/2022/04/06/business/russia-eurobonds-rubles.html?searchResultPosition=1
 
