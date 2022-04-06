@@ -1,4 +1,4 @@
-**Fed minutes showed “many” officials in favor of a big rate increase.**\
+**Fed minutes show ‘many’ officials in favor of a big rate increase.**\
 `Notes from the Federal Reserve’s March meeting, at which it raised rates by a quarter of a percentage point, showed officials gearing up to pull back economic support more as they attempt to tame inflation.`\
 https://nytimes.com/2022/04/06/business/economy/fed-minutes-march-2022.html?searchResultPosition=1
 
