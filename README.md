@@ -1,40 +1,40 @@
-**Israel’s Government in Crisis After Senior Lawmaker Quits Coalition**\
-`Idit Silman, the de facto government whip, left the coalition, depriving the government of a parliamentary majority. But her move does not mean the opposition can win a vote of no confidence, at least for now.`\
-https://nytimes.com/2022/04/06/world/middleeast/israel-coalition-crisis-passover.html?searchResultPosition=1
+**At the Masters, Decades of Unforgettable Shots**\
+`The tournament tends to inspire magnificent moments, and there have been many.`\
+https://nytimes.com/2022/04/06/sports/golf/masters-famous-shots.html?searchResultPosition=1
 
-**Quotation of the Day: Germany Strains to Wean Itself Off Gas Imports Subsidizing War**\
-`Quotation of the Day for Wednesday, April 6, 2022.`\
-https://nytimes.com/2022/04/06/todayspaper/quotation-of-the-day-germany-strains-to-wean-itself-off-gas-imports-subsidizing-war.html?searchResultPosition=2
+**Ben Crenshaw Is Not Done With the Masters**\
+`He played it as an amateur in the 1970s, won it twice and will once again be telling tales at the Champions Dinner.`\
+https://nytimes.com/2022/04/06/sports/golf/ben-crenshaw-masters.html?searchResultPosition=2
 
-**The End of the (Pipe)line? Germany Scrambles to Wean Itself Off Russian Gas**\
-`Dangerously dependent on Russian gas, Germany is still refusing to cut off President Putin, whose war it is effectively subsidizing to the tune of some $220 million a day.`\
-https://nytimes.com/2022/04/06/world/europe/germany-gas-russia-ukraine.html?searchResultPosition=3
+**Secaucus, N.J.: The Commuter Town With a Suburban Vibe**\
+`This Hudson County town can at first seem like a tangle of highways. But it has enough parks and playgrounds to attract young families looking to put down roots.`\
+https://nytimes.com/2022/04/06/realestate/secaucus-nj-the-commuter-town-with-a-suburban-vibe.html?searchResultPosition=3
 
-**Inside a Campaign to Get Medicare Coverage for a New Alzheimer’s Drug**\
-`The Alzheimer’s Association has pushed relentlessly to get broad access to Aduhelm, despite safety risks and uncertain evidence that it helps patients.`\
-https://nytimes.com/2022/04/06/health/aduhelm-alzheimers-medicare-patients.html?searchResultPosition=4
+**Living In ... Secaucus, N.J.**\
+`This Hudson County town can at first seem like a tangle of highways. But it has enough open space to attract young families looking to put down roots.`\
+https://nytimes.com/slideshow/2022/04/06/realestate/living-in-secaucus-nj.html?searchResultPosition=4
 
-**Vertical Farms Expand as Demand for Year-Round Produce Grows**\
-`The industry is expected to grow to $9.7 billion worldwide by 2026, but it faces challenges, including high energy costs, technological limitations and the ability to scale.`\
-https://nytimes.com/2022/04/06/business/vertical-farms-food.html?searchResultPosition=5
+**House Hunting in Portugal: A Villa Nestled in a Garden Outside Lisbon**\
+`With its strict preservation laws and limited inventory, the coastal area of Comporta is trying to squeeze in as many new vacation homes as it can.`\
+https://nytimes.com/2022/04/06/realestate/portugal-house-hunting.html?searchResultPosition=5
 
-**Why Tracking Putin’s Wealth Is So Difficult**\
-`Amid speculation that oligarchs are holding cash and luxury assets for the Russian president, many of his extravagances can be traced elsewhere: the Russian state.`\
-https://nytimes.com/2022/04/06/world/putin-russia-assets-wealth-sanctions.html?searchResultPosition=6
+**Natural Splendor Near Portugal’s Atlantic Coast**\
+`This rustic four-bedroom house, a few miles from the ocean in Comporta, Portugal, is on the market for $4.3 million.`\
+https://nytimes.com/slideshow/2022/04/06/realestate/natural-splendor-near-portugals-atlantic-coast.html?searchResultPosition=6
 
-**Abortion Pills, Once a Workaround, Are Now a Target**\
-`In advance of a Supreme Court decision, states are proposing new restrictions and heavier criminal penalties on medication abortion.`\
-https://nytimes.com/2022/04/06/us/abortion-pills.html?searchResultPosition=7
+**With Hope for a $2.1 Million Cure, Parents Plead for Help Online**\
+`India makes many of the world’s drugs, but treatments for rare diseases like spinal muscular atrophy are imported and prohibitively costly. In desperation, parents are raising funds on social media.`\
+https://nytimes.com/2022/04/06/business/india-spinal-muscular-atrophy.html?searchResultPosition=7
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/04/06/crosswords/spelling-bee-forum.html?searchResultPosition=8
+**Tim Ryan Struggles to Reach Ohio’s Exhausted Majority**\
+`Mr. Ryan, the Ohio Democrat running for Senate, has been listening to white working-class voters. Whether they are listening to him and the Democratic Party is the question.`\
+https://nytimes.com/2022/04/06/us/politics/tim-ryan-ohio-voters.html?searchResultPosition=8
 
-**Amid talk of war crimes in Ukraine, there are lessons from the Balkan bloodshed.**\
-`The indictment of Slobodan Milosevic, the president of Yugoslavia, was a seminal moment in legal history. But prosecuting war crimes remains a steep climb.`\
-https://nytimes.com/2022/04/06/world/europe/ukraine-russia-war-crimes.html?searchResultPosition=9
+**What It’s Like When Your Loved Ones Won’t Leave Ukraine**\
+`“It’s so stressful for me to be on the outside,” said one New Yorker, who is trying to persuade her aunt, 83, to flee.`\
+https://nytimes.com/2022/04/06/nyregion/ukraine-older-people.html?searchResultPosition=9
 
-**Word of the Day: en masse**\
-`This term has appeared in 188 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/04/06/learning/word-of-the-day-en-masse.html?searchResultPosition=10
+**To Get Better, the Giants Tried a Wild Idea: (Way) More Coaches**\
+`Gabe Kapler’s record-setting staff of 13 coaches is too many to fit in a dugout, but the unorthodox approach helped the team win 107 games in 2021. A trend was officially set.`\
+https://nytimes.com/2022/04/06/sports/baseball/gabe-kapler-giants-coaches.html?searchResultPosition=10
 
