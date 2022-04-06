@@ -6,7 +6,7 @@ https://nytimes.com/2022/04/06/arts/doris-derby-dead.html?searchResultPosition=1
 `The sophisticated POM-3 mine was discovered last week by Ukrainian bomb technicians, as Russia contaminates much of the country with unexploded munitions.`\
 https://nytimes.com/2022/04/06/us/politics/russia-ukraine-land-mines.html?searchResultPosition=2
 
-**Fed minutes show ‘many’ officials in favor of a big rate increase.**\
+**Fed minutes showed ‘many’ officials in favor of a big rate increase.**\
 `Notes from the Federal Reserve’s March meeting, at which it raised rates by a quarter of a percentage point, showed officials gearing up to pull back economic support more as they attempt to tame inflation.`\
 https://nytimes.com/2022/04/06/business/economy/fed-minutes-march-2022.html?searchResultPosition=3
 
