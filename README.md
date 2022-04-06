@@ -12,7 +12,7 @@ https://nytimes.com/2022/04/05/pageoneplus/corrections-april-6-2022.html?searchR
 
 **Yellen to Warn of ‘Enormous Economic Repercussions’ From Ukraine Invasion**\
 `The Treasury secretary plans to highlight risks of rising food and energy prices at a congressional hearing on Wednesday.`\
-https://nytimes.com/2022/04/05/business/yellen-russia-ukraine-economy-sanctions.html?searchResultPosition=4
+https://nytimes.com/2022/04/05/business/yellen-russia-ukraine-sanctions.html?searchResultPosition=4
 
 **‘Have You Seen the Capitol Fox?’**\
 `Animal control officers descended on Capitol Hill after reports of lawmakers, staff members and reporters being attacked by a wild fox believed to have been nesting on the Capitol grounds.`\
