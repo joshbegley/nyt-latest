@@ -8,7 +8,7 @@ https://nytimes.com/2022/04/06/arts/music/ed-sheeran-plagiarism-shape-of-you-rul
 
 **Christie’s to Sell Entire Ammann Art Collection**\
 `Some 100 works from the siblings Doris and Thomas Ammann will be sold in May, along with their Warhol silkscreen of Marilyn Monroe, estimated at $200 million.`\
-https://nytimes.com/2022/04/06/arts/design/christies-to-sell-entire-ammann-art-collection.html?searchResultPosition=3
+https://nytimes.com/2022/04/06/arts/design/ammann-art-collection-christies-auction.html?searchResultPosition=3
 
 **Weekly Accessible Learning Activities: Comeback Stories, Newspaper Poetry, Smiling**\
 `Each week we spotlight five student activities created for a broad range of learners based on reporting in The New York Times.`\
