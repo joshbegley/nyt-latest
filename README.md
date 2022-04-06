@@ -4,7 +4,7 @@ https://nytimes.com/2022/04/06/business/russia-eurobonds-rubles.html?searchResul
 
 **Jon Scheyer Has Been Waiting, and Working**\
 `Mike Krzyzewski’s announcing his retirement as Duke’s coach a year in advance allowed Jon Scheyer to focus on recruiting. He has landed top players as Duke looks to keep its blue blood status.`\
-https://nytimes.com/2022/04/06/sports/ncaabasketball/jon-scheyer-has-been-waiting-and-working.html?searchResultPosition=2
+https://nytimes.com/2022/04/06/sports/ncaabasketball/jon-scheyer-duke.html?searchResultPosition=2
 
 **Nehemiah Persoff, Actor With a Familiar Face (and Voice), Dies at 102**\
 `His most prominent roles included three tenderly caring parents, but he was most associated with the dapper gangsters he portrayed in the movies and on television.`\
