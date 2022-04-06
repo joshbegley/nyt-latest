@@ -14,27 +14,27 @@ https://nytimes.com/2022/04/06/us/politics/matthew-martin-capitol-acquittal.html
 `As officials warn of escalating violence, the West increases sanctions.`\
 https://nytimes.com/2022/04/06/briefing/your-thursday-briefing-ukrainians-flee-the-east.html?searchResultPosition=4
 
+**Block says a former employee downloaded data on millions of Cash App Investing customers.**\
+`The stolen information included the value of some customers’ portfolios and details of their stock trades, but did not involve the company’s personal payments system.`\
+https://nytimes.com/2022/04/06/business/block-cash-app-data-breach.html?searchResultPosition=5
+
 **Grand Jury Indicts Nurse, but Not Jail Officers, in Death of Black Man**\
 `The nurse was working at a North Carolina jail in 2019 when officers restrained John Neville on his stomach for more than 12 minutes after he fell from his bed, according to an autopsy report.`\
-https://nytimes.com/2022/04/06/us/north-carolina-jail-nurse-indicted.html?searchResultPosition=5
+https://nytimes.com/2022/04/06/us/north-carolina-jail-nurse-indicted.html?searchResultPosition=6
 
 **Justice Dept. Charges Russian Oligarch With Violating Sanctions**\
 `The department also unveiled additional measures meant to neutralize Russian money laundering and disrupt online criminal networks.`\
-https://nytimes.com/2022/04/06/us/politics/justice-department-russian-oligarch-charged.html?searchResultPosition=6
+https://nytimes.com/2022/04/06/us/politics/justice-department-russian-oligarch-charged.html?searchResultPosition=7
 
 **Appearing This Year at the Masters: Azaleas, Green Jackets and Inflation**\
 `Famously low concession prices increased a bit, injecting a small dose of the real world at Augusta National Golf Club.`\
-https://nytimes.com/2022/04/06/sports/golf/masters-augusta-national-inflation.html?searchResultPosition=7
+https://nytimes.com/2022/04/06/sports/golf/masters-augusta-national-inflation.html?searchResultPosition=8
 
 **A Legacy of Design and Dedication.**\
 `How Baldwin Fine Custom Tailoring became a Philadelphia institution.`\
-https://nytimes.comhttp://brandedplaylist.nytimes.com/video/embedded/t-brand/100000008292173/a-legacy-of-design-and-dedication.html?searchResultPosition=8
+https://nytimes.comhttp://brandedplaylist.nytimes.com/video/embedded/t-brand/100000008292173/a-legacy-of-design-and-dedication.html?searchResultPosition=9
 
 **European health agencies say it is ‘too early’ for second boosters for most people.**\
 `Additional boosters can be given to people 80 and older, who are at higher risk of severe illness if infected, the agencies said.`\
-https://nytimes.com/2022/04/06/world/europe/covid-second-booster-europe.html?searchResultPosition=9
-
-**Modern Love Podcast: A Couple Walks Into City Hall**\
-`In a year crowded with weddings, we listen to a snapshot of those tying the knot the no-frills way.`\
-https://nytimes.com/2022/04/06/podcasts/modern-love-city-hall-weddings.html?searchResultPosition=10
+https://nytimes.com/2022/04/06/world/europe/covid-second-booster-europe.html?searchResultPosition=10
 
