@@ -1,6 +1,6 @@
 **An F.D.A. advisory panel is discussing ways to evolve the U.S. vaccine strategy.**\
 `Outside experts are exploring the need to reconfigure vaccines in order to better protect the nation against new variants.`\
-https://nytimes.com/2022/04/06/us/politics/an-fda-advisory-panel-is-discussing-ways-to-evolve-the-us-vaccine-strategy.html?searchResultPosition=1
+https://nytimes.com/2022/04/06/us/politics/fda-covid-boosters.html?searchResultPosition=1
 
 **The Ukrainians Who Choose to Stay**\
 `Relatives in the New York area are pleading with older family members in Ukraine to get out, but some are met with resistance.`\
