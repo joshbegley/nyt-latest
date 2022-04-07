@@ -2,7 +2,7 @@
 `He recorded the statistics of more than 2,200 home games for the team in both New York and New Jersey, and in both the American and National Basketball Associations.`\
 https://nytimes.com/2022/04/07/sports/basketball/herb-turetzky-dead.html?searchResultPosition=1
 
-**Nan Melville, Whose Photography Captured Dance in Many Forms, Dies at 72**\
+**Nan Melville, 72, Whose Photography Captured Dance in Many Forms, Dies**\
 `Over a long career, her pictures, whether of famed dance troupes or experimental works, reflected what one admirer called “her love affair with dance.”`\
 https://nytimes.com/2022/04/07/arts/dance/nan-melville-dead.html?searchResultPosition=2
 
