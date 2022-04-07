@@ -4,7 +4,7 @@ https://nytimes.com/2022/04/06/theater/suffs-review-public-theater.html?searchRe
 
 **In his nightly address, Zelensky challenged allies to find the determination to ban Russian oil.**\
 `He also accused Russian troops of starting to hide evidence of civilian deaths.`\
-https://nytimes.com/2022/04/06/world/in-his-nightly-address-zelensky-challenged-allies-to-find-the-determination-to-ban-russian-oil.html?searchResultPosition=2
+https://nytimes.com/2022/04/06/world/zelensky-ban-russia-oil.html?searchResultPosition=2
 
 **Kidd Creole, Member of Pioneering Rap Group, Is Convicted in 2017 Killing**\
 `The founding member of Grandmaster Flash and the Furious Five, whose real name is Nathaniel Glover, was convicted of manslaughter in the death of a homeless man.`\
