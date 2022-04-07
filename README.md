@@ -1,6 +1,6 @@
 **Connecticut’s governor tests positive, and says he will isolate.**\
-`Ned Lamont said he received a second booster shot last week.`\
-https://nytimes.com/2022/04/07/world/ned-lamont-covid-positive.html?searchResultPosition=1
+`Gov. Ned Lamont said that he will isolate at home for the next five days and not attend any in-person events or meetings.`\
+https://nytimes.com/2022/04/07/us/ned-lamont-covid-positive.html?searchResultPosition=1
 
 **Hew Locke to Create Artworks for Met Museum Facade**\
 `The Guyanese-British artist will create four sculptures shaped into whole and fragmented trophies that reference historical works in the museum’s collection.`\
