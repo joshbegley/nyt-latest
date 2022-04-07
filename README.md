@@ -18,7 +18,7 @@ https://nytimes.com/2022/04/07/nyregion/trump-contempt-letitia-james.html?search
 `New lawsuits target Representatives Paul Gosar and Andy Biggs, as well as Mark Finchem, a candidate for Arizona secretary of state, claiming they are barred from office under the 14th Amendment.`\
 https://nytimes.com/2022/04/07/us/politics/insurrectionists-congress.html?searchResultPosition=5
 
-**Harris will preside as Jackson is confirmed, but no Black women will have a vote.**\
+**Harris presided as Jackson was confirmed, but no Black women had a vote.**\
 `As President Biden’s nominee breaks a barrier on the Supreme Court, the Senate lacks a single Black woman to approve the confirmation.`\
 https://nytimes.com/2022/04/07/us/politics/ketanji-brown-jackson-kamala-harris.html?searchResultPosition=6
 
