@@ -1,40 +1,40 @@
+**Homes for Sale in New York and Connecticut**\
+`This week’s properties are a four-bedroom in Locust Valley, N.Y., and a five-bedroom in Westport, Conn.`\
+https://nytimes.com/2022/04/07/realestate/housing-market-near-nyc.html?searchResultPosition=1
+
+**On the Market in the New York Region**\
+`This week’s properties are a four-bedroom in Locust Valley, N.Y., and a five-bedroom in Westport, Conn.`\
+https://nytimes.com/slideshow/2022/04/07/realestate/on-the-market-in-the-new-york-region.html?searchResultPosition=2
+
+**Homes for Sale in New York City**\
+`This week’s properties are in Chelsea, Brooklyn Heights and on the Upper East Side.`\
+https://nytimes.com/2022/04/07/realestate/housing-market-nyc.html?searchResultPosition=3
+
+**On the Market in New York City**\
+`This week’s properties are in Chelsea, Brooklyn Heights and on the Upper East Side.`\
+https://nytimes.com/slideshow/2022/04/07/realestate/on-the-market-in-new-york-city.html?searchResultPosition=4
+
+**The Artist as Healer**\
+`Guadalupe Maravilla’s sculptures at the Brooklyn Museum and MoMA explore the trauma caused by war, migration and family separation.`\
+https://nytimes.com/2022/04/07/arts/design/guadalupe-maravilla-brooklyn-museum-moma.html?searchResultPosition=5
+
+**In Miami Beach, a Vibrant Pair of Boutique Hotels**\
+`Plus: beauty tips from Sharon Alexie, striking sneakers for spring and more recommendations from T Magazine.`\
+https://nytimes.com/2022/04/07/t-magazine/miami-beach-hotels-esme-casa-matanza.html?searchResultPosition=6
+
+**‘Kinky Boots’ Sets Summer Return Off Broadway**\
+`A revival of the Tony-winning Cyndi Lauper-Harvey Fierstein collaboration will begin performances at Stage 42 in July.`\
+https://nytimes.com/2022/04/07/arts/kinky-boots-stage-42.html?searchResultPosition=7
+
+**My Girlfriend and I Can’t Get Married. Should We Break Up?**\
+`A reader, citing “cultural differences,” seeks permission to leave one woman for another.`\
+https://nytimes.com/2022/04/07/style/breakup-relationship-social-qs.html?searchResultPosition=8
+
 **‘Cow’ Review: Dairy Cogs in the Machine**\
 `This documentary from Andrea Arnold takes an immersive approach to capturing the plight of industrial dairy cows.`\
-https://nytimes.com/2022/04/07/movies/cow-review.html?searchResultPosition=1
+https://nytimes.com/2022/04/07/movies/cow-review.html?searchResultPosition=9
 
 **How Guns Are Sold**\
 `Gun control advocates are petitioning the Federal Trade Commission to investigate the firearms industry’s marketing practices.`\
-https://nytimes.com/2022/04/07/business/dealbook/guns-marketing-ftc-petition.html?searchResultPosition=2
-
-**A Surge in Ukrainian Refugees at California’s Southern Border**\
-`A growing number of Ukrainians are seeking entry into California from Tijuana.`\
-https://nytimes.com/2022/04/07/us/ukrainian-refugees-california-border.html?searchResultPosition=3
-
-**Shell says it expects to lose up to $5 billion for pulling out of Russia.**\
-`In an update to investors, the oil company projected a huge financial hit from its exposure to Russia.`\
-https://nytimes.com/2022/04/07/business/shell-russia.html?searchResultPosition=4
-
-**At a Contemporary Drama Festival, Staging the Frighteningly Real**\
-`At Berlin’s FIND festival of new international drama, several productions use transcripts to explore questions of state power and identity.`\
-https://nytimes.com/2022/04/07/theater/find-festival.html?searchResultPosition=5
-
-**Pro-Russian hackers have ramped up the use of Facebook in an information war, its parent company says.**\
-`Hackers in Russia and Belarus are using Meta’s platform for cyberespionage and disinformation campaigns, executives said.`\
-https://nytimes.com/2022/04/07/world/europe/russia-hackers-facebook-disinformation.html?searchResultPosition=6
-
-**Is Julio Rodríguez the Future of Baseball? He Has No Doubt.**\
-`No goal is too ambitious for Rodríguez, a magnetic outfielder who plans to end the Seattle Mariners’ postseason drought.`\
-https://nytimes.com/2022/04/07/sports/baseball/julio-rodriguez-seattle-mariners.html?searchResultPosition=7
-
-**‘A-ha: The Movie’ Review: The Creative Purgatory of the ‘Take on Me’ Trio**\
-`The documentary about the Norwegian synth-pop band plays like a slavish yet intermittently lucid Wikipedia entry.`\
-https://nytimes.com/2022/04/07/movies/a-ha-the-movie-review.html?searchResultPosition=8
-
-**‘¡Viva Maestro!’ Review: A Documentary in Need of a Conductor**\
-`A wunderkind conductor attempts to keep young Venezuelan musicians working despite political strife at home in this film from Ted Braun.`\
-https://nytimes.com/2022/04/07/movies/viva-maestro-review.html?searchResultPosition=9
-
-**‘Sonic the Hedgehog 2’ Review: Keep Up! Bada-Brrring!**\
-`Jim Carrey’s reprised role as a villainous weirdo helps this fast-paced, family-friendly video-game-movie sequel maintain a refreshing silliness.`\
-https://nytimes.com/2022/04/07/movies/sonic-the-hedgehog-2-review.html?searchResultPosition=10
+https://nytimes.com/2022/04/07/business/dealbook/guns-marketing-ftc-petition.html?searchResultPosition=10
 
