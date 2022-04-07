@@ -14,8 +14,8 @@ https://nytimes.com/2022/04/07/science/asteroid-killed-dinosaurs-fossil-site.htm
 `An uneven episode leaves more questions than answers about the direction of the season.`\
 https://nytimes.com/2022/04/07/arts/television/star-trek-picard-recap.html?searchResultPosition=4
 
-**Tiger Woods shows flashes of greatness and signs of struggle in his return to the Masters.**\
-`Woods looked a bit out of practice at times, but his putting repeatedly saved him.`\
+**Returning to the Masters, Woods Shows Flashes of Greatness and Signs of Struggle**\
+`Tiger Woods looked a bit out of practice at times, but his putting repeatedly saved him.`\
 https://nytimes.com/2022/04/07/sports/golf/tiger-woods-masters-first-round.html?searchResultPosition=5
 
 **Capitol Fox’s Three Kits Euthanized After Rabies Exposure**\
