@@ -2,7 +2,7 @@
 `The move will almost certainly end the last trial aimed at serving justice for a heinous crime that caused global outrage.`\
 https://nytimes.com/2022/04/07/world/middleeast/khashoggi-murder-trial-turkey-saudi-arabia.html?searchResultPosition=1
 
-**A Decaying Art Gem Signifying Venezuela’s Divisions Could Now Help it Heal**\
+**A Decaying Art Gem Signifying Venezuela’s Divisions Could Now Help It Heal**\
 `Caracas’s Museum of Modern Art, a symbol of a westernized Venezuela, was dismantled by the Socialist governments. Its modest recovery offers hope to the troubled nation.`\
 https://nytimes.com/2022/04/07/world/americas/venezuela-art-museum.html?searchResultPosition=2
 
