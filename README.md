@@ -28,7 +28,7 @@ https://nytimes.com/2022/04/07/crosswords/spelling-bee-forum.html?searchResultPo
 
 **Ukraine’s Eurovision entry goes on tour to help fund the war effort.**\
 `Kalush Orchestra, a group that mixes rap and traditional Ukrainian music, was given special permission to leave the country and play internationally.`\
-https://nytimes.com/2022/04/07/world/europe/ukraines-eurovision-entry-goes-on-tour-to-help-fund-the-war-effort.html?searchResultPosition=8
+https://nytimes.com/2022/04/07/world/europe/ukraine-eurovision.html?searchResultPosition=8
 
 **Word of the Day: subsume**\
 `This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
