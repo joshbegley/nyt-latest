@@ -1,6 +1,6 @@
 **The Congressional Black Caucus rallies behind Judge Jackson.**\
-`By Aishvarya Kavi`\
-https://nytimes.com/2022/04/07/us/politics/congressional-black-caucus-rallies-behind-judge-jackson.html?searchResultPosition=1
+`The caucus, which began more than 50 years ago, posed for a photograph to celebrate the vote to confirm Judge Ketanji Brown Jackson.`\
+https://nytimes.com/2022/04/07/us/politics/congressional-black-caucus-ketanji-brown-jackson.html?searchResultPosition=1
 
 **N.Y. Attorney General Seeks to Hold Trump in Contempt**\
 `The attorney general, Letitia James, has been conducting a civil investigation into former President Donald J. Trump’s family business.`\
