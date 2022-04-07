@@ -32,7 +32,7 @@ https://nytimes.com/video/world/americas/100000008292469/ukrainians-us-mexico-bo
 
 **Civilians Flee Eastern Ukraine as Signs Point to Stepped-Up Russian Attack**\
 `Alarmed by reports of atrocities near Kyiv, many residents of Ukraine’s east, now suffering the brunt of Russian force, are getting out while they can.`\
-https://nytimes.com/2022/04/06/world/europe/ukraine-moscow-war.html?searchResultPosition=9
+https://nytimes.com/2022/04/06/world/europe/ukraine-civilians-moscow-war.html?searchResultPosition=9
 
 **New York Agrees to Expand Voting Access for People With Disabilities**\
 `In a settlement this week, the state agreed to make voting easier for residents with disabilities such as blindness and paralysis.`\
