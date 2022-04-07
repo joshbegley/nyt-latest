@@ -34,7 +34,7 @@ https://nytimes.com/2022/04/07/world/europe/un-human-rights-council-russia.html?
 `Her work spanned albums, public art installations, music for Shakespeare plays and touring with Radiohead.`\
 https://nytimes.com/2022/04/07/arts/music/mira-calix-dead.html?searchResultPosition=9
 
-**A Third of Americans Faced Extreme Weather in Recent Years, Survey Finds**\
+**One-Third of Americans Faced Extreme Weather in Recent Years, Survey Finds**\
 `Hurricanes and winter weather, such as snow, ice storms and blizzards, were the most common events cited, according to a Gallup poll.`\
 https://nytimes.com/2022/04/07/climate/severe-weather-damages-us.html?searchResultPosition=10
 
