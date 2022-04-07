@@ -30,11 +30,11 @@ https://nytimes.com/2022/04/06/world/europe/us-ukraine-switchblade-drones.html?s
 `More than 2,000 Ukrainians have arrived at the southern border over the past 10 days. The Biden administration said it would accept 100,000 refugees fleeing Russia’s invasion of Ukraine.`\
 https://nytimes.com/video/world/americas/100000008292469/ukrainians-us-mexico-border.html?searchResultPosition=8
 
+**Civilians Flee Eastern Ukraine as Signs Point to Stepped-Up Russian Attack**\
+`Alarmed by reports of atrocities near Kyiv, many residents of Ukraine’s east, now suffering the brunt of Russian force, are getting out while they can.`\
+https://nytimes.com/2022/04/06/world/europe/ukraine-moscow-war.html?searchResultPosition=9
+
 **New York Agrees to Expand Voting Access for People With Disabilities**\
 `In a settlement this week, the state agreed to make voting easier for residents with disabilities such as blindness and paralysis.`\
-https://nytimes.com/2022/04/06/nyregion/new-york-disabilities-voting-access.html?searchResultPosition=9
-
-**Texas Governor Targets Migrants in Anticipation of Influx at Border**\
-`The end of a pandemic-related federal policy is expected to lead to a surge in immigration. Gov. Greg Abbott said he would send migrants who volunteered to the steps of the U.S. Capitol.`\
-https://nytimes.com/2022/04/06/us/greg-abbott-texas-border-migrants.html?searchResultPosition=10
+https://nytimes.com/2022/04/06/nyregion/new-york-disabilities-voting-access.html?searchResultPosition=10
 
