@@ -36,5 +36,5 @@ https://nytimes.com/2022/04/07/arts/design/hew-locke-met-museum-facade.html?sear
 
 **At Least 2 Killed in Tel Aviv, in Latest Attack in Israel**\
 `The shooting occurred outside a busy bar at the heart of Israel’s most cosmopolitan city, at the start of the Israeli weekend.`\
-https://nytimes.com/2022/04/07/world/deadly-israel-tel-aviv-shooting.html?searchResultPosition=10
+https://nytimes.com/2022/04/07/world/israel-tel-aviv-shooting.html?searchResultPosition=10
 
