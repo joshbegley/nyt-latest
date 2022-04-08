@@ -11,7 +11,7 @@ https://nytimes.com/2022/04/08/business/lockdowns-in-china-block-truck-shipments
 https://nytimes.com/2022/04/08/learning/word-of-the-day-verdant.html?searchResultPosition=3
 
 **Marjorie Taylor Greene Calls the Police on Jimmy Kimmel**\
-`Kimmel said of Greene’s angry tweets about a joke he made earlier this week: “She’s a snowflake and a sociopath — a ‘snowciopath.’”`\
+`Kimmel said of Greene’s angry tweets about a joke he made earlier this week: “She’s a snowflake and a sociopath at the same time — a ‘snowciopath.’”`\
 https://nytimes.com/2022/04/08/arts/television/marjorie-taylor-greene-jimmy-kimmel.html?searchResultPosition=4
 
 **Corrections: April 8, 2022**\
