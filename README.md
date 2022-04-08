@@ -4,7 +4,7 @@ https://nytimes.com/2022/04/08/sports/golf/masters-stewart-cink.html?searchResul
 
 **Missile Strike in Eastern Ukraine Kills 50 Awaiting Train to Escape**\
 `Ukraine’s president blamed Russia for the latest atrocity in the six-week-old war, calling the Russian invasion force “an evil that has no limits.” Moscow denied responsibility.`\
-https://nytimes.com/2022/04/08/world/europe/ukraine-russia-missile-kramatorsk-train.html?searchResultPosition=2
+https://nytimes.com/2022/04/08/world/europe/ukraine-train-station-kramatorsk.html?searchResultPosition=2
 
 **The Fox Hasn’t Fared Well in American Politics**\
 `The nation’s founding fathers hunted foxes for sport. This week, a rabid fox that bit nine people near the U.S. Capitol led to a very different type of hunt.`\
