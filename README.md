@@ -12,7 +12,7 @@ https://nytimes.com/2022/04/08/business/masks-meetings-covid-office.html?searchR
 
 **Officials Say Lent Russian Art, Seized by Finns, Should Return Home**\
 `Finnish custom officials had seized the art several days ago, but the Finns and European Union officials decided that art lent to museums for exhibit did not come under sanctions.`\
-https://nytimes.com/2022/04/08/arts/officials-say-lent-russian-art-seized-by-finns-should-return-home.html?searchResultPosition=4
+https://nytimes.com/2022/04/08/arts/finland-russia-art-seizure.html?searchResultPosition=4
 
 **Review: A ‘St. Matthew Passion’ Balances Grandeur and Calm**\
 `Bernard Labadie led the Orchestra of St. Luke’s, and three choirs, in Bach’s sprawling, meditative masterpiece.`\
