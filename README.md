@@ -4,7 +4,7 @@ https://nytimes.com/2022/04/08/health/covid-flu-twindemic.html?searchResultPosit
 
 **How Long Do Symptoms Last? When Should You Test? A Covid Timeline.**\
 `Having Covid can be a wildly confusing experience. But you can still make a plan to get through the course of illness.`\
-https://nytimes.com/2022/04/08/well/covid-timeline-how-long-infection-lasts-ba2.html?searchResultPosition=2
+https://nytimes.com/2022/04/08/well/covid-timeline-ba2.html?searchResultPosition=2
 
 **The Best of Late Night This Week 🌙**\
 `Political figures from the past were in the news this week, and the late-night hosts didn’t miss their chance to make some digs.`\
