@@ -1,4 +1,4 @@
-**Supply Chains Widely Tainted by Forced Labor in China, Witnesses Say**\
+**Supply Chains Widely Tainted by Forced Labor in China, Panel Is Told**\
 `Human rights activists and others urged the Biden administration to cast a wide net to stop imports of products made with forced labor in Xinjiang.`\
 https://nytimes.com/2022/04/08/business/economy/china-forced-labor.html?searchResultPosition=1
 
