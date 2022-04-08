@@ -12,7 +12,7 @@ https://nytimes.com/2022/04/07/crosswords/variety-acrostic.html?searchResultPosi
 
 **That’s the Spirit!**\
 `Caitlin Reid’s puzzle clues are a master class in misdirection.`\
-https://nytimes.com/2022/04/07/crosswords/daily-puzzle-2022-04-07.html?searchResultPosition=4
+https://nytimes.com/2022/04/07/crosswords/daily-puzzle-2022-04-08.html?searchResultPosition=4
 
 **Deadly Shooting in Tel Aviv**\
 `The attack occurred outside a bar filled with people on the last night of the workweek. It was the fourth lethal attack in Israel in less than three weeks.`\
