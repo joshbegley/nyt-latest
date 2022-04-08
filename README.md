@@ -1,4 +1,4 @@
-**Are Leggings Here to Stay?**\
+**Are There Any Limits to Leggings Any More?**\
 `A reader wonders if it’s time to accept stretchy pants as a fashion staple.`\
 https://nytimes.com/2022/04/08/fashion/leggings-fashion-workout.html?searchResultPosition=1
 
