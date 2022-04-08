@@ -14,7 +14,7 @@ https://nytimes.com/2022/04/08/dining/torta-rustica-easter-pie.html?searchResult
 `Clients paid fees up to $30,000 as part of the yearslong scheme, an affidavit said. Some applications falsely claimed the clients had been abused by their spouses, prosecutors said.`\
 https://nytimes.com/2022/04/08/us/sham-marriages-green-cards-fraud.html?searchResultPosition=4
 
-**These Aren’t Your Grandparents’ Golf Shoes**\
+**Golf Shoes Get a Makeover Thanks to Streetwear and Sneaker Culture**\
 `If you’ve seen golf shoes on the street, it is because one of the world’s most conservative sports has been getting a fresh look thanks to streetwear and sneaker culture.`\
 https://nytimes.com/2022/04/08/sports/golf/sneakers-streetwear.html?searchResultPosition=5
 
@@ -22,8 +22,8 @@ https://nytimes.com/2022/04/08/sports/golf/sneakers-streetwear.html?searchResult
 `Workers at six more stores in upstate New York have voted to unionize, bringing the number nationwide to 16 since December.`\
 https://nytimes.com/2022/04/08/business/economy/starbucks-union-new-york-vote.html?searchResultPosition=6
 
-**Academy Bars Will Smith From Oscars Ceremony for 10 Years After Slap**\
-`Smith had already resigned from the Academy, saying he had “betrayed” its trust with conduct that was “shocking, painful, and inexcusable.”`\
+**Will Smith Barred From Attending Oscars for 10 Years After Slap**\
+`Smith, who won best actor this year, can still be nominated for Oscars, industry officials said, but will be unable to attend the Academy Awards ceremony and other events.`\
 https://nytimes.com/2022/04/08/movies/will-smith-slap-academy.html?searchResultPosition=7
 
 **Why Does a Hair Braider Need a License?**\
