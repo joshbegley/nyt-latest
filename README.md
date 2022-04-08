@@ -20,7 +20,7 @@ https://nytimes.com/video/world/europe/100000008295079/ukraine-train-station-att
 
 **Artists and musicians are getting a new source for aid in the New York State budget.**\
 `Performers who have been negatively impacted by pandemic regulations will be able to apply for assistance.`\
-https://nytimes.com/2022/04/08/world/nybudget-arts-workers.html?searchResultPosition=6
+https://nytimes.com/2022/04/08/nyregion/nybudget-arts-workers.html?searchResultPosition=6
 
 **As Police Make Arrests in One Bronx Shooting, Teen Is Slain in Another**\
 `A 16-year-old girl was killed and two other teenagers she was with outside a high school were shot on Friday, the police said.`\
