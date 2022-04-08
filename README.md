@@ -32,7 +32,7 @@ https://nytimes.com/2022/04/08/style/pink-and-sequins-at-the-frick-young-fellows
 
 **New MoMA PS1 Director Leans Into Social Justice and Reaches Out to Long Island City**\
 `Kate Fowle, who arrived in 2019, is carving out an independent identity for the Queens institution distinct from that of MoMA.`\
-https://nytimes.com/2022/04/08/arts/design/moma-ps1-director-fowle-lowry-moma.html?searchResultPosition=9
+https://nytimes.com/2022/04/08/arts/design/moma-ps1-director-fowle-lowry.html?searchResultPosition=9
 
 **Ex-Goldman Banker Convicted in Case Over the Looting of Billions From a Malaysian Fund**\
 `Roger Ng is most likely the only person who will face trial in the United States in connection with a $4 billion scheme to fleece the people of Malaysia.`\
