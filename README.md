@@ -28,7 +28,7 @@ https://nytimes.com/2022/04/08/business/economy/pandemic-freightos-supply-chain.
 
 **How to Stoop to New Heights With These Sidewalk Furniture Hunters**\
 `New York City curbs are awash in discarded furniture that can liven up your home or make you some money. We talked to some experts on how to find it.`\
-https://nytimes.com/2022/04/08/realestate/how-to-stoop-to-new-heights-with-these-sidewalk-furniture-hunters.html?searchResultPosition=8
+https://nytimes.com/2022/04/08/realestate/free-furniture-stooping.html?searchResultPosition=8
 
 **First Issue of Captain America Comic Book Fetches $3.1 Million at Auction**\
 `With the sale, Captain America joined Superman and Spider-Man in having debut issues that topped $3 million at auction.`\
