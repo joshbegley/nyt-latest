@@ -1,40 +1,40 @@
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/04/08/crosswords/spelling-bee-forum.html?searchResultPosition=1
+**A Super Building for Fragile Times**\
+`The Oregon State Treasury is moving into a newly constructed structure designed to withstand every disaster the designers could conjure.`\
+https://nytimes.com/2022/04/08/us/oregon-state-treasury-building.html?searchResultPosition=1
 
-**Lockdowns in China Block Truck Shipments and Close Factories**\
-`China’s Covid lockdowns and restrictions are holding up truck drivers who carry crucial components among factories and bring products to ports, posing a new disruption to the global supply chain.`\
-https://nytimes.com/2022/04/08/business/lockdowns-in-china-block-truck-shipments-and-close-factories.html?searchResultPosition=2
+**The Huge Endeavor to Produce a Tiny Microchip**\
+`As the global chip shortage continues, we take an inside look at how semiconductors are fabricated.`\
+https://nytimes.com/2022/04/08/technology/intel-chip-shortage.html?searchResultPosition=2
 
-**Word of the Day: verdant**\
-`This word has appeared in 91 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/04/08/learning/word-of-the-day-verdant.html?searchResultPosition=3
+**The Mysterious Man Who Built (and Then Lost) Little Tokyo**\
+`The remarkable hidden history of Tony Yoshida, who transformed a single block in New York City, helped start the cocktail revolution — and inspired John Belushi to become a samurai.`\
+https://nytimes.com/2022/04/08/nyregion/tony-yoshida-japan-village-angels-share.html?searchResultPosition=3
 
-**Marjorie Taylor Greene Calls the Police on Jimmy Kimmel**\
-`Kimmel said of Greene’s angry tweets about a joke he made earlier this week: “She’s a snowflake and a sociopath at the same time — a ‘snowciopath.’”`\
-https://nytimes.com/2022/04/08/arts/television/marjorie-taylor-greene-jimmy-kimmel.html?searchResultPosition=4
+**For This Opera Director, a Lot Is Riding on a ‘Handmaid’s Tale’**\
+`For her English National Opera debut, the company’s new artistic leader, Annilese Miskimmon, has chosen a work she hopes can bring in a new audience.`\
+https://nytimes.com/2022/04/08/arts/annilese-miskimmon-eno-handmaids-tale.html?searchResultPosition=4
 
-**Corrections: April 8, 2022**\
-`Corrections that appeared in print on Friday, April 8, 2022.`\
-https://nytimes.com/2022/04/08/pageoneplus/corrections-april-8-2022.html?searchResultPosition=5
+**Lawsuit Charges For-Profit University Preyed on Black and Female Students**\
+`The suit claims Walden University not only misrepresented the costs and credits required for an advanced degree but also engaged in “reverse redlining” by targeting minority communities.`\
+https://nytimes.com/2022/04/08/us/politics/walden-university-lawsuit.html?searchResultPosition=5
 
-**Quotation of the Day: Jackson Confirmed to Supreme Court as Backers Hail a Landmark Moment**\
-`Quotation of the Day for Friday, April 8, 2022.`\
-https://nytimes.com/2022/04/08/todayspaper/quotation-of-the-day-jackson-confirmed-to-supreme-court-as-backers-hail-a-landmark-moment.html?searchResultPosition=6
+**The Biggest Promoter of Mexico’s Presidential Recall Election? The President.**\
+`The vote has the potential to upend the country’s political system. But many fear it will amount to nothing more than a tool for propaganda.`\
+https://nytimes.com/2022/04/08/world/americas/mexico-president-recall-election.html?searchResultPosition=6
 
-**Tesla Will Sell Its Long-Awaited Cybertruck Next Year, Elon Musk Says**\
-`Delays in producing the pickup have allowed rivals like Ford to beat Tesla to market with electric pickups.`\
-https://nytimes.com/2022/04/08/business/tesla-cybertruck-elon-musk.html?searchResultPosition=7
+**For Ukrainian Writer, War Evokes Scars of Time in Captivity**\
+`Stanislav Aseyev, a 32-year-old journalist, had documented his abuse in a prison run by Russian-backed separatists. Now, the war reminds him of why Ukrainians are fighting for their lives.`\
+https://nytimes.com/2022/04/08/world/europe/stanislav-aseyev-ukraine-russia.html?searchResultPosition=7
 
-**Your Friday Briefing**\
-`Steps to isolate Russia.`\
-https://nytimes.com/2022/04/08/briefing/ukraine-russia-sanctions-covid-china.html?searchResultPosition=8
+**A Market Mystery: The ‘Wheat Whale’ That Came Out of Nowhere**\
+`Who was behind the surge of trading in wheat futures last month? Some point to a group of Reddit users who mobbed an E.T.F. offering exposure to the wheat market.`\
+https://nytimes.com/2022/04/08/business/wheat-market-russia-ukraine-reddit.html?searchResultPosition=8
 
-**Finally, the State Has a Budget Deal**\
-`The agreement would allow judges to impose bail in more cases, give the biggest subsidy ever to an N.F.L. team and add billions for child care.`\
-https://nytimes.com/2022/04/08/nyregion/finally-the-state-has-a-budget-deal.html?searchResultPosition=9
+**Globalization Is Over. The Global Culture Wars Have Begun.**\
+`We’re entering the age of red world versus blue world.`\
+https://nytimes.com/2022/04/08/opinion/globalization-global-culture-war.html?searchResultPosition=9
 
-**Dragon Tales From the Authors of ‘The Girl Who Drank the Moon’ and ‘A Wish in the Dark’**\
-`Where Kelly Barnhill’s monster in “The Ogress and the Orphans” stands in for demagogy, Christina Soontornvat’s creature in “The Last Mapmaker” is a colonialist’s prize.`\
-https://nytimes.com/2022/04/08/books/review/kelly-barnhill-the-ogress-and-the-orphans-christina-soontornvat-the-last-mapmaker.html?searchResultPosition=10
+**Republicans and Democrats Agree Child Care Needs Help. Here’s How They Differ.**\
+`In a new bill, Republican senators adopted many of the Democrats’ goals, but they remain far apart on elements like how to pay for it.`\
+https://nytimes.com/2022/04/08/upshot/child-care-republicans-democrats.html?searchResultPosition=10
 
