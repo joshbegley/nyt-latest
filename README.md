@@ -15,7 +15,7 @@ https://nytimes.com/2022/04/08/crosswords/american-crossword-puzzle-tournament.h
 https://nytimes.com/2022/04/08/business/russia-interest-rates-ruble.html?searchResultPosition=4
 
 **Many Shanghai residents say Covid lockdown measures have caused food shortages.**\
-`The authorities have locked down the city of 26 million in a bid to contain China’s worst coronavirus outbreak since the pandemic began.`\
+`The authorities have locked down the city of 26 million in a bid to contain China’s worst outbreak since the pandemic began.`\
 https://nytimes.com/2022/04/08/world/asia/food-shortages-shanghai-covid.html?searchResultPosition=5
 
 **An Update to the California Playlist**\
