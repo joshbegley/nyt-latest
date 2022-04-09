@@ -3,7 +3,7 @@
 https://nytimes.com/2022/04/09/us/politics/biden-border-immigration.html?searchResultPosition=1
 
 **N.F.L. Quarterback Dwayne Haskins, 24, Dies After Being Hit by Car**\
-`A Heisman Trophy finalist at Ohio State and backup with the Pittsburgh Steelers, Haskins died tragically on Saturday after being struck on a Florida highway.`\
+`A Heisman Trophy finalist at Ohio State and backup with the Pittsburgh Steelers, Haskins died on Saturday after being struck on a Florida highway.`\
 https://nytimes.com/2022/04/09/sports/football/dwayne-haskins-steelers-dead.html?searchResultPosition=2
 
 **Eleanor Munro, Who Profiled Women Artists, Is Dead at 94**\
