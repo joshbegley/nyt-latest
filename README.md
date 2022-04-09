@@ -1,5 +1,5 @@
-**The Case for Paying Parents to Care for Their Kids**\
-` Is being in the formal workplace necessarily a sign of progress? `\
+**Parents Who Stay Home Should Get Public Child Care Support Too**\
+`Is being in the formal workplace necessarily a sign of progress?`\
 https://nytimes.com/2022/04/09/opinion/paying-parents-for-child-care.html?searchResultPosition=1
 
 **In the Rush to Return, What Happens to the Vulnerable?**\
