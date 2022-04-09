@@ -1,40 +1,40 @@
-**Japan dials up measures against Russia, aligning itself with the U.S. and Europe.**\
-`The country has announced a ban on Russian coal and restrictions on imports including timber, vodka and machinery. It is also expelling eight Russian diplomats.`\
-https://nytimes.com/2022/04/09/world/asia/japan-russia-ukraine.html?searchResultPosition=1
+**Trying Everything, Even Lettuce, to Save Florida’s Beloved Manatees**\
+`Pollution has killed the sea grass that manatees feed on, and they are starving to death in large numbers. Extraordinary intervention may not be enough to protect them.`\
+https://nytimes.com/2022/04/09/us/trying-everything-even-lettuce-to-save-floridas-beloved-manatees.html?searchResultPosition=1
 
-**Alvin Bragg Says He’s Not a Politician. Is That the Root of His Trouble?**\
-`The Manhattan district attorney has had an uncommonly tumultuous first three months on the job, drawing criticism from all over the political spectrum.`\
-https://nytimes.com/2022/04/09/nyregion/trump-investigation-alvin-bragg.html?searchResultPosition=2
+**One Garment’s Journey Through History**\
+`The evolution of the Korean hanbok is a lens into the history of the country, which is now being traced in the series “Pachinko.”`\
+https://nytimes.com/2022/04/09/style/one-garments-journey-through-history.html?searchResultPosition=2
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/04/09/crosswords/spelling-bee-forum.html?searchResultPosition=3
+**Ayodele Casel Is on Tap for ‘Funny Girl’**\
+`The barrier-breaking master tap dancer is now taking the art form to Broadway, in a highly anticipated revival.`\
+https://nytimes.com/2022/04/09/style/ayodele-casel-is-on-tap-for-funny-girl.html?searchResultPosition=3
 
-**After a Brief Scare, Mets Newcomers Lead Team to Victory**\
-`Tensions flared when Francisco Lindor was hit in the head with a pitch, but his new teammates, Max Scherzer and Starling Marte, led the Mets to victory.`\
-https://nytimes.com/2022/04/09/sports/baseball/mets-nationals.html?searchResultPosition=4
+**In This Michigan County, Pandemic Stimulus Funds Are Remaking Public Health Programs**\
+`Many cities and counties say that shoring up local public health systems is crucial to recovering from the pandemic and addressing entrenched health disparities.`\
+https://nytimes.com/2022/04/09/us/politics/michigan-pandemic-stimulus.html?searchResultPosition=4
 
-**Emmanuel Macron Is Playing a Dangerous Game**\
-`How Emmanuel Macron absorbed the poltical views of his opponents `\
-https://nytimes.com/2022/04/09/opinion/emmanuel-macron-is-playing-a-dangerous-game.html?searchResultPosition=5
+**These Birds Form a Trio, but Probably Not a Throuple**\
+`Some pairs of cranes in India, known for their monogamous devotion, seem to bring in a third bird to act like a kind of avian au pair.`\
+https://nytimes.com/2022/04/09/science/cranes-trio-throuple.html?searchResultPosition=5
 
-**Saudi Arabia will allow a million hajj pilgrims to visit Mecca, with Covid precautions.**\
-`Vaccinations and negative tests will be required for those who attend the annual ritual.`\
-https://nytimes.com/2022/04/09/world/middleeast/saudi-arabia-hajj-pandemic-rules.html?searchResultPosition=6
+**How Covid Changed the Clergy in New York**\
+`As the city’s houses of worship begin to hold in-person services again, faith leaders reflect on what the pandemic has taught them.`\
+https://nytimes.com/2022/04/09/nyregion/covid-clergy-new-york.html?searchResultPosition=6
 
-**Corrections: April 9, 2022**\
-`Corrections that appeared in print on Saturday, April 9, 2022.`\
-https://nytimes.com/2022/04/09/pageoneplus/corrections-april-9-2022.html?searchResultPosition=7
+**Russell Westbrook’s Complicated Homecoming**\
+`The N.B.A. star and native Angeleno is thriving back in the city where he grew up. Just don’t ask a Lakers fan.`\
+https://nytimes.com/2022/04/09/style/russell-westbrook.html?searchResultPosition=7
 
-**Quotation of the Day: Emissions From Tropical Megacities Could Usher in ‘New Era of Air Pollution’**\
-`Quotation of the Day for Saturday, April 9, 2022.`\
-https://nytimes.com/2022/04/09/todayspaper/quotation-of-the-day-emissions-from-tropical-megacities-could-usher-in-new-era-of-air-pollution.html?searchResultPosition=8
+**Don’t Call it ‘Kamping’: K.O.A. Goes After the Luxury Market**\
+`The well-known network of budget-focused campgrounds has introduced a new brand to focus on glampers. The company’s head explains the move.`\
+https://nytimes.com/2022/04/09/travel/koa-glamping-camping.html?searchResultPosition=8
 
-**Trump Officials Failed to Provide Accounting of Foreign Gifts**\
-`The State Department could not compile a list of gifts for 2020, making it difficult to determine whether officials did anything improper.`\
-https://nytimes.com/2022/04/08/us/politics/trump-foreign-gifts.html?searchResultPosition=9
+**Condé Nast Staffers Want a Union: ‘You Can’t Eat Prestige’**\
+`What does it mean when the labor movement is embraced by the so-called media elite?`\
+https://nytimes.com/2022/04/09/nyregion/conde-nast-union.html?searchResultPosition=9
 
-**Amoeba Feature**\
-`Sam Buchbinder breaks into Saturday with a solid challenge.`\
-https://nytimes.com/2022/04/08/crosswords/daily-puzzle-2022-04-09.html?searchResultPosition=10
+**Spurred by Putin, Russians Turn on One Another Over the War**\
+`Citizens are denouncing one another, illustrating how the war is feeding paranoia and polarization in Russian society.`\
+https://nytimes.com/2022/04/09/world/europe/putin-russia-war-ukraine.html?searchResultPosition=10
 
