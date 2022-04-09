@@ -3,7 +3,7 @@
 https://nytimes.com/2022/04/09/world/europe/putin-ukraine-russia.html?searchResultPosition=1
 
 **Classic Games, Lingering Scars and the Finish Line in Sight**\
-`Manchester City and Liverpool meet Sunday in the first of a series of collisions that could decide as many as three trophies. Neither team can be sure of what comes next.`\
+`Manchester City and Liverpool meet Sunday in the first of a series of collisions that could decide as many as three trophies. Neither team can be sure of what comes after that.`\
 https://nytimes.com/2022/04/09/sports/soccer/man-city-liverpool-guardiola-klopp.html?searchResultPosition=2
 
 **Diary of a Spelling Bee Fanatic**\
