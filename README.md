@@ -20,7 +20,7 @@ https://nytimes.com/2022/04/09/opinion/paying-parents-for-child-care.html?search
 
 **In the Rush to Return, What Happens to the Vulnerable?**\
 `We need a new normal.`\
-https://nytimes.com/2022/04/09/opinion/in-the-rush-to-return-what-happens-to-the-vulnerable.html?searchResultPosition=6
+https://nytimes.com/2022/04/09/opinion/covid-mask-risk-society.html?searchResultPosition=6
 
 **Football Asks Me to Make Moral Compromises. I Love It Anyway.**\
 `I’m not proud of myself, but nothing can keep me from this game.`\
