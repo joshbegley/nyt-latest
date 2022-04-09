@@ -34,7 +34,7 @@ https://nytimes.com/2022/04/09/books/eleanor-munro-dead.html?searchResultPositio
 `Taking a close look at John Marshall and the Marbury v. Madison case.`\
 https://nytimes.com/2022/04/09/opinion/judicial-review-john-marshall-marbury-v-madison.html?searchResultPosition=9
 
-**Wave of Terrorism in Israel Defies a Clear Narrative**\
+**Wave of Terrorism in Israel Defies a Simple Narrative**\
 `Four recent deadly attacks have highlighted Palestinian anger over vanishing prospects of a Palestinian state, but the assailants’ diverse backgrounds have left many questions unanswered.`\
 https://nytimes.com/2022/04/09/world/middleeast/israel-palestinian-violence.html?searchResultPosition=10
 
