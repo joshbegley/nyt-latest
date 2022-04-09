@@ -6,7 +6,7 @@ https://nytimes.com/2022/04/09/opinion/paying-parents-for-child-care.html?search
 `We need a new normal.`\
 https://nytimes.com/2022/04/09/opinion/in-the-rush-to-return-what-happens-to-the-vulnerable.html?searchResultPosition=2
 
-**Football Asks Me to Make Moral Compromises. I love It Anyway.**\
+**Football Asks Me to Make Moral Compromises. I Love It Anyway.**\
 `I’m not proud of myself, but nothing can keep me from this game.`\
 https://nytimes.com/2022/04/09/opinion/football-moral-compromises.html?searchResultPosition=3
 
