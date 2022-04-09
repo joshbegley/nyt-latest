@@ -3,7 +3,7 @@
 https://nytimes.com/2022/04/09/us/fire-chief-nebraska-wildfire.html?searchResultPosition=1
 
 **Boris Johnson visits Kyiv, as Britain promises Ukraine armored vehicles and anti-ship weapons.**\
-`By Stephen Castle`\
+` `\
 https://nytimes.com/2022/04/09/world/europe/boris-johnson-kyiv-ukraine-aid.html?searchResultPosition=2
 
 **Disagreement and Delay: How Infighting Over the Border Divided the White House**\
