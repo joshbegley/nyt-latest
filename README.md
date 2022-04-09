@@ -15,7 +15,7 @@ https://nytimes.com/2022/04/09/science/arthur-d-riggs-82-dies-led-team-that-inve
 https://nytimes.com/2022/04/09/us/fire-chief-nebraska-wildfire.html?searchResultPosition=4
 
 **Boris Johnson visits Kyiv, as Britain promises Ukraine armored vehicles and anti-ship weapons.**\
-` `\
+`Mr. Johnson, an enthusiastic supporter of President Volodymyr Zelensky of Ukraine, walked with him and a group of soldiers through the streets of the capital, Kyiv.`\
 https://nytimes.com/2022/04/09/world/europe/boris-johnson-kyiv-ukraine-aid.html?searchResultPosition=5
 
 **Disagreement and Delay: How Infighting Over the Border Divided the White House**\
