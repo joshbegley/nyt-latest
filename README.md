@@ -28,7 +28,7 @@ https://nytimes.com/2022/04/09/crosswords/daily-puzzle-2022-04-10.html?searchRes
 
 **Pakistan Parliament Ousts Imran Khan as Prime Minister**\
 `The country will now face early elections after days of brinkmanship in which Mr. Khan tried to dissolve Parliament to head off the no-confidence vote.`\
-https://nytimes.com/2022/04/09/world/asia/imran-khan-pakistan-resign.html?searchResultPosition=9
+https://nytimes.com/2022/04/09/world/asia/imran-khan-pakistan-ousted.html?searchResultPosition=9
 
 **Teenager Charged in Fatal Shooting of 16-Year-Old Girl in the Bronx**\
 `Jeremiah Ryan, 17, was charged with murder in the killing of Angellyh Yambo, who was shot as she walked home from school on Friday.`\
