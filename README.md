@@ -1,5 +1,5 @@
 **At the Masters, Tiger Woods Finishes, a Victory in Itself**\
-`By Sunday, the crowds that swarmed his opening rounds of the tournament had thinned considerably.`\
+`By Sunday, the crowds that swarmed his opening rounds of the tournament had thinned somewhat. Woods finished 13 over, but the score seemed beside the point.`\
 https://nytimes.com/2022/04/10/sports/golf/tiger-woods-masters-sunday.html?searchResultPosition=1
 
 **Texas Will Dismiss Murder Charge Against Woman Connected to ‘Self-Induced Abortion’**\
