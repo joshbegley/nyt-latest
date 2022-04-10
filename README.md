@@ -1,40 +1,40 @@
-**A Reporter Returns to Australia, a Pandemic Later**\
-`Earlier this year, I boarded a plane home for the first time since the pandemic began.`\
-https://nytimes.com/interactive/2022/04/10/world/australia/Australia-homecoming.html?searchResultPosition=1
+**The Fortunes of MacKenzie Scott**\
+`Three decades after worrying about making rent, she is now giving away billions — all while trying to keep herself out of the spotlight.`\
+https://nytimes.com/2022/04/10/business/mackenzie-scott-charity.html?searchResultPosition=1
 
-**An Australia Homecoming, Mixed With Yearning and Trepidation**\
-`When “Fortress Australia” sealed its borders, thousands of citizens were stuck abroad. When allowed to return home, a reporter wondered how she would find the country — and how it would find her.`\
-https://nytimes.com/2022/04/10/world/australia/sydney-coronavirus-homecoming.html?searchResultPosition=2
+**The Conservative College That’s Expanding to Charter Schools**\
+`Hillsdale College is building a national, publicly funded charter school network — and fighting what it calls leftist teaching.`\
+https://nytimes.com/2022/04/10/us/hillsdale-college-charter-schools.html?searchResultPosition=2
 
-**On the Border, Buying Clothes by the Pound at Ropa Usada Shops**\
-`Like thrift shops on steroids, giant used-clothing stores are part of the culture and economic life along the border with Mexico.`\
-https://nytimes.com/2022/04/10/us/ropa-usada-border-shops.html?searchResultPosition=3
+**The Home Cooks (and Start-Ups) Betting on Prepared Meals**\
+`Tens of billions of dollars are being spent on what, where and how consumers will eat in the coming years. Laws and regulations aren’t always keeping up.`\
+https://nytimes.com/2022/04/10/business/meal-delivery-woodspoon-chefs.html?searchResultPosition=3
 
-**Why This Coastal County Has the Highest Covid Death Rate in Its State**\
-`Ocean County, a predominantly white and middle-class community in central New Jersey, also has low vaccination rates.`\
-https://nytimes.com/2022/04/10/nyregion/ocean-county-new-jersey-covid.html?searchResultPosition=4
+**Few Cars, Lots of Customers: Why Autos Are an Inflation Risk**\
+`Economists are betting that supply chains for all kinds of goods will heal, shortages will ease and price gains will slow. Cars are a wild card in those forecasts.`\
+https://nytimes.com/2022/04/10/business/economy/cars-inflation.html?searchResultPosition=4
 
-**Why Calls for War Crimes Justice Over Ukraine Face Long Odds**\
-`If those in power act as if they are immune to the laws of war, it may be because they often are. But following through is not necessarily an empty exercise.`\
-https://nytimes.com/2022/04/10/world/europe/russia-ukraine-war-crimes.html?searchResultPosition=5
+**Jan. 6 Panel Has Evidence for Criminal Referral of Trump, but Splits on Sending**\
+`Despite concluding that it has enough evidence, the committee is concerned that making a referral to the Justice Department would backfire by politicizing the investigation into the Capitol riot.`\
+https://nytimes.com/2022/04/10/us/politics/jan-6-trump-criminal-referral.html?searchResultPosition=5
 
-**‘My Husband and I Got Married at the City Clerk’s Office in February’**\
-`A celebratory brunch, testing a theory on the M14 and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2022/04/10/nyregion/metropolitan-diary.html?searchResultPosition=6
+**Homes That Sold for Around $1 Million**\
+`Recent residential sales in New York City and the region.`\
+https://nytimes.com/2022/04/10/realestate/homes-that-sold-for-around-1-million.html?searchResultPosition=6
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/04/10/crosswords/spelling-bee-forum.html?searchResultPosition=7
+**His Alter Ego: Comic Book Correspondent**\
+`George Gene Gustines, an operations manager at The Times, carved out a reporting beat for himself by owning up to his passion.`\
+https://nytimes.com/2022/04/10/insider/his-alter-ego-comic-book-correspondent.html?searchResultPosition=7
 
-**Judge Ketanji Brown Jackson Gets Advice from ‘S.N.L.’**\
-`Ego Nwodim played the newly confirmed Supreme Court justice for “Saturday Night Live,” in an episode hosted by Jake Gyllenhaal.`\
-https://nytimes.com/2022/04/10/arts/television/saturday-night-live-ketanji-brown-jackson.html?searchResultPosition=8
+**One Opera, Three Acts, Three Different Stagings**\
+`In Stuttgart, Wagner’s “Die Walküre” is being divided among a trio of creative teams with divergent visions.`\
+https://nytimes.com/2022/04/10/arts/music/wagner-walkure-opera.html?searchResultPosition=8
 
-**Corrections: April 10, 2022**\
-`Corrections that appeared in print on Sunday, April 10, 2022.`\
-https://nytimes.com/2022/04/10/pageoneplus/corrections-april-10-2022.html?searchResultPosition=9
+**Molly Shannon’s Memoir Is Filled With Mischief and Pathos**\
+`“Hello, Molly!,” the former “Saturday Night Live” star’s new book, recounts early family tragedy and a career of transgressive humor.`\
+https://nytimes.com/2022/04/10/books/review-hello-molly-shannon-memoir.html?searchResultPosition=9
 
-**Quotation of the Day: Putin, Rooting Out War Critics, Turns Russians Against Russians**\
-`Quotation of the Day for Sunday, April 10, 2022.`\
-https://nytimes.com/2022/04/10/todayspaper/quotation-of-the-day-putin-rooting-out-war-critics-turns-russians-against-russians.html?searchResultPosition=10
+**Misty Copeland on ‘Serenade,’ Democracy and the Art of Movement**\
+`The ballet dancer reviews Toni Bentley’s sixth book: part memoir, part ode to George Balanchine and the art form he immortalized.`\
+https://nytimes.com/2022/04/10/books/review/serenade-a-balanchine-story-toni-bentley.html?searchResultPosition=10
 
