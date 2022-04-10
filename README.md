@@ -1,5 +1,5 @@
-**An uptick in U.S. virus cases is concerning but not surprising, Dr. Fauci says.**\
-`Dr. Fauci said on Sunday that the virus was still a serious threat, but that people needed to make their own decisions about the risks they would take.`\
+**An uptick in U.S. virus cases is concerning but not surprising, Fauci says.**\
+`Dr. Anthony S. Fauci said on Sunday that the virus was still a  threat, but that people needed to decide for themselves what risks they would take.`\
 https://nytimes.com/2022/04/10/health/fauci-ba2-omicron-covid.html?searchResultPosition=1
 
 **Review: Dance Theater of Harlem’s Soulful Ballet to Stevie Wonder**\
