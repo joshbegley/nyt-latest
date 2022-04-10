@@ -11,8 +11,8 @@ https://nytimes.com/2022/04/09/us/politics/trump-doctor-oz-senate-endorsement.ht
 https://nytimes.com/2022/04/09/sports/golf/masters-woods-scheffler-third.html?searchResultPosition=4
 
 **Giancarlo Stanton Continues to Mash Against Red Sox**\
-`The Yankees slugger has homered in six straight games against Boston and the Yankees are 2-0 for the first time since 2018.`\
-https://nytimes.com/2022/04/09/sports/baseball/yankees-red-sox.html?searchResultPosition=5
+`Stanton has homered in six straight games against Boston. The Mets, meanwhile, are 3-0 thanks to Pete Alonso’s grand slam.`\
+https://nytimes.com/2022/04/09/sports/baseball/yankees-red-sox-mets-nationals.html?searchResultPosition=5
 
 **A Big Texas Party**\
 `A Big Texas Party`\
