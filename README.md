@@ -1,5 +1,5 @@
 **Maryland Lawmakers Expand Abortion Access, Overriding Governor’s Veto**\
-`The new law allows trained medical professionals other than physicians to perform abortions.`\
+`The new law allows trained medical professionals other than physicians to perform abortions and requires insurance providers to cover more costs.`\
 https://nytimes.com/2022/04/10/us/maryland-abortion-rights-veto.html?searchResultPosition=1
 
 **New Era Begins at Warner Bros., Tinged With Nostalgia**\
