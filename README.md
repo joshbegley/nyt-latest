@@ -35,6 +35,6 @@ https://nytimes.com/2022/04/10/world/middleeast/israel-ukraine-russia-oligarchs.
 https://nytimes.com/2022/04/10/opinion/timothy-keller-cancer-easter.html?searchResultPosition=9
 
 **S&P Global Places Russia in ‘Selective Default’**\
-`The move by the ratings agency came after Russia was unable to use dollars held in American banks to make a payment of about $650 million on its debt. It used rubles instead.`\
+`Russia was unable to use dollars held in American banks to make a payment of about $650 million on its debt. It used rubles instead.`\
 https://nytimes.com/2022/04/10/business/russia-debt-default-rubles.html?searchResultPosition=10
 
