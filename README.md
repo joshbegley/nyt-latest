@@ -30,7 +30,7 @@ https://nytimes.com/2022/04/10/briefing/gas-prices-explained-week-ahead.html?sea
 `The race’s organizers pull an Otter.`\
 https://nytimes.com/2022/04/10/opinion/boston-marathon-russia-ukraine.html?searchResultPosition=8
 
-**Should American Veterans Go to Ukraine?**\
+**My Advice for American Veterans Who Want to Get on a Plane to Ukraine**\
 `People there are suffering. Discouraging my fellow veterans from going there would be both hypocritical and disingenuous. `\
 https://nytimes.com/2022/04/10/opinion/us-veterans-ukraine.html?searchResultPosition=9
 
