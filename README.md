@@ -7,7 +7,7 @@ https://nytimes.com/2022/04/10/world/asia/pakistan-imran-khan-elections.html?sea
 https://nytimes.com/2022/04/10/sports/baseball/mets-nationals.html?searchResultPosition=2
 
 **Scottie Scheffler Wins His First Masters Championship**\
-`The 25-year-old American, a rising star on the PGA Tour and world No. 1, held off Rory McIlroy and Cameron Smith with a steady final round.`\
+`The 25-year-old American, a rising star on the PGA Tour and world No. 1, held off Rory McIlroy and Cameron Smith to win by three strokes.`\
 https://nytimes.com/2022/04/10/sports/golf/masters-scheffler-smith-mcilroy.html?searchResultPosition=3
 
 **Macron to Face Le Pen for President as French Gravitate Toward Extremes**\
