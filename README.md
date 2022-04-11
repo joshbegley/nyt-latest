@@ -22,8 +22,8 @@ https://nytimes.com/2022/04/11/arts/music/red-hot-chili-peppers-billboard-chart.
 `With more companies adopting hybrid work, New York City’s economy, which relies on commuters and full office buildings, faces an uncertain future.`\
 https://nytimes.com/2022/04/11/nyregion/remote-work-hybrid-manhattan.html?searchResultPosition=6
 
-**Who Isn’t Trying to Get a Head?**\
-`Interest in busts has boomed as the art form, once accessible to a wealthy few, has become more democratic than ever.`\
+**The Bust Economy is Booming**\
+`Interest in busts has grown as the art form, once accessible to a wealthy few, has become more democratic than ever.`\
 https://nytimes.com/2022/04/11/style/art-busts.html?searchResultPosition=7
 
 **After Upheaval, MOCA Bets on Johanna Burton to Bring Stability**\
