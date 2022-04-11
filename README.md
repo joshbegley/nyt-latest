@@ -1,6 +1,6 @@
 **Your Monday Briefing**\
 `An exodus from eastern Ukraine.`\
-https://nytimes.com/2022/04/11/briefing/ukraine-assalt-macron-election.html?searchResultPosition=1
+https://nytimes.com/2022/04/11/briefing/ukraine-assault-macron-election.html?searchResultPosition=1
 
 **The Future of Taiwan’s Content Industry Lies in Diversification and Collaboration**\
 `Diverse, personalized experiences and in-depth cultural content are driving content’s transformation in Taiwan.`\
