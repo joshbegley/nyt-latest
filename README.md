@@ -35,6 +35,6 @@ https://nytimes.com/2022/04/11/us/colleges-mask-mandate.html?searchResultPositio
 https://nytimes.com/paidpost/fort-myers/in-fort-myers-and-surrounding-areas-every-day-is-a-good-day.html?searchResultPosition=9
 
 **Legal Marijuana Sales Expected to Start Within Weeks in New Jersey**\
-`A state commission has granted seven medical-marijuana companies permission to start selling cannabis to all adults at  dispensaries.`\
+`A state commission has granted seven medical-marijuana companies permission to start selling cannabis to all adults at dispensaries.`\
 https://nytimes.com/2022/04/11/nyregion/marijuana-sales-nj.html?searchResultPosition=10
 
