@@ -14,13 +14,13 @@ https://nytimes.com/2022/04/11/science/starlings-birds-shakespeare.html?searchRe
 `The world’s densest collection of freshwater springs is at the center of a slow-motion environmental tragedy.`\
 https://nytimes.com/2022/04/11/travel/florida-freshwater-springs.html?searchResultPosition=4
 
-**China’s Echoes of Russia’s Alternate Reality Intensify Around the World**\
-`China’s officials and state media are increasingly parroting Russian propaganda organs on the war in Ukraine, undercutting U.S. and European diplomatic efforts, even after the killings in Bucha.`\
-https://nytimes.com/2022/04/11/technology/china-russia-propaganda.html?searchResultPosition=5
-
 **A Full-Body Strength Training Workout at Home**\
 `If you’re willing to be creative, a set of elastic bands can be as effective as a gym full of weights.`\
-https://nytimes.com/2022/04/11/well/a-full-body-strength-training-workout-at-home.html?searchResultPosition=6
+https://nytimes.com/2022/04/11/well/resistance-band-workouts.html?searchResultPosition=5
+
+**China’s Echoes of Russia’s Alternate Reality Intensify Around the World**\
+`China’s officials and state media are increasingly parroting Russian propaganda organs on the war in Ukraine, undercutting U.S. and European diplomatic efforts, even after the killings in Bucha.`\
+https://nytimes.com/2022/04/11/technology/china-russia-propaganda.html?searchResultPosition=6
 
 **‘This Was Trump Pulling a Putin’**\
 `Amid the current crisis, Fiona Hill and other former advisers are connecting President Trump’s pressure campaign on Ukraine to Jan. 6. And they’re ready to talk.`\
@@ -34,7 +34,7 @@ https://nytimes.com/2022/04/11/us/politics/us-russia-ukraine-war-crimes.html?sea
 `There are days when it certainly seems that way.`\
 https://nytimes.com/2022/04/11/opinion/trump-democrats-jackson-whitmer.html?searchResultPosition=9
 
-**‘What If Africa Was the Birthplace of Fashion?’**\
-`As the first “amigo” designer for Alber Elbaz’s AZ Factory, Thebe Magugu poses the question — and offers a sneak peek into the collection.`\
-https://nytimes.com/2022/04/11/style/thebe-magugu-az-factory.html?searchResultPosition=10
+**Truck Makers Face a Tech Dilemma: Batteries or Hydrogen?**\
+`Under pressure to cut emissions, truck manufacturers are choosing between batteries and hydrogen fuel cells. Wagering incorrectly could cost them billions of dollars.`\
+https://nytimes.com/2022/04/11/business/electric-hydrogen-trucks.html?searchResultPosition=10
 
