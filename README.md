@@ -8,7 +8,7 @@ https://nytimes.com/2022/04/11/crosswords/crossword-puzzle-tournament-diary.html
 
 **A One-Woman Rescue Squad for Homeless Students**\
 `The work of Norma Mercado, a Texas school system’s point person for dealing with homeless young people, is benefiting from a big but temporary surge in federal funding.`\
-https://nytimes.com/2022/04/11/us/politics/homeless-students.html?searchResultPosition=3
+https://nytimes.com/2022/04/11/us/politics/homeless-students-texas.html?searchResultPosition=3
 
 **Japan’s Perfect Game Drought Ends With a 19-Strikeout Masterpiece**\
 `Roki Sasaki, 20, pitched the first perfect game in Nippon Professional Baseball in 28 years. But don’t expect to see him in M.L.B. anytime soon.`\
