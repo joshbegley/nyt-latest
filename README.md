@@ -18,7 +18,7 @@ https://nytimes.com/2022/04/11/us/sikh-marine-lawsuit-beard-turban.html?searchRe
 `President Biden unveiled new restrictions to curb the spread of “ghost guns” during an event to announce his nomination of Steven M. Dettelbach, a former federal prosecutor, to run the Bureau of Alcohol, Tobacco, Firearms and Explosives.`\
 https://nytimes.com/video/us/politics/100000008298982/biden-ghost-guns-atf.html?searchResultPosition=5
 
-**PG&E agrees to pay $55 million in penalties over two wildfires.**\
+**PG&E agrees to pay $55 million in penalties and costs over two wildfires.**\
 `The California utility settled civil charges and avoided criminal prosecution over the role of its equipment in igniting the blazes.`\
 https://nytimes.com/2022/04/11/business/energy-environment/pge-wildfire-settlement.html?searchResultPosition=6
 
