@@ -35,6 +35,6 @@ https://nytimes.com/2022/04/10/crosswords/daily-puzzle-2022-04-11.html?searchRes
 https://nytimes.com/2022/04/10/obituaries/jordan-mooney-dead.html?searchResultPosition=9
 
 **Before Giving Billions to Jared Kushner, Saudi Investment Fund Had Big Doubts**\
-`Before it committed $2 billion to Mr. Kushner’s firm, Public Investment Fund officials questioned the justification for taking such a big risk.`\
+`Before committing $2 billion to Mr. Kushner’s fledgling firm, officials at a fund led by the Saudi crown prince questioned taking such a big risk.`\
 https://nytimes.com/2022/04/10/us/jared-kushner-saudi-investment-fund.html?searchResultPosition=10
 
