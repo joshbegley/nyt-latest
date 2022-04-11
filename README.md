@@ -15,7 +15,7 @@ https://nytimes.com/2022/04/11/nyregion/new-york-bail-laws.html?searchResultPosi
 https://nytimes.com/2022/04/11/crosswords/spelling-bee-forum.html?searchResultPosition=4
 
 **Exiled by Russian Bombs, a Ukrainian Soccer Team Embraces Its Journey**\
-`Shakhtar Donetsk was forced from its home city and then its country by Russian invasions. Its next stop? A series of exhibition games that will raise money for the war effort.`\
+`Shakhtar Donetsk was forced from its home city and then its country by Russian invasions. Its next stop? A series of exhibition games drawing attention to Ukraine’s plight.`\
 https://nytimes.com/2022/04/11/sports/soccer/ukraine-soccer-shakhtar-donetsk.html?searchResultPosition=5
 
 **What’s on TV This Week: ‘The First Lady’ and ‘Abbott Elementary’**\
