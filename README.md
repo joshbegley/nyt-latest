@@ -18,13 +18,13 @@ https://nytimes.com/2022/04/11/travel/florida-freshwater-springs.html?searchResu
 `If you’re willing to be creative, a set of elastic bands can be as effective as a gym full of weights.`\
 https://nytimes.com/2022/04/11/well/resistance-band-workouts.html?searchResultPosition=5
 
-**China’s Echoes of Russia’s Alternate Reality Intensify Around the World**\
-`China’s officials and state media are increasingly parroting Russian propaganda organs on the war in Ukraine, undercutting U.S. and European diplomatic efforts, even after the killings in Bucha.`\
-https://nytimes.com/2022/04/11/technology/china-russia-propaganda.html?searchResultPosition=6
-
 **‘This Was Trump Pulling a Putin’**\
 `Amid the current crisis, Fiona Hill and other former advisers are connecting President Trump’s pressure campaign on Ukraine to Jan. 6. And they’re ready to talk.`\
-https://nytimes.com/2022/04/11/magazine/trump-putin-ukraine-fiona-hill.html?searchResultPosition=7
+https://nytimes.com/2022/04/11/magazine/trump-putin-ukraine-fiona-hill.html?searchResultPosition=6
+
+**China’s Echoes of Russia’s Alternate Reality Intensify Around the World**\
+`China’s officials and state media are increasingly parroting Russian propaganda organs on the war in Ukraine, undercutting U.S. and European diplomatic efforts, even after the killings in Bucha.`\
+https://nytimes.com/2022/04/11/technology/china-russia-propaganda.html?searchResultPosition=7
 
 **U.S. Weighs Shift to Support Hague Court as It Investigates Russian Atrocities**\
 `The government is hamstrung from helping the world’s war-crimes court by two laws and a policy aimed at barring it from charging Americans.`\
