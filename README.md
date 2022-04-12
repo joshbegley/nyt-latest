@@ -31,7 +31,7 @@ https://nytimes.com/2022/04/11/pageoneplus/corrections-april-12-2022.html?search
 https://nytimes.com/2022/04/11/climate/permafrost-climate-change.html?searchResultPosition=8
 
 **Woman Pleads Guilty to Tackling Black Teen at SoHo Hotel**\
-`Miya Ponsetto admitted to committing a hate crime in the 2020 episode. That element of the charge will be dropped if she abides by the law for two years.`\
+`Miya Ponsetto admitted to committing a hate crime in the 2020 episode, parts of which were captured in a widely seen video.`\
 https://nytimes.com/2022/04/11/nyregion/miya-ponsetto-soho-hotel-guilty-plea.html?searchResultPosition=9
 
 **W.N.B.A. Draft: Kentucky’s Rhyne Howard Goes No. 1 to Dream**\
