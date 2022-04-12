@@ -1,6 +1,6 @@
 **In Conference Call Before Riot, a Plea to ‘Descend on the Capitol’**\
 `Days before Jan. 6, a onetime aide to Roger J. Stone Jr. told Trump backers to make lawmakers meeting to finalize the 2020 election results feel that “people are breathing down their necks.”`\
-https://nytimes.com/2022/04/12/us/politics/jason-sullivan-jan-6-trump.html?searchResultPosition=1
+https://nytimes.com/2022/04/12/us/politics/jan-6-capitol-riot-sullivan-trump.html?searchResultPosition=1
 
 **Reader Questions: Theater District Edition**\
 `Tips for eating around Broadway, whether you have time for a sit-down meal or just a quick bite before the curtains go up.`\
