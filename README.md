@@ -1,5 +1,5 @@
-**Videos Show a Familiar New York Morning Erupting Into Chaos**\
-`The attack on an N train on Tuesday brought to life a horror that the city had long avoided: a mass shooting on the subway.`\
+**Videos Show an Ordinary New York Morning Erupting Into Chaos on the N Train**\
+`The attack on Tuesday brought to life a horror that the city had long avoided: a mass shooting on the subway.`\
 https://nytimes.com/2022/04/12/nyregion/video-brooklyn-shooting.html?searchResultPosition=7
 
 **Panic in Brooklyn Subway: Police Hunt Gunman Who Shot 10**\
