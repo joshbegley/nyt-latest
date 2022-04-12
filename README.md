@@ -30,11 +30,11 @@ https://nytimes.com/video/us/politics/100000008300147/philadelphia-indoor-mask-m
 `Employees of a nonunion production are seeking improved compensation and safety protocols, saying a union version of the same musical pays better.`\
 https://nytimes.com/2022/04/12/theater/waitress-actors-equity-union.html?searchResultPosition=8
 
+**Commuters are frightened by subway attack but say, ‘You can’t live in fear.’**\
+`Some passengers learned of the shooting through station announcements, messages from friends and family, and news alerts, while others did not know about it at all.`\
+https://nytimes.com/2022/04/12/nyregion/commuters-brooklyn-subway-shooting.html?searchResultPosition=9
+
 **Heavy Floods and Mudslides Leave at Least 45 Dead in South Africa**\
 `Torrential rain left a trail of destruction in the coastal city of Durban — the latest disaster in a season of storms that some scientists say has been intensified by climate change.`\
-https://nytimes.com/2022/04/12/world/africa/floods-mudslides-south-africa.html?searchResultPosition=9
-
-**Live Webinar: Exploring Big Ideas Through Short Documentaries**\
-`Join us on April 28 as Learning Network editors discuss how our weekly Film Club feature can be used across the curriculum.`\
-https://nytimes.com/2022/04/12/learning/live-webinar-exploring-big-ideas-through-short-documentaries.html?searchResultPosition=10
+https://nytimes.com/2022/04/12/world/africa/floods-mudslides-south-africa.html?searchResultPosition=10
 
