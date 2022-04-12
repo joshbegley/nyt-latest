@@ -3,7 +3,7 @@
 https://nytimes.com/2022/04/12/business/economy/biden-ethanol-gas.html?searchResultPosition=1
 
 **Several People Shot in Brooklyn Subway Station**\
-`The attack occurred at the 36th Street subway station in Sunset Park.`\
+`Police sought a man in a worker’s vest and gas mask in the attack at the 36th Street stop in Sunset Park.`\
 https://nytimes.com/2022/04/12/nyregion/brooklyn-subway-shooting.html?searchResultPosition=2
 
 **Lt. Gov. Benjamin Arrested in Campaign Finance Scheme**\
