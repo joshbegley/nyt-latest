@@ -3,7 +3,7 @@
 https://nytimes.com/2022/04/12/nyregion/brian-benjamin-arrested.html?searchResultPosition=1
 
 **Boris Johnson Will Be Fined for Breaking U.K. Lockdown Rules**\
-`The British prime minister and the chancellor of the Exchequer, Rishi Sunak, are among those caught in a police investigation.`\
+`The British prime minister and the chancellor of the Exchequer, Rishi Sunak, were among those caught in a police investigation.`\
 https://nytimes.com/2022/04/12/world/europe/boris-johnson-partygate-fines-rishi-sunak.html?searchResultPosition=2
 
 **Amid Soaring Demand for Warehouses, an Effort to Make Them Greener**\
