@@ -1,6 +1,6 @@
 **Nebula, a Big New Club, Wants Manhattan to Dance Again**\
 `Yang Gao, a newcomer to the nightlife business, took a gamble when he spent $12 million in the middle of a pandemic to carve out a 10,000-square-foot space in the heart of Midtown.`\
-https://nytimes.com/2022/04/12/style/nebula-a-big-new-club-wants-manhattan-to-dance-again.html?searchResultPosition=1
+https://nytimes.com/2022/04/12/style/nebula-new-york-club.html?searchResultPosition=1
 
 **Judge Bans 2 YouTubers From U.S.C. Campus**\
 `A lawsuit filed by the University of Southern California says the two men, who are not students, caused “terror and disruption” with what seemed like classroom takeovers.`\
