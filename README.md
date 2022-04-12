@@ -8,7 +8,7 @@ https://nytimes.com/2022/04/12/well/mind/children-anxiety-screening.html?searchR
 
 **Reconstructing the Brooklyn Subway Shooting**\
 `Passengers rushed out of a smoke-filled N train in Sunset Park, Brooklyn, after a man opened fire during rush hour on Tuesday morning.`\
-https://nytimes.com/interactive/2022/04/12/nyregion/brooklyn-subway-shooting.html?searchResultPosition=3
+https://nytimes.com/interactive/2022/04/12/nyregion/brooklyn-train-station-shooting-maps.html?searchResultPosition=3
 
 **Putin Calls Talks a ‘Dead End’ but Limits War Aim to Eastern Ukraine**\
 `It was the first time that President Vladimir Putin himself had defined a more limited military goal: taking control of the Donbas region in the east of Ukraine — not the whole country.`\
