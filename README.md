@@ -11,8 +11,8 @@ https://nytimes.com/2022/04/12/opinion/conservative-voters-america.html?searchRe
 https://nytimes.com/2022/04/12/sports/basketball/karl-anthony-towns-timberwolves-playoffs.html?searchResultPosition=3
 
 **The U.S. State Department orders nonemergency workers and their families to leave Shanghai.**\
-`By John Yoon`\
-https://nytimes.com/2022/04/11/world/the-us-state-department-orders-nonemergency-workers-and-their-families-to-leave-shanghai.html?searchResultPosition=4
+`A lockdown in the city of 25 million people “severely impacts travel and access to public services,” the State Department said.`\
+https://nytimes.com/2022/04/11/world/us-shanghai-lockdown.html?searchResultPosition=4
 
 **Mets Collapse Late in Loss to Phillies**\
 `A 4-0 Mets lead turned into a 5-4 defeat. Steve Kwan of the Guardians, meanwhile, continues to dominate.`\
