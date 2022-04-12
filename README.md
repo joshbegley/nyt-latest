@@ -23,7 +23,7 @@ https://nytimes.com/2022/04/12/learning/rites-of-spring.html?searchResultPositio
 https://nytimes.com/2022/04/12/world/ukraine-war-children-parents.html?searchResultPosition=6
 
 **Where the Ice Is Still Abundant, These Penguins Are, Too**\
-`The western side of the Antarctica penisula has seen sharp declines in Adélie penguin populations in recent decades. Things look better on the eastern side. Take a tour. `\
+`The western side of the Antarctic Peninsula has seen sharp declines in Adélie penguin populations in recent decades. Things look better on the eastern side. Take a tour.`\
 https://nytimes.com/2022/04/12/climate/antarctica-penguins.html?searchResultPosition=7
 
 **Word of the Day: apprehensive**\
