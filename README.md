@@ -12,7 +12,7 @@ https://nytimes.com/video/nyregion/100000008300184/brooklyn-subway-shooting.html
 
 **Am I Done Suffering for Fashion?**\
 `After two years of a pandemic, there lurks a lower patience for uncomfortable clothing.`\
-https://nytimes.com/2022/04/12/style/am-i-done-suffering-for-fashion.html?searchResultPosition=4
+https://nytimes.com/2022/04/12/style/relaxed-fashion-clothing.html?searchResultPosition=4
 
 **House G.O.P., Banding Together, Kills Bid to Honor Pioneering Black Judge**\
 `A right-wing congressman persuaded fellow Republicans to abruptly turn against a routine measure to name a federal courthouse in Florida for a Black State Supreme Court justice.`\
