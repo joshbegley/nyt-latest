@@ -8,7 +8,7 @@ https://nytimes.com/2022/04/12/business/global-inflation.html?searchResultPositi
 
 **The Ups and Downs of Remote Work in New York**\
 `People like working in their pajamas. But when employees don’t return to office, the city economy feels the pain.`\
-https://nytimes.com/2022/04/12/nyregion/the-ups-and-downs-of-remote-work-in-new-york.html?searchResultPosition=3
+https://nytimes.com/2022/04/12/nyregion/remote-work-new-york.html?searchResultPosition=3
 
 **This Beach in Mexico Is an L.G.B.T.Q. Haven. But Can It Last?**\
 `The town of Zipolite in western Mexico has become an oasis for the queer community. But as its popularity has surged, some worry that the town’s spirit is beginning to vanish.`\
