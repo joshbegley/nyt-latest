@@ -6,7 +6,7 @@ https://nytimes.com/2022/04/12/us/politics/biden-gas-prices-fossil-fuels.html?se
 `A panel of experts says the latest research supports early intervention for younger kids.`\
 https://nytimes.com/2022/04/12/well/mind/children-anxiety-screening.html?searchResultPosition=2
 
-**Reconstructing the Brooklyn Subway Shooting**\
+**How the Brooklyn Subway Shooting Unfolded**\
 `Passengers rushed out of a smoke-filled N train in Sunset Park, Brooklyn, after a man opened fire during rush hour on Tuesday morning.`\
 https://nytimes.com/interactive/2022/04/12/nyregion/brooklyn-train-station-shooting-maps.html?searchResultPosition=3
 
