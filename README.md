@@ -18,23 +18,23 @@ https://nytimes.com/interactive/2022/04/12/learning/lesson-plans/12Student-News-
 `This year’s nominees include a sculptor, a photographer and an artist who created a 31-foot statue of a dollop of whipped cream, with a fly on it.`\
 https://nytimes.com/2022/04/12/arts/design/turner-prize-phillipson-pollard.html?searchResultPosition=5
 
+**Nokia joins Ericsson as telecom giants leave Russia.**\
+`The decisions by the two Nordic firms signal difficulties ahead for Russia’s ability to expand and maintain its telecommunications networks.`\
+https://nytimes.com/2022/04/12/business/nokia-joins-ericsson-as-telecom-giants-leave-russia.html?searchResultPosition=6
+
 **Covid in the Northeast**\
 `Cases are rising there, but it’s uncertain if it’s the beginning of a larger surge.`\
-https://nytimes.com/2022/04/12/briefing/covid-rise-northeast-omicron.html?searchResultPosition=6
+https://nytimes.com/2022/04/12/briefing/covid-rise-northeast-omicron.html?searchResultPosition=7
 
 **Biden’s Climate Shift**\
 `The war in Ukraine has led the president to retreat on his ambitious climate policies.`\
-https://nytimes.com/2022/04/12/podcasts/the-daily/biden-climate-ukraine-war.html?searchResultPosition=7
+https://nytimes.com/2022/04/12/podcasts/the-daily/biden-climate-ukraine-war.html?searchResultPosition=8
 
 **Globally, inflation is surging amid persistent pandemic disruptions and war in Ukraine.**\
 `This may be the beginning of “a new inflationary era,” according to the Bank for International Settlements.`\
-https://nytimes.com/2022/04/12/business/global-inflation.html?searchResultPosition=8
+https://nytimes.com/2022/04/12/business/global-inflation.html?searchResultPosition=9
 
 **The Ups and Downs of Remote Work in New York**\
 `People like working in their pajamas. But when employees don’t return to office, the city economy feels the pain.`\
-https://nytimes.com/2022/04/12/nyregion/remote-work-new-york.html?searchResultPosition=9
-
-**This Beach in Mexico Is an L.G.B.T.Q. Haven. But Can It Last?**\
-`The town of Zipolite in western Mexico has become an oasis for the queer community. But as its popularity has surged, some worry that the town’s spirit is beginning to vanish.`\
-https://nytimes.com/2022/04/12/world/americas/mexico-nude-beach-playa-del-amor.html?searchResultPosition=10
+https://nytimes.com/2022/04/12/nyregion/remote-work-new-york.html?searchResultPosition=10
 
