@@ -22,7 +22,7 @@ https://nytimes.com/2022/04/11/nyregion/miya-ponsetto-soho-hotel-guilty-plea.htm
 `Howard, a senior guard, was the top pick after Atlanta made a deal with the Washington Mystics to move up in the draft.`\
 https://nytimes.com/2022/04/11/sports/basketball/wnba-draft.html?searchResultPosition=6
 
-**SNL Star Colin Jost Takes a Spin on Ferryboat He Bought With Pete Davidson**\
+**‘S.N.L.’ Star Colin Jost Takes a Spin on Ferryboat He Bought With Pete Davidson**\
 `After buying the retired Staten Island ferry at auction in January, the new owners rode it into New York Harbor en route to a temporary home.`\
 https://nytimes.com/2022/04/11/nyregion/pete-davidson-colin-jost-staten-island-ferry.html?searchResultPosition=7
 
