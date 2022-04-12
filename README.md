@@ -32,7 +32,7 @@ https://nytimes.com/2022/04/12/climate/climate-change-hurricane-rain.html?search
 
 **Watch Live: Officials Speak About Brooklyn Subway Shooting**\
 `The police were seeking a man in a worker’s vest and gas mask after early reports said 13 people were injured, several of them shot, during the morning rush.`\
-https://nytimes.com/video/nyregion/100000008299996/brooklyn-subway-shooting-adams-live.html?searchResultPosition=9
+https://nytimes.com/video/embedded/nyregion/100000008299996/brooklyn-subway-shooting-adams-live.html?searchResultPosition=9
 
 **Not Your Grandfather’s Skyscraper**\
 `Stefan Al’s “Supertall” is a thoughtful inquiry into the new generation of skyscrapers, which are taller and more ubiquitous than their predecessors.`\
