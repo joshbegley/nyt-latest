@@ -6,7 +6,7 @@ https://nytimes.com/2022/04/12/world/europe/germany-covid-vaccine-strategy.html?
 `The bullwhip is flicking back.`\
 https://nytimes.com/2022/04/12/opinion/inflation-consumer-prices.html?searchResultPosition=2
 
-**Video Shows Commuters on Train During Brooklyn Subway Attack**\
+**Video Shows Commuters on Train After Brooklyn Subway Attack**\
 `The video shows a smoke-filled subway car with passengers huddling on the floor. A man can be heard yelling that his wounded leg is in pain.`\
 https://nytimes.com/video/us/100000008300059/brooklyn-subway-attack.html?searchResultPosition=3
 
