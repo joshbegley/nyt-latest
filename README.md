@@ -1,6 +1,6 @@
 **Gas Prices Force Biden Into an Unlikely Embrace of Fossil Fuels**\
 `President Biden has had to walk a careful tightrope on energy and climate change in the weeks since U.S. sanctions on Russian oil and gas sent energy prices soaring.`\
-https://nytimes.com/2022/04/12/us/politics/biden-fossil-fuels.html?searchResultPosition=1
+https://nytimes.com/2022/04/12/us/politics/biden-gas-prices-fossil-fuels.html?searchResultPosition=1
 
 **All Children 8 and Older Should Be Screened for Anxiety, U.S. Task Force Says**\
 `A panel of experts says the latest research supports early intervention for younger kids.`\
