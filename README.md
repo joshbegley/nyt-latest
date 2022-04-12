@@ -10,7 +10,7 @@ https://nytimes.com/2022/04/12/learning/live-webinar-exploring-big-ideas-through
 `Yang Gao, a newcomer to the nightlife business, took a gamble when he spent $12 million in the middle of a pandemic to carve out a 10,000-square-foot space in the heart of Midtown.`\
 https://nytimes.com/2022/04/12/style/nebula-new-york-club.html?searchResultPosition=3
 
-**Judge Bans 2 YouTubers From U.S.C. Campus**\
+**Judge Bars 2 YouTubers From U.S.C. Campus**\
 `A lawsuit filed by the University of Southern California says the two men, who are not students, caused “terror and disruption” with what seemed like classroom takeovers.`\
 https://nytimes.com/2022/04/12/us/usc-youtube-pranks-lawsuit.html?searchResultPosition=4
 
