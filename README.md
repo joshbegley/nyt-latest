@@ -2,7 +2,7 @@
 `The White House estimated that the move would shave 10 cents off every gallon of gasoline purchased at the approximately 2,300 stations in the country that offer the blend known as E15.`\
 https://nytimes.com/2022/04/12/business/economy/biden-ethanol-gas.html?searchResultPosition=1
 
-**Several People Shot in Brooklyn Subway Station**\
+**Shooting in subway station heightens simmering fears about public safety.**\
 `Police sought a man in a worker’s vest and gas mask in the attack at the 36th Street stop in Sunset Park.`\
 https://nytimes.com/2022/04/12/nyregion/brooklyn-subway-shooting.html?searchResultPosition=2
 
