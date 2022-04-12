@@ -12,7 +12,7 @@ https://nytimes.com/2022/04/12/nyregion/the-ups-and-downs-of-remote-work-in-new-
 
 **This Beach in Mexico Is an L.G.B.T.Q. Haven. But Can It Last?**\
 `The town of Zipolite in western Mexico has become an oasis for the queer community. But as its popularity has surged, some worry that the town’s spirit is beginning to vanish.`\
-https://nytimes.com/2022/04/12/world/americas/mexico-nude-beach-lgbtq.html?searchResultPosition=4
+https://nytimes.com/2022/04/12/world/americas/mexico-nude-beach-playa-del-amor.html?searchResultPosition=4
 
 **An Angry Public Wants Sri Lanka’s President Gone**\
 `Gotabaya Rajapaksa is used to silencing and discrediting his political opponents. But that’s harder to do this time.`\
@@ -36,5 +36,5 @@ https://nytimes.com/2022/04/12/us/politics/transgender-laws-us.html?searchResult
 
 **From the U.S. to China: A 3-Month Quarantine Horror Story**\
 `A lawyer flew home to China hoping to see his family for the first time since the pandemic began. Instead, he was trapped in three months of quarantine.`\
-https://nytimes.com/2022/04/12/world/asia/china-covid-quarantine-ordeal.html?searchResultPosition=10
+https://nytimes.com/2022/04/12/world/asia/china-covid-quarantine-shanghai.html?searchResultPosition=10
 
