@@ -1,5 +1,5 @@
 **Gilbert Gottfried, Comedian With a Distinctive Voice, Dies at 67**\
-`His credits ranged from the family-friendly “Aladdin” to the unfettered vulgarity of “The Aristocrats” and included a very brief stint on “Saturday Night Live.”`\
+`His credits ranged from the family-friendly “Aladdin” to the unfettered vulgarity of “The Aristocrats” and included a brief stint on “Saturday Night Live.”`\
 https://nytimes.com/2022/04/12/arts/gilbert-gottfried-dead.html?searchResultPosition=1
 
 **Hochul’s Dilemma: What Do You Do When Your Running Mate Gets Indicted?**\
