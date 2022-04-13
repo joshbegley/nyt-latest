@@ -1,16 +1,16 @@
+**Quotation of the Day: Have Fun Like It’s Your Job**\
+`Quotation of the Day for Wednesday, April 13, 2022.`\
+https://nytimes.com/2022/04/12/todayspaper/quotation-of-the-day-have-fun-like-its-your-job.html?searchResultPosition=1
+
 **The police are seeking a person of interest, Frank James, in connection with the shooting.**\
 `Mr. James, 62, appears to have posted numerous troubling videos on YouTube. The police stopped short of calling him a suspect.`\
-https://nytimes.com/2022/04/12/nyregion/frank-james-brooklyn-shooting.html?searchResultPosition=1
+https://nytimes.com/2022/04/12/nyregion/frank-james-brooklyn-shooting.html?searchResultPosition=2
 
 **Gunman At Large After Subway Shooting Leaves Several Injured**\
 `Police are searching for a man who opened fire in a subway train in Brooklyn and shot at least 10 people during the morning rush.`\
-https://nytimes.com/video/us/100000008300776/brooklyn-subway-shooting-aftermath.html?searchResultPosition=2
+https://nytimes.com/video/us/100000008300776/brooklyn-subway-shooting-aftermath.html?searchResultPosition=3
 
 **Corrections: April 13, 2022**\
 `Corrections that appeared in print on Wednesday, April 13, 2022.`\
-https://nytimes.com/2022/04/12/pageoneplus/corrections-april-13-2022.html?searchResultPosition=3
-
-**Videos Show an Ordinary New York Morning Erupting Into Chaos on the N Train**\
-`The attack on Tuesday brought to life a horror that the city had long avoided: a mass shooting on the subway.`\
-https://nytimes.com/2022/04/12/nyregion/video-brooklyn-shooting.html?searchResultPosition=10
+https://nytimes.com/2022/04/12/pageoneplus/corrections-april-13-2022.html?searchResultPosition=4
 
