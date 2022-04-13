@@ -1,5 +1,5 @@
 **The police are seeking a person of interest, Frank James, in connection with the shooting.**\
-`Investigators announced a $50,000 reward for information leading to the arrest and indictment of the gunman. The police stopped short of calling Mr. James, 62, a suspect.`\
+`Mr. James, 62, appears to have posted numerous troubling videos on YouTube. The police stopped short of calling him a suspect.`\
 https://nytimes.com/2022/04/12/nyregion/frank-james-brooklyn-shooting.html?searchResultPosition=1
 
 **Gunman At Large After Subway Shooting Leaves Several Injured**\
