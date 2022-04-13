@@ -35,6 +35,6 @@ https://nytimes.com/2022/04/13/us/severe-storms-midwest-mississippi-valley.html?
 https://nytimes.com/2022/04/13/business/uk-inflation-economy-data.html?searchResultPosition=9
 
 **What We Know About the Brooklyn Subway Shooting**\
-`The police have identified a suspect, who has posted vitriolic rants on YouTube and criticized New York’s mayor.`\
+`The police have identified a suspect, a 62-year-old man who has posted vitriolic rants on YouTube and criticized New York’s mayor.`\
 https://nytimes.com/2022/04/13/nyregion/sunset-park-subway-shooting.html?searchResultPosition=10
 
