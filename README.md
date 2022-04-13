@@ -30,7 +30,7 @@ https://nytimes.com/2022/04/12/theater/to-my-girls-review.html?searchResultPosit
 `Quotation of the Day for Wednesday, April 13, 2022.`\
 https://nytimes.com/2022/04/12/todayspaper/quotation-of-the-day-have-fun-like-its-your-job.html?searchResultPosition=8
 
-**Frank James, the man being sought by police, left a trail of troubling videos online.**\
+**Frank James, the man being sought by police, left troubling videos online.**\
 `Mr. James, 62, has addresses in Wisconsin and Philadelphia. The police stopped short of calling him a suspect.`\
 https://nytimes.com/2022/04/12/nyregion/frank-james-brooklyn-shooting.html?searchResultPosition=9
 
