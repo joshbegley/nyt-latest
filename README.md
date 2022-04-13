@@ -7,7 +7,7 @@ https://nytimes.com/2022/04/13/sports/baseball/clayton-kershaw-dodgers.html?sear
 https://nytimes.com/2022/04/13/world/europe/britain-rwanda-immigrant-deal.html?searchResultPosition=2
 
 **Jerry Uelsmann, Surreal Image-Maker, Dies at 87**\
-`He did not believe that a photographer’s creativity ended with the click of the shutter; in his darkroom he combined elements of multiple pictures to create something new.`\
+`He did not believe that a photographer’s creativity ended with the click of the shutter; in his darkroom, he combined elements of multiple pictures to create something new.`\
 https://nytimes.com/2022/04/13/arts/jerry-uelsmann-dead.html?searchResultPosition=3
 
 **‘Women of the White Buffalo’ Review: Speaking Out on the Reservation**\
