@@ -22,7 +22,7 @@ https://nytimes.com/2022/04/13/us/fake-kidnapping-sherri-papini.html?searchResul
 `Without the help of weapons from companies like Lockheed Martin, all of Ukraine might have been conquered by now.`\
 https://nytimes.com/2022/04/13/opinion/defense-contractors-invest.html?searchResultPosition=6
 
-**Cuba Gooding Jr. to Plead Guilty to Forcible Touching**\
+**Cuba Gooding Jr. Pleads Guilty to Forcible Touching**\
 `Mr. Gooding had faced a criminal trial on charges of unwanted sexual touching of three women in Manhattan restaurants and nightclubs in 2018 and 2019.`\
 https://nytimes.com/2022/04/13/nyregion/cuba-gooding-jr-guilty.html?searchResultPosition=7
 
