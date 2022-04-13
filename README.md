@@ -30,7 +30,7 @@ https://nytimes.com/video/world/europe/100000008302050/finland-sweden-nato.html?
 `The gleefully raunchy Dominican rapper, who’s collaborated with J Balvin and Rosalía, has been hailed as an iconoclast. Her own goal is simple: Speaking her truth.`\
 https://nytimes.com/2022/04/13/arts/music/tokischa.html?searchResultPosition=8
 
-**The suspect in the subway shooting has been captured, officials say.**\
+**The suspect in the subway shooting has been arrested, officials say.**\
 `The suspect, Frank R. James, was apprehended in the East Village, according to law enforcement officials.`\
 https://nytimes.com/2022/04/13/nyregion/frank-james-arrested.html?searchResultPosition=9
 
