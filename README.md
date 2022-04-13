@@ -4,7 +4,7 @@ https://nytimes.com/2022/04/13/arts/dance/intimacy-directors-ballet.html?searchR
 
 **Israel’s Oldest Museum Takes a New Look at Israeli Art**\
 `For decades, museums presented Israeli art as a companion to the country’s history. The Tel Aviv Museum of Art breaks away from that approach — with surprising results.`\
-https://nytimes.com/2022/04/13/world/middleeast/israel-art-museum-telaviv.html?searchResultPosition=2
+https://nytimes.com/2022/04/13/world/middleeast/israel-art-museum-tel-aviv.html?searchResultPosition=2
 
 **In Elden Ring, the Struggle Feels Real**\
 `The video game evokes the hardship and disappointment of the pandemic, but also the hope of human communion.`\
