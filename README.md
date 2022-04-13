@@ -1,6 +1,6 @@
 **Blaming Trump, Jan. 6 Suspect Says He Fell Down a ‘Rabbit Hole’ of Lies**\
 `Dustin Thompson, an unemployed exterminator from Ohio, was the first defendant tried in the Capitol attack to offer a Trump-made-me-do-it defense before a jury.`\
-https://nytimes.com/2022/04/13/us/politics/jan-6-suspect-blames-trump.html?searchResultPosition=1
+https://nytimes.com/2022/04/13/us/politics/jan-6-suspect-trump.html?searchResultPosition=1
 
 **Justice Dept. Moves to Curb Police Abuses in Washington, D.C., and Massachusetts**\
 `The changes come as the Biden administration has struggled to make meaningful progress on a vow to crack down on police abuses.`\
