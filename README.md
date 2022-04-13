@@ -7,7 +7,7 @@ https://nytimes.com/2022/04/13/world/europe/finland-sweden-nato-russia-ukraine.h
 https://nytimes.com/2022/04/13/arts/design/matisse-exhibition-philadelphia.html?searchResultPosition=2
 
 **Sister of suspect in Brooklyn subway shooting says ‘he’s been on his own his whole life.’**\
-`Frank R. James, whom the police are seeking in connection with the attack on Tuesday, was born in the Bronx but spent his life moving from city to city, his sister said.`\
+`Frank R. James, whom the police are seeking in connection with the  attack on Tuesday, was born in the Bronx but spent his life moving from city to city, his sister said.`\
 https://nytimes.com/2022/04/13/nyregion/subway-shooting-frank-james-sister.html?searchResultPosition=3
 
 **Chloë Sevigny and Cory Kennedy Honor the Downtown Poets**\
