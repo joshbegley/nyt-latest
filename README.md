@@ -6,35 +6,35 @@ https://nytimes.com/2022/04/13/business/media/substack-growth-newsletters.html?s
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2022/04/13/crosswords/spelling-bee-forum.html?searchResultPosition=2
 
+**The N.Y.C. subway was struggling to rebound. Then the Brooklyn shooting happened.**\
+`By Andy Newman`\
+https://nytimes.com/2022/04/12/nyregion/the-nyc-subway-was-struggling-to-rebound-then-the-brooklyn-shooting-happened.html?searchResultPosition=3
+
 **Stephen Colbert Scoffs at John Eastman’s Obsession With the Election**\
 `“Our ex-president isn’t allowed a do-over just because he didn’t like the result the first time. That’s how you get an Eric,” Colbert joked.`\
-https://nytimes.com/2022/04/13/arts/television/stephen-colbert-john-eastman.html?searchResultPosition=3
+https://nytimes.com/2022/04/13/arts/television/stephen-colbert-john-eastman.html?searchResultPosition=4
 
 **Hunts for New York City attackers can end in minutes, or months.**\
 `By Mike Ives`\
-https://nytimes.com/2022/04/12/nyregion/hunts-for-new-york-city-attackers-can-end-in-minutes-or-months.html?searchResultPosition=4
+https://nytimes.com/2022/04/12/nyregion/hunts-for-new-york-city-attackers-can-end-in-minutes-or-months.html?searchResultPosition=5
 
 **Word of the Day: circumnavigate**\
 `This word has appeared in 16 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/04/13/learning/word-of-the-day-circumnavigate.html?searchResultPosition=5
+https://nytimes.com/2022/04/13/learning/word-of-the-day-circumnavigate.html?searchResultPosition=6
 
 **Problems with New York’s subway cameras date back years.**\
 `By Ana Ley and Anushka Patil`\
-https://nytimes.com/2022/04/12/nyregion/problems-with-new-yorks-subway-cameras-date-back-years.html?searchResultPosition=6
+https://nytimes.com/2022/04/12/nyregion/problems-with-new-yorks-subway-cameras-date-back-years.html?searchResultPosition=7
 
 **N.F.L. Players Try a Different Training Camp: the Broadcast Booth**\
 `N.F.L. broadcasters netted massive contracts this off-season. A league-organized boot camp prepares the players who want to follow their path.`\
-https://nytimes.com/2022/04/13/sports/football/nfl-broadcaster-boot-camp.html?searchResultPosition=7
+https://nytimes.com/2022/04/13/sports/football/nfl-broadcaster-boot-camp.html?searchResultPosition=8
 
 **Your Wednesday Briefing**\
 `Russia’s stated aims in Ukraine.`\
-https://nytimes.com/2022/04/13/briefing/putin-donbas-shooting-brooklyn.html?searchResultPosition=8
+https://nytimes.com/2022/04/13/briefing/putin-donbas-shooting-brooklyn.html?searchResultPosition=9
 
 **Frank James was quiet and gruff, his neighbors in Milwaukee said.**\
 `By Dan Simmons`\
-https://nytimes.com/2022/04/12/nyregion/frank-james-was-quiet-and-gruff-his-neighbors-in-milwaukee-said.html?searchResultPosition=9
-
-**Megill and Nimmo Get Mets Back on Track With Win**\
-`The win snapped a two-game losing streak for the Mets. The Reds president, meanwhile, had to apologize for some remarks.`\
-https://nytimes.com/2022/04/12/sports/baseball/mets-phillies.html?searchResultPosition=10
+https://nytimes.com/2022/04/12/nyregion/frank-james-was-quiet-and-gruff-his-neighbors-in-milwaukee-said.html?searchResultPosition=10
 
