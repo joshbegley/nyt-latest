@@ -22,19 +22,19 @@ https://nytimes.com/2022/04/13/learning/word-of-the-day-circumnavigate.html?sear
 `By Ana Ley and Anushka Patil`\
 https://nytimes.com/2022/04/12/nyregion/problems-with-new-yorks-subway-cameras-date-back-years.html?searchResultPosition=6
 
-**A trail of clues in online rants, a rented van and a fireworks purchase.**\
-`By Ed Shanahan`\
-https://nytimes.com/2022/04/12/nyregion/a-trail-of-clues-in-online-rants-a-rented-van-and-a-fireworks-purchase.html?searchResultPosition=7
-
 **N.F.L. Players Try a Different Training Camp: the Broadcast Booth**\
 `N.F.L. broadcasters netted massive contracts this off-season. A league-organized boot camp prepares the players who want to follow their path.`\
-https://nytimes.com/2022/04/13/sports/football/nfl-broadcaster-boot-camp.html?searchResultPosition=8
+https://nytimes.com/2022/04/13/sports/football/nfl-broadcaster-boot-camp.html?searchResultPosition=7
 
 **Your Wednesday Briefing**\
 `Russia’s stated aims in Ukraine.`\
-https://nytimes.com/2022/04/13/briefing/putin-donbas-shooting-brooklyn.html?searchResultPosition=9
+https://nytimes.com/2022/04/13/briefing/putin-donbas-shooting-brooklyn.html?searchResultPosition=8
 
 **Frank James was quiet and gruff, his neighbors in Milwaukee said.**\
 `By Dan Simmons`\
-https://nytimes.com/2022/04/12/nyregion/frank-james-was-quiet-and-gruff-his-neighbors-in-milwaukee-said.html?searchResultPosition=10
+https://nytimes.com/2022/04/12/nyregion/frank-james-was-quiet-and-gruff-his-neighbors-in-milwaukee-said.html?searchResultPosition=9
+
+**Megill and Nimmo Get Mets Back on Track With Win**\
+`The win snapped a two-game losing streak for the Mets. The Reds president, meanwhile, had to apologize for some remarks.`\
+https://nytimes.com/2022/04/12/sports/baseball/mets-phillies.html?searchResultPosition=10
 
