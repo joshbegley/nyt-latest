@@ -6,7 +6,7 @@ https://nytimes.com/video/business/100000008302595/yellen-china-russia-sanctions
 `Raising interest rates will pour cold water on an economy many believe is overheated — but at the risk of triggering a downturn.`\
 https://nytimes.com/2022/04/13/opinion/inflation-federal-reserve-ukraine.html?searchResultPosition=2
 
-**Two Top Trump White House Lawyers Meet With Jan. 6 Investigators**\
+**Two Trump White House Lawyers Meet With Jan. 6 Investigators**\
 `Pat A. Cipollone, the former White House counsel, and Patrick F. Philbin, who was his deputy, met separately with the panel after the former president authorized them to do so.`\
 https://nytimes.com/2022/04/13/us/politics/trump-lawyers-jan-6.html?searchResultPosition=3
 
