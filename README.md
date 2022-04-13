@@ -1,5 +1,5 @@
 **Biden calls Russian actions in Ukraine “genocide”**\
-`President Biden said he believes that Russian activity in Ukraine qualifies as genocide, but clarified this was his personal view and not an announcement of a formal determination of genocide by the U.S. government.`\
+`President Biden said he believes that Russian activity in Ukraine qualifies as genocide, but clarified this was his personal view and not an announcement of a formal determination by the U.S. government.`\
 https://nytimes.com/video/us/politics/100000008301441/biden-ukraine-russia-genocide-comments-video.html?searchResultPosition=1
 
 **McKinsey Opened a Door in Its Firewall Between Pharma Clients and Regulators**\
