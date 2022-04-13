@@ -10,8 +10,8 @@ https://nytimes.com/2022/04/13/world/middleeast/israel-art-museum-tel-aviv.html?
 `The video game evokes the hardship and disappointment of the pandemic, but also the hope of human communion.`\
 https://nytimes.com/2022/04/13/technology/personaltech/elden-ring-pandemic.html?searchResultPosition=3
 
-**New Zealand welcomes vaccinated tourists from Australia and relaxes more restrictions.**\
-`The latest steps toward reopening are being taken in a country that has maintained some of the strictest coronavirus restrictions in the world.`\
+**New Zealand welcomes vaccinated tourists from Australia and relaxes more policies.**\
+`The latest steps toward reopening are being taken in a country that has maintained some of the strictest coronavirus precautions in the world.`\
 https://nytimes.com/2022/04/13/world/australia/new-zealand-covid-restrictions-australia.html?searchResultPosition=4
 
 **Weaker oil demand, especially in China, might ease supply crunch caused by sanctions.**\
