@@ -3,7 +3,7 @@
 https://nytimes.com/2022/04/13/sports/baseball/mets-phillies.html?searchResultPosition=1
 
 **Manchester City Still Standing After Taking Atlético’s Best Shots**\
-`City, a team shaped by style, showed it was also skilled in the dark arts as eliminated Atlético Madrid and moved a step closer to its first Champions League title.`\
+`City, a team shaped by style, showed it was also skilled in the dark arts as it eliminated Atlético Madrid and moved a step closer to its first Champions League title.`\
 https://nytimes.com/2022/04/13/sports/soccer/manchester-city-atletico-madrid-champions-league.html?searchResultPosition=2
 
 **Texas Governor Offers Deal to End Snarled Traffic at Border**\
