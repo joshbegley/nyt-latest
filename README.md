@@ -1,5 +1,5 @@
 **Watch Live: Police Deliver Update on Brooklyn Subway Shooting**\
-`The New York City police are working with federal officials to search for the gunman in a mass shooting that injured at least 23 people on a crowded N train in Brooklyn.`\
+`The New York City police hold a press conference on the mass shooting that injured at least 23 people on a crowded N train in Brooklyn.`\
 https://nytimes.com/video/nyregion/100000008301607/police-update-brooklyn-subway-shooting.html?searchResultPosition=1
 
 **The Ukrainian Refugee Crisis Is a Women’s Crisis**\
