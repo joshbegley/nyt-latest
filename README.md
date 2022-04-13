@@ -2,8 +2,8 @@
 `The gleefully raunchy Dominican rapper, who’s collaborated with J Balvin and Rosalía, has been hailed as an iconoclast. Her own goal is simple: Speaking her truth.`\
 https://nytimes.com/2022/04/13/arts/music/tokischa.html?searchResultPosition=1
 
-**The suspect in the subway shooting has been arrested, officials say.**\
-`By Troy Closson`\
+**The suspect in the subway shooting has been captured, officials say.**\
+`The suspect, Frank R. James, was apprehended in the East Village, according to law enforcement.`\
 https://nytimes.com/2022/04/13/nyregion/frank-james-arrested.html?searchResultPosition=2
 
 **As Mamet Returns to Broadway, His Claims on Pedophilia Get Spotlight**\
