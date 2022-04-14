@@ -34,7 +34,7 @@ https://nytimes.com/2022/04/14/sports/soccer/europa-conference-league.html?searc
 `The war in Ukraine has led to familiar, but heightened, problems for women.`\
 https://nytimes.com/2022/04/14/briefing/ukraine-refugees-mothers-children.html?searchResultPosition=9
 
-**Elon Musk offers to buy Twitter for $54.20 a share.**\
-`“Twitter has extraordinary potential. I will unlock it,” the Tesla chief executive said in a regulatory filing.`\
-https://nytimes.com/2022/04/14/business/elon-musk-twitter.html?searchResultPosition=10
+**A Classic New England Rally Is Revived, Minus the Mud**\
+`For four years in the 1950s, the Great American Mountain Rally tested drivers and their cars, on steep slopes and through snow and mud.`\
+https://nytimes.com/2022/04/14/business/great-american-mountain-rally-revival.html?searchResultPosition=10
 
