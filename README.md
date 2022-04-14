@@ -1,5 +1,5 @@
 **He Made an N.H.L. Career Out of Being a Pest. It Isn’t Working in Court.**\
-`Sean Avery, the former Rangers hockey player chose to represent himself in court on Thursday on a misdemeanor charge. The judge advised him not to.`\
+`Sean Avery, the former Rangers hockey player, chose to represent himself in court on Thursday on a misdemeanor charge. The judge advised him not to.`\
 https://nytimes.com/2022/04/14/nyregion/sean-avery-biking-misdemeanor.html?searchResultPosition=1
 
 **With Jackson Headed to Supreme Court, New Judicial Battles Loom**\
