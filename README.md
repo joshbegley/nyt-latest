@@ -24,7 +24,7 @@ https://nytimes.com/interactive/2022/04/14/learning/14MangroveTreesLN.html?searc
 
 **Hiding in Plain Sight, a Soviet-Era Air Defense System Arrives in Ukraine**\
 `Encouraged by the United States, Slovakia “donated” a bulky but effective S-300, hoping to challenge Russian domination of the skies in the war next door.`\
-https://nytimes.com/2022/04/14/world/europe/ukraine-russia-arms-nato-s300-air-defense.html?searchResultPosition=7
+https://nytimes.com/2022/04/14/world/europe/ukraine-russia-nato-s300.html?searchResultPosition=7
 
 **Elaine’s the Musical, From the People Who Drank There**\
 `Three New Yorkers who were regulars at the Upper East Side nightspot hope their show about it can reach Broadway.`\
