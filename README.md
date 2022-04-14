@@ -2,13 +2,13 @@
 `This week’s properties are a five-bedroom house in Franklin Township, N.J., and a three-bedroom in Larchmont, N.Y.`\
 https://nytimes.com/2022/04/14/realestate/housing-market-nyc.html?searchResultPosition=1
 
-**Homes for Sale in New York City**\
-`This week’s properties are in Bushwick, Inwood and the East Village.`\
-https://nytimes.com/2022/04/14/realestate/homes-for-sale-in-new-york-city.html?searchResultPosition=2
-
 **On the Market in the New York Region**\
 `This week’s properties are a five-bedroom house in Franklin Township, N.J., and a three-bedroom in Larchmont, N.Y.`\
-https://nytimes.com/slideshow/2022/04/14/realestate/on-the-market-in-the-new-york-region.html?searchResultPosition=3
+https://nytimes.com/slideshow/2022/04/14/realestate/on-the-market-in-the-new-york-region.html?searchResultPosition=2
+
+**Homes for Sale in New York City**\
+`This week’s properties are in Bushwick, Inwood and the East Village.`\
+https://nytimes.com/2022/04/14/realestate/homes-for-sale-in-new-york-city.html?searchResultPosition=3
 
 **Homes for Sale in New York City**\
 `This week’s properties are in Bushwick, Inwood and the East Village.`\
