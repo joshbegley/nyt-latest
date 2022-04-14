@@ -32,7 +32,7 @@ https://nytimes.com/2022/04/14/movies/alexander-skarsgard-the-northman.html?sear
 
 **Quartz, the business news site, drops its paywall.**\
 `The move runs contrary to what has become the typical business model for digital news outlets.`\
-https://nytimes.com/2022/04/14/business/media/quartz-the-business-news-site-drops-its-paywall.html?searchResultPosition=9
+https://nytimes.com/2022/04/14/business/media/quartz-paywall.html?searchResultPosition=9
 
 **We Always Give Generous Gifts. Why Are My In-Laws So Cheap?**\
 `A reader feels slighted after years of lavishing her sister-in-law’s children with quality presents.`\
