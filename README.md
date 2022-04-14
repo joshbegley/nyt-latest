@@ -16,7 +16,7 @@ https://nytimes.com/2022/04/14/world/asia/japan-toddler-tv-show.html?searchResul
 
 **Shanghai’s food crisis prompts residents in Beijing to stockpile supplies.**\
 `“Things that happened in Shanghai made me panic,” said Li Lilin, a real estate agent in Beijing, adding, “I’m just terrified of starving to death.”`\
-https://nytimes.com/2022/04/14/world/asia/shanghais-food-crisis-prompts-residents-in-beijing-to-stockpile-supplies.html?searchResultPosition=5
+https://nytimes.com/2022/04/14/world/asia/china-food-crisis-beijing.html?searchResultPosition=5
 
 **U.K. Plans to Send Asylum Seekers to Rwanda for Processing**\
 `Some people seeking refuge in Britain would be flown thousands of miles to the central African country, a significant hardening of migration policy.`\
