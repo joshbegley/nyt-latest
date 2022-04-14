@@ -2,7 +2,7 @@
 `What do you think this image is communicating?`\
 https://nytimes.com/2022/04/14/learning/eyeballs.html?searchResultPosition=1
 
-**Simone Leigh, In The World**\
+**Simone Leigh, in The World**\
 `The acclaimed sculptor holds court at the U.S. Pavilion in the Venice Biennale, where she explores the burden of colonial histories and the promise of Black feminism. She begins by thatching the roof.`\
 https://nytimes.com/2022/04/14/arts/design/simone-leigh-venice-biennale-us-pavilion.html?searchResultPosition=2
 
