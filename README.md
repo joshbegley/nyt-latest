@@ -1,10 +1,10 @@
-**Frank Langella Fired from Netflix Show After Misconduct Investigation**\
+**Frank Langella Fired From Netflix Show After Misconduct Investigation**\
 `The actor was removed from his leading role in the mini-series “The Fall of the House of Usher.” The production plans to reshoot the scenes in which he had appeared.`\
 https://nytimes.com/2022/04/14/arts/television/frank-langella-fired-netflix-misconduct.html?searchResultPosition=1
 
 **The Presidents of Columbia, Howard and N.Y.U. Announce Their Retirements**\
 `Lee Bollinger of Columbia, Wayne A.I. Frederick of Howard and Andrew Hamilton of N.Y.U. have had to guide their universities through Covid.`\
-https://nytimes.com/2022/04/14/us/the-presidents-of-columbia-howard-and-nyu-announce-their-retirements.html?searchResultPosition=2
+https://nytimes.com/2022/04/14/us/columbia-howard-nyu-presidents-retirements.html?searchResultPosition=2
 
 **British Militant Convicted for Role in Deaths of Americans**\
 `The verdict capped a two-week trial that featured the testimony of former captives who detailed relentless beatings, waterboarding and murder by an Islamic State cell known as the Beatles.`\
