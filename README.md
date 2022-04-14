@@ -34,7 +34,7 @@ https://nytimes.com/video/us/100000008304305/new-mexico-mcbride-wildfire.html?se
 `Plus Elon Musk’s bid for Twitter and Britain’s plan to resettle asylum seekers … in Rwanda.`\
 https://nytimes.com/2022/04/14/briefing/your-friday-briefing-russias-flagship-sinks.html?searchResultPosition=9
 
-**Elon Musk’s Ultimate Twitter Troll: A Takeover Bid**\
+**Elon Musk Knows Exactly What He’s Doing**\
 `The billionaire could be at the helm of the internet’s loudest megaphone.`\
 https://nytimes.com/2022/04/14/opinion/musk-twitter-agrawal.html?searchResultPosition=10
 
