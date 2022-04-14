@@ -2,7 +2,7 @@
 `Meet five inspiring trailblazers as they reflect on their journeys to success — and the time and drive needed to get them there.`\
 https://nytimes.com/paidpost/audemars-piguet/icons-arent-born-theyre-made.html?searchResultPosition=1
 
-**China’s economy ipays a price as lockdowns restrict nearly a third of its population.**\
+**China’s economy pays a price as lockdowns restrict nearly a third of its population.**\
 `The country’s zero-tolerance policy for coronavirus cases has analysts downgrading China economic growth forecasts.`\
 https://nytimes.com/2022/04/14/business/china-lockdowns-economy.html?searchResultPosition=2
 
