@@ -16,7 +16,7 @@ https://nytimes.com/2022/04/14/world/asia/shanghais-food-crisis-prompts-resident
 
 **U.K. Plans to Send Asylum Seekers to Rwanda for Processing**\
 `Some people seeking refuge in Britain would be flown thousands of miles to the central African country, a significant hardening of migration policy.`\
-https://nytimes.com/2022/04/14/world/europe/uk-rwanda-asylum-seekers-processing.html?searchResultPosition=5
+https://nytimes.com/2022/04/14/world/europe/uk-rwanda-asylum-seekers.html?searchResultPosition=5
 
 **Vocabulary in Context: Mangrove Trees**\
 `Test your vocabulary and reading comprehension with this quiz based on the Times article "Facing Disastrous Floods, They Turned to Mangrove Trees for Protection."`\
