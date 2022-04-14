@@ -14,8 +14,8 @@ https://nytimes.com/2022/04/14/opinion/nursing-homes-crisis.html?searchResultPos
 `Kevin Rudd’s “The Avoidable War” examines the possibilities of a disaster and the ways China and America can avert it.`\
 https://nytimes.com/2022/04/14/books/review/the-avoidable-war-kevin-rudd.html?searchResultPosition=4
 
-**How Would a Twitter Takeover Work?**\
-`Here's what would happen next with Elon Musk's bid to buy Twitter.`\
+**How Would a Twitter Takeover Work? **\
+`Here's what would happen next with Elon Musk's bid to buy Twitter. `\
 https://nytimes.com/interactive/2022/04/14/business/elon-musk-twitter-explain.html?searchResultPosition=5
 
 **‘To Olivia’ Review: Roald Dahl and Patricia Neal Cope With Tragedy**\
