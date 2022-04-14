@@ -30,7 +30,7 @@ https://nytimes.com/2022/04/14/style/anna-sawai-goes-from-j-pop-star-to-hollywoo
 `Tell us about your experience with automated tools meant to detect suspicious student behavior.`\
 https://nytimes.com/2022/04/14/technology/student-cheating-software.html?searchResultPosition=8
 
-**Don’t Kid Yourself. Republicans Still Live in Fear of Trump’s Wrath**\
+**Don’t Kid Yourself. Republicans Still Live in Fear of Trump’s Wrath.**\
 `He rages. McConnell trembles. We all lose.`\
 https://nytimes.com/2022/04/14/opinion/trump-republicans-mcconnell.html?searchResultPosition=9
 
