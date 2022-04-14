@@ -1,6 +1,6 @@
 **Can an Art History Frame Help Expand the NFT Market?**\
 `An upcoming auction by Sotheby’s is the latest attempt to recast crypto collectibles as an artistic evolution and perhaps draw interest from a wider circle of collectors.`\
-https://nytimes.com/2022/04/14/arts/nft-art-market.html?searchResultPosition=1
+https://nytimes.com/2022/04/14/arts/design/nft-art-market.html?searchResultPosition=1
 
 **New York City to Expand Gifted and Talented Program but Scrap Test**\
 `The mayor unveiled a plan to add seats in the highly selective program for both kindergartners and third graders and to permanently replace an admissions test with universal screening.`\
