@@ -1,5 +1,5 @@
-**Marvin Chomsky, Director of Historical TV Dramas, Dies at 92**\
-`A four-time Emmy Award winner, he directed the landmark mini-series “Roots” and “Holocaust” and the movie “Inside the Third Reich.”`\
+**Marvin Chomsky, Director of ‘Roots’ and ‘Holocaust,’ Dies at 92**\
+`A four-time Emmy Award winner, he directed landmark historical TV dramas and the movie “Inside the Third Reich.”`\
 https://nytimes.com/2022/04/14/arts/television/marvin-chomsky-dead.html?searchResultPosition=1
 
 **Ed Buck Is Sentenced to 30 Years for Fatally Drugging 2 Men**\
