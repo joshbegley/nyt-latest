@@ -10,7 +10,7 @@ https://nytimes.com/2022/04/13/world/europe/us-official-kyiv-ukraine.html?search
 `Corrections that appeared in print on Thursday, April 14, 2022.`\
 https://nytimes.com/2022/04/13/pageoneplus/corrections-april-14-2022.html?searchResultPosition=3
 
-**The Solitary Journey of Frank James, Who Wanted to ‘Watch People Die’**\
+**The Solitary Journey of a Man Who Wanted to ‘Watch People Die’**\
 `Interviews, arrest records and hours of his own words on YouTube paint an incomplete but troubling picture of the man arrested in Tuesday’s subway shooting.`\
 https://nytimes.com/2022/04/13/nyregion/frank-james-subway-shooting.html?searchResultPosition=4
 
