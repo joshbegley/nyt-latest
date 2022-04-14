@@ -26,15 +26,15 @@ https://nytimes.com/2022/04/14/nyregion/edward-mangano-bribery-sentencing.html?s
 `The flagship of Russia’s Black Sea fleet was damaged by a fire or a Ukrainian missile.`\
 https://nytimes.com/2022/04/14/briefing/russia-ukraine-war-flagship-mariupol.html?searchResultPosition=7
 
-**Russia Hits Setbacks, as Flagship Sinks and E.U. Mulls Oil Ban**\
-`Ukraine said it hit a Russian warship in the Black Sea with its own missiles, a damaging blow to Moscow, symbolically and militarily, if its claim is confirmed.`\
-https://nytimes.com/2022/04/14/world/europe/russia-warship-eu-oil.html?searchResultPosition=8
-
 **Deadly Wildfire Spreads in New Mexico**\
 `The McBride fire began Tuesday afternoon in Ruidoso, N.M., a village in the Sierra Blanca mountains. Officials said at least two people had been killed and more than 5,000 acres had burned.`\
-https://nytimes.com/video/us/100000008304305/new-mexico-mcbride-wildfire.html?searchResultPosition=9
+https://nytimes.com/video/us/100000008304305/new-mexico-mcbride-wildfire.html?searchResultPosition=8
 
 **Your Friday Briefing: Russia’s Flagship Sinks**\
 `Plus Elon Musk’s bid for Twitter and Britain’s plan to resettle asylum seekers … in Rwanda.`\
-https://nytimes.com/2022/04/14/briefing/your-friday-briefing-russias-flagship-sinks.html?searchResultPosition=10
+https://nytimes.com/2022/04/14/briefing/your-friday-briefing-russias-flagship-sinks.html?searchResultPosition=9
+
+**Elon Musk’s Ultimate Twitter Troll: A Takeover Bid**\
+`The billionaire could be at the helm of the internet’s loudest megaphone.`\
+https://nytimes.com/2022/04/14/opinion/musk-twitter-agrawal.html?searchResultPosition=10
 
