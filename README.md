@@ -26,13 +26,13 @@ https://nytimes.com/interactive/2022/04/14/learning/14MangroveTreesLN.html?searc
 `Encouraged by the United States, Slovakia “donated” a bulky but effective S-300, hoping to challenge Russian domination of the skies in the war next door.`\
 https://nytimes.com/2022/04/14/world/europe/ukraine-russia-nato-s300.html?searchResultPosition=7
 
-**Elaine’s the Musical, From the People Who Drank There**\
-`Three New Yorkers who were regulars at the Upper East Side nightspot hope their show about it can reach Broadway.`\
-https://nytimes.com/2022/04/14/nyregion/everyone-comes-to-elaines-musical.html?searchResultPosition=8
-
 **Gopuff Does Deliveries in 30 Minutes or Less. It’s Also Buying Time for Itself.**\
 `The $15 billion rapid-delivery start-up decided to do business differently from rivals like Instacart. A changing environment is testing its model.`\
-https://nytimes.com/2022/04/14/technology/gopuff-rapid-deliveries-challenges.html?searchResultPosition=9
+https://nytimes.com/2022/04/14/technology/gopuff-delivery.html?searchResultPosition=8
+
+**Elaine’s the Musical, From the People Who Drank There**\
+`Three New Yorkers who were regulars at the Upper East Side nightspot hope their show about it can reach Broadway.`\
+https://nytimes.com/2022/04/14/nyregion/everyone-comes-to-elaines-musical.html?searchResultPosition=9
 
 **He Created the First Known Movie. Then He Vanished.**\
 `In his new book, “The Man Who Invented Motion Pictures,” Paul Fischer investigates the life — and mysterious disappearance — of Louis Le Prince.`\
