@@ -34,7 +34,7 @@ https://nytimes.com/2022/04/15/sports/football/usfl-faq.html?searchResultPositio
 `In “Now Do You Know Where You Are,” the poet Dana Levin learns to write again and comes to terms with personal and political trauma.`\
 https://nytimes.com/2022/04/15/books/review/now-do-you-know-wjhere-you-are-dana-levin.html?searchResultPosition=9
 
-**He Never Existed. Here Are His Selected Poems.**\
-`In “Madness,” the poet Gabriel Ojeda-Sagué has assembled a career retrospective for a writer he invented from whole cloth.`\
-https://nytimes.com/2022/04/15/books/madness-gabriel-ojeda-sague.html?searchResultPosition=10
+**A Poet Looks at the End of the World, and Reaches for Hope**\
+`In “Canopy,” her seventh collection, Linda Gregerson mourns for humanity and the earth even as she clings to signs of personal connection.`\
+https://nytimes.com/2022/04/15/books/review/canopy-linda-gregerson.html?searchResultPosition=10
 
