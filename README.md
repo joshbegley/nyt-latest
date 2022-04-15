@@ -15,7 +15,7 @@ https://nytimes.com/2022/04/15/fashion/leggings-for-men.html?searchResultPositio
 https://nytimes.com/2022/04/15/movies/everything-everywhere-all-at-once-interviews.html?searchResultPosition=4
 
 **‘Call Everyone Off’: Texts to Meadows Trace Republicans’ Alarm Before Jan. 6**\
-`Senator Mike Lee and Representative Chip Roy, once backers of President Donald J. Trump’s claims of a stolen election, became convinced they were groundless and urged his top aide to change course.`\
+`Senator Mike Lee and Representative Chip Roy, once backers of President Donald J. Trump’s claims of a stolen election, eventually urged his top aide to change course.`\
 https://nytimes.com/2022/04/15/us/politics/mike-lee-chip-roy-jan-6-texts.html?searchResultPosition=5
 
 **A New Covid Breath Test Holds Promise, but Wide Use May Still Be Far Off**\
