@@ -4,7 +4,7 @@ https://nytimes.com/2022/04/14/us/politics/stephen-miller-january-6-committee.ht
 
 **Honoring the Past by Focusing on the Future**\
 `Named after a team from the Negro leagues, the Nashville Stars give young players, Black and white, passion and purpose in the game.`\
-https://nytimes.com/2022/04/14/sports/baseball/honoring-the-past-by-focusing-on-the-future.html?searchResultPosition=2
+https://nytimes.com/2022/04/14/sports/baseball/nashville-stars.html?searchResultPosition=2
 
 **Review: ‘Cyrano de Bergerac,’ Now Noseless and Drunk on Words**\
 `James McAvoy gives a ravishing performance, without benefit of prosthetics or props, in a new adaptation alive with the love of language.`\
