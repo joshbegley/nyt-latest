@@ -1,6 +1,6 @@
 **Mayor Adams Adds More Spots in Gifted Programs**\
 `A hundred places for kindergartners and 1,000 for third graders will be added in an attempt to make the program more equitable.`\
-https://nytimes.com/2022/04/15/nyregion/mayor-adams-adds-more-spots-in-gifted-programs.html?searchResultPosition=1
+https://nytimes.com/2022/04/15/nyregion/eric-adams-gifted-talented.html?searchResultPosition=1
 
 **Israeli-Palestinian Clashes Erupt in Jerusalem as Holidays Converge**\
 `The violence broke out at the Aqsa Mosque compound, known to Jews as the Temple Mount, on the first day of a rare concurrence of Ramadan, Passover and Easter.`\
