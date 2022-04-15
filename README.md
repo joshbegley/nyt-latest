@@ -3,7 +3,7 @@
 https://nytimes.com/2022/04/15/world/middleeast/al-aqsa-mosque-clashes.html?searchResultPosition=1
 
 **Kim Jong-un Gives North Korea’s Most Famous TV Anchor a Luxury Home**\
-`Ri Chun-hee, who delivers the news with a soaring, bombastic tenor, received a two-story apartment from the country’s leader, apparently for her loyalty to his party.`\
+`Ri Chun-hee, who delivers the news with a soaring, bombastic tenor, received a two-story apartment in a riverside complex from the country’s leader, apparently for her loyalty.`\
 https://nytimes.com/2022/04/15/world/asia/kim-jong-un-ri-chun-hee-luxury-home.html?searchResultPosition=2
 
 **‘Choose or Die’ Review: Press Start. Or Not.**\
