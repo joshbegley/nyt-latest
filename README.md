@@ -1,5 +1,5 @@
 **Tanzania’s First Female President Wants to Bring Her Nation in From the Cold**\
-`Samia Suluhu Hassan became the only female head of state in Africa when her predecessor suddenly died. She is setting a new course.`\
+`Samia Suluhu Hassan became the only female head of government in Africa when her predecessor suddenly died. She is setting a new course.`\
 https://nytimes.com/2022/04/15/world/africa/tanzania-female-president.html?searchResultPosition=1
 
 **Growing Religious Fervor on the Right and the Illusions Shattered by Putin’s War: The Week in Narrated Articles**\
