@@ -1,40 +1,40 @@
+**Dressage Coach Acquitted of Shooting Student by Reason of Insanity**\
+`Michael Barisone, an Olympic equestrian coach, was found not guilty after arguing in court that he had been subjected to abuse before shooting his riding student.`\
+https://nytimes.com/2022/04/15/sports/olympics/equestrian-coach-aquitted-insanity.html?searchResultPosition=1
+
+**John Zaritsky, Unflinching Oscar-Winning Documentarian, Dies at 78**\
+`He took on uncomfortable subjects like rape, cancer and assisted suicide. His account of a student’s murder on a cross-country trip won a 1983 Academy Award.`\
+https://nytimes.com/2022/04/15/obituaries/john-zaritsky-unflinching-oscar-winning-documentarian-dies-at-78.html?searchResultPosition=2
+
+**Warship Partially Sinks at Naval Park in Buffalo**\
+`The destroyer The Sullivans suffered a breach and began taking on water at the Buffalo and Erie County Naval & Military Park, the authorities said. The cause of the incident was unknown.`\
+https://nytimes.com/video/us/100000008306460/navy-ship-buffalo-sinking.html?searchResultPosition=3
+
 **How to Tackle Tough Spring Cleaning Projects**\
 `Expert-recommended advice for cleaning your refrigerator, windows and carpets.`\
-https://nytimes.com/interactive/2022/04/15/smarter-living/wirecutter/spring-cleaning-tips.html?searchResultPosition=1
+https://nytimes.com/interactive/2022/04/15/smarter-living/wirecutter/spring-cleaning-tips.html?searchResultPosition=4
 
 **Mike Bossy, a Stanley Cup Hero, Was More Appreciated Than He Knew**\
 `The thoughtful, soft-spoken star of four Islanders championship teams has died at 65.`\
-https://nytimes.com/2022/04/15/sports/hockey/mike-bossy-islanders.html?searchResultPosition=2
+https://nytimes.com/2022/04/15/sports/hockey/mike-bossy-islanders.html?searchResultPosition=5
 
 **Sidney Altman, Who Stumbled on a Breakthrough in Genetics, Dies at 82**\
 `He shared a Nobel for finding that RNA was not just a carrier of genetic information but could also trigger life-changing chemical reactions in cells.`\
-https://nytimes.com/2022/04/15/science/sidney-altman-dead.html?searchResultPosition=3
+https://nytimes.com/2022/04/15/science/sidney-altman-dead.html?searchResultPosition=6
 
 **Your Friday Evening Briefing**\
 `Here’s what you need to know at the end of the day.`\
-https://nytimes.com/2022/04/15/briefing/ukraine-twitter-poetry.html?searchResultPosition=4
+https://nytimes.com/2022/04/15/briefing/ukraine-twitter-poetry.html?searchResultPosition=7
 
 **Tom Seaver’s Statue Stands 10 Feet Tall. Just Like Seaver.**\
 `The Mets finally gave the ultimate honor to their franchise icon, creating a statue worthy of the Hall of Fame pitcher.`\
-https://nytimes.com/2022/04/15/sports/baseball/tom-seaver-statue-mets.html?searchResultPosition=5
+https://nytimes.com/2022/04/15/sports/baseball/tom-seaver-statue-mets.html?searchResultPosition=8
 
 **Ann Hutchinson Guest, Who Fixed Dance on Paper, Dies at 103**\
 `She was a leading advocate of and expert on dance notation, helping to do for choreographed works what a score does for music.`\
-https://nytimes.com/2022/04/15/arts/dance/ann-hutchinson-guest-dead.html?searchResultPosition=6
+https://nytimes.com/2022/04/15/arts/dance/ann-hutchinson-guest-dead.html?searchResultPosition=9
 
 **The Horrors of Russian Occupation**\
 `Disturbing stories are emerging of the terror inflicted on Ukrainian civilians.`\
-https://nytimes.com/2022/04/15/briefing/russia-ukraine-war-occupation-zelensky.html?searchResultPosition=7
-
-**Shanghai Residents Clash With Police Over Covid-19 Measures**\
-`The police in Shanghai beat back protesters who gathered to oppose the use of their apartment complex as an isolation facility, footage obtained by The Associated Press and Reuters shows.`\
-https://nytimes.com/video/world/asia/100000008306195/shanghai-china-covid-protest.html?searchResultPosition=8
-
-**Can Men Wear Leggings, Too?**\
-`A cyclist wonders whether his stretchy sporting gear could have a place in his everyday wardrobe.`\
-https://nytimes.com/2022/04/15/fashion/leggings-for-men.html?searchResultPosition=9
-
-**How ‘Everything Everywhere All at Once’ Helps to Heal Generational Trauma**\
-`For me, it was a scene about two rocks. For the actress Stephanie Hsu, it was taking her mom to the Los Angeles premiere.`\
-https://nytimes.com/2022/04/15/movies/everything-everywhere-all-at-once-interviews.html?searchResultPosition=10
+https://nytimes.com/2022/04/15/briefing/russia-ukraine-war-occupation-zelensky.html?searchResultPosition=10
 
