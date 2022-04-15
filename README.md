@@ -1,5 +1,5 @@
 **A White Author’s Book About Black Feminism Was Pulled After a Social Media Outcry**\
-`The book “Bad and Boujee” centers on Black women’s experience, but was written by a white professor, and critics said it was flawed in its execution.`\
+`The book “Bad and Boujee” centers on Black women’s experience, but critics said it was written by a white professor and was flawed in its execution.`\
 https://nytimes.com/2022/04/15/arts/book-pulled-black-white.html?searchResultPosition=1
 
 **The War in Ukraine Is Upending Biden’s Agenda at Home**\
