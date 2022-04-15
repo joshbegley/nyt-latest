@@ -10,7 +10,7 @@ https://nytimes.com/2022/04/15/arts/television/liz-sheridan-who-played-jerry-sei
 `Valerie Biden Owens is one of a handful of presidential sisters who have taken the opportunity to dish on their brothers.`\
 https://nytimes.com/2022/04/15/us/politics/valerie-biden-owens-tell-all-books.html?searchResultPosition=3
 
-**Girding for New Battle, Russia Warns U.S. on Arming Ukraine**\
+**Girding for New Battle, Russia Warns U.S. on Advanced Weapons for Ukraine**\
 `The warnings were regarded as a sign that American military assistance to Ukraine was compounding problems for the Russians in their two-month-old invasion.`\
 https://nytimes.com/2022/04/15/world/europe/ukraine-russia-us-weapons-warning.html?searchResultPosition=4
 
