@@ -22,8 +22,8 @@ https://nytimes.com/2022/04/15/arts/television/better-call-saul-recap-season-5.h
 `Fried chicken and pancakes would make for a great Easter brunch changeup.`\
 https://nytimes.com/2022/04/15/dining/what-to-cook-this-weekend.html?searchResultPosition=6
 
-**More Than 100 Palestinians Injured in Clashes at Jerusalem Holy Site**\
-`Violence erupted between Israeli riot police and Palestinians at the Aqsa Mosque compound, known to Jews as the Temple Mount, on the first day of a rare convergence of Ramadan, Easter and Passover.`\
+**More Than 100 Palestinians Injured in Violence at Jerusalem Holy Site**\
+`Dozens of people were injured in fighting between Israeli riot police and Palestinians at the Aqsa Mosque compound, known to Jews as the Temple Mount, on the first day of a rare convergence of Ramadan, Easter and Passover.`\
 https://nytimes.com/video/world/middleeast/100000008305283/israeli-palestinian-clashes-al-aqsa.html?searchResultPosition=7
 
 **The Best of Late Night This Week 🌙**\
