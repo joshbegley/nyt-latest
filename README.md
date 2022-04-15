@@ -1,6 +1,6 @@
 **Twitter Is Expected to Counter a Musk Takeover**\
 `The company appears intent on trying to fend off the billionaire’s bid to buy it in a deal that could be worth more than $40 billion.`\
-https://nytimes.com/2022/04/15/business/twitter-poison-pill-elon-musk.html?searchResultPosition=1
+https://nytimes.com/2022/04/15/business/dealbook/twitter-poison-pill-elon-musk.html?searchResultPosition=1
 
 **What Britain’s Deal With Rwanda Means for Its Asylum System**\
 `Prime Minister Boris Johnson announced a plan to send some of those seeking refuge to the central African country. What effect would the change have?`\
