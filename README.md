@@ -1,4 +1,4 @@
-**‘Thank You for Not Killing Us.’**\
+**‘Thank You for Not Killing Us’**\
 `An ordeal at a mental health facility in Ukraine illuminated the horrors of the Russian occupation in the areas around Kyiv.`\
 https://nytimes.com/2022/04/15/world/europe/ukraine-russia-occupation.html?searchResultPosition=1
 
