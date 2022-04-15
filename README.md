@@ -2,13 +2,13 @@
 `Daniel Raymon rustles up a real challenge.`\
 https://nytimes.com/2022/04/14/crosswords/variety-puns-and-anagrams.html?searchResultPosition=1
 
-**Kisses and Hugs**\
-`Trenton Charlson outfoxes us by thinking outside the box, without pushing the envelope.`\
-https://nytimes.com/2022/04/14/crosswords/daily-puzzle-2022-04-15.html?searchResultPosition=2
-
 **Review: In ‘American Buffalo,’ Grift Is the Coin of the Realm**\
 `Sam Rockwell, Laurence Fishburne and Darren Criss star in an electric revival of the David Mamet play about capitalism in a junk shop.`\
-https://nytimes.com/2022/04/14/theater/american-buffalo-review.html?searchResultPosition=3
+https://nytimes.com/2022/04/14/theater/american-buffalo-review.html?searchResultPosition=2
+
+**Kisses and Hugs**\
+`Trenton Charlson outfoxes us by thinking outside the box, without pushing the envelope.`\
+https://nytimes.com/2022/04/14/crosswords/daily-puzzle-2022-04-15.html?searchResultPosition=3
 
 **Jan. 6 Panel Presses Stephen Miller on Whether Trump Sought to Incite Crowd**\
 `In about eight hours of questioning, investigators pressed the former White House aide on former President Donald J. Trump’s use of “we” in his speech to supporters before the riot.`\
