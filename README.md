@@ -1,4 +1,4 @@
-**Girding for New Battle, Russia Warns U.S. to Stop Arming Ukraine**\
+**Girding for New Battle, Russia Warns U.S. on Arming Ukraine**\
 `The warnings were regarded as a sign that American military assistance to Ukraine was compounding problems for the Russians in their two-month-old invasion.`\
 https://nytimes.com/2022/04/15/world/europe/ukraine-russia-us-weapons-warning.html?searchResultPosition=1
 
