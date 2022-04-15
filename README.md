@@ -3,7 +3,7 @@
 https://nytimes.com/2022/04/15/health/covid-breathalyzer-test.html?searchResultPosition=1
 
 **Biden Plans to Open More Public Land to Drilling**\
-`The president is under pressure to bring down gas prices, but any new drilling would be years away. The fees that companies pay to drill would rise sharply.`\
+`The president is under pressure to bring down gas prices, but any new supply would be years away. The fees that companies pay to drill would rise sharply.`\
 https://nytimes.com/2022/04/15/climate/biden-drilling-oil-leases.html?searchResultPosition=2
 
 **Woman Dies After Trying to Scale Border Fence Into Arizona**\
