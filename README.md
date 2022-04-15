@@ -16,7 +16,7 @@ https://nytimes.com/2022/04/15/travel/qatar-world-cup.html?searchResultPosition=
 
 **‘A Magician Up There’: How it Feels to Watch Ja Morant Fly**\
 `An aerial artist. A skateboarder. A BMX rider. A skydiving instructor. They all see parallels between what they do and what Morant does when he dunks in the N.B.A.`\
-https://nytimes.com/2022/04/15/sports/basketball/a-magician-up-there-how-it-feels-to-watch-ja-morant-fly.html?searchResultPosition=5
+https://nytimes.com/2022/04/15/sports/basketball/ja-morant-nba-playoffs.html?searchResultPosition=5
 
 **Struggling Louisiana Neighborhood Sees New Highway as a Perilous Exit**\
 `Residents of Lafayette are wary of a project that has dragged on for decades, but they believe that their community — where vehicles hit buildings and pedestrians — has few options.`\
