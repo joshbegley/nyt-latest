@@ -4,7 +4,7 @@ https://nytimes.com/2022/04/15/world/europe/ukraine-russia-us-weapons-warning.ht
 
 **A White Author’s Book About Black Feminism Was Pulled After a Social Media Outcry**\
 `The book “Bad and Boujee” centers on Black women’s experience, but critics said it was written by a white professor and was flawed in its execution.`\
-https://nytimes.com/2022/04/15/arts/book-pulled-black-white.html?searchResultPosition=2
+https://nytimes.com/2022/04/15/arts/jennifer-buck-bad-and-boujee-book-pulled.html?searchResultPosition=2
 
 **The War in Ukraine Is Upending Biden’s Agenda at Home**\
 `President Biden’s domestic ambitions have gotten smaller as the war diverts the attention of the White House and contributes to rising prices.`\
