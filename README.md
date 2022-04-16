@@ -1,5 +1,5 @@
 **Activision tells regulators it will cooperate with insider trading investigation.**\
-`The company received requests for information that appeared to relate to investigations into whether investors who knew Bobby Kotick, Activision’s chief executive, traded Activision stock a deal with Microsoft was made public.`\
+`The company received requests for information that appeared to relate to investigations into whether investors who knew Bobby Kotick, the chief executive, traded Activision stock before a deal with Microsoft was made public.`\
 https://nytimes.com/2022/04/15/technology/activision-sec-insider-trading.html?searchResultPosition=1
 
 **Before Charges in a Subway Attack, Decades of Disputes and Petty Offenses**\
