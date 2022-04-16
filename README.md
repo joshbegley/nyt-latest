@@ -1,5 +1,5 @@
-**Police Respond to Reports of Gunfire at South Carolina Mall**\
-`The police said there were injuries at the Columbiana Centre mall in Columbia, S.C. Additional details were not immediately available.`\
+**10 People Wounded in South Carolina Mall Shooting, Police Say**\
+`The police said that the shooting, at the Columbiana Centre mall in Columbia, S.C., was not random and that three people were being detained.`\
 https://nytimes.com/2022/04/16/us/columbiana-mall-shooting-sc.html?searchResultPosition=1
 
 **Missiles Hit Central Kharkiv**\
