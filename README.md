@@ -1,6 +1,6 @@
 **The Moskva’s sinking inspires one of Ukraine’s most popular rockers.**\
 `Vadym Krasnooky, whose band Mad Heads had stopped performing when the war began, said his new song is meant to ‘channel all this hate.’`\
-https://nytimes.com/2022/04/16/world/europe/the-moskvas-sinking-inspires-one-of-ukraines-most-popular-rockers.html?searchResultPosition=1
+https://nytimes.com/2022/04/16/world/europe/moskva-sinking-vadym-krasnooky.html?searchResultPosition=1
 
 **Art Rupe, Who Brought Rhythm and Blues to the Mainstream, Dies at 104**\
 `As the founder of the independent label Specialty Records, he helped set the table for the rock ’n’ roll era by signing performers like Little Richard.`\
