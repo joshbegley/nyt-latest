@@ -2,7 +2,7 @@
 `The strikes seemed aimed at hampering Ukraine’s war fighting capacity as the conflict shifts to eastern Donbas region, and at responding to the sinking of a Russian warship.`\
 https://nytimes.com/2022/04/16/world/europe/russia-missiles-ukraine-kyiv-lviv-neptune.html?searchResultPosition=1
 
-**A Russian Default is Looming. A Bitter Fight Is Likely to Follow.**\
+**A Russian Default Is Looming. A Bitter Fight Is Likely to Follow.**\
 `The ultimate arbiter of a sovereign default is an open question but markets may have the final word.`\
 https://nytimes.com/2022/04/16/business/russia-debt-default.html?searchResultPosition=2
 
