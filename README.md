@@ -8,7 +8,7 @@ https://nytimes.com/2022/04/15/us/politics/republicans-accusations-women.html?se
 
 **Prized Russian Ship Was Hit by Missiles, U.S. Officials Say**\
 `The sinking of the Moskva was a major blow to the Russian fleet and the most significant combat loss for any navy in decades.`\
-https://nytimes.com/2022/04/15/us/politics/russia-moskva-ship-ukraine.html?searchResultPosition=3
+https://nytimes.com/2022/04/15/us/politics/russia-moskva-ship-sunk-ukraine.html?searchResultPosition=3
 
 **Wisconsin Supreme Court Approves Republican-Drawn Legislative Maps**\
 `The court had approved state maps drawn by the Democratic governor, but the U.S. Supreme Court struck down that decision, citing the federal Voting Rights Act.`\
