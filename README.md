@@ -6,7 +6,7 @@ https://nytimes.com/2022/04/16/us/columbiana-mall-shooting-sc.html?searchResultP
 `Officials said at least two civilians were killed and 18 others were wounded in a missile strike in Kharkiv, Ukraine, that destroyed homes and shops.`\
 https://nytimes.com/video/world/europe/100000008306939/kharkiv-ukraine-missile-strike-russia.html?searchResultPosition=2
 
-**Liverpool Beats City as End Game Shifts to Risk vs. Reward**\
+**Liverpool Beats City as Endgame Shifts to Risk vs. Reward**\
 `Liverpool advanced to the F.A. Cup final by beating its Champions League rival at Wembley. But for both teams, every choice matters now.`\
 https://nytimes.com/2022/04/16/sports/soccer/liverpool-manchester-city-fa-cup.html?searchResultPosition=3
 
