@@ -11,7 +11,7 @@ https://nytimes.com/2022/04/16/business/elon-musk-politics-twitter.html?searchRe
 https://nytimes.com/2022/04/16/crosswords/daily-puzzle-2022-04-17.html?searchResultPosition=4
 
 **10 People Wounded in South Carolina Mall Shooting, Police Say**\
-`The police said that the shooting, at the Columbiana Centre mall in Columbia, S.C., was not random and that three people were being detained.`\
+`The police said that the shooting, at the Columbiana Centre mall in Columbia, S.C., was not random and that three people had been detained.`\
 https://nytimes.com/2022/04/16/us/columbiana-mall-shooting-sc.html?searchResultPosition=5
 
 **Missiles Hit Central Kharkiv**\
