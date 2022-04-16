@@ -1,5 +1,5 @@
 **Macron Vows Ambitious Green Policies, Wooing the Left in Runoff**\
-`France’s president is trying to tap into the country’s large pool of left-wing voters, but many are hesitant to back him.,`\
+`France’s president is trying to tap into the country’s large pool of left-wing voters, but many are hesitant to back him.`\
 https://nytimes.com/2022/04/16/world/europe/french-election-macron-le-pen.html?searchResultPosition=1
 
 **On the Scene: At a Passover Seder in Krakow**\
