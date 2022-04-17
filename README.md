@@ -1,6 +1,6 @@
 **Death Toll From Pakistani Airstrike Rises to 45, Afghan Officials Say**\
 `The airstrikes in eastern Afghanistan early Saturday morning escalated already simmering tensions between the two countries.`\
-https://nytimes.com/2022/04/17/world/asia/death-toll-from-pakistani-airstrike-rises-to-45-afghan-officials-say.html?searchResultPosition=1
+https://nytimes.com/2022/04/17/world/asia/afghanistan-airstrikes-pakistan.html?searchResultPosition=1
 
 **Israeli Police Arrest 18 Palestinians Near Holy Site in Jerusalem**\
 `The violence broke out after the Israeli police in Jerusalem, seeking to prevent contact between Muslims and Jews, blocked Muslim worshipers for hours from entering the Aqsa Mosque compound, known to Jews as Temple Mount.`\
