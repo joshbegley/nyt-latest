@@ -2,7 +2,7 @@
 `A talk-show host, who usually reflects the Kremlin’s line, questioned how the ship was lost.`\
 https://nytimes.com/2022/04/17/world/europe/russia-ship-sinking-moskva.html?searchResultPosition=1
 
-**Worshipers fill pews in Lviv on Easter Sunday for services that remember Ukraine’s war.**\
+**Worshipers filled pews in Lviv on Easter Sunday.**\
 `Commemorations in Ukraine’s small Roman Catholic community combined ancient traditions with the reality of the war.`\
 https://nytimes.com/2022/04/17/world/europe/lviv-easter-sunday-ukraine-russia-war.html?searchResultPosition=2
 
