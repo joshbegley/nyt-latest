@@ -1,6 +1,6 @@
 **Days after the sinking of a Russian warship, questions linger.**\
 `A talk-show host, who usually reflects the Kremlin’s line, questioned how the ship was lost.`\
-https://nytimes.com/2022/04/17/world/europe/russia-ship-sinking-questions.html?searchResultPosition=1
+https://nytimes.com/2022/04/17/world/europe/russia-ship-sinking-moskva.html?searchResultPosition=1
 
 **Worshipers fill pews in Lviv on Easter Sunday for services that remember Ukraine’s war.**\
 `Commemorations in Ukraine’s small Roman Catholic community combined ancient traditions with the reality of the war.`\
