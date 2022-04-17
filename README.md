@@ -2,7 +2,7 @@
 `The Japanese dance artist, joined by four collaborators, brings her evolving “Duet Project: Distance Is Malleable” to N.Y.U. Skirball.`\
 https://nytimes.com/2022/04/17/arts/dance/review-eiko-the-duets-project.html?searchResultPosition=1
 
-**Storm Expected to Bring Heavy, Wet Snow to Central New York**\
+**Storm Expected to Bring Heavy, Wet Snow to Northeast**\
 `Though there is uncertainty about the storm’s track, a forecaster said “pretty impactful weather” could knock out power and make for sloppy commutes.`\
 https://nytimes.com/2022/04/17/us/northeast-snow-storm-ny.html?searchResultPosition=2
 
