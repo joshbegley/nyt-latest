@@ -18,7 +18,7 @@ https://nytimes.com/2022/04/17/learning/whats-going-on-in-this-picture-april-25-
 `The Brooklyn shooting and other headline-making violence are part of a broader trend.`\
 https://nytimes.com/2022/04/17/briefing/violent-crime-ukraine-war-week-ahead.html?searchResultPosition=5
 
-**The Sixers Get a Win, But Not a Chance to Exhale**\
+**The Sixers Get a Win, but Not a Chance to Exhale**\
 `The Game 1 victory over the Raptors won’t ease the pressure on Joel Embiid and James Harden, who have played well but come up short in the end before.`\
 https://nytimes.com/2022/04/17/sports/basketball/sixers-raptors-harden-maxey.html?searchResultPosition=6
 
