@@ -3,7 +3,7 @@
 https://nytimes.com/video/world/middleeast/100000008307461/al-aqsa-mosque-jerusalem.html?searchResultPosition=1
 
 **Americans Over 60 Should Get Second Booster, Official Says**\
-`Citing data from Israel, the Biden administration’s Covid response coordinator, said a second booster offered significant protection to older people.`\
+`Citing data from Israel, the Biden administration’s Covid response coordinator said a second booster offered significant protection to older people.`\
 https://nytimes.com/2022/04/17/us/second-covid-booster-60.html?searchResultPosition=2
 
 **Two Killed in Mass Shooting at Pittsburgh Party**\
