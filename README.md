@@ -1,5 +1,5 @@
 **‘They Are Gone, Vanished’: Missing Persons Haunt Ukrainian Village**\
-`In a Russian-occupied village, five men went off to feed cattle. Their family and neighbors are wondering what happened to them.`\
+`In a Russian-occupied village, five men went off to feed cattle. Their relatives and neighbors are wondering what happened to them.`\
 https://nytimes.com/2022/04/17/world/europe/ukraine-russia-atrocities.html?searchResultPosition=1
 
 **Blue Mermaids and Pink Haired Skaters**\
