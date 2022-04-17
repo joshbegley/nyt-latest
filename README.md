@@ -12,7 +12,7 @@ https://nytimes.com/2022/04/17/world/europe/pope-francis-ukraine-war-easter.html
 
 **Mar-a-Lago Machine: Trump as a Modern-Day Party Boss**\
 `Hoarding cash, doling out favors and seeking to crush rivals, the former president is dominating the G.O.P., preparing for another race and helping loyalists oust officials who thwarted his attempted subversion of the 2020 election.`\
-https://nytimes.com/2022/04/17/us/politics/mar-a-lago-machine-trump-as-a-modern-day-party-boss.html?searchResultPosition=4
+https://nytimes.com/2022/04/17/us/politics/trump-mar-a-lago.html?searchResultPosition=4
 
 **What’s Going On in This Picture? | April 25, 2022**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
