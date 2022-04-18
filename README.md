@@ -1,6 +1,6 @@
 **The Supreme of Baby Clothes**\
 `Ruffled onesies. Tiny cardigans. An online shopping mania has emerged for the brand Kate Quinn.`\
-https://nytimes.com/2022/04/18/style/the-supreme-of-baby-clothes.html?searchResultPosition=1
+https://nytimes.com/2022/04/18/style/kate-quinn-baby-clothes.html?searchResultPosition=1
 
 **Bottled Cocktails, Ready to Pour, From William Grant & Sons**\
 `The English distilling company uses top-shelf spirits for drinks like Scotch-based riffs on the manhattan and the old fashioned.`\
