@@ -1,6 +1,6 @@
 **On Tax Day, Treasury makes a plea for more I.R.S. funding**\
 `The Biden administration continues to push for $80 billion in new funding for the tax collection agency.`\
-https://nytimes.com/2022/04/15/business/on-tax-day-treasury-makes-a-plea-for-more-irs-funding.html?searchResultPosition=1
+https://nytimes.com/2022/04/15/business/tax-day-irs-funding.html?searchResultPosition=1
 
 **They’re Some of Hollywood’s Top Publicists. Just Don’t Ask Them Why.**\
 `Meet the women of the Lede Company.`\
