@@ -2,8 +2,8 @@
 `It’s teatime: Make Eric Kim’s chamomile cake with strawberry icing for your next afternoon break.`\
 https://nytimes.com/2022/04/18/dining/what-to-cook-right-now.html?searchResultPosition=1
 
-**Bleak assessments of Russian economy clash with Putin’s rosy claims**\
-`By Anton Troianovski`\
+**Bleak assessments of the Russian economy clash with Putin’s rosy claims.**\
+`While Vladimir V. Putin boasts that Russia is holding up under Western sanctions, his central bank chief and the mayor of Moscow warned that the worst is yet to come.`\
 https://nytimes.com/2022/04/18/world/europe/russian-economy-bleak-assessments.html?searchResultPosition=2
 
 **Daniel Romanchuk wins the men’s wheelchair race.**\
