@@ -8,7 +8,7 @@ https://nytimes.com/2022/04/18/science/nasa-moon-rocket.html?searchResultPositio
 
 **Ex-New York Lt. Gov. Previews Bribery Defense: ‘No Personal Benefits’**\
 `The case against Brian Benjamin, who resigned as New York’s second-in-command last week, may hinge on whether political contributions in this case constituted a bribe.`\
-https://nytimes.com/2022/04/18/nyregion/brian-benjamin-crime.html?searchResultPosition=3
+https://nytimes.com/2022/04/18/nyregion/brian-benjamin-charges.html?searchResultPosition=3
 
 **When – and Why – to Still Wear a Mask**\
 `Experts weigh in on what you need to know.`\
