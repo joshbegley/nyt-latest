@@ -28,7 +28,7 @@ https://nytimes.com/2022/04/18/sports/boston-marathon-prize-money.html?searchRes
 
 **Citing Ukraine War, an American Resigns From Russia’s Mariinsky**\
 `“There’s no way I could ever be in denial of what is happening,” said the conductor Gavriel Heine, a fixture at the prestigious Russian theater.`\
-https://nytimes.com/2022/04/18/arts/music/gavriel-heine-resigns-from-mariinsky-in-russia.html?searchResultPosition=8
+https://nytimes.com/2022/04/18/arts/music/gavriel-heine-resigns-mariinsky.html?searchResultPosition=8
 
 **F.D.A. Investigating Reports of Illness From Lucky Charms**\
 `Thousands of consumers complained of gastrointestinal issues after eating the cereal, but General Mills said it had not found evidence of a link.`\
