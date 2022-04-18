@@ -4,7 +4,7 @@ https://nytimes.com/2022/04/18/business/dealbook/musk-twitter-takeover.html?sear
 
 **Alex Jones’s Infowars Files for Bankruptcy**\
 `The conspiracy theorist and his companies are facing lawsuits over his false claims about the Sandy Hook school shooting.`\
-https://nytimes.com/2022/04/18/us/alex-joness-infowars-bankruptcy.html?searchResultPosition=2
+https://nytimes.com/2022/04/18/us/alex-jones-infowars-bankruptcy.html?searchResultPosition=2
 
 **To Push Back Russians, Ukrainians Hit a Village With Cluster Munitions**\
 `The New York Times verified that Ukraine’s forces fired at least two of these internationally banned weapons in a neighborhood, putting Ukrainian civilians at extreme risk.`\
