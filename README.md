@@ -15,7 +15,7 @@ https://nytimes.com/2022/04/18/nyregion/brian-benjamin-crime.html?searchResultPo
 https://nytimes.com/interactive/2022/04/18/well/live/wearing-masks-covid.html?searchResultPosition=4
 
 **Bidens Host Their First Easter Egg Roll**\
-`President Biden and the first lady, Dr. Jill Biden, hosted the first Egg Roll since the beginning of the coronavirus pandemic, the largest event at the White House since Mr. Biden was sworn in.`\
+`President Biden and the first lady, Jill Biden, hosted the first Easter Egg Roll at the White House since the beginning of the coronavirus pandemic.`\
 https://nytimes.com/video/us/politics/100000008309149/biden-easter-egg-roll.html?searchResultPosition=5
 
 **Masks Up Again in Philadelphia**\
