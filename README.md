@@ -10,9 +10,9 @@ https://nytimes.com/2022/04/17/theater/the-minutes-review.html?searchResultPosit
 `No corrections appeared in print on Monday, April 18, 2022.`\
 https://nytimes.com/2022/04/17/pageoneplus/no-corrections-april-18-2022.html?searchResultPosition=3
 
-**When Covid-19 Enters the House, What Should We Do?**\
+**When Covid Enters the House, What Should We Do?**\
 `When someone in the family tests positive for the coronavirus, there are some guidelines to follow.`\
-https://nytimes.com/2022/04/17/nyregion/when-covid-19-enters-the-house-what-should-we-do.html?searchResultPosition=4
+https://nytimes.com/2022/04/17/nyregion/covid-questions-families.html?searchResultPosition=4
 
 **Kyrie Irving Came Ready for the Boos. The Celtics Came Ready to Win.**\
 `Irving, the Nets guard, had a brilliant Game 1 against Boston on Sunday, but the Celtics, led by Jayson Tatum and his buzzer-beater, ended up on top.`\
