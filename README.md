@@ -2,7 +2,7 @@
 `In Virginia, Maryland and Washington, D.C., established Afghan restaurateurs are reaching out to help refugees fleeing the return of the Taliban.`\
 https://nytimes.com/2022/04/18/dining/afghan-restaurants-refugees-taliban.html?searchResultPosition=1
 
-**Spring Storm Could Bring Heavy Snow to Northeast, Forecasters Say**\
+**April Storm Brings Heavy Snow and Rain to Northeast**\
 `Up to 11 inches of snow is possible in some counties in northern New York State, creating the potential for power failures and difficult travel, forecasters said.`\
 https://nytimes.com/2022/04/18/us/northeast-snowstorm.html?searchResultPosition=2
 
