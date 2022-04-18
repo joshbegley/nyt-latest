@@ -10,7 +10,7 @@ https://nytimes.com/2022/04/18/podcasts/the-daily/student-loan-pause-biden.html?
 `Russia’s invasion complicated well-laid plans. But, despite the odds, Ukraine will present work at the international art showcase in Venice.`\
 https://nytimes.com/2022/04/18/arts/design/ukraine-pavilion-venice-biennale.html?searchResultPosition=3
 
-**On Tax Day, Treasury makes a plea for more I.R.S. funding**\
+**Treasury makes a plea for more I.R.S. funding on Tax Day.**\
 `The Biden administration continues to push for $80 billion in new funding for the tax collection agency.`\
 https://nytimes.com/2022/04/15/business/tax-day-irs-funding.html?searchResultPosition=4
 
