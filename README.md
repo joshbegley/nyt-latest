@@ -23,7 +23,7 @@ https://nytimes.com/2022/04/17/business/chesapeake-cargo-ship-stuck.html?searchR
 https://nytimes.com/2022/04/17/opinion/biden-approval-miderms.html?searchResultPosition=6
 
 **A Visiting Team Like No Other**\
-`A supportive crowd in Asheville, N.C., watched the Ukrainians nearly pull off an upset of the United States in a Billie Jean King Cup qualifier.`\
+`A supportive tennis crowd in Asheville, N.C., watched the Ukrainians nearly pull off an upset of the United States in a Billie Jean King Cup qualifier.`\
 https://nytimes.com/2022/04/17/sports/tennis/ukraine-billie-jean-king.html?searchResultPosition=7
 
 **For a Black Man Hired to Undo a Confederate Legacy, It Has Not Been Easy**\
