@@ -34,7 +34,7 @@ https://nytimes.com/2022/04/18/sports/basketball/golden-state-nba-playoffs-oakla
 `This word has appeared in eight articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2022/04/17/learning/word-of-the-day-venturesome.html?searchResultPosition=9
 
-**China’s Economic Data Hints at Cost of Zero Covid Strategy**\
+**China’s Economic Trends Hint at Cost of Zero Covid Strategy**\
 `The country’s lockdowns have trapped truck drivers on highways, halted production lines and forced some importers to source goods from outside China.`\
 https://nytimes.com/2022/04/17/business/china-economy-gdp.html?searchResultPosition=10
 
