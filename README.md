@@ -34,7 +34,7 @@ https://nytimes.com/2022/04/18/style/nyc-easter-parade.html?searchResultPosition
 `President Biden and Jill Biden, the first lady, hosted the first Egg Roll since the beginning of the pandemic. It was the largest event held at the White House since they moved in.`\
 https://nytimes.com/2022/04/18/us/politics/white-house-easter-egg-roll.html?searchResultPosition=9
 
-**Supreme Court Rules Against Airman Who Refused Vaccine**\
+**Supreme Court Rules Against Air Force Officer Who Refused Vaccine**\
 `The justices said the Pentagon need not accommodate Lt. Col. Jonathan Dunn, who said he had a religious objection to the coronavirus vaccine.`\
 https://nytimes.com/2022/04/18/us/politics/supreme-court-vaccine-airman.html?searchResultPosition=10
 
