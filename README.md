@@ -7,7 +7,7 @@ https://nytimes.com/2022/04/18/sports/football/washington-commanders-finances-ft
 https://nytimes.com/2022/04/18/opinion/letters/elon-musk-twitter.html?searchResultPosition=2
 
 **Peres Jepchirchir wins the women’s race in a sprint to the finish.**\
-`By Victor Mather`\
+`Jepchirchir, the Olympic and New York champion, surged past Ababel Yeshaneh in the last few moments to win by four seconds.`\
 https://nytimes.com/2022/04/18/sports/peres-jepchirchir-wins-boston-marathon.html?searchResultPosition=3
 
 **NASCAR, ‘Survivor,’ ‘Bachelor’: All have stars in the race.**\
