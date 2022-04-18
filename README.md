@@ -1,5 +1,5 @@
 **15-Year-Old Girl Is Fatally Stabbed at California School, Officials Say**\
-`The police detained a 42-year-old man after the attack outside Stagg High School in Stockton, Calif.`\
+`The police detained a middle-aged man after the attack outside Stagg High School in Stockton, Calif.`\
 https://nytimes.com/2022/04/18/us/stagg-high-school-california-stabbing.html?searchResultPosition=1
 
 **Four Americans Were Infected With a Virus Variant Seen in Mink**\
