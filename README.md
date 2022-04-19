@@ -8,7 +8,7 @@ https://nytimes.com/2022/04/19/world/europe/us-ukraine-weaponry.html?searchResul
 
 **Some European airlines lift mask requirements on trans-Atlantic flights.**\
 `British Airways and Virgin Atlantic say face coverings on flights to the United States are a personal choice.`\
-https://nytimes.com/2022/04/19/travel/some-european-airlines-lift-mask-requirements-on-trans-atlantic-flights.html?searchResultPosition=3
+https://nytimes.com/2022/04/19/travel/european-airlines-masks-flights.html?searchResultPosition=3
 
 **Democratic Dollars Flow Once Again to Likely Lost Causes**\
 `New fund-raising figures show emerging Democratic stars like Marcus Flowers in Georgia and Gary Chambers Jr. in Louisiana, with no clear path to victory.`\
