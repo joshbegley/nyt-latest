@@ -6,7 +6,7 @@ https://nytimes.com/2022/04/19/arts/music/schwanda-the-bagpiper-komische-oper.ht
 `Hike we must, but build we should.`\
 https://nytimes.com/2022/04/19/opinion/inflation-interest-rates-housing-mortgage-loan.html?searchResultPosition=2
 
-**Masks Are Still Required on N.Y.C. Public Transit, Taxis and Ride Shares**\
+**Masks Are Still Required for N.Y.C. Public Transit, Taxis and Ride Shares**\
 `The state-controlled Metropolitan Transportation Authority doubled down on its mask mandate for subways, buses and commuter rail.`\
 https://nytimes.com/2022/04/19/nyregion/nyc-mta-mask-mandate.html?searchResultPosition=3
 
