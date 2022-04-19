@@ -1,40 +1,40 @@
+**Enough About Climate Change. Air Pollution Is Killing Us Now.**\
+`The best reason to stop burning fossil fuels is that air pollution is a threat to our health.`\
+https://nytimes.com/2022/04/19/opinion/air-pollution-fossil-fuels.html?searchResultPosition=1
+
+**For David McCormick, the Christmas Tree Farm Is a Fraction of His Wealth**\
+`The Republican Senate candidate’s financial disclosure statement depicts a wealthy man comfortable walking the halls of power.`\
+https://nytimes.com/2022/04/19/us/politics/david-mccormick-finances-senate.html?searchResultPosition=2
+
+**Why We Admire Zelensky**\
+`Ukraine’s president reminds us that democracies can still generate great leaders. `\
+https://nytimes.com/2022/04/19/opinion/why-we-admire-zelensky.html?searchResultPosition=3
+
 **Your Tuesday Evening Briefing**\
 `Here’s what you need to know at the end of the day.`\
-https://nytimes.com/2022/04/19/briefing/russia-escalation-world-economy-disneyland.html?searchResultPosition=1
+https://nytimes.com/2022/04/19/briefing/russia-escalation-world-economy-disneyland.html?searchResultPosition=4
 
 **Johnny Depp, at Libel Trial, Denies Ever Striking ‘Any Woman’**\
 `Mr. Depp sued his ex-wife Amber Heard for an op-ed she wrote saying she was a “public figure representing domestic abuse.” Ms. Heard maintains that he abused her repeatedly.`\
-https://nytimes.com/2022/04/19/arts/johnny-depp-amber-heard-trial.html?searchResultPosition=2
+https://nytimes.com/2022/04/19/arts/johnny-depp-amber-heard-trial.html?searchResultPosition=5
 
 **Will You Keep Wearing a Mask on Planes and Public Transit?**\
 `We’re interested in your response to the ruling against a federal mask mandate.`\
-https://nytimes.com/2022/04/19/reader-center/masks-ban-planes-transit.html?searchResultPosition=3
+https://nytimes.com/2022/04/19/reader-center/masks-ban-planes-transit.html?searchResultPosition=6
 
 **The Biden administration says it may appeal a ruling that voided a mask mandate on public transport.**\
 `If the C.D.C. decides there is a public health basis for trying to reinstate and extend the mask mandate, the Justice Department will swiftly file an appeal.`\
-https://nytimes.com/2022/04/19/us/politics/biden-mask-mandate-transportation.html?searchResultPosition=4
+https://nytimes.com/2022/04/19/us/politics/biden-mask-mandate-transportation.html?searchResultPosition=7
 
 **‘Mummified’ Body Is Identified as Man Missing Since 2020**\
 `A worker renovating the Henry J. Kaiser Convention Center in Oakland, Calif., found the remains on March 9. A serial number on a plate in his ankle unlocked the mystery of his identity.`\
-https://nytimes.com/2022/04/19/us/california-mummified-body-oakland-joseph-mejica.html?searchResultPosition=5
+https://nytimes.com/2022/04/19/us/california-mummified-body-oakland-joseph-mejica.html?searchResultPosition=8
 
 **Jacqueline Avant’s Killer Is Sentenced to 190 Years in Prison**\
 `Aariel Maynor, 30, pleaded guilty to first-degree murder and other charges after he broke into Ms. Avant’s home in December and fatally shot the philanthropist in the back, the authorities said.`\
-https://nytimes.com/2022/04/19/us/jacqueline-avant-aariel-maynor-sentenced.html?searchResultPosition=6
+https://nytimes.com/2022/04/19/us/jacqueline-avant-aariel-maynor-sentenced.html?searchResultPosition=9
 
 **Elon Musk Races to Secure Financing for Twitter Bid**\
 `The world’s richest man is trying to shore up debt financing, including potentially taking out a loan against his shares of Tesla, so he can buy Twitter for $43 billion.`\
-https://nytimes.com/2022/04/19/technology/elon-musk-twitter.html?searchResultPosition=7
-
-**Jorge Drexler’s Music Connects Genres, Generations and Continents**\
-`After three decades of making albums, the Academy Award-winning songwriter is still blending science and poetry, still reaching out to younger artists and still learning.`\
-https://nytimes.com/2022/04/19/arts/music/jorge-drexler-tinta-y-tiempo.html?searchResultPosition=8
-
-**‘The Runaways,’ ‘Brigsby Bear’ and More Streaming Gems**\
-`This month’s outside-the-box streaming recommendations include quirky comedies, an uncommonly rich music biopic and genre movies that are a cut above.`\
-https://nytimes.com/2022/04/19/movies/the-runaways-brigsby-bear-streaming.html?searchResultPosition=9
-
-**Johnson Apologizes for Violating Covid-19 Rules**\
-`Boris Johnson, the prime minister of Britain, apologized to members of Parliament after he was fined by police for attending a lockdown party in Downing Street during the height of the pandemic.`\
-https://nytimes.com/video/world/europe/100000008310898/johnson-covid-lockdown-party-apology.html?searchResultPosition=10
+https://nytimes.com/2022/04/19/technology/elon-musk-twitter.html?searchResultPosition=10
 
