@@ -1,40 +1,40 @@
+**Moderna says trial results suggest redesigned vaccines can better protect against variants.**\
+`Researchers combined Moderna’s existing vaccine with one designed to attack the Beta variant, and found it provided a stronger defense against several variants.`\
+https://nytimes.com/2022/04/19/us/politics/moderna-vaccine-beta-variant.html?searchResultPosition=1
+
 **‘Big Screaming Headlines’**\
 `Coronavirus cases have risen in major cities. Hospitalizations have not.`\
-https://nytimes.com/2022/04/19/briefing/covid-cases-up-hospitalizations-omicron.html?searchResultPosition=1
+https://nytimes.com/2022/04/19/briefing/covid-cases-up-hospitalizations-omicron.html?searchResultPosition=2
 
 **The Cost of Dissidence in Russia**\
 `President Vladimir V. Putin’s us-versus-them framing of the war has set the country up for a new and dark phase domestically.`\
-https://nytimes.com/2022/04/19/podcasts/the-daily/putin-russia-ukraine.html?searchResultPosition=2
+https://nytimes.com/2022/04/19/podcasts/the-daily/putin-russia-ukraine.html?searchResultPosition=3
 
 **China’s Covid shutdowns go far beyond Shanghai.**\
 `Cities and towns across the country are shutting down, hoping to sidestep the pitfalls and stumbles that Shanghai has faced battling the Omicron variant.`\
-https://nytimes.com/2022/04/19/world/china-lockdowns.html?searchResultPosition=3
+https://nytimes.com/2022/04/19/world/china-lockdowns.html?searchResultPosition=4
 
 **A Violent Death That Ended a Love Story**\
 `GuiYing Ma was attacked while sweeping a sidewalk in Queens, during a time of rising crime against Asian Americans.`\
-https://nytimes.com/2022/04/19/nyregion/a-violent-death-that-ended-a-love-story.html?searchResultPosition=4
+https://nytimes.com/2022/04/19/nyregion/a-violent-death-that-ended-a-love-story.html?searchResultPosition=5
 
 **There’s More to Art in Venice Than the Biennale**\
 `Galleries and foundations across the lagoon city offer a diverse range of works.`\
-https://nytimes.com/2022/04/19/arts/design/venice-what-to-do-biennale.html?searchResultPosition=5
+https://nytimes.com/2022/04/19/arts/design/venice-what-to-do-biennale.html?searchResultPosition=6
 
 **This Venice Biennale Has a New Star: Women**\
 `For the first time, a majority of the artists at the 59th edition of the longest-running survey of contemporary art will be female.`\
-https://nytimes.com/2022/04/19/arts/design/venice-biennale-women-art.html?searchResultPosition=6
+https://nytimes.com/2022/04/19/arts/design/venice-biennale-women-art.html?searchResultPosition=7
 
 **They Thought Remodeling Could Wait. Then a Tree Fell on the House.**\
 `As one Westchester family discovered, there’s no better time to renovate than when you’ve already got a hole in the roof.`\
-https://nytimes.com/2022/04/19/realestate/they-thought-remodeling-could-wait-then-a-tree-fell-on-the-house.html?searchResultPosition=7
+https://nytimes.com/2022/04/19/realestate/they-thought-remodeling-could-wait-then-a-tree-fell-on-the-house.html?searchResultPosition=8
 
 **A Daring Dream and a Lifelong Love, Dashed in a Moment of Violence**\
 `GuiYing Ma built a modest life of service in New York until a shocking attack tore her from her devoted husband.`\
-https://nytimes.com/2022/04/19/nyregion/anti-asian-attacks-nyc.html?searchResultPosition=8
+https://nytimes.com/2022/04/19/nyregion/anti-asian-attacks-nyc.html?searchResultPosition=9
 
 **A Renovation Inspired by a Fallen Tree**\
 `There’s no better time to renovate, one Westchester family discovered, than when you’ve already got a hole in the roof.`\
-https://nytimes.com/slideshow/2022/04/19/realestate/a-renovation-inspired-by-a-fallen-tree.html?searchResultPosition=9
-
-**Where Winslow Homer Went to Fish and Paint**\
-`In Homosassa, a tiny town along Florida’s Gulf Coast, the famed artist created some of his most luminous watercolors, capturing an area rich in aquatic life.`\
-https://nytimes.com/2022/04/19/travel/winslow-homer-in-homosassa-florida.html?searchResultPosition=10
+https://nytimes.com/slideshow/2022/04/19/realestate/a-renovation-inspired-by-a-fallen-tree.html?searchResultPosition=10
 
