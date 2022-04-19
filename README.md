@@ -10,8 +10,8 @@ https://nytimes.com/2022/04/19/world/europe/mariupol-azovstal-steel-plant.html?s
 `By Tara Parker-Pope and Knvul Sheikh`\
 https://nytimes.com/2022/04/19/well/masks-airplanes-covid.html?searchResultPosition=3
 
-**Some of the largest U.S. transit systems are keeping mask mandates in place, for now.**\
-`New York, Chicago, San Francisco and Boston kept requirements in place, while Atlanta, Washington, D.C., Philadelphia and the nationwide Amtrak rail system dropped them.`\
+**Some large U.S. transit systems are keeping mask mandates in place, for now.**\
+`New York, Chicago, San Francisco and Boston continue to require masks, while Atlanta, Philadelphia and the nationwide Amtrak rail system have ended mandates.`\
 https://nytimes.com/2022/04/19/us/mask-mandates-transit.html?searchResultPosition=4
 
 **Ukrainian Children Are Being Separated From Caregivers at U.S. Border**\
