@@ -4,7 +4,7 @@ https://nytimes.com/2022/04/18/opinion/china-russia-putin.html?searchResultPosit
 
 **A judge ruled that Amazon must reinstate a Staten Island worker who was fired.**\
 `The judge said the worker was “unlawfully” fired two years ago after a pandemic safety protest at a company warehouse.`\
-https://nytimes.com/2022/04/18/business/amazon-firing-nlrb-case.html?searchResultPosition=2
+https://nytimes.com/2022/04/18/business/amazon-protest-firing-ruling.html?searchResultPosition=2
 
 **Ex-Chicago Officer Who Killed Laquan McDonald Won’t Face Federal Charges**\
 `The officer, Jason Van Dyke, had served about three years in state prison for murdering the Black teenager, a killing that put a spotlight on police brutality.`\
