@@ -1,40 +1,40 @@
+**China’s emissions are crucial. Here’s where the country is headed.**\
+`Choices being made right now about coal and renewables will have profound implications for the climate crisis.`\
+https://nytimes.com/2022/04/19/climate/china-greenhouse-emissions-climate.html?searchResultPosition=1
+
+**Rolo’s Looks Like a Corner Tavern in Queens. It’s That and Then Some.**\
+`Three chefs in the savory kitchen and a pastry chef with a knack for focaccia bring remarkable range to a new Ridgewood restaurant.`\
+https://nytimes.com/2022/04/19/dining/rolos-review-pete-wells.html?searchResultPosition=2
+
+**A Menu That Goes Where It Pleases**\
+`Rolo’s explores Middle Eastern flatbread, Dutch “war fries” and Sichuan cabbage, but the kitchen tends to come back to Italian food.`\
+https://nytimes.com/slideshow/2022/04/19/dining/rolos-restaurant-queens.html?searchResultPosition=3
+
+**Flight Passengers Cheer as Mask Mandate Ends**\
+`Passengers reacted with both joy and concern after the Transportation Security Administration abruptly stopped enforcing its mask mandate on planes and in airports.`\
+https://nytimes.com/video/us/100000008309978/planes-mask-mandate.html?searchResultPosition=4
+
 **Autopsy Shows Officer Shot Black Man in Back of Head, Family Lawyers Say**\
 `Patrick Lyoya, 26, was killed on April 4 by a Grand Rapids police officer during a traffic stop. The police released videos of the shooting last week.`\
-https://nytimes.com/2022/04/19/us/patrick-lyoya-shooting-autopsy.html?searchResultPosition=1
+https://nytimes.com/2022/04/19/us/patrick-lyoya-shooting-autopsy.html?searchResultPosition=5
 
 **Transcript: Ezra Klein Interviews Sean McElwee and Anat Shenker-Osorio**\
 `A conversation with Sean McElwee and Anat Shenker-Osorio`\
-https://nytimes.com/2022/04/19/podcasts/transcript-ezra-klein-interviews-anat-shenker-osorio-sean-mcelwee.html?searchResultPosition=2
+https://nytimes.com/2022/04/19/podcasts/transcript-ezra-klein-interviews-anat-shenker-osorio-sean-mcelwee.html?searchResultPosition=6
 
 **Letizia Battaglia, Photographer of Mafia Brutality, Dies at 87**\
 `Her images of victims on the streets of Palermo were stamped on the nation’s consciousness as she challenged the grip mobsters had on her native Sicily.`\
-https://nytimes.com/2022/04/19/world/europe/letizia-battaglia-dead.html?searchResultPosition=3
+https://nytimes.com/2022/04/19/world/europe/letizia-battaglia-dead.html?searchResultPosition=7
 
 **Drawn and Caricatured: French Cartoonists on the Campaign Trail**\
 `Cartoonists play a high-profile role in France’s political discourse, and they have been busy drawing the presidential candidates as the race approaches its end.`\
-https://nytimes.com/2022/04/19/world/europe/france-cartoons-presidential-election.html?searchResultPosition=4
+https://nytimes.com/2022/04/19/world/europe/france-cartoons-presidential-election.html?searchResultPosition=8
 
 **The end of a U.S. mask mandate for travel is met with elation and dread.**\
 `Some travelers and flight attendants cheered the end of the mask mandate but others are worried that it will result in more infections.`\
-https://nytimes.com/2022/04/19/business/mask-mandate-travel-transit.html?searchResultPosition=5
+https://nytimes.com/2022/04/19/business/mask-mandate-travel-transit.html?searchResultPosition=9
 
 **Blasts at Schools in Shiite Area of Kabul Kill at Least 6**\
 `More than a dozen people were also wounded, one as young as 7. The attacks again challenged the Taliban’s promise of security, and stoked deep-seated fears in the Shiite community.`\
-https://nytimes.com/2022/04/19/world/asia/afghanistan-kabul-schools-attacked.html?searchResultPosition=6
-
-**Ukraine’s War Efforts Gain an Unlikely Source of Funding: Memes**\
-`A campaign using internet memes and merchandise has rallied international public support for Ukraine in its war with Russia.`\
-https://nytimes.com/2022/04/19/world/middleeast/ukraine-memes-russia-fundraising.html?searchResultPosition=7
-
-**South African President Declares State of Disaster After Deadly Floods**\
-`President Cyril Ramaphosa of South Africa estimated that last week’s catastrophic flooding displaced more than 40,000 people. Hundreds of people have been killed and dozens are unaccounted for.`\
-https://nytimes.com/video/world/africa/100000008309908/south-africa-floods.html?searchResultPosition=8
-
-**Better.com announces more layoffs, citing mortgage market turbulence.**\
-`The mortgage lender cut its staff again after firings in December and March, including one conducted on a mass Zoom call.`\
-https://nytimes.com/2022/04/19/business/bettercom-announces-more-layoffs-citing-mortgage-market-turbulence.html?searchResultPosition=9
-
-**Big Tech Wants to Commodify Your Happiness**\
-`In Claire Stanford’s “Happy for You,” a struggling academic joins an internet company building an algorithm to quantify human joy.`\
-https://nytimes.com/2022/04/19/books/review/claire-stanford-happy-for-you.html?searchResultPosition=10
+https://nytimes.com/2022/04/19/world/asia/afghanistan-kabul-schools-attacked.html?searchResultPosition=10
 
