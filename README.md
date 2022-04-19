@@ -26,7 +26,7 @@ https://nytimes.com/2022/04/19/well/masks-airplanes-covid.html?searchResultPosit
 `New York, Chicago, San Francisco and Boston continue to require masks, while Atlanta, Philadelphia and the nationwide Amtrak rail system have ended mandates.`\
 https://nytimes.com/2022/04/19/us/mask-mandates-transit.html?searchResultPosition=7
 
-**Ukrainian Children Are Being Separated From Caregivers at U.S. Border**\
+**Ukrainian Children and Caregivers Are Being Separated at U.S. Border**\
 `Under a policy designed to protect young refugees from trafficking, Ukrainian children are being temporarily removed from caretakers who are not their parents.`\
 https://nytimes.com/2022/04/19/us/ukraine-family-separations.html?searchResultPosition=8
 
