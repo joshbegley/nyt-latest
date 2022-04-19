@@ -1,6 +1,6 @@
 **The Biden administration says it may appeal a ruling that voided a mask mandate on public transport.**\
 `If the C.D.C. decides there is a public health basis for trying to reinstate and extend the mask mandate, the Justice Department will swiftly file an appeal.`\
-https://nytimes.com/2022/04/19/us/politics/the-biden-administration-says-it-may-appeal-a-ruling-that-voided-a-mask-mandate-on-public-transport.html?searchResultPosition=1
+https://nytimes.com/2022/04/19/us/politics/biden-mask-mandate-transportation.html?searchResultPosition=1
 
 **‘Mummified’ Body Is Identified as Man Missing Since 2020**\
 `A worker renovating the Henry J. Kaiser Convention Center in Oakland, Calif., found the remains on March 9. A serial number on a plate in his ankle unlocked the mystery of his identity.`\
