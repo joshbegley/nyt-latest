@@ -1,40 +1,40 @@
-**Not Even for a Moment Do Things Stand Still**\
-`Mourners from across the country gathered among hundreds of thousands of white flags to honor those lost to Covid.`\
-https://nytimes.com/video/opinion/100000008248694/not-even-for-a-moment-do-things-stand-still.html?searchResultPosition=1
+**They Thought Remodeling Could Wait. Then a Tree Fell on the House.**\
+`As one Westchester family discovered, there’s no better time to renovate than when you’ve already got a hole in the roof.`\
+https://nytimes.com/2022/04/19/realestate/they-thought-remodeling-could-wait-then-a-tree-fell-on-the-house.html?searchResultPosition=1
 
-**The Unapologetic Heirs of Nazi Fortunes**\
-`In a country that is celebrated for its culture of reckoning and remembrance, the richest families are often an exception.`\
-https://nytimes.com/2022/04/19/opinion/bmw-porsche-nazi-germany-quandt-flick.html?searchResultPosition=2
+**A Daring Dream and a Lifelong Love, Dashed in a Moment of Violence**\
+`GuiYing Ma built a modest life of service in New York until a shocking attack tore her from her devoted husband.`\
+https://nytimes.com/2022/04/19/nyregion/anti-asian-attacks-nyc.html?searchResultPosition=2
 
-**The mask mandate ended midflight, sparking cheers, selfies and alarm.**\
-`Airport terminals and flights erupted in applause, while some passengers said the abrupt policy change put them at risk.`\
-https://nytimes.com/2022/04/19/us/mask-mandate-flights.html?searchResultPosition=3
+**A Renovation Inspired by a Fallen Tree**\
+`There’s no better time to renovate, one Westchester family discovered, than when you’ve already got a hole in the roof.`\
+https://nytimes.com/slideshow/2022/04/19/realestate/a-renovation-inspired-by-a-fallen-tree.html?searchResultPosition=3
 
-**A Door-to-Door Effort to Find Out Who Died Helps Low-Income Countries Aid the Living**\
-`Many developing countries don’t keep official death records. A novel effort uses “electronic autopsies” to count deaths, and record their cause.`\
-https://nytimes.com/2022/04/19/health/death-records-africa-electronic-autopsy.html?searchResultPosition=4
+**Where Winslow Homer Went to Fish and Paint**\
+`In Homosassa, a tiny town along Florida’s Gulf Coast, the famed artist created some of his most luminous watercolors, capturing an area rich in aquatic life.`\
+https://nytimes.com/2022/04/19/travel/winslow-homer-in-homosassa-florida.html?searchResultPosition=4
 
-**Myanmar’s Health System Is in Collapse, ‘Obliterated’ by the Regime**\
-`The country is also now one of the most dangerous places in the world to be a medical worker. At least 30 doctors have been killed since the coup, a rights group says.`\
-https://nytimes.com/2022/04/19/world/asia/myanmars-coup-doctors.html?searchResultPosition=5
+**Working From Home, Japan’s Corporate Warriors Rethink Their Priorities**\
+`The country’s traditional job-for-life model is eroding, with pressure now coming from workers who want more flexibility, autonomy and control over their careers.`\
+https://nytimes.com/2022/04/19/business/japan-covid-work.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/04/19/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**And Now, a Word From Your Streaming Sponsor …**\
+`Executives at the top streaming services, chasing ever bigger subscription numbers, are having a change of heart about commercials.`\
+https://nytimes.com/2022/04/19/business/media/netflix-amazon-disney-ads.html?searchResultPosition=6
 
-**Late Night Condemns Florida’s Ban on Math Books for ‘Prohibited Topics’**\
-`Trevor Noah joked that he wished math text books had critical race theory so “we could have solved racism by cheating and going to the back of the book.”`\
-https://nytimes.com/2022/04/19/arts/television/late-night-florida-ban-math-books.html?searchResultPosition=7
+**New York Revives Its Alternate-Side Parking Ritual. Cue the Outrage.**\
+`New York City says that drivers will have to move their cars twice a week again so that dirty streets can be swept clean.`\
+https://nytimes.com/2022/04/19/nyregion/car-parking-nyc-pandemic.html?searchResultPosition=7
 
-**Word of the Day: impending**\
-`This word has appeared in 249 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/04/19/learning/word-of-the-day-impending.html?searchResultPosition=8
+**M.R.I.s Are Finding Connections Between Our Brain Activity and Psychology**\
+`How might we leverage knowing that a particular neurological feature makes someone more vulnerable to autism or Alzheimer’s or more likely to achieve academically?`\
+https://nytimes.com/2022/04/19/magazine/mri-brain-activity-psychology.html?searchResultPosition=8
 
-**Your Tuesday Briefing**\
-`A Russian offensive in eastern Ukraine.`\
-https://nytimes.com/2022/04/19/briefing/ukraine-attack-renewable-energy.html?searchResultPosition=9
+**A ‘Product of Colonialism’ Represents France at the Venice Biennale**\
+`Zineb Sedira’s art evokes her experience as a child of Algerian immigrants.`\
+https://nytimes.com/2022/04/19/arts/design/venice-biennale-zineb-sedira-france.html?searchResultPosition=9
 
-**How U.S. airlines are changing their mask rules.**\
-`After a federal mandate was struck down, the major carriers said masks would be optional on their domestic flights.`\
-https://nytimes.com/2022/04/18/business/airline-mask-rules.html?searchResultPosition=10
+**Venice Biennale: Attacking Mexico, With Mexico’s Approval**\
+`The country’s pavilion will feature artists who say they want to challenge the nation’s legacy of colonialism, violence and discrimination. The cultural authority says that’s fine.`\
+https://nytimes.com/2022/04/19/arts/design/venice-biennale-mexico.html?searchResultPosition=10
 
