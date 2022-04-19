@@ -4,7 +4,7 @@ https://nytimes.com/2022/04/19/books/review/claire-stanford-happy-for-you.html?s
 
 **Biden Restores Climate to Landmark Environmental Law, Reversing Trump**\
 `A new rule requires agencies to analyze the climate impacts of proposed highways, pipelines and other projects, and gives local communities more input.`\
-https://nytimes.com/2022/04/19/climate/biden-climate-nepa.html?searchResultPosition=2
+https://nytimes.com/2022/04/19/climate/biden-climate-nepa-trump.html?searchResultPosition=2
 
 **Climate-Change Risks Get the Attention of Real Estate Investors**\
 `They are thinking more seriously about flooding, but a lack of established standards for assessing development projects is challenging their efforts.`\
