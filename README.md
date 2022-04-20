@@ -20,7 +20,7 @@ https://nytimes.com/2022/04/20/business/russia-sanctions-crypto-treasury.html?se
 
 **Checking Out: Trump Hotel Sale Will End an Era**\
 `The $375 million sale of a Washington hotel that served as an influence and access bazaar for lawmakers, administration officials and other Trump allies is slated to be finalized this month.`\
-https://nytimes.com/2022/04/20/us/politics/trump-hotel-sale.html?searchResultPosition=6
+https://nytimes.com/2022/04/20/us/politics/trump-hotel-sale-washington.html?searchResultPosition=6
 
 **Dede Robertson, Wife and Partner of Pat Robertson, Dies at 94**\
 `A founding board member of the Christian Broadcasting Network, she also campaigned for her husband when he ran for president in 1988.`\
