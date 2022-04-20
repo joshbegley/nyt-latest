@@ -22,7 +22,7 @@ https://nytimes.com/video/world/europe/100000008312132/russia-putin-ballistic-mi
 `Reader urge measures to reduce stress and exhaustion and argue that mistakes should not be criminalized. Also: Drone operators; globalization.`\
 https://nytimes.com/2022/04/20/opinion/letters/nurse-medical-error.html?searchResultPosition=6
 
-**The French Presidential Election**\
+**The French Presidential Election Debate**\
 `President Emmanuel Macron and Marine Le Pen, the French far-right leader, are facing off tonight in a critical debate ahead of Sunday's runoff vote.`\
 https://nytimes.com/interactive/2022/04/20/world/europe/french-debate-election.html?searchResultPosition=7
 
