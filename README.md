@@ -4,7 +4,7 @@ https://nytimes.com/2022/04/20/nyregion/connecticut-state-trooper-manslaughter.h
 
 **A YouTuber Purposely Crashed His Plane in California, F.A.A. Says**\
 `The video from December shows Trevor Jacob cursing in panic before leaping with a parachute out of a small plane. Some experts had wondered if the crash was a publicity stunt.`\
-https://nytimes.com/2022/04/20/us/youtuber-purposely-crashed-plane.html?searchResultPosition=2
+https://nytimes.com/2022/04/20/us/trevor-jacob-youtube-plane-crash.html?searchResultPosition=2
 
 **Scientists Find No Benefit to Time-Restricted Eating**\
 `In a yearlong study, participants who confined meals to certain hours lost no more weight than those who ate at any time.`\
