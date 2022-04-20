@@ -8,7 +8,7 @@ https://nytimes.com/2022/04/20/us/supreme-court-miranda.html?searchResultPositio
 
 **Boxing Distances Itself From a Figure Sought by the U.S. Government**\
 `Promoters and boxers are disavowing Daniel Kinahan, whom the Treasury Department said is the leader of a murderous drug cartel.`\
-https://nytimes.com/2022/04/20/sports/boxing-kinahan-treasury.html?searchResultPosition=3
+https://nytimes.com/2022/04/20/sports/daniel-kinahan-boxing-treasury.html?searchResultPosition=3
 
 **The Justice Department charged 21 people over coronavirus-related fraud schemes.**\
 `The schemes included selling fake vaccination cards and test results, as well as enticing patients to accept unneeded treatments, tests and telehealth visits.`\
