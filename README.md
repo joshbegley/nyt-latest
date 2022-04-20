@@ -7,7 +7,7 @@ https://nytimes.com/2022/04/19/nyregion/nj-diocese-sex-abuse-settlement.html?sea
 https://nytimes.com/2022/04/19/crosswords/daily-puzzle-2022-04-20.html?searchResultPosition=2
 
 **Ezra Miller, ‘The Flash’ Actor, Arrested on Assault Charge in Hawaii**\
-`The ‘Fantastic Beasts’ star was accused of throwing a chair after being asked to leave a party, causing a woman’s injury.`\
+`The ‘Fantastic Beasts’ star was accused of throwing a chair after being asked to leave a home, causing a woman’s injury.`\
 https://nytimes.com/2022/04/19/arts/ezra-miller-arrest-hawaii.html?searchResultPosition=3
 
 **Russia rejects calls for a cease-fire to enable evacuations, saying Ukraine only wants time to arm.**\
