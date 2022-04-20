@@ -1,5 +1,5 @@
 **Here’s What Changes When New York Raises Its Covid Risk Level**\
-`The city is poised to reach a yellow or medium risk level if cases surpass 200 per 100,000 residents. Here’s what you need to know.`\
+`The city is poised to reach a yellow or medium risk level if cases surpass 200 per 100,000 residents. Here’s what it means if that happens.`\
 https://nytimes.com/2022/04/20/nyregion/new-york-covid-alert-risk.html?searchResultPosition=1
 
 **‘Artists Are Migrants’: A Nigerian-Irish Dancer’s Multiplicities**\
@@ -27,7 +27,7 @@ https://nytimes.com/2022/04/20/us/peru-ambassador-residence-shooting-dc.html?sea
 https://nytimes.com/2022/04/20/arts/music/lets-eat-grandma-two-ribbons.html?searchResultPosition=7
 
 **Fashioning ‘The First Lady’**\
-`The new Showtime series on Michelle Obama, Betty Ford and Eleanor Roosevelt, makes the connection between substance and style.`\
+`The new Showtime series on Michelle Obama, Betty Ford and Eleanor Roosevelt makes the connection between substance and style.`\
 https://nytimes.com/2022/04/20/style/the-first-lady-viola-davis-michelle-obama.html?searchResultPosition=8
 
 **Netflix shares plunge 37 percent after announcing subscriber losses.**\
