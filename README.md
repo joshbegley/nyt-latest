@@ -3,7 +3,7 @@
 https://nytimes.com/2022/04/20/arts/johnny-depp-amber-heard-trial.html?searchResultPosition=1
 
 **C.D.C. Seeks Appeal to Reinstate Transportation Mask Mandate**\
-`The Centers for Disease Control and Prevention defended the mandate as “necessary for the public health,” but an appeal risks creating a precedent that could permanently constrain the agency.`\
+`The Centers for Disease Control and Prevention called the mandate “necessary for the public health,” but an appeal risks creating a precedent that could permanently constrain the agency.`\
 https://nytimes.com/2022/04/20/us/politics/cdc-transportation-mask-mandate.html?searchResultPosition=2
 
 **People should keep wearing masks in public even if they are not required, regional W.H.O. officials say.**\
