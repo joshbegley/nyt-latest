@@ -15,7 +15,7 @@ https://nytimes.com/2022/04/20/nyregion/new-york-covid-alert-risk.html?searchRes
 https://nytimes.com/2022/04/20/arts/dance/mufutau-yusuf-irish-arts-center.html?searchResultPosition=4
 
 **Ohio Doctor Is Acquitted of Killing Patients With Fentanyl**\
-`The doctor, William Husel, had been charged with murder after his patients overdosed on fentanyl, the powerful opioid.`\
+`The doctor, William Husel, had faced 14 counts of murder after his patients overdosed on fentanyl, the powerful opioid.`\
 https://nytimes.com/2022/04/20/us/william-husel-ohio-doctor-murder-trial.html?searchResultPosition=5
 
 **Parisian Love Stories for the Age of Talk Less, Message More**\
