@@ -14,7 +14,7 @@ https://nytimes.com/2022/04/20/business/sap-germany-russia.html?searchResultPosi
 `Here’s how to be mindful about the tech subscriptions, phone bills and upgrades that drain our budgets.`\
 https://nytimes.com/2022/04/20/technology/personaltech/phone-bills-online-subscription-cuts.html?searchResultPosition=4
 
-**The Treasury Department took action to crack down on Russian sanctions evasion.**\
+**The Treasury Department takes action to crack down on Russian sanctions evasion.**\
 `New sanctions target a Russian bank and cryptocurrency mining company.`\
 https://nytimes.com/2022/04/20/business/russia-sanctions-crypto-treasury.html?searchResultPosition=5
 
