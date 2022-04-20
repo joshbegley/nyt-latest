@@ -11,7 +11,7 @@ https://nytimes.com/2022/04/20/arts/design/laura-mattioli-cima-italian-art.html?
 https://nytimes.com/2022/04/20/dining/what-to-cook-right-now.html?searchResultPosition=3
 
 **Here’s What Changes When New York Raises Its Covid Risk Level**\
-`The city is poised to reach a yellow or medium risk level if cases surpass 200 per 100,000 residents. Here’s what it means if that happens.`\
+`The city will reach a yellow or medium risk level if new cases surpass 200 a week for every 100,000 residents. Here’s what that would mean.`\
 https://nytimes.com/2022/04/20/nyregion/new-york-covid-alert-risk.html?searchResultPosition=4
 
 **‘Artists Are Migrants’: A Nigerian-Irish Dancer’s Multiplicities**\
