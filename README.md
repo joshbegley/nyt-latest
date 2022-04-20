@@ -16,7 +16,7 @@ https://nytimes.com/interactive/2022/04/20/magazine/tokyo-replica-food.html?sear
 
 **Supreme Court Debates Whether Miranda Warnings Are a Constitutional Right**\
 `The justices considered whether a California hospital attendant could sue a police officer who questioned him without reading him his rights.`\
-https://nytimes.com/2022/04/20/us/supreme-court-miranda.html?searchResultPosition=5
+https://nytimes.com/2022/04/20/us/supreme-court-miranda-rights.html?searchResultPosition=5
 
 **Boxing Distances Itself From a Figure Sought by the U.S. Government**\
 `Promoters and boxers are disavowing Daniel Kinahan, who the Treasury Department said is the leader of a murderous drug cartel.`\
