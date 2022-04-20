@@ -1,40 +1,40 @@
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/04/20/crosswords/spelling-bee-forum.html?searchResultPosition=1
+**Why New York’s a Lonely Town, Especially Since Covid**\
+`We are still learning what the effects of prolonged isolation could be in a city where a million people live alone.`\
+https://nytimes.com/2022/04/20/nyregion/why-new-yorks-a-lonely-town-especially-since-covid.html?searchResultPosition=1
 
-**Word of the Day: multitude**\
-`This word has appeared in 153 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/04/20/learning/word-of-the-day-multitude.html?searchResultPosition=2
+**House Hunting in Peru: A Modern Mountain Perch Above Lima**\
+`Political upheaval has stunted the high-end market in Peru’s capital, but domestic buyers are keeping demand high at the middle and lower end of the market.`\
+https://nytimes.com/2022/04/20/realestate/peru-house-hunting.html?searchResultPosition=2
 
-**Stephen Colbert Isn’t Shocked the New Mask Ruling Came From Florida**\
-`“You can’t let Florida make health decisions for the entire country!” Colbert said.`\
-https://nytimes.com/2022/04/20/arts/television/stephen-colbert-mask-mandate-florida.html?searchResultPosition=3
+**Carved Into the Mountains of Lima**\
+`This modern seven-bedroom house carved into in the hills of Lima, Peru, is on the market for $2 million.`\
+https://nytimes.com/slideshow/2022/04/20/realestate/carved-into-the-mountains-of-lima.html?searchResultPosition=3
 
-**Fast-Moving Wildfire in Arizona Forces Evacuation of Over 700 Homes**\
-`High winds fanned the fire, which grew to about nine square miles, northeast of Flagstaff. It was completely uncontained as night fell.`\
-https://nytimes.com/2022/04/20/us/arizona-tunnel-fire-wildfire.html?searchResultPosition=4
+**$850,000 Homes in Virginia, Louisiana and Colorado**\
+`A 1938 cottage in Richmond, a 13-acre retreat in Abita Springs and a Craftsman bungalow in Denver.`\
+https://nytimes.com/2022/04/20/realestate/850000-homes-in-virginia-louisiana-and-colorado.html?searchResultPosition=4
 
-**Marine Le Pen Is as Dangerous as Ever**\
-`As a French Muslim citizen, I fear for my country.`\
-https://nytimes.com/2022/04/20/opinion/le-pen-france-election.html?searchResultPosition=5
+**Deep in Colombia, a New Generation of Armed Groups Battles for Control**\
+`The country signed a historic peace deal more than five years ago. But a power vacuum is fueling the rise of new armed groups.`\
+https://nytimes.com/2022/04/20/world/americas/colombia-comandos-armed-groups.html?searchResultPosition=5
 
-**Wimbledon Plans to Bar Russian and Belarusian Players**\
-`The tournament would be the first to exclude individual athletes from those countries from competition since Russia’s invasion of Ukraine and would affect highly ranked men and women.`\
-https://nytimes.com/2022/04/20/sports/tennis/wimbledon-ban-russia-belarus-players.html?searchResultPosition=6
+**What You Get for $850,000**\
+`A 1938 cottage in Richmond, Va.; a 13-acre retreat in Abita Springs, La.; and a Craftsman bungalow in Denver.`\
+https://nytimes.com/slideshow/2022/04/20/realestate/what-you-get-for-850000.html?searchResultPosition=6
 
-**Your Wednesday Briefing**\
-`Russia’s offensive in eastern Ukraine.`\
-https://nytimes.com/2022/04/20/briefing/russia-offensive-boris-johnson.html?searchResultPosition=7
+**How the Worst Site Can Become the Best Garden**\
+`James Golden’s New Jersey garden, Federal Twist, taught him that a gardener must match the plants to the place — however difficult that seems.`\
+https://nytimes.com/2022/04/20/realestate/how-the-worst-site-can-become-the-best-garden.html?searchResultPosition=7
 
-**Football Tech That’s More Than a Laser and Light Show**\
-`The U.S.F.L. is testing tech that could resolve disputes over where balls are spotted, clearly show if a first down was reached and track players who stand too high on tackles. The N.F.L. is watching.`\
-https://nytimes.com/2022/04/20/sports/football/usfl-technology-ball-spotting.html?searchResultPosition=8
+**Only the Feds Could Disqualify Madison Cawthorn and Marjorie Taylor Greene**\
+`State courts or elections boards lack jurisdiction in keeping alleged insurrectionists off a congressional ballot.`\
+https://nytimes.com/2022/04/20/opinion/madison-cawthorn-marjorie-taylor-green-section-3.html?searchResultPosition=8
 
-**Nikola Jokic Dishes With the Best of Them**\
-`Jokic, the Denver Nuggets center, may be one of the best passers ever. But Golden State is making it more difficult for him to do what he does best.`\
-https://nytimes.com/2022/04/20/sports/nikola-jokic-denver-nuggets.html?searchResultPosition=9
+**How America’s Farmers Got Cut Out of the Supply Chain**\
+`As shipping companies concentrate on the most lucrative routes from China to California, almond growers are struggling to transport their wares.`\
+https://nytimes.com/2022/04/20/business/supply-chain-california-farmers.html?searchResultPosition=9
 
-**New Jersey Diocese Agrees to Settle Sex Abuse Claims for $87.5 Million**\
-`The settlement with the Camden diocese is among the largest such agreements involving the Catholic Church in the United States.`\
-https://nytimes.com/2022/04/19/nyregion/nj-diocese-sex-abuse-settlement.html?searchResultPosition=10
+**With Inflation, Workers Are Facing Return-to-Office Sticker Shock**\
+`The cost of a daily routine — travel, coffee, food — is far pricier than it was when offices shut down two years ago.`\
+https://nytimes.com/2022/04/20/business/return-to-office-inflation-covid.html?searchResultPosition=10
 
