@@ -31,7 +31,7 @@ https://nytimes.com/2022/04/20/world/australia/china-solomon-islands-security-pa
 https://nytimes.com/2022/04/20/podcasts/the-daily/transgender-teenagers-clinic-texas.html?searchResultPosition=8
 
 **In the fog of dementia, one grandmother learns again and again that her country is at war.**\
-`Millions of Ukrainians have been displaced since the war started. Many who have stayed behind are elderly or disabled, and unable or unwilling to leave their homes.`\
+`Millions of Ukrainians have been displaced since the war started. Many elderly or disabled people have been unable or unwilling to leave their homes.`\
 https://nytimes.com/2022/04/20/world/dementia-grandparent.html?searchResultPosition=9
 
 **6 Rohingya Refugees Are Killed Fleeing Detention Center in Malaysia**\
