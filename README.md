@@ -8,7 +8,7 @@ https://nytimes.com/2022/04/20/us/politics/trump-hotel-sale.html?searchResultPos
 
 **Dede Robertson, Wife and Partner of Pat Robertson, Dies at 94**\
 `A founding board member of the Christian Broadcasting Network, she also campaigned for her husband when he ran for president in 1988.`\
-https://nytimes.com/2022/04/20/us/dede-robertson-wife-and-partner-of-pat-robertson-dies-at-94.html?searchResultPosition=3
+https://nytimes.com/2022/04/20/us/dede-robertson-dead.html?searchResultPosition=3
 
 **Virus cases are rising in New York, but Hochul says it’s hard to predict what form the ‘bump’ might take.**\
 `Gov. Kathy Hochul warned that the state could be seeing the beginning of another spike in coronavirus cases, this one driven by two new versions of the Omicron variant.`\
