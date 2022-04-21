@@ -1,6 +1,6 @@
 **Ex-Honduran President Extradited to United States to Face Drug Charges**\
 `Juan Orlando Hernández, who stepped down in January, left the country for New York on Thursday after failed attempts to block the U.S. government’s extradition request.`\
-https://nytimes.com/2022/04/21/nyregion/honduras-president-extradition.html?searchResultPosition=1
+https://nytimes.com/2022/04/21/nyregion/honduras-juan-orlando-hernandez-extradition.html?searchResultPosition=1
 
 **Alexander Wang Returns to the Runway**\
 `The designer attempted a comeback with his first show since 2019 and allegations of sexual misconduct. But this time, there was no after-party.`\
