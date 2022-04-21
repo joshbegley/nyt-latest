@@ -1,5 +1,5 @@
 **Israel and Gaza Militants Exchange Fire in Worst Fighting in Months**\
-`The flare-up followed a rise tensions over holy places in Jerusalem and a deadly wave of Arab attacks in Israel, answered by a lethal Israeli crackdown in the occupied West Bank.`\
+`The flare-up followed a rise in tensions over holy places in Jerusalem and a deadly wave of Arab attacks in Israel, answered by a lethal Israeli crackdown in the occupied West Bank.`\
 https://nytimes.com/2022/04/21/world/middleeast/israel-gaza-rocket-fire.html?searchResultPosition=1
 
 **If Biden’s Plan Is Like a ‘New Deal,’ Why Don’t Voters Care?**\
