@@ -20,7 +20,7 @@ https://nytimes.com/2022/04/21/business/disney-florida-special-tax-status.html?s
 
 **Pissarro Seized by Nazis to Be Sold at Auction After Families Settle**\
 `The painting, which had been left behind by a Jewish couple who left Germany as Hitler rose to power, is to be sold in May at Christie’s.`\
-https://nytimes.com/2022/04/21/arts/design/pissarro-seized-by-nazis-auction.html?searchResultPosition=6
+https://nytimes.com/2022/04/21/arts/design/pissarro-nazis-auction.html?searchResultPosition=6
 
 **‘The Northman’ Review: Danish Premodern**\
 `Alexander Skarsgard, Anya Taylor-Joy and Nicole Kidman star in Robert Eggers’s bloody Viking revenge saga.`\
