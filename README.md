@@ -1,5 +1,5 @@
 **Daryle Lamonica, Hard-Throwing Quarterback, Is Dead at 80**\
-`Known as the Mad Bomber for his powerful arm, he led the Oakland Raiders to the Super Bowl and was among pro football’s leading passers in the late 1960s and early ’70s.`\
+`Known as the Mad Bomber for his powerful arm, he led the Oakland Raiders to the Super Bowl and was among pro football’s top passers in the late 1960s and early ’70s.`\
 https://nytimes.com/2022/04/21/sports/football/daryle-lamonica-dead.html?searchResultPosition=1
 
 **Weekly Health Quiz: Allergies, Alzheimer's and Omicron**\
