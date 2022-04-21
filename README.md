@@ -31,7 +31,7 @@ https://nytimes.com/2022/04/21/us/politics/rhode-island-house-race-democrats.htm
 https://nytimes.com/2022/04/21/opinion/elon-musk-twitter-funding.html?searchResultPosition=8
 
 **Obama calls for more regulatory oversight of social media giants.**\
-`Tech companies’ power has “turbocharged” political division and requires government scrutiny, the former president said in a speech at Stanford University.`\
+`Tech companies’ power has “turbocharged” political division and requires government scrutiny, former President Barack Obama said at Stanford.`\
 https://nytimes.com/2022/04/21/technology/obama-stanford-tech-regulation.html?searchResultPosition=9
 
 **Boy, 6, Critically Hurt After Plunging Down Elevator Shaft in the Bronx**\
