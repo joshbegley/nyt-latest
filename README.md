@@ -1,6 +1,6 @@
 **Jay Wright, Hall of Fame Villanova Basketball Coach, Retires**\
 `A head coach since 1994, Wright, 60, had a .695 career winning percentage across tenures at Hofstra and Villanova. His 21-season career at Villanova included national titles in 2016 and 2018.`\
-https://nytimes.com/2022/04/20/sports/ncaabasketball/jay-wright-hall-of-fame-villanova-basketball-coach-retires.html?searchResultPosition=1
+https://nytimes.com/2022/04/20/sports/ncaabasketball/jay-wright-villanova-retires.html?searchResultPosition=1
 
 **Corrections: April 21, 2022**\
 `Corrections that appeared in print on Thursday, April 21, 2022.`\
