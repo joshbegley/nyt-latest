@@ -24,7 +24,7 @@ https://nytimes.com/2022/04/20/theater/for-colored-girls-review-ntozake-shange.h
 
 **Macron and Le Pen Trade Punches in Pivotal Debate on France’s Future**\
 `He attacked the far-right leader as a Putin stooge. She hit back at him as the president of division and contempt.`\
-https://nytimes.com/2022/04/20/world/europe/macron-lepen-debate.html?searchResultPosition=7
+https://nytimes.com/2022/04/20/world/europe/macron-le-pen-france-election-debate.html?searchResultPosition=7
 
 **See Mariupol’s Azovstal steel-mill fortress in peacetime, and then after nearly two months of war.**\
 `Before-and-after images show the scale of destruction that the Ukrainian port city has suffered after nearly two months of near constant bombardment by Russian artillery, mortars and airstrikes.`\
