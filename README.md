@@ -22,19 +22,19 @@ https://nytimes.com/video/us/politics/100000008314084/janet-yellen-supply-chains
 `For two years, the staff of the National Women’s History Museum has collected journals to capture women’s experiences. Here’s a sliver of the 500 entries.`\
 https://nytimes.com/2022/04/21/arts/design/women-coronavirus-pandemic-journals.html?searchResultPosition=6
 
+**The U.S. will outfit five artillery battalions for Ukraine and provide new drones that explode on impact.**\
+`The Biden administration is sending dozens of howitzers and 120 drones in the latest $800 million package of military aid.`\
+https://nytimes.com/2022/04/21/world/europe/us-weapons-ukraine.html?searchResultPosition=7
+
 **Mikhail Vasenkov Dies at 79; His Spy Ring Inspired ‘The Americans’**\
 `He and his wife were among 10 Soviet sleeper agents who blended into American society before being exposed and deported in 2010. The TV series sprung from the episode.`\
-https://nytimes.com/2022/04/21/world/europe/mikhail-vasenkov-dead.html?searchResultPosition=7
+https://nytimes.com/2022/04/21/world/europe/mikhail-vasenkov-dead.html?searchResultPosition=8
 
 **‘A Very British Scandal’ Review: Claire Foy Gives Up the Crown**\
 `The actress known for her young Elizabeth II returns as a noblewoman with a startlingly different story.`\
-https://nytimes.com/2022/04/21/arts/television/a-very-british-scandal-review.html?searchResultPosition=8
+https://nytimes.com/2022/04/21/arts/television/a-very-british-scandal-review.html?searchResultPosition=9
 
 **Delta says it will allow people who refused to obey mask rules to get off its no-fly list.**\
 `As of February, the company had put nearly 1,900 people on its list.`\
-https://nytimes.com/2022/04/21/us/delta-mask-no-fly.html?searchResultPosition=9
-
-**Former C.I.A.-Run Prison Emerges as a New Front in Guantánamo’s Legal Saga**\
-`Defense lawyers have been visiting Camp 7, which was emptied a year ago. Its remnants are still classified, but they say what they saw was disturbing.`\
-https://nytimes.com/2022/04/21/us/politics/cia-prison-gitmo.html?searchResultPosition=10
+https://nytimes.com/2022/04/21/us/delta-mask-no-fly.html?searchResultPosition=10
 
