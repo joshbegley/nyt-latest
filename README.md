@@ -1,5 +1,5 @@
 **U.S. Extradites Former Honduran President**\
-`Merrick Garland, the U.S. attorney general, announced the extradition of former Honduran president Juan O. Hernández, whom he described as operating a “narco state” during his tenure, on federal drug trafficking charges.`\
+`Merrick Garland, the U.S. attorney general, announced the extradition of former Honduran president Juan Orlando Hernández, whom he described as operating a “narco state” during his tenure, on federal drug trafficking charges.`\
 https://nytimes.com/video/world/americas/100000008314745/honduras-president-hernandez-charges.html?searchResultPosition=1
 
 **N.Y. House Districts Illegally Favor Democrats, Appeals Court Rules**\
