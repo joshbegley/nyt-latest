@@ -1,40 +1,40 @@
-**Israel and Gaza Militants Exchange Fire in Worst Fighting in Months**\
-`The flare-up followed a rise in tensions over holy places in Jerusalem and a deadly wave of Arab attacks in Israel, answered by a lethal Israeli crackdown in the occupied West Bank.`\
-https://nytimes.com/2022/04/21/world/middleeast/israel-gaza-rocket-fire.html?searchResultPosition=1
+**Is New York Headed for a Higher Covid Risk Level?**\
+`The city could be close to raising its risk level, and the state could be seeing a new spike in coronavirus cases.`\
+https://nytimes.com/2022/04/21/nyregion/is-new-york-headed-for-a-higher-covid-risk-level.html?searchResultPosition=1
 
-**If Biden’s Plan Is Like a ‘New Deal,’ Why Don’t Voters Care?**\
-`The $1.9 trillion pandemic-relief law unleashed a massive wave of spending on local construction projects and programs. Democratic candidates aren’t getting much credit.`\
-https://nytimes.com/2022/04/21/us/politics/biden-pandemic-relief-democrats.html?searchResultPosition=2
+**When It Comes to Cameras and Wallpaper, Bold Is Better**\
+`Advice for buying a home security system, reviving vintage pieces, finding furniture that supports a restless work style and sprucing up your walls.`\
+https://nytimes.com/2022/04/21/style/design-advice.html?searchResultPosition=2
 
-**The Next It Bag?**\
-`Kerby Jean-Raymond of Pyer Moss gets into the accessories game.`\
-https://nytimes.com/2022/04/21/style/kerby-jean-raymond-pyer-moss-handbags-shoes.html?searchResultPosition=3
+**Furnishing the Home Office for the Long Haul**\
+`A dozen products offer choices for remote workers who intend to stay that way.`\
+https://nytimes.com/2022/04/21/garden/work-from-home-office-furniture.html?searchResultPosition=3
 
-**What’s the Big Deal About a Woman Being Bald?**\
-`Hair is a potent symbol of self, of gender, of subversion. To renounce it can be just as powerful.`\
-https://nytimes.com/2022/04/21/style/jada-pinkett-smith-shaved-heads-women.html?searchResultPosition=4
+**The Best Smart-Home Devices for Aging in Place Comfortably**\
+`It may all sound terrifyingly high-tech, but take comfort: If you can use a smartphone app, you can use any of these modern tools.`\
+https://nytimes.com/2022/04/21/realestate/best-smart-home-devices-for-seniors.html?searchResultPosition=4
 
-**Shaved Heads Have People Buzzing**\
-`A shaved head still has the power to shock.`\
-https://nytimes.com/2022/04/21/style/shaved-heads-have-people-buzzing.html?searchResultPosition=5
+**5 Things to Do This Weekend**\
+`Our critics and writers have selected noteworthy cultural events to experience virtually and in person in New York City.`\
+https://nytimes.com/2022/04/21/arts/things-to-do-this-weekend.html?searchResultPosition=5
 
-**A Sports Brand for Spiritualists**\
-`District Vision wants to meld the inner and the outer life of athletes.`\
-https://nytimes.com/2022/04/21/style/a-sports-brand-for-spiritualists.html?searchResultPosition=6
+**New Memoirs Bristling with Wit, Warmth and Spiky Intelligence**\
+`Three authors turn the lens on their own bodies and minds.`\
+https://nytimes.com/2022/04/21/books/review/easy-beauty-chloe-cooper-jones-pathological-sarah-fay-the-perfect-other-kyleigh-leddy.html?searchResultPosition=6
 
-**The Shock of Chopping Up a Chanel Bag**\
-`A show of righteous patriotism or a display of heedless privilege?`\
-https://nytimes.com/2022/04/21/style/the-shock-of-chopping-up-a-chanel-bag.html?searchResultPosition=7
+**Democrats Fear for Democracy. Why Aren’t They Running on It in 2022?**\
+`Republicans are far more energized about the issues of elections and voting, powered by a former president and many base voters who believe the 2020 contest was illegitimate.`\
+https://nytimes.com/2022/04/21/us/politics/democrats-democracy-election.html?searchResultPosition=7
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/04/21/crosswords/spelling-bee-forum.html?searchResultPosition=8
+**Why Recording Her Book Was a ‘Vulnerable Experience’ for Viola Davis**\
+`“I felt I was living through those moments with every word I spoke,” the Oscar-winning actor says of her new memoir, “Finding Me.”`\
+https://nytimes.com/2022/04/21/books/review/viola-davis-memoir-finding-me.html?searchResultPosition=8
 
-**Quotation of the Day: The Power and Shock of the Buzz Cut**\
-`Quotation of the Day for Thursday, April 21, 2022.`\
-https://nytimes.com/2022/04/21/todayspaper/quotation-of-the-day-the-power-and-shock-of-the-buzz-cut.html?searchResultPosition=9
+**Chika Has Never Lost Sight of Her Dream**\
+`Even when the rapper is taking a break from work, she has the urge to get up in the middle of the night and record in her home studio.`\
+https://nytimes.com/2022/04/21/t-magazine/chika.html?searchResultPosition=9
 
-**Younger Than It Looks, but No More Diverse: France’s Top Theater Prize**\
-`At the Molières, France’s equivalent of the Tony Awards, commercial and publicly funded productions seem to inhabit different worlds.`\
-https://nytimes.com/2022/04/21/theater/moliere-theater-awards.html?searchResultPosition=10
+**‘I’ve Had It With This Guy’: G.O.P. Leaders Privately Blasted Trump After Jan. 6**\
+`In the days after the attack, Representative Kevin McCarthy planned to tell Mr. Trump to resign. Senator Mitch McConnell told allies impeachment was warranted. But their fury faded fast.`\
+https://nytimes.com/2022/04/21/us/politics/trump-mitch-mcconnell-kevin-mccarthy.html?searchResultPosition=10
 
