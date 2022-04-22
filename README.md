@@ -1,40 +1,40 @@
-**1922: Sight of Women Smoking A Cigar Shocks Paris**\
-`Two women who shared a Havana cigar in a Parisian restaurant reportedly caused a stir.`\
-https://nytimes.com/2022/04/22/world/europe/1922-women-smoking-cigars.html?searchResultPosition=1
+**A Rare Position for Mercedes: Playing Catch-up**\
+`The team has won eight consecutive titles, but Ferrari has shot ahead with its new car.`\
+https://nytimes.com/2022/04/22/sports/autoracing/formula-1-mercedes-car.html?searchResultPosition=1
 
-**New Zealand Deal May Put Japan Closer to ‘Five Eyes’ Intelligence Alliance**\
-`The two countries announced a goal of “seamless” sharing of classified information as China moves to expand its influence in the Asia-Pacific region.`\
-https://nytimes.com/2022/04/22/world/asia/new-zealand-japan-intelligence.html?searchResultPosition=2
+**A New Day Dawns for Marijuana in New Jersey**\
+`“I’m very picky when it comes to my weed,” said a customer at a Paterson dispensary on the first day of legal recreational marijuana sales in the state.`\
+https://nytimes.com/2022/04/22/nyregion/a-new-day-dawns-for-marijuana-in-new-jersey.html?searchResultPosition=2
 
-**Le Pen Closer Than Ever to the French Presidency (and to Putin)**\
-`As elections approach Sunday, the far-right candidate is linked to the Russian president by a web of financial ties and a history of support that has hardly dimmed despite the war in Ukraine.`\
-https://nytimes.com/2022/04/22/world/europe/le-pen-putin-france-election.html?searchResultPosition=3
+**Taking Senegalese Soccer to New Heights, With Pride and Style**\
+`Aliou Cissé, one of the best of a new generation of African coaches, has reinvented Senegal’s national team and given the country a new sense of patriotism. His next goal: the World Cup.`\
+https://nytimes.com/2022/04/22/world/europe/aliou-cisse-soccer-senegal.html?searchResultPosition=3
 
-**‘Polar Bear’ Review: On Thin Ice**\
-`This Disneynature documentary traces one female polar bear’s journey from cub to mother.`\
-https://nytimes.com/2022/04/22/movies/polar-bear-review-on-thin-ice.html?searchResultPosition=4
+**How Arcade Fire Found a Way Back**\
+`After a meteoric rise that built a passionate fan base, the band had trouble connecting on its last album. A new release, “We,” links the group’s past to its hopes for the future.`\
+https://nytimes.com/2022/04/22/arts/music/arcade-fire-we.html?searchResultPosition=4
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/04/22/crosswords/spelling-bee-forum.html?searchResultPosition=5
+**A Look Inside the Textbooks That Florida Rejected**\
+`The state rejected dozens of math textbooks. The New York Times reviewed 21 of them to figure out why.`\
+https://nytimes.com/2022/04/22/us/florida-rejected-textbooks.html?searchResultPosition=5
 
-**Jimmy Fallon Mocks Rudy Giuliani’s ‘Masked Singer’ Appearance**\
-`Fallon joked that “the C.D.C. reinstated the mask mandate” after seeing the performance.`\
-https://nytimes.com/2022/04/22/arts/television/jimmy-fallon-rudy-giuliani-the-masked-singer.html?searchResultPosition=6
+**In Polarized Texas, Rare Accord: A Hispanic Mother Shouldn’t Be Executed**\
+`The execution of Melissa Lucio would be the first of a Hispanic woman in Texas. New evidence casts doubt on her conviction.`\
+https://nytimes.com/2022/04/22/us/melissa-lucio-texas-execution.html?searchResultPosition=6
 
-**Word of the Day: vernal**\
-`This word has appeared in 12 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/04/22/learning/word-of-the-day-vernal.html?searchResultPosition=7
+**Covid Drugs Save Lives, but Americans Can’t Get Them**\
+`Once again, a dysfunctional health care system has hindered our pandemic response.`\
+https://nytimes.com/2022/04/22/opinion/covid-pandemic-drugs-treatment.html?searchResultPosition=7
 
-**Corrections: April 22, 2022**\
-`Corrections that appeared in print on Friday, April 22, 2022.`\
-https://nytimes.com/2022/04/22/pageoneplus/corrections-april-22-2022.html?searchResultPosition=8
+**As Europe Approves New Tech Laws, the U.S. Falls Further Behind**\
+`Federal privacy bills, security legislation and antitrust laws to address the power of the tech giants have all failed to advance in Congress, despite hand wringing and shows of bipartisan support.`\
+https://nytimes.com/2022/04/22/technology/tech-regulation-europe-us.html?searchResultPosition=8
 
-**Quotation of the Day: Florida Cuts Tax District for Disney**\
-`Quotation of the Day for Friday, April 22, 2022.`\
-https://nytimes.com/2022/04/22/todayspaper/quotation-of-the-day-florida-cuts-tax-district-for-disney.html?searchResultPosition=9
+**A Beginner’s Guide to Bouldering**\
+`People are flocking back to indoor rock climbing gyms for the intense workouts and amiable social scene. It’s not as hard as it looks.`\
+https://nytimes.com/2022/04/22/well/move/fitness-bouldering-rock-climbing.html?searchResultPosition=9
 
-**Macron May Keep the Presidency, but Le Pen Has Already Won**\
-`The French election has shown the vigor and entrenchment of the far right.`\
-https://nytimes.com/2022/04/22/opinion/emmanuel-macron-marine-le-pen.html?searchResultPosition=10
+**One Last Push: Climate Activists to Rally at White House and Across U.S.**\
+`‘Fight for Our Future’ rallies are planned Saturday for Washington, Atlanta, Phoenix and elsewhere as supporters say time is running out for ambitious climate action.`\
+https://nytimes.com/2022/04/22/climate/climate-rally-biden.html?searchResultPosition=10
 
