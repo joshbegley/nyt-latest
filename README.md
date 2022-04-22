@@ -1,4 +1,4 @@
-**Guy Lafleur, Dynamic Star of the Montreal Canadien, Dies at 70**\
+**Guy Lafleur, Dynamic Star of the Montreal Canadiens, Dies at 70**\
 `He helped lead the team to five Stanley Cup titles and was the first player in N.H.L. history to score at least 50 goals and 100 points in six consecutive years.`\
 https://nytimes.com/2022/04/22/sports/hockey/guy-lafleur-dead.html?searchResultPosition=1
 
