@@ -1,5 +1,5 @@
 **How a Race-Based Medical Formula Is Keeping Some Black Men in Prison**\
-`The formula, which helps estimate kidney health, has been discarded by many hospitals. But some judges still use it to decide whether to free prison inmates potentially endangered by Covid-19.`\
+`The formula, which helps estimate kidney health, has been discarded by many hospitals. But some judges still use it to decide whether to release those potentially endangered by Covid-19.`\
 https://nytimes.com/2022/04/22/nyregion/prison-kidney-federal-courts-race.html?searchResultPosition=1
 
 **4 Ways to Fortify Your Retirement Against Market Whims**\
