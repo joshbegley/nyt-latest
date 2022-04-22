@@ -1,5 +1,5 @@
 **Stocks tumble as jitters over the Fed persist, with the S&P 500 heading for a third weekly loss.**\
-`Recent comments from Fed officials, including Chair Jerome H. Powell, have fueled expectations that interest rates will climb far faster than anyone thought even a few weeks ago.`\
+`Wall Street was on track for its worst daily decline since early March, Recent comments from Fed officials have fueled expectations that interest rates will climb far faster than anyone thought even a few weeks ago.`\
 https://nytimes.com/2022/04/22/business/stocks-tumble-interest-rate.html?searchResultPosition=1
 
 **‘The Northman’ Wasn’t Easy to Make. But That’s How Robert Eggers Likes It.**\
