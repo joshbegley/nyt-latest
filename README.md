@@ -19,7 +19,7 @@ https://nytimes.com/2022/04/22/opinion/inflation-recession-federal-reserve.html?
 https://nytimes.com/2022/04/22/arts/music/jack-danish-string-quartet.html?searchResultPosition=5
 
 **Citing improving conditions, Philadelphia lifts its short-lived mask mandate.**\
-`The change comes four days after Philadelphia became the first major American city to reinstate an indoor mask mandate in response to rising virus cases.`\
+`The change comes four days after Philadelphia became the first major American city to reinstate an indoor mask mandate in response to rising virus cases this spring.`\
 https://nytimes.com/2022/04/22/us/philadelphia-mask-mandate.html?searchResultPosition=6
 
 **How Recycling Got So Baffling**\
