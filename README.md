@@ -12,7 +12,7 @@ https://nytimes.com/2022/04/21/crosswords/variety-acrostic.html?searchResultPosi
 
 **Soak Up the Sun**\
 `Daniel Sheremeta makes his New York Times Crossword debut.`\
-https://nytimes.com/2022/04/21/crosswords/soak-up-the-sun.html?searchResultPosition=4
+https://nytimes.com/2022/04/21/crosswords/daily-puzzle-2022-04-22.html?searchResultPosition=4
 
 **Pentagon Details U.S. Defense Aid to Ukraine**\
 `The additional $800 million in U.S. defense aid would equip five Ukrainian artillery battalions and include new attack drones, John F. Kirby, the Pentagon spokesman, said.`\
