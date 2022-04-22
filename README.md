@@ -11,7 +11,7 @@ https://nytimes.com/2022/04/22/us/politics/mccarthy-trump-republicans.html?searc
 https://nytimes.com/2022/04/22/us/politics/marjorie-taylor-greene-jan-6-insurrectionist.html?searchResultPosition=3
 
 **Punishing Disney, DeSantis Signals a Lasting G.O.P. Brawl With Business**\
-`Gov. Ron DeSantis’s move to revoke the company’s special tax status in Florida illustrated how combative his party has grown toward large corporations that criticize its policies.`\
+`Gov. Ron DeSantis’s move to revoke the company’s special tax status in Florida showed how combative his party has grown toward corporations that are increasingly taking a stand on political issues.`\
 https://nytimes.com/2022/04/22/us/politics/desantis-disney-florida.html?searchResultPosition=4
 
 **Love Letter: A Rat and a Reunion**\
