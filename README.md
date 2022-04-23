@@ -1,6 +1,6 @@
 **26 Missing From Japanese Tour Boat After Distress Call off Hokkaido**\
 `The sightseeing vessel was on a three-hour round trip tour to the tip of Cape Shiretoko. The Japan Coast Guard had dispatched rescue boats and aircraft to the area near the Kashuni Falls.`\
-https://nytimes.com/2022/04/23/world/asia/japan-missing-boat-hokkaido.html?searchResultPosition=1
+https://nytimes.com/2022/04/23/world/asia/tour-boat-missing-japan-hokkaido.html?searchResultPosition=1
 
 **Welcome to the Disorderly, Dangerous World of Expensive Oil and Gas**\
 `The global energy crisis will get worse before it gets better.`\
