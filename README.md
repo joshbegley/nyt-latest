@@ -7,7 +7,7 @@ https://nytimes.com/2022/04/22/crosswords/daily-puzzle-2022-04-23.html?searchRes
 https://nytimes.com/2022/04/22/books/review/podcast-liana-finck-let-there-be-light-jonathan-van-ness-love-that-story.html?searchResultPosition=2
 
 **Police Respond to Shooting in Washington, D.C.**\
-`Officers responded to the 2900 block of Van Ness Street N.W., off Connecticut Avenue, and were conducting sweeps through the area, the police said.`\
+`A gunman opened fire on the 2900 block of Van Ness Street N.W., leaving four people wounded. The suspect was found dead in his apartment, the police said.`\
 https://nytimes.com/video/us/100000008316549/washington-dc-shooting.html?searchResultPosition=3
 
 **Federal labor board says Activision employees can hold a union election.**\
