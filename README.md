@@ -30,8 +30,8 @@ https://nytimes.com/2022/04/23/world/europe/missile-strikes-odesa-ukraine.html?s
 `The sightseeing vessel was on a three-hour round trip tour to the tip of Cape Shiretoko. The Japan Coast Guard had dispatched rescue boats and aircraft to the area near the Kashuni Falls.`\
 https://nytimes.com/2022/04/23/world/asia/tour-boat-missing-japan-hokkaido.html?searchResultPosition=8
 
-**Welcome to the Disorderly, Dangerous World of Expensive Oil and Gas**\
-`The global energy crisis will get worse before it gets better.`\
+**It’s Not Just High Oil Prices. It’s a Full-Blown Energy Crisis.**\
+`And it will get worse before it gets better.`\
 https://nytimes.com/2022/04/23/opinion/oil-gas-energy-prices-russia-ukraine.html?searchResultPosition=9
 
 **Why We Can’t Get Our Story of Covid Straight**\
