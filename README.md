@@ -3,7 +3,7 @@
 https://nytimes.com/2022/04/23/crosswords/daily-puzzle-2022-04-24.html?searchResultPosition=1
 
 **Filing Provides New Details on Trump White House Planning for Jan. 6**\
-`Testimony disclosed by the House committee investigating the riot showed that Mark Meadows and Freedom Caucus members discussed directing marchers to the Capitol as Congress certified the election results.`\
+`Testimony disclosed by the House committee investigating the attack showed that Mark Meadows and Freedom Caucus members discussed directing marchers to the Capitol as Congress certified the election results.`\
 https://nytimes.com/2022/04/23/us/politics/trump-meadows-freedom-caucus-jan-6.html?searchResultPosition=2
 
 **Charges Dropped Against Tennessee Woman Who Was Jailed Over Voter Fraud**\
