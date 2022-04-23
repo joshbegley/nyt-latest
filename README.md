@@ -6,7 +6,7 @@ https://nytimes.com/2022/04/23/sports/baseball/miguel-cabrera-3000-hits.html?sea
 `Norms surrounding tattoos in Japan are slowly but steadily changing, especially among the younger generation.`\
 https://nytimes.com/interactive/2022/04/23/world/asia/japan-tattoo-norms.html?searchResultPosition=2
 
-**Ukrainians cling to Easter traditions in the shadow of a devastating war.**\
+**Ukrainians lean on Easter traditions in the shadow of a devastating war.**\
 `In Lviv, residents had laid bouquets of flowers at the feet of a statue of the Virgin Mary, next to piles of white sandbags protecting the statue from bombings.`\
 https://nytimes.com/2022/04/23/world/europe/ukrainian-easter-traditions.html?searchResultPosition=3
 
