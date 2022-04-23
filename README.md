@@ -1,40 +1,40 @@
-**Searching for the ‘Vibe Shift’ at Coachella**\
-`Unchecked optimism, for better or worse.`\
-https://nytimes.com/2022/04/23/style/searching-for-the-vibe-shift-at-coachella.html?searchResultPosition=1
+**Chinatown’s Civic Groups Have Held Developers at Bay. Can They Survive?**\
+`The groups have held back gentrification in an area surrounded by development. The future of one of Manhattan’s few working-class neighborhoods is at stake.`\
+https://nytimes.com/2022/04/23/nyregion/chinatown-new-york-real-estate.html?searchResultPosition=1
 
-**Rattled by Ukraine War, Moldova Strives to Dodge Russia’s Long Shadow**\
-`Moldova’s destiny has been intertwined uncomfortably with Russia’s for years, and the Ukraine invasion has accelerated its efforts to break free from Moscow.`\
-https://nytimes.com/2022/04/23/world/europe/moldova-ukraine-russia.html?searchResultPosition=2
+**Why the Road Is Getting Even Rockier for First-Time Home Buyers**\
+`Investors and corporations are buying up houses and turning them into rental properties. In Charlotte, N.C., that is adding to the hurdles facing would-be buyers navigating a brutal market.`\
+https://nytimes.com/2022/04/23/us/corporate-real-estate-investors-housing-market.html?searchResultPosition=2
 
-**The Drive to Vaccinate the World Against Covid Is Losing Steam**\
-`Rates are stalling in most low-income countries well short of the W.H.O.’s goal to immunize 70 percent of people in every nation. Some public health experts believe the momentum is gone forever.`\
-https://nytimes.com/2022/04/23/health/covid-vaccines-word-africa.html?searchResultPosition=3
+**A New Set of Tastemakers Finds Inspiration in Shakers**\
+`Though the faith currently comprises one active community with two congregants, Shakerism’s ideals have found new acolytes in the food, fashion, art and design worlds.`\
+https://nytimes.com/2022/04/23/style/shaker-religion-art-fashion.html?searchResultPosition=3
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/04/23/crosswords/spelling-bee-forum.html?searchResultPosition=4
+**Mask Ruling Underscores Deep Split in Attitudes**\
+`Many readers of The Times said a judge’s decision to strike down the mask mandate on public transportation was “political” and “outrageous.” Others called it a relief.`\
+https://nytimes.com/2022/04/23/health/mask-mandate-transportation-response.html?searchResultPosition=4
 
-**Meadows Was Warned Jan. 6 Could Turn Violent, House Panel Says**\
-`The committee investigating the attack also said in a filing that the former White House chief of staff proceeded with a plan for “alternate electors” despite being told it wasn’t legally sound.`\
-https://nytimes.com/2022/04/23/us/politics/mark-meadows-jan-6-trump.html?searchResultPosition=5
+**Alice Walker Has ‘No Regrets’**\
+`Walker has grappled with some of the thorniest issues of 20th-century America. She’s also taken troubling stances. She has now opened up and shared her diaries, giving readers a window into her life.`\
+https://nytimes.com/2022/04/23/arts/alice-walker-book.html?searchResultPosition=5
 
-**Corrections: April 23, 2022**\
-`Corrections that appeared in print on Saturday, April 23, 2022.`\
-https://nytimes.com/2022/04/23/pageoneplus/corrections-april-23-2022.html?searchResultPosition=6
+**The End of the All-Male, All-White Cockpit**\
+`Airlines are struggling to find enough pilots and to diversify a profession that has been very resistant to change.`\
+https://nytimes.com/2022/04/23/business/pilots-diversity.html?searchResultPosition=6
 
-**Quotation of the Day: Homeroom on the Job**\
-`Quotation of the Day for Saturday, April 23, 2022.`\
-https://nytimes.com/2022/04/23/todayspaper/quotation-of-the-day-homeroom-on-the-job.html?searchResultPosition=7
+**Coach’s Prayers Prompt Supreme Court Test of Religious Freedom**\
+`Joseph Kennedy, a football coach at a public high school in Washington State, lost his job after praying on the 50-yard line after games.`\
+https://nytimes.com/2022/04/23/us/supreme-court-football-coach-prayer.html?searchResultPosition=7
 
-**Read the Jan. 6 Committee’s Filing in Its Lawsuit With Mark Meadows**\
-`The committee alleged that Mark Meadows, the final chief of staff for President Donald J.`\
-https://nytimes.com/interactive/2022/04/23/us/mark-meadows-jan-6-committee-lawsuit-filing.html?searchResultPosition=8
+**These Parties Start With a Blank Canvas (and a Little Cannabis)**\
+`New York State is mapping out plans to license venues for on-site recreational marijuana use, but some places have already figured out how to get the ball rolling.`\
+https://nytimes.com/2022/04/23/nyregion/nyc-marijuana-nightlife-weed-cannabis.html?searchResultPosition=8
 
-**Man Charged With Threatening Merriam-Webster Over Gender Definitions**\
-`The man, Jeremy David Hanson, 34, threatened in October to shoot and bomb the company’s offices because of its definitions of “girl,” “boy,” “trans woman” and other words, federal authorities said.`\
-https://nytimes.com/2022/04/22/us/merriam-webster-threats-lgbtq.html?searchResultPosition=9
+**My Neighbor’s Hoarding Is Befouling the Building. What Can We Do?**\
+`Residents are entitled to safe and habitable living conditions, despite a neighbor’s mental health struggles. You may have to act forcefully.`\
+https://nytimes.com/2022/04/23/realestate/neighbor-hoarding-dementia.html?searchResultPosition=9
 
-**Olmsted’s Enduring Gift**\
-`The man behind many of the nation’s beloved public spaces, Frederick Law Olmsted, was born 200 years ago on April 26. His creations are more essential to modern American life than ever.`\
-https://nytimes.com/interactive/2022/04/22/us/frederick-law-olmsted-american-parks.html?searchResultPosition=10
+**Exploring the Health Effects of Ageism**\
+`Through more than three decades of research, the Yale psychologist Becca Levy has demonstrated that age discrimination can take years off one’s life.`\
+https://nytimes.com/2022/04/23/health/ageism-levy-elderly.html?searchResultPosition=10
 
