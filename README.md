@@ -15,7 +15,7 @@ https://nytimes.com/2022/04/23/opinion/biden-putin-ukraine-genocide.html?searchR
 https://nytimes.com/2022/04/23/climate/climate-change-rally-white-house.html?searchResultPosition=4
 
 **A ‘Catalyst’ From the Start, Miguel Cabrera Reaches 3,000 Hits**\
-`Cabrera’s first manager recalls his star pupil being a player who was always in the middle of things. On Saturday, Cabrera collected hits 3,000 and 3,001 of his 20-year career.`\
+`Cabrera’s first manager recalls his star pupil always being in the middle of things. On Saturday, Cabrera collected hits 3,000 and 3,001 of his 20-year career.`\
 https://nytimes.com/2022/04/23/sports/baseball/miguel-cabrera-3000-hits.html?searchResultPosition=5
 
 **Shifting Norms on Tattoos in Japan**\
