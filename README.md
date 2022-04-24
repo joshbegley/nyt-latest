@@ -20,7 +20,7 @@ https://nytimes.com/2022/04/24/us/wildfires-arizona-new-mexico.html?searchResult
 
 **Emmanuel Macron is re-elected French president, defeating Marine Le Pen.**\
 `By Roger Cohen`\
-https://nytimes.com/2022/04/24/world/europe/emmanuel-macron-france-election-marine-le-pen.html?searchResultPosition=6
+https://nytimes.com/live/2022/04/24/world/french-election-runoff-results/emmanuel-macron-france-election-marine-le-pen?searchResultPosition=6
 
 **Review: Joyce DiDonato’s ‘Eden’ Takes Root at Carnegie Hall**\
 `The star mezzo-soprano’s new concert program seeks to restore humanity’s connection to the natural world.`\
