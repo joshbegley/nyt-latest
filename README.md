@@ -22,19 +22,19 @@ https://nytimes.com/2022/04/24/world/europe/emmanuel-macron-france-election-mari
 `The star mezzo-soprano’s new concert program seeks to restore humanity’s connection to the natural world.`\
 https://nytimes.com/2022/04/24/arts/music/joyce-didonato-eden-review.html?searchResultPosition=6
 
+**Turbulence or tradition? What to expect once the election ends.**\
+`By Aurelien Breeden`\
+https://nytimes.com/2022/04/24/world/europe/turbulence-or-tradition-what-to-expect-once-the-election-ends.html?searchResultPosition=7
+
 **Demolishing City of the Dead Will Displace a Lively Quarter of Cairo**\
 `Cairo’s oldest cemetery is being razed, and thousands of families living amid the grand mausoleums face eviction. “You’re not at ease when you’re living. You’re not at ease even when you’re dead.”`\
-https://nytimes.com/2022/04/24/world/middleeast/00cairo-cemetery-city-of-dead.html?searchResultPosition=7
+https://nytimes.com/2022/04/24/world/middleeast/00cairo-cemetery-city-of-dead.html?searchResultPosition=8
 
 **With Us or With Them? In a New Cold War, How About Neither.**\
 `Old geopolitical foes are facing off after Russia’s invasion of Ukraine, but much of the world is refusing to take sides.`\
-https://nytimes.com/2022/04/24/world/asia/cold-war-ukraine.html?searchResultPosition=8
+https://nytimes.com/2022/04/24/world/asia/cold-war-ukraine.html?searchResultPosition=9
 
 **The Nets Need a Miracle. Or Two. Or Three. Or Four.**\
 `No N.B.A. team has won a playoff series after losing the first three games. That’s the Nets’ challenge now, and Kyrie Irving and Kevin Durant don’t look ready.`\
-https://nytimes.com/2022/04/24/sports/basketball/nets-celtics-kevin-durant.html?searchResultPosition=9
-
-**Review: In ‘Lucia’ at the Met, a Modern Woman Comes Undone**\
-`Simon Stone’s new staging of Donizetti’s classic opera updates the work to a present-day American town — hold (some of) the madness.`\
-https://nytimes.com/2022/04/24/arts/music/lucia-di-lammermoor-met-opera.html?searchResultPosition=10
+https://nytimes.com/2022/04/24/sports/basketball/nets-celtics-kevin-durant.html?searchResultPosition=10
 
