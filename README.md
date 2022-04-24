@@ -34,7 +34,7 @@ https://nytimes.com/2022/04/24/world/middleeast/00cairo-cemetery-city-of-dead.ht
 `Old geopolitical foes are facing off after Russia’s invasion of Ukraine, but much of the world is refusing to take sides.`\
 https://nytimes.com/2022/04/24/world/asia/cold-war-ukraine.html?searchResultPosition=9
 
-**The Nets Need a Miracle. Or Two. Or Three. Or Four.**\
-`No N.B.A. team has won a playoff series after losing the first three games. That’s the Nets’ challenge now, and Kyrie Irving and Kevin Durant don’t look ready.`\
-https://nytimes.com/2022/04/24/sports/basketball/nets-celtics-kevin-durant.html?searchResultPosition=10
+**How hated is Macron? The answer could decide the presidency.**\
+`By Norimitsu Onishi and Constant Méheut`\
+https://nytimes.com/2022/04/24/world/europe/how-hated-is-macron-the-answer-could-decide-the-presidency.html?searchResultPosition=10
 
