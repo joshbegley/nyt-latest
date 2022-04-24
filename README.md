@@ -1,5 +1,5 @@
 **Emmanuel Macron is re-elected French president, defeating Marine Le Pen.**\
-`Early projections at the close of voting, which are generally reliable, showed Mr. Macron, a centrist, gaining 58.2 percent of the vote to Ms. Le Pen’s 41.8 percent.`\
+`Mr. Macron, who held off a challenge from the far right, is the first incumbent president to win re-election in France since 2002.`\
 https://nytimes.com/2022/04/24/world/europe/emmanuel-macron-france-election-marine-le-pen.html?searchResultPosition=1
 
 **Review: Joyce DiDonato’s ‘Eden’ Takes Root at Carnegie Hall**\
