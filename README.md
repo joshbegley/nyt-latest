@@ -14,7 +14,7 @@ https://nytimes.com/2022/04/24/nyregion/eric-adams-homeless-services.html?search
 `After not escaping the second inning last week against Detroit, Gerrit Cole pitched into the seventh and got plenty of run support in a win over Cleveland.`\
 https://nytimes.com/2022/04/24/sports/baseball/yankees-sweep-cleveland-guardians-gerrit-cole.html?searchResultPosition=4
 
-**U.S. Officials Reported to Make Top-Secret Visit to Ukraine**\
+**U.S. Officials Make Top-Secret Visit to Ukraine**\
 `The American government refused to comment on reports that Secretary of State Antony J. Blinken and Defense Secretary Lloyd J. Austin III had traveled to Ukraine to meet with its leaders.`\
 https://nytimes.com/2022/04/24/world/europe/blinken-austin-ukraine-visit.html?searchResultPosition=5
 
