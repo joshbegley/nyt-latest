@@ -1,6 +1,6 @@
 **Jim Hartz, NBC Newsman and Former ‘Today’ Co-Host, Dies at 82**\
 `His role as Barbara Walters’s on-air partner lasted only two years, but viewers knew him for three decades as a correspondent, anchor and TV host.`\
-https://nytimes.com/2022/04/24/obituaries/jim-hartz-dead.html?searchResultPosition=1
+https://nytimes.com/2022/04/24/business/media/jim-hartz-dead.html?searchResultPosition=1
 
 **Some voters in a wealthy Paris suburb consider backing Le Pen.**\
 `In Neuilly-sur-Seine, an upscale city west of Paris, Marine Le Pen may gain the votes of those who had supported Éric Zemmour.`\
