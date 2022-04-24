@@ -4,7 +4,7 @@ https://nytimes.com/2022/04/24/podcasts/the-daily/american-billionaires-sunday-r
 
 **The Limits of ‘Lived Experience’**\
 `Privileging only those voices with a stake in a story carries its own risks.`\
-https://nytimes.com/2022/04/24/opinion/lived-experience-culture.html?searchResultPosition=2
+https://nytimes.com/2022/04/24/opinion/lived-experience-empathy-culture.html?searchResultPosition=2
 
 **‘No Regrets’ Is a Terrible Mantra for Life**\
 `What the extraordinary performance of a 63-year-old runner shows about the power of regret.`\
