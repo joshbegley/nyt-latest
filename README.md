@@ -27,7 +27,7 @@ https://nytimes.com/2022/04/23/health/mental-health-crisis-teens.html?searchResu
 https://nytimes.com/video/science/100000007871187/mental-health-pandemic-teens.html?searchResultPosition=7
 
 **Orrin Hatch, Seven-Term Senator and a Republican Force, Dies at 88**\
-`Overcoming poverty and representing Utah, he become a powerful figure in Washington, helping to build a conservative majority on the Supreme Court.`\
+`Overcoming poverty and representing Utah, he became a powerful figure in Washington, helping to build a conservative majority on the Supreme Court.`\
 https://nytimes.com/2022/04/23/us/politics/orrin-hatch-dead.html?searchResultPosition=8
 
 **Magazine Racket**\
