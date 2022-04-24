@@ -11,7 +11,7 @@ https://nytimes.com/2022/04/24/us/missing-texas-national-guard-soldier.html?sear
 https://nytimes.com/2022/04/24/world/asia/modi-kashmir-india.html?searchResultPosition=3
 
 **Ukrainians Celebrate Orthodox Easter Amid War**\
-`In the shadow of a devastating war, worshippers in Kyiv, Ukraine’s capital, attended services on the holiest day of the year for Orthodox Christians.`\
+`In the shadow of a devastating war, worshipers in Kyiv, Ukraine’s capital, attended services on the holiest day of the year for Orthodox Christians.`\
 https://nytimes.com/video/world/europe/100000008317490/kyiv-orthodox-easter-ukraine.html?searchResultPosition=4
 
 **Ukrainians in Mariupol’s steel mill are holding on, despite intensifying attacks, a commander tells The Times.**\
