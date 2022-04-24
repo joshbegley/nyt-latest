@@ -26,8 +26,8 @@ https://nytimes.com/2022/04/24/us/wildfires-arizona-new-mexico.html?searchResult
 `The star mezzo-soprano’s new concert program seeks to restore humanity’s connection to the natural world.`\
 https://nytimes.com/2022/04/24/arts/music/joyce-didonato-eden-review.html?searchResultPosition=7
 
-**Turbulence or tradition? What to expect once the election ends.**\
-`By Aurelien Breeden`\
+**What to expect now that Mr. Macron has won.**\
+`The political focus will now shift to parliamentary elections in June.`\
 https://nytimes.com/2022/04/24/world/europe/turbulence-or-tradition-what-to-expect-once-the-election-ends.html?searchResultPosition=8
 
 **Demolishing City of the Dead Will Displace a Lively Quarter of Cairo**\
