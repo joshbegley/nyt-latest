@@ -19,7 +19,7 @@ https://nytimes.com/2022/04/24/podcasts/the-daily/american-billionaires-sunday-r
 https://nytimes.com/2022/04/24/opinion/lived-experience-empathy-culture.html?searchResultPosition=5
 
 **A 63-Year-Old Runner Changed the Way I Think About Regret**\
-`What the extraordinary performance of a 63-year-old runner shows about the power of regret.`\
+`Mariko Yugeta’s comeback story shows that regret doesn’t have to drag us down.`\
 https://nytimes.com/2022/04/24/opinion/culture/no-regrets-mariko-yugeta.html?searchResultPosition=6
 
 **At Least 10 Dead After Tour Boat Sinks in Japan**\
