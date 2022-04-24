@@ -7,7 +7,7 @@ https://nytimes.com/2022/04/23/us/nebraska-wildfire-death.html?searchResultPosit
 https://nytimes.com/2022/04/23/insider/teen-mental-health-sources.html?searchResultPosition=2
 
 **‘It’s Life or Death’: The Mental Health Crisis Among U.S. Teens**\
-`By Matt Richtel and Annie Flanagan`\
+`Depression, self-harm and suicide are rising among American adolescents. For M, a 13-year-old in Minnesota, the despair was almost too much to take.`\
 https://nytimes.com/2022/04/23/health/mental-health-crisis-teens.html?searchResultPosition=3
 
 **Worried Sick: A Journey Into the Anxious Teenage Mind**\
