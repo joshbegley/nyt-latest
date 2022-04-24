@@ -18,7 +18,7 @@ https://nytimes.com/2022/04/24/podcasts/the-daily/american-billionaires-sunday-r
 `Privileging only those voices with a stake in a story carries its own risks.`\
 https://nytimes.com/2022/04/24/opinion/lived-experience-empathy-culture.html?searchResultPosition=5
 
-**‘No Regrets’ Is a Terrible Mantra for Life**\
+**A 63-Year-Old Runner Changed the Way I Think About Regret**\
 `What the extraordinary performance of a 63-year-old runner shows about the power of regret.`\
 https://nytimes.com/2022/04/24/opinion/culture/no-regrets-mariko-yugeta.html?searchResultPosition=6
 
