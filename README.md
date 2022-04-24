@@ -3,7 +3,7 @@
 https://nytimes.com/2022/04/24/sports/basketball/nets-celtics-kevin-durant.html?searchResultPosition=1
 
 **Review: In ‘Lucia’ at the Met, a Modern Woman Comes Undone**\
-`Simon Stone’s new staging of Donizetti’s classic opera updates the work to a present-day American town — hold (some) of the madness.`\
+`Simon Stone’s new staging of Donizetti’s classic opera updates the work to a present-day American town — hold (some of) the madness.`\
 https://nytimes.com/2022/04/24/arts/music/lucia-di-lammermoor-met-opera.html?searchResultPosition=2
 
 **Jim Hartz, NBC Newsman and Former ‘Today’ Co-Host, Dies at 82**\
