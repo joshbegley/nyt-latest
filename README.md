@@ -11,7 +11,7 @@ https://nytimes.com/video/world/europe/100000008317490/kyiv-orthodox-easter-ukra
 https://nytimes.com/2022/04/24/world/europe/ukrainian-forces-mariupol-steel-plant.html?searchResultPosition=3
 
 **Wildfires Burn More Than 100,000 Acres in Three States**\
-`Wildfires in Arizona, Nebraska and New Mexico have left at least one person dead, burned more than 103,000 acres and destroyed hundreds of structures.`\
+`Wildfires in Arizona, Nebraska and New Mexico have left at least one person dead and destroyed hundreds of structures.`\
 https://nytimes.com/2022/04/24/us/wildfires-arizona-new-mexico.html?searchResultPosition=4
 
 **Emmanuel Macron is re-elected French president, defeating Marine Le Pen.**\
