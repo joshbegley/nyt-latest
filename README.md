@@ -15,7 +15,7 @@ https://nytimes.com/2022/04/24/world/europe/ukrainian-forces-mariupol-steel-plan
 https://nytimes.com/2022/04/24/us/wildfires-arizona-new-mexico.html?searchResultPosition=4
 
 **Emmanuel Macron is re-elected French president, defeating Marine Le Pen.**\
-`Mr. Macron, who held off a challenge from the far right, is the first incumbent president to win re-election in France since 2002.`\
+`By Roger Cohen`\
 https://nytimes.com/2022/04/24/world/europe/emmanuel-macron-france-election-marine-le-pen.html?searchResultPosition=5
 
 **Review: Joyce DiDonato’s ‘Eden’ Takes Root at Carnegie Hall**\
