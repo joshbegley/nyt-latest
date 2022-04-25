@@ -23,7 +23,7 @@ https://nytimes.com/2022/04/25/sports/soccer/villarreal-liverpool-champions-leag
 https://nytimes.com/2022/04/25/business/china-supply-chain-covid.html?searchResultPosition=6
 
 **Rosé Season Is Around the Corner**\
-`Get a subscription from Parcelle Wine for three bottles of a month from May to September.`\
+`Get a subscription from Parcelle Wine for three bottles a month from May to September.`\
 https://nytimes.com/2022/04/25/dining/parcelle-wine-rose-wine.html?searchResultPosition=7
 
 **Learn About the Chef James Hemings at the Africa Center**\
