@@ -10,8 +10,8 @@ https://nytimes.com/2022/04/25/briefing/your-tuesday-briefing-elon-musk-buys-twi
 `The government most commonly intervenes when a company is buying a competitor.`\
 https://nytimes.com/2022/04/25/technology/elon-musk-twitter-regulators.html?searchResultPosition=3
 
-**‘Rust’ Investigators Say They Await Ballistics and Phone Evidence**\
-`The criminal investigation of Alec Baldwin’s fatal shooting of a cinematographer on a film set cannot be completed without the evidence, the Santa Fe County sheriff said.`\
+**‘Rust’ Investigators Release Crime Scene Photos, Await Key Evidence**\
+`The criminal investigation of Alec Baldwin’s fatal shooting of a cinematographer on a film set cannot be completed without key ballistics and other evidence, the Santa Fe County sheriff said.`\
 https://nytimes.com/2022/04/25/arts/rust-alec-baldwin-investigation.html?searchResultPosition=4
 
 **Sweet and Squishy as Ever, the Gummy Universe Keeps Expanding**\
