@@ -4,7 +4,7 @@ https://nytimes.com/2022/04/25/business/tech-earnings-business.html?searchResult
 
 **A Tiny Brontë Book, Sold for $1.25 Million, to Return Home**\
 `A miniature book by the 13-year-old Charlotte Brontë, containing perhaps her last unseen poems, has been purchased by a charity and will be donated to the Brontë Parsonage Museum.`\
-https://nytimes.com/2022/04/25/arts/design/a-tiny-bronte-book-sold-for-1-25-million-to-return-home.html?searchResultPosition=2
+https://nytimes.com/2022/04/25/arts/design/charlotte-bronte-book-of-rhymes.html?searchResultPosition=2
 
 **France’s Larger Meaning**\
 `Emmanuel Macron won, but radical politics isn’t going away.`\
