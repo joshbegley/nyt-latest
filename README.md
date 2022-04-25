@@ -3,7 +3,7 @@
 https://nytimes.com/2022/04/24/world/africa/sudan-darfur-janjaweed.html?searchResultPosition=1
 
 **In a First for the Air Force, a General Is Convicted of Sex Abuse**\
-`Maj. Gen. William T. Cooley faces up to seven years in prison and dismissal from the Air Force.`\
+`After court-martial, Maj. Gen. William T. Cooley faces up to seven years in prison and dismissal from the Air Force.`\
 https://nytimes.com/2022/04/24/us/air-force-major-general-convicted.html?searchResultPosition=2
 
 **Mayor Proposes 1,400 Shelter Beds to Move Homeless People Off Streets**\
