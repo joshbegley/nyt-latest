@@ -1,40 +1,40 @@
+**U.S. Wants Russia ‘Weakened’**\
+`The defense secretary’s remarks reflect an emboldened U.S. approach to the war.`\
+https://nytimes.com/2022/04/25/briefing/russia-ukraine-war-us.html?searchResultPosition=1
+
+**Emmanuel Macron, Victorious, Searches for Reinvention**\
+`France seems in search of a kinder, gentler, greener President Macron. He says he will listen.`\
+https://nytimes.com/2022/04/25/world/europe/emmanuel-macron-france-reelection-reinvention.html?searchResultPosition=2
+
+**L. McCrae Dowless Jr., 66, Dies; Operative at Heart of Election Scandal**\
+`Federal prosecutors charged him with absentee-ballot tampering in North Carolina, and the state ordered a historic rerun of a federal election.`\
+https://nytimes.com/2022/04/25/us/politics/l-mccrae-dowless-dead.html?searchResultPosition=3
+
 **Supreme Court Allows Elite High School’s New Admissions Rules**\
 `A group including parents of Asian American students challenged the new criteria at Thomas Jefferson High School for Science and Technology in Virginia.`\
-https://nytimes.com/2022/04/25/us/politics/supreme-court-admissions-race.html?searchResultPosition=1
+https://nytimes.com/2022/04/25/us/politics/supreme-court-admissions-race.html?searchResultPosition=4
 
 **Your Tuesday Briefing: Elon Musk Buys Twitter**\
 `Plus a lockdown looms over Beijing and the U.S. flexes in Ukraine.`\
-https://nytimes.com/2022/04/25/briefing/your-tuesday-briefing-elon-musk-buys-twitter.html?searchResultPosition=2
+https://nytimes.com/2022/04/25/briefing/your-tuesday-briefing-elon-musk-buys-twitter.html?searchResultPosition=5
 
 **Regulators are unlikely to block Musk’s purchase of Twitter, former officials say.**\
 `The government most commonly intervenes when a company is buying a competitor.`\
-https://nytimes.com/2022/04/25/technology/elon-musk-twitter-regulators.html?searchResultPosition=3
+https://nytimes.com/2022/04/25/technology/elon-musk-twitter-regulators.html?searchResultPosition=6
 
 **‘Rust’ Investigators Release Crime Scene Photos, Await Key Evidence**\
 `The criminal investigation of Alec Baldwin’s fatal shooting of a cinematographer on a film set cannot be completed without key ballistics and other evidence, the Santa Fe County sheriff said.`\
-https://nytimes.com/2022/04/25/arts/rust-alec-baldwin-investigation.html?searchResultPosition=4
+https://nytimes.com/2022/04/25/arts/rust-alec-baldwin-investigation.html?searchResultPosition=7
 
 **Sweet and Squishy as Ever, the Gummy Universe Keeps Expanding**\
 `On its 100th anniversary, the colorful candy has evolved from dancing bears to a booming industry — and for some, a bountiful obsession.`\
-https://nytimes.com/2022/04/25/dining/haribo-gummy-bear.html?searchResultPosition=5
+https://nytimes.com/2022/04/25/dining/haribo-gummy-bear.html?searchResultPosition=8
 
 **Biden Adviser Cedric Richmond Is Leaving the White House**\
 `The former Louisiana congressman is expected to step down next month. He will be one of the first White House senior advisers to leave as Democrats brace for a difficult midterm election.`\
-https://nytimes.com/2022/04/25/us/politics/cedric-richmond-biden-white-house.html?searchResultPosition=6
+https://nytimes.com/2022/04/25/us/politics/cedric-richmond-biden-white-house.html?searchResultPosition=9
 
 **Chris Bailey, Who Gave Australia Punk Rock, Dies at 65**\
 `He and the Saints introduced the country (and later the world) to their own raw sound just as the Sex Pistols were emerging in London and the Ramones in New York.`\
-https://nytimes.com/2022/04/25/arts/music/chris-bailey-dead.html?searchResultPosition=7
-
-**F.A.A. Investigating Crash After Midair Pilot-Swapping Stunt**\
-`Luke Aikins and Andy Farrington planned to send their Cessna 182 planes into tandem nosedives and then jump out midair to switch planes.`\
-https://nytimes.com/2022/04/25/us/red-bull-plane-swap-crash-arizona.html?searchResultPosition=8
-
-**Have We Forgotten Where We Are From?**\
-`The things we create are better when they come out of a specific, lived context.`\
-https://nytimes.com/2022/04/25/opinion/global-art-music.html?searchResultPosition=9
-
-**Emmanuel Macron’s Win Was Also a Win for Louis Vuitton**\
-`Brigitte Macron continues to champion the brand.`\
-https://nytimes.com/2022/04/25/style/brigitte-macron-louis-vuitton-election.html?searchResultPosition=10
+https://nytimes.com/2022/04/25/arts/music/chris-bailey-dead.html?searchResultPosition=10
 
