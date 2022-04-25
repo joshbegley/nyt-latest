@@ -26,15 +26,15 @@ https://nytimes.com/2022/04/25/opinion/biden-trump-mccarthy-desantis.html?search
 `As is true throughout rural Japan, many of the once-vibrant villages on Honshu’s Kii Peninsula are aging into nothingness.`\
 https://nytimes.com/2022/04/25/travel/japan-kii-peninsula-pilgrimage-routes.html?searchResultPosition=7
 
-**How Zelensky Ended Political Discord and Put Ukraine on a War Footing**\
-`Ukrainian politics were known for sharp-elbowed infighting. But as he defends his country against the Russian invasion, President Volodymyr Zelensky has his government presenting a unified front.`\
-https://nytimes.com/2022/04/25/world/europe/ukraine-zelenksy-government.html?searchResultPosition=8
-
 **Get Ready For the New, Improved Second**\
 `Scientists are preparing to redefine the fundamental unit of time. It won’t get any longer or shorter, but it will be more precise — and a whole lot more powerful.`\
-https://nytimes.com/2022/04/25/science/time-second-measurement.html?searchResultPosition=9
+https://nytimes.com/2022/04/25/science/time-second-measurement.html?searchResultPosition=8
 
 **Rapid Inflation, Lower Employment: How the U.S. Pandemic Response Measures Up**\
 `The United States spent more on its policy response than other advanced economies. Now economists are revisiting how that worked.`\
-https://nytimes.com/2022/04/25/business/economy/us-global-inflation-response.html?searchResultPosition=10
+https://nytimes.com/2022/04/25/business/economy/us-global-inflation-response.html?searchResultPosition=9
+
+**Amid a Rise in Shootings, New York’s Children Confront a Wave of Grief**\
+`At least 40 children and teenagers have been shot this year, taking a toll on young people whose lives have already been disrupted by the pandemic.`\
+https://nytimes.com/2022/04/25/nyregion/nyc-gun-violence-children.html?searchResultPosition=10
 
