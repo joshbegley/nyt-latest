@@ -7,7 +7,7 @@ https://nytimes.com/2022/04/25/dining/haribo-gummy-bear.html?searchResultPositio
 https://nytimes.com/2022/04/25/us/politics/cedric-richmond-biden-white-house.html?searchResultPosition=2
 
 **Chris Bailey, Who Gave Australia Punk Rock, Dies at 65**\
-`He and the Saints introduced the country (and later the world) to their own raw sound as the Sex Pistols were emerging in London and the Ramones in New York City.`\
+`He and the Saints introduced the country (and later the world) to their own raw sound just as the Sex Pistols were emerging in London and the Ramones in New York.`\
 https://nytimes.com/2022/04/25/arts/music/chris-bailey-dead.html?searchResultPosition=3
 
 **F.A.A. Investigating Crash After Midair Pilot-Swapping Stunt**\
