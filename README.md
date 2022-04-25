@@ -12,7 +12,7 @@ https://nytimes.com/video/world/asia/100000008318506/covid-beijing-panic-buy-loc
 
 **State Court Rejects Kansas Congressional Map as a Gerrymander**\
 `The Republican-drawn map intentionally split strongholds of Democratic and Black voters, a judge ruled. The State Supreme Court will review the decision.`\
-https://nytimes.com/2022/04/25/us/politics/kansas-congressional-map.html?searchResultPosition=4
+https://nytimes.com/2022/04/25/us/politics/kansas-congressional-map-unconstitutional.html?searchResultPosition=4
 
 **‘Luzifer’ Review: Finding the Devil in Everything**\
 `A son must save his ailing mother in this disturbing, ambitious religious thriller.`\
