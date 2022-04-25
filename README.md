@@ -1,6 +1,6 @@
 **Biden Must Halt Any Resumption of Pre-Covid Border Policy, Judge Says**\
 `Under a public health rule known as Title 42, thousands of migrants have been expelled at the border. A federal judge is halting efforts to begin lifting the policy, due to end on May 23.`\
-https://nytimes.com/2022/04/25/us/title-42-migrants-court.html?searchResultPosition=1
+https://nytimes.com/2022/04/25/us/title-42-migrants-biden-border.html?searchResultPosition=1
 
 **Johnny Depp and Amber Heard’s Fight Left Home Damaged, Witness Says**\
 `At the trial in the defamation case filed by Mr. Depp, a property manager gave vivid descriptions of how one 2015 fight left behind blood and broken fixtures.`\
