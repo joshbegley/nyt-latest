@@ -1,40 +1,40 @@
-**Cities Want to Return to Prepandemic Life. One Obstacle: Transit Crime.**\
-`Crime rates on trains and buses are up in some of the nation’s biggest cities, one more barrier for downtowns trying to rebound.`\
-https://nytimes.com/2022/04/25/us/public-transit-crime.html?searchResultPosition=1
+**Remember When Kevin McCarthy Had ‘Had It’ With Trump?**\
+`And does mean that Ron DeSantis won’t be taking his kids to Disney world anymore?`\
+https://nytimes.com/2022/04/25/opinion/biden-trump-mccarthy-desantis.html?searchResultPosition=1
 
-**After a Rocky First Year, a Cautious Garland Finds His Footing**\
-`For all of the attention on the Justice Department’s investigation into the Jan. 6 attack, Mr. Garland has focused on the everyday work of being the attorney general.`\
-https://nytimes.com/2022/04/25/us/politics/merrick-garland-attorney-general.html?searchResultPosition=2
+**A Long Walk in a Fading Corner of Japan**\
+`As is true throughout rural Japan, many of the once-vibrant villages on Honshu’s Kii Peninsula are aging into nothingness.`\
+https://nytimes.com/2022/04/25/travel/japan-kii-peninsula-pilgrimage-routes.html?searchResultPosition=2
 
-**Warren Buffett Faces Renewed Climate Change Challenge by Investors**\
-`Mr. Buffett has pushed back against investors who want to force Berkshire Hathaway to do more to reduce greenhouse gas emissions.`\
-https://nytimes.com/2022/04/25/business/energy-environment/warren-buffett-climate-change.html?searchResultPosition=3
+**How Zelensky Ended Political Discord and Put Ukraine on a War Footing**\
+`Ukrainian politics were known for sharp-elbowed infighting. But as he defends his country against the Russian invasion, President Volodymyr Zelensky has his government presenting a unified front.`\
+https://nytimes.com/2022/04/25/world/europe/ukraine-zelenksy-government.html?searchResultPosition=3
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/04/25/crosswords/spelling-bee-forum.html?searchResultPosition=4
+**Rapid Inflation, Lower Employment: How the U.S. Pandemic Response Measures Up**\
+`The United States spent more on its policy response than other advanced economies. Now economists are revisiting how that worked.`\
+https://nytimes.com/2022/04/25/business/economy/us-global-inflation-response.html?searchResultPosition=4
 
-**Seeking Arms for Ukraine, Pentagon Buyers Scour Eastern European Factories**\
-`Soviet-designed ammunition is part of the ‘life blood’ for Ukrainian troops fighting Russia, and the United States is keeping it flowing.`\
-https://nytimes.com/2022/04/25/us/ukraine-pentagon-arms-buyers.html?searchResultPosition=5
+**Amid a Rise in Shootings, New York’s Children Confront a Wave of Grief**\
+`At least 40 children and teenagers have been shot this year, taking a toll on young people whose lives have already been disrupted by the pandemic.`\
+https://nytimes.com/2022/04/25/nyregion/nyc-gun-violence-children.html?searchResultPosition=5
 
-**Jon Stewart, Who Revolutionized Political Satire, Wins Humor Award**\
-`The ceremony for the Mark Twain Prize, one of comedy’s top honors, celebrated Mr. Stewart’s achievements on “The Daily Show” and his activism on behalf of veterans and 9/11 emergency workers.`\
-https://nytimes.com/2022/04/25/arts/jon-stewart-mark-twain-prize.html?searchResultPosition=6
+**Get Ready For the New, Improved Second**\
+`Scientists are preparing redefine the fundamental unit of time. It won’t get any longer or shorter, but it will be more precise — and a whole lot more powerful.`\
+https://nytimes.com/2022/04/25/science/time-second-measurement.html?searchResultPosition=6
 
-**Putin Used Conspiracy Theories Before. Now He Seems to Believe Them.**\
-`The gap between conspiracy theory and state policy has vanished.`\
-https://nytimes.com/2022/04/25/opinion/putin-russia-conspiracy-theories.html?searchResultPosition=7
+**‘Crisis Actors’? Where Have I Heard That Before?**\
+`A journalist in The Times’s Washington bureau explains how some terms used by the Kremlin to deny evidence of atrocities in Ukraine originated here at home.`\
+https://nytimes.com/2022/04/25/insider/crisis-actors-where-have-i-heard-that-before.html?searchResultPosition=7
 
-**What’s on TV This Week: ‘We Own This City’ and the N.F.L. Draft**\
-`“We Own This City,” from an executive producer of “The Wire,” premieres on HBO, and N.F.L. teams select new players in a multiday draft.`\
-https://nytimes.com/2022/04/25/arts/television/whats-on-tv-we-own-this-city-nfl-draft.html?searchResultPosition=8
+**Covid Lockdowns Revive the Ghosts of a Planned Economy**\
+`China is meddling with free enterprise as it hasn’t in decades. The results are familiar to those old enough to remember: scarcity, and the rise of black markets.`\
+https://nytimes.com/2022/04/25/business/china-covid-zero-economy.html?searchResultPosition=8
 
-**Putin Is Pushing Finland and Sweden Into NATO’s Arms**\
-`There is a window of opportunity for the two countries to join the alliance. They should seize it.`\
-https://nytimes.com/2022/04/25/opinion/finland-sweden-join-nato.html?searchResultPosition=9
+**Library of Congress Acquires Neil Simon Papers**\
+`The collection of approximately 7,700 items, donated by Simon’s widow, includes dozens of unfinished shows, including a screenplay written for Bette Midler and Whoopi Goldberg.`\
+https://nytimes.com/2022/04/25/theater/neil-simon-archives.html?searchResultPosition=9
 
-**No Corrections: April 25, 2022**\
-`No corrections appeared in print on Monday, April 25, 2022.`\
-https://nytimes.com/2022/04/25/pageoneplus/no-corrections-april-25-2022.html?searchResultPosition=10
+**How Good Is Your Sense of Direction?**\
+`Do you use your own internal compass to get from place to place? Or do you depend on a smartphone map?`\
+https://nytimes.com/2022/04/25/learning/learning-network-sense-direction.html?searchResultPosition=10
 
