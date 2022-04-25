@@ -1,40 +1,40 @@
+**Putin congratulates Emmanuel Macron on his election victory in France.**\
+`Mr. Macron’s opponent, Marine Le Pen, was seen in Russia as a potential game-changing option, amid the threat of new sanctions over the war in Ukraine.`\
+https://nytimes.com/2022/04/25/world/europe/putin-macron-french-election.html?searchResultPosition=1
+
 **Anxiety and Anger Grows Among Children Affected by Shootings**\
 `“I find it really hard to admit that I’m in pain,” said a 14-year-old whose school friend was fatally shot.`\
-https://nytimes.com/2022/04/25/nyregion/anxiety-and-anger-grows-among-children-affected-by-shootings.html?searchResultPosition=1
+https://nytimes.com/2022/04/25/nyregion/anxiety-and-anger-grows-among-children-affected-by-shootings.html?searchResultPosition=2
 
 **U.S. Says It Wants Russian Military ‘Weakened’**\
 `Secretary of Defense Lloyd J. Austin III and Secretary of State Antony J. Blinken spoke to reporters Monday after a trip to Ukraine. Mr. Austin said the United States hopes to see Russia’s military capabilities reduced so that “it can’t do the kinds of things that it has done in invading Ukraine.”`\
-https://nytimes.com/video/world/europe/100000008318163/ukraine-russia-austin-blinken.html?searchResultPosition=2
+https://nytimes.com/video/world/europe/100000008318163/ukraine-russia-austin-blinken.html?searchResultPosition=3
 
 **Four People Fatally Stabbed in London**\
 `A suspect was in custody Monday morning, and the police say they believe the attacker and the victims knew each other.`\
-https://nytimes.com/2022/04/25/world/europe/london-stabbing-deaths.html?searchResultPosition=3
+https://nytimes.com/2022/04/25/world/europe/london-stabbing-deaths.html?searchResultPosition=4
 
 **Remember When Kevin McCarthy Had ‘Had It’ With Trump?**\
 `And does mean that Ron DeSantis won’t be taking his kids to Disney world anymore?`\
-https://nytimes.com/2022/04/25/opinion/biden-trump-mccarthy-desantis.html?searchResultPosition=4
+https://nytimes.com/2022/04/25/opinion/biden-trump-mccarthy-desantis.html?searchResultPosition=5
 
 **A Long Walk in a Fading Corner of Japan**\
 `As is true throughout rural Japan, many of the once-vibrant villages on Honshu’s Kii Peninsula are aging into nothingness.`\
-https://nytimes.com/2022/04/25/travel/japan-kii-peninsula-pilgrimage-routes.html?searchResultPosition=5
+https://nytimes.com/2022/04/25/travel/japan-kii-peninsula-pilgrimage-routes.html?searchResultPosition=6
 
 **How Zelensky Ended Political Discord and Put Ukraine on a War Footing**\
 `Ukrainian politics were known for sharp-elbowed infighting. But as he defends his country against the Russian invasion, President Volodymyr Zelensky has his government presenting a unified front.`\
-https://nytimes.com/2022/04/25/world/europe/ukraine-zelenksy-government.html?searchResultPosition=6
+https://nytimes.com/2022/04/25/world/europe/ukraine-zelenksy-government.html?searchResultPosition=7
 
 **Get Ready For the New, Improved Second**\
 `Scientists are preparing to redefine the fundamental unit of time. It won’t get any longer or shorter, but it will be more precise — and a whole lot more powerful.`\
-https://nytimes.com/2022/04/25/science/time-second-measurement.html?searchResultPosition=7
+https://nytimes.com/2022/04/25/science/time-second-measurement.html?searchResultPosition=8
 
 **Rapid Inflation, Lower Employment: How the U.S. Pandemic Response Measures Up**\
 `The United States spent more on its policy response than other advanced economies. Now economists are revisiting how that worked.`\
-https://nytimes.com/2022/04/25/business/economy/us-global-inflation-response.html?searchResultPosition=8
+https://nytimes.com/2022/04/25/business/economy/us-global-inflation-response.html?searchResultPosition=9
 
 **Amid a Rise in Shootings, New York’s Children Confront a Wave of Grief**\
 `At least 40 children and teenagers have been shot this year, taking a toll on young people whose lives have already been disrupted by the pandemic.`\
-https://nytimes.com/2022/04/25/nyregion/nyc-gun-violence-children.html?searchResultPosition=9
-
-**‘Crisis Actors’? Where Have I Heard That Before?**\
-`A journalist in The Times’s Washington bureau explains how some terms used by the Kremlin to deny evidence of atrocities in Ukraine originated here at home.`\
-https://nytimes.com/2022/04/25/insider/crisis-actors-where-have-i-heard-that-before.html?searchResultPosition=10
+https://nytimes.com/2022/04/25/nyregion/nyc-gun-violence-children.html?searchResultPosition=10
 
