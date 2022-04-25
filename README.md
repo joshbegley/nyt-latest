@@ -4,7 +4,7 @@ https://nytimes.com/2022/04/25/world/europe/russian-oil-facility-fire-ukraine.ht
 
 **$2.2 Million Homes in California**\
 `A Spanish-style home in Los Angeles, a three-bedroom condominium in San Francisco and a midcentury ranch house in Kentfield.`\
-https://nytimes.com/2022/04/25/realestate/2-2-million-homes-in-california.html?searchResultPosition=2
+https://nytimes.com/2022/04/25/realestate/los-angeles-san-francisco-houses-for-sale.html?searchResultPosition=2
 
 **What You Get for $2.2 Million in California**\
 `A Spanish-style home in Los Angeles, a three-bedroom condominium in San Francisco and a midcentury ranch house in Kentfield.`\
