@@ -30,7 +30,7 @@ https://nytimes.com/2022/04/25/opinion/global-art-music.html?searchResultPositio
 `Brigitte Macron continues to champion the brand.`\
 https://nytimes.com/2022/04/25/style/brigitte-macron-louis-vuitton-election.html?searchResultPosition=8
 
-**Texas Court Halts Execution of Hispanic Mother**\
+**Texas Court Halts Execution of Mother Convicted of Killing Child**\
 `Melissa Lucio had long maintained her innocence. New evidence and expert testimony emerged casting strong doubt on her guilt.`\
 https://nytimes.com/2022/04/25/us/melissa-lucio-execution-texas.html?searchResultPosition=9
 
