@@ -34,7 +34,7 @@ https://nytimes.com/2022/04/25/dining/serafina-cookbook.html?searchResultPositio
 `It’s hard to say exactly when tuna and potato chips teamed up in this childhood favorite, J. Kenji López-Alt writes, but its deliciousness is certain.`\
 https://nytimes.com/2022/04/25/dining/tuna-salad-sandwich-chips.html?searchResultPosition=9
 
-**Trump Media adds former Devin Nunes aides, Donald Jr. and “Apprentice” contestant as officers.**\
-`Mr. Nunes, stepped down from his House seat in January to become chief executive of Trump Media. Wes Moss, a financial adviser and a contestant on “The Apprentice,” is also now a director.`\
+**Trump Media adds former Devin Nunes aides, Donald Jr. and ‘Apprentice’ contestant as officers.**\
+`Mr. Nunes stepped down from his House seat in January to become chief executive of Trump Media. Wes Moss, a financial adviser and a contestant on “The Apprentice,” is also now a director.`\
 https://nytimes.com/2022/04/25/business/trump-media-truth-social.html?searchResultPosition=10
 
