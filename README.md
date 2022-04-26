@@ -2,8 +2,8 @@
 `Known formally as the Migrant Protection Protocols, the program, adopted during the Trump administration, requires some migrants to wait in Mexico while their cases are heard.`\
 https://nytimes.com/2022/04/26/us/politics/supreme-court-remain-in-mexico.html?searchResultPosition=1
 
-**Vaccines for young children are being delayed by incomplete applications, a top F.D.A. official suggests.**\
-`Moderna and the Pfizer-BioNTech partnership are developing versions of their coronavirus vaccines for children under 5, with emergency-use filings expected in the next several weeks.`\
+**Vaccines for young children are being delayed by incomplete data, a top F.D.A. official suggests.**\
+`Moderna and the Pfizer-BioNTech partnership are developing versions of their coronavirus vaccines for children under 5, with emergency-use filings expected soon.`\
 https://nytimes.com/2022/04/26/us/politics/vaccine-children-fda-pfizer-moderna.html?searchResultPosition=2
 
 **Donald Baechler, Painter of Cartoonish Collages, Is Dead at 65**\
