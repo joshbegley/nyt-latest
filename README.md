@@ -31,7 +31,7 @@ https://nytimes.com/2022/04/26/us/politics/senate-democrats-covid-murphy-wyden.h
 https://nytimes.com/2022/04/26/world/europe/explosions-transnistria-moldova-war.html?searchResultPosition=8
 
 **Microsoft reports rising revenue and profits, despite war and inflation.**\
-`It’s $49.4 billion in sales in the first quarter was up 18 percent from a year earlier.`\
+`Its $49.4 billion in sales in the first quarter was up 18 percent from a year earlier.`\
 https://nytimes.com/2022/04/26/technology/microsoft-earnings-profit.html?searchResultPosition=9
 
 **G.M.’s profits fell 3% in the first quarter as chip shortages limited production.**\
