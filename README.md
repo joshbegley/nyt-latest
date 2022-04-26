@@ -14,13 +14,13 @@ https://nytimes.com/2022/04/25/todayspaper/quotation-of-the-day-political-satiri
 `Simon Marotte’s puzzle is a (head)banger.`\
 https://nytimes.com/2022/04/25/crosswords/daily-puzzle-2022-04-26.html?searchResultPosition=4
 
-**Musk’s Twitter: Weed Memes. Editable Tweets. And the Return of Trump.**\
-`The newest social media honcho will face a bevy of business challenges at Twitter.`\
-https://nytimes.com/2022/04/25/opinion/musk-twitter-trump.html?searchResultPosition=5
-
 **‘Better Call Saul’ Season 6, Episode 3 Recap: Viva Nacho**\
 `Nacho plays a tough hand while Kim inches ever closer to the dark side.`\
-https://nytimes.com/2022/04/25/arts/television/better-call-saul-recap-season-6-episode-3.html?searchResultPosition=6
+https://nytimes.com/2022/04/25/arts/television/better-call-saul-recap-season-6-episode-3.html?searchResultPosition=5
+
+**Musk’s Twitter: Weed Memes. Editable Tweets. And the Return of Trump.**\
+`The newest social media honcho will face a bevy of business challenges at Twitter.`\
+https://nytimes.com/2022/04/25/opinion/musk-twitter-trump.html?searchResultPosition=6
 
 **Celtics Eliminate Nets’ Latest Superteam With First-Round Sweep**\
 `The early playoff exit was a stunning end to a season that began with championship dreams behind Kevin Durant and Kyrie Irving.`\
