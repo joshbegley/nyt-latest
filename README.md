@@ -12,7 +12,7 @@ https://nytimes.com/2022/04/26/briefing/raising-the-stakes-in-ukraine.html?searc
 
 **Coronavirus cases leave Senate Democrats temporarily without the votes they need to get some business done.**\
 `In an evenly divided Senate, neither party can afford to be without a single member.`\
-https://nytimes.com/2022/04/26/us/politics/senate-democrats-covid.html?searchResultPosition=4
+https://nytimes.com/2022/04/26/us/politics/senate-democrats-covid-murphy-wyden.html?searchResultPosition=4
 
 **Explosions rattle a breakaway region in Moldova, raising fears of a broader war.**\
 `The blasts in Transnistria, a region bordering Ukraine that is run by Russia-backed separatists, have fueled talk of Moldova being dragged into the war.`\
