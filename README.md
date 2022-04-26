@@ -4,7 +4,7 @@ https://nytimes.com/2022/04/26/sports/ncaa-mark-emmert.html?searchResultPosition
 
 **The Nets and the Lakers Did Not Win. But Superteams Never Die.**\
 `The stars did not align in Brooklyn or Los Angeles this time, but it’s certain that someone will try again. Kyrie Irving is already making plans.`\
-https://nytimes.com/2022/04/26/sports/nets-lakers-superteams.html?searchResultPosition=2
+https://nytimes.com/2022/04/26/sports/basketball/nets-lakers-nba-playoffs.html?searchResultPosition=2
 
 **Eleven Madison Park Gets Into the Meal Kit Game**\
 `For $150 per week, Eleven Madison Home will deliver a day’s worth of ready-to-eat, plant-based meals to customers with Manhattan ZIP codes.`\
