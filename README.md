@@ -1,40 +1,40 @@
-**Congress Has to Ask How Much McKinsey Hurt the F.D.A.**\
-`Three critical questions to secure F.D.A. integrity.`\
-https://nytimes.com/2022/04/26/opinion/mckinsey-fda-opioids.html?searchResultPosition=1
+**Baking Challah in Dubai: A Jewish Community Heads Out Into the Open**\
+`The increasing openness of Jewish life in the Persian Gulf emirate of Dubai is another sign of an emerging new reality in the Middle East, where Israel’s isolation by the Arab world is ebbing.`\
+https://nytimes.com/2022/04/26/world/middleeast/dubai-jewish-community.html?searchResultPosition=1
 
-**Elon Musk Is a Problem Masquerading as a Solution**\
-`What happens when the incarnation of a problem buys the right to decide what the problem is and how to fix it?`\
-https://nytimes.com/2022/04/26/opinion/elon-musk-twitter.html?searchResultPosition=2
+**The Subway Is the Best Place to Cry**\
+`If New Yorkers are unflappable, impervious and stoic on the sidewalk, we are raging, delighted, terrified, dancing, sobbing messes in the subway tunnels. `\
+https://nytimes.com/2022/04/26/opinion/subway-new-york-city.html?searchResultPosition=2
 
-**No Way to Say Goodbye**\
-`When my mother got Covid in April 2020, I learned what we lose over text.`\
-https://nytimes.com/2022/04/26/well/family/covid-texting-grief.html?searchResultPosition=3
+**With Supply More Abundant, Pharmacies Struggle to Use Up Covid Pills**\
+`The White House on Tuesday announced new steps to expand access to Paxlovid, the Covid-19 antiviral pill. But experts say that efforts to reach at-risk Americans remain complex and inefficient.`\
+https://nytimes.com/2022/04/26/us/politics/paxlovid-test-to-treat.html?searchResultPosition=3
 
-**Little Free Libraries**\
-`Is there one near you? If you were in charge of a Little Free Library, what would it look like, and what would you give away?`\
-https://nytimes.com/2022/04/26/learning/little-free-libraries.html?searchResultPosition=4
+**‘Omniscient yet Impotent,’ These Ghosts Linger**\
+`From a mysterious suicide to P.T.S.D. to a folkloric antihero: Four new novels explore different kinds of haunting.`\
+https://nytimes.com/2022/04/26/books/book-review-ghosts-haunting.html?searchResultPosition=4
 
-**What an Unvaccinated Sergeant Who Nearly Died of Covid Wants You to Know**\
-`Frank Talarico, a 47-year-old police sergeant, was hospitalized for 49 days with the coronavirus. “If I was vaccinated,” he said, “I wouldn’t have gotten as sick as I did.”`\
-https://nytimes.com/2022/04/26/nyregion/police-vaccine-nj.html?searchResultPosition=5
+**Texas’ Busing of Migrants to D.C. Isn’t Having Abbott’s Intended Effect Yet**\
+`The plan, meant to rattle President Biden, fits into his strategy for addressing record numbers of border crossings. The migrants said they were grateful for the chartered bus ride.`\
+https://nytimes.com/2022/04/26/us/politics/abbott-immigration-texas-dc-biden.html?searchResultPosition=5
 
-**How to Put Out a Grease Fire**\
-`Starve it of oxygen. If the kitchen is on fire, get out and close the door behind you.`\
-https://nytimes.com/2022/04/26/magazine/put-out-grease-fire.html?searchResultPosition=6
+**Banh Mi in a Drive-Through? Vietnamese Restaurants Reach for Fast-Food Success.**\
+`From a former KFC to a 1950s-style drive-in, owners are working to turn the sandwich, and the cuisine, into an American staple.`\
+https://nytimes.com/2022/04/26/dining/vietnamese-fast-food.html?searchResultPosition=6
 
-**Looking to the Past, an Artist Finds a Soul Mate in Gwen John**\
-`Celia Paul’s “Letters to Gwen John” is a conversation between two artists — one living, one dead — about creativity, loss and the long shadows of famous men.`\
-https://nytimes.com/2022/04/26/books/review/letters-to-gwen-john-celia-paul.html?searchResultPosition=7
+**New Details Underscore House G.O.P. Role in Jan. 6 Planning**\
+`A court filing and newly disclosed text messages provide additional evidence of how closely some fervent pro-Trump lawmakers worked with the White House on efforts to overturn the election.`\
+https://nytimes.com/2022/04/26/us/politics/jan-6-texts-freedom-caucus.html?searchResultPosition=7
 
-**Have You Witnessed Bad Behavior in Youth Sports?**\
-`Unruly parents, players and coaches are driving a referee shortage. Do you think sports officials are treated unfairly?`\
-https://nytimes.com/2022/04/26/learning/learning-network-bad-behavior-youth-sports.html?searchResultPosition=8
+**Nuclear Power Could Help Europe Cut Its Russia Ties, but Not for Years**\
+`The projects, which some European countries are pushing to end their reliance on Russia’s energy, face delays in coming online.`\
+https://nytimes.com/2022/04/26/business/russia-nuclear-power-europe.html?searchResultPosition=8
 
-**Does a Toddler Need an NFT?**\
-`The new frontier of children’s entertainment is internet-native cartoon characters selling nonfungible tokens on social-media apps for tots.`\
-https://nytimes.com/2022/04/26/arts/nft-zigazoo-qai-qai.html?searchResultPosition=9
+**Hotels With Net-Zero Ambitions**\
+`It’s not easy for sustainability-minded travelers to find truly green accommodations, but these new hotels — one of which claims to be the first net-zero carbon emissions hotel in the country — are aiming high.`\
+https://nytimes.com/2022/04/26/travel/hotels-sustainability-net-zero.html?searchResultPosition=9
 
-**In Squad We Trust: When a Church Committee Yields Unexpected Discovery**\
-`One year, eight members, many meetings. The setup for Michelle Huneven’s new novel, “Search,” sounds like a reality show, and it’s equally entertaining.`\
-https://nytimes.com/2022/04/26/books/review/search-michelle-huneven.html?searchResultPosition=10
+**Do Vaccines Protect Against Long Covid?**\
+`Maybe, according to a growing number of studies, but there’s not yet a definitive answer.`\
+https://nytimes.com/article/long-covid-vaccines.html?searchResultPosition=10
 
