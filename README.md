@@ -12,7 +12,7 @@ https://nytimes.com/2022/04/26/business/energy-environment/oil-us-europe-russia.
 
 **Watch Live: Austin Speaks After Meeting on Ukraine Military Aid**\
 `Defense Secretary Lloyd J. Austin III holds a news conference from Ramstein Air Base in Germany after gathering defense officials from over 40 countries to discuss supplying more weapons to Ukraine.`\
-https://nytimes.com/video/world/europe/100000008320022/us-weapons-supply-ukraine.html?searchResultPosition=4
+https://nytimes.com/video/embedded/world/europe/100000008320022/us-weapons-supply-ukraine.html?searchResultPosition=4
 
 **What ‘Severance’ Is Made of: ‘Being John Malkovich’ and a Sizzler Steakhouse**\
 `The creator of the sci-fi thriller drew on Kurt Vonnegut, “Black Mirror” and a ’90s restaurant commercial to build the show’s disquieting sets and nightmare logic.`\
