@@ -11,7 +11,7 @@ https://nytimes.com/2022/04/26/technology/twitter-far-right-conservatives-libera
 https://nytimes.com/2022/04/26/style/tiny-modern-love-stories-queer-in-appalachia.html?searchResultPosition=3
 
 **Ford says it has produced 2,000 electric F-150 pickup trucks.**\
-`Deliveries of the F-150 Lightning, its most important new vehicle in many years, will begin in the coming week, it said.`\
+`Deliveries of the F-150 Lightning, Ford’s most important new vehicle in many years, will begin in the coming week, it said.`\
 https://nytimes.com/2022/04/26/automobiles/ford-electric-f150-lightning.html?searchResultPosition=4
 
 **Supreme Court Struggles Over Biden’s Bid to End ‘Remain in Mexico’ Program**\
