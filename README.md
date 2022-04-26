@@ -26,15 +26,4 @@ https://nytimes.com/2022/04/26/business/dealbook/elon-musk-twitter.html?searchRe
 `As ridership plunged during the pandemic, worries about crime made it difficult to coax passengers back.`\
 https://nytimes.com/2022/04/26/us/public-transit-safety.html?searchResultPosition=7
 
-**Weekly News Quiz for Students: Mask Mandate, Twitter Purchase, Plagiarism Case**\
-`Have you been paying attention to the news recently? See how many of these 10 questions you can get right.`\
-https://nytimes.com/interactive/2022/04/26/learning/26Student-News-Quiz.html?searchResultPosition=8
-
-**Lesson of the Day: ‘As Families Grieve, Grandparents Step Up’**\
-`In this lesson, students will learn about families navigating life after losing a loved one to Covid-19. Then, they will learn more about young people and grief or share a story about their grandparents or elders.`\
-https://nytimes.com/2022/04/26/learning/lesson-plans/lesson-of-the-day-as-families-grieve-grandparents-step-up.html?searchResultPosition=9
-
-**Tony Blair on How Russia’s War Will Change the World: A Virtual Event**\
-`The former British prime minister will speak with Peter Baker of The New York Times on May 2.`\
-https://nytimes.com/2022/04/26/world/europe/tony-blair-russia-ukraine-event.html?searchResultPosition=10
-
+**Musk’s Twitter takeover would give him enormous power. How will he use it?**\
