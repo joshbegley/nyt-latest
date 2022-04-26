@@ -1,5 +1,5 @@
 **Mets Stun Cardinals With a Wild Ninth Inning Comeback**\
-`All hope seemed lost despite another strong start by Max Scherzer, but five unearned runs led to an unexpected win.`\
+`A strong start by Max Scherzer, a five-run ninth inning and positive news on the health of Jacob deGrom made for a great Monday.`\
 https://nytimes.com/2022/04/25/sports/baseball/mets-cardinals.html?searchResultPosition=1
 
 **Pamela Adlon Wanted ‘Better Things’ to End With a ‘Sense of Hope’**\
