@@ -1,4 +1,4 @@
-**Parents of Teen Who Died in Fall From Amusement Ride File Lawsuit**\
+**Parents File Lawsuit Over Son’s Fatal Fall From Amusement Ride**\
 `Tyre Sampson, 14, died after falling from the 430-foot-tall Free Fall. The lawsuit says a seatbelt could have saved his life.`\
 https://nytimes.com/2022/04/26/us/florida-amusement-park-ride-death-lawsuit.html?searchResultPosition=1
 
@@ -8,7 +8,7 @@ https://nytimes.com/2022/04/26/business/media/a-top-new-york-post-editor-settles
 
 **PepsiCo says revenues jumped after raising prices.**\
 `Thanks to price increases at many of its popular drink and snack brands, PepsiCo reported strong first-quarter revenues.`\
-https://nytimes.com/2022/04/26/business/pepsico-quarter-revenues-prices.html?searchResultPosition=3
+https://nytimes.com/2022/04/26/business/pepsico-fritolay-quarter-revenues-prices.html?searchResultPosition=3
 
 **Discovering the Automation Advantage**\
 `In this episode, we discuss the new book “The Automation Advantage” by one of the authors, Bhaskar Ghosh, Chief Strategy Officer at Accenture, and find out what it means to take a human-centric approach to automation.
