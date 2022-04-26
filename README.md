@@ -6,7 +6,7 @@ https://nytimes.com/2022/04/25/us/politics/americans-sponsor-ukrainians.html?sea
 `A new generation seeks to shock the bourgeoisie.`\
 https://nytimes.com/2022/04/25/opinion/reactionary-new-right.html?searchResultPosition=2
 
-**Biden Must Halt Any Resumption of Pre-Covid Border Policy, Judge Says**\
+**Judge Says Migrants Must Still Be Denied Entry for Health Reasons**\
 `Under a public health rule known as Title 42, thousands of migrants have been expelled at the border. A federal judge is halting efforts to begin lifting the policy, due to end on May 23.`\
 https://nytimes.com/2022/04/25/us/title-42-migrants-biden-border.html?searchResultPosition=3
 
