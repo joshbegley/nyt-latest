@@ -10,8 +10,8 @@ https://nytimes.com/2022/04/26/technology/elon-musk-free-speech.html?searchResul
 `Tyre Sampson, 14, died after falling from the 430-foot-tall Free Fall ride at an amusement park in Orlando, Fla., last month. The lawsuit says a seatbelt could have saved his life.`\
 https://nytimes.com/2022/04/26/us/florida-amusement-park-ride-death-lawsuit.html?searchResultPosition=3
 
-**A top New York Post editor settles her discrimination lawsuit against the tabloid.**\
-`The suit claimed that the Post’s former editor in chief had sexually harassed her and retaliated against her when she reported him.`\
+**New York Post and Former Top Editor Michelle Gotthelf Settle Discrimination Case**\
+`Ms. Gotthelf claimed that the Post’s former editor in chief had sexually harassed her and retaliated against her when she reported him.`\
 https://nytimes.com/2022/04/26/business/media/a-top-new-york-post-editor-settles-her-discrimination-lawsuit-against-the-tabloid.html?searchResultPosition=4
 
 **PepsiCo says revenues jumped after raising prices.**\
