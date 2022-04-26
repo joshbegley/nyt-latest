@@ -3,7 +3,7 @@
 https://nytimes.com/2022/04/26/us/washington-crossing-delaware-painting-christies-auction.html?searchResultPosition=1
 
 **Beijing Starts Testing 20 Million to Try to Avoid a Lockdown Like Shanghai’s**\
-`China’s capital reported 33 cases as it kicked off an ambitious mandatory testing campaign across the city and reassured residents that food and other supplies were plentiful.`\
+`China’s capital reported 22 cases as it kicked off an ambitious mandatory testing campaign across the city and reassured residents that food and other supplies were plentiful.`\
 https://nytimes.com/2022/04/26/world/asia/china-covid-beijing-shanghai.html?searchResultPosition=2
 
 **Kevin Hart’s Media Company Sells $100 Million Stake to Private Equity**\
