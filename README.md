@@ -22,7 +22,7 @@ https://nytimes.com/2022/04/26/technology/twitter-elon-musk-free-speech.html?sea
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2022/04/26/crosswords/spelling-bee-forum.html?searchResultPosition=6
 
-**A Hong Kong Actress Wears Brownface. Viewers Ask, What’s So Offensive?**\
+**A Hong Kong Actress Wears Brownface. Cue Outrage and Shrugs.**\
 `The TV show “Barrack O’Karma 1968” fueled debate about whether the practice is ever acceptable. Some viewers were outraged. Others simply shrugged.`\
 https://nytimes.com/2022/04/26/world/asia/brownface-barrack-okarma-1968-hong-kong.html?searchResultPosition=7
 
