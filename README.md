@@ -1,40 +1,40 @@
-**‘I Just Want to Help’: Amid Chaos, Shanghai Residents Band Together**\
-`As authorities in China’s biggest city fight to stamp out an Omicron outbreak, neighbors are turning to each other for support.`\
-https://nytimes.com/2022/04/26/business/shanghai-volunteers-covid.html?searchResultPosition=1
+**Congress Has to Ask How Much McKinsey Hurt the F.D.A.**\
+`Three critical questions to secure F.D.A. integrity.`\
+https://nytimes.com/2022/04/26/opinion/mckinsey-fda-opioids.html?searchResultPosition=1
 
-**Kenneth Roth, ‘Godfather’ of Human Rights Work, to Step Down**\
-`Mr. Roth joined Human Rights Watch when it was a fledgling organization. It has expanded into one of the most influential human rights advocacy groups.`\
-https://nytimes.com/2022/04/26/world/americas/kenneth-roth-human-rights-watch.html?searchResultPosition=2
+**Elon Musk Is a Problem Masquerading as a Solution**\
+`What happens when the incarnation of a problem buys the right to decide what the problem is and how to fix it?`\
+https://nytimes.com/2022/04/26/opinion/elon-musk-twitter.html?searchResultPosition=2
 
-**An Assignment I Needed: Frederick Law Olmsted’s Legacy**\
-`A Times photographer spent a year traveling to public spaces designed by the 19th-century landscape architect.`\
-https://nytimes.com/2022/04/26/insider/frederick-law-olmsted-legacy.html?searchResultPosition=3
+**No Way to Say Goodbye**\
+`When my mother got Covid in April 2020, I learned what we lose over text.`\
+https://nytimes.com/2022/04/26/well/family/covid-texting-grief.html?searchResultPosition=3
 
-**Cultivating Coveted Morels Year-Round and Indoors**\
-`Jacob and Karsten Kirk, twins from Copenhagen, say they have devised a method to reliably grow morel mushrooms in a climate-controlled environment.`\
-https://nytimes.com/2022/04/26/science/morel-mushrooms-growing.html?searchResultPosition=4
+**Little Free Libraries**\
+`Is there one near you? If you were in charge of a Little Free Library, what would it look like, and what would you give away?`\
+https://nytimes.com/2022/04/26/learning/little-free-libraries.html?searchResultPosition=4
 
-**Why Do Carbs Give Me Headaches?**\
-`Experts say we may be thinking about food triggers for migraines and other kinds of headaches the wrong way.`\
-https://nytimes.com/2022/04/26/well/eat/carbs-sugar-headaches-migraines.html?searchResultPosition=5
+**What an Unvaccinated Sergeant Who Nearly Died of Covid Wants You to Know**\
+`Frank Talarico, a 47-year-old police sergeant, was hospitalized for 49 days with the coronavirus. “If I was vaccinated,” he said, “I wouldn’t have gotten as sick as I did.”`\
+https://nytimes.com/2022/04/26/nyregion/police-vaccine-nj.html?searchResultPosition=5
 
-**Buying Twitter, Elon Musk Will Face Reality of His Free-Speech Talk**\
-`Tech’s big shots have learned again and again that free speech isn’t so simple. What happens when Mr. Musk owns Twitter?`\
-https://nytimes.com/2022/04/26/technology/twitter-elon-musk-free-speech.html?searchResultPosition=6
+**How to Put Out a Grease Fire**\
+`Starve it of oxygen. If the kitchen is on fire, get out and close the door behind you.`\
+https://nytimes.com/2022/04/26/magazine/put-out-grease-fire.html?searchResultPosition=6
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/04/26/crosswords/spelling-bee-forum.html?searchResultPosition=7
+**Looking to the Past, an Artist Finds a Soul Mate in Gwen John**\
+`Celia Paul’s “Letters to Gwen John” is a conversation between two artists — one living, one dead — about creativity, loss and the long shadows of famous men.`\
+https://nytimes.com/2022/04/26/books/review/letters-to-gwen-john-celia-paul.html?searchResultPosition=7
 
-**A Hong Kong Actress Wears Brownface. Cue Outrage and Shrugs.**\
-`The TV show “Barrack O’Karma 1968” fueled debate about whether the practice is ever acceptable. Some viewers were outraged. Others simply shrugged.`\
-https://nytimes.com/2022/04/26/world/asia/brownface-barrack-okarma-1968-hong-kong.html?searchResultPosition=8
+**Have You Witnessed Bad Behavior in Youth Sports?**\
+`Unruly parents, players and coaches are driving a referee shortage. Do you think sports officials are treated unfairly?`\
+https://nytimes.com/2022/04/26/learning/learning-network-bad-behavior-youth-sports.html?searchResultPosition=8
 
-**Word of the Day: fallibility**\
-`This word has appeared in 16 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/04/26/learning/word-of-the-day-fallibility.html?searchResultPosition=9
+**Does a Toddler Need an NFT?**\
+`The new frontier of children’s entertainment is internet-native cartoon characters selling nonfungible tokens on social-media apps for tots.`\
+https://nytimes.com/2022/04/26/arts/nft-zigazoo-qai-qai.html?searchResultPosition=9
 
-**Late Night Muses on Elon Musk’s Deal to Buy Twitter**\
-`Trevor Noah joked that owning Twitter would give Musk “more power than the drugstore employee with the key to the deodorant shelf.”`\
-https://nytimes.com/2022/04/26/arts/television/late-night-elon-musk-twitter.html?searchResultPosition=10
+**In Squad We Trust: When a Church Committee Yields Unexpected Discovery**\
+`One year, eight members, many meetings. The setup for Michelle Huneven’s new novel, “Search,” sounds like a reality show, and it’s equally entertaining.`\
+https://nytimes.com/2022/04/26/books/review/search-michelle-huneven.html?searchResultPosition=10
 
