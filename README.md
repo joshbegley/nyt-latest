@@ -18,8 +18,8 @@ https://nytimes.com/2022/04/26/opinion/france-biden-immigration.html?searchResul
 `Ukrainians fight for freedom as a U.S. congressman and Russia’s leader fight for power.`\
 https://nytimes.com/2022/04/26/opinion/kevin-mccarthy-putin-ukraine-war.html?searchResultPosition=8
 
-**Provocateur in Pearls: Kay Ivey Races to the Right**\
-`The Alabama governor has a conservative track record, but in the face of a primary challenge, she is increasingly wading into divisive cultural issues.`\
+**Kay Ivey Races to the Right in Alabama**\
+`The governor has a conservative track record, but in the face of a primary challenge, she is increasingly wading into divisive cultural issues.`\
 https://nytimes.com/2022/04/26/us/politics/kay-ivey-trump-alabama.html?searchResultPosition=9
 
 **Youngest Guantánamo Detainee Is Cleared for Release**\
