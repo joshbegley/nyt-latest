@@ -10,7 +10,7 @@ https://nytimes.com/2022/04/26/business/media/dean-baquet-nyt-fellowship.html?se
 `Alex Bajcz is a crossword wizard.`\
 https://nytimes.com/2022/04/26/crosswords/daily-puzzle-2022-04-27.html?searchResultPosition=3
 
-**M.L.B. Letter Confirms Yankees Were Penalized for Sign Stealing**\
+**M.L.B. Letter Confirms Yankees Were Penalized for Infractions**\
 `A 2017 letter from Commissioner Rob Manfred detailed the Yankees’ illicit use of electronic devices in 2015 and parts of 2016, which cost the team a $100,000 fine.`\
 https://nytimes.com/2022/04/26/sports/baseball/mlb-yankees-letter.html?searchResultPosition=4
 
