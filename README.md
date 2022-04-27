@@ -1,5 +1,5 @@
 **Minneapolis Officers Found to Engage in Racist Policing**\
-`Minnesota’s Human Rights Commission found instances of shockingly racist and misogynistic language, as well as patterns of discrimination in arrests and use of force.`\
+`Minnesota’s Department of Human Rights found instances of shockingly racist and misogynistic language, as well as patterns of discrimination in arrests and use of force.`\
 https://nytimes.com/2022/04/27/us/minneapolis-police-racism-human-rights.html?searchResultPosition=1
 
 **Book Bans, From Both the Left and the Right**\
