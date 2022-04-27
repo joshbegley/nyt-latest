@@ -1,36 +1,40 @@
+**N.F.L. Draft Demands Well-Rounded Linemen Who Can Still Flatten**\
+`Ikem Ekwonu is expected to be the first of a group of agile, speedy offensive linemen drafted, the better to keep up with evolving playbooks and scampering quarterbacks.`\
+https://nytimes.com/2022/04/27/sports/football/nfl-draft-ikem-ekwonu.html?searchResultPosition=1
+
 **Your Wednesday Briefing**\
 `Support from the international community for Ukraine.`\
-https://nytimes.com/2022/04/26/briefing/ukraine-arms-military-china-covid.html?searchResultPosition=1
+https://nytimes.com/2022/04/26/briefing/ukraine-arms-military-china-covid.html?searchResultPosition=2
 
 **‘A Strange Loop’ Review: A Dazzling Ride on a Mental Merry-Go-Round**\
 `Michael R. Jackson’s Pulitzer Prize-winning meta musical arrives on Broadway with its uproarious dialogue, complex psychology and eclectic score intact.`\
-https://nytimes.com/2022/04/26/theater/a-strange-loop-review-broadway.html?searchResultPosition=2
+https://nytimes.com/2022/04/26/theater/a-strange-loop-review-broadway.html?searchResultPosition=3
 
 **Dean Baquet Will Lead Local Investigative Fellowship Program for The Times**\
 `After he steps down as executive editor, he’ll head an effort to cultivate watchdog reporting to help counter a “crisis in local news.”`\
-https://nytimes.com/2022/04/26/business/media/dean-baquet-nyt-fellowship.html?searchResultPosition=3
+https://nytimes.com/2022/04/26/business/media/dean-baquet-nyt-fellowship.html?searchResultPosition=4
 
 **Often Kept Undercover**\
 `Alex Bajcz is a crossword wizard.`\
-https://nytimes.com/2022/04/26/crosswords/daily-puzzle-2022-04-27.html?searchResultPosition=4
+https://nytimes.com/2022/04/26/crosswords/daily-puzzle-2022-04-27.html?searchResultPosition=5
 
 **M.L.B. Letter Confirms Yankees Were Penalized for Infractions**\
 `A 2017 letter from Commissioner Rob Manfred detailed the Yankees’ illicit use of electronic devices in 2015 and parts of 2016, which cost the team a $100,000 fine.`\
-https://nytimes.com/2022/04/26/sports/baseball/mlb-yankees-letter.html?searchResultPosition=5
+https://nytimes.com/2022/04/26/sports/baseball/mlb-yankees-letter.html?searchResultPosition=6
 
 **One Final Look at a Nets Season That Fell Short**\
 `The Nets built a superteam to win a championship. They did not make it out of the playoffs’ first round.`\
-https://nytimes.com/2022/04/26/sports/basketball/nets-photos.html?searchResultPosition=6
+https://nytimes.com/2022/04/26/sports/basketball/nets-photos.html?searchResultPosition=7
 
 **Quotation of the Day: Carnegie Hall Will Return At Full Scale This Fall**\
 `Quotation of the Day for Wednesday, April 27, 2022.`\
-https://nytimes.com/2022/04/26/todayspaper/quotation-of-the-day-carnegie-hall-will-return-at-full-scale-this-fall.html?searchResultPosition=7
+https://nytimes.com/2022/04/26/todayspaper/quotation-of-the-day-carnegie-hall-will-return-at-full-scale-this-fall.html?searchResultPosition=8
 
 **Corrections: April 27, 2022**\
 `Corrections that appeared in print on Wednesday, April 27, 2022.`\
-https://nytimes.com/2022/04/26/pageoneplus/corrections-april-27-2022.html?searchResultPosition=8
+https://nytimes.com/2022/04/26/pageoneplus/corrections-april-27-2022.html?searchResultPosition=9
 
 **Americans’ support for admitting refugees is at a record high, Gallup finds.**\
 `Gallup reported the record high after its new poll found that 78 percent of adults in the United States approve of allowing up to 100,000 Ukrainian refugees into the country.`\
-https://nytimes.com/2022/04/26/world/europe/ukraine-refugees-us-gallup-poll.html?searchResultPosition=9
+https://nytimes.com/2022/04/26/world/europe/ukraine-refugees-us-gallup-poll.html?searchResultPosition=10
 
