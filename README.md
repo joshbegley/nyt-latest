@@ -1,5 +1,5 @@
 **Federal agents arrest Archegos owner Bill Hwang and a former top lieutenant.**\
-`By Matthew Goldstein`\
+`The men were charged with crimes including racketeering conspiracy in connection with a scheme to manipulate the company’s stock prices.`\
 https://nytimes.com/2022/04/27/business/archegos-bill-hwang-patrick-halligan.html?searchResultPosition=1
 
 **$2.9 Million Homes in Connecticut, Alabama and Washington**\
