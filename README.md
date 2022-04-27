@@ -1,4 +1,4 @@
-**Italy’s Highest Court Rules Children to Be Given Mother and Father’s Surnames**\
+**Italy’s Highest Court Rules Children to Be Given Mother’s and Father’s Surnames**\
 `The ruling overturns decades of patriarchal family legacy, which largely left women out of the decision-making process.`\
 https://nytimes.com/2022/04/27/world/europe/italy-children-surnames-mother-father.html?searchResultPosition=1
 
