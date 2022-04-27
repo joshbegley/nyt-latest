@@ -7,7 +7,7 @@ https://nytimes.com/2022/04/27/realestate/milan-italy-house-hunting.html?searchR
 https://nytimes.com/slideshow/2022/04/27/realestate/a-restored-church-outside-milan-italy.html?searchResultPosition=2
 
 **Federal agents arrest Archegos owner Bill Hwang and a former top lieutenant.**\
-`The men were charged with crimes including racketeering conspiracy in connection with a scheme to manipulate the company’s stock prices.`\
+`The men were charged with crimes including racketeering conspiracy and securities fraud.`\
 https://nytimes.com/2022/04/27/business/archegos-bill-hwang-patrick-halligan.html?searchResultPosition=3
 
 **$2.9 Million Homes in Connecticut, Alabama and Washington**\
