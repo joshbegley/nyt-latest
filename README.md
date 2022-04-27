@@ -2,7 +2,7 @@
 `Chess Summary`\
 https://nytimes.com/interactive/2022/04/27/crosswords/chess-puzzles-by-daniel.html?searchResultPosition=1
 
-**New York’s Top Court Voids House Map, Calling Process Unconstitutional**\
+**New York’s Top Court Voids Democrat-Drawn House Map**\
 `The New York Court of Appeals said Democrats violated the State Constitution and ignored the will of the voters. The judges ordered a court-appointed expert to draw replacements.`\
 https://nytimes.com/2022/04/27/nyregion/redistricting-congress-gerrymander-ny.html?searchResultPosition=2
 
