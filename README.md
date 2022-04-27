@@ -15,7 +15,7 @@ https://nytimes.com/2022/04/27/arts/music/du-yun-nyu-skirball.html?searchResultP
 https://nytimes.com/2022/04/27/books/review-last-days-roger-federer-geoff-dyer.html?searchResultPosition=4
 
 **China Continues to Fall Short of Promises to Protect Intellectual Property, U.S. Says**\
-`American trade officials said they were continuing to monitor China’s progress in meeting the terms of the 2020 trade deal, but that intellectual property owners had continued to express concerns`\
+`American officials said that they were continuing to monitor China’s progress in meeting the terms of the 2020 trade deal, but that intellectual property owners had continued to express concerns`\
 https://nytimes.com/2022/04/27/business/economy/china-trade-intellectual-property.html?searchResultPosition=5
 
 **Russia Uses Cyberattacks in Ukraine to Support Military Strikes, Report Finds**\
