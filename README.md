@@ -8,7 +8,7 @@ https://nytimes.com/2022/04/27/style/speed-typing-competitive.html?searchResultP
 
 **Trump Officials Awarded $700 Million Pandemic Loan Despite Objections**\
 `A congressional report raises new questions about a pandemic relief loan to a troubled trucking company with close ties to the Trump administration.`\
-https://nytimes.com/2022/04/27/us/politics/pandemic-loan-yrc-yellow-trump.html?searchResultPosition=3
+https://nytimes.com/2022/04/27/us/politics/trump-pandemic-loan-yrc.html?searchResultPosition=3
 
 **An Heir, a $25 Million Giveaway and 30,000 Unopened Letters**\
 `In 1970, Michael James Brody Jr. announced he would give away his fortune to anyone who asked. The letters he received are a time capsule of the setting of the Age of Aquarius.`\
