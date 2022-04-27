@@ -1,40 +1,40 @@
-**Title IX at 50: How it Changed Congress, Campuses and Sports**\
-`The New-York Historical Society looks back on the landmark gender equality legislation and how it transformed women’s access to education, sports and more.`\
-https://nytimes.com/2022/04/27/arts/design/new-york-historical-society-title-ix-50.html?searchResultPosition=1
+**Musk may be about to sell some Tesla stock. How would that affect markets?**\
+`Tesla is highly traded, and Elon Musk’s sale of more than $16 billion worth of stock last year did not appear to push share prices lower.`\
+https://nytimes.com/2022/04/27/technology/musk-sell-tesla-stock.html?searchResultPosition=1
 
-**Sarah Silverman’s Family Show (Really!) About Divorce and Depression**\
-`“Everything’s couched with hard jokes, but it’s also vulnerable,” the comic said of “The Bedwetter,” her new musical comedy.`\
-https://nytimes.com/2022/04/27/theater/sarah-silverman-the-bedwetter.html?searchResultPosition=2
+**A Woman’s Haunting Disappearance Sparks Outrage in Mexico Over Gender Violence**\
+`The case of Debanhi Escobar, 18, in Monterrey has ignited a national outcry over the government’s failure to deliver justice for missing women.`\
+https://nytimes.com/2022/04/27/world/americas/debanhi-escobar-mexico.html?searchResultPosition=2
 
-**A Forgotten Star of the Pop Era, Back in the Spotlight**\
-`Marisol, a Warhol contemporary who was one of the most compelling artists in 1960s New York, is getting renewed attention in a Miami exhibition.`\
-https://nytimes.com/2022/04/27/arts/design/warhol-marisol-take-new-york-perez.html?searchResultPosition=3
+**A Defiant Exhibit by an Artist, at a Museum He Helped Create**\
+`El Museo del Barrio is presenting a retrospective of Raphael Montañez Ortiz’s works to honor the 88-year-old artist and reinforce the institution’s roots.`\
+https://nytimes.com/2022/04/27/arts/design/raphael-montanez-ortiz-el-museo-del-barrio.html?searchResultPosition=3
 
-**Showcasing the Diversity of the South**\
-`Arising from one man’s collection, the Ogden Museum strives to serve a broad audience while showing that Southern art is not merely regional.`\
-https://nytimes.com/2022/04/27/arts/design/odgen-museum-southern-art-new-orleans.html?searchResultPosition=4
+**In Dishes and Dolls, a Foundation of Feminist Art**\
+`A new show, “Women’s Work,” will illustrate how modern female artists have taken inspiration from domestic objects of past centuries.`\
+https://nytimes.com/2022/04/27/arts/design/womens-work-lyndhurst-mansion.html?searchResultPosition=4
 
-**All the Andrew Wyeth No One Has Seen**\
-`A partnership between the artist’s foundation and two museums will enable much of his art to be viewed for the first time.`\
-https://nytimes.com/2022/04/27/arts/design/wyeth-foundation-museums.html?searchResultPosition=5
+**After a Storied Career, a Nonagenarian Photographer Returns to New York**\
+`The International Center of Photography, now on the Lower East Side of Manhattan, recognizes William Klein, 94, by turning over its entire space to his work.`\
+https://nytimes.com/2022/04/27/arts/design/international-center-of-photography-william-klein.html?searchResultPosition=5
 
-**Some of Eric Adams’s Hires Have Troubling Pasts. He’s Fine With That.**\
-`Mayor Eric Adams believes in second chances, and he has put that philosophy into practice in hiring for his cabinet.`\
-https://nytimes.com/2022/04/27/nyregion/eric-adams-administration.html?searchResultPosition=6
+**Revisiting a Groundbreaking Show of Feminist Art**\
+`The Aldrich Contemporary Art Museum looks back at a 1971 exhibition devoted to women and puts their work in conversation with emerging feminist artists.`\
+https://nytimes.com/2022/04/27/arts/design/aldrich-feminist-52-artists.html?searchResultPosition=6
 
-**Where to Find Comfort in a World of Invasive Headlines?**\
-`In times of turmoil and loss, treasured nature books can offer solace and guidance. Here are a few favorites.`\
-https://nytimes.com/2022/04/27/realestate/where-to-find-comfort-in-a-world-of-invasive-headlines.html?searchResultPosition=7
+**In Florida, It’s ‘Go West’ for Arts Donors and Patrons**\
+`Though the state’s east coast museums have long grabbed headlines, transplants from across the U.S., and their money, are also having an impact on its Gulf Coast.`\
+https://nytimes.com/2022/04/27/arts/design/west-florida-arts-donors.html?searchResultPosition=7
 
-**Art and Architecture Get a Refresh on the California Coast**\
-`The Museum of Contemporary Art San Diego has undergone multiple renovations in its 80-plus years. This spring it has opened after yet another.`\
-https://nytimes.com/2022/04/27/arts/design/museum-of-contemporary-art-san-diego-expansion.html?searchResultPosition=8
+**Which Animal Viruses Could Infect People? Computers Are Racing to Find Out.**\
+`Machine learning is known for its ability to spot fraudulent credit charges or recognize faces. Now researchers are siccing the technology on viruses.`\
+https://nytimes.com/2022/04/27/science/pandemic-viruses-machine-learning.html?searchResultPosition=8
 
-**Welcome to Our City! Care to Visit the Museum?**\
-`In growing urban areas like Austin, Texas; Denver; and Raleigh, N.C., regional museums are rolling out the welcome mat.`\
-https://nytimes.com/2022/04/27/arts/design/regional-museums-attract-new-audiences.html?searchResultPosition=9
+**A European Art Fair Is Ready to Return to New York**\
+`TEFAF’s event in the Park Avenue Armory will be its first in-person edition since March 2020, before pandemic lockdowns took hold.`\
+https://nytimes.com/2022/04/27/arts/design/tefaf-new-york.html?searchResultPosition=9
 
-**Can Art Help Save the Insect World?**\
-`A renowned photographer who hopes to persuade humans to love their insect brethren has teamed with scientists on a new exhibition at the American Museum of Natural History.`\
-https://nytimes.com/2022/04/27/arts/design/macro-photography-insects-levon-biss.html?searchResultPosition=10
+**Taking the Museum Experience Outdoors**\
+`Cultural institutions, looking for ways to draw visitors, are offering activities on their grounds — and beyond.`\
+https://nytimes.com/2022/04/27/arts/design/outdoor-museum-experiences.html?searchResultPosition=10
 
