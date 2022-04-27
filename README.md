@@ -34,7 +34,7 @@ https://nytimes.com/slideshow/2022/04/27/realestate/dumont-nj-homes.html?searchR
 `The justices’ decision could have broad implications for freedom of religion — and freedom from it.`\
 https://nytimes.com/2022/04/27/podcasts/the-daily/school-prayer-supreme-court.html?searchResultPosition=9
 
-**Those Dedicated to Limiting Harmful Posts Worry About Twitter Under Musk**\
-`They say that Elon Musk’s promises could bring back some of the worst aspects of the service. But he won’t be without some constraints.`\
-https://nytimes.com/2022/04/27/technology/musk-misinformation-twitter.html?searchResultPosition=10
+**At 119, She Was a Symbol of How to Live With Wit and Vitality**\
+`Kane Tanaka, who died in Japan this month, survived two world wars, the 1918 influenza outbreak, paratyphoid and two rounds of cancer. She loved chocolate and hated losing at board games.`\
+https://nytimes.com/2022/04/27/world/asia/kane-tanaka-japan-worlds-oldest-person.html?searchResultPosition=10
 
