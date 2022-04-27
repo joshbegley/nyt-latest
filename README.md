@@ -1,5 +1,5 @@
-**N.Y.U. Protest Targets Professor Candidate Accused of Sexual Harassment**\
-`Students, researchers and faculty at New York University’s medical school walked out to oppose the possible hiring of Dr. David Sabatini.`\
+**Backlash Erupts as N.Y.U. Weighs Hiring Scientist Accused of Harassment**\
+`A walkout at New York University’s medical school protested the possible hiring of Dr. David Sabatini, who has been accused of sexual misconduct.`\
 https://nytimes.com/2022/04/27/nyregion/nyu-protest-sexual-harassment-sabatini.html?searchResultPosition=1
 
 **The Energy War Intensifies**\
