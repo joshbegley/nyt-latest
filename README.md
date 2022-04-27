@@ -35,6 +35,6 @@ https://nytimes.com/video/world/europe/100000008322578/ukraine-russia-war-mariup
 https://nytimes.com/2022/04/27/world/europe/italy-children-surnames-mother-father.html?searchResultPosition=9
 
 **Did Faulty Assumptions Dash Parents’ Hope for an Under-5 Vaccine?**\
-`The under 5 Covid vaccine should be approved.`\
+`The under-5 Covid vaccine should be approved.`\
 https://nytimes.com/2022/04/27/opinion/covid-vaccine-kids.html?searchResultPosition=10
 
