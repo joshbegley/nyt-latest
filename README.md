@@ -20,7 +20,7 @@ https://nytimes.com/2022/04/27/arts/music/flora-purim-if-you-will.html?searchRes
 
 **The Mets Keep Getting Plunked and Are Looking for Answers**\
 `With 18 hit batsmen in 19 games, the Mets are concerned. Pitcher Chris Bassitt believes the baseballs are to blame.`\
-https://nytimes.com/2022/04/27/sports/baseball/pete-alonso-mets-hit-pitch.html?searchResultPosition=6
+https://nytimes.com/2022/04/27/sports/baseball/mets-hit-by-pitch.html?searchResultPosition=6
 
 **A Boxer at Auschwitz and the Pain He Carried**\
 `Ordered to win fights or be put to death, Harry Haft, the subject of a new film, was haunted by the fates of his opponents.`\
