@@ -36,5 +36,5 @@ https://nytimes.com/2022/04/28/world/middleeast/turkey-erdogan-saudi-arabia.html
 
 **Watch Live: Biden Delivers Update on the War in Ukraine**\
 `President Biden speaks after the White House announced plans to funnel the proceeds of assets seized from Russian oligarchs to Ukraine.`\
-https://nytimes.com/video/us/politics/100000008323866/biden-ukraine-war-live-video.html?searchResultPosition=10
+https://nytimes.com/video/embedded/us/politics/100000008323866/biden-ukraine-war-live-video.html?searchResultPosition=10
 
