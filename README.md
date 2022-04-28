@@ -2,13 +2,13 @@
 `The team enters the 2022 W.N.B.A. season with a new coach and center, returning players who were hampered by injuries last year, and the desire to become full-fledged title contenders.`\
 https://nytimes.com/2022/04/28/sports/basketball/wnba-liberty.html?searchResultPosition=1
 
-**America, Again the Arsenal of Democracy**\
-`President Biden follows in F.D.R.’s footsteps.`\
-https://nytimes.com/2022/04/28/opinion/russia-ukraine-biden-aid.html?searchResultPosition=2
-
 **Seven Lessons Democrats Need to Learn — Fast**\
 `Retooling the party for an age of disorder.`\
-https://nytimes.com/2022/04/28/opinion/seven-lessons-democrats-need-to-learn-fast.html?searchResultPosition=3
+https://nytimes.com/2022/04/28/opinion/seven-lessons-democrats-need-to-learn-fast.html?searchResultPosition=2
+
+**America, Again the Arsenal of Democracy**\
+`President Biden follows in F.D.R.’s footsteps.`\
+https://nytimes.com/2022/04/28/opinion/russia-ukraine-biden-aid.html?searchResultPosition=3
 
 **For Trump, May Could Be the Cruelest Month**\
 `The upcoming Republican primaries are a critical test of the former president’s grip on the G.O.P. Here are the key races to watch.`\
