@@ -1,40 +1,40 @@
-**A Pitching Contortionist Bends His Way Into Shape**\
-`Ignoring the routines and patterns of a normal pitcher allowed Nestor Cortes of the Yankees to become the unlikeliest of breakout stars.`\
-https://nytimes.com/2022/04/28/sports/baseball/nestor-cortes-yankees.html?searchResultPosition=1
+**Moderna asks the F.D.A. to authorize its vaccine for children under 6.**\
+`The company has also requested authorization of its Covid vaccine for 6- to 11-year-olds and 12- to 17-year-olds.`\
+https://nytimes.com/2022/04/28/us/moderna-fda-vaccine-children-under-6.html?searchResultPosition=1
 
-**The Power of Humility**\
-`Tonight, America begins an annual festival celebrating hubris.`\
-https://nytimes.com/2022/04/28/briefing/nfl-draft-picks-vegas-humility-hubris.html?searchResultPosition=2
+**‘Hello, Bookstore’ Review: A Bibliophile and His Shop in Close-Up**\
+`This documentary makes it clear why, when the pandemic threatened Matthew Tannenbaum’s store, book lovers weren’t ready to say goodbye.`\
+https://nytimes.com/2022/04/28/movies/hello-bookstore-review.html?searchResultPosition=2
 
-**The Extreme Heat Pummeling India and Pakistan Is About to Get Worse**\
-`The Indian subcontinent has recorded above-average temperatures for weeks. Heat-related weather watches or alerts are now in effect for hundreds of millions of people.`\
-https://nytimes.com/2022/04/28/world/asia/india-extreme-heat-wave.html?searchResultPosition=3
+**‘Firebird’ Review: Square Jaws and Cold Shoulders**\
+`In this clandestine romance, a Soviet soldier and pilot find love while stationed in Estonia in the 1970s.`\
+https://nytimes.com/2022/04/28/movies/firebird-review.html?searchResultPosition=3
 
-**A Heart-Pounding Supercar Aims to Upend How Cars Are Built**\
-`The Czinger 21C is made with 3-D printers. “If he’s successful,” an analyst said, “it will be an earthquake for the industry.”`\
-https://nytimes.com/2022/04/28/business/czinger-21c-3d-car-printing.html?searchResultPosition=4
+**U.S. and more than 55 other countries pledge to keep an open internet.**\
+`The document, which isn’t legally binding, aims to be a reference “for public policymakers, as well as citizens, businesses and civil society organizations.”`\
+https://nytimes.com/2022/04/28/technology/open-internet.html?searchResultPosition=4
 
-**Most of Us Have Had Covid**\
-`Three in five Americans have been infected. What does this mean for immunity, and the for future of the pandemic?`\
-https://nytimes.com/2022/04/28/podcasts/the-daily/most-of-us-have-had-covid.html?searchResultPosition=5
+**‘Vortex’ Review: A Split Screen and a Shared Fate**\
+`Gaspar Noé’s new film chronicles the decline of an elderly couple in remorseless, mesmerizing detail.`\
+https://nytimes.com/2022/04/28/movies/vortex-review.html?searchResultPosition=5
 
-**How Did Women’s Sports Teams Get Their Start?**\
-`As the 50th anniversary of Title IX arrives in June, historians are reflecting on the legacy of women’s sports teams and whether it’s time to stop segregating some sports by sex.`\
-https://nytimes.com/2022/04/28/sports/title-ix-anniversary-womens-sports.html?searchResultPosition=6
+**‘I Love America’ Review: The Gauche Rituals of Modern Romance**\
+`The determinedly uplifting comedy follows a 50-year-old French filmmaker as she dates in Los Angeles.`\
+https://nytimes.com/2022/04/28/movies/i-love-america-review.html?searchResultPosition=6
 
-**Adriana Trigiani Keeps All of Edna Ferber’s Books on Her Shelves**\
-`“Everything she wrote then matters now,” says the novelist, whose latest book is “The Good Left Undone.” “The great writers can see into the future.”`\
-https://nytimes.com/2022/04/28/books/review/adriana-trigiani-by-the-book-interview.html?searchResultPosition=7
+**‘Memory’ Review: Getting Too Old for This**\
+`In this action thriller, Liam Neeson plays an assassin struggling with Alzheimer’s disease. It’s not as interesting as it sounds.`\
+https://nytimes.com/2022/04/28/movies/memory-review.html?searchResultPosition=7
 
-**In El Salvador, the President Cracks Down on Civil Liberties, and Is Beloved for It**\
-`Much of the country’s population is willing to tolerate an autocratic leader, if it means that someone will finally solve their most pressing problem: gang violence.`\
-https://nytimes.com/2022/04/28/world/americas/el-salvador-bukele-gangs.html?searchResultPosition=8
+**‘Fortress: Sniper’s Eye’ Review: Back to the Bunker**\
+`A barely-seen Bruce Willis heads up this lifeless action sequel set in a remote forest compound.`\
+https://nytimes.com/2022/04/28/movies/fortress-snipers-eye-review.html?searchResultPosition=8
 
-**14 New Books Coming in May**\
-`Novels from Ali Smith, Jean Hanff Korelitz and Mieko Kawakami; a debut Y.A. romance by Casey McQuiston; a sequel to Elif Batuman’s “The Idiot” and much more.`\
-https://nytimes.com/2022/04/28/books/new-may-books.html?searchResultPosition=9
+**‘Fiddler’s Journey to the Big Screen’ Review: Making a New Tradition**\
+`Daniel Raim’s admiring documentary uses interviews and movie clips to detail the making of Norman Jewison’s beloved movie musical.`\
+https://nytimes.com/2022/04/28/movies/fiddlers-journey-to-the-big-screen-review-making-a-new-tradition.html?searchResultPosition=9
 
-**‘Ten Percent’ Grapples With Showbiz, and Some Very British Anxieties**\
-`The remake of the French show “Call My Agent!” is far more preoccupied with American influences and unspoken emotion than the original.`\
-https://nytimes.com/2022/04/28/arts/television/ten-percent-show.html?searchResultPosition=10
+**‘Los Conductos’ Review: Lost Souls Above Medellín**\
+`A former cult member tries to restore his life.`\
+https://nytimes.com/2022/04/28/movies/los-conductos-review.html?searchResultPosition=10
 
