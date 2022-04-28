@@ -35,6 +35,6 @@ https://nytimes.com/2022/04/28/briefing/biden-seeks-military-aid-for-ukraine.htm
 https://nytimes.com/2022/04/28/health/obesity-drug-eli-lilly-tirzepatide-wegovy.html?searchResultPosition=9
 
 **Apple’s growth slows, but still beats Wall Street’s expectations.**\
-`The company’s first quarter was considerably better than the financial results of many of its tech peers.`\
+`While the company’s first quarter was better than the financial results of many of its tech peers, it warned that Covid problems in China will be an issue.`\
 https://nytimes.com/2022/04/28/business/apple-earnings.html?searchResultPosition=10
 
