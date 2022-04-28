@@ -1,6 +1,6 @@
 **After Cawthorn Charge, Democrats Are Split Over Capitol Gun Ban**\
 `The first-term congressman’s second gun charge fueled a push by House Democrats to bar lawmakers from carrying firearms at the Capitol. But they say Senate Democrats are resisting the move.`\
-https://nytimes.com/2022/04/27/us/politics/cawthorn-democrats-guns-capitol.html?searchResultPosition=1
+https://nytimes.com/2022/04/27/us/politics/cawthorn-gun-charge-capitol.html?searchResultPosition=1
 
 **Corrections: April 28, 2022**\
 `Corrections that appeared in print on Thursday, April 28, 2022.`\
