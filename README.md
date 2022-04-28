@@ -1,4 +1,4 @@
-**With a Fleet of Bars on the Water, Two Brothers Drop Anchor**\
+**With a Fleet of Bars on the Water, Two Brothers Drop Anchor Downtown**\
 `The latest venture for boat-bar owners Alex and Miles Pincus is their first permanent, landlocked watering hole in New York City. The bar evokes the feeling of drinking in New Orleans.`\
 https://nytimes.com/2022/04/28/dining/drinks/holywater-tribeca.html?searchResultPosition=1
 
