@@ -4,7 +4,7 @@ https://nytimes.com/2022/04/28/climate/global-warming-ocean-extinctions.html?sea
 
 **‘Small Kindnesses’: A Collective Poem by Teenagers Around the World**\
 `After more than 1,300 teenagers told us about the small kindnesses they appreciate, the poet Danusha Laméris wove their answers into verse.`\
-https://nytimes.com/2022/04/28/learning/small-kindnesses-a-collective-poem-by-teenagers-around-the-world.html?searchResultPosition=2
+https://nytimes.com/2022/04/28/learning/small-kindnesses-poem.html?searchResultPosition=2
 
 **After a Tempest, Philip Guston Shines in a Show True to His Spirit**\
 `The long-delayed survey, now wrapped in the equivalent of caution tape, opens at the Museum of Fine Arts, Boston. It’s been a learning-curve climb for four venues.`\
