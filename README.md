@@ -36,5 +36,5 @@ https://nytimes.com/2022/04/28/us/politics/gun-shops-weapons-resell.html?searchR
 
 **Homes for Sale in New York and Connecticut**\
 `This week’s properties are a four-bedroom house in North Woodmere, N.Y., and a three-bedroom house in Fairfield, Conn.`\
-https://nytimes.com/2022/04/28/realestate/homes-for-sale-in-new-york-and-connecticut.html?searchResultPosition=10
+https://nytimes.com/2022/04/28/realestate/new-york-connecticut-homes.html?searchResultPosition=10
 
