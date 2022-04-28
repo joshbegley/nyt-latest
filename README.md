@@ -1,6 +1,6 @@
 **Are Traditional Political Parties Dead in France?**\
 `Presidents, prime ministers, Parliament — France’s mainstream left and right-wing parties used to have it all. In the first round of April’s presidential elections, they got less than 7 percent of the vote.`\
-https://nytimes.com/2022/04/28/world/europe/france-socialists-republicains-dead.html?searchResultPosition=1
+https://nytimes.com/2022/04/28/world/europe/france-socialists-republicains.html?searchResultPosition=1
 
 **In Films and on TV, a New Openness to Natural Black Hairstyles**\
 `The relationship between characters and their Afro-textured hair has become a focus of directors and stylists, who are mindful of Hollywood’s restrictive past.`\
