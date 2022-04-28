@@ -3,7 +3,7 @@
 https://nytimes.com/2022/04/28/nyregion/redistricting-maps-court-appeals.html?searchResultPosition=1
 
 **Vote on N.Y.C. School Funding Will ‘Blow Up’ System, Chancellor Says**\
-`The Panel for Educational Policy rejected the Adams administration’s funding formula, a move that may delay school budgets for the coming year.`\
+`The Panel for Educational Policy blocked the Adams administration’s funding formula, a move that may delay school budgets for the coming year.`\
 https://nytimes.com/2022/04/28/nyregion/new-york-school-funding.html?searchResultPosition=2
 
 **Your Thursday Evening Briefing**\
