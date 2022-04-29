@@ -1,40 +1,40 @@
+**With ‘Only One to Choose From,’ a Great Choice**\
+`Before meeting at a party in 2011, Michael Taylor and Tim Vincent both thought they would be single for life.`\
+https://nytimes.com/2022/04/29/style/michael-taylor-timothy-vincent-wedding.html?searchResultPosition=1
+
+**He Stood by Her Side, and Never Left**\
+`As they dated over the years, Marissa Valdez found out just how much Brian Shirley cared for her and her family when two of her sisters, then her mother, were diagnosed with cancer.`\
+https://nytimes.com/2022/04/29/style/marissa-valdez-brian-shirley-wedding.html?searchResultPosition=2
+
+**Coupled by Chance, Then by Choice**\
+`Alexandra Walsh and Dr. Ben Nguyen forged a connection after being paired as a team of volunteer E.M.T.s. Years later, they started to date.`\
+https://nytimes.com/2022/04/29/style/alexandra-walsh-ben-nguyen-wedding.html?searchResultPosition=3
+
+**From Russia With Mixed Feelings**\
+`I begged my husband to leave Rostov-on-Don. Now I would give anything to be back there with him.`\
+https://nytimes.com/2022/04/29/style/modern-love-from-russia-with-mixed-feelings.html?searchResultPosition=4
+
+**At an Extra-Credit Assignment, Romance was an Added Bonus**\
+`Andrew Eversden and Rachel Wertz hit it off when they met as students in Rome, beginning a love story that would unfold over several years and in various countries.`\
+https://nytimes.com/2022/04/29/style/andrew-eversden-rachel-wertz-wedding.html?searchResultPosition=5
+
+**A Text a Day Kept Other Suitors Away**\
+`Shortly after Kavya Naini and Eric Elofson met, he left for a two-month work trip. With regular text messages, Mr. Elofson kept their early spark alive.`\
+https://nytimes.com/2022/04/29/style/kavya-naini-eric-elofson-wedding.html?searchResultPosition=6
+
+**Winning With Bingo, and Then Bringing Her the Stars**\
+`Alexandra Wagner and Stephen Sullivan, who met while working at a math-tutoring center in Chicago, had their first date at the city’s Adler Planetarium.`\
+https://nytimes.com/2022/04/29/style/alexandra-wagner-stephen-sullivan-wedding.html?searchResultPosition=7
+
 **House Passes Bill to Allow Lending Arms to Ukraine**\
 `The measure allows President Biden to use a World War II-era law to quickly supply weapons to Ukraine on loan. The Senate passed the legislation unanimously this month.`\
-https://nytimes.com/video/us/politics/100000008325453/lend-lease-weapon-ukraine.html?searchResultPosition=1
+https://nytimes.com/video/us/politics/100000008325453/lend-lease-weapon-ukraine.html?searchResultPosition=8
 
 **Titans trade A.J. Brown to Eagles and pick up Treylon Burks at No. 18.**\
 `The trade involving Brown, a star receiver for Tennessee, was the surprise move of the first round.`\
-https://nytimes.com/2022/04/28/sports/football/titans-eagles-aj-brown-treylon-burks-trade.html?searchResultPosition=2
+https://nytimes.com/2022/04/28/sports/football/titans-eagles-aj-brown-treylon-burks-trade.html?searchResultPosition=9
 
 **Variety: Spiral**\
 `Will Shortz finally circles back with a new Spiral puzzle.`\
-https://nytimes.com/2022/04/28/crosswords/variety-spiral.html?searchResultPosition=3
-
-**Just You and Me, Baby**\
-`Erica Hsiung Wojcik makes her New York Times Crossword debut.`\
-https://nytimes.com/2022/04/28/crosswords/daily-puzzle-2022-04-29.html?searchResultPosition=4
-
-**Premier of British Virgin Islands Arrested on Drug Trafficking Charges in U.S.**\
-`Andrew Fahie, the elected head of government of the small Caribbean territory, has been charged with conspiracy to import at least five kilograms of a cocaine mixture and conspiracy to launder money.`\
-https://nytimes.com/2022/04/28/us/british-virgin-islands-premier-arrested.html?searchResultPosition=5
-
-**Is Australian Democracy in Decline?**\
-`With a federal election just a few weeks away, it’s time to put Australia’s system and political flaws into context.`\
-https://nytimes.com/2022/04/28/world/australia/democracy-elections.html?searchResultPosition=6
-
-**Millions of Bees Bound for Alaska Are Rerouted and Die in Atlanta**\
-`A shipment of five million honeybees was diverted to Atlanta and left out on a hot tarmac. Local beekeepers tried to come to the rescue, but very few survived.`\
-https://nytimes.com/2022/04/28/us/honeybees-died-atlanta-airport-alaska.html?searchResultPosition=7
-
-**Russian intelligence was behind an attack on the editor of Novaya Gazeta, a U.S. official says.**\
-`Dmitri Muratov was on a train preparing to leave Moscow at the time of the attack, which caused chemical burns to his eyes.`\
-https://nytimes.com/2022/04/28/world/novaya-gazeta-editor-attack-russia.html?searchResultPosition=8
-
-**Jaguars take Travon Walker with the No. 1 pick.**\
-`Jacksonville took the defensive lineman after selecting quarterback Trevor Lawrence first overall in 2021.`\
-https://nytimes.com/2022/04/28/sports/football/jaguars-travon-walker-nfl-draft.html?searchResultPosition=9
-
-**N.F.L. Draft Order and Picks: First Round Results**\
-`The Jacksonville Jaguars took Travon Walker, a defensive end from Georgia, at No. 1 overall. Here’s a full list of the results from the first round.`\
-https://nytimes.com/2022/04/28/sports/football/nfl-draft-order-picks-tracker-2022.html?searchResultPosition=10
+https://nytimes.com/2022/04/28/crosswords/variety-spiral.html?searchResultPosition=10
 
