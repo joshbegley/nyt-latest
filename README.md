@@ -20,7 +20,7 @@ https://nytimes.com/2022/04/29/podcasts/pandemic-homelessness-narrated-articles.
 
 **Vaccines for Young Children**\
 `The federal government is telling us two different stories.`\
-https://nytimes.com/2022/04/29/briefing/vaccines-young-children-moderna-pfizer.html?searchResultPosition=6
+https://nytimes.com/2022/04/29/briefing/vaccines-kids-moderna-pfizer.html?searchResultPosition=6
 
 **The Risks of a New U.S. Approach in Ukraine**\
 `Washington had taken pains to avoid the appearance that it was entering a direct confrontation with Moscow. That may be changing.`\
