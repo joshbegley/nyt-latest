@@ -30,7 +30,7 @@ https://nytimes.com/2022/04/29/style/alexandra-wagner-stephen-sullivan-wedding.h
 `The measure allows President Biden to use a World War II-era law to quickly supply weapons to Ukraine on loan. The Senate passed the legislation unanimously this month.`\
 https://nytimes.com/video/us/politics/100000008325453/lend-lease-weapon-ukraine.html?searchResultPosition=8
 
-**Titans trade A.J. Brown to Eagles and pick up Treylon Burks at No. 18.**\
+**Titans Trade A.J. Brown to Eagles and Draft Treylon Burks of Arkansas**\
 `The trade involving Brown, a star receiver for Tennessee, was the surprise move of the first round.`\
 https://nytimes.com/2022/04/28/sports/football/titans-eagles-aj-brown-treylon-burks-trade.html?searchResultPosition=9
 
