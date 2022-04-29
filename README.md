@@ -4,7 +4,7 @@ https://nytimes.com/2022/04/29/us/politics/ukraine-rape-war-crimes.html?searchRe
 
 **In ‘I Love That for You,’ Vanessa Bayer Sells Out**\
 `The “Saturday Night Live” veteran’s new sitcom draws on her experience of childhood cancer and her obsession with home shopping TV.`\
-https://nytimes.com/2022/04/29/arts/television/i-love-that-for-you-vanessa-bayer.html?searchResultPosition=2
+https://nytimes.com/2022/04/29/arts/television/vanessa-bayer-i-love-that-for-you.html?searchResultPosition=2
 
 **The Fed’s favorite inflation index is still rising fast, but shows some hints of slowing.**\
 `The Personal Consumption Expenditures price index climbed 6.6 percent from a year earlier, the quickest pace of increase since 1982.`\
