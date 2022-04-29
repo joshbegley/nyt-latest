@@ -19,7 +19,7 @@ https://nytimes.com/2022/04/29/briefing/vaccines-young-children-moderna-pfizer.h
 https://nytimes.com/2022/04/29/podcasts/the-daily/ukraine-russia-war-us.html?searchResultPosition=5
 
 **Europe’s economy slows to a crawl as war and inflation take a toll.**\
-`By Patricia Cohen`\
+`The eurozone economy grew 0.2 percent in the first three months of the year, and growth in the European Union was just a touch higher.`\
 https://nytimes.com/2022/04/29/business/europe-economy-gdp.html?searchResultPosition=6
 
 **An Education Panel Gets Feisty With the Mayor**\
