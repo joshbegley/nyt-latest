@@ -1,40 +1,40 @@
-**Ukraine singles out Russian soldiers for atrocities in Bucha.**\
-`In the first detailed set of allegations since the invasion, Ukrainian officials published the names and photos of Russian soldiers they say tortured civilians in a suburb of Kyiv.`\
-https://nytimes.com/2022/04/29/world/europe/ukraine-singles-out-russian-soldiers-for-atrocities-in-bucha.html?searchResultPosition=1
+**Help! I Spent a Fortune for a Credit-Card Companion Pass But the Virus Wouldn’t Quit**\
+`Are travelers missing out by not playing the credit-card game in search of first-class tickets? Our new Tripped Up columnist considers the fees and the benefits of two cards.`\
+https://nytimes.com/2022/04/29/travel/flights-travel-ticket-deals.html?searchResultPosition=1
 
-**Portraits of Performance**\
-`Meet the dynamic high achievers who, in different fields, rely on high-performance technology to push the boundaries of possibility.`\
-https://nytimes.com/paidpost/msi/portraits-of-performance.html?searchResultPosition=2
+**Saving the History of the Pines on Fire Island**\
+`Bobby Bonanno created the Fire Island Pines Historical Preservation Society, collecting photographs and documents and conducting interviews.`\
+https://nytimes.com/2022/04/29/realestate/fire-island-pines-preservation.html?searchResultPosition=2
 
-**On Ireland’s Census, a Blank Box Gives Residents a Chance to Tell Their Stories**\
-`The makers of the survey included a space for people to write or draw a message. The contents of these so-called time capsules will be revealed in 100 years.`\
-https://nytimes.com/2022/04/29/world/europe/ireland-census-time-capsule.html?searchResultPosition=3
+**A Georgia City Reckons With a New District, Led by Marjorie Taylor Greene**\
+`Powder Springs is one of two predominantly Black suburbs drawn into the far-right Republican’s district. If Ms. Greene is their voice in Congress, will she speak for them?`\
+https://nytimes.com/2022/04/29/us/politics/georgia-redistricting-greene.html?searchResultPosition=3
 
-**They Survived the Holocaust. Now, They Are Fleeing to Germany.**\
-`A complex operation is underway to evacuate Holocaust survivors from Ukraine. For rescuers and evacuees alike, it means confronting the past.`\
-https://nytimes.com/2022/04/29/world/europe/ukraine-holocaust-survivors-rescue-germany.html?searchResultPosition=4
+**On the Trail of Russian War Crimes**\
+`Lyudmyla Denisova, Ukraine’s top human rights official, is determined to right historical wrongs and make sure Russians are held to account.`\
+https://nytimes.com/2022/04/29/world/europe/on-the-trail-of-russian-war-crimes.html?searchResultPosition=4
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/04/29/crosswords/spelling-bee-forum.html?searchResultPosition=5
+**The Rise of the ‘Power Casual’ Wardrobe**\
+`Work wear reflects how people feel about their jobs and the economy as a whole. So it makes sense that dressing for the office is all over the place.`\
+https://nytimes.com/2022/04/29/business/casual-workwear-clothes-office.html?searchResultPosition=5
 
-**Weighing Risk When the Reporting Is Dangerous**\
-`A security team watches out for Times journalists abroad. There are strategies in place, but sometimes there’s no other choice but to leave a country.`\
-https://nytimes.com/2022/04/29/insider/weighing-risk-when-the-reporting-is-dangerous.html?searchResultPosition=6
+**Musk’s Ties to China Could Create Headaches for Twitter**\
+`Elon Musk has invested heavily in China, where officials are willing to influence or punish companies that cross political red lines.`\
+https://nytimes.com/2022/04/29/technology/elon-musk-china-tesla.html?searchResultPosition=6
 
-**James Corden Announces He’s Leaving Late Night**\
-`Corden made an emotional address on Thursday night, saying he never wanted to overstay his welcome.`\
-https://nytimes.com/2022/04/29/arts/television/james-corden-late-night-trump-fruit.html?searchResultPosition=7
+**When the Textile Industry Was Forced Out of the Textile Building**\
+`Companies may have lost their showroom hub, but low rents in Midtown, caused by the pandemic, allowed many of them to relocate.`\
+https://nytimes.com/2022/04/29/nyregion/textile-building-new-york.html?searchResultPosition=7
 
-**Word of the Day: cleave**\
-`This word has appeared in 21 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/04/29/learning/word-of-the-day-cleave.html?searchResultPosition=8
+**A Black Man Ran to Gay Enclaves to Feel Safe. But Was He Welcome?**\
+`Zach Stafford, the former editor in chief of The Advocate, traveled to gay safe havens as he has for so many summers, but the summer of 2020 was different.`\
+https://nytimes.com/2022/04/29/realestate/black-homeowners-gay-enclaves.html?searchResultPosition=8
 
-**8,000 British troops will join allied exercises in Europe, officials say.**\
-`The troops will serve in the British-led Joint Expeditionary Force, created in 2014 in response to Russia’s seizure of Crimea from Ukraine.`\
-https://nytimes.com/2022/04/29/world/britain-troops-europe.html?searchResultPosition=9
+**Working 9 to 2, and Again After Dinner**\
+`The pandemic upended the rigid 9-to-5 workday. Enter the age of the “triple peak” day.`\
+https://nytimes.com/2022/04/29/business/working-9-to-2-and-again-after-dinner.html?searchResultPosition=9
 
-**What We Learned From Round 1 of the N.F.L. Draft**\
-`It was a big night for linemen, receivers, and the state of Georgia, but a very quiet one for quarterbacks. In surprising moves, A.J. Brown was traded to the Eagles and the Jets and Giants drafted prudently.`\
-https://nytimes.com/2022/04/29/sports/football/nfl-draft-results-analysis.html?searchResultPosition=10
+**Family Court Lawyers Flee Low-Paying Jobs. Parents and Children Suffer.**\
+`New York hasn’t raised the attorneys’ fees since 2004, creating a shortage that has denied the most vulnerable their constitutional right to a lawyer.`\
+https://nytimes.com/2022/04/29/nyregion/family-court-attorneys-fees.html?searchResultPosition=10
 
