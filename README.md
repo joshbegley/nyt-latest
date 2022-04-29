@@ -1,6 +1,6 @@
 **Palestinians Denied Access to Aqsa Mosque Turn to Smugglers**\
 `For Palestinian Muslims, praying at the Aqsa Mosque in Jerusalem is an important part of Ramadan. Those barred by Israel are finding ways to get there anyway.`\
-https://nytimes.com/2022/04/29/world/middleeast/palestinians-aqsa-smuggling-israel.html?searchResultPosition=1
+https://nytimes.com/2022/04/29/world/middleeast/israel-palestine-aqsa-mosque.html?searchResultPosition=1
 
 **Why Republican Insurgents Are Struggling to Topple G.O.P. Governors**\
 `Republicans in several states are trying to oust conservative governors by harnessing anti-establishment energy. But in battles for a state’s top job, it’s hard to beat the establishment.`\
