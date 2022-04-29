@@ -4,7 +4,7 @@ https://nytimes.com/2022/04/29/us/politics/madison-cawthorn.html?searchResultPos
 
 **Disney’s top communications executive is out after less than four months.**\
 `Geoff Morrell’s brief tenure was defined by the company’s being drawn into the partisan political fray, most notably in Florida.`\
-https://nytimes.com/2022/04/29/business/disneys-top-communications-executive-geoff-morrell-is-out.html?searchResultPosition=2
+https://nytimes.com/2022/04/29/business/geoff-morrell-disney-out.html?searchResultPosition=2
 
 **Overlooked No More: Ady Fidelin, Black Model ‘Hidden in Plain Sight’**\
 `She appeared in hundreds of Man Ray’s photos, was friends with Picasso and is believed to be the first Black model to appear in a major American fashion magazine.`\
