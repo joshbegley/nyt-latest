@@ -1,40 +1,40 @@
+**Is Australian Democracy in Decline?**\
+`With a federal election just a few weeks away, it’s time to put Australia’s system and political flaws into context.`\
+https://nytimes.com/2022/04/28/world/australia/democracy-elections.html?searchResultPosition=1
+
 **Millions of Bees Bound for Alaska Are Rerouted and Die in Atlanta**\
 `A shipment of five million honeybees was diverted to Atlanta and left out on a hot tarmac. Local beekeepers tried to come to the rescue, but very few survived.`\
-https://nytimes.com/2022/04/28/us/honeybees-died-atlanta-airport-alaska.html?searchResultPosition=1
+https://nytimes.com/2022/04/28/us/honeybees-died-atlanta-airport-alaska.html?searchResultPosition=2
 
 **Russian intelligence was behind an attack on the editor of Novaya Gazeta, a U.S. official says.**\
 `Dmitri Muratov was on a train preparing to leave Moscow at the time of the attack, which caused chemical burns to his eyes.`\
-https://nytimes.com/2022/04/28/world/novaya-gazeta-editor-attack-russia.html?searchResultPosition=2
+https://nytimes.com/2022/04/28/world/novaya-gazeta-editor-attack-russia.html?searchResultPosition=3
 
 **Jaguars take Travon Walker with the No. 1 pick.**\
 `Jacksonville took the defensive lineman after selecting quarterback Trevor Lawrence first overall in 2021.`\
-https://nytimes.com/2022/04/28/sports/football/jaguars-travon-walker-nfl-draft.html?searchResultPosition=3
+https://nytimes.com/2022/04/28/sports/football/jaguars-travon-walker-nfl-draft.html?searchResultPosition=4
 
 **N.F.L. Draft Order and Picks: First Round Results**\
 `The Jacksonville Jaguars took Travon Walker, a defensive end from Georgia, at No. 1 overall. Here’s a full list of the results as they happen.`\
-https://nytimes.com/2022/04/28/sports/football/nfl-draft-order-picks-tracker-2022.html?searchResultPosition=4
+https://nytimes.com/2022/04/28/sports/football/nfl-draft-order-picks-tracker-2022.html?searchResultPosition=5
 
 **Airbnb tells employees they can work remotely forever.**\
 `The company, a proponent of more flexible workplace models, previously set a September 2022 date for a return to its offices.`\
-https://nytimes.com/2022/04/28/business/airbnb-employees-remote-work.html?searchResultPosition=5
+https://nytimes.com/2022/04/28/business/airbnb-employees-remote-work.html?searchResultPosition=6
 
 **Text Neck, Pinkie Pain and Other Ways Phones Can Wreck Our Bodies**\
 `Health providers say they are seeing more patients than ever with pain and joint ailments in their hands, necks, shoulders and upper backs — and that mobile phones are most likely playing a part.`\
-https://nytimes.com/2022/04/28/well/live/neck-joint-pain-phone.html?searchResultPosition=6
+https://nytimes.com/2022/04/28/well/live/neck-joint-pain-phone.html?searchResultPosition=7
 
 **The largest transit system in the Bay Area reinstates a mask mandate for riders.**\
 `The decision will be effective until July 18, and could be extended.`\
-https://nytimes.com/2022/04/28/world/san-francisco-bart-mask-mandate.html?searchResultPosition=7
+https://nytimes.com/2022/04/28/world/san-francisco-bart-mask-mandate.html?searchResultPosition=8
 
 **Biden Digs In on Ukraine Strategy, Seeking $33 Billion More in Aid**\
 `“The cost of this fight is not cheap,” President Biden said. He also sent Congress a plan to increase the government’s power to seize luxury yachts, aircraft and other assets of Russian oligarchs.`\
-https://nytimes.com/2022/04/28/us/politics/ukraine-biden-aid.html?searchResultPosition=8
+https://nytimes.com/2022/04/28/us/politics/ukraine-biden-aid.html?searchResultPosition=9
 
 **The Liberty Are Reinventing Themselves**\
 `The team enters the 2022 W.N.B.A. season with a new coach and center, returning players who were hampered by injuries last year, and the desire to become full-fledged title contenders.`\
-https://nytimes.com/2022/04/28/sports/basketball/wnba-liberty.html?searchResultPosition=9
-
-**Seven Lessons Democrats Need to Learn — Fast**\
-`Retooling the party for an age of disorder.`\
-https://nytimes.com/2022/04/28/opinion/seven-lessons-democrats-need-to-learn-fast.html?searchResultPosition=10
+https://nytimes.com/2022/04/28/sports/basketball/wnba-liberty.html?searchResultPosition=10
 
