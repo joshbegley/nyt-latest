@@ -31,7 +31,7 @@ https://nytimes.com/2022/04/29/business/dealbook/us-gdp-economy-slowdown.html?se
 https://nytimes.com/2022/04/29/crosswords/60-seconds-with-erica-hsiung-wojcik.html?searchResultPosition=8
 
 **Under Lockdown in China**\
-`Weeks of confinement in Shanghai have fueled anger and anxiety about the cost of a “zero-Covid” strategy.`\
+`By Agnes Chang, Amy Qin, Isabelle Qian and Amy Chang Chien`\
 https://nytimes.com/interactive/2022/04/29/world/asia/shanghai-lockdown.html?searchResultPosition=9
 
 **Anglo-Saxon Kings Made Sure to Eat Their Vegetables, Study Shows**\
