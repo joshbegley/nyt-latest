@@ -1,6 +1,6 @@
 **Russia’s Donbas offensive has made little progress in fierce combat, Western officials and analysts say.**\
 `Despite a more cautious and methodical approach, Russia’s military appears to still be suffering heavy losses, supply problems and low morale.`\
-https://nytimes.com/2022/04/29/world/europe/donbas-offensive-slow.html?searchResultPosition=1
+https://nytimes.com/2022/04/29/world/europe/ukraine-russia-donbas-offensive.html?searchResultPosition=1
 
 **Jennifer Egan Talks About ‘The Candy House’**\
 `Egan’s new novel is a follow-up to her Pulitzer Prize-winning “A Visit From the Goon Squad.”`\
