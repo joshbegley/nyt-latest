@@ -28,7 +28,7 @@ https://nytimes.com/2022/04/29/business/europe-economy-gdp.html?searchResultPosi
 
 **An Education Panel Gets Feisty With the Mayor**\
 `The Panel for Education Policy balked at passing the Department of Education’s school funding formula for next year.`\
-https://nytimes.com/2022/04/29/nyregion/an-education-panel-gets-feisty-with-the-mayor.html?searchResultPosition=8
+https://nytimes.com/2022/04/29/nyregion/panel-for-education-policy-nyc.html?searchResultPosition=8
 
 **Help! I Spent a Fortune for a Credit-Card Companion Pass But the Virus Wouldn’t Quit**\
 `Are travelers missing out by not playing the credit-card game in search of first-class tickets? Our new Tripped Up columnist considers the fees and the benefits of two cards.`\
