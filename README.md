@@ -19,7 +19,7 @@ https://nytimes.com/2022/04/29/nyregion/ramadan-charitable-giving.html?searchRes
 https://nytimes.com/2022/04/29/science/swan-fossil-japan.html?searchResultPosition=5
 
 **Billionaire Jim Ratcliffe Bids $5.3 Billion for Chelsea F.C.**\
-`The late bid for the Premier League soccer club by Ratcliffe, the chief executive of Ineos, would be the highest price ever paid for a sports team.`\
+`The late offer by Ratcliffe, the chief executive of Ineos, for the Premier League soccer club would be the highest price ever paid for a sports team.`\
 https://nytimes.com/2022/04/29/sports/soccer/chelsea-ratcliffe-sale.html?searchResultPosition=6
 
 **Ziwe and Her Comedy Pals Party in Pink**\
