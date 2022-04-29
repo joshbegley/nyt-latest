@@ -8,7 +8,7 @@ https://nytimes.com/2022/04/29/dining/scones-dried-strawberry.html?searchResultP
 
 **Trevor Bauer Suspended for Two Seasons Amid Abuse Claim**\
 `Bauer, a pitcher for the Los Angeles Dodgers, had been on leave from the club as he faced allegations of sexual assault. Prosecutors in Los Angeles had declined to charge him criminally.`\
-https://nytimes.com/2022/04/29/sports/baseball/trevor-bauer-suspended.html?searchResultPosition=3
+https://nytimes.com/2022/04/29/sports/baseball/dodgers-trevor-bauer-suspended.html?searchResultPosition=3
 
 **Mariupol’s Mayor Calls For Help Saving Those Trapped in Steel Plant**\
 `The mayor of Mariupol, Ukraine, appealed for international help evacuating civilians as conditions deteriorated inside the Azovstal steel complex, the city’s last holdout for Ukrainian fighters and civilians.`\
