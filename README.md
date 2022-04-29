@@ -4,7 +4,7 @@ https://nytimes.com/2022/04/29/arts/design/christies-dinosaur-auction-hector.htm
 
 **Started Out as a Fish. How Did It End Up Like This?**\
 `A meme about the transitional fossil Tiktaalik argues that although we did emerge from the sea, we aren’t doing just fine.`\
-https://nytimes.com/2022/04/29/science/tiktaalik-fish-fossil.html?searchResultPosition=2
+https://nytimes.com/2022/04/29/science/tiktaalik-fish-fossil-meme.html?searchResultPosition=2
 
 **The Giants’ and Jets’ Early Draft Gets an Unusual Reception: Praise**\
 `The Jets scooped Ahmad Gardner, Garrett Wilson and Jermaine Johnson II, three of their eight top targets in the N.F.L. draft, while the Giants bolstered both lines with Kayvon Thibodeaux and Evan Neal.`\
