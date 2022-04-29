@@ -1,4 +1,4 @@
-**2 Killed by Subway Train on Tracks at a Manhattan Station**\
+**2 on Subway Tracks Killed by Train at a Manhattan Station**\
 `The deaths came a week after the bodies of two French graffiti artists who had been fatally struck by a train were found in Brooklyn.`\
 https://nytimes.com/2022/04/29/nyregion/nyc-subway-train-tracks-death.html?searchResultPosition=1
 
