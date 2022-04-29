@@ -7,7 +7,7 @@ https://nytimes.com/2022/04/29/theater/macbeth-review-broadway.html?searchResult
 https://nytimes.com/2022/04/29/world/europe/mariupol-steel-plant-video.html?searchResultPosition=2
 
 **F.D.A. sets aside June for potential decisions on vaccines for the youngest Americans.**\
-`Both Moderna and Pfizer-BioNTech have asked the agency to approve their vaccines for children under 5.`\
+`Both Moderna and Pfizer-BioNTech have asked the agency to approve their vaccines for the youngest children.`\
 https://nytimes.com/2022/04/29/us/politics/fda-covid-vaccine-under-5.html?searchResultPosition=3
 
 **The Courage Required to Confront Inflation**\
