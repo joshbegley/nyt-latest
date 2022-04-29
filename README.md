@@ -19,7 +19,7 @@ https://nytimes.com/2022/04/29/style/brutalisten-stockholm-carsten-holler.html?s
 https://nytimes.com/video/world/europe/100000008326459/ukraine-radio-liberty-journalist-killed.html?searchResultPosition=5
 
 **National Security Surveillance on U.S. Soil Dropped Again in 2021, Report Says**\
-`The F.B.I. also tried to estimate its searches for U.S. data in messages gathered without a warrant. But the number — fewer than 3.4 million — was murky.`\
+`The F.B.I. also tried to estimate the number of its searches for U.S. data in messages gathered without a warrant. But the estimate — fewer than 3.4 million — was murky.`\
 https://nytimes.com/2022/04/29/us/politics/national-security-surveillance-2021.html?searchResultPosition=6
 
 **Why Netflix Is the Worst Performing Stock in the S&P 500**\
