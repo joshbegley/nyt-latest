@@ -1,5 +1,5 @@
 **Philip J. Hilts, 74, Dies; Reporter Exposed a Big-Tobacco Cover-up**\
-`In one of his many scoops for The Times, he revealed how the tobacco industry had hidden its own research showing that nicotine was harmful and addictive.`\
+`In one of his many scoops for The Times, he revealed how the tobacco industry had kept secret its own research showing that nicotine was harmful and addictive.`\
 https://nytimes.com/2022/04/29/business/media/philip-j-hilts-dead.html?searchResultPosition=1
 
 **Pressure Mounts on Cawthorn as Scandals Pile Up**\
