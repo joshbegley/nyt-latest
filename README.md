@@ -14,7 +14,7 @@ https://nytimes.com/interactive/2022/04/29/arts/television/best-of-late-night.ht
 `Tired ‘tough on crime’ rhetoric is not the solution to crime in 2022.`\
 https://nytimes.com/2022/04/29/opinion/eric-adams-new-york-crime.html?searchResultPosition=4
 
-**Rising Economic Fear Batters Wall Street in April**\
+**Rising Economic Fear Batters Wall Street**\
 `The S&P 500 is heading for its worst monthly decline since March 2020, as rising interest rates and high inflation raise concerns about consumer sentiment.`\
 https://nytimes.com/2022/04/29/business/april-stocks-inflation.html?searchResultPosition=5
 
