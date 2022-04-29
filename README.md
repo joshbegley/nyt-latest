@@ -7,7 +7,7 @@ https://nytimes.com/interactive/2022/04/29/smarter-living/wirecutter/clean-wood-
 https://nytimes.com/2022/04/29/us/fire-tornadoes-central-plains-west.html?searchResultPosition=2
 
 **Instacart Searches for a Direction as Its Pandemic Boom Fades**\
-`The grocery delivery start-up parted ways with its founder, slashed its valuation and shifted its strategy after sales slowed.`\
+`The grocery delivery start-up changed its leadership, slashed its valuation and shifted its strategy after sales slowed.`\
 https://nytimes.com/2022/04/29/technology/instacart-valuation-pandemic.html?searchResultPosition=3
 
 **Drug Sentencing Bill Is in Limbo as Midterm Politics Paralyze Congress**\
