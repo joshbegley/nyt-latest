@@ -18,23 +18,23 @@ https://nytimes.com/2022/04/29/briefing/vaccines-young-children-moderna-pfizer.h
 `Washington had taken pains to avoid the appearance that it was entering a direct confrontation with Moscow. That may be changing.`\
 https://nytimes.com/2022/04/29/podcasts/the-daily/ukraine-russia-war-us.html?searchResultPosition=5
 
+**Europe’s economy slows to a crawl as war and inflation take a toll.**\
+`By Patricia Cohen`\
+https://nytimes.com/2022/04/29/business/europe-economy-gdp.html?searchResultPosition=6
+
 **An Education Panel Gets Feisty With the Mayor**\
 `The Panel for Education Policy balked at passing the Department of Education’s school funding formula for next year.`\
-https://nytimes.com/2022/04/29/nyregion/an-education-panel-gets-feisty-with-the-mayor.html?searchResultPosition=6
+https://nytimes.com/2022/04/29/nyregion/an-education-panel-gets-feisty-with-the-mayor.html?searchResultPosition=7
 
 **Help! I Spent a Fortune for a Credit-Card Companion Pass But the Virus Wouldn’t Quit**\
 `Are travelers missing out by not playing the credit-card game in search of first-class tickets? Our new Tripped Up columnist considers the fees and the benefits of two cards.`\
-https://nytimes.com/2022/04/29/travel/flights-travel-ticket-deals.html?searchResultPosition=7
+https://nytimes.com/2022/04/29/travel/flights-travel-ticket-deals.html?searchResultPosition=8
 
 **Saving the History of the Pines on Fire Island**\
 `Bobby Bonanno created the Fire Island Pines Historical Preservation Society, collecting photographs and documents and conducting interviews.`\
-https://nytimes.com/2022/04/29/realestate/fire-island-pines-preservation.html?searchResultPosition=8
+https://nytimes.com/2022/04/29/realestate/fire-island-pines-preservation.html?searchResultPosition=9
 
 **A Georgia City Reckons With a New District, Led by Marjorie Taylor Greene**\
 `Powder Springs is one of two predominantly Black suburbs drawn into the far-right Republican’s district. If Ms. Greene is their voice in Congress, will she speak for them?`\
-https://nytimes.com/2022/04/29/us/politics/georgia-redistricting-greene.html?searchResultPosition=9
-
-**On the Trail of Russian War Crimes**\
-`Lyudmyla Denisova, Ukraine’s top human rights official, is determined to right historical wrongs and make sure Russians are held to account.`\
-https://nytimes.com/2022/04/29/world/europe/on-the-trail-of-russian-war-crimes.html?searchResultPosition=10
+https://nytimes.com/2022/04/29/us/politics/georgia-redistricting-greene.html?searchResultPosition=10
 
