@@ -35,6 +35,6 @@ https://nytimes.com/2022/04/28/world/novaya-gazeta-editor-attack-russia.html?sea
 https://nytimes.com/2022/04/28/sports/football/jaguars-travon-walker-nfl-draft.html?searchResultPosition=9
 
 **N.F.L. Draft Order and Picks: First Round Results**\
-`The Jacksonville Jaguars took Travon Walker, a defensive end from Georgia, at No. 1 overall. Here’s a full list of the results as they happen.`\
+`The Jacksonville Jaguars took Travon Walker, a defensive end from Georgia, at No. 1 overall. Here’s a full list of the results from the first round.`\
 https://nytimes.com/2022/04/28/sports/football/nfl-draft-order-picks-tracker-2022.html?searchResultPosition=10
 
