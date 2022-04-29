@@ -8,7 +8,7 @@ https://nytimes.com/2022/04/29/sports/baseball/trevor-bauer-suspension.html?sear
 
 **Review: In ‘Jerusalem,’ a Once-in-a-Lifetime Performance, Again**\
 `Mark Rylance is back in a role that won him a Tony more than a decade ago. But this London production isn’t just coasting on past kudos.`\
-https://nytimes.com/2022/04/29/theater/review-in-jerusalem-a-once-in-a-lifetime-performance-again.html?searchResultPosition=3
+https://nytimes.com/2022/04/29/theater/in-jerusalem-review.html?searchResultPosition=3
 
 **Is American Democracy Built to Last?**\
 `Yascha Mounk’s new book questions deeply held beliefs about the stability of Western societies.`\
