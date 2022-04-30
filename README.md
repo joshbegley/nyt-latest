@@ -1,5 +1,5 @@
 **Tornado Strikes Kansas Town Near Wichita**\
-`A tornado ripped through Andover, Kan., damaging dozens of structures, including homes and power lines. No fatalities were reported.`\
+`A tornado on Friday night ripped through Andover, Kan., damaging dozens of structures, including homes and power lines. No fatalities were reported.`\
 https://nytimes.com/video/us/100000008327531/tornado-kansas-andover-wichita.html?searchResultPosition=1
 
 **An Oil Tanker Is Sabotaged. The Investigator Dies. Now What?**\
