@@ -1,5 +1,5 @@
 **As many ambassadors left town, the pope’s emissary remained in Kyiv.**\
-`By Victoria Kim`\
+`Through shelling, street fights in the suburbs and the flight of thousands through Ukraine’s capital, the Vatican’s diplomatic mission stayed put.`\
 https://nytimes.com/2022/04/30/world/europe/pope-francis-kyiv-ambassadors.html?searchResultPosition=1
 
 **Fuad El-Hibri, Who Led a Troubled Vaccine Maker, Dies at 64**\
