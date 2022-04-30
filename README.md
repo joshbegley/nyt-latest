@@ -30,7 +30,7 @@ https://nytimes.com/2022/04/30/technology/twitter-board-elon-musk.html?searchRes
 `Charles W. Herbster, who has been endorsed by Donald Trump for Nebraska governor, was accused of groping a second woman at a 2019 Republican fund-raising event. He denies both allegations.`\
 https://nytimes.com/2022/04/30/us/politics/charles-herbster-groping.html?searchResultPosition=8
 
-**Climate Change Threatens Another California Forest, This One Underwater**\
+**Warmer Oceans Threaten Another California Forest, This One Underwater**\
 `These kelp forests sequester more carbon dioxide than the state’s redwood groves.`\
 https://nytimes.com/2022/04/30/opinion/climate-change-california-kelp.html?searchResultPosition=9
 
