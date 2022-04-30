@@ -3,7 +3,7 @@
 https://nytimes.com/2022/04/30/sports/ncaabasketball/vivian-stringer-retires.html?searchResultPosition=1
 
 **Jail Officer and Murder Suspect Missing After Heading to Fictitious Appointment**\
-`The authorities in Alabama said it was unclear whether the officer helped the inmate escape or whether she had been kidnapped.`\
+`The authorities in Alabama said it was unclear whether the officer had helped the inmate escape or whether she had been kidnapped.`\
 https://nytimes.com/2022/04/30/us/officer-inmate-missing-alabama.html?searchResultPosition=2
 
 **Tornado Strikes Kansas Town Near Wichita**\
