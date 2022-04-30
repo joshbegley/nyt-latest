@@ -12,7 +12,7 @@ https://nytimes.com/2022/04/30/us/kenneth-pilon-hate-crime-blm-michigan.html?sea
 
 **A small group of women and children has made it out of Mariupol’s Azovstal steel plant.**\
 `A Ukrainian commander and Russian news agencies said about 20 civilians were able to leave the steel factory in the besieged city of Mariupol. An unknown number of civilians remains at the plant.`\
-https://nytimes.com/2022/04/30/world/ukraine-war-steel-plant-mariupol.html?searchResultPosition=4
+https://nytimes.com/2022/04/30/world/mariupol-evacuation-steel-plant-ukraine.html?searchResultPosition=4
 
 **Some Muslims Are Using Digital Rings to Track Their Praises to God**\
 `Much like the fitness tools that count steps, these electronic devices help keep a record of the day’s religious recitations.`\
