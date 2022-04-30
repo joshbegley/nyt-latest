@@ -22,7 +22,7 @@ https://nytimes.com/2022/04/30/world/middleeast/muslims-digital-prayer-rings.htm
 `Stringer, who reached four Final Fours, won more than 1,000 games over a half-century at Cheyney State, Iowa and, finally, Rutgers.`\
 https://nytimes.com/2022/04/30/sports/ncaabasketball/vivian-stringer-retires.html?searchResultPosition=6
 
-**Jail Officer and Murder Suspect Missing After Heading to Fictitious Appointment**\
+**Jail Officer and Murder Suspect Missing After Heading to Unfounded Appointment**\
 `The authorities in Alabama said it was unclear whether the officer had helped the inmate escape or whether she had been kidnapped.`\
 https://nytimes.com/2022/04/30/us/officer-inmate-missing-alabama.html?searchResultPosition=7
 
