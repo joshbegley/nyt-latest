@@ -1,6 +1,6 @@
 **Sunflower Oil ‘Vanishes’ as Ukraine War Grinds On**\
 `Several British supermarkets have joined other chains around the world in asking shoppers to limit their cooking oil purchases, as supplies dwindle and prices rise.`\
-https://nytimes.com/2022/04/30/us/cooking-oil-shortage-ukraine.html?searchResultPosition=1
+https://nytimes.com/2022/04/30/world/europe/cooking-oil-shortage-ukraine.html?searchResultPosition=1
 
 **A Winnipeg Landmark Rich in Symbolism Comes Under Indigenous Control**\
 `The Hudson’s Bay Company has turned over its former flagship store to an Indigenous group with big ambitions for the space.`\
