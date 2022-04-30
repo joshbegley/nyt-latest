@@ -1,40 +1,40 @@
-**Abbott Threatens to Declare an ‘Invasion’ as Migrant Numbers Climb**\
-`Gov. Greg Abbott of Texas has pursued an expensive and unusual effort to harden the border. But after a year, there is little to show for it.`\
-https://nytimes.com/2022/04/30/us/texas-border-abbott.html?searchResultPosition=1
+**Mother’s Day Gifts, Reframed**\
+`After two years that did not go as most people desired, why not give Mom something you know she will want: a framed photo.`\
+https://nytimes.com/2022/04/30/style/mothers-day-picture-frames-gift.html?searchResultPosition=1
 
-**‘What Are We Supposed to Cut Back?’ Britons at Risk as Fuel Bills Skyrocket.**\
-`Fear among older and other vulnerable people is building as war in Ukraine aggravates energy costs that inflation had already pushed higher.`\
-https://nytimes.com/2022/04/30/business/cost-of-living-uk-prices.html?searchResultPosition=2
+**Christian Village in Israel Digs Into Its Crusader Past**\
+`The residents of Mi’ilya long wondered what archaeological treasures lay beneath a crumbling castle. Now, some are excavating their homes to find out.`\
+https://nytimes.com/2022/04/30/world/middleeast/miilya-israel-archaeology-crusaders-byzantine.html?searchResultPosition=2
 
-**Once Soft-Spoken, Ohio Conservatives Embrace the Bombast**\
-`The slugfest for the Republican nomination for Ohio’s open Senate seat has buried the brand of good-natured, country-club conservatism that was once a hallmark of the state.`\
-https://nytimes.com/2022/04/30/us/politics/ohio-senate-primary-vance-trump.html?searchResultPosition=3
+**When the Best Part of Going Out Is the Late-Night Snack**\
+`Some of New York’s nightlife scenes are less about dancing and more about eating.`\
+https://nytimes.com/2022/04/30/nyregion/nyc-night-market-food-vendors.html?searchResultPosition=3
 
-**Governments Tighten Grip on Global Food Stocks, Sending Prices Higher**\
-`Dozens of countries have thrown up trade barriers in the past two months to protect scarce supplies of food and commodities, but experts say the policies will only exacerbate a global food crisis.`\
-https://nytimes.com/2022/04/30/business/economy/global-food-prices-ukraine.html?searchResultPosition=4
+**Inside the Flawed Vetting Process That Led Gov. Hochul to Brian Benjamin**\
+`An initial 63-page background check revealed two red flags in Mr. Benjamin’s past, but it failed to turn up a subpoena issued to his political campaign.`\
+https://nytimes.com/2022/04/30/nyregion/brian-benjamin-kathy-hochul.html?searchResultPosition=4
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/04/30/crosswords/spelling-bee-forum.html?searchResultPosition=5
+**These Bloodworms Grow Copper Fangs and Have Bad Attitudes**\
+`Scientists figured out the biochemical process that lets the turf-conscious worms grow sharp teeth using very simple materials.`\
+https://nytimes.com/2022/04/30/science/bloodworms-copper-teeth.html?searchResultPosition=5
 
-**Corrections: April 30, 2022**\
-`Corrections that appeared in print on Saturday, April 30, 2022.`\
-https://nytimes.com/2022/04/30/pageoneplus/corrections-april-30-2022.html?searchResultPosition=6
+**How the Executive Director of the Queens Botanical Garden Spends Her Sundays**\
+`Evie Hantzopoulos has lived in Astoria since 1999. She is committed to the neighborhood, shopping, socializing and volunteering locally.`\
+https://nytimes.com/2022/04/30/nyregion/evie-hantzopoulos-queens-botanical-garden.html?searchResultPosition=6
 
-**Quotation of the Day: How Many Men in Albuquerque? Tell You in 2023, Census Pledges.**\
-`Quotation of the Day for Saturday, April 30, 2022.`\
-https://nytimes.com/2022/04/30/todayspaper/quotation-of-the-day-how-many-men-in-albuquerque-tell-you-in-2023-census-pledges.html?searchResultPosition=7
+**Twitter Isn’t for Quitters**\
+`One thing that unites conservatives and liberals? No matter how loudly they denounce the social media platform, they don’t actually leave.`\
+https://nytimes.com/2022/04/30/business/twitter-free-speech-musk.html?searchResultPosition=7
 
-**The Mets Have an Imperfect Night to Remember**\
-`Tylor Megill and four relievers shut down Philadelphia, securing M.L.B.’s first no-hitter of 2022 and the second in Mets history.`\
-https://nytimes.com/2022/04/29/sports/baseball/tylor-megill-mets-no-hitter.html?searchResultPosition=8
+**The Golden Age of Air Travel Gets a Reality Check**\
+`Two new books trace the evolution of the industry from the perspective of women who worked in it.`\
+https://nytimes.com/2022/04/30/books/review/ann-hood-fly-girl-great-stewardess-rebellion.html?searchResultPosition=8
 
-**Leap With a Twist**\
-`Joe DiPietro leads us through a cool workout.`\
-https://nytimes.com/2022/04/29/crosswords/daily-puzzle-2022-04-30.html?searchResultPosition=9
+**Storms, Bombs, Contagions, Pandemics and Pandemonium**\
+`In her new novel, “Vigil Harbor,” Julia Glass imagines a not-so-distant future when a New England town is wracked by crises.`\
+https://nytimes.com/2022/04/30/books/review/vigil-harbor-julia-glass.html?searchResultPosition=9
 
-**Civilians continue to seek refuge at a besieged steel complex in Mariupol.**\
-`That citizens are still seeking to shelter at the plant, where there is no prospect of escape or rescue, offers a testament to what they must be facing elsewhere in the devastated city.`\
-https://nytimes.com/2022/04/29/world/civilians-mariupol-azovstal.html?searchResultPosition=10
+**Family Saga. Capitalist Satire. Climate Thriller. Debut Novel.**\
+`Vauhini Vara’s “The Immortal King Rao” is about a lot of things, from a father-daughter bond to the end of human civilization.`\
+https://nytimes.com/2022/04/30/books/review/immortal-king-rao-vauhini-vara.html?searchResultPosition=10
 
