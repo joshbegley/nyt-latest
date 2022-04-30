@@ -6,8 +6,8 @@ https://nytimes.com/2022/04/30/pageoneplus/corrections-april-30-2022.html?search
 `Quotation of the Day for Saturday, April 30, 2022.`\
 https://nytimes.com/2022/04/30/todayspaper/quotation-of-the-day-how-many-men-in-albuquerque-tell-you-in-2023-census-pledges.html?searchResultPosition=2
 
-**Five Mets Pitchers Combine for Franchise’s Second No-Hitter**\
-`Tylor Megill and four others spun a delightfully imperfect masterpiece against Philadelphia, securing M.L.B.’s first no-hitter of 2022.`\
+**The Mets Have an Imperfect Night to Remember**\
+`Tylor Megill and four relievers shut down Philadelphia, securing M.L.B.’s first no-hitter of 2022 and the second in franchise history.`\
 https://nytimes.com/2022/04/29/sports/baseball/tylor-megill-mets-no-hitter.html?searchResultPosition=3
 
 **Leap With a Twist**\
