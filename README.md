@@ -1,40 +1,40 @@
+**Who Gets to Tell the Story? Views Differ.**\
+`Readers respond to Pamela Paul’s first column, about “lived experience.” Also: Those who golf; women’s office clothing.`\
+https://nytimes.com/2022/05/01/opinion/letters/lived-experience.html?searchResultPosition=1
+
 **We’re in a Loneliness Crisis: Another Reason to Get Off Our Phones**\
 `We need to reconnect with material things: nature, soil, our bodies and other people in real life.`\
-https://nytimes.com/2022/05/01/opinion/loneliness-connectedness-technology.html?searchResultPosition=1
+https://nytimes.com/2022/05/01/opinion/loneliness-connectedness-technology.html?searchResultPosition=2
 
 **In Egypt’s Big Ramadan TV Drama, the President Is the Hero**\
 `President Abdel Fattah el-Sisi says “The Choice” tells the truth about his rise. Critics say it’s a rewriting of recent history from an industry increasingly cowed under his rule.`\
-https://nytimes.com/2022/05/01/world/middleeast/egypt-ramadan-tv-el-sisi.html?searchResultPosition=2
+https://nytimes.com/2022/05/01/world/middleeast/egypt-ramadan-tv-el-sisi.html?searchResultPosition=3
 
 **What to Cook This Week**\
 `Recipes for the end of Ramadan, a busy Wednesday night and everything in between.`\
-https://nytimes.com/2022/05/01/dining/what-to-cook-this-week.html?searchResultPosition=3
+https://nytimes.com/2022/05/01/dining/what-to-cook-this-week.html?searchResultPosition=4
 
 **She Promised to Empower Women. Will Honduras’s President Succeed?**\
 `The country’s first female leader, Xiomara Castro, is struggling to advance her feminist agenda 14 years after a coup ended the presidency of her husband, who pursued similar causes.`\
-https://nytimes.com/2022/05/01/world/americas/honduras-xiomara-castro-womens-rights.html?searchResultPosition=4
+https://nytimes.com/2022/05/01/world/americas/honduras-xiomara-castro-womens-rights.html?searchResultPosition=5
 
 **Zelensky says around 100 civilians are being evacuated from the Mariupol steel factory.**\
 `The Ukrainian president said that civilians were being evacuated from the Azovstal steel factory, and are headed to a “controlled area.”`\
-https://nytimes.com/2022/05/01/world/europe/an-evacuation-from-mariupol-is-underway-according-to-ukrainian-and-international-observers.html?searchResultPosition=5
+https://nytimes.com/2022/05/01/world/europe/an-evacuation-from-mariupol-is-underway-according-to-ukrainian-and-international-observers.html?searchResultPosition=6
 
 **‘We Want Change’: In the Philippines, Young People Aim to Upend an Election**\
 `As the election in the Philippines nears, tens of thousands of young people who fear another Marcos presidency are rallying around Leni Robredo, the country’s vice president.`\
-https://nytimes.com/2022/05/01/world/asia/philippines-election-marcos-robredo.html?searchResultPosition=6
+https://nytimes.com/2022/05/01/world/asia/philippines-election-marcos-robredo.html?searchResultPosition=7
 
 **Shades of 1986: Mets and Yankees Close April on Top**\
 `New York’s baseball teams are topping the standings in their respective leagues at the end of the season’s first month for the first time in 36 years.`\
-https://nytimes.com/2022/05/01/sports/baseball/mets-yankees-best-record.html?searchResultPosition=7
+https://nytimes.com/2022/05/01/sports/baseball/mets-yankees-best-record.html?searchResultPosition=8
 
 **What’s Going On in This Picture? | May 2, 2022**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
-https://nytimes.com/2022/05/01/learning/whats-going-on-in-this-picture-may-2-2022.html?searchResultPosition=8
+https://nytimes.com/2022/05/01/learning/whats-going-on-in-this-picture-may-2-2022.html?searchResultPosition=9
 
 **A Grim Existence**\
 `Many Ukrainians are in mobilization mode.`\
-https://nytimes.com/2022/05/01/briefing/everyday-life-in-ukraine.html?searchResultPosition=9
-
-**The Week in Business: The Twitter Deal**\
-`The U.S. economy shrinks, but still shows it’s still resilient. The Fed meets this week and is expected to approve a larger-than-usual rate increase. `\
-https://nytimes.com/2022/05/01/business/the-week-in-business-twitter-elon-musk.html?searchResultPosition=10
+https://nytimes.com/2022/05/01/briefing/everyday-life-in-ukraine.html?searchResultPosition=10
 
