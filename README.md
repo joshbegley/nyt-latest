@@ -1,4 +1,4 @@
-**The Physical Bucks Make the Celtics Suddenly Look Average**\
+**Bucks’ Physical Play Makes Celtics Suddenly Look Average**\
 `Giannis Antetokounmpo overcame early struggles to post a triple double against Boston, which had looked impressive in its sweep of the Nets.`\
 https://nytimes.com/2022/05/01/sports/basketball/milwaukee-bucks-boston-celtics-giannis.html?searchResultPosition=1
 
