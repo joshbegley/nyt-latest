@@ -1,40 +1,40 @@
-**‘Going Down a Flight of Stairs Into the Station, I Saw a Tiny Coffee Shop’**\
-`Trading places underground, unexpected sidewalk commentary and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2022/05/01/nyregion/metropolitan-diary.html?searchResultPosition=1
+**Prancing and Dancing in Fruity Sweaters and Shiny Capes**\
+`From the “Ziwe” premiere, Lincoln Center’s Chaplin Awards and a John Williams concert at Carnegie Hall.`\
+https://nytimes.com/2022/05/01/style/prancing-and-dancing-in-fruity-sweaters-and-shiny-capes.html?searchResultPosition=1
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/05/01/crosswords/spelling-bee-forum.html?searchResultPosition=2
+**Apple Inc., ‘After Steve’**\
+`A new history of the trillion-dollar company in the wake of Steve Jobs.`\
+https://nytimes.com/2022/05/01/books/review/after-steve-tripp-mickle.html?searchResultPosition=2
 
-**Deaths of foreign fighters draw renewed attention to the military volunteers in Ukraine.**\
-`At least three foreigners have been killed fighting with Ukraine’s International Legion. One analyst said many would-be volunteers underestimated the danger from Russian forces.`\
-https://nytimes.com/2022/05/01/world/europe/foreign-legion-volunteers.html?searchResultPosition=3
+**In Trump’s Shadow, Ohio Republicans Campaign Ahead of Tuesday’s Primary.**\
+`Donald Trump’s endorsement of the author and venture capitalist J.D. Vance has shaken up the Republican race for the first major Senate midterm election.`\
+https://nytimes.com/2022/05/01/us/politics/josh-mandel-vance-ohio-senate.html?searchResultPosition=3
 
-**Jokes, Glamour and a Try for Normalcy as Correspondents’ Dinner Returns**\
-`Amid concerns about Covid, President Biden offered some humor and received his own ribbing at the White House Correspondents’ Dinner, a ritual that had gone on hiatus during the pandemic.`\
-https://nytimes.com/2022/05/01/us/politics/white-house-correspondents-dinner.html?searchResultPosition=4
+**A Look at Forbidden Campus Romance From a New Angle**\
+`In Michelle Hart’s debut novel, “We Do What We Do in the Dark,” a grieving college student falls for a married woman who happens to be a professor.`\
+https://nytimes.com/2022/05/01/books/review/we-do-what-we-do-in-the-dark-michelle-hart.html?searchResultPosition=4
 
-**Corrections: May 1, 2022**\
-`Corrections that appeared in print on Sunday, May 1, 2022.`\
-https://nytimes.com/2022/05/01/pageoneplus/corrections-may-1-2022.html?searchResultPosition=5
+**Inside China’s Zero-Covid Fortress, Xi Admits No Doubts**\
+`As the lockdown of Shanghai and outbreaks in Beijing and elsewhere batter the economy, China’s leader keeps a distance from the politically charged issue.`\
+https://nytimes.com/2022/05/01/world/asia/china-covid-zero-xi-jinping.html?searchResultPosition=5
 
-**Quotation of the Day: They Grew Up in the U.S., but Can’t Stay After They Turn 21**\
-`Quotation of the Day for Sunday, May 1, 2022.`\
-https://nytimes.com/2022/05/01/todayspaper/quotation-of-the-day-they-grew-up-in-the-us-but-cant-stay-after-they-turn-21.html?searchResultPosition=6
+**How Technocrats Triumphed at Apple**\
+`The man who helped give the world candy-colored computers walked out the door as Tim Cook took charge. What does that mean for the company’s next big thing?`\
+https://nytimes.com/2022/05/01/technology/jony-ive-apple-design.html?searchResultPosition=6
 
-**Ukrainian Diva Replacing Netrebko at the Met Wears Her Country’s Flag**\
-`The soprano Liudmyla Monastyrska, replacing the Russian superstar Anna Netrebko at the Met in “Turandot,” wrapped herself in a Ukrainian flag for her curtain call.`\
-https://nytimes.com/2022/05/01/arts/ukrainian-soprano-flag-anna-netrebko.html?searchResultPosition=7
+**Loss of Pandemic Aid Stresses Hospitals That Treat the Uninsured**\
+`Hospitalizations from Covid-19 are receding, but safety-net providers are facing tremendous unmet needs from poor and uninsured patients who delayed seeking care during the pandemic.`\
+https://nytimes.com/2022/05/01/us/politics/covid-aid-hospitals-uninsured.html?searchResultPosition=7
 
-**Are the Next Global Tennis Stars Among These ’Tweens?**\
-`The search for elite players is so competitive that IMG, the agency that once ruled tennis, is cultivating preteens to find the next prodigy, giving kids access to representatives from the pro tours and Nike.`\
-https://nytimes.com/2022/05/01/sports/tennis/img-tournament-tennis-teens.html?searchResultPosition=8
+**How to Figure Out if You Can Actually Afford That New Home**\
+`It’s tempting to jump into the home-buying frenzy. But with prices up and mortgage rates surging, make sure you do the math first.`\
+https://nytimes.com/2022/05/01/your-money/home-buying-mortgage-rates-real-estate.html?searchResultPosition=8
 
-**For One Man, the N.F.L. Draft’s ‘Mr. Irrelevant’ Meant a Lot**\
-`Paul Salata made a point of celebrating the last player selected in the draft. His family carried on the tradition by honoring the 262nd pick on Saturday.`\
-https://nytimes.com/2022/05/01/sports/football/mr-irrelevant-nfl-draft.html?searchResultPosition=9
+**Delayed Philip Guston Show Opens, With a Note From a Trauma Specialist**\
+`After four museums postponed a major exhibition over concerns about Klan imagery in some paintings, the show is opening in Boston. But the debate continues.`\
+https://nytimes.com/2022/05/01/arts/philip-guston-show-debate.html?searchResultPosition=9
 
-**The Horror Of Bucha**\
-`The war’s worst atrocities have been discovered in this little Ukrainian town not far from the capital of Kyiv.`\
-https://nytimes.com/slideshow/2022/04/30/homepage/the-horror-of-bucha.html?searchResultPosition=10
+**You Hear the Musical Saw. These Mathematicians Heard Geometry.**\
+`A scientist who has studied falling playing cards, coiling rope and other phenomena has now analyzed what transforms a carpenter’s tool into a sonorous instrument.`\
+https://nytimes.com/2022/05/01/science/musical-saw-mathematics.html?searchResultPosition=10
 
