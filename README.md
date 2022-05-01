@@ -26,7 +26,7 @@ https://nytimes.com/2022/05/01/opinion/desantis-republicans-disney.html?searchRe
 `Amid the current crisis, Fiona Hill and other former advisers are connecting President Trump’s pressure campaign on Ukraine to Jan. 6. And they’re ready to talk.`\
 https://nytimes.com/2022/05/01/podcasts/the-daily/the-sunday-read-this-was-trump-pulling-a-putin.html?searchResultPosition=7
 
-**J.D. Vance Knows Who’s Starring in the Ohio Senate Race. (It’s Not Him.)**\
+**The Don Jr. Road Show in Ohio Was No Joke**\
 `Mr. Vance is arguably a perfect test case for Mr. Trump: weak enough to need a boost but with enough potential to make him a worthwhile risk.`\
 https://nytimes.com/2022/05/01/opinion/trump-jd-vance-ohio.html?searchResultPosition=8
 
@@ -34,7 +34,7 @@ https://nytimes.com/2022/05/01/opinion/trump-jd-vance-ohio.html?searchResultPosi
 `From the “Ziwe” premiere, Lincoln Center’s Chaplin Awards and a John Williams concert at Carnegie Hall.`\
 https://nytimes.com/2022/05/01/style/chaplin-awards-ziwe-fashion.html?searchResultPosition=9
 
-**Apple Inc., ‘After Steve’**\
-`A new history of the trillion-dollar company in the wake of Steve Jobs.`\
-https://nytimes.com/2022/05/01/books/review/after-steve-tripp-mickle.html?searchResultPosition=10
+**In Trump’s Shadow, Ohio Republicans Campaign Ahead of Tuesday’s Primary.**\
+`Donald Trump’s endorsement of the author and venture capitalist J.D. Vance has shaken up the Republican race for the first major Senate midterm election.`\
+https://nytimes.com/2022/05/01/us/politics/josh-mandel-vance-ohio-senate.html?searchResultPosition=10
 
