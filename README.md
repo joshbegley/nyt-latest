@@ -23,7 +23,7 @@ https://nytimes.com/2022/05/01/dining/what-to-cook-this-week.html?searchResultPo
 https://nytimes.com/2022/05/01/world/americas/honduras-xiomara-castro-womens-rights.html?searchResultPosition=6
 
 **Zelensky says around 100 civilians are being evacuated from the Mariupol steel factory.**\
-`The Ukrainian president said that civilians were being evacuated from the Azovstal steel factory, and are headed to a “controlled area.”`\
+`The Ukrainian president said that civilians were being evacuated from the Azovstal steel factory and are headed to a “controlled area.”`\
 https://nytimes.com/2022/05/01/world/europe/mariupol-steel-plant-evacuation.html?searchResultPosition=7
 
 **‘We Want Change’: In the Philippines, Young People Aim to Upend an Election**\
