@@ -23,7 +23,7 @@ https://nytimes.com/video/world/europe/100000008328076/pelosi-zelensky-ukraine-m
 https://nytimes.com/2022/05/01/sports/katie-taylor-amanda-serrano-boxing.html?searchResultPosition=6
 
 **What We Learned From the 2022 N.F.L. Draft**\
-`Teams that needed quarterbacks did not reach for them and the receiver market boomed.`\
+`Teams that needed quarterbacks did not reach for them, and the receiver market boomed.`\
 https://nytimes.com/2022/05/01/sports/football/nfl-draft-winners-losers.html?searchResultPosition=7
 
 **How a Debut Graphic Memoir Became the Most Banned Book in the Country**\
