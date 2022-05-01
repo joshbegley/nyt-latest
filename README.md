@@ -34,7 +34,7 @@ https://nytimes.com/2022/05/01/world/europe/mariupol-steel-plant-evacuation.html
 `As the election in the Philippines nears, tens of thousands of young people who fear another Marcos presidency are rallying around Leni Robredo, the country’s vice president.`\
 https://nytimes.com/2022/05/01/world/asia/philippines-election-marcos-robredo.html?searchResultPosition=9
 
-**Shades of 1986: Mets and Yankees Close April on Top**\
-`New York’s baseball teams are topping the standings in their respective leagues at the end of the season’s first month for the first time in 36 years.`\
+**Shades of ’86: Mets and Yankees Close April on Top**\
+`New York’s baseball teams topped the standings in their respective leagues at the end of the season’s first month for the first time in 36 years.`\
 https://nytimes.com/2022/05/01/sports/baseball/mets-yankees-best-record.html?searchResultPosition=10
 
