@@ -22,7 +22,7 @@ https://nytimes.com/2022/05/01/business/the-week-in-business-twitter-elon-musk.h
 `Officials in China’s capital are striving to contain a coronavirus outbreak while avoiding public anger of the kind that has erupted in Shanghai.`\
 https://nytimes.com/2022/05/01/world/asia/beijing-china-covid.html?searchResultPosition=6
 
-**The Party of Big Business Is Getting More Anti-Republican by the Day**\
+**The Party of Big Business Is Getting More Anti-Conservative by the Day**\
 `Ron DeSantis and others are desecrating what the G.O.P. long championed. `\
 https://nytimes.com/2022/05/01/opinion/desantis-republicans-disney.html?searchResultPosition=7
 
