@@ -6,7 +6,7 @@ https://nytimes.com/2022/05/01/dining/what-to-cook-this-week.html?searchResultPo
 `The country’s first female leader, Xiomara Castro, is struggling to advance her feminist agenda 14 years after a coup ended the presidency of her husband, who pursued similar causes.`\
 https://nytimes.com/2022/05/01/world/americas/honduras-xiomara-castro-womens-rights.html?searchResultPosition=2
 
-**Zelensky says around 100 civilians are being evacuated from Mariupol steel factory.**\
+**Zelensky says around 100 civilians are being evacuated from the Mariupol steel factory.**\
 `The Ukrainian president said that civilians were being evacuated from the Azovstal steel factory, and are headed to a “controlled area.”`\
 https://nytimes.com/2022/05/01/world/europe/an-evacuation-from-mariupol-is-underway-according-to-ukrainian-and-international-observers.html?searchResultPosition=3
 
