@@ -1,6 +1,6 @@
 **My Twitter Pullback Is About More Than Elon Musk**\
 `Social media is full of hate speech, bots, vitriol, attack armies, screamers and people who live for the opportunity to be angry.`\
-https://nytimes.com/2022/05/01/opinion/my-twitter-pullback-is-about-more-than-elon-musk.html?searchResultPosition=1
+https://nytimes.com/2022/05/01/opinion/twitter-hate-speech.html?searchResultPosition=1
 
 **Bill Murray Speaks About ‘Insensitive’ Behavior on ‘Being Mortal’ Set**\
 `“I did something I thought was funny, and it wasn’t taken that way,” he said in a television interview on Saturday.`\
