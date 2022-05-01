@@ -12,7 +12,7 @@ https://nytimes.com/2022/05/01/arts/bill-murray-misconduct-being-mortal.html?sea
 
 **With Spate of Attacks, ISIS Begins Bloody New Chapter in Afghanistan**\
 `At least 100 people have died in terrorist attacks over the past two weeks, as the Islamic State targets minorities in Afghanistan and aims to undermine the Taliban government.`\
-https://nytimes.com/2022/05/01/world/asia/with-spate-of-attacks-isis-begins-bloody-new-chapter-in-afghanistan.html?searchResultPosition=4
+https://nytimes.com/2022/05/01/world/asia/afghanistan-isis-attacks.html?searchResultPosition=4
 
 **Pelosi Meets with Zelensky in Ukraine’s Capital**\
 `Nancy Pelosi, the speaker of the House, led a congressional delegation to Kyiv, becoming the highest-ranking U.S. official to meet with President Volodymyr Zelensky since Russia’s invasion of Ukraine.`\
