@@ -3,7 +3,7 @@
 https://nytimes.com/2022/05/01/sports/katie-taylor-amanda-serrano-boxing.html?searchResultPosition=1
 
 **What We Learned From the 2022 N.F.L. Draft**\
-`Teams that needed quarterbacks did not reach for them, the receiver market boomed and the N.F.L.’s talent-rich teams thumbed their noses.`\
+`Teams that needed quarterbacks did not reach for them and the receiver market boomed.`\
 https://nytimes.com/2022/05/01/sports/football/nfl-draft-winners-losers.html?searchResultPosition=2
 
 **How a Debut Graphic Memoir Became the Most Banned Book in the Country**\
