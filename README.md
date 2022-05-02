@@ -1,6 +1,6 @@
 **Supreme Court Rules Against Boston in Case on Christian Flag**\
 `The court unanimously ruled that the city, which has approved many other requests to raise flags at its City Hall, violated a Christian group’s free speech rights.`\
-https://nytimes.com/2022/05/02/us/supreme-court-boston-free-speech.html?searchResultPosition=1
+https://nytimes.com/2022/05/02/us/supreme-court-boston-flag-free-speech.html?searchResultPosition=1
 
 **The Court and the Culture Wars**\
 `When “religious freedom” gets complicated.`\
