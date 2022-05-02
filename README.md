@@ -16,7 +16,7 @@ https://nytimes.com/2022/05/02/arts/television/new-netflix-may.html?searchResult
 
 **Russia Is Barred From Women’s Euros and 2023 World Cup**\
 `Russian soccer teams and clubs were barred from all European competitions, including the Champions League, for the 2022-23 season.`\
-https://nytimes.com/2022/05/02/sports/soccer/russia-ban-womens-euros-2023-world-cup.html?searchResultPosition=5
+https://nytimes.com/2022/05/02/sports/soccer/russia-ban-euros-world-cup.html?searchResultPosition=5
 
 **The History of Japanese Green Tea in America**\
 `The Culinary Historians of New York will hold a talk with the writer Robert Hellyer on the drink’s popularity in the 19th century.`\
