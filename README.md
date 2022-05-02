@@ -2,7 +2,7 @@
 `The committee also said it had evidence that some House Republicans sought pardons from President Donald J. Trump in connection with the effort to overturn the election.`\
 https://nytimes.com/2022/05/02/us/politics/house-jan-6-panel-gop-lawmakers.html?searchResultPosition=1
 
-**Warrant is Issued for Jail Officer Who Went Missing With Inmate**\
+**Warrant Issued for Alabama Officer Who Disappeared With Inmate**\
 `Lauderdale County Sheriff Rick Singleton said that an arrest warrant had been issued for Vicki White, a veteran corrections officer, after she disappeared with a murder suspect she was accompanying to the courthouse.`\
 https://nytimes.com/video/us/100000008329299/alabama-officer-inmate-warrant-escape.html?searchResultPosition=2
 
