@@ -4,7 +4,7 @@ https://nytimes.com/2022/05/02/climate/biden-electric-car-batteries.html?searchR
 
 **He Spurred a Revolution in Psychiatry. Then He ‘Disappeared.’**\
 `In 1972, Dr. John Fryer risked his career to tell his colleagues that gay people were not mentally ill. His act sent ripples through the legal, medical and justice systems.`\
-https://nytimes.com/2022/05/02/us/he-spurred-a-revolution-in-psychiatry-then-he-disappeared.html?searchResultPosition=2
+https://nytimes.com/2022/05/02/health/john-fryer-psychiatry.html?searchResultPosition=2
 
 **What’s New York Fashion Really About?**\
 `On the eve of the Met Gala, Thom Browne has an idea.`\
