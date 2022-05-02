@@ -26,15 +26,15 @@ https://nytimes.com/2022/05/02/us/tennessee-executions-lethal-injection.html?sea
 `Activity in the city’s housing courts, which used to process more eviction cases than any other city in the nation, is rising after a pandemic moratorium.`\
 https://nytimes.com/2022/05/02/nyregion/new-york-evictions-cases.html?searchResultPosition=7
 
-**this is a test**\
-`this is a test slideshow`\
-https://nytimes.com/slideshow/2022/05/02/style/this-is-a-test.html?searchResultPosition=8
-
 **Pilots Contend With Record Number of Laser Strikes, F.A.A. Says**\
 `When a laser pointer reaches a cockpit, it can disorient or “completely incapacitate” a pilot, said the agency, which recorded more than 9,700 such cases last year.`\
-https://nytimes.com/2022/05/02/business/laser-strikes-airplane-pilots.html?searchResultPosition=9
+https://nytimes.com/2022/05/02/business/laser-strikes-airplane-pilots.html?searchResultPosition=8
 
 **How the Rangers Got Back to the N.H.L. Playoffs**\
 `Four years ago, the Rangers’ front office asked fans to be patient while it rebuilt the roster. The wait is over: New York will face the Pittsburgh Penguins in the first round.`\
-https://nytimes.com/2022/05/02/sports/hockey/nhl-playoffs-rangers.html?searchResultPosition=10
+https://nytimes.com/2022/05/02/sports/hockey/nhl-playoffs-rangers.html?searchResultPosition=9
+
+**Wendell Pierce to Star in ‘Death of a Salesman’ on Broadway**\
+`The production, also starring Sharon D Clarke and featuring André De Shields, will arrive some time next season.`\
+https://nytimes.com/2022/05/02/theater/wendell-pierce-death-of-a-salesman.html?searchResultPosition=10
 
