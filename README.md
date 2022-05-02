@@ -26,15 +26,15 @@ https://nytimes.com/2022/05/02/nyregion/nyc-coronavirus-yellow-risk-level.html?s
 `Officials said the devices were breached by the Pegasus spyware, made by an Israeli company, which is intended to track illegal behavior but has been misused by some governments.`\
 https://nytimes.com/2022/05/02/world/europe/spain-prime-minister-pegasus-spyware.html?searchResultPosition=7
 
+**Pelosi says Russia’s war merits the ‘strongest possible’ response.**\
+`Following a visit to Kyiv over the weekend, Nancy Pelosi held talks in Poland with President Andrzej Duda, a meeting aimed at deepening Washington’s partnership with a key NATO ally.`\
+https://nytimes.com/2022/05/02/world/europe/pelosi-ukraine-russia-sanctions.html?searchResultPosition=8
+
 **Biden Administration Begins $3 Billion Plan for Electric Car Batteries**\
 `The Biden administration is planning a major shift to electric vehicles, but experts say it requires a secure, resilient supply of critical minerals.`\
-https://nytimes.com/2022/05/02/climate/biden-electric-car-batteries.html?searchResultPosition=8
+https://nytimes.com/2022/05/02/climate/biden-electric-car-batteries.html?searchResultPosition=9
 
 **He Spurred a Revolution in Psychiatry. Then He ‘Disappeared.’**\
 `In 1972, Dr. John Fryer risked his career to tell his colleagues that gay people were not mentally ill. His act sent ripples through the legal, medical and justice systems.`\
-https://nytimes.com/2022/05/02/health/john-fryer-psychiatry.html?searchResultPosition=9
-
-**What’s New York Fashion Really About?**\
-`On the eve of the Met Gala, Thom Browne has an idea.`\
-https://nytimes.com/2022/05/02/style/thom-browne-fall-2022.html?searchResultPosition=10
+https://nytimes.com/2022/05/02/health/john-fryer-psychiatry.html?searchResultPosition=10
 
