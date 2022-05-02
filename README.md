@@ -1,4 +1,4 @@
-**Ukrainians Fleeing Fighting Arrive in Zaporizhzhia**\
+**Ukrainians Fleeing Fighting in the East Arrive in Zaporizhzhia**\
 `Civilians displaced from the Russian-occupied city of Mariupol and other areas of eastern Ukraine crossed the frontline into Zaporizhzhia in the country’s southeast.`\
 https://nytimes.com/video/world/europe/100000008329331/zaporizhzhia-mariupol-evacuees-ukraine.html?searchResultPosition=1
 
