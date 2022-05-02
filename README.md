@@ -1,40 +1,40 @@
-**South Africa’s latest surge is a possible preview of the pandemic’s next chapter.**\
-`The spread of two newly discovered subvariants has doctors watching closely.`\
-https://nytimes.com/2022/05/02/world/africa/south-africa-surge-variants.html?searchResultPosition=1
+**Chasing a Mighty Relic of Yesteryear: Union Pacific 4014**\
+`A train enthusiast reflects on the grandeur of the world’s largest operating steam locomotive, recently returned to service.`\
+https://nytimes.com/2022/05/02/travel/steam-locomotive-union-pacific-4014.html?searchResultPosition=1
 
-**Lesson of the Day: ‘The Secret Sounds of “Dune”: Rice Krispies and Marianne Faithfull’**\
-`In this lesson, students will learn about the great lengths the creators of the film went to record its sounds, then act as sound designers and create their own original noises.`\
-https://nytimes.com/2022/05/02/learning/lesson-plans/lesson-of-the-day-the-secret-sounds-of-dune-rice-krispies-and-marianne-faithfull.html?searchResultPosition=2
+**Democrats’ Mystery: How to Brighten a Presidency and a National Mood**\
+`Crucial left-leaning voters have soured on President Biden, and Americans of all stripes are angry. Democratic leaders can’t agree on what to tell them.`\
+https://nytimes.com/2022/05/02/us/politics/democrats-midterms-ohio.html?searchResultPosition=2
 
-**The Met Gala Is Bound to Be Gilded and Over-the-Top**\
-`The annual fashion extravaganza happens tonight, with tickets priced at $35,000 and invitations required.`\
-https://nytimes.com/2022/05/02/nyregion/met-gala-fashion.html?searchResultPosition=3
+**Oscar Isaac Learned to Love Blockbusters Again in ‘Moon Knight’**\
+`He wasn’t necessarily looking for another “Star Wars” or “X-Men” experience, but Isaac, the versatile screen heartthrob, has found satisfaction with this unconventional Marvel superhero.`\
+https://nytimes.com/2022/05/02/arts/television/oscar-isaac-moon-knight.html?searchResultPosition=3
 
-**U.K. Plan to Send Asylum Seekers to Rwanda Stokes Anger and Dread**\
-`The government’s proposal has led to recriminations from rights groups, and anxiety among migrants who fear being sent away.`\
-https://nytimes.com/2022/05/02/world/europe/uk-asylum-rwanda.html?searchResultPosition=4
+**5 Things to Know About 3 Casinos That May Be Headed for N.Y.C. Area**\
+`Yonkers, Queens and maybe Manhattan: The sites for three new casinos have not yet been set in stone.`\
+https://nytimes.com/2022/05/02/nyregion/casino-manhattan-nyc.html?searchResultPosition=4
 
-**How to Stop Speeding Drivers? Scare Them.**\
-`Traffic deaths in New York City have risen to the highest level in eight years. A new campaign aims to shock them into slowing down.`\
-https://nytimes.com/2022/05/02/nyregion/nyc-speeding-traffic-deaths.html?searchResultPosition=5
+**Why the Debate Over Russian Uranium Worries U.S. Tribal Nations**\
+`If imports end because of the war, American companies may look to increase domestic mining, which has a toxic history on Indigenous lands.`\
+https://nytimes.com/2022/05/02/us/us-uranium-supply-native-tribes.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/05/02/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**Another Firing Among Google’s A.I. Brain Trust, and More Discord**\
+`The researchers are considered a key to the company’s future. But they have had a hard time shaking infighting and controversy over a variety of issues.`\
+https://nytimes.com/2022/05/02/technology/google-fires-ai-researchers.html?searchResultPosition=6
 
-**Your Monday Briefing**\
-`Russia tries to gain ground in Ukraine’s east.`\
-https://nytimes.com/2022/05/02/briefing/ukraine-pelosi-war-northern-ireland.html?searchResultPosition=7
+**Sisters Recount Perilous Escape From Mariupol as Russians Closed In**\
+`The women say they were forced onto a bus to Russian-controlled territory, then escaped what Ukrainian and U.S. officials have described as “filtration” centers for a system of forced expulsions to Russia.`\
+https://nytimes.com/2022/05/02/world/europe/ukraine-war-mariupol-escape.html?searchResultPosition=7
 
-**No Corrections: May 2, 2022**\
-`No corrections appeared in print on Monday, May 2, 2022.`\
-https://nytimes.com/2022/05/02/pageoneplus/no-corrections-may-2-2022.html?searchResultPosition=8
+**Shopping for Outdoor Planters**\
+`Spring is here (whether or not it feels like it), and it’s time to spruce up the patio.`\
+https://nytimes.com/2022/05/02/realestate/shopping-for-outdoor-planters.html?searchResultPosition=8
 
-**Quotation of the Day: Pandemic Home Market Creates Vast Riches, and More Inequality**\
-`Quotation of the Day for Monday, May 2, 2022.`\
-https://nytimes.com/2022/05/02/todayspaper/quotation-of-the-day-pandemic-home-market-creates-vast-riches-and-more-inequality.html?searchResultPosition=9
+**In Bid to Boost Peacock, Universal Sending 3 Movies Straight to Streaming**\
+`The move is not only an attempt to attract subscribers but an acknowledgment that releasing some films theatrically has become more of a gamble.`\
+https://nytimes.com/2022/05/02/business/media/peacock-streaming-movies.html?searchResultPosition=9
 
-**What’s on TV This Week: ‘Try Harder!’ and ‘Sheryl’**\
-`A documentary about college admissions airs on PBS, and Sheryl Crow tells her story in a new Showtime documentary.`\
-https://nytimes.com/2022/05/02/arts/tv-try-harder-sheryl-crow.html?searchResultPosition=10
+**Gorsuch Calls for Overruling ‘Shameful’ Cases on U.S. Territories**\
+`The justice urged his colleagues to revisit the Insular Cases, which denied full constitutional protection to unincorporated territories. A petition filed last week gives them a chance.`\
+https://nytimes.com/2022/05/02/us/politics/gorsuch-supreme-court-insular-cases.html?searchResultPosition=10
 
