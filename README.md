@@ -18,23 +18,23 @@ https://nytimes.com/2022/05/02/nyregion/redistricting-democrats-appeal.html?sear
 `Looking for something new to watch? Here’s a roundup of the most promising titles coming to most major U.S. streaming services (except Netflix) this month.`\
 https://nytimes.com/2022/05/02/arts/television/new-streaming-may-apple-hbo-amazon-hulu-disney.html?searchResultPosition=5
 
+**Alexandria Ocasio-Cortez endorses Nina Turner in a rematch for an Ohio House seat.**\
+`Ms. Turner is challenging Representative Shontel Brown for a second time in Tuesday’s primary election, after Ms. Brown won a special election last year.`\
+https://nytimes.com/2022/05/02/us/politics/alexandria-ocasio-cortez-nina-turner.html?searchResultPosition=6
+
 **In photos: The People’s Ball in Brooklyn.**\
 `By Sandra E. Garcia and Dina Litovsky`\
-https://nytimes.com/2022/05/02/fashion/in-photos-the-peoples-ball-in-brooklyn.html?searchResultPosition=6
+https://nytimes.com/2022/05/02/fashion/in-photos-the-peoples-ball-in-brooklyn.html?searchResultPosition=7
 
 **An Anaconda’s Play Date With Dolphins Took a Strange Turn**\
 `Why were Bolivian river dolphins swimming around with a large predatory snake in their mouths? “There are so many questions,” one researcher said.`\
-https://nytimes.com/2022/05/02/science/dolphins-anaconda-bolivia.html?searchResultPosition=7
+https://nytimes.com/2022/05/02/science/dolphins-anaconda-bolivia.html?searchResultPosition=8
 
 **As Feinstein Declines, Democrats Struggle to Manage an Open Secret**\
 `Democrats have quietly accepted the California senator’s memory issues as the status quo, even as her inner circle frets that the spectacle of her difficulties on the job could tarnish her legacy.`\
-https://nytimes.com/2022/05/02/us/politics/dianne-feinstein-memory-issues.html?searchResultPosition=8
+https://nytimes.com/2022/05/02/us/politics/dianne-feinstein-memory-issues.html?searchResultPosition=9
 
 **New Subvariants in South Africa**\
 `A surge in the country is being driven by BA.4 and BA.5.`\
-https://nytimes.com/2022/05/02/briefing/new-subvariants-in-south-africa.html?searchResultPosition=9
-
-**Ukrainian civilians flee Mariupol**\
-`It was the first large-scale evacuation from the last bastion of Ukrainian resistance in the city.`\
-https://nytimes.com/2022/05/02/briefing/ukrainian-civilians-flee-mariupol.html?searchResultPosition=10
+https://nytimes.com/2022/05/02/briefing/new-subvariants-in-south-africa.html?searchResultPosition=10
 
