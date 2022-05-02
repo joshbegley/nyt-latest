@@ -1,6 +1,6 @@
 **Your Monday Briefing**\
 `Russia tries to gain ground in Ukraine’s east.`\
-https://nytimes.com/2022/05/02/briefing/your-monday-briefing.html?searchResultPosition=1
+https://nytimes.com/2022/05/02/briefing/ukraine-pelosi-war-northern-ireland.html?searchResultPosition=1
 
 **No Corrections: May 2, 2022**\
 `No corrections appeared in print on Monday, May 2, 2022.`\
