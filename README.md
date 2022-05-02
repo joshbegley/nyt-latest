@@ -8,7 +8,7 @@ https://nytimes.com/2022/05/02/us/ohio-senate-republican-primary.html?searchResu
 
 **How Ohio’s Map Will Test J.D. Vance’s Political Allure**\
 `Behind the wild language, the “Hillbilly Elegy” author’s bid for a Senate seat follows a traditional Republican playbook.`\
-https://nytimes.com/2022/05/02/us/politics/ohio-map-jd-vance.html?searchResultPosition=3
+https://nytimes.com/2022/05/02/us/politics/ohio-jd-vance.html?searchResultPosition=3
 
 **Read the document**\
 `Democrats argued in a 17-page complaint that there simply was not enough time to implement the order from the State Court of Appeals for new district lines.`\
