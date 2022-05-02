@@ -12,7 +12,7 @@ https://nytimes.com/2022/05/02/briefing/school-education-gaps-funding-math.html?
 
 **Beijing reopens a mass isolation center as it tries to avoid a citywide lockdown.**\
 `While the Chinese capital has recorded only a few hundred cases in recent weeks, the move to reopen the facility appears to be aimed at avoiding the fate of Shanghai.`\
-https://nytimes.com/2022/05/02/world/beijing-isolation.html?searchResultPosition=4
+https://nytimes.com/2022/05/02/world/beijing-isolation-center-lockdown.html?searchResultPosition=4
 
 **Are Unions Making a Comeback?**\
 `What the explosion of union membership during the 1930s can tell us about today’s revival.`\
