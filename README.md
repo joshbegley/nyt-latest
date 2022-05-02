@@ -3,7 +3,7 @@
 https://nytimes.com/2022/05/01/nyregion/kathy-boudin-dead.html?searchResultPosition=1
 
 **Draymond Green Leaves Early, but Golden State Shows Tenacity Late**\
-`Jordan Poole came off the bench and scored 31 points as Golden State rebounded to win at Memphis after Green was ejected in the first half.`\
+`Jordan Poole came off the bench to score 31 points as Golden State overcame Green’s first-half ejection.`\
 https://nytimes.com/2022/05/01/sports/basketball/golden-state-warriors-memphis-grizzlies.html?searchResultPosition=2
 
 **Bucks’ Physical Play Makes Celtics Suddenly Look Average**\
