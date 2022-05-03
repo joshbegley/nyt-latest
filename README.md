@@ -6,13 +6,13 @@ https://nytimes.com/2022/05/03/technology/david-walden-dead.html?searchResultPos
 `Exultant Republicans planned new bans. Democrats, who have struggled to rally around abortion rights, hoped a bruising Supreme Court loss could jolt their voters into action.`\
 https://nytimes.com/2022/05/03/us/politics/abortion-midterms-supreme-court.html?searchResultPosition=2
 
-**Roe’s Fall Would Alter Political Battle Lines. But in What Way?**\
-`Democrats hope abortion rights will motivate the party’s base. Republican strategists are skeptical, though they are privately unsure how the issue might affect the midterms.`\
-https://nytimes.com/2022/05/03/us/politics/roe-supreme-court-politics.html?searchResultPosition=3
-
 **A Message to the Biden Team on Ukraine: Talk Less**\
 `Loose lips could lead to huge unintended consequences.`\
-https://nytimes.com/2022/05/03/opinion/biden-ukraine.html?searchResultPosition=4
+https://nytimes.com/2022/05/03/opinion/biden-ukraine.html?searchResultPosition=3
+
+**Roe’s Fall Would Alter Political Battle Lines. But in What Way?**\
+`Democrats hope abortion rights will motivate the party’s base. Republican strategists are skeptical, though they are privately unsure how the issue might affect the midterms.`\
+https://nytimes.com/2022/05/03/us/politics/roe-supreme-court-politics.html?searchResultPosition=4
 
 **Liverpool’s Dream Delivered, Only After Villarreal’s Is Dashed**\
 `Outplayed for a half, Liverpool scored three goals to reach its latest Champions League final. For Villarreal, though, all was not lost.`\
