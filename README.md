@@ -23,7 +23,7 @@ https://nytimes.com/2022/05/02/style/jodie-turner-smith-joshua-jackson-met-gala.
 https://nytimes.com/2022/05/02/arts/television/david-birney-dead.html?searchResultPosition=6
 
 **New York City Pulls Plug on Second Homeless Shelter in Chinatown**\
-`The Adams administration backtracked on the second shelter, one of three that had been proposed for the neighborhood, after protests and a labor dispute.`\
+`The Adams administration backtracked on the second shelter, one of three that had been proposed for the neighborhood, after protests from the community.`\
 https://nytimes.com/2022/05/02/nyregion/chinatown-shelter-homeless.html?searchResultPosition=7
 
 **Hillary Clinton attends the Met Gala for the first time in two decades.**\
