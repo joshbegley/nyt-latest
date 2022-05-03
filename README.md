@@ -1,4 +1,4 @@
-**Statue of Star Native American Ballerina Is Stolen and Sold For Scrap**\
+**Statue of Star Native American Ballerina Is Stolen and Sold for Scrap**\
 `The Tulsa, Okla., police are looking for whoever cut down and sold parts of a statue of Marjorie Tallchief, a celebrated performer who died last year.`\
 https://nytimes.com/2022/05/02/us/ballerina-statue-stolen-marjorie-tallchief.html?searchResultPosition=1
 
