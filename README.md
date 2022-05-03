@@ -4,7 +4,7 @@ https://nytimes.com/video/us/politics/100000008331498/demonstrators-supreme-cour
 
 **Florence Welch Thrives on Horror. And She Still Wants to Smell You.**\
 `The Florence + the Machine frontwoman reveals what kept her motivated while working on the band’s next album: dancers, “Dracula” and daffodils.`\
-https://nytimes.com/2022/05/03/arts/music/florence-welch-favorites.html?searchResultPosition=2
+https://nytimes.com/2022/05/03/arts/music/florence-welch-machine-dance-fever.html?searchResultPosition=2
 
 **Judge Allows Part of Lawsuit by Tulsa Massacre Survivors Seeking Reparations**\
 `Three survivors of the 1921 massacre have sued the city of Tulsa, the county sheriff and other defendants over the attack, in which a white mob killed hundreds of Black residents.`\
