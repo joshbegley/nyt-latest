@@ -16,7 +16,7 @@ https://nytimes.com/2022/05/03/movies/all-my-puny-sorrows-review.html?searchResu
 
 **So, wait, Ohio will have a second primary?**\
 `State legislative races will be absent from Tuesday’s ballot after the Ohio Supreme Court rejected Republican-drawn political maps four times.`\
-https://nytimes.com/2022/05/03/us/elections/so-wait-ohio-will-have-a-second-primary.html?searchResultPosition=5
+https://nytimes.com/2022/05/03/us/elections/ohio-second-primary.html?searchResultPosition=5
 
 **U.S. job openings hit a high point, 11.5 million, in March.**\
 `New government data suggests that the economy remains far from normal as employers struggle to fill jobs and workers seek better positions.`\
