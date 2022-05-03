@@ -1,6 +1,6 @@
 **Blackness and Standard English Can Coexist. Professors, Take Note.**\
 `Failing to recognize this underserves Black English speakers.`\
-https://nytimes.com/2022/05/03/opinion/black-english.html?searchResultPosition=1
+https://nytimes.com/2022/05/03/opinion/black-english-language.html?searchResultPosition=1
 
 **Sidney Crosby, 17 Seasons On, Is Ready to Wreck the N.H.L. Playoffs**\
 `One of the league’s longest active players, Crosby quietly had an exceptional season. His Pittsburgh Penguins are in the playoffs for the 16th consecutive year.`\
