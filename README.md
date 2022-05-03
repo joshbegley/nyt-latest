@@ -20,7 +20,7 @@ https://nytimes.com/2022/05/02/style/j-balvin-met-gala.html?searchResultPosition
 
 **Leaked Supreme Court Draft Would Overturn Roe v. Wade**\
 `A majority of the court privately voted to strike down the landmark abortion rights decision, according to the document, obtained by Politico.`\
-https://nytimes.com/2022/05/02/us/politics/roe-v-wade-abortion-supreme-court.html?searchResultPosition=6
+https://nytimes.com/live/2022/05/02/us/roe-v-wade-abortion-supreme-court/roe-v-wade-abortion-supreme-court?searchResultPosition=6
 
 **Body From 1980s Homicide Is Found in Barrel at Lake Mead**\
 `“It’s really odd in the sense that had the lake never receded, we would never have discovered the body,” a police lieutenant in Las Vegas said, adding that it could also lead to the discovery of other bodies.`\
