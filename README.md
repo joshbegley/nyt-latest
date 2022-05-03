@@ -1,5 +1,5 @@
 **Hochul Chooses Antonio Delgado as New Lieutenant Governor**\
-`Mr. Delgado is expected to serve as Gov. Kathy Hochul’s running mate in her campaign for a full term this year, replacing former Lt. Gov. Brian Benjamin.`\
+`Mr. Delgado is also expected to serve as Gov. Kathy Hochul’s running mate in her campaign for a full term this year, replacing former Lt. Gov. Brian Benjamin.`\
 https://nytimes.com/2022/05/03/nyregion/antonio-delgado-new-york-lieutenant-governor-hochul.html?searchResultPosition=1
 
 **The ‘Swagger Mayor’ Attends His First Met Gala**\
