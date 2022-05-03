@@ -23,7 +23,7 @@ https://nytimes.com/2022/05/03/us/elections/ohio-second-primary.html?searchResul
 https://nytimes.com/2022/05/03/business/economy/job-openings-quits.html?searchResultPosition=6
 
 **Russia’s War Has Been Brutal, but Putin Has Shown Some Restraint. Why?**\
-`Western officials are debating why the Kremlin is not trying harder to halt weapons shipments in Ukraine. Analysts wonder whether a bigger mobilization by Moscow is on the horizon.`\
+`Western officials are debating the Kremlin’s calculations in not trying harder to halt weapons shipments in Ukraine. Analysts wonder whether a bigger mobilization by Moscow is on the horizon.`\
 https://nytimes.com/2022/05/03/world/europe/russia-ukraine-war-nato.html?searchResultPosition=7
 
 **Politico published the draft opinion after an ‘extensive review process.’**\
