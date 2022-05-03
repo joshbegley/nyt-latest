@@ -1,6 +1,6 @@
 **What Would the End of Roe Mean? Key Questions and Answers.**\
 `Abortion would remain legal in about half of states, but the rest would likely ban it. The number of abortions would probably fall, particularly among poor women in the South and Midwest.`\
-https://nytimes.com/2022/05/03/upshot/roe-key-questions-and-answers.html?searchResultPosition=1
+https://nytimes.com/2022/05/03/upshot/abortion-united-states-roe-wade.html?searchResultPosition=1
 
 **Corrections: May 3, 2022**\
 `Corrections that appeared in print on Tuesday, May 3, 2022.`\
