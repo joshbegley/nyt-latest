@@ -14,7 +14,7 @@ https://nytimes.com/2022/05/03/movies/black-site-review.html?searchResultPositio
 `Roe v. Wade seems to be on the cusp of falling.`\
 https://nytimes.com/2022/05/03/briefing/roe-v-wade-scotus-overturn.html?searchResultPosition=4
 
-**Across Europe, Politicians React With Shock Over the Supreme Court Report**\
+**Across Europe, Politicians React With Shock to the Supreme Court Report**\
 `While most European countries allow abortions, there are still obstacles to access.`\
 https://nytimes.com/2022/05/03/us/europe-politicans-abortion-supreme-court.html?searchResultPosition=5
 
