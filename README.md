@@ -3,7 +3,7 @@
 https://nytimes.com/2022/05/03/us/politics/rob-stein-dead.html?searchResultPosition=1
 
 **Lesson of the Day: ‘What Would the End of Roe Mean? Key Questions and Answers.’**\
-`In this lesson, students will learn about the potential implications of the leaked draft ruling to overturn Roe v. Wade. Then, they will reflect on what the ruling means to them.`\
+`In this lesson, students will learn about the potential implications of the leaked draft opinion to overturn Roe v. Wade. Then, they will reflect on what the news means to them.`\
 https://nytimes.com/2022/05/03/learning/lesson-plans/lesson-of-the-day-what-would-the-end-of-roe-mean-key-questions-and-answers.html?searchResultPosition=2
 
 **Ohio Attorney General Primary Election Results**\
