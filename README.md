@@ -22,19 +22,19 @@ https://nytimes.com/2022/05/03/briefing/mariupol-ukraine-roe-wade-abortion.html?
 `New York City tenants have been tossed out of their homes in more than 500 cases since the eviction moratorium was lifted.`\
 https://nytimes.com/2022/05/03/nyregion/in-housing-court-tenants-are-being-evicted-again.html?searchResultPosition=6
 
+**Why the Supreme Court could overturn Roe v. Wade.**\
+`The landmark decision that established a constitutional right to an abortion has been contentious since it was made in 1973.`\
+https://nytimes.com/2022/05/02/us/politics/abortion-supreme-court-roe-wade.html?searchResultPosition=7
+
 **What Your Younger Employees Are Really Thinking**\
 `Twelve millennials talked to Times Opinion about the Great Resignation, return to office and the workplace in America today. `\
-https://nytimes.com/2022/05/03/opinion/millennials-office-work.html?searchResultPosition=7
+https://nytimes.com/2022/05/03/opinion/millennials-office-work.html?searchResultPosition=8
 
 **What We’re Watching in Tuesday’s Primary Elections in Ohio and Indiana**\
 `The second election night of the 2022 midterms has some national implications for Republicans. Here’s a breakdown.`\
-https://nytimes.com/2022/05/03/us/politics/ohio-indiana-primary-elections.html?searchResultPosition=8
+https://nytimes.com/2022/05/03/us/politics/ohio-indiana-primary-elections.html?searchResultPosition=9
 
 **Statue of Star Native American Ballerina Is Stolen and Sold for Scrap**\
 `The Tulsa, Okla., police are looking for whoever cut down and sold parts of a statue of Marjorie Tallchief, a celebrated performer who died last year.`\
-https://nytimes.com/2022/05/02/us/ballerina-statue-stolen-marjorie-tallchief.html?searchResultPosition=9
-
-**Review: Making a Beautiful ‘Case for the Existence of God’**\
-`Samuel D. Hunter’s heartbreaking new play argues for hope even in the face of extreme disappointment.`\
-https://nytimes.com/2022/05/02/theater/review-a-case-for-the-existence-of-god-samuel-hunter.html?searchResultPosition=10
+https://nytimes.com/2022/05/02/us/ballerina-statue-stolen-marjorie-tallchief.html?searchResultPosition=10
 
