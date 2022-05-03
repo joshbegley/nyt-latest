@@ -1,6 +1,6 @@
 **Chris Snow Finds That His Luck, Good and Bad, Is All in the Family**\
 `The Calgary Flames executive has lived with A.L.S. since 2019. The team he helped build is in the N.H.L. playoffs, and he is still here to see whatever happens.`\
-https://nytimes.com/2022/05/03/sports/hockey/snow-flames-als-nhl.html?searchResultPosition=1
+https://nytimes.com/2022/05/03/sports/hockey/chris-snow-calgary-flames-als.html?searchResultPosition=1
 
 **‘Black Site’ Review: Stranger Danger**\
 `A murderous detainee and a damaged C.I.A. agent face off in this uninspired action movie.`\
