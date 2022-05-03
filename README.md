@@ -1,40 +1,40 @@
-**‘I Don’t Really Have a Business Plan’: How Elon Musk Wings It**\
-`To a degree unseen in any other mogul, the world’s richest man acts on impulse and the belief that he is absolutely right.`\
-https://nytimes.com/2022/05/03/technology/elon-musk-twitter-plan.html?searchResultPosition=1
+**10 Senate races to watch this year.**\
+`Democrats have a razor-thin margin that could be upended with the loss of a single seat.`\
+https://nytimes.com/2022/05/03/us/elections/senate-races-elections.html?searchResultPosition=1
 
-**Deadly Venom From Spiders and Snakes May Also Cure What Ails You**\
-`Efforts to tease apart the vast swarm of proteins in venom — a field called venomics — have burgeoned in recent years, leading to important drug discoveries.`\
-https://nytimes.com/2022/05/03/science/venom-medicines.html?searchResultPosition=2
+**9 important governor’s races happening this year.**\
+`The races for governor are likely to be noisy and in some of the most competitive states, the outcome has implications far beyond the governor’s mansion.`\
+https://nytimes.com/2022/05/03/us/elections/governors-races-elections.html?searchResultPosition=2
 
-**The Junior College Team Built by the Pandemic**\
-`The baseball team at Gaston College in Dallas, N.C., is in its first season and owes its quick rise to former Division I players whose circumstances changed because of the pandemic.`\
-https://nytimes.com/2022/05/03/sports/gaston-college-baseball.html?searchResultPosition=3
+**What do the midterms mean for President Biden?**\
+`Republican control of one or both houses of Congress could leave the White House largely playing defense.`\
+https://nytimes.com/2022/05/03/us/elections/biden-midterm-elections.html?searchResultPosition=3
 
-**Reporting on an Unpredictable Deal**\
-`Lauren Hirsch, a Times business reporter, discusses what it’s been like to cover Elon Musk over the course of his acquisition of Twitter.`\
-https://nytimes.com/2022/05/03/insider/reporting-on-elon-musk-twitter.html?searchResultPosition=4
+**How Many Midcentury Ranch Houses Can One Couple Renovate?**\
+`These serial renovators in Dallas weren’t looking to take on another project — or even to move. But a white-hot housing market can inspire people to do unexpected things.`\
+https://nytimes.com/2022/05/03/realestate/how-many-midcentury-ranch-houses-can-one-couple-renovate.html?searchResultPosition=4
 
-**Hydroponic Lettuce Was Seen as Safe From Salmonella, Until an Outbreak**\
-`The F.D.A. criticized measures at a hydroponics greenhouse linked to an outbreak last summer, and offered guidelines that have ramifications for the popular industry.`\
-https://nytimes.com/2022/05/03/science/hydroponics-fda-outbreak.html?searchResultPosition=5
+**Transforming a 1950s Ranch House in Dallas**\
+`These serial renovators weren’t looking to move or to take on another project. But a white-hot housing market can make people do unexpected things.`\
+https://nytimes.com/slideshow/2022/05/03/realestate/transforming-a-1950s-ranch-house-in-dallas.html?searchResultPosition=5
 
-**The Tale of a Crypto Executive Who Wasn’t Who He Said He Was**\
-`The chief operating officer of ZenLedger, a software company, boasted of work for Goldman Sachs and Larry King. Did anyone check to see if it was true?`\
-https://nytimes.com/2022/05/03/your-money/zenledger-dan-hannum.html?searchResultPosition=6
+**Russia Could Sell More Energy to Asia, but Has to Slash Prices**\
+`Russia wants to sell more oil and coal to China and India, but Western sanctions may make that hard unless Russia offers deep discounts on the price.`\
+https://nytimes.com/2022/05/03/business/russia-china-energy-ukraine.html?searchResultPosition=6
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/05/03/crosswords/spelling-bee-forum.html?searchResultPosition=7
+**The Matador and Me: Coming to Terms with My Famously Ugly Lookalike**\
+`What my resemblance to a Spanish bullfighter taught me about the dilemma beneath every human face.`\
+https://nytimes.com/2022/05/03/magazine/manolete-matador-face.html?searchResultPosition=7
 
-**Demonstrators flock to the Supreme Court after leak of draft decision.**\
-`The mood outside the court was a mix of anger and mourning, with some demonstrators sitting silently in front of a long line of candles.  Others shouted defiant chants.`\
-https://nytimes.com/2022/05/02/us/politics/supreme-court-protests-abortion.html?searchResultPosition=8
+**Get Ready for Another Energy Price Spike: High Electric Bills**\
+`Rates have jumped because of a surge in natural gas prices and could keep rising rapidly for years as utilities invest in electric grids.`\
+https://nytimes.com/2022/05/03/business/energy-environment/high-electric-bills-summer.html?searchResultPosition=8
 
-**Seth Meyers: Trump ‘Can’t Be Bothered’ to Endorse Republicans Correctly**\
-`“You have to grovel and debase yourself to earn the endorsement of a guy who can’t even remember your name,” Meyers said.`\
-https://nytimes.com/2022/05/03/arts/television/seth-meyers-trump-endorsment-republicans.html?searchResultPosition=9
+**Cuban Migrants Arrive to U.S. in Record Numbers, on Foot, Not by Boat**\
+`Political repression and escalating economic difficulties on the island, along with a new visa-free travel policy in Nicaragua, are some of the factors driving the change.`\
+https://nytimes.com/2022/05/03/world/americas/cuban-migration-united-states.html?searchResultPosition=9
 
-**Australian Gets 12 Years for Anti-Gay Killing of an American in 1988**\
-`Scott Johnson, a U.S. graduate student, was pushed off a cliff, in a case that was first ruled a suicide but that his brother refused to let go of.`\
-https://nytimes.com/2022/05/03/world/australia/scott-johnson-antigay-killing.html?searchResultPosition=10
+**Is That an Outlaw Lawn? Las Vegas Has a New Approach to Saving Water**\
+`With drought and growth taking a toll on the Colorado River, the source of 90 percent of the region’s water, a new law mandates the removal of turf, patch by patch.`\
+https://nytimes.com/2022/05/03/climate/las-vegas-lawn-grass-ban.html?searchResultPosition=10
 
