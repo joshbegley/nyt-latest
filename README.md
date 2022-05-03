@@ -26,7 +26,7 @@ https://nytimes.com/2022/05/03/opinion/black-english-language.html?searchResultP
 `One of the league’s longest active players, Crosby quietly had an exceptional season. His Pittsburgh Penguins are in the playoffs for the 16th consecutive year.`\
 https://nytimes.com/2022/05/03/sports/hockey/crosby-penguins-nhl-playoffs.html?searchResultPosition=7
 
-**Overturning ‘Roe’ Is a Radical, Not Conservative, Choice**\
+**Overturning Roe Is a Radical, Not Conservative, Choice**\
 `An abrupt and profound change to an established law is utterly destructive to respect for the law.`\
 https://nytimes.com/2022/05/03/opinion/abortion-supreme-court-conservative.html?searchResultPosition=8
 
