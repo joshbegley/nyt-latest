@@ -36,5 +36,5 @@ https://nytimes.com/2022/05/03/arts/dance/silas-farley-stravinsky-festival.html?
 
 **Watch Live: Biden Addresses U.S. Security Assistance to Ukraine**\
 `President Biden delivers remarks after touring a Lockheed Martin plant in Troy, Ala., that manufactures anti-tank missiles being sent to Ukraine.`\
-https://nytimes.com/video/us/politics/100000008331680/biden-ukraine-weapons-live.html?searchResultPosition=10
+https://nytimes.com/video/embedded/us/politics/100000008331680/biden-ukraine-weapons-live.html?searchResultPosition=10
 
