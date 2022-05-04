@@ -1,5 +1,5 @@
 **Abortion is a Business Issue**\
-`Women make up half of the work force, but the abortion’s divisiveness has led many companies to keep quiet on the issue for now.`\
+`Women make up half of the work force, but abortion’s divisiveness has led many companies to keep quiet on the issue for now.`\
 https://nytimes.com/2022/05/04/business/dealbook/us-businesses-roe-wade-abortion.html?searchResultPosition=1
 
 **For Second Straight Year, California Sees a Population Decline**\
