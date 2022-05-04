@@ -1,40 +1,40 @@
+**$475,000 Homes in Massachusetts, Oklahoma and Virginia**\
+`A Cape Cod-style cottage in Amherst, a Prairie-style house in Oklahoma City and a 1913 home in Norfolk.`\
+https://nytimes.com/2022/05/04/realestate/home-prices-massachusetts-oklahoma-virginia.html?searchResultPosition=1
+
+**$475,000 Homes in Massachusetts, Oklahoma and Virginia**\
+`A Cape Cod-style cottage in Amherst, a Prairie-style house in Oklahoma City and a 1913 home in Norfolk.`\
+https://nytimes.com/slideshow/2022/05/04/realestate/475000-homes-in-massachusetts-oklahoma-and-virginia.html?searchResultPosition=2
+
+**Uber continues its recovery from the pandemic lull but loses $5.6 billion from investments.**\
+`Revenue in the first three months of 2022 was up 136 percent from a year earlier as travel continued to rebound.`\
+https://nytimes.com/2022/05/04/business/uber-revenue-pandemic.html?searchResultPosition=3
+
+**A Gay Icon From Reality TV’s Early Years Makes a Hesitant Return**\
+`Danny Roberts, a star of “The Real World” on MTV, brought a sense of possibility to the pop culture landscape during a fraught time for gay representation.`\
+https://nytimes.com/2022/05/04/style/a-gay-icon-from-reality-tvs-early-years-makes-a-hesitant-return.html?searchResultPosition=4
+
 **A Trump Win in Ohio**\
 `We look at last night’s election results.`\
-https://nytimes.com/2022/05/04/briefing/ohio-primary-jd-vance-trump-endorsement.html?searchResultPosition=1
+https://nytimes.com/2022/05/04/briefing/ohio-primary-jd-vance-trump-endorsement.html?searchResultPosition=5
 
 **Is This How Roe Ends?**\
 `A leaked draft opinion from the Supreme Court suggested that it was preparing to overturn the constitutional right to abortion.`\
-https://nytimes.com/2022/05/04/podcasts/the-daily/roe-v-wade-abortion-supreme-court.html?searchResultPosition=2
+https://nytimes.com/2022/05/04/podcasts/the-daily/roe-v-wade-abortion-supreme-court.html?searchResultPosition=6
 
 **A Crumbling Russian ‘Spyville’ Returns to Polish Hands**\
 `A Warsaw housing complex built in the 1970s and rented by Russia was reputed to be a nest of spies. The city’s government has seized the site and pledged to hand it over to the Ukrainian community.`\
-https://nytimes.com/2022/05/04/world/europe/russia-spy-housing-warsaw.html?searchResultPosition=3
+https://nytimes.com/2022/05/04/world/europe/russia-spy-housing-warsaw.html?searchResultPosition=7
 
 **Japan Says It Needs Nuclear Power. Can Host Towns Ever Trust It Again?**\
 `The Ukraine war has shown the fragility of Japan’s energy supplies. But the decision to restart plants after the Fukushima disaster is fraught with emotions and political calculation.`\
-https://nytimes.com/2022/05/04/world/asia/japan-nuclear-power.html?searchResultPosition=4
+https://nytimes.com/2022/05/04/world/asia/japan-nuclear-power.html?searchResultPosition=8
 
 **‘A Monster in Our Midst’: How a Tattoo Industry #MeToo Case Collapsed**\
 `Isaiah “Toothtaker” Camacho was a star in the underground tattoo industry, even as sexual assault accusations against him piled up.`\
-https://nytimes.com/2022/05/04/nyregion/toothtaker-isaiah-camacho-sexual-assault.html?searchResultPosition=5
+https://nytimes.com/2022/05/04/nyregion/toothtaker-isaiah-camacho-sexual-assault.html?searchResultPosition=9
 
 **In Mexico, One Cartel Is Cleared, but Others Storm In**\
 `In the state of Michoacán, small drug cartels compete with larger ones for territory, leaving the residents caught in the middle of a brutal turf war.`\
-https://nytimes.com/2022/05/04/world/americas/mexico-cartels-michoacan.html?searchResultPosition=6
-
-**Montgomery, N.J.: An Under-the-Radar Suburb Near Princeton**\
-`This Somerset County township may not be as well known as its famous neighbor, but residents take pride in their ‘wonderful community’ and its growing diversity.`\
-https://nytimes.com/2022/05/04/realestate/montgomery-nj-an-under-the-radar-suburb-near-princeton.html?searchResultPosition=7
-
-**The Stories Behind Some of the Weird Stuff on ‘Severance’**\
-`Catherine Miller, the show’s prop master, talks about how her team sourced and made the eerie objects that define Lumon.`\
-https://nytimes.com/2022/05/04/style/severance-props-catherine-miller.html?searchResultPosition=8
-
-**Living In ... Montgomery, N.J.**\
-`This Somerset County township may not be as well known as its neighbors, but residents take pride in their welcoming community and its growing diversity.`\
-https://nytimes.com/slideshow/2022/05/04/reader-center/living-in-montgomery-nj.html?searchResultPosition=9
-
-**The Vanishing Variants: Lessons from Gamma, Iota and Mu**\
-`Studying the coronavirus variants that have faded away could help us prepare for what comes next, scientists say.`\
-https://nytimes.com/2022/05/04/health/covid-variants-gamma-iota-mu.html?searchResultPosition=10
+https://nytimes.com/2022/05/04/world/americas/mexico-cartels-michoacan.html?searchResultPosition=10
 
