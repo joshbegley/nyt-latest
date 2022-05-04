@@ -1,4 +1,4 @@
-**Dave Chappelle Tackled While Performing at the Hollywood Bowl**\
+**Dave Chappelle Attacked While Performing at the Hollywood Bowl**\
 `Footage circulating on social media appeared to show a man charging into the comedian as he performed in Los Angeles.`\
 https://nytimes.com/2022/05/04/arts/dave-chappelle-hollywood-bowl-tackle.html?searchResultPosition=1
 
