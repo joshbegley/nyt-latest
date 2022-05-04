@@ -2,8 +2,8 @@
 `The Italian police are in a race to finish investigating a $700 million vessel thought to be the Russian president’s — before it’s out of their reach.`\
 https://nytimes.com/2022/05/04/world/europe/russia-putin-superyacht-sanctions.html?searchResultPosition=1
 
-**Looming 9 Percent Rent Increase Tests Eric Adams’s Priorities on Housing**\
-`Some Democrats are calling proposed increases for New York City’s roughly one million rent stabilized apartments “unconscionable.” The mayor says he wants to support small landlords.`\
+**Looming Rent Increase of Up to 9 Percent Tests Adams’s Housing Priorities**\
+`Some Democrats are calling proposed increases for New York City’s roughly one million rent stabilized apartments “unconscionable.” Mayor Eric Adams says he wants to support small landlords.`\
 https://nytimes.com/2022/05/04/nyregion/eric-adams-rent-increase-nyc.html?searchResultPosition=2
 
 **6 Arrested as Police Clear a Homeless Camp at Tompkins Square Park**\
