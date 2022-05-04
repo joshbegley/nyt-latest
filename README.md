@@ -26,7 +26,7 @@ https://nytimes.com/2022/05/04/dining/easy-mothers-day-dinner-ideas.html?searchR
 `Rubbin Sarpong and his co-conspirators posed as U.S. service members on dating websites, stealing $1.75 million from more than 40 victims, prosecutors said.`\
 https://nytimes.com/2022/05/04/us/nj-man-sentenced-online-dating-scheme.html?searchResultPosition=7
 
-**Wisps of Disaster, Seen From Space**\
+**Smoke and Sandstorm, Seen From Space**\
 `A time-lapse image of smoke from wildfires in New Mexico and dust from a storm in Colorado illustrates the scope of Western catastrophe.`\
 https://nytimes.com/2022/05/04/climate/wildfire-smoke-dust-storm.html?searchResultPosition=8
 
