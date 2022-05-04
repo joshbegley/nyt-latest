@@ -28,7 +28,7 @@ https://nytimes.com/2022/05/04/world/europe/ukraine-nft-art.html?searchResultPos
 
 **Roe Inspired Activists Worldwide, Who May Be Rethinking Strategy**\
 `Feminist movements in some countries similarly sought abortion protections in their courts, but for others, the goal was legislative change.`\
-https://nytimes.com/2022/05/04/world/americas/abortion-movements-worldwide.html?searchResultPosition=8
+https://nytimes.com/2022/05/04/world/americas/abortion-activists-movements.html?searchResultPosition=8
 
 **How to Free Childhood Memories Trapped in Ancient Film**\
 `If you have decades of family history stored on old slides and negatives, you can easily convert those pictures to digital photos.`\
