@@ -10,13 +10,13 @@ https://nytimes.com/2022/05/04/realestate/home-prices-massachusetts-oklahoma-vir
 `A Cape Cod-style cottage in Amherst, a Prairie-style house in Oklahoma City and a 1913 home in Norfolk.`\
 https://nytimes.com/slideshow/2022/05/04/realestate/475000-homes-in-massachusetts-oklahoma-and-virginia.html?searchResultPosition=3
 
-**Uber continues its recovery from the pandemic lull but loses $5.6 billion from investments.**\
-`Revenue in the first three months of 2022 was up 136 percent from a year earlier as travel continued to rebound.`\
-https://nytimes.com/2022/05/04/business/uber-revenue-pandemic.html?searchResultPosition=4
-
 **A Gay Icon From Reality TV’s Early Years Makes a Hesitant Return**\
 `Danny Roberts, a star of “The Real World” on MTV, brought a sense of possibility to the pop culture landscape during a fraught time for gay representation.`\
-https://nytimes.com/2022/05/04/style/a-gay-icon-from-reality-tvs-early-years-makes-a-hesitant-return.html?searchResultPosition=5
+https://nytimes.com/2022/05/04/style/danny-roberts-real-world.html?searchResultPosition=4
+
+**Uber continues its recovery from the pandemic lull but loses $5.6 billion from investments.**\
+`Revenue in the first three months of 2022 was up 136 percent from a year earlier as travel continued to rebound.`\
+https://nytimes.com/2022/05/04/business/uber-revenue-pandemic.html?searchResultPosition=5
 
 **A Trump Win in Ohio**\
 `We look at last night’s election results.`\
