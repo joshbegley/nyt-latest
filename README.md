@@ -1,40 +1,40 @@
-**J.R. Majewski will challenge Marcy Kaptur in an Ohio House race.**\
-`Mr. Majewski was the victor in a competitive Republican primary and will take on Ms. Kaptur, a 20-term Democrat, in November.`\
-https://nytimes.com/2022/05/04/us/elections/jr-majewski-marcy-kaptur.html?searchResultPosition=1
-
 **Hochul Chooses a Congressman Who Has Won in a Swing District**\
 `Antonio Delgado will replace Brian Benjamin as the governor’s running mate in the upcoming Democratic primary.`\
-https://nytimes.com/2022/05/04/nyregion/hochul-chooses-a-congressman-who-has-won-in-a-swing-district.html?searchResultPosition=2
+https://nytimes.com/2022/05/04/nyregion/hochul-chooses-a-congressman-who-has-won-in-a-swing-district.html?searchResultPosition=1
 
 **Your Wednesday Briefing**\
 `Shockwaves from a Supreme Court leak.`\
-https://nytimes.com/2022/05/04/briefing/ukraine-war-supreme-court.html?searchResultPosition=3
+https://nytimes.com/2022/05/04/briefing/ukraine-war-supreme-court.html?searchResultPosition=2
 
 **#VanLife, From the Passenger Seat**\
 `When Caity Weaver wanted to try living out of a van as research for an article, she recruited her friend Michael Arnstein to come along for the ride. He shares what it was like to ride shotgun for a week.`\
-https://nytimes.com/2022/05/04/insider/vanlife-from-the-passenger-seat.html?searchResultPosition=4
+https://nytimes.com/2022/05/04/insider/vanlife-from-the-passenger-seat.html?searchResultPosition=3
 
 **LinkedIn Agrees to Pay $1.8 Million to Women Over Discrimination Claims**\
 `The professional networking platform reached a settlement with the U.S. Labor Department over allegations that it underpaid 686 female employees in California from 2015 to 2017, officials said.`\
-https://nytimes.com/2022/05/03/technology/linkedin-equal-pay-settlement.html?searchResultPosition=5
+https://nytimes.com/2022/05/03/technology/linkedin-equal-pay-settlement.html?searchResultPosition=4
 
 **J.D. Vance Wins Ohio Republican Senate Primary**\
 `The author and venture capitalist parlayed an endorsement from Donald J. Trump into victory, beating out a crowded field of conservative challengers.`\
-https://nytimes.com/video/us/elections/100000008333188/vance-ohio-senate-trump.html?searchResultPosition=6
+https://nytimes.com/video/us/elections/100000008333188/vance-ohio-senate-trump.html?searchResultPosition=5
 
 **Abortion Rights Demonstrators Rally in U.S. Cities**\
 `Thousands of protesters took to the streets after a leaked draft decision showed a majority of Supreme Court justices would vote to overturn Roe v. Wade.`\
-https://nytimes.com/video/us/100000008333070/abortion-rights-rally-us.html?searchResultPosition=7
+https://nytimes.com/video/us/100000008333070/abortion-rights-rally-us.html?searchResultPosition=6
 
 **J.D. Vance’s Rise From ‘Hillbilly Elegy’ Author to Senate Nominee**\
 `Now the Republican nominee for Senate in Ohio, Mr. Vance owes his ascendant political career in large part to Donald Trump, whose style he has tried to emulate.`\
-https://nytimes.com/2022/05/03/us/politics/jd-vance-ohio-senate-primary-results.html?searchResultPosition=8
+https://nytimes.com/2022/05/03/us/politics/jd-vance-ohio-senate-primary-results.html?searchResultPosition=7
 
 **Vance Wins Republican Senate Primary in Ohio After Nod From Trump**\
 `J.D. Vance, the author of “Hillbilly Elegy,” won a G.O.P. race that saw nearly $80 million in television advertising.`\
-https://nytimes.com/2022/05/03/us/politics/vance-wins-trump-senate-primary-ohio.html?searchResultPosition=9
+https://nytimes.com/2022/05/03/us/politics/vance-wins-trump-senate-primary-ohio.html?searchResultPosition=8
 
 **Quotation of the Day: Crosby, 17 Seasons On, Is Not Going Anywhere**\
 `Quotation of the Day for Wednesday, May 4, 2022.`\
-https://nytimes.com/2022/05/03/todayspaper/quotation-of-the-day-crosby-17-seasons-on-is-not-going-anywhere.html?searchResultPosition=10
+https://nytimes.com/2022/05/03/todayspaper/quotation-of-the-day-crosby-17-seasons-on-is-not-going-anywhere.html?searchResultPosition=9
+
+**At the Original Speed**\
+`Eric Bornstein’s puzzle joins the foreign service.`\
+https://nytimes.com/2022/05/03/crosswords/daily-puzzle-2022-05-04.html?searchResultPosition=10
 
