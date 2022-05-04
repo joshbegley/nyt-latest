@@ -16,7 +16,7 @@ https://nytimes.com/2022/05/04/arts/design/met-museum-sheena-wagstaff-leaving-co
 
 **Leak Heightens the Perception of a Politicized Supreme Court**\
 `Even some harsh critics of Roe v. Wade see a court that reflects and amplifies the nation’s political divides.`\
-https://nytimes.com/2022/05/04/us/supreme-court-politics-approval-rating.html?searchResultPosition=5
+https://nytimes.com/2022/05/04/us/supreme-court-approval-rating-roe-v-wade.html?searchResultPosition=5
 
 **I Just Want My Kid to Learn Algebra. Does That Make Me a Culture Warrior?**\
 `Americans still underperform in math. That, not debates about testing and social emotional learning, should be our focus.`\
