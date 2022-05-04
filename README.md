@@ -14,7 +14,7 @@ https://nytimes.com/2022/05/04/business/economy/federal-reserve-inflation-recess
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2022/05/04/crosswords/spelling-bee-forum.html?searchResultPosition=4
 
-**Penguins Sink Rangers 4-3 in Triple Overtime to Take Game 1**\
+**Penguins Edge Rangers in Triple Overtime to Take Game 1**\
 `The first N.H.L. playoff game at Madison Square Garden in five years featured just about everything a hockey game could, except for a win by the home team.`\
 https://nytimes.com/2022/05/04/sports/hockey/rangers-penguins-nhl-playoffs.html?searchResultPosition=5
 
