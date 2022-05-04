@@ -16,7 +16,7 @@ https://nytimes.com/2022/05/04/nyregion/kidd-creole-sentenced-homeless-man-stabb
 
 **Watch Live: Federal Reserve Announces Increased Interest Rates**\
 `Jerome H. Powell, the Fed chair, announced an increase in the policy interest rate by a half percentage point and detailed a strategy for shrinking the Fed’s massive bond holdings.`\
-https://nytimes.com/video/us/politics/100000008333897/jerome-powell-fed-interest-rates-live-video.html?searchResultPosition=5
+https://nytimes.com/video/embedded/us/politics/100000008333897/jerome-powell-fed-interest-rates-live-video.html?searchResultPosition=5
 
 **New York City pension funds sue Activision over financial records.**\
 `The funds claim Activision failed to turn over records as they investigate whether Activision secured a fair price in its planned sale to Microsoft.`\
