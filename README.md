@@ -14,13 +14,13 @@ https://nytimes.com/2022/05/04/world/europe/russia-spy-housing-warsaw.html?searc
 `The Ukraine war has shown the fragility of Japan’s energy supplies. But the decision to restart plants after the Fukushima disaster is fraught with emotions and political calculation.`\
 https://nytimes.com/2022/05/04/world/asia/japan-nuclear-power.html?searchResultPosition=4
 
-**In Mexico, One Cartel Is Cleared, but Others Storm In**\
-`In the state of Michoacán, small drug cartels compete with larger ones for territory, leaving the residents caught in the middle of a brutal turf war.`\
-https://nytimes.com/2022/05/04/world/americas/mexico-cartels-michoacan.html?searchResultPosition=5
-
 **‘A Monster in Our Midst’: How a Tattoo Industry #MeToo Case Collapsed**\
 `Isaiah “Toothtaker” Camacho was a star in the underground tattoo industry, even as sexual assault accusations against him piled up.`\
-https://nytimes.com/2022/05/04/nyregion/toothtaker-isaiah-camacho-sexual-assault.html?searchResultPosition=6
+https://nytimes.com/2022/05/04/nyregion/toothtaker-isaiah-camacho-sexual-assault.html?searchResultPosition=5
+
+**In Mexico, One Cartel Is Cleared, but Others Storm In**\
+`In the state of Michoacán, small drug cartels compete with larger ones for territory, leaving the residents caught in the middle of a brutal turf war.`\
+https://nytimes.com/2022/05/04/world/americas/mexico-cartels-michoacan.html?searchResultPosition=6
 
 **Montgomery, N.J.: An Under-the-Radar Suburb Near Princeton**\
 `This Somerset County township may not be as well known as its famous neighbor, but residents take pride in their ‘wonderful community’ and its growing diversity.`\
