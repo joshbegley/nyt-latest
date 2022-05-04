@@ -10,8 +10,8 @@ https://nytimes.com/2022/05/04/world/americas/abortion-movements-worldwide.html?
 `If you have decades of family history stored on old slides and negatives, you can easily convert those pictures to digital photos.`\
 https://nytimes.com/2022/05/04/technology/personaltech/digitize-slides-film.html?searchResultPosition=3
 
-**Abortion is a Business Issue**\
-`Women make up half of the work force, but abortion’s divisiveness has led many companies to keep quiet on the issue for now.`\
+**Abortion Is a Business Issue**\
+`Women make up half of the work force, but the issue’s divisiveness has led many companies to keep quiet on the issue for now.`\
 https://nytimes.com/2022/05/04/business/dealbook/us-businesses-roe-wade-abortion.html?searchResultPosition=4
 
 **For Second Straight Year, California Sees a Population Decline**\
