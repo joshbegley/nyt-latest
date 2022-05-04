@@ -16,7 +16,7 @@ https://nytimes.com/2022/05/04/style/danny-roberts-real-world.html?searchResultP
 
 **Uber continues its recovery from the pandemic lull but loses $5.6 billion from investments.**\
 `Revenue in the first three months of 2022 was up 136 percent from a year earlier as travel continued to rebound.`\
-https://nytimes.com/2022/05/04/business/uber-revenue-pandemic.html?searchResultPosition=5
+https://nytimes.com/2022/05/04/business/uber-earnings-revenue-pandemic.html?searchResultPosition=5
 
 **A Trump Win in Ohio**\
 `We look at last night’s election results.`\
