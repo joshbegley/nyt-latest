@@ -19,8 +19,8 @@ https://nytimes.com/2022/05/04/sports/soccer/real-madrid-man-city-champions-leag
 https://nytimes.com/2022/05/04/us/politics/larry-hogan-trump-gop.html?searchResultPosition=5
 
 **Four Opinion Writers Ask After Vance Win and Roe Leak: Is This Trump’s World Now?**\
-`By Lulu Garcia-Navarro, Jane Coaston, Michelle Cottle and Ross Douthat`\
-https://nytimes.com/2022/05/04/opinion/four-opinion-writers-ask-after-vance-win-and-roe-leak-is-this-trumps-world-now.html?searchResultPosition=6
+`And what does it mean for Democrats if it is?`\
+https://nytimes.com/2022/05/04/opinion/jd-vance-roe-leak.html?searchResultPosition=6
 
 **Schumer Says Senate Will Vote on Federal Abortion Rights Bill**\
 `Senator Chuck Schumer of New York said that Senate Democrats would bring legislation codifying the right to an abortion to the floor for a vote, though the party lacks the support necessary to pass it.`\
