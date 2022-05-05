@@ -1,4 +1,4 @@
-**Citing Safety Concerns, F.D.A. Further Limits Use of Johnson & Johnson Covid Vaccine**\
+**Citing Safety Concerns, F.D.A. Further Limits Johnson & Johnson Covid Vaccine**\
 `The agency said the move reflected an updated analysis of the risk of a rare but serious blood-clotting condition in people who get the vaccine.`\
 https://nytimes.com/2022/05/05/us/politics/johnson-vaccine-fda-covid.html?searchResultPosition=1
 
