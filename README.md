@@ -8,7 +8,7 @@ https://nytimes.com/2022/05/04/pageoneplus/corrections-may-5-2022.html?searchRes
 
 **Stanislav Shushkevich, First Leader of Post-Soviet Belarus, Dies at 87**\
 `He helped formalize the breakup of the Soviet Union in 1991, led his country until 1994, then became a vocal critic of his successor, Aleksandr G. Lukashenko.`\
-https://nytimes.com/2022/05/04/world/europe/stanislav-shushkevich-first-leader-of-post-soviet-belarus-dies-at-87.html?searchResultPosition=3
+https://nytimes.com/2022/05/04/world/europe/stanislav-shushkevich-dead.html?searchResultPosition=3
 
 **‘A War for the Minds of Our Children’**\
 `In the Georgia governor’s race, Republicans have made the supposed indoctrination of children their focus.`\
