@@ -30,8 +30,8 @@ https://nytimes.com/2022/05/05/business/boeing-headquarters-virginia-chicago.htm
 `After examining the evidence, the Los Angeles County District Attorney’s Office declined to prosecute the man, Isaiah Lee, 23, with a felony. He could face a misdemeanor charge.`\
 https://nytimes.com/2022/05/05/arts/dave-chappelle-tackle-charges.html?searchResultPosition=8
 
-**Why ‘Fatal Attraction’ is Still Thrilling**\
-`In this genre-defining 1987 erotic thriller, sex was the engine that moved the plot. It’s rare to see that in movies today.`\
+**Sex, Death and Bunnies**\
+`In “Fatal Attraction,” the genre-defining 1987 erotic thriller, sex was the engine that moved the plot. It’s rare to see that in movies today.`\
 https://nytimes.com/2022/05/05/podcasts/still-processing-fatal-attraction-erotic-thrillers.html?searchResultPosition=9
 
 **Karine Jean-Pierre Is Named White House Press Secretary**\
