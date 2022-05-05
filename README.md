@@ -22,7 +22,7 @@ https://nytimes.com/2022/05/05/learning/is-teen-mental-health-in-a-state-of-cris
 `In this lesson, students will learn about the factors that may be contributing to a decline in mental health among teenagers and discuss what can be done to address it.`\
 https://nytimes.com/2022/05/05/learning/lesson-plans/lesson-of-the-day-its-life-or-death-the-mental-health-crisis-among-us-teens.html?searchResultPosition=6
 
-**India Finds Russian Oil an Irresistible Deal, No Matter the Diplomatic Cost**\
+**India Finds Russian Oil an Irresistible Deal, No Matter the Diplomatic Pressure**\
 `A parade of emissaries have urged a harder line on Russia. But India’s political neutrality over the war in Ukraine has expanded into economic opportunism.`\
 https://nytimes.com/2022/05/04/world/asia/india-russia-oil.html?searchResultPosition=7
 
