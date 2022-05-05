@@ -22,8 +22,8 @@ https://nytimes.com/2022/05/05/well/live/can-covid-symptoms-rebound-after-taking
 `The move underscores the importance of the federal government to the aerospace giant’s business.`\
 https://nytimes.com/2022/05/05/business/boeing-headquarters-virginia-chicago.html?searchResultPosition=6
 
-**Man Who Tackled Dave Chappelle Won’t Face Felony Weapons Charge**\
-`After examining the evidence, the Los Angeles County District Attorney’s Office declined to prosecute the man, Isaiah Lee, 23, with a felony.`\
+**No Felony Weapon Charge for Man Accused in Dave Chappelle Attack**\
+`After examining the evidence, the Los Angeles County District Attorney’s Office declined to prosecute the man, Isaiah Lee, 23, with a felony. He could face a misdemeanor charge.`\
 https://nytimes.com/2022/05/05/arts/dave-chappelle-tackle-charges.html?searchResultPosition=7
 
 **Why ‘Fatal Attraction’ is Still Thrilling**\
