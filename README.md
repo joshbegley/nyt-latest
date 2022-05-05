@@ -1,6 +1,6 @@
 **Covid Memorials Offer a Place to Put Our Grief**\
 `From “anti-monuments” to ephemeral sand portraits, four art exhibitions encourage viewers to slow down and take stock of our pandemic losses.`\
-https://nytimes.com/2022/05/05/arts/design/covid-memorials-offer-a-place-to-put-our-grief.html?searchResultPosition=1
+https://nytimes.com/2022/05/05/arts/design/covid-memorials-grief.html?searchResultPosition=1
 
 **Biden and Harris meet with labor organizers from Amazon and Starbucks.**\
 `The White House visit by rank-and-file union members was an unusual show of support by an administration of either party.`\
@@ -32,7 +32,7 @@ https://nytimes.com/2022/05/05/briefing/russia-putin-victory-day.html?searchResu
 
 **Trump Proposed Launching Missiles Into Mexico to ‘Destroy the Drug Labs,’ Esper Says**\
 `It is one of the moments in his upcoming memoir that the former defense secretary described as leaving him all but speechless.`\
-https://nytimes.com/2022/05/05/us/politics/mark-esper-book.html?searchResultPosition=9
+https://nytimes.com/2022/05/05/us/politics/mark-esper-book-trump.html?searchResultPosition=9
 
 **Your Thursday Evening Briefing**\
 `Here’s what you need to know at the end of the day.`\
