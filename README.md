@@ -1,4 +1,4 @@
-**What to Look for in U.K. Local Elections**\
+**What to Look For in U.K. Local Elections**\
 `National politics may not be front and center in voters’ minds, but how they cast their ballots could signal their opinions of the main parties.`\
 https://nytimes.com/2022/05/05/world/europe/uk-local-elections-northern-ireland.html?searchResultPosition=1
 
