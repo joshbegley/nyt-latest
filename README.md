@@ -1,6 +1,6 @@
 **The Fed Signals Urgency**\
 `The notion of a return to some kind of prepandemic normal without intervention has been abandoned.`\
-https://nytimes.com/2022/05/05/business/dealbook/the-fed-signals-urgency.html?searchResultPosition=1
+https://nytimes.com/2022/05/05/business/dealbook/fed-inflation-economy.html?searchResultPosition=1
 
 **Homes for Sale in New Jersey and Westchester**\
 `This week’s available properties are a six-bedroom house in Tenafly, N.J., and a three-bedroom in Chappaqua, N.Y.`\
