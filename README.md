@@ -1,40 +1,40 @@
+**Stocks slide, erasing gains that followed Fed meeting, as volatility continues to reign.**\
+`Swings in the stock market have become amplified lately, as investors worry that inflation and fast-rising interest rates could hit spending, profits and — ultimately — economic growth.`\
+https://nytimes.com/2022/05/05/business/stock-market-today-sp500.html?searchResultPosition=1
+
+**Sandstorm Blankets Baghdad**\
+`Iraq’s health ministry said thousands were treated for respiratory problems and one person was killed as a sandstorm hit the country.`\
+https://nytimes.com/video/world/middleeast/100000008335479/iraq-sandstorm-baghdad-climate.html?searchResultPosition=2
+
+**An Elegant Return to Form at Independent Art Fair**\
+`Back to its TriBeCa home, the fair offers a reliable menu of visual pleasures.`\
+https://nytimes.com/2022/05/05/arts/design/independent-art-fair-new-york-review.html?searchResultPosition=3
+
 **At the Tefaf Fair, Modern Masters and the Self-Taught Variety**\
 `The fair, one of several opening in New York this week, offers blue-chip painting, sculpture and design for buyers and browsers.`\
-https://nytimes.com/2022/05/05/arts/tefaf-fair-park-avenue-armory.html?searchResultPosition=1
+https://nytimes.com/2022/05/05/arts/design/tefaf-fair-park-avenue-armory.html?searchResultPosition=4
 
 **What’s in Our Queue? Burna Boy and More**\
 `I’m a designer on the print features desk. Here are five things I've been watching, reading and listening to.`\
-https://nytimes.com/interactive/2022/05/05/arts/editors-recommendations-burna-boy.html?searchResultPosition=2
+https://nytimes.com/interactive/2022/05/05/arts/editors-recommendations-burna-boy.html?searchResultPosition=5
 
 **Why the battle for Mariupol is important for Vladimir Putin.**\
 `A victory in the predominantly Russian-speaking city could give a veneer of credibility to the Russian leader’s false claims of ridding Ukraine of “Nazis.”`\
-https://nytimes.com/2022/05/05/world/putin-war-mariupol-ukraine.html?searchResultPosition=3
+https://nytimes.com/2022/05/05/world/putin-war-mariupol-ukraine.html?searchResultPosition=6
 
 **Elon Musk Hates Ads. Twitter Needs Them. That May Be a Problem.**\
 `Many marketers were already lukewarm on the service. Now, some may move their money elsewhere if the content moderation policies are relaxed.`\
-https://nytimes.com/2022/05/05/business/media/elon-musk-twitter-ads.html?searchResultPosition=4
+https://nytimes.com/2022/05/05/business/media/elon-musk-twitter-ads.html?searchResultPosition=7
 
 **How to Waste Less Food**\
 `Buy less, be strategic and find ways to use leftovers.`\
-https://nytimes.com/interactive/2022/05/05/smarter-living/wirecutter/how-to-waste-less-food.html?searchResultPosition=5
+https://nytimes.com/interactive/2022/05/05/smarter-living/wirecutter/how-to-waste-less-food.html?searchResultPosition=8
 
 **Sheldon Krimsky, Who Warned of Profit Motive in Science, Dies at 80**\
 `He delved into numerous scientific fields — stem-cell research, genetic modification of food and DNA privacy among them — and sought to pinpoint the dangers.`\
-https://nytimes.com/2022/05/05/science/sheldon-krimsky-dead.html?searchResultPosition=6
+https://nytimes.com/2022/05/05/science/sheldon-krimsky-dead.html?searchResultPosition=9
 
 **‘In Front of Your Face’ Review: Clumsy Interactions, Pensive Revelations**\
 `This film is a minor addition to the South Korean director Hong Sangsoo’s continuing investigation of human embarrassment.`\
-https://nytimes.com/2022/05/05/movies/in-front-of-your-face-review.html?searchResultPosition=7
-
-**Iraqis Choke Under a Blanket of Dust as Sandstorms Sweep the Country**\
-`Orange skies signaled yet another dusty day for millions of Iraqis. It was the seventh such storm in recent months, and experts say more are on the way.`\
-https://nytimes.com/2022/05/05/world/middleeast/iraq-sandstorms-climate.html?searchResultPosition=8
-
-**Review: A Cellist Accompanied by His Sister. Or Vice Versa?**\
-`Isata and Sheku Kanneh-Mason were true musical partners in concert at Zankel Hall.`\
-https://nytimes.com/2022/05/05/arts/music/sheku-isata-kanneh-mason-music.html?searchResultPosition=9
-
-**Europe’s Quest to Replace Russian Gas Faces Plenty of Hurdles**\
-`Climate concerns, investor reticence and political disputes complicate a shift to supplies from the United States, North Africa and the Mediterranean.`\
-https://nytimes.com/2022/05/05/business/energy-environment/natural-gas-europe-russia-ukraine.html?searchResultPosition=10
+https://nytimes.com/2022/05/05/movies/in-front-of-your-face-review.html?searchResultPosition=10
 
