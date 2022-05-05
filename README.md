@@ -14,7 +14,7 @@ https://nytimes.com/video/world/100000008335367/covid-global-deaths-who.html?sea
 `Sanctions intended to thwart the president’s dictatorial actions have hit his family and inner circle hard. More pain is expected as sanctions hit Russia, an ally.`\
 https://nytimes.com/2022/05/05/world/americas/nicaragua-ruling-family-us.html?searchResultPosition=4
 
-**In a Quiet Off-Season, the Yankees Got Better — at Everything**\
+**In a Quiet Off-Season, the Yankees Got Better (at Everything)**\
 `There were not any flashy signings, but a month into the season, the Yankees find themselves with the best record in baseball and a roster better in all facets of the game.`\
 https://nytimes.com/2022/05/05/sports/baseball/yankees-best-record.html?searchResultPosition=5
 
