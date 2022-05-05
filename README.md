@@ -16,7 +16,7 @@ https://nytimes.com/2022/05/05/sports/baseball/yankees-best-record.html?searchRe
 
 **Democrats Aim to Use Abortion Rights to Jolt State Legislative Races**\
 `A party group has circled a handful of states where Democrats hope to hold or flip control. The draft ruling on Roe v. Wade “has the potential to be a game-changing issue,” its leader said.`\
-https://nytimes.com/2022/05/05/us/politics/democrats-abortion-state-legislative-races.html?searchResultPosition=5
+https://nytimes.com/2022/05/05/us/politics/democrats-abortion-midterms.html?searchResultPosition=5
 
 **Wayne Wang Still Isn’t Satisfied**\
 `On the 40th anniversary of his breakthrough drama, “Chan Is Missing,” the auteur says a new generation of Asian American filmmakers must make more challenging work.`\
