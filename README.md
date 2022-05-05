@@ -1,40 +1,40 @@
+**In Senegal’s Former Capital, a Colonial Statue in Hiding Is No Longer Welcome**\
+`The city of Saint-Louis was shaped by Louis Faidherbe, a French governor who also led brutal military campaigns in West Africa. What to do with his legacy has divided Senegal.`\
+https://nytimes.com/2022/05/05/world/africa/senegal-faidherbe-statue.html?searchResultPosition=1
+
+**‘Randy Rhoads: Reflections of a Guitar Icon’ Review: Beyond ‘Crazy Train’**\
+`Forty years after Rhoads’s death, small rock venues across the nation still host tribute shows honoring him. This new documentary explains why.`\
+https://nytimes.com/2022/05/05/movies/randy-rhoads-reflections-of-a-guitar-icon-review.html?searchResultPosition=2
+
+**‘The Sanctity of Space’ Review: Such Great Heights**\
+`In this mountaineering documentary, climbers chronicle their obsessive quest for alpine glory.`\
+https://nytimes.com/2022/05/05/movies/the-sanctity-of-space-review.html?searchResultPosition=3
+
+**‘Sheryl’ Review: The High Highs and Low Lows of Pop Stardom**\
+`This documentary about Sheryl Crow depicts a musician whose work ethic did not allow a lot of time for frivolity.`\
+https://nytimes.com/2022/05/05/movies/sheryl-review.html?searchResultPosition=4
+
+**‘Human Factors’ Review: Paranoia is the Family Business**\
+`This thriller, about the invasion of a fractured home, is elevated by a talented cast but hampered by a stubbornly intellectual tone.`\
+https://nytimes.com/2022/05/05/movies/human-factors-review.html?searchResultPosition=5
+
+**‘Shepherd’ Review: Solitary Assignment**\
+`An island of ghosts and an ocean of guilt plague a grief-stricken widower in this moody horror movie.`\
+https://nytimes.com/2022/05/05/movies/shepherd-review.html?searchResultPosition=6
+
 **Chile Files Claim Seeking Ecuador’s Place in the World Cup**\
 `A dispute over a player’s eligibility could alter the qualifying results in South America. Chile has asked for forfeits, and Ecuador’s spot in Qatar.`\
-https://nytimes.com/2022/05/05/sports/soccer/chile-ecuador-byron-castillo.html?searchResultPosition=1
+https://nytimes.com/2022/05/05/sports/soccer/chile-ecuador-byron-castillo.html?searchResultPosition=7
 
 **‘Not Good for Learning’**\
 `New research is showing the high costs of long school closures in some communities.`\
-https://nytimes.com/2022/05/05/briefing/school-closures-covid-learning-loss.html?searchResultPosition=2
+https://nytimes.com/2022/05/05/briefing/school-closures-covid-learning-loss.html?searchResultPosition=8
 
 **Hurdle to Broad Adoption of E.V.s: The Misperception They’re Unsafe**\
 `Fully electric vehicles have fewer fires than gasoline-powered and hybrid cars, and their crash protection is at least equivalent.`\
-https://nytimes.com/2022/05/05/business/electric-vehicle-safety.html?searchResultPosition=3
+https://nytimes.com/2022/05/05/business/electric-vehicle-safety.html?searchResultPosition=9
 
 **A Post-Roe Map of America**\
 `Where in the United States would access to abortion be assured, and where would it be in jeopardy?`\
-https://nytimes.com/2022/05/05/podcasts/the-daily/roe-v-wade-abortion-states.html?searchResultPosition=4
-
-**Exactly where are all the peatlands in the world?**\
-`We asked for questions about the amazing carbon-storage capabilities of peatlands, and how these ecosystems keep the planet breathing. Readers sent us more than a thousand. Here are some answers.`\
-https://nytimes.com/2022/05/05/headway/peatlands-location.html?searchResultPosition=5
-
-**How much peat is used for gardening?**\
-`We asked for questions about the amazing carbon-storage capabilities of peatlands, and how these ecosystems keep the planet breathing. Readers sent us more than a thousand. Here are some answers.`\
-https://nytimes.com/2022/05/05/headway/peatlands-gardening-carbon.html?searchResultPosition=6
-
-**Shell reports a record $9.1 billion profit.**\
-`Rising energy prices, along with cost cutting, helped secure the soaring result at Europe’s largest energy company.`\
-https://nytimes.com/2022/05/05/business/shell-earnings-record-profit.html?searchResultPosition=7
-
-**How do we preserve or restore peatlands?**\
-`We asked for questions about the amazing carbon-storage capabilities of peatlands, and how these ecosystems keep the planet breathing. Readers sent us more than a thousand. Here are some answers.`\
-https://nytimes.com/2022/05/05/headway/peatlands-restoration.html?searchResultPosition=8
-
-**Why can’t we create, build or plant new peatlands?**\
-`We asked for questions about the amazing carbon-storage capabilities of peatlands, and how these ecosystems keep the planet breathing. Readers sent us more than a thousand. Here are some answers.`\
-https://nytimes.com/2022/05/05/headway/peatlands-creation.html?searchResultPosition=9
-
-**How do peatlands capture carbon, and why is it so important to the planet?**\
-`We asked for questions about the amazing carbon-storage capabilities of peatlands, and how these ecosystems keep the planet breathing. Readers sent us more than a thousand. Here are some answers.`\
-https://nytimes.com/2022/05/05/headway/peatlands-carbon-climate-change.html?searchResultPosition=10
+https://nytimes.com/2022/05/05/podcasts/the-daily/roe-v-wade-abortion-states.html?searchResultPosition=10
 
