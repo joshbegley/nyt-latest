@@ -14,7 +14,7 @@ https://nytimes.com/2022/05/05/world/europe/ireland-abortion-hospital.html?searc
 `Web3, billed as the future of the internet, might create more problems than it solves.`\
 https://nytimes.com/2022/05/05/opinion/crypto-nfts-web3.html?searchResultPosition=4
 
-**3 People Reported Killed in Attack in Israel**\
+**Assailants armed with a gun and ax kill passersby in Israel, police say.**\
 `The deadly attack was the first in Israel since a wave of them killed 14 people in March and April.`\
 https://nytimes.com/2022/05/05/world/middleeast/israel-attack-ax.html?searchResultPosition=5
 
