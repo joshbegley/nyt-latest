@@ -1,6 +1,6 @@
 **You’re Cleaning All Wrong**\
 `A science-based guide for fellow germaphobes.`\
-https://nytimes.com/2022/05/05/well/youre-cleaning-all-wrong.html?searchResultPosition=1
+https://nytimes.com/2022/05/05/well/clean-disinfect-home-germs.html?searchResultPosition=1
 
 **Citing Safety Concerns, F.D.A. Further Limits J.&J. Covid Vaccine**\
 `The agency said the move reflected an updated analysis of the risk of a rare but serious blood-clotting condition in people who get the vaccine.`\
