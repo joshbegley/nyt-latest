@@ -20,7 +20,7 @@ https://nytimes.com/2022/05/06/technology/amazon-fires-managers-union-staten-isl
 
 **The powerful explosion ripped off the hotel’s facade and left many missing.**\
 `An explosion caused by an apparent gas leak left dozens injured and destroyed parts of a luxury hotel. Other people were possibly trapped inside the rubble.`\
-https://nytimes.com/live/2022/05/06/world/cuba-explosion-havana-hotel/cuba-explosion-havana-hotel?searchResultPosition=6
+https://nytimes.com/live/2022/05/06/world/hotel-saratoga-explosion-havana-cuba/cuba-explosion-havana-hotel?searchResultPosition=6
 
 **Queen’s Jubilee Photo-Op: A Slimmed-Down Royal Family**\
 `Neither Prince Harry and his wife Meghan, nor Prince Andrew will get a place on the balcony at Buckingham Palace. It’s not even certain Queen Elizabeth, 96, will be there.`\
