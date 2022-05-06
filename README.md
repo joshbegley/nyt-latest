@@ -34,7 +34,7 @@ https://nytimes.com/2022/05/06/world/europe/ukraine-russia-artillery-kharkiv.htm
 `Covid helps explain it.`\
 https://nytimes.com/2022/05/06/briefing/joe-biden-approval-rating-covid.html?searchResultPosition=9
 
-**Israel Searches for Assailants Who Killed 3 People in Stabbing Rampage**\
-`The deadly attack on Thursday night fueled Israeli-Palestinian tensions that have been building for more than a month.`\
-https://nytimes.com/2022/05/06/world/middleeast/israel-stabbing-attack-palestinians.html?searchResultPosition=10
+**A Post-Roe America, Part 1: The Anti-Abortion Activists**\
+`What next for a movement that looks to have achieved a decades-long goal?`\
+https://nytimes.com/2022/05/06/podcasts/the-daily/roe-v-wade-supreme-court-anti-abortion.html?searchResultPosition=10
 
