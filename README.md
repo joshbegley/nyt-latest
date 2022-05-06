@@ -4,7 +4,7 @@ https://nytimes.com/2022/05/06/science/trilobites-sex-claspers.html?searchResult
 
 **Kid Krono Wrote Music for Kanye West Between Classes**\
 `Konrad Bigisson, a teenager from New York, messaged his favorite music producers on Instagram.`\
-https://nytimes.com/2022/05/06/style/kanye-west-kid-krono-producer-teenager.html?searchResultPosition=2
+https://nytimes.com/2022/05/06/style/kanye-west-kid-krono-producer-nyc.html?searchResultPosition=2
 
 **Making Up for Lost Time as Ibiza’s Clubs Reopen**\
 `After more than two years of pandemic-mandated uncertainty, Europe’s nightlife industry is hoping for a return to the days before Covid-19.`\
