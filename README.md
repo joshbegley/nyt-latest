@@ -3,7 +3,7 @@
 https://nytimes.com/2022/05/06/us/los-angeles-riots.html?searchResultPosition=1
 
 **One Village at a Time: The Grinding Artillery War in Ukraine**\
-`The gains by the Ukrainian army in the north have been modest, but they are emblematic of both sides’ strategy across Ukraine: maneuvering artillery to make modest gains in territory.`\
+`The advances by the Ukrainian army in the north have been modest, but they are emblematic of both sides’ strategy: maneuvering artillery to gain territory.`\
 https://nytimes.com/2022/05/06/world/europe/ukraine-russia-artillery-kharkiv.html?searchResultPosition=2
 
 **Biden’s Unpopularity**\
