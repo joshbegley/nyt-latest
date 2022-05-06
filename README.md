@@ -11,7 +11,7 @@ https://nytimes.com/2022/05/06/climate/shell-exxon-profits-climate.html?searchRe
 https://nytimes.com/2022/05/06/technology/amazon-fires-managers-union.html?searchResultPosition=3
 
 **At Least Four Killed in Havana Explosion**\
-`An explosion caused by an apparent gas leak inside a luxury hotel in Havana left for people dead and several injured, with others potentially trapped inside the rubble.`\
+`An explosion caused by an apparent gas leak inside a luxury hotel in Havana left four people dead and several injured, with others potentially trapped inside the rubble.`\
 https://nytimes.com/2022/05/06/world/americas/cuba-explosion-havana-hotel.html?searchResultPosition=4
 
 **Queen’s Jubilee Photo-Op: A Slimmed-Down Royal Family**\
