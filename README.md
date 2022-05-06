@@ -14,7 +14,7 @@ https://nytimes.com/2022/05/06/podcasts/transcript-ezra-klein-interviews-matt-co
 `The Federal Reserve’s efforts to slow inflation might hit hiring as well.`\
 https://nytimes.com/2022/05/06/business/dealbook/jobs-tesla-diversity.html?searchResultPosition=4
 
-**Wall Street is steady after jobs report shows robust hiring in April.**\
+**Stocks drop again as investors see reasons to worry in latest jobs report.**\
 `Investors are on edge amid uncertainty about the fate of the economy.`\
 https://nytimes.com/2022/05/06/business/stock-market-today.html?searchResultPosition=5
 
