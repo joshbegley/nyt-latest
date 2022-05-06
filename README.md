@@ -12,7 +12,7 @@ https://nytimes.com/2022/05/06/climate/shell-exxon-profits-climate.html?searchRe
 
 **Amazon Abruptly Fires Senior Managers Tied to Unionized Warehouse**\
 `Company officials said the terminations in Staten Island were the result of an internal review while the fired managers saw it as a response to the recent union victory.`\
-https://nytimes.com/2022/05/06/technology/amazon-fires-managers-union.html?searchResultPosition=4
+https://nytimes.com/2022/05/06/technology/amazon-fires-managers-union-staten-island.html?searchResultPosition=4
 
 **At Least Four Killed in Havana Explosion**\
 `An explosion caused by an apparent gas leak inside a luxury hotel in Havana left four people dead and several injured, with others potentially trapped inside the rubble.`\
