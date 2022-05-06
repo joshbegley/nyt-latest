@@ -6,7 +6,7 @@ https://nytimes.com/2022/05/06/theater/into-the-woods-review.html?searchResultPo
 `The company recently moved to Texas, which is home to some of the country’s most restrictive abortion laws.`\
 https://nytimes.com/2022/05/06/business/tesla-abortion-costs-texas.html?searchResultPosition=2
 
-**Can Nothing Be Boris Johnson’s Fault?**\
+**Voters Have Finally Punished Boris Johnson**\
 `If Mr. Johnson does not go, and soon, it will be hard to avoid the conclusion that we have crossed a Rubicon from which it will be difficult to return.`\
 https://nytimes.com/2022/05/06/opinion/international-world/boris-johnson-partygate-election.html?searchResultPosition=3
 
