@@ -11,7 +11,7 @@ https://nytimes.com/2022/05/06/style/chanel-celine-cruise.html?searchResultPosit
 https://nytimes.com/2022/05/06/dining/spring-vegetable-polenta.html?searchResultPosition=3
 
 **The Multi-Layered Movie of American Fashion**\
-`Nine film directors, from Scorcese to Regina King to Chloé Zhao, reframe our country’s history of design in 13 Period Rooms at the Met.`\
+`Nine film directors, from Scorcese to Regina King to Chloé Zhao, team up with curators at the Met to reframe our country’s history of design.`\
 https://nytimes.com/2022/05/06/arts/design/costume-institute-met-museum.html?searchResultPosition=4
 
 **You Bought a House. Your Colleague Didn’t. It’s Still OK to Celebrate.**\
