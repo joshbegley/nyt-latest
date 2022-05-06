@@ -18,9 +18,9 @@ https://nytimes.com/2022/05/06/climate/shell-exxon-profits-climate.html?searchRe
 `Company officials said the terminations in Staten Island were the result of an internal review while the fired managers saw it as a response to the recent union victory.`\
 https://nytimes.com/2022/05/06/technology/amazon-fires-managers-union-staten-island.html?searchResultPosition=5
 
-**At Least Eight Killed in Havana Explosion**\
+**The powerful explosion ripped off the hotel’s facade and left many missing.**\
 `An explosion caused by an apparent gas leak left dozens injured and destroyed parts of a luxury hotel. Other people were possibly trapped inside the rubble.`\
-https://nytimes.com/2022/05/06/world/americas/cuba-explosion-havana-hotel.html?searchResultPosition=6
+https://nytimes.com/live/2022/05/06/world/cuba-explosion-havana-hotel/cuba-explosion-havana-hotel?searchResultPosition=6
 
 **Queen’s Jubilee Photo-Op: A Slimmed-Down Royal Family**\
 `Neither Prince Harry and his wife Meghan, nor Prince Andrew will get a place on the balcony at Buckingham Palace. It’s not even certain Queen Elizabeth, 96, will be there.`\
