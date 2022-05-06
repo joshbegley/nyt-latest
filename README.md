@@ -7,8 +7,8 @@ https://nytimes.com/2022/05/06/books/review/newman-hubbard-macleod.html?searchRe
 https://nytimes.com/2022/05/06/climate/shell-exxon-profits-climate.html?searchResultPosition=2
 
 **Amazon Abruptly Fires Senior Managers Tied to Unionized Warehouse**\
-`Company officials said the terminations were the result of an internal review while the fired managers saw it as a response to the recent union victory.`\
-https://nytimes.com/2022/05/06/technology/amazon-abruptly-fires-senior-managers-tied-to-unionized-warehouse.html?searchResultPosition=3
+`Company officials said the terminations in Staten Island were the result of an internal review while the fired managers saw it as a response to the recent union victory.`\
+https://nytimes.com/2022/05/06/technology/amazon-fires-managers-union.html?searchResultPosition=3
 
 **At Least Four Killed in Havana Explosion**\
 `An explosion caused by an apparent gas leak inside a luxury hotel in Havana left for people dead and several injured, with others potentially trapped inside the rubble.`\
