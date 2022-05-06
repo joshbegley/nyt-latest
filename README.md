@@ -2,8 +2,8 @@
 `The actor said his dismissal from “The Fall of the House of Usher” followed a love scene in which the actress playing his wife accused him of touching her leg.`\
 https://nytimes.com/2022/05/05/arts/television/frank-langella-fired-column.html?searchResultPosition=1
 
-**Rangers Look More Like Themselves in 5-2 Win Over Penguins**\
-`After losing Game 1 in triple overtime, New York rebounded to tie its N.H.L. playoff series with Pittsburgh at one game apiece.`\
+**Suddenly, Rangers Look More Like Their Regular Season Selves**\
+`After losing Game 1 in triple overtime, New York rebounded to a 5-2 win over the Penguins to tie their N.H.L. playoff series at one game apiece.`\
 https://nytimes.com/2022/05/05/sports/hockey/rangers-penguins-nhl-playoffs.html?searchResultPosition=2
 
 **Giuliani Pulls Out of Interview With Jan. 6 Committee**\
