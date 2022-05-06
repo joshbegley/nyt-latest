@@ -1,40 +1,40 @@
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/05/06/crosswords/spelling-bee-forum.html?searchResultPosition=1
+**Pre-K Is Powerful if Done Right. Here’s How.**\
+`Low quality pre-K programs can be worse than useless. High quality ones can change lives.`\
+https://nytimes.com/2022/05/06/opinion/politics/pre-k-education-children.html?searchResultPosition=1
 
-**‘The Takedown’ Review: Mismatched Detectives on the Case**\
-`This film from Louis Leterrier tries to pay tribute to classic 1980s buddy-cop movies, but not even Omar Sy can’t salvage it.`\
-https://nytimes.com/2022/05/06/movies/the-takedown-review.html?searchResultPosition=2
+**The Ocean’s Biggest Garbage Pile Is Full of Floating Life**\
+`Researchers found that small sea creatures exist in equal number with pieces of plastic in parts of the Great Pacific Garbage Patch, which could have implications for cleaning up ocean pollution.`\
+https://nytimes.com/2022/05/06/science/pacific-garbage-patch.html?searchResultPosition=2
 
-**Word of the Day: peculiar**\
-`This word has appeared in 307 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/05/06/learning/word-of-the-day-peculiar.html?searchResultPosition=3
+**In the Philippines, a Flourishing Ecosystem for Political Lies**\
+`Supporters of Ferdinand Marcos Jr. are using live video to spread misinformation on social media. Voters have become inured to the situation, researchers fear.`\
+https://nytimes.com/2022/05/06/business/philippines-election-disinformation.html?searchResultPosition=3
 
-**Trevor Noah Has Thoughts on the Rise in Interest Rates**\
-`Noah blamed inflation on “the pandemic, supply chain issues and a Russian man who clearly wasn’t hugged enough as a child.”`\
-https://nytimes.com/2022/05/06/arts/television/trevor-noah-interest-rates-inflation.html?searchResultPosition=4
+**How a Comic Book Collector Spends His Sundays**\
+`Vincent Zurzolo, comics expert, is also into wellness. He meditates, eats a high-protein diet, works out and moisturizes.`\
+https://nytimes.com/2022/05/06/nyregion/comic-books-vincent-zurzolo.html?searchResultPosition=4
 
-**Your Friday Briefing**\
-`Ukrainian forces regain ground from Russia.`\
-https://nytimes.com/2022/05/06/briefing/ukraine-russia-fighting-covid-deaths.html?searchResultPosition=5
+**Jack Harlow Knows What He Wants. And Where He Stands.**\
+`On the heels of his first solo No. 1 hit, the 24-year-old rapper is releasing “Come Home the Kids Miss You,” an album that appeals to the vastly different corners of his fan base.`\
+https://nytimes.com/2022/05/06/arts/music/jack-harlow-come-home-the-kids-miss-you.html?searchResultPosition=5
 
-**The Man Who Could Ruin the Philippines Forever**\
-`We Filipinos were once proud of our democracy. The coming elections could see its end.`\
-https://nytimes.com/2022/05/06/opinion/philippines-election-marcos-duterte.html?searchResultPosition=6
+**Why Musk’s Twitter Bid Has Shaken Tesla Investors**\
+`The chief executive’s debt load, his divided attention and Twitter’s own challenges could all take a toll on his electric-car company.`\
+https://nytimes.com/2022/05/06/business/elon-musk-tesla-twitter.html?searchResultPosition=6
 
-**Rents May Rise as Much as 6 Percent for Some N.Y.C. Tenants**\
-`In a preliminary vote, the Rent Guidelines Board approved the biggest increases in nearly a decade.`\
-https://nytimes.com/2022/05/06/nyregion/rents-may-rise-as-much-as-6-percent-for-some-nyc-tenants.html?searchResultPosition=7
+**Medina Spirit Was Pulled by the Forelegs Into a World That Let Him Down**\
+`The little colt with the star on his forehead shocked the world a year ago by winning the Kentucky Derby. Those who knew and loved him still mourn what happened after that.`\
+https://nytimes.com/2022/05/06/sports/horse-racing/medina-spirit-kentucky-derby.html?searchResultPosition=7
 
-**Corrections: May 6, 2022**\
-`Corrections that appeared in print on Friday, May 6, 2022.`\
-https://nytimes.com/2022/05/06/pageoneplus/corrections-may-6-2022.html?searchResultPosition=8
+**In a One-Man Race in Hong Kong, China Is Guaranteed to Win**\
+`John Lee, a Beijing loyalist who oversaw the crackdown on pro-democracy protests, built his career by deepening his contacts within the mainland security services.`\
+https://nytimes.com/2022/05/06/world/asia/john-lee-hong-kong-election.html?searchResultPosition=8
 
-**Quotation of the Day: Global Studies Tie Covid to Erectile Dysfunction**\
-`Quotation of the Day for Friday, May 6, 2022.`\
-https://nytimes.com/2022/05/06/todayspaper/quotation-of-the-day-global-studies-tie-covid-to-erectile-dysfunction.html?searchResultPosition=9
+**A Return Trip to Timothy Leary’s Psychedelic, Day-Glo Mexico**\
+`Most travelers descending on Zihuatanejo are unaware of the resort city’s storied past with the apostle of psychedelic drugs, and his experiments in consciousness expansion.`\
+https://nytimes.com/2022/05/06/travel/mexico-timothy-leary-psychedelics.html?searchResultPosition=9
 
-**W.N.B.A. Season Preview: New Talent Is Here, but an Absence Looms**\
-`The league will honor Phoenix Mercury Brittney Griner, who remains in custody in Russia, as its new season begins Friday.`\
-https://nytimes.com/2022/05/06/sports/basketball/wnba-season-preview.html?searchResultPosition=10
+**Has Shanghai Been Xinjianged?**\
+`Shanghai used to be the glamorous China, while Xinjiang was the dark China. Now both are casualties of authoritarian excess.`\
+https://nytimes.com/2022/05/06/business/shanghai-xinjiang-china-covid-zero.html?searchResultPosition=10
 
