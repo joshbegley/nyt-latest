@@ -4,7 +4,7 @@ https://nytimes.com/2022/05/06/nyregion/nyc-dancehall-parties.html?searchResultP
 
 **Borrowing From ‘The Natural,’ Ohtani Makes an Impression at Fenway**\
 `The Angels’ two-way star dominated on the mound and knocked his own number off the scoreboard with a line drive. All in a day’s work.`\
-https://nytimes.com/2022/05/06/sports/baseball/shohei-ohtani-fenway.html?searchResultPosition=2
+https://nytimes.com/2022/05/06/sports/baseball/shohei-ohtani-angels-red-sox-fenway.html?searchResultPosition=2
 
 **Remembering the 1992 Los Angeles Riots**\
 `A reporter who covered the riots reflects 30 years later.`\
