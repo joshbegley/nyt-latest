@@ -36,5 +36,5 @@ https://nytimes.com/2022/05/07/crosswords/spelling-bee-diary.html?searchResultPo
 
 **As Tunisia’s Democratic Experiment Unravels, Economic Collapse Looms**\
 `The president is consolidating one-man rule while the economy, sapped by mismanagement, the pandemic and war in Ukraine, flails. Groups that helped avert a past crisis are largely silent.`\
-https://nytimes.com/2022/05/07/world/middleeast/as-tunisias-democratic-experiment-unravels-economic-collapse-looms.html?searchResultPosition=10
+https://nytimes.com/2022/05/07/world/middleeast/tunisia-democracy-economy.html?searchResultPosition=10
 
