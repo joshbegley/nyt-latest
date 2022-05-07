@@ -30,8 +30,8 @@ https://nytimes.com/2022/05/06/us/politics/trump-rally-dr-oz-jd-vance.html?searc
 `Officials warned that extreme weather events could cause outages and that power bills would increase as providers covered rising energy costs.`\
 https://nytimes.com/2022/05/06/business/energy-environment/california-electricity-shortage.html?searchResultPosition=8
 
-**Group Led by American Will Buy Chelsea F.C., the Team Says**\
-`Todd Boehly, a part-owner of the Los Angeles Dodgers, leads a new ownership group that is set to buy the club from Roman Abramovich, a Russian oil oligarch, for more than $3 billion.`\
+**American Billionaire’s Group Wins Bidding for Chelsea F.C.**\
+`A consortium led by Todd Boehly, a part-owner of the Los Angeles Dodgers, will pay $3.1 billion for the soccer club, the highest price ever paid for a sports team.`\
 https://nytimes.com/2022/05/06/sports/soccer/chelsea-sale-todd-boehly.html?searchResultPosition=9
 
 **George Cheeks, the president of CBS, tests positive for coronavirus after attending the White House Correspondents’ Dinner.**\
