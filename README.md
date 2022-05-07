@@ -1,4 +1,4 @@
-**The Derby Party Is Back On **\
+**The Derby Party Is Back On**\
 `There are no pandemic restrictions at the Kentucky Derby this year, and the traditions are in full swing — with a few twists.`\
 https://nytimes.com/interactive/2022/05/07/sports/horse-racing/kentucky-derby-scene.html?searchResultPosition=1
 
