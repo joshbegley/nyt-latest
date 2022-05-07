@@ -34,7 +34,7 @@ https://nytimes.com/2022/05/07/us/anti-abortion-movement-roe-v-wade.html?searchR
 `The Biden administration’s push for Taiwan to order missiles and smaller arms for asymmetric warfare has gained urgency since Russia’s invasion of Ukraine.`\
 https://nytimes.com/2022/05/07/us/politics/china-taiwan-weapons.html?searchResultPosition=9
 
-**As Britain Turned Away From E.U., Northern Ireland Turned to Sinn Fein**\
+**. News Analysis**\
 `Election results reflected the demoralization of unionist voters, the disarray of their leaders and an electorate with new priorities — much of which can be traced to Brexit.`\
 https://nytimes.com/2022/05/07/world/europe/northern-ireland-sinn-fein.html?searchResultPosition=10
 
