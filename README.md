@@ -18,7 +18,7 @@ https://nytimes.com/interactive/2022/05/07/sports/f1-new-car-design-miami.html?s
 `A little-known United Nations agency decided to make an impact by doling out loans and grant money — all to a single family. It did not go well.`\
 https://nytimes.com/2022/05/07/world/americas/un-loan-project-services.html?searchResultPosition=5
 
-**Mickey Gilley, Country Music Star Whose Club Inspired ‘Urban Cowboy,’ Dies at 86**\
+**Mickey Gilley, Country Star Whose Club Inspired ‘Urban Cowboy,’ Dies at 86**\
 `Mr. Gilley, who had more than 30 chart-topping records, owned a Texas nightclub that was behind a country music revival.`\
 https://nytimes.com/2022/05/07/arts/music/mickey-gilley-dead.html?searchResultPosition=6
 
