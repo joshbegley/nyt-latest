@@ -22,8 +22,8 @@ https://nytimes.com/2022/05/08/crosswords/daily-puzzle-2022-05-09.html?searchRes
 `The alarms came after Senator Mitch McConnell, the Republican leader, called such a ban “possible” if a leaked Supreme Court opinion became final and his party gained control in Washington.`\
 https://nytimes.com/2022/05/08/us/politics/senate-democrats-abortion.html?searchResultPosition=6
 
-**Dmitry Bivol’s Next Bout Could Be About Money or a Dream**\
-`A rematch with Canelo Álvarez would be lucrative, but Bivol made a competition-based argument — trying to become an undisputed champion — for moving on from him.`\
+**Dmitry Bivol’s Next Bout Could Be About Money or His Dream**\
+`A rematch with Canelo Álvarez would be lucrative, but Bivol made a competition-based argument for moving on from him.`\
 https://nytimes.com/2022/05/08/sports/canelo-alvarez-dmitry-bivol.html?searchResultPosition=7
 
 **Zelensky’s Wife Thanks Jill Biden for ‘Courageous’ Trip to Ukraine**\
