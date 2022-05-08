@@ -1,40 +1,40 @@
+**The Supreme Court as an Instrument of Oppression**\
+`In just a few short weeks, the fundamental right enshrined in Roe nearly 50 years ago could disappear overnight. What’s next? Is anything safe?`\
+https://nytimes.com/2022/05/08/opinion/supreme-court-oppression.html?searchResultPosition=1
+
 **Review: ‘Falling Out of Time’ Gives Song to a Father’s Grief**\
 `Osvaldo Golijov’s evening-length work, based on the book by David Grossman about his son, had its New York premiere with the Silkroad Ensemble.`\
-https://nytimes.com/2022/05/08/arts/music/golijov-falling-out-of-time-review.html?searchResultPosition=1
+https://nytimes.com/2022/05/08/arts/music/golijov-falling-out-of-time-review.html?searchResultPosition=2
 
 **G7 nations pledge to ban or phase out Russian oil.**\
 `With much if Europe dependent on Russian oil, the Group of 7 said the ban would take effect in “timely and orderly fashion.”`\
-https://nytimes.com/2022/05/08/world/europe/g7-nations-russia-oil.html?searchResultPosition=2
+https://nytimes.com/2022/05/08/world/europe/g7-nations-russia-oil.html?searchResultPosition=3
 
 **3 Americans Die in Mysterious Circumstances at Bahamas Resort**\
 `It was unclear what happened but officials said they did not suspect foul play and there were no signs of trauma. Another guest was hospitalized in stable condition.`\
-https://nytimes.com/2022/05/08/world/americas/bahamas-sandals-resort-americans-dead.html?searchResultPosition=3
+https://nytimes.com/2022/05/08/world/americas/bahamas-sandals-resort-americans-dead.html?searchResultPosition=4
 
 **If Roe Falls, Is Same-Sex Marriage Next?**\
 `The leaked draft opinion that would eliminate the constitutional right to abortion sent mixed signals about what other precedents might be at risk.`\
-https://nytimes.com/2022/05/08/us/politics/roe-wade-supreme-court-abortion.html?searchResultPosition=4
+https://nytimes.com/2022/05/08/us/politics/roe-wade-supreme-court-abortion.html?searchResultPosition=5
 
 **Ncuti Gatwa Is the New ‘Doctor Who’**\
 `Mr. Gatwa, a star of the Netflix series “Sex Education,” will be the first Black man to play the title character in the enduring BBC science fiction franchise.`\
-https://nytimes.com/2022/05/08/arts/television/ncuti-gatwa-doctor-who.html?searchResultPosition=5
+https://nytimes.com/2022/05/08/arts/television/ncuti-gatwa-doctor-who.html?searchResultPosition=6
 
 **George Pérez, Who Gave New Life to Wonder Woman, Dies at 67**\
 `Working for both Marvel and DC, he created comic book series that brought superheroes together, and was co-creator of The New Teen Titans.`\
-https://nytimes.com/2022/05/08/obituaries/george-perez-dead.html?searchResultPosition=6
+https://nytimes.com/2022/05/08/obituaries/george-perez-dead.html?searchResultPosition=7
 
 **Ukraine slideshow**\
 `Ukraine slideshow`\
-https://nytimes.com/slideshow/2022/05/08/homepage/ukraine-slideshow.html?searchResultPosition=7
+https://nytimes.com/slideshow/2022/05/08/homepage/ukraine-slideshow.html?searchResultPosition=8
 
 **Ric Parnell, Real Drummer in a Famous Fake Band, Dies at 70**\
 `The central characters in the mockumentary “This Is Spinal Tap” were comic actors, but Mr. Parnell was an actual professional musician.`\
-https://nytimes.com/2022/05/08/arts/music/ric-parnell-dead.html?searchResultPosition=8
+https://nytimes.com/2022/05/08/arts/music/ric-parnell-dead.html?searchResultPosition=9
 
 **‘Please Help’: A Nationwide Baby Formula Shortage Worsens**\
 `After Abbott Nutrition issued voluntary recalls of its popular baby formulas, retailers have limited purchases, leaving desperate parents searching for solutions.`\
-https://nytimes.com/2022/05/08/business/baby-formula-shortage-retailers.html?searchResultPosition=9
-
-**Review: Igor Levit Arrives at the Philharmonic, at Last**\
-`Levit, one of the world’s eminent pianists, appeared with the orchestra at Carnegie Hall eight years after making his New York debut.`\
-https://nytimes.com/2022/05/08/arts/music/igor-levit-ny-phil-review.html?searchResultPosition=10
+https://nytimes.com/2022/05/08/business/baby-formula-shortage-retailers.html?searchResultPosition=10
 
