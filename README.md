@@ -1,6 +1,6 @@
 **Man, 25, Is the Fourth Inmate to Die at Rikers This Year**\
 `Dashawn Carter was found hanging in his cell in an apparent suicide during a time of deepening crisis for the jail.`\
-https://nytimes.com/2022/05/08/nyregion/fourth-inmate-dies-at-rikers.html?searchResultPosition=1
+https://nytimes.com/2022/05/08/nyregion/inmate-death-rikers.html?searchResultPosition=1
 
 **Jill Biden’s Secret Ukraine Trip**\
 `Ukrainian officials reached out several days ahead of Dr. Biden’s planned four-day tour of Eastern Europe to suggest a meeting with the Ukrainian first lady. The East Wing took the chance.`\
