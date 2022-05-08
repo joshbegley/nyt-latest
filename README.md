@@ -7,7 +7,7 @@ https://nytimes.com/2022/05/08/opinion/supreme-court-oppression.html?searchResul
 https://nytimes.com/2022/05/08/arts/music/golijov-falling-out-of-time-review.html?searchResultPosition=2
 
 **G7 nations pledge to ban or phase out Russian oil.**\
-`With much if Europe dependent on Russian oil, the Group of 7 said the ban would take effect in “timely and orderly fashion.”`\
+`With much of Europe dependent on Russian oil, the Group of 7 said the ban would take effect in a “timely and orderly fashion.”`\
 https://nytimes.com/2022/05/08/world/europe/g7-nations-russia-oil.html?searchResultPosition=3
 
 **3 Americans Die in Mysterious Circumstances at Bahamas Resort**\
