@@ -1,6 +1,6 @@
 **Ric Parnell, Real Drummer in a Famous Fake Band, Dies at 70**\
 `The central characters in the mockumentary “This Is Spinal Tap” were comic actors, but Mr. Parnell was an actual professional musician.`\
-https://nytimes.com/2022/05/08/arts/music/ric-parnell-real-drummer-in-a-famous-fake-band-dies-at-70.html?searchResultPosition=1
+https://nytimes.com/2022/05/08/arts/music/ric-parnell-dead.html?searchResultPosition=1
 
 **‘Please Help’: A Nationwide Baby Formula Shortage Worsens**\
 `After Abbott Nutrition issued voluntary recalls of its popular baby formulas, retailers have limited purchases, leaving desperate parents searching for solutions.`\
