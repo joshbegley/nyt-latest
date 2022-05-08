@@ -18,19 +18,19 @@ https://nytimes.com/video/world/europe/100000008339206/macron-inauguration-franc
 `In graphic body camera footage of the confrontation in Oklahoma in December, the man at one point appears to be putting his hands up when he is shot.`\
 https://nytimes.com/2022/05/07/us/oklahoma-lpd-officers-shooting-manslaughter.html?searchResultPosition=6
 
+**Messier’s owners are hoping he can deliver wins the way another Messier did.**\
+`The N.H.L. great Mark Messier is starstruck by the colt who shares his name.`\
+https://nytimes.com/2022/05/07/sports/horse-racing/messier-kentucky-derby-horse.html?searchResultPosition=7
+
 **Donald Trump is holding a fund-raiser at the Derby, trampling on Mitch McConnell’s turf.**\
 `The price tag is $75,000 per person. McConnell won’t be around.`\
-https://nytimes.com/2022/05/07/sports/horse-racing/trump-kentucky-derby.html?searchResultPosition=7
+https://nytimes.com/2022/05/07/sports/horse-racing/trump-kentucky-derby.html?searchResultPosition=8
 
 **Civilians Are Evacuated From Mariupol Steel Plant**\
 `Russian and Ukrainian officials said that all women, children and older people had been evacuated from the besieged Azovstal steel plant in Mariupol. Evacuees were taken by bus to temporary accommodations.`\
-https://nytimes.com/video/world/europe/100000008339217/mariupol-steel-plant-evacuations-civilians.html?searchResultPosition=8
+https://nytimes.com/video/world/europe/100000008339217/mariupol-steel-plant-evacuations-civilians.html?searchResultPosition=9
 
 **How Roe Warped the Republic**\
 `Why Roe v. Wade may be overturned by the very forces of polarization it unleashed.`\
-https://nytimes.com/2022/05/07/opinion/how-roe-warped-the-republic.html?searchResultPosition=9
-
-**I’m a Motherhood Expert. My Ambivalence Is Normal.**\
-`After years of engaging with parenthood from a distance, it’s time for a psychiatrist specializing in women’s mental health to take her own advice.`\
-https://nytimes.com/2022/05/07/well/family/motherhood-psychiatrist-mental-health.html?searchResultPosition=10
+https://nytimes.com/2022/05/07/opinion/how-roe-warped-the-republic.html?searchResultPosition=10
 
