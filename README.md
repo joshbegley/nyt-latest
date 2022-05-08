@@ -1,40 +1,40 @@
-**‘A Short Time Later, Fernando Was Back for Another Task’**\
-`An impromptu aria in Inwood, sassy poses at Brighton Beach and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2022/05/08/nyregion/metropolitan-diary.html?searchResultPosition=1
+**A Town for Heady Looks**\
+`This week’s strongest outfits from the Central Park hat luncheon, the Prince’s Trust gala and the Noguchi Museum honoring Asian American and Pacific Islander Heritage Month.`\
+https://nytimes.com/2022/05/08/style/a-town-for-heady-looks.html?searchResultPosition=1
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/05/08/crosswords/spelling-bee-forum.html?searchResultPosition=2
+**Hundreds of Suicidal Teens Sleep in Emergency Rooms. Every Night.**\
+`With inpatient psychiatric services in short supply, adolescents are spending days, even weeks, in hospital emergency departments awaiting the help they desperately need.`\
+https://nytimes.com/2022/05/08/health/emergency-rooms-teen-mental-health.html?searchResultPosition=2
 
-**‘S.N.L.’ Imagines the Origins of Abortion Law**\
-`On an episode hosted by Benedict Cumberbatch, “Saturday Night Live” contemplated the possibility that the Supreme Court could overturn Roe v. Wade.`\
-https://nytimes.com/2022/05/08/arts/television/saturday-night-live-benedict-cumberbatch.html?searchResultPosition=3
+**A Haven for L.G.B.T.Q. Students in the Heart of Alabama**\
+`The Magic City Acceptance Academy, a public charter school, finally opened last year after several attempts. Students there have watched state legislators debate their future in real time.`\
+https://nytimes.com/2022/05/08/us/lgbtq-alabama-charter-school.html?searchResultPosition=3
 
-**Dmitry Bivol Outclasses Canelo Álvarez in Big Upset for Boxing**\
-`Álvarez was outpunched over 12 rounds by the bigger Bivol, who stayed undefeated and found himself being asked for an immediate rematch.`\
-https://nytimes.com/2022/05/08/sports/dmitry-bivol-canelo-alvarez.html?searchResultPosition=4
+**Eid Under the Taliban Shows a Changed Afghanistan**\
+`For many Afghans the holiday this week served as a reminder of the dissonance between the promise of peace many had imagined and the realities of the end of the war.`\
+https://nytimes.com/2022/05/08/world/asia/afghanistan-eid-taliban.html?searchResultPosition=4
 
-**Corrections: May 8, 2022**\
-`Corrections that appeared in print on Sunday, May 8, 2022.`\
-https://nytimes.com/2022/05/08/pageoneplus/corrections-may-8-2022.html?searchResultPosition=5
+**Midterms’ Biggest Abortion Battleground: Pennsylvania**\
+`The leading Republicans running for governor in the state want to outlaw abortion. The presumptive Democratic nominee promises to veto any ban.`\
+https://nytimes.com/2022/05/08/us/politics/midterms-abortion-pennsylvania.html?searchResultPosition=5
 
-**Quotation of the Day: Trump Ally in Nebraska Opens Feuds in G.O.P.**\
-`Quotation of the Day for Sunday, May 8, 2022.`\
-https://nytimes.com/2022/05/08/science/quotation-of-the-day-trump-ally-in-nebraska-opens-feuds-in-gop.html?searchResultPosition=6
+**Supreme Court Leak Inquiry Exposes Gray Area of Press Protections**\
+`No law or written code of conduct prescribes how an investigation into the leak of a draft opinion should proceed, or whether journalists will be swept into it.`\
+https://nytimes.com/2022/05/08/business/media/supreme-court-leak-press-protections.html?searchResultPosition=6
 
-**Lynx’s Sylvia Fowles Does Not See Final Season as a Victory Lap**\
-`The well-decorated Fowles plans to retire after the 2022 season. But while she reluctantly welcomes the celebrations, she is focused on basketball.`\
-https://nytimes.com/2022/05/08/sports/sylvia-fowles-minnesota-lynx.html?searchResultPosition=7
+**Seizing an Oligarch’s Assets Is One Thing. Giving Them to Ukraine Is Another.**\
+`It could take years for Russian assets seized by the United States to be permanently confiscated and sold to benefit the Ukrainian people. The Biden administration wants to speed up the process.`\
+https://nytimes.com/2022/05/08/business/russia-oligarch-yacht-assets.html?searchResultPosition=7
 
-**Abortion Rally Draws Thousands in Houston**\
-`The event was among numerous protests planned across the country this weekend.`\
-https://nytimes.com/2022/05/07/us/abortion-rights-rally.html?searchResultPosition=8
+**As Poor Nations Seek Covid Pills, Officials Fear Repeat of AIDS Crisis**\
+`The antiviral pills, plentiful in the United States, are scarce overseas. Health groups and the White House want to expand access but face obstacles that evoke the H.I.V. epidemic.`\
+https://nytimes.com/2022/05/08/us/politics/covid-pills-global-aids-hiv.html?searchResultPosition=8
 
-**How Formula 1’s Car Redesign Is Changing Racing**\
-`The most extensive aerodynamics changes in 40 years have allowed drivers to race more closely and pass more easily.`\
-https://nytimes.com/interactive/2022/05/07/sports/f1-new-car-design-miami.html?searchResultPosition=9
+**A Leak That Slowed, but Did Not Stop, the Presses**\
+`Here’s how the Times report on the leaked Supreme Court draft opinion to overturn Roe v. Wade came together — and made it into print.`\
+https://nytimes.com/2022/05/08/insider/supreme-court-reporting.html?searchResultPosition=9
 
-**A Pot of U.N. Money. Risk-Taking Officials. A Sea of Questions.**\
-`A little-known United Nations agency decided to make an impact by doling out loans and grant money — all to a single family. It did not go well.`\
-https://nytimes.com/2022/05/07/world/americas/un-loan-project-services.html?searchResultPosition=10
+**Fernanda Melchor Explores the Human Capacity for Violence, and Grace**\
+`“Art must leave a wound,” said the author, one of the most celebrated in new Latin American literature.`\
+https://nytimes.com/2022/05/08/books/fernanda-melchor-paradais.html?searchResultPosition=10
 
