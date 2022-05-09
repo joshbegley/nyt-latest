@@ -2,8 +2,8 @@
 `Newly released documents about the 2019 crash revealed that the pilot failed to completely remove ice from the wings before takeoff, and that the plane was overloaded with passengers.`\
 https://nytimes.com/2022/05/09/us/south-dakota-plane-crash-ntsb-report.html?searchResultPosition=1
 
-**Rikers Officer Failed to Aid Detainee Who Died, Report Finds**\
-`In three cases, fellow inmates struggled to help when jail officers did not, according to the Board of Correction, which expressed “extreme” concern in its report.`\
+**Rikers Officers Lagged in Helping 3 Detainees Who Died, Report Finds**\
+`In each case, fellow inmates struggled to help when jail officers did not, according to the Board of Correction, which expressed “extreme” concern in its report.`\
 https://nytimes.com/2022/05/09/nyregion/rikers-deaths-officers.html?searchResultPosition=2
 
 **Susan Rice, a White House adviser, tests positive for the coronavirus.**\
