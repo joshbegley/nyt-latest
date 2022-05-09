@@ -4,7 +4,7 @@ https://nytimes.com/video/world/europe/100000008341190/macron-ukraine-european-u
 
 **The History of Zabar’s, With Family Photos and Recipes**\
 `Lori Zabar, who died in February, details her family’s roots in Ukraine, the opening of their New York appetizing store and beyond.`\
-https://nytimes.com/2022/05/09/dining/zabars-a-family-story-with-recipes.html?searchResultPosition=2
+https://nytimes.com/2022/05/09/dining/zabars-family-recipes.html?searchResultPosition=2
 
 **These Mushrooms Borrowed the Same Deadly Toxin From a Mysterious Source**\
 `Instead of evolving to produce poison, some distantly related fungi became toxic through a process called horizontal gene transfer, scientists say.`\
