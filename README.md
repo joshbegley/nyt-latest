@@ -1,6 +1,6 @@
 **Review: ‘Wedding Band,’ a Searing Look at Miscegenation Nation**\
 `Alice Childress’s 1962 play about interracial love and hate gets its first major New York revival in 50 years.`\
-https://nytimes.com/2022/05/08/theater/review-wedding-band-a-searing-look-at-miscegenation-nation.html?searchResultPosition=1
+https://nytimes.com/2022/05/08/theater/review-wedding-band.html?searchResultPosition=1
 
 **A bomb-sniffing dog named Patron received state honors from Zelensky.**\
 `Patron has found more than 200 explosives, President Zelensky said. The dog has gone viral as Ukraine wages an information war.`\
