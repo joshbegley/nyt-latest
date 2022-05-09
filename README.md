@@ -1,5 +1,5 @@
 **Queen Elizabeth to Miss Opening of Parliament**\
-`Prince Charles will deliver the Queens Speech instead of his mother, who has missed the constitutional monarchy’s powerful symbol only twice in 70 years.`\
+`Prince Charles will deliver the Queen’s Speech instead of his mother, who has missed the constitutional monarchy’s powerful symbol only twice in 70 years.`\
 https://nytimes.com/2022/05/09/world/europe/queen-elizabeth-parliament-opening.html?searchResultPosition=1
 
 **Rob Manfred and M.L.B. Seek Consistency on Baseballs**\
