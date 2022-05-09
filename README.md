@@ -35,6 +35,6 @@ https://nytimes.com/2022/05/09/briefing/100-million-coronavirus-covid-us.html?se
 https://nytimes.com/2022/05/09/theater/james-ijames-fat-ham-drama-pulitzer.html?searchResultPosition=9
 
 **Escaped Alabama Inmate and Officer Are Caught After Crash, Officials Say**\
-`The authorities had been searching since April 29 for the corrections officer and the inmate, who they had said were in a “special relationship.” The officer was hospitalized with a “self-inflicted” gun wound and was in “very serious condition” they said.`\
+`The authorities had been searching since April 29 for the corrections officer and the inmate, who they had said were in a “special relationship.” The officer was hospitalized with a “self-inflicted” gunshot wound and was in “very serious condition” they said.`\
 https://nytimes.com/2022/05/09/us/officer-inmate-escape-alabama.html?searchResultPosition=10
 
