@@ -30,11 +30,11 @@ https://nytimes.com/2022/05/09/health/ida-elderly-help.html?searchResultPosition
 `The organizer Hoda Katebi is tackling the global garment industry, not as a reformer but as an abolitionist.`\
 https://nytimes.com/2022/05/09/business/hoda-katebi-fashion-fashion-blue-tin.html?searchResultPosition=8
 
-**A Blood Feud in West Virginia Involves a Familiar Figure: Trump**\
-`The incumbent-on-incumbent Republican primary between Representatives Alex Mooney and David McKinley on Tuesday will again test the former president’s grip on the G.O.P.`\
-https://nytimes.com/2022/05/09/us/politics/west-virginia-trump.html?searchResultPosition=9
-
 **On an Endangered River, Another Toxic Disaster Is Waiting to Happen**\
 `Waste from coal plants is threatening the Mobile-Tensaw Delta, which the biologist E.O. Wilson called “arguably the biologically richest place” in the nation. `\
-https://nytimes.com/2022/05/09/opinion/coal-ash-toxic-alabama-rivers.html?searchResultPosition=10
+https://nytimes.com/2022/05/09/opinion/coal-ash-toxic-alabama-rivers.html?searchResultPosition=9
+
+**A Blood Feud in West Virginia Involves a Familiar Figure: Trump**\
+`The incumbent-on-incumbent Republican primary between Representatives Alex Mooney and David McKinley on Tuesday will again test the former president’s grip on the G.O.P.`\
+https://nytimes.com/2022/05/09/us/politics/west-virginia-trump.html?searchResultPosition=10
 
