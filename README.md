@@ -1,5 +1,5 @@
-**Clearview AI settles suit, agrees to limit sales of facial recognition database.**\
-`By Ryan Mac and Kashmir Hill`\
+**Clearview AI settles suit and agrees to limit sales of facial recognition database.**\
+`The facial recognition software maker is largely prohibited from selling its database of photos to private companies.`\
 https://nytimes.com/2022/05/09/technology/clearview-ai-suit.html?searchResultPosition=1
 
 **Protesters Clash with the Police in Sri Lanka’s Capital Over Economic Crisis**\
