@@ -12,7 +12,7 @@ https://nytimes.com/2022/05/09/t-magazine/woven-bags-shoes.html?searchResultPosi
 
 **In Blow to Ruling Family, Sri Lanka’s Prime Minister Quits in Face of Unrest**\
 `The move by Mahinda Rajapaksa came after violence erupted on the streets of Colombo, the capital. It wasn’t immediately clear whether the resignation would satisfy the protesters.`\
-https://nytimes.com/2022/05/09/world/asia/mahinda-rajapaksa-resigns.html?searchResultPosition=4
+https://nytimes.com/2022/05/09/world/asia/mahinda-rajapaksa-resigns-sri-lanka.html?searchResultPosition=4
 
 **Bold Fashion That Offers a Chance to Try On a New Identity**\
 `This season, why not adopt a highly tailored look — or pair silk with faux fur.`\
