@@ -3,7 +3,7 @@
 https://nytimes.com/2022/05/09/t-magazine/summer-fashion-travel.html?searchResultPosition=1
 
 **Appease or Confront**\
-`It’s Victory Day in Europe — a holiday honoring World War II that has long been important to Vladimir Putin.`\
+`It’s Victory Day in Russia — a holiday honoring World War II that has long been important to Vladimir Putin.`\
 https://nytimes.com/2022/05/09/briefing/ve-day-europe-ukraine-war.html?searchResultPosition=2
 
 **King of Throws**\
