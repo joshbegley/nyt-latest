@@ -28,7 +28,7 @@ https://nytimes.com/2022/05/09/theater/paula-vogel-how-i-learned-to-drive.html?s
 
 **Susan Jaffe to Be Next Artistic Director at American Ballet Theater**\
 `A former star ballerina with the company, Jaffe will assume the reins after the 30-year tenure of Kevin McKenzie.`\
-https://nytimes.com/2022/05/09/arts/dance/susan-jaffe-to-be-next-artistic-director-at-american-ballet-theater.html?searchResultPosition=8
+https://nytimes.com/2022/05/09/arts/dance/susan-jaffe-artistic-director-ballet-theater.html?searchResultPosition=8
 
 **In Photos: Russia Celebrates Victory Day Holiday With Parade in Red Square**\
 `President Vladimir V. Putin used his speech on Russia’s most important secular holiday to rally support for the country’s invasion of Ukraine.`\
