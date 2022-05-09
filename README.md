@@ -34,7 +34,7 @@ https://nytimes.com/2022/05/09/arts/music/ron-carter.html?searchResultPosition=8
 `Dr. Jill Biden, the first lady, told reporters at the presidential palace in Slovakia that she had called President Biden and urged him to continue supporting Ukraine.`\
 https://nytimes.com/video/world/europe/100000008340770/jill-biden-ukraine-support.html?searchResultPosition=9
 
-**Filipinos Vote in Presidential Election**\
-`Filipinos headed to the polls to vote to replace President Rodrigo Duterte in an election that has been described as the most consequential in decades.`\
-https://nytimes.com/video/world/asia/100000008340755/philippines-election-voting-polls.html?searchResultPosition=10
+**Macron Calls for “Stronger” Europe But Quashes Ukraine’s Hopes of Joining E.U. Soon**\
+`French president Emmanuel Macron spoke in Strasbourg and Berlin on Monday, outlining proposals to reform the European Union.`\
+https://nytimes.com/2022/05/09/world/macron-quashes-ukraines-hopes-of-joining-the-european-union-in-the-near-future.html?searchResultPosition=10
 
