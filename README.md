@@ -18,7 +18,7 @@ https://nytimes.com/video/world/asia/100000008340755/philippines-election-voting
 `Kevin Thompson thought he would lead his hometown church for the rest of his life. Then came Trump and everything after.`\
 https://nytimes.com/2022/05/09/us/arkansas-pastor-evangelical-churches.html?searchResultPosition=5
 
-**Paula Vogel on “How I Learned to Drive” nominations: ‘I’m just thrilled.’**\
+**Paula Vogel on ‘How I Learned to Drive’ nominations: ‘I’m just thrilled.’**\
 `Twenty-five years after it was a hit Off Broadway, the playwright’s Pulitzer Prize-winning work debuted on Broadway this season.`\
 https://nytimes.com/2022/05/09/theater/paula-vogel-how-i-learned-to-drive.html?searchResultPosition=6
 
