@@ -2,7 +2,7 @@
 `The pop singer spent the last year working with the digital artist on a video series about motherhood. Proceeds will benefit three nonprofits.`\
 https://nytimes.com/2022/05/09/arts/design/madonna-beeple-nft-videos.html?searchResultPosition=1
 
-**New York Lawmakers Push for an Abortion Fund to Establish a ‘Safe Harbor’**\
+**New York Lawmakers Push for Abortion Fund to Establish ‘Safe Harbor’**\
 `Lawmakers in Albany are considering a range of options to expand abortion rights in New York, as many other states prepare to restrict them.`\
 https://nytimes.com/2022/05/09/nyregion/letitia-james-abortion-roe-v-wade.html?searchResultPosition=2
 
