@@ -1,5 +1,5 @@
-**Warhol’s ‘Marilyn’ Sells for $195 Million, Shattering Auction Record for an American Artist**\
-`At Christie’s sale for charity, the glamorous silk-screen beat out Basquiat’s skull painting that set a record in 2017.`\
+**Warhol’s ‘Marilyn,’ at $195 Million, Shatters Auction Record for an American Artist**\
+`At Christie’s sale for charity, the glamorous silk-screen beat out Basquiat’s skull painting that had set a record in 2017.`\
 https://nytimes.com/2022/05/09/arts/design/warhol-auction-marilyn-monroe.html?searchResultPosition=1
 
 **Russian Guided Weapons Miss the Mark, U.S. Defense Officials Say**\
