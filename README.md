@@ -1,40 +1,40 @@
-**Alfred Baldwin, Lookout for Watergate Burglars, Dies at 83**\
-`A co-conspirator, he became an early witness for the government, which helped lead to the indictment of the burglars and linked them with the White House.`\
-https://nytimes.com/2022/05/10/us/alfred-baldwin-dead.html?searchResultPosition=1
+**Nebraska Public Service Commission Fourth District Primary Election Results**\
+`See full results and maps from the Nebraska primary elections.`\
+https://nytimes.com/interactive/2022/05/10/us/elections/results-nebraska-public-service-commission-district-4.html?searchResultPosition=1
 
-**Ukraine War’s Geographic Reality: Russia Has Seized Much of the East**\
-`Despite many stumbles and setbacks, the Russian military has gained near total control of the Donbas region, giving the Kremlin huge leverage in any future talks.`\
-https://nytimes.com/2022/05/10/world/europe/ukraine-russia-donbas.html?searchResultPosition=2
+**Nebraska Third Congressional District Primary Election Results**\
+`See full results and maps from the Nebraska primary elections.`\
+https://nytimes.com/interactive/2022/05/10/us/elections/results-nebraska-us-house-district-3.html?searchResultPosition=2
 
-**Your Tuesday Evening Briefing**\
-`Here’s what you need to know at the end of the day.`\
-https://nytimes.com/2022/05/10/briefing/russia-gains-pandemic-violence-eggs.html?searchResultPosition=3
+**Nebraska Attorney General Primary Election Results**\
+`See full results and maps from the Nebraska primary elections.`\
+https://nytimes.com/interactive/2022/05/10/us/elections/results-nebraska-attorney-general.html?searchResultPosition=3
 
-**Farewell to the iPod**\
-`After nearly 22 years, Apple is stopping production of the devices that changed consumer electronics and led to the creation of the iPhone.`\
-https://nytimes.com/2022/05/10/technology/apple-ipod-phasing-out.html?searchResultPosition=4
+**Nebraska Second Congressional District Primary Election Results**\
+`See full results and maps from the Nebraska primary elections.`\
+https://nytimes.com/interactive/2022/05/10/us/elections/results-nebraska-us-house-district-2.html?searchResultPosition=4
 
-**Fed Confronts Why It May Have Acted Too Slowly on Inflation**\
-`Central bankers have been asking whether they should have reacted faster to rising inflation last year — and are learning from the recent past.`\
-https://nytimes.com/2022/05/10/business/economy/federal-reserve-inflation.html?searchResultPosition=5
+**West Virginia First Congressional District Primary Election Results**\
+`See full results and maps from the West Virginia primary elections.`\
+https://nytimes.com/interactive/2022/05/10/us/elections/results-west-virginia-us-house-district-1.html?searchResultPosition=5
 
-**D.H.S. Watchdog Said Damaging Findings Removed From Reports Were Already Known**\
-`Two House committees were so concerned by the explanation that they requested an array of internal documents related to the reports on sexual misconduct and domestic violence.`\
-https://nytimes.com/2022/05/10/us/politics/homeland-security-misconduct-reports.html?searchResultPosition=6
-
-**A Pastor and His Congregation Part Ways**\
-`Evangelical churchgoers who engage with QAnon conspiracy theories are causing stress for pastors.`\
-https://nytimes.com/interactive/2022/05/10/us/evangelical-pastor-politics.html?searchResultPosition=7
-
-**Police Search of Delaware State University Team Draws Outrage**\
-`The bus of the women’s lacrosse team was pulled over last month by Georgia sheriff’s deputies and searched by a drug-sniffing dog. Delaware officials called video of the search “disturbing.”`\
-https://nytimes.com/2022/05/10/us/delaware-state-lacrosse-bus-stopped.html?searchResultPosition=8
-
-**‘Rust’ Production Appeals Fine for Cinematographer’s Death**\
-`The company, which was fined the maximum penalty allowed under state law, maintained that it did not violate safety protocols.`\
-https://nytimes.com/2022/05/10/arts/rust-producers-halyna-hutchins.html?searchResultPosition=9
+**West Virginia State Senate Third District Primary Election Results**\
+`See full results and maps from the Indiana primary elections.`\
+https://nytimes.com/interactive/2022/05/10/us/elections/results-west-virginia-state-senate-district-3.html?searchResultPosition=6
 
 **Nebraska Public Service Commission Fifth District Primary Election Results**\
 `See full results and maps from the Nebraska primary elections.`\
-https://nytimes.com/interactive/2022/05/10/us/elections/results-nebraska-public-service-commission-district-5.html?searchResultPosition=10
+https://nytimes.com/interactive/2022/05/10/us/elections/results-nebraska-public-service-commission-district-5.html?searchResultPosition=7
+
+**Nebraska Governor Primary Election Results**\
+`See full results and maps from the Nebraska primary elections.`\
+https://nytimes.com/interactive/2022/05/10/us/elections/results-nebraska-governor.html?searchResultPosition=8
+
+**West Virginia Second Congressional District Primary Election Results**\
+`See full results and maps from the West Virginia primary elections.`\
+https://nytimes.com/interactive/2022/05/10/us/elections/results-west-virginia-us-house-district-2.html?searchResultPosition=9
+
+**Nebraska Auditor Primary Election Results**\
+`See full results and maps from the Nebraska primary elections.`\
+https://nytimes.com/interactive/2022/05/10/us/elections/results-nebraska-auditor.html?searchResultPosition=10
 
