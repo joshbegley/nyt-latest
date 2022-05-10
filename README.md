@@ -14,7 +14,7 @@ https://nytimes.com/2022/05/10/business/media/netflix-commercials.html?searchRes
 `Schools are closed indefinitely in Beijing, while the last subway lines in Shanghai that were still running have ceased operation.`\
 https://nytimes.com/2022/05/10/world/asia/china-shanghai-beijing-covid.html?searchResultPosition=4
 
-**What’s Wrong With Igor Shesterkin and the New York Rangers?**\
+**What’s Wrong With Igor Shesterkin and the Rangers?**\
 `The Penguins chased the often brilliant goalie from two games in Pittsburgh to take a 3-1 lead in the series as it moves to New York for Game 5 on Wednesday.`\
 https://nytimes.com/2022/05/10/sports/hockey/penguins-rangers-nhl-playoffs.html?searchResultPosition=5
 
