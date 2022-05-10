@@ -10,7 +10,7 @@ https://nytimes.com/2022/05/10/opinion/letters/supreme-court-abortion-roe.html?s
 `Some 1.8 trillion pieces of plastic are estimated to be floating in an accumulation zone in the middle of the Pacific Ocean.`\
 https://nytimes.com/interactive/2022/05/10/science/science-quiz-great-pacific-garbage-patch.html?searchResultPosition=3
 
-**Tom Brady, Once Retired, Will Step Into Fox Broadcast Booth**\
+**Tom Brady Will Step Into Fox Broadcast Booth After He Retires**\
 `Brady has a deal to eventually become the lead analyst during Fox broadcasts of N.F.L. games.`\
 https://nytimes.com/2022/05/10/sports/football/tom-brady-fox-deal.html?searchResultPosition=4
 
