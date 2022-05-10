@@ -1,5 +1,5 @@
 **How big is the Great Pacific Garbage Patch?**\
-`Some 1.8 trillion pieces of plastic are estimated to be floating in the accumulation zone in the middle of the Pacific Ocean.`\
+`Some 1.8 trillion pieces of plastic are estimated to be floating in an accumulation zone in the middle of the Pacific Ocean.`\
 https://nytimes.com/interactive/2022/05/10/science/science-quiz-great-pacific-garbage-patch.html?searchResultPosition=1
 
 **Tom Brady, Once Retired, Will Step Into Fox Broadcast Booth**\
