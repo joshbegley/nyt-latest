@@ -19,7 +19,7 @@ https://nytimes.com/2022/05/10/business/dealbook/peloton-earnings-report.html?se
 https://nytimes.com/2022/05/10/us/politics/emergent-fda-vaccine-covid-contaminated.html?searchResultPosition=5
 
 **Peloton’s profits plunge $757 million, a sign the pandemic bubble has burst.**\
-`By Lauren Hirsch`\
+` `\
 https://nytimes.com/2022/05/10/business/peloton-first-quarter-earnings.html?searchResultPosition=6
 
 **Say Goodbye to the Boring Conference Room**\
