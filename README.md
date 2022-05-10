@@ -19,7 +19,7 @@ https://nytimes.com/2022/05/10/technology/e-commerce-big-tech.html?searchResultP
 https://nytimes.com/interactive/2022/05/10/nyregion/open-streets-nyc-stoops.html?searchResultPosition=5
 
 **Elon Musk says he would ‘reverse the permanent ban’ of Donald Trump on Twitter.**\
-`The former president has said he would not join the platform.`\
+`The former president has said he would not rejoin the platform.`\
 https://nytimes.com/2022/05/10/technology/elon-musk-donald-trump-twitter-ban.html?searchResultPosition=6
 
 **South Korea’s New President Says ‘Door to Dialogue’ Open to the North**\
