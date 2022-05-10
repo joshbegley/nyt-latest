@@ -31,7 +31,7 @@ https://nytimes.com/2022/05/10/business/conference-room-decor-offices-rto.html?s
 https://nytimes.com/2022/05/10/t-magazine/esquina-comun-mexico-city.html?searchResultPosition=8
 
 **Marcos Win Prompts Protests in the Philippines**\
-`Young voters who had rallied around Leni Robredo during the presidential race gathered in Manila to voice their frustration with early election results.`\
+`Young voters who had rallied around Leni Robredo during the presidential race gathered to voice their frustration with preliminary results showing her overwhelming defeat.`\
 https://nytimes.com/2022/05/10/world/asia/philippines-election-protests.html?searchResultPosition=9
 
 **What’s Next After California’s Scathing Police Audit?**\
