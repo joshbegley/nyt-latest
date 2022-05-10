@@ -1,4 +1,4 @@
-**Jimmy Kimmel Finds it ‘Impossible to Believe’ Trump Ordered Protesters Be Shot**\
+**Jimmy Kimmel Finds It ‘Impossible to Believe’ Trump Ordered Protesters Be Shot**\
 `Kimmel weighed in on a former defense secretary’s allegations about the president wanting paratroopers to fire on demonstrators outside the White House.`\
 https://nytimes.com/2022/05/10/arts/television/jimmy-kimmel-donald-trump-protesters.html?searchResultPosition=1
 
