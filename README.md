@@ -6,7 +6,7 @@ https://nytimes.com/2022/05/10/sports/hockey/penguins-rangers-nhl-playoffs.html?
 `Although Russian forces failed to take Kyiv, they have captured large chunks of the south and east, giving Moscow a chance to strangle the country economically.`\
 https://nytimes.com/2022/05/10/world/russian-forces-occupation-ukraine.html?searchResultPosition=2
 
-**Peloton’s Profit Plunges**\
+**A Peloton Plunge**\
 `The fitness company’s first quarterly earnings report under its new chief executive showed losses of $757 million, far more than analysts expected.`\
 https://nytimes.com/2022/05/10/business/dealbook/peloton-earnings-report.html?searchResultPosition=3
 
