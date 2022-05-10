@@ -7,7 +7,7 @@ https://nytimes.com/interactive/2022/05/10/science/science-quiz-great-pacific-ga
 https://nytimes.com/2022/05/10/sports/football/tom-brady-fox-deal.html?searchResultPosition=2
 
 **Netflix Tells Employees Ads May Come by the End of 2022**\
-`Executives said they were aiming to introduce an ad-supported, lower-priced subscription tier in the last three months of the year, quicker than originally indicated.`\
+`Executives said they were aiming to introduce an ad-supported, lower-priced subscription tier in the last three months of the year, sooner than originally indicated.`\
 https://nytimes.com/2022/05/10/business/media/netflix-commercials.html?searchResultPosition=3
 
 **Shanghai’s Cases Fall, but China’s Restrictions Tighten**\
