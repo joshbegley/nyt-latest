@@ -30,7 +30,7 @@ https://nytimes.com/2022/05/09/business/media/steve-schmidt-john-mccain.html?sea
 `President Biden signed the Lend-Lease Act, which will waive time-consuming requirements on the provision of arms to Ukraine.`\
 https://nytimes.com/2022/05/09/us/politics/biden-lend-lease-ukraine-weapons-war.html?searchResultPosition=8
 
-**How Trump Helped Transform Nebraska Into a Toxic Political Hellhole**\
+**How Trump Helped Transform Nebraska Into a Toxic Political Wasteland**\
 `The state has a long tradition of workaday populism and civil bipartisanship, but in just a few years, it has moved swiftly to the right.`\
 https://nytimes.com/2022/05/09/opinion/trump-nebraska-politics.html?searchResultPosition=9
 
