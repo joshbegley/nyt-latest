@@ -4,7 +4,7 @@ https://nytimes.com/2022/05/09/arts/design/warhol-auction-marilyn-monroe.html?se
 
 **When a Warhol for $225 Has More Heft Than One for $195 Million**\
 `More than almost any other single image by the artist, the sage-blue Marilyn has lived out its life in such public glare.`\
-https://nytimes.com/2022/05/09/arts/design/when-a-warhol-for-225-has-more-heft-than-one-for-tk-million.html?searchResultPosition=2
+https://nytimes.com/2022/05/09/arts/design/warhol-marilyn-christies.html?searchResultPosition=2
 
 **Russian Guided Weapons Miss the Mark, U.S. Defense Officials Say**\
 `The lack of warplanes at Russia’s Victory Day parade underscores President Vladimir V. Putin’s failure to build a capable modern air force.`\
