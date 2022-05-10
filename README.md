@@ -20,7 +20,7 @@ https://nytimes.com/2022/05/10/world/europe/french-military-ukraine.html?searchR
 
 **A Covid Vaccine Mandate for New York Schools? Not This Year.**\
 `A bill to add the Covid vaccine to a list of mandated shots for schoolchildren is a hot potato, its sponsor said.`\
-https://nytimes.com/2022/05/10/nyregion/a-covid-vaccine-mandate-for-new-york-schools-not-this-year.html?searchResultPosition=6
+https://nytimes.com/2022/05/10/nyregion/vaccine-mandate-ny-schools-covid.html?searchResultPosition=6
 
 **Melissa Gilbert and Tim Busfield, on Their Upstate Escape**\
 `The ‘Little House on the Prairie’ star, who has a new memoir out, and her husband, the actor and director, collaborated happily on their Sullivan County retreat. Just don’t ask about the pleather recliner.`\
