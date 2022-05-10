@@ -1,6 +1,6 @@
 **Mario Batali Found Not Guilty in Sexual Assault Trial**\
 `The charges stemmed from a woman’s allegation that the celebrity chef groped her in a Boston bar in 2017.`\
-https://nytimes.com/2022/05/10/dining/mario-batali-found-not-guilty-in-sexual-assault-trial.html?searchResultPosition=1
+https://nytimes.com/2022/05/10/dining/mario-batali-not-guilty-sexual-misconduct.html?searchResultPosition=1
 
 **Putin Is Preparing for Prolonged Conflict, Says U.S. Intelligence Chief**\
 `Avril D. Haines, the U.S. director of national intelligence, said that even if Russia was successful in taking the Donbas region of Ukraine, it would not end the war.`\
