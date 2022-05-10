@@ -1,10 +1,10 @@
 **Warhol’s ‘Marilyn’ Sells for $195 Million, Shattering Auction Record for an American Artist**\
-`At Christie’s sale for charity, the glamorous silk-screen beat out Basquiat’s record skull from 2017.`\
+`At Christie’s sale for charity, the glamorous silk-screen beat out Basquiat’s skull painting that set a record in 2017.`\
 https://nytimes.com/2022/05/09/arts/design/warhol-auction-marilyn-monroe.html?searchResultPosition=1
 
-**When a Warhol for $225 Has More Heft Than One for $tk Million**\
+**When a Warhol for $225 Has More Heft Than One for $195 Million**\
 `More than almost any other single image by the artist, the sage-blue Marilyn has lived out its life in such public glare.`\
-https://nytimes.com/2022/05/09/arts/when-a-warhol-for-225-has-more-heft-than-one-for-tk-million.html?searchResultPosition=2
+https://nytimes.com/2022/05/09/arts/design/when-a-warhol-for-225-has-more-heft-than-one-for-tk-million.html?searchResultPosition=2
 
 **Russian Guided Weapons Miss the Mark, U.S. Defense Officials Say**\
 `The lack of warplanes at Russia’s Victory Day parade underscores President Vladimir V. Putin’s failure to build a capable modern air force.`\
