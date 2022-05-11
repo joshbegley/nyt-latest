@@ -1,5 +1,5 @@
 **What’s the Difference Between a Woman and a Sea Turtle? The Senate Wants to Know.**\
-`From the Senate to the sea turtles …  `\
+` Don’t be fooled. The debate over Roe is all about women and sex.`\
 https://nytimes.com/2022/05/11/opinion/roe-v-wade-senate.html?searchResultPosition=1
 
 **Los Angeles Mayor’s Path to U.S. Ambassadorship Is Constricting**\
