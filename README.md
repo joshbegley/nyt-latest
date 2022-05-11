@@ -1,4 +1,4 @@
-**Spinal Fluid from Young Mice Sharpened Memories of Older Rodents**\
+**Spinal Fluid From Young Mice Sharpened Memories of Older Rodents**\
 `Researchers identified a protein in the fluid that could boost the cognition of aging animals — and might lead to future treatments for people.`\
 https://nytimes.com/2022/05/11/science/mice-aging-memory-spinal-fluid.html?searchResultPosition=1
 
