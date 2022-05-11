@@ -23,7 +23,7 @@ https://nytimes.com/2022/05/11/sports/baseball/reid-detmers-no-hitter.html?searc
 https://nytimes.com/2022/05/11/briefing/russia-donbas-fed-inflation.html?searchResultPosition=6
 
 **Police Officer Is Shot in the Bronx**\
-`The New York Police Department said the officer had been shot in the wrist and that a suspect had also been injured.`\
+`The New York Police Department said the officer had been shot in the arm as he and a partner chased a man. They returned fire, striking the suspect in the head, officials said.`\
 https://nytimes.com/2022/05/10/nyregion/nypd-officer-shot-bronx.html?searchResultPosition=7
 
 **‘The Vagrant Trilogy’ Review: Palestinians in Exile, Yearning for Home**\
