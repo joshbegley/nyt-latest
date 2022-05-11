@@ -23,7 +23,7 @@ https://nytimes.com/2022/05/11/briefing/republicans-trump-romney-cheney.html?sea
 https://nytimes.com/2022/05/11/podcasts/the-daily/roe-v-wade-abortion-providers.html?searchResultPosition=6
 
 **4 Takeaways From Tuesday’s Primaries in Nebraska and West Virginia**\
-`A mixed night for Trump-endorsed candidates, with fresh evidence of an urban-rural divide within the G.O.P.`\
+`It was a mixed night for Trump-endorsed candidates, with fresh evidence of an urban-rural divide within the G.O.P.`\
 https://nytimes.com/2022/05/11/us/politics/takeaways-nebraska-west-virginia-primary.html?searchResultPosition=7
 
 **Weekly Accessible Learning Activities: Ballet, Parks, Mental Health Crisis**\
