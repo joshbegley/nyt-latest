@@ -23,7 +23,7 @@ https://nytimes.com/2022/05/11/learning/word-of-the-day-muster.html?searchResult
 https://nytimes.com/2022/05/11/arts/television/james-corden-trump-twitter.html?searchResultPosition=6
 
 **Al Jazeera Journalist Is Killed During Clashes in West Bank**\
-`The circumstances surrounding the fatal shooting of Shireen Abu Akleh, a veteran journalist, are still unclear.`\
+`The circumstances surrounding the fatal shooting of Shireen Abu Akleh, a Palestinian American journalist, were not immediately unclear.`\
 https://nytimes.com/2022/05/11/world/middleeast/al-jazeera-journalist-killed-west-bank.html?searchResultPosition=7
 
 **America and Its Allies Want to Bleed Russia. They Really Shouldn’t.**\
