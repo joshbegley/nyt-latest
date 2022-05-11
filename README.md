@@ -22,19 +22,19 @@ https://nytimes.com/2022/05/11/briefing/republicans-trump-romney-cheney.html?sea
 `People working in abortion clinics describe the likely effects on patients if the constitutional right to a termination is struck down.`\
 https://nytimes.com/2022/05/11/podcasts/the-daily/roe-v-wade-abortion-providers.html?searchResultPosition=6
 
+**4 Takeaways From Tuesday’s Primaries in Nebraska and West Virginia**\
+`A mixed night for Trump-endorsed candidates, with fresh evidence of an urban-rural divide within the G.O.P.`\
+https://nytimes.com/2022/05/11/us/politics/takeaways-nebraska-west-virginia-primary.html?searchResultPosition=7
+
 **Weekly Accessible Learning Activities: Ballet, Parks, Mental Health Crisis**\
 `Each week we spotlight five student activities created for a broad range of learners based on reporting in The New York Times.`\
-https://nytimes.com/2022/05/11/learning/weekly-accessible-learning-activities-ballet-parks-mental-health-crisis.html?searchResultPosition=7
+https://nytimes.com/2022/05/11/learning/weekly-accessible-learning-activities-ballet-parks-mental-health-crisis.html?searchResultPosition=8
 
 **The Man Who Many Democrats Wish Would Not Run**\
 `Representative Tom Suozzi could be re-elected to Congress. But he is running for governor instead.`\
-https://nytimes.com/2022/05/11/nyregion/the-man-who-many-democrats-wish-would-not-run.html?searchResultPosition=8
+https://nytimes.com/2022/05/11/nyregion/the-man-who-many-democrats-wish-would-not-run.html?searchResultPosition=9
 
 **‘Perpetual Violence’: India’s Dangerous New Pattern of Communal Tensions**\
 `As a national campaign by right-wing groups inflames local tensions, Muslim communities are facing the harshest punishments, according to activists, analysts and retired officials.`\
-https://nytimes.com/2022/05/11/world/asia/india-hindu-muslim-violence.html?searchResultPosition=9
-
-**War and Weather Sent Food Prices Soaring. Now, China’s Harvest Is Uncertain.**\
-`Ukraine’s wheat exports have been mostly halted since Russia’s invasion, while drought has damaged crops in India and the United States. China’s upcoming harvest is another concern.`\
-https://nytimes.com/2022/05/11/business/china-wheat-food-prices-inflation.html?searchResultPosition=10
+https://nytimes.com/2022/05/11/world/asia/india-hindu-muslim-violence.html?searchResultPosition=10
 
