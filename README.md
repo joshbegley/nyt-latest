@@ -11,7 +11,7 @@ https://nytimes.com/2022/05/11/world/asia/hong-kong-arrests-national-security.ht
 https://nytimes.com/2022/05/11/opinion/letters/us-teenagers-mental-health.html?searchResultPosition=3
 
 **Lufthansa Apologizes After Jewish People Were Barred From Flight**\
-`Passengers said that after landing in Germany, more than 100 Jewish people were blocked from boarding a connecting flight to Hungary.`\
+`Passengers said that after landing in Germany, more than 100 people were blocked from boarding a connecting flight to Hungary, after a handful of passengers disobeyed a mask requirement.`\
 https://nytimes.com/2022/05/11/world/europe/jewish-passengers-flight-ban-lufthansa.html?searchResultPosition=4
 
 **To Keep Putin and His Oligarchs Afloat, It Takes a System**\
