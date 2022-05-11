@@ -11,7 +11,7 @@ https://nytimes.com/interactive/2022/05/11/magazine/brazilian-butt-lift.html?sea
 https://nytimes.com/2022/05/11/us/politics/florida-congressional-map-desantis.html?searchResultPosition=3
 
 **U.S. lawmakers struggle with how to get a Covid aid package passed over an immigration fight.**\
-`The White House has repeatedly pushed for a $22.5 billion package at home and abroad, warning about the dire consequences of inaction. But a smaller package — whittled down to $10 billion — has been stalled in the Senate.`\
+`The White House has pushed for a $22.5 billion package at home and abroad, warning about the dire consequences of inaction. But a smaller package of $10 billion has been stalled in the Senate.`\
 https://nytimes.com/2022/05/11/us/politics/covid-aid-immigration.html?searchResultPosition=4
 
 **Ron DeSantis Is Being Incoherent on Inflation**\
