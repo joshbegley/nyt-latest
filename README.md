@@ -8,7 +8,7 @@ https://nytimes.com/2022/05/11/us/politics/native-american-children-schools-abus
 
 **New Zealand will fully reopen its borders at the end of July.**\
 `The move comes two months ahead of schedule, in an attempt to speed up economic recovery.`\
-https://nytimes.com/2022/05/11/world/australia/new-zealand-will-fully-reopen-its-borders-at-the-end-of-july.html?searchResultPosition=3
+https://nytimes.com/2022/05/11/world/australia/new-zealand-border-reopen.html?searchResultPosition=3
 
 **Hong Kong Police Arrest Former Bishop in National Security Case**\
 `Cardinal Joseph Zen, 90, was among three held for their work with a legal aid group that helped protesters and that officials accuse of colluding with foreign powers.`\
