@@ -11,7 +11,7 @@ https://nytimes.com/2022/05/11/world/asia/india-hindu-muslim-violence.html?searc
 https://nytimes.com/2022/05/11/business/china-wheat-food-prices-inflation.html?searchResultPosition=3
 
 **Once Best Friends, Bulgaria Takes a Stand Against Russia**\
-`Bulgaria has imposed economic sanctions on Russia, offered to repair broken military equipment for Ukraine, and expelled Russian diplomats.`\
+`Bulgaria has imposed economic sanctions on Russia, offered to repair broken military equipment for Ukraine and expelled Russian diplomats.`\
 https://nytimes.com/2022/05/11/world/europe/bulgaria-russia-ukraine.html?searchResultPosition=4
 
 **Cutchogue, N.Y.: An Appealing Alternative to the Hamptons**\
