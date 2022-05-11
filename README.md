@@ -30,7 +30,7 @@ https://nytimes.com/2022/05/11/technology/ftc-majority-lina-khan.html?searchResu
 `A 21-year-old Russian soldier is accused of following orders to shoot an unarmed cyclist four days into Russia’s invasion of Ukraine.`\
 https://nytimes.com/2022/05/11/world/europe/russia-war-crimes-trial-ukraine.html?searchResultPosition=8
 
-**Disney+ adds more subscribers than expected, weeks after Netflix says its count fell.**\
+**Disney+ adds more subscribers than expected, weeks after Netflix’s count fell.**\
 `New releases like Pixar’s “Turning Red” helped the service surpass analyst estimates for new subscribers globally.`\
 https://nytimes.com/2022/05/11/business/disney-subscribers.html?searchResultPosition=9
 
