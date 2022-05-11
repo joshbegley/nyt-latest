@@ -6,8 +6,8 @@ https://nytimes.com/2022/05/11/world/israeli-palestinian-mass-grave-tantura.html
 `Workers are dumping their stock, companies are cutting costs, and layoffs abound as troubling economic forces hit tech start-ups.`\
 https://nytimes.com/2022/05/11/technology/tech-start-ups.html?searchResultPosition=2
 
-**Manchester City Had the Money. Haaland’s Advisers Had the Plan.**\
-`A carefully crafted strategy for a young striker’s career paid off handsomely. But will everyone get what they want out of the deal?`\
+**Manchester City Had the Money. Haaland’s Team Had the Plan.**\
+`A carefully crafted strategy for a young striker’s career paid off handsomely for him and his agents. But will everyone get what they want out of the deal?`\
 https://nytimes.com/2022/05/11/sports/soccer/erling-haaland-manchester-city.html?searchResultPosition=3
 
 **Spelling Bee Forum**\
