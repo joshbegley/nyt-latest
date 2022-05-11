@@ -11,7 +11,7 @@ https://nytimes.com/video/us/100000008345333/palm-beach-plane-landing.html?searc
 https://nytimes.com/2022/05/11/t-magazine/food/in-the-shadow-of-a-cornish-castle-a-vegetarian-feast-for-beltane.html?searchResultPosition=3
 
 **4 Summer Election Days? New York Faces Chaos in Voting Cycle.**\
-`Representatives Tom Reed and Antonio Delgado have resigned, and New York’s redistricting process is up in the air, muddying the state’s election schedule.`\
+`Representative Tom Reed is resigning, Representative Antonio Delgado is taking a new job, and New York’s redistricting process is up in the air, muddying the election schedule.`\
 https://nytimes.com/2022/05/11/nyregion/tom-reed-special-election-redistricting.html?searchResultPosition=4
 
 **How abortion is already animating the Senate race in Georgia.**\
