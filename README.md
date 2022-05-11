@@ -1,6 +1,6 @@
 **‘The Village House’ Review: A Family and the Walls That Enfold It**\
 `Over two decades, babies are born, elders die, young people move on, but a home remains, even though visitors dwindle.`\
-https://nytimes.com/2022/05/10/movies/the-village-house-review-a-family-and-the-walls-that-enfold-it.html?searchResultPosition=1
+https://nytimes.com/2022/05/10/movies/the-village-house-review.html?searchResultPosition=1
 
 **Quotation of the Day: For Millions of Americans, Boom Times Amid Bad News**\
 `Quotation of the Day for Wednesday, May 11, 2022.`\
