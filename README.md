@@ -8,7 +8,7 @@ https://nytimes.com/2022/05/11/style/festival-devotees-migrate-east.html?searchR
 
 **Moderna Vaccine Provokes Strong Immune Response in Children 6 to 11**\
 `Antibody levels rose in the children who received it, suggesting the vaccine protects against infection. But the data were gathered before the arrival of Omicron.`\
-https://nytimes.com/2022/05/11/health/covid-moderna-vaccine-children.html?searchResultPosition=3
+https://nytimes.com/2022/05/11/health/covid-moderna-vaccine-kids.html?searchResultPosition=3
 
 **John Leo, Columnist Who Took Aim at Liberal Pieties, Dies at 86**\
 `With a deft wit and disarming sense of humor, he used his posts at Time and later U.S. News & World Report to criticize excesses on the left.`\
