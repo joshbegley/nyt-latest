@@ -6,8 +6,8 @@ https://nytimes.com/paidpost/accenture/built-for-change/the-technology-trends-sh
 `New data show a surge in overdose deaths involving fentanyl and methamphetamine; overall, the nation saw a 15 percent increase in deaths from overdoses in 2021.`\
 https://nytimes.com/2022/05/11/us/politics/overdose-deaths-fentanyl-meth.html?searchResultPosition=2
 
-**A Trailblazing Palestinian Journalist Dies, Aged 51**\
-`Shireen Abu Akleh, a Palestinian American reporter who was killed in the West Bank on Wednesday, was a household name across the Middle East.`\
+**Shireen Abu Akleh, Trailblazing Palestinian Journalist, Dies at 51**\
+`Ms. Abu Akleh, a Palestinian American reporter who was killed in the West Bank on Wednesday, was a household name across the Middle East.`\
 https://nytimes.com/2022/05/11/world/middleeast/shireen-abu-akleh-al-jazeera-dead.html?searchResultPosition=3
 
 **The E.U. will no longer recommend that masks be required for air travel.**\
