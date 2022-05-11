@@ -30,7 +30,7 @@ https://nytimes.com/2022/05/11/us/surfside-condo-collapse-settlement-victims.htm
 `“My pilot has gone incoherent, and I have no idea how to fly the airplane,” the passenger of a Cessna told air traffic control Tuesday afternoon.`\
 https://nytimes.com/2022/05/11/us/passenger-lands-plane-palm-beach.html?searchResultPosition=8
 
-**Butt Lifts Are Booming. Recovery Is No Joke.**\
+**Butt Lifts Are Booming. Healing Is No Joke.**\
 `Beauty, pain, race and money play out in Miami’s post-surgical recovery houses.`\
 https://nytimes.com/interactive/2022/05/11/magazine/brazilian-butt-lift.html?searchResultPosition=9
 
