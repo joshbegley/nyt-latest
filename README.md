@@ -34,7 +34,7 @@ https://nytimes.com/2022/05/11/world/europe/eu-masks-air-travel.html?searchResul
 `A conversation about the urge to accumulate treasured items and the stories objects can hold.`\
 https://nytimes.com/2022/05/11/arts/music/popcast-collecting.html?searchResultPosition=9
 
-**Long After They Drove Away, Canada’s Truck Blockades Have a Political Champion**\
+**Long After Blockade, Canada’s Truckers Have a Political Champion**\
 `Prime Minister Justin Trudeau condemned the protest as illegal. Now some of his key opponents are embracing it.`\
 https://nytimes.com/2022/05/11/world/canada/trucker-convoy-protest-conservatives.html?searchResultPosition=10
 
