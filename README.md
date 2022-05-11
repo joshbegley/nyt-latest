@@ -26,7 +26,7 @@ https://nytimes.com/2022/05/11/learning/from-addiction-to-aviation-tobacco-an-un
 `We are honoring the top eight winners of our Student STEM Writing Contest by publishing their essays. This one is by Pyncha Soottreenart.`\
 https://nytimes.com/2022/05/11/learning/from-foe-to-friend-the-mosquitos-painkiller.html?searchResultPosition=7
 
-**Assessing the Claims in the Alito Opinion Overturning Roe**\
+**Assessing the Claims in the Alito Draft Opinion Overturning Roe**\
 `In the leaked draft, Justice Samuel Alito made assertions about fetal development, abortion procedures and international laws that were disputed or omitted context.`\
 https://nytimes.com/2022/05/11/us/politics/alito-opinion-roe-fact-check.html?searchResultPosition=8
 
