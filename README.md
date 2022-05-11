@@ -1,5 +1,5 @@
 **Police Officer Is Shot in the Bronx**\
-`The New York Police Department said it appeared that the officer had been shot in the arm, though the circumstances were not immediately clear.`\
+`The New York Police Department said the officer had been shot in the wrist, though the circumstances were not immediately clear.`\
 https://nytimes.com/2022/05/10/nyregion/nypd-officer-shot-bronx.html?searchResultPosition=1
 
 **‘The Vagrant Trilogy’ Review: Palestinians in Exile, Yearning for Home**\
