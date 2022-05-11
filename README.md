@@ -1,6 +1,6 @@
 **Can Donald Trump Get This 26-Year-Old Elected to Congress?**\
 `Bo Hines, a leading candidate in a Republican House primary next week in North Carolina, has little political experience but holds major campaign advantages, including money and powerful backers.`\
-https://nytimes.com/2022/05/11/us/politics/donald-trump-bo-hines.html?searchResultPosition=1
+https://nytimes.com/2022/05/11/us/politics/trump-bo-hines.html?searchResultPosition=1
 
 **‘Operation Mincemeat’ Review: A Bland Hash**\
 `In this World War II drama from Netflix, a team of spies uses a vagrant’s corpse to outwit the Nazis.`\
