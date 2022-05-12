@@ -22,7 +22,7 @@ https://nytimes.com/2022/05/11/crosswords/daily-puzzle-2022-05-12.html?searchRes
 `A panel from the U.S. Court of Appeals for the Ninth Circuit rejected a judge’s argument that those under 21 were historically “believed unfit” for “responsible firearm possession and use.”`\
 https://nytimes.com/2022/05/11/us/california-semiautomatic-guns-court-ruling.html?searchResultPosition=6
 
-**North Korea reports its first Covid cases.**\
+**North Korea reports its first Covid outbreak.**\
 `The country’s leader, Kim Jong-un, ordered a national lockdown after a subvariant of the Omicron variant of the coronavirus was found in the capital.`\
 https://nytimes.com/2022/05/11/world/asia/north-korea-covid.html?searchResultPosition=7
 
