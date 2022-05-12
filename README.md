@@ -14,7 +14,7 @@ https://nytimes.com/2022/05/12/crosswords/spelling-bee-forum.html?searchResultPo
 `This term has appeared in eight articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2022/05/12/learning/word-of-the-day-caveat-emptor.html?searchResultPosition=4
 
-**Jimmy Kimmel: Today Is ‘A Stupefying Day in the History of This Country’**\
+**Jimmy Kimmel: Today Is ‘a Stupefying Day in the History of This Country’**\
 `“Chuck Schumer said he called for the vote so we would know where Republicans stand. Turns out, they’re standing in the year 1865,” Kimmel said.`\
 https://nytimes.com/2022/05/12/arts/television/jimmy-kimmel-senate-abortion-vote.html?searchResultPosition=5
 
