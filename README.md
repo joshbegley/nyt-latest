@@ -1,6 +1,6 @@
 **M.L.B. Signs Deal With Operator of NFT Fantasy Game**\
 `In the game by Sorare, a start-up valued at $4.3 billion, players can collect tokens that represent pro athletes. The league and Sorare will share revenue from the sale of the tokens.`\
-https://nytimes.com/2022/05/12/sports/mlb-signs-deal-with-operator-of-nft-fantasy-game.html?searchResultPosition=1
+https://nytimes.com/2022/05/12/sports/mlb-sorare-nft.html?searchResultPosition=1
 
 **Biden’s Covid summit aims to bolster the pandemic fight, even as Congress blocks adding U.S. funds.**\
 `By Sheryl Gay Stolberg`\
