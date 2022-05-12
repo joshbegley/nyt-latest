@@ -3,8 +3,8 @@
 https://nytimes.com/2022/05/12/sports/mlb-sorare-nft.html?searchResultPosition=1
 
 **Biden’s Covid summit aims to bolster the pandemic fight, even as Congress blocks adding U.S. funds.**\
-`By Sheryl Gay Stolberg`\
-https://nytimes.com/2022/05/12/us/politics/bidens-covid-summit-aims-to-bolster-the-pandemic-fight-even-as-congress-blocks-adding-us-funds.html?searchResultPosition=2
+`The meeting is meant to reinvigorate the crisis response as vaccination and testing rates lag and many countries try to put the pandemic behind them.`\
+https://nytimes.com/2022/05/12/us/politics/biden-covid-summit.html?searchResultPosition=2
 
 **‘Sneakerella’ Review: Beauty and the Hypebeast**\
 `This musical remake follows an orphaned boy in Queens as he falls head over sneaker heels for the daughter of a Manhattan footwear magnate.`\
