@@ -1,40 +1,40 @@
-**An Arts Festival With Hardly a Stage in Sight**\
-`Performance venues at this year’s Kunstenfestivaldesarts, in Brussels, include a disused museum and the upper house of Belgium’s Parliament.`\
-https://nytimes.com/2022/05/12/theater/kunstenfestivaldesarts-brussels.html?searchResultPosition=1
+**A Writer Returns to the Grand Canyon, This Time With His Mother’s Ashes**\
+`Thomas Page McBee first visited the national park as a child on a family vacation. Thirty-three years later — and 11 after starting testosterone — he finally reckons with his parent’s death.`\
+https://nytimes.com/2022/05/12/t-magazine/grand-canyon-travel-arizona.html?searchResultPosition=1
 
-**SoftBank’s Funds Post $27 Billion Loss on Plunging Tech Investments**\
-`The Japanese conglomerate’s fortunes have sharply reversed from a record-setting result a year ago.`\
-https://nytimes.com/2022/05/12/business/softbank-earnings-report-loss.html?searchResultPosition=2
+**Returning to Istanbul, a Place of Competing Identities**\
+`When Aatish Taseer first traveled to the Turkish city, he was closeted and just beginning his writing career. This time, he explores revolutions personal and political.`\
+https://nytimes.com/2022/05/12/t-magazine/istanbul-travel-turkey.html?searchResultPosition=2
 
-**Martha Wainwright Tells a Few Stories She Might Regret**\
-`With a new memoir, the singer-songwriter from a famous musical family says she is happy to be “letting go of this story of being No. 4 on the totem pole.”`\
-https://nytimes.com/2022/05/12/style/martha-wainwright-memoir.html?searchResultPosition=3
+**On Switzerland’s Mount Pilatus, a Writer Remembers**\
+`Maaza Mengiste’s childhood trip to the mountain didn’t go well. Upon returning decades later, she gains a new understanding of her mother’s life — and her own.`\
+https://nytimes.com/2022/05/12/t-magazine/mount-pilatus-switzerland-travel.html?searchResultPosition=3
 
-**Major Donation to U.K. Conservative Party Was Flagged Over Russia Concerns**\
-`The cash was part of a fund-raising blitz that helped propel Prime Minister Boris Johnson’s party to victory in 2019. Records track $630,225 to a Russian bank account.`\
-https://nytimes.com/2022/05/12/world/europe/russian-money-uk-tories.html?searchResultPosition=4
+**Richie Rich, the ’90s Club Kid, Goes Virtual for Beauty**\
+`His new site, Btykwn, bills itself as a beauty lab for makeup fanatics.`\
+https://nytimes.com/2022/05/12/style/richie-rich.html?searchResultPosition=4
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/05/12/crosswords/spelling-bee-forum.html?searchResultPosition=5
+**How Two Middle School ‘Desperadoes’ Ended Up in a Police Shootout**\
+`A 14-year-old girl and a 12-year-old boy took up weapons after a torturous journey through Florida’s juvenile mental health system.`\
+https://nytimes.com/2022/05/12/us/middle-school-shootout-police.html?searchResultPosition=5
 
-**Word of the Day: caveat emptor**\
-`This term has appeared in eight articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/05/12/learning/word-of-the-day-caveat-emptor.html?searchResultPosition=6
+**Outside the Walls of a Salvadoran Prison, ‘We’re All Crying Mothers’**\
+`Dozens of women wait outside a detention facility for news of their loved ones after a crackdown on gang violence resulted in the imprisonment of more than 25,000 people.`\
+https://nytimes.com/2022/05/12/world/americas/el-salvador-prison-gangs-bukele.html?searchResultPosition=6
 
-**Jimmy Kimmel: Today Is ‘a Stupefying Day in the History of This Country’**\
-`“Chuck Schumer said he called for the vote so we would know where Republicans stand. Turns out, they’re standing in the year 1865,” Kimmel said.`\
-https://nytimes.com/2022/05/12/arts/television/jimmy-kimmel-senate-abortion-vote.html?searchResultPosition=7
+**How Preservationists Are Losing the Fight Against Luxury Real Estate**\
+`A squabble over a new development in rural New York reveals a shifting of priorities among local leaders.`\
+https://nytimes.com/2022/05/12/nyregion/historic-preservation-committees-ny.html?searchResultPosition=7
 
-**Pot Sellers Ponder Going Legal**\
-`Becoming a taxpaying, regulated business has its downsides for marijuana wholesalers that have operated illegally until now.`\
-https://nytimes.com/2022/05/12/nyregion/pot-sellers-ponder-going-legal.html?searchResultPosition=8
+**In Rome, New Food and Old Sites Beckon**\
+`The Eternal City continues to live up to its name, thanks to some long-awaited reopenings and a crop of new restaurants and cultural spots all over town.`\
+https://nytimes.com/2022/05/12/travel/things-to-do-rome-italy.html?searchResultPosition=8
 
-**Your Thursday Briefing**\
-`Forecasts for the war in Ukraine.`\
-https://nytimes.com/2022/05/12/briefing/economic-war-ukraine-bulgaria-israel.html?searchResultPosition=9
+**A Union Blitzed Starbucks. At Amazon, It’s a Slog.**\
+`Why has the union campaign spread so much further at the coffee chain than at the e-commerce giant?`\
+https://nytimes.com/2022/05/12/business/economy/amazon-starbucks-union.html?searchResultPosition=9
 
-**Has the Milky Way’s Black Hole Come to Light?**\
-`The Event Horizon Telescope reaches again for a glimpse of the “unseeable.”`\
-https://nytimes.com/2022/05/12/science/black-hole-photo.html?searchResultPosition=10
+**Mary Barra’s ‘Long Game’: Winning the E.V. Race**\
+`The General Motors chief says efficiencies, innovations and learning from mistakes will allow her company to become a leader in electric vehicles.`\
+https://nytimes.com/2022/05/12/business/general-motors-mary-barra-electric-cars.html?searchResultPosition=10
 
