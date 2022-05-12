@@ -8,7 +8,7 @@ https://nytimes.com/2022/05/12/movies/joanna-barnes-dead.html?searchResultPositi
 
 **The Looming End to Abortion Rights Gives Liberal Democrats a Spark**\
 `The progressive wing of the Democratic Party appeared to be flagging until a draft Supreme Court decision overturning Roe v. Wade leaked — and shook the political world.`\
-https://nytimes.com/2022/05/12/us/politics/abortion-democrats.html?searchResultPosition=3
+https://nytimes.com/2022/05/12/us/politics/abortion-rights-liberal-democrats.html?searchResultPosition=3
 
 **Your Friday Briefing: The Fateful Bullet**\
 `Israeli and Palestinian authorities are divided over how to investigate the killing of the Al Jazeera journalist in the West Bank.`\
