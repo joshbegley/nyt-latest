@@ -8,7 +8,7 @@ https://nytimes.com/2022/05/12/business/nelson-partners-skyloft-student-housing.
 
 **Biden Administration Cancels Drilling Sales in Alaska and Gulf of Mexico**\
 `Republicans link the move to rising gas prices while the administration said it was a result of conflicting legal opinions and a lack of interest among bidders.`\
-https://nytimes.com/2022/05/12/climate/biden-oil-drilling-leases.html?searchResultPosition=3
+https://nytimes.com/2022/05/12/climate/biden-oil-gas-lease-sales.html?searchResultPosition=3
 
 **A Singular American Painter and His Perennially Disregarded Wife**\
 `Shows in Hartford and New York spotlight great works by Milton Avery from every decade, and those of Sally Michel, who helped shape her husband’s art.`\
