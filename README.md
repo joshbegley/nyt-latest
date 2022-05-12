@@ -7,7 +7,7 @@ https://nytimes.com/article/nfl-regular-season-schedule.html?searchResultPositio
 https://nytimes.com/2022/05/12/opinion/identity-politics-taiwo.html?searchResultPosition=2
 
 **Naomi Judd Died of a Self-Inflicted Gunshot Wound, Her Daughter Says**\
-`Her daughter Ashley Judd, the actress, said in a television interview on Thursday that her mother was suffering from mental illness when she died last month.`\
+`The actress Ashley Judd said in a television interview on Thursday that her mother was suffering from mental illness when she died last month.`\
 https://nytimes.com/2022/05/12/arts/music/naomi-judd-death-mental-illness.html?searchResultPosition=3
 
 **Is Jake Paul Really an Answer for Women’s Boxing?**\
