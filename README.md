@@ -1,5 +1,5 @@
 **The Surprise Winner of the Kentucky Derby Will Skip the Preakness**\
-`Rich Strike’s owner said he decided not to push the horse to run only two weeks after it came out of nowhere to win the Derby.`\
+`Rich Strike’s owner said he had decided not to push the horse to run only two weeks after it came out of nowhere to win the Derby.`\
 https://nytimes.com/2022/05/12/sports/horse-racing/rich-strike-preaknesss.html?searchResultPosition=1
 
 **Understand the U.S. Baby Formula Shortage**\
