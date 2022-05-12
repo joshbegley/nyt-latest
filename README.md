@@ -2,7 +2,7 @@
 `Will Smith slapped Chris Rock onstage at the Oscars. Dave Chappelle was tackled at the Hollywood Bowl. Now some venues are increasing security to protect comedians.`\
 https://nytimes.com/2022/05/12/arts/comedians-safety-dave-chappelle-chris-rock.html?searchResultPosition=1
 
-**F.D.A. Authorizes a Type of Underwear to Protect Against Infection During Oral Sex**\
+**F.D.A. Authorizes Underwear to Protect Against S.T.I.s During Oral Sex**\
 `It’s the first time underwear has been authorized for this purpose, and it provides a new choice for protection where the few options have been unpopular.`\
 https://nytimes.com/2022/05/12/health/fda-underwear-sti.html?searchResultPosition=2
 
