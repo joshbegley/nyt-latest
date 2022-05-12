@@ -26,7 +26,7 @@ https://nytimes.com/2022/05/12/t-magazine/barcelona-hotel-elizaveta-porodina.htm
 `Pittsburgh leads the series 3-2, but their best player could be sidelined for Game 6 after a questionable hit by New York defenseman Jacob Trouba.`\
 https://nytimes.com/2022/05/12/sports/hockey/penguins-rangers-crosby-trouba.html?searchResultPosition=7
 
-**One Cryptocurrency’s ‘Death Spiral’**\
+**A Stablecoin ‘Death Spiral’**\
 `Some crypto insiders say they saw the implosion of TerraUSD coming. Other stablecoins could also run into trouble.`\
 https://nytimes.com/2022/05/12/business/dealbook/terra-crypto-stablecoin.html?searchResultPosition=8
 
