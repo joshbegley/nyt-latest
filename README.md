@@ -1,6 +1,6 @@
 **Appeals Court Revives Texas Law Targeting Social Media Companies**\
 `The law, prompted by complaints from conservatives, allows people to sue large online platforms that remove posts expressing a particular viewpoint.`\
-https://nytimes.com/2022/05/12/technology/texas-law-social-media.html?searchResultPosition=1
+https://nytimes.com/2022/05/12/technology/texas-social-media-law-political-speech.html?searchResultPosition=1
 
 **What Students Are Saying About Teen Mental Health, Moderating Speech and Special Talents**\
 `Teenage comments in response to our recent writing prompts, and an invitation to join the ongoing conversation.`\
