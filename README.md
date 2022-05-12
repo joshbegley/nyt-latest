@@ -12,7 +12,7 @@ https://nytimes.com/interactive/2022/05/12/well/family/baby-formula-shortage.htm
 
 **Jan. 6 Panel Subpoenas 5 Republican Representatives**\
 `The leaders of the House committee investigating the Capitol attack said they were demanding documents and testimony from Kevin McCarthy of California and four of his colleagues.`\
-https://nytimes.com/2022/05/12/us/house-subpoenas-jan-6.html?searchResultPosition=4
+https://nytimes.com/2022/05/12/us/politics/house-subpoenas-jan-6.html?searchResultPosition=4
 
 **Italy’s Eurovision Entry Signals the Country’s Changes**\
 `The love song, and its video showing the artist Mahmood embracing another man, has been well received in a nation with a spotty history on L.G.B.T.Q. rights.`\
