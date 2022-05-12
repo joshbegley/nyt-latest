@@ -1,6 +1,6 @@
 **Cryptocurrencies Melt Down in a ‘Perfect Storm’ of Fear and Panic**\
 `A steep sell-off that gained momentum this week starkly illustrated the risks of the experimental and unregulated digital currencies.`\
-https://nytimes.com/2022/05/12/technology/cryptocurrencies-melt-down-in-a-perfect-storm-of-fear-and-panic.html?searchResultPosition=1
+https://nytimes.com/2022/05/12/technology/cryptocurrencies-crash-bitcoin.html?searchResultPosition=1
 
 **Harris Emerges as the Voice of Abortion Rights in the Biden Administration**\
 `The threat to Roe v. Wade presents Vice President Kamala Harris with an opportunity to recover from early political stumbles.`\
