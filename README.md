@@ -24,7 +24,7 @@ https://nytimes.com/2022/05/12/movies/jonathan-agassi-saved-my-life-review.html?
 
 **‘Foxhole’ Review: A History of Violence**\
 `This small-scale dramatic military anthology tells a familiar story of the endless cycle of war.`\
-https://nytimes.com/2022/05/12/movies/foxhole-review-a-history-of-violence.html?searchResultPosition=7
+https://nytimes.com/2022/05/12/movies/foxhole-review.html?searchResultPosition=7
 
 **U.S. Picked as Host of Rugby World Cup**\
 `Eager to establish a foothold in a coveted market, world rugby officials awarded the 2031 men’s World Cup and 2033 women’s championship to the United States.`\
