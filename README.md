@@ -30,7 +30,7 @@ https://nytimes.com/2022/05/12/us/politics/conor-lamb-pennsylvania-congress.html
 `In a partnership with the Studio Museum in Harlem and the Public Art Fund, works by Nina Chanel Abney and Jacolby Satterwhite will help reintroduce Geffen Hall this fall.`\
 https://nytimes.com/2022/05/12/arts/design/lincoln-center-studio-museum-public-art-fund.html?searchResultPosition=8
 
-**What You Need to Understand About Ron DeSantis**\
+**Republicans Need a New Leader. They’re Looking to Florida.**\
 `The Florida governor is using state power to fight the culture war.`\
 https://nytimes.com/2022/05/12/opinion/ron-desantis-conservatism.html?searchResultPosition=9
 
