@@ -1,6 +1,6 @@
 **Vocabulary in Context: The Kentucky Derby**\
 `Test your vocabulary and reading comprehension with this quiz based on the Times article "A Knave Competed in the Sport of Kings, and Instantly Became One."`\
-https://nytimes.com/interactive/2022/05/12/learning/12KentuckyDerbyVocabQuizLN.html?searchResultPosition=1
+https://nytimes.com/interactive/2022/05/12/learning/kentucky-derby-vocab.html?searchResultPosition=1
 
 **Why a Podcast Host Deleted His Own Interview With a Gay Couple**\
 `The segment, aired in Indonesia, enraged religious leaders and prompted a backlash that highlights the limits of tolerance for gay people in the Muslim-majority nation.`\
