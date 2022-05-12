@@ -27,7 +27,7 @@ https://nytimes.com/slideshow/2022/05/12/realestate/homes-for-sale-in-new-york-c
 https://nytimes.com/2022/05/12/t-magazine/barcelona-hotel-elizaveta-porodina.html?searchResultPosition=7
 
 **Rangers Knock Sidney Crosby Out of the Game, Then Come Back to Win**\
-`Pittsburgh leads the series 3-2, but their best player could be sidelined for Game 6 after a questionable hit by New York defenseman Jacob Trouba.`\
+`Pittsburgh leads the series, 3-2, but its best player could be sidelined for Game 6 after a questionable hit by New York defenseman Jacob Trouba.`\
 https://nytimes.com/2022/05/12/sports/hockey/penguins-rangers-crosby-trouba.html?searchResultPosition=8
 
 **A Stablecoin ‘Death Spiral’**\
