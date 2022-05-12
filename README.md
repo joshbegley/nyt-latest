@@ -4,7 +4,7 @@ https://nytimes.com/2022/05/12/world/europe/downing-street-covid-lockdown.html?s
 
 **Wall Street’s slide continues, with the S&P 500 edging closer to bear market territory.**\
 `Wall Street’s sell-off was triggered by concerns about rising inflation and interest rates. But it has taken on a life of its own.`\
-https://nytimes.com/2022/05/12/business/stock-market-today-bear.html?searchResultPosition=2
+https://nytimes.com/2022/05/12/business/stocks-bear-market.html?searchResultPosition=2
 
 **‘Kamikaze Hearts’ Review: Truth or Fiction**\
 `Juliet Bashore’s porn-world quasi documentary is a delirious and distressing portrait of two women’s tempestuous relationship.`\
