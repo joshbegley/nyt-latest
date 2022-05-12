@@ -7,7 +7,7 @@ https://nytimes.com/2022/05/12/us/politics/fbi-pegasus-spyware-israel.html?searc
 https://nytimes.com/2022/05/12/world/europe/boris-johnson-response-sheleg-donation.html?searchResultPosition=2
 
 **Massachusetts to Pay $56 Million After Deadly Covid Outbreak at Veterans’ Home**\
-`At least 76 veterans died after the outbreak at the state-run Holyoke Soldiers’ Home in March 2020. Massachusetts will pay their families a minimum of $400,000 each under the settlement.`\
+`At least 84 veterans died after the outbreak at the state-run Holyoke Soldiers’ Home in March 2020. Massachusetts will pay their families a minimum of $400,000 each under the settlement.`\
 https://nytimes.com/2022/05/12/us/massachusetts-nursing-home-vets-covid.html?searchResultPosition=3
 
 **N.F.L. Releasing 2022 Regular-Season Schedule Thursday in Prime Time**\
