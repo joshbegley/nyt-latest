@@ -11,8 +11,8 @@ https://nytimes.com/2022/05/12/briefing/inflation-america-rising-prices.html?sea
 https://nytimes.com/2022/05/12/podcasts/the-daily/rising-inflation-calculator.html?searchResultPosition=3
 
 **Biden to order federal flags to fly at half-staff as the U.S. Covid toll nears one million.**\
-`“We must remain vigilant against this pandemic and do everything we can to save as many lives as possible, as we have with more testing, vaccines, and treatments than ever before,” the president said.`\
-https://nytimes.com/2022/05/12/world/biden-covid-deaths-flags-half-staff.html?searchResultPosition=4
+`The president says in a formal statement that the United States must ‘remain vigilant’ against a virus that has ‘forever changed’ the country.`\
+https://nytimes.com/2022/05/12/us/biden-covid-deaths-flags-half-staff.html?searchResultPosition=4
 
 **What Our Writers Read, Watched and Listened to Before Their Big Trips**\
 `For T Magazine’s summer Travel issue, three writers returned to places they’d once been years after their first visits. Here’s how they prepared.`\
