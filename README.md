@@ -3,8 +3,8 @@
 https://nytimes.com/2022/05/12/nyregion/adams-dyslexia-nyc-schools.html?searchResultPosition=1
 
 **Two Twitter leaders are leaving after Musk’s deal to buy the company.**\
-`By Mike Isaac`\
-https://nytimes.com/2022/05/12/technology/two-twitter-leaders-are-leaving-after-musks-deal-to-buy-the-company.html?searchResultPosition=2
+`An internal memo shared with employees said that the platform’s general manager and general manager for revenue would be departing.`\
+https://nytimes.com/2022/05/12/technology/twitter-elon-musk.html?searchResultPosition=2
 
 **Prosecutors Pursue Inquiry Into Trump’s Handling of Classified Material**\
 `A federal grand jury has issued at least one subpoena, and investigators are seeking interviews in the case of sensitive documents that ended up at the former president’s Florida home.`\
