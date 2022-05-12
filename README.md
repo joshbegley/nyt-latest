@@ -1,4 +1,4 @@
-**Thailand Will Distribute 1 Million Weed Plants**\
+**Thailand Will Give Away 1 Million Weed Plants**\
 `The Southeast Asian country will soon allow residents to grow cannabis for medicinal use. Smoking pot recreationally still carries harsh penalties.`\
 https://nytimes.com/2022/05/12/world/asia/thailand-legal-weed-plant.html?searchResultPosition=1
 
