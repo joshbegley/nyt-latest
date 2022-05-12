@@ -11,7 +11,7 @@ https://nytimes.com/2022/05/12/sports/horse-racing/rich-strike-preaknesss.html?s
 https://nytimes.com/interactive/2022/05/12/well/family/baby-formula-shortage.html?searchResultPosition=3
 
 **Jan. 6 Panel Subpoenas 5 Republican Representatives**\
-`The leaders of the House panel investigating the Capitol attack said they were demanding documents and testimony from Kevin McCarthy of California and four of his colleagues.`\
+`The leaders of the House committee investigating the Capitol attack said they were demanding documents and testimony from Kevin McCarthy of California and four of his colleagues.`\
 https://nytimes.com/2022/05/12/us/house-subpoenas-jan-6.html?searchResultPosition=4
 
 **Italy’s Eurovision Entry Signals the Country’s Changes**\
