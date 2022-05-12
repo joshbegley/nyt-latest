@@ -11,7 +11,7 @@ https://nytimes.com/2022/05/12/world/europe/rand-paul-ukraine-aid.html?searchRes
 https://nytimes.com/2022/05/12/us/politics/nato-finland-sweden-ukraine.html?searchResultPosition=3
 
 **11 Die After Boat Capsizes Near Puerto Rico, U.S. Says**\
-`More than 30 were rescued in the waters north of Desecheo, Puerto Rico, the Coast Guard said.`\
+`More than 30 were rescued in the waters north of Desecheo Island, Puerto Rico, the Coast Guard said.`\
 https://nytimes.com/2022/05/12/us/boat-capsize-puerto-rico.html?searchResultPosition=4
 
 **Cryptocurrencies Melt Down in a ‘Perfect Storm’ of Fear and Panic**\
