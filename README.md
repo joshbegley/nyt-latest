@@ -4,7 +4,7 @@ https://nytimes.com/2022/05/12/technology/texas-law-social-media.html?searchResu
 
 **What Students Are Saying About Teen Mental Health, Moderating Speech and Special Talents**\
 `Teenage comments in response to our recent writing prompts, and an invitation to join the ongoing conversation.`\
-https://nytimes.com/2022/05/12/learning/what-students-are-saying-about-teen-mental-health-moderating-speech-and-special-talents.html?searchResultPosition=2
+https://nytimes.com/2022/05/12/learning/students-mental-health-moderating-speech.html?searchResultPosition=2
 
 **F.B.I. Told Israel It Wanted Pegasus Hacking Tool for Investigations**\
 `A 2018 letter from the bureau to the Israeli government is the clearest documentary evidence to date that the agency weighed using the spyware for law enforcement operations.`\
