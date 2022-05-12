@@ -14,7 +14,7 @@ https://nytimes.com/2022/05/11/us/politics/john-eastman-trump-2020-election.html
 `A new venture, Bloomberg UK, is the first inkling of a new international strategy for the business news giant.`\
 https://nytimes.com/2022/05/11/business/media/bloomberg-aims-to-compete-directly-with-british-press.html?searchResultPosition=4
 
-**Newsom Urges Companies to Flee Republican States for California**\
+**Newsom Offers Tax Breaks for Companies in Anti-Abortion States**\
 `Gov. Gavin Newsom’s plan to attract Texas and Florida businesses punctuates the battle between liberal and conservative states after a leaked Supreme Court draft opinion.`\
 https://nytimes.com/2022/05/11/us/newsom-california-tax-breaks.html?searchResultPosition=5
 
