@@ -12,7 +12,7 @@ https://nytimes.com/2022/05/12/business/pentagon-civilian-deaths-pulitzer.html?s
 
 **Finland Moves to Join NATO, Upending Putin’s Ukraine War Aims**\
 `Neutral Finland’s leaders unequivocally said they intended to seek membership in the alliance, with Sweden expected to do the same, inviting new threats from Moscow.`\
-https://nytimes.com/2022/05/12/world/europe/ukraine-russia-finland-sweden-nato.html?searchResultPosition=4
+https://nytimes.com/2022/05/12/world/europe/finland-sweden-nato-russia-war.html?searchResultPosition=4
 
 **Bullet Is Focus of Dueling Investigations in Journalist’s Killing**\
 `The Palestinian Authority said it would not let Israeli officials examine the bullet that killed Shireen Abu Akleh. Israel said that is the only way to determine who fired it.`\
