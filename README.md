@@ -31,7 +31,7 @@ https://nytimes.com/2022/05/12/us/massachusetts-nursing-home-vets-covid.html?sea
 https://nytimes.com/article/nfl-regular-season-schedule.html?searchResultPosition=8
 
 **Whatever Happened to Identity Politics?**\
-`A conversation with the philosopher Olúfẹ́mi O. Táíwò about how “elite capture” has changed the conversation about social justice`\
+`A conversation with the philosopher Olúfẹ́mi O. Táíwò about how “elite capture” has changed the conversation about social justice.`\
 https://nytimes.com/2022/05/12/opinion/identity-politics-taiwo.html?searchResultPosition=9
 
 **Newly public data show few Black economists at the Fed.**\
