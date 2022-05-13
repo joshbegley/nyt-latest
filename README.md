@@ -6,7 +6,7 @@ https://nytimes.com/2022/05/13/podcasts/abortion-roe-gloria-steinem.html?searchR
 `Leni Robredo, the Philippines’ outgoing vice president, urged her supporters to accept the results of the presidential election and to keep fighting disinformation.`\
 https://nytimes.com/video/world/asia/100000008348666/robredo-philippines-presidential-election.html?searchResultPosition=2
 
-**Courage Seemed to be Dead. Then Came Zelensky.**\
+**Courage Seemed to Be Dead. Then Came Zelensky.**\
 `Can economics make sense of heroism?`\
 https://nytimes.com/2022/05/13/opinion/courage-heroism-economics.html?searchResultPosition=3
 
