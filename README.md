@@ -7,7 +7,7 @@ https://nytimes.com/interactive/2022/05/13/arts/francis-hines-found-art.html?sea
 https://nytimes.com/video/world/europe/100000008348095/russian-court-brittney-griner-pretrial-detention.html?searchResultPosition=2
 
 **Top Texas Court Allows Abuse Inquiries of Parents of Transgender Children**\
-`State officials can resume child abuse investigations of parents who provide certain medical treatments to transgender youths, but not against a family that had filed suit.`\
+`But the court said Gov. Greg Abbott did not have the authority to order such investigations, acknowledging they could cause “irreparable harm.”`\
 https://nytimes.com/2022/05/13/us/texas-supreme-court-abuse-transgender-children.html?searchResultPosition=3
 
 **Robredo Admits Defeat in Philippine Presidential Election**\
