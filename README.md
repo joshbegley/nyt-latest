@@ -34,7 +34,7 @@ https://nytimes.com/2022/05/13/style/pooja-chatterjee-sandeep-kumar-wedding.html
 `When Vera Golosker and Mark Gilfix met in 2013, they had two dates before she lost interest. When they reconnected years later, he had just fought cancer — and she was about to.`\
 https://nytimes.com/2022/05/13/style/vera-golosker-mark-gilfix-wedding.html?searchResultPosition=9
 
-**Looking for Companionship, He Found His ‘Princess Bride’**\
-`Maya Shwayder and Nicholas Quaranto met in Berlin and kept up a long-distance friendship that grew into something more.`\
-https://nytimes.com/2022/05/13/style/maya-shwayder-nicholas-quaranto-wedding.html?searchResultPosition=10
+**An Article Reported in Ink**\
+`Familiarity with tattooing’s subculture helped a reporter approach a story.`\
+https://nytimes.com/2022/05/13/nyregion/an-article-reported-in-ink.html?searchResultPosition=10
 
