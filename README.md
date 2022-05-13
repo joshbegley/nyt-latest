@@ -1,40 +1,40 @@
-**Your Friday Briefing**\
-`Finland moves to join NATO.`\
-https://nytimes.com/2022/05/12/briefing/ukraine-finland-nato-crypto.html?searchResultPosition=1
+**Kendrick Lamar Returns With ‘Mr. Morale & the Big Steppers’**\
+`Since his 2017 album, “DAMN.,” the California rapper has won seven Grammys and the Pulitzer Prize for music. “Mr. Morale,” his fifth LP, is expected to make a big splash on the charts.`\
+https://nytimes.com/2022/05/13/arts/music/kendrick-lamar-new-album-mr-morale-and-the-big-steppers.html?searchResultPosition=1
 
-**Mets Bully Their Way Past Nationals for Another Series Win**\
-`A base running gaffe led to a hard tag and some hurt feelings but the Mets won again.`\
-https://nytimes.com/2022/05/12/sports/baseball/mets-yankees.html?searchResultPosition=2
+**Slow to Take Off, After a First Date They Cruised**\
+`Jacob Esocoff and Sascha Feldman met in a college seminar. More than six years later, he finally worked up the nerve to ask her out.`\
+https://nytimes.com/2022/05/13/style/sascha-feldman-jacob-esocoff-wedding.html?searchResultPosition=2
 
-**Rafael Nadal Falls Apart on Clay, Just in Time for the French Open**\
-`Nadal, playing in pain in a loss to Denis Shapovalov at the Italian Open, came away downbeat and pensive with the year’s second Grand Slam event less than two weeks away.`\
-https://nytimes.com/2022/05/12/sports/tennis/nadal-italian-open-shapovalov.html?searchResultPosition=3
+**I Bet You Think These Songs Are About You**\
+`Millie’s Spotify playlists were dropping hints. Weren’t they?`\
+https://nytimes.com/2022/05/13/style/modern-love-spotify-playlist-bet-you-think-songs-are-about-you.html?searchResultPosition=3
 
-**Dinosaur Skeleton Sells for $12.4 Million at Christie’s**\
-`The remains of a Deinonychus antirrhopus, the beast that inspired the velociraptor in “Jurassic Park,” are believed to be the first of their kind sold at a public auction.`\
-https://nytimes.com/2022/05/12/arts/design/velociraptor-auction-jurassic-park.html?searchResultPosition=4
+**Two Self-Described Nerds Walk Into a Club …**\
+`Frankie Grande and Hale Leon share a love of dancing, “Star Wars” and … potatoes.`\
+https://nytimes.com/2022/05/13/style/frankie-grande-hale-leon-wedding.html?searchResultPosition=4
 
-**Variety: Cryptic Crossword**\
-`Doug Peterson takes a spin on the cryptic red carpet.`\
-https://nytimes.com/2022/05/12/crosswords/variety-cryptic-crossword.html?searchResultPosition=5
+**Breaking the Ice on a Cold First Date**\
+`After their first meetup in January 2019, Pooja Chatterjee and Sandeep Kumar knew that they wanted to pursue a relationship.`\
+https://nytimes.com/2022/05/13/style/pooja-chatterjee-sandeep-kumar-wedding.html?searchResultPosition=5
 
-**Talk Nonsense**\
-`Brooke Husic and Nam Jin Yoon deliver an excellent Friday puzzle. Pay no attention to the yelling.`\
-https://nytimes.com/2022/05/12/crosswords/daily-puzzle-2022-05-13.html?searchResultPosition=6
+**For a Romance in Revival, Dual Diagnoses Were a Common Bond**\
+`When Vera Golosker and Mark Gilfix met in 2013, they had two dates before she lost interest. When they reconnected years later, he had just fought cancer — and she was about to.`\
+https://nytimes.com/2022/05/13/style/vera-golosker-mark-gilfix-wedding.html?searchResultPosition=6
 
-**Ernie Barnes’s ‘Sugar Shack’ Painting Brings Big Price at Auction**\
-`An iconic image sells for $15.3 million at Christie’s, sailing past a Cézanne.`\
-https://nytimes.com/2022/05/12/arts/design/ernie-barnes-sugar-shack-monet-leutze.html?searchResultPosition=7
+**Looking for Companionship, He Found His ‘Princess Bride’**\
+`Maya Shwayder and Nicholas Quaranto met in Berlin and kept up a long-distance friendship that grew into something more.`\
+https://nytimes.com/2022/05/13/style/maya-shwayder-nicholas-quaranto-wedding.html?searchResultPosition=7
 
-**After Tense Debate, Louisiana Scraps Plan to Classify Abortion as Homicide**\
-`The legislation had divided abortion opponents, many of whom objected to the idea of prosecuting women who end a pregnancy.`\
-https://nytimes.com/2022/05/12/us/louisiana-abortion-bill.html?searchResultPosition=8
+**So Captivated by Each Other, They Closed Down the Bar**\
+`Ryan Smith and Scott Woods each knew they had found someone special when a planned quick drink turned into a four-and-a-half-hour first date.`\
+https://nytimes.com/2022/05/13/style/ryan-smith-scott-woods-wedding.html?searchResultPosition=8
 
-**North Korea Says 6 Dead as Covid-19 Spreads ‘Explosively’**\
-`The country’s leader, Kim Jong-un, said 187,800 people were in quarantine, and state TV showed him wearing a mask for the first time.`\
-https://nytimes.com/2022/05/12/world/asia/north-korea-covid-deaths.html?searchResultPosition=9
+**An Article Reported in Ink**\
+`Familiarity with tattooing’s subculture helped a reporter approach a story.`\
+https://nytimes.com/2022/05/13/nyregion/an-article-reported-in-ink.html?searchResultPosition=9
 
-**What Your Dog Wants**\
-`Dogs are “really good at reading our emotions,” says one expert. But we’re not so good at reading theirs.`\
-https://nytimes.com/2022/05/12/well/dog-behavior.html?searchResultPosition=10
+**At Coachella, Connecting on a Deeper Level**\
+`Dr. Vivian Yee and Joshua Ma, who met at their friends’ wedding in 2017, furthered their relationship at the music and arts festival the following year.`\
+https://nytimes.com/2022/05/13/style/vivian-yee-joshua-ma-wedding.html?searchResultPosition=10
 
