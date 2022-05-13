@@ -11,7 +11,7 @@ https://nytimes.com/2022/05/13/arts/music/ukraine-classical-music.html?searchRes
 https://nytimes.com/2022/05/13/business/dealbook/elon-musk-twitter.html?searchResultPosition=3
 
 **Israeli Police Beat Mourners at Palestinian Journalist’s Funeral**\
-`Video showed Israeli police officers attacking the crowd at the funeral of Shireen Abu Akleh, a prominent Palestinian American journalist for Al Jazeera who was killed this week while reporting in the West Bank.`\
+`Video showed Israeli police officers attacking mourners at the funeral of Shireen Abu Akleh, a Palestinian American journalist for Al Jazeera who was killed this week in the West Bank.`\
 https://nytimes.com/video/world/middleeast/100000008347871/israel-funeral-shireen-abu-akleh.html?searchResultPosition=4
 
 **A Post-Apocalyptic Royal Rave**\
