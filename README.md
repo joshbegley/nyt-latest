@@ -10,8 +10,8 @@ https://nytimes.com/2022/05/13/learning/word-of-the-day-foment.html?searchResult
 `Quotation of the Day for Friday, May 13, 2022.`\
 https://nytimes.com/2022/05/13/todayspaper/quotation-of-the-day-first-visual-journey-to-the-center-of-our-galaxy.html?searchResultPosition=3
 
-**Texas Deploys Dogs and Copters in Hunt for Convicted Murderer Who Escaped Bus**\
-`The police said that Gonzalo Artemio Lopez had fled into a cow pasture after stabbing the driver and forcing the bus off a highway.`\
+**Texas Hunts for Convicted Murderer Who Escaped From Prison Bus**\
+`Gonzalo Artemio Lopez fled into a pasture after stabbing the driver and forcing the bus off a highway, the authorities said. He had been imprisoned for killing a man with a pickax.`\
 https://nytimes.com/2022/05/13/us/texas-prisoner-bus-escape.html?searchResultPosition=4
 
 **Corrections: May 13, 2022**\
