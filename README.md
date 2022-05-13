@@ -1,40 +1,40 @@
-**Indiana Fourth Congressional District Primary Election Results**\
-`See full results and maps from the Indiana primary elections.`\
-https://nytimes.com/interactive/2022/05/03/us/elections/results-indiana-us-house-district-4.html?searchResultPosition=1
+**Texas Eighth Congressional District Primary Election Results**\
+`See full results and maps from the Texas primary elections.`\
+https://nytimes.com/interactive/2022/03/01/us/elections/results-texas-us-house-district-8.html?searchResultPosition=1
 
-**Indiana Third Congressional District Primary Election Results**\
-`See full results and maps from the Indiana primary elections.`\
-https://nytimes.com/interactive/2022/05/03/us/elections/results-indiana-us-house-district-3.html?searchResultPosition=2
+**Texas 36th Congressional District Primary Election Results**\
+`See full results and maps from the Texas primary elections.`\
+https://nytimes.com/interactive/2022/03/01/us/elections/results-texas-us-house-district-36.html?searchResultPosition=2
 
-**Ohio Attorney General Primary Election Results**\
-`See full results and maps from the Ohio primary elections.`\
-https://nytimes.com/interactive/2022/05/03/us/elections/results-ohio-attorney-general.html?searchResultPosition=3
+**Texas 14th Congressional District Primary Election Results**\
+`See full results and maps from the Texas primary elections.`\
+https://nytimes.com/interactive/2022/03/01/us/elections/results-texas-us-house-district-14.html?searchResultPosition=3
 
-**Indiana First Congressional District Primary Election Results**\
-`See full results and maps from the Indiana primary elections.`\
-https://nytimes.com/interactive/2022/05/03/us/elections/results-indiana-us-house-district-1.html?searchResultPosition=4
+**Texas 34th Congressional District Primary Election Results**\
+`See full results and maps from the Texas primary elections.`\
+https://nytimes.com/interactive/2022/03/01/us/elections/results-texas-us-house-district-34.html?searchResultPosition=4
 
-**Ohio 14th Congressional District Primary Election Results**\
-`See full results and maps from the Ohio primary elections.`\
-https://nytimes.com/interactive/2022/05/03/us/elections/results-ohio-us-house-district-14.html?searchResultPosition=5
+**Texas 13th Congressional District Primary Election Results**\
+`See full results and maps from the Texas primary elections.`\
+https://nytimes.com/interactive/2022/03/01/us/elections/results-texas-us-house-district-13.html?searchResultPosition=5
 
-**Ohio U.S. Senate Primary Election Results**\
-`See full results and maps from the Ohio primary elections.`\
-https://nytimes.com/interactive/2022/05/03/us/elections/results-ohio-us-senate.html?searchResultPosition=6
+**Texas Seventh Congressional District Primary Election Results**\
+`See full results and maps from the Texas primary elections.`\
+https://nytimes.com/interactive/2022/03/01/us/elections/results-texas-us-house-district-7.html?searchResultPosition=6
 
-**Ohio 15th Congressional District Primary Election Results**\
-`See full results and maps from the Ohio primary elections.`\
-https://nytimes.com/interactive/2022/05/03/us/elections/results-ohio-us-house-district-15.html?searchResultPosition=7
+**Texas Railroad Commissioner Primary Election Results**\
+`See full results and maps from the Texas primary elections.`\
+https://nytimes.com/interactive/2022/03/01/us/elections/results-texas-railroad-commissioner.html?searchResultPosition=7
 
-**Ohio 13th Congressional District Primary Election Results**\
-`See full results and maps from the Ohio primary elections.`\
-https://nytimes.com/interactive/2022/05/03/us/elections/results-ohio-us-house-district-13.html?searchResultPosition=8
+**Texas Ninth Congressional District Primary Election Results**\
+`See full results and maps from the Texas primary elections.`\
+https://nytimes.com/interactive/2022/03/01/us/elections/results-texas-us-house-district-9.html?searchResultPosition=8
 
-**Ohio Ninth Congressional District Primary Election Results**\
-`See full results and maps from the Ohio primary elections.`\
-https://nytimes.com/interactive/2022/05/03/us/elections/results-ohio-us-house-district-9.html?searchResultPosition=9
+**Texas Third Congressional District Primary Election Results**\
+`See full results and maps from the Texas primary elections.`\
+https://nytimes.com/interactive/2022/03/01/us/elections/results-texas-us-house-district-3.html?searchResultPosition=9
 
-**Ohio Governor Primary Election Results**\
-`See full results and maps from the Ohio primary elections.`\
-https://nytimes.com/interactive/2022/05/03/us/elections/results-ohio-governor.html?searchResultPosition=10
+**Texas 22nd Congressional District Primary Election Results**\
+`See full results and maps from the Texas primary elections.`\
+https://nytimes.com/interactive/2022/03/01/us/elections/results-texas-us-house-district-22.html?searchResultPosition=10
 
