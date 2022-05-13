@@ -14,7 +14,7 @@ https://nytimes.com/2022/05/13/us/title-42-border-migrant-expulsions.html?search
 `A reader, leaving New York for Los Angeles, seeks advice on dressing for a new scene.`\
 https://nytimes.com/2022/05/13/fashion/moving-wardrobe-makeover.html?searchResultPosition=4
 
-**Haboob? Derecho? By Any Name, Plains Dust Storm Was Strong**\
+**Haboob? Derecho? By Any Name, Plains Dust Storm Was Strong.**\
 `A wall of dust kicked up by wind gusts closed roads in Nebraska, and the unusual storm system brought damaging winds to Iowa, the Dakotas and Minnesota.`\
 https://nytimes.com/2022/05/13/us/haboob-dust-storm-upper-plains.html?searchResultPosition=5
 
