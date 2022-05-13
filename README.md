@@ -1,5 +1,5 @@
 **Subpoenas for Republicans Raise New Questions for Jan. 6 Panel**\
-`The subpoenas for five G.O.P. members of Congress, including the minority leader, sent a shock wave through a divided Capitol and left lawmakers wondering what’s next.`\
+`The subpoenas for five G.O.P. members of Congress, including the House minority leader, sent a shock wave through a divided Capitol and left lawmakers wondering what’s next.`\
 https://nytimes.com/2022/05/13/us/subpoenas-republicans-jan-6.html?searchResultPosition=1
 
 **Your Friday Evening Briefing**\
