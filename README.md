@@ -20,7 +20,7 @@ https://nytimes.com/2022/05/13/sports/baseball/julio-rodriguez-stolen-bases.html
 
 **Sheikh Khalifa, U.A.E. Ruler, Is Dead at 73**\
 `Sheikh Khalifa bin Zayed Al Nahyan was a key figure in his country’s history and one of the world’s richest monarchs. But he had a stroke in 2014 and had stepped back from many public duties.`\
-https://nytimes.com/2022/05/13/obituaries/sheikh-khalifa-uae-ruler-is-dead-at-73.html?searchResultPosition=6
+https://nytimes.com/2022/05/13/world/middleeast/sheikh-khalifa-uae-ruler-is-dead-at-73.html?searchResultPosition=6
 
 **The Tick That Causes a Meat Allergy Is on the Move**\
 `The lone star tick can trigger an allergic reaction to red meat in those bitten. Now this arachnid’s territory is expanding.`\
