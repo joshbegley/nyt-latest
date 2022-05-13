@@ -18,7 +18,7 @@ https://nytimes.com/2022/05/12/arts/design/ernie-barnes-sugar-shack-monet-leutze
 `The legislation had divided abortion opponents, many of whom objected to the idea of prosecuting women who end a pregnancy.`\
 https://nytimes.com/2022/05/12/us/louisiana-abortion-bill.html?searchResultPosition=5
 
-**North Korea Says 6 Dead as Covid-19 Spreads at an ‘Explosive’ Rate**\
+**North Korea Says 6 Dead as Covid-19 Spreads ‘Explosively’**\
 `The country’s leader, Kim Jong-un, said 187,800 people were in quarantine, and state TV showed him wearing a mask for the first time.`\
 https://nytimes.com/2022/05/12/world/asia/north-korea-covid-deaths.html?searchResultPosition=6
 
