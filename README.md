@@ -4,7 +4,7 @@ https://nytimes.com/2022/05/13/us/hiking-mount-whitney.html?searchResultPosition
 
 **The World’s a Mess. So They’ve Stopped Saving for Tomorrow.**\
 `Many adults under 35 are throwing financial caution to the wind. It’s all about saving less, spending more and pursuing passions.`\
-https://nytimes.com/2022/05/13/style/the-worlds-a-mess-so-theyve-stopped-saving-for-tomorrow.html?searchResultPosition=2
+https://nytimes.com/2022/05/13/style/saving-less-money.html?searchResultPosition=2
 
 **Michael Che Is Still Trying to Crack the Code**\
 `As he readies a new season of his HBO Max series, “That Damn Michael Che,” the Weekend Update anchor contemplates his future at “Saturday Night Live.”`\
