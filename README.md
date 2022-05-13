@@ -1,4 +1,4 @@
-**Ernie Barnes’s ‘Shake Shack’ Painting Brings Big Price at Auction**\
+**Ernie Barnes’s ‘Sugar Shack’ Painting Brings Big Price at Auction**\
 `An iconic image sells for $15.3 million at Christie’s, sailing past a Cézanne.`\
 https://nytimes.com/2022/05/12/arts/design/ernie-barnes-shake-shack-monet-leutze.html?searchResultPosition=1
 
