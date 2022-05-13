@@ -1,40 +1,40 @@
+**Invitation to DeSantis Creates Clash at a Jewish Museum**\
+`The Florida governor, who signed the law that opponents call “Don’t Say Gay,” was to speak at a conservative event at the Museum of Jewish Heritage.`\
+https://nytimes.com/2022/05/13/nyregion/invitation-to-desantis-creates-clash-at-a-jewish-museum.html?searchResultPosition=1
+
 **The World Tries to Move Beyond Covid. China May Stand in the Way.**\
 `Xi Jinping has redoubled his country’s efforts to control the virus, even as a growing number of leaders call on Beijing to change course.`\
-https://nytimes.com/2022/05/13/business/china-zero-covid-xi.html?searchResultPosition=1
+https://nytimes.com/2022/05/13/business/china-zero-covid-xi.html?searchResultPosition=2
 
 **After 200 Years of Neutrality, Sweden Weighs Joining NATO**\
 `Russia’s invasion of Ukraine created new fears, and the Swedes, dragged along by Finland, are expected to apply, reluctantly, to join the alliance and its collective defense.`\
-https://nytimes.com/2022/05/13/world/europe/sweden-finland-nato-putin.html?searchResultPosition=2
+https://nytimes.com/2022/05/13/world/europe/sweden-finland-nato-putin.html?searchResultPosition=3
 
 **A Rabbi’s Contentious Quest for Religious Pluralism in Israel**\
 `There is more than one way to be Jewish, says Gilad Kariv, the first Reform rabbi in Israel’s Parliament. The idea poses a challenge to the country’s Orthodox establishment.`\
-https://nytimes.com/2022/05/13/world/middleeast/israel-judaism-referom-orthodox.html?searchResultPosition=3
+https://nytimes.com/2022/05/13/world/middleeast/israel-judaism-referom-orthodox.html?searchResultPosition=4
 
 **Fighting Forgetting, With a Venice Biennale Win**\
 `Sonia Boyce triumphed with a work about the erasure of Black women artists. She greets the trophy with a mix of gratitude and circumspection.`\
-https://nytimes.com/2022/05/13/arts/design/sonia-boyce-venice-biennale.html?searchResultPosition=4
+https://nytimes.com/2022/05/13/arts/design/sonia-boyce-venice-biennale.html?searchResultPosition=5
 
 **How Overturning Roe Could Backfire for Republicans**\
 `The party was making headway with suburban women on crime, schools and inflation. Now the abortion debate is front and center.`\
-https://nytimes.com/2022/05/13/us/roe-overturned-women-republican-voters.html?searchResultPosition=5
+https://nytimes.com/2022/05/13/us/roe-overturned-women-republican-voters.html?searchResultPosition=6
 
 **How Jane Lynch, Actress, Spends Her Sundays**\
 `What gets the comedic performer through her Broadway shows? Chocolate and peanut butter, for one thing.`\
-https://nytimes.com/2022/05/13/nyregion/jane-lynch.html?searchResultPosition=6
+https://nytimes.com/2022/05/13/nyregion/jane-lynch.html?searchResultPosition=7
 
 **A Guide to Eurovision 2022**\
 `The international song contest takes place in Italy this year. Here’s how the war in Ukraine has affected the competition and what to expect from this edition.`\
-https://nytimes.com/2022/05/13/arts/music/a-guide-to-eurovision-2022.html?searchResultPosition=7
+https://nytimes.com/2022/05/13/arts/music/a-guide-to-eurovision-2022.html?searchResultPosition=8
 
 **Partying With Diplo at Formula 1’s Miami Grand Prix**\
 `The D.J. ran into Michelle Obama at the race, hopped from party to party and played a set that ended at 3 a.m.`\
-https://nytimes.com/2022/05/13/style/diplo-f1-miami-grand-prix.html?searchResultPosition=8
+https://nytimes.com/2022/05/13/style/diplo-f1-miami-grand-prix.html?searchResultPosition=9
 
 **South Korea Turns to Surveillance as ‘Ghost Surgeries’ Shake Faith in Hospitals**\
 `After scandals in which doctors let unsupervised assistants operate on patients, the country is becoming one of the first to require cameras in operating rooms.`\
-https://nytimes.com/2022/05/13/world/asia/south-korea-cameras-ghost-surgery.html?searchResultPosition=9
-
-**In Pennsylvania, a Hard-Right Candidate’s Star Rises**\
-`Trump says she can’t win in November, but Kathy Barnette presses toward Tuesday’s voting. “They’re coming out with long knives at this point,” she said.`\
-https://nytimes.com/2022/05/13/us/elections/kathy-barnette-pennsylvania-senate.html?searchResultPosition=10
+https://nytimes.com/2022/05/13/world/asia/south-korea-cameras-ghost-surgery.html?searchResultPosition=10
 
