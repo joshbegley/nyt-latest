@@ -1,6 +1,6 @@
 **West Ups Pressure on Putin, Including Sanctions on Reputed Girlfriend**\
 `The Russian leader was challenged by the prospect of an enlarged NATO, plans to get Ukrainian grain exports past a Kremlin blockade, and sanctions on his purported mistress.`\
-https://nytimes.com/2022/05/13/world/europe/ukraine-west-pressure-putin-sanctions-girlfriend.html?searchResultPosition=1
+https://nytimes.com/2022/05/13/world/europe/putin-sanctions-girlfriend-us-russia.html?searchResultPosition=1
 
 **Fox News Hosts Splinter as Chaotic Pennsylvania Primaries Heat Up**\
 `The rise of Kathy Barnette in the state’s G.O.P. Senate race has divided the network’s stars, with some backing her and others going on the attack to help a rival, Dr. Mehmet Oz.`\
