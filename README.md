@@ -26,15 +26,15 @@ https://nytimes.com/2022/05/13/us/politics/josh-shapiro-mastriano-ad.html?search
 `Stacy McAnulty’s “Save the People!” employs humor to call middle grade readers to action.`\
 https://nytimes.com/2022/05/13/books/review/save-the-people-halting-human-extinction-stacy-mcanulty.html?searchResultPosition=7
 
-**Israeli Police Attack Funeral of Slain Palestinian Journalist**\
-`Video showed police officers in Jerusalem beating and kicking mourners next to the coffin of Shireen Abu Akleh, an Al Jazeera reporter who was killed on Wednesday, forcing one to the ground.`\
-https://nytimes.com/live/2022/05/13/world/shireen-abu-akleh-funeral-israel/israel-funeral-shireen-abu-akleh?searchResultPosition=8
-
 **David Levithan’s New Middle Grade Novel Tackles Book Banning**\
 `In “Answers in the Pages,” a fifth-grade boy and his classmates speak up against parents’ efforts to censor their curriculum.`\
-https://nytimes.com/2022/05/13/books/review/david-levithan-answers-in-the-pages.html?searchResultPosition=9
+https://nytimes.com/2022/05/13/books/review/david-levithan-answers-in-the-pages.html?searchResultPosition=8
 
 **Transcript: Ezra Klein Interviews Patrick Deneen**\
 `A conversation with the political theorist Patrick Deneen.`\
-https://nytimes.com/2022/05/13/podcasts/transcript-ezra-klein-interviews-patrick-deneen.html?searchResultPosition=10
+https://nytimes.com/2022/05/13/podcasts/transcript-ezra-klein-interviews-patrick-deneen.html?searchResultPosition=9
+
+**In ‘Conversations With Friends,’ It’s Complicated**\
+`The adaptation of Sally Rooney’s novel explores a complex web of relationships. Figuring out how to bring them to life was just as knotty.`\
+https://nytimes.com/2022/05/13/arts/television/conversations-withfriends-hulu-bbc.html?searchResultPosition=10
 
