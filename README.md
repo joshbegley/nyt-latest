@@ -1,6 +1,6 @@
 **Dinosaur Skeleton Sells for $12.4 Million at Christie’s**\
 `The remains of a Deinonychus antirrhopus, the beast that inspired the velociraptor in “Jurassic Park,” are believed to be the first of their kind sold at a public auction.`\
-https://nytimes.com/2022/05/12/arts/design/dinosaur-skeleton-sale-christies.html?searchResultPosition=1
+https://nytimes.com/2022/05/12/arts/design/velociraptor-auction-jurassic-park.html?searchResultPosition=1
 
 **Variety: Cryptic Crossword**\
 `Doug Peterson takes a spin on the cryptic red carpet.`\
