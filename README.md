@@ -1,40 +1,40 @@
+**Your Friday Evening Briefing**\
+`Here’s what you need to know at the end of the day.`\
+https://nytimes.com/2022/05/13/briefing/putin-jerusalem-composting.html?searchResultPosition=1
+
 **Republicans Wrongly Tie Biden Immigration Policies to Baby Formula Shortage**\
 `A lawsuit settlement requires the federal government to provide water and food, including formula, to detained migrant children.`\
-https://nytimes.com/2022/05/13/us/politics/baby-formula-shortage-biden-immigration.html?searchResultPosition=1
+https://nytimes.com/2022/05/13/us/politics/baby-formula-shortage-biden-immigration.html?searchResultPosition=2
 
 **House Plans Vote to Ease Formula Crisis as Biden Pledges Quick Action**\
 `Speaker Nancy Pelosi said the House would move to provide regulatory relief and funds to bolster the infant formula supply, as the president said his team was acting within “weeks or less.”`\
-https://nytimes.com/2022/05/13/us/politics/baby-formula-shortage-biden.html?searchResultPosition=2
+https://nytimes.com/2022/05/13/us/politics/baby-formula-shortage-biden.html?searchResultPosition=3
 
 **The Phoenix Suns Weren’t Supposed to Get Pushed to Game 7**\
 `The Suns have been off their game against Dallas. (So. Many. Turnovers.) But the Mavericks are flawed, too. They have one last game to get it together.`\
-https://nytimes.com/2022/05/13/sports/basketball/phoenix-suns-dallas-mavericks-game-7.html?searchResultPosition=3
+https://nytimes.com/2022/05/13/sports/basketball/phoenix-suns-dallas-mavericks-game-7.html?searchResultPosition=4
 
 **Putin’s Private Life**\
 `Sanctions are lifting the veil of secrecy surrounding the Russian leader’s family.`\
-https://nytimes.com/2022/05/13/briefing/russia-ukraine-war-putin-grain.html?searchResultPosition=4
+https://nytimes.com/2022/05/13/briefing/russia-ukraine-war-putin-grain.html?searchResultPosition=5
 
 **Bianca Andreescu’s Extended Break from Tennis Has Served Her Well**\
 `Despite losing to Iga Swiatek, the top women’s player, at the Italian Open, Andreescu is heading to the French Open in a healthier place, mentally and physically.`\
-https://nytimes.com/2022/05/13/sports/tennis/bianca-andreescu-italian-open.html?searchResultPosition=5
+https://nytimes.com/2022/05/13/sports/tennis/bianca-andreescu-italian-open.html?searchResultPosition=6
 
 **For Many Pennsylvania Voters, Trumpism Is Bigger Than Trump**\
 `Interviews show Dr. Mehmet Oz struggling in the G.O.P. Senate primary, despite a Trump endorsement. Voters remain devoted to Donald Trump but seem less swayed by his guidance.`\
-https://nytimes.com/2022/05/13/us/politics/pennsylvania-gop-primary-voters.html?searchResultPosition=6
+https://nytimes.com/2022/05/13/us/politics/pennsylvania-gop-primary-voters.html?searchResultPosition=7
 
 **The Hazards of Prescribing A.D.H.D. Drugs Online**\
 `Buzzy start-ups promising easy access to mental health medication found an eager market on social media. Should anyone be looking for treatment on TikTok, though?`\
-https://nytimes.com/2022/05/13/well/mind/cerebral-adhd-medication-tiktok.html?searchResultPosition=7
+https://nytimes.com/2022/05/13/well/mind/cerebral-adhd-medication-tiktok.html?searchResultPosition=8
 
 **Val Broeksmit, Who Blew the Whistle on Deutsche Bank, Dies at 46**\
 `An itinerant musician, he leaked secret files to F.B.I. investigators looking at the bank’s ties to money laundering, the Trump Organization and Russia.`\
-https://nytimes.com/2022/05/13/us/val-broeksmit-dead.html?searchResultPosition=8
+https://nytimes.com/2022/05/13/us/val-broeksmit-dead.html?searchResultPosition=9
 
 **Treasury Warns Foreign Banks Against Helping Russia Evade Sanctions**\
 `Adewale Adeyemo, the deputy Treasury secretary, met privately with international financial institutions to make clear the consequences of sanctions evasion.`\
-https://nytimes.com/2022/05/13/us/politics/russia-sanctions-evasion-treasury.html?searchResultPosition=9
-
-**More Than 20 States Press Judge to Continue Migrant Expulsions**\
-`A federal judge promised to rule by May 23 on the public health measure, known as Title 42, that has barred migrants from requesting asylum.`\
-https://nytimes.com/2022/05/13/us/title-42-border-migrant-expulsions.html?searchResultPosition=10
+https://nytimes.com/2022/05/13/us/politics/russia-sanctions-evasion-treasury.html?searchResultPosition=10
 
