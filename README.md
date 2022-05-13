@@ -1,5 +1,5 @@
 **North Korea Says 6 Dead as Covid-19 Spreads at an ‘Explosive’ Rate**\
-`A day after the country reported its first coronavirus outbreak, its leader reported the fatalities and said 187,800 people were in quarantine.`\
+`The country’s leader, Kim Jong-un, said 187,800 people were in quarantine, and state TV showed him wearing a mask for the first time.`\
 https://nytimes.com/2022/05/12/world/asia/north-korea-covid-deaths.html?searchResultPosition=1
 
 **What Your Dog Wants**\
