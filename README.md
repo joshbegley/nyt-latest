@@ -11,7 +11,7 @@ https://nytimes.com/2022/05/12/well/dog-behavior.html?searchResultPosition=2
 https://nytimes.com/2022/05/12/world/europe/rand-paul-ukraine-aid.html?searchResultPosition=3
 
 **U.S. Embraces Finland’s Move Toward NATO Membership. What About Ukraine?**\
-`Ukraine has been considered too long on corruption and too short on democratic institutions to make membership likely for years, if not decades, to come.`\
+`Ukraine has been considered too full of corruption and too devoid of democratic institutions to make membership likely for years, if not decades, to come.`\
 https://nytimes.com/2022/05/12/us/politics/nato-finland-sweden-ukraine.html?searchResultPosition=4
 
 **11 Die After Boat Capsizes Near Puerto Rico, U.S. Says**\
