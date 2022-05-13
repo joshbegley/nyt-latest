@@ -16,7 +16,7 @@ https://nytimes.com/2022/05/13/podcasts/pussy-riot-soulcycle-phalloplasty-narrat
 
 **Invitation to DeSantis Creates Clash at a Jewish Museum**\
 `The Florida governor, who signed the law that opponents call “Don’t Say Gay,” was to speak at a conservative event at the Museum of Jewish Heritage.`\
-https://nytimes.com/2022/05/13/nyregion/invitation-to-desantis-creates-clash-at-a-jewish-museum.html?searchResultPosition=5
+https://nytimes.com/2022/05/13/nyregion/desantis-jewish-museum.html?searchResultPosition=5
 
 **The World Tries to Move Beyond Covid. China May Stand in the Way.**\
 `Xi Jinping has redoubled his country’s efforts to control the virus, even as a growing number of leaders call on Beijing to change course.`\
