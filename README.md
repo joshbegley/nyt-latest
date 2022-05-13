@@ -28,7 +28,7 @@ https://nytimes.com/2022/05/13/books/review/save-the-people-halting-human-extinc
 
 **Israeli Police Attack Funeral of Slain Palestinian Journalist**\
 `Video showed police officers in Jerusalem beating and kicking mourners next to the coffin of Shireen Abu Akleh, an Al Jazeera reporter who was killed on Wednesday, forcing one to the ground.`\
-https://nytimes.com/2022/05/13/world/middleeast/israel-funeral-shireen-abu-akleh.html?searchResultPosition=8
+https://nytimes.com/live/2022/05/13/world/shireen-abu-akleh-funeral-israel/israel-funeral-shireen-abu-akleh?searchResultPosition=8
 
 **David Levithan’s New Middle Grade Novel Tackles Book Banning**\
 `In “Answers in the Pages,” a fifth-grade boy and his classmates speak up against parents’ efforts to censor their curriculum.`\
