@@ -4,7 +4,7 @@ https://nytimes.com/2022/05/13/briefing/russia-ukraine-war-putin-grain.html?sear
 
 **Bianca Andreescu’s Extended Break from Tennis Has Served Her Well**\
 `Despite losing to Iga Swiatek, the top women’s player, at the Italian Open, Andreescu is heading to the French Open in a healthier place, mentally and physically.`\
-https://nytimes.com/2022/05/13/sports/tennis/bianca-andreescu.html?searchResultPosition=2
+https://nytimes.com/2022/05/13/sports/tennis/bianca-andreescu-italian-open.html?searchResultPosition=2
 
 **For Many Pennsylvania Voters, Trumpism Is Bigger Than Trump**\
 `Interviews show Dr. Mehmet Oz struggling in the G.O.P. Senate primary, despite a Trump endorsement. Voters remain devoted to Donald Trump but seem less swayed by his guidance.`\
