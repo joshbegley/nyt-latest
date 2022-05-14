@@ -18,8 +18,8 @@ https://nytimes.com/2022/05/14/opinion/protest-supreme-court-roe.html?searchResu
 `No fatalities were reported in the shooting on Friday night, which happened blocks from the arena where an N.B.A. playoff game ended hours earlier.`\
 https://nytimes.com/2022/05/14/us/milwaukee-shooting-deer-district.html?searchResultPosition=5
 
-**Student Debt Is Crushing. Canceling It Is Still Bad Policy.**\
-`Canceling student debt won’t fix what’s wrong with higher education.`\
+**Student Debt Is Crushing. Canceling It for Everyone Is Still a Bad Idea.**\
+`Debt forgiveness won’t fix what’s wrong with higher education.`\
 https://nytimes.com/2022/05/14/opinion/student-debt-cancel.html?searchResultPosition=6
 
 **The Rich Are Not Who We Think They Are. And Happiness Is Not What We Think It Is, Either.**\
