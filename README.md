@@ -3,7 +3,7 @@
 https://nytimes.com/2022/05/14/arts/britney-spears-miscarriage.html?searchResultPosition=1
 
 **Ukraine wins the Eurovision Song Contest.**\
-`The country’s entry, the folk rap band Kalush Orchestra, triumphed with points from the popular vote.`\
+`The country’s entry, the folk rap band Kalush Orchestra, triumphed thanks to the popular vote.`\
 https://nytimes.com/2022/05/14/arts/ukraine-wins-eurovision.html?searchResultPosition=2
 
 **The gunman broadcast the attack on a livestreaming site.**\
