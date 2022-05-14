@@ -7,7 +7,7 @@ https://nytimes.com/2022/05/14/arts/music/lil-keed-dead.html?searchResultPositio
 https://nytimes.com/2022/05/14/arts/music/minority-languages-song-contest.html?searchResultPosition=2
 
 **For Putin, a Nordic Nightmare Is Springing to Life**\
-`With Finland and Sweden likely to request NATO membership this weekend, and Ukraine counterattacking in the east, Russia’s invasion of Ukraine is facing more setbacks.`\
+`With Finland and Sweden likely to request NATO membership, and Ukraine counterattacking in the east, Russia’s invasion of Ukraine is facing more setbacks.`\
 https://nytimes.com/2022/05/14/world/europe/ukraine-putin-nato.html?searchResultPosition=3
 
 **Who Has the Right to Speak to the Supreme Court?**\
@@ -22,8 +22,8 @@ https://nytimes.com/2022/05/14/us/milwaukee-shooting-deer-district.html?searchRe
 `Canceling student debt won’t fix what’s wrong with higher education.`\
 https://nytimes.com/2022/05/14/opinion/student-debt-cancel.html?searchResultPosition=6
 
-**The Rich Are Not Who We Think They Are**\
-`And happiness isn’t what we think it is, either.`\
+**The Rich Are Not Who We Think They Are. And Happiness Is Not What We Think It Is, Either.**\
+`There is still a lot we can learn from big data.`\
 https://nytimes.com/2022/05/14/opinion/sunday/rich-happiness-big-data.html?searchResultPosition=7
 
 **Quit Telling Me to Conquer My Fear**\
