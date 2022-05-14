@@ -28,7 +28,7 @@ https://nytimes.com/video/world/asia/100000008349883/india-new-delhi-fire.html?s
 
 **Ukraine’s Eurovision entry: All you need to know.**\
 `By Alex Marshall`\
-https://nytimes.com/2022/05/14/arts/music/kalush-orchestra-eurovision-ukraine.html?searchResultPosition=8
+https://nytimes.com/live/2022/05/14/arts/eurovision-final/kalush-orchestra-eurovision-ukraine?searchResultPosition=8
 
 **How to Grill the Perfect Steak**\
 `Reverse-seared tri-tip may be the tastiest dish you grill all summer. Steven Raichlen guides you through the process.`\
