@@ -4,7 +4,7 @@ https://nytimes.com/2022/05/14/crosswords/daily-puzzle-2022-05-15.html?searchRes
 
 **Watch Live: Officials Provide Update on Buffalo Supermarket Shooting**\
 `The police provide an update after a gunman opened fire at a grocery store in Buffalo.`\
-https://nytimes.com/video/us/100000008350021/buffalo-shooting-press-conference.html?searchResultPosition=2
+https://nytimes.com/video/embedded/us/100000008350021/buffalo-shooting-press-conference.html?searchResultPosition=2
 
 **Turkey Offers to Evacuate Mariupol Fighters Despite Disagreements**\
 `Turkey has had a ship waiting for weeks in Istanbul to evacuate those remaining in the Azovstal steel plant, but Ukraine and Russia have not agreed to a plan, a Turkish official said.`\
