@@ -1,5 +1,5 @@
-**Trust at the Supreme Court Is ‘Gone Forever,’ Says Justice Thomas**\
-`Justice Clarence Thomas described the leak of a draft opinion, which would overturn Roe v. Wade, as “kind of an infidelity” that has destroyed trust among the members of the Supreme Court.`\
+**Trust at the Supreme Court Is ‘Gone Forever,’ Justice Thomas Says**\
+`Justice Clarence Thomas described the leak of a draft opinion overturning Roe v. Wade as “kind of an infidelity” that has destroyed trust among the members of the Supreme Court.`\
 https://nytimes.com/video/us/politics/100000008349836/clarence-thomas-supreme-court-abortion.html?searchResultPosition=1
 
 **Lil Keed, Up-and-Coming Atlanta Rapper, Dies at 24**\
