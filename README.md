@@ -6,8 +6,8 @@ https://nytimes.com/2022/05/14/arts/britney-spears-miscarriage.html?searchResult
 `The country’s entry, the folk rap band Kalush Orchestra, triumphed with points from the popular vote.`\
 https://nytimes.com/2022/05/14/arts/ukraine-wins-eurovision.html?searchResultPosition=2
 
-**The gunman broadcast the attack on a live-streaming site.**\
-`Twitch, the live-streaming site owned by Amazon that is popular with gamers, said it had taken the channel offline.`\
+**The gunman broadcast the attack on a livestreaming site.**\
+`Twitch, the livestreaming site owned by Amazon that is popular with gamers, said it had taken the channel offline.`\
 https://nytimes.com/2022/05/14/nyregion/twitch-buffalo-shooting.html?searchResultPosition=3
 
 **Way Out West**\
