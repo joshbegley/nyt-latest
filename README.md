@@ -18,7 +18,7 @@ https://nytimes.com/2022/05/13/crosswords/daily-puzzle-2022-05-14.html?searchRes
 `Understanding the death toll — who makes up the one million and how the country failed them — is essential as the pandemic continues.`\
 https://nytimes.com/interactive/2022/05/13/us/covid-deaths-us-one-million.html?searchResultPosition=5
 
-**Teresa Berganza, Charismatic Star of the Opera Stage, Dies at 89**\
+**Teresa Berganza, Charismatic Star of the Opera Stage, Is Dead at 89**\
 `The Spanish mezzo-soprano was internationally acclaimed for her dramatic performances in the works of Mozart, Rossini and Bizet.`\
 https://nytimes.com/2022/05/13/arts/music/teresa-berganza-dead.html?searchResultPosition=6
 
