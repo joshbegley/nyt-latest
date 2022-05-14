@@ -26,7 +26,7 @@ https://nytimes.com/2022/05/13/us/politics/biden-police-stimulus-funds.html?sear
 `He was the last managing editor of The New York Herald Tribune. When that newspaper folded, he went on to top jobs with NBC and ABC News.`\
 https://nytimes.com/2022/05/13/business/media/richard-c-wald-dead.html?searchResultPosition=7
 
-**West Ups Pressure on Putin, Including Sanctions on Reputed Girlfriend**\
+**West Increases Pressure on Putin, Including Sanctions on Reputed Girlfriend**\
 `The Russian leader was challenged by the prospect of an enlarged NATO, plans to get Ukrainian grain exports past a Kremlin blockade, and sanctions on his purported mistress.`\
 https://nytimes.com/2022/05/13/world/europe/putin-sanctions-girlfriend-us-russia.html?searchResultPosition=8
 
