@@ -22,7 +22,7 @@ https://nytimes.com/2022/05/14/us/politics/trump-endorses-doug-mastriano.html?se
 `The Elizabeth line, 13 years in the making, will soon uncoil under central London with cathedral-like stations and roomy cars. Its managers say it’s a testament to the power of public transportation.`\
 https://nytimes.com/2022/05/14/world/europe/london-train-crossrail.html?searchResultPosition=6
 
-**At the Top of His Sport, a Mountain Runner Focuses on the Next Generation**\
+**At the Top of His Sport, Mountain Runner Focuses on the Next Generation**\
 `Joseph Gray is the most decorated American mountain runner. As the lone Black runner at the top, he wants to help diversify the field.`\
 https://nytimes.com/2022/05/14/sports/joseph-gray-mountain-running.html?searchResultPosition=7
 
