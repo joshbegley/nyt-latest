@@ -1,4 +1,4 @@
-**Katsumoto Saotome, Who Preserved Memories of Tokyo Firebombing, Dies at 90**\
+**Katsumoto Saotome, Who Preserved Stories of Tokyo Firebombing, Dies at 90**\
 `He compiled six books of survivors’ recollections of the 1945 attack. He also founded (without government support) a memorial museum.`\
 https://nytimes.com/2022/05/15/world/asia/katsumoto-saotome-dead.html?searchResultPosition=1
 
