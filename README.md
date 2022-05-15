@@ -1,4 +1,4 @@
-**Good Samaritans Rush Into Traffic to Save Unconscious Driver**\
+**Good Samaritans Rushed Into Traffic to Save Driver, Video Shows**\
 `A group of strangers who saved an unconscious Florida driver on May 5 reunited on Friday after a video of the dramatic rescue circulated online.`\
 https://nytimes.com/2022/05/15/us/florida-good-samaritans-medical-episode.html?searchResultPosition=1
 
