@@ -8,7 +8,7 @@ https://nytimes.com/2022/05/15/nyregion/white-supremacy-buffalo-shooting.html?se
 
 **Watch Live: Buffalo Mayor Provides Update on Mass Shooting**\
 `Byron Brown, the mayor of Buffalo, and law enforcement officials speak near the site of a vigil for victims of the mass shooting that left 10 dead and three others injured.`\
-https://nytimes.com/video/us/100000008350479/buffalo-mayor-mass-shooting.html?searchResultPosition=3
+https://nytimes.com/video/embedded/us/100000008350479/buffalo-mayor-mass-shooting.html?searchResultPosition=3
 
 **Review: After 36 Years, a Malcolm X Opera Sings to the Future**\
 `Anthony Davis’s “X” has stretches of incantation that, in person, turn it into something like a sacred rite.`\
