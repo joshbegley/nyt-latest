@@ -1,6 +1,6 @@
 **What we know about how the Buffalo shooting unfolded.**\
 `The gunman drove for hours to the Tops supermarket. He left a trail of bodies in the aisles and parking lot, apparently broadcasting his attack.`\
-https://nytimes.com/2022/05/14/nyregion/shooting-tops-timeline.html?searchResultPosition=1
+https://nytimes.com/2022/05/14/nyregion/shooting-tops-timeline-buffalo.html?searchResultPosition=1
 
 **Gunman Arrested After Shooting at Buffalo Supermarket Leaves 10 Dead**\
 `The police said the gunman, whom they described as an 18-year-old white man from outside the city, was motivated by racism. He appeared in court hours after the shooting and pleaded not guilty to charges of first-degree murder.`\
