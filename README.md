@@ -12,7 +12,7 @@ https://nytimes.com/2022/05/15/world/europe/finland-nato.html?searchResultPositi
 
 **Mass Shooting in Buffalo**\
 `A massacre at a Buffalo supermarket was the deadliest in the U.S. this year.`\
-https://nytimes.com/2022/05/15/briefing/buffalo-shooting.html?searchResultPosition=4
+https://nytimes.com/2022/05/15/briefing/mass-shooting-buffalo-new-york.html?searchResultPosition=4
 
 **The Week in Business: Crypto’s ‘Death Spiral’**\
 `Elon Musk said he was putting his Twitter purchase “temporarily on hold.” Prices continued to climb last month, and the financial markets had another losing week. `\
