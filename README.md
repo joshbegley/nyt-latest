@@ -26,7 +26,7 @@ https://nytimes.com/video/world/europe/100000008350570/sweden-nato.html?searchRe
 `Raised in North Dakota and rural Illinois, he was a literary star in New York City in the 1970s. But he left the limelight to raise a family on a North Dakota farm.`\
 https://nytimes.com/2022/05/15/books/larry-woiwode-dead.html?searchResultPosition=7
 
-**‘All These Innocent Lives’: Who Were the Victims in the Buffalo Attack?**\
+**‘All These Innocent Lives’: These Were the Victims in the Buffalo Attack**\
 `Friends and relatives shared remembrances of the people killed in the massacre, including a security guard who returned fire and shoppers running routine errands.`\
 https://nytimes.com/2022/05/14/nyregion/victims-buffalo-shooting.html?searchResultPosition=8
 
