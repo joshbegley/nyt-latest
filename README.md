@@ -1,5 +1,5 @@
 **Watch Live: Buffalo Mayor Provides Update on Mass Shooting**\
-`Byron Brown, the mayor of Buffalo, speaks near the site of a vigil for victims of the mass shooting that left 10 dead and three others injured.`\
+`Byron Brown, the mayor of Buffalo, and law enforcement officials speak near the site of a vigil for victims of the mass shooting that left 10 dead and three others injured.`\
 https://nytimes.com/video/us/100000008350479/buffalo-mayor-mass-shooting.html?searchResultPosition=1
 
 **Review: After 36 Years, a Malcolm X Opera Sings to the Future**\
