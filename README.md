@@ -3,7 +3,7 @@
 https://nytimes.com/2022/05/15/us/florida-good-samaritans-medical-episode.html?searchResultPosition=1
 
 **Washington officials condemn white supremacist ideology and its ties to the far right.**\
-`Democratic and Republican lawmakers condemned the mass shooting in Buffalo and criticized political speech that they say encourages white supremacy.`\
+`Lawmakers condemned the mass shooting in Buffalo and criticized political speech that they say encourages white supremacy.`\
 https://nytimes.com/2022/05/15/nyregion/white-supremacy-buffalo-shooting.html?searchResultPosition=2
 
 **Watch Live: Buffalo Mayor Provides Update on Mass Shooting**\
