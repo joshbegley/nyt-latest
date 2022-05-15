@@ -1,5 +1,5 @@
-**The victims included shoppers and a security guard.**\
-`By Mihir Zaveri, Emma Bubola and Ali Watkins`\
+**‘All These Innocent Lives’: Who Were the Victims in the Buffalo Attack?**\
+`Friends and relatives shared remembrances of the people killed in the massacre, including a security guard who returned fire and shoppers running routine errands.`\
 https://nytimes.com/2022/05/14/nyregion/victims-buffalo-shooting.html?searchResultPosition=1
 
 **President Biden Delivers Remarks on Buffalo Mass Shooting**\
