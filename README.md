@@ -11,7 +11,7 @@ https://nytimes.com/2022/05/15/world/europe/germany-elections-scholz.html?search
 https://nytimes.com/2022/05/15/us/california-church-shooting-laguna-woods.html?searchResultPosition=3
 
 **Buffalo Community Holds a Vigil for Mass Shooting Victims**\
-`Letitia James, the New York attorney general, joined community members at a vigil outside the Tops supermarket in Buffalo where the attack took place.`\
+`Community members gathered for a vigil outside the Tops supermarket in Buffalo to commemorate victims of the attack.`\
 https://nytimes.com/video/us/100000008350710/buffalo-mass-shooting-vigil.html?searchResultPosition=4
 
 **What the Italian Open Is Foretelling About the French Open**\
