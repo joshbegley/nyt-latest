@@ -23,7 +23,7 @@ https://nytimes.com/2022/05/15/sports/tennis/italian-open.html?searchResultPosit
 https://nytimes.com/video/nyregion/100000008350705/buffalo-shooting-mental-health-evaluation.html?searchResultPosition=6
 
 **The Reds Take a Big Risk, and Get a Loss for Their Trouble**\
-`For just the sixth time in baseball’s modern era, a team allowed no hits and lost. In the Reds’ attempt at history, they allowed Hunter Greene, a rookie, to throw 118 pitches.`\
+`For just the sixth time since 1901, a team allowed no hits and lost. In the Reds’ attempt at history, they allowed Hunter Greene, a rookie, to throw 118 pitches.`\
 https://nytimes.com/2022/05/15/sports/baseball/hunter-greene-reds-no-hitter.html?searchResultPosition=7
 
 **Your Monday Briefing: North Korea’s Growing Outbreak**\
