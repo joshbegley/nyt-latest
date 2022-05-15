@@ -26,7 +26,7 @@ https://nytimes.com/2022/05/15/crosswords/daily-puzzle-2022-05-16.html?searchRes
 `Chancellor Olaf Scholz’s Social Democrats scored record-low votes in the first major electoral test he has faced since taking office.`\
 https://nytimes.com/2022/05/15/world/europe/germany-elections-scholz.html?searchResultPosition=7
 
-**1 Dead, 4 Critically Injured in California Church Shooting**\
+**1 Dead and 4 Are Critically Injured in California Church Shooting**\
 `A total of six people were shot when a gunman opened fire inside a Presbyterian church in Laguna Woods, Calif., the authorities said.`\
 https://nytimes.com/2022/05/15/us/california-church-shooting-laguna-woods.html?searchResultPosition=8
 
