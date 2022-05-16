@@ -1,5 +1,5 @@
 **After 32 years, McDonald’s plans to sell its Russia business.**\
-`“This is a complicated issue that’s without precedent and with profound consequences,” Chris Kempczinski, the chief executive of McDonald’s, wrote in a message to franchises that was obtained by The Times.`\
+`“This is a complicated issue that’s without precedent and with profound consequences,” Chris Kempczinski, the chief executive of McDonald’s, wrote in a memo that was obtained by The Times.`\
 https://nytimes.com/2022/05/16/business/mcdonalds-russia.html?searchResultPosition=1
 
 **The Racist Theory Behind So Many Mass Shootings**\
