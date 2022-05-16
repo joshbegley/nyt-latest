@@ -1,6 +1,6 @@
 **‘Diamond Hands: The Legend of WallStreetBets’ Review: Is This Loss?**\
 `In this documentary, the Reddit users who spawned the GameStop gold rush recall their speculation creation.`\
-https://nytimes.com/2022/05/16/movies/diamond-hands-the-legend-of-wallstreetbets-review.html?searchResultPosition=1
+https://nytimes.com/2022/05/16/movies/diamond-hands-wallstreetbets-review.html?searchResultPosition=1
 
 **G.O.P. Senate Candidate in North Carolina Thrives as 2 Key Backers Squabble**\
 `Representative Ted Budd is proving the political potency of pairing endorsements from Donald Trump and the Club for Growth, the on-again, off-again allies.`\
