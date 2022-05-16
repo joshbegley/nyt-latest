@@ -4,7 +4,7 @@ https://nytimes.com/2022/05/16/learning/the-racist-massacre-in-buffalo-a-place-f
 
 **How Often Can You Be Infected With the Coronavirus?**\
 `The spread of the Omicron variant has given scientists an unsettling answer: repeatedly, sometimes within months.`\
-https://nytimes.com/2022/05/16/health/coronavirus-reinfection.html?searchResultPosition=2
+https://nytimes.com/2022/05/16/health/covid-reinfection.html?searchResultPosition=2
 
 **$2.7 Million Homes in California**\
 `A midcentury-style retreat in Palm Springs, an Edwardian house in Palo Alto and a renovated 1948 home in Sonoma.`\
