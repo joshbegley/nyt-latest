@@ -6,7 +6,7 @@ https://nytimes.com/2022/05/15/sports/baseball/yankees-white-sox.html?searchResu
 `Gunmen say they are influenced by online screeds and broadcasts of past shootings. Do social media sites have a responsibility to rein in hateful and violent content?`\
 https://nytimes.com/2022/05/15/business/buffalo-shooting-social-media.html?searchResultPosition=2
 
-**Mets Lose Their First Series of 2022**\
+**Proving They Are Human, Mets Lose Their First Series of 2022**\
 `Splitting a series was the worst the Mets had done before the Mariners came to town for three games.`\
 https://nytimes.com/2022/05/15/sports/baseball/mets-lose-their-first-series-of-2022.html?searchResultPosition=3
 
