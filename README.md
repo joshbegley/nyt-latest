@@ -8,13 +8,13 @@ https://nytimes.com/2022/05/16/dining/ukrainian-mariupol-cuisine-family-recipes.
 
 **Supreme Court Rules for Ted Cruz in Campaign Finance Case**\
 `The Texas senator challenged a federal law that put a $250,000 cap on repayments of candidates’ loans to their campaigns using postelection contributions.`\
-https://nytimes.com/2022/05/16/us/politics/supreme-court-ted-cruz-campaign-finance.html?searchResultPosition=3
+https://nytimes.com/2022/05/16/us/politics/ted-cruz-supreme-court-campaign-finance.html?searchResultPosition=3
 
 **A Partial List of Mass Shootings in the United States in 2022**\
 `The attack in which 10 people were killed at a supermarket in Buffalo was the country’s deadliest shooting this year.`\
 https://nytimes.com/article/mass-shootings-2022.html?searchResultPosition=4
 
-**Court’s Redistricting Plan Erases Democratic House Gains in New York**\
+**Democrats’ Hopes in New York House Races Hurt by New District Maps**\
 `The lines drawn by a court-appointed special master would increase competition for seats in Congress, in a blow to national Democrats.`\
 https://nytimes.com/2022/05/16/nyregion/ny-redistricting-congressional-map.html?searchResultPosition=5
 
