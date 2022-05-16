@@ -1,5 +1,5 @@
 **Jürgen Blin, Who Went 7 Rounds Against Ali, Dies at 79**\
-`In 1971, Blin was working-class fighter from Hamburg and a top contender in Germany. Ali was coming off a loss to Joe Frazier and needed to get back in shape.`\
+`In 1971, Blin was a working-class fighter from Hamburg and a top contender in Germany. Ali was coming off a loss to Joe Frazier and needed to get back in shape.`\
 https://nytimes.com/2022/05/16/sports/jurgen-blin-dead.html?searchResultPosition=1
 
 **Your Tuesday Briefing: Russia’s Faltering Campaign**\
@@ -36,5 +36,5 @@ https://nytimes.com/2022/05/16/us/politics/fda-pfizer-booster-children.html?sear
 
 **Watch Live: Buffalo Shooting Investigation Update**\
 `Law enforcement officials hold a news conference following Saturday’s mass shooting at a Tops supermarket.`\
-https://nytimes.com/video/us/100000008352180/buffalo-police-mass-shooting-update.html?searchResultPosition=10
+https://nytimes.com/video/embedded/us/100000008352180/buffalo-police-mass-shooting-update.html?searchResultPosition=10
 
