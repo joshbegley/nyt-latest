@@ -23,7 +23,7 @@ https://nytimes.com/2022/05/16/NYT-Presents/elon-musk-tesla-autopilot.html?searc
 https://nytimes.com/2022/05/16/us/laguna-woods-church-shooting.html?searchResultPosition=6
 
 **Bernanke’s Economic Warning**\
-`The former Federal Reserve chair warns that the U.S. could be headed for a period of 1970s-style “stagflation.”`\
+`The former Federal Reserve chair warns that the U.S. could be headed for a period of “stagflation.”`\
 https://nytimes.com/2022/05/16/business/dealbook/bernanke-stagflation.html?searchResultPosition=7
 
 **Students Protest Covid Lockdowns at Elite Beijing University**\
