@@ -1,4 +1,4 @@
-**1 Dead, Multiple Injured in California Church Shooting**\
+**1 Dead, 5 Injured in California Church Shooting**\
 `Jeff Hallock, the Orange County undersheriff, praised the “exceptional heroism and bravery” of churchgoers who overpowered the gunman before deputies arrived.`\
 https://nytimes.com/video/us/100000008351821/california-church-shooting-laguna-woods.html?searchResultPosition=1
 
