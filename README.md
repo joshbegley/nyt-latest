@@ -1,14 +1,14 @@
+**Johnson’s Softer Tone on Northern Ireland Trade Rules Belies Hard-Line Plans**\
+`Prime Minister Boris Johnson, who traveled to Northern Ireland on Monday, also urged a power-sharing government in the wake of Sinn Fein’s victory in legislative elections.`\
+https://nytimes.com/2022/05/16/world/europe/johnson-brexit-northern-ireland.html?searchResultPosition=1
+
 **As N.Y.C. approaches the high alert level for the virus, the city recommends but doesn’t mandate masks.**\
 `City health officials urged New Yorkers to wear medical masks indoors and to take other precautions.`\
-https://nytimes.com/2022/05/16/nyregion/nyc-mask-mandate-covid.html?searchResultPosition=1
+https://nytimes.com/2022/05/16/nyregion/nyc-mask-mandate-covid.html?searchResultPosition=2
 
 **Queen Latifah, Amanda Seyfried Honored by Variety**\
 `They joined four others celebrated in the magazine’s Power of Women issue.`\
-https://nytimes.com/2022/05/16/style/queen-latifah-amanda-seyfried-honored-by-variety.html?searchResultPosition=2
-
-**Russia Planned Major Military Reforms. Ukraine Shows the Result.**\
-`Russia wanted to build a leaner, more flexible fighting force and eliminate waste, bureaucracy and corruption. But entrenched, Soviet-era practices endure.`\
-https://nytimes.com/2022/05/16/world/europe/russia-military-ukraine.html?searchResultPosition=3
+https://nytimes.com/2022/05/16/style/queen-latifah-amanda-seyfried-honored-by-variety.html?searchResultPosition=3
 
 **The F.D.A. is expected to soon authorize Pfizer-BioNTech’s booster for 5- to 11-year-olds.**\
 `Given that the age group has the lowest coronavirus vaccination rate of all eligible Americans, public health experts are not expecting a rush for the booster.`\
