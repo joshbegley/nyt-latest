@@ -34,7 +34,7 @@ https://nytimes.com/2022/05/16/nyregion/grief-and-fury-sweep-though-buffalo.html
 `But the deal would allow the French automaker to repurchase its share of the company in case it wants to return to Russia in the future.`\
 https://nytimes.com/2022/05/16/business/renault-russia-avtovaz.html?searchResultPosition=9
 
-**An Intimate Look at Mexico’s Indigenous Seri People**\
-`The identity of the Seri is integrally tied to their natural environment, which in recent years has been susceptible to an increasing number of existential threats.`\
-https://nytimes.com/2022/05/16/travel/comcaac-seri-people-mexico.html?searchResultPosition=10
+**Nick Cave Goes Underground**\
+`Amid the noise and teem of the Times Square station, the artist’s mosaic Soundsuits feel more alive than they often do in the silence of museums.`\
+https://nytimes.com/2022/05/16/arts/design/nick-cave-mta-soundsuits-times-square.html?searchResultPosition=10
 
