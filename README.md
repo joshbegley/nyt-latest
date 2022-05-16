@@ -1,6 +1,6 @@
 **The Racist Massacre in Buffalo: A Place for Young People to React**\
 `An invitation to post your thoughts, feelings and questions.`\
-https://nytimes.com/2022/05/16/learning/the-racist-massacre-in-buffalo-a-place-for-young-people-to-react.html?searchResultPosition=1
+https://nytimes.com/2022/05/16/learning/buffalo-shooting-student-opinion.html?searchResultPosition=1
 
 **How Often Can You Be Infected With the Coronavirus?**\
 `The spread of the Omicron variant has given scientists an unsettling answer: repeatedly, sometimes within months.`\
