@@ -18,7 +18,7 @@ https://nytimes.com/2022/05/16/us/california-church-shooting-hate-incident.html?
 `Prime Minister Boris Johnson, who traveled to Northern Ireland on Monday, also urged a power-sharing government in the wake of Sinn Fein’s victory in legislative elections.`\
 https://nytimes.com/2022/05/16/world/europe/johnson-brexit-northern-ireland.html?searchResultPosition=5
 
-**As N.Y.C. approaches the high alert level for the virus, the city recommends but doesn’t mandate masks.**\
+**As N.Y.C. approaches the high alert level for the virus, the city recommends but doesn’t mandate masks indoors.**\
 `City health officials urged New Yorkers to wear medical masks indoors and to take other precautions.`\
 https://nytimes.com/2022/05/16/nyregion/nyc-mask-mandate-covid.html?searchResultPosition=6
 
