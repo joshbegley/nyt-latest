@@ -1,5 +1,5 @@
 **Scenes From Sunday’s Lunar Eclipse**\
-`Earth's shadow fell over the moon on Sunday, creating the astronomical phenomenon some all a blood moon.`\
+`Earth's shadow fell over the moon on Sunday, creating the astronomical phenomenon some call a blood moon.`\
 https://nytimes.com/interactive/2022/05/16/science/lunar-eclipse-2022.html?searchResultPosition=1
 
 **Biden Approves Plan to Redeploy Several Hundred Ground Forces Into Somalia**\
