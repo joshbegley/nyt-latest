@@ -12,7 +12,7 @@ https://nytimes.com/2022/05/15/business/buffalo-shooting-social-media.html?searc
 
 **Proving They Are Human, Mets Lose Their First Series of 2022**\
 `Splitting a series was the worst the Mets had done before the Mariners came to town for three games.`\
-https://nytimes.com/2022/05/15/sports/baseball/mets-lose-their-first-series-of-2022.html?searchResultPosition=4
+https://nytimes.com/2022/05/15/sports/baseball/mets-mariners-series.html?searchResultPosition=4
 
 **When It Comes to Labels, Selma Blair Will Write Her Own**\
 `In her memoir, “Mean Baby,” the actor opens up about daily life with multiple sclerosis and the different identities she has juggled all her life.`\
