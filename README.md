@@ -7,8 +7,8 @@ https://nytimes.com/2022/05/16/movies/family-camp-review.html?searchResultPositi
 https://nytimes.com/video/science/100000008351420/total-lunar-eclipse-blood-moon.html?searchResultPosition=2
 
 **A Rare Kind of Filly Dazzles at the Racetrack**\
-`Sodashi, who won the Victoria Mile on Sunday in Tokyo, may be the greatest pure white thoroughbred ever. She qualified to run in a Breeders’ Cup race in Kentucky in November.`\
-https://nytimes.com/2022/05/16/sports/horse-racing/a-filly-nicknamed-the-white-wonder-dazzles-at-the-racetrack.html?searchResultPosition=3
+`Sodashi, who won the Victoria Mile on Sunday in Tokyo, has a rare genetic anomaly and may be the greatest thoroughbred of its kind.`\
+https://nytimes.com/2022/05/16/sports/horse-racing/rare-white-thoroughbred.html?searchResultPosition=3
 
 **Review: Breathing, Dancing Art at the Met Museum**\
 `Bijayini Satpathy, a MetLiveArts artist in residence, pushed the borders of her Odissi classicism to meet the art around her.`\
