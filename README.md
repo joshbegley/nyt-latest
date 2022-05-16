@@ -20,7 +20,7 @@ https://nytimes.com/2022/05/16/nyregion/redistricting-maps-house-ny.html?searchR
 
 **P.S.G. Player Refuses to Wear Rainbow Jersey**\
 `Idrissa Gueye faced criticism after he missed a game rather than wear a shirt designed to support an anti-homophobia initiative. He missed the same game last year.`\
-https://nytimes.com/2022/05/16/sports/soccer/psg-player-refuses-to-wear-rainbow-jersey.html?searchResultPosition=6
+https://nytimes.com/2022/05/16/sports/soccer/psg-idrissa-gana-gueye.html?searchResultPosition=6
 
 **1 Dead, 5 Injured in California Church Shooting**\
 `Jeff Hallock, the Orange County, Calif., undersheriff, praised the “exceptional heroism and bravery” of churchgoers who overpowered the gunman before deputies arrived.`\
