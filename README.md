@@ -16,7 +16,7 @@ https://nytimes.com/article/mass-shootings-2022.html?searchResultPosition=4
 
 **Court’s Redistricting Plan Erases Democratic House Gains in New York**\
 `The lines drawn by a court-appointed special master would increase competition for seats in Congress, in a blow to national Democrats.`\
-https://nytimes.com/2022/05/16/nyregion/redistricting-maps-house-ny.html?searchResultPosition=5
+https://nytimes.com/2022/05/16/nyregion/ny-redistricting-congressional-map.html?searchResultPosition=5
 
 **P.S.G. Player Refuses to Wear Rainbow Jersey**\
 `Idrissa Gueye faced criticism after he missed a game rather than wear a shirt designed to support an anti-homophobia initiative. He missed the same game last year.`\
