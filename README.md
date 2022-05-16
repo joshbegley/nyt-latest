@@ -1,5 +1,5 @@
-**Rangers Beat Penguins in Game 7**\
-`Artemi Panarin scored on the power play in overtime to send the Rangers to a second-round series against the Carolina Hurricanes after they had faced a three-games-to-one deficit.`\
+**Rangers Beat the Penguins in Game 7 in Overtime**\
+`Artemi Panarin scored on the power play to send the Rangers to a second-round series against the Carolina Hurricanes after they had faced a three-games-to-one deficit.`\
 https://nytimes.com/2022/05/15/sports/hockey/penguins-rangers-nhl-playoffs.html?searchResultPosition=1
 
 **Dallas Mavericks Stun the Phoenix Suns in Game 7 Upset**\
