@@ -4,7 +4,7 @@ https://nytimes.com/2022/05/16/arts/music/kendrick-lamar-mr-morale-and-the-big-s
 
 **The Believer, a Beloved Literary Magazine, Goes Home After a Risqué Detour**\
 `The magazine, bought by a marketing company, briefly hosted clickbait content. Scandal ensued. After a flurry of negotiation, it is now back with its first publisher, McSweeney’s.`\
-https://nytimes.com/2022/05/16/arts/the-believer-mcsweeneys.html?searchResultPosition=2
+https://nytimes.com/2022/05/16/books/the-believer-mcsweeneys.html?searchResultPosition=2
 
 **‘Family Camp’ Review: Born to Be Mild**\
 `There’s little new in this comedy about parents and kids on a church outing in the wilderness.`\
