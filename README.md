@@ -4,7 +4,7 @@ https://nytimes.com/2022/05/16/business/dealbook/bernanke-stagflation.html?searc
 
 **Students Protest Covid Lockdowns at Elite Beijing University**\
 `Authorities moved quickly to censor videos and photos that showed students at Peking University demonstrating.`\
-https://nytimes.com/2022/05/16/business/students-protest-covid-lockdowns-at-elite-beijing-university.html?searchResultPosition=2
+https://nytimes.com/2022/05/16/business/covid-protest-peking-university-beijing.html?searchResultPosition=2
 
 **JetBlue goes hostile in its takeover bid for Spirit Airlines.**\
 `The carrier made a tender offer valued at $3.2 billion, and said it was willing to pay more if Spirit cooperated with an acquisition.`\
