@@ -15,7 +15,7 @@ https://nytimes.com/2022/05/16/business/ben-bernanke-predicts-stagflation.html?s
 https://nytimes.com/2022/05/16/briefing/putins-new-problems.html?searchResultPosition=4
 
 **After 32 years, McDonald’s plans to sell its Russia business.**\
-`“This is a complicated issue that’s without precedent and with profound consequences,” Chris Kempczinski, the chief executive of McDonald’s, wrote in a memo that was obtained by The Times.`\
+`“This is a complicated issue that’s without precedent and with profound consequences,” said Chris Kempczinski, the chief executive of McDonald’s.`\
 https://nytimes.com/2022/05/16/business/mcdonalds-russia.html?searchResultPosition=5
 
 **The Racist Theory Behind So Many Mass Shootings**\
