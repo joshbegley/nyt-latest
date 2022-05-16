@@ -10,7 +10,7 @@ https://nytimes.com/2022/05/16/business/covid-protest-peking-university-beijing.
 `The carrier made a tender offer valued at $3.2 billion, and said it was willing to pay more if Spirit cooperated with an acquisition.`\
 https://nytimes.com/2022/05/16/business/jetblue-spirit-airlines-tender-offer.html?searchResultPosition=3
 
-**Ben Bernanke Predicts ‘Stagflation’ Reminiscent of the 1970s**\
+**Ben Bernanke Sees ‘Stagflation’ Ahead**\
 `The former chairman of the Federal Reserve has a new book out on Tuesday explaining the powers of the Fed and Congress to juice or slow our economy amid a supply-chain crunch and sky-high demand.`\
 https://nytimes.com/2022/05/16/business/ben-bernanke-predicts-stagflation.html?searchResultPosition=4
 
