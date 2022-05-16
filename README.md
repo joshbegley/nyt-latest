@@ -1,40 +1,40 @@
-**Lesson of the Day: ‘Hear the Weird Sounds of a Black Hole Singing’**\
-`In this lesson, students will learn how NASA is “sonifying” the universe and how these sounds might change our understanding of the most enigmatic entity in the cosmos.`\
-https://nytimes.com/2022/05/16/learning/lesson-plans/lesson-of-the-day-hear-the-weird-sounds-of-a-black-hole-singing.html?searchResultPosition=1
+**An Intimate Look at Mexico’s Indigenous Seri People**\
+`The identity of the Seri is integrally tied to their natural environment, which in recent years has been susceptible to an increasing number of existential threats.`\
+https://nytimes.com/2022/05/16/travel/comcaac-seri-people-mexico.html?searchResultPosition=1
 
-**The Little Red Boxes Making a Mockery of Campaign Finance Laws**\
-`Democratic candidates are all-but scripting ads for super PACs and dark-money groups to do their bidding — in plain sight.`\
-https://nytimes.com/2022/05/16/us/politics/red-boxes-campaign-finance-democrats.html?searchResultPosition=2
+**Nick Cave Goes Underground**\
+`Amid the noise and teem of the Times Square station, the artist’s mosaic Soundsuits feel more alive than they often do in the silence of museums.`\
+https://nytimes.com/2022/05/16/arts/design/nick-cave-mta-soundsuits-times-square.html?searchResultPosition=2
 
-**Madison Avenue’s Biggest Event Returns, to a Whole New World**\
-`In the three years since the television industry’s biggest companies pitched their shows to advertisers in person at the so-called upfronts, the entertainment industry has been flipped on its head.`\
-https://nytimes.com/2022/05/16/business/media/upfronts-tv-warner-bros-discovery.html?searchResultPosition=3
+**Are You Happy? Your Boss Is Asking.**\
+`To some, the pursuit of workplace happiness — and its price, like an $18,000 “happiness M.B.A.” for managers — can seem like a corporate attempt to turn feelings into productivity.`\
+https://nytimes.com/2022/05/16/business/worker-happiness-management.html?searchResultPosition=3
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/05/16/crosswords/spelling-bee-forum.html?searchResultPosition=4
+**The West’s Scramble for Gas Could Enrich and Empower Tiny Qatar**\
+`As the United States and Europe seek to deprive Russia of its oil and gas income, their leaders hope Qatar can help fill the void.`\
+https://nytimes.com/2022/05/16/world/middleeast/russia-gas-ukraine-qatar.html?searchResultPosition=4
 
-**No Corrections: May 16, 2022**\
-`No corrections appeared in print on Monday, May 16, 2022.`\
-https://nytimes.com/2022/05/16/pageoneplus/no-corrections-may-16-2022.html?searchResultPosition=5
+**Shopping for Adirondack Chairs**\
+`Nothing says summer like a pair of these classic outdoor lounge chairs.`\
+https://nytimes.com/2022/05/16/realestate/shopping-for-adirondack-chairs.html?searchResultPosition=5
 
-**Quotation of the Day: Victims Include Security Guard Hailed as Hero**\
-`Quotation of the Day for Monday, May 16, 2022.`\
-https://nytimes.com/2022/05/16/todayspaper/quotation-of-the-day-victims-include-security-guard-hailed-as-hero.html?searchResultPosition=6
+**What’s Down the Road for Silicon?**\
+`Meet the new materials overpowering the electric economy.`\
+https://nytimes.com/2022/05/16/science/electronics-silicon-gallium.html?searchResultPosition=6
 
-**How the Long Recovery From Bush Fires Could Decide Australia’s Election**\
-`The fires that tore through the country in late 2019 and early 2020 are history, but halting recovery efforts have kept memories vivid and anger fresh.`\
-https://nytimes.com/2022/05/16/world/australia/cobargo-bushfires-election.html?searchResultPosition=7
+**How Buffalo Suspect’s Racist Writings Reveal Links to Other Attacks**\
+`Filled with hate, the screed describes a mass shooting at a grocery store and connects it with a belief shared by gunmen in previous massacres.`\
+https://nytimes.com/2022/05/16/us/buffalo-shooting-replacement-theory-christchurch-el-paso.html?searchResultPosition=7
 
-**U.S. Senator From Maryland Suffers ‘Minor Stroke’**\
-`Chris Van Hollen, a Democrat, said in a statement that there were “no long-term effects or damage,” but that he would be under observation for a few days.`\
-https://nytimes.com/2022/05/16/us/politics/senator-chris-van-hollen-stroke.html?searchResultPosition=8
+**Amid a Worsening Formula Shortage, Mothers Are Asked: ‘Why Not Breastfeed?’**\
+`The current crisis has exacerbated an already emotionally charged health care issue in the U.S.`\
+https://nytimes.com/2022/05/16/well/family/breastfeeding-formula-shortage.html?searchResultPosition=8
 
-**In Rebirth for NATO, Europe Unites in Face of Putin’s Ambition**\
-`Sweden’s and Finland’s embrace of NATO after decades of neutrality is a clear statement that Russia’s invasion of Ukraine has ended an era of European illusions about Moscow.`\
-https://nytimes.com/2022/05/16/world/europe/nato-putin-sweden-finland.html?searchResultPosition=9
+**The Bloody Crossroads Where Conspiracy Theories and Guns Meet**\
+`The slaughter in a Black neighborhood in Buffalo is in line with a series of racist massacres that show no signs of abating. `\
+https://nytimes.com/2022/05/16/opinion/buffalo-shooting-guns.html?searchResultPosition=9
 
-**What’s on TV This Week: ‘Merry Wives’ and George Carlin**\
-`A recording of a Public Theater Shakespeare show airs on PBS. And a documentary about George Carlin debuts on HBO.`\
-https://nytimes.com/2022/05/16/arts/television/whats-on-tv-this-week-merry-wives-and-george-carlin.html?searchResultPosition=10
+**Yellen Looks to Get Global Tax Deal Back on Track During Europe Trip**\
+`The Treasury secretary is traveling to Warsaw, Brussels and Bonn, Germany, this week at an uncertain time for the global economy.`\
+https://nytimes.com/2022/05/16/us/politics/treasury-yellen-europe-global-tax.html?searchResultPosition=10
 
