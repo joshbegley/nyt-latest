@@ -1,5 +1,5 @@
-**A Path of Destruction and Its Political Aftermath**\
-`The fires that tore through Australia in late 2019 and early 2020 are history, but halting recovery efforts have kept memories vivid and anger fresh as an election approaches.`\
+**How the Long Recovery From Bush Fires Could Decide Australia’s Election**\
+`The fires that tore through the country in late 2019 and early 2020 are history, but halting recovery efforts have kept memories vivid and anger fresh.`\
 https://nytimes.com/2022/05/16/world/australia/cobargo-bushfires-election.html?searchResultPosition=1
 
 **U.S. Senator From Maryland Suffers ‘Minor Stroke’**\
