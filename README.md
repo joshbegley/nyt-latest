@@ -16,7 +16,7 @@ https://nytimes.com/2022/05/17/business/dealbook/musk-vs-the-bots.html?searchRes
 
 **House Panel Opens Public Hearing on Unexplained Aerial Sightings**\
 `An intelligence subcommittee will hear testimony from two Pentagon officials on observations by military pilots and others.`\
-https://nytimes.com/2022/05/17/us/politics/ufo-report-hearing.html?searchResultPosition=5
+https://nytimes.com/2022/05/17/us/politics/congress-ufo-hearing.html?searchResultPosition=5
 
 **Shanghai says its Covid outbreak is under control, but many residents remain locked down.**\
 `Reports in state news media about the return of daily life in the financial hub brought distressed responses from residents.`\
