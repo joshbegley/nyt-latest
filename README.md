@@ -8,7 +8,7 @@ https://nytimes.com/2022/05/17/business/media/crypto-gwyneth-paltrow-matt-damon-
 
 **Europe Rethinks Its Reliance on Burning Wood for Electricity**\
 `A new proposal would significantly rewrite E.U. rules on renewable energy, ending subsidies for biomass like wood pellets.`\
-https://nytimes.com/2022/05/17/climate/wood-pellet-renewable-energy-europe.html?searchResultPosition=3
+https://nytimes.com/2022/05/17/climate/eu-burning-wood-electricity.html?searchResultPosition=3
 
 **It might be a while before results in Pennsylvania are known. Here’s what to expect.**\
 `Election officials are not allowed to begin opening and processing mail-in and absentee ballots before 7 a.m. on Election Day, which could lead to delays.`\
