@@ -8,7 +8,7 @@ https://nytimes.com/2022/05/17/style/stanley-tumbler.html?searchResultPosition=2
 
 **Pine & Polk Opens in SoHo, With a Speakeasy-Style Bar**\
 `PS, or Pacific Standard, will serve drinks and light food in the back of the newly opened food shop.`\
-https://nytimes.com/2022/05/17/dining/pine-polk-pacific-standard-bar.html?searchResultPosition=3
+https://nytimes.com/2022/05/17/dining/soho-bar-pacific-standard.html?searchResultPosition=3
 
 **Everytable, a California Chain With Sliding Scale Prices, Opens in New York**\
 `A Cipriani in an upscale food hall, seafood sharing a West Village space with a breakfast spot, and more restaurant news.`\
