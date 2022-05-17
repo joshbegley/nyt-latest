@@ -10,8 +10,8 @@ https://nytimes.com/2022/05/17/world/europe/ukraine-eurovision-kalush-orchestra.
 `More than eight million of the 28 million children in that age group in the United States have received two vaccine shots.`\
 https://nytimes.com/2022/05/17/us/politics/fda-pfizer-booster-children.html?searchResultPosition=3
 
-**Pennsylvania’s attorney general, a candidate for governor, tests positive for the coronavirus.**\
-`Josh Shapiro said he is had mild symptoms and would stay home during the state’s primary election on Tuesday.`\
+**Pennsylvania’s attorney general, a candidate for governor, is isolating after his positive Covid test.**\
+`Josh Shapiro said he had mild symptoms and would stay home during the state’s primary election on Tuesday.`\
 https://nytimes.com/2022/05/17/us/politics/pennsylvania-attorney-general-shapiro-covid.html?searchResultPosition=4
 
 **Queen Makes Surprise Visit to Paddington Station in London**\
