@@ -1,5 +1,5 @@
 **U.S. Expected to Begin Blocking Russian Bond Payments to Americans**\
-`The Treasury Department is expected to let a sanctions carve-out lapse next week, raising the prospect of a default.`\
+`The Treasury Department is expected to let a sanctions carve-out lapse next week, raising the prospect of a Russian default.`\
 https://nytimes.com/2022/05/17/business/russia-bond-payments.html?searchResultPosition=1
 
 **U.S. to Offer Minor Sanctions Relief to Entice Venezuela to Talks**\
