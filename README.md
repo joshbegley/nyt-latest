@@ -4,7 +4,7 @@ https://nytimes.com/2022/05/17/business/retail-sales-april-inflation.html?search
 
 **The Foot Soldiers in India’s Battle to Improve Public Health**\
 `Over a million female health workers treat India’s most at-risk women and children, for little pay and sometimes at the cost of their own lives.`\
-https://nytimes.com/2022/05/17/world/asia/india-public-health-asha.html?searchResultPosition=2
+https://nytimes.com/2022/05/17/world/asia/india-asha-health.html?searchResultPosition=2
 
 **Gucci Gives New Meaning to the Contemporary Obsession With Stars**\
 `At a medieval castle in Puglia, it’s all about astronomy, baby.`\
