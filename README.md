@@ -20,7 +20,7 @@ https://nytimes.com/2022/05/17/arts/dance/new-york-live-arts-abby-zbikowski.html
 
 **American Stories, Coast to Coast**\
 `From California’s Central Valley to the Texas-Mexico border to rural North Carolina, fiction anchored by a strong sense of place.`\
-https://nytimes.com/2022/05/17/books/review/heartbroke-chelsea-bieker-valleyesque-fernando-a-flores-proof-of-me-erica-plouffe-lazure.html?searchResultPosition=6
+https://nytimes.com/2022/05/17/books/review/american-fiction-stories.html?searchResultPosition=6
 
 **Watch Live: Biden Speaks in Buffalo After Supermarket Massacre**\
 `President Biden is expected to express his condolences to the community after a gunman killed 10 people during a racist attack.`\
