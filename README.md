@@ -24,7 +24,7 @@ https://nytimes.com/2022/05/17/books/review/heartbroke-chelsea-bieker-valleyesqu
 
 **Watch Live: Biden Speaks in Buffalo After Supermarket Massacre**\
 `President Biden is expected to express his condolences to the community after a gunman killed 10 people during a racist attack.`\
-https://nytimes.com/video/us/politics/100000008352877/joe-biden-buffalo-shooting.html?searchResultPosition=7
+https://nytimes.com/video/embedded/us/politics/100000008352877/joe-biden-buffalo-shooting.html?searchResultPosition=7
 
 **With Plunging Enrollment, a ‘Seismic Hit’ to Public Schools**\
 `The pandemic has supercharged the decline in the nation’s public school system in ways that experts say will not easily be reversed.`\
