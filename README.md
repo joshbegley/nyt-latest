@@ -1,6 +1,6 @@
 **Indianapolis Museum Announces New Leadership After Reckoning on Racism**\
 `The museum named Colette Pierce Burnette president and chief executive. Last year, its president resigned after a job posting described the institution’s “core” audience as white.`\
-https://nytimes.com/2022/05/17/arts/design/indianapolis-museum-new-leader.html?searchResultPosition=1
+https://nytimes.com/2022/05/17/arts/design/indianapolis-museum-colette-pierce-burnette.html?searchResultPosition=1
 
 **Matt Harvey Suspended for Providing Drugs to Tyler Skaggs**\
 `Harvey, the former Mets star, admitted during the Eric Kay trial that he had provided Skaggs, his Angels teammate, with Percocet, an opioid.`\
