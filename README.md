@@ -1,6 +1,6 @@
 **Know your risks. Then prepare.**\
 `Researchers used new data to calculate fire threats to homes and other properties throughout the lower 48 states. We made a map.`\
-https://nytimes.com/2022/05/17/climate/climate-korea-nuclear-power.html?searchResultPosition=1
+https://nytimes.com/2022/05/17/climate/climate-wildfire-risk.html?searchResultPosition=1
 
 **The governor of Vermont, a Republican in a liberal state, launches a bid for re-election.**\
 `Phil Scott consistently ranks among the most popular governors in the country.`\
@@ -28,7 +28,7 @@ https://nytimes.com/2022/05/17/us/politics/pennsylvania-attorney-general-shapiro
 
 **Queen Makes Surprise Visit to Paddington Station in London**\
 `Queen Elizabeth II made a rare public appearance to celebrate the opening of the Elizabeth line in London, which is named in her honor.`\
-https://nytimes.com/2022/05/17/world/europe/queen-elizabeth-london-train-crossrail.html?searchResultPosition=8
+https://nytimes.com/2022/05/17/world/europe/london-queen-elizabeth-train.html?searchResultPosition=8
 
 **Doug Aitken Has an Eye for Dystopia**\
 `With a new solo show in New York, the Los Angeles-based artist recalls his early career and life during the pandemic.`\
