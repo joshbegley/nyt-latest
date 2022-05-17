@@ -1,5 +1,5 @@
 **A Green Oasis Reopens in Midtown**\
-`The indoor garden at the Ford Foundation for Social Justice will reopen to the public soon. `\
+`The indoor garden at the Ford Foundation Center for Social Justice will reopen to the public soon. `\
 https://nytimes.com/interactive/2022/05/17/nyregion/ford-foundation-garden-reopens.html?searchResultPosition=1
 
 **The Rangers’ Goalie Is Adjusting to the Pressures of the Playoffs**\
