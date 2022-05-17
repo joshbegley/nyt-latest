@@ -1,5 +1,5 @@
 **Read Senator Chuck Schumer’s Letter to Fox News About Tucker Carlson and ‘Replacement Theory’**\
-`Senator Chuck Schumer, the majority leader, sent a letter to Fox News brass urging them to “immediately cease the reckless amplification of the so-called ‘Great Replacement’ theory on your network’s broadcasts.”`\
+`Senator Chuck Schumer, the majority leader, sent a letter to Fox News executives urging them to “immediately cease the reckless amplification of the so-called ‘Great Replacement’ theory on your network’s broadcasts.”`\
 https://nytimes.com/interactive/2022/05/17/nyregion/senator-chuck-schumer-s-letter-to-fox-news-executives.html?searchResultPosition=1
 
 **Schumer calls on Murdoch and Fox News executives to stop amplifying replacement theory.**\
