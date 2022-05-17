@@ -32,7 +32,7 @@ https://nytimes.com/slideshow/2022/05/17/dining/nonna-doras-pasta-bar-nyc.html?s
 
 **Twitter presses forward with Musk, with more details about the back story to the deal.**\
 `In a filing on Tuesday, Twitter said it was still committed to its agreement with Elon Musk and urged shareholders to vote in favor of it.`\
-https://nytimes.com/2022/05/17/business/twitter-filing-musk.html?searchResultPosition=9
+https://nytimes.com/2022/05/17/business/twitter-elon-musk.html?searchResultPosition=9
 
 **Poor Countries Face a Mounting Catastrophe Fueled by Inflation and Debt**\
 `Russia’s war in Ukraine is combining with a global tightening of credit and an economic slowdown in China to sow misery in low- and middle-income countries.`\
