@@ -8,7 +8,7 @@ https://nytimes.com/2022/05/16/crosswords/daily-puzzle-2022-05-17.html?searchRes
 
 **Biden Administration Lifting Some Trump-Era Restrictions on Cuba**\
 `The changes include an expansion of flights to the country and the restarting of a family reunification program.`\
-https://nytimes.com/2022/05/16/us/politics/biden-cuba.html?searchResultPosition=3
+https://nytimes.com/2022/05/16/us/politics/biden-cuba-policy.html?searchResultPosition=3
 
 **The Macklowe Collection Tops $922 Million at Auction**\
 `The art holdings from a bitter divorce became what Sotheby’s called the most valuable collection ever sold at auction.`\
