@@ -31,7 +31,7 @@ https://nytimes.com/2022/05/17/t-magazine/mullets-hair-trend.html?searchResultPo
 https://nytimes.com/2022/05/17/theater/will-you-come-with-me-review.html?searchResultPosition=8
 
 **‘The hate of men will pass, and dictators die’: Zelensky quotes Chaplin in a video address to Cannes.**\
-`His appearance at the international festival followed similar addresses to Parliaments around the world, including Congress in March.`\
+`The Ukrainian leader’s appearance at the international festival followed similar addresses to Parliaments around the world, including Congress in March.`\
 https://nytimes.com/2022/05/17/movies/ukraine-zelensky-cannes-film-festival.html?searchResultPosition=9
 
 **Enter Stage Left: A Donkey Debuts at the Met Opera**\
