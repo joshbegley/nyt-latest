@@ -1,40 +1,40 @@
+**Ukrainian Holdouts in Mariupol Surrender to an Uncertain Fate**\
+`The government’s order for hundreds of remaining fighters to stand down offers Russia a propaganda victory, but prospects for a prisoner swap seem unclear at best.`\
+https://nytimes.com/2022/05/17/world/europe/ukraine-mariupol-fighters-surrender.html?searchResultPosition=1
+
 **Russian Hacking Cartel Attacks Costa Rican Government Agencies**\
 `Experts who track the hackers’ actions said the group had recently begun to shift its focus to countries in Central and South America, perhaps as retaliation against nations that have supported Ukraine.`\
-https://nytimes.com/2022/05/17/us/politics/russia-hacking-costa-rica.html?searchResultPosition=1
+https://nytimes.com/2022/05/17/us/politics/russia-hacking-costa-rica.html?searchResultPosition=2
 
 **The 50 Best Movies on HBO Max Right Now**\
 `In addition to new Warner and HBO films, the streamer has a treasure trove of Golden Age classics, indie flicks and foreign films. Start with these.`\
-https://nytimes.com/article/best-movies-hbo-max.html?searchResultPosition=2
+https://nytimes.com/article/best-movies-hbo-max.html?searchResultPosition=3
 
 **A Green Oasis Reopens in Midtown**\
 `The indoor garden at the Ford Foundation Center for Social Justice will reopen to the public soon. `\
-https://nytimes.com/interactive/2022/05/17/nyregion/ford-foundation-garden-reopens.html?searchResultPosition=3
+https://nytimes.com/interactive/2022/05/17/nyregion/ford-foundation-garden-reopens.html?searchResultPosition=4
 
 **The Rangers’ Goalie Is Adjusting to the Pressures of the Playoffs**\
 `Igor Shesterkin struggled in goal during the first round against the Penguins. But he’s back to showing why he’s the best goalie in the world.`\
-https://nytimes.com/2022/05/17/sports/hockey/igor-shesterkin-rangers-nhl-playoffs.html?searchResultPosition=4
+https://nytimes.com/2022/05/17/sports/hockey/igor-shesterkin-rangers-nhl-playoffs.html?searchResultPosition=5
 
 **NASA Starts Countdown to Robotic Mission’s End on Mars**\
 `The InSight mission, which listens for marsquakes and studies the red planet’s insides, is expected to cease functioning by the end of the year.`\
-https://nytimes.com/2022/05/17/science/nasa-mars-insight-lander.html?searchResultPosition=5
+https://nytimes.com/2022/05/17/science/nasa-mars-insight-lander.html?searchResultPosition=6
 
 **U.S. Expected to Begin Blocking Russian Bond Payments to Americans**\
 `The Treasury Department is expected to let a sanctions carve-out lapse next week, raising the prospect of a Russian default.`\
-https://nytimes.com/2022/05/17/business/russia-bond-payments.html?searchResultPosition=6
+https://nytimes.com/2022/05/17/business/russia-bond-payments.html?searchResultPosition=7
 
 **U.S. to Offer Minor Sanctions Relief to Entice Venezuela to Talks**\
 `The Biden administration said it would relax restrictions on Chevron’s dealings with President Nicolás Maduro and remove sanctions from his relative.`\
-https://nytimes.com/2022/05/17/us/politics/us-venezuela-oil-sanctions.html?searchResultPosition=7
+https://nytimes.com/2022/05/17/us/politics/us-venezuela-oil-sanctions.html?searchResultPosition=8
 
 **Indianapolis Museum Announces New Leadership After Reckoning on Racism**\
 `The museum named Colette Pierce Burnette president and chief executive. Last year, its president resigned after a job posting described the institution’s “core” audience as white.`\
-https://nytimes.com/2022/05/17/arts/design/indianapolis-museum-colette-pierce-burnette.html?searchResultPosition=8
+https://nytimes.com/2022/05/17/arts/design/indianapolis-museum-colette-pierce-burnette.html?searchResultPosition=9
 
 **Matt Harvey Suspended for Providing Drugs to Tyler Skaggs**\
 `Harvey, the former Mets star, admitted during the Eric Kay trial that he had provided Skaggs, his Angels teammate, with Percocet, an opioid.`\
-https://nytimes.com/2022/05/17/sports/baseball/matt-harvey-suspended.html?searchResultPosition=9
-
-**Surrender at Mariupol**\
-`Ukrainian fighters were taken to Russian-controlled territory, and their fate is uncertain.`\
-https://nytimes.com/2022/05/17/briefing/russia-ukraine-war-mariupol-azovstal.html?searchResultPosition=10
+https://nytimes.com/2022/05/17/sports/baseball/matt-harvey-suspended.html?searchResultPosition=10
 
