@@ -4,7 +4,7 @@ https://nytimes.com/video/us/politics/100000008353612/congress-ufo-hearing.html?
 
 **Can You Even Call Deadly Heat ‘Extreme’ Anymore?**\
 `In India, weeks of 100-degree heat have become just another, every day climate anomaly.`\
-https://nytimes.com/2022/05/17/opinion/climate-change-india-pakistan-heat-wave.html?searchResultPosition=2
+https://nytimes.com/2022/05/17/opinion/india-heat-wave-pakistan-climate-change.html?searchResultPosition=2
 
 **For ‘The Lincoln Lawyer,’ Manuel Garcia-Rulfo Climbs in the Front Seat**\
 `For his first TV lead, the actor plays Mickey Haller, who lawyers from the back seat of his car. It’s a tricky job when your native language isn’t English.`\
