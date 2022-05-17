@@ -11,7 +11,7 @@ https://nytimes.com/2022/05/17/t-magazine/mullets-hair-trend.html?searchResultPo
 https://nytimes.com/2022/05/17/theater/will-you-come-with-me-review.html?searchResultPosition=3
 
 **Zelensky addresses the Cannes opening ceremony.**\
-`By Eleanor Stanford`\
+`His appearance at the international festival followed similar addresses to Parliaments around the world, including Congress in March.`\
 https://nytimes.com/2022/05/17/movies/ukraine-zelensky-cannes-film-festival.html?searchResultPosition=4
 
 **Enter Stage Left: A Donkey Debuts at the Met Opera**\
