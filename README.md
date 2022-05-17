@@ -16,7 +16,7 @@ https://nytimes.com/2022/05/17/dining/nyc-restaurant-news.html?searchResultPosit
 
 **Revealing the Labor of Dance Through Constant Motion**\
 `The choreographer Abby Zbikowski brings her raw, genre-bending “Radioactive Practice” to New York Live Arts after a two-year delay.`\
-https://nytimes.com/2022/05/17/arts/dance/abby-zbikowski-new-york-live-arts.html?searchResultPosition=5
+https://nytimes.com/2022/05/17/arts/dance/new-york-live-arts-abby-zbikowski.html?searchResultPosition=5
 
 **American Stories, Coast to Coast**\
 `From California’s Central Valley to the Texas-Mexico border to rural North Carolina, fiction anchored by a strong sense of place.`\
