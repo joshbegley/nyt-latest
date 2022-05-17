@@ -2,8 +2,8 @@
 `Here is a heavy question about our galaxy.`\
 https://nytimes.com/interactive/2022/05/17/science/science-quiz-milky-way-black-hole.html?searchResultPosition=1
 
-**Suspect Is Arrested in Dallas Salon Shooting That May Be Linked to Other Attacks on Asians**\
-`The attack last week appeared to be part of a series of shootings at Asian businesses, the authorities had said.`\
+**Dallas Police Arrest Suspect in Attack on 3 Women of Korean Descent**\
+`The authorities said last week that the shooting at a hair salon in which three women were injured appeared to be related to a series of attacks against Asian businesses.`\
 https://nytimes.com/2022/05/17/us/dallas-shooting-asian-attacks.html?searchResultPosition=2
 
 **North Korea’s Covid outbreak continues to spiral.**\
