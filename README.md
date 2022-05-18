@@ -8,7 +8,7 @@ https://nytimes.com/2022/05/18/opinion/jobs-city-state.html?searchResultPosition
 
 **Strongmen in Turkey and Hungary Stall Unity in NATO and the E.U.**\
 `Russia benefits as Turkey slows down Swedish and Finnish applications to NATO and Hungary continues to block an E.U. embargo on Russian oil.`\
-https://nytimes.com/2022/05/18/world/europe/sweden-finland-nato-turkey-hungary-eu-oil-embargo-russia-ukraine.html?searchResultPosition=3
+https://nytimes.com/2022/05/18/world/europe/sweden-finland-nato-turkey-oil.html?searchResultPosition=3
 
 **Ashley Biden, President Biden’s daughter, tests positive for the coronavirus.**\
 `Ms. Biden is not considered a close contact to the first couple, according to a spokesman for the first lady.`\
