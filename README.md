@@ -1,40 +1,40 @@
-**Kim Kardashian Evokes Marilyn Monroe and We Get to Judge**\
-`The cherished pastime of critiquing celebrities’ red-carpet looks meets a new wrinkle.`\
-https://nytimes.com/2022/05/18/magazine/kim-kardashian-marilyn-monroe.html?searchResultPosition=1
+**Rich Beem Looks Back at His Improbable P.G.A. Championship**\
+`Twenty years ago, he beat Tiger Woods by one stroke to become the surprise winner of the event. It was his last win on the tour.`\
+https://nytimes.com/2022/05/18/sports/golf/rich-beem-pga-championship.html?searchResultPosition=1
 
-**After Buffalo, Will Anything Change at Facebook, Twitter or Fox News?**\
-`Wesley Lowery and Jared Holt discuss how people get stuck on “sticky floors of the extremism cave online” — and what platforms ought to do about it.`\
-https://nytimes.com/2022/05/18/opinion/sway-kara-swisher-wesley-lowery-jared-holt.html?searchResultPosition=2
+**The Scramble at Southern Hills**\
+`P.G.A. Championships are planned years in advance, but the club had less than two years to prepare when the event was moved from Trump Bedminster.`\
+https://nytimes.com/2022/05/18/sports/golf/southern-hills-country-club-pga-championship.html?searchResultPosition=2
 
-**The Economy Is Weird. Two Experts on Where It Goes From Here.**\
-`Is the U.S. economy really in bad shape, and is a recession coming?`\
-https://nytimes.com/2022/05/18/opinion/us-economy-inflation-the-argument.html?searchResultPosition=3
+**Around Kharkiv, Ukrainians Emerge to Find Lives in Ruin**\
+`By Finbarr O’Reilly`\
+https://nytimes.com/2022/05/18/world/europe/kharkiv-ukraine-russia-photos.html?searchResultPosition=3
 
-**How Many Close Friends Do You Need?**\
-`Research suggests there may be an ideal number of close friends we should have. What is that number for you?`\
-https://nytimes.com/2022/05/18/learning/how-many-close-friends-do-you-need.html?searchResultPosition=4
+**Catskill, N.Y.: A Place Where ‘People Are Jazzed About Making Art’**\
+`The Greene County town and the eponymous village at its heart have long drawn creative types. But now there’s a fresh influx from the city.`\
+https://nytimes.com/2022/05/18/realestate/catskill-ny-a-place-where-people-are-jazzed-about-making-art.html?searchResultPosition=4
 
-**Why Salmon and Rice Go So Well Together**\
-`With a funky, umami-packed sauce this salmon bowl highlights the old saying: What grows together goes together.`\
-https://nytimes.com/2022/05/18/magazine/salmon-rice.html?searchResultPosition=5
+**Living In ... Catskill, N.Y.**\
+`The Greene County town and the village of the same name at its heart have long drawn creative types. But now there’s a fresh influx from the city.`\
+https://nytimes.com/slideshow/2022/05/18/realestate/living-in-catskill-ny.html?searchResultPosition=5
 
-**Forget About Perfection. Embrace ‘Mamahuhu.’**\
-`The Chinese expression became my family’s motto for the haphazard nature of living on the margins.`\
-https://nytimes.com/2022/05/18/magazine/mamahuhu-life.html?searchResultPosition=6
+**In Death, One Man’s Chance at ‘Being the Smoke’**\
+`A small Colorado town maintains the country’s only public outdoor funeral pyre. Philip Incao saw it as his own perfect ending.`\
+https://nytimes.com/2022/05/18/us/colorado-funeral-pyre.html?searchResultPosition=6
 
-**Inflation in Britain hits 9 percent, the fastest pace in four decades.**\
-`The annual inflation rate jumped as household gas and electricity bills rose significantly.`\
-https://nytimes.com/2022/05/18/business/uk-inflation-economy.html?searchResultPosition=7
+**Crafting a Rom-Com That’s True to 21st-Century Gay Life**\
+`Billy Eichner and the “Bros” team made news by casting queer actors, but they also focused on writing a story that didn’t recycle straight tropes.`\
+https://nytimes.com/2022/05/18/movies/bros-billy-eichner.html?searchResultPosition=7
 
-**The White House virus briefings return.**\
-`After a six-week hiatus, a Covid briefing will be held on Wednesday morning. It will be the first formal on-camera session led by President Biden’s new coronavirus response coordinator, Dr. Ashish K. Jha.`\
-https://nytimes.com/2022/05/18/us/politics/white-house-covid-briefing.html?searchResultPosition=8
+**North Korea Wants to Follow China’s Covid ‘Success.’ Its Plan May Backfire.**\
+`As infections spread quickly, outside experts are warning that the country’s desire to mimic Beijing’s playbook could worsen a coming disaster.`\
+https://nytimes.com/2022/05/18/world/asia/north-korea-covid-china.html?searchResultPosition=8
 
-**Omens of Decline for Russia’s Once World-Leading Energy Industry**\
-`Sanctions have grounded Russia’s ambitious plans to build its liquefied natural gas capacity. Analysts say it’s a sign of problems ahead.`\
-https://nytimes.com/2022/05/18/business/russia-energy-oil-gazprom-lng.html?searchResultPosition=9
+**How a Trash-Talking Crypto Bro Caused a $40 Billion Crash**\
+`Do Kwon, a South Korean entrepreneur, hyped the Luna and TerraUSD cryptocurrencies. Their failures have devastated some traders, though not the investment firms that cashed out early.`\
+https://nytimes.com/2022/05/18/technology/terra-luna-cryptocurrency-do-kwon.html?searchResultPosition=9
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/05/18/crosswords/spelling-bee-forum.html?searchResultPosition=10
+**The Twisting Trail to the Tonys: ‘Can You Believe That We’re Here?’**\
+`At times it felt like a game of survival. But during a Broadway season unlike any other, productions showed their resourcefulness while learning how to live with Covid.`\
+https://nytimes.com/2022/05/18/theater/broadway-tonys.html?searchResultPosition=10
 
