@@ -4,7 +4,7 @@ https://nytimes.com/2022/05/18/world/asia/cambodia-plant-video.html?searchResult
 
 **Former Minneapolis Officer Pleads Guilty in George Floyd Case**\
 `Thomas Lane entered the plea in state court to a charge of second-degree manslaughter, Minnesota’s attorney general said.`\
-https://nytimes.com/2022/05/18/us/thomas-lane-guilty-plea-george-floyd.html?searchResultPosition=2
+https://nytimes.com/2022/05/18/us/thomas-lane-george-floyd.html?searchResultPosition=2
 
 **Riffing on a Classic Roman Pasta**\
 `Make salami pasta alla gricia, or skip the recipe entirely with a freestyle puttanesca.`\
