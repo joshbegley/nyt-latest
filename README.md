@@ -12,7 +12,7 @@ https://nytimes.com/2022/05/18/arts/television/marty-callner-comedy.html?searchR
 
 **Hochul Vows to Crack Down on Extremist Acts of Violence in New York**\
 `Gov. Kathy Hochul issued orders to strengthen the state’s “red-flag” law and create new units to target violent extremism online, following the Buffalo shooting that left 10 dead.`\
-https://nytimes.com/2022/05/18/nyregion/buffalo-shooting-red-flag-hochul.html?searchResultPosition=4
+https://nytimes.com/2022/05/18/nyregion/buffalo-shooting-hochul.html?searchResultPosition=4
 
 **Why does Tom Cruise do his own stunts? ‘No one asked Gene Kelly, ‘Why do you dance?’’**\
 `Cruise spoke at the 75th edition of the Cannes Film Festival for the premiere of “Top Gun: Maverick.”`\
