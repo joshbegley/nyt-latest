@@ -20,7 +20,7 @@ https://nytimes.com/2022/05/18/theater/neil-diamond-musical-broadway.html?search
 
 **She Wrote ‘How to Murder Your Husband.’ Did She Do It?**\
 `Prosecutors are building a follow-the-string murder case against a romance novelist. She says their real story is one about love.`\
-https://nytimes.com/2022/05/18/us/murder-husband-brophy-trial.html?searchResultPosition=6
+https://nytimes.com/2022/05/18/us/husband-murder-trial-nancy-brody.html?searchResultPosition=6
 
 **Here’s where Trump’s endorsement record stands so far.**\
 `The candidates endorsed by former President Donald J. Trump have succeeded in many of their early primaries, with some notable exceptions.`\
