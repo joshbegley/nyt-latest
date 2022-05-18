@@ -1,6 +1,6 @@
 **Midterm Stakes Grow Clearer: Election Deniers Will Be on Many Ballots**\
 `In primaries so far, Republican voters have appeared willing to nominate proponents of Donald Trump’s election falsehoods, making clear that this year’s races may well affect future elections.`\
-https://nytimes.com/2022/05/18/us/politics/midterms-trump-2020-election.html?searchResultPosition=1
+https://nytimes.com/2022/05/18/us/politics/midterms-trump-2020-election-deniers.html?searchResultPosition=1
 
 **A Panel to Combat Disinformation Becomes a Victim of It**\
 `The Department of Homeland Security suspended the work of a panel focused on the subject of disinformation. The group had provoked accusations of government overreach.`\
