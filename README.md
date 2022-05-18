@@ -12,7 +12,7 @@ https://nytimes.com/2022/05/18/learning/musical-instruments.html?searchResultPos
 
 **Tony Awards 2022: Who Will Win (and Who Should)**\
 `A critic’s picks in a hard-to-predict Broadway year, plus nods to shows from Off Broadway and other, odder corners.`\
-https://nytimes.com/2022/05/18/theater/tony-awards-who-will-win.html?searchResultPosition=4
+https://nytimes.com/2022/05/18/theater/tony-awards-2022.html?searchResultPosition=4
 
 **U.K. Lawmaker Reportedly Arrested Over Rape Allegations**\
 `The arrest, of a man who has not yet been identified, was the latest in a string of sexual misconduct allegations against members of Parliament.`\
