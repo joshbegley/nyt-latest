@@ -8,7 +8,7 @@ https://nytimes.com/2022/05/18/business/lafarge-human-rights-violations.html?sea
 
 **He Might Be the Most Influential Director You’ve Never Heard Of**\
 `Marty Callner made the first modern special, setting the template still in use. (He was also key to hair-metal videos. But that’s another story.)`\
-https://nytimes.com/2022/05/18/arts/television/marty-callner-comedy.html?searchResultPosition=3
+https://nytimes.com/2022/05/18/arts/television/comedy-director-marty-callner.html?searchResultPosition=3
 
 **Hochul Vows to Crack Down on Extremist Acts of Violence in New York**\
 `Gov. Kathy Hochul issued orders to strengthen the state’s “red-flag” law and create new units to target violent extremism online, following the Buffalo shooting that left 10 dead.`\
