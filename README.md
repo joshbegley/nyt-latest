@@ -6,7 +6,7 @@ https://nytimes.com/2022/05/18/us/politics/winners-losers-nc-pa-elections-primar
 `This word has appeared in 3,494 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2022/05/18/learning/word-of-the-day-vulnerable.html?searchResultPosition=2
 
-**Stephen Colbert Celebrates Sweden and Finland Joining NATO**\
+**Stephen Colbert Celebrates Sweden and Finland Applying to Join NATO**\
 `Colbert called the move “good news” based on it being “bad news for Russia.”`\
 https://nytimes.com/2022/05/18/arts/television/stephen-colbert-celebrates-sweden-and-finland-joining-nato.html?searchResultPosition=3
 
