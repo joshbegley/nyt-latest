@@ -8,7 +8,7 @@ https://nytimes.com/2022/05/18/us/thomas-lane-guilty-plea-george-floyd.html?sear
 
 **Riffing on a Classic Roman Pasta**\
 `Make salami pasta alla gricia, or skip the recipe entirely with a freestyle puttanesca.`\
-https://nytimes.com/2022/05/18/dining/riffing-on-a-classic-roman-pasta.html?searchResultPosition=3
+https://nytimes.com/2022/05/18/dining/roman-pasta-classic-recipe.html?searchResultPosition=3
 
 **2020 Election Deniers Deadlocked in Pennsylvania G.O.P. Senate Primary**\
 `A high-spending contest between David McCormick, a former hedge fund executive, and Dr. Mehmet Oz, the celebrity surgeon, was likely headed for a statewide recount with the race too close to call.`\
