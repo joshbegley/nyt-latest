@@ -4,7 +4,7 @@ https://nytimes.com/2022/05/19/movies/vincent-lindon-cannes-jury-president.html?
 
 **What’s Going on With the Testing Requirement for Travel?**\
 `The requirement to test for Covid before flying to the United States is hated by many travelers and the U.S. travel industry. But the government shows no sign of getting rid of it.`\
-https://nytimes.com/2022/05/19/travel/testing-requirement-flying-international.html?searchResultPosition=2
+https://nytimes.com/2022/05/19/travel/testing-requirement-flying-us-cdc.html?searchResultPosition=2
 
 **Abortion and America’s Polarized Politics**\
 `Readers discuss a Ross Douthat column that views Roe as an inflection point in our divisions. Also: A threat to democracy; diplomacy in Ukraine; don’t name gunmen.`\
