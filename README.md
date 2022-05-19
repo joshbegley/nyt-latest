@@ -35,6 +35,6 @@ https://nytimes.com/2022/05/19/business/stock-market-investors.html?searchResult
 https://nytimes.com/2022/05/19/us/2020-census-miscount-states.html?searchResultPosition=9
 
 **Tiger Woods Is Struggling at the P.G.A. Championship**\
-`In his first tournament since the Masters in April, Woods finished his first nine holes at even par, but soon ran into trouble.`\
-https://nytimes.com/2022/05/19/sports/tiger-woods-pga-championship.html?searchResultPosition=10
+`In his first tournament since the Masters in April, Woods finished his first nine holes at even par but soon ran into trouble.`\
+https://nytimes.com/2022/05/19/sports/golf/tiger-woods-pga-championship.html?searchResultPosition=10
 
