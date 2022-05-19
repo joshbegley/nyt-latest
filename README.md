@@ -1,4 +1,4 @@
-**Israeli Opposition Gets Parliament Majority, Raising Prospect of Election**\
+**Israeli Government Loses Parliament Majority, Raising Prospect of Election**\
 `A second lawmaker has defected from the government coalition. The move edges Israel closer to the polls for the fifth time in three years.`\
 https://nytimes.com/2022/05/19/world/middleeast/israel-opposition-parliament-majority.html?searchResultPosition=1
 
