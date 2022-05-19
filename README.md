@@ -1,6 +1,6 @@
 **The incoming U.S. ambassador to Ukraine has experience in countries shaped by Soviet domination.**\
 `Bridget Brink has worked in Slovakia, Uzbekistan and Georgia. She is filling a role that has been empty for three years.`\
-https://nytimes.com/2022/05/19/world/europe/ukraine-ambassador-brink.html?searchResultPosition=1
+https://nytimes.com/2022/05/19/world/europe/ukraine-ambassador-bridget-brink.html?searchResultPosition=1
 
 **Demolition for Jail Can Go Forward, Judge Rules in a Suit Brought by Artists**\
 `Two artists, whose works are at risk of being moved and demolished, are seeking an injunction against the city construction, citing the Visual Artists Rights Act.`\
