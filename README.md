@@ -10,13 +10,13 @@ https://nytimes.com/2022/05/19/arts/design/lorraine-hansberry-statue-times-squar
 `Both sides are moving too hastily to regulate online speech.`\
 https://nytimes.com/2022/05/19/opinion/buffalo-shooting-internet-regulations.html?searchResultPosition=3
 
-**The End of Inevitable American Progress**\
-`So where are we headed now?`\
-https://nytimes.com/2022/05/19/opinion/history-american-progress.html?searchResultPosition=4
-
 **The War in Ukraine Is Getting Complicated, and America Isn’t Ready**\
 `U.S. support for the war is not guaranteed.`\
-https://nytimes.com/2022/05/19/opinion/america-ukraine-war.html?searchResultPosition=5
+https://nytimes.com/2022/05/19/opinion/america-ukraine-war-support.html?searchResultPosition=4
+
+**The End of Inevitable American Progress**\
+`So where are we headed now?`\
+https://nytimes.com/2022/05/19/opinion/history-american-progress.html?searchResultPosition=5
 
 **Big Questions Remain About White House Plan to Speed Formula to Shelves**\
 `A day after invoking the Defense Production Act to help alleviate a nationwide shortage, administration officials had few answers for how the law would lead to more supply.`\
