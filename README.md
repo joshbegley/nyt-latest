@@ -1,6 +1,6 @@
 **Hello, I’m a Journalist. Can We Talk?**\
 `On assignment, Times reporters often introduce themselves to people with different versions of the same line.`\
-https://nytimes.com/2022/05/19/insider/hello-im-a-journalist-can-we-talk.html?searchResultPosition=1
+https://nytimes.com/2022/05/19/insider/journalist-interview-reporting.html?searchResultPosition=1
 
 **Human Skull About 8,000 Years Old Is Found in Minnesota River**\
 `The skull most likely belonged to a young man who lived around 5500 to 6000 B.C., the authorities said. It was found by two kayakers on a river depleted by drought.`\
