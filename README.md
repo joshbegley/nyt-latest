@@ -10,7 +10,7 @@ https://nytimes.com/2022/05/18/theater/exception-to-the-rule-review.html?searchR
 `The president invoked the Defense Production Act to boost supply and directed federal agencies to use Defense Department planes to speed shipments of formula from overseas.`\
 https://nytimes.com/2022/05/18/us/politics/biden-baby-formula-shortage.html?searchResultPosition=3
 
-**Tired of Massacres? Get Rid of the Guns.**\
+**Sick of Massacres? Get Rid of the Guns.**\
 `Deadly mass shootings have something in common.`\
 https://nytimes.com/2022/05/18/opinion/buffalo-shooting-gun-control.html?searchResultPosition=4
 
