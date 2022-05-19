@@ -30,11 +30,11 @@ https://nytimes.com/2022/05/19/arts/television/george-carlin-documentary-the-por
 `Paolo Pellegrin traveled across a country under attack, capturing scenes of devastation, death and grief.`\
 https://nytimes.com/interactive/2022/05/19/magazine/ukraine-photographs.html?searchResultPosition=8
 
+**Navalny’s anti-corruption group urges Congress to place sanctions on 6,000 of Putin’s midlevel cronies.**\
+`The activists are pitching sanctions on midlevel officials as a cost-free way for the United States to further isolate the Russian president.`\
+https://nytimes.com/2022/05/19/world/putin-sanctions-aleksei-navalny.html?searchResultPosition=9
+
 **The True Cost of the Climate Stalemate in Congress**\
 `The window for congressional action on climate is closing — potentially for quite a while.`\
-https://nytimes.com/2022/05/19/opinion/environment/build-back-better-joe-manchin.html?searchResultPosition=9
-
-**Surviving the Siege of Kharkiv**\
-`How Ukrainians in a city 25 miles from the Russian border have forged a new wartime culture.`\
-https://nytimes.com/interactive/2022/05/19/magazine/kharkiv-siege.html?searchResultPosition=10
+https://nytimes.com/2022/05/19/opinion/environment/build-back-better-joe-manchin.html?searchResultPosition=10
 
