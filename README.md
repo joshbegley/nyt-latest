@@ -6,8 +6,8 @@ https://nytimes.com/2022/05/19/sports/soccer/qatar-world-cup-women-referees.html
 `After California introduced a law requiring public companies to add at least one female director, the share of companies in the state without women on their boards fell to 1 percent.`\
 https://nytimes.com/2022/05/19/business/another-california-board-diversity-law-was-struck-down-but-it-already-had-a-big-impact.html?searchResultPosition=2
 
-**U.K. Police End Investigation Into Lockdown Parties at Downing Street**\
-`Prime Minister Boris Johnson received one of the 126 fines imposed, but a lack of new penalties for him lifts a cloud that had hung over his political future.`\
+**Boris Johnson Avoids Further Fines as Police End Lockdown Inquiry**\
+`The police ended their investigation into parties at Downing Street that violated Covid rules, lifting a cloud over the prime minister’s political future.`\
 https://nytimes.com/2022/05/19/world/europe/uk-covid-lockdown-parties-boris-johnson.html?searchResultPosition=3
 
 **East Coast to Sizzle in Record Weekend Heat**\
