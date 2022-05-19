@@ -31,7 +31,7 @@ https://nytimes.com/2022/05/19/science/ben-roy-mottelson-dead.html?searchResultP
 https://nytimes.com/2022/05/19/business/arkansas-family-dollar-closing.html?searchResultPosition=8
 
 **How Many Hits Did Eddie Collins Have? It Varies.**\
-`When Albert Pujols collected hit No. 3,314, the Cardinals celebrated him for passing Collins on the career hits list. Some record keepers weren’t so sure.`\
+`When Albert Pujols collected hit No. 3,314, the Cardinals celebrated him for passing Collins on the career hits list. Some recordkeepers weren’t so sure.`\
 https://nytimes.com/2022/05/19/sports/baseball/eddie-collins-albert-pujols-hits.html?searchResultPosition=9
 
 **At the Shed, Frieze II Takes Off**\
