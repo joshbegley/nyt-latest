@@ -32,7 +32,7 @@ https://nytimes.com/2022/05/19/style/open-relationship-social-qs.html?searchResu
 
 **3 Local Races We’re Closely Watching in California**\
 `The June 7 election will provide a window into the views of Californians on how to best tackle homelessness, crime and more.`\
-https://nytimes.com/2022/05/19/us/california-election-local-races.html?searchResultPosition=9
+https://nytimes.com/2022/05/19/us/california-election-2022.html?searchResultPosition=9
 
 **Elon Musk’s Next Target**\
 `The billionaire railed against E.S.G. after Tesla was dropped from a popular index.`\
