@@ -32,7 +32,7 @@ https://nytimes.com/2022/05/19/movies/torn-hearts-review.html?searchResultPositi
 
 **WhatsApp introduces commercial services as Meta, its parent, seeks fresh revenue.**\
 `For a fee, the app will allow businesses to build a custom dashboard so they can chat with customers and offer customer services more easily.`\
-https://nytimes.com/2022/05/19/technology/whatsapp-commercial-services-revenue.html?searchResultPosition=9
+https://nytimes.com/2022/05/19/technology/whatsapp-meta-commercial-services.html?searchResultPosition=9
 
 **Lawmakers Grill F.D.A. Chief on Baby Formula Oversight Amid Shortages**\
 `Dr. Robert Califf, the agency commissioner, is the first administration official to face congressional scrutiny over the infant formula supply crisis.`\
