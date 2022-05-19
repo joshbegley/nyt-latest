@@ -1,40 +1,40 @@
+**The Senate overwhelmingly approves $40 billion in aid to Ukraine, sending it to Biden.**\
+`The measure’s relatively smooth path through Congress has reflected a broad consensus on Capitol Hill, for now, to devote massive sums to supporting Ukraine’s war effort.`\
+https://nytimes.com/2022/05/19/us/politics/senate-passes-ukraine-aid.html?searchResultPosition=1
+
+**‘Torn Hearts’ Review: Sequins and Savagery**\
+`In this horror movie with a Southern twang, an aspiring country duo seek guidance from their unhinged icon.`\
+https://nytimes.com/2022/05/19/movies/torn-hearts-review.html?searchResultPosition=2
+
 **WhatsApp introduces commercial services as Meta, its parent, seeks fresh revenue.**\
 `For a fee, the app will allow businesses to build a custom dashboard so they can chat with customers and offer customer services more easily.`\
-https://nytimes.com/2022/05/19/technology/whatsapp-commercial-services-revenue.html?searchResultPosition=1
+https://nytimes.com/2022/05/19/technology/whatsapp-commercial-services-revenue.html?searchResultPosition=3
 
 **Lawmakers Grill F.D.A. Chief on Baby Formula Oversight Amid Shortages**\
 `Dr. Robert Califf, the agency commissioner, is the first administration official to face congressional scrutiny over the infant formula supply crisis.`\
-https://nytimes.com/2022/05/19/health/fda-califf-senate-baby-formula.html?searchResultPosition=2
+https://nytimes.com/2022/05/19/health/fda-califf-senate-baby-formula.html?searchResultPosition=4
 
 **Savory Rhubarb, and Tofu Two Ways**\
 `Make khoresh rivas if you have some time, or a quick tofu soup if you don’t.`\
-https://nytimes.com/2022/05/19/dining/savory-rhubarb-and-tofu-two-ways.html?searchResultPosition=3
+https://nytimes.com/2022/05/19/dining/savory-rhubarb-and-tofu-two-ways.html?searchResultPosition=5
 
 **Has the Crypto Crash Hurt Your Investments? We Want to Hear About It.**\
 `Tell us about your experiences in the volatile crypto market.`\
-https://nytimes.com/2022/05/19/technology/crypto-investments-crash.html?searchResultPosition=4
+https://nytimes.com/2022/05/19/technology/crypto-investments-crash.html?searchResultPosition=6
 
 **‘Men’ Review: Putting the ‘Male’ in Malevolent**\
 `Alex Garland’s latest film stars Jessie Buckley as a woman whose peaceful trip to the countryside turns creepy and allegorical.`\
-https://nytimes.com/2022/05/19/movies/men-review.html?searchResultPosition=5
+https://nytimes.com/2022/05/19/movies/men-review.html?searchResultPosition=7
 
 **At Cannes, Vincent Lindon Still Can’t Believe He’s Jury President**\
 `As the star of a Palme d’Or winner, he’s seen how the award can change lives, so he takes his duties seriously.`\
-https://nytimes.com/2022/05/19/movies/cannes-jury-vincent-lindon.html?searchResultPosition=6
+https://nytimes.com/2022/05/19/movies/cannes-jury-vincent-lindon.html?searchResultPosition=8
 
 **What’s Going on With the Testing Requirement for Travel?**\
 `The requirement to test for Covid before flying to the United States is hated by many travelers and the U.S. travel industry. But the government shows no sign of getting rid of it.`\
-https://nytimes.com/2022/05/19/travel/testing-requirement-flying-us-cdc.html?searchResultPosition=7
+https://nytimes.com/2022/05/19/travel/testing-requirement-flying-us-cdc.html?searchResultPosition=9
 
 **Abortion and America’s Polarized Politics**\
 `Readers discuss a Ross Douthat column that views Roe as an inflection point in our divisions. Also: A threat to democracy; diplomacy in Ukraine; don’t name gunmen.`\
-https://nytimes.com/2022/05/19/opinion/letters/abortion-roe-v-wade.html?searchResultPosition=8
-
-**Thousands of Migrants Have Been Waiting for Months to Enter U.S.**\
-`People from around the world have been lingering on the border, awaiting the end of pandemic restrictions. Their fate remains one of the Biden administration’s biggest challenges on immigration.`\
-https://nytimes.com/2022/05/19/us/migrants-border-title-42.html?searchResultPosition=9
-
-**Gerhard Schröder, a former German chancellor, loses perks over his ties to Russia.**\
-`The former German leader, a lobbyist for Russian energy companies and a friend of President Vladimir V. Putin, has declined to distance himself from Russia.`\
-https://nytimes.com/2022/05/19/world/europe/gerhard-schroder-russia.html?searchResultPosition=10
+https://nytimes.com/2022/05/19/opinion/letters/abortion-roe-v-wade.html?searchResultPosition=10
 
