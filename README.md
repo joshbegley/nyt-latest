@@ -4,7 +4,7 @@ https://nytimes.com/2022/05/19/us/donald-k-ross-dead.html?searchResultPosition=1
 
 **A Russian official tours occupied southern Ukraine.**\
 `The official, Marat Khusnullin, Russia’s deputy prime minister for infrastructure, outlined plans to take control of vital infrastructure.`\
-https://nytimes.com/2022/05/19/world/a-russian-official-tours-occupied-southern-ukraine.html?searchResultPosition=2
+https://nytimes.com/2022/05/19/world/russia-ukraine-kherson-zelensky.html?searchResultPosition=2
 
 **The incoming U.S. ambassador to Ukraine has experience in countries shaped by Soviet domination.**\
 `Bridget Brink has worked in Slovakia, Uzbekistan and Georgia. She is filling a role that has been empty for three years.`\
