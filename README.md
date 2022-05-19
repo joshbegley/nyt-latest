@@ -20,7 +20,7 @@ https://nytimes.com/2022/05/19/us/politics/biden-trip-asia.html?searchResultPosi
 
 **Tiger Woods: My Leg Feels OK, as Long as I Don’t Play Golf**\
 `Woods could make only wry jokes after a painful and disappointing first round at the P.G.A. Championship.`\
-https://nytimes.com/2022/05/19/sports/golf/tiger-woods-my-leg-feels-ok-as-long-as-i-dont-play-golf.html?searchResultPosition=6
+https://nytimes.com/2022/05/19/sports/golf/tiger-woods-first-round-pga-championship.html?searchResultPosition=6
 
 **Biden Seeks Swift Effort to Bring Finland and Sweden Into NATO**\
 `Speedy approval seems likely among most members of the alliance in the wake of Russia’s invasion of Ukraine, but Turkey’s objections remain a sticking point.`\
