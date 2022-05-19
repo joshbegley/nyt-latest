@@ -30,8 +30,8 @@ https://nytimes.com/2022/05/19/business/stock-market-investors.html?searchResult
 `A survey indicated that census takers in 2020 undercounted the number of people in six states, mostly in the South, and overcounted in eight others. Covid is among many possible reasons.`\
 https://nytimes.com/2022/05/19/us/2020-census-miscount-states.html?searchResultPosition=8
 
-**Tiger Woods Is Off to a Decent Start at the P.G.A. Championship**\
-`In his first tournament since the Masters in April, Woods finished his first nine holes at even par and showed few obvious signs of the leg injuries he suffered in a car crash.`\
+**Tiger Woods Is Struggling at the P.G.A. Championship**\
+`In his first tournament since the Masters in April, Woods finished his first nine holes at even par, but soon ran into trouble.`\
 https://nytimes.com/2022/05/19/sports/tiger-woods-pga-championship.html?searchResultPosition=9
 
 **Russian soldier apologizes at war crimes trial to the widow of the man he killed.**\
