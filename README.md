@@ -16,7 +16,7 @@ https://nytimes.com/slideshow/2022/05/19/realestate/housing-market-near-nyc.html
 
 **Homes for Sale in New York City**\
 `This week’s properties are in Manhattan Valley, on the Upper West Side and in Bushwick.`\
-https://nytimes.com/2022/05/19/realestate/housing-market-nyc.html?searchResultPosition=5
+https://nytimes.com/2022/05/19/realestate/ny-housing-market.html?searchResultPosition=5
 
 **Homes for Sale in New York City**\
 `This week’s properties are in Manhattan Valley, on the Upper West Side and in Bushwick.`\
