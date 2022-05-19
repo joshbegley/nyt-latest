@@ -36,5 +36,5 @@ https://nytimes.com/2022/05/19/us/politics/g7-ukraine-aid.html?searchResultPosit
 
 **Bruce Mau: A Designer Puts Life on the Drawing Boards**\
 `A new film about the celebrated graphic designer follows his career as the scale of his projects goes from small to extra large to global.`\
-https://nytimes.com/2022/05/19/arts/design/bruce-mau-design-movie-documentary.html?searchResultPosition=10
+https://nytimes.com/2022/05/19/arts/design/movie-bruce-mau-design.html?searchResultPosition=10
 
