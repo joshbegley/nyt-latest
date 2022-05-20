@@ -18,8 +18,8 @@ https://nytimes.com/2022/05/20/movies/cannes-2022-jessica-chastain-donald-trump-
 `Philip Glass’s portrait of a pathbreaking pharaoh returns to the Metropolitan Opera for the first time since its hit debut there in 2019.`\
 https://nytimes.com/2022/05/20/arts/music/akhnaten-met-opera-review.html?searchResultPosition=5
 
-**Men’s Tennis Tour Penalizes Wimbledon Over Ban on Russian Players**\
-`In an unprecedented move, the ATP will strip the Grand Slam tournament of ranking points, effectively making it an exhibition event. Most top players are still expected to participate.`\
+**Tennis Tours Penalize Wimbledon Over Ban on Russian Players**\
+`In an unprecedented move, the ATP and WTA will strip the Grand Slam tournament of ranking points, effectively making it an exhibition event. Most top players are still expected to participate.`\
 https://nytimes.com/2022/05/20/sports/tennis/wimbledon-russia-ukraine-atp.html?searchResultPosition=6
 
 **Wonking Out: Is Stagflation Making a Comeback?**\
