@@ -1,40 +1,40 @@
+**A ‘Glitch’ in Federal Health Insurance May Soon Be Fixed**\
+`Federal rules make it hard for relatives of people with job-based coverage to qualify for financial help in buying Obamacare insurance. The Biden administration wants to change that.`\
+https://nytimes.com/2022/05/20/your-money/federal-health-insurance-glitch.html?searchResultPosition=1
+
+**Sacred or Sexist? After a BrazenTheft, Seeing de Kooning in a New Light.**\
+`When “Woman-Ochre” goes on view at the Getty Museum after its conservation, the painting will have a new mystique. But competing interpretations remain.`\
+https://nytimes.com/2022/05/20/arts/design/de-kooning-getty-restoration-theft-art.html?searchResultPosition=2
+
+**Free Ambulances in Mogadishu, Thanks to This Determined Dentist**\
+`Dismayed that victims of the incessant violence in Somalia’s capital were being rolled to hospitals on wooden carts and in wheelbarrows, a dentist decided to do something about it.`\
+https://nytimes.com/2022/05/20/world/africa/mogadishu-somalia-free-ambulance.html?searchResultPosition=3
+
+**What’s Next for California’s Last Nuclear Power Plant**\
+`The Diablo Canyon plant near San Luis Obispo was scheduled to close in 2025, but that plan now appears to be in flux.`\
+https://nytimes.com/2022/05/20/us/california-nuclear-power.html?searchResultPosition=4
+
+**‘Casanova Scammer’ Pleads Guilty to Defrauding More Than 30 Women**\
+`Purporting to be a medical doctor who had attended prestigious universities, he persuaded those he met on dating websites to send him large sums of money, luxury items and bank account information.`\
+https://nytimes.com/2022/05/20/us/casanova-scammer-romance-guilty.html?searchResultPosition=5
+
 **G7 nations pledge $20 billion to Ukraine.**\
 `Financing will be directed to keep government operations running amid the Russian war.`\
-https://nytimes.com/2022/05/20/business/g7-20-billion-ukraine.html?searchResultPosition=1
+https://nytimes.com/2022/05/20/business/g7-20-billion-ukraine.html?searchResultPosition=6
 
 **In Milan, an Iconic Stadium Isn’t Going Down Without a Fight**\
 `The soccer teams that share the San Siro, which has hosted two World Cups and four European finals, want to replace it with a more modern arena. Not everyone is ready to see it go.`\
-https://nytimes.com/2022/05/20/sports/soccer/milan-inter-san-siro.html?searchResultPosition=2
+https://nytimes.com/2022/05/20/sports/soccer/milan-inter-san-siro.html?searchResultPosition=7
 
 **Combing the Beach, and the Archives, to Revive ‘The Wreckers’**\
 `In the early 20th century, Smyth was probably the most famous female composer of her generation, but her music fell out of the repertoire. Glyndebourne Festival Opera is bringing back her 1906 maritime opera.`\
-https://nytimes.com/2022/05/20/arts/music/the-wreckers-ethel-smyth-glyndebourne.html?searchResultPosition=3
+https://nytimes.com/2022/05/20/arts/music/the-wreckers-ethel-smyth-glyndebourne.html?searchResultPosition=8
 
 **In Pictures: Sri Lanka’s Protesters Remain Defiant**\
 `As the pain of an economic crisis deepens, a nation’s anger and desperation are visible.`\
-https://nytimes.com/2022/05/20/world/asia/sri-lanka-protests.html?searchResultPosition=4
+https://nytimes.com/2022/05/20/world/asia/sri-lanka-protests.html?searchResultPosition=9
 
 **Warhol Museum Reimagines the Factory in a New ‘Pop District’**\
 `The museum aims to create an arts and music destination in Pittsburgh, teach skills to young people and shore up its finances.`\
-https://nytimes.com/2022/05/20/arts/design/andy-warhol-museum-pop-district.html?searchResultPosition=5
-
-**They left craters of grief: Here’s a closer look at the impact of one million U.S. Covid deaths.**\
-`Experts say that grief over a death affects a wide range of people, beyond those who might be mentioned in an obituary.`\
-https://nytimes.com/2022/05/20/us/us-covid-deaths-impact.html?searchResultPosition=6
-
-**A Room in Midtown Is Quietly Fighting the Battle Against City Noise**\
-`A new room in Manhattan, billed as ‘one of the quietest in the world,’ is designed to help developers and architects defend your ears.`\
-https://nytimes.com/2022/05/20/realestate/pindrop-midtown-manhattan.html?searchResultPosition=7
-
-**A Weak Euro Heads to an Uncomfortable Milestone: Parity With the Dollar**\
-`The euro hasn’t fallen below the one-to-one exchange rate with the U.S. dollar for two decades. But as economic risks grow, more analysts predict deeper lows for the shared currency.`\
-https://nytimes.com/2022/05/20/business/economy/euro-dollar-parity.html?searchResultPosition=8
-
-**A Pro-Life Doctor on Performing a Lifesaving Abortion**\
-`“If God does not want us to perform abortions, why did he put me in a situation where I would have to do one?”`\
-https://nytimes.com/2022/05/20/opinion/pro-life-doctor-lifesaving-abortion.html?searchResultPosition=9
-
-**‘Cyber Hell’ Review: When Chat Rooms Become Sites of Exploitation**\
-`This true-crime documentary, subtitled “Exposing an Internet Horror,” recounts a South Korean case in which chat room operators blackmailed young women into sending explicit videos.`\
-https://nytimes.com/2022/05/20/movies/cyber-hell-review.html?searchResultPosition=10
+https://nytimes.com/2022/05/20/arts/design/andy-warhol-museum-pop-district.html?searchResultPosition=10
 
