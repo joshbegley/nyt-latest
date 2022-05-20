@@ -8,7 +8,7 @@ https://nytimes.com/2022/05/20/arts/design/de-kooning-getty-restoration-theft-ar
 
 **Free Ambulances in Mogadishu, Thanks to This Determined Dentist**\
 `Dismayed that victims of the incessant violence in Somalia’s capital were being rolled to hospitals on wooden carts and in wheelbarrows, a dentist decided to do something about it.`\
-https://nytimes.com/2022/05/20/world/africa/mogadishu-somalia-free-ambulance.html?searchResultPosition=3
+https://nytimes.com/2022/05/20/world/africa/somalia-free-ambulance.html?searchResultPosition=3
 
 **What’s Next for California’s Last Nuclear Power Plant**\
 `The Diablo Canyon plant near San Luis Obispo was scheduled to close in 2025, but that plan now appears to be in flux.`\
