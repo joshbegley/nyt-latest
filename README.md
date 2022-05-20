@@ -1,5 +1,5 @@
-**Baby Formula Shortage Has an Aggravating Factor: Few Players**\
-`With just a handful of companies producing U.S. infant formula, a shutdown of Abbott’s plant had outsized impact on the supply.`\
+**Baby Formula Shortage Has an Aggravating Factor: Few Producers**\
+`With just a handful of companies making U.S. infant formula, a shutdown of Abbott’s plant had outsized impact on the supply.`\
 https://nytimes.com/2022/05/20/business/economy/baby-formula-shortage-market.html?searchResultPosition=1
 
 **Pentagon Taps Next Commander of U.S. Forces in Africa**\
