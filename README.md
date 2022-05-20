@@ -30,11 +30,11 @@ https://nytimes.com/2022/05/19/well/live/what-is-fentanyl.html?searchResultPosit
 `A former F.B.I. official said Michael Sussmann, a lawyer accused of lying to the F.B.I., told him he was reporting Trump suspicions on his own, not on behalf of Hillary Clinton’s campaign.`\
 https://nytimes.com/2022/05/19/us/politics/michael-sussmann-trial-durham.html?searchResultPosition=8
 
-**How The Times and others count the unfathomable number of a million U.S. virus deaths.**\
-`Even the White House has acknowledged that there is no consensus method for compiling coronavirus data.`\
-https://nytimes.com/2022/05/19/us/covid-death-count.html?searchResultPosition=9
-
 **Greeted with a traditional fire, Charles dances with the Dene people and talks privately with their leaders.**\
 `A dance in a circular room capped the prince’s third and final day in Canada, on a visit that highlighted tensions between Indigenous people and the Crown.`\
-https://nytimes.com/2022/05/19/world/prince-charles-indigenous-dene.html?searchResultPosition=10
+https://nytimes.com/2022/05/19/world/prince-charles-indigenous-dene.html?searchResultPosition=9
+
+**Moscow Moves to Russify Seized Ukraine Land, Signaling Annexation**\
+`The territory occupied by Russian forces so far in the three-month-old invasion deserves “a worthy place in our Russian family,” a Kremlin official who toured the region said.`\
+https://nytimes.com/2022/05/19/world/europe/moscow-russifying-captured-territory.html?searchResultPosition=10
 
