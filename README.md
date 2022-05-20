@@ -1,40 +1,40 @@
+**Eric Adams Resists ‘Shutdown Thoughts’ Despite Covid Rise**\
+`The mayor does not want to return to the days of mask mandates, saying the city can’t function if it panics over every new variant.`\
+https://nytimes.com/2022/05/20/nyregion/eric-adams-resists-shutdown-thoughts-despite-covid-rise.html?searchResultPosition=1
+
 **A Hat Tip to 4 New Picture Books**\
 `Three off-the-top-of-the-head stories and a piece of fitting history.`\
-https://nytimes.com/2022/05/20/books/review/mae-makes-a-way-the-true-story-of-mae-reeves-hat-and-history-maker-olugbemisola-rhuday-perkovich-andrea-pippins.html?searchResultPosition=1
+https://nytimes.com/2022/05/20/books/review/mae-makes-a-way-the-true-story-of-mae-reeves-hat-and-history-maker-olugbemisola-rhuday-perkovich-andrea-pippins.html?searchResultPosition=2
 
 **Step by Step, Embracing a Future With Each Other**\
 `Doug Lockwood and Linda Murphy met in 2019 as members of a support group for people who had lost longtime spouses. A year later came a series of walks that eventually led them to the altar.`\
-https://nytimes.com/2022/05/20/style/doug-lockwood-linda-murphy-wedding.html?searchResultPosition=2
+https://nytimes.com/2022/05/20/style/doug-lockwood-linda-murphy-wedding.html?searchResultPosition=3
 
 **No Longer My Mother’s Daughter**\
 `“I am transmasculine, which is to say I understand my body even less than I understand my mother.”`\
-https://nytimes.com/2022/05/20/style/modern-love-no-longer-my-mothers-daughter.html?searchResultPosition=3
+https://nytimes.com/2022/05/20/style/modern-love-no-longer-my-mothers-daughter.html?searchResultPosition=4
 
 **Halfway Around the World, Their Paths Finally Crossed**\
 `Sope Ogundipe’s mother had prayed he would one day marry a Nigerian woman. That day came after meeting Iyanu Imoru at a computing conference in San Diego.`\
-https://nytimes.com/2022/05/20/style/mosopefoluwa-ogundipe-iyanuoluwa-imoru-wedding.html?searchResultPosition=4
+https://nytimes.com/2022/05/20/style/mosopefoluwa-ogundipe-iyanuoluwa-imoru-wedding.html?searchResultPosition=5
 
 **Catching Feelings, and the Flu**\
 `Wanting to end their first date on a romantic note, Dr. Shilpen Patel leaned in for a kiss with Yuming Chiu, who did not mention he was a little sick.`\
-https://nytimes.com/2022/05/20/style/shilpen-patel-yuming-chiu-wedding.html?searchResultPosition=5
+https://nytimes.com/2022/05/20/style/shilpen-patel-yuming-chiu-wedding.html?searchResultPosition=6
 
 **Bonding Over a Love of Cat Power and Senior Dogs**\
 `Michael Grassi and Matthew McConkey quickly connected over their favorite musician and deepened their relationship through a mutual fondness for older dogs.`\
-https://nytimes.com/2022/05/20/style/michael-grassi-matthew-mcconkey-wedding.html?searchResultPosition=6
+https://nytimes.com/2022/05/20/style/michael-grassi-matthew-mcconkey-wedding.html?searchResultPosition=7
 
 **Focused on Their Careers, They Never Lost Sight of One Another**\
 `Shaheen Butt knew he wanted to marry Mina Im, an Instagram influencer, shortly after meeting her more than a decade ago. “But life gets in the way when you’re chasing careers,” he said.`\
-https://nytimes.com/2022/05/20/style/shaheen-butt-mina-im-wedding.html?searchResultPosition=7
+https://nytimes.com/2022/05/20/style/shaheen-butt-mina-im-wedding.html?searchResultPosition=8
 
 **Starting a Life Together Where Others Are Laid to Rest**\
 `Hannah Margaret Allen and Grant Schumacher chose to marry at her family’s funeral home, where “there’s a lot of life and energy,” said the groom.`\
-https://nytimes.com/2022/05/20/style/hannah-margaret-allen-grant-schumacher-wedding.html?searchResultPosition=8
+https://nytimes.com/2022/05/20/style/hannah-margaret-allen-grant-schumacher-wedding.html?searchResultPosition=9
 
 **Corrections: May 20, 2022**\
 `Corrections that appeared in print on Friday, May 20, 2022.`\
-https://nytimes.com/2022/05/19/pageoneplus/corrections-may-20-2022.html?searchResultPosition=9
-
-**Quotation of the Day: Riding 40 Foot Waves, Without a Surfboard**\
-`Quotation of the Day for Friday, May 20, 2022.`\
-https://nytimes.com/2022/05/19/todayspaper/quotation-of-the-day-riding-40foot-waves-without-a-surfboard.html?searchResultPosition=10
+https://nytimes.com/2022/05/19/pageoneplus/corrections-may-20-2022.html?searchResultPosition=10
 
