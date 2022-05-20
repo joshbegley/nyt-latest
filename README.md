@@ -34,7 +34,7 @@ https://nytimes.com/2022/05/20/opinion/johnny-depp-amber-heard-social-media-sexi
 `A reader asks for advice on shopping ethically and affordably.`\
 https://nytimes.com/2022/05/20/fashion/fast-fashion-sustainable-clothing.html?searchResultPosition=9
 
-**The C.D.C. now says adults 50 and older should get a second booster, amid rising U.S. cases and hospitalizations.**\
-`Previously, the agency said those 50 and older could opt for the additional shot, but only encouraged people over 65 or with underlying medical conditions to get it.`\
+**C.D.C. Urges Adults 50 and Older to Get Second Booster Shot**\
+`Previously, the agency said those 50 and older could opt for the additional shot, but encouraged only people over 65 or with underlying medical conditions to get it.`\
 https://nytimes.com/2022/05/20/us/politics/cdc-second-booster.html?searchResultPosition=10
 
