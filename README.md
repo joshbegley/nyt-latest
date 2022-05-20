@@ -1,6 +1,6 @@
 **The Allegations Against Musk**\
 `Musk has denied claims of sexual misconduct against an employee, saying that Insider wrote the story to interfere with his acquisition of Twitter.`\
-https://nytimes.com/2022/05/20/business/dealbook/musk-sexual-misconduct-allegations.html?searchResultPosition=1
+https://nytimes.com/2022/05/20/business/dealbook/twitter-musk-flight-attendant.html?searchResultPosition=1
 
 **A ‘Glitch’ in Federal Health Insurance May Soon Be Fixed**\
 `Federal rules make it hard for relatives of people with job-based coverage to qualify for financial help in buying Obamacare insurance. The Biden administration wants to change that.`\
