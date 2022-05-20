@@ -22,8 +22,8 @@ https://nytimes.com/2022/05/20/world/asia/biden-asia-samsung-economy.html?search
 `President Biden toured a Samsung semiconductor facility in South Korea, kicking off a five-day visit to Asia aiming to restore waning American economic influence in the region and combat supply chain disruptions.`\
 https://nytimes.com/video/us/politics/100000008359472/south-korea-biden-economy-asia.html?searchResultPosition=6
 
-**De Blasio Will Run for House Seat in Newly Drawn District**\
-`Bill de Blasio, the ex-mayor of New York City, said on Friday that he would run for Congress in a new district that includes parts of Brooklyn and Manhattan.`\
+**De Blasio Will Run for Congress in Newly Drawn District**\
+`Bill de Blasio, the ex-mayor of New York City, said on Friday that he would run for the House of Representatives in a new district that includes parts of Brooklyn and Manhattan.`\
 https://nytimes.com/2022/05/20/nyregion/de-blasio-congress-running.html?searchResultPosition=7
 
 **Rina Sawayama Flips Damnation Into a Dance Party, and 15 More New Songs**\
