@@ -1,6 +1,6 @@
 **Clam Dip, but a Little Hot and Spicy**\
 `This revamped 1950s staple, a celebration of canned clams, takes some cues from rich, cheesy crab dip.`\
-https://nytimes.com/2022/05/20/dining/clam-dip-hot-spicy.html?searchResultPosition=1
+https://nytimes.com/2022/05/20/dining/clam-dip-recipe-revamped.html?searchResultPosition=1
 
 **Watch Jessie Buckley Take a Haunting Tunnel Walk in ‘Men’**\
 `The writer and director Alex Garland narrates a sequence from his film.`\
