@@ -1,40 +1,40 @@
+**Warhol Museum Reimagines the Factory in a New ‘Pop District’**\
+`The museum aims to create an arts and music destination in Pittsburgh, teach skills to young people and shore up its finances.`\
+https://nytimes.com/2022/05/20/arts/design/andy-warhol-museum-pop-district.html?searchResultPosition=1
+
+**They left craters of grief: Here’s a closer look at the impact of one million U.S. Covid deaths.**\
+`Experts say that grief over a death affects a wide range of people, beyond those who might be mentioned in an obituary.`\
+https://nytimes.com/2022/05/20/us/us-covid-deaths-impact.html?searchResultPosition=2
+
+**A Room in Midtown Is Quietly Fighting the Battle Against City Noise**\
+`A new room in Manhattan, billed as ‘one of the quietest in the world,’ is designed to help developers and architects defend your ears.`\
+https://nytimes.com/2022/05/20/realestate/pindrop-midtown-manhattan.html?searchResultPosition=3
+
 **A Weak Euro Heads to an Uncomfortable Milestone: Parity With the Dollar**\
 `The euro hasn’t fallen below the one-to-one exchange rate with the U.S. dollar for two decades. But as economic risks grow, more analysts predict deeper lows for the shared currency.`\
-https://nytimes.com/2022/05/20/business/economy/euro-dollar-parity.html?searchResultPosition=1
+https://nytimes.com/2022/05/20/business/economy/euro-dollar-parity.html?searchResultPosition=4
 
 **A Pro-Life Doctor on Performing a Lifesaving Abortion**\
 `“If God does not want us to perform abortions, why did he put me in a situation where I would have to do one?”`\
-https://nytimes.com/2022/05/20/opinion/pro-life-doctor-lifesaving-abortion.html?searchResultPosition=2
+https://nytimes.com/2022/05/20/opinion/pro-life-doctor-lifesaving-abortion.html?searchResultPosition=5
 
 **‘Cyber Hell’ Review: When Chat Rooms Become Sites of Exploitation**\
 `This true-crime documentary, subtitled “Exposing an Internet Horror,” recounts a South Korean case in which chat room operators blackmailed young women into sending explicit videos.`\
-https://nytimes.com/2022/05/20/movies/cyber-hell-review.html?searchResultPosition=3
+https://nytimes.com/2022/05/20/movies/cyber-hell-review.html?searchResultPosition=6
 
 **Marcus Smart Is Delivering Exactly What the Celtics Need**\
 `Smart, the Celtics’ point guard, made an impact on offense and defense as Boston beat Miami in Game 2 of the Eastern Conference finals.`\
-https://nytimes.com/2022/05/20/sports/basketball/celtics-heat-game-2.html?searchResultPosition=4
+https://nytimes.com/2022/05/20/sports/basketball/celtics-heat-game-2.html?searchResultPosition=7
 
 **A New Kind of Drug**\
 `How the country’s drug problem is changing, and why it’s growing.`\
-https://nytimes.com/2022/05/20/briefing/synthetic-drugs-labs.html?searchResultPosition=5
+https://nytimes.com/2022/05/20/briefing/synthetic-drugs-labs.html?searchResultPosition=8
 
 **A Better Understanding of Long Covid**\
 `Who does the condition affect, and how widespread is it?`\
-https://nytimes.com/2022/05/20/podcasts/the-daily/long-covid-symptoms.html?searchResultPosition=6
+https://nytimes.com/2022/05/20/podcasts/the-daily/long-covid-symptoms.html?searchResultPosition=9
 
 **1 Million Deaths, 13 Last Messages**\
 `The last messages from those we lost to Covid.`\
-https://nytimes.com/interactive/2022/05/20/opinion/one-million-covid-deaths-texts.html?searchResultPosition=7
-
-**Man Gets 24 Years for Starting Wildfire That Killed California Condors**\
-`The fire on the state’s central coast two years ago killed 12 of the endangered birds. It started at an illegal marijuana farm.`\
-https://nytimes.com/2022/05/20/us/california-condors-dolan-fire.html?searchResultPosition=8
-
-**Priceless Sculptures Are ‘Literally Being Chipped Away’**\
-`More than 1,000 terra-cotta sculptures — of firefighters, mermaids, steelworkers — adorn the walls of Parkchester in the Bronx. Is there is a plan to protect them?`\
-https://nytimes.com/2022/05/20/realestate/streetscapes-parkchester-bronx.html?searchResultPosition=9
-
-**The Challenge for Young Players: Achieving Dominance**\
-`Tennis experts offer advice on how young women can improve their games and move up in the rankings.`\
-https://nytimes.com/2022/05/20/sports/tennis/young-players-advice.html?searchResultPosition=10
+https://nytimes.com/interactive/2022/05/20/opinion/one-million-covid-deaths-texts.html?searchResultPosition=10
 
