@@ -34,7 +34,7 @@ https://nytimes.com/2022/05/20/us/casanova-scammer-romance-guilty.html?searchRes
 `Financing will be directed to keep government operations running amid the Russian war.`\
 https://nytimes.com/2022/05/20/business/g7-20-billion-ukraine.html?searchResultPosition=9
 
-**In Milan, an Iconic Stadium Isn’t Going Down Without a Fight**\
-`The soccer teams that share the San Siro, which has hosted two World Cups and four European finals, want to replace it with a more modern arena. Not everyone is ready to see it go.`\
-https://nytimes.com/2022/05/20/sports/soccer/milan-inter-san-siro.html?searchResultPosition=10
+**Despite a landmark toll from Covid, there is still no U.S. memorial to the dead.**\
+`As the United States reached 1 million known deaths, there was no national, permanent memorial to the country’s loss. Some survivors have called for more to be done.`\
+https://nytimes.com/2022/05/20/us/politics/covid-deaths-memorial.html?searchResultPosition=10
 
