@@ -1,6 +1,6 @@
 **Washington Warns Britain to Temper Its Spat With E.U. Over Northern Ireland**\
 `A senior U.S. diplomat urged London and Brussels to discreetly resolve their disputes, citing the need to unify the West behind Ukraine amid Russia’s onslaught.`\
-https://nytimes.com/2022/05/20/world/europe/britain-eu-northern-ireland-protocol-washington.html?searchResultPosition=1
+https://nytimes.com/2022/05/20/world/europe/washington-eu-britain-northern-ireland.html?searchResultPosition=1
 
 **What Is Monkeypox?**\
 `There have been dozens of cases reported in recent weeks among populations not typically vulnerable to the disease.`\
