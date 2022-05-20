@@ -8,7 +8,7 @@ https://nytimes.com/video/world/europe/100000008359471/russia-ukraine-war-hunger
 
 **Italy Says Ancient Statue in U.S. Museum Was Stolen, Not Lost at Sea**\
 `A court near Pompeii has ordered the return of a treasured classical antiquity that was purchased by the Minneapolis Institute of Art almost four decades ago.`\
-https://nytimes.com/2022/05/20/arts/italy-ancient-statue-stolen.html?searchResultPosition=3
+https://nytimes.com/2022/05/20/arts/italy-statue-stolen.html?searchResultPosition=3
 
 **The Weekender**\
 `The future of sports in the warming Arctic. Also in this edition: the return of the Ringling Brothers circus, and how to get back into running.`\
