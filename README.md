@@ -1,5 +1,5 @@
 **3 Tulsa Massacre Survivors Receive $1 Million Donation**\
-`Hughes Van Ellis, 101, Viola Fletcher, 108, and Lessie Benningfield Randle, 107, will split the money equally between them, said the donators.`\
+`Hughes Van Ellis, 101, Viola Fletcher, 108, and Lessie Benningfield Randle, 107, will split the money equally among them, said the donators.`\
 https://nytimes.com/2022/05/19/us/tulsa-massacre-survivors-donation.html?searchResultPosition=1
 
 **Ex-Deputy Is Sentenced to 18 Years After Mental Health Patients Drowned in Van**\
