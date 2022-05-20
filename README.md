@@ -1,6 +1,6 @@
 **A Guide to Australia’s Election**\
 `Election Day has arrived. Here’s what to watch.`\
-https://nytimes.com/2022/05/20/world/australia/election-newsletter.html?searchResultPosition=1
+https://nytimes.com/2022/05/20/world/australia/australia-election-guide.html?searchResultPosition=1
 
 **Marshall Arisman, Illustrator Who Found Beauty in Violence, Dies at 83**\
 `Mr. Arisman, whose work appeared in The New York Times and other major periodicals, was a storyteller who mined his personal biography for inspiration.`\
