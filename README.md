@@ -1,6 +1,6 @@
 **What to Cook This Weekend**\
 `Julia Moskin reported on traditional recipes of Mariupol, Ukraine: borsch with fish, chebureki and ryazhanka.`\
-https://nytimes.com/2022/05/20/dining/what-to-cook-this-weekend.html?searchResultPosition=1
+https://nytimes.com/2022/05/20/dining/weekend-recipes-cooking.html?searchResultPosition=1
 
 **In South Korea, Biden Seeks to Rebuild Economic Ties Across Asia**\
 `The president began his first Asian visit with a tour of a Samsung plant as he tries to address supply-chain woes and rebuild U.S. manufacturing.`\
