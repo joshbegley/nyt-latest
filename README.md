@@ -12,7 +12,7 @@ https://nytimes.com/video/us/politics/100000008359472/south-korea-biden-economy-
 
 **De Blasio Will Run for House Seat in Newly Drawn District**\
 `Bill de Blasio, the ex-mayor of New York City, said on Friday that he would run for Congress in a new district that includes parts of Brooklyn and Manhattan.`\
-https://nytimes.com/2022/05/20/nyregion/de-blasio-house-congress-running.html?searchResultPosition=4
+https://nytimes.com/2022/05/20/nyregion/de-blasio-congress-running.html?searchResultPosition=4
 
 **Rina Sawayama Flips Damnation Into a Dance Party, and 15 More New Songs**\
 `Hear tracks by Burna Boy, Metric, Sudan Archives and others.`\
