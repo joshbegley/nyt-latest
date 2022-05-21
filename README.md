@@ -11,7 +11,7 @@ https://nytimes.com/2022/05/21/business/bob-vlasic-dead.html?searchResultPositio
 https://nytimes.com/2022/05/21/world/europe/kirill-putin-russian-orthodox-church.html?searchResultPosition=3
 
 **She Was Told Surgery Would Cost About $1,300. Then the Bill Came: $229,000.**\
-`The Colorado Supreme Court ruled that Lisa French had never agreed to pay higher rates when she signed service agreements with a hospital.`\
+`The Colorado Supreme Court ruled that Lisa French had never agreed to pay the full price when she signed service agreements with a hospital.`\
 https://nytimes.com/2022/05/21/us/colorado-hospital-lisa-french.html?searchResultPosition=4
 
 **Diary of a Spelling Bee Fanatic**\
