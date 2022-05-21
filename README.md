@@ -7,7 +7,7 @@ https://nytimes.com/2022/05/21/arts/television/kenneth-welsh-dead.html?searchRes
 https://nytimes.com/2022/05/21/world/europe/tornado-germany-heat-wave-europe.html?searchResultPosition=2
 
 **Frank Gilbert, Preservationist in New York and Beyond, Dies at 91**\
-`He fought to spare Grand Central Terminal from the fate that befell Penn Station and helped draft a landmarks preservation law that became a model across the country.`\
+`He fought to spare Grand Central Terminal from the fate that befell Penn Station. He also helped draft a landmarks preservation law that became a model across the country.`\
 https://nytimes.com/2022/05/21/nyregion/frank-gilbert-dead.html?searchResultPosition=3
 
 **Two Killed, Dozens Injured in Rare Northern Michigan Tornado**\
