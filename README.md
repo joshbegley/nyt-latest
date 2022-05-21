@@ -10,7 +10,7 @@ https://nytimes.com/2022/05/21/world/australia/anthony-albanese-australia-electi
 `These pandemic deaths are still uncounted.`\
 https://nytimes.com/2022/05/21/opinion/covid-deaths-million.html?searchResultPosition=3
 
-**Student Debt Is Not ‘Good Debt.’ Cancel It.**\
+**America Turned the Greatest Vehicle of Social Mobility Into a Debt Machine**\
 `Student loan debt is an albatross around the Democrats’ neck.`\
 https://nytimes.com/2022/05/21/opinion/cancel-student-loan-debt.html?searchResultPosition=4
 
