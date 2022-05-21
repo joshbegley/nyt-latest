@@ -2,8 +2,8 @@
 `Like Biden before him, Anthony Albanese enters office more on the back of disgust at the conservative incumbent than enthusiasm for his leadership.`\
 https://nytimes.com/2022/05/21/world/australia/anthony-albanese-australia-election.html?searchResultPosition=1
 
-**These Pandemic Deaths Are Still Uncounted**\
-`My patient didn’t die of Covid-19. He died because of it.`\
+**My Patient Didn’t Die From Covid. He Died Because of It.**\
+`These pandemic deaths are still uncounted.`\
 https://nytimes.com/2022/05/21/opinion/covid-deaths-million.html?searchResultPosition=2
 
 **Student Debt Is Not ‘Good Debt.’ Cancel It.**\
