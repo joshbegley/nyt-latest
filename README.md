@@ -20,7 +20,7 @@ https://nytimes.com/video/world/asia/100000008361367/biden-south-korea.html?sear
 
 **A runner died in the Brooklyn Half Marathon, where organizers had warned of heat concerns.**\
 `It’s the first death since 2014 in the 13.1-mile run from Prospect Park to Coney Island. It was not immediately clear whether heat had played a role.`\
-https://nytimes.com/2022/05/21/us/runner-dead-brooklyn-half-marathon.html?searchResultPosition=6
+https://nytimes.com/2022/05/21/nyregion/runner-dead-brooklyn-half-marathon.html?searchResultPosition=6
 
 **Australia’s New Leader Faces Peril of Winning as ‘Not the Other Guy’**\
 `Like Biden before him, Anthony Albanese enters office more on the back of disgust at the conservative incumbent than enthusiasm for his leadership.`\
