@@ -1,5 +1,5 @@
 **Russian forces are attempting another crossing of a river where they suffered a major blow, Ukraine’s military says.**\
-`Crossing the Seversky Donets River is seen as an important tactical step toward Russia’s goal of surrounding a pocket of Ukrainian troops in and around the city of Sievierodonetsk.`\
+`The 650-mile-long Seversky Donets River originates in Russia and meanders southeast through the Donbas region before re-entering Russian territory.`\
 https://nytimes.com/2022/05/21/world/europe/ukraine-seversky-donets-river.html?searchResultPosition=1
 
 **Fun, but With Structure**\
