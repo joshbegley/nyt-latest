@@ -1,6 +1,6 @@
 **Australia’s New Leader Faces Peril of Winning as ‘Not the Other Guy’**\
 `Like Biden before him, Anthony Albanese enters office more on the back of disgust at the conservative incumbent than enthusiasm for his leadership.`\
-https://nytimes.com/2022/05/21/world/australia/anthony-albanese-wins-australia.html?searchResultPosition=1
+https://nytimes.com/2022/05/21/world/australia/anthony-albanese-australia-election.html?searchResultPosition=1
 
 **These Pandemic Deaths Are Still Uncounted**\
 `My patient didn’t die of Covid-19. He died because of it.`\
