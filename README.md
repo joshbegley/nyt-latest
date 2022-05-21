@@ -19,7 +19,7 @@ https://nytimes.com/2022/05/20/us/politics/pelosi-communion-abortion.html?search
 https://nytimes.com/2022/05/20/business/starbucks-union-buffalo.html?searchResultPosition=5
 
 **Tornado Leaves Trail of Destruction in Northern Michigan**\
-`The tornado tore through the city of Gaylord, Mich., injuring an undetermined number of people and damaging multiple homes and businesses.`\
+`The tornado tore through the city of Gaylord, Mich., killing at least one person and damaging multiple homes and businesses.`\
 https://nytimes.com/video/us/100000008360998/tornado-gaylord-michigan.html?searchResultPosition=6
 
 **Vangelis, Composer Best Known for ‘Chariots of Fire,’ Dies at 79**\
