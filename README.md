@@ -1,10 +1,10 @@
 **Anthony Albanese, the challenger, pitches ‘safe change.’**\
 `The opposition leader has emphasized the good that effective government can do.`\
-https://nytimes.com/2022/05/20/world/australia/anthony-albanese.html?searchResultPosition=1
+https://nytimes.com/2022/05/20/world/australia/anthony-albanese-australia-election.html?searchResultPosition=1
 
 **Prime Minister Scott Morrison is urging voters to opt for what they know.**\
 `His tenure hasn’t always been smooth, with moments that have tested the Australian public’s faith in his leadership`\
-https://nytimes.com/2022/05/20/world/australia/prime-minister-scott-morrison.html?searchResultPosition=2
+https://nytimes.com/2022/05/20/world/australia/prime-minister-scott-morrison-election.html?searchResultPosition=2
 
 **Boeing’s Starliner Reaches Space Station Some 2 Years After Planned Visit**\
 `If it returns to Earth successfully next week, the space taxi built for NASA could carry astronauts to orbit later this year.`\
