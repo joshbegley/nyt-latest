@@ -26,8 +26,8 @@ https://nytimes.com/2022/05/22/arts/music/henry-threadgill-review.html?searchRes
 `After a man from Conklin, N.Y., was charged with a mass killing at a Buffalo grocery store, the community where he grew up has been forced to wrestle with hard questions.`\
 https://nytimes.com/2022/05/22/nyregion/broome-county-buffalo-shooting.html?searchResultPosition=7
 
-**Man Fatally Shot on Manhattan Subway Train**\
-`The shooting onboard a Q train in Lower Manhattan on Sunday sent riders scrambling for safety, witnesses said on social media.`\
+**Man, 48, Fatally Shot on Manhattan Subway Train**\
+`The shooting onboard a Q train in Lower Manhattan on Sunday was unprovoked, the police said, and it sent riders scrambling for safety.`\
 https://nytimes.com/2022/05/22/nyregion/nyc-subway-shooting.html?searchResultPosition=8
 
 **In Cleveland, Schubert Outsings Even the Mighty ‘Otello’**\
