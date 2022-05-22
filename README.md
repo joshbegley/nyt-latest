@@ -1,6 +1,6 @@
 **A Million Americans Have Died From Covid. We Need to Mourn Together.**\
 `The magnitude of the loss is overwhelming. Every person who died represents a community, a family or a group of friends who will never be the same. `\
-https://nytimes.com/2022/05/22/opinion/a-million-americans-have-died-from-covid-we-need-to-mourn-together.html?searchResultPosition=1
+https://nytimes.com/2022/05/22/opinion/million-covid-deaths-america.html?searchResultPosition=1
 
 **Several Jif Peanut Butter Products Recalled Over Potential Salmonella**\
 `The J.M. Smucker Company said it initiated a voluntary recall and advised consumers to dispose of some potentially contaminated products.`\
