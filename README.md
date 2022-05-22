@@ -2,7 +2,7 @@
 `The authorities in the Islamic Republic like to take credit for the country’s achievements in film, but are warning those who make them not to cross red lines at home.`\
 https://nytimes.com/2022/05/22/world/middleeast/iran-filmmakers.html?searchResultPosition=1
 
-**Rafael Nadal is the French Open’s Man of Mystery**\
+**Rafael Nadal Is the French Open’s Man of Mystery**\
 `He was unbeatable at the start of the year, then could hardly finish a match in the run-up to the French Open because of an injury. Which version of the 13-time champion of this tournament will show up?`\
 https://nytimes.com/2022/05/22/sports/tennis/rafael-nadal-french-open.html?searchResultPosition=2
 
