@@ -22,13 +22,13 @@ https://nytimes.com/2022/05/22/insider/investigating-haitis-double-debt.html?sea
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2022/05/22/crosswords/spelling-bee-forum.html?searchResultPosition=6
 
-**Australia’s ‘Climate Election’ Finally Arrived. Will It Be Enough?**\
-`Voters rejected the deny-and-delay approach that has made Australia a global laggard on emission cuts. But how far the new government will go remains to be seen.`\
-https://nytimes.com/2022/05/22/world/australia/election-albanese-climate.html?searchResultPosition=7
-
 **How Trump’s 2020 Election Lies Have Gripped State Legislatures**\
 `A Times review of legislative votes and records reveals how lies about the 2020 election took hold in statehouses, driving efforts to unravel a free and fair election.`\
-https://nytimes.com/interactive/2022/05/22/us/politics/state-legislators-election-denial.html?searchResultPosition=8
+https://nytimes.com/interactive/2022/05/22/us/politics/state-legislators-election-denial.html?searchResultPosition=7
+
+**Australia’s ‘Climate Election’ Finally Arrived. Will It Be Enough?**\
+`Voters rejected the deny-and-delay approach that has made Australia a global laggard on emission cuts. But how far the new government will go remains to be seen.`\
+https://nytimes.com/2022/05/22/world/australia/election-albanese-climate.html?searchResultPosition=8
 
 **‘S.N.L.’ Says Goodbye to Multiple Cast Members**\
 `Kate McKinnon, Pete Davidson and Aidy Bryant each got to take a victory lap in a “Saturday Night Live” season finale hosted by Natasha Lyonne.`\
