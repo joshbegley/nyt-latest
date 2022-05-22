@@ -1,4 +1,4 @@
-**Democrats Are Mindful of Headwinds in Georgia, and Everywhere Else**\
+**Democrats Fight Headwinds in Georgia and Beyond: ‘The Problem Is Reality’**\
 `Raphael Warnock and Stacey Abrams, viewed as strong candidates by their party, will be running against President Biden’s low ratings as well as their G.O.P. rivals.`\
 https://nytimes.com/2022/05/22/us/politics/democrats-georgia-warnock-abrams-biden.html?searchResultPosition=1
 
