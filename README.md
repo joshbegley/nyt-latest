@@ -1,6 +1,6 @@
 **Your Monday Briefing: Australia’s New Leader**\
 `Plus President Biden’s trip to Asia and catastrophic floods in India and Bangladesh.`\
-https://nytimes.com/2022/05/22/briefing/your-monday-briefing-australias-new-leader.html?searchResultPosition=1
+https://nytimes.com/2022/05/22/briefing/australia-election-albanese-asia.html?searchResultPosition=1
 
 **Israel’s Political Crisis Is Resolved, but Governing Remains a Strain**\
 `A lawmaker who quit the coalition last week reversed her decision on Sunday, averting the government’s imminent collapse.`\
