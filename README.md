@@ -3,7 +3,7 @@
 https://nytimes.com/2022/05/22/world/europe/iran-revolutionary-guard-killed.html?searchResultPosition=1
 
 **Powerful Storms Rip Through Eastern Canada**\
-`A line of thunderstorms cut a violent path across parts of Ontario and Quebec on Saturday, killing at least five people and leaving hundreds of thousands without power, according to Environment Canada.`\
+`A line of thunderstorms cut a violent path across parts of Ontario and Quebec on Saturday, killing multiple people and leaving hundreds of thousands without power, according to Environment Canada.`\
 https://nytimes.com/video/world/canada/100000008362071/canada-thunderstorms-ontario-ottawa.html?searchResultPosition=2
 
 **A Million Americans Have Died From Covid. We Need to Mourn Together.**\
