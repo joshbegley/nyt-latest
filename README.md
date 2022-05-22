@@ -1,5 +1,5 @@
-**Tiger Woods Withdraws From PGA Championship**\
-`Recovering from severe leg injuries from a car crash last year, he had struggled at the Masters and now again at the P.G.A. Championship.`\
+**Tiger Woods Withdraws from PGA Championship**\
+`Recovering from leg injuries from a car crash last year, he had struggled at the Masters and now again at the PGA Championship.`\
 https://nytimes.com/2022/05/21/sports/golf/tiger-woods-pga-championship.html?searchResultPosition=1
 
 **Early Voting Wins Preakness Stakes**\
