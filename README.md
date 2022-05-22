@@ -1,4 +1,4 @@
-**Five Dead After Severe Thunderstorms in Canada**\
+**Five Dead After Severe Thunderstorms Lash Parts of Canada**\
 `A line of thunderstorms brought violent winds that left a trail of damage across parts of Ontario and Quebec on Saturday, and hundreds of thousands without power.`\
 https://nytimes.com/2022/05/22/world/canada/ottawa-storms.html?searchResultPosition=1
 
