@@ -1,6 +1,6 @@
 **Justin Thomas Wins the P.G.A. Championship With a Roaring Comeback**\
 `Thomas, who entered the final round seven shots behind the leader, beat Will Zalatoris in a playoff to win his second career major championship.`\
-https://nytimes.com/2022/05/22/sports/golf/pga-championship.html?searchResultPosition=1
+https://nytimes.com/2022/05/22/sports/golf/justin-thomas-wins-pga-championship.html?searchResultPosition=1
 
 **Kushner’s and Mnuchin’s Quick Pivots to Business With the Gulf**\
 `Weeks before the Trump administration ended, Jared Kushner and Steven Mnuchin met with future investors on official trips to the Middle East.`\
