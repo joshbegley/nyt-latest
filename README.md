@@ -1,6 +1,6 @@
 **Snap warns it will miss earnings goals because of economic challenges.**\
 `Snap’s announcement comes amid a slowdown for tech start-ups, as venture capital funding has fallen and young companies have been cutting costs and laying off employees.`\
-https://nytimes.com/2022/05/23/technology/snap-predicts-miss-earnings-goals.html?searchResultPosition=1
+https://nytimes.com/2022/05/23/technology/snap-earnings-goals.html?searchResultPosition=1
 
 **The likely G.O.P. candidate for Connecticut governor tests positive a day after an anti-mask picnic.**\
 `Connecticut has become one of the nation’s hotspots for infections.`\
