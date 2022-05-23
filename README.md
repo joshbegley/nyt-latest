@@ -4,7 +4,7 @@ https://nytimes.com/2022/05/23/briefing/biden-taiwan-pfizer-vaccine-guy-fieri.ht
 
 **Princeton Fires Tenured Professor in Campus Controversy**\
 `Joshua Katz’s dismissal is related to his inappropriate conduct with a female student, the university said. He says his criticism of a campus protest group is the issue.`\
-https://nytimes.com/2022/05/23/us/princeton-fire-joshua-katz.html?searchResultPosition=2
+https://nytimes.com/2022/05/23/us/princeton-fires-joshua-katz.html?searchResultPosition=2
 
 **Biaggi Seeks to Block Sean Patrick Maloney’s Chosen Path to Re-Election**\
 `Mr. Maloney, who leads the Democratic Congressional Campaign Committee, upset some Democrats by opting to run in a district currently represented by a Black congressman.`\
