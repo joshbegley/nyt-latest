@@ -1,5 +1,5 @@
 **Biden Says U.S. Military Would Defend Taiwan if China Invaded**\
-`Moving away from a policy of “strategic ambiguity,” the president said he would take a step to protect the island democracy that he has been unwilling to make when it comes to Ukraine.`\
+`Appearing to move away from a policy of “strategic ambiguity,” the president said he would take a step to protect the island democracy that he has been unwilling to make on Ukraine.`\
 https://nytimes.com/2022/05/23/world/asia/biden-taiwan-defense.html?searchResultPosition=1
 
 **Quotation of the Day: ‘Beautiful, Extreme, Vulnerable’: Where Climate Is Defeating Sports**\
