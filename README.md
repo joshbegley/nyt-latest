@@ -1,6 +1,6 @@
 **Broadcom in Talks to Acquire VMware, the Cloud Computing Company**\
 `Since its $117 billion deal to buy the U.S. chip maker Qualcomm was blocked in 2018, Broadcom has diversified the types of companies it buys.`\
-https://nytimes.com/2022/05/22/business/broadcom-vmware.html?searchResultPosition=1
+https://nytimes.com/2022/05/22/business/dealbook/broadcom-vmware.html?searchResultPosition=1
 
 **Justin Thomas Wins the P.G.A. Championship With a Roaring Comeback**\
 `Thomas, who entered the final round seven shots behind the leader, beat Will Zalatoris in a playoff to win his second career major championship.`\
