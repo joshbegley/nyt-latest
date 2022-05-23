@@ -1,4 +1,4 @@
-**A Russian diplomat resigns: ‘Never have been so ashamed of my country.’**\
+**A Russian diplomat resigns: ‘Never have I been so ashamed of my country.’**\
 `Boris Bondarev, a counselor at the Russian mission in Geneva, quit in a rare example of an official breaking with the Kremlin over its war in Ukraine.`\
 https://nytimes.com/2022/05/23/world/europe/russia-diplomat-un-geneva.html?searchResultPosition=1
 
