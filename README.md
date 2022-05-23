@@ -1,6 +1,6 @@
 **Biden Veers Off Script on Taiwan. Enter the Cleanup Brigade.**\
 `Offhand remarks that vary from the official talking points have become a feature of the Biden presidency, even as they leave his staff scrambling to spin them away afterward.`\
-https://nytimes.com/2022/05/23/us/politics/biden-off-script-taiwan.html?searchResultPosition=1
+https://nytimes.com/2022/05/23/us/politics/biden-taiwan-comments.html?searchResultPosition=1
 
 **Ronny Jackson Used Campaign Funds for Exclusive Club, Ethics Office Alleges**\
 `The office said the House Republican from Texas may have broken campaign finance regulations. It also said Representative Alex X. Mooney, Republican of West Virginia, may have acted improperly.`\
