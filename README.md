@@ -19,7 +19,7 @@ https://nytimes.com/2022/05/22/business/jared-kushner-steven-mnuchin-gulf-invest
 https://nytimes.com/video/nyregion/100000008362307/subway-shooting-manhattan-nyc.html?searchResultPosition=5
 
 **Southern Baptist Leaders Mishandled Sex Abuse Crisis, Report Alleges**\
-`National executives of the nation’s largest Protestant denomination ignored victims, resisted reforms and were mainly concerned with avoiding ‘potential liability,’ the third-party investigation says.`\
+`Executives of the nation’s largest Protestant denomination ignored victims, resisted reforms and were concerned with avoiding ‘potential liability,’ the third-party investigation says.`\
 https://nytimes.com/2022/05/22/us/southern-baptist-sex-abuse.html?searchResultPosition=6
 
 **At 36, Candace Parker Posts a Triple-Double, a W.N.B.A. Rarity**\
