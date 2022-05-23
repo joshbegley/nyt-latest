@@ -22,19 +22,19 @@ https://nytimes.com/2022/05/23/learning/should-the-us-be-doing-more-to-prevent-c
 `Élisabeth Borne’s father, a World War II resistance member and a Holocaust survivor, killed himself when she was 11, an experience she has rarely discussed in detail.`\
 https://nytimes.com/2022/05/23/world/europe/france-woman-prime-minister-elisabeth-borne.html?searchResultPosition=6
 
+**A debate is rekindled among historians.**\
+`By The New York Times`\
+https://nytimes.com/2022/05/23/world/haiti-historians-debate.html?searchResultPosition=7
+
 **The Dallas Mavericks Just May Not Be Good Enough Yet**\
 `With Golden State one win from the N.B.A. finals, Dallas is already talking about the off-season. Luka Doncic said he was “still learning.”`\
-https://nytimes.com/2022/05/23/sports/basketball/golden-state-dallas-mavericks.html?searchResultPosition=7
+https://nytimes.com/2022/05/23/sports/basketball/golden-state-dallas-mavericks.html?searchResultPosition=8
 
 **Addressing Davos, Zelensky invites global businesses to Ukraine.**\
 `By Matina Stevis-Gridneff`\
-https://nytimes.com/2022/05/23/world/europe/addressing-davos-zelensky-invites-global-businesses-to-ukraine.html?searchResultPosition=8
+https://nytimes.com/2022/05/23/world/europe/addressing-davos-zelensky-invites-global-businesses-to-ukraine.html?searchResultPosition=9
 
 **Limits on borrowing would remain suspended to help E.U. countries respond to war.**\
 `The European Commission proposes to delay the reinstatement of stringent rules that were relaxed to help nations cope with the pandemic.`\
-https://nytimes.com/2022/05/23/business/eu-fiscal-policy-deficit-debt.html?searchResultPosition=9
-
-**A Ukrainian court convicts a Russian soldier of war crimes and sentences him to life in prison.**\
-`The verdict represents a milestone in Ukraine’s attempts to hold Russia and its soldiers accountable for atrocities committed in the war.`\
-https://nytimes.com/2022/05/23/world/europe/russian-soldier-war-crimes-guilty.html?searchResultPosition=10
+https://nytimes.com/2022/05/23/business/eu-fiscal-policy-deficit-debt.html?searchResultPosition=10
 
