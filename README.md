@@ -1,6 +1,6 @@
 **Will you vaccinate your young children against Covid-19?**\
 `We’re interested in hearing about your plans to vaccinate — or not — your children aged 6 months to 4 years.`\
-https://nytimes.com/2022/05/23/reader-center/kids-vaccination-callout.html?searchResultPosition=1
+https://nytimes.com/2022/05/23/reader-center/covid-vaccine-kids.html?searchResultPosition=1
 
 **Ukrainian Court Convicts Russian Soldier of War Crimes**\
 `The first Russian soldier to be tried for war crimes in the country’s invasion of Ukraine was sentenced to life in prison for shooting and killing a civilian.`\
