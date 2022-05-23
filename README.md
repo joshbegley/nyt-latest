@@ -6,7 +6,7 @@ https://nytimes.com/2022/05/23/opinion/progressives-republican-censorship.html?s
 `Gwynne Shotwell, SpaceX’s president and chief operating officer, addressed sexual harassment allegations against Mr. Musk in a company email last week.`\
 https://nytimes.com/2022/05/23/technology/spacex-elon-musk.html?searchResultPosition=2
 
-**Biden Veers Off Script on Taiwan. Enter the Cleanup Brigade.**\
+**Biden Veers Off Script on Taiwan. And Not for the First Time.**\
 `Offhand remarks that vary from the official talking points have become a feature of the Biden presidency, even as they leave his staff scrambling to spin them away afterward.`\
 https://nytimes.com/2022/05/23/us/politics/biden-taiwan-comments.html?searchResultPosition=3
 
