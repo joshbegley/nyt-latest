@@ -16,7 +16,7 @@ https://nytimes.com/2022/05/23/dining/what-to-cook-right-now.html?searchResultPo
 
 **Angela Lansbury Will Receive Tony Award for Lifetime Achievement**\
 `The star of stage, film and screen has already won five competitive Tony Awards, and starred in several Stephen Sondheim musicals.`\
-https://nytimes.com/2022/05/23/theater/angela-lansbury-tony-award-lifetime-achievement.html?searchResultPosition=5
+https://nytimes.com/2022/05/23/theater/tony-awards-2022-angela-lansbury.html?searchResultPosition=5
 
 **Ukraine makes its pitch to the world elite where Russia once held court.**\
 `The Russia House, where oligarchs sipped vodka and talked with politicians and corporate chiefs during the World Economic Forum, has been rebranded “Russian War Crimes House.”`\
@@ -27,7 +27,7 @@ https://nytimes.com/2022/05/23/world/europe/ukraine-russia-davos.html?searchResu
 https://nytimes.com/2022/05/23/podcasts/abortion-roe-mexico.html?searchResultPosition=7
 
 **Starbucks is leaving Russia.**\
-`The coffee chain said it was closing its 130 stores in the country, where it has about 2,000 employees.`\
+`The coffee chain said it had closed 130 stores in the country, where a licensing partner employs about 2,000 workers, and ended its brand presence there.`\
 https://nytimes.com/2022/05/23/business/starbucks-russia-exit.html?searchResultPosition=8
 
 **A Russian diplomat resigns: ‘Never have I been so ashamed of my country.’**\
