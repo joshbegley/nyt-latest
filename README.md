@@ -1,6 +1,6 @@
 **‘They basically got everything wrong’: A Russian diplomat speaks out on the war.**\
 `Boris Bondarev, a Russian official who resigned over the war in Ukraine, said his colleagues were focused more on pleasing their superiors than on delivering accurate information to Moscow.`\
-https://nytimes.com/2022/05/23/world/europe/they-basically-got-everything-wrong-a-russian-diplomat-speaks-out-on-the-war.html?searchResultPosition=1
+https://nytimes.com/2022/05/23/world/europe/boris-bondarev-russia-ukraine-war.html?searchResultPosition=1
 
 **Climate Change Fuels Heat Wave in India and Pakistan, Scientists Find**\
 `Warming since preindustrial times has made the extreme heat in South Asia, now in its third month, at least 30 times more likely.`\
@@ -14,8 +14,8 @@ https://nytimes.com/2022/05/23/books/alan-shipnuck-phil-mickelson.html?searchRes
 `We’re interested in hearing about your plans to vaccinate — or not — your children aged 6 months to 4 years.`\
 https://nytimes.com/2022/05/23/reader-center/covid-vaccine-kids.html?searchResultPosition=4
 
-**American heavy artillery enters the fight in Ukraine.**\
-`By Andrew E. Kramer, Maria Varenikova and Ivor Prickett`\
+**American Artillery Enters the Fight in Ukraine**\
+`The most lethal weapons the West has provided so far to Ukraine are now deployed in combat. And they have buoyed the Ukraine army’s hopes for victory.`\
 https://nytimes.com/2022/05/23/world/europe/us-ukraine-howitzers.html?searchResultPosition=5
 
 **Ukrainian Court Convicts Russian Soldier of War Crimes**\
