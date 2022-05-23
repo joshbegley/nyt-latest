@@ -1,40 +1,40 @@
+**A Russian diplomat resigns: ‘Never have been so ashamed of my country.’**\
+`Boris Bondarev, a counselor at the Russian mission in Geneva, quit in a rare example of an official breaking with the Kremlin over its war in Ukraine.`\
+https://nytimes.com/2022/05/23/world/europe/russia-diplomat-un-geneva.html?searchResultPosition=1
+
+**The Horror and Happiness of Oliver Sim**\
+`The xx singer on going solo, disclosing his H.I.V. status and learning that he actually likes people.`\
+https://nytimes.com/2022/05/23/arts/music/oliver-sim-hideous-bastard.html?searchResultPosition=2
+
 **Balenciaga Occupies Wall Street**\
 `In its first show outside Paris, the French brand makes a financial play.`\
-https://nytimes.com/2022/05/23/style/balenciaga-nyse-resort-2023.html?searchResultPosition=1
+https://nytimes.com/2022/05/23/style/balenciaga-nyse-resort-2023.html?searchResultPosition=3
 
 **Biden Says He Would Be Willing to Use Military Force to Defend Taiwan**\
 `President Biden said he would send U.S. military forces to defend Taiwan if China ever attacked the island, a step he has refused to take in helping Ukraine fend off Russian invaders.`\
-https://nytimes.com/video/us/politics/100000008362688/taiwan-biden-china.html?searchResultPosition=2
+https://nytimes.com/video/us/politics/100000008362688/taiwan-biden-china.html?searchResultPosition=4
 
 **French Bank Will Study Role in Haiti After Times Report**\
 `The C.I.C. bank siphoned millions in fees and interest from the island’s treasury in the late 19th and early 20th centuries, an investigation found.`\
-https://nytimes.com/2022/05/23/world/americas/haiti-history-cic-bank.html?searchResultPosition=3
+https://nytimes.com/2022/05/23/world/americas/haiti-history-cic-bank.html?searchResultPosition=5
 
 **U.S. Military Airlifts Baby Formula From Europe**\
 `A shipment that arrived on Sunday was the first of two intended to address shortages in the United States. Another shipment is set to arrive this week, the White House said.`\
-https://nytimes.com/2022/05/23/us/biden-baby-formula-shortage.html?searchResultPosition=4
+https://nytimes.com/2022/05/23/us/biden-baby-formula-shortage.html?searchResultPosition=6
 
 **Stocks rise after their brush with a bear market.**\
 `The S&P 500 briefly entered bear market territory on Friday, and pulled higher late in the day.`\
-https://nytimes.com/2022/05/23/business/stock-markets-today.html?searchResultPosition=5
+https://nytimes.com/2022/05/23/business/stock-markets-today.html?searchResultPosition=7
 
 **The strange, swift spread of monkeypox**\
 `In his first public remarks on the outbreak, President Biden says that monkeypox is concerning and that “if it were to spread, it would be consequential.”`\
-https://nytimes.com/2022/05/23/business/dealbook/monkeypox.html?searchResultPosition=6
+https://nytimes.com/2022/05/23/business/dealbook/monkeypox.html?searchResultPosition=8
 
 **Moth Species Not Seen Since 1912 Was Intercepted at Detroit Airport**\
 `Customs officials said they had warded off a threat to the nation’s agriculture and natural habitats by intercepting the moth before it could take hold in the wild.`\
-https://nytimes.com/2022/05/23/science/moth-species-discovery-detroit.html?searchResultPosition=7
+https://nytimes.com/2022/05/23/science/moth-species-discovery-detroit.html?searchResultPosition=9
 
 **$1.8 Million Homes in California**\
 `A midcentury ranch house in Los Angeles, a 1930 cottage in Woodside and a 2003 farmhouse in Murrieta.`\
-https://nytimes.com/2022/05/23/realestate/home-prices-california.html?searchResultPosition=8
-
-**$1.8 Million Homes in California**\
-`A midcentury ranch house in Los Angeles, a 1930 cottage in Woodside and a 2003 farmhouse in Murrieta.`\
-https://nytimes.com/slideshow/2022/05/23/realestate/home-prices-california.html?searchResultPosition=9
-
-**Has California’s Fire Season Begun?**\
-`Severe drought conditions and unseasonably warm temperatures are already raising the risks of fire.`\
-https://nytimes.com/2022/05/23/us/california-wildfire-season.html?searchResultPosition=10
+https://nytimes.com/2022/05/23/realestate/home-prices-california.html?searchResultPosition=10
 
