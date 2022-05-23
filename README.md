@@ -20,7 +20,7 @@ https://nytimes.com/video/us/politics/100000008362688/taiwan-biden-china.html?se
 
 **French Bank to Study Its Role in Haiti After Times Report.**\
 `The C.I.C. bank siphoned millions in fees and interest from the island’s treasury in the late 19th and early 20th centuries, an investigation found.`\
-https://nytimes.com/2022/05/23/world/americas/haiti-history-cic-bank.html?searchResultPosition=6
+https://nytimes.com/2022/05/23/world/americas/haiti-cic-french-bank.html?searchResultPosition=6
 
 **U.S. Military Airlifts Baby Formula From Europe**\
 `A shipment that arrived on Sunday was the first of two intended to address shortages in the United States. Another shipment is set to arrive this week, the White House said.`\
