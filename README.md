@@ -1,4 +1,4 @@
-**Will you vaccinate your young children against Covid-19?**\
+**Will You Vaccinate Your Young Children Against Covid-19?**\
 `We’re interested in hearing about your plans to vaccinate — or not — your children aged 6 months to 4 years.`\
 https://nytimes.com/2022/05/23/reader-center/covid-vaccine-kids.html?searchResultPosition=1
 
