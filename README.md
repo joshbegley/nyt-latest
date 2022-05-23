@@ -3,7 +3,7 @@
 https://nytimes.com/2022/05/23/nyregion/rikers-island-death-crisis.html?searchResultPosition=1
 
 **A Cannes faux pas, as TikTok comes to town.**\
-`At the festival, the video app ran a short film competition. The president of its jury withdrew after he said TikTok employees tried to influence the jury’s decision.`\
+`At the festival, the video app ran a short film competition. The president of its jury briefly withdrew after he said TikTok employees tried to influence the jury’s decision.`\
 https://nytimes.com/2022/05/23/movies/cannes-tiktok.html?searchResultPosition=2
 
 **The ‘Philosopher King’ of Percussion Starts His Next Chapter**\
