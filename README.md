@@ -15,7 +15,7 @@ https://nytimes.com/2022/05/23/business/activision-employees-union.html?searchRe
 https://nytimes.com/2022/05/23/crosswords/spelling-bee-forum.html?searchResultPosition=4
 
 **Biden Says U.S. Military Would Defend Taiwan if China Invaded**\
-`Appearing to move away from a policy of “strategic ambiguity,” the president said he would take a step to protect the island democracy that he has been unwilling to make on Ukraine.`\
+`Moving away from a policy of “strategic ambiguity,” the president said he would take a step to protect the island democracy that he has been unwilling to make when it comes to Ukraine.`\
 https://nytimes.com/2022/05/23/world/asia/biden-taiwan-defense.html?searchResultPosition=5
 
 **Quotation of the Day: ‘Beautiful, Extreme, Vulnerable’: Where Climate Is Defeating Sports**\
