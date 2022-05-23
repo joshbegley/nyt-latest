@@ -8,7 +8,7 @@ https://nytimes.com/2022/05/23/opinion/letters/struggling-college-students.html?
 
 **Kendrick Lamar’s ‘Mr. Morale’ Is No. 1 With the Year’s Biggest Opening**\
 `“Mr. Morale & the Big Steppers,” Lamar’s first album in five years, may be eclipsed by Harry Styles’s LP next week.`\
-https://nytimes.com/2022/05/23/arts/music/kendrick-lamar-morale-billboard-chart.html?searchResultPosition=3
+https://nytimes.com/2022/05/23/arts/music/kendrick-lamar-billboard-mr-morale.html?searchResultPosition=3
 
 **A Story About Haitian History, in Haitian Creole.**\
 `Haitian Creole is a national language, but Creole speakers can encounter prejudice, so some were thrilled to see “The Ransom” offered in Creole.`\
