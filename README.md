@@ -16,7 +16,7 @@ https://nytimes.com/2022/05/23/us/politics/georgia-voter-turnout.html?searchResu
 
 **Surf’s Up at Dior**\
 `Is your men’s wear anemic? Try an IV drip of SoCal skate-rat style.`\
-https://nytimes.com/2022/05/23/style/surfs-up-at-dior.html?searchResultPosition=5
+https://nytimes.com/2022/05/23/style/dior-mens-wear.html?searchResultPosition=5
 
 **Debate Over Tariffs Reveals Biden’s Difficulties on China Trade**\
 `Sixteen months into the Biden presidency, U.S. officials are still divided over what to do about a trade legacy left by President Donald J. Trump.`\
