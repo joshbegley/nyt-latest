@@ -14,7 +14,7 @@ https://nytimes.com/2022/05/23/style/balenciaga-nyse-resort-2023.html?searchResu
 `President Biden said he would send U.S. military forces to defend Taiwan if China ever attacked the island, a step he has refused to take in helping Ukraine fend off Russian invaders.`\
 https://nytimes.com/video/us/politics/100000008362688/taiwan-biden-china.html?searchResultPosition=4
 
-**A French bank says it will study its role in Haiti after Times report.**\
+**French Bank to Study Its Role in Haiti After Times Report.**\
 `The C.I.C. bank siphoned millions in fees and interest from the island’s treasury in the late 19th and early 20th centuries, an investigation found.`\
 https://nytimes.com/2022/05/23/world/americas/haiti-history-cic-bank.html?searchResultPosition=5
 
