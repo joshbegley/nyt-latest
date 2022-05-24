@@ -12,7 +12,7 @@ https://nytimes.com/2022/05/24/well/move/covid-gym-air.html?searchResultPosition
 
 **An American Comeback on Amazon**\
 `Chinese merchants have been huge on Amazon. But now we’re seeing the trend reverse.`\
-https://nytimes.com/2022/05/24/technology/amazon-american-chinese-merchants.html?searchResultPosition=4
+https://nytimes.com/2022/05/24/technology/amazon-sellers-us-china.html?searchResultPosition=4
 
 **Transcript: Ezra Klein Interviews Ada Limón**\
 `A conversation with the poet of Ada Limón.`\
