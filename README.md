@@ -23,7 +23,7 @@ https://nytimes.com/2022/05/24/world/asia/biden-taiwan-china-australia.html?sear
 https://nytimes.com/2022/05/24/briefing/biden-taiwan-china-strategic-ambiguity.html?searchResultPosition=6
 
 **Russia and China Held Military Exercise in East Asia as Biden Visited**\
-`The coordinated bomber flights were the first such activity the two nations had done together since President Vladimir V. Putin of Russia ordered the invasion of Ukraine.`\
+`The coordinated bomber flights were the first training activity the two nations had done together since President Vladimir V. Putin of Russia ordered the invasion of Ukraine.`\
 https://nytimes.com/2022/05/24/us/politics/russia-china-bombers-biden.html?searchResultPosition=7
 
 **Is the U.S. Changing Its Stance on Taiwan?**\
