@@ -27,7 +27,7 @@ https://nytimes.com/2022/05/24/world/europe/russia-ukraine-food-supply.html?sear
 https://nytimes.com/video/world/europe/100000008364652/russia-ukraine-war-food-supply-eu.html?searchResultPosition=7
 
 **Does Being Denied an Abortion Harm Mental Health?**\
-`An examination of the most credible research to date.`\
+`An examination of the most rigorous research to date.`\
 https://nytimes.com/2022/05/24/well/mind/abortion-access-mental-health.html?searchResultPosition=8
 
 **Carnegie Hall Musters Stars for a Benefit Concert for Ukraine**\
