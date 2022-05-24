@@ -1,40 +1,40 @@
-**Texas School Shooting Leaves at Least 2 Dead**\
-`More than 12 people were injured in a shooting at a Texas elementary school. The assailant is in police custody, according to the Uvalde Police Department.`\
-https://nytimes.com/video/us/100000008365718/school-shooting-uvalde-texas.html?searchResultPosition=1
-
-**Watch Live: Officials Deliver Update on Texas School Shooting**\
-`At least two people were killed and more than a dozen children were injured in a shooting at an elementary school in Uvalde, Texas.`\
-https://nytimes.com/video/us/100000008365733/shooting-texas-elementary-school-uvalde.html?searchResultPosition=2
-
-**Texas Primary Runoff Election Results**\
+**Texas 21st Congressional District Runoff Election Results**\
 `See full results and maps from the Texas runoff elections.`\
-https://nytimes.com/interactive/2022/05/24/us/elections/results-texas-runoffs.html?searchResultPosition=3
+https://nytimes.com/interactive/2022/05/24/us/elections/results-texas-us-house-district-21.html?searchResultPosition=1
 
-**Alabama Primary Election Results**\
-`See full results and maps from the Alabama primary elections.`\
-https://nytimes.com/interactive/2022/05/24/us/elections/results-alabama.html?searchResultPosition=4
+**Texas Republican Primary Runoff Election Results: State House 63rd District**\
+`See full results and maps from the Texas runoff elections.`\
+https://nytimes.com/interactive/2022/05/24/us/elections/results-texas-state-house-district-63-runoff.html?searchResultPosition=2
 
-**Arkansas Primary Election Results**\
-`See full results and maps from the Arkansas primary elections.`\
-https://nytimes.com/interactive/2022/05/24/us/elections/results-arkansas.html?searchResultPosition=5
-
-**Georgia Primary Election Results**\
+**Georgia 12th Congressional District Primary Election Results**\
 `See full results and maps from the Georgia primary elections.`\
-https://nytimes.com/interactive/2022/05/24/us/elections/results-georgia.html?searchResultPosition=6
+https://nytimes.com/interactive/2022/05/24/us/elections/results-georgia-us-house-district-12.html?searchResultPosition=3
 
-**Live Primary Results: Tonight’s Key Races**\
-`We’re watching the top races in tonight’s primaries and runoff elections in Georgia, Arkansas, Alabama and Texas.`\
-https://nytimes.com/interactive/2022/05/24/us/elections/results-georgia-arkansas-alabama-texas-primaries.html?searchResultPosition=7
+**Georgia Third Congressional District Primary Election Results**\
+`See full results and maps from the Georgia primary elections.`\
+https://nytimes.com/interactive/2022/05/24/us/elections/results-georgia-us-house-district-3.html?searchResultPosition=4
 
-**Alabama Lieutenant Governor Primary Election Results**\
+**Texas 28th Congressional District Runoff Election Results**\
+`See full results and maps from the Texas runoff elections.`\
+https://nytimes.com/interactive/2022/05/24/us/elections/results-texas-us-house-district-28.html?searchResultPosition=5
+
+**Alabama Fifth Congressional District Primary Election Results**\
 `See full results and maps from the Alabama primary elections.`\
-https://nytimes.com/interactive/2022/05/24/us/elections/results-alabama-lieutenant-governor.html?searchResultPosition=8
+https://nytimes.com/interactive/2022/05/24/us/elections/results-alabama-us-house-district-5.html?searchResultPosition=6
 
-**Texas 35th Congressional District Runoff Election Results**\
-`See full results and maps from the Texas runoff elections.`\
-https://nytimes.com/interactive/2022/05/24/us/elections/results-texas-us-house-district-35.html?searchResultPosition=9
+**Georgia Sixth Congressional District Primary Election Results**\
+`See full results and maps from the Georgia primary elections.`\
+https://nytimes.com/interactive/2022/05/24/us/elections/results-georgia-us-house-district-6.html?searchResultPosition=7
 
-**Texas Seventh Congressional District Runoff Election Results**\
+**Alabama Governor Primary Election Results**\
+`See full results and maps from the Alabama primary elections.`\
+https://nytimes.com/interactive/2022/05/24/us/elections/results-alabama-governor.html?searchResultPosition=8
+
+**Alabama U.S. Senate Primary Election Results**\
+`See full results and maps from the Alabama primary elections.`\
+https://nytimes.com/interactive/2022/05/24/us/elections/results-alabama-us-senate.html?searchResultPosition=9
+
+**Texas Lieutenant Governor Runoff Election Results**\
 `See full results and maps from the Texas runoff elections.`\
-https://nytimes.com/interactive/2022/05/24/us/elections/results-texas-us-house-district-7.html?searchResultPosition=10
+https://nytimes.com/interactive/2022/05/24/us/elections/results-texas-lieutenant-governor.html?searchResultPosition=10
 
