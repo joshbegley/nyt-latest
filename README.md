@@ -1,40 +1,40 @@
-**A New Social App**\
-`Have you heard of BeReal? Does the idea appeal to you?`\
-https://nytimes.com/2022/05/24/learning/a-new-social-app.html?searchResultPosition=1
+**An Art Fair Served Up Several Ways**\
+`With physical and satellite booths as well as online viewing, Art Basel Hong Kong aims to reach dealers and collectors amid Covid-related restrictions.`\
+https://nytimes.com/2022/05/24/arts/design/art-basel-hong-kong.html?searchResultPosition=1
 
-**Putin Showed his True Hand. The West Kept Shaking it.**\
-`It was a naive gamble: if we were nice to Putin, maybe he would be nice to us.`\
-https://nytimes.com/video/opinion/100000008342731/putin-showed-his-true-hand-the-west-kept-shaking-it.html?searchResultPosition=2
+**Russia’s Shrinking War**\
+`The goals of Russia’s invasion keep getting smaller. But its depleted military is still failing to make major advances, and time is on Ukraine’s side.`\
+https://nytimes.com/interactive/2022/05/24/world/europe/russia-shrinking-war-ukraine.html?searchResultPosition=2
 
-**Lesson of the Day: ‘How to See Faces Everywhere’**\
-`In this lesson, students will learn why humans can see faces, even where there are none. Then, they’ll put the science to the test.`\
-https://nytimes.com/2022/05/24/learning/lesson-plans/lesson-of-the-day-how-to-see-faces-everywhere.html?searchResultPosition=3
+**As Border Crossings Soar, Biden Relies on Shelters to Manage Influx**\
+`With 8,200 crossings daily, an informal pipeline of shelters and other way stations to house and feed migrants has become central to the government’s response plan.`\
+https://nytimes.com/2022/05/24/us/politics/migrant-services-shelters-immigration.html?searchResultPosition=3
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/05/24/crosswords/spelling-bee-forum.html?searchResultPosition=4
+**Many Jewish World War II Soldiers Had Christian Burials. That’s Changing.**\
+`Descendants of soldiers are holding rededication ceremonies in Europe to honor their ancestors’ Jewish heritage.`\
+https://nytimes.com/2022/05/24/nyregion/jewish-world-war-ii-soldiers-burials.html?searchResultPosition=4
 
-**Word of the Day: categorically**\
-`This word has appeared in 83 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/05/24/learning/word-of-the-day-categorically.html?searchResultPosition=5
+**You May Be Ready for Summer, but Is Your Home?**\
+`Here are a few steps you can take now to make your space more comfortable during the warm weather ahead.`\
+https://nytimes.com/2022/05/24/realestate/you-may-be-ready-for-summer-but-is-your-home.html?searchResultPosition=5
 
-**Quotation of the Day: Zelensky Urges Global Leaders to Maintain a Tough, United Front**\
-`Quotation of the Day for Tuesday, May 24, 2022`\
-https://nytimes.com/2022/05/24/todayspaper/quotation-of-the-day-zelensky-urges-global-leaders-to-maintain-a-tough-united-front.html?searchResultPosition=6
+**How Ukraine’s Greatest Novelist Is Fighting for His Country**\
+`Andrey Kurkov has spent his life writing about realities so absurd they defy satire. It was perfect preparation for this moment.`\
+https://nytimes.com/2022/05/24/magazine/ukraine-andrey-kurkov.html?searchResultPosition=6
 
-**New Yorkers’ Confidence in Subway Safety Is Shaken Again**\
-`The fatal shooting of Daniel Enriquez on the Q train has left commuters apprehensive, though crime in the subway remains low.`\
-https://nytimes.com/2022/05/24/nyregion/new-yorkers-confidence-in-subway-safety-is-shaken-again.html?searchResultPosition=7
+**When Your Job Fills In for Your Faith, That’s a Problem**\
+`Work has become religion for many knowledge workers. It hurts all of us.`\
+https://nytimes.com/2022/05/24/opinion/work-religion-silicon-valley.html?searchResultPosition=7
 
-**Your Tuesday Briefing**\
-`President Biden in Asia.`\
-https://nytimes.com/2022/05/24/briefing/biden-taiwan-monkeypox.html?searchResultPosition=8
+**Throwing Not Just His Heart, but His Whole Body, Into His Work**\
+`The Taiwanese sculptor Hsu Yunghsu will make his debut at Art Basel Hong Kong with ceramic pieces that he sometimes uses his entire weight to shape.`\
+https://nytimes.com/2022/05/24/arts/design/art-basel-hong-kong-hsu-yunghsu.html?searchResultPosition=8
 
-**Bedlam on the Ice, Torn Loyalties Off It, Define Battle of Alberta**\
-`The N.H.L. playoff series between the Oilers and the Flames is boiling over with the heavy hits, trash talk, deafening arenas and bountiful goal scoring that defined hockey in the 1980s, the last time the rivalry was so fierce.`\
-https://nytimes.com/2022/05/24/sports/hockey/oilers-flames-battle-alberta.html?searchResultPosition=9
+**‘The Last Generation’: The Disillusionment of Young Chinese**\
+`Many believe that they’re the most unlucky generation since 1980s as Beijing’s persistent pursuit of the zero Covid policy wreaks havoc.`\
+https://nytimes.com/2022/05/24/business/china-covid-zero.html?searchResultPosition=9
 
-**What to Watch For in Today’s Elections in Georgia and Beyond**\
-`Alabama, Arkansas and Texas are also holding primaries and runoff elections that will offer new hints of where voters stand on national issues and Donald Trump’s standing in the Republican Party.`\
-https://nytimes.com/2022/05/24/us/politics/georgia-elections-texas-arkansas-alabama-polls.html?searchResultPosition=10
+**As Rents Rise, Mayor Adams Faces Pressure on New York’s Housing Crisis**\
+`“We’ve got to get it right,” the mayor says, but the City Council and advocates want him to push more and spend more to address the dire shortage of affordable housing.`\
+https://nytimes.com/2022/05/24/nyregion/nyc-housing-adams.html?searchResultPosition=10
 
