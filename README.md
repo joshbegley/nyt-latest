@@ -1,5 +1,5 @@
 **Watch Live: Officials Deliver Update on Texas School Shooting**\
-`Fourteen students and one teacher are dead after a shooting at an elementary school in Uvalde, Texas. The gunman was also dead, Gov. Greg Abbott said.`\
+`At least fourteen students and one teacher are dead after a shooting at an elementary school in Uvalde, Texas. The gunman was also dead, Gov. Greg Abbott said.`\
 https://nytimes.com/video/us/100000008366010/shooting-texas-elementary-school-uvalde.html?searchResultPosition=1
 
 **New Names Recommended for 9 Army Bases That Honor Confederate Leaders**\
