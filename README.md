@@ -8,7 +8,7 @@ https://nytimes.com/2022/05/24/business/energy-environment/russia-ukraine-europe
 
 **For a 7th Year, a Busy Hurricane Season Is Expected**\
 `This year’s outlook from government forecasters predicts between 14 to 21 named storms, with between six and 10 expected to reach hurricane strength.`\
-https://nytimes.com/2022/05/24/climate/2022-hurricane-forecast-noaa.html?searchResultPosition=3
+https://nytimes.com/2022/05/24/climate/hurricane-2022-forecast-noaa.html?searchResultPosition=3
 
 **The Food at Inga’s Bar Is Far From Bar Food**\
 `From a former chef of the classics Diner and Marlow & Sons, a new Brooklyn Heights corner spot serves comfortably deft seasonal cooking.`\
