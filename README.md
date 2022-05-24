@@ -14,9 +14,9 @@ https://nytimes.com/2022/05/24/opinion/abortion-oklahoma-supreme-court.html?sear
 `Timothy Shea, a key player in the campaign, is on trial in what prosecutors describe as a coordinated plan to funnel money from the $25 million crowdfunding initiative.`\
 https://nytimes.com/2022/05/24/nyregion/us-mexico-wall-project-trial.html?searchResultPosition=4
 
-**Police Name Suspect in Fatal Shooting of Subway Rider**\
+**Suspect in Fatal Shooting of Subway Rider Surrenders to Police**\
 `Andrew Abdullah was the subject of a manhunt that began minutes after a gunman shot a passenger on a northbound Q train on Sunday.`\
-https://nytimes.com/2022/05/24/nyregion/q-train-shooting-gunman-named.html?searchResultPosition=5
+https://nytimes.com/2022/05/24/nyregion/subway-shooting-gunman-andrew-abdullah.html?searchResultPosition=5
 
 **For Barnabé Fillion, Fragrance Is a Multisensory Affair**\
 `The perfumer’s new brand, Arpa, is intended as a purely creative endeavor, one heavily influenced by his ability to experience certain senses through the lens of another.`\
