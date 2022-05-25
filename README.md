@@ -6,9 +6,9 @@ https://nytimes.com/2022/05/25/business/china-pushes-for-regular-mass-testing-in
 `This could be the mass shooting that leads to significant change — or it could join the long list of other atrocities that have been followed by policy stalemates.`\
 https://nytimes.com/2022/05/25/business/dealbook/uvalde-gun-laws.html?searchResultPosition=2
 
-**Journalist Shireen Abu Akleh Was Killed in Jenin. Who Will be Next?**\
+**Journalist Shireen Abu Akleh Was Killed in Jenin. Who Will Be Next?**\
 `A transparent investigation into the killing of Shireen Abu Akleh will lead to much-needed accountability.`\
-https://nytimes.com/2022/05/25/opinion/journalist-shireen-abu-akleh-was-killed-in-jenin-who-will-be-next.html?searchResultPosition=3
+https://nytimes.com/2022/05/25/opinion/shireen-abu-akleh-killed.html?searchResultPosition=3
 
 **Summer in the City Is Back (Again!)**\
 `And this year, we made a bucket list to get you started.`\
