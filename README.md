@@ -1,6 +1,6 @@
 **19 Murdered Children**\
 `Gun violence has killed more children and destroyed another community.`\
-https://nytimes.com/2022/05/25/briefing/uvalde-texas-school-shooting.html?searchResultPosition=1
+https://nytimes.com/2022/05/25/briefing/texas-elementary-school-shooting-uvalde.html?searchResultPosition=1
 
 **World leaders react with heartbreak and calls for change.**\
 `Pope Francis and President Volodymyr Zelensky of Ukraine were among the officials who offered their condolences after another mass shooting in the U.S.`\
