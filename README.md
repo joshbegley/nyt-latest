@@ -4,7 +4,7 @@ https://nytimes.com/2022/05/25/world/europe/monkeypox-stigma.html?searchResultPo
 
 **Grief and Cooking**\
 `In cooking, we strive to find relief, strength, resolve.`\
-https://nytimes.com/2022/05/25/dining/grief-and-cooking.html?searchResultPosition=2
+https://nytimes.com/2022/05/25/dining/cooking-relief-grief.html?searchResultPosition=2
 
 **‘Quantum Internet’ Inches Closer With Advance in Data Teleportation**\
 `Scientists have improved their ability to send quantum information across distant computers — and have taken another step toward the network of the future.`\
