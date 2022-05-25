@@ -1,6 +1,6 @@
 **California Approves New Water Restrictions Amid Worsening Drought**\
 `The regulations are the strictest statewide mandates yet.`\
-https://nytimes.com/2022/05/25/us/california-water-restrictions.html?searchResultPosition=1
+https://nytimes.com/2022/05/25/us/california-drought-water-restrictions.html?searchResultPosition=1
 
 **China pushes for regular mass testing in ‘zero-Covid’ pursuit.**\
 `The strategy risks increasing economic stress and trying people’s patience.`\
