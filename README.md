@@ -1,5 +1,5 @@
 **It Shouldn’t Take This Long to Vaccinate Our Youngest Kids**\
-`The formula shortage came on top of the seemingly endless wait for vaccines.`\
+`The formula shortage came on the heels of this seemingly endless wait.`\
 https://nytimes.com/2022/05/25/opinion/vaccines-children.html?searchResultPosition=1
 
 **Parents were asked for DNA samples to help identify victims.**\
