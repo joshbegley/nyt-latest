@@ -1,6 +1,6 @@
 **New York Theater Workshop Names Patricia McGregor as Artistic Director**\
 `The freelance director will succeed James Nicola, who has led the Off Broadway nonprofit since 1988.`\
-https://nytimes.com/2022/05/25/theater/patricia-mcgregor-new-york-theater-workshop.html?searchResultPosition=1
+https://nytimes.com/2022/05/25/theater/ny-theater-workshop-patricia-mcgregor.html?searchResultPosition=1
 
 **‘The Bob’s Burgers Movie’ Is Coming. Here Are 10 Great Episodes.**\
 `Need a primer or refresher before the movie debuts? These are the essential “Bob’s Burgers” episodes to watch.`\
