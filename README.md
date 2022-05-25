@@ -12,7 +12,7 @@ https://nytimes.com/2022/05/25/technology/quantum-internet-teleportation.html?se
 
 **In a Former Mafia Stronghold, Art Remembers, and Warns**\
 `A public art campaign in Palermo, Sicily, is reminding residents of the city’s grim Mafia years, and is encouraging them to resist creeping organized crime influence.`\
-https://nytimes.com/2022/05/25/arts/dance/palermo-mafia-art-spazi-capaci.html?searchResultPosition=4
+https://nytimes.com/2022/05/25/arts/dance/art-palermo-mafia.html?searchResultPosition=4
 
 **Putin visits the wounded at a military hospital in Moscow, in a first since the Ukraine invasion.**\
 `The Russian leader also announces new social welfare measures and military benefits in an apparent effort to show Russians he is aware times are tough.`\
