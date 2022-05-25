@@ -10,8 +10,8 @@ https://nytimes.com/2022/05/25/briefing/uvalde-shooting-primaries-quantum-comput
 `False and unfounded claims started to spread online shortly after the killings.`\
 https://nytimes.com/2022/05/25/technology/texas-shooting-misinformation.html?searchResultPosition=3
 
-**Alcaraz, Zverev Need Five-Set Thrillers to Win at French Open**\
-`Both players are among the top seeds in the men’s singles tournament and saved match points before turning things around.`\
+**Two High Seeds Need Five-Set Thrillers to Win at French Open**\
+`Alexander Zverev and Carlos Alcaraz saved match points in the men’s singles tournament before turning things around.`\
 https://nytimes.com/2022/05/25/sports/tennis/french-open-alcaraz.html?searchResultPosition=4
 
 **Pennsylvania’s Republican Senate Race Heads to Recount**\
