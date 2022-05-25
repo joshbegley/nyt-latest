@@ -10,8 +10,8 @@ https://nytimes.com/2022/05/25/podcasts/the-daily/uvalde-school-shooting-sandy-h
 `Each week we spotlight five student activities created for a broad range of learners based on reporting in The New York Times.`\
 https://nytimes.com/2022/05/25/learning/weekly-accessible-learning-activities-sharks-tattoos-faces.html?searchResultPosition=3
 
-**China conducts military drills near Taiwan, a day after exercises with Russia.**\
-`Days after President Biden said he would use military force to defend Taiwan if China attacked it, China held combat drills in the seas and airspace around Taiwan.`\
+**China says it conducted military drills near Taiwan in warning to the U.S.**\
+`After President Biden suggested the United States would get involved militarily to defend Taiwan if China attacked it, China said it had recently held combat drills in the seas and airspace around Taiwan.`\
 https://nytimes.com/2022/05/25/world/asia/china-taiwan-military-drills.html?searchResultPosition=4
 
 **Here are results from key contests in Georgia, Alabama, Arkansas and Texas.**\
