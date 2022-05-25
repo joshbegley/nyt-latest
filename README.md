@@ -18,7 +18,7 @@ https://nytimes.com/2022/05/25/books/morton-l-janklow-dead.html?searchResultPosi
 `Twitter did not do enough to tell its users that the personal data it had collected was used partly to help marketers target ads, the F.T.C. and Justice Department said.`\
 https://nytimes.com/2022/05/25/technology/twitter-fined-ftc-doj-privacy.html?searchResultPosition=5
 
-**In Aftermath of Texas Shooting, Ted Cruz Digs In Against Gun Control**\
+**After Texas Shooting, Ted Cruz Digs In Against Gun Control**\
 `After the mass shooting at an elementary school in his home state, the senator called for armed law enforcement on campuses and faulted Democrats for politicizing the issue.`\
 https://nytimes.com/2022/05/25/us/politics/ted-cruz-texas-shooting.html?searchResultPosition=6
 
