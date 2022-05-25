@@ -15,7 +15,7 @@ https://nytimes.com/2022/05/24/us/chris-murphy-texas-shooting-sandy-hook.html?se
 https://nytimes.com/2022/05/24/theater/review-california-trish-harnetiaux.html?searchResultPosition=4
 
 **18 Children and a Teacher Killed in Massacre at Texas Elementary School**\
-`The mass shooting was the deadliest at an American elementary school since the slayings at Sandy Hook a decade ago.`\
+`The mass shooting was the deadliest at an American school since the slayings at Sandy Hook a decade ago.`\
 https://nytimes.com/2022/05/24/us/shooting-texas-elementary-school.html?searchResultPosition=5
 
 **Senator Chris Murphy Pleads for Change After Texas School Shooting**\
