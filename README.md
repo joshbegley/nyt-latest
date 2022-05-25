@@ -24,7 +24,7 @@ https://nytimes.com/2022/05/25/world/asia/china-pacific-island-countries.html?se
 
 **Discrimination Weakens Tool for Reducing N.Y. Homelessness, Lawsuit Says**\
 `Vouchers, which help people afford rent, have long been seen as a key to solving the nation’s housing woes. But in New York City, a broken oversight system is undermining their effectiveness, advocates say.`\
-https://nytimes.com/2022/05/25/nyregion/homeless-discrimination-vouchers-lawsuit.html?searchResultPosition=7
+https://nytimes.com/2022/05/25/nyregion/ny-vouchers-homeless-discrimination.html?searchResultPosition=7
 
 **Join Us for Closing the Gap on Climate Inequity, a Times Virtual Event on Climate Change**\
 `The global south contributes little to climate change yet suffers disproportionately from its effects. Join New York Times journalists and leading experts as they share their visions for an equitable, climate-resilient future.`\
