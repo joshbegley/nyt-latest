@@ -10,7 +10,7 @@ https://nytimes.com/2022/05/25/arts/music/review-justin-austin-armory.html?searc
 `The long-awaited report on boozy parties that violated lockdown rules was once seen as potentially ruinous for Prime Minister Boris Johnson, but the situation has changed.`\
 https://nytimes.com/2022/05/25/world/europe/boris-johnson-sue-gray-report-partygate.html?searchResultPosition=3
 
-**Fed officials expected to make at least three big rate increases over the next few months, worried about entrenched inflation.**\
+**Fed officials expected to make at least three big rate increases over the next few months.**\
 `Minutes of the Federal Reserve’s May meeting underscored the deep concern within the central bank about rapidly rising prices that have far exceeded the Fed’s target.`\
 https://nytimes.com/2022/05/25/business/economy/fed-interest-rates-inflation.html?searchResultPosition=4
 
