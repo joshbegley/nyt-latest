@@ -1,4 +1,4 @@
-**Parents of Little Kids Still Feel They’ve Been Abandoned**\
+**It Shouldn’t Take This Long to Vaccinate Our Youngest Kids**\
 `The formula shortage came on top of the seemingly endless wait for vaccines.`\
 https://nytimes.com/2022/05/25/opinion/vaccines-children.html?searchResultPosition=1
 
