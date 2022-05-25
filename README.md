@@ -10,8 +10,8 @@ https://nytimes.com/slideshow/2022/05/25/realestate/home-prices-maryland-iowa-ma
 `The gunman was a high school senior who frequently missed school and struggled to get along with classmates, acquaintances said on Tuesday.`\
 https://nytimes.com/2022/05/25/us/texas-gunman-bullied.html?searchResultPosition=3
 
-**Read the report on lockdown parties at Downing Street.**\
-`A senior British civil servant, Sue Gray, compiled a report on parties held at Downing Street in violation of Covid lockdown rules. The scandal has put pressure on Prime Minister Boris Johnson.`\
+**Read the report on lockdown parties in Downing Street.**\
+`A senior British civil servant, Sue Gray, compiled a report on parties held in Downing Street in violation of Covid lockdown rules. The scandal has put pressure on Prime Minister Boris Johnson.`\
 https://nytimes.com/interactive/2022/05/25/world/europe/final-report-uk-lockdown-parties.html?searchResultPosition=4
 
 **19 Murdered Children**\
