@@ -26,7 +26,7 @@ https://nytimes.com/2022/05/24/learning/responding-to-the-shooting-in-uvalde.htm
 `The far-right congresswoman fended off a challenge from a Republican businesswoman who had hoped to push Ms. Greene into a runoff election.`\
 https://nytimes.com/2022/05/24/us/politics/marjorie-taylor-greene-primary.html?searchResultPosition=7
 
-**Chris Murphy, having witnessed Sandy Hook’s pain, slams fellow senators: “Why are you here?”**\
+**Chris Murphy, having witnessed Sandy Hook’s pain, slams fellow senators: ‘Why are you here?’**\
 `The Connecticut senator has made gun control his life’s work since witnessing Sandy Hook parents learning their children had been killed.`\
 https://nytimes.com/2022/05/24/us/chris-murphy-texas-shooting-sandy-hook.html?searchResultPosition=8
 
