@@ -12,7 +12,7 @@ https://nytimes.com/interactive/2022/05/25/well/family/texas-mass-shooting-fears
 
 **They Have Millions of Followers and Tons of Fun. Why Would They Retire?**\
 `“Grandfluencers” on TikTok are sharing a new vision for what it means to live meaningfully with age.`\
-https://nytimes.com/2022/05/25/style/old-gays-retirement-house-tiktok.html?searchResultPosition=4
+https://nytimes.com/2022/05/25/style/tiktok-old-gays-retirement.html?searchResultPosition=4
 
 **An Oliver Sacks Book Becomes an Opera, With Help From Friends**\
 `Tobias Picker and Aryeh Lev Stollman have adapted “Awakenings,” drawing both on source material and personal experience.`\
