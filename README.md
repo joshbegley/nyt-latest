@@ -1,6 +1,6 @@
 **Putin visits the wounded at a military hospital in Moscow, in a first since the Ukraine invasion.**\
-`The Russian leader tells a patients with a 9-month-old son: ‘He’ll be proud of his dad.’`\
-https://nytimes.com/2022/05/25/world/europe/putin-visits-the-wounded-at-a-military-hospital-in-moscow-in-a-first-since-the-ukraine-invasion.html?searchResultPosition=1
+`The Russian leader tells a patient with a 9-month-old son: ‘He’ll be proud of his dad.’`\
+https://nytimes.com/2022/05/25/world/europe/putin-military-hospital-moscow.html?searchResultPosition=1
 
 **Pope Francis Calls for Gun Control After Texas School Shooting**\
 `Pope Francis was among the many world leaders commenting on the massacre, saying he was “heartbroken” by the killing of 19 children and two teachers at an elementary school in Uvalde, Texas.`\
