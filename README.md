@@ -16,7 +16,7 @@ https://nytimes.com/2022/05/25/arts/music/awakenings-opera-oliver-sacks.html?sea
 
 **Peaches Reflects on Her Seminal Album, ‘The Teaches of Peaches’**\
 `The electroclash pioneer looks back on her influential album 20 years later.`\
-https://nytimes.com/2022/05/25/style/peaches-reflects-on-her-seminal-album-the-teaches-of-peaches.html?searchResultPosition=5
+https://nytimes.com/2022/05/25/style/peaches-singer-album.html?searchResultPosition=5
 
 **China Seeks Sweeping Regional Deal With Pacific Island Countries**\
 `Newly obtained documents shed light on how Beijing hopes to win friends and gain influence in an area of strategic importance.`\
