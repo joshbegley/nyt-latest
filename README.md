@@ -1,40 +1,40 @@
+**For Minneapolis Police, Change Comes Slowly**\
+`Two years after the murder of George Floyd by a Minneapolis police officer, the mayor has tried to overhaul the police, but many residents say that genuine change has been slow in coming.`\
+https://nytimes.com/2022/05/25/us/minneapolis-police-george-floyd-anniversary.html?searchResultPosition=1
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2022/05/25/crosswords/spelling-bee-forum.html?searchResultPosition=2
+
 **On Somber Night, Mavericks’ Crucial Win Draws Muted Celebration**\
 `Dallas staved off elimination by Golden State behind Luka Doncic’s near triple-double. But the mass shooting in Uvalde loomed over the game.`\
-https://nytimes.com/2022/05/25/sports/basketball/dallas-mavericks-golden-state-luka-doncic.html?searchResultPosition=1
+https://nytimes.com/2022/05/25/sports/basketball/dallas-mavericks-golden-state-luka-doncic.html?searchResultPosition=3
 
 **How (and Why) We Calculated the Value of Haiti’s Payments to France**\
 `We wanted to know how much Haiti had paid over generations. So we set out to compile the data.`\
-https://nytimes.com/2022/05/25/world/europe/how-and-why-we-calculated-the-value-of-haitis-payments-to-france.html?searchResultPosition=2
+https://nytimes.com/2022/05/25/world/europe/how-and-why-we-calculated-the-value-of-haitis-payments-to-france.html?searchResultPosition=4
 
 **Word of the Day: germinal**\
 `This word has appeared in three articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/05/25/learning/word-of-the-day-germinal.html?searchResultPosition=3
+https://nytimes.com/2022/05/25/learning/word-of-the-day-germinal.html?searchResultPosition=5
 
 **Quotation of the Day: A Haitian President Demands Reparations and Ends Up in Exile**\
 `Quotation of the Day, for Wednesday, May 25, 2022`\
-https://nytimes.com/2022/05/25/todayspaper/quotation-of-the-day-a-haitian-president-demands-reparations-and-ends-up-in-exile.html?searchResultPosition=4
+https://nytimes.com/2022/05/25/todayspaper/quotation-of-the-day-a-haitian-president-demands-reparations-and-ends-up-in-exile.html?searchResultPosition=6
 
 **Man in Custody in ‘Every New Yorker’s Worst Nightmare’**\
 `Andrew Abdullah, 25, the suspect in the fatal shooting on the Q train, had a history of arrests in gun offenses.`\
-https://nytimes.com/2022/05/25/nyregion/man-in-custody-in-every-new-yorkers-worst-nightmare.html?searchResultPosition=5
+https://nytimes.com/2022/05/25/nyregion/man-in-custody-in-every-new-yorkers-worst-nightmare.html?searchResultPosition=7
 
 **At Least 21 Killed in Texas Elementary School Shooting**\
 `The shooting at Robb Elementary School in Uvalde, Texas, is the deadliest school shooting since the 2012 massacre in Newtown, Conn.`\
-https://nytimes.com/video/us/100000008366430/texas-shooting-robb-elementary-uvalde.html?searchResultPosition=6
+https://nytimes.com/video/us/100000008366430/texas-shooting-robb-elementary-uvalde.html?searchResultPosition=8
 
 **Your Wednesday Briefing**\
 `A deadly school shooting.`\
-https://nytimes.com/2022/05/25/briefing/shooting-robb-hunger-crisis.html?searchResultPosition=7
+https://nytimes.com/2022/05/25/briefing/shooting-robb-hunger-crisis.html?searchResultPosition=9
 
 **Alabama Second Congressional District Primary Election Results**\
 `See full results and maps from the Alabama primary elections.`\
-https://nytimes.com/interactive/2022/05/24/us/elections/results-alabama-us-house-district-2.html?searchResultPosition=8
-
-**Texas 28th Congressional District Runoff Election Results**\
-`See full results and maps from the Texas runoff elections.`\
-https://nytimes.com/interactive/2022/05/24/us/elections/results-texas-us-house-district-28.html?searchResultPosition=9
-
-**Texas 24th Congressional District Runoff Election Results**\
-`See full results and maps from the Texas runoff elections.`\
-https://nytimes.com/interactive/2022/05/24/us/elections/results-texas-us-house-district-24.html?searchResultPosition=10
+https://nytimes.com/interactive/2022/05/24/us/elections/results-alabama-us-house-district-2.html?searchResultPosition=10
 
