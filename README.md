@@ -34,7 +34,7 @@ https://nytimes.com/2022/05/24/us/chris-murphy-texas-shooting-sandy-hook.html?se
 `The playwright Trish Harnetiaux’s new show, set entirely in a car, follows a family of travelers. It bravely, if not entirely satisfyingly, explores alternate realities.`\
 https://nytimes.com/2022/05/24/theater/review-california-trish-harnetiaux.html?searchResultPosition=9
 
-**18 Children and a Teacher Killed in Massacre at Texas Elementary School**\
+**19 Children and 2 Adults Killed in Massacre at Texas Elementary School**\
 `The mass shooting was the deadliest at an American school since the slayings at Sandy Hook a decade ago.`\
 https://nytimes.com/2022/05/24/us/shooting-texas-elementary-school.html?searchResultPosition=10
 
