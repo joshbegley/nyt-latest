@@ -16,7 +16,7 @@ https://nytimes.com/2022/05/25/movies/movies-streaming.html?searchResultPosition
 
 **E. Gerald Corrigan, Who Helped Ease ’87 Stock Crash, Dies at 80**\
 `As president of the Federal Reserve Bank of New York, he favored flooding the financial system with cash to restore confidence among investors.`\
-https://nytimes.com/2022/05/25/business/e-gerald-corrigan-who-helped-ease-87-stock-crash-dies-at-80.html?searchResultPosition=5
+https://nytimes.com/2022/05/25/business/e-gerald-corrigan-dead.html?searchResultPosition=5
 
 **Josh Duggar Is Sentenced to 12 Years for Downloading Images of Child Sex Abuse**\
 `Mr. Duggar, 34, a former star of the TLC reality show “19 Kids and Counting,” was convicted in December after he tried to covertly download graphic images to his computer in Arkansas.`\
