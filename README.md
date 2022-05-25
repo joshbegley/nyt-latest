@@ -1,40 +1,40 @@
-**School Shooting Raises Stakes at Hearing for Biden’s Pick to Lead A.T.F.**\
-`The massacre casts into stark relief the differences between a supporter of a renewed assault weapons ban and Republicans, who consider him a threat to Second Amendment rights.`\
-https://nytimes.com/2022/05/25/us/politics/steven-dettelbach-biden-texas-shooting.html?searchResultPosition=1
+**Monroe, Conn.: A ‘Family-centric’ Community With a Small-Town Feel**\
+`The Fairfield County suburb offers ‘more house and space for a lot less money’ than neighboring towns like Fairfield and Westport.`\
+https://nytimes.com/2022/05/25/realestate/monroe-conn-a-family-centric-community-with-a-small-town-feel.html?searchResultPosition=1
 
-**Four Takeaways From Tuesday’s Elections**\
-`Georgia voters rejected Donald Trump’s 2020 fixation, G.O.P. governors proved their strength, and Georgia Democrats backed a gun-control champion on the day of a horrifying school shooting in Texas.`\
-https://nytimes.com/2022/05/25/us/politics/takeaways-tuesdays-elections-primaries.html?searchResultPosition=2
+**Why Trillium Have Become the Poster Child for Endangered Native Plants**\
+`According to a recent report, many of these ‘charismatic’ wildflowers are threatened with extinction. Here’s what you can do to help.`\
+https://nytimes.com/2022/05/25/realestate/trillium-endangered-plants.html?searchResultPosition=2
 
-**The Pitfalls of Oven-Ready TV**\
-`Prestige shows like “Winning Time” love to dramatize the real people at the heart of recent-ish events. It doesn’t always go well.`\
-https://nytimes.com/2022/05/25/magazine/winning-time-jerry-west.html?searchResultPosition=3
+**A Heat Wave’s Lamented Victim: The Mango, India’s King of Fruits**\
+`Blistering spring temperatures have devastated crops of the country’s most beloved fruit. “The soul of a farmer shudders at seeing these fruitless trees,” one grower said.`\
+https://nytimes.com/2022/05/25/world/asia/india-heat-wave-mango.html?searchResultPosition=3
 
-**Who Decides the Right Way to Protest?**\
-`A debate on what it means to voice dissent, and how to tell whether it’s made a difference.`\
-https://nytimes.com/2022/05/25/opinion/the-argument-george-floyd-protests-us.html?searchResultPosition=4
+**Trump Vowed Vengeance, but Georgia Voters Rejected His Meddling**\
+`The president’s endorsed candidates were losers up and down the primary ballot, raising questions about the firmness of his grip on the Republican Party.`\
+https://nytimes.com/2022/05/25/us/politics/trump-perdue-georgia.html?searchResultPosition=4
 
-**Biscotti So Good They Made Me Cry**\
-`These chocolate biscotti, spiked with chiles and studded with cashews, possess the power to persuade even the staunchest doubters.`\
-https://nytimes.com/2022/05/25/magazine/biscotti-recipe.html?searchResultPosition=5
+**Jimmy Carter, at 97, Steps Into a Big Fight Over a Small Road in Alaska**\
+`The legal battle over the gravel route could gut an environmental law that the 39th president called one of his highest achievements.`\
+https://nytimes.com/2022/05/25/climate/alaska-anilca-wilderness-area.html?searchResultPosition=5
 
-**How I Learned to Live With Ghosts**\
-`The Korean tradition of jesa, or memorializing ancestors, helped me understand that our loved ones continue to shape our lives long after they have departed.`\
-https://nytimes.com/2022/05/25/magazine/jesa-ancestors-korea-ghosts.html?searchResultPosition=6
+**I Tried Apple’s Self-Repair Program With My iPhone. Disaster Ensued.**\
+`Apple’s do-it-yourself tools and instructions are far from ideal for most of us. I know this because I broke my phone trying to use them.`\
+https://nytimes.com/2022/05/25/technology/personaltech/apple-repair-program-iphone.html?searchResultPosition=6
 
-**Lesson of the Day: ‘The Unlikely Ascent of New York’s Compost Champion’**\
-`In this lesson, students will learn about the environmental work led by Domingo Morales. Then, they will research and come up with a plan for one climate action they can take in their community.`\
-https://nytimes.com/2022/05/25/learning/lesson-plans/lesson-of-the-day-the-unlikely-ascent-of-new-yorks-compost-champion.html?searchResultPosition=7
+**7 Million Bad Student Loans With No Way Out, for Anyone**\
+`The Biden administration plans to offer those with loans in default a fresh start. It would help borrowers and the government alike.`\
+https://nytimes.com/2022/05/25/business/student-loans-default-forgiveness.html?searchResultPosition=7
 
-**Newly Published, From Rainbow Cocktails to Magical Beasts**\
-`A selection of books published this week; plus, a peek at what our colleagues around the newsroom are reading.`\
-https://nytimes.com/2022/05/25/books/review/new-this-week.html?searchResultPosition=8
+**Living In ... Monroe, Conn.**\
+`The Fairfield County suburb offers ‘more house and space for a lot less money’ than neighboring towns like Fairfield and Westport.`\
+https://nytimes.com/slideshow/2022/05/25/realestate/living-in-monroe-conn.html?searchResultPosition=8
 
-**For Minneapolis Police, Change Comes Slowly**\
-`Two years after the murder of George Floyd by a Minneapolis police officer, the mayor has tried to overhaul the police, but many residents say that genuine change has been slow in coming.`\
-https://nytimes.com/2022/05/25/us/minneapolis-police-george-floyd-anniversary.html?searchResultPosition=9
+**Who Is Austin Butler and What Does He Want?**\
+`Hollywood thinks he might be the next big star. But with the risky “Elvis” riding on his performance, the magnetic actor is feeling the pressure.`\
+https://nytimes.com/2022/05/25/movies/austin-butler-elvis.html?searchResultPosition=9
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/05/25/crosswords/spelling-bee-forum.html?searchResultPosition=10
+**Why Is ‘Bob’s Burgers’ So Freakishly Lovable? This Guy.**\
+`Loren Bouchard’s accidental career as a comedy mogul has now brought his TV family to the big screen.`\
+https://nytimes.com/2022/05/25/magazine/bobs-burgers-movie-loren-bouchard.html?searchResultPosition=10
 
