@@ -8,7 +8,7 @@ https://nytimes.com/2022/05/25/theater/ny-theater-workshop-patricia-mcgregor.htm
 
 **‘The Bob’s Burgers Movie’ Is Coming. Here Are 10 Great Episodes.**\
 `Need a primer or refresher before the movie debuts? These are the essential “Bob’s Burgers” episodes to watch.`\
-https://nytimes.com/2022/05/25/arts/television/bobs-burgers-best-episodes.html?searchResultPosition=3
+https://nytimes.com/2022/05/25/arts/television/bobs-burgers-movie-episodes.html?searchResultPosition=3
 
 **Dozens of Migrants Die After Boat Sinks Off Tunisian Coast**\
 `The vessel carried about 100 people and had left from a Libyan port city.`\
