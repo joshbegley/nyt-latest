@@ -10,7 +10,7 @@ https://nytimes.com/2022/05/25/nyregion/legionnaires-outbreak-nyc.html?searchRes
 `The former congressman shouted that the elementary school killings were a “totally predictable” result of lax state and federal gun laws.`\
 https://nytimes.com/2022/05/25/us/beto-orourke-texas-press-conference-texas-shooting.html?searchResultPosition=3
 
-**F.D.A. Chief Decries ‘Shocking’ Conditions at Baby Formula Plant**\
+**F.D.A. Chief Details ‘Shocking’ Conditions at Baby Formula Plant**\
 `Agency inspectors found a leaking roof, standing water and cracked production equipment before a facility shutdown that led to major shortages.`\
 https://nytimes.com/2022/05/25/health/fda-baby-formula-shortage.html?searchResultPosition=4
 
