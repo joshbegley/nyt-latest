@@ -1,5 +1,5 @@
 **On Somber Night, Mavericks’ Crucial Win Draws Muted Celebration**\
-`Dallas staved off elimination by Golden State behind Luka Doncic’s near triple-double. But a tragic mass shooting nearby loomed over the game.`\
+`Dallas staved off elimination by Golden State behind Luka Doncic’s near triple-double. But a tragic mass shooting loomed over the game.`\
 https://nytimes.com/2022/05/25/sports/basketball/dallas-mavericks-golden-state-luka-doncic.html?searchResultPosition=1
 
 **How (and Why) We Calculated the Value of Haiti’s Payments to France**\
