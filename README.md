@@ -2,7 +2,7 @@
 `Nancy Brophy, a 71-year-old romance novelist, was accused in the shooting death of her husband. She said prosecutors had sketched a flawed plotline.`\
 https://nytimes.com/2022/05/25/us/novelist-nancy-brophy-murder-husband.html?searchResultPosition=1
 
-**Legionnaires Outbreak in the Bronx Kills One**\
+**Legionnaires’ Outbreak in the Bronx Kills 1, Sickens 18**\
 `Health officials urged Bronx residents with flulike symptoms to seek medical care after Legionella bacteria were found in cooling towers there.`\
 https://nytimes.com/2022/05/25/nyregion/legionnaires-outbreak-nyc.html?searchResultPosition=2
 
