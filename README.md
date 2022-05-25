@@ -1,40 +1,40 @@
+**School Shooting Raises Stakes at Hearing for Biden’s Pick to Lead A.T.F.**\
+`The massacre casts into stark relief the differences between a supporter of a renewed assault weapons ban and Republicans, who consider him a threat to Second Amendment rights.`\
+https://nytimes.com/2022/05/25/us/politics/steven-dettelbach-biden-texas-shooting.html?searchResultPosition=1
+
+**Four Takeaways From Tuesday’s Elections**\
+`Georgia voters rejected Donald Trump’s 2020 fixation, G.O.P. governors proved their strength, and Georgia Democrats backed a gun-control champion on the day of a horrifying school shooting in Texas.`\
+https://nytimes.com/2022/05/25/us/politics/takeaways-tuesdays-elections-primaries.html?searchResultPosition=2
+
+**The Pitfalls of Oven-Ready TV**\
+`Prestige shows like “Winning Time” love to dramatize the real people at the heart of recent-ish events. It doesn’t always go well.`\
+https://nytimes.com/2022/05/25/magazine/winning-time-jerry-west.html?searchResultPosition=3
+
+**Who Decides the Right Way to Protest?**\
+`A debate on what it means to voice dissent, and how to tell whether it’s made a difference.`\
+https://nytimes.com/2022/05/25/opinion/the-argument-george-floyd-protests-us.html?searchResultPosition=4
+
+**Biscotti So Good They Made Me Cry**\
+`These chocolate biscotti, spiked with chiles and studded with cashews, possess the power to persuade even the staunchest doubters.`\
+https://nytimes.com/2022/05/25/magazine/biscotti-recipe.html?searchResultPosition=5
+
+**How I Learned to Live With Ghosts**\
+`The Korean tradition of jesa, or memorializing ancestors, helped me understand that our loved ones continue to shape our lives long after they have departed.`\
+https://nytimes.com/2022/05/25/magazine/jesa-ancestors-korea-ghosts.html?searchResultPosition=6
+
+**Lesson of the Day: ‘The Unlikely Ascent of New York’s Compost Champion’**\
+`In this lesson, students will learn about the environmental work led by Domingo Morales. Then, they will research and come up with a plan for one climate action they can take in their community.`\
+https://nytimes.com/2022/05/25/learning/lesson-plans/lesson-of-the-day-the-unlikely-ascent-of-new-yorks-compost-champion.html?searchResultPosition=7
+
+**Newly Published, From Rainbow Cocktails to Magical Beasts**\
+`A selection of books published this week; plus, a peek at what our colleagues around the newsroom are reading.`\
+https://nytimes.com/2022/05/25/books/review/new-this-week.html?searchResultPosition=8
+
 **For Minneapolis Police, Change Comes Slowly**\
 `Two years after the murder of George Floyd by a Minneapolis police officer, the mayor has tried to overhaul the police, but many residents say that genuine change has been slow in coming.`\
-https://nytimes.com/2022/05/25/us/minneapolis-police-george-floyd-anniversary.html?searchResultPosition=1
+https://nytimes.com/2022/05/25/us/minneapolis-police-george-floyd-anniversary.html?searchResultPosition=9
 
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/05/25/crosswords/spelling-bee-forum.html?searchResultPosition=2
-
-**On Somber Night, Mavericks’ Crucial Win Draws Muted Celebration**\
-`Dallas staved off elimination by Golden State behind Luka Doncic’s near triple-double. But the mass shooting in Uvalde loomed over the game.`\
-https://nytimes.com/2022/05/25/sports/basketball/dallas-mavericks-golden-state-luka-doncic.html?searchResultPosition=3
-
-**How (and Why) We Calculated the Value of Haiti’s Payments to France**\
-`We wanted to know how much Haiti had paid over generations. So we set out to compile the data.`\
-https://nytimes.com/2022/05/25/world/europe/how-and-why-we-calculated-the-value-of-haitis-payments-to-france.html?searchResultPosition=4
-
-**Word of the Day: germinal**\
-`This word has appeared in three articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/05/25/learning/word-of-the-day-germinal.html?searchResultPosition=5
-
-**Quotation of the Day: A Haitian President Demands Reparations and Ends Up in Exile**\
-`Quotation of the Day, for Wednesday, May 25, 2022`\
-https://nytimes.com/2022/05/25/todayspaper/quotation-of-the-day-a-haitian-president-demands-reparations-and-ends-up-in-exile.html?searchResultPosition=6
-
-**Man in Custody in ‘Every New Yorker’s Worst Nightmare’**\
-`Andrew Abdullah, 25, the suspect in the fatal shooting on the Q train, had a history of arrests in gun offenses.`\
-https://nytimes.com/2022/05/25/nyregion/man-in-custody-in-every-new-yorkers-worst-nightmare.html?searchResultPosition=7
-
-**At Least 21 Killed in Texas Elementary School Shooting**\
-`The shooting at Robb Elementary School in Uvalde, Texas, is the deadliest school shooting since the 2012 massacre in Newtown, Conn.`\
-https://nytimes.com/video/us/100000008366430/texas-shooting-robb-elementary-uvalde.html?searchResultPosition=8
-
-**Your Wednesday Briefing**\
-`A deadly school shooting.`\
-https://nytimes.com/2022/05/25/briefing/shooting-robb-hunger-crisis.html?searchResultPosition=9
-
-**Alabama Second Congressional District Primary Election Results**\
-`See full results and maps from the Alabama primary elections.`\
-https://nytimes.com/interactive/2022/05/24/us/elections/results-alabama-us-house-district-2.html?searchResultPosition=10
+https://nytimes.com/2022/05/25/crosswords/spelling-bee-forum.html?searchResultPosition=10
 
