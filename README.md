@@ -12,7 +12,7 @@ https://nytimes.com/2022/05/26/us/shooting-school-security.html?searchResultPosi
 
 **Internet Drama in Canada. (Really.)**\
 `We all need great internet service, but it doesn’t happen by accident.`\
-https://nytimes.com/2022/05/26/technology/internet-service-canada.html?searchResultPosition=4
+https://nytimes.com/2022/05/26/technology/canada-internet-service.html?searchResultPosition=4
 
 **‘The Tsugua Diaries’ Review: Finding Togetherness in a Pandemic**\
 `This film possesses both the whimsy and fearlessness of a student project and the technical prowess of a veteran’s opus.`\
