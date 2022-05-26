@@ -34,7 +34,7 @@ https://nytimes.com/2022/05/25/opinion/trump-primary-georgia.html?searchResultPo
 `After Andrew Abdullah fatally shot a Q train passenger, others in the same car feared they would be next, a prosecutor told a judge on Wednesday.`\
 https://nytimes.com/2022/05/25/nyregion/subway-shooting-andrew-abdullah-phones.html?searchResultPosition=9
 
-**Democrats Hit Pause on Gun Control Vote, Hoping For a Compromise**\
+**Democrats Hit Pause on Gun Control Vote, Hoping for a Compromise**\
 `After the deadliest school shooting in a decade, the top Senate Democrat said he would wait to force a vote on gun safety measures the G.O.P. has opposed.`\
 https://nytimes.com/2022/05/25/us/politics/senate-gun-control.html?searchResultPosition=10
 
