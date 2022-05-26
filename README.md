@@ -20,7 +20,7 @@ https://nytimes.com/2022/05/26/dining/how-to-cook-on-vacation.html?searchResultP
 
 **Popular school security strategies have not stopped mass shootings.**\
 `Hundreds of millions of dollars have been spent to protect students from school shootings. Massacres keep happening.`\
-https://nytimes.com/2022/05/26/us/shooting-school-security.html?searchResultPosition=6
+https://nytimes.com/2022/05/26/us/mass-shooting-school-security.html?searchResultPosition=6
 
 **Internet Drama in Canada. (Really.)**\
 `We all need great internet service, but it doesn’t happen by accident.`\
