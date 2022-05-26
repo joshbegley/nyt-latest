@@ -15,7 +15,7 @@ https://nytimes.com/2022/05/26/opinion/republicans-guns-uvalde.html?searchResult
 https://nytimes.com/2022/05/26/us/politics/zelensky-ukraine-war.html?searchResultPosition=4
 
 **Republicans Signal Refusal of Jan. 6 Subpoenas, Setting Up a Showdown**\
-`The recalcitrance of the four Republicans, including Representative Kevin McCarthy, the minority leader, had broad implications for the inquiry and for congressional powers.`\
+`The decision by the four Republicans, including Representative Kevin McCarthy, the minority leader, had broad implications for the inquiry and for congressional powers.`\
 https://nytimes.com/2022/05/26/us/republicans-jan-6-subpoenas.html?searchResultPosition=5
 
 **Republicans Block Domestic Terrorism Bill**\
