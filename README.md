@@ -30,11 +30,11 @@ https://nytimes.com/interactive/2022/05/26/arts/editors-recommendations-parlato.
 `Emily Weiss, the founder of Glossier and a face on the Mount Rushmore of start-up culture, will no longer be the beauty company’s chief executive.`\
 https://nytimes.com/2022/05/26/style/the-sunsetting-of-the-girlboss-is-nearly-complete.html?searchResultPosition=8
 
+**As Russia Diverges From the Global Economy, Soviet-Style Scarcity Looms**\
+`With soaring prices and shortages of basic goods, the Russian people and businesses large and small are feeling the pinch.`\
+https://nytimes.com/2022/05/26/world/europe/russia-economy-sanctions.html?searchResultPosition=9
+
 **Five G.O.P. candidates for Michigan governor are ruled ineligible over forged petition signatures.**\
 `James Craig and Perry Johnson, two of the party’s top contenders, were denied spots on the ballot by a state canvassing board. The party-line decision is expected to draw lawsuits.`\
-https://nytimes.com/2022/05/26/us/politics/michigan-republicans-governor-signatures.html?searchResultPosition=9
-
-**Your Friday Briefing: Where Were the Police?**\
-`Questions emerge after the Texas school shooting.`\
-https://nytimes.com/2022/05/26/briefing/police-texas-school-shooting-uvalde-asia.html?searchResultPosition=10
+https://nytimes.com/2022/05/26/us/politics/michigan-republicans-governor-signatures.html?searchResultPosition=10
 
