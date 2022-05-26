@@ -1,5 +1,5 @@
-**Should the G.O.P. Cling to Lies About a Stolen Election?**\
-`The Republican primaries in Georgia and Pennsylvania were bellwethers of Donald J. Trump’s lingering influence over Republicans.`\
+**The Big Lie and the Midterms**\
+`The Republican primaries in Georgia and Pennsylvania tested the lingering influence of false claims about election fraud.`\
 https://nytimes.com/2022/05/26/podcasts/the-daily/republican-primaries-georgia-pennsylvania.html?searchResultPosition=1
 
 **Vintage Cars, Part of the Pandemic Hobby Boom, Priced Collectors Out**\
