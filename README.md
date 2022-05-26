@@ -4,7 +4,7 @@ https://nytimes.com/2022/05/26/business/carl-icahn-mcdonalds-pigs.html?searchRes
 
 **Secret Emergency Orders May Include Focus on Internet, New Files Show**\
 `Dating back to 1950s preparations for nuclear war and revised after the Sept. 11 attacks, the presidential directives are not shown to Congress.`\
-https://nytimes.com/2022/05/26/us/emergency-orders-internet-president.html?searchResultPosition=2
+https://nytimes.com/2022/05/26/us/internet-president-emergency-orders.html?searchResultPosition=2
 
 **What Do You Know About Homelessness and Housing Insecurity? Tell us.**\
 `Headway wants to learn more about the people affected by this issue and the stories we should tell.`\
