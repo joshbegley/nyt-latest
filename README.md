@@ -11,7 +11,7 @@ https://nytimes.com/2022/05/26/us/irma-garcia-husband-death-uvalde.html?searchRe
 https://nytimes.com/video/us/100000008369579/uvalde-texas-police-school-shooting.html?searchResultPosition=3
 
 **Former Head of Louvre Is Charged in Artifact Trafficking Case**\
-`Jean-Luc Martinez, who led the museum from 2013 to 2021, was charged with complicity in fraud and money laundering, in an investigation into the trafficking of Egyptian antiquities.`\
+`Jean-Luc Martinez, who led the museum from 2013 to 2021, was charged with complicity in fraud and money laundering in an investigation into the trafficking of Egyptian antiquities.`\
 https://nytimes.com/2022/05/26/arts/design/louvre-jean-luc-martinez-trafficking.html?searchResultPosition=4
 
 **5 Surprising Things to Borrow From the Library**\
