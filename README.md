@@ -1,40 +1,40 @@
+**Review: ‘There Are No Saints.’ Neither Are There New Plots.**\
+`A B-movie that took a decade to get to the screen follows a well-worn trail of cross-border revenge.`\
+https://nytimes.com/2022/05/26/movies/there-are-no-saints-review.html?searchResultPosition=1
+
+**‘Fanny: The Right to Rock’ Review: Still Kicking**\
+`Started by two Filipino American sisters in  California, the influential band is claiming its rightful rank in rock ’n’ roll history.`\
+https://nytimes.com/2022/05/26/movies/fanny-the-right-to-rock-review.html?searchResultPosition=2
+
+**‘Look at Me: XXXTentacion’ Review: A Life Cut Short**\
+`A documentary about a rap sensation who was a troubled and incendiary figure.`\
+https://nytimes.com/2022/05/26/movies/look-at-me-xxxtentacion-review.html?searchResultPosition=3
+
+**‘A Taste of Whale’ Review: Blood in the Water**\
+`This documentary offers a refreshingly multidimensional take on the practice of whale hunting in the Faroe Islands.`\
+https://nytimes.com/2022/05/26/movies/a-taste-of-whale-review.html?searchResultPosition=4
+
+**‘Dinner in America’ Review: A Punk-Rock Love Story**\
+`A rage-fueled rock singer on the run from the police meets and falls in love with a gullible young woman eager to escape her circumstances.`\
+https://nytimes.com/2022/05/26/movies/dinner-in-america-review.html?searchResultPosition=5
+
+**‘Playlist’ Review: A Broken Record of Trials**\
+`In this brisk comedy set in Paris, an aspiring cartoonist stumbles through a series of romantic, professional and medical misadventures.`\
+https://nytimes.com/2022/05/26/movies/playlist-review-a-broken-record-of-trials.html?searchResultPosition=6
+
+**‘It’s a scene that you never want to see.’ An official recounts a day of bloodshed.**\
+`Eulalio Diaz, who assumes some of the duties of a coroner, was on the scene after the shooting at a school in Uvalde. “My heart dropped,” he said.`\
+https://nytimes.com/2022/05/26/us/its-a-scene-that-you-never-want-to-see-an-official-recounts-a-day-of-bloodshed.html?searchResultPosition=7
+
 **America’s Gun Problem**\
 `More guns in the U.S. mean more deaths.`\
-https://nytimes.com/2022/05/26/briefing/guns-america-shooting-deaths.html?searchResultPosition=1
+https://nytimes.com/2022/05/26/briefing/guns-america-shooting-deaths.html?searchResultPosition=8
 
 **In China, concerns grow over the economic impact of ‘zero Covid.’**\
 `A senior leader announced efforts to bolster growth and urged local leaders do more to keep the economy running.`\
-https://nytimes.com/2022/05/26/world/asia/china-economy-zero-covid.html?searchResultPosition=2
+https://nytimes.com/2022/05/26/world/asia/china-economy-zero-covid.html?searchResultPosition=9
 
 **The Big Lie and the Midterms**\
 `The Republican primaries in Georgia and Pennsylvania tested the lingering influence of false claims about election fraud.`\
-https://nytimes.com/2022/05/26/podcasts/the-daily/republican-primaries-georgia-pennsylvania.html?searchResultPosition=3
-
-**Vintage Cars, Part of the Pandemic Hobby Boom, Priced Collectors Out**\
-`Buyers have been turning to cheaper substitutes and finding, to their surprise, that some are the equal of the more established collectible.`\
-https://nytimes.com/2022/05/26/business/vintage-cars-montero-defender.html?searchResultPosition=4
-
-**‘Homegrown’: At BAM, DanceAfrica Keeps It All in the Family**\
-`The year’s festival features local troupes. “The stories and music and dance that evolved here were just as important” as those from Africa, its director says.`\
-https://nytimes.com/2022/05/26/arts/dance/brooklyn-academy-of-music-danceafrica-festival.html?searchResultPosition=5
-
-**Ella Fitzgerald and the Lasting Power of Childhood Icons**\
-`When you’re young, the pop culture you absorb becomes a kind of “parent.” Wesley Morris and the critic Margo Jefferson reflect on the icons who shaped them.`\
-https://nytimes.com/2022/05/26/podcasts/still-processing-ella-fitzgerald-margo-jefferson.html?searchResultPosition=6
-
-**Bus Maker Settles Fraud Case Tied to Government Contract**\
-`The company, New Flyer, a supplier to Los Angeles County, was accused of not fulfilling a commitment to create jobs that paid agreed-upon wages and benefits.`\
-https://nytimes.com/2022/05/26/business/new-flyer-ca-fraud.html?searchResultPosition=7
-
-**Will Colombia Elect Its First Leftist Leader?**\
-`A large and loud youth electorate hungry to transform one of Latin America’s most unequal societies could propel Gustavo Petro, a former rebel, to the presidency.`\
-https://nytimes.com/2022/05/26/world/americas/colombia-presidential-election-gustavo-petro.html?searchResultPosition=8
-
-**Film on Expulsion of Kashmir’s Hindus Is Polarizing and Popular in India**\
-`Called propaganda by critics and essential viewing by fans, “The Kashmir Files,” an unexpected blockbuster, has drawn the support of Prime Minister Narendra Modi’s Bharatiya Janata Party.`\
-https://nytimes.com/2022/05/26/world/asia/india-film-kashmir-files.html?searchResultPosition=9
-
-**The Dangerous Challenge of Making a Film About Aleksei Navalny**\
-`A documentarian was in the room when the Russian opposition leader made a startling discovery. But it took time to win the politician’s trust.`\
-https://nytimes.com/2022/05/26/movies/aleksei-navalny-documentary.html?searchResultPosition=10
+https://nytimes.com/2022/05/26/podcasts/the-daily/republican-primaries-georgia-pennsylvania.html?searchResultPosition=10
 
