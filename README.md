@@ -32,7 +32,7 @@ https://nytimes.com/2022/05/26/technology/pimeyes-facial-recognition-search.html
 
 **Biden administration aims to increase regulation and competition in the poultry industry.**\
 `More than 90 percent of chickens eaten by Americans are raised by farmers under contracts with poultry processing companies.`\
-https://nytimes.com/2022/05/26/business/poultry-processors-growers.html?searchResultPosition=9
+https://nytimes.com/2022/05/26/business/biden-poultry-processors-growers.html?searchResultPosition=9
 
 **Alsace Whites, From Three Different Grapes**\
 `It’s in France but is not quite French. It seems German, but it’s not. Alsace has its own singular character and style.`\
