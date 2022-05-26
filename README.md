@@ -11,7 +11,7 @@ https://nytimes.com/2022/05/26/style/real-housewives-leah-mcsweeney.html?searchR
 https://nytimes.com/2022/05/26/arts/music/league-of-american-orchestras-new-music.html?searchResultPosition=3
 
 **Kevin Spacey Facing Sexual Assault Charges in Britain**\
-`British prosecutors said that they had authorized criminal charges against Mr. Spacey, 62, for four counts of sexual assault against three men.`\
+`British prosecutors said that they had authorized criminal charges against Mr. Spacey, 62, for four counts of sexual assault. He cannot be formally charged unless he enters England or Wales.`\
 https://nytimes.com/2022/05/26/arts/television/kevin-spacey-sexual-assault-charges.html?searchResultPosition=4
 
 **Couple Plead Guilty in Scuba Diver’s Death After 10 Years on the Run**\
