@@ -1,40 +1,40 @@
+**In the Texas Rampage’s Wake, Social Media Can Reform Itself**\
+`Online hoax allegations are an insult to family members and should be taken down.`\
+https://nytimes.com/2022/05/26/opinion/uvalde-facebook-hoax-posts.html?searchResultPosition=1
+
 **Your Thursday Evening Briefing**\
 `Here’s what you need to know at the end of the day.`\
-https://nytimes.com/2022/05/26/briefing/uvalde-ukraine-ice-cream.html?searchResultPosition=1
+https://nytimes.com/2022/05/26/briefing/uvalde-ukraine-ice-cream.html?searchResultPosition=2
+
+**‘She was my baby’: A family mourns, and pleads for action, in Uvalde.**\
+`Alexandria “Lexi” Aniyah Rubio, an honor roll student at Robb Elementary who loved TikTok and dreamed of being a lawyer, was among the victims in Robb Elementary, her mother and father said.`\
+https://nytimes.com/2022/05/26/us/lexi-rubio-uvalde-texas-victim.html?searchResultPosition=3
 
 **Marjorie Taylor Greene’s campaign spent nearly $183,000 on security in early 2022.**\
 `Ms. Greene, the far-right Georgia Republican, spent more campaign money on personal security in the first quarter of this year than any other candidate this year, campaign finance filings show.`\
-https://nytimes.com/2022/05/26/us/politics/marjorie-taylor-greene-security.html?searchResultPosition=2
+https://nytimes.com/2022/05/26/us/politics/marjorie-taylor-greene-security.html?searchResultPosition=4
 
 **Shoplifting Ring Swept Stores for Luxury Goods, Prosecutors Say**\
 `A Queens man was charged with being the ringleader of a multimillion-dollar scheme to sell stolen items online.`\
-https://nytimes.com/2022/05/26/nyregion/nyc-shoplifting-ring.html?searchResultPosition=3
+https://nytimes.com/2022/05/26/nyregion/nyc-shoplifting-ring.html?searchResultPosition=5
 
 **How Does It End?**\
 `The global conversation is focused on how to define victory — and for whom.`\
-https://nytimes.com/2022/05/26/briefing/russia-ukraine-war-end-negotiations.html?searchResultPosition=4
+https://nytimes.com/2022/05/26/briefing/russia-ukraine-war-end-negotiations.html?searchResultPosition=6
 
 **Trump E.P.A. Chief ‘Endangered Public Safety’ by Ordering His Drivers to Speed**\
 `An internal report validated whistle-blower allegations that Scott Pruitt repeatedly forced his security detail to drive at dangerous speeds on routine trips because he was running late.`\
-https://nytimes.com/2022/05/26/us/politics/scott-pruitt-epa-report.html?searchResultPosition=5
+https://nytimes.com/2022/05/26/us/politics/scott-pruitt-epa-report.html?searchResultPosition=7
 
 **Father of Uvalde Shooting Victim Says Police Were Not Prepared**\
 `Javier Cazares, whose 9-year-old daughter was killed in the massacre at Robb Elementary School, expressed his frustration with law enforcement’s response to the shooting. “A lot more could have been prevented,” he said.`\
-https://nytimes.com/video/us/100000008368780/uvalde-texas-shooting-father-cazares.html?searchResultPosition=6
+https://nytimes.com/video/us/100000008368780/uvalde-texas-shooting-father-cazares.html?searchResultPosition=8
 
 **Three headliners pulled out of this week’s N.R.A. convention, citing Uvalde.**\
 `Don MacLean and Larry Gatlin withdrew out of respect to the victims, as teachers’ unions joined protests for gun control planned in Houston.`\
-https://nytimes.com/2022/05/26/us/nra-convention-performers-uvalde.html?searchResultPosition=7
+https://nytimes.com/2022/05/26/us/nra-convention-performers-uvalde.html?searchResultPosition=9
 
 **Amber Heard Describes Impact of Online Attacks: ‘I’m a Human Being’**\
 `Ms. Heard, who is being sued by her ex-husband, Johnny Depp, for defamation, said the mockery of her previous testimony on social media had been “agonizing.”`\
-https://nytimes.com/2022/05/26/arts/amber-heard-johnny-depp-harassment.html?searchResultPosition=8
-
-**Hindi Novel Wins International Booker Prize for the First Time**\
-`“Tomb of Sand,” written by Geetanjali Shree and translated by Daisy Rockwell, won despite getting little previous attention from reviewers.`\
-https://nytimes.com/2022/05/26/arts/international-booker-winner-tomb-of-sand.html?searchResultPosition=9
-
-**What’s in Our Queue? A Monograph and More**\
-`I'm a photo editor on The Times's Culture desk. Here are five things I've been watching, reading and listening to.`\
-https://nytimes.com/interactive/2022/05/26/arts/editors-recommendations-parlato.html?searchResultPosition=10
+https://nytimes.com/2022/05/26/arts/amber-heard-johnny-depp-harassment.html?searchResultPosition=10
 
