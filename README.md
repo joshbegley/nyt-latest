@@ -10,31 +10,31 @@ https://nytimes.com/2022/05/26/us/politics/scott-pruitt-epa-report.html?searchRe
 `Javier Cazares, whose 9-year-old daughter was killed in the massacre at Robb Elementary School, expressed his frustration with law enforcement’s response to the shooting. “A lot more could have been prevented,” he said.`\
 https://nytimes.com/video/us/100000008368780/uvalde-texas-shooting-father-cazares.html?searchResultPosition=3
 
+**Three headliners pulled out of this week’s N.R.A. convention, citing Uvalde.**\
+`Don MacLean and Larry Gatlin withdrew out of respect to the victims, as teachers’ unions joined protests for gun control planned in Houston.`\
+https://nytimes.com/2022/05/26/us/nra-convention-performers-uvalde.html?searchResultPosition=4
+
 **Amber Heard Describes Impact of Online Attacks: ‘I’m a Human Being’**\
 `Ms. Heard, who is being sued by her ex-husband, Johnny Depp, for defamation, said the mockery of her previous testimony on social media had been “agonizing.”`\
-https://nytimes.com/2022/05/26/arts/amber-heard-johnny-depp-harassment.html?searchResultPosition=4
+https://nytimes.com/2022/05/26/arts/amber-heard-johnny-depp-harassment.html?searchResultPosition=5
 
 **Hindi Novel Wins International Booker Prize for the First Time**\
 `“Tomb of Sand,” written by Geetanjali Shree and translated by Daisy Rockwell, won despite getting little previous attention from reviewers.`\
-https://nytimes.com/2022/05/26/arts/international-booker-winner-tomb-of-sand.html?searchResultPosition=5
+https://nytimes.com/2022/05/26/arts/international-booker-winner-tomb-of-sand.html?searchResultPosition=6
 
 **What’s in Our Queue? A Monograph and More**\
 `I'm a photo editor on The Times's Culture desk. Here are five things I've been watching, reading and listening to.`\
-https://nytimes.com/interactive/2022/05/26/arts/editors-recommendations-parlato.html?searchResultPosition=6
+https://nytimes.com/interactive/2022/05/26/arts/editors-recommendations-parlato.html?searchResultPosition=7
 
 **The Sunsetting of the Girlboss Is Nearly Complete**\
 `Emily Weiss, the founder of Glossier and a face on the Mount Rushmore of start-up culture, will no longer be the beauty company’s chief executive.`\
-https://nytimes.com/2022/05/26/style/the-sunsetting-of-the-girlboss-is-nearly-complete.html?searchResultPosition=7
+https://nytimes.com/2022/05/26/style/the-sunsetting-of-the-girlboss-is-nearly-complete.html?searchResultPosition=8
 
 **Five G.O.P. candidates for Michigan governor are ruled ineligible over forged petition signatures.**\
 `James Craig and Perry Johnson, two of the party’s top contenders, were denied spots on the ballot by a state canvassing board. The party-line decision is expected to draw lawsuits.`\
-https://nytimes.com/2022/05/26/us/politics/michigan-republicans-governor-signatures.html?searchResultPosition=8
+https://nytimes.com/2022/05/26/us/politics/michigan-republicans-governor-signatures.html?searchResultPosition=9
 
 **Your Friday Briefing: Where Were the Police?**\
 `Questions emerge after the Texas school shooting.`\
-https://nytimes.com/2022/05/26/briefing/police-texas-school-shooting-uvalde-asia.html?searchResultPosition=9
-
-**Ray Liotta in ‘Goodfellas’: How the Right Actor Turned the Right Part Into a Classic**\
-`His performance as Henry Hill includes many touches that weren’t in the script. But the producer didn’t want to cast him originally.`\
-https://nytimes.com/2022/05/26/movies/ray-liotta-goodfellas.html?searchResultPosition=10
+https://nytimes.com/2022/05/26/briefing/police-texas-school-shooting-uvalde-asia.html?searchResultPosition=10
 
