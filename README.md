@@ -16,7 +16,7 @@ https://nytimes.com/2022/05/26/arts/television/kevin-spacey-sexual-assault-charg
 
 **After 10 Years on the Run, Couple Plead Guilty in Scuba Diver’s Death**\
 `The former owners of a scuba charter business in Key Largo, Fla., fled the country after the company’s boat sank in 2011, killing a diver. Prosecutors said they knew the vessel needed repairs.`\
-https://nytimes.com/2022/05/26/us/florida-scuba-diver-death-owners-charged.html?searchResultPosition=5
+https://nytimes.com/2022/05/26/us/florida-scuba-diver-death.html?searchResultPosition=5
 
 **Southwest and JetBlue say second-quarter revenue will be higher than expected.**\
 `Ticket sales are climbing faster than the airline industry expected as more people plan summer vacations and business trips.`\
