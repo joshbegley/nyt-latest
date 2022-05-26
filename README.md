@@ -35,6 +35,6 @@ https://nytimes.com/2022/05/26/movies/vengeance-is-mine-review.html?searchResult
 https://nytimes.com/2022/05/26/us/irma-garcia-husband-death-uvalde.html?searchResultPosition=9
 
 **Gunman Entered Texas School Unobstructed, Official Says**\
-`A Texas State Police official disputed initial reports that the gunman who killed 19 children and two teachers at Robb Elementary School was confronted by a school district police officer.`\
+`A Texas state police official disputed initial reports that the gunman who killed 19 children and two teachers at Robb Elementary School was confronted by a school district police officer.`\
 https://nytimes.com/video/us/100000008369579/uvalde-texas-police-school-shooting.html?searchResultPosition=10
 
