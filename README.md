@@ -4,7 +4,7 @@ https://nytimes.com/2022/05/26/books/book-recommendations.html?searchResultPosit
 
 **Leah McSweeney of ‘Real Housewives’ Takes a Cold Plunge**\
 `The reality TV star and clothing designer has a new memoir about her drug-fueled partying days.`\
-https://nytimes.com/2022/05/26/style/leah-mcsweeney-of-real-housewives-takes-a-cold-plunge.html?searchResultPosition=2
+https://nytimes.com/2022/05/26/style/real-housewives-leah-mcsweeney.html?searchResultPosition=2
 
 **New Effort Aims to Bring More Contemporary Music to Orchestras**\
 `An initiative by the League of American Orchestras will enlist 30 ensembles to perform works by six living composers, all of them women.`\
@@ -14,7 +14,7 @@ https://nytimes.com/2022/05/26/arts/music/league-of-american-orchestras-new-musi
 `British prosecutors said that they had authorized criminal charges against Mr. Spacey, 62, for four counts of sexual assault against three men.`\
 https://nytimes.com/2022/05/26/arts/television/kevin-spacey-sexual-assault-charges.html?searchResultPosition=4
 
-**After 10 Years on the Run, Couple Plead Guilty in Scuba Diver’s Death**\
+**Couple Plead Guilty in Scuba Diver’s Death After 10 Years on the Run**\
 `The former owners of a scuba charter business in Key Largo, Fla., fled the country after the company’s boat sank in 2011, killing a diver. Prosecutors said they knew the vessel needed repairs.`\
 https://nytimes.com/2022/05/26/us/florida-scuba-diver-death.html?searchResultPosition=5
 
