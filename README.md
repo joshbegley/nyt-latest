@@ -1,6 +1,6 @@
 **11 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
-https://nytimes.com/2022/05/26/books/11-new-books-we-recommend-this-week.html?searchResultPosition=1
+https://nytimes.com/2022/05/26/books/book-recommendations.html?searchResultPosition=1
 
 **Leah McSweeney of ‘Real Housewives’ Takes a Cold Plunge**\
 `The reality TV star and clothing designer has a new memoir about her drug-fueled partying days.`\
