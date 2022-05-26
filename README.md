@@ -28,7 +28,7 @@ https://nytimes.com/2022/05/26/movies/playlist-review-a-broken-record-of-trials.
 
 **‘It’s a scene that you never want to see.’ An official recounts a day of bloodshed.**\
 `Eulalio Diaz, who assumes some of the duties of a coroner, was on the scene after the shooting at a school in Uvalde. “My heart dropped,” he said.`\
-https://nytimes.com/2022/05/26/us/its-a-scene-that-you-never-want-to-see-an-official-recounts-a-day-of-bloodshed.html?searchResultPosition=8
+https://nytimes.com/2022/05/26/us/uvalde-coroner-justice-peace.html?searchResultPosition=8
 
 **America’s Gun Problem**\
 `More guns in the U.S. mean more deaths.`\
