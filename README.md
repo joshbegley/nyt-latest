@@ -1,6 +1,6 @@
 **Amber Heard Describes Impact of Online Attacks: ‘I’m a Human Being’**\
 `Ms. Heard, who is being sued by her ex-husband, Johnny Depp, for defamation, said the mockery of her previous testimony on social media had been “agonizing.”`\
-https://nytimes.com/2022/05/26/arts/amber-heard-online-harassment-depp.html?searchResultPosition=1
+https://nytimes.com/2022/05/26/arts/amber-heard-johnny-depp-harassment.html?searchResultPosition=1
 
 **Hindi Novel Wins International Booker Prize for the First Time**\
 `“Tomb of Sand,” written by Geetanjali Shree and translated by Daisy Rockwell, won despite getting little previous attention from reviewers.`\
