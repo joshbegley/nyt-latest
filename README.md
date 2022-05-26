@@ -20,7 +20,7 @@ https://nytimes.com/2022/05/26/us/florida-scuba-diver-death-owners-charged.html?
 
 **Southwest and JetBlue say second-quarter revenue will be higher than expected.**\
 `Ticket sales are climbing faster than the airline industry expected as more people plan summer vacations and business trips.`\
-https://nytimes.com/2022/05/26/business/southwest-and-jetblue-revenue-second-quarter.html?searchResultPosition=6
+https://nytimes.com/2022/05/26/business/southwest-jetblue-revenue.html?searchResultPosition=6
 
 **Carl Icahn gets only 1 percent of McDonald’s investors to support his campaign on pigs.**\
 `The activist investor had nominated two directors to the company’s board as part of an animal welfare campaign.`\
