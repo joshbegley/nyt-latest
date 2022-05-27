@@ -12,7 +12,7 @@ https://nytimes.com/2022/05/27/us/nra-convention-abbott-trump-cruz.html?searchRe
 
 **Personal income remained strong in April, even as inflation took a bite.**\
 `A government measure of disposable income rose 0.3 percent last month, but was flat when rising prices are taken into account.`\
-https://nytimes.com/2022/05/27/business/personal-income-remained-strong-in-april-even-as-inflation-took-a-bite.html?searchResultPosition=4
+https://nytimes.com/2022/05/27/business/inflation-personal-income.html?searchResultPosition=4
 
 **Howling Cries of Abandonment and Reunion**\
 `Coming-of-age novels set among the Métis community in Canada, the Māori population in New Zealand and the Crow Nation in Montana.`\
