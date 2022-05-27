@@ -11,7 +11,7 @@ https://nytimes.com/2022/05/27/movies/top-gun-maverick-questions.html?searchResu
 https://nytimes.com/2022/05/27/sports/autoracing/indianapolis-500-indycar-f1.html?searchResultPosition=3
 
 **Global stocks follow Wall St. higher, set to snap a long losing streak.**\
-`Inflows to stocks were the strongest in months, as markets regained some lost ground.`\
+`Investors this week put more money into stocks than they have in months, as markets regained some lost ground.`\
 https://nytimes.com/2022/05/27/business/stocks-inflation-streak.html?searchResultPosition=4
 
 **The Uvalde 21**\
