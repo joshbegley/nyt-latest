@@ -28,7 +28,7 @@ https://nytimes.com/2022/05/27/world/middleeast/iraqi-bars-normalization-israel.
 
 **Active shooting trainings teach the U.S. police to ‘stop the killing.’**\
 `The response should center on neutralizing the gunman, a training program that is the national standard says, and then on getting medical aid to anyone who has been injured.`\
-https://nytimes.com/2022/05/27/us/active-shooter-trainings.html?searchResultPosition=8
+https://nytimes.com/2022/05/27/us/active-shooting-trainings.html?searchResultPosition=8
 
 **The Coming Rage of the Money Hawks**\
 `Moderating inflation will drive some people crazy.`\
