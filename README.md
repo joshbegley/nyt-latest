@@ -1,40 +1,40 @@
-**Accused of Cheating by an Algorithm, and a Professor She Had Never Met**\
-`An unsettling glimpse at the digitization of education.`\
-https://nytimes.com/2022/05/27/technology/college-students-cheating-software-honorlock.html?searchResultPosition=1
+**Flora, Fauna and Flights of Imagination**\
+`Begum Kiroglu on the themes of her Istanbul-based jewelry brand, called Begum Khan.`\
+https://nytimes.com/2022/05/27/fashion/jewelry-begum-khan-istanbul.html?searchResultPosition=1
 
-**In The Times Archives, Finding a Mystery**\
-`Dan Saltzstein, an editor at the paper, was poking in the archives in the early aughts when he found an obituary for a man he didn’t know: Mike Saltzstein. So began a 20-year investigation.`\
-https://nytimes.com/2022/05/27/insider/in-the-times-archives-finding-a-mystery.html?searchResultPosition=2
+**For the N.R.A. and Trump, the Show Must Go On in Texas**\
+`In a sign that it’s never “too soon” to glorify guns, G.O.P. leaders are gathering in Texas to wallow in that orgy of gun fetishism known as the N.R.A.’s annual convention.`\
+https://nytimes.com/2022/05/27/opinion/nra-trump-texas-guns.html?searchResultPosition=2
 
-**How an Organized Republican Effort Punishes Companies for Climate Action**\
-`Legislators and their allies are running an aggressive campaign that uses public money and the law to pressure businesses they say are pushing “woke” causes.`\
-https://nytimes.com/2022/05/27/climate/republicans-blackrock-climate.html?searchResultPosition=3
+**How Influencers Hype Crypto, Without Disclosing Their Financial Ties**\
+`Logan Paul, Paul Pierce and other celebrities have promoted risky and obscure digital currencies, sometimes failing to mention their conflicts of interest.`\
+https://nytimes.com/2022/05/27/technology/crypto-influencers.html?searchResultPosition=3
 
-**‘Stranger Things’ Is Back. Here’s Where We Left Off in Season 3.**\
-`It’s been three years since we last saw the kids from Hawkins take on the Mind Flayer (and the Russians). This refresher should help jog your memory.`\
-https://nytimes.com/2022/05/27/arts/television/stranger-things-recap.html?searchResultPosition=4
+**It’s Not Looking Too Good for Government of the People, by the People and for the People**\
+`The filibuster is only one part of the larger problem of the capture of America’s political institutions by an unrepresentative minority.`\
+https://nytimes.com/2022/05/27/opinion/uvalde-senate-gun-control.html?searchResultPosition=4
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/05/27/crosswords/spelling-bee-forum.html?searchResultPosition=5
+**A Christie’s Auction With Particular Allure**\
+`Jewelry made by Joel Arthur Rosenthal, best known as JAR, is rare. This sale, scheduled for June 8, is offering 12 pieces.`\
+https://nytimes.com/2022/05/27/fashion/jewelry-joel-arthur-rosenthal-christies.html?searchResultPosition=5
 
-**Mr. Real Madrid**\
-`A year after the Super League debacle, Florentino Pérez is back in the Champions League final, having turned a club owned by its members into his personal kingdom.`\
-https://nytimes.com/2022/05/27/sports/soccer/real-madrid-florentino-perez.html?searchResultPosition=6
+**America May Be Broken Beyond Repair**\
+`If our system can’t respond to the slaughter of children, what can it do?`\
+https://nytimes.com/2022/05/27/opinion/uvalde-shooting.html?searchResultPosition=6
 
-**Word of the Day: cum laude**\
-`This term has appeared in 57 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/05/27/learning/word-of-the-day-cum-laude.html?searchResultPosition=7
+**An Opera Star Is Selling His Starter Home in the West Village**\
+`Anthony Roth Costanzo, the countertenor — and real estate impresario — bought his one-bedroom co-op on Horatio Street nine years ago. He is asking $965,000.`\
+https://nytimes.com/2022/05/27/realestate/anthony-roth-costanzo-home-sale.html?searchResultPosition=7
 
-**New York’s Most Generous Tax Break Could Bite the Dust**\
-`The State Legislature is unlikely to renew the 421a subsidy, which for decades has benefited nearly every large residential real estate project in the city.`\
-https://nytimes.com/2022/05/27/nyregion/new-yorks-most-generous-tax-break-could-bite-the-dust.html?searchResultPosition=8
+**Bill de Blasio Knows He Isn’t Loved**\
+`New York’s former mayor is running for Congress in a newly drawn district, where distaste for him is epic. He’s sure he can change that.`\
+https://nytimes.com/2022/05/27/nyregion/bill-de-blasio-congress.html?searchResultPosition=8
 
-**Biden Says We’ve Got Taiwan’s Back. But Do We?**\
-`Biden pledges to defend Taiwan against China but U.S. is outgunned`\
-https://nytimes.com/2022/05/27/opinion/biden-taiwan-defense-china.html?searchResultPosition=9
+**Cockroach Reproduction Has Taken a Strange Turn**\
+`In response to pesticides, many cockroach females have lost their taste for sweet stuff, which changes how they make the next generation of insects.`\
+https://nytimes.com/2022/05/27/science/cockroach-sugar-sex.html?searchResultPosition=9
 
-**Your Friday Briefing**\
-`Economic sanctions bite in Russia.`\
-https://nytimes.com/2022/05/27/briefing/russia-economic-sanctions-uvalde.html?searchResultPosition=10
+**Lesson of the Day: Sports Photography**\
+`In this lesson, you will learn about sports photography in The New York Times, hear from sports photographers and consider what qualities make for a strong sports photograph.`\
+https://nytimes.com/2022/05/27/learning/lesson-plans/lesson-of-the-day-sports-photography.html?searchResultPosition=10
 
