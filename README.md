@@ -16,7 +16,7 @@ https://nytimes.com/2022/05/27/books/review/memories-on-high-and-other-letters-t
 
 **Winning Looks From the Cannes Film Festival**\
 `Trends and other takeaways from the fashion show — sorry, movie gathering — on the Croisette.`\
-https://nytimes.com/2022/05/27/style/cannes-film-festival-best-and-worst-looks.html?searchResultPosition=5
+https://nytimes.com/2022/05/27/style/cannes-film-festival-red-carpet-fashion.html?searchResultPosition=5
 
 **Margot Heuman, Who Bore Witness to the Holocaust as a Gay Woman, Dies at 94**\
 `She was a rare survivor who spoke — in recent years — of her same-sex relationship in the concentration camps, and how it sustained her.`\
