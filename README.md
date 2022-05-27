@@ -27,7 +27,7 @@ https://nytimes.com/2022/05/27/nyregion/has-your-child-experienced-long-covid.ht
 https://nytimes.com/2022/05/27/arts/depp-heard-closing-arguments-libel.html?searchResultPosition=7
 
 **Italian Bishops to Examine Clerical Abuse, but Only to a Point**\
-`The Italian Bishop’s Conference on Friday presented its plan to investigate clerical abuse, but critics say it is insufficient and disappointing.`\
+`The Italian Bishops’ Conference on Friday presented its plan to investigate clerical abuse, but critics say it is insufficient and disappointing.`\
 https://nytimes.com/2022/05/27/world/europe/italy-bishops-clerical-abuse.html?searchResultPosition=8
 
 **The Police’s Timeline of the Texas School Shooting**\
