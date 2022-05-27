@@ -1,6 +1,6 @@
 **In hopes of returning home, displaced Ukrainians learn how to detect mines.**\
 `Courses in western Ukraine, meant for volunteer defenders, are now open to Ukrainian civilians whose villages have been blighted by war.`\
-https://nytimes.com/2022/05/27/world/europe/ukranians-mine-detection.html?searchResultPosition=1
+https://nytimes.com/2022/05/27/world/europe/ukraine-mine-detection.html?searchResultPosition=1
 
 **Despite a resurgent virus, millions of Americans are expected to be traveling over the holiday weekend.**\
 `This is likely to be one of the busiest travel periods since the start of the pandemic.`\
