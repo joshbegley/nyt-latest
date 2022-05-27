@@ -1,40 +1,40 @@
+**At a Theme Park, Falling Head Over Ferris Wheel**\
+`Leah Koch and Matthew Blumhardt bonded over a mutual love of amusement parks after meeting at her family’s Holiday World theme park in 2018.`\
+https://nytimes.com/2022/05/27/style/leah-koch-matthew-blumhardt-wedding.html?searchResultPosition=1
+
+**Following Their Hearts All the Way to the Supreme Court**\
+`David Schulman and Sarah Weiner spent two years commuting between Boston and Washington, where they were later married by Justice Sonia Sotomayor at the U.S. Supreme Court.`\
+https://nytimes.com/2022/05/27/style/david-schulman-sarah-weiner-wedding.html?searchResultPosition=2
+
+**A Mutual Love of Literature Set Them on a Winding Path to Marriage**\
+`A shared profession and years of writing conferences led Libby Flores and Paul Morris on a circuitous journey to each other’s hearts.`\
+https://nytimes.com/2022/05/27/style/libby-flores-paul-morris-wedding.html?searchResultPosition=3
+
+**Friends for Decades, They Became Life Partners After Loss**\
+`Dottie Zoller and Steve Epstein had known one another, and each other’s families, for years when their longtime spouses died. In grieving together they became closer and, soon, inseparable.`\
+https://nytimes.com/2022/05/27/style/dottie-zoller-steve-epstein-wedding.html?searchResultPosition=4
+
+**Her Mother (and His Father) Knew Best**\
+`Mina Shankar and Dr. Aditya Radhakrishnan first met at the suggestion of their parents, who managed their children’s accounts on a marriage-oriented website for people of Indian descent.`\
+https://nytimes.com/2022/05/27/style/mina-shankar-aditya-radhakrishnan-wedding.html?searchResultPosition=5
+
+**Passionate About Food, Culture and Each Other**\
+`Warren Luckett and Karinn Chavarria began dating more than a year after they met at a culinary fair. By then he had started a restaurant week event and together, they would soon start another.`\
+https://nytimes.com/2022/05/27/style/warren-luckett-karinn-chavarria-wedding.html?searchResultPosition=6
+
+**May We Please Just Date Without Hate?**\
+`An Asian American college couple tries to let their young love bloom, but racist incidents keep disrupting their honeymoon phase.`\
+https://nytimes.com/2022/05/27/style/modern-love-may-we-please-date-without-asian-hate.html?searchResultPosition=7
+
 **Golden State Beats Dallas to Reclaim Its Spot in the N.B.A. Finals**\
 `After injuries contributed to the end of a streak of five straight finals runs, Stephen Curry, Klay Thompson and Draymond Green are back.`\
-https://nytimes.com/2022/05/26/sports/basketball/golden-state-dallas-mavericks-nba-finals.html?searchResultPosition=1
+https://nytimes.com/2022/05/26/sports/basketball/golden-state-dallas-mavericks-nba-finals.html?searchResultPosition=8
 
 **U.S. to Begin Allowing Migrants to Apply for Asylum Under a New System**\
 `The rollout of the process for some arrivals at the southwestern border will be small, but could represent the tip of broad changes to the asylum system.`\
-https://nytimes.com/2022/05/26/us/politics/asylum-system.html?searchResultPosition=2
+https://nytimes.com/2022/05/26/us/politics/asylum-system.html?searchResultPosition=9
 
 **Southern Baptists Release List of Alleged Sex Abusers**\
 `The document’s existence, once kept secret, was revealed just days ago, sending shock waves through the denomination.`\
-https://nytimes.com/2022/05/26/us/southern-baptist-sex-abusers.html?searchResultPosition=3
-
-**Corrections: May 27, 2022**\
-`Corrections that appeared in print on Friday, May 27, 2022.`\
-https://nytimes.com/2022/05/26/pageoneplus/corrections-may-27-2022.html?searchResultPosition=4
-
-**Quotation of the Day: ‘It Stays in Your Mind’: Coroner Recalls Carnage**\
-`Quotation of the Day for Friday, May 27, 2022.`\
-https://nytimes.com/2022/05/26/todayspaper/quotation-of-the-day-it-stays-in-your-mind-coroner-recalls-carnage.html?searchResultPosition=5
-
-**Variety: Split Decisions**\
-`The verdict is in: Fred Piscop’s new puzzle is a tough one.`\
-https://nytimes.com/2022/05/26/crosswords/variety-split-decisions.html?searchResultPosition=6
-
-**‘Fat Ham’ Review: Dismantling Shakespeare to Liberate a Gay Black ‘Hamlet’**\
-`James Ijames’s Pulitzer Prize-winning play, set at a Southern barbecue, gets its first in-person production at the Public Theater.`\
-https://nytimes.com/2022/05/26/theater/fat-ham-review.html?searchResultPosition=7
-
-**Modern-Day Scroll**\
-`David Distenfeld opens our solving weekend with some lively debut phrases.`\
-https://nytimes.com/2022/05/26/crosswords/daily-puzzle-2022-05-27.html?searchResultPosition=8
-
-**The Yankees and the Rays turn away from the game to discuss gun violence.**\
-`The Twitter accounts for the rival teams ignored Thursday’s game in favor of posting facts about gun violence. “There are things that are bigger than baseball.”`\
-https://nytimes.com/2022/05/26/sports/yankees-rays-gun-violence-uvalde.html?searchResultPosition=9
-
-**The ‘Psychic Numbing’ of Mass Tragedies**\
-`Stressful events can cause us to detach and disengage, experts say, but there are ways to avoid becoming desensitized.`\
-https://nytimes.com/2022/05/26/well/live/coping-mass-shooting-tragedy.html?searchResultPosition=10
+https://nytimes.com/2022/05/26/us/southern-baptist-sex-abusers.html?searchResultPosition=10
 
