@@ -20,7 +20,7 @@ https://nytimes.com/2022/05/27/books/review/probably-ruby-lisa-bird-wilson-aue-b
 
 **A Strong Summer Job Market for Teenagers**\
 `Economists are predicting the highest rate of employment in 15 years. “Employers suddenly rediscovered teenagers,” one said.`\
-https://nytimes.com/2022/05/27/your-money/summer-job-market-teenagers.html?searchResultPosition=6
+https://nytimes.com/2022/05/27/your-money/summer-jobs-students.html?searchResultPosition=6
 
 **Why Californians Love California**\
 `The state’s population might be dropping slightly, but more Americans choose to live in California than anywhere else.`\
