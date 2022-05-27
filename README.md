@@ -8,7 +8,7 @@ https://nytimes.com/2022/05/27/movies/summer-movies-2022.html?searchResultPositi
 
 **Deep in Vatican Archives, Scholar Discovers ‘Flabbergasting’ Secrets**\
 `David Kertzer has spent decades excavating the Vatican’s hidden history, with his work winning a Pulitzer and capturing Hollywood’s attention. A new book examines Pope Pius XII’s role in the Holocaust.`\
-https://nytimes.com/2022/05/27/world/europe/david-kertzer-vatican-pius-xii.html?searchResultPosition=3
+https://nytimes.com/2022/05/27/world/europe/vatican-history-secrets-david-kertzer.html?searchResultPosition=3
 
 **The Strange, Still World of Cornelia Parker**\
 `The artist’s work is attuned to accidents, violence and absurdity, giving form to random events from the chaos of the universe.`\
