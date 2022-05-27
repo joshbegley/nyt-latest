@@ -3,7 +3,7 @@
 https://nytimes.com/2022/05/27/us/trump-grand-jury-georgia.html?searchResultPosition=1
 
 **Students in the room with the gunman called 911 many times.**\
-`By Alexandra E. Petri`\
+`Students who were in the classroom with the gunman called 911 several times, including a lengthy call during which some shooting and other sounds of the attack could be heard, according to Steven McCraw, director of the Texas Department of Public Safety.`\
 https://nytimes.com/2022/05/27/us/texas-shooting-911-call-press-conference.html?searchResultPosition=2
 
 **A Moment of Brightness**\
