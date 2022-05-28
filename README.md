@@ -7,7 +7,7 @@ https://nytimes.com/2022/05/28/opinion/ukraine-front-line-avdiivka.html?searchRe
 https://nytimes.com/2022/05/28/opinion/republican-gun-texas.html?searchResultPosition=2
 
 **‘Yeah, That Happened.’ A Giants Player Is Slapped Over Fantasy Football.**\
-`Joc Pederson of the San Francisco Giants opened up about an incident in which he was slapped by Reds outfielder Tommy Pham. The Giants said M.L.B. would investigate.`\
+`Joc Pederson of the San Francisco Giants discussed an incident in which he was slapped by Reds outfielder Tommy Pham. The Giants said M.L.B. would investigate.`\
 https://nytimes.com/2022/05/28/sports/baseball/joc-pederson-tommy-pham-slap.html?searchResultPosition=3
 
 **An Irish National Treasure Gets Set for a Long-Needed Restoration**\
