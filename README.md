@@ -2,17 +2,17 @@
 `America’s leaders are failing in their most basic duty.`\
 https://nytimes.com/2022/05/28/opinion/school-shooting-texas-buffalo-gun.html?searchResultPosition=1
 
+**The Texas Law That Has Banks Saying They Don’t ‘Discriminate’ Against Guns**\
+`Recent legislation requires firms to declare that they don’t “discriminate” against the firearm industry — or risk losing lucrative business with the state.`\
+https://nytimes.com/2022/05/28/business/dealbook/texas-banks-gun-law.html?searchResultPosition=2
+
 **America’s Human Sacrifices**\
 `Guns don’t kill people. Doors do.`\
-https://nytimes.com/2022/05/28/opinion/americas-human-sacrifices.html?searchResultPosition=2
+https://nytimes.com/2022/05/28/opinion/americas-human-sacrifices.html?searchResultPosition=3
 
 **America Is Under the Gun**\
 `Will we rise up to face the rising tide of violence?`\
-https://nytimes.com/2022/05/28/opinion/guns-uvalde-buffalo.html?searchResultPosition=3
-
-**The Texas Law That Has Banks Saying They Don’t ‘Discriminate’ Against Guns**\
-`Recent legislation requires firms to declare that they don’t “discriminate” against the firearm industry — or risk losing lucrative business with the state.`\
-https://nytimes.com/2022/05/28/business/dealbook/texas-banks-gun-law.html?searchResultPosition=4
+https://nytimes.com/2022/05/28/opinion/guns-uvalde-buffalo.html?searchResultPosition=4
 
 **Summer Reading**\
 `Today we look at this summer’s crop of new books.`\
