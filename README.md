@@ -3,7 +3,7 @@
 https://nytimes.com/2022/05/28/crosswords/daily-puzzle-2022-05-29.html?searchResultPosition=1
 
 **UEFA Blames Delay at Champions League Final on ‘Fake Tickets’**\
-`European soccer’s showcase game was delayed more than 30 minutes after overcrowding at the stadium gates led to clashes between fans and the police.`\
+`European soccer’s showcase game was kicked off more than 30 minutes late after overcrowding at the stadium gates led to clashes between fans and the police.`\
 https://nytimes.com/2022/05/28/sports/soccer/ucl-final-fake-tickets-delay.html?searchResultPosition=2
 
 **Tropical Storm Agatha Headed to the Mexican Coast**\
