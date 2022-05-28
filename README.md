@@ -6,7 +6,7 @@ https://nytimes.com/2022/05/28/well/mind/gun-violence-mental-health.html?searchR
 `New record-keeping requirements for nonrestricted firearms began this month, but the origins of Canada’s so-called crime guns are largely unknown.`\
 https://nytimes.com/2022/05/28/world/canada/gun-laws-canada.html?searchResultPosition=2
 
-**Ukrainian Orthodox Church Breaks with Moscow Over War**\
+**Ukrainian Orthodox Church Breaks With Moscow Over War**\
 `The Council of the Ukrainian Orthodox Church said that it disagreed with the Moscow Patriarch’s position on the war.`\
 https://nytimes.com/2022/05/28/world/europe/ukraine-orthodox-church-moscow.html?searchResultPosition=3
 
