@@ -4,7 +4,7 @@ https://nytimes.com/2022/05/28/us/politics/gun-laws-senate-uvalde-buffalo.html?s
 
 **The N.R.A. Gathering in Houston Spotlights an American Divide**\
 `Gun supporters and protesters mourned two shooting massacres in a single month, but the gap in their views on what to do next remained wide.`\
-https://nytimes.com/2022/05/28/nyregion/nra-convention-houston-gun-control.html?searchResultPosition=2
+https://nytimes.com/2022/05/28/us/nra-convention-houston-gun-control.html?searchResultPosition=2
 
 **U.N. Human Rights Chief Tempers Criticism at End of China Trip**\
 `Rights groups and overseas Uyghurs had called for vociferous condemnation of China’s policies toward minorities in the country’s far West. They were highly disappointed.`\
