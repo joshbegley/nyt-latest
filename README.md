@@ -28,7 +28,7 @@ https://nytimes.com/2022/05/27/arts/music/andy-fletcher-dead.html?searchResultPo
 
 **The Rangers Brace for a ‘Desperate Game’ Against the Hurricanes**\
 `Carolina hasn’t won a playoff game on the road during the Stanley Cup playoffs. If the Hurricanes end that streak on Saturday in New York, the Rangers’ season will be over.`\
-https://nytimes.com/2022/05/27/sports/hockey/the-rangers-brace-for-a-desperate-game-against-the-hurricanes.html?searchResultPosition=8
+https://nytimes.com/2022/05/27/sports/hockey/rangers-hurricanes-nhl-playoffs.html?searchResultPosition=8
 
 **Border Patrol Tactical Unit Has at Times Played High-Profile Role**\
 `One of the unit’s sharpshooters killed the gunman at Robb Elementary School; its members have Special Forces-type training and often target smuggling operations.`\
