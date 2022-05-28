@@ -1,5 +1,5 @@
 **Prosecutors and Defense Duel in Closing Arguments of Politically Charged Trial**\
-`A verdict is expected as early as Tuesday in the case brought by a Trump-era special counsel against a lawyer with ties to the 2016 Clinton campaign.`\
+`A verdict is expected as early as Tuesday in the case brought by a Trump-era special counsel against a lawyer with ties to Hillary Clinton’s 2016 presidential campaign.`\
 https://nytimes.com/2022/05/27/us/politics/michael-sussmann-trial-durham.html?searchResultPosition=1
 
 **The Gunman in Uvalde Left Multiple Hints Before His Attack Began**\
