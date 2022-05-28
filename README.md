@@ -12,7 +12,7 @@ https://nytimes.com/2022/05/27/us/politics/nra-convention-guns.html?searchResult
 
 **Amid Gun Violence, Giants Manager Will Not Come Out for Anthem**\
 `San Francisco’s Gabe Kapler says he will not take the field during the national anthem “until I feel better about the direction of our country.”`\
-https://nytimes.com/2022/05/27/sports/baseball/gape-kapler-anthem.html?searchResultPosition=4
+https://nytimes.com/2022/05/27/sports/baseball/giants-gape-kapler-anthem.html?searchResultPosition=4
 
 **Ron Rice, Creator of Hawaiian Tropic Lotion, Is Dead at 81**\
 `A poor, pale mountain boy who became smitten with the beach, he mixed some ingredients in a garbage can and found his place in the sun.`\
