@@ -6,8 +6,8 @@ https://nytimes.com/2022/05/28/world/asia/un-human-rights-china.html?searchResul
 `Readers raise fairness issues (“Why should I pay for your student loans?”) and offer alternatives.`\
 https://nytimes.com/2022/05/28/opinion/letters/college-debt-cancellation.html?searchResultPosition=2
 
-**Vatican Power Broker Faulted for Handling of Sex Abuse Cases Dies at 94**\
-`Cardinal Angelo Sodano rose to the second-highest ranking position in the Roman Catholic Church, but his reputation was stained by his links to cover-ups of abuse.`\
+**Cardinal Angelo Sodano, Vatican Power Broker, Dies at 94**\
+`He rose to the second-highest-ranking position in the Roman Catholic Church, but his reputation was stained by his handling of sex-abuse cases.`\
 https://nytimes.com/2022/05/28/obituaries/cardinal-angelo-sodano-dies.html?searchResultPosition=3
 
 **Diplomats Fear Russia May Use Syrian Aid as Bargaining Chip in Ukraine**\
