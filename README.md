@@ -1,5 +1,5 @@
-**No Grandchild? Six Years After Their Son’s Wedding, This Couple Is Suing**\
-`A couple in India is demanding that their son and daughter-in-law have a child or pay them $650,000 in damages. “This is an Indian parent thing,” their lawyer said.`\
+**No Grandchild? Six Years After Their Son’s Wedding, This Couple Are Suing**\
+`A couple in India are demanding that their son and daughter-in-law have a child or pay them $650,000 in damages. “This is an Indian parent thing,” their lawyer said.`\
 https://nytimes.com/2022/05/29/world/asia/india-couple-grandchild-suing.html?searchResultPosition=1
 
 **Rockaway Beach Is Partially Closed. That’s Not Stopping These Beachgoers**\
