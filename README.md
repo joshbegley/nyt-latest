@@ -15,7 +15,7 @@ https://nytimes.com/2022/05/29/sports/baseball/dave-stewart-nashville.html?searc
 https://nytimes.com/2022/05/29/world/europe/pope-francis-21-new-cardinals.html?searchResultPosition=4
 
 **E. Robert Wallach, 88, Lawyer Linked to Reagan-Era Scandal, Dies**\
-`Convicted in a fraud case that took down an attorney general, he successfully appealed, and later defended himself in a related case.`\
+`Convicted in a fraud case that took down an attorney general, he successfully appealed, and later defended himself in a retrial.`\
 https://nytimes.com/2022/05/29/us/politics/e-robert-wallach-dead.html?searchResultPosition=5
 
 **Turning Pregnant Women and Doctors Into Criminals**\
