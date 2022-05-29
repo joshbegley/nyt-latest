@@ -24,7 +24,7 @@ https://nytimes.com/video/us/100000008373401/uvalde-school-shooting-vigil.html?s
 
 **¿Qué proponen los candidatos a la presidencia de Colombia?**\
 `Estas son las principales propuestas de campaña de los tres principales candidatos: Gustavo Petro, Federico Gutiérrez y Rodolfo Hernández.`\
-https://nytimes.com/2022/05/29/espanol/petro-fico-propuestas.html?searchResultPosition=7
+https://nytimes.com/2022/05/29/espanol/propuestas-elecciones-colombia.html?searchResultPosition=7
 
 **Heddy Honigmann, Whose Films Told of Loss and Love, Dies at 70**\
 `A documentarian, she liked to engage her subjects — Parisian subway buskers, Peruvian taxi drivers, survivors of genocide — in conversations.`\
