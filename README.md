@@ -14,7 +14,7 @@ https://nytimes.com/2022/05/30/style/vintage-lovers-with-a-dollar-and-a-dream.ht
 `The state is seeking to replace coal and oil with solar energy, aiming to rely extensively on rooftop panels on single-family homes.`\
 https://nytimes.com/2022/05/30/business/hawaii-solar-energy.html?searchResultPosition=4
 
-**‘= As Ukraine Fights, Does the E.U. Owe It Membership?**\
+**As Ukraine Fights, Does the E.U. Owe It Membership?**\
 `Brussels supports Kyiv’s battle against Russia, but gaining full membership to the bloc could take years. Is there another way to bind Ukraine, Moldova and Georgia to Europe?`\
 https://nytimes.com/2022/05/30/world/europe/eu-summit-ukraine-enlargement-accession-talks-nato.html?searchResultPosition=5
 
