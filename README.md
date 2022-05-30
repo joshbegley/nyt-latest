@@ -3,7 +3,7 @@
 https://nytimes.com/2022/05/30/world/americas/colombia-presidential-election-hernandez-petro.html?searchResultPosition=1
 
 **Canada Aims to Force Owners of ‘Military-Style Assault Weapons’ to Turn Them In**\
-`Seizing on the spate of mass shootings in the United States, Prime Minister Trudeau proposes tightening the country’s already stringent control of firearms.`\
+`“We have a responsibility to act to prevent more tragedies,” Prime Minister Trudeau said as he proposed tightening the country’s already stringent control of firearms.`\
 https://nytimes.com/2022/05/30/world/canada/canada-gun-buyback.html?searchResultPosition=2
 
 **In the Senate, Chasing an Ever-Elusive Gun Law Deal**\
@@ -11,7 +11,7 @@ https://nytimes.com/2022/05/30/world/canada/canada-gun-buyback.html?searchResult
 https://nytimes.com/2022/05/30/us/politics/senate-guns-democracy.html?searchResultPosition=3
 
 **Hurricane Agatha Makes Landfall in Southern Mexico**\
-`The storm was the first Category 2 to ever make landfall in the eastern Pacific, and threatened to bring floods and mudslides to the state of Oaxaca.`\
+`The Category 2 storm threatened to bring floods and mudslides to the state of Oaxaca.`\
 https://nytimes.com/2022/05/30/world/americas/hurricane-mexico-agatha-forecast.html?searchResultPosition=4
 
 **Maloney vs. Nadler? New York Must Pick a Side (East or West)**\
