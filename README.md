@@ -30,8 +30,8 @@ https://nytimes.com/2022/05/30/briefing/europe-oil-embargo-russia-asia.html?sear
 `A three-time All-American, he began a long career at Sports Illustrated while still competing. A former top editor there said, “He was a guy with a real literary bent.”`\
 https://nytimes.com/2022/05/30/sports/kenny-moore-dead.html?searchResultPosition=8
 
-**The embargo will bruise Russia’s oil industry, but for now it is doing fine.**\
-`The E.U. has reached an agreement on the embargo, which may cause Russian production to drop another one million barrels a day, or about 10 percent, analysts say.`\
+**The E.U.’s embargo will bruise Russia’s oil industry, but for now it is doing fine.**\
+`The European Union has reached an agreement on the embargo, which may cause Russian production to drop another one million barrels a day, or about 10 percent, analysts say.`\
 https://nytimes.com/2022/05/30/business/oil-embargo-russia.html?searchResultPosition=9
 
 **A Son Was Lost, a Daughter Saved**\
