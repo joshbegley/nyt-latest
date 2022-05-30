@@ -6,7 +6,7 @@ https://nytimes.com/2022/05/30/sports/boxing-cuba.html?searchResultPosition=1
 `The painting was not harmed and the man, who officials said was in a wheelchair and had faked a disability to get close to it, was taken into custody.`\
 https://nytimes.com/2022/05/30/world/europe/mona-lisa-pastry-louvre.html?searchResultPosition=2
 
-**French journalist killed by shrapnel in eastern Ukraine.**\
+**A French journalist is killed by shrapnel in eastern Ukraine.**\
 `“The newsroom is in mourning,” said a manager at the TV channel where the 32-year-old journalist worked.`\
 https://nytimes.com/2022/05/30/world/europe/french-journalist-killed-ukraine.html?searchResultPosition=3
 
