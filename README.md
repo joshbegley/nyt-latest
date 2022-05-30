@@ -30,11 +30,11 @@ https://nytimes.com/2022/05/30/briefing/europe-oil-embargo-russia-asia.html?sear
 `A three-time All-American, he began a long career at Sports Illustrated while still competing. A former top editor there said, “He was a guy with a real literary bent.”`\
 https://nytimes.com/2022/05/30/sports/kenny-moore-dead.html?searchResultPosition=8
 
-**The E.U.’s embargo will bruise Russia’s oil industry, but for now it is doing fine.**\
-`The European Union has reached an agreement on the embargo, which may cause Russian production to drop another one million barrels a day, or about 10 percent, analysts say.`\
-https://nytimes.com/2022/05/30/business/oil-embargo-russia.html?searchResultPosition=9
-
 **A Son Was Lost, a Daughter Saved**\
 `In Uvalde, Texas, where many children were killed, one family grieves the death of a small boy and holds his sister close.`\
-https://nytimes.com/2022/05/30/us/victims-texas-shooting-family.html?searchResultPosition=10
+https://nytimes.com/2022/05/30/us/victims-texas-shooting-family.html?searchResultPosition=9
+
+**Residents in Southern Mexico Prepare for Hurricane Agatha**\
+`The hurricane is this year’s first named storm in the eastern Pacific and could lead to flooding and mudslides.`\
+https://nytimes.com/video/world/americas/100000008374445/agatha-hurricane-mexico.html?searchResultPosition=10
 
