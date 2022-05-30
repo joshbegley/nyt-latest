@@ -1,6 +1,6 @@
 **An embargo would bruise Russia’s oil industry, but for now it is doing fine.**\
 `If the E.U. reaches agreement on the embargo, Russian production may drop another one million barrels a day, or about 10 percent, analysts say.`\
-https://nytimes.com/2022/05/30/business/an-embargo-would-bruise-russias-oil-industry-but-for-now-it-is-doing-fine.html?searchResultPosition=1
+https://nytimes.com/2022/05/30/business/oil-embargo-russia.html?searchResultPosition=1
 
 **A Son Was Lost, a Daughter Saved**\
 `In Uvalde, Texas, where many children were killed, one family grieves the death of a small boy and holds his sister close.`\
