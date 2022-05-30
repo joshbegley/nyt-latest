@@ -1,40 +1,40 @@
-**The Men Lost to 20 Bruckner Boulevard**\
-`They were transforming a century-old Bronx ice house into a charter school. It became one of the deadliest construction sites in New York City in almost two decades.`\
-https://nytimes.com/2022/05/30/us/nyc-construction-deaths-immigrants.html?searchResultPosition=1
+**Holiday weekend in the U.S. resembles prepandemic times, as experts and the White House remain wary of virus risk.**\
+`While there is a rise in confirmed daily coronavirus cases and hospitalizations, Memorial Day observations are not being scrapped.`\
+https://nytimes.com/2022/05/30/world/holiday-weekend-in-the-us-resembles-prepandemic-times-as-experts-and-the-white-house-remain-wary-of-virus-risk.html?searchResultPosition=1
 
-**They Served. Now, Inspired by What They Saw, They Sell.**\
-`Some veterans have started businesses that draw from their experiences in Iraq and Afghanistan, and thrived.`\
-https://nytimes.com/2022/05/30/us/politics/veterans-small-business.html?searchResultPosition=2
+**Asian and Black Communities Have a Long History of Shared Solidarity**\
+`Stories of loss, struggle, change and hope are the most powerful tools we have to understand one another and bridge what divides us.`\
+https://nytimes.com/2022/05/30/opinion/asian-black-americans-community.html?searchResultPosition=2
 
-**A Church, a Gathering Place for Generations, Becomes a Hub for Uvalde’s Grief**\
-`As soon as the scale of the tragedy became clear, congregants rushed to Sacred Heart Catholic Church. In the days since, they’ve kept coming in search of comfort and community.`\
-https://nytimes.com/2022/05/30/us/uvalde-church-sacred-heart.html?searchResultPosition=3
+**Vintage Lovers With a Dollar and a Dream**\
+`For years, dedicated shoppers have spent their Sundays searching for second-hand goods at Jet Rag’s $1 sale.`\
+https://nytimes.com/2022/05/30/style/vintage-lovers-with-a-dollar-and-a-dream.html?searchResultPosition=3
 
-**For NATO, Turkey Is a Disruptive Ally**\
-`President Recep Tayyip Erdogan’s block on NATO membership for Sweden and Finland is likely to be managed, but Washington and the rest of the alliance are annoyed.`\
-https://nytimes.com/2022/05/30/us/politics/turkey-nato-russia.html?searchResultPosition=4
+**Hit Hard by High Energy Costs, Hawaii Looks to the Sun**\
+`The state is seeking to replace coal and oil with solar energy, aiming to rely extensively on rooftop panels on single-family homes.`\
+https://nytimes.com/2022/05/30/business/hawaii-solar-energy.html?searchResultPosition=4
 
-**From Sandy Hook to Uvalde, the Violent Images Never Seen**\
-`Frustrated Americans ask whether the release of graphic photos of gun violence would lead to better policy. But which photos, and who decides?`\
-https://nytimes.com/2022/05/30/us/politics/photos-uvalde.html?searchResultPosition=5
+**‘= As Ukraine Fights, Does the E.U. Owe It Membership?**\
+`Brussels supports Kyiv’s battle against Russia, but gaining full membership to the bloc could take years. Is there another way to bind Ukraine, Moldova and Georgia to Europe?`\
+https://nytimes.com/2022/05/30/world/europe/eu-summit-ukraine-enlargement-accession-talks-nato.html?searchResultPosition=5
 
-**Gov. Hochul Stockpiles Donations, as Rivals Struggle to Keep Pace**\
-`Real estate, unions and crypto interests were among the donors to Ms. Hochul. Here are five takeaways from the money battle in New York’s race for governor.`\
-https://nytimes.com/2022/05/30/nyregion/gov-hochul-leads-rivals-donations.html?searchResultPosition=6
+**A Russian Plane Crashed Into a House. Death Was Parceled Out Randomly.**\
+`Some fortuitous timing in doing chores saved a family that lived in the Ukrainian city of Chernihiv. A few blocks away, things turned out very differently.`\
+https://nytimes.com/2022/05/30/world/europe/ukraine-russia-chernihiv.html?searchResultPosition=6
 
-**U.S. Retakes Top Spot in Supercomputer Race**\
-`A massive machine in Tennessee has been deemed the world’s speediest. Experts say two supercomputers in China may be faster, but the country didn’t participate in the rankings.`\
-https://nytimes.com/2022/05/30/business/us-supercomputer-frontier.html?searchResultPosition=7
+**Lawyer Who Plotted to Overturn Trump Loss Recruits Election Deniers to Watch Over the Vote**\
+`A central figure in the scheme to reverse the 2020 election is mobilizing grass-roots activists into an “army of citizens” trained to aggressively monitor elections.`\
+https://nytimes.com/2022/05/30/us/politics/republican-poll-monitors-election-activists.html?searchResultPosition=7
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/05/30/crosswords/spelling-bee-forum.html?searchResultPosition=8
+**No One Can Hide From This Weapon in the War in Ukraine**\
+`In Ukraine, drones that film and fight have been used to bring international audiences right up to the front lines.`\
+https://nytimes.com/2022/05/30/opinion/drones-ukraine-war.html?searchResultPosition=8
 
-**‘No One Is Alive’: At Least 16 Bodies Recovered From Nepal Plane Crash**\
-`The plane went down in bad weather while carrying passengers to Jomsom, a tourist destination popular with trekkers.`\
-https://nytimes.com/2022/05/30/world/asia/nepal-plane-crash.html?searchResultPosition=9
+**Circling Sicily on Its Regional Trains**\
+`A Dutch photographer, documenting the culture of regional train travel, managed to get around the Italian island for less than $100. Here’s what she saw.`\
+https://nytimes.com/2022/05/30/travel/sicily-regional-trains.html?searchResultPosition=9
 
-**Your Monday Briefing**\
-`A new front in Russia’s war in Ukraine.`\
-https://nytimes.com/2022/05/30/briefing/uvalde-biden-ukraine-south.html?searchResultPosition=10
+**Trash Is His Muse: Meet the Sanitation Department’s Resident Artist**\
+`Sto Len focuses much of his work on environmental issues in New York City, including sites like the Fresh Kills landfill on Staten Island.`\
+https://nytimes.com/2022/05/30/nyregion/sanitation-department-artist-sto-len.html?searchResultPosition=10
 
