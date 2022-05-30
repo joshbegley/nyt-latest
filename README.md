@@ -30,7 +30,7 @@ https://nytimes.com/2022/05/30/business/us-supercomputer-frontier.html?searchRes
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2022/05/30/crosswords/spelling-bee-forum.html?searchResultPosition=8
 
-**‘No One Is Alive’: At Least 14 Bodies Recovered From Nepal Plane Crash**\
+**‘No One Is Alive’: At Least 16 Bodies Recovered From Nepal Plane Crash**\
 `The plane went down in bad weather while carrying passengers to Jomsom, a tourist destination popular with trekkers.`\
 https://nytimes.com/2022/05/30/world/asia/nepal-plane-crash.html?searchResultPosition=9
 
