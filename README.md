@@ -4,7 +4,7 @@ https://nytimes.com/2022/05/30/nyregion/nyc-manhattan-brooklyn-commute-offices.h
 
 **Under Fire for Chaos at Soccer Final, France Rejects Blame for Failures**\
 `Tear gas and delays marred the Champions League final in Paris on Saturday, raising questions over France’s ability to host large-scale sporting events like the 2024 Summer Olympics.`\
-https://nytimes.com/2022/05/30/world/europe/france-soccer-chaos.html?searchResultPosition=2
+https://nytimes.com/2022/05/30/world/europe/ucl-game-delay-france.html?searchResultPosition=2
 
 **Protester Throws Pastry at the Mona Lisa**\
 `The protester faked a disability to get close to the painting before throwing a pastry at it, smearing cream on its glass case. The painting was not damaged.`\
