@@ -1,6 +1,6 @@
-**A French journalist is killed by shrapnel in eastern Ukraine.**\
-`By Aurelien Breeden and Carlotta Gall`\
-https://nytimes.com/2022/05/30/world/europe/a-french-journalist-is-killed-by-shrapnel-in-eastern-ukraine.html?searchResultPosition=1
+**French journalist killed by shrapnel in eastern Ukraine.**\
+`“The newsroom is in mourning,” said a manager at the TV channel where the 32-year-old journalist worked.`\
+https://nytimes.com/2022/05/30/world/europe/french-journalist-killed-ukraine.html?searchResultPosition=1
 
 **Protesters Demand European Union Stops Buying Russian Oil**\
 `Activists from Ukraine and elsewhere in Eastern Europe staged the demonstration hours before European leaders were set to begin a summit in Brussels.`\
