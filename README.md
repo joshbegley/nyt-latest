@@ -10,7 +10,7 @@ https://nytimes.com/2022/05/30/sports/marin-cilic-daniil-medvedev-french-open.ht
 `The Colombian establishment is lining up behind Rodolfo Hernández, a populist businessman with an incendiary streak, to defeat the leftist former rebel Gustavo Petro.`\
 https://nytimes.com/2022/05/30/world/americas/colombia-presidential-election-hernandez-petro.html?searchResultPosition=4
 
-**Canada Aims to Force Owners of ‘Military-Style Assault Weapons’ to Turn Them In**\
+**Canada Plans to Ban Handgun Sales and Possession of Assault Weapons**\
 `“We have a responsibility to act to prevent more tragedies,” Prime Minister Trudeau said as he proposed tightening the country’s already stringent control of firearms.`\
 https://nytimes.com/2022/05/30/world/canada/canada-gun-buyback.html?searchResultPosition=5
 
