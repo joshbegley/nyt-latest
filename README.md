@@ -1,40 +1,40 @@
+**The Men Lost to 20 Bruckner Boulevard**\
+`They were transforming a century-old Bronx ice house into a charter school. It became one of the deadliest construction sites in New York City in almost two decades.`\
+https://nytimes.com/2022/05/30/us/nyc-construction-deaths-immigrants.html?searchResultPosition=1
+
+**They Served. Now, Inspired by What They Saw, They Sell.**\
+`Some veterans have started businesses that draw from their experiences in Iraq and Afghanistan, and thrived.`\
+https://nytimes.com/2022/05/30/us/politics/veterans-small-business.html?searchResultPosition=2
+
+**A Church, a Gathering Place for Generations, Becomes a Hub for Uvalde’s Grief**\
+`As soon as the scale of the tragedy became clear, congregants rushed to Sacred Heart Catholic Church. In the days since, they’ve kept coming in search of comfort and community.`\
+https://nytimes.com/2022/05/30/us/uvalde-church-sacred-heart.html?searchResultPosition=3
+
+**For NATO, Turkey Is a Disruptive Ally**\
+`President Recep Tayyip Erdogan’s block on NATO membership for Sweden and Finland is likely to be managed, but Washington and the rest of the alliance are annoyed.`\
+https://nytimes.com/2022/05/30/us/politics/turkey-nato-russia.html?searchResultPosition=4
+
+**From Sandy Hook to Uvalde, the Violent Images Never Seen**\
+`Frustrated Americans ask whether the release of graphic photos of gun violence would lead to better policy. But which photos, and who decides?`\
+https://nytimes.com/2022/05/30/us/politics/photos-uvalde.html?searchResultPosition=5
+
+**Gov. Hochul Stockpiles Donations, as Rivals Struggle to Keep Pace**\
+`Real estate, unions and crypto interests were among the donors to Ms. Hochul. Here are five takeaways from the money battle in New York’s race for governor.`\
+https://nytimes.com/2022/05/30/nyregion/gov-hochul-leads-rivals-donations.html?searchResultPosition=6
+
+**U.S. Retakes Top Spot in Supercomputer Race**\
+`A massive machine in Tennessee has been deemed the world’s speediest. Experts say two supercomputers in China may be faster, but the country didn’t participate in the rankings.`\
+https://nytimes.com/2022/05/30/business/us-supercomputer-frontier.html?searchResultPosition=7
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2022/05/30/crosswords/spelling-bee-forum.html?searchResultPosition=8
+
 **‘No One Is Alive’: At Least 14 Bodies Recovered From Nepal Plane Crash**\
 `The plane went down in bad weather while carrying passengers to Jomsom, a tourist destination popular with trekkers.`\
-https://nytimes.com/2022/05/30/world/asia/nepal-plane-crash.html?searchResultPosition=1
+https://nytimes.com/2022/05/30/world/asia/nepal-plane-crash.html?searchResultPosition=9
 
 **Your Monday Briefing**\
 `A new front in Russia’s war in Ukraine.`\
-https://nytimes.com/2022/05/30/briefing/uvalde-biden-ukraine-south.html?searchResultPosition=2
-
-**What’s on TV This Week: ‘Julia’ and the MTV Movie & TV Awards**\
-`A documentary about Julia Child airs on CNN. And Vanessa Hudgens hosts an awards show on MTV.`\
-https://nytimes.com/2022/05/30/arts/television/whats-on-tv-julia-mtv-movie-tv-awards.html?searchResultPosition=3
-
-**No Corrections: May 30, 2022**\
-`No corrections appeared in print on Monday, May 30, 2022.`\
-https://nytimes.com/2022/05/30/pageoneplus/no-corrections-may-30-2022.html?searchResultPosition=4
-
-**Quotation of the Day: Russian Speakers Decide to Use Ukrainian Instead**\
-`Quotation of the Day for Monday, May 30, 2022.`\
-https://nytimes.com/2022/05/30/todayspaper/quotation-of-the-day-russian-speakers-decide-to-use-ukrainian-instead.html?searchResultPosition=5
-
-**Of Red Clay and French Existentialism**\
-`The red clay of Roland Garros is the biggest star of the French Open. So why isn’t there more of it in France, and more French Open champions from the country?`\
-https://nytimes.com/2022/05/30/sports/tennis/french-open-red-clay.html?searchResultPosition=6
-
-**Boston Celtics Beat Miami Heat in Game 7 for Trip to N.B.A. Finals**\
-`The Celtics led by 15 after the first quarter. Miami’s Jimmy Butler fueled the Heat’s comeback attempt, but it wasn’t enough.`\
-https://nytimes.com/2022/05/29/sports/boston-celtics-miami-heat-game-7-nba-finals.html?searchResultPosition=7
-
-**In Colombia, a Leftist and a Right-Wing Populist Head for June Runoff**\
-`The results in the first round of voting delivered a stunning blow to Colombia’s dominant conservative political class.`\
-https://nytimes.com/2022/05/29/world/americas/colombia-election-results.html?searchResultPosition=8
-
-**No Grandchild? Six Years After Son’s Wedding, These Parents Are Suing**\
-`A couple in India are demanding that their son and daughter-in-law have a child or pay them $650,000 in damages. “This is an Indian parent thing,” their lawyer said.`\
-https://nytimes.com/2022/05/29/world/asia/india-couple-grandchild-suing.html?searchResultPosition=9
-
-**Rockaway Beach Is Partially Closed. That’s Not Stopping These Beachgoers**\
-`Access is restricted along a popular stretch of the beach until at least mid-July because of work to protect the shoreline from coastal flooding.`\
-https://nytimes.com/2022/05/29/nyregion/rockaways-swimming-ny-beaches.html?searchResultPosition=10
+https://nytimes.com/2022/05/30/briefing/uvalde-biden-ukraine-south.html?searchResultPosition=10
 
