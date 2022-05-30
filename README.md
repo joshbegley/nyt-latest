@@ -2,7 +2,7 @@
 `The results in the first round of voting delivered a stunning blow to Colombia’s dominant conservative political class.`\
 https://nytimes.com/2022/05/29/world/americas/colombia-election-results.html?searchResultPosition=1
 
-**No Grandchild? Six Years After Their Son’s Wedding, This Couple Are Suing**\
+**No Grandchild? Six Years After Son’s Wedding, These Parents Are Suing**\
 `A couple in India are demanding that their son and daughter-in-law have a child or pay them $650,000 in damages. “This is an Indian parent thing,” their lawyer said.`\
 https://nytimes.com/2022/05/29/world/asia/india-couple-grandchild-suing.html?searchResultPosition=2
 
