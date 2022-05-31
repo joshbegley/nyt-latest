@@ -6,7 +6,7 @@ https://nytimes.com/2022/05/31/briefing/oil-embargo-colombia-election-guns.html?
 `A court-ordered redistricting plan puts Representatives Carolyn Maloney and Jerrold Nadler in a primary against each other.`\
 https://nytimes.com/2022/05/31/nyregion/a-collision-course-for-2-stalwart-manhattan-democrats.html?searchResultPosition=2
 
-**Some Omaha Residents Urged to Evacuate After Chemical Fire**\
+**Omaha Residents Are Urged to Evacuate After Chemical Fire**\
 `The three-alarm fire sent clouds of smoke billowing over the city. There were no immediate reports of injuries.`\
 https://nytimes.com/2022/05/30/us/omaha-chemical-fire.html?searchResultPosition=3
 
