@@ -7,7 +7,7 @@ https://nytimes.com/2022/05/31/arts/lviv-ukraine-refugee-housing.html?searchResu
 https://nytimes.com/2022/05/31/opinion/ukraine-energy-war-europe-gas.html?searchResultPosition=2
 
 **Canada Decriminalizes Opioids and Other Drugs in British Columbia**\
-`With opioid deaths skyrocketing in the Western province, Canada has temporarily decriminalized the substance and three others for personal use.`\
+`With opioid deaths skyrocketing in the western province, Canada has temporarily decriminalized the substance and three others for personal use.`\
 https://nytimes.com/2022/05/31/world/canada/british-columbia-decriminalizes-drugs.html?searchResultPosition=3
 
 **Becoming Johnny Rotten, When John Lydon Would Rather You Didn’t**\
