@@ -2,7 +2,7 @@
 `Here’s what you need to know at the end of the day.`\
 https://nytimes.com/2022/05/31/briefing/oil-ban-covid-deaths-asteroids.html?searchResultPosition=1
 
-**Subway Victim Sues Gun Maker Over Attack that ‘Changed My Life Forever’**\
+**Subway Victim Sues Gun Maker Over Attack That ‘Changed My Life Forever’**\
 `Ilene Steur, who was shot in the Sunset Park attack in April, argued that Glock markets its firearms by emphasizing qualities that make them attractive to criminals.`\
 https://nytimes.com/2022/05/31/nyregion/subway-victim-sues-gun-maker-over-attack-that-changed-my-life-forever.html?searchResultPosition=2
 
