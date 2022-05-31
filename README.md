@@ -1,6 +1,6 @@
 **Kevin Spacey to Voluntarily Travel to Britain to Face Sexual Assault Charges**\
 `The actor said in a statement to “Good Morning America” that he will seek to prove his innocence against the charges.`\
-https://nytimes.com/2022/05/31/arts/television/kevin-spacey-uk-sexual-assault.html?searchResultPosition=1
+https://nytimes.com/2022/05/31/arts/television/kevin-spacey-sexual-assault-uk.html?searchResultPosition=1
 
 **Cybercrime is rising rapidly. How easily could you be hacked? **\
 `The first time Kevin Nguyen was hacked, he was caught completely off guard. `\
