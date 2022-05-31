@@ -30,11 +30,11 @@ https://nytimes.com/2022/05/31/podcasts/the-daily/uvalde-shooting-police-respons
 `A violent society ought to view its handiwork.`\
 https://nytimes.com/2022/05/31/opinion/uvalde-shooting-photos.html?searchResultPosition=8
 
-**An Asbury Park Victorian Gets a ‘Really Fun’ Face-Lift**\
-`The playful renovation preserved many of the home’s original details, but emphasized carefree weekend living.`\
-https://nytimes.com/2022/05/31/realestate/an-asbury-park-victorian-gets-a-really-fun-face-lift.html?searchResultPosition=9
-
 **When the Only Way to Get to Work Is This Slow Bus**\
 `The Q23 is one of the slowest buses in Queens, where many residents live beyond the subway’s reach and more people ride buses than anywhere else in New York City.`\
-https://nytimes.com/2022/05/31/nyregion/q23-slow-bus-queens.html?searchResultPosition=10
+https://nytimes.com/2022/05/31/nyregion/q23-slow-bus-queens.html?searchResultPosition=9
+
+**An Asbury Park Victorian Gets a ‘Really Fun’ Face-Lift**\
+`The playful renovation preserved many of the home’s original details, but emphasized carefree weekend living.`\
+https://nytimes.com/2022/05/31/realestate/an-asbury-park-victorian-gets-a-really-fun-face-lift.html?searchResultPosition=10
 
