@@ -1,5 +1,5 @@
 **Rangers Hand Hurricanes First Home Loss of the Playoffs to Advance**\
-`Chris Kreider scored two goals and Igor Shesterkin was nearly perfect in the 6-2 win. New York will play the Tampa Bay Lightning in the Eastern Conference finals.`\
+`Chris Kreider scored twice and Igor Shesterkin was nearly perfect in the 6-2 win. New York will play the Tampa Bay Lightning in the Eastern Conference finals.`\
 https://nytimes.com/2022/05/30/sports/hockey/rangers-hurricanes-nhl-playoffs.html?searchResultPosition=1
 
 **Storm Damages as Many as 100 Homes in Minnesota**\
