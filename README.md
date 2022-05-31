@@ -4,7 +4,7 @@ https://nytimes.com/2022/05/31/briefing/oil-ban-covid-deaths-asteroids.html?sear
 
 **Subway Victim Sues Gun Maker Over Attack That ‘Changed My Life Forever’**\
 `Ilene Steur, who was shot in the Sunset Park attack in April, argued that Glock markets its firearms by emphasizing qualities that make them attractive to criminals.`\
-https://nytimes.com/2022/05/31/nyregion/subway-victim-sues-gun-maker-over-attack-that-changed-my-life-forever.html?searchResultPosition=2
+https://nytimes.com/2022/05/31/nyregion/subway-shooting-victim-sues-gun-maker-glock.html?searchResultPosition=2
 
 **Shanghai to Begin Easing Covid Restrictions After Lockdown**\
 `Two months after Shanghai fell under a Covid-19 lockdown, China’s biggest city took steps toward reopening shops, parks and public transit to its residents.`\
