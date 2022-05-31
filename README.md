@@ -2,13 +2,13 @@
 `Mara Vélez Meléndez’s “Notes on Killing Seven Oversight, Management and Economic Stability Board Members” ferociously explores the intersection of the personal and the political.`\
 https://nytimes.com/2022/05/30/theater/notes-on-killing-review.html?searchResultPosition=1
 
-**Eurovision Winners Auction Off Trophy to Support Ukraine’s Army**\
-`Millions of people have viewed a video of the band Kalush Orchestra that was filmed in the rubble of Ukraine. Its members have urged fans to help the Ukrainian army.`\
-https://nytimes.com/2022/05/30/world/europe/kalush-orchestra-ukraine-auction.html?searchResultPosition=3
-
 **Cilic Delivers Latest French Open Surprise, Beating Medvedev**\
 `The veteran Marin Cilic dispatched the second-seeded Daniil Medvedev in less than two hours, joining the quarterfinals after Holger Rune upset the fourth-seeded Stefanos Tsitsipas.`\
-https://nytimes.com/2022/05/30/sports/marin-cilic-daniil-medvedev-french-open.html?searchResultPosition=4
+https://nytimes.com/2022/05/30/sports/marin-cilic-daniil-medvedev-french-open.html?searchResultPosition=3
+
+**Eurovision Winners Auction Off Trophy to Support Ukraine’s Army**\
+`Millions of people have viewed a video of the band Kalush Orchestra that was filmed in the rubble of Ukraine. Its members have urged fans to help the Ukrainian army.`\
+https://nytimes.com/2022/05/30/world/europe/kalush-orchestra-ukraine-auction.html?searchResultPosition=4
 
 **Colombia’s Trump May Be Headed for the Presidential Palace**\
 `The Colombian establishment is lining up behind Rodolfo Hernández, a populist businessman with an incendiary streak, to defeat the leftist former rebel Gustavo Petro.`\
