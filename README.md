@@ -1,40 +1,40 @@
-**Crude, Ugly and Pro-American? China Investigates Images in Math Textbooks.**\
-`The discovery of what some viewed as disturbing illustrations in books for elementary school students set off a national furor.`\
-https://nytimes.com/2022/05/31/world/asia/china-children-textbooks.html?searchResultPosition=1
+**An Asbury Park Victorian Gets a ‘Really Fun’ Face-Lift**\
+`The playful renovation preserved many of the home’s original details, but emphasized carefree weekend living.`\
+https://nytimes.com/2022/05/31/realestate/an-asbury-park-victorian-gets-a-really-fun-face-lift.html?searchResultPosition=1
 
-**From Gun Laws to Abortion, 5 Issues for N.Y. Legislators as Session Ends**\
-`A move to raise the minimum age to buy AR-15-style weapons is among several hot-button issues still to be resolved in Albany before the session ends.`\
-https://nytimes.com/2022/05/31/nyregion/gun-control-abortion-albany.html?searchResultPosition=2
+**When the Only Way to Get to Work Is This Slow Bus**\
+`The Q23 is one of the slowest buses in Queens, where many residents live beyond the subway’s reach and more people ride buses than anywhere else in New York City.`\
+https://nytimes.com/2022/05/31/nyregion/q23-slow-bus-queens.html?searchResultPosition=2
 
-**The Arrow in America’s Heart**\
-`Relentless mass shootings, a million dead from Covid — How much do we value a single life?`\
-https://nytimes.com/2022/05/31/us/america-grief-life.html?searchResultPosition=3
+**A Playful Face-Lift for an Asbury Park Victorian**\
+`The renovation preserved many of the home’s original details, but emphasized unexpected details and carefree weekend living.`\
+https://nytimes.com/slideshow/2022/05/31/realestate/a-playful-face-lift-for-an-asbury-park-victorian.html?searchResultPosition=3
 
-**Wall Street’s Losing Streak Ends, but Uncertainty That Drove It Lingers**\
-`As stocks have tumbled this year, predictions that the selling is over have been wrong time and again.`\
-https://nytimes.com/2022/05/31/business/stocks-bear-market.html?searchResultPosition=4
+**Our readers sent updates on stories that have resonated with many of you.**\
+`More than 20,000 readers have written in to share their pandemic experiences.`\
+https://nytimes.com/2022/05/31/world/our-readers-sent-updates-on-stories-that-have-resonated-with-many-of-you.html?searchResultPosition=4
 
-**After a Bumper 2021, Companies Might Struggle to Increase Profits**\
-`Businesses face headwinds as demand weakens, the Federal Reserve raises rates and government stimulus programs end.`\
-https://nytimes.com/2022/05/31/business/stock-market-company-profits.html?searchResultPosition=5
+**Why China Is Miles Ahead in a Pacific Race for Influence**\
+`To many observers, the South Pacific today reveals what American decline looks like. Even as Washington tries to step up its game, it is still far behind, mistaking speeches for impact and interest for influence.`\
+https://nytimes.com/2022/05/31/world/australia/china-united-states-pacific.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/05/31/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**Go Here, Not There: Vacation Alternatives for the Budget-Conscious**\
+`As inflation puts a crimp in travelers’ plans, here are some affordable suggestions for trips focused on wine, culture, food, the outdoors and more.`\
+https://nytimes.com/2022/05/31/travel/affordable-vacation-alternatives.html?searchResultPosition=6
 
-**Killer Asteroids Are Hiding in Plain Sight. A New Tool Helps Spot Them.**\
-`Researchers have built an algorithm that can scan old astronomical images for unnoticed space rocks, helping to detect objects that could one day imperil Earth.`\
-https://nytimes.com/2022/05/31/science/asteroids-algorithm-planetary-defense.html?searchResultPosition=7
+**Even as Russia Bears Down in the East, Some Ukrainians Stay Behind**\
+`The Russian offensive grinds on, but not everyone is leaving the eastern Donbas region.`\
+https://nytimes.com/2022/05/31/world/asia/ukrainians-donbas-russia-war.html?searchResultPosition=7
 
-**Trump Policies Sent U.S. Tumbling in a Climate Ranking**\
-`The Environmental Performance Index, published every two years by researchers at Yale and Columbia, found only Denmark and Britain on sustainable paths to net-zero emissions by 2050.`\
-https://nytimes.com/2022/05/31/climate/united-states-climate-ranking-trump.html?searchResultPosition=8
+**Too Much Talent for a Tiny League**\
+`Making it to the pros is always hard. But with only 12 teams with 12 players each, the W.N.B.A. makes it seemingly impossible for too many women’s college basketball stars.`\
+https://nytimes.com/2022/05/31/sports/basketball/wnba-roster-players.html?searchResultPosition=8
 
-**No Corrections: May 31, 2022**\
-`No corrections appeared in print on Tuesday, May 31, 2022.`\
-https://nytimes.com/2022/05/31/pageoneplus/no-corrections-may-31-2022.html?searchResultPosition=9
+**The War in Ukraine May Be Impossible to Stop. And the U.S. Deserves Much of the Blame.**\
+`A tragic, local and ambiguous conflict has been turned into a potential world conflagration.`\
+https://nytimes.com/2022/05/31/opinion/us-ukraine-putin-war.html?searchResultPosition=9
 
-**Quotation of the Day: Senate Chasing an Ever-Elusive Gun Law Deal**\
-`Quotation of the Day for Tuesday, May 31, 2022.`\
-https://nytimes.com/2022/05/31/todayspaper/quotation-of-the-day-senate-chasing-an-ever-elusive-gun-law-deal.html?searchResultPosition=10
+**Help Wanted: State Misinformation Sheriff**\
+`Several states are putting more money and effort into combating false and misleading information about elections.`\
+https://nytimes.com/2022/05/31/technology/misinformation-sheriff-election-midterms.html?searchResultPosition=10
 
