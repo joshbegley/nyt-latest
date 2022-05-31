@@ -2,8 +2,8 @@
 `Chris Kreider scored two goals and Igor Shesterkin was nearly perfect in the 6-2 win. New York will play the Tampa Bay Lightning in the Eastern Conference finals.`\
 https://nytimes.com/2022/05/30/sports/hockey/rangers-hurricanes-nhl-playoffs.html?searchResultPosition=1
 
-**Storm Damages Dozens of Homes in Minnesota**\
-`Rescuers were checking on residents in Forada, according to a county emergency management director, who said there were no immediate reports of serious injuries after a possible tornado.`\
+**Storm Damages as Many as 100 Homes in Minnesota**\
+`There were no immediate reports of serious injuries after a possible tornado struck Forada, about 135 miles northwest of Minneapolis, a county official said.`\
 https://nytimes.com/2022/05/30/us/tornado-minnesota-forada.html?searchResultPosition=2
 
 **Peter Navarro, Former Trump Aide, Gets Grand Jury Subpoena in Jan. 6 Inquiry**\
