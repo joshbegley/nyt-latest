@@ -1,5 +1,5 @@
-**Alexander Zverev tops the upstart Carlos Alcaraz.**\
-`By Christopher Clarey`\
+**Alexander Zverev Beats Carlos Alcaraz at the French Open**\
+`Zverev will face either Rafael Nadal or Novak Djokovic in the semifinal round.`\
 https://nytimes.com/2022/05/31/sports/tennis/alexander-zverev-carlos-alcaraz.html?searchResultPosition=1
 
 **To House Refugees, Lviv Wants to Make Beautiful Buildings That Last**\
