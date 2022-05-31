@@ -19,7 +19,7 @@ https://nytimes.com/2022/05/31/theater/romeo-bernadette-review.html?searchResult
 https://nytimes.com/2022/05/31/sports/tennis/nadal-djokovic-score-french-open.html?searchResultPosition=5
 
 **President Biden: What America Will and Will Not Do in Ukraine**\
-`The U.S. will help Ukraine be in the strongest possible position at the negotiating table. We do not want to prolong the war just weaken Russia.`\
+`The U.S. will help Ukraine be in the strongest possible position at the negotiating table. We do not want to prolong the war just to inflict pain on Russia.`\
 https://nytimes.com/2022/05/31/opinion/biden-ukraine-strategy.html?searchResultPosition=6
 
 **Prosecutors Open New Inquiry Into Mysterious Deaths of Prominent Couple**\
