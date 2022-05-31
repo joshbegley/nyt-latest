@@ -1,5 +1,5 @@
-**Michael Sussmann Is Acquitted in Case Brought by Trump-era Prosecutor**\
-`The Democratic-linked lawyer was accused of lying about his clients to the F.B.I. when he passed on a tip about possible Trump-Russia links.`\
+**Michael Sussmann Is Acquitted in Case Brought by Trump-Era Prosecutor**\
+`The Democratic-linked lawyer was accused of lying about his clients to the F.B.I. when he passed on a tip about possible connections between Donald J. Trump and Russia.`\
 https://nytimes.com/2022/05/31/us/politics/michael-sussmann-durham-fbi.html?searchResultPosition=1
 
 **During the Omicron Wave, Death Rates Soared for Older People**\
