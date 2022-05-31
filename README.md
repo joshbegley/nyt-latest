@@ -26,15 +26,15 @@ https://nytimes.com/2022/05/31/business/dealbook/russia-embargo-oil-prices.html?
 `The economic toll of Russia’s war on Ukraine keeps widening, with price rises in Germany hitting a record and inflation in Estonia topping 20 percent.`\
 https://nytimes.com/2022/05/31/business/eurozone-inflation.html?searchResultPosition=7
 
+**Hungary’s oil embargo exemption is the latest sign of its leader’s affinity for Russia.**\
+`By Victoria Kim`\
+https://nytimes.com/2022/05/31/world/europe/hungary-oil-embargo-russia.html?searchResultPosition=8
+
 **Biden and Fed chair Powell are set to meet as inflation dogs the global economy.**\
 `Big risks threaten economic growth around the world as central banks try to bring prices under control.`\
-https://nytimes.com/2022/05/31/business/biden-powell-meeting-inflation.html?searchResultPosition=8
+https://nytimes.com/2022/05/31/business/biden-powell-meeting-inflation.html?searchResultPosition=9
 
 **Why Masks Work, but Mandates Haven’t**\
 `Why haven’t Covid mask mandates made much difference?`\
-https://nytimes.com/2022/05/31/briefing/masks-mandates-us-covid.html?searchResultPosition=9
-
-**Why the Police Took 78 Minutes to Stop the Uvalde Gunman**\
-`In the days since the shooting, questions have abounded about the response from law enforcement officers.`\
-https://nytimes.com/2022/05/31/podcasts/the-daily/uvalde-shooting-police-response.html?searchResultPosition=10
+https://nytimes.com/2022/05/31/briefing/masks-mandates-us-covid.html?searchResultPosition=10
 
