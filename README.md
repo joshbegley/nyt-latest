@@ -1,5 +1,5 @@
 **Outrage Over the Delay at Uvalde: ‘A Total Failure of Law Enforcement’**\
-`Readers harshly criticize the decision not to immediately confront the gunman. Also: A plea from Ukraine; the Southern Baptist scandal; fathers’ responsibility.`\
+`Readers harshly criticize the decision not to immediately confront the gunman. Also: A plea from Ukraine; the Southern Baptist scandal; fathers’ responsibilities.`\
 https://nytimes.com/2022/05/31/opinion/letters/uvalde-texas-police.html?searchResultPosition=1
 
 **‘Allinllachu.’ Google Translate Adds Quechua to Its Platform.**\
