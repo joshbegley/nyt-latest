@@ -1,4 +1,4 @@
-**‘Allinllachu.’ Google Translate Adds Quechua to its Platform**\
+**‘Allinllachu.’ Google Translate Adds Quechua to Its Platform.**\
 `The addition of one of the most widely spoken Indigenous languages in the Americas could help public servants and health workers connect with their communities. (And by the way, ‘allinllachu’ means hello.)`\
 https://nytimes.com/2022/05/31/world/americas/google-translate-quechua.html?searchResultPosition=1
 
