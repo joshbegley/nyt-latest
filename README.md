@@ -15,7 +15,7 @@ https://nytimes.com/interactive/2022/05/31/world/europe/oil-embargo-protests.htm
 https://nytimes.com/2022/05/31/dining/oishii-strawberry-drops-its-price.html?searchResultPosition=4
 
 **A Talk on Biltong and Other South African Delights**\
-`The Culinary Historians of New York will host a discussion on the foods of South African with the linguists Keri and Kelsi Matwick.`\
+`The Culinary Historians of New York will host a discussion on the foods and wines of South Africa with the linguists Keri and Kelsi Matwick.`\
 https://nytimes.com/2022/05/31/dining/south-african-food-talk.html?searchResultPosition=5
 
 **Taste the Rainbow This Pride Month**\
