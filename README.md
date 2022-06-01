@@ -1,4 +1,4 @@
-**Michelle Wie West Is Not Trying That Hard to Win the U.S. Women’s Open**\
+**At the U.S. Women’s Open, Michelle Wie West Reflects on an ‘Amazing Journey’**\
 `The golfer announced last week that she would play her last tournament for the foreseeable future at Pine Needles. “This week, I’m just soaking it all in,” she said.`\
 https://nytimes.com/2022/06/01/sports/golf/michelle-wie-west-us-open.html?searchResultPosition=1
 
