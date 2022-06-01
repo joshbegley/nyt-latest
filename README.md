@@ -11,7 +11,7 @@ https://nytimes.com/2022/06/01/opinion/patient-care-hospital-errors.html?searchR
 https://nytimes.com/2022/06/01/world/europe/ukraine-russia-losses-east.html?searchResultPosition=3
 
 **Ruger shareholders vote for a study of gunmaker’s impact on human rights.**\
-`It’s not clear whether Ruger, one of a small number of public gun manufacturers, will implement the nonbinding proposal.`\
+`It’s not clear whether Ruger, one of a small number of public gun manufacturers, will follow the nonbinding proposal.`\
 https://nytimes.com/2022/06/01/business/ruger-shareholders-vote.html?searchResultPosition=4
 
 **Watch Live: Verdict Reached in the Johnny Depp-Amber Heard Trial**\
