@@ -4,7 +4,7 @@ https://nytimes.com/2022/06/01/sports/baseball/college-world-series-tennessee-ok
 
 **Kim Kardashian’s New Skin Care Line Is Not for Quitters**\
 `The nine-step beauty regimen mirrors her elaborate daily routine.`\
-https://nytimes.com/2022/06/01/style/kim-kardashians-new-skin-care-line-is-not-for-quitters.html?searchResultPosition=2
+https://nytimes.com/2022/06/01/style/kim-kardashian-skkn-skin-care-line.html?searchResultPosition=2
 
 **The Next Battleground for Gig Worker Labor Laws: Massachusetts**\
 `Uber and Lyft are pushing a ballot measure that would bar their drivers from full employment status, but a court could throw it out.`\
