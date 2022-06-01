@@ -14,8 +14,8 @@ https://nytimes.com/2022/06/01/arts/depp-heard-trial.html?searchResultPosition=3
 `Eva Mireles’s husband was an officer with the school district’s Police Department. But he was not allowed to enter the place where his wife and her students were under attack.`\
 https://nytimes.com/2022/06/01/us/uvalde-shooting.html?searchResultPosition=4
 
-**Several Shot and Some Are Killed in Attack at Tulsa Medical Building, Police Say**\
-`The assailant was dead, but it was unclear if the police had shot him or he had shot himself, officials said.`\
+**Four People, Including Gunman, Are Killed in Attack at Tulsa Medical Building, Police Say**\
+`It was unclear if the police had shot the gunman or if he had shot himself, officials said.`\
 https://nytimes.com/2022/06/01/us/tulsa-shooting-st-francis-hospital.html?searchResultPosition=5
 
 **The Age of ‘Too Far’**\
