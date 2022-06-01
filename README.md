@@ -1,5 +1,5 @@
 **Sarah Palin’s Bid for New Libel Trial Against The Times Is Denied**\
-`A judge ruled that Ms. Palin failed to introduce “even a speck” of evidence to prove that the newspaper defamed her in a 2017 editorial that mistakenly connected her political rhetoric with a mass shooting.`\
+`A judge ruled that Ms. Palin failed to introduce “even a speck” of evidence to prove the newspaper defamed her in a 2017 editorial that mistakenly connected her political rhetoric with a mass shooting.`\
 https://nytimes.com/2022/05/31/business/sarah-palin-new-york-times-libel.html?searchResultPosition=1
 
 **Quotation of the Day: Allinllachu, World: Quechua Joins Google Translate**\
