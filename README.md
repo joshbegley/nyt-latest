@@ -14,7 +14,7 @@ https://nytimes.com/2022/05/31/pageoneplus/corrections-june-1-2022.html?searchRe
 `The 47-year-old man frequently swam into a lake near a disc golf course to retrieve stray discs and sell them, a park official said.`\
 https://nytimes.com/2022/05/31/us/alligator-kills-florida-man-retrieving-frisbees-in-lake-officials-say.html?searchResultPosition=4
 
-**U.S. Will Send More Advanced Rocket Systems to Ukraine, Biden Says**\
-`In an Op-Ed, the president said such systems would enable Ukraine to “fight on the battlefield and be in the strongest possible position at the negotiating table.”`\
+**U.S. to Send Ukraine $700 Million in Military Aid, Including Advanced Rockets**\
+`A senior administration official said the rocket system was provided only after direct assurances by Ukraine’s leaders that they would not use it against targets in Russian territory.`\
 https://nytimes.com/2022/05/31/us/politics/biden-ukraine-rockets.html?searchResultPosition=5
 
