@@ -7,7 +7,7 @@ https://nytimes.com/2022/06/01/theater/amy-adams-glass-menagerie.html?searchResu
 https://nytimes.com/2022/06/01/nyregion/autism-child-violence.html?searchResultPosition=2
 
 **40,000 Fake Tickets at the Champions League Final? It Was Really 2,589.**\
-`The French authorities blamed tens of thousands of fake tickets for the chaos before Saturday’s Champions League final. The official count was far lower.`\
+`The French authorities blamed tens of thousands of counterfeit tickets for the chaos before Saturday’s Champions League final. The official count was far lower.`\
 https://nytimes.com/2022/06/01/sports/soccer/champions-league-final-tickets.html?searchResultPosition=3
 
 **At Dakar’s Biennale, the City Itself Is the Most Colorful Canvas**\
