@@ -16,7 +16,7 @@ https://nytimes.com/2022/06/01/briefing/russia-luhansk-shanghai-reopening.html?s
 
 **Through Weeks of Depp v. Heard, Dior Stood By**\
 `Luxury brands were once notoriously averse to controversy, but the verdict is still out on whether Mr. Depp’s case hurt or helped sales.`\
-https://nytimes.com/2022/06/01/style/johnny-depp-amber-heard-dior.html?searchResultPosition=5
+https://nytimes.com/2022/06/01/style/johnny-depp-dior-amber-heard.html?searchResultPosition=5
 
 **Ukraine’s Heavy Losses**\
 `Ukrainian forces struggle as Russia gains ground in the east.`\
