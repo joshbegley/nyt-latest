@@ -34,7 +34,7 @@ https://nytimes.com/2022/06/01/us/politics/young-kim-california-primary-republic
 `Suddenly famous for being the commissioner of a fabulously dysfunctional fantasy football league, Trout also has Los Angeles on track for its first playoff appearance since 2014.`\
 https://nytimes.com/2022/06/01/sports/baseball/mike-trout-angels-fantasy-football.html?searchResultPosition=9
 
-**They Carry the Hopes of a Nation**\
-`Competing for a place in a World Cup already comes with pressure, but Ukraine’s players have not shied away from what getting there would mean to a country under siege. They’re one game away.`\
+**Ukraine Inches Closer to World Cup, Carrying Hopes of a Nation at War**\
+`Ukraine’s players have not shied away from what earning a place in the World Cup would mean to their country. After beating Scotland, they’re one win away.`\
 https://nytimes.com/2022/06/01/sports/soccer/ukraine-scotland-world-cup-playoff.html?searchResultPosition=10
 
