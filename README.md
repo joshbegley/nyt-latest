@@ -22,7 +22,7 @@ https://nytimes.com/2022/06/01/insider/a-cartoon-producer-turned-war-reporter.ht
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2022/06/01/crosswords/spelling-bee-forum.html?searchResultPosition=6
 
-**‘We Are About to Lose a Lot More Life and Limbs’: Ukraine Girds for a Wave of Amputees**\
+**‘We Are About to Lose a Lot More Lives and Limbs’: Ukraine Girds for a Wave of Amputees**\
 `The war in Ukraine is pushing the country to expand its prosthetics industry amid fears of looming shortages.`\
 https://nytimes.com/2022/06/01/world/europe/ukraine-war-prosthetics.html?searchResultPosition=7
 
