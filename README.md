@@ -1,4 +1,4 @@
-**Making Art OnTop of the World**\
+**Making Art on Top of the World**\
 `Near the Arctic Circle, Shuvinai Ashoona, a star of the Venice Biennale, and her community of Inuit artists refuse to let isolation stand in their way.`\
 https://nytimes.com/2022/06/01/arts/design/shuvinai-ashoona-inuit-artist.html?searchResultPosition=1
 
