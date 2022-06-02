@@ -8,7 +8,7 @@ https://nytimes.com/2022/06/02/podcasts/still-processing-montell-jordan.html?sea
 
 **Not everyone is cheering the queen’s milestone. Some would rather abolish the monarchy.**\
 `An anti-monarchy conference will coincide with events celebrating Queen Elizabeth II’s Platinum Jubilee.`\
-https://nytimes.com/2022/06/02/world/europe/uk-royal-family-republicans.html?searchResultPosition=3
+https://nytimes.com/2022/06/02/world/europe/anti-monarchy-queen.html?searchResultPosition=3
 
 **Édouard Louis, Miserable in the Spotlight**\
 `The French writer played himself onstage and hated the experience, according to a new work he developed with the Swiss director Milo Rau. This time around, there’s an actor in the role.`\
