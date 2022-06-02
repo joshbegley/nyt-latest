@@ -1,5 +1,5 @@
 **Watch Live: Queen Elizabeth II’s Platinum Jubilee Celebration**\
-`Queen Elizabeth celebrates 70 years on the British throne with four days of festivities that begin with a military parade, known as Trooping the Colour, and the royal family’s appearance on the balcony of Buckingham Palace.`\
+`Queen Elizabeth II celebrates 70 years on the British throne with four days of festivities that begin with a military parade, known as Trooping the Color, and the royal family’s appearance on the balcony of Buckingham Palace.`\
 https://nytimes.com/video/world/europe/100000008377226/queen-elizabeth-jubilee.html?searchResultPosition=1
 
 **‘What Was the Point?’: Freed After 9 Years, Refugees Learn to Live Again**\
