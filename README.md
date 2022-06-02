@@ -1,40 +1,40 @@
+**In Photos: Queen Elizabeth II Celebrates Her Platinum Jubilee**\
+`The royal family gathered at Buckingham Palace to kick off a joyful commemorative weekend marking Elizabeth II’s 70 years as queen.`\
+https://nytimes.com/2022/06/02/world/europe/elizabeth-jubilee-photos.html?searchResultPosition=1
+
+**Nike Founder Phil Knight and a Dodgers Co-Owner Bid for Portland Trail Blazers**\
+`The bid by Knight and Alan Smolinisky, a partial owner of the Dodgers, tops $2 billion, according to people familiar with their proposal.`\
+https://nytimes.com/2022/06/02/sports/basketball/nike-phil-knight-dodgers-alan-smolinisky-portland-trail-blazers.html?searchResultPosition=2
+
 **New York Lawmakers Embrace New Funding Plan to Rescue Public Housing**\
 `The city’s public housing system, the largest in the nation, has become an emblem of disinvestment and deterioration. But a new deal could lead to needed repairs in 25,000 apartments.`\
-https://nytimes.com/2022/06/02/nyregion/nycha-housing-bill.html?searchResultPosition=1
+https://nytimes.com/2022/06/02/nyregion/nycha-housing-bill.html?searchResultPosition=3
 
 **‘The Phantom of the Open’ Review: ‘The World’s Worst Golfer’ Wins Laughs**\
 `Inspired by Maurice Flitcroft’s stunningly bad results at the 1976 British Open, this comedy plays with a genre in which underdogs so often triumph.`\
-https://nytimes.com/2022/06/02/movies/the-phantom-of-the-open-review-the-worlds-worst-golfer-wins-laughs.html?searchResultPosition=2
+https://nytimes.com/2022/06/02/movies/the-phantom-of-the-open-review-the-worlds-worst-golfer-wins-laughs.html?searchResultPosition=4
 
 **We’ve Got to Stop Requiring Parking Everywhere**\
 `Mandatory parking rules make housing more expensive. California’s legislature should undo them.`\
-https://nytimes.com/2022/06/02/opinion/california-parking.html?searchResultPosition=3
+https://nytimes.com/2022/06/02/opinion/california-parking.html?searchResultPosition=5
 
 **Billionaire Candidates and Their Wild Promises**\
 `In the L.A. race for mayor, Rick Caruso’s aggressive promises would be hard to keep.`\
-https://nytimes.com/2022/06/02/opinion/los-angeles-mayor-caruso.html?searchResultPosition=4
+https://nytimes.com/2022/06/02/opinion/los-angeles-mayor-caruso.html?searchResultPosition=6
 
 **‘Crimes of the Future’ Review: The Horror, the Horror**\
 `In his latest shocker, David Cronenberg prophetically reads the signs while Léa Seydoux performs surgeries on a beatific Viggo Mortensen.`\
-https://nytimes.com/2022/06/02/movies/crimes-of-the-future-review.html?searchResultPosition=5
+https://nytimes.com/2022/06/02/movies/crimes-of-the-future-review.html?searchResultPosition=7
 
 **Weekly Health Quiz: Anxiety, Coffee and Contrast Dyes**\
 `Test your knowledge of this week’s health news.`\
-https://nytimes.com/interactive/2022/06/02/well/live/02HealthQuiz-06022022.html?searchResultPosition=6
+https://nytimes.com/interactive/2022/06/02/well/live/02HealthQuiz-06022022.html?searchResultPosition=8
 
 **A Vineyard’s Comeback, 200 Years in the Making**\
 `In the 19th century, Clos de la Perrière was mentioned alongside Musigny and Chambertin as a great vineyard of Burgundy. Now the wines are excellent and getting better.`\
-https://nytimes.com/2022/06/02/dining/drinks/burgundy-clos-de-la-perriere-domaine-joliet.html?searchResultPosition=7
+https://nytimes.com/2022/06/02/dining/drinks/burgundy-clos-de-la-perriere-domaine-joliet.html?searchResultPosition=9
 
 **Why Canada Races on Gun Policy When America Crawls**\
 `The speed of policymaking in Canada, and its frequent deadlock in the U.S., may come down to the rules of their political systems.`\
-https://nytimes.com/2022/06/02/world/americas/canada-gun-buyback-parliament.html?searchResultPosition=8
-
-**Giraffes May Be Long-Necked for Fights, Not Just Food**\
-`Evolutionary theories said giraffes developed their height to get to better eats, but ancestors may have gained the advantage through head-butting battles.`\
-https://nytimes.com/2022/06/02/science/giraffe-neck-evolution.html?searchResultPosition=9
-
-**Police Say Man Who Killed 4 in Tulsa Targeted Doctor**\
-`The police chief said the gunman, who stormed a medical building in Tulsa, Okla., killed the doctor who performed his recent surgery because of continuing back pain. The gunman’s rifle was bought only hours before the attack, according to the police.`\
-https://nytimes.com/video/us/100000008379804/tulsa-hospital-shooting-gunman.html?searchResultPosition=10
+https://nytimes.com/2022/06/02/world/americas/canada-gun-buyback-parliament.html?searchResultPosition=10
 
