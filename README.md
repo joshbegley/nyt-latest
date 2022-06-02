@@ -1,5 +1,5 @@
 **Covid shots for children younger than 5 could be available as soon as June 21, a White House official says.**\
-`Dr. Ashish Jha, President Biden’s coronavirus response coordinator, shared the timeline in anticipation that federal regulators will soon authorize coronavirus vaccines for children younger than 5,`\
+`Dr. Ashish Jha, President Biden’s coronavirus response coordinator, shared the timeline in anticipation that federal regulators will soon authorize coronavirus vaccines for children younger than 5.`\
 https://nytimes.com/2022/06/02/us/politics/children-covid-vaccine.html?searchResultPosition=1
 
 **Prince Andrew will skip a Jubilee event after testing positive for the coronavirus.**\
