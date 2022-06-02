@@ -7,7 +7,7 @@ https://nytimes.com/2022/06/02/briefing/ukraine-tulsa-spelling-bee.html?searchRe
 https://nytimes.com/video/us/100000008380377/covid-vaccine-young-children.html?searchResultPosition=2
 
 **Social Security and Medicare funds improved during the pandemic, but the long term remains dire.**\
-`By Tara Siegel Bernard and Margot Sanger-Katz`\
+`The government released its annual reports on the financial health of the programs.`\
 https://nytimes.com/2022/06/02/business/social-security-trust-fund.html?searchResultPosition=3
 
 **What’s in Our Queue? Tiny Desk Concerts and More**\
