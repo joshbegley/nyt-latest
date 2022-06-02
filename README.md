@@ -22,8 +22,8 @@ https://nytimes.com/2022/06/02/business/dealbook/sandberg-leaves-meta.html?searc
 `“This Is Going to Hurt,” a dramedy starring Ben Whishaw, kindled debate in Britain about hospital care for pregnant women and the pressures on doctors.`\
 https://nytimes.com/2022/06/02/arts/television/this-is-going-to-hurt.html?searchResultPosition=6
 
-**Saudis expected to seek an increase in oil supply as major producers meet.**\
-`Saudi officials are juggling ties with the United States and Russia as oil prices have been rising.`\
+**OPEC Plus agrees to a bigger increase in oil supply.**\
+`The oil producers said they would raise by 50 percent a planned increase in production as oil prices have been rising.`\
 https://nytimes.com/2022/06/02/business/opec-oil-saudi.html?searchResultPosition=7
 
 **Homes for Sale in New York City**\
