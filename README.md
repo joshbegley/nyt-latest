@@ -24,7 +24,7 @@ https://nytimes.com/2022/06/02/books/review/11-new-books-we-recommend-this-week.
 
 **A Georgia Mystery: How Many Democrats Voted in the G.O.P. Primary?**\
 `Donald Trump has pointed to so-called crossover voters as a significant factor in his chosen candidates’ heavy losses. Some Democrats, too, embrace the theory. But the reality seems more complicated.`\
-https://nytimes.com/2022/06/02/us/politics/georgia-primary-crossover-democrats.html?searchResultPosition=7
+https://nytimes.com/2022/06/02/us/politics/georgia-primary-gop-democrats.html?searchResultPosition=7
 
 **Queen Elizabeth Celebrates 70 Years on the Throne, as Britons Honor Her**\
 `The dysfunction of the royal family was pushed temporarily offstage on Thursday by a joyful celebration of its 96-year-old matriarch, whose reign has been an anchor for her country.`\
