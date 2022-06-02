@@ -7,7 +7,7 @@ https://nytimes.com/2022/06/02/podcasts/the-daily/uvalde-buffalo-gun-control-cal
 https://nytimes.com/2022/06/02/podcasts/still-processing-montell-jordan.html?searchResultPosition=2
 
 **Not everyone is cheering the queen’s milestone. Some would rather abolish the monarchy.**\
-`By Stephen Castle`\
+`An anti-monarchy conference will coincide with events celebrating Queen Elizabeth II’s Platinum Jubilee.`\
 https://nytimes.com/2022/06/02/world/europe/uk-royal-family-republicans.html?searchResultPosition=3
 
 **Édouard Louis, Miserable in the Spotlight**\
