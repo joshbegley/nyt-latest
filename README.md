@@ -1,10 +1,10 @@
+**A Vineyard’s Comeback, 200 Years in the Making**\
+`In the 19th century, Clos de la Perrière was mentioned alongside Musigny and Chambertin as a great vineyard of Burgundy. Now the wines are excellent and getting better.`\
+https://nytimes.com/2022/06/02/dining/drinks/burgundy-clos-de-la-perriere-domaine-joliet.html?searchResultPosition=1
+
 **Why Canada Races on Gun Policy When America Crawls**\
 `The speed of policymaking in Canada, and its frequent deadlock in the U.S., may come down to the rules of their political systems.`\
-https://nytimes.com/2022/06/02/world/americas/canada-gun-buyback-parliament.html?searchResultPosition=1
-
-**Biden Will Urge Lawmakers to Pass Gun Laws in Address on Mass Shootings**\
-`President Biden has said in the past that he favors reinstating the ban on assault weapons and requiring universal background checks.`\
-https://nytimes.com/2022/06/02/us/politics/biden-guns-speech.html?searchResultPosition=2
+https://nytimes.com/2022/06/02/world/americas/canada-gun-buyback-parliament.html?searchResultPosition=2
 
 **Giraffes May Be Long-Necked for Fights, Not Just Food**\
 `Evolutionary theories said giraffes developed their height to get to better eats, but ancestors may have gained the advantage through head-butting battles.`\
