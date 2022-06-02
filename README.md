@@ -6,7 +6,7 @@ https://nytimes.com/2022/06/02/business/economy/ford-uaw-jobs.html?searchResultP
 `The high-profile executive’s decision to leave Meta is also a moment to reflect on the impact of her best-selling book and philosophy about success in the workplace.`\
 https://nytimes.com/2022/06/02/business/sheryl-sandberg-lean-in.html?searchResultPosition=2
 
-**Now It’s Türkiye, Not Turkey, at the U.N.**\
+**Now It’s Türkiye, Not Turkey, at the United Nations**\
 `The Turkish government wants the rest of the world to use the country’s own name for itself, and lose the association with a certain bird.`\
 https://nytimes.com/2022/06/02/world/europe/turkiye-turkey-united-nations.html?searchResultPosition=3
 
