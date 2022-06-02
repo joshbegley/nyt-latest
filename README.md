@@ -1,40 +1,40 @@
+**Watch Live: Biden Delivers Remarks on Gun Control**\
+`President Biden is expected to urge lawmakers to pass new gun control measures, in the wake of the recent mass shootings in Buffalo, N.Y., Uvalde, Texas, and Tulsa, Okla.`\
+https://nytimes.com/video/us/politics/100000008379890/biden-gun-control-speech-live.html?searchResultPosition=1
+
+**The Greatest Life Hacks in the World (for Now)**\
+`Practical bits of advice that will change everything!`\
+https://nytimes.com/2022/06/02/opinion/david-brooks-life-hacks.html?searchResultPosition=2
+
+**Inside the Audition for Democrats’ Next Crusading Attorney General**\
+`In cerulean-blue Massachusetts, candidates for the state’s top law enforcement job are seeking to demonstrate their faith in progressive ideals. But the race could be decided on other grounds.`\
+https://nytimes.com/2022/06/02/us/politics/massachusetts-attorney-general-democrats.html?searchResultPosition=3
+
+**The Perverse Politics of Inflation**\
+`Voters blame presidents for things they can’t control.`\
+https://nytimes.com/2022/06/02/opinion/inflation-biden.html?searchResultPosition=4
+
 **Gilberto Rodríguez Orejuela, Colombian Drug Lord, Dies at 83**\
 `Known as “the Chess Player,” he ran the Cali cartel’s cocaine empire with a businesslike approach until his extradition to the United States. He died in prison.`\
-https://nytimes.com/2022/06/02/us/gilberto-rodriguez-orejuela-dead.html?searchResultPosition=1
+https://nytimes.com/2022/06/02/us/gilberto-rodriguez-orejuela-dead.html?searchResultPosition=5
 
 **Johnny Depp’s Win in Court Could Embolden Others, Lawyers Say**\
 `The actor’s victory against his ex-wife Amber Heard in one of the highest profile defamation cases to go to trial could inspire others to try their luck with juries.`\
-https://nytimes.com/2022/06/02/arts/depp-metoo-defamation.html?searchResultPosition=2
+https://nytimes.com/2022/06/02/arts/depp-metoo-defamation.html?searchResultPosition=6
 
 **Paul Gunther, Keeper of a Cultural Flame, Dies at 65**\
 `In New York City, he helped engineer behind-the-scenes rescues of monuments, murals and museums and the preservation of Times Square’s dazzling lights.`\
-https://nytimes.com/2022/06/02/arts/paul-gunther-dead.html?searchResultPosition=3
+https://nytimes.com/2022/06/02/arts/paul-gunther-dead.html?searchResultPosition=7
 
 **Review: In ‘A Kid Like Rishi,’ Hazy Uncertainty Shrouds a Teen’s Killing**\
 `A cast of three recount the gripping drama of the death of a teenager by the Dutch police in 2012.`\
-https://nytimes.com/2022/06/02/theater/a-kid-like-rishi-review.html?searchResultPosition=4
+https://nytimes.com/2022/06/02/theater/a-kid-like-rishi-review.html?searchResultPosition=8
 
 **As War Rages Into Its 100th Day, Russia Now Controls a Fifth of Ukraine**\
 `While President Volodymyr Zelensky acknowledged Russian gains, Ukrainian forces pressed a counteroffensive in the south.`\
-https://nytimes.com/2022/06/02/world/europe/ukraine-russia-donbas-zelensky.html?searchResultPosition=5
+https://nytimes.com/2022/06/02/world/europe/ukraine-russia-donbas-zelensky.html?searchResultPosition=9
 
 **The Amber Heard Verdict Was a Travesty. Others Will Follow.**\
 `Abuse victims now have another reason to fear coming forward.`\
-https://nytimes.com/2022/06/02/opinion/amber-heard-johnny-depp-verdict.html?searchResultPosition=6
-
-**Marion Barber III, Bruising Running Back for Cowboys, Dies at 38**\
-`Nicknamed “Marion the Barbarian,” he had a nose for the end zone, leading the N.F.C. in touchdowns in 2006. But his post-playing years were troubled.`\
-https://nytimes.com/2022/06/02/sports/football/marion-barber-iii-dead.html?searchResultPosition=7
-
-**Your Thursday Evening Briefing**\
-`Here’s what you need to know at the end of the day.`\
-https://nytimes.com/2022/06/02/briefing/ukraine-tulsa-spelling-bee.html?searchResultPosition=8
-
-**Covid Shots for Children Under 5 Could Be Available by June 21**\
-`Dr. Ashish Jha, the White House Covid-19 response coordinator, said preparations are contingent on federal regulatory action.`\
-https://nytimes.com/video/us/100000008380377/covid-vaccine-young-children.html?searchResultPosition=9
-
-**Social Security and Medicare funds improved during the pandemic, but the long term remains dire.**\
-`The government released its annual reports on the financial health of the programs.`\
-https://nytimes.com/2022/06/02/business/social-security-trust-fund.html?searchResultPosition=10
+https://nytimes.com/2022/06/02/opinion/amber-heard-johnny-depp-verdict.html?searchResultPosition=10
 
