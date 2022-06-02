@@ -1,40 +1,40 @@
-**Watch Live: Queen Elizabeth II’s Platinum Jubilee Celebration**\
-`Queen Elizabeth II celebrates 70 years on the British throne with four days of festivities that begin with a military parade, known as Trooping the Color, and the royal family’s appearance on the balcony of Buckingham Palace.`\
-https://nytimes.com/video/world/europe/100000008377226/queen-elizabeth-jubilee.html?searchResultPosition=1
+**A Hilltop Villa in Italy With a Strong Foundation**\
+`When Marco Pasanella inherited his father’s estate in Tuscany, he and his wife sought to make it theirs, while preserving the spirit of the past.`\
+https://nytimes.com/2022/06/02/realestate/luxury/villa-cannizzaro-tuscany.html?searchResultPosition=1
 
-**‘What Was the Point?’: Freed After 9 Years, Refugees Learn to Live Again**\
-`Australia suddenly released migrants held under its tough approach to asylum seekers. While the worst of their ordeal is over, their future remains precarious.`\
-https://nytimes.com/2022/06/02/world/australia/australia-refugees-manus-park-hotel.html?searchResultPosition=2
+**Tips for Summer Living**\
+`Advice from an expert about choosing outdoor fabrics, growing bamboo, settling on ceiling fans and finding stylish bird feeders.`\
+https://nytimes.com/2022/06/02/arts/design/tips-for-summer-living.html?searchResultPosition=2
 
-**Silver, Gold and Diamond: The queen’s past jubilees, at a glance.**\
-`Celebrations of Queen Elizabeth II’s milestones have been national moments of reflection and celebration.`\
-https://nytimes.com/2022/06/02/world/europe/queen-elizabeth-past-jubilees.html?searchResultPosition=3
+**She Created SZA’s Floral Bikini. Could She Help Me With a Centerpiece?**\
+`A reporter learns about flower arranging from a botanical artist who wields a paintbrush.`\
+https://nytimes.com/2022/06/02/arts/design/kristen-alpaugh-flower-arranging.html?searchResultPosition=3
 
-**Queen Elizabeth’s Platinum Jubilee: Seven Decades in Photos**\
-`By Mark Landler and Mona Boshnaq`\
-https://nytimes.com/2022/06/02/world/europe/queen-elizabeth-platinum-jubilee-photos.html?searchResultPosition=4
+**Gardens of Earthly Delights**\
+`New books on river scavenging, Dumbarton Oaks, eccentric English landscapes and a place called Lotusland.`\
+https://nytimes.com/2022/06/02/arts/design/gardens-of-earthly-delights.html?searchResultPosition=4
 
-**A Disturbing New Pattern in Mass Shootings: Young Assailants**\
-`Six of the nine deadliest mass shootings in the United States since 2018 were by people who were 21 or younger, a shift from earlier decades.`\
-https://nytimes.com/2022/06/02/us/politics/mass-shootings-young-men-guns.html?searchResultPosition=5
+**A Panorama of Design**\
+`Some highlights of Milan Design Week.`\
+https://nytimes.com/2022/06/02/arts/design/milan-design-week.html?searchResultPosition=5
 
-**Doctors Transplant 3-D Printed Ear Made of Human Cells**\
-`3DBio Therapeutics, a biotech company in Queens, said it had for the first time used 3-D printing to make a body part with a patient’s own cells.`\
-https://nytimes.com/2022/06/02/health/ear-transplant-3d-printer.html?searchResultPosition=6
+**A Brooklyn Home Designed With Fun in Mind**\
+`To transform his Williamsburg townhouse into a child’s pleasure palace, an architect consulted his own early memories (treehouses were involved).`\
+https://nytimes.com/2022/06/02/realestate/brooklyn-townhouse-jun-aizaki.html?searchResultPosition=6
 
-**When the Words Drop, These Journalists Will Be Ready**\
-`A team at The Times will be covering the final round of the 94th annual Scripps Spelling Bee with real-time reporting.`\
-https://nytimes.com/2022/06/02/insider/when-the-words-drop-these-journalists-will-be-ready.html?searchResultPosition=7
+**As the Baby Formula Shortage Drags On, Moms Are Pumping for the Cause**\
+`New York mothers with an excess supply of breast milk are donating to milk banks, as well as through informal channels, to help parents struggling to feed their babies amid the crisis.`\
+https://nytimes.com/2022/06/02/nyregion/baby-formula-shortage-breast-milk.html?searchResultPosition=7
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/06/02/crosswords/spelling-bee-forum.html?searchResultPosition=8
+**Exploring the Classic Co-ops of Brooklyn With Less Than $800,000 to Spend. Which Home Did They Choose?**\
+`Alarmed by horror stories of construction defects in new buildings, and limited to a 10 percent down payment, a young couple tried to find a two-bedroom in decent condition. Here’s what they saw.`\
+https://nytimes.com/interactive/2022/06/02/realestate/02hunt-rafalow.html?searchResultPosition=8
 
-**How to Watch Queen Elizabeth II’s Platinum Jubilee Events**\
-`Britain is honoring the monarch’s 70 years on the throne with four days of events.`\
-https://nytimes.com/2022/06/02/world/europe/queen-elizabeth-platinum-jubilee-how-to-watch.html?searchResultPosition=9
+**They Fled Danger for New York. When Will Their New Lives Start?**\
+`Nothing about moving to New York is easy — especially for those fleeing Ukraine and Afghanistan. But locals do what they can to help.`\
+https://nytimes.com/2022/06/02/magazine/ukraine-afghanistan-refugees-new-york.html?searchResultPosition=9
 
-**A medical worker rushed to escape from a ‘labyrinth’ of offices in Tulsa.**\
-`Gannon Gill said the sound of gunfire interrupted an appointment with a patient. He led his patient to safety after a deadly shooting at a medical facility in Tulsa, Okla.`\
-https://nytimes.com/2022/06/02/us/witness.html?searchResultPosition=10
+**Beach House, Meet Ocean View**\
+`A family’s new home in California was right on the shore, but only a major renovation would make the waves really visible.`\
+https://nytimes.com/2022/06/02/arts/design/santa-cruz-beach-house-renovation.html?searchResultPosition=10
 
