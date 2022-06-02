@@ -1,6 +1,6 @@
 **West of Malibu**\
 `Michael Lieberman’s puzzle wants you to look both ways.`\
-https://nytimes.com/2022/06/01/crosswords/west-of-malibu.html?searchResultPosition=1
+https://nytimes.com/2022/06/01/crosswords/daily-puzzle-2022-06-02.html?searchResultPosition=1
 
 **What Are ‘Artillery Rockets,’ and Why Is the U.S. Sending Them to Ukraine?**\
 `An explanation of the alphabet soup of weapons the White House will soon send to the Ukrainian military.`\
