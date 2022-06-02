@@ -1,6 +1,6 @@
 **Ford plans 6,000 new union jobs in three Midwestern states.**\
 `The automaker said the move would further its electric-vehicle goals. It may also defuse tensions with the U.A.W. ahead of contract talks next year.`\
-https://nytimes.com/2022/06/02/business/economy/ford-uaw-jobs.html?searchResultPosition=1
+https://nytimes.com/2022/06/02/business/economy/ford-union-jobs.html?searchResultPosition=1
 
 **What Sheryl Sandberg’s ‘Lean In’ Has Meant to Women**\
 `The high-profile executive’s decision to leave Meta is also a moment to reflect on the impact of her best-selling book and philosophy about success in the workplace.`\
