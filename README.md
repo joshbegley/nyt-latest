@@ -12,7 +12,7 @@ https://nytimes.com/2022/06/02/obituaries/george-shapiro-dead.html?searchResultP
 
 **A Bigger Base Is Common in Softball. So Why Not in College?**\
 `From recreational leagues to the Olympics, softball officials look to the double base to reduce collisions at first base. The college game is the major holdout.`\
-https://nytimes.com/2022/06/02/sports/a-bigger-base-is-common-in-softball-so-why-not-in-college.html?searchResultPosition=4
+https://nytimes.com/2022/06/02/sports/college-softball-safety-base.html?searchResultPosition=4
 
 **House Panel Examining Jared Kushner Over Saudi Investment in New Firm**\
 `The House Oversight Committee is seeking documents related to the $2 billion investment by a Saudi fund in the private equity firm started by Mr. Kushner, Donald Trump’s son-in-law and former adviser.`\
