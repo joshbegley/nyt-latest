@@ -1,40 +1,40 @@
+**Who will be on the Buckingham Palace balcony, and who won’t be.**\
+`By Mark Landler`\
+https://nytimes.com/2022/06/02/world/europe/who-will-be-on-the-buckingham-palace-balcony-and-who-wont-be.html?searchResultPosition=1
+
 **Do Swedish People Feed Their Guests?**\
 `After a Reddit post brought an unusual Swedish dining custom to light, Nordic people are trying to explain why they won’t share the pickled herring.`\
-https://nytimes.com/2022/06/02/world/europe/sweden-feeding-guests-dinner.html?searchResultPosition=1
+https://nytimes.com/2022/06/02/world/europe/sweden-feeding-guests-dinner.html?searchResultPosition=2
 
 **‘The Score’ Review: Songs in the Key of Heist**\
 `The singer-songwriter Johnny Flynn stars alongside Will Poulter and Naomi Ackie in an understated musical about two small-time crooks and a budding romance.`\
-https://nytimes.com/2022/06/02/movies/the-score-review.html?searchResultPosition=2
+https://nytimes.com/2022/06/02/movies/the-score-review.html?searchResultPosition=3
 
 **‘Freakscene: The Story of Dinosaur Jr.’ Review: A Volatile Band**\
 `This alt-rock trio is made up of three soft-spoken guys who generated a big noise, learned to hate one another and then made peace.`\
-https://nytimes.com/2022/06/02/movies/freakscene-the-story-of-dinosaur-jr-review.html?searchResultPosition=3
+https://nytimes.com/2022/06/02/movies/freakscene-the-story-of-dinosaur-jr-review.html?searchResultPosition=4
 
 **‘Benediction’ Review: A Poet’s Life, in Love and War**\
 `Terence Davies’s latest film is a biography of Siegfried Sassoon, whose writing about World War I changed British literature.`\
-https://nytimes.com/2022/06/02/movies/benediction-review.html?searchResultPosition=4
+https://nytimes.com/2022/06/02/movies/benediction-review.html?searchResultPosition=5
 
 **‘18½’ Review: Watergate, Through a Fog**\
 `This political thriller creates a fictional account of a lost Watergate tape by a White House typist.`\
-https://nytimes.com/2022/06/02/movies/18-and-a-half-review.html?searchResultPosition=5
+https://nytimes.com/2022/06/02/movies/18-and-a-half-review.html?searchResultPosition=6
 
 **‘Eiffel’ Review: Paris is for Lovers**\
 `Gustave Eiffel, the man behind France’s most well-known landmark, is a passionate lover first, and an engineer second in this tedious 19th century romance.`\
-https://nytimes.com/2022/06/02/movies/eiffel-review.html?searchResultPosition=6
+https://nytimes.com/2022/06/02/movies/eiffel-review.html?searchResultPosition=7
 
 **‘Maika: The Girl From Another Galaxy’ Review: Boy Meets Alien**\
 `This children’s adventure movie from Vietnam is like “E.T.”—but sloppier and more eccentric.`\
-https://nytimes.com/2022/06/02/movies/maika-the-girl-from-another-galaxy-review.html?searchResultPosition=7
+https://nytimes.com/2022/06/02/movies/maika-the-girl-from-another-galaxy-review.html?searchResultPosition=8
 
 **‘Miracle’ Review: A Spiritual Investigation**\
 `In this drama set in Romania, when an incident occurs with a novice from a rural convent, a detective seeks answers.`\
-https://nytimes.com/2022/06/02/movies/miracle-review.html?searchResultPosition=8
+https://nytimes.com/2022/06/02/movies/miracle-review.html?searchResultPosition=9
 
 **‘Fire Island’ Review: Oh, the Summer Nights**\
 `The quips are almost as hot as the sexual tension in Andrew Ahn and Joel Kim Booster’s loosely paced but endearing romantic comedy.`\
-https://nytimes.com/2022/06/02/movies/fire-island-review.html?searchResultPosition=9
-
-**‘Hollywood Stargirl’ Review: Starting Anew in La La Land**\
-`Julia Hart’s bubbly sequel picks up the story in summertime and reframes around Stargirl, a character who in the first movie was auxiliary by design.`\
-https://nytimes.com/2022/06/02/movies/hollywood-stargirl-review.html?searchResultPosition=10
+https://nytimes.com/2022/06/02/movies/fire-island-review.html?searchResultPosition=10
 
