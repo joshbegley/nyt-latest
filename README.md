@@ -2,7 +2,7 @@
 `Failure to qualify for Qatar has condemned Nigeria to a humbling summer instead of months of World Cup hype. Then there’s the fate of its famous jersey.`\
 https://nytimes.com/2022/06/02/sports/soccer/nigeria-ecuador-world-cup.html?searchResultPosition=1
 
-**If cleared,Covid shots for children under 5 could be available as soon as June 21, a White House official says.**\
+**If cleared, Covid shots for children under 5 could be available as soon as June 21, a White House official says.**\
 `Dr. Ashish Jha, President Biden’s coronavirus response coordinator, shared the timeline in anticipation that federal regulators will soon authorize coronavirus vaccines for children younger than 5.`\
 https://nytimes.com/2022/06/02/us/politics/children-covid-vaccine.html?searchResultPosition=2
 
