@@ -22,8 +22,8 @@ https://nytimes.com/2022/06/02/world/europe/ukraine-war-museum.html?searchResult
 `A planet of women is the eye-popping setting for this psychedelic movie, in which a mother and her daughter try to find an escaped criminal named Kate Bush.`\
 https://nytimes.com/2022/06/02/movies/after-blue-dirty-paradise-review.html?searchResultPosition=6
 
-**Harvey Weinstein’s Sex Crimes Conviction Is Upheld by New York Court**\
-`Mr. Weinstein, who is also awaiting trial in Los Angeles, is serving a 23-year sentence. His conviction was among the most notable of the #MeToo movement.`\
+**Weinstein’s Conviction for Sex Crimes That Set Off #MeToo Is Upheld**\
+`New York judges approved testimony from women who said they were abused by Harvey Weinstein. The disgraced producer, awaiting another trial in Los Angeles, is serving 23 years.`\
 https://nytimes.com/2022/06/02/nyregion/harvey-weinstein-conviction-appeal.html?searchResultPosition=7
 
 **The Fed’s vice chair says a coming pause in rate increases is unlikely.**\
