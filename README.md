@@ -31,7 +31,7 @@ https://nytimes.com/2022/06/02/world/europe/queen-elizabeth-platinum-jubilee-how
 https://nytimes.com/2022/06/02/us/witness.html?searchResultPosition=8
 
 **11 Parents on How They Want Kids to Learn About History, Racism and Gender**\
-`The participants1 said that students should learn about the good and the bad in American history and wrestled with the idea of facts versus interpretation.`\
+`The participants said that students should learn about the good and the bad in American history and wrestled with the idea of facts versus interpretation.`\
 https://nytimes.com/interactive/2022/06/02/opinion/focus-group-racism-history-school.html?searchResultPosition=9
 
 **How to Watch the Scripps National Spelling Bee**\
