@@ -1,5 +1,5 @@
 **As the royals emerge on the Buckingham Palace balcony, it’s the ultimate photo op.**\
-`Elizabeth II was flanked by other members of the royal family, like a summer bouquet in many shades of blue, white and red,`\
+`Elizabeth II was flanked by other members of the royal family, like a summer bouquet in many shades of blue, white and red.`\
 https://nytimes.com/2022/06/02/world/europe/jubilee-balcony-outfits.html?searchResultPosition=1
 
 **Who will be on the Buckingham Palace balcony, and who won’t be.**\
