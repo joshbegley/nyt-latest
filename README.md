@@ -1,6 +1,6 @@
 **As the royals emerge on the Buckingham Palace balcony, it’s the ultimate photo op.**\
-`By Vanessa Friedman`\
-https://nytimes.com/2022/06/02/world/europe/as-the-royals-emerge-on-the-buckingham-palace-balcony-its-the-ultimate-photo-op.html?searchResultPosition=1
+`Elizabeth II was flanked by other members of the royal family, like a summer bouquet in many shades of blue, white and red,`\
+https://nytimes.com/2022/06/02/world/europe/jubilee-balcony-outfits.html?searchResultPosition=1
 
 **Who will be on the Buckingham Palace balcony, and who won’t be.**\
 `By Mark Landler`\
