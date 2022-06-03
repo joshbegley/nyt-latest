@@ -14,9 +14,9 @@ https://nytimes.com/2022/06/03/us/florida-alex-tropical-weather-forecast.html?se
 `The Tulsa mass shooting wasn’t as bad as some feared. Instead, it was yet another American tragedy.`\
 https://nytimes.com/2022/06/03/briefing/mass-shootings-america-uvalde-buffalo.html?searchResultPosition=4
 
-**Harry and Meghan are among the guests at St. Paul’s.**\
-`Prince Harry and his wife, Meghan, make their first public appearance of the Platinum Jubilee celebrations for Queen Elizabeth II.`\
-https://nytimes.com/2022/06/03/world/europe/prince-harry-meghan-jubilee.html?searchResultPosition=5
+**For Harry and Meghan, a return to the royal fold, at least sartorially.**\
+`Prince Harry and his wife, Meghan, adhered to dress protocol during their first public appearance of the Platinum Jubilee celebrations for Queen Elizabeth II.`\
+https://nytimes.com/live/2022/06/03/world/queen-elizabeth-jubilee/prince-harry-meghan-jubilee?searchResultPosition=5
 
 **The Cost of Haiti’s Freedom**\
 `Two centuries ago, Haitians revolted against their French masters and declared independence. But this freedom came at a price.`\
