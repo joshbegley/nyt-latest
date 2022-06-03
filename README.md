@@ -3,7 +3,7 @@
 https://nytimes.com/2022/06/02/world/australia/when-freedom-is-only-the-beginning.html?searchResultPosition=1
 
 **Boston Celtics Stun Golden State in N.B.A. Finals Game 1**\
-`Golden State led by double digits entering the fourth quarter, but the Celtics came roaring back to win the game.`\
+`Golden State led by double digits entering the fourth quarter, but the Celtics came roaring back to win.`\
 https://nytimes.com/2022/06/02/sports/basketball/boston-celtics-golden-state-nba-finals-game-1.html?searchResultPosition=2
 
 **Harini Logan wins the National Spelling Bee after blazing through the competition’s first spell-off.**\
