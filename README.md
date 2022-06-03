@@ -22,7 +22,7 @@ https://nytimes.com/live/2022/06/03/world/queen-elizabeth-jubilee/prince-harry-m
 `Two centuries ago, Haitians revolted against their French masters and declared independence. But this freedom came at a price.`\
 https://nytimes.com/2022/06/03/podcasts/the-daily/haiti-revolt-france-payments.html?searchResultPosition=6
 
-**For Boris Johnson, the St. Paul’s event is a welcome break from political pressure.**\
+**The St. Paul’s event is a welcome break from political pressure for Boris Johnson.**\
 `His attendance at the service of thanksgiving during the Platinum Jubilee celebrations for Queen Elizabeth II is also an opportunity to stride the global stage and rub shoulders with royalty.`\
 https://nytimes.com/2022/06/03/world/europe/queen-elizabeth-jubilee-boris-johnson.html?searchResultPosition=7
 
