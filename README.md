@@ -3,8 +3,8 @@
 https://nytimes.com/2022/06/03/world/europe/germany-train-derailment.html?searchResultPosition=1
 
 **Class Sizes Set to Shrink in New York City Schools, but at What Cost?**\
-`New York City won an extension of mayoral control over schools from the State Legislature, but will also be required to shrink class sizes.`\
-https://nytimes.com/2022/06/03/nyregion/nyc-class-size-reduction-bill-reignites-heated-education-debate.html?searchResultPosition=2
+`A bill approved by state lawmakers to shrink New York City class sizes would cost millions, and its passage reignited a longstanding debate about whether the move would help students as intended.`\
+https://nytimes.com/2022/06/03/nyregion/nyc-schools-class-sizes.html?searchResultPosition=2
 
 **Fossil-Fuel Shares Lead the Stock Market. How Awkward.**\
 `If you want to make money in the market but also be a responsible citizen in a warming world, you’re in a tough spot. But there are some promising options, our columnist says.`\
