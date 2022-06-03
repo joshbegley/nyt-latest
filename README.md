@@ -16,7 +16,7 @@ https://nytimes.com/2022/06/03/briefing/mass-shootings-america-uvalde-buffalo.ht
 
 **Harry and Meghan are among the guests at St. Paul’s.**\
 `Prince Harry and his wife, Meghan, make their first public appearance of the Platinum Jubilee celebrations for Queen Elizabeth II.`\
-https://nytimes.com/2022/06/03/world/europe/harry-and-meghan-are-among-the-guests-at-st-pauls.html?searchResultPosition=5
+https://nytimes.com/2022/06/03/world/europe/prince-harry-meghan-jubilee.html?searchResultPosition=5
 
 **The Cost of Haiti’s Freedom**\
 `Two centuries ago, Haitians revolted against their French masters and declared independence. But this freedom came at a price.`\
