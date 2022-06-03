@@ -10,8 +10,8 @@ https://nytimes.com/2022/06/03/t-magazine/east-village-meat-market-ukraine.html?
 `Breakthrough is a podcast from Boston Children’s about the innovations that are revolutionizing the future of pediatrics and what that means for children and their families.`\
 https://nytimes.com/paidpost/boston-childrens-hospital/bch-trust/breakthrough.html?searchResultPosition=3
 
-**Republican Congressman Quits Race After Backlash Over His Gun Stance**\
-`Representative Chris Jacobs, whose district includes Buffalo suburbs, abandoned his re-election campaign after expressing support for a federal assault weapons ban.`\
+**N.Y. Republican Drops Re-Election Bid After Bucking His Party on Guns**\
+`Representative Chris Jacobs, whose district includes Buffalo suburbs, abandoned his campaign after his support for a federal assault weapons ban caused a G.O.P. backlash.`\
 https://nytimes.com/2022/06/03/nyregion/chris-jacobs-congress-guns.html?searchResultPosition=4
 
 **Sheryl Sandberg’s Long (Overdue) Goodbye**\
