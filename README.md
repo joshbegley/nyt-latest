@@ -24,7 +24,7 @@ https://nytimes.com/2022/06/03/realestate/garden-small-spaces.html?searchResultP
 
 **What’s Got Economists Rooting for a Slowdown**\
 `With nearly twice as many open jobs as available workers and rising inflation, many economists and policymakers say a slowdown is just what the economy needs.`\
-https://nytimes.com/2022/06/03/business/dealbook/rooting-for-a-slowdown.html?searchResultPosition=7
+https://nytimes.com/2022/06/03/business/dealbook/economic-slowdown-inflation.html?searchResultPosition=7
 
 **Concussed, Kidnapped, Cursed: Women on the Run**\
 `The protagonists of three new novels flee disasters both natural and man-made.`\
