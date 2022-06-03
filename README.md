@@ -6,13 +6,13 @@ https://nytimes.com/2022/06/03/climate/california-water-restrictions.html?search
 `The writer and star of “Fire Island” reflects on making the rare romantic comedy that puts gay Asian American men at its center.`\
 https://nytimes.com/2022/06/03/movies/fire-island-joel-kim-booster-interview.html?searchResultPosition=2
 
-**An Artist Comfortable in Any Medium, Even Lithium**\
-`Lydia Ourahmane creates sprawling installations that challenge geopolitical borders.`\
-https://nytimes.com/2022/06/03/style/an-artist-comfortable-in-any-medium-even-lithium.html?searchResultPosition=3
-
 **Five International Movies to Stream Now**\
 `This month’s picks include a Kafkaesque Tamil head trip, an Argentine queer drama, a Rwandan girls-school thriller and more.`\
-https://nytimes.com/2022/06/03/movies/five-international-movies-to-stream-now.html?searchResultPosition=4
+https://nytimes.com/2022/06/03/movies/international-movies.html?searchResultPosition=3
+
+**An Artist Comfortable in Any Medium, Even Lithium**\
+`Lydia Ourahmane creates sprawling installations that challenge geopolitical borders.`\
+https://nytimes.com/2022/06/03/style/an-artist-comfortable-in-any-medium-even-lithium.html?searchResultPosition=4
 
 **What to Cook This Weekend**\
 `Start things off right with Melissa Clark’s creamy pasta with ricotta and herbs.`\
