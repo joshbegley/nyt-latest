@@ -1,5 +1,5 @@
 **David McCormick Concedes to Dr. Oz in the G.O.P. Primary for Senate in Pennsylvania**\
-`With a statewide recount still underway, Mr. McCormick stepped aside to Dr. Mehmet Oz, who will be the Republican nominee in one of this year’s most pivotal midterm races.`\
+`With a statewide recount still underway, Mr. McCormick stepped aside to Dr. Mehmet Oz, who is set to be the Republican nominee in one of this year’s most pivotal midterm races.`\
 https://nytimes.com/2022/06/03/us/elections/pennsylvania-senate-oz-mccormick.html?searchResultPosition=1
 
 **Gina Haspel Observed Waterboarding at C.I.A. Black Site, Psychologist Testifies**\
