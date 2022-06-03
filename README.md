@@ -1,40 +1,40 @@
+**Special Olympics lifts a vaccine mandate at its Games in Orlando after Florida threatens a fine.**\
+`Florida health officials told Special Olympics that the vaccine requirement violated state law.`\
+https://nytimes.com/2022/06/03/sports/special-olympics-vaccine-mandate.html?searchResultPosition=1
+
 **Fetterman discloses extent of heart issues: ‘I avoided going to the doctor.’**\
 `The Democratic candidate for Senate in Pennsylvania did not give a timeline for when he would return to the campaign trail.`\
-https://nytimes.com/2022/06/03/us/politics/john-fetterman-heart-condition.html?searchResultPosition=1
+https://nytimes.com/2022/06/03/us/politics/john-fetterman-heart-condition.html?searchResultPosition=2
 
 **Samella Lewis, Artist and Activist for Art World Diversity, Dies at 99**\
 `In addition to painting, she was a historian who pushed for a more inclusive definition of art, in part by founding her own museum devoted to Black artists.`\
-https://nytimes.com/2022/06/03/arts/samella-lewis-dead.html?searchResultPosition=2
+https://nytimes.com/2022/06/03/arts/samella-lewis-dead.html?searchResultPosition=3
 
 **The New York Butcher Offering Smoked Meats and Support for Ukraine**\
 `The East Village Meat Market has prepared kielbasa, stuffed cabbage and more comforts of Eastern Europe for over 50 years.`\
-https://nytimes.com/2022/06/03/t-magazine/east-village-meat-market-ukraine.html?searchResultPosition=3
+https://nytimes.com/2022/06/03/t-magazine/east-village-meat-market-ukraine.html?searchResultPosition=4
 
 **Breakthrough**\
 `Breakthrough is a podcast from Boston Children’s about the innovations that are revolutionizing the future of pediatrics and what that means for children and their families.`\
-https://nytimes.com/paidpost/boston-childrens-hospital/bch-trust/breakthrough.html?searchResultPosition=4
+https://nytimes.com/paidpost/boston-childrens-hospital/bch-trust/breakthrough.html?searchResultPosition=5
 
 **N.Y. Republican Drops Re-Election Bid After Bucking His Party on Guns**\
 `Representative Chris Jacobs, whose district includes Buffalo suburbs, abandoned his campaign after his support for a federal assault weapons ban caused a G.O.P. backlash.`\
-https://nytimes.com/2022/06/03/nyregion/chris-jacobs-congress-guns.html?searchResultPosition=5
+https://nytimes.com/2022/06/03/nyregion/chris-jacobs-congress-guns.html?searchResultPosition=6
 
 **Sheryl Sandberg’s Long (Overdue) Goodbye**\
 `The Meta C.O.O. leaves a legacy of stunning financial success — and a company still in denial about its toxic impact.`\
-https://nytimes.com/2022/06/03/opinion/sheryl-sandberg-meta-facebook.html?searchResultPosition=6
+https://nytimes.com/2022/06/03/opinion/sheryl-sandberg-meta-facebook.html?searchResultPosition=7
 
 **‘This Pride Month I’m Partnering With’ Memes Are Coming Out Strong**\
 `Online, the L.G.B.T.Q. community is having fun with the corporate sponsorship of Pride month and the influencers who take part in those campaigns.`\
-https://nytimes.com/2022/06/03/style/pride-month-memes.html?searchResultPosition=7
+https://nytimes.com/2022/06/03/style/pride-month-memes.html?searchResultPosition=8
 
 **A Very Specific Risk**\
 `Preconceptions about Liverpool supporters and policing decisions that didn’t prioritize their safety led to the chaos at the Champions League final. That’s dangerous for every fan.`\
-https://nytimes.com/2022/06/03/sports/soccer/liverpool-fans-french-police.html?searchResultPosition=8
+https://nytimes.com/2022/06/03/sports/soccer/liverpool-fans-french-police.html?searchResultPosition=9
 
 **Steps We Can Take to Reduce Gun Violence**\
 `Readers react to the president’s speech and suggest smart guns, gun liability, age restrictions and a ban on assault weapons. Also: The Depp-Heard verdict; a Supreme Court ruling; diplomacy to end the war.`\
-https://nytimes.com/2022/06/03/opinion/letters/biden-guns-violence.html?searchResultPosition=9
-
-**Overlooked No More: Maureen Colquhoun, Pathbreaking Politician Waylaid by Bias**\
-`Colquhoun campaigned for women’s rights in Britain’s male-dominated Parliament. But her political career came to an end when she was outed as a lesbian.`\
-https://nytimes.com/2022/06/03/obituaries/maureen-colquhoun-overlooked.html?searchResultPosition=10
+https://nytimes.com/2022/06/03/opinion/letters/biden-guns-violence.html?searchResultPosition=10
 
