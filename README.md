@@ -1,40 +1,40 @@
+**In the wake of Black Lives Matter, the Caribbean reassess the British crown.**\
+`Public sentiment toward the monarchy has soured in the region, and calls for reparations for Britain’s often brutal role in the slave trade have been rising.`\
+https://nytimes.com/2022/06/03/world/americas/queen-elizabeth-jubilee-caribbean.html?searchResultPosition=1
+
 **U.K.’s ‘Brightest and Best’ Visa Plan Faces Charges of Elitism**\
 `Under the new program, graduates of top-ranked global colleges can move to Britain for two years, even without a job offer. But no African, Indian or Latin American universities made the list.`\
-https://nytimes.com/2022/06/03/world/europe/uk-visa-high-potential-individual.html?searchResultPosition=1
+https://nytimes.com/2022/06/03/world/europe/uk-visa-high-potential-individual.html?searchResultPosition=2
 
 **Celtics Strike First in Finals by Working Late**\
 `A fourth-quarter rally turned the tide in Game 1 against Golden State, but Boston isn’t celebrating anything just yet.`\
-https://nytimes.com/2022/06/03/sports/basketball/celtics-warriors-game-1.html?searchResultPosition=2
+https://nytimes.com/2022/06/03/sports/basketball/celtics-warriors-game-1.html?searchResultPosition=3
 
 **In the choreography of royal events, Harry and Meghan’s entrance is notable.**\
 `The appearance by Prince Harry and his wife, Meghan, at St. Paul’s Cathedral on Friday was their first official royal outing since early 2020.`\
-https://nytimes.com/2022/06/03/world/europe/prince-harry-meghan-markle.html?searchResultPosition=3
+https://nytimes.com/2022/06/03/world/europe/prince-harry-meghan-markle.html?searchResultPosition=4
 
 **Mark Rylance on ‘Jerusalem’ and the Golf Comedy ‘Phantom of the Open’**\
 `The acclaimed British actor explains the links between his tour de force stage turn and a recent string of subdued screen roles.`\
-https://nytimes.com/2022/06/03/movies/mark-rylance-phantom-of-the-open-jerusalem.html?searchResultPosition=4
+https://nytimes.com/2022/06/03/movies/mark-rylance-phantom-of-the-open-jerusalem.html?searchResultPosition=5
 
 **Man Breaks Into Dallas Museum of Art and Damages Ancient Greek Artifacts**\
 `Brian Hernandez, 21, is accused of smashing a door with a steel chair and damaging items with an estimated value of $1 million or more, museum officials said.`\
-https://nytimes.com/2022/06/03/us/dallas-museum-of-art-break-in-vandalism.html?searchResultPosition=5
+https://nytimes.com/2022/06/03/us/dallas-museum-of-art-break-in-vandalism.html?searchResultPosition=6
 
 **Tropical Weather Threatens Florida With Heavy Rain and Floods**\
 `The system could become Tropical Storm Alex, the first storm of the 2022 Atlantic hurricane season.`\
-https://nytimes.com/2022/06/03/us/florida-alex-tropical-weather-forecast.html?searchResultPosition=6
+https://nytimes.com/2022/06/03/us/florida-alex-tropical-weather-forecast.html?searchResultPosition=7
 
 **Again and Again and Again**\
 `The Tulsa mass shooting wasn’t as bad as some feared. Instead, it was yet another American tragedy.`\
-https://nytimes.com/2022/06/03/briefing/mass-shootings-america-uvalde-buffalo.html?searchResultPosition=7
+https://nytimes.com/2022/06/03/briefing/mass-shootings-america-uvalde-buffalo.html?searchResultPosition=8
 
 **The Cost of Haiti’s Freedom**\
 `Two centuries ago, Haitians revolted against their French masters and declared independence. But this freedom came at a price.`\
-https://nytimes.com/2022/06/03/podcasts/the-daily/haiti-revolt-france-payments.html?searchResultPosition=8
+https://nytimes.com/2022/06/03/podcasts/the-daily/haiti-revolt-france-payments.html?searchResultPosition=9
 
 **The St. Paul’s event is a welcome break from political pressure for Boris Johnson.**\
 `His attendance at the service of thanksgiving during the Platinum Jubilee celebrations for Queen Elizabeth II is also an opportunity to stride the global stage and rub shoulders with royalty.`\
-https://nytimes.com/2022/06/03/world/europe/queen-elizabeth-jubilee-boris-johnson.html?searchResultPosition=9
-
-**Watch Live: U.K. Royal Family Arrives at St. Paul’s Cathedral**\
-`A service of thanksgiving at St. Paul’s Cathedral is being held as part of Queen Elizabeth II’s Platinum Jubilee celebrations. Buckingham Palace said the queen would not attend, but other royals are expected to, including Prince Harry and his wife, Meghan.`\
-https://nytimes.com/video/embedded/world/europe/100000008381061/queen-elizabeth-jubilee-service-royal-arrivals.html?searchResultPosition=10
+https://nytimes.com/2022/06/03/world/europe/queen-elizabeth-jubilee-boris-johnson.html?searchResultPosition=10
 
