@@ -2,7 +2,7 @@
 `Breakthrough is a podcast from Boston Children’s about the innovations that are revolutionizing the future of pediatrics and what that means for children and their families.`\
 https://nytimes.com/paidpost/boston-childrens-hospital/bch-trust/breakthrough.html?searchResultPosition=1
 
-**A New York Republican Crossed His Party on Guns. He Lasted 7 Days.**\
+**Republican Congressman Quits Race After Backlash Over His Gun Stance**\
 `Representative Chris Jacobs, whose district includes Buffalo suburbs, abandoned his re-election campaign after facing a backlash over his gun control stance.`\
 https://nytimes.com/2022/06/03/nyregion/chris-jacobs-congress-guns.html?searchResultPosition=2
 
