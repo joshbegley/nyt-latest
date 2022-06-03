@@ -1,5 +1,5 @@
 **Texas Says Escaped Murderer May Be Linked to 5 Deaths at a Home**\
-`Gonzalo Artemio Lopez, who escaped from a prison bus last month, may be driving a vehicle that from a home where the bodies of two adults and three children were found, the authorities said.`\
+`Gonzalo Artemio Lopez, who escaped from a prison bus last month, may be driving a vehicle from a home where the bodies of two adults and three children were found, the authorities said.`\
 https://nytimes.com/2022/06/02/us/texas-escaped-inmate-gonzalo-lopez.html?searchResultPosition=1
 
 **Full Transcript: Biden’s Speech on Guns**\
