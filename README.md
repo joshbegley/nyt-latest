@@ -1,5 +1,5 @@
 **Harini Logan wins the National Spelling Bee after blazing through the competition’s first spell-off.**\
-`By Maria Cramer`\
+`An eighth grader from San Antonio, Harini returned to the finals with a reinstatement, kept pace in a drawn-out duel with Vikram Raju, and spelled 21 words correctly in 90 seconds.`\
 https://nytimes.com/2022/06/02/us/harini-logan-scripps-spelling-bee.html?searchResultPosition=1
 
 **Texas Says Escaped Murderer May Be Linked to 5 Deaths at a Home**\
