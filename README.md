@@ -24,7 +24,7 @@ https://nytimes.com/2022/06/03/style/erika-graves-brad-cameron-wedding.html?sear
 
 **Not Every Breakup Is About Being Broken**\
 `She was everything I needed — until, with her love, my needs changed.`\
-https://nytimes.com/2022/06/03/style/modern-love-not-every-breakup-is-about-being-broken.html?searchResultPosition=7
+https://nytimes.com/2022/06/03/style/modern-love-breakup.html?searchResultPosition=7
 
 **His Second Try at a Good First Impression Did the Trick**\
 `Though Michael Quinn’s bad joke didn’t land with Lea Richard-Nagle when they met a party, she didn’t write him off. Days later, the two had a memorable first date at the Guggenheim Museum.`\
