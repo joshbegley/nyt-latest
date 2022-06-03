@@ -4,7 +4,7 @@ https://nytimes.com/2022/06/03/us/florida-alex-tropical-weather-forecast.html?se
 
 **Again and Again and Again**\
 `The Tulsa mass shooting wasn’t as bad as some feared. Instead, it was yet another American tragedy.`\
-https://nytimes.com/2022/06/03/briefing/mass-shootings-america-uvalse-buffalo.html?searchResultPosition=2
+https://nytimes.com/2022/06/03/briefing/mass-shootings-america-uvalde-buffalo.html?searchResultPosition=2
 
 **The Cost of Haiti’s Freedom**\
 `Two centuries ago, Haitians revolted against their French masters and declared independence. But this freedom came at a price.`\
