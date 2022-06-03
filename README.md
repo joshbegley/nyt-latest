@@ -7,7 +7,7 @@ https://nytimes.com/2022/06/02/world/australia/when-freedom-is-only-the-beginnin
 https://nytimes.com/2022/06/02/sports/basketball/boston-celtics-golden-state-nba-finals-game-1.html?searchResultPosition=2
 
 **Harini Logan wins the National Spelling Bee after blazing through the competition’s first spell-off.**\
-`An eighth grader from San Antonio, Harini returned to the finals with a reinstatement, kept pace in a drawn-out duel with Vikram Raju, and spelled 21 words correctly in 90 seconds.`\
+`An eighth grader from San Antonio, Harini returned to the finals with a reinstatement, kept pace in a drawn-out duel with Vikram Raju, and spelled 21 words correctly in the final 90 seconds.`\
 https://nytimes.com/2022/06/02/us/harini-logan-scripps-spelling-bee.html?searchResultPosition=3
 
 **Texas Says Escaped Murderer May Be Linked to 5 Deaths at a Home**\
