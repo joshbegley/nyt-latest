@@ -1,6 +1,6 @@
 **The Phillies Fire Their Manager, but Their Flaws Run Deeper**\
 `Philadelphia’s expensive roster has underperformed — to put it mildly. The team hopes a “different voice” is the answer after dismissing Joe Girardi.`\
-https://nytimes.com/2022/06/03/sports/baseball/phillies-fire-girardi.html?searchResultPosition=1
+https://nytimes.com/2022/06/03/sports/baseball/philadelphia-phillies-fire-joe-girardi.html?searchResultPosition=1
 
 **Stellantis to Pay $300 Million to End an Emissions Case**\
 `The carmaker’s U.S. division, formerly Fiat Chrysler, was accused of trying to evade federal standards. It pleaded guilty to a conspiracy charge.`\
