@@ -2,7 +2,7 @@
 `The state has some 700 markets featuring some of the world’s best produce — but it took legislative changes in the 1970s to help them flourish.`\
 https://nytimes.com/2022/06/03/us/farmers-markets-california.html?searchResultPosition=1
 
-**In the wake of Black Lives Matter, the Caribbean reassess the British crown.**\
+**In the wake of Black Lives Matter, the Caribbean reassesses the British crown.**\
 `Public sentiment toward the monarchy has soured in the region, and calls for reparations for Britain’s often brutal role in the slave trade have been rising.`\
 https://nytimes.com/2022/06/03/world/americas/queen-elizabeth-jubilee-caribbean.html?searchResultPosition=2
 
