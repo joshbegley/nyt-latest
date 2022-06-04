@@ -7,7 +7,7 @@ https://nytimes.com/interactive/2022/06/04/upshot/mass-shooting-gun-laws.html?se
 https://nytimes.com/2022/06/04/opinion/letters/reading-phonics.html?searchResultPosition=2
 
 **Ann Turner Cook Dies at 95; Her Face Sold Baby Food by the Billions**\
-`Her likeness as an infant has graced the labels on jars of Gerber baby food for more than 90 years, though for decades her identity was not disclosed.`\
+`Her likeness as an infant has graced the labels on Gerber products for more than 90 years, though for decades her identity was not disclosed.`\
 https://nytimes.com/2022/06/04/business/ann-turner-cook-gerber-baby-dead.html?searchResultPosition=3
 
 **What Exactly Do We Think Celebrities Owe Us?**\
