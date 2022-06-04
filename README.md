@@ -26,7 +26,7 @@ https://nytimes.com/2022/06/04/opinion/letters/reading-phonics.html?searchResult
 `Her likeness as an infant has graced the labels on Gerber products for more than 90 years, though for decades her identity was not disclosed.`\
 https://nytimes.com/2022/06/04/business/ann-turner-cook-gerber-baby-dead.html?searchResultPosition=7
 
-**What Exactly Do We Think Celebrities Owe Us?**\
+**Fandom Is Out of Control**\
 `What drives a grown person to travel to a courthouse in Virginia to hurl insults at someone she has never met, about behavior she didn’t witness and money she is not owed?`\
 https://nytimes.com/2022/06/04/opinion/amber-heard-johnny-depp-trial-celebrity.html?searchResultPosition=8
 
