@@ -18,7 +18,7 @@ https://nytimes.com/2022/06/04/opinion/academic-team-debate.html?searchResultPos
 `The system, which is also threatening the Bahamas and Cuba, could bring more than a foot of rain to some areas, forecasters said.`\
 https://nytimes.com/2022/06/04/us/florida-tropical-storm-miami-flood.html?searchResultPosition=5
 
-**A Little Hong Kong in London**\
+**A Little Hong Kong in London **\
 `More than a year after they first began arriving in Britain under a new visa program, migrants from Hong Kong are settling into their new home. Here's what some of them told me about their experience so far.`\
 https://nytimes.com/interactive/2022/06/04/world/europe/hong-kong-migrants-london.html?searchResultPosition=6
 
