@@ -8,7 +8,7 @@ https://nytimes.com/2022/06/04/opinion/sunday/psychiatrists-abortion-roe.html?se
 
 **Let’s Not Pretend Planting Trees Is a Permanent Climate Solution**\
 `Carbon emissions are forever so carbon removal should be, too.`\
-https://nytimes.com/2022/06/04/opinion/climate-change-trees-carbon-removal.html?searchResultPosition=3
+https://nytimes.com/2022/06/04/opinion/environment/climate-change-trees-carbon-removal.html?searchResultPosition=3
 
 **When Every Conversation Becomes a Game, We All Lose**\
 `A disagreement is too often a wish to destroy.`\
