@@ -35,6 +35,6 @@ https://nytimes.com/2022/06/04/opinion/environment/climate-change-trees-carbon-r
 https://nytimes.com/2022/06/04/opinion/academic-team-debate.html?searchResultPosition=9
 
 **Russia increases its use of air power to support its fight in the Donbas region, an intelligence report says.**\
-`By Matthew Mpoke Bigg`\
+`Ukrainian forces poured men and armor toward the front line in Sievierodonetsk on Friday, and a military official said Ukrainian troops had managed to push Russian forces back by 20 percent.`\
 https://nytimes.com/2022/06/04/world/europe/ukraine-sievierodonetsk-russian-army.html?searchResultPosition=10
 
