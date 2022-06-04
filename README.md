@@ -1,5 +1,5 @@
 **London Police Evacuate Trafalgar Square, but Say ‘Incident Has Now Been Concluded’**\
-`The evacuation of the square in Central London rattled the capital on the third day of Queen Elizabeth’s Platinum Jubilee.`\
+`The evacuation of the square in Central London rattled the capital on the third day of Queen Elizabeth’s Platinum Jubilee. The police later said it was not related to terrorism.`\
 https://nytimes.com/2022/06/04/world/europe/trafalgar-square-london-evacuation.html?searchResultPosition=1
 
 **Summer Vacation Movies**\
