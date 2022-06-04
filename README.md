@@ -30,11 +30,11 @@ https://nytimes.com/2022/06/04/opinion/environment/climate-change-trees-carbon-r
 `A disagreement is too often a wish to destroy.`\
 https://nytimes.com/2022/06/04/opinion/academic-team-debate.html?searchResultPosition=8
 
+**Russia increases its use of air power to support its fight in the Donbas region, an intelligence report says.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/2022/06/04/world/europe/ukraine-sievierodonetsk-russian-army.html?searchResultPosition=9
+
 **Tropical Weather Brings Heavy Rains and Flooding to Florida**\
 `The system, which is also threatening the Bahamas and Cuba, could bring more than a foot of rain to some areas, forecasters said.`\
-https://nytimes.com/2022/06/04/us/florida-tropical-storm-miami-flood.html?searchResultPosition=9
-
-**A Little Hong Kong in London **\
-`More than a year after they first began arriving in Britain under a new visa program, migrants from Hong Kong are settling into their new home. Here's what some of them told me about their experience so far.`\
-https://nytimes.com/interactive/2022/06/04/world/europe/hong-kong-migrants-london.html?searchResultPosition=10
+https://nytimes.com/2022/06/04/us/florida-tropical-storm-miami-flood.html?searchResultPosition=10
 
