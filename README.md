@@ -1,6 +1,6 @@
 **A Little Hong Kong in London**\
 `More than a year after they first began arriving in Britain under a new visa program, migrants from Hong Kong are settling into their new home. Here's what some of them told me about their experience so far.`\
-https://nytimes.com/interactive/2022/06/04/world/europe/04uk-hong-kong.html?searchResultPosition=1
+https://nytimes.com/interactive/2022/06/04/world/europe/hong-kong-migrants-london.html?searchResultPosition=1
 
 **Iga Swiatek Dominates in French Open Final for Championship**\
 `Swiatek beat Coco Gauff, the 18-year-old American prodigy, 6-1, 6-3 in just over an hour.`\
