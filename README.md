@@ -26,8 +26,8 @@ https://nytimes.com/2022/06/04/business/ann-turner-cook-gerber-baby-dead.html?se
 `What drives a grown person to travel to a courthouse in Virginia to hurl insults at someone she has never met, about behavior she didn’t witness and money she is not owed?`\
 https://nytimes.com/2022/06/04/opinion/amber-heard-johnny-depp-trial-celebrity.html?searchResultPosition=7
 
-**When Psychiatrists Decided Who Could Get an Abortion**\
-`It was once an “open secret” that this was the safest pathway. `\
+**The ‘Open Secret’ on Getting a Safe Abortion Before Roe v. Wade**\
+`Psychiatrists were once arbiters of abortion access. Will they resume that role post-Roe?`\
 https://nytimes.com/2022/06/04/opinion/sunday/psychiatrists-abortion-roe.html?searchResultPosition=8
 
 **Let’s Not Pretend Planting Trees Is a Permanent Climate Solution**\
