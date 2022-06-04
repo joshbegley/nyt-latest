@@ -7,7 +7,7 @@ https://nytimes.com/2022/06/04/us/florida-tropical-storm-miami-flood.html?search
 https://nytimes.com/interactive/2022/06/04/world/europe/hong-kong-migrants-london.html?searchResultPosition=2
 
 **Iga Swiatek Dominates in French Open Final for Championship**\
-`Swiatek beat Coco Gauff, the 18-year-old American prodigy, 6-1, 6-3 in just over an hour.`\
+`Swiatek, 21, beat Coco Gauff, the 18-year-old American prodigy, 6-1, 6-3 in just over an hour.`\
 https://nytimes.com/2022/06/04/sports/tennis/iga-swiatek-french-open-champion.html?searchResultPosition=3
 
 **Senior Iranian Officer Dies, Leaving Questions About His Death**\
