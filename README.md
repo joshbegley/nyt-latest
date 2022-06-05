@@ -1,40 +1,40 @@
+**How Asylum Seekers Cross the Border**\
+`The southern border is seeing a historic spike in migrant crossings.`\
+https://nytimes.com/2022/06/05/us/politics/border-migrants-asylum.html?searchResultPosition=1
+
+**New Zealand’s Biodiversity Crisis Prompts Extreme Measures**\
+`A few years ago, the nation vowed to rid itself of most imported predators. But now some people are asking if that goal is feasible, or worth what it will cost.`\
+https://nytimes.com/2022/06/05/world/australia/new-zealands-predator-mammals.html?searchResultPosition=2
+
+**‘From Russia With Love’: A Putin Ally Mines Gold and Plays Favorites in Sudan**\
+`Backed by the Kremlin, the shadowy network known as the Wagner Group is getting rich in Sudan while helping the military to crush a democracy movement.`\
+https://nytimes.com/2022/06/05/world/africa/wagner-russia-sudan-gold-putin.html?searchResultPosition=3
+
+**A Mental Health Clinic in School? No, Thanks, Says the School Board**\
+`American teenagers are reporting severe levels of anxiety and depression. But when Connecticut moved to expand mental health services in schools, it ran into fierce opposition in one town.`\
+https://nytimes.com/2022/06/05/health/killingly-ct-mental-health-clinic-school.html?searchResultPosition=4
+
+**Ukraine Will Play Wales. The Winner Goes to the World Cup.**\
+`A European playoff on Sunday is a winner-take-all affair for Ukraine, a nation at war, and Wales, which hasn’t been the tournament since 1958.`\
+https://nytimes.com/2022/06/05/sports/soccer/ukraine-wales-world-cup.html?searchResultPosition=5
+
+**‘Feeling Smug, I Sat Down and Began to Look Around’**\
+`A surprise on the No. 6, losing a great barber and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2022/06/05/nyregion/metropolitan-diary.html?searchResultPosition=6
+
+**Spending Time With a Family in Crisis**\
+`A 13-year-old’s aggressive behavior was a danger to her and her parents. A Times reporter followed their search for help.`\
+https://nytimes.com/2022/06/05/insider/spending-time-with-a-family-in-crisis.html?searchResultPosition=7
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2022/06/05/crosswords/spelling-bee-forum.html?searchResultPosition=8
+
 **Corrections: June 5, 2022**\
 `Corrections that appeared in print on Sunday, June 5, 2022.`\
-https://nytimes.com/2022/06/05/pageoneplus/corrections-june-5-2022.html?searchResultPosition=1
+https://nytimes.com/2022/06/05/pageoneplus/corrections-june-5-2022.html?searchResultPosition=9
 
 **Quotation of the Day: Migrants to U.K. Build Life Outside Hong Kong**\
 `Quotation of the Day for Sunday, June 5, 2022.`\
-https://nytimes.com/2022/06/05/todayspaper/quotation-of-the-day-migrants-to-uk-build-life-outside-hong-kong.html?searchResultPosition=2
-
-**North Korea Launches a Volley of Short-Range Missiles**\
-`The North’s latest test, involving eight missiles, came a day after the United States and South Korea finished joint naval exercises in the East China Sea.`\
-https://nytimes.com/2022/06/05/world/asia/north-korea-missile.html?searchResultPosition=3
-
-**There’s a New Gerber Baby and Some Parents Are Mad**\
-`Though not at the very adorable winner, fortunately.`\
-https://nytimes.com/2022/06/05/style/new-gerber-baby.html?searchResultPosition=4
-
-**New York’s Shesterkin and Tampa’s Vasilevskiy Steal Games and the Show**\
-`Arguably the two best goalies in hockey right now are also among a talented crop of young Russian netminders throughout the N.H.L. and in particular, the Eastern Conference.`\
-https://nytimes.com/2022/06/05/sports/hockey/vasilevskiy-shesterkin-lightning-rangers.html?searchResultPosition=5
-
-**Ukraine aims to restart soccer leagues on its own soil in August.**\
-`In an interview with The Associated Press, the leader of Ukraine’s soccer federation said President Volodymyr Zelensky had approved the decision.`\
-https://nytimes.com/2022/06/04/world/europe/ukraine-soccer-leagues.html?searchResultPosition=6
-
-**Baby Formula Plant That Shut Down and Fueled Crisis Restarts Production**\
-`Abbott Nutrition said that its plant in Sturgis, Mich., resumed production of EleCare and other formulas on Saturday.`\
-https://nytimes.com/2022/06/04/us/abbott-labs-baby-formula.html?searchResultPosition=7
-
-**Let’s Get Literature**\
-`Christina Iverson and Katie Hale shoot a puzzle through a canon.`\
-https://nytimes.com/2022/06/04/crosswords/daily-puzzle-2022-06-05.html?searchResultPosition=8
-
-**Ex-Air Force Sergeant Sentenced to 41 Years for Murder of Federal Officer**\
-`Steven Carrillo pleaded guilty to a premeditated attack on law enforcement officers motivated by his support for an online anti-government movement.`\
-https://nytimes.com/2022/06/04/us/sergeant-blm-protest-shooting-sentencing.html?searchResultPosition=9
-
-**Fetterman’s Heart Issues Add Wild Card to Key Pennsylvania Senate Race**\
-`Part of John Fetterman’s appeal as the Democratic Senate nominee has stemmed from his brash sense of vitality. It’s not clear if his recent stroke and absence from the trail will affect that.`\
-https://nytimes.com/2022/06/04/us/politics/pa-senate-fetterman-dr-oz.html?searchResultPosition=10
+https://nytimes.com/2022/06/05/todayspaper/quotation-of-the-day-migrants-to-uk-build-life-outside-hong-kong.html?searchResultPosition=10
 
