@@ -27,7 +27,7 @@ https://nytimes.com/2022/06/05/nyregion/red-flag-law-shootings-new-york.html?sea
 https://nytimes.com/2022/06/05/sports/fallon-sherrock-us-darts-masters.html?searchResultPosition=7
 
 **Rafael Nadal, Looking Unbeatable, Wins 14th French Open Title**\
-`Nadal extended his men’s singles record of 22 Grand Slam titles with a win in straight sets over Casper Ruud.`\
+`Nadal extended his men’s singles record of 22 Grand Slam tournament titles with a win in straight sets over the eighth-seeded Casper Ruud.`\
 https://nytimes.com/2022/06/05/sports/tennis/rafael-nadal-french-open.html?searchResultPosition=8
 
 **Is America Having a Breakdown?**\
