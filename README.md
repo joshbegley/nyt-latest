@@ -10,7 +10,7 @@ https://nytimes.com/2022/06/05/briefing/jack-welch-david-gelles.html?searchResul
 `Jobs growth continued to be strong. OPEC Plus announced that it would increase oil production. And a report on inflation in May is coming.`\
 https://nytimes.com/2022/06/05/business/the-week-in-business-meta-sheryl-sandberg.html?searchResultPosition=3
 
-**Don’t Let Climate Change Stop You From Having Kids**\
+**Don’t Let the Environment Stop You From Having Kids**\
 `The green future has to be a welcoming one, even a thrilling one.`\
 https://nytimes.com/2022/06/05/opinion/climate-change-should-you-have-kids.html?searchResultPosition=4
 
