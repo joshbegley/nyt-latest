@@ -1,6 +1,6 @@
 **A (Very) Early Start, a Walk-Off Win and Pizza on the Town**\
 `Thanks to an 11:35 a.m. start against Detroit, Yankees players had the rarest of treats: a Sunday afternoon in June with nothing to do but relax.`\
-https://nytimes.com/2022/06/05/sports/baseball/yankees-tiger-peacock.html?searchResultPosition=1
+https://nytimes.com/2022/06/05/sports/baseball/yankees-tigers-peacock.html?searchResultPosition=1
 
 **Dozens Feared Dead in Church Attack in Nigeria**\
 `Gunmen fired on Catholics celebrating Mass in a usually peaceful part of the country. There was no claim of responsibility and the motive was unclear.`\
