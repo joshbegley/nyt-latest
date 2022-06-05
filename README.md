@@ -1,5 +1,5 @@
 **Dozens Killed and Hundreds Burned in Bangladesh Depot Disaster**\
-`A fire set off a series of explosions, killing at least 39, including several firefighters. Many other people were in critical condition.`\
+`A fire set off a series of explosions, killing at least 39 people, including firefighters. Many others were in critical condition.`\
 https://nytimes.com/2022/06/05/world/asia/bangladesh-fire-explosion.html?searchResultPosition=1
 
 **How Asylum Seekers Cross the Border**\
