@@ -2,7 +2,7 @@
 `The young American team came away with a scoreless draw against the 13th-ranked team in the world as it continues to tinker with its roster and tactics ahead of the World Cup.`\
 https://nytimes.com/2022/06/05/sports/soccer/usmnt-uruguay-friendly-score.html?searchResultPosition=1
 
-**Mingee Lee Wins U.S. Women’s Open**\
+**Minjee Lee Wins U.S. Women’s Open**\
 `Lee, an Australian, earned $1.8 million, the largest payout in the history of women’s golf.`\
 https://nytimes.com/2022/06/05/sports/golf/mingee-lee-us-womens-open.html?searchResultPosition=2
 
