@@ -22,7 +22,7 @@ https://nytimes.com/2022/06/05/podcasts/the-daily/weight-loss-sam-anderson-sunda
 `The court’s conservative majority seems intent on pursuing an agenda that would limit the government’s ability to shield the planet.`\
 https://nytimes.com/2022/06/05/opinion/climate-change-supreme-court.html?searchResultPosition=6
 
-**What Good Is Springtime When You Can’t Smell the Flowers?**\
+**And Just Like That, I Could Smell Exactly Nothing**\
 `After eight days, I was feeling fully recovered from my rendezvous with Omicron. Then my nose called it quits. `\
 https://nytimes.com/2022/06/05/opinion/covid-smell-taste-loss.html?searchResultPosition=7
 
