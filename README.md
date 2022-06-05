@@ -8,7 +8,7 @@ https://nytimes.com/video/world/asia/100000008383463/bangladesh-fire-explosions.
 
 **Party Before the Hangover: Queen’s Jubilee Offers Britons Respite From Woes**\
 `The Platinum Jubilee celebrations ended Sunday. Monday political and economic unease returns.`\
-https://nytimes.com/2022/06/05/world/queen-platinum-jubilee-britain.html?searchResultPosition=3
+https://nytimes.com/2022/06/05/world/europe/queen-platinum-jubilee-britain.html?searchResultPosition=3
 
 **How a New York County Used the State’s ‘Red Flag’ Law to Seize 160 Guns**\
 `Suffolk County on Long Island aggressively uses the law to take guns from people in crisis in an effort to prevent shootings and suicides. Its experience could inform a national debate.`\
