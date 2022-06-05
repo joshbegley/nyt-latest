@@ -11,7 +11,7 @@ https://nytimes.com/video/world/asia/100000008383463/bangladesh-fire-explosions.
 https://nytimes.com/2022/06/05/world/queen-platinum-jubilee-britain.html?searchResultPosition=3
 
 **How a New York County Used the State’s ‘Red Flag’ Law to Seize 160 Guns**\
-`Suffolk County on Long Island aggressively uses the law to take guns from people in crisis in an effort to prevent shootings and suicides. Its experience could inform the national debate.`\
+`Suffolk County on Long Island aggressively uses the law to take guns from people in crisis in an effort to prevent shootings and suicides. Its experience could inform a national debate.`\
 https://nytimes.com/2022/06/05/nyregion/red-flag-law-shootings-new-york.html?searchResultPosition=4
 
 **The Darts Queen Who Regularly Beats the Men**\
