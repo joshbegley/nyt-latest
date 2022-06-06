@@ -1,40 +1,40 @@
-**Assassinations Become Weapon of Choice for Guerrilla Groups in Myanmar**\
-`A movement to restore democracy has evolved into deadly warfare between a ruthless military and a resistance force with limited weaponry.`\
-https://nytimes.com/2022/06/06/world/asia/myanmar-assassinations-coup.html?searchResultPosition=1
+**It’s Been 50 Years. I Am Not ‘Napalm Girl’ Anymore.**\
+`The surviving people in war photographs, especially the children, must somehow go on. We are not symbols. We are human.`\
+https://nytimes.com/2022/06/06/opinion/kim-phuc-vietnam-napalm-girl-photograph.html?searchResultPosition=1
 
-**Thefts, Fraud and Lawsuits at the World’s Biggest NFT Marketplace**\
-`OpenSea, one of the highest-profile crypto start-ups, is facing a backlash over stolen and plagiarized nonfungible tokens.`\
-https://nytimes.com/2022/06/06/technology/nft-opensea-theft-fraud.html?searchResultPosition=2
+**The Many Faces of the 2022 Tony Nominees**\
+`As Broadway embarked on its road to recovery, these 45 theater artists helped pave the way.`\
+https://nytimes.com/2022/06/06/theater/tony-nominees-portraits.html?searchResultPosition=2
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/06/06/crosswords/spelling-bee-forum.html?searchResultPosition=3
+**Big City Mayors, Furious About Mass Shootings, Fear Sweeping Gun Limits Are Out of Reach**\
+`Mayors described being caught in an exasperating partisan impasse, charged with managing the country’s carnage but pushed to the margins when trying to fix it.`\
+https://nytimes.com/2022/06/06/us/mayors-mass-shootings-gun-control.html?searchResultPosition=3
 
-**Could One County’s Success With ‘Red Flag’ Orders Be a Model?**\
-`Suffolk County authorities have acted more often than their counterparts elsewhere in New York to seize weapons from the home of someone who has made a threat.`\
-https://nytimes.com/2022/06/06/nyregion/could-one-countys-success-with-red-flag-orders-be-a-model.html?searchResultPosition=4
+**Behold the Lionfish, as Transfixing as It Is Destructive**\
+`Lionfish, while spectacularly beautiful, are wreaking havoc on Caribbean reef habitats.`\
+https://nytimes.com/2022/06/06/travel/lionfish-hunting-bonaire.html?searchResultPosition=4
 
-**What’s on TV This Week: The Tony Awards and ‘P-Valley’**\
-`The 75th Tony Awards air on CBS. And Katori Hall’s “P-Valley” is back on Starz.`\
-https://nytimes.com/2022/06/06/arts/television/whats-on-tv-this-week-the-tony-awards-and-p-valley.html?searchResultPosition=5
+**‘Ms. Marvel’ Introduces a New Hero (and a New Actress)**\
+`This Disney+ series, about a teenage Muslim superhero, represents the first screen role for its 19-year-old star, Iman Vellani.`\
+https://nytimes.com/2022/06/06/arts/television/ms-marvel-iman-vellani.html?searchResultPosition=5
 
-**Quotation of the Day: In Jubilee, Britons Find Respite From Woes**\
-`Quotation of the Day for Monday, June 6, 2022.`\
-https://nytimes.com/2022/06/06/todayspaper/quotation-of-the-day-in-jubilee-britons-find-respite-from-woes.html?searchResultPosition=6
+**High California Gas Prices Rattle Democrats Ahead of Midterms**\
+`“I don’t hear anything about the other national issues we’re focusing on in Washington,” a congressman said. A driver put it succinctly: “I’m really unhappy.”`\
+https://nytimes.com/2022/06/06/us/politics/gas-prices-california-politics-democrats.html?searchResultPosition=6
 
-**No Corrections: June 6, 2022**\
-`No corrections appeared in print on Monday, June 6, 2022.`\
-https://nytimes.com/2022/06/06/pageoneplus/no-corrections-june-6-2022.html?searchResultPosition=7
+**A Broken Redistricting Process Winds Down, With No Repairs in Sight**\
+`A brutal battle over drawing district boundaries in the House of Representatives has left the two political parties roughly at parity. But no one is celebrating.`\
+https://nytimes.com/2022/06/06/us/scotus-redistricting-congress-maps.html?searchResultPosition=7
 
-**Your Monday Briefing**\
-`Britain’s Jubilee celebrations.`\
-https://nytimes.com/2022/06/06/briefing/kyiv-russia-missiles-jubilee.html?searchResultPosition=8
+**Supreme Court May Hear ‘800-Pound Gorilla’ of Election Law Cases**\
+`Next week the justices will consider whether to resolve a long-simmering dispute about the power of state legislatures in federal elections.`\
+https://nytimes.com/2022/06/06/us/politics/supreme-court-state-legislatures-elections.html?searchResultPosition=8
 
-**The (No Longer) Secret World of Surf Spots**\
-`Publicizing certain surf spots, especially ones off the beaten path, is similar to violating the first rule of Fight Club. Instagram and some new surfers have threatened that reverence.`\
-https://nytimes.com/2022/06/06/sports/secret-surf-spots.html?searchResultPosition=9
+**Democrats Can Win This Fall if They Make One Key Promise**\
+`To make the 2022 elections a referendum on Roe, Democrats have to put protecting Roe and abortion rights on the table.`\
+https://nytimes.com/2022/06/06/opinion/democrats-midterms-abortion-roe.html?searchResultPosition=9
 
-**Golden State Rebounds With Game 2 Win Over Celtics in N.B.A. Finals**\
-`After collapsing in the fourth quarter of Game 1, Golden State turned an early lead in Game 2 into a big-time victory to even the series.`\
-https://nytimes.com/2022/06/05/sports/basketball/boston-celtics-golden-state-nba-finals-game-2.html?searchResultPosition=10
+**There Has to Be a Tipping Point on Guns, Right?**\
+`Or maybe not. `\
+https://nytimes.com/2022/06/06/opinion/guns-2024-nba-finals.html?searchResultPosition=10
 
