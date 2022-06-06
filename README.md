@@ -22,19 +22,19 @@ https://nytimes.com/2022/06/06/us/cargo-ship-covid.html?searchResultPosition=5
 `Splitting a series with the high-spending Dodgers was a good start to the Mets’ West Coast trip. Dodging a few potential injuries was even better.`\
 https://nytimes.com/2022/06/06/sports/baseball/mets-dodgers.html?searchResultPosition=6
 
+**British pound and stocks rise as vote on prime minister washes over markets.**\
+`However the no-confidence vote goes, analysts see positives for getting it done.`\
+https://nytimes.com/2022/06/06/world/europe/british-pound-and-stocks-rise-as-vote-on-prime-minister-washes-over-markets.html?searchResultPosition=7
+
 **How Boris Johnson Suffered a Stunning Political Reversal**\
 `The same baffling mix of strengths and foibles that propelled Mr. Johnson’s rise have brought him low: rare political intuition, and breathtaking personal recklessness.`\
-https://nytimes.com/2022/06/06/world/europe/boris-johnson-confidence-vote.html?searchResultPosition=7
+https://nytimes.com/2022/06/06/world/europe/boris-johnson-confidence-vote.html?searchResultPosition=8
 
 **Beijing relaxes Covid measures as fears of another outbreak linger.**\
 `The Chinese capital relaxed pandemic rules at midnight on Monday, including a ban on dining in, after a partial lockdown that lasted more than a month.`\
-https://nytimes.com/2022/06/06/business/beijing-covid-rules.html?searchResultPosition=8
+https://nytimes.com/2022/06/06/business/beijing-covid-rules.html?searchResultPosition=9
 
 **Green Drags the Warriors Back Into the Fight**\
 `A fiery star tests some limits in carrying Golden State over Boston in Game 2.`\
-https://nytimes.com/2022/06/06/sports/basketball/warriors-celtics-game-2-draymond-green.html?searchResultPosition=9
-
-**Tropical Storm Alex Takes Aim at Bermuda After Flooding Florida**\
-`The storm was expected to bring rain and strong winds to Bermuda before weakening.`\
-https://nytimes.com/2022/06/06/world/americas/tropical-storm-alex-bermuda.html?searchResultPosition=10
+https://nytimes.com/2022/06/06/sports/basketball/warriors-celtics-game-2-draymond-green.html?searchResultPosition=10
 
