@@ -1,6 +1,6 @@
 **Battered by Russian Shells, a Monastery Remains Loyal to Moscow**\
 `The monks and nuns cloistered in a monastery complex in eastern Ukraine absorb daily bombardments from Russian artillery. And yet they remain loyal to the Russian Orthodox Church.`\
-https://nytimes.com/2022/06/06/world/europe/ukraine-monestary-orthodox-church-russia.html?searchResultPosition=1
+https://nytimes.com/2022/06/06/world/europe/ukraine-monastery-orthodox-church-russia.html?searchResultPosition=1
 
 **Elon Musk threatens to pull out of Twitter deal without more information about fake accounts.**\
 `In a filing, Mr. Musk’s lawyers said that Twitter was “actively resisting” his requests for more information.`\
