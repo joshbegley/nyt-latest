@@ -1,5 +1,5 @@
 **U.S. moves to seize 2 planes believed to belong to Roman Abramovich.**\
-`In new court filings, the F.B.I. said it traced the aircraft to the Russian oligarch despite the shell companies involved in their ownership.`\
+`In new court filings, the F.B.I. said it had traced the aircraft to the Russian oligarch despite the shell companies involved in their ownership.`\
 https://nytimes.com/2022/06/06/business/roman-abramovich-planes-seizure.html?searchResultPosition=1
 
 **Proud Boys Charged With Sedition in Capitol Attack**\
