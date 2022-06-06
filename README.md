@@ -2,7 +2,7 @@
 `In new court filings, the F.B.I. said it traced the aircraft to the Russian oligarch despite the shell companies involved in their ownership.`\
 https://nytimes.com/2022/06/06/business/roman-abramovich-planes-seizure.html?searchResultPosition=1
 
-**Proud Boys Charged with Sedition in Capitol Attack**\
+**Proud Boys Charged With Sedition in Capitol Attack**\
 `An amended federal indictment charged five members of the far-right group, including Enrique Tarrio, its former leader, with seditious conspiracy for their roles in the Jan. 6 assault.`\
 https://nytimes.com/2022/06/06/us/politics/proud-boys-charged-sedition-capitol-attack.html?searchResultPosition=2
 
