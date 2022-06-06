@@ -26,7 +26,7 @@ https://nytimes.com/2022/06/06/world/europe/occupied-ukraine-guerrilla-attacks.h
 `Readers discuss what the departing Meta executive’s “lean in” philosophy meant to them. Also: Sources of morality; the popularity of “Top Gun.”`\
 https://nytimes.com/2022/06/06/opinion/letters/sheryl-sandberg-working-women.html?searchResultPosition=7
 
-**A Couple’s Counselor Takes on ‘Normal Marital Hatred’**\
+**A Couples Counselor Takes On ‘Normal Marital Hatred’**\
 `In his new book, ‘Us’, Terrence Real explores how ‘enlightened self interest’ could save your relationship.`\
 https://nytimes.com/2022/06/06/well/family/terrence-real-book-relationships.html?searchResultPosition=8
 
