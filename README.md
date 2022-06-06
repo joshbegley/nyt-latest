@@ -8,7 +8,7 @@ https://nytimes.com/2022/06/06/us/politics/proud-boys-charged-sedition-capitol-a
 
 **Watch Live: Boris Johnson No-Confidence Vote Results**\
 `Conservative Party officials announce whether Boris Johnson has retained leadership of the party and his job as Britain’s prime minister.`\
-https://nytimes.com/video/world/europe/100000008384548/boris-johnson-no-confidence-vote-results-live.html?searchResultPosition=3
+https://nytimes.com/video/embedded/world/europe/100000008384548/boris-johnson-no-confidence-vote-results-live.html?searchResultPosition=3
 
 **Dozens Believed to Be Killed in Nigerian Church Attack, Officials Say**\
 `At least four gunmen stormed St. Francis Catholic Church in Owo, Nigeria, firing on worshipers celebrating mass and leaving dozens dead, according to local officials.`\
