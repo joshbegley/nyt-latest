@@ -22,7 +22,7 @@ https://nytimes.com/video/us/100000008385511/man-drowning-arizona-police.html?se
 `The judge ordered the state’s Republican-controlled Legislature to redraw the map to include a second district that gives Black voters the chance to elect a candidate of their choice.`\
 https://nytimes.com/2022/06/06/us/politics/louisiana-congressional-map.html?searchResultPosition=6
 
-**How Anonymous Is Bitcoin, Really?**\
+**How ‘Trustless’ Is Bitcoin, Really?**\
 `In myth, the cryptocurrency is egalitarian, decentralized and all but anonymous. The reality is very different, scientists have found.`\
 https://nytimes.com/2022/06/06/science/bitcoin-nakamoto-blackburn-crypto.html?searchResultPosition=7
 
