@@ -1,40 +1,40 @@
+**The Museum Was Built So No One Would Forget. Now It’s Falling Apart.**\
+`Organizers at the Monument of Heroes in the Philippines are racing to preserve documents related to the Marcos regime before the dictator’s son takes office.`\
+https://nytimes.com/2022/06/07/world/asia/philippines-martial-law-marcos-museum.html?searchResultPosition=1
+
+**A Prominent Manhattan Doctor Is Accused of Sexual Assault**\
+`Dr. Kevin M. Cahill performed abusive and unnecessary examinations, a former patient claims in a lawsuit, and pursued her romantically for years. His lawyer says the exams were appropriate.`\
+https://nytimes.com/2022/06/07/health/kevin-cahill-sexual-assault.html?searchResultPosition=2
+
+**Jan. 6 Hearings Give Democrats a Chance to Recast Midterm Message**\
+`With their majority at stake, Democrats plan to use the six high-profile hearings to refocus voters’ attention on Republicans’ role in the attack.`\
+https://nytimes.com/2022/06/07/us/politics/jan-6-hearings-tv-democrats.html?searchResultPosition=3
+
+**Don’t Believe Everything You Read About the Man in This Photo**\
+`A picture of Jordie Jordan, an online gamer, has been attached to a fake name and numerous bogus reports of his death, including from the mass shootings in Uvalde, Texas.`\
+https://nytimes.com/2022/06/07/technology/jordie-jordan-gamer-photo-fake.html?searchResultPosition=4
+
+**What to Watch for as Hochul and Top Rivals Meet in N.Y. Governor Debate**\
+`Gov. Kathy Hochul will be a target for Rep. Tom Suozzi and Jumaane Williams in the first of two debates featuring the three leading Democrats.`\
+https://nytimes.com/2022/06/07/nyregion/debate-governor-hochul-ny.html?searchResultPosition=5
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2022/06/07/crosswords/spelling-bee-forum.html?searchResultPosition=6
+
+**Eduardo Escobar ‘Adds to the Journey’ by Hitting for Cycle**\
+`A two-run triple in the ninth gave Escobar the 11th cycle in Mets history, and the team’s first since 2012. The Mets have won three in a row.`\
+https://nytimes.com/2022/06/07/sports/baseball/eduardo-escobar-cycle.html?searchResultPosition=7
+
 **Late Night Anticipates ‘America’s Got Treason’**\
 `Late-night hosts poked fun at Louie Gohmert, the Republican congressman who complained about not being able to lie to the F.B.I. about Jan. 6.`\
-https://nytimes.com/2022/06/07/arts/television/late-night-anticipates-americas-got-treason.html?searchResultPosition=1
+https://nytimes.com/2022/06/07/arts/television/late-night-anticipates-americas-got-treason.html?searchResultPosition=8
 
 **Boris Johnson Is Fatally Wounded**\
 `The prime minister’s moment of reckoning has arrived at last.`\
-https://nytimes.com/2022/06/07/opinion/boris-johnson-confidence-vote.html?searchResultPosition=2
+https://nytimes.com/2022/06/07/opinion/boris-johnson-confidence-vote.html?searchResultPosition=9
 
 **Corrections: June 7, 2022**\
 `Corrections that appeared in print on Tuesday, June 7, 2022.`\
-https://nytimes.com/2022/06/07/pageoneplus/corrections-june-7-2022.html?searchResultPosition=3
-
-**Your Tuesday Briefing**\
-`A no-confidence vote against Boris Johnson.`\
-https://nytimes.com/2022/06/07/briefing/boris-johnson-vote-ukraine-arsenal.html?searchResultPosition=4
-
-**Quotation of the Day: The Dark Side of the White-Hot Labor Market**\
-`Quotation of the Day for Tuesday, June 7, 2022.`\
-https://nytimes.com/2022/06/07/todayspaper/quotation-of-the-day-the-dark-side-of-the-white-hot-labor-market.html?searchResultPosition=5
-
-**Colorado Avalanche Sweep Edmonton Oilers to Reach Stanley Cup Finals**\
-`Colorado returned to the finals for the first time since 2001 after erasing a two-goal third-period deficit and winning in overtime on a goal by Artturi Lehkonen.`\
-https://nytimes.com/2022/06/07/sports/hockey/colorado-avalanche-edmonton-oilers-game-4-score.html?searchResultPosition=6
-
-**What to Watch in Tuesday’s Primary Elections**\
-`Crime and homelessness loom large in California, Democrats look for some rays of light in a rough year, and dozens of House races will take shape for the fall midterms.`\
-https://nytimes.com/2022/06/07/us/politics/california-new-jersey-primary-elections-today.html?searchResultPosition=7
-
-**To Find ‘Freedom,’ They Ditched the Road for the Gravel**\
-`Pick a course, invite endurance athletes, and let them ride free. No permits, police or decades of experience needed.`\
-https://nytimes.com/2022/06/07/sports/cycling/gravel-biking-unbound.html?searchResultPosition=8
-
-**What’s the Big Idea?!**\
-`Carly Schuna makes their New York Times Crossword debut.`\
-https://nytimes.com/2022/06/06/crosswords/daily-puzzle-2022-06-07.html?searchResultPosition=9
-
-**British Journalist and Indigenous Expert Are Missing in Amazon After Threats**\
-`Dom Phillips and Bruno Araújo Pereira were last seen Sunday morning traveling in a boat in the northern Brazilian state of Amazonas.`\
-https://nytimes.com/2022/06/06/world/americas/dom-phillips-bruno-araujo-pereira-missing-amazon.html?searchResultPosition=10
+https://nytimes.com/2022/06/07/pageoneplus/corrections-june-7-2022.html?searchResultPosition=10
 
