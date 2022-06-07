@@ -7,7 +7,7 @@ https://nytimes.com/video/us/politics/100000008387025/yellen-inflation-finance-c
 https://nytimes.com/2022/06/07/theater/ruth-negga-macbeth-tonys.html?searchResultPosition=2
 
 **How the Texans and a Spa Enabled Deshaun Watson’s Troubling Behavior**\
-`Watson met at least 66 women over a 17-month period, far more than previously known. He had help from the Houston Texans, including nondisclosure agreements, in making appointments.`\
+`Watson met at least 66 women for massages over a 17-month period, far more than previously known. He had help from the Houston Texans, including nondisclosure agreements, in making appointments.`\
 https://nytimes.com/2022/06/07/sports/football/deshaun-watson.html?searchResultPosition=3
 
 **Charlotte Frank, Shaper of New York City Curriculums, Dies at 93**\
