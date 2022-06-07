@@ -8,7 +8,7 @@ https://nytimes.com/2022/06/07/arts/music/cliburn-piano-competition-texas-ukrain
 
 **Dustin Johnson Resigns From PGA Tour and Commits to Rival LIV Golf**\
 `Johnson’s resignation could help him avoid a suspension or a lifetime ban from the tour’s commissioner, Jay Monahan, who has indicated that punishment on that level was a possibility.`\
-https://nytimes.com/2022/06/07/sports/golf/johnson-live-golf-pga-mickelson.html?searchResultPosition=3
+https://nytimes.com/2022/06/07/sports/golf/dustin-johnson-pga-liv-golf.html?searchResultPosition=3
 
 **Ways to View the Generation in Power**\
 `Readers respond to an essay about the boomers and older people in the government. Also: Catholicism, abortion and the Supreme Court; Ukraine and hunger.`\
