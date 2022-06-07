@@ -4,7 +4,7 @@ https://nytimes.com/2022/06/06/crosswords/daily-puzzle-2022-06-07.html?searchRes
 
 **British Journalist and Indigenous Expert Are Missing in Amazon After Threats**\
 `Dom Phillips and Bruno Araújo Pereira were last seen Sunday morning traveling in a boat in the northern Brazilian state of Amazonas.`\
-https://nytimes.com/2022/06/06/world/americas/british-journalist-missing-amazon.html?searchResultPosition=2
+https://nytimes.com/2022/06/06/world/americas/dom-phillips-bruno-araujo-pereira-missing-amazon.html?searchResultPosition=2
 
 **A Woman Who Says Bill Cosby Molested Her as a Teen Begins Testifying**\
 `Judy Huth, who is suing Mr. Cosby on sexual assault grounds in a civil case, took the stand in California to begin describing an encounter with the entertainer that took place decades ago.`\
