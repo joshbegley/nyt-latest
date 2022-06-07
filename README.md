@@ -1,6 +1,6 @@
 **A Domestic Political Fight in Sweden Gets Embroiled in Geopolitics**\
 `A move by right-wing lawmakers to remove Sweden’s justice minister has been dragged into a battle over the country’s efforts to join NATO.`\
-https://nytimes.com/2022/06/07/world/europe/a-domestic-political-fight-in-sweden-gets-embroiled-in-geopolitics.html?searchResultPosition=1
+https://nytimes.com/2022/06/07/world/europe/sweden-turkey-nato-russia-ukraine.html?searchResultPosition=1
 
 **Lucy Moss Unwinds With Songwriting and TikTok Cleaning Tutorials**\
 `The Tony Award-nominated co-director of “Six” shares the corners of the internet she haunts to help her stay productive.`\
