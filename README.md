@@ -1,40 +1,40 @@
+**How to Watch the Jan. 6 Committee Hearings**\
+`The first of several upcoming hearings by the House committee investigating the attack on the Capitol will be held on Thursday evening.`\
+https://nytimes.com/2022/06/07/us/politics/jan-6-hearings-watch-tv-channel.html?searchResultPosition=1
+
 **Iowa Primary Election Results**\
 `See full results and maps from the Iowa primary elections.`\
-https://nytimes.com/interactive/2022/06/07/us/elections/results-iowa.html?searchResultPosition=1
+https://nytimes.com/interactive/2022/06/07/us/elections/results-iowa.html?searchResultPosition=2
 
 **Mississippi Primary Election Results**\
 `See full results and maps from the Mississippi primary elections.`\
-https://nytimes.com/interactive/2022/06/07/us/elections/results-mississippi.html?searchResultPosition=2
+https://nytimes.com/interactive/2022/06/07/us/elections/results-mississippi.html?searchResultPosition=3
 
 **Montana Primary Election Results**\
 `See full results and maps from the Montana primary elections.`\
-https://nytimes.com/interactive/2022/06/07/us/elections/results-montana.html?searchResultPosition=3
+https://nytimes.com/interactive/2022/06/07/us/elections/results-montana.html?searchResultPosition=4
 
 **South Dakota Primary Election Results**\
 `See full results and maps from the South Dakota primary elections.`\
-https://nytimes.com/interactive/2022/06/07/us/elections/results-south-dakota.html?searchResultPosition=4
+https://nytimes.com/interactive/2022/06/07/us/elections/results-south-dakota.html?searchResultPosition=5
 
 **Andrée Geulen, Savior of Jewish Children in Wartime, Dies at 100**\
 `A Belgian teacher, she kept them out of the hands of Nazis, hiding them in convents, monasteries and farms. After the war, she reunited many with their parents.`\
-https://nytimes.com/2022/06/07/world/europe/andree-geulen-dead.html?searchResultPosition=5
+https://nytimes.com/2022/06/07/world/europe/andree-geulen-dead.html?searchResultPosition=6
 
 **New Mexico Primary Election Results**\
 `See full results and maps from the New Mexico primary elections.`\
-https://nytimes.com/interactive/2022/06/07/us/elections/results-new-mexico.html?searchResultPosition=6
+https://nytimes.com/interactive/2022/06/07/us/elections/results-new-mexico.html?searchResultPosition=7
 
 **San Francisco Schools Are Retiring ‘Chief.’ That’s Not as Frivolous as It Seems.**\
 `But are the sentiments of the few more important than those of the many?`\
-https://nytimes.com/2022/06/07/opinion/san-francisco-chief.html?searchResultPosition=7
+https://nytimes.com/2022/06/07/opinion/san-francisco-chief.html?searchResultPosition=8
 
 **California Governor Primary Election Results**\
 `See full results and maps from the California primary elections.`\
-https://nytimes.com/interactive/2022/06/07/us/elections/results-california-governor.html?searchResultPosition=8
+https://nytimes.com/interactive/2022/06/07/us/elections/results-california-governor.html?searchResultPosition=9
 
 **California U.S. Senate Special Election Results**\
 `See full results and maps from the California special elections.`\
-https://nytimes.com/interactive/2022/06/07/us/elections/results-california-us-senate-special.html?searchResultPosition=9
-
-**California State Controller Primary Election Results**\
-`See full results and maps from the California primary elections.`\
-https://nytimes.com/interactive/2022/06/07/us/elections/results-california-state-controller.html?searchResultPosition=10
+https://nytimes.com/interactive/2022/06/07/us/elections/results-california-us-senate-special.html?searchResultPosition=10
 
