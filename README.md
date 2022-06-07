@@ -10,7 +10,7 @@ https://nytimes.com/2022/06/07/us/politics/islamic-state-fluke-ekren.html?search
 `Observing its subject with a clear eye, this profile of Marshall Ngwa, who performs as BeBe Zahara Benet, is a breath of fresh air.`\
 https://nytimes.com/2022/06/07/movies/being-bebe-review.html?searchResultPosition=3
 
-**As the Great Salt Lake Dries Up, Utah Faces ‘An Environmental Nuclear Bomb’**\
+**As the Great Salt Lake Dries Up, Utah Faces An ‘Environmental Nuclear Bomb’**\
 `Climate change and rapid population growth are shrinking the lake, creating a bowl of toxic dust that could poison the air around Salt Lake City.`\
 https://nytimes.com/2022/06/07/climate/salt-lake-city-climate-disaster.html?searchResultPosition=4
 
