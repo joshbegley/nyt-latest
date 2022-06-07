@@ -1,6 +1,6 @@
 **Matthew McConaughey Meets Biden and Pleads for an End to Gun Violence**\
 `The Uvalde, Texas, native appeared in the White House briefing room and called for new gun control measures.`\
-https://nytimes.com/2022/06/07/business/matthew-mcconaughey-meets-biden-and-pleads-for-an-end-to-gun-violence.html?searchResultPosition=1
+https://nytimes.com/2022/06/07/business/matthew-mcconaughey-biden-gun-violence.html?searchResultPosition=1
 
 **Your Tuesday Evening Briefing**\
 `Here’s what you need to know at the end of the day.`\
