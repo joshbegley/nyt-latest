@@ -6,7 +6,7 @@ https://nytimes.com/2022/06/07/theater/dear-evan-hansen-closing-broadway.html?se
 `The war in Ukraine looms over the prestigious contest named for the pianist Van Cliburn, who was a symbol for art transcending global politics.`\
 https://nytimes.com/2022/06/07/arts/music/cliburn-piano-competition-texas-ukraine-war.html?searchResultPosition=2
 
-**Dustin Johnson Resigns from PGA Tour and Commits to Rival LIV Golf**\
+**Dustin Johnson Resigns From PGA Tour and Commits to Rival LIV Golf**\
 `Johnson’s resignation could help him avoid a suspension or a lifetime ban from the tour’s commissioner, Jay Monahan, who has indicated that punishment on that level was a possibility.`\
 https://nytimes.com/2022/06/07/sports/golf/johnson-live-golf-pga-mickelson.html?searchResultPosition=3
 
