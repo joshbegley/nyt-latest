@@ -1,40 +1,40 @@
+**Gupta Brothers, Accused of Corruption in South Africa, Are Arrested in Dubai**\
+`Atul and Rajesh Gupta had fled South Africa four years ago amid intense law enforcement scrutiny and public outrage over allegations that they facilitated the gutting of state resources.`\
+https://nytimes.com/2022/06/07/world/africa/gupta-brothers-arrest-dubai.html?searchResultPosition=1
+
+**Russia Faces Blame for Global Food Crisis**\
+`Russia’s United Nations ambassador walked out of a U.N. Security Council meeting Monday after the president of the European Council accused Russia of being “solely responsible” for the world’s food shortage.`\
+https://nytimes.com/video/world/europe/100000008385969/ukraine-russia-food-crisis-un.html?searchResultPosition=2
+
 **‘The Policeman’s Lineage’ Review: Undercover and Overcaffeinated**\
 `A clean-cut young cop goes undercover to investigate a top officer in this thriller.`\
-https://nytimes.com/2022/06/07/movies/the-policemans-lineage-review.html?searchResultPosition=1
+https://nytimes.com/2022/06/07/movies/the-policemans-lineage-review.html?searchResultPosition=3
 
 **Firefighters Unaware of Chemicals at Bangladesh Depot, Official Says**\
 `Nine firefighters were among at least 41 people killed in a blaze and a subsequent series of explosions.`\
-https://nytimes.com/2022/06/07/world/asia/bangladesh-fire-depot.html?searchResultPosition=2
+https://nytimes.com/2022/06/07/world/asia/bangladesh-fire-depot.html?searchResultPosition=4
 
 **China Tries to Keep Covid Out of Its Grueling College-Entrance Exams**\
 `Some students have to travel from locked-down areas to testing sites in special vehicles, while others might be isolated for the exam.`\
-https://nytimes.com/2022/06/07/world/asia/china-college-entrance-exams-covid.html?searchResultPosition=3
+https://nytimes.com/2022/06/07/world/asia/china-college-entrance-exams-covid.html?searchResultPosition=5
 
 **A Tax Deal, in Trouble**\
 `A global agreement to increase taxes on corporations is in jeopardy.`\
-https://nytimes.com/2022/06/07/briefing/global-minimum-tax.html?searchResultPosition=4
+https://nytimes.com/2022/06/07/briefing/global-minimum-tax.html?searchResultPosition=6
 
 **What can Biden do to bring down oil prices?**\
 `The president has “only bad options,” experts say.`\
-https://nytimes.com/2022/06/07/business/what-can-biden-do-to-bring-down-oil-prices.html?searchResultPosition=5
+https://nytimes.com/2022/06/07/business/what-can-biden-do-to-bring-down-oil-prices.html?searchResultPosition=7
 
 **Why Polling on Gun Control Gets It Wrong**\
 `In surveys, voters say they want gun safety measures. Their votes follow a different pattern.`\
-https://nytimes.com/2022/06/07/podcasts/the-daily/gun-control-polling.html?searchResultPosition=6
+https://nytimes.com/2022/06/07/podcasts/the-daily/gun-control-polling.html?searchResultPosition=8
 
 **Goodbye, Tchaikovsky and Tolstoy: Ukrainians look to ‘decolonize’ their streets.**\
 `Across the country, officials are evaluating and rechristening roads, parks and other sites bearing Russian names.`\
-https://nytimes.com/2022/06/07/world/europe/ukraine-russia-rename-streets.html?searchResultPosition=7
+https://nytimes.com/2022/06/07/world/europe/ukraine-russia-rename-streets.html?searchResultPosition=9
 
 **A Potential Loosening of New York’s Gun Restrictions Looms**\
 `The Supreme Court is poised to rule on a law that gives local officials discretion over who can carry a handgun in the state.`\
-https://nytimes.com/2022/06/07/nyregion/a-potential-loosening-of-new-yorks-gun-restrictions-looms.html?searchResultPosition=8
-
-**F.D.A. advisers will weigh in on Covid shots by Novavax, a latecomer in the vaccine race.**\
-`Clinical trials found the vaccine to work well, but the company has long struggled with manufacturing.`\
-https://nytimes.com/2022/06/07/health/novavax-covid-vaccine.html?searchResultPosition=9
-
-**In Struggling Murano, a Design Intervention**\
-`The Venetian island, famous for its glass, has long been on the wane, but 700 years of expertise is a terrible thing to squander.`\
-https://nytimes.com/2022/06/07/arts/design/murano-italy-glass-resurgence.html?searchResultPosition=10
+https://nytimes.com/2022/06/07/nyregion/a-potential-loosening-of-new-yorks-gun-restrictions-looms.html?searchResultPosition=10
 
