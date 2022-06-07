@@ -30,11 +30,11 @@ https://nytimes.com/2022/06/07/briefing/global-minimum-tax.html?searchResultPosi
 `In surveys, voters say they want gun safety measures. Their votes follow a different pattern.`\
 https://nytimes.com/2022/06/07/podcasts/the-daily/gun-control-polling.html?searchResultPosition=8
 
+**Other U.K. Prime Ministers Didn’t Last Long in Office After Surviving No-Confidence Votes**\
+`Two previous Conservative prime ministers were ultimately forced out, and one lost a landslide election two years later.`\
+https://nytimes.com/2022/06/07/world/europe/no-confidence-vote-theresa-may.html?searchResultPosition=9
+
 **Goodbye, Tchaikovsky and Tolstoy: Ukrainians look to ‘decolonize’ their streets.**\
 `Across the country, officials are evaluating and rechristening roads, parks and other sites bearing Russian names.`\
-https://nytimes.com/2022/06/07/world/europe/ukraine-russia-rename-streets.html?searchResultPosition=9
-
-**A Potential Loosening of New York’s Gun Restrictions Looms**\
-`The Supreme Court is poised to rule on a law that gives local officials discretion over who can carry a handgun in the state.`\
-https://nytimes.com/2022/06/07/nyregion/a-potential-loosening-of-new-yorks-gun-restrictions-looms.html?searchResultPosition=10
+https://nytimes.com/2022/06/07/world/europe/ukraine-russia-rename-streets.html?searchResultPosition=10
 
