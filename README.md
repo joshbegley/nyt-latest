@@ -1,5 +1,5 @@
 **Taming ‘Unacceptable’ Inflation Is Biden’s Top Priority, Yellen Says**\
-`Treasury Secretary Janet L. Yellen, facing tough questions while speaking to the Senate Finance Committee, defended the Biden administration’s pandemic spending amid rising prices.`\
+`Treasury Secretary Janet L. Yellen, facing tough questions from the Senate Finance Committee, defended the Biden administration’s pandemic spending amid rising prices.`\
 https://nytimes.com/video/us/politics/100000008387025/yellen-inflation-finance-committee.html?searchResultPosition=1
 
 **Ruth Negga Thinks Lady Macbeth Is Misunderstood**\
