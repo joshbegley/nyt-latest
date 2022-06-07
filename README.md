@@ -26,15 +26,15 @@ https://nytimes.com/2022/06/07/world/asia/china-college-entrance-exams-covid.htm
 `A global agreement to increase taxes on corporations is in jeopardy.`\
 https://nytimes.com/2022/06/07/briefing/global-minimum-tax.html?searchResultPosition=7
 
-**What can Biden do to bring down oil prices?**\
-`The president has “only bad options,” experts say.`\
-https://nytimes.com/2022/06/07/business/what-can-biden-do-to-bring-down-oil-prices.html?searchResultPosition=8
-
 **Why Polling on Gun Control Gets It Wrong**\
 `In surveys, voters say they want gun safety measures. Their votes follow a different pattern.`\
-https://nytimes.com/2022/06/07/podcasts/the-daily/gun-control-polling.html?searchResultPosition=9
+https://nytimes.com/2022/06/07/podcasts/the-daily/gun-control-polling.html?searchResultPosition=8
 
 **Goodbye, Tchaikovsky and Tolstoy: Ukrainians look to ‘decolonize’ their streets.**\
 `Across the country, officials are evaluating and rechristening roads, parks and other sites bearing Russian names.`\
-https://nytimes.com/2022/06/07/world/europe/ukraine-russia-rename-streets.html?searchResultPosition=10
+https://nytimes.com/2022/06/07/world/europe/ukraine-russia-rename-streets.html?searchResultPosition=9
+
+**A Potential Loosening of New York’s Gun Restrictions Looms**\
+`The Supreme Court is poised to rule on a law that gives local officials discretion over who can carry a handgun in the state.`\
+https://nytimes.com/2022/06/07/nyregion/a-potential-loosening-of-new-yorks-gun-restrictions-looms.html?searchResultPosition=10
 
