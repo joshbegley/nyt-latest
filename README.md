@@ -26,7 +26,7 @@ https://nytimes.com/2022/06/07/us/politics/south-dakota-how-to-vote.html?searchR
 `After college, Lily Kaplan watched her friends leave the neighborhood for cheaper rents elsewhere in the city. She stuck it out, and found a studio she loves.`\
 https://nytimes.com/2022/06/07/realestate/renters-upper-west-side.html?searchResultPosition=7
 
-**How Updates in iOS 16 and Android 13 Will Change Your Smartphone**\
+**How Updates in iOS 16 and Android 13 Will Change Your Phone**\
 `Soon, iPhone owners will be able to edit text messages, and Android owners will be able to send high-resolution photos. Many of the changes are long overdue.`\
 https://nytimes.com/2022/06/07/technology/personaltech/ios-android-software-update.html?searchResultPosition=8
 
