@@ -18,7 +18,7 @@ https://nytimes.com/2022/06/07/movies/the-policemans-lineage-review.html?searchR
 `Nine firefighters were among at least 41 people killed in a blaze and a subsequent series of explosions.`\
 https://nytimes.com/2022/06/07/world/asia/bangladesh-fire-depot.html?searchResultPosition=5
 
-**China Tries to Keep Covid Out of Its Grueling College-Entrance Exams**\
+**China Tries to Keep Covid Out of Its Grueling College Entrance Exams**\
 `Some students have to travel from locked-down areas to testing sites in special vehicles, while others might be isolated for the exam.`\
 https://nytimes.com/2022/06/07/world/asia/china-college-entrance-exams-covid.html?searchResultPosition=6
 
