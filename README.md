@@ -7,7 +7,7 @@ https://nytimes.com/2022/06/07/briefing/midterms-ukraine-caviar.html?searchResul
 https://nytimes.com/2022/06/07/opinion/global-food-crisis-russia-ukraine-war.html?searchResultPosition=2
 
 **Matthew McConaughey Calls for New Gun Control Measures**\
-`The actor, a native of Uvalde, Texas, took the lectern in the White House briefing room to remember the victims of the mass shooting in his hometown and urge bipartisan actions on gun safety measures.`\
+`The actor, a native of Uvalde, Texas, took the lectern in the White House briefing room to remember the victims of the mass shooting in his hometown and urge bipartisan action on gun safety measures.`\
 https://nytimes.com/video/us/100000008387329/matthew-mcconaughey-gun-control.html?searchResultPosition=3
 
 **New Mexico First Congressional District Primary Election Results**\
