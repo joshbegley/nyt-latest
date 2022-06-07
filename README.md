@@ -14,8 +14,8 @@ https://nytimes.com/2022/06/07/movies/being-bebe-review.html?searchResultPositio
 `Climate change and rapid population growth are shrinking the lake, creating a bowl of toxic dust that could poison the air around Salt Lake City.`\
 https://nytimes.com/2022/06/07/climate/salt-lake-city-climate-disaster.html?searchResultPosition=4
 
-**‘Dear Evan Hansen’ to End Its Broadway Run**\
-`The Tony-winning musical will close in September after suffering a double blow from the coronavirus pandemic and a poorly received film adaptation.`\
+**‘Dear Evan Hansen’ and ‘Tina’ to End Their Broadway Runs**\
+`The musicals, both of which lost steam after the pandemic shutdown, will close in late summer.`\
 https://nytimes.com/2022/06/07/theater/dear-evan-hansen-closing-broadway.html?searchResultPosition=5
 
 **Russian and Ukrainian Pianists Meet in Texas at Cliburn Competition**\
