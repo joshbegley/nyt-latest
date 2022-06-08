@@ -6,7 +6,7 @@ https://nytimes.com/2022/06/08/podcasts/the-daily/most-violence-is-not-caused-by
 `As Russian forces bear down on eastern Ukraine, a small army of volunteers is racing to bring to safety those unable to care for themselves.`\
 https://nytimes.com/2022/06/08/world/europe/ukraine-volunteers-evacuation.html?searchResultPosition=2
 
-**Car Crashes Into a Berlin Crowd, Killing 1 and Injuring at Least 8**\
+**Car Crashes Into a Berlin Crowd, Killing 1 and Injuring a Dozen**\
 `The police have arrested the driver of the car and opened an investigation into whether the crash was accidental or intentional.`\
 https://nytimes.com/2022/06/08/world/europe/berlin-car-crash.html?searchResultPosition=3
 
