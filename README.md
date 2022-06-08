@@ -11,7 +11,7 @@ https://nytimes.com/article/potluck-dessert-recipes-baking-pan.html?searchResult
 https://nytimes.com/2022/06/08/t-magazine/lauren-halsey.html?searchResultPosition=3
 
 **Miah Cerrillo, 11, who hid from the Uvalde gunman, says students must ‘have security.’**\
-`By Nicholas Bogel-Burroughs`\
+`She also described the attack to lawmakers, including watching the gunman shoot her friend and then smearing blood on herself to appear dead.`\
 https://nytimes.com/2022/06/08/us/miah-cerrillo-testimony-uvalde.html?searchResultPosition=4
 
 **N.Y.U. Names New Performance Space After Nation’s First Black Theater**\
