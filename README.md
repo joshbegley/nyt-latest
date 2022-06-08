@@ -30,7 +30,7 @@ https://nytimes.com/2022/06/08/technology/electric-scooters.html?searchResultPos
 `Hudson Canyon, an underwater gorge off the coast of New York and New Jersey, would receive permanent federal protection.`\
 https://nytimes.com/2022/06/08/climate/hudson-canyon-sanctuary-biden.html?searchResultPosition=8
 
-**A Vanishing Word in Some Activist and Medical Circles: ‘Women’**\
+**A Vanishing Word in Abortion Debate: ‘Women’**\
 `Progressive groups and medical organizations have adopted inclusive language, which has led to terms like “pregnant people” and “chestfeeding.”`\
 https://nytimes.com/2022/06/08/us/women-gender-aclu-abortion.html?searchResultPosition=9
 
