@@ -1,6 +1,6 @@
 **Monkeypox: a Guide**\
 `The latest on the new outbreak.`\
-https://nytimes.com/2022/06/08/briefing/monkeypox-a-guide.html?searchResultPosition=1
+https://nytimes.com/2022/06/08/briefing/monkeypox-guide.html?searchResultPosition=1
 
 **‘Mr. Parker’ Review: Starting Over**\
 `The protagonist of this new play by Michael McKeever steps gingerly out of grief’s stasis and into the unknown.`\
