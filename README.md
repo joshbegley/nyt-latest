@@ -1,5 +1,5 @@
 **How Gender-Neutral Language Is Shaping the Fight for Abortion Rights**\
-`Progressive groups and medical organizations have adopted inclusive language, which has lead to terms like “pregnant people” and “chestfeeding.”`\
+`Progressive groups and medical organizations have adopted inclusive language, which has led to terms like “pregnant people” and “chestfeeding.”`\
 https://nytimes.com/2022/06/08/us/women-gender-aclu-abortion.html?searchResultPosition=1
 
 **Should We Show Photos of Victims of Gun Violence?**\
