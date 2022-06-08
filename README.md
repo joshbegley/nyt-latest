@@ -14,13 +14,13 @@ https://nytimes.com/2022/06/08/realestate/easton-pa-a-gritty-river-town-being-tr
 `Eight years after the Sewol ferry disaster took the lives of 250 South Korean students, parents say they are still struggling to come to terms with the lessons the tragedy brought to bear.`\
 https://nytimes.com/2022/06/08/world/asia/south-korea-sewol-ferry-grief.html?searchResultPosition=4
 
-**Is It Finally Twilight for the Theater’s Sacred Monsters?**\
-`Many of the “great men” who helped America create its classics, its institutions and its own acting style were tyrants. We need to cut them loose.`\
-https://nytimes.com/2022/06/08/theater/men-american-theater.html?searchResultPosition=5
-
 **Living In ... Easton, Pa.**\
 `For more than a decade, the historic city has been a refuge for those who want more real estate for their money, along with lower property taxes.`\
-https://nytimes.com/slideshow/2022/06/08/realestate/living-in-easton-pa.html?searchResultPosition=6
+https://nytimes.com/slideshow/2022/06/08/realestate/living-in-easton-pa.html?searchResultPosition=5
+
+**Is It Finally Twilight for the Theater’s Sacred Monsters?**\
+`Many of the “great men” who helped America create its classics, its institutions and its own acting style were tyrants. We need to cut them loose.`\
+https://nytimes.com/2022/06/08/theater/men-american-theater.html?searchResultPosition=6
 
 **The Real Stars of the ‘Jurassic’ Films? Friends, Not Dinosaurs**\
 `When Laura Dern, Sam Neill and Jeff Goldblum reprised their roles for the new sequel, they quickly refound the chemistry they had in the 1993 blockbuster.`\
