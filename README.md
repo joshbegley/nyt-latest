@@ -1,6 +1,6 @@
 **Voters in San Francisco topple the city’s progressive district attorney, Chesa Boudin.**\
 `Mr. Boudin, who had eliminated cash bail and sought to reduce the prison population, was removed in a vote that is set to reverberate through Democratic politics across the country.`\
-https://nytimes.com/2022/06/07/us/politics/chesa-boudin-san-francisco.html?searchResultPosition=1
+https://nytimes.com/2022/06/07/us/politics/chesa-boudin-recall-san-francisco.html?searchResultPosition=1
 
 **These Are Not Larry Bird’s Celtics. And That’s Just Fine.**\
 `Trips down memory lane have grown harder as Celtics greats pass away. But the new generation is carving a memorable path of its own.`\
