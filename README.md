@@ -8,7 +8,7 @@ https://nytimes.com/2022/06/08/us/heat-wave-california-arizona-nevada.html?searc
 
 **Australia’s Baby Steps Toward Severing Ties With the Queen**\
 `The new Labor government has established a ministerial position to begin the process of making the country a republic. But the idea is far from the top of its agenda.`\
-https://nytimes.com/2022/06/08/world/australia/australias-baby-steps-toward-severing-ties-with-the-queen.html?searchResultPosition=3
+https://nytimes.com/2022/06/08/world/australia/australias-monarchy-queen.html?searchResultPosition=3
 
 **Moderna says new trial results show that a revised vaccine works better against Omicron.**\
 `The findings indicate that the updated vaccine produced a significantly stronger immune response against Omicron, but it is unclear how it will fare against future versions of the virus.`\
