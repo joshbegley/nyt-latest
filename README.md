@@ -4,7 +4,7 @@ https://nytimes.com/2022/06/08/nyregion/new-york-city-juneteenth-pride-month-eve
 
 **Much higher inflation and weaker global growth predicted in latest forecast.**\
 `“A sea of red arrows” pointing downward in the Organization for Economic Cooperation and Development forecast.`\
-https://nytimes.com/2022/06/08/business/oecd-inflation-slowing-growth.html?searchResultPosition=2
+https://nytimes.com/2022/06/08/business/oecd-economic-outlook-inflation.html?searchResultPosition=2
 
 **More Than 22 Million in Southwest Brace for Dangerous Heat**\
 `Large swaths of California, Nevada and Arizona will see temperatures rise well above 100 degrees through the weekend. Meteorologists are warning residents to prepare now.`\
