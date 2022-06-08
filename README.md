@@ -16,7 +16,7 @@ https://nytimes.com/2022/06/08/us/politics/south-dakota-referendum-medicaid.html
 
 **Brookings Institution Puts President on Leave Amid Lobbying Inquiry**\
 `Documents obtained by prosecutors indicate that John R. Allen, a retired general and the head of the prestigious think tank, secretly lobbied for Qatar and lied to investigators about it.`\
-https://nytimes.com/2022/06/08/us/politics/john-allen-brookings.html?searchResultPosition=5
+https://nytimes.com/2022/06/08/us/politics/john-allen-brookings-institution.html?searchResultPosition=5
 
 **Your Wednesday Evening Briefing**\
 `Here’s what you need to know at the end of the day.`\
