@@ -2,7 +2,7 @@
 `Hudson Canyon, an underwater gorge off the coast of New York and New Jersey, would receive permanent federal protection.`\
 https://nytimes.com/2022/06/08/climate/hudson-canyon-sanctuary-biden.html?searchResultPosition=1
 
-**How Gender-Neutral Language Is Shaping the Fight for Abortion Rights**\
+**A Vanishing Word in Some Activist and Medical Circles: “Women”**\
 `Progressive groups and medical organizations have adopted inclusive language, which has led to terms like “pregnant people” and “chestfeeding.”`\
 https://nytimes.com/2022/06/08/us/women-gender-aclu-abortion.html?searchResultPosition=2
 
