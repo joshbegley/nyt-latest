@@ -1,4 +1,4 @@
-**Weakening global growth, and much higher inflation, predicted in latest forecast.**\
+**Much higher inflation and weaker global growth predicted in latest forecast.**\
 `“A sea of red arrows” pointing downward in the Organization for Economic Cooperation and Development forecast.`\
 https://nytimes.com/2022/06/08/business/oecd-inflation-slowing-growth.html?searchResultPosition=1
 
