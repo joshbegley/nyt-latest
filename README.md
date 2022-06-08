@@ -1,6 +1,6 @@
 **The Tribeca Festival Returns in Full Bloom**\
 `The springtime extravaganza returns with another sweeping bill of fare. We trawled through the slate so you can savor the gems.`\
-https://nytimes.com/2022/06/08/movies/tribeca-film-festival-highlights.html?searchResultPosition=1
+https://nytimes.com/2022/06/08/movies/tribeca-film-festival.html?searchResultPosition=1
 
 **Adams Urges Federal Action to Combat Gun Violence**\
 `Mayor Eric Adams of New York City called for bipartisan gun control legislation, a ban on assault weapons and federal aid to help address root causes of violence.`\
@@ -16,7 +16,7 @@ https://nytimes.com/2022/06/08/arts/design/parrish-museum-director-monica-ramire
 
 **The Meme That Derailed an Executive’s Career**\
 `John Demsey made diversity Estée Lauder’s corporate pitch. An Instagram post with a racial epithet cost him his job.`\
-https://nytimes.com/2022/06/08/fashion/the-meme-that-derailed-an-executives-career.html?searchResultPosition=5
+https://nytimes.com/2022/06/08/fashion/john-demsey-meme-estee-lauder.html?searchResultPosition=5
 
 **California U.S. Senate Special Election Results**\
 `See full results and maps from the California special elections.`\
