@@ -4,7 +4,7 @@ https://nytimes.com/2022/06/08/us/oris-buckner-dead.html?searchResultPosition=1
 
 **Russia Is Racing to Cement Its Control in Southern Ukraine**\
 `The Kremlin says it has rebuilt rail and road links to Crimea, while appointing proxy officials in an effort to create facts on the ground.`\
-https://nytimes.com/2022/06/08/world/europe/russia-is-racing-to-cement-its-control-in-southern-ukraine.html?searchResultPosition=2
+https://nytimes.com/2022/06/08/world/europe/russia-ukraine-crimea-canal.html?searchResultPosition=2
 
 **Russia Blames Ukraine for Global Food Crisis**\
 `Russia’s foreign minister, Sergey V. Lavrov, downplayed the extent of the global food crisis and placed the blame on Ukraine, during talks with Turkey’s foreign minister.`\
