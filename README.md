@@ -1,40 +1,40 @@
-**The Pandemic Crushed Teachers. After Uvalde, They Wonder ‘What More?’**\
-`Teachers were already grappling with adrift students and political fights. After the mass shooting in a Texas elementary school, many wondered how much more they had left to give.`\
-https://nytimes.com/2022/06/08/us/teachers-uvalde-shooting-grief.html?searchResultPosition=1
+**House Hunting in Canada: A Victorian Italianate Jewel Outside Toronto**\
+`Rising interest rates are beginning to make an impact on the housing market in Canada’s biggest city, with sales slowing and prices dipping.`\
+https://nytimes.com/2022/06/08/realestate/toronto-canada-house-hunting.html?searchResultPosition=1
 
-**Black Developers Elevate Community Needs in Major Projects**\
-`In multibillion-dollar projects around the nation, Black builders are investing in neighborhoods through commitments to inclusion, affordable housing and diversity hiring.`\
-https://nytimes.com/2022/06/08/business/diversity-developers-real-estate.html?searchResultPosition=2
+**A 19th-Century Brick Tower in Ontario**\
+`This four-bedroom brick house from 1875, on a hill in the historic town of Port Hope, an hour east of Toronto, is on the market for $1.9 million.`\
+https://nytimes.com/slideshow/2022/06/08/realestate/a-19th-century-brick-tower-in-ontario.html?searchResultPosition=2
 
-**How Jared Kushner Washed His Hands of Donald Trump Before Jan. 6**\
-`Mr. Kushner’s role in the final months of the Trump White House could come into sharp relief once the committee investigating the attack on the Capitol opens hearings.`\
-https://nytimes.com/2022/06/08/us/politics/jared-kushner-trump-jan-6.html?searchResultPosition=3
+**Easton, Pa.: A Gritty River Town Being Transformed**\
+`For more than a decade, this historic city has been a refuge for those who want more real estate for their money, along with lower property taxes.`\
+https://nytimes.com/2022/06/08/realestate/easton-pa-a-gritty-river-town-being-transformed.html?searchResultPosition=3
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/06/08/crosswords/spelling-bee-forum.html?searchResultPosition=4
+**The Country Has Moved On, but Their Grief Has No End**\
+`Eight years after the Sewol ferry disaster took the lives of 250 South Korean students, parents say they are still struggling to come to terms with the lessons the tragedy brought to bear.`\
+https://nytimes.com/2022/06/08/world/asia/south-korea-sewol-ferry-grief.html?searchResultPosition=4
 
-**Train Crash in Iran Kills at Least 17**\
-`There were fears that the death toll could rise as rescuers searched the train cars after the deadly accident, which took place about 340 miles southeast of Tehran.`\
-https://nytimes.com/2022/06/08/world/middleeast/iran-train-crash.html?searchResultPosition=5
+**Is It Finally Twilight for the Theater’s Sacred Monsters?**\
+`Many of the “great men” who helped America create its classics, its institutions and its own acting style were tyrants. We need to cut them loose.`\
+https://nytimes.com/2022/06/08/theater/men-american-theater.html?searchResultPosition=5
 
-**Who won and who lost in Tuesday’s primary elections.**\
-`The recall of San Francisco’s district attorney and the Los Angeles mayor’s race drew the most attention, but several other contests were decided, too.`\
-https://nytimes.com/2022/06/08/us/politics/california-primaries-winners-losers.html?searchResultPosition=6
+**Living In ... Easton, Pa.**\
+`For more than a decade, the historic city has been a refuge for those who want more real estate for their money, along with lower property taxes.`\
+https://nytimes.com/slideshow/2022/06/08/realestate/living-in-easton-pa.html?searchResultPosition=6
 
-**Katie Porter will face an Orange County G.O.P. stalwart, Scott Baugh, in the fall.**\
-`Ms. Porter, widely seen as a future Senate contender, would have her shine dimmed by a loss in a closely watched House race.`\
-https://nytimes.com/2022/06/08/us/politics/katie-porter-scott-baugh-california.html?searchResultPosition=7
+**The Real Stars of the ‘Jurassic’ Films? Friends, Not Dinosaurs**\
+`When Laura Dern, Sam Neill and Jeff Goldblum reprised their roles for the new sequel, they quickly refound the chemistry they had in the 1993 blockbuster.`\
+https://nytimes.com/2022/06/08/movies/jurassic-world-laura-dern-jeff-goldblum.html?searchResultPosition=7
 
-**Stephen Colbert’s ‘Late Show’ to Go Live After Jan. 6 Hearings**\
-`“They are destined to go down in the annals of live TV like the Watergate hearings, the moon landing, and the time Walter Cronkite was swallowed by a python,” Colbert said.`\
-https://nytimes.com/2022/06/08/arts/television/stephen-colberts-late-show-to-go-live-after-jan-6-hearings.html?searchResultPosition=8
+**U.S. Lacks a Clear Picture of Ukraine’s War Strategy, Officials Say**\
+`Intelligence agencies know far more about Russia’s military, even as the United States ships billions of dollars in weapons to the Ukrainians.`\
+https://nytimes.com/2022/06/08/us/politics/ukraine-war-us-intelligence.html?searchResultPosition=8
 
-**Quotation of the Day: A Year That Put Teachers at the Breaking Point.**\
-`Quotation of the Day for Wednesday 8, 2022.`\
-https://nytimes.com/2022/06/08/todayspaper/quotation-of-the-day-a-year-that-put-teachers-at-the-breaking-point.html?searchResultPosition=9
+**How Safe Are Systems Like Tesla’s Autopilot? No One Knows.**\
+`Automakers and technology companies say they are making driving safer, but verifying these claims is difficult.`\
+https://nytimes.com/2022/06/08/technology/tesla-autopilot-safety-data.html?searchResultPosition=9
 
-**Corrections: June 8, 2022**\
-`Corrections that appeared in print on Wednesday, June 8, 2022.`\
-https://nytimes.com/2022/06/08/pageoneplus/corrections-june-8-2022.html?searchResultPosition=10
+**Trader Joe’s Workers File to Hold Company’s First Union Election**\
+`The workers, at a store in western Massachusetts, cited health and safety concerns and cuts to benefits at the grocery chain.`\
+https://nytimes.com/2022/06/08/business/economy/trader-joes-union.html?searchResultPosition=10
 
