@@ -6,13 +6,13 @@ https://nytimes.com/2022/06/08/us/military-plane-crash-california.html?searchRes
 `The musical, which opened in 2017, is the third to announce a closing in two days, as many shows struggle in a pandemic-softened marketplace.`\
 https://nytimes.com/2022/06/08/theater/come-from-away-broadway-closing.html?searchResultPosition=2
 
-**How South Dakota Voters Won a Power Struggle With G.O.P. Legislators**\
-`The state roundly rejected a proposal, meant to block Medicaid expansion, that would have reduced voters’ ability to direct policy. It was just the latest clash between voters and state legislatures.`\
-https://nytimes.com/2022/06/08/us/politics/south-dakota-referendum-medicaid.html?searchResultPosition=3
-
 **The Jan. 6 Committee Has Already Blown It**\
 `It needs to safeguard the next election, not relive the last one.`\
-https://nytimes.com/2022/06/08/opinion/the-jan-6-committee-has-already-blown-it.html?searchResultPosition=4
+https://nytimes.com/2022/06/08/opinion/the-jan-6-committee-has-already-blown-it.html?searchResultPosition=3
+
+**How South Dakota Voters Won a Power Struggle With G.O.P. Legislators**\
+`The state roundly rejected a proposal, meant to block Medicaid expansion, that would have reduced voters’ ability to direct policy. It was just the latest clash between voters and state legislatures.`\
+https://nytimes.com/2022/06/08/us/politics/south-dakota-referendum-medicaid.html?searchResultPosition=4
 
 **Brookings Institution Puts President on Leave Amid Lobbying Inquiry**\
 `Documents obtained by prosecutors indicate that John R. Allen, a retired general and the head of the prestigious think tank, secretly lobbied for Qatar and lied to investigators about it.`\
