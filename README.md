@@ -1,6 +1,6 @@
 **Travelers Ask, Cash, What’s That?**\
 `In a transition hastened by the pandemic, increasingly you can travel abroad and barely ever handle a physical bill or coin, whether pounds, kroner or euros. A guide to going cashless overseas.`\
-https://nytimes.com/2022/06/08/travel/travel-cashless.html?searchResultPosition=1
+https://nytimes.com/2022/06/08/travel/travel-cash-currency-conversion.html?searchResultPosition=1
 
 **He’s Not That Gary Payton. But He’s Not Not Him Either.**\
 `Gary Payton II has traces of his father’s tenacity on defense, but he’s making his own way through the N.B.A. with Golden State.`\
