@@ -10,7 +10,7 @@ https://nytimes.com/2022/06/08/business/dealbook/lawrence-d-ackman-dead.html?sea
 `Moscow is trying to deepen its hold on occupied Ukrainian territory in the south.`\
 https://nytimes.com/2022/06/08/briefing/russia-crimea-land-bridge-asia.html?searchResultPosition=3
 
-**Oris Buckner, Detective Who Blew the Whistle on Police Abuse, Dies at 70**\
+**Oris Buckner, Detective Who Blew Whistle on Police Abuse, Dies at 70**\
 `The only Black man on the New Orleans homicide squad, he provided key testimony in one of the city’s most notorious civil rights cases.`\
 https://nytimes.com/2022/06/08/us/oris-buckner-dead.html?searchResultPosition=4
 
