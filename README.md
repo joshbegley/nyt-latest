@@ -1,5 +1,5 @@
 **Military Plane Carrying 5 Marines Crashes in California, Officials Say**\
-`It was not immediately clear how many survived the crash, an official said. The plane, an MV-22B Osprey that belonged to 3rd Marine Aircraft Wing, crashed in an area that is not heavily populated.`\
+`It was not immediately clear how many survived the crash, an official said. The plane, an MV-22B Osprey that belonged to the 3rd Marine Aircraft Wing, crashed in a remote area 100 miles east of San Diego.`\
 https://nytimes.com/2022/06/08/us/military-plane-crash-california.html?searchResultPosition=1
 
 **‘Come From Away’ to Close, the Latest Broadway Show to End Run**\
