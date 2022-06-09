@@ -1,4 +1,4 @@
-**Russia Opens 1,100 Cases Against Ukrainian P.O.W.’s, Raising Fears of Show Trials**\
+**Russia Opens 1,100 Cases Against Ukrainian P.O.W.s, Raising Fears of Show Trials**\
 `Announcing the invasion in February, Vladimir Putin said Ukrainians would be prosecuted for “blood crimes.” Moscow is now making good on that vow.`\
 https://nytimes.com/2022/06/09/world/europe/russia-trials-ukrainian-soldiers.html?searchResultPosition=1
 
