@@ -4,7 +4,7 @@ https://nytimes.com/2022/06/09/science/asteroid-ryugu-hayabusa2.html?searchResul
 
 **For Browns, Deshaun Watson Is a $230 Million Question Mark**\
 `New revelations about Watson, who has been accused of sexual misconduct with women he hired for massages, have drawn only silence from the Browns but have left some of the team’s fans in anguish.`\
-https://nytimes.com/2022/06/09/sports/football/for-browns-deshaun-watson-is-a-230-million-question-mark.html?searchResultPosition=2
+https://nytimes.com/2022/06/09/sports/football/deshaun-watson-browns.html?searchResultPosition=2
 
 **More Than Fjords: A New Museum to Put Oslo on the Map**\
 `City administrators hope Norway’s new National Museum will help Oslo, and the rest of the country, step out of its Scandinavian neighbors’ shadows.`\
