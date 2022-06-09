@@ -1,4 +1,4 @@
-**Starbucks’s C.E.O. Schultz: ‘I don’t know if we can keep our bathrooms open.’**\
+**Starbucks’s C.E.O. Howard Schultz: ‘I don’t know if we can keep our bathrooms open.’**\
 `Speaking at The Times’s DealBook D.C. policy forum, Howard Schultz said safety concerns have prompted Starbucks to reconsider its 2018 policy on customer use of restrooms.`\
 https://nytimes.com/2022/06/09/business/dealbook/howard-schultz-starbucks-bathroom.html?searchResultPosition=1
 
