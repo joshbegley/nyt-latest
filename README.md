@@ -24,7 +24,7 @@ https://nytimes.com/2022/06/08/well/eat/diet-skin-cancer-risk-melanoma.html?sear
 
 **As Survivors Demand Action, House Passes Gun Bill Doomed in the Senate**\
 `On a day of wrenching testimony from victims of the school shooting in Uvalde, Democrats pushed through a gun control package facing solid G.O.P. opposition and no path in the Senate.`\
-https://nytimes.com/2022/06/08/us/politics/house-gun-violence-hearing.html?searchResultPosition=7
+https://nytimes.com/2022/06/08/us/politics/gun-violence-bill-uvalde-buffalo.html?searchResultPosition=7
 
 **Military Plane Carrying 5 Marines Crashes in California, Officials Say**\
 `It was not immediately clear how many survived the crash, an official said. The plane, an MV-22B Osprey that belonged to the 3rd Marine Aircraft Wing, crashed in a remote area 100 miles east of San Diego.`\
