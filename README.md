@@ -6,7 +6,7 @@ https://nytimes.com/video/world/americas/100000008390418/biden-americas-summit-r
 `The Nigerian-born British fashion designer examines the many ways and meanings of pattern in everything from wallpaper to ceremonial hats.`\
 https://nytimes.com/2022/06/09/arts/design/duro-olowu-artist-cooper-hewitt.html?searchResultPosition=2
 
-**Putin the Great? Russia’s president Likens Himself to Famous Czar.**\
+**Putin the Great? Russia’s President Likens Himself to Famous Czar.**\
 `Vladimir Putin likened his goals in Ukraine to the conquests of Peter the Great.`\
 https://nytimes.com/2022/06/09/world/europe/putin-peter-the-great.html?searchResultPosition=3
 
