@@ -30,7 +30,7 @@ https://nytimes.com/2022/06/09/arts/music/grammy-awards-new-categories.html?sear
 `A reader is upset that her brother and each of his children will inherit the same amount as she does.`\
 https://nytimes.com/2022/06/09/style/parents-estate-planning.html?searchResultPosition=8
 
-**Deshaun Watson’s Case Tests the N.F.L.’s Resolve, and its Values**\
+**Deshaun Watson’s Case Tests the N.F.L.’s Resolve, and Its Values**\
 `Given the volume and seriousness of the allegations against the Cleveland Browns quarterback, our columnist wonders if an N.F.L. suspension is enough of a punishment.`\
 https://nytimes.com/2022/06/09/sports/football/the-deshaun-watson-nfl-sexual-misconduct.html?searchResultPosition=9
 
