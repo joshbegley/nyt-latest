@@ -26,7 +26,7 @@ https://nytimes.com/2022/06/09/briefing/capitol-hearings-uvalde-shooting-beer-bo
 `Mr. Raskin was the lead impeachment manager in Mr. Trump’s second impeachment trial.`\
 https://nytimes.com/2022/06/09/us/jamie-raskin-committee-member-jan-6.html?searchResultPosition=7
 
-**Yellen says the U.S. is likely to avoid a recession.**\
+**Janet Yellen says the U.S. is likely to avoid a recession.**\
 `While the Treasury secretary predicted rising gas prices, she said strong employment and household finances would avert an economic downturn.`\
 https://nytimes.com/2022/06/09/business/dealbook/yellen-recession-us.html?searchResultPosition=8
 
