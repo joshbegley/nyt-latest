@@ -22,7 +22,7 @@ https://nytimes.com/2022/06/09/nyregion/nyc-masks-toddlers.html?searchResultPosi
 `Authorities are investigating whether the bank violated federal anti-discrimination laws by conducting sham interviews of minority candidates.`\
 https://nytimes.com/2022/06/09/business/wells-fargo-fake-interviews-investigation.html?searchResultPosition=6
 
-**U.S. Accelerates Expulsions of Haitian Migrants in May**\
+**U.S. Accelerated Expulsions of Haitian Migrants in May**\
 `The uptick has rekindled criticism that the Biden administration treats Black migrants differently than others, an allegation it denies.`\
 https://nytimes.com/2022/06/09/us/politics/haiti-migrants-biden.html?searchResultPosition=7
 
