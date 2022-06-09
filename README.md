@@ -27,7 +27,7 @@ https://nytimes.com/2022/06/09/us/uvalde-shooting-police-response.html?searchRes
 https://nytimes.com/2022/06/09/arts/music/ingram-marshall-remembered-by-timo-andres.html?searchResultPosition=7
 
 **DealBook DC Summit**\
-`Follow along as Andrew Ross Sorkin welcomes Treasury Secretary Janet Yellen, Howard Schultz of Starbucks, Senator Chris Murphy of Connecticut and prominent Washington reporters.`\
+`The DealBook D.C. policy forum brings together leaders to discuss how national policy should evolve.`\
 https://nytimes.com/video/business/dealbook/100000008389185/dealbookdc-2022.html?searchResultPosition=8
 
 **Biden Challenges Business Leaders to Invest in Latin America**\
