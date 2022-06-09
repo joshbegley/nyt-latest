@@ -1,6 +1,6 @@
 **With Elon Musk, the Drama Is the Point**\
 `Will he buy Twitter? Nobody knows — but what does it matter, as long as you keep paying attention?`\
-https://nytimes.com/2022/06/09/opinion/with-elon-musk-the-drama-is-the-point.html?searchResultPosition=1
+https://nytimes.com/2022/06/09/opinion/elon-musk-twitter.html?searchResultPosition=1
 
 **Viewing the Civil Rights Movement Through Children’s Books**\
 `“Picture the Dream,” on display at the New-York Historical Society, shows that children, far from being mere witnesses to the civil rights movement, have played central roles in it.`\
