@@ -6,8 +6,8 @@ https://nytimes.com/2022/06/09/briefing/capitol-hearings-uvalde-shooting-beer-bo
 `Twenty-one state legislators joined the crowds in Washington as they sought to overturn the 2020 election. For some, it was a ticket to grass-roots stardom on the right. For others, it was a political dead end.`\
 https://nytimes.com/2022/06/09/us/politics/jan-6-republican-lawmakers.html?searchResultPosition=2
 
-**An excerpt from Chairman Thompson’s opening statement.**\
-`“We can’t sweep what happened under the rug,” Representative Bennie Thompson says in an excerpt from his opening statement.`\
+**Read an excerpt from the committee chairman’s opening statement.**\
+`“We can’t sweep what happened under the rug,” Representative Bennie Thompson of Mississippi is expected to say in his opening statement.`\
 https://nytimes.com/2022/06/09/us/bennie-thompsons-opening-statement-jan-6.html?searchResultPosition=3
 
 **Starbucks’s C.E.O. Howard Schultz: ‘I don’t know if we can keep our bathrooms open.’**\
