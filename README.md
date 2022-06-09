@@ -1,6 +1,6 @@
 **Watch Live: Biden Delivers Remarks to CEOs at Summit of the Americas**\
 `President Biden addresses business leaders at the IV CEO Summit of the Americas in Los Angeles.`\
-https://nytimes.com/video/world/americas/100000008390599/biden-iv-ceo-americas-summit.html?searchResultPosition=1
+https://nytimes.com/video/embedded/world/americas/100000008390599/biden-iv-ceo-americas-summit.html?searchResultPosition=1
 
 **Asteroid Samples May ‘Rewrite the Chemistry of the Solar System’**\
 `The flecks of rock were brought back to Earth by the Japanese space mission Hayabusa2 in December 2020.`\
