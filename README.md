@@ -12,7 +12,7 @@ https://nytimes.com/2022/06/09/us/california-mexican-church-abuse.html?searchRes
 
 **The U.S. and Latin American countries will commit to receive more migrants.**\
 `A joint declaration is expected to be issued Friday meant to address surging migration rates that have affected nations throughout the region.`\
-https://nytimes.com/2022/06/09/world/americas/summit-migrants-declaration.html?searchResultPosition=4
+https://nytimes.com/2022/06/09/world/americas/summit-migrants-latin-america.html?searchResultPosition=4
 
 **A War Correspondent’s View**\
 `We talk to Carlotta Gall about the brutal fight in the east.`\
