@@ -1,5 +1,5 @@
 **Suspected Arson Fire Kills at Least 7 in South Korea**\
-`A 50-year-old man who died in the blaze, at a law firm’s offices in the city of Daegu, was suspected of setting off the explosion that started it, the police said.`\
+`A 50-year-old man was suspected of setting off the explosion that started the blaze at a law firm’s office in the city of Daegu, the police said. He is believed to have died in the fire.`\
 https://nytimes.com/2022/06/09/world/asia/south-korea-fire-daegu.html?searchResultPosition=1
 
 **Quotation of the Day: Back to the Office? Does ‘Never’ Work for You?**\
