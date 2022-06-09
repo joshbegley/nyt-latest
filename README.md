@@ -1,40 +1,40 @@
+**European Central Bank prepares for its first interest rate increase in 11 years.**\
+`After a decade of low inflation, the bank is facing the highest rate of price increases since the creation of the euro currency.`\
+https://nytimes.com/2022/06/09/business/ecb-interest-rate-increase.html?searchResultPosition=1
+
+**What Bosses Lost in the Fight Against Empty Offices: Leverage**\
+`Employer plans have played out like a game of chicken. Now workers are rebelling outright, and executives are trying everything to make the office worth it.`\
+https://nytimes.com/2022/06/09/business/return-to-work-office-plans.html?searchResultPosition=2
+
+**Inside Playful Photo Shoots**\
+`Three New York Times Magazine photo editors share their tips for creative captures.`\
+https://nytimes.com/2022/06/09/insider/weird-photo-shoots.html?searchResultPosition=3
+
+**Save Your Face From the Sun**\
+`In the market for a good sunscreen but baffled by the array of new products? Here are some factors to consider.`\
+https://nytimes.com/2022/06/09/style/save-your-face-from-the-sun.html?searchResultPosition=4
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2022/06/09/crosswords/spelling-bee-forum.html?searchResultPosition=5
+
 **Are Jan. 6 Hearings Flashy Enough for Prime Time? Late Night Isn’t Sure.**\
 `“Hanging over the hearings is one question that could define the future of our republic: Who cares?” Stephen Colbert said on Wednesday.`\
-https://nytimes.com/2022/06/09/arts/television/jan-6-hearings-late-night.html?searchResultPosition=1
+https://nytimes.com/2022/06/09/arts/television/jan-6-hearings-late-night.html?searchResultPosition=6
 
 **Suspected Arson Fire Kills at Least 7 in South Korea**\
 `A 50-year-old man was suspected of setting off the explosion that started the blaze at a law firm’s office in the city of Daegu, the police said. He is believed to have died in the fire.`\
-https://nytimes.com/2022/06/09/world/asia/south-korea-fire-daegu.html?searchResultPosition=2
+https://nytimes.com/2022/06/09/world/asia/south-korea-fire-daegu.html?searchResultPosition=7
 
 **Quotation of the Day: Back to the Office? Does ‘Never’ Work for You?**\
 `Quotation of the Day for Thursday, June 9, 2022.`\
-https://nytimes.com/2022/06/09/todayspaper/quotation-of-the-day-back-to-the-office-does-never-work-for-you.html?searchResultPosition=3
+https://nytimes.com/2022/06/09/todayspaper/quotation-of-the-day-back-to-the-office-does-never-work-for-you.html?searchResultPosition=8
 
 **Corrections: June 9, 2022**\
 `Corrections that appeared in print on Thursday, June 9, 2022.`\
-https://nytimes.com/2022/06/09/pageoneplus/corrections-june-9-2022.html?searchResultPosition=4
+https://nytimes.com/2022/06/09/pageoneplus/corrections-june-9-2022.html?searchResultPosition=9
 
 **The Door Between Russia and America Is Slamming Shut**\
 `The post-totalitarian dream of a peaceful, friendly future is over.`\
-https://nytimes.com/2022/06/09/opinion/russia-america-culture-putin.html?searchResultPosition=5
-
-**An Exodus From the City’s Public Defense Offices**\
-`Hundreds of lawyers have left over the past year, saying they are undervalued and overworked.`\
-https://nytimes.com/2022/06/09/nyregion/public-defenders-attorneys.html?searchResultPosition=6
-
-**Your Thursday Briefing**\
-`Russia cements its grip on southern Ukraine.`\
-https://nytimes.com/2022/06/09/briefing/ukraine-infrastructure-omicron-berlin.html?searchResultPosition=7
-
-**Lina Khan, a Big Tech Critic, Tries Answering Her Own Detractors**\
-`In an interview, the chair of the Federal Trade Commission laid out some of her plans now that she has a Democratic majority at the agency.`\
-https://nytimes.com/2022/06/09/technology/lina-khan-ftc.html?searchResultPosition=8
-
-**Boston Celtics Withstand Stephen Curry for Game 3 Win in N.B.A. Finals**\
-`Golden State’s Curry had 31 points, including six 3-pointers, but Jaylen Brown, Marcus Smart and Jayson Tatum had big games of their own for Boston.`\
-https://nytimes.com/2022/06/08/sports/basketball/boston-celtics-golden-state-nba-finals-game-3.html?searchResultPosition=9
-
-**At Summit of Americas, Biden Pledges U.S. Help on Latin American Problems**\
-`Opening the three-day summit, the president delivered a version of his domestic economic pitch, urging governments to invest in workers and the middle class.`\
-https://nytimes.com/2022/06/08/us/politics/biden-summit-americas.html?searchResultPosition=10
+https://nytimes.com/2022/06/09/opinion/russia-america-culture-putin.html?searchResultPosition=10
 
