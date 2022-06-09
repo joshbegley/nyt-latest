@@ -1,40 +1,40 @@
-**A Homecoming, of Sorts, for Viennese Plays**\
-`Two recent British dramas with Austrian roots made it to Vienna this season: “Leopoldstadt,” by Tom Stoppard, and Robert Icke’s “The Doctor.”`\
-https://nytimes.com/2022/06/09/theater/leopoldtstadt-vienna.html?searchResultPosition=1
+**We Need Hope to Combat Violence. That Won’t Arrive Without Action.**\
+`To adequately address violence, we need to take stock of everything at once.`\
+https://nytimes.com/2022/06/09/opinion/shootings-domestic-violence.html?searchResultPosition=1
 
-**‘This Is Uncomfortable’: Saudi Arabia Upends Genteel World of Pro Golf**\
-`By promising top players multimillion-dollar paydays to join its new series, the oil-rich kingdom is attempting what amounts to a hostile takeover of a lucrative sport.`\
-https://nytimes.com/2022/06/09/sports/golf/liv-golf-pga-tour.html?searchResultPosition=2
+**Once a Literary Snob, Chris Pavone Learned From the Experts**\
+`The best-selling author crossed paths with John Grisham and Pat Conroy early in his career. Here’s what they taught him.`\
+https://nytimes.com/2022/06/09/books/review/two-nights-in-lisbon-chris-pavone.html?searchResultPosition=2
 
-**European Central Bank prepares for its first interest rate increase in 11 years.**\
-`After a decade of low inflation, the bank is facing the highest rate of price increases since the creation of the euro currency.`\
-https://nytimes.com/2022/06/09/business/ecb-interest-rate-increase.html?searchResultPosition=3
+**Le Mans Is Almost 100. The Teenage Josh Pierson Hopes to Conquer It.**\
+`At 16, he is about to become the youngest driver to ever compete in the race.`\
+https://nytimes.com/2022/06/09/sports/autoracing/josh-pierson-le-mans.html?searchResultPosition=3
 
-**What Bosses Lost in the Fight Against Empty Offices: Leverage**\
-`Employer plans have played out like a game of chicken. Now workers are rebelling outright, and executives are trying everything to make the office worth it.`\
-https://nytimes.com/2022/06/09/business/return-to-work-office-plans.html?searchResultPosition=4
+**Charging Decision Expected in Michigan Police Killing of Black Man**\
+`Patrick Lyoya was fatally shot by a white Grand Rapids officer during a traffic stop, renewing a national debate about police conduct and use of force.`\
+https://nytimes.com/2022/06/09/us/patrick-lyoya-grand-rapids-shooting-charging-decision.html?searchResultPosition=4
 
-**Inside Playful Photo Shoots**\
-`Three New York Times Magazine photo editors share their tips for creative captures.`\
-https://nytimes.com/2022/06/09/insider/weird-photo-shoots.html?searchResultPosition=5
+**Jump in Mortgage Rates Could Add $100,000 to Housing Costs**\
+`With interest rates at 5 percent, borrowers could pay thousands in extra costs over the lifetime of a 30-year home loan, a report shows.`\
+https://nytimes.com/2022/06/09/realestate/mortgage-rates-housing-costs.html?searchResultPosition=5
 
-**Save Your Face From the Sun**\
-`In the market for a good sunscreen but baffled by the array of new products? Here are some factors to consider.`\
-https://nytimes.com/2022/06/09/style/save-your-face-from-the-sun.html?searchResultPosition=6
+**Abortion Didn’t Feel Like an Option. Neither Did Motherhood.**\
+`At 19, Merritt Tierce found herself unexpectedly pregnant and facing what felt like an impossible choice.`\
+https://nytimes.com/2022/06/09/opinion/first-person-merritt-tierce.html?searchResultPosition=6
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/06/09/crosswords/spelling-bee-forum.html?searchResultPosition=7
+**Will Prime Time Undermine or Elevate the Jan. 6 Hearings?**\
+`Our panelists discuss how televising the House committee sessions could shape the long-haul defense of democracy.`\
+https://nytimes.com/2022/06/09/opinion/sway-kara-swisher-david-axelrod-preet-bharara-sarah-longwell.html?searchResultPosition=7
 
-**Are Jan. 6 Hearings Flashy Enough for Prime Time? Late Night Isn’t Sure.**\
-`“Hanging over the hearings is one question that could define the future of our republic: Who cares?” Stephen Colbert said on Wednesday.`\
-https://nytimes.com/2022/06/09/arts/television/jan-6-hearings-late-night.html?searchResultPosition=8
+**Hundreds Have Left N.Y. Public Defender Offices Over Low Pay**\
+`Lawyers at public defender services have said they are overworked and are facing a hard choice between making a living and making sure justice is served.`\
+https://nytimes.com/2022/06/09/nyregion/nyc-public-defenders-pay.html?searchResultPosition=8
 
-**Suspected Arson Fire Kills at Least 7 in South Korea**\
-`A man in his 50s was suspected of setting off the explosion that started the blaze at a law firm’s office in the city of Daegu, the police said. He is believed to have died in the fire.`\
-https://nytimes.com/2022/06/09/world/asia/south-korea-fire-daegu.html?searchResultPosition=9
+**Biden Administration to Set Rules of the Road for Charging Electric Vehicles**\
+`Proposed regulations would require charging stations built with federal dollars to be located no more than 50 miles apart.`\
+https://nytimes.com/2022/06/09/climate/electric-vehicles-charging-stations.html?searchResultPosition=9
 
-**Quotation of the Day: Back to the Office? Does ‘Never’ Work for You?**\
-`Quotation of the Day for Thursday, June 9, 2022.`\
-https://nytimes.com/2022/06/09/todayspaper/quotation-of-the-day-back-to-the-office-does-never-work-for-you.html?searchResultPosition=10
+**Jan. 6 Hearings Will Put Trump at the Center of Plot That Resulted in Capitol Riot**\
+`The House panel investigating the attack will lead off its public sessions with video testimony from people close to the former president, and footage revealing the role of the Proud Boys.`\
+https://nytimes.com/2022/06/09/us/politics/jan-6-hearings-will-put-trump-at-the-center-of-plot-that-resulted-in-capitol-riot.html?searchResultPosition=10
 
