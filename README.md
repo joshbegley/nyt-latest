@@ -1,5 +1,5 @@
 **Biden Welcomes Leaders to Summit of the Americas**\
-`President Biden called for regional collaboration during the summit’s opening ceremony, which convened in Los Angeles, despite a boycott of the meeting by key Mexican and Central American leaders.`\
+`President Biden called for regional collaboration during the opening ceremony of the summit, which convened in Los Angeles despite a boycott of the gathering by several key leaders.`\
 https://nytimes.com/video/world/americas/100000008390418/biden-americas-summit-remarks.html?searchResultPosition=1
 
 **Duro Olowu Excavates Pattern at the Cooper Hewitt**\
