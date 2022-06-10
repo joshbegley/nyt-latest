@@ -32,7 +32,7 @@ https://nytimes.com/2022/06/10/books/review/katy-tur-by-the-book-interview.html?
 
 **An ‘Ugly’ Inflation Report Upended Hopes That Price Gains Would Ease**\
 `Investors and economists had expected to see some moderation in inflation. Instead, prices accelerated again in May, delivering an unwanted surprise.`\
-https://nytimes.com/2022/06/10/business/an-ugly-inflation-report-upended-hopes-that-price-gains-would-ease.html?searchResultPosition=9
+https://nytimes.com/2022/06/10/business/inflation-report-price-gains-biden.html?searchResultPosition=9
 
 **After a Political Storm, Gay Days Return to Disney**\
 `An L.G.B.T.Q. tradition at Disney World took on new significance this year, when Disney was ensnared in a heated cultural debate.`\
