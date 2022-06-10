@@ -26,15 +26,15 @@ https://nytimes.com/2022/06/09/opinion/crime-and-political-punishment.html?searc
 `Some watering holes are riskier than others.`\
 https://nytimes.com/2022/06/09/well/live/swimming-safety.html?searchResultPosition=7
 
+**The committee hired a TV executive to produce the hearings for maximum impact.**\
+`It has brought on a veteran TV executive James Goldston to produce the hearings.`\
+https://nytimes.com/2022/06/09/us/the-committee-hired-a-tv-executive-to-produce-the-hearings-for-maximum-impact.html?searchResultPosition=8
+
 **Biden Meets With Bolsonaro for First Time Since Taking Office**\
 `At the Summit of the Americas, President Biden and President Jair Bolsonaro of Brazil were expected to discuss climate change and the pandemic recovery.`\
-https://nytimes.com/video/us/politics/100000008391418/biden-bolsonaro-summit-americas.html?searchResultPosition=8
+https://nytimes.com/video/us/politics/100000008391418/biden-bolsonaro-summit-americas.html?searchResultPosition=9
 
 **Fetish Fashion, The Writhe and Fall**\
 `Megan Thee Stallion, Bella Hadid and Chloë Sevigny appear in a viral video for Mugler. But who’s buying it?`\
-https://nytimes.com/2022/06/09/style/mugler-bella-hadid-megan-thee-stallion.html?searchResultPosition=9
-
-**Watch Live: Jan. 6 Committee Holds First Public Hearing**\
-`The House committee has spent nearly a year investigating the Jan. 6, 2021, attack on the Capitol and the events that led up to it.`\
-https://nytimes.com/video/us/politics/100000008389113/jan-6-committee-hearing-live-video.html?searchResultPosition=10
+https://nytimes.com/2022/06/09/style/mugler-bella-hadid-megan-thee-stallion.html?searchResultPosition=10
 
