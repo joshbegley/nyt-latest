@@ -1,4 +1,4 @@
-**5 Takeaways From the First Jan. 6 Hearing.**\
+**5 Takeaways From the First Jan. 6 Hearing**\
 `The committee’s leaders laid out what they described as an intentional scheme with Donald J. Trump at the center. Videotaped testimony showed that key figures surrounding the president didn’t believe the lie of a stolen election.`\
 https://nytimes.com/2022/06/10/us/january-6-hearing-takeaways-trump.html?searchResultPosition=1
 
