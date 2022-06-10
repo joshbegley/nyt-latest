@@ -7,7 +7,7 @@ https://nytimes.com/2022/06/10/us/politics/ocasio-cortez-maloney-new-york-primar
 https://nytimes.com/2022/06/10/arts/design/kate-fowle-moma-ps1-director-resigns.html?searchResultPosition=2
 
 **McDonald’s Is Back, Moscow Style, as Russian Economy Stumbles On**\
-`The reopening of the fast-food stores under Russian ownership illustrates the economy’s surprising resilience in the face of intense sanctions, though difficult times lie ahead.`\
+`The reopening of the fast-food stores under Russian ownership (and with a new logo) illustrates the economy’s surprising resilience in the face of intense sanctions, though tough times lie ahead.`\
 https://nytimes.com/2022/06/10/world/europe/russia-economy-mcdonalds.html?searchResultPosition=3
 
 **Republicans Caught Every Break in New York. Then Paladino Arrived.**\
