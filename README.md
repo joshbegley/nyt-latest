@@ -31,7 +31,7 @@ https://nytimes.com/2022/06/09/us/kushner-said-he-thought-white-house-counsel-wa
 https://nytimes.com/video/us/politics/100000008391504/jan-6-capitol-hearing-kushner.html?searchResultPosition=8
 
 **Jan. 6 Committee Plays Testimony From Ivanka Trump**\
-`In a videotaped testimony, Ivanka Trump, the former president’s daughter, said that she “accepted” former attorney general William P. Barr’s assessment that President Trump’s claims were untrue.`\
+`In a videotaped testimony, Ivanka Trump, the former president’s daughter, said that she “accepted” former Attorney General William P. Barr’s assessment that Donald J. Trump’s claims of election fraud are untrue.`\
 https://nytimes.com/video/us/politics/100000008391488/jan-6-capitol-hearing.html?searchResultPosition=9
 
 **Pete Aguilar: A top messaging official was drafted for the inquiry.**\
