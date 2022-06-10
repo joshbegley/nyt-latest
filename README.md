@@ -2,7 +2,7 @@
 `In projects for the director David Lynch, she brought an eerie, otherworldly style to “Falling” and other songs.`\
 https://nytimes.com/2022/06/10/arts/music/julee-cruise-dead.html?searchResultPosition=1
 
-**Dwindling Ammo Stocks Are Sapping Ukrainian Morale at the Front**\
+**Shortage of Artillery Ammo Saps Ukrainian Frontline Morale**\
 `Shells for Soviet-era weapons are running short, and powerful Western weapons are not arriving fast enough to make up the difference, giving Russia a big advantage in artillery.`\
 https://nytimes.com/2022/06/10/world/europe/ukraine-ammo-shortage-artillery.html?searchResultPosition=2
 
@@ -22,7 +22,7 @@ https://nytimes.com/2022/06/10/us/stonewall-jackson-shenandoah-county-virginia.h
 `A bank alert had said a $630,225 Conservative Party donation originated in a Russian account. The authorities say there’s no evidence that a crime was committed.`\
 https://nytimes.com/2022/06/10/world/europe/uk-boris-johnson-donors-russia.html?searchResultPosition=6
 
-**A Lone Image of Guns’ Violence Could Help Change Minds**\
+**A Single Image of Gun Violence Could Help Change Minds**\
 `Though grisly, showing what rifles do to people is a chance to finally shift the gun debate.`\
 https://nytimes.com/2022/06/10/opinion/guns-online-violence.html?searchResultPosition=7
 
