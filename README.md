@@ -1,5 +1,5 @@
 **McDonald’s, Moscow Style, Is Back, as Russian Economy Stumbles On**\
-`The reopening of the fast-food stores under Russian ownership  illustrates the economy’s surprising resilience in the face of intense sanctions, though difficult times lie ahead.`\
+`The reopening of the fast-food stores under Russian ownership illustrates the economy’s surprising resilience in the face of intense sanctions, though difficult times lie ahead.`\
 https://nytimes.com/2022/06/10/world/europe/russia-economy-mcdonalds.html?searchResultPosition=1
 
 **Republicans Caught Every Break in New York. Then Paladino Arrived.**\
