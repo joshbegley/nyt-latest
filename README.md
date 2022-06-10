@@ -1,4 +1,4 @@
-**What is Ramsay Hunt Syndrome?**\
+**What Is Ramsay Hunt Syndrome?**\
 `Justin Bieber announced that he had the rare facial condition. Here’s what you need to know about it.`\
 https://nytimes.com/2022/06/10/well/live/ramsay-hunt-syndrome-facial-paralysis.html?searchResultPosition=1
 
