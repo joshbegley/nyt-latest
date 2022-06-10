@@ -7,7 +7,7 @@ https://nytimes.com/2022/06/09/us/pesticide-covid-paul-andrecola.html?searchResu
 https://nytimes.com/2022/06/09/us/pete-aguilar-jan-6-committee.html?searchResultPosition=2
 
 **Barr Says He Dismissed Trump’s Election Fraud Claims**\
-`In videotaped testimony, the former attorney general William P. Barr, said he recalled how he had told the president he considered his claims “bullshit” and wanted no part of it.`\
+`In videotaped testimony, the former attorney general William P. Barr said he recalled how he had told the president he considered his claims “bullshit” and wanted no part of it.`\
 https://nytimes.com/video/us/politics/100000008391470/jan-6-hearing-barr-trump.html?searchResultPosition=3
 
 **Biden Outlines Joint Migration Directive With Latin America**\
