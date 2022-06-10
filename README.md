@@ -6,7 +6,7 @@ https://nytimes.com/2022/06/10/books/review/liam-francis-walsh-red-scare.html?se
 `In Jo Rioux’s “The Golden Twine,” an orphan girl who lives among traveling merchants aspires to be a monster tamer.`\
 https://nytimes.com/2022/06/10/books/review/cats-cradle-the-golden-twine-jo-rioux.html?searchResultPosition=2
 
-**In the Club and the Clubhouse, a Coach Provides Some Flavor**\
+**In the Club and the Clubhouse, a Coach Adds Some Flavor**\
 `His passion is playing percussion at salsa clubs, but Charlie Montoyo also thrives at his day job: managing the Toronto Blue Jays.`\
 https://nytimes.com/2022/06/10/sports/baseball/charlie-montoyo-blue-jays-salsa.html?searchResultPosition=3
 
