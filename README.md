@@ -19,7 +19,7 @@ https://nytimes.com/2022/06/09/us/pete-aguilar-jan-6-committee.html?searchResult
 https://nytimes.com/video/us/politics/100000008391470/jan-6-hearing-barr-trump.html?searchResultPosition=5
 
 **Biden Outlines Joint Migration Directive With Latin America**\
-`President Biden said a joint declaration with Latin American countries will commit nations across the region to “increase opportunities for safe and orderly migration.”`\
+`President Biden said a joint declaration with Latin American countries would commit nations across the region to “increase opportunities for safe and orderly migration.”`\
 https://nytimes.com/video/us/politics/100000008391254/biden-summit-americas-migration.html?searchResultPosition=6
 
 **Bill Cosby’s Lawyers Present His Defense in Sex Assault Lawsuit**\
