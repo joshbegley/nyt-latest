@@ -4,7 +4,7 @@ https://nytimes.com/2022/06/10/business/an-ugly-inflation-report-upended-hopes-t
 
 **After a Political Storm, Gay Days Return to Disney**\
 `An L.G.B.T.Q. tradition at Disney World took on new significance this year, when Disney was ensnared in a heated cultural debate.`\
-https://nytimes.com/2022/06/10/style/after-a-political-storm-gay-days-return-to-disney.html?searchResultPosition=2
+https://nytimes.com/2022/06/10/style/disney-gay-days.html?searchResultPosition=2
 
 **U.S. Scrutinizes Swiss Currency Practices**\
 `The Treasury Department declined to label any country a currency manipulator, but singled out Switzerland as an offender in its semiannual foreign exchange report.`\
