@@ -1,4 +1,4 @@
-**Citing Knee Problems, Pope Francis Postpones Upcoming Trip to Africa**\
+**Citing Knee Problems, Pope Francis Postpones Trip to Africa**\
 `The Vatican announced Friday that doctors had ordered Francis to stay home and continue treatment on his right knee, which he has said is affected by a torn ligament.`\
 https://nytimes.com/2022/06/10/world/europe/pope-postpone-trip-africa.html?searchResultPosition=1
 
