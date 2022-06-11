@@ -1,6 +1,6 @@
 **Former Bolivian President Sentenced to 10 Years in Prison**\
 `The trial of Jeanine Añez, who took power after Evo Morales was ousted, has led to concerns about politicians’ use of the justice system to target opponents.`\
-https://nytimes.com/2022/06/10/world/americas/jeanine-anez-prison.html?searchResultPosition=1
+https://nytimes.com/2022/06/10/world/americas/bolivia-jeanine-anez-prison.html?searchResultPosition=1
 
 **‘We All Have a Duty to Ensure That What Happened on Jan. 6 Never Happens Again’**\
 `The hearings on the Capitol riot challenge all Americans to recommit to democracy.`\
