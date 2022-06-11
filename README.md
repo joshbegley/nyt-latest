@@ -1,6 +1,6 @@
 **Why the Memory of Jan. 6 Can’t Prevent a Trump Resurgence**\
 `How an anti-Trump establishment undercuts itself.`\
-https://nytimes.com/2022/06/11/opinion/why-the-memory-of-jan-6-cant-prevent-a-trump-resurgence.html?searchResultPosition=1
+https://nytimes.com/2022/06/11/opinion/jan-6-trump.html?searchResultPosition=1
 
 **Photos From the Belmont Stakes**\
 `New York Times photographers capture images from the 154th Belmont, the last leg of the Triple Crown.`\
