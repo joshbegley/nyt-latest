@@ -30,8 +30,8 @@ https://nytimes.com/2022/06/11/us/politics/jan-6-prosecute-trump.html?searchResu
 `In South Texas, where guns are woven into the culture, Archbishop Gustavo García-Siller is urging his community to reconsider. “We have to!” he says.`\
 https://nytimes.com/2022/06/11/us/uvalde-archbishop-gun-reform.html?searchResultPosition=8
 
-**‘No More’: Protesters Gather Across the U.S. to Speak Out Against Gun Violence**\
-`Hundreds of rallies were scheduled in the country on Saturday, including one in Washington.`\
+**‘No More’: Thousands Across the U.S. Rally Against Gun Violence**\
+`Hundreds of protests were scheduled in the country on Saturday, including one in Washington.`\
 https://nytimes.com/2022/06/11/us/gun-violence-protests.html?searchResultPosition=9
 
 **John Merriman, Eminent Historian of France, Is Dead at 75**\
