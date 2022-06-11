@@ -19,7 +19,7 @@ https://nytimes.com/2022/06/11/us/politics/jan-6-prosecute-trump.html?searchResu
 https://nytimes.com/2022/06/11/us/uvalde-archbishop-gun-reform.html?searchResultPosition=5
 
 **‘No More’: Protesters Gather Across the U.S. to Speak Out Against Gun Violence**\
-`More than 300 rallies were scheduled in the country on Saturday, including one in Washington.`\
+`Hundreds of rallies were scheduled in the country on Saturday, including one in Washington.`\
 https://nytimes.com/2022/06/11/us/gun-violence-protests.html?searchResultPosition=6
 
 **John Merriman, Eminent Historian of France, Is Dead at 75**\
