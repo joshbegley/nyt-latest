@@ -18,7 +18,7 @@ https://nytimes.com/2022/06/12/theater/tony-awards-how-to-watch.html?searchResul
 `Congestion pricing in Manhattan should have happened years ago. The reason it hasn’t is instructive.`\
 https://nytimes.com/2022/06/12/opinion/traffic-congestion-new-york-climate-policy.html?searchResultPosition=5
 
-**Subsidized Ocean Fishing Threatens the Sea’s Bounty**\
+**The World Can’t Keep Fishing Like This**\
 `With help from their governments, fishing boats are able to range farther, remain at sea longer and catch more fish.`\
 https://nytimes.com/2022/06/12/opinion/fishing-subsidies.html?searchResultPosition=6
 
