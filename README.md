@@ -14,7 +14,7 @@ https://nytimes.com/2022/06/12/theater/tony-awards-how-to-watch.html?searchResul
 `Clever marketers have figured out how easy it is to simulate online intimacy at scale, ventriloquizing alluring models with cheap, offshore labor.`\
 https://nytimes.com/2022/06/12/podcasts/the-daily/the-sunday-read-the-e-pimps-of-onlyfans.html?searchResultPosition=4
 
-**This Is No Way to Run a City (or a Country)**\
+**There Has to Be a Better Way to Run the Government**\
 `Congestion pricing in Manhattan should have happened years ago. The reason it hasn’t is instructive.`\
 https://nytimes.com/2022/06/12/opinion/traffic-congestion-new-york-climate-policy.html?searchResultPosition=5
 
