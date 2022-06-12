@@ -1,36 +1,40 @@
+**‘I Was Riding Downstairs on My Building’s Service Elevator’**\
+`A quick stop, a Brooklyn accent gets noticed in Coney Island and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2022/06/12/nyregion/metropolitan-diary.html?searchResultPosition=1
+
+**The Main Draw at Andrew Giuliani’s Campaign Events? His Father.**\
+`Andrew Giuliani’s bid to win the Republican primary for governor of New York has not drawn many donors, but it has drawn fans of Rudy Giuliani, the former New York City mayor.`\
+https://nytimes.com/2022/06/12/nyregion/andrew-giuliani-rudy-governor.html?searchResultPosition=2
+
+**How Fashion Giants Recast Plastic as Good for the Planet**\
+`An influential system overseen by retailers and clothing makers ranks petroleum-based synthetics like “vegan leather” as more environmentally sound than natural fibers.`\
+https://nytimes.com/2022/06/12/climate/vegan-leather-synthetics-fashion-industry.html?searchResultPosition=3
+
+**What to Know About France’s Parliamentary Elections**\
+`President Emmanuel Macron is looking to secure a strong majority to help him pass bills during his second term, but a reinvigorated alliance of left-wing parties hopes to thwart him.`\
+https://nytimes.com/2022/06/12/world/europe/france-parliamentary-elections.html?searchResultPosition=4
+
+**The Celtics Got Lucky By Not Getting What They Wanted**\
+`Other teams’ superstars kept getting traded, and the Celtics wanted in on the action. Boston (mostly) missed out, and is probably better off for it.`\
+https://nytimes.com/2022/06/12/sports/basketball/boston-celtics-team-building-nba-finals.html?searchResultPosition=5
+
+**A Trove of Guantánamo Photos**\
+`A Times reporter who covers Guantánamo Bay tracked down military photographs of the early days of the U.S. detention center there.`\
+https://nytimes.com/2022/06/12/us/politics/a-trove-of-guantanamo-photos.html?searchResultPosition=6
+
+**She Disagreed With Everything He Wrote About Housing. They Had Coffee.**\
+`An invitation from a reader led to a two-year correspondence with a Times reporter — and now a profile.`\
+https://nytimes.com/2022/06/12/insider/california-housing-crisis-nimby.html?searchResultPosition=7
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2022/06/12/crosswords/spelling-bee-forum.html?searchResultPosition=8
+
+**The Secret Pentagon Photos of the First Prisoners at Guantánamo Bay**\
+`The Times obtained the pictures, taken by military photographers assigned to the elite Combat Camera team, as part of a continuing effort to chronicle the 20-year-old detention operation.`\
+https://nytimes.com/interactive/2022/06/12/us/guantanamo-bay-pentagon-photos.html?searchResultPosition=9
+
 **Corrections: June 12, 2022**\
 `Corrections that appeared in print on Sunday, June 12, 2022.`\
-https://nytimes.com/2022/06/12/pageoneplus/corrections-june-12-2022.html?searchResultPosition=1
-
-**Quotation of the Day: After Hearings, a Tenuous Path to Indict Trump**\
-`Quotation of the Day for Sunday, June 12, 2022.`\
-https://nytimes.com/2022/06/12/todayspaper/quotation-of-the-day-after-hearings-a-tenuous-path-to-indict-trump.html?searchResultPosition=2
-
-**China Won’t Hesitate to Fight for Taiwan, Defense Minister Warns**\
-`The general said China wouldn’t “flinch from the cost” of defending its claims to the island. He spoke at a Singapore forum where he met with the U.S. defense secretary.`\
-https://nytimes.com/2022/06/12/world/asia/china-taiwan-us.html?searchResultPosition=3
-
-**Dozens of White Supremacists Arrested in Idaho Had Planned to Riot, Authorities Say**\
-`Members of the right-wing group Patriot Front who were charged on Saturday were preparing to disrupt a nearby Pride event, according to the police.`\
-https://nytimes.com/2022/06/12/us/idaho-pride-white-supremacists-arrested.html?searchResultPosition=4
-
-**From Santo Domingo to the N.B.A. Finals, Al Horford Is at Home**\
-`Horford, the Boston Celtics center, is the first Dominican player in the N.B.A. finals. With the way he’s competing, it’s hard to tell he hasn’t been here before.`\
-https://nytimes.com/2022/06/12/sports/basketball/al-horford-boston-celtics-nba-finals.html?searchResultPosition=5
-
-**Stamkos Lifts Tampa to Third Straight Cup Finals With Win Over Rangers**\
-`New York surrendered four consecutive games to the Lightning, who will attempt to defend their back-to-back Stanley Cup championships against the Colorado Avalanche.`\
-https://nytimes.com/2022/06/11/sports/hockey/lightning-rangers-nhl-playoffs.html?searchResultPosition=6
-
-**Pence Aide Warned Against Blocking Electoral College Count, Memo Shows**\
-`Shortly before Jan. 6, Vice President Mike Pence’s chief counsel wrote that holding up the certification of the election results would violate federal law.`\
-https://nytimes.com/2022/06/11/us/politics/pence-jan-6-election-trump.html?searchResultPosition=8
-
-**Mo Donegal Wins the Belmont, Ending Rich Strike’s Magical Story**\
-`The favorite at post time, Mo Donegal won by three lengths, becoming the third horse to win a Triple Crown race in 2022. The Kentucky Derby winner Rich Strike was sixth.`\
-https://nytimes.com/2022/06/11/sports/horse-racing/belmont-stakes-winner.html?searchResultPosition=9
-
-**Demonstrators Across the U.S. Protest Gun Violence**\
-`Thousands gathered in Washington, D.C., and in other cities across the country to condemn mass shootings and to call for federal legislation to restrict the use of military-style weapons.`\
-https://nytimes.com/video/us/100000008393730/gun-violence-national-protests.html?searchResultPosition=10
+https://nytimes.com/2022/06/12/pageoneplus/corrections-june-12-2022.html?searchResultPosition=10
 
