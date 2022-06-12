@@ -1,6 +1,6 @@
 **Trump Campaign Chief to Headline Jan. 6 Hearing on Election Lies**\
 `Bill Stepien is expected to appear alongside a fired Fox News editor who called Trump’s loss and a former U.S. attorney who resigned rather than go along with false claims of election fraud.`\
-https://nytimes.com/2022/06/12/us/politics/trump-campaign-chief-to-headline-jan-6-hearing-on-election-lies.html?searchResultPosition=1
+https://nytimes.com/2022/06/12/us/politics/trump-bill-stepien-jan-6-hearing.html?searchResultPosition=1
 
 **The Cubs Flirted With Success. The Yankees Define It.**\
 `Chicago’s inability to maintain momentum after its 2016 championship underscores how unusual the Yankees’ consistency is: They are on their way to a 30th straight winning season.`\
