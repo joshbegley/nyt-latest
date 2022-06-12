@@ -1,5 +1,5 @@
-**Bolsonaro’s New Ally in Questioning Brazil’s Election: The Military**\
-`Despite little evidence of past fraud, President Jair Bolsonaro has long raised doubts about Brazil’s elections. Now the military is expressing similar concerns.`\
+**Bolsonaro’s New Ally in Questioning Brazil’s Elections: The Military**\
+`Despite little evidence of past fraud, President Jair Bolsonaro has long raised doubts about Brazil’s electoral process. Now the military is expressing similar concerns.`\
 https://nytimes.com/2022/06/12/world/americas/brazil-election-bolsonaro-military.html?searchResultPosition=1
 
 **How to Watch the Jan. 6 Committee Hearings**\
