@@ -1,5 +1,5 @@
 **White Supremacists Charged With Plans to Disrupt Idaho Pride Event**\
-`Dozens of members of the right-wing group Patriot Front were detained and charged with conspiracy to riot, after the police said they received a tip that a group of people had jumped into a U-Haul van in Coeur d’Alene, Idaho.`\
+`Dozens of members of the right-wing group Patriot Front were detained and charged with conspiracy to riot, after the police said they received a tip that a group of people had jumped into a U-Haul van near a Pride event in Coeur d’Alene, Idaho.`\
 https://nytimes.com/video/us/100000008394159/idaho-white-supremacists.html?searchResultPosition=1
 
 **The Art World Loves Basketballs. And Hoops and Jerseys and Backboards.**\
