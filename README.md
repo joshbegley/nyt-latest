@@ -12,7 +12,7 @@ https://nytimes.com/2022/06/12/sports/baseball/yankees-cubs.html?searchResultPos
 
 **Pro-Macron Forces Expected to Prevail but Face Left-Wing Challenge**\
 `The French president’s party and its centrist allies were neck and neck with a left-wing alliance in France’s first round of parliamentary elections.`\
-https://nytimes.com/2022/06/12/world/europe/france-elections-macron-left-wing.html?searchResultPosition=4
+https://nytimes.com/2022/06/12/world/europe/france-elections-macron.html?searchResultPosition=4
 
 **John R. Allen Resigns as Brookings President After Qatar Revelations**\
 `Mr. Allen, a retired four-star general, had been on administrative leave amid a federal inquiry into whether he had secretly lobbied for the government of Qatar.`\
