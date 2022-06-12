@@ -18,23 +18,23 @@ https://nytimes.com/2022/06/12/us/senate-gun-safety-deal-reactions.html?searchRe
 `The Republican candidate for governor of New York is unvaccinated and says he has “natural immunity” to the coronavirus.`\
 https://nytimes.com/2022/06/12/nyregion/andrew-giuliani-debate-vaccination.html?searchResultPosition=5
 
+**Angela Lansbury wins the lifetime achievement Tony. Read her Times reviews over the decades.**\
+`Lansbury, 96, was not present to accept the award in person, but the New York City Gay Men’s Chorus sang “Mame” as a special tribute.`\
+https://nytimes.com/2022/06/12/theater/angela-lansbury-lifetime-achievement-tony.html?searchResultPosition=6
+
 **Kathy Hochul Is the Best Choice for Democrats in the June 28 Primary**\
 `Kathy Hochul deserves another four years as New York's governor.`\
-https://nytimes.com/interactive/2022/06/12/opinion/kathy-hochul-endorsed-governor.html?searchResultPosition=6
+https://nytimes.com/interactive/2022/06/12/opinion/kathy-hochul-endorsed-governor.html?searchResultPosition=7
 
 **U.S. Navy Plans ‘Safety Pause’ After Series of Aircraft Crashes**\
 `All non-deployed aircraft will stand down for one day to “review risk-management practices and conduct training,” the Navy said.`\
-https://nytimes.com/2022/06/12/us/navy-aircraft-crashes-california.html?searchResultPosition=7
+https://nytimes.com/2022/06/12/us/navy-aircraft-crashes-california.html?searchResultPosition=8
 
 **Tough Questions for West as Ukraine Cities Teeter**\
 `Sievierodonetsk is nearly encircled. Lysychansk may be next. The momentum of the war has shifted, and Ukraine’s allies may soon start rethinking their goals.`\
-https://nytimes.com/2022/06/12/world/europe/ukraine-russia-war-eu.html?searchResultPosition=8
+https://nytimes.com/2022/06/12/world/europe/ukraine-russia-war-eu.html?searchResultPosition=9
 
 **Trump Campaign Chief to Headline Jan. 6 Hearing on Election Lies**\
 `Bill Stepien is expected to appear alongside a fired Fox News editor who called Trump’s loss and a former U.S. attorney who resigned rather than go along with false claims of election fraud.`\
-https://nytimes.com/2022/06/12/us/politics/trump-bill-stepien-jan-6-hearing.html?searchResultPosition=9
-
-**The Cubs Flirted With Success. The Yankees Define It.**\
-`Chicago’s inability to maintain momentum after its 2016 championship underscores how unusual the Yankees’ consistency is: They are on their way to a 30th straight winning season.`\
-https://nytimes.com/2022/06/12/sports/baseball/yankees-cubs.html?searchResultPosition=10
+https://nytimes.com/2022/06/12/us/politics/trump-bill-stepien-jan-6-hearing.html?searchResultPosition=10
 
