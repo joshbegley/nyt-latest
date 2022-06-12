@@ -1,40 +1,40 @@
+**Poland Shows the Risks for Women When Abortion Is Banned**\
+`Poland’s abortion ban has had many unintended consequences. One is that doctors are sometimes afraid to remove fetuses or administer cancer treatment to save women’s lives.`\
+https://nytimes.com/2022/06/12/world/europe/poland-abortion-ban.html?searchResultPosition=1
+
+**They Inhabited Separate Worlds in Taiwan. Decades Later, They Collided in a California Church.**\
+`The 68-year-old suspect in a May mass shooting harbored resentment dating back to his formative years in Taiwan.`\
+https://nytimes.com/2022/06/12/world/asia/taiwanese-church-shooting-pastor-gunman.html?searchResultPosition=2
+
+**Crop Circles Were Made by Supernatural Forces. Named Doug and Dave.**\
+`Intricate patterns carved in fields across England in the 1980s were a viral phenomenon long before the internet fed us such prankster curiosities daily.`\
+https://nytimes.com/2022/06/12/style/crop-circles.html?searchResultPosition=3
+
+**Homes That Sold for Around $1.5 Million**\
+`Recent residential sales in New York City and the region.`\
+https://nytimes.com/2022/06/12/realestate/homes-that-sold-for-around-1-5-million.html?searchResultPosition=4
+
+**When You’re Forced to Cash Out in a Bearlike Market**\
+`You can’t leave money in your I.R.A. forever, as dictated by I.R.S. rules. This can put retired investors in a tough spot.`\
+https://nytimes.com/2022/06/12/business/when-youre-forced-to-cash-out-in-a-bearlike-market.html?searchResultPosition=5
+
+**Always an Outlier, Kelsie Whitmore Just Wants to Play Baseball**\
+`Whitmore, a pitcher and outfielder for the Staten Island FerryHawks, is the first woman to play in a league partnered with Major League Baseball since 1994.`\
+https://nytimes.com/2022/06/12/sports/baseball/kelsie-whitmore-staten-island.html?searchResultPosition=6
+
+**At the Met This Season, Opera Was Icing on the Cake**\
+`Amid a labor battle, the continuing pandemic and war in Ukraine, it often felt as though the real drama was in simply putting on a show.`\
+https://nytimes.com/2022/06/12/arts/music/met-opera-season-pandemic.html?searchResultPosition=7
+
+**What About the Men?**\
+`Two speculative novels imagine rather drastic rearrangements to our existing gender relations.`\
+https://nytimes.com/2022/06/12/books/review/the-men-sandra-newman-when-women-were-dragons-kelly-barnhill.html?searchResultPosition=8
+
+**Abortion Politics, Money and the Reshaping of the G.O.P.**\
+`In “Dollars for Life,” Mary Ziegler argues that, over the course of decades, the anti-abortion movement laid the groundwork for an insurgent candidate like Donald Trump.`\
+https://nytimes.com/2022/06/12/books/review-dollars-for-life-anti-abortion-republican-establishment-mary-ziegler.html?searchResultPosition=9
+
 **‘I Was Riding Downstairs on My Building’s Service Elevator’**\
 `A quick stop, a Brooklyn accent gets noticed in Coney Island and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2022/06/12/nyregion/metropolitan-diary.html?searchResultPosition=1
-
-**The Main Draw at Andrew Giuliani’s Campaign Events? His Father.**\
-`Andrew Giuliani’s bid to win the Republican primary for governor of New York has not drawn many donors, but it has drawn fans of Rudy Giuliani, the former New York City mayor.`\
-https://nytimes.com/2022/06/12/nyregion/andrew-giuliani-rudy-governor.html?searchResultPosition=2
-
-**How Fashion Giants Recast Plastic as Good for the Planet**\
-`An influential system overseen by retailers and clothing makers ranks petroleum-based synthetics like “vegan leather” as more environmentally sound than natural fibers.`\
-https://nytimes.com/2022/06/12/climate/vegan-leather-synthetics-fashion-industry.html?searchResultPosition=3
-
-**What to Know About France’s Parliamentary Elections**\
-`President Emmanuel Macron is looking to secure a strong majority to help him pass bills during his second term, but a reinvigorated alliance of left-wing parties hopes to thwart him.`\
-https://nytimes.com/2022/06/12/world/europe/france-parliamentary-elections.html?searchResultPosition=4
-
-**The Celtics Got Lucky By Not Getting What They Wanted**\
-`Other teams’ superstars kept getting traded, and the Celtics wanted in on the action. Boston (mostly) missed out, and is probably better off for it.`\
-https://nytimes.com/2022/06/12/sports/basketball/boston-celtics-team-building-nba-finals.html?searchResultPosition=5
-
-**A Trove of Guantánamo Photos**\
-`A Times reporter who covers Guantánamo Bay tracked down military photographs of the early days of the U.S. detention center there.`\
-https://nytimes.com/2022/06/12/us/politics/a-trove-of-guantanamo-photos.html?searchResultPosition=6
-
-**She Disagreed With Everything He Wrote About Housing. They Had Coffee.**\
-`An invitation from a reader led to a two-year correspondence with a Times reporter — and now a profile.`\
-https://nytimes.com/2022/06/12/insider/california-housing-crisis-nimby.html?searchResultPosition=7
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/06/12/crosswords/spelling-bee-forum.html?searchResultPosition=8
-
-**The Secret Pentagon Photos of the First Prisoners at Guantánamo Bay**\
-`The Times obtained the pictures, taken by military photographers assigned to the elite Combat Camera team, as part of a continuing effort to chronicle the 20-year-old detention operation.`\
-https://nytimes.com/interactive/2022/06/12/us/guantanamo-bay-pentagon-photos.html?searchResultPosition=9
-
-**Corrections: June 12, 2022**\
-`Corrections that appeared in print on Sunday, June 12, 2022.`\
-https://nytimes.com/2022/06/12/pageoneplus/corrections-june-12-2022.html?searchResultPosition=10
+https://nytimes.com/2022/06/12/nyregion/metropolitan-diary.html?searchResultPosition=10
 
