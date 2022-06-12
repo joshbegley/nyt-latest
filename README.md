@@ -26,7 +26,7 @@ https://nytimes.com/2022/06/12/us/politics/john-allen-brookings-resigns.html?sea
 `The drill took place on Gotland, a Swedish island in the Baltic Sea that was demilitarized after the fall of the Soviet Union, but now again seems a critical military site.`\
 https://nytimes.com/2022/06/12/world/europe/us-sweden-military-drill.html?searchResultPosition=7
 
-**Goldman Sachs E.S.G. Funds Prompt Regulatory Investigation**\
+**Goldman Sachs Is Being Investigated Over E.S.G. Funds**\
 `The Securities and Exchange Commission has stepped up scrutiny of sustainable investing, which has become popular but is said to lack accountability.`\
 https://nytimes.com/2022/06/12/business/sec-goldman-sachs-esg-funds.html?searchResultPosition=8
 
