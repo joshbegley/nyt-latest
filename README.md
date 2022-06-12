@@ -8,7 +8,7 @@ https://nytimes.com/article/jan-6-hearings-watch-tv-channel-schedule.html?search
 
 **Google Sidelines Engineer Who Claims Its A.I. Is Sentient**\
 `Blake Lemoine, the engineer, says that Google’s language model has a soul. The company disagrees.`\
-https://nytimes.com/2022/06/12/technology/google-engineer-blake-lemoine.html?searchResultPosition=3
+https://nytimes.com/2022/06/12/technology/google-chatbot-ai-blake-lemoine.html?searchResultPosition=3
 
 **Hostile Crowds. $3,500 Tickets. Worth It to See Stephen Curry.**\
 `Some Golden State fans traveled thousands of miles to Boston to watch their team face the Celtics in the N.B.A. finals.`\
