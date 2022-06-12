@@ -6,13 +6,13 @@ https://nytimes.com/2022/06/12/briefing/us-mexico-border-immigration.html?search
 `Inflation recorded another increase; the Fed will probably follow with a new rate bump. And Wells Fargo is under criminal investigation.`\
 https://nytimes.com/2022/06/12/business/the-week-in-business-trouble-for-tesla.html?searchResultPosition=2
 
-**The Sunday Read: ‘The “E-Pimps” of OnlyFans’**\
-`Clever marketers have figured out how easy it is to simulate online intimacy at scale, ventriloquizing alluring models with cheap, offshore labor.`\
-https://nytimes.com/2022/06/12/podcasts/the-daily/the-sunday-read-the-e-pimps-of-onlyfans.html?searchResultPosition=3
-
 **The 75th Tony Awards: Here’s What to Expect**\
 `The ceremony returns to Radio City Music Hall on Sunday night.`\
-https://nytimes.com/2022/06/12/theater/tony-awards-how-to-watch.html?searchResultPosition=4
+https://nytimes.com/2022/06/12/theater/tony-awards-how-to-watch.html?searchResultPosition=3
+
+**The Sunday Read: ‘The “E-Pimps” of OnlyFans’**\
+`Clever marketers have figured out how easy it is to simulate online intimacy at scale, ventriloquizing alluring models with cheap, offshore labor.`\
+https://nytimes.com/2022/06/12/podcasts/the-daily/the-sunday-read-the-e-pimps-of-onlyfans.html?searchResultPosition=4
 
 **This Is No Way to Run a City (or a Country)**\
 `Congestion pricing in Manhattan should have happened years ago. The reason it hasn’t is instructive.`\
