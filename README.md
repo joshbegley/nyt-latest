@@ -7,7 +7,7 @@ https://nytimes.com/2022/06/13/arts/music/kate-bush-stranger-things-billboard-ch
 https://nytimes.com/2022/06/13/us/politics/supreme-court-bail-hearings-immigrants.html?searchResultPosition=2
 
 **4 takeaways from Day 2 of the Jan. 6 hearings.**\
-`The big theme on the second day was that former President Trump was told repeatedly — including by his own attorney general — that his “Big Lie” about a fraudulent election was baseless.`\
+`The big theme on the second day was that former President Trump was told repeatedly — including by his own attorney general — that his “big lie” about a fraudulent election was baseless.`\
 https://nytimes.com/2022/06/13/us/trump-jan-6-hearing-monday.html?searchResultPosition=3
 
 **How to Help a Loved One Having Suicidal Thoughts**\
