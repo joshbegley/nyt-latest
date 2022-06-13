@@ -10,8 +10,8 @@ https://nytimes.com/2022/06/13/business/how-to-invest-during-a-bear-market.html?
 `The drug, made by Eli Lilly, is already used for rheumatoid arthritis, and could be followed by two more drugs from other companies.`\
 https://nytimes.com/2022/06/13/health/alopecia-drug-approved-fda.html?searchResultPosition=3
 
-**The B.Q.E. Is Crumbling. There Is Still No Plan to Fix It.**\
-`Mayor Eric Adams wants to jump start the project, but some critics have raised safety concerns.`\
+**The B.Q.E. Is Crumbling. There’s Still No Plan to Fix It.**\
+`Mayor Eric Adams wants to jump-start the project, but some critics have raised safety concerns.`\
 https://nytimes.com/2022/06/13/nyregion/brooklyn-queens-expressway-construction-plan.html?searchResultPosition=4
 
 **New Mexico Second Congressional District Primary Election Results**\
