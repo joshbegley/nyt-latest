@@ -36,5 +36,5 @@ https://nytimes.com/2022/06/13/business/dealbook/preet-bhararas-new-gig.html?sea
 
 **World Cup Will Allow Five Substitutes and Bigger Rosters**\
 `A rule change means coaches will for the first time have the option to make as many as five changes per game, and draw them from deeper benches.`\
-https://nytimes.com/2022/06/13/sports/soccer/world-cup-will-allow-five-substitutes-and-bigger-rosters.html?searchResultPosition=10
+https://nytimes.com/2022/06/13/sports/soccer/world-cup-substitutes-rosters.html?searchResultPosition=10
 
