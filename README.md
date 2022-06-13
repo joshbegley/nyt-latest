@@ -1,5 +1,5 @@
 **Barr Says Trump Was ‘Detached From Reality’**\
-`In video testimony William P. Barr, the former attorney general, said that the widespread claims of electoral voter fraud that Donald J. Trump repeated to his supporters were nonsense.`\
+`In video testimony, William P. Barr, the former attorney general, said that the widespread claims of electoral voter fraud that Donald J. Trump repeated to his supporters were nonsense.`\
 https://nytimes.com/video/us/politics/100000008396683/barr-trump-hearing.html?searchResultPosition=1
 
 **Authorities Find Belongings of Missing Journalist and Expert in Amazon**\
