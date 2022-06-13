@@ -14,7 +14,7 @@ https://nytimes.com/2022/06/12/us/gun-deal-is-less-than-democrats-wanted-but-mor
 `“It’s wonderful to present humanity in its fullness and to feel it received,” said Rashad, who played the factory worker Faye.`\
 https://nytimes.com/2022/06/12/theater/phylicia-rashad-skeleton-crew.html?searchResultPosition=4
 
-**Ivermectin Does Not Shorten Recovery Time From Covid, Study Finds**\
+**Ivermectin Has Little Effect on Recovery Time From Covid, Study Finds**\
 `A new clinical trial is the largest to date testing the antiparasitic drug on people with Covid.`\
 https://nytimes.com/2022/06/12/health/ivermectin-covid-recovery-time.html?searchResultPosition=5
 
