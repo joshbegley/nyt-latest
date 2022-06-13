@@ -1,6 +1,6 @@
 **Google Agrees to Pay $118 Million to Settle Pay Discrimination Case**\
 `The tech giant admitted no wrongdoing as it resolved four women’s claims of widespread pay biases. The company will also allow an outside monitor to review its practices.`\
-https://nytimes.com/2022/06/12/business/google-agrees-to-pay-118-million-to-settle-pay-discrimination-case.html?searchResultPosition=1
+https://nytimes.com/2022/06/12/business/google-discrimination-settlement-women.html?searchResultPosition=1
 
 **Gun Deal Is Less Than Democrats Wanted, but More Than They Expected**\
 `Though the compromise does not go as far as many would have preferred, it is still seen as a serious step that could save lives.`\
