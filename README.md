@@ -11,7 +11,7 @@ https://nytimes.com/2022/06/13/climate/extreme-heat-wave-health.html?searchResul
 https://nytimes.com/video/us/politics/100000008396928/chris-stirewalt-jan-6-hearings.html?searchResultPosition=3
 
 **Cheney Tackles Baseless Claims of Dominion Voting Machine Fraud**\
-`Rep. Liz Cheney, Republican of Wyoming, said that several members of former President Donald J. Trump’s team told the committee they saw no evidence of the conspiracy theory pushed by Mr. Trump that bad actors conspired to hack Dominion voting machines.`\
+`Representative Liz Cheney, Republican of Wyoming, said that several members of former President Donald J. Trump’s team told the committee they saw no evidence of the conspiracy theory pushed by Mr. Trump that bad actors conspired to hack Dominion voting machines.`\
 https://nytimes.com/video/us/politics/100000008396770/january-6-hearing-cheney-dominion.html?searchResultPosition=4
 
 **SpaceX Wins Approval for Launch of Mars Rocket**\
