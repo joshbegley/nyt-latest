@@ -1,40 +1,40 @@
-**Gin Made With Wild Blackberries and a Hollywood Pedigree**\
-`MF Libations uses fruit from Mischief Farm, a 100-acre property owned by the actors Jeffrey Dean Morgan and Hilarie Burton Morgan.`\
-https://nytimes.com/2022/06/13/dining/blackberry-gin-mf-libations.html?searchResultPosition=1
+**California Fourth Congressional District Primary Election Results**\
+`See full results and maps from the California primary elections.`\
+https://nytimes.com/interactive/2022/06/07/us/elections/results-california-us-house-district-4.html?searchResultPosition=1
 
-**The Fancy Food Show Returns With Trends and New Awards**\
-`The annual trade show with scores of food companies was held for the first time since 2019.`\
-https://nytimes.com/2022/06/13/dining/fancy-food-show-nyc.html?searchResultPosition=2
+**New Jersey Fifth Congressional District Primary Election Results**\
+`See full results and maps from the New Jersey primary elections.`\
+https://nytimes.com/interactive/2022/06/07/us/elections/results-new-jersey-us-house-district-5.html?searchResultPosition=2
 
-**The Airmail Cocktail Connects Miami and Cuba**\
-`The signature drink of the new Miami bar Airmail was created around 1930 in Cuba by Bacardi.`\
-https://nytimes.com/2022/06/13/dining/airmail-miami.html?searchResultPosition=3
+**New Jersey Second Congressional District Primary Election Results**\
+`See full results and maps from the New Jersey primary elections.`\
+https://nytimes.com/interactive/2022/06/07/us/elections/results-new-jersey-us-house-district-2.html?searchResultPosition=3
 
-**In ‘Breadsong,’ a Story of Baking Through Depression**\
-`Kitty Tait baked her way out of depression and opened a successful bakery in England with her father.`\
-https://nytimes.com/2022/06/13/dining/breadsong-book-baking.html?searchResultPosition=4
+**California 25th Congressional District Primary Election Results**\
+`See full results and maps from the California primary elections.`\
+https://nytimes.com/interactive/2022/06/07/us/elections/results-california-us-house-district-25.html?searchResultPosition=4
 
-**The Frozen Foods Brand Ipsa Branches Out to Pizza**\
-`David Kay, a former Gramercy Tavern cook, is their collaborator for new pizzas, including a monthly special with market produce.`\
-https://nytimes.com/2022/06/13/dining/ipsa-pizza.html?searchResultPosition=5
+**California 47th Congressional District Primary Election Results**\
+`See full results and maps from the California primary elections.`\
+https://nytimes.com/interactive/2022/06/07/us/elections/results-california-us-house-district-47.html?searchResultPosition=5
 
-**Can Supplements Really Help With Depression or Anxiety?**\
-`Here’s what the evidence says about what works (and what doesn’t).`\
-https://nytimes.com/2022/06/13/well/mind/supplements-depression-anxiety-treatment.html?searchResultPosition=6
+**California 22nd Congressional District Special Runoff Election Results**\
+`See full results and maps from the California special runoff election.`\
+https://nytimes.com/interactive/2022/06/07/us/elections/results-california-us-house-district-22-special-runoff.html?searchResultPosition=6
 
-**Attacked at home, Boris Johnson is honored in Ukraine with a pastry in his image.**\
-`A croissant is the latest homage in Ukraine to the British prime minister, who has also had a road named after him in a town near Odesa.`\
-https://nytimes.com/2022/06/13/world/europe/boris-johnson-croissant-ukraine.html?searchResultPosition=7
+**Montana Second Congressional District Primary Election Results**\
+`See full results and maps from the Montana primary elections.`\
+https://nytimes.com/interactive/2022/06/07/us/elections/results-montana-us-house-district-2.html?searchResultPosition=7
 
-**Ratings for the Tony Awards Rebounded, but Remained Low**\
-`The Tonys drew an audience of 3.9 million viewers on CBS on Sunday, about a million viewers more than last year. It was the second-lowest viewership on record.`\
-https://nytimes.com/2022/06/13/arts/television/tony-awards-ratings.html?searchResultPosition=8
+**California 50th Congressional District Primary Election Results**\
+`See full results and maps from the California primary elections.`\
+https://nytimes.com/interactive/2022/06/07/us/elections/results-california-us-house-district-50.html?searchResultPosition=8
 
-**Philip Baker Hall, Character Actor in Roles of Authority, Dies at 90**\
-`He appeared in “Secret Honor,” “Boogie Nights,” “Seinfeld” and dozens of other movies and television shows.`\
-https://nytimes.com/2022/06/13/movies/philip-baker-hall-dead.html?searchResultPosition=9
+**New Mexico First Congressional District Primary Election Results**\
+`See full results and maps from the New Mexico primary elections.`\
+https://nytimes.com/interactive/2022/06/07/us/elections/results-new-mexico-us-house-district-1-.html?searchResultPosition=9
 
-**Fred the Mastodon’s Tusks Reveal a Life of Fighting and Roaming**\
-`By studying chemical signatures in fossilized tusks, researchers have pieced together one of the elephant-like animal’s movements and maladies.`\
-https://nytimes.com/2022/06/13/science/mastodon-tusk-migration.html?searchResultPosition=10
+**California 35th Congressional District Primary Election Results**\
+`See full results and maps from the California primary elections.`\
+https://nytimes.com/interactive/2022/06/07/us/elections/results-california-us-house-district-35.html?searchResultPosition=10
 
