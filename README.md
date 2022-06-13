@@ -28,7 +28,7 @@ https://nytimes.com/video/us/politics/100000008396713/january-6-hearing-trump.ht
 
 **They Were Cigarette Smokers. Then a Stroke Vanquished Their Addiction.**\
 `Patients whose brain injury coincidentally relieved their nicotine cravings may help unravel the neural underpinnings of addiction, a new study suggests.`\
-https://nytimes.com/2022/06/13/health/addiction-stroke-smokers.html?searchResultPosition=8
+https://nytimes.com/2022/06/13/health/cigarette-smokers-stroke-addiction.html?searchResultPosition=8
 
 **Barr Says Trump Was ‘Detached From Reality’**\
 `In video testimony, William P. Barr, the former attorney general, said that the widespread claims of electoral voter fraud that Donald J. Trump repeated to his supporters were nonsense.`\
