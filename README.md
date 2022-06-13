@@ -4,7 +4,7 @@ https://nytimes.com/2022/06/13/todayspaper/quotation-of-the-day-since-childhood-
 
 **Red Carpet From the 75th Tony Awards**\
 `Looks from the 75th Tony Awards at Radio City Music Hall.`\
-https://nytimes.com/slideshow/2022/06/13/style/red-carpet-from-the-75th-annual-tony-awards.html?searchResultPosition=2
+https://nytimes.com/slideshow/2022/06/13/style/tony-awards-red-carpet-photos.html?searchResultPosition=2
 
 **Stephen Curry Is More Human, and Brilliant, Than Ever**\
 `Golden State was good. Then too good. Then very, very bad. The worst. Back among the N.B.A. elite, Curry’s team has been humbled by the journey.`\
