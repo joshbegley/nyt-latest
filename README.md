@@ -1,40 +1,40 @@
+**Trump Rejected Warnings Not to Declare Victory On Election Night**\
+`The Jan. 6 committee used interviews with Donald J. Trump’s own family and his closest advisers to illustrate how he rejected advice and falsely claimed he won the election.`\
+https://nytimes.com/video/us/politics/100000008396713/january-6-hearing-trump.html?searchResultPosition=1
+
 **They Were Cigarette Smokers. Then a Stroke Vanquished Their Addiction.**\
 `Patients whose brain injury coincidentally relieved their nicotine cravings may help unravel the neural underpinnings of addiction, a new study suggests.`\
-https://nytimes.com/2022/06/13/health/addiction-stroke-smokers.html?searchResultPosition=1
+https://nytimes.com/2022/06/13/health/addiction-stroke-smokers.html?searchResultPosition=2
 
 **Barr Says Trump Was ‘Detached From Reality’**\
 `In video testimony, William P. Barr, the former attorney general, said that the widespread claims of electoral voter fraud that Donald J. Trump repeated to his supporters were nonsense.`\
-https://nytimes.com/video/us/politics/100000008396683/barr-trump-hearing.html?searchResultPosition=2
+https://nytimes.com/video/us/politics/100000008396683/barr-trump-hearing.html?searchResultPosition=3
 
 **Authorities Find Belongings of Missing Journalist and Expert in Amazon**\
 `Search crews found clothes and other belongings of the two men who went missing in the Amazon last week. Authorities are also testing blood from a suspect’s boat and human remains found elsewhere.`\
-https://nytimes.com/2022/06/13/world/americas/dom-phillips-bruno-pereira-missing.html?searchResultPosition=3
+https://nytimes.com/2022/06/13/world/americas/dom-phillips-bruno-pereira-missing.html?searchResultPosition=4
 
 **Investors are nervously eyeing the Fed.**\
 `Traders now expect a three-quarter-point interest rate increase, the largest since 1994, by September. Wall Street is bracing for the fallout.`\
-https://nytimes.com/2022/06/13/business/investors-are-nervously-eyeing-the-fed.html?searchResultPosition=4
+https://nytimes.com/2022/06/13/business/investors-are-nervously-eyeing-the-fed.html?searchResultPosition=5
 
 **New York Philharmonic Agrees to Restore Pay for Musicians**\
 `After a stronger-than-expected season, the orchestra said it would reverse pay cuts imposed at the height of the pandemic.`\
-https://nytimes.com/2022/06/13/arts/music/new-york-philharmonic-restore-musicians-pay.html?searchResultPosition=5
+https://nytimes.com/2022/06/13/arts/music/new-york-philharmonic-restore-musicians-pay.html?searchResultPosition=6
 
 **Ottessa Moshfegh’s ‘Lapvona’ Is Gloomy Folk Horror Set Long Ago**\
 `Moshfegh’s latest novel, which takes place in a fictional medieval village, fixates on ugliness and pain.`\
-https://nytimes.com/2022/06/13/books/review-lapvona-ottessa-moshfegh.html?searchResultPosition=6
+https://nytimes.com/2022/06/13/books/review-lapvona-ottessa-moshfegh.html?searchResultPosition=7
 
 **Britain Plans to Fly Refugees to Rwanda on Tuesday**\
 `A court refused two appeals Monday, clearing the way for Britain to begin implementing the controversial plan to process and resettle people who crossed the English Channel to get to England.`\
-https://nytimes.com/2022/06/13/world/europe/britain-refugees-rwanda.html?searchResultPosition=7
+https://nytimes.com/2022/06/13/world/europe/britain-refugees-rwanda.html?searchResultPosition=8
 
 **Benjamin Ginsberg, an election lawyer, has been one of Trump’s foremost Republican critics.**\
 `Mr. Ginsberg had also become disenchanted with the Republican Party, arguing the GOP was “destroying itself on the altar of Trump.”`\
-https://nytimes.com/2022/06/13/us/benjamin-ginsberg-trump-election-lawyer.html?searchResultPosition=8
+https://nytimes.com/2022/06/13/us/benjamin-ginsberg-trump-election-lawyer.html?searchResultPosition=9
 
 **Al Schmidt: A Philadelphia Republican who continued counting votes as Trump’s pressure mounted.**\
 `Mr. Schmidt said he received threats over his role in counting ballots.`\
-https://nytimes.com/2022/06/13/us/al-schmidt-jan-6-hearing-witness.html?searchResultPosition=9
-
-**All Glammed Up**\
-`What they wore to the Time 100 gala, the MoMA Party at the Garden and Free Arts benefit.`\
-https://nytimes.com/2022/06/13/style/all-glammed-up.html?searchResultPosition=10
+https://nytimes.com/2022/06/13/us/al-schmidt-jan-6-hearing-witness.html?searchResultPosition=10
 
