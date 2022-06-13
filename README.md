@@ -3,7 +3,7 @@
 https://nytimes.com/2022/06/13/briefing/stocks-hearings-crop-circle.html?searchResultPosition=1
 
 **Toby Keith Says He Has Stomach Cancer, but ‘So Far, So Good’**\
-`The country music star was diagnosed has been treating the cancer for six months with chemotherapy, radiation and surgery, he said in a statement.`\
+`The country music star has been treating the cancer for six months with chemotherapy, radiation and surgery, he said in a statement.`\
 https://nytimes.com/2022/06/13/arts/music/toby-keith-stomach-cancer.html?searchResultPosition=2
 
 **The Pandemic’s Next Phase**\
