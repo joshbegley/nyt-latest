@@ -30,8 +30,8 @@ https://nytimes.com/2022/06/13/briefing/the-politics-of-abortion.html?searchResu
 `Information blind spots could have serious implications for U.S. military aid.`\
 https://nytimes.com/2022/06/13/podcasts/the-daily/ukraine-war-intelligence.html?searchResultPosition=8
 
-**Global markets plunge on fears of high inflation and low growth.**\
-`Stocks, bonds and crypto were all under pressure as the week got off to a negative start.`\
+**Wall St. is poised to fall into bear market territory as global sell-off accelerates.**\
+`Stocks, bonds and crypto were all under pressure as the week got off to a rough start.`\
 https://nytimes.com/2022/06/13/business/stocks-bonds-crypto.html?searchResultPosition=9
 
 **The Bloody Echoes of Babyn Yar**\
