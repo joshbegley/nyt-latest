@@ -1,5 +1,5 @@
 **A History of Bear Markets**\
-`From the Great Depression to the 2008 financial crisis, here are some example of past bear markets.`\
+`From the Great Depression to the 2008 financial crisis, here are some examples of past bear markets. `\
 https://nytimes.com/interactive/2022/06/13/business/bear-markets-history.html?searchResultPosition=1
 
 **Netanyahu vs. Olmert: A Lurid Libel Case Grips Israel**\
