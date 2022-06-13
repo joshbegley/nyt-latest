@@ -1,40 +1,40 @@
-**Mississippi Primary Election Results**\
-`See full results and maps from the Mississippi primary elections.`\
-https://nytimes.com/interactive/2022/06/07/us/elections/results-mississippi.html?searchResultPosition=1
+**The B.Q.E. Is Crumbling. There Is Still No Plan to Fix It.**\
+`Mayor Eric Adams wants to jump start the project, but some critics have raised safety concerns.`\
+https://nytimes.com/2022/06/13/nyregion/brooklyn-queens-expressway-construction-plan.html?searchResultPosition=1
 
-**California U.S. Senate Primary Election Results**\
-`See full results and maps from the California primary elections.`\
-https://nytimes.com/interactive/2022/06/07/us/elections/results-california-us-senate.html?searchResultPosition=2
-
-**New Mexico First Congressional District Primary Election Results**\
+**New Mexico Second Congressional District Primary Election Results**\
 `See full results and maps from the New Mexico primary elections.`\
-https://nytimes.com/interactive/2022/06/07/us/elections/results-new-mexico-us-house-district-1-.html?searchResultPosition=3
+https://nytimes.com/interactive/2022/06/07/us/elections/results-new-mexico-us-house-district-2.html?searchResultPosition=2
 
-**California 52nd Congressional District Primary Election Results**\
-`See full results and maps from the California primary elections.`\
-https://nytimes.com/interactive/2022/06/07/us/elections/results-california-us-house-district-52.html?searchResultPosition=4
-
-**New Jersey 11th Congressional District Primary Election Results**\
-`See full results and maps from the New Jersey primary elections.`\
-https://nytimes.com/interactive/2022/06/07/us/elections/results-new-jersey-us-house-district-11.html?searchResultPosition=5
-
-**Iowa Third Congressional District Primary Election Results**\
-`See full results and maps from the Iowa primary elections.`\
-https://nytimes.com/interactive/2022/06/07/us/elections/results-iowa-us-house-district-3.html?searchResultPosition=6
-
-**South Dakota Governor Primary Election Results**\
+**South Dakota U.S. Senate Primary Election Results**\
 `See full results and maps from the South Dakota primary elections.`\
-https://nytimes.com/interactive/2022/06/07/us/elections/results-south-dakota-governor.html?searchResultPosition=7
+https://nytimes.com/interactive/2022/06/07/us/elections/results-south-dakota-us-senate.html?searchResultPosition=3
 
-**California Third Congressional District Primary Election Results**\
+**California 20th Congressional District Primary Election Results**\
 `See full results and maps from the California primary elections.`\
-https://nytimes.com/interactive/2022/06/07/us/elections/results-california-us-house-district-3.html?searchResultPosition=8
+https://nytimes.com/interactive/2022/06/07/us/elections/results-california-us-house-district-20.html?searchResultPosition=4
 
-**California 29th Congressional District Primary Election Results**\
+**California First Congressional District Primary Election Results**\
 `See full results and maps from the California primary elections.`\
-https://nytimes.com/interactive/2022/06/07/us/elections/results-california-us-house-district-29.html?searchResultPosition=9
+https://nytimes.com/interactive/2022/06/07/us/elections/results-california-us-house-district-1.html?searchResultPosition=5
 
-**California 18th Congressional District Primary Election Results**\
+**California 48th Congressional District Primary Election Results**\
 `See full results and maps from the California primary elections.`\
-https://nytimes.com/interactive/2022/06/07/us/elections/results-california-us-house-district-18.html?searchResultPosition=10
+https://nytimes.com/interactive/2022/06/07/us/elections/results-california-us-house-district-48.html?searchResultPosition=6
+
+**California 32nd Congressional District Primary Election Results**\
+`See full results and maps from the California primary elections.`\
+https://nytimes.com/interactive/2022/06/07/us/elections/results-california-us-house-district-32.html?searchResultPosition=7
+
+**Mississippi Second Congressional District Primary Election Results**\
+`See full results and maps from the Mississippi primary elections.`\
+https://nytimes.com/interactive/2022/06/07/us/elections/results-mississippi-us-house-district-2.html?searchResultPosition=8
+
+**Mississippi First Congressional District Primary Election Results**\
+`See full results and maps from the Mississippi primary elections.`\
+https://nytimes.com/interactive/2022/06/07/us/elections/results-mississippi-us-house-district-1.html?searchResultPosition=9
+
+**California 27th Congressional District Primary Election Results**\
+`See full results and maps from the California primary elections.`\
+https://nytimes.com/interactive/2022/06/07/us/elections/results-california-us-house-district-27.html?searchResultPosition=10
 
