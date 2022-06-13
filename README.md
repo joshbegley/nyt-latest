@@ -2,8 +2,8 @@
 `Quotation of the Day for Monday, June 13, 2022.`\
 https://nytimes.com/2022/06/13/todayspaper/quotation-of-the-day-since-childhood-shes-stood-out-in-pro-baseball-kelsie-whitmore-wants-to-fit-in.html?searchResultPosition=1
 
-**Red Carpet from the 75th Annual Tony Awards**\
-`Looks from the 75th Annual Tony Awards at Radio City Music Hall.`\
+**Red Carpet From the 75th Tony Awards**\
+`Looks from the 75th Tony Awards at Radio City Music Hall.`\
 https://nytimes.com/slideshow/2022/06/13/style/red-carpet-from-the-75th-annual-tony-awards.html?searchResultPosition=2
 
 **Stephen Curry Is More Human, and Brilliant, Than Ever**\
