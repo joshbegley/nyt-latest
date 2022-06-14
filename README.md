@@ -1,6 +1,6 @@
 **Unexplained hepatitis is not more common in U.S. children than before the pandemic, a C.D.C. study suggests.**\
 `Officials have also been trying to determine whether the cases represent a new phenomenon or are simply a new recognition of one that has long existed; there have always been a subset of pediatric hepatitis cases with no clear cause.`\
-https://nytimes.com/2022/06/14/science/unexplained-hepatitis-is-not-more-common-in-us-children-than-before-the-pandemic-a-cdc-study-suggests.html?searchResultPosition=1
+https://nytimes.com/2022/06/14/science/hepatitis-us-children-covid.html?searchResultPosition=1
 
 **Nebraska Public Service Commission Fourth District Primary Election Results**\
 `See full results and maps from the Nebraska primary elections.`\
