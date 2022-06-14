@@ -18,23 +18,23 @@ https://nytimes.com/2022/06/14/crosswords/spelling-bee-forum.html?searchResultPo
 `Everyone agrees that the infamous highway urgently needs repairs. But there’s no consensus on a fix.`\
 https://nytimes.com/2022/06/14/nyregion/what-can-be-done-about-the-crumbling-bqe.html?searchResultPosition=5
 
+**Zelensky broke from his usual speech attire to wear a Singapore teen’s T-shirt design.**\
+`By Tiffany May`\
+https://nytimes.com/2022/06/14/world/europe/zelensky-broke-from-his-usual-speech-attire-to-wear-a-singapore-teens-t-shirt-design.html?searchResultPosition=6
+
 **Global Stock Sell-Off Continues as Economic Concerns Mount**\
 `The losses in China, Japan and Australia followed weakness in the United States, where stocks closed in bear market territory.`\
-https://nytimes.com/2022/06/14/business/stocks-bonds-bear-market.html?searchResultPosition=6
+https://nytimes.com/2022/06/14/business/stocks-bonds-bear-market.html?searchResultPosition=7
 
 **Late Night Blames It on the Alcohol**\
 `Rudy Giuliani’s intoxication on election night was the focus of Monday’s Jan. 6 hearings and late-night monologues.`\
-https://nytimes.com/2022/06/14/arts/television/trevor-noah-rudy-giuliani-jan-6.html?searchResultPosition=7
+https://nytimes.com/2022/06/14/arts/television/trevor-noah-rudy-giuliani-jan-6.html?searchResultPosition=8
 
 **Germany’s Chancellor Promised to Deter Putin. Then He Did Nothing.**\
 `Olaf Scholz’s indecisiveness is more than a political failure.`\
-https://nytimes.com/2022/06/14/opinion/germany-scholz-russia-ukraine.html?searchResultPosition=8
+https://nytimes.com/2022/06/14/opinion/germany-scholz-russia-ukraine.html?searchResultPosition=9
 
 **Your Tuesday Briefing**\
 `A bear market in the U.S.`\
-https://nytimes.com/2022/06/14/briefing/bear-market-russia-ukraine-war.html?searchResultPosition=9
-
-**Corrections: June 14, 2022**\
-`Corrections that appeared in print on Tuesday, June 14, 2022.`\
-https://nytimes.com/2022/06/14/pageoneplus/corrections-june-14-2022.html?searchResultPosition=10
+https://nytimes.com/2022/06/14/briefing/bear-market-russia-ukraine-war.html?searchResultPosition=10
 
