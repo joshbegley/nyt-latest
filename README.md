@@ -22,7 +22,7 @@ https://nytimes.com/2022/06/14/podcasts/transcript-ezra-klein-answers-listener-q
 `Record flooding caused by heavy rain forced visitors and residents to be evacuated from parts of Yellowstone National Park. The severe weather triggered landslides and demolished roads, threatening houses along the river bank.`\
 https://nytimes.com/video/us/100000008397943/yellowstone-national-park-flooding.html?searchResultPosition=6
 
-**South Carolina: How to vote, where to vote and what’s on the ballot.**\
+**South Carolina: How to Vote, Where to Vote and What’s on the Ballot**\
 `Not sure if you can vote? Or where to cast your ballot? Here’s what to know about voting in South Carolina.`\
 https://nytimes.com/2022/06/14/us/politics/south-carolina-how-to-vote.html?searchResultPosition=7
 
