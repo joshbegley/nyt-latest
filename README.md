@@ -1,4 +1,4 @@
-**Nigeria Sought a $1.7 billion Refund From JPMorgan. A London Judge Said No.**\
+**Nigeria Sought a $1.7 Billion Refund From JPMorgan. A London Judge Said No.**\
 `Lawyers for the country’s government tried to convince a court that the bank had violated its duty to protect Nigerian funds from fraud.`\
 https://nytimes.com/2022/06/14/business/jpmorgan-nigeria-lawsuit.html?searchResultPosition=1
 
