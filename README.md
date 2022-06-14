@@ -6,7 +6,7 @@ https://nytimes.com/2022/06/14/opinion/america-europe-driving-deaths.html?search
 `A critical piece of pipeline equipment was sent to Canada for repairs. Its return has been held up by sanctions against Russia.`\
 https://nytimes.com/2022/06/14/business/russian-gas-germany-canada.html?searchResultPosition=2
 
-**Moscow court orders Brittney Griner held in jail for another 18 days.**\
+**Russian court orders Brittney Griner held in jail for another 18 days.**\
 `The American basketball star was arrested in February in a Russian airport amid tensions over Russia’s invasion of Ukraine, and attempts to win her release have repeatedly failed.`\
 https://nytimes.com/2022/06/14/world/europe/brittney-griner-russia-detainment.html?searchResultPosition=3
 
