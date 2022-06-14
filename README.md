@@ -8,7 +8,7 @@ https://nytimes.com/2022/06/14/theater/topdog-underdog-corey-hawkins-yahya-abdul
 
 **The Future Criminal Case Against Donald Trump**\
 `The Jan. 6 committee is laying the foundations for a Justice Department investigation.`\
-https://nytimes.com/2022/06/14/opinion/the-future-criminal-case-against-donald-trump.html?searchResultPosition=3
+https://nytimes.com/2022/06/14/opinion/future-criminal-case-against-trump.html?searchResultPosition=3
 
 **Nigeria Sought a $1.7 Billion Refund From JPMorgan. A London Judge Said No.**\
 `Lawyers for the country’s government tried to convince a court that the bank had violated its duty to protect Nigerian funds from fraud.`\
