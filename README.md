@@ -26,8 +26,8 @@ https://nytimes.com/2022/06/14/nyregion/what-can-be-done-about-the-crumbling-bqe
 `By Tiffany May`\
 https://nytimes.com/2022/06/14/world/europe/zelensky-broke-from-his-usual-speech-attire-to-wear-a-singapore-teens-t-shirt-design.html?searchResultPosition=7
 
-**Global Stock Sell-Off Continues as Economic Concerns Mount**\
-`The losses in China, Japan and Australia followed weakness in the United States, where stocks closed in bear market territory.`\
+**Global Stocks Rebound Modestly, Although Economic Pressures Remain**\
+`U.S. futures pointed to a potential recovery on Wall Street, which had closed in bear market territory. European stocks rose, while Asian equities pared their losses.`\
 https://nytimes.com/2022/06/14/business/stocks-bonds-bear-market.html?searchResultPosition=8
 
 **Late Night Blames It on the Alcohol**\
