@@ -1,40 +1,40 @@
+**Cambodia Sends U.S. Activist and Other Opposition Members to Prison**\
+`Theary Seng, a Cambodian American lawyer, and dozens of other critics of Prime Minister Hun Sen were convicted of conspiracy to commit treason.`\
+https://nytimes.com/2022/06/14/world/asia/cambodia-theary-seng-sentenced.html?searchResultPosition=1
+
+**Lizzo’s Lyric Offended Fans. She Changed It, and They Forgave.**\
+`The song “Grrrls” was released Friday and updated Monday to remove a derogatory term for people with disabilities, which she said she did not use with an intent to offend.`\
+https://nytimes.com/2022/06/14/arts/music/lizzo-lyrics-grrrls.html?searchResultPosition=2
+
+**After 49 years, Canada and Denmark Settle the Ownership of an Arctic Island**\
+`The two countries have agreed to divide an island that sits between Canada and Greenland and defined the area’s international border.`\
+https://nytimes.com/2022/06/14/world/canada/hans-island-ownership-canada-denmark.html?searchResultPosition=3
+
+**North Dakota: How to vote, where to vote and what’s on the ballot.**\
+`Not sure if you can vote? Or where to cast your ballot? Here’s what to know about voting in North Dakota.`\
+https://nytimes.com/2022/06/14/us/politics/north-dakota-how-to-vote.html?searchResultPosition=4
+
 **David Morse Steadies Himself With Daily Devotions and His Own Cooking**\
 `The actor, who was just in “How I Learned to Drive” on Broadway, also has an affection for bluegrass, reading out loud and his Mercedes Sprinter van.`\
-https://nytimes.com/2022/06/14/movies/david-morse-favorite-things.html?searchResultPosition=1
+https://nytimes.com/2022/06/14/movies/david-morse-favorite-things.html?searchResultPosition=5
 
 **Bloomberg News Employee Detained by China Has Been Released on Bail**\
 `Haze Fan was taken into custody in 2020 and has not been heard from since. Chinese officials announced last month that she had been freed in January, but many questions remain.`\
-https://nytimes.com/2022/06/14/world/asia/bloomberg-reporter-china.html?searchResultPosition=2
+https://nytimes.com/2022/06/14/world/asia/bloomberg-reporter-china.html?searchResultPosition=6
 
 **Indian Cricket Broadcast Rights Fetch a Record Price**\
 `The auction cemented the league’s position among the world’s most valuable sports properties, as a once-staid game has become a commercial juggernaut.`\
-https://nytimes.com/2022/06/14/business/indian-cricket-broadcast-rights-fetch-a-record-price.html?searchResultPosition=3
+https://nytimes.com/2022/06/14/business/indian-cricket-broadcast-rights-fetch-a-record-price.html?searchResultPosition=7
 
 **Deceptive Mailings, False Billboards: Voting Disinformation Is Not Just Online**\
 `A survey by election researchers argues that efforts to confuse or scare away prospective voters disproportionately target minority groups in battleground states.`\
-https://nytimes.com/2022/06/14/business/deceptive-mailings-false-billboards-voting-disinformation-is-not-just-online.html?searchResultPosition=4
+https://nytimes.com/2022/06/14/business/deceptive-mailings-false-billboards-voting-disinformation-is-not-just-online.html?searchResultPosition=8
 
 **Maine: How to Vote, Where to Vote and What’s on the Ballot**\
 `Not sure if you can vote? Or where to cast your ballot? Here’s what to know about voting in Maine.`\
-https://nytimes.com/2022/06/14/us/politics/maine-how-to-vote.html?searchResultPosition=5
+https://nytimes.com/2022/06/14/us/politics/maine-how-to-vote.html?searchResultPosition=9
 
 **Jan. 6 Panel Delays Wednesday Hearing to Give Staff Time to Prepare**\
 `The session had been scheduled to focus on President Donald J. Trump’s effort to use the Justice Department to overturn the 2020 election.`\
-https://nytimes.com/2022/06/14/us/politics/jan-6-hearing-delayed.html?searchResultPosition=6
-
-**Transcript: Ezra Klein Answers Listener Questions**\
-`A conversation with the host of “The Ezra Klein Show”`\
-https://nytimes.com/2022/06/14/podcasts/transcript-ezra-klein-answers-listener-questions.html?searchResultPosition=7
-
-**Severe Flooding Forces Yellowstone National Park to Close**\
-`Record flooding caused by heavy rain forced visitors and residents to be evacuated from parts of Yellowstone National Park. The severe weather triggered landslides and demolished roads, threatening houses along the river bank.`\
-https://nytimes.com/video/us/100000008397943/yellowstone-national-park-flooding.html?searchResultPosition=8
-
-**South Carolina: How to Vote, Where to Vote and What’s on the Ballot**\
-`Not sure if you can vote? Or where to cast your ballot? Here’s what to know about voting in South Carolina.`\
-https://nytimes.com/2022/06/14/us/politics/south-carolina-how-to-vote.html?searchResultPosition=9
-
-**Our Flag Was Still There**\
-`In his comprehensive study of the national anthem, a historian and musicologist examines our complicated relationship to a famously challenging song.`\
-https://nytimes.com/2022/06/14/books/review/o-say-can-you-hear-mark-clague.html?searchResultPosition=10
+https://nytimes.com/2022/06/14/us/politics/jan-6-hearing-delayed.html?searchResultPosition=10
 
