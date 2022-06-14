@@ -18,7 +18,7 @@ https://nytimes.com/2022/06/14/arts/music/lizzo-lyrics-grrrls.html?searchResultP
 `The two countries have agreed to divide an island that sits between Canada and Greenland and defined the area’s international border.`\
 https://nytimes.com/2022/06/14/world/canada/hans-island-ownership-canada-denmark.html?searchResultPosition=5
 
-**North Dakota: How to vote, where to vote and what’s on the ballot.**\
+**North Dakota: How to Vote, Where to Vote and What’s on the Ballot**\
 `Not sure if you can vote? Or where to cast your ballot? Here’s what to know about voting in North Dakota.`\
 https://nytimes.com/2022/06/14/us/politics/north-dakota-how-to-vote.html?searchResultPosition=6
 
