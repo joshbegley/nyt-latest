@@ -27,7 +27,7 @@ https://nytimes.com/2022/06/14/sports/golf/us-open-francis-ouimet-house.html?sea
 https://nytimes.com/2022/06/14/movies/halftime-review.html?searchResultPosition=7
 
 **Zimbabwe Court Convicts Reporter for The New York Times**\
-`The case against Jeffrey Moyo was seen as a litmus test for news media freedoms in Zimbabwe, where the economy is crumbling and an election is scheduled for next year.`\
+`The reporter, Jeffrey Moyo, is unlikely to spend time in prison, but analysts said the case was part of a wider assault on press freedoms in the country.`\
 https://nytimes.com/2022/06/14/world/africa/zimbabwe-trial-reporter-new-york-times.html?searchResultPosition=8
 
 **Inflation and Price Gouging**\
