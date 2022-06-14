@@ -22,7 +22,7 @@ https://nytimes.com/2022/06/13/nyregion/republican-governor-debate-ny.html?searc
 `In its second hearing this month, the committee showed how the former president ignored aides and advisers in declaring victory prematurely and relentlessly pressing claims of fraud he was told were wrong.`\
 https://nytimes.com/2022/06/13/us/politics/trump-january-6-hearings-day-2.html?searchResultPosition=6
 
-**Jan. 6 Committee Asserts Trump Knew Fraud Claims Were False**\
+**Jan. 6 Committee Asserts Trump Knew Election Claims Were False**\
 `The second day of hearings included video testimony from some of Donald J. Trump’s closest allies who said they had repeatedly told the former president that his “big lie” about electoral fraud was baseless.`\
 https://nytimes.com/video/us/politics/100000008397422/trump-jan-6-hearing.html?searchResultPosition=7
 
