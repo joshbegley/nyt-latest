@@ -1,6 +1,6 @@
 **House Approves Supreme Court Security Bill, Sending It to Biden**\
 `A measure extending police protection to the immediate families of Supreme Court justices passed the House overwhelmingly.`\
-https://nytimes.com/2022/06/14/us/house-approves-supreme-court-security-bill-sending-it-to-biden.html?searchResultPosition=1
+https://nytimes.com/2022/06/14/us/supreme-court-security-bill.html?searchResultPosition=1
 
 **Five New Restaurants to Try Near the Catskills**\
 `A Filipino deli with incredible views, an unfussy cafe with a rich, varied menu, very good pizza in the mountains and more.`\
