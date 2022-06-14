@@ -1,40 +1,40 @@
-**Inside the Minds of Antiwar Russians: ‘Silence Is My Punishment Now’**\
-`Some Russians who oppose the war in Ukraine are experiencing an existential crisis marked by sorrow and regret.`\
-https://nytimes.com/video/opinion/100000008384388/anti-war-russians-identity-crisis-ukraine.html?searchResultPosition=1
+**How Houston Moved 25,000 People From the Streets Into Homes of Their Own**\
+`The nation’s fourth-largest city hasn’t solved homelessness, but its remarkable progress can suggest a way forward.`\
+https://nytimes.com/2022/06/14/headway/houston-homeless-people.html?searchResultPosition=1
 
-**A.B. Yehoshua, Israeli Writer Who Explored Moral and Political Dilemmas, Dies at 85**\
-`In an oeuvre of 11 novels, three short-story collections and four plays, Mr. Yehoshua tackled a variety of narrative forms — from surrealist to historical — and delved into knotty or uncommon subjects.`\
-https://nytimes.com/2022/06/14/books/ab-yehoshua-dead.html?searchResultPosition=2
+**Three Years in Shelters. Ten Months to Find a Home.**\
+`Scenes from one woman’s journey out of homelessness in Houston.`\
+https://nytimes.com/2022/06/14/headway/homelessness-houston-shelters.html?searchResultPosition=2
 
-**Official Inquiries About Grenfell Tower Blaze Go On, 5 Years After the Fire**\
-`The fire quickly engulfed the apartment building, fueled by cladding now banned. An investigation is continuing. But the families of the 72 who died find accountability slow in coming.`\
-https://nytimes.com/2022/06/14/world/europe/grenfell-fire-london-explainer.html?searchResultPosition=3
+**The Long Emergency of Homelessness**\
+`If we understood the loss of housing as a collective challenge engulfing our communities, how would it guide our response?`\
+https://nytimes.com/2022/06/14/headway/homeless-housing-crisis-communities.html?searchResultPosition=3
 
-**Risking a Society’s Retribution, Growing Numbers of Girls Resist Genital Cutting**\
-`Sierra Leone is one of a few countries in sub-Saharan Africa that have not banned cutting. Now, young women are defying mothers and grandmothers by refusing to undergo the procedure.`\
-https://nytimes.com/2022/06/14/health/female-genital-cutting-sierra-leone.html?searchResultPosition=4
+**They Made Watchmaking History. Or Did They?**\
+`Creating a “first” in the realm of timepieces can propel a brand to new heights. But it can be hard to parse which company broke which ground.`\
+https://nytimes.com/2022/06/14/fashion/watches-inventions-history.html?searchResultPosition=4
 
-**How Many Languages Could a Child Speak?**\
-`In theory, a young person could master a broad array of tongues. But there are some inherent limits.`\
-https://nytimes.com/2022/06/14/science/children-languages-randall-munroe.html?searchResultPosition=5
+**The Mood Shifts on Reviving Watch Fairs**\
+`Some brands say the digital buzz hasn’t killed the desire for in-person trade shows after all, nor their “snowball effect.”`\
+https://nytimes.com/2022/06/14/fashion/watches-and-wonders-geneva.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/06/14/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**On Climate Change’s Front Lines, Old Worries Take On Fresh Urgency**\
+`Hundreds of millions of humanity’s most vulnerable live in South Asia, where rising temperatures make it more difficult to address poverty, food security and health challenges.`\
+https://nytimes.com/2022/06/14/world/asia/india-south-asia-climate-change.html?searchResultPosition=6
 
-**What Can Be Done About the Crumbling B.Q.E.?**\
-`Everyone agrees that the infamous highway urgently needs repairs. But there’s no consensus on a fix.`\
-https://nytimes.com/2022/06/14/nyregion/what-can-be-done-about-the-crumbling-bqe.html?searchResultPosition=7
+**A Northern California Loft Gets a Sophisticated Update**\
+`The loft, in a former ironworks in Oakland, had a heavy-handed industrial vibe. She gave it a ‘spalike’ makeover that recalls the hotels of Sonoma County.`\
+https://nytimes.com/2022/06/14/realestate/a-northern-california-loft-gets-a-sophisticated-update.html?searchResultPosition=7
 
-**Zelensky broke from his usual speech attire to wear a Singapore teen’s T-shirt design.**\
-`By Tiffany May`\
-https://nytimes.com/2022/06/14/world/europe/zelensky-broke-from-his-usual-speech-attire-to-wear-a-singapore-teens-t-shirt-design.html?searchResultPosition=8
+**An Oakland Loft With a Sense of Serenity**\
+`The loft, in a former ironworks in Oakland, had a heavy-handed industrial vibe. She gave it a ‘spalike’ makeover that recalls the hotels of Sonoma County.`\
+https://nytimes.com/slideshow/2022/06/14/realestate/an-oakland-loft-with-a-sense-of-serenity.html?searchResultPosition=8
 
-**Global Stocks Rebound Modestly, Although Economic Pressures Remain**\
-`U.S. futures pointed to a potential recovery on Wall Street, which had closed in bear market territory. European stocks rose, while Asian equities pared their losses.`\
-https://nytimes.com/2022/06/14/business/stocks-bonds-bear-market.html?searchResultPosition=9
+**Bosnia on the Brink**\
+`Caught up in a 21st-century stew of ethnonationalism and fake history, the country’s Serbs are now endangering its fragile peace.`\
+https://nytimes.com/2022/06/14/magazine/bosnia-genocide-pyramids.html?searchResultPosition=9
 
-**Late Night Blames It on the Alcohol**\
-`Rudy Giuliani’s intoxication on election night was the focus of Monday’s Jan. 6 hearings and late-night monologues.`\
-https://nytimes.com/2022/06/14/arts/television/trevor-noah-rudy-giuliani-jan-6.html?searchResultPosition=10
+**Can Virtual Reality Help Autistic Children Navigate the Real World?**\
+`One company, Floreo, is hoping their tools will lead the way, despite some criticisms from autism self-advocates.`\
+https://nytimes.com/2022/06/14/business/virtual-reality-autism-children-telehealth-floreo.html?searchResultPosition=10
 
