@@ -1,6 +1,6 @@
 **Golden State Needs 1 Win for Title After Beating Celtics in Game 5**\
 `Andrew Wiggins powered Golden State’s victory on an off night for Stephen Curry, who went 0 for 9 from 3-point range.`\
-https://nytimes.com/2022/06/13/sports/basketball/boston-celtics-golden-state-nba-finals-game-5.html?searchResultPosition=1
+https://nytimes.com/2022/06/13/sports/basketball/golden-state-celtics-nba-finals.html?searchResultPosition=1
 
 **Exclamation of Epiphany**\
 `Robert Won makes his New York Times Crossword debut.`\
