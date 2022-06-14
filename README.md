@@ -12,7 +12,7 @@ https://nytimes.com/2022/06/14/us/politics/maine-how-to-vote.html?searchResultPo
 
 **Jan. 6 Panel Delays Wednesday Hearing to Give Staff Time to Prepare**\
 `The session had been scheduled to focus on President Donald J. Trump’s effort to use the Justice Department to overturn the 2020 election.`\
-https://nytimes.com/2022/06/14/us/politics/jan-6-panel-delays-wednesday-hearing-to-give-staff-time-to-prepare.html?searchResultPosition=4
+https://nytimes.com/2022/06/14/us/politics/jan-6-hearing-delayed.html?searchResultPosition=4
 
 **Transcript: Ezra Klein Answers Listener Questions**\
 `A conversation with the host of “The Ezra Klein Show”`\
