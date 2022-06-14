@@ -14,7 +14,7 @@ https://nytimes.com/2022/06/14/books/review/o-say-can-you-hear-mark-clague.html?
 `The cryptocurrency exchange’s chief executive said it had “over-hired” during the bull market as adoption of crypto products was booming.`\
 https://nytimes.com/2022/06/14/business/coinbase-crypto-layoffs.html?searchResultPosition=4
 
-**Serena Williams Plans to Play in Wimbledon**\
+**Serena Williams Plans to Play at Wimbledon**\
 `Williams hasn’t competed since she was injured during the first round of Wimbledon last year.`\
 https://nytimes.com/2022/06/14/sports/tennis/serena-williams-wimbledon.html?searchResultPosition=5
 
