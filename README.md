@@ -1,6 +1,6 @@
 **Tech Hiring Is Still Bonkers**\
 `The market for tech talent, and for workers of all types at tech companies, remains hot.`\
-https://nytimes.com/2022/06/14/technology/tech-hiring-is-still-bonkers.html?searchResultPosition=1
+https://nytimes.com/2022/06/14/technology/tech-jobs-hiring.html?searchResultPosition=1
 
 **China Is Taking Notes**\
 `The lessons the rising superpower is learning from Ukraine.`\
