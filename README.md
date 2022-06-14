@@ -32,7 +32,7 @@ https://nytimes.com/2022/06/14/climate/hunger-drought-somalia.html?searchResultP
 
 **Southern Baptists, Battling Divisions, Gather for ‘Historic’ Convention**\
 `The nation’s largest Protestant denomination, a bellwether for conservative Christianity, will elect a leader and determine response to a sex abuse scandal.`\
-https://nytimes.com/2022/06/14/us/southern-baptists-convention-annual-meeting.html?searchResultPosition=9
+https://nytimes.com/2022/06/14/us/southern-baptists-convention.html?searchResultPosition=9
 
 **Mashama Bailey and Owamni Win Top Honors at James Beard Awards**\
 `The awards were on hiatus for the past two years amid concerns about the diversity among finalists, accusations against nominees and the pandemic’s effects on the hospitality business.`\
