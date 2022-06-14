@@ -26,8 +26,8 @@ https://nytimes.com/video/us/politics/100000008397422/trump-jan-6-hearing.html?s
 `Donald J. Trump’s advisers urged him not to declare victory on election night in 2020. He listened to the one who told him what he wanted to hear.`\
 https://nytimes.com/2022/06/13/us/politics/trump-election-night.html?searchResultPosition=7
 
-**Brittney Griner’s Team Meets With U.S. State Department Over Her Detainment**\
-`Members of the Phoenix Mercury were encouraged to continue their public campaign for the W.N.B.A. star’s release from Russia, where the U.S. government has said she has been “wrongfully detained.”`\
+**Brittney Griner’s Team Meets With U.S. State Department Over Her Detention**\
+`The Phoenix Mercury were encouraged to continue their public campaign for the W.N.B.A. star’s release from Russia, where the U.S. government has said she has been “wrongfully detained.”`\
 https://nytimes.com/2022/06/13/sports/basketball/brittney-griner-detainment-phoenix-mercury.html?searchResultPosition=8
 
 **Is Nevada Turning Red?**\
