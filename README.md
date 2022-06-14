@@ -18,7 +18,7 @@ https://nytimes.com/2022/06/14/style/hypebeast-hq-chinatown.html?searchResultPos
 `Preparing schools to repel and return gunfire isn’t a mature society’s response.`\
 https://nytimes.com/2022/06/14/opinion/hardening-schools.html?searchResultPosition=5
 
-**‘Raisin in the Sun’ and ‘Harder They Come’ to Be Part of Public Theater Season**\
+**‘Raisin in the Sun’ and ‘The Harder They Come’ Part of Public Theater Season**\
 `Two new works by Suzan-Lori Parks will be included in a season that delves into “relationships between Black and white America.”`\
 https://nytimes.com/2022/06/14/theater/public-theater-new-season.html?searchResultPosition=6
 
