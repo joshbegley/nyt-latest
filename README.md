@@ -2,7 +2,7 @@
 `The comments by Mr. Patterson, the prolific author of best-selling thrillers, had been widely criticized.`\
 https://nytimes.com/2022/06/14/books/james-patterson-discrimination-white-men.html?searchResultPosition=1
 
-**Ahead of U.S. Open, Top Players Take Swings at Rival Circuit**\
+**Ahead of U.S. Open, Top Players Take Swings at LIV Golf**\
 `Rory McIlroy has criticized LIV Golf, the Saudi-backed series splintering the men’s game, as more exhibition than competition. On Tuesday, he found an ally in Jon Rahm.`\
 https://nytimes.com/2022/06/14/sports/golf/us-open-liv-saudi.html?searchResultPosition=2
 
