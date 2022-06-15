@@ -1,40 +1,40 @@
-**Newly Published, From Teenage D.J.s to the Pope**\
-`A selection of books published this week.`\
-https://nytimes.com/2022/06/15/books/review/new-this-week.html?searchResultPosition=1
+**At 75, the Holland Festival Is Back and More Global Than Ever**\
+`The event, which focuses this year on the climate and issues of representation, is designed to introduce audiences to vital artistic voices.`\
+https://nytimes.com/2022/06/15/arts/holland-festival-amsterdam.html?searchResultPosition=1
 
-**F.D.A. advisers will debate the long-awaited Covid vaccines for young children.**\
-`Neither Pfizer’s nor Moderna’s pediatric doses have been tested against the subvariants that may soon be dominant in the U.S.`\
-https://nytimes.com/2022/06/15/us/politics/covid-vaccine-kids-fda.html?searchResultPosition=2
+**An Event Filled With Art History Makes Room for Today**\
+`More contemporary galleries including White Cube are joining the offerings at the European Fine Art Fair, creating links between past and present.`\
+https://nytimes.com/2022/06/15/arts/tefaf-maastricht-contemporary-art.html?searchResultPosition=2
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/06/15/crosswords/spelling-bee-forum.html?searchResultPosition=3
+**An Art Fair That Collects Art Collectors**\
+`TEFAF, the European Fine Art Fair, is making an in-person comeback in Maastricht, the Netherlands, with new features and new finds for longtime fans.`\
+https://nytimes.com/2022/06/15/arts/art-tefaf-maastricht.html?searchResultPosition=3
 
-**South Carolina Primary Election Results**\
-`See full results and maps from the South Carolina primary elections.`\
-https://nytimes.com/interactive/2022/06/14/us/elections/results-south-carolina.html?searchResultPosition=4
+**Five Players to Watch at the U.S. Open**\
+`They include Dustin Johnson, who was just suspended from the PGA Tour for taking part in the Saudi-backed LIV Golf tour.`\
+https://nytimes.com/2022/06/15/sports/golf/five-players-to-watch-us-open.html?searchResultPosition=4
 
-**South Carolina Secretary of State Primary Election Results**\
-`See full results and maps from the South Carolina primary elections.`\
-https://nytimes.com/interactive/2022/06/14/us/elections/results-south-carolina-secretary-of-state.html?searchResultPosition=5
+**Mike Whan Is Changing U.S. Golf**\
+`The new chief executive, who turned the L.P.G.A. into a thriving tour when he was its boss, is sprinting to advance the game.`\
+https://nytimes.com/2022/06/15/sports/golf/mike-whan-us-golf.html?searchResultPosition=5
 
-**North Dakota At-Large Congressional District Primary Election Results**\
-`See full results and maps from the North Dakota primary elections.`\
-https://nytimes.com/interactive/2022/06/14/us/elections/results-north-dakota-us-house-district-1.html?searchResultPosition=6
+**For Vulnerable Art, Help Making a Fresh Start**\
+`TEFAF’s Museum Restoration Fund, now 10 years old, allows restorers to bring works back to life and new scholarship to emerge.`\
+https://nytimes.com/2022/06/15/arts/tefaf-restoration-fund.html?searchResultPosition=6
 
-**North Dakota Secretary of State Primary Election Results**\
-`See full results and maps from the North Dakota primary elections.`\
-https://nytimes.com/interactive/2022/06/14/us/elections/results-north-dakota-secretary-of-state.html?searchResultPosition=7
+**Romania Sees an Opening to Become an Energy Power in Europe**\
+`The Ukraine war could lead to breakthroughs in nuclear power and natural gas, with Washington’s help.`\
+https://nytimes.com/2022/06/15/business/romania-energy-nuclear-power-natural-gas.html?searchResultPosition=7
 
-**Maine Second Congressional District Primary Election Results**\
-`See full results and maps from the Maine primary elections.`\
-https://nytimes.com/interactive/2022/06/14/us/elections/results-maine-us-house-district-2.html?searchResultPosition=8
+**Billy Cotton, an Interior Designer for Blue-Chip Artists**\
+`How the once-struggling decorator became a favorite of Cindy Sherman, Mirabelle Marden and other artists.`\
+https://nytimes.com/2022/06/15/style/billy-cotton-interior-designer.html?searchResultPosition=8
 
-**Nevada Secretary of State Primary Election Results**\
-`See full results and maps from the Nevada primary elections.`\
-https://nytimes.com/interactive/2022/06/14/us/elections/results-nevada-secretary-of-state.html?searchResultPosition=9
+**In ‘Corsicana,’ Will Arbery Puts Art, Family and Down Syndrome Onstage**\
+`Arbery, a Pulitzer finalist in 2020, is back with a play inspired by his relationship with his sister. But don’t call it an “issue” play.`\
+https://nytimes.com/2022/06/15/theater/corsicana-will-arbery-down-syndrome.html?searchResultPosition=9
 
-**South Carolina Seventh Congressional District Primary Election Results**\
-`See full results and maps from the South Carolina primary elections.`\
-https://nytimes.com/interactive/2022/06/14/us/elections/results-south-carolina-us-house-district-7.html?searchResultPosition=10
+**The Battle Over Gender Therapy**\
+`More teenagers than ever are seeking transitions, but the medical community that treats them is deeply divided about why — and what to do to help them.`\
+https://nytimes.com/2022/06/15/magazine/gender-therapy.html?searchResultPosition=10
 
