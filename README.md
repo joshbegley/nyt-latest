@@ -1,6 +1,6 @@
 **Internet Explorer Is Shutting Down in a Burst of Nostalgia**\
 `Microsoft will be disabling IE and directing Windows users to its modern Edge web browser in coming months. The news inspired jokes, memes and even some fond memories.`\
-https://nytimes.com/2022/06/15/business/microsoft-browser-edge.html?searchResultPosition=1
+https://nytimes.com/2022/06/15/business/internet-explorer-shutting-down.html?searchResultPosition=1
 
 **Dr. Anthony Fauci tests positive for the coronavirus.**\
 `The director of the National Institute of Allergy and Infectious Diseases and the face of the U.S. pandemic response, Dr. Fauci had mild symptoms after testing positive Wednesday.`\
