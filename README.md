@@ -1,40 +1,40 @@
+**Another Former Senior Military Officer in Canada Faces Sexual Misconduct Charges**\
+`The two sexual assault charges, against an officer who had been slated to lead the army, are the latest in a cascade of cases and investigations.`\
+https://nytimes.com/2022/06/15/canada-military-sexual-misconduct.html?searchResultPosition=1
+
 **Let’s Have a New Gun Law for Independence Day**\
 `There is hope on guns. It’s not what I expected to say. `\
-https://nytimes.com/2022/06/15/opinion/gun-control-bill-senate.html?searchResultPosition=1
+https://nytimes.com/2022/06/15/opinion/gun-control-bill-senate.html?searchResultPosition=2
 
 **F.D.A. Panel Recommends Pfizer and Moderna Vaccines for Youngest Children**\
 `States have already ordered millions of doses; if the agency authorizes them in the coming days, babies, toddlers and preschoolers could start receiving shots next week.`\
-https://nytimes.com/2022/06/15/us/politics/covid-vaccines-fda-children.html?searchResultPosition=2
+https://nytimes.com/2022/06/15/us/politics/covid-vaccines-fda-children.html?searchResultPosition=3
 
 **An N.F.L. Champion Lives His N.B.A. Dream Through Golden State**\
 `Ronnie Lott won four Super Bowls with the San Francisco 49ers — but basketball is his favorite sport. He’s all-in on Golden State in the N.B.A. finals.`\
-https://nytimes.com/2022/06/15/sports/basketball/ronnie-lott-49ers-nba-finals-golden-state.html?searchResultPosition=3
+https://nytimes.com/2022/06/15/sports/basketball/ronnie-lott-49ers-nba-finals-golden-state.html?searchResultPosition=4
 
 **Déjà Vu in Texas as Astros Pitchers Toss Two Immaculate Innings**\
 `Luis Garcia and Phil Maton each recorded a three-strikeout inning on nine pitches. That they accomplished the feat against the same three Rangers batters added some absurdity.`\
-https://nytimes.com/2022/06/15/sports/baseball/astros-rangers-immaculate-innings.html?searchResultPosition=4
+https://nytimes.com/2022/06/15/sports/baseball/astros-rangers-immaculate-innings.html?searchResultPosition=5
 
 **Jan. 6 Panel Plans to Present New Details of Trump’s Pressure on Pence**\
 `The committee’s third public hearing, at 1 p.m. on Thursday, is set to include testimony from those that were around the former vice president.`\
-https://nytimes.com/2022/06/15/us/jan-6-hearing-pence.html?searchResultPosition=5
+https://nytimes.com/2022/06/15/us/jan-6-hearing-pence.html?searchResultPosition=6
 
 **U.S. Announces Additional $1 Billion in Weapons and Aid for Ukraine**\
 `The United States has now committed about $5.6 billion in security assistance to Ukraine since Russia invaded the country on Feb. 24.`\
-https://nytimes.com/video/world/europe/100000008401198/us-ukraine-aid-weapons.html?searchResultPosition=6
+https://nytimes.com/video/world/europe/100000008401198/us-ukraine-aid-weapons.html?searchResultPosition=7
 
 **Winning When Trump Is Against You: A How-To Guide**\
 `A blueprint is emerging for Republicans who defy the 45th president and still hope to win a G.O.P. primary. Here are five rules of political survival for the aspiring Trump critic.`\
-https://nytimes.com/2022/06/15/us/politics/trump-critics-republican-primaries.html?searchResultPosition=7
+https://nytimes.com/2022/06/15/us/politics/trump-critics-republican-primaries.html?searchResultPosition=8
 
 **How Useful Are Supplements?**\
 `More than half of Americans use some kind of dietary supplement. But how effective are they really?`\
-https://nytimes.com/interactive/2022/06/15/well/supplements-effectiveness-quiz.html?searchResultPosition=8
+https://nytimes.com/interactive/2022/06/15/well/supplements-effectiveness-quiz.html?searchResultPosition=9
 
 **Normalizing Mass Hysteria**\
 `We are now living in an age of political mass hysteria led by Donald Trump’s election lies.`\
-https://nytimes.com/2022/06/15/opinion/mass-hysteria-trump.html?searchResultPosition=9
-
-**Democratic lawmaker will face G.O.P. businessman in Central Valley battleground.**\
-`Adam C. Gray and John Duarte have both focused on water access for farmers.`\
-https://nytimes.com/2022/06/15/us/politics/gray-duarte-california-election.html?searchResultPosition=10
+https://nytimes.com/2022/06/15/opinion/mass-hysteria-trump.html?searchResultPosition=10
 
