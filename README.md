@@ -1,40 +1,40 @@
-**Keisha Lance Bottoms, Former Atlanta Mayor, to Be Biden Senior Adviser**\
-`Ms. Bottoms, who drew national attention for her handling of protests after the George Floyd murder, will succeed Cedric Richmond as head of the White House Office of Public Engagement.`\
-https://nytimes.com/2022/06/15/us/politics/keisha-lance-bottoms-biden-white-house.html?searchResultPosition=1
+**Nevada Third Congressional District Primary Election Results**\
+`See full results and maps from the Nevada primary elections.`\
+https://nytimes.com/interactive/2022/06/14/us/elections/results-nevada-us-house-district-3.html?searchResultPosition=1
 
-**Your Wednesday Briefing**\
-`Ukraine falters in the east.`\
-https://nytimes.com/2022/06/15/briefing/deportations-rwanda-ukraine-nato.html?searchResultPosition=2
+**North Dakota Secretary of State Primary Election Results**\
+`See full results and maps from the North Dakota primary elections.`\
+https://nytimes.com/interactive/2022/06/14/us/elections/results-north-dakota-secretary-of-state.html?searchResultPosition=2
 
-**Los Angeles Mayor Special Election Results**\
-`See full results and maps from the California special elections.`\
-https://nytimes.com/interactive/2022/06/07/us/elections/results-california-los-angeles-mayor.html?searchResultPosition=3
+**North Dakota U.S. Senate Primary Election Results**\
+`See full results and maps from the North Dakota primary elections.`\
+https://nytimes.com/interactive/2022/06/14/us/elections/results-north-dakota-us-senate.html?searchResultPosition=3
 
-**California U.S. Senate Special Election Results**\
-`See full results and maps from the California special elections.`\
-https://nytimes.com/interactive/2022/06/07/us/elections/results-california-us-senate-special.html?searchResultPosition=4
+**South Carolina U.S. Senate Primary Election Results**\
+`See full results and maps from the South Carolina primary elections.`\
+https://nytimes.com/interactive/2022/06/14/us/elections/results-south-carolina-us-senate.html?searchResultPosition=4
 
-**South Dakota At-Large Congressional District Primary Election Results**\
-`See full results and maps from the South Dakota primary elections.`\
-https://nytimes.com/interactive/2022/06/07/us/elections/results-south-dakota-us-house-district-1.html?searchResultPosition=5
+**North Dakota Attorney General Primary Election Results**\
+`See full results and maps from the North Dakota primary elections.`\
+https://nytimes.com/interactive/2022/06/14/us/elections/results-north-dakota-attorney-general.html?searchResultPosition=5
 
-**California State Controller Primary Election Results**\
-`See full results and maps from the California primary elections.`\
-https://nytimes.com/interactive/2022/06/07/us/elections/results-california-state-controller.html?searchResultPosition=6
+**South Carolina Second Congressional District Primary Election Results**\
+`See full results and maps from the South Carolina primary elections.`\
+https://nytimes.com/interactive/2022/06/14/us/elections/results-south-carolina-us-house-district-2.html?searchResultPosition=6
 
-**California 12th Congressional District Primary Election Results**\
-`See full results and maps from the California primary elections.`\
-https://nytimes.com/interactive/2022/06/07/us/elections/results-california-us-house-district-12.html?searchResultPosition=7
+**Nevada Fourth Congressional District Primary Election Results**\
+`See full results and maps from the Nevada primary elections.`\
+https://nytimes.com/interactive/2022/06/14/us/elections/results-nevada-us-house-district-4.html?searchResultPosition=7
 
-**South Dakota Constitutional Amendment Election Results **\
-`See full results and maps from the South Dakota election.`\
-https://nytimes.com/interactive/2022/06/07/us/elections/results-south-dakota-constitutional-amendment.html?searchResultPosition=8
+**Nevada Governor Primary Election Results**\
+`See full results and maps from the Nevada primary elections.`\
+https://nytimes.com/interactive/2022/06/14/us/elections/results-nevada-governor.html?searchResultPosition=8
 
-**San Francisco District Attorney Recall Election Results**\
-`See full results and maps from the San Francisco District Attorney recall election.`\
-https://nytimes.com/interactive/2022/06/07/us/elections/results-california-san-francisco-district-attorney-recall.html?searchResultPosition=9
+**South Carolina Seventh Congressional District Primary Election Results**\
+`See full results and maps from the South Carolina primary elections.`\
+https://nytimes.com/interactive/2022/06/14/us/elections/results-south-carolina-us-house-district-7.html?searchResultPosition=9
 
-**California Fourth Congressional District Primary Election Results**\
-`See full results and maps from the California primary elections.`\
-https://nytimes.com/interactive/2022/06/07/us/elections/results-california-us-house-district-4.html?searchResultPosition=10
+**Nevada First Congressional District Primary Election Results**\
+`See full results and maps from the Nevada primary elections.`\
+https://nytimes.com/interactive/2022/06/14/us/elections/results-nevada-us-house-district-1.html?searchResultPosition=10
 
