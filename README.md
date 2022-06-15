@@ -28,7 +28,7 @@ https://nytimes.com/2022/06/15/us/politics/covid-vaccine-children-risks.html?sea
 
 **Biden slaps oil companies for profiteering at the pump.**\
 `In a letter to seven large energy firms, the president said excessive margins were “worsening that pain” for American consumers.`\
-https://nytimes.com/2022/06/15/business/biden-gas-prices.html?searchResultPosition=8
+https://nytimes.com/2022/06/15/business/biden-oil-companies-gas-prices.html?searchResultPosition=8
 
 **In Dakar, African Art Speaks in All Its Voices**\
 `In its first pandemic-era edition, the Dakar Biennale, Africa’s biggest art gathering, is uneven, hectic — and full of possibility.`\
