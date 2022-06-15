@@ -28,7 +28,7 @@ https://nytimes.com/video/world/europe/100000008401198/us-ukraine-aid-weapons.ht
 
 **Winning When Trump Is Against You: A How-To Guide**\
 `A blueprint is emerging for Republicans who defy the 45th president and still hope to win a G.O.P. primary. Here are five rules of political survival for the aspiring Trump critic.`\
-https://nytimes.com/2022/06/15/us/politics/trump-critics-republican-primaries.html?searchResultPosition=8
+https://nytimes.com/2022/06/15/us/politics/trump-elections-win-lose-candidates.html?searchResultPosition=8
 
 **How Useful Are Supplements?**\
 `More than half of Americans use some kind of dietary supplement. But how effective are they really?`\
