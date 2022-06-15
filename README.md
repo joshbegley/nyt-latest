@@ -3,7 +3,7 @@
 https://nytimes.com/interactive/2022/06/15/headway/wendy-homeless-home.html?searchResultPosition=1
 
 **Buffalo Shooting Suspect Charged With Federal Hate Crimes**\
-`U.S. Attorney Merrick Garland has announced 26 counts of hate crimes and weapons violations. Some charges may carry the death penalty.`\
+`Attorney General Merrick Garland has announced 26 counts of hate crimes and weapons violations. Some charges may carry the death penalty.`\
 https://nytimes.com/2022/06/15/nyregion/buffalo-shooting-hate-crime-charges.html?searchResultPosition=2
 
 **Ryanair Drops South African Passport Test After Protests**\
