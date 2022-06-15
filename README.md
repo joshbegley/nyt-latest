@@ -11,7 +11,7 @@ https://nytimes.com/video/us/politics/100000008400053/mace-south-carolina-primar
 https://nytimes.com/video/us/100000008400067/yellowstone-rain-flooding.html?searchResultPosition=3
 
 **From Homeless to Home**\
-`I met Wendy Marcum last summer at The Beacon, a homeless shelter in downtown Houston. Wendy told me she was 56 years old and had been homeless for three years. I asked for her number so we could stay in touch`\
+`I met Wendy Marcum last summer at The Beacon, a homeless shelter in downtown Houston. Wendy told me she was 56 years old and had been homeless for three years.  I asked for her number so we could stay in touch`\
 https://nytimes.com/interactive/2022/06/15/headway/wendy-homeless-home.html?searchResultPosition=4
 
 **Buffalo Shooting Suspect Charged With Federal Hate Crimes**\
