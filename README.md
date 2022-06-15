@@ -27,7 +27,7 @@ https://nytimes.com/video/us/100000008400067/yellowstone-rain-flooding.html?sear
 https://nytimes.com/interactive/2022/06/15/headway/wendy-homeless-home.html?searchResultPosition=7
 
 **Buffalo Shooting Suspect Charged With Federal Hate Crimes**\
-`The Justice Department has charged the suspect with 26 counts of hate crimes and weapons violations. Some charges may carry the death penalty.`\
+`The Justice Department has charged the suspect with 26 counts of hate crimes and weapons violations. Some charges could carry the death penalty.`\
 https://nytimes.com/2022/06/15/nyregion/buffalo-shooting-hate-crime-charges.html?searchResultPosition=8
 
 **Ryanair Drops South African Passport Test After Protests**\
