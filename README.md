@@ -8,7 +8,7 @@ https://nytimes.com/2022/06/14/crosswords/daily-puzzle-2022-06-15.html?searchRes
 
 **Search for Journalist and Expert in Amazon Becomes Homicide Investigation**\
 `The police arrested a second suspect after Dom Phillips, a British journalist, and Bruno Araújo Pereira, a Brazilian expert on Indigenous people, went missing.`\
-https://nytimes.com/2022/06/14/world/americas/brazil-dom-phillips-bruno-pereira-murder-investigation.html?searchResultPosition=3
+https://nytimes.com/2022/06/14/world/americas/brazil-amazon-murder-investigation.html?searchResultPosition=3
 
 **Los Angeles Sheriff Special Election Results**\
 `See full results and maps from the California special elections.`\
