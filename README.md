@@ -14,7 +14,7 @@ https://nytimes.com/2022/06/15/us/yellowstone-national-park-floods.html?searchRe
 `Defense Secretary Lloyd J. Austin III called on Western allies to increase military assistance to Ukraine as the country nears four months of fighting Russia’s invasion.`\
 https://nytimes.com/video/world/europe/100000008400010/us-allies-ukraine-military-aid.html?searchResultPosition=4
 
-**Monkeypox Outbreak Poses ‘Real Threat’ to Public Health, W.H.O. Official Says**\
+**Monkeypox Outbreak Poses ‘Real Risk’ to Public Health, W.H.O. Official Says**\
 `Dr. Hans Kluge, the organization’s director for Europe, said that the longer the virus circulated, the wider its reach would be.`\
 https://nytimes.com/2022/06/15/world/europe/monkeypox-outbreak-europe.html?searchResultPosition=5
 
