@@ -1,40 +1,40 @@
-**California 33rd Congressional District Primary Election Results**\
-`See full results and maps from the California primary elections.`\
-https://nytimes.com/interactive/2022/06/07/us/elections/results-california-us-house-district-33.html?searchResultPosition=1
-
-**New Jersey Sixth Congressional District Primary Election Results**\
+**New Jersey Eighth Congressional District Primary Election Results**\
 `See full results and maps from the New Jersey primary elections.`\
-https://nytimes.com/interactive/2022/06/07/us/elections/results-new-jersey-us-house-district-6.html?searchResultPosition=2
+https://nytimes.com/interactive/2022/06/07/us/elections/results-new-jersey-us-house-district-8.html?searchResultPosition=1
 
-**New Jersey First Congressional District Primary Election Results**\
-`See full results and maps from the New Jersey primary elections.`\
-https://nytimes.com/interactive/2022/06/07/us/elections/results-new-jersey-us-house-district-1.html?searchResultPosition=3
+**Los Angeles Mayor Special Election Results**\
+`See full results and maps from the California special elections.`\
+https://nytimes.com/interactive/2022/06/07/us/elections/results-california-los-angeles-mayor.html?searchResultPosition=2
 
-**New Jersey 12th Congressional District Primary Election Results**\
-`See full results and maps from the New Jersey primary elections.`\
-https://nytimes.com/interactive/2022/06/07/us/elections/results-new-jersey-us-house-district-12.html?searchResultPosition=4
-
-**California 49th Congressional District Primary Election Results**\
+**California 39th Congressional District Primary Election Results**\
 `See full results and maps from the California primary elections.`\
-https://nytimes.com/interactive/2022/06/07/us/elections/results-california-us-house-district-49.html?searchResultPosition=5
+https://nytimes.com/interactive/2022/06/07/us/elections/results-california-us-house-district-39.html?searchResultPosition=3
 
-**California 11th Congressional District Primary Election Results**\
+**California State Controller Primary Election Results**\
 `See full results and maps from the California primary elections.`\
-https://nytimes.com/interactive/2022/06/07/us/elections/results-california-us-house-district-11.html?searchResultPosition=6
+https://nytimes.com/interactive/2022/06/07/us/elections/results-california-state-controller.html?searchResultPosition=4
 
-**California 19th Congressional District Primary Election Results**\
-`See full results and maps from the California primary elections.`\
-https://nytimes.com/interactive/2022/06/07/us/elections/results-california-us-house-district-19.html?searchResultPosition=7
+**South Carolina Third Congressional District Primary Election Results**\
+`See full results and maps from the South Carolina primary elections.`\
+https://nytimes.com/interactive/2022/06/14/us/elections/results-south-carolina-us-house-district-3.html?searchResultPosition=5
 
-**California 28th Congressional District Primary Election Results**\
-`See full results and maps from the California primary elections.`\
-https://nytimes.com/interactive/2022/06/07/us/elections/results-california-us-house-district-28.html?searchResultPosition=8
+**Iowa Third Congressional District Primary Election Results**\
+`See full results and maps from the Iowa primary elections.`\
+https://nytimes.com/interactive/2022/06/07/us/elections/results-iowa-us-house-district-3.html?searchResultPosition=6
 
-**Mississippi Third Congressional District Primary Election Results**\
-`See full results and maps from the Mississippi primary elections.`\
-https://nytimes.com/interactive/2022/06/07/us/elections/results-mississippi-us-house-district-3.html?searchResultPosition=9
+**Los Angeles Sheriff Special Election Results**\
+`See full results and maps from the California special elections.`\
+https://nytimes.com/interactive/2022/06/07/us/elections/results-california-los-angeles-sheriff.html?searchResultPosition=7
 
-**California 44th Congressional District Primary Election Results**\
-`See full results and maps from the California primary elections.`\
-https://nytimes.com/interactive/2022/06/07/us/elections/results-california-us-house-district-44.html?searchResultPosition=10
+**San Francisco District Attorney Recall Election Results**\
+`See full results and maps from the San Francisco District Attorney recall election.`\
+https://nytimes.com/interactive/2022/06/07/us/elections/results-california-san-francisco-district-attorney-recall.html?searchResultPosition=8
+
+**New Mexico First Congressional District Primary Election Results**\
+`See full results and maps from the New Mexico primary elections.`\
+https://nytimes.com/interactive/2022/06/07/us/elections/results-new-mexico-us-house-district-1-.html?searchResultPosition=9
+
+**New Mexico Second Congressional District Primary Election Results**\
+`See full results and maps from the New Mexico primary elections.`\
+https://nytimes.com/interactive/2022/06/07/us/elections/results-new-mexico-us-house-district-2.html?searchResultPosition=10
 
