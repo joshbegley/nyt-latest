@@ -4,7 +4,7 @@ https://nytimes.com/2022/06/15/climate/drilling-climate-lawsuit-endangered-speci
 
 **China’s Xi offers closer cooperation with Russia in a call with Putin.**\
 `The Chinese government has tried to keep good ties with Moscow while maintaining that it wants to be an impartial broker for peace in Ukraine.`\
-https://nytimes.com/2022/06/15/world/europe/chinas-xi-offers-closer-cooperation-with-russia-in-a-call-with-putin.html?searchResultPosition=2
+https://nytimes.com/2022/06/15/world/europe/putin-xi-china-russia.html?searchResultPosition=2
 
 **Disney’s ‘Lightyear,’ With a Same-Sex Kiss, Faces a Backlash in Some Muslim Countries**\
 `The United Arab Emirates banned the animated film, an offshoot of the “Toy Story” movies, from its cinemas. Censors in Indonesia and Malaysia are also considering restrictions.`\
