@@ -24,17 +24,17 @@ https://nytimes.com/2022/06/15/us/tech-california-economy.html?searchResultPosit
 
 **U.K. Vows to Press Ahead With Rwanda Deportations**\
 `The British government said it would stick with a plan to send asylum seekers to the African country despite the first flight’s grounding after a ruling by the European Court of Human Rights.`\
-https://nytimes.com/2022/06/15/world/europe/uk-asylum-seekers-rwanda.html?searchResultPosition=7
+https://nytimes.com/2022/06/15/world/europe/uk-rwanda-asylum-deportations.html?searchResultPosition=7
+
+**Macron says he wants a Ukrainian victory, but underlines that talks will still be necessary.**\
+`During a visit to Romania, the French president appeared intent on addressing criticism that he was placing pressure on Kyiv to enter into peace talks.`\
+https://nytimes.com/2022/06/15/world/europe/macron-ukraine-victory-russia.html?searchResultPosition=8
 
 **How Much Can the Fed Do?**\
 `The Fed will conclude its two-day policy meeting today and announce what it will do with the short-term interest rate it sets.`\
-https://nytimes.com/2022/06/15/business/dealbook/fed-interest-rates.html?searchResultPosition=8
+https://nytimes.com/2022/06/15/business/dealbook/fed-interest-rates.html?searchResultPosition=9
 
 **It’s Going to Be Dangerously Hot for 100 Million Americans**\
 `Nearly a third of the U.S. population was under an extreme heat warning, with heat indexes in some cities climbing over 110 degrees, meteorologists said.`\
-https://nytimes.com/2022/06/15/us/heat-wave-midwest-southeast.html?searchResultPosition=9
-
-**How Nike Won the Cultural Marathon**\
-`As the brand turns 50, it’s not letting up.`\
-https://nytimes.com/2022/06/15/style/nike-culture.html?searchResultPosition=10
+https://nytimes.com/2022/06/15/us/heat-wave-midwest-southeast.html?searchResultPosition=10
 
