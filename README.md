@@ -1,4 +1,4 @@
-**The Boston Celtics Have Faced Elimination, But Not Like This**\
+**The Boston Celtics Have Faced Elimination, but Not Like This**\
 `The Celtics have drawn confidence from previous season-saving wins. But watching a championship trophy drift away is another challenge altogether.`\
 https://nytimes.com/2022/06/15/sports/basketball/boston-celtics-nba-finals-elimination.html?searchResultPosition=1
 
