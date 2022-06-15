@@ -1,6 +1,6 @@
 **5 Takeaways From Tuesday’s Voting**\
 `Nevada shapes up as a fall battleground between vulnerable Democrats and election-denying Republicans. South Carolina G.O.P. voters punished one House incumbent who broke with Donald Trump, but forgave another. And Texas Republicans scored at least a short-term victory.`\
-https://nytimes.com/2022/06/15/us/politics/tuesdays-primary-takeaways.html?searchResultPosition=1
+https://nytimes.com/2022/06/15/us/politics/south-carolina-nevada-primary-mayra-flores.html?searchResultPosition=1
 
 **At 75, the Holland Festival Is Back and More Global Than Ever**\
 `The event, which focuses this year on the climate and issues of representation, is designed to introduce audiences to vital artistic voices.`\
