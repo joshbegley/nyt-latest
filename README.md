@@ -27,7 +27,7 @@ https://nytimes.com/2022/06/15/opinion/moderna-pfizer-under-5-vaccine-covid.html
 https://nytimes.com/video/us/politics/100000008401347/new-surveillance-footage-jan-6.html?searchResultPosition=7
 
 **Two U.S. veterans fighting in Ukraine have gone missing, family members say.**\
-`It wasn’t clear what happened to the two men from Alabama. They were last seen in combat on June 9.`\
+`The two men, who are both from Alabama, were last seen in combat on June 9.`\
 https://nytimes.com/2022/06/15/world/europe/americans-missing-ukraine.html?searchResultPosition=8
 
 **Lawyers Make Closing Arguments in Bill Cosby Sex Assault Trial**\
