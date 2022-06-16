@@ -4,7 +4,7 @@ https://nytimes.com/2022/06/16/us/yellowstone-floods-summer.html?searchResultPos
 
 **Homeland Security Department Will Make Changes to Its Disciplinary Process**\
 `The announcement comes as Congress investigates the removal of damaging findings from reports on domestic violence and sexual misconduct by department employees.`\
-https://nytimes.com/2022/06/16/us/politics/homeland-security-department-will-make-changes-to-its-disciplinary-process.html?searchResultPosition=2
+https://nytimes.com/2022/06/16/us/politics/homeland-security-department.html?searchResultPosition=2
 
 **Phil Tippett’s World in (Stop) Motion**\
 `The animator and visual effects artist, whose credits include “Jurassic Park” and “The Empire Strikes Back,” has directed his passion project, “Mad God.”`\
