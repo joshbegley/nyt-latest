@@ -7,7 +7,7 @@ https://nytimes.com/2022/06/16/us/best-farmers-markets-california.html?searchRes
 https://nytimes.com/2022/06/16/business/dealbook/elon-musk-meeting.html?searchResultPosition=2
 
 **Tens of thousands of civilians are now largely stranded in the middle of one of the war’s deadliest battles.**\
-`By Thomas Gibbons-Neff, Marc Santora and Natalia Yermak`\
+`People in one city key city are now largely on their own. Those who have escaped describe harrowing scenes.`\
 https://nytimes.com/2022/06/16/world/europe/tens-of-thousands-of-civilians-are-now-largely-stranded-in-the-middle-of-one-of-the-wars-deadliest-battles.html?searchResultPosition=3
 
 **Bank of England raises rates for a fifth time, to 1.25 percent.**\
