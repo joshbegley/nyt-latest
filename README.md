@@ -11,7 +11,7 @@ https://nytimes.com/2022/06/16/arts/dance/review-alvin-ailey-jamar-roberts.html?
 https://nytimes.com/2022/06/16/business/media/usa-today-fabricated-sources.html?searchResultPosition=3
 
 **Watch Live: Jan. 6 Hearing Focuses on Trump Effort to Pressure Pence**\
-`The Jan. 6 committee intends to show former President Donald J. Trump’s pressure campaign against former Vice President Mike Pence to try to persuade Mr. Pence to throw out Joseph R. Biden Jr.’s victory.`\
+`The Jan. 6 committee intends to show how former President Donald J. Trump pressured former Vice President Mike Pence to throw out Joseph R. Biden Jr.’s victory.`\
 https://nytimes.com/video/us/politics/100000008398389/jan-6-hearing-livestream-watch.html?searchResultPosition=4
 
 **Where Are the Delivery Drones?**\
