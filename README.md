@@ -26,7 +26,7 @@ https://nytimes.com/2022/06/16/arts/music/beyonce-renaissance-new-album.html?sea
 `The company has struggled to attract younger shoppers who are choosing celebrity makeup lines like those from Kylie Jenner and Rihanna.`\
 https://nytimes.com/2022/06/16/business/revlon-bankruptcy.html?searchResultPosition=7
 
-**He Was Acquitted of a 1990 Murder. But New DNA Test Shows He Was Guilty, Officials Say.**\
+**They Hoped a DNA Test Would Clear Him. It Did the Opposite.**\
 `Robert Earl Hayes was found not guilty of a murder that occurred more than 30 years ago. Now a prosecutor in Florida says a recent DNA test proves he is guilty.`\
 https://nytimes.com/2022/06/16/us/dna-evidence-robert-hayes-killer-florida.html?searchResultPosition=8
 
