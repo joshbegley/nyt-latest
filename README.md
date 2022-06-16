@@ -26,7 +26,7 @@ https://nytimes.com/video/world/europe/100000008402154/ukraine-nato-europe.html?
 `Kathy Hochul, Jumaane Williams and Tom Suozzi, the three candidates in the Democratic primary for governor, will meet in their second and final matchup Thursday night at 7 p.m.`\
 https://nytimes.com/2022/06/16/nyregion/ny-governor-debate-how-to-watch.html?searchResultPosition=7
 
-**Man Dies After Pants Are Trapped by Subway Doors**\
+**Man Dies After Pants Are Trapped by Subway Doors in New York**\
 `A man who appeared to be in his 30s was exiting the train on Wednesday night when his pants were caught between the doors, causing him to be dragged onto the tracks, the police said.`\
 https://nytimes.com/2022/06/16/nyregion/nyc-subway-death.html?searchResultPosition=8
 
