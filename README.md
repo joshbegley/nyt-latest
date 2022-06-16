@@ -1,40 +1,40 @@
-**The Only Surviving Manuscript of ‘Paradise Lost’**\
-`John Milton, by then completely blind, composed his epic poem by dictation.`\
-https://nytimes.com/2022/06/16/books/review/paradise-lost-manuscript-john-milton.html?searchResultPosition=1
+**Democrats Need to Understand the Real Message San Francisco Sent**\
+`The conflation of criminal-justice reform with urban disorder is a threat to the party across the country.`\
+https://nytimes.com/2022/06/16/opinion/democrats-san-francisco-chesa-boudin.html?searchResultPosition=1
 
-**Will Estrada and the Long Roots of Parental Rights**\
-`The story behind the parental rights movement and how it seemingly came out of nowhere.`\
-https://nytimes.com/2022/06/16/opinion/will-estrada-and-parental-rights.html?searchResultPosition=2
+**Rose B. Simpson Thinks in Clay**\
+`“Clay was the earth that grew our food, was the house we lived in, was the pottery we ate out of and prayed with,” says the Native American sculptor and rising star.`\
+https://nytimes.com/2022/06/16/arts/design/rose-b-simpson-clay-sculpture.html?searchResultPosition=2
 
-**Judge John Hodgman on Saving Baby Teeth**\
-`Who gets to decide which childhood treasures should be preserved?`\
-https://nytimes.com/2022/06/16/magazine/judge-john-hodgman-on-saving-baby-teeth.html?searchResultPosition=3
+**Decades After Infamous Beating Death, Recent Attacks Haunt Asian Americans**\
+`Vincent Chin, a Chinese immigrant, was beaten to death after being pursued by two white Detroit autoworkers in 1982. On the 40th anniversary of his death, many hear frightening echoes.`\
+https://nytimes.com/2022/06/16/us/vincent-chin-anti-asian-attack-detroit.html?searchResultPosition=3
 
-**As Bitcoin Busts, What’s the Future of Web3? And What Even is Web3?**\
-`Kara Swisher talks to Chris Dixon of Andreessen Horowitz about why Silicon Valley is doubling down on crypto despite its slide.`\
-https://nytimes.com/2022/06/16/opinion/sway-kara-swisher-chris-dixon.html?searchResultPosition=4
+**How a Religious Sect Landed Google in a Lawsuit**\
+`A video producer claims he was fired after he complained that an obscure group based in the Sierra foothills dominated a business unit at Google.`\
+https://nytimes.com/2022/06/16/technology/google-fellowship-of-friends-sect.html?searchResultPosition=4
 
-**My Father, the Critic**\
-`Learning to accept long-sought-after praise from my dad.`\
-https://nytimes.com/2022/06/16/opinion/my-father-the-critic.html?searchResultPosition=5
+**Democrats’ Risky Bet: Aid G.O.P. Extremists in Spring, Hoping to Beat Them in Fall**\
+`As Democratic leaders warn loudly of right-wing threats to democracy, their campaign arms are meddling in Republican primaries, betting they can help pick easier opponents in November.`\
+https://nytimes.com/2022/06/16/us/politics/democrats-midterms-trump-gop.html?searchResultPosition=5
 
-**Poem: Monticello House Tour**\
-`The word “slavery” is never directly stated in this rumination on the legacy of Thomas Jefferson.`\
-https://nytimes.com/2022/06/16/magazine/poem-monticello-house-tour.html?searchResultPosition=6
+**Summer in Copenhagen: Biking, Dining and Celebrating**\
+`Add the Tour de France — starting in Denmark’s capital this year — to the roster of summer activities, which also includes music festivals, design exhibitions and indulging in buttery pastries.`\
+https://nytimes.com/2022/06/16/travel/copenhagen-what-to-do.html?searchResultPosition=6
 
-**Heading North to Upper Manhattan, or the Lower Bronx, With $400,000. Guess Which Apartment They Chose.**\
-`After six years in a dim Washington Heights rental, a couple of first-time buyers explored the prewar possibilities in Inwood and Spuyten Duyvil. Could they afford a second bedroom?`\
-https://nytimes.com/interactive/2022/06/16/realestate/16hunt-plummer.html?searchResultPosition=7
+**Cannupa Hanska Luger Is Turning the Tables on the Art World**\
+`His work playfully critiques what White audiences want — and upends long-held ideas about what Native American art should look like.`\
+https://nytimes.com/2022/06/16/magazine/cannupa-hanska-luger-profile.html?searchResultPosition=7
 
-**Interest Rates Rise Around the World, as War and High Inflation Grind On**\
-`Nearly four dozen countries have raised interest rates this year in a bid to contain the most rapid inflation in decades.`\
-https://nytimes.com/interactive/2022/06/16/business/economy/global-interest-rate-increases.html?searchResultPosition=8
+**8 Audiobooks to Listen to Now**\
+`A memoir of Ativan withdrawal, a British Jamaican coming-of-age on the streets of Bristol, a tour of the sensory world of the animal kingdom, and more.`\
+https://nytimes.com/2022/06/16/books/review/8-audiobooks-to-listen-to-now.html?searchResultPosition=8
 
-**Elle Woods Returns to London in a Revamped ‘Legally Blonde’**\
-`The updated musical version of the popular film challenges preconceived notions about the protagonist’s appearance. A take on “Oklahoma!” similarly offers a twist on a classic.`\
-https://nytimes.com/2022/06/16/theater/legally-blonde-oklahoma-london.html?searchResultPosition=9
+**Searching for a Gay Getaway (Not Fire Island)**\
+`Looking for an L.B.G.T.Q.-friendly spot that includes neither sand nor wild parties, a writer finds it in twin towns along the Delaware River.`\
+https://nytimes.com/2022/06/16/travel/queer-travel-new-hope-lgbtq-friendly.html?searchResultPosition=9
 
-**A Chinese city may have used a Covid app to block protesters, drawing an outcry.**\
-`People from across China had set off for the city of Zhengzhou to protest the freezing of their savings. Then they were prevented from moving freely.`\
-https://nytimes.com/2022/06/16/business/china-code-protesters.html?searchResultPosition=10
+**Ukraine’s Highly Mobile Tech Work Force Hits the Road**\
+`How one Lithuanian company evacuated dozens of employees, three dogs and one guinea pig as Russia invaded.`\
+https://nytimes.com/2022/06/16/business/ukraine-tech-workers.html?searchResultPosition=10
 
