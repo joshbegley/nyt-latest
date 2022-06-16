@@ -10,7 +10,7 @@ https://nytimes.com/2022/06/16/opinion/france-elections-melenchon-macron.html?se
 `The congresswoman, who has recently been vocal about New York City political players, denounced what she called “dirty politics.”`\
 https://nytimes.com/2022/06/16/nyregion/ocasio-cortez-assails-city-council-speaker-over-budget.html?searchResultPosition=3
 
-**In Ukraine, One Minority Group Feels Ambivalence About the War**\
+**In Ukraine, a Minority Group Feels Ambivalence About the War**\
 `After Moscow’s invasion, some Ukrainians worry that divided loyalties within the country’s small ethnic Hungarian minority might make it susceptible to pro-Russia propaganda from Hungary.`\
 https://nytimes.com/2022/06/16/world/europe/ethnic-hungarians-ukraine-war.html?searchResultPosition=4
 
