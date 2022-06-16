@@ -3,7 +3,7 @@
 https://nytimes.com/2022/06/16/world/europe/missing-american-ukraine.html?searchResultPosition=1
 
 **Dorothy E. Smith, Groundbreaker in Feminist Sociology, Dies at 95**\
-`Starting in the 1960s, she sought to re-center her discipline on the experiences of women, people of color and other oppressed groups.`\
+`Starting in the 1960s, she sought to re-center her discipline on the experiences of women, people of color and other marginalized groups.`\
 https://nytimes.com/2022/06/16/education/dorothy-e-smith-dead.html?searchResultPosition=2
 
 **Europe Offers Ukraine a Hope of Joining the E.U., but Not a Vast Arsenal**\
