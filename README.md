@@ -34,7 +34,7 @@ https://nytimes.com/2022/06/15/sports/baseball/astros-rangers-immaculate-innings
 `The committee’s third public hearing, at 1 p.m. on Thursday, is set to include testimony from those who were around the former vice president.`\
 https://nytimes.com/2022/06/15/us/jan-6-hearing-pence.html?searchResultPosition=9
 
-**U.S. Announces Additional $1 Billion in Weapons and Aid for Ukraine**\
-`The United States has now committed about $5.6 billion in security assistance to Ukraine since Russia invaded the country on Feb. 24.`\
-https://nytimes.com/video/world/europe/100000008401198/us-ukraine-aid-weapons.html?searchResultPosition=10
+**Dr. Anthony Fauci tests positive for the coronavirus.**\
+`By Sheryl Gay Stolberg`\
+https://nytimes.com/2022/06/15/us/politics/dr-anthony-fauci-tests-positive-for-the-coronavirus.html?searchResultPosition=10
 
