@@ -1,40 +1,40 @@
+**Homes for Sale in New Jersey and on Long Island**\
+`This week’s available properties are a four-bedroom, Victorian-era house in Maywood, N.J., and a four-bedroom Colonial in Cold Spring Harbor, N.Y.`\
+https://nytimes.com/2022/06/16/realestate/housing-market-near-nyc.html?searchResultPosition=1
+
+**Homes for Sale in New Jersey and on Long Island**\
+`This week’s available properties are a four-bedroom, Victorian-era house in Maywood, N.J., and a four-bedroom Colonial in Cold Spring Harbor, N.Y.`\
+https://nytimes.com/slideshow/2022/06/16/realestate/housing-market-near-nyc.html?searchResultPosition=2
+
+**Homes for Sale in New York City**\
+`This week’s available properties are on the Upper West Side, in Greenwich Village and in Park Slope.`\
+https://nytimes.com/2022/06/16/realestate/housing-market-nyc.html?searchResultPosition=3
+
+**Homes for Sale in New York City**\
+`This week’s available properties are on the Upper West Side, in Greenwich Village and in Park Slope.`\
+https://nytimes.com/slideshow/2022/06/16/realestate/housing-market-nyc.html?searchResultPosition=4
+
+**An Enchanting Resort in Australia’s Southern Highlands**\
+`Plus: Vibrant enamel pitchers, luxury pet accessories and more recommendations from T Magazine.`\
+https://nytimes.com/2022/06/16/t-magazine/osborn-house-hotel-australia.html?searchResultPosition=5
+
+**Chess Replay: You Versus Pachman**\
+`Take on Luděk Pachman in a recreation of a tournament game in Bled, 1961.`\
+https://nytimes.com/2022/06/16/crosswords/chess/chess-replay-you-versus-pachman.html?searchResultPosition=6
+
+**Shouldn’t the Girl on My Son’s Team Be in Another Division?**\
+`A reader, upset that her child has been outshined by a female baseball player, wonders if his teammate should be promoted to an older division based on her size and skill.`\
+https://nytimes.com/2022/06/16/style/baseball-gender-social-qs.html?searchResultPosition=7
+
 **What Are the Best Farmers’ Markets in California?**\
 `Readers weigh in.`\
-https://nytimes.com/2022/06/16/us/best-farmers-markets-california.html?searchResultPosition=1
+https://nytimes.com/2022/06/16/us/best-farmers-markets-california.html?searchResultPosition=8
 
 **Office Hours With Elon Musk at Twitter**\
 `Musk will attend a virtual all-hands meeting as his $44 billion acquisition of the company moves ahead, despite his hand-wringing about bots.`\
-https://nytimes.com/2022/06/16/business/dealbook/elon-musk-meeting.html?searchResultPosition=2
+https://nytimes.com/2022/06/16/business/dealbook/elon-musk-meeting.html?searchResultPosition=9
 
 **Tens of thousands of civilians are now largely stranded in the middle of one of the war’s deadliest battles.**\
 `People in one city key city are now largely on their own. Those who have escaped describe harrowing scenes.`\
-https://nytimes.com/2022/06/16/world/europe/tens-of-thousands-of-civilians-are-now-largely-stranded-in-the-middle-of-one-of-the-wars-deadliest-battles.html?searchResultPosition=3
-
-**Bank of England raises rates for a fifth time, to 1.25 percent.**\
-`Inflation is reaching deeper into the British economy, the bank said, as businesses raise prices and workers seek higher pay.`\
-https://nytimes.com/2022/06/16/business/bank-of-england-interest-rates.html?searchResultPosition=4
-
-**Macron Sends Message of European Unity Ahead of Zelensky Meeting**\
-`President Emmanuel Macron of France said he was coming to Ukraine with “a message of unity,” as he arrived in Kyiv with Chancellor Olaf Scholz of Germany and Prime Minister Mario Draghi of Italy.`\
-https://nytimes.com/video/world/europe/100000008401856/macron-ukraine-leaders-visit.html?searchResultPosition=5
-
-**The U.S. Open That Almost Didn’t Happen**\
-`One of the U.S.G.A.’s most cherished courses, the Country Club is tucked away in an exclusive neighborhood with little room for the demands of a modern major tournament.`\
-https://nytimes.com/2022/06/16/sports/golf/us-open-country-club-brookline.html?searchResultPosition=6
-
-**‘Stay Prayed Up’ Review: Spreading the Gospel of Love**\
-`A new documentary about the gospel ensemble the Branchettes and its guiding light, Lena Mae Perry, is a plain-spoken tribute.`\
-https://nytimes.com/2022/06/16/movies/stay-prayed-up-review.html?searchResultPosition=7
-
-**‘Sing, Dance, Act: Kabuki Featuring Toma Ikuta’ Review: A New Path**\
-`Cameras follow Ikuta, an actor on popular Japanese teen dramas in the 2000s, as he learns Kabuki’s expressions and movements from a friend.`\
-https://nytimes.com/2022/06/16/movies/sing-dance-act-kabuki-toma-ikuta-review.html?searchResultPosition=8
-
-**‘Spiderhead’ Review: Prisoners of the Mind**\
-`This latest Joseph Kosinski film — set in a penitentiary that dispenses aphrodisiacs and fear-inducers — couldn’t be more unlike his “Top Gun: Maverick.”`\
-https://nytimes.com/2022/06/16/movies/spiderhead-review-prisoners-of-the-mind.html?searchResultPosition=9
-
-**‘Bitterbrush’ Review: Alone on the Range**\
-`Though this quiet documentary about two young range riders recalls a western or two, it presents a modern-day portrait of hard work and friendship.`\
-https://nytimes.com/2022/06/16/movies/bitterbrush-review.html?searchResultPosition=10
+https://nytimes.com/2022/06/16/world/europe/tens-of-thousands-of-civilians-are-now-largely-stranded-in-the-middle-of-one-of-the-wars-deadliest-battles.html?searchResultPosition=10
 
