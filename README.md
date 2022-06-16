@@ -14,27 +14,27 @@ https://nytimes.com/interactive/2022/06/16/climate/congo-river-deforestation-log
 `Artists and civilians alike chafe at the pressures of presenting themselves online.`\
 https://nytimes.com/2022/06/16/style/tiktok-viral-music-marketing.html?searchResultPosition=4
 
+**Greg Jacob: A Top White House lawyer will say it was clear Pence had no power to overturn the election.**\
+`Mr. Jacob warned the vice president that he would likely lose in court if he obstructed the certification of the 2020 election results.`\
+https://nytimes.com/2022/06/16/us/greg-jacob-house-lawyer-trump.html?searchResultPosition=5
+
 **The war in Ukraine revives an old practice: train diplomacy.**\
 `With Ukraine’s airspace closed to civilian traffic since Russia’s invasion, European leaders had to take a train to Kyiv to visit President Volodymyr Zelensky.`\
-https://nytimes.com/2022/06/16/world/europe/war-ukraine-macron-draghi-scholz-train.html?searchResultPosition=5
+https://nytimes.com/2022/06/16/world/europe/war-ukraine-macron-draghi-scholz-train.html?searchResultPosition=6
 
 **Should Biden Run for Re-election in 2024?**\
 `Readers offer conflicting answers, citing his “excellent record” and his age. Also: A threat to free speech; election deniers; Republicans against birth control.`\
-https://nytimes.com/2022/06/16/opinion/letters/biden-election-2024.html?searchResultPosition=6
+https://nytimes.com/2022/06/16/opinion/letters/biden-election-2024.html?searchResultPosition=7
 
 **European Leaders Meet With Zelensky in Kyiv**\
 `The leaders of France, Germany and Italy traveled to Ukraine’s capital to meet with President Volodymyr Zelensky in their first such show of support since Russia’s invasion began.`\
-https://nytimes.com/video/world/europe/100000008401925/ukraine-zelensky-kyiv-european-leaders.html?searchResultPosition=7
+https://nytimes.com/video/world/europe/100000008401925/ukraine-zelensky-kyiv-european-leaders.html?searchResultPosition=8
 
 **European Leaders Condemn Russia’s Brutality During Visit to Irpin**\
 `President Emmanuel Macron of France, Chancellor Olaf Scholz of Germany and Prime Minister Mario Draghi of Italy visited the ruined Ukrainian city in the Kyiv suburbs.`\
-https://nytimes.com/video/world/europe/100000008401983/ukraine-war-european-leaders-irpin.html?searchResultPosition=8
+https://nytimes.com/video/world/europe/100000008401983/ukraine-war-european-leaders-irpin.html?searchResultPosition=9
 
 **In the Metaverse, Life Imitates Art**\
 `The virtual world will alter how we live in the real world.`\
-https://nytimes.com/2022/06/16/special-series/krista-kim-metaverse-nft-art-reality.html?searchResultPosition=9
-
-**Moscow says babies born in occupied Kherson will automatically get Russian citizenship.**\
-`The move, part of an effort to integrate occupied Ukrainian areas with Russia, comes as Kyiv launches counterattacks to try to take back territories.`\
-https://nytimes.com/2022/06/16/world/europe/ukraine-kherson-babies-russian-citizenship.html?searchResultPosition=10
+https://nytimes.com/2022/06/16/special-series/krista-kim-metaverse-nft-art-reality.html?searchResultPosition=10
 
