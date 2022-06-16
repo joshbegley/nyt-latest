@@ -1,6 +1,6 @@
 **Maxwell Tells Stories of Mistreatment in Bid for a Lighter Sentence**\
 `A memo to the judge who will decide her punishment says her privileged-but-sad upbringing made her vulnerable to Epstein.`\
-https://nytimes.com/2022/06/15/nyregion/maxwell-tells-stories-of-mistreatment-in-bid-for-a-lighter-sentence.html?searchResultPosition=1
+https://nytimes.com/2022/06/15/nyregion/ghislaine-maxwell-sentence-jeffrey-epstein.html?searchResultPosition=1
 
 **Quotation of the Day: With Biggest Rate Increase Since ’94, Fed Gets Tough on Soaring Inflation**\
 `Quotation of the Day for Thursday, June 16, 2022.`\
