@@ -2,7 +2,7 @@
 `The union that called the strike has become the most powerful opponent of President Kais Saied as he tries to concentrate power.`\
 https://nytimes.com/2022/06/16/world/middleeast/tunisia-union-strike-kais-saied.html?searchResultPosition=1
 
-**‘Wholly Unexpected’: These Polar Bears Can Survive Without Sea Ice**\
+**‘Wholly Unexpected’: These Polar Bears Can Survive With Less Sea Ice**\
 `The overall threat to the animals from climate change remains, but a new finding suggests that small numbers might survive for longer as the Arctic warms.`\
 https://nytimes.com/2022/06/16/climate/climate-change-polar-bears.html?searchResultPosition=2
 
