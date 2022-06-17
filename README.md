@@ -1,4 +1,4 @@
-**Church Shooting in Alabama Leaves One Dead and Two Wounded**\
+**Church Shooting in Alabama Leaves Two Dead and One Wounded**\
 `A suspect was in custody after the shooting at an Episcopal church in Vestavia Hills, the police said.`\
 https://nytimes.com/2022/06/16/us/vestavia-hills-alabama-church-shooting.html?searchResultPosition=1
 
