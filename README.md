@@ -1,40 +1,40 @@
+**Greek Court Rejects Effort to Toughen Punishment After Killing of an American**\
+`Bakari Henderson, a college graduate from Texas, was beaten to death in a resort area in July 2017. The court on Friday upheld the original sentences.`\
+https://nytimes.com/2022/06/17/world/europe/bakari-henderson-death-greece-retrial.html?searchResultPosition=1
+
 **Russians Breached This City,Not With Troops, but Propaganda**\
 `As they batter towns and cities in Ukraine with artillery, the Russians are also bombarding them with messaging aimed at eroding Ukrainians’ trust in their military and their government.`\
-https://nytimes.com/2022/06/17/world/europe/ukraine-russia-propaganda.html?searchResultPosition=1
+https://nytimes.com/2022/06/17/world/europe/ukraine-russia-propaganda.html?searchResultPosition=2
 
 **What to Know About the Covid Vaccine for Little Kids**\
 `Here are answers to five common questions.`\
-https://nytimes.com/2022/06/17/well/children-under-five-covid-vaccine.html?searchResultPosition=2
+https://nytimes.com/2022/06/17/well/children-under-five-covid-vaccine.html?searchResultPosition=3
 
 **What to Cook This Weekend**\
 `Juneteenth and Father’s Day are coming, and we have loads of recipes.`\
-https://nytimes.com/2022/06/17/dining/what-to-cook-this-weekend.html?searchResultPosition=3
+https://nytimes.com/2022/06/17/dining/what-to-cook-this-weekend.html?searchResultPosition=4
 
 **Drake Releases ‘Honestly, Nevermind,’ an LP Dedicated to Virgil Abloh**\
 `The rapper’s 14-track seventh studio album came out at midnight, about six hours after it was announced on social media.`\
-https://nytimes.com/2022/06/17/arts/music/drake-honestly-nevermind.html?searchResultPosition=4
+https://nytimes.com/2022/06/17/arts/music/drake-honestly-nevermind.html?searchResultPosition=5
 
 **N.Y.C.’s vaccine plan for children younger than 5 relies on pediatricians and vaccine hubs.**\
 `The city hopes to start vaccinating children under 5 on June 22 at many kinds of locations.`\
-https://nytimes.com/2022/06/17/nyregion/nyc-kids-vaccines.html?searchResultPosition=5
+https://nytimes.com/2022/06/17/nyregion/nyc-kids-vaccines.html?searchResultPosition=6
 
 **How Houston Is Overhauling Homelessness and More: The Week in Narrated Articles**\
 `Five articles from around The Times, narrated just for you.`\
-https://nytimes.com/2022/06/17/podcasts/narrated-articles.html?searchResultPosition=6
+https://nytimes.com/2022/06/17/podcasts/narrated-articles.html?searchResultPosition=7
 
 **Egypt, America’s Middle Eastern ally, maintains warm relations with Putin.**\
 `By Vivian Yee`\
-https://nytimes.com/2022/06/17/world/europe/egypt-americas-middle-eastern-ally-maintains-warm-relations-with-putin.html?searchResultPosition=7
+https://nytimes.com/2022/06/17/world/europe/egypt-americas-middle-eastern-ally-maintains-warm-relations-with-putin.html?searchResultPosition=8
 
 **Ready Player Two (or Three)**\
 `“You can learn a lot from video games: hand-eye coordination and being able to lose.” Fathers talk gaming with their children.`\
-https://nytimes.com/2022/06/17/business/ready-player-two-or-three.html?searchResultPosition=8
+https://nytimes.com/2022/06/17/business/ready-player-two-or-three.html?searchResultPosition=9
 
 **European Commission Recommends E.U. Candidacy for Ukraine**\
 `The status is the first formal step in a process to join the European Union that usually lasts more than a decade. The commission also approved candidacy for Moldova, but denied an application from Georgia.`\
-https://nytimes.com/video/world/europe/100000008404119/ukraine-european-union.html?searchResultPosition=9
-
-**New York Philharmonic Chooses Arts Veteran as Leader**\
-`Gary Ginstling, executive director of the National Symphony Orchestra, will replace Deborah Borda as the orchestra’s president and chief executive next year.`\
-https://nytimes.com/2022/06/17/arts/music/new-york-philharmonic-gary-ginstling-new-director.html?searchResultPosition=10
+https://nytimes.com/video/world/europe/100000008404119/ukraine-european-union.html?searchResultPosition=10
 
