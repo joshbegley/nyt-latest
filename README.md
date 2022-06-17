@@ -11,7 +11,7 @@ https://nytimes.com/2022/06/17/world/asia/sri-lanka-fuel-crisis.html?searchResul
 https://nytimes.com/video/us/100000008404432/fda-covid-vaccine-children.html?searchResultPosition=3
 
 **A N.Y.C. Plaza Rises Over Train Tracks**\
-`A new plaza has been built over active train tracks in Midtown.`\
+`A new plaza has been built over active train tracks in Midtown. `\
 https://nytimes.com/interactive/2022/06/17/nyregion/manhattan-west-plaza.html?searchResultPosition=4
 
 **Bartees Strange Ponders Success in Dire Times**\
