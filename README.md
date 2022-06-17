@@ -4,7 +4,7 @@ https://nytimes.com/2022/06/17/us/politics/jan-6-hearings-trump.html?searchResul
 
 **A Day After a Portrait of Pence in Danger, Trump Attacks Him Again**\
 `In a speech, Donald J. Trump was undeterred by the Jan. 6 House committee’s account of how his rioting supporters menaced the vice president, and the panel’s dismantling of many of his election lies.`\
-https://nytimes.com/2022/06/17/us/politics/donald-trump-pence.html?searchResultPosition=2
+https://nytimes.com/2022/06/17/us/politics/donald-trump-pence-jan-6.html?searchResultPosition=2
 
 **San Antonio Symphony to Dissolve Amid Labor Dispute**\
 `The decision will make San Antonio the largest American city without a major orchestra.`\
