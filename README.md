@@ -1,40 +1,40 @@
-**Nevada Fourth Congressional District Primary Election Results**\
-`See full results and maps from the Nevada primary elections.`\
-https://nytimes.com/interactive/2022/06/14/us/elections/results-nevada-us-house-district-4.html?searchResultPosition=1
+**How the Blue Jays’ Manager, Charlie Montoyo, Unwinds**\
+`Growing up in Puerto Rico, Montoyo learned to play percussion and salsa music.`\
+https://nytimes.com/2022/06/17/world/canada/toronto-blue-jays-charlie-montoyo.html?searchResultPosition=1
 
-**Maine Second Congressional District Primary Election Results**\
+**Maine Governor Primary Election Results**\
 `See full results and maps from the Maine primary elections.`\
-https://nytimes.com/interactive/2022/06/14/us/elections/results-maine-us-house-district-2.html?searchResultPosition=2
+https://nytimes.com/interactive/2022/06/14/us/elections/results-maine-governor.html?searchResultPosition=2
 
-**Texas 34th Congressional District Special Election Results**\
-`See full results from the Texas special election.`\
-https://nytimes.com/interactive/2022/06/14/us/elections/results-texas-us-house-district-34-special-election.html?searchResultPosition=3
+**Nevada Primary Election Results**\
+`See full results and maps from the Nevada primary elections.`\
+https://nytimes.com/interactive/2022/06/14/us/elections/results-nevada.html?searchResultPosition=3
 
-**South Carolina Sixth Congressional District Primary Election Results**\
-`See full results and maps from the South Carolina primary elections.`\
-https://nytimes.com/interactive/2022/06/14/us/elections/results-south-carolina-us-house-district-6.html?searchResultPosition=4
+**Nevada Second Congressional District Primary Election Results**\
+`See full results and maps from the Nevada primary elections.`\
+https://nytimes.com/interactive/2022/06/14/us/elections/results-nevada-us-house-district-2.html?searchResultPosition=4
 
-**South Carolina Fifth Congressional District Primary Election Results**\
-`See full results and maps from the South Carolina primary elections.`\
-https://nytimes.com/interactive/2022/06/14/us/elections/results-south-carolina-us-house-district-5.html?searchResultPosition=5
+**Nevada Attorney General Primary Election Results**\
+`See full results and maps from the Nevada primary elections.`\
+https://nytimes.com/interactive/2022/06/14/us/elections/results-nevada-attorney-general.html?searchResultPosition=5
 
-**North Dakota Attorney General Primary Election Results**\
+**Nevada Third Congressional District Primary Election Results**\
+`See full results and maps from the Nevada primary elections.`\
+https://nytimes.com/interactive/2022/06/14/us/elections/results-nevada-us-house-district-3.html?searchResultPosition=6
+
+**North Dakota Primary Election Results**\
 `See full results and maps from the North Dakota primary elections.`\
-https://nytimes.com/interactive/2022/06/14/us/elections/results-north-dakota-attorney-general.html?searchResultPosition=6
+https://nytimes.com/interactive/2022/06/14/us/elections/results-north-dakota.html?searchResultPosition=7
 
-**Maine First Congressional District Primary Election Results**\
-`See full results and maps from the Maine primary elections.`\
-https://nytimes.com/interactive/2022/06/14/us/elections/results-maine-us-house-district-1.html?searchResultPosition=7
-
-**South Carolina Third Congressional District Primary Election Results**\
+**South Carolina First Congressional District Primary Election Results**\
 `See full results and maps from the South Carolina primary elections.`\
-https://nytimes.com/interactive/2022/06/14/us/elections/results-south-carolina-us-house-district-3.html?searchResultPosition=8
+https://nytimes.com/interactive/2022/06/14/us/elections/results-south-carolina-us-house-district-1.html?searchResultPosition=8
 
-**South Carolina U.S. Senate Primary Election Results**\
-`See full results and maps from the South Carolina primary elections.`\
-https://nytimes.com/interactive/2022/06/14/us/elections/results-south-carolina-us-senate.html?searchResultPosition=9
+**North Dakota Secretary of State Primary Election Results**\
+`See full results and maps from the North Dakota primary elections.`\
+https://nytimes.com/interactive/2022/06/14/us/elections/results-north-dakota-secretary-of-state.html?searchResultPosition=9
 
-**Nevada First Congressional District Primary Election Results**\
+**Nevada Lieutenant Governor Primary Election Results**\
 `See full results and maps from the Nevada primary elections.`\
-https://nytimes.com/interactive/2022/06/14/us/elections/results-nevada-us-house-district-1.html?searchResultPosition=10
+https://nytimes.com/interactive/2022/06/14/us/elections/results-nevada-lieutenant-governor.html?searchResultPosition=10
 
