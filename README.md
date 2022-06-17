@@ -3,7 +3,7 @@
 https://nytimes.com/2022/06/17/sports/basketball/stephen-curry-nba-finals-golden-state.html?searchResultPosition=1
 
 **Walking on Hot Coals: A Company Event Goes Wrong**\
-`Walking in bare feet over hot coals is an ancient religious tradition that has become popular on corporate retreats, sometimes with painful consequences.`\
+`More than two dozen employees of a Swiss company were injured while walking in bare feet over hot coals, an ancient religious tradition that has become popular on corporate retreats.`\
 https://nytimes.com/2022/06/17/world/europe/hot-coals-burns-team-building.html?searchResultPosition=2
 
 **‘They Watch Us From the Sky.’**\
