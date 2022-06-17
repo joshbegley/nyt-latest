@@ -1,6 +1,6 @@
 **Amid Jan. 6 Revelations, Election Lies Still Dominate the G.O.P.**\
 `The hearings have demolished the myth of a stolen presidential election, but with the 2022 primary season in full tilt, the revelations have not loosened the grip of the lie on Republicans.`\
-https://nytimes.com/2022/06/17/us/politics/election-lies-republicans.html?searchResultPosition=1
+https://nytimes.com/2022/06/17/us/politics/election-trump-republicans-jan-6.html?searchResultPosition=1
 
 **A Weird, Wild and Entirely Typical Day at the U.S. Open**\
 `It was a topsy-turvy second round on a vexing golf course as famed and anonymous players jockeyed up and down the leaderboard and turkeys paid a visit.`\
