@@ -2,7 +2,7 @@
 `Young people seeking job security in a long-term military career saw the announcement as another blow to their dreams amid rising unemployment.`\
 https://nytimes.com/2022/06/17/world/asia/india-military-recruiting-protest.html?searchResultPosition=1
 
-**Vince McMahon Steps Down From W.W.E. Amid Misconduct Investigation**\
+**Vince McMahon Steps Down as Head of W.W.E. During Misconduct Investigation**\
 `Mr. McMahon agreed to pay a secret settlement to an employee with whom he was said to have had an affair, The Wall Street Journal reported this week.`\
 https://nytimes.com/2022/06/17/business/vince-mcmahon-wwe-resign.html?searchResultPosition=2
 
