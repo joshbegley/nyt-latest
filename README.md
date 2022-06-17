@@ -34,7 +34,7 @@ https://nytimes.com/2022/06/16/us/jan-6-hearing-takeaways.html?searchResultPosit
 `PGA Tour loyalists golfed alongside tour defectors for the first time, and for Phil Mickelson, LIV Golf’s highest-paid star, it was business as usual down to his score.`\
 https://nytimes.com/2022/06/16/sports/golf/us-open-liv-mickelson.html?searchResultPosition=9
 
-**Jan. 6 Was More Harrowing Than Mike Pence Ever Imagined**\
-`An angry mob chanting “hang Mike Pence” came within 40 feet of the vice president. He spent nearly five hours in an underground loading dock. The president called him a “wimp” and worse.`\
+**For Mike Pence, Jan. 6 Began Like Many Days. It Ended Like No Other.**\
+`An angry mob chanting “hang Mike Pence” came within 40 feet of the vice president. He spent nearly five hours in an underground loading dock. And the president called him a “wimp” and worse.`\
 https://nytimes.com/2022/06/16/us/politics/pence-trump-jan-6.html?searchResultPosition=10
 
