@@ -1,40 +1,40 @@
-**The Dutch intelligence service says it prevented a Russian spy from infiltrating the International Criminal Court.**\
-`Sergey Vladimirovich Cherkasov spent years building an identity as a Brazilian citizen, polishing a résumé that got him an internship at the court, officials say.`\
-https://nytimes.com/2022/06/17/world/europe/russia-spy-icc.html?searchResultPosition=1
+**Thankful for Mike Pence’s Courage on Jan. 6**\
+`A reader praises the former vice president; another reluctantly suggests pardoning Donald Trump. Also: Ukraine what ifs; Covid mandates; paid internships.`\
+https://nytimes.com/2022/06/17/opinion/letters/mike-pence-jan-6.html?searchResultPosition=1
 
-**Soccer Rediscovers the No. 9**\
-`The signings of Erling Haaland and Darwin Núñez were not mere summer coups for Manchester City and Liverpool. They could signal the start of a new tactical phase.`\
-https://nytimes.com/2022/06/17/sports/soccer/erling-haaland-darwin-nunez.html?searchResultPosition=2
+**Covid Vaccine and Fisheries Deals Close a ‘Roller Coaster’ W.T.O. Meeting**\
+`Members of the global trade group were forced to scale back plans for more ambitious agreements, but they were ultimately able to reach several deals at a meeting in Geneva.`\
+https://nytimes.com/2022/06/17/business/economy/wto-covid-patents-fisheries.html?searchResultPosition=2
 
-**In ‘First Kill,’ Hunter and Prey Fall in Love**\
-`This Netflix series about a star-crossed teenage romance between a bloodsucker and a monster hunter has roots in both “Romeo and Juliet” and “Buffy the Vampire Slayer.”`\
-https://nytimes.com/2022/06/17/arts/television/first-kill-netflix.html?searchResultPosition=3
+**Through Cheese, Sweat and Tears, a Mongering Champion is Crowned**\
+`At the Cheesemongers Invitational, the competition is fierce, but the feeling of cheese community is strong.`\
+https://nytimes.com/2022/06/17/dining/cheesemonger-invitational-champion.html?searchResultPosition=3
 
-**The Weekender**\
-`A journey along the Congo River. Also in this edition: photos of flooding damage in Yellowstone and a wobbly comeback for happy hour.`\
-https://nytimes.com/interactive/2022/06/17/briefing/the-weekender.html?searchResultPosition=4
+**South Carolina Primary Election Results**\
+`See full results and maps from the South Carolina primary elections.`\
+https://nytimes.com/interactive/2022/06/14/us/elections/results-south-carolina.html?searchResultPosition=4
 
-**The Coin That Could Wreck Crypto**\
-`As cryptocurrencies have plunged, attention has focused on a potential point of vulnerability: the market’s reliance on a so-called stablecoin called Tether.`\
-https://nytimes.com/2022/06/17/technology/tether-stablecoin-cryptocurrency.html?searchResultPosition=5
+**Nevada Primary Election Results**\
+`See full results and maps from the Nevada primary elections.`\
+https://nytimes.com/interactive/2022/06/14/us/elections/results-nevada.html?searchResultPosition=5
 
-**Jackie, Before Marrying Jack**\
-`Elisabeth Egan talks about Louis Bayard’s “Jackie & Me,” and Matthew Schneier discusses Paula Byrne’s biography of Barbara Pym.`\
-https://nytimes.com/2022/06/17/books/review/podcast-louis-bayard-jackie-me-barbara-pym-paula-byrne.html?searchResultPosition=6
+**South Carolina Third Congressional District Primary Election Results**\
+`See full results and maps from the South Carolina primary elections.`\
+https://nytimes.com/interactive/2022/06/14/us/elections/results-south-carolina-us-house-district-3.html?searchResultPosition=6
 
-**A Teenage Chef Who Brings Soul to California Cuisine**\
-`Rahanna Bisseret Martinez was a finalist on “Top Chef Junior” and has her own cookbook.`\
-https://nytimes.com/2022/06/17/style/a-teenage-chef-who-brings-soul-to-california-cuisine.html?searchResultPosition=7
+**North Dakota Primary Election Results**\
+`See full results and maps from the North Dakota primary elections.`\
+https://nytimes.com/interactive/2022/06/14/us/elections/results-north-dakota.html?searchResultPosition=7
 
-**Minnie Driver Paddles Out to Sea**\
-`The English actress began her memoir, “Managing Expectations,” in the early months of the pandemic.`\
-https://nytimes.com/2022/06/17/style/minnie-driver-memoir.html?searchResultPosition=8
+**South Carolina Sixth Congressional District Primary Election Results**\
+`See full results and maps from the South Carolina primary elections.`\
+https://nytimes.com/interactive/2022/06/14/us/elections/results-south-carolina-us-house-district-6.html?searchResultPosition=8
 
-**Watch Bryce Dallas Howard’s Slow Escape in ‘Jurassic World Dominion’**\
-`The director Colin Trevorrow narrates a sequence featuring the actor, a testy Therizinosaurus and a murky pond.`\
-https://nytimes.com/2022/06/17/movies/jurassic-world-dominion-clip.html?searchResultPosition=9
+**Maine Primary Election Results**\
+`See full results and maps from the Maine primary elections.`\
+https://nytimes.com/interactive/2022/06/14/us/elections/results-maine.html?searchResultPosition=9
 
-**Young, Gifted and Searching for a Sense of Self**\
-`A quiz bowl winner and students at an elite music camp struggle to figure out who they really are in novels by Kate Egan and Mariama J. Lockington.`\
-https://nytimes.com/2022/06/17/books/review/golden-ticket-kate-egan-in-the-key-of-us-mariama-j-lockington.html?searchResultPosition=10
+**Nevada U.S. Senate Primary Election Results**\
+`See full results and maps from the Nevada primary elections.`\
+https://nytimes.com/interactive/2022/06/14/us/elections/results-nevada-us-senate.html?searchResultPosition=10
 
