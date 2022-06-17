@@ -20,7 +20,7 @@ https://nytimes.com/2022/06/17/arts/tim-sale-dead.html?searchResultPosition=5
 
 **Uvalde Officer Passed Up Shot at Gunman for Fear of Hitting Children**\
 `A police officer had a chance to shoot the gunman before he entered a school, according to a chief deputy sheriff. The officer declined to take the shot, fearing injuries to others.`\
-https://nytimes.com/2022/06/17/us/uvalde-shooting-police.html?searchResultPosition=6
+https://nytimes.com/2022/06/17/us/uvalde-shooting-gunman-police.html?searchResultPosition=6
 
 **George Lamming, Who Chronicled the End of Colonialism, Dies at 94**\
 `Born in Barbados, he was among the last of a generation of writers who traced the Caribbean’s transition to independence.`\
