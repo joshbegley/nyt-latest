@@ -10,7 +10,7 @@ https://nytimes.com/2022/06/17/technology/paige-thompson-capital-one-hack.html?s
 `‘Downton Shabby’: A Commoner Takes on an English Castle`\
 https://nytimes.com/slideshow/2022/06/17/realestate/downton-shabby-a-commoner-takes-on-an-english-castle.html?searchResultPosition=3
 
-**Explosions and Fire Break Out at Sinopec’s Shanghai Headquarters**\
+**Huge Fire Breaks Out at Sinopec’s Shanghai Complex, Leaving 1 Dead**\
 `Firefighters were able to put the blaze under control, but it caused residents of a nearby neighborhood to flee their homes.`\
 https://nytimes.com/2022/06/17/business/shanghai-explosions-fire-sinopec.html?searchResultPosition=4
 
