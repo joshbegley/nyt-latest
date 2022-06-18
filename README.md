@@ -10,8 +10,8 @@ https://nytimes.com/2022/06/18/pageoneplus/corrections-june-18-2022.html?searchR
 `The people toiling in Ukraine’s cemeteries and morgues bear a silent burden as they handle the war’s growing toll.`\
 https://nytimes.com/2022/06/18/world/europe/ukraine-war-cemeteries-morgues.html?searchResultPosition=3
 
-**‘Late Show’ Producers Arrested at U.S. Capitol While Filming Television Stunt**\
-`CBS said the group was part of a production team recording interviews at the Capitol building for a comedy segment on “The Late Show With Stephen Colbert.”`\
+**‘Late Show’ Production Team Arrested at U.S. Capitol While Filming Television Stunt**\
+`The production team members had been recording interviews at the Capitol building for a comedy segment on “The Late Show With Stephen Colbert.” They were charged with unlawful entry.`\
 https://nytimes.com/2022/06/17/us/stephen-colbert-crew-arrested.html?searchResultPosition=4
 
 **Ex-Amazon Worker Convicted in Capital One Hacking**\
