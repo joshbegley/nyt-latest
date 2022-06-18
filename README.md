@@ -10,7 +10,7 @@ https://nytimes.com/2022/06/18/us/philadelphia-building-collapse.html?searchResu
 `How much credit should he get for doing the bare minimum?`\
 https://nytimes.com/2022/06/18/opinion/mike-pence-january-6-trump.html?searchResultPosition=3
 
-**The C.D.C. is expected to recommend vaccinations of young children.**\
+**The C.D.C. panel meets to to recommend vaccinations of young children.**\
 `The advisers are all but guaranteed to vote yes, despite reservations about the paucity of data, especially regarding the efficacy of the Pfizer-BioNTech vaccine.`\
 https://nytimes.com/2022/06/18/health/cdc-covid-vaccine-children-under-5.html?searchResultPosition=4
 
