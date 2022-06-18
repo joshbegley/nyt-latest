@@ -2,7 +2,7 @@
 `The president’s trip aimed to highlight Ukraine’s grip on the area and to lift the spirits of an embattled populace.`\
 https://nytimes.com/2022/06/18/world/europe/zelensky-mykolaiv-ukraine.html?searchResultPosition=1
 
-**Naomi Osaka Withdraws from Wimbledon Citing Achilles’ Injury**\
+**Naomi Osaka Withdraws From Wimbledon Citing Achilles’ Injury**\
 `Osaka has not played at Wimbledon since 2019.`\
 https://nytimes.com/2022/06/18/sports/tennis/naomi-osaka-wimbledon-withdraw.html?searchResultPosition=2
 
