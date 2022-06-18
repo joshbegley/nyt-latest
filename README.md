@@ -10,7 +10,7 @@ https://nytimes.com/2022/06/18/pageoneplus/corrections-june-18-2022.html?searchR
 `The people toiling in Ukraine’s cemeteries and morgues bear a silent burden as they handle the war’s growing toll.`\
 https://nytimes.com/2022/06/18/world/europe/ukraine-war-cemeteries-morgues.html?searchResultPosition=3
 
-**Seven Arrested at U.S. Capitol for Apparent Television Stunt**\
+**‘Late Show’ Producers Arrested at U.S. Capitol While Filming Television Stunt**\
 `CBS said the group was part of a production team recording interviews at the Capitol building for a comedy segment on “The Late Show With Stephen Colbert.”`\
 https://nytimes.com/2022/06/17/us/stephen-colbert-crew-arrested.html?searchResultPosition=4
 
