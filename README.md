@@ -10,7 +10,7 @@ https://nytimes.com/2022/06/18/nyregion/de-blasio-mondaire-jones-house-race.html
 `As a new version of bird flu spread through North America this spring, scientists began finding the virus in red foxes, bobcats and other mammals.`\
 https://nytimes.com/2022/06/18/health/avian-flu-h5n1-foxes.html?searchResultPosition=3
 
-**French Nuclear Crisis Frustrates Europe’s Push to Quit Russian Energy**\
+**French Nuclear Power Crisis Frustrates Europe’s Push to Quit Russian Energy**\
 `France typically exports electricity, but now it risks blackouts and a need for imported power because of problems at the state nuclear operator.`\
 https://nytimes.com/2022/06/18/business/france-nuclear-power-russia.html?searchResultPosition=4
 
