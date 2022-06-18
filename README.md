@@ -14,7 +14,7 @@ https://nytimes.com/2022/06/18/opinion/how-to-celebrate-juneteenth.html?searchRe
 `Extreme anti-abortion laws could hinder assisted reproductive technologies, too.`\
 https://nytimes.com/2022/06/18/opinion/ivf-abortion-roe-v-wade.html?searchResultPosition=4
 
-**Can These Movies Save the Movies?**\
+**What ‘Top Gun: Maverick’ and ‘The Northman’ Mean for the Movies**\
 `Two new offerings give a glimpse of what films once were and might become again.`\
 https://nytimes.com/2022/06/18/opinion/top-gun-maverick-northman-movies.html?searchResultPosition=5
 
