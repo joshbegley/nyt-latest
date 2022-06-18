@@ -1,40 +1,40 @@
-**Bitcoin Plummets Below $20,000 for First Time Since November 2020**\
-`Its fall was accelerated in recent weeks by the collapse of two major cryptocurrency projects while sowing doubts about the stability of the overall cryptocurrency market.`\
-https://nytimes.com/2022/06/18/technology/bitcoin-20000.html?searchResultPosition=1
+**Gun Sellers’ Message to Americans: Man Up**\
+`The number of firearms in the U.S. is outpacing the country’s population, as an emboldened gun industry and its allies target buyers with rhetoric of fear, machismo and defiance.`\
+https://nytimes.com/2022/06/18/us/firearm-gun-sales.html?searchResultPosition=1
 
-**‘Downton Shabby’: A Commoner Takes on an English Castle**\
-`A Los Angeles actor and producer moved across the pond to restore his crumbling ancestral home. But fixing up a 50,000-square-foot manor isn’t easy.`\
-https://nytimes.com/2022/06/18/realestate/downton-shabby-english-castle.html?searchResultPosition=2
+**How Many N.Y. Democrats Does It Take to Fill a House Seat? Try 15.**\
+`A congressman, an ex-congresswoman, an ex-mayor, a Trump prosecutor and several state and city officials are eyeing an open congressional seat in New York City.`\
+https://nytimes.com/2022/06/18/nyregion/de-blasio-mondaire-jones-house-race.html?searchResultPosition=2
 
-**The Rush to E.S.G., With or Without Elon Musk**\
-`Mr. Musk trashed E.S.G. investing. The S.E.C. is investigating Goldman Sachs’s move into the sector. In a falling market, what should investors consider?`\
-https://nytimes.com/2022/06/18/your-money/esg-investing-stocks-elon-musk.html?searchResultPosition=3
+**Not Just for the Birds: Avian Influenza Is Also Felling Wild Mammals**\
+`As a new version of bird flu spread through North America this spring, scientists began finding the virus in red foxes, bobcats and other mammals.`\
+https://nytimes.com/2022/06/18/health/avian-flu-h5n1-foxes.html?searchResultPosition=3
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/06/18/crosswords/spelling-bee-forum.html?searchResultPosition=4
+**French Nuclear Crisis Frustrates Europe’s Push to Quit Russian Energy**\
+`France typically exports electricity, but now it risks blackouts and a need for imported power because of problems at the state nuclear operator.`\
+https://nytimes.com/2022/06/18/business/france-nuclear-power-russia.html?searchResultPosition=4
 
-**Quotation of the Day: Kremlin Propaganda Softens Up Targets**\
-`Quotation of the Day for Saturday, June 18, 2022.`\
-https://nytimes.com/2022/06/18/todayspaper/quotation-of-the-day-kremlin-propaganda-softens-up-targets.html?searchResultPosition=5
+**Trump’s Shadow Looms Over Fading Iran Nuclear Talks**\
+`With no compromise in sight and Iran making steady progress toward nuclear capability, the Biden administration could soon face a stark choice.`\
+https://nytimes.com/2022/06/18/us/politics/iran-nuclear-deal-trump.html?searchResultPosition=5
 
-**Corrections: June 18, 2022**\
-`Corrections that appeared in print on Saturday, June 18, 2022.`\
-https://nytimes.com/2022/06/18/pageoneplus/corrections-june-18-2022.html?searchResultPosition=6
+**With Child Care Scarce, States Try to Fix ‘a Broken Market’**\
+`Federal legislation has stalled, so states are stepping in. In some places, that could mean looser regulations, like 16-year-olds caring for children, without supervision.`\
+https://nytimes.com/2022/06/18/us/child-care-state-regulations.html?searchResultPosition=6
 
-**Ukraine’s Death Workers: ‘If You Take It All Close to Heart, You Go Mad’**\
-`The people toiling in Ukraine’s cemeteries and morgues bear a silent burden as they handle the war’s growing toll.`\
-https://nytimes.com/2022/06/18/world/europe/ukraine-war-cemeteries-morgues.html?searchResultPosition=7
+**Help! It’s Been More Than 2 Years and I Still Don’t Have the Refund**\
+`Our columnist has received many reader emails complaining of tour operators and travel agencies dragging their feet on refunds for trips or other services. He investigates a $334 fare with Euro Railways.`\
+https://nytimes.com/2022/06/18/travel/covid-refunds-delays.html?searchResultPosition=7
 
-**‘Late Show’ Production Team Arrested at U.S. Capitol While Filming Television Stunt**\
-`The production team members had been recording interviews at the Capitol building for a comedy segment on “The Late Show With Stephen Colbert.” They were charged with unlawful entry.`\
-https://nytimes.com/2022/06/17/us/stephen-colbert-crew-arrested.html?searchResultPosition=8
+**When the World Gives You Lemons … Make a Stand**\
+`Lemonade stands have adapted for sour times, raising funds and creating fun along the way.`\
+https://nytimes.com/2022/06/18/style/lemonade-stands-pandemic.html?searchResultPosition=8
 
-**Ex-Amazon Worker Convicted in Capital One Hacking**\
-`Paige Thompson’s lawyers said she had been looking for cracks so they could be fixed. A jury found her guilty of wire fraud and hacking charges.`\
-https://nytimes.com/2022/06/17/technology/paige-thompson-capital-one-hack.html?searchResultPosition=9
+**The Existential Crossroads of Bathing Suit Shopping**\
+`Trying to make a cursed endeavor less fraught? Us, too.`\
+https://nytimes.com/2022/06/18/style/bathing-suit-shopping.html?searchResultPosition=9
 
-**‘Downton Shabby’: A Commoner Takes on an English Castle**\
-`‘Downton Shabby’: A Commoner Takes on an English Castle`\
-https://nytimes.com/slideshow/2022/06/17/realestate/downton-shabby-a-commoner-takes-on-an-english-castle.html?searchResultPosition=10
+**Is It Risky to Provide an Apartment to a Home Aide as a Job Benefit?**\
+`No such arrangement is without risk. Just make sure that the terms of the employer-employee agreement are clearly spelled out.`\
+https://nytimes.com/2022/06/18/realestate/housing-home-aide-job-benefit-risk.html?searchResultPosition=10
 
