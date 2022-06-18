@@ -2,8 +2,8 @@
 `When political leaders face a constitutional crisis, like that of Jan. 6, the process of collectively deciding how to respond can be messy, arbitrary, and sometimes change the nature of the system itself.`\
 https://nytimes.com/2022/06/18/world/americas/jan-6-hearing-constitution-democracy.html?searchResultPosition=1
 
-**Philadelphia Firefighter Dies and Others Trapped in Building Collapse**\
-`A 27-year veteran of the Fire Department was pronounced dead at the scene, and two other firefighters remained trapped as of Saturday morning, fire officials said.`\
+**Philadelphia Firefighter Dies in Building Collapse**\
+`A 27-year veteran of the Fire Department was pronounced dead at the scene, fire officials said.`\
 https://nytimes.com/2022/06/18/us/philadelphia-building-collapse.html?searchResultPosition=2
 
 **Mike Pence and the Soft Bigotry of Low Expectations**\
