@@ -1,4 +1,4 @@
-**Biden Takes a Tumble During a Bike Ride in Delaware**\
+**Biden Takes Tumble During Bike Ride in Delaware**\
 `The president did not need medical attention after he fell off his bike at a state park near his vacation home in Rehoboth Beach, according to the White House.`\
 https://nytimes.com/2022/06/18/us/politics/biden-falls-bike-rehoboth-beach.html?searchResultPosition=1
 
