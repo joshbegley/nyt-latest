@@ -4,7 +4,7 @@ https://nytimes.com/2022/06/18/world/europe/britain-migrants-electronic-monitori
 
 **Mark Shields, TV Pundit Known for His Sharp Wit, Dies at 85**\
 `A former campaign strategist, he became a fixture in American political journalism and punditry and was seen on “PBS NewsHour” for 33 years.`\
-https://nytimes.com/2022/06/18/business/media/mark-shields-dead.html?searchResultPosition=2
+https://nytimes.com/2022/06/18/us/politics/mark-shields-dead.html?searchResultPosition=2
 
 **At the U.S. Open, Brooks Koepka Is in His Happy Place, and in Contention**\
 `Koepka, who won the Open in 2017 and 2018, has made no secret of focusing on only the four major tournaments. He could be the perfect candidate to join the LIV Golf series. But will he?`\
