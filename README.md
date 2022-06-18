@@ -1,6 +1,6 @@
 **At the U.S. Open, Brooks Koepka Is in His Happy Place, and in Contention**\
 `Koepka, who won the Open in 2017 and 2018, has made no secret of focusing on only the four major tournaments. He could be the perfect candidate to join the LIV Golf series. But will he?`\
-https://nytimes.com/2022/06/18/sports/golf/us-open-koepka-liv.html?searchResultPosition=1
+https://nytimes.com/2022/06/18/sports/golf/brooks-koepka-us-open-liv.html?searchResultPosition=1
 
 **Zelensky Visits War-Torn Mykolaiv in Southern Ukraine**\
 `The president’s trip aimed to highlight Ukraine’s grip on the area and to lift the spirits of an embattled populace.`\
