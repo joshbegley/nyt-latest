@@ -4,7 +4,7 @@ https://nytimes.com/2022/06/19/arts/actors-netflix-chosen-one-dead.html?searchRe
 
 **Opposition Surge Weakens Macron’s Majority, a Blow for his New Term**\
 `President Emmanuel Macron of France’s centrist coalition lost its absolute majority in Parliament to a resurgent far-right and a defiant left, complicating his domestic agenda.`\
-https://nytimes.com/2022/06/19/world/europe/opposition-surge-weakens-macrons-majority-a-blow-for-his-new-term.html?searchResultPosition=2
+https://nytimes.com/2022/06/19/world/europe/emmanuel-macron-france-parliamentary-election.html?searchResultPosition=2
 
 **Before he was a politician, Gustavo Petro was part of an urban guerrilla group.**\
 `Petro belonged to M-19, born in 1970 as a response to alleged fraud in that year’s presidential elections. It was far smaller than the country’s main guerrilla force, the Revolutionary Armed Forces of Colombia, or FARC.`\
