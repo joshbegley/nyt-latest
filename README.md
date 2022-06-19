@@ -2,7 +2,7 @@
 `Petro belonged to M-19, born in 1970 as a response to alleged fraud in that year’s presidential elections. It was far smaller than the country’s main guerrilla force, the Revolutionary Armed Forces of Colombia, or FARC.`\
 https://nytimes.com/2022/06/19/world/americas/who-is-gustavo-petro.html?searchResultPosition=1
 
-**Gustavo Petro wins the Colombian election, becoming the country’s first Leftist president.**\
+**Gustavo Petro wins the Colombian election, becoming the country’s first leftist president.**\
 `The former rebel and longtime senator’s victory sets the third largest nation in Latin America on a sharply new path.`\
 https://nytimes.com/2022/06/19/world/americas/gustavo-petro-colombia-election.html?searchResultPosition=2
 
