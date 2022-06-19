@@ -16,7 +16,7 @@ https://nytimes.com/2022/06/19/briefing/taiwan-china-russia-ukraine.html?searchR
 
 **Votaciones en Colombia: ‘El país entero está pidiendo un cambio’**\
 `Dos candidatos con planes de gobierno y formaciones muy distintas se enfrentan el domingo en la segunda vuelta de las elecciones colombianas. Estas son sus principales propuestas.`\
-https://nytimes.com/2022/06/19/espanol/colombia-segunda-vuelta.html?searchResultPosition=5
+https://nytimes.com/2022/06/19/espanol/elecciones-colombia-segunda-vuelta.html?searchResultPosition=5
 
 **The True Meaning of Juneteenth**\
 `That June 19 in 1865, the day we now celebrate as a nation, was the day that Black Texans officially received some of the stalest news in American history.`\
