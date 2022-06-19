@@ -15,8 +15,8 @@ https://nytimes.com/2022/06/19/arts/actors-netflix-chosen-one-dead.html?searchRe
 https://nytimes.com/2022/06/19/world/europe/emmanuel-macron-france-parliamentary-election.html?searchResultPosition=4
 
 **Antes de dedicarse a la política, Petro formó parte de una guerrilla urbana**\
-`By Megan Janetsky`\
-https://nytimes.com/2022/06/19/espanol/petro-guerilla-m19.html?searchResultPosition=5
+`Gustavo Petro perteneció al M-19, surgido en 1970 en respuesta a un supuesto fraude en las elecciones presidenciales de ese año. Era más pequeño que la principal fuerza guerrillera del país, las FARC.`\
+https://nytimes.com/2022/06/19/espanol/petro-guerrilla-m19.html?searchResultPosition=5
 
 **Before he was a politician, Gustavo Petro was part of an urban guerrilla group.**\
 `Petro belonged to M-19, born in 1970 as a response to alleged fraud in that year’s presidential elections. It was far smaller than the country’s main guerrilla force, the Revolutionary Armed Forces of Colombia, or FARC.`\
