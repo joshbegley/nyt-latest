@@ -6,8 +6,8 @@ https://nytimes.com/2022/06/19/us/wildfire-arizona-kitt-peak-observatory.html?se
 `The accident happened in transit to a local airport in Baja California Sur in Mexico. Six other cast and crew members were injured, Netflix confirmed.`\
 https://nytimes.com/2022/06/19/arts/actors-netflix-chosen-one-dead.html?searchResultPosition=2
 
-**Opposition Surge Weakens Macron’s Majority, a Blow for his New Term**\
-`President Emmanuel Macron of France’s centrist coalition lost its absolute majority in Parliament to a resurgent far-right and a defiant left, complicating his domestic agenda.`\
+**Macron Loses Absolute Majority as Opposition Surges, a Blow for New Term**\
+`For the first time in 20 years, a newly-elected French president failed to win an absolute majority in Parliament, forcing President Macron to deal with a defiant left and a resurgent far-right.`\
 https://nytimes.com/2022/06/19/world/europe/emmanuel-macron-france-parliamentary-election.html?searchResultPosition=3
 
 **Before he was a politician, Gustavo Petro was part of an urban guerrilla group.**\
