@@ -4,7 +4,7 @@ https://nytimes.com/2022/06/19/sports/golf/us-open-final.html?searchResultPositi
 
 **At U.S. Open, Matt Fitzpatrick First PGA Tour Win Comes at a Major**\
 `Will Zalatoris and Scottie Scheffler, who tied for second, made it interesting down the stretch at the Country Club, but Fitzpatrick held on to finish at six under par.`\
-https://nytimes.com/2022/06/19/sports/golf/us-open-final-round.html?searchResultPosition=2
+https://nytimes.com/2022/06/19/sports/golf/fitzpatrick-us-open-liv.html?searchResultPosition=2
 
 **Arizona Wildfire Destroys Observatory Buildings**\
 `The Contreras fire has disrupted the work of astronomers, though the observatory’s scientific equipment remains safe for now.`\
