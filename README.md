@@ -34,7 +34,7 @@ https://nytimes.com/2022/06/19/world/americas/gustavo-petro-colombia-election.ht
 `Christopher Youngs’s puzzle is a good place for a newbie to start solving.`\
 https://nytimes.com/2022/06/19/crosswords/daily-puzzle-2022-06-20.html?searchResultPosition=9
 
-**New Yorkers Honor a Black Village That Once Thrived in Central Park**\
-`On Juneteenth, a commemoration tells the story of a community that was displaced when the park was created in the 1850s.`\
+**New Yorkers Honor a Thriving Black Village Displaced by Central Park**\
+`On Juneteenth, a commemoration tells the story of Seneca Village, which was pushed out when the park was created in the 1850s.`\
 https://nytimes.com/2022/06/19/nyregion/juneteenth-seneca-village.html?searchResultPosition=10
 
