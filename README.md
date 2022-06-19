@@ -23,7 +23,7 @@ https://nytimes.com/2022/06/19/business/the-week-in-business-federal-reserve-int
 https://nytimes.com/2022/06/19/movies/civil-ben-crump-review.html?searchResultPosition=6
 
 **How I Became an Asian American**\
-`The killing of a Chinese American, David Chin, 40 years ago changed the way people of Asian descent began to see themselves.`\
+`The killing of a Chinese American, Vincent Chin, 40 years ago changed the way people of Asian descent began to see themselves.`\
 https://nytimes.com/2022/06/19/opinion/asian-american-chin.html?searchResultPosition=7
 
 **My Father’s Last Gift to Me Came After His Death**\
