@@ -34,7 +34,7 @@ https://nytimes.com/2022/06/19/opinion/family-obligation-fathers-day.html?search
 `Possible U.F.O. sightings, A.I. breakthroughs and the Jan. 6 hearings all help us understand how hard it to grasp what is happening right in front of us. `\
 https://nytimes.com/2022/06/19/opinion/its-not-the-future-we-cant-see.html?searchResultPosition=9
 
-**There’s No Such Thing as ‘Just’ Having a Baby**\
+**Sure, Just Have the Baby**\
 `There are good reasons American women overwhelmingly choose having an abortion over giving up a child for adoption. `\
 https://nytimes.com/2022/06/19/opinion/abortion-adoption-birth-risk.html?searchResultPosition=10
 
