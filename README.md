@@ -22,19 +22,19 @@ https://nytimes.com/2022/06/19/sports/fina-transgender-women-elite-swimming.html
 `The Pixar movie’s estimated $51 million in North American sales fell short of expectations.`\
 https://nytimes.com/2022/06/19/movies/lightyear-pixar-box-office.html?searchResultPosition=6
 
+**Establishment conservatives quickly aligned with Hernández after his unexpected second-place win.**\
+`By Julie Turkewitz`\
+https://nytimes.com/2022/06/19/world/americas/establishment-conservatives-quickly-aligned-with-hernandez-after-his-unexpected-second-place-win.html?searchResultPosition=7
+
 **Germany will fire up coal plants again in an effort to save natural gas.**\
 `It was one of a series of measures announced by Germany’s economy minister, as Europe takes steps to deal with reduced energy supplies from Russia.`\
-https://nytimes.com/2022/06/19/world/europe/germany-coal-power-plants.html?searchResultPosition=7
+https://nytimes.com/2022/06/19/world/europe/germany-coal-power-plants.html?searchResultPosition=8
 
 **Transgender Women in the Sports World**\
 `The debate over whether they have physical advantages that make athletic competitions unfair. Also: Homeowners’ rights; marriages, happy and not.`\
-https://nytimes.com/2022/06/19/opinion/letters/transgender-women-sports.html?searchResultPosition=8
+https://nytimes.com/2022/06/19/opinion/letters/transgender-women-sports.html?searchResultPosition=9
 
 **How Churches Can Do Better at Responding to Sexual Abuse**\
 `“We often have a very twisted understanding of authority and unity, and it is wielded in a way that keeps whistle-blowers silent.”`\
-https://nytimes.com/2022/06/19/opinion/southern-baptist-convention-report.html?searchResultPosition=9
-
-**What to Cook This Week**\
-`Peanut butter-glazed salmon, chicken Caprese, fried egg quesadillas and more recipes to make very soon.`\
-https://nytimes.com/2022/06/19/dining/what-to-cook-this-week.html?searchResultPosition=10
+https://nytimes.com/2022/06/19/opinion/southern-baptist-convention-report.html?searchResultPosition=10
 
