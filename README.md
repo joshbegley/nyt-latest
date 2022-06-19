@@ -1,40 +1,40 @@
-**It’s Macron vs. the Left in a Fierce Battle for France’s Parliament**\
-`President Emmanuel Macron’s supporters and an alliance of left-wing parties came in neck and neck in the first round of voting. Now they are in a bruising face-off for control of the lower house of Parliament.`\
-https://nytimes.com/2022/06/19/world/europe/france-parliamentary-elections.html?searchResultPosition=1
+**Pink Slip Dresses and Purple Tuxedos**\
+`The best outfits from the Apollo benefit, Tribeca Film Festival dinner and Opening Ceremony party.`\
+https://nytimes.com/2022/06/19/style/pink-slip-dresses-and-purple-tuxedos.html?searchResultPosition=1
 
-**‘I Was on the M104, and a Woman Was Talking Loudly on Her Phone’**\
-`Overheard on a Broadway bus, a visit to doughnut heaven and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2022/06/19/nyregion/metropolitan-diary.html?searchResultPosition=2
+**Tattoo Artists Face a Grayer Palette in Europe**\
+`The E.U. has prohibited some pigments, deeming them potentially hazardous to humans. Artists and manufacturers around the world are struggling to find replacements.`\
+https://nytimes.com/2022/06/19/health/tattoo-artists-face-a-grayer-palette-in-europe.html?searchResultPosition=2
 
-**Gov. Hochul’s Second-in-Command Faces Sharp Challenge From the Left**\
-`Lt. Gov. Antonio Delgado faces two rivals in the June 28 primary, including Ana María Archila, an activist who won attention during the Kavanaugh confirmation hearing.`\
-https://nytimes.com/2022/06/19/nyregion/archila-delgado-lieutenant-governor.html?searchResultPosition=3
+**Republican Drive to Tilt Courts Against Climate Action Reaches a Crucial Moment**\
+`A Supreme Court environmental case being decided this month is the product of a coordinated, multiyear strategy by Republican attorneys general and conservative allies.`\
+https://nytimes.com/2022/06/19/climate/supreme-court-climate-epa.html?searchResultPosition=3
 
-**Covid Stopped the Music. Now This School Is Striking Up the Band Again.**\
-`Young violists and sax players in Brooklyn get reacquainted with their instruments, and with one another: “You have to play in harmony.”`\
-https://nytimes.com/2022/06/19/nyregion/covid-stopped-the-music-now-this-school-is-striking-up-the-band-again.html?searchResultPosition=4
+**Why a Rhodes Scholar’s Ambition Led Her to a Job at Starbucks**\
+`Jaz Brisack became a barista for the same reasons that talented young people have long chosen their career paths: a mix of idealism and ambition.`\
+https://nytimes.com/2022/06/19/business/starbucks-union-rhodes-scholar.html?searchResultPosition=4
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/06/19/crosswords/spelling-bee-forum.html?searchResultPosition=5
+**Saving Historic Songs, and a Jewish Culture in Morocco**\
+`For centuries after the expulsion from Spain, Morocco’s Sephardic Jewish women sang of love, loss and identity. Now, they’re almost all gone.`\
+https://nytimes.com/2022/06/19/world/europe/morocco-jews-sephardic-music-songs.html?searchResultPosition=5
 
-**Corrections: June 19, 2022**\
-`Corrections that appeared in print on Sunday, June 19, 2022.`\
-https://nytimes.com/2022/06/19/pageoneplus/corrections-june-19-2022.html?searchResultPosition=6
+**Loopholes and Missing Data: The Gaps in the Gun Background Check System**\
+`The massive system already has major loopholes advocated by gun manufacturers to maintain easier access to firearms. The Senate’s proposed gun reform measures could fall victim to those same limitations.`\
+https://nytimes.com/2022/06/19/us/gun-background-checks.html?searchResultPosition=6
 
-**Quotation of the Day: A Key Hurdle for Prosecutors: Proving What Trump Believed**\
-`Quotation of the Day for Sunday, June 19, 2022.`\
-https://nytimes.com/2022/06/19/todayspaper/quotation-of-the-day-a-key-hurdle-for-prosecutors-proving-what-trump-believed.html?searchResultPosition=7
+**You’re Still on Mute**\
+`Hybrid or remote work is settling in as a permanent reality for millions. Their setups and technical skills can still feel like a temporary solution.`\
+https://nytimes.com/2022/06/19/business/wfh-setups-rto.html?searchResultPosition=7
 
-**What Hundreds of Photos of Weapons Reveal About Russia’s Brutal War Strategy**\
-`A New York Times analysis of visual evidence from Ukraine showed widespread use by Russia of cluster weapons banned under certain international treaties.`\
-https://nytimes.com/interactive/2022/06/19/world/europe/ukraine-munitions-war-crimes.html?searchResultPosition=8
+**Homes That Sold for Around $1 Million**\
+`Recent residential sales in New York City and the region.`\
+https://nytimes.com/2022/06/19/realestate/homes-sold-1-million.html?searchResultPosition=8
 
-**Not All Champions Become Dynasties. Here’s Why Golden State Did.**\
-`Stephen Curry, Klay Thompson and Draymond Green won four N.B.A. championship teams in eight years.`\
-https://nytimes.com/2022/06/19/sports/basketball/stephen-curry-nba-dynasty-golden-state.html?searchResultPosition=9
+**Facing Death During the Pandemic**\
+`Marie Brenner’s “The Desperate Hours” looks at how health care workers dealt with the perils of Covid.`\
+https://nytimes.com/2022/06/19/books/review/the-desperate-hours-marie-brenner.html?searchResultPosition=9
 
-**Apple Workers at Maryland Store Vote to Unionize, a First in the U.S.**\
-`Roughly two-thirds of employees at the store in Towson, Md., voted to join the union.`\
-https://nytimes.com/2022/06/18/technology/apple-union-maryland.html?searchResultPosition=10
+**Discovering Black Family Heirlooms and the Stories Behind Them**\
+`The Narrative Projects team asked photographers to document objects that represented their family histories.`\
+https://nytimes.com/2022/06/19/insider/discovering-black-family-heirlooms.html?searchResultPosition=10
 
