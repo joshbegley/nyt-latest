@@ -4,7 +4,7 @@ https://nytimes.com/2022/06/19/arts/dance/gods-fool-review.html?searchResultPosi
 
 **Scores Feared Dead in Ethiopia Attack**\
 `Locals blamed a rebel group for strife against Amhara people in Oromia, but the militants said the military and a local militia were responsible.`\
-https://nytimes.com/2022/06/19/world/africa/scores-feared-dead-in-ethiopia-attack.html?searchResultPosition=2
+https://nytimes.com/2022/06/19/world/africa/ethiopia-attack-amhara.html?searchResultPosition=2
 
 **Drake Rebuilt Hip-Hop in His Image. Now He Wants You to Dance.**\
 `On his seventh album, “Honestly, Nevermind,” the pop disrupter who rethought rap’s relationship with melody opts for a new direction: nightclub abandon.`\
