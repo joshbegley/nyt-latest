@@ -4,7 +4,7 @@ https://nytimes.com/2022/06/20/world/europe/london-grenfell-tower-anniversary.ht
 
 **In Ad, Shotgun-Toting Greitens Asks Voters to Go ‘RINO Hunting’**\
 `A right-wing Senate candidate accompanies a squad of heavily armed men as they storm a home looking for ‘Republicans in name only.’`\
-https://nytimes.com/2022/06/20/us/politics/in-ad-shotgun-toting-greitens-asks-voters-to-go-rino-hunting.html?searchResultPosition=2
+https://nytimes.com/2022/06/20/us/politics/eric-greitens-rino-ad.html?searchResultPosition=2
 
 **‘Hooded; or Being Black for Dummies’ Review: A Tragic Pageantry**\
 `Tearrance Arvelle Chisholm’s ambitious and sometimes metaphysical comedy playfully tries to tackle thorny issues at 59E59 Theaters.`\
