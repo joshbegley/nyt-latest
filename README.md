@@ -34,7 +34,7 @@ https://nytimes.com/2022/06/20/briefing/a-wildfire-year.html?searchResultPositio
 `If we have so far avoided calling it war, maybe that’s only because we’ve become so uncertain of the meaning of the word.`\
 https://nytimes.com/2022/06/20/opinion/international-world/ukraine-war-america.html?searchResultPosition=9
 
-**Celebrity Feminism Didn’t Save Roe v. Wade**\
+**Feminism Made a Faustian Bargain With Celebrity Culture. Now It’s Paying the Price.**\
 `How did modern feminism lose Roe v. Wade? An answer lies in Depp v. Heard.`\
 https://nytimes.com/2022/06/20/opinion/roe-heard-feminism-backlash.html?searchResultPosition=10
 
