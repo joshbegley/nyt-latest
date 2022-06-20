@@ -6,7 +6,7 @@ https://nytimes.com/2022/06/19/us/politics/texas-republicans-approve-far-right-p
 `Morikawa shared the lead after the second round and looked poised to vie for his third major championship. A 77 in the third round took him out of contention, but he closed the tournament strong.`\
 https://nytimes.com/2022/06/19/sports/golf/us-open-final.html?searchResultPosition=2
 
-**At U.S. Open, Matt Fitzpatrick First PGA Tour Win Comes at a Major**\
+**At U.S. Open, Matt Fitzpatrick’s First PGA Tour Win Comes at a Major**\
 `Will Zalatoris and Scottie Scheffler, who tied for second, made it interesting down the stretch at the Country Club, but Fitzpatrick held on to finish at six under par.`\
 https://nytimes.com/2022/06/19/sports/golf/fitzpatrick-us-open-liv.html?searchResultPosition=3
 
