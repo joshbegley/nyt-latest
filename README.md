@@ -14,7 +14,7 @@ https://nytimes.com/2022/06/20/world/asia/india-bangladesh-flooding-monsoon.html
 `Often called the father of the health maintenance organization, he coined the term in 1970, envisioning a system that would compete for patients by providing the best care at the lowest price.`\
 https://nytimes.com/2022/06/20/us/dr-paul-m-ellwood-jr-dead.html?searchResultPosition=4
 
-**Harlem Shooting Kills 1 and Wounds 8 Amid Violent Weekend in America**\
+**Harlem Shooting Kills 1 and Wounds 8 Amid Violent Weekend Across the Country**\
 `While massacres like those in Buffalo and Uvalde are much publicized, lower-profile attacks exact a dreadful toll.`\
 https://nytimes.com/2022/06/20/nyregion/harlem-shooting.html?searchResultPosition=5
 
@@ -30,11 +30,11 @@ https://nytimes.com/2022/06/20/special-series/michio-kaku-multiverse-reality.htm
 `Who is fully free, who is partially free and who is not free at all?`\
 https://nytimes.com/2022/06/20/opinion/juneteenth-economic-freedom.html?searchResultPosition=8
 
+**Russia’s blockade of Ukraine’s food exports is a ‘war crime,’ says the E.U.’s foreign policy chief.**\
+`The war is contributing to global food shortages and rising prices, and the United Nations warns of possible famine. Ukraine is usually a major grain exporter.`\
+https://nytimes.com/2022/06/20/world/europe/russia-blockade-ukraine-grain.html?searchResultPosition=9
+
 **Dutch Government Activates ‘Early Warning’ Because of Russian Cutbacks on Gas**\
 `The government will allow more burning of coal to generate electricity as gas supplies tighten.`\
-https://nytimes.com/2022/06/20/business/dutch-government-russian-gas.html?searchResultPosition=9
-
-**Taxi Jumps Curb, Critically Injuring 3 People in Manhattan**\
-`The accident happened in the Flatiron district, a neighborhood packed with hotels, bars and restaurants.`\
-https://nytimes.com/2022/06/20/nyregion/taxi-jumps-curb-manhattan.html?searchResultPosition=10
+https://nytimes.com/2022/06/20/business/dutch-government-russian-gas.html?searchResultPosition=10
 
