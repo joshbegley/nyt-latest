@@ -4,7 +4,7 @@ https://nytimes.com/2022/06/20/world/europe/russia-ukraine-blockade-war-crime.ht
 
 **Jury in Bill Cosby’s Sex Assault Case Ends Third Day of Deliberation**\
 `No verdict has been reached in the civil case brought by a woman who says Mr. Cosby molested her at the Playboy Mansion in 1975, when she was 16.`\
-https://nytimes.com/2022/06/20/arts/television/jury-in-bill-cosbys-sex-assault-case-ends-third-day-of-deliberation.html?searchResultPosition=2
+https://nytimes.com/2022/06/20/arts/television/bill-cosby-trial-jury.html?searchResultPosition=2
 
 **Jan. 6 Hearing Will Highlight Trump’s Pressure Campaign on State Officials**\
 `The House committee investigating the Capitol attack will also underscore the vitriol and suffering that election workers endured because of President Donald J. Trump’s lies.`\
