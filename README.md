@@ -1,6 +1,6 @@
 **Gustavo Petro Wins the Election, Becoming Colombia’s First Leftist Leader**\
 `The former rebel and longtime senator’s victory sets the third largest nation in Latin America on a sharply new path.`\
-https://nytimes.com/2022/06/19/world/americas/gustavo-petro-wins-the-election-becoming-colombias-first-leftist-leader.html?searchResultPosition=1
+https://nytimes.com/2022/06/19/world/americas/gustavo-petro-colombia-presidential-election.html?searchResultPosition=1
 
 **Ukraine bans some Russian music and books.**\
 `The Ukrainian Parliament voted to ban some Russian media and sent two bills to President Zelensky to sign.`\
