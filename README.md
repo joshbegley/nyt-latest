@@ -1,5 +1,5 @@
 **Fears of Gridlock in France After Macron Is Left With Fragmented Parliament**\
-`President Emmanuel Macron lost his absolute majority in the lower house. Opposition groups have threatened to block his domestic agenda and even to bring down his cabinet.`\
+`President Emmanuel Macron lost his absolute majority in the lower house. Opposition groups have threatened to block his domestic agenda and called for the resignation of his prime minister.`\
 https://nytimes.com/2022/06/20/world/europe/france-elections-macron-majority.html?searchResultPosition=1
 
 **A Wildfire Year**\
