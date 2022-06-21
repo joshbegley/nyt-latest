@@ -8,7 +8,7 @@ https://nytimes.com/2022/06/21/briefing/inflation-government-wages-jobs.html?sea
 
 **Judge Orders a Delay in Australia’s Parliament House Rape Trial**\
 `A journalist’s remarks ran afoul of tight limits on speech connected to criminal prosecutions, putting pause on a high-profile case about to start.`\
-https://nytimes.com/2022/06/21/world/australia/judge-orders-a-delay-in-australias-parliament-house-rape-trial.html?searchResultPosition=3
+https://nytimes.com/2022/06/21/world/australia/brittany-higgins-rape-trial-delay.html?searchResultPosition=3
 
 **Chinese Omicron Study Renews Debate Over ‘Zero Covid’ Policy**\
 `The study found that the variant carried a relatively low risk of severe illness.`\
