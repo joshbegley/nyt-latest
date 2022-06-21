@@ -18,23 +18,23 @@ https://nytimes.com/2022/06/21/us/rusty-bowers-testimony-hearing-jan-6.html?sear
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2022/06/21/style/tiny-modern-love-stories-i-get-so-weird-near-girls.html?searchResultPosition=5
 
+**Senior Black Executives Depart Amazon as It Names New Consumer Boss**\
+`The company’s sprawling consumer and operations business has experienced a significant shake-up in recent weeks.`\
+https://nytimes.com/2022/06/21/business/senior-black-executives-amazon.html?searchResultPosition=6
+
 **Gabriel Sterling: a Georgia elections official who pushed back on Trump’s false fraud claims.**\
 `Unlike other officials who did not act on the former president’s falsehoods, Mr. Sterling spoke out repeatedly against them.`\
-https://nytimes.com/2022/06/21/us/gabriel-sterling-trump-jan-6-hearing.html?searchResultPosition=6
+https://nytimes.com/2022/06/21/us/gabriel-sterling-trump-jan-6-hearing.html?searchResultPosition=7
 
 **Review: ‘Ain’t Misbehavin’,’ Saving Its Love (and Pain) for You**\
 `A revival of the Fats Waller musical revue emphasizes the blues in its blueprints.`\
-https://nytimes.com/2022/06/21/theater/aint-misbehavin-review.html?searchResultPosition=7
+https://nytimes.com/2022/06/21/theater/aint-misbehavin-review.html?searchResultPosition=8
 
 **Boston Revisits ‘Common Ground’ and Busing, Onstage**\
 `The Huntington Theater Company is staging a play based on the seminal J. Anthony Lukas book, reconsidering the legacy of the busing crisis.`\
-https://nytimes.com/2022/06/21/theater/common-ground-revisited-boston.html?searchResultPosition=8
+https://nytimes.com/2022/06/21/theater/common-ground-revisited-boston.html?searchResultPosition=9
 
 **Brad Raffensperger: Georgia’s top election official resisted Trump’s order to falsely declare him the winner.**\
 `Mr. Raffensperger is expected to testify that former President Donald J. Trump knew he lost the 2020 election but pressured him to reverse the result in Georgia anyway.`\
-https://nytimes.com/2022/06/21/us/brad-raffensperger-trump-jan-6-hearing.html?searchResultPosition=9
-
-**Biden Bans Most Antipersonnel Land Mine Use, Reversing Trump-Era Policy**\
-`The move effectively returns to a 2014 policy that forbade the use of the weapons except in defense of South Korea.`\
-https://nytimes.com/2022/06/21/us/politics/anti-personnel-land-mines-military-biden-trump.html?searchResultPosition=10
+https://nytimes.com/2022/06/21/us/brad-raffensperger-trump-jan-6-hearing.html?searchResultPosition=10
 
