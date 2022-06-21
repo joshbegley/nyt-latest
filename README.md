@@ -1,40 +1,40 @@
-**South Carolina Fifth Congressional District Primary Election Results**\
-`See full results and maps from the South Carolina primary elections.`\
-https://nytimes.com/interactive/2022/06/14/us/elections/results-south-carolina-us-house-district-5.html?searchResultPosition=1
+**Millions of tax returns have not been processed as the I.R.S. tries to clear its backlog.**\
+`The agency started the tax season with more than eight million unfinished returns from the previous year.`\
+https://nytimes.com/2022/06/21/business/irs-backlog.html?searchResultPosition=1
 
-**Texas 34th Congressional District Special Election Results**\
-`See full results from the Texas special election.`\
-https://nytimes.com/interactive/2022/06/14/us/elections/results-texas-us-house-district-34-special-election.html?searchResultPosition=2
+**Biden is speaking about the start of Covid vaccinations for very young children.**\
+`President Biden also visited a vaccination site in Washington, D.C. ahead of his remarks.`\
+https://nytimes.com/2022/06/21/us/politics/biden-kids-vaccines.html?searchResultPosition=2
 
-**Nevada Fourth Congressional District Primary Election Results**\
-`See full results and maps from the Nevada primary elections.`\
-https://nytimes.com/interactive/2022/06/14/us/elections/results-nevada-us-house-district-4.html?searchResultPosition=3
+**I.R.S. and Treasury Letter to Lawmakers**\
+`Top officials from Treasury and the Internal Revenue Service provided an update on a backlog of tax returns.`\
+https://nytimes.com/interactive/2022/06/21/us/21dc-irsletter.html?searchResultPosition=3
 
-**Nevada First Congressional District Primary Election Results**\
-`See full results and maps from the Nevada primary elections.`\
-https://nytimes.com/interactive/2022/06/14/us/elections/results-nevada-us-house-district-1.html?searchResultPosition=4
+**Watch Live: Biden on Covid-19 Vaccinations for Children Under 5**\
+`Earlier, President Biden visited a vaccination site in Washington D.C., to meet with families and children as some of the first shots were administered.`\
+https://nytimes.com/video/health/100000008409135/biden-live-vaccine-covid-children.html?searchResultPosition=4
 
-**Nevada Second Congressional District Primary Election Results**\
-`See full results and maps from the Nevada primary elections.`\
-https://nytimes.com/interactive/2022/06/14/us/elections/results-nevada-us-house-district-2.html?searchResultPosition=5
+**Have You Taken Covid Treatments?**\
+`We want to hear from you.`\
+https://nytimes.com/2022/06/21/us/covid-therapeutics-callout.html?searchResultPosition=5
 
-**South Carolina First Congressional District Primary Election Results**\
-`See full results and maps from the South Carolina primary elections.`\
-https://nytimes.com/interactive/2022/06/14/us/elections/results-south-carolina-us-house-district-1.html?searchResultPosition=6
+**Israel’s Coalition Government Collapses**\
+`Prime Minister Naftali Bennett of Israel said the governing coalition agreed to dissolve Parliament, bringing down the government and setting the country up for a fifth election in three years.`\
+https://nytimes.com/video/world/middleeast/100000008408432/israel-government-collapse.html?searchResultPosition=6
 
-**North Dakota At-Large Congressional District Primary Election Results**\
-`See full results and maps from the North Dakota primary elections.`\
-https://nytimes.com/interactive/2022/06/14/us/elections/results-north-dakota-us-house-district-1.html?searchResultPosition=7
+**‘The Last Resort’ Interrogates the Beach While Enjoying It**\
+`In her new book, Sarah Stodola tours seaside resorts and catalogs some of the damage they can do.`\
+https://nytimes.com/2022/06/21/books/review-last-resort-sarah-stodola.html?searchResultPosition=7
 
-**Nevada Third Congressional District Primary Election Results**\
-`See full results and maps from the Nevada primary elections.`\
-https://nytimes.com/interactive/2022/06/14/us/elections/results-nevada-us-house-district-3.html?searchResultPosition=8
+**Videos Show Violent Threats on State Officials by Trump Supporters**\
+`The Jan. 6 committee played video clips and a recording of a state legislator’s testimony to show the severe threats state officials faced as a result of former President Donald J. Trump’s attempts to overturn his election loss.`\
+https://nytimes.com/video/us/politics/100000008409035/jan-6-hearing-trump.html?searchResultPosition=8
 
-**South Carolina U.S. Senate Primary Election Results**\
-`See full results and maps from the South Carolina primary elections.`\
-https://nytimes.com/interactive/2022/06/14/us/elections/results-south-carolina-us-senate.html?searchResultPosition=9
+**A Georgia election worker who was falsely accused by Trump supporters will testify about threats.**\
+`Ms. Moss is likely to describe the personal costs of her ordeal, which included death threats and unending harassment by phone and text message.`\
+https://nytimes.com/2022/06/21/us/shaye-moss-georgia-trump-january-6.html?searchResultPosition=9
 
-**South Carolina Second Congressional District Primary Election Results**\
-`See full results and maps from the South Carolina primary elections.`\
-https://nytimes.com/interactive/2022/06/14/us/elections/results-south-carolina-us-house-district-2.html?searchResultPosition=10
+**‘I took an oath,’ Rusty Bowers, Arizona House speaker, says of rejecting efforts to overturn the election.**\
+`Mr. Bowers’s refusal to bend to pressure from Mr. Trump and his allies led to harassment outside his home in which he was called a “pedophile” and other epithets.`\
+https://nytimes.com/2022/06/21/us/rusty-bowers-testimony-hearing-jan-6.html?searchResultPosition=10
 
