@@ -27,7 +27,7 @@ https://nytimes.com/2022/06/21/dining/stories-of-japanese-tea-zach-mangan.html?s
 https://nytimes.com/2022/06/21/dining/schmidt-brothers-grilling-tools-food52.html?searchResultPosition=7
 
 **Yellen may soon get her name on the greenback.**\
-`By Deborah B. Solomon`\
+`While the Treasury secretary sat for her official currency signing more than a year ago, under arcane rules her signature has not yet appeared on the U.S. dollar.`\
 https://nytimes.com/2022/06/21/business/yellen-may-soon-get-her-name-on-the-greenback.html?searchResultPosition=8
 
 **These Spiced, Marinated Yogurt Balls Are Perfect for Snacking**\
