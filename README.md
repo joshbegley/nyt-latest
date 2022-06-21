@@ -14,7 +14,7 @@ https://nytimes.com/2022/06/20/arts/television/bill-cosby-trial-jury.html?search
 `The House committee investigating the Capitol attack will also underscore the vitriol and suffering that election workers endured because of President Donald J. Trump’s lies.`\
 https://nytimes.com/2022/06/20/us/politics/jan-6-committee-hearing-trump.html?searchResultPosition=4
 
-**In a First, Tribes Will Jointly Manage a National Monument**\
+**In Return to the Land, Tribes Will Jointly Manage a National Monument**\
 `Five Native American tribes will work with the Bureau of Land Management to plan and conserve Bears Ears National Monument in Utah, officials said.`\
 https://nytimes.com/2022/06/20/us/bears-ears-native-american-tribes-management.html?searchResultPosition=5
 
