@@ -1,6 +1,6 @@
 **Some Democrats Wonder: Where Is Hochul’s Ground Game?**\
 `Gov. Kathy Hochul appears to be cruising to a likely win in next week’s primary, but allies worry that she is not doing enough to excite voters for November.`\
-https://nytimes.com/2022/06/21/nyregion/some-democrats-wonder-where-is-hochuls-ground-game.html?searchResultPosition=1
+https://nytimes.com/2022/06/21/nyregion/democrats-hochul-primary.html?searchResultPosition=1
 
 **Citing a disastrous pandemic response, an expert panel will call for an overhaul of the U.S. public health system.**\
 `The panel will recommend that a new federal position be created to oversee public health.`\
@@ -20,7 +20,7 @@ https://nytimes.com/2022/06/21/business/net-power-natural-gas-emissions.html?sea
 
 **There’s Never Been a Better Time for an Outdoor Dinner Party**\
 `Here’s how to make your dinner — and your summer — a memorable one.`\
-https://nytimes.com/2022/06/21/realestate/theres-never-been-a-better-time-for-an-outdoor-dinner-party.html?searchResultPosition=6
+https://nytimes.com/2022/06/21/realestate/outdoor-dinner-party-ideas.html?searchResultPosition=6
 
 **Will Kathy Hochul’s Low-Key Primary Come at a Cost? Allies Fear Yes.**\
 `Gov. Hochul is expected to handily win next week’s primary. But some allies worry her campaign is failing to energize key voters for November’s election.`\
