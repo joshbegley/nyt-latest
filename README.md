@@ -24,7 +24,7 @@ https://nytimes.com/2022/06/21/climate/rainforest-brazil-congo.html?searchResult
 
 **How Does NASA Get Back to the Moon? Practice, Practice, Practice.**\
 `The agency mostly completed a dress rehearsal of the fueling and countdown of its rocket, a crucial step before it can launch an uncrewed capsule around the moon.`\
-https://nytimes.com/2022/06/21/science/nasa-moon-artemis-rocket.html?searchResultPosition=7
+https://nytimes.com/2022/06/21/science/nasa-artemis-moon-rocket.html?searchResultPosition=7
 
 **What Nourishes the Soul**\
 `The question of reality sends one of the world’s most innovative chefs back to the kitchen to ponder what it means to eat well.`\
