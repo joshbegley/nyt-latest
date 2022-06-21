@@ -8,7 +8,7 @@ https://nytimes.com/video/world/asia/100000008408103/india-bangladesh-flooding.h
 
 **Indoor Farming Is a ‘No-Brainer.’ Except for the Carbon Footprint.**\
 `Why greenhouses might be the future of vegetable agriculture.`\
-https://nytimes.com/2022/06/21/opinion/environment/climate-change-greenhouses-drought-farming.html?searchResultPosition=3
+https://nytimes.com/2022/06/21/opinion/environment/climate-change-greenhouses-drought-indoor-farming.html?searchResultPosition=3
 
 **Retired at 4, Wasabi Still Carries Himself Like a Champion**\
 `Last year’s Westminster dog show winner was not in it for the money — there is no prize money — and he is very much a dog, even if it can be hard to tell from a distance.`\
