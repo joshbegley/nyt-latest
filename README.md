@@ -1,40 +1,40 @@
-**A Machete, a Shower of Pork and Other Magic in a Bronx Trailer**\
-`The Times’s star ratings return as our critic visits La Piraña Lechonera, a weekend party where one man serves up the rich flavors of Puerto Rico.`\
-https://nytimes.com/2022/06/21/dining/la-pirana-lechonera-review-pete-wells.html?searchResultPosition=1
+**Alabama Primary Election Results**\
+`See full results and maps from the Alabama primary elections.`\
+https://nytimes.com/interactive/2022/05/24/us/elections/results-alabama.html?searchResultPosition=1
 
-**Election Workers Describe Threats After Trump Spread Conspiracies**\
-`Shaye Moss, testifying in person, and her mother, Ruby Freeman, in video testimony, told the Jan. 6 committee that their lives were upended by violent threats after being falsely accused of fraud in a conspiracy theory pushed by President Donald J. Trump.`\
-https://nytimes.com/video/us/politics/100000008409290/jan-6-hearing-election-workers.html?searchResultPosition=2
+**Texas Primary Runoff Election Results**\
+`See full results and maps from the Texas runoff elections.`\
+https://nytimes.com/interactive/2022/05/24/us/elections/results-texas-runoffs.html?searchResultPosition=2
 
-**The Wartime Celebrity Leader**\
-`A Times correspondent in Kyiv discusses President Volodymyr Zelensky.`\
-https://nytimes.com/2022/06/21/briefing/russia-ukraine-war-zelensky.html?searchResultPosition=3
+**Georgia Governor Primary Election Results**\
+`See full results and maps from the Georgia primary elections.`\
+https://nytimes.com/interactive/2022/05/24/us/elections/results-georgia-governor.html?searchResultPosition=3
 
-**F.D.A. Set to Propose Lower Nicotine Levels in Cigarettes**\
-`The move would be an effort to further wean Americans from addictive tobacco products and reduce smoking-related illnesses.`\
-https://nytimes.com/2022/06/21/health/fda-nicotine-cigarettes.html?searchResultPosition=4
+**Texas Republican Primary Runoff Election Results: State House 63rd District**\
+`See full results and maps from the Texas runoff elections.`\
+https://nytimes.com/interactive/2022/05/24/us/elections/results-texas-state-house-district-63-runoff.html?searchResultPosition=4
 
-**Ivanka Trump expressed a different view on the election to a filmmaker.**\
-`Ms. Trump told a film crew in December 2020 that her father should “continue to fight until every legal remedy is exhausted” because people were questioning “the sanctity of our elections.”`\
-https://nytimes.com/2022/06/21/us/politics/ivanka-trump-election.html?searchResultPosition=5
+**Texas 35th Congressional District Runoff Election Results**\
+`See full results and maps from the Texas runoff elections.`\
+https://nytimes.com/interactive/2022/05/24/us/elections/results-texas-us-house-district-35.html?searchResultPosition=5
 
-**U.S. Orchestras Playing More Works by Women and Minorities, Report Says**\
-`The recent discussions over racial justice and gender disparities appear to have accelerated efforts to bring more diversity to classical music.`\
-https://nytimes.com/2022/06/21/arts/music/american-orchestras-women-minorities.html?searchResultPosition=6
+**Texas Railroad Commissioner Runoff Election Results**\
+`See full results and maps from the Texas runoff elections.`\
+https://nytimes.com/interactive/2022/05/24/us/elections/results-texas-railroad-commissioner.html?searchResultPosition=6
 
-**Megaconstellations: ‘Stars’ You Don’t Want to See in the Sky**\
-`We are honoring the Top 11 winners of our Student Editorial Contest by publishing their essays. This one is by Katherine Shao, age 16.`\
-https://nytimes.com/2022/06/21/learning/megaconstellations-stars-you-dont-want-to-see-in-the-sky.html?searchResultPosition=7
+**Alabama Governor Primary Election Results**\
+`See full results and maps from the Alabama primary elections.`\
+https://nytimes.com/interactive/2022/05/24/us/elections/results-alabama-governor.html?searchResultPosition=7
 
-**‘Granada Nights’ Review: Growing Abroad**\
-`This drama tells the hackneyed story of a lovelorn expatriate pulling himself together and dragging us around with him.`\
-https://nytimes.com/2022/06/21/movies/granada-nights-review.html?searchResultPosition=8
+**Georgia Second Congressional District Primary Election Results**\
+`See full results and maps from the Georgia primary elections.`\
+https://nytimes.com/interactive/2022/05/24/us/elections/results-georgia-us-house-district-2.html?searchResultPosition=8
 
-**Your Wednesday Briefing: Asia Buys Up Russia’s Oil**\
-`Also, a Times investigation into China’s expanding surveillance capabilities.`\
-https://nytimes.com/2022/06/21/briefing/russia-asia-oil-china-india.html?searchResultPosition=9
+**Alabama First Congressional District Primary Election Results**\
+`See full results and maps from the Alabama primary elections.`\
+https://nytimes.com/interactive/2022/05/24/us/elections/results-alabama-us-house-district-1.html?searchResultPosition=9
 
-**A Three-Stop Bakery Crawl in the East Village**\
-`These bakeries all offer their own unique delights.`\
-https://nytimes.com/2022/06/21/dining/east-village-bakeries-pastries.html?searchResultPosition=10
+**Georgia 11th Congressional District Primary Election Results**\
+`See full results and maps from the Georgia primary elections.`\
+https://nytimes.com/interactive/2022/05/24/us/elections/results-georgia-us-house-district-11.html?searchResultPosition=10
 
