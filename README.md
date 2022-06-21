@@ -1,5 +1,5 @@
 **Millions of tax returns have not been processed as the I.R.S. tries to clear its backlog.**\
-`The agency started the tax season with more than 8 million unfinished returns from the prior year.`\
+`The agency started the tax season with more than eight million unfinished returns from the previous year.`\
 https://nytimes.com/2022/06/21/business/irs-backlog.html?searchResultPosition=1
 
 **Biden is set to speak about the start of Covid vaccinations for very young children.**\
