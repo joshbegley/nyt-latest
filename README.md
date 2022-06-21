@@ -14,27 +14,27 @@ https://nytimes.com/2022/06/21/briefing/russia-ukraine-war-zelensky.html?searchR
 `The move would be an effort to further wean Americans from addictive tobacco products and reduce smoking-related illnesses.`\
 https://nytimes.com/2022/06/21/health/fda-nicotine-cigarettes.html?searchResultPosition=4
 
+**Ivanka Trump expressed a different view on the election to a filmmaker.**\
+`Ms. Trump told a film crew in December 2020 that her father should “continue to fight until every legal remedy is exhausted” because people were questioning “the sanctity of our elections.”`\
+https://nytimes.com/2022/06/21/us/politics/ivanka-trump-election.html?searchResultPosition=5
+
 **U.S. Orchestras Playing More Works by Women and Minorities, Report Says**\
 `The recent discussions over racial justice and gender disparities appear to have accelerated efforts to bring more diversity to classical music.`\
-https://nytimes.com/2022/06/21/arts/music/american-orchestras-women-minorities.html?searchResultPosition=5
+https://nytimes.com/2022/06/21/arts/music/american-orchestras-women-minorities.html?searchResultPosition=6
 
 **Megaconstellations: ‘Stars’ You Don’t Want to See in the Sky**\
 `We are honoring the Top 11 winners of our Student Editorial Contest by publishing their essays. This one is by Katherine Shao, age 16.`\
-https://nytimes.com/2022/06/21/learning/megaconstellations-stars-you-dont-want-to-see-in-the-sky.html?searchResultPosition=6
+https://nytimes.com/2022/06/21/learning/megaconstellations-stars-you-dont-want-to-see-in-the-sky.html?searchResultPosition=7
 
 **‘Granada Nights’ Review: Growing Abroad**\
 `This drama tells the hackneyed story of a lovelorn expatriate pulling himself together and dragging us around with him.`\
-https://nytimes.com/2022/06/21/movies/granada-nights-review.html?searchResultPosition=7
+https://nytimes.com/2022/06/21/movies/granada-nights-review.html?searchResultPosition=8
 
 **Your Wednesday Briefing: Asia Buys Up Russia’s Oil**\
 `Also, a Times investigation into China’s expanding surveillance capabilities.`\
-https://nytimes.com/2022/06/21/briefing/russia-asia-oil-china-india.html?searchResultPosition=8
+https://nytimes.com/2022/06/21/briefing/russia-asia-oil-china-india.html?searchResultPosition=9
 
 **A Three-Stop Bakery Crawl in the East Village**\
 `These bakeries all offer their own unique delights.`\
-https://nytimes.com/2022/06/21/dining/east-village-bakeries-pastries.html?searchResultPosition=9
-
-**Israeli Government Collapse Gives Netanyahu Another Chance at Power**\
-`Benjamin Netanyahu, Israel’s longest-serving prime minister, lost power last year. But his base hasn’t abandoned him, and he could return to office after a snap election this fall.`\
-https://nytimes.com/2022/06/21/world/middleeast/israeli-government-collapse-netanyahu.html?searchResultPosition=10
+https://nytimes.com/2022/06/21/dining/east-village-bakeries-pastries.html?searchResultPosition=10
 
