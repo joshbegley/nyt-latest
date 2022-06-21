@@ -1,40 +1,40 @@
+**George Michael Preferred Music to Fame. The Doc He Made Does, Too.**\
+`“George Michael: Freedom Uncut,” a film the musician worked on with his longtime collaborator David Austin, tells the story of his professional life via interviews and previously unseen footage.`\
+https://nytimes.com/2022/06/21/arts/music/george-michael-freedom-uncut.html?searchResultPosition=1
+
 **The U.S. attorney general visits Ukraine to discuss Russian war crimes.**\
 `In an unannounced trip, Merrick Garland will meet with Ukrainian prosecutors to help identify and prosecute those guilty of atrocities, officials say.`\
-https://nytimes.com/2022/06/21/world/europe/merrick-garland-ukraine-war-crimes.html?searchResultPosition=1
+https://nytimes.com/2022/06/21/world/europe/merrick-garland-ukraine-war-crimes.html?searchResultPosition=2
 
 **Stocks rebound after a rough week.**\
 `By Isabella Simonetti`\
-https://nytimes.com/2022/06/21/business/stocks-rebound-after-a-rough-week.html?searchResultPosition=2
+https://nytimes.com/2022/06/21/business/stocks-rebound-after-a-rough-week.html?searchResultPosition=3
 
 **Between Fathers and Daughters, It’s Complicated. This Book Probes Why.**\
 `Katherine Angel’s essay collection “Daddy Issues” examines our often prurient fascination with the dynamic, and that fascination’s inherent misogyny.`\
-https://nytimes.com/2022/06/21/books/review/daddy-ssues-katherine-angel.html?searchResultPosition=3
+https://nytimes.com/2022/06/21/books/review/daddy-ssues-katherine-angel.html?searchResultPosition=4
 
 **A Nonalcoholic Red Wine Worth Bringing to the Party**\
 `Noughty, the maker of nonalcoholic sparkling wines, has added this red still made in South Africa to its lineup.`\
-https://nytimes.com/2022/06/21/dining/noughty-nonalcoholic-wine.html?searchResultPosition=4
+https://nytimes.com/2022/06/21/dining/noughty-nonalcoholic-wine.html?searchResultPosition=5
 
 **‘Stories of Japanese Tea’ Is a Guide for the Novice and Expert Alike**\
 `This easygoing handbook that examines just about every aspect of Japanese tea and provides recipes for tea-based food and cocktails.`\
-https://nytimes.com/2022/06/21/dining/stories-of-japanese-tea-zach-mangan.html?searchResultPosition=5
+https://nytimes.com/2022/06/21/dining/stories-of-japanese-tea-zach-mangan.html?searchResultPosition=6
 
 **Grilling Tools That Will Last Much Longer Than One Summer**\
 `From Food52, the set by Schmidt Brothers Cutlery is safely long-handled and made from high-carbon stainless steel.`\
-https://nytimes.com/2022/06/21/dining/schmidt-brothers-grilling-tools-food52.html?searchResultPosition=6
+https://nytimes.com/2022/06/21/dining/schmidt-brothers-grilling-tools-food52.html?searchResultPosition=7
 
 **Yellen may soon get her name on the greenback.**\
 `By Deborah B. Solomon`\
-https://nytimes.com/2022/06/21/business/yellen-may-soon-get-her-name-on-the-greenback.html?searchResultPosition=7
+https://nytimes.com/2022/06/21/business/yellen-may-soon-get-her-name-on-the-greenback.html?searchResultPosition=8
 
 **These Spiced, Marinated Yogurt Balls Are Perfect for Snacking**\
 `Called Pariva, they come soaked in seasoned oil and are worth eating as is, spread on crackers or afloat in cold soups.`\
-https://nytimes.com/2022/06/21/dining/pariva-marinated-yogurt-balls.html?searchResultPosition=8
+https://nytimes.com/2022/06/21/dining/pariva-marinated-yogurt-balls.html?searchResultPosition=9
 
 **Wildfire in New Jersey Could Become the State’s Largest in Years**\
 `The Mullica River fire in Wharton State Forest in South Jersey has burned about 12,000 acres. Officials have ruled out natural causes as the source of the blaze.`\
-https://nytimes.com/2022/06/21/us/new-jersey-wildfire.html?searchResultPosition=9
-
-**The Russian ruble keeps rising, hitting a seven-year high.**\
-`A combination of capital controls, rising exports and falling imports have strengthened the Russian currency since it plunged in the weeks after Russia’s invasion of Ukraine.`\
-https://nytimes.com/2022/06/21/business/the-russian-ruble-keeps-rising-hitting-a-seven-year-high.html?searchResultPosition=10
+https://nytimes.com/2022/06/21/us/new-jersey-wildfire.html?searchResultPosition=10
 
