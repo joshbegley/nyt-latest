@@ -7,7 +7,7 @@ https://nytimes.com/2022/06/21/world/middleeast/misurata-libya-peace-theater.htm
 https://nytimes.com/2022/06/21/world/asia/china-surveillance-investigation.html?searchResultPosition=2
 
 **China’s Surveillance State Is Growing Bigger and More Invasive. These Documents Reveal How.**\
-`A Times investigation analyzing over 100,000 government bidding documents found that China’s ambition to collect digital and biological data from its citizens is far more expansive and invasive than previously known.`\
+`A Times investigation analyzing over 100,000 government bidding documents found that China’s ambition to collect digital and biological data from its citizens is more expansive and invasive than previously known.`\
 https://nytimes.com/video/world/asia/100000008314175/china-government-surveillance-data.html?searchResultPosition=3
 
 **Spelling Bee Forum**\
