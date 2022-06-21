@@ -3,7 +3,7 @@
 https://nytimes.com/2022/06/21/dining/la-pirana-lechonera-review-pete-wells.html?searchResultPosition=1
 
 **Election Workers Describe Threats After Trump Spread Conspiracies**\
-`Shaye Moss, testifying in person, and her mother, Ruby Freeman, in video testimony, told the Jan. 6 committee that their lives were upended by violent threats after being falsely accused of fraud in a conspiracy theory pushed by former President Donald J. Trump.`\
+`Shaye Moss, testifying in person, and her mother, Ruby Freeman, in video testimony, told the Jan. 6 committee that their lives were upended by violent threats after being falsely accused of fraud in a conspiracy theory pushed by President Donald J. Trump.`\
 https://nytimes.com/video/us/politics/100000008409290/jan-6-hearing-election-workers.html?searchResultPosition=2
 
 **The Wartime Celebrity Leader**\
