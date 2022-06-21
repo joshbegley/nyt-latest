@@ -4,7 +4,7 @@ https://nytimes.com/2022/06/21/us/politics/anti-personnel-land-mines-military-bi
 
 **Meta Agrees to Alter Ad-Targeting Tech in Settlement With U.S.**\
 `HUD had accused Meta of engaging in housing discrimination by letting advertisers restrict who could see housing ads on Facebook based on characteristics like race, religion and national origin.`\
-https://nytimes.com/2022/06/21/technology/meta-agrees-to-alter-ad-targeting-tech-in-settlement-with-us.html?searchResultPosition=2
+https://nytimes.com/2022/06/21/technology/meta-ad-targeting-settlement.html?searchResultPosition=2
 
 **How New York Got a Glorious Throwback Roller-Skating Extravaganza**\
 `Music is the key to a summertime experience for pros and amateurs called DiscOasis in Central Park. Its curator: the funk-disco guru and lifelong skater Nile Rodgers.`\
