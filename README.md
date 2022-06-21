@@ -31,7 +31,7 @@ https://nytimes.com/2022/06/21/arts/music/george-michael-freedom-uncut.html?sear
 https://nytimes.com/2022/06/21/world/europe/merrick-garland-ukraine-war-crimes.html?searchResultPosition=8
 
 **Stocks rebound after a rough week.**\
-`By Isabella Simonetti`\
+`Markets regained some ground after a tumultuous week on Wall Street.`\
 https://nytimes.com/2022/06/21/business/stocks-rebound-after-a-rough-week.html?searchResultPosition=9
 
 **Between Fathers and Daughters, It’s Complicated. This Book Probes Why.**\
