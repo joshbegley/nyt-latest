@@ -8,7 +8,7 @@ https://nytimes.com/2022/06/22/opinion/boris-johnson-britain-elections.html?sear
 
 **Rent Board Votes for 3.25% Increase on One-Year Leases**\
 `Two million New Yorkers who live in rent-stabilized apartments will be affected by increases approved at a raucous meeting of the Rent Guidelines Board.`\
-https://nytimes.com/2022/06/22/nyregion/rent-board-votes-for-3-25-increase-on-one-year-leases.html?searchResultPosition=3
+https://nytimes.com/2022/06/22/nyregion/rent-board-one-year-lease.html?searchResultPosition=3
 
 **Your Wednesday Briefing**\
 `Asia buys up Russian oil.`\
@@ -28,7 +28,7 @@ https://nytimes.com/2022/06/22/sports/hockey/avalanche-lightning-stanley-cup.htm
 
 **Companies Brace for Impact of New Forced Labor Law**\
 `Billions of dollars could be at stake as a law banning imports of products from China goes into effect.`\
-https://nytimes.com/2022/06/22/us/politics/xinjiang-uyghur-forced-labor-law-us.html?searchResultPosition=8
+https://nytimes.com/2022/06/22/us/politics/xinjiang-uyghur-forced-labor-law.html?searchResultPosition=8
 
 **Jan. 6 Panel Reveals Trump Was Involved in Fake Electors Scheme**\
 `The committee showed evidence that President Donald J. Trump was directly involved in trying to put forward the alternate slates of Trump electors that he hoped would replace legitimate electors awarded to Joseph R. Biden Jr.`\
