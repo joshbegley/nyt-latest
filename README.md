@@ -6,7 +6,7 @@ https://nytimes.com/2022/06/22/us/politics/jan-6-committee-republicans.html?sear
 `Only two of the 14 Republicans who broke ranks to support taking up gun legislation are facing voters this year, showing how difficult such deals could be in the future.`\
 https://nytimes.com/2022/06/22/us/politics/gun-bill-senate-republicans.html?searchResultPosition=2
 
-**An Outbreak of Meningococcal Disease in Florida is Growing, the C.D.C. Says**\
+**An Outbreak of Meningococcal Disease in Florida Is Growing, the C.D.C. Says**\
 `So far, 26 cases, including seven deaths, have been identified, primarily in men who have sex with men.`\
 https://nytimes.com/2022/06/22/health/meningococcal-outbreak-florida.html?searchResultPosition=3
 
