@@ -3,7 +3,7 @@
 https://nytimes.com/2022/06/22/briefing/russia-oil-asia-britain-train-strike.html?searchResultPosition=1
 
 **Linchpin of Ukrainian Defiance, a Southern City Endures Russian Barrage**\
-`Without its Black Sea Coast, a landlocked Ukraine would struggle. Mykolaiv is determined that won’t happen.`\
+`Without its Black Sea coast, a landlocked Ukraine would struggle. Mykolaiv is determined that won’t happen.`\
 https://nytimes.com/2022/06/22/world/europe/ukraine-mykolaiv-russia.html?searchResultPosition=2
 
 **N.B.A. Draft Preview: A Deep Field Could Yield Surprise Stars**\
