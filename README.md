@@ -24,7 +24,7 @@ https://nytimes.com/2022/06/22/technology/consumer-electronics-pandemic-spending
 
 **Andrew Gillum, DeSantis’s 2018 Rival, is Charged With Conspiracy and Fraud**\
 `The former Democratic nominee for Florida governor was indicted in a criminal case stemming from his time as Tallahassee mayor and gubernatorial candidate.`\
-https://nytimes.com/2022/06/22/us/andrew-gillum-ron-desantiss-2018-rival-charged-with-conspiracy-fraud.html?searchResultPosition=7
+https://nytimes.com/2022/06/22/us/andrew-gillum-conspiracy-wire-fraud.html?searchResultPosition=7
 
 **Black Maternal Mortality Is Still a Crisis**\
 `Linda Villarosa’s new book, ‘Under the Skin,’ shows just how urgent the problem is.`\
