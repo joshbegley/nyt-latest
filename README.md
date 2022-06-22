@@ -22,7 +22,7 @@ https://nytimes.com/2022/06/22/world/asia/afghanistan-earthquake-khost.html?sear
 `“Yeah, Rudy made so many unanswered calls, the iPhone started labeling him as spam,” Noah said.`\
 https://nytimes.com/2022/06/22/arts/television/trevor-noah-rudy-giuliani.html?searchResultPosition=6
 
-**Recent Ukrainian strikes in Black Sea suggest it has received powerful Western weapons, analysts say.**\
+**The arrival of Western weapons begins to reshape the battle off Ukraine’s coast.**\
 `The Ukrainian military said it was attacking Russian infrastructure on Snake Island.`\
 https://nytimes.com/2022/06/22/world/europe/recent-ukrainian-strikes-in-black-sea-suggest-it-has-received-powerful-western-weapons-analysts-say.html?searchResultPosition=7
 
