@@ -24,7 +24,7 @@ https://nytimes.com/2022/06/21/us/politics/britt-alabama-georgia-trump.html?sear
 
 **Katie Britt defeats Mo Brooks in Alabama’s Senate runoff.**\
 `Ms. Britt, a first-time candidate who had the support of the Republican establishment, will be heavily favored to win Alabama’s open Senate seat in November.`\
-https://nytimes.com/2022/06/21/us/politics/katie-britt-mo-brooks-alabama-senate.html?searchResultPosition=7
+https://nytimes.com/live/2022/06/21/us/election-virginia-primary-georgia/katie-britt-mo-brooks-alabama-senate?searchResultPosition=7
 
 **Rusty Bowers Recalls Harassment After Rejecting 2020 Fraud Claims**\
 `Rusty Bowers, a Republican who is the speaker of the Arizona House of Representatives, detailed the pressure campaign he faced from Donald J. Trump and the president’s team to flip the state’s election result.`\
