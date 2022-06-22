@@ -36,5 +36,5 @@ https://nytimes.com/2022/06/22/podcasts/modern-love-divorce-marriage-distance.ht
 
 **Proud Boys Case Shows Tensions Between Parallel Inquiries Into Jan. 6**\
 `Federal prosecutors and defense lawyers in the sedition case against the far-right group joined forces to request a delay in the trial, citing the hearing by the House select committee.`\
-https://nytimes.com/2022/06/22/us/politics/proud-boys-justice-department-jan-6.html?searchResultPosition=10
+https://nytimes.com/2022/06/22/us/politics/proud-boys-sedition-conspiracy-trial.html?searchResultPosition=10
 
