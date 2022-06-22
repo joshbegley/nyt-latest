@@ -34,7 +34,7 @@ https://nytimes.com/2022/06/22/special-series/lisa-randall-physics-meaning.html?
 `The M.T.A. will spend billions to add elevators and ramps to stations as part of a settlement of two lawsuits accusing it of violating the rights of people with disabilities.`\
 https://nytimes.com/2022/06/22/nyregion/nyc-subway-accessibility-disabilities-elevators.html?searchResultPosition=9
 
-**Powell warns that further inflation surprises could loom ahead.**\
+**Powell says the Fed is ‘not trying to provoke’ a recession.**\
 `Jerome H. Powell, the chair of the Federal Reserve, is testifying before a Senate committee at a moment of rapid inflation and rising interest rates.`\
 https://nytimes.com/2022/06/22/business/powell-fed-inflation-recession.html?searchResultPosition=10
 
