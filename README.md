@@ -18,17 +18,17 @@ https://nytimes.com/slideshow/2022/06/22/realestate/the-addictive-appeal-of-aroi
 `Upselling the suit was on the agenda during this Milan Fashion Week, when Italian men’s wear returned in glory.`\
 https://nytimes.com/2022/06/22/style/dressing-simply-but-well-its-not-so-simple.html?searchResultPosition=5
 
+**In Two Elections, North and South, Boris Johnson Risks a Sharp Rebuke**\
+`Scandals, economic pain and an uproar over lockdown parties have left Britain’s Conservatives at risk of losing both recent advances and old strongholds.`\
+https://nytimes.com/2022/06/22/world/boris-johnson-byelections-wakefield-tiverton.html?searchResultPosition=6
+
 **Inside the Push to Diversify the Book Business**\
 `For generations, America’s major publishers focused almost entirely on white readers. Now a new cadre of executives like Lisa Lucas is trying to open up the industry.`\
-https://nytimes.com/2022/06/22/magazine/inside-the-push-to-diversify-the-book-business.html?searchResultPosition=6
+https://nytimes.com/2022/06/22/magazine/inside-the-push-to-diversify-the-book-business.html?searchResultPosition=7
 
 **The Man Who Made the Sari Haute**\
 `As his country’s most famous designer, Sabyasachi has persuaded Indians to see the luxury in their fashion heritage. Can he persuade Americans too?`\
-https://nytimes.com/2022/06/22/magazine/sabyasachi-profile.html?searchResultPosition=7
-
-**In Two Elections, North and South, Boris Johnson Risks a Sharp Rebuke**\
-`Scandals, economic pain and an uproar over lockdown parties have left Britain’s Conservatives at risk of losing both recent advances and old strongholds.`\
-https://nytimes.com/2022/06/22/world/boris-johnson-byelections-wakefield-tiverton.html?searchResultPosition=8
+https://nytimes.com/2022/06/22/magazine/sabyasachi-profile.html?searchResultPosition=8
 
 **First Pineapples, Now Fish: To Pressure Taiwan, China Flexes Economic Muscle**\
 `Taiwan’s lucrative grouper industry is bracing for heavy losses after China’s recent ban on imports of the fish from the island.`\
