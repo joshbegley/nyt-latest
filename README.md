@@ -1,4 +1,4 @@
-**Earthquake in Afghanistan Kills at Least 255, Officials Say**\
+**Earthquake in Afghanistan Kills at Least 280, Officials Say**\
 `The 5.9 magnitude quake struck about 28 miles southwest of the city of Khost, in the country’s southeast.`\
 https://nytimes.com/2022/06/22/world/asia/afghanistan-earthquake-khost.html?searchResultPosition=1
 
