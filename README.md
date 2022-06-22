@@ -1,5 +1,5 @@
 **Biden’s top trade negotiator defended China tariffs as an important source of leverage.**\
-`By Ana Swanson`\
+`The Biden administration has come under pressure to ease tariffs as a way to help deal with inflation.`\
 https://nytimes.com/2022/06/22/business/biden-china-tariffs.html?searchResultPosition=1
 
 **Sport Is Again Divided Over Inclusiveness and a Level Playing Field**\
