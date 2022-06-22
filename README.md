@@ -22,7 +22,7 @@ https://nytimes.com/2022/06/22/us/politics/biden-student-debt-inflation.html?sea
 `Let’s see how much you remember.`\
 https://nytimes.com/interactive/2022/06/22/opinion/22collins.html?searchResultPosition=6
 
-**Police Chief for Uvalde’s School District Is Put on Administrative Leave**\
+**Uvalde School District Puts Police Chief on Leave After Mass Shooting**\
 `The state’s top police official faulted Chief Pete Arredondo for delaying the confrontation with a gunman who killed 21 people in an elementary school last month.`\
 https://nytimes.com/2022/06/22/us/uvalde-police-chief-administrative-leave.html?searchResultPosition=7
 
