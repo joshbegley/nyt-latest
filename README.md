@@ -1,6 +1,6 @@
 **Rupert Murdoch and Jerry Hall Are Said to Be Divorcing**\
-`The media mogul’s fourth divorce would unlikely change the ownership structure of Mr. Murdoch’s empire, but it could reverberate through companies such as Fox News and The Wall Street Journal.`\
-https://nytimes.com/2022/06/22/business/media/rupert-murdoch-jerry-hall-divorce.html?searchResultPosition=1
+`The media mogul’s fourth divorce is unlikely to change the ownership structure of Mr. Murdoch’s empire, but it could reverberate through companies such as Fox News and The Wall Street Journal.`\
+https://nytimes.com/2022/06/22/business/media/rupert-murdoch-divorce-jerry-hall.html?searchResultPosition=1
 
 **Driver in Fatal Times Square Attack Found Not Responsible Because of Mental Illness**\
 `Richard Rojas, a Navy veteran, spiraled after he was discharged. Prosecutors said he was culpable, but failed to sway jurors in the 2017 attack that left one dead and injured nearly two dozen.`\
