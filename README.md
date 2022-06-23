@@ -32,7 +32,7 @@ https://nytimes.com/2022/06/23/world/africa/south-africa-corruption-jacob-zuma-c
 
 **Scientists Zero In on Origins of the Monkeypox Outbreak**\
 `Even as cases rise, genetic analysis suggests that the virus has been silently circulating in people since 2018.`\
-https://nytimes.com/2022/06/23/health/monkeypox-mutations-origin.html?searchResultPosition=9
+https://nytimes.com/2022/06/23/health/monkeypox-origin-mutations.html?searchResultPosition=9
 
 **Richard Donoghue: The Justice Department’s No. 2 official told Trump that his voter fraud claims had no merit.**\
 `Mr. Donoghue has testified that, in a phone call, the president ordered him and the acting attorney general to simply “say that the election was corrupt” and “leave the rest to me.”`\
