@@ -1,40 +1,40 @@
-**MINK!**\
-`Throughout her life, Representative Patsy Mink challenged the status quo. As a leading advocate of Title IX, she defended the bill against those who sought to weaken it.`\
-https://nytimes.com/video/opinion/100000008360198/mink.html?searchResultPosition=1
+**Loving Art to the Moon and Back**\
+`Jeff Koons, having more than made his mark on Earth, is now looking beyond. He is launching his latest ambitious project with the help of NASA and Elon Musk.`\
+https://nytimes.com/2022/06/23/arts/jeff-koons-art-moon.html?searchResultPosition=1
 
-**Korean currency falls to 13-year low amid global recession fears.**\
-`South Korea’s export-driven economy makes it particularly sensitive to conditions in the global economy.`\
-https://nytimes.com/2022/06/23/business/korean-won-low.html?searchResultPosition=2
+**Mindful of Its Impact on the Planet, the Art World Aims for Sustainability**\
+`Efforts to lower the industry’s carbon footprint have led to new practices, like more sea shipping and rethinking auctions and fairs.`\
+https://nytimes.com/2022/06/23/arts/art-climate-change-environment.html?searchResultPosition=2
 
-**European leaders are meeting today to decide on granting Ukraine E.U. candidate status.**\
-`Their approval would allow Ukraine to be a candidate to join the bloc, starting what could be a long road.`\
-https://nytimes.com/2022/06/23/world/europe/ukraine-eu-candidate-status.html?searchResultPosition=3
+**Fifty Years On, Title IX’s Legacy Includes its Durability**\
+`From 1972 to 1973, the United States considered three landmark changes to protect women’s rights. Fifty years later, only one is likely to remain.`\
+https://nytimes.com/2022/06/23/sports/title-ix-anniversary.html?searchResultPosition=3
 
-**Molière, Turning 400, Can Still Surprise**\
-`In an anniversary year for the playwright, new productions in the Paris region show why his work still appeals to myriad audiences.`\
-https://nytimes.com/2022/06/23/theater/moliere-400-comedie-francise-versailles.html?searchResultPosition=4
+**Its ‘Demon’ Exorcised, a Floating Gay Party Series Returns**\
+`A year after a “demon twink” earned them outsize attention, the D.J. Ty Sunderland’s “Gayflower” parties kicked off a new season with a Spice Girls-themed event.`\
+https://nytimes.com/2022/06/23/style/gayflower-boat-party-ty-sunderland.html?searchResultPosition=4
 
-**Elvis Broke Fashion Boundaries, Too**\
-`He was many things, as a new biopic illustrates, but one of the least appreciated was his role as a gender pioneer.`\
-https://nytimes.com/2022/06/23/style/elvis-broke-fashion-boundaries-too.html?searchResultPosition=5
+**The Spectacle of the Jan. 6 Hearings Consumes Washington**\
+`One photographer’s account of the commotion surrounding the biggest investigation in Washington since Watergate.`\
+https://nytimes.com/2022/06/23/us/politics/jan-6-hearings-photos.html?searchResultPosition=5
 
-**G.O.P. Testimony at Jan. 6 Panel Exposes a Party Torn Between Truth and Trump**\
-`A Democratic-run committee relies on Republican witnesses to build the case against the former president — in searing detail.`\
-https://nytimes.com/2022/06/23/us/politics/republicans-jan-6-trump.html?searchResultPosition=6
+**He Helped Arthur Ashe With His Backhand but Never Had a Lesson Himself**\
+`Dick Savitt was the first Jewish player to win Wimbledon and the Australian Open. Self-taught, he’s spent his life teaching others.`\
+https://nytimes.com/2022/06/23/nyregion/savitt-wimbledon-tennis.html?searchResultPosition=6
 
-**Reporting on the Future, Now**\
-`Cade Metz, a technology correspondent for The Times, shares how he approaches his reporting and what excites him most about the beat.`\
-https://nytimes.com/2022/06/23/insider/reporting-on-the-future-now.html?searchResultPosition=7
+**The Rise of the 0.5 Selfie**\
+`These selfies, taken with an ultra-wide-angle lens, aren’t fussed over. Sometimes they are just “distorted and crazy.”`\
+https://nytimes.com/2022/06/23/technology/0-5-selfie.html?searchResultPosition=7
 
-**When Did Perfume Stop Being About Sex?**\
-`Its decades-long grip on the global fragrance industry is slipping. You can thank changing views on sexual orientation and gender.`\
-https://nytimes.com/2022/06/23/style/when-did-perfume-stop-being-about-sex.html?searchResultPosition=8
+**Psychosis, Addiction, Chronic Vomiting: As Weed Becomes More Potent, Teens Are Getting Sick**\
+`With THC levels close to 100 percent, today’s cannabis products are making some teenagers highly dependent and dangerously ill.`\
+https://nytimes.com/2022/06/23/well/mind/teens-thc-canabis.html?searchResultPosition=8
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/06/23/crosswords/spelling-bee-forum.html?searchResultPosition=9
+**In New Orleans, Time-Tested Charms and Some Bright New Baubles**\
+`Immersive art, bespoke hotels and restaurants that range from Creole to a ‘tropical roadhouse’ are only a few of the offerings awaiting visitors.`\
+https://nytimes.com/2022/06/23/travel/what-to-see-eat-and-do-in-new-orleans.html?searchResultPosition=9
 
-**Extreme Weather Hits China With Massive Floods and Scorching Heat**\
-`Hundreds of thousands of people have been displaced by the historic flooding. Elsewhere, record-high temperatures are rupturing roads and driving energy consumption.`\
-https://nytimes.com/2022/06/23/world/asia/china-floods-heatwaves.html?searchResultPosition=10
+**As Midterms Loom, Elections Are No Longer Top Priority for Meta C.E.O.**\
+`Mark Zuckerberg, who once said securing elections was “the most important thing,” has shifted Meta’s focus to the metaverse. That may have real-world implications.`\
+https://nytimes.com/2022/06/23/technology/mark-zuckerberg-meta-midterm-elections.html?searchResultPosition=10
 
