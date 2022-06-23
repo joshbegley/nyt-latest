@@ -15,7 +15,7 @@ https://nytimes.com/2022/06/23/arts/television/stephen-colbert-ron-johnson.html?
 https://nytimes.com/2022/06/23/nyregion/the-tangled-tale-of-eric-adamss-apartment-in-brooklyn.html?searchResultPosition=4
 
 **Prosecutors Ask That Ghislaine Maxwell Spend at Least 30 Years in Prison**\
-`Ms. Maxwell, who was convicted of helping Jeffrey Epstein recruit and abuse girls for years, blamed her behavior on him and her deceased father.`\
+`Ms. Maxwell, who will be sentenced next week, showed an “utter lack of remorse” for helping Jeffrey Epstein recruit and abuse girls, federal prosecutors told a judge.`\
 https://nytimes.com/2022/06/23/nyregion/ghislaine-maxwell-prison-sentence.html?searchResultPosition=5
 
 **Your Thursday Briefing**\
