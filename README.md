@@ -30,11 +30,11 @@ https://nytimes.com/2022/06/23/arts/art-climate-change-environment.html?searchRe
 `From 1972 to 1973, the United States considered three landmark changes to protect women’s rights. Fifty years later, only one is likely to remain.`\
 https://nytimes.com/2022/06/23/sports/title-ix-anniversary.html?searchResultPosition=8
 
-**Its ‘Demon’ Exorcised, a Floating Gay Party Series Returns**\
-`A year after a “demon twink” earned them outsize attention, the D.J. Ty Sunderland’s “Gayflower” parties kicked off a new season with a Spice Girls-themed event.`\
-https://nytimes.com/2022/06/23/style/gayflower-boat-party-ty-sunderland.html?searchResultPosition=9
-
 **The Spectacle of the Jan. 6 Hearings Consumes Washington**\
 `One photographer’s account of the commotion surrounding the biggest investigation in Washington since Watergate.`\
-https://nytimes.com/2022/06/23/us/politics/jan-6-hearings-photos.html?searchResultPosition=10
+https://nytimes.com/2022/06/23/us/politics/jan-6-hearings-photos.html?searchResultPosition=9
+
+**Its ‘Demon’ Exorcised, a Floating Gay Party Series Returns**\
+`A year after a “demon twink” earned them outsize attention, the D.J. Ty Sunderland’s “Gayflower” parties kicked off a new season with a Spice Girls-themed event.`\
+https://nytimes.com/2022/06/23/style/gayflower-boat-party-ty-sunderland.html?searchResultPosition=10
 
