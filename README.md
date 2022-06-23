@@ -26,7 +26,7 @@ https://nytimes.com/2022/06/23/us/politics/mo-brooks-jan-6-testify.html?searchRe
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2022/06/23/books/review/new-books-we-recommend-this-week.html?searchResultPosition=7
 
-**Read the Unsent Letter by Jeffrey Clark to Georgia Election Officials**\
+**Read the Unsent Letter by Jeffrey Clark to Georgia Officials**\
 `Jeffrey Clark, a former Justice Department official who worked closely with former President Trump and his allies to undo the election, wanted to send a letter to Georgia state election officials that falsely claimed that the Justice Department “identified significant concerns” that would impact the state’s election results.`\
 https://nytimes.com/interactive/2022/06/23/us/jeffrey-clark-draft-letter.html?searchResultPosition=8
 
