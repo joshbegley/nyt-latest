@@ -28,7 +28,7 @@ https://nytimes.com/video/us/100000008412571/trumpet-bloodhound-westminster.html
 
 **Fed officials pledge ‘unconditional’ dedication to lowering inflation.**\
 `Central bankers are taking aggressive action to lower price increases. On Thursday, they signaled a willingness to keep going, despite the economic pain it could cause.`\
-https://nytimes.com/2022/06/23/business/fed-officials-pledge-unconditional-dedication-to-lowering-inflation.html?searchResultPosition=8
+https://nytimes.com/2022/06/23/business/powell-fed-lower-inflation.html?searchResultPosition=8
 
 **New Biden Rules Would Bar Discrimination Against Transgender Students**\
 `The proposed rules would prohibit discrimination based on gender identity, among other things; they set up a clash with state lawmakers and conservative groups.`\
