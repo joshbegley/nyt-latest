@@ -10,7 +10,7 @@ https://nytimes.com/video/us/100000008412476/florida-burmese-python.html?searchR
 `Ms. Cheney, who faces a Trump-backed challenger, has begun mailing Wyoming Democrats instructions on how to change their party affiliation.`\
 https://nytimes.com/2022/06/23/us/politics/liz-cheney-wyoming-democrats-change-parties.html?searchResultPosition=3
 
-**Advisers to the C.D.C. recommend Modena’s vaccine for children and teens aged 6 through 17.**\
+**Advisers to the C.D.C. recommend Moderna’s vaccine for children and teens aged 6 through 17.**\
 `Pfizer-BioNTech’s Covid vaccine has been available to children 5 through 15 since last year and to Americans 16 and older since late 2020.`\
 https://nytimes.com/2022/06/23/health/cdc-moderna-covid-vaccine-ages-6-17.html?searchResultPosition=4
 
