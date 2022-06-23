@@ -8,7 +8,7 @@ https://nytimes.com/video/us/100000008412818/hochul-new-york-guns-scotus.html?se
 
 **The Senate moved a step closer to passing a bipartisan gun safety bill.**\
 `Fifteen Republicans joined Democrats on a test vote, more than enough to break a G.O.P. filibuster and shatter a three-decade-long streak of inaction on substantial gun-related legislation.`\
-https://nytimes.com/2022/06/23/us/politics/the-senate-moved-a-step-closer-to-passing-a-bipartisan-gun-safety-bill.html?searchResultPosition=3
+https://nytimes.com/2022/06/23/us/politics/senate-gun-control-bill.html?searchResultPosition=3
 
 **‘Olga’ Review: Tough Balancing Act for a Ukrainian Girl in Exile**\
 `Elie Grappe’s quietly poignant film about a young gymnast finds her torn between her passion and the violence gripping her country — in 2013.`\
