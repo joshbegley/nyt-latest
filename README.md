@@ -14,17 +14,17 @@ https://nytimes.com/2022/06/23/us/florida-largest-python.html?searchResultPositi
 `Billions of dollars in new emergency aid to fight Covid have been stalled in Congress, and Republicans on Capitol Hill have made clear the aid package is all but dead.`\
 https://nytimes.com/2022/06/23/us/politics/white-house-covid-aid.html?searchResultPosition=4
 
+**How to Make Abortion Pills More Available for a Post-Roe World**\
+`Medication abortion isn’t a magic solution to the likely end of Roe. But it can blunt the fallout.`\
+https://nytimes.com/2022/06/23/opinion/abortion-pills-online-roe-v-wade.html?searchResultPosition=5
+
 **Beware the Dangers of Sado-Monetarism**\
 `The Fed mustn’t get bullied into excessive harshness.`\
-https://nytimes.com/2022/06/23/opinion/inflation-recession-monetarism.html?searchResultPosition=5
+https://nytimes.com/2022/06/23/opinion/inflation-recession-monetarism.html?searchResultPosition=6
 
 **Eric Greitens to Face New G.O.P. Attacks in Missouri Senate Race**\
 `Many Republicans worry that Greitens, who has a history of personal scandals, could jeopardize what is most likely a safe G.O.P. seat. Now efforts to block him are gaining steam.`\
-https://nytimes.com/2022/06/23/us/politics/eric-greitens-missouri-senate.html?searchResultPosition=6
-
-**How to Make Abortion Pills More Available for a Post-Roe World**\
-`Medication abortion isn’t a magic solution to the likely end of Roe. But it can blunt the fallout.`\
-https://nytimes.com/2022/06/23/opinion/abortion-pills-online-roe-v-wade.html?searchResultPosition=7
+https://nytimes.com/2022/06/23/us/politics/eric-greitens-missouri-senate.html?searchResultPosition=7
 
 **Crypto Meltdown Forces a Rebranding**\
 `Digital currency’s hype men try to flip the script as Terra, Bitcoin and others fall off a cliff.`\
