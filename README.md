@@ -1,37 +1,40 @@
+**Government to Cancel $6 Billion in Student Loans for Defrauded Borrowers**\
+`Around 200,000 who sought relief after attending schools that the Education Department said showed signs of “substantial misconduct” will have their federal student loans wiped out.`\
+https://nytimes.com/2022/06/23/business/student-loan-debt-fraud-settlement.html?searchResultPosition=1
+
+**Documentary Filmmaker Emerges as Potentially Key Jan. 6 Witness**\
+`Alex Holder is testifying behind closed doors to the House committee about hours of footage he shot before and after the 2020 election with President Donald J. Trump and his family.`\
+https://nytimes.com/2022/06/23/us/politics/alex-holder-jan-6-trump-documentary.html?searchResultPosition=2
+
 **Rescue Efforts Underway After Deadly Afghanistan Earthquake**\
 `More than 1,000 people died and 1,600 others were injured when the 5.9-magnitude earthquake rocked Afghanistan’s southeast.`\
-https://nytimes.com/video/world/asia/100000008412410/afghanistan-earthquake-rescue.html?searchResultPosition=1
+https://nytimes.com/video/world/asia/100000008412410/afghanistan-earthquake-rescue.html?searchResultPosition=3
 
 **Bloodhound Wins Best in Show at Westminster Dog Show**\
 `The 4-year-old dog, named Trumpet, is the first bloodhound to win the Westminster Kennel Club Dog Show.`\
-https://nytimes.com/video/us/100000008412571/trumpet-bloodhound-westminster.html?searchResultPosition=2
+https://nytimes.com/video/us/100000008412571/trumpet-bloodhound-westminster.html?searchResultPosition=4
 
 **Fed officials pledge ‘unconditional’ dedication to lowering inflation.**\
 `Central bankers are taking aggressive action to lower price increases. On Thursday, they signaled a willingness to keep going, despite the economic pain it could cause.`\
-https://nytimes.com/2022/06/23/business/fed-officials-pledge-unconditional-dedication-to-lowering-inflation.html?searchResultPosition=3
+https://nytimes.com/2022/06/23/business/fed-officials-pledge-unconditional-dedication-to-lowering-inflation.html?searchResultPosition=5
 
 **New Biden Rules Would Bar Discrimination Against Transgender Students**\
 `The proposed rules would prohibit discrimination based on gender identity, among other things; they set up a clash with state lawmakers and conservative groups.`\
-https://nytimes.com/2022/06/23/us/politics/new-biden-rules-would-bar-discrimination-against-transgender-students.html?searchResultPosition=4
+https://nytimes.com/2022/06/23/us/politics/new-biden-rules-would-bar-discrimination-against-transgender-students.html?searchResultPosition=6
 
 **For a Kyiv Techno Collective, ‘Now Everything Is About Politics’**\
 `Since Russia’s invasion of Ukraine, the team behind Cxema parties have shifted its focus, but political engagement is nothing new for the artists.`\
-https://nytimes.com/2022/06/23/arts/music/cxema-ukraine.html?searchResultPosition=5
+https://nytimes.com/2022/06/23/arts/music/cxema-ukraine.html?searchResultPosition=7
 
 **One Button Could Have ‘Saved More Lives’ in Florida Condo Collapse**\
 `Seven minutes elapsed between the initial rumblings and the collapse of Champlain Towers South in Surfside. But a security guard didn’t know how to activate the building’s warning system.`\
-https://nytimes.com/2022/06/23/us/surfside-condo-collapse-alarm.html?searchResultPosition=6
+https://nytimes.com/2022/06/23/us/surfside-condo-collapse-alarm.html?searchResultPosition=8
 
 **F.D.A. Orders Juul to Stop Selling E-Cigarettes**\
 `The agency ruled against the company’s application to stay on the market, a decisive blow to a once-popular vaping brand that appealed to teenagers.`\
-https://nytimes.com/2022/06/23/health/fda-juul-ecigarettes-ban.html?searchResultPosition=7
+https://nytimes.com/2022/06/23/health/fda-juul-ecigarettes-ban.html?searchResultPosition=9
 
 **Soccer Mommy Summons a ‘Tidal Wave’ of Feelings**\
 `The songwriter Sophie Allison finds new sonic frontiers alongside Oneohtrix Point Never on her third studio album, “Sometimes, Forever.”`\
-https://nytimes.com/2022/06/23/arts/music/soccer-mommy-sometimes-forever-review.html?searchResultPosition=8
+https://nytimes.com/2022/06/23/arts/music/soccer-mommy-sometimes-forever-review.html?searchResultPosition=10
 
-**Still Charming at 50: Luis Buñuel’s Greatest Hit**\
-`“The Discreet Charm of the Bourgeois” is a comedy of frustrations in which a sextet of super-civilized haute bourgeois repeatedly attempt and fail to sit down at dinner.`\
-https://nytimes.com/2022/06/23/movies/luis-bunuel-discreet-charm-bourgeois.html?searchResultPosition=9
-
-**The human foot, a design disaster or a miracle of evolution?**\
