@@ -10,7 +10,7 @@ https://nytimes.com/video/world/asia/100000008411905/afghanistan-earthquake-deat
 `In a strange and beautiful new play by Will Arbery, finding happiness is a process of failing upward.`\
 https://nytimes.com/2022/06/22/theater/corsicana-review.html?searchResultPosition=3
 
-**Helicopter Crashes in West Virginia With 6 People Aboard**\
+**6 People Killed in Helicopter Crash in West Virginia Mountains**\
 `The crash in Logan County will be investigated by the Federal Aviation Administration and the National Transportation Safety Board.`\
 https://nytimes.com/2022/06/22/us/west-virginia-helicopter-crash-logan.html?searchResultPosition=4
 
