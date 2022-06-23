@@ -1,5 +1,5 @@
 **Germany raises gas emergency level, warning of a crisis.**\
-`Germany’s economy minister triggered the second stage of an emergency plan a week after Russian cut back on gas to Europe, sending prices soaring and raising fears of shortages.`\
+`Germany’s economy minister triggered the second stage of an emergency plan a week after Russia cut back on gas to Europe, sending prices soaring and raising fears of shortages.`\
 https://nytimes.com/2022/06/23/business/germany-gas-emergency.html?searchResultPosition=1
 
 **Homes for Sale in Westchester and Connecticut**\
