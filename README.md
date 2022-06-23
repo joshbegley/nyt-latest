@@ -23,7 +23,7 @@ https://nytimes.com/video/world/asia/100000008411905/afghanistan-earthquake-deat
 https://nytimes.com/2022/06/22/theater/corsicana-review.html?searchResultPosition=6
 
 **6 People Killed in Helicopter Crash in West Virginia Mountains**\
-`The crash in Logan County will be investigated by the Federal Aviation Administration and the National Transportation Safety Board.`\
+`The helicopter that crashed in Logan County was used during the Vietnam War and was being flown this week by enthusiasts.`\
 https://nytimes.com/2022/06/22/us/west-virginia-helicopter-crash-logan.html?searchResultPosition=7
 
 **‘Chernobyl: The Lost Tapes’ Review: Excavating Images From the Fallout**\
