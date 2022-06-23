@@ -1,6 +1,6 @@
 **She Fainted During the World Championships. Her Coach Came to the Rescue.**\
 `Anita Alvarez, an American artistic swimmer, lost consciousness while performing her solo routine in Budapest. She was “fine” afterward, her coach said.`\
-https://nytimes.com/2022/06/23/sports/anita-alvarez-world-aquatics-championships.html?searchResultPosition=1
+https://nytimes.com/2022/06/23/sports/olympics/anita-alvarez-world-aquatics-championships.html?searchResultPosition=1
 
 **Shared Suffering**\
 `Ukrainians are trying to confront the war’s psychological wounds even as the battles wear on.`\
