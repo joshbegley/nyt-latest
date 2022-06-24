@@ -1,40 +1,40 @@
-**After Years of Acrimony, China and Australia Cautiously Reach Out**\
-`The arrival of a new government in Canberra has set the stage for ministerial talks and overtures for easing tensions. Plenty still divides the two nations.`\
-https://nytimes.com/2022/06/24/world/asia/china-australia-ties.html?searchResultPosition=1
+**For Britain’s National Gallery, a Raphael Show Comes at the Right Time**\
+`Marking the 500th anniversary of the artist’s death, an exhibition delayed by the pandemic is meant to present an “antidote” to the world’s turmoil.`\
+https://nytimes.com/2022/06/24/arts/design/raphael-national-gallery-london.html?searchResultPosition=1
 
-**Fed Confronts a ‘New World’ of Inflation**\
-`Central banks had a longstanding playbook for how inflation worked. In the postpandemic era, all bets are off.`\
-https://nytimes.com/2022/06/24/business/economy/fed-inflation.html?searchResultPosition=2
+**How Does Temperature Affect Wine?**\
+`In hot weather, it’s important to think about the weight and serving temperature of a wine, rather than its color.`\
+https://nytimes.com/2022/06/24/dining/drinks/wine-temperature-chill-red-wine.html?searchResultPosition=2
 
-**‘Rise’ Review: To Be Giannis**\
-`The story of the real-life N.B.A. superstar Giannis Antetokounmpo is told with heartfelt charm in this endearing Disney+ biopic.`\
-https://nytimes.com/2022/06/24/movies/rise-review-to-be-giannis.html?searchResultPosition=3
+**What is a recession, and when is the next one going to begin?**\
+`Recessions since World War II have lasted just over 10 months each, on average. The last one, which began in 2020, lasted just two months.`\
+https://nytimes.com/2022/06/24/business/what-is-a-recession.html?searchResultPosition=3
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/06/24/crosswords/spelling-bee-forum.html?searchResultPosition=4
+**Truck Beach Was For Locals. Then the Oceanfront Homes Arrived.**\
+`In the Hamptons, a longstanding battle over a sliver of beach returns to court.`\
+https://nytimes.com/2022/06/24/nyregion/truck-beach-access-hamptons.html?searchResultPosition=4
 
-**Court Ruling on Guns: The Legislature’s Options**\
-`It’s now up to Albany to pass restrictions on gun ownership that would be allowed under the Supreme Court decision invalidating New York’s law.`\
-https://nytimes.com/2022/06/24/nyregion/court-ruling-on-guns-the-legislatures-options.html?searchResultPosition=5
+**‘At Their Breaking Point’: Tenants Fight to Stay in Their Homes**\
+`Since New York’s eviction moratorium ended in January, tenants and their landlords are returning to housing court.`\
+https://nytimes.com/2022/06/24/business/bronx-housing-court-evictions.html?searchResultPosition=5
 
-**Ukraine’s foreign minister sees E.U. candidacy as a crucial step toward joining a ‘liberal empire.’**\
-`“History has been made,” he said of Ukraine’s being accepted as a candidate for E.U. membership.`\
-https://nytimes.com/2022/06/24/world/europe/ukraines-foreign-minister-sees-eu-candidacy-as-a-crucial-step-toward-joining-a-liberal-empire.html?searchResultPosition=6
+**Her Father Fled the Nazis. She’s the New U.S. Ambassador to Germany.**\
+`For Amy Gutmann, a respected democracy scholar, her role as President Biden’s envoy to Germany is not a job, “it’s a mission,” one both professional and personal.`\
+https://nytimes.com/2022/06/24/world/europe/germany-ambassador-amy-gutmann.html?searchResultPosition=6
 
-**Trevor Noah Has Gun Law Ideas for New York**\
-`Noah says the state should propose new restrictions where “anyone can buy a gun if they want, but the gun stores are only open on the nights that the Knicks win.”`\
-https://nytimes.com/2022/06/24/arts/television/trevor-noah-gun-laws-late-night.html?searchResultPosition=7
+**12 Americans Die of an Overdose Every Hour. We Have the Knowledge to Prevent That.**\
+`Why haven’t we solved the addiction crisis?`\
+https://nytimes.com/2022/06/24/opinion/addiction-overdose-mental-health.html?searchResultPosition=7
 
-**Quotation of the Day: Title IX Promised Gender Equity. But Who Enforced It? Parents.**\
-`Quotation of the Day for Friday, June 24, 2022.`\
-https://nytimes.com/2022/06/24/todayspaper/quotation-of-the-day-title-ix-promised-gender-equity-but-who-enforced-it-parents.html?searchResultPosition=8
+**States Rush to Revamp Laws After Supreme Court’s Gun Ruling**\
+`After some restrictions on gun permits were deemed unconstitutional, legislators announced plans to craft new laws that honor the ruling while still creating limits.`\
+https://nytimes.com/2022/06/24/us/state-gun-laws-permits.html?searchResultPosition=8
 
-**Corrections: June 24, 2022**\
-`Corrections that appeared in print on Friday, June 24, 2022.`\
-https://nytimes.com/2022/06/24/pageoneplus/corrections-june-24-2022.html?searchResultPosition=9
+**After Six-Decade Hiatus, Experimental Psychedelic Therapy Returns to the V.A.**\
+`A series of clinical trials using MDMA and psilocybin mushrooms represent a resurrection of promising research abandoned in the 1960s.`\
+https://nytimes.com/2022/06/24/us/politics/psychedelic-therapy-veterans.html?searchResultPosition=9
 
-**Conservatives Lose 2 Races in U.K., Adding to Pressure on Boris Johnson**\
-`The double defeat exposed the party’s vulnerabilities and was likely to revive talk of another no-confidence vote against the prime minister.`\
-https://nytimes.com/2022/06/24/world/europe/uk-by-elections-conservatives-boris-johnson.html?searchResultPosition=10
+**When the Rent Rushes Relationships**\
+`Soaring rents across the country have motivated some young couples to move in together earlier than they planned.`\
+https://nytimes.com/2022/06/24/realestate/high-rent-couples-living-together.html?searchResultPosition=10
 
