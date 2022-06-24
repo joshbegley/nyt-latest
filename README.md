@@ -1,4 +1,4 @@
-**Congress Passes Bipartisan Gun Legislation, Clearing It For Biden**\
+**Congress Passes Bipartisan Gun Legislation, Clearing It for Biden**\
 `The House gave final approval to the Senate-passed compromise, ending nearly three decades of congressional inaction.`\
 https://nytimes.com/2022/06/24/us/politics/congress-passes-bipartisan-gun-legislation-clearing-it-for-biden.html?searchResultPosition=1
 
