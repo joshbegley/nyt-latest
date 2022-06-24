@@ -3,7 +3,7 @@
 https://nytimes.com/2022/06/24/theater/american-buffalo-broadway-masks.html?searchResultPosition=1
 
 **F.B.I. Raids Orlando Museum and Removes Basquiat Paintings**\
-`A spokeswoman for the museum said officials there have not been led to believe the museum has been or is the subject of any investigation.`\
+`After the authenticity of paintings in the museum’s Jean-Michel Basquiat exhibition was questioned, all 25 works were seized by the F.B.I.`\
 https://nytimes.com/2022/06/24/arts/design/fbi-orlando-museum-basquiat.html?searchResultPosition=2
 
 **Three Women, ‘Hollowed Out and Ready to Burst’**\
