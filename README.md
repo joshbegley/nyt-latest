@@ -1,6 +1,6 @@
 **‘It’s Become Real’: Abortion Decision Roils Midterms, Sending Fight to States**\
 `Democrats hope the fall of Roe v. Wade will jolt abortion rights supporters into action in midterm elections. But is it enough to turn voters’ attention away from inflation?`\
-https://nytimes.com/2022/06/24/us/politics/abortion-court-decision-midterm-elections.html?searchResultPosition=1
+https://nytimes.com/2022/06/24/us/politics/abortion-roe-wade-midterm-elections.html?searchResultPosition=1
 
 **Hochul Has Raised $34 Million So Far. Her Goal May Be Double That.**\
 `Gov. Kathy Hochul’s fund-raising pace could make her run for a full term the most expensive campaign ever for governor of New York.`\
