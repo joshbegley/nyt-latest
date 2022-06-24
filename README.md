@@ -6,7 +6,7 @@ https://nytimes.com/2022/06/24/us/trigger-laws-abortion-states-roe.html?searchRe
 `The vote to scrap the law came on the same day that Roe v. Wade was overturned by the U.S. Supreme Court.`\
 https://nytimes.com/2022/06/24/world/europe/germany-ends-ban-on-abortion-advertisement.html?searchResultPosition=2
 
-**‘The Uncertainty Is Us’**\
+**The ‘Uncertainty Is Us’**\
 `Katharine Hayhoe, a climate scientist, says sustainable choices must become the easiest, most affordable ones.`\
 https://nytimes.com/2022/06/24/climate/climate-forward-katharine-hayhoe.html?searchResultPosition=3
 
