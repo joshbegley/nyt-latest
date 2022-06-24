@@ -19,7 +19,7 @@ https://nytimes.com/2022/06/24/crosswords/spelling-bee-forum.html?searchResultPo
 https://nytimes.com/2022/06/24/nyregion/court-ruling-on-guns-the-legislatures-options.html?searchResultPosition=5
 
 **Ukraine’s foreign minister sees E.U. candidacy as a crucial step toward joining a ‘liberal empire.’**\
-`By Valerie Hopkins`\
+`“History has been made,” he said of Ukraine’s being accepted as a candidate for E.U. membership.`\
 https://nytimes.com/2022/06/24/world/europe/ukraines-foreign-minister-sees-eu-candidacy-as-a-crucial-step-toward-joining-a-liberal-empire.html?searchResultPosition=6
 
 **Trevor Noah Has Gun Law Ideas for New York**\
