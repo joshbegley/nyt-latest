@@ -20,7 +20,7 @@ https://nytimes.com/2022/06/24/world/asia/sylhet-bangladesh-floods.html?searchRe
 
 **Does Keeping Jurors Unbiased Mean Keeping Everyone Else Quiet?**\
 `A journalist’s comments prompt the delay of a high-profile criminal trial, and everyone gets a reminder in how careful they need to be in discussing ongoing cases.`\
-https://nytimes.com/2022/06/24/world/australia/does-keeping-jurors-unbiased-mean-keeping-everyone-else-quiet.html?searchResultPosition=6
+https://nytimes.com/2022/06/24/world/australia/jurors-unbiased.html?searchResultPosition=6
 
 **For Britain’s National Gallery, a Raphael Show Comes at the Right Time**\
 `Marking the 500th anniversary of the artist’s death, an exhibition delayed by the pandemic is meant to present an “antidote” to the world’s turmoil.`\
