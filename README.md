@@ -8,7 +8,7 @@ https://nytimes.com/2022/06/23/crosswords/variety-just-saying.html?searchResultP
 
 **Queen’s Protection**\
 `Sophia Maymudes and Margaret Seikel offer solvers a sizzling puzzle.`\
-https://nytimes.com/2022/06/23/crosswords/queens-protection.html?searchResultPosition=3
+https://nytimes.com/2022/06/23/crosswords/daily-puzzle-2022-06-24.html?searchResultPosition=3
 
 **Pelosi’s Husband Charged With D.U.I. in California Car Crash**\
 `A blood sample taken from Paul Pelosi, 82, more than two hours after the crash had a .082 percent blood alcohol content, the office said.`\
