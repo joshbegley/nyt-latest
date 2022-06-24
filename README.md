@@ -7,7 +7,7 @@ https://nytimes.com/2022/06/23/theater/epiphany-review-brian-watkins-lincoln-cen
 https://nytimes.com/2022/06/23/us/politics/jan-6-pardons.html?searchResultPosition=2
 
 **Orlando Magic Select Paolo Banchero With No. 1 Pick in N.B.A. Draft**\
-`Banchero, a forward from Duke, helped his team reach the Final Four during this year’s N.C.A.A. men’s basketball tournament.`\
+`Banchero, a forward from Duke, helped his team reach the Final Four this past season. Gonzaga’s Chet Holmgren went to the Oklahoma City Thunder at No. 2.`\
 https://nytimes.com/2022/06/23/sports/basketball/nba-draft-orlando-magic-paolo-banchero.html?searchResultPosition=3
 
 **How to Cultivate a Green Thumb**\
