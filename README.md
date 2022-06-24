@@ -1,4 +1,4 @@
-**Trump Leaned On Justice Dept. to Investigate Election Fraud Claims**\
+**Trump Leaned on Justice Dept. to Investigate Election Fraud Claims**\
 `The House Jan. 6 committee painted a picture of how President Donald J. Trump schemed to pressure the Justice Department into overturning the 2020 election.`\
 https://nytimes.com/video/us/politics/100000008414289/jan-6-hearing-trump-doj.html?searchResultPosition=1
 
