@@ -3,7 +3,7 @@
 https://nytimes.com/2022/06/24/opinion/roe-v-wade-dobbs-decision.html?searchResultPosition=1
 
 **Turns Out These Anti-Roe Justices Don’t Believe in Precedent After All**\
-`Before they were confirmed, this is what these five justices had to say about Roe v Wade.`\
+`Before they were confirmed, this is what these five justices had to say about Roe v. Wade.`\
 https://nytimes.com/video/opinion/100000008416103/roe-overturned-justices-confirmation-hearings.html?searchResultPosition=2
 
 **Kavanaugh Gave Private Assurances. Collins Says He ‘Misled’ Her.**\
