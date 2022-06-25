@@ -2,7 +2,7 @@
 `The lawsuit argues that the state’s ban violates several provisions in the State Constitution, including the right to determine family composition and the right to equality between the sexes.`\
 https://nytimes.com/2022/06/25/us/planned-parenthood-utah-abortion-ban.html?searchResultPosition=1
 
-**Mr. Happy Face, a Chihuahua Mix With a Mohawk, Named World’s Ugliest Dog**\
+**Mr. Happy Face, a Chihuahua Mix With a Mohawk, Crowned World’s Ugliest Dog**\
 `He was the winner of a competition that promotes the adoption of dogs, even ones with perpetually protruding tongues and missing fur.`\
 https://nytimes.com/2022/06/25/us/worlds-ugliest-dog-mr-happy-face.html?searchResultPosition=2
 
