@@ -22,7 +22,7 @@ https://nytimes.com/2022/06/24/us/politics/guns-bill-senate-negotiations.html?se
 `The decision overruling Roe v. Wade exposed internal divisions among conservative justices about reconsidering other rights.`\
 https://nytimes.com/2022/06/24/us/supreme-court-abortion-contraception-same-sex-marriage.html?searchResultPosition=6
 
-**'Abortion Is Just the Beginning': Six Experts on the Decision Overturning Roe**\
+**‘Abortion Is Just the Beginning’: Six Experts on the Decision Overturning Roe**\
 `These passages are key to understanding the Dobbs decision.`\
 https://nytimes.com/interactive/2022/06/24/opinion/politics/dobbs-decision-perspectives.html?searchResultPosition=7
 
