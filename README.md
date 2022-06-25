@@ -35,6 +35,6 @@ https://nytimes.com/2022/06/25/sports/tennis/serena-williams-wimbledon.html?sear
 https://nytimes.com/2022/06/25/business/michel-david-weill-dead.html?searchResultPosition=9
 
 **Gareth Bale Will Join Los Angeles F.C. in Major League Soccer**\
-`Bale, who helped Wales qualify for the World Cup, will prepare for the tournament in the United States. An announcement is expected Sunday.`\
+`Bale, who helped Wales qualify for the World Cup, will prepare for the tournament in the United States.`\
 https://nytimes.com/2022/06/25/sports/soccer/gareth-bale-lafc-mls.html?searchResultPosition=10
 
