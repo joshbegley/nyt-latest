@@ -22,7 +22,7 @@ https://nytimes.com/2022/06/25/sports/soccer/gareth-bale-lafc-mls.html?searchRes
 `The Biden administration had instructed ICE agents to focus on immigrants who were considered a threat. But a judge’s order means millions more could now be targeted for deportation.`\
 https://nytimes.com/2022/06/25/us/immigration-enforcement-priorities-court.html?searchResultPosition=6
 
-**At Least 18 Migrants Die in Effort to Enter Spanish Enclave in Africa**\
+**More than 20 Migrants Die in Effort to Enter Spanish Enclave in Africa**\
 `The deaths occurred during an attempted mass crossing by 2,000 people over border fences into Melilla. Several human rights groups have called for an investigation.`\
 https://nytimes.com/2022/06/25/world/europe/melilla-spain-africa-migrants.html?searchResultPosition=7
 
