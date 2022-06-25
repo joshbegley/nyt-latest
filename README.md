@@ -19,7 +19,7 @@ https://nytimes.com/2022/06/24/opinion/roe-v-wade-dobbs-decision.html?searchResu
 https://nytimes.com/video/opinion/100000008416103/roe-overturned-justices-confirmation-hearings.html?searchResultPosition=5
 
 **Kavanaugh Gave Private Assurances. Collins Says He ‘Misled’ Her.**\
-`“Roe is 45 years old, it has been reaffirmed many times, lots of people care about it a great deal,” the justice told the senator, according to notes from a private meeting before his confirmation.`\
+`“I am a don’t-rock-the-boat kind of judge,” the justice told the senator in a discussion on Roe, according to notes from a meeting before his confirmation.`\
 https://nytimes.com/2022/06/24/us/roe-kavanaugh-collins-notes.html?searchResultPosition=6
 
 **Leaving Wish Lists at the Door, Senators Found Consensus on Guns**\
