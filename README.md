@@ -14,13 +14,13 @@ https://nytimes.com/2022/06/25/us/conservative-christians-roe-wade-abortion.html
 `With the economy in ruins and aid in short supply, survivors of the earthquake in this remote stretch of eastern Afghanistan wonder what their next move could be.`\
 https://nytimes.com/2022/06/25/world/asia/afghanistan-earthquake-recovery-aid.html?searchResultPosition=4
 
+**The Supreme Court Puts Gun Rights Above the Human Life**\
+`The same week, a bipartisan bill on guns was signed by President Biden.`\
+https://nytimes.com/2022/06/25/opinion/supreme-court-gun-control-bill.html?searchResultPosition=5
+
 **Feminism’s Journey Over the Decades**\
 `Readers react to articles about a feminist backlash and the 50th anniversary of Ms. magazine.`\
-https://nytimes.com/2022/06/25/opinion/letters/feminism-ms-magazine.html?searchResultPosition=5
-
-**The Supreme Court Puts Gun Rights Above the Human Life**\
-`A bipartisan bill on guns the president should sign.`\
-https://nytimes.com/2022/06/25/opinion/supreme-court-gun-control-bill.html?searchResultPosition=6
+https://nytimes.com/2022/06/25/opinion/letters/feminism-ms-magazine.html?searchResultPosition=6
 
 **The Wait for Little Kid Vaccines Is Over. Parental Exhaustion Isn’t.**\
 `The payoff feels somewhat anticlimactic.`\
