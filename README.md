@@ -1,4 +1,4 @@
-**How Did Roe End? In a Long Red Wave, Then All of a Sudden.**\
+**How Did Roe Fall? Before a Decisive Ruling, a Powerful Red Wave.**\
 `The downfall of the constitutional right to abortion began 12 years ago, after Republicans swept state house elections and passed hundreds of restrictions.`\
 https://nytimes.com/interactive/2022/06/25/us/how-roe-ended.html?searchResultPosition=1
 
