@@ -2,7 +2,7 @@
 `Adam Aaronson drops in with a slick Saturday puzzle.`\
 https://nytimes.com/2022/06/24/crosswords/daily-puzzle-2022-06-25.html?searchResultPosition=1
 
-**2 Killed and at Least 14 Wounded in Shooting in Norway’s Capital**\
+**2 Killed and at Least 19 Wounded in Shooting in Norway’s Capital**\
 `The shooting happened near a popular gay club in downtown Oslo, on the weekend when the city is set to host its Pride parade.`\
 https://nytimes.com/2022/06/24/world/europe/norway-nightclub-shooting.html?searchResultPosition=2
 
