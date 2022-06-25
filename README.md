@@ -19,7 +19,7 @@ https://nytimes.com/2022/06/25/us/conservative-christians-roe-wade-abortion.html
 https://nytimes.com/2022/06/25/world/asia/afghanistan-earthquake-recovery-aid.html?searchResultPosition=5
 
 **The Supreme Court Puts Gun Rights Above the Human Life**\
-`The same week, a bipartisan bill on guns was signed by President Biden.`\
+`The same week, President Biden signed into law a bipartisan bill on gun.`\
 https://nytimes.com/2022/06/25/opinion/supreme-court-gun-control-bill.html?searchResultPosition=6
 
 **Feminism’s Journey Over the Decades**\
