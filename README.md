@@ -1,40 +1,40 @@
+**Feminism’s Journey Over the Decades**\
+`Readers react to articles about a feminist backlash and the 50th anniversary of Ms. magazine.`\
+https://nytimes.com/2022/06/25/opinion/letters/feminism-ms-magazine.html?searchResultPosition=1
+
+**The Supreme Court Puts Gun Rights Above the Human Life**\
+`A bipartisan bill on guns the president should sign.`\
+https://nytimes.com/2022/06/25/opinion/supreme-court-gun-control-bill.html?searchResultPosition=2
+
+**The Wait for Little Kid Vaccines Is Over. Parental Exhaustion Isn’t.**\
+`The payoff feels somewhat anticlimactic.`\
+https://nytimes.com/2022/06/25/opinion/covid-vaccines-children.html?searchResultPosition=3
+
 **Russia Unleashes a Missile Barrage, While Inching Ahead in Eastern Ukraine**\
 `Some of the missiles were launched from Belarus, whose leader is meeting Saturday with the Russian president.`\
-https://nytimes.com/2022/06/25/world/europe/russia-missiles-ukraine-putin-lukashenko.html?searchResultPosition=1
+https://nytimes.com/2022/06/25/world/europe/russia-missiles-ukraine-putin-lukashenko.html?searchResultPosition=4
 
 **‘Wild Swimming’ in Restricted Beijing Offers Refreshing Break From Rules**\
 `China’s congested and highly regulated capital is not known for either its natural refuges or its rule-bending. But swimming in the city’s lakes and waterways is a cherished, if contested, tradition.`\
-https://nytimes.com/2022/06/25/world/asia/beijing-china-swimming-holes.html?searchResultPosition=2
+https://nytimes.com/2022/06/25/world/asia/beijing-china-swimming-holes.html?searchResultPosition=5
 
 **Mayor of Embattled Southern Ukrainian City Urges All Residents to Leave**\
 `The request by the Mykolaiv official was somewhat surprising, given that the city’s combative, never-say-die spirit has become a symbol of Ukrainian resistance.`\
-https://nytimes.com/2022/06/25/world/europe/ukraine-mykolaiv-mayor.html?searchResultPosition=3
+https://nytimes.com/2022/06/25/world/europe/ukraine-mykolaiv-mayor.html?searchResultPosition=6
 
 **The Burger That Instagram Built**\
 `At Monty’s Good Burger, a chain in Los Angeles, there’s no meat but lots of selfies.`\
-https://nytimes.com/2022/06/25/style/montys-good-burger.html?searchResultPosition=4
+https://nytimes.com/2022/06/25/style/montys-good-burger.html?searchResultPosition=7
 
 **Biden Signs Bipartisan Gun Bill, Ending Years of Stalemate**\
 `The bill is the most significant gun measure to clear Congress in nearly three decades, though it falls short of more restrictive gun control proposals that Democrats favor.`\
-https://nytimes.com/2022/06/25/us/politics/gun-control-bill-biden.html?searchResultPosition=5
+https://nytimes.com/2022/06/25/us/politics/gun-control-bill-biden.html?searchResultPosition=8
 
 **Diary of a Spelling Bee Fanatic**\
 `Entries for the week of June 20, 2022.`\
-https://nytimes.com/2022/06/25/crosswords/spelling-bee-diary-0620.html?searchResultPosition=6
+https://nytimes.com/2022/06/25/crosswords/spelling-bee-diary-0620.html?searchResultPosition=9
 
 **How to Discipline a Rogue Supreme Court**\
 `Make use of the constitutional system.`\
-https://nytimes.com/2022/06/25/opinion/supreme-court-constitution.html?searchResultPosition=7
-
-**For a Kyiv techno collective, ‘now everything is about politics.’**\
-`“This war has destroyed the statement that art could be outside politics,” the group’s booking and communications manager said.`\
-https://nytimes.com/2022/06/25/world/europe/for-a-kyiv-techno-collective-now-everything-is-about-politics.html?searchResultPosition=8
-
-**Businesses Are Bracing for the Political and Social Fight Post-Roe**\
-`Reeling from competing demands from stakeholders — including activists, clients, consumers, shareholders and elected officials — businesses are increasingly caught in the middle of the country’s bruising culture wars.`\
-https://nytimes.com/2022/06/25/business/dealbook/businesses-brace-for-post-roe.html?searchResultPosition=9
-
-**The End of Roe**\
-`The Supreme Court’s abortion ruling will transform American life and politics.`\
-https://nytimes.com/2022/06/25/briefing/roe-v-wade-struck-down-explained.html?searchResultPosition=10
+https://nytimes.com/2022/06/25/opinion/supreme-court-constitution.html?searchResultPosition=10
 
