@@ -19,7 +19,7 @@ https://nytimes.com/2022/06/25/style/monkeypox-nyc-pride.html?searchResultPositi
 https://nytimes.com/2022/06/25/sports/title-ix-anniversary-roe-wade.html?searchResultPosition=5
 
 **Coal Dust and Methane Below, Russian Bombs Above**\
-`By Finbarr O’Reilly`\
+`The war has added a new threat to the dangerous lives of miners in eastern Ukraine.`\
 https://nytimes.com/2022/06/25/world/europe/ukraine-coal-mining.html?searchResultPosition=6
 
 **At Pikes Peak Hill Climb, a Drive to Win and to Put the Race on the Map**\
