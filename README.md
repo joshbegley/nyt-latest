@@ -4,7 +4,7 @@ https://nytimes.com/2022/06/26/us/politics/tina-peters-election-conspiracy-theor
 
 **In Gee Chun Wins Women’s P.G.A. Championship**\
 `Despite shooting three over par in the third and fourth rounds, Chun handled a charge from Lexi Thompson to win her third career major tournament.`\
-https://nytimes.com/2022/06/26/sports/golf/in-gee-chun-wins-womens-pga-championship.html?searchResultPosition=2
+https://nytimes.com/2022/06/26/sports/golf/in-gee-chun-lexi-thompson-pga-championship.html?searchResultPosition=2
 
 **N.Y.C. Pride Marchers ‘Nervous’ After Court’s Abortion Ruling**\
 `Revelers at the annual New York City Pride March expressed concern about the future of gay rights after the overturning of Roe v. Wade.`\
