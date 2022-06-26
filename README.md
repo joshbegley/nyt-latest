@@ -1,40 +1,40 @@
-**The U.S. and Britain will ban imports of gold from Russia.**\
-`President Biden announced the decision before the start of a G7 summit meeting in Germany.`\
-https://nytimes.com/2022/06/26/world/europe/the-us-and-britain-will-ban-imports-of-gold-from-russia.html?searchResultPosition=1
+**Strutting Their Looks**\
+`The best outfits from LadyLand, the Ailey Spirit Gala and the Songwriters Hall of Fame.`\
+https://nytimes.com/2022/06/26/style/strutting-their-looks.html?searchResultPosition=1
 
-**MAGA Voters Send a $50 Million G.O.P. Plan Off the Rails in Illinois**\
-`Republican leaders think a moderate nominee for governor could beat Gov. J.B. Pritzker. But the party’s base seems to prefer a far-right state senator — and he is getting help from Mr. Pritzker.`\
-https://nytimes.com/2022/06/26/us/politics/illinois-governor-bailey-irvin-pritzker.html?searchResultPosition=2
+**Tick Hunting: The Prey Are Tiny, and the Bait Is Human**\
+`Climate change and other factors have brought several new species of ticks, and frightening new diseases, to New York in recent years.`\
+https://nytimes.com/2022/06/26/nyregion/tick-hunting-the-prey-are-tiny-and-the-bait-is-human.html?searchResultPosition=2
 
-**Abortion Pills Take the Spotlight as States Impose Abortion Bans**\
-`Demand for medication abortion is surging, setting the stage for new legal battles.`\
-https://nytimes.com/2022/06/26/health/abortion-medication-pills.html?searchResultPosition=3
+**France’s Far-Right Surges into Parliament, and Further into the Mainstream**\
+`Marine Le Pen’s National Rally now has a place of power in the political establishment and a chance to prove itself in the eyes of voters.`\
+https://nytimes.com/2022/06/26/world/europe/frances-far-right-surges-into-parliament-and-further-into-the-mainstream.html?searchResultPosition=3
 
-**‘The First Time I Met My Neighbor, He Was Sitting Outside With a Friend’**\
-`Learning little things about someone, a tourist’s sleepy retreat and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2022/06/26/nyregion/metropolitan-diary.html?searchResultPosition=4
+**Schools Are Spending Billions on High-Tech Defense for Mass Shootings**\
+`The market for weapon detectors and crisis alert badges in schools is booming. But there are questions about whether the new technology is effective.`\
+https://nytimes.com/2022/06/26/business/school-safety-technology.html?searchResultPosition=4
 
-**A One-Woman Town, Documented for Over 17 Years**\
-`In 2005, the journalist Alyssa Schukar began photographing the life of Elsie Eiler, the sole resident of Monowi, Neb.`\
-https://nytimes.com/2022/06/26/insider/one-woman-town-monowi-nebraska.html?searchResultPosition=5
+**Homes That Sold for Around $750,000**\
+`Recent residential sales in New York City and the region.`\
+https://nytimes.com/2022/06/26/realestate/homes-sold-750000.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/06/26/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**Blitz Bazawule Is Building Bridges Between Worlds**\
+`The artist and filmmaker, who is directing a new version of “The Color Purple,” publishes his first novel, “The Scent of Burnt Flowers.”`\
+https://nytimes.com/2022/06/26/arts/blitz-bazawule-book.html?searchResultPosition=6
 
-**NASA’s Return to the Moon Starts With Launching a 55-Pound Cube**\
-`NASA has grandiose plans for sending astronauts back to the moon. Those start with a microwave-size private spacecraft scheduled to launch on Monday.`\
-https://nytimes.com/2022/06/26/science/nasa-capstone-moon-launch.html?searchResultPosition=7
+**In This Novel of Female Friendship, Birds of a Feather Drift Apart**\
+`The stylish, reckless heroines of Carlene Bauer’s “Girls They Write Songs About” bond over their similarities, until one decides to settle down.`\
+https://nytimes.com/2022/06/26/books/review-girls-they-write-songs-about-carlene-bauer.html?searchResultPosition=7
 
-**Corrections: June 26, 2022**\
-`Corrections that appeared in print on Sunday, June 26, 2022.`\
-https://nytimes.com/2022/06/26/pageoneplus/corrections-june-26-2022.html?searchResultPosition=8
+**Necromancers, Killers and Presidents, Summoned From the Pages of History**\
+`Did Abraham Lincoln, like John Wilkes Booth, ever find solace in spiritualism?`\
+https://nytimes.com/2022/06/26/books/review/in-the-houses-of-their-dead-terry-alford.html?searchResultPosition=8
 
-**The Ultimate Tennis Disrupter Faces the Wimbledon Crucible**\
-`Emma Raducanu came out of nowhere to win the U.S. Open at 18 years old. Things have been a little rocky ever since.`\
-https://nytimes.com/2022/06/26/sports/tennis/raducanu-wimbledon-us-open.html?searchResultPosition=9
+**Happy Marriages, Petty Temptations and Angel Sex**\
+`Our romance novel columnist, Olivia Waite, has some summer reading recommendations.`\
+https://nytimes.com/2022/06/26/books/review/new-romance-novels.html?searchResultPosition=9
 
-**‘An Invisible Cage’: How China Is Policing the Future**\
-`Vast surveillance data allows the state to target people whose behavior or characteristics are deemed suspicious by an algorithm, even if they’ve done nothing wrong.`\
-https://nytimes.com/2022/06/25/technology/china-surveillance-police.html?searchResultPosition=10
+**What Dobbs Means for America and What This Court Means for America**\
+`The legal journalist Dahlia Lithwick breaks down the Dobbs decision and considers the “raw power” of the Supreme Court’s conservative supermajority.`\
+https://nytimes.com/2022/06/26/opinion/ezra-klein-podcast-dahlia-lithwick.html?searchResultPosition=10
 
