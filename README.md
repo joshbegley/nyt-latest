@@ -18,7 +18,7 @@ https://nytimes.com/2022/06/26/sports/baseball/phillies-relief-room.html?searchR
 `A prized mainstay of Connecticut’s sporting calendar for 70 years, the Travelers has become more than just a golf tournament.`\
 https://nytimes.com/2022/06/26/sports/golf/liv-travelers-saudi.html?searchResultPosition=5
 
-**No Justice Alito, Reproductive Justice Is in the Constitution**\
+**No, Justice Alito, Reproductive Justice Is in the Constitution**\
 `The repeal of Roe v. Wade brings a return of sexual servitude for women.`\
 https://nytimes.com/2022/06/26/opinion/justice-alito-reproductive-justice-constitution-abortion.html?searchResultPosition=6
 
