@@ -22,7 +22,7 @@ https://nytimes.com/2022/06/26/podcasts/the-daily/the-sunday-read-how-houston-mo
 `Vacationing 101 for those who have forgotten how. `\
 https://nytimes.com/2022/06/26/opinion/vacation-pandemic-travel.html?searchResultPosition=6
 
-**At Least 17 Found Dead in South African Tavern, Officials Say**\
+**At Least 20 Found Dead in South African Tavern, Officials Say**\
 `Initial reports suggested that there had been a stampede inside the club, in the coastal city of East London.`\
 https://nytimes.com/2022/06/26/world/africa/south-africa-stampede.html?searchResultPosition=7
 
