@@ -15,8 +15,8 @@ https://nytimes.com/2022/06/27/crosswords/spelling-bee-forum.html?searchResultPo
 https://nytimes.com/2022/06/27/arts/television/whats-on-tv-this-week-endangered-man-who-fell-to-earth.html?searchResultPosition=4
 
 **Russia appears closer to defaulting on its international debt as grace period ends.**\
-`By Eshe Nelson and Andrés R. Martínez`\
-https://nytimes.com/2022/06/26/world/europe/russia-appears-closer-to-defaulting-on-its-international-debt-as-grace-period-ends.html?searchResultPosition=5
+`This default would be unusual because it would be a result of economic sanctions blocking transactions, not because the government has run out of money.`\
+https://nytimes.com/2022/06/26/world/europe/default-bond.html?searchResultPosition=5
 
 **No Corrections: June 27, 2022**\
 `No corrections appeared in print on Monday, June 27, 2022.`\
