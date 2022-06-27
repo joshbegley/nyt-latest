@@ -24,7 +24,7 @@ https://nytimes.com/2022/06/27/business/media/alex-wagner-rachel-maddow-msnbc.ht
 
 **These Companies Will Cover Travel Expenses for Employee Abortions**\
 `Dozens of companies have committed to helping their employees get access to reproductive care.`\
-https://nytimes.com/2022/06/27/business/abortion-companies-travel-expenses.html?searchResultPosition=7
+https://nytimes.com/article/abortion-companies-travel-expenses.html?searchResultPosition=7
 
 **William Herschel Is Famous for Science. What About His Music?**\
 `The accomplished astronomer was, one historian said, “the Einstein of his time.” But before he surveyed the sky, he was a prolific musician.`\
