@@ -1,4 +1,4 @@
-**Alligator Fatally Attacks Person at the Edge of a South Carolina Pond**\
+**Alligator Fatally Attacks Man at the Edge of a South Carolina Pond**\
 `Such attacks are rare in the United States, typically occurring about once a year, but the latest one on Friday was the second in less than a month.`\
 https://nytimes.com/2022/06/26/us/myrtle-beach-fatal-alligator-attack.html?searchResultPosition=1
 
