@@ -30,7 +30,7 @@ https://nytimes.com/2022/06/27/us/georgia-six-week-abortion-ban.html?searchResul
 `The dance-oriented surprise release debuts with the equivalent of 204,000 sales — the streaming star’s lowest opening-week tally for a studio album.`\
 https://nytimes.com/2022/06/27/arts/music/drake-honestly-nevermind-billboard-chart.html?searchResultPosition=8
 
-**A Russian court says Brittney Griner’s trial will begin on Friday.**\
+**Russian Court Says Brittney Griner’s Trial Will Begin on Friday**\
 `Ms. Griner, a seven-time W.N.B.A. all-star, has been in custody since February.`\
 https://nytimes.com/2022/06/27/world/europe/brittney-griner-russia-trial-date.html?searchResultPosition=9
 
