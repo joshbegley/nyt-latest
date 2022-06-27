@@ -1,40 +1,40 @@
-**Europe and the U.S. court India to join efforts to punish Russia.**\
-`By Suhasini Raj and Emily Schmall`\
-https://nytimes.com/2022/06/27/world/europe/europe-and-the-us-court-india-to-join-efforts-to-punish-russia.html?searchResultPosition=1
+**The Wild History of the Real ‘Only Murders’ Building**\
+`Viewers of the Hulu series know it as the Arconia, but the Upper West Side building has a name — and a dramatic story — of its own.`\
+https://nytimes.com/2022/06/27/realestate/only-murders-in-the-building-belnord-arconia.html?searchResultPosition=1
 
-**Abortion Ruling Casts Shadow on Pride Festivities**\
-`The annual Pride parade returned to the streets of Manhattan, but this year the mood was one of protest.`\
-https://nytimes.com/2022/06/27/nyregion/abortion-casts-shadow-on-pride-festivities.html?searchResultPosition=2
+**The Storied History of the Belnord**\
+`Viewers of “Only Murders in the Building” know it as the Arconia, but this Upper West Side building has a name — and a dramatic story — of its own.`\
+https://nytimes.com/slideshow/2022/06/27/realestate/the-storied-history-of-the-belnord.html?searchResultPosition=2
 
-**Boeing 737 Max Flies Again, but Crash Victims’ Kin Say Risks Remain**\
-`Families are working with industry insiders to press for new safety precautions and a review of production practices for the aircraft.`\
-https://nytimes.com/2022/06/27/business/boeing-max-families-whistle-blowers.html?searchResultPosition=3
+**Can a Shirt Made in India Beat Savile Row?**\
+`100Hands, a Punjab tailor, is betting the answer is yes.`\
+https://nytimes.com/2022/06/27/style/can-a-shirt-made-in-india-beat-savile-row.html?searchResultPosition=3
 
-**The Former Electrical Engineer Leading Disney’s Streaming Strategy**\
-`Kareem Daniel has become one of the entertainment industry’s most powerful executives, exposing him to Hollywood’s slings and arrows.`\
-https://nytimes.com/2022/06/27/business/media/kareem-daniel-disney.html?searchResultPosition=4
+**Icons of Italian Automotive Style Struggle to Go Electric**\
+`Ferrari and Lamborghini are trying to design battery-powered cars that inspire the same devotion as their costly internal combustion models.`\
+https://nytimes.com/2022/06/27/business/ferrari-lamborghini-electric.html?searchResultPosition=4
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/06/27/crosswords/spelling-bee-forum.html?searchResultPosition=5
+**Documenting India’s Distinctive Birdhouses**\
+`For seven years, a photographer based in Delhi has collected images of ornamental structures known as chabutras. Here are some of his favorites.`\
+https://nytimes.com/2022/06/27/travel/birdhouses-kutch-district-india.html?searchResultPosition=5
 
-**What’s on TV This Week: ‘Endangered’ and ‘The Man Who Fell to Earth’**\
-`A documentary about the dangers that journalists face airs on HBO. And the Showtime series starring Chiwetel Ejiofor wraps up its first season.`\
-https://nytimes.com/2022/06/27/arts/television/whats-on-tv-this-week-endangered-man-who-fell-to-earth.html?searchResultPosition=6
+**Violent Threats to Election Workers Are Common. Prosecutions are Not.**\
+`The Jan. 6 hearings laid bare how threats have terrified some election officials. But a federal pledge to address them has so far come up nearly empty.`\
+https://nytimes.com/2022/06/27/us/election-workers-safety.html?searchResultPosition=6
 
-**Russia appears to miss its foreign debt payments deadline, falling into default.**\
-`This default would be unusual because it would be a result of economic sanctions blocking transactions, not because the government has run out of money.`\
-https://nytimes.com/2022/06/26/world/europe/default-bond.html?searchResultPosition=7
+**Monkeypox Could Exploit a Big Weakness in Sexual Health Care**\
+`Without a strong national strategy and budget focused on sexual health, monkeypox could become another entrenched sexually transmitted infection.`\
+https://nytimes.com/2022/06/27/opinion/health/monkeypox-sexual-health.html?searchResultPosition=7
 
-**No Corrections: June 27, 2022**\
-`No corrections appeared in print on Monday, June 27, 2022.`\
-https://nytimes.com/2022/06/27/pageoneplus/no-corrections-june-27-2022.html?searchResultPosition=8
+**Can You Blame Poor Countries Like Mine for Turning to China?**\
+`If the U.S. ignores the Pacific, China will step right in.`\
+https://nytimes.com/2022/06/27/opinion/china-us-solomon.html?searchResultPosition=8
 
-**Your Monday Briefing**\
-`The end of Roe v. Wade.`\
-https://nytimes.com/2022/06/27/briefing/france-far-right-ukraine-russia.html?searchResultPosition=9
+**The Supreme Court’s Fighting Words**\
+`Dobbs and Bruen revealed the sweeping terribleness of the current court’s reasoning.`\
+https://nytimes.com/2022/06/27/opinion/dobbs-guns-supreme-court.html?searchResultPosition=9
 
-**Quotation of the Day: Cancellations of Procedures Alarm Patients**\
-`Quotation of the Day for Monday, June 27, 2022.`\
-https://nytimes.com/2022/06/27/todayspaper/quotation-of-the-day-cancellations-of-procedures-alarm-patients.html?searchResultPosition=10
+**How Rosé Became a Lifestyle**\
+`Joey Wölffer of Wölffer Estate has turned pink wine into a symbol of the Hamptons life that she epitomizes.`\
+https://nytimes.com/2022/06/27/style/how-rose-became-a-lifestyle.html?searchResultPosition=10
 
