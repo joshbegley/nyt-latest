@@ -34,7 +34,7 @@ https://nytimes.com/2022/06/27/sports/tennis/serena-williams-hechtman.html?searc
 `Here’s what you need to know at the end of the day.`\
 https://nytimes.com/2022/06/27/briefing/abortion-supreme-court-wimbledon.html?searchResultPosition=9
 
-**Stream These 9 Movies and Shows Before They Leave Netflix in July**\
-`Subscribers in the United States will lose a classic ’90s rom-com among other delightful titles. Watch these while you can.`\
-https://nytimes.com/2022/06/27/movies/netflix-expiring-july.html?searchResultPosition=10
+**Lithuania blames Russia for cyberattacks, citing threats over cargo restrictions.**\
+`Hackers have struck dozens of Lithuanian government and private organizations, according to a Lithuanian official.`\
+https://nytimes.com/2022/06/27/world/europe/lithuania-russia-cyberattacks.html?searchResultPosition=10
 
