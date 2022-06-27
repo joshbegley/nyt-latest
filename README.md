@@ -34,7 +34,7 @@ https://nytimes.com/video/world/americas/100000008417845/colombia-bullfight-stan
 `An Amtrak passenger train crashed into a sedan at a crossing without a train signal or guardrails in Brentwood, Calif., killing three people and critically injuring two others.`\
 https://nytimes.com/video/us/100000008417839/amtrak-crash-brentwood.html?searchResultPosition=9
 
-**The Impatient, Ambitious Five**\
+**How the Supreme Court The Impatient, Ambitious Five**\
 `After abortion, how is the Supreme Court likely to change American society next?`\
 https://nytimes.com/2022/06/27/briefing/supreme-court-abortion.html?searchResultPosition=10
 
