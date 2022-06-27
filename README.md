@@ -1,4 +1,4 @@
-**Abortion Casts Shadow on Pride Festivities**\
+**Abortion Ruling Casts Shadow on Pride Festivities**\
 `The annual Pride parade returned to the streets of Manhattan, but this year the mood was one of protest.`\
 https://nytimes.com/2022/06/27/nyregion/abortion-casts-shadow-on-pride-festivities.html?searchResultPosition=1
 
