@@ -14,17 +14,17 @@ https://nytimes.com/2022/06/27/realestate/only-murders-in-the-building-belnord-a
 `Viewers of “Only Murders in the Building” know it as the Arconia, but this Upper West Side building has a name — and a dramatic story — of its own.`\
 https://nytimes.com/slideshow/2022/06/27/realestate/the-storied-history-of-the-belnord.html?searchResultPosition=4
 
+**Documenting India’s Distinctive Birdhouses**\
+`For seven years, a photographer based in Delhi has collected images of ornamental structures known as chabutras. Here are some of his favorites.`\
+https://nytimes.com/2022/06/27/travel/birdhouses-kutch-district-india.html?searchResultPosition=5
+
 **Can a Shirt Made in India Beat Savile Row?**\
 `100Hands, a Punjab tailor, is betting the answer is yes.`\
-https://nytimes.com/2022/06/27/style/can-a-shirt-made-in-india-beat-savile-row.html?searchResultPosition=5
+https://nytimes.com/2022/06/27/style/can-a-shirt-made-in-india-beat-savile-row.html?searchResultPosition=6
 
 **Icons of Italian Automotive Style Struggle to Go Electric**\
 `Ferrari and Lamborghini are trying to design battery-powered cars that inspire the same devotion as their costly internal combustion models.`\
-https://nytimes.com/2022/06/27/business/ferrari-lamborghini-electric.html?searchResultPosition=6
-
-**Documenting India’s Distinctive Birdhouses**\
-`For seven years, a photographer based in Delhi has collected images of ornamental structures known as chabutras. Here are some of his favorites.`\
-https://nytimes.com/2022/06/27/travel/birdhouses-kutch-district-india.html?searchResultPosition=7
+https://nytimes.com/2022/06/27/business/ferrari-lamborghini-electric.html?searchResultPosition=7
 
 **Violent Threats to Election Workers Are Common. Prosecutions are Not.**\
 `The Jan. 6 hearings laid bare how threats have terrified some election officials. But a federal pledge to address them has so far come up nearly empty.`\
