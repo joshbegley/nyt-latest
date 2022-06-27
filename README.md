@@ -1,4 +1,4 @@
-**Credit Suisse is fined for helping a Bulgarian drug ring launder money.**\
+**Credit Suisse is fined for helping a Bulgarian drug ring launder money, a court said.**\
 `The bank, which has been struggling with losses and management turmoil, said it would appeal the decision by a Swiss court.`\
 https://nytimes.com/2022/06/27/business/credit-suisse-fine-bulgarian-drug-ring.html?searchResultPosition=1
 
