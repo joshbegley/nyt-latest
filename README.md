@@ -31,7 +31,7 @@ https://nytimes.com/interactive/2022/06/27/opinion/abortion-experiences-roe.html
 https://nytimes.com/2022/06/27/dining/what-to-cook-right-now.html?searchResultPosition=8
 
 **A missile strike hit a shopping center with 1,000 people inside, Zelensky says.**\
-`Videos of the site, near the railway station in the central city of Kremenchuk, showed a fire raging as emergency workers worked frantically to try to extinguish the flames.`\
+`Videos of the site, near the railway station in the city of Kremenchuk, in central Ukraine, showed a fire raging as emergency workers worked frantically to try to extinguish the flames.`\
 https://nytimes.com/2022/06/27/world/europe/kremenchuk-shopping-center-ukraine.html?searchResultPosition=9
 
 **A Grand Old Art Fair Returns, to a World That Has Changed**\
