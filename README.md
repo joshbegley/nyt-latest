@@ -3,7 +3,7 @@
 https://nytimes.com/2022/06/27/briefing/g7-leaders-meeting-russia-debt.html?searchResultPosition=1
 
 **Amtrak Train Derails in Missouri After Hitting Truck**\
-`Amtrak said that there were “early reports of injuries” after one of its trains carrying 243 passengers collided with a truck in Missouri.`\
+`An Amtrak train carrying 243 passengers crashed into a truck near Mendon, Mo., about 100 miles northeast of Kansas City, Mo.`\
 https://nytimes.com/video/us/100000008418944/amtrak-train-derailment.html?searchResultPosition=2
 
 **Alameda County, Calif., home to Oakland, drops its indoor mask mandate after three weeks.**\
