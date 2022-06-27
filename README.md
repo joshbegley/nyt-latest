@@ -14,7 +14,7 @@ https://nytimes.com/2022/06/27/crosswords/spelling-bee-forum.html?searchResultPo
 `A documentary about the dangers that journalists face airs on HBO. And the Showtime series starring Chiwetel Ejiofor wraps up its first season.`\
 https://nytimes.com/2022/06/27/arts/television/whats-on-tv-this-week-endangered-man-who-fell-to-earth.html?searchResultPosition=4
 
-**Russia appears closer to defaulting on its international debt as grace period ends.**\
+**Russia appears to miss its foreign debt payments deadline, falling into default.**\
 `This default would be unusual because it would be a result of economic sanctions blocking transactions, not because the government has run out of money.`\
 https://nytimes.com/2022/06/26/world/europe/default-bond.html?searchResultPosition=5
 
