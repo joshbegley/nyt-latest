@@ -1,6 +1,6 @@
 **Women on Why They’re Stocking Up on the Morning-After Pill**\
 `Sales of the emergency contraceptive surged after the Supreme Court’s decision to overturn Roe v. Wade.`\
-https://nytimes.com/2022/06/27/style/women-on-why-theyre-stocking-up-on-the-morning-after-pill.html?searchResultPosition=1
+https://nytimes.com/2022/06/27/style/plan-b-stockpile-roe-abortion.html?searchResultPosition=1
 
 **Elon Musk Fuels Record C.E.O. Paydays**\
 `A risky compensation plan at Tesla paid off and laid the groundwork that has pushed other executives’ compensation sky high.`\
