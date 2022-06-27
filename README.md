@@ -34,7 +34,7 @@ https://nytimes.com/video/nyregion/100000008417422/nyc-pride-abortion-supreme-co
 `The Jackson Women’s Health Organization was at the center of the case that overturned Roe v. Wade. Already, supporters are planning new ways to help women in one of the poorest spots in the nation get access to abortions.`\
 https://nytimes.com/2022/06/26/us/mississippi-abortion-clinic.html?searchResultPosition=9
 
-**Rudy Giuliani Struck While Campaigning on Staten Island**\
+**Rudy Giuliani Smacked on Back While Campaigning on Staten Island**\
 `Mr. Giuliani, who was campaigning for his son, Andrew, a Republican candidate for governor, said a man who hit him in the back said, “You’re going to kill women.”`\
 https://nytimes.com/2022/06/26/nyregion/rudy-giuliani-attacked.html?searchResultPosition=10
 
