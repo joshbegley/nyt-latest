@@ -30,11 +30,11 @@ https://nytimes.com/2022/06/28/sports/tennis/wimbledon-covid-matteo-berrettini.h
 `The governor’s race in Oregon shows how Democrats could be in trouble in November.`\
 https://nytimes.com/2022/06/28/briefing/joe-biden-democrats.html?searchResultPosition=8
 
+**Gas Piped Into Homes Contains Benzene and Other Risky Chemicals, Study Finds**\
+`While the concentrations are low, the chemicals are potentially dangerous and some are linked to cancer risk, the researchers found.`\
+https://nytimes.com/2022/06/28/climate/natural-gas-home-toxic-chemicals.html?searchResultPosition=9
+
 **The U.S. Abortion Map**\
 `What access to the procedure now looks like across America.`\
-https://nytimes.com/2022/06/28/podcasts/the-daily/abortion-access-roe-v-wade.html?searchResultPosition=9
-
-**The Eliud Kipchoge Ripple Effect: Sub-7 and Sub-8-Hour Triathlons**\
-`Kipchoge’s sub-two-hour marathon in 2019 inspired efforts to reach previously unimaginable times for men and women in the triathlon.`\
-https://nytimes.com/2022/06/28/sports/sub-7-and-sub-8-hour-triathlons.html?searchResultPosition=10
+https://nytimes.com/2022/06/28/podcasts/the-daily/abortion-access-roe-v-wade.html?searchResultPosition=10
 
