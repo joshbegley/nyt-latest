@@ -14,7 +14,7 @@ https://nytimes.com/2022/06/28/us/california-tax-rebates-fuel-costs.html?searchR
 `Gen. Patrick Sanders, alluding to Western Europe’s failure to confront Nazi Germany, said that Britain must not allow Russia’s military action to expand into NATO territory.`\
 https://nytimes.com/2022/06/28/world/europe/this-is-our-1937-moment-the-uks-new-army-chief-says-of-the-war.html?searchResultPosition=4
 
-**At least 16 others from the tractor-trailer were taken to hospitals.**\
+**At least 16 others from the overheated tractor-trailer were taken to hospitals.**\
 `At least 16 others from the tractor-trailer in San Antonio, including some children, were taken to hospitals. Three people were in custody, officials said.`\
 https://nytimes.com/2022/06/28/us/migrants-dead-san-antonio-texas.html?searchResultPosition=5
 
