@@ -4,7 +4,7 @@ https://nytimes.com/2022/06/28/us/politics/biden-covid-aid.html?searchResultPosi
 
 **The Man Helping Drive the Investigation Into Trump’s Push to Keep Power**\
 `Thomas Windom, a little-known federal prosecutor, is overseeing key elements of the Justice Department’s intensifying investigation into efforts to overturn the 2020 election results.`\
-https://nytimes.com/2022/06/28/us/politics/the-man-helping-drive-the-investigation-into-trumps-push-to-keep-power.html?searchResultPosition=2
+https://nytimes.com/2022/06/28/us/politics/trump-investigation-thomas-windom.html?searchResultPosition=2
 
 **‘Everything was Just Exploding,’ Says Survivor of Russian Missile Strike**\
 `A couple recovering at a hospital recalled the moments after they got caught in a Russian missile strike that destroyed a shopping mall in central Ukraine.`\
