@@ -1,6 +1,6 @@
 **Why Did Republicans Become So Extreme?**\
 `It’s all about resentment of what makes America great.`\
-https://nytimes.com/2022/06/27/opinion/why-did-republicans-become-so-extreme.html?searchResultPosition=1
+https://nytimes.com/2022/06/27/opinion/republicans-extreme-abortion.html?searchResultPosition=1
 
 **G.O.P. House Candidate Falsely Suggests Pregnancy From Rape Is Unlikely**\
 `Yesli Vega won a Republican primary last week to take on Representative Abigail Spanberger, a Democrat, in Virginia.`\
