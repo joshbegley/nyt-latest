@@ -1,40 +1,40 @@
+**Margaret Keane, Painter of Sad-Eyed Waifs, Dies at 94**\
+`Her work was immensely popular and virtually ubiquitous. But until the matter was settled in court, her husband fraudulently claimed credit for it.`\
+https://nytimes.com/2022/06/28/arts/margaret-keane-dead.html?searchResultPosition=1
+
+**Civilians Flee as Russian Missile Strikes Near Mall in Kremenchuk**\
+`Video released by the Ukrainian government shows civilians running for their lives as two Russian airstrikes destroyed a shopping mall and part of an industrial facility in central Ukraine.`\
+https://nytimes.com/video/world/europe/100000008421210/russian-missile-kremenchuk-mall.html?searchResultPosition=2
+
+**Serena Williams Exits Wimbledon in the First Round, Again**\
+`Williams, who had not competed in singles on tour since withdrawing from Wimbledon last year with an injury, lost in three sets to Harmony Tan of France.`\
+https://nytimes.com/2022/06/28/sports/tennis/serena-williams-wimbledon.html?searchResultPosition=3
+
 **Jeffrey Epstein’s Confidante Sentenced to 20 Years in Prison**\
 `Lawyers for Ghislaine Maxwell, the former socialite who conspired with Jeffrey Epstein over a decade to sexually exploit and abuse underage girls, have said that she will appeal her conviction.`\
-https://nytimes.com/video/us/100000008421113/ghislaine-maxwell-jeffrey-epstein-sentence.html?searchResultPosition=1
+https://nytimes.com/video/us/100000008421113/ghislaine-maxwell-jeffrey-epstein-sentence.html?searchResultPosition=4
 
 **Turkey Lifts its Veto at NATO**\
 `Erdogan drops his opposition to Finland and Sweden joining the alliance.`\
-https://nytimes.com/2022/06/28/briefing/russia-ukraine-war-nato-turkey-communication.html?searchResultPosition=2
+https://nytimes.com/2022/06/28/briefing/russia-ukraine-war-nato-turkey-communication.html?searchResultPosition=5
 
 **Virginia Fourth Congressional District Primary Election Results**\
 `See full results and maps from the Virginia primary elections.`\
-https://nytimes.com/interactive/2022/06/21/us/elections/results-virginia-us-house-district-4.html?searchResultPosition=3
+https://nytimes.com/interactive/2022/06/21/us/elections/results-virginia-us-house-district-4.html?searchResultPosition=6
 
 **Virginia Third Congressional District Primary Election Results**\
 `See full results and maps from the Virginia primary elections.`\
-https://nytimes.com/interactive/2022/06/21/us/elections/results-virginia-us-house-district-3.html?searchResultPosition=4
+https://nytimes.com/interactive/2022/06/21/us/elections/results-virginia-us-house-district-3.html?searchResultPosition=7
 
 **Virginia 10th Congressional District Primary Election Results**\
 `See full results and maps from the Virginia primary elections.`\
-https://nytimes.com/interactive/2022/06/21/us/elections/results-virginia-us-house-district-10.html?searchResultPosition=5
+https://nytimes.com/interactive/2022/06/21/us/elections/results-virginia-us-house-district-10.html?searchResultPosition=8
 
 **Virginia Seventh Congressional District Primary Election Results**\
 `See full results and maps from the Virginia primary elections.`\
-https://nytimes.com/interactive/2022/06/21/us/elections/results-virginia-us-house-district-7.html?searchResultPosition=6
+https://nytimes.com/interactive/2022/06/21/us/elections/results-virginia-us-house-district-7.html?searchResultPosition=9
 
 **Virginia Ninth Congressional District Primary Election Results**\
 `See full results and maps from the Virginia primary elections.`\
-https://nytimes.com/interactive/2022/06/21/us/elections/results-virginia-us-house-district-9.html?searchResultPosition=7
-
-**Virginia Eighth Congressional District Primary Election Results**\
-`See full results and maps from the Virginia primary elections.`\
-https://nytimes.com/interactive/2022/06/21/us/elections/results-virginia-us-house-district-8.html?searchResultPosition=8
-
-**Virginia First Congressional District Primary Election Results**\
-`See full results and maps from the Virginia primary elections.`\
-https://nytimes.com/interactive/2022/06/21/us/elections/results-virginia-us-house-district-1.html?searchResultPosition=9
-
-**Virginia Sixth Congressional District Primary Election Results**\
-`See full results and maps from the Virginia primary elections.`\
-https://nytimes.com/interactive/2022/06/21/us/elections/results-virginia-us-house-district-6.html?searchResultPosition=10
+https://nytimes.com/interactive/2022/06/21/us/elections/results-virginia-us-house-district-9.html?searchResultPosition=10
 
