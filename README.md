@@ -26,15 +26,15 @@ https://nytimes.com/2022/06/28/arts/television/jimmy-kimmel-chelsea-handler-roe-
 `Manager Phil Nevin’s 10-game ban was among 47 games of suspensions the league handed out after Sunday’s brawl between Los Angeles and Seattle.`\
 https://nytimes.com/2022/06/28/sports/baseball/mariners-angels-suspensions.html?searchResultPosition=7
 
+**NATO says it will significantly increase troops assigned to its eastern flank.**\
+`By Carly Olson`\
+https://nytimes.com/2022/06/28/world/europe/nato-to-significantly-increase-troops-assigned-to-its-eastern-flank.html?searchResultPosition=8
+
 **Europe Has an America Problem**\
 `Relying on the United States is ultimately a losing proposition.`\
-https://nytimes.com/2022/06/28/opinion/nato-europe-united-states.html?searchResultPosition=8
+https://nytimes.com/2022/06/28/opinion/nato-europe-united-states.html?searchResultPosition=9
 
 **Corrections: June 28, 2028**\
 `Corrections that appeared in print on Tuesday, June 28, 2022.`\
-https://nytimes.com/2022/06/28/pageoneplus/corrections-june-28-2028.html?searchResultPosition=9
-
-**Quotation of the Day: Longing for Home, Displaced Children Wrestle With War’s Trauma**\
-`Quotation of the Day for Tuesday, June 28, 2022.`\
-https://nytimes.com/2022/06/28/todayspaper/quotation-of-the-day-longing-for-home-displaced-children-wrestle-with-wars-trauma.html?searchResultPosition=10
+https://nytimes.com/2022/06/28/pageoneplus/corrections-june-28-2028.html?searchResultPosition=10
 
