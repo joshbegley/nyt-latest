@@ -24,7 +24,7 @@ https://nytimes.com/2022/06/28/movies/the-man-from-toronto-review.html?searchRes
 
 **Saudi Man Bullied Dissidents via Instagram and Lied to F.B.I., U.S. Says**\
 `Federal prosecutors in Brooklyn said in a complaint unsealed Tuesday that Ibrahim Alhussayen, 42, had sent threats on Instagram to Saudi citizens living in the United States and Canada.`\
-https://nytimes.com/2022/06/28/nyregion/saudi-man-bullied-dissidents-via-instagram-and-lied-to-fbi-us-says.html?searchResultPosition=7
+https://nytimes.com/2022/06/28/nyregion/ibrahim-alhussayen-bullying-instagram-fbi.html?searchResultPosition=7
 
 **How Would Your Life Change if You Knew When It Would End?**\
 `In Nikki Erlick’s debut novel, “The Measure,” all adults can find out how much time they have left.`\
