@@ -19,7 +19,7 @@ https://nytimes.com/2022/06/28/us/texas-roe-abortion-ban-blocked.html?searchResu
 https://nytimes.com/2022/06/28/opinion/letters/6-college-presidents-abortion.html?searchResultPosition=5
 
 **Watch Live: Jan. 6 Committee Holds Hearing on New Evidence**\
-`The hearing is in recess and will return shortly.`\
+`Watch the hearings live.`\
 https://nytimes.com/video/us/politics/100000008420448/january-6-hearing-live-stream.html?searchResultPosition=6
 
 **How ‘Marcel the Shell’ Went From YouTube to the Big Screen**\
