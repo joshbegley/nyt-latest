@@ -1,5 +1,5 @@
 **At Least 40 Migrants Found Dead in Tractor-Trailer in San Antonio**\
-`The victims were believed to have crossed the border illegally. Other people were taken to local hospitals.`\
+`More than a dozen others were taken to local hospitals.`\
 https://nytimes.com/2022/06/27/us/migrants-san-antonio-tractor-killed.html?searchResultPosition=1
 
 **Why Did Republicans Become So Extreme?**\
