@@ -31,7 +31,7 @@ https://nytimes.com/2022/06/28/world/asia/china-covid-quarantine.html?searchResu
 https://nytimes.com/2022/06/28/sports/baseball/dansby-swanson-atlanta.html?searchResultPosition=8
 
 **Berrettini Out of Wimbledon as Coronavirus Enters the Draw**\
-`The exit of Matteo Berrettini, who last year became the first Italian to reach the men’s final, came one day after Croatia’s Marin Cilic withdrew after testing positive.`\
+`The exit of Matteo Berrettini, who reached the men’s final last year, came one day after Croatia’s Marin Cilic withdrew after testing positive.`\
 https://nytimes.com/2022/06/28/sports/tennis/wimbledon-covid-matteo-berrettini.html?searchResultPosition=9
 
 **Unexpected Losses**\
