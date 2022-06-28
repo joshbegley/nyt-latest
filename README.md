@@ -15,7 +15,7 @@ https://nytimes.com/2022/06/28/us/texas-roe-abortion-ban-blocked.html?searchResu
 https://nytimes.com/2022/06/28/opinion/letters/6-college-presidents-abortion.html?searchResultPosition=4
 
 **Watch Live: Jan. 6 Committee Holds Hearing on New Evidence**\
-`The House select committee hears what the panel called “recently obtained evidence” and will take witness testimony.`\
+`The hearing is in recess and will return shortly.`\
 https://nytimes.com/video/us/politics/100000008420448/january-6-hearing-live-stream.html?searchResultPosition=5
 
 **How ‘Marcel the Shell’ Went From YouTube to the Big Screen**\
