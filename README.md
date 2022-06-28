@@ -1,40 +1,40 @@
-**Oklahoma: How to vote, where to vote and what’s on the ballot.**\
-`Here’s a last-minute guide to voting in the state’s primary elections.`\
-https://nytimes.com/2022/06/28/us/politics/oklahoma-how-to-vote.html?searchResultPosition=1
+**District of Columbia Primary Election Results**\
+`See full results and maps from the District of Columbia primary elections.`\
+https://nytimes.com/interactive/2022/06/21/us/elections/results-district-of-columbia.html?searchResultPosition=1
 
-**‘I Was Flying Headfirst’: A Shopping Trip Shattered by a Missile**\
-`Survivors of the Russian strike that hit a busy mall in central Ukraine, killing at least 18, described the moment that tore their lives apart.`\
-https://nytimes.com/2022/06/28/world/europe/ukraine-mall-attack.html?searchResultPosition=2
+**Georgia 10th Congressional District Primary Runoff Election Results**\
+`See full results and maps from the Georgia primary runoff elections.`\
+https://nytimes.com/interactive/2022/06/21/us/elections/results-georgia-us-house-district-10.html?searchResultPosition=2
 
-**In Russia Crisis, India Tries to Balance Geopolitics and Economics**\
-`Prime Minister Narendra Modi, who attended the G7 meeting, is also trying to position India as the voice of poorer nations, arguing that sanctions hurt developing countries the most.`\
-https://nytimes.com/2022/06/28/world/asia/in-russia-crisis-india-tries-to-balance-geopolitics-and-economics.html?searchResultPosition=3
+**Georgia Secretary of State Primary Runoff Election Results**\
+`See full results and maps from the Georgia primary runoff elections.`\
+https://nytimes.com/interactive/2022/06/21/us/elections/results-georgia-secretary-of-state.html?searchResultPosition=3
 
-**Who’s Profiting From Demand for Plan B?**\
-`A rush to stock up on emergency contraception could mean huge profits for the investors behind the well-known morning-after pill.`\
-https://nytimes.com/2022/06/28/business/dealbook/plan-b-contraception-pills-profit.html?searchResultPosition=4
+**Alabama U.S. Senate Runoff Election Results**\
+`See full results and maps from the Alabama runoff elections.`\
+https://nytimes.com/interactive/2022/06/21/us/elections/results-alabama-us-senate.html?searchResultPosition=4
 
-**At Least 49 Inmates Die in Riot at a Prison in Colombia**\
-`The director of the country’s national prisons system said that the inmates had set fire to some mattresses and produced an uncontrollable blaze.`\
-https://nytimes.com/2022/06/28/world/americas/colombia-prison-riot-fire.html?searchResultPosition=5
+**Arkansas Primary Runoff Election Results**\
+`See full results and maps from the Arkansas primary runoff elections.`\
+https://nytimes.com/interactive/2022/06/21/us/elections/results-arkansas-primary-runoff.html?searchResultPosition=5
 
-**California Proposes Tax Rebates to Offset High Fuel Costs**\
-`Gas prices in the Golden State are the highest in the nation and top $6 per gallon.`\
-https://nytimes.com/2022/06/28/us/california-tax-rebates-fuel-costs.html?searchResultPosition=6
+**Virginia Seventh Congressional District Primary Election Results**\
+`See full results and maps from the Virginia primary elections.`\
+https://nytimes.com/interactive/2022/06/21/us/elections/results-virginia-us-house-district-7.html?searchResultPosition=6
 
-**‘This is our 1937 moment,’ the U.K.’s new army chief says of the war.**\
-`Gen. Patrick Sanders, alluding to Western Europe’s failure to confront Nazi Germany, said that Britain must not allow Russia’s military action to expand into NATO territory.`\
-https://nytimes.com/2022/06/28/world/europe/this-is-our-1937-moment-the-uks-new-army-chief-says-of-the-war.html?searchResultPosition=7
+**Virginia Second Congressional District Primary Election Results**\
+`See full results and maps from the Virginia primary elections.`\
+https://nytimes.com/interactive/2022/06/21/us/elections/results-virginia-us-house-district-2.html?searchResultPosition=7
 
-**At least 16 others from the overheated tractor-trailer were taken to hospitals.**\
-`At least 16 others from the tractor-trailer in San Antonio, including some children, were taken to hospitals. Three people were in custody, officials said.`\
-https://nytimes.com/2022/06/28/us/migrants-dead-san-antonio-texas.html?searchResultPosition=8
+**Virginia Fourth Congressional District Primary Election Results**\
+`See full results and maps from the Virginia primary elections.`\
+https://nytimes.com/interactive/2022/06/21/us/elections/results-virginia-us-house-district-4.html?searchResultPosition=8
 
-**Marked by the Paris Attacks, and Now Defending Those Accused of Them**\
-`Half the lawyers speaking for the 20 men charged with involvement in the 2015 massacre belong to a young generation in France scarred by a spate of terrorist acts.`\
-https://nytimes.com/2022/06/28/world/europe/paris-attacks-trial.html?searchResultPosition=9
+**Alabama Fifth Congressional District Runoff Election Results**\
+`See full results and maps from the Alabama runoff elections.`\
+https://nytimes.com/interactive/2022/06/21/us/elections/results-alabama-us-house-district-5.html?searchResultPosition=9
 
-**Lost and Found: USB Sticks With Data on 460,000 People**\
-`The plight of a technician tasked with transferring a city’s worth of personal data is a lesson in the risks of combining small, important objects with a night out drinking.`\
-https://nytimes.com/2022/06/28/world/asia/usb-japan-flash-drive-amagasaki.html?searchResultPosition=10
+**Virginia Ninth Congressional District Primary Election Results**\
+`See full results and maps from the Virginia primary elections.`\
+https://nytimes.com/interactive/2022/06/21/us/elections/results-virginia-us-house-district-9.html?searchResultPosition=10
 
