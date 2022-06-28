@@ -1,40 +1,40 @@
-**Primary Day: Governor Races Are on the Ballot**\
-`New Yorkers will vote for governor and lieutenant governor in elections that have been colored in recent days by Supreme Court rulings.`\
-https://nytimes.com/2022/06/28/nyregion/ny-governor-race-primary.html?searchResultPosition=1
+**F.D.A. Advisers Consider the Next Generation of Covid Vaccines**\
+`The expert panel will vote at the end of the daylong meeting on whether the vaccines should be reformulated to target Omicron or one of its subvariants, BA.4 and BA.5.`\
+https://nytimes.com/2022/06/28/us/politics/covid-vaccines-omicron-fda.html?searchResultPosition=1
 
-**‘We hoped we would be safe here’: The death toll from a strike on a mall rises to 18.**\
-`Ukraine’s top prosecutor arrived with a team of investigators to collect evidence about what she said constituted a “war crime” under Ukrainian law and a crime against humanity.`\
-https://nytimes.com/2022/06/28/world/europe/kremenchuk-shopping-center-missile.html?searchResultPosition=2
+**‘Uncomfortably high’: What economists say about the chance of recession.**\
+`The range of forecasts is wide, but economists generally see a rising probability that the U.S. economy will shrink.`\
+https://nytimes.com/2022/06/28/business/recession-probability-us.html?searchResultPosition=2
 
-**G7 Leaders Will Promise $5 Billion to Address Global Hunger Caused by War in Ukraine**\
-`The planned commitment, more than half of it from the U.S., reflects worldwide alarm at shortages in wheat and sunflower oil caused by Russia’s invasion.`\
-https://nytimes.com/2022/06/28/world/europe/g7-ukraine-food.html?searchResultPosition=3
+**An East Hampton Renovation Fit for a Ship’s Captain**\
+`The Amagansett, N.Y., cottage had to be rebuilt from the ground up. So one couple went all in with nautical style.`\
+https://nytimes.com/2022/06/28/realestate/an-east-hampton-renovation-fit-for-a-ships-captain.html?searchResultPosition=3
 
-**A pandemic-related health order has contributed to a surge in border crossings.**\
-`Technically, the border is closed to most migrants under a 2020 order. But the policy, known as Title 42, has had the unintended effect of encouraging people to repeatedly attempt to cross the border.`\
-https://nytimes.com/2022/06/28/us/title-42.html?searchResultPosition=4
+**Less Takeout, More Produce Swapping: How Inflation Is Altering People’s Behavior**\
+`From driving fewer miles to downgrading vacations, Americans are making meaningful changes to their spending. Here’s how five households are coping with the highest inflation in decades.`\
+https://nytimes.com/2022/06/28/your-money/inflation-consumer-behavior.html?searchResultPosition=4
 
-**A cap on the price of Russian oil comes with many questions.**\
-`The idea is to limit how much Russia can earn from the oil it sells while still keeping markets well supplied.`\
-https://nytimes.com/2022/06/28/world/europe/a-cap-on-the-price-of-russian-oil-comes-with-many-questions.html?searchResultPosition=5
+**A Traditional Seaside Cottage With a Twist**\
+`The Amagansett, N.Y., cottage had to be rebuilt from the ground up. So one couple went all in with nautical style.`\
+https://nytimes.com/slideshow/2022/06/28/realestate/a-traditional-seaside-cottage-with-a-twist.html?searchResultPosition=5
 
-**When Abortion Pills Were Banned in Brazil, Women Turned to Drug Traffickers**\
-`With Roe v. Wade overturned, states banning abortion are looking to prevent the distribution of abortion medication. Brazil shows the possible consequences.`\
-https://nytimes.com/2022/06/28/health/brazil-abortion-pills.html?searchResultPosition=6
+**Can Dual-Use Solar Panels Provide Power and Share Space With Crops?**\
+`Companies like BlueWave are betting on it. But the technology has its critics.`\
+https://nytimes.com/2022/06/28/business/dual-use-solar-panels-agrivoltaics-blue-wave-power.html?searchResultPosition=6
 
-**In Illinois, MAGA Congresswoman Rallies to Oust Her G.O.P. Colleague**\
-`The primary contest between Republican Representatives Mary Miller and Rodney Davis has pitted a hard-right figure styling herself in Trump’s image against a traditional, pragmatic conservative.`\
-https://nytimes.com/2022/06/28/us/politics/mary-miller-rodney-davis-il.html?searchResultPosition=7
+**How to Raise Kids Who Are Good at Getting Angry**\
+`Anger has a bad reputation, but it is a basic human emotion like any other. Here’s how to help children cope.`\
+https://nytimes.com/2022/06/28/well/family/child-anger-skills.html?searchResultPosition=7
 
-**The Flight of New York City’s Wealthy Was a Once-in-a-Century Shock**\
-`New tax data reveal a steep population loss in 2020, toward the start of the pandemic. The exodus was temporary, but how much of its effects could be permanent?`\
-https://nytimes.com/2022/06/28/nyregion/wealthy-pandemic-nyc.html?searchResultPosition=8
+**Citizens No More**\
+`Women pay a greater price for freedom than do men.`\
+https://nytimes.com/2022/06/28/opinion/citizens-no-more.html?searchResultPosition=8
 
-**Remembering a Major-Domo of the Newsroom**\
-`Joe Vecchione, a longtime Times editor, died this month at 85. In an essay, one of his former deputies explores his legacy.`\
-https://nytimes.com/2022/06/28/insider/remembering-a-major-domo-of-the-newsroom.html?searchResultPosition=9
+**Not Just a Tennis Podcast, but Rather ‘The’ Tennis Podcast**\
+`It started around David Law’s parents’ dining room table. A decade later, “The Tennis Podcast” is the conscience of the game and how the sport communicates with itself.`\
+https://nytimes.com/2022/06/28/sports/tennis/tennis-podcast-wimbledon.html?searchResultPosition=9
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/06/28/crosswords/spelling-bee-forum.html?searchResultPosition=10
+**Democrats Press the White House for a More Assertive Response to Roe’s Fall**\
+`The initial response by President Biden and other Democratic leaders to the overturning of Roe struck many Democrats as painfully inadequate.`\
+https://nytimes.com/2022/06/28/us/politics/biden-democrats-roe-response.html?searchResultPosition=10
 
