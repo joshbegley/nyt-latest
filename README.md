@@ -34,7 +34,7 @@ https://nytimes.com/2022/06/28/business/dual-use-solar-panels-agrivoltaics-blue-
 `Anger has a bad reputation, but it is a basic human emotion like any other. Here’s how to help children cope.`\
 https://nytimes.com/2022/06/28/well/family/child-anger-skills.html?searchResultPosition=9
 
-**Citizens No More**\
-`Women pay a greater price for freedom than do men.`\
-https://nytimes.com/2022/06/28/opinion/citizens-no-more.html?searchResultPosition=10
+**Not Just a Tennis Podcast, but Rather ‘The’ Tennis Podcast**\
+`It started around David Law’s parents’ dining room table. A decade later, “The Tennis Podcast” is the conscience of the game and how the sport communicates with itself.`\
+https://nytimes.com/2022/06/28/sports/tennis/tennis-podcast-wimbledon.html?searchResultPosition=10
 
