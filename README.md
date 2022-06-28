@@ -1,40 +1,40 @@
+**Colorado: How to vote, where to vote and what’s on the ballot.**\
+`Colorado conducts its elections mainly by mail. Here’s what else to know.`\
+https://nytimes.com/2022/06/28/us/politics/colorado-how-to-vote.html?searchResultPosition=1
+
+**To Play Hamlet, Alex Lawther Became an ‘Expert on Grief’**\
+`The British actor shares what helped him transform into the doomed Danish prince: French poetry, “Pandemonium,” and postcard art (with breaks for lemon cake).`\
+https://nytimes.com/2022/06/28/theater/alex-lawther-favorite-things.html?searchResultPosition=2
+
+**Jazz at Lincoln Center’s Season Goes Global**\
+`The institution will present 22 programs from late September through next June, and feature performers from five continents.`\
+https://nytimes.com/2022/06/28/arts/music/jazz-at-lincoln-center-season.html?searchResultPosition=3
+
 **District of Columbia Primary Election Results**\
 `See full results and maps from the District of Columbia primary elections.`\
-https://nytimes.com/interactive/2022/06/21/us/elections/results-district-of-columbia.html?searchResultPosition=1
+https://nytimes.com/interactive/2022/06/21/us/elections/results-district-of-columbia.html?searchResultPosition=4
 
 **Georgia 10th Congressional District Primary Runoff Election Results**\
 `See full results and maps from the Georgia primary runoff elections.`\
-https://nytimes.com/interactive/2022/06/21/us/elections/results-georgia-us-house-district-10.html?searchResultPosition=2
+https://nytimes.com/interactive/2022/06/21/us/elections/results-georgia-us-house-district-10.html?searchResultPosition=5
 
 **Georgia Secretary of State Primary Runoff Election Results**\
 `See full results and maps from the Georgia primary runoff elections.`\
-https://nytimes.com/interactive/2022/06/21/us/elections/results-georgia-secretary-of-state.html?searchResultPosition=3
+https://nytimes.com/interactive/2022/06/21/us/elections/results-georgia-secretary-of-state.html?searchResultPosition=6
 
 **Alabama U.S. Senate Runoff Election Results**\
 `See full results and maps from the Alabama runoff elections.`\
-https://nytimes.com/interactive/2022/06/21/us/elections/results-alabama-us-senate.html?searchResultPosition=4
+https://nytimes.com/interactive/2022/06/21/us/elections/results-alabama-us-senate.html?searchResultPosition=7
 
 **Arkansas Primary Runoff Election Results**\
 `See full results and maps from the Arkansas primary runoff elections.`\
-https://nytimes.com/interactive/2022/06/21/us/elections/results-arkansas-primary-runoff.html?searchResultPosition=5
+https://nytimes.com/interactive/2022/06/21/us/elections/results-arkansas-primary-runoff.html?searchResultPosition=8
 
 **Virginia Seventh Congressional District Primary Election Results**\
 `See full results and maps from the Virginia primary elections.`\
-https://nytimes.com/interactive/2022/06/21/us/elections/results-virginia-us-house-district-7.html?searchResultPosition=6
+https://nytimes.com/interactive/2022/06/21/us/elections/results-virginia-us-house-district-7.html?searchResultPosition=9
 
 **Virginia Second Congressional District Primary Election Results**\
 `See full results and maps from the Virginia primary elections.`\
-https://nytimes.com/interactive/2022/06/21/us/elections/results-virginia-us-house-district-2.html?searchResultPosition=7
-
-**Virginia Fourth Congressional District Primary Election Results**\
-`See full results and maps from the Virginia primary elections.`\
-https://nytimes.com/interactive/2022/06/21/us/elections/results-virginia-us-house-district-4.html?searchResultPosition=8
-
-**Alabama Fifth Congressional District Runoff Election Results**\
-`See full results and maps from the Alabama runoff elections.`\
-https://nytimes.com/interactive/2022/06/21/us/elections/results-alabama-us-house-district-5.html?searchResultPosition=9
-
-**Virginia Ninth Congressional District Primary Election Results**\
-`See full results and maps from the Virginia primary elections.`\
-https://nytimes.com/interactive/2022/06/21/us/elections/results-virginia-us-house-district-9.html?searchResultPosition=10
+https://nytimes.com/interactive/2022/06/21/us/elections/results-virginia-us-house-district-2.html?searchResultPosition=10
 
