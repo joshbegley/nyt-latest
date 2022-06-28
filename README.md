@@ -2,7 +2,7 @@
 `A rush to stock up on emergency contraception could mean huge profits for the investors behind the well-known morning-after pill.`\
 https://nytimes.com/2022/06/28/business/dealbook/plan-b-contraception-pills-profit.html?searchResultPosition=1
 
-**At least 49 Inmates Die in Riot at a Prison in Colombia**\
+**At Least 49 Inmates Die in Riot at a Prison in Colombia**\
 `The director of the country’s national prisons system said that the inmates had set fire to some mattresses and produced an uncontrollable blaze.`\
 https://nytimes.com/2022/06/28/world/americas/colombia-prison-riot-fire.html?searchResultPosition=2
 
