@@ -8,7 +8,7 @@ https://nytimes.com/2022/06/28/us/politics/trump-legal-risk-jan-6.html?searchRes
 
 **A President Untethered**\
 `In the final, frenzied days of his administration, Donald J. Trump’s behavior turned increasingly volatile as he smashed dishware and lunged at his own Secret Service agent, according to testimony.`\
-https://nytimes.com/2022/06/28/us/politics/a-president-untethered.html?searchResultPosition=3
+https://nytimes.com/2022/06/28/us/politics/trump-jan-6-behavior.html?searchResultPosition=3
 
 **Georgia Lieutenant Governor Primary Runoff Election Results**\
 `See full results and maps from the Georgia primary runoff elections.`\
