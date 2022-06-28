@@ -1,40 +1,40 @@
+**At least 49 Inmates Die in Riot at a Prison in Colombia**\
+`The director of the country’s national prisons system said that the inmates had set fire to some mattresses and produced an uncontrollable blaze.`\
+https://nytimes.com/2022/06/28/world/americas/colombia-prison-riot-fire.html?searchResultPosition=1
+
 **California Proposes Tax Rebates to Offset High Fuel Costs**\
 `Gas prices in the Golden State are the highest in the nation and top $6 per gallon.`\
-https://nytimes.com/2022/06/28/us/california-tax-rebates-fuel-costs.html?searchResultPosition=1
+https://nytimes.com/2022/06/28/us/california-tax-rebates-fuel-costs.html?searchResultPosition=2
 
 **‘This is our 1937 moment,’ the U.K.’s new army chief says of the war.**\
 `Gen. Patrick Sanders, alluding to Western Europe’s failure to confront Nazi Germany, said that Britain must not allow Russia’s military action to expand into NATO territory.`\
-https://nytimes.com/2022/06/28/world/europe/this-is-our-1937-moment-the-uks-new-army-chief-says-of-the-war.html?searchResultPosition=2
+https://nytimes.com/2022/06/28/world/europe/this-is-our-1937-moment-the-uks-new-army-chief-says-of-the-war.html?searchResultPosition=3
 
 **At Least 46 Migrants Found Dead in an Overheated Truck**\
 `At least 16 others from the tractor-trailer in San Antonio, including some children, were taken to hospitals. Three people were in custody, officials said.`\
-https://nytimes.com/2022/06/28/us/migrants-dead-san-antonio-texas.html?searchResultPosition=3
+https://nytimes.com/2022/06/28/us/migrants-dead-san-antonio-texas.html?searchResultPosition=4
 
 **Marked by the Paris Attacks, and Now Defending Those Accused of Them**\
 `Half the lawyers speaking for the 20 men charged with involvement in the 2015 massacre belong to a young generation in France scarred by a spate of terrorist acts.`\
-https://nytimes.com/2022/06/28/world/europe/paris-attacks-trial.html?searchResultPosition=4
+https://nytimes.com/2022/06/28/world/europe/paris-attacks-trial.html?searchResultPosition=5
 
 **Lost and Found: USB Sticks With Data on 460,000 People**\
 `The plight of a technician tasked with transferring a city’s worth of personal data is a lesson in the risks of combining small, important objects with a night out drinking.`\
-https://nytimes.com/2022/06/28/world/asia/usb-japan-flash-drive-amagasaki.html?searchResultPosition=5
+https://nytimes.com/2022/06/28/world/asia/usb-japan-flash-drive-amagasaki.html?searchResultPosition=6
 
 **NASA’s CAPSTONE Mission Launches to the Moon**\
 `The spacecraft will study an orbit where NASA plans to build a small space station for astronauts to stop at before and after going to the moon’s surface.`\
-https://nytimes.com/video/science/100000008419856/capstone-nasa-launch-moon.html?searchResultPosition=6
+https://nytimes.com/video/science/100000008419856/capstone-nasa-launch-moon.html?searchResultPosition=7
 
 **‘Endangered’ Review: When Journalism Becomes Imperiled**\
 `A new documentary from Heidi Ewing and Rachel Grady explores threats to press freedom, but not with the focus this global issue deserves.`\
-https://nytimes.com/2022/06/28/movies/endangered-review.html?searchResultPosition=7
+https://nytimes.com/2022/06/28/movies/endangered-review.html?searchResultPosition=8
 
 **‘Doula’ Review: Rules of Contraction**\
 `An expectant mother and a male birthing counselor learn to get along in this dry, refreshingly candid comedy.`\
-https://nytimes.com/2022/06/28/movies/doula-review.html?searchResultPosition=8
+https://nytimes.com/2022/06/28/movies/doula-review.html?searchResultPosition=9
 
 **China Halves Quarantine Time for International Arrivals, Cheering Markets**\
 `The time will be cut to seven days in a facility, followed by three days of home isolation.`\
-https://nytimes.com/2022/06/28/world/asia/china-covid-quarantine.html?searchResultPosition=9
-
-**Like Most Good Sequels, Atlanta Has Stuck With What Worked**\
-`Dansby Swanson is leading the way for a team that started slowly but is now hot on the Mets’ heels. If it feels familiar, it should.`\
-https://nytimes.com/2022/06/28/sports/baseball/dansby-swanson-atlanta.html?searchResultPosition=10
+https://nytimes.com/2022/06/28/world/asia/china-covid-quarantine.html?searchResultPosition=10
 
