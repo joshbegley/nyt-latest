@@ -8,7 +8,7 @@ https://nytimes.com/2022/06/28/sports/sub-7-and-sub-8-hour-triathlons.html?searc
 
 **What We Know About the Migrant Deaths in San Antonio**\
 `Authorities are working to identify the dozens of victims, who are believed to be migrants. Three people have been detained. And local police planned to search the site for more bodies on Tuesday.`\
-https://nytimes.com/2022/06/28/us/san-antonio-migrant-deaths.html?searchResultPosition=3
+https://nytimes.com/2022/06/28/us/san-antonio-migrant-deaths-texas.html?searchResultPosition=3
 
 **Gas Piped Into Homes Contains Benzene, Other Risky Chemicals, Study Finds**\
 `While the concentrations are low, the chemicals are potentially dangerous and some are linked to cancer risk, the researchers found.`\
