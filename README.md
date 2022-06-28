@@ -34,7 +34,7 @@ https://nytimes.com/2022/06/28/arts/design/tefaf-robbery.html?searchResultPositi
 `A restaurant and beach club on Governors Island, a Cecconi’s in the former NoMad hotel, and more restaurant news.`\
 https://nytimes.com/2022/06/28/dining/nyc-restaurant-news.html?searchResultPosition=9
 
-**A Meadows aide testified that Trump wanted security lifted even though the Jan. 6 crowd was heavily armed.**\
-`Cassidy Hutchinson, who has provided the committee with important testimony behind closed doors, is testifying publicly on Tuesday.`\
+**‘Take the f-ing mags away.’ A White House aide testified that Trump ordered security lifted on Jan. 6 though the crowd was heavily armed.**\
+`Cassidy Hutchinson told the House committee investigating the riot that former President Donald J. Trump did not care about the potential for violence because his supporters were not there to attack him.`\
 https://nytimes.com/2022/06/28/us/meadows-aide-to-testify-before-jan-6-panel-at-surprise-hearing.html?searchResultPosition=10
 
