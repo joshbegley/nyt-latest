@@ -26,7 +26,7 @@ https://nytimes.com/2022/06/28/arts/design/tefaf-robbery.html?searchResultPositi
 `A restaurant and beach club on Governors Island, a Cecconi’s in the former NoMad hotel, and more restaurant news.`\
 https://nytimes.com/2022/06/28/dining/nyc-restaurant-news.html?searchResultPosition=7
 
-**Meadows Aide Is Testifying Before Jan. 6 Panel at Surprise Hearing**\
+**A Meadows aide testified that he said Jan. 6 could get ‘real, real bad.”**\
 `Cassidy Hutchinson, who has provided the committee with important testimony behind closed doors, is testifying publicly on Tuesday.`\
 https://nytimes.com/2022/06/28/us/meadows-aide-to-testify-before-jan-6-panel-at-surprise-hearing.html?searchResultPosition=8
 
