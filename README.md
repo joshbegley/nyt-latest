@@ -34,7 +34,7 @@ https://nytimes.com/2022/06/28/us/meadows-aide-to-testify-before-jan-6-panel-at-
 `Rudy Giuliani, the former New York City mayor, claimed that he was assaulted while campaigning for his son, a candidate for governor. Video footage of the episode showed that he was patted on the back.`\
 https://nytimes.com/2022/06/28/nyregion/rudy-giuliani-eric-adams-investigation-ny.html?searchResultPosition=9
 
-**Watch Live: Jan. 6 Committee Holds Hearing on New Evidence**\
+**DO NOT USE: Watch Live: Jan. 6 Committee Holds Hearing on New Evidence**\
 `The House select committee will hear what the panel called “recently obtained evidence” and will take witness testimony.`\
-https://nytimes.com/video/us/politics/100000008418432/january-6-hearing-live-stream.html?searchResultPosition=10
+https://nytimes.com/video/embedded/us/politics/100000008418432/january-6-hearing-live-stream.html?searchResultPosition=10
 
