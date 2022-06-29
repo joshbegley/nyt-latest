@@ -3,7 +3,7 @@
 https://nytimes.com/2022/06/29/business/spirit-frontier-airlines-jetblue.html?searchResultPosition=1
 
 **Jan. 6 Panel Explores Links Between Trump Allies and Extremist Groups**\
-`Cassidy Hutchinson, the former White House aide, testified that the former President directed his chief of staff to reach out to Michael Flynn and Roger Stone, who had ties to the Oath Keepers and the Proud Boys.`\
+`Cassidy Hutchinson, the former White House aide, testified that the former president directed his chief of staff to reach out to Michael Flynn and Roger Stone, who had ties to the Oath Keepers and the Proud Boys.`\
 https://nytimes.com/2022/06/29/us/politics/trump-flynn-stone-jan-6-extremist.html?searchResultPosition=2
 
 **Amazon Restricts L.G.B.T.Q. Products in United Arab Emirates**\
