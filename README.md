@@ -36,5 +36,5 @@ https://nytimes.com/2022/06/29/world/europe/pelosi-communion-vatican-pope.html?s
 
 **Review: Remaking the Ballets Russes, With a Queer Spin**\
 `Christopher Williams, a choreographer captivated by the otherworldly, presents the New York premieres of “Les Sylphides” and “Afternoon of a Faun.”`\
-https://nytimes.com/2022/06/29/arts/dance/review-christopher-williams-les-sylphides.html?searchResultPosition=10
+https://nytimes.com/2022/06/29/arts/dance/christopher-williams-les-sylphides-ballet-review.html?searchResultPosition=10
 
