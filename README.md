@@ -3,7 +3,7 @@
 https://nytimes.com/2022/06/28/nyregion/lee-zeldin-republican-primary.html?searchResultPosition=1
 
 **Illinois Governor’s Race Shows G.O.P.’s Lurch to Right (With Nudge From Left)**\
-`State Senator Darren Bailey defeated Mayor Richard C. Irvin of Aurora in a Republican primary that illustrated a Democratic strategy to meddle in G.O.P. contests.`\
+`Democrats meddled to boost State Senator Darren Bailey in the G.O.P. primary for Illinois governor. But efforts to elevate far-right candidates in Colorado fizzled.`\
 https://nytimes.com/2022/06/28/us/politics/illinois-colorado-primaries.html?searchResultPosition=2
 
 **Think Again!**\
