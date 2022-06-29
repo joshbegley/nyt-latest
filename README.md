@@ -1,40 +1,40 @@
-**This Is What a Post-Roe Abortion Looks Like**\
-`The story of my abortion odyssey is about to become a lot more common.`\
-https://nytimes.com/video/opinion/100000008338650/abortion-pills-roe-texas.html?searchResultPosition=1
+**Ridgewood, N.J.: A Historic Suburb With a View of the City**\
+`For more than a century, the Bergen County village has drawn buyers with its ‘interesting and beautiful’ homes and its upscale shops and restaurants.`\
+https://nytimes.com/2022/06/29/realestate/ridgewood-nj.html?searchResultPosition=1
 
-**Hochul and Zeldin Will Face Off in the Fall**\
-`Gov. Kathy Hochul cruised to victory in the Democratic race but could face a tough fight in November.`\
-https://nytimes.com/2022/06/29/nyregion/hochul-and-zeldin-will-face-off-in-the-fall.html?searchResultPosition=2
+**Living in Ridgewood, N.J.**\
+`For more than a century, the Bergen County village has drawn buyers with its upscale shops and restaurants and its ‘interesting and beautiful’ homes.`\
+https://nytimes.com/slideshow/2022/06/29/realestate/living-in-ridgewood-nj.html?searchResultPosition=2
 
-**As Prices Skyrocket, Coupons Are Harder to Find Than Ever**\
-`Brands and retailers are shifting away from the clipped newspaper discounts, and the digital version hasn’t grown fast enough to catch up.`\
-https://nytimes.com/2022/06/29/business/economy/grocery-coupons-inflation.html?searchResultPosition=3
+**Shelter Island Feels Chic, Relaxed and Timeless**\
+`But with recently refurbished hotels, is this the moment it gives in to glitz? A writer gets on his bike to explore.`\
+https://nytimes.com/2022/06/29/travel/shelter-island-nyc.html?searchResultPosition=3
 
-**For Many Women, Roe Was About More Than Abortion. It Was About Freedom.**\
-`After the reversal of Roe v. Wade, some women are reconsidering their plans, including where they live, and wondering how best to channel their anger.`\
-https://nytimes.com/2022/06/29/us/women-abortion-roe-wade.html?searchResultPosition=4
+**Serena Williams, Closer to the End Than the Middle, Still Believes**\
+`A second consecutive first-round exit at Wimbledon leaves the 23-time Grand Slam singles champion looking human, but suggesting she has more tennis left to play.`\
+https://nytimes.com/2022/06/29/sports/tennis/serena-william-future-wimbledon.html?searchResultPosition=4
 
-**N.Y.C. Pools Open Amid a Swim Lesson Shortage, Raising Safety Fears**\
-`The city has canceled free swim lessons and private swim programs are feeling the squeeze from a lack of lifeguards. One expert said: “Some of those kids are going to drown.”`\
-https://nytimes.com/2022/06/29/nyregion/nyc-pools-swim-lesson-shortage.html?searchResultPosition=5
+**What Makes Taika Waititi Run and Run and Run?**\
+`The “Thor: Love and Thunder” director can’t say no — to starring in “Our Flag Means Death,” making a soccer movie, writing a “Star Wars” idea, adapting Roald Dahl. For starters.`\
+https://nytimes.com/2022/06/29/movies/taika-waititi-thor-love-and-thunder.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/06/29/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**The Vanishing Moderate Democrat**\
+`Their positions are popular. So why are they going extinct?`\
+https://nytimes.com/2022/06/29/magazine/moderate-democrat.html?searchResultPosition=6
 
-**Corrections: June 29, 2022**\
-`Corrections that appeared in print on Wednesday, June 29, 2022.`\
-https://nytimes.com/2022/06/29/pageoneplus/corrections-june-29-2022.html?searchResultPosition=7
+**Art, Darling**\
+`Antwaun Sargent wanted to change the art world. He already has.`\
+https://nytimes.com/2022/06/29/style/art-darling.html?searchResultPosition=7
 
-**Quotation of the Day: Cutting Back, but Still Struggling, as Inflation Spikes**\
-`Quotation of the Day for Wednesday, June 29, 2022.`\
-https://nytimes.com/2022/06/29/todayspaper/quotation-of-the-day-cutting-back-but-still-struggling-as-inflation-spikes.html?searchResultPosition=8
+**Israel’s Spies Have Hit Iran Hard. In Tehran, Heads Have Rolled.**\
+`After a series of damaging failures, a senior Iranian intelligence official lost his job and a Revolutionary Guards general was said to have been arrested.`\
+https://nytimes.com/2022/06/29/world/middleeast/israel-iran-spy-chief.html?searchResultPosition=8
 
-**Late Night Reacts to Cassidy Hutchinson’s Damning Trump Testimony**\
-`“I mean you’ve got to admit, though, fighting your own Secret Service agent is genius on Trump’s part — he’s hitting the one person who can’t hit back,” Trevor Noah said.`\
-https://nytimes.com/2022/06/29/arts/television/late-night-trump-testimony.html?searchResultPosition=9
+**Crypto Crash Widens a Divide: ‘Those With Money Will End Up Being Fine’**\
+`No cryptocurrency investor has been spared the pain of plunging prices. But the fallout from more than $700 billion in losses is far from even.`\
+https://nytimes.com/2022/06/29/technology/crypto-crash-divide.html?searchResultPosition=9
 
-**NATO Expansion, Compliments of Mr. Putin**\
-`Make the affirmative case for NATO enlargement.`\
-https://nytimes.com/2022/06/29/opinion/nato-expansion-putin.html?searchResultPosition=10
+**‘Very Fragile’: Shanghai Wrestles With Psychological Scars of Lockdown**\
+`The lockdown fueled anxiety, fear and depression among the city’s residents. Experts have warned that the mental health impact of the confinement will be long-lasting.`\
+https://nytimes.com/2022/06/29/world/asia/shanghai-lockdown-china.html?searchResultPosition=10
 
