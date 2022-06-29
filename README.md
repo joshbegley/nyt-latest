@@ -6,8 +6,8 @@ https://nytimes.com/2022/06/28/crosswords/daily-puzzle-2022-06-29.html?searchRes
 `Mr. Delgado overcame his late entry into the race, benefiting from millions of dollars spent on campaign ads and mailers in the last weeks before the primary.`\
 https://nytimes.com/2022/06/28/nyregion/delgado-archila-primary.html?searchResultPosition=2
 
-**Tina Peters, an indicted county clerk, loses the G.O.P. primary for Colorado secretary of state.**\
-`Ms. Peters, who has become a celebrity in far-right circles, was beaten by Pam Anderson, a longtime election official who has been a vocal opponent of misinformation about the 2020 contest.`\
+**Tina Peters, an indicted county clerk, loses the G.O.P. primary for Colorado secretary of state to Pam Anderson.**\
+`Ms. Peters, who has become a celebrity in far-right circles, was beaten by Ms. Anderson, a longtime election official who has been a vocal opponent of misinformation about the 2020 contest.`\
 https://nytimes.com/2022/06/28/us/politics/tina-peters-pam-anderson-colorado-sos.html?searchResultPosition=3
 
 **White House Aide Delivers Dramatic Testimony During Jan. 6 Hearing**\
