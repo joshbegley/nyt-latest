@@ -22,19 +22,19 @@ https://nytimes.com/slideshow/2022/06/29/realestate/living-in-ridgewood-nj.html?
 `But with recently refurbished hotels, is this the moment it gives in to glitz? A writer gets on his bike to explore.`\
 https://nytimes.com/2022/06/29/travel/shelter-island-nyc.html?searchResultPosition=6
 
+**Israel’s Spies Have Hit Iran Hard. In Tehran, Some Big Names Paid the Price.**\
+`After a series of damaging failures, a senior Iranian intelligence official lost his job and a Revolutionary Guards general was said to have been arrested.`\
+https://nytimes.com/2022/06/29/world/middleeast/israel-iran-spy-chief.html?searchResultPosition=7
+
 **Serena Williams, Closer to the End Than the Middle, Still Believes**\
 `A second consecutive first-round exit at Wimbledon leaves the 23-time Grand Slam singles champion looking human, but suggesting she has more tennis left to play.`\
-https://nytimes.com/2022/06/29/sports/tennis/serena-william-future-wimbledon.html?searchResultPosition=7
+https://nytimes.com/2022/06/29/sports/tennis/serena-william-future-wimbledon.html?searchResultPosition=8
 
 **What Makes Taika Waititi Run and Run and Run?**\
 `The “Thor: Love and Thunder” director can’t say no — to starring in “Our Flag Means Death,” making a soccer movie, writing a “Star Wars” idea, adapting Roald Dahl. For starters.`\
-https://nytimes.com/2022/06/29/movies/taika-waititi-thor-love-and-thunder.html?searchResultPosition=8
+https://nytimes.com/2022/06/29/movies/taika-waititi-thor-love-and-thunder.html?searchResultPosition=9
 
 **The Vanishing Moderate Democrat**\
 `Their positions are popular. So why are they going extinct?`\
-https://nytimes.com/2022/06/29/magazine/moderate-democrat.html?searchResultPosition=9
-
-**Art, Darling**\
-`Antwaun Sargent wanted to change the art world. He already has.`\
-https://nytimes.com/2022/06/29/style/art-darling.html?searchResultPosition=10
+https://nytimes.com/2022/06/29/magazine/moderate-democrat.html?searchResultPosition=10
 
