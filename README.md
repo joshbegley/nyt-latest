@@ -23,7 +23,7 @@ https://nytimes.com/2022/06/28/us/politics/tina-peters-pam-anderson-colorado-sos
 https://nytimes.com/video/us/politics/100000008421014/jan-6-videos-testimony.html?searchResultPosition=6
 
 **Gov. Hochul Cruises to Democratic Primary Win in New York**\
-`Gov. Kathy Hochul will have a huge fund-raising advantage in November, but she also faces a political environment that may help Republicans, even in New York.`\
+`Gov. Kathy Hochul will have a huge fund-raising edge as she confronts a political environment that may help her Republican opponent, Lee Zeldin.`\
 https://nytimes.com/2022/06/28/nyregion/hochul-governor-primary-new-york.html?searchResultPosition=7
 
 **Darren Bailey, a far-right state senator, will be the Republican nominee for Illinois governor.**\
