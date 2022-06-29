@@ -7,7 +7,7 @@ https://nytimes.com/2022/06/29/briefing/turkey-january-6-colombia.html?searchRes
 https://nytimes.com/2022/06/29/world/europe/ukraine-russia-rape.html?searchResultPosition=2
 
 **Orlando Museum Director Loses Job After Disputed Basquiat Show**\
-`Aaron De Groft lost his position days after the F.B.I. seized 25 works that had been shown in a Jean-Michel Basquiat exhibit and whose authenticity had been questioned.`\
+`Aaron De Groft was removed from his position days after the F.B.I. seized 25 works that had been shown in a Jean-Michel Basquiat exhibit and whose authenticity had been questioned.`\
 https://nytimes.com/2022/06/28/arts/design/orlando-museum-art-basquiat-director-fired.html?searchResultPosition=3
 
 **Who won and who lost in Tuesday’s primary elections.**\
