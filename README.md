@@ -1,6 +1,6 @@
 **Jan. 6 Panel Explores Links Between Trump Allies and Extremist Groups**\
 `Cassidy Hutchinson, the former White House aide, testified that the former President directed his chief of staff to reach out to Michael Flynn and Roger Stone, who had ties to the Oath Keepers and the Proud Boys.`\
-https://nytimes.com/2022/06/29/us/politics/jan-6-panel-explores-links-between-trump-allies-and-extremist-groups.html?searchResultPosition=1
+https://nytimes.com/2022/06/29/us/politics/trump-flynn-stone-jan-6-extremist.html?searchResultPosition=1
 
 **Amazon Restricts L.G.B.T.Q. Products in United Arab Emirates**\
 `Sales of items including flags and books were blocked in the country, where homosexuality is criminalized.`\
