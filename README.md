@@ -35,6 +35,6 @@ https://nytimes.com/2022/06/29/sports/baseball/yankees-pitching-cortes-severino.
 https://nytimes.com/2022/06/29/theater/into-the-woods-cow-milky-white.html?searchResultPosition=9
 
 **Jerome Powell says the Fed will find price stability in a new economy.**\
-`The Federal Reserve chair spoke at a conference in Sintra, Portugal alongside other global economic leaders.`\
+`The Federal Reserve chair spoke at a conference in Sintra, Portugal, alongside other global economic leaders.`\
 https://nytimes.com/2022/06/29/business/jerome-powell-federal-reserve-inflation.html?searchResultPosition=10
 
