@@ -1,5 +1,5 @@
 **Trump Lunged at Secret Service Agent, Ex-White House Aide Says**\
-`Cassidy Hutchinson, an aide to the former chief of staff Mark Meadows, testified that President Donald J. Trump became enraged after his security detail refused to drive him to the Capitol.`\
+`Cassidy Hutchinson, an aide to former White House chief of staff Mark Meadows, testified that former President Donald J. Trump became enraged after his security detail refused to drive him to the Capitol on Jan. 6.`\
 https://nytimes.com/video/us/politics/100000008421430/trump-car-capitol-attack.html?searchResultPosition=1
 
 **If Only Trump Had Been Stopped From Grabbing America’s Steering Wheel**\
