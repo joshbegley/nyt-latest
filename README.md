@@ -4,7 +4,7 @@ https://nytimes.com/video/nyregion/100000008422666/nyc-ghost-guns-lawsuits.html?
 
 **Substack is laying off 14% of its staff.**\
 `The newsletter start-up discussed raising funding last year but abandoned the plan after the market for venture investments cooled.`\
-https://nytimes.com/2022/06/29/business/media/substack-is-laying-off-14-of-its-staff.html?searchResultPosition=2
+https://nytimes.com/2022/06/29/business/media/substack-layoffs.html?searchResultPosition=2
 
 **Artists Scrutinize a Collector’s Nazi Family Past**\
 `As word circulated of a link between Julia Stoschek’s fortune and forced labor in World War II, some began questioning the ethics of working with the billionaire art patron.`\
