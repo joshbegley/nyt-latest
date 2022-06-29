@@ -1,5 +1,5 @@
 **N.Y. Assembly Democrats Largely Repel Challenges From the Left**\
-`Long-tenured incumbents appeared to retain their seats, though an activist was ahead in a Hudson Valley race.`\
+`Long-tenured incumbents appeared likely to retain their seats, though an activist was ahead in a Hudson Valley race.`\
 https://nytimes.com/2022/06/29/nyregion/assembly-ny-primary.html?searchResultPosition=1
 
 **Your Wednesday Briefing**\
