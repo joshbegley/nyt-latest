@@ -1,40 +1,40 @@
-**As vaccines for younger U.S. children roll out, the effects on day care centers may be muted.**\
-`Federal action to make children older than 6 months eligible for vaccines not only affects parents but also day care centers, which have struggled throughout the pandemic.`\
-https://nytimes.com/2022/06/30/us/covid-vaccine-children-day-care.html?searchResultPosition=1
+**Pessimism about the economy is growing, a U.S. poll shows.**\
+`Roughly half of those surveyed say they are worse off financially than a year ago, and most disapprove of President Biden’s handling of inflation.`\
+https://nytimes.com/2022/06/30/business/economy/economy-inflation-survey.html?searchResultPosition=1
 
-**Israel’s Parliament Dissolves, Paving Way for Another Election**\
-`The decision brought down the coalition government and installed Yair Lapid, a centrist, as interim prime minister. Exhausted and exasperated voters now face a fifth election since April 2019.`\
-https://nytimes.com/2022/06/30/world/middleeast/israel-parliament-dissolve-elections.html?searchResultPosition=2
+**Where an Army Paycheck Is an Easy Target**\
+`An entire financial ecosystem surrounds the nation’s military installations. It’s a perilous landscape for young soldiers with little financial experience.`\
+https://nytimes.com/2022/06/30/your-money/fort-campbell-military-installations.html?searchResultPosition=2
 
-**The Lightning Rod Issue That Looms Over the Governor’s Race**\
-`Lee Zeldin, the Republican candidate, is anti-abortion, while Gov. Kathy Hochul is a strong backer of abortion rights.`\
-https://nytimes.com/2022/06/30/nyregion/the-lightning-rod-issue-that-looms-over-the-governors-race.html?searchResultPosition=3
+**Equity in Sports Has Focused on Gender, Not Race. So Gaps Persist.**\
+`Title IX, over 50 years, has heavily benefited white women over nonwhite women. That’s partly because race has never been part of the law.`\
+https://nytimes.com/2022/06/30/sports/title-ix-race.html?searchResultPosition=3
 
-**As Dockworkers Near Contract’s End, Many Others Have a Stake**\
-`West Coast longshoremen and port operators say they’re determined to reach an agreement, but truckers and retailers relying on cargo are uneasy.`\
-https://nytimes.com/2022/06/30/business/economy/ports-workers-union-california.html?searchResultPosition=4
+**Vitaliy Kim, Master Motivator and Symbol of Ukraine’s Resistance**\
+`Applying the lessons of taekwondo, the regional military leader has rallied the embattled southern city of Mykolaiv.`\
+https://nytimes.com/2022/06/30/world/europe/ukraine-vitaliy-kim-mykolaiv.html?searchResultPosition=4
 
-**Editing With a Reporter’s Instinct**\
-`Four New York Times editors, once reporters or photographers themselves, reflect on how their experiences in the field inform their editing now.`\
-https://nytimes.com/2022/06/30/insider/editing-with-a-reporters-instinct.html?searchResultPosition=5
+**In Athens Creativity in Art, Food and More Rises**\
+`The Greek capital has added impressive arts venues, daring restaurants and a blossoming hotel scene to its well-known Classical draws.`\
+https://nytimes.com/2022/06/30/travel/athens-greece.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/06/30/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**12 New Books Coming in July**\
+`Dive into a tender coming-of-age memoir by Isaac Fitzgerald, a biography of Vladimir V. Putin and novels from Silvia Moreno-Garcia, Bolu Babalola and Daniel Nieh.`\
+https://nytimes.com/2022/06/30/books/12-new-books-coming-in-july.html?searchResultPosition=6
 
-**Seth Meyers Calls Out Fox News Hosts for Falling Speechless**\
-`Meyers said hosts couldn’t “settle on a coherent narrative the way they usually do,” as indicated by a long, awkward pause during a live broadcast about Cassidy Hutchinson’s testimony.`\
-https://nytimes.com/2022/06/30/arts/television/seth-meyers-calls-out-fox-news-hosts-for-falling-speechless.html?searchResultPosition=7
+**A Sculptor Takes His Craft to the Skies**\
+`The artist Desmond Lewis brings the glow of professional fireworks to under-resourced communities in the South.`\
+https://nytimes.com/2022/06/30/arts/design/sculptor-fireworks-greenwood-mississippi-juneteenth-independence-day.html?searchResultPosition=7
 
-**Quotation of the Day: Facing a Surge in Violence, Retail Workers Want to Fight Back**\
-`Quotation of the Day for Thursday, June 30, 2022.`\
-https://nytimes.com/2022/06/30/todayspaper/quotation-of-the-day-facing-a-surge-in-violence-retail-workers-want-to-fight-back.html?searchResultPosition=8
+**After Worst Start in 50 Years, Some See More Pain Ahead for Stock Market**\
+`At the halfway point of the year, it’s been a historically horrible time for stocks. Bonds are in bad shape, too.`\
+https://nytimes.com/2022/06/30/business/stock-market-worst-start-50-years.html?searchResultPosition=8
 
-**Corrections: June 30, 2022**\
-`Corrections that appeared in print on Thursday, June 30, 2022.`\
-https://nytimes.com/2022/06/30/pageoneplus/corrections-june-30-2022.html?searchResultPosition=9
+**How North Korea Used Crypto to Hack Its Way Through the Pandemic**\
+`The isolated country continues to find ways to evade sanctions and generate income while operating on the fringes of the global financial system.`\
+https://nytimes.com/2022/06/30/business/north-korea-crypto-hack.html?searchResultPosition=9
 
-**Your Thursday Briefing**\
-`A prisoner exchange in Ukraine.`\
-https://nytimes.com/2022/06/30/briefing/ukraine-france-india.html?searchResultPosition=10
+**The End of Roe, the End of Trump**\
+`After Dobbs, the Republican Party doesn’t need Trump.`\
+https://nytimes.com/2022/06/30/opinion/dobbs-roe-republican-party-trump.html?searchResultPosition=10
 
