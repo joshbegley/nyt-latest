@@ -1,4 +1,4 @@
-**Israel’s Parliament Dissolves, Paving Way for Another New Election**\
+**Israel’s Parliament Dissolves, Paving Way for Another Election**\
 `The decision brought down the coalition government and installed Yair Lapid, a centrist, as interim prime minister. Exhausted and exasperated voters now face a fifth election since April 2019.`\
 https://nytimes.com/2022/06/30/world/middleeast/israel-parliament-dissolve-elections.html?searchResultPosition=1
 
