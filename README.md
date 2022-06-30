@@ -20,7 +20,7 @@ https://nytimes.com/2022/06/30/business/dealbook/abortion-privacy-risks-data.htm
 
 **As the war’s effects ripple, India seeks a middle ground.**\
 `The changing tone reflects the middle path that India is carving out for itself in this crisis.`\
-https://nytimes.com/2022/06/30/world/europe/as-the-wars-effects-ripple-india-seeks-a-middle-ground.html?searchResultPosition=6
+https://nytimes.com/live/2022/06/30/world/russia-ukraine-war-news/as-the-wars-effects-ripple-india-seeks-a-middle-ground?searchResultPosition=6
 
 **The Weather Men**\
 `It’s all cool.`\
