@@ -1,5 +1,5 @@
-**Suspect in Murder of Off-Road Cycling Star Is Arrested in Costa Rica**\
-`Kaitlin Marie Armstrong had been sought in the killing of Anna Moriah Wilson, who was visiting Texas for a cycling competition when she was found shot dead last month.`\
+**Suspect in Murder of Off-Road Cyclist Is Arrested in Costa Rica**\
+`Kaitlin Marie Armstrong had been sought in the killing of Anna Moriah Wilson, who was visiting Texas for a cycling competition when she was fatally shot last month.`\
 https://nytimes.com/2022/06/30/us/suspect-moriah-wilson-murder-texas.html?searchResultPosition=1
 
 **Germany’s largest importer of Russian gas is in bailout talks with the government.**\
