@@ -27,7 +27,7 @@ https://nytimes.com/2022/06/30/business/uber-safety-report.html?searchResultPosi
 https://nytimes.com/2022/06/30/nyregion/monkeypox-vaccine-ny.html?searchResultPosition=7
 
 **Police Eye Domestic Violence in Upper East Side Killing of Mother**\
-`Azsia Johnson, 20, hoped to be a pediatric nurse and was a doting mother to her two children, her mother said. She was shot at point blank range on the Upper East Side while walking her 3-month-old daughter.`\
+`Azsia Johnson, 20, hoped to be a pediatric nurse and was a doting mother to her two children, her mother said. She was shot at point blank range while walking her 3-month-old daughter.`\
 https://nytimes.com/2022/06/30/nyregion/mother-upper-east-side-shooting.html?searchResultPosition=8
 
 **A former hedge fund star wins a record $52 million in a defamation case.**\
