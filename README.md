@@ -1,40 +1,40 @@
+**Homes for Sale in New York City**\
+`This week’s available properties are on the Lower East Side, in Sutton Place and in Greenpoint.`\
+https://nytimes.com/2022/06/30/realestate/housing-market-nyc.html?searchResultPosition=1
+
+**Homes for Sale in New York City**\
+`This week’s available properties are on the Lower East Side, in Sutton Place and in Greenpoint.`\
+https://nytimes.com/slideshow/2022/06/30/realestate/housing-market-nyc.html?searchResultPosition=2
+
+**Homes for Sale on Long Island and in New Jersey**\
+`This week’s available properties include a five-bedroom home in East Hills, N.Y., and a five-bedroom house on seven acres in Robbinsville, N.J.`\
+https://nytimes.com/2022/06/30/realestate/housing-market-near-nyc.html?searchResultPosition=3
+
+**Homes for Sale on Long Island and in New Jersey**\
+`This week’s available properties include a five-bedroom home in East Hills, N.Y., and a five-bedroom house on seven acres in Robbinsville, N.J.`\
+https://nytimes.com/slideshow/2022/06/30/realestate/housing-market-near-nyc.html?searchResultPosition=4
+
+**A Summer Capsule Collection Inspired by an Italian Getaway**\
+`Plus: a lodge in Bali, an exhibition of Katherine Bradford’s dreamlike paintings and more recommendations from T Magazine.`\
+https://nytimes.com/2022/06/30/t-magazine/chateau-orlando-summer-fashion.html?searchResultPosition=5
+
+**Chess Replay: You Versus Steinitz**\
+`Take on Wilhelm Steinitz in a recreation of a 4th World Championship game in Havana, 1892.`\
+https://nytimes.com/2022/06/30/crosswords/chess/chess-replay-you-versus-steinitz.html?searchResultPosition=6
+
+**My Partner Wants to Move His Parents Into Our House. Help!**\
+`Leery of a renovation plan to accommodate a partner’s aging parents, a reader considers pitching in to buy them a house of their own.`\
+https://nytimes.com/2022/06/30/style/my-partner-wants-to-move-his-parents-into-our-house-help.html?searchResultPosition=7
+
 **Income and spending rose less than prices in May.**\
 `Consumer spending, adjusted for inflation, fell for the first time this year.`\
-https://nytimes.com/2022/06/30/business/income-spending-may.html?searchResultPosition=1
+https://nytimes.com/2022/06/30/business/income-spending-may.html?searchResultPosition=8
 
 **The Fed’s preferred inflation gauge hints at moderation in May.**\
 `The Personal Consumption Expenditure index, which the central bank officially targets, has been running hot for more than a year.`\
-https://nytimes.com/2022/06/30/business/inflation-may.html?searchResultPosition=2
+https://nytimes.com/2022/06/30/business/inflation-may.html?searchResultPosition=9
 
 **An Excavation in the Sea Depths Recovers Hercules From the Afterlife**\
 `An ancient shipwreck off the coast of Greece is yielding secrets as an archaeological exploration project dives deeper. The effort relies on technological innovation.`\
-https://nytimes.com/2022/06/30/science/shipwreck-ancient-roman-hercules.html?searchResultPosition=3
-
-**Missing From Biden’s Europe Trip: An Endgame for War and Cheaper Gasoline**\
-`The G7 and NATO meetings this week underscored the pressure on Western leaders caused by soaring energy costs resulting from Russia’s invasion of Ukraine.`\
-https://nytimes.com/2022/06/30/business/biden-nato-g7-ukraine.html?searchResultPosition=4
-
-**‘We Can Trust No One’: Marcos Becomes President in the Philippines**\
-`The son of the former dictator used his inauguration speech to discuss the economy and the need to heal a deeply divided country after a polarizing election.`\
-https://nytimes.com/2022/06/30/world/asia/philippines-marcos-inauguration.html?searchResultPosition=5
-
-**Watch Live: Biden Delivers Remarks at NATO Summit**\
-`President Biden holds a news conference on the last day of the NATO summit in Madrid.`\
-https://nytimes.com/video/world/europe/100000008423799/biden-nato-speech.html?searchResultPosition=6
-
-**Reconsidering Privacy Risks After Roe**\
-`Many women are worried that their data might be used against them — whether it’s period tracking apps, digital receipts or other information collected by companies.`\
-https://nytimes.com/2022/06/30/business/dealbook/abortion-privacy-risks-data.html?searchResultPosition=7
-
-**The Weather Men**\
-`It’s all cool.`\
-https://nytimes.com/2022/06/30/style/the-weather-men.html?searchResultPosition=8
-
-**Foreland, an Art Complex With Big Ambitions, Grows in Catskill**\
-`As its new gallery spaces open for the season July 1, Foreland’s founder, Stef Halmos, talks of building community in the sprawling Hudson Valley scene.`\
-https://nytimes.com/2022/06/30/arts/design/foreland-art-complex-catskill-new-york-halmos.html?searchResultPosition=9
-
-**‘Hallelujah’ Review: From Leonard Cohen to Cale to Buckley to Shrek**\
-`A new documentary tells the entwined stories of a songwriter and his best-known composition.`\
-https://nytimes.com/2022/06/30/movies/hallelujah-leonard-cohen-a-journey-a-song-review.html?searchResultPosition=10
+https://nytimes.com/2022/06/30/science/shipwreck-ancient-roman-hercules.html?searchResultPosition=10
 
