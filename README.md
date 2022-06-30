@@ -2,9 +2,9 @@
 `Researchers have looked into why and how weight influences emergency contraception but have come up against several unknowns. Here’s what we know.`\
 https://nytimes.com/2022/06/30/well/family/plan-b-weight-limit.html?searchResultPosition=1
 
-**U.C.L.A., U.S.C. Poised to Join Big Ten, Rattling College Sports Anew**\
+**U.C.L.A. and U.S.C. Poised to Join Big Ten, Rattling College Sports Anew**\
 `The move by two of the Pac-12 Conference’s marquee schools came as the Big Ten closed in on a new television deal.`\
-https://nytimes.com/2022/06/30/sports/ncaafootball/ucla-usc-poised-to-join-big-ten-rattling-college-sports-anew.html?searchResultPosition=2
+https://nytimes.com/2022/06/30/sports/ncaafootball/ucla-usc-big-ten.html?searchResultPosition=2
 
 **Alice Elliott Dark Ruins Books by Reading in the Bathtub**\
 `“I easily fall asleep and end up with a soggy bloated creature rather than a legible book,” says the author, whose new novel is “Fellowship Point.” “This works out well for the authors, as I always go buy another copy.”`\
