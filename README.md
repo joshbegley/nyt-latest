@@ -8,7 +8,7 @@ https://nytimes.com/2022/06/30/sports/ncaafootball/ucla-usc-big-ten.html?searchR
 
 **Alice Elliott Dark Ruins Books by Reading in the Bathtub**\
 `“I easily fall asleep and end up with a soggy bloated creature rather than a legible book,” says the author, whose new novel is “Fellowship Point.” “This works out well for the authors, as I always go buy another copy.”`\
-https://nytimes.com/2022/06/30/books/review/alice-elliott-dark-ruins-books-by-reading-in-the-bathtub.html?searchResultPosition=3
+https://nytimes.com/2022/06/30/books/review/alice-elliott-dark.html?searchResultPosition=3
 
 **Putin Regains His Swagger**\
 `The Russian president seems to be back to his former self.`\
