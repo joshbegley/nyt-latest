@@ -6,8 +6,8 @@ https://nytimes.com/2022/06/30/nyregion/nypd-sex-crimes-justice-department.html?
 `Magazzino Italian Art Museum in Cold Spring, N.Y., and the Russel Wright Design Center in nearby Garrison deliver ecological messages (meadows, donkeys, and a waterfall included).`\
 https://nytimes.com/2022/06/30/arts/design/magazzino-russel-wright-design-center.html?searchResultPosition=2
 
-**The ruling will make it easier for business owners to challenge regulations beyond the climate fight.**\
-`By Charlie Savage`\
+**The Ruling’s Implications May Extend Beyond the Climate Fight**\
+`The Supreme Court’s ruling in a case involving the E.P.A. could mean many other types of regulations might now be harder to defend.`\
 https://nytimes.com/2022/06/30/us/epa-ruling-regulations-climate.html?searchResultPosition=3
 
 **Contemporary Authors on Their Favorite New York City Novels**\
