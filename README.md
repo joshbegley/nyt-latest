@@ -28,7 +28,7 @@ https://nytimes.com/2022/06/30/sports/kayla-harrison-pfl-mma.html?searchResultPo
 
 **Watch Live: Jackson Is Sworn Into the Supreme Court as Breyer Retires**\
 `Judge Ketanji Brown Jackson replaces Justice Stephen G. Breyer on the Supreme Court, becoming the first Black woman to serve as a justice.`\
-https://nytimes.com/video/us/politics/100000008423839/ketanji-brown-jackson-swearing-in-supreme-court.html?searchResultPosition=8
+https://nytimes.com/video/embedded/us/politics/100000008423839/ketanji-brown-jackson-swearing-in-supreme-court.html?searchResultPosition=8
 
 **Fossil Helps Scientists Get a Handle on Panda Thumbs**\
 `Fossils found in southwestern China give a hint to the development of the animal’s fifth digit — a rudimentary, thumb-like bone extension.`\
