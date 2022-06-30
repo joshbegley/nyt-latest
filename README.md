@@ -1,4 +1,4 @@
-**Muted Tones Spoke Loud and Clear**\
+**Cassidy Hutchinson’s Muted Tones Spoke Loud and Clear**\
 `At a surprise session of the Jan. 6 hearings, Cassidy Hutchinson calibrated her appearance to keep us listening.`\
 https://nytimes.com/2022/06/30/style/cassidy-hutchinson-white-pearls-blazer.html?searchResultPosition=1
 
