@@ -19,3 +19,11 @@ https://nytimes.com/2022/06/30/style/cassidy-hutchinson-white-pearls-blazer.html
 https://nytimes.com/2022/06/30/opinion/antiques-roadshow.html?searchResultPosition=5
 
 **Why does The New York Times use anonymous sources?**\
+`Explaining the policies and processes that define our journalism.`\
+https://nytimes.com/2022/06/30/admin/why-new-york-times-anonymous-sources.html?searchResultPosition=6
+
+**How does The New York Times report on mass shootings?**\
+`Explaining the policies and processes that define our journalism.`\
+https://nytimes.com/2022/06/30/admin/how-does-the-new-york-times-report-on-mass-shootings.html?searchResultPosition=7
+
+**How does The New York Times handle corrections?**\
