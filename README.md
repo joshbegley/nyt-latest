@@ -15,7 +15,7 @@ https://nytimes.com/2022/06/30/business/john-visentin-xerox-dead.html?searchResu
 https://nytimes.com/2022/06/29/us/politics/liz-cheney-speech-trump.html?searchResultPosition=4
 
 **Woman Is Fatally Shot While Pushing Baby in Stroller on Upper East Side**\
-`The shooting occurred near the intersection of Lexington Avenue and 95th Street, the police said. The 3-month-old was unhurt.`\
+`The shooting occurred near the intersection of Lexington Avenue and 95th Street, the police said. The 3-month-old girl was unhurt.`\
 https://nytimes.com/2022/06/29/nyregion/upper-east-side-woman-shot-nyc.html?searchResultPosition=5
 
 **Top Gear**\
