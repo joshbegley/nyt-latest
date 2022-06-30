@@ -22,8 +22,8 @@ https://nytimes.com/2022/06/29/opinion/roe-dobbs-abortion-supreme-court.html?sea
 `That the House panel did not provide the Justice Department with transcripts of Cassidy Hutchinson’s interviews speaks to the panel’s reluctance to turn over evidence.`\
 https://nytimes.com/2022/06/29/us/politics/jan-6-committee-justice-department-trump.html?searchResultPosition=6
 
-**Wisconsin Court Allows Republican to Stay on State Board After Term Ends**\
-`The State Supreme Court’s ruling bolstered the Senate’s strategy of keeping G.O.P. board members in office by refusing to confirm the replacements nominated by Gov. Tony Evers.`\
+**Wisconsin Court Validates a Republican Strategy to Preserve Power**\
+`The Senate’s method of keeping G.O.P. board members in office, by refusing to confirm replacements nominated by Gov. Tony Evers, was endorsed by a State Supreme Court ruling.`\
 https://nytimes.com/2022/06/29/us/wisconsin-supreme-court-natural-resources-board.html?searchResultPosition=7
 
 **Jan. 6 Committee Subpoenas Pat Cipollone, Trump’s White House Counsel**\
