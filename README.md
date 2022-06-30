@@ -12,7 +12,7 @@ https://nytimes.com/2022/06/30/briefing/climate-surpreme-court-epa-asia.html?sea
 
 **Uber Says Sexual Assaults Down but Traffic Deaths Up**\
 `The company’s second safety report, delayed by the pandemic, is part of a campaign to assure customers that its rides are not dangerous.`\
-https://nytimes.com/2022/06/30/business/uber-says-sexual-assaults-down-but-traffic-deaths-up.html?searchResultPosition=4
+https://nytimes.com/2022/06/30/business/uber-safety-report.html?searchResultPosition=4
 
 **As Monkeypox Cases Rise, New York Will Distribute 8,000 Vaccine Doses**\
 `The city quickly ran out of doses during an earlier distribution effort, at a single clinic in Chelsea, after hundreds of people lined up for the vaccine.`\
