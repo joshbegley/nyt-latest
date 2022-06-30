@@ -1,40 +1,40 @@
+**How to Dispute Surprise Medical Bills**\
+`After receiving a $21,500 doctor’s bill for a mere 10 stitches, I researched bad medical billing. Here’s how to fight it.`\
+https://nytimes.com/2022/06/30/well/live/surprise-medical-bills.html?searchResultPosition=1
+
 **Trump Group Pays for Jan. 6 Lawyers, Raising Concerns of Witness Pressure**\
 `The former president’s political organization and allies have paid for or promised to cover legal fees for witnesses, as the House inquiry suggests he is trying to influence testimony.`\
-https://nytimes.com/2022/06/30/us/trump-jan-6-lawyers-witness-pressure.html?searchResultPosition=1
+https://nytimes.com/2022/06/30/us/trump-jan-6-lawyers-witness-pressure.html?searchResultPosition=2
 
 **E.P.A. Ruling Is Milestone in Long Pushback to Regulation of Business**\
 `The decision created greater opportunities for business interests to challenge regulations, reflecting conservative legal theories developed to rein in administrative agencies.`\
-https://nytimes.com/2022/06/30/us/supreme-court-epa-administrative-state.html?searchResultPosition=2
+https://nytimes.com/2022/06/30/us/supreme-court-epa-administrative-state.html?searchResultPosition=3
 
 **At Wimbledon, American Men Are Putting on a Fourth of July Bash**\
 `Nearly everywhere one looked on Wednesday and Thursday, an American man was slamming or slicing or grinding his way into the final 32, and it feels like the 1990s.`\
-https://nytimes.com/2022/06/30/sports/tennis/wimbledon-usa-men.html?searchResultPosition=3
+https://nytimes.com/2022/06/30/sports/tennis/wimbledon-usa-men.html?searchResultPosition=4
 
 **Why on Earth Is Pelosi Supporting the Trumpists?**\
 `The moral idiocy of promoting the extremists.`\
-https://nytimes.com/2022/06/30/opinion/why-on-earth-is-pelosi-supporting-the-trumpists.html?searchResultPosition=4
+https://nytimes.com/2022/06/30/opinion/why-on-earth-is-pelosi-supporting-the-trumpists.html?searchResultPosition=5
 
 **A 30,000-Foot View of the Abortion Ruling’s Political Fallout**\
 `What will happen in the midterms? How are state-by-state battles unfolding? What about the Supreme Court’s legitimacy? We spoke with Kate Zernike, a Times reporter who has been covering the abortion debate.`\
-https://nytimes.com/2022/06/30/us/politics/abortion-midterms.html?searchResultPosition=5
+https://nytimes.com/2022/06/30/us/politics/abortion-midterms.html?searchResultPosition=6
 
 **Crazies, Cowards and the Trump Coup**\
 `We need moral courage, but it’s very rare.`\
-https://nytimes.com/2022/06/30/opinion/republicans-trump-coup.html?searchResultPosition=6
+https://nytimes.com/2022/06/30/opinion/republicans-trump-coup.html?searchResultPosition=7
 
 **Martin C. Dreiwitz, Who Took Student Musicians on World Tours, Dies at 91**\
 `He combined his love for travel and music to turn the Long Island Youth Orchestra into a globe-trotting powerhouse.`\
-https://nytimes.com/2022/06/30/arts/music/martin-c-dreiwitz-dead.html?searchResultPosition=7
+https://nytimes.com/2022/06/30/arts/music/martin-c-dreiwitz-dead.html?searchResultPosition=8
 
 **Your Thursday Evening Briefing**\
 `Here’s what you need to know at the end of the day.`\
-https://nytimes.com/2022/06/30/briefing/emissions-abortion-fried-chicken.html?searchResultPosition=8
+https://nytimes.com/2022/06/30/briefing/emissions-abortion-fried-chicken.html?searchResultPosition=9
 
 **Does Plan B Have a Weight Limit?**\
 `Researchers have looked into why and how weight influences emergency contraception but have come up against several unknowns. Here’s what we know.`\
-https://nytimes.com/2022/06/30/well/family/plan-b-weight-limit.html?searchResultPosition=9
-
-**U.C.L.A. and U.S.C. Poised to Join Big Ten, Rattling College Sports Anew**\
-`The move by two of the Pac-12 Conference’s marquee schools came as the Big Ten closed in on a new television deal.`\
-https://nytimes.com/2022/06/30/sports/ncaafootball/ucla-usc-big-ten.html?searchResultPosition=10
+https://nytimes.com/2022/06/30/well/family/plan-b-weight-limit.html?searchResultPosition=10
 
