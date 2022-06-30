@@ -8,7 +8,7 @@ https://nytimes.com/2022/06/30/podcasts/the-daily/europe-g7-ukraine-russia-oil.h
 
 **China’s Leader Hails a Hong Kong ‘Reborn from Ashes’ Amid Crackdown**\
 `Before Xi Jinping’s tightly controlled appearance, Hong Kong sent officials, diplomats and others to hotels for days of isolation and Covid tests.`\
-https://nytimes.com/2022/06/30/business/xi-jinping-visits-hong-kong.html?searchResultPosition=3
+https://nytimes.com/2022/06/30/world/asia/xi-jinping-visits-hong-kong.html?searchResultPosition=3
 
 **In Munich, Young Directors Offer Horrors Both Real and Fantastical**\
 `The Radikal Jung festival transports theatergoers to Russia’s 2014 invasion of eastern Ukraine and an American high school in the Middle Ages.`\
