@@ -2,7 +2,7 @@
 `“I easily fall asleep and end up with a soggy bloated creature rather than a legible book,” says the author, whose new novel is “Fellowship Point.” “This works out well for the authors, as I always go buy another copy.”`\
 https://nytimes.com/2022/06/30/books/review/alice-elliott-dark-ruins-books-by-reading-in-the-bathtub.html?searchResultPosition=1
 
-**Putin Regains his Swagger**\
+**Putin Regains His Swagger**\
 `The Russian president seems to be back to his former self.`\
 https://nytimes.com/2022/06/30/briefing/russia-ukraine-war-putin-snakeisland.html?searchResultPosition=2
 
