@@ -18,8 +18,8 @@ https://nytimes.com/2022/06/30/opinion/trump-january-6-cassidy-hutchinson.html?s
 `On short notice, he created the bird-on-a-guitar design that advertised the 1969 festival — and became a symbol of the era.`\
 https://nytimes.com/2022/06/30/arts/music/arnold-skolnick-dead.html?searchResultPosition=5
 
-**Ketanji Brown Jackson Sworn in as First Black Woman Supreme Court Justice**\
-`Her confirmation comes as the newly expanded conservative majority moves to give states more control.`\
+**Ketanji Brown Jackson Becomes First Black Woman Supreme Court Justice**\
+`Her confirmation comes as the newly expanded conservative majority moves to give states more control over things like abortion and energy policy.`\
 https://nytimes.com/2022/06/30/us/politics/ketanji-brown-jackson-sworn-in-supreme-court.html?searchResultPosition=6
 
 **An Elite Fighter Wants to Face the Best. It’s Not That Simple.**\
