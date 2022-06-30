@@ -22,7 +22,7 @@ https://nytimes.com/2022/06/30/briefing/russia-ukraine-war-putin-snakeisland.htm
 `Plus Xi Jinping visits Hong Kong and Ukraine takes back Snake Island.`\
 https://nytimes.com/2022/06/30/briefing/climate-surpreme-court-epa-asia.html?searchResultPosition=6
 
-**Uber Says Sexual Assaults Down but Traffic Deaths Up**\
+**Uber Says Sexual Assaults Down but Rate of Traffic Deaths Is Up**\
 `The company’s second safety report, delayed by the pandemic, is part of a campaign to assure customers that its rides are not dangerous.`\
 https://nytimes.com/2022/06/30/business/uber-safety-report.html?searchResultPosition=7
 
