@@ -27,3 +27,14 @@ https://nytimes.com/2022/06/30/admin/why-new-york-times-anonymous-sources.html?s
 https://nytimes.com/2022/06/30/admin/how-does-the-new-york-times-report-on-mass-shootings.html?searchResultPosition=7
 
 **How does The New York Times handle corrections?**\
+`Explaining the policies and processes that define our journalism.`\
+https://nytimes.com/2022/06/30/admin/new-york-times-corrections.html?searchResultPosition=8
+
+**How does The New York Times cover politics?**\
+`Explaining the policies and processes that define our journalism.`\
+https://nytimes.com/2022/06/30/admin/new-york-times-endorse-political-candidates.html?searchResultPosition=9
+
+**Is the Right to Same-Sex Marriage Next?**\
+`Why the Supreme Court should not overturn the right to same-sex marriage.`\
+https://nytimes.com/2022/06/30/opinion/same-sex-marriage-supreme-court.html?searchResultPosition=10
+
