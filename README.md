@@ -6,7 +6,7 @@ https://nytimes.com/2022/07/01/business/putin-sakhalin-natural-gas.html?searchRe
 `The Russian missile strikes, which took place overnight, hit a residential tower and a recreational center in a coastal town southwest of the Black Sea port city of Odesa.`\
 https://nytimes.com/video/world/europe/100000008425706/russia-ukraine-missile-strike-residential.html?searchResultPosition=2
 
-**Eurozone inflation rises to 8.6 percent, the highest ever, driven by high energy prices.**\
+**Eurozone inflation rises to 8.6 percent, the highest ever, driven by energy prices.**\
 `Nearly half of the countries in the currency area have now reached double-digit inflation.`\
 https://nytimes.com/2022/07/01/business/eurozone-inflation-june.html?searchResultPosition=3
 
