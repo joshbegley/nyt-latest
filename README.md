@@ -26,8 +26,8 @@ https://nytimes.com/2022/07/01/sports/hockey/flyers-russia-fedotov-ukraine.html?
 `A self-described “simple country doctor,” he won national attention in 2020 when the White House embraced his hydroxychloroquine regimen.`\
 https://nytimes.com/2022/07/01/us/vladimir-zelenko-dead.html?searchResultPosition=7
 
-**Trump Media is subpoenaed in federal probe of Truth Social deal.**\
-`The investigation threatens to delay the completion of a merger, which would provide Trump Media and its platform, Truth Social, with up to $1.3 billion.`\
+**Trump Media is subpoenaed in federal inquiry of Truth Social deal.**\
+`The investigation threatens to delay a merger that would provide Trump Media and its platform, Truth Social, with up to $1.3 billion.`\
 https://nytimes.com/2022/07/01/business/trump-media-subpoena.html?searchResultPosition=8
 
 **Is There Anything Funny About the War in Ukraine?**\
