@@ -1,6 +1,6 @@
 **Pandemic-battered movie theaters are feeling good after a strong June.**\
 `Films like “Top Gun: Maverick” and “Jurassic World Dominion” performed very well at the box office, and “Minions: The Rise of Gru” is expected to continue the trend.`\
-https://nytimes.com/2022/07/01/business/media/pandemic-battered-movie-theaters-are-feeling-good-after-a-strong-june.html?searchResultPosition=1
+https://nytimes.com/2022/07/01/business/media/movie-theaters-june.html?searchResultPosition=1
 
 **From a Chef’s Burnout, a Singular Los Angeles Restaurant Emerges**\
 `At Angry Egret Dinette, Wes Avila is making ambitious food with freewheeling charm and unfussy service.`\
