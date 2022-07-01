@@ -1,4 +1,4 @@
-**Russia detains its own Olympic goalie, who had signed with the Philadelphia Flyers.**\
+**Russia Detains Its Olympic Goalie, Who Had Signed With the Philadelphia Flyers**\
 `Ivan Fedotov, who played for Russia’s Olympic hockey team, was accused of planning to evade military service, according to Russian news reports.`\
 https://nytimes.com/2022/07/01/sports/hockey/flyers-russia-fedotov-ukraine.html?searchResultPosition=1
 
