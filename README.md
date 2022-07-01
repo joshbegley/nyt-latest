@@ -10,7 +10,7 @@ https://nytimes.com/2022/07/01/briefing/supreme-court-epa-ruling-climate.html?se
 `Days of heavy rain had loosened the soil. India and neighboring Bangladesh have had record rainfall and severe flooding in the past two months.`\
 https://nytimes.com/2022/07/01/world/asia/india-landslide-floods-manipur.html?searchResultPosition=3
 
-**Discussing Dobbs With an Abortion Rights Champion of the ’70s**\
+**An Abortion Rights Champion of the 1970s on Life Before and After Roe**\
 `Fifty years ago, Nancy Stearns, a lawyer, was on the front lines of the battle to secure legal access to terminations for American women.`\
 https://nytimes.com/2022/07/01/podcasts/the-daily/abortion-rights-nancy-stearns-roe.html?searchResultPosition=4
 
