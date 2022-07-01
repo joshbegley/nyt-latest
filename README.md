@@ -30,8 +30,8 @@ https://nytimes.com/2022/07/01/us/eso-won-bookstore-los-angeles-closing.html?sea
 ` `\
 https://nytimes.com/2022/07/01/world/europe/the-kremlin-rejects-the-suggestion-that-griners-case-is-politically-motivated.html?searchResultPosition=8
 
-**Gray walls, books and a Lenin monument: A look inside the facility where Griner has been detained.**\
-`At least one other well-known foreigner has spent time there: Naama Issachar, the Israeli-American arrested in April 2019 when the Russian police said they had found a third of an ounce of marijuana in her luggage.`\
+**Gray walls, books and a Lenin monument: A look inside the lockup where Griner has been held.**\
+`At least one other well-known foreigner has spent time there: Naama Issachar, the Israeli-American arrested in April 2019 when the Russian police said they had found marijuana in her luggage.`\
 https://nytimes.com/2022/07/01/world/europe/brittney-griner-prison-russia.html?searchResultPosition=9
 
 **Summer Reading Contest, Week 4: What Got Your Attention in The Times This Week?**\
