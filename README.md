@@ -1,6 +1,6 @@
 **‘Wearing a Piece of History’: Vintage Clothing Stores Find a Growing Market**\
 `The demand for repurposed clothes is rising in Australia, store owners say, as shoppers look for sustainability and history over fast fashion.`\
-https://nytimes.com/2022/06/30/world/australia/wearing-a-piece-of-history-vintage-clothing-stores-find-a-growing-market.html?searchResultPosition=1
+https://nytimes.com/2022/06/30/world/australia/vintage-clothing-stores.html?searchResultPosition=1
 
 **Nine People Are Injured in Newark Shooting, Officials Say**\
 `The victims — eight adults and one juvenile — were all in stable condition at Newark hospitals, the acting public safety director said.`\
