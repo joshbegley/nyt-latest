@@ -10,8 +10,8 @@ https://nytimes.com/2022/07/01/sports/power-5-college-sports.html?searchResultPo
 `Abortion “abolitionists” are the outer edge of the anti-abortion movement. Now, they’re looking to gain more followers after the decision to overturn Roe, unsettling mainstream anti-abortion groups.`\
 https://nytimes.com/2022/07/01/us/abortion-abolitionists.html?searchResultPosition=3
 
-**Biden Administration Says New Drilling Possible in Gulf and Cook Inlet in Alaska**\
-`The administration issued its five-year offshore oil and gas drilling plan, which bars new lease sales in the Atlantic, Pacific and Arctic Oceans`\
+**Biden Administration Offers an Offshore Drilling Plan. Likely Backers: Very Few.**\
+`The five-year plan for America’s coastal waters, required by law, risks angering both the fossil fuel industry and environmentalists.`\
 https://nytimes.com/2022/07/01/climate/biden-oil-gas-drilling-alaska.html?searchResultPosition=4
 
 **How Do I Style Sneakers?**\
