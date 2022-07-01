@@ -8,7 +8,7 @@ https://nytimes.com/2022/07/01/us/abortion-abolitionists.html?searchResultPositi
 
 **Biden Administration Says New Drilling Possible in Gulf and Cook Inlet in Alaska**\
 `The administration issued its five-year offshore oil and gas drilling plan, which bars new lease sales in the Atlantic, Pacific and Arctic Oceans`\
-https://nytimes.com/2022/07/01/climate/biden-administration-says-new-drilling-possible-in-gulf-and-cook-inlet-in-alaska.html?searchResultPosition=3
+https://nytimes.com/2022/07/01/climate/biden-oil-gas-drilling-alaska.html?searchResultPosition=3
 
 **How Do I Style Sneakers?**\
 `A reader wonders if they can ditch their dressy flats for good.`\
