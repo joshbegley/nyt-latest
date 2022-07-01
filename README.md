@@ -30,9 +30,9 @@ https://nytimes.com/2022/07/01/sports/tennis/wimbledon-swiatek-ukraine.html?sear
 `The makers of a documentary on the singer-songwriter took a deep dive into his “writing and rewriting and erasing” to better understand the man.`\
 https://nytimes.com/2022/07/01/movies/leonard-cohen-hallelujah-documentary.html?searchResultPosition=8
 
-**N.Y. State Senate Passes New Bill to Restrict Concealed Guns**\
-`The bill, which would prohibit concealed weapons in a number of public places, such as theaters, colleges, and health care facilities, is now being considered by the State Assembly.`\
-https://nytimes.com/2022/07/01/nyregion/ny-state-senate-passes-new-bill-to-restrict-concealed-guns.html?searchResultPosition=9
+**New York Fights Back on Guns and Abortion After Supreme Court Rulings**\
+`Lawmakers passed measures that would  prohibit concealed weapons in a number of public places. It  is also poised to move forward on a bill to protect abortion rights.`\
+https://nytimes.com/2022/07/01/nyregion/ny-guns-abortion-supreme-court.html?searchResultPosition=9
 
 **‘Woman’ and ‘Female’ Didn’t Start as Words About Men**\
 `Culture has shaped perceptions of words.`\
