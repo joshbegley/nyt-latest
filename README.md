@@ -1,6 +1,6 @@
 **Power 5? College Sports May Soon Be Dominated by a Mighty 2**\
 `The Big Ten and the SEC are consolidating power. The rest of college sports, some fear, could become a muddle.`\
-https://nytimes.com/2022/07/01/sports/power-5-college-sports-may-soon-be-dominated-by-a-mighty-2.html?searchResultPosition=1
+https://nytimes.com/2022/07/01/sports/power-5-college-sports.html?searchResultPosition=1
 
 **Inside the Extreme Effort to Punish Women for Abortion**\
 `Abortion “abolitionists” are the outer edge of the anti-abortion movement. Now, they’re looking to gain more followers after the decision to overturn Roe, unsettling mainstream anti-abortion groups.`\
