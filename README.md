@@ -1,40 +1,40 @@
-**Pictures of Brittney Griner in custody offer few clues to her well-being.**\
-`Images of the W.N.B.A. star released since her arrest in an airport near Moscow on Feb. 17 have been scrutinized for clues about her mental and physical health.`\
-https://nytimes.com/2022/07/01/world/europe/brittney-griner-trial-photos-russia.html?searchResultPosition=1
+**A Supreme Court Head-Scratcher: Is a Colonial Musket ‘Analogous’ to an AR-15?**\
+`And other questions about gun regulations then and now.`\
+https://nytimes.com/2022/07/01/opinion/guns-supreme-court.html?searchResultPosition=1
 
-**The N.Y.P.D.’s Sex-Crimes Division Faces an Investigation**\
-`The Special Victims Division is the subject of allegations that its officers shamed and abused survivors of sexual assault.`\
-https://nytimes.com/2022/07/01/nyregion/the-nypds-sex-crimes-division-faces-an-investigation.html?searchResultPosition=2
+**Williams Struggles to Return to Racing Glory**\
+`The team once was a regular champion, but has fallen on hard times. New ownership is working to make it competitive again.`\
+https://nytimes.com/2022/07/01/sports/autoracing/williams-formula-1.html?searchResultPosition=2
 
-**End of a Pandemic Tracker Signifies a New Phase in Travel**\
-`With air travel approaching prepandemic levels, the Travel desk is saying goodbye to a project it started over two years ago.`\
-https://nytimes.com/2022/07/01/insider/travel-pandemic-tracker.html?searchResultPosition=3
+**What Makes a Fetus a Person?**\
+`The unborn child’s state of existential dependence upon its mother, not its autonomy, makes it especially entitled to care, nurture and legal protection.`\
+https://nytimes.com/2022/07/01/opinion/fetal-personhood-constitution.html?searchResultPosition=3
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/07/01/crosswords/spelling-bee-forum.html?searchResultPosition=4
+**Strange Histories: Four New Novels Weave Past and Present**\
+`Whether through reinvention or homage, these books find endless possibilities in events and figures from other times.`\
+https://nytimes.com/2022/07/01/books/review/rosewood-brewer-donaldson-swan.html?searchResultPosition=4
 
-**Climate Protesters in Australia Face Harsh New Penalties**\
-`As of April, people in New South Wales who disrupt business activities can face up to two years in prison. Some climate activists say this law is aimed at them.`\
-https://nytimes.com/2022/07/01/world/australia/climate-protest-laws.html?searchResultPosition=5
+**America’s Post-Roe Chaos Is Here**\
+`The reality of criminalized abortion is going to shock people `\
+https://nytimes.com/2022/07/01/opinion/post-roe-chaos.html?searchResultPosition=5
 
-**North Korea Suggests ‘Alien Things’ From the South Brought Covid**\
-`Airborne propaganda leaflets sent by activists across the border have long angered the regime, which pointed to them as the likely culprit in the country’s recent outbreak.`\
-https://nytimes.com/2022/07/01/world/asia/north-korea-covid-balloons.html?searchResultPosition=6
+**Beer Runs, Porcupine Hunts, Jars of Teeth and Much More**\
+`In a brash, irreverent story collection, “Night of the Living Rez,” Morgan Talty illuminates life and death on the Penobscot Indian Nation reservation.`\
+https://nytimes.com/2022/07/01/books/review/night-of-the-living-rez-morgan-talty.html?searchResultPosition=6
 
-**Stephen Colbert Reflects on This Year in the Supreme Court**\
-`Colbert referred to the court’s year of bold rulings as “a real roller-coaster ride, in that I am nauseous and scared we’re all going to die.”`\
-https://nytimes.com/2022/07/01/arts/television/late-night-supreme-court.html?searchResultPosition=7
+**The Supreme Court’s E.P.A. Decision Is More Gloom Than Doom**\
+`The most profound effect of West Virginia v. Environmental Protection Agency may ultimately be cultural.`\
+https://nytimes.com/2022/07/01/opinion/environment/supreme-court-climate-change-west-virginia-epa.html?searchResultPosition=7
 
-**Corrections: July 1, 2022**\
-`Corrections that appeared in print on Friday, July 1, 2022.`\
-https://nytimes.com/2022/07/01/pageoneplus/corrections-july-1-2022.html?searchResultPosition=8
+**The Single Best Guide I’ve Heard to the Supreme Court’s Rightward Shift**\
+`The legal scholar Kate Shaw walks me through the Supreme Court’s decades-long conservative counterrevolution.`\
+https://nytimes.com/2022/07/01/opinion/ezra-klein-podcast-kate-shaw.html?searchResultPosition=8
 
-**Quotation of the Day: Israel Parliament Collapse Sets Up 5th Election in 4 Years**\
-`Quotation of the Day for Friday, July 1, 2022.`\
-https://nytimes.com/2022/07/01/todayspaper/quotation-of-the-day-israel-parliament-collapse-sets-up-5th-election-in-4-years.html?searchResultPosition=9
+**The New York Times News Quiz, July 1, 2022**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2022/07/01/briefing/news-quiz-nato-roe-v-wade-epa.html?searchResultPosition=9
 
-**Profiles in Courage**\
-`A new historical fiction series for young readers highlights “the importance of standing up for what you know is right.”`\
-https://nytimes.com/2022/07/01/books/review/they-said-no-anna-politkovskaya-mordechai-anielewicz.html?searchResultPosition=10
+**5 Things to Do This Weekend**\
+`A selection of entertainment highlights this weekend, including "Hamlet" at the Park Avenue Armory in Manhattan.`\
+https://nytimes.com/interactive/2022/07/01/arts/weekend-editors-picks-hamlet-armory.html?searchResultPosition=10
 
