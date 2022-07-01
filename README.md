@@ -35,6 +35,6 @@ https://nytimes.com/2022/07/01/sports/tennis/wimbledon-swiatek-ukraine.html?sear
 https://nytimes.com/2022/07/01/movies/leonard-cohen-hallelujah-documentary.html?searchResultPosition=9
 
 **New York Fights Back on Guns and Abortion After Supreme Court Rulings**\
-`Lawmakers passed measures that would prohibit concealed weapons in a number of public places. It is also poised to move forward on a bill to protect abortion rights.`\
+`Lawmakers passed measures that would prohibit concealed weapons in a number of public places. They are also poised to move forward on a bill to protect abortion rights.`\
 https://nytimes.com/2022/07/01/nyregion/ny-guns-abortion-supreme-court.html?searchResultPosition=10
 
