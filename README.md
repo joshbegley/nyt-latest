@@ -23,7 +23,7 @@ https://nytimes.com/2022/07/01/us/giant-african-land-snail-florida.html?searchRe
 https://nytimes.com/2022/07/01/sports/power-5-college-sports.html?searchResultPosition=6
 
 **Inside the Extreme Effort to Punish Women for Abortion**\
-`Abortion “abolitionists” are the outer edge of the anti-abortion movement. Now, they’re looking to gain more followers after the decision to overturn Roe, unsettling mainstream anti-abortion groups.`\
+`Abortion “abolitionists” are the outer edge of the anti-abortion movement. They’re looking to gain followers after the decision to overturn Roe, unsettling mainstream anti-abortion groups.`\
 https://nytimes.com/2022/07/01/us/abortion-abolitionists.html?searchResultPosition=7
 
 **Biden Administration Offers an Offshore Drilling Plan. Likely Backers: Very Few.**\
