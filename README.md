@@ -19,7 +19,7 @@ https://nytimes.com/2022/06/30/business/apple-levoff-insider-trading.html?search
 https://nytimes.com/2022/06/30/world/australia/vintage-clothing-stores.html?searchResultPosition=5
 
 **Nine People Are Injured in Newark Shooting, Officials Say**\
-`The victims — eight adults and one juvenile — were all in stable condition at Newark hospitals, the acting public safety director said.`\
+`The victims — eight adults and one youth — were all in stable condition at Newark hospitals, the acting public safety director said.`\
 https://nytimes.com/2022/06/30/nyregion/newark-shooting.html?searchResultPosition=6
 
 **Columbia Won’t Participate in the Next U.S. News Rankings**\
