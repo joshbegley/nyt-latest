@@ -1,40 +1,40 @@
+**How Do I Style Sneakers?**\
+`A reader wonders if they can ditch their dressy flats for good.`\
+https://nytimes.com/2022/07/01/fashion/style-sneakers.html?searchResultPosition=1
+
+**Partying in a Pandemic**\
+`A look at New York City nightlife.`\
+https://nytimes.com/2022/07/01/briefing/partying-covid-pandemic.html?searchResultPosition=2
+
+**From Star Athlete to Political Pawn: Griner Goes on Trial in Russia**\
+`The American basketball star Brittney Griner has endured months in a Russian prison and the threat of years more, a wartime bargaining chip between Moscow and Washington.`\
+https://nytimes.com/2022/07/01/world/europe/brittney-griner-trial-russia.html?searchResultPosition=3
+
+**Did the ‘Freedom Convoy’ Change the Meaning of Canada’s Flag?**\
+`On Canada Day, some citizens were wary of raising the national flag, now also associated with weeks of protests against pandemic mandates.`\
+https://nytimes.com/2022/07/01/world/canada/canada-day-flag-freedom-convoy.html?searchResultPosition=4
+
 **Swimmer at Long Island Beach May Have Been Bitten by Shark, Police Say**\
 `A laceration on a 57-year-old man’s right foot could have been the result of a shark bite — a rare occurrence in New York’s waters.`\
-https://nytimes.com/2022/07/01/nyregion/jones-beach-long-island-shark.html?searchResultPosition=1
+https://nytimes.com/2022/07/01/nyregion/jones-beach-long-island-shark.html?searchResultPosition=5
 
 **Jaylon Ferguson, Baltimore Ravens Linebacker, Died From an Overdose**\
 `The medical examiner’s office in Maryland said that he died from the combined effects of fentanyl and cocaine and that his death was ruled accidental.`\
-https://nytimes.com/2022/07/01/sports/football/ravens-jaylon-ferguson-fatal-overdose.html?searchResultPosition=2
+https://nytimes.com/2022/07/01/sports/football/ravens-jaylon-ferguson-fatal-overdose.html?searchResultPosition=6
 
 **From the Early Morning Sky, Shards of Hot Metal**\
 `Ukrainians reacted in fury to a Russian missile strike near Odesa, the latest in a string of attacks on civilian targets`\
-https://nytimes.com/2022/07/01/world/europe/missile-strikes-ukraine-russia-residential-area.html?searchResultPosition=3
+https://nytimes.com/2022/07/01/world/europe/missile-strikes-ukraine-russia-residential-area.html?searchResultPosition=7
 
 **Where Does the Climate Movement Go Next?**\
 `Al Gore weighs in on the Supreme Court’s recent ruling against the Environmental Protection Agency and explains why climate change is a “crisis of American democracy.”`\
-https://nytimes.com/2022/07/01/podcasts/epa-climate-al-gore.html?searchResultPosition=4
+https://nytimes.com/2022/07/01/podcasts/epa-climate-al-gore.html?searchResultPosition=8
 
 **California Requires Plastics Makers to Foot the Bill for Recycling**\
 `The landmark legislation also restricts single-use plastics. Because California’s economy is so big, experts say, the law could have far-reaching effects.`\
-https://nytimes.com/2022/07/01/climate/california-plastics-recycling-law.html?searchResultPosition=5
+https://nytimes.com/2022/07/01/climate/california-plastics-recycling-law.html?searchResultPosition=9
 
 **Pandemic-battered movie theaters are feeling good after a strong June.**\
 `Films like “Top Gun: Maverick” and “Jurassic World Dominion” performed very well at the box office, and “Minions: The Rise of Gru” is expected to continue the trend.`\
-https://nytimes.com/2022/07/01/business/media/movie-theaters-june.html?searchResultPosition=6
-
-**From a Chef’s Burnout, a Singular Los Angeles Restaurant Emerges**\
-`At Angry Egret Dinette, Wes Avila is making ambitious food with freewheeling charm and unfussy service.`\
-https://nytimes.com/2022/07/01/dining/angry-egret-dinette-restaurant-review.html?searchResultPosition=7
-
-**A Taste of Alta California**\
-`Wes Avila’s unassuming breakfast sandwich shop in Los Angeles is so much more than it seems.`\
-https://nytimes.com/slideshow/2022/07/01/dining/angry-egret-la.html?searchResultPosition=8
-
-**Corruption in Ukraine**\
-`We talk to former U.S. ambassador Marie Yovanovitch about the challenges ahead.`\
-https://nytimes.com/2022/07/01/briefing/russia-ukraine-war-corruption-yovanovitch-odessa.html?searchResultPosition=9
-
-**Technoblade, YouTube Star Popular for Minecraft Videos, Has Died**\
-`Technoblade’s father announced the death in a video on his son’s YouTube channel, where he had entertained more than 11 million subscribers with his Minecraft gameplay and wry commentary.`\
-https://nytimes.com/2022/07/01/technology/technoblade-minecraft-youtuber-dead.html?searchResultPosition=10
+https://nytimes.com/2022/07/01/business/media/movie-theaters-june.html?searchResultPosition=10
 
