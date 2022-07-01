@@ -15,7 +15,7 @@ https://nytimes.com/2022/07/01/your-money/credit-card-debt-economy.html?searchRe
 https://nytimes.com/2022/07/01/movies/the-princess-review.html?searchResultPosition=4
 
 **A Blow to Regulators**\
-`Plus, the July 4th holiday weekend will test airlines.`\
+`Plus, what to do about the airlines’ cancelation-athon ahead of a busy holiday travel weekend.`\
 https://nytimes.com/2022/07/01/business/dealbook/a-blow-to-regulators.html?searchResultPosition=5
 
 **Putin moves to seize a large gas venture in Russia’s Far East.**\
