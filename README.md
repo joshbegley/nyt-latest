@@ -18,7 +18,7 @@ https://nytimes.com/2022/07/01/nyregion/ny-state-senate-passes-new-bill-to-restr
 `Culture has shaped perceptions of words.`\
 https://nytimes.com/2022/07/01/opinion/words-women.html?searchResultPosition=5
 
-**Tennis Gets Another Fairy Tale, Maybe the Craziest One Yet.**\
+**Tennis Gets Another Fairy Tale, Maybe the Craziest One Yet**\
 `Tim van Rijthoven is a perfect 8-0 in the last month. Before that, and seven years into his professional career, he had yet to win a main-draw match.`\
 https://nytimes.com/2022/07/01/sports/tennis/wimbledon-van-rijtoven.html?searchResultPosition=6
 
