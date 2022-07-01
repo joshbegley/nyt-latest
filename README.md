@@ -22,7 +22,7 @@ https://nytimes.com/2022/07/01/business/july-fourth-airlines-travel.html?searchR
 `Last year, U.S. officials seized 1,500 guns with “auto sears” — and experts suggest they account for a small fraction of the total that exist.`\
 https://nytimes.com/2022/07/01/business/this-20-device-turns-a-handgun-into-an-automatic-weapon.html?searchResultPosition=6
 
-**Circling the Bases as Baseball Nears its Midpoint**\
+**Circling the Bases as Baseball Nears Its Midpoint**\
 `As teams close in on 81 games, Justin Verlander is showing the kids how it’s done, Aaron Judge continues to mash and the most valuable player (by WAR) isn’t who you think.`\
 https://nytimes.com/2022/07/01/sports/baseball/mlb-midseason.html?searchResultPosition=7
 
