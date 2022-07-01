@@ -1,40 +1,40 @@
+**‘Long Live the Theater’: Mariupol’s Drama Company to Perform Again**\
+`Thirteen members of the Mariupol Drama Theater have reconvened in western Ukraine where they are rehearsing a new play about a Ukrainian dissident who died in a Russian prison camp in the 1980s.`\
+https://nytimes.com/2022/07/01/world/europe/mariupol-drama-theater-ukraine.html?searchResultPosition=1
+
+**Russia Hints at Linking Griner’s Case to Fate of ‘Merchant of Death’**\
+`Viktor Bout, a Russian arms dealer, is serving a 25-year prison sentence in the United States.`\
+https://nytimes.com/2022/07/01/us/politics/brittney-griner-trial-russia.html?searchResultPosition=2
+
+**Finding Love From Studio 1A in Rockefeller Plaza**\
+`Libby Leist, an executive at NBC’s “Today,” had been single for years when the anchor Jenna Bush Hager introduced her to Sayan Ray, who later proposed with help from the anchor Willie Geist.`\
+https://nytimes.com/2022/07/01/style/libby-leist-sayan-ray-wedding.html?searchResultPosition=3
+
+**Growing Closer One (Very) Late Dinner at a Time**\
+`Alaina Collura and Joseph Durkin got to know each other better over late-night meals, one of which, at the Spotted Pig in August 2016, marked a turning point in their relationship.`\
+https://nytimes.com/2022/07/01/style/alaina-collura-joseph-durkin-wedding.html?searchResultPosition=4
+
+**A Bet She Couldn’t Resist**\
+`For $100, could I stop flirting with men when my mother was around? And could she stop talking about my brush with mortality?`\
+https://nytimes.com/2022/07/01/style/modern-love-mother-leukemia-gay-son.html?searchResultPosition=5
+
+**On Their First Date, Plunging into a Relationship**\
+`Stephanie Schulter and Halle Bauer had a first date at the Coney Island Polar Bear plunge in 2018. Three years later, they planned an engagement around the same event.`\
+https://nytimes.com/2022/07/01/style/stephanie-schulter-halle-bauer-wedding.html?searchResultPosition=6
+
+**Falling Fast, Then Fiancés for Seven Years**\
+`Luke Kalat knew he wanted to marry Justin Conner after their first conversation in 2010. More than a decade later, he did.`\
+https://nytimes.com/2022/07/01/style/luke-kalat-justin-conner-wedding.html?searchResultPosition=7
+
+**Through an Old-School Setup, a Matchmaker Meets Her ‘Sinatra’**\
+`An old-fashioned fix-up, and an appreciation for chivalry, brought Erin Bellsey and Charles Leonard together.`\
+https://nytimes.com/2022/07/01/style/erin-bellsey-charles-leonard-wedding.html?searchResultPosition=8
+
+**While Following Grateful Dead Tribute Bands, a Romantic Turn**\
+`Caroline Cornell and Daniel Logan have been friends since middle school in Vermont, but their relationship didn’t become romantic until many years later when the two were living transiently.`\
+https://nytimes.com/2022/07/01/style/caroline-cornell-daniel-logan-wedding.html?searchResultPosition=9
+
 **Lawyers Make Closing Arguments in Nipsey Hussle Murder Trial**\
 `The prosecution argued that the 2019 killing of the rapper Nipsey Hussle was premeditated, charging Eric R. Holder Jr., the accused gunman, with first-degree murder. The defense argued that Mr. Holder should have been charged with voluntary manslaughter. The trial is now in the jury’s hands.`\
-https://nytimes.com/video/us/100000008425379/nipsey-hussle-murder-trial-closing-arguments.html?searchResultPosition=1
-
-**Tag Line**\
-`Christina Iverson and Caitlin Reid collaborate to lead us into the weekend.`\
-https://nytimes.com/2022/06/30/crosswords/daily-puzzle-2022-07-01.html?searchResultPosition=2
-
-**Variety: Acrostic**\
-`Emily Cox and Henry Rathvon get festive in the fields.`\
-https://nytimes.com/2022/06/30/crosswords/variety-acrostic.html?searchResultPosition=3
-
-**Former Apple Lawyer Pleads Guilty to Insider Trading**\
-`The official was the senior director of corporate law at Apple until he was fired in late 2018.`\
-https://nytimes.com/2022/06/30/business/apple-levoff-insider-trading.html?searchResultPosition=4
-
-**‘Wearing a Piece of History’: Vintage Clothing Stores Find a Growing Market**\
-`The demand for repurposed clothes is rising in Australia, store owners say, as shoppers look for sustainability and history over fast fashion.`\
-https://nytimes.com/2022/06/30/world/australia/vintage-clothing-stores.html?searchResultPosition=5
-
-**Nine People Are Injured in Newark Shooting, Officials Say**\
-`The victims — eight adults and one youth — were all in stable condition at Newark hospitals, the acting public safety director said.`\
-https://nytimes.com/2022/06/30/nyregion/newark-shooting.html?searchResultPosition=6
-
-**Columbia Won’t Participate in the Next U.S. News Rankings**\
-`The university, which had climbed to No. 2 in the influential rankings, said it needed more time to address questions about its data, which were raised by a Columbia math professor.`\
-https://nytimes.com/2022/06/30/us/columbia-us-news-rankings.html?searchResultPosition=7
-
-**California Wildfire Burns More Than 900 Acres and Prompts Evacuations**\
-`The Rices fire is burning near South Yuba River State Park in Nevada County, Calif., about 70 miles northeast of Sacramento.`\
-https://nytimes.com/2022/06/30/us/california-rices-fire.html?searchResultPosition=8
-
-**One Dead and 22 Have Been Hospitalized in Listeria Outbreak Tied to Florida**\
-`A food source has not been identified as the cause of the outbreak, which has sickened people across 10 states starting in January 2021, the Centers for Disease Control and Prevention said in a statement.`\
-https://nytimes.com/2022/06/30/science/listeria-outbreak-florida.html?searchResultPosition=9
-
-**How to Dispute Surprise Medical Bills**\
-`After receiving a $21,500 doctor’s bill for a mere 10 stitches, I researched bad medical billing. Here’s how to fight it.`\
-https://nytimes.com/2022/06/30/well/live/surprise-medical-bills.html?searchResultPosition=10
+https://nytimes.com/video/us/100000008425379/nipsey-hussle-murder-trial-closing-arguments.html?searchResultPosition=10
 
