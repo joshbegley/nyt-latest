@@ -19,10 +19,10 @@ https://nytimes.com/2022/07/01/business/general-motors-car-sales.html?searchResu
 https://nytimes.com/2022/07/01/us/eso-won-bookstore-los-angeles-closing.html?searchResultPosition=5
 
 **The Kremlin rejects the suggestion that Griner’s case is politically motivated.**\
-`By Ivan Nechepurenko`\
+` `\
 https://nytimes.com/2022/07/01/world/europe/the-kremlin-rejects-the-suggestion-that-griners-case-is-politically-motivated.html?searchResultPosition=6
 
-**Gray walls, books and a Lenin monument: A look inside the facility where Griner is detained.**\
+**Gray walls, books and a Lenin monument: A look inside the facility where Griner has been detained.**\
 `At least one other well-known foreigner has spent time there: Naama Issachar, the Israeli-American arrested in April 2019 when the Russian police said they had found a third of an ounce of marijuana in her luggage.`\
 https://nytimes.com/2022/07/01/world/europe/brittney-griner-prison-russia.html?searchResultPosition=7
 
