@@ -10,8 +10,8 @@ https://nytimes.com/2022/07/01/crosswords/daily-puzzle-2022-07-02.html?searchRes
 `The authorities say the suspect, Lance P. Storz, 49, had barricaded himself in his home in Allen, Ky., a town so small it lacks its own police force.`\
 https://nytimes.com/2022/07/01/us/kentucky-man-shoots-6-officers-killing-2-police-say.html?searchResultPosition=3
 
-**Iran Earthquake Kills at Least 3, State TV Says**\
-`A European monitoring group said the quake, which struck early Saturday, had a magnitude of 6.0.`\
+**Iran Earthquake Kills at Least 5, State Media Says**\
+`Iran’s state news agency said the quake, which did extensive damage to a village, was followed by two more.`\
 https://nytimes.com/2022/07/01/world/middleeast/iran-earthquake.html?searchResultPosition=4
 
 **Baby’s Father Arrested in Shooting of Woman Who Was Walking Stroller**\
