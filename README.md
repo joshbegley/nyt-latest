@@ -1,6 +1,6 @@
 **Thousands of Flights Are Delayed or Canceled as Holiday Travel Kicks Off**\
 `Airlines, dealing with bad weather and staffing shortages, struggle to keep up with high demand over the July 4 weekend.`\
-https://nytimes.com/2022/07/02/business/july-4-holiday-air-travel.html?searchResultPosition=1
+https://nytimes.com/2022/07/02/business/july-4-weekend-air-travel.html?searchResultPosition=1
 
 **Expansion Pack**\
 `Tom McCoy's Sunday puzzle might be hard to get a handle on, but it’s worth it!`\
