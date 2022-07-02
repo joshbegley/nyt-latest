@@ -11,7 +11,7 @@ https://nytimes.com/2022/07/02/sports/kayla-harrison-pfl-mma-fighter.html?search
 https://nytimes.com/2022/07/02/sports/tennis/wimbledon-tsurenko-ukraine-russia.html?searchResultPosition=3
 
 **Tesla Sales Slow as the Pandemic Hobbles Production**\
-`The decline in deliveries by the electric carmaker in the second quarter was the first drop since the beginning of 2020. The main reason was factory shutdowns in China.`\
+`The decline in deliveries by the electric carmaker in the second quarter was the first drop since the beginning of 2020. The main culprit was factory shutdowns in China.`\
 https://nytimes.com/2022/07/02/business/tesla-q2-sales.html?searchResultPosition=4
 
 **Swiatek, the World No. 1, Falls at Wimbledon, Ending a Long Win Streak**\
