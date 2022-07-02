@@ -6,8 +6,8 @@ https://nytimes.com/2022/07/02/sports/kayla-harrison-pfl-mma-fighter.html?search
 `She used to compete because she loved tennis, but now Tsurenko wants to win as much prize money as possible to help people in her war-torn country.`\
 https://nytimes.com/2022/07/02/sports/tennis/wimbledon-tsurenko-ukraine-russia.html?searchResultPosition=2
 
-**Tesla Sales Slow as Pandemic Hobbles Production**\
-`Deliveries by the electric carmaker fell in the second quarter because of factory shutdowns in China.`\
+**Tesla Sales Slow as the Pandemic Hobbles Production**\
+`The decline in deliveries by the electric carmaker in the second quarter was the first drop since the beginning of 2020. The main reason was factory shutdowns in China.`\
 https://nytimes.com/2022/07/02/business/tesla-q2-sales.html?searchResultPosition=3
 
 **Swiatek, the World No. 1, Falls at Wimbledon, Ending a Long Win Streak**\
