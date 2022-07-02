@@ -19,7 +19,7 @@ https://nytimes.com/2022/07/02/sports/tennis/swiatek-cornet-wimbledon.html?searc
 https://nytimes.com/video/world/middleeast/100000008427475/iran-earthquake.html?searchResultPosition=5
 
 **Russia Steps Up Pace of Missile Attacks on Residential Targets**\
-`The Russians’ growing use of imprecise Soviet-era missiles to terrorize civilians reflects the exhaustion of its forces, analysts say.`\
+`The Russians’ growing use of imprecise Soviet-era missiles to terrorize civilians reflects the daunting outlook of its offensive despite incremental gains, analysts say.`\
 https://nytimes.com/2022/07/02/world/europe/russia-missiles-civilians-ukraine.html?searchResultPosition=6
 
 **Gridlock in Congress Has Amplified the Power of the Supreme Court**\
