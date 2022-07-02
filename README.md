@@ -15,7 +15,7 @@ https://nytimes.com/2022/07/02/sports/tennis/wimbledon-tsurenko-ukraine-russia.h
 https://nytimes.com/2022/07/02/business/tesla-q2-sales.html?searchResultPosition=4
 
 **Swiatek, the World No. 1, Falls at Wimbledon, Ending a Long Win Streak**\
-`Swiatek, the top-seeded women’s singles player, lost in straight sets to Alizé Cornet of France.`\
+`Frustrated by low bounces on the grass courts that took away her most powerful weapons, the top-seeded women’s singles player lost in straight sets to Alizé Cornet of France.`\
 https://nytimes.com/2022/07/02/sports/tennis/swiatek-cornet-wimbledon.html?searchResultPosition=5
 
 **Deadly Earthquake Strikes Southern Iran**\
