@@ -12,7 +12,7 @@ https://nytimes.com/2022/07/02/world/europe/brittney-griner-hostage-diplomacy.ht
 
 **Ukrainian students are hopeful and defiant as they graduate amid war.**\
 `For these students, this coming-of-age moment amid the war is especially poignant.`\
-https://nytimes.com/2022/07/02/world/europe/ukrainian-students-are-hopeful-and-defiant-as-they-graduate-amid-war.html?searchResultPosition=4
+https://nytimes.com/2022/07/02/world/europe/students-ukraine-war.html?searchResultPosition=4
 
 **We Are Not Powerless Against Calamity**\
 `Rushing in to confront a crisis is always better than letting it simply unfold.`\
