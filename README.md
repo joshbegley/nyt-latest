@@ -8,7 +8,7 @@ https://nytimes.com/2022/07/02/sports/tennis/wimbledon-tsurenko-ukraine-russia.h
 
 **Tesla Sales Slow as Pandemic Hobbles Production**\
 `Deliveries by the electric carmaker fell in the second quarter because of factory shutdowns in China.`\
-https://nytimes.com/2022/07/02/business/tesla-sales.html?searchResultPosition=3
+https://nytimes.com/2022/07/02/business/tesla-q2-sales.html?searchResultPosition=3
 
 **Swiatek, the World No. 1, Falls at Wimbledon, Ending a Long Win Streak**\
 `Swiatek, the top-seeded women’s singles player, lost in straight sets to Alizé Cornet of France.`\
