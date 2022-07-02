@@ -1,4 +1,4 @@
-**Russia Repeatedly Strikes Ukraines Civilians. There’s Always an Excuse.**\
+**Russia Repeatedly Strikes Ukraine’s Civilians. There’s Always an Excuse.**\
 `The Kremlin’s explanations have sometimes satisfied the Russian people, but they fall apart under closer scrutiny abroad.`\
 https://nytimes.com/2022/07/02/world/europe/russian-civilian-attacks-ukraine.html?searchResultPosition=1
 
