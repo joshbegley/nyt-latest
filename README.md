@@ -1,6 +1,6 @@
 **In City Where ‘Europe Starts,’ Ethnic Russians Start Questioning Putin’s War**\
 `Narva, in northeastern Estonia, is the E.U.’s most ethnically Russian city, with a population supportive of President Vladimir Putin. But the conflict in Ukraine has set off a “mental war” between old and young.`\
-https://nytimes.com/2022/07/02/world/europe/in-city-where-europe-starts-ethnic-russians-start-questioning-putins-war.html?searchResultPosition=1
+https://nytimes.com/2022/07/02/world/europe/estonia-russia-war-putin.html?searchResultPosition=1
 
 **N.Y. Passes New Gun Law to Blunt Effects of Supreme Court Ruling**\
 `New York lawmakers adopted new measures restricting concealed weapons in many public places. They also passed an amendment to start the process of enshrining the right to abortion in the State Constitution.`\
