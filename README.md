@@ -6,7 +6,7 @@ https://nytimes.com/2022/07/01/us/kentucky-man-shoots-6-officers-killing-2-polic
 `A European monitoring group said the quake, which struck early Saturday, had a magnitude of 6.0.`\
 https://nytimes.com/2022/07/01/world/middleeast/iran-earthquake.html?searchResultPosition=2
 
-**Baby’s Father Arrested in Murder of Woman Who Was Walking Stroller**\
+**Baby’s Father Arrested in Shooting of Woman Who Was Walking Stroller**\
 `Azsia Johnson, 20, was shot to death on a quiet section of 95th Street on Wednesday evening. The father of their child was arrested on Friday evening and charged with murder.`\
 https://nytimes.com/2022/07/01/nyregion/mother-shot-upper-east-side-father-arrested.html?searchResultPosition=3
 
