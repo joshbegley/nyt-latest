@@ -27,7 +27,7 @@ https://nytimes.com/2022/07/03/opinion/abortion-prohibition-racism.html?searchRe
 https://nytimes.com/2022/07/03/arts/dance/review-song-of-songs.html?searchResultPosition=7
 
 **Hunter Reynolds, Artist Who Dressed Up AIDS, Dies at 62**\
-`After he learned he was H.I.V. positive, he began making art — often  performing as his gown-wearing alter ego — that told stories about the condition.`\
+`After he learned he was H.I.V. positive, he began making art — often performing as his gown-wearing alter ego — that told stories about the condition.`\
 https://nytimes.com/2022/07/03/arts/hunter-reynolds-dead.html?searchResultPosition=8
 
 **Listeria Outbreak Is Linked to Ice Cream, C.D.C. Says**\
