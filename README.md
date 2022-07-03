@@ -1,36 +1,36 @@
+**‘The Pro-Life Generation’: Young Women Fight Against Abortion Rights**\
+`Many American women mourned the Supreme Court decision to overturn Roe, but for others it is a moment of triumph and a matter of human rights.`\
+https://nytimes.com/2022/07/03/us/the-pro-life-generation-young-women-fight-against-abortion-rights.html?searchResultPosition=1
+
+**Once a Crucial Refuge, ‘Gayborhoods’ Lose L.G.B.T.Q. Residents in Major Cities**\
+`Many are choosing to live elsewhere in search of cheaper housing and better amenities. They are finding growing acceptance in other communities after decades of political and social changes.`\
+https://nytimes.com/2022/07/03/us/lgtbq-neighborhoods-gayborhoods.html?searchResultPosition=2
+
+**How a Military Base in Illinois Helps Keep Weapons Flowing to Ukraine**\
+`Thousands of logisticians are responsible for making sure that U.S. military aid reaches its destination, on planes, trains and ships.`\
+https://nytimes.com/2022/07/03/us/ukraine-military-aid-weapons-us.html?searchResultPosition=3
+
+**‘She Wanted to Celebrate by Eating at Her Favorite Hot Pot Restaurant’**\
+`A long walk to Queens, a sidewalk singalong and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2022/07/03/nyregion/metropolitan-diary.html?searchResultPosition=4
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2022/07/03/crosswords/spelling-bee-forum.html?searchResultPosition=5
+
 **Corrections: July 3, 2022**\
 `Corrections that appeared in print on Sunday, July 3, 2022.`\
-https://nytimes.com/2022/07/03/pageoneplus/corrections-july-3-2022.html?searchResultPosition=1
+https://nytimes.com/2022/07/03/pageoneplus/corrections-july-3-2022.html?searchResultPosition=6
 
 **Investigators of War Crimes in Ukraine Face Formidable Challenges**\
 `A slew of international agencies are joining Ukrainian prosecutors to look into accusations of war crimes. It may be the biggest effort ever to hold war criminals to account.`\
-https://nytimes.com/2022/07/03/world/europe/ukraine-war-crimes-russia.html?searchResultPosition=2
+https://nytimes.com/2022/07/03/world/europe/ukraine-war-crimes-russia.html?searchResultPosition=7
 
 **Man Dies After Truck Propelled by Jet Engines Crashes at Michigan Air Show**\
 `The vehicle, called a Shockwave Jet Truck, was racing two planes when it crashed, killing the driver, officials said.`\
-https://nytimes.com/2022/07/02/us/jet-truck-explosion-michigan-air-show.html?searchResultPosition=3
+https://nytimes.com/2022/07/02/us/jet-truck-explosion-michigan-air-show.html?searchResultPosition=8
 
 **Supreme Court Marshal Asks Officials to End Protests at Justices’ Homes**\
 `One official criticized the request, saying that the federal government was primarily responsible for ensuring the safety of justices and their families.`\
-https://nytimes.com/2022/07/02/us/politics/supreme-court-protests-homes.html?searchResultPosition=5
-
-**Uvalde Schools Police Chief Resigns From City Council**\
-`Pete Arredondo announced he was stepping down “to minimize further distractions.”`\
-https://nytimes.com/2022/07/02/us/uvalde-school-police-chief-resigns-city-council.html?searchResultPosition=6
-
-**Thousands of Flights Are Delayed or Canceled as Holiday Travel Kicks Off**\
-`Airlines, dealing with bad weather and staffing shortages, struggle to keep up with high demand over the July 4 weekend.`\
-https://nytimes.com/2022/07/02/business/july-4-weekend-air-travel.html?searchResultPosition=7
-
-**Expansion Pack**\
-`Tom McCoy's Sunday puzzle might be hard to get a handle on, but it’s worth it!`\
-https://nytimes.com/2022/07/02/crosswords/daily-puzzle-2022-07-03.html?searchResultPosition=8
-
-**A Mother and Her 3 Children Are Found Dead in a Minnesota Lake**\
-`The authorities said the case was being investigated as a “possible triple murder-suicide” and was believed to be connected to another suicide on Friday.`\
-https://nytimes.com/2022/07/02/us/minnesota-children-lake-vadnais-homicide.html?searchResultPosition=9
-
-**Palestinians Give U.S. Experts Bullet That Killed Journalist**\
-`Officials believe that the bullet, which killed Shireen Abu Akleh, could hold essential clues as to who is responsible for her death.`\
-https://nytimes.com/2022/07/02/world/middleeast/palestinians-bullet-shireen-abu-akleh.html?searchResultPosition=10
+https://nytimes.com/2022/07/02/us/politics/supreme-court-protests-homes.html?searchResultPosition=10
 
