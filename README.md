@@ -10,8 +10,8 @@ https://nytimes.com/2022/07/03/world/europe/big-ben-london-restoration.html?sear
 `As experimental drugs prove ineffective against increasing dementia cases in the U.S., researchers argue that improving eyesight can have an effect.`\
 https://nytimes.com/2022/07/03/health/dementia-treatment-behavior-eye-care.html?searchResultPosition=3
 
-**Florida Man Charged With Theft in Removal of R2-D2 at Disney Hotel**\
-`David Proudfoot told investigators he applied for a security job at Walt Disney World and hoped to prove himself by highlighting lapses in Disney’s oversight.`\
+**Florida Man Posing as Disney Worker Charged in Removal of R2-D2 at Hotel**\
+`David Proudfoot told investigators he had applied for a security job at Walt Disney World and hoped to prove himself by highlighting lapses in Disney’s oversight.`\
 https://nytimes.com/2022/07/03/us/florida-man-disney-world-r2-d2.html?searchResultPosition=4
 
 **Women who were raped by Russian soldiers yearn for justice.**\
