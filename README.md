@@ -26,8 +26,8 @@ https://nytimes.com/2022/07/03/world/europe/italy-dolomites-glacier-collapse.htm
 `As climate change and government actions lead to water scarcity and desecration, Native American artists send an urgent message.`\
 https://nytimes.com/2022/07/03/arts/design/native-american-art-norby-water.html?searchResultPosition=7
 
-**Police Make Arrest in Copenhagen Mall Shooting**\
-`The police said that several people had been struck at the Field’s shopping center on Sunday, though their conditions were not immediately clear.`\
+**Several Dead in Copenhagen Mall Shooting, Police Say**\
+`The police said that one person was in custody but that it was too early to suggest a motive for the shooting, which happened at the Field’s shopping center on Sunday.`\
 https://nytimes.com/2022/07/03/world/europe/copenhagen-shooting-fields-mall.html?searchResultPosition=8
 
 **Amid Ukraine War, Orchestras Rethink ‘1812 Overture,’ a July 4 Rite**\
