@@ -18,7 +18,7 @@ https://nytimes.com/2022/07/03/us/florida-man-disney-world-r2-d2.html?searchResu
 `Rapes were among the many atrocities Russian troops inflicted on Ukrainian civilians during weeks of occupation in the Kyiv suburbs and elsewhere. But the challenges of prosecuting the assaults are daunting.`\
 https://nytimes.com/2022/07/03/world/europe/women-who-were-raped-by-russian-soldiers-yearn-for-justice.html?searchResultPosition=5
 
-**Peter Brook, Legendary Stage Director of Scale and Humanity, Dies at 97**\
+**Peter Brook, Celebrated Stage Director of Scale and Humanity, Dies at 97**\
 `He was called “the greatest innovator of his generation,” leaving an indelible mark with plays, musicals, opera and a relentless curiosity.`\
 https://nytimes.com/2022/07/03/obituaries/peter-brook-dead.html?searchResultPosition=6
 
