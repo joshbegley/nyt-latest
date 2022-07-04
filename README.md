@@ -1,6 +1,6 @@
 **Chosen Families**\
 `Spending the holiday with those who support you.`\
-https://nytimes.com/2022/07/04/briefing/fourht-of-july-chosen-family.html?searchResultPosition=1
+https://nytimes.com/2022/07/04/briefing/fourth-of-july-chosen-family.html?searchResultPosition=1
 
 **Nathan’s Hot Dog Contest Is Back. Here’s What to Know.**\
 `Joey Chestnut looks to secure his 15th win in the men’s competition, while Michelle Lesco aims to defend her title in the women’s contest.`\
