@@ -6,7 +6,7 @@ https://nytimes.com/video/world/europe/100000008428601/italy-alps-glacier-collap
 `Even before the wave of abortion bans, medical treatment and advice for pregnancy has largely focused on fetal safety over the mother’s.`\
 https://nytimes.com/2022/07/04/world/americas/abortion-pregnancy-health.html?searchResultPosition=2
 
-**Bullet Too Damaged to Say Who Killed Palestinian American Journalist, U.S. Finds**\
+**Bullet Too Damaged to Prove Who Killed Palestinian American Journalist, U.S. Says**\
 `The State Department said Shireen Abu Akleh, the Al Jazeera broadcaster killed in the West Bank in May, was likely hit by shots fired from Israeli military positions.`\
 https://nytimes.com/2022/07/04/world/middleeast/israel-journalist-bullet-shireen-abu-akleh.html?searchResultPosition=3
 
