@@ -1,6 +1,6 @@
 **Brittney Griner to Biden: ‘I’m Terrified I Might Be Here Forever.’**\
 `Griner, the W.N.B.A. star, sent a letter to President Biden on Monday, asking him to help free her from prison in Russia. She has been in custody since February.`\
-https://nytimes.com/2022/07/04/sports/basketball/brittney-griner-russia-letter-biden.html?searchResultPosition=1
+https://nytimes.com/2022/07/04/sports/basketball/brittney-griner-biden-russia.html?searchResultPosition=1
 
 **Another Step Toward Climate Apocalypse**\
 `The Supreme Court does its bit to make the earth unlivable.`\
