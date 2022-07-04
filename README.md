@@ -1,5 +1,5 @@
 **The Mets May Finally Get Their Aces Back**\
-`Jacob deGrom’s first rehab start went well and Max Scherzer is slated to return to the starting rotation on Tuesday. Will that be enough to offset an offensive downturn?`\
+`Jacob deGrom’s first rehab start went well, and Max Scherzer is slated to return to the starting rotation on Tuesday. Will that be enough to offset an offensive downturn?`\
 https://nytimes.com/2022/07/04/sports/baseball/degrom-scherzer-mets.html?searchResultPosition=1
 
 **$2.2 Million Homes in California**\
