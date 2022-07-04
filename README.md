@@ -3,7 +3,7 @@
 https://nytimes.com/2022/07/04/us/clifford-l-alexander-dead.html?searchResultPosition=1
 
 **Watch Live: Biden Speaks After Deadly Shooting at Illinois Parade**\
-`President Biden speaks.`\
+`President Biden delivers remarks at the White House Fourth of July celebration.`\
 https://nytimes.com/video/us/politics/100000008429080/highland-park-parade-shooting-biden-video.html?searchResultPosition=2
 
 **Your Tuesday Briefing: A Mass Shooting Near Chicago**\
