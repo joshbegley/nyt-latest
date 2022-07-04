@@ -1,40 +1,40 @@
-**America Is Failing Refugees, and Itself**\
-`How the United States treats refugees is one of the greatest tests of the American experiment.`\
-https://nytimes.com/video/opinion/100000008423876/american-refugee-policy.html?searchResultPosition=1
+**Tempted by a Jeweled Tiara?**\
+`No longer the exclusive domain of princesses and heiresses, these glittering headpieces get a modern makeover.`\
+https://nytimes.com/2022/07/04/fashion/jewelry-tiaras-sothebys.html?searchResultPosition=1
 
-**No Evidence Copenhagen Mall Shooting Was a Terrorist Act, Police Say**\
-`The suspect was known to mental health services, according to the police. “Our assessment is that these are random victims,” an inspector said.`\
-https://nytimes.com/2022/07/04/world/europe/copenhagen-denmark-mall-shooting.html?searchResultPosition=2
+**Army Bases That Honor Confederate Traitors Could Soon Be Renamed for These Heroes**\
+`The names “embody the best of the United States Army and America,” a commission established by Congress wrote in announcing its choices.`\
+https://nytimes.com/2022/07/04/us/politics/army-bases-confederate-names.html?searchResultPosition=2
 
-**A ‘Moral Role in Society’ and Little Enforcement? You Have This Reporter’s Attention.**\
-`David Fahrenthold of The Times discusses why the world of nonprofit charities is prime for investigative reporting.`\
-https://nytimes.com/2022/07/04/insider/david-fahrenthold-nonprofit-charities.html?searchResultPosition=3
+**Nazi Tapes Provide a Chilling Sequel to the Eichmann Trial**\
+`Sixty years after the execution of Adolf Eichmann, the logistics chief of the Holocaust, an Israeli documentary airs his confessions in his own voice.`\
+https://nytimes.com/2022/07/04/world/middleeast/adolf-eichmann-documentary-israel.html?searchResultPosition=3
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/07/04/crosswords/spelling-bee-forum.html?searchResultPosition=4
+**Jewelry Under the Sun**\
+`As traveling resumes, luxury brands are chasing customers in vacation locations.`\
+https://nytimes.com/2022/07/04/fashion/trends/jewelry-retail-vacation-mykonos-greece.html?searchResultPosition=4
 
-**Longing for Roger Federer at Wimbledon**\
-`Federer said he hoped to return to the tournament he has won eight times before. His absence from the field this year left a void over Wimbledon’s early rounds.`\
-https://nytimes.com/2022/07/04/sports/tennis/roger-federer-wimbledon-return.html?searchResultPosition=5
+**A Refreshing Look at Egypt’s Ancient Pyramids**\
+`A downpour, a dust storm and an encounter with a lively dig team offered a photographer a new perspective on the country’s celebrated tombs.`\
+https://nytimes.com/2022/07/04/travel/egypt-pyramids.html?searchResultPosition=5
 
-**These Truths We Hold—and Share**\
-`Why a culture that has bred cynicism and placed a premium on the performance of virtue is in need of new ideas to build a better America.`\
-https://nytimes.com/2022/07/04/opinion/these-truths-we-holdand-share.html?searchResultPosition=6
+**Two Homes That Nourish a Family’s Many Creative Pursuits**\
+`A businesswoman with a husband, three children, three restaurants and a publishing venture has a home upstate and a studio in Manhattan to make it all work.`\
+https://nytimes.com/2022/07/04/realestate/renters-upper-east-side.html?searchResultPosition=6
 
-**What’s on TV This Week: Macy’s Fireworks and ‘America Outdoors With Baratunde Thurston’**\
-`The annual fireworks display airs on NBC. And a new outdoor adventure series has its debut on PBS.`\
-https://nytimes.com/2022/07/04/arts/television/whats-on-tv-this-week-macys-fireworks-and-america-outdoors-with-baratunde-thurston.html?searchResultPosition=7
+**Jewelry Borrowing Is Back in Style**\
+`The rental service Beekman New York says the return of weddings and social events has given business a boost.`\
+https://nytimes.com/2022/07/04/fashion/trends/jewelry-rental-beekman-new-york.html?searchResultPosition=7
 
-**The World Needs More Than Crumbs From the G7’s Table**\
-`The Group of 7 missed a chance to act, but it’s not too late.`\
-https://nytimes.com/2022/07/04/opinion/g7-food-fuel-crisis.html?searchResultPosition=8
+**Jewelers Court the Superrich, and It Seems to Pay Off**\
+`Luxury brands double down in a strategic shift toward the biggest of the big spenders.`\
+https://nytimes.com/2022/07/04/fashion/jewelry-vip-retail-chanel.html?searchResultPosition=8
 
-**Quotation of the Day: Strategic Shift in Bid to Regain Abortion Rights**\
-`Quotation of the Day for Monday, July 4, 2022.`\
-https://nytimes.com/2022/07/04/todayspaper/quotation-of-the-day-strategic-shift-in-bid-to-regain-abortion-rights.html?searchResultPosition=9
+**Keep Czars Far Away, in Moscow or Mar-a-Lago**\
+`Things worth fighting for on the Fourth of July.`\
+https://nytimes.com/2022/07/04/opinion/ukraine-russia-refugees.html?searchResultPosition=9
 
-**No Corrections: July 4, 2022**\
-`No corrections appeared in print on Monday, July 4, 2022.`\
-https://nytimes.com/2022/07/04/pageoneplus/no-corrections-july-4-2022.html?searchResultPosition=10
+**Updated Covid Shots Are Coming. Will They Be Too Late?**\
+`The government has greenlit new vaccines to defend against the latest Omicron variants. But the shots won’t arrive until the fall, and cases are rising now.`\
+https://nytimes.com/2022/07/04/health/updated-covid-vaccines-omicron.html?searchResultPosition=10
 
