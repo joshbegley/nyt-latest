@@ -1,6 +1,6 @@
 **Police Respond to Incident at Highland Park Fourth of July Parade**\
 `Crowds of people fled after a report of a shooting.`\
-https://nytimes.com/2022/07/04/us/highland-park-shooting-chicago.html?searchResultPosition=1
+https://nytimes.com/2022/07/04/us/highland-park-shooting-illinois.html?searchResultPosition=1
 
 **What I Learned While Talking to Strangers**\
 `Encounters with strangers; U.S. policy in Asia; what the police need; living in nature; artificial intelligence.`\
