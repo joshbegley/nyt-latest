@@ -1,4 +1,4 @@
-**No Terrorism Motive in Copenhagen Mall Shooting, Police Say**\
+**No Evidence Copenhagen Mall Shooting Was a Terrorist Act, Police Say**\
 `The suspect was known to mental health services, according to the police. “Our assessment is that these are random victims,” an inspector said.`\
 https://nytimes.com/2022/07/04/world/europe/copenhagen-denmark-mall-shooting.html?searchResultPosition=1
 
