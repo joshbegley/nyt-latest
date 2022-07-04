@@ -18,23 +18,23 @@ https://nytimes.com/2022/07/04/business/germany-trade-deficit-exports-imports.ht
 `Nina Freeman, a leading indie game designer, infuses her work with a poetic sensibility far from the tone of mainstream shoot-’em-ups.`\
 https://nytimes.com/2022/07/04/style/nina-freeman-video-games.html?searchResultPosition=5
 
-**Police Respond to Shooting at Highland Park Fourth of July Parade**\
-`Crowds of people fled, and officials in the Chicago suburb canceled festivities. It was unclear if anyone had been injured.`\
-https://nytimes.com/2022/07/04/us/highland-park-shooting-illinois.html?searchResultPosition=6
-
 **What I Learned While Talking to Strangers**\
 `Encounters with strangers; U.S. policy in Asia; what the police need; living in nature; artificial intelligence.`\
-https://nytimes.com/2022/07/04/opinion/letters/strangers.html?searchResultPosition=7
+https://nytimes.com/2022/07/04/opinion/letters/strangers.html?searchResultPosition=6
 
 **‘Swimming Wasn’t for Us’**\
 `The nation’s first Black-owned pool club aims to teach hundreds of children to swim this summer, helping to close a dangerous racial gap in the process.`\
-https://nytimes.com/2022/07/04/us/segregation-nile-swim-club.html?searchResultPosition=8
+https://nytimes.com/2022/07/04/us/segregation-nile-swim-club.html?searchResultPosition=7
 
 **A Last-Minute Menu for the Fourth**\
 `Enjoy Hawaiian mac salad alongside burgers, grilled vegetables or huli huli chicken.`\
-https://nytimes.com/2022/07/04/dining/a-last-minute-menu-for-the-fourth.html?searchResultPosition=9
+https://nytimes.com/2022/07/04/dining/a-last-minute-menu-for-the-fourth.html?searchResultPosition=8
 
 **Glacier Collapse in Italy’s Alps Kills Climbers**\
 `Italian officials said that a partial glacier collapse in the Dolomites caused snow, ice and rock to overrun a popular summit route.`\
-https://nytimes.com/video/world/europe/100000008428601/italy-alps-glacier-collapse.html?searchResultPosition=10
+https://nytimes.com/video/world/europe/100000008428601/italy-alps-glacier-collapse.html?searchResultPosition=9
+
+**Where the Risks of Pregnancy Meet Abortion Laws and Health Care**\
+`Even before the wave of abortion bans, medical treatment and advice for pregnancy has largely focused on fetal safety over the mother’s.`\
+https://nytimes.com/2022/07/04/world/americas/abortion-pregnancy-health.html?searchResultPosition=10
 
