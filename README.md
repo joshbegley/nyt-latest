@@ -12,7 +12,7 @@ https://nytimes.com/2022/07/04/world/europe/russia-putin-arrests.html?searchResu
 
 **Watch Live: News Conference on Fourth of July Parade Shooting**\
 `Officials speak about a shooting at a Fourth of July parade in Highland Park, Ill.`\
-https://nytimes.com/video/us/100000008428772/chicago-parade-shooting-live-video.html?searchResultPosition=4
+https://nytimes.com/video/embedded/us/100000008428772/chicago-parade-shooting-live-video.html?searchResultPosition=4
 
 **How to Protect Bristol Bay’s Salmon for the Long Haul**\
 `E.P.A. action, legislation and land conservation together can permanently protect Alaska’s Bristol Bay, the salmon and a way of life.`\
