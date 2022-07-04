@@ -14,8 +14,8 @@ https://nytimes.com/2022/07/04/opinion/salmon-alaska-bristol-bay-pebble-mine.htm
 `Maybelle Blair is still dedicated to including women and girls in baseball. And she still loves the “clicketyclack” sound of baseball cleats on her feet.`\
 https://nytimes.com/2022/07/04/sports/baseball/maybelle-blair-a-league-of-their-own.html?searchResultPosition=4
 
-**People Flee Shooting at Illinois Parade**\
-`Sounds of gunfire at a Fourth of July parade in Highland Park, Ill., caused people to run for safety, officials said.`\
+**Shooting at Fourth of July Parade Leaves Several Dead**\
+`Police said multiple people were killed and dozens were wounded after a gunman opened fire from a rooftop onto a parade in Highland Park, Ill., a suburb of Chicago.`\
 https://nytimes.com/video/us/100000008428808/highland-park-shooting.html?searchResultPosition=5
 
 **For Francis, a Papacy Complicated by the Shadow of Resignation**\
