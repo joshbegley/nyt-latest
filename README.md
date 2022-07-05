@@ -1,40 +1,40 @@
-**Reduced testing and reporting in the U.S. are blurring the real-time look at the pandemic.**\
-`As states report less frequently, changes in the trajectory of the virus are slower to reveal themselves.`\
-https://nytimes.com/2022/07/05/us/covid-testing-data.html?searchResultPosition=1
+**What We Know About the Shooting in Highland Park**\
+`Police detained a person of interest after a manhunt across the Chicago area. The shooting, in which six people were killed, sent a chill across the suburb.`\
+https://nytimes.com/2022/07/05/us/highland-park-shooting-facts.html?searchResultPosition=1
 
-**Can Fashion Still Shock?**\
-`From trompe l’oeil to the metaverse, Schiaparelli, Dior and Iris Van Herpen offer some answers.`\
-https://nytimes.com/2022/07/05/fashion/dior-schiaparelli-iris-van-herpen-couture-2022.html?searchResultPosition=2
+**Lonely Last Days in the Suburban Office Park**\
+`A younger generation wants more urban offices, or at least suburban offices that feel more urban.`\
+https://nytimes.com/2022/07/05/upshot/future-suburban-office-park.html?searchResultPosition=2
 
-**An Embattled N.Y.P.D. Unit**\
-`It turns out that two supervisors of the Special Victims Division were disciplined in recent months amid an internal affairs investigation into misconduct by the department’s leadership.`\
-https://nytimes.com/2022/07/05/nyregion/an-embattled-nypd-unit.html?searchResultPosition=3
+**An N.F.L. Star’s C.T.E. Diagnosis Offers Only Partial Insight**\
+`Demaryius Thomas had C.T.E. when he died in December at 33, but the posthumous diagnosis alone does not explain what role football had in the charismatic N.F.L. star’s quick decline.`\
+https://nytimes.com/2022/07/05/sports/football/demaryius-thomas-cte-nfl.html?searchResultPosition=3
 
-**Will the Abortion Debate Keep Moderate Women in the Democrats’ Camp?**\
-`Worried about inflation and dissatisfied with President Biden, many moderate women have been drifting away from Democrats. Now the party hopes the fight for abortion rights will drive them back.`\
-https://nytimes.com/2022/07/05/us/politics/abortion-roe-midterm-elections-moderate-women.html?searchResultPosition=4
+**His PTSD, and My Struggle to Live With It**\
+`After my partner was brutally beaten on the street, I became one of the many thousands of Americans caring for someone with post-traumatic stress disorder — and our relationship changed forever.`\
+https://nytimes.com/2022/07/05/magazine/ptsd-trauma.html?searchResultPosition=4
 
-**Nuclear Power Gets New Push in U.S., Winning Converts**\
-`With challenges in meeting clean energy goals and new electricity demands, politicians in both parties seek to prolong and even expand reactor use.`\
-https://nytimes.com/2022/07/05/business/energy-environment/nuclear-energy-politics.html?searchResultPosition=5
+**Famous for Happiness, and Limits on Tourism, Bhutan Will Triple Fees to Visit**\
+`As Venice and other European hot spots explore permit systems and daily fees to limit the number of tourists, the tiny Buddhist kingdom will require a $200 tax on international visitors when it reopens this fall.`\
+https://nytimes.com/2022/07/05/travel/bhutan-tourism.html?searchResultPosition=5
 
-**On Conservative Radio, Misleading Message Is Clear: ‘Democrats Cheat’**\
-`Election fraud claims from 2020 are widespread on talk radio, contributing to the belief that the midterm results cannot be trusted.`\
-https://nytimes.com/2022/07/05/business/media/on-conservative-radio-misleading-message-is-clear-democrats-cheat.html?searchResultPosition=6
+**Is Makeup Messing Up My Sunscreen?**\
+`There’s good news and bad news when it comes to sun protection and cosmetics.`\
+https://nytimes.com/2022/07/05/well/sunscreen-makeup-spf.html?searchResultPosition=6
 
-**Britain Gears Up for a Summer of Labor Discontent**\
-`With energy costs and inflation surging, and taxes and the cost of loans increasing, British workers are demanding higher pay and going on strike with a militancy not seen in years.`\
-https://nytimes.com/2022/07/05/world/europe/britain-gears-up-for-a-summer-of-labor-discontent.html?searchResultPosition=7
+**How Wall Street Escaped the Crypto Meltdown**\
+`As cryptocurrency prices plunged and funds failed, strict rules on risky assets helped Wall Street companies sidestep the worst. Retail investors weren’t as lucky.`\
+https://nytimes.com/2022/07/05/business/economy/wall-st-cryptocurrency-prices.html?searchResultPosition=7
 
-**Has Biden’s Top Diplomat in Mexico Gone Too Far, Officials Ask?**\
-`Administration officials fear that the U.S. ambassador’s cozy relationship with the Mexican president has backfired, and may be setting back American interests in the region.`\
-https://nytimes.com/2022/07/05/world/americas/united-states-mexico-diplomacy.html?searchResultPosition=8
+**Veterans of Carter-Era Inflation Warn That Biden Has Few Tools to Tame Prices**\
+`President Biden and Democrats face political peril as costs keep rising and midterm elections loom.`\
+https://nytimes.com/2022/07/05/business/economy/carter-era-inflation-biden.html?searchResultPosition=8
 
-**Amid Scrutiny of N.Y.P.D.’s Sex Crimes Unit, Discipline for Two Former Supervisors**\
-`Inspector Paul J. Saraceno and Sergeant Keri L. Thompson of the Special Victims Division admitted to misconduct and were removed from their posts.`\
-https://nytimes.com/2022/07/05/nyregion/nypd-officers-disciplined-sex-crimes-unit.html?searchResultPosition=9
+**My Wife and I Lied About Our Son’s Death. Can I Come Clean if She Won’t?**\
+`The magazine’s Ethicist columnist on revealing a family secret, complaining about a tour guide and more.`\
+https://nytimes.com/2022/07/05/magazine/lying-overdose-fentanyl-ethics.html?searchResultPosition=9
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/07/05/crosswords/spelling-bee-forum.html?searchResultPosition=10
+**Christian Nationalists Are Excited About What Comes Next**\
+`The way the movement’s leaders see it, Dobbs is just a way station. `\
+https://nytimes.com/2022/07/05/opinion/dobbs-christian-nationalism.html?searchResultPosition=10
 
