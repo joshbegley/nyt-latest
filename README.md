@@ -36,5 +36,5 @@ https://nytimes.com/2022/07/05/dining/skewers-xiao-chi-jie-seattle.html?searchRe
 
 **Watch Live: Police Deliver Update on Fourth of July Parade Shooting**\
 `Authorities hold a news conference a day after detaining a person of interest in the shooting at the Highland Park, Ill., Fourth of July parade.`\
-https://nytimes.com/video/us/100000008429745/highland-shooting-press-conference.html?searchResultPosition=10
+https://nytimes.com/video/embedded/us/100000008429745/highland-shooting-press-conference.html?searchResultPosition=10
 
