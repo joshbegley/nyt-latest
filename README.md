@@ -23,7 +23,7 @@ https://nytimes.com/2022/07/05/podcasts/the-daily/gun-control-violence-law-biden
 https://nytimes.com/article/highland-park-shooting-facts.html?searchResultPosition=6
 
 **Lonely Last Days in the Suburban Office Park**\
-`A younger generation wants more urban offices, or at least suburban offices that feel more urban.`\
+`Yes, downtown offices are struggling. But there is a different kind of emptiness in suburban settings that were already isolated and lightly populated by design.`\
 https://nytimes.com/2022/07/05/upshot/future-suburban-office-park.html?searchResultPosition=7
 
 **An N.F.L. Star’s C.T.E. Diagnosis Offers Only Partial Insight**\
