@@ -1,10 +1,10 @@
+**Alternate-Side Parking Is Back in Full Force: ‘It’s a Pain in the Neck’**\
+`After a hiatus of twice-a-week street cleanings during the pandemic, New York City started enforcing full alternate-side parking rules again.`\
+https://nytimes.com/2022/07/05/nyregion/nyc-alternate-side-parking.html?searchResultPosition=1
+
 **‘Growing Up Getty’ Shakes the Dust Off a Family’s Aristocratic Name**\
 `James Reginato’s new book about the oil baron J. Paul Getty and his many descendants argues that the family isn’t especially dysfunctional — by the standards of the very rich.`\
-https://nytimes.com/2022/07/05/books/review-growing-up-getty-james-reginato.html?searchResultPosition=1
-
-**Two Top Cabinet Ministers Quit as Boris Johnson Battles for Survival**\
-`Rishi Sunak, the chancellor of the Exchequer, and Sajid Javid, the health secretary, both quit in connection with a series of scandals that have raised questions about the prime minister’s judgment and honesty.`\
-https://nytimes.com/2022/07/05/world/europe/johnson-cabinet-rishi-sunak-sajid-javid-resign.html?searchResultPosition=2
+https://nytimes.com/2022/07/05/books/review-growing-up-getty-james-reginato.html?searchResultPosition=2
 
 **Judge Clears Distributors of Blame for Opioid Crisis in Hard Hit County**\
 `Often described as ground zero for the epidemic, the communities of Cabell County and Huntington, W. Va., had opted out of a settlement and lost their case at trial.`\
