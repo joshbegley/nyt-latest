@@ -1,40 +1,40 @@
+**Will the Abortion Debate Keep Moderate Women in the Democrats’ Camp?**\
+`Worried about inflation and dissatisfied with President Biden, many moderate women have been drifting away from Democrats. Now the party hopes the fight for abortion rights will drive them back.`\
+https://nytimes.com/2022/07/05/us/politics/abortion-roe-midterm-elections-moderate-women.html?searchResultPosition=1
+
+**Nuclear Power Gets New Push in U.S., Winning Converts**\
+`With challenges in meeting clean energy goals and new electricity demands, politicians in both parties seek to prolong and even expand reactor use.`\
+https://nytimes.com/2022/07/05/business/energy-environment/nuclear-energy-politics.html?searchResultPosition=2
+
+**On Conservative Radio, Misleading Message Is Clear: ‘Democrats Cheat’**\
+`Election fraud claims from 2020 are widespread on talk radio, contributing to the belief that the midterm results cannot be trusted.`\
+https://nytimes.com/2022/07/05/business/media/on-conservative-radio-misleading-message-is-clear-democrats-cheat.html?searchResultPosition=3
+
+**Britain Gears Up for a Summer of Labor Discontent**\
+`With energy costs and inflation surging, and taxes and the cost of loans increasing, British workers are demanding higher pay and going on strike with a militancy not seen in years.`\
+https://nytimes.com/2022/07/05/world/europe/britain-gears-up-for-a-summer-of-labor-discontent.html?searchResultPosition=4
+
+**Has Biden’s Top Diplomat in Mexico Gone Too Far, Officials Ask?**\
+`Administration officials fear that the U.S. ambassador’s cozy relationship with the Mexican president has backfired, and may be setting back American interests in the region.`\
+https://nytimes.com/2022/07/05/world/americas/united-states-mexico-diplomacy.html?searchResultPosition=5
+
+**Amid Scrutiny of N.Y.P.D.’s Sex Crimes Unit, Discipline for Two Former Supervisors**\
+`Inspector Paul J. Saraceno and Sergeant Keri L. Thompson of the Special Victims Division admitted to misconduct and were removed from their posts.`\
+https://nytimes.com/2022/07/05/nyregion/nypd-officers-disciplined-sex-crimes-unit.html?searchResultPosition=6
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2022/07/05/crosswords/spelling-bee-forum.html?searchResultPosition=7
+
 **Ukraine’s prime minister says rebuilding will cost $750 billion**\
 `World leaders are mapping out the monumental effort to restore a war-battered nation.`\
-https://nytimes.com/2022/07/05/world/europe/ukraines-prime-minister-says-rebuilding-will-cost-750-billion.html?searchResultPosition=1
+https://nytimes.com/2022/07/05/world/europe/ukraines-prime-minister-says-rebuilding-will-cost-750-billion.html?searchResultPosition=8
 
 **No Corrections: July 5, 2022**\
 `No corrections appeared in print on Tuesday, July 5, 2022.`\
-https://nytimes.com/2022/07/05/pageoneplus/no-corrections-july-5-2022.html?searchResultPosition=2
+https://nytimes.com/2022/07/05/pageoneplus/no-corrections-july-5-2022.html?searchResultPosition=9
 
 **Quotation of the Day: Russia Advances in East, but Win Takes Harsh Toll**\
 `Quotation of the Day for Tuesday, July 5, 2022.`\
-https://nytimes.com/2022/07/05/todayspaper/quotation-of-the-day-russia-advances-in-east-but-win-takes-harsh-toll.html?searchResultPosition=3
-
-**Israel’s Coalition Didn’t Fail. It Set a New Bar.**\
-`The departing coalition was created out of necessity — it was the only path to unseat Benjamin Netanyahu — but it almost immediately came under vicious attack.`\
-https://nytimes.com/2022/07/05/opinion/israel-coalition-government-collapse.html?searchResultPosition=4
-
-**Is Liz Cheney Politically Brave? Joe Manchin? Mike Pence? 10 Voters Debate Courage.**\
-`10 Americans talked about leadership and bravery — or the lack of it — in politics today.`\
-https://nytimes.com/interactive/2022/07/05/opinion/focus-group-political-leaders.html?searchResultPosition=5
-
-**‘Get the Stretcher!’ Life and Death on Ukraine’s Front Line.**\
-`On another day of scorched-earth artillery barrages in the east, a team of Ukrainian medics did their best to stabilize and assure the survivors, with the din of war all around.`\
-https://nytimes.com/2022/07/05/world/europe/ukraine-donbas-medics.html?searchResultPosition=6
-
-**In Wimbledon’s Queue, Waiting Is a Pleasure, and the Point**\
-`In a world of online ticketing, camping overnight for tennis seats is an anachronism, but it is also about community and a sense of belonging.`\
-https://nytimes.com/2022/07/05/sports/tennis/wimbledon-queue.html?searchResultPosition=7
-
-**Your Tuesday Briefing**\
-`Russia’s tightening grip in the Donbas.`\
-https://nytimes.com/2022/07/04/briefing/highland-park-shooting-russia-ukraine.html?searchResultPosition=8
-
-**When the Czarinas Ruled the Front Row**\
-`A group of Russian women were once the hottest things at couture, embraced not just by fashion, but by the watching world. Where are they now?`\
-https://nytimes.com/2022/07/04/style/mira-duma-elena-perminova-ukraine.html?searchResultPosition=9
-
-**Mischievous Creature of Folklore**\
-`Malgorzata Nowakowska and Eileen Williams constructed this puzzle all too well.`\
-https://nytimes.com/2022/07/04/crosswords/daily-puzzle-2022-07-05.html?searchResultPosition=10
+https://nytimes.com/2022/07/05/todayspaper/quotation-of-the-day-russia-advances-in-east-but-win-takes-harsh-toll.html?searchResultPosition=10
 
