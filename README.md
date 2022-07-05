@@ -8,7 +8,7 @@ https://nytimes.comhttp://brandedplaylist.nytimes.com/video/embedded/t-brand/100
 
 **Much More Than Bragging Rights at the Next Barbecue Are at Stake**\
 `Neither Tatjana Maria nor Ons Jabeur had been to a Grand Slam singles semifinal until this week. The close friends will play each other at Wimbledon on Thursday for a place in the final.`\
-https://nytimes.com/2022/07/05/sports/tennis/much-more-than-bragging-rights-at-the-next-barbecue-are-at-stake.html?searchResultPosition=3
+https://nytimes.com/2022/07/05/sports/tennis/wimbledon-ons-jabeur-tatjana-maria.html?searchResultPosition=3
 
 **Watch Live: Authorities Give Update on Highland Park Shooting**\
 `Officials are expected to announce charges against the suspect, who killed several people and wounded dozens at a Fourth of July parade.`\
