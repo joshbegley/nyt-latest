@@ -8,7 +8,7 @@ https://nytimes.com/2022/07/05/sports/tennis/much-more-than-bragging-rights-at-t
 
 **Watch Live: Authorities Give Update on Highland Park Shooting**\
 `Officials are expected to announce charges against the suspect, who killed several people and wounded dozens at a Fourth of July parade.`\
-https://nytimes.com/video/us/100000008430600/highland-park-shooting-police-update.html?searchResultPosition=3
+https://nytimes.com/video/embedded/us/100000008430600/highland-park-shooting-police-update.html?searchResultPosition=3
 
 **The suspect and his family had long ties to Highland Park and a troubled past.**\
 `The suspect’s father recently ran for mayor of the city, where the family has had a presence for generations.`\
