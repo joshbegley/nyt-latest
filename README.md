@@ -1,6 +1,6 @@
 **What We Know About the Shooting in Highland Park**\
 `Police detained a person of interest after a manhunt across the Chicago area. The shooting, in which six people were killed, sent a chill across the suburb.`\
-https://nytimes.com/2022/07/05/us/highland-park-shooting-facts.html?searchResultPosition=1
+https://nytimes.com/article/highland-park-shooting-facts.html?searchResultPosition=1
 
 **Lonely Last Days in the Suburban Office Park**\
 `A younger generation wants more urban offices, or at least suburban offices that feel more urban.`\
