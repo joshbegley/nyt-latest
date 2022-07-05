@@ -30,7 +30,7 @@ https://nytimes.com/2022/07/05/nyregion/nypd-officers-disciplined-sex-crimes-uni
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2022/07/05/crosswords/spelling-bee-forum.html?searchResultPosition=8
 
-**Ukraine’s prime minister says rebuilding will cost $750 billion**\
+**Ukraine’s prime minister says rebuilding will cost $750 billion.**\
 `World leaders are mapping out the monumental effort to restore a war-battered nation.`\
 https://nytimes.com/2022/07/05/world/europe/ukraines-prime-minister-says-rebuilding-will-cost-750-billion.html?searchResultPosition=9
 
