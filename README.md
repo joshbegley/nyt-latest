@@ -16,7 +16,7 @@ https://nytimes.com/2022/07/05/briefing/ukraine-chicago-shooting-abortion.html?s
 
 **Sharks Hire Mike Grier as N.H.L.’s First Black General Manager**\
 `Two days before the annual draft, Grier takes over a team in transition: San Jose missed the past three postseasons and recently fired its coach.`\
-https://nytimes.com/2022/07/05/sports/hockey/grier-sharks-nhl.html?searchResultPosition=5
+https://nytimes.com/2022/07/05/sports/hockey/mike-grier-sharks-nhl.html?searchResultPosition=5
 
 **Your Wednesday Briefing: Russia’s Next Offensive**\
 `Plus Boris Johnson’s fight for political survival and Twitter’s lawsuit against India`\
