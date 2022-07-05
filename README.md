@@ -3,7 +3,7 @@
 https://nytimes.com/2022/07/05/world/europe/johnson-cabinet-rishi-sunak-sajid-javid-resign.html?searchResultPosition=1
 
 **Judge Clears Distributors of Blame for Opioid Crisis in Hard Hit County**\
-`Often described as ground zero for the epidemic, the communities of Cabell County and Huntington, W. Va. had opted out of a settlement and lost their case at trial.`\
+`Often described as ground zero for the epidemic, the communities of Cabell County and Huntington, W. Va., had opted out of a settlement and lost their case at trial.`\
 https://nytimes.com/2022/07/05/health/opioids-west-virginia-trial.html?searchResultPosition=2
 
 **At Wimbledon, Novak Djokovic Escapes Against Jannik Sinner**\
