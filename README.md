@@ -1,5 +1,5 @@
 **The suspect and his family had long ties to Highland Park and a troubled past.**\
-`By Robert Chiarito and Maria Cramer`\
+`The suspect’s father recently ran for mayor of the city, where the family has had a presence for generations.`\
 https://nytimes.com/2022/07/05/us/highland-park-suspect-family.html?searchResultPosition=1
 
 **California Woman Pardoned 27 Years After Killing Abuser as a Teen**\
