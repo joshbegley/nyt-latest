@@ -30,11 +30,11 @@ https://nytimes.com/2022/07/05/sports/football/demaryius-thomas-cte-nfl.html?sea
 `After my partner was brutally beaten on the street, I became one of the many thousands of Americans caring for someone with post-traumatic stress disorder — and our relationship changed forever.`\
 https://nytimes.com/2022/07/05/magazine/ptsd-trauma.html?searchResultPosition=8
 
+**Veterans of Carter-Era Inflation Warn That Biden Has Few Tools to Tame Prices**\
+`President Biden and Democrats face political peril as costs keep rising and midterm elections loom.`\
+https://nytimes.com/2022/07/05/business/economy/carter-era-inflation-biden.html?searchResultPosition=9
+
 **Famous for Happiness, and Limits on Tourism, Bhutan Will Triple Fees to Visit**\
 `As Venice and other European hot spots explore permit systems and daily fees to limit the number of tourists, the tiny Buddhist kingdom will require a $200 tax on international visitors when it reopens this fall.`\
-https://nytimes.com/2022/07/05/travel/bhutan-tourism.html?searchResultPosition=9
-
-**Is Makeup Messing Up My Sunscreen?**\
-`There’s good news and bad news when it comes to sun protection and cosmetics.`\
-https://nytimes.com/2022/07/05/well/sunscreen-makeup-spf.html?searchResultPosition=10
+https://nytimes.com/2022/07/05/travel/bhutan-tourism.html?searchResultPosition=10
 
