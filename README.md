@@ -1,5 +1,5 @@
 **Two Top Cabinet Ministers Quit as Boris Johnson Battles for Survival**\
-`Rishi Sunak, the chancellor of the Exchequer, and Sajid Javid, the health secretary, both quit in connection with a series of scandals that have raised questions about the primeminister’s judgment and honesty.`\
+`Rishi Sunak, the chancellor of the Exchequer, and Sajid Javid, the health secretary, both quit in connection with a series of scandals that have raised questions about the prime minister’s judgment and honesty.`\
 https://nytimes.com/2022/07/05/world/europe/johnson-cabinet-rishi-sunak-sajid-javid-resign.html?searchResultPosition=1
 
 **Judge Clears Distributors of Blame for Opioid Crisis in Hard Hit County**\
