@@ -31,7 +31,7 @@ https://nytimes.com/2022/07/05/sports/tennis/kyrgios-assault-wimbledon.html?sear
 https://nytimes.com/2022/07/05/world/europe/chris-pincher-boris-johnson.html?searchResultPosition=8
 
 **Watch Live: Authorities Give Update on Highland Park Shooting**\
-`Officials say the 21-year-old man in custody appeared to have spent weeks planning the attack before killing several people and wounding dozens.`\
+`Officials say the 21-year-old man in custody appeared to have spent weeks planning the attack before killing several people and wounding dozens. Video courtesy of ABC7 Chicago`\
 https://nytimes.com/video/us/100000008429958/highland-park-shooting-press-conference.html?searchResultPosition=9
 
 **Here is what we know about the victims of the Highland Park shooting.**\
