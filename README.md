@@ -32,7 +32,7 @@ https://nytimes.com/2022/07/05/world/europe/chris-pincher-boris-johnson.html?sea
 
 **Watch Live: Authorities Give Update on Highland Park Shooting**\
 `Officials say the 21-year-old man in custody appeared to have spent weeks planning the attack before killing several people and wounding dozens. Video courtesy of ABC7 Chicago`\
-https://nytimes.com/video/us/100000008429958/highland-park-shooting-press-conference.html?searchResultPosition=9
+https://nytimes.com/video/embedded/us/100000008429958/highland-park-shooting-press-conference.html?searchResultPosition=9
 
 **Here is what we know about the victims of the Highland Park shooting.**\
 `A seventh person died on Tuesday. More than 30 people were wounded.`\
