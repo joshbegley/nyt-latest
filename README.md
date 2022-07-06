@@ -24,7 +24,7 @@ https://nytimes.com/2022/07/06/movies/fire-of-love-review-a-volcanic-romance.htm
 
 **Watch Live: Boris Johnson Answers Questions From Parliament**\
 `The British prime minister faces questioning in Parliament a day after two senior ministers quit unexpectedly.`\
-https://nytimes.com/video/world/europe/100000008431174/boris-johnson-parliament-live-video.html?searchResultPosition=7
+https://nytimes.com/video/embedded/world/europe/100000008431174/boris-johnson-parliament-live-video.html?searchResultPosition=7
 
 **Parents of 8-Year-Old Were Accused of Her Murder. Now, So Are 12 More People.**\
 `Elizabeth Struhs of Queensland, Australia, died in January because, according to the police, she was denied medical care.`\
