@@ -1,4 +1,4 @@
-**N.Y.C. Ferry System Lost Track of $224 million, Audit Finds**\
+**N.Y.C. Ferry System Lost Track of $224 Million, Audit Finds**\
 `The city’s comptroller, which conducted the audit, said that the semi-independent city agency that runs the ferry network had made decisions resulting in millions of dollars in unnecessary expenses.`\
 https://nytimes.com/2022/07/06/nyregion/nyc-ferry-system-audit.html?searchResultPosition=1
 
