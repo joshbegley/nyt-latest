@@ -7,7 +7,7 @@ https://nytimes.com/2022/07/06/fashion/chanel-armani-couture-2022.html?searchRes
 https://nytimes.com/2022/07/06/world/africa/south-africa-tavern-teen-deaths.html?searchResultPosition=2
 
 **Next Front Line in the Abortion Wars: State Supreme Courts**\
-`Court challenges to sweeping rollbacks of abortion rights must go through state supreme courts, many of which have shaped by years of conservative activism.`\
+`Court challenges to sweeping rollbacks of abortion rights must go through state supreme courts, many of which have been shaped by years of conservative activism.`\
 https://nytimes.com/2022/07/06/us/abortion-state-supreme-courts.html?searchResultPosition=3
 
 **Spelling Bee Forum**\
