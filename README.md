@@ -8,7 +8,7 @@ https://nytimes.com/2022/07/06/world/americas/haiti-jovenel-moise-assassination.
 
 **Fed officials, spooked by data, fretted in June about inflation becoming entrenched.**\
 `Central bankers raised rates by the most since 1994 last month, and minutes from the gathering explained their logic.`\
-https://nytimes.com/2022/07/06/business/06economy-briefing-fed-minutes-june-2022.html?searchResultPosition=3
+https://nytimes.com/2022/07/06/business/fed-minutes-inflation-interest-rates.html?searchResultPosition=3
 
 **China Seeks to Pre-Empt Sanctions in Case of Taiwan Clash, F.B.I. Chief Says**\
 `Looking ahead to a possible conflict, Beijing wants to shield itself from the kind of economic penalties levied against Russia over its invasion of Ukraine, the F.B.I. director says.`\
@@ -30,11 +30,11 @@ https://nytimes.com/2022/07/06/movies/the-minions-comedy.html?searchResultPositi
 `The Lake County, Ill., State’s Attorney said that the man charged with killing seven people in a mass shooting in Highland Park had confessed to the police.`\
 https://nytimes.com/video/us/100000008431693/highland-gunman-bail-confession.html?searchResultPosition=8
 
+**Eric R. Holder Jr. is found guilty of first-degree murder in the 2019 killing of Nipsey Hussle.**\
+`By Joe Coscarelli and Jill Cowan`\
+https://nytimes.com/2022/07/06/arts/music/a-jury-found-eric-r-holder-jr-guilty-of-first-degree-murder-in-the-2019-killing-of-nipsey-hussle.html?searchResultPosition=9
+
 **Man Who Shot the Rapper Nipsey Hussle Is Convicted of Murder**\
 `A jury found Eric R. Holder Jr. guilty of first-degree murder for the 2019 killing of Hussle, an artist who devoted his adult life to championing his South Los Angeles neighborhood.`\
-https://nytimes.com/2022/07/06/arts/music/nipsey-hussle-trial-verdict.html?searchResultPosition=9
-
-**The Latin of Software Code Is Thriving**\
-`Next time you laugh at musty old tech, remember that new technologies are often built on it.`\
-https://nytimes.com/2022/07/06/technology/cobol-jobs.html?searchResultPosition=10
+https://nytimes.com/2022/07/06/arts/music/nipsey-hussle-trial-verdict.html?searchResultPosition=10
 
