@@ -1,4 +1,4 @@
-**Before Parade Shooting, Highland Park Was Considered Chicago’s ‘Mayberry’**\
+**Before Shooting, Highland Park Was Considered Chicago’s ‘Mayberry’**\
 `Intended from the start as an oasis, the suburb is struggling to comprehend its new identity as the latest site of a mass shooting`\
 https://nytimes.com/2022/07/05/us/highland-park-chicago-shooting.html?searchResultPosition=1
 
