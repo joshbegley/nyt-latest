@@ -1,40 +1,40 @@
-**Most Americans Say Life is Starting to Return to Pre-Covid Normal, a Poll Shows**\
-`In the survey, 54 percent of adults said their lives are somewhat the same.`\
-https://nytimes.com/2022/07/06/health/covid-poll.html?searchResultPosition=1
+**Gardiner, N.Y.: Open Space and Mountain Views in Ulster County**\
+`The 50-mile Shawangunk Ridge is just one of the reasons New Yorkers are flocking to this Ulster County town, which is also prized for its wide-open spaces.`\
+https://nytimes.com/2022/07/06/realestate/gardiner-ny-open-space-and-mountain-views-in-ulster-county.html?searchResultPosition=1
 
-**Global factors outweigh British political turmoil as stocks and the pound rise.**\
-`For financial markets, the long-running trends of rising inflation, worsening energy security and a weakening growth outlook overshadow the sudden political upheaval.`\
-https://nytimes.com/2022/07/06/world/europe/uk-stocks-pound.html?searchResultPosition=2
+**The Shrinking of the Middle-Class Neighborhood**\
+`Americans are increasingly living in areas that are either much richer or much poorer than the regional norm.`\
+https://nytimes.com/2022/07/06/us/economic-segregation-income.html?searchResultPosition=2
 
-**Toy Stories at Chanel and Armani**\
-`Plus Paco Rabanne’s plastic-fantastic dystopian dressing.`\
-https://nytimes.com/2022/07/06/fashion/chanel-armani-couture-2022.html?searchResultPosition=3
+**Living In ... Gardiner, N.Y.**\
+`The 50-mile Shawangunk Ridge is just one reason New Yorkers are flocking to this Ulster County town, which is also prized for its wide-open spaces.`\
+https://nytimes.com/slideshow/2022/07/06/realestate/living-in-gardiner-ny.html?searchResultPosition=3
 
-**South African Teens Recall Choking Gas, a Stampede and One Exit**\
-`Teenagers inside a tavern where 21 died one June night recall a mysterious gas and then a crush to escape. Community members blame the tavern owner, and the police for failing to respond.`\
-https://nytimes.com/2022/07/06/world/africa/south-africa-tavern-teen-deaths.html?searchResultPosition=4
+**Pass the Chowder, and the Curry: Jamaican Chefs Add to Cape Cod’s Culinary Delights**\
+`Thanks to Jamaican seasonal workers, the taste of Cape Cod now extends beyond the known lineup of Yankee favorites, to golden patties, jerk-rubbed meats and turmeric-rich curries.`\
+https://nytimes.com/2022/07/06/travel/cape-cod-jamaican-food.html?searchResultPosition=4
 
-**Next Front Line in the Abortion Wars: State Supreme Courts**\
-`Court challenges to sweeping rollbacks of abortion rights must go through state supreme courts, many of which have been shaped by years of conservative activism.`\
-https://nytimes.com/2022/07/06/us/abortion-state-supreme-courts.html?searchResultPosition=5
+**The Rise of the Far-Right Latina**\
+`Representative Mayra Flores is one of three Republican Latinas vying to transform South Texas politics by shunning moderates and often embracing the extreme.`\
+https://nytimes.com/2022/07/06/us/politics/mayra-flores-latina-republicans.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/07/06/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**China Offers Women Perks for Having Babies. Single Moms Don’t Qualify.**\
+`Beijing is giving incentives to stem a demographic crisis, but its control over childbirth and its suppression of women’s rights are making it difficult for some aspiring parents to start a family.`\
+https://nytimes.com/2022/07/06/business/economy/china-reproductive-rights-women.html?searchResultPosition=6
 
-**Tell Me if You’ve Heard This Story Before**\
-`The deaths of migrants in Melilla, a Spanish enclave in northern Morocco, is gut-wrenching.`\
-https://nytimes.com/2022/07/06/opinion/melilla-morocco-europe-migrants.html?searchResultPosition=7
+**In Your Enthusiasm for Planting, Don’t Forget About the Trees**\
+`Trees can take a lot of punishment, but they have their limits. Here’s how to work around them safely.`\
+https://nytimes.com/2022/07/06/realestate/in-your-enthusiasm-for-planting-dont-forget-about-the-trees.html?searchResultPosition=7
 
-**How War in Ukraine Roiled Russia’s ‘Coolest Company’**\
-`The decline of Yandex, the Russian version of Google, is emblematic of the economic and cultural troubles spawned by the invasion.`\
-https://nytimes.com/2022/07/06/world/europe/ukraine-russia-yandex-google.html?searchResultPosition=8
+**How One Restaurateur Transformed America’s Energy Industry**\
+`Charif Souki’s longshot bet on liquid natural gas, or L.N.G., paid off handsomely — and turned the United States into a leading fossil-fuel exporter.`\
+https://nytimes.com/2022/07/06/magazine/us-export-liquid-natural-gas.html?searchResultPosition=8
 
-**The Knicks Stumbled Last Season. Here’s How They Can Recover.**\
-`With free agency beginning, the Knicks have several options to build on what’s working and to move on from what is not.`\
-https://nytimes.com/2022/07/06/sports/basketball/knicks-free-agency.html?searchResultPosition=9
+**With Housing Limited, a Gecko and a Possum Family Became Roommates**\
+`They won’t eat each other, and the family of marsupials does not seem to mind that the lizard is using them for warmth.`\
+https://nytimes.com/2022/07/06/science/gecko-possums-roommates.html?searchResultPosition=9
 
-**What’s the Most Curious and Fraught Job in Tennis?**\
-`Coaches in tennis have one of the odder existences in sports. Some players go for long periods without even using one, and others change coaches like socks.`\
-https://nytimes.com/2022/07/06/sports/tennis/halep-mouratoglou-williams-coach.html?searchResultPosition=10
+**Disinformation Has Become Another Untouchable Problem in Washington**\
+`Numerous federal agencies agree that widely promoted falsehoods threaten the nation’s security. Doing something about them is another matter.`\
+https://nytimes.com/2022/07/06/business/disinformation-board-dc.html?searchResultPosition=10
 
