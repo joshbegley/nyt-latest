@@ -1,40 +1,40 @@
+**Russia says Brittney Griner could appeal the verdict in her drug smuggling case.**\
+`“No one is stopping Brittney Griner from making use of the appeal procedure,” a Foreign Ministry spokesman said.`\
+https://nytimes.com/2022/07/06/world/europe/brittney-griner-verdict-russia.html?searchResultPosition=1
+
 **Jan. 6 Panel Secures Deal to Hear Testimony From Cipollone**\
 `The former White House counsel pushed back on President Donald J. Trump’s efforts to overturn the 2020 election and was in the West Wing to witness his actions on Jan. 6, 2021.`\
-https://nytimes.com/2022/07/06/us/politics/pat-cipollone-jan-6-testimony.html?searchResultPosition=1
+https://nytimes.com/2022/07/06/us/politics/pat-cipollone-jan-6-testimony.html?searchResultPosition=2
 
 **Boris Johnson Says He Is Determined to ‘Keep Going’**\
 `The British prime minister vowed to fight on as he faced calls to step down following recent scandals and the resignation of several government officials.`\
-https://nytimes.com/video/world/europe/100000008431374/boris-johnson-parliament-uk.html?searchResultPosition=2
+https://nytimes.com/video/world/europe/100000008431374/boris-johnson-parliament-uk.html?searchResultPosition=3
 
 **Judge Holds Real Estate Firm in Contempt in New York Trump Inquiry**\
 `The firm, Cushman & Wakefield, appraised the value of several of the former president’s properties that are at the center of a civil investigation by the attorney general’s office.`\
-https://nytimes.com/2022/07/06/nyregion/trump-contempt-cushman-wakefield.html?searchResultPosition=3
+https://nytimes.com/2022/07/06/nyregion/trump-contempt-cushman-wakefield.html?searchResultPosition=4
 
 **Britain’s Former Health Secretary Says ‘the Problem Starts at the Top’**\
 `A day after stepping down as Britain’s health secretary, Sajid Javid said the events of recent months had made it “increasingly difficult” to be in Prime Minister Boris Johnson’s cabinet.`\
-https://nytimes.com/video/world/europe/100000008431296/sajid-javid-resignation-uk.html?searchResultPosition=4
+https://nytimes.com/video/world/europe/100000008431296/sajid-javid-resignation-uk.html?searchResultPosition=5
 
 **These New Breastfeeding Guidelines Ignore the Reality of Many American Moms**\
 `On the heels of Roe being overturned, a formula shortage and the failure to pass the PUMP Act, the recommendation to breastfeed for ‘two years or beyond’ was ill-timed.`\
-https://nytimes.com/2022/07/06/opinion/breastfeeding-guidelines.html?searchResultPosition=5
+https://nytimes.com/2022/07/06/opinion/breastfeeding-guidelines.html?searchResultPosition=6
 
 **They Loved Volcanoes and Each Other**\
 `A new documentary examines the work and lives of the French volcanologists Katia and Maurice Krafft, helped mightily by their own magnificent footage.`\
-https://nytimes.com/2022/07/06/movies/fire-of-love-maurice-katia-krafft.html?searchResultPosition=6
+https://nytimes.com/2022/07/06/movies/fire-of-love-maurice-katia-krafft.html?searchResultPosition=7
 
 **When Paying Dues Doesn’t Pay the Rent, How Does the Theater Survive?**\
 `Frank talk about salaries and the end of unpaid internships are positive steps, but the cost may be fewer opportunities to learn the ropes.`\
-https://nytimes.com/2022/07/06/theater/pay-equity-salaries.html?searchResultPosition=7
+https://nytimes.com/2022/07/06/theater/pay-equity-salaries.html?searchResultPosition=8
 
 **Summer Reading Contest Winner Week 2: On ‘Why Strangers Are Good for Us’**\
 `Thank you to the teenagers who participated this week, and congratulations to our winner, Sophene, as well as our many runners-up and honorable mentions`\
-https://nytimes.com/2022/07/06/learning/summer-reading-contest-winner-week-2-on-why-strangers-are-good-for-us.html?searchResultPosition=8
+https://nytimes.com/2022/07/06/learning/summer-reading-contest-winner-week-2-on-why-strangers-are-good-for-us.html?searchResultPosition=9
 
 **‘I Don’t Want to Help Him’: Joe Rogan Says He Refused Trump as a Podcast Guest**\
 `The commentator, who is no stranger to controversy, claimed he had declined several times to have the former president on his influential podcast on Spotify.`\
-https://nytimes.com/2022/07/06/business/joe-rogan-donald-trump.html?searchResultPosition=9
-
-**A Darkened Outlook for Britain**\
-`The political instability comes as Britain gears up for a difficult summer, amid surging energy prices and labor shortages.`\
-https://nytimes.com/2022/07/06/business/dealbook/uk-britain-economy-boris-johnson.html?searchResultPosition=10
+https://nytimes.com/2022/07/06/business/joe-rogan-donald-trump.html?searchResultPosition=10
 
