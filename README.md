@@ -26,8 +26,8 @@ https://nytimes.com/2022/07/06/us/politics/pat-cipollone-jan-6-testimony.html?se
 `The British prime minister vowed to fight on as he faced calls to step down following recent scandals and the resignation of several government officials.`\
 https://nytimes.com/video/world/europe/100000008431374/boris-johnson-parliament-uk.html?searchResultPosition=7
 
-**Judge Holds Real Estate Firm in Contempt in New York Trump Inquiry**\
-`The firm, Cushman & Wakefield, appraised the value of several of the former president’s properties that are at the center of a civil investigation by the attorney general’s office.`\
+**Real Estate Firm Tied to Trump Inquiry Fined for Contempt of Court**\
+`The firm, Cushman & Wakefield, was ordered to pay $10,000 a day until it complies with a subpoena. It appraised several Trump properties that are at the center of the New York attorney general’s investigation.`\
 https://nytimes.com/2022/07/06/nyregion/trump-contempt-cushman-wakefield.html?searchResultPosition=8
 
 **Britain’s Former Health Secretary Says ‘the Problem Starts at the Top’**\
