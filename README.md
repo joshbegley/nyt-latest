@@ -6,8 +6,8 @@ https://nytimes.com/video/world/africa/100000008431297/south-africa-teens-tavern
 `Activists are gluing themselves to the frames of iconic paintings. They say it does not matter whether their actions are popular — only whether they are noticed.`\
 https://nytimes.com/2022/07/06/arts/design/museums-climate-protests.html?searchResultPosition=2
 
-**Can’t Find the Right Bra? Try Tape Instead.**\
-`Stylists long have turned to tape to achieve a lifted look. Now the products gaining popularity off the red carpet.`\
+**When a Bra Won’t Cut It**\
+`For outfits that call for more than your typical undergarments, there’s tape.`\
 https://nytimes.com/2022/07/06/style/boob-tape.html?searchResultPosition=3
 
 **Job openings eased, in a sign of the cooling labor market.**\
