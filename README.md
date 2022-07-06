@@ -3,7 +3,7 @@
 https://nytimes.com/2022/07/05/world/europe/boris-johnson-cabinet-resignations.html?searchResultPosition=1
 
 **Highland Park Shooting Suspect Charged With 7 Counts of Murder**\
-`Eric F. Rinehart, the Lake County state’s attorney, said his office had charged a man with seven counts of murder in connection with the deaths of seven people at a Fourth of July parade in Highland Park, Ill.`\
+`Eric F. Rinehart, the Lake County state’s attorney, said his office had charged a man with seven counts of murder in connection with the deaths at a Fourth of July parade in Highland Park, Ill.`\
 https://nytimes.com/video/us/100000008430824/highland-park-shooting-suspect-charges.html?searchResultPosition=2
 
 **Hudson River Tunnel Project Moves Ahead as States Agree to Share Costs**\
