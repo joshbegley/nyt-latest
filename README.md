@@ -1,5 +1,5 @@
 **Mass Funeral Held For Teenagers Killed in South Africa Tavern**\
-`Mourners gathered to remember the 21 teenagers who died in a crowded tavern in East London, South Africa, last month, as investigators continued working to unravel what caused their deaths.`\
+`Mourners, including President Cyril Ramaphosa, gathered to remember the 21 teenagers who died in a crowded tavern in East London, South Africa, last month, as investigators continued working to unravel what caused their deaths.`\
 https://nytimes.com/video/world/africa/100000008431297/south-africa-teens-tavern-funeral.html?searchResultPosition=1
 
 **U.K. Museums Face a Sticky Problem From Climate Protests**\
