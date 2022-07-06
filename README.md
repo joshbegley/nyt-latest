@@ -22,7 +22,7 @@ https://nytimes.com/2022/07/06/business/biden-student-loan-relief-programs.html?
 `The F.D.A. has suspended its order to stop the company from selling its vaping products.`\
 https://nytimes.com/2022/07/06/health/juul-fda-ecigarettes.html?searchResultPosition=6
 
-**Mass Funeral Held For Teenagers Killed in South Africa Tavern**\
+**Mass Funeral Held for Teenagers Killed in South Africa Tavern**\
 `Mourners, including President Cyril Ramaphosa, gathered to remember the 21 teenagers who died in a crowded tavern in East London, South Africa, last month, as investigators continued working to unravel what caused their deaths.`\
 https://nytimes.com/video/world/africa/100000008431297/south-africa-teens-tavern-funeral.html?searchResultPosition=7
 
