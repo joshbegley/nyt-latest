@@ -1,40 +1,40 @@
+**The Economy Is Already Cooling, So Why Is the Fed Dousing It With Cold Water?**\
+`The bank’s aggressive rate-raising could lead to a recession.`\
+https://nytimes.com/2022/07/06/opinion/inflation-fed-recession-deflation.html?searchResultPosition=1
+
 **The Thirst for Merch**\
 `Virgil Abloh fans, art lovers and resellers flocked to the opening of “Figures of Speech” at the Brooklyn Museum, hoping to take home a piece of fashion history.`\
-https://nytimes.com/2022/07/06/style/virgil-abloh-museum-merchandise.html?searchResultPosition=1
+https://nytimes.com/2022/07/06/style/virgil-abloh-museum-merchandise.html?searchResultPosition=2
 
 **80 million Americans are under heat warnings or advisories.**\
 `Overnight temperatures won’t drop off during the heat wave as much as usual, raising concerns about the health of vulnerable people.`\
-https://nytimes.com/2022/07/06/us/heat-midwest-forecast-temperatures.html?searchResultPosition=2
+https://nytimes.com/2022/07/06/us/heat-midwest-forecast-temperatures.html?searchResultPosition=3
 
-**‘Son of Elsewhere,’ a Funny and Frank Story About Life After a Big Move**\
+**‘Son of Elsewhere,’ a Funny and Frank Story About Teenage Life After a Big Move**\
 `In his “memoir in pieces,” Elamin Abdelmahmoud writes about the years after he and his family emigrated from Sudan to Canada when he was 12.`\
-https://nytimes.com/2022/07/06/books/review-son-of-elsewhere-elamin-abdelmahmoud.html?searchResultPosition=3
+https://nytimes.com/2022/07/06/books/review-son-of-elsewhere-elamin-abdelmahmoud.html?searchResultPosition=4
 
 **A Neurologist’s Tips to Protect Your Memory**\
 `A new book by a renowned brain expert says there are a few simple things we can do to prevent memory decline as we age.`\
-https://nytimes.com/2022/07/06/well/mind/memory-loss-prevention.html?searchResultPosition=4
+https://nytimes.com/2022/07/06/well/mind/memory-loss-prevention.html?searchResultPosition=5
 
 **Ethnic Killings in Ethiopia Add to Crisis**\
 `Allegations of a second recent ethnic massacre in the restive region of Oromia further destabilize a country already coping with civil war in a northern region.`\
-https://nytimes.com/2022/07/06/world/africa/ethiopia-ethnic-massacres.html?searchResultPosition=5
+https://nytimes.com/2022/07/06/world/africa/ethiopia-ethnic-massacres.html?searchResultPosition=6
 
 **A Year Since a President’s Murder, Haitians Keep Waiting to Hit Rock Bottom**\
 `In the year since President Jovenel Moïse was killed, the country’s despair has deepened. Gangs now vie with the government for control.`\
-https://nytimes.com/2022/07/06/world/americas/haiti-jovenel-moise-assassination.html?searchResultPosition=6
+https://nytimes.com/2022/07/06/world/americas/haiti-jovenel-moise-assassination.html?searchResultPosition=7
 
 **Fed officials, spooked by data, fretted in June about inflation becoming entrenched.**\
 `Central bankers raised rates by the most since 1994 last month, and minutes from the gathering explained their logic.`\
-https://nytimes.com/2022/07/06/business/fed-minutes-inflation-interest-rates.html?searchResultPosition=7
+https://nytimes.com/2022/07/06/business/fed-minutes-inflation-interest-rates.html?searchResultPosition=8
 
 **China Seeks to Pre-Empt Sanctions in Case of Taiwan Clash, F.B.I. Chief Says**\
 `Looking ahead to a possible conflict, Beijing wants to shield itself from the kind of economic penalties levied against Russia over its invasion of Ukraine, the F.B.I. director says.`\
-https://nytimes.com/2022/07/06/world/asia/fbi-china-taiwan-sanctions.html?searchResultPosition=8
+https://nytimes.com/2022/07/06/world/asia/fbi-china-taiwan-sanctions.html?searchResultPosition=9
 
 **Global oil prices dip below $100, a sign that recession fears are taking hold.**\
 `Oil prices have been slipping over the last two weeks, but the drop has accelerated in recent days.`\
-https://nytimes.com/2022/07/06/business/energy-environment/oil-prices-decline.html?searchResultPosition=9
-
-**Photos: Battling the Electra fire in Northern California.**\
-`The wildfire is burning 50 miles southeast of Sacramento in the Sierra Nevada foothills`\
-https://nytimes.com/2022/07/06/us/electra-fire-photos-california.html?searchResultPosition=10
+https://nytimes.com/2022/07/06/business/energy-environment/oil-prices-decline.html?searchResultPosition=10
 
