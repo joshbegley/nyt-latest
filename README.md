@@ -1,4 +1,4 @@
-**Former President of U.S.A. Softball Accused of Abusing Minor**\
+**Former President of U.S.A. Softball Accused of Abusing Minors**\
 `The Sacramento County Sheriff’s Office said the allegations were not related to the softball federation itself.`\
 https://nytimes.com/2022/07/06/sports/usa-softball-abuse.html?searchResultPosition=1
 
