@@ -1,6 +1,6 @@
 **More officials resign, including a minister who defended Johnson two days earlier.**\
-`By Mark Landler and Tess Felder`\
-https://nytimes.com/2022/07/06/world/europe/another-minister-resigns-two-days-after-defending-johnson.html?searchResultPosition=1
+`Will Quince and Robin Walker, former supporters of the prime minister, said the events of recent days had changed their views.`\
+https://nytimes.com/2022/07/06/world/europe/will-quince-boris-johnson.html?searchResultPosition=1
 
 **How to Turn Third Parties from Spoilers to Winners**\
 `A way for dismayed voters in the middle to get a voice.`\
