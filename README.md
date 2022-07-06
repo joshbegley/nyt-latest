@@ -35,6 +35,6 @@ https://nytimes.com/2022/07/06/world/europe/ukraine-war-refugees-displaced.html?
 https://nytimes.com/2022/07/06/podcasts/modern-love-nanny-new-york.html?searchResultPosition=9
 
 **Yankees’ Update on Aaron Judge: There Will Be No Updates**\
-`Hal Steinbrenner, the team’s managing general partner, said that he did not want any contract-related distractions while the team pursued a championship (and that he wouldn’t mind more pitching).`\
+`Hal Steinbrenner, the team’s managing general partner, said that he also did not want any contract-related distractions while the team pursued a championship (and that he wouldn’t mind more pitching).`\
 https://nytimes.com/2022/07/06/sports/baseball/hal-steinbrenner-yankees.html?searchResultPosition=10
 
