@@ -1,4 +1,4 @@
-**Beijing Introduces a Local Vaccine Pass, Urges Older People to Get Shots**\
+**Beijing Introduces a Local Vaccine Pass and Urges Older People to Get Shots**\
 `The city announced the change months after other countries had put vaccine passports in place.`\
 https://nytimes.com/2022/07/07/world/beijing-vaccine-pass.html?searchResultPosition=1
 
