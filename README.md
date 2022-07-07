@@ -1,5 +1,5 @@
 **Donna Ferrato’s Camera Is a Weapon for Women**\
-`Best known for unmasking domestic violence, the pathbreaking photojournalist has a show timed to coincide with the fate of Roe v. Wade.`\
+`Best known for unmasking domestic violence, the pathbreaking photojournalist has a show timed to coincide with the reversal of Roe v. Wade.`\
 https://nytimes.com/2022/07/07/arts/design/donna-ferrato-photographs-holy.html?searchResultPosition=1
 
 **Inside a New Arts Program for Queens Teens**\
