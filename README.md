@@ -6,7 +6,7 @@ https://nytimes.com/2022/07/07/arts/music/jazz-camp-for-girls.html?searchResultP
 `“The United States is no longer ‘the land of the free,’ at least not for me, not for people with a uterus,” a college student writes. Also: Exodus from New York.`\
 https://nytimes.com/2022/07/07/opinion/letters/abortion-roe-v-wade-dobbs.html?searchResultPosition=2
 
-**A Whale Feeding Frenzy in Antarctica Points to a Conservation Success**\
+**A Whale Feeding Frenzy in Antarctica Signals a Conservation Success**\
 `Once hunted to the brink of extinction, fin whales in the Southern Ocean have rebounded and returned to their historic feeding grounds, according to a new survey.`\
 https://nytimes.com/2022/07/07/climate/fin-whales-antarctica.html?searchResultPosition=3
 
