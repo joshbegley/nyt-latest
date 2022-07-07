@@ -14,7 +14,7 @@ https://nytimes.com/2022/07/07/podcasts/the-daily/anti-abortion-roe-v-wade.html?
 `The city announced the change months after other countries had put vaccine passports in place.`\
 https://nytimes.com/2022/07/07/world/beijing-vaccine-pass.html?searchResultPosition=4
 
-**Russian diplomat criticizes Biden ‘hype’ over Brittney Griner as the W.N.B.A. star’s trial resumes.**\
+**A Russian diplomat criticizes Biden ‘hype’ over Brittney Griner as the W.N.B.A. star’s trial resumes.**\
 `Sergei A. Ryabkov, the deputy foreign minister, said that publicity around the basketball player’s case was not helping her interests. U.S. officials said she was essentially a hostage.`\
 https://nytimes.com/2022/07/07/world/europe/brittney-griner-trial.html?searchResultPosition=5
 
