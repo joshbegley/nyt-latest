@@ -2,7 +2,7 @@
 `The director Taika Waititi injects antic silliness, once again, into this Marvel franchise starring Chris Hemsworth, who swings a mighty hammer and flexes mightier muscles.`\
 https://nytimes.com/2022/07/07/movies/thor-love-and-thunder-review.html?searchResultPosition=1
 
-**Rafael Nadal Withdrawing From Wimbledon Ahead of Semifinal Match**\
+**Rafael Nadal Withdraws From Wimbledon Ahead of Semifinal Match**\
 `The 22-time Grand Slam champion tore a muscle in his abdomen earlier in the tournament.`\
 https://nytimes.com/2022/07/07/sports/tennis/nadal-wimbledon.html?searchResultPosition=2
 
