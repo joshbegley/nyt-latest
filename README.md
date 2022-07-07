@@ -20,7 +20,7 @@ https://nytimes.com/2022/07/07/world/europe/boris-johnson-resignation-career.htm
 
 **Bangladesh Sees Jump in Covid Cases Before Eid Celebrations**\
 `The average number of new cases has risen to the highest since February, signaling a new wave. The country’s health system nearly collapsed in August.`\
-https://nytimes.com/2022/07/07/world/asia/bangladesh-eid.html?searchResultPosition=6
+https://nytimes.com/2022/07/07/world/asia/bangladesh-eid-covid.html?searchResultPosition=6
 
 **A Year of Language Play: Our Vocabulary Challenges and How You Can Use Them**\
 `We invited students to invent new words and investigate old ones, tell stories, make videos, draw pictures and take quizzes.`\
