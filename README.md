@@ -1,40 +1,40 @@
+**The Cultural Dread of the Bad Mother**\
+`The narrator of Katixa Agirre’s “Mothers Don’t” obsesses over a distant acquaintance who murdered her two infant children.`\
+https://nytimes.com/2022/07/07/books/review/mothers-dont-katixa-agirre.html?searchResultPosition=1
+
+**Poem: Sister Song**\
+`A longing for and memory of a murdered brother`\
+https://nytimes.com/2022/07/07/magazine/poem-sister-song.html?searchResultPosition=2
+
+**Judge John Hodgman on the Crass Bumper Sticker**\
+`A husband and wife disagree about how to decorate the car.`\
+https://nytimes.com/2022/07/07/magazine/judge-john-hodgman-bumper-sticker.html?searchResultPosition=3
+
+**Can You Answer These Sex Ed Questions? A Post-Roe Quiz**\
+`The key concepts every person should know.`\
+https://nytimes.com/interactive/2022/07/07/opinion/07sexed.html?searchResultPosition=4
+
+**What the BA.5 Subvariant Could Mean for the United States**\
+`The most transmissible variant yet of the coronavirus is threatening a fresh wave of infections in the United States, even among those who have recovered from the virus fairly recently.`\
+https://nytimes.com/interactive/2022/07/07/us/ba5-covid-omicron-subvariant.html?searchResultPosition=5
+
+**A Studio on the East Side of Manhattan for Less Than $500,000? These Were His Options.**\
+`When a Philadelphia-area native headed north to New York, he wanted enough space for a bed and a sofa — and room to do some cooking. Here’s what he found.`\
+https://nytimes.com/interactive/2022/07/07/realestate/11hunt-gimbel.html?searchResultPosition=6
+
 **Blockbusters at Balenciaga and Margiela**\
 `Plus performance art at Viktor & Rolf. Sometimes a fashion show is not just a fashion show.`\
-https://nytimes.com/2022/07/07/fashion/balenciaga-kim-kardashian-nicole-kidman-couture.html?searchResultPosition=1
+https://nytimes.com/2022/07/07/fashion/balenciaga-kim-kardashian-nicole-kidman-couture.html?searchResultPosition=7
 
 **Officials Balked at a Drug Company’s Tax Shelter. Auditors Approved It Anyway.**\
 `Court documents show the potential conflicts of interest when accounting firms simultaneously help clients avoid taxes and audit their finances.`\
-https://nytimes.com/2022/07/07/business/perrigo-omeprazole-taxes-ey.html?searchResultPosition=2
+https://nytimes.com/2022/07/07/business/perrigo-omeprazole-taxes-ey.html?searchResultPosition=8
 
 **It Will Change Your View of African Fashion**\
 `A landmark exhibition at the Victoria and Albert Museum charts the influence of the African fashion scene on the continent.`\
-https://nytimes.com/2022/07/07/style/it-will-change-your-view-of-african-fashion.html?searchResultPosition=3
+https://nytimes.com/2022/07/07/style/it-will-change-your-view-of-african-fashion.html?searchResultPosition=9
 
 **Ken Auletta Finally Wrote the Harvey Weinstein Story He Wanted to Tell**\
 `The New Yorker writer talks about his new Weinstein biography, and the worst person he ever covered. It’s someone else.`\
-https://nytimes.com/2022/07/07/style/ken-auletta-finally-wrote-the-harvey-weinstein-story-he-wanted-to-tell.html?searchResultPosition=4
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/07/07/crosswords/spelling-bee-forum.html?searchResultPosition=5
-
-**On the London Stage, Families in Disarray**\
-`Two new plays, “The Southbury Child” and “Mad House,” explore domestic discord with contrasting degrees of success.`\
-https://nytimes.com/2022/07/07/theater/southbury-child-mad-house.html?searchResultPosition=6
-
-**What the Gateway Deal Means for New Yorkers**\
-`A Times reporter breaks down how the long-stalled Hudson River train tunnel project could help the city, and why it might now actually happen.`\
-https://nytimes.com/2022/07/07/nyregion/what-the-gateway-deal-means-for-new-yorkers.html?searchResultPosition=7
-
-**Boris Johnson Made a Terrible Mistake: He Apologized**\
-`The prime minister’s contrition opened the floodgates.`\
-https://nytimes.com/2022/07/07/opinion/boris-johnson-britain-resignations.html?searchResultPosition=8
-
-**Your Thursday Briefing**\
-`Boris Johnson’s crumbling support.`\
-https://nytimes.com/2022/07/07/briefing/ukraine-displacement-boris-johnson.html?searchResultPosition=9
-
-**For Foreign Fighters in Ukraine, a War Unlike Any They’ve Seen**\
-`Small groups of Western combat veterans are on the front lines, but many more with fewer skills are left trying to find a role to play.`\
-https://nytimes.com/2022/07/07/world/europe/foreign-fighters-ukraine.html?searchResultPosition=10
+https://nytimes.com/2022/07/07/style/ken-auletta-finally-wrote-the-harvey-weinstein-story-he-wanted-to-tell.html?searchResultPosition=10
 
