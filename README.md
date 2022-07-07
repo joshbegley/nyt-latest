@@ -8,7 +8,7 @@ https://nytimes.com/2022/07/07/business/spirit-airlines-frontier-jetblue.html?se
 
 **Biden and the Increasingly Anxious Democrats**\
 `Michael D. Shear, a longtime White House reporter for The New York Times, talks about recent staff turnover in the administration and frustration around the president.`\
-https://nytimes.com/2022/07/07/us/politics/biden-and-the-increasingly-anxious-democrats.html?searchResultPosition=3
+https://nytimes.com/2022/07/07/us/politics/biden-2024-democrats.html?searchResultPosition=3
 
 **That Was the Stagflation That Was**\
 `Markets are sounding the all-clear. Is the Fed listening?`\
