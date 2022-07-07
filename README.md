@@ -32,7 +32,7 @@ https://nytimes.com/2022/07/07/dining/drinks/living-wine-documentary.html?search
 
 **A Hot Dog Pioneer on the Upper East Side Faces a Possible End**\
 `The original Papaya King created the city’s signature combo of franks and tropical fruit juices. But a demolition plan could finish its decades-long reign.`\
-https://nytimes.com/2022/07/07/dining/nyc-papaya-king-hot-doc-closing.html?searchResultPosition=9
+https://nytimes.com/2022/07/07/dining/nyc-papaya-king-hot-dog.html?searchResultPosition=9
 
 **Weekly Health Quiz: Covid-19, Face Blindness and Sunscreen**\
 `Test your knowledge of this week’s health news.`\
