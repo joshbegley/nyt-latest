@@ -1,6 +1,6 @@
 **‘Black Bird’ Review: Making Friends With a May-Be Killer**\
 `Paul Walter Hauser of “Richard Jewell” gives a tour-de-force performance in a mini-series inspired by a true story of serial killings and jailhouse intrigue.`\
-https://nytimes.com/2022/07/07/arts/television/black-bird-review-making-friends-with-a-may-be-killer.html?searchResultPosition=1
+https://nytimes.com/2022/07/07/arts/television/black-bird-review.html?searchResultPosition=1
 
 **‘Murina’ Review: Hunting for Independence on Her Terms**\
 `In this coming-of-age tale set off the rugged Croatian coast, a teenage girl strives to catch elusive eels, one of the movie’s hardworking metaphors.`\
