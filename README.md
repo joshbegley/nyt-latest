@@ -20,7 +20,7 @@ https://nytimes.com/2022/07/07/business/china-police-database-hack.html?searchRe
 
 **Watch Live: Boris Johnson Addresses the Nation**\
 `The British prime minister is expected to step down as Conservative Party leader after recent scandals prompted a wave of resignations from his top officials.`\
-https://nytimes.com/video/world/europe/100000008433009/boris-johnson-announcement-resign-uk.html?searchResultPosition=6
+https://nytimes.com/video/embedded/world/europe/100000008433009/boris-johnson-announcement-resign-uk.html?searchResultPosition=6
 
 **Why Are We Still Talking About Black Mountain College?**\
 `In 1933, a handful of renegade teachers opened a school in rural North Carolina that would go on to shape American art and art education for decades to come.`\
