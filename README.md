@@ -27,7 +27,7 @@ https://nytimes.com/2022/07/08/dining/sheet-pan-chicken-recipe-sour-cherries.htm
 https://nytimes.com/2022/07/08/arts/design/director-guggenheim-richard-armstrong-steps-down.html?searchResultPosition=7
 
 **6 New Paperbacks to Check Out This Week**\
-`tktk`\
+`These titles by Sally Rooney, Matt Bell, and more offer a variety of genres and narratives for any reader.`\
 https://nytimes.com/interactive/2022/07/08/books/review/paperback-row-10.html?searchResultPosition=8
 
 **He’s the N.H.L.’s Next Big Star. He Just Has to Wait a Year.**\
