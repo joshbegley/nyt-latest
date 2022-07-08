@@ -10,7 +10,7 @@ https://nytimes.com/2022/07/08/technology/elon-musk-twitter.html?searchResultPos
 `Is Eric Adams revealing himself to be the man the city needs?`\
 https://nytimes.com/2022/07/08/opinion/eric-adams-mayor-new-york.html?searchResultPosition=3
 
-**How Should I Dress in France?**\
+**How Can I Dress to Not Look Like a Tourist in France?**\
 `A reader is wondering what clothes to pack in her suitcase.`\
 https://nytimes.com/2022/07/08/fashion/clothes-travel-france.html?searchResultPosition=4
 
