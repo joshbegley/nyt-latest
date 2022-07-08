@@ -6,7 +6,7 @@ https://nytimes.com/2022/07/08/sports/soccer/uswnt-qualifies-world-cup.html?sear
 `We look at where most of America’s gun violence happens.`\
 https://nytimes.com/2022/07/08/briefing/gun-violence-america-chicago.html?searchResultPosition=2
 
-**Twitter Is Ready for a Legal Battle to Force Elon Musk to Buy the Company**\
+**Twitter is ready for a legal battle to force Elon Musk to buy the company.**\
 `Mr. Musk has appeared reluctant to proceed with the $44 billion agreement, citing uncertainty about the number of fake accounts on the platform.`\
 https://nytimes.com/2022/07/08/business/musk-twitter-deal.html?searchResultPosition=3
 
