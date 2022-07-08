@@ -1,5 +1,5 @@
-**Assassination rattles peaceful Japan**\
-`By Hikari Hida and Hisako Ueno`\
+**Assassination Rattles Peaceful Japan**\
+`The violence shook the country’s sense of identity as a peaceful country where violent crime is rare. “This is so not Japanese.”`\
 https://nytimes.com/2022/07/08/world/asia/shinzo-abe-assassination-japan.html?searchResultPosition=1
 
 **Biodiversity Crisis Affects Billions Who Rely on Wild Species, Researchers Say**\
