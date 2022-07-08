@@ -1,6 +1,6 @@
 **What happens next for Brittney Griner?**\
-`By Anton Troianovski, Ivan Nechepurenko, Tania Ganguli and Dan Bilefsky`\
-https://nytimes.com/2022/07/08/world/europe/what-happens-next-for-brittney-griner.html?searchResultPosition=1
+`The American basketball star still faces the conviction and sentencing phases of her trial in Russia. But experts say her best hope may be a diplomatic deal between the U.S. and Russia.`\
+https://nytimes.com/2022/07/08/world/europe/brittney-griner-russia.html?searchResultPosition=1
 
 **When Power Dressing Gets Personal**\
 `Redefining the form at Jean Paul Gaultier, Fendi and Vetements.`\
