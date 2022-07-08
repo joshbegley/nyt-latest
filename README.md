@@ -1,4 +1,4 @@
-**Video Shows the Moments After Shinzo Abe Is Shot**\
+**Videos Show the Moments After Shinzo Abe Is Shot**\
 `Footage shared on social media showed the scene after Shinzo Abe, the former prime minister of Japan, collapsed and was left unconscious after he was shot while giving a speech in western Japan.`\
 https://nytimes.com/video/world/asia/100000008434896/japan-shinzo-abe-shooting.html?searchResultPosition=1
 
