@@ -1,40 +1,40 @@
+**Summer Reading Contest, Week 5: What Got Your Attention in The Times This Week?**\
+`To participate, submit your response here by July 15 at 9 a.m. Eastern. This week’s winners will be announced on July 26.`\
+https://nytimes.com/2022/07/08/learning/summer-reading-contest-week-5-what-got-your-attention-in-the-times-this-week.html?searchResultPosition=1
+
 **What to Know About Rolling Over Retirement Accounts**\
 `A new report finds that I.R.A.s may charge seemingly modest higher fees than workplace retirement accounts. But over time, the difference can add up to tens of thousands of dollars.`\
-https://nytimes.com/2022/07/08/your-money/retirement-account-mutual-funds-savings.html?searchResultPosition=1
+https://nytimes.com/2022/07/08/your-money/retirement-account-mutual-funds-savings.html?searchResultPosition=2
 
 **Wages climbed 5.1 percent, a still-rapid pace as Fed awaits slowdown.**\
 `Central bankers are closely watching wage growth, which has been picking up rapidly before accounting for inflation.`\
-https://nytimes.com/2022/07/08/business/wages-climbed-5-1-percent-a-still-rapid-pace-as-fed-awaits-slowdown.html?searchResultPosition=2
+https://nytimes.com/2022/07/08/business/wages-climbed-5-1-percent-a-still-rapid-pace-as-fed-awaits-slowdown.html?searchResultPosition=3
 
 **José Eduardo dos Santos, Longtime Angolan Ruler, Dies at 79**\
 `As Angola’s president for 38 years, Mr. dos Santos ended the country’s civil war. He also launched an economic boom, but it mainly benefited his family and friends.`\
-https://nytimes.com/2022/07/08/world/africa/jose-eduardo-dos-santos-dead.html?searchResultPosition=3
+https://nytimes.com/2022/07/08/world/africa/jose-eduardo-dos-santos-dead.html?searchResultPosition=4
 
 **Boris Johnson Hasn’t Left, but the Jockeying to Replace Him Has Begun**\
 `The Conservative Party must decide not only who should succeed the scandal-tarred British prime minister, but also when he should go.`\
-https://nytimes.com/2022/07/08/world/europe/uk-prime-minister-boris-johnson.html?searchResultPosition=4
+https://nytimes.com/2022/07/08/world/europe/uk-prime-minister-boris-johnson.html?searchResultPosition=5
 
 **Waiting for a Slowdown**\
 `Plus: Elon Musk may be preparing for the next chapter in his Twitter takeover journey — court.`\
-https://nytimes.com/2022/07/08/business/dealbook/jobs-report-june-twitter.html?searchResultPosition=5
+https://nytimes.com/2022/07/08/business/dealbook/jobs-report-june-twitter.html?searchResultPosition=6
 
 **The Historically Black College Reconsiders the Studio Art Program**\
 `After decades of being underfunded, H.B.C.U.s see an opportunity to expand their offerings and foster a new generation of artists.`\
-https://nytimes.com/2022/07/08/t-magazine/hbcu-art-programs.html?searchResultPosition=6
+https://nytimes.com/2022/07/08/t-magazine/hbcu-art-programs.html?searchResultPosition=7
 
 **This Week in Extreme Weather**\
 `A deadly glacier collapse in Italy, Jello-green skies over South Dakota and a warning about Europe's hot future.`\
-https://nytimes.com/interactive/2022/07/08/us/extreme-weather.html?searchResultPosition=7
+https://nytimes.com/interactive/2022/07/08/us/extreme-weather.html?searchResultPosition=8
 
 **Assassination Rattles Peaceful Japan**\
 `The violence shook the country’s sense of identity as a peaceful country where violent crime is rare. “This is so not Japanese.”`\
-https://nytimes.com/2022/07/08/world/asia/shinzo-abe-assassination-japan.html?searchResultPosition=8
+https://nytimes.com/2022/07/08/world/asia/shinzo-abe-assassination-japan.html?searchResultPosition=9
 
 **Biodiversity Crisis Affects Billions Who Rely on Wild Species, Researchers Say**\
 `The latest global assessment of the decline in plant and animal life found some bright spots but recommended significant changes to hunting and other practices to address the risks.`\
-https://nytimes.com/2022/07/08/climate/species-biodiversity-united-nations.html?searchResultPosition=9
-
-**Being Marina Abramović, Even When No One’s Looking**\
-`Despite her success, the performance artist has chosen a monastic life in upstate New York, where she falls asleep to Canadian television and eats baby food.`\
-https://nytimes.com/2022/07/08/t-magazine/marina-abramovic.html?searchResultPosition=10
+https://nytimes.com/2022/07/08/climate/species-biodiversity-united-nations.html?searchResultPosition=10
 
