@@ -18,7 +18,7 @@ https://nytimes.com/2022/07/08/nyregion/abortion-new-york-roe.html?searchResultP
 `Hear new tracks from Alvvays, Tyshawn Sorey, Killer Mike and others.`\
 https://nytimes.com/2022/07/08/arts/music/playlist-1975-killer-mike-alvvays.html?searchResultPosition=5
 
-**Assassination Shatters Image of Gun-Free Japan**\
+**Assassination Shocks a Nearly Gun-Free Japan**\
 `Stringent rules on gun ownership had all but eradicated gun violence in the country.`\
 https://nytimes.com/2022/07/08/world/asia/japan-abe-murder-guns.html?searchResultPosition=6
 
