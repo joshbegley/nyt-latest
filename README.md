@@ -1,5 +1,5 @@
 **Shinzo Abe, Ex-Japanese Leader, Collapses After Gunshot Is Heard**\
-`The former prime minister was apparently injured while giving a speech in Nara, according to the public broadcaster NHK.`\
+`The former prime minister was injured during a speech in Nara in western Japan, according to the public broadcaster NHK.`\
 https://nytimes.com/2022/07/07/world/asia/japan-shinzo-abe-shooting.html?searchResultPosition=1
 
 **Man Who Swung Bat at Squeegee Workers in Baltimore Is Fatally Shot**\
