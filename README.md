@@ -35,6 +35,6 @@ https://nytimes.com/2022/07/08/business/economic-indicators-showing-slowdown.htm
 https://nytimes.com/2022/07/08/sports/soccer/sepp-blatter-michel-platini-trial.html?searchResultPosition=9
 
 **Shinzo Abe, Japan’s Longest-Serving Prime Minister, Dies at 67**\
-`Mr. Abe was shot on Friday during a campaign stop. Before he left office in 2020, he helped pull his country out of economic malaise but fell short of his most cherished goal: making Japan a normal military power.`\
+`Mr. Abe was shot on Friday during a campaign event. Before he left office in 2020, he helped pull his country out of economic malaise but fell short of his most cherished goal: to normalize Japan’s military after decades of postwar pacifism.`\
 https://nytimes.com/2022/07/08/world/asia/shinzo-abe-dead.html?searchResultPosition=10
 
