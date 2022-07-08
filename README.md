@@ -1,5 +1,5 @@
 **Biden Signs Executive Order to Protect Abortion Access**\
-`President Biden issued an order aiming to protect access to abortion medication and emergency contraception.`\
+`President Biden issued an order aiming to protect access to abortion medication and emergency contraception, but details on how those goals would be accomplished were not outlined.`\
 https://nytimes.com/video/us/politics/100000008435598/abortion-roe-biden-executive-order.html?searchResultPosition=1
 
 **Uniper, Germany’s largest gas importer, asks for government bailout.**\
