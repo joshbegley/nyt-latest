@@ -1,40 +1,40 @@
-**Stunned Japan Struggles to Make Sense of Abe Shooting**\
-`Even Japanese people who said they don’t follow politics much expressed disbelief.`\
-https://nytimes.com/2022/07/08/world/asia/stunned-japan-struggles-to-make-sense-of-abe-shooting.html?searchResultPosition=1
+**The Robot Guerrilla Campaign to Recreate the Elgin Marbles**\
+`By Franz Lidz and Francesca Jones`\
+https://nytimes.com/2022/07/08/science/elgin-marbles-3d-print.html?searchResultPosition=1
 
-**What happens next for Brittney Griner?**\
-`The American basketball star still faces the conviction and sentencing phases of her trial in Russia. But experts say her best hope may be a diplomatic deal between the U.S. and Russia.`\
-https://nytimes.com/2022/07/08/world/europe/brittney-griner-russia.html?searchResultPosition=2
+**Windswept Views and ‘Glories Strung Like Beads’: Exploring Brooklyn by Ferry**\
+`More than 160 years after Walt Whitman extolled the joys of riding the ferry, there are fresh opportunities to explore neighborhoods like Red Hook, Brooklyn Heights and Bay Ridge by boat.`\
+https://nytimes.com/2022/07/08/travel/brooklyn-ferry.html?searchResultPosition=2
 
-**When Power Dressing Gets Personal**\
-`Redefining the form at Jean Paul Gaultier, Fendi and Vetements.`\
-https://nytimes.com/2022/07/08/style/vetements-gaultier-fendi-couture.html?searchResultPosition=3
+**What Happens When a Rock Star Proposes Onstage?**\
+`Olivia Jean married the celebrated musician Jack White mid-performance, but she has a plan all her own.`\
+https://nytimes.com/2022/07/08/style/olivia-jean-jack-white.html?searchResultPosition=3
 
-**Johnson’s Lies Worked for Years, Until They Didn’t**\
-`The British prime minister thought he could swagger and dissemble his way through any scandal, but found the rules of gravity applied after all.`\
-https://nytimes.com/2022/07/08/world/europe/boris-johnson-lies-britain-parliament.html?searchResultPosition=4
+**How Dan Perlman, of ‘Flatbush Misdemeanors,’ Spends His Sundays**\
+`After singing lessons and some basketball, the actor, who is “easing back into standup,” stops by a few comedy clubs.`\
+https://nytimes.com/2022/07/08/nyregion/dan-perlman-flatbush-misdemeanors.html?searchResultPosition=4
 
-**‘Dangerous Liaisons’ Review: The Epistolary Novel as Instagram Feed**\
-`A new film adaptation brings Pierre Choderlos de Laclos’s 1782 book to the halls of a high school in modern-day France.`\
-https://nytimes.com/2022/07/08/movies/dangerous-liaisons-review.html?searchResultPosition=5
+**Even in Death, Internet Explorer Lives On in South Korea**\
+`Why a country known for blazing broadband and innovative devices remains tethered to a browser abandoned by most of the world long ago.`\
+https://nytimes.com/2022/07/08/business/korea-internet-explorer.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/07/08/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**Rhea Seehorn Is Getting Away With It**\
+`The jig is up for Kim Wexler as “Better Call Saul” nears a close. Meanwhile, the actress who plays her has been quietly stealing the show.`\
+https://nytimes.com/2022/07/08/arts/television/rhea-seehorn-better-call-saul.html?searchResultPosition=6
 
-**Videos Show the Moments After Shinzo Abe Is Shot**\
-`Footage shared on social media showed the scene after Shinzo Abe, the former prime minister of Japan, collapsed and was left unconscious after he was shot while giving a speech in western Japan.`\
-https://nytimes.com/video/world/asia/100000008434896/japan-shinzo-abe-shooting.html?searchResultPosition=7
+**The Prayer We Need Isn’t at the 50-Yard Line**\
+`It offends me to see sanctimonious public prayer in any circumstance; yet, how do people who believe entirely in science and reason also believe that prayer can heal and restore?`\
+https://nytimes.com/2022/07/08/opinion/prayer-supreme-court-football.html?searchResultPosition=7
 
-**The 3 Most Important Climate Laws You’ve Never Heard Of**\
-`The Legislature passed some bills that are obscure but significant, in the view of climate activists.`\
-https://nytimes.com/2022/07/08/nyregion/climate-laws-new-york.html?searchResultPosition=8
+**What’s Up With the Crazy Housing Market?**\
+`Rising mortgage rates. Faltering home sales. Skyrocketing rents. Here’s how to make sense of a baffling real estate market.`\
+https://nytimes.com/2022/07/08/realestate/housing-market.html?searchResultPosition=8
 
-**Boris Johnson Was Just Being Boris Johnson**\
-`Many hoped he would change. But that was never going to happen.`\
-https://nytimes.com/2022/07/08/opinion/boris-johnson-resignation-britain.html?searchResultPosition=9
+**Codependency Is a Toxic Myth in Addiction Recovery**\
+`Love doesn’t enable addiction.`\
+https://nytimes.com/2022/07/08/opinion/codependency-addiction-recovery.html?searchResultPosition=9
 
-**Corrections: July 8, 2022**\
-`Corrections that appeared in print on Friday, July 8, 2022.`\
-https://nytimes.com/2022/07/08/pageoneplus/corrections-july-8-2022.html?searchResultPosition=10
+**Before Heading to College, Make a Mental Health Checklist**\
+`Students should not wait until they are on campus to begin thinking about how to protect their emotional well-being, experts say.`\
+https://nytimes.com/2022/07/08/well/mind/mental-health-checklist-college-students.html?searchResultPosition=10
 
