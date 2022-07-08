@@ -1,10 +1,10 @@
+**Emmy Rossum Dreams of Pink Macarons**\
+`The star and executive producer of “Angelyne” gets a master class at Ladurée.`\
+https://nytimes.com/2022/07/08/style/emmy-rossum-angelyne.html?searchResultPosition=1
+
 **BA.4 and BA.5 power a surge of known infections in Europe, officials say.**\
 `While many European countries have seen an uptick in hospitalizations, “what we’re not seeing is an increase in intensive care unit admissions, so the vaccines are still very much working,” an official with the World Health Organization said this week.`\
-https://nytimes.com/2022/07/08/world/europe/europe-covid-ba4-ba5.html?searchResultPosition=1
-
-**An improvised firearm was apparently used to assassinate Abe.**\
-`Video shows a device on the ground consisting of two tubes perhaps just over a foot in length and bound together side by side with black electrical tape, similar to a double-barrel shotgun.`\
-https://nytimes.com/2022/07/08/world/asia/shinzo-abe-gun-assassination.html?searchResultPosition=2
+https://nytimes.com/2022/07/08/world/europe/europe-covid-ba4-ba5.html?searchResultPosition=2
 
 **Start Investing Early and Stick With It, Especially When Stocks Fall**\
 `A bear market can be great for your future wealth, if you use broad, low-cost funds to buy stocks and bonds steadily for decades, our columnist says.`\
