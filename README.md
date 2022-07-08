@@ -18,7 +18,7 @@ https://nytimes.com/2022/07/08/us/christian-nationalism-politicians.html?searchR
 `Elena Rybakina was born and raised in Russia but started representing Kazakhstan after the Russian Tennis Federation gave up on her. Does she see herself as Russian? “It’s a tough question.”`\
 https://nytimes.com/2022/07/08/sports/tennis/rybakina-russia-wimbledon.html?searchResultPosition=5
 
-**Boris Johnson Leaves Mixed Legacy With Brexit Gambit**\
+**Boris Johnson Leaves a Mixed Legacy With His Brexit Gambit**\
 `Departure from E.U. is a clear negative for the U.K. economy, but it could have been worse.`\
 https://nytimes.com/2022/07/08/opinion/boris-johnson-brexit-legacy.html?searchResultPosition=6
 
