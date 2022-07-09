@@ -2,8 +2,8 @@
 `“Hot dog buses,” nicknamed for their lack of air-conditioning, have not picked up passengers in Hong Kong for 10 years. Join me for a ride on one.`\
 https://nytimes.com/interactive/2022/07/09/world/asia/hong-kong-old-bus-video.html?searchResultPosition=1
 
-**Questions arise about Abe’s security protection.**\
-`By Daisuke Wakabayashi`\
+**Questions Arise About Abe’s Security Protection After Assassination**\
+`Numerous videos show the gunman walking unobstructed past security before pointing a large handmade gun in the direction of the former prime minister.`\
 https://nytimes.com/2022/07/08/world/asia/questions-arise-about-abes-security-protection.html?searchResultPosition=2
 
 **Corrections: July 9, 2022**\
