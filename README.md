@@ -19,7 +19,7 @@ https://nytimes.com/2022/07/09/opinion/roe-abortion-women-death.html?searchResul
 https://nytimes.com/2022/07/09/opinion/big-ten-ucla-usc.html?searchResultPosition=5
 
 **Elena Rybakina Wins Wimbledon and Her First Grand Slam Title**\
-`Rybakina, who was born and raised in Russia, started representing Kazakhstan after the Russian tennis federation gave up on her. Now, the 23-year-old is a Wimbledon women’s singles champion.`\
+`Rybakina, who was born and raised in Russia, started representing Kazakhstan after the Russian tennis federation gave up on her. She beat Ons Jabeur in three sets to win the women’s singles title.`\
 https://nytimes.com/2022/07/09/sports/tennis/rybakina-jabeur-wimbledon-russia.html?searchResultPosition=6
 
 **Where My Research Has Taken Me Lately**\
