@@ -34,7 +34,7 @@ https://nytimes.com/video/world/asia/100000008437143/shinzo-abe-japan-mourners.h
 `President Gotabaya Rajapaksa of Sri Lanka agreed to step down after what appeared to be one of the largest protests yet, following months of demonstrations fueled by the nation’s economic crisis.`\
 https://nytimes.com/video/world/asia/100000008437117/sri-lanka-protests.html?searchResultPosition=9
 
-**Liz Cheney’s Latest Fans: Democratic Donors**\
-`Despite policy disagreements, donors like Jeffrey Katzenberg are backing the Wyoming Republican because of her role on the House committee investigating the Jan. 6 attack.`\
-https://nytimes.com/2022/07/09/us/politics/liz-cheney-jan-6.html?searchResultPosition=10
+**Sri Lanka’s prime minister is no stranger to political shifts.**\
+`Ranil Wickremesinghe, who had been in office only since May, said he would resign.`\
+https://nytimes.com/2022/07/09/world/asia/prime-minister-ranil-wickremesinghe-sri-lanka.html?searchResultPosition=10
 
