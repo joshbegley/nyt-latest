@@ -1,40 +1,40 @@
-**Valentino’s Roman Marvels**\
-`Expanding the meaning of couture, one ruffle and feather at a time.`\
-https://nytimes.com/2022/07/09/style/valentino-couture-2022.html?searchResultPosition=1
+**Does Abe Shooting Reflect Success of Japan’s Gun Laws, Not Failure?**\
+`A crude weapon. Minimal security. One death. A closer look at the details of the assassination of Shinzo Abe may actually underscore the effectiveness of Japan’s restrictions.`\
+https://nytimes.com/2022/07/09/world/asia/abe-assassination-japan-gun-laws.html?searchResultPosition=1
 
-**An American arrested in Russia last year was sentenced by the court handling Brittney Griner’s case.**\
-`Marc Fogel, a teacher and former U.S. Embassy staff member, was convicted on charges of drug smuggling in Russia. He was sentenced to 14 years in prison.`\
-https://nytimes.com/2022/07/09/world/europe/an-american-arrested-in-russia-last-year-was-sentenced-by-the-court-handling-brittney-griners-case.html?searchResultPosition=2
+**Finding My Joy at Essence Festival**\
+`I relished the community I had been missing on my first trip to the famous New Orleans gathering.`\
+https://nytimes.com/2022/07/09/style/essence-festival-2022.html?searchResultPosition=2
 
-**Protesters Enter Sri Lankan President’s Home as Crisis Escalates**\
-`The protesters have accused President Gotabaya Rajapaksa of running the island nation’s economy into the ground.`\
-https://nytimes.com/2022/07/09/world/asia/sri-lanka-protests.html?searchResultPosition=3
+**The Nice-Guy Lawyer for America’s Tabloid Villains**\
+`The sweet spot of Arthur Aidala’s law practice is a headline-grabbing defendant who is hated by many. Somehow, that doesn’t mean people hate him.`\
+https://nytimes.com/2022/07/09/business/arthur-aidala-lawyer.html?searchResultPosition=3
 
-**The Postwar Japan That Shinzo Abe Built**\
-`After waging an often lonely fight, Abe died just as the Japanese people were possibly coming to appreciate his vision of a strong state.`\
-https://nytimes.com/2022/07/09/opinion/shinzo-abe-assassination.html?searchResultPosition=4
+**The Age of Distracti-pression**\
+`The pandemic’s true toll on mental health won’t be known for a long time, but data from the past two years indicates a rise — some of it sharp — in prescription drugs for conditions like A.D.H.D. and depression.`\
+https://nytimes.com/2022/07/09/style/medication-depression-anxiety-adhd.html?searchResultPosition=4
 
-**With Sign Language and Sound, an Artist Upends Audience Perceptions**\
-`Christine Sun Kim’s poetic and political art pushes viewers to consider the limits, and misunderstandings, that come with communication in any language, whether spoken or signed.`\
-https://nytimes.com/2022/07/09/world/europe/christine-sun-kim-profile.html?searchResultPosition=5
+**Amid the Summer Flying ‘Meltdown,’ Add Lost Luggage**\
+`Surging air travel demand and airport staffing shortages have made this a bedeviling season when it comes to missing luggage. Here’s what to know if your bag doesn’t arrive when you do.`\
+https://nytimes.com/2022/07/09/travel/lost-luggage-help-airlines.html?searchResultPosition=5
 
-**Companies’ Climate Promises Face a Wild Card: Farmers**\
-`Some of the largest companies in the U.S. have pledged to adopt climate-friendly agricultural techniques. But some farmers say they haven’t provided enough incentive.`\
-https://nytimes.com/2022/07/09/business/farmers-climate-change.html?searchResultPosition=6
+**Boris Johnson May Be Fading Out, but Not the Divisions He Stoked**\
+`Long after he is gone, his successors will be wrestling over his signature project, Brexit, and the insoluble issues it raised.`\
+https://nytimes.com/2022/07/09/world/europe/boris-johnson-brexit-divisions.html?searchResultPosition=6
 
-**Dressing Your Home for Success**\
-`Removing dark curtains or adding plants can attract more buyers to your property — and help you make more money off the sale, industry professionals say.`\
-https://nytimes.com/2022/07/09/realestate/home-staging-advice.html?searchResultPosition=7
+**Where Is Pete Panto?**\
+`A union leader on the Brooklyn docks disappeared 81 years ago, presumably murdered by the mob.`\
+https://nytimes.com/2022/07/09/nyregion/pete-panto-dockworkers-union-mafia.html?searchResultPosition=7
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/07/09/crosswords/spelling-bee-forum.html?searchResultPosition=8
+**Ukraine and the Contest of Global Stamina**\
+`The conflict’s long-run trajectory seems increasingly likely to be shaped by whether the United States and its allies can maintain their military, political and financial commitments to holding off Russia.`\
+https://nytimes.com/2022/07/09/us/politics/ukraine-strategy-biden.html?searchResultPosition=8
 
-**Aboard a ‘Hot Dog Bus’ in Hong Kong**\
-`“Hot dog buses,” nicknamed for their lack of air-conditioning, have not picked up passengers in Hong Kong for 10 years. Join me for a ride on one.`\
-https://nytimes.com/interactive/2022/07/09/world/asia/hong-kong-old-bus-video.html?searchResultPosition=9
+**When the Results of a DNA Test Change the Family Tree**\
+`In their memoirs, Carmen Rita Wong and Chrysta Bilton open up about how they learned of secrets, lies and unkept promises.`\
+https://nytimes.com/2022/07/09/books/review/why-didnt-you-tell-me-carmen-rita-wong.html?searchResultPosition=9
 
-**Questions Arise About Abe’s Security Protection After Assassination**\
-`Numerous videos show the gunman walking unobstructed past security before pointing a large handmade gun in the direction of the former prime minister.`\
-https://nytimes.com/2022/07/08/world/asia/questions-arise-about-abes-security-protection.html?searchResultPosition=10
+**It Hides Under the Soil With a Bottomless Appetite for Meat**\
+`Among the numerous carnivorous pitcher plant species, scientists say this is the first that lays its traps underground.`\
+https://nytimes.com/2022/07/09/science/pitcher-plants-underground.html?searchResultPosition=10
 
