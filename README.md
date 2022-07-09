@@ -1,5 +1,5 @@
 **Denali National Park, in Alaska, reinstates a mask mandate in the busy summer season.**\
-`As counties report elevated levels of transmissions, national parks are once again requiring masks in gift shops, on tour buses and other indoor spaces.`\
+`As counties report elevated levels of transmission, national parks are once again requiring masks in gift shops, on tour buses and other indoor spaces.`\
 https://nytimes.com/2022/07/08/us/denali-national-park-mask-order.html?searchResultPosition=1
 
 **Shinzo Abe’s Influence Was Still Evident Long After He Left Office**\
