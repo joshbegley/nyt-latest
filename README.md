@@ -3,7 +3,7 @@
 https://nytimes.com/video/world/asia/100000008437143/shinzo-abe-japan-mourners.html?searchResultPosition=1
 
 **Protesters in Sri Lanka Storm Presidential Residence and Office**\
-`President Gotabaya Rajapaksa was asked by the country’s political leaders to step down after months of protests fueled by the nation’s economic crisis. Protesters on Saturday descended on the capital, Colombo, in what appeared to be the largest demonstration yet.`\
+`President Gotabaya Rajapaksa of Sri Lanka agreed to step down after what appeared to be one of the largest protests yet, following months of demonstrations fueled by the nation’s economic crisis.`\
 https://nytimes.com/video/world/asia/100000008437117/sri-lanka-protests.html?searchResultPosition=2
 
 **Liz Cheney’s Latest Fans: Democratic Donors**\
