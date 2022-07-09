@@ -14,7 +14,7 @@ https://nytimes.com/2022/07/08/crosswords/daily-puzzle-2022-07-09.html?searchRes
 `Dark talks about her new novel, and Katherine Chen discusses “Joan,” her fictional imagining of Joan of Arc.`\
 https://nytimes.com/2022/07/08/books/review/podcast-alice-elliott-dark-fellowship-point-katherine-chen-joan-of-arc.html?searchResultPosition=4
 
-**Tony Sirico, Who Played a Gangster in ‘The Sopranos,’ Dies at 79**\
+**Tony Sirico, Who Played a Gangster on ‘The Sopranos,’ Dies at 79**\
 `A familiar face in Woody Allen movies, the actor became widely know for his portrayal of Paulie Walnuts on the hit HBO series.`\
 https://nytimes.com/2022/07/08/arts/television/tony-sirico-dead.html?searchResultPosition=5
 
