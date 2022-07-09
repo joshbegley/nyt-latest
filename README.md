@@ -4,7 +4,7 @@ https://nytimes.com/2022/07/09/world/asia/rajapaksa-family-sri-lanka-president.h
 
 **Sri Lanka’s Leader Is on the Brink as Protesters Storm Residence**\
 `Political leaders demanded that President Gotabaya Rajapaksa resign, as protesters vented their fury over the government’s inability to address crippling economic turmoil.`\
-https://nytimes.com/2022/07/09/world/asia/sri-lanka-rajapaksa-protests.html?searchResultPosition=2
+https://nytimes.com/2022/07/09/world/asia/sri-lanka-gotabaya-rajapaksa.html?searchResultPosition=2
 
 **What Are Spam Bots and Why They’re an Issue in Elon Musk’s Twitter Deal**\
 `Bots can tweet at people, share tweets, follow and be followed by other people. And there are good bots and bad.`\
