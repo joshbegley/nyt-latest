@@ -18,8 +18,8 @@ https://nytimes.com/2022/07/09/sports/jake-paul-is-aiming-for-boxing-legitimacy-
 `The Rajapaksas have dominated Sri Lanka’s politics for much of the past two decades, and in recent years, have increasingly run the island nation’s government as a family business.`\
 https://nytimes.com/2022/07/09/world/asia/rajapaksa-family-sri-lanka-president.html?searchResultPosition=5
 
-**Sri Lanka’s Leader Is on the Brink as Protesters Storm Residence**\
-`Political leaders demanded that President Gotabaya Rajapaksa resign, as protesters vented their fury over the government’s inability to address crippling economic turmoil.`\
+**Sri Lanka’s Leader Will Resign, Ally Says, After Protesters Storm Residence**\
+`President Gotabaya Rajapaksa will step down on Wednesday, according to the speaker of Parliament, amid fury over the economic crisis.`\
 https://nytimes.com/2022/07/09/world/asia/sri-lanka-gotabaya-rajapaksa.html?searchResultPosition=6
 
 **What Are Spam Bots and Why They’re an Issue in Elon Musk’s Twitter Deal**\
