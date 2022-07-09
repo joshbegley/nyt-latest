@@ -2,7 +2,7 @@
 `In Lviv, babies are born in a hospital just steps away from the military cemetery where Ukraine’s young soldiers are laid to rest.`\
 https://nytimes.com/2022/07/09/world/europe/lviv-ukraine-russia.html?searchResultPosition=1
 
-**Judge and Stanton Will Both Start for A.L. in All-Star Game**\
+**Judge and Stanton Will Start for A.L. in All-Star Game**\
 `The Yankees sluggers will join Mike Trout of the Angels in the American League’s starting outfield.`\
 https://nytimes.com/2022/07/08/sports/baseball/all-star-starters.html?searchResultPosition=2
 
