@@ -16,7 +16,7 @@ https://nytimes.com/2022/07/09/us/politics/pat-cipollone-jan-6-trump.html?search
 
 **Will Russia Try to Politicize Elena Rybakina’s Wimbledon Win?**\
 `Rybakina’s victory at Wimbledon was deeply impressive but not the outcome that most in Centre Court or on the payrolls of the All England Club were yearning for.`\
-https://nytimes.com/2022/07/09/sports/tennis/wimbledon-jabeur-rybakina.html?searchResultPosition=5
+https://nytimes.com/2022/07/09/sports/tennis/wimbledon-elena-rybakina-russia.html?searchResultPosition=5
 
 **50 million remain under a heat advisory this weekend.**\
 `The dangerous heat wave shows no signs of letting up as it affects states including Texas, Arizona, Alabama and Colorado.`\
