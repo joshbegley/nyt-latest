@@ -2,7 +2,7 @@
 `U.S. Secretary of State Antony J. Blinken met with the Chinese foreign minister at the end of a Group of 20 summit in Indonesia. He stressed America’s concerns about China’s alignment with Russia.`\
 https://nytimes.com/video/world/100000008437195/blinken-ukraine-russia-china.html?searchResultPosition=1
 
-**Mike Brito, Influential Dodgers’ Scout in Mexico, Dies at 87**\
+**Mike Brito, Influential Dodger Scout in Mexico, Dies at 87**\
 `He signed many players who reached the major leagues, most notably Fernando Valenzuela, who won the 1981 Rookie of the Year and Cy Young Awards.`\
 https://nytimes.com/2022/07/09/obituaries/mike-brito-dead.html?searchResultPosition=2
 
