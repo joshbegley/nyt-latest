@@ -24,7 +24,7 @@ https://nytimes.com/2022/07/09/us/politics/liz-cheney-jan-6.html?searchResultPos
 
 **Jake Paul Is Aiming for Boxing Legitimacy, and Collecting Seashells**\
 `The social media star is preparing to fight his first opponent with professional boxing experience: Hasim Rahman Jr., who is 12-1. “I’ve been waiting to take his head off,” Paul said in an interview.`\
-https://nytimes.com/2022/07/09/sports/jake-paul-is-aiming-for-boxing-legitimacy-and-collecting-seashells.html?searchResultPosition=7
+https://nytimes.com/2022/07/09/sports/jake-paul-youtube-boxing.html?searchResultPosition=7
 
 **The Rajapaksa family has dominated Sri Lankan politics.**\
 `The Rajapaksas have dominated Sri Lanka’s politics for much of the past two decades, and in recent years, have increasingly run the island nation’s government as a family business.`\
