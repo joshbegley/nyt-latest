@@ -30,11 +30,11 @@ https://nytimes.com/2022/06/25/us/heat-wave-texas-southwest.html?searchResultPos
 `Hundreds of people lined up at a makeshift memorial in Nara, Japan, to pay their respects to Shinzo Abe, the country’s longest serving prime minister.`\
 https://nytimes.com/video/world/asia/100000008437143/shinzo-abe-japan-mourners.html?searchResultPosition=8
 
+**Ukraine dismisses its ambassador to Germany after controversial remarks.**\
+`Andriy Melnyk, an outspoken advocate for weapons for Ukraine, denied the role of a Ukrainian nationalist leader in the Holocaust, stoking outrage in Germany.`\
+https://nytimes.com/2022/07/09/world/europe/ukraine-german-ambassador-andriy-melnyk.html?searchResultPosition=9
+
 **Protesters in Sri Lanka Storm Presidential Residence and Office**\
 `President Gotabaya Rajapaksa of Sri Lanka agreed to step down after what appeared to be one of the largest protests yet, following months of demonstrations fueled by the nation’s economic crisis.`\
-https://nytimes.com/video/world/asia/100000008437117/sri-lanka-protests.html?searchResultPosition=9
-
-**Sri Lanka’s prime minister is no stranger to political shifts.**\
-`Ranil Wickremesinghe, who had been in office only since May, said he would resign.`\
-https://nytimes.com/2022/07/09/world/asia/prime-minister-ranil-wickremesinghe-sri-lanka.html?searchResultPosition=10
+https://nytimes.com/video/world/asia/100000008437117/sri-lanka-protests.html?searchResultPosition=10
 
