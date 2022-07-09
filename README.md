@@ -11,8 +11,8 @@ https://nytimes.com/2022/07/09/world/americas/luis-echeverra-alvarez-dead.html?s
 https://nytimes.com/2022/07/09/opinion/letters/women-erased.html?searchResultPosition=3
 
 **Campaigns make their final push in Japan, undeterred by Abe’s assassination.**\
-`By Hikari Hida and Ben Dooley`\
-https://nytimes.com/2022/07/09/business/campaigns-make-their-final-push-in-japan-undeterred-by-abes-assassination.html?searchResultPosition=4
+`Shinzo Abe, Japan’s longest serving prime minister, was shot while campaigning for a candidate for the Upper House of Parliament.`\
+https://nytimes.com/2022/07/09/business/japan-election-abe-assassination.html?searchResultPosition=4
 
 **Florida Man Sentenced to 20 Years for Uploading Bomb-Making Video**\
 `Federal prosecutors said the man, Romeo Xavier Langhorne, 32, had pledged support to ISIS and uploaded a video he hoped would help the group make and use bombs.`\
