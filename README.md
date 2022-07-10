@@ -1,4 +1,4 @@
-**Mets and Yankees Sending Ten Players to All-Star Game**\
+**Mets and Yankees Sending 10 Players to All-Star Game**\
 `Pete Alonso makes his return to the Midsummer Classic and he will be joined by three teammates and six Yankees players.`\
 https://nytimes.com/2022/07/10/sports/baseball/pete-alonso-all-star.html?searchResultPosition=1
 
