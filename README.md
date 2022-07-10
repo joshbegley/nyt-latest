@@ -1,6 +1,6 @@
 **What We Know About the Protests in Sri Lanka**\
 `Months of demonstrations over dire economic conditions culminated in a peaceful take over of the presidential residence and promises of resignations.`\
-https://nytimes.com/2022/07/10/world/asia/what-we-know-about-the-protests-in-sri-lanka.html?searchResultPosition=1
+https://nytimes.com/article/sri-lanka-president-protests.html?searchResultPosition=1
 
 **A Ruling From Readers: ‘Shame’ on the Court**\
 `It’s the readers’ turn to judge ... the Supreme Court’s recently ended term. Also: Anti-abortion activists; banning AR-15s; Australian slang.`\
