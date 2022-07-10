@@ -22,19 +22,19 @@ https://nytimes.com/2022/07/10/science/nasa-webb-telescope-images.html?searchRes
 `One-pot chermoula shrimp, gazpacho and more recipes for the days ahead.`\
 https://nytimes.com/2022/07/10/dining/what-to-cook-this-week.html?searchResultPosition=6
 
+**Canada will return a sanctioned Nord Stream 1 turbine to ease Germany’s gas crisis.**\
+`The turbine — a critical piece of pipeline equipment — had been sent to Canada for repairs, but its return had been held up by sanctions against Russia.`\
+https://nytimes.com/2022/07/10/world/europe/germany-gas-crisis-canada.html?searchResultPosition=7
+
 **‘Hollywood Ending,’ a Cradle-to-Jail Biography of Harvey Weinstein**\
 `Ken Auletta looks for Weinstein’s Rosebud in this dispiriting account of the former movie mogul’s life.`\
-https://nytimes.com/2022/07/10/books/review-hollywood-ending-harvey-weinstein-ken-auletta.html?searchResultPosition=7
+https://nytimes.com/2022/07/10/books/review-hollywood-ending-harvey-weinstein-ken-auletta.html?searchResultPosition=8
 
 **Biden Will Find a Changed Middle East on His Coming Visit**\
 `On his first trip to the region since taking office, President Biden will begin in Israel, which has been building relations with Arab nations. He will also make a stop in Saudi Arabia.`\
-https://nytimes.com/2022/07/10/world/middleeast/biden-israel-saudi-arabia.html?searchResultPosition=8
+https://nytimes.com/2022/07/10/world/middleeast/biden-israel-saudi-arabia.html?searchResultPosition=9
 
 **At Least 21 Dead After 3 Tavern Shootings in South Africa**\
 `The shootings further highlighted concerns about safety, coming only two weeks after 21 teenagers died mysteriously in a coastal city tavern.`\
-https://nytimes.com/2022/07/10/world/africa/south-africa-shooting-soweto.html?searchResultPosition=9
-
-**A Scooter Mystery Solved**\
-`Wondering who rides a cherry-red Vespa.`\
-https://nytimes.com/interactive/2022/07/10/nyregion/metropolitan-diary-vespa.html?searchResultPosition=10
+https://nytimes.com/2022/07/10/world/africa/south-africa-shooting-soweto.html?searchResultPosition=10
 
