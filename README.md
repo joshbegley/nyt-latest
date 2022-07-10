@@ -1,6 +1,6 @@
 **Novak Djokovic Defeats Nick Kyrgios to Win His Seventh Wimbledon Title**\
 `Djokovic dropped the first set of the men’s singles final but rallied to put Kyrgios away by winning three straight sets to capture his 21st Grand Slam singles title.`\
-https://nytimes.com/2022/07/10/sports/tennis/novak-djokovic-defeats-nick-kyrgios-to-win-his-seventh-wimbledon-title.html?searchResultPosition=1
+https://nytimes.com/2022/07/10/sports/tennis/novak-djokovic-kyrgios-wimbledon.html?searchResultPosition=1
 
 **What We Know About the Protests in Sri Lanka**\
 `Months of demonstrations over dire economic conditions culminated in a peaceful take over of the presidential residence and promises of resignations.`\
