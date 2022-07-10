@@ -1,6 +1,6 @@
 **As they took over the president’s house, Sri Lankan protesters stopped to savor its luxuries.**\
 `Live images from Colombo showed demonstrators enjoying a rare moment of levity, after months of economic deprivation.`\
-https://nytimes.com/2022/07/10/world/asia/as-they-took-over-the-presidents-house-sri-lankan-protesters-stopped-to-savor-its-luxuries.html?searchResultPosition=1
+https://nytimes.com/2022/07/10/world/asia/president-pool.html?searchResultPosition=1
 
 **Corrections: July 10, 2022**\
 `Corrections that appeared in print on Sunday, July 10, 2022.`\
