@@ -22,7 +22,7 @@ https://nytimes.com/2022/07/10/science/nasa-webb-telescope-images.html?searchRes
 `One-pot chermoula shrimp, gazpacho and more recipes for the days ahead.`\
 https://nytimes.com/2022/07/10/dining/what-to-cook-this-week.html?searchResultPosition=6
 
-**‘Hollywood Ending,’ a Cradle-to-Prison Biography of Harvey Weinstein**\
+**‘Hollywood Ending,’ a Cradle-to-Jail Biography of Harvey Weinstein**\
 `Ken Auletta looks for Weinstein’s Rosebud in this dispiriting account of the former movie mogul’s life.`\
 https://nytimes.com/2022/07/10/books/review-hollywood-ending-harvey-weinstein-ken-auletta.html?searchResultPosition=7
 
