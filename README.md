@@ -14,7 +14,7 @@ https://nytimes.com/2022/07/09/us/politics/biden-age-democrats.html?searchResult
 `More than 1,000 people gathered in front of the White House, with hundreds risking arrest by sitting at the building’s gates, as they urged President Biden to take more federal action to protect abortion rights.`\
 https://nytimes.com/video/us/politics/100000008437248/womens-march-dc-abortion-rights.html?searchResultPosition=5
 
-**Without fuel, the Sri Lankan economy is grinding to a halt.**\
+**Sri Lanka’s economy is grinding to a halt without fuel.**\
 `Acute shortages have meant that medicines can’t be transported and fresh produce from farms can’t make it to cities.`\
 https://nytimes.com/2022/07/09/world/asia/sri-lanka-fuel-shortage-food.html?searchResultPosition=6
 
