@@ -11,7 +11,7 @@ https://nytimes.com/2022/07/10/sports/baseball/red-sox-yankees.html?searchResult
 https://nytimes.com/video/world/asia/100000008437628/sri-lanka-protest-president.html?searchResultPosition=3
 
 **Novak Djokovic Defeats Nick Kyrgios to Win His Seventh Wimbledon Title**\
-`Djokovic dropped the first set of the men’s singles final but rallied to put Kyrgios away by winning three straight sets to capture his 21st Grand Slam singles title.`\
+`Djokovic dropped the first set of the men’s singles final, but won the next three to capture his 21st Grand Slam title.`\
 https://nytimes.com/2022/07/10/sports/tennis/novak-djokovic-kyrgios-wimbledon.html?searchResultPosition=4
 
 **What We Know About the Protests in Sri Lanka**\
