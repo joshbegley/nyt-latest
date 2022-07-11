@@ -1,40 +1,40 @@
-**One Golfer Not Welcome at the British Open? Greg Norman**\
-`Norman’s only major tournament victories came in Opens, but his role leading the Saudi-financed LIV Golf series has caused a rift with the R&A.`\
-https://nytimes.com/2022/07/11/sports/golf/british-open-greg-norman.html?searchResultPosition=1
+**Texans Warned to Reduce Electricity Use Amid Fear of Rolling Blackouts**\
+`About 50 million people in the United States were under heat warnings or advisories this weekend. The heat index was forecast to soar past 100 degrees Fahrenheit on Monday in about half of Texas.`\
+https://nytimes.com/2022/07/11/us/texas-electricity-rolling-blackouts.html?searchResultPosition=1
 
-**Sri Lanka’s President Confirms Plan to Resign, Prime Minister’s Office Says**\
-`President Gotabaya Rajapaksa hasn’t been seen or heard from publicly since protesters stormed his official residence on Saturday. Questions loom about a power vacuum.`\
-https://nytimes.com/2022/07/11/world/asia/sri-lanka-crisis-gotabaya-rajapaksa.html?searchResultPosition=2
+**Where Mantras Trump Medicine, Vaccines Are a ‘Violation’**\
+`The Baduy, an Indigenous group in Indonesia, believe that vaccinations are impure, and unnecessary, and that their beliefs protect them. To skeptics, they note their Covid death toll: zero.`\
+https://nytimes.com/2022/07/11/world/asia/indonesia-java-buduy-sunda-wiwitan.html?searchResultPosition=2
 
-**Most Democrats Don’t Want Biden in 2024, New Poll Shows**\
-`With the country gripped by a pervasive sense of pessimism, the president is hemorrhaging support.`\
-https://nytimes.com/2022/07/11/us/politics/biden-approval-polling-2024.html?searchResultPosition=3
+**A Glimpse Inside a Florentine Silk-Weaving Workshop**\
+`The Antico Setificio Fiorentino, which relies on looms from the 18th and 19th centuries, has been producing precious textiles since 1786.`\
+https://nytimes.com/2022/07/11/travel/antique-florentine-silk-mill.html?searchResultPosition=3
 
-**A Random Killing Erodes a New York Block’s Sense of Stability**\
-`John Edwards was a beloved fixture on his Bronx block and another unintended victim of the gun violence that has put many New Yorkers on edge.`\
-https://nytimes.com/2022/07/11/nyregion/a-random-killing-erodes-a-new-york-blocks-sense-of-stability.html?searchResultPosition=4
+**The Business Lunch May Be Going Out of Business**\
+`Many upscale restaurants that catered to the nation’s downtown office crowd are canceling the meal, as remote work persists and business deals are sealed online.`\
+https://nytimes.com/2022/07/11/dining/business-lunch-restaurants.html?searchResultPosition=4
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/07/11/crosswords/spelling-bee-forum.html?searchResultPosition=5
+**States With Abortion Bans Risk Losing Their Economic Edge**\
+`The Supreme Court’s decision to overturn Roe v. Wade has prompted Democratic governors to pitch their states as better alternatives for business.`\
+https://nytimes.com/2022/07/11/us/politics/abortion-ban-states-businesses.html?searchResultPosition=5
 
-**Inside the Amazon Journey That Left a Journalist and Activist Dead**\
-`Dom Phillips and Bruno Pereira set off deep into the Amazon to meet Indigenous groups patrolling the forest. Then they vanished.`\
-https://nytimes.com/interactive/2022/07/11/world/americas/amazon-murder-dom-phillips-bruno-pereira.html?searchResultPosition=6
+**The Right to Travel in a Post-Roe World**\
+`In a concurring opinion last month, Justice Brett M. Kavanaugh said the Constitution did not allow states to stop women from traveling to get abortions. But the issue is more complicated than that.`\
+https://nytimes.com/2022/07/11/us/politics/the-right-to-travel-in-a-post-roe-world.html?searchResultPosition=6
 
-**The Race for a New Conservative Leader Is On. Not So Fast.**\
-`Are Britons supposed to simply forget what just happened?`\
-https://nytimes.com/2022/07/11/opinion/boris-johnson-conservative-party.html?searchResultPosition=7
+**A Year After Mass Protest, Cubans Face Stark Choice: ‘Prison or Exile’**\
+`Thousands of Cubans took to the streets last July protesting economic misery. A year later, hundreds are in jail and the financial crisis has only worsened.`\
+https://nytimes.com/2022/07/11/world/americas/cuba-economy-protests.html?searchResultPosition=7
 
-**The Story of 2 Homeless Men and the Meaning of Friendship**\
-`A Times managing editor discusses his tale of two immigrants who formed a special bond while surviving on the margins of New York City.`\
-https://nytimes.com/2022/07/11/nyregion/the-story-of-2-homeless-men-and-the-meaning-of-friendship.html?searchResultPosition=8
+**The Explosive Ambitions of Kate the Chemist**\
+`At the lecture halls of the University of Texas or on TV, Kate Biberdorf is working to catalyze more people into careers in science.`\
+https://nytimes.com/2022/07/11/science/kate-chemist-tv.html?searchResultPosition=8
 
-**What’s on TV This Week: ‘Everything’s Trash’ and ‘The Rehearsal’**\
-`New shows from the idiosyncratic comedy creators Phoebe Robinson and Nathan Fielder debut on Freeform and HBO.`\
-https://nytimes.com/2022/07/11/arts/television/whats-on-tv-this-week-everythings-trash-and-the-rehearsal.html?searchResultPosition=9
+**Shopping for Peg Rails**\
+`The traditional peg rail is one of the simplest and most appealing kinds of storage you can add to a room. Here are five of the best.`\
+https://nytimes.com/2022/07/11/realestate/shopping-peg-rails.html?searchResultPosition=9
 
-**Quotation of the Day: A Taunting Gunman and 78 Minutes of Terror**\
-`Quotation of the Day for Monday, July 11, 2022.`\
-https://nytimes.com/2022/07/11/todayspaper/quotation-of-the-day-a-taunting-gunman-and-78-minutes-of-terror.html?searchResultPosition=10
+**China’s Economy Stumbles in the Fog of Covid War**\
+`Even if the country avoids new lockdowns of big cities, question marks over the pandemic and policy direction are dogging efforts to revive growth.`\
+https://nytimes.com/2022/07/11/business/chinas-economy-stumbles-in-the-fog-of-covid-war.html?searchResultPosition=10
 
