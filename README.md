@@ -15,7 +15,7 @@ https://nytimes.com/2022/07/11/world/europe/europe-second-covid-booster.html?sea
 https://nytimes.com/2022/07/11/arts/music/bad-bunny-billboard-chart.html?searchResultPosition=4
 
 **Twitter’s stock falls further as doubts swirl over Elon Musk’s takeover.**\
-`Shares of the social media company have lost a third of its value since April 25, when Mr. Musk’s offer to buy the company was accepted by the company’s board.`\
+`Shares of the social media company have lost a third of their value since April 25, when Mr. Musk’s offer to buy the company was accepted by the company’s board.`\
 https://nytimes.com/2022/07/11/business/twitter-stock-elon-musk.html?searchResultPosition=5
 
 **Oil industry execs in Britain oppose windfall tax as some report record profits.**\
