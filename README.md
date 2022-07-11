@@ -24,7 +24,7 @@ https://nytimes.com/2022/07/11/science/gophers-farmers-roots.html?searchResultPo
 
 **Review: Danai Gurira Makes a Sleek Supervillain of Richard III**\
 `At Shakespeare in the Park, athletic stamina and action-hero charisma muddy the meaning of a play about disability.`\
-https://nytimes.com/2022/07/11/theater/review-danai-gurira-makes-a-sleek-supervillain-of-richard-iii.html?searchResultPosition=7
+https://nytimes.com/2022/07/11/theater/richard-iii-review.html?searchResultPosition=7
 
 **What to Cook Right Now**\
 `A no-recipe recipe for charred cabbage slaw, to accompany whatever you’re grilling.`\
