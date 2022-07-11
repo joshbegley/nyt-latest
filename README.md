@@ -31,7 +31,7 @@ https://nytimes.com/2022/07/10/world/europe/brittney-griner-wnba-all-star-game.h
 https://nytimes.com/2022/07/10/briefing/sri-lanka-president-rajapaksa-asia.html?searchResultPosition=8
 
 **Wildfire in Yosemite National Park Imperils Century-Old Trees**\
-`Nearly a dozen helicopters and more than 360 firefighters were at the Washburn fire, which started on Thursday and has grown to more than 1,500 acres.`\
+`Nearly a dozen helicopters and more than 360 firefighters were at the Washburn fire, which started on Thursday and has grown to more than 2,000 acres.`\
 https://nytimes.com/2022/07/10/us/washburn-fire-yosemite.html?searchResultPosition=9
 
 **Cassidy Hutchinson: Why the Jan. 6 Committee Rushed Her Testimony**\
