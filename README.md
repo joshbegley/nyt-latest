@@ -18,9 +18,9 @@ https://nytimes.com/2022/07/11/arts/music/bad-bunny-billboard-chart.html?searchR
 `Shares of the social media company have lost a third of their value since April 25, when Mr. Musk’s offer to buy the company was accepted by the company’s board.`\
 https://nytimes.com/2022/07/11/business/twitter-stock-elon-musk.html?searchResultPosition=5
 
-**Oil industry execs in Britain oppose windfall tax as some report record profits.**\
-`By Jenny Gross`\
-https://nytimes.com/2022/07/11/business/oil-industry-execs-in-britain-oppose-windfall-tax-as-some-report-record-profits.html?searchResultPosition=6
+**Oil companies oppose a windfall tax in Britain despite record profits.**\
+`Oil and gas companies say that charging them a 25 percent tax on profits could deter future investment at a critical time for Britain.`\
+https://nytimes.com/2022/07/11/business/oil-windfall-tax-britain.html?searchResultPosition=6
 
 **How California Is Preparing for a Surge in Out-of-State Abortion Patients**\
 `The state is shoring up resources to be the nation’s abortion refuge.`\
