@@ -18,23 +18,23 @@ https://nytimes.com/2022/07/11/arts/music/bad-bunny-billboard-chart.html?searchR
 `Shares of the social media company have lost a third of its value since April 25, when Mr. Musk’s offer to buy the company was accepted by the company’s board.`\
 https://nytimes.com/2022/07/11/business/twitter-stock-elon-musk.html?searchResultPosition=5
 
+**Oil industry execs in Britain oppose windfall tax as some report record profits.**\
+`By Jenny Gross`\
+https://nytimes.com/2022/07/11/business/oil-industry-execs-in-britain-oppose-windfall-tax-as-some-report-record-profits.html?searchResultPosition=6
+
 **How California Is Preparing for a Surge in Out-of-State Abortion Patients**\
 `The state is shoring up resources to be the nation’s abortion refuge.`\
-https://nytimes.com/2022/07/11/us/california-out-of-state-abortion-patients.html?searchResultPosition=6
+https://nytimes.com/2022/07/11/us/california-out-of-state-abortion-patients.html?searchResultPosition=7
 
 **$1.6 Million Homes in California**\
 `A Norwegian-style chalet in Bear Valley, a two-bedroom townhouse in Malibu and a brand-new four-bedroom home in Oakland.`\
-https://nytimes.com/2022/07/11/realestate/home-prices-california.html?searchResultPosition=7
+https://nytimes.com/2022/07/11/realestate/home-prices-california.html?searchResultPosition=8
 
 **$1.6 Million Homes in California**\
 `A Norwegian-style chalet in Bear Valley, a two-bedroom townhouse in Malibu and a brand-new four-bedroom home in Oakland.`\
-https://nytimes.com/slideshow/2022/07/11/realestate/home-prices-california.html?searchResultPosition=8
+https://nytimes.com/slideshow/2022/07/11/realestate/home-prices-california.html?searchResultPosition=9
 
 **Suspect in Abe Shooting Held a ‘Grudge.’ Scrutiny Falls on a Church.**\
 `The Unification Church, with links to conservative political parties worldwide, said Monday that the mother of the man charged in Shinzo Abe’s death was a member.`\
-https://nytimes.com/2022/07/11/business/japan-suspect-unification-church.html?searchResultPosition=9
-
-**Russian Missiles Hit Civilian Areas in Ukraine’s Second-Largest City**\
-`Emergency workers extinguished fires and cleared rubble after Russian missiles destroyed several buildings in Kharkiv.`\
-https://nytimes.com/video/world/europe/100000008438406/russia-ukraine-war-kharkiv-strikes.html?searchResultPosition=10
+https://nytimes.com/2022/07/11/business/japan-suspect-unification-church.html?searchResultPosition=10
 
