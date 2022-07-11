@@ -22,19 +22,19 @@ https://nytimes.com/2022/07/11/us/politics/abortion-ban-states-businesses.html?s
 `In a concurring opinion last month, Justice Brett M. Kavanaugh said the Constitution did not allow states to stop women from traveling to get abortions. But the issue is more complicated than that.`\
 https://nytimes.com/2022/07/11/us/politics/the-right-to-travel-in-a-post-roe-world.html?searchResultPosition=6
 
+**China’s Economy Stumbles in the Fog of Covid War**\
+`Even if the country avoids new lockdowns of big cities, question marks over the pandemic and policy direction are dogging efforts to revive growth.`\
+https://nytimes.com/2022/07/11/business/china-economy-covid.html?searchResultPosition=7
+
 **A Year After Mass Protest, Cubans Face Stark Choice: ‘Prison or Exile’**\
 `Thousands of Cubans took to the streets last July protesting economic misery. A year later, hundreds are in jail and the financial crisis has only worsened.`\
-https://nytimes.com/2022/07/11/world/americas/cuba-economy-protests.html?searchResultPosition=7
+https://nytimes.com/2022/07/11/world/americas/cuba-economy-protests.html?searchResultPosition=8
 
 **The Explosive Ambitions of Kate the Chemist**\
 `At the lecture halls of the University of Texas or on TV, Kate Biberdorf is working to catalyze more people into careers in science.`\
-https://nytimes.com/2022/07/11/science/kate-chemist-tv.html?searchResultPosition=8
+https://nytimes.com/2022/07/11/science/kate-chemist-tv.html?searchResultPosition=9
 
 **Shopping for Peg Rails**\
 `The traditional peg rail is one of the simplest and most appealing kinds of storage you can add to a room. Here are five of the best.`\
-https://nytimes.com/2022/07/11/realestate/shopping-peg-rails.html?searchResultPosition=9
-
-**China’s Economy Stumbles in the Fog of Covid War**\
-`Even if the country avoids new lockdowns of big cities, question marks over the pandemic and policy direction are dogging efforts to revive growth.`\
-https://nytimes.com/2022/07/11/business/china-economy-covid.html?searchResultPosition=10
+https://nytimes.com/2022/07/11/realestate/shopping-peg-rails.html?searchResultPosition=10
 
