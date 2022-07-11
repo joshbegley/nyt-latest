@@ -8,7 +8,7 @@ https://nytimes.com/2022/07/11/opinion/joe-biden-too-old.html?searchResultPositi
 
 **Raskin Brings Expertise on Right-Wing Extremism to Jan. 6 Inquiry**\
 `The Democrat from Maryland has been delving into the rising threat of white nationalism and white supremacy for five years. He will lead the inquiry’s hearing on the subject on Tuesday.`\
-https://nytimes.com/2022/07/11/us/raskin-brings-expertise-on-right-wing-extremism-to-jan-6-inquiry.html?searchResultPosition=3
+https://nytimes.com/2022/07/11/us/jamie-raskin-jan-6-inquiry.html?searchResultPosition=3
 
 **Biden Reveals First Image From James Webb Space Telescope**\
 `The image was hailed by NASA and astronomers as the deepest view yet into our universe’s past.`\
