@@ -6,8 +6,8 @@ https://nytimes.com/2022/07/11/opinion/democrats-abortion-rights-protests.html?s
 `President Biden’s address on newly enacted bipartisan gun legislation was interrupted by Manuel Oliver, whose son was killed in the 2018 Parkland, Fla., school shooting.`\
 https://nytimes.com/video/us/politics/100000008438650/biden-gun-bill.html?searchResultPosition=2
 
-**A global deal to tax large corporations faces a fresh setback.**\
-`The organization overseeing the negotiations delayed the rollout of new rules by a year, saying it needed more time to hash out the complicated details.`\
+**A global deal to tax large corporations is delayed a year.**\
+`The organization overseeing the negotiations pushed back the rollout of new rules, a move that is expected to postpone the agreement until 2024.`\
 https://nytimes.com/2022/07/11/business/global-corporate-tax-deal.html?searchResultPosition=3
 
 **What Is Delaware’s Court of Chancery and Its Role in Elon Musk’s Twitter Deal?**\
