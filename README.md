@@ -36,5 +36,5 @@ https://nytimes.com/2022/07/11/realestate/shopping-peg-rails.html?searchResultPo
 
 **China’s Economy Stumbles in the Fog of Covid War**\
 `Even if the country avoids new lockdowns of big cities, question marks over the pandemic and policy direction are dogging efforts to revive growth.`\
-https://nytimes.com/2022/07/11/business/chinas-economy-stumbles-in-the-fog-of-covid-war.html?searchResultPosition=10
+https://nytimes.com/2022/07/11/business/china-economy-covid.html?searchResultPosition=10
 
