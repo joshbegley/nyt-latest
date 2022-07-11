@@ -1,6 +1,6 @@
 **PGA Tour’s Fight With LIV Golf Reaches Justice Department**\
 `The Justice Department is investigating the PGA Tour for anticompetitive behavior in its dealings with the breakaway LIV Golf Series.`\
-https://nytimes.com/2022/07/11/sports/golf/liv-pga-doj.html?searchResultPosition=1
+https://nytimes.com/2022/07/11/sports/golf/pga-tour-liv-golf-doj.html?searchResultPosition=1
 
 **Celebrating Eid, and Yemen, in New York**\
 `Yemeni Americans gathered in New York City to celebrate Eid al-Adha and to pay homage to Yemen’s beauty and culture, often forgotten amid a devastating war.`\
