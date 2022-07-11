@@ -23,7 +23,7 @@ https://nytimes.com/2022/07/11/well/family/check-in-text-friendship.html?searchR
 https://nytimes.com/2022/07/11/business/media/francis-x-clines-dead.html?searchResultPosition=6
 
 **Democrats Schedule Votes on Abortion Access, but Lack a Legislative Path**\
-`Under pressure to act, Democrats have scheduled votes on bills to preserve abortion access. But with Republicans and at least one Democrat opposed, they lack the support to succeed.`\
+`Democrats in Congress are under pressure to act after the Supreme Court’s decision. But with Republicans and at least one Democrat opposed in the Senate, the measures are all but certain to fail.`\
 https://nytimes.com/2022/07/11/us/politics/democrats-abortion.html?searchResultPosition=7
 
 **New York’s Top Judge Is Moving On: ‘I’ve Made My Contribution’**\
