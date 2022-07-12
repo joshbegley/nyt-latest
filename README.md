@@ -1,5 +1,5 @@
 **Woods Backs Norman’s Exclusion from British Open**\
-`Two days before the Open’s start at golf’s oldest course, the 15-time major champion said he worried about young players defecting to an upstart league.`\
+`Two days before the Open’s start at golf’s oldest course, the 15-time major champion said he worried about young players defecting to the LIV Golf series.`\
 https://nytimes.com/2022/07/12/sports/tennis/tiger-woods-liv-british-open.html?searchResultPosition=1
 
 **The euro falls near parity with the dollar, a threshold watched closely by investors.**\
