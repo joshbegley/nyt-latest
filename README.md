@@ -1,4 +1,4 @@
-**Steve Martin and Martin Short Are Thrilled for Each Other, of Course**\
+**Steve Martin and Martin Short Are Thrilled to be Competing, of Course**\
 `Both received Emmy nominations for their lead roles in the Hulu comedy “Only Murders in the Building.” What’s a little friendly competition between friends?`\
 https://nytimes.com/2022/07/12/arts/television/martin-short-steve-martin-only-murders-in-the-building.html?searchResultPosition=1
 
