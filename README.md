@@ -2,7 +2,7 @@
 `In the wake of the Supreme Court ruling, abortion benefits will depend even more on where a woman lives and who provides her insurance.`\
 https://nytimes.com/2022/07/12/your-money/health-insurance/abortion-health-insurance-coverage.html?searchResultPosition=1
 
-**Panel members dissected the ‘the craziest meeting of the Trump presidency.’**\
+**Panel members dissected the ‘craziest meeting of the Trump presidency.’**\
 `A meeting involving outside advisers to former President Donald J. Trump and White House officials devolved into what witnesses described as a chaotic confrontation over a desperate attempt to overturn the election.`\
 https://nytimes.com/2022/07/12/us/dec-18-meeting-jan-6-trump.html?searchResultPosition=2
 
