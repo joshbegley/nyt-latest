@@ -10,13 +10,13 @@ https://nytimes.com/2022/07/12/world/europe/italy-drought-farmers.html?searchRes
 `When Los Angeles no longer felt right to a hairstylist and his partner, they knew they were ready for a big change. It came with a Hudson River view.`\
 https://nytimes.com/2022/07/12/realestate/southern-california-upstate-new-york-hudson-valley-kingston.html?searchResultPosition=3
 
+**Advanced E.V. Batteries Move From Labs to Mass Production**\
+`Makers of batteries that could charge in a few minutes are setting up assembly lines, bringing the technology a big step closer to auto showrooms.`\
+https://nytimes.com/2022/07/12/business/electric-vehicle-batteries.html?searchResultPosition=4
+
 **From Southern California to Upstate New York**\
 `When Los Angeles no longer felt right to a celebrity hairstylist and his partner, they were ready for a big change. It came with a Hudson River view.`\
-https://nytimes.com/slideshow/2022/07/12/realestate/from-southern-california-to-upstate-new-york.html?searchResultPosition=4
-
-**Advanced Batteries Move From Labs to Mass Production**\
-`Makers of batteries that could charge in a few minutes are setting up assembly lines, bringing the technology a big step closer to auto showrooms.`\
-https://nytimes.com/2022/07/12/business/electric-vehicle-batteries.html?searchResultPosition=5
+https://nytimes.com/slideshow/2022/07/12/realestate/from-southern-california-to-upstate-new-york.html?searchResultPosition=5
 
 **Earl McGrath Was a Character. His Closet Was Filled With Rare Recordings.**\
 `When the art and music world figure died in 2016, he left behind a trove of reels from his years scouting for his own label and the one he ran for the Rolling Stones.`\
