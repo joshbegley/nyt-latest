@@ -4,7 +4,7 @@ https://nytimes.com/2022/07/12/business/pepsi-quarterly-earnings.html?searchResu
 
 **Evan Williams Is Stepping Down as C.E.O. of Medium**\
 `Mr. Williams, the company’s founder and a co-founder of Twitter and Blogger, said in a post that he planned to start a new holding company and research lab.`\
-https://nytimes.com/2022/07/12/business/evan-williams-leaving-medium.html?searchResultPosition=2
+https://nytimes.com/2022/07/12/business/media/evan-williams-leaving-medium.html?searchResultPosition=2
 
 **The pandemic remains a global health emergency, the W.H.O. says.**\
 `“Covid-19 is nowhere near over,” the agency’s director general declared.`\
