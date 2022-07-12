@@ -16,7 +16,7 @@ https://nytimes.com/2022/07/12/style/tiny-modern-love-stories-plenty-of-parents-
 
 **Ice Cream in the City**\
 `Doughnut sundaes, s’mores gelato and much more.`\
-https://nytimes.com/2022/07/12/dining/ice-cream-in-the-city.html?searchResultPosition=5
+https://nytimes.com/2022/07/12/dining/ice-cream-nyc.html?searchResultPosition=5
 
 **Abortion Insurance Coverage Is Now Much More Complicated**\
 `In the wake of the Supreme Court ruling, abortion benefits will depend even more on where a woman lives and who provides her insurance.`\
