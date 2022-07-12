@@ -22,7 +22,7 @@ https://nytimes.com/2022/07/12/us/alex-murdaugh-murder-charges.html?searchResult
 `The question of whether Elon Musk must buy Twitter, as he agreed to do in April, is headed to a court in Delaware.`\
 https://nytimes.com/2022/07/12/technology/twitter-lawsuit-musk-acquisition.html?searchResultPosition=6
 
-**Webb Telescope Raises Curtain on a New, Ancient Universe**\
+**Webb Telescope Reveals a New of an Ancient Universe**\
 `Spectacular imagery from the largest-ever space telescope brought tears to the eyes of seasoned scientists and dazzled the public.`\
 https://nytimes.com/2022/07/12/science/james-webb-telescope-images-nasa.html?searchResultPosition=7
 
