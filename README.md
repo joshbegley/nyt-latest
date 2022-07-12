@@ -34,7 +34,7 @@ https://nytimes.com/2022/07/12/opinion/employment-wages-recession-economy.html?s
 `See detailed maps of the latest heat index forecasts in the United States.`\
 https://nytimes.com/interactive/2022/us/heat-wave-map-tracker.html?searchResultPosition=9
 
-**Shoppers are still willing to pay more for drinks and snacks, Pepsi says.**\
-`The company is passing higher prices for soda and potato chips on to consumers, for now, but there are “plenty of unknowns” about how they will react in the future, it said.`\
-https://nytimes.com/2022/07/12/business/pepsi-quarterly-earnings.html?searchResultPosition=10
+**For Erdogan, talks with Putin next week put spotlight on a complicated relationship.**\
+`By Dan Bilefsky`\
+https://nytimes.com/2022/07/12/world/putin-russia-turkey-iran.html?searchResultPosition=10
 
