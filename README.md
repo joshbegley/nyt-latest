@@ -26,8 +26,8 @@ https://nytimes.com/2022/07/12/us/politics/syria-refugees-russia-un.html?searchR
 `The rap-rock group’s first tour in more than a decade arrives at a moment of political tension, and opens with the like-minded hip-hop duo Run the Jewels.`\
 https://nytimes.com/2022/07/12/arts/music/rage-against-the-machine-live-review.html?searchResultPosition=7
 
-**Emmys Nominees List 2022: What to Expect**\
-`This year’s Emmy nominees will be announced on Tuesday. The 74th Emmy Awards will be held on Sept. 12.`\
+**Emmys Nominees List 2022: Updating List**\
+`This year’s Emmy nominees are being announced. The 74th Emmy Awards will be held on Sept. 12.`\
 https://nytimes.com/2022/07/12/arts/television/emmy-nominees-list-2022.html?searchResultPosition=8
 
 **Killing what saves us**\
