@@ -1,8 +1,8 @@
-**Woods Backs Norman’s Exclusion from British Open**\
+**Tiger Woods Backs Greg Norman’s Exclusion from the British Open**\
 `Two days before the Open’s start at golf’s oldest course, the 15-time major champion said he worried about young players defecting to the LIV Golf series.`\
-https://nytimes.com/2022/07/12/sports/tennis/tiger-woods-liv-british-open.html?searchResultPosition=1
+https://nytimes.com/2022/07/12/sports/golf/tiger-woods-liv-british-open.html?searchResultPosition=1
 
-**The euro falls near parity with the dollar, a threshold watched closely by investors.**\
+**Euro Falls Near Parity with Dollar, a Threshold Watched Closely by Investors**\
 `The euro was last worth the same as the dollar in December 2002, shortly after the currency, now used by 19 European countries, was established.`\
 https://nytimes.com/2022/07/12/business/euro-dollar-parity.html?searchResultPosition=2
 
