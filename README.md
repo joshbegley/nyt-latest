@@ -1,40 +1,40 @@
-**‘I Don’t Mind Being a Martyr’: Ailing Hong Kong Activist Defiant in Court**\
-`Koo Sze-yiu, who has been diagnosed with late-stage colon cancer, was sentenced to nine months in prison for planning a protest, amid fears he could die in prison.`\
-https://nytimes.com/2022/07/12/world/asia/hong-kong-activist-jailed.html?searchResultPosition=1
+**They Traded Southern California for Upstate New York (and a Barn)**\
+`When Los Angeles no longer felt right to a hairstylist and his partner, they knew they were ready for a big change. It came with a Hudson River view.`\
+https://nytimes.com/2022/07/12/realestate/southern-california-upstate-new-york-hudson-valley-kingston.html?searchResultPosition=1
 
-**New Climate Promises, Same Old Global Warming**\
-`“Net-zero emissions” sounds like an ambitious goal, but for most corporations it’s just kicking the can down the road.`\
-https://nytimes.com/video/opinion/100000008429698/net-zero-global-warming.html?searchResultPosition=2
+**From Southern California to Upstate New York**\
+`When Los Angeles no longer felt right to a celebrity hairstylist and his partner, they were ready for a big change. It came with a Hudson River view.`\
+https://nytimes.com/slideshow/2022/07/12/realestate/from-southern-california-to-upstate-new-york.html?searchResultPosition=2
 
-**Half of G.O.P. Voters Ready to Leave Trump Behind, Poll Finds**\
-`Far from consolidating his support, the former president appears weakened in his party, especially with younger and college-educated Republicans. Gov. Ron DeSantis of Florida is the most popular alternative.`\
-https://nytimes.com/2022/07/12/us/politics/trump-approval-polling-2024.html?searchResultPosition=3
+**Advanced Batteries Move From Labs to Mass Production**\
+`Makers of batteries that could charge in a few minutes are setting up assembly lines, bringing the technology a big step closer to auto showrooms.`\
+https://nytimes.com/2022/07/12/business/electric-vehicle-batteries.html?searchResultPosition=3
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/07/12/crosswords/spelling-bee-forum.html?searchResultPosition=4
+**Earl McGrath Was a Character. His Closet Was Filled With Rare Recordings.**\
+`When the art and music world figure died in 2016, he left behind a trove of reels from his years scouting for his own label and the one he ran for the Rolling Stones.`\
+https://nytimes.com/2022/07/12/arts/music/earl-mcgrath-rolling-stones.html?searchResultPosition=4
 
-**Has Hochul Made Albany More Transparent?**\
-`Her critics say the governor has failed to deliver on changing the capital’s culture.`\
-https://nytimes.com/2022/07/12/nyregion/has-hochul-made-albany-more-transparent.html?searchResultPosition=5
+**Is the World Really Falling Apart, or Does It Just Feel That Way?**\
+`By most measures — with one glaring exception — people around the world are better off than ever. So why doesn’t it feel that way, especially to Americans?`\
+https://nytimes.com/2022/07/12/world/interpreter-world-falling-apart.html?searchResultPosition=5
 
-**Corrections: July 12, 2022**\
-`Corrections that appeared in print on Tuesday, July 12, 2022.`\
-https://nytimes.com/2022/07/12/pageoneplus/corrections-july-12-2022.html?searchResultPosition=6
+**A Perfect Weekend in Asbury Park, N.J.**\
+`An hourlong drive from Manhattan offers a seaside idyll for rockers, diners, surfers, art patrons and fans of just relaxing on the beach. Here’s how to make the most of a weekend there.`\
+https://nytimes.com/2022/07/12/travel/nj-asbury-park-weekend.html?searchResultPosition=6
 
-**Quotation of the Day: Low on Food and Fuel, Sri Lanka Nervously Awaits Its Next Leader**\
-`Quotation of the Day for Tuesday, July 12, 2022.`\
-https://nytimes.com/2022/07/12/todayspaper/quotation-of-the-day-low-on-food-and-fuel-sri-lanka-nervously-awaits-its-next-leader.html?searchResultPosition=7
+**As Sixth Covid Wave Hits, Many New Yorkers Shrug It Off**\
+`Once among the most vigilant, New Yorkers respond to a highly transmissible new wave of Covid cases with the most New York of attitudes.`\
+https://nytimes.com/2022/07/12/nyregion/ba5-variant-omicron-covid-nyc.html?searchResultPosition=7
 
-**Your Tuesday Briefing**\
-`Russia’s strikes on Ukrainian civilians.`\
-https://nytimes.com/2022/07/12/briefing/russian-strikes-ukraine-tory-candidates.html?searchResultPosition=8
+**New Saudi Rules on Pilgrimages Upend a Rite for New York Muslims**\
+`The hajj, a holy trip to Mecca that Muslims are encouraged to take once in their lives, used to be big business. Then the rules changed.`\
+https://nytimes.com/2022/07/12/nyregion/hajj-muslim-travel-agencies.html?searchResultPosition=8
 
-**What Will Post-Roe Medical Care Look Like? A Times Event**\
-`The Opinion podcast host Lulu Garcia-Navarro explores the future of reproductive health care in a virtual event on July 21.`\
-https://nytimes.com/2022/07/11/opinion/post-roe-health-care-event.html?searchResultPosition=9
+**Ukraine’s Demands for More Weapons Clash With U.S. Concerns**\
+`Pulling Ukrainians out of battle to train them could accelerate Russia’s gains, officials say. The Pentagon is also monitoring the levels of its own stockpiles.`\
+https://nytimes.com/2022/07/12/us/politics/ukraine-us-weapons.html?searchResultPosition=9
 
-**‘Better Call Saul’ Season 6, Episode 8 Recap: Showdown**\
-`Jimmy and Kim get a new refrigerator. Gus and Lalo get some quality face time.`\
-https://nytimes.com/2022/07/11/arts/television/better-call-saul-recap-episode-8.html?searchResultPosition=10
+**Is Chocolate Good for You?**\
+`Studies suggest that cocoa might benefit health, but it’s unclear how that may translate to a typical bar of chocolate.`\
+https://nytimes.com/2022/07/12/well/eat/chocolate-health-benefits.html?searchResultPosition=10
 
