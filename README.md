@@ -18,7 +18,7 @@ https://nytimes.com/2022/07/12/nyregion/airbnb-lawsuit-short-term-rental.html?se
 **\
 `Breakthrough | Boston Children's Hospital + T Brand Studio
 Episode 4: Sports Injuries`\
-https://nytimes.com/paidpost/bch-ep4-sports-injuries-transcript/bch/sports-injuries.html?searchResultPosition=5
+https://nytimes.com/paidpost/bch-ep4-sports-injuries-transcript/sports-injuries.html?searchResultPosition=5
 
 **The Arms Race**\
 `Ukraine and Russia are racing to replenish their depleted stocks of weapons.`\
