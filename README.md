@@ -12,7 +12,7 @@ https://nytimes.com/2022/07/12/world/europe/russia-putin-iran-erdogan.html?searc
 
 **Boy, 7, and Woman Dead After Boat Capsizes in Hudson River**\
 `Ten passengers were injured when the private boat overturned near a pier in Midtown Manhattan, officials said.`\
-https://nytimes.com/2022/07/12/nyregion/boat-capsize-rescue-hudson-yards.html?searchResultPosition=4
+https://nytimes.com/2022/07/12/nyregion/hudson-river-boat-capsize-rescue.html?searchResultPosition=4
 
 **Four takeaways from the latest hearing of the House Jan. 6 committee.**\
 `The hearing relied on testimony from Trump aides, right-wing media commentators and militia members to illustrate key events leading up to the Capitol riot.`\
