@@ -6,7 +6,7 @@ https://nytimes.com/2022/07/12/arts/abubakr-ali-grendel.html?searchResultPositio
 `NASA revealed data from the James Webb Space Telescope indicating water vapor in the atmosphere of exoplanet WASP-96b, as well as evidence of clouds and hazes on the planet.`\
 https://nytimes.com/video/science/space/100000008440236/webb-telescope-nasa-exoplanet.html?searchResultPosition=2
 
-**NASA Reveals New Image from James Webb Space Telescope**\
+**NASA Reveals New Image From James Webb Space Telescope**\
 `The image shows the Southern Ring Nebula, a dying star, expelling a colorful gas cloud that will eventually expand and fade away into the space between stars.`\
 https://nytimes.com/video/science/space/100000008440212/james-webb-space-telescope-nebula.html?searchResultPosition=3
 
