@@ -23,7 +23,7 @@ https://nytimes.com/2022/07/12/technology/twitter-musk-lawsuit-reasons.html?sear
 https://nytimes.com/2022/07/12/opinion/texas-redistricting-maps-gerrymandering.html?searchResultPosition=6
 
 **How to Save an Ancient, Giant Tree From a Wildfire**\
-`Authorities in Yosemite National Park are hopeful that a sprinkler system can save the Grizzly Giant, a more than 200-foot-tall sequoia that dates back at least 2,000 years.`\
+`The authorities in Yosemite National Park are hopeful that a sprinkler system can save the Grizzly Giant, a more than 200-foot-tall sequoia that dates back at least 2,000 years.`\
 https://nytimes.com/2022/07/12/us/giant-sequoia-yosemite-washburn-fire.html?searchResultPosition=7
 
 **Tears, Screaming and Insults: Inside an ‘Unhinged’ Meeting to Keep Trump in Power**\
