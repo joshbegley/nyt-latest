@@ -1,40 +1,40 @@
-**Tear Gas Fired at Protesters in Sri Lanka**\
-`Police and military forces used tear gas on protesters near the office of Prime Minister Ranil Wickremesinghe. Mr. Wickremesinghe was the top leader in Sri Lanka after the president fled. Protesters have also demanded that the prime minister resign.`\
-https://nytimes.com/video/world/asia/100000008441741/sri-lanka-tear-gas-protesters.html?searchResultPosition=1
+**To Win the British Open, You Have to Go Through the Road Hole**\
+`Some say the 17th hole on the Old Course at St. Andrews is the hardest in the world. Many championship dreams have died there.`\
+https://nytimes.com/2022/07/13/sports/golf/british-open-road-hole.html?searchResultPosition=1
 
-**Tear gas fired at protesters outside the prime minister’s office.**\
-`By Skandha Gunasekara and Emily Schmall`\
-https://nytimes.com/2022/07/12/world/asia/tear-gas-fired-at-protesters-outside-the-prime-ministers-office.html?searchResultPosition=2
+**Some Classic Golf Courses Have Fallen Off the Open Schedule**\
+`Clubs that were the foundation of this tournament no longer host. They are considered too small, too remote or too Trump.`\
+https://nytimes.com/2022/07/13/sports/golf/british-open-courses.html?searchResultPosition=2
 
-**Poll Shows Tight Race for Control of Congress as Class Divide Widens**\
-`Nonwhite and working-class Democrats worry more about the economy, while white college graduates focus more on cultural issues like abortion rights and guns.`\
-https://nytimes.com/2022/07/13/upshot/poll-2022-midterms-congress.html?searchResultPosition=3
+**Far From Kabul, Building a New Life, With Music and Hope**\
+`The students of the Afghanistan National Institute of Music fled after the Taliban seized power. Now they are trying to remake their school, and their dreams, in Portugal.`\
+https://nytimes.com/2022/07/13/arts/music/afghan-national-institute-of-music-lisbon.html?searchResultPosition=3
 
-**Pete Wells’s Search for the Perfect Bite**\
-`Over a working dinner, the restaurant critic discussed his philosophy and what still excited him after 10 years on the job.`\
-https://nytimes.com/2022/07/13/insider/pete-wellss-search-for-the-perfect-bite.html?searchResultPosition=4
+**How Demand for Twigs Is Bringing Down a Rainforest**\
+`In the Congo River Basin, people who collect bundles of wood to make charcoal are playing a surprisingly large role in the deforestation of a region that rivals the Amazon in importance.`\
+https://nytimes.com/2022/07/13/climate/congo-river-basin-deforestation-charcoal.html?searchResultPosition=4
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/07/13/crosswords/spelling-bee-forum.html?searchResultPosition=5
+**Edison, N.J.: A Diverse Suburb in a Convenient Location**\
+`The Middlesex County township is just an hour from Manhattan, with easy access to transportation and a thriving Asian community.`\
+https://nytimes.com/2022/07/13/realestate/edison-nj-a-diverse-suburb-in-a-convenient-location.html?searchResultPosition=5
 
-**Nukes, Oil and a Prince’s Redemption: A Trip Fraught With Perils for Biden**\
-`President Biden is heading to the Mideast with one eye on U.S. strategic goals abroad and another on his political vulnerabilities back home.`\
-https://nytimes.com/2022/07/13/us/politics/biden-mbs-saudi-arabia.html?searchResultPosition=6
+**Living In ... Edison, N.J.**\
+`The Middlesex County township is an hour from Manhattan, with easy access to transportation and a vibrant Asian community.`\
+https://nytimes.com/slideshow/2022/07/13/realestate/living-in-edison-nj.html?searchResultPosition=6
 
-**Protesters in Sri Lanka Flock to the Capital**\
-`Protests continued in Colombo, Sri Lanka, following news that President Gotabaya Rajapaksa had fled to the Maldives. Crowds took to the streets and moved toward the presidential residence.`\
-https://nytimes.com/video/world/asia/100000008441655/sri-lanka-president-protests.html?searchResultPosition=7
+**5 Foam Rolling Exercises for Skeptics**\
+`Here’s what to know before adding a foam roller to your warm-up or cool down.`\
+https://nytimes.com/2022/07/13/well/foam-rolling-exercises.html?searchResultPosition=7
 
-**‘The thieves are running away’: Protesters flock to the capital from around Sri Lanka.**\
-`Security forces fired tear gas in an effort to disperse people. Families with young children were among those marching.`\
-https://nytimes.com/2022/07/13/world/asia/sri-lanka-scene-protest.html?searchResultPosition=8
+**In Portugal, Taking a Dive Into Sardines**\
+`The canned fish are having a moment in the food world. A tour of a canning factory in Porto gives an up-close view of a century-old business.`\
+https://nytimes.com/2022/07/13/travel/portugal-sardine-factory-tour.html?searchResultPosition=8
 
-**Biden’s Trip to Saudi Arabia Isn’t Destined to Fail**\
-`Biden’s visit to the kingdom is a personal defeat. But it does not have to be a defeat for the U.S.-Saudi relationship.`\
-https://nytimes.com/2022/07/13/opinion/biden-mbs-saudi-visit.html?searchResultPosition=9
+**Why Some of Your Annuals Should Be Native Plants**\
+`Say the word “annuals” and most gardeners think of subtropical plants like petunias or marigolds. But native annuals do so much more for your garden.`\
+https://nytimes.com/2022/07/13/realestate/why-some-of-your-annuals-should-be-native-plants.html?searchResultPosition=9
 
-**In Divide Over Ukraine, China Stakes a Position Further From U.S.**\
-`Recent statements have underscored the deep chasms in a relationship that is getting worse, as the Biden administration tries to come up with a cohesive China policy.`\
-https://nytimes.com/2022/07/13/world/asia/china-united-states-russia-ukraine.html?searchResultPosition=10
+**The Quiet Fight to Keep Legacy Admissions**\
+`Most elite colleges, like Yale and Harvard, give a boost to applicants who are children of alumni. But with affirmative action under attack, that may become harder to defend.`\
+https://nytimes.com/2022/07/13/us/legacy-admissions-colleges-universities.html?searchResultPosition=10
 
