@@ -1,40 +1,40 @@
+**Ties Between America and Israel Are ‘Bone Deep,’ Biden Says**\
+`During a four-day trip to Israel and Saudi Arabia, President Biden will focus on securing oil for American gas pumps, slowing Iran’s nuclear program and strengthening relations with Saudi Arabia.`\
+https://nytimes.com/video/us/politics/100000008441898/biden-israel-middle-east-visit.html?searchResultPosition=1
+
 **‘Elvis’ vs. Elvis**\
 `How much do fantasy and imagination play into how we remember pop culture heroes?`\
-https://nytimes.com/2022/07/13/arts/music/popcast-elvis-movie.html?searchResultPosition=1
+https://nytimes.com/2022/07/13/arts/music/popcast-elvis-movie.html?searchResultPosition=2
 
 **Funding for Penn Station Plan Could Fall $3 Billion Short, Report Says**\
 `A new report, commissioned by an Albany watchdog group, is the latest volley in an intensifying debate over one of the nation’s most ambitious development projects.`\
-https://nytimes.com/2022/07/13/nyregion/penn-station-renovation-funding.html?searchResultPosition=2
+https://nytimes.com/2022/07/13/nyregion/penn-station-renovation-funding.html?searchResultPosition=3
 
 **Bidding Farewell to His Theatrical Flock**\
 `In a 34-year run at New York Theater Workshop, James C. Nicola held that directors and writers are equal partners — and helped send “Rent” and “Hadestown” to Broadway.`\
-https://nytimes.com/2022/07/13/theater/jim-nicola-new-york-theater-workshop.html?searchResultPosition=3
+https://nytimes.com/2022/07/13/theater/jim-nicola-new-york-theater-workshop.html?searchResultPosition=4
 
 **168 Writing Prompts to Spark Discussion and Reflection**\
 `Here are all of our Student Opinion questions from the 2021-22 school year. Each question is based on a different New York Times article, interactive feature or video.`\
-https://nytimes.com/2022/07/13/learning/168-writing-prompts-to-spark-discussion-and-reflection.html?searchResultPosition=4
+https://nytimes.com/2022/07/13/learning/168-writing-prompts-to-spark-discussion-and-reflection.html?searchResultPosition=5
 
 **The Saga of a World War II Ancestor of Miss Piggy, Bert and Yoda**\
 `Long before Frank Oz brought many Muppets to life, his father, an amateur Dutch puppeteer, made a Hitler marionette as an act of defiance. He buried it during the war.`\
-https://nytimes.com/2022/07/13/arts/design/frank-oz-father-puppet.html?searchResultPosition=5
+https://nytimes.com/2022/07/13/arts/design/frank-oz-father-puppet.html?searchResultPosition=6
 
 **Biden sidesteps a request to meet the family of a slain journalist on his trip, risking Palestinian anger.**\
 `The State Department instead invited Shireen Abu Akleh’s family to Washington, according to a U.S. official and the journalist’s brother.`\
-https://nytimes.com/2022/07/13/world/middleeast/biden-sidesteps-a-request-to-meet-the-family-of-a-slain-journalist-on-his-trip-risking-palestinian-anger.html?searchResultPosition=6
+https://nytimes.com/2022/07/13/world/middleeast/biden-sidesteps-a-request-to-meet-the-family-of-a-slain-journalist-on-his-trip-risking-palestinian-anger.html?searchResultPosition=7
 
 **Who’s the Oldest of Them All?**\
 `Two towns in Sardinia battle for the distinction of having the longest-living residents. One has the imprimatur of Guinness World Records.`\
-https://nytimes.com/2022/07/13/world/europe/italy-sardinia-perdasdefogu-seulo-longevity.html?searchResultPosition=7
+https://nytimes.com/2022/07/13/world/europe/italy-sardinia-perdasdefogu-seulo-longevity.html?searchResultPosition=8
 
 **Euro Falls to Equal the U.S. Dollar for the First Time in 20 Years**\
 `In recent months, pressure on the euro has been mounting while investors have been flocking to the U.S. dollar, a haven in times of economic upheaval.`\
-https://nytimes.com/2022/07/13/business/euro-dollar-parity.html?searchResultPosition=8
+https://nytimes.com/2022/07/13/business/euro-dollar-parity.html?searchResultPosition=9
 
 **Bob Odenkirk, Five-Time Emmy Nominee, Isn’t Ready to Get Off the Ride**\
 `The star of “Better Call Saul” discussed his latest nod and bringing some measure of self-awareness to the character for his final bow.`\
-https://nytimes.com/2022/07/13/arts/television/emmy-bob-odenkirk-better-call-saul.html?searchResultPosition=9
-
-**Two Who Died in Hudson River Capsizing Are Identified**\
-`The police identified the victims as Lindelia Vasquez, 47, and Julian Vasquez, 7. The cause of the capsizing remains under investigation.`\
-https://nytimes.com/2022/07/13/nyregion/hudson-river-boat-drowning.html?searchResultPosition=10
+https://nytimes.com/2022/07/13/arts/television/emmy-bob-odenkirk-better-call-saul.html?searchResultPosition=10
 
