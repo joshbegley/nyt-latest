@@ -1,40 +1,40 @@
+**Art We Saw This Summer**\
+`From our critics, reviews of closed gallery shows around New York City.`\
+https://nytimes.com/2022/07/13/arts/design/art-we-saw-this-summer.html?searchResultPosition=1
+
+**Gates Foundation Adds $20 Billion to Its Coffers**\
+`The organization, still run by Bill Gates and Melinda French Gates, will eventually spend $9 billion a year, up from $6 billion, on causes like global health and education.`\
+https://nytimes.com/2022/07/13/business/gates-foundation-adds-20-billion-to-its-coffers.html?searchResultPosition=2
+
+**How to Bulgogi Your Tofu**\
+`You don’t always need a recipe.`\
+https://nytimes.com/2022/07/13/dining/how-to-bulgogi-your-tofu.html?searchResultPosition=3
+
 **U.S.C. Sex Scandals and the Paper That Tried to Cover Them Up**\
 `In 2016, editors at The Los Angeles Times were reluctant to publish reporting that would portray the university and its top fund-raisers in a negative light.`\
-https://nytimes.com/2022/07/13/books/review/bad-city-paul-pringle.html?searchResultPosition=1
+https://nytimes.com/2022/07/13/books/review/bad-city-paul-pringle.html?searchResultPosition=4
 
 **‘It’s Just Been Hell:’ Life as the Victim of a Jan. 6 Conspiracy Theory**\
 `Ray Epps became the unwitting face of an attempt by pro-Trump forces to promote the baseless idea that the F.B.I. was behind the attack on the Capitol.`\
-https://nytimes.com/2022/07/13/us/politics/jan-6-conspiracy-theory-ray-epps.html?searchResultPosition=2
+https://nytimes.com/2022/07/13/us/politics/jan-6-conspiracy-theory-ray-epps.html?searchResultPosition=5
 
 **Victoria’s Secret and What’s Sexy Now**\
 `A rebranding and a new documentary have the lingerie company back in the cultural cross hairs.`\
-https://nytimes.com/2022/07/13/style/victorias-secret-rebrand.html?searchResultPosition=3
+https://nytimes.com/2022/07/13/style/victorias-secret-rebrand.html?searchResultPosition=6
 
 **At Yad Vashem, Israel’s Holocaust memorial, a reaffirmation of life.**\
 `President Biden is scheduled to meet two survivors on a visit to Israel’s official Holocaust memorial in Jerusalem.`\
-https://nytimes.com/2022/07/13/world/middleeast/yad-vashem-israel-holocaust-memorial-biden.html?searchResultPosition=4
+https://nytimes.com/2022/07/13/world/middleeast/yad-vashem-israel-holocaust-memorial-biden.html?searchResultPosition=7
 
 **Ties Between America and Israel Are ‘Bone Deep,’ Biden Says**\
 `During a four-day trip to Israel and Saudi Arabia, President Biden will focus on securing oil for American gas pumps, slowing Iran’s nuclear program and strengthening relations with Saudi Arabia.`\
-https://nytimes.com/video/us/politics/100000008441898/biden-israel-middle-east-visit.html?searchResultPosition=5
+https://nytimes.com/video/us/politics/100000008441898/biden-israel-middle-east-visit.html?searchResultPosition=8
 
 **Sri Lanka’s acting president has a long, and complicated, political history.**\
 `A prime minister six times over, Ranil Wickremesinghe’s leadership has been equated with Sri Lanka’s economic ambitions as well as its collapse.`\
-https://nytimes.com/2022/07/12/world/asia/ranil-wickremesinghe-sri-lanka-acting-president.html?searchResultPosition=6
+https://nytimes.com/2022/07/12/world/asia/ranil-wickremesinghe-sri-lanka-acting-president.html?searchResultPosition=9
 
 **‘Elvis’ vs. Elvis**\
 `How much do fantasy and imagination play into how we remember pop culture heroes?`\
-https://nytimes.com/2022/07/13/arts/music/popcast-elvis-movie.html?searchResultPosition=7
-
-**Funding for Penn Station Plan Could Fall $3 Billion Short, Report Says**\
-`A new report, commissioned by an Albany watchdog group, is the latest volley in an intensifying debate over one of the nation’s most ambitious development projects.`\
-https://nytimes.com/2022/07/13/nyregion/penn-station-renovation-funding.html?searchResultPosition=8
-
-**Bidding Farewell to His Theatrical Flock**\
-`In a 34-year run at New York Theater Workshop, James C. Nicola held that directors and writers are equal partners — and helped send “Rent” and “Hadestown” to Broadway.`\
-https://nytimes.com/2022/07/13/theater/jim-nicola-new-york-theater-workshop.html?searchResultPosition=9
-
-**168 Writing Prompts to Spark Discussion and Reflection**\
-`Here are all of our Student Opinion questions from the 2021-22 school year. Each question is based on a different New York Times article, interactive feature or video.`\
-https://nytimes.com/2022/07/13/learning/168-writing-prompts-to-spark-discussion-and-reflection.html?searchResultPosition=10
+https://nytimes.com/2022/07/13/arts/music/popcast-elvis-movie.html?searchResultPosition=10
 
