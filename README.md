@@ -3,7 +3,7 @@
 https://nytimes.com/video/world/asia/100000008441655/sri-lanka-president-protests.html?searchResultPosition=1
 
 **‘The thieves are running away’: Protesters flock to the capital from around Sri Lanka.**\
-`Security forces fired tear gas in an effort to  disperse people. Families with young children were among those marching.`\
+`Security forces fired tear gas in an effort to disperse people. Families with young children were among those marching.`\
 https://nytimes.com/2022/07/13/world/asia/sri-lanka-scene-protest.html?searchResultPosition=2
 
 **Biden’s Trip to Saudi Arabia Isn’t Destined to Fail**\
