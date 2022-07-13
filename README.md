@@ -6,7 +6,7 @@ https://nytimes.com/2022/07/12/world/asia/sri-lanka-parliament-crisis.html?searc
 `Corrections that appeared in print on Wednesday, July 13, 2022.`\
 https://nytimes.com/2022/07/12/pageoneplus/corrections-july-13-2022.html?searchResultPosition=2
 
-**It Really Wasn’t Cricket: the Strange Case of the Fake Indian Premier League**\
+**It Really Wasn’t Cricket: The Strange Case of the Fake Indian Premier League**\
 `The bats and balls were real, but not much else was authentic in what officials said was an elaborate scheme to dupe Russian gamblers through hoax games streamed on YouTube.`\
 https://nytimes.com/2022/07/12/world/asia/cricket-fake-indian-premier-league.html?searchResultPosition=3
 
