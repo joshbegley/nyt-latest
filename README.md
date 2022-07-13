@@ -1,5 +1,5 @@
 **Protesters in Sri Lanka Flock to the Capital**\
-`Protests continued in Colombo, Sri Lanka, following news that President Gotabaya Rajapaksa had fled to the Maldives. Crowds took to the streets and moved towards the presidential residence.`\
+`Protests continued in Colombo, Sri Lanka, following news that President Gotabaya Rajapaksa had fled to the Maldives. Crowds took to the streets and moved toward the presidential residence.`\
 https://nytimes.com/video/world/asia/100000008441655/sri-lanka-president-protests.html?searchResultPosition=1
 
 **‘The thieves are running away’: Protesters flock to the capital from around Sri Lanka.**\
