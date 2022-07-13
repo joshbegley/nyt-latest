@@ -7,7 +7,7 @@ https://nytimes.com/2022/07/13/us/politics/jan-6-conspiracy-theory-ray-epps.html
 https://nytimes.com/2022/07/13/style/victorias-secret-rebrand.html?searchResultPosition=2
 
 **At Yad Vashem, Israel’s Holocaust memorial, a reaffirmation of life.**\
-`President Biden is scheduled to meet two Holocaust survivors on a visit to Israel’s official Holocaust memorial in Jerusalem.`\
+`President Biden is scheduled to meet two survivors on a visit to Israel’s official Holocaust memorial in Jerusalem.`\
 https://nytimes.com/2022/07/13/world/middleeast/yad-vashem-israel-holocaust-memorial-biden.html?searchResultPosition=3
 
 **Ties Between America and Israel Are ‘Bone Deep,’ Biden Says**\
