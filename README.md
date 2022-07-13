@@ -8,7 +8,7 @@ https://nytimes.com/2022/07/13/business/economy/inflation-june-soaring-consumers
 
 **Sunak Takes the Lead in the Voting for U.K. Prime Minister**\
 `The former chancellor of the Exchequer led a pack of candidates after the first round, while an obscure trade minister surprised in second place.`\
-https://nytimes.com/2022/07/13/world/europe/tories-sunak-mordaunt.html?searchResultPosition=3
+https://nytimes.com/2022/07/13/world/europe/rishi-sunak-boris-johnson-prime-minister-uk.html?searchResultPosition=3
 
 **Nebraska First Congressional District Special Election Results**\
 `See full results and maps from the Nebraska special general elections.`\
