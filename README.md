@@ -2,7 +2,7 @@
 `A new report says the havoc wrought by the coronavirus reversed gains made by hospitals to combat deadly pathogens.`\
 https://nytimes.com/2022/07/13/health/cdc-drug-resistant-infections.html?searchResultPosition=1
 
-**Statue of Black Educator Displaces Confederate General in U.S. Capitol**\
+**Statue of Black Educator Replaces Confederate General in U.S. Capitol**\
 `Mary McLeod Bethune is the first Black American to be represented in the National Statuary Hall. Her likeness replaces a statue honoring one of the last Confederate generals to surrender.`\
 https://nytimes.com/2022/07/13/us/bethune-statue-confederate-capitol.html?searchResultPosition=2
 
