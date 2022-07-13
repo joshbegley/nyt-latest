@@ -1,40 +1,40 @@
+**What It Means to Raise an American Girl Now**\
+`When straightforward progress no longer feels inevitable.`\
+https://nytimes.com/2022/07/13/opinion/american-girl.html?searchResultPosition=1
+
 **A Tech Executive Is Charged, for the Third Time, in a 1992 Killing**\
 `After new forensic evidence emerged, the executive was charged in the strangulation of a Bay Area computer engineer. He had been tried twice for her murder in the 1990s.`\
-https://nytimes.com/2022/07/13/us/laurie-houts-arrest-murder-california.html?searchResultPosition=1
+https://nytimes.com/2022/07/13/us/laurie-houts-arrest-murder-california.html?searchResultPosition=2
 
 **$300,000 Homes in Massachusetts, West Virginia and Delaware**\
 `A seasonal cottage in Wellfleet, a farmhouse in Follansbee and a three-bedroom rowhouse in Wilmington.`\
-https://nytimes.com/2022/07/13/realestate/home-prices-massachusetts-west-virginia-delaware.html?searchResultPosition=2
+https://nytimes.com/2022/07/13/realestate/home-prices-massachusetts-west-virginia-delaware.html?searchResultPosition=3
 
 **$300,000 Homes in Massachusetts, West Virginia and Delaware**\
 `A seasonal cottage in Wellfleet, a farmhouse in Follansbee and a three-bedroom rowhouse in Wilmington.`\
-https://nytimes.com/slideshow/2022/07/13/realestate/home-prices-massachusetts-west-virginia-delaware.html?searchResultPosition=3
+https://nytimes.com/slideshow/2022/07/13/realestate/home-prices-massachusetts-west-virginia-delaware.html?searchResultPosition=4
 
 **‘The Killer’ Review: Stylistic Action Without the Heart**\
 `In this South Korean film, a teenage girl kidnapped by human traffickers brings an assassin out of retirement to save her.`\
-https://nytimes.com/2022/07/13/movies/the-killer-review.html?searchResultPosition=4
+https://nytimes.com/2022/07/13/movies/the-killer-review.html?searchResultPosition=5
 
 **‘My Name Is Sara’ Review: Keeping Secrets in Close Quarters**\
 `In this intermittently powerful if somewhat stiff-jointed Holocaust drama, a Jewish girl poses as a gentile and works as a nanny for a Ukrainian farmer and his wife.`\
-https://nytimes.com/2022/07/13/movies/my-name-is-sara-review.html?searchResultPosition=5
+https://nytimes.com/2022/07/13/movies/my-name-is-sara-review.html?searchResultPosition=6
 
 **In Shanghai, a surge in cases raises fears of another lockdown.**\
 `Residents have been alarmed by mixed messages from officials, including advice that they stock up on food and medicine.`\
-https://nytimes.com/2022/07/13/world/asia/shanghai-covid-lockdown.html?searchResultPosition=6
+https://nytimes.com/2022/07/13/world/asia/shanghai-covid-lockdown.html?searchResultPosition=7
 
 **A Surprisingly Tight Race**\
 `Despite Biden’s low approval ratings, Democrats are roughly tied with Republicans in the midterm polls. We explain why.`\
-https://nytimes.com/2022/07/13/briefing/midterm-polls-republicans-democrats.html?searchResultPosition=7
+https://nytimes.com/2022/07/13/briefing/midterm-polls-republicans-democrats.html?searchResultPosition=8
 
 **Israel Works With Arab Allies to Down Drones, in Sign of Growing Ties**\
 `The destruction of Iranian drones last year was an early example of a new regional military project that President Biden is trying to shore up during his Middle East visit.`\
-https://nytimes.com/2022/07/13/world/middleeast/israel-arab-allies-drones-biden.html?searchResultPosition=8
+https://nytimes.com/2022/07/13/world/middleeast/israel-arab-allies-drones-biden.html?searchResultPosition=9
 
 **Could the Midterms Be Tighter Than Expected?**\
 `A new New York Times poll suggests a surprisingly close race for the control of Congress.`\
-https://nytimes.com/2022/07/13/podcasts/the-daily/midterms.html?searchResultPosition=9
-
-**The movement to remove the president started with a candlelight vigil.**\
-`The goals are disparate and there are no clear leaders. The protesters included students and trade unionists, Catholic nuns and Buddhist monks, farmers and middle-class professionals.`\
-https://nytimes.com/2022/07/13/world/asia/the-movement-to-remove-the-president-started-with-a-candlelight-vigil.html?searchResultPosition=10
+https://nytimes.com/2022/07/13/podcasts/the-daily/midterms.html?searchResultPosition=10
 
