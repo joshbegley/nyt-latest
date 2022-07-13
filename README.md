@@ -8,7 +8,7 @@ https://nytimes.com/2022/07/12/pageoneplus/corrections-july-13-2022.html?searchR
 
 **It Really Wasn’t Cricket: The Strange Case of the Fake Indian Premier League**\
 `The bats and balls were real, but not much else was authentic in what officials said was an elaborate scheme to dupe Russian gamblers through hoax games streamed on YouTube.`\
-https://nytimes.com/2022/07/12/world/asia/cricket-fake-indian-premier-league.html?searchResultPosition=3
+https://nytimes.com/2022/07/12/world/asia/fake-indian-cricket-league-russia.html?searchResultPosition=3
 
 **Starter Home**\
 `Addison Snell’s puzzle ponders the big questions.`\
