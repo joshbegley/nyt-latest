@@ -1,6 +1,6 @@
 **Brittney Griner and the Limits of American Power**\
 `For Griner, and other Americans held prisoner overseas, the road home may be long, and slow.`\
-https://nytimes.com/2022/07/13/world/brittney-griner-and-the-limits-of-american-power.html?searchResultPosition=1
+https://nytimes.com/2022/07/13/world/brittney-griner-russia-detention-release.html?searchResultPosition=1
 
 **Owner of Sweet & Vicious Bar Will Pay $500,000 for Worker Harassment**\
 `The state attorney general says employees at the Manhattan bar were subjected to repeated slurs and sexual harassment.`\
@@ -16,7 +16,7 @@ https://nytimes.com/2022/07/13/arts/design/art-we-saw-this-summer.html?searchRes
 
 **Gates Foundation Adds $20 Billion to Its Coffers**\
 `The organization, still run by Bill Gates and Melinda French Gates, will eventually spend $9 billion a year, up from $6 billion, on causes like global health and education.`\
-https://nytimes.com/2022/07/13/business/gates-foundation-adds-20-billion-to-its-coffers.html?searchResultPosition=5
+https://nytimes.com/2022/07/13/business/gates-foundation-giving.html?searchResultPosition=5
 
 **How to Bulgogi Your Tofu**\
 `You don’t always need a recipe.`\
