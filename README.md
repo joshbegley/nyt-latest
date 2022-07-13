@@ -16,7 +16,7 @@ https://nytimes.com/2022/07/13/world/asia/china-united-states-russia-ukraine.htm
 
 **45 Years Ago Tonight, a Blackout Struck New York City**\
 `The 1977 outage lasted 25 hours and led to looting in many neighborhoods.`\
-https://nytimes.com/2022/07/13/nyregion/45-years-ago-tonight-a-blackout-struck-new-york-city.html?searchResultPosition=5
+https://nytimes.com/2022/07/13/nyregion/new-york-city-blackout.html?searchResultPosition=5
 
 **Your Wednesday Briefing**\
 `Russia’s oil war with the West.`\
