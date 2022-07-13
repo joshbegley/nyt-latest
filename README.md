@@ -1,5 +1,5 @@
 **‘The thieves are running away’: Protesters flock to the capital from around Sri Lanka.**\
-`The atmosphere was generally peaceful, with young children accompanying their parents. People were processing news that President Gotabaya Rajapaksa had fled to the Maldives.`\
+`The atmosphere was generally peaceful, with young children accompanying their parents. People were processing the news that President Gotabaya Rajapaksa had fled to the Maldives.`\
 https://nytimes.com/2022/07/13/world/asia/sri-lanka-scene-protest.html?searchResultPosition=1
 
 **Biden’s Trip to Saudi Arabia Isn’t Destined to Fail**\
