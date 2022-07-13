@@ -1,4 +1,4 @@
-**Suspect in Manhattan Homeless Stabbings Is Arrested**\
+**Suspect in Manhattan Stabbings of Homeless Men Is Arrested**\
 `The suspect, Trevon Murphy, 40, who is also homeless, was spotted near a park in Harlem and apprehended, the police said.`\
 https://nytimes.com/2022/07/13/nyregion/nyc-homeless-stabbings-arrest.html?searchResultPosition=1
 
