@@ -4,7 +4,7 @@ https://nytimes.com/2022/07/14/movies/queen-of-glory-review.html?searchResultPos
 
 **Science and Data Change Soccer’s Definition of Old**\
 `Top clubs have long looked to shed players once they hit age 30. But those presumptions rely on outdated logic, statistics show.`\
-https://nytimes.com/2022/07/14/sports/soccer/science-and-data-change-soccers-definition-of-old.html?searchResultPosition=2
+https://nytimes.com/2022/07/14/sports/soccer/soccer-age-data.html?searchResultPosition=2
 
 **Italy’s Unity Government Begins to Wobble**\
 `Prime Minister Mario Draghi called for a confidence vote on Thursday to test his support as the anti-establishment Five Star Movement threatened to break with his coalition.`\
@@ -24,7 +24,7 @@ https://nytimes.com/2022/07/14/movies/dont-make-me-go-review.html?searchResultPo
 
 **‘Persuasion’ Review: The Present Intrudes Into the Past**\
 `Dakota Johnson smirks her way through a Netflix adaptation of the rekindled romance in Jane Austen’s last novel, our critic writes.`\
-https://nytimes.com/2022/07/14/movies/persuasion-review-the-present-intrudes-into-the-past.html?searchResultPosition=7
+https://nytimes.com/2022/07/14/movies/persuasion-jane-austin-netflix-review.html?searchResultPosition=7
 
 **‘Anonymous Club’ Review: The Joy of Creation**\
 `The Australian singer-songwriter Courtney Barnett goes on a world tour in this music documentary, and finds that a change is needed.`\
