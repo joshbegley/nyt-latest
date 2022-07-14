@@ -1,40 +1,40 @@
+**The Impossible Task of Keeping Up With the Ingebrigtsens**\
+`The Kardashians of Norway are middle-distance runners who have competed on the global stage. But it’s Jakob, 21, who transformed from onetime prodigy to generational talent.`\
+https://nytimes.com/2022/07/14/sports/jakob-ingebrigtsen-world-championships.html?searchResultPosition=1
+
+**How Sri Lanka’s Economy Collapsed**\
+`Amid food and fuel shortages, a protest movement has pushed for the resignation of the president and others tied to his family’s political dynasty.`\
+https://nytimes.com/2022/07/14/podcasts/the-daily/sri-lanka.html?searchResultPosition=2
+
 **For Young Offenders, Restitution Debts Can Present Crippling Obstacles**\
 `A new report asserts that ordering juvenile offenders to pay compensation to their victims often derails their lives, and victims’ rights groups see shortcomings as well.`\
-https://nytimes.com/2022/07/14/us/politics/juvenile-restitution-debts.html?searchResultPosition=1
+https://nytimes.com/2022/07/14/us/politics/juvenile-restitution-debts.html?searchResultPosition=3
 
 **Biden’s Saudi Lesson: The Only Path Runs Through M.B.S.**\
 `President Biden tried to isolate Crown Prince Mohammed bin Salman over human rights abuses. Now, the United States needs Saudi Arabia, and Mr. Biden is about to visit.`\
-https://nytimes.com/2022/07/14/world/middleeast/biden-saudi-arabia-mbs.html?searchResultPosition=2
+https://nytimes.com/2022/07/14/world/middleeast/biden-saudi-arabia-mbs.html?searchResultPosition=4
 
 **China’s Surveillance State Hits Rare Resistance From Its Own Subjects**\
 `Beijing’s swift move to censor news about one of the largest known data breaches shows keen awareness of how major security lapses can harm its credibility.`\
-https://nytimes.com/2022/07/14/business/china-data-privacy.html?searchResultPosition=3
+https://nytimes.com/2022/07/14/business/china-data-privacy.html?searchResultPosition=5
 
 **For New York’s Anti-Abortion Veterans, Roe’s Fall Is Not a Full Victory**\
 `Checking in with activists from sanctuary states who have spent more than 50 years fighting abortion.`\
-https://nytimes.com/2022/07/14/nyregion/ny-anti-abortion.html?searchResultPosition=4
+https://nytimes.com/2022/07/14/nyregion/ny-anti-abortion.html?searchResultPosition=6
 
 **The Housing Shortage Isn’t Just a Coastal Crisis Anymore**\
 `An increasingly national problem has consequences for the quality of American family life, the economy and the future of housing politics.`\
-https://nytimes.com/2022/07/14/upshot/housing-shortage-us.html?searchResultPosition=5
+https://nytimes.com/2022/07/14/upshot/housing-shortage-us.html?searchResultPosition=7
 
 **Toronto Steps Into Summer**\
 `It’s the city’s traditional high season and it is celebrating with newly opened hotels and restaurants and a revived live-performance scene.`\
-https://nytimes.com/2022/07/14/travel/toronto-see-eat-do.html?searchResultPosition=6
+https://nytimes.com/2022/07/14/travel/toronto-see-eat-do.html?searchResultPosition=8
 
 **Young Voters Are Fed Up With Their (Much) Older Leaders**\
 `Led by politicians often three times their age, many voters under 30 are hungry for new blood and new ideas.`\
-https://nytimes.com/2022/07/14/us/politics/youth-voters-midterms-polling.html?searchResultPosition=7
+https://nytimes.com/2022/07/14/us/politics/youth-voters-midterms-polling.html?searchResultPosition=9
 
 **For a Woman in a Wheelchair, Abortion Access Was One More Challenge**\
 `Roxanne Schiebergen, a writer and actress, has become skilled at navigating New York City since she was a student at N.Y.U. Then came an unexpected pregnancy.`\
-https://nytimes.com/2022/07/14/style/abortion-accessibility-planned-parenthood.html?searchResultPosition=8
-
-**The Magic of Your First Work Friends**\
-`Early-career connections can be life-defining. For young people entering the work force today, the connections over Zoom are shaky.`\
-https://nytimes.com/2022/07/14/business/work-friends.html?searchResultPosition=9
-
-**How to Invest When Inflation Is Bad and a Recession May Loom**\
-`While the news may indicate that the markets and economy are rocky, long-term investors can ride it out with a little luck and a lot of planning, our columnist says.`\
-https://nytimes.com/2022/07/14/business/investing-inflation-recession.html?searchResultPosition=10
+https://nytimes.com/2022/07/14/style/abortion-accessibility-planned-parenthood.html?searchResultPosition=10
 
