@@ -1,4 +1,4 @@
-**Ivana Trump, Former Wife of Donald Trump, Dies at 73**\
+**Ivana Trump, Former Wife of Donald Trump, Is Dead at 73**\
 `She helped build his real estate empire, and the two became known as New York’s quintessential 1980s power couple.`\
 https://nytimes.com/2022/07/14/obituaries/ivana-trump-dead.html?searchResultPosition=1
 
