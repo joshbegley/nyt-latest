@@ -1,40 +1,40 @@
-**Biden and Mideast Leaders Will Discuss Food Crisis and Ukraine War**\
-`Ukraine policy has been a point of friction between Israel and the United States.`\
-https://nytimes.com/2022/07/14/world/middleeast/biden-israel-ukraine.html?searchResultPosition=1
+**Biden’s Saudi Lesson: The Only Path Runs Through M.B.S.**\
+`President Biden tried to isolate Crown Prince Mohammed bin Salman over human rights abuses. Now, the United States needs Saudi Arabia, and Mr. Biden is about to visit.`\
+https://nytimes.com/2022/07/14/world/middleeast/biden-saudi-arabia-mbs.html?searchResultPosition=1
 
-**Avignon Festival Gets Its Buzz Back**\
-`With striking premieres in the main program and enchanting discoveries on the supplementary Fringe, the eminent event in European theater is flourishing after some difficult years.`\
-https://nytimes.com/2022/07/14/theater/avignon-festival-kirill-serebrennikov.html?searchResultPosition=2
+**China’s Surveillance State Hits Rare Resistance From Its Own Subjects**\
+`Beijing’s swift move to censor news about one of the largest known data breaches shows keen awareness of how major security lapses can harm its credibility.`\
+https://nytimes.com/2022/07/14/business/china-data-privacy.html?searchResultPosition=2
 
-**Biden’s relationship with Netanyahu, spanning four decades, blows hot and cold.**\
-`The U.S. president has often spoken fondly of Israel’s former prime minister, but relations between the two have also had low points.`\
-https://nytimes.com/2022/07/14/world/middleeast/biden-netanyahu-israel.html?searchResultPosition=3
+**For New York’s Anti-Abortion Veterans, Roe’s Fall Is Not a Full Victory**\
+`Checking in with activists from sanctuary states who have spent more than 50 years fighting abortion.`\
+https://nytimes.com/2022/07/14/nyregion/ny-anti-abortion.html?searchResultPosition=3
 
-**Powerful Storms Damage Homes in Southwest Virginia**\
-`More than 100 homes were damaged and dozens of people unaccounted for after heavy flooding and landslides struck Buchanan County, Va.`\
-https://nytimes.com/video/us/100000008443616/storms-southwest-virginia.html?searchResultPosition=4
+**The Housing Shortage Isn’t Just a Coastal Crisis Anymore**\
+`An increasingly national problem has consequences for the quality of American family life, the economy and the future of housing politics.`\
+https://nytimes.com/2022/07/14/upshot/housing-shortage-us.html?searchResultPosition=4
 
-**Love and Carriage**\
-`A rarefied group of history buffs and horse enthusiasts meet in upstate New York for an annual drive with their horses.`\
-https://nytimes.com/2022/07/14/style/love-and-carriage.html?searchResultPosition=5
+**Toronto Steps Into Summer**\
+`It’s the city’s traditional high season and it is celebrating with newly opened hotels and restaurants and a revived live-performance scene.`\
+https://nytimes.com/2022/07/14/travel/toronto-see-eat-do.html?searchResultPosition=5
 
-**‘French Girl Beauty’ Has a New Offering**\
-`Garance Doré, one of the original style bloggers, has released a beauty line based on her favorite pharmacy brands.`\
-https://nytimes.com/2022/07/14/style/french-girl-beauty-products.html?searchResultPosition=6
+**Young Voters Are Fed Up With Their (Much) Older Leaders**\
+`Led by politicians often three times their age, many voters under 30 are hungry for new blood and new ideas.`\
+https://nytimes.com/2022/07/14/us/politics/youth-voters-midterms-polling.html?searchResultPosition=6
 
-**Covering, and Contextualizing, Boris Johnson**\
-`Mark Landler went from the White House beat and President Trump to the London bureau, where Prime Minister Boris Johnson kept journalists just as busy.`\
-https://nytimes.com/2022/07/14/insider/covering-boris-johnson.html?searchResultPosition=7
+**For a Woman in a Wheelchair, Abortion Access Was One More Challenge**\
+`Roxanne Schiebergen, a writer and actress, has become skilled at navigating New York City since she was a student at N.Y.U. Then came an unexpected pregnancy.`\
+https://nytimes.com/2022/07/14/style/abortion-accessibility-planned-parenthood.html?searchResultPosition=7
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/07/14/crosswords/spelling-bee-forum.html?searchResultPosition=8
+**The Magic of Your First Work Friends**\
+`Early-career connections can be life-defining. For young people entering the work force today, the connections over Zoom are shaky.`\
+https://nytimes.com/2022/07/14/business/work-friends.html?searchResultPosition=8
 
-**Israel is between governments (again). Will Biden’s visit help the interim leader get elected?**\
-`President Biden’s visit during an Israeli election campaign may have been unavoidable, given that voters are heading to the polls for a fifth time in under four years.`\
-https://nytimes.com/2022/07/14/world/middleeast/yair-lapid-biden-israel.html?searchResultPosition=9
+**How to Invest When Inflation Is Bad and a Recession May Loom**\
+`While the news may indicate that the markets and economy are rocky, long-term investors can ride it out with a little luck and a lot of planning, our columnist says.`\
+https://nytimes.com/2022/07/14/business/investing-inflation-recession.html?searchResultPosition=9
 
-**The Middle East has changed markedly since Biden’s 2016 visit.**\
-`President Biden is now encountering a region where alliances, priorities and relations with the United States have shifted significantly.`\
-https://nytimes.com/2022/07/14/world/middleeast/the-middle-east-has-changed-markedly-since-bidens-2016-visit.html?searchResultPosition=10
+**Janeane Garofalo Never Sold Out. What a Relief.**\
+`That concept might be the reason her trailblazing stand-up career has been overshadowed; it may also be the reason she’s still so sharp, our critic argues.`\
+https://nytimes.com/2022/07/14/movies/janeane-garofalo.html?searchResultPosition=10
 
