@@ -8,7 +8,7 @@ https://nytimes.com/2022/07/14/sports/soccer/science-and-data-change-soccers-def
 
 **Italy’s Unity Government Begins to Wobble**\
 `Prime Minister Mario Draghi called for a confidence vote on Thursday to test his support as the anti-establishment Five Star Movement threatened to break with his coalition.`\
-https://nytimes.com/2022/07/14/world/europe/italy-government-collapse-draghi-five-star.html?searchResultPosition=3
+https://nytimes.com/2022/07/14/world/europe/italy-mario-draghi-confidence-vote.html?searchResultPosition=3
 
 **Janet Yellen Says a Price Cap on Oil Is in Russia’s Interest**\
 `Facing sanctions on its exports, Russia could continue selling oil profitably under a cap, the U.S. Treasury secretary said, while global strains on supply and pressure on prices would reduce.`\
