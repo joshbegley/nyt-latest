@@ -26,7 +26,7 @@ https://nytimes.com/2022/07/14/crosswords/chess/chess-replay-you-versus-bronstei
 `After allowing close friends the use of a getaway home, a reader struggles to forgive their poor behavior as houseguests.`\
 https://nytimes.com/2022/07/14/style/hosting-houseguests-apologies.html?searchResultPosition=7
 
-**Twitter is down in a global outage.**\
+**Twitter suffers a global outage at a delicate moment for the company.**\
 `The social networking site went offline on Thursday morning, affecting users worldwide.`\
 https://nytimes.com/2022/07/14/business/twitter-outage.html?searchResultPosition=8
 
