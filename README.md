@@ -14,8 +14,8 @@ https://nytimes.com/2022/07/14/sports/jakob-ingebrigtsen-world-championships.htm
 `Amid food and fuel shortages, a protest movement has pushed for the resignation of the president and others tied to his family’s political dynasty.`\
 https://nytimes.com/2022/07/14/podcasts/the-daily/sri-lanka.html?searchResultPosition=4
 
-**A strike in central Ukraine kills at least 12, officials say.**\
-`Another 25 people were wounded in the rocket attack on the center of Vinnytsia, a provincial capital, emergency officials said.`\
+**A rare strike on the city of Vinnytsia kills 12, including a young child, officials say.**\
+`Dozens were wounded in the rocket attack on the center of Vinnytsia, a provincial capital, according to the police.`\
 https://nytimes.com/2022/07/14/world/vinnytsia-rocket-attack.html?searchResultPosition=5
 
 **For Young Offenders, Restitution Debts Can Present Crippling Obstacles**\
