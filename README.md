@@ -2,7 +2,7 @@
 `Prime Minister Mario Draghi called for a confidence vote on Thursday to test his support as the anti-establishment Five Star Movement threatened to break with his coalition.`\
 https://nytimes.com/2022/07/14/world/europe/italy-government-collapse-draghi-five-star.html?searchResultPosition=1
 
-**Janet Yellen says a price cap on oil is in Russia’s interest.**\
+**Janet Yellen Says a Price Cap on Oil Is in Russia’s Interest**\
 `Facing sanctions on its exports, Russia could continue selling oil profitably under a cap, the U.S. Treasury secretary said, while global strains on supply and pressure on prices would reduce.`\
 https://nytimes.com/2022/07/14/business/yellen-russia-oil-cap.html?searchResultPosition=2
 
