@@ -10,7 +10,7 @@ https://nytimes.com/2022/07/14/pageoneplus/corrections-july-14-2022.html?searchR
 `Truth and accountability will not be hallmarks of Marcos 2.0.`\
 https://nytimes.com/2022/07/14/opinion/philippines-marcos.html?searchResultPosition=3
 
-**Your Wednesday Briefing**\
+**Your Thursday Briefing**\
 `Gas prices are falling.`\
 https://nytimes.com/2022/07/14/briefing/ukraine-weapons-inflation-gas.html?searchResultPosition=4
 
