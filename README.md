@@ -20,7 +20,7 @@ https://nytimes.com/2022/07/14/world/canada/canada-covid-testing-travel-airports
 
 **Jerome M. Eisenberg, Expert on Antiquities Both Real and Fake, Dies at 92**\
 `He saw himself as a leader in promoting the ethical acquisition of ancient art by museums and collectors, although he also called himself “both an idealist and a hypocrite.”`\
-https://nytimes.com/2022/07/14/arts/jerome-m-eisenberg-expert-on-antiquities-both-real-and-fake-dies-at-92.html?searchResultPosition=6
+https://nytimes.com/2022/07/14/arts/jerome-m-eisenberg-dead.html?searchResultPosition=6
 
 **A British Open Green With One Last Catch: A 150-Foot Putt**\
 `The St. Andrews quirk of double greens offers thrills and aggravations whenever the world’s elite go to the Old Course.`\
