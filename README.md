@@ -36,5 +36,5 @@ https://nytimes.com/2022/07/14/movies/mrs-harris-goes-to-paris-review.html?searc
 
 **‘Paws of Fury: The Legend of Hank’ Review: A Tail of Two Samurai**\
 `Michael Cera and Samuel L. Jackson lend their voices to this unlikely animated adaptation of Mel Brooks’s “Blazing Saddles.”`\
-https://nytimes.com/2022/07/14/movies/paws-of-fury-the-legend-of-hank-review-a-tail-of-two-samurai.html?searchResultPosition=10
+https://nytimes.com/2022/07/14/movies/paws-of-fury-the-legend-of-hank-review.html?searchResultPosition=10
 
