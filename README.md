@@ -24,7 +24,7 @@ https://nytimes.com/2022/07/14/movies/from-where-they-stood-review-auschwitz.htm
 
 **Stocks fall further as bank earnings add to concerns about the economy.**\
 `Companies in the United States are starting to report their earnings for the second quarter, a chance for investors to assess how hard businesses are being hit by economic headwinds.`\
-https://nytimes.com/2022/07/14/business/stocks-fall-further-as-bank-earnings-add-to-concerns-about-the-economy.html?searchResultPosition=7
+https://nytimes.com/2022/07/14/business/stocks-economy-earnings-banks.html?searchResultPosition=7
 
 **Putin’s Assault on Ukraine Must Fail, Biden Says in Israel**\
 `Ukraine policy has been a point of friction between Israel and the United States, as Israel has been wary of provoking a response from Russia.`\
