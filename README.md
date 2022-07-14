@@ -12,7 +12,7 @@ https://nytimes.com/2022/07/14/books/review/the-sewing-girls-tale-john-wood-swee
 
 **The Mysteriously Low Death Toll of the Heat Waves in India and Pakistan**\
 `Many of our assumptions about deaths from extreme heat may be wrong.`\
-https://nytimes.com/2022/07/14/opinion/environment/heat-waves-india-and-pakistan-deaths-climate-change.html?searchResultPosition=4
+https://nytimes.com/2022/07/14/opinion/environment/heat-waves-india-pakistan-climate-change.html?searchResultPosition=4
 
 **Here’s How Democrats’ Big Domestic Agenda Bill Has Shrunk**\
 `Proposed as a transformative, multitrillion-dollar plan with cradle-to-grave programs, Democrats’ domestic policy bill has been whittled down to a shadow of its former self.`\
