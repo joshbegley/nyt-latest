@@ -8,7 +8,7 @@ https://nytimes.com/2022/07/14/world/middleeast/biden-israel-iran-nuclear.html?s
 
 **In M.L.B.’s Labor Talks, Latino Voices Are Few and Far Between**\
 `A deadline looms on an international draft, but players from Latin America, who would be affected more than anyone, are largely absent from union leadership.`\
-https://nytimes.com/2022/07/14/sports/baseball/international-draft-union-latinos.html?searchResultPosition=3
+https://nytimes.com/2022/07/14/sports/baseball/mlb-union-international-draft-latinos.html?searchResultPosition=3
 
 **Why Markets Shrugged Off Bad Inflation News**\
 `An ugly report may not be the shape of things to come.`\
