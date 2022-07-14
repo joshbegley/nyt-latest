@@ -3,7 +3,7 @@
 https://nytimes.com/2022/07/14/opinion/webb-telescope-triumph.html?searchResultPosition=1
 
 **Texas Sues Biden Administration Over Access to Emergency Medical Abortions**\
-`A presidential order sought to allow the termination of a pregnancy in emergency situations if there were complications that posed a threat to the health or life of the woman.`\
+`Recent administrative guidance to hospitals said they had to allow the termination of a pregnancy in emergency situations if complications posed a threat to the health or life of the woman.`\
 https://nytimes.com/2022/07/14/us/texas-abortion-lawsuit-paxton.html?searchResultPosition=2
 
 **Democrats Face Deepening Peril as Republicans Seize on Inflation Fears**\
