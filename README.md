@@ -1,6 +1,6 @@
 **Ivana Trump, Former Wife of Donald Trump, Is Dead at 73**\
 `She helped build his real estate empire, and the two became known as New York’s quintessential 1980s power couple.`\
-https://nytimes.com/2022/07/14/obituaries/ivana-trump-dead.html?searchResultPosition=1
+https://nytimes.com/2022/07/14/nyregion/ivana-trump-dead.html?searchResultPosition=1
 
 **Stripe, the payments start-up, lowers internal valuation 28 percent.**\
 `A sell-off of tech stocks in the public markets has prompted private start-ups to evaluate whether their soaring valuations over the past two years will hold up.`\
