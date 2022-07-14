@@ -32,7 +32,7 @@ https://nytimes.com/2022/07/14/world/middleeast/the-middle-east-has-changed-mark
 
 **Brittney Griner heads back to court, caught up in a war far away from home.**\
 `The case of an American sports star at the mercy of Russian justice has rippled across the world amid criticism from Washington that she has been wrongfully detained.`\
-https://nytimes.com/2022/07/14/world/griner-trial-moscow.html?searchResultPosition=9
+https://nytimes.com/2022/07/14/world/griner-trial-russia.html?searchResultPosition=9
 
 **Municipal Workers Have Joined the Great Resignation**\
 `New York City employees are back in the office, and many of them are not happy about it.`\
