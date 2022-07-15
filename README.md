@@ -1,5 +1,5 @@
 **L.Q. Jones, Who Played Heavies With a Light Touch, Dies at 94**\
-`His face was familiar, mostly in westerns, during a career than spanned five decades. He also directed the cult film “A Boy and His Dog.”`\
+`His face was familiar, mostly in westerns, during a career that spanned five decades. He also directed the cult film “A Boy and His Dog.”`\
 https://nytimes.com/2022/07/15/movies/lq-jones-dead.html?searchResultPosition=1
 
 **Build Back Better Is a Health Care Bill Now**\
@@ -8,10 +8,10 @@ https://nytimes.com/2022/07/15/upshot/build-back-better-health-care-biden.html?s
 
 **Watch Live: Biden Delivers Remarks in Saudi Arabia**\
 `President Biden met with King Salman and Crown Prince Mohammed bin Salman on his first visit to Saudi Arabia as president.`\
-https://nytimes.com/video/world/middleeast/100000008446641/watch-live-biden-delivers-remarks.html?searchResultPosition=3
+https://nytimes.com/video/embedded/world/middleeast/100000008446641/watch-live-biden-delivers-remarks.html?searchResultPosition=3
 
-**Texas and its power system brace for another round of heat.**\
-`High temperatures of 100 or more are forecast throughout the coming week in much of the state.`\
+**Texas and its power system prepare for more high temperatures.**\
+`Readings of 100 or more are forecast throughout the coming week in much of the state.`\
 https://nytimes.com/2022/06/25/us/weather-texas-electric.html?searchResultPosition=4
 
 **Using Comedy to Push for Abortion Rights**\
