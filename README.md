@@ -1,6 +1,6 @@
 **Deshaun Watson’s Accusers Settle Their Claims Against the Texans**\
 `Thirty women reached settlements with the team Watson played for when he was accused of sexual misconduct during massage appointments. Four lawsuits against Watson are outstanding.`\
-https://nytimes.com/2022/07/15/sports/football/deshaun-watsons-accusers-settle-their-claims-against-the-texans.html?searchResultPosition=1
+https://nytimes.com/2022/07/15/sports/football/deshaun-watson-settlement-texans.html?searchResultPosition=1
 
 **Inflation Cooking**\
 `Chicken meatballs, tofu salad and more budget-friendly recipes.`\
