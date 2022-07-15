@@ -1,40 +1,40 @@
+**Vaccine protection waned this spring but boosters helped, the C.D.C. reports.**\
+`“Booster doses should be obtained immediately when persons become eligible,” the C.D.C. scientists wrote.`\
+https://nytimes.com/2022/07/15/health/vaccines-boosters-omicron.html?searchResultPosition=1
+
+**What Biden Got Right on His Trip to the Middle East**\
+`There is real value in making small steps through diplomacy.`\
+https://nytimes.com/2022/07/15/opinion/biden-saudi-arabia.html?searchResultPosition=2
+
+**Ask a Flight Attendant About Flying Now**\
+`Whether you have travel anxieties or you’re just curious about what really goes on behind the curtain, you can finally get your questions answered.`\
+https://nytimes.com/2022/07/15/travel/ask-flight-attendant.html?searchResultPosition=3
+
 **A Country Refuge for London Creatives**\
 `Somerset has re-emerged as an English weekend idyll, with inspired restaurants, stately homes turned hotels and contemporary art institutions.`\
-https://nytimes.com/2022/07/15/t-magazine/wanderlust-somerset-england.html?searchResultPosition=1
+https://nytimes.com/2022/07/15/t-magazine/wanderlust-somerset-england.html?searchResultPosition=4
 
 **I Need a Summer Hat That Isn’t a Baseball Cap. What Should I Wear?**\
 `Hats have become a semiological minefield. A reader wonders how to navigate it.`\
-https://nytimes.com/2022/07/15/fashion/summer-hat-baseball-cap.html?searchResultPosition=2
+https://nytimes.com/2022/07/15/fashion/summer-hat-baseball-cap.html?searchResultPosition=5
 
 **5 Smart Comedy Specials From Veteran Standups**\
 `Joel Kim Booster, Nikki Glaser, Bill Burr, Fahim Anwar and Cristela Alonzo deliver strong hours ideal for summer viewing.`\
-https://nytimes.com/2022/07/15/arts/television/comedy-specials-streaming.html?searchResultPosition=3
+https://nytimes.com/2022/07/15/arts/television/comedy-specials-streaming.html?searchResultPosition=6
 
 **Are Middlemen Really Profit-Making Parasites?**\
 `Or do they make our lives easier?`\
-https://nytimes.com/2022/07/15/opinion/middlemen-kathryn-judge-amazon.html?searchResultPosition=4
+https://nytimes.com/2022/07/15/opinion/middlemen-kathryn-judge-amazon.html?searchResultPosition=7
 
 **Beto O’Rourke broke a Texas fund-raising record with a $27.6 million haul, his campaign said.**\
 `Gov. Greg Abbott, the Republican incumbent who maintains an advantage in cash on hand, raised nearly $25 million over the same period.`\
-https://nytimes.com/2022/07/15/us/politics/beto-orourke-fundraising.html?searchResultPosition=5
+https://nytimes.com/2022/07/15/us/politics/beto-orourke-fundraising.html?searchResultPosition=8
 
 **Soprano Withdraws From Opera, Citing ‘Blackface’ in Netrebko’s ‘Aida’**\
 `The American soprano Angel Blue said she would not appear at the Arena di Verona after the Russian soprano Anna Netrebko and other performers wore dark makeup in its production of “Aida.”`\
-https://nytimes.com/2022/07/15/arts/music/angel-blue-anna-netrebko-blackface.html?searchResultPosition=6
+https://nytimes.com/2022/07/15/arts/music/angel-blue-anna-netrebko-blackface.html?searchResultPosition=9
 
 **Largest Study to Date Shows How Covid Vaccines Affect Periods**\
 `For some, a side effect of getting vaccinated was a change in menstrual cycles — but experts say there is no cause for alarm.`\
-https://nytimes.com/2022/07/15/well/live/covid-vaccines-periods.html?searchResultPosition=7
-
-**Living Through Texas’ Hottest Summer**\
-`The high in Dallas has been at least 100 degrees for 11 days this month, with no relief in sight. Here's how one New England transplant is surviving.`\
-https://nytimes.com/interactive/2022/07/15/us/texas-heat.html?searchResultPosition=8
-
-**Biden’s Mideast Message: Good News for Israel, Small Steps for Palestinians**\
-`To Israelis, President Biden’s visit was mostly a source of celebration of growing ties with Arab countries. For the Palestinians, Mr. Biden brought funding and sympathy — but no long-term plans.`\
-https://nytimes.com/2022/07/15/world/middleeast/biden-israel-saudi-palestinians.html?searchResultPosition=9
-
-**L.Q. Jones, Who Played Heavies With a Light Touch, Dies at 94**\
-`His face was familiar, mostly in westerns, during a career that spanned five decades. He also directed the cult film “A Boy and His Dog.”`\
-https://nytimes.com/2022/07/15/movies/lq-jones-dead.html?searchResultPosition=10
+https://nytimes.com/2022/07/15/well/live/covid-vaccines-periods.html?searchResultPosition=10
 
