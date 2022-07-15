@@ -7,7 +7,7 @@ https://nytimes.com/2022/07/15/us/california-farmers-markets.html?searchResultPo
 https://nytimes.com/2022/07/15/science/bat-coronavirus-laboratory-experiments.html?searchResultPosition=2
 
 **Biggest Cryptominers in the U.S. Use as Much Power as Houston, Findings Show**\
-`The findings, by a Congressional investigation, highlight how the surge in activity has caused consumers’ electrical bills to rise and makes it harder to fight global warming.`\
+`The findings, by a congressional investigation, highlight how the surge in activity has caused consumers’ electrical bills to rise and makes it harder to fight global warming.`\
 https://nytimes.com/2022/07/15/climate/cryptocurrency-bitcoin-mining-electricity.html?searchResultPosition=3
 
 **Saudis Made Trump’s Visit an Extravaganza. They’re Unlikely to for Biden’s.**\
