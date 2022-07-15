@@ -1,4 +1,4 @@
-**3 Imprisoned for Fiery 1995 Subway Murder Are Exonerated**\
+**3 Imprisoned for Fiery 1995 Subway Murder to Be Exonerated**\
 `James Irons, Thomas Malik and Vincent Ellerbe were convicted as teenagers after a New York police detective elicited false convictions, prosecutors say.`\
 https://nytimes.com/2022/07/15/nyregion/subway-murder-false-conviction-exonerated.html?searchResultPosition=1
 
