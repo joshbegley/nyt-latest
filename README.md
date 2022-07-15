@@ -1,40 +1,40 @@
-**As U.S. Covid hospitalizations climb, a chronic nursing shortage is worsening.**\
-`Hospitals across the country continue to struggle to hire and retain enough nurses, as the spread of the BA.5 subvariant adds to caseloads.`\
-https://nytimes.com/2022/07/15/us/hospital-nursing-shortage.html?searchResultPosition=1
+**This Manhattan Park Was Once a Gem. Now It’s a ‘No Man’s Land.’**\
+`A decades-long fight to reopen a park house, once a thriving community center in a working-class neighborhood, has taken on new urgency during the pandemic.`\
+https://nytimes.com/2022/07/15/nyregion/sara-roosevelt-park-nyc.html?searchResultPosition=1
 
-**As Israelis praise Biden, some Palestinians protest over his visit.**\
-`Demonstrators express frustration with Washington’s support for Israel and the Biden administration’s policies toward Palestinians.`\
-https://nytimes.com/2022/07/15/world/middleeast/biden-palestinians-protests.html?searchResultPosition=2
+**‘Sometimes I Am Crying in the Room’**\
+`An Olympic medalist high jumper from Ukraine, fearful of returning home because of the war, arrives at the world championships with a heavy heart — and expectations to win.`\
+https://nytimes.com/2022/07/15/sports/olympics/ukraine-track-field-world-championships.html?searchResultPosition=2
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/07/15/crosswords/spelling-bee-forum.html?searchResultPosition=3
+**Daisy Edgar-Jones Would Like the Ingénue Phase of Her Career to End Now**\
+`The star of “Where the Crawdads Sing” and “Normal People” has quickly become a Hollywood “It” Girl. But what she craves is longevity.`\
+https://nytimes.com/2022/07/15/movies/daisy-edgar-jones-where-the-crawdads-sing-normal-people.html?searchResultPosition=3
 
-**Only Saudi Arabia and Israeli Arabs Can Save Israel as a Jewish Democracy**\
-`An existential question continues to haunt Israel.`\
-https://nytimes.com/2022/07/15/opinion/israel-saudi-arabia-biden-trip.html?searchResultPosition=4
+**In a Twist, Old Coal Plants Help Deliver Renewable Power. Here’s How.**\
+`The sites, once a source of greenhouse gases, have a useful feature: They’re wired to the electricity grid. For new ventures like solar farms, that can save a lot of time and money.`\
+https://nytimes.com/2022/07/15/climate/coal-plants-renewable-energy.html?searchResultPosition=4
 
-**The many parties involved complicate war crimes investigations.**\
-`Russian attacks on civilians have underscored the need to hold war crimes to account. But the prosecutor of the International Criminal Court warned against a “stampede” of investigations.`\
-https://nytimes.com/2022/07/15/world/the-many-parties-involved-complicate-war-crimes-investigations.html?searchResultPosition=5
+**Ex-Goddess Works to Reform 700-Year Tradition. Her M.B.A. Helps.**\
+`As a child, Chanira Bajracharya was worshiped in Nepal, but still made time to study. She is now encouraging the girl goddesses who’ve followed her to do the same.`\
+https://nytimes.com/2022/07/15/world/asia/nepal-kumari-living-goddess.html?searchResultPosition=5
 
-**When First We Practice to Deceive**\
-`Lying and “breaking and entering” are the alleged crimes at the heart of three witty new picture books.`\
-https://nytimes.com/2022/07/15/books/review/lisettes-lie-catharina-valckx.html?searchResultPosition=6
+**Germany Hopes to Outrace a Russian Gas Cutoff and Bone Cold Winter**\
+`Europe’s largest economy and key energy hub still depends on gas supplies now ensnared in conflict. Here’s how Germany is preparing and what is at stake.`\
+https://nytimes.com/2022/07/15/business/economy/germany-russia-natural-gas.html?searchResultPosition=6
 
-**Smile or Be Disciplined, Philippine Mayors Warn City Workers**\
-`“Frowning is not allowed in the municipality!” said the mayor of Mulanay in the Philippines. Many residents applauded his new policy.`\
-https://nytimes.com/2022/07/15/world/asia/philippines-mayors-smile-discipline.html?searchResultPosition=7
+**Stop Ruining Starry Nights**\
+`Neighborhoods, including rural ones, are getting brighter. That’s not a good thing, according to our writer. What is the point of an illuminated shrub at 2 a.m.?`\
+https://nytimes.com/2022/07/15/realestate/light-pollution-effects.html?searchResultPosition=7
 
-**It’s the Summer for Sharks on Long Island Beaches**\
-`Climate change has sent sharks from the Chesapeake Bay up north to New York and New Jersey waters, a scientist said.`\
-https://nytimes.com/2022/07/15/nyregion/its-the-summer-for-sharks-on-long-island-beaches.html?searchResultPosition=8
+**Energy Was the Only Bright Spot in the Stock Market’s Gloom**\
+`But Russia’s war in Ukraine creates uncertainty about where energy funds will go in the second half of the year.`\
+https://nytimes.com/2022/07/15/business/energy-stock-market.html?searchResultPosition=8
 
-**Your Friday Briefing**\
-`Russian strikes on Ukrainian civilians.`\
-https://nytimes.com/2022/07/15/briefing/your-friday-briefing.html?searchResultPosition=9
+**Maude Latour, a Columbia Student, Makes Existential Pop**\
+`The 22-year-old singer-songwriter just graduated with a degree in philosophy.`\
+https://nytimes.com/2022/07/15/style/maude-latour-a-columbia-student-makes-existential-pop.html?searchResultPosition=9
 
-**Corrections: July 15, 2022**\
-`Corrections that appeared in print on Friday, July 15, 2022.`\
-https://nytimes.com/2022/07/15/pageoneplus/corrections-july-15-2022.html?searchResultPosition=10
+**How One Senator Doomed the Democrats’ Climate Plan**\
+`Senator Joe Manchin III of West Virginia led his party and his president through months of tortured talks, with nothing to show for it as the planet dangerously heats up.`\
+https://nytimes.com/2022/07/15/climate/manchin-climate-change-democrats.html?searchResultPosition=10
 
