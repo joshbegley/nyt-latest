@@ -10,8 +10,8 @@ https://nytimes.com/2022/07/15/world/the-many-parties-involved-complicate-war-cr
 `Lying and “breaking and entering” are the alleged crimes at the heart of three witty new picture books.`\
 https://nytimes.com/2022/07/15/books/review/lisettes-lie-catharina-valckx.html?searchResultPosition=3
 
-**Smile or Be Disciplined, Mayors in the Philippines Warn City Workers**\
-`“Frowning is not allowed in the municipality!” said the mayor of the town of Mulanay. Many residents support his new policy.`\
+**Smile or Be Disciplined, Mayors Warn City Workers**\
+`“Frowning is not allowed in the municipality!” said the mayor of Mulanay in the Philippines. Many residents applauded his new policy.`\
 https://nytimes.com/2022/07/15/world/asia/philippines-mayors-smile-discipline.html?searchResultPosition=4
 
 **It’s the Summer for Sharks on Long Island Beaches**\
