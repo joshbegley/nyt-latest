@@ -6,7 +6,7 @@ https://nytimes.com/2022/07/15/climate/manchin-climate.html?searchResultPosition
 `In their latest financial reports, Wells Fargo showed signs of trouble but Citigroup revealed results that were better than expected.`\
 https://nytimes.com/2022/07/15/business/wells-fargo-citigroup-earnings.html?searchResultPosition=2
 
-**‘Stand Tall and Protect Our Democracy’: Indict Trump?**\
+**Should Trump Be Indicted?**\
 `Readers argue that Donald Trump should be indicted and discuss why his base still supports him. Also: Manchin vs. Biden’s plans; a 10-year-old rape victim; abortion travel.`\
 https://nytimes.com/2022/07/15/opinion/letters/trump-jan-6.html?searchResultPosition=3
 
