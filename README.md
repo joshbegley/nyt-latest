@@ -28,7 +28,7 @@ https://nytimes.com/2022/07/15/opinion/letters/trump-jan-6.html?searchResultPosi
 
 **NASA Shows Webb’s View of Something Closer to Home: Jupiter**\
 `The powerful telescope will help scientists make discoveries both within our solar system and well beyond it.`\
-https://nytimes.com/2022/07/15/science/webb-telescope-jupiter-nasa.html?searchResultPosition=8
+https://nytimes.com/2022/07/15/science/webb-telescope-jupiter-images.html?searchResultPosition=8
 
 **The Problem in Coaching Style Without Substance**\
 `England’s 8-0 thrashing of Norway was a stunning triumph. But it also exposed a failure of leadership.`\
