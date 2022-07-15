@@ -1,4 +1,4 @@
-**Olympics Restore Jim Thorpe’s Gold Medals**\
+**Jim Thorpe Is Restored as Sole Winner of 1912 Olympic Gold Medals**\
 `Thorpe, declared the world’s greatest athlete at the 1912 Games, was stripped of his decathlon and pentathlon titles for violating rules against professionalism.`\
 https://nytimes.com/2022/07/15/sports/olympics/jim-thorpe-olympics-medal-restored.html?searchResultPosition=1
 
