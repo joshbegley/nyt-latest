@@ -6,8 +6,8 @@ https://nytimes.com/2022/07/14/us/politics/manchin-climate-taxes.html?searchResu
 `Treasury Secretary Janet Yellen continued to push for imposing a price limit on Russian oil to reduce President Vladimir V. Putin’s ability to continue waging war in Ukraine, shrink the Russian economy and lower global oil prices.`\
 https://nytimes.com/video/world/europe/100000008445382/russia-oil-price-yellen.html?searchResultPosition=2
 
-**China’s Economic Growth Slows Sharply as Covid Policy Takes Toll**\
-`The humming economy of last year has been replaced by high unemployment, a housing market in crisis and sluggish consumer spending.`\
+**China’s Economic Growth Slows Sharply as Covid Policy Takes a Toll**\
+`The humming economy has been replaced by high unemployment, a housing market in crisis and sluggish consumer spending in a year when Beijing is focused on projecting stability.`\
 https://nytimes.com/2022/07/14/business/china-economy-slows.html?searchResultPosition=3
 
 **Variety: Acrostic**\
