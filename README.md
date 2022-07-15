@@ -36,5 +36,5 @@ https://nytimes.com/2022/07/15/us/politics/biden-mcconnell-judge-abortion.html?s
 
 **In a Flash of Fire and Shrapnel, a Smiling 4-Year-Old’s Life Is Snuffed Out**\
 `A toddler with Down syndrome was happily pushing a stroller through a Ukraine park before a Russian missile landed. “I want to shout out to the whole world,” an anguished survivor of the attack cried.`\
-https://nytimes.com/2022/07/15/world/europe/russia-missile-liza-vinnytsia-ukraine.html?searchResultPosition=10
+https://nytimes.com/2022/07/15/world/europe/russia-vinnytsia-liza-dmytriyeva.html?searchResultPosition=10
 
