@@ -30,11 +30,11 @@ https://nytimes.com/2022/07/15/opinion/letters/trump-jan-6.html?searchResultPosi
 `The powerful telescope will help scientists make discoveries both within our solar system and well beyond it.`\
 https://nytimes.com/2022/07/15/science/webb-telescope-jupiter-images.html?searchResultPosition=8
 
-**The Problem in Coaching Style Without Substance**\
-`England’s 8-0 thrashing of Norway was a stunning triumph. But it also exposed a failure of leadership.`\
-https://nytimes.com/2022/07/15/sports/soccer/england-womens-euros-2022.html?searchResultPosition=9
-
 **Five Action Movies to Stream Now**\
 `This month’s picks include films about women in defense and a kidnapping prank gone wrong.`\
-https://nytimes.com/2022/07/15/movies/action-movies-streaming.html?searchResultPosition=10
+https://nytimes.com/2022/07/15/movies/action-movies-streaming.html?searchResultPosition=9
+
+**The Problem in Coaching Style Without Substance**\
+`England’s 8-0 thrashing of Norway was a stunning triumph. But it also exposed a failure of leadership.`\
+https://nytimes.com/2022/07/15/sports/soccer/england-womens-euros-2022.html?searchResultPosition=10
 
