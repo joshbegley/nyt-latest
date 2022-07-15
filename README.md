@@ -16,7 +16,7 @@ https://nytimes.com/2022/07/15/dining/what-to-cook-this-weekend.html?searchResul
 
 **Parkland School Gunman Faces Death Penalty in Rare Trial**\
 `A Florida jury will decide if the young man who killed 17 people in 2018 will be sentenced to death.`\
-https://nytimes.com/2022/07/15/us/parkland-school-gunman-faces-death-penalty-in-rare-trial.html?searchResultPosition=5
+https://nytimes.com/2022/07/15/us/parkland-gunman-trial.html?searchResultPosition=5
 
 **The girl was happily pushing a stroller. Soon after, she was dead.**\
 `Liza Dmytriyeva was captured in an Instagram video posted by her mother shortly before the attack in Vinnytsia on Thursday.`\
