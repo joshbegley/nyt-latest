@@ -1,5 +1,5 @@
-**Largest Study to Date Shows How Covid Vaccines Impacted Periods**\
-`For some, a side effect of getting vaccinated was a change in menstrual cycles — but experts say there is no cause for alarm`\
+**Largest Study to Date Shows How Covid Vaccines Impacts Periods**\
+`For some, a side effect of getting vaccinated was a change in menstrual cycles — but experts say there is no cause for alarm.`\
 https://nytimes.com/2022/07/15/well/live/covid-vaccines-periods.html?searchResultPosition=1
 
 **Living Through Texas’ Hottest Summer**\
