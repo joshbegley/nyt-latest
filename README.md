@@ -1,6 +1,6 @@
 **40 Years After Her Murder, ‘Princess Doe’ Has a Name**\
 `She was found dead in a New Jersey cemetery in 1982 and became known worldwide as Princess Doe. On Friday, she was identified as Dawn Olanick, 17.`\
-https://nytimes.com/2022/07/15/nyregion/40-years-after-her-murder-princess-doe-has-a-name.html?searchResultPosition=1
+https://nytimes.com/2022/07/15/nyregion/princess-doe-new-jersey.html?searchResultPosition=1
 
 **Mark Fleischman, the Last Impresario of Studio 54, Dies at 82**\
 `He took over the celebrated Manhattan club in the early 1980s and briefly became the self-described “ringleader” of an all-night circus.`\
