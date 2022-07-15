@@ -34,7 +34,7 @@ https://nytimes.com/2022/07/15/us/california-farmers-markets.html?searchResultPo
 `Working in a laboratory in Paris, scientists gave a close relative of the Covid virus the chance to evolve to be more like its cousin.`\
 https://nytimes.com/2022/07/15/science/bat-coronavirus-laboratory-experiments.html?searchResultPosition=9
 
-**Biggest Cryptominers in the U.S. Use as Much Power as Houston, Findings Show**\
+**Biggest Cryptominers in the U.S. Can Use as Much Power as Houston, Findings Show**\
 `The findings, by a congressional investigation, highlight how the surge in activity has caused consumers’ electrical bills to rise and makes it harder to fight global warming.`\
 https://nytimes.com/2022/07/15/climate/cryptocurrency-bitcoin-mining-electricity.html?searchResultPosition=10
 
