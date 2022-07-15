@@ -1,4 +1,4 @@
-**20 Easy Saladsfor Every Summer Table**\
+**20 Easy Salads for Every Summer Table**\
 `Using vibrant vegetables and fruits at peak freshness is a great way to eat well — and inexpensively — throughout the season.`\
 https://nytimes.com/2022/07/15/dining/easy-summer-salads.html?searchResultPosition=1
 
