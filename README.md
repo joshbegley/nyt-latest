@@ -1,40 +1,40 @@
+**Gaps in Arms Supplies to Ukraine Point to Countries’ Divergent Strategies**\
+`Beyond logistical issues, the uneven flow of arms to Ukraine hints at differences among allies about whether Russia should be punished or eventually accommodated.`\
+https://nytimes.com/2022/07/15/world/europe/europe-ukraine-arms-weapons-supplies.html?searchResultPosition=1
+
+**The Top Races to Watch at the Track and Field World Championships**\
+`The fastest runners in the world are converging in Eugene, Ore., for the next 10 days.`\
+https://nytimes.com/article/track-field-world-championships-races.html?searchResultPosition=2
+
+**Above the Delaware River, a Double Wedding Straddling State Lines**\
+`Patricia Parent and Philip Kuntz had been double dating with Kelly Heflin and Carol McNitt for about a year when they hatched a plan to marry together on a bridge between New Jersey and Pennsylvania.`\
+https://nytimes.com/2022/07/15/style/parent-kuntz-mcnitt-heflin-wedding.html?searchResultPosition=3
+
+**What Is … Happily Ever After?**\
+`Sarah Bauer and Greer Mackebee met as contestants in the 2012 “Jeopardy! National College Championship.” Years later, the one-time competitors became a couple.`\
+https://nytimes.com/2022/07/15/style/sarah-bauer-greer-mackebee-wedding.html?searchResultPosition=4
+
+**Losing the Race, but Winning Each Other**\
+`Bimal Patel was seeking a congressional seat in Texas when he and Truett Manning matched on a dating app. By the time his campaign ended, the two were well on their way to a life together.`\
+https://nytimes.com/2022/07/15/style/bimal-patel-truett-manning-wedding.html?searchResultPosition=5
+
+**Man With Incredible Beard Desperately Needs Kidney**\
+`Maybe mine?`\
+https://nytimes.com/2022/07/15/style/modern-love-kidney-donor.html?searchResultPosition=6
+
+**The Surprise Proposal That She (Kind of) Knew Was Coming**\
+`Suzanna Sone had two priorities for a proposal: for it to be a surprise, and to look cute in photos. To accommodate both, James Xi concocted an elaborate plan that involved dozens of her friends.`\
+https://nytimes.com/2022/07/15/style/suzanna-sone-james-xi-wedding.html?searchResultPosition=7
+
+**For Two Octogenarians, the ‘Endgame’ Was Just the Beginning**\
+`Hours into their first date last December, Jack Pinto asked Joan Klein a question: “So, what is your endgame?” Within seven months, they were husband and wife.`\
+https://nytimes.com/2022/07/15/style/joan-klein-jack-pinto-wedding.html?searchResultPosition=8
+
+**Some 42,934 Steps on the Road to Love**\
+`It took Andrew Hughes, a professional mountain climber, two dates to win over Lauren Beard. But it took him two months to deliver his proposal.`\
+https://nytimes.com/2022/07/15/style/some-42934-steps-on-the-road-to-love.html?searchResultPosition=9
+
 **Manchin Pulls Plug on Climate and Tax Talks, Shrinking Domestic Plan**\
 `The West Virginia Democrat’s decision dealt a crushing blow to President Biden’s domestic agenda, effectively ruling out action on anything beyond prescription drug pricing and health care subsidies.`\
-https://nytimes.com/2022/07/14/us/politics/manchin-climate-taxes.html?searchResultPosition=1
-
-**Janet Yellen Urges Price Cap on Russian Oil**\
-`Treasury Secretary Janet Yellen continued to push for imposing a price limit on Russian oil to reduce President Vladimir V. Putin’s ability to continue waging war in Ukraine, shrink the Russian economy and lower global oil prices.`\
-https://nytimes.com/video/world/europe/100000008445382/russia-oil-price-yellen.html?searchResultPosition=2
-
-**China’s Economic Growth Slows Sharply as Covid Policy Takes a Toll**\
-`The humming economy has been replaced by high unemployment, a housing market in crisis and sluggish consumer spending in a year when Beijing is focused on projecting stability.`\
-https://nytimes.com/2022/07/14/business/china-economy-slows.html?searchResultPosition=3
-
-**Variety: Acrostic**\
-`Emily Cox and Henry Rathvon allow the passage of time.`\
-https://nytimes.com/2022/07/14/crosswords/variety-acrostic.html?searchResultPosition=4
-
-**Warped Fabric**\
-`Matthew Stock and Nam Jin Yoon bring both the new and the old to their Friday puzzle.`\
-https://nytimes.com/2022/07/14/crosswords/daily-puzzle-2022-07-15.html?searchResultPosition=5
-
-**Doctor Informed State of 10-Year-Old Girl’s Abortion**\
-`A document obtained by The New York Times shows that the Indiana obstetrician reported the child’s abortion to the state.`\
-https://nytimes.com/2022/07/14/us/10-year-old-abortion-caitlin-bernard-indiana.html?searchResultPosition=6
-
-**Judge Clears Former New Mexico Officer in Chokehold Death**\
-`A trial judge dismissed a second-degree murder charge against the former officer, Christopher Smelser, in the death of Antonio Valenzuela, 40, during a traffic stop in Las Cruces.`\
-https://nytimes.com/2022/07/14/us/new-mexico-officer-cleared-chokehold-death.html?searchResultPosition=7
-
-**‘Snooki’ Is Enlisted in John Fetterman’s Campaign Trolling Dr. Oz**\
-`“I don’t know why anyone would want to leave Jersey,” the former “Jersey Shore” star said in a video posted by Mr. Fetterman.`\
-https://nytimes.com/2022/07/14/us/politics/snooki-fetterman-new-jersey.html?searchResultPosition=8
-
-**Man Posing as Officer Attacked Gay Men in a Washington Park, Prosecutors Say**\
-`Michael Thomas Pruden, 48, sprayed five men at Meridian Hill Park with a chemical irritant over three years while pretending to be a Park Police officer, the Justice Department said.`\
-https://nytimes.com/2022/07/14/us/maryland-man-meridian-hill-park-attack-indicted.html?searchResultPosition=9
-
-**Sharp Drop in Childhood Vaccinations Threatens Millions of Lives**\
-`Pandemic lockdowns, misinformation campaigns, conflicts, climate crises and other problems diverted resources and contributed to the largest backslide in routine immunization in 30 years.`\
-https://nytimes.com/2022/07/14/health/childhood-vaccination-rates-decline.html?searchResultPosition=10
+https://nytimes.com/2022/07/14/us/politics/manchin-climate-taxes.html?searchResultPosition=10
 
