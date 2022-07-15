@@ -1,5 +1,5 @@
 **Voters See a Bad Economy, Even if They’re Doing OK**\
-`A New York Times/Siena poll shows remarkable pessimism despite the labor market’s resilience. And that could be costly for the Democrats.`\
+`A New York Times/Siena poll shows remarkable pessimism despite the labor market’s resilience. That could be costly for the Democrats, and the economy.`\
 https://nytimes.com/2022/07/15/business/economy/inflation-economy-polling.html?searchResultPosition=1
 
 **With ‘How to Change Your Mind,’ Taking a Trip With Michael Pollan**\
