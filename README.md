@@ -1,6 +1,6 @@
 **In the U.S., Democrats are divided over support for Israel.**\
 `While pro-Israel voices see themselves as the mainstream, there is growing criticism of the Jewish state’s treatment of Palestinians among progressives.`\
-https://nytimes.com/2022/07/16/world/middleeast/biden-us-israel.html?searchResultPosition=1
+https://nytimes.com/live/2022/07/16/world/biden-saudi-arabia-news/biden-us-israel?searchResultPosition=1
 
 **Moscow Signals a Shift to a More Aggressive Phase of Ukraine War**\
 `After a brief pause, the Russian military is ramping up activity “in all operational sectors” in the Donbas region, the defense minister said.`\
