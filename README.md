@@ -24,7 +24,7 @@ https://nytimes.com/2022/07/16/books/review/picassos-war-hugh-eakin.html?searchR
 
 **As Biden Reaches Out to Mideast Dictators, His Eyes Are on China and Russia**\
 `Looking to make Moscow pay for its Ukraine war, and box China out of Mideast tech deals, the U.S. president tries to fall back on old Gulf alliances.`\
-https://nytimes.com/2022/07/16/world/middleeast/biden-mideast-china-russia.html?searchResultPosition=7
+https://nytimes.com/2022/07/16/world/middleeast/biden-saudi-arabia-china-russia.html?searchResultPosition=7
 
 **Eugenio Scalfari, Leading Italian Journalist, Dies at 98**\
 `As a founder of La Repubblica, one of the country’s major newspapers, and later as a columnist, he left a mark on civic life.`\
