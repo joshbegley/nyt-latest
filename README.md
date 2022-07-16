@@ -1,5 +1,5 @@
 **Texas and Central Plains could see their hottest temperatures of the summer next week.**\
-`By Isabella Grullón Paz`\
+` `\
 https://nytimes.com/2022/06/25/us/heat-wave-texas-oklahoma-plains.html?searchResultPosition=1
 
 **Can Galen Rupp Outrun the Shadow of a Disgraced Former Coach?**\
