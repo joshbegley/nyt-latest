@@ -15,7 +15,7 @@ https://nytimes.com/video/world/middleeast/100000008447377/biden-middle-east-sau
 https://nytimes.com/2022/07/16/books/review/picassos-war-hugh-eakin.html?searchResultPosition=4
 
 **As Biden Reaches Out to Mideast Dictators, His Eyes Are on China and Russia**\
-`Trying to make Moscow pay for its Ukraine war, and box China out of Mideast tech deals, the U.S. president tries to fall back on old Gulf alliances.`\
+`Looking to make Moscow pay for its Ukraine war, and box China out of Mideast tech deals, the U.S. president tries to fall back on old Gulf alliances.`\
 https://nytimes.com/2022/07/16/world/middleeast/biden-mideast-china-russia.html?searchResultPosition=5
 
 **Eugenio Scalfari, Leading Italian Journalist, Dies at 98**\
