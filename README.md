@@ -1,40 +1,40 @@
-**How to Deal With a Difficult Doorman**\
-`What bothers one person may not bother another, but when enough residents band together to complain, action often follows.`\
-https://nytimes.com/2022/07/16/realestate/difficult-doormen.html?searchResultPosition=1
+**Did Nature Heal During the Pandemic ‘Anthropause’?**\
+`Covid precautions created a global slowdown in human activity — and an opportunity to learn more about the complex ways we affect other species.`\
+https://nytimes.com/2022/07/16/science/pandemic-nature-anthropause.html?searchResultPosition=1
 
-**How We Counted Egypt’s Invisible Detainees**\
-`There was no public accounting of the prisoners in the black hole of Egypt’s indefinite pretrial detention. Until now.`\
-https://nytimes.com/2022/07/16/world/middleeast/egypt-detainees-methodology.html?searchResultPosition=2
+**They Couldn’t Believe Their Eyes: The Ocean Was Glowing.**\
+`Satellites previously detected a giant bioluminescent bloom in the Java Sea. Researchers found a boat crew that sailed through it.`\
+https://nytimes.com/2022/07/16/science/glowing-sea-java.html?searchResultPosition=2
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/07/16/crosswords/spelling-bee-forum.html?searchResultPosition=3
+**The World Economy Is Imperiled by a Force Hiding in Plain Sight**\
+`Well more than two years into the worst pandemic in a century, the accompanying economic shock continues to assault global fortunes.`\
+https://nytimes.com/2022/07/16/business/global-recession-risk.html?searchResultPosition=3
 
-**Egypt’s Revolving Jailhouse Door: One Pretrial Detention After Another**\
-`An analysis of handwritten records shows that thousands of Egyptians have been detained without charge, sometimes for years.`\
-https://nytimes.com/interactive/2022/07/16/world/middleeast/egypt-prisoners.html?searchResultPosition=4
+**The Key Insights From Our First Poll of the 2022 Midterms**\
+`A summary of the findings includes deep dissatisfaction among voters and potential fertile ground for new candidates in 2024.`\
+https://nytimes.com/2022/07/16/upshot/poll-analysis-2022-midterms.html?searchResultPosition=4
 
-**Jan. 6 Panel Issues Subpoena to Secret Service in Hunt for Text Messages**\
-`The House committee is seeking messages that an inspector general for the Department of Homeland Security said had been erased.`\
-https://nytimes.com/2022/07/16/us/secret-service-subpoena-jan-6-committee.html?searchResultPosition=5
+**A Warren Buffett Protégée Strikes Out on Her Own**\
+`Tracy Britt Cool spent a decade working closely with the renowned investor. She is now applying those lessons to her own firm.`\
+https://nytimes.com/2022/07/16/business/a-warren-buffett-protegee-strikes-out-on-her-own.html?searchResultPosition=5
 
-**Corrections: July 16, 2022**\
-`Corrections that appeared in print on Saturday, July 16, 2022.`\
-https://nytimes.com/2022/07/16/pageoneplus/corrections-july-16-2022.html?searchResultPosition=6
+**What’s Wrong (and Sometimes Right) With American Men?**\
+`Isaac Fitzgerald’s “Dirtbag, Massachusetts” is a memoir about male misbehavior and the struggle to make sense of oneself.`\
+https://nytimes.com/2022/07/16/books/review/isaac-fitzgerald-dirtbag-massachusetts.html?searchResultPosition=6
 
-**Quotation of the Day: Sharp Drop in Global Childhood Vaccinations Imperils Millions of Lives**\
-`Quotation of the Day for Saturday, July 16, 2022.`\
-https://nytimes.com/2022/07/16/todayspaper/quotation-of-the-day-sharp-drop-in-global-childhood-vaccinations-imperils-millions-of-lives.html?searchResultPosition=7
+**6 Months Into Term, Eric Adams Raises $850,000 for Re-election in 2025**\
+`Mayor Eric Adams has traveled across the country to court donors, receiving contributions from casino and sports betting executives.`\
+https://nytimes.com/2022/07/16/nyregion/eric-adams-donors.html?searchResultPosition=7
 
-**Putin Aims to Shape a New Generation of Supporters, Through Schools**\
-`Sweeping changes in the curriculum will soon cast the Russian president as a pivotal historical figure and mark an end of openness to the West.`\
-https://nytimes.com/2022/07/16/world/europe/russia-putin-schools-propaganda-indoctrination.html?searchResultPosition=8
+**Another Pain Point in a Summer of Travel Woes: Getting a Passport**\
+`If you’re urgently in need of a new or updated passport, brace yourself: Options have narrowed — and it’s likely going to cost you.`\
+https://nytimes.com/2022/07/16/travel/passport-renewal-summer-travel.html?searchResultPosition=8
 
-**At Least 6 Killed in Montana Pileup During Dust Storm**\
-`More than 20 vehicles were involved after a windstorm caused “near-blackout” conditions, the authorities said.`\
-https://nytimes.com/2022/07/15/us/6-killed-montana-car-crash-dust-storm.html?searchResultPosition=9
+**A Middle Eastern Party Scene Is Thriving on Brooklyn’s Dance Floors**\
+`Several New York City parties offer spaces where anyone and everyone can let loose, come together and find comfort in Middle Eastern and North African music.`\
+https://nytimes.com/2022/07/16/movies/brooklyn-laylit-middle-east-north-africa.html?searchResultPosition=9
 
-**M.L.B. to Pay $185 Million Settlement in Minor League Wage Dispute**\
-`The agreement provides only a modest sum to most players but could speed up the overhaul of how minor leaguers are compensated in the future.`\
-https://nytimes.com/2022/07/15/sports/baseball/mlb-lawsuit-pay.html?searchResultPosition=10
+**Dead but Not Buried, Ex-President’s Body Sparks a Cross-Continental Fight**\
+`José Eduardo dos Santos ruled Angola for 38 years. But he died in Spain. A dispute over where to lay him to rest has divided his family and could decide the fate of his political party.`\
+https://nytimes.com/2022/07/16/world/africa/angola-president-jose-eduardo-dos-santos-funeral.html?searchResultPosition=10
 
