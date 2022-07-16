@@ -26,15 +26,15 @@ https://nytimes.com/2022/07/16/us/politics/maryland-primary-tom-perez-wes-moore.
 `Felix won yet another world championship medal, her 19th. “I think I felt all the emotions,” she said of her final competitive race.`\
 https://nytimes.com/2022/07/16/sports/allyson-felix.html?searchResultPosition=7
 
+**Why Is the World’s Biggest Track Meet in a Small College Town in Oregon?**\
+`Eugene, Ore., has spent more than a century evolving into “TrackTown.” On Friday, the World Athletics Championships opened in this unlikely destination.`\
+https://nytimes.com/2022/07/16/sports/eugene-world-athletic-championships.html?searchResultPosition=8
+
 **Biden Says He Confronted Saudi Prince Over Khashoggi. How True Is That?**\
 `Mr. Biden is by nature a storyteller with a history of relating dramatic tales of conversations with foreign leaders that others in the room do not recall the same way.`\
-https://nytimes.com/2022/07/16/world/middleeast/biden-khashoggi-truth.html?searchResultPosition=8
+https://nytimes.com/2022/07/16/world/middleeast/biden-khashoggi-truth.html?searchResultPosition=9
 
 **Irish Eyes Aren’t Smiling**\
 `A nation once in the grip of religious extremism sadly watches America’s lurch to the right on abortion.`\
-https://nytimes.com/2022/07/16/opinion/ireland-abortion-roe.html?searchResultPosition=9
-
-**Diary of a Spelling Bee Fanatic**\
-`Entries for the week of July 11, 2022.`\
-https://nytimes.com/2022/07/16/crosswords/spelling-bee-diary-0711.html?searchResultPosition=10
+https://nytimes.com/2022/07/16/opinion/ireland-abortion-roe.html?searchResultPosition=10
 
