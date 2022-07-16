@@ -1,40 +1,40 @@
+**Biden Says He Confronted Saudi Prince Over Khashoggi. How True Is That?**\
+`Mr. Biden is by nature a storyteller with a history of relating dramatic tales of conversations with foreign leaders that others in the room do not recall the same way.`\
+https://nytimes.com/2022/07/16/world/middleeast/biden-khashoggi-truth.html?searchResultPosition=1
+
 **Irish Eyes Aren’t Smiling**\
 `A nation once in the grip of religious extremism sadly watches America’s lurch to the right on abortion.`\
-https://nytimes.com/2022/07/16/opinion/ireland-abortion-roe.html?searchResultPosition=1
+https://nytimes.com/2022/07/16/opinion/ireland-abortion-roe.html?searchResultPosition=2
 
 **Diary of a Spelling Bee Fanatic**\
 `Entries for the week of July 11, 2022.`\
-https://nytimes.com/2022/07/16/crosswords/spelling-bee-diary-0711.html?searchResultPosition=2
+https://nytimes.com/2022/07/16/crosswords/spelling-bee-diary-0711.html?searchResultPosition=3
 
 **Texas Man Charged in Four Decades-Old California Murders**\
 `Officials said DNA evidence helped lead to the arrest of the man, who was charged in the 1980 and 1995 killings of three women and a teenager.`\
-https://nytimes.com/2022/07/16/us/billy-richardson-cold-case-california.html?searchResultPosition=3
+https://nytimes.com/2022/07/16/us/billy-richardson-cold-case-california.html?searchResultPosition=4
 
 **Raving for Shrek, the Swamp Comes to Brooklyn**\
 `A party in East Williamsburg invited fans of the 2001 film to translate into reality their online obsessions with the titular ogre.`\
-https://nytimes.com/2022/07/16/style/shrek-memes-brooklyn-rave.html?searchResultPosition=4
+https://nytimes.com/2022/07/16/style/shrek-memes-brooklyn-rave.html?searchResultPosition=5
 
 **Italy’s Crisis Redoubles European Foreboding**\
 `Europe is being tested, not only in its united front to Russia, but in the very resilience of its democracies, as nationalist forces sympathetic to Russia remain untamed.`\
-https://nytimes.com/2022/07/16/world/europe/europe-italy-economy-crisis.html?searchResultPosition=5
+https://nytimes.com/2022/07/16/world/europe/europe-italy-economy-crisis.html?searchResultPosition=6
 
 **Wind, Of Course, Goethe and Shame**\
 `Our critic recommends old and new books.`\
-https://nytimes.com/2022/07/16/books/molly-young-book-recommendations.html?searchResultPosition=6
+https://nytimes.com/2022/07/16/books/molly-young-book-recommendations.html?searchResultPosition=7
 
 **As Heat Waves Sweep Europe, Britain Braces for Record Temperatures**\
 `Highs are expected to reach 40 degrees Celsius, or 104 Fahrenheit, for the first time in Britain early next week. The weather system has also baked other parts of Europe.`\
-https://nytimes.com/2022/07/16/world/europe/uk-europe-heat-wave.html?searchResultPosition=7
+https://nytimes.com/2022/07/16/world/europe/uk-europe-heat-wave.html?searchResultPosition=8
 
 **Salad Days**\
 `When it comes to making the perfect summer salad, sometimes less is more.`\
-https://nytimes.com/2022/07/16/briefing/summer-salads.html?searchResultPosition=8
+https://nytimes.com/2022/07/16/briefing/summer-salads.html?searchResultPosition=9
 
 **An unspoken result of Biden’s meeting with Prince Mohammed: A setback in the Khashoggi case.**\
 `President Biden’s dropping of his resistance to speak with Crown Prince Mohammed bin Salman seems to signal the end of official U.S. efforts to seek justice for the slain journalist.`\
-https://nytimes.com/2022/07/16/world/middleeast/khashoggi-biden-mohammed-bin-salman.html?searchResultPosition=9
-
-**Can’t Talk, I’m Busy Being Hot**\
-`A social media movement inspired by the rapper Megan Thee Stallion strikes back at the gatekeepers of beauty.`\
-https://nytimes.com/2022/07/16/style/self-care/cant-talk-im-busy-being-hot.html?searchResultPosition=10
+https://nytimes.com/2022/07/16/world/middleeast/khashoggi-biden-mohammed-bin-salman.html?searchResultPosition=10
 
