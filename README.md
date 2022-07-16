@@ -1,5 +1,5 @@
 **What New Abortion Bans Mean for the Youngest Patients**\
-`One 10-year-old became the focus of debate, but more than 1,000 girls under 15 seek abortions each year. ‘How are we going to help the pregnant kids?’`\
+`One 10-year-old became the focus of debate, but more than 1,000 girls under 15 seek abortions each year. “How are we going to help the pregnant kids?”`\
 https://nytimes.com/2022/07/16/us/abortion-bans-children.html?searchResultPosition=1
 
 **What It Means to See America in Person**\
