@@ -26,7 +26,7 @@ https://nytimes.com/2022/07/16/pageoneplus/corrections-july-16-2022.html?searchR
 `Quotation of the Day for Saturday, July 16, 2022.`\
 https://nytimes.com/2022/07/16/todayspaper/quotation-of-the-day-sharp-drop-in-global-childhood-vaccinations-imperils-millions-of-lives.html?searchResultPosition=7
 
-**Putin Aims to Shape a New Generation of Supporters — Through Schools**\
+**Putin Aims to Shape a New Generation of Supporters, Through Schools**\
 `Sweeping changes in the curriculum will soon cast the Russian president as a pivotal historical figure and mark an end of openness to the West.`\
 https://nytimes.com/2022/07/16/world/europe/russia-putin-schools-propaganda-indoctrination.html?searchResultPosition=8
 
