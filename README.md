@@ -22,7 +22,7 @@ https://nytimes.com/2022/07/16/opinion/michigan-football-moeller.html?searchResu
 `My daughter’s life (and mine) in a post-Roe world.`\
 https://nytimes.com/interactive/2022/07/16/opinion/roe-abortion-alex-citrin.html?searchResultPosition=6
 
-**Right-Wing Lawyer Pitched Trump on ‘Martial Law’ Plan to Subvert Election**\
+**Lawyer Pitched Trump on Plan to Have Justice Dept. Subvert Election**\
 `The role of William J. Olson in advising the president in late 2020, which has not previously been disclosed, shows how fringe figures were influencing him at a critical time.`\
 https://nytimes.com/2022/07/16/us/politics/trump-olson-lindell-election.html?searchResultPosition=7
 
