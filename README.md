@@ -4,7 +4,7 @@ https://nytimes.com/2022/07/17/us/bobby-east-nascar-driver-stabbed.html?searchRe
 
 **At the British Open, Another Letdown for Rory McIlroy**\
 `McIlroy, the 2014 Open winner and a son of Northern Ireland, was a gallery favorite in Scotland. But his streak of major tournament misery will stretch into 2023.`\
-https://nytimes.com/2022/07/17/sports/golf/british-open.html?searchResultPosition=2
+https://nytimes.com/2022/07/17/sports/golf/rory-mcilroy-british-open.html?searchResultPosition=2
 
 **Gerald Shargel, Criminal Defense Lawyer for the Mob, Dies at 77**\
 `He coupled legal scholarship with courtroom wit to decimate the prosecution’s cases against Mafia bosses.`\
