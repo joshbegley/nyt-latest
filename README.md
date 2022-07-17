@@ -1,6 +1,6 @@
 **Fatalities in Indiana Mall Shooting, Official Says**\
 `The police said they were seeking witnesses to the shooting, which happened on Sunday at the Greenwood Park Mall.`\
-https://nytimes.com/2022/07/17/us/17xp-greenwood-mall-shooting-indiana.html?searchResultPosition=1
+https://nytimes.com/2022/07/17/us/greenwood-mall-shooting-indiana.html?searchResultPosition=1
 
 **How to Drop Out of College**\
 `Everyone but me knew it was doomed from the start.`\
