@@ -26,7 +26,7 @@ https://nytimes.com/2022/07/16/sports/golf/british-open-st-andrews-scotland.html
 ` `\
 https://nytimes.com/2022/06/25/us/heat-wave-texas-oklahoma-plains.html?searchResultPosition=8
 
-**Can Galen Rupp Outrun the Shadow of a Disgraced Former Coach?**\
+**Can Galen Rupp outrun the shadow of a disgraced former coach?**\
 `Galen Rupp is the greatest American distance runner of his generation. For a long time, the disgraced coach Alberto Salazar guided him. Should that matter?`\
 https://nytimes.com/2022/07/16/sports/galen-rupp-salazar-world-championships.html?searchResultPosition=9
 
