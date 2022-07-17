@@ -22,19 +22,19 @@ https://nytimes.com/video/world/europe/100000008447867/russia-ukraine-rocket-chu
 `Temperatures may top 100 degrees Fahrenheit in some areas.`\
 https://nytimes.com/2022/07/17/world/europe/britain-heat-wave-records.html?searchResultPosition=6
 
+**A slow, strategic marathon ends with a world championship record**\
+`Conditions in Eugene were perfect for a fast marathon. Tamirat Tola of Ethiopia won the race in 2 hours 5 minutes and 36 seconds, a record for the world championships.`\
+https://nytimes.com/2022/07/16/sports/marathon-tamirat-tola.html?searchResultPosition=7
+
 **Introducing Sunday Opinion**\
 `Sunday Review, the 11-year-old Opinion section of The New York Times, is getting a new name and new features.`\
-https://nytimes.com/2022/07/17/insider/introducing-sunday-opinion.html?searchResultPosition=7
+https://nytimes.com/2022/07/17/insider/introducing-sunday-opinion.html?searchResultPosition=8
 
 **As Russia Runs Low on Drones, Iran Plans to Step In, U.S. Officials Say**\
 `The potential delivery of hundreds of Iranian drones would help the Kremlin replenish a fleet that has suffered steep losses in Ukraine.`\
-https://nytimes.com/2022/07/17/us/politics/drones-ukraine-russia-iran.html?searchResultPosition=8
+https://nytimes.com/2022/07/17/us/politics/drones-ukraine-russia-iran.html?searchResultPosition=9
 
 **David Weiss Halivni, Controversial Talmudic Scholar, Dies at 94**\
 `He was considered too radical by many Orthodox rabbis and too regressive by many Conservative Jewish leaders. But his work was widely praised.`\
-https://nytimes.com/2022/07/17/nyregion/david-weiss-halivni-dead.html?searchResultPosition=9
-
-**Jewelry and Gems Worth Millions Stolen From Brink’s Truck in California**\
-`The value of the missing merchandise, which was headed last week to an International Gem and Jewelry Show event, was unclear. One conservative figure put the value at up to $10 million.`\
-https://nytimes.com/2022/07/17/us/jewelry-stolen-armored-truck-los-angeles.html?searchResultPosition=10
+https://nytimes.com/2022/07/17/nyregion/david-weiss-halivni-dead.html?searchResultPosition=10
 
