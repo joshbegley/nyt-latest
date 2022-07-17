@@ -1,5 +1,5 @@
 **Fred Kerley is now the world’s fastest man.**\
-`Kerley led an American sweep of the 100-meter dash. He was followed by Marvin Bracy and Trayvon Bromell.`\
+`Kerley led an American sweep of the 100-meter dash. He was followed by Marvin Bracy-Williams and Trayvon Bromell.`\
 https://nytimes.com/2022/07/16/sports/fred-kerley-marvin-bracy-trayvon-bromell.html?searchResultPosition=1
 
 **Rory McIlroy Has a Big Day at the British Open. Viktor Hovland Follows.**\
