@@ -1,5 +1,5 @@
 **Family Holds Funeral for 4-Year-Old Girl Killed in Russian Missile Attack**\
-`Liza Dmytriyeva, a 4-year-old with Down syndrome, died when a flash of fire and metallic shrapnel erupted near her and her mother during a walk. Her mother, Iryna, lost a leg and remains unconscious.`\
+`Liza Dmytriyeva, a 4-year-old with Down syndrome, died when a flash of fire and metallic shrapnel erupted near her and her mother during a walk in Vinnytsia, Ukraine. Her mother, Iryna, lost a leg and remains unconscious.`\
 https://nytimes.com/video/world/europe/100000008448042/liza-dmytriyeva-funeral-russia-ukraine.html?searchResultPosition=1
 
 **Review: In ‘Between the Lines,’ Romance Is Thwarted by Reality**\
