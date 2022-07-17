@@ -11,7 +11,7 @@ https://nytimes.com/2022/07/17/world/europe/ukraine-russia-donetsk-front-line.ht
 https://nytimes.com/2022/07/17/obituaries/nikolai-krogius-dead.html?searchResultPosition=3
 
 **Cameron Smith Wins the 150th British Open at St. Andrews**\
-`The Australian, who tied for third at the Masters in April, overtook a third-round leader, Rory McIlroy, with a brilliant final round to capture his first major championship.`\
+`The Australian, who tied for third at the Masters in April, overtook Rory McIlroy with a brilliant final round to capture his first major championship.`\
 https://nytimes.com/2022/07/17/sports/golf/british-open-final-round.html?searchResultPosition=4
 
 **Russian Rocket Strike Kills At Least 3 in Northern Ukraine**\
