@@ -7,7 +7,7 @@ https://nytimes.com/2022/07/17/us/17xp-greenwood-mall-shooting-indiana.html?sear
 https://nytimes.com/2022/07/17/style/how-to-drop-out-of-college.html?searchResultPosition=2
 
 **Jennifer Lopez and Ben Affleck Have a Low-Key Midnight Wedding in Las Vegas**\
-`The superstar couple, who got back together last year, waited in line at a chapel that Lopez said “graciously stayed open” a few minutes past midnight so they could wed.`\
+`The superstar couple, who got back together last year, waited in line and went to a chapel that Lopez said “graciously stayed open” a few minutes past midnight so they could wed.`\
 https://nytimes.com/2022/07/17/arts/jennifer-lopez-ben-affleck-married.html?searchResultPosition=3
 
 **Yankees Head to the All-Star Break Looking as Dominant as Ever**\
