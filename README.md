@@ -1,5 +1,5 @@
 **Jewelry and Gems Worth Millions Stolen From Brink’s Truck in California**\
-`The value of the missing merchandise, which was headed last week to an International Gem and Jewelry Show event, was unclear. One conservative estimate put the value at up to $10 million.`\
+`The value of the missing merchandise, which was headed last week to an International Gem and Jewelry Show event, was unclear. One conservative figure put the value at up to $10 million.`\
 https://nytimes.com/2022/07/17/us/jewelry-stolen-armored-truck-los-angeles.html?searchResultPosition=1
 
 **A Young Woman’s Wartime Task: Persuading People to Leave Their Homes**\
