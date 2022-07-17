@@ -12,7 +12,7 @@ https://nytimes.com/2022/07/17/obituaries/nikolai-krogius-dead.html?searchResult
 
 **Cameron Smith Wins the 150th British Open at St. Andrews**\
 `The Australian, who tied for third at the Masters in April, overtook Rory McIlroy with a brilliant final round to capture his first major championship.`\
-https://nytimes.com/2022/07/17/sports/golf/british-open-final-round.html?searchResultPosition=4
+https://nytimes.com/2022/07/17/sports/golf/british-open-final-cameron-smith-rory-mcilroy.html?searchResultPosition=4
 
 **Russian Rocket Strike Kills At Least 3 in Northern Ukraine**\
 `At least three civilians were killed and three more were injured in Chuhuiv, Ukraine, after Russian rockets struck the city, according to the regional police.`\
