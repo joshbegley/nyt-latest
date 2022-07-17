@@ -14,7 +14,7 @@ https://nytimes.com/2022/07/17/business/the-week-in-business-twitter-elon-musk.h
 `Those who withhold care get conscience protections. What about those who want to provide it?`\
 https://nytimes.com/2022/07/17/opinion/dobbs-abortion-providers-conscience-protections.html?searchResultPosition=4
 
-**For This Supreme Court, Justice Isn’t Blind. Faith Is.**\
+**In the Face of Fact, the Supreme Court Chose Faith**\
 `Kennedy v. Bremerton School District reflects the conservative majority’s brazen efforts to inflict its political and religious agenda on the rest of the country.`\
 https://nytimes.com/2022/07/17/opinion/kennedy-bremerton-supreme-court.html?searchResultPosition=5
 
