@@ -18,8 +18,8 @@ https://nytimes.com/2022/07/17/opinion/dobbs-abortion-providers-conscience-prote
 `Kennedy v. Bremerton School District reflects the conservative majority’s brazen efforts to inflict its political and religious agenda on the rest of the country.`\
 https://nytimes.com/2022/07/17/opinion/kennedy-bremerton-supreme-court.html?searchResultPosition=5
 
-**Sky-High Prices Are Only Part of the Problem**\
-`Inflation has unmasked the depths of our affordability crisis.`\
+**Inflation Has Unmasked the Depths of Our Affordability Crisis**\
+`Sky-high prices are only part of the problem.`\
 https://nytimes.com/2022/07/17/opinion/inflation-prices-affordability.html?searchResultPosition=6
 
 **The Sunday Read: ‘Want to Do Less Time? A Prison Consultant Might Be Able to Help.’**\
