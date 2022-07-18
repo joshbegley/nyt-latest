@@ -1,40 +1,40 @@
-**Mexico’s Leader Says Poverty Is His Priority. But His Policies Hurt the Poor.**\
-`Halfway into the president’s term, the plight of Mexico’s lower classes has only worsened. Economists say it is the result of government mismanagement of welfare programs and the economy.`\
-https://nytimes.com/2022/07/18/world/americas/mexico-economy-poverty.html?searchResultPosition=1
+**Sharing Stories, and a View, Aboard the California Zephyr**\
+`A photographer traveled across America on one of Amtrak’s long-distance train routes. Here’s what she saw.`\
+https://nytimes.com/2022/07/18/travel/amtrak-california-zephyr-train.html?searchResultPosition=1
 
-**Justice Jackson, a Former Law Clerk, Returns to a Transformed Supreme Court**\
-`In the 22 years since she worked for Justice Stephen G. Breyer, whom she replaced last month, the court has become polarized and predictably conservative.`\
-https://nytimes.com/2022/07/18/us/politics/ketanji-brown-jackson-scotus.html?searchResultPosition=2
+**America Saved My Father’s Life. It Tried to Destroy My Mother’s.**\
+`David Treuer’s father, an Austrian immigrant, loved this country. His Native mother, born on a reservation, could never forgive it. Where does that leave him?`\
+https://nytimes.com/2022/07/18/magazine/american-patriotism.html?searchResultPosition=2
 
-**For Monkeypox Patients, Excruciating Symptoms and a Struggle for Care**\
-`As the city and federal government strain to supply enough vaccines, patients face a private battle to find treatment and relief from serious symptoms.`\
-https://nytimes.com/2022/07/18/nyregion/new-york-monkeypox-vaccine.html?searchResultPosition=3
+**Amazon C.E.O. Andy Jassy Breaks From the Bezos Way**\
+`Jeff Bezos’ successor has set himself apart with a hands-on approach in Washington.`\
+https://nytimes.com/2022/07/18/technology/amazon-ceo-andy-jassy.html?searchResultPosition=3
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/07/18/crosswords/spelling-bee-forum.html?searchResultPosition=4
+**Sometimes the Earth Makes the Rest of the Universe Look Very Good**\
+`The photos emanating from the Webb telescope make it possible to forget politics for a minute.`\
+https://nytimes.com/2022/07/18/opinion/trump-biden-webb-space.html?searchResultPosition=4
 
-**Navy Punishes More Than 20 Sailors Over Fire on the Bonhomme Richard**\
-`The punishments included reprimands for the former leadership of the warship, which was destroyed in 2020 at a base in San Diego.`\
-https://nytimes.com/2022/07/18/us/navy-bonhomme-richard-fire-punishment.html?searchResultPosition=5
+**Covid Rises Across U.S. Amid Muted Warnings and Murky Data**\
+`BA.5, a highly transmissible variant, is dominating a surge of new infections. Many health officials say the wave is cause for caution, not alarm.`\
+https://nytimes.com/2022/07/18/us/covid-us-outlook.html?searchResultPosition=5
 
-**There’s No Place Like Kansas**\
-`The state stands as the first big post-Roe political test for abortion. It’s an intense, complicated fight with the odds stacked against reproductive-rights supporters.`\
-https://nytimes.com/2022/07/18/opinion/kansas-abortion-amendment.html?searchResultPosition=6
+**Japan’s Leader Tries to Honor Abe’s Legacy, While Building His Own**\
+`Prime Minister Fumio Kishida says he will pursue Shinzo Abe’s goals, such as a stronger military. But he has also set himself apart from his slain predecessor.`\
+https://nytimes.com/2022/07/18/world/asia/japan-kishida-abe-legacy.html?searchResultPosition=6
 
-**What’s on TV This Week: ‘Grown-ish’ and ‘The Old Man’**\
-`One show, on Freeform, begins its fifth season while the other, on FX, wraps up its first.`\
-https://nytimes.com/2022/07/18/arts/television/whats-on-tv-this-week-grown-ish-and-the-old-man.html?searchResultPosition=7
+**I’m a Democratic Strategist. This Is How We Win Back the Working Class.**\
+`Stop letting Republicans own the issues of outsourcing and trade. `\
+https://nytimes.com/2022/07/18/opinion/democrats-jobs-outsourcing.html?searchResultPosition=7
 
-**Putin Thinks He’s Winning**\
-`And his plans go far beyond Ukraine.`\
-https://nytimes.com/2022/07/18/opinion/putin-russia-ukraine-winning.html?searchResultPosition=8
+**Putting Family First, in a Pandemic and at a Price**\
+`Lisa Willis had long wanted to move to New York to be near her family, although she knew how expensive the city was. Covid made her rethink her priorities.`\
+https://nytimes.com/2022/07/18/realestate/renters-brooklyn-fort-greene.html?searchResultPosition=8
 
-**Quotation of the Day: When Miscarriages Collide With Abortion Law**\
-`Quotation of the Day for Monday, July 18, 2022.`\
-https://nytimes.com/2022/07/18/todayspaper/quotation-of-the-day-when-miscarriages-collide-with-abortion-law.html?searchResultPosition=9
+**U.S. Pays $4.2 Million to Victims of Jail Guard’s Long-Running Sex Abuse**\
+`Six women sued, saying they were abused by one guard at the Metropolitan Correctional Center, a now-closed federal jail.`\
+https://nytimes.com/2022/07/18/nyregion/mcc-officer-sex-abuse-victims-payout.html?searchResultPosition=9
 
-**Your Monday Briefing**\
-`A heat wave in Europe.`\
-https://nytimes.com/2022/07/18/briefing/europe-britain-heat-wave-ukraine.html?searchResultPosition=10
+**Dear Liberals: Come on Down!**\
+`Railing on social media from your blue state won’t change a thing down here.`\
+https://nytimes.com/2022/07/18/opinion/american-south-democrats.html?searchResultPosition=10
 
