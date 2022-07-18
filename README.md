@@ -10,7 +10,7 @@ https://nytimes.com/2022/07/18/t-magazine/rose-chalalai-singh-party.html?searchR
 `Advances in plant breeding and indoor growing have led to produce that promises to be perfectly sweet.`\
 https://nytimes.com/2022/07/18/t-magazine/candy-sweet-fruit.html?searchResultPosition=3
 
-**Uniper Runs Through Its Credit and Says it Needs More Money to Survive**\
+**Uniper Runs Through Its Credit and Says It Needs More Money to Survive**\
 `One of Germany’s largest energy providers is hoping that Berlin will help keep it afloat as limited gas from Russia and high prices drive its losses into the millions.`\
 https://nytimes.com/2022/07/17/business/uniper-germany.html?searchResultPosition=4
 
