@@ -1,4 +1,4 @@
-**Eight U.S. House Offices File for the Right to Unionize**\
+**8 U.S. House Offices File for the Right to Unionize**\
 `The petitions are the first step for congressional aides to negotiate their working conditions with the same legal protections that other federal workers enjoy.`\
 https://nytimes.com/2022/07/18/us/politics/us-house-unions-congress.html?searchResultPosition=1
 
