@@ -2,7 +2,7 @@
 `The gunman used a rifle to kill three people and injure two others before he was shot dead. He had spent an hour inside a mall bathroom apparently preparing for the attack.`\
 https://nytimes.com/2022/07/18/us/greenwood-indiana-mall-shooting.html?searchResultPosition=1
 
-**Why Is the Right Making Miscarrying Women Suffer?**\
+**Why Is the Right Making Women Who Miscarry Suffer?**\
 `Some Republicans reject even life-saving abortions.`\
 https://nytimes.com/2022/07/18/opinion/why-is-the-right-making-miscarrying-women-suffer.html?searchResultPosition=2
 
