@@ -7,7 +7,7 @@ https://nytimes.com/2022/07/17/us/judge-blocks-biden-lgbt-student-rules.html?sea
 https://nytimes.com/video/world/europe/100000008448217/europe-wildfires-heat-wave.html?searchResultPosition=2
 
 **4 Killed in Indiana Mall Shooting, Officials Say**\
-`The attack unfolded at the Greenwood Park Mall in Greenwood, Ind., on Sunday before another armed individual fatally shot the assailant, city officials said.`\
+`The attack unfolded at the Greenwood Park Mall in Greenwood, Ind., on Sunday before an armed man fatally shot the assailant, city officials said.`\
 https://nytimes.com/2022/07/17/us/greenwood-mall-shooting-indiana.html?searchResultPosition=3
 
 **How to Drop Out of College**\
