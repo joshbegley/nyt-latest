@@ -1,5 +1,5 @@
 **Claes Oldenburg Dies at 93; Pop Artist Made the Everyday Monumental**\
-`Taking ordinary objects like hamburgers and household items, he sculpted them into unfamiliar, often imposing dimensions — what he called his “Colossal Monuments.”`\
+`Taking ordinary objects like hamburgers and household items, he sculpted them in unfamiliar, often imposing dimensions — what he called his “Colossal Monuments.”`\
 https://nytimes.com/2022/07/18/arts/claes-oldenburg-dead.html?searchResultPosition=1
 
 **Goldman Sachs Beats Rivals, Benefiting From Volatile Markets**\
