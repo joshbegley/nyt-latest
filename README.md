@@ -23,7 +23,7 @@ https://nytimes.com/2022/07/18/sports/basketball/nba-coaching-camp.html?searchRe
 https://nytimes.com/2022/07/16/sports/shelly-ann-fraser-pryce-jamaican-sweep.html?searchResultPosition=6
 
 **An M.L.B. Draft High on Name Recognition and Star Power**\
-`Jackson Holliday, son of the seven-time All-Star Matt, went No. 1 and Druw Jones, son of the 10-time Gold Glover Andruw, went No. 2. But Kumar Rocker’s going third was Day 1’s biggest surprise.`\
+`Jackson Holliday, son of the seven-time All-Star Matt, went No. 1 and Druw Jones, son of Andruw, went No. 2. But Kumar Rocker’s going third was Day 1’s biggest surprise.`\
 https://nytimes.com/2022/07/17/sports/baseball/holliday-jones-rocker-mlb-draft.html?searchResultPosition=7
 
 **Federal Judge Temporarily Blocks Enforcement of L.G.B.T.Q. Protections**\
