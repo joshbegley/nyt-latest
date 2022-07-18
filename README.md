@@ -1,5 +1,5 @@
-**Fatalities in Indiana Mall Shooting, Official Says**\
-`The police said they were seeking witnesses to the shooting, which happened on Sunday at the Greenwood Park Mall.`\
+**4 Killed in Indiana Mall Shooting, Officials Say**\
+`The attack unfolded at the Greenwood Park Mall in Greenwood, Ind., on Sunday before another armed individual fatally shot the assailant, the city’s mayor said.`\
 https://nytimes.com/2022/07/17/us/greenwood-mall-shooting-indiana.html?searchResultPosition=1
 
 **How to Drop Out of College**\
