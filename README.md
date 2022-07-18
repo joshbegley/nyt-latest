@@ -1,5 +1,5 @@
 **Prosecution Cites 7 Aggravating Factors in Parkland Massacre**\
-`Prosecutors, who are seeking the death penalty for the gunman on trial for the 2018 murders at Marjory Stoneman Douglas High School in Parkland, Fla, must prove the existence of at least one aggravating factor beyond a reasonable doubt.`\
+`Prosecutors, who are seeking the death penalty for the gunman on trial for the 2018 murders at Marjory Stoneman Douglas High School in Parkland, Fla., must prove the existence of at least one aggravating factor beyond a reasonable doubt.`\
 https://nytimes.com/video/us/100000008449015/parkland-death-penalty-trial-prosecution.html?searchResultPosition=1
 
 **Restaurant Review: A Home for Taiwanese Food, Lard and All, at Wenwen**\
