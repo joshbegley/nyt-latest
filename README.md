@@ -1,40 +1,40 @@
+**There’s No Place Like Kansas**\
+`The state stands as the first big post-Roe political test for abortion. It’s an intense, complicated fight with the odds stacked against reproductive-rights supporters.`\
+https://nytimes.com/2022/07/18/opinion/kansas-abortion-amendment.html?searchResultPosition=1
+
+**What’s on TV This Week: ‘Grown-ish’ and ‘The Old Man’**\
+`One show, on Freeform, begins its fifth season while the other, on FX, wraps up its first.`\
+https://nytimes.com/2022/07/18/arts/television/whats-on-tv-this-week-grown-ish-and-the-old-man.html?searchResultPosition=2
+
+**Putin Thinks He’s Winning**\
+`And his plans go far beyond Ukraine.`\
+https://nytimes.com/2022/07/18/opinion/putin-russia-ukraine-winning.html?searchResultPosition=3
+
 **Quotation of the Day: When Miscarriages Collide With Abortion Law**\
 `Quotation of the Day for Monday, July 18, 2022.`\
-https://nytimes.com/2022/07/18/todayspaper/quotation-of-the-day-when-miscarriages-collide-with-abortion-law.html?searchResultPosition=1
+https://nytimes.com/2022/07/18/todayspaper/quotation-of-the-day-when-miscarriages-collide-with-abortion-law.html?searchResultPosition=4
 
 **Your Monday Briefing**\
 `A heat wave in Europe.`\
-https://nytimes.com/2022/07/18/briefing/europe-britain-heat-wave-ukraine.html?searchResultPosition=2
+https://nytimes.com/2022/07/18/briefing/europe-britain-heat-wave-ukraine.html?searchResultPosition=5
 
 **Why Community College Students Are ‘Stopping Out’**\
 `Vacancies in the job market are attracting students and leading them to postpone finishing their undergraduate education.`\
-https://nytimes.com/2022/07/18/nyregion/community-college-students-cuny.html?searchResultPosition=3
+https://nytimes.com/2022/07/18/nyregion/community-college-students-cuny.html?searchResultPosition=6
 
 **No Corrections: July 18, 2022**\
 `No corrections appeared in print on Monday, July 18, 2022.`\
-https://nytimes.com/2022/07/18/pageoneplus/no-corrections-july-18-2022.html?searchResultPosition=4
+https://nytimes.com/2022/07/18/pageoneplus/no-corrections-july-18-2022.html?searchResultPosition=7
 
 **Reunited in Bucha, a Ukrainian Family Comes to Terms With War’s Traumas**\
 `As flowers bloom amid the wreckage, the Kyiv suburb synonymous with atrocity feels almost normal again. But the lives of the people there may never be.`\
-https://nytimes.com/2022/07/18/world/ukraine-survivors-bucha-displaced.html?searchResultPosition=5
+https://nytimes.com/2022/07/18/world/ukraine-survivors-bucha-displaced.html?searchResultPosition=8
 
 **It’s Time to Rescue Mike Trout and Shohei Ohtani**\
 `The Los Angeles Angels have two All-Stars in their prime and a pile of losses to show for it. They might as well make this disastrous season fun to watch, writes our columnist.`\
-https://nytimes.com/2022/07/18/sports/baseball/trout-ohtani-all-star-angels.html?searchResultPosition=6
+https://nytimes.com/2022/07/18/sports/baseball/trout-ohtani-all-star-angels.html?searchResultPosition=9
 
 **Style and Superstar Egos: The Pros and Cons of N.B.A. Coaching**\
 `A weeklong camp helps professional basketball players learn what it takes to become a head coach. “I just know that I can’t play forever,” one attendee said.`\
-https://nytimes.com/2022/07/18/sports/basketball/nba-coaching-camp.html?searchResultPosition=7
-
-**Shelly-Ann Fraser-Pryce leads a Jamaican sweep of the 100-meter race.**\
-`It was an expected Jamaican sweep, with Shericka Jackson taking the silver and Elaine Thompson-Herah winning the bronze.`\
-https://nytimes.com/2022/07/16/sports/shelly-ann-fraser-pryce-jamaican-sweep.html?searchResultPosition=8
-
-**An M.L.B. Draft High on Name Recognition and Star Power**\
-`Jackson Holliday, son of the seven-time All-Star Matt, went No. 1 and Druw Jones, son of Andruw, went No. 2. But Kumar Rocker’s going third was Day 1’s biggest surprise.`\
-https://nytimes.com/2022/07/17/sports/baseball/holliday-jones-rocker-mlb-draft.html?searchResultPosition=9
-
-**Federal Judge Temporarily Blocks Enforcement of L.G.B.T.Q. Protections**\
-`The ruling sided with 20 state attorneys general who sued the Biden administration over guidelines on rights for gay and transgender workers and students.`\
-https://nytimes.com/2022/07/17/us/judge-blocks-biden-lgbt-student-rules.html?searchResultPosition=10
+https://nytimes.com/2022/07/18/sports/basketball/nba-coaching-camp.html?searchResultPosition=10
 
