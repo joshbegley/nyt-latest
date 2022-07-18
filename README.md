@@ -1,4 +1,4 @@
-**Word of Trump Media Deal Said to Have Leaked Months in Advance**\
+**Word of Trump Media Deal Is Said to Have Leaked Months in Advance**\
 `Federal authorities are investigating a surge in trading that preceded the announcement of a $300 million deal with the former president’s media company.`\
 https://nytimes.com/2022/07/18/business/trump-media-truth-social.html?searchResultPosition=1
 
