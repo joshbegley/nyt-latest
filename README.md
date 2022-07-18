@@ -7,7 +7,7 @@ https://nytimes.com/2022/07/18/business/second-quarter-bank-earnings.html?search
 https://nytimes.com/2022/07/18/arts/music/kodak-black-arrested-florida.html?searchResultPosition=2
 
 **Four Killed in Midair Plane Collision in Nevada**\
-`A single engine Piper PA-46 and a single-engine Cessna 172 flew into each other at North Las Vegas Airport on Sunday, the Federal Aviation Administration said. No one survived.`\
+`A single-engine Piper PA-46 and a single-engine Cessna 172 flew into each other at North Las Vegas Airport on Sunday, the Federal Aviation Administration said. No one survived.`\
 https://nytimes.com/2022/07/18/us/las-vegas-plane-crash.html?searchResultPosition=3
 
 **Amazon is giving Prime Video a face-lift.**\
