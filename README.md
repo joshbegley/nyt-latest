@@ -18,8 +18,8 @@ https://nytimes.com/2022/07/18/theater/heart-review-jade-anouka.html?searchResul
 `Karsten Warholm, the Norwegian reigning world champion and gold medalist in the 400-meter hurdles has a budding rivalry with the American Rai Benjamin. It’s just what track and field needs.`\
 https://nytimes.com/2022/07/18/sports/karsten-warholm-rai-benjamin.html?searchResultPosition=5
 
-**Takeaways from big banks’ latest quarterly financial reports.**\
-`Profits were lower than they were a year ago, but data showed consumers were still spending and borrowing.`\
+**3 takeaways from big banks’ latest financial reports.**\
+`Wall Street bank executives said that consumer spending was up, markets were volatile, and they did not think the economy was headed for a recession.`\
 https://nytimes.com/2022/07/18/business/second-quarter-bank-earnings.html?searchResultPosition=6
 
 **Kodak Black Is Arrested on Drug Charges in Florida**\
