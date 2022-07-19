@@ -1,5 +1,5 @@
 **Trump National Security Aide Expected to Testify at Jan. 6 Hearing**\
-`Matthew Pottinger, who was deputy national security adviser until he resigned on the day of the Capitol riot, is expected to be among those appearing live at the prime time session on Thursday.`\
+`Matthew Pottinger, who resigned on the day of the Capitol riot, is expected to be among those at the prime-time session on Thursday, along with Sarah Matthews, a former deputy press secretary.`\
 https://nytimes.com/2022/07/18/us/politics/matthew-pottinger-jan-6-hearing.html?searchResultPosition=1
 
 **An ‘Impossible Dream’ Comes True, Again, for Marylouise Burke in ‘Epiphany’**\
