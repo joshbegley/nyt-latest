@@ -28,7 +28,7 @@ https://nytimes.com/2022/07/19/business/economy/rupee-dollar-record.html?searchR
 
 **Outbreaks in China prompt lockdowns and fears of more economic woes.**\
 `The emergence of more infectious subvariants of the coronavirus has triggered mass quarantines, including 2,000 tourists stranded in a popular beach resort town.`\
-https://nytimes.com/2022/07/19/world/asia/outbreaks-in-china-prompt-lockdowns-and-fears-of-more-economic-woes.html?searchResultPosition=8
+https://nytimes.com/2022/07/19/world/asia/china-covid-lockdowns-economy.html?searchResultPosition=8
 
 **C.D.C. advisers are meeting to discuss Novavax’s Covid vaccine.**\
 `The F.D.A. last week authorized the vaccine as a primary immunization for adults. The C.D.C.’s full approval is the shot’s last regulatory hurdle.`\
