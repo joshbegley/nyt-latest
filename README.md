@@ -4,7 +4,7 @@ https://nytimes.com/2022/07/19/us/politics/secret-service-says-some-missing-jan-
 
 **On Sweltering New York Day, Rockaway Beach Closes Over Shark Sightings**\
 `As temperatures in the city climbed into the 90s this week, Rockaway Beach in Queens closed for swimming because of shark sightings.`\
-https://nytimes.com/2022/07/19/nyregion/weather-new-york-beach-closure-shark.html?searchResultPosition=2
+https://nytimes.com/2022/07/19/nyregion/nyc-rockaway-beach-shark-sightings.html?searchResultPosition=2
 
 **Intelligence Agencies Say Russia Election Threat Persists Amid Ukraine War**\
 `Top F.B.I. and National Security Agency officials said that Iran and China also remained potent threats, mounting their own campaigns to undermine American democracy.`\
