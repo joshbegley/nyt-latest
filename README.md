@@ -20,7 +20,7 @@ https://nytimes.com/2022/07/18/us/greenwood-indiana-mall-shooting.html?searchRes
 
 **Why Is the Right Making Women Who Miscarry Suffer?**\
 `Some Republicans reject even lifesaving abortions.`\
-https://nytimes.com/2022/07/18/opinion/why-is-the-right-making-miscarrying-women-suffer.html?searchResultPosition=6
+https://nytimes.com/2022/07/18/opinion/miscarriages-abortion-ban.html?searchResultPosition=6
 
 **Can Batters Hit What They Can’t See? We Will Find Out.**\
 `Dodger Stadium at dusk can be one of the hardest places to hit in baseball. As if Clayton Kershaw and Shane McClanahan, the All-Star starters, needed any help.`\
