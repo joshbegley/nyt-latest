@@ -1,40 +1,40 @@
+**‘The Day the Music Died’ Review: ‘American Pie,’ the Life of a Hit**\
+`Don McLean tries to clear up some misapprehensions about the eight-an-a-half-minute song that took on a life of its own, in this documentary.`\
+https://nytimes.com/2022/07/19/movies/the-day-the-music-died-review.html?searchResultPosition=1
+
 **Dog Helps Rescue Owner Who Fell 70 Feet in California Forest**\
 `Saul, a black Border collie, helped lead search and rescue crews to his owner, who the authorities said had broken his hip and multiple ribs after falling from a ridge.`\
-https://nytimes.com/2022/07/19/us/dog-saves-owner-tahoe-california.html?searchResultPosition=1
+https://nytimes.com/2022/07/19/us/dog-saves-owner-tahoe-california.html?searchResultPosition=2
 
 **What Baby Boomers Want (Options!), Senior Housing Delivers**\
 `Shifting demographics are reshaping complexes built for older Americans, who are looking for a variety of rates and services.`\
-https://nytimes.com/2022/07/19/business/senior-housing.html?searchResultPosition=2
+https://nytimes.com/2022/07/19/business/senior-housing.html?searchResultPosition=3
 
 **On Long Island’s South Shore, a Leisurely Summer Dinner**\
 `The chef Andy Baraghani took a break from his cookbook tour to share some of the dishes featured in its pages with friends.`\
-https://nytimes.com/2022/07/19/t-magazine/andy-baraghani-dinner-party.html?searchResultPosition=3
+https://nytimes.com/2022/07/19/t-magazine/andy-baraghani-dinner-party.html?searchResultPosition=4
 
 **Comparisons to Britain’s Summer of 1976 Abound. They’re Misleading.**\
 `Nostalgic memories of a long hot spell decades ago have become part of the currency of political debate.`\
-https://nytimes.com/2022/07/19/world/europe/uk-heat-wave-1976-temperature.html?searchResultPosition=4
+https://nytimes.com/2022/07/19/world/europe/uk-heat-wave-1976-temperature.html?searchResultPosition=5
 
 **The Cost of Extreme Heat**\
 `Britain this morning recorded its highest temperature ever, bringing parts of the country to a standstill and testing infrastructure.`\
-https://nytimes.com/2022/07/19/business/dealbook/uk-heatwave-economy.html?searchResultPosition=5
+https://nytimes.com/2022/07/19/business/dealbook/uk-heatwave-economy.html?searchResultPosition=6
 
 **Why California Bans State-Funded Travel to Nearly Half of States**\
 `A 2016 law banning travel to states with anti-L.G.B.T.Q. policies is in the spotlight.`\
-https://nytimes.com/2022/07/19/us/california-state-funded-travel-bans.html?searchResultPosition=6
+https://nytimes.com/2022/07/19/us/california-state-funded-travel-bans.html?searchResultPosition=7
 
 **‘Desus & Mero’ Late-Night Show Ends After Four Seasons**\
 `Showtime said that the Bronx-bred hosts were “pursuing separate creative endeavors” after the duo collaborated on television shows, podcasts and a book.`\
-https://nytimes.com/2022/07/19/arts/television/desus-and-mero-split-showtime.html?searchResultPosition=7
+https://nytimes.com/2022/07/19/arts/television/desus-and-mero-split-showtime.html?searchResultPosition=8
 
 **Firefighters battle an ‘explosive cocktail’ of wind and flames in southwestern France.**\
 `More than 2,000 firefighters are trying to contain raging wildfires that have burned nearly 80 square miles of vegetation and forced thousands to evacuate.`\
-https://nytimes.com/2022/07/19/world/europe/france-wildfires.html?searchResultPosition=8
+https://nytimes.com/2022/07/19/world/europe/france-wildfires.html?searchResultPosition=9
 
 **France Will Spend Nearly $10 Billion to Renationalize Electricity Company**\
 `The government offered to buy the shares it doesn’t already own in EDF, which operates all of the country’s nuclear plants, in the face of a worsening energy crisis after Russia’s invasion of Ukraine.`\
-https://nytimes.com/2022/07/19/business/france-edf-buyout.html?searchResultPosition=9
-
-**‘Crisis and Decline’: Report Paints a Bleak Assessment of Australia’s Environment**\
-`Climate change, habitat loss, invasive species, pollution and mining have contributed to a drastic decline in the populations of some wildlife species.`\
-https://nytimes.com/2022/07/19/world/australia/environment-report.html?searchResultPosition=10
+https://nytimes.com/2022/07/19/business/france-edf-buyout.html?searchResultPosition=10
 
