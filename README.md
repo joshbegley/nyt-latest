@@ -1,40 +1,40 @@
+**Trump Electors Targeted in Georgia Criminal Inquiry**\
+`A prosecutor in Atlanta is investigating interference in the 2020 presidential election, an inquiry that has engulfed Donald J. Trump and many of his allies.`\
+https://nytimes.com/2022/07/19/us/georgia-trump-electors.html?searchResultPosition=1
+
+**Putin Finds a New Ally in Iran, a Fellow Outcast**\
+`A three-way summit meeting in Tehran between the leaders of Russia, Iran and Turkey sent a clear signal that Vladimir Putin is pushing back against ostracism from the West.`\
+https://nytimes.com/2022/07/19/world/europe/putin-ayatollah-erdogan-summit.html?searchResultPosition=2
+
+**The Midterm Races That Give Democrats Nightmares**\
+`A new poll offers fodder for both parties to claim that voters are on their side in crucial secretary of state elections. Who’s right?`\
+https://nytimes.com/2022/07/19/us/politics/secretary-of-state-races-trump.html?searchResultPosition=3
+
 **House Passes Bill to Protect the Right to Same-Sex Marriage**\
 `The legislation would recognize same-sex marriages at the federal level and codify the protections established in 2015 through the Supreme Court ruling in Obergefell v. Hodges.`\
-https://nytimes.com/video/us/politics/100000008450558/house-gay-marriage-bill.html?searchResultPosition=1
+https://nytimes.com/video/us/politics/100000008450558/house-gay-marriage-bill.html?searchResultPosition=4
 
 **Maryland First Congressional District Primary Election Results**\
 `See full results and maps from the Maryland primary elections.`\
-https://nytimes.com/interactive/2022/07/19/us/elections/results-maryland-us-house-district-1.html?searchResultPosition=2
+https://nytimes.com/interactive/2022/07/19/us/elections/results-maryland-us-house-district-1.html?searchResultPosition=5
 
 **Illinois First Congressional District Primary Election Results**\
 `See full results and maps from the Illinois primary elections.`\
-https://nytimes.com/interactive/2022/06/28/us/elections/results-illinois-us-house-district-1.html?searchResultPosition=3
+https://nytimes.com/interactive/2022/06/28/us/elections/results-illinois-us-house-district-1.html?searchResultPosition=6
 
 **Oklahoma Primary Election Results**\
 `See full results and maps from the Oklahoma primary elections.`\
-https://nytimes.com/interactive/2022/06/28/us/elections/results-oklahoma.html?searchResultPosition=4
+https://nytimes.com/interactive/2022/06/28/us/elections/results-oklahoma.html?searchResultPosition=7
 
 **Colorado Third Congressional District Primary Election Results**\
 `See full results and maps from the Colorado primary elections.`\
-https://nytimes.com/interactive/2022/06/28/us/elections/results-colorado-us-house-district-3.html?searchResultPosition=5
+https://nytimes.com/interactive/2022/06/28/us/elections/results-colorado-us-house-district-3.html?searchResultPosition=8
 
 **Mississippi Primary Runoff Election Results**\
 `See full results and maps from the Mississippi primary runoff elections.`\
-https://nytimes.com/interactive/2022/06/28/us/elections/results-mississippi-runoff.html?searchResultPosition=6
+https://nytimes.com/interactive/2022/06/28/us/elections/results-mississippi-runoff.html?searchResultPosition=9
 
 **Colorado Seventh Congressional District Primary Election Results**\
 `See full results and maps from the Colorado primary elections.`\
-https://nytimes.com/interactive/2022/06/28/us/elections/results-colorado-us-house-district-7.html?searchResultPosition=7
-
-**Illinois 15th Congressional District Primary Election Results**\
-`See full results and maps from the Illinois primary elections.`\
-https://nytimes.com/interactive/2022/06/28/us/elections/results-illinois-us-house-district-15.html?searchResultPosition=8
-
-**South Carolina Primary Runoff Election Results**\
-`See full results and maps from the South Carolina primary runoff elections.`\
-https://nytimes.com/interactive/2022/06/28/us/elections/results-south-carolina-runoff.html?searchResultPosition=9
-
-**Oklahoma Lieutenant Governor Primary Election Results**\
-`See full results and maps from the Oklahoma primary elections.`\
-https://nytimes.com/interactive/2022/06/28/us/elections/results-oklahoma-lieutenant-governor.html?searchResultPosition=10
+https://nytimes.com/interactive/2022/06/28/us/elections/results-colorado-us-house-district-7.html?searchResultPosition=10
 
