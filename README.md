@@ -28,7 +28,7 @@ https://nytimes.com/2022/07/19/world/europe/rishi-sunak-boris-johnson-politics.h
 
 **After Heavy Rains, a Sinkhole Opens in the Bronx**\
 `The hole appeared on Monday night, damaging a water main and swallowing a parked van.`\
-https://nytimes.com/2022/07/19/us/bronx-sinkhole.html?searchResultPosition=8
+https://nytimes.com/2022/07/19/nyregion/bronx-sinkhole.html?searchResultPosition=8
 
 **Do Eye Creams Actually Work for Wrinkles?**\
 `Look for a few key ingredients in skin care products if you want to deal with wrinkles — but no product will keep your face crease free.`\
