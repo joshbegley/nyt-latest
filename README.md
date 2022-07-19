@@ -31,7 +31,7 @@ https://nytimes.com/2022/07/19/books/review-pink-hotel-liska-jacobs.html?searchR
 https://nytimes.com/2022/07/19/nyregion/weather-new-york-cooling-centers.html?searchResultPosition=8
 
 **Fires Destroy Homes in Greater London**\
-`Fires broke out across Greater London, forcing people to evacuate their homes, as temperatures exceeded 40C on the hottest day ever recorded.`\
+`Fires broke out across Greater London, forcing people to evacuate their homes, on the hottest day ever recorded there.`\
 https://nytimes.com/video/world/europe/100000008450846/uk-weather-fires.html?searchResultPosition=9
 
 **Questions About An Unsolved Murder Linger Over ‘Where the Crawdads Sing’**\
