@@ -2,8 +2,8 @@
 `The House committee investigating the attack on the Capitol had subpoenaed text messages from the agents’ phones and other materials.`\
 https://nytimes.com/2022/07/19/us/politics/secret-service-texts-jan-6.html?searchResultPosition=1
 
-**On Sweltering New York Day, Rockaway Beach Closes Over Shark Sightings**\
-`As temperatures in the city climbed into the 90s this week, Rockaway Beach in Queens closed for swimming because of shark sightings.`\
+**On Sweltering New York Day, Rockaway Beaches Close Over Shark Sightings**\
+`As temperatures in the city climbed into the 90s this week, all of Rockaway’s beaches were closed for swimming because of shark sightings.`\
 https://nytimes.com/2022/07/19/nyregion/nyc-rockaway-beach-shark-sightings.html?searchResultPosition=2
 
 **Intelligence Agencies Say Russia Election Threat Persists Amid Ukraine War**\
