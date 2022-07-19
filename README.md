@@ -1,5 +1,5 @@
-**Ukrainian D.J. Spins Rare Music in N.Y.C.**\
-`Daria Kolomiec, a D.J. from Kiev, is playing Ukrainian music in New York City clubs this summer.`\
+**Ukrainian D.J. Spins Rare Music in N.Y.C. **\
+`Daria Kolomiec, a D.J. from Kyiv, is playing Ukrainian music in New York City clubs this summer. `\
 https://nytimes.com/interactive/2022/07/19/nyregion/Support-Ukraine-movement-nyc.html?searchResultPosition=1
 
 **Europe’s Heat Wave Shatters British Records and Drives Wildfires**\
