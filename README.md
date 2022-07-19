@@ -1,6 +1,6 @@
 **Secret Service Says Some Missing Jan. 6 Texts Are Unlikely to Be Recovered**\
 `The House committee investigating the attack on the Capitol had subpoenaed text messages from the agents’ phones and other materials.`\
-https://nytimes.com/2022/07/19/us/politics/secret-service-says-some-missing-jan-6-texts-are-unlikely-to-be-recovered.html?searchResultPosition=1
+https://nytimes.com/2022/07/19/us/politics/secret-service-texts-jan-6.html?searchResultPosition=1
 
 **On Sweltering New York Day, Rockaway Beach Closes Over Shark Sightings**\
 `As temperatures in the city climbed into the 90s this week, Rockaway Beach in Queens closed for swimming because of shark sightings.`\
