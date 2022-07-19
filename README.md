@@ -1,6 +1,6 @@
 **‘Porn of the Self’: Novels of Female Angst**\
 `Cocktails, an addiction to erotica, workplace harassment and more.`\
-https://nytimes.com/2022/07/19/books/review/porn-of-the-self-novels-of-female-angst.html?searchResultPosition=1
+https://nytimes.com/2022/07/19/books/review/porn-of-the-self-review.html?searchResultPosition=1
 
 **From Adam Pendleton, Pancakes That Taste Like Perfection**\
 `When it comes to cooking, the artist brings an attention to detail he normally saves for his studio practice.`\
