@@ -10,7 +10,7 @@ https://nytimes.com/2022/07/19/nyregion/nyc-rockaway-beach-shark-sightings.html?
 `Top F.B.I. and National Security Agency officials said that Iran and China also remained potent threats, mounting their own campaigns to undermine American democracy.`\
 https://nytimes.com/2022/07/19/us/politics/fbi-nsa-russia-midterm-elections.html?searchResultPosition=3
 
-**House Passes Same-Sex Marriage Bill Amid Fears of Court Reversal**\
+**House Passes Same-Sex Marriage Bill Amid Concern About Court Reversal**\
 `The legislation would recognize same-sex marriages at the federal level and repeal a defunct law that defined marriage as between a man and woman. It faces an uphill battle in the Senate.`\
 https://nytimes.com/2022/07/19/us/politics/house-gay-marriage-bill.html?searchResultPosition=4
 
