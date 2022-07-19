@@ -11,7 +11,7 @@ https://nytimes.com/2022/07/19/science/lumpfish-glow-ultraviolet.html?searchResu
 https://nytimes.com/2022/07/19/arts/television/stephen-colbert-arrests-capitol.html?searchResultPosition=3
 
 **Trevor Noah Mocks Joe Biden for That Fist Bump**\
-`Noah called the president’s choice how to greet Prince Mohammed bin Salman of Saudi Arabia “the whitest decision of all time.”`\
+`Noah called the president’s choice how to greet Crown Prince Mohammed bin Salman of Saudi Arabia “the whitest decision of all time.”`\
 https://nytimes.com/2022/07/19/arts/television/trevor-noah-joe-biden-fist-bump.html?searchResultPosition=4
 
 **Bolsonaro Gathers Foreign Diplomats to Cast Doubt on Brazil’s Elections**\
