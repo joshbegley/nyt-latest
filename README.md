@@ -1,5 +1,5 @@
-**Apple Agrees to $50 Million Settlement Over MacBook Keyboard Complaints**\
-`A class-action lawsuit represented customers who sought repairs for the so-called butterfly keyboard, released in certain laptops from 2015 to 2019. Many were frustrated by typing errors.`\
+**Apple Agrees to $50 Million Settlement Over Butterfly Keyboard Complaints**\
+`A class-action lawsuit represented customers who sought repairs for the troubled MacBook keyboard, released in certain laptops from 2015 to 2019. Many were frustrated by typing errors.`\
 https://nytimes.com/2022/07/20/technology/apple-macbook-butterfly-key-settlement.html?searchResultPosition=1
 
 **Biden Announces Plans to Deal With Climate ‘Emergency’**\
