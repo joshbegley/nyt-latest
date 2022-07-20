@@ -15,7 +15,7 @@ https://nytimes.com/2022/07/20/movies/persuasion-netflix-dakota-johnson.html?sea
 https://nytimes.com/2022/07/20/business/mexico-energy-usmca.html?searchResultPosition=4
 
 **Broomsticks Stay, but Not the Name: Quidditch Becomes ‘Quadball’**\
-`Citing copyright issues and objections to the author J.K. Rowling’s views on transgender issues, the sport’s leading groups officially distanced themselves from their “Harry Potter” roots.`\
+`Citing trademark concerns and objections to the author J.K. Rowling’s views on transgender issues, the sport’s leading groups officially distanced themselves from their “Harry Potter” roots.`\
 https://nytimes.com/2022/07/20/sports/quidditch-quadball-name-jk-rowling.html?searchResultPosition=5
 
 **Henrik Stenson Stripped of Ryder Cup Captaincy as LIV Golf Rift Widens**\
