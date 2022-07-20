@@ -23,7 +23,7 @@ https://nytimes.com/2022/07/20/business/uk-inflation.html?searchResultPosition=5
 https://nytimes.com/2022/07/20/podcasts/the-daily/abortion-roe-miscarriage-treatment.html?searchResultPosition=6
 
 **Draghi Says He’ll Stay as Italy’s Prime Minister, if Parties Unite**\
-`Days after he tendered his resignation, the Italian leader offered a way out of political crisis. Now it depended on the parties to accept or reject it.`\
+`Days after he tendered his resignation, the Italian leader offered a way out of political crisis. Now it depends on the parties to accept or reject it.`\
 https://nytimes.com/2022/07/20/world/europe/draghi-italy-prime-minister.html?searchResultPosition=7
 
 **Italy Is Haunted by the Pain of Past Economic Crises**\
