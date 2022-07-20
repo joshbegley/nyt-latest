@@ -1,40 +1,40 @@
-**Ally of Ousted Sri Lanka President Is Chosen to Replace Him**\
-`Despite clamor for change amid the country’s economic collapse, Ranil Wickremesinghe, who is tied to the exiled former president, was elected by lawmakers to replace him.`\
-https://nytimes.com/2022/07/20/world/asia/sri-lanka-presidential-election.html?searchResultPosition=1
+**It’s Time to Slow Down and Appreciate Nature’s Tiny Marvels**\
+`Grab your iPhone: Andrew Brand wants to show you a side of your garden that you’ve never seen before (and how to photograph it).`\
+https://nytimes.com/2022/07/20/realestate/photos-garden-nature.html?searchResultPosition=1
 
-**War and Warming Upend Global Energy Supplies and Amplify Suffering**\
-`First, Russia upended the world energy market, then searing temperatures drove up demand for energy, forcing some of the world’s largest economies to scramble to secure power for their citizens.`\
-https://nytimes.com/2022/07/20/climate/global-energy-crisis-climate-war.html?searchResultPosition=2
+**Take a Closer Look at Your Garden**\
+`Grab your iPhone: Andrew Brand wants to show you a side of your garden that you’ve never seen before (and how to photograph it).`\
+https://nytimes.com/slideshow/2022/07/20/realestate/take-a-closer-look-at-your-garden.html?searchResultPosition=2
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/07/20/crosswords/spelling-bee-forum.html?searchResultPosition=3
+**The Antihero’s Last Gasp**\
+`Since the beginnings of Batman, pop culture has embraced the figure who lives on the boundary between law and lawlessness. With truth and justice now seemingly up for grabs, do those stories still make sense?`\
+https://nytimes.com/2022/07/20/arts/television/antiheroes-the-boys-batman.html?searchResultPosition=3
 
-**Sea Turtles Found Stabbed in Japan, but Charges Are Unlikely**\
-`Despite being endangered, green sea turtles are not protected by the country’s conservation laws. They often get tangled in nets, to the annoyance of fishermen.`\
-https://nytimes.com/2022/07/20/world/asia/japan-sea-turtles-stabbed.html?searchResultPosition=4
+**As Buffalo Supermarket Reopens, Memories of Massacre Haunt Workers**\
+`Two months after 10 were killed at Tops Friendly Market, employees and Masten Park residents confront the pain of returning and remembering.`\
+https://nytimes.com/2022/07/20/nyregion/buffalo-supermarket-tops-reopens.html?searchResultPosition=4
 
-**‘That’s My Son’: Jake Wightman Runs Race of His Life, With His Dad on the Mic**\
-`Jake Wightman of Britain won the men’s 1,500, upsetting the Olympic gold medalist Jakob Ingebrigtsen and the defending world champion Timothy Cheruiyot.`\
-https://nytimes.com/2022/07/18/sports/jake-wightman-jakob-ingebrigtsen-1500-m.html?searchResultPosition=5
+**In 5 National Parks, Hidden Gems and Roads Less Traveled**\
+`As park visitation rises, serenity in nature can be elusive. But even the most popular U.S. national parks have overlooked treasures and entrances that aren’t clogged with traffic.`\
+https://nytimes.com/2022/07/20/travel/national-parks-hidden-gems.html?searchResultPosition=5
 
-**Stephen Colbert Skewers Steve Bannon**\
-`“Finally, Bannon can tell the former president’s side of the story,” Colbert said on Tuesday.`\
-https://nytimes.com/2022/07/20/arts/television/stephen-colbert-steve-bannon-hot-weather.html?searchResultPosition=6
+**Loans Could Burn Start-Up Workers in Downturn**\
+`Tech workers took out loans based on the value of their start-up stock in recent years. That may come back to haunt them.`\
+https://nytimes.com/2022/07/20/technology/loans-startup-employees.html?searchResultPosition=6
 
-**Britain Is Melting**\
-`The country is fundamentally unprepared to deal with the heat.`\
-https://nytimes.com/2022/07/20/opinion/britain-heatwave-conservatives.html?searchResultPosition=7
+**Glamour, Lust and Murder in the Hallowed Halls of Oxford**\
+`In Ruth Ware’s “It Girl,” a woman whose college roommate was murdered decides to reinvestigate the case.`\
+https://nytimes.com/2022/07/20/books/review/new-thrillers-ruth-ware-it-girl.html?searchResultPosition=7
 
-**Shinzo Abe Failed to Rearm Japan. Let’s Keep It That Way.**\
-`Abe’s demise offers Japan a chance to turn away from his military obssession and  repair relations with neighbors angered by his nationalist agenda. `\
-https://nytimes.com/2022/07/20/opinion/japan-abe-military.html?searchResultPosition=8
+**Dreaming of an All-Star Game as a World Series Preview**\
+`It was a homecoming at Dodger Stadium for Giancarlo Stanton. The Yankees slugger, and Los Angeles native, hopes his team can return to Chavez Ravine in October.`\
+https://nytimes.com/2022/07/20/sports/baseball/stanton-all-star-yankees-dodgers.html?searchResultPosition=8
 
-**Alison dos Santos upset Karsten Warholm in the 400-meter hurdles.**\
-`Warholm, the world-record holder, appeared to be in control much of the race. But it was Dos Santos who was able to find another gear in the final straight away.`\
-https://nytimes.com/2022/07/18/sports/alison-dos-santos-karsten-warholm-rai-benjamin.html?searchResultPosition=9
+**Pence Campaigns for House Republicans, Papering Over Party Rift**\
+`Mike Pence has quietly helped Republican candidates despite their loyalty to Donald J. Trump and support for his election lies, which placed Mr. Pence’s life at risk.`\
+https://nytimes.com/2022/07/20/us/politics/pence-trump-midterm-election.html?searchResultPosition=9
 
-**Heat Wave: Why Home Offices Add to Con Ed’s Stress**\
-`As temperatures reach the mid-90s, New York’s electrical system will face an additional burden because of people working from home.`\
-https://nytimes.com/2022/07/20/nyregion/heat-wave-con-edison-home-offices.html?searchResultPosition=10
+**Sorry, Summer**\
+`We all know what happened with summer 2020. Then 2021 was dampened by Delta. This year, any anticipated return to revelry has been hampered by … *waves hands at everything.* Is there hope for enjoying the once fun season?`\
+https://nytimes.com/2022/07/20/style/summer-pandemic-weather.html?searchResultPosition=10
 
