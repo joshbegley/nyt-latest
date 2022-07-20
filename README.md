@@ -30,7 +30,7 @@ https://nytimes.com/2022/07/20/opinion/britain-heatwave-conservatives.html?searc
 `Abe’s demise offers Japan a chance to turn away from his military obssession and  repair relations with neighbors angered by his nationalist agenda. `\
 https://nytimes.com/2022/07/20/opinion/japan-abe-military.html?searchResultPosition=8
 
-**Alison dos Santos upset Karsten Warholm in the 400-meter hurdles**\
+**Alison dos Santos upset Karsten Warholm in the 400-meter hurdles.**\
 `Warholm, the world-record holder, appeared to be in control much of the race. But it was Dos Santos who was able to find another gear in the final straight away.`\
 https://nytimes.com/2022/07/18/sports/alison-dos-santos-karsten-warholm-rai-benjamin.html?searchResultPosition=9
 
