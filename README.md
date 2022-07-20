@@ -27,7 +27,7 @@ https://nytimes.com/2022/07/20/world/europe/uk-prime-minister-sunak.html?searchR
 https://nytimes.com/2022/07/20/learning/lesson-plans/over-150-lesson-plans-based-on-new-york-times-articles.html?searchResultPosition=7
 
 **Ukraine’s first lady addresses Congress.**\
-`By Dan Bilefsky, Stephanie Lai and Jim Tankersley`\
+`The address came one day after Olena Zelenska met with Jill Biden at the White House.`\
 https://nytimes.com/2022/07/20/world/europe/ukraine-first-lady-congress.html?searchResultPosition=8
 
 **These Fins Were Made for Walking … and Then Swimming**\
