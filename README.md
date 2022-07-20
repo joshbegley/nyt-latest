@@ -1,4 +1,4 @@
-**Driver Hits Family in Montana and Opens Fire, Killing 2**\
+**Driver Hits Family in Montana and Opens Fire, Killing Father and Toddler**\
 `David Siau and his 18-month-old daughter, McKenzie, were killed when Derick Amos Madden rammed his vehicle into the family in East Glacier Park, Mont., and shot at them, the authorities said.`\
 https://nytimes.com/2022/07/20/us/montana-shooting-attack.html?searchResultPosition=1
 
