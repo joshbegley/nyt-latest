@@ -1,40 +1,40 @@
+**Hochul says she doesn’t think N.Y. students will have to mask but the public transit mandate is staying put.**\
+`As coronavirus hospitalizations and deaths in New York tick up as a result of the rapidly spreading Omicron subvariant known as BA.5, Gov. Kathy Hochul held her first Covid briefing in months.`\
+https://nytimes.com/2022/07/20/nyregion/ny-masks-students-transit.html?searchResultPosition=1
+
+**Uvalde Superintendent Recommends Firing School Police Chief**\
+`Chief Pete Arredondo has been criticized for a delay of more than an hour in entering the classroom where a gunman had fatally wounded 19 students and two teachers.`\
+https://nytimes.com/2022/07/20/us/uvalde-chief-arredondo.html?searchResultPosition=2
+
 **F.D.A. Seeks Outside Review of Troubled Food and Tobacco Units**\
 `The agency’s commissioner asked an external foundation to examine its operations in the wake of the baby formula and vaping crises.`\
-https://nytimes.com/2022/07/20/health/fda-food-safety-tobacco.html?searchResultPosition=1
+https://nytimes.com/2022/07/20/health/fda-food-safety-tobacco.html?searchResultPosition=3
 
 **Democratic Group Sues the Federal Election Commission Over Trump’s 2024 Hinting**\
 `American Bridge claims in a lawsuit that the F.E.C.’s inaction has given Donald J. Trump an unlawful advantage over any Democratic opponent in 2024.`\
-https://nytimes.com/2022/07/20/us/politics/american-bridge-trump-federal-election-commission.html?searchResultPosition=2
+https://nytimes.com/2022/07/20/us/politics/american-bridge-trump-federal-election-commission.html?searchResultPosition=4
 
 **After Roe, Sex Ed Is Even More Vital**\
 `Reducing unwanted pregnancies starts with teaching children and teenagers.`\
-https://nytimes.com/2022/07/20/opinion/after-roe-sex-ed-is-even-more-vital.html?searchResultPosition=3
+https://nytimes.com/2022/07/20/opinion/after-roe-sex-ed-is-even-more-vital.html?searchResultPosition=5
 
 **Inflation Is Bad, But Unemployment Is Far Worse**\
 `The case for moving cautiously with interest rates.`\
-https://nytimes.com/2022/07/20/opinion/inflation-unemployment-interest-rates.html?searchResultPosition=4
+https://nytimes.com/2022/07/20/opinion/inflation-unemployment-interest-rates.html?searchResultPosition=6
 
 **The Senate advances a bill to bolster U.S. competitiveness with China.**\
 `A bipartisan group of senators supported a $52 billion package of subsidies for semiconductor makers, lending momentum to an effort to enact a major industrial policy bill.`\
-https://nytimes.com/2022/07/20/business/us-china-semiconductor-compete.html?searchResultPosition=5
+https://nytimes.com/2022/07/20/business/us-china-semiconductor-compete.html?searchResultPosition=7
 
 **What does The New York Times own?**\
 `Explaining who we are.`\
-https://nytimes.com/article/what-does-the-new-york-times-own.html?searchResultPosition=6
+https://nytimes.com/article/what-does-the-new-york-times-own.html?searchResultPosition=8
 
 **Woman Posing as Nurse Tried to Steal Baby From Hospital, Authorities Say**\
 `Jesenea Miron is accused of entering a hospital in Moreno Valley, Calif., “posing as a newly hired nurse” and trying to take a newborn from a patient’s room.`\
-https://nytimes.com/2022/07/20/us/california-hospital-baby-stealing-attempt.html?searchResultPosition=7
+https://nytimes.com/2022/07/20/us/california-hospital-baby-stealing-attempt.html?searchResultPosition=9
 
 **Bipartisan Senate Group Strikes Deal to Rewrite Electoral Count Act**\
 `The changes outlined by the senators are intended to prevent a repeat of the effort on Jan. 6, 2021, to overturn the presidential election in Congress.`\
-https://nytimes.com/2022/07/20/us/politics/electoral-count-act-senate.html?searchResultPosition=8
-
-**Holding Out for a Hero? Ballet Theater Has It Covered.**\
-`Daniel Camargo’s breakout season at American Ballet Theater changed his rank from guest artist to principal. (Now, all he needs is an apartment.)`\
-https://nytimes.com/2022/07/20/arts/dance/daniel-camargo-american-ballet-theater.html?searchResultPosition=9
-
-**R&B That Sweats, Emotionally and Physically**\
-`New releases from Brent Faiyaz and Muni Long show how the genre has evolved in recent years.`\
-https://nytimes.com/2022/07/20/arts/music/brent-faiyaz-muni-long.html?searchResultPosition=10
+https://nytimes.com/2022/07/20/us/politics/electoral-count-act-senate.html?searchResultPosition=10
 
