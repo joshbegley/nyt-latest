@@ -14,8 +14,8 @@ https://nytimes.com/2022/07/20/crosswords/spelling-bee-forum.html?searchResultPo
 `Despite being endangered, green sea turtles are not protected by the country’s conservation laws. They often get tangled in nets, to the annoyance of fishermen.`\
 https://nytimes.com/2022/07/20/world/asia/japan-sea-turtles-stabbed.html?searchResultPosition=4
 
-**‘That’s my son.’ Jake Wightman runs the race of his life, with his father on the stadium mic.**\
-`Jake Wightman of Britain won the men’s 1,500 meters, upsetting Olympic gold medalist Jakob Ingebrigtsen and defending world champion Timothy Cheruiyot.`\
+**‘That’s My Son’: Jake Wightman Runs the Race of His Life, With His Dad on the Mic**\
+`Jake Wightman of Britain won the men’s 1,500, upsetting the Olympic gold medalist Jakob Ingebrigtsen and the defending world champion Timothy Cheruiyot.`\
 https://nytimes.com/2022/07/18/sports/jake-wightman-jakob-ingebrigtsen-1500-m.html?searchResultPosition=5
 
 **Stephen Colbert Skewers Steve Bannon**\
