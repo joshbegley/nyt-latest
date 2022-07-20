@@ -32,7 +32,7 @@ https://nytimes.com/2022/07/20/arts/design/duverney-drawing-gallery-art-review.h
 
 **Pearl Jam says wildfire smoke damaged the vocal cords of its lead singer, Eddie Vedder, during a show in Europe.**\
 `The band canceled a show in Vienna after Mr. Vedder sought treatment following a musical festival in Paris.`\
-https://nytimes.com/2022/07/20/us/eddie-vedder-throat-damage-smoke-fires.html?searchResultPosition=9
+https://nytimes.com/2022/07/20/world/europe/eddie-vedder-throat-damage-smoke-fires.html?searchResultPosition=9
 
 **Your Thursday Briefing: Russia Expands Its Territorial Ambitions**\
 `Also, Sri Lanka elected a new leader and Britain narrowed its prime minister race to two candidates.`\
