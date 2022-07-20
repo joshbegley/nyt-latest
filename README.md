@@ -1,6 +1,6 @@
 **14-Year-Old Dies After Being Shot in Harlem, Police Say**\
 `The boy was one of two who were shot on the street Tuesday afternoon by a gunman who was apparently targeting them, officials said.`\
-https://nytimes.com/2022/07/20/nyregion/een-boys-shot-east-harlem.html?searchResultPosition=1
+https://nytimes.com/2022/07/20/nyregion/teen-boys-shot-east-harlem.html?searchResultPosition=1
 
 **$1.8 Million Homes in New York, Florida and Virginia**\
 `An 1838 cottage in East Hampton, a three-bedroom bungalow in Miami Shores and a Spanish Colonial Revival house in Richmond.`\
