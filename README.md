@@ -14,8 +14,8 @@ https://nytimes.com/2022/07/20/us/politics/democrats-biden-manchin-climate.html?
 `Donald J. Trump called Robin Vos, the speaker of the Wisconsin Assembly, on July 9 and pushed him to support a resolution to retract the state’s 10 electoral votes for President Biden.`\
 https://nytimes.com/2022/07/20/us/politics/trump-wisconsin-election-call.html?searchResultPosition=4
 
-**One in 5 U.S. Adults Accepts Political Violence, a National Survey Finds**\
-`Nearly 12 percent of respondents also thought it was at least “sometimes justified” to use violence if it meant returning Donald J. Trump to the presidency.`\
+**Survey Looks at Acceptance of Political Violence in U.S.**\
+`Nearly 12 percent of respondents said it was at least “sometimes justified” to use violence if it meant returning Donald J. Trump to the presidency.`\
 https://nytimes.com/2022/07/20/us/politics/political-violence-survey-united-states.html?searchResultPosition=5
 
 **Your Wednesday Evening Briefing**\
