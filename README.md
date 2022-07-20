@@ -3,7 +3,7 @@
 https://nytimes.com/article/what-does-the-new-york-times-own.html?searchResultPosition=1
 
 **Woman Posing as Nurse Tried to Steal Baby From Hospital, Authorities Say**\
-`Jesenea Miron is accused of entering a hospital in Moreno Valley, Calif.,“posing as a newly hired nurse” and trying to take a newborn from a patient’s room.`\
+`Jesenea Miron is accused of entering a hospital in Moreno Valley, Calif., “posing as a newly hired nurse” and trying to take a newborn from a patient’s room.`\
 https://nytimes.com/2022/07/20/us/california-hospital-baby-stealing-attempt.html?searchResultPosition=2
 
 **Bipartisan Senate Group Strikes Deal to Rewrite Electoral Count Act**\
