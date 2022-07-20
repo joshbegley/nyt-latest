@@ -18,8 +18,8 @@ https://nytimes.com/2022/07/20/business/uk-inflation.html?searchResultPosition=4
 `The reversal of Roe v. Wade has caused some doctors to worry that recommending certain procedures might have legal repercussions.`\
 https://nytimes.com/2022/07/20/podcasts/the-daily/abortion-roe-miscarriage-treatment.html?searchResultPosition=5
 
-**Draghi Demands Unity to Stay On as Italy’s Prime Minister**\
-`Days after Mario Draghi tendered his resignation, the Italian leader offered a way out of political crisis. Now it depends on the parties to accept or reject it.`\
+**Draghi Says He’ll Stay as Italy’s Prime Minister, if Parties Unite**\
+`Days after he tendered his resignation, the Italian leader offered a way out of political crisis. Now it depended on the parties to accept or reject it.`\
 https://nytimes.com/2022/07/20/world/europe/draghi-italy-prime-minister.html?searchResultPosition=6
 
 **Italy Is Haunted by the Pain of Past Economic Crises**\
