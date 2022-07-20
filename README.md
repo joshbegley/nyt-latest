@@ -14,7 +14,7 @@ https://nytimes.com/2022/07/19/sports/basketball/miles-bridges-charlotte-hornets
 `Josh Kindler’s Wednesday puzzle offers a refreshing break in the middle of our week.`\
 https://nytimes.com/2022/07/19/crosswords/daily-puzzle-2022-07-20.html?searchResultPosition=4
 
-**Dan Cox, a Trump Loyalist, Wins Maryland G.O.P. Primary for Governor**\
+**Dan Cox, a Trump Loyalist, Wins the Maryland G.O.P. Primary for Governor**\
 `Mr. Cox, who wrote on Twitter during the Capitol riot that Mike Pence was a “traitor,” defeated Kelly Schulz, who had been backed by the state’s popular governor, Larry Hogan. The Democratic primary was too close to call.`\
 https://nytimes.com/2022/07/19/us/politics/maryland-governors-race-results.html?searchResultPosition=5
 
