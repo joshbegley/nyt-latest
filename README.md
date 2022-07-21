@@ -1,6 +1,6 @@
 **The Man of a Thousand Faces**\
 `Anne Marie Crinnion and Eric Bornstein drop in on us.`\
-https://nytimes.com/2022/07/20/crosswords/daily-puzzle-07-21.html?searchResultPosition=1
+https://nytimes.com/2022/07/20/crosswords/daily-puzzle-2022-07-21.html?searchResultPosition=1
 
 **At Ivana Trump’s Funeral, a Gold-Hued Coffin and the Secret Service**\
 `“People adored Ivana.”`\
