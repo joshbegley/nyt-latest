@@ -26,15 +26,15 @@ https://nytimes.com/2022/07/21/us/georgia-prosecutor-trump-fani-willis.html?sear
 `For years, Vladimir Putin worked to rebuild ties to Russia’s Jews, but the new move against a Jewish nonprofit has raised questions.`\
 https://nytimes.com/2022/07/21/world/europe/russia-jewish-agency-ban.html?searchResultPosition=7
 
+**Trump has preferred golfing to watching the hearings. But he’s at least getting the highlights.**\
+`The former president has caught clips of daytime hearings on cable news or been filled in on specific pieces of testimony by other people. Thursday’s hearing is in prime time.`\
+https://nytimes.com/2022/07/21/us/trump-watching-jan-6-hearings.html?searchResultPosition=8
+
 **Train Fire Outside Boston Prompts Evacuation, and a Leap Into the Mystic River**\
 `The authorities said that no one was injured in the fire, which they said started after a metal strip came loose from the train and made contact with the third rail.`\
-https://nytimes.com/2022/07/21/us/boston-subway-fire-evacuation.html?searchResultPosition=8
+https://nytimes.com/2022/07/21/us/boston-subway-fire-evacuation.html?searchResultPosition=9
 
 **Uwe Seeler, One of Germany’s Greatest Soccer Players, Dies at 85**\
 `He led West Germany to the 1966 World Cup, but his teams never won a title. Pele included him on his list of the world’s premier living players.`\
-https://nytimes.com/2022/07/21/sports/soccer/uwe-seeler-dead.html?searchResultPosition=9
-
-**Search for Hoffa Under Jersey City Bridge Came Up Empty, F.B.I. Says**\
-`The 1975 disappearance of the Teamsters leader has long been the subject of rumors and intrigue.`\
-https://nytimes.com/2022/07/21/nyregion/jimmy-hoffa-jersey-city-fbi.html?searchResultPosition=10
+https://nytimes.com/2022/07/21/sports/soccer/uwe-seeler-dead.html?searchResultPosition=10
 
