@@ -10,8 +10,8 @@ https://nytimes.com/interactive/2022/07/21/climate/noaa-monthly-call-june.html?s
 `I’m a senior editor in The Times’s Culture department. Here are five things I've been watching, reading and listening to.`\
 https://nytimes.com/interactive/2022/07/21/arts/editors-recommendations-thomas.html?searchResultPosition=3
 
-**Unvaccinated Man Is First to Contract Polio in United States in Decades**\
-`The man, who lives in Rockland County, N.Y., was infected by someone who received the oral polio vaccine, which is no longer used in the United States, officials said.`\
+**Unvaccinated Man Contracts Polio in New York State**\
+`The man, who lives in Rockland County, was infected by someone who received the oral polio vaccine, which is no longer used in the United States, officials said.`\
 https://nytimes.com/2022/07/21/nyregion/polio-case-new-york.html?searchResultPosition=4
 
 **Vice President Harris tests negative, and her schedule will continue as planned.**\
