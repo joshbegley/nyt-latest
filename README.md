@@ -34,7 +34,7 @@ https://nytimes.com/2022/07/21/sports/magnus-carlsen-chess-world-title.html?sear
 `“The House has officially passed a bill legalizing gay and interracial marriage, which is a great victory for 1995,” Noah joked on Wednesday.`\
 https://nytimes.com/2022/07/21/arts/television/trevor-noah-gay-marriage.html?searchResultPosition=9
 
-**Quotation of the Day: Seeking ‘Axis of Good’ Against U.S., Russia Taps Allies of Convenience**\
-`Quotation of the Day for Thursday, July 21, 2022.`\
-https://nytimes.com/2022/07/21/todayspaper/quotation-of-the-day-seeking-axis-of-good-against-us-russia-taps-allies-of-convenience.html?searchResultPosition=10
+**Russia resumes gas flow through key pipeline to Germany.**\
+`By Melissa Eddy`\
+https://nytimes.com/2022/07/21/world/europe/russia-resumes-gas-flow-through-key-pipeline-to-germany.html?searchResultPosition=10
 
