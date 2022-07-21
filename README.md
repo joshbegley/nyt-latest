@@ -8,7 +8,7 @@ https://nytimes.com/2022/07/21/us/police-louisiana-heat-death.html?searchResultP
 
 **Biden has begun taking Paxlovid, an antiviral medication shown to prevent serious Covid cases.**\
 `Researchers are still working to answer key questions about the drug, including how effective it is in vaccinated people and whether cases of “rebounding” in people who receive it are common.`\
-https://nytimes.com/2022/07/21/world/biden-paxlovid-antiviral.html?searchResultPosition=3
+https://nytimes.com/2022/07/21/us/politics/biden-paxlovid-antiviral.html?searchResultPosition=3
 
 **‘Best Foot Forward’ Is a Story About, and By, People With Disabilities**\
 `The Apple TV+ series, based loosely on a memoir by Josh Sundquist, prioritized disability representation on both sides of the camera.`\
