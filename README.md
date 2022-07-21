@@ -1,40 +1,40 @@
+**Do Californians Want Mask Mandates to Come Back?**\
+`Readers tell us.`\
+https://nytimes.com/2022/07/21/us/california-mask-mandates.html?searchResultPosition=1
+
+**Homes for Sale in New York and Connecticut**\
+`This week’s available properties are a six-bedroom house in Irvington, N.Y., and a four-bedroom house in Danbury, Conn.`\
+https://nytimes.com/2022/07/21/realestate/housing-market-near-nyc.html?searchResultPosition=2
+
+**Homes for Sale in New York and Connecticut**\
+`This week’s available properties are a six-bedroom house in Irvington, N.Y., and a four-bedroom house in Danbury, Conn.`\
+https://nytimes.com/slideshow/2022/07/21/realestate/homes-for-sale-in-new-york-and-connecticut.html?searchResultPosition=3
+
+**Homes for Sale in New York City**\
+`This week’s available listings are in the Financial District, Gramercy and Mott Haven.`\
+https://nytimes.com/2022/07/21/realestate/housing-market-nyc.html?searchResultPosition=4
+
+**Homes for Sale in New York City**\
+`This week’s available listings are in the Financial District, Gramercy and Mott Haven.`\
+https://nytimes.com/slideshow/2022/07/21/realestate/homes-for-sale-in-new-york-city.html?searchResultPosition=5
+
+**Smoke Rises: A Jazz Room Returns on the Upper West Side**\
+`This storefront club that’s been mostly shuttered since spring 2020 has long been home to small-group jazz steeped in tradition. Now, it reopens, with some renovations.`\
+https://nytimes.com/2022/07/21/arts/music/smoke-jazz-club.html?searchResultPosition=6
+
+**Meta tweaks Facebook app to act more like TikTok.**\
+`An update will highlight a new Home tab that will serve content from people outside a user’s Facebook connections as well as from friends and family.`\
+https://nytimes.com/2022/07/21/technology/facebook-app-changes-home.html?searchResultPosition=7
+
+**A Bar-Hopping Tour of New York’s Downtown Natural Wine Spots**\
+`Plus: a luxury home rental in Provence, reef-safe sunscreens and more recommendations from T Magazine.`\
+https://nytimes.com/2022/07/21/t-magazine/natural-wine-bars-reef-safe-sunscreen.html?searchResultPosition=8
+
 **Chess Replay: You Versus Karpov**\
 `Take on Anatoly Karpov in a recreation of a 28th World Championship game in Baguio City, 1978. Solve for the best series of moves.`\
-https://nytimes.com/2022/07/21/crosswords/chess/chess-replay-you-versus-karpov.html?searchResultPosition=1
+https://nytimes.com/2022/07/21/crosswords/chess/chess-replay-you-versus-karpov.html?searchResultPosition=9
 
-**Ford increases its battery supply to meet its electric-vehicle goals.**\
-`The automaker said it had reached deals to acquire more battery packs in its push to produce 600,000 electric vehicles a year by the end of 2023.`\
-https://nytimes.com/2022/07/21/business/ford-electric-vehicle-battery-china.html?searchResultPosition=2
-
-**Decision Day for the E.C.B.**\
-`And a SoftBank-backed start up that wants to save your 401(k).`\
-https://nytimes.com/2022/07/21/business/dealbook/ecb-european-central-bank-interest-rates-401k.html?searchResultPosition=3
-
-**American Airlines has its best quarter of revenue ever, but profit is down from 2019.**\
-`Like other carriers, American benefited from a travel rebound, but higher costs took a toll on its bottom line.`\
-https://nytimes.com/2022/07/21/business/american-airlines-earnings.html?searchResultPosition=4
-
-**Belgium Ratifies Prisoner-Exchange Treaty With Iran**\
-`Critics say that Belgium is giving into Iranian blackmail in order to secure the release of one of its nationals in Iran and that the treaty will put more Belgians in the country in danger.`\
-https://nytimes.com/2022/07/21/world/europe/belgium-iran-prisoner-exchange-treaty.html?searchResultPosition=5
-
-**Leading Wildlife Monitor Puts Monarch Butterflies on Its Endangered List**\
-`The International Union for Conservation of Nature has placed the insects on its Red List. But scientists say the public can give them a boost.`\
-https://nytimes.com/2022/07/21/climate/monarch-butterflies-endangered-iucn.html?searchResultPosition=6
-
-**Kennedy Center to Honor Gladys Knight, George Clooney, U2 and Others**\
-`They will be recognized at the 45th ceremony in December along with the composer Tania León and the singer-songwriter Amy Grant.`\
-https://nytimes.com/2022/07/21/arts/kennedy-center-honors-gladys-knight-george-clooney-u2.html?searchResultPosition=7
-
-**‘Anything’s Possible’ Review: Teenagers’ Romance Flowers**\
-`Self-preservation and allyship are also wrapped up in this sweet young adult romantic comedy, which is Billy Porter’s feature film directorial debut.`\
-https://nytimes.com/2022/07/21/movies/anythings-possible-review.html?searchResultPosition=8
-
-**‘The Reverend’ Review: A Beer With a Music Chaser**\
-`Get out of his way. With two decades of sharing worship and making music at a Brooklyn bar, the Rev. Vince Anderson appears to be unstoppable.`\
-https://nytimes.com/2022/07/21/movies/the-reverend-review.html?searchResultPosition=9
-
-**‘The Wheel’ Review: Songs of Love and Hate**\
-`In this marriage drama, a young couple heads to the countryside to break out of a toxic cycle.`\
-https://nytimes.com/2022/07/21/movies/the-wheel-review.html?searchResultPosition=10
+**My Boyfriend’s Ex Moved Across the Street From Us. Again. Should We Move?**\
+`A reader wonders what to do about a partner’s ex-wife who lives too close for comfort.`\
+https://nytimes.com/2022/07/21/style/boyfriend-ex-wife.html?searchResultPosition=10
 
