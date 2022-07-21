@@ -1,6 +1,6 @@
 **Biden, 79, is experiencing fatigue, a runny nose and a dry cough after testing positive.**\
 `The president tested positive for the coronavirus on Thursday and is expected to isolate for at least five days until resuming normal activities.`\
-https://nytimes.com/2022/07/21/us/politics/biden-79-is-experiencing-fatigue-a-runny-nose-and-a-dry-cough-after-testing-positive.html?searchResultPosition=1
+https://nytimes.com/2022/07/21/us/politics/biden-covid-symptoms.html?searchResultPosition=1
 
 **Central Park’s Boathouse Restaurant to Shut Down**\
 `The Boathouse first saw life as a Victorian structure in the 1870s, and will see the end of its latest chapter come October. A new operator is in the works.`\
