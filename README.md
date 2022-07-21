@@ -8,7 +8,7 @@ https://nytimes.com/2022/07/21/nyregion/polio-case-new-york.html?searchResultPos
 
 **Vice President Harris tests negative, and her schedule will continue as planned.**\
 `Ms. Harris last saw President Biden two days before he tested positive for the coronavirus.`\
-https://nytimes.com/2022/07/21/world/americas/harris-biden-covid.html?searchResultPosition=3
+https://nytimes.com/2022/07/21/us/politics/harris-biden-covid.html?searchResultPosition=3
 
 **Werner Reich, Who Learned Magic in Auschwitz, Dies at 94**\
 `He was 16 when a fellow inmate, a magician, taught him a card trick in the barracks of the extermination camp. He called it a “miracle.”`\
