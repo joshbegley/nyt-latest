@@ -27,7 +27,7 @@ https://nytimes.com/2022/07/21/nyregion/werner-reich-dead.html?searchResultPosit
 https://nytimes.com/2022/07/21/us/politics/biden-white-house-covid-response.html?searchResultPosition=7
 
 **When ‘New Art’ Made New York the Culture Capital**\
-`Artists in the early 1960s drew from a heady mix: Mad Magazine and Marilyn; the civil rights movement and the death of a president; queer bodies and “Pieta.” It’s all at the Jewish Museum.`\
+`Artists in the early 1960s drew from a heady mix: Mad magazine and Marilyn; the civil rights movement and the death of a president; queer bodies and “Pieta.” It’s all at the Jewish Museum.`\
 https://nytimes.com/2022/07/21/arts/design/jewish-museum-pop-art.html?searchResultPosition=8
 
 **Overlooked No More: Lottie Brunn, the ‘Queen of Jugglers’**\
