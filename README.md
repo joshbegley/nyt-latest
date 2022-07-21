@@ -1,5 +1,5 @@
 **Protesters Rally Against Sri Lanka’s Newly Elected President**\
-`Protests continued in Colombo, Sri Lanka, after Parliament’s election of Ranil Wickremesinghe as president. Mr. Wickremesinghe replaced Gotabaya Rajapaksa, who was pushed out of office by protesters who blamed him for the country’s economic collapse.`\
+`Protests continued in Colombo, Sri Lanka, after Parliament’s election of Ranil Wickremesinghe as president. He replaced Gotabaya Rajapaksa, who was pushed out of office by protesters who blamed him for the country’s economic collapse.`\
 https://nytimes.com/video/world/asia/100000008453714/ranil-wickremesinghe-president-sri-lanka-protest.html?searchResultPosition=1
 
 **The Man of a Thousand Faces**\
