@@ -32,7 +32,7 @@ https://nytimes.com/2022/07/21/opinion/letters/doctors-abortion.html?searchResul
 
 **BBC Apologizes to Royal Nanny Swept Up in Diana Reporting Furor**\
 `Suggestions that a nanny for the children of Princess Diana and Prince Charles was involved with the prince were “wholly baseless,” the British broadcaster said as it agreed to pay her damages.`\
-https://nytimes.com/2022/07/21/world/europe/charles-diana-nanny-bbc.html?searchResultPosition=9
+https://nytimes.com/2022/07/21/world/europe/royal-nanny-bbc-princess-diana.html?searchResultPosition=9
 
 **Getting more Covid aid passed has stalled in Congress after lawmakers have fought about spending and how to pay for it.**\
 `It remains unclear whether lawmakers will reach agreement on another round of coronavirus aid, even as President Biden tests positive for the virus.`\
