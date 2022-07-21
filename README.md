@@ -23,7 +23,7 @@ https://nytimes.com/2022/07/21/us/politics/harris-biden-covid.html?searchResultP
 https://nytimes.com/2022/07/21/nyregion/werner-reich-dead.html?searchResultPosition=6
 
 **Before Biden tested positive, the White House strained to present a concerned but confident picture of the pandemic.**\
-`The Omicron subvariant known as BA.5, considered the most contagious form of the virus yet, prompted the White House last week to unveil what it styled as a new strategy to combat the pandemic, though it looked a lot like the old strategy.`\
+`The Omicron subvariant known as BA.5, considered the most contagious form yet, prompted the White House last week to unveil what it styled as a new pandemic strategy, though it looked a lot like the old strategy.`\
 https://nytimes.com/2022/07/21/us/politics/biden-white-house-covid-response.html?searchResultPosition=7
 
 **When ‘New Art’ Made New York the Culture Capital**\
