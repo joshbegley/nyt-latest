@@ -1,18 +1,18 @@
+**Supreme Court Refuses for Now to Restore Biden Plan on Immigration Enforcement**\
+`A federal judge in Texas has blocked guidelines setting priorities for Immigrations and Customs Enforcement agents, saying they were at odds with the immigrations laws.`\
+https://nytimes.com/2022/07/21/us/politics/supreme-court-biden-immigration.html?searchResultPosition=1
+
 **Judith Schiff, Who Roamed Yale’s Vast Archive, Dies at 84**\
 `An expert researcher, she helped put together a posthumous autobiography by Charles Lindbergh and ferreted out historical oddities.`\
-https://nytimes.com/2022/07/21/education/judith-schiff-dead.html?searchResultPosition=1
+https://nytimes.com/2022/07/21/education/judith-schiff-dead.html?searchResultPosition=2
 
 **How to Make Floral Arrangements That Last and Last**\
 `For the botanical artist Lutfi Janania, a lush plant isn’t always the right one.`\
-https://nytimes.com/2022/07/21/t-magazine/lutfi-janania-floral-arrangements.html?searchResultPosition=2
+https://nytimes.com/2022/07/21/t-magazine/lutfi-janania-floral-arrangements.html?searchResultPosition=3
 
 **Review: Newman and Woodward, Mr. and Mrs. Movie Star**\
 `Ethan Hawke’s HBO Max documentary “The Last Movie Stars” examines two great actors in their own, and many of their friends’, words.`\
-https://nytimes.com/2022/07/21/arts/television/review-paul-newman-and-joanne-woodward.html?searchResultPosition=3
-
-**Biden, 79, is experiencing fatigue, a runny nose and a dry cough after testing positive.**\
-`The president tested positive for the coronavirus on Thursday and is expected to isolate for at least five days until resuming normal activities.`\
-https://nytimes.com/2022/07/21/us/politics/biden-covid-symptoms.html?searchResultPosition=4
+https://nytimes.com/2022/07/21/arts/television/review-paul-newman-and-joanne-woodward.html?searchResultPosition=4
 
 **Central Park’s Boathouse Restaurant to Shut Down**\
 `The Boathouse first saw life as a Victorian structure in the 1870s, and will see the end of its latest chapter come October. A new operator is in the works.`\
