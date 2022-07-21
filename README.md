@@ -34,7 +34,7 @@ https://nytimes.com/2022/07/21/arts/design/kapwani-kiwanga-new-museum-police-sur
 `Gain confidence cooking this summer icon with these essential techniques.`\
 https://nytimes.com/2022/07/21/dining/eggplant-five-ways.html?searchResultPosition=9
 
-**Doctors’ Plea: Boycott Anti-Abortion States**\
+**A Plea From More Than 100 Medical Professionals: Boycott Anti-Abortion States**\
 `Doctors urge avoiding states that restrict abortion. Also: The bystander and the shooting; climate change; G.O.P. disinformation; crisis hotlines; overpopulation.`\
 https://nytimes.com/2022/07/21/opinion/letters/doctors-abortion.html?searchResultPosition=10
 
