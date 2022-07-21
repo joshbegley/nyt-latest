@@ -4,7 +4,7 @@ https://nytimes.com/2022/07/21/business/twitter-saudi-spying-trial.html?searchRe
 
 **Snap reports user growth but a wider loss in the second quarter.**\
 `The company declined to forecast its future financial performance, citing “uncertainties related to the operating environment.”`\
-https://nytimes.com/2022/07/21/business/snap-reports-user-growth-but-a-wider-loss-in-the-second-quarter.html?searchResultPosition=2
+https://nytimes.com/2022/07/21/business/snap-earnings.html?searchResultPosition=2
 
 **13 New Books We Recommend This Week**\
 `Reading picks from our staff critics and Book Review editors.`\
