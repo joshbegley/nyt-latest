@@ -15,7 +15,7 @@ https://nytimes.com/2022/07/21/sports/soccer/manchester-life-manchester-city.htm
 https://nytimes.com/2022/07/21/us/george-floyd-thomas-lane-sentenced.html?searchResultPosition=4
 
 **The E.C.B. has a new tool to keep bond markets in check. It doesn’t want to use it.**\
-`By Eshe Nelson`\
+`Rapidly rising borrowing costs for Italy in recent months intensified focus on so-called market fragmentation.`\
 https://nytimes.com/2022/07/21/business/ecb-bond-markets-tpi.html?searchResultPosition=5
 
 **How is shipping rising to the challenge of global decarbonization?**\
