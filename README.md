@@ -6,7 +6,7 @@ https://nytimes.com/2022/07/21/arts/television/trevor-noah-gay-marriage.html?sea
 `Quotation of the Day for Thursday, July 21, 2022.`\
 https://nytimes.com/2022/07/21/todayspaper/quotation-of-the-day-seeking-axis-of-good-against-us-russia-taps-allies-of-convenience.html?searchResultPosition=2
 
-**Europe waits to see if Russia restarts gas shipments through key pipeline.**\
+**Russia restarts gas shipments through key pipeline to Germany.**\
 `Gazprom is scheduled to send natural gas west on Nord Stream 1 on Thursday after 10 days of maintenance. The suspense is another reminder of the reliance of Germany, and much of Europe, on Russian energy.`\
 https://nytimes.com/2022/07/21/world/europe/europe-waits-to-see-if-russia-restarts-gas-shipments-through-key-pipeline.html?searchResultPosition=3
 
