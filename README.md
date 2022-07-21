@@ -1,4 +1,4 @@
-**Amazon and Rivian Say Their Delayed Electric Van Is on the Road**\
+**Amazon Wants 100,000 Electric Vans. Can Rivian Deliver?**\
 `Amazon has ordered 100,000 trucks to cut its carbon dioxide emissions, but Rivian will take years to deliver.`\
 https://nytimes.com/2022/07/21/business/rivian-amazon-delivery-vans.html?searchResultPosition=1
 
