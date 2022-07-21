@@ -11,7 +11,7 @@ https://nytimes.com/2022/07/21/business/american-airlines-earnings.html?searchRe
 https://nytimes.com/2022/07/21/world/europe/belgium-iran-prisoner-exchange-treaty.html?searchResultPosition=3
 
 **Leading Wildlife Monitor Puts Monarch Butterflies on Its Endangered List**\
-`The International Union for Conservation of Nature has placed the insects on its Red List. But scientists say the public can give the them a boost.`\
+`The International Union for Conservation of Nature has placed the insects on its Red List. But scientists say the public can give them a boost.`\
 https://nytimes.com/2022/07/21/climate/monarch-butterflies-endangered-iucn.html?searchResultPosition=4
 
 **Kennedy Center to Honor Gladys Knight, George Clooney, U2 and Others**\
