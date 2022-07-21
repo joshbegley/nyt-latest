@@ -1,4 +1,4 @@
-**Decision Day For the E.C.B.**\
+**Decision Day for the E.C.B.**\
 `And a SoftBank-backed start up that wants to save your 401(k).`\
 https://nytimes.com/2022/07/21/business/dealbook/ecb-european-central-bank-interest-rates-401k.html?searchResultPosition=1
 
