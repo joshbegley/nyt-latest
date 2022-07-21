@@ -8,7 +8,7 @@ https://nytimes.com/2022/07/21/nyregion/loeb-boathouse-close.html?searchResultPo
 
 **What Would a Climate Emergency Mean? Here Are 4 Key Points.**\
 `As 100 million Americans swelter under heat warnings, the president is considering whether to invoke special powers to address climate change.`\
-https://nytimes.com/2022/07/21/climate/biden-climate-emergency.html?searchResultPosition=3
+https://nytimes.com/2022/07/21/climate/climate-change-emergency-biden.html?searchResultPosition=3
 
 **President Biden Tests Positive for the Coronavirus**\
 `The White House press secretary said that Mr. Biden, 79, was experiencing mild symptoms but that he was isolating and continuing to work.`\
