@@ -23,7 +23,7 @@ https://nytimes.com/2022/07/21/sports/with-a-full-stadium-a-star-sprinter-is-rea
 https://nytimes.com/2022/07/21/crosswords/spelling-bee-forum.html?searchResultPosition=6
 
 **China Fines Didi $1.2 Billion as Tech Sector Pressures Persist**\
-`The fine will likely clear the way for Didi to re-list in Hong Kong, but a recovery for China’s internet sector remains elusive.`\
+`The fine will likely clear the way for Didi to list in Hong Kong, but a recovery for China’s internet sector remains elusive.`\
 https://nytimes.com/2022/07/21/business/china-fines-didi.html?searchResultPosition=7
 
 **Magnus Carlsen Is Giving Up His World Title. Replacing Him Won’t Be Easy.**\
