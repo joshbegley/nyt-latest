@@ -7,7 +7,7 @@ https://nytimes.com/2022/07/21/us/politics/biden-covid-positive.html?searchResul
 https://nytimes.com/2022/07/21/business/rivian-amazon-delivery-vans.html?searchResultPosition=2
 
 **Amazon to acquire One Medical clinics in latest push into health care.**\
-`The $3.9 billion deal is Amazon’s latest acquisition in the health care industry. In 2019 it acquired PillPack, an online pharmacy.`\
+`The $3.9 billion deal is Amazon’s latest acquisition in the health care industry. In 2018, it acquired PillPack, an online pharmacy.`\
 https://nytimes.com/2022/07/21/business/amazon-one-medical-deal.html?searchResultPosition=3
 
 **Deep in a Covid Wave, Europe Counts Cases and Carries On**\
