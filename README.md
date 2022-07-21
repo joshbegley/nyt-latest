@@ -34,7 +34,7 @@ https://nytimes.com/2022/07/21/sports/staten-island-cricket-club.html?searchResu
 `The city’s neighborhoods, from the Mission to Russian Hill and the Outer Sunset, are vibrant with packed restaurants and bars, and many are home to new parks and the return of in-person events.`\
 https://nytimes.com/2022/07/21/travel/san-francisco-see-eat-do.html?searchResultPosition=9
 
-**She Wants to Heal the World Through Second Line**\
-`Michelle N. Gibson brings her one-woman show exploring the origins of New Orleans second line, “Takin’ It to the Roots,” to Jacob’s Pillow.`\
-https://nytimes.com/2022/07/21/arts/dance/michelle-gibson-second-line-jacobs-pillow.html?searchResultPosition=10
+**New York’s Last Movie Clerk Knows More Than You Do**\
+`Will Malitek owns and operates Film Noir Cinema. If you’ve never heard of it, fine with him.`\
+https://nytimes.com/2022/07/21/style/new-york-film-noir-cinema.html?searchResultPosition=10
 
