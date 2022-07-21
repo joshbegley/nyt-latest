@@ -16,7 +16,7 @@ https://nytimes.com/2022/07/21/todayspaper/quotation-of-the-day-seeking-axis-of-
 
 **Russia restarts gas shipments through key pipeline to Germany.**\
 `The suspense was another reminder of the reliance of Germany, and much of Europe, on Russian energy. European Union leaders urged members to cut natural gas use immediately.`\
-https://nytimes.com/2022/07/21/world/europe/gazprom-germany-gas.html?searchResultPosition=5
+https://nytimes.com/live/2022/07/21/world/ukraine-war-russia/gazprom-germany-gas?searchResultPosition=5
 
 **Corrections: July 21, 2022**\
 `Corrections that appeared in print on Thursday, July 21, 2022.`\
