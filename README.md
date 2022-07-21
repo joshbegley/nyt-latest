@@ -35,6 +35,6 @@ https://nytimes.com/2022/07/21/technology/facebook-app-changes-home.html?searchR
 https://nytimes.com/2022/07/21/t-magazine/natural-wine-bars-reef-safe-sunscreen.html?searchResultPosition=9
 
 **Chess Replay: You Versus Karpov**\
-`Take on Anatoly Karpov in a recreation of a 28th World Championship game in Baguio City, 1978. Solve for the best series of moves.`\
+`Take on Anatoly Karpov in a recreation of a World Championship game in Baguio City, the Philippines, 1978. Solve for the best series of moves.`\
 https://nytimes.com/2022/07/21/crosswords/chess/chess-replay-you-versus-karpov.html?searchResultPosition=10
 
