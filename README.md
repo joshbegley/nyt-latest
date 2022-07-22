@@ -15,7 +15,7 @@ https://nytimes.com/2022/07/22/sports/cycling/tour-de-france-cycling-photos.html
 https://nytimes.com/2022/07/20/well/heat-sleep-tips.html?searchResultPosition=4
 
 **Draghi’s Fall Reverberates Beyond Italy**\
-`The downfall of Italy’s prime minister has raised concerns across Europe about the power  of populist movements and whether they will erode unity against Russian aggression.`\
+`The downfall of Italy’s prime minister has raised concerns across Europe about the power of populist movements and whether they will erode unity against Russian aggression.`\
 https://nytimes.com/2022/07/22/world/europe/italy-draghi-collapse-populism-election.html?searchResultPosition=5
 
 **China Is Playing Hardball with Troubled Debtors. That’s Dangerous for All of Us.**\
