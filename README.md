@@ -4,7 +4,7 @@ https://nytimes.com/video/us/100000008456962/biden-covid-symptoms.html?searchRes
 
 **Uvalde Postpones Decision to Fire School Police Chief**\
 `The South Texas school district said it would delay a decision on terminating the chief who led the schools’ response to a school shooting.`\
-https://nytimes.com/2022/07/22/us/uvalde-police-arredondo.html?searchResultPosition=2
+https://nytimes.com/2022/07/22/us/uvalde-school-district-police-chief-arredondo.html?searchResultPosition=2
 
 **Russia Agrees to Let Ukraine Ship Grain, Easing World Food Shortage**\
 `Ukraine and Russia signed a deal to lift Russia’s blockade of Ukrainian ports, which has worsened a global food crisis — their most important agreement since the war began.`\
