@@ -1,4 +1,4 @@
-**Adidas and Puma to University of Oregon Frats: “Nice House, Bro”**\
+**Adidas and Puma to University of Oregon Frats: ‘Nice House, Bro’**\
 `The track and field world championships are being held in Eugene, Ore. Without an abundance of hotels, some sports companies moved into fraternities.`\
 https://nytimes.com/2022/07/18/sports/olympics/university-of-oregon-world-championships.html?searchResultPosition=1
 
