@@ -11,7 +11,7 @@ https://nytimes.com/2022/07/22/us/politics/biden-covid-symptoms.html?searchResul
 https://nytimes.com/2022/07/22/world/middleeast/argentina-mossad-hezbollah-bombings.html?searchResultPosition=3
 
 **Is Pilates as Good as Everyone Says?**\
-`The strength and flexibility workout having a moment. What can — and can’t — it do for us?`\
+`The strength and flexibility workout is having a moment. What can — and can’t — it do for us?`\
 https://nytimes.com/2022/07/22/well/move/pilates-exercise-flexibility.html?searchResultPosition=4
 
 **Attack on Base in Mali Brings Conflict to Doorstep of Capital**\
