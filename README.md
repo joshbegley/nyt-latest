@@ -4,7 +4,7 @@ https://nytimes.com/2022/07/22/technology/twitter-earnings.html?searchResultPosi
 
 **Bucking the global trend, Russia lowers interest rates again.**\
 `Russia’s central bank cut its interest rate to 8 percent on Friday, lower than before the invasion of Ukraine, citing “subdued” consumer demand.`\
-https://nytimes.com/2022/07/22/business/bucking-the-global-trend-russia-lowers-interest-rates-again.html?searchResultPosition=2
+https://nytimes.com/2022/07/22/business/russia-interest-rate.html?searchResultPosition=2
 
 **Cheaper Gas**\
 `Prices have now fallen for more than a month.`\
