@@ -1,40 +1,40 @@
-**As Covid Cases Rise Again, No Clear Guidance From the Top**\
-`Omicron subvariants are driving a winter surge in Australia, but officials’ health advice has been confusing, to put it mildly.`\
-https://nytimes.com/2022/07/22/world/australia/as-covid-cases-rise-again-no-clear-guidance-from-the-top.html?searchResultPosition=1
+**Which Watches Do Jewelry Designers Wear?**\
+`Six women tell us whether they opt for full-blast bling or understated elegance.`\
+https://nytimes.com/2022/07/22/fashion/watches-jewelry-designers-wear.html?searchResultPosition=1
 
-**Jan. 6 Panel Reveals Trump’s Inaction During Capitol Riot**\
-`The House committee investigating the Jan. 6 riot, documented President Donald J. Trump’s inaction to call off the mob during the 187 minutes after rioters descended on the Capitol, before he issued a public response.`\
-https://nytimes.com/video/us/politics/100000008451964/jan-6-trump-inaction-capitol-riot.html?searchResultPosition=2
+**Online Watch Auctions Go Deeper Into Luxury Territory**\
+`Before the pandemic, sales mostly featured more run-of-the-mill timepieces. But that was then.`\
+https://nytimes.com/2022/07/22/fashion/watches-online-auctions.html?searchResultPosition=2
 
-**On Twitter, The Times Dips a Toe Into Live Audio**\
-`The newsroom sees Twitter Spaces, a live audio platform on the social media app, as a staging ground. It might be less polished, “but it also has that reality.”`\
-https://nytimes.com/2022/07/22/insider/twitter-spaces-the-times-live-audio.html?searchResultPosition=3
+**In Seoul, Watchmaking With Subtlety**\
+`Minhoon Yoo, who introduced his first watch in February, says it’s the details that interest him.`\
+https://nytimes.com/2022/07/22/fashion/watches-minhoon-yoo-seoul.html?searchResultPosition=3
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/07/22/crosswords/spelling-bee-forum.html?searchResultPosition=4
+**The Economy Putin Didn’t Actually Ruin**\
+`Ukrainian technology companies have earned billions. But with most executives unable to meet foreign clients, the good times may not last.`\
+https://nytimes.com/2022/07/22/business/ukraine-tech-companies-putin.html?searchResultPosition=4
 
-**Sri Lankan Forces Raid Protest Camp at Center of Uprising**\
-`The predawn raid in Colombo on Friday caught demonstrators by surprise. The police detained at least nine people.`\
-https://nytimes.com/2022/07/22/world/asia/sri-lanka-protest-raid.html?searchResultPosition=5
+**You Might Be a Hall of Famer, but Do You Have a Statue?**\
+`Baseball’s Hall of Famers all have plaques in Cooperstown, but only some of them have been honored with statues. And they won’t let Dave Winfield forget that.`\
+https://nytimes.com/2022/07/22/sports/baseball/hall-of-fame-statues.html?searchResultPosition=5
 
-**Stephen Colbert Goes Live After Thursday’s Jan. 6 Hearing**\
-`“Yes, he is a stain on our history, and thanks to these hearings, we know that stain is ketchup,” Stephen Colbert said of Donald Trump.`\
-https://nytimes.com/2022/07/22/arts/television/stephen-colbert-jan-6-hearing-trump.html?searchResultPosition=6
+**In ‘Uncoupled,’ Neil Patrick Harris Plays the Game**\
+`The actor described the Netflix comedy as an alternate vision of his life: “I got to live this other version of, what if I was single in New York and had a Grindr account?”`\
+https://nytimes.com/2022/07/22/arts/television/neil-patrick-harris-uncoupled.html?searchResultPosition=6
 
-**The Future Is Italy, and It’s Bleak**\
-`A rising far right is a portent of what may be to come.`\
-https://nytimes.com/2022/07/22/opinion/italy-draghi-meloni-government.html?searchResultPosition=7
+**Newsom Wants Democrats to Fight Fire With Fire, Starting With a Gun Bill**\
+`Gov. Gavin Newsom of California is poised to sign legislation that would provide a minimum $10,000 award to residents who successfully sue makers of illegal guns.`\
+https://nytimes.com/2022/07/22/us/newsom-gun-bill-california.html?searchResultPosition=7
 
-**Josh Hawley cheered on Jan. 6. Then he fled.**\
-`Video footage of the Missouri Republican sprinting out of the Capitol as a mob closed in went viral, showing how a promoter of Trump’s election lies came face to face with their consequences.`\
-https://nytimes.com/2022/07/21/us/josh-hawley-video-jan-6.html?searchResultPosition=8
+**How a ‘Tenter’ in Ocean Grove, N.J., Spends Her Sundays**\
+`Jennifer Walsh is at the Jersey Shore all summer. In a tent. With her parents. And she wouldn’t have it any other way.`\
+https://nytimes.com/2022/07/22/nyregion/ocean-grove-tents.html?searchResultPosition=8
 
-**They Give the Washington Arch a Good Cleaning**\
-`The famous monument in Greenwich Village is stately. It’s also grimy.`\
-https://nytimes.com/2022/07/22/nyregion/washington-square-arch-cleanup.html?searchResultPosition=9
+**After Mocking France’s Literary Elite, a Fraught Invite Into the Club**\
+`Mohamed Mbougar Sarr, a Senegal-born writer, has won high praise and top prizes from Paris’s insular publishing establishment. But the novelist wonders: Is it an endorsement or “a way to silence me”?`\
+https://nytimes.com/2022/07/22/world/europe/france-goncourt-mohamed-mbougar-sarr.html?searchResultPosition=9
 
-**Young Sleuths Hot on the Trail of Their Own Identities**\
-`The protagonists of four new middle grade mysteries attempt to uncover secrets about their families and themselves.`\
-https://nytimes.com/2022/07/22/books/review/kekla-magoon-chester-keene-cracks-the-code.html?searchResultPosition=10
+**Reaching Closer to Earth’s Core, One Lava Scoop at a Time**\
+`A 2021 eruption in Iceland gave researchers rare and illuminating access to the mantle, one of the Earth’s layers.`\
+https://nytimes.com/2022/07/22/science/volcano-fagradalsfjall-mantle-magma.html?searchResultPosition=10
 
