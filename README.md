@@ -10,8 +10,8 @@ https://nytimes.com/2022/07/21/us/sarah-matthews-jan-6-hearing.html?searchResult
 `He tendered his resignation after watching the violence unfold — and observing how Mr. Trump handled the events.`\
 https://nytimes.com/2022/07/21/us/matthew-pottinger-trump-january-6.html?searchResultPosition=3
 
-**Jan. 6 Committee Delves Into Trump’s Willful Inaction During the Riot**\
-`In the last in a series of public sessions to lay out its findings so far, the House panel is set to hear from two officials who resigned in disgust after witnessing the former president’s inaction.`\
+**Jan. 6 Panel Presents Evidence of Trump’s Refusal to Stop the Riot**\
+`The House panel painted a detailed picture of how, as officials rushed to respond to an attack on the United States government, the commander in chief chose for hours to do nothing.`\
 https://nytimes.com/2022/07/21/us/politics/jan-6-hearing-trump.html?searchResultPosition=4
 
 **How to Make Travel Easier on Your Body**\
@@ -23,7 +23,7 @@ https://nytimes.com/2022/07/21/well/travel-tips-back-pain-neck.html?searchResult
 https://nytimes.com/2022/07/21/us/politics/secret-service-criminal-inquiry-missing-texts.html?searchResultPosition=7
 
 **Watch Live: Jan. 6 Hearing Dissects Trump’s Inaction During Capitol Riot**\
-`The House Committee is making the point that former President Donald J. Trump chose to not act as a mob of his supporters attacked the Capitol. The hearing is in recess and will return shortly.`\
+`The House Committee is making the point that former President Donald J. Trump chose to not act as a mob of his supporters attacked the Capitol.`\
 https://nytimes.com/video/us/politics/100000008452633/jan-6-trump-inaction-capitol-riot.html?searchResultPosition=8
 
 **Why Republicans Are Having Gas Pains**\
