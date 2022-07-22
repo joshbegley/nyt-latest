@@ -1,5 +1,5 @@
 **Melania Trump: ‘I was unaware’ of Jan. 6 violence.**\
-`By Jeremy W. Peters`\
+`The former first lady said she didn’t know what was happening at the Capitol because she was attending to her official duties.`\
 https://nytimes.com/2022/07/21/us/melania-trump-jan-6-violence.html?searchResultPosition=1
 
 **New York City Jail Officer Charged With Killing Teenager While Off Duty**\
