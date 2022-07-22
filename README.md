@@ -3,7 +3,7 @@
 https://nytimes.com/interactive/2022/07/22/arts/television/best-of-late-night.html?searchResultPosition=1
 
 **Jury Begins Deliberations on Contempt Charges in Bannon Trial**\
-`If convicted, he could face a fine of up to $1,000 and up to a year in prison for defying the Jan. 6 panel’s subpoena.`\
+`If convicted of both charges stemming from his defiance of the Jan. 6 panel’s subpoena, he could face a fine of up to $1,000 and up to a year in prison for each.`\
 https://nytimes.com/2022/07/22/us/politics/bannon-trial-contempt-charges.html?searchResultPosition=2
 
 **Transcript: Ezra Klein Interviews Thomas Insel**\
