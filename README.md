@@ -23,7 +23,7 @@ https://nytimes.com/2022/07/21/well/travel-tips-back-pain-neck.html?searchResult
 https://nytimes.com/2022/07/21/us/politics/secret-service-criminal-inquiry-missing-texts.html?searchResultPosition=7
 
 **Watch Live: Jan. 6 Hearing Dissects Trump’s Inaction During Capitol Riot**\
-`The hearing will focus on former President Donald J. Trump’s 187 minutes of inaction as a mob of his supporters attacked the Capitol. The hearing is in recess and will return shortly.`\
+`The House Committee is making the point that former President Donald J. Trump chose to not act as a mob of his supporters attacked the Capitol. The hearing is in recess and will return shortly.`\
 https://nytimes.com/video/us/politics/100000008452633/jan-6-trump-inaction-capitol-riot.html?searchResultPosition=8
 
 **Why Republicans Are Having Gas Pains**\
