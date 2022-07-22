@@ -1,4 +1,4 @@
-**Amazon Wants to Be Your Doctor, too**\
+**Amazon Wants to Be Your Doctor, Too**\
 `The internet giant acquired One Medical, a national chain of primary care clinics, for $3.9 billion.`\
 https://nytimes.com/2022/07/22/business/dealbook/amazon-acquires-one-medical.html?searchResultPosition=1
 
