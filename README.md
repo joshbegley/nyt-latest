@@ -34,7 +34,7 @@ https://nytimes.com/2022/07/22/us/tennessee-police-beating-traffic-brandon-callo
 `The internet giant acquired One Medical, a national chain of primary care clinics, for $3.9 billion.`\
 https://nytimes.com/2022/07/22/business/dealbook/amazon-acquires-one-medical.html?searchResultPosition=9
 
-**Twitter’s revenue falls as it struggles to draw advertisers.**\
+**Twitter’s Finances Falter as It Struggles to Draw Advertisers**\
 `Amid a legal battle with Elon Musk, the social media company swung to a loss in the second quarter.`\
 https://nytimes.com/2022/07/22/technology/twitter-earnings.html?searchResultPosition=10
 
