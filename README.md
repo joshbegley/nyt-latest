@@ -1,5 +1,5 @@
 **Zeldin, Republican Candidate for New York Governor, Is Attacked at Event**\
-`Representative Lee Zeldin was addressing supporters in western New York when he was confronted by a man with a pointed object in his hand. Mr. Zeldin was unhurt in the attack.`\
+`Representative Lee Zeldin was addressing supporters in western New York when he was confronted by a man with a pointed weapon in his hand. Mr. Zeldin was not injured.`\
 https://nytimes.com/2022/07/21/nyregion/lee-zeldin-attacked-campaign-event.html?searchResultPosition=1
 
 **Motion Picture**\
