@@ -7,7 +7,7 @@ https://nytimes.com/2022/07/22/nyregion/washington-square-arch-cleanup.html?sear
 https://nytimes.com/2022/07/22/books/review/kekla-magoon-chester-keene-cracks-the-code.html?searchResultPosition=2
 
 **Video Shows Josh Hawley Fleeing From Rioters During Jan. 6 Attack**\
-`The Jan. 6 committee played the surveillance video, showing Senator Josh Hawley, Republican of Missouri, running out of the Capitol as it was attacked by the same crowd he had riled up hours earlier.`\
+`The Jan. 6 committee played surveillance video showing Senator Josh Hawley, Republican of Missouri, running out of the Capitol as it was attacked by the same crowd he had egged on hours earlier.`\
 https://nytimes.com/video/us/politics/100000008455630/josh-hawley-flee-capitol-attack.html?searchResultPosition=3
 
 **Falling Tree Kills 2 and Injures 3 During Storm in Alabama**\
