@@ -3,7 +3,7 @@
 https://nytimes.com/2022/07/22/podcasts/pandemic-nature-asmr-war-poetry-narrated-articles.html?searchResultPosition=1
 
 **The Baseball Hall of Fame’s New Members**\
-`On Sunday, seven former players, including David Ortiz of the Red Sox, will be inducted into the Baseball Hall of Fame.`\
+`On Sunday, seven former players, including David Ortiz of the Red Sox, will be inducted into the Baseball Hall of Fame. `\
 https://nytimes.com/interactive/2022/07/22/sports/baseball/david-ortiz-hall-of-fame.html?searchResultPosition=2
 
 **One Police Officer Killed, Another Wounded in Rochester, N.Y., Shooting**\
