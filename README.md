@@ -2,8 +2,8 @@
 `Prices have now fallen for more than a month.`\
 https://nytimes.com/2022/07/22/briefing/gas-prices-us-economy.html?searchResultPosition=1
 
-**The German government bails out struggling gas provider Uniper with a multibillion-euro rescue.**\
-`Germany agreed to acquire a 30 percent stake in the company, one of the country’s largest suppliers of natural gas, and expanded a crucial credit line.`\
+**Germany bails out struggling gas provider Uniper with a multibillion-euro rescue.**\
+`The German government agreed to acquire a 30 percent stake in the company, one of the country’s largest suppliers of natural gas, and expanded a crucial credit line.`\
 https://nytimes.com/2022/07/22/business/german-government-gas-supply-uniper.html?searchResultPosition=2
 
 **Utah’s ‘Environmental Nuclear Bomb’**\
