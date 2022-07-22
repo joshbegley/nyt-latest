@@ -1,6 +1,6 @@
 **Noah Lyles’s Sweet Redemption: A 200 Meter Gold, and an American Sweep**\
 `Lyles led an American sweep of the event. Kenny Bednarek finished second and Erriyon Knighton won the bronze.`\
-https://nytimes.com/2022/07/18/sports/noah-lyless-sweet-redemption-a-200-meter-gold-and-an-american-sweep.html?searchResultPosition=1
+https://nytimes.com/2022/07/18/sports/noah-lyles-erriyon-knighton.html?searchResultPosition=1
 
 **Five takeaways from the eighth hearing of the Jan. 6 committee.**\
 `By Michael S. Schmidt`\
