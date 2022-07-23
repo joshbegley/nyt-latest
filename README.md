@@ -18,8 +18,8 @@ https://nytimes.com/video/world/europe/100000008457532/ukraine-russia-odesa-miss
 `Ron DeSantis and the Jan. 6 committee are exposing the limits of his grievance strategy.`\
 https://nytimes.com/2022/07/23/opinion/trump-desantis-jan-6.html?searchResultPosition=5
 
-**Austrian Conductor Dies After Collapsing Onstage in Munich**\
-`Stefan Soltesz was in the middle of a performance of Richard Strauss’s “The Silent Woman” when he fell from his podium shortly before the end of the first act.`\
+**Conductor Dies After Collapsing Mid-Performance in Munich**\
+`Stefan Soltesz was in the middle of Richard Strauss’s “The Silent Woman” when he fell from his podium shortly before the end of the first act.`\
 https://nytimes.com/2022/07/23/arts/music/stefan-soltesz-conductor-dies-onstage.html?searchResultPosition=6
 
 **Utah University Admits ‘Shortcomings’ in Handling Domestic Abuse Case**\
