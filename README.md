@@ -15,7 +15,7 @@ https://nytimes.com/2022/07/23/opinion/inhalers-climate-pollution.html?searchRes
 https://nytimes.com/2022/07/23/opinion/climate-doomers-possibility.html?searchResultPosition=4
 
 **W.H.O. Declares Monkeypox Spread a Global Health Emergency**\
-`There have been more than 16,000 cases outside Africa, and the virus has reached 75 countries and territories.`\
+`There have been more than 16,000 cases in 75 countries, overwhelmingly among men who have sex with men.`\
 https://nytimes.com/2022/07/23/health/monkeypox-pandemic-who.html?searchResultPosition=5
 
 **President Biden’s Human Rights Dilemma**\
