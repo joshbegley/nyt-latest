@@ -1,40 +1,40 @@
-**Quotation of the Day: Uprooted by a Hurricane, and Again by FEMA**\
-`Quotation of the Day for Saturday, July 23, 2022.`\
-https://nytimes.com/2022/07/23/todayspaper/quotation-of-the-day-uprooted-by-a-hurricane-and-again-by-fema.html?searchResultPosition=1
+**One Day in the Heat: What Cooling Off Looks and Feels Like in New York**\
+`How do you stay cool when the weather is so hot? The answers are as diverse as the city itself.`\
+https://nytimes.com/2022/07/23/nyregion/new-york-heat-wave.html?searchResultPosition=1
 
-**‘Just Think Rome’: The Morgan Library & Museum Opens Garden to the Public**\
-`After a $13 million renovation project, the institution, once the private residence and library of the financier, J. Pierpont Morgan, has opened its garden oasis to the public.`\
-https://nytimes.com/2022/07/23/realestate/morgan-library-museum-garden.html?searchResultPosition=2
+**Comics That Read Top to Bottom Are Bringing in New Readers**\
+`The explosion of web comics has been driven by tapping into an audience the industry had long overlooked: young, female readers.`\
+https://nytimes.com/2022/07/23/arts/digital-comics-new-readers.html?searchResultPosition=2
 
-**How the Government Is Failing Americans Uprooted by Calamity**\
-`Climate change is creating a growing class of displaced Americans, and the federal government is struggling to decide how to help them.`\
-https://nytimes.com/2022/07/23/climate/natural-disaster-relief-fema.html?searchResultPosition=3
+**In Japan, Abe Suspect’s Grudge Against Unification Church Is a Familiar One**\
+`The man accused of killing Shinzo Abe said his mother’s huge donations to the church bankrupted his family. Many others in Japan have similar stories.`\
+https://nytimes.com/2022/07/23/world/asia/japan-unification-church-lawsuits.html?searchResultPosition=3
 
-**A Museum Opens Its Garden to the Public**\
-`After a $13 million renovation, the Morgan Library & Museum has opened its oasis to the public.`\
-https://nytimes.com/slideshow/2022/07/23/realestate/a-museum-opens-its-garden-to-the-public.html?searchResultPosition=4
+**Interstate Abortion Travel Is Already Straining Parts of the System**\
+`Even in some states where abortion remains legal, wait times for appointments are long because of increased demand.`\
+https://nytimes.com/2022/07/23/upshot/abortion-interstate-travel-appointments.html?searchResultPosition=4
 
-**Luxury Rental Buildings Take ‘Working From Home’ to the Next Level**\
-`Developers are adding professional office spaces to the list of amenities in their mostly new buildings in cities around the country.`\
-https://nytimes.com/2022/07/23/realestate/co-working-luxury-rental-buildings.html?searchResultPosition=5
+**We Need to Keep Building Houses, Even if No One Wants to Buy**\
+`Right now, builders have too many homes and not enough people to sell them to. In the long term, the United States has the opposite problem: Not enough houses for all the people who want them.`\
+https://nytimes.com/2022/07/23/business/housing-market-crisis-supply.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/07/23/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**A Taste for Cannibalism?**\
+`A spate of recent stomach-churning books, TV shows and films suggests we’ve never looked so delicious — to one another.`\
+https://nytimes.com/2022/07/23/style/cannibalism-tv-shows-movies-books.html?searchResultPosition=6
 
-**Corrections: July 23, 2022**\
-`Corrections that appeared in print on Saturday, July 23, 2022.`\
-https://nytimes.com/2022/07/23/pageoneplus/corrections-july-23-2022.html?searchResultPosition=7
+**A Powerhouse Team of Stars, Ring or No Ring**\
+`With Jim Kaat and Tony Oliva set for Hall of Fame induction, the Minnesota Twins of the 1960s and ’70s will shine in Cooperstown despite no World Series titles.`\
+https://nytimes.com/2022/07/23/sports/baseball/kaat-oliva-twins-hall-of-fame.html?searchResultPosition=7
 
-**Two Dead and 1 Missing After Flash Flooding in New Mexico**\
-`The floods came as heavy rainfall struck an area that had been burned by the state’s largest recorded wildfire. More rain is expected across the state next week.`\
-https://nytimes.com/2022/07/22/us/new-mexico-flash-floods.html?searchResultPosition=8
+**After Roe, Pregnant Women With Cancer Diagnoses May Face Wrenching Choices**\
+`Urgent questions arise about how care of pregnant women with cancer will change in states where women are unable to terminate pregnancies`\
+https://nytimes.com/2022/07/23/health/pregnant-woman-cancer-abortion.html?searchResultPosition=8
 
-**Wes Moore Wins the Democratic Primary for Maryland Governor**\
-`Mr. Moore, a celebrity author and former nonprofit executive, will aim to take back the office for Democrats after eight years under Gov. Larry Hogan, a Republican who is term-limited.`\
-https://nytimes.com/2022/07/22/us/politics/wes-moore-maryland.html?searchResultPosition=9
+**Liz Holtzman Wants Another Crack at Congress, 50 Years Later**\
+`She shattered glass ceilings, voted to impeach Nixon and helped chase out Nazis. But can Ms. Holtzman overcome one more political hurdle: her age?`\
+https://nytimes.com/2022/07/23/nyregion/liz-holtzman-congress.html?searchResultPosition=9
 
-**Sydney McLaughlin Broke Her Own World Record. Again.**\
-`McLaughlin, the reigning Olympic gold medalist, won her first world championship in 50.68 seconds at Hayward Field.`\
-https://nytimes.com/2022/07/22/sports/sydney-mclaughlin-400-hurdles.html?searchResultPosition=10
+**Can I Force My Landlord to Install Window Boxes for Air-Conditioners?**\
+`It sounds like a simple enough request, but few things about New York City’s rent regulation rules are simple.`\
+https://nytimes.com/2022/07/23/realestate/nyc-air-conditioner-landlord.html?searchResultPosition=10
 
