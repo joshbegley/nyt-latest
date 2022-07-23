@@ -1,40 +1,40 @@
+**Going Somewhere?**\
+`Ross and Jessie Trudeau(!) invite us on a long, happy journey.`\
+https://nytimes.com/2022/07/23/crosswords/daily-puzzle-2022-07-24.html?searchResultPosition=1
+
 **U.S. Taking Emergency Steps to Protect Sequoias From Wildfires**\
 `The U.S. Forest Service will expedite plans to clear brush that fuels fires and take other measures to protect the centuries-old trees.`\
-https://nytimes.com/2022/07/23/us/sequoias-fire-forest-service-emergency-action.html?searchResultPosition=1
+https://nytimes.com/2022/07/23/us/sequoias-fire-forest-service-emergency-action.html?searchResultPosition=2
 
 **California’s Oak Fire Moving Fast Near Yosemite**\
 `A wildfire near Yosemite National Park has burned more than 6,500 acres. The authorities said it was California’s fastest-growing fire of the season.`\
-https://nytimes.com/video/us/100000008457609/california-wildfire-yosemite.html?searchResultPosition=2
+https://nytimes.com/video/us/100000008457609/california-wildfire-yosemite.html?searchResultPosition=3
 
 **Suspect in Zeldin Attack Is Arrested on Federal Charge**\
 `The suspect, who had been released without bail shortly after the Thursday attack on Representative Lee Zeldin, the Republican candidate for New York governor, will be held pending a hearing next week.`\
-https://nytimes.com/2022/07/23/nyregion/zeldin-attack-suspect-charged.html?searchResultPosition=3
+https://nytimes.com/2022/07/23/nyregion/zeldin-attack-suspect-charged.html?searchResultPosition=4
 
 **Michael Henderson, Funk Bassist Turned Crooner, Dies at 71**\
 `He was a sideman with Stevie Wonder and Miles Davis before embarking on a successful second career as a singer of soulful, romantic ballads.`\
-https://nytimes.com/2022/07/23/obituaries/michael-henderson-dead.html?searchResultPosition=4
+https://nytimes.com/2022/07/23/obituaries/michael-henderson-dead.html?searchResultPosition=5
 
 **Google Fires Engineer Who Claims Its A.I. Is Conscious**\
 `The engineer, Blake Lemoine, contends that the company’s language model has a soul. The company denies that and says he violated its security policies.`\
-https://nytimes.com/2022/07/23/technology/google-engineer-artificial-intelligence.html?searchResultPosition=5
+https://nytimes.com/2022/07/23/technology/google-engineer-artificial-intelligence.html?searchResultPosition=6
 
 **Russian Missiles Strike Odesa One Day After Grain Deal Agreement**\
 `The Ukrainian military said Russian forces fired missiles at Odesa, hitting the country’s largest port a day after the two countries signed a deal to resume grain transport.`\
-https://nytimes.com/video/world/europe/100000008457532/ukraine-russia-odesa-missiles.html?searchResultPosition=6
+https://nytimes.com/video/world/europe/100000008457532/ukraine-russia-odesa-missiles.html?searchResultPosition=7
 
 **Why Trump Is Weakening**\
 `Ron DeSantis and the Jan. 6 committee are exposing the limits of his grievance strategy.`\
-https://nytimes.com/2022/07/23/opinion/trump-desantis-jan-6.html?searchResultPosition=7
+https://nytimes.com/2022/07/23/opinion/trump-desantis-jan-6.html?searchResultPosition=8
 
 **Conductor Dies After Collapsing During Performance in Munich**\
 `Stefan Soltesz was in the middle of Richard Strauss’s “The Silent Woman” when he fell from his podium shortly before the end of the first act.`\
-https://nytimes.com/2022/07/23/arts/music/stefan-soltesz-conductor-dies-onstage.html?searchResultPosition=8
+https://nytimes.com/2022/07/23/arts/music/stefan-soltesz-conductor-dies-onstage.html?searchResultPosition=9
 
 **Utah University Admits ‘Shortcomings’ in Handling Domestic Abuse Case**\
 `The University of Utah acknowledged missteps in how it responded to concerns about the safety of a student, Zhifan Dong, 19, who was killed in February.`\
-https://nytimes.com/2022/07/23/us/utah-university-zhifan-dong-death.html?searchResultPosition=9
-
-**On the Docket: Atlanta v. Trumpworld**\
-`Eighteen months into a criminal investigation of election interference by Donald J. Trump and his allies, a Georgia prosecutor is beginning to show the broad contours of her inquiry.`\
-https://nytimes.com/2022/07/23/us/politics/trump-georgia-election-interference.html?searchResultPosition=10
+https://nytimes.com/2022/07/23/us/utah-university-zhifan-dong-death.html?searchResultPosition=10
 
