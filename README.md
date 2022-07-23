@@ -1,5 +1,5 @@
 **Two Dead and 1 Missing After Flash Flooding in New Mexico**\
-`The floods came as heavy rainfall struck an area that had been burned by the state’s largest recorded wildfire.`\
+`The floods came as heavy rainfall struck an area that had been burned by the state’s largest recorded wildfire. More rain is expected across the state next week.`\
 https://nytimes.com/2022/07/22/us/new-mexico-flash-floods.html?searchResultPosition=1
 
 **Wes Moore Wins the Democratic Primary for Maryland Governor**\
