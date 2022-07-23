@@ -1,4 +1,4 @@
-**Suspect in Zeldin Attack Is Arrested on Federal Charges**\
+**Suspect in Zeldin Attack Is Arrested on Federal Charge**\
 `The suspect, who had been released without bail shortly after the Thursday attack on Representative Lee Zeldin, the Republican candidate for New York governor, will be held pending a hearing next week.`\
 https://nytimes.com/2022/07/23/nyregion/zeldin-attack-suspect-charged.html?searchResultPosition=1
 
