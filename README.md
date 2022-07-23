@@ -7,7 +7,7 @@ https://nytimes.com/2022/07/23/us/politics/trump-georgia-election-interference.h
 https://nytimes.com/2022/07/23/us/politics/jan-6-hearings-women-witnesses-committee.html?searchResultPosition=2
 
 **Rapidly Spreading California Wildfire Destroys 10 Structures**\
-`The Oak fire, near the Sierra Nevada foothills, threatened 2,000 more structures.`\
+`The Oak fire, near Yosemite National Park, threatened 2,000 more structures.`\
 https://nytimes.com/2022/07/23/us/oak-fire-spread.html?searchResultPosition=3
 
 **Turkey’s Leader Remains a Headache for Biden Despite Aiding in Ukraine Deal**\
