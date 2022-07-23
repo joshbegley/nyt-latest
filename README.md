@@ -34,7 +34,7 @@ https://nytimes.com/2022/07/23/opinion/jlo-jennifer-lopez-ben-affleck.html?searc
 `President Biden’s best course is to take the same regulatory path Barack Obama was forced to follow.`\
 https://nytimes.com/2022/07/23/opinion/biden-climate-change.html?searchResultPosition=9
 
-**Inhalers Don’t Have to Be a Climate Problem**\
+**The Cruel Irony of Inhalers That Make Climate Change Worse**\
 `Some inhalers use greenhouse gases to help deliver medication into the lungs. The good news is there are alternatives.`\
 https://nytimes.com/2022/07/23/opinion/inhalers-climate-pollution.html?searchResultPosition=10
 
