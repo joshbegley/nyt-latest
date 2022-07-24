@@ -1,4 +1,4 @@
-**American Men Win the Silver in the 4x100-Meter Relay.**\
+**American Women Run Away with Gold in the 4x100-Meters. American Men Settle for Silver.**\
 `Christian Coleman, Noah Lyles, Elijah Hall and Marvin Bracey settled for silver after a botched handoff exchange.`\
 https://nytimes.com/2022/07/24/sports/american-men-relay.html?searchResultPosition=1
 
