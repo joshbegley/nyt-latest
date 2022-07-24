@@ -27,7 +27,7 @@ https://nytimes.com/2022/07/24/nyregion/heat-wave-us.html?searchResultPosition=6
 https://nytimes.com/2022/07/24/sports/basketball/liberty-wnba-ionescu.html?searchResultPosition=7
 
 **Bob Rafelson, Director of ‘Five Easy Pieces,’ Dies at 89**\
-`A central figure in the New Hollywood movement, he was also the co-creator of the TV pop group The Monkees and featured it in a movie, “Head.”`\
+`A central figure in the New Hollywood movement, he was also the co-creator of the TV pop group the Monkees and featured it in a movie, “Head.”`\
 https://nytimes.com/2022/07/24/obituaries/bob-rafelson-dead.html?searchResultPosition=8
 
 **Your Monday Briefing: Russia Seeks Support in Africa**\
