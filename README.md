@@ -30,7 +30,7 @@ https://nytimes.com/2022/07/24/sports/basketball/wnba-style-fashion-marketing.ht
 `The Genesis Communications Network built a lucrative business alongside the radio host, whose show the company has syndicated for more than two decades.`\
 https://nytimes.com/2022/07/24/business/media/ties-between-alex-jones-and-radio-network-show-economics-of-misinformation.html?searchResultPosition=8
 
-**‘Parentese’ is Truly a Lingua Franca, Global Study Finds**\
+**‘Parentese’ Is Truly a Lingua Franca, Global Study Finds**\
 `In an ambitious cross-cultural study, researchers found that adults around the world speak and sing to babies in similar ways.`\
 https://nytimes.com/2022/07/24/science/parentese-babies-global-language.html?searchResultPosition=9
 
