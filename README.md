@@ -1,10 +1,10 @@
-**Last Stand at Azovstal: Inside the Siege That Shaped the Ukraine War**\
-`For 80 days, at a sprawling steelworks, a relentless Russian assault met unyielding Ukrainian resistance. This is how it was for those who fought, and for those trapped beneath the battlefield.`\
-https://nytimes.com/2022/07/24/world/europe/ukraine-war-mariupol-azovstal.html?searchResultPosition=1
-
 **American Men Win the Silver in the 4x100-Meter Relay.**\
 `Christian Coleman, Noah Lyles, Elijah Hall and Marvin Bracey settled for silver after a botched handoff exchange.`\
-https://nytimes.com/2022/07/24/sports/american-men-relay.html?searchResultPosition=2
+https://nytimes.com/2022/07/24/sports/american-men-relay.html?searchResultPosition=1
+
+**Last Stand at Azovstal: Inside the Siege That Shaped the Ukraine War**\
+`For 80 days, at a sprawling steelworks, a relentless Russian assault met unyielding Ukrainian resistance. This is how it was for those who fought, and for those trapped beneath the battlefield.`\
+https://nytimes.com/2022/07/24/world/europe/ukraine-war-mariupol-azovstal.html?searchResultPosition=2
 
 **Heads Up, Again: China Set to Launch Space Station Module With Giant Rocket**\
 `The Wentian module, the second part of the Tiangong orbital outpost, requires using a massive launcher that has twice conducted uncontrolled re-entries into Earth’s atmosphere.`\
