@@ -4,7 +4,7 @@ https://nytimes.com/2022/07/24/briefing/sri-lanka-crisis.html?searchResultPositi
 
 **This Week in Business: Amazon’s Latest Acquisition**\
 `Netflix reports a drop in subscribers, but it could have been worse. The Fed announces its next rate increase. And we’ll hear how strong, or weak, the U.S. economy is.`\
-https://nytimes.com/2022/07/24/business/this-week-in-business-amazon-acquisition.html?searchResultPosition=2
+https://nytimes.com/2022/07/24/business/amazon-one-medical.html?searchResultPosition=2
 
 **There’s More Than One Way to Ban a Book**\
 `A serious strain of self-censorship has taken root within the left-leaning publishing industry.`\
