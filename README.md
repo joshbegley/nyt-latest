@@ -15,7 +15,7 @@ https://nytimes.com/2022/07/24/sports/american-men-relay.html?searchResultPositi
 https://nytimes.com/2022/07/24/world/europe/ukraine-war-mariupol-azovstal.html?searchResultPosition=4
 
 **Heads Up, Again: China Set to Launch Space Station Module With Giant Rocket**\
-`The Wentian module, the second part of the Tiangong orbital outpost, requires using a massive launcher that has twice conducted uncontrolled re-entries into Earth’s atmosphere.`\
+`Another Long March 5B rocket is on the launching pad. When its 23-ton booster comes back down, no one knows where the debris will land.`\
 https://nytimes.com/2022/07/24/science/china-space-rocket-long-march.html?searchResultPosition=5
 
 **Mississippi Fires Lawyer Trying to Recoup Misused Welfare Funds**\
