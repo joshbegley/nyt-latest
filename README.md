@@ -14,8 +14,8 @@ https://nytimes.com/2022/07/24/sports/american-men-relay.html?searchResultPositi
 `For 80 days, at a sprawling steelworks, a relentless Russian assault met unyielding Ukrainian resistance. This is how it was for those who fought, and for those trapped beneath the battlefield.`\
 https://nytimes.com/2022/07/24/world/europe/ukraine-war-mariupol-azovstal.html?searchResultPosition=4
 
-**Heads Up, Again: China Set to Launch Space Station Module With Giant Rocket**\
-`Another Long March 5B rocket is on the launching pad. When its 23-ton booster comes back down, no one knows where the debris will land.`\
+**Heads Up, Again: China Launches Space Station Module With Giant Rocket**\
+`Another Long March 5B rocket is headed to space. When its 23-ton booster comes back down, no one knows where the debris will land.`\
 https://nytimes.com/2022/07/24/science/china-space-rocket-long-march.html?searchResultPosition=5
 
 **Mississippi Fires Lawyer Trying to Recoup Misused Welfare Funds**\
