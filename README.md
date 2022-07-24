@@ -4,7 +4,7 @@ https://nytimes.com/2022/07/24/world/asia/pakistan-monsoon-floods.html?searchRes
 
 **A French University Confronts Medical Crimes and Its Nazi Past**\
 `A report on the University of Strasbourg’s takeover by Nazis during World War II and on medical crimes they committed there sheds light on a period that had been mostly scrubbed from official memory.`\
-https://nytimes.com/2022/07/24/world/europe/a-french-university-confronts-medical-crimes-and-its-nazi-past.html?searchResultPosition=2
+https://nytimes.com/2022/07/24/world/europe/french-university-nazi-medical-crimes.html?searchResultPosition=2
 
 **China Launches Space Station Module With Large Rocket**\
 `Video from a Chinese state-owned broadcaster showed the country launching another big rocket into space. As with its previous launches, no one knows where or when the rocket will land.`\
