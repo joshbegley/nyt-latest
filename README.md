@@ -2,7 +2,7 @@
 `Newark sets a record with five straight days of temperatures above 100 degrees, and other parts of the country, like Oklahoma, also experienced triple-digit heat.`\
 https://nytimes.com/2022/07/24/nyregion/heat-wave-us.html?searchResultPosition=1
 
-**All the Pieces Seemed to Align for the Liberty Except One: Winning.**\
+**All the Pieces Seemed to Align for the Liberty Except One: Winning**\
 `Despite a more stable home at Barclays Center in Brooklyn, a new coach and stars in place, the team has struggled with injuries and gaining traction in the competitive New York sports market.`\
 https://nytimes.com/2022/07/24/sports/basketball/liberty-wnba-ionescu.html?searchResultPosition=2
 
