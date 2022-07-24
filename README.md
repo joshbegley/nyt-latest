@@ -7,7 +7,7 @@ https://nytimes.com/2022/07/24/pageoneplus/corrections-july-24-2022.html?searchR
 https://nytimes.com/2022/07/24/todayspaper/quotation-of-the-day-what-is-justice-one-parkland-familys-agonizing-journey.html?searchResultPosition=2
 
 **American Women Run Away with Gold in the 4x100-Meters. American Men Settle for Silver.**\
-`Christian Coleman, Noah Lyles, Elijah Hall and Marvin Bracey settled for silver after a botched handoff exchange.`\
+`Christian Coleman, Noah Lyles, Elijah Hall and Marvin Bracy settled for silver after a botched handoff exchange.`\
 https://nytimes.com/2022/07/24/sports/american-men-relay.html?searchResultPosition=3
 
 **Last Stand at Azovstal: Inside the Siege That Shaped the Ukraine War**\
