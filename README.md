@@ -14,12 +14,12 @@ https://nytimes.com/2022/07/25/world/middleeast/ukraine-soldiers-recruitment-dra
 `Russia looks to Africa.`\
 https://nytimes.com/2022/07/24/briefing/russia-africa-lavrov-europe.html?searchResultPosition=4
 
-**In a close race, Athing Mu comes away with the expected win.**\
-`Mu became the first American woman to win the 800-meter world championship title, finishing with a time of 1:56.30`\
+**In a close race, Athing Mu comes away with an expected win.**\
+`Mu has become the first American woman to win the 800-meter world championship title, finishing with a time of 1:56.30`\
 https://nytimes.com/2022/07/24/sports/athing-mu-keely-hodgkinson.html?searchResultPosition=5
 
 **2 Killed at Los Angeles Park Shooting, Officials Say**\
-`Five other people were injured during the episode, which occurred during a car club show, the Los Angeles Fire Department said.`\
+`Five other people were injured when shots rang during a car club show, the Los Angeles Fire Department said. Authorities were considering whether “numerous” people fired shots.`\
 https://nytimes.com/2022/07/24/us/shooting-peck-park-la.html?searchResultPosition=6
 
 **Quotation of the Day: New York May Ban Pet Store Puppy Sales, a Practice Critics Call Abusive**\
