@@ -15,7 +15,7 @@ https://nytimes.com/2022/07/24/todayspaper/quotation-of-the-day-new-york-may-ban
 https://nytimes.com/2022/07/24/pageoneplus/no-corrections-july-25-2022.html?searchResultPosition=4
 
 **Jakob Ingebrigtsen Wins the 5,000. ‘I Wanted to Prove that I’m a Better Runner.’**\
-`Ingebrigtsen was out for revenge against a decorated field that included Jacob Krop of Kenya, Oscar Chelimo of Uganda and Grant Fisher of the U.S.`\
+`Ingebrigtsen found redemption against a decorated field that included Jacob Krop of Kenya, Oscar Chelimo of Uganda and Grant Fisher of the U.S.`\
 https://nytimes.com/2022/07/24/sports/jakob-ingebrigtsen-5000.html?searchResultPosition=5
 
 **As a Deadline Looms, the Dominican Republic Ponders a Draft**\
