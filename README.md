@@ -1,5 +1,5 @@
 **In a close race, Athing Mu comes away with the expected win.**\
-`Mu won with a time of`\
+`Mu became the first American woman to win the 800-meter world championship title, finishing with a time of 1:56.30`\
 https://nytimes.com/2022/07/24/sports/athing-mu-keely-hodgkinson.html?searchResultPosition=1
 
 **2 Killed at Los Angeles Park Shooting, Officials Say**\
