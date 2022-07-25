@@ -4,7 +4,7 @@ https://nytimes.com/2022/07/24/sports/baseball/international-draft-dominican-rep
 
 **From Flight Attendant to Funeral Planner: New Beginnings in the Covid Era**\
 `The pandemic upended careers in Hong Kong and around the world, forcing or inspiring people to make radical changes in their lives.`\
-https://nytimes.com/2022/07/24/business/covid-career-change-hong-kong.html?searchResultPosition=2
+https://nytimes.com/2022/07/24/world/asia/covid-career-change-hong-kong.html?searchResultPosition=2
 
 **Yes, I’m Pregnant. No, I Don’t Need Your Thoughts.**\
 `But chances are, you’ll tell me anyway.`\
