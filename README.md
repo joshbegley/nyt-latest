@@ -11,7 +11,7 @@ https://nytimes.com/2022/07/25/nyregion/michael-long-dead.html?searchResultPosit
 https://nytimes.com/2022/07/25/business/tesla-spending-production-factories.html?searchResultPosition=3
 
 **California’s Largest Wildfire Slows After Exploding Near Yosemite**\
-`The blaze spread rapidly over the weekend, bringing evacuation orders and threatening thousands of homes, in what so far has been a relatively modest fire season.`\
+`The blaze spread rapidly over the weekend, bringing evacuation orders and threatening homes, in what so far has been a relatively modest fire season.`\
 https://nytimes.com/2022/07/25/us/oak-fire-yosemite-california.html?searchResultPosition=4
 
 **Splitting T. Rex Into 3 Species Becomes a Dinosaur Royal Rumble**\
