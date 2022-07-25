@@ -20,7 +20,7 @@ https://nytimes.com/2022/07/25/travel/italy-puglia-salento.html?searchResultPosi
 
 **Sharp Contrasts With Other Jan. 6 Inquiries Increase Pressure on Garland**\
 `The continued revelations from the House select committee and the rapid pace of the Georgia investigation have left the Justice Department on the defensive.`\
-https://nytimes.com/2022/07/25/us/politics/sharp-contrasts-with-other-jan-6-inquiries-increase-pressure-on-garland.html?searchResultPosition=6
+https://nytimes.com/2022/07/25/us/politics/jan-6-justice-department-garland.html?searchResultPosition=6
 
 **His Audio Speakers Are Coveted by Supreme, Mark Ronson and Prada**\
 `Devon Turnbull is the founder of Ojas, a high-end audio company. Previously, he was the streetwear pioneer behind Nom de Guerre.`\
