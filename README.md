@@ -1,4 +1,4 @@
-**Michael Long, N.Y. Conservative Party Stalwart, Dies at 82**\
+**Michael R. Long, N.Y. Conservative Party Stalwart, Dies at 82**\
 `His endorsement of George E. Pataki in 1994 helped elect the state’s only Republican governor in 50 years.`\
 https://nytimes.com/2022/07/25/nyregion/michael-long-dead.html?searchResultPosition=1
 
