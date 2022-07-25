@@ -1,6 +1,6 @@
 **What’s Beyoncé’s Definitive Album?**\
 `With the superstar’s seventh solo studio album, “Renaissance,” due Friday, our critics and reporters debate which work from her past reveals the most about her artistic vision.`\
-https://nytimes.com/2022/07/25/arts/music/beyonce-albums.html?searchResultPosition=1
+https://nytimes.com/2022/07/25/arts/music/beyonce-albums-renaissance.html?searchResultPosition=1
 
 **The Hosts of ‘5-4’ Never Trusted the Supreme Court**\
 `With public confidence in the top judicial body at a record low, a leftist podcast is preaching to a growing choir.`\
