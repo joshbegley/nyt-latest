@@ -4,7 +4,7 @@ https://nytimes.com/video/world/americas/100000008459873/pope-francis-apology-in
 
 **The Monkeypox Emergency**\
 `The U.S. may have missed the opportunity to contain the largest monkeypox outbreak in the country.`\
-https://nytimes.com/2022/07/25/briefing/the-monkeypox-emergency.html?searchResultPosition=2
+https://nytimes.com/2022/07/25/briefing/monkeypox-emergency.html?searchResultPosition=2
 
 **As Monkeypox Spread in New York, 300,000 Vaccine Doses Sat in Denmark**\
 `The federal government adopted a wait-and-see response to the monkeypox outbreak, calling for more vaccines to be delivered only after cases were growing exponentially.`\
