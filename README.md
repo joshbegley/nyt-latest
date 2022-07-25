@@ -24,7 +24,7 @@ https://nytimes.com/2022/07/25/us/politics/sharp-contrasts-with-other-jan-6-inqu
 
 **His Audio Speakers Are Coveted by Supreme, Mark Ronson and Prada**\
 `Devon Turnbull is the founder of Ojas, a high-end audio company. Previously, he was the streetwear pioneer behind Nom de Guerre.`\
-https://nytimes.com/2022/07/25/style/his-audio-speakers-are-coveted-by-supreme-mark-ronson-and-prada.html?searchResultPosition=7
+https://nytimes.com/2022/07/25/style/devon-turnbull-ojas-speakers.html?searchResultPosition=7
 
 **QAnon Candidates Aren’t Thriving, but Some of Their Ideas Are**\
 `While few with ties to the conspiracy theory are winning their primaries, themes pushed by QAnon followers have become Republican talking points.`\
