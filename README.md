@@ -1,40 +1,40 @@
+**Ex-congressman, banker and F.B.I. trainee are charged with insider trading.**\
+`The federal authorities filed criminal and civil charges against nine people in a series of unrelated cases that netted more than $7 million in gains from trading ahead of corporate mergers.`\
+https://nytimes.com/2022/07/25/business/sec-insider-trading.html?searchResultPosition=1
+
 **In Robert Lowell’s ‘Memoirs,’ Mental Illness, Creative Friends and a Takedown of Dad**\
 `The poet’s memoirs are “densely yet nimbly written, and you sense Lowell’s judgment and discrimination in every paragraph,” our critic says.`\
-https://nytimes.com/2022/07/25/books/review-robert-lowell-memoirs.html?searchResultPosition=1
+https://nytimes.com/2022/07/25/books/review-robert-lowell-memoirs.html?searchResultPosition=2
 
 **Why Euro 2022 Is One-Stop Shopping for Europe’s Biggest Clubs**\
 `Most of the continent’s richest teams do not employ a single full-time women’s scout. Others outsource recruitment to agents. The Euros have offered a rare chance to study up.`\
-https://nytimes.com/2022/07/25/sports/soccer/england-sweden-uefa-euro-2022.html?searchResultPosition=2
+https://nytimes.com/2022/07/25/sports/soccer/england-sweden-uefa-euro-2022.html?searchResultPosition=3
 
 **Lizzo Earns Her Second No. 1 Song: ‘About Damn Time’**\
 `The singer and rapper’s disco-tinged hit follows her 2019 smash “Truth Hurts” to the top of the Hot 100. Her album debuts at No. 2.`\
-https://nytimes.com/2022/07/25/arts/music/lizzo-about-damn-time-billboard-chart.html?searchResultPosition=3
+https://nytimes.com/2022/07/25/arts/music/lizzo-about-damn-time-billboard-chart.html?searchResultPosition=4
 
 **Justice Department sues poultry processors over unlawful labor practices.**\
 `The department said three major processors participated in a decades-long scheme to suppress wages and stifle competition.`\
-https://nytimes.com/2022/07/25/business/justice-department-poultry-suit.html?searchResultPosition=4
+https://nytimes.com/2022/07/25/business/justice-department-poultry-suit.html?searchResultPosition=5
 
 **Prosecutor Is Barred From Pursuing Criminal Case Against Trump Ally**\
 `A judge in Atlanta cited a conflict of interest on the part of Fani T. Willis. Her broader investigation into election meddling will continue.`\
-https://nytimes.com/2022/07/25/us/georgia-prosecutor-fani-willis-trump.html?searchResultPosition=5
+https://nytimes.com/2022/07/25/us/georgia-prosecutor-fani-willis-trump.html?searchResultPosition=6
 
 **Scoops Go Flying at Catch‘n Ice Cream**\
 `At this NoHo dessert spot, balls of ice cream are mixed with toppings and tossed in the air by servers.`\
-https://nytimes.com/2022/07/25/dining/catchn-ice-cream-nyc.html?searchResultPosition=6
+https://nytimes.com/2022/07/25/dining/catchn-ice-cream-nyc.html?searchResultPosition=7
 
 **A Brooklyn Bishop Is Robbed While Delivering Sunday Sermon**\
 `A trio of armed individuals robbed Lamor M. Whitehead and his wife of more than $1 million worth of their jewelry, police said.`\
-https://nytimes.com/2022/07/25/nyregion/brooklyn-bishop-jewelry-robbery.html?searchResultPosition=7
+https://nytimes.com/2022/07/25/nyregion/brooklyn-bishop-jewelry-robbery.html?searchResultPosition=8
 
 **Vying to Lead Britain, Candidates for Prime Minister Emulate Another: Thatcher**\
 `Rishi Sunak and Liz Truss have tried to adopt the style and themes of Margaret Thatcher, the Iron Lady whose sweeping right-wing policies remain popular among Conservative voters.`\
-https://nytimes.com/2022/07/25/world/europe/britain-sunak-truss-thatcher.html?searchResultPosition=8
+https://nytimes.com/2022/07/25/world/europe/britain-sunak-truss-thatcher.html?searchResultPosition=9
 
 **Meal Kits From James Beard Chefs-in-Training**\
 `Part of a Beard House chef residency includes creating a meal kit with dinner for two.`\
-https://nytimes.com/2022/07/25/dining/meal-kits-james-beard-foundation.html?searchResultPosition=9
-
-**The Jackie Robinson Museum Is About a Lot More Than Baseball**\
-`Robinson accomplished a great deal on the field, but a museum celebrating his life — that will have a ribbon-cutting this week — puts as much focus on his civil rights work.`\
-https://nytimes.com/2022/07/25/sports/baseball/jackie-robinson-museum.html?searchResultPosition=10
+https://nytimes.com/2022/07/25/dining/meal-kits-james-beard-foundation.html?searchResultPosition=10
 
