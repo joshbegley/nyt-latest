@@ -10,7 +10,7 @@ https://nytimes.com/slideshow/2022/07/25/dining/yakitori-nyc-kono.html?searchRes
 `The loan will help the automaker and its supplier build electric vehicle battery factories in Ohio, Tennessee and Michigan.`\
 https://nytimes.com/2022/07/25/business/energy-department-gm-lg-battery-loan.html?searchResultPosition=3
 
-**Rikers Island Guards Charged With Misconduct in Teen’s 2019 Attempted Suicide**\
+**Rikers Island Guards Charged With Misconduct in Teen’s Attempted Suicide**\
 `The New York City correction officers and a captain stood by for nearly eight minutes as Nicholas Feliciano tried to hang himself in a jail cell.`\
 https://nytimes.com/2022/07/25/nyregion/rikers-guards-charged-hanging.html?searchResultPosition=4
 
