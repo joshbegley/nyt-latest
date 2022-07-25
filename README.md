@@ -12,7 +12,7 @@ https://nytimes.com/2022/07/25/dining/la-boite-newsletter-recipes.html?searchRes
 
 **Several People Are Injured in Shootings in British Columbia**\
 `The Royal Canadian Mounted Police responded to gunshots in at least three locations in Langley, southeast of Vancouver. A man was in custody, the authorities said.`\
-https://nytimes.com/2022/07/25/world/americas/langley-shooting-britsh-columbia.html?searchResultPosition=4
+https://nytimes.com/2022/07/25/world/americas/langley-shooting-british-columbia.html?searchResultPosition=4
 
 **Russia Announces Deeper Cuts in Natural Gas Flows to Germany**\
 `Gazprom, Russia’s state energy giant, said it would halve the amount of gas it sends to Germany through the Nord Stream 1 pipeline, bringing it down to 20 percent of capacity.`\
