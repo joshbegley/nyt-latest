@@ -1,6 +1,6 @@
 **Biden Rule Would Strengthen Health Protections for Gay and Transgender People**\
 `The proposed rule would prohibit discrimination on the basis of sexual orientation and gender identity by health care providers that receive federal funding.`\
-https://nytimes.com/2022/07/25/us/politics/biden-rule-would-strengthen-health-protections-for-gay-and-transgender-people.html?searchResultPosition=1
+https://nytimes.com/2022/07/25/us/politics/biden-gay-transgender-health.html?searchResultPosition=1
 
 **Sandy Hook Parents to Testify Against Alex Jones, and a Culture of Lies**\
 `The families of 10 victims have waited years to hold the Infowars conspiracist and the political environment that enabled him to account.`\
