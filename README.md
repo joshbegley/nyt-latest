@@ -16,7 +16,7 @@ https://nytimes.com/2022/07/25/podcasts/the-daily/cryptocurrency-celsius-network
 
 **Dimes Square Gets the Hotel It Deserves**\
 `Nine Orchard is a boutique destination for a neighborhood that isn’t sure it’s a neighborhood.`\
-https://nytimes.com/2022/07/25/style/dimes-square-gets-the-hotel-it-deserves.html?searchResultPosition=5
+https://nytimes.com/2022/07/25/style/dimes-square-nine-orchard-hotel.html?searchResultPosition=5
 
 **Going Where the Wind Blows in Italy’s Salento**\
 `In this southernmost region of the country’s boot, the Ionian Sea is to the west, the Adriatic to the east, and the countryside is filled with stone walls and twisted olive trees, fields of long golden grass and wildflowers.`\
