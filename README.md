@@ -30,8 +30,8 @@ https://nytimes.com/2022/07/25/world/americas/langley-shooting-british-columbia.
 `Gazprom, Russia’s state energy giant, said it would halve the amount of gas it sends to Germany through the Nord Stream 1 pipeline, bringing it down to 20 percent of capacity.`\
 https://nytimes.com/2022/07/25/business/russia-gazprom-germany-gas.html?searchResultPosition=8
 
-**Watch Live: Pope to Apologize to Canada’s Indigenous Communities**\
-`The Roman Catholic leader is expected to apologize for the church’s role in running boarding schools where Indigenous children were sexually and physically abused and where many died.`\
+**Watch Live: Pope Apologizes to Canada’s Indigenous Communities**\
+`The Roman Catholic leader apologizes for the church’s role in running boarding schools where Indigenous children were sexually and physically abused and where many died.`\
 https://nytimes.com/video/world/americas/100000008459066/watch-live-pope-to-apologize-to-canadas-indigenous-communities.html?searchResultPosition=9
 
 **Biden Feeling Better as He Seeks to Show He Is Still Working With Covid**\
