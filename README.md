@@ -19,7 +19,7 @@ https://nytimes.com/2022/07/25/dining/rumrunning-in-suffolk-county-amy-kasuga-fo
 https://nytimes.com/2022/07/25/dining/the-better-bagel.html?searchResultPosition=5
 
 **Joni Mitchell Performs Surprise Show at Newport Folk Festival**\
-`The artist performed a full set at the renowned festival in Rhode Island on Sunday, her first in about two decades.`\
+`The 78-year-old artist performed a full set, her first in about two decades, at the renowned festival in Rhode Island on Sunday.`\
 https://nytimes.com/2022/07/25/us/joni-mitchell-newport-folk-festival.html?searchResultPosition=6
 
 **Biden Says He’s on His Way to a ‘Full, Total Recovery’ from Covid**\
