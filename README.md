@@ -1,4 +1,4 @@
-**Russia Says It Will Quit the International Space Station in 2024**\
+**Russia Says It Will Quit the International Space Station After 2024**\
 `The announcement could lead to the end of two decades of post-Cold War cooperation in space between the United States and Russia, which built the station together and operate it jointly.`\
 https://nytimes.com/2022/07/26/science/russia-space-station.html?searchResultPosition=1
 
