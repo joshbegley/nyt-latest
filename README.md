@@ -1,40 +1,40 @@
+**A Novel About Riding and Seeking**\
+`“The Boys” begins with a letter from a bike touring company, asking the main character not to sign up for another trip. Why?`\
+https://nytimes.com/2022/07/26/books/review/the-boys-katie-hafner.html?searchResultPosition=1
+
 **Mike Pence urges conservatives to look forward as a Trump-shaped cloud hovers behind him.**\
 `Mr. Pence, speaking in Washington hours before Donald Trump was set to do the same, tried to draw distinctions with the former president after a week of revelations related to Jan. 6, 2021.`\
-https://nytimes.com/2022/07/26/us/politics/mike-pence-urges-conservatives-to-look-forward-as-a-trump-shaped-cloud-hovers-behind-him.html?searchResultPosition=1
+https://nytimes.com/2022/07/26/us/politics/mike-pence-trump-speech-washington.html?searchResultPosition=2
 
 **Record Rainfall Triggers Flash Floods in St. Louis Area**\
 `Officials reported rescues from residences and submerged vehicles.`\
-https://nytimes.com/video/us/100000008460460/st-louis-missouri-flash-floods-rain.html?searchResultPosition=2
+https://nytimes.com/video/us/100000008460460/st-louis-missouri-flash-floods-rain.html?searchResultPosition=3
 
 **Summer Reading Contest Winner Week 5: On ‘One Small Step for Democracy in a “Live Free or Die” Town’**\
 `Thank you to the teenagers who participated this week, and congratulations to our winner, Daniel Wei, as well as our many runners-up and honorable mentions.`\
-https://nytimes.com/2022/07/26/learning/summer-reading-contest-winner-week-5-on-one-small-step-for-democracy-in-a-live-free-or-die-town.html?searchResultPosition=3
+https://nytimes.com/2022/07/26/learning/summer-reading-contest-winner-week-5-on-one-small-step-for-democracy-in-a-live-free-or-die-town.html?searchResultPosition=4
 
 **‘Operating With Increased Intensity’: Zuckerberg Leads Meta Into Next Phase**\
 `Facebook’s founder is setting a relentless pace as he pushes his company through a tech transformation during a global economic slowdown.`\
-https://nytimes.com/2022/07/26/technology/zuckerberg-meta-facebook-earnings.html?searchResultPosition=4
+https://nytimes.com/2022/07/26/technology/zuckerberg-meta-facebook-earnings.html?searchResultPosition=5
 
 **The Race to Beat Kyiv’s Curfew**\
 `The party is back on in Kyiv and young people are going out in droves for the first time since the war began. But a strict nighttime curfew lingers.`\
-https://nytimes.com/interactive/2022/07/26/world/europe/kyiv-war-nightlife.html?searchResultPosition=5
+https://nytimes.com/interactive/2022/07/26/world/europe/kyiv-war-nightlife.html?searchResultPosition=6
 
 **How Is Climate Change Affecting Floods?**\
 `Like other extreme weather disasters, flooding involves a number of competing factors that may affect its frequency and intensity.`\
-https://nytimes.com/article/flooding-climate-change.html?searchResultPosition=6
+https://nytimes.com/article/flooding-climate-change.html?searchResultPosition=7
 
 **U.S. Authors Dominate Booker Prize Nominees**\
 `Six of the 13 writers in contention for the prestigious British literary award are from the United States, with novelists from Britain, Ireland and Zimbabwe also on the list.`\
-https://nytimes.com/2022/07/26/books/booker-prize-longlist-fowler-strout.html?searchResultPosition=7
+https://nytimes.com/2022/07/26/books/booker-prize-longlist-fowler-strout.html?searchResultPosition=8
 
 **Democrats Aid Far-Right Candidate Against Republican Who Backed Impeachment**\
 `A new ad for John Gibbs in his primary against Representative Peter Meijer in Michigan is the latest Democratic effort to highlight candidates they think will be easier to beat this fall.`\
-https://nytimes.com/2022/07/26/us/politics/democrats-john-gibbs-peter-meijer.html?searchResultPosition=8
+https://nytimes.com/2022/07/26/us/politics/democrats-john-gibbs-peter-meijer.html?searchResultPosition=9
 
 **Russia Says It Will Quit the International Space Station After 2024**\
 `The announcement could lead to the end of two decades of post-Cold War cooperation in space between the United States and Russia, which jointly built and operate the station.`\
-https://nytimes.com/2022/07/26/science/russia-space-station.html?searchResultPosition=9
-
-**The Choco Taco, Ice Cream Snack of American Summers, Is Discontinued**\
-`A fixture of ice cream trucks and convenience stores is no more after Klondike said it would focus on other products.`\
-https://nytimes.com/2022/07/26/business/choco-taco-klondike-discontinued.html?searchResultPosition=10
+https://nytimes.com/2022/07/26/science/russia-space-station.html?searchResultPosition=10
 
