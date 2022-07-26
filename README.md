@@ -19,7 +19,7 @@ https://nytimes.com/2022/07/26/books/booker-prize-longlist-fowler-strout.html?se
 https://nytimes.com/2022/07/26/us/politics/democrats-john-gibbs-peter-meijer.html?searchResultPosition=5
 
 **Russia Says It Will Quit the International Space Station After 2024**\
-`The announcement could lead to the end of two decades of post-Cold War cooperation in space between the United States and Russia, which built the station together and operate it jointly.`\
+`The announcement could lead to the end of two decades of post-Cold War cooperation in space between the United States and Russia, which jointly built and operate the station.`\
 https://nytimes.com/2022/07/26/science/russia-space-station.html?searchResultPosition=6
 
 **The Choco Taco, Ice Cream Snack of American Summers, Is Discontinued**\
