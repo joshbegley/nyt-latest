@@ -1,6 +1,6 @@
 **‘Operating With Increased Intensity’: Zuckerberg Leads Meta Into Next Phase**\
 `Facebook’s founder is setting a relentless pace as he pushes his company through a tech transformation during a global economic slowdown.`\
-https://nytimes.com/2022/07/26/technology/operating-with-increased-intensity-zuckerberg-leads-meta-into-next-phase.html?searchResultPosition=1
+https://nytimes.com/2022/07/26/technology/zuckerberg-meta-facebook-earnings.html?searchResultPosition=1
 
 **The Race to Beat Kyiv’s Curfew**\
 `The party is back on in Kyiv and young people are going out in droves for the first time since the war began. But a strict nighttime curfew lingers.`\
