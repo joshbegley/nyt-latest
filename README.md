@@ -22,19 +22,19 @@ https://nytimes.com/2022/07/26/dining/nyc-restaurant-news.html?searchResultPosit
 `The Treasury Department is investigating whether the crypto exchange allowed users in Iran to buy and sell digital tokens, said people with knowledge of the matter.`\
 https://nytimes.com/2022/07/26/technology/kraken-crypto-iran.html?searchResultPosition=6
 
+**Shopify is laying off 10 percent of its workers.**\
+`The e-commerce platform made the “wrong” bet on the continued boom in online shopping, the chief executive said in a memo to employees.`\
+https://nytimes.com/2022/07/26/business/shopify-layoffs.html?searchResultPosition=7
+
 **‘Dangerous’ Heat Engulfs the Pacific Northwest**\
 `The region is preparing for consecutive days of 100-degree heat.`\
-https://nytimes.com/2022/07/26/us/pacific-northwest-heat-warnings.html?searchResultPosition=7
+https://nytimes.com/2022/07/26/us/pacific-northwest-heat-warnings.html?searchResultPosition=8
 
 **‘Kind of Wild/Creative’: Emails Shed Light on Trump Fake Electors Plan**\
 `Previously undisclosed communications among Trump campaign aides and outside advisers provide new insight into their efforts to overturn the election in the weeks leading to Jan. 6.`\
-https://nytimes.com/2022/07/26/us/politics/trump-fake-electors-emails.html?searchResultPosition=8
+https://nytimes.com/2022/07/26/us/politics/trump-fake-electors-emails.html?searchResultPosition=9
 
 **Tony Dow, Big Brother Wally on ‘Leave It to Beaver,’ Dies at 77**\
 `He went on to a varied career as an actor, director, producer and sculptor, but he could never shake his association with the sitcom that brought him stardom.`\
-https://nytimes.com/2022/07/26/arts/television/tony-dow-dead.html?searchResultPosition=9
-
-**A Lawsuit Claims Skittles Are Unfit for Consumption. Experts Weigh In.**\
-`They contain the food additive titanium dioxide, which is in thousands of food products. Here’s what we learned about its safety.`\
-https://nytimes.com/2022/07/26/well/eat/skittles-lawsuit-titanium-dioxide.html?searchResultPosition=10
+https://nytimes.com/2022/07/26/arts/television/tony-dow-dead.html?searchResultPosition=10
 
