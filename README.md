@@ -2,7 +2,7 @@
 `Previously undisclosed communications among Trump campaign aides and outside advisers provide new insight into their efforts to overturn the election in the weeks leading to Jan. 6.`\
 https://nytimes.com/2022/07/26/us/politics/trump-fake-electors-emails.html?searchResultPosition=1
 
-**Tony Dow, the Big Brother on ‘Leave It to Beaver,’ Dies at 77**\
+**Tony Dow, Big Brother Wally on ‘Leave It to Beaver,’ Dies at 77**\
 `He went on to a varied career as an actor, director, producer and sculptor, but he could never shake his association with the sitcom that brought him stardom.`\
 https://nytimes.com/2022/07/26/arts/television/tony-dow-dead.html?searchResultPosition=2
 
