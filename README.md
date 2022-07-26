@@ -10,31 +10,31 @@ https://nytimes.com/2022/07/26/business/inflation-shopping-habits-unilever.html?
 `Jim Bintliff collects the Delaware River mud that is smeared on Major League baseballs to make them less slippery. But that tradition is in jeopardy.`\
 https://nytimes.com/2022/07/26/sports/baseball/baseball-mud-supplier.html?searchResultPosition=3
 
+**Brittney Griner’s lawyers argue for leniency as she makes her case in a Russian court.**\
+`The W.N.B.A. star had not intended to smuggle narcotics into Russia, her legal team said, adding that, like many other international athletes, she had used cannabis to help ease pain from injuries.`\
+https://nytimes.com/2022/07/26/world/europe/brittney-griner-russia-court.html?searchResultPosition=4
+
 **A Global Inflation Crisis**\
 `Big price increases are not exclusive to the U.S.`\
-https://nytimes.com/2022/07/26/briefing/inflation-prices-ukraine-economy.html?searchResultPosition=4
+https://nytimes.com/2022/07/26/briefing/inflation-prices-ukraine-economy.html?searchResultPosition=5
 
 **Hotter, Longer and More Widespread Heat Waves Scorch China**\
 `More than 70 weather stations across the country have recorded their highest temperatures ever in recent weeks.`\
-https://nytimes.com/2022/07/26/world/asia/china-heat-wave.html?searchResultPosition=5
+https://nytimes.com/2022/07/26/world/asia/china-heat-wave.html?searchResultPosition=6
 
 **How Roe’s Demise Could Safeguard Gay Marriage**\
 `A bill to protect marriage equality might now, improbably, become law.`\
-https://nytimes.com/2022/07/26/podcasts/the-daily/abortion-roe-dobbs-gay-marriage.html?searchResultPosition=6
+https://nytimes.com/2022/07/26/podcasts/the-daily/abortion-roe-dobbs-gay-marriage.html?searchResultPosition=7
 
 **Are Runners Getting Faster, Faster?**\
 `Some have referred to this period as a golden age of people running fast. But a deeper look at the data shows that the simple shorthand conclusion that everybody is getting faster is incomplete.`\
-https://nytimes.com/2022/07/26/sports/are-runners-getting-faster-faster.html?searchResultPosition=7
+https://nytimes.com/2022/07/26/sports/are-runners-getting-faster-faster.html?searchResultPosition=8
 
 **He Didn’t Plan to Buy a Place on Fire Island. But This Was No Ordinary Home.**\
 `If I.M. Pei’s Louvre Pyramid was a shingled beach house in the Pines, it might look something like this. How could he resist?`\
-https://nytimes.com/2022/07/26/realestate/fire-island-house.html?searchResultPosition=8
+https://nytimes.com/2022/07/26/realestate/fire-island-house.html?searchResultPosition=9
 
 **Decorating a Pyramidal House in the Pines**\
 `If I.M. Pei’s Louvre Pyramid was a shingled beach house in the Pines, it might look something like this.`\
-https://nytimes.com/slideshow/2022/07/26/realestate/decorating-a-pyramidal-house-in-the-pines.html?searchResultPosition=9
-
-**With ‘Surface,’ Gugu Mbatha-Raw Steps Into New Territory**\
-`The British actress has been prolific in film and television for the past decade, but a new Apple TV+ show is her first time as an executive producer.`\
-https://nytimes.com/2022/07/26/arts/television/gugu-mbatha-raw-surface.html?searchResultPosition=10
+https://nytimes.com/slideshow/2022/07/26/realestate/decorating-a-pyramidal-house-in-the-pines.html?searchResultPosition=10
 
