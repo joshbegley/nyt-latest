@@ -32,7 +32,7 @@ https://nytimes.com/2022/07/26/science/space/buzz-aldrin-memorabilia-auction.htm
 
 **Microsoft reports earnings that fall short of already-reduced expectations.**\
 `The tech giant cited the strong U.S. dollar, falling consumer demand and production slowdowns of PCs for its performance.`\
-https://nytimes.com/2022/07/26/technology/microsoft-reports-earnings-that-fall-short-of-already-reduced-expectations.html?searchResultPosition=9
+https://nytimes.com/2022/07/26/technology/microsoft-earnings.html?searchResultPosition=9
 
 **The Power of Negative Thinking**\
 `Need permission to be a grump — or just a normal human being who isn’t smiling all the time? Read these books.`\
