@@ -10,8 +10,8 @@ https://nytimes.com/2022/07/26/business/ecb-rate-increase-wunsch.html?searchResu
 `A conversation with journalist Sean Illing.`\
 https://nytimes.com/2022/07/26/podcasts/transcript-ezra-klein-interviews-sean-illing.html?searchResultPosition=3
 
-**Flash Floods Swamp St. Louis Area**\
-`Torrential rain fell overnight in Missouri and south-central Illinois.`\
+**Flash Floods Swamp St. Louis Area, Breaking a Century-Old Rain Record**\
+`More than seven inches of rain fell Tuesday in St. Louis, with meteorologists expecting more before it moves out by noon.`\
 https://nytimes.com/2022/07/26/us/flash-flooding-st-louis-missouri.html?searchResultPosition=4
 
 **G.M. Profit Falls 40 Percent as Costs Rise and Chips Are Lacking**\
