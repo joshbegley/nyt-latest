@@ -1,5 +1,5 @@
 **England Strolls to Wembley With Three Goals and One Stunner**\
-`Alessia Russo’s backheel delivered the third of England’s four goals, and helped her team rout Sweden and storm into Sunday’s Euro 2022 final.`\
+`Alessia Russo’s backheel helped her team rout Sweden and storm into Sunday’s Euro 2022 final.`\
 https://nytimes.com/2022/07/26/sports/soccer/england-sweden-alessia-russo.html?searchResultPosition=1
 
 **Joni Mitchell Reclaims Her Voice at Newport**\
