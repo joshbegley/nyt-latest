@@ -7,7 +7,7 @@ https://nytimes.com/2022/07/26/realestate/fire-island-house.html?searchResultPos
 https://nytimes.com/slideshow/2022/07/26/realestate/decorating-a-pyramidal-house-in-the-pines.html?searchResultPosition=2
 
 **With ‘Surface,’ Gugu Mbatha-Raw Steps Into New Territory**\
-`The British actress, 39, has been prolific in film and television for the past decade, but a new Apple TV+ show is her first time producing.`\
+`The British actress, 39, has been prolific in film and television for the past decade, but a new Apple TV+ show is her first time as an executive producer.`\
 https://nytimes.com/2022/07/26/arts/television/gugu-mbatha-raw-surface.html?searchResultPosition=3
 
 **Melting Profits Threaten the Ice Cream Man**\
