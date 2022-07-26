@@ -36,5 +36,5 @@ https://nytimes.com/2022/07/25/us/politics/china-taiwan-biden-pelosi.html?search
 
 **The Dystopian Myths of Red America**\
 `The Big Lie about the election is embedded in an even bigger lie.`\
-https://nytimes.com/2022/07/25/opinion/the-dystopian-myths-of-red-america.html?searchResultPosition=10
+https://nytimes.com/2022/07/25/opinion/red-america.html?searchResultPosition=10
 
