@@ -8,7 +8,7 @@ https://nytimes.com/2022/07/26/books/review/mercury-pictures-presents-anthony-ma
 
 **Buzz Aldrin’s Space Memorabilia Sells for More Than $8 Million**\
 `A jacket that the astronaut wore during the Apollo 11 mission to the moon in 1969 and his Presidential Medal of Freedom were among the items auctioned off by Sotheby’s in New York City.`\
-https://nytimes.com/2022/07/26/science/buzz-aldrin-memorabilia-auction.html?searchResultPosition=3
+https://nytimes.com/2022/07/26/science/space/buzz-aldrin-memorabilia-auction.html?searchResultPosition=3
 
 **Microsoft reports earnings that fall short of already-reduced expectations.**\
 `The tech giant cited the strong U.S. dollar, falling consumer demand and production slowdowns of PCs for its performance.`\
