@@ -31,8 +31,8 @@ https://nytimes.com/2022/07/26/world/asia/china-heat-wave.html?searchResultPosit
 https://nytimes.com/2022/07/26/podcasts/the-daily/abortion-roe-dobbs-gay-marriage.html?searchResultPosition=8
 
 **Records Fell at the Track Worlds. A Trend? Not So Fast.**\
-`Some have referred to this era as a golden age of people running fast. But a deeper look at the data shows that the simple shorthand conclusion that everybody is getting faster is incomplete.`\
-https://nytimes.com/2022/07/26/sports/are-runners-getting-faster-faster.html?searchResultPosition=9
+`Some have referred to this era as a golden age of better and better times. But a deeper look at the data shows the simple shorthand conclusion is incomplete.`\
+https://nytimes.com/2022/07/26/sports/olympics/track-world-records.html?searchResultPosition=9
 
 **He Didn’t Plan to Buy a Place on Fire Island. But This Was No Ordinary Home.**\
 `If I.M. Pei’s Louvre Pyramid was a shingled beach house in the Pines, it might look something like this. How could he resist?`\
