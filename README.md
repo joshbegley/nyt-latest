@@ -32,7 +32,7 @@ https://nytimes.com/2022/07/26/business/speculative-development-building-warehou
 
 **The I.M.F. warns that a global recession could soon be at hand.**\
 `The International Monetary Fund downgraded its growth forecasts and projected higher inflation around the world.`\
-https://nytimes.com/2022/07/26/business/imf-world-economic-outlook.html?searchResultPosition=9
+https://nytimes.com/2022/07/26/business/imf-world-economy.html?searchResultPosition=9
 
 **Will China Move on Taiwan?**\
 `An escalation from Beijing would have far-reaching economic consequences.`\
