@@ -18,7 +18,7 @@ https://nytimes.com/2022/07/26/business/inflation-shopping-habits-unilever.html?
 `Jim Bintliff collects the Delaware River mud that is smeared on Major League baseballs to make them less slippery. But that tradition is in jeopardy.`\
 https://nytimes.com/2022/07/26/sports/baseball/baseball-mud-supplier.html?searchResultPosition=5
 
-**Brittney Griner’s lawyers argue for leniency as she makes her case in a Russian court.**\
+**Brittney Griner’s Lawyers Argue for Leniency in Russian Court**\
 `The W.N.B.A. star had not intended to smuggle narcotics into Russia, her legal team said, adding that, like many other international athletes, she had used cannabis to help ease pain from injuries.`\
 https://nytimes.com/2022/07/26/world/europe/brittney-griner-russia-court.html?searchResultPosition=6
 
