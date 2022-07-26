@@ -4,7 +4,7 @@ https://nytimes.com/2022/07/26/opinion/biden-oil.html?searchResultPosition=1
 
 **Facing ‘Putin’s Energy Blackmail,’ Europe Agrees to Cut Russian Gas Use**\
 `Holding together despite some nations’ dependence on Russia, the European Union agreed to make voluntary savings mandatory if the Kremlin suddenly decides to turn off the taps over its invasion of Ukraine.`\
-https://nytimes.com/2022/07/26/world/europe/european-union-russia-gas-cuts.html?searchResultPosition=2
+https://nytimes.com/2022/07/26/world/europe/russia-gas-cuts-putin-eu.html?searchResultPosition=2
 
 **Our Leaderless Free World**\
 `Biden seems to be mastering the trick of turning lemonade into lemons.`\
