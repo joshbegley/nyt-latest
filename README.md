@@ -34,7 +34,7 @@ https://nytimes.com/2022/07/27/technology/tech-winners.html?searchResultPosition
 `A four-time All-Star has another split with a W.N.B.A. team.`\
 https://nytimes.com/2022/07/27/sports/basketball/liz-cambage-los-angeles-sparks.html?searchResultPosition=9
 
-**Ex-Officer Who Helped Pin George Floyd Is Sentenced to Prison**\
-`A judge sentenced J. Alexander Kueng, who held Mr. Floyd down with his knee, to three years in prison. Another officer is expected to be sentenced soon.`\
+**Last 2 Officers Involved in George Floyd’s Death Are Sentenced to Prison**\
+`A judge sentenced J. Alexander Kueng, who helped hold Mr. Floyd down, to three years, and Tou Thao, who kept bystanders away, to three and a half years.`\
 https://nytimes.com/2022/07/27/us/george-floyd-j-alexander-kueng.html?searchResultPosition=10
 
