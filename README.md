@@ -1,6 +1,6 @@
 **Why Do LIV Golfers Struggle to Explain Why They Left the PGA Tour?**\
 `The latest golfers to join the Saudi-backed series were vague and defensive in the face of hard questions about guaranteed money and human-rights issues.`\
-https://nytimes.com/2022/07/27/sports/golf/liv-trump-bedminster-casey.html?searchResultPosition=1
+https://nytimes.com/2022/07/27/sports/golf/liv-golfers-pga.html?searchResultPosition=1
 
 **NASA Will Send More Helicopters to Mars**\
 `Instead of sending another rover to help retrieve rock and dirt samples from the red planet and bring them to Earth, the agency will provide the helicopters as a backup option.`\
