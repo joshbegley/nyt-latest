@@ -14,8 +14,8 @@ https://nytimes.com/2022/07/26/crosswords/daily-puzzle-2022-07-27.html?searchRes
 `Federal prosecutors sought information about the former president’s role in the efforts to overturn the election as the inquiry accelerates.`\
 https://nytimes.com/2022/07/26/us/politics/trump-jan-6-justice-department.html?searchResultPosition=4
 
-**Strong Quake Hits Northern Philippines**\
-`The 7.0 magnitude quake on Luzon island caused some structures to collapse, officials said. There were no immediate reports of casualties.`\
+**Strong Quake Hits Northern Philippines, Killing at Least One**\
+`The 7.0 magnitude quake on Luzon island shook buildings on Wednesday and caused some structures to collapse.`\
 https://nytimes.com/2022/07/26/world/asia/philippines-earthquake.html?searchResultPosition=5
 
 **Parents of Sandy Hook Victim at Alex Jones Trial Seek $150 Million in Damages**\
