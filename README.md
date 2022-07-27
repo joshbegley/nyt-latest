@@ -24,7 +24,7 @@ https://nytimes.com/2022/07/27/health/hiv-infections-unaids.html?searchResultPos
 
 **Is Trump in Legal Peril? This Ex-Prosecutor Would Know**\
 `One of the last federal prosecutors to lead an investigation into Donald Trump discussed the challenges of bringing charges against him in the Jan. 6 case.`\
-https://nytimes.com/2022/07/27/us/politics/trump-criminal-charges-andrew-goldstein.html?searchResultPosition=7
+https://nytimes.com/2022/07/27/us/politics/trump-criminal-charges-investigation.html?searchResultPosition=7
 
 **Nobody Talks About How Fracking Was an Extraordinary Boondoggle**\
 `There’s a lesson here on what big investments in clean energy could deliver.`\
