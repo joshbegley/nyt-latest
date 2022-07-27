@@ -11,7 +11,7 @@ https://nytimes.com/2022/07/27/crosswords/spelling-bee-forum.html?searchResultPo
 https://nytimes.com/2022/07/27/arts/television/trevor-noah-is-a-fan-of-pope-francis.html?searchResultPosition=3
 
 **7.0 Magnitude Quake Hits Northern Philippines**\
-`A strong earthquake struck the northern Philippines, killing at least one person and shaking buildings. Tremors were felt in many areas, including Manila, which lead to building evacuations.`\
+`A strong earthquake struck the northern Philippines. Dozens were injured and at least four people were killed.`\
 https://nytimes.com/video/world/asia/100000008462085/earthquake-hits-northern-philippines.html?searchResultPosition=4
 
 **Mario Draghi’s Fall Is a Triumph of Democracy, Not a Threat to It**\
