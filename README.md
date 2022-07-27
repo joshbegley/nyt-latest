@@ -1,5 +1,5 @@
 **Biden Ends Isolation After Testing Negative for Covid**\
-`President Biden urged Americans to get booster shots, use at-home test kits and take antiviral drug treatments to fight against the coronavirus.`\
+`President Biden urged Americans to get booster shots, use at-home test kits and take antiviral drug treatments to fight the coronavirus.`\
 https://nytimes.com/video/us/politics/100000008462796/biden-negative-covid.html?searchResultPosition=1
 
 **Watch Live: Fed Chair Addresses Interest Rate Increase**\
