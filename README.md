@@ -26,8 +26,8 @@ https://nytimes.com/2022/07/27/us/politics/biden-emergency-declarations.html?sea
 `The personal and professional value of friendships at work. Also: Health care costs; climate change; legacy admissions; psychedelics.`\
 https://nytimes.com/2022/07/27/opinion/letters/work-friends.html?searchResultPosition=7
 
-**F.T.C. Files to Block Meta’s Virtual Reality Deal**\
-`The move is a blow to Meta’s metaverse efforts and signals a shift in how the Federal Trade Commission is approaching tech deals.`\
+**F.T.C. Sues to Block Meta’s Virtual Reality Deal**\
+`The move is a potential blow to Meta’s metaverse efforts and signals a shift in how the Federal Trade Commission is approaching tech deals.`\
 https://nytimes.com/2022/07/27/technology/meta-facebook-vr-ftc.html?searchResultPosition=8
 
 **Lufthansa Cancels Nearly All Flights in Frankfurt and Munich, Stranding 130,000 Travelers**\
