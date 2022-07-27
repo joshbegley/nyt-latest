@@ -22,7 +22,7 @@ https://nytimes.com/2022/07/27/world/africa/congo-un-peacekeepers.html?searchRes
 `Gazprom, the Russian energy giant, followed through with its plan to cut gas flows through the Nord Stream 1 pipeline to 20 percent of capacity.`\
 https://nytimes.com/2022/07/27/business/russia-natural-gas-germany.html?searchResultPosition=6
 
-**Brittney Griner appears in a Russian court as her case continues.**\
+**Brittney Griner testifies in a Russian court as her case continues.**\
 `The W.N.B.A. star’s legal team has argued that have argued that the American basketball star did not intend to smuggle drugs into Russia.`\
 https://nytimes.com/2022/07/27/world/europe/brittney-griner-russia-trial.html?searchResultPosition=7
 
