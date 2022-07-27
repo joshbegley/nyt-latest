@@ -15,7 +15,7 @@ https://nytimes.com/2022/07/26/crosswords/daily-puzzle-2022-07-27.html?searchRes
 https://nytimes.com/2022/07/26/us/politics/trump-jan-6-justice-department.html?searchResultPosition=4
 
 **Strong Quake Hits Northern Philippines**\
-`A Philippine agency said the earthquake had a magnitude of 7.3. There were no immediate reports of casualties.`\
+`The 7.0 magnitude quake on Luzon island caused some structures to collapse, officials said. There were no immediate reports of casualties.`\
 https://nytimes.com/2022/07/26/world/asia/philippines-earthquake.html?searchResultPosition=5
 
 **Parents of Sandy Hook Victim at Alex Jones Trial Seek $150 Million in Damages**\
