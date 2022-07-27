@@ -1,6 +1,6 @@
 **Meta reports first revenue decline and 36 percent profit drop.**\
 `It was the first time the social media giant’s revenue had fallen since it went public a decade ago, as it confronts increased regulatory scrutiny and a turbulent economy.`\
-https://nytimes.com/2022/07/27/technology/meta-reports-first-revenue-decline-and-36-percent-profit-drop.html?searchResultPosition=1
+https://nytimes.com/2022/07/27/technology/meta-revenue-decline-2nd-quarter-earnings.html?searchResultPosition=1
 
 **145 Picture Prompts to Inspire Student Writing**\
 `A school year’s worth of short, accessible image-driven posts that invite a variety of kinds of writing.`\
