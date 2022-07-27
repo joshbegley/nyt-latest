@@ -18,13 +18,13 @@ https://nytimes.com/2022/07/27/realestate/stroudsburg-pa-a-small-town-at-the-hea
 `The Monroe County borough has been welcoming city dwellers since long before the pandemic: “People come here and discover a new world.”`\
 https://nytimes.com/slideshow/2022/07/27/realestate/living-in-stroudsburg-pa.html?searchResultPosition=5
 
-**How Bacon and Costco Fish Shape America’s View of Inflation**\
-`Economic policymakers are razor focused on inflation expectations after more than a year of rapid price increases. Consumers explain how they’re thinking about rising costs.`\
-https://nytimes.com/2022/07/27/business/economy/inflation-expectations.html?searchResultPosition=6
-
 **Alabama Takes From the Poor and Gives to the Rich**\
 `How fines and fees trap people in a kind of penury from which they may never escape.`\
-https://nytimes.com/2022/07/27/opinion/alabama-fines-fees.html?searchResultPosition=7
+https://nytimes.com/2022/07/27/opinion/alabama-fines-fees.html?searchResultPosition=6
+
+**How Bacon and Costco Fish Shape America’s View of Inflation**\
+`Economic policymakers are razor focused on inflation expectations after more than a year of rapid price increases. Consumers explain how they’re thinking about rising costs.`\
+https://nytimes.com/2022/07/27/business/economy/inflation-expectations.html?searchResultPosition=7
 
 **Class Divisions Harden Into Battle Lines in Arizona’s Republican Primary**\
 `The race has highlighted the gap between G.O.P. voters who have profited from Arizona’s prosperity, and those who feel left out and are eager to punish the Republican establishment at the polls.`\
