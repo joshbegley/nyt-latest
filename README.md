@@ -1,4 +1,4 @@
-**Lufthansa Cancels Virtually All Flights in Frankfurt and Munich, Stranding More Than 130,000 Travelers**\
+**Lufthansa Cancels Nearly All Flights in Frankfurt and Munich, Stranding 130,000 Travelers**\
 `The cancellations were announced after 3,000 employees walked off the job to protest for better wages.`\
 https://nytimes.com/2022/07/27/business/lufthansa-flights-canceled.html?searchResultPosition=1
 
