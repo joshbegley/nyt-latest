@@ -1,6 +1,6 @@
 **Protesters Storm Iraqi Parliament**\
 `No lawmakers were present when the demonstrators, who were mostly followers of the Shiite cleric Moktada al-Sadr, were in the building.`\
-https://nytimes.com/2022/07/27/world/middleeast/protesters-storm-iraqi-parliament.html?searchResultPosition=1
+https://nytimes.com/2022/07/27/world/middleeast/iraq-parliament-protests.html?searchResultPosition=1
 
 **Review: Dormeshia Coasts on Her Tap Mastery in ‘Rhythm Is Life’**\
 `A jazz trio and three other dancers join Dormeshia for a classy, classic program filled with swing.`\
