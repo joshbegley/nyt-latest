@@ -1,5 +1,5 @@
 **Federal Reserve Raises Interest Rate for the Fourth Time in 2022**\
-`In an effort to wrestle inflation under control, Federal Reserve officials voted unanimously to raise interest rates by three quarters of a percentage point.`\
+`In an effort to wrestle inflation under control, Federal Reserve officials voted unanimously to raise interest rates by three-quarters of a percentage point.`\
 https://nytimes.com/video/business/economy/100000008463508/federal-reserve-interest-rates.html?searchResultPosition=1
 
 **Your Wednesday Evening Briefing**\
