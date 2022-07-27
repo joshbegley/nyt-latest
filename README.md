@@ -30,7 +30,7 @@ https://nytimes.com/2022/07/27/us/politics/biden-emergency-declarations.html?sea
 `The personal and professional value of friendships at work. Also: Health care costs; climate change; legacy admissions; psychedelics.`\
 https://nytimes.com/2022/07/27/opinion/letters/work-friends.html?searchResultPosition=8
 
-**F.T.C. Sues to Block Meta’s Virtual Reality Deal**\
+**F.T.C. Sues to Block Meta Virtual Reality Deal as Confronts Big Tech**\
 `The move is a potential blow to Meta’s metaverse efforts and signals a shift in how the Federal Trade Commission is approaching tech deals.`\
 https://nytimes.com/2022/07/27/technology/meta-facebook-vr-ftc.html?searchResultPosition=9
 
