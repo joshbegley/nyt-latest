@@ -2,7 +2,7 @@
 `Three residents of Curry County, Ore., spotted the man and, after a struggle, tied him to a tree until law enforcement officers arrived, the authorities said.`\
 https://nytimes.com/2022/07/26/us/oregon-fire-arson.html?searchResultPosition=1
 
-**Quotation of the Day**\
+**Quotation of the Day: Poor in Texas, and Helpless Against Heat**\
 `Quotation of the Day for Wednesday, July 27, 2022`\
 https://nytimes.com/2022/07/26/todayspaper/quotation-of-the-day.html?searchResultPosition=2
 
