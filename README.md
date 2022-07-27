@@ -1,9 +1,9 @@
 **Strong Quake Hits Northern Philippines**\
-`A Philippine agency said the earthquake had a magnitude of 7.3. There were no immediate reports of damage.`\
+`A Philippine agency said the earthquake had a magnitude of 7.3. There were no immediate official reports of damage.`\
 https://nytimes.com/2022/07/26/world/asia/philippines-earthquake.html?searchResultPosition=1
 
 **Parents of Sandy Hook Victim at Alex Jones Trial Seek $150 Million in Damages**\
-`The figure represents the first time the family of a victim has put a dollar figure on the suffering Mr. Jones caused by spreading lies about the 2012 school shooting.`\
+`The figure represents the first time the family of a victim has put a dollar amount on the suffering Mr. Jones caused by spreading lies about the 2012 school shooting.`\
 https://nytimes.com/2022/07/26/us/politics/sandy-hook-alex-jones.html?searchResultPosition=2
 
 **Corrections: July 27, 2022**\
