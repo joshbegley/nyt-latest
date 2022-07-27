@@ -1,5 +1,5 @@
 **For France, All or Nothing Yields the Latter Again**\
-`Coach Corinne Diacre set a high bar for France at the Euros. But tying one’s fate to results only works when you win.`\
+`Coach Corinne Diacre set a high bar for France at the Euros. But tying one’s fate to results works only when you win.`\
 https://nytimes.com/2022/07/27/sports/soccer/germany-france-corinne-diacre.html?searchResultPosition=1
 
 **Lizzo’s Complicated, Joyful Pop**\
