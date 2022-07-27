@@ -3,7 +3,7 @@
 https://nytimes.com/2022/07/26/us/politics/trump-jan-6-justice-department.html?searchResultPosition=1
 
 **Strong Quake Hits Northern Philippines**\
-`A Philippine agency said the earthquake had a magnitude of 7.3. There were no immediate official reports of damage.`\
+`A Philippine agency said the earthquake had a magnitude of 7.3. There were no immediate reports of casualties.`\
 https://nytimes.com/2022/07/26/world/asia/philippines-earthquake.html?searchResultPosition=2
 
 **Parents of Sandy Hook Victim at Alex Jones Trial Seek $150 Million in Damages**\
