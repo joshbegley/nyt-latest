@@ -1,6 +1,6 @@
 **Here are some prisoner swaps that freed Americans.**\
 `The possibility of the United States exchanging basketball star Brittney Griner and Paul Whelan for a Russian prisoner is reminiscent of the deals Washington has orchestrated with Moscow and others.`\
-https://nytimes.com/2022/07/28/world/europe/griner-prisoner-exchanges.html?searchResultPosition=1
+https://nytimes.com/2022/07/28/world/europe/prisoner-swaps-exchanges-us.html?searchResultPosition=1
 
 **Who Is ‘Wagatha Christie’? Let Us Explain.**\
 `A feud between two television personalities made its way to a London courtroom. A verdict is due on Friday.`\
