@@ -1,40 +1,40 @@
+**In Rural America, Covid Hits Black and Hispanic People Hardest**\
+`At the peak of the Omicron wave, Covid killed Black Americans in rural areas at a rate roughly 34 percent higher than it did white people.`\
+https://nytimes.com/2022/07/28/health/covid-deaths-black-hispanic-rural.html?searchResultPosition=1
+
+**Where Rihanna Got Her Style Groove**\
+`An insider look at Crop Over, the Barbadian equivalent of Carnival, an annual celebration of music and heritage — and amazing outfits.`\
+https://nytimes.com/2022/07/28/style/festivals-fashion-where-rihanna-got-her-style-groove.html?searchResultPosition=2
+
+**Who Can Play the King? Representation Questions Fuel Casting Debates.**\
+`Should Shakespeare’s Richard III be reserved for disabled actors? Does the character have to be played by a white man? By a man at all? Three recent productions took different tacks.`\
+https://nytimes.com/2022/07/28/theater/richard-iii-casting-debates.html?searchResultPosition=3
+
+**A Newsletter That Puts All the Pieces Together**\
+`The new Gameplay newsletter is fostering a community of passionate players and savvy solvers.`\
+https://nytimes.com/2022/07/28/insider/a-newsletter-that-puts-all-the-pieces-together.html?searchResultPosition=4
+
+**Unlikely Fans of Supreme Court Ruling on Guns: Public Defenders**\
+`Judges in New York have so far rejected their argument that the decision should lead to the dropping of gun charges against their clients.`\
+https://nytimes.com/2022/07/28/nyregion/guns-public-defenders-scotus.html?searchResultPosition=5
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2022/07/28/crosswords/spelling-bee-forum.html?searchResultPosition=6
+
 **Domestic opposition to Putin invites jail, dividing activists over the wisdom of staying put to fight.**\
 `By Valerie Hopkins`\
-https://nytimes.com/2022/07/28/world/europe/domestic-opposition-to-putin-invites-jail-dividing-activists-over-the-wisdom-of-staying-put-to-fight.html?searchResultPosition=1
+https://nytimes.com/2022/07/28/world/europe/domestic-opposition-to-putin-invites-jail-dividing-activists-over-the-wisdom-of-staying-put-to-fight.html?searchResultPosition=7
 
 **Stephen Colbert Thinks a New Trump Investigation Has Potential**\
 `Colbert said he was “potentially very excited” about the Department of Justice’s “potential” investigation into Trump.`\
-https://nytimes.com/2022/07/28/arts/television/stephen-colbert-trump-investigation.html?searchResultPosition=2
+https://nytimes.com/2022/07/28/arts/television/stephen-colbert-trump-investigation.html?searchResultPosition=8
 
 **What Happened When 7 Trump Voters and 6 Biden Voters Tried to Find Common Ground**\
 `It’s no secret that America is divided. Here’s how seven Trump voters and six Biden voters think about that fact.`\
-https://nytimes.com/interactive/2022/07/28/opinion/focus-group-political-division.html?searchResultPosition=3
+https://nytimes.com/interactive/2022/07/28/opinion/focus-group-political-division.html?searchResultPosition=9
 
 **Your Thursday Briefing**\
 `Brittney Griner for Viktor Bout?`\
-https://nytimes.com/2022/07/28/briefing/griner-bout-fed-rate-increase.html?searchResultPosition=4
-
-**New York: No. 1 Dream City and No. 3 on the Rat List**\
-`Surveys are all over the place in their views of the city, finding it vibrant and alluring, but also expensive, stressful and badly run.`\
-https://nytimes.com/2022/07/28/nyregion/new-york-surveys.html?searchResultPosition=5
-
-**Needing a Bat, the Yankees Trade for Andrew Benintendi**\
-`With Giancarlo Stanton injured, Benintendi, a high-contact hitter, will fill an immediate gap. His vaccination status could be an issue down the road.`\
-https://nytimes.com/2022/07/28/sports/baseball/andrew-benintendi-yankees-trade.html?searchResultPosition=6
-
-**The Hunt Is On for ‘War Trophies’ in Ukraine**\
-`Collectors across the country are seeking pieces of shrapnel, bits of bombs and even the uniforms of dead Russians. It’s part of an urge to feel more directly connected to the cause.`\
-https://nytimes.com/2022/07/28/world/europe/ukraine-war-military-artifacts.html?searchResultPosition=7
-
-**Quotation of the Day: Yosemite’s Paradox: Cutting the Trees to Save the Park**\
-`Quotation of the Day for Thursday, July 28, 2022.`\
-https://nytimes.com/2022/07/27/todayspaper/quotation-of-the-day-yosemites-paradox-cutting-the-trees-to-save-the-park.html?searchResultPosition=8
-
-**Unearthing the Secret Superpowers of Fungus**\
-`Researchers are exploring a vast and poorly understood underground world that can be vital in the era of global warming.`\
-https://nytimes.com/interactive/2022/07/27/climate/climate-change-fungi.html?searchResultPosition=9
-
-**Heffalumps and Woozles**\
-`Bill Pipal makes his New York Times Crossword debut in a collaboration with veteran constructor Jeff Chen.`\
-https://nytimes.com/2022/07/27/crosswords/daily-puzzle-2022-07-28.html?searchResultPosition=10
+https://nytimes.com/2022/07/28/briefing/griner-bout-fed-rate-increase.html?searchResultPosition=10
 
