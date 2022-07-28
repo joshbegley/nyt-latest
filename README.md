@@ -1,4 +1,4 @@
-**Skeleton of a Gorgosaurus, Relative of T. Rex, Sells at Auction for $6.1 Million**\
+**Skeleton of a Gorgosaurus Sells at Auction for $6.1 Million**\
 `The sale was the latest in a series of dinosaur-fossil auctions that have infuriated paleontologists who worry about the commercialization of Earth’s evolutionary history.`\
 https://nytimes.com/2022/07/28/us/gorgosaurus-sothebys-auction.html?searchResultPosition=1
 
