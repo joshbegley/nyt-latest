@@ -7,7 +7,7 @@ https://nytimes.com/2022/07/28/briefing/griner-bout-fed-rate-increase.html?searc
 https://nytimes.com/2022/07/28/nyregion/new-york-surveys.html?searchResultPosition=2
 
 **Needing a Bat, the Yankees Trade for Andrew Benintendi**\
-`With Giancarlo Stanton injured, Benintendi, a high-contact hitter, will fill an immediate gap. His vaccination status could be an issue.`\
+`With Giancarlo Stanton injured, Benintendi, a high-contact hitter, will fill an immediate gap. His vaccination status could be an issue down the road.`\
 https://nytimes.com/2022/07/28/sports/baseball/andrew-benintendi-yankees-trade.html?searchResultPosition=3
 
 **The Hunt Is On for ‘War Trophies’ in Ukraine**\
