@@ -1,4 +1,4 @@
-**Climate Change Is Probably a Drag on Growth, but It’s Unclear How Much.**\
+**Climate Change Is Probably a Drag on Growth, but It’s Unclear How Much**\
 `Plenty of long-term models show that rising temperatures are bad for the economy. Estimating the impact in real time is very tricky.`\
 https://nytimes.com/2022/07/28/business/economy/heat-productivity-economy.html?searchResultPosition=1
 
