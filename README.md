@@ -35,6 +35,6 @@ https://nytimes.com/2022/07/28/world/europe/viktor-bout-russia-prisoner-swap.htm
 https://nytimes.com/2022/07/28/movies/not-okay-review.html?searchResultPosition=9
 
 **Biden and Xi Conduct Marathon Call During Time of Rising Tensions**\
-`White House officials characterized the call, which lasted for two hours and 17 minutes, as a relationship-tending mission.`\
+`White House officials characterized the call, which lasted two hours and 17 minutes, as a relationship-tending mission.`\
 https://nytimes.com/2022/07/28/us/politics/biden-xi-call-china.html?searchResultPosition=10
 
