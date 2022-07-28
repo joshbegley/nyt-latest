@@ -1,40 +1,40 @@
-**Crops ‘Stored Everywhere’: Ukraine’s Harvest Piles Up**\
-`Farmers who have lived under the risk of Russian missile attacks have their doubts about an international agreement to ease a blockade on grain shipments through the Black Sea.`\
-https://nytimes.com/2022/07/28/business/ukraine-grain-harvest-piles.html?searchResultPosition=1
+**They Flocked to China for Boom Times. Now They’re Thinking Twice.**\
+`Global businesses and industries that rode the China growth wave for years are bracing for the fallout of a slowing economy.`\
+https://nytimes.com/2022/07/28/business/economy/china-foreign-business-economy-covid.html?searchResultPosition=1
 
-**A Quirky Parisian Festival Refinds Its Footing**\
-`The annual Paris l’Été hosts some especially strong multidisciplinary shows this summer, one of which includes a seven-hour hike.`\
-https://nytimes.com/2022/07/28/theater/paris-l-ete-festival.html?searchResultPosition=2
+**13 New Books Coming in August**\
+`An investigation into the overdose epidemic by Beth Macy; new fiction from Abdulrazak Gurnah, Banana Yoshimoto, Mohsin Hamid and Anthony Marra — and plenty more.`\
+https://nytimes.com/2022/07/28/books/new-august-books-summer-reading.html?searchResultPosition=2
 
-**In Rural America, Covid Hits Black and Hispanic People Hardest**\
-`At the peak of the Omicron wave, Covid killed Black Americans in rural areas at a rate roughly 34 percent higher than it did white people.`\
-https://nytimes.com/2022/07/28/health/covid-deaths-black-hispanic-rural.html?searchResultPosition=3
+**An Indiana Doctor Speaks Out on Abortion, and Pays a Price**\
+`Dr. Caitlin Bernard, who provided an abortion to a 10-year-old, says doctors shouldn’t be silent. But she finds herself at the center of a post-Roe clash shaking the medical community.`\
+https://nytimes.com/2022/07/28/us/politics/abortion-doctor-caitlin-bernard-ohio.html?searchResultPosition=3
 
-**Where Rihanna Got Her Style Groove**\
-`An insider look at Crop Over, the Barbadian equivalent of Carnival, an annual celebration of music and heritage — and amazing outfits.`\
-https://nytimes.com/2022/07/28/style/festivals-fashion-where-rihanna-got-her-style-groove.html?searchResultPosition=4
+**‘Negligent and Sexist’: Why Rape Survivors Asked Feds to Probe N.Y.P.D.**\
+`Letters from victims and activists drew the Justice Department’s attention after city and state officials failed to act on the same complaints.`\
+https://nytimes.com/2022/07/28/nyregion/nypd-doj-special-victims-investigation.html?searchResultPosition=4
 
-**Who Can Play the King? Representation Questions Fuel Casting Debates.**\
-`Should Shakespeare’s Richard III be reserved for disabled actors? Does the character have to be played by a white man? By a man at all? Three recent productions took different tacks.`\
-https://nytimes.com/2022/07/28/theater/richard-iii-casting-debates.html?searchResultPosition=5
+**Los Angeles Enjoys Its New Bridge a Little Too Much**\
+`The long-awaited Sixth Street Viaduct has proved to be irresistible to pedestrians and neighborhood residents — but also graffiti artists and exhibitionist drivers.`\
+https://nytimes.com/2022/07/28/us/los-angeles-bridge-viaduct.html?searchResultPosition=5
 
-**A Newsletter That Puts All the Pieces Together**\
-`The new Gameplay newsletter is fostering a community of passionate players and savvy solvers.`\
-https://nytimes.com/2022/07/28/insider/a-newsletter-that-puts-all-the-pieces-together.html?searchResultPosition=6
+**States With Abortion Bans Are Among Least Supportive for Mothers and Children**\
+`They tend to have the weakest social services and the worst results in several categories of health and well-being.`\
+https://nytimes.com/2022/07/28/upshot/abortion-bans-states-social-services.html?searchResultPosition=6
 
-**Unlikely Fans of Supreme Court Ruling on Guns: Public Defenders**\
-`Judges in New York have so far rejected their argument that the decision should lead to the dropping of gun charges against their clients.`\
-https://nytimes.com/2022/07/28/nyregion/guns-public-defenders-scotus.html?searchResultPosition=7
+**Prague Gets a Reset and the Emphasis Is Local**\
+`Public spaces, provocative exhibitions, new restaurants and unexpected neighborhoods offer visitors a deeper look into Czech culture.`\
+https://nytimes.com/2022/07/28/travel/what-to-do-in-prague.html?searchResultPosition=7
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/07/28/crosswords/spelling-bee-forum.html?searchResultPosition=8
+**In This Subway Series, the Mets Did All the Flexing**\
+`A bad stretch for the Yankees continued with a two-game sweep in Queens. But with the most wins in baseball, a double-digit division lead and a brand-new outfielder, they remain “unfazed.”`\
+https://nytimes.com/2022/07/28/sports/baseball/yankees-mets.html?searchResultPosition=8
 
-**Domestic opposition to Putin invites jail, dividing activists over the wisdom of staying put to fight.**\
-`By Valerie Hopkins`\
-https://nytimes.com/2022/07/28/world/europe/domestic-opposition-to-putin-invites-jail-dividing-activists-over-the-wisdom-of-staying-put-to-fight.html?searchResultPosition=9
+**Ditching the Car and Enjoying the View on a Trip to the Berkshires**\
+`For the first time in 50 years, a weekend train route is taking passengers directly from New York to the Berkshires. The Berkshire Flyer will run through Labor Day. Good luck getting a seat.`\
+https://nytimes.com/2022/07/28/travel/amtrak-new-york-berkshires.html?searchResultPosition=9
 
-**Stephen Colbert Thinks a New Trump Investigation Has Potential**\
-`Colbert said he was “potentially very excited” about the Department of Justice’s “potential” investigation into Trump.`\
-https://nytimes.com/2022/07/28/arts/television/stephen-colbert-trump-investigation.html?searchResultPosition=10
+**Surprise Deal Would Be Most Ambitious Climate Action Undertaken by U.S.**\
+`The announcement Wednesday of an agreement in the Senate almost instantly reset the role of the United States in the global effort to fight climate change.`\
+https://nytimes.com/2022/07/28/climate/climate-change-deal-manchin.html?searchResultPosition=10
 
