@@ -1,40 +1,40 @@
+**‘A Love Song’ Review: When Moving Forward Means Looking Back**\
+`Two former childhood friends rekindle their connection in this sweetly hopeful story of romantic longing.`\
+https://nytimes.com/2022/07/28/movies/a-love-song-review.html?searchResultPosition=1
+
+**‘Vengeance’ Review: A Dish Best Served With Frito Pie**\
+`In this comedic culture-war thriller, B.J. Novak, who wrote and directed, plays an aspiring podcaster chasing a true-crime story in West Texas.`\
+https://nytimes.com/2022/07/28/movies/vengeance-review.html?searchResultPosition=2
+
+**‘Sharp Stick’ Review: The Babysitter’s Schlubs**\
+`Lena Dunham’s new movie follows a 26-year-old who methodically gains sexual experience after having an uncomfortable affair.`\
+https://nytimes.com/2022/07/28/movies/sharp-stick-review.html?searchResultPosition=3
+
+**‘Resurrection’ Review: Mother of Fears**\
+`A successful single mother encounters a terrifying man from her past in this crazily enjoyable horror movie.`\
+https://nytimes.com/2022/07/28/movies/resurrection-review.html?searchResultPosition=4
+
+**‘Paradise Highway’ Review: A Test of Loyalty**\
+`A truck driver’s brother asks her to deliver a girl to sex traffickers in order to save his life in prison.`\
+https://nytimes.com/2022/07/28/movies/paradise-highway-review.html?searchResultPosition=5
+
+**‘Ali & Ava’ Review: Don’t You Want to Sing Along?**\
+`Even as this romantic drama clings uncomfortably to the surface of an interracial relationship, the movie still delivers pops of color and memorable melodies, our critic writes.`\
+https://nytimes.com/2022/07/28/movies/ali-ava-review.html?searchResultPosition=6
+
+**‘DC League of Super-Pets’ Review: #ReleaseTheLassieCut**\
+`Dwayne Johnson and Kevin Hart voice canine heroes in a family-friendly animated spinoff of the “Justice League” franchise.`\
+https://nytimes.com/2022/07/28/movies/dc-league-of-super-pets-review.html?searchResultPosition=7
+
+**‘Hansan: Rising Dragon’ Review: Naval Gazing**\
+`The dutiful Korean war movie “Hansan: Rising Dragon” recounts a spectacular 16th-century naval victory over Japanese invaders.`\
+https://nytimes.com/2022/07/28/movies/hansan-rising-dragon-review.html?searchResultPosition=8
+
+**‘A Balance’ Review: Critical Distance**\
+`Yujiro Harumoto’s slow-build morality tale puts an ambitious documentary maker in an uncomfortable position as her life begins to resemble her films.`\
+https://nytimes.com/2022/07/28/movies/a-balance-review-critical-distance.html?searchResultPosition=9
+
 **JetBlue and Spirit Airlines announce a plan to merge.**\
 `The deal, which comes a day after Frontier’s bid for Spirit fell apart, is likely to face antitrust scrutiny.`\
-https://nytimes.com/2022/07/28/business/jetblue-spirit-merger.html?searchResultPosition=1
-
-**After 37 Years, the Sunny World of ‘Neighbours’ Comes to an End**\
-`The Australian soap opera, which has aired nearly 9,000 episodes, is drawing to a close, disappointing many fans who grew up watching the show.`\
-https://nytimes.com/2022/07/28/arts/television/neighbours-end.html?searchResultPosition=2
-
-**Inmates Allege They Were Raped and Assaulted After Guard Was Bribed**\
-`Twenty-eight women at a jail in Indiana said they were attacked after an officer provided two male inmates access to their section of the jail, according to two federal lawsuits.`\
-https://nytimes.com/2022/07/28/us/indiana-jail-rape-lawsuit.html?searchResultPosition=3
-
-**A Deal, for Now**\
-`Joe Manchin’s climate announcement has the potential to be a very big deal.`\
-https://nytimes.com/2022/07/28/briefing/joe-manchin-climate-deal-chuck-schumer.html?searchResultPosition=4
-
-**Shell reports record profit, again, with $11.5 billion in latest quarter.**\
-`The energy giant is thriving because of soaring oil and gas prices and a tight market for refined products.`\
-https://nytimes.com/2022/07/28/business/shell-profit-record.html?searchResultPosition=5
-
-**How Expecting Inflation Can Actually Create More Inflation**\
-`By raising interest rates, the Federal Reserve hopes to prevent consumers from believing higher prices will last forever.`\
-https://nytimes.com/2022/07/28/podcasts/the-daily/inflation-federal-reserve.html?searchResultPosition=6
-
-**Climate Change Is Probably a Drag on Growth, but It’s Unclear How Much**\
-`Plenty of long-term models show that rising temperatures are bad for the economy. Estimating the impact in real time is very tricky.`\
-https://nytimes.com/2022/07/28/business/economy/heat-productivity-economy.html?searchResultPosition=7
-
-**They Flocked to China for Boom Times. Now They’re Thinking Twice.**\
-`Global businesses and industries that rode the China growth wave for years are bracing for the fallout of a slowing economy.`\
-https://nytimes.com/2022/07/28/business/economy/china-foreign-business-economy-covid.html?searchResultPosition=8
-
-**13 New Books Coming in August**\
-`An investigation into the overdose epidemic by Beth Macy; new fiction from Abdulrazak Gurnah, Banana Yoshimoto, Mohsin Hamid and Anthony Marra — and plenty more.`\
-https://nytimes.com/2022/07/28/books/new-august-books-summer-reading.html?searchResultPosition=9
-
-**An Indiana Doctor Speaks Out on Abortion, and Pays a Price**\
-`Dr. Caitlin Bernard, who provided an abortion to a 10-year-old, says doctors shouldn’t be silent. But she finds herself at the center of a post-Roe clash shaking the medical community.`\
-https://nytimes.com/2022/07/28/us/politics/abortion-doctor-caitlin-bernard-ohio.html?searchResultPosition=10
+https://nytimes.com/2022/07/28/business/jetblue-spirit-merger.html?searchResultPosition=10
 
