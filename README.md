@@ -26,13 +26,13 @@ https://nytimes.com/2022/07/28/us/los-angeles-bridge-viaduct.html?searchResultPo
 `They tend to have the weakest social services and the worst results in several categories of health and well-being.`\
 https://nytimes.com/2022/07/28/upshot/abortion-bans-states-social-services.html?searchResultPosition=7
 
-**Prague Gets a Reset and the Emphasis Is Local**\
-`Public spaces, provocative exhibitions, new restaurants and unexpected neighborhoods offer visitors a deeper look into Czech culture.`\
-https://nytimes.com/2022/07/28/travel/what-to-do-in-prague.html?searchResultPosition=8
-
 **In This Subway Series, the Mets Did All the Flexing**\
 `A bad stretch for the Yankees continued with a two-game sweep in Queens. But with the most wins in baseball, a double-digit division lead and a brand-new outfielder, they remain “unfazed.”`\
-https://nytimes.com/2022/07/28/sports/baseball/yankees-mets.html?searchResultPosition=9
+https://nytimes.com/2022/07/28/sports/baseball/yankees-mets.html?searchResultPosition=8
+
+**Prague Gets a Reset and the Emphasis Is Local**\
+`Public spaces, provocative exhibitions, new restaurants and unexpected neighborhoods offer visitors a deeper look into Czech culture.`\
+https://nytimes.com/2022/07/28/travel/what-to-do-in-prague.html?searchResultPosition=9
 
 **Ditching the Car and Enjoying the View on a Trip to the Berkshires**\
 `For the first time in 50 years, a weekend train route is taking passengers directly from New York to the Berkshires. The Berkshire Flyer will run through Labor Day. Good luck getting a seat.`\
