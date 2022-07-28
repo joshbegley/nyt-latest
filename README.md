@@ -1,5 +1,5 @@
 **Russian Arms Dealer in Proposed Swap for Brittney Griner Has Notorious History**\
-`Viktor Bout has been accused of suppling arms to Al Qaeda, the Taliban, and rebels in Rwanda. His exploits helped inspire a 2005 film, “Lord of War,” that starred Nicolas Cage.`\
+`Viktor Bout has been accused of supplying arms to Al Qaeda, the Taliban, and rebels in Rwanda. His exploits helped inspire a 2005 film, “Lord of War,” that starred Nicolas Cage.`\
 https://nytimes.com/2022/07/28/world/europe/viktor-bout-russia-prisoner-swap.html?searchResultPosition=1
 
 **‘Not Okay’ Review: Posting Through It**\
