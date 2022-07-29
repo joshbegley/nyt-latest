@@ -24,7 +24,7 @@ https://nytimes.com/2022/07/29/arts/music/tristan-und-isolde-santa-fe-opera-revi
 
 **Lebanon says it is investigating Ukraine’s claim that a docked ship contains plundered grain.**\
 `The Laodicea, a Syrian cargo ship, arrived in Tripoli, Lebanon, on Wednesday carrying nearly 10 tons of wheat and barley.`\
-https://nytimes.com/2022/07/29/world/europe/lebanon-ship-syria-ukraine-grain.html?searchResultPosition=7
+https://nytimes.com/2022/07/29/world/europe/ukraine-grain-lebanon-ship-syria.html?searchResultPosition=7
 
 **Review: In ‘Bottom of the Ocean,’ a Deep Dive Into the Soul**\
 `Themes of change, death and rebirth abound in this peculiar production, a triumph of style and low-budget ingenuity.`\
