@@ -34,7 +34,7 @@ https://nytimes.com/2022/07/29/podcasts/the-daily/the-rise-of-the-conservative-l
 `The Manchin-Schumer bill may well prove inadequate. It also represents a generational achievement.`\
 https://nytimes.com/2022/07/29/opinion/environment/joe-manchin-climate-inflation-bill.html?searchResultPosition=9
 
-**Eurozone Economy Grows Faster Than Expected, but So Does Inflation**\
-`Consumer prices in countries that use the euro increased by 8.9 percent in July, another record fueled by energy prices, as the bloc’s economy expanded by 0.7 percent in the second quarter.`\
+**Eurozone Economy Grows Faster Than Expected, but So Do Prices**\
+`Inflation in countries that use the euro increased by 8.9 percent in July, another record fueled by energy prices, as the bloc’s economy expanded by 0.7 percent in the second quarter.`\
 https://nytimes.com/2022/07/29/business/eurozone-economy-grows-faster-than-expected-but-so-does-inflation.html?searchResultPosition=10
 
