@@ -1,4 +1,4 @@
-**Large Monitor Falls During Mirror Concert in Hong Kong, Injuring 2**\
+**Large Video Screen Falls During Mirror Concert in Hong Kong, Injuring 2**\
 `Two dancers for the popular boy band were hospitalized, a local news outlet reported. Hong Kong officials promised an investigation.`\
 https://nytimes.com/2022/07/29/world/asia/mirror-hong-kong.html?searchResultPosition=1
 
