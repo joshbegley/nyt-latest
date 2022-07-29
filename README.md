@@ -3,7 +3,7 @@
 https://nytimes.com/2022/07/28/us/supreme-court-sotomayor-barrett.html?searchResultPosition=1
 
 **Reversing a Reversal, Miami School Board Accepts Sex Ed Books It Had Rejected**\
-`The decision, part of a battle over school curriculum in Florida and elsewhere, saved students in Miami-Dade County from going months without sex education.`\
+`The decision, part of a battle over school curriculums in Florida and elsewhere, saved students in Miami-Dade County from going months without sex education.`\
 https://nytimes.com/2022/07/28/us/miami-dade-sex-ed-textbooks.html?searchResultPosition=2
 
 **Beating of Teen by Illinois Police Is Captured on Video**\
