@@ -6,7 +6,7 @@ https://nytimes.com/2022/07/29/world/europe/brittney-griner-prisoner-exchange-ru
 `Historians have relied on Herman Heukels’s pictures of Jewish persecution in World War II, but it’s not widely known that the Dutch photographer shot them as Nazi propaganda.`\
 https://nytimes.com/2022/07/29/arts/design/holocaust-photos-dutch-nazi.html?searchResultPosition=2
 
-**Living Without Air Conditioning? Here’s How to Stay Cooler at Home.**\
+**Living Without Air-Conditioning? Here’s How to Stay Cooler at Home.**\
 `Adjust your ceiling fans to rotate counterclockwise, run major appliances at night and consider planting trees to shade your home, multiple governments suggest.`\
 https://nytimes.com/article/no-air-conditioning-stay-cool.html?searchResultPosition=3
 
