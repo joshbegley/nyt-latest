@@ -32,7 +32,7 @@ https://nytimes.com/2022/07/29/business/media/vice-media-antenna-group.html?sear
 
 **Watch Live: Kentucky Governor Gives Update After Flood Flyover**\
 `Governor Andy Beshear gives an update on flood conditions after a flyover of affected areas in eastern Kentucky.`\
-https://nytimes.com/video/us/100000008466623/kentucky-floods-press-conference.html?searchResultPosition=9
+https://nytimes.com/video/embedded/us/100000008466623/kentucky-floods-press-conference.html?searchResultPosition=9
 
 **Pressure Grows in the U.S. for the U.A.E. to Free an American Lawyer**\
 `Asim Ghafoor once represented the Saudi dissident and columnist Jamal Khashoggi, who was murdered in 2018 by Saudi agents. He was arrested this month in Dubai.`\
