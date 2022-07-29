@@ -1,6 +1,6 @@
 **Review: In ‘Bottom of the Ocean,’ a Deep Dive Into the Soul**\
 `Themes of change, death and rebirth abound in this peculiar production, a triumph of style and low-budget ingenuity.`\
-https://nytimes.com/2022/07/29/theater/review-in-bottom-of-the-ocean-a-deep-dive-into-the-soul.html?searchResultPosition=1
+https://nytimes.com/2022/07/29/theater/bottom-of-the-ocean-review.html?searchResultPosition=1
 
 **If the Economy Is Shaky, Why Are Company Profits Still Strong?**\
 `Corporate optimism may seem at odds with the Fed’s grim determination to hold back the economy to get inflation down, but earnings tell a story that other data doesn’t.`\
