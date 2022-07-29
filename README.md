@@ -1,40 +1,40 @@
+**Beyoncé’s Anthem for the Unique, and 10 More New Songs**\
+`Hear tracks by Rosalía, Brian Eno, Robert Glasper and others.`\
+https://nytimes.com/2022/07/29/arts/music/playlist-beyonce-rosalia.html?searchResultPosition=1
+
+**Parechovirus Sickened 23 Infants in Nashville, C.D.C. Says**\
+`The common pathogen frequently produces the mild symptoms of a cold, but it can cause severe illness and death in babies under 3 months old, health officials say, warning doctors to be vigilant.`\
+https://nytimes.com/2022/07/29/science/parechovirus-nashville-infants-children.html?searchResultPosition=2
+
 **Watch the Southern Delta Aquariid Meteor Shower Peak in Night Skies**\
 `Fireballs may light up the sky for those willing to stay up late and take in the show.`\
-https://nytimes.com/2022/07/29/science/southern-delta-aquariids.html?searchResultPosition=1
+https://nytimes.com/2022/07/29/science/southern-delta-aquariids.html?searchResultPosition=3
 
 **‘It Was Over My Head, It Was Scary,’ Kentucky Flood Survivor Says**\
 `Residents and rescue workers described the deadly flash floods that have swept through Kentucky, leaving hundreds without homes.`\
-https://nytimes.com/video/us/100000008466245/kentucky-flash-floods.html?searchResultPosition=2
+https://nytimes.com/video/us/100000008466245/kentucky-flash-floods.html?searchResultPosition=4
 
 **The Best of Late Night This Week 🌙**\
 `This week, the late-night hosts discussed monkeypox, the end of the Choco Taco and more.`\
-https://nytimes.com/interactive/2022/07/29/arts/best-of-late-night.html?searchResultPosition=3
+https://nytimes.com/interactive/2022/07/29/arts/best-of-late-night.html?searchResultPosition=5
 
 **Will Smith Says He Is ‘Deeply Remorseful’ Over Chris Rock Slap**\
 `In an apologetic video, Mr. Smith doubled down on his regret over his behavior at the Oscars, which resulted in a 10-year ban from the ceremony.`\
-https://nytimes.com/2022/07/29/movies/will-smith-video-chris-rock-slap.html?searchResultPosition=4
+https://nytimes.com/2022/07/29/movies/will-smith-video-chris-rock-slap.html?searchResultPosition=6
 
 **Beyoncé’s ‘Renaissance’ Embodies Decades of Dance Music. Here’s a Guide.**\
 `Chicago house, hyperpop, classic ’70s disco: The pop star’s new album is a tour through some of the genre’s most well-known touchstones as well as more underground sounds.`\
-https://nytimes.com/2022/07/29/arts/music/beyonce-renaissance-dance-music-guide.html?searchResultPosition=5
+https://nytimes.com/2022/07/29/arts/music/beyonce-renaissance-dance-music-guide.html?searchResultPosition=7
 
 **Allergan Reaches Tentative $2.37 Billion Deal to Settle Opioid Suits**\
 `If finalized, the agreement, along with a companion deal reached by Teva earlier this week, would send as much as $6.6 billion to communities harmed by the opioid epidemic.`\
-https://nytimes.com/2022/07/29/health/allergan-opioids-settlement.html?searchResultPosition=6
+https://nytimes.com/2022/07/29/health/allergan-opioids-settlement.html?searchResultPosition=8
 
 **Large landlords aggressively moved against renters in the pandemic, a report says.**\
 `A House subcommittee investigation found four firms were responsible for nearly 15,000 eviction filings while there were moratoriums on evictions.`\
-https://nytimes.com/2022/07/29/business/large-landlords-aggressively-moved-against-renters-in-the-pandemic-a-report-says.html?searchResultPosition=7
+https://nytimes.com/2022/07/29/business/large-landlords-aggressively-moved-against-renters-in-the-pandemic-a-report-says.html?searchResultPosition=9
 
 **Despite Biden’s Success on Judges, Progressives Demand a Faster Pace**\
 `Democrats may leave dozens of federal judicial vacancies unfilled this year, prompting concern among liberal groups about a blockade should Republicans win the Senate.`\
-https://nytimes.com/2022/07/29/us/politics/biden-judges-democrats-senate.html?searchResultPosition=8
-
-**How is monkeypox treated?**\
-`By Knvul Sheikh`\
-https://nytimes.com/2022/07/29/well/how-is-monkeypox-treated.html?searchResultPosition=9
-
-**How is monkeypox spread?**\
-`By Knvul Sheikh`\
-https://nytimes.com/2022/07/29/well/how-is-monkeypox-spread.html?searchResultPosition=10
+https://nytimes.com/2022/07/29/us/politics/biden-judges-democrats-senate.html?searchResultPosition=10
 
