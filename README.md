@@ -16,7 +16,7 @@ https://nytimes.com/2022/07/29/movies/international-movies-streaming.html?search
 
 **Watch Live: Kentucky Officials Give an Update on Severe Flooding**\
 `Officials provide an update on the deadly flash floods that have hit Kentucky as more rain is expected in the region.`\
-https://nytimes.com/video/us/100000008466299/kentucky-flash-flooding.html?searchResultPosition=5
+https://nytimes.com/video/embedded/us/100000008466299/kentucky-flash-flooding.html?searchResultPosition=5
 
 **‘Happy Life’ Review: Ghosts in the Studio**\
 `The playwright Kathy Ng imagines a world where mortality, eroticism and Hello Kitty collide in a spirited, if sometimes muddled, contemplation of loneliness and loss.`\
