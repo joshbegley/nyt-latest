@@ -22,7 +22,7 @@ https://nytimes.com/2022/07/29/us/sixth-street-viaduct-bridge-los-angeles.html?s
 `West Virginia’s banning of five big Wall Street banks for doing business with the state is yet another step toward a politicized world of red brands and blue brands.`\
 https://nytimes.com/2022/07/29/business/dealbook/west-virginia-wall-street-woke-capital-desantis.html?searchResultPosition=6
 
-**Prices surged in June and pay growth, while brisk, is struggling to keep up.**\
+**Pay growth and prices picked up, keeping the Fed on track for rate increases.**\
 `The Federal Reserve’s preferred inflation gauge climbed rapidly in June. Wage and benefit gains are fast, too, separate data showed.`\
 https://nytimes.com/2022/07/29/business/economy/fed-inflation-wage-growth.html?searchResultPosition=7
 
