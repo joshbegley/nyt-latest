@@ -15,7 +15,7 @@ https://nytimes.com/2022/07/29/books/charlotte-pomerantz-dead.html?searchResultP
 https://nytimes.com/2022/07/29/health/monkeypox-spread-vaccine-treatment.html?searchResultPosition=4
 
 **Second day of heavy rain leads to flash flooding in Las Vegas.**\
-`By Isabella Grullón Paz`\
+`The downpour dumped about half the area’s annual rainfall. Rainwater leaked into some casinos.`\
 https://nytimes.com/2022/07/19/us/las-vegas-floods.html?searchResultPosition=5
 
 **Brittney Griner and the Total Lopsidedness of Prisoner Swaps with Russia**\
