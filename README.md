@@ -30,11 +30,11 @@ https://nytimes.com/2022/07/29/business/large-landlords-aggressively-moved-again
 `Democrats may leave dozens of federal judicial vacancies unfilled this year, prompting concern among liberal groups about a blockade should Republicans win the Senate.`\
 https://nytimes.com/2022/07/29/us/politics/biden-judges-democrats-senate.html?searchResultPosition=8
 
-**Review: A ‘Tristan und Isolde’ Plays Out in Shadows and Light**\
-`At Santa Fe Opera, Wagner’s work is being presented for the first time, in a striking, modest staging that makes space for the music.`\
-https://nytimes.com/2022/07/29/arts/music/tristan-und-isolde-santa-fe-opera-review.html?searchResultPosition=9
+**How is monkeypox treated?**\
+`By Knvul Sheikh`\
+https://nytimes.com/2022/07/29/well/how-is-monkeypox-treated.html?searchResultPosition=9
 
-**Lebanon says it is investigating Ukraine’s claim that a docked ship contains plundered grain.**\
-`The Laodicea, a Syrian cargo ship, arrived in Tripoli, Lebanon, on Wednesday carrying nearly 10 tons of wheat and barley.`\
-https://nytimes.com/2022/07/29/world/europe/ukraine-grain-lebanon-ship-syria.html?searchResultPosition=10
+**How is monkeypox spread?**\
+`By Knvul Sheikh`\
+https://nytimes.com/2022/07/29/well/how-is-monkeypox-spread.html?searchResultPosition=10
 
