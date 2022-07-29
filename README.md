@@ -4,7 +4,7 @@ https://nytimes.com/2022/07/29/business/dealbook/west-virginia-wall-street-woke-
 
 **Prices surged in June and pay growth, while brisk, is struggling to keep up.**\
 `The Federal Reserve’s preferred inflation gauge climbed rapidly in June. Wage and benefit gains are fast, too, separate data showed.`\
-https://nytimes.com/2022/07/29/business/economy/prices-surged-in-june-and-pay-growth-while-brisk-is-struggling-to-keep-up.html?searchResultPosition=2
+https://nytimes.com/2022/07/29/business/economy/fed-inflation-wage-growth.html?searchResultPosition=2
 
 **The M.T.A. Is Bringing Cellphone Service to New York’s Subway Tunnels**\
 `The project will come at no public cost but will take 10 years to finish.`\
