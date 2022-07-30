@@ -3,7 +3,7 @@
 https://nytimes.com/2022/07/30/world/europe/prince-charles-bin-laden-money.html?searchResultPosition=1
 
 **Alex Jones Puts Company Behind Infowars Empire Into Bankruptcy**\
-`The move came as he faces a defamation judgment of as much as $150 million for defaming Sandy Hook families.`\
+`The move came as he faces a judgment of as much as $150 million for defaming Sandy Hook families.`\
 https://nytimes.com/2022/07/30/business/alex-jones-infowars-bankruptcy.html?searchResultPosition=2
 
 **You Want to Clean Up the House? Same Here**\
