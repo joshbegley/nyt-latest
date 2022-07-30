@@ -6,7 +6,7 @@ https://nytimes.com/2022/07/30/opinion/california-wildfires-oak-fire-yosemite-se
 `The outbreak doesn’t bode well for America’s response to future pathogens.`\
 https://nytimes.com/2022/07/30/opinion/monkeypox-public-health-failure.html?searchResultPosition=2
 
-**New Risks Facing DoctorsAnd Their Pregnant Patients**\
+**New Risks Facing Doctors and Their Pregnant Patients**\
 `Readers discuss how new abortion laws will affect treatment of miscarriages and life-threatening pregnancies.`\
 https://nytimes.com/2022/07/30/opinion/letters/abortion-doctors-pregnant.html?searchResultPosition=3
 
