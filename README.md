@@ -11,7 +11,7 @@ https://nytimes.com/2022/07/29/us/politics/trump-endorses-tudor-dixon-michigan.h
 https://nytimes.com/2022/07/29/us/politics/kate-bedingfield-white-house-communications-director.html?searchResultPosition=3
 
 **All of Aaron Judge’s Home Runs, From 1 to 40**\
-`Judge, the slugging Yankee outfielder who can be a free-agent this off-season, is having an incredible season. We are tracking his pursuit of other Yankees greats.`\
+`Judge, the slugging Yankee outfielder, is having an incredible year. We are tracking his pursuit of other Yankees greats.`\
 https://nytimes.com/article/aaron-judge-home-runs.html?searchResultPosition=4
 
 **At a LIV Golf Event, Thin Crowds and a Tense Start**\
