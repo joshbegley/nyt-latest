@@ -1,5 +1,5 @@
 **In Widening Crackdown, Renowned Journalist Arrested in Guatemala**\
-`José Rubén Zamora, an award-winning journalist and president of the El Periódico newspaper, was arrested at his home in Guatemala City.`\
+`José Rubén Zamora, an award-winning journalist and president of the elPeriódico newspaper, was arrested at his home in Guatemala City.`\
 https://nytimes.com/2022/07/30/world/americas/guatemala-journalist-zamora-arrest.html?searchResultPosition=1
 
 **Language Evolves Right Before Our Ears. It’s Very ‘Satisfying.’**\
