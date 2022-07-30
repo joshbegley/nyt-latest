@@ -18,7 +18,7 @@ https://nytimes.com/2022/07/29/us/politics/trump-endorses-tudor-dixon-michigan.h
 `Kate Bedingfield, who announced this month that she was stepping down, abruptly changed her mind and said on Friday that she had decided to remain at the White House.`\
 https://nytimes.com/2022/07/29/us/politics/kate-bedingfield-white-house-communications-director.html?searchResultPosition=5
 
-**All of Aaron Judge’s Home Runs, From 1 to 40**\
+**All of Aaron Judge’s Home Runs, From 1 to 41**\
 `Judge, the slugging Yankee outfielder, is having an incredible year. We are tracking his pursuit of other Yankees greats.`\
 https://nytimes.com/article/aaron-judge-home-runs.html?searchResultPosition=6
 
