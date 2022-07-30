@@ -1,40 +1,40 @@
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/07/30/crosswords/spelling-bee-forum.html?searchResultPosition=1
+**Not Just Any Bag**\
+`A New York company, Anybag, finds an elegant way to turn plastic bag waste into a functional tote. Miranda Kerr, Adidas and Ralph Lauren are fans.`\
+https://nytimes.com/2022/07/30/style/not-just-any-bag.html?searchResultPosition=1
 
-**Heavy Rain Causes Deadly Flooding Across Iran**\
-`The monsoon-like rains, unusual for the typical dry season in the region, have killed more than 50 people, caused heavy damage and shut down major roadways.`\
-https://nytimes.com/2022/07/30/world/middleeast/iran-deadly-flood.html?searchResultPosition=2
+**A Polish Priest’s War Against Abortion Focuses on Helping Single Mothers**\
+`The Rev. Tomasz Kancelarczyk sees little effect on women’s decisions whether to have a child from a 29-year abortion ban. What may matter more is support for women who choose to have a child.`\
+https://nytimes.com/2022/07/30/world/europe/poland-abortion-ban-single-mothers.html?searchResultPosition=2
 
-**Europe’s Race to Secure New Energy Sources Is on a Knife’s Edge**\
-`A long-term switch to more renewable sources has been overtaken by a short-term scramble to stave off a crisis.`\
-https://nytimes.com/2022/07/30/business/europe-natural-gas.html?searchResultPosition=3
+**What’s Next for LeBron James Jr.?**\
+`Coaches recruiting the high school point guard known as Bronny will have a lot to navigate, including his famous father’s ties to Nike, ESPN and the state of Ohio.`\
+https://nytimes.com/2022/07/30/sports/ncaabasketball/whats-next-for-lebron-james-jr.html?searchResultPosition=3
 
-**Corrections: July 30, 2022**\
-`Corrections that appeared in print on Saturday, July 30, 2022.`\
-https://nytimes.com/2022/07/29/pageoneplus/corrections-july-30-2022.html?searchResultPosition=4
+**Gangs Advance on the Seat of Haitian Government Power: ‘Haitians Are Hostages’**\
+`Over 470 people have been killed, injured or are missing in recent violence, according to the U.N., as gangs expand their control and threaten the presidential palace.`\
+https://nytimes.com/2022/07/30/world/americas/haiti-government-gangs.html?searchResultPosition=4
 
-**Quotation of the Day: Germans Tiptoe a Path to Energy Conservation**\
-`Quotation of the Day for Saturday, July 30, 2022.`\
-https://nytimes.com/2022/07/29/todayspaper/quotation-of-the-day-germans-tiptoe-a-path-to-energy-conservation.html?searchResultPosition=5
+**How Did a Two-Time Killer Get Out to Be Charged Again at Age 83?**\
+`Marceline Harvey is accused of dismembering a woman in Brooklyn. Her life was defined by a tormented relationship with women and herself — and a simmering anger.`\
+https://nytimes.com/2022/07/30/nyregion/how-did-a-two-time-killer-get-out-to-be-charged-again-at-age-83.html?searchResultPosition=5
 
-**Gang Leaders Convicted in Shocking Murder of Boy Dragged From Bronx Deli**\
-`Mistaken for a gang member, Lesandro Guzman-Feliz, 15, was hacked to death with knives and a machete in a killing, captured on video, that horrified the city.`\
-https://nytimes.com/2022/07/29/nyregion/trinitarios-gang-lesandro-guzman.html?searchResultPosition=6
+**Democrats Got a Climate Bill. Joe Manchin Got Drilling, and More.**\
+`Along the way to the $369 billion package, the West Virginia senator secured an array of concessions for his state and for the fossil fuel industry.`\
+https://nytimes.com/2022/07/30/climate/manchin-climate-deal.html?searchResultPosition=6
 
-**Keep It Together**\
-`Lance Enfinger debuts with a sharp Saturday puzzle.`\
-https://nytimes.com/2022/07/29/crosswords/daily-puzzle-2022-07-30.html?searchResultPosition=7
+**Biden Savors Much-Needed Victories. But Will the Highs Overshadow the Lows?**\
+`With the midterm elections around the corner, the challenge for President Biden is to make sure his latest successes resonate with Americans who remain deeply skeptical about the future.`\
+https://nytimes.com/2022/07/30/us/politics/biden-inflation-economy-approval.html?searchResultPosition=7
 
-**Pac-12 Commissioner Keeps It Professional, but Pointed, After Defections**\
-`George Kliavkoff, the Pac-12 commissioner, said the move by U.C.L.A. and U.S.C. to leave the conference for the Big Ten was a money grab that sold out athletes.`\
-https://nytimes.com/2022/07/29/sports/pac-12-media-day-football-ucla-usc.html?searchResultPosition=8
+**A $30 Alarm Can Stop a Silent Killer. Why Many Hotels Don’t Install Them.**\
+`Three carbon monoxide deaths at a resort in the Bahamas called attention to the dangers of the odorless gas. In the U.S., where it often takes multiple poisonings for hotels to install alarms, a debate about detector policies has been intensifying.`\
+https://nytimes.com/2022/07/30/travel/hotels-carbon-monoxide.html?searchResultPosition=8
 
-**Trump Backs Tudor Dixon in Michigan’s Chaotic G.O.P. Governor Primary**\
-`The winner of the Aug. 2 primary, which has been in turmoil since May, will take on Gov. Gretchen Whitmer, a Democrat, this fall.`\
-https://nytimes.com/2022/07/29/us/politics/trump-endorses-tudor-dixon-michigan.html?searchResultPosition=9
+**Retail’s ‘Dark Side’: As Inventory Piles Up, Liquidation Warehouses Are Busy**\
+`Consumers are buying fewer discretionary goods and returning more. To clear their shelves, retailers are selling to liquidators at steep discounts.`\
+https://nytimes.com/2022/07/30/business/retail-returns-liquidation.html?searchResultPosition=9
 
-**White House Communications Director, Set to Depart, Decides to Stay**\
-`Kate Bedingfield, who announced this month that she was stepping down, abruptly changed her mind and said on Friday that she had decided to remain at the White House.`\
-https://nytimes.com/2022/07/29/us/politics/kate-bedingfield-white-house-communications-director.html?searchResultPosition=10
+**Search for Victims Continues in Kentucky After Floods Kill at Least 25**\
+`As the weather clears temporarily in flood-stricken areas of the state, rescuers are still searching for victims. Officials expect the death toll to rise.`\
+https://nytimes.com/2022/07/30/us/kentucky-flood-death-toll.html?searchResultPosition=10
 
