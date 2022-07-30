@@ -35,6 +35,6 @@ https://nytimes.com/video/us/100000008467540/kentucky-flood-death-toll.html?sear
 https://nytimes.com/2022/07/30/opinion/algorithm-innovation-decadence.html?searchResultPosition=9
 
 **Biden Tests Positive for Covid Again in ‘Rebound’ Case**\
-`The president tested positive on Saturday morning and will once again isolate, though his symptoms have not come back, the White House physician said.`\
+`The president tested positive on Saturday morning and will once again isolate, although his symptoms have not come back, the White House physician said.`\
 https://nytimes.com/2022/07/30/us/politics/biden-covid-positive.html?searchResultPosition=10
 
