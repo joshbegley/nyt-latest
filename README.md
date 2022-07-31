@@ -1,6 +1,6 @@
 **In Libyan Town Searching for Justice, a Struggle Even to Find Graves**\
 `Libya’s political chaos has left little room for the reconciliation that many residents see as necessary for peace. Few places feel that more than Tarhuna, where a murderous band of brothers reigned for years.`\
-https://nytimes.com/2022/07/31/world/middleeast/in-libyan-town-searching-for-justice-a-struggle-even-to-find-graves.html?searchResultPosition=1
+https://nytimes.com/2022/07/31/world/middleeast/tarhuna-libya-graves.html?searchResultPosition=1
 
 **Food Is Identity. For Korean Chefs Who Were Adopted, It’s Complicated.**\
 `Koreans raised by American families are exploring a heritage they didn’t grow up with through restaurant cooking — and finding both fulfillment and criticism.`\
