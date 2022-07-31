@@ -6,8 +6,8 @@ https://nytimes.com/2022/07/31/world/red-cross-russia-prison-ukranians.html?sear
 `The fire sent a huge cloud called a pyrocumulonimbus 39,000 feet into the air. Storm winds, high temperatures and drought conditions helped it grow over the weekend, officials said.`\
 https://nytimes.com/2022/07/31/us/wildfire-calfornia-mckinney.html?searchResultPosition=2
 
-**Bill Russell, Who Led the Celtics to 11 Championships, Dies at 88**\
-`A Hall of Fame center whose former coach, Red Auerbach, called “the single most devastating force in the history of the game.”`\
+**Bill Russell, Who Transformed Pro Basketball, Dies at 88**\
+`A Hall of Fame who led the Celtics to 11 championships, he was “the single most devastating force in the history of the game,” his coach said.`\
 https://nytimes.com/2022/07/31/sports/basketball/bill-russell-dead.html?searchResultPosition=3
 
 **Review: ‘Cat on a Hot Tin Roof’ Knows Its Good Angles**\
