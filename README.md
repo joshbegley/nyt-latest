@@ -16,7 +16,7 @@ https://nytimes.com/2022/07/31/world/red-cross-russia-prison-ukranians.html?sear
 
 **McKinney Fire Becomes California’s Largest of 2022, Burning 51,000 Acres**\
 `The fire sent a huge cloud called a pyrocumulonimbus 39,000 feet into the air. Storm winds, high temperatures and drought conditions helped it grow over the weekend, officials said.`\
-https://nytimes.com/2022/07/31/us/wildfire-calfornia-mckinney.html?searchResultPosition=5
+https://nytimes.com/2022/07/31/us/wildfire-california-mckinney.html?searchResultPosition=5
 
 **Bill Russell, Who Transformed Pro Basketball, Dies at 88**\
 `A Hall of Famer who led the Celtics to 11 championships, he was “the single most devastating force in the history of the game,” his coach Red Auerbach said.`\
