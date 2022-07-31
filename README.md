@@ -7,7 +7,7 @@ https://nytimes.com/2022/07/31/world/red-cross-russia-prison-ukranians.html?sear
 https://nytimes.com/2022/07/31/us/wildfire-calfornia-mckinney.html?searchResultPosition=2
 
 **Bill Russell, Who Transformed Pro Basketball, Dies at 88**\
-`A Hall of Fame who led the Celtics to 11 championships, he was “the single most devastating force in the history of the game,” his coach said.`\
+`A Hall of Famer who led the Celtics to 11 championships, he was “the single most devastating force in the history of the game,” his coach Red Auerbach said.`\
 https://nytimes.com/2022/07/31/sports/basketball/bill-russell-dead.html?searchResultPosition=3
 
 **Review: ‘Cat on a Hot Tin Roof’ Knows Its Good Angles**\
