@@ -10,7 +10,7 @@ https://nytimes.com/2022/07/31/obituaries/fidel-v-ramos-dead.html?searchResultPo
 `Explaining the increasing politicization of the book banning debate.`\
 https://nytimes.com/2022/07/31/briefing/book-banning-debate.html?searchResultPosition=3
 
-**We Are Living in Richard Nixon’s America, and Trump Wants to Keep Us There**\
+**We Are Living in Richard Nixon’s America. Escaping It Won’t Be Easy.**\
 `Remember when there was talk of Joe Biden as a transformational figure?`\
 https://nytimes.com/2022/07/31/opinion/richard-nixon-america-trump.html?searchResultPosition=4
 
