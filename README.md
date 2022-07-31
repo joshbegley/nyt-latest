@@ -1,6 +1,6 @@
 **Banana Boat Recalls Hair and Scalp Sunscreen Over Low Levels of Carcinogen**\
 `The Food and Drug Administration said consumers should immediately stop using the product if it came from any of the three batches recalled.`\
-https://nytimes.com/2022/07/31/business/banana-boat-suncreen-recall.html?searchResultPosition=1
+https://nytimes.com/2022/07/31/business/banana-boat-sunscreen-recall.html?searchResultPosition=1
 
 **Man With Loaded Assault Rifle Arrested Outside Iranian Writer’s Home**\
 `Masih Alinejad, a journalist who lives in Brooklyn, was the target of an international kidnapping plot last year, according to a federal indictment and the writer.`\
