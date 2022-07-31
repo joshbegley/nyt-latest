@@ -4,7 +4,7 @@ https://nytimes.com/2022/07/31/style/hello-world-its-been-a-while.html?searchRes
 
 **Among Pro Athletes, Bill Russell Was a Pioneering Activist**\
 `Russell marched with the Rev. Dr. Martin Luther King Jr., spoke out against segregation in Boston public schools and backed Muhammad Ali in his opposition to the Vietnam War.`\
-https://nytimes.com/2022/07/31/sports/basketball/among-pro-athletes-bill-russell-was-a-pioneering-activist.html?searchResultPosition=5
+https://nytimes.com/2022/07/31/sports/basketball/bill-russell-activism.html?searchResultPosition=5
 
 **Deal or No Deal, Yankees’ Bullpen Will Evolve**\
 `A late-game collapse was a reminder that the team’s relievers are mostly overachieving surprises or struggling veterans. Adding a dependable arm could remove some guesswork.`\
