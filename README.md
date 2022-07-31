@@ -3,7 +3,7 @@
 https://nytimes.com/2022/07/31/world/red-cross-russia-prison-ukranians.html?searchResultPosition=1
 
 **McKinney Fire Becomes California’s Largest of 2022, Burning 51,000 Acres**\
-`The blaze sent a huge cloud called a pyrocumulonimbus 39,000 feet into the air. Storm winds, high temperatures and drought conditions helped it grow over the weekend, officials said.`\
+`The fire sent a huge cloud called a pyrocumulonimbus 39,000 feet into the air. Storm winds, high temperatures and drought conditions helped it grow over the weekend, officials said.`\
 https://nytimes.com/2022/07/31/us/wildfire-calfornia-mckinney.html?searchResultPosition=2
 
 **Bill Russell, Who Led the Celtics to 11 Championships, Dies at 88**\
