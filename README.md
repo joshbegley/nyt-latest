@@ -2,8 +2,8 @@
 `Meta reported its first-ever revenue decline. The Fed agreed on another supersize rate increase. And oil company earnings are booming.`\
 https://nytimes.com/2022/07/31/business/this-week-in-business-recession-fears.html?searchResultPosition=1
 
-**Fidel V. Ramos, Philippine President Who Broke With Marcos, Dies at 94**\
-`As a hard-line general, he was considered a ruthless Marcos henchman, but he was later hailed as a national hero for breaking with the dictator, and went on to preside over an economic boom.`\
+**Fidel Ramos, Philippine President Who Broke With Marcos, Dies at 94**\
+`Considered a ruthless Marcos henchman,  he was later hailed as a national hero for breaking with the dictator, and went on to preside over an economic boom.`\
 https://nytimes.com/2022/07/31/obituaries/fidel-v-ramos-dead.html?searchResultPosition=2
 
 **The Spread of Book Banning**\
