@@ -14,7 +14,7 @@ https://nytimes.com/2022/07/31/briefing/book-banning-debate.html?searchResultPos
 `Remember when there was talk of Joe Biden as a transformational figure?`\
 https://nytimes.com/2022/07/31/opinion/richard-nixon-america-trump.html?searchResultPosition=4
 
-**Maybe There Is a Limit in the G.O.P. to Grievance Peddling**\
+**Eric Greitens May Just Get What He Deserves**\
 `At some point, toeing the line can’t excuse sketchy, creepy, violent and possibly illegal behavior.`\
 https://nytimes.com/2022/07/31/opinion/missouri-senate-eric-greitens.html?searchResultPosition=5
 
