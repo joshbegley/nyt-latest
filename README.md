@@ -34,7 +34,7 @@ https://nytimes.com/2022/07/31/world/asia/pelosi-taiwan-china.html?searchResultP
 `The best looks from the “Uncoupled” premiere, All Star Code benefit and the Polo Hamptons match.`\
 https://nytimes.com/2022/07/31/style/polo-season-in-the-hamptons.html?searchResultPosition=9
 
-**A Baseball Museum That Is ‘Better than True’**\
+**A Baseball Museum That Is ‘Better Than True’**\
 `The Baseball Reliquary in Los Angeles, a mischievous cousin of the Hall of Fame, took its share of blows but is set for a comeback. Its artifacts remain as real as your imagination.`\
 https://nytimes.com/2022/07/31/sports/baseball/baseball-reliquary.html?searchResultPosition=10
 
