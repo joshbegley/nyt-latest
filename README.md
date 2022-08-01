@@ -1,40 +1,40 @@
-**Illinois Primary Election Results**\
+**Illinois 17th Congressional District Primary Election Results**\
 `See full results and maps from the Illinois primary elections.`\
-https://nytimes.com/interactive/2022/06/28/us/elections/results-illinois.html?searchResultPosition=1
+https://nytimes.com/interactive/2022/06/28/us/elections/results-illinois-us-house-district-17.html?searchResultPosition=1
 
-**South Carolina U.S. Senate Primary Runoff Election Results**\
-`See full results and maps from the South Carolina primary runoff elections.`\
-https://nytimes.com/interactive/2022/06/28/us/elections/results-south-carolina-us-senate-runoff.html?searchResultPosition=2
-
-**Oklahoma Second Congressional District Primary Election Results**\
-`See full results and maps from the Oklahoma primary elections.`\
-https://nytimes.com/interactive/2022/06/28/us/elections/results-oklahoma-us-house-district-2.html?searchResultPosition=3
-
-**Colorado Second Congressional District Primary Election Results**\
+**Colorado U.S. Senate Primary Election Results**\
 `See full results and maps from the Colorado primary elections.`\
-https://nytimes.com/interactive/2022/06/28/us/elections/results-colorado-us-house-district-2.html?searchResultPosition=4
+https://nytimes.com/interactive/2022/06/28/us/elections/results-colorado-us-senate.html?searchResultPosition=2
 
-**Colorado Primary Election Results**\
-`See full results and maps from the Colorado primary elections.`\
-https://nytimes.com/interactive/2022/06/28/us/elections/results-colorado.html?searchResultPosition=5
-
-**Illinois Seventh Congressional District Primary Election Results**\
+**Illinois Ninth Congressional District Primary Election Results**\
 `See full results and maps from the Illinois primary elections.`\
-https://nytimes.com/interactive/2022/06/28/us/elections/results-illinois-us-house-district-7.html?searchResultPosition=6
+https://nytimes.com/interactive/2022/06/28/us/elections/results-illinois-us-house-district-9.html?searchResultPosition=3
 
-**Oklahoma Governor Primary Election Results**\
-`See full results and maps from the Oklahoma primary elections.`\
-https://nytimes.com/interactive/2022/06/28/us/elections/results-oklahoma-governor.html?searchResultPosition=7
-
-**Colorado Fifth Congressional District Primary Election Results**\
-`See full results and maps from the Colorado primary elections.`\
-https://nytimes.com/interactive/2022/06/28/us/elections/results-colorado-us-house-district-5.html?searchResultPosition=8
-
-**Utah U.S. Senate Primary Election Results**\
+**Utah Primary Election Results**\
 `See full results and maps from the Utah primary elections.`\
-https://nytimes.com/interactive/2022/06/28/us/elections/results-utah-us-senate.html?searchResultPosition=9
+https://nytimes.com/interactive/2022/06/28/us/elections/results-utah.html?searchResultPosition=4
 
-**Illinois Eighth Congressional District Primary Election Results**\
+**Illinois 14th Congressional District Primary Election Results**\
 `See full results and maps from the Illinois primary elections.`\
-https://nytimes.com/interactive/2022/06/28/us/elections/results-illinois-us-house-district-8.html?searchResultPosition=10
+https://nytimes.com/interactive/2022/06/28/us/elections/results-illinois-us-house-district-14.html?searchResultPosition=5
+
+**Maryland Seventh Congressional District Primary Election Results**\
+`See full results and maps from the Maryland primary elections.`\
+https://nytimes.com/interactive/2022/07/19/us/elections/results-maryland-us-house-district-7.html?searchResultPosition=6
+
+**Illinois 16th Congressional District Primary Election Results**\
+`See full results and maps from the Illinois primary elections.`\
+https://nytimes.com/interactive/2022/06/28/us/elections/results-illinois-us-house-district-16.html?searchResultPosition=7
+
+**Illinois U.S. Senate Primary Election Results**\
+`See full results and maps from the Illinois primary elections.`\
+https://nytimes.com/interactive/2022/06/28/us/elections/results-illinois-us-senate.html?searchResultPosition=8
+
+**New York U.S. Senate Primary Election Results**\
+`See full results and maps from the New York primary elections.`\
+https://nytimes.com/interactive/2022/06/28/us/elections/results-new-york-us-senate.html?searchResultPosition=9
+
+**Illinois 12th Congressional District Primary Election Results**\
+`See full results and maps from the Illinois primary elections.`\
+https://nytimes.com/interactive/2022/06/28/us/elections/results-illinois-us-house-district-12.html?searchResultPosition=10
 
