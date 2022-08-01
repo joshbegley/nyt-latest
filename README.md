@@ -1,5 +1,5 @@
 **Video Shows Ship Loaded With Grain Leaving Ukraine Port**\
-`A ship loaded with grain left a port in Ukraine’s Odesa region for the first time since Russia’s invasion, following an international deal that could ease global food prices and bring relief to countries facing hunger.`\
+`A ship loaded with grain left a port in Ukraine’s Odesa region for the first time since Russia’s invasion, following an international deal that could ease global food prices. Officials said the ship was bound for Istanbul, then Lebanon.`\
 https://nytimes.com/video/world/europe/100000008468652/grain-ship-ukraines-odesa.html?searchResultPosition=1
 
 **How Some Parents Changed Their Politics in the Pandemic**\
