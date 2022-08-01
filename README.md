@@ -3,20 +3,20 @@
 https://nytimes.com/2022/08/01/us/kentucky-flooding-rain.html?searchResultPosition=1
 
 **The Legal Onslaught Facing Credit Card Companies**\
-`Visa faces questions about whether it an enabled a porn site, to profit from images of child sexual abuse, and both Mastercard and Visa face new antitrust suit from Disney.`\
+`Visa faces questions about whether it enabled a porn site to profit from images of child sexual abuse, and both Mastercard and Visa face a new antitrust suit from Disney.`\
 https://nytimes.com/2022/08/01/business/dealbook/pornhub-visa-mastercard-disney.html?searchResultPosition=2
 
 **Why an Iconic California Meatpacking Plant Is Closing**\
 `Smithfield Foods is shutting its factory in Vernon early next year.`\
 https://nytimes.com/2022/08/01/us/smithfield-foods-meatpacking-plant-closing.html?searchResultPosition=3
 
-**Older Generations Are Reclaiming Rites of Passage**\
-`Rituals like graduations and weddings are few and far between for older adults. Some are finding ways to honor their momentous occasions.`\
-https://nytimes.com/2022/08/01/health/ritual-age-rite-passage.html?searchResultPosition=4
-
 **Pelosi Backs Rep. Mondaire Jones in Crowded Open-Seat Race in New York**\
 `The first-term congressman, who moved to Brooklyn to compete in the redrawn 10th Congressional District, faces a highly competitive race.`\
-https://nytimes.com/2022/08/01/nyregion/pelosi-mondaire-jones-endorsement.html?searchResultPosition=5
+https://nytimes.com/2022/08/01/nyregion/pelosi-mondaire-jones-endorsement.html?searchResultPosition=4
+
+**Older Generations Are Reclaiming Rites of Passage**\
+`Rituals like graduations and weddings are few and far between for older adults. Some are finding ways to honor their momentous occasions.`\
+https://nytimes.com/2022/08/01/health/ritual-age-rite-passage.html?searchResultPosition=5
 
 **‘Friending Bias’**\
 `A large new study offers clues about how lower-income children can rise up the economic ladder.`\
