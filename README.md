@@ -2,7 +2,7 @@
 `Here’s what you need to know at the end of the day.`\
 https://nytimes.com/2022/08/01/briefing/al-qaeda-ukraine-maine.html?searchResultPosition=1
 
-**Justice Department and Penguin Random House’s spar over merger has begun.**\
+**Justice Dept. and Penguin Random House’s sparring over merger has begun.**\
 `The trial to decide whether the publishing giant may buy Simon & Schuster is a test of the Biden administration’s push to expand antitrust enforcement.`\
 https://nytimes.com/2022/08/01/business/penguin-random-house-antitrust.html?searchResultPosition=2
 
