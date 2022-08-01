@@ -1,5 +1,5 @@
 **‘One miscalculation away from nuclear annihilation’: The U.N. chief issues a grim warning, citing war.**\
-`Conflicts in Ukraine, Asia and the Middle East have lifted the threat of nuclear disaster to a level not seen since the Cold War, according to António Guterres.`\
+`The conflict in Ukraine and tensions over North Korea and Iran have lifted the threat of nuclear disaster to a level not seen since the Cold War.`\
 https://nytimes.com/2022/08/01/world/europe/nuclear-war-un-guterres.html?searchResultPosition=1
 
 **Read the Judge’s Decision Suspending Deshaun Watson**\
