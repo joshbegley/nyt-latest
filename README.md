@@ -28,7 +28,7 @@ https://nytimes.com/2022/08/01/arts/music/mo-ostin-dead.html?searchResultPositio
 
 **Netflix Sues ‘Unofficial Bridgerton Musical’ Duo for Infringement**\
 `Abigail Barlow and Emily Bear gained prominence through TikTok and won a Grammy Award for their musical take on the hit streaming series.`\
-https://nytimes.com/2022/08/01/theater/netflix-sues-unofficial-bridgerton-musical.html?searchResultPosition=8
+https://nytimes.com/2022/08/01/theater/netflix-bridgerton-musical.html?searchResultPosition=8
 
 **First Cargo Ship Passes Russia’s Black Sea Blockade Under Grain Deal**\
 `For the first time since Russia invaded Ukraine in February, a ship loaded with corn sailed out of Odesa, part of a deal officials hope will help ease food shortages around the world.`\
