@@ -12,7 +12,7 @@ https://nytimes.com/2022/08/01/arts/music/bad-bunny-billboard-chart.html?searchR
 
 **Dan Smith Might Teach You Guitar**\
 `Teaching is a calling for New York’s king of the marketing flier, whose students include the former governor David Paterson. But he won’t take just anyone.`\
-https://nytimes.com/2022/08/01/style/dan-smith-might-teach-you-guitar.html?searchResultPosition=4
+https://nytimes.com/2022/08/01/style/dan-smith-guitar.html?searchResultPosition=4
 
 **Rebounding From a Revolt, Victory Gardens Is Again Mired in Turmoil**\
 `The esteemed Chicago theater’s artistic director is out, and artists and his supporters are upset with the company’s board of directors.`\
