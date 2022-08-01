@@ -2,7 +2,7 @@
 `And Biden’s “Paxlovid rebound.”`\
 https://nytimes.com/2022/08/01/briefing/the-rise-of-the-anti-vaccine-voter.html?searchResultPosition=1
 
-**U.S. Drone Strike Said to Have Killed Qaeda Target in Afghanistan**\
+**U.S. Drone Strike Said to Have Killed Ayman al-Zawahri, Top Qaeda Leader**\
 `The strike, carried out over the weekend, was the first attack since American forces left Afghanistan last year.`\
 https://nytimes.com/2022/08/01/us/politics/al-qaeda-strike-afghanistan.html?searchResultPosition=2
 
