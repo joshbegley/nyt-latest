@@ -1,10 +1,10 @@
-**He Says, She Says: A Biblical Tongue Meets Gender Politics**\
-`In Israel, a linguistic revolution is underway in the quest for more inclusive language for Hebrew, whose modern form adopted grammatical norms from 3,000 years ago. Not everybody is on board.`\
-https://nytimes.com/2022/08/01/world/middleeast/israel-hebrew-gender.html?searchResultPosition=1
-
 **LIV Golf, Trump and the Saudi Connection**\
 `Political dimensions of the LIV event at a Trump golf course. Also: Norman Lear’s gift; women’s health; guns in Texas schools; cellphones on the subway.`\
-https://nytimes.com/2022/08/01/opinion/letters/liv-golf-trump-saudi-arabia.html?searchResultPosition=2
+https://nytimes.com/2022/08/01/opinion/letters/liv-golf-trump-saudi-arabia.html?searchResultPosition=1
+
+**He Says, She Says: A Biblical Tongue Meets Gender Politics**\
+`In Israel, a linguistic revolution is underway in the quest for more inclusive language for Hebrew, whose modern form adopted grammatical norms from 3,000 years ago. Not everybody is on board.`\
+https://nytimes.com/2022/08/01/world/middleeast/israel-hebrew-gender.html?searchResultPosition=2
 
 **This Pushy Plant Is the First Proved to Shove Its Neighbor**\
 `The behavior could help study a longstanding mystery of how so many plants share small amounts of space.`\
