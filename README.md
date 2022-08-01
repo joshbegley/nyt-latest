@@ -27,7 +27,7 @@ https://nytimes.com/2022/08/01/dining/what-to-cook-right-now.html?searchResultPo
 https://nytimes.com/2022/08/01/movies/netflix-expiring-august.html?searchResultPosition=7
 
 **More Flooding Is Expected in Kentucky**\
-`Rain was expected to douse parts of eastern Kentucky on Monday, days after dozens of people were killed in flash floods.`\
+`Rain was expected to douse parts of eastern Kentucky on Monday, after dozens of people were killed in flash floods.`\
 https://nytimes.com/2022/08/01/us/kentucky-flooding-rain.html?searchResultPosition=8
 
 **The Legal Onslaught Facing Credit Card Companies**\
