@@ -1,5 +1,5 @@
 **Biden Addresses Drone Strike Against Top Al Qaeda Leader**\
-`The United States conducted a drone strike over the weekend that killed an Al Qaeda target in Afghanistan.`\
+`President Biden addressed the nation from the White House on Monday evening.`\
 https://nytimes.com/video/us/politics/100000008470167/biden-drone-strike-al-qaeda.html?searchResultPosition=1
 
 **Top Democrats, Alleging Cover-Up, Seek Testimony on Secret Service Texts**\
