@@ -31,7 +31,7 @@ https://nytimes.com/2022/08/01/business/opendoor-homes-deceptive-marketing.html?
 https://nytimes.com/2022/08/01/sports/basketball/brittney-griner-athletes-cannabis-marijuana.html?searchResultPosition=8
 
 **Here Are the Longest N.F.L. Player Suspensions**\
-`Deshaun Watson’s six-game suspension was the first player conduct penalty reached by a new hearing process meant to remove disciplinary decisions from Commissioner Roger Goodell’s direct control.`\
+`Deshaun Watson’s six-game suspension, imposed by a retired federal judge, was the first player conduct penalty reached by the N.F.L.’s new hearing process.`\
 https://nytimes.com/article/nfl-suspensions.html?searchResultPosition=9
 
 **A Wine Worthy of a Blind Tasting**\
