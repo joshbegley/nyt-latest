@@ -16,7 +16,7 @@ https://nytimes.com/2022/08/02/arts/television/late-night-biden-covid.html?searc
 
 **Kentucky Braces for More Heavy Rain and Floods**\
 `A storm system moving east across the state may impede efforts to rescue hundreds of people still unaccounted for after severe flooding last week.`\
-https://nytimes.com/2022/08/02/us/kentucky-flood-death-toll.html?searchResultPosition=5
+https://nytimes.com/2022/08/02/us/kentucky-forecast-flood-deaths.html?searchResultPosition=5
 
 **Your Tuesday Briefing**\
 `The U.S. kills Al Qaeda’s leader.`\
