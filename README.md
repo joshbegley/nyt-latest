@@ -1,6 +1,6 @@
 **Twitter’s subpoenas of Musk’s banks offer clues to its legal strategy.**\
 `Twitter has sent out requests for information from the banks that are backing the billionaire’s purchase, which he is trying to walk away from.`\
-https://nytimes.com/2022/08/02/business/twitters-subpoenas-of-musks-banks-offer-clues-to-its-legal-strategy.html?searchResultPosition=1
+https://nytimes.com/2022/08/02/business/musk-banks-twitter-subpoena.html?searchResultPosition=1
 
 **White House Retrofits Infrastructure Bill to Better Help Poor Communities**\
 `The Biden administration will increase assistance to areas that lack the capacity to apply for improvements to their sanitation and storm water systems.`\
