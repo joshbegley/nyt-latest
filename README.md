@@ -27,7 +27,7 @@ https://nytimes.com/2022/08/02/crosswords/spelling-bee-forum.html?searchResultPo
 https://nytimes.com/2022/08/02/arts/television/late-night-biden-covid.html?searchResultPosition=7
 
 **Kentucky Braces for More Heavy Rain and Floods**\
-`A storm system moving east across the state may impede efforts to rescue hundreds of people still unaccounted for after severe flooding last week.`\
+`A storm system moving east across the state may impede efforts to find hundreds of people still unaccounted for after severe flooding last week.`\
 https://nytimes.com/2022/08/02/us/kentucky-forecast-flood-deaths.html?searchResultPosition=8
 
 **Your Tuesday Briefing**\
