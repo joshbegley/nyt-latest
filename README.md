@@ -4,7 +4,7 @@ https://nytimes.com/2022/08/02/dining/nyc-restaurant-news.html?searchResultPosit
 
 **Miami Dolphins to Lose Two Draft Picks; Owner Suspended for Tampering**\
 `An investigator also found no evidence that Dolphins owner Stephen M. Ross seriously pressed his coach to deliberately lose games.`\
-https://nytimes.com/2022/08/02/sports/football/miami-dolphins-to-lose-two-draft-picks-owner-suspended-for-tampering.html?searchResultPosition=2
+https://nytimes.com/2022/08/02/sports/football/miami-dolphins-tampering.html?searchResultPosition=2
 
 **Bernard Marson, a Catalyst for SoHo’s Renaissance, Dies at 91**\
 `An architect and developer, he helped pioneer the neighborhood’s transition from manufacturing into lofts where artists could work and live.`\
