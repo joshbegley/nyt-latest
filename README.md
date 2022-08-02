@@ -1,40 +1,40 @@
+**‘Better Call Saul’ Season 6, Episode 11 Recap: Back to the Beginning**\
+`Gene works a new scam, Francesca takes a phone call, and three guys get to know each other in an RV.`\
+https://nytimes.com/2022/08/01/arts/television/better-call-saul-recap-season-6-episode-11.html?searchResultPosition=1
+
 **Get My Drift?**\
 `Jay Kaskel and Daniel Kantor take a solemn vow.`\
-https://nytimes.com/2022/08/01/crosswords/daily-puzzle-2022-08-02.html?searchResultPosition=1
+https://nytimes.com/2022/08/01/crosswords/daily-puzzle-2022-08-02.html?searchResultPosition=2
 
-**Arizona Attorney General Debunks State Senator’s Election Fraud Claims**\
+**Arizona Attorney General Debunks Trump Supporters’ Election Fraud Claims**\
 `In an inquiry into accusations that dead voters had cast ballots, “many were very surprised to learn they were allegedly deceased,” Mark Brnovich said.`\
-https://nytimes.com/2022/08/01/us/politics/arizona-attorney-general-dead-voters.html?searchResultPosition=2
+https://nytimes.com/2022/08/01/us/politics/arizona-attorney-general-dead-voters.html?searchResultPosition=3
 
 **Man Who Posed as Federal Agent, Duping Secret Service, Pleads Guilty**\
 `Arian Taherzadeh masqueraded as a Secret Service agent for years and cozied up to several members by providing them with tens of thousands of dollars in gifts, federal prosecutors said.`\
-https://nytimes.com/2022/08/01/us/secret-service-impersonators-guilty.html?searchResultPosition=3
+https://nytimes.com/2022/08/01/us/secret-service-impersonators-guilty.html?searchResultPosition=4
 
 **Man Charged in Fatal Stabbing During River Tubing Confrontation in Wisconsin**\
 `Nicolae Miu, 52, of Prior Lake, Minn., was charged Monday with first-degree intentional homicide and other felonies in the killing of a 17-year-old and the wounding of four companions.`\
-https://nytimes.com/2022/08/01/us/apple-river-wisconsin-stabbing-charges.html?searchResultPosition=4
+https://nytimes.com/2022/08/01/us/apple-river-wisconsin-stabbing-charges.html?searchResultPosition=5
 
 **Biden Addresses Drone Strike Against Top Al Qaeda Leader**\
 `President Biden addressed the nation from the White House on Monday evening.`\
-https://nytimes.com/video/us/politics/100000008470167/biden-drone-strike-al-qaeda.html?searchResultPosition=5
+https://nytimes.com/video/us/politics/100000008470167/biden-drone-strike-al-qaeda.html?searchResultPosition=6
 
 **Top Democrats, Alleging Cover-Up, Seek Testimony on Secret Service Texts**\
 `The leaders of two House committees told the Department of Homeland Security’s inspector general that they had developed “grave new concerns over your lack of transparency and independence.”`\
-https://nytimes.com/2022/08/01/us/politics/jan-6-secret-service-texts.html?searchResultPosition=6
+https://nytimes.com/2022/08/01/us/politics/jan-6-secret-service-texts.html?searchResultPosition=7
 
 **G.O.P. Reversal Imperils Bill to Treat Veteran Ailments From Toxic Exposure**\
 `Several Republicans who had backed the measure blocked it last week, drawing ire from Democrats and veterans groups who expected quick enactment. Another vote is planned for this week.`\
-https://nytimes.com/2022/08/01/us/politics/republican-reversal-burn-pits.html?searchResultPosition=7
+https://nytimes.com/2022/08/01/us/politics/republican-reversal-burn-pits.html?searchResultPosition=8
 
 **Deshaun Watson’s Suspension Will Test the N.F.L.’s Support for Women**\
 `The N.F.L. must decide whether to uphold Watson’s six-game suspension or impose a more severe penalty. Its choice will speak volumes, writes our columnist.`\
-https://nytimes.com/2022/08/01/sports/football/deshaun-watson-nfl-discipline.html?searchResultPosition=8
+https://nytimes.com/2022/08/01/sports/football/deshaun-watson-nfl-discipline.html?searchResultPosition=9
 
 **Watch Live: Biden on Strike Said to Have Killed Top Al Qaeda Leader**\
 `The United States conducted a drone strike over the weekend that killed an Al Qaeda target in Afghanistan, the first attack since American forces left last year, according to multiple U.S. officials.`\
-https://nytimes.com/video/us/100000008469993/al-qaeda-leader-biden.html?searchResultPosition=9
-
-**Why Pelosi’s Visit to Taiwan Is Utterly Reckless**\
-`The timing could not be worse. The Ukraine war is not over. `\
-https://nytimes.com/2022/08/01/opinion/nancy-pelosi-taiwan-china.html?searchResultPosition=10
+https://nytimes.com/video/us/100000008469993/al-qaeda-leader-biden.html?searchResultPosition=10
 
