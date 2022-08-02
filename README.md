@@ -1,40 +1,40 @@
-**The Meridian Brothers’ Eccentric Mastermind Is Electrifying Roots Salsa**\
-`Eblis Álvarez’s albums are “collaborations” with fictional bands. His latest, with the imaginary El Grupo Renacimiento, is a psychedelic fever dream and a critique of technology’s encroach.`\
-https://nytimes.com/2022/08/02/arts/music/meridian-brothers-el-grupo-renacimiento.html?searchResultPosition=1
+**Illinois U.S. Senate Primary Election Results**\
+`See full results and maps from the Illinois primary elections.`\
+https://nytimes.com/interactive/2022/06/28/us/elections/results-illinois-us-senate.html?searchResultPosition=1
 
-**Another Major Heat Wave Sweeps the U.S.**\
-`After deaths in the Pacific Northwest, parts of the central United States will see record-breaking temperatures, with the Northeast broiling on Thursday.`\
-https://nytimes.com/2022/08/02/us/heat-wave-northeast-records.html?searchResultPosition=2
+**Utah Third Congressional District Primary Election Results**\
+`See full results and maps from the Utah primary elections.`\
+https://nytimes.com/interactive/2022/06/28/us/elections/results-utah-us-house-district-3.html?searchResultPosition=2
 
-**Dinner and Dancing in an Ivy-Laced Courtyard in Italy**\
-`On a warm summer evening, Isabel Wilkinson Schor hosted an event celebrating both her line, Attersee’s one-year anniversary and a recent collaboration.`\
-https://nytimes.com/2022/08/02/t-magazine/isabel-wilkinson-schor-attersee-milan.html?searchResultPosition=3
+**Utah First Congressional District Primary Election Results**\
+`See full results and maps from the Utah primary elections.`\
+https://nytimes.com/interactive/2022/06/28/us/elections/results-utah-us-house-district-1.html?searchResultPosition=3
 
-**Swinging Big, the Padres Near a Deal for Juan Soto**\
-`A blockbuster trade between Washington and San Diego is expected to send Soto and Josh Bell to the Padres. Eric Hosmer’s no-trade clause is holding things up.`\
-https://nytimes.com/2022/08/02/sports/baseball/juan-soto-padres-trade.html?searchResultPosition=4
+**Illinois Attorney General Primary Election Results**\
+`See full results and maps from the Illinois primary elections.`\
+https://nytimes.com/interactive/2022/06/28/us/elections/results-illinois-attorney-general.html?searchResultPosition=4
 
-**The Books Merger That’s About Amazon**\
-`The U.S. wants to stop Penguin Random House from buying Simon & Schuster. The elephant in the room is Amazon.`\
-https://nytimes.com/2022/08/02/technology/penguin-random-house-amazon.html?searchResultPosition=5
+**Oklahoma Attorney General Primary Election Results**\
+`See full results and maps from the Oklahoma primary elections.`\
+https://nytimes.com/interactive/2022/06/28/us/elections/results-oklahoma-attorney-general.html?searchResultPosition=5
 
-**Forbes Is Said to Explore Sale After SPAC Deal Collapses**\
-`Forbes has tapped Citigroup to sell at a price of at least the $630 million valuation declared in its earlier process to go public through a blank-check company.`\
-https://nytimes.com/2022/08/02/business/media/forbes-sale-spac.html?searchResultPosition=6
+**Utah Fourth Congressional District Primary Election Results**\
+`See full results and maps from the Utah primary elections.`\
+https://nytimes.com/interactive/2022/06/28/us/elections/results-utah-us-house-district-4.html?searchResultPosition=6
 
-**The Al Qaeda That Ayman al-Zawahri Leaves Behind**\
-`The administration clearly misjudged Al Qaeda’s trajectory in Afghanistan and U.S. influence over the Taliban. `\
-https://nytimes.com/2022/08/02/opinion/ayman-al-zawahri-al-qaeda-afghanistan.html?searchResultPosition=7
+**Colorado First Congressional District Primary Election Results**\
+`See full results and maps from the Colorado primary elections.`\
+https://nytimes.com/interactive/2022/06/28/us/elections/results-colorado-us-house-district-1.html?searchResultPosition=7
 
-**Who’s Embargoing Whom?**\
-`Russia’s peculiar economic war with the West.`\
-https://nytimes.com/2022/08/02/opinion/russia-ukraine-war-embargo-gas.html?searchResultPosition=8
+**Illinois Governor Primary Election Results**\
+`See full results and maps from the Illinois primary elections.`\
+https://nytimes.com/interactive/2022/06/28/us/elections/results-illinois-governor.html?searchResultPosition=8
 
-**One Fifth, Serving Updated Italian Fare, Is Set to Open in Greenwich Village**\
-`A classic tavern in TriBeCa, a restaurant from two Momofuku Ko alumni, and more restaurant news.`\
-https://nytimes.com/2022/08/02/dining/nyc-restaurant-news.html?searchResultPosition=9
+**Oklahoma U.S. Senate Special Primary Election Results**\
+`See full results and maps from the Oklahoma special primary election.`\
+https://nytimes.com/interactive/2022/06/28/us/elections/results-oklahoma-us-senate-special-primary.html?searchResultPosition=9
 
-**Dolphins Lose 2 Draft Picks; Owner Suspended for Tampering With Brady**\
-`An investigator also found no evidence that the Dolphins owner Stephen M. Ross seriously pressed his coach to deliberately lose games.`\
-https://nytimes.com/2022/08/02/sports/football/miami-dolphins-tampering.html?searchResultPosition=10
+**Colorado Seventh Congressional District Primary Election Results**\
+`See full results and maps from the Colorado primary elections.`\
+https://nytimes.com/interactive/2022/06/28/us/elections/results-colorado-us-house-district-7.html?searchResultPosition=10
 
