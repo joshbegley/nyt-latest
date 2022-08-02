@@ -8,7 +8,7 @@ https://nytimes.com/2022/08/02/movies/white-noise-new-york-film-festival.html?se
 
 **A cyberattack crashes the website of Taiwan’s presidential office hours before Pelosi’s visit.**\
 `It resumed normal operation after the problems were fixed, according to a statement from the office.`\
-https://nytimes.com/2022/08/02/world/asia/a-cyberattack-crashes-the-website-of-taiwans-presidential-office-hours-before-pelosis-visit.html?searchResultPosition=3
+https://nytimes.com/2022/08/02/world/asia/taiwan-cyberattack-pelosi-visit.html?searchResultPosition=3
 
 **What Fungi Can Teach Us**\
 `A reporting trip to a forest in Chile made me think deeper about the relationships we need to cope with life on a hotter planet.`\
