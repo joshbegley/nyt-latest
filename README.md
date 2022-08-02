@@ -2,8 +2,8 @@
 `The appointment of Robert Fenton, a veteran emergency response official, comes as New York, California and Illinois declare states of emergency.`\
 https://nytimes.com/2022/08/02/us/politics/white-house-coordinator-monkeypox.html?searchResultPosition=1
 
-**Uber posts record revenue but loses more money from investments.**\
-`The company’s quarterly results exceeded analyst expectations as more drivers returned to the road.`\
+**Uber posts record revenue but loses nearly $2 billion on its stakes in other companies.**\
+`Despite posting a loss, the company’s quarterly results exceeded analyst expectations as more drivers returned to the road.`\
 https://nytimes.com/2022/08/02/business/uber-quarterly-earnings.html?searchResultPosition=2
 
 **Washington: How to vote, where to vote and what’s on the ballot.**\
