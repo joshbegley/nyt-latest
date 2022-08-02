@@ -18,7 +18,7 @@ https://nytimes.com/2022/08/02/well/mind/alzheimers-caregivers.html?searchResult
 `Journey to the Upper East Side for Thai specialties, “jewel” rice and South African wine.`\
 https://nytimes.com/2022/08/02/dining/five-years-of-the-second-avenue-subway.html?searchResultPosition=5
 
-**A Fed Pivot? Not Yet, Policymakers Suggest, as Rapid Inflation Lingers**\
+**A Fed Pivot? Not Yet, Policymakers Suggest, as Rapid Inflation Lingers.**\
 `Stocks rose after the Federal Reserve’s recent meeting, with investors hoping the central bank would dial back rate increases. Not so soon, officials indicated on Tuesday.`\
 https://nytimes.com/2022/08/02/business/economy/fed-inflation-interest-rates.html?searchResultPosition=6
 
