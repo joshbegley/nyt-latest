@@ -7,7 +7,7 @@ https://nytimes.com/video/us/100000008470798/kentucky-flood-rescues.html?searchR
 https://nytimes.com/2022/08/02/theater/the-butcher-boy-review.html?searchResultPosition=2
 
 **A Central Park Reservoir Nature Walk**\
-`An invitation to slow down and enjoy the natural beauty of New York's popular foot path. `\
+`An invitation to slow down and enjoy the natural beauty of New York's popular foot path.`\
 https://nytimes.com/interactive/2022/08/02/nyregion/central-park-reservoir.html?searchResultPosition=3
 
 **The Robust Return of Beyoncé**\
