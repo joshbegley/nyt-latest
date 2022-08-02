@@ -1,40 +1,40 @@
-**Illinois Ninth Congressional District Primary Election Results**\
+**Maryland Third Congressional District Primary Election Results**\
+`See full results and maps from the Maryland primary elections.`\
+https://nytimes.com/interactive/2022/07/19/us/elections/results-maryland-us-house-district-3.html?searchResultPosition=1
+
+**New York State Assembly Primary Election Results**\
+`See full results and maps from the New York primary elections.`\
+https://nytimes.com/interactive/2022/06/28/us/elections/results-new-york-state-assembly.html?searchResultPosition=2
+
+**Illinois Seventh Congressional District Primary Election Results**\
 `See full results and maps from the Illinois primary elections.`\
-https://nytimes.com/interactive/2022/06/28/us/elections/results-illinois-us-house-district-9.html?searchResultPosition=1
+https://nytimes.com/interactive/2022/06/28/us/elections/results-illinois-us-house-district-7.html?searchResultPosition=3
 
-**Oklahoma U.S. Senate Primary Election Results**\
-`See full results and maps from the Oklahoma primary elections.`\
-https://nytimes.com/interactive/2022/06/28/us/elections/results-oklahoma-us-senate.html?searchResultPosition=2
+**Maryland First Congressional District Primary Election Results**\
+`See full results and maps from the Maryland primary elections.`\
+https://nytimes.com/interactive/2022/07/19/us/elections/results-maryland-us-house-district-1.html?searchResultPosition=4
 
-**Mississippi Third Congressional District Runoff Election Results**\
-`See full results and maps from the Mississippi runoff elections.`\
-https://nytimes.com/interactive/2022/06/28/us/elections/results-mississippi-us-house-district-3.html?searchResultPosition=3
+**Maryland Attorney General Primary Election Results**\
+`See full results and maps from the Maryland primary elections.`\
+https://nytimes.com/interactive/2022/07/19/us/elections/results-maryland-attorney-general.html?searchResultPosition=5
 
-**Illinois 17th Congressional District Primary Election Results**\
-`See full results and maps from the Illinois primary elections.`\
-https://nytimes.com/interactive/2022/06/28/us/elections/results-illinois-us-house-district-17.html?searchResultPosition=4
-
-**Utah Second Congressional District Primary Election Results**\
-`See full results and maps from the Utah primary elections.`\
-https://nytimes.com/interactive/2022/06/28/us/elections/results-utah-us-house-district-2.html?searchResultPosition=5
-
-**Colorado Eighth Congressional District Primary Election Results**\
+**Colorado Third Congressional District Primary Election Results**\
 `See full results and maps from the Colorado primary elections.`\
-https://nytimes.com/interactive/2022/06/28/us/elections/results-colorado-us-house-district-8.html?searchResultPosition=6
+https://nytimes.com/interactive/2022/06/28/us/elections/results-colorado-us-house-district-3.html?searchResultPosition=6
 
-**Oklahoma Second Congressional District Primary Election Results**\
-`See full results and maps from the Oklahoma primary elections.`\
-https://nytimes.com/interactive/2022/06/28/us/elections/results-oklahoma-us-house-district-2.html?searchResultPosition=7
-
-**Nebraska First Congressional District Special Election Results**\
-`See full results and maps from the Nebraska special general elections.`\
-https://nytimes.com/interactive/2022/06/28/us/elections/results-nebraska-us-house-district-1.html?searchResultPosition=8
-
-**Colorado Secretary of State Primary Election Results**\
-`See full results and maps from the Colorado primary elections.`\
-https://nytimes.com/interactive/2022/06/28/us/elections/results-colorado-secretary-of-state.html?searchResultPosition=9
-
-**Illinois Primary Election Results**\
+**Illinois First Congressional District Primary Election Results**\
 `See full results and maps from the Illinois primary elections.`\
-https://nytimes.com/interactive/2022/06/28/us/elections/results-illinois.html?searchResultPosition=10
+https://nytimes.com/interactive/2022/06/28/us/elections/results-illinois-us-house-district-1.html?searchResultPosition=7
+
+**Maryland Fourth Congressional District Primary Election Results**\
+`See full results and maps from the Maryland primary elections.`\
+https://nytimes.com/interactive/2022/07/19/us/elections/results-maryland-us-house-district-4.html?searchResultPosition=8
+
+**Maryland U.S. Senate Primary Election Results**\
+`See full results and maps from the Maryland primary elections.`\
+https://nytimes.com/interactive/2022/07/19/us/elections/results-maryland-us-senate.html?searchResultPosition=9
+
+**Maryland Eighth Congressional District Primary Election Results**\
+`See full results and maps from the Maryland primary elections.`\
+https://nytimes.com/interactive/2022/07/19/us/elections/results-maryland-us-house-district-8.html?searchResultPosition=10
 
