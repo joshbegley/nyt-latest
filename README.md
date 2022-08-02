@@ -1,40 +1,40 @@
-**How Much Does Your MRI Cost? Buy It First to Find Out.**\
-`Across the country, thousands of hospitals have largely ignored price transparency laws.`\
-https://nytimes.com/video/opinion/100000008442692/hospital-bill-transparency.html?searchResultPosition=1
+**Michael R. Jackson’s ‘Peaceful Space’**\
+`The Tony- and Pulitzer-winning author of “A Strange Loop” has a new apartment in Manhattan — and “I don’t have to share it with anyone.”`\
+https://nytimes.com/slideshow/2022/08/02/realestate/michael-r-jacksons-peaceful-space.html?searchResultPosition=1
 
-**BP is the latest oil giant to report a huge quarterly profit.**\
-`The company’s $8.5 billion profit beat expectations, rounding out a series of bumper reports by the biggest Western oil companies.`\
-https://nytimes.com/2022/08/02/business/bp-profit-oil.html?searchResultPosition=2
+**Longtime University President’s Legacy: A Diverse New Generation in STEM**\
+`Freeman Hrabowski transformed a onetime commuter school into the country’s strongest pipeline of Black graduates in science, technology, engineering and math.`\
+https://nytimes.com/2022/08/02/us/politics/umbc-freeman-hrabowski.html?searchResultPosition=2
 
-**The New York Times Presents: ‘‘Elon Musk’s Crash Course’**\
-`Our documentary explores Tesla’s difficulty in making automated driving a reality.`\
-https://nytimes.com/video/NYT-Presents/100000008464087/the-new-york-times-presents-elon-musks-crash-course.html?searchResultPosition=3
+**The Crypto Market Crashed. They’re Still Buying Bitcoin.**\
+`Hard-core Bitcoin evangelists are making the case that Bitcoin differs from the unstable crypto projects that sent the market into a tailspin.`\
+https://nytimes.com/2022/08/02/technology/crypto-bitcoin-maximalists.html?searchResultPosition=3
 
-**A Silver Lining: Giant Floods Not Only Destroy, They Renew**\
-`Dams that disrupt giant flood patterns prevent destruction of homes. But in nature, they can imperil environments that depend on floodwaters.`\
-https://nytimes.com/2022/08/02/science/yellowstone-flooding.html?searchResultPosition=4
+**The Secret Airstrips Behind Brazil’s Illegal Mining Crisis**\
+`The Times identified hundreds of airstrips that bring criminal mining operations to the most remote corners of the Amazon.`\
+https://nytimes.com/interactive/2022/08/02/world/americas/brazil-airstrips-illegal-mining.html?searchResultPosition=4
 
-**Breaking Nicotine’s Powerful Draw**\
-`Millions of smokers could be forced to confront the agony of nicotine withdrawal as the F.D.A. weighs calling for a drastic reduction in the addictive lure of cigarettes.`\
-https://nytimes.com/2022/08/02/health/fda-nicotine-addiction.html?searchResultPosition=5
+**Is Bio-Designed Collagen the Next Step in Animal Protein Replacement?**\
+`One company believes the possibilities go beyond vegan “meat,” from faux leather to luxury skin-care products. But is there enough demand outside of food alternatives?`\
+https://nytimes.com/2022/08/02/business/collagen-protein-fake-meat-geltor.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/08/02/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**Exploring Connecticut’s Culinary Corridor**\
+`Foie gras Popsicles? 81-layer croissants? A new wave of restaurants in the state’s maritime southeast brings more to the menu than lobster rolls and pizza.`\
+https://nytimes.com/2022/08/02/travel/southeast-connecticut-restaurants.html?searchResultPosition=6
 
-**Late Night Reacts to Biden’s Rebound Covid Case**\
-`“It’s the hottest rebound since J. Lo tested positive for a second case of Affleck,” Stephen Colbert said.`\
-https://nytimes.com/2022/08/02/arts/television/late-night-biden-covid.html?searchResultPosition=7
+**Ahead of Pelosi’s Expected Trip, Quiet Defiance in Taiwan**\
+`Public nonchalance about the tensions over Nancy Pelosi belies a political reality: Many are tired of China’s threats and crave American support.`\
+https://nytimes.com/2022/08/02/world/asia/pelosi-trip-taiwan.html?searchResultPosition=7
 
-**Kentucky Braces for More Heavy Rain and Floods**\
-`A storm system moving east across the state may impede efforts to find hundreds of people still unaccounted for after severe flooding last week.`\
-https://nytimes.com/2022/08/02/us/kentucky-forecast-flood-deaths.html?searchResultPosition=8
+**Is Scott Galloway the Howard Stern of the Business World?**\
+`The podcaster aspires to be an influential thought leader. But his appeal to a mostly male fan base is about more than just his prognostications.`\
+https://nytimes.com/2022/08/02/style/scott-galloway.html?searchResultPosition=8
 
-**Your Tuesday Briefing**\
-`The U.S. kills Al Qaeda’s leader.`\
-https://nytimes.com/2022/08/02/briefing/us-al-qaeda-zawahri-europe.html?searchResultPosition=9
+**Buckminster Fuller, Role Model and Cautionary Tale**\
+`The biography “Inventor of the Future,” by Alec Nevala-Lee, explores the dreams and failures of an American optimist.`\
+https://nytimes.com/2022/08/02/books/review/nevala-lee-inventor-future.html?searchResultPosition=9
 
-**California Declares State of Emergency as Monkeypox Spreads**\
-`Three states have now issued emergency declarations in the past week, as have New York City and San Francisco.`\
-https://nytimes.com/2022/08/02/us/california-state-of-emergency-monkeypox.html?searchResultPosition=10
+**A Bloody Crime, a Mysterious Disappearance and the Long After**\
+`In Tyrell Johnson’s new thriller, “The Lost Kings,” a woman investigates both a crime and its aftereffects on her own body and psyche.`\
+https://nytimes.com/2022/08/02/books/review/the-lost-kings-tyrell-johnson.html?searchResultPosition=10
 
