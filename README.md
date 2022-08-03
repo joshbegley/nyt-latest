@@ -11,7 +11,7 @@ https://nytimes.com/2022/08/03/us/politics/gop-election-deniers-trump-arizona-mi
 https://nytimes.com/interactive/2022/08/03/arts/editors-recommendations-bear.html?searchResultPosition=3
 
 **Fire Sparked by Electric Scooter Battery Kills Woman and Child in Harlem**\
-`The fire, which occurred at a New York Housing Authority building, also left the child’s father in critical condition, according to the police. E-bikes and scooters have been implicated in numerous fires in recent months.`\
+`The fire, which occurred at a New York Housing Authority building, also left the child’s father in critical condition, according to the police.`\
 https://nytimes.com/2022/08/03/nyregion/new-york-electric-scooter-battery-fire-deaths.html?searchResultPosition=4
 
 **Rzewski for Lovers? A Pianist Mines a Prickly Modernist’s Gentler Side**\
