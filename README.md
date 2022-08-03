@@ -2,7 +2,7 @@
 `Nearly three million people logged onto their computers to try to track Nancy Pelosi’s controversial trip to Taiwan. As it took a different and more circuitous path, many were confused.`\
 https://nytimes.com/2022/08/03/world/asia/pelosis-widely-watched-flight-to-taipei-took-a-circuitous-route-heres-why.html?searchResultPosition=1
 
-**Premier League Players Will No Longer Take a Knee Before Games**\
+**Premier League Players Will No Longer Take a Knee Before Every Game**\
 `The gesture, begun by players in 2020 as part of an effort to highlight racism, will continue but now only before certain matches.`\
 https://nytimes.com/2022/08/03/sports/soccer/premier-league-kneeling-racism.html?searchResultPosition=2
 
