@@ -1,5 +1,5 @@
-**2 Pedestrians Die After Cars Collide Head-On in Inwood**\
-`The crash happened as speed cameras went live full-time on Monday. New York City continues to struggle to reduce traffic deaths despite years of effort.`\
+**Days After N.Y. Speed Cameras Go Full-Time, Two Pedestrians Die in Crash**\
+`The crash in Inwood in Manhattan happened as speed cameras turned on 24-7 on Monday. New York City continues to struggle to reduce traffic deaths despite years of effort.`\
 https://nytimes.com/2022/08/03/nyregion/inwood-ny-car-crash-pedestrian-death.html?searchResultPosition=1
 
 **A Cynical Low for the Democratic Party**\
