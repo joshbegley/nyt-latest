@@ -22,7 +22,7 @@ https://nytimes.com/2022/08/03/insider/stefanos-chen-real-estate.html?searchResu
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2022/08/03/crosswords/spelling-bee-forum.html?searchResultPosition=6
 
-**Chinese military drills circling Taiwan set up potential standoff.**\
+**Chinese military drills circling Taiwan set up a potential standoff.**\
 `China’s plans to conduct live-fire drills into Taiwan’s territorial seas could mark a new stage of brinkmanship.`\
 https://nytimes.com/2022/08/03/world/asia/chinese-military-drills-maps.html?searchResultPosition=7
 
