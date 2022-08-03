@@ -1,40 +1,40 @@
+**Voters in Kansas Celebrate Preservation of Abortion Rights**\
+`In the first election test after the U.S. Supreme Court overturned Roe v. Wade, Kansas voters decided against removing the right to abortion from the State Constitution.`\
+https://nytimes.com/video/us/politics/100000008472281/kansas-abortion-vote.html?searchResultPosition=1
+
 **Five of Vin Scully’s Most Memorable Calls**\
 `The longtime Dodgers announcer, who died Tuesday, narrated many of the greatest moments in baseball history.`\
-https://nytimes.com/interactive/2022/08/03/sports/baseball/vin-scully-quotes.html?searchResultPosition=1
+https://nytimes.com/interactive/2022/08/03/sports/baseball/vin-scully-quotes.html?searchResultPosition=2
 
 **A ‘Whisper’ Leads a Real Estate Reporter to Claims of Deed Theft**\
 `In an interview, Stefanos Chen, who covers tenants, owners and buildings in New York, discussed a recent investigation and his approach to the beat.`\
-https://nytimes.com/2022/08/03/insider/stefanos-chen-real-estate.html?searchResultPosition=2
+https://nytimes.com/2022/08/03/insider/stefanos-chen-real-estate.html?searchResultPosition=3
 
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/08/03/crosswords/spelling-bee-forum.html?searchResultPosition=3
+https://nytimes.com/2022/08/03/crosswords/spelling-bee-forum.html?searchResultPosition=4
 
 **Chinese military drills circling Taiwan set up potential standoff.**\
 `China’s plans to conduct live-fire drills into Taiwan’s territorial seas could mark a new stage of brinkmanship.`\
-https://nytimes.com/2022/08/03/world/asia/chinese-military-drills-maps.html?searchResultPosition=4
+https://nytimes.com/2022/08/03/world/asia/chinese-military-drills-maps.html?searchResultPosition=5
 
 **Trevor Noah Weighs In on the Killing of Ayman al-Zawahri**\
 `Noah argued that safe houses should be called something different because “every terrorist gets killed in a safe house.”`\
-https://nytimes.com/2022/08/03/arts/television/late-night-al-zawahri.html?searchResultPosition=5
+https://nytimes.com/2022/08/03/arts/television/late-night-al-zawahri.html?searchResultPosition=6
 
 **Pelosi Vows ‘Ironclad’ Commitment in Meeting With Taiwan’s President**\
 `Nancy Pelosi, the speaker of the House, met with Taiwan’s president, Tsai Ing-wen, in a series of high profile meetings. Ms. Pelosi was presented with an award given to those who have made outstanding contributions to Taiwan.`\
-https://nytimes.com/video/us/politics/100000008472221/pelosi-taiwan-sovereignty.html?searchResultPosition=6
+https://nytimes.com/video/us/politics/100000008472221/pelosi-taiwan-sovereignty.html?searchResultPosition=7
 
 **How New Yorkers Push the Limits**\
 `From speed zones to traffic crossings to parking rules, city residents try to get away with going a little faster, or cutting it close, or being a little later.`\
-https://nytimes.com/2022/08/03/nyregion/new-yorkers-speed-cameras.html?searchResultPosition=7
+https://nytimes.com/2022/08/03/nyregion/new-yorkers-speed-cameras.html?searchResultPosition=8
 
 **Here’s who won and who lost in Tuesday’s primary elections.**\
 `Kansans defeated a constitutional amendment that would have enabled abortion restrictions, Missouri Republicans breathed a sigh of relief over their Senate nominee, and more results.`\
-https://nytimes.com/2022/08/03/us/politics/primary-elections-winners-losers.html?searchResultPosition=8
+https://nytimes.com/2022/08/03/us/politics/primary-elections-winners-losers.html?searchResultPosition=9
 
 **Living side by side, Ukrainian and Russian sailors are tested by the war.**\
 `By Jenny Gross and Emma Bubola`\
-https://nytimes.com/2022/08/03/world/europe/living-side-by-side-ukrainian-and-russian-sailors-are-tested-by-the-war.html?searchResultPosition=9
-
-**Could China invade Taiwan?**\
-`The Chinese military has upgraded, but people who closely watch China’s forces disagree over how ready they would be to seize the island.`\
-https://nytimes.com/2022/08/02/world/asia/china-invade-taiwan.html?searchResultPosition=10
+https://nytimes.com/2022/08/03/world/europe/living-side-by-side-ukrainian-and-russian-sailors-are-tested-by-the-war.html?searchResultPosition=10
 
