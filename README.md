@@ -1,40 +1,40 @@
+**Trump Lawyer Proposed Challenging Georgia Senate Elections in Search of Fraud**\
+`On the day of President Biden’s inauguration, John Eastman suggested looking for voting irregularities in Georgia — and asked for help being paid the $270,000 he billed the Trump campaign.`\
+https://nytimes.com/2022/08/03/us/politics/john-eastman-trump-election-fraud.html?searchResultPosition=1
+
 **Newsom Asks Hollywood to Stop Filming in Conservative States**\
 `The California governor says film companies should “walk the walk” on abortion rights and L.G.B.T.Q. protections by leaving states such as Georgia and Oklahoma.`\
-https://nytimes.com/2022/08/03/us/newsom-hollywood-abortion-states.html?searchResultPosition=1
+https://nytimes.com/2022/08/03/us/newsom-hollywood-abortion-states.html?searchResultPosition=2
 
 **Walmart Will Cut 200 Corporate Jobs**\
 `The move comes a week after the company announced it was lowering its profit forecast as inflation was catching up with consumer spending.`\
-https://nytimes.com/2022/08/03/business/walmart-layoffs.html?searchResultPosition=2
+https://nytimes.com/2022/08/03/business/walmart-layoffs.html?searchResultPosition=3
 
 **‘Your Bedroom Is on the Ballot:’ How Democrats See Abortion Politics After Kansas**\
 `After a broad victory in a deep-red state, Democrats are vowing to elevate the fight over abortion rights in midterm races across the country.`\
-https://nytimes.com/2022/08/03/us/politics/democrats-abortion-kansas.html?searchResultPosition=3
+https://nytimes.com/2022/08/03/us/politics/democrats-abortion-kansas.html?searchResultPosition=4
 
 **In Kansas, Support for Abortion Rights Didn’t Just Come From the Usual Places**\
 `Rural Republicans joined suburban Democrats to create huge turnout and a broad coalition that voted to preserve abortion rights by a fat margin.`\
-https://nytimes.com/2022/08/03/us/kansas-abortion-amendment.html?searchResultPosition=4
+https://nytimes.com/2022/08/03/us/kansas-abortion-amendment.html?searchResultPosition=5
 
 **Democrat Seeks Inspector General Inquiry Into Pentagon’s Missing Jan. 6 Texts**\
 `Messages from the phones of top Trump administration officials at the Defense Department who were involved in the response to the Capitol riot appear to have been erased.`\
-https://nytimes.com/2022/08/03/us/politics/jan-6-pentagon-texts.html?searchResultPosition=5
+https://nytimes.com/2022/08/03/us/politics/jan-6-pentagon-texts.html?searchResultPosition=6
 
 **Senate Overwhelmingly Votes to Add Sweden and Finland to NATO**\
 `The lopsided bipartisan vote demonstrated broad support in the United States for one of the most significant expansions of the military alliance, amid Russia’s continued assault on Ukraine.`\
-https://nytimes.com/2022/08/03/us/politics/sweden-finland-nato-senate-vote.html?searchResultPosition=6
+https://nytimes.com/2022/08/03/us/politics/sweden-finland-nato-senate-vote.html?searchResultPosition=7
 
 **Momentum Builds for Overhaul of Rules Governing the Electoral Count**\
 `Lawmakers in both parties are eager to act after former President Donald J. Trump and his allies sought to exploit a 135-year-old law to overturn the 2020 election.`\
-https://nytimes.com/2022/08/03/us/politics/election-count-law-trump-congress.html?searchResultPosition=7
+https://nytimes.com/2022/08/03/us/politics/election-count-law-trump-congress.html?searchResultPosition=8
 
 **The Republican Party Is the Anti-Democracy Party**\
 `Republicans are attacking the electoral process at every level to realize their goals.`\
-https://nytimes.com/2022/08/03/opinion/republican-party-anti-democracy.html?searchResultPosition=8
+https://nytimes.com/2022/08/03/opinion/republican-party-anti-democracy.html?searchResultPosition=9
 
 **One Eric Reaps in Missouri as Another Eric Sows**\
 `Schmitt, having reinvented himself as a hard-line culture warrior, can now revel in his Senate nomination, while Greitens has met what appears to be a humiliating political end.`\
-https://nytimes.com/2022/08/03/us/politics/eric-greitens-schmitt-missouri.html?searchResultPosition=9
-
-**Senate Votes to Add Finland and Sweden to NATO**\
-`The Senate overwhelmingly approved a treaty on Wednesday that would allow Finland and Sweden to join NATO. It paves the way for one of the biggest expansions of the alliance in decades in the wake of Russia’s assault on Ukraine.`\
-https://nytimes.com/video/world/europe/100000008473548/us-senate-nato-finland-sweden.html?searchResultPosition=10
+https://nytimes.com/2022/08/03/us/politics/eric-greitens-schmitt-missouri.html?searchResultPosition=10
 
