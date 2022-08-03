@@ -7,7 +7,7 @@ https://nytimes.com/2022/08/03/arts/design/if-these-beautiful-ornaments-could-sp
 https://nytimes.com/2022/08/03/nyregion/bail-reform-adams-hochul.html?searchResultPosition=2
 
 **As China Plans Drills Circling Taiwan, U.S. Officials Fear a Squeeze Play**\
-`White House officials say they are hoping China’s military exercises last only a few days, but they are discussing their options if the movements expand into something more.`\
+`Administration officials say they are hoping China’s military exercises last only a few days, but they are discussing their options if the movements expand into something more.`\
 https://nytimes.com/2022/08/03/us/politics/china-exercises-taiwan-fears.html?searchResultPosition=3
 
 **Vin Scully Was Los Angeles**\
