@@ -19,7 +19,7 @@ https://nytimes.com/video/us/politics/100000008472673/electoral-count-act-reform
 https://nytimes.com/2022/08/03/learning/8-webinars-on-how-to-teach-writing-with-the-new-york-times.html?searchResultPosition=5
 
 **N.F.L. Appeals Deshaun Watson’s Six-Game Suspension**\
-`The league notified the players union on Wednesday that it would appeal an arbiter’s decision. Commissioner Roger Goodell or his appointee will hear the appeal.`\
+`The league notified the players’ union that it would appeal an arbiter’s decision. Commissioner Roger Goodell or his appointee will hear the appeal.`\
 https://nytimes.com/2022/08/03/sports/football/nfl-appeals-deshaun-watsons-suspension.html?searchResultPosition=6
 
 **Mickelson and Other LIV Golfers File Antitrust Suit Against PGA Tour**\
