@@ -1,5 +1,5 @@
 **Fire Sparked by Electric Scooter Battery Kills Woman and Child in Harlem**\
-`The child’s father was left in critical condition, and his charred scooter sat outside a New York Housing Authority building as neighbors mourned.`\
+`The fire, which occurred at a New York Housing Authority building, also left the child’s father in critical condition, according to the police. E-bikes and scooters have been implicated in numerous fires in recent months.`\
 https://nytimes.com/2022/08/03/nyregion/new-york-electric-scooter-battery-fire-deaths.html?searchResultPosition=1
 
 **Rzewski for Lovers? A Pianist Mines a Prickly Modernist’s Gentler Side**\
