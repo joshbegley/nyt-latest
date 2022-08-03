@@ -20,7 +20,7 @@ https://nytimes.com/2022/08/03/briefing/monkeypox-contagious-vaccines-us.html?se
 
 **Beijing’s threats resonate inside China.**\
 `By The New York Times`\
-https://nytimes.com/2022/08/02/world/asia/beijings-threats-resonate-inside-china.html?searchResultPosition=6
+https://nytimes.com/live/2022/08/02/world/pelosi-taiwan/beijings-threats-resonate-inside-china?searchResultPosition=6
 
 **Ridgewood, Queens: A Multiethnic Area That’s ‘Like a Whirlpool’**\
 `The constantly changing neighborhood may share a border with Bushwick, Brooklyn, but residents want you to know ‘you’re in Queens, bro.’`\
