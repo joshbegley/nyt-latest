@@ -7,7 +7,7 @@ https://nytimes.com/2022/08/03/opinion/female-candidates.html?searchResultPositi
 https://nytimes.com/2022/08/03/world/asia/pelosis-widely-watched-flight-to-taipei-took-a-circuitous-route-heres-why.html?searchResultPosition=2
 
 **Premier League Players Will No Longer Take a Knee Before Every Game**\
-`The gesture, begun by players in 2020 as part of an effort to highlight racism, will continue but now only before certain matches.`\
+`The gesture, begun by players in 2020 as part of an effort to highlight racism, will continue, but only before certain matches.`\
 https://nytimes.com/2022/08/03/sports/soccer/premier-league-kneeling-racism.html?searchResultPosition=3
 
 **Read Your Way Through Cairo**\
