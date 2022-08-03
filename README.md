@@ -30,11 +30,11 @@ https://nytimes.com/2022/08/03/us/california-monkeypox.html?searchResultPosition
 `Here is what experts say about how the virus is transmitted during everyday interactions — and which behaviors carry the most risk.`\
 https://nytimes.com/2022/08/03/well/live/monkeypox-risk.html?searchResultPosition=8
 
+**Taiwan and Ukraine: Two crises, 5,000 miles apart, are linked in complex ways.**\
+`By Marc Santora and Steven Erlanger`\
+https://nytimes.com/2022/08/03/world/europe/taiwan-and-ukraine-two-crises-5000-miles-apart-are-linked-in-complex-ways.html?searchResultPosition=9
+
 **House Hunting in England: Rural Splendor in the South West Region**\
 `The pandemic has ‘accelerated the market in Somerset exponentially,’ with domestic buyers and investors keeping inventory scarce.`\
-https://nytimes.com/2022/08/03/realestate/house-hunting-in-england-rural-splendor-in-the-south-west-region.html?searchResultPosition=9
-
-**Four Acres of English Countryside for $2.9 Million**\
-`This modern four-bedroom house in Binegar, a tiny village in England’s South West region, is on the market for $2.9 million.`\
-https://nytimes.com/slideshow/2022/08/03/realestate/four-acres-of-english-countryside-for-2-9-million.html?searchResultPosition=10
+https://nytimes.com/2022/08/03/realestate/house-hunting-in-england-rural-splendor-in-the-south-west-region.html?searchResultPosition=10
 
