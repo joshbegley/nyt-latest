@@ -1,40 +1,40 @@
-**Meijer’s Defeat Shows Republican Intolerance for Trump’s Antagonists**\
-`In Michigan, primary voters rejected the young conservative who voted to impeach Trump, while two other Republicans who did so fought for political survival in Washington.`\
-https://nytimes.com/2022/08/03/us/politics/peter-meijer-michigan.html?searchResultPosition=1
+**Why You Should Try Crevice Gardening: ‘This Is the Future’**\
+`In a world where water is increasingly scarce, these rock gardens are not only pretty, but surprisingly resilient.`\
+https://nytimes.com/2022/08/03/realestate/crevice-rock-gardening.html?searchResultPosition=1
 
-**The Violent Fantasies of Blake Masters**\
-`His bizarre, menacing vision for American politics could well define the future of his party.`\
-https://nytimes.com/2022/08/03/opinion/blake-masters-arizona-senate.html?searchResultPosition=2
+**$2.9 Million Homes in Connecticut, Washington and Colorado**\
+`A 1732 Colonial in East Haddam, a Tudor Revival house in Seattle and an 1893 Italianate home in Denver.`\
+https://nytimes.com/2022/08/03/realestate/home-prices-connecticut-washington-colorado.html?searchResultPosition=2
 
-**Voters in Kansas Celebrate Preservation of Abortion Rights**\
-`In the first election test after the U.S. Supreme Court overturned Roe v. Wade, Kansas voters decided against removing the right to abortion from the State Constitution.`\
-https://nytimes.com/video/us/politics/100000008472281/kansas-abortion-vote.html?searchResultPosition=3
+**Mexico’s Cruel Drought: ‘Here You Have to Chase the Water’**\
+`Nearly two-thirds of the country’s municipalities are facing a water shortage. In Monterrey, a major economic hub, the government delivers water daily to 400 neighborhoods.`\
+https://nytimes.com/2022/08/03/world/mexico-drought-monterrey-water.html?searchResultPosition=3
 
-**Five of Vin Scully’s Most Memorable Calls**\
-`The longtime Dodgers announcer, who died Tuesday, narrated many of the greatest moments in baseball history.`\
-https://nytimes.com/interactive/2022/08/03/sports/baseball/vin-scully-quotes.html?searchResultPosition=4
+**What You Get for $2.9 Million**\
+`A 1732 Colonial in East Haddam, Conn.; a Tudor Revival house in Seattle; and an 1893 Italianate home in Denver.`\
+https://nytimes.com/slideshow/2022/08/03/realestate/what-you-get-for-2-9-million.html?searchResultPosition=4
 
-**A ‘Whisper’ Leads a Real Estate Reporter to Claims of Deed Theft**\
-`In an interview, Stefanos Chen, who covers tenants, owners and buildings in New York, discussed a recent investigation and his approach to the beat.`\
-https://nytimes.com/2022/08/03/insider/stefanos-chen-real-estate.html?searchResultPosition=5
+**The Magic of Crevice Gardening**\
+`In a world where water is increasingly scarce, these rock gardens are not only pretty, but surprisingly resilient.`\
+https://nytimes.com/slideshow/2022/08/03/realestate/the-magic-of-crevice-gardening.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/08/03/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**More Rats. More Cars. More Rats in Cars.**\
+`Driving in the city is on the rise, but if New Yorkers think they can avoid rats this way, they are in for quite the surprise.`\
+https://nytimes.com/2022/08/03/nyregion/new-york-rats-cars.html?searchResultPosition=6
 
-**Chinese military drills circling Taiwan set up a potential standoff.**\
-`China’s plans to conduct live-fire drills into Taiwan’s territorial seas could mark a new stage of brinkmanship.`\
-https://nytimes.com/2022/08/03/world/asia/chinese-military-drills-maps.html?searchResultPosition=7
+**Footprints Discovery Suggests Ancient ‘Ghost Tracks’ May Cover the West**\
+`The set of 88 prints is about 12,000 years old, scientists say, and was found in the military’s Utah Test and Training Range.`\
+https://nytimes.com/2022/08/03/science/utah-footprints-tracks.html?searchResultPosition=7
 
-**Trevor Noah Weighs In on the Killing of Ayman al-Zawahri**\
-`Noah argued that safe houses should be called something different because “every terrorist gets killed in a safe house.”`\
-https://nytimes.com/2022/08/03/arts/television/late-night-al-zawahri.html?searchResultPosition=8
+**Congress Is Giving Billions to the Chip Industry. Strings Are Attached.**\
+`Industrial policy is back in Washington, as a vast semiconductor and science bill gives the government new sway over a strategic industry.`\
+https://nytimes.com/2022/08/03/business/economy/chip-industry-congress.html?searchResultPosition=8
 
-**Pelosi Vows ‘Ironclad’ Commitment in Meeting With Taiwan’s President**\
-`Nancy Pelosi, the speaker of the House, met with Taiwan’s president, Tsai Ing-wen, in a series of high profile meetings. Ms. Pelosi was presented with an award given to those who have made outstanding contributions to Taiwan.`\
-https://nytimes.com/video/us/politics/100000008472221/pelosi-taiwan-sovereignty.html?searchResultPosition=9
+**Golden Sand, Calm Waters and Dramatic Dunes: 5 Family Beaches in Europe**\
+`From the calm, clear waters of Ålbæk, Denmark, to the soft, sandy shores of Spain’s Balearic Islands, a selection of favorite beaches that both children and their parents will love.`\
+https://nytimes.com/2022/08/03/travel/family-beaches-europe.html?searchResultPosition=9
 
-**How New Yorkers Push the Limits**\
-`From speed zones to traffic crossings to parking rules, city residents try to get away with going a little faster, or cutting it close, or being a little later.`\
-https://nytimes.com/2022/08/03/nyregion/new-yorkers-speed-cameras.html?searchResultPosition=10
+**American Democracy Is Not the Beacon It Once Was for Africa’s Elite**\
+`At a garden party I attended in a wealthy Nairobi suburb, the guests talked global politics and the upcoming presidential election in Kenya.`\
+https://nytimes.com/2022/08/03/opinion/kenya-presidential-elections.html?searchResultPosition=10
 
