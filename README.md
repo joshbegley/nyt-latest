@@ -6,17 +6,17 @@ https://nytimes.com/2022/08/03/realestate/crevice-rock-gardening.html?searchResu
 `A 1732 Colonial in East Haddam, a Tudor Revival house in Seattle and an 1893 Italianate home in Denver.`\
 https://nytimes.com/2022/08/03/realestate/home-prices-connecticut-washington-colorado.html?searchResultPosition=2
 
+**The Magic of Crevice Gardening**\
+`In a world where water is increasingly scarce, these rock gardens are not only pretty, but surprisingly resilient.`\
+https://nytimes.com/slideshow/2022/08/03/realestate/the-magic-of-crevice-gardening.html?searchResultPosition=3
+
 **Mexico’s Cruel Drought: ‘Here You Have to Chase the Water’**\
 `Nearly two-thirds of the country’s municipalities are facing a water shortage. In Monterrey, a major economic hub, the government delivers water daily to 400 neighborhoods.`\
-https://nytimes.com/2022/08/03/world/mexico-drought-monterrey-water.html?searchResultPosition=3
+https://nytimes.com/2022/08/03/world/mexico-drought-monterrey-water.html?searchResultPosition=4
 
 **What You Get for $2.9 Million**\
 `A 1732 Colonial in East Haddam, Conn.; a Tudor Revival house in Seattle; and an 1893 Italianate home in Denver.`\
-https://nytimes.com/slideshow/2022/08/03/realestate/what-you-get-for-2-9-million.html?searchResultPosition=4
-
-**The Magic of Crevice Gardening**\
-`In a world where water is increasingly scarce, these rock gardens are not only pretty, but surprisingly resilient.`\
-https://nytimes.com/slideshow/2022/08/03/realestate/the-magic-of-crevice-gardening.html?searchResultPosition=5
+https://nytimes.com/slideshow/2022/08/03/realestate/what-you-get-for-2-9-million.html?searchResultPosition=5
 
 **More Rats. More Cars. More Rats in Cars.**\
 `Driving in the city is on the rise, but if New Yorkers think they can avoid rats this way, they are in for quite the surprise.`\
