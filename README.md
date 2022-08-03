@@ -14,13 +14,13 @@ https://nytimes.com/2022/08/03/us/politics/biden-abortion-executive-order.html?s
 `Revenue from digital advertising fell slightly in the second quarter, but subscription revenue continued to rise sharply, the company said.`\
 https://nytimes.com/2022/08/03/business/media/new-york-times-quarterly-earnings.html?searchResultPosition=4
 
+**Allies respond with caution and criticism to Pelosi visit.**\
+`By Jane Perlez`\
+https://nytimes.com/2022/08/02/world/asia/allies-respond-with-caution-and-criticism-to-pelosi-visit.html?searchResultPosition=5
+
 **Monkeypox, Explained**\
 `It’s not Covid, but there are good reasons to take precautions.`\
-https://nytimes.com/2022/08/03/briefing/monkeypox-contagious-vaccines-us.html?searchResultPosition=5
-
-**Beijing’s threats resonate inside China.**\
-`By The New York Times`\
-https://nytimes.com/live/2022/08/02/world/pelosi-taiwan/beijings-threats-resonate-inside-china?searchResultPosition=6
+https://nytimes.com/2022/08/03/briefing/monkeypox-contagious-vaccines-us.html?searchResultPosition=6
 
 **Ridgewood, Queens: A Multiethnic Area That’s ‘Like a Whirlpool’**\
 `The constantly changing neighborhood may share a border with Bushwick, Brooklyn, but residents want you to know ‘you’re in Queens, bro.’`\
