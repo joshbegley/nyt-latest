@@ -1,5 +1,5 @@
 **Germany to Gazprom: Your turbine is ready, let us deliver it.**\
-`Olaf Scholz showed off a refurbished turbine for the Nord Stream 1 pipeline that Russia has said is the reason it can’t send more gas to Germany. The German chancellor said the turbine isn’t the problem.`\
+`Olaf Scholz showed off a refurbished turbine for the Nord Stream 1 pipeline that Russia has said is the reason it can’t send more gas to Germany.`\
 https://nytimes.com/2022/08/03/business/germany-russia-gazprom-pipeline.html?searchResultPosition=1
 
 **Barcelona Spent Its Way Into Crisis. Can It Now Spend Its Way Out?**\
