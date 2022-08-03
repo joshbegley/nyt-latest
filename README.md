@@ -3,7 +3,7 @@
 https://nytimes.com/2022/08/03/us/politics/alex-jones-trial-sandy-hook.html?searchResultPosition=1
 
 **Jackie Walorski, Indiana Congresswoman, Is Dead at 58**\
-`The five-term congresswoman was traveling in her district with two aides when she was killed in a car accident.`\
+`Ms. Walorski, who was first elected to Congress in 2012, was traveling in her district with two aides, who were also killed when a passenger car and an SUV collided.`\
 https://nytimes.com/2022/08/03/us/politics/jackie-walorski.html?searchResultPosition=2
 
 **Lucid Motors slashes production forecast, blaming supply chain chaos.**\
