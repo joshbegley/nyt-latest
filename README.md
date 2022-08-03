@@ -18,23 +18,23 @@ https://nytimes.com/2022/08/03/business/media/new-york-times-quarterly-earnings.
 `It’s not Covid, but there are good reasons to take precautions.`\
 https://nytimes.com/2022/08/03/briefing/monkeypox-contagious-vaccines-us.html?searchResultPosition=5
 
+**Beijing’s threats resonate inside China.**\
+`By The New York Times`\
+https://nytimes.com/2022/08/02/world/asia/beijings-threats-resonate-inside-china.html?searchResultPosition=6
+
 **Ridgewood, Queens: A Multiethnic Area That’s ‘Like a Whirlpool’**\
 `The constantly changing neighborhood may share a border with Bushwick, Brooklyn, but residents want you to know ‘you’re in Queens, bro.’`\
-https://nytimes.com/2022/08/03/realestate/ridgewood-queens-a-multiethnic-area-thats-like-a-whirlpool.html?searchResultPosition=6
+https://nytimes.com/2022/08/03/realestate/ridgewood-queens-a-multiethnic-area-thats-like-a-whirlpool.html?searchResultPosition=7
 
 **Living In ... Ridgewood, Queens**\
 `The constantly changing neighborhood may share a border with Bushwick, Brooklyn, but residents want you to know ‘you’re in Queens, bro.’`\
-https://nytimes.com/slideshow/2022/08/03/realestate/living-in-ridgewood-queens.html?searchResultPosition=7
+https://nytimes.com/slideshow/2022/08/03/realestate/living-in-ridgewood-queens.html?searchResultPosition=8
 
 **Why Are Democrats Bankrolling Far-Right Candidates?**\
 `Some of the party’s campaign partners have employed a contentious strategy in the buildup to the midterms.`\
-https://nytimes.com/2022/08/03/podcasts/the-daily/democrats-midterms-primaries-meijer-gibbs.html?searchResultPosition=8
+https://nytimes.com/2022/08/03/podcasts/the-daily/democrats-midterms-primaries-meijer-gibbs.html?searchResultPosition=9
 
-**Election Victories by Trump Allies Showcase His Grip on the G.O.P. Base**\
-`Tuesday’s primaries in Arizona and Michigan gave the former president a slew of symbolic triumphs.`\
-https://nytimes.com/2022/08/03/us/politics/primaries-trump-republicans.html?searchResultPosition=9
-
-**Why You Should Try Crevice Gardening: ‘This Is the Future’**\
-`In a world where water is increasingly scarce, these rock gardens are not only pretty, but surprisingly resilient.`\
-https://nytimes.com/2022/08/03/realestate/crevice-rock-gardening.html?searchResultPosition=10
+**Newt Gingrich went to Taiwan as House speaker in 1997.**\
+`By Mike Ives`\
+https://nytimes.com/2022/08/02/world/asia/newt-gingrich-went-to-taiwan-as-house-speaker-in-1997.html?searchResultPosition=10
 
