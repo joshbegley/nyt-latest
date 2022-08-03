@@ -2,7 +2,7 @@
 `The California governor says film companies should “walk the walk” on abortion rights and L.G.B.T.Q. protections by leaving states such as Georgia and Oklahoma.`\
 https://nytimes.com/2022/08/03/us/newsom-hollywood-abortion-states.html?searchResultPosition=1
 
-**Walmart is cutting corporate jobs.**\
+**Walmart Will Cut 200 Corporate Jobs**\
 `The move comes a week after the company announced it was lowering its profit forecast as inflation was catching up with consumer spending.`\
 https://nytimes.com/2022/08/03/business/walmart-layoffs.html?searchResultPosition=2
 
