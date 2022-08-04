@@ -11,7 +11,7 @@ https://nytimes.com/2022/08/04/movies/bliss-review-working-girls.html?searchResu
 https://nytimes.com/2022/08/04/technology/internet-censorship.html?searchResultPosition=3
 
 **As Monkeypox Spreads, U.S. Plans to Declare a Health Emergency**\
-`The designation will free up emergency funds and lift some bureaucratic hurdles, but many experts fear containment may no longer be possible.`\
+`The designation would free up emergency funds and lift some bureaucratic hurdles, but many experts fear containment may no longer be possible.`\
 https://nytimes.com/2022/08/04/health/monkeypox-emergency-us.html?searchResultPosition=4
 
 **A Judge Said He Would Reverse New York City’s School Budget**\
