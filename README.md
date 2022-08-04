@@ -1,6 +1,6 @@
 **A View into Daily Life with Rare Epilepsy, Lennox-Gastaut Syndrome (LGS)**\
 `A glimpse into one family's daily life with Lennox-Gastaut Syndrome (LGS) taking FINTEPLA® (fenfluramine).`\
-https://nytimes.com/paidpost/2022-08-04/.html?searchResultPosition=1
+https://nytimes.com/paidpost/2022-08-04/zogenix/daily-life-with-lennox-gastaut-syndrome.html?searchResultPosition=1
 
 **What to Know About the Alex Jones Defamation Trial**\
 `The Infowars host has already been found liable in lawsuits filed by the families of the Sandy Hook school shooting victims. A trial this week will begin to determine how much he owes them.`\
