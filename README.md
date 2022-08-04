@@ -11,7 +11,7 @@ https://nytimes.com/video/world/middleeast/100000008475344/beirut-port-explosion
 https://nytimes.com/2022/08/04/us/laurel-nebraska-deaths-fire.html?searchResultPosition=3
 
 **Volcano Erupts in Iceland After a Series of Earthquakes**\
-`Three tourists experienced minor injuries while crossing the rough terrain to view the Fagradalsfjall volcano in southwest Iceland.`\
+`Three tourists were injured while crossing the rough terrain to view the Fagradalsfjall volcano in southwest Iceland.`\
 https://nytimes.com/video/world/europe/100000008475258/volcanic-eruption-iceland.html?searchResultPosition=4
 
 **Weekly Health Quiz: Monkeypox, Vitamin B6 and Nicotine Withdrawal**\
