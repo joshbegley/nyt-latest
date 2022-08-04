@@ -14,7 +14,7 @@ https://nytimes.com/2022/08/03/us/newsom-hollywood-abortion-states.html?searchRe
 `The move comes a week after the company announced it was lowering its profit forecast as inflation was catching up with consumer spending.`\
 https://nytimes.com/2022/08/03/business/walmart-layoffs.html?searchResultPosition=4
 
-**‘Your Bedroom Is on the Ballot:’ How Democrats See Abortion Politics After Kansas**\
+**‘Your Bedroom Is on the Ballot’: How Democrats See Abortion Politics After Kansas**\
 `After a broad victory in a deep-red state, Democrats are vowing to elevate the fight over abortion rights in midterm races across the country.`\
 https://nytimes.com/2022/08/03/us/politics/democrats-abortion-kansas.html?searchResultPosition=5
 
