@@ -1,5 +1,5 @@
 **Long a Climate Straggler, Australia Advances a Major Bill to Cut Emissions**\
-`Experts said the pledge to reduce emissions by at least 43 percent over 2005 levels by 2030 was both a leap forward and a first step.`\
+`Experts said the pledge to reduce emissions by at least 43 percent from 2005 levels by 2030 was both a leap forward and a first step.`\
 https://nytimes.com/2022/08/04/world/australia/climate-bill.html?searchResultPosition=1
 
 **Trevor Noah Celebrates a Shocking Victory for Abortion Rights in Kansas**\
