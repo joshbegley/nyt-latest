@@ -22,7 +22,7 @@ https://nytimes.com/2022/08/04/realestate/homes-for-sale-in-manhattan-and-the-br
 `This week’s properties are in Riverdale, Yorkville and Stuyvesant Park.`\
 https://nytimes.com/slideshow/2022/08/04/realestate/on-the-market-in-new-york-city.html?searchResultPosition=6
 
-**________Stepping Into the Expansive Worlds of Black Imagination**\
+**Stepping Into the Expansive Worlds of Black Imagination**\
 `The curator of “In the Black Fantastic” at London’s Hayward Gallery describes it as a “feel-good show about death,” which also looks beyond Afrofuturism.`\
 https://nytimes.com/2022/08/04/arts/design/in-the-black-fantastic-london.html?searchResultPosition=7
 
