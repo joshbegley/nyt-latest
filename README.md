@@ -20,7 +20,7 @@ https://nytimes.com/2022/08/04/nyregion/lamor-whitehead-bishop-robbed.html?searc
 
 **Is Cricket Sustainable Amid Climate Change?**\
 `The warming of the earth, combined with the exhausting nature of the game, is raising questions about the future of the second most popular sport in the world.`\
-https://nytimes.com/2022/08/04/sports/cricket/is-cricket-sustainable-amid-climate-change.html?searchResultPosition=6
+https://nytimes.com/2022/08/04/sports/cricket/cricket-climate-change-sustainable.html?searchResultPosition=6
 
 **Retouched and Revitalized, Washington Looks Forward**\
 `A host of new restaurants, hotels and entertainment venues in the nation’s capital are just now spreading their wings.`\
