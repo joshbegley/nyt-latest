@@ -7,7 +7,7 @@ https://nytimes.com/video/world/europe/100000008475258/volcanic-eruption-iceland
 https://nytimes.com/interactive/2022/08/04/well/live/04HealthQuiz-08042022.html?searchResultPosition=2
 
 **The I.R.S. says new funding won’t mean more audits for middle-income Americans.**\
-`If it is given an additional $80 billion, the agency said the money was expected to go toward efforts to crack down on wealthy tax evaders and to modernize its technology.`\
+`If it is given an additional $80 billion, the agency said, the money is expected to go toward efforts to crack down on wealthy tax evaders and to modernize its technology.`\
 https://nytimes.com/2022/08/04/business/irs-audits-funding-congress.html?searchResultPosition=3
 
 **How Much Watching Time Do You Have This Weekend?**\
