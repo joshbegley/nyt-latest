@@ -3,7 +3,7 @@
 https://nytimes.com/2022/08/03/movies/gone-in-the-night-review.html?searchResultPosition=1
 
 **Trump Lawyer Proposed Challenging Georgia Senate Elections in Search of Fraud**\
-`On the day of President Biden’s inauguration, John Eastman suggested looking for voting irregularities in Georgia — and asked for help being paid the $270,000 he had billed the Trump campaign.`\
+`On the day of President Biden’s inauguration, John Eastman suggested looking for voting irregularities in Georgia — and asked for help in getting paid the $270,000 he had billed the Trump campaign.`\
 https://nytimes.com/2022/08/03/us/politics/john-eastman-trump-election-fraud.html?searchResultPosition=2
 
 **Newsom Asks Hollywood to Stop Filming in Conservative States**\
