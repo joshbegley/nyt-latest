@@ -18,8 +18,8 @@ https://nytimes.com/2022/08/04/arts/television/days-of-our-lives-peacock-nbc.htm
 `Plesiosaurs went extinct 66 million years ago, but evidence that the long-necked reptiles lived in freshwater, not just oceans, has offered hope to Nessie enthusiasts.`\
 https://nytimes.com/2022/08/04/science/loch-ness-monster.html?searchResultPosition=5
 
-**The Bank of England raises rates by a half-point, biggest increase in 27 years.**\
-`The U.K. central bank presented a grim forecast of inflation hitting 13 percent and warned that a long recession could start later this year.`\
+**The Bank of England raises rates a half-point, its biggest increase in 27 years.**\
+`Britain’s central bank presented a grim forecast of inflation hitting 13 percent and warned that a long recession could start later this year.`\
 https://nytimes.com/2022/08/04/business/bank-of-england-interest-rates.html?searchResultPosition=6
 
 **‘I Love My Dad’ Review: A Father Catfishes His Son**\
