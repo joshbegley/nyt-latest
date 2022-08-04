@@ -24,7 +24,7 @@ https://nytimes.com/2022/08/04/business/tesla-elon-musk-activist-investors.html?
 
 **French lawmakers set to approve inflation relief package.**\
 `The measures include a cap on rent increases and an extension of fuel subsidies.`\
-https://nytimes.com/2022/08/04/business/french-lawmakers-set-to-approve-inflation-relief-package.html?searchResultPosition=7
+https://nytimes.com/2022/08/04/business/france-economy-inflation.html?searchResultPosition=7
 
 **CPAC will host Viktor Orban, unmoved by his ‘mixed-race’ enmity.**\
 `The Hungarian prime minister, whose anti-immigrant rhetoric and attacks on democratic norms have been widely rebuked, will speak at the Conservative Political Action Conference in Dallas.`\
