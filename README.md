@@ -6,7 +6,7 @@ https://nytimes.com/2022/08/04/arts/television/murder-at-the-cottage-review.html
 `To appease their moms, a pair of Indian American entrepreneurs pretend at romance over a spate of nuptials in this soulless romantic comedy on Netflix.`\
 https://nytimes.com/2022/08/04/movies/wedding-season-review.html?searchResultPosition=2
 
-**JAB—AdPost-Video**\
+**Love&Family—Video**\
 `Zogenix Ad Post Video`\
 https://nytimes.comhttp://brandedplaylist.nytimes.com/video/embedded/t-brand/100000008471347/jabadpost-video.html?searchResultPosition=3
 
