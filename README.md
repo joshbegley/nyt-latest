@@ -36,5 +36,5 @@ https://nytimes.com/2022/08/04/opinion/letters/left-publishing-industry.html?sea
 
 **9/11 Memorial & Museum Names New Leader**\
 `Elizabeth L. Hillman, the president of Mills College, will take over from Alice M. Greenwald, who announced in December that she planned to depart.`\
-https://nytimes.com/2022/08/04/arts/design/9-11-memorial-museum-names-new-leader.html?searchResultPosition=10
+https://nytimes.com/2022/08/04/arts/design/9-11-memorial-museum-leader.html?searchResultPosition=10
 
