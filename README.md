@@ -15,7 +15,7 @@ https://nytimes.com/2022/08/04/arts/television/days-of-our-lives-peacock-nbc.htm
 https://nytimes.com/2022/08/04/science/loch-ness-monster.html?searchResultPosition=4
 
 **The Bank of England raises rates by a half-point, biggest increase in 27 years.**\
-`Increase was the U.K. central bank’s sixth since December as it warns that a long recession could start later this year.`\
+`The U.K. central bank presented a grim forecast of inflation hitting 13 percent and warned that a long recession could start later this year.`\
 https://nytimes.com/2022/08/04/business/bank-of-england-interest-rates.html?searchResultPosition=5
 
 **‘I Love My Dad’ Review: A Father Catfishes His Son**\
