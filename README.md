@@ -31,7 +31,7 @@ https://nytimes.com/2022/08/03/todayspaper/quotation-of-the-day-endless-lines-ba
 https://nytimes.com/2022/08/03/crosswords/daily-puzzle-2022-08-04.html?searchResultPosition=8
 
 **More Than a Show: China’s Exercises Could Help It Practice Seizing Taiwan**\
-`After Nancy Pelosi’s visit, Taiwan braces for three days of Chinese military drills. Beijing calls them a warning, but they may also help its forces hone their skills.`\
+`China has begun three days of military drills near Taiwan. It calls them a response to Nancy Pelosi’s visit, but they may also help its forces hone their skills.`\
 https://nytimes.com/2022/08/03/world/asia/taiwan-china-military-exercises.html?searchResultPosition=9
 
 **‘Gone in the Night’ Review: Double-Booked and Double-Crossed**\
