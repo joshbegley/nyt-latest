@@ -14,27 +14,27 @@ https://nytimes.com/2022/08/04/world/europe/ukraine-grain-ships.html?searchResul
 `Aya Ogawa’s memoir-like excavation tests the boundaries of love and family obligation through intimate confession.`\
 https://nytimes.com/2022/08/04/theater/the-nosebleed-review.html?searchResultPosition=4
 
+**Our reporter spent three hours with Alex Jones. Here’s what that was like.**\
+`By Elizabeth Williamson`\
+https://nytimes.com/2022/08/04/us/our-reporter-spent-three-hours-with-alex-jones-heres-what-thats-like.html?searchResultPosition=5
+
 **What Is It About Friendships That Is So Powerful?**\
 `They not only make you happier; they can make you richer.`\
-https://nytimes.com/2022/08/04/opinion/friendships-economic-mobility-class.html?searchResultPosition=5
+https://nytimes.com/2022/08/04/opinion/friendships-economic-mobility-class.html?searchResultPosition=6
 
 **Republicans Flail and Fail on Taxes**\
 `No, Biden’s climate-change bill won’t tax the middle class.`\
-https://nytimes.com/2022/08/04/opinion/climate-change-bill-taxes.html?searchResultPosition=6
+https://nytimes.com/2022/08/04/opinion/climate-change-bill-taxes.html?searchResultPosition=7
 
 **Why American Conservatives Love Viktor Orban**\
 `What was the prime minister of Hungary doing addressing a crowd of Republicans in Dallas?`\
-https://nytimes.com/2022/08/04/us/politics/viktor-orban-cpac-republicans.html?searchResultPosition=7
+https://nytimes.com/2022/08/04/us/politics/viktor-orban-cpac-republicans.html?searchResultPosition=8
 
 **Georgia Abortion Law Says a Fetus Is Tax Deductible**\
 `The state’s “fetal personhood” provision now includes a $3,000 tax exemption starting at around six weeks of pregnancy.`\
-https://nytimes.com/2022/08/04/us/georgia-abortion-law-fetus-tax-dependent.html?searchResultPosition=8
+https://nytimes.com/2022/08/04/us/georgia-abortion-law-fetus-tax-dependent.html?searchResultPosition=9
 
 **Not Enough Cooling Centers in New York City’s Hottest Areas, Study Finds**\
 `The city’s most vulnerable residents need more public places to cool down, especially at night, to prevent heat wave deaths, the city comptroller said.`\
-https://nytimes.com/2022/08/04/nyregion/weather-ny-cooling-centers-east-flatbush.html?searchResultPosition=9
-
-**Trial of Former Twitter Employee Accused of Spying Heads to Jury**\
-`Prosecutors said the man had used his access to Twitter user accounts to spy for the government of Saudi Arabia. His lawyers said he had just been doing his job.`\
-https://nytimes.com/2022/08/04/business/twitter-spy-trial.html?searchResultPosition=10
+https://nytimes.com/2022/08/04/nyregion/weather-ny-cooling-centers-east-flatbush.html?searchResultPosition=10
 
