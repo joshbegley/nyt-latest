@@ -23,7 +23,7 @@ https://nytimes.com/2022/08/05/business/amazon-roomba-irobot.html?searchResultPo
 https://nytimes.com/2022/08/05/dining/corny-on-main.html?searchResultPosition=6
 
 **The Republican National Convention Will Be Held in Milwaukee in 2024**\
-`In Milwaukee, Republicans picked an overwhelmingly Democratic city in America’s pre-eminent battleground state.`\
+`In choosing Milwaukee, Republicans picked an overwhelmingly Democratic city in America’s pre-eminent battleground state.`\
 https://nytimes.com/2022/08/05/us/politics/rnc-convention-milwaukee-2024.html?searchResultPosition=7
 
 **Why Monkeypox Vaccine Shortage May Threaten the Immunocompromised**\
