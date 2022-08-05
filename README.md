@@ -31,7 +31,7 @@ https://nytimes.com/2022/08/05/books/ronald-j-sider-dead.html?searchResultPositi
 https://nytimes.com/2022/08/05/briefing/russia-ukraine-war-nuclear-farming.html?searchResultPosition=8
 
 **10 Dead in Fast-Moving Pennsylvania Fire, Officials Say**\
-`The fire, at a home in Nescopeck in Northeastern Pennsylvania, spread rapidly early Friday, a neighbor said.`\
+`Among those killed in the blaze, at a home in Nescopeck in the northeastern part of the state, were several relatives of a firefighter who was at the scene.`\
 https://nytimes.com/2022/08/05/us/luzerne-county-fire-pa.html?searchResultPosition=9
 
 **Good News on Jobs May Mean Bad News Later as Hiring Spree Defies Fed**\
