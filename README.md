@@ -10,7 +10,7 @@ https://nytimes.com/2022/08/05/podcasts/the-daily/covid-vacation-cruise-ships.ht
 `The Biden administration says its commitment to the region has only deepened, but critics say the tensions over Taiwan show that Washington needs stronger military and economic strategies.`\
 https://nytimes.com/2022/08/05/world/asia/taiwan-china-united-states-allies.html?searchResultPosition=3
 
-**As Missiles Fall, Generations Split on Taiwan’s Relationship With China**\
+**Fight or Surrender: Taiwan’s Generational Divide on China’s Threats**\
 `In areas close to the military drills, younger Taiwanese worried about the future, while older residents looked back to a harsher past to find hope.`\
 https://nytimes.com/2022/08/05/world/asia/taiwan-response-china.html?searchResultPosition=4
 
