@@ -36,5 +36,5 @@ https://nytimes.com/2022/08/05/books/review/rhett-miller-dan-santat-the-baby-cha
 
 **Keyshawn Johnson Wants the N.F.L. to Remember Its ‘Forgotten Four’**\
 `The former Pro Bowl receiver lobbied Pro Football’s Hall of Fame to honor Kenny Washington, Woody Strode, Bill Willis and Marion Motley, the four Black players who reintegrated the league in 1946.`\
-https://nytimes.com/2022/08/05/sports/football/keyshawn-johnson-wants-the-nfl-to-remember-its-forgotten-four.html?searchResultPosition=10
+https://nytimes.com/2022/08/05/sports/football/keyshawn-johnson-nfl-forgotten-four.html?searchResultPosition=10
 
