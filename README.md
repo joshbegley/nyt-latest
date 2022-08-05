@@ -1,6 +1,6 @@
 **The jobs report suggests President Biden is right about a recession.**\
 `But the unexpectedly strong employment growth reported for July also appeared to contradict forecasts that the economy was cooling off.`\
-https://nytimes.com/2022/08/05/business/economy/jobs-report-biden-recession.html?searchResultPosition=1
+https://nytimes.com/2022/08/05/business/economy/biden-recession-jobs-report.html?searchResultPosition=1
 
 **In Chinatown and the Bay Area, Residents React to Pelosi’s Trip**\
 `Chinese and Taiwanese Americans offer varying thoughts on the House speaker’s visit.`\
