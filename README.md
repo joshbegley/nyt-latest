@@ -1,5 +1,5 @@
 **New York May Face ‘Tip of the Iceberg’ With Polio, Health Chief Says**\
-`With increased urgency, officials called for residents to get vaccinated against the disease after it was found in a second county’s wastewater.`\
+`With increased urgency, state officials called for residents to get vaccinated against the disease after it was found in a second county’s wastewater.`\
 https://nytimes.com/2022/08/04/nyregion/polio-wastewater-cases-nyc.html?searchResultPosition=1
 
 **Variety: Puns and Anagrams**\
