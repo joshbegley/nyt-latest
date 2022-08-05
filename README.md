@@ -6,7 +6,7 @@ https://nytimes.com/video/us/politics/100000008476181/pelosi-taiwan-china-respon
 `A Times investigation revealed a coordinated effort by state treasurers to use government muscle and public funds to punish companies trying to reduce greenhouse gases.`\
 https://nytimes.com/2022/08/05/climate/republican-treasurers-climate-change.html?searchResultPosition=2
 
-**After Floods in Kentucky, a Reporter Let’s Residents Talk**\
+**After Floods in Kentucky, a Reporter Lets Residents Talk**\
 `Rick Rojas, a national correspondent for The Times, spent three days this week in southeastern Kentucky, where flash floods devastated communities that were already stressed.`\
 https://nytimes.com/2022/08/05/insider/after-floods-in-kentucky-a-reporter-lets-residents-talk.html?searchResultPosition=3
 
