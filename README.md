@@ -7,7 +7,7 @@ https://nytimes.com/2022/08/05/world/europe/us-russia-griner-ukraine-mykolaiv.ht
 https://nytimes.com/2022/08/05/us/politics/arizona-2020-election-conspiracy-theories.html?searchResultPosition=2
 
 **Albert Woodfox, Survivor of 42 Years in Solitary Confinement, Dies at 75**\
-`His term in solitary was the longest in the nation and perhaps in American history. He described how he kept his sanity, and dignity, in an acclaimed memoir.`\
+`His term in solitary was perhaps the longest in American history. He described how he kept his sanity, and dignity, in an acclaimed memoir.`\
 https://nytimes.com/2022/08/05/us/albert-woodfox-dead.html?searchResultPosition=3
 
 **Congress Must Vote to Ensure America’s Clean Energy Future**\
