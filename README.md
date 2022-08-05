@@ -1,4 +1,4 @@
-**Kari Lake defeats Karrin Taylor Robson in a close contest and will face Katie Hobbs this fall.**\
+**Kari Lake, Backed by Trump, Wins Arizona’s G.O.P. Governor Primary**\
 `Running a campaign heavily focused on false claims of a stolen 2020 election, Ms. Lake beat a rival supported by the state’s G.O.P. establishment and its departing governor, Doug Ducey.`\
 https://nytimes.com/2022/08/04/us/politics/kari-lake-arizona-governor.html?searchResultPosition=1
 
