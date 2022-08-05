@@ -22,8 +22,8 @@ https://nytimes.com/2022/08/05/opinion/climate-inflation-congress.html?searchRes
 `Here’s what you need to know at the end of the day.`\
 https://nytimes.com/2022/08/05/briefing/biden-bill-jobs-taiwan.html?searchResultPosition=6
 
-**Alex Jones’s Moment of Truth Doesn’t Matter Nearly Enough**\
-`And nothing about his apology merits forgiveness.`\
+**For Alex Jones, a Moment of Truth in a Flood of Lies**\
+`Nothing about his apology merits forgiveness.`\
 https://nytimes.com/2022/08/05/opinion/alex-jones-trial.html?searchResultPosition=7
 
 **Israel Hits Gaza, Prompting Rocket Barrage and Ending Relative Calm**\
