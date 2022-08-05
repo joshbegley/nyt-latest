@@ -1,6 +1,6 @@
 **A Town in Washington State Is Evacuated as a Wildfire Burns Six Houses**\
 `The fire also destroyed eight other structures as it burned about 2,500 acres in and around the town of Lind, Wash., on Thursday, the authorities said.`\
-https://nytimes.com/2022/08/05/us/washington-state-fire-evacuation.html?searchResultPosition=1
+https://nytimes.com/2022/08/05/us/washington-fire-evacuation-lind.html?searchResultPosition=1
 
 **The Composer Huang Ruo on Illusion and Betrayal in ‘M. Butterfly’**\
 `Huang, who wrote the music for the operatic adaptation of David Henry Hwang’s play, says its exploration of race, gender and power still resonates today.`\
