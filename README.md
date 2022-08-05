@@ -30,7 +30,7 @@ https://nytimes.com/2022/08/05/us/politics/arizona-2020-election-conspiracy-theo
 `His term in solitary was perhaps the longest in American history. He described how he kept his sanity, and dignity, in an acclaimed memoir.`\
 https://nytimes.com/2022/08/05/us/albert-woodfox-dead.html?searchResultPosition=8
 
-**We’re on the Verge of a Remarkable Moment for Congress and the Country**\
+**Bill Gates: We’re on the Verge of a Remarkable Moment for Congress and the Country**\
 `The Inflation Reduction Act may be the single-most important piece of climate legislation in American history.`\
 https://nytimes.com/2022/08/05/opinion/climate-inflation-congress.html?searchResultPosition=9
 
