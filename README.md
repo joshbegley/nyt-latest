@@ -35,6 +35,6 @@ https://nytimes.com/2022/08/06/business/indiana-companies-abortion.html?searchRe
 https://nytimes.com/video/us/100000008478012/pennsylvania-fire.html?searchResultPosition=9
 
 **Israel-Gaza Fighting Flares for a Second Day**\
-`The sudden spurt of violence since Friday is the worst in more than a year in the crowded, impoverished territory. The two-day death toll in Gaza rose to 15, according to Palestinian health officials.`\
+`The sudden spurt of violence since Friday is the worst in more than a year in the crowded, impoverished territory. The two-day death toll in Gaza rose to 20, according to Palestinian health officials.`\
 https://nytimes.com/2022/08/06/world/middleeast/fighting-israel-gaza.html?searchResultPosition=10
 
