@@ -1,6 +1,6 @@
 **Israel-Gaza Fighting Flares for a Second Day**\
 `The sudden escalation of violence is the worst in more than a year in the crowded, impoverished territory.`\
-https://nytimes.com/2022/08/06/world/middleeast/israel-gaza-fighting.html?searchResultPosition=1
+https://nytimes.com/2022/08/06/world/middleeast/fighting-israel-gaza.html?searchResultPosition=1
 
 **Is Homework Necessary for Student Success?**\
 `Readers argue both sides, citing Finland, the value of repetition, education inequity and more.`\
