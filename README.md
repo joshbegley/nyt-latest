@@ -1,5 +1,5 @@
-**Indiana Lawmakers Pass First Post-Roe Abortion Ban, With Limited Exceptions**\
-`The bill was sent to the governor despite dividing Republicans. Some of them said the measure was too restrictive; others objected to limited exceptions for rape and incest.`\
+**Indiana Governor Signs First Post-Roe Abortion Ban, With Limited Exceptions**\
+`The law passed despite dividing Republicans. Some of them said the measure was too restrictive; others objected to limited exceptions for rape and incest.`\
 https://nytimes.com/2022/08/05/us/indiana-abortion-vote.html?searchResultPosition=1
 
 **Place to Get a Smoothie**\
