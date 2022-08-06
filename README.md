@@ -14,7 +14,7 @@ https://nytimes.com/2022/08/06/world/asia/blinken-philippines-us-asia-tensions.h
 `Summer for Ukraine’s children means sunshine and swimming, but also long hours in bomb shelters and mine-safety training. A photographer captured their days in Kyiv for The New York Times.`\
 https://nytimes.com/2022/08/06/world/europe/ukraine-war-children-photos.html?searchResultPosition=4
 
-**Israel and Gaza Militants Exchange Fire in Second Day of Flare-up**\
+**The exchange is the biggest flare-up in the strip for a year.**\
 `No cease-fire appeared imminent, despite early mediation efforts by international actors, including the United Nations.`\
 https://nytimes.com/2022/08/06/world/middleeast/israel-gaza-fighting-airstrikes.html?searchResultPosition=5
 
