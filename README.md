@@ -31,7 +31,7 @@ https://nytimes.com/interactive/2022/08/06/us/uvalde-funerals.html?searchResultP
 https://nytimes.com/2022/08/06/opinion/abortion-kansas-politics.html?searchResultPosition=8
 
 **Fire at Cuban Oil Facility Leaves Dozens Injured, Hundreds Evacuated**\
-`Eight hundred people have been evacuated after an oil storage tank base caught fire in the western Matanzas Province.`\
+`Six-hundred people have been evacuated after an oil storage tank base caught fire in the western Matanzas Province.`\
 https://nytimes.com/2022/08/06/world/americas/cuba-oil-fire.html?searchResultPosition=9
 
 **Biden Tests Negative for Coronavirus but Will Keep Isolating**\
