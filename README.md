@@ -7,7 +7,7 @@ https://nytimes.com/2022/08/06/opinion/abortion-kansas-politics.html?searchResul
 https://nytimes.com/2022/08/06/world/middleeast/a-5-year-old-running-to-her-father-is-among-those-killed-in-gaza.html?searchResultPosition=2
 
 **Fire at Cuban Oil Facility Leaves Dozens Injured, Hundreds Evacuated**\
-`Eight-hundred people have been evacuated after an oil tank facility caught fire in the western Matanzas Province.`\
+`Eight-hundred people have been evacuated after an oil storage tank base caught fire in the western Matanzas Province.`\
 https://nytimes.com/2022/08/06/world/americas/cuba-oil-fire.html?searchResultPosition=3
 
 **Biden Tests Negative for Coronavirus but Will Keep Isolating**\
