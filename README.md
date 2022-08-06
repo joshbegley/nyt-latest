@@ -1,6 +1,6 @@
 **Air War Between Gaza Militants and Israel Enters Second Day**\
 `No cease-fire appeared imminent, despite early mediation efforts by international actors, including the United Nations.`\
-https://nytimes.com/2022/08/06/world/middleeast/israel-gaza-fighting.html?searchResultPosition=1
+https://nytimes.com/2022/08/06/world/middleeast/israel-gaza-fighting-airstrikes.html?searchResultPosition=1
 
 **For Instant Happiness, Grab a Book and Head Outside**\
 `Photographers from The New York Times visited beaches, parks and cafes to capture readers indulging in a timeless pleasure.`\
