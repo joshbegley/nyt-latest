@@ -8,7 +8,7 @@ https://nytimes.com/2022/08/07/climate/senate-climate-law.html?searchResultPosit
 
 **Watch Live: Senate Votes on Climate and Tax Bill**\
 `The legislation includes the most substantial investment in history to counter the warming of the planet.`\
-https://nytimes.com/video/us/politics/100000008478713/climate-tax-bill-senate-vote-video.html?searchResultPosition=3
+https://nytimes.com/video/embedded/us/politics/100000008478713/climate-tax-bill-senate-vote-video.html?searchResultPosition=3
 
 **Biden’s Remarkable Summer**\
 `The president needs to seize this moment and brag about his wins.`\
