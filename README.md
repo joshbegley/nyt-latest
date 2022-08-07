@@ -6,17 +6,17 @@ https://nytimes.com/2022/08/07/us/politics/climate-tax-health-care-bill.html?sea
 `A Congressional Budget Office analysis found that the measure would have little effect on inflation this year. Democrats argue the benefits will still be felt.`\
 https://nytimes.com/2022/08/07/us/politics/inflation-reduction-act-democrats.html?searchResultPosition=2
 
-**Amnesty International assessments that Ukraine ‘put civilians in harm’s way’ stirs outrage.**\
-`The director of the organization’s Ukraine office resigned to protest a statement by the wider organization that accuses Ukrainian soldiers of employing tactics of war that endanger civilians.`\
-https://nytimes.com/2022/08/07/world/europe/amnesty-international-ukraine.html?searchResultPosition=3
-
 **Senate Holds All-Night ‘Vote-a-Rama,’ With Democrats’ Agenda at Stake**\
 `Bleary-eyed senators went through a marathon series of votes at the Capitol that is the final step before passing Democrats’ climate, energy and tax package.`\
-https://nytimes.com/2022/08/07/us/politics/senate-vote-a-rama-democrats.html?searchResultPosition=4
+https://nytimes.com/2022/08/07/us/politics/senate-vote-a-rama-democrats.html?searchResultPosition=3
 
 **Review: A New ‘Ring’ at Bayreuth Does Wagner Without Magic**\
 `Valentin Schwarz’s production of the four-opera epic presents human characters with relations even more tangled than usual.`\
-https://nytimes.com/2022/08/07/arts/music/bayreuth-ring-review.html?searchResultPosition=5
+https://nytimes.com/2022/08/07/arts/music/bayreuth-ring-review.html?searchResultPosition=4
+
+**Democrats hold off Republican amendments, and some of their own.**\
+`Republicans railed against climate spending and an $80 billion plan to beef up tax enforcement at the I.R.S.`\
+https://nytimes.com/2022/08/07/us/politics/amendments-democrats-republicans.html?searchResultPosition=5
 
 **Demaryius Thomas’s Death Was Caused by Seizure Disorder**\
 `The former N.F.L. receiver died at 33, six months after he retired from football. He had been posthumously diagnosed with chronic traumatic encephalopathy, or C.T.E.`\
