@@ -6,7 +6,7 @@ https://nytimes.com/2022/08/07/opinion/ron-sider-christianity.html?searchResultP
 `Make a plan for fish sticks with peas, summer pasta and more recipes.`\
 https://nytimes.com/2022/08/07/dining/what-to-cook-this-week.html?searchResultPosition=2
 
-**Amnesty International Assessments That Ukraine ‘Put Civilians in Harm’s Way,’ Stirs Outrage**\
+**Amnesty International Assessment That Ukraine ‘Put Civilians in Harm’s Way’ Stirs Outrage**\
 `The human rights group accused the Ukrainian military of establishing bases and weapons systems in school and hospitals.`\
 https://nytimes.com/2022/08/07/world/europe/amnesty-international-ukraine-russia-war-crimes.html?searchResultPosition=3
 
