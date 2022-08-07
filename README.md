@@ -1,4 +1,4 @@
-**What’s in the climate, tax and health care package.**\
+**What’s in the Climate, Tax and Health Care Package**\
 `The bill includes billions in tax credits for the production of renewable energy, drug-pricing reforms and a boost for the I.R.S.`\
 https://nytimes.com/2022/08/07/us/politics/climate-tax-health-care-bill.html?searchResultPosition=1
 
