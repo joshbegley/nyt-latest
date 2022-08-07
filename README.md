@@ -6,7 +6,7 @@ https://nytimes.com/2022/08/07/briefing/solving-travel-problems.html?searchResul
 `The ships, the largest caravan to depart Ukraine since the Russian invasion began, were headed for China, Iran, Italy and Turkey.`\
 https://nytimes.com/2022/08/07/world/europe/grain-ships-ukraine-ports.html?searchResultPosition=2
 
-**What ‘The Bear’ Gets Right About Restaurant Work**\
+**Hulu’s ‘The Bear’ and the Restaurant Industry’s Long Overdue Reckoning**\
 `The Hulu drama is resonating partly because it shows workers demanding a better workplace, which is happening in the restaurant industry and beyond.`\
 https://nytimes.com/2022/08/07/opinion/hulu-the-bear-restaurant-work.html?searchResultPosition=3
 
