@@ -15,7 +15,7 @@ https://nytimes.com/2022/08/07/world/europe/amnesty-international-ukraine-russia
 https://nytimes.com/2022/08/07/business/the-week-in-business-job-growth.html?searchResultPosition=4
 
 **Clu Gulager, Rugged Character Actor of Film and TV, Dies at 93**\
-`On TV, he played Billy the Kid on the “The Tall Man” and was seen on the long-running “The Virginian.” His movies ranged from “The Last Picture Show” to “Elf.”`\
+`On TV, he played Billy the Kid on the “The Tall Man” and was seen on the long-running “The Virginian.” His movies ranged from “The Killers” to “The Last Picture Show.”`\
 https://nytimes.com/2022/08/07/movies/clu-gulager-dead.html?searchResultPosition=5
 
 **Biden Emerges From Isolation Again After Second Negative Coronavirus Test**\
