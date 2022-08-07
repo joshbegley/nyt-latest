@@ -31,7 +31,7 @@ https://nytimes.com/2022/08/07/us/politics/climate-tax-health-care-bill.html?sea
 https://nytimes.com/2022/08/07/us/politics/inflation-reduction-act-democrats.html?searchResultPosition=8
 
 **Senate Holds All-Night ‘Vote-a-Rama,’ With Democrats’ Agenda at Stake**\
-`Bleary-eyed senators went through a marathon series of votes at the Capitol that is the final step before passing Democrats’ climate, energy and tax package.`\
+`Bleary-eyed senators went through a marathon series of votes at the Capitol that was the final step before passing Democrats’ climate, energy and tax package.`\
 https://nytimes.com/2022/08/07/us/politics/senate-vote-a-rama-democrats.html?searchResultPosition=9
 
 **Review: A New ‘Ring’ at Bayreuth Does Wagner Without Magic**\
