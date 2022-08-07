@@ -1,6 +1,6 @@
 **What’s in the climate, tax and health care package.**\
 `The bill includes billions in tax credits for the production of renewable energy, drug-pricing reforms and a boost for the I.R.S.`\
-https://nytimes.com/2022/08/07/us/politics/whats-in-climate-tax-health-care.html?searchResultPosition=1
+https://nytimes.com/2022/08/07/us/politics/climate-tax-health-care-bill.html?searchResultPosition=1
 
 **Will the bill curb inflation? Democrats think it will, but not immediately.**\
 `A Congressional Budget Office analysis found that the measure would have little effect on inflation this year. Democrats argue the benefits will still be felt.`\
