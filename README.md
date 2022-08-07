@@ -18,7 +18,7 @@ https://nytimes.com/2022/08/07/nyregion/metropolitan-diary.html?searchResultPosi
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2022/08/07/crosswords/spelling-bee-forum.html?searchResultPosition=5
 
-**Biden faces conflicting demands after Griner verdict.**\
+**Biden faces conflicting demands after the Brittney Griner verdict.**\
 `The basketball star’s supporters are pressing for action. But critics of any possible deal are already fuming.`\
 https://nytimes.com/2022/08/07/world/europe/biden-faces-conflicting-demands-after-griner-verdict.html?searchResultPosition=6
 
