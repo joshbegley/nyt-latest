@@ -36,5 +36,5 @@ https://nytimes.com/2022/08/08/us/politics/biden-al-zawahri-qaeda.html?searchRes
 
 **U.S. Open Commits to Fund-Raising Exhibition Match and $2 Million for Ukraine**\
 `Unlike at Wimbledon, players from Russia and Belarus will be allowed to compete at the U.S. Open. Whether they play in an exhibition to support relief efforts in Ukraine is another question.`\
-https://nytimes.com/2022/08/08/sports/us-open-commits-to-fund-raising-exhibition-match-and-2-million-for-ukraine.html?searchResultPosition=10
+https://nytimes.com/2022/08/08/sports/us-open-tennis-ukraine.html?searchResultPosition=10
 
