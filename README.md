@@ -12,7 +12,7 @@ https://nytimes.com/2022/08/08/podcasts/the-daily/alex-jones-sandy-hook-defamati
 
 **China’s Military Drills and Other Tensions With Taiwan, Explained**\
 `China’s military announced new exercises near Taiwan, a day after concluding four days of drills that simulated a blockade of the island.`\
-https://nytimes.com/2022/08/08/world/asia/china-taiwan-explained.html?searchResultPosition=4
+https://nytimes.com/article/china-taiwan-explained.html?searchResultPosition=4
 
 **Embarrassing, Uncomfortable and Risky: What Flying Is Like for Passengers Who Use Wheelchairs**\
 `To better understand the obstacles faced by wheelchair users, The Times sent a reporter and a photographer to document one man’s plane trip. Here’s what they saw.`\
