@@ -1,40 +1,40 @@
-**In an Unequal Economy, the Poor Face Inflation Now and Job Loss Later**\
-`Americans with low incomes are pulling back from buying even as their richer counterparts keep spending — with potentially big consequences.`\
-https://nytimes.com/2022/08/08/business/economy/inflation-jobs-economy.html?searchResultPosition=1
+**Embarrassing, Uncomfortable and Risky: What Flying Is Like for Passengers Who Use Wheelchairs**\
+`To better understand the obstacles faced by wheelchair users, The Times sent a reporter and a photographer to document one man’s plane trip. Here’s what they saw.`\
+https://nytimes.com/2022/08/08/travel/air-travel-wheelchair.html?searchResultPosition=1
 
-**Fear of Crime Transcends Data Along One New York Subway Line’s 31 Miles**\
-`Ridership is down, even though crime levels have stayed the same. New Yorkers who ply longest subway route say the city feels unmoored.`\
-https://nytimes.com/2022/08/08/nyregion/subway-crime-ridership-nyc.html?searchResultPosition=2
+**$4 Million Homes in California**\
+`A Spanish-style retreat in Santa Barbara, a grand 1933 home in the Hollywood Hills and a Mediterranean-style house in Long Beach.`\
+https://nytimes.com/2022/08/08/realestate/home-prices-california.html?searchResultPosition=2
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/08/08/crosswords/spelling-bee-forum.html?searchResultPosition=3
+**What You Get for $4 Million in California**\
+`A Spanish-style retreat in Santa Barbara, a grand 1933 home in the Hollywood Hills and a Mediterranean-style house in Long Beach.`\
+https://nytimes.com/slideshow/2022/08/08/realestate/what-you-get-for-4-million-in-california.html?searchResultPosition=3
 
-**Why the Rent Is So High**\
-`New York City faces a housing crisis that’s making it harder for middle- and low-income people to live here.`\
-https://nytimes.com/2022/08/08/nyregion/why-the-rent-is-so-high.html?searchResultPosition=4
+**‘What a Horrible Place This Would Have Been’**\
+`Archaeologists found the remains of 14 soldiers who died in a pivotal Revolutionary War battle — a fresh reminder of the violence of war.`\
+https://nytimes.com/2022/08/08/science/archaeology-red-bank-battle-hessian.html?searchResultPosition=4
 
-**Authorities Seek Public’s Help in Investigation of Albuquerque Killings**\
-`The authorities appealed to the public for help as they sought the person or people who killed four Muslim men in Albuquerque.`\
-https://nytimes.com/video/us/100000008479044/muslim-community-albuquerque-killings.html?searchResultPosition=5
+**Can Global Shipping Be Fixed? One Regulator Will Try.**\
+`The Federal Maritime Commission, traditionally obscure, has been cast by Congress and the administration to help lead the campaign to tame inflation.`\
+https://nytimes.com/2022/08/08/business/supply-chain-federal-maritime-commission.html?searchResultPosition=5
 
-**What’s on TV This Week: ‘The Princess’ and ‘Password’**\
-`HBO airs a new documentary on the life and death of Princess Diana. And NBC brings back a game show.`\
-https://nytimes.com/2022/08/08/arts/television/whats-on-tv-this-week-the-princess-and-password.html?searchResultPosition=6
+**Freed From Prison in China, Taiwan Activist Urges Resistance to Beijing’s Threats**\
+`Li Ming-che and his wife, who met with Speaker Nancy Pelosi in Taiwan last week, have sought to inspire others not to be intimidated into silence by Beijing.`\
+https://nytimes.com/2022/08/08/world/asia/taiwan-china-activist.html?searchResultPosition=6
 
-**Your Monday Briefing**\
-`A cease-fire in Gaza.`\
-https://nytimes.com/2022/08/08/briefing/gaza-ceasefire-climate-bill.html?searchResultPosition=7
+**The Taliban’s Dangerous Collision Course With the West**\
+`After barring girls from high school — and harboring an Al-Qaeda leader — the regime now risks jeopardizing the billions of dollars of global aid that still keeps Afghans alive.`\
+https://nytimes.com/2022/08/08/magazine/taliban-afghanistan.html?searchResultPosition=7
 
-**No Corrections: Aug. 8, 2022**\
-`No corrections appeared in print on Monday, Aug. 8, 2022.`\
-https://nytimes.com/2022/08/08/pageoneplus/no-corrections-aug-8-2022.html?searchResultPosition=8
+**Biden Appeared to Overstate the Role of Al Qaeda’s Leader**\
+`Terrorism experts were surprised by the president’s descriptions of Ayman al-Zawahri, who was killed in a U.S. drone strike.`\
+https://nytimes.com/2022/08/08/us/politics/biden-al-zawahri-qaeda.html?searchResultPosition=8
 
-**Quotation of the Day: Muslims in New Mexico Are Shaken by Possible Targeted Killings**\
-`Quotation of the Day for Monday, August 8, 2022.`\
-https://nytimes.com/2022/08/08/todayspaper/quotation-of-the-day-muslims-in-new-mexico-are-shaken-by-possible-targeted-killings.html?searchResultPosition=9
+**U.S. Open Commits to Fund-Raising Exhibition Match and $2 Million for Ukraine**\
+`Unlike at Wimbledon, players from Russia and Belarus will be allowed to compete at the U.S. Open. Whether they play in an exhibition to support relief efforts in Ukraine is another question.`\
+https://nytimes.com/2022/08/08/sports/us-open-commits-to-fund-raising-exhibition-match-and-2-million-for-ukraine.html?searchResultPosition=9
 
-**In My Homeland, the Smell of Death on a Summer Afternoon**\
-`In Ukraine, tragedies are a backdrop to everyday existence, piling up in numbers that seem inconceivable, an inescapable reality that feels like the very air in your lungs.`\
-https://nytimes.com/2022/08/08/world/europe/ukraine-war-funeral-death.html?searchResultPosition=10
+**In Wisconsin, G.O.P. Voters Demand the Impossible: Decertifying 2020**\
+`Donald Trump’s supporters have turned anger over his defeat two years ago, and the false notion that it can still be reversed, into central campaign issues ahead of the battleground state’s primary.`\
+https://nytimes.com/2022/08/08/us/politics/wisconsin-gop-2020-election.html?searchResultPosition=10
 
