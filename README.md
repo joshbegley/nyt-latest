@@ -12,7 +12,7 @@ https://nytimes.com/2022/08/08/us/politics/biden-climate-bill-agenda-covid.html?
 
 **What’s Your Breastfeeding Story? We Want to Hear From You.**\
 `If you’re a parent trying to breastfeed — with all the highs and lows that brings — we want to hear your story.`\
-https://nytimes.com/2022/08/08/well/family/whats-your-breastfeeding-story-we-want-to-hear-from-you.html?searchResultPosition=4
+https://nytimes.com/2022/08/08/well/family/breastfeeding-story.html?searchResultPosition=4
 
 **Killer in Arbery Case Sentenced Again to Life in Prison**\
 `Travis McMichael was convicted of a federal hate crime following a state murder conviction in 2021. His lawyer tried without success to have part of the sentence served in federal prison.`\
