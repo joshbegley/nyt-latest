@@ -20,7 +20,7 @@ https://nytimes.com/2022/08/08/us/mckinney-fire-fish-california-oregon.html?sear
 
 **New Book Chronicles Trump’s Fraught Relationship With Top Military Officials**\
 `Mr. Trump once asked his chief of staff why his military leadership couldn’t be more like the German generals who had reported to Adolf Hitler, according to an excerpt.`\
-https://nytimes.com/2022/08/08/us/politics/new-book-chronicles-trumps-fraught-relationship-with-top-military-officials.html?searchResultPosition=6
+https://nytimes.com/2022/08/08/us/politics/trump-book-mark-milley.html?searchResultPosition=6
 
 **People Flock to South Korean Crypto Event Despite Market Turmoil**\
 `Falling prices and upheaval in the industry does not appear to have curbed Koreans’ appetite for crypto, blockchain and all things web3.`\
