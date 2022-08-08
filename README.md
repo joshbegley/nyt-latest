@@ -1,5 +1,5 @@
-**Mexican Pizza Comes Into Its Own**\
-`Taco Bell may have made the name famous, but this pizza — made with leavened dough and traditional Mexican ingredients — gives restaurateurs a way to celebrate their heritage.`\
+**In Search of Mexican Pizza**\
+`Taco Bell may have made the name famous, but this pizza — made with leavened dough and traditional Mexican ingredients — has become a genre all its own.`\
 https://nytimes.com/2022/08/08/dining/mexican-pizza.html?searchResultPosition=1
 
 **Ukraine Will Not Negotiate if Russia Holds Referendums, Zelensky Says**\
