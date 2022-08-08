@@ -18,7 +18,7 @@ https://nytimes.com/2022/08/08/world/middleeast/israel-gaza-cease-fire.html?sear
 `Flash floods last week pushed burned soil, rocks and downed timber into the river, killing off, according to local tribal leaders, thousands of fish.`\
 https://nytimes.com/2022/08/08/us/mckinney-fire-fish-california-oregon.html?searchResultPosition=5
 
-**New Book Chronicles Trump’s Fraught Relationship With Top Military Officials**\
+**Trump Asked Aide Why His Generals Couldn’t Be Like Hitler’s, Book Says**\
 `Mr. Trump once asked his chief of staff why his military leadership couldn’t be more like the German generals who had reported to Adolf Hitler, according to an excerpt.`\
 https://nytimes.com/2022/08/08/us/politics/trump-book-mark-milley.html?searchResultPosition=6
 
