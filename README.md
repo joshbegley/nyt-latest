@@ -1,4 +1,4 @@
-**Axios to Sell to Itself Cox Enterprises for $525 Million**\
+**Axios to Sell Itself to Cox Enterprises for $525 Million**\
 `The digital media company’s founders, Jim VandeHei, Mike Allen and Roy Schwartz, will continue to run the company.`\
 https://nytimes.com/2022/08/08/business/media/axios-cox-enterprises.html?searchResultPosition=1
 
