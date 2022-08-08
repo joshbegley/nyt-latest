@@ -14,7 +14,7 @@ https://nytimes.com/2022/08/08/opinion/aronowitz-bad-sex-book.html?searchResultP
 `The new corporate minimum tax is not law yet and is already rife with exceptions for the businesses that might have to pay it.`\
 https://nytimes.com/2022/08/08/business/corporate-minimum-tax-private-equity.html?searchResultPosition=4
 
-**U.S. Returns 30 Reportedly Looted Cambodian Antiquities**\
+**U.S. Returns 30 Looted Antiquities to Cambodia**\
 `At a ceremony in Manhattan, federal officials said the artifacts had been stolen by organized looters who sold them through an art dealer who was later indicted on smuggling charges.`\
 https://nytimes.com/2022/08/08/arts/us-cambodia-looted-antiquities.html?searchResultPosition=5
 
