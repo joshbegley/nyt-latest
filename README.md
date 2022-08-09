@@ -16,7 +16,7 @@ https://nytimes.com/2022/08/09/us/politics/wisconsin-primary-minnesota-vermont.h
 
 **For Ukrainians Abroad, War Has Also Meant a Flowering of Identity**\
 `Italy already had the biggest Ukrainian community in Western Europe before the war, but in recent months the diaspora has taken on new prominence and visibility.`\
-https://nytimes.com/2022/08/09/world/europe/ukrainian-identity-italy.html?searchResultPosition=5
+https://nytimes.com/2022/08/09/world/europe/italy-ukraine-war.html?searchResultPosition=5
 
 **Snapchat Introduces Its First Parental Controls**\
 `The messaging app, which is popular with teenagers, has faced legal pressure to roll out tools so parents can keep an eye on their children’s social media activity.`\
