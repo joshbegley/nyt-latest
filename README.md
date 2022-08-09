@@ -1,40 +1,40 @@
-**How to Fall Out of Love with Your Lawn**\
-`Lawns are bad for you, your pets and the planet. It’s time to move on to greener pastures.`\
-https://nytimes.com/video/opinion/100000008475338/lawns-water-environment.html?searchResultPosition=1
+**A Songwriter and His Sister Take on a Hollywood Hills Fixer-Upper**\
+`When your sibling is a real estate agent and an interior designer, why would you work with anyone else?`\
+https://nytimes.com/2022/08/09/realestate/cj-baran-hollywood-hills-los-angeles-house-renovation.html?searchResultPosition=1
 
-**Anxious New Yorkers Worry Whether Eric Adams Is the Man for the Moment**\
-`City residents are concerned about violent crime, housing costs, school budget cuts and homelessness. Some believe that the mayor has not met the challenge.`\
-https://nytimes.com/2022/08/09/nyregion/eric-adams-nyc.html?searchResultPosition=2
+**A Brother-and-Sister Renovation in the Hollywood Hills**\
+`When your sister is a real estate agent and an interior designer, why would you work with anyone else?`\
+https://nytimes.com/slideshow/2022/08/09/realestate/a-brother-and-sister-renovation-in-the-hollywood-hills.html?searchResultPosition=2
 
-**The Long, Long Wait for a Diabetes Cure**\
-`A documentary captures the desperation and frustration of Type 1 diabetes patients in a clinical trial.`\
-https://nytimes.com/2022/08/09/health/diabetes-cure-type-1.html?searchResultPosition=3
+**Mexico City Declared Police Abuse Over. Reports of Misconduct Kept Rising.**\
+`The police and city officials have turned a blind eye to misconduct, current and former police officials say — leaving victims of abuse, many of them poor, with little recourse.`\
+https://nytimes.com/2022/08/09/world/americas/mexico-city-police-abuse.html?searchResultPosition=3
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/08/09/crosswords/spelling-bee-forum.html?searchResultPosition=4
+**With Deal in Hand, Democrats Enter the Fall Armed With Something New: Hope**\
+`Democrats say the climate and tax bill will help win over a skeptical electorate in November, as Republicans try to galvanize their base against a progressive wish list.`\
+https://nytimes.com/2022/08/09/us/politics/democrats-midterms-climate-tax-bill.html?searchResultPosition=4
 
-**Unai Emery Is Back for More**\
-`Fired after falling short at P.S.G. and in the Premier League, Emery has rebuilt his coaching reputation at Villarreal. It may not be long before his phone is ringing again.`\
-https://nytimes.com/2022/08/09/sports/soccer/unai-emery-arsenal-villarreal.html?searchResultPosition=5
+**Albuquerque Welcomed Muslims. Then Four of Them Were Killed.**\
+`Amid a citywide homicide spike, officials believe the recent deaths of four Muslim men are connected, leading to fear in a place where many immigrants and refugees had felt at home.`\
+https://nytimes.com/2022/08/09/us/albuquerque-muslim-killings.html?searchResultPosition=5
 
-**Stephen Colbert Taunts Trump for Bad Bathroom Behavior**\
-`“To be fair, it’s unclear if those are official White House documents or his toilet’s suicide note,” Colbert said.`\
-https://nytimes.com/2022/08/09/arts/television/stephen-colbert-trump-toilet.html?searchResultPosition=6
+**Admiring the Trees of Paris**\
+`From the dramatic weeping willows along the Seine to the London plane trees that line the Champs-Élysées, trees play a supporting role in the city’s inimitable elegance and grandeur.`\
+https://nytimes.com/2022/08/09/travel/paris-trees.html?searchResultPosition=6
 
-**A View From China on How Perceptions of America Have Changed**\
-`A member of the Communist Party talks about how his country used to admire the United States. `\
-https://nytimes.com/2022/08/09/opinion/us-china-taiwan.html?searchResultPosition=7
+**She’s at Brown. Her Heart’s Still in Kabul.**\
+`In their first year at U.S. universities, women who escaped the Taliban are struggling to adjust — and to reckon with what they left behind.`\
+https://nytimes.com/2022/08/09/magazine/afghan-refugees-american-universities.html?searchResultPosition=7
 
-**Your Tuesday Briefing**\
-`An F.B.I. raid on the home of Donald Trump.`\
-https://nytimes.com/2022/08/09/briefing/trump-raid-blinken-africa.html?searchResultPosition=8
+**Everything You Always Wanted to Know About ‘Bad Sex’ but Were Afraid to Ask**\
+`In a quest to explore her own sexuality,  Nona Willis Aronowitz hit the sheets — and the books.`\
+https://nytimes.com/2022/08/09/books/review/nona-willis-aronowitz-bad-sex.html?searchResultPosition=8
 
-**Why China’s People No Longer Look Up to America**\
-`The U.S. should stop branding China as a threat and look in the mirror.`\
-https://nytimes.com/2022/08/09/opinion/china-us-relations.html?searchResultPosition=9
+**How Russian Propaganda Is Reaching Beyond English Speakers**\
+`Social media companies have taken steps to restrict Russian state media accounts. But posts from those accounts still spread in Spanish, Arabic and other languages and in places outside the West.`\
+https://nytimes.com/2022/08/09/business/russia-propaganda-spanish-social-media.html?searchResultPosition=9
 
-**Corrections: Aug. 9, 2022**\
-`Corrections that appeared in print on Tuesday, Aug. 9, 2022.`\
-https://nytimes.com/2022/08/09/world/corrections-aug-9-2022.html?searchResultPosition=10
+**Should I Tell My Elderly Turkish Dad That His Grandchild Is Trans?**\
+`The magazine’s Ethicist columnist on considerations when delivering news that will be shocking to a loved one.`\
+https://nytimes.com/2022/08/09/magazine/trans-elderly-ethics.html?searchResultPosition=10
 
