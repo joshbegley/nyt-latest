@@ -14,8 +14,8 @@ https://nytimes.com/video/world/europe/100000008481344/crimea-russian-airbase-ex
 `Williams was vague about the exact timing of her retirement, but she did say that she plans to attempt another run at the U.S. Open, which starts later this month.`\
 https://nytimes.com/2022/08/09/sports/tennis/serena-williams-upcoming-tournaments.html?searchResultPosition=4
 
-**The F.B.I. search is separate from the Justice Dept.’s Jan 6 investigation.**\
-`By Katie Benner`\
+**The F.B.I. search is separate from the Justice Department’s Jan. 6 investigation.**\
+`One inquiry appears to focus on materials taken from the White House at the end of the Trump presidency; the other is centered on a plan to create slates of false electors to change the outcome of the 2020 election.`\
 https://nytimes.com/2022/08/09/us/trump-fbi-jan-6.html?searchResultPosition=5
 
 **Martha Plimpton Can’t Say Enough About Pamela Adlon, the Tate Modern and Abortion Rights**\
