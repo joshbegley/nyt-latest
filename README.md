@@ -8,7 +8,7 @@ https://nytimes.com/2022/08/09/arts/judith-durham-dead.html?searchResultPosition
 
 **If Trump illegally removed official records, would he be barred from future office?**\
 `The F.B.I.’s search of the former president’s Florida residence has drawn attention to a crime whose penalties include disqualification from future office — and the prospect of a fight over its constitutionality.`\
-https://nytimes.com/2022/08/09/us/politics/trump-conviction-federal-office.html?searchResultPosition=3
+https://nytimes.com/2022/08/09/us/politics/trump-fbi-investigation.html?searchResultPosition=3
 
 **Ruling Upholds House Panel’s Request for Trump Tax Returns**\
 `The former president’s legal team has vowed to fight the congressional effort “tooth and nail.” He is virtually certain to appeal to the Supreme Court.`\
