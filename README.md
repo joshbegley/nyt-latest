@@ -8,7 +8,7 @@ https://nytimes.com/2022/08/09/podcasts/the-daily/climate-health-care-manchin-de
 
 **Issey Miyake, Japanese Fashion Designer, Dies at 84**\
 `He was known for his innovative origami-like designs, creating skirts, dresses and trousers with prisms of unfolding shapes.`\
-https://nytimes.com/2022/08/09/obituaries/issey-miyake-dead.html?searchResultPosition=3
+https://nytimes.com/2022/08/09/fashion/issey-miyake-dead.html?searchResultPosition=3
 
 **Why China’s Confidence Could Turn Out to Be a Weakness**\
 `State propaganda about China’s rise is stoking extreme nationalism. That could blind China to its problems, and could lead to conflict — perhaps over Taiwan.`\
