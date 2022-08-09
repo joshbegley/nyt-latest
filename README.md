@@ -1,10 +1,10 @@
-**Chase Mishkin, Tony-Winning Producer of ‘Dame Edna,’ Dies at 85**\
-`She was nearly 60 when she began producing shows on Broadway. In 19 years, she had a hand (and her money) in 30 plays and musicals.`\
-https://nytimes.com/2022/08/09/theater/chase-mishkin-dead.html?searchResultPosition=1
-
 **Wisconsin State Assembly 63rd District Primary Election Results**\
 `See full results and maps from the Wisconsin primary elections.`\
-https://nytimes.com/interactive/2022/08/09/us/elections/results-wisconsin-assembly-district-63.html?searchResultPosition=2
+https://nytimes.com/interactive/2022/08/09/us/elections/results-wisconsin-assembly-district-63.html?searchResultPosition=1
+
+**Chase Mishkin, Tony-Winning Producer of ‘Dame Edna,’ Dies at 85**\
+`She was nearly 60 when she began producing shows on Broadway. In 19 years, she had a hand (and her money) in 30 plays and musicals.`\
+https://nytimes.com/2022/08/09/theater/chase-mishkin-dead.html?searchResultPosition=2
 
 **He Was Swimming at Rockaway After Hours. He Ended Up in Handcuffs.**\
 `Andres Velasquez, 33, was handcuffed and taken into custody after New York City Parks Department officials called him out of the water and said he had refused to provide identification.`\
