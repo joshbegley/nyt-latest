@@ -1,10 +1,10 @@
-**This Fall, Outerwear Will Be Furry, Fluffy and Wild**\
-`With an array of textures, these styles bring a spirit of adventure.`\
-https://nytimes.com/2022/08/09/t-magazine/furry-fluffy-fall-fashion.html?searchResultPosition=1
-
 **Fighting inflation with climate action**\
 `Here’s how policies to slow global warming can also shield consumers from rising prices.`\
-https://nytimes.com/2022/08/09/climate/inflation-climate-change.html?searchResultPosition=2
+https://nytimes.com/2022/08/09/climate/inflation-climate-change.html?searchResultPosition=1
+
+**This Fall, Outerwear Will Be Furry, Fluffy and Wild**\
+`With an array of textures, these styles bring a spirit of adventure.`\
+https://nytimes.com/2022/08/09/t-magazine/furry-fluffy-fall-fashion.html?searchResultPosition=2
 
 **Summer Reading Contest Winner Week 7: On ‘Is the World Really Falling Apart, or Does It Just Feel That Way?’**\
 `Thank you to the teenagers who participated this week, and congratulations to our winner, Ivy Qin, as well as to our many runners-up and honorable mentions.`\
