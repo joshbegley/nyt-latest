@@ -18,7 +18,7 @@ https://nytimes.com/2022/08/09/nyregion/rockaway-beach-arrest.html?searchResultP
 `While it is hard to predict when we might get returns on election night, there are factors that can give us clues.`\
 https://nytimes.com/2022/08/09/us/politics/when-will-we-get-election-results-wisconsin.html?searchResultPosition=5
 
-**Peter Schiff has a deal with Puerto Rico to liquidate his Euro Pacific Bank, he says.**\
+**Peter Schiff Has a Deal With Puerto Rico to Liquidate His Euro Pacific Bank, He Says.**\
 `Two months after regulators there suspended the boutique online bank, the outspoken libertarian economist said he had agreed to return $66.7 million in deposits.`\
 https://nytimes.com/2022/08/09/business/euro-pacific-peter-schiff.html?searchResultPosition=6
 
