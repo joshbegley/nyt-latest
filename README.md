@@ -22,7 +22,7 @@ https://nytimes.com/2022/08/09/world/europe/italy-ukraine-war.html?searchResultP
 `The messaging app, which is popular with teenagers, has faced legal pressure to roll out tools so parents can keep an eye on their children’s social media activity.`\
 https://nytimes.com/2022/08/09/technology/snapchat-parental-controls.html?searchResultPosition=6
 
-**Floods in Seoul Kill at Least 7, With More Rain Coming**\
+**Floods Kill at Least 7 in Seoul Area, With More Rain Coming**\
 `The South Korean capital saw some of its heaviest rainfall in decades. Drivers abandoned cars in the upscale Gangnam district as roads became impassable.`\
 https://nytimes.com/2022/08/08/world/asia/seoul-floods-south-korea.html?searchResultPosition=7
 
