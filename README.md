@@ -7,7 +7,7 @@ https://nytimes.com/2022/08/09/us/politics/fbi-search-trump.html?searchResultPos
 https://nytimes.com/2022/08/09/us/politics/trump-fbi.html?searchResultPosition=6
 
 **Albuquerque Police Arrest Suspect in Killings of Muslim Men**\
-`The police charged the man, Muhammad Syed, 51, in two of the killings and said they consider him a suspect in the other two killings.`\
+`The police said the man, Muhammad Syed, 51, would be charged in two of the killings and that he was a suspect in the other two deaths.`\
 https://nytimes.com/video/us/100000008482280/albuquerque-muslim-killings-arrest.html?searchResultPosition=7
 
 **Representative Scott Perry says the F.B.I. seized his cellphone.**\
