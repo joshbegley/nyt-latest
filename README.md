@@ -1,6 +1,6 @@
 **Ford raises prices of F-150 Lightning electric truck by thousands of dollars, citing rising material costs.**\
 `Demand for electric vehicles has been far stronger than the supply of battery materials like lithium, nickel and cobalt.`\
-https://nytimes.com/2022/08/09/business/ford-raises-prices-of-f-150-lightning-electric-truck-by-thousands-of-dollars-citing-rising-material-costs.html?searchResultPosition=1
+https://nytimes.com/2022/08/09/business/ford-f-150-lightning-electric-truck-price.html?searchResultPosition=1
 
 **Judith Durham, Singer of ‘Georgy Girl’ and Other Hits, Dies at 79**\
 `A classically trained soprano, she became a chart-topping pop star in the 1960s with the folk-based Australian quartet the Seekers.`\
