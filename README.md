@@ -2,8 +2,8 @@
 `Bruce Haight offers a puzzling twist on a classic tale.`\
 https://nytimes.com/2022/08/08/crosswords/daily-puzzle-2022-08-09.html?searchResultPosition=1
 
-**Biden Administration to Allow New Injection Method for Monkeypox Vaccine**\
-`The approach — injecting one-fifth of the current dose into the skin instead of a full dose into underlying fat — would help stretch out the nation’s limited supply of vaccine.`\
+**U.S. Moves to Stretch Out Monkeypox Vaccine Supply**\
+`The approach would involve injecting one-fifth of the current dose into the skin instead of a full dose into underlying fat.`\
 https://nytimes.com/2022/08/08/us/politics/monkeypox-vaccine.html?searchResultPosition=2
 
 **Maryland Towns to Pay $5 Million in Black Teen’s Death in Police Encounter**\
