@@ -18,7 +18,7 @@ https://nytimes.com/2022/08/09/theater/mary-rodgers-jesse-green-shy.html?searchR
 `The resurgent Carpenter fractured his left foot on a foul tip. No timetable has been given for his return.`\
 https://nytimes.com/2022/08/09/sports/baseball/matt-carpenter-yankees.html?searchResultPosition=5
 
-**Russia says oil flows to three eastern European countries have been halted.**\
+**Russia says oil flows to three European countries have been halted.**\
 `A state-owned operator of a pipeline through Europe said its payment to the Ukrainian operator of the pipeline had been returned, blaming issues linked to European sanctions against Russia.`\
 https://nytimes.com/2022/08/09/business/russian-oil-druzhba-pipeline.html?searchResultPosition=6
 
