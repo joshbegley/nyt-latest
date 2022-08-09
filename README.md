@@ -26,13 +26,13 @@ https://nytimes.com/slideshow/2022/08/09/realestate/a-brother-and-sister-renovat
 `The police and city officials have turned a blind eye to misconduct, current and former police officials say — leaving victims of abuse, many of them poor, with little recourse.`\
 https://nytimes.com/2022/08/09/world/americas/mexico-city-police-abuse.html?searchResultPosition=7
 
-**With Deal in Hand, Democrats Enter the Fall Armed With Something New: Hope**\
-`Democrats say the climate and tax bill will help win over a skeptical electorate in November, as Republicans try to galvanize their base against a progressive wish list.`\
-https://nytimes.com/2022/08/09/us/politics/democrats-midterms-climate-tax-bill.html?searchResultPosition=8
-
 **Albuquerque Welcomed Muslims. Then Four of Them Were Killed.**\
 `Amid a citywide homicide spike, officials believe the recent deaths of four Muslim men are connected, leading to fear in a place where many immigrants and refugees had felt at home.`\
-https://nytimes.com/2022/08/09/us/albuquerque-muslim-killings.html?searchResultPosition=9
+https://nytimes.com/2022/08/09/us/albuquerque-muslim-killings.html?searchResultPosition=8
+
+**With Deal in Hand, Democrats Enter the Fall Armed With Something New: Hope**\
+`Democrats say the climate and tax bill will help win over a skeptical electorate in November, as Republicans try to galvanize their base against a progressive wish list.`\
+https://nytimes.com/2022/08/09/us/politics/democrats-midterms-climate-tax-bill.html?searchResultPosition=9
 
 **Admiring the Trees of Paris**\
 `From the dramatic weeping willows along the Seine to the London plane trees that line the Champs-Élysées, trees play a supporting role in the city’s inimitable elegance and grandeur.`\
