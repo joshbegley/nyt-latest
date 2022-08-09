@@ -11,7 +11,7 @@ https://nytimes.com/2022/08/09/us/politics/biden-semiconductor-chips-china.html?
 https://nytimes.com/2022/08/09/opinion/letters/trump-fbi-raid.html?searchResultPosition=3
 
 **Federal Authorities Investigate Firm Linked to Roman Abramovich**\
-`The Securities and Exchange Commission and the F.B.I. have been investigating Concord Management, according to people close to the firm.`\
+`The Securities and Exchange Commission and the F.B.I. have been investigating Concord Management, people close to the firm said.`\
 https://nytimes.com/2022/08/09/business/abramovich-concord-sec-fbi.html?searchResultPosition=4
 
 **Ford raises prices of F-150 Lightning electric truck by thousands of dollars, citing rising material costs.**\
