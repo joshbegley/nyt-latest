@@ -18,7 +18,7 @@ https://nytimes.com/2022/08/09/world/europe/crimea-explosions-russia-ukraine.htm
 `Experts on high-wire investigations say that the Justice Department would have carefully weighed the decision to poke around Mar-a-Lago — and that it might want to tell the public why it was necessary.`\
 https://nytimes.com/2022/08/09/us/politics/trump-mar-a-lago-search-politics.html?searchResultPosition=5
 
-**Serena Williams Leaves Tennis Just as She Played — on Her Own Terms**\
+**Serena Williams Leaves Tennis Just as She Played: On Her Own Terms**\
 `Williams brought her own distinctive flair to tennis, challenging norms that governed fashion, power, decorum, race and gender. By being herself, Williams’s reach far exceeded the game.`\
 https://nytimes.com/2022/08/09/sports/tennis/serena-williams-retiring-tennis.html?searchResultPosition=6
 
