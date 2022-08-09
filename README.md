@@ -10,15 +10,15 @@ https://nytimes.com/2022/08/09/us/politics/trump-fbi.html?searchResultPosition=6
 `The police charged the man, Muhammad Syed, 51, in two of the killings and said they consider him a suspect in the other two killings.`\
 https://nytimes.com/video/us/100000008482280/albuquerque-muslim-killings-arrest.html?searchResultPosition=7
 
+**Representative Scott Perry says the F.B.I. seized his cellphone.**\
+`Mr. Perry compared the seizure of his phone to the F.B.I.’s search of former President Donald J. Trump’s Mar-a-Lago property.`\
+https://nytimes.com/2022/08/09/us/scott-perry-cellphone-fbi.html?searchResultPosition=8
+
 **Ilhan Omar faces a primary challenge in her Minnesota House district.**\
 `Four opponents, including the former Minneapolis city councilman Don Samuels, are competing to unseat the incumbent.`\
-https://nytimes.com/2022/08/09/us/politics/ilhan-omar-faces-a-primary-challenge-in-her-minnesota-house-district.html?searchResultPosition=8
+https://nytimes.com/2022/08/09/us/politics/ilhan-omar-faces-a-primary-challenge-in-her-minnesota-house-district.html?searchResultPosition=9
 
 **Justice Dept. Said to Conduct New Interviews in Inquiry Into Google’s Ad Tech**\
 `The Justice Department for more than a year has investigated whether Google abuses its dominance over the interlocking technologies that deliver ads online.`\
-https://nytimes.com/2022/08/09/technology/justice-dept-google-ad-tech.html?searchResultPosition=9
-
-**Garland Becomes Trump’s Target After F.B.I.’s Mar-a-Lago Search**\
-`The attorney general has not commented on the search at Donald J. Trump’s home in Florida, and the former president and his allies are filling the void with vitriol.`\
-https://nytimes.com/2022/08/09/us/politics/trump-garland-fbi.html?searchResultPosition=10
+https://nytimes.com/2022/08/09/technology/justice-dept-google-ad-tech.html?searchResultPosition=10
 
