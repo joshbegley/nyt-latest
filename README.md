@@ -2,7 +2,7 @@
 `The Times wants to hear from you.`\
 https://nytimes.com/2022/08/09/well/online-therapy.html?searchResultPosition=1
 
-**Serena Williams Says She Will Retire From Tennis After U.S. Open**\
+**Serena Williams Says She Will Retire From Tennis Sometime After U.S. Open**\
 `In a cover story for Vogue, Williams said she was “evolving away from tennis, toward other things that are important to me.”`\
 https://nytimes.com/2022/08/09/sports/tennis/serena-williams-retirement-vogue.html?searchResultPosition=2
 
