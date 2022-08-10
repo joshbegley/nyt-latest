@@ -26,15 +26,15 @@ https://nytimes.com/2022/08/10/world/europe/france-beluga-whale-dies.html?search
 `The City Council voted on Tuesday to prohibit homeless people from setting up tents within 500 feet of public and private schools and day care centers.`\
 https://nytimes.com/2022/08/10/us/los-angeles-encampment-ban-schools.html?searchResultPosition=7
 
+**What Today’s Inflation Report Means for the Federal Reserve**\
+`Fed officials are waiting for an inflation slowdown, and economists have predicted that this could mark the start of a deceleration.`\
+https://nytimes.com/2022/08/10/business/what-todays-inflation-report-means-for-the-federal-reserve.html?searchResultPosition=8
+
 **The Seagram Building’s New Playground**\
 `The famous midtown property, an official city landmark, is opening a new sports and leisure lounge.`\
-https://nytimes.com/interactive/2022/08/10/nyregion/seagram-playground.html?searchResultPosition=8
+https://nytimes.com/interactive/2022/08/10/nyregion/seagram-playground.html?searchResultPosition=9
 
 **$575,000 Homes in Massachusetts, Louisiana and Georgia**\
 `An eight-bedroom Edwardian house in Springfield, a 1913 home in New Orleans and a three-bedroom bungalow in Atlanta.`\
-https://nytimes.com/2022/08/10/realestate/575000-homes-in-massachusetts-louisiana-and-georgia.html?searchResultPosition=9
-
-**What You Get for $575,000**\
-`An eight-bedroom Edwardian house in Springfield, Mass.; a 1913 home in New Orleans; and a three-bedroom bungalow in Atlanta.`\
-https://nytimes.com/slideshow/2022/08/10/realestate/what-you-get-for-575000.html?searchResultPosition=10
+https://nytimes.com/2022/08/10/realestate/575000-homes-in-massachusetts-louisiana-and-georgia.html?searchResultPosition=10
 
