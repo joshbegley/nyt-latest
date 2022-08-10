@@ -26,7 +26,7 @@ https://nytimes.com/2022/08/10/nyregion/trump-fifth-civil-case.html?searchResult
 `The Danny Rumph Classic in Philadelphia each summer attracts N.B.A. players with local roots and raises awareness about cardiac health, in honor of the tournament’s namesake.`\
 https://nytimes.com/2022/08/10/sports/danny-rumph-classic-philadelphia-nba-tyrese-maxey.html?searchResultPosition=7
 
-**Kids’ Mental Health Is a ‘National Emergency.’ Therapists Are In Short Supply.**\
+**Kids’ Mental Health Is a ‘National Emergency.’ Therapists Are in Short Supply.**\
 `Could books and online materials help fill the gap?`\
 https://nytimes.com/2022/08/10/opinion/children-mental-health.html?searchResultPosition=8
 
