@@ -1,40 +1,40 @@
+**Is this the month when prices finally begin to cool?**\
+`Inflation is expected to ease because of lower prices for gasoline and air travel. The big question is how sustainable that moderation will prove.`\
+https://nytimes.com/2022/08/10/business/inflation-cpi-july.html?searchResultPosition=1
+
+**Falling gas prices have been easing pressure on inflation.**\
+`The average price at the pump has fallen for 57 consecutive days.`\
+https://nytimes.com/2022/08/10/business/gas-prices-inflation.html?searchResultPosition=2
+
+**A Parisian Jewelry House Breaks the Mold with a New Watch**\
+`Mellerio dits Meller, founded in 1515, introduces its first mechanical timepiece.`\
+https://nytimes.com/2022/08/10/fashion/watches-mellerio-dits-meller-paris.html?searchResultPosition=3
+
+**In ‘House of the Dragon,’ Paddy Considine Claims the Crown**\
+`A string of critically acclaimed roles has made him many British actors’ favorite actor. It has also lifted him from hardscrabble roots to a seat on the Iron Throne.`\
+https://nytimes.com/2022/08/10/arts/television/paddy-considine-house-of-the-dragon-king-viserys.html?searchResultPosition=4
+
+**Five Takeaways From Tuesday’s Elections**\
+`In a series of primaries in Wisconsin and a handful of other states, the power of a Trump endorsement resonated.`\
+https://nytimes.com/2022/08/10/us/politics/elections-tuesday-primaries-midterms.html?searchResultPosition=5
+
+**Creating Watch Beauty, One Petal at a Time**\
+`Alexandre Beauregard, an independent designer in Montreal, turns plump hand-carved bits of gems and minerals into flower dials.`\
+https://nytimes.com/2022/08/10/fashion/watches-alexandre-beauregard-montreal.html?searchResultPosition=6
+
 **The Art of Making Garden Rooms**\
 `Want to create outdoor rooms in your garden? At Sakonnet, a magical landscape in coastal Rhode Island, you can learn from the masters.`\
-https://nytimes.com/2022/08/10/realestate/the-art-of-making-garden-rooms.html?searchResultPosition=1
-
-**In the Amazon, a U.N. Agency Has a Green Mission, but Dirty Partners**\
-`One of the world’s largest sustainable development agencies has worked with energy companies to quash opposition and keep oil flowing, even in sensitive areas.`\
-https://nytimes.com/2022/08/10/world/americas/colombia-big-oil-united-nations.html?searchResultPosition=2
+https://nytimes.com/2022/08/10/realestate/the-art-of-making-garden-rooms.html?searchResultPosition=7
 
 **The Magical Rooms of Sakonnet Garden**\
 `Want to create outdoor rooms in your garden? At Sakonnet, in coastal Rhode Island, you can learn from the masters.`\
-https://nytimes.com/slideshow/2022/08/10/realestate/the-magical-rooms-of-sakonnet-garden.html?searchResultPosition=3
+https://nytimes.com/slideshow/2022/08/10/realestate/the-magical-rooms-of-sakonnet-garden.html?searchResultPosition=8
+
+**In the Amazon, a U.N. Agency Has a Green Mission, but Dirty Partners**\
+`One of the world’s largest sustainable development agencies has worked with energy companies to quash opposition and keep oil flowing, even in sensitive areas.`\
+https://nytimes.com/2022/08/10/world/americas/colombia-big-oil-united-nations.html?searchResultPosition=9
 
 **U.S. Insists It Will Operate Around Taiwan, Despite China’s Pressure**\
 `The confrontation threatens to overwhelm President Biden’s efforts to find a series of issues in which the United States and China can work together.`\
-https://nytimes.com/2022/08/10/us/politics/taiwan-china-us.html?searchResultPosition=4
-
-**Arizonans Trusted Kari Lake to Tell It Straight on TV. Will They Trust Her as Governor?**\
-`The former news anchor is running on falsehoods about the 2020 election. She is undeterred about her chances in November: ‘I am beloved by people.’`\
-https://nytimes.com/2022/08/10/us/politics/kari-lake-arizona-republican.html?searchResultPosition=5
-
-**Hunting for Voter Fraud, Conspiracy Theorists Organize ‘Stakeouts’**\
-`A nascent effort to surveil drop boxes for potential fraud is taking shape in at least 10 states, worrying election officials and law enforcement.`\
-https://nytimes.com/2022/08/10/technology/voter-drop-box-conspiracy-theory.html?searchResultPosition=6
-
-**Jewelry That Marks Every Second**\
-`Anna Maccieri Rossi, an Italian jewelry designer, drew on her watchmaking background for a new amulet collection.`\
-https://nytimes.com/2022/08/10/fashion/jewelry-watches-anna-maccieri-rossi-italy.html?searchResultPosition=7
-
-**Tracking Ships (and Sharks) and Tying Knots: Apps to Enrich Your Seaside Vacation**\
-`With the right software on your phone you can turn a getaway on the water into an opportunity for discovery, from deciphering signal flags to forecasting tides.`\
-https://nytimes.com/2022/08/10/travel/maritime-apps.html?searchResultPosition=8
-
-**Change These Default Settings and Be Happier With Your Tech**\
-`Simple steps can make your smartphone, computer and TV work better for you.`\
-https://nytimes.com/2022/08/10/technology/personaltech/default-settings-change.html?searchResultPosition=9
-
-**The Russian Filmmaker Trapped Between Hollywood and Moscow**\
-`As boycotts of Russia expand to include cultural exports, artists like Kirill Serebrennikov must prove they are dissident enough to enjoy a Western audience.`\
-https://nytimes.com/2022/08/10/magazine/russia-hollywood-films.html?searchResultPosition=10
+https://nytimes.com/2022/08/10/us/politics/taiwan-china-us.html?searchResultPosition=10
 
