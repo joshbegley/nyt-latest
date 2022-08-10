@@ -19,7 +19,7 @@ https://nytimes.com/2022/08/10/world/europe/hungary-russia-ukraine-oil-mol.html?
 https://nytimes.com/2022/08/10/world/europe/uk-london-polio-vaccine-sewage.html?searchResultPosition=5
 
 **Justice Dept. Charges Iranian in Plot to Kill John Bolton**\
-`Prosecutors said a member of Iran’s Islamic Revolutionary Guard Corps sought the murder of the former national security adviser in retaliation for the killing of a top Iranian official by the U.S.`\
+`Prosecutors said a member of Iran’s Islamic Revolutionary Guard Corps sought the murder of the former national security adviser in retaliation for the killing of a top Iranian official by the United States.`\
 https://nytimes.com/2022/08/10/us/politics/iranian-john-bolton-assassination-charges.html?searchResultPosition=6
 
 **Blinken Presses Congo Leaders to Slow Oil-and-Gas Push in Rainforests**\
