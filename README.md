@@ -15,7 +15,7 @@ https://nytimes.com/2022/08/10/world/asia/philippines-marcos-movie.html?searchRe
 https://nytimes.com/video/us/politics/100000008482616/election-primary-michels-wisconsin-governor-gop.html?searchResultPosition=4
 
 **Who Won and Who Lost in Primary Elections in Wisconsin and Elsewhere**\
-`Republicans chose Tim Michels to challenge Gov. Tony Evers in Wisconsin. In Washington State, a House Republican who voted for impeachment conceded her race.`\
+`Republicans chose Tim Michels to challenge Gov. Tony Evers in Wisconsin, and Lt. Gov. Mandela Barnes will take on Senator Ron Johnson. In Washington State, a House Republican who voted for impeachment conceded her race.`\
 https://nytimes.com/2022/08/10/us/politics/primary-elections-winners-losers.html?searchResultPosition=5
 
 **Your Wednesday Briefing**\
