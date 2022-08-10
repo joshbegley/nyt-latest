@@ -3,7 +3,7 @@
 https://nytimes.com/2022/08/10/us/politics/trump-fbi-justice-department.html?searchResultPosition=1
 
 **What happens next in the New York attorney general’s inquiry?**\
-`By William K. Rashbaum, Jonah E. Bromwich and Benjamin Protess`\
+`Since former President Donald J. Trump declined to answer questions, Attorney General Letitia James faces a crucial decision.`\
 https://nytimes.com/2022/08/10/nyregion/trump-attorney-general-ny-investigation.html?searchResultPosition=2
 
 **Is There Any End to the Ukraine War in Sight?**\
