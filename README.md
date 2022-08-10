@@ -24,7 +24,7 @@ https://nytimes.com/2022/08/10/learning/our-2022-23-student-contest-calendar-fal
 
 **Trump and James sat across from each other for hours as he said ‘same answer’ again and again.**\
 `A lawyer for Donald J. Trump said that over the course of about four hours, the former president answered only one question, about his name, toward the beginning of the interview.`\
-https://nytimes.com/2022/08/10/nyregion/donald-trump-letitia-james-deposition.html?searchResultPosition=7
+https://nytimes.com/2022/08/10/nyregion/trump-letitia-james-deposition.html?searchResultPosition=7
 
 **‘If you’re innocent, why are you taking the Fifth Amendment?’ Trump’s position on declining to testify has changed over time.**\
 `Over the years, the former president has generally criticized other politicians for taking the Fifth Amendment. But on Wednesday, he invoked the right himself.`\
