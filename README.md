@@ -30,11 +30,11 @@ https://nytimes.com/2022/08/10/arts/music/prentiss-crescent.html?searchResultPos
 `The billionaire entrepreneur said he wanted “to avoid an emergency sale of Tesla stock” if he was forced to complete the buyout of the social media company.`\
 https://nytimes.com/2022/08/10/business/dealbook/elon-musk-tesla-twitter.html?searchResultPosition=8
 
+**Slowing inflation gave Biden a reprieve but high prices remain a political problem.**\
+`By Alan Rappeport`\
+https://nytimes.com/2022/08/10/business/biden-inflation.html?searchResultPosition=9
+
 **The Mets Make Their Case as New York’s Best Team**\
 `A run of 14 wins in 16 games has catapulted the Mets past the Yankees. With the second-best record in the majors and a big division lead, things are looking good.`\
-https://nytimes.com/2022/08/10/sports/baseball/mets-yankees.html?searchResultPosition=9
-
-**Classic Pumps Stage a Comeback**\
-`This season’s heels come in a range of heights and finishes.`\
-https://nytimes.com/2022/08/10/t-magazine/classic-pumps-heels-shoes.html?searchResultPosition=10
+https://nytimes.com/2022/08/10/sports/baseball/mets-yankees.html?searchResultPosition=10
 
