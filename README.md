@@ -26,15 +26,15 @@ https://nytimes.com/2022/08/10/us/politics/iranian-john-bolton-assassination-cha
 `The secretary of state’s remarks came as the U.S. and the Democratic Republic of Congo agreed to work together to help mitigate climate change.`\
 https://nytimes.com/2022/08/10/world/africa/blinken-congo-rainforests.html?searchResultPosition=7
 
+**Trump is baselessly suggesting that the F.B.I. might have planted evidence during its search.**\
+`In a post on his social media app, he suggested without evidence that federal agents may have planted incriminating materials before searching his residence in Florida on Monday.`\
+https://nytimes.com/2022/08/10/nyregion/trump-fbi-planting-evidence.html?searchResultPosition=8
+
 **Gary Schroen, Who Led the C.I.A. Into Afghanistan, Dies at 80**\
 `Weeks before the troops arrived, he took a small team into the country to prepare for an invasion and begin the hunt for Osama bin Laden.`\
-https://nytimes.com/2022/08/10/world/middleeast/gary-schroen-dead.html?searchResultPosition=8
+https://nytimes.com/2022/08/10/world/middleeast/gary-schroen-dead.html?searchResultPosition=9
 
 **Former Boston School Official Pleads Guilty to Racketeering**\
 `Prosecutors said Shaun Harrison, 63, lived a “double life” as a member of the Latin Kings gang while working at a public high school.`\
-https://nytimes.com/2022/08/10/us/latin-kings-boston-schools.html?searchResultPosition=9
-
-**New York City Can Reinstate School Budget Cuts, Court Rules**\
-`With the first day of school in New York less than a month away, the city is caught up in a contentious legal battle over whether to cut school funding.`\
-https://nytimes.com/2022/08/10/nyregion/school-budget-cuts-new-york-city-appeal.html?searchResultPosition=10
+https://nytimes.com/2022/08/10/us/latin-kings-boston-schools.html?searchResultPosition=10
 
