@@ -30,8 +30,8 @@ https://nytimes.com/2022/08/10/arts/music/prentiss-crescent.html?searchResultPos
 `The billionaire entrepreneur said he wanted “to avoid an emergency sale of Tesla stock” if he was forced to complete the buyout of the social media company.`\
 https://nytimes.com/2022/08/10/business/dealbook/elon-musk-tesla-twitter.html?searchResultPosition=8
 
-**Slowing inflation gave Biden a reprieve but high prices remain a political problem.**\
-`By Alan Rappeport`\
+**Slowing Inflation Gives Biden Respite, but High Prices Remain a Problem**\
+`Speaking at the White House, the president declared that his “economic plan is working.”`\
 https://nytimes.com/2022/08/10/business/biden-inflation.html?searchResultPosition=9
 
 **The Mets Make Their Case as New York’s Best Team**\
