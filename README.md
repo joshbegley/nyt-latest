@@ -1,40 +1,40 @@
-**‘We Couldn’t Do Anything’: Family Drowns in Seoul Basement During Floods**\
-`Hundreds of thousands of poor people live in semi-underground homes around the city. The death of a family of three showed ​how vulnerable they are to flooding.`\
-https://nytimes.com/2022/08/10/world/asia/south-korea-floods-basement.html?searchResultPosition=1
+**The Art of Making Garden Rooms**\
+`Want to create outdoor rooms in your garden? At Sakonnet, a magical landscape in coastal Rhode Island, you can learn from the masters.`\
+https://nytimes.com/2022/08/10/realestate/the-art-of-making-garden-rooms.html?searchResultPosition=1
 
-**Trump Suggests He Will Be Questioned as New York Investigation Nears End**\
-`Attorney General Letitia James finally will have the chance to question Donald J. Trump, a high-stakes interview that comes at a pivotal moment for the former president.`\
-https://nytimes.com/2022/08/10/nyregion/trump-questioning-investigation.html?searchResultPosition=2
+**In the Amazon, a U.N. Agency Has a Green Mission, but Dirty Partners**\
+`One of the world’s largest sustainable development agencies has worked with energy companies to quash opposition and keep oil flowing, even in sensitive areas.`\
+https://nytimes.com/2022/08/10/world/americas/colombia-big-oil-united-nations.html?searchResultPosition=2
 
-**For Older Americans, Health Bill Will Bring Savings and ‘Peace Of Mind’**\
-`Starting in 2025, Medicare recipients with prescription drug coverage will not have to pay more than $2,000 annually for medications, a significant savings for some.`\
-https://nytimes.com/2022/08/10/us/politics/prescription-drugs-medicare-health-bill.html?searchResultPosition=3
+**The Magical Rooms of Sakonnet Garden**\
+`Want to create outdoor rooms in your garden? At Sakonnet, in coastal Rhode Island, you can learn from the masters.`\
+https://nytimes.com/slideshow/2022/08/10/realestate/the-magical-rooms-of-sakonnet-garden.html?searchResultPosition=3
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/08/10/crosswords/spelling-bee-forum.html?searchResultPosition=4
+**U.S. Insists It Will Operate Around Taiwan, Despite China’s Pressure**\
+`The confrontation threatens to overwhelm President Biden’s efforts to find a series of issues in which the United States and China can work together.`\
+https://nytimes.com/2022/08/10/us/politics/taiwan-china-us.html?searchResultPosition=4
 
-**What Martial Law? Marcoses Get Star Treatment in New Film.**\
-`A big-budget production depicts the family as victims of a political vendetta, a popular narrative during the recent presidential election in the Philippines.`\
-https://nytimes.com/2022/08/10/world/asia/philippines-marcos-movie.html?searchResultPosition=5
+**Arizonans Trusted Kari Lake to Tell It Straight on TV. Will They Trust Her as Governor?**\
+`The former news anchor is running on falsehoods about the 2020 election. She is undeterred about her chances in November: ‘I am beloved by people.’`\
+https://nytimes.com/2022/08/10/us/politics/kari-lake-arizona-republican.html?searchResultPosition=5
 
-**Tim Michels Is Wisconsin Republicans’ Choice for Governor**\
-`Tim Michels, a Wisconsin native who inherited an infrastructure company from his father and was endorsed by former President Donald J. Trump, won Wisconsin’s Republican primary for governor.`\
-https://nytimes.com/video/us/politics/100000008482616/election-primary-michels-wisconsin-governor-gop.html?searchResultPosition=6
+**Hunting for Voter Fraud, Conspiracy Theorists Organize ‘Stakeouts’**\
+`A nascent effort to surveil drop boxes for potential fraud is taking shape in at least 10 states, worrying election officials and law enforcement.`\
+https://nytimes.com/2022/08/10/technology/voter-drop-box-conspiracy-theory.html?searchResultPosition=6
 
-**Who Won and Who Lost in Primary Elections in Wisconsin and Elsewhere**\
-`Republicans chose Tim Michels to challenge Gov. Tony Evers in Wisconsin, and Lt. Gov. Mandela Barnes will take on Senator Ron Johnson. In Washington State, a House Republican who voted for impeachment conceded her race.`\
-https://nytimes.com/2022/08/10/us/politics/primary-elections-winners-losers.html?searchResultPosition=7
+**Jewelry That Marks Every Second**\
+`Anna Maccieri Rossi, an Italian jewelry designer, drew on her watchmaking background for a new amulet collection.`\
+https://nytimes.com/2022/08/10/fashion/jewelry-watches-anna-maccieri-rossi-italy.html?searchResultPosition=7
 
-**Your Wednesday Briefing**\
-`Russia’s grip on Ukrainian cyberspace.`\
-https://nytimes.com/2022/08/10/briefing/russia-internet-ukraine-trump-fbi.html?searchResultPosition=8
+**Tracking Ships (and Sharks) and Tying Knots: Apps to Enrich Your Seaside Vacation**\
+`With the right software on your phone you can turn a getaway on the water into an opportunity for discovery, from deciphering signal flags to forecasting tides.`\
+https://nytimes.com/2022/08/10/travel/maritime-apps.html?searchResultPosition=8
 
-**The Greenest Block Grows in Brooklyn**\
-`A block of Lincoln Place in Crown Heights is the winner of an urban gardening award. Its trees lower temperatures, one of the gardeners says.`\
-https://nytimes.com/2022/08/10/nyregion/urban-garden-award-brooklyn.html?searchResultPosition=9
+**Change These Default Settings and Be Happier With Your Tech**\
+`Simple steps can make your smartphone, computer and TV work better for you.`\
+https://nytimes.com/2022/08/10/technology/personaltech/default-settings-change.html?searchResultPosition=9
 
-**From the Workshop to the War: Creative Use of Drones Lifts Ukraine**\
-`While Russia lacks an effective long-range strike drone, Ukraine’s experimentation has produced an array of inexpensive, plastic aircraft, jerry-rigged to drop grenades or other munitions.`\
-https://nytimes.com/2022/08/10/world/europe/ukraine-drones.html?searchResultPosition=10
+**The Russian Filmmaker Trapped Between Hollywood and Moscow**\
+`As boycotts of Russia expand to include cultural exports, artists like Kirill Serebrennikov must prove they are dissident enough to enjoy a Western audience.`\
+https://nytimes.com/2022/08/10/magazine/russia-hollywood-films.html?searchResultPosition=10
 
