@@ -1,5 +1,5 @@
 **FIFA Proposes Last-Minute Change to World Cup Schedule**\
-`A letter sent only months before the tournament, organizers have requested that the World Cup start one day earlier and allow Qatar, the host nation, to feature in its first match.`\
+`In a letter sent only months before the tournament, organizers have requested that the World Cup start one day earlier and allow Qatar, the host nation, to feature in its first match.`\
 https://nytimes.com/2022/08/10/sports/soccer/fifa-qatar-world-cup.html?searchResultPosition=1
 
 **Two Trump Scenarios**\
