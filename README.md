@@ -1,5 +1,5 @@
-**Anne Heche in Critical Condition After Car Crash in Los Angeles**\
-`Ms. Heche, 53, was injured on Friday when the car she was in crashed into a two-story home, causing severe damage and a fire, the authorities said.`\
+**Anne Heche Remains in Critical Condition After Car Crash**\
+`Ms. Heche, 53, was injured on Friday when the car she was in crashed into a two-story home in Los Angeles, causing severe damage and a fire, the authorities said.`\
 https://nytimes.com/2022/08/10/us/anne-heche-coma-crash.html?searchResultPosition=1
 
 **Review: An Opera’s Exquisite Brutality Arrives in America**\
