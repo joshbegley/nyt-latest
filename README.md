@@ -1,4 +1,4 @@
-**Becca Balint wins Vermont House primary, with the backing of Senator Bernie Sanders.**\
+**Becca Balint wins a Vermont House primary, with the backing of Senator Bernie Sanders.**\
 `She is expected to prevail in November and become the first woman the state has sent to Congress.`\
 https://nytimes.com/2022/08/09/us/politics/becca-balint-wins-vermont-house-bernie-sanders.html?searchResultPosition=1
 
