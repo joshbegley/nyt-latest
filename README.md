@@ -11,7 +11,7 @@ https://nytimes.com/2022/08/10/us/latin-kings-boston-schools.html?searchResultPo
 https://nytimes.com/2022/08/10/nyregion/school-budget-cuts-new-york-city-appeal.html?searchResultPosition=3
 
 **92NY’s New Season Includes Ian McEwan and Tom Stoppard**\
-`The fall season also features Ralph Fiennes , Chimamanda Ngozi Adichie, Katie Couric and Ken Burns.`\
+`The fall season also features Ralph Fiennes, Chimamanda Ngozi Adichie, Katie Couric and Ken Burns.`\
 https://nytimes.com/2022/08/10/arts/92nd-street-y-new-season.html?searchResultPosition=4
 
 **Sneeze by Sneeze, Sponges Fill the Seas With Their Mucus**\
