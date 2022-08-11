@@ -1,40 +1,40 @@
+**The gunman is hiding in farmland after a chase with the police.**\
+`A man who witnessed the pursuit said the police “have him contained” near his family farm.`\
+https://nytimes.com/2022/08/11/us/cincinnati-fbi-gunman-cornfield.html?searchResultPosition=1
+
+**The Unfiltered Faces of Monkeypox**\
+`Men and women with monkeypox share their stories on social media, to fight stigma and demand more action.`\
+https://nytimes.com/2022/08/11/style/the-unfiltered-faces-of-monkeypox.html?searchResultPosition=2
+
+**Alex Jones and the Wellness-Conspiracy Industrial Complex**\
+`The Sandy Hook defamation trial showed how bogus health products have turned misinformation into big business. `\
+https://nytimes.com/2022/08/11/opinion/alex-jones-wellness-conspiracy.html?searchResultPosition=3
+
+**Boy, 14, Killed in New York City’s Second Teen Gun Death in Two Weeks**\
+`The 14-year-old boy was found in the lobby of an apartment complex in the Bronx, and the death is being investigated as potentially accidental, the police said.`\
+https://nytimes.com/2022/08/11/nyregion/teen-killed-shooting-fordham.html?searchResultPosition=4
+
 **Watch Live: Garland Delivers a Statement**\
 `Attorney General Merrick Garland’s statement comes three days after the F.B.I searched former President Donald J. Trump’s Mar-a-Lago residence in Florida.`\
-https://nytimes.com/video/us/politics/100000008484925/garland-trump-doj-statement.html?searchResultPosition=1
+https://nytimes.com/video/us/politics/100000008484925/garland-trump-doj-statement.html?searchResultPosition=5
 
 **Have You Seen This Lamp?**\
 `A sleek newcomer, the Pina Pro, is appearing on droves of outdoor tables in New York — and sometimes disappearing, as diners fall for its mellow glow.`\
-https://nytimes.com/2022/08/11/dining/table-lamp-nyc-restaurants.html?searchResultPosition=2
+https://nytimes.com/2022/08/11/dining/table-lamp-nyc-restaurants.html?searchResultPosition=6
 
 **A Renaissance in American Hardcore Music**\
 `A look at the recent burst of bands and how the scene operates as music, ethic and feeling.`\
-https://nytimes.com/2022/08/11/arts/music/popcast-hardcore-punk.html?searchResultPosition=3
+https://nytimes.com/2022/08/11/arts/music/popcast-hardcore-punk.html?searchResultPosition=7
 
 **Kamoya Kimeu, Fossil-Hunting ‘Legend’ in East Africa, Is Dead**\
 `Working closely with the Leakey family in Kenya, he discovered many of the bones that rewrote how we understand human evolution.`\
-https://nytimes.com/2022/08/11/science/kamoya-kimeu-dead.html?searchResultPosition=4
+https://nytimes.com/2022/08/11/science/kamoya-kimeu-dead.html?searchResultPosition=8
 
 **Don’t Blame Monkeys for Monkeypox, W.H.O. Says After Attacks**\
 `The outbreak is centered on humans, not animals, health officials said, after a report that some monkeys were harmed in São Paulo, Brazil, out of fear of transmission, according to local authorities.`\
-https://nytimes.com/2022/08/11/health/monkeypox-attacks-who.html?searchResultPosition=5
+https://nytimes.com/2022/08/11/health/monkeypox-attacks-who.html?searchResultPosition=9
 
 **All Hooting Aside: Did a Vocal Evolution Give Rise to Language?**\
 `The loss of certain muscles in the human larynx may helped give our species a voice, a new study suggests.`\
-https://nytimes.com/2022/08/11/science/language-humans-primates.html?searchResultPosition=6
-
-**Frank Miller Sues Widow of Comics Magazine Editor for the Return of Artworks**\
-`Two of Miller’s original drawings that were used in 1980s issues of David Anthony Kraft’s magazine Comics Interview were gifts, Kraft’s wife says. Miller says they were not.`\
-https://nytimes.com/2022/08/11/arts/frank-miller-sues-widow-dark-knight-returns-art.html?searchResultPosition=7
-
-**Italy Salutes a War Hero and the Values He Fought For**\
-`Mario Fiorentini, Italy’s most decorated resistance fighter, died at age 103 this week, and his mourners want his legacy to live on.`\
-https://nytimes.com/2022/08/11/world/europe/mario-fiorentini-italy-war-hero-dead.html?searchResultPosition=8
-
-**Progressives Push Democrats to Make Their Fight About Freedom, Too**\
-`Democrats at every level of the party are increasingly seeking to reclaim language about freedom and personal liberty from Republicans, as part of their midterms messaging.`\
-https://nytimes.com/2022/08/11/us/politics/midterms-democrats-freedom.html?searchResultPosition=9
-
-**Should Merrick Garland Reveal More About the Mar-a-Lago Search?**\
-`Readers discuss the Justice Department’s silence amid much speculation. Also: Democrats’ tactics; the robot therapist; family planning.`\
-https://nytimes.com/2022/08/11/opinion/letters/trump-garland-justice-department.html?searchResultPosition=10
+https://nytimes.com/2022/08/11/science/language-humans-primates.html?searchResultPosition=10
 
