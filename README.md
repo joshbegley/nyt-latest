@@ -1,4 +1,4 @@
-**How to Watch the Perseid Meteor Shower Peak in Night Skies**\
+**How to Watch the Perseid Meteor Shower Peak, if the Moon Isn’t in the Way**\
 `Fireballs may light up the sky for those willing to stay up late and take in the show.`\
 https://nytimes.com/2022/08/11/science/perseid-meteor-shower.html?searchResultPosition=1
 
