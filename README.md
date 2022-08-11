@@ -10,7 +10,7 @@ https://nytimes.com/2022/08/11/arts/music/popcast-hardcore-punk.html?searchResul
 `Working closely with the Leakey family in Kenya, he discovered many of the bones that rewrote how we understand human evolution.`\
 https://nytimes.com/2022/08/11/science/kamoya-kimeu-dead.html?searchResultPosition=3
 
-**Don’t Blame Monkeys for Monkeypox, W.HO. Says After Attacks**\
+**Don’t Blame Monkeys for Monkeypox, W.H.O. Says After Attacks**\
 `The outbreak is centered on humans, not animals, health officials said, after a report that some monkeys were harmed in São Paulo, Brazil, out of fear of transmission, according to local authorities.`\
 https://nytimes.com/2022/08/11/health/monkeypox-attacks-who.html?searchResultPosition=4
 
