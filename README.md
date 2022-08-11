@@ -20,7 +20,7 @@ https://nytimes.com/2022/08/11/world/africa/blinken-rwanda-congo.html?searchResu
 
 **Trump Hires ‘Billion Dollar Lawyer’**\
 `As top allies of Donald J. Trump are called to testify in Atlanta, he hires a high-profile local attorney best known for representing rappers.`\
-https://nytimes.com/2022/08/11/us/trump-hires-billion-dollar-lawyer.html?searchResultPosition=6
+https://nytimes.com/2022/08/11/us/trump-lawyer-georgia.html?searchResultPosition=6
 
 **What Are Burn Pits, and How Did They Harm U.S. Troops?**\
 `Veterans and their advocates describe continuously burning fires on overseas bases that consumed the military’s trash and produced toxic smoke.`\
