@@ -1,40 +1,40 @@
+**Wildfires Rip Through France, Again, Weeks After Last Heat Wave**\
+`In the southwest, a blaze that started in July has reignited because of the heat and the dry air, scorching an additional 26 square miles of bushes and forest.`\
+https://nytimes.com/2022/08/11/world/europe/france-wildfires-heat-wave.html?searchResultPosition=1
+
 **Arctic Warming Is Happening Faster Than Described, Analysis Shows**\
 `The warming at the top of the globe, a sign of climate change, is happening much faster than previously described compared with the global average, scientists said Thursday.`\
-https://nytimes.com/2022/08/11/climate/arctic-global-warming.html?searchResultPosition=1
+https://nytimes.com/2022/08/11/climate/arctic-global-warming.html?searchResultPosition=2
 
 **Blinken Urges Rwanda and Congo to End Support for Warring Militias**\
 `Antony J. Blinken, the U.S. secretary of state, said he had warned the leaders of both nations over violence in the east of the Democratic Republic of Congo.`\
-https://nytimes.com/2022/08/11/world/africa/blinken-rwanda-congo.html?searchResultPosition=2
+https://nytimes.com/2022/08/11/world/africa/blinken-rwanda-congo.html?searchResultPosition=3
 
 **Trump Hires ‘Billion Dollar Lawyer’**\
 `As top allies of Donald J. Trump are called to testify in Atlanta, he hires a high-profile local attorney best known for representing rappers.`\
-https://nytimes.com/2022/08/11/us/trump-hires-billion-dollar-lawyer.html?searchResultPosition=3
+https://nytimes.com/2022/08/11/us/trump-hires-billion-dollar-lawyer.html?searchResultPosition=4
 
 **What Are Burn Pits, and How Did They Harm U.S. Troops?**\
 `Veterans and their advocates describe fires that burned continuously, consuming the military’s trash on overseas bases and producing toxic smoke.`\
-https://nytimes.com/2022/08/11/us/politics/burn-pits-military-veterans.html?searchResultPosition=4
+https://nytimes.com/2022/08/11/us/politics/burn-pits-military-veterans.html?searchResultPosition=5
 
 **Seeing Double? So Do Great Artists.**\
 `At the National Gallery in Washington, D.C., a thrilling new show, “The Double,” proves the surprising power of duplication.`\
-https://nytimes.com/2022/08/11/arts/design/national-gallery-double.html?searchResultPosition=5
+https://nytimes.com/2022/08/11/arts/design/national-gallery-double.html?searchResultPosition=6
 
 **‘Bodies Bodies Bodies’ and the Difficulty of Coping IRL**\
 `What happens when Gen Z loses Wi-Fi? Using horror and humor, the cast and filmmakers of the new slasher film aim for a generational portrait.`\
-https://nytimes.com/2022/08/11/movies/bodies-bodies-bodies-movie.html?searchResultPosition=6
+https://nytimes.com/2022/08/11/movies/bodies-bodies-bodies-movie.html?searchResultPosition=7
 
 **A Glossy Rainbow Fireplace From Luca Guadagnino**\
 `The filmmaker’s pastel hearth, the latest release from his design studio, is another chapter in his longstanding fascination with interiors.`\
-https://nytimes.com/2022/08/11/t-magazine/luca-guadagnino-fireplace.html?searchResultPosition=7
+https://nytimes.com/2022/08/11/t-magazine/luca-guadagnino-fireplace.html?searchResultPosition=8
 
 **Wildfire Scorches Southwest France**\
 `A new heat wave and dry air reignited a wildfire that first started in July, burning dozens of miles of woodlands and forcing thousands of people to evacuate.`\
-https://nytimes.com/video/world/europe/100000008484362/france-wildfire-southwest.html?searchResultPosition=8
+https://nytimes.com/video/world/europe/100000008484362/france-wildfire-southwest.html?searchResultPosition=9
 
 **Cardinals Minor Leaguer Hits a Cycle of Home Runs**\
 `Chandler Redmond became just the second professional player to collect home runs of every variety in one game: solo, two-run, three-run and grand slam.`\
-https://nytimes.com/2022/08/11/sports/baseball/chandler-redmond-home-run-cycle.html?searchResultPosition=9
-
-**Coping with Europe’s Heat Waves**\
-`The Times’s Travel editor offers advice about vacationing amid high temperatures.`\
-https://nytimes.com/interactive/2022/08/11/travel/europe-heat-waves.html?searchResultPosition=10
+https://nytimes.com/2022/08/11/sports/baseball/chandler-redmond-home-run-cycle.html?searchResultPosition=10
 
