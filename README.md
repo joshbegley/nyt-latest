@@ -27,7 +27,7 @@ https://nytimes.com/2022/08/11/technology/driverless-cars.html?searchResultPosit
 https://nytimes.com/2022/08/11/dining/the-season-for-grated-tomatoes.html?searchResultPosition=7
 
 **Subpoena Preceded Search Warrant in Push to Retrieve Material From Trump**\
-`The Justice Department had sought the return of classified documents it believed might still be at Mar-a-Lago before it sent F.B.I. agents this week to look for them.`\
+`The Justice Department had sought the return of classified documents it believed might be at Mar-a-Lago before it sent F.B.I. agents this week to look for them.`\
 https://nytimes.com/2022/08/11/us/politics/trump-fbi-subpoena.html?searchResultPosition=8
 
 **Sylvan Esso’s New Album of Electro-pop Challenges All Expectations**\
