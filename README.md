@@ -1,6 +1,6 @@
 **Erdogan and Putin: Complicated Relations With Mutual Benefits**\
 `Turkey needs Russian cash, gas and business as Erdogan looks to a dicey election and a new incursion in Syria, while Moscow needs friends to try to evade Western sanctions.`\
-https://nytimes.com/2022/08/11/world/europe/erdogan-putin-turkey-ruusia-ukraine.html?searchResultPosition=1
+https://nytimes.com/2022/08/11/world/europe/erdogan-putin-turkey-russia-ukraine.html?searchResultPosition=1
 
 **The Independent Bookstore, as Imagined by a Corporate Lobbyist**\
 `Bradley Tusk, a Bloomberg and Uber fixer who has opened a new bookstore in downtown Manhattan, thinks running that kind of business can be seen as philanthropy.`\
