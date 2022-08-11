@@ -1,14 +1,14 @@
+**‘Inu-oh’ Review: Dazzling Anime Meets Medieval Epic**\
+`This modern riff on “The Tale of the Heike,” from 14th-century Japan, takes some confusing turns. But the animation is undeniably wonderful.`\
+https://nytimes.com/2022/08/11/movies/inu-oh-review.html?searchResultPosition=1
+
 **For Palestinian Prisoners, Hunger Strikes Are a Battle of Stomachs**\
 `For decades, Palestinians imprisoned by Israel have used these protests as a way to demand better living conditions and an end to indefinite detentions.`\
-https://nytimes.com/2022/08/11/world/middleeast/palestinian-prisoners-hunger-strikes-israel.html?searchResultPosition=1
+https://nytimes.com/2022/08/11/world/middleeast/palestinian-prisoners-hunger-strikes-israel.html?searchResultPosition=2
 
 **Driverless Cars Shouldn’t Be a Race**\
 `Sometimes it’s better to be safe than first.`\
-https://nytimes.com/2022/08/11/technology/driverless-cars.html?searchResultPosition=2
-
-**Armed Man Tried to Breach F.B.I.’s Cincinnati Office**\
-`The man, who officials said was wearing body armor, fled to Clinton County, Ohio, where he exchanged gunfire with law enforcement officers, the authorities said.`\
-https://nytimes.com/2022/08/11/us/fbi-cincinnati-armed-person.html?searchResultPosition=3
+https://nytimes.com/2022/08/11/technology/driverless-cars.html?searchResultPosition=3
 
 **The Season for Grated Tomatoes**\
 `Plus a bonus recipe for sizzled eggplant.`\
