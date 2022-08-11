@@ -1,6 +1,6 @@
 **Watch Live: Authorities Address Breach Attempt at F.B.I. Office**\
 `An armed man tried to break into the F.B.I.’s Cincinnati office and was wearing body armor, authorities said.`\
-https://nytimes.com/video/us/politics/100000008485535/fbi-breach-cincinnati-live-video.html?searchResultPosition=1
+https://nytimes.com/video/embedded/us/politics/100000008485535/fbi-breach-cincinnati-live-video.html?searchResultPosition=1
 
 **Your Thursday Evening Briefing**\
 `Here’s what you need to know at the end of the day.`\
