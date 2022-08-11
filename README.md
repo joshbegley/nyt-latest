@@ -1,40 +1,40 @@
-**The Decisive Vote**\
-`Now that Joe Manchin has saved the Democratic agenda, how should liberals think about him?`\
-https://nytimes.com/2022/08/11/briefing/joe-manchin-liberals-democratic-climate-bill.html?searchResultPosition=1
+**The Padres Got a Sword. But Can They Slay the ‘Dragon’?**\
+`Juan Soto headlined San Diego’s audacious haul at the trading deadline. Keeping up with the Los Angeles Dodgers, in spending and on the field, won’t be easy.`\
+https://nytimes.com/2022/08/11/sports/baseball/juan-soto-padres.html?searchResultPosition=1
 
-**Pregnant at 16**\
-`How the experiences of two women led them to opposite sides of the abortion fight.`\
-https://nytimes.com/2022/08/11/podcasts/the-daily/roe-v-wade-abortion-louisiana.html?searchResultPosition=2
+**‘Free Chol Soo Lee’ Review: An Indictment of the Justice System**\
+`Activists helped free a Korean immigrant, and this documentary explores the wrongful conviction and its ripple effect.`\
+https://nytimes.com/2022/08/11/movies/free-chol-soo-lee-review.html?searchResultPosition=2
 
-**As China Vows More Military Exercises, Taiwan Is Undeterred**\
-`China’s drills have hardened Taiwan’s understated approach to navigating a big-power rivalry over its political future.`\
-https://nytimes.com/2022/08/11/world/asia/china-taiwan-drills-economy-military.html?searchResultPosition=3
+**‘Stay on Board: The Leo Baker Story’ Review: Surviving the Grind**\
+`In this documentary, a professional skateboarder turns down the Olympics for the chance to live openly.`\
+https://nytimes.com/2022/08/11/movies/stay-on-board-the-leo-baker-story-review.html?searchResultPosition=3
 
-**How New Zealand’s Climate Fight Is Threatening Its Iconic Farmland**\
-`As the country puts a growing price on greenhouse emissions, investors are rushing to buy up pastures and plant carbon-sucking trees.`\
-https://nytimes.com/2022/08/11/business/new-zealand-carbon-farming.html?searchResultPosition=4
+**‘Emergency Declaration’ Review: Midair Contagion**\
+`The “Parasite” star Song Kang-ho plays a detective working to thwart a plan to unleash a deadly virus on unsuspecting plane passengers.`\
+https://nytimes.com/2022/08/11/movies/emergency-declaration-review.html?searchResultPosition=4
 
-**Marriage, With a Side of Pickleball**\
-`As pickleball rides a wave of popularity, couples are marrying on courts, hosting games at their receptions and finding other ways to incorporate the sport into their nuptials.`\
-https://nytimes.com/2022/08/11/style/pickleball-weddings.html?searchResultPosition=5
+**‘The Princess’ Review: An Unsparing Look at Princess Diana**\
+`The director Ed Perkins uses only found footage to create a harrowing account of Diana’s life and death.`\
+https://nytimes.com/2022/08/11/movies/the-princess-review-diana.html?searchResultPosition=5
 
-**In the Mile High City, Festivals and Food Are on the Rise**\
-`Denver has regained its prepandemic vibrancy, with a plethora of new restaurants and hotels, and the return of some old favorites.`\
-https://nytimes.com/2022/08/11/travel/what-to-see-eat-and-do-in-denver.html?searchResultPosition=6
+**‘Free Puppies!’ Review: A Fight to Save a Dog’s Life**\
+`This documentary focuses on volunteer animal rescue groups in the rural United States.`\
+https://nytimes.com/2022/08/11/movies/free-puppies-review.html?searchResultPosition=6
 
-**Rishi Sunak Has a Sterling Résumé. It’s Not Helping Him Replace Boris Johnson.**\
-`Mr. Sunak is viewed by many in his party as too distant from ordinary Britons, and is being blamed by some for setting off the rebellion that toppled Prime Minister Boris Johnson.`\
-https://nytimes.com/2022/08/11/world/europe/rishi-sunak-britain-prime-minister.html?searchResultPosition=7
+**‘Laal Singh Chaddha’ Review: Forrest Gump in India**\
+`This Indian adaptation of “Forrest Gump” doubles down on its Pollyanna hero, substituting different historical touchstones.`\
+https://nytimes.com/2022/08/11/movies/laal-singh-chaddha-review.html?searchResultPosition=7
 
-**Silver-Haired and Shameless About Perks: Retirees Take Part-time Work in the Travel Industry**\
-`Spend 15 hours a week loading baggage at the airport or passing out towels at the pool, and you can see Europe for a fraction of the usual cost.`\
-https://nytimes.com/2022/08/11/travel/retirees-part-time-travel.html?searchResultPosition=8
+**‘Girl Picture’ Review: Teens on Thin Ice**\
+`This Finnish comedy about three high school girls grants them a judgment-free sanctuary.`\
+https://nytimes.com/2022/08/11/movies/girl-picture-review.html?searchResultPosition=8
 
-**The Tricky Math of Retiring Into a Downturn**\
-`Market declines during the first five years of retirement can have a significant effect on a financial portfolio, but remaining flexible can mitigate the damage.`\
-https://nytimes.com/2022/08/11/your-money/retiring-recession-financial-math.html?searchResultPosition=9
+**‘We Are Living Things’ Review: The Truth Is Out There**\
+`Two undocumented immigrants from opposite sides of the world connect in Brooklyn — and over their shared trauma relating to apparent alien abductions.`\
+https://nytimes.com/2022/08/11/movies/we-are-living-things-review.html?searchResultPosition=9
 
-**The Art of Disappearance**\
-`Some might hear the music of Connie Converse, who drove off without a trace in 1974, as a haunting record of depression. But what about the liberation?`\
-https://nytimes.com/2022/08/11/magazine/connie-converse-disappearance.html?searchResultPosition=10
+**‘Mack & Rita’ Review: 70 Is the New 30**\
+`An influencer emerges from a tanning bed 40 years older in this playful movie starring Diane Keaton.`\
+https://nytimes.com/2022/08/11/movies/mack-and-rita-review.html?searchResultPosition=10
 
