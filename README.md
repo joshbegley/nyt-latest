@@ -1,4 +1,4 @@
-**Shannon Bream to Replace Chris Wallace as Host of ‘Fox News Sunday’**\
+**Shannon Bream to Replace Chris Wallace as ‘Fox News Sunday’ Host**\
 `She will be the first woman to hold the role in the program’s 26-year history.`\
 https://nytimes.com/2022/08/11/business/media/fox-shannon-bream-chris-wallace.html?searchResultPosition=1
 
