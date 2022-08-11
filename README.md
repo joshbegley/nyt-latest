@@ -6,7 +6,7 @@ https://nytimes.com/2022/08/11/us/politics/russian-casualties-ukraine.html?searc
 `She will be the first woman to hold the role in the program’s 26-year history.`\
 https://nytimes.com/2022/08/11/business/media/fox-shannon-bream-chris-wallace.html?searchResultPosition=2
 
-**Rivian Reports a $1.7 Billion Quarterly Loss as Supply Chain Problems Persist**\
+**Rivian Reports $1.7 Billion Quarterly Loss as Supply Chain Problems Persist**\
 `The maker of electric pickup trucks, vans and sport-utility vehicles increased its production forecast for the year, but only slightly.`\
 https://nytimes.com/2022/08/11/business/rivian-q2-earnings.html?searchResultPosition=3
 
