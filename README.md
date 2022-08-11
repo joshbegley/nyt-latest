@@ -1,40 +1,40 @@
+**A Bigger Canvas for Jayson Musson Includes Puppets and Picasso**\
+`He’s back to making videos that poke fun at the ways of the art world, but a sprawling new show allows viewers to see how he puts it all together.`\
+https://nytimes.com/2022/08/11/arts/design/jayson-musson-fabric-workshop.html?searchResultPosition=1
+
+**Some Firefly Species Await a Night That Never Comes**\
+`A study found that while some fireflies shrugged off light pollution, members of other species failed to mate even when males and females could find each other.`\
+https://nytimes.com/2022/08/11/science/firefly-light-mating.html?searchResultPosition=2
+
+**Josh Hawley’s Manhood, Mike Pompeo’s Midriff and Other 2024 Teases**\
+`If Trump is inevitable, nobody told these Republican strivers.`\
+https://nytimes.com/2022/08/11/opinion/trump-2024-desantis-hawley.html?searchResultPosition=3
+
 **World Cup Worries Mount With 100 Days (Give or Take) to Go**\
 `A last-minute request to change the tournament’s start date is only the latest bit of uncertainty surrounding soccer’s showcase event.`\
-https://nytimes.com/2022/08/11/sports/soccer/fifa-world-cup-qatar.html?searchResultPosition=1
+https://nytimes.com/2022/08/11/sports/soccer/fifa-world-cup-qatar.html?searchResultPosition=4
 
 **Blinken Presses Rwanda and Congo to Stop Backing Militia Groups**\
 `Secretary of State Antony J. Blinken said he had warned the leaders of Rwanda and the Democratic Republic of Congo that their support for militias in eastern Congo endangered the region’s stability.`\
-https://nytimes.com/video/world/africa/100000008484417/blinken-rwanda-congo-militias.html?searchResultPosition=2
+https://nytimes.com/video/world/africa/100000008484417/blinken-rwanda-congo-militias.html?searchResultPosition=5
 
 **How do we create green buildings today and for tomorrow?**\
 `Today, the construction industry accounts for a large amount of global energy-related CO2 emissions. In this episode, Benoit Bazin, C.E.O. of Saint-Gobain, and Janet Greenwood, a director in KPMG’s major projects advisory team, discuss their vision for green buildings, today and in the future.`\
-https://nytimes.com/paidpost/bp/energy-trilemma/how-do-we-create-green-buildings-today-and-for-tomorrow.html?searchResultPosition=3
+https://nytimes.com/paidpost/bp/energy-trilemma/how-do-we-create-green-buildings-today-and-for-tomorrow.html?searchResultPosition=6
 
 **Wildfires Rip Through France, Again, Weeks After Last Heat Wave**\
 `In the southwest, a blaze that started in July has reignited because of the heat and the dry air, scorching an additional 26 square miles of bushes and forest.`\
-https://nytimes.com/2022/08/11/world/europe/france-wildfires-heat-wave.html?searchResultPosition=4
+https://nytimes.com/2022/08/11/world/europe/france-wildfires-heat-wave.html?searchResultPosition=7
 
 **Arctic Warming Is Happening Faster Than Described, Analysis Shows**\
 `The warming at the top of the globe, a sign of climate change, is happening much faster than previously described compared with the global average, scientists said Thursday.`\
-https://nytimes.com/2022/08/11/climate/arctic-global-warming.html?searchResultPosition=5
+https://nytimes.com/2022/08/11/climate/arctic-global-warming.html?searchResultPosition=8
 
 **Blinken Urges Rwanda and Congo to End Support for Warring Militias**\
 `Antony J. Blinken, the U.S. secretary of state, said he had warned the leaders of both nations over violence in the east of the Democratic Republic of Congo.`\
-https://nytimes.com/2022/08/11/world/africa/blinken-rwanda-congo.html?searchResultPosition=6
+https://nytimes.com/2022/08/11/world/africa/blinken-rwanda-congo.html?searchResultPosition=9
 
 **Trump Hires ‘Billion Dollar Lawyer’**\
 `As top allies of Donald J. Trump are called to testify in Atlanta, he hires a high-profile local attorney best known for representing rappers.`\
-https://nytimes.com/2022/08/11/us/trump-lawyer-georgia.html?searchResultPosition=7
-
-**What Are Burn Pits, and How Did They Harm U.S. Troops?**\
-`Veterans and their advocates describe continuously burning fires on overseas bases that consumed the military’s trash and produced toxic smoke.`\
-https://nytimes.com/2022/08/11/us/politics/burn-pits-military-veterans.html?searchResultPosition=8
-
-**Seeing Double? So Do Great Artists.**\
-`At the National Gallery in Washington, D.C., a thrilling new show, “The Double,” proves the surprising power of duplication.`\
-https://nytimes.com/2022/08/11/arts/design/national-gallery-double.html?searchResultPosition=9
-
-**‘Bodies Bodies Bodies’ and the Difficulty of Coping IRL**\
-`What happens when Gen Z loses Wi-Fi? Using horror and humor, the cast and filmmakers of the new slasher film aim for a generational portrait.`\
-https://nytimes.com/2022/08/11/movies/bodies-bodies-bodies-movie.html?searchResultPosition=10
+https://nytimes.com/2022/08/11/us/trump-lawyer-georgia.html?searchResultPosition=10
 
