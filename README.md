@@ -19,7 +19,7 @@ https://nytimes.com/2022/08/11/world/africa/blinken-rwanda-congo.html?searchResu
 https://nytimes.com/2022/08/11/us/trump-hires-billion-dollar-lawyer.html?searchResultPosition=5
 
 **What Are Burn Pits, and How Did They Harm U.S. Troops?**\
-`Veterans and their advocates describe fires that burned continuously, consuming the military’s trash on overseas bases and producing toxic smoke.`\
+`Veterans and their advocates describe continuously burning fires on overseas bases that consumed the military’s trash and produced toxic smoke.`\
 https://nytimes.com/2022/08/11/us/politics/burn-pits-military-veterans.html?searchResultPosition=6
 
 **Seeing Double? So Do Great Artists.**\
