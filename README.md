@@ -1,6 +1,6 @@
 **Man suspected of trying to breach the F.B.I.’s Cincinnati office may have Jan. 6 ties.**\
 `Investigators are looking into whether the man who tried to breach the F.B.I.’s field office in Cincinnati on Thursday had ties to extremist groups, including one that participated in the Jan. 6 attack.`\
-https://nytimes.com/2022/08/11/us/fbi-breach-suspect-jan-6.html?searchResultPosition=1
+https://nytimes.com/2022/08/11/us/fbi-cincinnati-ricky-schiffer-jan-6.html?searchResultPosition=1
 
 **Heavy Losses Leave Russia Short of Its Goal, U.S. Officials Say**\
 `The estimated deaths and injuries are stalling Russia’s progress in eastern Ukraine, military experts say, as fighting intensifies in the south.`\
