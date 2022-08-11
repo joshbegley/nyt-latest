@@ -26,7 +26,7 @@ https://nytimes.com/2022/08/11/books/review/11-new-books-we-recommend-this-week.
 `Test your knowledge of this week’s health news.`\
 https://nytimes.com/interactive/2022/08/11/well/live/11HealthQuiz-08112022.html?searchResultPosition=7
 
-**Read the full transcript of Merrick Garland’s comments on the F.B.I. search of Trump’s home.**\
+**Read the full transcript of Merrick Garland’s comments on the F.B.I.’s search of Trump’s home.**\
 `Here is what the attorney general said on Thursday about the process that led up to the action at Mar-a-Lago.`\
 https://nytimes.com/2022/08/11/us/politics/garland-fbi-trump-transcript.html?searchResultPosition=8
 
