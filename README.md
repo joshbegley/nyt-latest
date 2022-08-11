@@ -6,7 +6,7 @@ https://nytimes.com/2022/08/11/world/middleeast/palestinian-prisoners-hunger-str
 `Sometimes it’s better to be safe than first.`\
 https://nytimes.com/2022/08/11/technology/driverless-cars.html?searchResultPosition=2
 
-**Armed Man Tried to Breach F.B.I. Building in Cincinnati**\
+**Armed Man Tried to Breach F.B.I.’s Cincinnati Office**\
 `The man, who officials said was wearing body armor, fled to Clinton County, Ohio, where he exchanged gunfire with law enforcement officers, the authorities said.`\
 https://nytimes.com/2022/08/11/us/fbi-cincinnati-armed-person.html?searchResultPosition=3
 
