@@ -22,8 +22,8 @@ https://nytimes.com/2022/08/11/science/perseid-meteor-shower.html?searchResultPo
 `This is a war fought in a cycle of opposites: bursts of chaos from outgoing and incoming shelling, and then long lulls in which soldiers undertake the most routine activities.`\
 https://nytimes.com/2022/08/11/world/europe/urkraine-war-frontline.html?searchResultPosition=6
 
-**C.D.C. Eases Covid Guidelines, Eliminating Quarantines**\
-`The new guidelines are intended to help prevent severe disease, the agency said.`\
+**C.D.C. Eases Covid Guidelines, Noting Virus is ‘Here To Stay’**\
+`The new recommendations are intended to help prevent severe disease, the agency said.`\
 https://nytimes.com/2022/08/11/health/virus-cdc-guidelines.html?searchResultPosition=7
 
 **11 New Books We Recommend This Week**\
