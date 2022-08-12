@@ -22,7 +22,7 @@ https://nytimes.com/2022/08/12/style/bama-rush.html?searchResultPosition=5
 `The Aug. 12, 2022 episode of “The Ezra Klein Show”`\
 https://nytimes.com/2022/08/12/podcasts/transcript-ezra-klein-interviews-mohsin-hamid.html?searchResultPosition=6
 
-**A huge side benefit of the new climate law**\
+**A huge side benefit of the new climate bill**\
 `Air pollution sickens and kills millions every year. Here’s how the new measure will help tackle the problem.`\
 https://nytimes.com/2022/08/12/climate/climate-air-pollution-health.html?searchResultPosition=7
 
