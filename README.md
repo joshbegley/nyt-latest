@@ -1,4 +1,4 @@
-**A Hot, Dry Britain Declares a Drought**\
+**Drought Is Declared in Parts of a Hot, Dry Britain**\
 `The announcement by the government will allow water companies to tighten conservation measures. Temperatures on Friday were forecast to climb as high as 95 Fahrenheit.`\
 https://nytimes.com/2022/08/12/world/europe/uk-heat-wave-drought.html?searchResultPosition=1
 
