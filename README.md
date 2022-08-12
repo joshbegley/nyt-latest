@@ -30,7 +30,7 @@ https://nytimes.com/2022/08/12/arts/television/dolly-alderton-everything-i-know-
 `Five articles from around The Times, narrated just for you.`\
 https://nytimes.com/2022/08/12/podcasts/serena-williams-ai-brittney-griner-narrated-articles.html?searchResultPosition=8
 
-**Anne Heche Is ‘Not Expected to Survive’ After Crash, Representative Says**\
+**Anne Heche ‘Is Not Expected to Survive’ After Crash, Representative Says**\
 `The actress, 53, has been in a coma since shortly after the car she was in crashed into a Los Angeles home last week, her publicist said in a statement.`\
 https://nytimes.com/2022/08/12/us/anne-heche-brain-injury.html?searchResultPosition=9
 
