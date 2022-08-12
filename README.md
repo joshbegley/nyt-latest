@@ -6,7 +6,7 @@ https://nytimes.com/2022/08/12/arts/music/lucerne-festival-diversity.html?search
 `Salman Rushdie was stabbed while onstage in Chautauqua, N.Y., the state police said. The author has faced death threats for his 1988 novel “The Satanic Verses.”`\
 https://nytimes.com/video/us/100000008486804/salman-rushdie-stabbing-ny.html?searchResultPosition=2
 
-**Protests in Sierra Leone Over Rising Cost of Living Turn Deadly**\
+**Protests Turn Deadly in Sierra Leone Over Rising Cost of Living**\
 `Clashes between protesters and security forces over rising fuel and food prices have left two dozen people dead, and the government has imposed a nationwide curfew.`\
 https://nytimes.com/2022/08/12/world/africa/sierra-leone-protests.html?searchResultPosition=3
 
