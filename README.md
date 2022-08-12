@@ -1,4 +1,4 @@
-**Biden’s Legislative Victories Will Ripple Across the Country for Decades**\
+**A Victory of Biden, and a Bet on America’s Future**\
 `Congress gave final approval to the Inflation Reduction Act, which will lower the cost of prescription drugs, extend health care subsidies and invest billions into climate and energy programs.`\
 https://nytimes.com/2022/08/12/us/politics/biden-house-bill.html?searchResultPosition=1
 
