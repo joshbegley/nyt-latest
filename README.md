@@ -1,4 +1,4 @@
-**Stocks are set for their best stretch of the year, as inflation fears recede.**\
+**Stocks Set for Best Stretch of Year, as Inflation Fears Recede**\
 `Positive economic signs have put the S&P 500 on track for a fourth consecutive week of gains, but some investors worry about how long the rally can last.`\
 https://nytimes.com/2022/08/12/business/stock-market-rise.html?searchResultPosition=1
 
