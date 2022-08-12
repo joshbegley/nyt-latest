@@ -35,6 +35,6 @@ https://nytimes.com/2022/08/12/world/europe/montenegro-cetinje-shooting.html?sea
 https://nytimes.com/video/world/africa/100000008487169/sierra-leone-freetown-protests.html?searchResultPosition=9
 
 **‘Snip Snip Hooray’: Vasectomies Among the Young and Child-Free May Be Rising**\
-`Once the purview of middle-aged dads, this form of contraception is rising in popularity, according to doctors — and a few outspoken men on TikTok.`\
+`Once the purview of middle-aged dads, this form of contraception is growing in popularity, according to doctors — and a few outspoken men on TikTok.`\
 https://nytimes.com/2022/08/12/well/vasectomy-contraception-abortion.html?searchResultPosition=10
 
