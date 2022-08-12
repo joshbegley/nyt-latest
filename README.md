@@ -10,7 +10,7 @@ https://nytimes.com/2022/08/12/realestate/more-home-deals-are-falling-through.ht
 `The announcement by the government will allow water companies to tighten conservation measures. By midday on Friday, temperatures in southern England had already passed 90 Fahrenheit.`\
 https://nytimes.com/2022/08/12/world/europe/uk-heat-wave-drought.html?searchResultPosition=3
 
-**Britain’s Economy Shrank in Second Quarter, as Warnings Get Bleaker**\
+**Britain’s Economy Shrank in Second Quarter, as Outlook Gets Bleaker**\
 `The slight contraction, 0.1 percent, comes as Britons face high and rising inflation, squeezing household budgets.`\
 https://nytimes.com/2022/08/12/business/uk-economy.html?searchResultPosition=4
 
