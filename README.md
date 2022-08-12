@@ -1,18 +1,18 @@
+**Protests in Sierra Leone Over Rising Cost of Living Turn Deadly**\
+`Clashes between protesters and security forces over rising fuel and food prices have left two dozen people dead, and the government has imposed a nationwide curfew.`\
+https://nytimes.com/2022/08/12/world/africa/sierra-leone-protests.html?searchResultPosition=1
+
 **Getty to Return Three Major Sculptures to Italy**\
 `“Orpheus and the Sirens” will be sent back in September, with other ancient artworks to follow.`\
-https://nytimes.com/2022/08/12/arts/design/getty-return-three-major-sculptures-italy.html?searchResultPosition=1
+https://nytimes.com/2022/08/12/arts/design/getty-return-three-major-sculptures-italy.html?searchResultPosition=2
 
 **Wonking Out: Is 2022 Like 1980?**\
 `This time it’s different ... I think.`\
-https://nytimes.com/2022/08/12/opinion/inflation-1980s-recession-biden.html?searchResultPosition=2
+https://nytimes.com/2022/08/12/opinion/inflation-1980s-recession-biden.html?searchResultPosition=3
 
 **Love Letter: Living in My University’s Library**\
 `Sky-high Manhattan rent, scant financial aid, a summer job and an unexpected romance.`\
-https://nytimes.com/2022/08/12/style/love-letter-newsletter-living-in-my-universitys-library.html?searchResultPosition=3
-
-**Protests in Sierra Leone Over Rising Cost of Living Turn Deadly**\
-`Clashes between protesters and security forces over rising fuel and food prices have left two dozen people dead, and the government has imposed a nationwide curfew.`\
-https://nytimes.com/2022/08/12/world/africa/sierra-leone-protests.html?searchResultPosition=4
+https://nytimes.com/2022/08/12/style/love-letter-newsletter-living-in-my-universitys-library.html?searchResultPosition=4
 
 **Review: Kyle Abraham’s Out There ‘Requiem,’ With Nods to Mozart**\
 `With a score by the innovative electronic musician Jlin, Abraham’s dance has beautiful skeins of motion but lacks cohesive structure.`\
