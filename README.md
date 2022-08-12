@@ -7,7 +7,7 @@ https://nytimes.com/interactive/2022/08/12/books/review/paperback-row.html?searc
 https://nytimes.com/2022/08/12/us/politics/us-withdrawal-afghanistan.html?searchResultPosition=2
 
 **Trader Joe’s Workers Vote to Unionize at a Second Store**\
-`The vote, at a store in Minneapolis, suggests the campaign at the grocery chain may be poised to expand.`\
+`The vote, at a location in Minneapolis, suggests the campaign at the grocery chain may be poised to expand.`\
 https://nytimes.com/2022/08/12/business/economy/union-vote-trader-joes.html?searchResultPosition=3
 
 **What the New C.D.C. Guidelines Mean for You**\
