@@ -2,7 +2,7 @@
 `The default should be forbearance for those who’ve breached woke etiquette.`\
 https://nytimes.com/2022/08/12/opinion/woke-cancellations.html?searchResultPosition=1
 
-**Fernando Tatis Jr. Suspended 80 Games for Violating Drug Policy**\
+**Fernando Tatis Jr. Suspended for 80 Games for Violating Drug Policy**\
 `Tatis, a 23-year-old superstar, was on the verge of returning from off-season wrist surgery. He tested positive for Clostebol, a performance-enhancing drug.`\
 https://nytimes.com/2022/08/12/sports/baseball/fernando-tatis-padres-suspended.html?searchResultPosition=2
 
