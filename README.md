@@ -1,5 +1,5 @@
-**Bill Pitman, Versatile Studio Guitarist, Is Dead at 102**\
-`As a member of the loose association of musicians known as the Wrecking Crew, he was heard on numerous pop and rock hits in the 1960s and ’70s.`\
+**Bill Pitman, Revered Studio Guitarist, Is Dead at 102**\
+`As a versatile member of the loose association of musicians known as the Wrecking Crew, he was heard on many of the biggest pop and rock hits of the 1960s and ’70s.`\
 https://nytimes.com/2022/08/12/arts/music/bill-pitman-dead.html?searchResultPosition=1
 
 **Fetterman Prepares Return to Senate Campaign Trail in Pennsylvania**\
