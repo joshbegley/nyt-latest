@@ -35,6 +35,6 @@ https://nytimes.com/2022/08/11/us/politics/secret-service-texts-jan-6.html?searc
 https://nytimes.com/2022/08/11/us/politics/trump-fbi.html?searchResultPosition=9
 
 **Here are the main takeaways from Garland’s statement on the Mar-a-Lago search.**\
-`The fact that Attorney General Merrick B. Garland felt compelled to speak at all says much about an investigation he has described as the most consequential in history.`\
+`The fact that Attorney General Merrick B. Garland felt compelled to speak at all says much about the high stakes and the possible pitfalls of the investigation.`\
 https://nytimes.com/2022/08/11/us/garland-statement-takeaways.html?searchResultPosition=10
 
