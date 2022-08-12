@@ -1,6 +1,6 @@
 **Russia’s economy contracts sharply as war and sanctions take hold.**\
 `The country’s gross domestic product from April through June declined 4 percent over last year, new government data shows.`\
-https://nytimes.com/2022/08/12/business/russia-gdp-q2.html?searchResultPosition=1
+https://nytimes.com/2022/08/12/business/russia-economy-gdp.html?searchResultPosition=1
 
 **The Best Summer Dinner Is Assembled, Not Cooked**\
 `Adding quickly grilled shrimp to a classic pairing of melon and feta turns a light weeknight meal into a hearty, yet refreshing main.`\
