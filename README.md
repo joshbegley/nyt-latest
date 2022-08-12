@@ -23,7 +23,7 @@ https://nytimes.com/interactive/2022/08/12/us/politics/trump-search-warrant-docu
 https://nytimes.com/2022/08/12/briefing/trump-documents-salman-rushdie.html?searchResultPosition=6
 
 **As Historic Climate Bill Heads to Biden’s Desk, Young Activists Demand More**\
-`The bill will cut U.S. emissions but not nearly enough — it’s “like losing 20 pounds when you need to lose 100 pounds” one expert said.`\
+`The bill will cut U.S. emissions, but not nearly enough. It’s “like losing 20 pounds when you need to lose 100 pounds” one expert said.`\
 https://nytimes.com/2022/08/12/climate/biden-climate-bill-young-activists.html?searchResultPosition=7
 
 **Here to Stay**\
