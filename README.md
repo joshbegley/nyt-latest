@@ -1,5 +1,5 @@
-**A Hot, Dry Britain Is Set to Declare a Drought**\
-`The expected announcement by the government would allow water companies to tighten conservation measures. Temperatures on Friday were forecast to climb as high as 95 Fahrenheit.`\
+**A Hot, Dry Britain Declares a Drought**\
+`The announcement by the government will allow water companies to tighten conservation measures. Temperatures on Friday were forecast to climb as high as 95 Fahrenheit.`\
 https://nytimes.com/2022/08/12/world/europe/uk-heat-wave-drought.html?searchResultPosition=1
 
 **Britain’s Economy Shrank in Second Quarter, as Warnings About the Future Get Bleaker**\
