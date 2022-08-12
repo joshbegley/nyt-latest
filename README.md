@@ -1,40 +1,40 @@
+**More Black Former N.F.L. Players Eligible for Concussion Payouts**\
+`Tests for dementia were rescored under the N.F.L.’s concussion settlement to avoid race-based criteria.`\
+https://nytimes.com/2022/08/12/sports/football/nfl-concussion-settlement-race.html?searchResultPosition=1
+
+**What to Prepare in Case of a Wildfire**\
+`When wildfires happen, these are the items you'll need.`\
+https://nytimes.com/interactive/2022/08/12/smarter-living/wirecutter/wildfire-preparation.html?searchResultPosition=2
+
+**On Truth Social, F.B.I. Search Prompts Talk of War, Then Conspiracy**\
+`Calls for violence surged after the search of Mar-a-Lago earlier this week, but other posters saw them as evidence of a federal plot to smear the right and confiscate guns.`\
+https://nytimes.com/2022/08/12/technology/truth-social-conspiracy-fbi-trump.html?searchResultPosition=3
+
 **Roaring Through Paris With ‘Kiki Man Ray’**\
 `Mark Braude talks about his new biography of the singer, model, writer and muse.`\
-https://nytimes.com/2022/08/12/books/review/podcast-kiki-man-ray-biography-mark-braude.html?searchResultPosition=1
+https://nytimes.com/2022/08/12/books/review/podcast-kiki-man-ray-biography-mark-braude.html?searchResultPosition=4
 
 **Peloton Will Slash Jobs and Raise Prices in Turnaround Effort**\
 `The maker of fitness bikes, once a pandemic darling, said it would reduce its retail footprint and end its last-mile delivery network in a cost-cutting strategy.`\
-https://nytimes.com/2022/08/12/business/peloton-job-cuts-higher-prices.html?searchResultPosition=2
+https://nytimes.com/2022/08/12/business/peloton-job-cuts-higher-prices.html?searchResultPosition=5
 
 **My Promotion, Her Problem**\
 `How to navigate your own path without apologizing for the room you deserve to take up in the world.`\
-https://nytimes.com/2022/08/12/business/roxane-gay-work-advice.html?searchResultPosition=3
+https://nytimes.com/2022/08/12/business/roxane-gay-work-advice.html?searchResultPosition=6
 
 **Trump claims he declassified all the documents at Mar-a-Lago. Even if that’s true, it probably doesn’t matter.**\
 `None of the three criminal laws cited in the search warrant turn on whether documents have been deemed to be classified.`\
-https://nytimes.com/2022/08/12/us/politics/declassified-documents-trump.html?searchResultPosition=4
+https://nytimes.com/2022/08/12/us/politics/declassified-documents-trump.html?searchResultPosition=7
 
 **A European Music Festival’s Push for Diversity Stirs Debate**\
 `The Lucerne Festival in Switzerland is trying to shine a light on race and gender disparities. But some are skeptical of its efforts.`\
-https://nytimes.com/2022/08/12/arts/music/lucerne-festival-diversity.html?searchResultPosition=5
+https://nytimes.com/2022/08/12/arts/music/lucerne-festival-diversity.html?searchResultPosition=8
 
 **Salman Rushdie Is Attacked in Western New York**\
 `Salman Rushdie was stabbed while onstage in Chautauqua, N.Y., the state police said. The author has faced death threats for his 1988 novel “The Satanic Verses.”`\
-https://nytimes.com/video/us/100000008486804/salman-rushdie-stabbing-ny.html?searchResultPosition=6
+https://nytimes.com/video/us/100000008486804/salman-rushdie-stabbing-ny.html?searchResultPosition=9
 
 **Protests Turn Deadly in Sierra Leone Over Rising Cost of Living**\
 `Clashes between protesters and security forces over rising fuel and food prices have left two dozen people dead, and the government has imposed a nationwide curfew.`\
-https://nytimes.com/2022/08/12/world/africa/sierra-leone-protests.html?searchResultPosition=7
-
-**Getty to Return Three Major Sculptures to Italy**\
-`“Orpheus and the Sirens” will be sent back in September, with other ancient artworks to follow.`\
-https://nytimes.com/2022/08/12/arts/design/getty-return-three-major-sculptures-italy.html?searchResultPosition=8
-
-**Wonking Out: Is 2022 Like 1980?**\
-`This time it’s different ... I think.`\
-https://nytimes.com/2022/08/12/opinion/inflation-1980s-recession-biden.html?searchResultPosition=9
-
-**Love Letter: Living in My University’s Library**\
-`Sky-high Manhattan rent, scant financial aid, a summer job and an unexpected romance.`\
-https://nytimes.com/2022/08/12/style/love-letter-newsletter-living-in-my-universitys-library.html?searchResultPosition=10
+https://nytimes.com/2022/08/12/world/africa/sierra-leone-protests.html?searchResultPosition=10
 
