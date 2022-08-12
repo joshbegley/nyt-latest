@@ -1,6 +1,6 @@
 **Read the Justice Department’s Full Motion to Unseal the Warrant to Search Trump’s Mar-a-Lago Home**\
 `Attorney General Merrick B. Garland said he had asked to unseal the warrant because of “substantial public interest.”`\
-https://nytimes.com/interactive/2022/08/11/us/doj-motion-to-unseal-mar-a-lago-search-warrant-materials.html?searchResultPosition=1
+https://nytimes.com/interactive/2022/08/11/us/doj-motion-mar-a-lago-search-warrant.html?searchResultPosition=1
 
 **Ex-Police Officer Gets 7 Years in Prison for Role in Jan. 6 Attack**\
 `Prosecutors said that Thomas Robertson, 49, had wielded a large stick and donned a gas mask during the riot, and that he confronted police officers who were trying to stop the increasingly violent crowd.`\
