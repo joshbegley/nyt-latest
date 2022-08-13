@@ -4,7 +4,7 @@ https://nytimes.com/2022/08/13/business/rushdie-stabbing-attack-chautauqua.html?
 
 **The C.D.C. Continues to Lead From Behind**\
 `From Covid guidelines to monkeypox, public health has a crisis of authority.`\
-https://nytimes.com/2022/08/13/opinion/the-cdc-continues-to-lead-from-behind.html?searchResultPosition=2
+https://nytimes.com/2022/08/13/opinion/cdc-monkeypox-covid.html?searchResultPosition=2
 
 **Sacramento to Pay $1.7 Million to Stephon Clark’s Parents**\
 `The payment brings an end to a lawsuit brought by the family of Mr. Clark, an unarmed Black man who was fatally shot by police officers in 2018.`\
