@@ -1,40 +1,40 @@
-**The Times Endorses Jerrold Nadler for New York District 12**\
-`In-person voting begins Aug. 13.`\
-https://nytimes.com/2022/08/13/opinion/new-york-congress-jerrold-nadler.html?searchResultPosition=1
+**The New York Times’s Interview With Suraj Patel**\
+`Suraj Patel is an attorney and worked for the campaigns of President Barack Obama. His parents’ family business is involved in hotel management and development.`\
+https://nytimes.com/2022/08/13/opinion/suraj-patel-nyt-interview.html?searchResultPosition=1
 
-**The Times Endorses Sean Maloney for New York District 17**\
-`In-person voting begins Aug. 13.`\
-https://nytimes.com/2022/08/13/opinion/new-york-congress-sean-maloney.html?searchResultPosition=2
+**The New York Times’s Interview With Carlina Rivera**\
+`Carlina Rivera has served as a Manhattan councilwoman since 2018.`\
+https://nytimes.com/2022/08/13/opinion/carlina-rivera-nyt-interview.html?searchResultPosition=2
 
-**The Times Endorses Dan Goldman for New York District 10**\
-`In-person voting begins Aug. 13.`\
-https://nytimes.com/2022/08/13/opinion/new-york-congress-dan-goldman.html?searchResultPosition=3
+**The New York Times’s Interview With Mondaire Jones**\
+`Mondaire Jones has represented Rockland County and parts of Westchester County in New York’s 17th Congressional District since 2021.`\
+https://nytimes.com/2022/08/13/opinion/mondaire-jones-nyt-interview.html?searchResultPosition=3
 
-**Investigating Trump Is Fraught, but Not Doing So Is Worse**\
-`The F.B.I. can’t ignore the former president.`\
-https://nytimes.com/2022/08/13/opinion/trump-fbi-investigation.html?searchResultPosition=4
+**The New York Times’s Interview With Yuh-Line Niou**\
+`Yuh-Line Niou is a state assemblywoman in New York’s 65th District, representing parts of Lower Manhattan since 2017.`\
+https://nytimes.com/2022/08/13/opinion/yuh-line-niou-nyt-interview.html?searchResultPosition=4
 
-**Egypt’s Revolving Prison Door: Sudden Freedom for Inmates Who Languished**\
-`Political prisoners in Egypt live under constant uncertainty about how long they will be detained. So freedom often comes as a big, and welcome, surprise.`\
-https://nytimes.com/2022/08/13/world/middleeast/egypt-political-prisoners-released.html?searchResultPosition=5
+**The New York Times’s Interview With Dan Goldman**\
+`Dan Goldman, a former assistant U.S. attorney for the Southern District of New York, was the chief investigator in the first impeachment of President Donald Trump.`\
+https://nytimes.com/2022/08/13/opinion/dan-goldman-nyt-interview.html?searchResultPosition=5
 
-**Defamation Suit About Election Falsehoods Puts Fox on Its Heels**\
-`The suit, filed by Dominion Voting Systems, could be one of the most consequential First Amendment cases in a generation.`\
-https://nytimes.com/2022/08/13/business/media/fox-dominion-lawsuit-first-amendment.html?searchResultPosition=6
+**The Biggest Health Care Reform in a Decade Could Lower Your Costs**\
+`America is determining the shape of health care affordability into the future.`\
+https://nytimes.com/2022/08/13/opinion/ira-health-care-costs.html?searchResultPosition=6
 
-**Ivory Coast’s Cocoa Curse**\
-`A new generation of Ivory Coast chocolatiers is striving to change an industry that has long left cocoa farmers in poverty.`\
-https://nytimes.com/interactive/2022/08/13/world/africa/ivory-coast-cocoa-chocolatiers.html?searchResultPosition=7
+**The New York Times’s Interview With Elizabeth Holtzman**\
+`Elizabeth Holtzman, a lawyer and former comptroller of New York City, served as a member of Congress from New York from 1973 to 1981.`\
+https://nytimes.com/2022/08/13/opinion/editorials/elizabeth-holtzman-nyt-interview.html?searchResultPosition=7
 
-**Video Shows Chaotic Scene After Salman Rushdie Was Attacked Onstage**\
-`The writer, gravely wounded, was on a ventilator. Neither the hospital treating him nor his agent had updates on his condition early Saturday.`\
-https://nytimes.com/2022/08/13/nyregion/rushdie-video-stabbed-ny.html?searchResultPosition=8
+**The New York Times’s Interview With Jerrold Nadler**\
+`Jerrold Nadler is a congressman who has represented neighborhoods on Manhattan’s West Side and parts of Brooklyn in New York’s 10th District since 1992.`\
+https://nytimes.com/2022/08/13/opinion/jerrold-nadler-nyt-interview.html?searchResultPosition=8
 
-**After Nancy Pelosi: A San Francisco Race ‘That Shall Not Be Named’**\
-`The jockeying for position is well underway in case the 82-year-old House speaker decides to retire. Among those praising her ahead of a possible run: another Pelosi.`\
-https://nytimes.com/2022/08/13/us/politics/pelosi-house-race-san-francisco.html?searchResultPosition=9
+**Don’t Feel Guilty About Working on Vacation — or About Vacationing at Work**\
+`The boundaries between work and life are already blurred. If you embrace that reality, you can make it work to your advantage.`\
+https://nytimes.com/2022/08/13/opinion/working-on-vacation-flexibility.html?searchResultPosition=9
 
-**Diary of a Spelling Bee Fanatic**\
-`Entries for the week of Aug. 8, 2022.`\
-https://nytimes.com/2022/08/13/crosswords/diary-of-a-spelling-bee-fanatic.html?searchResultPosition=10
+**The New York Times’s Interview With Jo Anne Simon**\
+`Jo Anne Simon is a state assemblywoman representing parts of Western Brooklyn in New York’s 52nd District since 2015.`\
+https://nytimes.com/2022/08/13/opinion/jo-anne-simon-nyt-interview.html?searchResultPosition=10
 
