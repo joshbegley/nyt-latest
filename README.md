@@ -14,7 +14,7 @@ https://nytimes.com/2022/08/13/crosswords/daily-puzzle-2022-08-14.html?searchRes
 `The loud boom left many wondering if it was thunder or an earthquake Saturday morning. But the National Weather Service says a meteor is to blame.`\
 https://nytimes.com/2022/08/13/us/meteor-salt-lake-city-boom.html?searchResultPosition=5
 
-**As U.S. Seeks to Close Guantánamo, Saudi Center Could Be an Option**\
+**The U.S. Wants to Close Guantánamo. Could a Saudi Center Provide a Way Out?**\
 `The Biden administration is looking for places to safely send cleared Guantánamo detainees who cannot go home. Could a program in Saudi Arabia provide a solution?`\
 https://nytimes.com/2022/08/13/us/politics/guantanamo-biden-saudi-arabia.html?searchResultPosition=6
 
