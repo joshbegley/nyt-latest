@@ -30,8 +30,8 @@ https://nytimes.com/video/us/100000008487389/salman-rushdie-stabbing-suspect.htm
 `The default should be forbearance for those who’ve breached woke etiquette.`\
 https://nytimes.com/2022/08/12/opinion/woke-cancellations.html?searchResultPosition=8
 
-**Fernando Tatis Jr. Suspended for 80 Games for Violating Drug Policy**\
-`Tatis, a 23-year-old superstar, was on the verge of returning from off-season wrist surgery. He tested positive for Clostebol, a performance-enhancing drug.`\
+**Fernando Tatis Jr. Seemed Too Good to Be True. Maybe He Was.**\
+`Tatis, a 23-year-old superstar, was suspended for 80 games by M.L.B. after he tested positive for a performance-enhancing drug.`\
 https://nytimes.com/2022/08/12/sports/baseball/fernando-tatis-padres-suspended.html?searchResultPosition=9
 
 **As Search Shows Trump Had Secret Files, G.O.P. Splits Over Assailing F.B.I.**\
