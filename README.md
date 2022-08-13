@@ -2,7 +2,7 @@
 `Five Afghan women reflect on the anniversary of the U.S. withdrawal.`\
 https://nytimes.com/2022/08/13/opinion/afghanistan-withdrawal-women.html?searchResultPosition=1
 
-**The Times Endorses Jerrold Nadler, Dan Goldman and Sean Maloney in New York’s Democratic Primary Races for Congress**\
+**The Times Endorses Jerrold Nadler, Sean Maloney and Dan Goldman in New York’s Democratic Primary Races for Congress**\
 `A flawed redistricting process delayed New York’s primary election to Aug. 23.`\
 https://nytimes.com/interactive/2022/08/13/opinion/new-york-congress-nyt-endorse.html?searchResultPosition=2
 
