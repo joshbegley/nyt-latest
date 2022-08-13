@@ -1,6 +1,6 @@
 **In His Football Return, Deshaun Watson Tries a New Move — Contrition**\
 `Accused of sexual misconduct by more than two dozen women, Watson said he was “truly sorry.” His lack of remorse had been cited as part of the rationale for his six-game regular-season suspension.`\
-https://nytimes.com/2022/08/12/sports/football/deshaun-watson-apology-browns.html?searchResultPosition=1
+https://nytimes.com/2022/08/12/sports/football/deshaun-watson-apology-suspension-sexual-misconduct.html?searchResultPosition=1
 
 **Southern Baptist Convention Says It Faces Federal Investigation for Sexual Abuse**\
 `Church leaders disclosed that multiple Southern Baptist entities were under investigation and said that all would cooperate.`\
