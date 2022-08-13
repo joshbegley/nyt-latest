@@ -2,7 +2,7 @@
 `Hollywood tried to slot her into cookie-cutter blockbusters, sometimes successfully. She was at her best playing competent women in extreme situations.`\
 https://nytimes.com/2022/08/12/movies/anne-heche-movies.html?searchResultPosition=1
 
-**A Victory of Biden, and a Bet on America’s Future**\
+**A Victory for Biden, and a Bet on America’s Future**\
 `Congress gave final approval to the Inflation Reduction Act, which will lower the cost of prescription drugs, extend health care subsidies and invest billions into climate and energy programs.`\
 https://nytimes.com/2022/08/12/us/politics/biden-house-bill.html?searchResultPosition=2
 
