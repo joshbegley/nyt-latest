@@ -36,5 +36,5 @@ https://nytimes.com/2022/08/13/opinion/ira-health-care-costs.html?searchResultPo
 
 **The New York Times’s Interview With Elizabeth Holtzman**\
 `Elizabeth Holtzman, a lawyer and former comptroller of New York City, served as a member of Congress from New York from 1973 to 1981.`\
-https://nytimes.com/2022/08/13/opinion/editorials/elizabeth-holtzman-nyt-interview.html?searchResultPosition=10
+https://nytimes.com/2022/08/13/opinion/elizabeth-holtzman-nyt-interview.html?searchResultPosition=10
 
