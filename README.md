@@ -1,4 +1,4 @@
-**After Nancy Pelosi: A San Francisco Race ‘That Shall Not be Named’**\
+**After Nancy Pelosi: A San Francisco Race ‘That Shall Not Be Named’**\
 `The jockeying for position is well underway in case the 82-year-old House speaker decides to retire. Among those praising her ahead of a possible run: another Pelosi.`\
 https://nytimes.com/2022/08/13/us/politics/pelosi-house-race-san-francisco.html?searchResultPosition=1
 
