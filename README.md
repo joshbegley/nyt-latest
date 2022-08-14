@@ -3,7 +3,7 @@
 https://nytimes.com/2022/08/14/opinion/god-culture-war-politics.html?searchResultPosition=1
 
 **Salman Rushdie, Badly Wounded, Is Off Ventilator and Starting to Recover**\
-`His agent said Sunday that the writer, who was attacked on Friday after years under threat, was beginning a slow journey of healing.`\
+`Mr. Rushdie’s agent said Sunday that the writer, who was attacked on Friday after years under threat, was beginning a slow journey of healing.`\
 https://nytimes.com/2022/08/14/nyregion/salman-rushdie-recovery.html?searchResultPosition=2
 
 **Norway Kills Freya, a 1,300-Pound Walrus Who Delighted Onlookers**\
