@@ -1,40 +1,40 @@
-**Sexual Assault Revelations Turn Canada’s National Game Into the Nation’s Shame**\
-`Once a jewel of Hockey Canada’s schedule, the world junior tournament is playing to a largely empty arena as turmoil forces Canadians to rethink what they believe about the sport.`\
-https://nytimes.com/2022/08/14/sports/hockey/hockey-canada-sex-assault-juniors.html?searchResultPosition=1
+**Striking Their Own Poses**\
+`Looks from the “Bodies Bodies Bodies” screening, an art opening at the Shed and a Net-a-Porter garden party.`\
+https://nytimes.com/2022/08/14/style/striking-their-own-poses.html?searchResultPosition=1
 
-**‘Finally, I Broke Down and Bought a 20-Comb Assortment Pack’**\
-`In search of just one of an everyday item, a Central Park morning and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2022/08/14/nyregion/metropolitan-diary.html?searchResultPosition=2
+**10 States, 2,400 Miles and More Than 100 Classic Cars**\
+`Mechanical failure, sleep deprivation and esprit de corps are all part of the Great Race, an annual rally of vintage vehicles, some more than a century old.`\
+https://nytimes.com/2022/08/14/business/vintage-cars-great-race.html?searchResultPosition=2
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/08/14/crosswords/spelling-bee-forum.html?searchResultPosition=3
+**An Orchestra Supports Ukraine, and Reunites a Couple Parted by War**\
+`“I don’t have a gun, but I have my cello,” a musician says as he joins the Ukrainian Freedom Orchestra, which is made up of refugees who fled the war and artists who stayed behind.`\
+https://nytimes.com/2022/08/14/arts/music/ukraine-war-orchestra-refugees.html?searchResultPosition=3
 
-**Shots Fired at Airport in Australia’s Capital**\
-`There were no reports of injuries, but the episode was nonetheless shocking in a country where mass and random shootings are extremely rare.`\
-https://nytimes.com/2022/08/14/world/australia/shots-fired-at-airport-in-australias-capital.html?searchResultPosition=4
+**After Roe v. Wade Reversal, Readers Flock to Publications Aimed at Women**\
+`The surge of readers has buoyed a part of the digital media world that has gradually declined in recent years.`\
+https://nytimes.com/2022/08/14/business/media/abortion-womens-media.html?searchResultPosition=4
 
-**Quotation of the Day: What Is Bird’s Legacy? ‘She Is the W.N.B.A.’**\
-`Quotation of the Day for Sunday, August 14, 2022.`\
-https://nytimes.com/2022/08/14/todayspaper/quotation-of-the-day-what-is-birds-legacy-she-is-the-wnba.html?searchResultPosition=5
+**Japanese Photographer Blows Whistle on Treatment of ‘Comfort Women’**\
+`While Tsukasa Yajima has won praise for exposing “mistakes” at South Korea’s best-known shelter for former sex slaves, he has also been the focus of intense backlash.`\
+https://nytimes.com/2022/08/14/world/asia/south-korea-comfort-women-scandal.html?searchResultPosition=5
 
-**Corrections: Aug. 14, 2022**\
-`Corrections that appeared in print on Sunday, Aug. 14, 2022.`\
-https://nytimes.com/2022/08/14/pageoneplus/corrections-aug-14-2022.html?searchResultPosition=6
+**How Frustration Over TikTok Has Mounted in Washington**\
+`National security concerns over the Chinese-owned viral video app remain unresolved. Lawmakers and regulators are increasingly pushing for action.`\
+https://nytimes.com/2022/08/14/technology/tiktok-china-washington.html?searchResultPosition=6
 
-**Driver Kills 1 and Injures 17 at Pennsylvania Benefit, Then Kills Another, Police Say**\
-`A fund-raiser following a fire that killed 10 people on Aug. 5 descended into chaos when a car crashed into the crowd. The driver then killed a woman in a nearby town, the police said.`\
-https://nytimes.com/2022/08/14/us/pennsylvania-crash-fire-fundraiser.html?searchResultPosition=7
+**Why Abortion Has Become a Centerpiece of Democratic TV Ads in 2022**\
+`Since the Supreme Court overturned Roe v. Wade, Democrats have spent nearly eight times as much on abortion-related ads as Republicans have.`\
+https://nytimes.com/2022/08/14/us/politics/abortion-midterms-2022-ads-democrats.html?searchResultPosition=7
 
-**Seven Injured in Shooting in Jerusalem**\
-`Two of the victims were seriously hurt in the episode in the Old City, which emergency responders are considering a suspected terror attack.`\
-https://nytimes.com/2022/08/13/world/middleeast/jerusalem-shooting-israel.html?searchResultPosition=8
+**Precious Leather**\
+`Major leaguers form deep relationships with their gloves. You can look, you can touch, but don’t even think about trying it on.`\
+https://nytimes.com/2022/08/14/sports/baseball/major-league-gloves.html?searchResultPosition=8
 
-**What to Watch in Hawaii’s Primary Elections**\
-`There are competitive races for governor and a House seat in this blue state, where the Democratic primaries are likely to determine who wins in November.`\
-https://nytimes.com/2022/08/13/us/politics/what-to-watch-in-hawaiis-primary-elections.html?searchResultPosition=9
+**On TikTok, Election Misinformation Thrives Ahead of Midterms**\
+`The fast-growing platform’s poor track record during recent voting abroad does not bode well for elections in the U.S., researchers said.`\
+https://nytimes.com/2022/08/14/business/media/on-tiktok-election-misinformation.html?searchResultPosition=9
 
-**Hawaii Second Congressional District Primary Election Results**\
-`See full results and maps from the Hawaii primary elections.`\
-https://nytimes.com/interactive/2022/08/13/us/elections/results-hawaii-us-house-district-2.html?searchResultPosition=10
+**Homes That Sold for Around $450,000**\
+`Recent residential sales in New York City and the region.`\
+https://nytimes.com/2022/08/14/realestate/homes-sold-450000-dollars.html?searchResultPosition=10
 
