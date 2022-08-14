@@ -1,6 +1,6 @@
 **Zofia Posmysz, Who Wrote of Life in Concentration Camps, Dies at 98**\
 `Her radio play, “The Passenger in Cabin 45,” became a  novel that was translated into 15 languages, a movie and an acclaimed opera.`\
-https://nytimes.com/2022/08/14/obituaries/zofia-posmysz-dead.html?searchResultPosition=1
+https://nytimes.com/2022/08/14/world/zofia-posmysz-dead.html?searchResultPosition=1
 
 **U.K. Police Investigate Online Threat to J.K. Rowling**\
 `The author of the “Harry Potter” books was threatened on Twitter after she posted condolences for the novelist Salman Rushdie, who was stabbed on Friday in western New York.`\
