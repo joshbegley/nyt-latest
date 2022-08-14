@@ -6,8 +6,8 @@ https://nytimes.com/2022/08/14/todayspaper/quotation-of-the-day-what-is-birds-le
 `Corrections that appeared in print on Sunday, Aug. 14, 2022.`\
 https://nytimes.com/2022/08/14/pageoneplus/corrections-aug-14-2022.html?searchResultPosition=2
 
-**15 Injured as Driver Crashes Into Event for Pennsylvania Fire Victims**\
-`A fund-raiser for families affected by a fire that killed 10 people on Aug. 5 descended into chaos when a car crashed into the crowd.`\
+**Driver Kills 1 and Injures 17 at Pennsylvania Benefit, Then Kills Another, Police Say**\
+`A fund-raiser following a fire that killed 10 people on Aug. 5 descended into chaos when a car crashed into the crowd. The driver then killed a woman in a nearby town, the police said.`\
 https://nytimes.com/2022/08/14/us/pennsylvania-crash-fire-fundraiser.html?searchResultPosition=3
 
 **Seven Injured in Shooting in Jerusalem**\
