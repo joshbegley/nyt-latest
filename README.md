@@ -1,40 +1,40 @@
+**Man Dies by Suicide After Ramming Car Into Barricade Near U.S. Capitol**\
+`The man exited the car and fired several shots into the air before shooting himself, said the police, who are investigating his motives.`\
+https://nytimes.com/2022/08/14/us/capitol-man-shoots-crash.html?searchResultPosition=1
+
 **Elana Dykewomon, Author Who Explored Lesbian Lives, Dies at 72**\
 `In a five-decade career that began with the coming-of-age novel “Riverfinger Women,” she was outspoken in her fiction, her poetry and her life.`\
-https://nytimes.com/2022/08/14/books/elana-dykewomon-dead.html?searchResultPosition=1
+https://nytimes.com/2022/08/14/books/elana-dykewomon-dead.html?searchResultPosition=2
 
 **Gunman Wounds Several People in Jerusalem**\
 `The police said the attacker, identified by Israeli broadcasters as a Palestinian man from East Jerusalem, had fired at a bus and other passing vehicles. At least eight people were injured.`\
-https://nytimes.com/video/world/middleeast/100000008488093/jerusalem-israel-bus-shooting.html?searchResultPosition=2
+https://nytimes.com/video/world/middleeast/100000008488093/jerusalem-israel-bus-shooting.html?searchResultPosition=3
 
 **A Campaign Tactic by Democrats: Smart? Risky? Unethical?**\
 `Readers debate the party’s strategy of supporting far-right G.O.P. candidates it thinks it can beat. Also: Covid and schools; Ukraine’s students; Kansas and abortion.`\
-https://nytimes.com/2022/08/14/opinion/letters/democrats-campaigns.html?searchResultPosition=3
+https://nytimes.com/2022/08/14/opinion/letters/democrats-campaigns.html?searchResultPosition=4
 
 **The God I Know Is Not a Culture Warrior**\
 `So why do we talk about God only when we’re fighting about something?`\
-https://nytimes.com/2022/08/14/opinion/god-culture-war-politics.html?searchResultPosition=4
+https://nytimes.com/2022/08/14/opinion/god-culture-war-politics.html?searchResultPosition=5
 
 **Salman Rushdie, Badly Wounded, Is Off Ventilator and Starting to Recover**\
 `Mr. Rushdie’s agent said Sunday that the writer, who was attacked on Friday after years under threat, was beginning a slow journey of healing.`\
-https://nytimes.com/2022/08/14/nyregion/salman-rushdie-recovery.html?searchResultPosition=5
+https://nytimes.com/2022/08/14/nyregion/salman-rushdie-recovery.html?searchResultPosition=6
 
 **Norway Kills Freya, a 1,300-Pound Walrus Who Delighted Onlookers**\
 `Officials said the walrus had become a threat to human safety because people ignored warnings and did not keep their distance from her in the water.`\
-https://nytimes.com/2022/08/14/world/europe/freya-walrus-dead.html?searchResultPosition=6
+https://nytimes.com/2022/08/14/world/europe/freya-walrus-dead.html?searchResultPosition=7
 
 **What to Cook This Week**\
 `Caponata pasta, grilled shrimp salad and more recipes.`\
-https://nytimes.com/2022/08/14/dining/what-to-cook-this-week.html?searchResultPosition=7
+https://nytimes.com/2022/08/14/dining/what-to-cook-this-week.html?searchResultPosition=8
 
 **Denzel Washington Honors August Wilson’s Legacy at House Opening**\
 `After fund-raising and restoration efforts, the childhood home of the playwright will offer artist residencies and other programming.`\
-https://nytimes.com/2022/08/14/theater/august-wilson-house-denzel-washington.html?searchResultPosition=8
+https://nytimes.com/2022/08/14/theater/august-wilson-house-denzel-washington.html?searchResultPosition=9
 
 **Five U.S. Lawmakers Arrive in Taiwan Amid Tensions With China**\
 `The delegation, led by Senator Ed Markey, Democrat of Massachusetts, is visiting less than two weeks after House Speaker Nancy Pelosi’s visit set off tensions with China.`\
-https://nytimes.com/2022/08/14/world/asia/taiwan-congressional-delegation-visit.html?searchResultPosition=9
-
-**Presidential Power to Declassify Information, Explained**\
-`While it is legally irrelevant, former President Donald J. Trump claims he had declassified the top secret files the F.B.I. seized at his Florida residence.`\
-https://nytimes.com/2022/08/14/us/politics/trump-classified-documents.html?searchResultPosition=10
+https://nytimes.com/2022/08/14/world/asia/taiwan-congressional-delegation-visit.html?searchResultPosition=10
 
