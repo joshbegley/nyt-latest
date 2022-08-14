@@ -15,7 +15,7 @@ https://nytimes.com/2022/08/14/arts/music/ukraine-war-orchestra-refugees.html?se
 https://nytimes.com/2022/08/14/business/media/abortion-womens-media.html?searchResultPosition=4
 
 **Japanese Photographer Blows Whistle on Treatment of ‘Comfort Women’**\
-`While Tsukasa Yajima has won praise for exposing “mistakes” at South Korea’s best-known shelter for former sex slaves, he has also been the focus of intense backlash.`\
+`While Tsukasa Yajima has won praise for exposing problems at South Korea’s best-known shelter for former sex slaves, he has also been the focus of intense backlash.`\
 https://nytimes.com/2022/08/14/world/asia/south-korea-comfort-women-scandal.html?searchResultPosition=5
 
 **How Frustration Over TikTok Has Mounted in Washington**\
