@@ -6,8 +6,8 @@ https://nytimes.com/2022/08/14/world/asia/taiwan-congressional-delegation-visit.
 `While it is legally irrelevant, former President Donald J. Trump claims he had declassified the top secret files the F.B.I. seized at his Florida residence.`\
 https://nytimes.com/2022/08/14/us/politics/trump-classified-documents.html?searchResultPosition=2
 
-**At Least 41 Killed in Fire at Egyptian Church During Sunday Prayers**\
-`The blaze was reportedly caused by an electrical fault on the building’s second floor, which also housed classrooms. Several children are thought to be among the dead.`\
+**Fire at Coptic Church in Egypt Kills at Least 41 During Sunday Prayers**\
+`The blaze in greater Cairo was believed to have been caused by an electrical fault on the building’s second floor, which also housed classrooms. Several children were thought to be among the dead.`\
 https://nytimes.com/2022/08/14/world/middleeast/egypt-fire-church.html?searchResultPosition=3
 
 **The Week in Business: Inflation Moderates**\
