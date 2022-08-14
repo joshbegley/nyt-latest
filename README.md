@@ -1,6 +1,6 @@
 **At the Salzburg Festival, Riches, Retreads and Notes of Caution**\
 `Classical music’s pre-eminent annual event had more revivals than usual, but also a breathless new staging of Janacek’s “Kat’a Kabanova.”`\
-https://nytimes.com/2022/08/14/arts/music/14salzburg-festival-opera-music.html?searchResultPosition=1
+https://nytimes.com/2022/08/14/arts/music/salzburg-festival-opera-music.html?searchResultPosition=1
 
 **R. Kelly Stands Trial in Chicago: What to Know**\
 `The musician faces charges of sex crimes and of working to obstruct an earlier investigation that resulted in his acquittal in a 2008 criminal trial.`\
