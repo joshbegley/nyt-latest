@@ -22,7 +22,7 @@ https://nytimes.com/2022/08/14/opinion/generation-x-millennials-work.html?search
 `A year after their stunning victory and takeover, the Taliban are still struggling to shift to a governing, political force.`\
 https://nytimes.com/2022/08/14/opinion/afghanistan-taliban-photos.html?searchResultPosition=6
 
-**The Most Productive Dysfunctional Congress Ever**\
+**Many Americans Think Congress Is More Broken Than It Actually Is**\
 `For a gridlocked capital, Washington has been amazingly productive.`\
 https://nytimes.com/2022/08/14/opinion/congress-inflation-reduction-act.html?searchResultPosition=7
 
