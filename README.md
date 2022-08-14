@@ -7,7 +7,7 @@ https://nytimes.com/2022/08/14/briefing/taiwan-us-beijing-rushdie-asia.html?sear
 https://nytimes.com/2022/08/14/nyregion/adams-pearson-casino.html?searchResultPosition=2
 
 **Church Fire in Egypt Kills Dozens**\
-`The blaze, one of Egypt’s deadliest in recent years, killed at least 41 people at Abu Sefein Church in greater Cairo. Officials believed it was caused by an electrical fault on the building’s second floor.`\
+`The blaze, one of Egypt’s deadliest in recent years, killed at least 41 people at Abu Sefein Church in greater Cairo.`\
 https://nytimes.com/video/world/100000008488165/egypt-fire-church.html?searchResultPosition=3
 
 **I Was Skeptical of Baby Gear. Then I Became a Dad.**\
