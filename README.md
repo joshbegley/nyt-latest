@@ -22,7 +22,7 @@ https://nytimes.com/2022/08/14/world/europe/ukraine-nuclear-plant-fighting.html?
 `Plus Salman Rushdie’s recovery and reflections on a year of Taliban rule.`\
 https://nytimes.com/2022/08/14/briefing/taiwan-us-beijing-rushdie-asia.html?searchResultPosition=6
 
-**Adams Confidant Leaves Casino Company**\
+**Adams Adviser Leaves Second Job as Casino Executive**\
 `Timothy Pearson, a retired police inspector, was collecting a pension and working for Mayor Eric Adams while also holding the casino post.`\
 https://nytimes.com/2022/08/14/nyregion/adams-pearson-casino.html?searchResultPosition=7
 
