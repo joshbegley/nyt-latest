@@ -1,6 +1,6 @@
 **At Least 41 Killed in Fire at Egyptian Church During Sunday Prayers**\
 `The blaze was reportedly caused by an electrical fault on the building’s second floor, which also housed classrooms. Several children are thought to be among the dead.`\
-https://nytimes.com/2022/08/14/world/middleeast/egypt-church-fire.html?searchResultPosition=1
+https://nytimes.com/2022/08/14/world/middleeast/egypt-fire-church.html?searchResultPosition=1
 
 **The Week in Business: Inflation Moderates**\
 `Disney now has more subscribers than Netflix. The Fed will share notes from its July meeting. And stocks are on the rise.`\
