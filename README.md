@@ -26,13 +26,13 @@ https://nytimes.com/2022/08/15/books/frederick-buechner-dead.html?searchResultPo
 `Poliovirus has been detected in New York City wastewater, but children who are up-to-date on their vaccinations should be OK, pediatricians said.`\
 https://nytimes.com/2022/08/15/nyregion/polio-new-york-parents-vaccines.html?searchResultPosition=7
 
-**Why Republicans Turned Against the Environment**\
-`Climate change gets caught up in the culture war.`\
-https://nytimes.com/2022/08/15/opinion/republicans-environment-climate.html?searchResultPosition=8
-
 **Ukraine Chips Away at Russian-Held Region, but Task Is Daunting**\
 `Ukrainian forces badly want to to retake the southern region of Kherson from Russian invaders, but Moscow retains a potentially overwhelming advantage.`\
-https://nytimes.com/2022/08/15/world/europe/ukraine-retake-southern-region.html?searchResultPosition=9
+https://nytimes.com/2022/08/15/world/europe/ukraine-retake-southern-region.html?searchResultPosition=8
+
+**Why Republicans Turned Against the Environment**\
+`Climate change gets caught up in the culture war.`\
+https://nytimes.com/2022/08/15/opinion/republicans-environment-climate.html?searchResultPosition=9
 
 **Ron DeSantis Walks a Tightrope Over the Mar-a-Lago Search**\
 `The Florida governor has played his hand carefully as he weighs a 2024 bid, rarely crossing Donald Trump overtly. But the former president’s legal troubles could force him to take a side.`\
