@@ -6,7 +6,7 @@ https://nytimes.com/2022/08/15/world/asia/myanmar-trial-coup-arrests.html?search
 `The carried interest exception effectively allows a select group of people on Wall Street to pay half as much tax as their peers. Here’s how it has survived.`\
 https://nytimes.com/2022/08/15/podcasts/the-daily/carried-interest-tax-loophole.html?searchResultPosition=2
 
-**Brittney Griner appeals her conviction on drug charges in Russia, her defense team says.**\
+**Brittney Griner Appeals Conviction Amid Talk of Prisoner Swap**\
 `The appeal process could take months, but a senior Russian diplomat said that talks with the United States about a possible prisoner exchange were underway.`\
 https://nytimes.com/2022/08/15/world/europe/brittney-griner-appeals-conviction.html?searchResultPosition=3
 
