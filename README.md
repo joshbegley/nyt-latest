@@ -16,7 +16,7 @@ https://nytimes.com/video/world/africa/100000008489078/kenya-election-ruto.html?
 
 **Pennsylvania Man Charged With Threatening F.B.I. After Mar-a-Lago Search**\
 `Prosecutors say the man posted violent threats on Gab, a social media app popular with the far right.`\
-https://nytimes.com/2022/08/15/us/politics/arrest-online-threats-fbi.html?searchResultPosition=5
+https://nytimes.com/2022/08/15/us/politics/fbi-threats-pennsylvania-man.html?searchResultPosition=5
 
 **A Tomato-Filled Weekend at the New York Botanical Garden**\
 `Aug. 20 and 21, there will be hand-on activities like planting, tending harvesting and preparing, alongside arts and crafts.`\
