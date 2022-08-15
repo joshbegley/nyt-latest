@@ -3,7 +3,7 @@
 https://nytimes.com/2022/08/15/world/africa/william-ruto-profile-kenya.html?searchResultPosition=1
 
 **Giuliani Is Told He Is a Target of Trump Election Investigation in Georgia**\
-`Rudolph W. Giuliani, as former President Donald J. Trump’s personal lawyer, spearheaded efforts to keep  Mr. Trump in power.`\
+`Rudolph W. Giuliani, as former President Donald J. Trump’s personal lawyer, spearheaded efforts to keep Mr. Trump in power.`\
 https://nytimes.com/2022/08/15/us/graham-georgia-investigation-trump.html?searchResultPosition=2
 
 **From Italy to New York: A Graduate Finds Her Dream Gig and a Brooklyn Pad**\
