@@ -36,5 +36,5 @@ https://nytimes.com/2022/08/15/dining/why-does-my-stomach-hurt-helicobacter-pylo
 
 **Jean-Georges Vongerichten Polishes Up the Tin Building**\
 `The restaurateur has filled a 53,000-square-foot space with two floors of restaurants and markets that reflect the diversity of New York.`\
-https://nytimes.com/2022/08/15/dining/jean-george-vongerichten-tin-building-food-hall.html?searchResultPosition=10
+https://nytimes.com/2022/08/15/dining/jean-georges-vongerichten-tin-building-food-hall.html?searchResultPosition=10
 
