@@ -3,7 +3,7 @@
 https://nytimes.com/2022/08/15/business/media/hbo-lays-off-about-70-people.html?searchResultPosition=1
 
 **Bad Bunny Beats YoungBoy Never Broke Again in a Tight Race for No. 1**\
-`Beyoncé’s “Renaissance” falls to No. 3 as the Puerto Rican superstar and the Atlanta rapper battle for the top spot on the Billboard album chart.`\
+`Beyoncé’s “Renaissance” falls to No. 3 as the Puerto Rican superstar and the Louisiana rapper battle for the top spot on the Billboard album chart.`\
 https://nytimes.com/2022/08/15/arts/music/bad-bunny-youngboy-billboard-chart.html?searchResultPosition=2
 
 **Activist Investor Buys Stake in Disney and Pushes for Changes**\
