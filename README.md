@@ -14,7 +14,7 @@ https://nytimes.com/2022/08/15/business/disney-third-point-loeb-espn-hulu.html?s
 `Mr. Ruto grew up poor, tending his family’s livestock in a remote village. As a presidential candidate, he appealed to the “hustler nation” of disenfranchised strivers, saying he was once like them.`\
 https://nytimes.com/2022/08/15/world/africa/william-ruto-profile-kenya.html?searchResultPosition=4
 
-**Giuliani Is Told He Is a Target of Trump Election Investigation in Georgia**\
+**Giuliani Is Told He Is a Target of Trump Election Inquiry in Georgia**\
 `Rudolph W. Giuliani, as former President Donald J. Trump’s personal lawyer, spearheaded efforts to keep Mr. Trump in power.`\
 https://nytimes.com/2022/08/15/us/graham-georgia-investigation-trump.html?searchResultPosition=5
 
