@@ -1,5 +1,5 @@
 **Muslim Killings in Albuquerque Stir Sectarian Ghosts**\
-`An Afghan family struggled for a foothold in their new home in the U.S. Now one of them is charged with killing fellow Muslims.`\
+`An Afghan family struggled for a foothold in a new home in the U.S. Now one of them is charged with killing fellow Muslims.`\
 https://nytimes.com/2022/08/15/us/albuquerque-muslim-killings.html?searchResultPosition=1
 
 **Falling Oil Prices Defy Predictions. But What About the Next Chapter?**\
