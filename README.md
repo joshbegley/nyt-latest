@@ -15,7 +15,7 @@ https://nytimes.com/slideshow/2022/08/15/realestate/what-you-get-for-850000-in-c
 https://nytimes.com/2022/08/15/business/china-economy-oil-prices.html?searchResultPosition=4
 
 **U.K. Approves Covid Booster Vaccine That Targets Two Variants**\
-`The vaccine, which has been approved for adults, generated a strong immune response against both the original virus and the Omicron variant.`\
+`Britain is the first country to approve the Moderna-made vaccine, which generated a strong immune response against both the original virus and the Omicron variant.`\
 https://nytimes.com/2022/08/15/health/uk-covid-booster-variants.html?searchResultPosition=5
 
 **Why the ‘Big One’ Could Be Something Other Than an Earthquake**\
