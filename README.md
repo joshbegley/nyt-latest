@@ -12,7 +12,7 @@ https://nytimes.com/2022/08/15/nyregion/trader-joes-wine-union-square.html?searc
 
 **‘Deadstock’ Fabric Finds a Second Life**\
 `Romain Brabo, Givenchy’s fabric buyer, co-founded Nona Source, a trove of unused high-quality material clients are able to purchase.`\
-https://nytimes.com/2022/08/15/style/deadstock-fabric-finds-a-second-life.html?searchResultPosition=4
+https://nytimes.com/2022/08/15/style/lvmh-brands-deadstock-fabric.html?searchResultPosition=4
 
 **Muslim Killings in Albuquerque Stir Sectarian Ghosts**\
 `An Afghan family struggled for a foothold in a new home in the U.S. Now one of them is charged with killing fellow Muslims.`\
