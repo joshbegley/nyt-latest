@@ -7,7 +7,7 @@ https://nytimes.com/video/us/100000008489658/west-virginia-flash-flood.html?sear
 https://nytimes.com/2022/08/15/dining/kafana-restaurant-review-pete-wells.html?searchResultPosition=2
 
 **Pete Carril, Princeton’s Textbook Basketball Coach, Dies at 92**\
-`Without the aid of athletic scholarships, he turned outgunned teams into winners by keeping players moving, passing, finding the open man and generally unnerving opponents.`\
+`Without athletic scholarships, he made outgunned teams winners by keeping them moving and unnerving opponents, leading to one of the biggest upsets in college basketball.`\
 https://nytimes.com/2022/08/15/sports/basketball/pete-carril-dead.html?searchResultPosition=3
 
 **Heathrow Airport in London Extends Passenger Limits to October**\
