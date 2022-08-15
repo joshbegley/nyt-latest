@@ -1,5 +1,5 @@
 **French Soldiers Quit Mali After 9 Years, Billions Spent and Many Lives Lost**\
-`The last unit of the French military mission, Operation Barkhane, crossed into neighboring Niger, from where France will run its counterterrorism efforts in the region.`\
+`The last unit of the French military mission, Operation Barkhane, crossed into neighboring Niger, after a major fallout with Malian authorities.`\
 https://nytimes.com/2022/08/15/world/africa/mali-france-military-operation.html?searchResultPosition=1
 
 **A Swarm of 13-Year-Olds Took a Broadway Stage. What Could Go Wrong?**\
