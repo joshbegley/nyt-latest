@@ -1,40 +1,40 @@
-**In Los Angeles, the Grass Isn’t Always Greener This Year**\
-`Southern California residents are beginning to accept that lush lawns are unsustainable when reservoirs and rivers run low in a drought era.`\
-https://nytimes.com/2022/08/15/us/los-angeles-lawn-watering-drought.html?searchResultPosition=1
+**Pigs to the Rescue: An Invasive Species Helped Save Australia’s Crocodiles**\
+`Invasive species can damage the ecosystems they wind up in. But in parts of the world, endangered predators make hearty meals out of them.`\
+https://nytimes.com/2022/08/15/science/invasive-species-pigs-crocodiles.html?searchResultPosition=1
 
-**The Pandemic Wasn’t Supposed to Hurt New York Transit This Much**\
-`New Yorkers fear a repeat of past service cuts as the Metropolitan Transportation Authority faces a $2.5 billion budget deficit in 2025.`\
-https://nytimes.com/2022/08/15/nyregion/mta-nyc-budget.html?searchResultPosition=2
+**Reckoning With Memories of Budapest**\
+`A Times journalist spent three months capturing a contemporary portrait of Hungary’s capital, where he lived for several years as a child in the early ’90s.`\
+https://nytimes.com/2022/08/15/travel/budapest-hungary-memories.html?searchResultPosition=2
 
-**In Wyoming, Likely End of Cheney Dynasty Will Close a Political Era**\
-`If Representative Liz Cheney loses her primary on Tuesday, as is widely expected, the Cowboy State’s conservative tilt will take on a harder edge.`\
-https://nytimes.com/2022/08/15/us/politics/liz-cheney-wyoming.html?searchResultPosition=3
+**In Wisconsin, 2 Huge Races Stand Between G.O.P. and Near-Total Power**\
+`The governor’s race this fall, along with a pivotal State Supreme Court contest next spring, will decide whether Republicans can solidify their grip on the swing state and remake its voting laws.`\
+https://nytimes.com/2022/08/15/us/politics/wisconsin-governor-supreme-court.html?searchResultPosition=3
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/08/15/crosswords/spelling-bee-forum.html?searchResultPosition=4
+**Shark or Orca: Which Should You Fear More?**\
+`Swimmers often worry about attacks by certain marine predators. But beware the bite of a more common animal.`\
+https://nytimes.com/2022/08/15/science/sharks-killer-whales-swimming.html?searchResultPosition=4
 
-**It’s Gingerbread House Season, if You’re in the Holiday Trade**\
-`In a Queens apartment, a former chef is deep in gingerbread sleighs, Santas and houses: 800 down, 700 more to go.`\
-https://nytimes.com/2022/08/15/nyregion/gingerbread-house-maker-new-york.html?searchResultPosition=5
+**The Arizona Republican Party’s Anti-Democracy Experiment**\
+`First, it turned against the establishment. Now it has set its sights on democracy — the principles, the process and even the word itself.`\
+https://nytimes.com/2022/08/15/magazine/arizona-republicans-democracy.html?searchResultPosition=5
 
-**Your Monday Briefing**\
-`Fallout from the F.B.I.’s search of Donald Trump’s home.`\
-https://nytimes.com/2022/08/15/briefing/republican-trump-salman-rushdie.html?searchResultPosition=6
+**Scherzer and deGrom Are Great. But How Great?**\
+`The Mets finally have both aces in action, and October glory is easy to imagine. Where they will rank as a historic pitching duo will largely depend on their health.`\
+https://nytimes.com/2022/08/15/sports/baseball/mets-degrom-scherzer.html?searchResultPosition=6
 
-**What’s on TV This Week: ‘House of the Dragon’ and U.S. Gymnastic Championships**\
-`HBO airs the “Game of Thrones” spinoff. Olympians Jade Carey and Jordan Chiles compete in the women’s gymnastic field.`\
-https://nytimes.com/2022/08/15/arts/television/whats-on-tv-this-week-house-of-the-dragon.html?searchResultPosition=7
+**Death Valley’s Invasive Donkeys Have Become Cat Food**\
+`Feral burros wreck wetlands in the desert national park. But a study found that when mountain lions prey on them, the donkeys may help some terrain thrive.`\
+https://nytimes.com/2022/08/15/science/donkeys-mountain-lions-death-valley.html?searchResultPosition=7
 
-**Sri Lanka Collapsed First, but It Won’t Be the Last**\
-`Western debt killed Sri Lanka. Others will fall too. `\
-https://nytimes.com/2022/08/15/opinion/international-world/sri-lanka-economic-collapse.html?searchResultPosition=8
+**If the Job Market Is So Good, Why Is Gig Work Thriving?**\
+`Conventional employment opportunities abound, but online platforms still have appeal — for flexibility or additional income.`\
+https://nytimes.com/2022/08/15/business/economy/gig-work.html?searchResultPosition=8
 
-**The Endless Fascination With Mike Tyson**\
-`A book of photos from early in Tyson’s boxing career shows the buildup that helped fuel interest in the talented but troubled heavyweight.`\
-https://nytimes.com/2022/08/15/sports/mike-tyson-photos.html?searchResultPosition=9
+**How Quitting a Job Changed My Work-Life Balance**\
+`We asked people who quit their jobs during the “Great Resignation” how it changed how they approach work. This is what they told us.`\
+https://nytimes.com/2022/08/15/style/quitting-work-life-balance-career.html?searchResultPosition=9
 
-**The Rams’ G.M. Does Not Hate Draft Picks**\
-`Les Snead built a Super Bowl-winning roster by swapping high draft picks for key starters. His approach spawned copycats and made him an internet meme, but he says drafted players may be key to the future.`\
-https://nytimes.com/2022/08/15/sports/football/les-snead-rams-draft-picks.html?searchResultPosition=10
+**‘Frustration and Stress’: State Officials Fault Rollout of Monkeypox Vaccine**\
+`Federal officials are not relying on an established system to distribute the vaccine, slowing immunizations and burdening local health departments, critics say.`\
+https://nytimes.com/2022/08/15/health/monkeypox-vaccine-distribution.html?searchResultPosition=10
 
