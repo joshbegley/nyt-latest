@@ -1,5 +1,5 @@
-**Polio May Have Been Spreading for a Year**\
-`A new study from the C.D.C. provides more details about a polio case detected in New York last month, and reports that the virus was in the state’s wastewater in April.`\
+**Polio May Have Been Spreading in New York Since April**\
+`A new study from the C.D.C. provides more details about a polio case detected in New York last month, and suggests the virus has been spreading elsewhere for a year.`\
 https://nytimes.com/2022/08/16/health/polio-new-york.html?searchResultPosition=1
 
 **Your Wednesday Briefing: New Blasts Shake Crimea**\
