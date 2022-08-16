@@ -1,5 +1,5 @@
 **F.B.I. Interviewed Top White House Lawyers About Missing Trump Documents**\
-`Pat A. Cipollone and Patrick F. Philbin are the most senior people who worked for Mr. Trump who are known to have been interviewed in the investigation into the former president’s handling of classified material.`\
+`Pat A. Cipollone and Patrick F. Philbin are the most senior people who worked for the former president who are known to have been interviewed in the investigation into his handling of classified material.`\
 https://nytimes.com/2022/08/16/us/politics/trump-cipollone-philbin-interviews-fbi.html?searchResultPosition=1
 
 **‘As It Turns Out,’ a Sister’s Remembrance of Edie Sedgwick and Andy Warhol**\
