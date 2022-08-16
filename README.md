@@ -6,7 +6,7 @@ https://nytimes.com/2022/08/16/world/africa/zulu-king-controversy-south-africa.h
 `The agency issued a final rule that took years to complete and opens the door to cheaper, more accessible devices without a prescription or medical exam.`\
 https://nytimes.com/2022/08/16/health/fda-hearing-aids.html?searchResultPosition=2
 
-**Marshall Islands, Nearly Covid-Free, Confronts an Outbreak**\
+**Marshall Islands, Once Nearly Covid-Free, Confronts an Outbreak**\
 `It was one of the last places on the planet to see its first Covid-19 cases. Now the virus is spreading rapidly.`\
 https://nytimes.com/2022/08/16/world/asia/marshall-islands-covid-outbreak.html?searchResultPosition=3
 
