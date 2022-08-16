@@ -1,4 +1,4 @@
-**More than a sun-splashed resort, Crimea holds a key place in Russia’s conscience.**\
+**More than a sun-splashed resort, Crimea holds a key place in Russia’s war effort.**\
 `The peninsula, which Moscow seized from Ukraine in 2014, has been a critical staging ground for the Russian invasion.`\
 https://nytimes.com/2022/08/16/world/europe/crimea-ukraine-russia.html?searchResultPosition=1
 
