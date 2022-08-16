@@ -1,4 +1,4 @@
-**Summer Reading Contest Winner Week 7: On ‘What a “Grief Camp” For Kids Can Show Us About Healing’**\
+**Summer Reading Contest Winner Week 8: On ‘What a “Grief Camp” For Kids Can Show Us About Healing’**\
 `Congratulations to our winner, Samya Madhukar, as well as to our many runners-up and honorable mentions.`\
 https://nytimes.com/2022/08/16/learning/summer-reading-contest-winner-week-7-on-what-a-grief-camp-for-kids-can-show-us-about-healing.html?searchResultPosition=1
 
