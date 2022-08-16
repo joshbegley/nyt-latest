@@ -11,7 +11,7 @@ https://nytimes.com/2022/08/16/books/review-as-it-turns-out-edie-andy-warhol-ali
 https://nytimes.com/2022/08/16/style/mack-rita-diane-keaton.html?searchResultPosition=3
 
 **A New Round of Colorado River Cuts Is Announced**\
-`The cuts affect only Arizona and Nevada at this time, as a plan for more drastic cuts from seven states remains elusive.`\
+`The cuts affect only Arizona and Nevada and Mexico at this time, as a plan for more drastic cuts from seven states remains elusive.`\
 https://nytimes.com/2022/08/16/climate/colorado-river-lake-mead-water-drought.html?searchResultPosition=4
 
 **Alaska’s voters will try out changes to primary and special elections.**\
