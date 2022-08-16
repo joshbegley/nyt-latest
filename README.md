@@ -1,6 +1,6 @@
 **‘Better Call Saul’ Season 6, Episode 13 Recap: Life**\
 `In the series finale, Jimmy and Saul go to war. Kim flies across the country, twice.`\
-https://nytimes.com/2022/08/15/arts/television/better-call-saul-season-6-episode-13-recap-life.html?searchResultPosition=1
+https://nytimes.com/2022/08/15/arts/television/better-call-saul-series-finale-recap.html?searchResultPosition=1
 
 **Interlocking Puzzle**\
 `Sue Fracker debuts in the New York Times Crossword.`\
