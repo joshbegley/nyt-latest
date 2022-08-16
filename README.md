@@ -4,7 +4,7 @@ https://nytimes.com/2022/08/16/us/politics/wyoming-alaska-election-results-timin
 
 **Cuomo Can Keep $5.1 Million in Covid Book Money, Judge Says**\
 `Ex-Gov. Andrew Cuomo prevailed in his lawsuit against a state ethics panel, which had sought to force him to turn over the proceeds.`\
-https://nytimes.com/2022/08/16/nyregion/andrew-cuomo-book-jcope.html?searchResultPosition=2
+https://nytimes.com/2022/08/16/nyregion/cuomo-covid-book-money.html?searchResultPosition=2
 
 **Coptic Leader Criticizes Egypt’s Building Restrictions on Churches After Deadly Fire**\
 `The patriarch of Egypt’s 10 million Coptic Orthodox Christians said his community has been squeezed by decades of government regulations on the number and size of churches. In Sunday’s blaze, 41 people died.`\
