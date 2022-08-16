@@ -1,40 +1,40 @@
+**The Return of Aviator Joe**\
+`President Biden is back after Covid, vacation and legislative victories, and so are his shades.`\
+https://nytimes.com/2022/08/16/style/joe-biden-aviators.html?searchResultPosition=1
+
+**Kenyan Opposition Leader Rejects Presidential Election Result**\
+`Raila Odinga called the declaration of his rival, William Ruto, as winner of Kenya’s narrow presidential contest “null and void,” and said it should be annulled. The dispute is likely to go to the country’s Supreme Court.`\
+https://nytimes.com/video/world/africa/100000008490749/kenya-election-raila-odinga.html?searchResultPosition=2
+
 **After 16 Months, Some Glimmers of Optimism About Iran Nuclear Deal**\
 `Iran’s response to the “final text,” sent to the European Union just before midnight Monday, does not raise major new objections, officials say.`\
-https://nytimes.com/2022/08/16/world/europe/iran-us-nuclear-deal.html?searchResultPosition=1
+https://nytimes.com/2022/08/16/world/europe/iran-us-nuclear-deal.html?searchResultPosition=3
 
 **Thousands of Capri Sun Cases Recalled Over Possible Cleaning Product Contamination**\
 `Consumers contacted the company with complaints of the Wild Cherry-flavored juice’s taste, Kraft Heinz said.`\
-https://nytimes.com/2022/08/16/business/capri-sun-recall.html?searchResultPosition=2
+https://nytimes.com/2022/08/16/business/capri-sun-recall.html?searchResultPosition=4
 
 **Carolyn Maloney’s Campaign Pitch: A Man Can’t Do My Job**\
 `Carolyn Maloney is leaning on her record fighting for the women’s movement to differentiate herself from her chief Democratic primary rival, Jerrold Nadler.`\
-https://nytimes.com/2022/08/16/nyregion/carolyn-maloney-women-nadler.html?searchResultPosition=3
+https://nytimes.com/2022/08/16/nyregion/carolyn-maloney-women-nadler.html?searchResultPosition=5
 
 **Kicking oil companies out of school**\
 `Faculty and staff at Cambridge are planning a vote that would require the university to stop accepting fossil fuel money for research. It’s part of an expanding movement.`\
-https://nytimes.com/2022/08/16/climate/cambridge-university-oil-gas-funding.html?searchResultPosition=4
+https://nytimes.com/2022/08/16/climate/cambridge-university-oil-gas-funding.html?searchResultPosition=6
 
 **Summer Reading Contest Winner Week 8: On ‘What a “Grief Camp” For Kids Can Show Us About Healing’**\
 `Congratulations to our winner, Samya Madhukar, as well as to our many runners-up and honorable mentions.`\
-https://nytimes.com/2022/08/16/learning/summer-reading-contest-winner-week-7-on-what-a-grief-camp-for-kids-can-show-us-about-healing.html?searchResultPosition=5
+https://nytimes.com/2022/08/16/learning/summer-reading-contest-winner-week-7-on-what-a-grief-camp-for-kids-can-show-us-about-healing.html?searchResultPosition=7
 
 **Here’s where Trump’s endorsement record stands in Republican primaries.**\
 `Of the more than 200 Republicans Mr. Trump has endorsed this year, many ran unopposed or faced little-known, poorly funded opponents.`\
-https://nytimes.com/2022/08/16/us/politics/trump-endorse-primary-candidates.html?searchResultPosition=6
+https://nytimes.com/2022/08/16/us/politics/trump-endorse-primary-candidates.html?searchResultPosition=8
 
 **Pain in Children is Often Ignored. For Children of Color, It’s Even Worse.**\
 `Racial differences in medical care are part of a theme experts are seeing “over and over” again.`\
-https://nytimes.com/2022/08/16/well/pain-management-children-race.html?searchResultPosition=7
+https://nytimes.com/2022/08/16/well/pain-management-children-race.html?searchResultPosition=9
 
 **A Power Struggle in Iraq Intensifies, Raising Fears of New Violence**\
 `Followers of the Shiite Muslim cleric Muqtada al-Sadr set up a tent city to blockade Parliament, paralyzing any progress toward forming a new government.`\
-https://nytimes.com/2022/08/16/world/middleeast/iraq-parliament.html?searchResultPosition=8
-
-**Drop Boxes for Unwanted Babies: ‘Cruel’ and ‘Traumatizing’**\
-`Readers criticize efforts to expand safe haven laws after the Dobbs decision. Also: Banish “retirement”; private equity; public service.`\
-https://nytimes.com/2022/08/16/opinion/letters/abortion-drop-boxes-babies.html?searchResultPosition=9
-
-**10 Years After Disappearing in Syria, Freedom Is Elusive for U.S. Journalist**\
-`There are signs that efforts to free Austin Tice, who disappeared in Syria in 2012 and who the U.S. believes is being held by the Syrian government, are reviving. But his family says the U.S. needs to do more.`\
-https://nytimes.com/2022/08/16/world/middleeast/austin-tice-journalist-syria.html?searchResultPosition=10
+https://nytimes.com/2022/08/16/world/middleeast/iraq-parliament.html?searchResultPosition=10
 
