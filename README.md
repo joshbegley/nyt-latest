@@ -8,7 +8,7 @@ https://nytimes.com/2022/08/16/books/review-as-it-turns-out-edie-andy-warhol-ali
 
 **Boomers Are All the Rage**\
 `The film “Mack & Rita,” coastal grandmother style and cottage-core all address a “spirit age,” where younger people honor their older souls.`\
-https://nytimes.com/2022/08/16/style/boomers-are-all-the-rage.html?searchResultPosition=3
+https://nytimes.com/2022/08/16/style/mack-rita-diane-keaton.html?searchResultPosition=3
 
 **A New Round of Colorado River Cuts Is Announced**\
 `The cuts affect only Arizona and Nevada at this time, as a plan for more drastic cuts from seven states remains elusive.`\
