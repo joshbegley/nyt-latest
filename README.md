@@ -3,7 +3,7 @@
 https://nytimes.com/video/world/europe/100000008492429/navy-ship-ww1-britain.html?searchResultPosition=1
 
 **Walensky, Citing Botched Pandemic Response, Calls for C.D.C. Reorganization**\
-`An external review of the agency’s performance during the coronavirus pandemic concluded that its public guidance was “confusing and overwhelming.”`\
+`Among other flaws, the public guidance during the coronavirus pandemic was “confusing and overwhelming,” the agency said.`\
 https://nytimes.com/2022/08/17/us/politics/cdc-rochelle-walensky-covid.html?searchResultPosition=2
 
 **Murkowski Advances in Alaska Senate Primary**\
