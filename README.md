@@ -6,35 +6,35 @@ https://nytimes.com/2022/08/17/us/politics/mary-peltola-ak.html?searchResultPosi
 `Experts say children are not at a high risk of infection. But they have advice to keep everyone — from toddlers to college kids — safe.`\
 https://nytimes.com/2022/08/17/well/monkeypox-kids-school-day-care.html?searchResultPosition=2
 
-**Ukraine’s factories move west to escape the war.**\
-`By Liz Alderman and Erika Solomon`\
-https://nytimes.com/2022/08/17/world/europe/ukraines-factories-move-west-to-escape-the-war.html?searchResultPosition=3
-
 **Lessons learned**\
 `Epidemiologists share lessons they’ve learned from the coronavirus pandemic.`\
-https://nytimes.com/2022/08/17/briefing/coronavirus-lessons-wastewater.html?searchResultPosition=4
+https://nytimes.com/2022/08/17/briefing/coronavirus-lessons-wastewater.html?searchResultPosition=3
 
 **After the Rushdie Attack, Can the Iran Nuclear Deal Be Saved?**\
 `Biden vowed to re-enter a deal that Trump had “recklessly tossed away.” But negotiations are still in limbo.`\
-https://nytimes.com/2022/08/17/opinion/rushdie-iran-nuclear-deal.html?searchResultPosition=5
+https://nytimes.com/2022/08/17/opinion/rushdie-iran-nuclear-deal.html?searchResultPosition=4
 
 **Your Wednesday Evening Briefing**\
 `Here’s what you need to know at the end of the day.`\
-https://nytimes.com/2022/08/17/briefing/cdc-pandemic-response-galileo.html?searchResultPosition=6
+https://nytimes.com/2022/08/17/briefing/cdc-pandemic-response-galileo.html?searchResultPosition=5
 
 **Anshu Jain, Who Took Deutsche Bank to Wall Street, Dies at 59**\
 `As co-chief executive, he helped remake the German company into an investment banking power but stepped down after the complex activities he pushed caused regulatory problems.`\
-https://nytimes.com/2022/08/17/business/dealbook/anshu-jain-dead.html?searchResultPosition=7
+https://nytimes.com/2022/08/17/business/dealbook/anshu-jain-dead.html?searchResultPosition=6
 
 **Catskills Hotel That Inspired ‘Dirty Dancing’ Suffers Devastating Fire**\
 `The Grossinger’s Catskill Resort Hotel had served as a vibrant summertime getaway for generations. But in recent decades, it had been abandoned.`\
-https://nytimes.com/2022/08/17/nyregion/catskills-grossinger-hotel-fire-dirty-dancing.html?searchResultPosition=8
+https://nytimes.com/2022/08/17/nyregion/catskills-grossinger-hotel-fire-dirty-dancing.html?searchResultPosition=7
 
 **How Chewing Shaped Human Evolution**\
 `An experiment revealed that chomping on slightly tougher material requires markedly more energy. Spending less time on mastication may go hand in hand with human evolution.`\
-https://nytimes.com/2022/08/17/science/chewing-human-evolution.html?searchResultPosition=9
+https://nytimes.com/2022/08/17/science/chewing-human-evolution.html?searchResultPosition=8
 
 **Ukraine’s Partisans**\
 `A network of guerrilla fighters is taking the fight into areas occupied by Russia.`\
-https://nytimes.com/2022/08/17/briefing/russia-ukraine-war-partisans.html?searchResultPosition=10
+https://nytimes.com/2022/08/17/briefing/russia-ukraine-war-partisans.html?searchResultPosition=9
+
+**Your Thursday Briefing: Liz Cheney, Out**\
+`Plus a mortgage strike in China and resistance fighters in Ukraine.`\
+https://nytimes.com/2022/08/17/briefing/liz-cheney-republicans-trump-asia.html?searchResultPosition=10
 
