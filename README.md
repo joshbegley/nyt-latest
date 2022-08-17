@@ -1,40 +1,40 @@
-**South Korea Vows Help to North and Urges It to Give Up Nuclear Efforts**\
-`Yoon Suk-yeol, president of South Korea, said he did not want political change in North Korea brought by force but would welcome change occurring naturally as a result of economic and diplomatic support.`\
-https://nytimes.com/video/world/asia/100000008492022/yoon-aid-north-korea-missiles.html?searchResultPosition=1
+**$2 Million Homes in Tennessee, Texas and Maine**\
+`A Tudor-style home in Nashville, a 1904 Edwardian house in San Antonio and an 1848 Georgian Revival in Bethel.`\
+https://nytimes.com/2022/08/17/realestate/home-prices-tennessee-texas-maine.html?searchResultPosition=1
 
-**Watch NASA’s Moon Rocket Roll to the Launchpad**\
-`NASA’s Space Launch System moon rocket began its slow crawl toward the launchpad, ahead of schedule. The target date for its uncrewed maiden flight is Aug. 29.`\
-https://nytimes.com/video/science/space/100000008492030/nasas-artemis-moon-rocket-roll-out-launchpad.html?searchResultPosition=2
+**What You Get for $2 Million**\
+`A Tudor-style home in Nashville; an Edwardian house in San Antonio; and an 1848 Georgian Revival in Bethel, Maine.`\
+https://nytimes.com/slideshow/2022/08/17/realestate/what-you-get-for-2-million.html?searchResultPosition=2
 
-**‘Look Both Ways’ Review: To Be and Not to Be**\
-`This Netflix drama stages a delusion of young womanhood by tracking its heroine down forking paths: one in which she gets pregnant, and one in which she pursues a career.`\
-https://nytimes.com/2022/08/17/movies/look-both-ways-review.html?searchResultPosition=3
+**Willie Nelson’s Long Encore**\
+`As he approaches 90, even brushes with death can’t keep him off the road — or dim a late-life creative burst.`\
+https://nytimes.com/2022/08/17/magazine/willie-nelson.html?searchResultPosition=3
 
-**Staying Cool on Coney Island**\
-`For The New York Times for Kids, two journalists tracked down trends at the famous summer getaway.`\
-https://nytimes.com/2022/08/17/insider/staying-cool-on-coney-island.html?searchResultPosition=4
+**Mexico Sees Its Energy Future in Fossil Fuels, Not Renewables**\
+`The president’s push to bring the energy sector under state control has put up roadblocks to renewable energy and left Mexico’s climate goals behind.`\
+https://nytimes.com/2022/08/17/world/americas/mexico-president-renewable-energy.html?searchResultPosition=4
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/08/17/crosswords/spelling-bee-forum.html?searchResultPosition=5
+**What Liz Cheney’s Lopsided Loss Says About the State of the G.O.P.**\
+`She hoped Jan. 6 would be a turning point for Republicans. And while it did prove to be a dividing line, it was those who crossed Donald J. Trump who have faced electoral consequences.`\
+https://nytimes.com/2022/08/17/us/politics/liz-cheney-republicans.html?searchResultPosition=5
 
-**Inflation in Britain Jumps to 10.1 Percent, Pushed Higher by Food Prices**\
-`The surge in prices is expected to peak in the autumn, when household energy bills are expected to sharply increase.`\
-https://nytimes.com/2022/08/17/business/inflation-uk.html?searchResultPosition=6
+**Harvard’s Arnold Arboretum Is Looking Toward the Next 150 Years**\
+`The 281-acre park, which turns 150 this year, may hold clues on how to navigate an increasingly extreme ecological future.`\
+https://nytimes.com/2022/08/17/realestate/harvards-arnold-arboretum-is-looking-toward-the-next-150-years.html?searchResultPosition=6
 
-**Lisa Murkowski and Kelly Tshibaka Advance in Alaska’s Senate Contest**\
-`Two other candidates, still to be determined, will also move on to the general election in November under a new ranked-choice system.`\
-https://nytimes.com/2022/08/16/us/politics/kelly-tshibaka-murkowski-senate-alaska.html?searchResultPosition=7
+**Giuliani Scheduled to Face Atlanta Grand Jury Investigating Trump**\
+`The former New York mayor has been told that he is a target of the investigation into whether Donald J. Trump and his associates tried to illegally influence the 2020 presidential election results in Georgia.`\
+https://nytimes.com/2022/08/17/us/giuliani-trump-atlanta-ga.html?searchResultPosition=7
 
-**Al Franken Becomes First Former U.S. Senator to Host ‘Jimmy Kimmel Live’**\
-`“But tonight is not about politics, it’s about comedy and having fun,” he said. “So, who’s here from out of state to get an abortion?”`\
-https://nytimes.com/2022/08/17/arts/television/al-franken-jimmy-kimmel-live.html?searchResultPosition=8
+**Reinventing the Humble Tank Top**\
+`The old-fashioned undergarment is enjoying a renaissance.`\
+https://nytimes.com/2022/08/17/style/reinventing-the-humble-tank-top.html?searchResultPosition=8
 
-**Liz Cheney Invokes Lincoln and Grant in Impassioned Concession Speech**\
-`Ms. Cheney said she had called her opponent to concede her loss in a free and fair election, and suggested that her job now, and that of patriotic Americans, was to stand up for the Constitution.`\
-https://nytimes.com/2022/08/17/us/politics/liz-cheney-concession-speech.html?searchResultPosition=9
+**As China’s Economy Stumbles, Homeowners Boycott Mortgage Payments**\
+`In a rare act of defiance, people across the country who bought property from indebted developers are refusing to repay loans on their unfinished apartments.`\
+https://nytimes.com/2022/08/17/business/china-economy-real-estate-crisis.html?searchResultPosition=9
 
-**Your Wednesday Briefing**\
-`Attacks in Crimea.`\
-https://nytimes.com/2022/08/17/briefing/crimea-ukraine-boris-johnson.html?searchResultPosition=10
+**At Last, Online Travel Planning is Becoming (a Little) Easier**\
+`Airbnb, Google Travel and a few other platforms have tweaked their search engines, and that means less slogging through pages and pages of results on everything from home rental options to flight routes.`\
+https://nytimes.com/2022/08/17/travel/online-travel-planning.html?searchResultPosition=10
 
