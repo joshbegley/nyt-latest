@@ -19,7 +19,7 @@ https://nytimes.com/2022/08/17/style/why-is-my-daughters-debt-forgiveness-so-ups
 https://nytimes.com/2022/08/17/us/berkeley-peoples-park.html?searchResultPosition=5
 
 **Liz Cheney Says She’s ‘Thinking’ About Running for President in 2024**\
-`Ms. Cheney, who lost heavily in her Wyoming primary on Tuesday, acknowledged that she was considering a White House bid. She also announced a new political action committee.`\
+`Ms. Cheney, who lost heavily in her Wyoming primary on Tuesday, acknowledged on NBC’s “Today Show” that she was considering a White House bid. She also announced a new political action committee.`\
 https://nytimes.com/2022/08/17/us/politics/liz-cheney-2024-president.html?searchResultPosition=6
 
 **House Hunting in Switzerland: Mediterranean Flair on Lake Lugano**\
