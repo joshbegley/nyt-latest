@@ -34,7 +34,7 @@ https://nytimes.com/2022/08/17/world/europe/britain-inflation-prices.html?search
 `Incensed when two others won the Nobel Prize for the science behind the invention, he took out a newspaper ad that called his exclusion a “shameful wrong that must be righted.”`\
 https://nytimes.com/2022/08/17/science/raymond-damadian-dead.html?searchResultPosition=9
 
-**Federal Reserve officials see inflation staying ‘uncomfortably high.’**\
+**Federal Reserve Officials See Inflation Staying ‘Uncomfortably High’**\
 `Minutes from the Fed’s meeting in July showed officials remain committed to raising rates until inflation cools meaningfully.`\
 https://nytimes.com/2022/08/17/business/federal-reserve-minutes.html?searchResultPosition=10
 
