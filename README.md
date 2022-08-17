@@ -7,7 +7,7 @@ https://nytimes.com/2022/08/17/sports/fame-boxing-christy-martin.html?searchResu
 https://nytimes.com/2022/08/17/sports/basketball/fame-jamad-fiin-internet-basketball.html?searchResultPosition=2
 
 **Kamila Valieva, Supernova**\
-`By Juliet Macur`\
+`The Russian teenager was the star of the Beijing Olympics, but disappeared in a flash.`\
 https://nytimes.com/2022/08/17/sports/olympics/fame-kamila-valieva-figure-skating.html?searchResultPosition=3
 
 **A Break That Never Fully Heals**\
