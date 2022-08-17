@@ -2,7 +2,7 @@
 `After Covid disparities sent people across borders in search of vaccines, the European Union tried to create a level playing field. But it’s still far from complete.`\
 https://nytimes.com/2022/08/17/world/europe/monkeypox-vaccine-inequality-europe.html?searchResultPosition=1
 
-**‘Now the real work begins’: Liz Cheney lost her election but vows to dig deeper on the Jan. 6 mission.**\
+**‘Now the real work begins’: Liz Cheney lost her election but vows to dig deeper into the Jan. 6 mission.**\
 `Ms. Cheney vowed to use her post on the House committee investigating Jan. 6 to continue prosecuting the public case against former President Donald J. Trump.`\
 https://nytimes.com/2022/08/17/us/politics/liz-cheney-jan-6.html?searchResultPosition=2
 
