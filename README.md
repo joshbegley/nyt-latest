@@ -35,6 +35,6 @@ https://nytimes.com/video/us/elections/100000008491933/liz-cheney-loses-wyoming-
 https://nytimes.com/2022/08/16/opinion/liz-cheney-wyoming.html?searchResultPosition=9
 
 **Liz Cheney Is Defeated by Trump-Backed Harriet Hageman in Wyoming**\
-`Ms. Hageman’s easy victory means Ms. Cheney will soon lose her perch in Congress, where she has been fighting a figure she believes poses a grave threat to American democracy.`\
+`Ms. Hageman’s easy victory was a blunt repudiation of Ms. Cheney and her relentless campaign to stop Donald J. Trump. Ms. Cheney vowed to not let up.`\
 https://nytimes.com/2022/08/16/us/politics/harriet-hageman-liz-cheney-wyoming.html?searchResultPosition=10
 
