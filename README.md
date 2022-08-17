@@ -1,6 +1,6 @@
 **Catskills Hotel That Inspired ‘Dirty Dancing’ Suffers Devastating Fire**\
 `The Grossinger’s Catskill Resort Hotel had served as a vibrant summertime getaway for generations. But in recent decades, it had been abandoned.`\
-https://nytimes.com/2022/08/17/nyregion/catskills-hotel-fire-dirty-dancing.html?searchResultPosition=1
+https://nytimes.com/2022/08/17/nyregion/catskills-grossinger-hotel-fire-dirty-dancing.html?searchResultPosition=1
 
 **How Chewing Shaped Human Evolution**\
 `An experiment revealed that chomping on slightly tougher material requires markedly more energy. Spending less time on mastication may go hand in hand with human evolution.`\
