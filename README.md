@@ -1,4 +1,4 @@
-**German Gas Provider Reports €12 Billion Loss as Russia Slashes Deliveries**\
+**German Utility Reports Huge Loss as Russia Slashes Gas Flows**\
 `Uniper, Germany’s largest importer of natural gas, has had to pay high prices for gas on the open market to make up for the drop in Russian deliveries.`\
 https://nytimes.com/2022/08/17/business/uniper-earnings.html?searchResultPosition=1
 
