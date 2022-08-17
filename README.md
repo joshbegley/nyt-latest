@@ -34,7 +34,7 @@ https://nytimes.com/2022/08/17/style/reinventing-the-humble-tank-top.html?search
 `In a rare act of defiance, people across the country who bought property from indebted developers are refusing to repay loans on their unfinished apartments.`\
 https://nytimes.com/2022/08/17/business/china-economy-real-estate-crisis.html?searchResultPosition=9
 
-**At Last, Online Travel Planning is Becoming (a Little) Easier**\
+**At Last, Online Travel Planning Is Becoming (a Little) Easier**\
 `Airbnb, Google Travel and a few other platforms have tweaked their search engines, and that means less slogging through pages and pages of results on everything from home rental options to flight routes.`\
 https://nytimes.com/2022/08/17/travel/online-travel-planning.html?searchResultPosition=10
 
