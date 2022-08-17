@@ -8,7 +8,7 @@ https://nytimes.com/slideshow/2022/08/17/realestate/living-in-stone-ridge-ny.htm
 
 **Was I Vaccinated Against Polio? Young Adults Wonder.**\
 `Did you text Mom recently asking if you had been vaccinated against polio? So did we.`\
-https://nytimes.com/2022/08/17/us/polio-vaccine-history-millennials.html?searchResultPosition=3
+https://nytimes.com/2022/08/17/health/polio-vaccine-history-millennials.html?searchResultPosition=3
 
 **The Summer of Airline Chaos**\
 `What is behind the turmoil that has defined the last few months of plane travel?`\
