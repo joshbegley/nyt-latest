@@ -11,7 +11,7 @@ https://nytimes.com/2022/08/17/insider/staying-cool-on-coney-island.html?searchR
 https://nytimes.com/2022/08/17/crosswords/spelling-bee-forum.html?searchResultPosition=3
 
 **Inflation in Britain Jumps to 10.1 Percent, Pushed Higher by Food Prices**\
-`The surge in prices is expected to peak in the autumn, when household energy bills are set to sharply increase.`\
+`The surge in prices is expected to peak in the autumn, when household energy bills are expected to sharply increase.`\
 https://nytimes.com/2022/08/17/business/inflation-uk.html?searchResultPosition=4
 
 **Lisa Murkowski and Kelly Tshibaka Advance in Alaska’s Senate Contest**\
