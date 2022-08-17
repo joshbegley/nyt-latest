@@ -19,7 +19,7 @@ https://nytimes.com/2022/08/17/world/africa/angola-president-jose-eduardo-dos-sa
 https://nytimes.com/2022/08/17/us/texas-school-books-removed-bible.html?searchResultPosition=5
 
 **CVS, Walgreens and Walmart Must Pay $650.5 Million in Ohio Opioids Case**\
-`A federal judge ordered the big pharmacy chains to bear about one-third of the responsibility for fueling a deadly drug crisis.`\
+`A federal judge ordered the big pharmacy chains to bear partial responsibility for the deadly drug crisis.`\
 https://nytimes.com/2022/08/17/health/opioids-cvs-walmart-walgreens.html?searchResultPosition=6
 
 **Plea Deal Requires Weisselberg to Testify at Trump Organization Trial**\
