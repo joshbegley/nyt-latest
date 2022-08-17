@@ -35,6 +35,6 @@ https://nytimes.com/2022/08/17/briefing/crimea-ukraine-boris-johnson.html?search
 https://nytimes.com/2022/08/17/nyregion/the-mtas-money-woes.html?searchResultPosition=9
 
 **Behind Enemy Lines, Ukrainians Tell Russians ‘You Are Never Safe’**\
-`Clandestine resistance cells are spotting targets, sabotaging rail lines and killing those deemed collaborators as they seek to terrorize Russian forces.`\
+`Clandestine resistance cells are spotting targets, sabotaging rail lines and killing those deemed collaborators as they seek to unnerve Russian forces.`\
 https://nytimes.com/2022/08/17/world/europe/ukraine-partisans-insurgency-russia.html?searchResultPosition=10
 
