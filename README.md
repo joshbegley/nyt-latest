@@ -1,4 +1,4 @@
-**What to Know About the West Nile Virus in New York**\
+**What to Know About the West Nile Virus in New York City**\
 `The city recorded its highest number of infected mosquitoes at 1,068 positive pools across the five boroughs compared to 779 at this time last year, according to the health department.`\
 https://nytimes.com/article/west-nile-virus-nyc.html?searchResultPosition=1
 
