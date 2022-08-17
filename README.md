@@ -2,8 +2,8 @@
 `A conservative cancel culture as unforgiving as its progressive rival is sweeping over the Wyoming G.O.P.`\
 https://nytimes.com/2022/08/16/opinion/liz-cheney-wyoming.html?searchResultPosition=1
 
-**Liz Cheney Concedes Defeat to Trump-Backed Harriet Hageman**\
-`Ms. Hageman’s victory in Wyoming means Ms. Cheney will soon lose her perch in Congress, where she has been fighting a figure she believes poses a grave threat to American democracy.`\
+**Liz Cheney Is Defeated by Trump-Backed Harriet Hageman in Wyoming**\
+`Ms. Hageman’s easy victory means Ms. Cheney will soon lose her perch in Congress, where she has been fighting a figure she believes poses a grave threat to American democracy.`\
 https://nytimes.com/2022/08/16/us/politics/harriet-hageman-liz-cheney-wyoming.html?searchResultPosition=2
 
 **Read Vanessa Bryant’s Lawsuit**\
