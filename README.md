@@ -7,7 +7,7 @@ https://nytimes.com/2022/08/18/sports/football/aqib-talib-brother-shooting.html?
 https://nytimes.com/2022/08/18/briefing/trump-search-affidavit-tiktok-audio-meme.html?searchResultPosition=2
 
 **Abdul Wadud, Cellist Who Crossed Musical Boundaries, Dies at 75**\
-`He worked with classical ensembles, but he was best known for his work with cutting-edge composers and improvisers like Anthony Davis and Julius Hemphill.`\
+`He performed with classical ensembles, but he was best known for his work with cutting-edge composers and improvisers like Anthony Davis and Julius Hemphill.`\
 https://nytimes.com/2022/08/18/arts/music/abdul-wadud-dead.html?searchResultPosition=3
 
 **Columbia Names a New Dean for Its Architecture School**\
