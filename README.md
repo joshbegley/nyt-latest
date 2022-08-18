@@ -11,7 +11,7 @@ https://nytimes.com/2022/08/18/health/minoxidil-hair-loss-pills.html?searchResul
 https://nytimes.com/2022/08/18/obituaries/norah-vincent-dead.html?searchResultPosition=3
 
 **Editor’s Note**\
-`HBO’s long-awaited prequel series has the swords and the dragon flame, the Hand and the Iron Throne. But something’s missing.`\
+`This article was published in error.`\
 https://nytimes.com/2022/08/18/arts/television/published-in-error.html?searchResultPosition=4
 
 **Polio Was Almost Eradicated. This Year It Staged a Comeback.**\
