@@ -3,7 +3,7 @@
 https://nytimes.com/2022/08/18/world/australia/new-zealand-homicide-children-suitcase.html?searchResultPosition=1
 
 **Bruce Reinhart, the Magistrate Judge Who Approved the Mar-a-Lago Search**\
-`Judge Reinhart has faced a wave of criticism, disinformation and online threats over his involvement in the F.B.I.’s raid.`\
+`Judge Reinhart has faced a wave of criticism, disinformation and online threats over his involvement in the F.B.I.’s search.`\
 https://nytimes.com/2022/08/18/us/politics/judge-bruce-reinhart-trump-mar-a-lago.html?searchResultPosition=2
 
 **Ukraine and Russia Accuse Each Other of Plotting Attack on Nuclear Plant**\
