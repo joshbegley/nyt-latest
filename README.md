@@ -10,7 +10,7 @@ https://nytimes.com/2022/08/18/health/minoxidil-hair-loss-pills.html?searchResul
 `Her best-selling 2006 book about that experience, “Self-Made Man,” made her a media darling. But it cost her psychologically.`\
 https://nytimes.com/2022/08/18/obituaries/norah-vincent-dead.html?searchResultPosition=3
 
-**This article was published in error.**\
+**Editor’s Note**\
 `HBO’s long-awaited prequel series has the swords and the dragon flame, the Hand and the Iron Throne. But something’s missing.`\
 https://nytimes.com/2022/08/18/arts/television/published-in-error.html?searchResultPosition=4
 
