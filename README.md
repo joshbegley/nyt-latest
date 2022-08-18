@@ -10,7 +10,7 @@ https://nytimes.com/2022/08/18/world/europe/estonia-cyber-attack-russia.html?sea
 `Union leaders representing railway workers joined the picket line in the protracted face-off between unions and railway companies over wage disparities and pensions.`\
 https://nytimes.com/video/world/europe/100000008494008/uk-train-strikes.html?searchResultPosition=3
 
-**Watson Suspended 11 Games, Fined $5 Million in Sexual Misconduct Case**\
+**Watson Suspended 11 Games and Fined $5 Million in Sexual Misconduct Case**\
 `The N.F.L. was seeking a yearlong suspension, but reached a settlement with the quarterback after an arbitrator recommended a six-game penalty.`\
 https://nytimes.com/2022/08/18/sports/football/deshaun-watson-suspension-11-games.html?searchResultPosition=4
 
