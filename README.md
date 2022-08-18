@@ -4,7 +4,7 @@ https://nytimes.com/interactive/2022/08/18/business/tesla-crash-data.html?search
 
 **Daryl McCormack Has More Than Luck on His Side**\
 `The Irish actor’s performance as a sympathetic sex worker in “Good Luck, Leo Grande” this summer “has definitely opened up doors for me,” he said. Next up is the Apple TV+ series “Bad Sisters.”`\
-https://nytimes.com/2022/08/18/arts/television/daryl-mccormack-has-more-than-luck-on-his-side.html?searchResultPosition=2
+https://nytimes.com/2022/08/18/arts/television/daryl-mccormack-bad-sisters.html?searchResultPosition=2
 
 **Facebook and Instagram Remove Robert Kennedy Jr.’s Nonprofit for Misinformation**\
 `Facebook said that Children’s Health Defense, a group led by Mr. Kennedy, an anti-vaccine activist, had “repeatedly” violated its guidelines by spreading medical misinformation.`\
