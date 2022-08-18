@@ -11,7 +11,7 @@ https://nytimes.com/2022/08/18/science/pfas-forever-chemicals.html?searchResultP
 https://nytimes.com/interactive/2022/08/18/smarter-living/wirecutter/induction-cooktops.html?searchResultPosition=3
 
 **CNN Cancels ‘Reliable Sources,’ and Host Brian Stelter Will Depart**\
-`Chris Licht, the new chairman of CNN, has told employees that he was retooling the network’s programming.`\
+`Chris Licht, the new chairman of CNN, has told employees that he is retooling the network’s programming.`\
 https://nytimes.com/2022/08/18/business/media/cnn-brian-stelter-reliable-sources.html?searchResultPosition=4
 
 **A Conductor Comes Into His Own in the Opera Pit**\
