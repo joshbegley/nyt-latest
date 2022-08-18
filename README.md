@@ -15,7 +15,7 @@ https://nytimes.com/2022/08/18/arts/television/better-call-saul-ariel-levine-kat
 https://nytimes.com/2022/08/18/briefing/russia-ukraine-war-un-greece.html?searchResultPosition=4
 
 **A Repeat of Covid: Data Show Racial Disparities in Monkeypox Response**\
-`New York City has released new data showing that white men have outstripped Black men in getting monkeypox vaccines, even though they’re less likely to become infected.`\
+`New York City has released new data showing that Black men have received far fewer monkeypox vaccines than their share of the at-risk population.`\
 https://nytimes.com/2022/08/18/nyregion/monkeypox-vaccine-racial-disparities.html?searchResultPosition=5
 
 **‘I Have Nothing Left’: Flooding Adds to Afghanistan’s Crises**\
