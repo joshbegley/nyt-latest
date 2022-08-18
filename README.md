@@ -1,6 +1,6 @@
 **Woman Testifies R. Kelly Sexually Abused Her on Video When She Was 14**\
 `The woman testified at the singer’s federal trial in Chicago that she had been persuaded not to testify against him at his 2008 state trial, which ended in his acquittal.`\
-https://nytimes.com/2022/08/18/arts/music/r-kelly-videotapoe-victim.html?searchResultPosition=1
+https://nytimes.com/2022/08/18/arts/music/r-kelly-victim-testimony.html?searchResultPosition=1
 
 **How to Cope With Fall Anxiety**\
 `As the most carefree weeks of the year draw to a close, pay close attention to your emotions. They might be telling you something useful.`\
