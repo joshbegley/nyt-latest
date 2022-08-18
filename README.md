@@ -35,6 +35,6 @@ https://nytimes.com/interactive/2022/08/18/business/tesla-crash-data.html?search
 https://nytimes.com/2022/08/18/arts/television/daryl-mccormack-bad-sisters.html?searchResultPosition=9
 
 **Facebook and Instagram Remove Robert Kennedy Jr.’s Nonprofit for Misinformation**\
-`Facebook said that Children’s Health Defense, a group led by Mr. Kennedy, an anti-vaccine activist, had “repeatedly” violated its guidelines by spreading medical misinformation.`\
+`The social networking company said that Children’s Health Defense, a group led by Mr. Kennedy, an anti-vaccine activist, had “repeatedly” violated its guidelines by spreading medical misinformation.`\
 https://nytimes.com/2022/08/18/technology/facebook-instagram-robert-kennedy-jr-misinformation.html?searchResultPosition=10
 
