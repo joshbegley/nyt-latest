@@ -1,6 +1,6 @@
-**All three election officials resigned in a Texas county, citing death threats.**\
+**All three election officials resigned in a Texas county, with at least one citing death threats.**\
 `Gillespie County, which President Donald J. Trump won by 59 percentage points in 2020, was left without an election staff. The state planned to help.`\
-https://nytimes.com/2022/08/18/us/politics/gillespie-county-elections.html?searchResultPosition=1
+https://nytimes.com/2022/08/18/us/politics/texas-gillespie-elections-resign.html?searchResultPosition=1
 
 **Social Media Was a C.E.O.’s Bullhorn, and How He Lured Women**\
 `Dan Price was applauded for paying a minimum salary of $70,000 at his Seattle company and criticizing corporate greed. The adulation helped to hide and enable his behavior.`\
