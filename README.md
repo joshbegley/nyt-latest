@@ -35,6 +35,6 @@ https://nytimes.com/2022/08/17/todayspaper/quotation-of-the-day-library-prized-i
 https://nytimes.com/2022/08/17/opinion/republicans-cheney-trump-democracy.html?searchResultPosition=9
 
 **Famous, but Not Free**\
-`By Remy Tumin`\
+`Christy Martin, 54, is largely credited with legitimizing female boxing in the modern era. She also secretly lived a tortured life, and her husband nearly killed her.`\
 https://nytimes.com/2022/08/17/sports/fame-boxing-christy-martin.html?searchResultPosition=10
 
