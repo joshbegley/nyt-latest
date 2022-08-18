@@ -26,15 +26,15 @@ https://nytimes.com/2022/08/18/obituaries/hanae-mori-dead.html?searchResultPosit
 `Noah said her defeat in a primary was “the chance for Wyoming Republicans to declare whether they stood with Liz Cheney or with Donald Trump, and they answered bigly.”`\
 https://nytimes.com/2022/08/18/arts/television/trevor-noah-liz-cheney.html?searchResultPosition=7
 
+**In Bucha, burials continue for victims of wartime atrocities.**\
+`By Lynsey Addario and Marc Santora`\
+https://nytimes.com/2022/08/18/world/europe/in-bucha-burials-continue-for-the-victims-of-wartime-atrocities.html?searchResultPosition=8
+
 **No One Will Get Rid of Putin**\
 `Terror is always more persuasive than anything else.`\
-https://nytimes.com/2022/08/18/opinion/russia-putin-corruption.html?searchResultPosition=8
+https://nytimes.com/2022/08/18/opinion/russia-putin-corruption.html?searchResultPosition=9
 
 **Your Thursday Briefing**\
 `Global inflation woes.`\
-https://nytimes.com/2022/08/18/briefing/inflation-ukraine-monkeypox.html?searchResultPosition=9
-
-**The Robin to Trump’s Batman Is Expected to Make a Plea Deal**\
-`Allen Weisselberg, who is poised to plead guilty in a tax scheme today, has been called a loyal soldier to Donald Trump.`\
-https://nytimes.com/2022/08/18/nyregion/the-robin-to-trumps-batman-is-expected-to-make-a-plea-deal.html?searchResultPosition=10
+https://nytimes.com/2022/08/18/briefing/inflation-ukraine-monkeypox.html?searchResultPosition=10
 
