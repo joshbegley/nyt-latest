@@ -23,7 +23,7 @@ https://nytimes.com/2022/08/18/arts/music/james-gaffigan-conductor.html?searchRe
 https://nytimes.com/2022/08/18/books/review/11-new-books-we-recommend-this-week.html?searchResultPosition=6
 
 **July Weather Was Too Hot, Too Dry or Too Wet**\
-`Parts of Texas saw 40 consecutive days of temperatures above 100 degrees Fahrenheit, while flash flooding in Kentucky was part of the state's 4th wettest July.`\
+`Parts of Texas saw 40 consecutive days of temperatures above 100 degrees Fahrenheit, while flash flooding in Kentucky was part of the state's 4th wettest July. `\
 https://nytimes.com/interactive/2022/08/18/climate/noaa-climate-july.html?searchResultPosition=7
 
 **Milady’s, One of SoHo’s Last Dive Bars, Is Reborn With Craft Cocktails**\
