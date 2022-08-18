@@ -14,7 +14,7 @@ https://nytimes.com/2022/08/18/nyregion/andrew-maloney-dead.html?searchResultPos
 `Test your knowledge of this week’s health news.`\
 https://nytimes.com/interactive/2022/08/18/well/live/18HealthQuiz-08182022.html?searchResultPosition=4
 
-**Starbucks Is Ordered to Reinstate Fired Activist Employees.**\
+**Starbucks Is Ordered to Reinstate Fired Activist Employees**\
 `A judge gave the company five days to bring back seven workers who were fired after their efforts to unionize a branch in Memphis.`\
 https://nytimes.com/2022/08/18/business/starbucks-reinstate-union-workers.html?searchResultPosition=5
 
