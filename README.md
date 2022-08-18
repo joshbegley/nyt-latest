@@ -26,13 +26,13 @@ https://nytimes.com/2022/08/18/travel/alaska-cruises-return.html?searchResultPos
 `In a frenzied effort, investors are trying to recover lost funds from Celsius Network, a crypto firm that imploded this summer.`\
 https://nytimes.com/2022/08/18/technology/crypto-crash-investments.html?searchResultPosition=7
 
-**Why Drivers Could Soon Pay $23 to Reach Manhattan**\
-`New York City wants to reduce emissions, tackle congestion and increase transit investment. Experts say the plan is critical to the region’s long-term health.`\
-https://nytimes.com/2022/08/18/nyregion/nyc-congestion-pricing-manhattan.html?searchResultPosition=8
-
 **My Abortion at 11 Wasn’t a Choice. It Was My Life.**\
 `If I had been forced to give birth as a child, my life would not have been my own.`\
-https://nytimes.com/2022/08/18/opinion/abortion-pregnancy-child-roe.html?searchResultPosition=9
+https://nytimes.com/2022/08/18/opinion/abortion-pregnancy-child-roe.html?searchResultPosition=8
+
+**Why Drivers Could Soon Pay $23 to Reach Manhattan**\
+`New York City wants to reduce emissions, tackle congestion and increase transit investment. Experts say the plan is critical to the region’s long-term health.`\
+https://nytimes.com/2022/08/18/nyregion/nyc-congestion-pricing-manhattan.html?searchResultPosition=9
 
 **Another Trump Mystery: Why Did He Resist Returning the Government’s Documents?**\
 `As with so much else with the former president, there is not one easy answer as to why he refused and ignited a legal firestorm. But here are some possibilities.`\
