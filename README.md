@@ -12,7 +12,7 @@ https://nytimes.com/2022/08/18/arts/design/columbia-university-dean-architecture
 
 **Prosecutor Loses Police Watchdog Offer Over Harassment Allegations**\
 `Charles M. Guria, who had investigated police corruption and helped reform stop-and-frisk tactics, denied a news report that claimed sexual harassment.`\
-https://nytimes.com/2022/08/18/nyregion/prosecutor-loses-police-watchdog-offer-over-harassment-allegations.html?searchResultPosition=4
+https://nytimes.com/2022/08/18/nyregion/prosecutor-police-watchdog-harassment.html?searchResultPosition=4
 
 **All three election officials resigned in a Texas county, with at least one citing death threats.**\
 `Gillespie County, which President Donald J. Trump won by 59 percentage points in 2020, was left without an election staff. The state planned to help.`\
