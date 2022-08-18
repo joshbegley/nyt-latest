@@ -4,7 +4,7 @@ https://nytimes.com/2022/08/18/sports/football/deshaun-watson-suspension-11-game
 
 **Read Los Angeles County’s Trial Brief in the Bryant Case**\
 `Los Angeles County presented some of the key points of its defense to Vanessa Bryant’s lawsuit in a trial brief.`\
-https://nytimes.com/interactive/2022/08/18/sports/basketball/nba-bryant-explainer-countybrief.html?searchResultPosition=2
+https://nytimes.com/interactive/2022/08/18/sports/basketball/nba-vanessa-bryant-trial-brief.html?searchResultPosition=2
 
 **What’s Cooler Than Being Cool? These Cocktails.**\
 `Three stunning coolers make expert use of herbs, fruit juice and citrus to see you through the final balmy days of summer.`\
