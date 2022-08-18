@@ -18,7 +18,7 @@ https://nytimes.com/2022/08/18/arts/television/published-in-error.html?searchRes
 `Before its discovery in New York’s wastewater, the virus made a series of ominous appearances around the world.`\
 https://nytimes.com/2022/08/18/health/polio-new-york-malawi.html?searchResultPosition=5
 
-**Judge Orders Justice Dept. to Redact and Release Version of Affidavit Used to Search Trump’s Home**\
+**Judge Orders Justice Dept. to Redact Affidavit Used to Search Trump’s Home in Advance of Possible Unsealing**\
 `The hearing emerged from an effort last week by a coalition of news organizations to unseal the affidavit submitted in support of the search warrant.`\
 https://nytimes.com/2022/08/18/us/politics/trump-fbi-affidavit-warrant.html?searchResultPosition=6
 
