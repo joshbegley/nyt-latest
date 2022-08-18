@@ -19,7 +19,7 @@ https://nytimes.com/2022/08/18/arts/television/published-in-error.html?searchRes
 https://nytimes.com/2022/08/18/health/polio-new-york-malawi.html?searchResultPosition=5
 
 **Judge Orders Justice Dept. to Redact Affidavit Used to Search Trump’s Home in Advance of Possible Unsealing**\
-`The hearing emerged from an effort last week by a coalition of news organizations to unseal the affidavit submitted in support of the search warrant.`\
+`The hearing emerged from an effort by news organizations to unseal the affidavit submitted in support of the search warrant. Any public version of the affidavit is likely to be heavily redacted.`\
 https://nytimes.com/2022/08/18/us/politics/trump-fbi-affidavit-warrant.html?searchResultPosition=6
 
 **‘Beast’ Review: More Bore Than Roar**\
