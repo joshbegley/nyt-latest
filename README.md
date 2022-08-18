@@ -1,40 +1,40 @@
-**Why the California Dream Long Included a Lawn**\
-`More homeowners are ripping out their lawns, marking the twilight of a signature symbol of Southern California homeownership.`\
-https://nytimes.com/2022/08/18/us/california-lawns.html?searchResultPosition=1
+**Homes for Sale in New York and New Jersey**\
+`This week’s properties are five-bedroom homes in Atlantic Highlands, N.J., and Orangeburg, N.Y.`\
+https://nytimes.com/2022/08/18/realestate/homes-for-sale-in-new-york-and-new-jersey.html?searchResultPosition=1
 
-**How can aviation fly toward net zero?**\
-`The freedom and adventure that come from taking to the skies entail an environmental price tag.`\
-https://nytimes.com/paidpost/bp/energy-trilemma/how-can-aviation-fly-toward-net-zero.html?searchResultPosition=2
+**Homes for Sale in Brooklyn and Manhattan**\
+`This week’s properties are in Brooklyn Heights, Harlem and Battery Park City.`\
+https://nytimes.com/2022/08/18/realestate/homes-for-sale-in-brooklyn-and-manhattan.html?searchResultPosition=2
 
-**‘Delia’s Gone’ Review: A False Conviction in a Hardscrabble Town**\
-`A man aims to find his sister’s real killer.`\
-https://nytimes.com/2022/08/18/movies/delias-gone-review.html?searchResultPosition=3
+**On the Market in the New York Region**\
+`This week’s properties are five-bedroom homes in Atlantic Highlands, N.J., and Orangeburg, N.Y.`\
+https://nytimes.com/slideshow/2022/08/18/realestate/on-the-market-in-the-new-york-region.html?searchResultPosition=3
 
-**Review: ‘Dragon Ball Super: Super Hero’ Is Deluxe Fan Service**\
-`In the latest “Dragon Ball” outing, directed by Tetsuro Kodama and written by the series creator, Akira Toriyama, the menacing villain is a pair of state-of-the-art androids.`\
-https://nytimes.com/2022/08/18/movies/review-dragon-ball-super-super-hero.html?searchResultPosition=4
+**On the Market in New York City**\
+`This week’s properties are in Brooklyn Heights, Harlem and Battery Park City.`\
+https://nytimes.com/slideshow/2022/08/18/realestate/on-the-market-in-new-york-city.html?searchResultPosition=4
 
-**‘The Legend of Molly Johnson’ Review: Reclaiming the Australian Frontier**\
-`A stoic frontier woman harbors an Aboriginal fugitive in this earnest and didactic western.`\
-https://nytimes.com/2022/08/18/movies/the-legend-of-molly-johnson-review.html?searchResultPosition=5
+**How the Chile Became Hot**\
+`Why did the consumption of hot peppers — after centuries of cultivation and global migration — come to confer status and sophistication?`\
+https://nytimes.com/2022/08/18/t-magazine/hot-chiles-pepper-spice.html?searchResultPosition=5
 
-**‘The Territory’ Review: Saving the Amazon, One Camera at a Time**\
-`This documentary is a thrilling look at an Indigenous group’s fight to keep illegal settlers from destroying their land in the Amazon rainforest.`\
-https://nytimes.com/2022/08/18/movies/the-territory-review.html?searchResultPosition=6
+**Looking for Love in the Metaverse**\
+`Avatars, dating services and “phantom touch” — what it’s like to date in virtual reality.`\
+https://nytimes.com/2022/08/18/style/virtual-dating-metaverse.html?searchResultPosition=6
 
-**‘Three Minutes: A Lengthening’ Review: A Ghost Story**\
-`Using footage from a three-minute amateur movie shot in 1938, this rousing documentary about a Jewish town in Poland is a haunting meditation on the memory of the Holocaust.`\
-https://nytimes.com/2022/08/18/movies/three-minutes-a-lengthening-review.html?searchResultPosition=7
+**Lily James Experiences Beaches a Little Differently Now**\
+`Her Emmy-nominated role in “Pam & Tommy” gave her a new appreciation for the many complications of being Pamela Anderson.`\
+https://nytimes.com/2022/08/18/arts/television/emmy-lily-james-pam-and-tommy.html?searchResultPosition=7
 
-**‘The Immaculate Room’ Review: A Blank Slate**\
-`In this drama, a couple tries to live in a stark room with no distractions for 50 days.`\
-https://nytimes.com/2022/08/18/movies/the-immaculate-room-review.html?searchResultPosition=8
+**A Lodge for All Seasons Nestled at the Foot of a Mountain**\
+`Plus: tennis bracelets made in collaboration with Chris Evert, a guide to body scrubs and more recommendations from T Magazine.`\
+https://nytimes.com/2022/08/18/t-magazine/little-cat-lodge-hudson-valley.html?searchResultPosition=8
 
-**‘Spin Me Round’ Review: Eat Pray Lust**\
-`Alison Brie plays the manager of a restaurant chain whose trip to Italy for a training program does not go as expected.`\
-https://nytimes.com/2022/08/18/movies/spin-me-round-review.html?searchResultPosition=9
+**Chess Replay: You Versus Vaganian**\
+`Take on Rafael Vaganian in a recreation of a Christmas Congress game in Hastings, 1975. Solve for the best series of moves.`\
+https://nytimes.com/2022/08/18/crosswords/chess/chess-replay-you-versus-vaganian.html?searchResultPosition=9
 
-**‘Orphan: First Kill’ Review: Still Slashing After All These Years**\
-`Isabelle Fuhrman, who in “Orphan” had to be convincing as a child of age 9, reprises her role 13 years later in this prequel set two years earlier.`\
-https://nytimes.com/2022/08/18/movies/orphan-first-kill-review.html?searchResultPosition=10
+**There’s a New Billboard in Town, and You Can Walk in**\
+`Tom Wiscombe’s “chapel” on Sunset Boulevard lets passers-by immerse in a streaming world projected onto LED screens outside — and an architectural storm inside.`\
+https://nytimes.com/2022/08/18/arts/design/billboard-sunset-strip-los-angeles-wiscombe-architecture-ads.html?searchResultPosition=10
 
