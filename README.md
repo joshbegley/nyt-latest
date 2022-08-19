@@ -1,4 +1,4 @@
-**White House Lightning Strike Survivor Embraces Third Chance at Life**\
+**Survivor of White House Lightning Strike Embraces Third Chance at Life**\
 `On her 28th birthday, Amber Escudero-Kontostathis was struck by lightning near the White House. Three other people died. Her heart stopped twice, but she lived.`\
 https://nytimes.com/2022/08/19/us/white-house-lightning-survivor.html?searchResultPosition=1
 
