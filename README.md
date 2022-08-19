@@ -6,8 +6,8 @@ https://nytimes.com/2022/08/18/arts/music/r-kelly-victim-testimony.html?searchRe
 `As the most carefree weeks of the year draw to a close, pay close attention to your emotions. They might be telling you something useful.`\
 https://nytimes.com/2022/08/18/well/mind/fall-autumn-anxiety.html?searchResultPosition=2
 
-**DeSantis Announces Election Fraud Arrests**\
-`They were the first by a new office dedicated to pursuing election crimes, but the 17 arrests, said to be of former felons who had voted illegally, came in an election in which 11.1 million Florida residents cast ballots.`\
+**For DeSantis, a Slow Start to Voter Fraud Crackdown**\
+`The 17 arrests announced on Thursday were the first by a new office dedicated to pursuing election crimes. The suspects were said to be former felons who had voted illegally in an election in which 11.1 million Florida residents cast ballots.`\
 https://nytimes.com/2022/08/18/us/desantis-election-voter-fraud.html?searchResultPosition=3
 
 **Mexico Says Disappearance of 43 Students Was a ‘Crime of the State’**\
