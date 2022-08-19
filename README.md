@@ -1,40 +1,40 @@
+**Nafis Sadik, U.N. Official and ‘Proud Champion of Choice,’ Dies at 92**\
+`An obstetrician, she led a groundbreaking effort to put women’s rights to control all aspects of their lives at the heart of the global population debate.`\
+https://nytimes.com/2022/08/19/world/asia/nafis-sadik-dead.html?searchResultPosition=1
+
+**Political Test for Gavin Newsom: Whether to Sign Injection-Site Bill**\
+`California’s Democratic governor has backed progressive causes before, but he faces a tougher call on the bill if national aspirations are on his mind.`\
+https://nytimes.com/2022/08/19/us/gavin-newsom-injection-site-bill.html?searchResultPosition=2
+
+**Manchester United and the Mounting Cost of Failure**\
+`The problem at United is not, and never has been, a lack of money. It is the lack of a plan.`\
+https://nytimes.com/2022/08/19/sports/soccer/manchester-united-glazers.html?searchResultPosition=3
+
+**This Easy One-Pan Chicken Recipe Has a Trick Up Its Sleeve**\
+`If you’re not already trimming your corn kernels off the cob this way, you should be, Melissa Clark writes.`\
+https://nytimes.com/2022/08/19/dining/easy-weeknight-chicken-thighs-corn-recipe.html?searchResultPosition=4
+
+**Review: A Ukrainian Orchestra Speaks With Quiet Intensity**\
+`The Ukrainian Freedom Orchestra, convened just a month ago, shows its defiance with sophistication, craft, rigor and subtlety.`\
+https://nytimes.com/2022/08/19/arts/music/ukrainian-freedom-orchestra.html?searchResultPosition=5
+
 **Lit Trivia: Do You Know These Authors’ First Novels?**\
 `Can you guess the title and author of these classic literary debuts?`\
-https://nytimes.com/interactive/2022/08/19/books/review/first-novels-quiz.html?searchResultPosition=1
+https://nytimes.com/interactive/2022/08/19/books/review/first-novels-quiz.html?searchResultPosition=6
 
 **A judge blocks the workplace provision of Florida’s ‘Stop WOKE Act.’**\
 `The law seeks to determine how all sorts of organizations, including private businesses, can address race, gender and nationality.`\
-https://nytimes.com/2022/08/19/business/judge-blocks-florida-stop-woke.html?searchResultPosition=2
+https://nytimes.com/2022/08/19/business/judge-blocks-florida-stop-woke.html?searchResultPosition=7
 
 **Survivor of White House Lightning Strike Embraces Third Chance at Life**\
 `On her 28th birthday, Amber Escudero-Kontostathis was struck by lightning in Lafayette Square. Three other people died. Her heart stopped twice, but she lived.`\
-https://nytimes.com/2022/08/19/us/white-house-lightning-survivor.html?searchResultPosition=3
+https://nytimes.com/2022/08/19/us/white-house-lightning-survivor.html?searchResultPosition=8
 
 **She Made Glimmerglass a True Festival. Now She’s Moving On.**\
 `During Francesca Zambello’s 12 years as the festival’s leader, she did what she set out to do: took on “complex issues through storytelling and music making.”`\
-https://nytimes.com/2022/08/19/arts/music/francesca-zambello-glimmerglass.html?searchResultPosition=4
+https://nytimes.com/2022/08/19/arts/music/francesca-zambello-glimmerglass.html?searchResultPosition=9
 
 **Fact-Checking Health Claims About the Inflation Reduction Act**\
 `A provision in the law seeking to drive down drug prices has become fodder for misleading claims.`\
-https://nytimes.com/2022/08/19/us/politics/fact-check-health-claims-inflation-reduction-act.html?searchResultPosition=5
-
-**What the U.S. climate law means for the world**\
-`The effects will be felt far beyond America’s borders. We explain.`\
-https://nytimes.com/2022/08/19/climate/us-climate-law-foreign-abroad.html?searchResultPosition=6
-
-**All You Need for This Crisp-Tender Skillet Cake Is Rice and a Little Time**\
-`A gorgeous snack drizzled with honey or a way to shuttle soups, stews or grilled meat from plate to mouth, this simple dish is the best kind of exercise in patience, Yewande Komolafe writes.`\
-https://nytimes.com/2022/08/19/dining/rice-ferment-sinasir-skillet-cake-recipe.html?searchResultPosition=7
-
-**What Remains to Be Said About World War II? Plenty, These Authors Suggest**\
-`Four new books take another look at a conflict that changed history.`\
-https://nytimes.com/2022/08/19/books/review/nimitz-at-war-craig-symonds-james-gavin-gavin-at-war-ernest-andrews-jr-a-machine-gunners-war-bob-moore-prisons-of-war.html?searchResultPosition=8
-
-**Guterres Urges Rich Nations to Aid Global Access to Ukrainian Grain**\
-`António Guterres, the United Nations secretary general, visited Odesa, Ukraine, to witness the progress of a fragile agreement brokered by the U.N. and Turkey that freed up grain Russia had blockaded.`\
-https://nytimes.com/video/world/europe/100000008495535/guterres-odesa-ukraine-grain.html?searchResultPosition=9
-
-**In Two London Plays, Being Black Means Looking From the Outside In**\
-`Black characters in “Mad House” and “The Southbury Child” endure microaggressions and aspersions. The familiar scenarios hit home for our critic.`\
-https://nytimes.com/2022/08/19/theater/black-outsiders-london-plays.html?searchResultPosition=10
+https://nytimes.com/2022/08/19/us/politics/fact-check-health-claims-inflation-reduction-act.html?searchResultPosition=10
 
