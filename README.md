@@ -1,4 +1,4 @@
-**Groups Seek to Block Abortion Vote in Michigan, Citing Typography**\
+**Group Seek to Block Abortion Vote in Michigan, Citing Typography**\
 `The effort is aimed at keeping a constitutional amendment to guarantee abortion rights off the ballot. A voting access measure is also being challenged.`\
 https://nytimes.com/2022/08/19/us/politics/michigan-abortion-amendment.html?searchResultPosition=1
 
