@@ -2,7 +2,7 @@
 `Corrections that appeared in print on Friday, Aug. 19, 2022.`\
 https://nytimes.com/2022/08/18/pageoneplus/corrections-aug-19-2022.html?searchResultPosition=1
 
-**Quotation of the Day: Researchers Alter Genes To Refine Photosynthesis and Improve Crop’s Yield**\
+**Quotation of the Day: Researchers Alter Genes To Refine Photosynthesis And Improve Crop’s Yield**\
 `Quotation of the Day for Friday, Aug. 19, 2022.`\
 https://nytimes.com/2022/08/18/todayspaper/quotation-of-the-day-researchers-alter-genes-to-refine-photosynthesis-and-improve-crops-yield.html?searchResultPosition=2
 
