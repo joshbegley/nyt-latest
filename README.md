@@ -1,40 +1,40 @@
-**Drink Up, Japan Tells Young People. I’ll Pass, Many Reply.**\
-`The country’s tax agency, hoping to reverse the alcohol industry’s pandemic doldrums, is holding a contest to encourage more drinking among the young.`\
-https://nytimes.com/2022/08/19/world/asia/japan-alcohol-contest.html?searchResultPosition=1
+**Workers in the Catskills Can’t Find Housing. Bosses Are Trying to Help.**\
+`Business owners are building employee housing after an influx of transplants from New York City made a tight rental market even tighter.`\
+https://nytimes.com/2022/08/19/realestate/hudson-valley-housing-workers.html?searchResultPosition=1
 
-**Could New Zealand Change Its Name?**\
-`A petition before Parliament asks that the country be called “Aotearoa,” which loosely translates from Maori as the “land of the long white cloud.”`\
-https://nytimes.com/2022/08/19/world/australia/new-zealand-name-change.html?searchResultPosition=2
+**For Former Rebel in West Africa, Her Allegiance Still Lies With Russia**\
+`The Kremlin armed a generation of freedom fighters in Africa, like Joana Gomes, who helped Guinea-Bissau win liberation. So her decision to take Moscow’s side in its war with Ukraine was never in doubt.`\
+https://nytimes.com/2022/08/19/world/africa/guinea-bissau-russia-gomes.html?searchResultPosition=2
 
-**Don’t Worry, We’re Not Actually Monitoring Your Productivity**\
-`Across the country, companies are using tracking software to monitor their employees. A recent Times investigation simulated how the software works — and how it feels to be watched.`\
-https://nytimes.com/2022/08/19/insider/productivity-tracker.html?searchResultPosition=3
+**Trouble in Paradise: Chinese Tourists Left Stranded During Lockdowns**\
+`Tens of thousands of domestic travelers were stuck at their summer vacation destinations after local outbreaks forced them into quarantine.`\
+https://nytimes.com/2022/08/19/business/china-covid-tourists-hainan-lockdown.html?searchResultPosition=3
 
-**More Money for I.R.S. Spurs Conspiracy Theories of ‘Shadow Army’**\
-`The agency will receive $80 billion to hire new agents, modernize technology and expand enforcement as part of the new climate, health and tax law.`\
-https://nytimes.com/2022/08/19/us/politics/irs-biden-cruz.html?searchResultPosition=4
+**Yadier Molina Is Ready for His Next Assignment**\
+`Molina’s retirement will begin with a job managing a team in Venezuela. His qualifications? “I’ve managed for 19 years in the big leagues.”`\
+https://nytimes.com/2022/08/19/sports/baseball/yadier-molina-retire-manager.html?searchResultPosition=4
 
-**‘House of the Dragon’ Review: Domesticating ‘Game of Thrones’**\
-`HBO’s long-awaited prequel series has the swords and the dragon flame, the Hand and the Iron Throne. But something’s missing.`\
-https://nytimes.com/2022/08/19/arts/television/house-of-the-dragon-review.html?searchResultPosition=5
+**Outside Money Floods New York Congressional Races**\
+`Super PACs have spent about $9 million to try to influence the Aug. 23 congressional primaries in New York, more than three times the amount spent in 2018.`\
+https://nytimes.com/2022/08/19/nyregion/super-pac-ny-primaries.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/08/19/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**The Unfinished Business of Michael K. Williams**\
+`The actor who brought Omar to life in “The Wire” had recently devoted himself to anti-violence work in Black communities in Brooklyn. And then he died.`\
+https://nytimes.com/2022/08/19/nyregion/michael-k-williams-brooklyn.html?searchResultPosition=6
 
-**Louis’s Little Brother Rocks On**\
-`Fanny Britt and Isabelle Arsenault’s sequel to their graphic novel “Louis Undercover” turns the music up a notch.`\
-https://nytimes.com/2022/08/19/books/review/fanny-britt-isabelle-arsenault-forever-truffle.html?searchResultPosition=7
+**Help! I’m 93, My Postponed Cruise Has Been Postponed Again, and I’d Like My Money Back.**\
+`A cruise company keeps pushing back its planned journeys, offering credits instead of a refund, and a passenger feels like the ship has sailed on her ability to enjoy a boat trip. Our columnist tries to get her the cash.`\
+https://nytimes.com/2022/08/19/travel/cruise-credit-refund.html?searchResultPosition=7
 
-**U.N. Chief Heads to Odesa, Facing Limits of Influence Over War in Ukraine**\
-`António Guterres, the United Nations secretary general, will witness grain shipments, one of his organization’s most concrete achievements.`\
-https://nytimes.com/2022/08/19/world/europe/united-nations-odesa.html?searchResultPosition=8
+**The Juicy Secrets of Stars That Eat Their Planets**\
+`As scientists study thousands of planets around the galaxy, they are learning more about worlds that get swallowed up by their stars.`\
+https://nytimes.com/2022/08/19/science/stars-planets-engulfment.html?searchResultPosition=8
 
-**Trevor Noah on Trump’s Jailbird Friends**\
-`“Look, if we had more time we could talk about how Trump pretends to be the candidate of law and order. Meanwhile, his friends can fill up an entire prison wing,” Noah joked.`\
-https://nytimes.com/2022/08/19/arts/television/trevor-noah-donald-trump.html?searchResultPosition=9
+**The Mirage of Women’s Freedom in Saudi Arabia**\
+`The West can’t admit that morals are a luxury it can no longer afford with Saudi Arabia, so it points to social reforms that are not all they seem.`\
+https://nytimes.com/2022/08/19/opinion/saudi-arabia-women-rights.html?searchResultPosition=9
 
-**Your Friday Briefing**\
-`Here’s what you need to know.`\
-https://nytimes.com/2022/08/19/briefing/europe-heat-wave-ukraine-nuclear.html?searchResultPosition=10
+**Mohammed Amer Is a Salad Bowl**\
+`Melting pot? The Houston comedian prefers a different analogy for himself. His new Netflix series, “Mo,” cocreated by Ramy Youssef, should help clarify.`\
+https://nytimes.com/2022/08/19/arts/television/mohammed-amer-mo-netflix.html?searchResultPosition=10
 
