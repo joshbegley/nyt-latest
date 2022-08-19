@@ -1,5 +1,5 @@
 **Twitter tells employees they might get only half their annual bonus.**\
-`By Kate Conger and Ryan Mac`\
+`The company blamed its financial performance for the potential bonus cut.`\
 https://nytimes.com/2022/08/19/technology/twitter-annual-bonus.html?searchResultPosition=1
 
 **Sylvia Fowles Wants to See Who She Can Be Without Basketball**\
