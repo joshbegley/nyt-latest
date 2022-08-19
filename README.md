@@ -19,7 +19,7 @@ https://nytimes.com/2022/08/18/arts/music/r-kelly-victim-testimony.html?searchRe
 https://nytimes.com/2022/08/18/well/mind/fall-autumn-anxiety.html?searchResultPosition=5
 
 **DeSantis Hails Voter Fraud Crackdown, but Start Is Slow**\
-`The 17 arrests announced on Thursday were the first by a new office dedicated to pursuing election crimes. The suspects were said to be former felons who had voted illegally in an election in which 11.1 million Florida residents cast ballots.`\
+`The 17 arrests announced on Thursday were the first by a new office dedicated to pursuing election crimes. The suspects were said to be former felons who had voted illegally.`\
 https://nytimes.com/2022/08/18/us/desantis-election-voter-fraud.html?searchResultPosition=6
 
 **Mexico Says Disappearance of 43 Students Was a ‘Crime of the State’**\
