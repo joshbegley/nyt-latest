@@ -34,7 +34,7 @@ https://nytimes.com/2022/08/19/world/africa/guinea-bissau-russia-gomes.html?sear
 `Tens of thousands of domestic travelers were stuck at their summer vacation destinations after local outbreaks forced them into quarantine.`\
 https://nytimes.com/2022/08/19/business/china-covid-tourists-hainan-lockdown.html?searchResultPosition=9
 
-**Yadier Molina Is Ready for His Next Assignment**\
-`Molina’s retirement will begin with a job managing a team in Venezuela. His qualifications? “I’ve managed for 19 years in the big leagues.”`\
-https://nytimes.com/2022/08/19/sports/baseball/yadier-molina-retire-manager.html?searchResultPosition=10
+**The Unfinished Business of Michael K. Williams**\
+`The actor who brought Omar to life in “The Wire” had recently devoted himself to anti-violence work in Black communities in Brooklyn. And then he died.`\
+https://nytimes.com/2022/08/19/nyregion/michael-k-williams-brooklyn.html?searchResultPosition=10
 
