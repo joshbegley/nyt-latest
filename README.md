@@ -23,7 +23,7 @@ https://nytimes.com/2022/08/19/crosswords/spelling-bee-forum.html?searchResultPo
 https://nytimes.com/2022/08/19/books/review/fanny-britt-isabelle-arsenault-forever-truffle.html?searchResultPosition=6
 
 **U.N. Chief Heads to Odesa, Facing Limits of Influence Over War in Ukraine**\
-`António Guterres, the United Nations secretary general, will witness  grain shipments, one of his organization’s most concrete achievements.`\
+`António Guterres, the United Nations secretary general, will witness grain shipments, one of his organization’s most concrete achievements.`\
 https://nytimes.com/2022/08/19/world/europe/united-nations-odesa.html?searchResultPosition=7
 
 **Trevor Noah on Trump’s Jailbird Friends**\
