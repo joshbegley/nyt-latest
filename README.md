@@ -19,7 +19,7 @@ https://nytimes.com/2022/08/19/opinion/democrats-economics.html?searchResultPosi
 https://nytimes.com/2022/08/19/us/politics/desantis-mastriano-jd-vance.html?searchResultPosition=5
 
 **A Famous Walrus Is Killed, and Norwegians Are Divided**\
-`The killing of Freya has polarized Oslo and threatens to blight the image of a country more commonly associated diplomatic good deeds than mob-like hits.`\
+`The killing of Freya has polarized Oslo and threatens to blight the image of a country more commonly associated with diplomatic good deeds than mob-like hits.`\
 https://nytimes.com/2022/08/19/world/europe/norway-walrus-freya-killed.html?searchResultPosition=6
 
 **TikTok Browser Can Track Users’ Keystrokes, According to New Research**\
