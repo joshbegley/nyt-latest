@@ -1,40 +1,40 @@
-**Quotation of the Day: When a Key New York Primary Cuts Into Voters’ Beach Time**\
-`Quotation of the Day for Saturday, Aug. 20, 2022.`\
-https://nytimes.com/2022/08/20/todayspaper/quotation-of-the-day-when-a-key-new-york-primary-cuts-into-voters-beach-time.html?searchResultPosition=1
+**Stacey Abrams’ Personal Evolution on Abortion Rights**\
+`The Georgia Democrat, a child of Methodist preachers, once identified as an abortion foe. Now, she is putting her defense of abortion rights — and the story of her conversion — at the center of her campaign for governor.`\
+https://nytimes.com/2022/08/20/us/politics/stacey-abrams-abortion-georgia.html?searchResultPosition=1
 
-**How the Find My App Became an Accidental Friendship Fixture**\
-`Introduced 10 years ago, the app has slowly become a popular way to keep track of friends. But it comes with considerable privacy concerns.`\
-https://nytimes.com/2022/08/20/technology/find-my-app-friends.html?searchResultPosition=2
+**As Alaska Warms, Fires Burn Over (and Under) More Wild Land**\
+`Lightning storms, drought and thawing tundra are making fires more destructive. In the vast wilderness, firefighting is a major challenge.`\
+https://nytimes.com/2022/08/20/us/alaska-fires-climate.html?searchResultPosition=2
 
-**Where Are All the Manhattan Voters in August? Try the Hamptons.**\
-`A late August congressional primary in New York has candidates scrambling to find far-flung voters who tend to summer in places like the Hamptons.`\
-https://nytimes.com/2022/08/20/nyregion/primaries-absentee-hamptons.html?searchResultPosition=3
+**Pickleball, Sport of the Future Injury?**\
+`It’s all fun and games till you strain your Achilles’ tendon, herniate a disc or do a face-plant in the Kitchen.`\
+https://nytimes.com/2022/08/20/health/pickleball-sports-injury.html?searchResultPosition=3
 
-**Germany’s Stony-Faced Chancellor Faces Critics on Nearly Every Side**\
-`After eight months in office, Olaf Scholz is still struggling to find his footing, drawing questions over a tax scandal and criticism of his response to a Holocaust remark made at his side.`\
-https://nytimes.com/2022/08/20/world/europe/olaf-scholz-germany-mahmoud-abbas.html?searchResultPosition=4
+**The Deep Roots of Weleda’s Skin Food**\
+`For almost a century, the ultrarich moisturizer has been made from plants grown by methods both scientific and spiritual.`\
+https://nytimes.com/2022/08/20/style/weleda-skin-food.html?searchResultPosition=4
 
-**How Pharmacy Work Stopped Being So Great**\
-`Two years of economic recovery brought strong gains to workers at the top and the bottom, but headwinds for those in between. Consider the pharmacist.`\
-https://nytimes.com/2022/08/20/business/economy/pharmacists-job-inflation.html?searchResultPosition=5
+**In India, New Wave of Trauma as 11 Convicted of Rape and Murder Walk Free**\
+`Just as Bilkis Bano had started to rebuild her life after grisly communal violence in 2002, a state government cut short her assailants’ life sentences.`\
+https://nytimes.com/2022/08/20/world/asia/india-rape-muslim-hindu.html?searchResultPosition=5
 
-**Some Colleges Don’t Produce Big Earners. Are They Worth It?**\
-`Many attendees aren’t better off financially than those who have only a high school degree, at least not right away. How should applicants consider these institutions?`\
-https://nytimes.com/2022/08/20/business/college-graduate-earnings.html?searchResultPosition=6
+**How a Wine Writer Spends Her Sundays**\
+`Alice Feiring devotes the day to her mother, her boyfriend, playing folk music, shopping for food and yes, visiting wine bars.`\
+https://nytimes.com/2022/08/20/nyregion/alice-feiring.html?searchResultPosition=6
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/08/20/crosswords/spelling-bee-forum.html?searchResultPosition=7
+**Our Prices Are Going Up, but We’re in This Together**\
+`As brands grapple with inflation, a new playbook has emerged: Be upfront about price increases, and hope that transparency will keep customers loyal.`\
+https://nytimes.com/2022/08/20/style/price-increase-emails-inflation.html?searchResultPosition=7
 
-**Corrections: Aug. 20, 2022**\
-`Corrections that appeared in print on Saturday, Aug. 20, 2022.`\
-https://nytimes.com/2022/08/19/pageoneplus/corrections-aug-20-2022.html?searchResultPosition=8
+**A Migrant Wave Tests New York City’s Identity as the World’s Sanctuary**\
+`New York wants to welcome new immigrants. Its economy and vibrancy depend on them. But an influx has strained a social safety net already on the brink.`\
+https://nytimes.com/2022/08/20/nyregion/nyc-migrants-texas.html?searchResultPosition=8
 
-**It’s Raised by the Best**\
-`Hemant Mehta charges solvers with an energetic challenge.`\
-https://nytimes.com/2022/08/19/crosswords/daily-puzzle-2022-08-20.html?searchResultPosition=9
+**Adams Endorses Primary Candidates, Hoping to Defeat Left-Wing Democrats**\
+`The mayor has chosen sides in at least 10 primaries this year, as he looks to enact criminal justice changes and defeat left-leaning candidates.`\
+https://nytimes.com/2022/08/20/nyregion/eric-adams-endorsements.html?searchResultPosition=9
 
-**Lettuce on Wendy’s Sandwiches Potentially Linked to E. Coli Outbreak**\
-`Federal health officials said that while 37 people had been sickened and 10 hospitalized, it was safe to eat at the fast-food chain and to buy romaine lettuce.`\
-https://nytimes.com/2022/08/19/health/romaine-lettuce-wendys-e-coli.html?searchResultPosition=10
+**The Fried Chicken Inflation Index**\
+`YouTube star Elijah Quashie, of the U.K. hit “The Pengest Munch,” copes with the rising cost of wings.`\
+https://nytimes.com/2022/08/20/business/media/youtube-elijah-quashie-fried-chicken.html?searchResultPosition=10
 
