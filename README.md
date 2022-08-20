@@ -1,5 +1,5 @@
 **Latisha Chong, Hair Stylist Who Helped Change Fashion, Dies at 32**\
-`In work seen, among other places, on the cover of Vogue, she was part of a vanguard of Black talent that altered an industry expanded the canon of beauty.`\
+`In work seen, among other places, on the cover of Vogue, she was part of a vanguard of Black talent that altered an industry and expanded the canon of beauty.`\
 https://nytimes.com/2022/08/20/style/latisha-chong-dead.html?searchResultPosition=1
 
 **As Attacks Mount in Crimea, Kremlin Faces Rising Domestic Pressures**\
