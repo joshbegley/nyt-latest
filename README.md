@@ -7,7 +7,7 @@ https://nytimes.com/2022/08/20/world/africa/ethiopian-airlines-sleeping-pilots.h
 https://nytimes.com/video/world/africa/100000008496919/somalia-hotel-attack.html?searchResultPosition=2
 
 **The Final Days of the Trump White House: Chaos and Scattered Papers**\
-`Government documents that Mr. Trump had accumulated were with him in roughly two dozen boxes in the White House residence. They were to go to the National Archives, but at least some ended up in Florida.`\
+`Government documents that President Donald J. Trump had accumulated were with him in roughly two dozen boxes in the White House residence. They were to go to the National Archives, but at least some ended up in Florida.`\
 https://nytimes.com/2022/08/20/us/politics/trump-fbi-search.html?searchResultPosition=3
 
 **Crypto Is Tumbling, but in Argentina It’s Still a Safer Bet**\
