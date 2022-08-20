@@ -22,7 +22,7 @@ https://nytimes.com/2022/08/20/world/europe/ukraine-maidan-square-russian-tanks.
 `The letter, which also requested that Rudolph W. Giuliani be awarded the Presidential Medal of Freedom, was intercepted before reaching President Donald J. Trump.`\
 https://nytimes.com/2022/08/20/us/politics/giuliani-trump-pardon.html?searchResultPosition=6
 
-**Militants Storm Hotel in Somalia, Leaving More Than 10 People Dead**\
+**Militants Storm Hotel in Somalia, Leaving More Than 10 Dead**\
 `The attack was the first major outbreak of violence in Mogadishu, the country’s capital, since the election of a new president in May. The insurgent group Al Shabab claimed responsibility.`\
 https://nytimes.com/2022/08/20/world/africa/somalia-hotel-attack-shabab.html?searchResultPosition=7
 
