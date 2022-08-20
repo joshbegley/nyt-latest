@@ -6,7 +6,7 @@ https://nytimes.com/2022/08/19/health/romaine-lettuce-wendys-e-coli.html?searchR
 `Tampa Electric Company pleaded guilty in May to “willfully” violating an OSHA rule that required workers to receive a pre-job briefing about the work they were to perform.`\
 https://nytimes.com/2022/08/19/us/teco-florida-explosion.html?searchResultPosition=2
 
-**Twitter tells employees they might get only half their annual bonus.**\
+**Twitter Tells Employees They Might Get Only Half Their Annual Bonus**\
 `The company blamed its financial performance for the potential bonus cut.`\
 https://nytimes.com/2022/08/19/technology/twitter-annual-bonus.html?searchResultPosition=3
 
