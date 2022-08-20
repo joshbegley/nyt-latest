@@ -1,40 +1,40 @@
+**How the Find My App Became an Accidental Friendship Fixture**\
+`Introduced 10 years ago, the app has slowly become a popular way to keep track of friends. But it comes with considerable privacy concerns.`\
+https://nytimes.com/2022/08/20/technology/find-my-app-friends.html?searchResultPosition=1
+
+**Where Are All the Manhattan Voters in August? Try the Hamptons.**\
+`A late August congressional primary in New York has candidates scrambling to find far-flung voters who tend to summer in places like the Hamptons.`\
+https://nytimes.com/2022/08/20/nyregion/primaries-absentee-hamptons.html?searchResultPosition=2
+
+**Germany’s Stony-Faced Chancellor Faces Critics on Nearly Every Side**\
+`After eight months in office, Olaf Scholz is still struggling to find his footing, drawing questions over a tax scandal and criticism of his response to a Holocaust remark made at his side.`\
+https://nytimes.com/2022/08/20/world/europe/olaf-scholz-germany-mahmoud-abbas.html?searchResultPosition=3
+
+**How Pharmacy Work Stopped Being So Great**\
+`Two years of economic recovery brought strong gains to workers at the top and the bottom, but headwinds for those in between. Consider the pharmacist.`\
+https://nytimes.com/2022/08/20/business/economy/pharmacists-job-inflation.html?searchResultPosition=4
+
+**Some Colleges Don’t Produce Big Earners. Are They Worth It?**\
+`Many attendees aren’t better off financially than those who have only a high school degree, at least not right away. How should applicants consider these institutions?`\
+https://nytimes.com/2022/08/20/business/college-graduate-earnings.html?searchResultPosition=5
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2022/08/20/crosswords/spelling-bee-forum.html?searchResultPosition=6
+
 **Corrections: Aug. 20, 2022**\
 `Corrections that appeared in print on Saturday, Aug. 20, 2022.`\
-https://nytimes.com/2022/08/19/pageoneplus/corrections-aug-20-2022.html?searchResultPosition=1
+https://nytimes.com/2022/08/19/pageoneplus/corrections-aug-20-2022.html?searchResultPosition=7
 
 **It’s Raised by the Best**\
 `Hemant Mehta charges solvers with an energetic challenge.`\
-https://nytimes.com/2022/08/19/crosswords/daily-puzzle-2022-08-20.html?searchResultPosition=2
+https://nytimes.com/2022/08/19/crosswords/daily-puzzle-2022-08-20.html?searchResultPosition=8
 
 **Lettuce on Wendy’s Sandwiches Potentially Linked to E. Coli Outbreak**\
 `Federal health officials said that while 37 people had been sickened and 10 hospitalized, it was safe to eat at the fast-food chain and to buy romaine lettuce.`\
-https://nytimes.com/2022/08/19/health/romaine-lettuce-wendys-e-coli.html?searchResultPosition=3
+https://nytimes.com/2022/08/19/health/romaine-lettuce-wendys-e-coli.html?searchResultPosition=9
 
 **Florida Utility Is Fined $500,000 for 2017 Explosion That Killed 5**\
 `Tampa Electric Company pleaded guilty in May to “willfully” violating an OSHA rule that required workers to receive a pre-job briefing about the work they were to perform.`\
-https://nytimes.com/2022/08/19/us/teco-florida-explosion.html?searchResultPosition=4
-
-**Twitter Tells Employees They Might Get Only Half Their Annual Bonus**\
-`The company blamed its financial performance for the potential bonus cut.`\
-https://nytimes.com/2022/08/19/technology/twitter-annual-bonus.html?searchResultPosition=5
-
-**Sylvia Fowles Wants to See Who She Can Be Without Basketball**\
-`Fowles, who played through pain in her final season with the Lynx, said she wanted to “step away and debrief a little bit.”`\
-https://nytimes.com/2022/08/19/sports/basketball/wnba-sylvia-fowles-retirement-minnesota-lynx.html?searchResultPosition=6
-
-**After Signing Climate Bill, Biden Prepares More Actions to Cut Emissions**\
-`Regulations from the E.P.A. and elsewhere will help the president meet his aggressive climate goals, administration officials say.`\
-https://nytimes.com/2022/08/19/us/politics/biden-climate-bill-emissions.html?searchResultPosition=7
-
-**Big Ten Players Wonder Where They Fit Into a $1 Billion TV Deal**\
-`Student-athletes are excited for the exposure their league will receive, but paying players looms large.`\
-https://nytimes.com/2022/08/19/sports/ncaafootball/big-ten-tv-deal-student-athletes.html?searchResultPosition=8
-
-**Group Seeks to Block Abortion Vote in Michigan, Citing Typography**\
-`The effort is aimed at keeping a constitutional amendment to guarantee abortion rights off the ballot. A voting access measure is also being challenged.`\
-https://nytimes.com/2022/08/19/us/politics/michigan-abortion-amendment.html?searchResultPosition=9
-
-**Ukrainian Strikes May Be Slowing Russia’s Advance**\
-`A new strategy of attacks on logistical targets in Russian-held territory is having an impact, analysts say, symbolically as well as militarily.`\
-https://nytimes.com/2022/08/19/world/europe/ukraine-russia-crimea.html?searchResultPosition=10
+https://nytimes.com/2022/08/19/us/teco-florida-explosion.html?searchResultPosition=10
 
