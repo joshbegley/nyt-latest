@@ -11,7 +11,7 @@ https://nytimes.com/2022/08/21/us/politics/jill-biden-coronavirus-negative.html?
 https://nytimes.com/2022/08/21/world/asia/us-delegation-taiwan-trade.html?searchResultPosition=3
 
 **Federal Appeals Court Halts Graham Testimony Before Atlanta Grand Jury**\
-`The U.S. Court of Appeals for the 11th Circuit temporarily blocked Senator Lindsey Graham from having to testify on Tuesday before the special grand jury investigating Donald Trump’s efforts to overturn the 2020 election results in Georgia.`\
+`The U.S. Court of Appeals for the 11th Circuit temporarily blocked Senator Lindsey Graham from having to testify before the special grand jury investigating Donald Trump’s efforts to overturn the 2020 election results in Georgia.`\
 https://nytimes.com/2022/08/21/us/graham-trump-testimony-georgia.html?searchResultPosition=4
 
 **Should Biden Announce That He Won’t Run Again?**\
