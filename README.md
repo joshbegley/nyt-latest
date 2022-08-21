@@ -34,7 +34,7 @@ https://nytimes.com/2022/08/21/style/nordstrom-kohler-philip-lim-parties.html?se
 `As more looted art comes back to Africa, countries have wrestled with the right way to display it. That 200,000 people have lined up for a show suggests Benin has found an answer.`\
 https://nytimes.com/2022/08/21/world/africa/benin-art-restitution-exhibition.html?searchResultPosition=9
 
-**A Dad Took Photos of His Naked Toddler for the Doctor. Google Flagged Him as a Criminal.**\
-`Google has an automated tool to detect abusive images of children. But the system can get it wrong, and the consequences are serious.`\
-https://nytimes.com/2022/08/21/technology/google-surveillance-toddler-photo.html?searchResultPosition=10
+**‘Cable Cowboy’ John Malone Sees More Streaming Bundles Ahead**\
+`The media mogul also said news channels should do a better job of distinguishing between news and opinion.`\
+https://nytimes.com/2022/08/21/business/media/john-malone-streaming-bundles-cable.html?searchResultPosition=10
 
