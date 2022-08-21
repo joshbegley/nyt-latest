@@ -1,6 +1,6 @@
 **Economic Neglect and Political Instability Unraveled Tunisia’s Democracy**\
 `Tensions across the religious-secular fault lines in the country could not be reconciled, and freely elected leaders failed to deliver on the 2011 uprising’s cry for bread, freedom and dignity.`\
-https://nytimes.com/2022/08/21/world/middleeast/economic-neglect-and-political-instability-unraveled-tunisias-democracy.html?searchResultPosition=1
+https://nytimes.com/2022/08/21/world/middleeast/tunisia-democracy.html?searchResultPosition=1
 
 **Shabab Attack on Somali Hotel Ends With 21 Dead, Officials Say**\
 `The assault was the most sustained and complex in the capital since a new president was elected in May. Officials said more than 100 were wounded.`\
