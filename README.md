@@ -11,7 +11,7 @@ https://nytimes.com/2022/08/21/world/asia/singapore-gay-sex-law.html?searchResul
 https://nytimes.com/2022/08/21/world/middleeast/tunisia-democracy.html?searchResultPosition=3
 
 **Shabab Attack on Somali Hotel Ends With 21 Dead, Officials Say**\
-`The assault was the most sustained and complex in the capital since a new president was elected in May. Officials said more than 100 were wounded.`\
+`The assault was the most sustained and complex in the capital, Mogadishu, since a new president was elected in May. Officials said more than 100 were wounded.`\
 https://nytimes.com/2022/08/21/world/africa/somalia-hotel-attack-shabab.html?searchResultPosition=4
 
 **Hundreds of Jan. 6 Cases**\
