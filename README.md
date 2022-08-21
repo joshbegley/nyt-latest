@@ -6,7 +6,7 @@ https://nytimes.com/2022/08/20/us/turning-point-usa-threat-florida.html?searchRe
 `The actor, 78, was a featured guest at Monster-Mania Con in Cherry Hill, N.J. He was charged with two counts of criminal sexual contact, among other counts, the police said.`\
 https://nytimes.com/2022/08/20/nyregion/gary-busey-sex-crimes.html?searchResultPosition=3
 
-**Bolsonaro Grabs for a Man’s Phone, and Gets a New (Insulting) Nickname**\
+**Bolsonaro Grabs for Man’s Phone and Gets a New (Insulting) Nickname**\
 `Six weeks ahead of national elections, the Brazilian president was confronted by a protester who tried to ask questions on video. He grabbed the man’s shirt, then tried to snatch his phone.`\
 https://nytimes.com/2022/08/20/world/americas/jair-bolsonaro-video.html?searchResultPosition=4
 
