@@ -10,31 +10,31 @@ https://nytimes.com/2022/08/22/books/review/new-crime-fiction.html?searchResultP
 `The automaker said the move was needed to be competitive and reallocate resources.`\
 https://nytimes.com/2022/08/22/business/ford-motor-job-cuts.html?searchResultPosition=3
 
-**Do You Work in the Crypto Industry? We Want to Hear About It.**\
-`Tell us about your experiences working for crypto companies.`\
-https://nytimes.com/2022/08/22/technology/crypto-industry-workers.html?searchResultPosition=4
-
 **Should Kids Be Kept Off Social Media?**\
 `Two teens and an adult react to a guest essay calling for raising age restrictions. Also: Trump and declassifying; restaurant jobs; mass entertainment; cryptocurrency.`\
-https://nytimes.com/2022/08/22/opinion/letters/social-media-kids.html?searchResultPosition=5
+https://nytimes.com/2022/08/22/opinion/letters/social-media-kids.html?searchResultPosition=4
 
 **Review: Without Bloodshed, the Ingénue Takes the Lead**\
 `Sophie McIntosh’s new play gathers five women in a college production for an exercise in youthful ambition and the corrupting clashing of egos.`\
-https://nytimes.com/2022/08/22/theater/macbitches-review.html?searchResultPosition=6
+https://nytimes.com/2022/08/22/theater/macbitches-review.html?searchResultPosition=5
 
 **Fetty Wap Pleads Guilty to Conspiring With a Long Island Drug Gang**\
 `The rapper, who had parlayed a hit record about selling drugs into widespread stardom, conspired to distribute more than 500 grams of cocaine in New Jersey, prosecutors said.`\
-https://nytimes.com/2022/08/22/nyregion/fetty-wap-drug-ring-ny.html?searchResultPosition=7
+https://nytimes.com/2022/08/22/nyregion/fetty-wap-drug-ring-ny.html?searchResultPosition=6
 
 **It’s Alive! It’s With the Band! A Computer Soloist Holds Its Own**\
 `Voyager, a computer program, played with Ensemble Signal in the U.S. premiere of a George Lewis piece that was a highlight of this year’s concert calendar.`\
-https://nytimes.com/2022/08/22/arts/music/time-spans-voyager.html?searchResultPosition=8
+https://nytimes.com/2022/08/22/arts/music/time-spans-voyager.html?searchResultPosition=7
 
 **Estonia says Moscow has not asked for help with the Dugina investigation.**\
 `Russia has accused the country of harboring a Ukrainian woman it blames for a fatal car bombing over the weekend.`\
-https://nytimes.com/2022/08/22/world/europe/estonia-russia-ukraine-dugina.html?searchResultPosition=9
+https://nytimes.com/2022/08/22/world/europe/estonia-russia-ukraine-dugina.html?searchResultPosition=8
 
 **How Is Monkeypox Affecting You?**\
 `Tell us about it.`\
-https://nytimes.com/2022/08/22/nyregion/how-is-monkeypox-affecting-you.html?searchResultPosition=10
+https://nytimes.com/2022/08/22/nyregion/how-is-monkeypox-affecting-you.html?searchResultPosition=9
+
+**‘If You Can Make a Salad, You Can Make Kimchi’**\
+`Kimjang, the act of preparing kimchi, allows Koreans of the diaspora to keep the tradition alive — and invites everyone to join.`\
+https://nytimes.com/2022/08/22/dining/kimjang-make-kimchi.html?searchResultPosition=10
 
