@@ -22,7 +22,7 @@ https://nytimes.com/2022/08/22/us/mass-shootings-mental-illness.html?searchResul
 `The fast-food chain has wrestled with some shareholders and franchisees, as it faces the effects of inflation and weak economic growth.`\
 https://nytimes.com/2022/08/22/business/mcdonalds-board.html?searchResultPosition=6
 
-**Aleksandr Dugin calls for Russia to punish Ukraine for his daughter’s death.**\
+**Her father, an ultranationalist often called ‘Putin’s brain,’ calls for Russia to punish Ukraine for her death.**\
 `Mr. Dugin spoke out for the first time since a car bombing killed his daughter outside Moscow on Saturday.`\
 https://nytimes.com/2022/08/22/world/europe/dugin-daughter-bombing.html?searchResultPosition=7
 
