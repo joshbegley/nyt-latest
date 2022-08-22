@@ -7,7 +7,7 @@ https://nytimes.com/2022/08/21/arts/television/house-of-the-dragon-premiere-reca
 https://nytimes.com/2022/08/21/nyregion/fatal-crash-queens-nypd.html?searchResultPosition=2
 
 **The Yankees Outlasted an Ace. Two More May Loom.**\
-`After scoring two runs off Toronto’s Alek Manoah and getting to the Blue Jays’ bullpen to avoid being swept, the team is scheduled to face the Mets’ Max Scherzer and possibly Jacob deGrom.`\
+`After avoiding a sweep against Alek Manoah and Toronto, the Yankees are scheduled to face the Mets’ Max Scherzer and possibly Jacob deGrom.`\
 https://nytimes.com/2022/08/21/sports/baseball/yankees-mets-subway-series-scherzer-degrom.html?searchResultPosition=3
 
 **Brazen Attack Near Moscow Rattles Russians**\
