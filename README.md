@@ -1,6 +1,6 @@
 **Trump Had More Than 300 Classified Documents at Mar-a-Lago**\
 `The National Archives found more than 150 sensitive documents when it got a first batch of material from the former president in January, helping to explain the Justice Department’s urgent response.`\
-https://nytimes.com/2022/08/22/us/politics/trump-classified-documents.html?searchResultPosition=1
+https://nytimes.com/2022/08/22/us/politics/trump-mar-a-lago-documents.html?searchResultPosition=1
 
 **Arkansas violated the Voting Rights Act by limiting help to voters, a judge rules.**\
 `An advocacy group for immigrants challenged a state law that restricted individuals from helping more than six people to vote.`\
