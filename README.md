@@ -1,6 +1,6 @@
 **Archbishop Rembert Weakland, Critic of Vatican Orthodoxy, Dies at 95**\
 `In his long career, he was an intellectual touchstone for progressive Catholic reformers. But he resigned after the disclosure of a long-ago love affair.`\
-https://nytimes.com/2022/08/22/us/archbishop-rembert-weakland-critic-of-vatican-orthodoxy-dies-at-95.html?searchResultPosition=1
+https://nytimes.com/2022/08/22/us/archbishop-rembert-weakland-dead.html?searchResultPosition=1
 
 **Alone in the Minnesota Woods, Tracked by Killers**\
 `William Kent Krueger’s “Fox Creek,” the 19th book starring the detective Cork O’Connor, will delight fans — and it’s a good entry point for those new to the series, too.`\
