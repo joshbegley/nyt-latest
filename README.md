@@ -10,7 +10,7 @@ https://nytimes.com/2022/08/22/fashion/sustainable-fashion-rent-clothes-climate-
 `Albert Pujols was hitting .189 on July 4. Since then, he has hit .408 with nine home runs. Could he join a club only occupied by Barry Bonds, Hank Aaron and Babe Ruth?`\
 https://nytimes.com/2022/08/22/sports/baseball/albert-pujols-700-homers.html?searchResultPosition=3
 
-**A Supplier of Rare Earth Metals Turns to Greenland in Bid to Cut Reliance on Russia**\
+**A Supplier of Rare Earth Metals Turns to Greenland in a Bid to Cut Reliance on Russia**\
 `Neo Performance Materials of Canada announced a deal to begin mining in Greenland for the metals, which are a key component for electric cars.`\
 https://nytimes.com/2022/08/22/business/rare-earth-metals-greenland.html?searchResultPosition=4
 
