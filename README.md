@@ -1,5 +1,5 @@
 **Donald Jonas, Retail Magnate Who Sold Art to Help Nurses, Dies at 92**\
-`A founder of the Lechters housewares chain, he focused the philanthropy he founded with his wife on a profession they felt had been largely ignored.`\
+`A founder of the Lechters housewares chain, he and his wife focused their philanthropy on a profession they felt had been largely ignored.`\
 https://nytimes.com/2022/08/22/business/donald-jonas-dead.html?searchResultPosition=1
 
 **Joyce Carol Oates’s ‘Babysitter’ Is a Serial Killer**\
