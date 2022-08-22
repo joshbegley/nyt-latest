@@ -15,7 +15,7 @@ https://nytimes.com/2022/08/22/world/europe/russia-ukraine-daria-dugina.html?sea
 https://nytimes.com/2022/08/22/us/politics/dr-fauci-career.html?searchResultPosition=4
 
 **Governor Newsom Vetoes Bill for Drug-Injection Sites in California**\
-`The governor said he supported the idea of supervised facilities to reduce overdoses and deaths, but that the state was not yet prepared to put it into practice.`\
+`The governor said that he supported the idea of supervised facilities to reduce overdoses and deaths, but that the state was not yet prepared to put it into practice.`\
 https://nytimes.com/2022/08/22/us/gavin-newsom-vetoes-drug-injection-sites.html?searchResultPosition=5
 
 **For Chernobyl Survivors, New Ukraine Nuclear Risk Stirs Dread**\
