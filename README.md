@@ -34,7 +34,7 @@ https://nytimes.com/2022/08/22/world/europe/zelensky-trials-negotiations.html?se
 `The Legislature has until Aug. 31 to approve the proposals.`\
 https://nytimes.com/2022/08/22/us/california-covid-legislation.html?searchResultPosition=9
 
-**McDonald’s Orders a Board Shake-Up**\
-`The restaurant chain has made the first big change to its board in three years after seeing off a campaign by the activist investor Carl Icahn.`\
-https://nytimes.com/2022/08/22/business/dealbook/mcdonalds-board-penrose.html?searchResultPosition=10
+**A Russian spy agency blames Ukraine for the bombing, which killed Daria Dugina.**\
+`Kyiv has denied involvement in the death of Ms. Dugina, the daughter of a nationalist ideologue who backed Russia’s invasion of Ukraine.`\
+https://nytimes.com/2022/08/22/world/europe/russia-daria-dugina-ukraine-estonia.html?searchResultPosition=10
 
