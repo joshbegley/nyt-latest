@@ -3,7 +3,7 @@
 https://nytimes.com/2022/08/22/podcasts/the-daily/alabama-coal-mine-strike.html?searchResultPosition=1
 
 **People are paying to have personal messages painted on Ukrainian artillery shells.**\
-`Soldiers have long scrawled graffiti on munitions meant for the enemy. Selling such messages marks an inventive, if macabre, twist on the practice, another way to raise money for resistance to Russia’s invasion.`\
+`The messages have become an inventive, if macabre, way to raise money for resistance to Russia’s invasion.`\
 https://nytimes.com/2022/08/22/world/europe/ukraine-artillery-shells.html?searchResultPosition=2
 
 **$1.5 Million Homes in California**\
