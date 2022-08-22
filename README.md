@@ -1,40 +1,40 @@
+**No Corrections: August 22, 2022**\
+`No corrections appeared in print on Monday, August 22, 2022.`\
+https://nytimes.com/2022/08/22/pageoneplus/no-corrections-august-22-2022.html?searchResultPosition=1
+
+**Serena Williams Brought New Fans to Tennis. Are You One of Them?**\
+`Part of Williams’s legacy can be seen in the stands of her matches, where the spectators are among tennis’s most diverse.`\
+https://nytimes.com/2022/08/22/sports/tennis/serena-williams-fans.html?searchResultPosition=2
+
 **‘House of the Dragon’ Premiere: Another Game of Thrones**\
 `Sunday’s long-awaited premiere aimed to create investment in a new royal power struggle while assuring viewers that this was still “Game of Thrones.”`\
-https://nytimes.com/2022/08/21/arts/television/house-of-the-dragon-premiere-recap.html?searchResultPosition=1
+https://nytimes.com/2022/08/21/arts/television/house-of-the-dragon-premiere-recap.html?searchResultPosition=3
 
 **2 N.Y.P.D. Officers Placed on Desk Duty After Fatal Crash in Queens**\
 `The police are investigating the officers’ role in a crash that killed two men who were riding an illegal ATV amid a crackdown on such vehicles.`\
-https://nytimes.com/2022/08/21/nyregion/fatal-crash-queens-nypd.html?searchResultPosition=2
+https://nytimes.com/2022/08/21/nyregion/fatal-crash-queens-nypd.html?searchResultPosition=4
 
 **The Yankees Outlasted an Ace. Two More May Loom.**\
 `After avoiding a sweep against Alek Manoah and Toronto, the Yankees are scheduled to face the Mets’ Max Scherzer and possibly Jacob deGrom.`\
-https://nytimes.com/2022/08/21/sports/baseball/yankees-mets-subway-series-scherzer-degrom.html?searchResultPosition=3
+https://nytimes.com/2022/08/21/sports/baseball/yankees-mets-subway-series-scherzer-degrom.html?searchResultPosition=5
 
 **Brazen Attack Near Moscow Rattles Russians**\
 `The daughter of a prominent ultranationalist, herself a hawkish commentator, was killed by a car bomb deep in Russian territory.`\
-https://nytimes.com/2022/08/21/world/europe/ukraine-russia-car-bomb.html?searchResultPosition=4
+https://nytimes.com/2022/08/21/world/europe/ukraine-russia-car-bomb.html?searchResultPosition=6
 
 **Chief of Israeli Spyware Firm NSO to Step Down as It Revamps**\
 `The U.S. blacklisted the company last year after reports that governments had used its software to target journalists, dissidents and opposition politicians.`\
-https://nytimes.com/2022/08/21/business/nso-chief-executive-spyware.html?searchResultPosition=5
+https://nytimes.com/2022/08/21/business/nso-chief-executive-spyware.html?searchResultPosition=7
 
 **Former Pakistan Prime Minister Charged Under Terrorism Act**\
 `The move against Imran Khan is a major escalation of the power struggle between the government and the former leader and risks renewed public unrest.`\
-https://nytimes.com/2022/08/21/world/asia/pakistan-imran-khan.html?searchResultPosition=6
+https://nytimes.com/2022/08/21/world/asia/pakistan-imran-khan.html?searchResultPosition=8
 
 **Flash Floods at National Parks Strand 200 and Leave a Hiker Missing**\
 `A hiker at Zion National Park in Utah remained missing and visitors and staff members were stranded for more than nine hours at Carlsbad Caverns National Park in New Mexico on Saturday.`\
-https://nytimes.com/2022/08/21/us/zion-missing-hiker-flood.html?searchResultPosition=7
+https://nytimes.com/2022/08/21/us/zion-missing-hiker-flood.html?searchResultPosition=9
 
 **As Paul O’Neill’s No. 21 Is Retired, One Last Kick of a Water Cooler**\
 `The Yankees retired O’Neill’s jersey number in a ceremony restricted by Covid precautions, and the team honored him with a 4-2 win.`\
-https://nytimes.com/2022/08/21/sports/baseball/yankees-paul-oneill-number-retirement.html?searchResultPosition=8
-
-**Tom Weiskopf, British Open Winner and Golf Course Designer, Dies at 79**\
-`A four-time runner-up at the Masters, he won 16 PGA Tour events starting in the late 1960s and later became a television commentator.`\
-https://nytimes.com/2022/08/21/sports/golf/tom-weiskopf-dead.html?searchResultPosition=9
-
-**Snowballs in a Snowball Fight**\
-`Doug and Zhouqin Burnikel make a terrific team.`\
-https://nytimes.com/2022/08/21/crosswords/daily-puzzle-2022-08-22.html?searchResultPosition=10
+https://nytimes.com/2022/08/21/sports/baseball/yankees-paul-oneill-number-retirement.html?searchResultPosition=10
 
