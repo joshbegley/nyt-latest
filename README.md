@@ -1,6 +1,6 @@
 **5 Things to Know About New York’s Primary on Tuesday**\
 `Several contentious races have stirred up intraparty fighting, with ramifications for Washington and how abortion politics will play out during the fall elections.`\
-https://nytimes.com/2022/08/22/us/politics/new-york-primary-5-things-to-know.html?searchResultPosition=1
+https://nytimes.com/2022/08/22/us/politics/new-york-primary.html?searchResultPosition=1
 
 **David Kinch, an Acclaimed Bay Area Chef, Will Leave Manresa**\
 `He’ll sell his 20-year-old fine-dining restaurant in Los Gatos, Calif., which has three Michelin stars, at the end of the year.`\
