@@ -1,40 +1,40 @@
-**I Stutter. This Is What You’re Not Hearing.**\
-`Stuttering is considered a problem with speech, but what about the listener?`\
-https://nytimes.com/video/opinion/100000008048545/stutter-speech-listening.html?searchResultPosition=1
+**The East Hampton House Was Perfect. Except for One Thing.**\
+`Like others during the early days of the pandemic, they were thrilled to find a place outside the city. The problem was furnishing it.`\
+https://nytimes.com/2022/08/23/realestate/the-east-hampton-house-was-perfect-except-for-one-thing.html?searchResultPosition=1
 
-**Preparing Financially, Before the Storm Hits**\
-`With the cost and frequency of weather-driven disasters on the rise, taking steps to be ready is more crucial than ever.`\
-https://nytimes.com/2022/08/23/business/storm-weather-home-insurance.html?searchResultPosition=2
+**A (Nearly) Perfect East Hampton Escape**\
+`Like many others during the pandemic, they were thrilled to find a place outside the city. The problem was furnishing it.`\
+https://nytimes.com/slideshow/2022/08/23/realestate/a-nearly-perfect-east-hampton-escape.html?searchResultPosition=2
 
-**What to Watch in Tuesday’s Primaries in Florida and New York**\
-`Democrats in Florida will choose who will face Gov. Ron DeSantis, and House races across New York could set the tone for November.`\
-https://nytimes.com/2022/08/23/us/politics/new-york-florida-primaries.html?searchResultPosition=3
+**In Ukraine, a Nuclear Plant Held Hostage**\
+`Five months after Russian forces took over the Zaporizhzhia plant, all that stands between the world and nuclear disaster are dedicated Ukrainian operators working at gunpoint.`\
+https://nytimes.com/2022/08/23/world/europe/ukraine-zaporizhzhia-nuclear-power-plant.html?searchResultPosition=3
 
-**Down and Dirty in Virus-Laden Sewage, for Journalism**\
-`For an article on wastewater disease surveillance, Times journalists descended underground to look inside a New York City sewage pipe.`\
-https://nytimes.com/2022/08/23/insider/down-and-dirty-in-virus-laden-sewage-for-journalism.html?searchResultPosition=4
+**‘I Don’t Feel Safe.’ Children Fear Going Back to School in Uvalde**\
+`Three months after 19 students and two teachers died in a mass shooting at Robb Elementary School, some students are opting for online classes or private schools.`\
+https://nytimes.com/2022/08/23/us/uvalde-back-to-school-arredondo.html?searchResultPosition=4
 
-**Con Ed Dumps Hot, Dirty Water From River Park Pier, Records Show**\
-`Environmental advocates say Hudson River Park and New York officials have failed to alert the public to waste that may be harming the ecosystem.`\
-https://nytimes.com/2022/08/23/nyregion/coned-hudson-river-park-ny.html?searchResultPosition=5
+**In Vancouver, Indigenous Communities Get Prime Land, and Power**\
+`After acquiring some of the biggest and most coveted parcels of land in Vancouver, the city’s three First Nations are becoming players in the biggest game in town — real estate.`\
+https://nytimes.com/2022/08/23/world/americas/canada-vancouver-indigenous.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/08/23/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**From Block Island to Montauk Through Sharks, Currents and Cramps**\
+`Lori King of Long Island finished a nearly 24-mile trip in 8 hours 39 minutes 45 seconds. Once her swim is certified, King will be recognized as the first person to complete the journey.`\
+https://nytimes.com/2022/08/23/sports/marathon-swim-block-island-montauk.html?searchResultPosition=6
 
-**Your Tuesday Briefing**\
-`Documents at Mar-a-Lago.`\
-https://nytimes.com/2022/08/23/briefing/trump-documents-ukraine-aid.html?searchResultPosition=7
+**It’s Never Too Late to Become an Activist**\
+`Thirteen years ago, Bonnie McKinlay, a former schoolteacher, retired and embraced another passion: climate activism. She’s been arrested four times, but says it’s worth it.`\
+https://nytimes.com/2022/08/23/style/its-never-too-late-to-become-an-activist.html?searchResultPosition=7
 
-**Ukraine’s Russian ‘Liberators’ Are Seeing That We Live Better Than They Do**\
-`The invaders have seen the reality: The Ukrainians live better than they do.`\
-https://nytimes.com/2022/08/23/opinion/international-world/russia-ukraine-putin.html?searchResultPosition=8
+**Serenity in Midtown, Starting at $3,200 a Night? Aman Is Betting on It.**\
+`Vladislav Doronin, the chief executive of Aman Resorts, aims to bring the brand’s understated exclusivity and serenity — qualities that were forged in remote locations — to Manhattan. Will it work?`\
+https://nytimes.com/2022/08/23/travel/aman-new-york.html?searchResultPosition=8
 
-**Meeting Emissions Mandates in New York’s Buildings, Explained**\
-`Building owners are scrambling to meet new rules on greenhouse gas emissions. New York’s congressional candidates do the last-minute primary shuffle.`\
-https://nytimes.com/2022/08/23/nyregion/meeting-emissions-mandates-in-new-yorks-buildings-explained.html?searchResultPosition=9
+**His Medium, Salted Butter. His Craft, Sublime.**\
+`Gerry Kulzer, the new butter sculptor at the Minnesota State Fair, is ready to capture the likenesses of the dairy princesses, if only he can sculpt their tresses in time.`\
+https://nytimes.com/2022/08/23/dining/minnesota-state-fair-butter-sculpture.html?searchResultPosition=9
 
-**Pakistan’s Imran Khan Is Now the Target of Forces He Once Wielded**\
-`Old allies like the military have turned against him, but the former prime minister’s appeal on the street has only grown stronger, setting up a dangerous showdown.`\
-https://nytimes.com/2022/08/23/world/asia/imran-khan-pakistan.html?searchResultPosition=10
+**Economic Aid, Once Plentiful, Falls Off at a Painful Moment**\
+`Food insecurity is rising again as relief provided by President Biden’s $1.9 trillion stimulus package wanes.`\
+https://nytimes.com/2022/08/23/us/politics/food-insecurity-biden-stimulus.html?searchResultPosition=10
 
