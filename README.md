@@ -2,7 +2,7 @@
 `A slowdown in consumer spending in conjunction with an uptick in construction may spoil the favorable conditions that allowed owners to expand and raise rates.`\
 https://nytimes.com/2022/08/23/business/warehouse-demand-consumer-spending.html?searchResultPosition=1
 
-**Twitter’s former security chief accuses it of ‘egregious deficiencies.’**\
+**Twitter’s Former Security Chief Accuses It of ‘Egregious Deficiencies’**\
 `The whistle-blower’s complaints to the Securities and Exchange Commission, Justice Department and Federal Trade Commission come at a perilous time for Twitter.`\
 https://nytimes.com/2022/08/23/business/twitter-whistleblower-security.html?searchResultPosition=2
 
