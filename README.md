@@ -1,4 +1,4 @@
-**For a Yankees Rookie, a Stack of Gloves and a Necklace**\
+**For a Yankees Rookie, a Stack of Gloves and a Handmade Necklace**\
 `Oswaldo Cabrera has had highlights at multiple positions in his first week in the majors. The only constants have been his enthusiasm and his atypical accessory.`\
 https://nytimes.com/2022/08/23/sports/baseball/oswaldo-cabrera-yankees-necklace.html?searchResultPosition=1
 
