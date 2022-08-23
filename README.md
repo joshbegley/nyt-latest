@@ -27,7 +27,7 @@ https://nytimes.com/2022/08/23/style/tiny-modern-love-stories-i-rewrote-my-ident
 https://nytimes.com/2022/08/23/us/tennessee-glen-casada-bribery.html?searchResultPosition=7
 
 **Europe’s Rivers, Starved by Drought, Reveal Shipwrecks, Relics and Bombs**\
-`The Danube River is running so low on water that the wreckage of German battleships, sunk in 1944, has resurfaced, posing a danger to local ship traffic.`\
+`The Danube River is running so low on water that the wreckage of German warships, sunk in 1944, has resurfaced, posing a danger to local ship traffic.`\
 https://nytimes.com/2022/08/23/world/europe/danube-river-shipwrecks-drought.html?searchResultPosition=8
 
 **Who Is Quiet Quitting For?**\
