@@ -10,8 +10,8 @@ https://nytimes.com/2022/08/23/us/politics/fl-how-to-vote.html?searchResultPosit
 `The company billed the arrangement as a new way to raise money. Corporate governance experts and finance pros are keen to see if it catches on.`\
 https://nytimes.com/2022/08/23/business/amc-preferred-stock.html?searchResultPosition=3
 
-**Why Should Monkeypox Be Renamed?**\
-`Experts say the term evokes racist stereotypes, reinforces offensive tropes about Africa and abets stigmatization that can prevent people from seeking care.`\
+**Why Experts Want to Rename Monkeypox**\
+`Public health researchers say the term evokes racist stereotypes, reinforces offensive tropes about Africa and abets stigmatization that can prevent people from seeking care.`\
 https://nytimes.com/2022/08/23/health/monkeypox-name-stigma.html?searchResultPosition=4
 
 **The Surrogacy Industry Braces for a Post-Roe World**\
