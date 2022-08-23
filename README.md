@@ -1,5 +1,5 @@
 **Read the National Archives Letter to a Trump Lawyer**\
-`Donald J. Trump took more than 700 pages of classified documents to his Mar-a-Lago residence in Florida, according to a letter that the National Archives sent to his lawyers in May.`\
+`Donald J. Trump took more than 700 pages of classified documents to his Mar-a-Lago residence in Florida, according to a letter that the National Archives sent to one of his lawyers in May.`\
 https://nytimes.com/interactive/2022/08/23/us/politics/national-archives-letter-trump-fbi.html?searchResultPosition=1
 
 **Your Wednesday Briefing**\
