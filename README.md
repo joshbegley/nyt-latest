@@ -24,7 +24,7 @@ https://nytimes.com/2022/08/23/sports/baseball/fernando-tatis-padres.html?search
 
 **Trump, Without the Presidency’s Protections, Struggles for a Strategy**\
 `Facing serious legal peril in the documents investigation, the former president has turned to his old playbook of painting himself as persecuted amid legal and political stumbles.`\
-https://nytimes.com/2022/08/23/us/politics/trump-struggles-strategy.html?searchResultPosition=7
+https://nytimes.com/2022/08/23/us/politics/trump-investigation-strategy.html?searchResultPosition=7
 
 **U.N. Calls for Demilitarization of a Nuclear Plant in Ukraine**\
 `Fighting near the Russian-occupied Zaporizhzhia nuclear plant, Europe’s largest, has stoked alarm in recent days.`\
