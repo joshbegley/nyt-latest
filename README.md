@@ -4,7 +4,7 @@ https://nytimes.com/2022/08/23/theater/hamilton-christian-production-apologizes.
 
 **White House Expects Slower Economic Growth in 2022 Than Originally Projected**\
 `The Biden administration said its new forecast captured the effects of the Omicron wave of the pandemic and Russia’s invasion of Ukraine.`\
-https://nytimes.com/2022/08/23/business/white-house-expects-slower-economic-growth-in-2022-than-originally-projected.html?searchResultPosition=2
+https://nytimes.com/2022/08/23/business/biden-economic-growth.html?searchResultPosition=2
 
 **Tiny Love Stories: ‘I Rewrote My Identity’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
