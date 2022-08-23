@@ -22,13 +22,13 @@ https://nytimes.com/2022/08/23/world/europe/ukraine-missing-red-cross.html?searc
 `Like others during the early days of the pandemic, they were thrilled to find a place outside the city. The problem was furnishing it.`\
 https://nytimes.com/2022/08/23/realestate/the-east-hampton-house-was-perfect-except-for-one-thing.html?searchResultPosition=6
 
-**A (Nearly) Perfect East Hampton Escape**\
-`Like many others during the pandemic, they were thrilled to find a place outside the city. The problem was furnishing it.`\
-https://nytimes.com/slideshow/2022/08/23/realestate/a-nearly-perfect-east-hampton-escape.html?searchResultPosition=7
-
 **In Ukraine, a Nuclear Plant Held Hostage**\
 `Five months after Russian forces took over the Zaporizhzhia plant, all that stands between the world and nuclear disaster are dedicated Ukrainian operators working at gunpoint.`\
-https://nytimes.com/2022/08/23/world/europe/ukraine-zaporizhzhia-nuclear-power-plant.html?searchResultPosition=8
+https://nytimes.com/2022/08/23/world/europe/ukraine-zaporizhzhia-nuclear-power-plant.html?searchResultPosition=7
+
+**A (Nearly) Perfect East Hampton Escape**\
+`Like many others during the pandemic, they were thrilled to find a place outside the city. The problem was furnishing it.`\
+https://nytimes.com/slideshow/2022/08/23/realestate/a-nearly-perfect-east-hampton-escape.html?searchResultPosition=8
 
 **‘I Don’t Feel Safe.’ Children Fear Going Back to School in Uvalde**\
 `Three months after 19 students and two teachers died in a mass shooting at Robb Elementary School, some students are opting for online classes or private schools.`\
