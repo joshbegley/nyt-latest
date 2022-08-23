@@ -2,7 +2,7 @@
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2022/08/23/style/tiny-modern-love-stories-i-rewrote-my-identity.html?searchResultPosition=1
 
-**Former Tennessee Speaker and Aide Charged With Bribery and Conspiracy**\
+**Ex-Tennessee Speaker and Aide Charged With Bribery and Conspiracy**\
 `F.B.I. agents arrested Glen Casada and Cade Cothren at their Tennessee homes on Tuesday.`\
 https://nytimes.com/2022/08/23/us/tennessee-glen-casada-bribery.html?searchResultPosition=2
 
