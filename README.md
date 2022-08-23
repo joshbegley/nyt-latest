@@ -1,4 +1,4 @@
-**Former Tennessee Speaker and Top Aide Arrested on Bribery, Conspiracy Charges**\
+**Former Tennessee Speaker and Top Aide Arrested on Bribery and Conspiracy Charges**\
 `F.B.I. agents arrested Glen Casada and Cade Cothren at their Tennessee homes on Tuesday.`\
 https://nytimes.com/2022/08/23/us/tennessee-glen-casada-bribery.html?searchResultPosition=1
 
