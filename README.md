@@ -1,4 +1,4 @@
-**India, a Dairy Titan, Studies How to Keep Milk Flowing in a Warmer World**\
+**India, a Dairy Titan, Studies How to Keep Milk Flowing in a Hotter World**\
 `As rising prices draw headlines, Indian scientists are getting creative in an effort to help producers, and animals, adapt.`\
 https://nytimes.com/2022/08/24/world/asia/india-climate-change-milk-prices.html?searchResultPosition=1
 
