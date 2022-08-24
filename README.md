@@ -31,7 +31,7 @@ https://nytimes.com/2022/08/24/sports/gary-gaines-dead.html?searchResultPosition
 https://nytimes.com/2022/08/24/technology/facebook-twitter-influence-campaign.html?searchResultPosition=8
 
 **N.Y. Special Election Shows Power of Abortion Debate to Move Democrats**\
-`Pat Ryan says his victory shows that the Democratic Party should “stop pulling our punches” on abortion and other issues.`\
+`Pat Ryan, a Democrat, warns against “pulling our punches” on abortion and other issues during the midterm elections.`\
 https://nytimes.com/2022/08/24/us/politics/ny-special-election-abortion.html?searchResultPosition=9
 
 **Amazon says it will shut down Amazon Care, its primary and urgent health care business.**\
