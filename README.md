@@ -19,7 +19,7 @@ https://nytimes.com/video/world/europe/100000008502425/zelensky-russia-train-sta
 https://nytimes.com/2022/08/24/briefing/ukraine-russia-india-milk-korea-fertility.html?searchResultPosition=5
 
 **At Top of European Soccer, Fears That Rules Don’t Apply to All**\
-`When the Paris St.-Germain president avoided punishment in a UEFA investigation, some worried that his power, and his friendships, were producing special treatment.`\
+`When the Paris St.-Germain president avoided punishment in a UEFA investigation, some worried that his power and his friendships were producing special treatment.`\
 https://nytimes.com/2022/08/24/sports/soccer/champions-league-psg-nasser.html?searchResultPosition=6
 
 **Mario Batali Settles 2 Sexual Misconduct Lawsuits**\
