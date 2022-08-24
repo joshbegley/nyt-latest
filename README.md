@@ -2,8 +2,8 @@
 `Three men wanted in a score of crimes attacked the 48-year-old officer, N.Y.P.D. officials said. He was in critical condition.`\
 https://nytimes.com/2022/08/24/nyregion/off-duty-police-officer-hospitalized-after-skull-is-fractured-in-robbery.html?searchResultPosition=1
 
-**Democrat Pat Ryan Wins House Seat in Race Where Abortion Was Issue**\
-`Mr. Ryan, a county executive, defeated Marc Molinaro, a Republican, in the Hudson Valley election.`\
+**Democrat Pat Ryan Wins in House Race That Turned on Abortion Rights**\
+`Mr. Ryan, a county executive, defeated Marc Molinaro, a Republican, in the Hudson Valley special election.`\
 https://nytimes.com/2022/08/24/nyregion/pat-ryan-democrat-special-election-congress.html?searchResultPosition=2
 
 **Calculating the Costs of War**\
