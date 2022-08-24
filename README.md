@@ -12,7 +12,7 @@ https://nytimes.com/2022/08/24/us/politics/kim-cheatle-secret-service.html?searc
 
 **These Americans Aren’t Retreating After Climate Catastrophe**\
 `Why Hurricane Harvey flooding victims struggled to imagine moving away from a place they called home even when their homes had just been destroyed.`\
-https://nytimes.com/2022/08/24/opinion/houston-flooding-managed-retreat-climate-change.html?searchResultPosition=4
+https://nytimes.com/2022/08/24/opinion/houston-flooding-climate-change.html?searchResultPosition=4
 
 **Defiant Under Russian Strikes, Ukrainians Celebrate a Nation ‘Reborn’**\
 `At least 22 people were killed in a missile strike on a rail station in eastern Ukraine, officials said. Celebrating the country’s Independence Day, Ukrainian leaders urged resolve.`\
