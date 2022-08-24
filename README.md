@@ -22,7 +22,7 @@ https://nytimes.com/2022/08/24/briefing/ukraine-independence-russia-europe.html?
 `Three men wanted in a score of crimes attacked the 48-year-old officer, N.Y.P.D. officials said. He was in critical condition.`\
 https://nytimes.com/2022/08/24/nyregion/off-duty-police-officer-hospitalized-robbery.html?searchResultPosition=6
 
-**Democrat Pat Ryan Wins in House Race That Turned on Abortion Rights**\
+**Democrat Pat Ryan Wins in House Race That Turned on Abortion**\
 `Mr. Ryan, a county executive, defeated Marc Molinaro, a Republican, in the Hudson Valley special election.`\
 https://nytimes.com/2022/08/24/nyregion/pat-ryan-special-election-abortion.html?searchResultPosition=7
 
