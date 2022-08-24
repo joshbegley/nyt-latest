@@ -1,4 +1,4 @@
-**Nadler Routs Maloney in One of String of Bitter Primaries in New York**\
+**Nadler Routs Maloney in Marquee Showdown of Bruising New York Primaries**\
 `In another closely watched race, the Democratic campaign chair fended off a challenge from the left in the Hudson Valley.`\
 https://nytimes.com/2022/08/23/nyregion/new-york-primary-nadler.html?searchResultPosition=1
 
