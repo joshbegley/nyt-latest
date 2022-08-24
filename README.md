@@ -18,7 +18,7 @@ https://nytimes.com/2022/08/24/style/why-are-my-sons-new-wife-and-baby-living-at
 `The Federal Reserve chair’s speech at the Fed’s conference in Wyoming on Friday could give investors some much needed clarity on what to focus on next.`\
 https://nytimes.com/2022/08/24/business/stocks-fed-powell.html?searchResultPosition=5
 
-**Len Dawson, Who Took the Chiefs to a Championship, Dies at 87**\
+**Len Dawson, Who Took Kansas City to a Championship, Dies at 87**\
 `After seeing little action for five seasons, he emerged as a star of the fledgling A.F.L. and one of the best quarterbacks in pro football.`\
 https://nytimes.com/2022/08/24/sports/football/len-dawson-dead.html?searchResultPosition=6
 
