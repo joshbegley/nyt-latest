@@ -7,7 +7,7 @@ https://nytimes.com/2022/08/24/well/family/reconnect-parents-teens.html?searchRe
 https://nytimes.com/video/world/europe/100000008501464/zelensky-ukraine-speech-russia-war.html?searchResultPosition=2
 
 **California to Ban the Sale of New Gasoline Cars**\
-`The decision, to take effect by 2035, will very likely speed a wider transition to electric vehicles because many other states follow California’s lead on tailpipe emissions.`\
+`The decision, to take effect by 2035, will very likely speed a wider transition to electric vehicles because many other states follow California’s standards.`\
 https://nytimes.com/2022/08/24/climate/california-gas-cars-emissions.html?searchResultPosition=3
 
 **After Four Decades, the Swamp-Pop Singer Tommy McLain Rises Again**\
