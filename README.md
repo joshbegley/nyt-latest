@@ -16,7 +16,7 @@ https://nytimes.com/2022/08/24/world/europe/russia-ukraine-war-toll.html?searchR
 
 **Republican Wins Special House Election in Rural New York**\
 `The victory by Joe Sempolinski will keep the seat, which became vacant when Tom Reed stepped down in May, under G.O.P. control.`\
-https://nytimes.com/2022/08/24/nyregion/sempolinski-23rd-district.html?searchResultPosition=5
+https://nytimes.com/2022/08/24/nyregion/joe-sempolinski-gop-23rd-district.html?searchResultPosition=5
 
 **6 Months Into War, Ukraine and Russia Are Both Reshaped**\
 `It has been six months since Russian forces swept into Ukraine. This is what the conflict looks like for the combatant.`\
