@@ -1,40 +1,40 @@
+**Most of the school board candidates DeSantis backed in Florida won.**\
+`Gov. Ron DeSantis did something that no previous Florida governor ever did: He took sides in nonpartisan school board races.`\
+https://nytimes.com/2022/08/24/us/politics/ron-desantis-florida-school-board.html?searchResultPosition=1
+
 **Google Finds ‘Inoculating’ People Against Misinformation Helps Blunt Its Power**\
 `British researchers and a team from Google found that teaching people how to spot misinformation made people more skeptical of it.`\
-https://nytimes.com/2022/08/24/technology/google-search-misinformation.html?searchResultPosition=1
+https://nytimes.com/2022/08/24/technology/google-search-misinformation.html?searchResultPosition=2
 
 **Jerry Allison, Who Played Drums With Buddy Holly, Dies at 82**\
 `An original Cricket, he was also a co-writer of two signature Holly songs, “That’ll Be the Day” and “Peggy Sue.”`\
-https://nytimes.com/2022/08/24/arts/music/jerry-allison-dead.html?searchResultPosition=2
+https://nytimes.com/2022/08/24/arts/music/jerry-allison-dead.html?searchResultPosition=3
 
 **Why Social Media Sites Are Removing Andrew Tate’s Accounts**\
 `TikTok, YouTube and Facebook have taken down accounts belonging to Mr. Tate, a 35-year-old British American.`\
-https://nytimes.com/2022/08/24/technology/andrew-tate-banned-tiktok-instagram.html?searchResultPosition=3
+https://nytimes.com/2022/08/24/technology/andrew-tate-banned-tiktok-instagram.html?searchResultPosition=4
 
 **Peloton will sell fitness equipment and apparel on Amazon.**\
 `The deal, which will help expand distribution of its stationary bikes, comes in the middle of a turnaround effort by the company’s new chief executive.`\
-https://nytimes.com/2022/08/24/business/peloton-amazon.html?searchResultPosition=4
+https://nytimes.com/2022/08/24/business/peloton-amazon.html?searchResultPosition=5
 
 **What will change if ‘trigger’ bans take effect in Tennessee, Idaho and Texas?**\
 `The laws place new restrictions on access to abortion for millions of women and in some cases add punishments for doctors who perform the procedures.`\
-https://nytimes.com/article/abortion-trigger-laws-tennessee-idaho-texas.html?searchResultPosition=5
+https://nytimes.com/article/abortion-trigger-laws-tennessee-idaho-texas.html?searchResultPosition=6
 
 **Growing Evidence Against a Republican Wave**\
 `Since the fall of Roe v. Wade, it’s increasingly hard to see the once-clear signs of a G.O.P. advantage.`\
-https://nytimes.com/2022/08/24/upshot/midterms-elections-republicans-analysis.html?searchResultPosition=6
+https://nytimes.com/2022/08/24/upshot/midterms-elections-republicans-analysis.html?searchResultPosition=7
 
 **Dorli Rainey, Unlikely Face of the Occupy Movement, Dies at 95**\
 `A picture taken of Ms. Rainey, who called herself an “old lady in combat boots,” after she was doused with pepper spray at a protest went viral.`\
-https://nytimes.com/2022/08/24/us/dorli-rainey-dead.html?searchResultPosition=7
+https://nytimes.com/2022/08/24/us/dorli-rainey-dead.html?searchResultPosition=8
 
 **They’re Comedy Stars at Home. At Edinburgh Fringe, They’re Nobodies.**\
 `Over 1,000 stand-ups play the Edinburgh Festival Fringe each year, hoping for a big break. Some are already huge names elsewhere.`\
-https://nytimes.com/2022/08/24/theater/edinburgh-fringe-comedy-vir-das.html?searchResultPosition=8
+https://nytimes.com/2022/08/24/theater/edinburgh-fringe-comedy-vir-das.html?searchResultPosition=9
 
 **Right and Wrong Ways to Address Climate Change**\
 `Readers agree with a guest essay that carbon capture is the wrong approach. Also: Pence’s courage; sexual abuse in youth sports; vaccinating toddlers.`\
-https://nytimes.com/2022/08/24/opinion/letters/climate-change.html?searchResultPosition=9
-
-**Trade between Russia and Britain falls to its lowest level on record.**\
-`New figures show the extent to which the British government’s economic sanctions against Russia are having an effect.`\
-https://nytimes.com/2022/08/24/business/economy/russia-uk-trade.html?searchResultPosition=10
+https://nytimes.com/2022/08/24/opinion/letters/climate-change.html?searchResultPosition=10
 
