@@ -4,7 +4,7 @@ https://nytimes.com/2022/08/23/nyregion/new-york-primary-nadler.html?searchResul
 
 **Usual Beginning**\
 `Colin Ernst puts a positive spin on today’s puzzle.`\
-https://nytimes.com/2022/08/23/crosswords/usual-beginning.html?searchResultPosition=2
+https://nytimes.com/2022/08/23/crosswords/daily-puzzle-2022-08-24.html?searchResultPosition=2
 
 **Sean Patrick Maloney Repels Challenge to Win Bitterly Fought Primary**\
 `Mr. Maloney, chair of the Democratic House campaign arm, was criticized for his handling of the redistricting process. He defeated State Senator Alessandra Biaggi.`\
@@ -16,7 +16,7 @@ https://nytimes.com/2022/08/23/us/florida-mail-carrier-dog-attack.html?searchRes
 
 **Jerry Nadler Routs Carolyn Maloney in Hard-Fought Matchup of Allies**\
 `The two powerful House committee leaders faced off in a Democratic primary, after New York’s redistricting process combined parts of their districts.`\
-https://nytimes.com/2022/08/23/nyregion/jerry-nadler-ny-primary.html?searchResultPosition=5
+https://nytimes.com/live/2022/08/23/us/election-new-york-florida-primary/jerry-nadler-ny-primary?searchResultPosition=5
 
 **A former coronavirus data manager who clashed with DeSantis will challenge Gaetz in Florida.**\
 `Rebekah D. Jones, who won the Democratic primary in the congressional district in Florida’s Panhandle, claimed in 2020 that she had been fired from her government job for refusing to suppress virus data.`\
