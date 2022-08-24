@@ -1,10 +1,10 @@
 **Off-Duty Police Officer Hospitalized After Skull Is Fractured in Robbery**\
 `Three men wanted in a score of crimes attacked the 48-year-old officer, N.Y.P.D. officials said. He was in critical condition.`\
-https://nytimes.com/2022/08/24/nyregion/off-duty-police-officer-hospitalized-after-skull-is-fractured-in-robbery.html?searchResultPosition=1
+https://nytimes.com/2022/08/24/nyregion/off-duty-police-officer-hospitalized-robbery.html?searchResultPosition=1
 
 **Democrat Pat Ryan Wins in House Race That Turned on Abortion Rights**\
 `Mr. Ryan, a county executive, defeated Marc Molinaro, a Republican, in the Hudson Valley special election.`\
-https://nytimes.com/2022/08/24/nyregion/pat-ryan-democrat-special-election-congress.html?searchResultPosition=2
+https://nytimes.com/2022/08/24/nyregion/pat-ryan-special-election-abortion.html?searchResultPosition=2
 
 **Calculating the Costs of War**\
 `Six months after Russia invaded Ukraine, the human and financial costs are incalculable. But the figures that have emerged paint a bleak picture.`\
