@@ -1,5 +1,5 @@
 **Student Loan Forgiveness, Explained**\
-`President Biden’s executive order means the student loan balances of millions of people could fall by as much as $20,000.`\
+`President Biden’s executive action means the student loan balances of millions of people could fall by as much as $20,000.`\
 https://nytimes.com/interactive/2022/08/24/business/student-loan-forgiveness-explained.html?searchResultPosition=1
 
 **Rage Against the Machine, Roaring On**\
