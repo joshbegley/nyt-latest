@@ -1,5 +1,5 @@
 **Consumer Demand Has Been Key Driver of Inflation in the U.S.**\
-`Research has found that Americans’ spending during the pandemic accounted for about 60% of inflation between 2019-21.`\
+`Research has found that Americans’ spending during the pandemic accounted for about 60% of inflation from 2019-21.`\
 https://nytimes.com/2022/08/24/business/consumer-demand-has-been-key-driver-of-inflation-in-the-us.html?searchResultPosition=1
 
 **Watch Live: Biden to Announce Decision on Student Loan Relief**\
