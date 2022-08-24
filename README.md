@@ -1,6 +1,6 @@
 **Mario Batali Settles 2 Sexual Misconduct Lawsuits**\
 `The celebrity chef has reached an agreement with two women who accused him of grabbing them in separate incidents in Boston.`\
-https://nytimes.com/2022/08/24/dining/mario-batali-settles-sexual-misconduct-lawsuits-settles.html?searchResultPosition=1
+https://nytimes.com/2022/08/24/dining/mario-batali-sexual-misconduct-lawsuits-settles.html?searchResultPosition=1
 
 **Memo Details Barr’s Justifications Not to Prosecute Trump**\
 `An unredacted document released by court order showed how in 2019, Justice Department lawyers argued against pursuing obstruction charges against President Donald J. Trump.`\
