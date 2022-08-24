@@ -15,7 +15,7 @@ https://nytimes.com/2022/08/24/us/politics/democrats-house-majority.html?searchR
 https://nytimes.com/2022/08/24/briefing/biden-student-loans-california-gasoline-cars.html?searchResultPosition=4
 
 **Student Loan Forgiveness, Explained**\
-`President Biden’s executive action means the student loan balances of millions of people could fall by as much as $20,000.`\
+`President Biden’s move means the student loan balances of millions of people could fall by as much as $20,000.`\
 https://nytimes.com/interactive/2022/08/24/business/student-loan-forgiveness-explained.html?searchResultPosition=5
 
 **Rage Against the Machine, Roaring On**\
