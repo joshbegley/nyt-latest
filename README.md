@@ -12,7 +12,7 @@ https://nytimes.com/2022/08/24/business/consumer-demand-has-been-key-driver-of-i
 
 **Watch Live: Biden to Announce Decision on Student Loan Relief**\
 `The highly anticipated decision could affect about 45 million borrowers nationwide, according to people familiar with the matter.`\
-https://nytimes.com/video/us/elections/100000008500824/biden-student-loan-debt-video.html?searchResultPosition=4
+https://nytimes.com/video/embedded/us/elections/100000008500824/biden-student-loan-debt-video.html?searchResultPosition=4
 
 **Most of the school board candidates DeSantis backed in Florida won.**\
 `Gov. Ron DeSantis did something that no previous Florida governor ever did: He took sides in nonpartisan school board races.`\
