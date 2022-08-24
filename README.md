@@ -8,7 +8,7 @@ https://nytimes.com/video/world/europe/100000008501464/zelensky-ukraine-speech-r
 
 **California to Ban the Sale of New Gasoline Cars**\
 `The decision, to take effect by 2035, will very likely speed a wider transition to electric vehicles because many other states follow California’s lead on tailpipe emissions.`\
-https://nytimes.com/2022/08/24/climate/california-ban-gasoline-cars.html?searchResultPosition=3
+https://nytimes.com/2022/08/24/climate/california-gas-cars-emissions.html?searchResultPosition=3
 
 **After Four Decades, the Swamp-Pop Singer Tommy McLain Rises Again**\
 `The 82-year-old musician never stopped performing, but “I Ran Down Every Dream,” made with a little help from Elvis Costello and Nick Lowe, is his first new album in more than 40 years.`\
