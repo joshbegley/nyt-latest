@@ -3,7 +3,7 @@
 https://nytimes.com/interactive/2022/08/24/us/politics/justice-dept-memo-barr.html?searchResultPosition=1
 
 **Twitter executives push back against whistle-blower complaint.**\
-`The narrative created by the company’s former head of security was “false,” executives said at an all-hands meeting.`\
+`The narrative created by the company’s former head of security is “false,” executives said at an all-hands meeting.`\
 https://nytimes.com/2022/08/24/technology/twitter-executives-push-back-against-whistle-blower-complaint.html?searchResultPosition=2
 
 **People Who Do Strength Training Live Longer — and Better**\
