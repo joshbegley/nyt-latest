@@ -1,6 +1,6 @@
 **Who won and who lost in Florida, New York and Oklahoma.**\
 `One powerful House Democrat ousted another in New York. In Florida, voters picked a challenger for Gov. Ron DeSantis. Here’s what else happened.`\
-https://nytimes.com/2022/08/24/us/politics/won-lost-new-york-florida-primary.html?searchResultPosition=1
+https://nytimes.com/2022/08/23/us/politics/won-lost-new-york-florida-primary.html?searchResultPosition=1
 
 **Daniel Goldman, Ex-Trump Prosecutor, Tops Crowded Field in N.Y. Primary**\
 `Mr. Goldman won a heavily contested primary race for a rare open seat covering parts of Manhattan and Brooklyn.`\
