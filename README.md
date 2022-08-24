@@ -1,6 +1,6 @@
 **Sean Patrick Maloney Repels Challenge to Win Bitterly Fought Primary**\
 `Mr. Maloney, chair of the Democratic House campaign arm, was criticized for his handling of the redistricting process. He defeated State Senator Alessandra Biaggi.`\
-https://nytimes.com/2022/08/23/nyregion/maloney-defeats-biaggi-ny-primary.html?searchResultPosition=1
+https://nytimes.com/2022/08/23/nyregion/maloney-alessandra-biaggi-primary.html?searchResultPosition=1
 
 **Dogs Attack and Kill Mail Carrier in Florida, Officials Say**\
 `Pamela Jane Rock had been out delivering mail when her vehicle broke down in Putnam County, Fla. Then, five dogs attacked her, the authorities said.`\
