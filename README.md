@@ -14,15 +14,11 @@ https://nytimes.com/2022/08/23/nyregion/maloney-alessandra-biaggi-primary.html?s
 `Pamela Jane Rock had been out delivering mail when her vehicle broke down in Putnam County, Fla. Then, five dogs attacked her, the authorities said.`\
 https://nytimes.com/2022/08/23/us/florida-mail-carrier-dog-attack.html?searchResultPosition=4
 
-**Jerry Nadler Routs Carolyn Maloney in Hard-Fought Matchup of Allies**\
-`The two powerful House committee leaders faced off in a Democratic primary, after New York’s redistricting process combined parts of their districts.`\
-https://nytimes.com/live/2022/08/23/us/election-new-york-florida-primary/jerry-nadler-ny-primary?searchResultPosition=5
-
 **A former coronavirus data manager who clashed with DeSantis will challenge Gaetz in Florida.**\
 `Rebekah D. Jones, who won the Democratic primary in the congressional district in Florida’s Panhandle, claimed in 2020 that she had been fired from her government job for refusing to suppress virus data.`\
-https://nytimes.com/2022/08/23/us/politics/rebekah-jones-matt-gaetz-florida.html?searchResultPosition=6
+https://nytimes.com/2022/08/23/us/politics/rebekah-jones-matt-gaetz-florida.html?searchResultPosition=5
 
 **Florida Democrats Pick Charlie Crist to Face Gov. Ron DeSantis**\
 `The victory by Mr. Crist, a former Republican governor who switched parties, sets up this fall’s contest as a race between a centrist and a hard-right conservative.`\
-https://nytimes.com/2022/08/23/us/politics/charlie-crist-desantis.html?searchResultPosition=7
+https://nytimes.com/2022/08/23/us/politics/charlie-crist-desantis.html?searchResultPosition=6
 
