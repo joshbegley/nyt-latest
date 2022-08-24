@@ -6,7 +6,7 @@ https://nytimes.com/2022/08/24/arts/music/tommy-mclain-i-ran-down-every-dream.ht
 `The agreement to buy a big stake in Yoox Net-a-Porter is a step toward consolidation in the online luxury retail industry.`\
 https://nytimes.com/2022/08/24/business/farfetch-strikes-a-deal-to-build-a-luxury-e-commerce-giant.html?searchResultPosition=2
 
-**Biden Cancels $10,000 in Student Loan Debt for Borrowers Earning Less Than $125,000**\
+**Biden to Cancel $10,000 in Student Loan Debt for Borrowers Earning Less Than $125,000**\
 `The debt forgiveness comes after months of deliberations in the White House over fairness and fears that the plan could exacerbate inflation before the midterms.`\
 https://nytimes.com/2022/08/24/us/politics/student-loan-forgiveness-biden.html?searchResultPosition=3
 
