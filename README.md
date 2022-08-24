@@ -1,5 +1,5 @@
-**Jury Awards Vanessa Bryant $16 Million in Suit Over Crash Site Photos**\
-`Ms. Bryant had sued Los Angeles County over the sharing of photos of human remains from the helicopter crash that killed her husband Kobe Bryant, her daughter and seven others. Another plaintiff was awarded $15 million.`\
+**Jury Awards Vanessa Bryant $16 Million in Suit Over Kobe Bryant Crash Photos**\
+`Ms. Bryant had sued Los Angeles County over the sharing of photos of human remains from the helicopter crash that killed her husband, her daughter and seven others. Another plaintiff was awarded $15 million.`\
 https://nytimes.com/2022/08/24/us/vanessa-bryant-verdict-crash-photos.html?searchResultPosition=2
 
 **Can the C.D.C. Save Itself?**\
@@ -14,7 +14,7 @@ https://nytimes.com/2022/08/24/nyregion/tax-fraud-yoga-to-the-people.html?search
 `Ms. Cheatle, who protected Mr. Biden as vice president, will be the second woman to lead the agency, which has recently weathered a series of scandals.`\
 https://nytimes.com/2022/08/24/us/politics/kim-cheatle-secret-service.html?searchResultPosition=5
 
-**These Americans Aren’t Retreating After Climate Catastrophe**\
+**Losing Your Neighborhood to Climate Change Is Sometimes Necessary**\
 `Why Hurricane Harvey flooding victims struggled to imagine moving away from a place they called home even when their homes had just been destroyed.`\
 https://nytimes.com/2022/08/24/opinion/houston-flooding-climate-change.html?searchResultPosition=6
 
