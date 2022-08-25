@@ -4,7 +4,7 @@ https://nytimes.com/2022/08/25/briefing/ukraine-student-debt-tigray.html?searchR
 
 **​Decades After a ‘Living Hell,’ Korean Victims​ Win a Step Toward Redress**\
 `Brothers Home was supposed to help get people off the streets, but a government commission has confirmed its role in detentions and other abuses was a “grave human rights violation by the state.”`\
-https://nytimes.com/2022/08/25/world/asia/south-korea-abuse-homeless.html?searchResultPosition=2
+https://nytimes.com/2022/08/25/world/asia/korea-abuse-brothers-home.html?searchResultPosition=2
 
 **How China Could Choke Taiwan**\
 `China is honing its ability to blockade Taiwan, giving Beijing the option of cutting off the self-ruled island in its campaign to take control of it.`\
