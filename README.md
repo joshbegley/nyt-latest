@@ -2,13 +2,13 @@
 `Researchers said the results offered promise to the millions of Americans with alcohol use disorder.`\
 https://nytimes.com/2022/08/25/health/psilocybin-mushrooms-alcohol-addiction.html?searchResultPosition=1
 
-**The Creep of History**\
-`Too much focus on the sins of the past can distract us from the injustices of the present.`\
-https://nytimes.com/2022/08/25/opinion/american-historical-association-controversy.html?searchResultPosition=2
-
 **‘Samaritan’ Review: Taking Out the Trash**\
 `In this action film from Julius Avery, Sylvester Stallone stars as a sanitation worker who may be a superhero.`\
-https://nytimes.com/2022/08/25/movies/samaritan-review-taking-out-the-trash.html?searchResultPosition=3
+https://nytimes.com/2022/08/25/movies/samaritan-review-taking-out-the-trash.html?searchResultPosition=2
+
+**The Creep of History**\
+`Too much focus on the sins of the past can distract us from the injustices of the present.`\
+https://nytimes.com/2022/08/25/opinion/american-historical-association-controversy.html?searchResultPosition=3
 
 **‘Funny Pages’ Review: Ordinary Life, Complex Stuff**\
 `Owen Kline’s wonderful feature debut about an aspiring comic-book creator delves into a buzzingly alive, if anxious, world of cartooning.`\
