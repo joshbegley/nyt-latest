@@ -10,7 +10,7 @@ https://nytimes.com/2022/08/25/us/politics/howard-rosenthal-dead.html?searchResu
 `The Infowars fabulist has been funneling millions out of his empire while claiming bankruptcy, the Sandy Hook families suing him say.`\
 https://nytimes.com/2022/08/25/us/politics/alex-jones-lawsuits-bankruptcy.html?searchResultPosition=3
 
-**Sanctioned for Misconduct, a Top Official Returns to the U.S. Open**\
+**Penalized for Misconduct, a Top Official Returns to the U.S. Open**\
 `Soeren Friemel served a one-year suspension and lost a top officiating job for inappropriate communication with an underling. The decision to bring him back has rankled some colleagues.`\
 https://nytimes.com/2022/08/25/sports/tennis/us-open-referee-soeren-friemel.html?searchResultPosition=4
 
