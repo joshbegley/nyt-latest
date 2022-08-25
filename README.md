@@ -14,7 +14,7 @@ https://nytimes.com/2022/08/25/technology/peloton-amazon.html?searchResultPositi
 `Set in 1988, this Korean action comedy follows a blithe driving team that goes undercover with holdovers from the old military leadership.`\
 https://nytimes.com/2022/08/25/movies/seoul-vibe-review.html?searchResultPosition=4
 
-**Biden’s student loan forgiveness plan divides elected officials, including Democrats.**\
+**Biden’s Student Loan Forgiveness Plan Divides Officials, Including Democrats**\
 `President Biden’s action would cancel $10,000 in debt for Americans earning less than $125,000 per year and cancel $20,000 for low-income students who received Pell grants.`\
 https://nytimes.com/2022/08/25/us/politics/student-loan-forgiveness-democrats-gop.html?searchResultPosition=5
 
