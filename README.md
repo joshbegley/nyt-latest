@@ -1,20 +1,20 @@
+**Why Peloton Is Selling on Amazon**\
+`The dream was to sell directly to customers. Now Peloton is on Amazon, Casper is in a furniture shop, and it’s awkward.`\
+https://nytimes.com/2022/08/25/technology/peloton-amazon.html?searchResultPosition=1
+
 **‘Three Thousand Years of Longing’ Review: Desire, Once Upon a Time**\
 `George Miller directs a visually sumptuous, grown-up fairy tale with Tilda Swinton and Idris Elba. It jumps across time but too often just stumbles.`\
-https://nytimes.com/2022/08/25/movies/three-thousand-years-of-longing-review.html?searchResultPosition=1
+https://nytimes.com/2022/08/25/movies/three-thousand-years-of-longing-review.html?searchResultPosition=2
 
 **14 Chicken Recipes Our Readers Can’t Get Enough Of**\
 `Baked, tossed into a salad, served with rice, and more ways to prepare everyone’s favorite poultry.`\
-https://nytimes.com/article/chicken-recipes-dinner-ideas.html?searchResultPosition=2
-
-**Why Peloton Is Selling on Amazon**\
-`The dream was to sell directly to customers. Now Peloton is on Amazon, Casper is in a furniture shop, and it’s awkward.`\
-https://nytimes.com/2022/08/25/technology/peloton-amazon.html?searchResultPosition=3
+https://nytimes.com/article/chicken-recipes-dinner-ideas.html?searchResultPosition=3
 
 **‘Seoul Vibe’ Review: Grinding Gears**\
 `Set in 1988, this Korean action comedy follows a blithe driving team that goes undercover with holdovers from the old military leadership.`\
 https://nytimes.com/2022/08/25/movies/seoul-vibe-review.html?searchResultPosition=4
 
-**Biden’s Student Loan Forgiveness Plan Divides Officials, Including Democrats**\
+**Biden’s Student Loan Forgiveness Plan Divides Democrats**\
 `President Biden’s action would cancel $10,000 in debt for Americans earning less than $125,000 per year and cancel $20,000 for low-income students who received Pell grants.`\
 https://nytimes.com/2022/08/25/us/politics/student-loan-forgiveness-democrats-gop.html?searchResultPosition=5
 
