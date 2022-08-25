@@ -1,40 +1,40 @@
-**The Score**\
-`Fleeing war, a pianist left her dreams behind. Thirty years later, she returns to her piano.`\
-https://nytimes.com/video/opinion/100000008461711/the-score.html?searchResultPosition=1
+**Cecilia Vicuña’s Desire Lines**\
+`After decades on the margins, the 74-year-old Chilean sculptor and poet has improbably become one of this year’s most acclaimed.`\
+https://nytimes.com/2022/08/25/magazine/cecilia-vicuna-art.html?searchResultPosition=1
 
-**As France Swelters, Private Jets Come Under Attack**\
-`Politicians are proposing regulating or banning flights by such planes after a summer of extreme heat and soaring energy prices prompted growing calls to tackle the causes of climate change.`\
-https://nytimes.com/2022/08/22/world/europe/france-private-jets-restrictions.html?searchResultPosition=2
+**Why Is This Colorful Little Wheel Suddenly Everywhere in Japan?**\
+`It’s the logo of the United Nations’ Sustainable Development Goals. And Japan is all in.`\
+https://nytimes.com/2022/08/25/business/japan-sdg.html?searchResultPosition=2
 
-**Pakistan Court Gives Imran Khan Another Reprieve From Arrest**\
-`The police were ordered not to arrest the former prime minister, who has been charged under Pakistan’s antiterrorism act, before a hearing set for next Wednesday.`\
-https://nytimes.com/2022/08/25/world/asia/imran-khan-pakistan-terrorism-charges.html?searchResultPosition=3
+**Brooklyn-Style Tennis: No Celebs, Plenty of Drama, Nothing Like the U.S. Open**\
+`A community of mostly Black players has thrived for decades at Lincoln Terrace Park despite outdated facilities, high crime and little recognition.`\
+https://nytimes.com/2022/08/25/nyregion/tennis-brookyln-us-open.html?searchResultPosition=3
 
-**Covering a Disaster That Hasn’t Happened Yet**\
-`Giant rainstorms have ravaged California before. Times journalists combined data, graphics and old-fashioned reporting to explore what the next big one might look like.`\
-https://nytimes.com/2022/08/25/insider/coming-california-megastorm.html?searchResultPosition=4
+**Before Serena, There Was Althea**\
+`Althea Gibson was the first Black player to win Wimbledon. Soon, the block in Harlem where she grew up will bear her name.`\
+https://nytimes.com/2022/08/25/nyregion/althea-gibson-tennis-harlem.html?searchResultPosition=4
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/08/25/crosswords/spelling-bee-forum.html?searchResultPosition=5
+**Making the Rounds on Nashville’s Singer-Songwriter Circuit**\
+`For music fans, songwriters’ nights at often unassuming venues provide an inexpensive and illuminating glimpse into Music City’s most celebrated business.`\
+https://nytimes.com/2022/08/25/travel/nashville-music.html?searchResultPosition=5
 
-**Your Thursday Briefing**\
-`A fatal attack mars Ukraine’s Independence Day.`\
-https://nytimes.com/2022/08/25/briefing/ukraine-student-debt-tigray.html?searchResultPosition=6
+**Harvey Hit 5 Years Ago. Its Floodwaters Did Not Strike Equitably.**\
+`A new study on the catastrophic storm found that up to 50,000 homes would have been spared flooding from Harvey in a world without climate change.`\
+https://nytimes.com/2022/08/25/climate/hurricane-harvey-climate-change.html?searchResultPosition=6
 
-**​Decades After a ‘Living Hell,’ Korean Victims​ Win a Step Toward Redress**\
-`Brothers Home was supposed to help get people off the streets, but a government commission has confirmed its role in detentions and other abuses was a “grave human rights violation by the state.”`\
-https://nytimes.com/2022/08/25/world/asia/korea-abuse-brothers-home.html?searchResultPosition=7
+**In a Small Mountain Town, a Beloved Theater Company Prevails**\
+`After reporting on the Creede Repertory Theater last summer, our writer returned for her vacation and took stock as the company restarted indoor performances.`\
+https://nytimes.com/2022/08/25/theater/creede-repertory-theater-colorado.html?searchResultPosition=7
 
-**How China Could Choke Taiwan**\
-`China is honing its ability to blockade Taiwan, giving Beijing the option of cutting off the self-ruled island in its campaign to take control of it.`\
-https://nytimes.com/interactive/2022/08/25/world/asia/china-taiwan-conflict-blockade.html?searchResultPosition=8
+**Can a Start-Up Help the Film and TV Industry Reduce Their Carbon Footprint?**\
+`The global entertainment industry generates millions of metric tons of carbon dioxide a year. A Spanish director has set up a company to try to cut that number substantially.`\
+https://nytimes.com/2022/08/25/business/app-movie-tv-carbon-footprint-creast.html?searchResultPosition=8
 
-**The Pros and Cons of Congestion Pricing in Manhattan**\
-`It will cut down on cars, but will it turn New Jersey into Manhattan’s A.T.M. and make the Bronx a pollution dump? Also, the likely end of a long congressional career.`\
-https://nytimes.com/2022/08/25/nyregion/the-pros-and-cons-of-congestion-pricing-in-manhattan.html?searchResultPosition=9
+**New Faces, New Places, as Boston Gets Revitalized**\
+`In New England’s largest city, there are exciting music venues, a floating oyster bar and newcomers on the arts and restaurant scenes that reflect its growing diversity.`\
+https://nytimes.com/2022/08/25/travel/whats-new-boston.html?searchResultPosition=9
 
-**Corrections: Aug. 25, 2022**\
-`Corrections that appeared in print on Thursday, Aug. 25, 2022.`\
-https://nytimes.com/2022/08/25/pageoneplus/corrections-aug-25-2022.html?searchResultPosition=10
+**This Manager Might Not be Anonymous for Long**\
+`Rob Thomson has quietly turned around the Phillies’ season. If he can end the franchise’s playoff drought, people might stop confusing him with other guys.`\
+https://nytimes.com/2022/08/25/sports/baseball/rob-thomson-phillies.html?searchResultPosition=10
 
