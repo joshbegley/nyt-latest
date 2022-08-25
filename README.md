@@ -1,5 +1,5 @@
 **Pakistan Court Gives Imran Khan Another Reprieve From Arrest**\
-`The police were ordered not to arrest the former prime minister, who has been charged under Pakistan’s antiterrorism act, before a hearing set for Wednesday.`\
+`The police were ordered not to arrest the former prime minister, who has been charged under Pakistan’s antiterrorism act, before a hearing set for next Wednesday.`\
 https://nytimes.com/2022/08/25/world/asia/imran-khan-pakistan-terrorism-charges.html?searchResultPosition=1
 
 **Covering a Disaster That Hasn’t Happened Yet**\
