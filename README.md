@@ -1,5 +1,5 @@
-**Imran Khan, Pakistan’s Former Leader, Appears in Court**\
-`Mr. Khan, who has made a stunning political comeback since being ousted as prime minister, made his first court appearance since being charged under the country’s antiterrorism act.`\
+**Pakistan Court Gives Imran Khan Another Reprieve From Arrest**\
+`The police were ordered not to arrest the former prime minister, who has been charged under Pakistan’s antiterrorism act, before a hearing set for Wednesday.`\
 https://nytimes.com/2022/08/25/world/asia/imran-khan-pakistan-terrorism-charges.html?searchResultPosition=1
 
 **Covering a Disaster That Hasn’t Happened Yet**\
