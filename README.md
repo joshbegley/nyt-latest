@@ -1,40 +1,40 @@
+**Biden’s student loan forgiveness plan divides elected officials, including Democrats.**\
+`President Biden’s action would cancel $10,000 in debt for Americans earning less than $125,000 per year and cancel $20,000 for low-income students who received Pell grants.`\
+https://nytimes.com/2022/08/25/us/politics/student-loan-forgiveness-democrats-gop.html?searchResultPosition=1
+
 **Discover Qatar's Adventurous Side**\
 `Since being chosen to host the 2022 FIFA World Cup, Qatar has made its commitment to sports a cornerstone of its national identity.`\
-https://nytimes.com/paidpost/qatar-tourism/discover-qatars-adventurous-side.html?searchResultPosition=1
+https://nytimes.com/paidpost/qatar-tourism/discover-qatars-adventurous-side.html?searchResultPosition=2
 
 **Immerse Yourself in Qatar's Vibrant Culture**\
 `Qatar has firmly established itself as the Middle East’s foremost destination for culture and an exciting discovery for international art aficionados.`\
-https://nytimes.com/paidpost/qatar-tourism/immerse-yourself-in-qatars-vibrant-culture.html?searchResultPosition=2
+https://nytimes.com/paidpost/qatar-tourism/immerse-yourself-in-qatars-vibrant-culture.html?searchResultPosition=3
 
 **Experience the  Flavors of Qatar**\
 `Historically, Qatar’s cuisine has been shaped by the spice trade and the nation’s proximity to India and Persia. But the great value Qataris place on food, and the warmth with which they share it, are very much the country’s own.`\
-https://nytimes.com/paidpost/qatar-tourism/experience-the-flavors-of-qatar.html?searchResultPosition=3
+https://nytimes.com/paidpost/qatar-tourism/experience-the-flavors-of-qatar.html?searchResultPosition=4
 
 **Soups and Stews for Summer**\
 `Recipes for when you need some coziness and comfort on a hot day.`\
-https://nytimes.com/2022/08/25/dining/soups-and-stews-for-summer.html?searchResultPosition=4
+https://nytimes.com/2022/08/25/dining/soups-and-stews-for-summer.html?searchResultPosition=5
 
 **Florida Pair Pleads Guilty in Theft of Biden’s Daughter’s Diary**\
 `Aimee Harris and Robert Kurlander admitted to participating in a conspiracy that saw Ashley Biden’s diary end up in the hands of the conservative group Project Veritas near the end of the 2020 campaign.`\
-https://nytimes.com/2022/08/25/us/politics/florida-pair-pleads-guilty-in-theft-of-bidens-daughters-diary.html?searchResultPosition=5
+https://nytimes.com/2022/08/25/us/politics/florida-pair-pleads-guilty-in-theft-of-bidens-daughters-diary.html?searchResultPosition=6
 
 **At the U.S. Open, 5 Artists Get a Place in the Sun**\
 `Five sculptures, created by artists from underrepresented communities, will find a place in the sun at the Billie Jean King National Tennis Center in Queens until Sept. 11.`\
-https://nytimes.com/2022/08/25/arts/design/us-open-artists.html?searchResultPosition=6
+https://nytimes.com/2022/08/25/arts/design/us-open-artists.html?searchResultPosition=7
 
 **Sean Hannity and Other Fox Stars Face Depositions in Defamation Suit**\
 `The depositions are one of the clearest indications yet of how aggressively Dominion Voting Systems is moving forward with its suit against the media company.`\
-https://nytimes.com/2022/08/25/business/media/sean-hannity-fox-dominion-defamation.html?searchResultPosition=7
+https://nytimes.com/2022/08/25/business/media/sean-hannity-fox-dominion-defamation.html?searchResultPosition=8
 
 **‘House of the Dragon’: Who Is Otto Hightower, and Why Does He Matter?**\
 `The King’s Hand in “Dragon” belongs to House Hightower, a minor presence in “Game of Thrones” but a major player in the prequel. Here’s some background.`\
-https://nytimes.com/2022/08/25/arts/television/house-of-the-dragon-hightower.html?searchResultPosition=8
+https://nytimes.com/2022/08/25/arts/television/house-of-the-dragon-hightower.html?searchResultPosition=9
 
 **Fresh Off a Series of Victories, Biden Steps Back Onto the Campaign Trail**\
 `Embracing the role of the Democratic Party’s top campaigner will mean confronting Republican attacks when nearly three-quarters of voters say the country is heading in the wrong direction.`\
-https://nytimes.com/2022/08/25/us/politics/biden-democrats-midterms.html?searchResultPosition=9
-
-**Serena Williams Will Play Danka Kovinic in U.S. Open First Round**\
-`Williams has said the U.S. Open, which begins on Monday, is likely her final tournament.`\
-https://nytimes.com/2022/08/25/sports/tennis/us-open-draw-serena-williams.html?searchResultPosition=10
+https://nytimes.com/2022/08/25/us/politics/biden-democrats-midterms.html?searchResultPosition=10
 
