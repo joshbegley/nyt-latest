@@ -16,7 +16,7 @@ https://nytimes.com/2022/08/25/realestate/cities-residential-views-air-quality.h
 
 **‘The Good Boss’ Review: Company Man**\
 `As the titular boss of this dark comedy from Spain, Javier Bardem engages in underhanded tactics to win an award for business excellence.`\
-https://nytimes.com/2022/08/25/movies/the-good-boss-review-company-man.html?searchResultPosition=5
+https://nytimes.com/2022/08/25/movies/the-good-boss-review.html?searchResultPosition=5
 
 **Former British Ambassador Is Arrested in Myanmar**\
 `Vicky Bowman is among several foreigners who have been arrested in the Southeast Asian nation after the military seized power in a coup last year.`\
