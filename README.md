@@ -2,7 +2,7 @@
 `Playing for international teams can earn top players more than $1 million. But Brittney Griner’s detention in Russia has complicated the choice to go abroad.`\
 https://nytimes.com/2022/08/24/sports/basketball/wnba-brittney-griner-russia-wnba-salaries.html?searchResultPosition=1
 
-**Judge Halts Idaho’s Abortion Ban, Saying It Violates Emergency Health Law**\
+**Judge Halts Part of Idaho’s Abortion Ban, Saying It Violates Health Law**\
 `The Justice Department sued Idaho this month, but its ability to influence policies in Republican states with so-called trigger laws is limited.`\
 https://nytimes.com/2022/08/24/us/politics/idaho-abortion-ban.html?searchResultPosition=2
 
