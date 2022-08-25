@@ -7,7 +7,7 @@ https://nytimes.com/2022/08/25/sports/basketball/wnba-liberty-sabrina-ionescu.ht
 https://nytimes.com/2022/08/25/nyregion/ghislaine-maxwell-lawyers-fees.html?searchResultPosition=2
 
 **Putin Orders a Sharp Expansion of Russia’s Hard-Hit Armed Forces**\
-`The decree suggests that President Vladimir V. Putin, expects a prolonged war in Ukraine, but he stopped short of full mobilization, and it was not clear how the military would reach his goal.`\
+`The decree suggests that President Vladimir V. Putin expects a prolonged war in Ukraine, but he stopped short of full mobilization, and it was not clear how the military would reach his goal.`\
 https://nytimes.com/2022/08/25/world/europe/putin-russia-military-expansion.html?searchResultPosition=3
 
 **Student Debt Relief Versus the Scaremongers**\
