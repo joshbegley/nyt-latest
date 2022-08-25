@@ -19,8 +19,8 @@ https://nytimes.com/paidpost/qatar-tourism/experience-the-flavors-of-qatar.html?
 https://nytimes.com/2022/08/25/dining/soups-and-stews-for-summer.html?searchResultPosition=5
 
 **Florida Pair Pleads Guilty in Theft of Biden’s Daughter’s Diary**\
-`Aimee Harris and Robert Kurlander admitted to participating in a conspiracy that saw Ashley Biden’s diary end up in the hands of the conservative group Project Veritas near the end of the 2020 campaign.`\
-https://nytimes.com/2022/08/25/us/politics/florida-pair-pleads-guilty-in-theft-of-bidens-daughters-diary.html?searchResultPosition=6
+`Aimee Harris and Robert Kurlander admitted to participating in a conspiracy in which Ashley Biden’s diary ended up in the hands of the conservative group Project Veritas near the end of the 2020 campaign.`\
+https://nytimes.com/2022/08/25/us/politics/ashley-biden-diary-project-veritas-guilty.html?searchResultPosition=6
 
 **At the U.S. Open, 5 Artists Get a Place in the Sun**\
 `Five sculptures, created by artists from underrepresented communities, will find a place in the sun at the Billie Jean King National Tennis Center in Queens until Sept. 11.`\
