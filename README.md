@@ -3,7 +3,7 @@
 https://nytimes.com/2022/08/24/sports/basketball/wnba-brittney-griner-russia-wnba-salaries.html?searchResultPosition=1
 
 **Judge Halts Part of Idaho’s Abortion Ban, Saying It Violates Health Law**\
-`The Justice Department sued Idaho this month, but its ability to influence policies in Republican states with so-called trigger laws is limited.`\
+`The preliminary injunction was a limited but significant victory for the Biden administration after the Justice Department sued Idaho this month.`\
 https://nytimes.com/2022/08/24/us/politics/idaho-abortion-ban.html?searchResultPosition=2
 
 **Uvalde Fires Its School Police Chief in Response to Shooting**\
