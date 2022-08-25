@@ -7,8 +7,8 @@ https://nytimes.com/2022/08/24/sports/basketball/wnba-brittney-griner-russia-wnb
 https://nytimes.com/2022/08/24/us/politics/idaho-abortion-ban.html?searchResultPosition=2
 
 **Uvalde Fires Its School Police Chief in Response to Shooting**\
-`The chief, Pete Arredondo, has been criticized for waiting too long to rescue students and teachers trapped in two classrooms with the gunman.`\
-https://nytimes.com/2022/08/24/us/uvalde-arredondo-fired.html?searchResultPosition=3
+`The chief, Pete Arredondo, had been criticized for waiting too long to rescue students and teachers trapped in two classrooms with the gunman.`\
+https://nytimes.com/2022/08/24/us/uvalde-police-chief-fired.html?searchResultPosition=3
 
 **Jury Awards Vanessa Bryant $16 Million in Suit Over Kobe Bryant Crash Photos**\
 `Ms. Bryant had sued Los Angeles County over the sharing of photos of human remains from the helicopter crash that killed her husband, her daughter and seven others. Another plaintiff was awarded $15 million.`\
