@@ -27,7 +27,7 @@ https://nytimes.com/article/matt-araiza-rape-lawsuit-buffalo-bills.html?searchRe
 https://nytimes.com/2022/08/26/movies/virginia-patton-moss-dead.html?searchResultPosition=7
 
 **Seattle to Give Rookie a Contract to Match His Ambition**\
-`Julio Rodríguez talks, and plays, like one of the best players in the game. Still only 21, his new deal with the Mariners could pay him as much as $470 million.`\
+`Julio Rodríguez talks, and plays, like one of the best players in the game. While he is only 21, his new deal with the Mariners could pay him as much as $470 million.`\
 https://nytimes.com/2022/08/26/sports/baseball/julio-rodriguez-mariners-contract.html?searchResultPosition=8
 
 **Catching Up With ‘Star Trek,’ the Quiet Franchise**\
