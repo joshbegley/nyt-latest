@@ -36,5 +36,5 @@ https://nytimes.com/2022/08/26/arts/music/sy-johnson-dead.html?searchResultPosit
 
 **NBC Discusses Ending Prime-Time Lineup at 10 p.m.**\
 `Even the consideration of such a move shows the waning influence of traditional broadcast TV.`\
-https://nytimes.com/2022/08/26/business/media/nbc-discusses-ending-prime-time-lineup-at-10-pm.html?searchResultPosition=10
+https://nytimes.com/2022/08/26/business/media/nbc-prime-time.html?searchResultPosition=10
 
