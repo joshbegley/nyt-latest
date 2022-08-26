@@ -1,4 +1,4 @@
-**Ukraine’s Dilemma: Whether to Try a Major Offensive to Break a Stalemate**\
+**Ukraine Weighs a Risky Offensive to Break Out of a Stalemate**\
 `Both Russia and Ukraine are preparing for a protracted standoff, but Ukraine has greater incentive to try to avoid it.`\
 https://nytimes.com/2022/08/26/world/europe/ukraine-russia-war-putin.html?searchResultPosition=1
 
