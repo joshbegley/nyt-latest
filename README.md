@@ -30,7 +30,7 @@ https://nytimes.com/2022/08/26/business/stock-market-bear-nothing.html?searchRes
 `A guide to life, drawn from seven years of the magazine’s Tip column.`\
 https://nytimes.com/interactive/2022/08/26/magazine/tips-for-everything.html?searchResultPosition=8
 
-**Jerome Powell Warns That War on Inflation May Be Painful**\
+**Jerome Powell Warns That the War on Inflation May Be Painful**\
 `The Federal Reserve chair pledged to resolutely fight rapid price increases, arguing the bigger mistake would be allowing price increases to become entrenched.`\
 https://nytimes.com/2022/08/26/business/economy/jerome-powell-inflation.html?searchResultPosition=9
 
