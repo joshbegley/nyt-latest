@@ -1,4 +1,4 @@
-**Republicans, once outraged by the Mar-a-Lago search, become quieter as details emerge.**\
+**Republicans, Once Outraged by Mar-a-Lago Search, Become Quieter as Details Emerge**\
 `Some of former President Donald J. Trump’s most loyal allies were initially focused elsewhere — a potentially telling reaction with ramifications for his political future.`\
 https://nytimes.com/2022/08/26/us/trump-search-republican-reactions.html?searchResultPosition=1
 
