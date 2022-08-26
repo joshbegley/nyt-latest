@@ -18,7 +18,7 @@ https://nytimes.com/2022/08/25/arts/design/christies-auction-paul-allen-art-coll
 `Kevin Hart and Mark Wahlberg star in this boys’ night out comedy that fails to find its laughs.`\
 https://nytimes.com/2022/08/25/movies/me-time-review.html?searchResultPosition=5
 
-**White House Orders Journals to Drop Paywalls on Publicly Funded Research**\
+**White House Pushes Journals to Drop Paywalls on Publicly Funded Research**\
 `The policy, hailed by researchers as “transformational,” will be fully in place by 2026 and make publicly financed research available immediately at no cost.`\
 https://nytimes.com/2022/08/25/us/white-house-federally-funded-research-access.html?searchResultPosition=6
 
