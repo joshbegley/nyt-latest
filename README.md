@@ -18,7 +18,7 @@ https://nytimes.com/2022/08/26/technology/crypto-ethereum-the-merge.html?searchR
 `Since Coco Gauff went pro at 14, she has played under the weight of high expectations. Now 18, she has her own measures for greatness.`\
 https://nytimes.com/2022/08/26/magazine/coco-gauff-us-open.html?searchResultPosition=5
 
-**Social Media Star Moves From Israel to Dubai, a ‘Betrayal’ to Some Fans**\
+**‌A Social Media Star of a Changed Middle East: An Arab From Israel in Dubai**\
 `Nuseir Yassin, a Palestinian citizen of Israel with nearly 60 million followers, has taken advantage of new diplomatic ties to move to the United Arab Emirates — angering many Palestinians.`\
 https://nytimes.com/2022/08/26/world/middleeast/nas-daily-israel-uae.html?searchResultPosition=6
 
