@@ -14,7 +14,7 @@ https://nytimes.com/2022/08/26/opinion/russia-ukraine-oil-gas-prices.html?search
 `Sonja Kostich, a cultural administrator and dancer, will lead the group as it works to expand its audience amid the pandemic.`\
 https://nytimes.com/2022/08/26/arts/dance/baryshnikov-arts-center-sonja-kostich.html?searchResultPosition=4
 
-**Why Student Loan Borrowers Need Relief**\
+**The Toll of Student Debt in the U.S.**\
 `The amount of student loan debt held in America has grown to roughly the size of the economy of Brazil or Australia as the cost of higher education has skyrocketed over the last half-century.`\
 https://nytimes.com/interactive/2022/08/26/your-money/student-loan-forgiveness-debt.html?searchResultPosition=5
 
