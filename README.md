@@ -18,7 +18,7 @@ https://nytimes.com/2022/08/26/books/review/john-lithgow-on-an-actors-education.
 `A jazz Renaissance man, he arranged many of the bassist’s later works and also wrote reviews, took photographs and composed his own music.`\
 https://nytimes.com/2022/08/26/arts/music/sy-johnson-dead.html?searchResultPosition=5
 
-**NBC discusses ending prime-time lineup at 10 p.m.**\
+**NBC Discusses Ending Prime-Time Lineup at 10 p.m.**\
 `Even the consideration of such a move shows the waning influence of traditional broadcast TV.`\
 https://nytimes.com/2022/08/26/business/media/nbc-discusses-ending-prime-time-lineup-at-10-pm.html?searchResultPosition=6
 
