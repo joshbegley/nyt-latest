@@ -12,7 +12,7 @@ https://nytimes.com/2022/08/26/books/review/the-secret-battle-of-evan-pao-wendy-
 
 **British household energy bills to rise 80 percent, regulator says.**\
 `The latest increase in gas and electric charges, reflecting tight energy markets stretched by the war in Ukraine, is expected to stoke inflation in Britain.`\
-https://nytimes.com/2022/08/26/business/british-household-energy-bills-to-rise-80-percent-regulator-says.html?searchResultPosition=4
+https://nytimes.com/2022/08/26/business/uk-energy-price-cap.html?searchResultPosition=4
 
 **Game Face**\
 `The Thai American heroine of Christina Soontornvat’s graphic novel wrestles with anti-Asian racism while auditioning for the cheerleading squad.`\
