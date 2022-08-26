@@ -1,4 +1,4 @@
-**Ringworm? Tatis’s Explanations Stretch Common Sense, Experts Say**\
+**Ringworm? Tatis’s Explanations Stretch Common Sense, Experts Say.**\
 `The Padres star Fernando Tatis Jr. said he tested positive for a banned steroid after innocently using a cream to treat a skin problem. There are several reasons to question his story.`\
 https://nytimes.com/2022/08/26/sports/baseball/fernando-tatis-jr-baseball-steroids.html?searchResultPosition=1
 
