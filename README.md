@@ -1,40 +1,40 @@
-**The Long Tail of Covid-19 Disinformation**\
-`Almost all of Australia and New Zealand’s pandemic restrictions have been lifted. Yet the protests continue.`\
-https://nytimes.com/2022/08/26/world/australia/covid-disinformation-australia-new-zealand.html?searchResultPosition=1
+**The New York Times News Quiz, August 26, 2022**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2022/08/26/briefing/news-quiz-student-loan-forgiveness.html?searchResultPosition=1
 
-**China’s Record Drought Adds to Its Economic and Climate Woes**\
-`Dry weather in southwestern China has crippled huge  hydroelectric dams, forcing cities to impose rolling blackouts and driving up the country’s use of coal.`\
-https://nytimes.com/2022/08/26/business/economy/china-drought-economy-climate.html?searchResultPosition=2
+**With Military Attacks and Mockery, Ukraine Pokes the Russian Bear**\
+`Driven by deep anger at Russia and the need to rally support at home and abroad, Ukraine is regularly goading its much more powerful antagonist.`\
+https://nytimes.com/2022/08/26/world/europe/ukraine-russia-taunting.html?searchResultPosition=2
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/08/26/crosswords/spelling-bee-forum.html?searchResultPosition=3
+**The Crypto World Can’t Wait for ‘the Merge’**\
+`A long-awaited upgrade to Ethereum, the most popular crypto platform, may make the technology more environmentally sustainable. But it comes with risks.`\
+https://nytimes.com/2022/08/26/technology/crypto-ethereum-the-merge.html?searchResultPosition=3
 
-**Soldiering On**\
-`In “The Secret Battle of Evan Pao,” a Chinese American boy and his family feel as if they’re refighting the U.S. Civil War.`\
-https://nytimes.com/2022/08/26/books/review/the-secret-battle-of-evan-pao-wendy-wan-long-shang.html?searchResultPosition=4
+**Can Coco Gauff the Tennis Prodigy Become a Tennis Legend?**\
+`Since Coco Gauff went pro at 14, she has played under the weight of high expectations. Now 18, she has her own measures for greatness.`\
+https://nytimes.com/2022/08/26/magazine/coco-gauff-us-open.html?searchResultPosition=4
 
-**British household energy bills to rise 80 percent, regulator says.**\
-`The latest increase in gas and electric charges, reflecting tight energy markets stretched by the war in Ukraine, is expected to stoke inflation in Britain.`\
-https://nytimes.com/2022/08/26/business/uk-energy-price-cap.html?searchResultPosition=5
+**Social Media Star Moves From Israel to Dubai, a ‘Betrayal’ to Some Fans**\
+`Nuseir Yassin, a Palestinian citizen of Israel with nearly 60 million followers, has taken advantage of new diplomatic ties to move to the United Arab Emirates — angering many Palestinians.`\
+https://nytimes.com/2022/08/26/world/middleeast/nas-daily-israel-uae.html?searchResultPosition=5
 
-**Game Face**\
-`The Thai American heroine of Christina Soontornvat’s graphic novel wrestles with anti-Asian racism while auditioning for the cheerleading squad.`\
-https://nytimes.com/2022/08/26/books/review/christina-soontornvat-the-tryout.html?searchResultPosition=6
+**What Does it Take to Broadcast a Formula 1 Race? Drones, Cameras and a Helicopter.**\
+`The sport uses dozens of cameras to broadcast the action, from the track, in the air and even from inside the cars.`\
+https://nytimes.com/2022/08/26/sports/autoracing/formula-1-broadcast-technology.html?searchResultPosition=6
 
-**Retail Marijuana in New York: Where the Goliaths Bolster the Davids**\
-`Medical marijuana companies are required to assist small retailers. Also, why you will continue to swelter on the subway platform.`\
-https://nytimes.com/2022/08/26/nyregion/retail-marijuana-in-new-york-where-the-goliaths-bolster-the-davids.html?searchResultPosition=7
+**After Formula 1’s Summer Break, Max Verstappen Is Firmly on Top**\
+`The Red Bull driver leads by 80 points, and his team is hoping for its first constructors’ title since 2013.`\
+https://nytimes.com/2022/08/26/sports/autoracing/max-verstappen-formula-1.html?searchResultPosition=7
 
-**Your Friday Briefing**\
-`Vladimir Putin will expand Russia’s military.`\
-https://nytimes.com/2022/08/26/briefing/russia-military-expand-taiwan-blockade.html?searchResultPosition=8
+**The Seeds Strike Back**\
+`Chia seeds are back (again) — and nutritionists and doctors say there are good reasons for it.`\
+https://nytimes.com/2022/08/26/well/eat/chia-seeds-benefits.html?searchResultPosition=8
 
-**Corrections: Aug. 26, 2022**\
-`Corrections that appeared in print on Friday, Aug. 26, 2022.`\
-https://nytimes.com/2022/08/26/pageoneplus/corrections-aug-26-2022.html?searchResultPosition=9
+**How to Tread Lightly in Fragile Places**\
+`Organizing a responsible visit to sensitive areas like the Galápagos Islands or Antarctica involves research, decoding certifications and possibly a travel adviser.`\
+https://nytimes.com/2022/08/26/travel/how-to-take-a-sustainable-trip.html?searchResultPosition=9
 
-**Quotation of the Day: Rover, Too, May End Up Struggling with Dementia**\
-`Quotation of the Day for Friday, Aug. 26, 2022.`\
-https://nytimes.com/2022/08/26/todayspaper/quotation-of-the-day-rover-too-may-end-up-struggling-with-dementia.html?searchResultPosition=10
+**Foreign Films, English Titles and the Dilemma Distributors Face**\
+`Leave as is? Translate? Change altogether? A movie’s success doesn’t depend entirely on what we call it, but it can have a big effect.`\
+https://nytimes.com/2022/08/26/movies/foreign-film-titles-parasite.html?searchResultPosition=10
 
