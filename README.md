@@ -6,7 +6,7 @@ https://nytimes.com/2022/08/26/us/politics/doug-mastriano-confederate-uniform-ar
 `The affidavit showed that prosecutors tried to retrieve the documents for more than a year and are now worried about obstruction of justice.`\
 https://nytimes.com/2022/08/26/us/trump-search-takeaways.html?searchResultPosition=2
 
-**Biden Had Doubts on Student Debt Relief. After Months of Pressure, He Gave In.**\
+**Biden Gave In to Pressure on Student Debt Relief After Months of Doubt**\
 `At the White House and aboard Air Force One, advocates of debt cancellation made a sustained push to win over the president, who feared the plan would be seen as a giveaway to the privileged.`\
 https://nytimes.com/2022/08/26/us/politics/biden-student-loans.html?searchResultPosition=3
 
