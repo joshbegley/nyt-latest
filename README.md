@@ -1,40 +1,40 @@
+**Corrections: Aug. 26, 2022**\
+`Corrections that appeared in print on Friday, Aug. 26, 2022.`\
+https://nytimes.com/2022/08/26/pageoneplus/corrections-aug-26-2022.html?searchResultPosition=1
+
+**Quotation of the Day: Rover, Too, May End Up Struggling with Dementia**\
+`Quotation of the Day for Friday, Aug. 26, 2022.`\
+https://nytimes.com/2022/08/26/todayspaper/quotation-of-the-day-rover-too-may-end-up-struggling-with-dementia.html?searchResultPosition=2
+
+**‘It Was Magic From the First Second’**\
+`When Chelsea White, a writer and producer, first met Tash Neal, a musician, their attraction was instant. By the end of their first date, he felt “butterflies” and she found her “dream man.”`\
+https://nytimes.com/2022/08/26/style/chelsea-white-tash-neal-wedding.html?searchResultPosition=3
+
+**At Karaoke and as a Couple, Always in Unison**\
+`Zohar Fuller and Maryse Pearce, who bonded in part over a love of theater, started dating soon after they performed a duet of “Build Me Up Buttercup” at karaoke.`\
+https://nytimes.com/2022/08/26/style/zohar-fuller-maryse-pearce-wedding.html?searchResultPosition=4
+
+**Lockdown Was Our Romantic Bubble, but Bubbles Burst**\
+`Our connection began behind masks, with eyes only, and grew so deep so fast that I began to dread a return to normal here in Shanghai.`\
+https://nytimes.com/2022/08/26/style/modern-love-lockdown-in-shanghai.html?searchResultPosition=5
+
+**When a Dating App Didn’t Work, an Old-Fashioned Setup Did**\
+`Shafin Fattah first encountered Luvana Chowdhury on a Muslim dating app, but she never responded when he expressed interest. Months later, at the suggestion of a mutual friend, they had a first date.`\
+https://nytimes.com/2022/08/26/style/luvana-chowdhury-shafin-fattah-wedding.html?searchResultPosition=6
+
+**From the First Date, Looking the Part of Husband and Wife**\
+`Caroline Hubbard and Michael McMillan II met when he ran into her at a bar. On their first date, there were already signs of a future together.`\
+https://nytimes.com/2022/08/26/style/caroline-hubbard-michael-mcmillan-ii-wedding.html?searchResultPosition=7
+
 **Variety: Acrostic**\
 `Don’t let this tough puzzle make you nervous; Emily Cox and Henry Rathvon can smell fear from miles away.`\
-https://nytimes.com/2022/08/25/crosswords/variety-acrostic.html?searchResultPosition=1
+https://nytimes.com/2022/08/25/crosswords/variety-acrostic.html?searchResultPosition=8
 
 **Review: A Faithful ‘Kinky Boots,’ With All Its Pizazz and Pitfalls**\
 `The Cyndi Lauper and Harvey Fierstein musical, in which the drag queen Lola saves a provincial shoe factory, makes an Off Broadway return at the spacious Stage 42.`\
-https://nytimes.com/2022/08/25/theater/kinky-boots-review.html?searchResultPosition=2
+https://nytimes.com/2022/08/25/theater/kinky-boots-review.html?searchResultPosition=9
 
 **50/50 Chance**\
 `You can count on Robert Logan’s Friday puzzle.`\
-https://nytimes.com/2022/08/25/crosswords/daily-puzzle-2022-08-26.html?searchResultPosition=3
-
-**Christie’s to Sell Paul G. Allen’s $1 Billion Art Collection**\
-`The sale, which is expected to be the biggest in auction history for a private collection, will offer works from the Microsoft co-founder’s impressive cache that ranges from old masters to contemporary giants.`\
-https://nytimes.com/2022/08/25/arts/design/christies-auction-paul-allen-art-collection.html?searchResultPosition=4
-
-**‘Me Time’ Review: In Search of Lost Dad Jokes**\
-`Kevin Hart and Mark Wahlberg star in this boys’ night out comedy that fails to find its laughs.`\
-https://nytimes.com/2022/08/25/movies/me-time-review.html?searchResultPosition=5
-
-**White House Pushes Journals to Drop Paywalls on Publicly Funded Research**\
-`The policy, hailed by researchers as “transformational,” will be fully in place by 2026 and make publicly financed research available immediately at no cost.`\
-https://nytimes.com/2022/08/25/us/white-house-federally-funded-research-access.html?searchResultPosition=6
-
-**Judge Strikes Down Texas Law Barring Adults Under 21 From Carrying Handguns**\
-`The federal judge ruled that the Second Amendment, “as informed by Founding-era history and tradition,” did not exclude 18- to 20-year-olds from the right to carry handguns.`\
-https://nytimes.com/2022/08/25/us/texas-handguns-under-21.html?searchResultPosition=7
-
-**How to Track Down Your Vaccine History**\
-`There are ways to figure out what you’ve been vaccinated for, even if you have no hope of finding the original records.`\
-https://nytimes.com/2022/08/25/well/live/vaccination-records-history.html?searchResultPosition=8
-
-**Liberty Reflect on a Season of Changes**\
-`Under a first-year coach, the young team dealt with injuries and inconsistency before losing in the first round of the W.N.B.A. playoffs to the reigning champion Chicago Sky.`\
-https://nytimes.com/2022/08/25/sports/basketball/wnba-liberty-sabrina-ionescu.html?searchResultPosition=9
-
-**Ghislaine Maxwell’s Own Lawyers Are Now Suing Her**\
-`The law firm Haddon, Morgan and Foreman has accused Ms. Maxwell and her brother of failing to pay nearly $900,000 in legal fees related to her sex abuse defense.`\
-https://nytimes.com/2022/08/25/nyregion/ghislaine-maxwell-lawyers-fees.html?searchResultPosition=10
+https://nytimes.com/2022/08/25/crosswords/daily-puzzle-2022-08-26.html?searchResultPosition=10
 
