@@ -3,7 +3,7 @@
 https://nytimes.com/2022/08/27/sports/tennis/us-open-analytics-data.html?searchResultPosition=1
 
 **In Finland, a Partying Prime Minister Draws Tuts, and Cheers**\
-`Leaked videos featuring Sanna Marin dancing boisterously have raised the question of whether she is held to a different standard than older, male leaders are.`\
+`Leaked videos featuring Sanna Marin dancing have raised the question of whether she is held to a different standard than older, male leaders are.`\
 https://nytimes.com/2022/08/27/world/europe/sanna-marin-finland-pm-party.html?searchResultPosition=2
 
 **This Teen Was Prescribed 10 Psychiatric Drugs. She’s Not Alone.**\
