@@ -2,13 +2,13 @@
 `The annual gay pride event was to take place in September in Belgrade. President Aleksandar Vucic said the timing was bad, citing “numerous problems” currently affecting the country.`\
 https://nytimes.com/2022/08/27/world/europe/europride-belgrade.html?searchResultPosition=1
 
-**The New Big Brother: Your Company Is Watching You**\
-`Many companies now use software to track the productivity of their workers. Readers don’t like it.`\
-https://nytimes.com/2022/08/27/opinion/letters/companies-track-workers-productivity.html?searchResultPosition=2
-
 **As DeSantis Campaigns on Education, Crist Picks Teacher as Running Mate**\
 `Karla Hernández-Mats, head of the largest teachers union in the region, criticized the Republican governor for attacking educators. “This is what dictators do,” she said.`\
-https://nytimes.com/2022/08/27/us/charlie-crist-karla-hernandez-mats-florida-gov.html?searchResultPosition=3
+https://nytimes.com/2022/08/27/us/charlie-crist-karla-hernandez-mats-florida-gov.html?searchResultPosition=2
+
+**The New Big Brother: Your Company Is Watching You**\
+`Many companies now use software to track the productivity of their workers. Readers don’t like it.`\
+https://nytimes.com/2022/08/27/opinion/letters/companies-track-workers-productivity.html?searchResultPosition=3
 
 **Republicans Would Like to Offer You Some Resentment**\
 `In response to the student loan forgiveness program, they opted for class warfare.`\
