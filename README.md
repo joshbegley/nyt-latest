@@ -6,7 +6,7 @@ https://nytimes.com/2022/08/27/opinion/republican-biden-student-loan-program.htm
 `One sociolinguistic study helps show why the issue is more complicated.`\
 https://nytimes.com/2022/08/27/opinion/racism-test.html?searchResultPosition=2
 
-**You Want Your Electric Car to Have a 300-Mile Range? When Was the Last Time You Drove 300 Miles?**\
+**You Want an Electric Car With a 300-Mile Range? When Was the Last Time You Drove 300 Miles?**\
 `There are better ways to use batteries than putting them in premium EVs.`\
 https://nytimes.com/2022/08/27/opinion/electric-car-battery-range.html?searchResultPosition=3
 
