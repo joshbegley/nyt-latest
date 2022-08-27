@@ -8,7 +8,7 @@ https://nytimes.com/2022/08/27/briefing/five-love-languages-30-years.html?search
 
 **At One of Canada’s Top Destinations, Tourists Are Back but Much Has Changed**\
 `The towns in and around Banff National Park are teeming again, but overseas visitors are scarce, as are hotel and restaurant workers.`\
-https://nytimes.com/2022/08/27/world/canada/at-one-of-canadas-top-destinations-tourists-are-back-but-much-has-changed.html?searchResultPosition=3
+https://nytimes.com/2022/08/27/world/canada/banff-tourism.html?searchResultPosition=3
 
 **Analytics in Tennis Has Been an Evolution, Not a Revolution**\
 `A new era of data analysis has given players deeper insights into their opponents’ games and a strategic advantage.`\
