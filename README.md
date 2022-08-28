@@ -1,4 +1,4 @@
-**A Festival That Conjures the Black Magic of H.P. Lovecraft**\
+**A Festival That Conjures the Strange Magic of H.P. Lovecraft**\
 `At the Rhode Island event, revelers danced to murder ballads and celebrated all things weird. They even found time to reckon with the writer’s racism.`\
 https://nytimes.com/2022/08/28/books/necronomicon-providence-hp-lovecraft.html?searchResultPosition=1
 
