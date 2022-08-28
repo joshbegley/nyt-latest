@@ -1,40 +1,40 @@
+**Referendum Seeks to Mend the Open Wound at Australia’s Heart**\
+`The new prime minister is seeking support for an Aboriginal Voice to Parliament, even enlisting the backing of Shaquille O’Neal. Here’s what it would entail, and why it faces an uncertain path.`\
+https://nytimes.com/2022/08/28/world/australia/voice-to-parliament-referendum.html?searchResultPosition=1
+
+**Trying to Keep Americans Camping With Treehouses and Yurts**\
+`Interest in camping soared in the pandemic, and now, as social-distancing restrictions are winding down, the sector is showing signs that it may maintain its popularity.`\
+https://nytimes.com/2022/08/28/business/camping-amenities-developers.html?searchResultPosition=2
+
+**The Office’s Last Stand**\
+`It’s either the end of the era of flexibility around where work takes place — or the beginning of outright rebellion.`\
+https://nytimes.com/2022/08/28/business/the-offices-last-stand.html?searchResultPosition=3
+
+**One Man’s Dream of Fusing A.I. With Common Sense**\
+`Artificial intelligence systems can process vast amounts of data in seconds, but they can’t make sense of the world or explain their decisions. David Ferrucci wants to change that.`\
+https://nytimes.com/2022/08/28/business/ai-artificial-intelligence-david-ferrucci.html?searchResultPosition=4
+
+**Homes That Sold for Around $1 Million**\
+`Recent residential sales in New York City and the region.`\
+https://nytimes.com/2022/08/28/realestate/homes-that-sold-for-around-1-million.html?searchResultPosition=5
+
+**In New Hampshire, Republicans Weigh Another Hard Right Candidate**\
+`Don Bolduc, a retired Army general, has played to the Republican base and is leading in polls to take on Senator Maggie Hassan, who is viewed as vulnerable in November.`\
+https://nytimes.com/2022/08/28/us/politics/don-buldoc-new-hampshire.html?searchResultPosition=6
+
+**After 20 Years in a Men’s Prison, a Trans Woman Returns Home**\
+`James Hannaham’s new novel imagines a convict’s fateful re-entry into a much-changed Brooklyn.`\
+https://nytimes.com/2022/08/28/books/review/james-hannaham-didnt-nobody-carlotta.html?searchResultPosition=7
+
+**Counting the Population Has Always Been Political**\
+`In the deft and surprisingly lively “Democracy’s Data,” Dan Bouk explores the uses, misuses and failures of the U.S. Census.`\
+https://nytimes.com/2022/08/28/books/democracys-data-dan-bouk.html?searchResultPosition=8
+
+**The Toss**\
+`A detailed look at a critical element of elite serving that can determine who wins each point in a tennis match.`\
+https://nytimes.com/interactive/2022/08/28/sports/tennis/tennis-serve-ball-toss.html?searchResultPosition=9
+
 **Quotation of the Day: Better Boosters, Even as Access Is Scaled Back**\
 `Quotation of the Day for Sunday, August 28, 2022.`\
-https://nytimes.com/2022/08/28/todayspaper/quotation-of-the-day-better-boosters-even-as-access-is-scaled-back.html?searchResultPosition=1
-
-**U.S. Warships Sail Taiwan Strait, Defying Chinese Pressure**\
-`Two guided-missile cruisers were the first to visit since China began extensive military drills after Speaker Nancy Pelosi’s visit to Taiwan.`\
-https://nytimes.com/2022/08/28/world/asia/us-warships-taiwan-china.html?searchResultPosition=2
-
-**It’s How You Wear It**\
-`The best outfits from Summer Fridays at MoMA PS1, the Guild Hall gala and a cocktail party for Frame.`\
-https://nytimes.com/2022/08/28/style/its-how-you-wear-it.html?searchResultPosition=3
-
-**Power and Grit That Changed The Game**\
-`Serena Williams’s legacy is evident in the aggressive, intimidating style that has become the norm on the women’s tennis tour.`\
-https://nytimes.com/2022/08/28/sports/tennis/serena-williams-legacy-us-open.html?searchResultPosition=4
-
-**Fall Vaccination Campaign Will Bring New Shots, Worse Access**\
-`Updated Covid vaccines, expected soon after Labor Day, were designed to thwart Omicron variants. But money to distribute them has dried up.`\
-https://nytimes.com/2022/08/28/science/covid-vaccines-money.html?searchResultPosition=5
-
-**‘I Often Wish the Morning Hour Would Last Longer’**\
-`Waking up early, riding a commuter train and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2022/08/28/nyregion/metropolitan-diary.html?searchResultPosition=6
-
-**A Tiny House in Manhattan Has a Link to the Underground Railroad**\
-`Before it was a clothing store, it was a bar, and before it was a bar, it was a key part of American history.`\
-https://nytimes.com/2022/08/28/realestate/streetscapes-tribeca-abolition.html?searchResultPosition=7
-
-**As Covid Guidance Evolves, So Does a Virus Briefing**\
-`Jonathan Wolfe, the reporter behind the Coronavirus Briefing, now the Virus Briefing, discusses the newsletter’s shift in focus.`\
-https://nytimes.com/2022/08/28/insider/as-covid-guidance-evolves-so-does-a-virus-briefing.html?searchResultPosition=8
-
-**Serena Williams Always Made a Strong First Impression**\
-`Long before Williams won 23 Grand Slam singles titles, she was turning heads. Countless memories fade, but not, it seems, when Williams was involved.`\
-https://nytimes.com/2022/08/28/sports/tennis/serena-williams-us-open.html?searchResultPosition=9
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/08/28/crosswords/spelling-bee-forum.html?searchResultPosition=10
+https://nytimes.com/2022/08/28/todayspaper/quotation-of-the-day-better-boosters-even-as-access-is-scaled-back.html?searchResultPosition=10
 
