@@ -10,13 +10,13 @@ https://nytimes.com/2022/08/28/briefing/ron-desantis-florida.html?searchResultPo
 `Winning is important when it comes to making a living in the sport. But so is finishing in style.`\
 https://nytimes.com/2022/08/28/sports/track-and-field-style-money.html?searchResultPosition=3
 
+**What’s With All the Fluff About a New Civil War, Anyway?**\
+`Why the idea of two new separate “blue” and “red” countries is absurd. `\
+https://nytimes.com/2022/08/28/opinion/civil-war-america.html?searchResultPosition=4
+
 **Haven’t We Seen These Characters Before?**\
 `Summer sequels are back and worse than ever.`\
-https://nytimes.com/2022/08/28/opinion/movie-sequel-summer.html?searchResultPosition=4
-
-**Civil War: I’m Against It!**\
-`Why the idea of two new separate “blue” and “red” countries is absurd. `\
-https://nytimes.com/2022/08/28/opinion/civil-war-america.html?searchResultPosition=5
+https://nytimes.com/2022/08/28/opinion/movie-sequel-summer.html?searchResultPosition=5
 
 **The Sunday Read: ‘She’s at Brown. Her Heart’s Still in Kabul.’**\
 `In their first year at U.S. universities, women who escaped the Taliban are struggling to adjust — and to reckon with what they left behind.`\
