@@ -3,7 +3,7 @@
 https://nytimes.com/2022/08/27/sports/baseball/mets-willie-mays-old-timers.html?searchResultPosition=1
 
 **Racial Slur During College Volleyball Game Leads to Fan Suspension**\
-`A women’s volleyball game was moved to a different location on Saturday after a Duke University player who is Black was called a racial slur during a game on Friday.`\
+`A women’s volleyball game was moved on Saturday after a Duke University player who is Black was called a racial slur during a game.`\
 https://nytimes.com/2022/08/27/sports/duke-volleyball-racial-slur.html?searchResultPosition=2
 
 **Buffalo Bills Cut Matt Araiza Amid Rape Lawsuit**\
