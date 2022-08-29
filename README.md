@@ -4,7 +4,7 @@ https://nytimes.com/2022/08/29/us/matt-chandler-village-church-leave.html?search
 
 **Republicans in Disarray**\
 `By Blake Hounshell`\
-https://nytimes.com/2022/08/29/us/politics/republicans-in-disarray.html?searchResultPosition=2
+https://nytimes.com/2022/08/29/us/politics/gop-trump-midterms.html?searchResultPosition=2
 
 **Ukraine Launches Southern Offensive, as Inspectors Head to Nuclear Plant**\
 `The scale of Ukraine’s push in the Kherson region was unclear, but it has vowed for months to mount a counteroffensive to retake territory seized by Russia.`\
