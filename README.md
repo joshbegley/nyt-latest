@@ -2,7 +2,7 @@
 `President Biden’s approach to his own stutter highlights the stigma that the condition still brings.`\
 https://nytimes.com/2022/08/29/briefing/stuttering-stigma-biden-disability.html?searchResultPosition=1
 
-**A Consequential Trump Investigation?**\
+**Is a Local Prosecutor Making the Strongest Case Against Trump?**\
 `A look at a sprawling inquiry into election interference and the Georgia prosecutor at the heart of it.`\
 https://nytimes.com/2022/08/29/podcasts/the-daily/a-consequential-trump-investigation.html?searchResultPosition=2
 
