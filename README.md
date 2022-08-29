@@ -10,7 +10,7 @@ https://nytimes.com/2022/08/29/briefing/russia-ukraine-war-offensive-vindman.htm
 `A Pennsylvania district attorney said no charges would be filed in the most recent shooting by Jay Splain, a state trooper who has killed four people in separate incidents.`\
 https://nytimes.com/2022/08/29/us/jay-splain-pa-trooper-shooting.html?searchResultPosition=3
 
-**t’sNew Research Forecasts More Dire Sea Level Rise as Greenland’s Ice Melts**\
+**New Research Forecasts More Dire Sea Level Rise as Greenland’s Ice Melts**\
 `The study reached a more drastic conclusion than earlier assessments in part because it used a different method to gauge ice loss.`\
 https://nytimes.com/2022/08/29/climate/greenland-ice-sea-levels.html?searchResultPosition=4
 
