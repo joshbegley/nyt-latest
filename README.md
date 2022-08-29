@@ -6,8 +6,8 @@ https://nytimes.com/2022/08/29/well/family/button-batteries-children-danger.html
 `“Un Verano Sin Ti,” a streaming blockbuster, notches its ninth time at the top of Billboard’s chart. Rod Wave’s “Beautiful Mind,” last week’s No. 1, drops to second place.`\
 https://nytimes.com/2022/08/29/arts/music/bad-bunny-un-verano-sin-ti-billboard-chart.html?searchResultPosition=2
 
-**Influential Iraqi Shiite Cleric Plans to Resign, Sparking Protests**\
-`Iraqi security forces opened fire and deployed tear gas as followers of Muqtada al-Sadr stormed Baghdad’s Green Zone, the site of Parliament, government offices and diplomatic missions, a senior military official said.`\
+**Followers of Powerful Iraqi Cleric Breach Green Zone in Baghdad**\
+`Muqtada al-Sadr’s announcement that he would leave politics sent hundreds of his followers into the streets of Baghdad, where they breached concrete barriers guarding the so-called Green Zone.`\
 https://nytimes.com/video/world/middleeast/100000008507975/iraq-protests-al-sadr.html?searchResultPosition=3
 
 **Restaurant Review: Evelia’s Tamales, a Sidewalk Standby, Comes in From the Streets**\
