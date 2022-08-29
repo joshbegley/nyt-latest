@@ -8,7 +8,7 @@ https://nytimes.com/2022/08/29/world/europe/uk-drinking-water-sewage.html?search
 
 **Jordan Peele Says There May Be More ‘Nope’ Stories to Come**\
 `We asked the writer-director about that standing shoe, a character called Nobody and fan theories about his flying-saucer movie. This is what he told us.`\
-https://nytimes.com/2022/08/29/movies/jordan-peele-says-there-may-be-more-nope-stories-to-come.html?searchResultPosition=3
+https://nytimes.com/2022/08/29/movies/jordan-peele-nope.html?searchResultPosition=3
 
 **It’s Not Just You — Blank Street Coffee Is Suddenly Inescapable**\
 `Built around high-volume automated espresso systems, the rapidly expanding coffee shop has caught the attention of skeptical New Yorkers.`\
