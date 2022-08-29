@@ -15,26 +15,26 @@ https://nytimes.com/2022/08/29/books/review/maurice-sendak-wild-things-are-happe
 https://nytimes.com/2022/08/29/travel/river-cruises-drought-europe.html?searchResultPosition=4
 
 **Powerful Iraqi Shiite Cleric Says He Is Leaving Politics**\
-`After throwing efforts to form a new government into turmoil,  Muqtada al-Sadr thrust Iraqi politics even deeper into crisis with his latest move.`\
+`After throwing efforts to form a new government into turmoil, Muqtada al-Sadr thrust Iraqi politics even deeper into crisis with his latest move.`\
 https://nytimes.com/2022/08/29/world/middleeast/iraq-sadr-politics.html?searchResultPosition=5
+
+**The Fed’s inflation warning reverberates in global markets.**\
+`Stocks slipped across Asia and Europe, and futures pointed to a downward opening on Wall Street.`\
+https://nytimes.com/2022/08/29/business/the-feds-inflation-warning-reverberates-in-global-markets.html?searchResultPosition=6
 
 **Americans Who Stutter**\
 `President Biden’s approach to his own stutter highlights the stigma that the condition still brings.`\
-https://nytimes.com/2022/08/29/briefing/stuttering-stigma-biden-disability.html?searchResultPosition=6
+https://nytimes.com/2022/08/29/briefing/stuttering-stigma-biden-disability.html?searchResultPosition=7
 
 **Is a Local Prosecutor Making the Strongest Case Against Trump?**\
 `A look at a sprawling inquiry into election interference and the Georgia prosecutor at the heart of it.`\
-https://nytimes.com/2022/08/29/podcasts/the-daily/a-consequential-trump-investigation.html?searchResultPosition=7
+https://nytimes.com/2022/08/29/podcasts/the-daily/a-consequential-trump-investigation.html?searchResultPosition=8
 
 **Italian Jewelry Houses Shine on Venice’s Red Carpet**\
 `Small independents emphasize their strengths at the film festival.`\
-https://nytimes.com/2022/08/29/fashion/jewelry-venice-film-festival.html?searchResultPosition=8
+https://nytimes.com/2022/08/29/fashion/jewelry-venice-film-festival.html?searchResultPosition=9
 
 **Italian Jewelers Focus on a Summer of Gold**\
 `In Italy’s Vicenza district, leading jewelers are bringing the heat with styles that nod to the 1980s and 1990s and colorful accents.`\
-https://nytimes.com/2022/08/29/fashion/jewelry-gold-vicenza-italy.html?searchResultPosition=9
-
-**She Went From Being a ‘Hermit’ Jeweler to a Museum Curator**\
-`Emefa Cole first exhibited her bold, sculptural jewelry at a craft fair. Now she’s taking on a new role at the Victoria & Albert Museum in London.`\
-https://nytimes.com/2022/08/29/fashion/jewelry-victoria-albert-museum-curator-diaspora.html?searchResultPosition=10
+https://nytimes.com/2022/08/29/fashion/jewelry-gold-vicenza-italy.html?searchResultPosition=10
 
