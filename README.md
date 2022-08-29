@@ -18,13 +18,13 @@ https://nytimes.com/2022/08/29/world/asia/china-arrests-beating-women.html?searc
 `There are 63 other matches on opening day, but they have been relegated to the background as Williams prepares to play what could be her final singles match.`\
 https://nytimes.com/2022/08/29/sports/tennis/serena-williams-us-open-kovinic.html?searchResultPosition=5
 
-**What to Know About California’s Ban on New Gasoline-Powered Cars**\
-`By 2035, California shoppers looking for new vehicles will have to buy electric.`\
-https://nytimes.com/2022/08/29/us/california-ban-gasoline-cars.html?searchResultPosition=6
-
 **Lawmakers seek information on ‘buy now, pay later’ gun sales.**\
 `Eighteen Democratic members of Congress are demanding answers from Credova Financial about its no-interest loans for gun and ammunition purchases.`\
-https://nytimes.com/2022/08/29/business/buy-now-pay-later-guns.html?searchResultPosition=7
+https://nytimes.com/2022/08/29/business/buy-now-pay-later-guns.html?searchResultPosition=6
+
+**What to Know About California’s Ban on New Gasoline-Powered Cars**\
+`By 2035, California shoppers looking for new vehicles will have to buy electric.`\
+https://nytimes.com/2022/08/29/us/california-ban-gasoline-cars.html?searchResultPosition=7
 
 **How a Whistleblower Could Help Elon Musk in His Case Against Twitter**\
 `Twitter’s former security chief could loom large in Mr. Musk’s legal efforts to undo his $44 billion acquisition of the social network.`\
