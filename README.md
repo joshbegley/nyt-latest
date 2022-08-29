@@ -31,7 +31,7 @@ https://nytimes.com/2022/08/29/arts/television/the-patient-review.html?searchRes
 https://nytimes.com/2022/08/29/us/politics/georgia-democrats-abrams-warnock.html?searchResultPosition=8
 
 **After Deadly Fires and Disastrous Floods, a Canadian City Moves to Sue Big Oil**\
-`A potential lawsuit by Vancouver could be the first in Canada to target the fossil fuel industry’s role in climate change.`\
+`A potential lawsuit by Vancouver would be the first in Canada to target the fossil fuel industry’s role in climate change.`\
 https://nytimes.com/2022/08/29/world/canada/vancouver-floods-fires-lawsuit.html?searchResultPosition=9
 
 **This Nonalcoholic Aperitivo Is More Bitter Than Sweet**\
