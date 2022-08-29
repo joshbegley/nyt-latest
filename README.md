@@ -6,8 +6,8 @@ https://nytimes.com/2022/08/28/us/sandra-quinones-orange-county-settlement.html?
 `The lawyers representing the former president in the investigation into his handling of classified documents have tried out an array of defenses as they seek to hold off the Justice Department.`\
 https://nytimes.com/2022/08/28/us/politics/trump-search-legal-team.html?searchResultPosition=2
 
-**Rory McIlroy Captures the Tour Championship**\
-`McIlroy edged out Scottie Scheffler, who had held the lead in Atlanta for almost the entire tournament. Sungjae Im and Scheffler finished tied for second, a stroke behind.`\
+**A Triple-Bogey Start Vanquished, Rory McIlroy Captures the FedEx Cup**\
+`McIlroy edged out Scottie Scheffler, who had held the lead in Atlanta for almost the entire Tour Championship. Sungjae Im and Scheffler finished tied for second, a stroke behind.`\
 https://nytimes.com/2022/08/28/sports/golf/mcilroy-tour-championship-pga.html?searchResultPosition=3
 
 **Republicans Signal Worries About Trump and the Midterms**\
