@@ -1,6 +1,6 @@
 **On a Busy First Day at the U.S. Open, All Eyes Are on Serena Williams**\
 `There are 63 other matches on opening day, but they have been relegated to the background as Williams prepares to play what could be her final singles match.`\
-https://nytimes.com/2022/08/29/sports/tennis/us-open-jill-smoller-serena.html?searchResultPosition=1
+https://nytimes.com/2022/08/29/sports/tennis/serena-williams-us-open-kovinic.html?searchResultPosition=1
 
 **Lawmakers seek information on ‘buy now, pay later’ gun sales.**\
 `Eighteen Democratic members of Congress are demanding answers from Credova Financial about its no-interest loans for gun and ammunition purchases.`\
