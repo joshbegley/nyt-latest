@@ -1,40 +1,40 @@
-**2 Killed in Shooting at Oregon Shopping Center, Police Say**\
-`The suspect, who fired multiple times inside a grocery store, was also found dead. The Bend Police Department was still investigating a motive on Sunday night.`\
-https://nytimes.com/2022/08/29/us/shooting-bend-oregon.html?searchResultPosition=1
+**Secret Data, Tiny Islands and a Quest for Treasure on the Ocean Floor**\
+`Mining in parts of the Pacific Ocean was meant to benefit poor countries, but an international agency gave a Canadian company access to prized seabed sites with metals crucial to the green energy revolution.`\
+https://nytimes.com/2022/08/29/world/deep-sea-mining.html?searchResultPosition=1
 
-**What’s on TV This Week: ‘Race for the Championship’ and ‘Stargirl’**\
-`USA Network airs its NASCAR documentary series. And the third season of the CW show based on the DC Comics character premieres.`\
-https://nytimes.com/2022/08/29/arts/television/whats-on-tv-this-week-race-for-the-championship-stargirl.html?searchResultPosition=2
+**Penn Station Plan Makes a High-Stakes Bet on the Future of Office Work**\
+`Despite near record-high office vacancies, Gov. Kathy Hochul has backed a real estate project at the New York transit hub that would be one of the largest in American history.`\
+https://nytimes.com/2022/08/29/nyregion/manhattan-offices-hochul.html?searchResultPosition=2
 
-**Mississippi Residents Brace for Flooding**\
-`Residents in Jackson, Miss., removed valuables from their homes, and workers prepared sandbags in anticipation of flooding after heavy rains in the region.`\
-https://nytimes.com/video/us/100000008507715/mississippi-brace-for-flooding.html?searchResultPosition=3
+**Revenge of the Founders: A Generational Struggle on Wall Street**\
+`The abrupt departure of Kewsong Lee as Carlyle Group’s chief executive followed conflicts over how to run the financial firm.`\
+https://nytimes.com/2022/08/29/business/carlyle-group-kewsong-lee.html?searchResultPosition=3
 
-**Your Monday Briefing**\
-`More attacks near a Ukrainian nuclear plant.`\
-https://nytimes.com/2022/08/29/briefing/ukraine-nuclear-finland-pride.html?searchResultPosition=4
+**Xi Jinping’s Vision for Tech Self-Reliance in China Runs Into Reality**\
+`After heavy national investment in semiconductors to break a dependence on global chips, Mr. Xi seems unhappy with the results.`\
+https://nytimes.com/2022/08/29/technology/china-semiconductors-technology.html?searchResultPosition=4
 
-**It’s Tough to Become a Lifeguard in New York City**\
-`As the city and country grapple with a lifeguard shortage, some who do the job say the requirements are too demanding here.`\
-https://nytimes.com/2022/08/29/nyregion/its-tough-to-become-a-lifeguard-in-new-york-city.html?searchResultPosition=5
+**‘The Eye of the Storm’: Taiwan Is Caught in a Great Game Over Microchips**\
+`Worried about the Chinese threat to Taiwan, the U.S. and others have tried to expand their piece of the island’s semiconductor production.`\
+https://nytimes.com/2022/08/29/technology/taiwan-chips.html?searchResultPosition=5
 
-**Serena Williams: 23 Grand Slam Titles, in the Books**\
-`The New York Times’s coverage of Williams’s 23 Grand Slam singles titles reflects more than two decades of greatness, and some surprises along the way.`\
-https://nytimes.com/2022/08/29/sports/tennis/serena-williams-grand-slam-titles.html?searchResultPosition=6
+**In Algeria, Macron Seeks to Reshape a Traumatic Relationship With France**\
+`On a three-day visit, the French president said he was seeking “truth and acknowledgment” over the war and colonialism.`\
+https://nytimes.com/2022/08/29/world/africa/algeria-france-emmanuel-macron.html?searchResultPosition=6
 
-**In Comebacks, Serena Williams Showed ‘You Can Never Underestimate Her’**\
-`Big moments on the biggest stages cemented Williams’s reputation as the queen of comebacks.`\
-https://nytimes.com/2022/08/29/sports/tennis/serena-williams-comebacks-us-open.html?searchResultPosition=7
+**An Investigation Leads to the Bottom of the Pacific**\
+`To understand seabed mining, which may be the next great resource rush, Eric Lipton boarded a fishing boat and headed out to sea.`\
+https://nytimes.com/2022/08/29/insider/mining-investigation.html?searchResultPosition=7
 
-**More Vital Than Ever, Ukraine’s Trains Bind a Land Fractured by War**\
-`With the skies and ports closed, Ukraine’s railroads have been crucial to efforts to flee, to return, to keep the country going or to simply reclaim some semblance of normal life.`\
-https://nytimes.com/2022/08/29/world/europe/ukraine-war-trains.html?searchResultPosition=8
+**Is Serena Williams the GOAT? Yes. No. Probably. Maybe. Without a Doubt.**\
+`Proclaiming the 23-time Grand Slam singles champion the greatest women’s tennis player of all time is a worthwhile debate, but not a straightforward one. First, define greatness.`\
+https://nytimes.com/2022/08/29/sports/tennis/serena-williams-greatest-us-open.html?searchResultPosition=8
 
-**QAnon Accounts Found a Home, and Trump’s Support, on Truth Social**\
-`Researchers identified 88 users promoting the conspiracy theory on Donald Trump’s platform, and said he had reposted messages 65 times.`\
-https://nytimes.com/2022/08/29/technology/qanon-truth-social-trump.html?searchResultPosition=9
+**What Serena Williams Means to You**\
+`“She did things on her own terms and propelled herself to greatness, doing so in a sport that felt by design that it was off limits to Black people.”`\
+https://nytimes.com/2022/08/29/sports/tennis/us-open-serena-williams-impact.html?searchResultPosition=9
 
-**No Corrections: Aug. 29, 2022**\
-`No corrections appeared in print on Monday, Aug. 29, 2022.`\
-https://nytimes.com/2022/08/28/pageoneplus/no-corrections-aug-29-2022.html?searchResultPosition=10
+**Document Inquiry Poses Unparalleled Test for Justice Dept.**\
+`What had started as an effort to retrieve national security documents has now been transformed into one of the most challenging and complicated criminal investigations in recent memory.`\
+https://nytimes.com/2022/08/29/us/politics/trump-justice-department-documents.html?searchResultPosition=10
 
