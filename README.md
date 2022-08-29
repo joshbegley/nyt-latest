@@ -2,7 +2,7 @@
 `He helped write the first comprehensive dictionary of American Sign Language and later identified the deaf as a part of society worth examining.`\
 https://nytimes.com/2022/08/29/obituaries/carl-croneberg-dead.html?searchResultPosition=1
 
-**Britons Must Be ‘Less Squeamish’ About Recycled Sewage Water, Official Says**\
+**Be ‘Less Squeamish’ About Drinking Recycled Wastewater, British Official Says**\
 `As droughts become more frequent, drinking water that has been reprocessed from sewage treatment is the future, the head of Britain’s Environment Agency said.`\
 https://nytimes.com/2022/08/29/world/europe/uk-drinking-water-sewage.html?searchResultPosition=2
 
