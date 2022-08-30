@@ -34,4 +34,7 @@ https://nytimes.com/2022/08/30/movies/venice-film-festival-2022-what-to-watch-fo
 `Americans under 40 have had to cope with a worse economy than earlier generations. How should it affect the debate over Biden’s debt-relief plan?`\
 https://nytimes.com/2022/08/30/briefing/student-debt-economic-changes.html?searchResultPosition=9
 
-**Catch up: Subpoenas in the Musk-Twitter legal battle.**\
+**Elon Musk Cites New Reasons to Scrap Twitter Deal, as Subpoenas Fly**\
+`The billionaire said in a letter to Twitter that allegations made by a whistle-blower have had a “material, if not existential” effect on the company.`\
+https://nytimes.com/2022/08/30/business/catch-up-subpoenas-in-the-musk-twitter-legal-battle.html?searchResultPosition=10
+
