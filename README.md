@@ -8,7 +8,7 @@ https://nytimes.com/2022/08/30/theater/laura-linney-broadway.html?searchResultPo
 
 **With ‘Tár,’ Todd Field Returns to Directing. Where Has He Been?**\
 `Sixteen years after “In the Bedroom” and “Little Children” made waves, he’s nervous about stepping back into the limelight with a hot-button story.`\
-https://nytimes.com/2022/08/30/movies/tar-todd-field-returns-to-directing.html?searchResultPosition=3
+https://nytimes.com/2022/08/30/movies/todd-field-tar.html?searchResultPosition=3
 
 **Serena Williams Fans, Unite**\
 `Serena Williams fans are gathering across the city to watch the champion play. `\
