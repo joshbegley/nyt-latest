@@ -1,5 +1,5 @@
 **French Tax Collectors Use A.I. to Spot Thousands of Undeclared Pools**\
-`Algorithms combing through satellite photos found over 20,000 unreported swimming pools in a few regions, yielding about $10 million in unpaid taxes, and the system will soon go nationwide.`\
+`Algorithms combing through satellite photos found over 20,000 unreported swimming pools in a few regions, yielding an expected $10 million in taxes, and the system will soon go nationwide.`\
 https://nytimes.com/2022/08/30/world/europe/france-taxes-pools-artificial-intelligence.html?searchResultPosition=1
 
 **Katie Gregson-MacLeod Sang About a ‘Complex’ Love. TikTok Responded.**\
