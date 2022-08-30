@@ -4,7 +4,7 @@ https://nytimes.com/2022/08/30/world/africa/wagner-group-civilians-africa.html?s
 
 **It’s Your Party and You’ll Dine Out if You Want To**\
 `Here’s where to host a group birthday dinner, whether it’s a park hang or an all-out fete.`\
-https://nytimes.com/2022/08/30/dining/its-your-party-and-youll-dine-out-if-you-want-to.html?searchResultPosition=2
+https://nytimes.com/2022/08/30/dining/where-to-eat-birthday-dinner.html?searchResultPosition=2
 
 **Russia plans to halt natural gas flows to Germany again.**\
 `Gazprom, the Russian energy giant, said it would shut down the Nord Stream 1 pipeline for three days of maintenance, raising worries about a complete shutdown of Russian gas deliveries to Germany.`\
