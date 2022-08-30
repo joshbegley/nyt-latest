@@ -31,7 +31,7 @@ https://nytimes.com/2022/08/29/world/europe/iran-military-drones.html?searchResu
 https://nytimes.com/2022/08/29/sports/tennis/serena-williams-us-open-win.html?searchResultPosition=8
 
 **Serena Williams’s No. 1 supporter is her daughter, Olympia.**\
-`By Lola Fadulu`\
+`Olympia watched her mother in the first round of the U.S. Open from the stands of Arthur Ashe Stadium.`\
 https://nytimes.com/2022/08/29/sports/tennis/serena-williams-daughter-olympia.html?searchResultPosition=9
 
 **Satellite Images Show Damage From Deadly Flooding in Pakistan**\
