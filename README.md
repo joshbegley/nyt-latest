@@ -1,40 +1,40 @@
-**Sweeping Children’s Online Safety Bill Is Passed in California**\
-`The new rules, which would require many online services to increase protections for children, could change how popular social media and game platforms treat minors.`\
-https://nytimes.com/2022/08/30/business/california-children-online-safety.html?searchResultPosition=1
+**There’s​ ​Something About​ ​Jonathan​ ​Majors**\
+`Inside​ ​the​ ​captivating​ ​mind​ ​of​ ​a new  Hollywood star.`\
+https://nytimes.com/2022/08/30/magazine/jonathan-majors.html?searchResultPosition=1
 
-**Clashes in Baghdad Intensify Amid Political Chaos, With 24 Dead**\
-`The renewed violence has set Iraq on edge, with many fearing another destabilized phase after two decades of almost constant fighting.`\
-https://nytimes.com/2022/08/30/world/middleeast/iraq-baghdad-clashes.html?searchResultPosition=2
+**Ayo Edibiri and Her Dog Gromit Go to the Bookstore**\
+`A morning out in Los Angeles with the surprise star of “The Bear” and her Chihuahua mix.`\
+https://nytimes.com/2022/08/30/style/ayo-edibiri-and-her-dog-gromit-go-to-the-bookstore.html?searchResultPosition=2
 
-**I Have Face Blindness. This Is How I Recognize You.**\
-`When you can’t rely on facial recognition, you look beyond the obvious.`\
-https://nytimes.com/video/opinion/100000008048548/face-blindness-prosopagnosia.html?searchResultPosition=3
+**This Remote Mine Could Foretell the Future of America’s Electric Car Industry**\
+`Hiding a thousand feet below the earth’s surface in this patch of northern Minnesota wetlands are ancient mineral deposits that some view as critical to fueling America’s clean energy future.`\
+https://nytimes.com/2022/08/30/business/economy/electric-cars-us-nickel-mine.html?searchResultPosition=3
 
-**Towering Over Midtown: The Penn Station Super-Talls**\
-`The proposed project would include buildings in the West 30s that would be among the tallest worldwide, with one tower that could surpass One World Trade.`\
-https://nytimes.com/2022/08/30/nyregion/penn-station-towers.html?searchResultPosition=4
+**Lockdowns in China, and North Korea, Deal Double Blow to Bridge City**\
+`Shenyang, in China’s northeast, was a hub for North Korean workers and a launchpad for visits to Pyongyang. Covid restrictions have battered its economy.`\
+https://nytimes.com/2022/08/30/business/china-shenyang-north-korea.html?searchResultPosition=4
 
-**How to Think Like a Mink**\
-`Joseph Carter, a.k.a. the Mink Man, trains feisty carnivores to patrol canals and urban river banks for a growing YouTube audience.`\
-https://nytimes.com/2022/08/30/science/mink-animals-pest-control.html?searchResultPosition=5
+**For Singapore’s Gay Men, Repeal of Sex Ban Brings Hope After Years of Pain**\
+`The government confirmed that it would get rid of the colonial-era law, but said it would also move to protect the definition of marriage from being challenged in court.`\
+https://nytimes.com/2022/08/30/world/asia/singapore-gay-sex-law.html?searchResultPosition=5
 
-**Death in Navy SEAL Training Exposes a Culture of Brutality, Cheating and Drugs**\
-`The elite force’s selection course is so punishing that few make it through, and many of those who do resort to illicit tactics.`\
-https://nytimes.com/2022/08/30/us/navy-seal-training-death.html?searchResultPosition=6
+**Maggie O’Farrell Looks for Stories Hiding in Plain Sight**\
+`Her latest book, “The Marriage Portrait,” imagines the life of the girl who is thought to have inspired Robert Browning’s famous poem “My Last Duchess.”`\
+https://nytimes.com/2022/08/30/books/maggie-ofarrell-marriage-portrait-hamnet.html?searchResultPosition=6
 
-**The Animal Translators**\
-`Scientists are using machine learning to eavesdrop on naked mole rats, fruit bats, crows and whales — and to communicate back.`\
-https://nytimes.com/2022/08/30/science/translators-animals-naked-mole-rats.html?searchResultPosition=7
+**‘Not My Choice.’ A TV Anchor Is Ousted, and Viewers Ask: Was Sexism to Blame?**\
+`The chief executive of a Canadian news network pushed back against allegations that sex, age or gray hair were factors in the abrupt dismissal of the veteran journalist, Lisa LaFlamme.`\
+https://nytimes.com/2022/08/30/world/canada/lisa-laflamme-ctv-departure.html?searchResultPosition=7
 
-**A Surprise Senate Race Rises Out West**\
-`Senator Michael Bennet, a Democrat seeking re-election in Colorado, faces a challenge from Joe O’Dea, a novice Republican emphasizing more moderate positions in a break with his party.`\
-https://nytimes.com/2022/08/30/us/politics/bennet-odea-colorado-senate.html?searchResultPosition=8
+**How German Companies Are Staring Down Putin’s Threat to Cut Off Gas**\
+`Industrial producers across Germany are coming up with unique ways to cut their dependence on natural gas as Russia’s war in Ukraine keeps prices high.`\
+https://nytimes.com/2022/08/30/world/europe/germany-russia-energy-gas.html?searchResultPosition=8
 
-**Skirting Ethics Order, Hochul Seeks Donations From Cuomo Appointees**\
-`Gov. Kathy Hochul’s campaign says contributions from board and commission members and their families are fair game because she did not appoint them.`\
-https://nytimes.com/2022/08/30/nyregion/kathy-hochul-donors-money-ethics.html?searchResultPosition=9
+**Introducing ‘The Run-Up’**\
+`The midterm elections are usually a referendum on the party in power. This year, they’re about so much more.`\
+https://nytimes.com/2022/08/30/podcasts/run-up-trailer-midterm-elections.html?searchResultPosition=9
 
-**Biden’s Student Loan Plan Sets Off Fierce Debate Among Economists**\
-`Liberals and more moderate Democrats are arguing over the impact on inflation, the federal budget deficit and high earners.`\
-https://nytimes.com/2022/08/30/business/economy/biden-student-loans-economists.html?searchResultPosition=10
+**Perrotin Sees Further Potential in Seoul**\
+`The global dealer opened a second space in South Korea’s capital just before the Frieze and Kiaf fairs, with an eye toward new artists and new buyers.`\
+https://nytimes.com/2022/08/30/arts/design/frieze-seoul-perrotin.html?searchResultPosition=10
 
