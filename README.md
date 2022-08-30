@@ -12,7 +12,7 @@ https://nytimes.com/2022/08/30/arts/ruby-c-williams-dead.html?searchResultPositi
 
 **Complaint About Trump From American Bridge to the Federal Election Commission**\
 `A Democratic super PAC filed a complaint against former President Donald J. Trump that accused him of violating federal election law by not officially informing the F.E.C. that he planned to run again in 2024.`\
-https://nytimes.com/interactive/2022/08/30/us/politics/30FEC-complaint-trump.html?searchResultPosition=4
+https://nytimes.com/interactive/2022/08/30/us/politics/trump-fec-complaint.html?searchResultPosition=4
 
 **Arizona’s Supreme Court blocks an election reform ballot measure, voiding over 238,000 petition signatures.**\
 `The Arizona Free and Fair Elections Act would have established same-day voter registration and prohibited the state Legislature from overturning federal election results.`\
