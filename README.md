@@ -1,5 +1,5 @@
 **Biden Says He Is ‘Determined’ to Ban Assault Weapons**\
-`During a trip to Pennsylvania, President Biden touted the passing of a bipartisan gun bill intended to prevent dangerous people from accessing firearms, and vowed to ban assault weapons in the U.S.`\
+`During a trip to Pennsylvania, President Biden touted the passing of a bipartisan gun bill intended to prevent dangerous people from accessing firearms and vowed to ban assault weapons in the U.S.`\
 https://nytimes.com/video/us/politics/100000008510884/biden-guns-assault-weapons-ban.html?searchResultPosition=1
 
 **Russia’s Occupation of Nuclear Plant Gives Moscow a New Way to Intimidate**\
