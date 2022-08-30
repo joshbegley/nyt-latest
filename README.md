@@ -10,8 +10,8 @@ https://nytimes.com/2022/08/29/technology/california-doctors-covid-misinformatio
 `A crash involving a big-rig truck caused 150,000 tomatoes to scatter across Interstate 80 in Vacaville, Calif. Passing vehicles ground them into a slippery red pulp.`\
 https://nytimes.com/2022/08/29/us/tomato-truck-crash-california.html?searchResultPosition=3
 
-**Aspiring Proud Boy Who Stormed Capitol Is Sentenced to 55 Months in Prison**\
-`Joshua Pruitt, 40, came face to face with Senator Chuck Schumer’s group during the Jan. 6 attack, according to prosecutors.`\
+**Aspiring Proud Boy Who Encountered Schumer on Jan. 6 Gets 55 Months in Prison**\
+`Joshua Pruitt, 40, came face to face with the senator’s group as it fled to safety during the attack, according to prosecutors.`\
 https://nytimes.com/2022/08/29/us/joshua-pruitt-proud-boy-sentenced-jan-6.html?searchResultPosition=4
 
 **Cheese That’s ‘Not Badda’**\
