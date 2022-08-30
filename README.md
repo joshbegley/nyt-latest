@@ -20,7 +20,7 @@ https://nytimes.com/2022/08/29/crosswords/daily-puzzle-2022-08-30.html?searchRes
 
 **Serena Williams Keeps Focus Amid the Fanfare**\
 `A star-studded crowd inside Arthur Ashe Stadium was joined by throngs of fans outside during Williams’s first-found U.S. Open match.`\
-https://nytimes.com/2022/08/29/sports/serena-williams-us-open-fans.html?searchResultPosition=6
+https://nytimes.com/2022/08/29/sports/tennis/serena-williams-us-open-fans.html?searchResultPosition=6
 
 **Biden to Focus on ‘Battle for the Soul of the Nation’ in Prime-Time Speech**\
 `The president is set to return to his campaign theme of democracy in peril as his party fights to retain its hold on Congress in the midterm elections.`\
