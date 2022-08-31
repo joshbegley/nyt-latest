@@ -6,7 +6,7 @@ https://nytimes.com/video/world/europe/100000008511748/ukraine-nuclear-plant-zap
 `By Melissa Clark`\
 https://nytimes.com/2022/08/31/dining/cooking-with-the-three-sisters.html?searchResultPosition=2
 
-**The First A.P. African-American Studies Class Is Coming This Fall**\
+**The First A.P. African American Studies Class Is Coming This Fall**\
 `The new course will undergo a pilot program in 60 schools, as the debate over how to teach history becomes ever more divisive.`\
 https://nytimes.com/2022/08/31/us/ap-african-american-studies.html?searchResultPosition=3
 
