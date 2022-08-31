@@ -8,7 +8,7 @@ https://nytimes.com/2022/08/31/us/politics/abortion-trump-gop-midterms.html?sear
 
 **Commuter Tunnel Under the Hudson Won’t Be Finished Until 2035**\
 `The crucial Gateway transit link from New Jersey to New York will now open three years later than expected and is likely to cost $2 billion more to construct.`\
-https://nytimes.com/2022/08/31/science/gateway-tunnel-ny-nj-delay.html?searchResultPosition=3
+https://nytimes.com/2022/08/31/nyregion/gateway-tunnel-ny-nj-delay.html?searchResultPosition=3
 
 **U.N. Says China May Have Committed ‘Crimes Against Humanity’ in Xinjiang**\
 `The organization’s human rights office delivered its much-delayed report minutes before Michelle Bachelet, the U.N. high commissioner for human rights, was to leave office.`\
