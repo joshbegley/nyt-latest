@@ -30,11 +30,11 @@ https://nytimes.com/2022/08/31/learning/10-ideas-for-building-community-at-the-s
 `He transformed the Soviet Union but could not save it.`\
 https://nytimes.com/2022/08/31/opinion/gorbachev-death-soviet-union.html?searchResultPosition=8
 
-**After Truck Spills on Highway, ‘The Alfredo Sauce Is Everywhere’**\
+**After Truck Spills on Highway, ‘Alfredo Sauce Is Everywhere’**\
 `An overturned truck in Memphis covered the road in Alfredo sauce. It reportedly smelled great — at first.`\
 https://nytimes.com/2022/08/31/us/alfredo-sauce-truck-spill.html?searchResultPosition=9
 
-**Do You Use Wordle in Your Classroom? Tell Us How!**\
-`We’d love to include your ideas in a forthcoming lesson plan.`\
-https://nytimes.com/2022/08/31/learning/do-you-use-wordle-in-your-classroom-tell-us-how.html?searchResultPosition=10
+**California is in for extreme heat through the Labor Day weekend.**\
+`Triple-digit temperatures are expected in much of California, with elevated fire risk and strains on the state’s power grid.`\
+https://nytimes.com/2022/08/01/us/california-heat-wave-weekend.html?searchResultPosition=10
 
