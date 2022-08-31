@@ -1,32 +1,40 @@
+**As Apartment Prices Climb, Renters Look for Deals in the Outer Boroughs**\
+`An analysis by the listing site StreetEasy found that many apartment hunters have moved on from the hottest neighborhoods in Manhattan.`\
+https://nytimes.com/2022/08/31/nyregion/as-apartment-prices-climb-renters-look-for-deals-in-the-outer-boroughs.html?searchResultPosition=1
+
+**The Teenage Baller Behind the ‘Super Fly’ Brittney Griner Hoodies**\
+`Isabella Escribano, 14, is popular on Instagram for her basketball skills. She’s using her design skills in the public campaign to free the W.N.B.A. star Brittney Griner.`\
+https://nytimes.com/2022/08/31/sports/basketball/wnba-brittney-griner-hoodies-isabella-escribano.html?searchResultPosition=2
+
+**U.S. Life Expectancy Falls Again in ‘Historic’ Setback**\
+`The decline during the pandemic is the sharpest in nearly 100 years, hitting American Indian and Native Alaskan communities particularly hard.`\
+https://nytimes.com/2022/08/31/health/life-expectancy-covid-pandemic.html?searchResultPosition=3
+
+**With Upset Over Taylor Fritz, Brandon Holt Is Making a Name for Himself**\
+`Holt, a qualifier who inherited tennis skills from his mother, the U.S. Open winner Tracy Austin, and his other pastime — music — from his father, is putting together a tidy run at the tournament.`\
+https://nytimes.com/2022/08/31/sports/tennis/brandon-holt-us-open.html?searchResultPosition=4
+
+**For Venus and Serena Williams at the U.S. Open, Day and Night Experiences**\
+`Unlike her sister, Venus was not prepared to deal with questions about her tennis future after a loss in the first round of the singles tournament. “I’m just focused on the doubles,” she said.`\
+https://nytimes.com/2022/08/31/sports/tennis/venus-williams-serena-us-open.html?searchResultPosition=5
+
+**Corrections: Aug. 31, 2022**\
+`Corrections that appeared in print on Wednesday, Aug. 31, 2022.`\
+https://nytimes.com/2022/08/31/pageoneplus/corrections-aug-31-2022.html?searchResultPosition=6
+
+**Quotation of the Day: French Tax Collectors Scan Satellite Images to Spot Pools Hidden From View**\
+`Quotation of the Day for Wednesday, Aug. 31, 2022.`\
+https://nytimes.com/2022/08/31/todayspaper/quotation-of-the-day-french-tax-collectors-scan-satellite-images-to-spot-pools-hidden-from-view.html?searchResultPosition=7
+
 **Defending U.S. Open Champion Emma Raducanu Loses in the First Round**\
 `Raducanu, who won the U.S. Open women’s singles title as a qualifier without dropping a set last year, fell to Alizé Cornet in straight sets.`\
-https://nytimes.com/2022/08/30/sports/tennis/raducanu-us-open-cornet.html?searchResultPosition=1
+https://nytimes.com/2022/08/30/sports/tennis/raducanu-us-open-cornet.html?searchResultPosition=8
 
 **Review: Finding Community in ‘As You Like It’**\
 `This shimmering Shakespeare adaptation at the Delacorte Theater retains the outline of the original, while making space for songs. You don’t have to sing along, though you may want to.`\
-https://nytimes.com/2022/08/30/theater/review-as-you-like-it.html?searchResultPosition=2
+https://nytimes.com/2022/08/30/theater/review-as-you-like-it.html?searchResultPosition=9
 
 **Something to Think About**\
 `Pick up Joe Deeney’s puzzle before it’s too late!`\
-https://nytimes.com/2022/08/30/crosswords/daily-puzzle-2022-08-31.html?searchResultPosition=3
-
-**Rikers Guards Watched as Man Bled From Razor Wound**\
-`A captain and two correction officers were suspended last week for failing to intervene for at least 10 minutes after a man slit his throat with a razor, bleeding out in his cell.`\
-https://nytimes.com/2022/08/30/nyregion/rikers-island-death.html?searchResultPosition=4
-
-**How Gorbachev’s ‘perestroika’ vanished.**\
-`Mr. Gorbachev’s vision of a “common European home” stretching from Vladivostok to Lisbon has been replaced by a Russia increasingly isolated from the rest of Europe.`\
-https://nytimes.com/2022/08/30/world/europe/gorbachev-perestroika.html?searchResultPosition=5
-
-**How Reagan and Bush overcame skepticism to collaborate with Gorbachev.**\
-`Mr. Gorbachev was charming and presented himself as a reformer, but neither Ronald Reagan nor George Bush was convinced he was for real. They would both be proved wrong.`\
-https://nytimes.com/2022/08/30/world/europe/gorbachev-us-presidents-reagan.html?searchResultPosition=6
-
-**Toxic Red Tide Kills ‘Uncountable’ Numbers of Fish in the Bay Area**\
-`A harmful algal bloom in the San Francisco Bay is killing fish, sharks and stingrays. Some are washing ashore.`\
-https://nytimes.com/2022/08/30/us/fish-dead-algae-bloom-california.html?searchResultPosition=7
-
-**L. Lin Wood, a Trump Ally, Is Called to Testify in Election-Meddling Inquiry**\
-`Mr. Wood said he would appear before the special grand jury in Atlanta.`\
-https://nytimes.com/2022/08/30/us/lin-wood-georgia-trump-inquiry.html?searchResultPosition=8
+https://nytimes.com/2022/08/30/crosswords/daily-puzzle-2022-08-31.html?searchResultPosition=10
 
