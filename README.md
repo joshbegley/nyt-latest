@@ -34,7 +34,7 @@ https://nytimes.com/2022/08/31/well/covid-booster-shots-variants.html?searchResu
 `Experts from the International Atomic Energy Agency are expected to stay overnight in the Ukrainian-held city before visiting the Russian-occupied Zaporizhzhia Nuclear Power Plant nearby, where frequent shelling has raised fears of a nuclear catastrophe.`\
 https://nytimes.com/video/world/europe/100000008511748/ukraine-nuclear-plant-zaporizhzhia-un.html?searchResultPosition=9
 
-**Cooking With the Three Sisters**\
-`By Melissa Clark`\
-https://nytimes.com/2022/08/31/dining/cooking-with-the-three-sisters.html?searchResultPosition=10
+**The European Union moves to restrict visas to Russians, but does not ban them.**\
+`The suspension of a 2007 agreement with Russia will make visas cost more, require more paperwork and involve longer delays.`\
+https://nytimes.com/2022/08/31/world/europe/eu-russia-visas.html?searchResultPosition=10
 
