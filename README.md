@@ -1,5 +1,5 @@
 **Robert LuPone, Actor Who Became a Behind-the-Scenes Force, Dies at 76**\
-`In the 1980s, after playing a critical role in “A Chorus Line” on Broadway, he helped start the vibrant Off Broadway MCC Theater to produce new works.`\
+`After playing a critical Broadway role in “A Chorus Line,” he helped start the vibrant Off Broadway MCC Theater. TV watchers knew him from “The Sopranos” and “Law and Order.”`\
 https://nytimes.com/2022/08/31/theater/robert-lupone-dead.html?searchResultPosition=1
 
 **As Republicans Turn to Fall Races, Their Sites Downplay Trump and Abortion**\
