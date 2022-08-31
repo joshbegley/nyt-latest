@@ -1,40 +1,40 @@
-**Serena Williams’s Next Opponent Is a Struggling Anett Kontaveit**\
-`They will face off in a packed Arthur Ashe Stadium on Wednesday, a venue that feels like home to Williams even if it has not always been a haven.`\
-https://nytimes.com/2022/08/31/sports/tennis/kontaveit-serena-williams-us-open.html?searchResultPosition=1
+**The Keeper**\
+`How an Afghan soccer player and her teammates fled their homes, outran a murderous regime and forged the uncertain beginnings of a new life.`\
+https://nytimes.com/2022/08/31/sports/soccer/afghanistan-soccer-escape.html?searchResultPosition=1
 
-**Wait … Is This Times Square?**\
-`New York City considers far-flung boundaries for the Crossroads of the World as it decides where to ban guns.`\
-https://nytimes.com/2022/08/31/nyregion/wait-is-this-times-square.html?searchResultPosition=2
+**Why ‘September Is the New May’ When It Comes to Planting Flowers**\
+`Your garden may not be looking Instagram ready at the moment, but don’t give up: There’s time for more color before the first frost.`\
+https://nytimes.com/2022/08/31/realestate/garden-fall-flowers.html?searchResultPosition=2
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/08/31/crosswords/spelling-bee-forum.html?searchResultPosition=3
+**A Water Slide (Plus a House) in the Ocean: House Hunting in Maldives**\
+`Homes in the archipelagic state are often handed down from generation to generation, while foreigners are limited to vacation villa packages on resort islands.`\
+https://nytimes.com/2022/08/31/realestate/maldives-resorts-villas.html?searchResultPosition=3
 
-**California Algal Bloom Kills ‘Unprecedented’ Numbers of Fish**\
-`A harmful algal bloom in the San Francisco Bay Area has killed numerous fish, sharks and stingrays.`\
-https://nytimes.com/video/us/100000008511502/red-tide-kills-fish-bay-area.html?searchResultPosition=4
+**Steps (and a Slide) Down to the Ocean in Maldives**\
+`This three-bedroom villa with a water slide, built over a lagoon off the resort island of Medhufaru, in Maldives, is on the market for $7 million.`\
+https://nytimes.com/slideshow/2022/08/31/realestate/steps-and-a-slide-down-to-the-ocean-in-maldives.html?searchResultPosition=4
 
-**U.N. Experts to Inspect Nuclear Power Plant in Ukraine**\
-`A group of experts with the International Atomic Energy Agency, the United Nations nuclear watchdog, departed from Kyiv, Ukraine, headed to the Zaporizhzhia nuclear power plant. The team intends to establish a permanent monitoring mission at the Russian-occupied nuclear facility.`\
-https://nytimes.com/video/world/europe/100000008511471/un-experts-nuclear-power-plant.html?searchResultPosition=5
+**What to Plant for a Colorful Fall**\
+`Your garden may not be looking Instagram ready at the moment, but don’t give up: There’s time for more color before the first frost.`\
+https://nytimes.com/slideshow/2022/08/31/realestate/garden-fall-flowers.html?searchResultPosition=5
 
-**Bashar al-Assad Has a Syria He’d Like the World to See**\
-`The only trouble is, it’s not the real one. `\
-https://nytimes.com/2022/08/31/opinion/syria-movie-jackie-chan.html?searchResultPosition=6
+**$650,000 Homes in Georgia, Massachusetts and Wisconsin**\
+`A 1960 house in Statesboro, a two-bedroom condominium on Beacon Hill in Boston and a Colonial Revival home in Madison.`\
+https://nytimes.com/2022/08/31/realestate/home-prices-georgia-massachusetts-and-wisconsin.html?searchResultPosition=6
 
-**Your Wednesday Briefing**\
-`Mikhail Gorbachev is dead at 91.`\
-https://nytimes.com/2022/08/31/briefing/gorbachev-ukraine-inspectors-baghdad.html?searchResultPosition=7
+**What You Get for $650,000**\
+`A 1960 house in Statesboro, Ga.; a two-bedroom condominium in Boston; and a Colonial Revival home in Madison, Wis.`\
+https://nytimes.com/slideshow/2022/08/31/realestate/what-you-get-for-650000.html?searchResultPosition=7
 
-**Documents at Mar-a-Lago Were Moved and Hidden as U.S. Sought Them, Filing Suggests**\
-`The filing by the Justice Department paints the clearest picture to date of its efforts to retrieve documents from the former president’s Mar-a-Lago estate in Florida.`\
-https://nytimes.com/2022/08/31/us/politics/trump-mar-a-lago-documents.html?searchResultPosition=8
+**Mexico’s Leader Vowed ‘Hugs Not Bullets,’ but the Carnage Continues**\
+`The president disbanded the Federal Police and created the National Guard to tackle soaring violence, but three years later, criminal cartels have expanded their reach.`\
+https://nytimes.com/2022/08/31/world/americas/mexico-cartels-violence.html?searchResultPosition=8
 
-**As Apartment Prices Climb, Renters Look for Deals in the Outer Boroughs**\
-`An analysis by the listing site StreetEasy found that many apartment hunters have moved on from the hottest neighborhoods in Manhattan.`\
-https://nytimes.com/2022/08/31/nyregion/as-apartment-prices-climb-renters-look-for-deals-in-the-outer-boroughs.html?searchResultPosition=9
+**Heat, Water, Fire: How Climate Change Is Transforming the Pacific Crest Trail**\
+`The already grueling 2,600-mile hike now includes the added challenges of global warming, which can mean a lack of shade and exposure to smoke and fire.`\
+https://nytimes.com/2022/08/31/travel/climate-change-pacific-crest-trail.html?searchResultPosition=9
 
-**The Teenage Baller Behind the ‘Super Fly’ Brittney Griner Hoodies**\
-`Isabella Escribano, 14, is popular on Instagram for her basketball skills. She’s using her design skills in the public campaign to free the W.N.B.A. star Brittney Griner.`\
-https://nytimes.com/2022/08/31/sports/basketball/wnba-brittney-griner-hoodies-isabella-escribano.html?searchResultPosition=10
+**In TriBeCa, a Farm Stand Where Celebrities and Tomatoes Mingle**\
+`Open only on Tuesdays, the restaurant One White Street’s seasonal farm stand has become a reliable place to spot famous faces.`\
+https://nytimes.com/2022/08/31/style/one-white-street-restaurant-tribeca-farm-stand.html?searchResultPosition=10
 
