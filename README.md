@@ -1,6 +1,6 @@
 **How the Pandemic Shortened Life Expectancy in Indigenous Communities**\
 `New federal data outline the scale of suffering among Native Americans and Alaska Natives.`\
-https://nytimes.com/2022/08/31/health/covid-native-americans-alaskans.html?searchResultPosition=1
+https://nytimes.com/2022/08/31/health/life-expectancy-covid-native-americans-alaskans.html?searchResultPosition=1
 
 **Trump’s Legal Jab Left Him Open to Justice Dept. Strike**\
 `A legal back-and-forth produced a straightforward narrative of how Mr. Trump and his lawyers repeatedly dodged the government’s attempts to recover sensitive documents for more than a year.`\
