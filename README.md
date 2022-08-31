@@ -19,7 +19,7 @@ https://nytimes.com/2022/08/30/nyregion/rikers-island-death.html?searchResultPos
 https://nytimes.com/2022/08/30/world/europe/gorbachev-perestroika.html?searchResultPosition=5
 
 **How Reagan and Bush overcame skepticism to collaborate with Gorbachev.**\
-`Mr. Gorbachev was charming and presented himself as a reformer, but neither Reagan nor Bush was convinced he was for real. They would both be proved wrong.`\
+`Mr. Gorbachev was charming and presented himself as a reformer, but neither Ronald Reagan nor George Bush was convinced he was for real. They would both be proved wrong.`\
 https://nytimes.com/2022/08/30/world/europe/gorbachev-us-presidents-reagan.html?searchResultPosition=6
 
 **Toxic Red Tide Kills ‘Uncountable’ Numbers of Fish in the Bay Area**\
