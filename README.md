@@ -31,7 +31,7 @@ https://nytimes.com/2022/08/31/style/the-wing-shuts-down.html?searchResultPositi
 https://nytimes.com/2022/08/31/us/virginia-obscenity-book-ban.html?searchResultPosition=8
 
 **Families of Israelis Killed at Munich Olympics Reach Compensation Deal**\
-`The Israeli and German governments announced an agreement after the families said they would boycott a memorial observing the 1972 attack over what called insufficient recompense.`\
+`The Israeli and German governments announced an agreement after the families said they would boycott a memorial observing the 1972 attack over what they called insufficient recompense.`\
 https://nytimes.com/2022/08/31/world/europe/munich-olympics-compensation-israel-germany.html?searchResultPosition=9
 
 **As New York’s Gun Law Goes Into Effect, Demand for Permits Spikes**\
