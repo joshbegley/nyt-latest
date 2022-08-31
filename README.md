@@ -34,7 +34,7 @@ https://nytimes.com/2022/08/31/arts/music/romeo-santos-formula-vol-3-review.html
 `Two lawyers for former President Donald J. Trump are under increased scrutiny after new details emerged about a failure to fully comply with a subpoena for documents marked as classified.`\
 https://nytimes.com/2022/08/31/us/trump-lawyers-witnesses-investigation.html?searchResultPosition=9
 
-**When Fetterman Wasn’t Ready to Debate After a Stroke, Oz Pounced**\
+**When Fetterman Declined to Debate, Oz Made His Stroke an Issue**\
 `Dr. Mehmet Oz, the Republican nominee for Senate in Pennsylvania, has taunted his Democratic rival, Lt. Gov. John Fetterman, about his recovery.`\
 https://nytimes.com/2022/08/31/us/politics/fetterman-health-oz-pennsylvania.html?searchResultPosition=10
 
