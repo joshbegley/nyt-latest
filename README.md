@@ -1,4 +1,4 @@
-**Show I.D. to Buy Whipped Cream? N.Y. Law Stirs Confusion at Checkout**\
+**Show ID to Buy Whipped Cream? N.Y. Law Stirs Confusion at Checkout**\
 `A law intended to curb the inhalation of nitrous oxide among teenagers was interpreted by some to be an all-out ban on whipped-cream canisters.`\
 https://nytimes.com/2022/08/31/nyregion/whipped-cream-illegal-ny.html?searchResultPosition=1
 
