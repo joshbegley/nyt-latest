@@ -1,4 +1,4 @@
-**‘Publishing error’ delays Dinesh D’Souza’s book ‘2000 Mules’**\
+**‘Publishing error’ delays Dinesh D’Souza’s book ‘2000 Mules.’**\
 `The publication date was postponed by almost two months, until Oct. 25.`\
 https://nytimes.com/2022/08/31/business/media/publishing-error-delays-dinesh-dsouzas-book-2000-mules.html?searchResultPosition=1
 
