@@ -4,7 +4,7 @@ https://nytimes.com/2022/08/31/business/bed-bath-beyond-turnaround.html?searchRe
 
 **Eurozone Inflation Sets the Stage for Another Big Rate Increase**\
 `The European Central Bank, when it meets next week, is expected to raise interest rates again to curb eurozone inflation, which just set a record.`\
-https://nytimes.com/2022/08/31/business/eurozone-inflation-sets-the-stage-for-another-big-rate-increase.html?searchResultPosition=2
+https://nytimes.com/2022/08/31/business/eurozone-inflation-interest-rates.html?searchResultPosition=2
 
 **Mahathir, Malaysia’s Former Premier, Is Hospitalized With Covid**\
 `A towering figure in his country’s politics, Mahathir Mohamad was admitted to the hospital for monitoring, and says he’s contemplating another election run at age 97.`\
