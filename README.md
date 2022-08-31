@@ -1,5 +1,5 @@
 **What to Know About the New Booster Shots**\
-`The F.D.A. just cleared new shots specifically designed to target the latest version of the Omicron variant.`\
+`The F.D.A. just cleared new shots targeting the latest version of the Omicron variant. When should you get yours? Here’s what experts recommend.`\
 https://nytimes.com/2022/08/31/well/covid-booster-shots-variants.html?searchResultPosition=1
 
 **U.N. Nuclear Watchdog Experts Arrive in Zaporizhzhia, Ukraine**\
