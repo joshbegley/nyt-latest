@@ -1,10 +1,10 @@
-**Zach Sang, the Ryan Seacrest of the Youth, Wants to Save Radio**\
-`The former syndication star and top-flight interviewer is rebuilding his daily show on Amazon’s new app, Amp.`\
-https://nytimes.com/2022/08/31/arts/music/zach-sang-radio-amazon-amp.html?searchResultPosition=1
-
 **Many Developed Countries View Online Misinformation as ‘Major Threat’**\
 `New research from the Pew Research Center shows nearly three-quarters of respondents are very concerned about the spread of false information online.`\
-https://nytimes.com/2022/08/31/technology/pew-misinformation-major-threat.html?searchResultPosition=2
+https://nytimes.com/2022/08/31/technology/pew-misinformation-major-threat.html?searchResultPosition=1
+
+**Zach Sang, the Ryan Seacrest of the Youth, Wants to Save Radio**\
+`The former syndication star and top-flight interviewer is rebuilding his daily show on Amazon’s new app, Amp.`\
+https://nytimes.com/2022/08/31/arts/music/zach-sang-radio-amazon-amp.html?searchResultPosition=2
 
 **A Pair of Ahmad Jamal Live Albums Capture an Innovator in His Prime**\
 `The pianist, 92, has been hesitant to glance back: “I’m still evolving, whenever I sit down at the piano.”`\
