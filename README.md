@@ -11,7 +11,7 @@ https://nytimes.com/2022/08/31/arts/music/zach-sang-radio-amazon-amp.html?search
 https://nytimes.com/2022/08/31/arts/music/ahmad-jamal-live-albums.html?searchResultPosition=3
 
 **F.D.A. Authorizes Updated Covid Booster Shots, Targeting Omicron Subvariants**\
-`The agency cleared booster doses targeting Omicron subvariants, hoping to curtail a fall or winter surge.`\
+`The agency cleared two options targeting subvariants that are currently dominant, hoping to curtail a fall or winter surge.`\
 https://nytimes.com/2022/08/31/us/politics/covid-booster-shots-variants.html?searchResultPosition=4
 
 **Read the Justice Department’s Response to Trump’s Request for a Special Master**\
