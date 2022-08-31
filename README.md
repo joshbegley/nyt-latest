@@ -10,13 +10,13 @@ https://nytimes.com/2022/08/31/movies/daniels-everything-everywhere-all-at-once.
 `To truly rule the television world, the two fantasy series need to borrow from one another’s strengths.`\
 https://nytimes.com/2022/08/31/opinion/house-of-the-dragon-the-rings-of-power.html?searchResultPosition=3
 
-**Many Developed Countries View Online Misinformation as ‘Major Threat’**\
-`New research from the Pew Research Center shows nearly three-quarters of respondents are very concerned about the spread of false information online.`\
-https://nytimes.com/2022/08/31/technology/pew-misinformation-major-threat.html?searchResultPosition=4
-
 **Zach Sang, the Ryan Seacrest of the Youth, Wants to Save Radio**\
 `The former syndication star and top-flight interviewer is rebuilding his daily show on Amazon’s new app, Amp.`\
-https://nytimes.com/2022/08/31/arts/music/zach-sang-radio-amazon-amp.html?searchResultPosition=5
+https://nytimes.com/2022/08/31/arts/music/zach-sang-radio-amazon-amp.html?searchResultPosition=4
+
+**Many Developed Countries View Online Misinformation as ‘Major Threat’**\
+`New research from the Pew Research Center shows nearly three-quarters of respondents are very concerned about the spread of false information online.`\
+https://nytimes.com/2022/08/31/technology/pew-misinformation-major-threat.html?searchResultPosition=5
 
 **A Pair of Ahmad Jamal Live Albums Capture an Innovator in His Prime**\
 `The pianist, 92, has been hesitant to glance back: “I’m still evolving, whenever I sit down at the piano.”`\
