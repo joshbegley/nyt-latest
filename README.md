@@ -14,7 +14,7 @@ https://nytimes.com/2022/08/31/us/politics/sexual-assault-military.html?searchRe
 `The rule, part of a new gun law passed by New York State, comes in response to a U.S. Supreme Court ruling in June that struck down a century-old law that had strictly limited carrying handguns in public.`\
 https://nytimes.com/video/us/100000008512850/new-york-gun-laws.html?searchResultPosition=4
 
-**Another round of celebrities show up see Serena Williams in the U.S. Open.**\
+**Tiger Woods among the celebrities who show up see Serena Williams in the U.S. Open.**\
 `Tiger Woods was among the celebrities at Arthur Ashe Stadium, along with Zendaya and Dionne Warwick.`\
 https://nytimes.com/2022/08/31/sports/tennis/serena-williams-celebrities-politicians.html?searchResultPosition=5
 
