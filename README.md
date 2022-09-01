@@ -1,40 +1,40 @@
+**U.S. Restricts Sales of Sophisticated Chips to China and Russia**\
+`Limits were placed on high-end GPUs that power supercomputers and artificial intelligence, said Nvidia and AMD, two Silicon Valley chip makers.`\
+https://nytimes.com/2022/08/31/technology/gpu-chips-china-russia.html?searchResultPosition=1
+
 **Alaska U.S. Senate Primary Election Results**\
 `See full results and maps from the Alaska primary election.`\
-https://nytimes.com/interactive/2022/08/16/us/elections/results-alaska-us-senate.html?searchResultPosition=1
+https://nytimes.com/interactive/2022/08/16/us/elections/results-alaska-us-senate.html?searchResultPosition=2
 
 **Wyoming Governor Primary Election Results**\
 `See full results and maps from the Wyoming primary elections.`\
-https://nytimes.com/interactive/2022/08/16/us/elections/results-wyoming-governor.html?searchResultPosition=2
+https://nytimes.com/interactive/2022/08/16/us/elections/results-wyoming-governor.html?searchResultPosition=3
 
 **Alaska At-Large Congressional District Primary Election Results**\
 `See full results and maps from the Alaska primary election.`\
-https://nytimes.com/interactive/2022/08/16/us/elections/results-alaska-us-house-district-1.html?searchResultPosition=3
+https://nytimes.com/interactive/2022/08/16/us/elections/results-alaska-us-house-district-1.html?searchResultPosition=4
 
 **Alaska At-Large Congressional District Special Election Results**\
 `See full results and maps from the Alaska special election.`\
-https://nytimes.com/interactive/2022/08/16/us/elections/results-alaska-us-house-special.html?searchResultPosition=4
+https://nytimes.com/interactive/2022/08/16/us/elections/results-alaska-us-house-special.html?searchResultPosition=5
 
 **Wyoming Secretary of State Primary Election Results**\
 `See full results and maps from the Wyoming primary elections.`\
-https://nytimes.com/interactive/2022/08/16/us/elections/results-wyoming-secretary-of-state.html?searchResultPosition=5
+https://nytimes.com/interactive/2022/08/16/us/elections/results-wyoming-secretary-of-state.html?searchResultPosition=6
 
 **Alaska Governor Primary Election Results**\
 `See full results and maps from the Alaska primary election.`\
-https://nytimes.com/interactive/2022/08/16/us/elections/results-alaska-governor.html?searchResultPosition=6
+https://nytimes.com/interactive/2022/08/16/us/elections/results-alaska-governor.html?searchResultPosition=7
 
 **Who’s Who in Serena Williams’s Player’s Box**\
 `Her entourage has included her 4-year-old daughter, two sisters and a handful of other celebrities.`\
-https://nytimes.com/interactive/2022/08/31/sports/tennis/serena-williams-players-box-us-open.html?searchResultPosition=7
+https://nytimes.com/interactive/2022/08/31/sports/tennis/serena-williams-players-box-us-open.html?searchResultPosition=8
 
 **How Reagan and Bush Overcame Skepticism to Collaborate With Gorbachev**\
 `Mr. Gorbachev was charming and presented himself as a modernizer, but neither Ronald Reagan nor George Bush was convinced he was for real. They would both be proved wrong.`\
-https://nytimes.com/2022/08/31/us/politics/reagan-bush-gorbachev.html?searchResultPosition=8
+https://nytimes.com/2022/08/31/us/politics/reagan-bush-gorbachev.html?searchResultPosition=9
 
 **Mary Peltola, a Democrat, Defeats Sarah Palin in Alaska’s Special House Election**\
 `Ms. Peltola notched a major upset against Ms. Palin and will finish the remaining four months of the term of Representative Don Young, who died in March.`\
-https://nytimes.com/2022/08/31/us/politics/mary-peltola-alaska-special-election.html?searchResultPosition=9
-
-**‘Defund the Police’ Is Dead. Now What?**\
-`Have we simply become inured to police shootings? Do these lives no longer matter?`\
-https://nytimes.com/2022/08/31/opinion/defund-the-police.html?searchResultPosition=10
+https://nytimes.com/2022/08/31/us/politics/mary-peltola-alaska-special-election.html?searchResultPosition=10
 
