@@ -35,6 +35,6 @@ https://nytimes.com/2022/09/01/business/germany-lng-russia-green-energy.html?sea
 https://nytimes.com/2022/09/01/world/europe/ukraine-schools-first-day.html?searchResultPosition=9
 
 **Top Lawyer for Oath Keepers Is Arrested in Connection With Jan. 6 Attack**\
-`The lawyer, Kellye SoRelle, was charged with obstructing the certification of the 2020 election and tampering with evidence in the Justice Department’s investigation of the Capitol attack.`\
+`The lawyer, Kellye SoRelle, was charged with obstructing the certification of the 2020 election and tampering with evidence in the Justice Department’s investigation of the Capitol riot.`\
 https://nytimes.com/2022/09/01/us/politics/oath-keepers-lawyer-arrested.html?searchResultPosition=10
 
