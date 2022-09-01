@@ -18,7 +18,7 @@ https://nytimes.com/2022/09/01/us/lindsey-graham-georgia-subpoena.html?searchRes
 `Melissa Villaseñor, Alex Moffat and Aristotle Athari are the latest performers to depart “Saturday Night Live.”`\
 https://nytimes.com/2022/09/01/arts/television/snl-loses-melissa-villasenor-alex-moffat-aristotle-athari.html?searchResultPosition=5
 
-**Starbucks names a new chief executive.**\
+**Starbucks Names a New Chief Executive**\
 `Laxman Narasimhan, who will take over for Howard Schultz in April, will lead the company at a time of a growing unionization movement and rising costs.`\
 https://nytimes.com/2022/09/01/business/dealbook/starbucks-ceo.html?searchResultPosition=6
 
