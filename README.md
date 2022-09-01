@@ -18,7 +18,7 @@ https://nytimes.com/2022/09/01/us/politics/rick-scott-mitch-mcconnell-senate.htm
 `The government said that much of the infrastructure under construction to supply L.N.G. could be reused to import hydrogen, which Europe is backing as an important clean fuel of the future.`\
 https://nytimes.com/2022/09/01/business/germany-lng-russia-green-energy.html?searchResultPosition=5
 
-**School Year Resumes in Ukraine, but Bleak Season of War Upends Classes**\
+**First Day of School in Ukraine, Upended by the Bleak Season of War**\
 `For those lucky enough to have schools to return to, back-to-school day is still colored by war. Schools must now have bomb shelters, and first-aid kits are handed out along with pens and paper.`\
 https://nytimes.com/2022/09/01/world/europe/ukraine-schools-first-day.html?searchResultPosition=6
 
