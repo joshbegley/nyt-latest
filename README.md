@@ -31,7 +31,7 @@ https://nytimes.com/2022/09/01/crosswords/spelling-bee-forum.html?searchResultPo
 https://nytimes.com/2022/09/01/world/asia/china-covid-lockdown-chengdu.html?searchResultPosition=8
 
 **Pencil, chalk and first-aid kits: Ukrainian children return to school in the midst of war.**\
-`An estimated 2.8 million of the nation’s 6 million children have been forced from their homes because of the war. If they are fortunate enough to find a seat in a classroom, it will likely be in an unfamiliar town or city.`\
+`An estimated 2.8 million of the nation’s six million children have been forced from their homes because of the war. If they are fortunate enough to find a seat in a classroom, it will probably be in an unfamiliar town or city.`\
 https://nytimes.com/2022/09/01/world/europe/pencil-chalk-and-first-aid-kits-ukrainian-children-return-to-school-in-the-midst-of-war.html?searchResultPosition=9
 
 **Debt-Stricken Sri Lanka Reaches Initial Deal for I.M.F. Bailout**\
