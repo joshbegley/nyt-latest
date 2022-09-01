@@ -14,7 +14,7 @@ https://nytimes.com/2022/08/31/sports/tennis/serena-williams-ajla-tomljanovic-th
 `John Wrenholt helps us figure things out.`\
 https://nytimes.com/2022/08/31/crosswords/daily-puzzle-2022-09-01.html?searchResultPosition=4
 
-**Serena Williams’s magical run at the U.S. Open isn’t over yet.**\
+**Serena Williams’s Magical Run at the U.S. Open Isn’t Over Yet**\
 `If two nights earlier was about posterity and sweet send-offs, Round 2 was about doing everything possible to win a tennis match, as Williams beat the world No. 2, Anett Kontaveit, in three sets.`\
 https://nytimes.com/2022/08/31/sports/tennis/serena-williams-us-open-win.html?searchResultPosition=5
 
