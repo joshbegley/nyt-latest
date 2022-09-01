@@ -1,40 +1,40 @@
+**‘Waiting for Bojangles’ Review: Endless Love**\
+`Set in Paris in the 1960s, the film tells the story of two irrepressible lovers, and their young son, whose tale turns tragic.`\
+https://nytimes.com/2022/09/01/movies/waiting-for-bojangles-review-endless-love.html?searchResultPosition=1
+
+**‘Kaepernick & America’ Review: A Narrative**\
+`A documentary examines race in football via Colin Kaepernick’s career.`\
+https://nytimes.com/2022/09/01/movies/kaepernick-america-review.html?searchResultPosition=2
+
+**‘McEnroe’ Review: Regrets, He’s Had a Few**\
+`In this documentary about his life and career, the tennis player John McEnroe, known for his temper, doesn’t bother trying to apologize for his behavior.`\
+https://nytimes.com/2022/09/01/movies/mcenroe-review.html?searchResultPosition=3
+
+**‘Burial’ Review: Corpse Ride**\
+`The film, about a Russian intelligence officer’s covert mission at the end of World War II, begins on a suspenseful note, but the tension soon dissipates.`\
+https://nytimes.com/2022/09/01/movies/burial-review-corpse-ride.html?searchResultPosition=4
+
+**‘Saloum’ Review: A Paranormal Showdown in the Desert**\
+`A team of African mercenaries encounters supernatural foes in this fable-like adventure.`\
+https://nytimes.com/2022/09/01/movies/saloum-review.html?searchResultPosition=5
+
 **To the Moon**\
 `Why NASA wants to go back now.`\
-https://nytimes.com/2022/09/01/briefing/nasa-moon-mars-space-travel.html?searchResultPosition=1
+https://nytimes.com/2022/09/01/briefing/nasa-moon-mars-space-travel.html?searchResultPosition=6
 
 **How Gorbachev Changed the World**\
 `Mikhail S. Gorbachev set out to reform the Soviet Union. But the social and economic forces he unleashed ended up destroying it.`\
-https://nytimes.com/2022/09/01/podcasts/the-daily/gorbachev-dead-putin-soviet-union.html?searchResultPosition=2
+https://nytimes.com/2022/09/01/podcasts/the-daily/gorbachev-dead-putin-soviet-union.html?searchResultPosition=7
 
 **The Mets Pull One Back in a Fun Win Over the Dodgers**\
 `Jacob deGrom dominated, Brandon Nimmo made a catch to remember and Timmy Trumpet played a live version of Edwin Díaz’s entrance song during a thrilling win.`\
-https://nytimes.com/2022/09/01/sports/baseball/brandon-nimmo-mets-dodgers.html?searchResultPosition=3
+https://nytimes.com/2022/09/01/sports/baseball/brandon-nimmo-mets-dodgers.html?searchResultPosition=8
 
 **Timmy Trumpet Gives Mets Closer a Live Rendition of ‘Narco’**\
 `Edwin Díaz’s entrance music has been a sensation this season, and the Australian trumpet player appearing in person made it that much better.`\
-https://nytimes.com/interactive/2022/09/01/sports/baseball/edwin-diaz-timmy-trumpet.html?searchResultPosition=4
+https://nytimes.com/interactive/2022/09/01/sports/baseball/edwin-diaz-timmy-trumpet.html?searchResultPosition=9
 
 **Behind the Wheel in L.A., With a New Destination**\
 `Once the head of women’s wear for Stella McCartney and Jil Sander, Leena Similu has taken a 180-degree turn into ceramics.`\
-https://nytimes.com/2022/09/01/arts/design/leena-similu-ceramics.html?searchResultPosition=5
-
-**How to Decorate an Empty Space**\
-`Questions on filling a home, carving out guest quarters, deciding whether to choose marble and finding a decent-looking light switch.`\
-https://nytimes.com/2022/09/01/style/design-questions-answers.html?searchResultPosition=6
-
-**The Man Who Amassed 10,000 Vintage Scarves (and Wrote a Book About It)**\
-`“It’s a bit of fashion, a bit of design, but I see it more like a book about paintings,” said the author, Benoit Pierre Emery.`\
-https://nytimes.com/2022/09/01/style/scarves-benoit-pierre-emery.html?searchResultPosition=7
-
-**Portugal Could Hold an Answer for a Europe Captive to Russian Gas**\
-`Long cut off from the continent’s grid, Portugal and Spain built a system based on imports and alternatives like solar that is the envy of fellow European Union nations.`\
-https://nytimes.com/2022/09/01/business/economy/portugal-russia-natural-gas.html?searchResultPosition=8
-
-**Tech Companies Slowly Shift Production Away From China**\
-`Worried about geopolitical tensions and stung by pandemic shutdowns, Google, Apple and others are moving some work to nearby countries.`\
-https://nytimes.com/2022/09/01/business/tech-companies-china.html?searchResultPosition=9
-
-**When Wedding Planning Is More Like Online Shopping**\
-`For those who crave efficiency, some websites tackle wedding planning with an add-to-cart approach.`\
-https://nytimes.com/2022/09/01/fashion/weddings/wedding-planning-online-shopping.html?searchResultPosition=10
+https://nytimes.com/2022/09/01/arts/design/leena-similu-ceramics.html?searchResultPosition=10
 
