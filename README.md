@@ -3,7 +3,7 @@
 https://nytimes.com/2022/09/01/nyregion/where-exactly-is-times-square-its-complicated.html?searchResultPosition=1
 
 **The Pandemic Erased Two Decades of Progress in Math and Reading**\
-`The results of a national test showed just how devastating the last two years have been for 9-year-old school children, especially the most vulnerable.`\
+`The results of a national test showed just how devastating the last two years have been for 9-year-old schoolchildren, especially the most vulnerable.`\
 https://nytimes.com/2022/09/01/us/national-test-scores-math-reading-pandemic.html?searchResultPosition=2
 
 **Corrections: Sept. 1, 2022**\
