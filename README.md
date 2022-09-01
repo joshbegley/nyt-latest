@@ -2,7 +2,7 @@
 `The director behind award-season favorites ‘Birdman’ and ‘The Revenant’ returns with a personal new movie, but not everyone is a fan.`\
 https://nytimes.com/2022/09/01/movies/bardo-alejandro-inarritu-venice-film-festival.html?searchResultPosition=1
 
-**Are there generational differences on climate in your Family?**\
+**Are there generational differences on climate in your family?**\
 `Tell us about them.`\
 https://nytimes.com/2022/09/01/nyregion/are-there-generational-differences-on-climate-in-your-family.html?searchResultPosition=2
 
