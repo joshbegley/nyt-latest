@@ -1,26 +1,26 @@
+**Alaska U.S. Senate Primary Election Results**\
+`See full results and maps from the Alaska primary election.`\
+https://nytimes.com/interactive/2022/08/16/us/elections/results-alaska-us-senate.html?searchResultPosition=1
+
 **Wyoming Governor Primary Election Results**\
 `See full results and maps from the Wyoming primary elections.`\
-https://nytimes.com/interactive/2022/08/16/us/elections/results-wyoming-governor.html?searchResultPosition=1
-
-**Alaska At-Large Congressional District Special Election Results**\
-`See full results and maps from the Alaska special election.`\
-https://nytimes.com/interactive/2022/08/16/us/elections/results-alaska-us-house-special.html?searchResultPosition=2
+https://nytimes.com/interactive/2022/08/16/us/elections/results-wyoming-governor.html?searchResultPosition=2
 
 **Alaska At-Large Congressional District Primary Election Results**\
 `See full results and maps from the Alaska primary election.`\
 https://nytimes.com/interactive/2022/08/16/us/elections/results-alaska-us-house-district-1.html?searchResultPosition=3
 
-**Alaska Governor Primary Election Results**\
-`See full results and maps from the Alaska primary election.`\
-https://nytimes.com/interactive/2022/08/16/us/elections/results-alaska-governor.html?searchResultPosition=4
-
-**Alaska U.S. Senate Primary Election Results**\
-`See full results and maps from the Alaska primary election.`\
-https://nytimes.com/interactive/2022/08/16/us/elections/results-alaska-us-senate.html?searchResultPosition=5
+**Alaska At-Large Congressional District Special Election Results**\
+`See full results and maps from the Alaska special election.`\
+https://nytimes.com/interactive/2022/08/16/us/elections/results-alaska-us-house-special.html?searchResultPosition=4
 
 **Wyoming Secretary of State Primary Election Results**\
 `See full results and maps from the Wyoming primary elections.`\
-https://nytimes.com/interactive/2022/08/16/us/elections/results-wyoming-secretary-of-state.html?searchResultPosition=6
+https://nytimes.com/interactive/2022/08/16/us/elections/results-wyoming-secretary-of-state.html?searchResultPosition=5
+
+**Alaska Governor Primary Election Results**\
+`See full results and maps from the Alaska primary election.`\
+https://nytimes.com/interactive/2022/08/16/us/elections/results-alaska-governor.html?searchResultPosition=6
 
 **Who’s Who in Serena Williams’s Player’s Box**\
 `Her entourage has included her 4-year-old daughter, two sisters and a handful of other celebrities.`\
