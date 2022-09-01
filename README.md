@@ -12,7 +12,7 @@ https://nytimes.com/2022/09/01/crosswords/spelling-bee-forum.html?searchResultPo
 
 **China Locks Down Major Southern City of Chengdu**\
 `The drastic response to a rise in Covid cases adds to the pressures facing Sichuan, which already had been dealing with drought, excessive heat and wildfires.`\
-https://nytimes.com/2022/09/01/business/china-covid-lockdown-chengdu.html?searchResultPosition=4
+https://nytimes.com/2022/09/01/world/asia/china-covid-lockdown-chengdu.html?searchResultPosition=4
 
 **Pencil, chalk and first-aid kits: Ukrainian children return to school in the midst of war.**\
 `An estimated 2.8 million of the nation’s 6 million children have been forced from their homes because of the war. If they are fortunate enough to find a seat in a classroom, it will likely be in an unfamiliar town or city.`\
