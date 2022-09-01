@@ -10,25 +10,25 @@ https://nytimes.com/2022/09/01/style/design-questions-answers.html?searchResultP
 `“It’s a bit of fashion, a bit of design, but I see it more like a book about paintings,” said the author, Benoit Pierre Emery.`\
 https://nytimes.com/2022/09/01/style/scarves-benoit-pierre-emery.html?searchResultPosition=3
 
+**Portugal Could Hold an Answer for a Europe Captive to Russian Gas**\
+`Long cut off from the continent’s grid, Portugal and Spain built a system based on imports and alternatives like solar that is the envy of fellow European Union nations.`\
+https://nytimes.com/2022/09/01/business/economy/portugal-russia-natural-gas.html?searchResultPosition=4
+
 **Tech Companies Slowly Shift Production Away From China**\
 `Worried about geopolitical tensions and stung by pandemic shutdowns, Google, Apple and others are moving some work to nearby countries.`\
-https://nytimes.com/2022/09/01/business/tech-companies-china.html?searchResultPosition=4
+https://nytimes.com/2022/09/01/business/tech-companies-china.html?searchResultPosition=5
 
 **When Wedding Planning Is More Like Online Shopping**\
 `For those who crave efficiency, some websites tackle wedding planning with an add-to-cart approach.`\
-https://nytimes.com/2022/09/01/fashion/weddings/wedding-planning-online-shopping.html?searchResultPosition=5
+https://nytimes.com/2022/09/01/fashion/weddings/wedding-planning-online-shopping.html?searchResultPosition=6
 
 **Household Goods That Wear Their Fashion Influences on Their Sleeves**\
 `It can be a short step from a runway look to a home furnishing — especially if the designer has a foot in both worlds.`\
-https://nytimes.com/2022/09/01/style/household-goods-fashion.html?searchResultPosition=6
+https://nytimes.com/2022/09/01/style/household-goods-fashion.html?searchResultPosition=7
 
 **School Is for Us**\
 `What is school really for? Students at Oakland’s Fremont High answer this question with their cameras.`\
-https://nytimes.com/2022/09/01/opinion/us-high-school-oakland.html?searchResultPosition=7
-
-**Portugal Could Hold an Answer for a Europe Captive to Russian Gas**\
-`Long cut off from the continent’s grid, Portugal and Spain built a system based on imports and alternatives like solar that is the envy of fellow European Union nations.`\
-https://nytimes.com/2022/09/01/business/economy/portugal-russia-natural-gas.html?searchResultPosition=8
+https://nytimes.com/2022/09/01/opinion/us-high-school-oakland.html?searchResultPosition=8
 
 **18 Books Coming in September**\
 `New novels from Stephen King, Elizabeth Strout and Maggie O’Farrell; stories by Ling Ma and David Means; and plenty more.`\
