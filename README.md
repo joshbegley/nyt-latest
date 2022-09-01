@@ -15,7 +15,7 @@ https://nytimes.com/2022/09/01/movies/bardo-alejandro-inarritu-venice-film-festi
 https://nytimes.com/2022/09/01/nyregion/are-there-generational-differences-on-climate-in-your-family.html?searchResultPosition=4
 
 **America Is Being Consumed by a Moral Panic Over Trans People**\
-`In the run-up to the midterms, fear-mongering about transgender issues is becoming an obsession on the right.`\
+`In the run-up to the midterms, fearmongering about transgender issues is becoming an obsession on the right.`\
 https://nytimes.com/2022/09/01/opinion/america-is-being-consumed-by-a-moral-panic-over-trans-people.html?searchResultPosition=5
 
 **A Farewell to Readers**\
