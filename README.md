@@ -16,7 +16,7 @@ https://nytimes.com/2022/09/01/us/politics/trump-intelligence-briefings.html?sea
 
 **Watch Live: Biden Addresses Threats to American Democracy**\
 `President Biden is expected to say Trump-led extremism is a direct threat to the United States.`\
-https://nytimes.com/video/us/politics/100000008512924/biden-speech-philly-trump.html?searchResultPosition=5
+https://nytimes.com/video/embedded/us/politics/100000008512924/biden-speech-philly-trump.html?searchResultPosition=5
 
 **The Day Gorbachev Made D.C. Stand Still**\
 `The Adventures of Mikhail Sergeyevich: An astrologer, an anaconda and a backward motorcade.`\
