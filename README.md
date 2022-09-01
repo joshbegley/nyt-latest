@@ -11,7 +11,7 @@ https://nytimes.com/2022/09/01/style/shein-clothing.html?searchResultPosition=2
 https://nytimes.com/2022/09/01/crosswords/spelling-bee-forum.html?searchResultPosition=3
 
 **China Locks Down Major Southern City of Chengdu**\
-`The drastic response to a rise in Covid cases adds to the pressures facing Sichuan, which already had been dealing with drought, excessive heat and wildfires.`\
+`The drastic response to a rise in Covid cases adds to the pressures facing Sichuan Province, which already had been dealing with drought, heat and wildfires.`\
 https://nytimes.com/2022/09/01/world/asia/china-covid-lockdown-chengdu.html?searchResultPosition=4
 
 **Pencil, chalk and first-aid kits: Ukrainian children return to school in the midst of war.**\
