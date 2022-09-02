@@ -28,7 +28,7 @@ https://nytimes.com/2022/09/02/dining/new-york-city-fall-restaurant-preview.html
 
 **College Football Playoff Will Expand to 12 Teams**\
 `The change could take effect as soon as the 2024 season. It is expected no later than 2026.`\
-https://nytimes.com/2022/09/02/sports/ncaafootball/college-football-playoff-expands.html?searchResultPosition=8
+https://nytimes.com/2022/09/02/sports/ncaafootball/college-football-playoff-expansion.html?searchResultPosition=8
 
 **This Salad Silences the Okra Critics**\
 `Filled with crisp broiled okra and served with a garlicky yogurt dressing, this summery recipe is deeply lovable.`\
