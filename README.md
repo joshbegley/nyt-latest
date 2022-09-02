@@ -31,7 +31,7 @@ https://nytimes.com/2022/09/02/briefing/russia-ukraine-war-zaporizhzhia-warplane
 https://nytimes.com/2022/09/02/admin/this-article-was-published-in-error.html?searchResultPosition=8
 
 **U.N. Watchdog to Stay Permanently at Ukrainian Nuclear Plant**\
-`Rafael Grossi, the director general of the International Atomic Energy Agency, said two United Nations experts would remain at the Zaporizhzhia Nuclear Power Plant to provide independent assessments of its safety.`\
+`Rafael Mariano Grossi, the director general of the International Atomic Energy Agency, said two United Nations experts would remain at the Zaporizhzhia Nuclear Power Plant to provide independent assessments of its safety.`\
 https://nytimes.com/video/world/europe/100000008516773/un-ukraine-nuclear-plant.html?searchResultPosition=9
 
 **White House Requests $47 Billion for Pandemic Response and Ukraine Aid**\
