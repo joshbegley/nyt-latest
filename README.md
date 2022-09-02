@@ -6,7 +6,7 @@ https://nytimes.com/2022/09/02/briefing/job-growth-data-john-podesta.html?search
 `The U.N. nuclear watchdog warns of grave risk from shelling.`\
 https://nytimes.com/2022/09/02/briefing/russia-ukraine-war-zaporizhzhia-warplanes.html?searchResultPosition=2
 
-**Debtors, Unite! You Have Nothing to Lose but Your Shame.**\
+**This article was published in error.**\
 `Conversations about debt are never purely about economics. They are always, also, conversations about power, morality and shame.`\
 https://nytimes.com/2022/09/02/opinion/student-loan-debt-shame.html?searchResultPosition=3
 
