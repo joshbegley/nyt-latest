@@ -10,7 +10,7 @@ https://nytimes.com/2022/09/02/business/economy/price-cap-on-russian-oil-wins-ba
 `Hiring slowed last month but remained robust, in line with what many economists had been expecting.`\
 https://nytimes.com/2022/09/02/business/jobs-report-takeaways.html?searchResultPosition=3
 
-**‘The Rings of Power’ Premiere Recap: All is Not Calm in Middle-Earth**\
+**‘The Rings of Power’ Premiere Recap: All Is Not Calm in Middle-Earth**\
 `Amazon’s ambitious “Lord of the Rings” prequel series has finally arrived. Here are seven takeaways from the first two episodes.`\
 https://nytimes.com/2022/09/02/arts/television/lotr-the-rings-of-power-premiere-recap.html?searchResultPosition=4
 
