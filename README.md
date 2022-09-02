@@ -15,7 +15,7 @@ https://nytimes.com/2022/09/02/books/review/david-sedariss-diaries.html?searchRe
 https://nytimes.com/2022/09/02/arts/design/nellie-mae-rowe-brooklyn-museum.html?searchResultPosition=4
 
 **A Van Carrying Factory Workers Crashes in New Jersey, Killing 4**\
-`The vehicle overturned on Palisades Interstate Parkway in Englewood Cliffs, N.J., early Friday.`\
+`The vehicle overturned on Palisades Interstate Parkway in Englewood Cliffs, N.J., early Friday. In addition to the deaths, 8 were injured.`\
 https://nytimes.com/2022/09/02/nyregion/new-jersey-van-crash.html?searchResultPosition=5
 
 **Beware of Scammers Trying to Capitalize on Student Loan Forgiveness**\
