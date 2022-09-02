@@ -22,7 +22,7 @@ https://nytimes.com/2022/09/01/crosswords/daily-puzzle-2022-09-02.html?searchRes
 `In a speech outside Independence Hall in Philadelphia, President Biden warned that America’s democratic values were under assault by “MAGA Republicans” loyal to former President Donald J. Trump.`\
 https://nytimes.com/video/us/politics/100000008515284/biden-philly-speech-trump.html?searchResultPosition=6
 
-**Williams Sisters Fall in Doubles at Serena’s Farewell U.S. Open**\
+**The Williams sisters, after a tight first set, are overpowered in doubles.**\
 `Serena and Venus Williams lost the first set even after having a set point. They eventually were defeated, 7-6 (5), 6-4, by Lucie Hradecka and Linda Noskova of the Czech Republic.`\
 https://nytimes.com/2022/09/01/sports/tennis/serena-venus-williams-us-open.html?searchResultPosition=7
 
