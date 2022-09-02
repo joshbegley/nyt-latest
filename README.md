@@ -1,5 +1,5 @@
 **At the U.S. Open, Coco Gauff Is Playing With a Veteran’s Confidence**\
-`The 18-year-old has advanced to the round of 16 in singles at the U.S. Open for the first time in her career. On Sunday, she will face thee unseeded Shuai Zhang of China.`\
+`The 18-year-old has advanced to the round of 16 in singles at the U.S. Open for the first time in her career. On Sunday, she will face the unseeded Shuai Zhang of China.`\
 https://nytimes.com/2022/09/02/sports/tennis/us-open-coco-gauff-keys.html?searchResultPosition=1
 
 **Americans Think Our Democracy Is on the Brink. So Does Biden.**\
