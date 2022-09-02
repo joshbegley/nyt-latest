@@ -16,7 +16,7 @@ https://nytimes.com/2022/09/02/books/review/new-this-week.html?searchResultPosit
 
 **Richard Roat, Seen on ‘Cheers,’ ‘Friends’ and ‘Seinfeld,’ Dies at 89**\
 `A familiar TV face for years, he appeared on many of the most popular prime-time shows of recent decades.`\
-https://nytimes.com/2022/09/02/arts/television/richard-roat-seen-on-cheers-friends-and-seinfeld-dies-at-89.html?searchResultPosition=5
+https://nytimes.com/2022/09/02/arts/television/richard-roat-dead.html?searchResultPosition=5
 
 **Science Is on His Dance Card**\
 `The visual artist Charles Atlas started his video career with Merce Cunningham, but his new Pioneer Works project shows how many leaps he has taken since.`\
