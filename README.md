@@ -14,8 +14,8 @@ https://nytimes.com/2022/09/02/sports/ncaafootball/college-football-playoff-expa
 `Filled with crisp broiled okra and served with a garlicky yogurt dressing, this summery recipe is deeply lovable.`\
 https://nytimes.com/2022/09/02/dining/okra-salad-recipe.html?searchResultPosition=4
 
-**U.N. nuclear watchdog warns that fighting around the Zaporizhzhia plant still poses a grave risk.**\
-`Rafael Mariano Grossi, the director general of the International Atomic Energy Agency, said he was worried about increasing artillery combat around the Russian-occupied nuclear plant.`\
+**‘This worries me a lot.’ U.N. nuclear watchdog says shelling at Ukrainian plant still poses a grave risk.**\
+`Rafael Mariano Grossi, the director general of the International Atomic Energy Agency, warned that increased fighting near the Russian-occupied nuclear plant could cause an accident.`\
 https://nytimes.com/2022/09/02/world/europe/iaea-zaporizhzhia-plant-risk.html?searchResultPosition=5
 
 **Parler Returns to Google Play Store**\
