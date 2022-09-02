@@ -1,40 +1,40 @@
+**Argentina Reels From Assassination Attempt on Its Powerful Vice President**\
+`The man who the authorities believe tried to shoot Cristina Fernández de Kirchner showed an interest in a mix of fringe ideologies, including the far right, his social media showed.`\
+https://nytimes.com/2022/09/02/world/americas/argentina-assassination-attempt-kirchner.html?searchResultPosition=1
+
+**As Serena Williams Plays Her Final Matches, a Generation Looks On**\
+`Women across the country have seen their own lives reflected in the triumphs and trials of the tennis superstar. Cue the swell of emotion.`\
+https://nytimes.com/2022/09/02/well/serena-williams-women-fans.html?searchResultPosition=2
+
+**In Oracene Price, a ‘Hall of Fame’ Mother**\
+`The mother of Serena and Venus Williams has always been a beacon of calm and grace on the sidelines — even now, in what may be a turning point in her daughters’ lives.`\
+https://nytimes.com/2022/09/02/style/serena-williams-mother-oracene-price.html?searchResultPosition=3
+
+**Pennsylvania Stakes Its Claim as Center of the Political Universe**\
+`Few states feature as many high-stakes, competitive races, each pulsing with the political currents that are shaping midterm campaigns across the country.`\
+https://nytimes.com/2022/09/02/us/politics/pennsylvania-midterm-elections.html?searchResultPosition=4
+
 **Hawaii Closes Its Last Coal-Fired Power Plant**\
 `A state law bans the use of coal for energy production beginning next year.`\
-https://nytimes.com/2022/09/02/climate/hawail-coal-plant-shuts.html?searchResultPosition=1
+https://nytimes.com/2022/09/02/climate/hawail-coal-plant-shuts.html?searchResultPosition=5
 
 **Your Friday Evening Briefing**\
 `Here’s what you need to know at the end of the day.`\
-https://nytimes.com/2022/09/02/briefing/job-growth-data-john-podesta.html?searchResultPosition=2
+https://nytimes.com/2022/09/02/briefing/job-growth-data-john-podesta.html?searchResultPosition=6
 
 **U.N. Inspects Zaporizhzhia**\
 `The U.N. nuclear watchdog warns of grave risk from shelling.`\
-https://nytimes.com/2022/09/02/briefing/russia-ukraine-war-zaporizhzhia-warplanes.html?searchResultPosition=3
+https://nytimes.com/2022/09/02/briefing/russia-ukraine-war-zaporizhzhia-warplanes.html?searchResultPosition=7
 
 **This article was published in error.**\
 `This article was published in error.`\
-https://nytimes.com/2022/09/02/admin/this-article-was-published-in-error.html?searchResultPosition=4
+https://nytimes.com/2022/09/02/admin/this-article-was-published-in-error.html?searchResultPosition=8
 
 **U.N. Watchdog to Stay Permanently at Ukrainian Nuclear Plant**\
 `Rafael Grossi, the director general of the International Atomic Energy Agency, said two United Nations experts would remain at the Zaporizhzhia Nuclear Power Plant to provide independent assessments of its safety.`\
-https://nytimes.com/video/world/europe/100000008516773/un-ukraine-nuclear-plant.html?searchResultPosition=5
+https://nytimes.com/video/world/europe/100000008516773/un-ukraine-nuclear-plant.html?searchResultPosition=9
 
 **White House Requests $47 Billion for Pandemic Response and Ukraine Aid**\
 `The request to Congress comes as lawmakers face a Sept. 30 deadline to finish annual funding bills for the fiscal year that begins on Oct. 1.`\
-https://nytimes.com/2022/09/02/us/politics/white-house-ukraine-aid-covid.html?searchResultPosition=6
-
-**Resentful, Media-Savvy and Paving the Way for Trump**\
-`In “Partisans,” Nicole Hemmer zeros in on ’90s figures like Pat Buchanan as guiding forces behind the Republican Party’s hard-right, conspiracy-minded turn.`\
-https://nytimes.com/2022/09/02/books/review/partisans-nicole-hemmer.html?searchResultPosition=7
-
-**Barr Dismisses Trump’s Request for a Special Master**\
-`The former attorney general, who chose not to indict Mr. Trump in the Russia inquiry, said the Justice Department was justified in investigating his handling of government materials.`\
-https://nytimes.com/2022/09/02/us/politics/barr-trump-special-master.html?searchResultPosition=8
-
-**All Eyes Are on Serena, but What Are Venus’s Plans?**\
-`Venus Williams has not been clear about when (or if) she plans to retire from tennis.`\
-https://nytimes.com/2022/09/02/sports/tennis/us-open-venus-williams-serena.html?searchResultPosition=9
-
-**Pete Buttigieg Is Trying to Fix Air Travel With a ‘Dashboard.’ What’s on It?**\
-`The D.O.T. says its new interactive chart is compelling many U.S. airlines to publicly commit to pay for things like hotels and meals when flights are canceled or significantly delayed. But does it have teeth?`\
-https://nytimes.com/2022/09/02/travel/airline-dashboard-flights-cancellations.html?searchResultPosition=10
+https://nytimes.com/2022/09/02/us/politics/white-house-ukraine-aid-covid.html?searchResultPosition=10
 
