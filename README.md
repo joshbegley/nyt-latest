@@ -7,8 +7,8 @@ https://nytimes.com/2022/09/02/briefing/job-growth-data-john-podesta.html?search
 https://nytimes.com/2022/09/02/briefing/russia-ukraine-war-zaporizhzhia-warplanes.html?searchResultPosition=2
 
 **This article was published in error.**\
-`Conversations about debt are never purely about economics. They are always, also, conversations about power, morality and shame.`\
-https://nytimes.com/2022/09/02/opinion/student-loan-debt-shame.html?searchResultPosition=3
+`This article was published in error.`\
+https://nytimes.com/2022/09/02/admin/this-article-was-published-in-error.html?searchResultPosition=3
 
 **U.N. Watchdog to Stay Permanently at Ukrainian Nuclear Plant**\
 `Rafael Grossi, the director general of the International Atomic Energy Agency, said two United Nations experts would remain at the Zaporizhzhia Nuclear Power Plant to provide independent assessments of its safety.`\
