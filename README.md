@@ -1,4 +1,4 @@
-**California Biotech Executive Convicted in $77 Million Blood-Testing Scheme**\
+**Biotech Executive Guilty in $77 Million Blood-Testing Scheme**\
 `Arrayit Corporation claimed to have invented a technology to test for any disease using a drop of blood, including Covid-19 and cancer.`\
 https://nytimes.com/2022/09/02/business/mark-schena-arrayit-fraud-theranos.html?searchResultPosition=1
 
