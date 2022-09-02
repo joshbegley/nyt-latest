@@ -22,19 +22,19 @@ https://nytimes.com/2022/09/02/world/africa/kenya-election-supreme-court.html?se
 `The essayist talks about his book “Theft by Finding,” a selection of diary entries spanning 25 years that helped him find and shape his voice as a writer.`\
 https://nytimes.com/2022/09/02/books/review/david-sedariss-diaries.html?searchResultPosition=6
 
+**The Jobs Report Could Be Seen as Good News for Biden**\
+`Slowing job growth and rising worker participation follow the president’s road map for economic transition`\
+https://nytimes.com/2022/09/02/business/jobs-biden.html?searchResultPosition=7
+
 **Nellie Mae Rowe Breaks Down the Wall Between Insider and Outsider Art**\
 `The artist has been a major — if underrecognized — American talent. But the biggest look yet at her achievement gives it a whole new stature.`\
-https://nytimes.com/2022/09/02/arts/design/nellie-mae-rowe-brooklyn-museum.html?searchResultPosition=7
+https://nytimes.com/2022/09/02/arts/design/nellie-mae-rowe-brooklyn-museum.html?searchResultPosition=8
 
 **A Van Carrying Factory Workers Crashes in New Jersey, Killing 4**\
 `The vehicle overturned on Palisades Interstate Parkway in Englewood Cliffs, N.J., early Friday. In addition to the deaths, 8 were injured.`\
-https://nytimes.com/2022/09/02/nyregion/new-jersey-van-crash.html?searchResultPosition=8
+https://nytimes.com/2022/09/02/nyregion/new-jersey-van-crash.html?searchResultPosition=9
 
 **Beware of Scammers Trying to Capitalize on Student Loan Forgiveness**\
 `The recent action on student debt is fodder for spam callers, who often try to trick borrowers into paying for loan cancellation.`\
-https://nytimes.com/2022/09/02/your-money/spam-calls-student-loans.html?searchResultPosition=9
-
-**Price Cap on Russian Oil Wins Backing of G7 Ministers**\
-`The proposal aims to stabilize unsettled energy markets in the wake of Russia’s invasion of Ukraine. But it faces considerable obstacles.`\
-https://nytimes.com/2022/09/02/business/economy/g7-russian-oil-price-cap.html?searchResultPosition=10
+https://nytimes.com/2022/09/02/your-money/spam-calls-student-loans.html?searchResultPosition=10
 
