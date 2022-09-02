@@ -10,8 +10,8 @@ https://nytimes.com/2022/09/01/us/politics/biden-trump.html?searchResultPosition
 `The president tacitly acknowledged that his predecessor still looms over the politics of the moment.`\
 https://nytimes.com/2022/09/01/us/politics/biden-speech-takeaways.html?searchResultPosition=3
 
-**Argentina’s Vice President Unharmed After Attack Outside Home**\
-`Crowds have gathered over the past week in front of the Buenos Aires home of Cristina Fernández de Kirchner, who is on trial on corruption charges, to show their support for the vice president.`\
+**Argentina’s Vice President Unharmed After Failed Assassination Attempt**\
+`A man tried to fire a gun inches from the head of Cristina Fernández de Kirchner, the country’s most prominent leader, but it did not go off.`\
 https://nytimes.com/2022/09/01/world/americas/cristina-kirchner-attack.html?searchResultPosition=4
 
 **Variety: Cryptic Crossword**\
