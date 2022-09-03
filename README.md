@@ -10,7 +10,7 @@ https://nytimes.com/2022/09/02/opinion/libermans-humanism.html?searchResultPosit
 `But the disagreement on who is the threat presents a challenge to President Biden in his 2020 campaign vow to unite a deeply divided nation.`\
 https://nytimes.com/2022/09/02/us/politics/trump-biden-democracy.html?searchResultPosition=3
 
-**More Than 14,000 Strollers Recalled After Child’s Fingertip Amputated**\
+**More Than 14,000 Strollers Recalled After Child’s Fingertip Is Amputated**\
 `Only one case has been reported involving an UPPAbaby All-Terrain RIDGE Jogging Stroller, the U.S. Consumer Product Safety Commission said.`\
 https://nytimes.com/2022/09/02/business/uppababy-stroller-recall.html?searchResultPosition=4
 
