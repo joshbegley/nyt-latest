@@ -30,8 +30,8 @@ https://nytimes.com/2022/09/03/opinion/summer-child-care.html?searchResultPositi
 `A hotelier, a history maven and a New York civic activist, he chronicled hotels in extraordinary detail both in books and on a blog.`\
 https://nytimes.com/2022/09/03/nyregion/stanley-turkel-dead.html?searchResultPosition=8
 
-**Pilot Threatens to Crash Small Plane in Mississippi, Police Say**\
-`The Tupelo Police Department said a pilot threatened to crash into a Walmart on Saturday morning and warned that the “danger zone is much larger” than the city.`\
+**Pilot Lands After Threatening to Crash Small Plane Into a Walmart**\
+`The authorities said the pilot, who was uninjured and taken into custody after landing in a field, had threatened to crash into a Walmart in Tupelo, Miss., on Saturday.`\
 https://nytimes.com/2022/09/03/us/tupelo-mississippi-pilot-walmart.html?searchResultPosition=9
 
 **Republicans Are Showing Contempt for the Rules**\
