@@ -18,8 +18,8 @@ https://nytimes.com/2022/09/02/us/migrants-rio-grande-texas.html?searchResultPos
 `The entrepreneurial Liberman siblings are testing out the concept — on themselves.`\
 https://nytimes.com/2022/09/02/opinion/libermans-humanism.html?searchResultPosition=5
 
-**The Two Parties Finally Agree on Something: American Democracy Is in Danger**\
-`But the disagreement on who is the threat presents a challenge to President Biden in his 2020 campaign vow to unite a deeply divided nation.`\
+**Parties’ Divergent Realities Challenge Biden’s Defense of Democracy**\
+`The president faces a fundamental disagreement over who poses a threat to American institutions in s to his vow to unite a deeply divided nation.`\
 https://nytimes.com/2022/09/02/us/politics/trump-biden-democracy.html?searchResultPosition=6
 
 **More Than 14,000 Strollers Recalled After Child’s Fingertip Is Amputated**\
