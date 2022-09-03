@@ -28,7 +28,7 @@ https://nytimes.com/2022/09/03/sports/basketball/lebron-james-lakers-contract.ht
 
 **NASA Scrubbed Another Moon Launch. It May Not Be the Last Time.**\
 `Engineers were unable to resolve a hydrogen leak, which led the launch director to call off Saturday’s flight.`\
-https://nytimes.com/2022/09/03/science/nasa-artemis-rocket-launch-delay.html?searchResultPosition=8
+https://nytimes.com/2022/09/03/science/nasa-artemis-launch-scrub.html?searchResultPosition=8
 
 **Shabab Attack Trucks Carrying Food Relief in Somalia**\
 `The attack in central Somalia comes even as the country faces a devastating drought that has left almost half its population hungry.`\
