@@ -30,11 +30,11 @@ https://nytimes.com/2022/09/03/us/politics/lgbtq-voters-ken-calvert-will-rollins
 `The president’s strategy and rhetoric makes more sense if he doesn’t.`\
 https://nytimes.com/2022/09/03/opinion/joe-biden-democracy-crisis.html?searchResultPosition=8
 
+**Sweltering California could see temperatures rise this weekend.**\
+`Warmer nights may offer little relief, and the worst of the heat wave could arrive in the coming days.`\
+https://nytimes.com/2022/08/01/us/heat-wave-california.html?searchResultPosition=9
+
 **Chile Votes on Constitution That Would Enshrine Record Number of Rights**\
 `In a single ballot on Sunday, Chileans will decide on abortion, universal health care, rights for nature and a record expansion of constitutional rights.`\
-https://nytimes.com/2022/09/03/world/americas/chile-constitution-vote.html?searchResultPosition=9
-
-**How Ajla Tomljanovic Faced Down Serena Williams and 24,000 Others**\
-`On the advice of her father, Tomljanovic channeled Kevin Costner to beat the six-time U.S. Open champion in front of a raucous, partisan crowd in Arthur Ashe Stadium.`\
-https://nytimes.com/2022/09/03/sports/tennis/ajla-tomljanovic-serena-williams-us-open.html?searchResultPosition=10
+https://nytimes.com/2022/09/03/world/americas/chile-constitution-vote.html?searchResultPosition=10
 
