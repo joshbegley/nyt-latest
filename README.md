@@ -1,6 +1,6 @@
 **Why LeBron James Is Worth $100 Million to the Lakers, Win or Lose**\
 `If all James did was win basketball games, that would be more than enough. But his value goes beyond the court.`\
-https://nytimes.com/2022/09/03/sports/basketball/why-lebron-james-is-worth-100-million-to-the-lakers-win-or-lose.html?searchResultPosition=1
+https://nytimes.com/2022/09/03/sports/basketball/lebron-james-lakers-contract.html?searchResultPosition=1
 
 **NASA Scrubbed Another Moon Launch. It May Not Be the Last Time.**\
 `Engineers were unable to resolve a hydrogen leak, which led the launch director to call off Saturday’s flight.`\
