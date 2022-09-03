@@ -1,6 +1,6 @@
 **How Ajla Tomljanovic Faced Down Serena Williams and 24,000 Others**\
 `On the advice of her father, Tomljanovic channeled Kevin Costner to beat the six-time U.S. Open champion in front of a raucous, partisan crowd in Arthur Ashe Stadium.`\
-https://nytimes.com/2022/09/03/sports/tennis/us-open-ajla-tomljanovic-serena.html?searchResultPosition=1
+https://nytimes.com/2022/09/03/sports/tennis/ajla-tomljanovic-serena-williams-us-open.html?searchResultPosition=1
 
 **Why LeBron James Is Worth $100 Million to the Lakers, Win or Lose**\
 `If all James did was win basketball games, that would be more than enough. But his value goes beyond the court.`\
