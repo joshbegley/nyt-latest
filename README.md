@@ -1,40 +1,40 @@
+**Arsenic Found in Water at N.Y.C. Housing Complex**\
+`The city distributed bottled water and urged residents not to drink their tap water after a preliminary test result on Friday showed levels of arsenic higher than federal drinking water guidelines.`\
+https://nytimes.com/2022/09/03/nyregion/nycha-riis-houses-arsenic-nyc.html?searchResultPosition=1
+
 **Ups and Downs**\
 `Tracy Gray’s Sunday puzzle doesn’t miss a step.`\
-https://nytimes.com/2022/09/03/crosswords/daily-puzzle-2022-09-04.html?searchResultPosition=1
+https://nytimes.com/2022/09/03/crosswords/daily-puzzle-2022-09-04.html?searchResultPosition=2
 
 **Charlie Finch, Caustic Chronicler of New York’s Art Scene, Dies at 69**\
 `He exposed what he saw as pretension and bad art with passion and, at times, viciousness, winning fans but offending many.`\
-https://nytimes.com/2022/09/03/arts/charlie-finch-dead.html?searchResultPosition=2
+https://nytimes.com/2022/09/03/arts/charlie-finch-dead.html?searchResultPosition=3
 
 **Renewed Shelling Puts Nuclear Plant at Risk Despite U.N. Presence**\
 `The International Atomic Energy Agency was still cautiously optimistic that “permanently” stationing two experts at the Zaporizhzhia nuclear power plant would help avert disaster.`\
-https://nytimes.com/2022/09/03/world/europe/zaporizhzhia-ukraine-iaea.html?searchResultPosition=3
+https://nytimes.com/2022/09/03/world/europe/zaporizhzhia-ukraine-iaea.html?searchResultPosition=4
 
 **Marilyn Loden, Who Championed a Feminist Metaphor, Dies at 76**\
 `She was asked to speak at a conference in 1978 about barriers faced by women in the workplace. She noted a barrier she called “the glass ceiling.”`\
-https://nytimes.com/2022/09/03/us/marilyn-loden-dead.html?searchResultPosition=4
+https://nytimes.com/2022/09/03/us/marilyn-loden-dead.html?searchResultPosition=5
 
 **Thousands Mourn Mikhail Gorbachev at Funeral in Moscow**\
 `Russians stood outside the famous House of the Unions to pay their respects to Mikhail S. Gorbachev, the last Soviet Union leader. Citing a busy schedule, President Vladimir V. Putin did not attend the funeral.`\
-https://nytimes.com/video/world/europe/100000008517421/gorbachev-funeral-russia.html?searchResultPosition=5
+https://nytimes.com/video/world/europe/100000008517421/gorbachev-funeral-russia.html?searchResultPosition=6
 
 **How a Record Cash Haul Vanished for Senate Republicans**\
 `The campaign arm of Senate Republicans had collected $181.5 million by the end of July — but spent 95 percent of it. A big investment in digital, and hyperaggressive tactics, have not paid off.`\
-https://nytimes.com/2022/09/03/us/politics/senate-republican-committee-funds.html?searchResultPosition=6
+https://nytimes.com/2022/09/03/us/politics/senate-republican-committee-funds.html?searchResultPosition=7
 
 **In the California Desert, L.G.B.T.Q. Voters Could Sway a Key House Race**\
 `Representative Ken Calvert, a long-serving Republican, is facing a tough re-election race in a redrawn district that now includes Palm Springs, proclaimed to be the gayest city in America.`\
-https://nytimes.com/2022/09/03/us/politics/lgbtq-voters-ken-calvert-will-rollins.html?searchResultPosition=7
+https://nytimes.com/2022/09/03/us/politics/lgbtq-voters-ken-calvert-will-rollins.html?searchResultPosition=8
 
 **Does Biden Really Believe We Are in a Crisis of Democracy?**\
 `The president’s strategy and rhetoric makes more sense if he doesn’t.`\
-https://nytimes.com/2022/09/03/opinion/joe-biden-democracy-crisis.html?searchResultPosition=8
+https://nytimes.com/2022/09/03/opinion/joe-biden-democracy-crisis.html?searchResultPosition=9
 
 **Sweltering California could see temperatures rise this weekend.**\
 `Warmer nights may offer little relief, and the worst of the heat wave could arrive in the coming days.`\
-https://nytimes.com/2022/08/01/us/heat-wave-california.html?searchResultPosition=9
-
-**Chile Votes on Constitution That Would Enshrine Record Number of Rights**\
-`In a single ballot on Sunday, Chileans will decide on abortion, universal health care, rights for nature and a record expansion of constitutional rights.`\
-https://nytimes.com/2022/09/03/world/americas/chile-constitution-vote.html?searchResultPosition=10
+https://nytimes.com/2022/08/01/us/heat-wave-california.html?searchResultPosition=10
 
