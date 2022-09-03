@@ -7,7 +7,7 @@ https://nytimes.com/2022/09/02/us/jerry-boylan-conception-captain-indictment-dis
 https://nytimes.com/2022/09/02/crosswords/daily-puzzle-2022-09-03.html?searchResultPosition=2
 
 **California wildfire burns homes and forces entire town to flee.**\
-`By Shawn Hubler`\
+`The Mill fire quickly exploded to 2,580 acres and forced residents in the rural Northern California region to evacuate.`\
 https://nytimes.com/2022/08/01/us/california-wildfire-burns-homes-and-forces-entire-town-to-flee.html?searchResultPosition=3
 
 **Eight Migrants Drown as Dozens Are Swept Down Rio Grande**\
