@@ -22,19 +22,19 @@ https://nytimes.com/2022/09/02/world/americas/colombia-police-attack.html?search
 `Earl became the fifth named storm as the Atlantic hurricane season broke out of its August doldrums.`\
 https://nytimes.com/article/tropical-storm-earl-hurricane.html?searchResultPosition=6
 
+**Serena Williams, Moving Toward Retirement, Ends Her Magical Run at the U.S. Open**\
+`“It’s been the most incredible ride and journey I’ve ever been on in my life,” Williams, wiping tears, said on court after the match.`\
+https://nytimes.com/2022/09/02/sports/tennis/serena-williams-loses-tomljanovic-retirement.html?searchResultPosition=7
+
 **Manslaughter Indictment Dismissed in 2019 Dive Boat Fire That Killed 34**\
 `Prosecutors in California say they will seek to appeal a federal judge’s ruling that the charge against the vessel’s captain needed to allege gross negligence.`\
-https://nytimes.com/2022/09/02/us/jerry-boylan-conception-captain-indictment-dismissed.html?searchResultPosition=7
+https://nytimes.com/2022/09/02/us/jerry-boylan-conception-captain-indictment-dismissed.html?searchResultPosition=8
 
 **Yas and Jas**\
 `David Distenfeld really sells this Saturday puzzle.`\
-https://nytimes.com/2022/09/02/crosswords/daily-puzzle-2022-09-03.html?searchResultPosition=8
+https://nytimes.com/2022/09/02/crosswords/daily-puzzle-2022-09-03.html?searchResultPosition=9
 
 **California wildfire burns homes and forces entire town to flee.**\
 `The Mill fire quickly exploded to 2,580 acres and forced residents in the rural Northern California region to evacuate.`\
-https://nytimes.com/2022/08/01/us/california-mill-fire.html?searchResultPosition=9
-
-**Eight Migrants Drown as Dozens Are Swept Down Rio Grande**\
-`A large group attempting to cross into Texas was overcome by a fast-moving current, the authorities said.`\
-https://nytimes.com/2022/09/02/us/migrants-rio-grande-texas.html?searchResultPosition=10
+https://nytimes.com/2022/08/01/us/california-mill-fire.html?searchResultPosition=10
 
