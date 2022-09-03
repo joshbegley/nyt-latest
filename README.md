@@ -18,7 +18,7 @@ https://nytimes.com/2022/09/03/nyregion/stanley-turkel-dead.html?searchResultPos
 `The Tupelo Police Department said a pilot threatened to crash into a Walmart on Saturday morning and warned that the “danger zone is much larger” than the city.`\
 https://nytimes.com/2022/09/03/us/tupelo-mississippi-pilot-walmart.html?searchResultPosition=5
 
-**Republicans are Showing Contempt for the Rules**\
+**Republicans Are Showing Contempt for the Rules**\
 `The party is turning against a political commitment to fairness.`\
 https://nytimes.com/2022/09/03/opinion/republican-rules-michigan-alaska.html?searchResultPosition=6
 
