@@ -8,7 +8,7 @@ https://nytimes.com/2022/09/02/crosswords/daily-puzzle-2022-09-03.html?searchRes
 
 **California wildfire burns homes and forces entire town to flee.**\
 `The Mill fire quickly exploded to 2,580 acres and forced residents in the rural Northern California region to evacuate.`\
-https://nytimes.com/2022/08/01/us/california-wildfire-burns-homes-and-forces-entire-town-to-flee.html?searchResultPosition=3
+https://nytimes.com/2022/08/01/us/california-mill-fire.html?searchResultPosition=3
 
 **Eight Migrants Drown as Dozens Are Swept Down Rio Grande**\
 `A large group attempting to cross into Texas was overcome by a fast-moving current, the authorities said.`\
