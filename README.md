@@ -1,4 +1,4 @@
-**Stabbing Attacks in Canada Kill at Least 10**\
+**The police are hunting for two suspects in a stabbing spree in Saskatchewan.**\
 `The police identified two suspects in attacks that took place along a wide area of a Cree Nation Indigenous reservation and a nearby village in Saskatchewan Province.`\
 https://nytimes.com/2022/09/04/world/canada/canada-saskatchewan-stabbings.html?searchResultPosition=1
 
