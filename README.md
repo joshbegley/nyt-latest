@@ -26,15 +26,15 @@ https://nytimes.com/2022/09/04/sports/tennis/serena-williams-last-us-open.html?s
 `It is a pivotal moment for the city’s restaurants — and the cobbled-together eating areas created during the pandemic.`\
 https://nytimes.com/2022/09/04/nyregion/nyc-outdoor-dining-sheds.html?searchResultPosition=7
 
+**The Curious Hole in My Head**\
+`Born without my left temporal lobe, a brain region thought to be critical for language, I’ve been a research subject for much of my life.`\
+https://nytimes.com/2022/09/04/science/brain-language-research.html?searchResultPosition=8
+
 **Jonathan Escoffery Has a Reality He’d Like to Share**\
 `In “If I Survive You,” Escoffery, the son of Jamaican immigrants, wrote stories are not strictly autobiographical, but feel true to his experience.`\
-https://nytimes.com/2022/09/04/books/jonathan-escoffery-if-i-survive-you.html?searchResultPosition=8
+https://nytimes.com/2022/09/04/books/jonathan-escoffery-if-i-survive-you.html?searchResultPosition=9
 
 **From Jamaican to Miamian, and All the Identities in Between**\
 `Jonathan Escoffery’s debut story collection, “If I Survive You,” follows a young man through family tensions and personal struggles.`\
-https://nytimes.com/2022/09/04/books/review/jonathan-escoffery-if-i-survive-you.html?searchResultPosition=9
-
-**The Curious Hole in My Head**\
-`Born without my left temporal lobe, a brain region thought to be critical for language, I’ve been a research subject for much of my life.`\
-https://nytimes.com/2022/09/04/science/brain-language-research.html?searchResultPosition=10
+https://nytimes.com/2022/09/04/books/review/jonathan-escoffery-if-i-survive-you.html?searchResultPosition=10
 
