@@ -7,7 +7,7 @@ https://nytimes.com/2022/09/04/business/bed-bath-beyond-gustavo-arnal-dead.html?
 https://nytimes.com/2022/09/04/business/stunt-driving-sideshows.html?searchResultPosition=2
 
 **Man Charged in Abduction of Billionaire’s Granddaughter, Police Say**\
-`Eliza Fletcher was last seen early on Friday jogging in Memphis. She was forced into a dark-colored SUV and remains missing, the police said.`\
+`Eliza Fletcher was last seen early on Friday jogging in Memphis. She was forced into a dark-colored S.U.V. and remains missing, the police said.`\
 https://nytimes.com/2022/09/04/us/memphis-eliza-fletcher-abduction-suspect.html?searchResultPosition=3
 
 **Logging in National Forests: A Crime or a Necessity?**\
