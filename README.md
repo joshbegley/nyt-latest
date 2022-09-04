@@ -1,5 +1,5 @@
-**At Least 10 Killed in Stabbing Spree in Canadian Province**\
-`The police identified two suspects in what they described as a random attack on multiple people in the province of Saskatchewan.`\
+**Stabbing Attacks in Canada Kill at Least 10**\
+`The police identified two suspects in attacks that took place along a wide area of a Cree Nation Indigenous reservation and a nearby village in Saskatchewan Province.`\
 https://nytimes.com/2022/09/04/world/canada/canada-saskatchewan-stabbings.html?searchResultPosition=1
 
 **Really Impresses**\
