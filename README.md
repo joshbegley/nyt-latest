@@ -3,7 +3,7 @@
 https://nytimes.com/2022/09/04/briefing/return-to-office-labor-day.html?searchResultPosition=1
 
 **What You Missed at the U.S. Open While You Were Glued to Serena Williams**\
-`In case you missed it: defending women’s champion Emma Raducanu is out, and defending men’s champion Daniil Medvedev is set for a finals-worthy match with Nick Kyrgios.`\
+`In case you missed it: The defending women’s champion, Emma Raducanu, is out, and the defending men’s champion, Daniil Medvedev, is set for a finals-worthy match with Nick Kyrgios.`\
 https://nytimes.com/2022/09/04/sports/tennis/us-open.html?searchResultPosition=2
 
 **The Way You Get Around New York City Is About to Change**\
