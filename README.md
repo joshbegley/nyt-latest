@@ -34,7 +34,7 @@ https://nytimes.com/2022/09/04/dining/what-to-cook-this-week.html?searchResultPo
 `The list of well-known writers he represented is long. But his success began with an unknown named Jack Kerouac and his hard-to-sell novel “On the Road.”`\
 https://nytimes.com/2022/09/04/books/sterling-lord-dead.html?searchResultPosition=9
 
-**New Titanic Footage Heralds Next Stage in Deep-Sea Tourism**\
-`New, high-resolution footage of the Titanic offers a glimpse into the ambitions of the deep-sea tourism industry. Tourists paid $250,000 to take a submersible to view the wreckage.`\
-https://nytimes.com/2022/09/04/us/new-titanic-footage.html?searchResultPosition=10
+**Chancellor Olaf Scholz announces a $65 billion relief package in Germany.**\
+`Berlin aims to ease the burden on citizens facing soaring inflation and surging energy costs that have worsened with Russia’s invasion of Ukraine.`\
+https://nytimes.com/2022/09/04/world/europe/scholz-germany-inflation-energy.html?searchResultPosition=10
 
