@@ -30,7 +30,7 @@ https://nytimes.com/2022/09/04/world/europe/john-sullivan-us-ambassador-russia-r
 `Jobs growth is slowing but still strong. Bed Bath & Beyond gets a reprieve. A former Uber executive goes to trial.`\
 https://nytimes.com/2022/09/04/business/jobs-growth-federal-reserve.html?searchResultPosition=8
 
-**Gustavo Arnal, No. 2 at Bed Bath & Beyond, Dies**\
+**Gustavo Arnal, C.F.O. at Bed Bath & Beyond, Dies**\
 `He joined the home goods retailer in 2020 during an executive shake-up.`\
 https://nytimes.com/2022/09/04/business/bed-bath-beyond-gustavo-arnal-dead.html?searchResultPosition=9
 
