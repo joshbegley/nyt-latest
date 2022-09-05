@@ -14,8 +14,8 @@ https://nytimes.com/2022/09/05/arts/design/museum-shows-europe-united-states-fal
 `Consumer prices in Britain are rising at their fastest pace in decades, as the inflation rate exceeds 10 percent and is expected to keep climbing.`\
 https://nytimes.com/2022/09/05/world/europe/liz-truss-energy-inflation-economy.html?searchResultPosition=4
 
-**As U.K. Prime Minister, Truss Faces Hard Times and Johnson’s Ghost**\
-`Taking power during the worst economic crisis since the Thatcher era, she will need all her ideological dexterity — some call it opportunism — to succeed.`\
+**A Hawkish Diplomat Takes Control, Facing Hard Times and Johnson’s Ghost**\
+`Coming to power during the worst economic crisis since the Thatcher era, Liz Truss will need all her ideological dexterity — some call it opportunism — to succeed.`\
 https://nytimes.com/2022/09/05/world/europe/britain-truss-prime-minister-johnson.html?searchResultPosition=5
 
 **The Conservatives Made Everything in Britain Worse (Yes, Even the Weather)**\
