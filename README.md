@@ -1,4 +1,4 @@
-**Your Tuesday Briefing: Liz Truss to Lead Britain**\
+**Your Tuesday Briefing: Liz Truss Selected to Lead Britain**\
 `And a typhoon bears down on South Korea, and more Covid lockdowns rip through China.`\
 https://nytimes.com/2022/09/05/briefing/truss-britain-typhoon-korea-asia.html?searchResultPosition=1
 
