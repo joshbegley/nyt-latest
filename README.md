@@ -12,7 +12,7 @@ https://nytimes.com/2022/09/05/world/africa/somalia-famine-un.html?searchResultP
 
 **Watch Live: Canadian Officials Provide Update on Manhunt**\
 `Authorities offer an update on the manhunt for two men named as suspects following a deadly stabbing spree in Saskatchewan.`\
-https://nytimes.com/video/world/americas/100000008518976/canada-stabbing-manhunt-police.html?searchResultPosition=4
+https://nytimes.com/video/embedded/world/americas/100000008518976/canada-stabbing-manhunt-police.html?searchResultPosition=4
 
 **Your Tuesday Briefing: Liz Truss Selected to Lead Britain**\
 `And a typhoon bears down on South Korea, and more Covid lockdowns rip through China.`\
