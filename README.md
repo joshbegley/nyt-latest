@@ -1,40 +1,40 @@
+**To Mask, or Not to Mask: Theaters and Concert Halls Face a Dilemma**\
+`Some audience members are turned off by mask mandates. Others won’t attend indoor performances without them. Arts presenters are taking different approaches this season.`\
+https://nytimes.com/2022/09/05/arts/theaters-masking-covid.html?searchResultPosition=1
+
+**Fantasy Face-Off: ‘The Rings of Power’ vs. ‘House of the Dragon’**\
+`Which has the better dragons? Which has the better swords? Now that we’ve seen a few episodes of each, here’s an early comparison.`\
+https://nytimes.com/2022/09/05/arts/television/rings-of-power-vs-house-of-the-dragon.html?searchResultPosition=2
+
+**7 Musicals Head to Broadway This Fall, but 100 More Lie in Wait**\
+`Behind every new New York season are a lot of wannabes, also-rans and hopeless cases to keep track of.`\
+https://nytimes.com/2022/09/05/theater/new-broadway-musicals.html?searchResultPosition=3
+
 **Strong Earthquake Shakes Southwestern China**\
 `State media said at least 21 people were killed, but communications in the landslide-prone area were disrupted and the full damage was unclear.`\
-https://nytimes.com/2022/09/05/world/asia/strong-earthquake-china.html?searchResultPosition=1
+https://nytimes.com/2022/09/05/world/asia/strong-earthquake-china.html?searchResultPosition=4
 
 **Venice: ‘Don’t Worry Darling’ Faces the Press, but Where Is Its Star?**\
 `Though Florence Pugh skipped the media session, director Olivia Wilde called rumors of their feud ‘endless tabloid gossip.’`\
-https://nytimes.com/2022/09/05/movies/olivia-wilde-florence-pugh-harry-styles-dont-worry-darling.html?searchResultPosition=2
+https://nytimes.com/2022/09/05/movies/olivia-wilde-florence-pugh-harry-styles-dont-worry-darling.html?searchResultPosition=5
 
 **Suicide Attack Hits Russian Embassy in Afghanistan, Killing 2 Employees**\
 `The bombing in Kabul was the first strike on a diplomatic mission since the Taliban regained control. It comes as the group has been working to persuade foreign envoys to return.`\
-https://nytimes.com/2022/09/05/world/asia/kabul-russian-embassy-suicide-attack.html?searchResultPosition=3
+https://nytimes.com/2022/09/05/world/asia/kabul-russian-embassy-suicide-attack.html?searchResultPosition=6
 
 **‘Recipes for Love and Murder’ That Are to Die For**\
 `Set in a picturesque South African town, this series stars Maria Doyle Kennedy as a columnist who serves up mouthwatering dishes while solving murder mysteries.`\
-https://nytimes.com/2022/09/05/arts/recipes-for-love-and-murder-series-tv.html?searchResultPosition=4
+https://nytimes.com/2022/09/05/arts/recipes-for-love-and-murder-series-tv.html?searchResultPosition=7
 
 **Markets Slip as Britain Gets a New Prime Minister and Energy Worries Grow**\
 `Liz Truss, the Conservative Party’s choice, will face a falling British pound and myriad economic troubles.`\
-https://nytimes.com/2022/09/05/business/britain-markets-truss.html?searchResultPosition=5
+https://nytimes.com/2022/09/05/business/britain-markets-truss.html?searchResultPosition=8
 
 **Museums in the U.S. and Europe Are in Blockbuster Mode**\
 `From Los Angeles to Antwerp, Jason Farago, our critic at large, picks a fall season laden with offerings on Cubism, modern Korean art and paintings of the Spanish Baroque.`\
-https://nytimes.com/2022/09/05/arts/design/museum-shows-europe-united-states-fall-preview.html?searchResultPosition=6
+https://nytimes.com/2022/09/05/arts/design/museum-shows-europe-united-states-fall-preview.html?searchResultPosition=9
 
 **A frightening economic picture awaits the new prime minister.**\
 `Consumer prices in Britain are rising at their fastest pace in decades, as the inflation rate exceeds 10 percent and is expected to keep climbing.`\
-https://nytimes.com/2022/09/05/world/europe/liz-truss-energy-inflation-economy.html?searchResultPosition=7
-
-**A Hawkish Diplomat Takes Control, Facing Hard Times and Johnson’s Ghost**\
-`Coming to power during the worst economic crisis since the Thatcher era, Liz Truss will need all her ideological dexterity — some call it opportunism — to succeed.`\
-https://nytimes.com/2022/09/05/world/europe/britain-truss-prime-minister-johnson.html?searchResultPosition=8
-
-**The Conservatives Made Everything in Britain Worse (Yes, Even the Weather)**\
-`With a new prime minister, Britain is about to get a second helping of the policies that created its current crisis.`\
-https://nytimes.com/video/opinion/100000008509450/england-prime-minister-inflation.html?searchResultPosition=9
-
-**The Conservatives Made Everything in Britain Worse (Yes, Even the Weather)**\
-`With Liz Truss as its next prime minister, Britain is about to get a second helping of the policies that created its current crisis.`\
-https://nytimes.com/2022/09/05/opinion/liz-truss-prime-minister-inflation.html?searchResultPosition=10
+https://nytimes.com/2022/09/05/world/europe/liz-truss-energy-inflation-economy.html?searchResultPosition=10
 
