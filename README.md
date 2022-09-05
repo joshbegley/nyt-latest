@@ -1,40 +1,40 @@
+**$1 Million Homes in California**\
+`A 1921 bungalow in Berkeley, a 1942 ranch house in Altadena and a midcentury-modern home in San Diego.`\
+https://nytimes.com/2022/09/05/realestate/home-prices-california.html?searchResultPosition=1
+
+**Tending to Grass, and to Grief, on a Tennis Court in Iowa**\
+`Twenty years ago, a grass court emerged from the surrounding cornfields in Charles City. Its story is colored by exacting standards, profound loss and, ultimately, rebirth.`\
+https://nytimes.com/2022/09/05/travel/all-iowa-lawn-tennis-club.html?searchResultPosition=2
+
+**What You Get for $1 Million in California**\
+`A 1921 bungalow in Berkeley, a 1942 ranch house in Altadena and a midcentury-modern home in San Diego.`\
+https://nytimes.com/slideshow/2022/09/05/realestate/what-you-get-for-1-million-in-california.html?searchResultPosition=3
+
+**When George Clooney Met Julia Roberts (Don’t Believe the Reports)**\
+`For their latest big-screen partnership, they play exes who take shots at each other. It’s not such a stretch to the fond insults they sling in real life.`\
+https://nytimes.com/2022/09/05/movies/george-clooney-julia-roberts-ticket-to-paradise.html?searchResultPosition=4
+
+**The Hunt for Big Hail**\
+`Hailstones of record size are falling left and right, and hailstorm damage is growing. But there is surprisingly little research to explain why.`\
+https://nytimes.com/2022/09/05/science/hail-weather-climate.html?searchResultPosition=5
+
+**With Voters From Both Parties Energized, Campaigns Begin Fall Sprint**\
+`Republicans are focusing on pocketbook issues, and Democrats are emphasizing abortion rights, as Labor Day marks the start of the midterm elections’ final stretch.`\
+https://nytimes.com/2022/09/05/us/politics/midterms-elections-abortion-economy.html?searchResultPosition=6
+
+**Shopping for Runners**\
+`Sure, you can do without a long rug in your hallway or kitchen. But a runner adds comfort and style.`\
+https://nytimes.com/2022/09/05/realestate/shopping-for-runners.html?searchResultPosition=7
+
+**John McEnroe Gets His Revenge**\
+`While other stars fade, the notorious “Super Brat” has become a subject of fascination and a ubiquitous presence, inside tennis and outside it, too. You have a problem with that?`\
+https://nytimes.com/2022/09/05/sports/tennis/john-mcenroe-us-open.html?searchResultPosition=8
+
 **On the Gulf Coast, a Quiet Hurricane Season (So Far!) Brings Little Relief**\
 `The season has gotten off to an unusually calm start, but the absence of storms has only ratcheted up the anxiety.`\
-https://nytimes.com/2022/09/05/us/hurricane-season-louisiana.html?searchResultPosition=1
+https://nytimes.com/2022/09/05/us/hurricane-season-louisiana.html?searchResultPosition=9
 
 **Abortion and Trump Are Giving Democrats a Shot**\
 ` This may be the year when politics gets flipped on its head.`\
-https://nytimes.com/2022/09/05/opinion/abortion-trump-democrats.html?searchResultPosition=2
-
-**Did Friends Who Vacationed Together for 50 Years Kill Someone?**\
-`In “The Rising Tide,” old school chums who meet on an island off the Northumberland coast become murder suspects.`\
-https://nytimes.com/2022/09/05/books/review/new-crime-fiction.html?searchResultPosition=3
-
-**Betty Gilpin Is a Vivid Talker**\
-`The Emmy-nominated star of “GLOW” and “The Hunt,” is also, it turns out, a pretty imaginative writer, as her new book of essays shows.`\
-https://nytimes.com/2022/09/05/style/betty-gilpin-all-the-women-in-my-brain.html?searchResultPosition=4
-
-**Baseball Traveled to Japan 150 Years Ago. By Way of Maine.**\
-`Japan is celebrating the sport’s introduction there in 1872. The living descendants of the American teacher who took the game to Tokyo only learned of his role in 2000.`\
-https://nytimes.com/2022/09/05/sports/baseball/horace-wilson-japan-150.html?searchResultPosition=5
-
-**Frances Tiafoe Gets the Next American Shot at the Big Three**\
-`The next generation of top American players has yet to beat Rafael Nadal, Novak Djokovic or Roger Federer in a Grand Slam tournament. What will it take to get over the wall?`\
-https://nytimes.com/2022/09/05/sports/tennis/us-open-nadal-tiafoe.html?searchResultPosition=6
-
-**Has Bidenomics Been Good for Workers?**\
-`Yes, creating millions of jobs is a good thing.`\
-https://nytimes.com/2022/09/05/opinion/has-bidenomics-been-good-for-workers.html?searchResultPosition=7
-
-**Javier Zamora Carried a Heavy Load. He Laid it to Rest on the Page.**\
-`Decades after traveling without his parents from El Salvador to the U.S. as a 9-year-old — a journey that almost killed him — Zamora describes the experience in a memoir.`\
-https://nytimes.com/2022/09/05/books/javier-zamora-solito-migration.html?searchResultPosition=8
-
-**Even With Biden as a Pro-Labor Champion, Unionizing Is Still a Grind**\
-`A flurry of new organizing efforts is giving young people hope. But even with a champion in the White House, unionizing is still a grind.`\
-https://nytimes.com/2022/09/05/opinion/unions-labor-movement-biden.html?searchResultPosition=9
-
-**Sex and Murder in Maggie O’Farrell’s Overwrought Historical Drama**\
-`“The Marriage Portrait” is the fictionalized story of the 16th-century Italian noblewoman Lucrezia di Cosimo de’Medici.`\
-https://nytimes.com/2022/09/05/books/review/maggie-ofarrell-marriage-portrait.html?searchResultPosition=10
+https://nytimes.com/2022/09/05/opinion/abortion-trump-democrats.html?searchResultPosition=10
 
