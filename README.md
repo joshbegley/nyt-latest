@@ -1,5 +1,5 @@
 **Justin Trudeau Speaks After Deadly Rampage in Saskatchewan**\
-`Prime Minister Justin Trudeau said he was “shocked and devastated by the horrific attacks.”`\
+`The Canadian prime minister said he was “shocked and devastated by the horrific attacks.”`\
 https://nytimes.com/video/world/americas/100000008519360/canada-stabbing-trudeau.html?searchResultPosition=1
 
 **Map: Tracking Typhoon Hinnamnor**\
