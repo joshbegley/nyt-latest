@@ -1,5 +1,5 @@
 **Of Barbecues and Men: A Summer Storm Brews Over Virility in France**\
-`A Green politician tells men to get over meat and masculinity for the sake of the planet, setting off a sizzling argument.`\
+`A Green politician told men to get over meat and masculinity for the sake of the planet, setting off a sizzling argument.`\
 https://nytimes.com/2022/09/05/world/europe/france-men-barbecues.html?searchResultPosition=1
 
 **Katie Crutchfield and Jess Williamson Embrace Their Roots, as Plains**\
