@@ -6,7 +6,7 @@ https://nytimes.com/2022/09/04/arts/television/house-of-the-dragon-season-1-epis
 `The Canadian authorities identified two suspects after killings on an Indigenous reservation and in a nearby village.`\
 https://nytimes.com/video/world/canada/100000008518347/saskatchewan-canada-stabbing-spree.html?searchResultPosition=2
 
-**1 Dead and 8 Missing After Floatplane Crashes in Washington State**\
+**1 Dead and 9 Are Missing After Floatplane Crashes in Washington State**\
 `A U.S. Coast Guard spokesman said rescue crews Sunday night were searching for “any signs of survivors” from the crash in Mutiny Bay, north of Seattle.`\
 https://nytimes.com/2022/09/04/us/mutiny-bay-plane-crash.html?searchResultPosition=3
 
