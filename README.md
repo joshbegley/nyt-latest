@@ -26,8 +26,8 @@ https://nytimes.com/video/opinion/100000008509450/england-prime-minister-inflati
 `With Liz Truss as its next prime minister, Britain is about to get a second helping of the policies that created its current crisis.`\
 https://nytimes.com/2022/09/05/opinion/liz-truss-prime-minister-inflation.html?searchResultPosition=7
 
-**OPEC Plus Meets, With an Output Cut Possible**\
-`The oil producers’ group is worried about slipping prices, weak demand in China and a deal with Iran.`\
+**OPEC Plus Agrees to Cut Production by 100,000 Barrels a Day**\
+`The oil producers group is worried about slipping prices, weak demand in China and a deal with Iran.`\
 https://nytimes.com/2022/09/05/business/opec-plus-meeting.html?searchResultPosition=8
 
 **Kenya’s Supreme Court Upholds Presidential Election Results**\
