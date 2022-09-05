@@ -19,7 +19,7 @@ https://nytimes.com/2022/09/05/world/asia/canada-stabbings-saskatchewan.html?sea
 https://nytimes.com/video/world/americas/100000008519360/canada-stabbing-trudeau.html?searchResultPosition=5
 
 **Map: Tracking Typhoon Hinnamnor**\
-`Map showing the expected path ofTyphoon Hinnamnor.`\
+`Map showing the expected path of Typhoon Hinnamnor.`\
 https://nytimes.com/interactive/2022/09/05/world/asia/typhoon-hinnamnor-tracking-map.html?searchResultPosition=6
 
 **CVS Makes $8 Billion Bet on the Return of the House Call**\
