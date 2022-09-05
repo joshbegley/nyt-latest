@@ -18,8 +18,8 @@ https://nytimes.com/video/world/americas/100000008519360/canada-stabbing-trudeau
 `By Matthew Bloch`\
 https://nytimes.com/interactive/2022/09/05/world/asia/typhoon-hinnamnor-tracking-map.html?searchResultPosition=5
 
-**CVS to Acquire Signify, a Home Health Care Provider, for $8 Billion**\
-`The deal would cement the drugstore chain’s move away from its traditional roots.`\
+**CVS Makes $8 Billion Bet on the Return of the House Call**\
+`The deal for Signify Health, which has a network of doctors who make home visits, would cement the drugstore chain’s move away from its traditional roots.`\
 https://nytimes.com/2022/09/05/business/cvs-signify-health.html?searchResultPosition=6
 
 **Ukraine Nuclear Plant Pulled Off Line After Shelling Kindles Blaze**\
