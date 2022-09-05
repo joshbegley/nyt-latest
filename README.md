@@ -1,6 +1,6 @@
 **Judge Grants Trump’s Request for Special Master to Review Mar-a-Lago Documents**\
 `The ruling would effectively bar federal prosecutors from using a key piece of evidence as they continue to investigate whether Mr. Trump illegally retained national defense documents at his estate.`\
-https://nytimes.com/2022/09/05/nyregion/trump-special-master.html?searchResultPosition=1
+https://nytimes.com/2022/09/05/us/politics/trump-special-master.html?searchResultPosition=1
 
 **Deadline Looms for Trump Media Merger**\
 `The company seeking to acquire the social media site needs shareholder approval to extend the time to complete the deal. The results of the vote are to be announced on Tuesday.`\
