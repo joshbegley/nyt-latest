@@ -16,7 +16,7 @@ https://nytimes.com/2022/09/04/world/americas/chile-constitution-no.html?searchR
 
 **After a Frenzy, Las Vegas Emerges Over Seattle**\
 `The teams scored 10 points in the final 11 seconds of the fourth quarter before the Aces won. They’ll play to clinch a finals spot, while Seattle will look to extend the series, and Sue Bird’s career.`\
-https://nytimes.com/2022/09/04/sports/wnba-semifinals-aces-storm-game-3-jackie-young-sue-bird-aja-wilson.html?searchResultPosition=5
+https://nytimes.com/2022/09/04/sports/wnba-semifinals-game-3-aces-storm.html?searchResultPosition=5
 
 **LIV Golf Continues to Try New Ways to Be Noticed**\
 `Whether it’s the team concept or a decision to allow its golfers to play in shorts, the breakaway Saudi-backed series so far sees itself as the anti-PGA Tour.`\
