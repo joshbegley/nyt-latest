@@ -23,7 +23,7 @@ https://nytimes.com/2022/09/05/us/moon-landrieu-dead.html?searchResultPosition=5
 https://nytimes.com/2022/09/05/business/meta-children-data-protection-europe.html?searchResultPosition=6
 
 **Judge Grants Trump’s Request for Special Master to Review Mar-a-Lago Documents**\
-`The ruling would effectively bar federal prosecutors from using a key piece of evidence as they continue to investigate whether Mr. Trump illegally retained national defense documents at his estate.`\
+`The ruling would effectively bar federal prosecutors from using key pieces of evidence as they continue to investigate whether Mr. Trump illegally retained national defense documents at his estate.`\
 https://nytimes.com/2022/09/05/us/politics/trump-special-master.html?searchResultPosition=7
 
 **Deadline Looms for Trump Media Merger**\
