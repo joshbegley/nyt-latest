@@ -4,7 +4,7 @@ https://nytimes.com/2022/09/05/world/europe/liz-truss-uk-prime-minister.html?sea
 
 **Watch Live: Justin Trudeau Speaks on the Deadly Knife Attacks**\
 `The prime minister of Canada delivers remarks as the manhunt continues for two men named as suspects in the deadly stabbing spree in Saskatchewan.`\
-https://nytimes.com/video/world/americas/100000008519164/canada-stabbings-trudeau.html?searchResultPosition=2
+https://nytimes.com/video/embedded/world/americas/100000008519164/canada-stabbings-trudeau.html?searchResultPosition=2
 
 **In Senegal, Riding the Train for the First Time**\
 `Our reporter takes a ride on Senegal's first regional express train.`\
