@@ -1,40 +1,40 @@
+**Peter Straub, Literary Master of the Supernatural, Dies at 79**\
+`A fan of Henry James and John Ashbery, he brought a poet’s sensibility to stories about ghosts, demons and other things that go bump in the night.`\
+https://nytimes.com/2022/09/06/books/peter-straub-dead.html?searchResultPosition=1
+
+**‘A Kaddish for Bernie Madoff’ Review: Reflections on a Scandal**\
+`A whimsical hybrid of musical, memoir and documentary looks at Bernard Madoff through the lens of Jewish identity.`\
+https://nytimes.com/2022/09/06/movies/a-kaddish-for-bernie-madoff-review.html?searchResultPosition=2
+
+**Russia Is Buying Millions of North Korean Weapons, U.S. Says**\
+`Russia is buying millions of artillery shells and rockets from North Korea to use in its war with Ukraine, newly declassified American intelligence revealed.`\
+https://nytimes.com/video/us/politics/100000008520767/russia-north-korea-artillery-intelligence.html?searchResultPosition=3
+
 **Breakfast With Grandma**\
 `A new New Yorker tucks into the West Village’s offerings with her Abueti, a longtime Manhattanite.`\
-https://nytimes.com/2022/09/06/dining/breakfast-with-grandma.html?searchResultPosition=1
+https://nytimes.com/2022/09/06/dining/breakfast-with-grandma.html?searchResultPosition=4
 
 **Former Pentagon Leaders Warn of a Dangerous Era**\
 `The challenge to the 2020 election result has helped create “an extremely adverse environment,” former defense secretaries and generals said in an open letter.`\
-https://nytimes.com/2022/09/06/us/politics/trump-military-letter.html?searchResultPosition=2
+https://nytimes.com/2022/09/06/us/politics/trump-military-letter.html?searchResultPosition=5
 
 **Swimming Federation Reverses Ban on Swim Cap Designed for Black Hair**\
 `Advocates said the battle was also about a broader cultural acceptance of Black hair.`\
-https://nytimes.com/2022/09/06/sports/soul-cap-swimming-fina.html?searchResultPosition=3
+https://nytimes.com/2022/09/06/sports/soul-cap-swimming-fina.html?searchResultPosition=6
 
 **How the Car Created the Modern World**\
 `Bryan Appleyard’s historical odyssey charts the human love affair with motor vehicles.`\
-https://nytimes.com/2022/09/06/books/review/the-car-bryan-appleyard.html?searchResultPosition=4
+https://nytimes.com/2022/09/06/books/review/the-car-bryan-appleyard.html?searchResultPosition=7
 
 **How China Has Added to Its Influence Over the iPhone**\
 `Apple is taking small steps toward India. But the production of its latest phone, set for introduction on Wednesday, shows how difficult it will be to make big changes.`\
-https://nytimes.com/2022/09/06/technology/china-apple-iphone.html?searchResultPosition=5
+https://nytimes.com/2022/09/06/technology/china-apple-iphone.html?searchResultPosition=8
 
 **Tiny Love Stories: ‘My Mother Fell for Her Too’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2022/09/06/style/tiny-modern-love-stories-my-mother-fell-for-her-too.html?searchResultPosition=6
+https://nytimes.com/2022/09/06/style/tiny-modern-love-stories-my-mother-fell-for-her-too.html?searchResultPosition=9
 
 **California Braces for Difficult Wildfire Day During Record Heat Wave**\
 `The Fairview fire in Riverside County is the latest menacing blaze, killing two people and forcing evacuations in the city of Hemet.`\
-https://nytimes.com/2022/09/06/us/california-wildfire-heat.html?searchResultPosition=7
-
-**A ‘Period Dignity Officer’ Seemed Like a Good Idea. Until a Man Was Named.**\
-`The job in the Scottish region of Tayside was eliminated after a groundswell of anger that a man would be overseeing, or ‘mansplaining,’ menstruation policy.`\
-https://nytimes.com/2022/09/06/world/europe/scotland-free-period-products.html?searchResultPosition=8
-
-**Biting Satires Dominate Booker Prize Shortlist**\
-`The finalists range widely in style and subject matter, and half use humor to take on grim historical periods. A winner will be named in October.`\
-https://nytimes.com/2022/09/06/books/booker-prize-finalists.html?searchResultPosition=9
-
-**The Great U.S. Open Ball Debate of 2022**\
-`The Open is the only Grand Slam tournament where women use different balls than men, and the Wilson ‘regular-duty’ ball has gotten into some players’ heads.`\
-https://nytimes.com/2022/09/06/sports/tennis/us-open-balls.html?searchResultPosition=10
+https://nytimes.com/2022/09/06/us/california-wildfire-heat.html?searchResultPosition=10
 
