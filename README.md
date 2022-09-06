@@ -1,22 +1,22 @@
+**Massachusetts Primary Election Results: Suffolk County District Attorney**\
+`See full results and maps from the Massachusetts primary elections.`\
+https://nytimes.com/interactive/2022/09/06/us/elections/results-massachusetts-suffolk-county-district-attorney.html?searchResultPosition=1
+
 **‘Playing With Fire’: U.N. Team Calls for No-Fire Zone at Ukraine Nuclear Plant**\
 `In a highly anticipated report, nuclear experts who crossed a battlefield to inspect Europe’s largest nuclear plant called for Russia and Ukraine to halt all military activity around the complex.`\
-https://nytimes.com/2022/09/06/world/europe/ukraine-war-nuclear-reactor.html?searchResultPosition=1
+https://nytimes.com/2022/09/06/world/europe/ukraine-war-nuclear-reactor.html?searchResultPosition=2
 
 **B.Y.U. Is Still Investigating Racial Slurs at Women’s Volleyball Match**\
 `Brigham Young University has asked people who were at the Aug. 26 game for help finding the person who yelled slurs at a Black player for Duke University.`\
-https://nytimes.com/2022/09/06/sports/byu-racial-slur-duke.html?searchResultPosition=2
+https://nytimes.com/2022/09/06/sports/byu-racial-slur-duke.html?searchResultPosition=3
 
 **After Uvalde, Texas State Police Revise Training for Mass Shootings**\
 `Five Department of Public Safety officers have been referred for formal investigation over their response to the May 24 school shooting.`\
-https://nytimes.com/2022/09/06/us/texas-mass-shootings.html?searchResultPosition=3
+https://nytimes.com/2022/09/06/us/texas-mass-shootings.html?searchResultPosition=4
 
 **Massachusetts Secretary of State Primary Election Results**\
 `See full results and maps from the Massachusetts primary elections.`\
-https://nytimes.com/interactive/2022/09/06/us/elections/results-massachusetts-secretary-of-state.html?searchResultPosition=4
-
-**Massachusetts Primary Election Results: Suffolk County District Attorney**\
-`See full results and maps from the Massachusetts primary elections.`\
-https://nytimes.com/interactive/2022/09/06/us/elections/results-massachusetts-suffolk-county-district-attorney.html?searchResultPosition=5
+https://nytimes.com/interactive/2022/09/06/us/elections/results-massachusetts-secretary-of-state.html?searchResultPosition=5
 
 **Massachusetts Eighth Congressional District Primary Election Results**\
 `See full results and maps from the Massachusetts primary elections.`\
