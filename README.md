@@ -4,7 +4,7 @@ https://nytimes.com/2022/09/06/us/fat-leonard-escape.html?searchResultPosition=1
 
 **Truss Takes Office, Promising Britons They Can ‘Ride Out the Storm’**\
 `Liz Truss takes over as prime minister at a time of deepening economic crisis. Her first cabinet appointments reward loyalists who supported her bid for office.`\
-https://nytimes.com/2022/09/06/world/uk-truss-prime-minister-cabinet.html?searchResultPosition=2
+https://nytimes.com/2022/09/06/world/liz-truss-uk-prime-minister-cabinet.html?searchResultPosition=2
 
 **Deadly Southern California Wildfire Forces Thousands to Evacuate**\
 `The Fairview fire burning in Riverside County, Calif., is one of multiple blazes firefighters are battling across the state amid a prolonged wave of extreme heat.`\
