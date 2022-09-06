@@ -2,7 +2,7 @@
 `He will begin a five-year contract as music director of the Seoul Philharmonic Orchestra in 2024, after stepping down from the New York Philharmonic.`\
 https://nytimes.com/2022/09/06/arts/music/jaap-van-zweden-seoul-philharmonic.html?searchResultPosition=1
 
-**A Chess Champion Resolves Her ‘Queens Gambit’ Lawsuit Against Netflix**\
+**A Chess Champion Resolves Her ‘Queen’s Gambit’ Lawsuit Against Netflix**\
 `The fictional series had named Nona Gaprindashvili, a pioneering real-life chess champion, and falsely claimed she had “never faced men.” She sued for defamation.`\
 https://nytimes.com/2022/09/06/arts/television/netflix-queens-gambit-nona-gaprindashvili.html?searchResultPosition=2
 
