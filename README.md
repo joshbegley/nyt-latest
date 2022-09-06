@@ -1,24 +1,40 @@
+**Massachusetts Fourth Congressional District Primary Election Results**\
+`See full results and maps from the Massachusetts primary elections.`\
+https://nytimes.com/interactive/2022/09/06/us/elections/results-massachusetts-us-house-district-4.html?searchResultPosition=1
+
+**Massachusetts Lieutenant Governor Primary Election Results**\
+`See full results and maps from the Massachusetts primary elections.`\
+https://nytimes.com/interactive/2022/09/06/us/elections/results-massachusetts-lieutenant-governor.html?searchResultPosition=2
+
+**Massachusetts First Congressional District Primary Election Results**\
+`See full results and maps from the Massachusetts primary elections.`\
+https://nytimes.com/interactive/2022/09/06/us/elections/results-massachusetts-us-house-district-1.html?searchResultPosition=3
+
+**Massachusetts Secretary of State Primary Election Results**\
+`See full results and maps from the Massachusetts primary elections.`\
+https://nytimes.com/interactive/2022/09/06/us/elections/results-massachusetts-secretary-of-state.html?searchResultPosition=4
+
+**Massachusetts Third Congressional District Primary Election Results**\
+`See full results and maps from the Massachusetts primary elections.`\
+https://nytimes.com/interactive/2022/09/06/us/elections/results-massachusetts-us-house-district-3.html?searchResultPosition=5
+
+**Massachusetts Governor Primary Election Results**\
+`See full results and maps from the Massachusetts primary elections.`\
+https://nytimes.com/interactive/2022/09/06/us/elections/results-massachusetts-governor.html?searchResultPosition=6
+
+**Massachusetts Seventh Congressional District Primary Election Results**\
+`See full results and maps from the Massachusetts primary elections.`\
+https://nytimes.com/interactive/2022/09/06/us/elections/results-massachusetts-us-house-district-7.html?searchResultPosition=7
+
+**Massachusetts Ninth Congressional District Primary Election Results**\
+`See full results and maps from the Massachusetts primary elections.`\
+https://nytimes.com/interactive/2022/09/06/us/elections/results-massachusetts-us-house-district-9.html?searchResultPosition=8
+
+**Massachusetts Attorney General Primary Election Results**\
+`See full results and maps from the Massachusetts primary elections.`\
+https://nytimes.com/interactive/2022/09/06/us/elections/results-massachusetts-attorney-general.html?searchResultPosition=9
+
 **Massachusetts Fifth Congressional District Primary Election Results**\
 `See full results and maps from the Massachusetts primary elections.`\
-https://nytimes.com/interactive/2022/09/06/us/elections/results-massachusetts-us-house-district-5.html?searchResultPosition=1
-
-**Massachusetts Second Congressional District Primary Election Results**\
-`See full results and maps from the Massachusetts primary elections.`\
-https://nytimes.com/interactive/2022/09/06/us/elections/results-massachusetts-us-house-district-2.html?searchResultPosition=2
-
-**Massachusetts Eighth Congressional District Primary Election Results**\
-`See full results and maps from the Massachusetts primary elections.`\
-https://nytimes.com/interactive/2022/09/06/us/elections/results-massachusetts-us-house-district-8.html?searchResultPosition=3
-
-**Massachusetts Primary Election Results: Suffolk County District Attorney**\
-`See full results and maps from the Massachusetts primary elections.`\
-https://nytimes.com/interactive/2022/09/06/us/elections/results-massachusetts-suffolk-county-district-attorney.html?searchResultPosition=4
-
-**Massachusetts Sixth Congressional District Primary Election Results**\
-`See full results and maps from the Massachusetts primary elections.`\
-https://nytimes.com/interactive/2022/09/06/us/elections/results-massachusetts-us-house-district-6.html?searchResultPosition=5
-
-**What the Aftermath of the Deadly Mill Fire Looks Like**\
-`Aerial imagery shows the devastation caused by a quickly moving wildfire — an all-too-familiar scene for many in California.`\
-https://nytimes.com/2022/09/06/us/california-mill-fire-pictures.html?searchResultPosition=6
+https://nytimes.com/interactive/2022/09/06/us/elections/results-massachusetts-us-house-district-5.html?searchResultPosition=10
 
