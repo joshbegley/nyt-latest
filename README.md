@@ -3,7 +3,7 @@
 https://nytimes.com/video/world/europe/100000008519738/boris-johnson-last-speech-prime-minister.html?searchResultPosition=1
 
 **Scenes from the Aftermath of Typhoon Hinnamnor**\
-`The storm swept past South Korea’s southeastern corner, causing at least one death, sparking a fire at a steel plant and leaving tens of thousands without power.`\
+`The storm swept past South Korea’s southeastern corner, causing at least two deaths, sparking a fire at a steel plant and leaving tens of thousands without power.`\
 https://nytimes.com/2022/09/06/world/asia/scenes-from-the-aftermath-of-typhoon-hinnamnor.html?searchResultPosition=2
 
 **Biden Administration Has Admitted One Million Migrants to Await Hearings**\
