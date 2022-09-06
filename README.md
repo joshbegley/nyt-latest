@@ -1,5 +1,5 @@
 **One Suspect in Canada Stabbings Is Dead, Police Say**\
-`One suspect in the Saskatchewan mass killings has been found dead, according to the Canadian police. The other of the two suspects, who the police say are brothers, may be hurt.`\
+`One suspect in the Saskatchewan attacks that killed 10 people has been found dead, according to the Canadian police. The other of the two suspects, who the police say are brothers, may be hurt.`\
 https://nytimes.com/video/world/americas/100000008519442/canada-stabbing-attack-police.html?searchResultPosition=1
 
 **‘Deeply Problematic’: Experts Question Judge’s Intervention in Trump Inquiry**\
