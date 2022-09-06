@@ -4,7 +4,7 @@ https://nytimes.com/interactive/2022/09/06/us/elections/results-massachusetts-se
 
 **Massachusetts Primary Election Results: Suffolk County District Attorney**\
 `See full results and maps from the Massachusetts primary elections.`\
-https://nytimes.com/interactive/2022/09/06/us/elections/results-massachusetts-boston-district-attorney.html?searchResultPosition=2
+https://nytimes.com/interactive/2022/09/06/us/elections/results-massachusetts-suffolk-county-district-attorney.html?searchResultPosition=2
 
 **Massachusetts Eighth Congressional District Primary Election Results**\
 `See full results and maps from the Massachusetts primary elections.`\
