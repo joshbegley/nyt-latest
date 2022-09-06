@@ -23,7 +23,7 @@ https://nytimes.com/2022/09/06/us/politics/massachusetts-results-timing.html?sea
 https://nytimes.com/2022/09/06/briefing/ukraine-plant-heatwave-beavers.html?searchResultPosition=6
 
 **Dr. Ronald Glasser, Bard of the Vietnam War Wounded, Dies at 83**\
-`His “365 Days” offered unvarnished, vivid sketches of soldiers injured in the war. He said it was a book he said he felt compelled to write.`\
+`His “365 Days” offered unvarnished, vivid sketches of soldiers injured in the war. He said it was a book he felt compelled to write.`\
 https://nytimes.com/2022/09/06/books/ronald-glasser-dead.html?searchResultPosition=7
 
 **Massachusetts Primary Election Results: Suffolk County District Attorney**\
