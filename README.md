@@ -1,5 +1,5 @@
 **Juul Settles Multi-State Youth Vaping Inquiry for $438.5 Million**\
-`The tentative deal would close a yearslong investigation by more than three dozen states into the company’s marketing and sales practices.`\
+`The tentative deal would close a yearslong investigation by nearly three dozen states into the company’s marketing and sales practices.`\
 https://nytimes.com/2022/09/06/health/juul-settlement-vaping-crisis.html?searchResultPosition=1
 
 **Possible Delays in the Trump Inquiry**\
