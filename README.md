@@ -1,40 +1,40 @@
-**Boris Johnson Delivers Last Address as Prime Minister**\
-`Boris Johnson pledged to support his successor, Liz Truss, in his final speech as Britain’s prime minister.`\
-https://nytimes.com/video/world/europe/100000008519738/boris-johnson-last-speech-prime-minister.html?searchResultPosition=1
+**Mixing Children and Art? Yes, It’s Possible.**\
+`In a ‘magical place’ in the Connecticut woods, one couple built a rural escape where the most fragile artwork is just out of reach.`\
+https://nytimes.com/2022/09/06/realestate/mixing-children-and-art-yes-its-possible.html?searchResultPosition=1
 
-**Scenes from the Aftermath of Typhoon Hinnamnor**\
-`The storm swept past South Korea’s southeastern corner, causing at least two deaths, sparking a fire at a steel plant and leaving tens of thousands without power.`\
-https://nytimes.com/2022/09/06/world/asia/scenes-from-the-aftermath-of-typhoon-hinnamnor.html?searchResultPosition=2
+**A Rural Escape in Connecticut**\
+`In a “magical place in the woods,” in Roxbury, Conn., one couple built a second home where art surrounds them.`\
+https://nytimes.com/slideshow/2022/09/06/realestate/a-rural-escape-in-connecticut.html?searchResultPosition=2
 
-**Biden Administration Has Admitted One Million Migrants to Await Hearings**\
-`The presence of asylum seekers in the United States is both a humanitarian challenge and a political flash point in a divided country.`\
-https://nytimes.com/2022/09/06/us/politics/asylum-biden-administration.html?searchResultPosition=3
+**The Spanish Beach Town That Keeps Calling You Back**\
+`Sitges, just south of Barcelona, has 17 beaches and a quiet, timeless charm that draws all kinds of visitors to return year after year.`\
+https://nytimes.com/2022/09/06/travel/sitges-spain.html?searchResultPosition=3
 
-**Battling Violence and Censors, Women in China Become ‘Invisible and Absent’**\
-`The Chinese Communist Party has long promoted gender equality as a core tenet, but as cases of gender abuse make headlines, Beijing has tried to squelch dissent and control the narrative.`\
-https://nytimes.com/2022/09/06/business/china-women-metoo.html?searchResultPosition=4
+**New York Is Pushed to Stop Asking Aspiring Lawyers About Long-Ago Crimes**\
+`To become a lawyer in New York, one must share details of sealed cases and juvenile records. Critics say that the requirement may be illegal, and that it harms racial diversity.`\
+https://nytimes.com/2022/09/06/nyregion/criminal-record-new-york-bar.html?searchResultPosition=4
 
-**It Was War. Then, a Rancher’s Truce With Some Pesky Beavers Paid Off.**\
-`The ‘highly skilled environmental engineers’ can help to store precious water and rejuvenate land ravaged by climate change. Just don’t dynamite their homes.`\
-https://nytimes.com/2022/09/06/climate/climate-change-beavers.html?searchResultPosition=5
+**This Jellyfish Can Live Forever. Its Genes May Tell Us How.**\
+`A new study followed as a Turritopsis dohrnii rejuvenated itself, uncovering developmental patterns for further inquiry.`\
+https://nytimes.com/2022/09/06/science/immortal-jellyfish-gene-protein.html?searchResultPosition=5
 
-**Biden Puts Support of Democracy at Center of Agenda, at Home and Abroad**\
-`President Biden’s foreign policy priority overlaps with a main domestic drive — both made more urgent by the persistent power of China, Russia and Donald J. Trump.`\
-https://nytimes.com/2022/09/06/us/politics/biden-democracy-threat.html?searchResultPosition=6
+**Money Can’t Buy Class. Or Can It?**\
+`In “Status and Culture,” W. David Marx sets out to unravel the grand mysteries of identity.`\
+https://nytimes.com/2022/09/06/books/review/status-and-culture-w-david-marx.html?searchResultPosition=6
 
-**As Ex-Uber Executive Heads to Trial, the Security Community Reels**\
-`Joe Sullivan, Uber’s former chief of security, faces criminal charges for his handling of a 2016 security breach. His trial this week has divided the security industry.`\
-https://nytimes.com/2022/09/06/technology/joe-sullivan-uber-security-trial-ciso.html?searchResultPosition=7
+**The Electrifying, Emotional Return of Yeah Yeah Yeahs**\
+`After a nearly decade-long break, the trio that helped spark New York’s early 2000s rock revival is back with “Cool It Down,” an expansive album that dares to imagine a bold, fresh future.`\
+https://nytimes.com/2022/09/06/arts/music/yeah-yeah-yeahs-cool-it-down.html?searchResultPosition=7
 
-**Biden Administration Releases Plan for $50 Billion Investment in Chips**\
-`The Department of Commerce issued guidelines for companies angling to receive federal funding aimed at bolstering the domestic semiconductor industry.`\
-https://nytimes.com/2022/09/06/business/economy/biden-tech-chips.html?searchResultPosition=8
+**Cameras, Plexiglass, Fireproofing: Election Officials Beef Up Security**\
+`With violent rhetoric from the right intensifying, some election officials are bolstering their defenses. Others are quitting.`\
+https://nytimes.com/2022/09/06/us/politics/midterms-elections-threats-security.html?searchResultPosition=8
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/09/06/crosswords/spelling-bee-forum.html?searchResultPosition=9
+**Steeper Winter Heating Bills Loom, With Less Federal Aid**\
+`Energy costs are expected to rise even faster than overall inflation, but a key assistance program will lack the extra funds it got for Covid relief.`\
+https://nytimes.com/2022/09/06/business/energy-environment/winter-home-heating.html?searchResultPosition=9
 
-**The queen will appoint the new prime minister at Balmoral Castle in Scotland.**\
-`The meeting, usually performed at Buckingham Palace, was moved as the 96-year-old monarch faces health challenges.`\
-https://nytimes.com/2022/09/06/world/europe/liz-truss-queen-elizabeth-balmoral.html?searchResultPosition=10
+**It’s Never Too Late to Uproot Your Life and Open an Inn**\
+`In early 2020, Maureen McNamara and her wife, Jennifer Stark, traded in their popular restaurant in Michigan for an inn nestled in the Catskill Mountains of New York. The inn opened just days before the pandemic was declared.`\
+https://nytimes.com/2022/09/06/style/catskill-mountains-phoenicia-lodge.html?searchResultPosition=10
 
