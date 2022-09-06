@@ -1,6 +1,6 @@
 **Swimming Federation Reverses Ban on Swim Cap Designed for Black Hair**\
 `Advocates said the battle was also about a broader cultural acceptance of Black hair.`\
-https://nytimes.com/2022/09/06/us/soul-cap-swimming-fina.html?searchResultPosition=1
+https://nytimes.com/2022/09/06/sports/soul-cap-swimming-fina.html?searchResultPosition=1
 
 **How the Car Created the Modern World**\
 `Bryan Appleyard’s historical odyssey charts the human love affair with motor vehicles.`\
