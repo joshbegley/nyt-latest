@@ -8,7 +8,7 @@ https://nytimes.com/2022/09/06/business/climate-law-a-game-changer-for-highways-
 
 **Michelin Reveals 2022 New York Area Additions**\
 `The star ratings will not be revealed until October, but the Michelin Guide offers a glimpse of the new restaurants making the list.`\
-https://nytimes.com/2022/09/06/dining/michelin-reveals-2022-new-york-restaurant-additions.html?searchResultPosition=3
+https://nytimes.com/2022/09/06/dining/michelin-guide-restaurants-ny.html?searchResultPosition=3
 
 **Is This Heat Wave Hot Enough for You, California?**\
 `Blistering temperatures shattered records over Labor Day weekend. Meteorologists say they’ll linger for the rest of the week.`\
