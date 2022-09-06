@@ -12,7 +12,7 @@ https://nytimes.com/2022/09/06/learning/word-of-the-day-myriad.html?searchResult
 
 **Watch Live: Boris Johnson Delivers Farewell Remarks**\
 `Boris Johnson is expected to deliver his final address as prime minister, kicking off a day of events that will see the political office transfer to his successor, Liz Truss.`\
-https://nytimes.com/video/world/europe/100000008518332/boris-johnson-prime-minister-speech-live.html?searchResultPosition=4
+https://nytimes.com/video/embedded/world/europe/100000008518332/boris-johnson-prime-minister-speech-live.html?searchResultPosition=4
 
 **Britain’s Next Prime Minister Is Still in Thrall to the Empire**\
 `Liz Truss is absorbed in imperial thinking.`\
