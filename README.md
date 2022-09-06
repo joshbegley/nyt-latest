@@ -2,8 +2,8 @@
 `The announcements, expected later on Tuesday, are likely to reward loyalists and overlook defeated rivals.`\
 https://nytimes.com/2022/09/06/world/europe/liz-truss-cabinet.html?searchResultPosition=1
 
-**In Energy Crunch, Germany Turns Down Heat but Won’t Limit Highway Speeds**\
-`Putting general restrictions on the storied autobahns is a simple step to save energy, carbon emissions and lives. But even with the Greens in power, the country is unlikely to take it.`\
+**In Energy Crunch, Germany Turns Down Heat but Won’t Limit Autobahn Speeds**\
+`Putting general restrictions on the country’s storied highways is a simple step to save energy, carbon emissions and lives. But even with the Greens in power, the country is unlikely to take it.`\
 https://nytimes.com/2022/09/06/world/europe/germany-autobahn-speed-limits.html?searchResultPosition=2
 
 **The Artist Who Throws Newton a Curve**\
