@@ -16,7 +16,7 @@ https://nytimes.com/video/world/europe/100000008520249/liz-truss-britain-speech-
 
 **California implores residents to reduce power use to avoid blackouts.**\
 `Record heat could lead to an unprecedented use of power Tuesday, and energy grid managers warn they may have to shut off electricity.`\
-https://nytimes.com/2022/09/06/us/california-implores-residents-to-reduce-power-use-to-avoid-blackouts.html?searchResultPosition=5
+https://nytimes.com/2022/09/06/us/california-power-blackouts.html?searchResultPosition=5
 
 **The Killer Who Terrorized Cleveland — and Spurred It to Change**\
 `In his new true-crime book, “American Demon,” Daniel Stashower explores the unsolved case of Cleveland’s “Torso Killer” and the quixotic hunt to stop him.`\
