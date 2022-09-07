@@ -1,4 +1,4 @@
-**On the Scene: Lea Michele in ‘Funny Girl’ 🎭**\
+**On the Scene: Lea Michele in ‘Funny Girl’ 🎭 **\
 `On Tuesday evening, Lea Michele took the stage for the first time as Fanny Brice in the Broadway revival of “Funny Girl” at the August Wilson Theater. Here’s what it looked like.`\
 https://nytimes.com/interactive/2022/09/07/theater/funny-girl-lea-michele-broadway.html?searchResultPosition=1
 
