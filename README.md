@@ -1,4 +1,4 @@
-**South Carolina Judge Rules Executions by Firing Squad and Electric Chair Are Unconstitutional**\
+**South Carolina Judge Rules Against Use of Firing Squad and Electric Chair**\
 `The judge sided with death row inmates in declaring the punishments cruel and unusual.`\
 https://nytimes.com/2022/09/07/us/south-carolina-unconstitutional-executions.html?searchResultPosition=1
 
