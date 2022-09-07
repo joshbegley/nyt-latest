@@ -1,6 +1,6 @@
 **Massachusetts Picks Right-Wing Governor Nominee, Helping Democrats’ Outlook**\
 `The primary win by Geoff Diehl, a Trump endorsee, is likely to make it easier for Democrats to pick up an office that moderate Republicans have held for decades.`\
-https://nytimes.com/2022/09/06/us/politics/massachusetts-picks-right-wing-governor-nominee-helping-democrats-outlook.html?searchResultPosition=1
+https://nytimes.com/2022/09/06/us/politics/geoff-diehl-massachusetts-republican-governor.html?searchResultPosition=1
 
 **Newbie Crossword Solver**\
 `Ekua Ewool reveals the thought process behind her solving.`\
