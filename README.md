@@ -1,4 +1,4 @@
-**Escaped Chimpanzee Returns to Ukrainian Zoo on a Bicycle**\
+**Runaway Chimpanzee Returns to Ukrainian Zoo on a Bicycle**\
 `Chichi, the chimpanzee, roamed free for two hours in Kharkiv’s city center before being coaxed into returning to the zoo atop bicycle.`\
 https://nytimes.com/video/world/europe/100000008522067/escaped-chimpanzee-kharkiv-zoo.html?searchResultPosition=1
 
