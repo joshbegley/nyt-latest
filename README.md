@@ -18,7 +18,7 @@ https://nytimes.com/2022/09/07/opinion/economics-science-fiction.html?searchResu
 `The district attorney said there were 30,000 files and pieces of evidence in the stabbing of the writer Salman Rushdie.`\
 https://nytimes.com/2022/09/07/nyregion/salman-rushdie-stabbing.html?searchResultPosition=5
 
-**Academy Museum’s Show on Black Cinema Raises Questions About Who It’s for**\
+**Academy Museum’s Show on Black Cinema Raises Questions About Who It’s For**\
 `“Regeneration” is a worthwhile look at stars and films, but it presents a tale of difficulty and triumph that doesn’t always engage with Hollywood’s history of racism.`\
 https://nytimes.com/2022/09/07/movies/academy-museum-black-cinema-exhibition.html?searchResultPosition=6
 
