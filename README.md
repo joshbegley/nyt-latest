@@ -24,7 +24,7 @@ https://nytimes.com/2022/09/07/us/politics/leah-cole-allen-massachusetts-lt-gove
 
 **Fed’s vice chair signals more rate increases ahead as inflation remains too hot.**\
 `Lael Brainard, the Federal Reserve’s vice chair, said the central bank is “in this for as long as it takes to get inflation down.”`\
-https://nytimes.com/2022/09/07/business/feds-vice-chair-signals-more-rate-increases-ahead-as-inflation-remains-too-hot.html?searchResultPosition=7
+https://nytimes.com/2022/09/07/business/fed-interest-rates-inflation.html?searchResultPosition=7
 
 **Can Exercise Strengthen Your Immunity?**\
 `Recent research suggests that people who work out have stronger resistance to infectious diseases — including Covid — but experts say the findings need to be tested further.`\
