@@ -1,40 +1,40 @@
-**From the U.S. to China, Major Economies Are Stalling. But Not India.**\
-`The Indian government expects growth to exceed 7 percent this year, though that pace may be hard to sustain as the global economy continues to slow.`\
-https://nytimes.com/2022/09/07/business/india-economy.html?searchResultPosition=1
+**A Watch Worn on ‘The Queen’s Gambit’ Is Reborn Offscreen**\
+`The American Girl ‘K’, a ’50s-era timepiece, has been added to Bulova’s Archive Series.`\
+https://nytimes.com/2022/09/07/fashion/watches-bulova-american-girl.html?searchResultPosition=1
 
-**Lesson Plan: On ‘School Is for Us’**\
-`Students will examine a photo essay in which teenagers use their cameras to answer the question “What is school for?” Then, they will use the work as a model for their own responses to that question.`\
-https://nytimes.com/2022/09/07/learning/lesson-plans/lesson-plan-on-school-is-for-us.html?searchResultPosition=2
+**A Desert-Themed Timepiece Goes Up for Auction**\
+`Cartier created the unusual watch as a trophy for the Dakar motor race.`\
+https://nytimes.com/2022/09/07/fashion/watches-cartier-the-dakar-race.html?searchResultPosition=2
 
-**Late Night Returns Just in Time for Trump to Get a Special Master**\
-`“Once again Donald Trump has exposed a part of America that I’m willing to bet nobody knew existed,” Trevor Noah said. “Nobody!”`\
-https://nytimes.com/2022/09/07/arts/television/late-night-trevor-noah-trump.html?searchResultPosition=3
+**No Flower Headbands at This Music Festival**\
+`Ravers donned their flimsiest finery for the Electric Zoo music festival in New York.`\
+https://nytimes.com/2022/09/07/style/no-flower-headbands-at-this-music-festival.html?searchResultPosition=3
 
-**Clean Energy Projects Surge After Climate Bill Passage**\
-`Investments in battery factories, solar panel manufacturing and mining will help the Biden administration meet targets for reducing greenhouse gases.`\
-https://nytimes.com/2022/09/07/business/energy-environment/clean-energy-climate-bill.html?searchResultPosition=4
+**Take Me to the (Lazy) River**\
+`From the center of an inner tube drifting down the slow-moving Guadalupe, in Texas, life looks good.`\
+https://nytimes.com/2022/09/07/travel/river-float-texas.html?searchResultPosition=4
 
-**Desert Winemaking ‘Sounds Absurd,’ but Israeli Vineyards in Negev Show the Way**\
-`As vintners around the world battle extreme heat and climate change, the pioneers producing wine in Israel’s arid south are testing ideas that might soon find global application.`\
-https://nytimes.com/2022/09/07/world/middleeast/israel-negev-desert-wine.html?searchResultPosition=5
+**Hudson Square, Manhattan: No Longer a ‘No-Man’s Land in SoHo’**\
+`The West Side neighborhood once known as the printing district is now the site of lots of new development. But housing is still slightly less expensive than in nearby areas.`\
+https://nytimes.com/2022/09/07/realestate/hudson-square-manhattan-no-longer-a-no-mans-land-in-soho.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/09/07/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**Tom Stoppard Finally Looks Into His Shadow**\
+`After years of living “as if without history,” the playwright belatedly reckons with his Jewish roots, and his guilt, in “Leopoldstadt,” his most autobiographical play.`\
+https://nytimes.com/2022/09/07/theater/tom-stoppard-leopoldstadt-broadway.html?searchResultPosition=6
 
-**Mindfulness**\
-`Have you ever tried to meditate? How did it go?`\
-https://nytimes.com/2022/09/07/learning/mindfulness.html?searchResultPosition=7
+**Democrats Fret as Stacey Abrams Struggles in Georgia Governor’s Race**\
+`She has been trailing her Republican rival, Gov. Brian Kemp, alarming Democrats who have celebrated her as the master strategist behind the state’s Democratic shift.`\
+https://nytimes.com/2022/09/07/us/politics/stacey-abrams-georgia-governor.html?searchResultPosition=7
 
-**Bannon to Surrender to New York Authorities to Face Sealed Indictment**\
-`After President Donald J. Trump pardoned him in a case connected to a crowd-funded border wall, the Manhattan district attorney’s office opened its own investigation.`\
-https://nytimes.com/2022/09/07/nyregion/bannon-surrender-sealed-indictment.html?searchResultPosition=8
+**5 Minutes That Will Make You Love Alice Coltrane**\
+`We asked writers, critics and musicians including Meshell Ndegeocello and Angel Bat Dawid to tell us what moves them in Coltrane’s spiritual jazz.`\
+https://nytimes.com/2022/09/07/arts/music/alice-coltrane-jazz-music.html?searchResultPosition=8
 
-**Word of the Day: avid**\
-`This word has appeared in 340 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/09/07/learning/word-of-the-day-avid.html?searchResultPosition=9
+**At Head Start, Masks Remain On, Despite C.D.C. Guidelines**\
+`Some of the nation’s poorest pre-K students are the last still under mask mandates, affecting enrollment.`\
+https://nytimes.com/2022/09/07/us/head-start-masks-toddlers.html?searchResultPosition=9
 
-**Nick Kyrgios’s U.S. Open Run Ends One Match After Beating the Top Seed**\
-`Karen Khachanov of Russia needed five sets to put Kyrgios away, 7-5, 4-6, 7-5, 6-7, 6-4. He will play Casper Rudd of Norway in the semifinals on Friday.`\
-https://nytimes.com/2022/09/07/sports/tennis/kyrgios-khachanov-us-open-quarterfinals.html?searchResultPosition=10
+**Living In ... Hudson Square, Manhattan**\
+`The West Side neighborhood is the site of lots of new development. But housing is still slightly less expensive there than in surrounding areas.`\
+https://nytimes.com/slideshow/2022/09/07/realestate/living-in-hudson-square-manhattan.html?searchResultPosition=10
 
