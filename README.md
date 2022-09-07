@@ -1,6 +1,6 @@
 **California Leaders Credit Cellphone Alert for Sudden Conservation**\
 `The jarring message warned millions of residents that blackouts could occur without immediate action.`\
-https://nytimes.com/2022/09/07/us/california-leaders-credit-cellphone-alert-for-sudden-conservation.html?searchResultPosition=1
+https://nytimes.com/2022/09/07/us/california-power-grid-cellphone-alert.html?searchResultPosition=1
 
 **F.B.I. Sought Interview With Trump Aide**\
 `Agents investigating the events leading up to the Jan. 6 attack on the Capitol tried to question William Russell, who served as a special assistant to the former president.`\
