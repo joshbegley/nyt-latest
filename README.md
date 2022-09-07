@@ -26,8 +26,8 @@ https://nytimes.com/2022/09/07/us/politics/food-insecurity-families.html?searchR
 `An independent journalist describes what it’s like to work in Russia right now.`\
 https://nytimes.com/2022/09/07/briefing/russia-ukraine-war-dissent-putin.html?searchResultPosition=7
 
-**West Baltimore Under Boil Water Advisory**\
-`Officials issued a boil water advisory on Monday after E. coli bacteria were detected during routine water testing in Baltimore.`\
+**West Baltimore Issues Boil Water Advisory After Detecting E. Coli**\
+`Officials detected the bacteria during routine water testing in Baltimore, but have not yet identified the source.`\
 https://nytimes.com/2022/09/07/us/e-coli-baltimore-water.html?searchResultPosition=8
 
 **The Office and Covid**\
