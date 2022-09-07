@@ -6,7 +6,7 @@ https://nytimes.com/2022/09/07/us/politics/aca-preventive-care-texas.html?search
 `The Las Vegas Metropolitan Police Department would confirm only that it was serving search warrants related to the investigation into the fatal stabbing of Jeff German, a veteran investigative reporter for The Las Vegas Review-Journal.`\
 https://nytimes.com/2022/09/07/us/journalist-stabbing-las-vegas.html?searchResultPosition=2
 
-**Pakistan’s Vulnerability to Disaster Was Through The Roof. Then Came the Floods.**\
+**Pakistan’s Vulnerability to Disaster Was Through the Roof. Then Came the Floods.**\
 `The Pakistani climate scientist Fahad Saeed on why he’s scared.`\
 https://nytimes.com/2022/09/07/opinion/environment/floods-in-pakistan-climate-change-vulnerability.html?searchResultPosition=3
 
@@ -14,7 +14,7 @@ https://nytimes.com/2022/09/07/opinion/environment/floods-in-pakistan-climate-ch
 `Everybody wants to be your email pal.`\
 https://nytimes.com/2022/09/07/opinion/midterms-senate-democrats.html?searchResultPosition=4
 
-**In Bannon Case, Manhattan D.A. Takes on Another Pardoned Trump Ally**\
+**In Bannon Case, Manhattan D.A. Takes On Another Pardoned Trump Ally**\
 `Stephen K. Bannon will face state charges related to his role in an effort to build a border wall despite having been pardoned by former President Donald J. Trump.`\
 https://nytimes.com/2022/09/07/nyregion/steve-bannon-nyc-charges.html?searchResultPosition=5
 
