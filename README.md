@@ -2,7 +2,7 @@
 `Recent research suggests that people who work out have stronger resistance to infectious diseases — including Covid — but experts say the findings need to be tested further.`\
 https://nytimes.com/2022/09/07/well/move/exercise-immunity-covid.html?searchResultPosition=1
 
-**Vice, Exploring a Sale, Weighs Content Deal With Saudi-Backed Firm**\
+**Vice, Exploring a Sale, Weighs a Content Deal With a Saudi-Backed Firm**\
 `The company is in talks to develop a content partnership with MBC, a Saudi Arabian media giant partially owned by the government.`\
 https://nytimes.com/2022/09/07/business/media/vice-saudi-arabia.html?searchResultPosition=2
 
