@@ -14,7 +14,7 @@ https://nytimes.com/2022/09/07/sports/tennis/kyrgios-khachanov-us-open-quarterfi
 `A report on the Zaporizhzhia nuclear complex.`\
 https://nytimes.com/2022/09/07/briefing/nuclear-ukraine-liz-truss.html?searchResultPosition=4
 
-**Sue Bird Ends W.N.B.A. Career With Playoff Loss**\
+**Sue Bird Sheds ‘Happy Tears’ as She Ends W.N.B.A. Career**\
 `Bird, 41, the Seattle Storm guard, had said she would retire after this season. The Storm fell to the Las Vegas Aces in the W.N.B.A. semifinals on Tuesday.`\
 https://nytimes.com/2022/09/07/sports/basketball/sue-bird-retirement.html?searchResultPosition=5
 
