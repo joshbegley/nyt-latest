@@ -22,7 +22,7 @@ https://nytimes.com/2022/09/07/books/review/meet-us-by-the-roaring-sea-akil-kuma
 `After taking a decade between studio releases, Cedric Bixler-Zavala and Omar Rodríguez-López eased their sonic experimentation to the sidelines for an album that still bristles.`\
 https://nytimes.com/2022/09/07/arts/music/the-mars-volta.html?searchResultPosition=6
 
-**Apple Unveils Smartwatch With a Focus on Fitness**\
+**Apple Unveils New iPhone and Smartwatch With a Focus on Fitness**\
 `For the first time in the pandemic, the company returned to Steve Jobs Theater to release its latest product updates.`\
 https://nytimes.com/2022/09/07/business/apple-smartwatch-event.html?searchResultPosition=7
 
