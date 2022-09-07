@@ -36,5 +36,5 @@ https://nytimes.com/video/world/europe/100000008522067/escaped-chimpanzee-kharki
 
 **Sundance Film Festival Names Eugene Hernandez Its Next Director**\
 `The Film at Lincoln Center executive will take over in November, after the conclusion of the New York Film Festival.`\
-https://nytimes.com/2022/09/07/movies/sundance-film-festival-names-eugene-hernandez-its-next-director.html?searchResultPosition=10
+https://nytimes.com/2022/09/07/movies/sundance-film-festival-eugene-hernandez.html?searchResultPosition=10
 
