@@ -12,7 +12,7 @@ https://nytimes.com/2022/09/07/nyregion/tumbleweed-tuesday-hamptons.html?searchR
 
 **The TikTok Star of Washington Square Park**\
 `Davis Burleson makes a splash with “What’s Poppin? With Davis!”`\
-https://nytimes.com/2022/09/07/style/the-tiktok-star-of-washington-square-park.html?searchResultPosition=4
+https://nytimes.com/2022/09/07/style/tiktok-washington-square-park-nyc.html?searchResultPosition=4
 
 **Europe Says Putin’s Gas Power Is Weakening**\
 `In Germany and elsewhere, leaders are growing more confident that months of work to stockpile and line up alternate energy sources may help them blunt Russia’s weaponization of exports.`\
