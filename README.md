@@ -4,7 +4,7 @@ https://nytimes.com/2022/09/07/dining/a-late-summer-market-menu.html?searchResul
 
 **A judge allows Musk to include whistle-blower claims in his case against Twitter.**\
 `Elon Musk’s lawyers had asked for a delay to review the accusations by a former Twitter executive, which the judge denied, while allowing the information to form part of their case.`\
-https://nytimes.com/2022/09/07/technology/a-judge-allows-musk-to-include-whistle-blower-claims-in-his-case-against-twitter.html?searchResultPosition=2
+https://nytimes.com/2022/09/07/technology/musk-twitter-whistle-blower.html?searchResultPosition=2
 
 **On the Scene: Lea Michele in ‘Funny Girl’ 🎭 **\
 `On Tuesday evening, Lea Michele took the stage for the first time as Fanny Brice in the Broadway revival of “Funny Girl” at the August Wilson Theater. Here’s what it looked like.`\
