@@ -22,8 +22,8 @@ https://nytimes.com/2022/09/08/sports/tennis/us-open-russia-ukraine.html?searchR
 `Von Miller leads the Bills against the Rams, Tom Brady and Dak Prescott trade shots, and the Raiders and Chargers pick up where they left off. But do home teams have any edge in Week 1?`\
 https://nytimes.com/2022/09/08/sports/football/nfl-week-1-predictions.html?searchResultPosition=6
 
-**Memphis Police Capture Suspect in a 5-Hour String of Shootings**\
-`The authorities urged residents to stay off the streets into the evening as they searched for an “armed and dangerous” 19-year-old who they said had carried out multiple shootings.`\
+**Shootings and Manhunt Paralyze Memphis as City Is Urged to Shelter**\
+`The authorities told residents to stay off the streets into the evening before police captured a 19-year-old who they said had carried out multiple shootings.`\
 https://nytimes.com/2022/09/07/us/memphis-shooter.html?searchResultPosition=7
 
 **Love of Texting**\
