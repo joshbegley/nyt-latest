@@ -4,7 +4,7 @@ https://nytimes.com/2022/09/08/world/europe/zaporizhia-nuclear-plant.html?search
 
 **Vice journalists raise concerns about potential deal with Saudi-backed firm.**\
 `The deal would involve the creation of a new brand focused on lifestyle and entertainment coverage and could be worth at least $50 million over several years.`\
-https://nytimes.com/2022/09/08/business/media/vice-journalists-raise-concerns-about-potential-deal-with-saudi-backed-firm.html?searchResultPosition=2
+https://nytimes.com/2022/09/08/business/media/vice-journalists-saudi-arabia.html?searchResultPosition=2
 
 **Charles Ascends to a Role He Has Prepared for All His Life**\
 `Once an awkward, self-doubting young man, he takes the throne, at 73, as a self-assured, gray-haired eminence.`\
