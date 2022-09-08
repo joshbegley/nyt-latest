@@ -3,7 +3,7 @@
 https://nytimes.com/2022/09/08/arts/television/tiny-chef-serpent-queen.html?searchResultPosition=1
 
 **9 Books to Read About Queen Elizabeth II**\
-`Elizabeth, famously reticent during her decades in the public eye, was an source of fascination for many. These books offer a deeper understanding of her life, family and world.`\
+`Elizabeth, famously reticent during her decades in the public eye, was a source of fascination for many. These books offer a deeper understanding of her life, family and world.`\
 https://nytimes.com/2022/09/08/books/books-queen-elizabeth-ii.html?searchResultPosition=2
 
 **Bannon Surrenders to Face Charges in Border Wall Case**\
