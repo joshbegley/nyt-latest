@@ -22,19 +22,19 @@ https://nytimes.com/2022/09/08/nyregion/trump-golf-saudi-adams.html?searchResult
 `Caroline Garcia, Ons Jabeur, Aryna Sabalenka and Iga Swiatek have a title in their sights.`\
 https://nytimes.com/interactive/2022/09/08/sports/tennis/us-open-women-semifinals.html?searchResultPosition=6
 
-**Watch live: Jerome Powell speaks on monetary policy.**\
-`The comments from the Federal Reserve chair will be his last public statements before the Fed’s policy setting committee meets later this month.`\
-https://nytimes.com/2022/09/08/business/watch-live-jerome-powell-speaks-on-monetary-policy.html?searchResultPosition=7
-
 **How California Officials Are Trying to Keep the Lights On**\
 `The state continues to endure a prolonged heat wave that will test the power grid through Friday.`\
-https://nytimes.com/2022/09/08/us/california-power-grid.html?searchResultPosition=8
+https://nytimes.com/2022/09/08/us/california-power-grid.html?searchResultPosition=7
 
 **Homes for Sale in New York and New Jersey**\
 `This week’s properties are a four-bedroom in Pleasantville, N.Y., and a six-bedroom in Allendale, N.J.`\
-https://nytimes.com/2022/09/08/realestate/housing-market-near-nyc.html?searchResultPosition=9
+https://nytimes.com/2022/09/08/realestate/housing-market-near-nyc.html?searchResultPosition=8
 
 **On the Market in the New York Region**\
 `This week’s properties are a four-bedroom in Pleasantville, N.Y., and a six-bedroom in Allendale, N.J.`\
-https://nytimes.com/slideshow/2022/09/08/realestate/on-the-market-in-the-new-york-region.html?searchResultPosition=10
+https://nytimes.com/slideshow/2022/09/08/realestate/on-the-market-in-the-new-york-region.html?searchResultPosition=9
+
+**Homes for Sale in Brooklyn and Manhattan**\
+`This week’s properties are in Dumbo, Lenox Hill and Turtle Bay.`\
+https://nytimes.com/2022/09/08/realestate/homes-sale-brooklyn-manhattan.html?searchResultPosition=10
 
