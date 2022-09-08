@@ -1,6 +1,6 @@
 **Schaller & Weber Adds a Cocktail Bar to Its Upper East Side Realm**\
 `The latest business from the third-generation owner of the famed butcher shop is modeled on American-style cocktail bars in Vienna.`\
-https://nytimes.com/2022/09/08/dining/drinks/schaller-webers-upper-east-side-jeremys.html?searchResultPosition=1
+https://nytimes.com/2022/09/08/dining/drinks/schaller-weber-upper-east-side-jeremys.html?searchResultPosition=1
 
 **British Parliament Wishes the Queen Well Amid Health Concerns**\
 `Lindsay Hoyle, the speaker of the House of Commons, sent “best wishes” to the queen, on behalf of the entire house.`\
