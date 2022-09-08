@@ -10,8 +10,8 @@ https://nytimes.com/2022/09/08/world/europe/queen-elizabeth-ill-health.html?sear
 `Paul Urey was charged with mercenary activities by a pro-Russian separatist group, which claimed he died in July from illness and stress.`\
 https://nytimes.com/2022/09/08/world/europe/uk-aid-worker-paul-urey-torture.html?searchResultPosition=3
 
-**Liz Truss, New U.K. Leader, Lays Out Sweeping Plan to Cap Energy Prices**\
-`Facing severe economic headwinds, the prime minister, on her third day in office, announced emergency measures to freeze gas and electricity rates.`\
+**U.K.’s New Leader Lays Out Sweeping Plan to Cap Energy Prices**\
+`Facing severe economic headwinds, Prime Minister Liz Truss announced emergency measures on her third day in office to freeze gas and electricity rates.`\
 https://nytimes.com/2022/09/08/world/europe/uk-truss-energy.html?searchResultPosition=4
 
 **159 Films, for Every Taste, Coming This Fall**\
