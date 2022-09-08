@@ -30,8 +30,8 @@ https://nytimes.com/2022/09/08/business/tornado-cash-treasury-sued.html?searchRe
 `The Marcos government rejected a request to let prosecutors resume an inquiry into former President Rodrigo Duterte’s drive against crime, which left thousands dead.`\
 https://nytimes.com/2022/09/08/world/asia/08philippines-duterte-drugs.html?searchResultPosition=8
 
-**Fed Chair Jerome Powell made clear that interest rates will remain elevated until inflation is under control.**\
-`Powell has taken a hawkish tone in recent appearances, seeking to underscore the Fed’s commitment to bringing down inflation.`\
+**Jerome Powell signals interest rates will remain high to fight inflation.**\
+`The Federal Reserve chair has taken a hawkish tone in recent appearances, seeking to underscore the central bank's commitment to bringing down prices.`\
 https://nytimes.com/2022/09/08/business/powell-federal-reserve-interest-rates.html?searchResultPosition=9
 
 **Bannon Surrenders to Face New York Indictment in Wall Case**\
