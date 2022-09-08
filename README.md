@@ -18,7 +18,7 @@ https://nytimes.com/2022/09/08/world/europe/queen-elizabeth-dead.html?searchResu
 `Queen Elizabeth II, the longest-reigning monarch in British history, died at the age of 96, leaving behind a legacy that blended the ancient and the modern with the help of mass media.`\
 https://nytimes.com/video/world/europe/100000004854374/elizabeth-ii-death-legacy-media-queen.html?searchResultPosition=5
 
-**Mourn the Queen, Not Her Empire**\
+**Queen Elizabeth Leaves Behind a Radically Different Britain**\
 `She helped obscure a bloody history of decolonization whose proportions and legacies have yet to be adequately acknowledged.`\
 https://nytimes.com/2022/09/08/opinion/queen-empire-decolonization.html?searchResultPosition=6
 
