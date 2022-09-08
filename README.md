@@ -1,40 +1,40 @@
-**Michelle Obama’s White House Portrait: Arms and the Woman**\
-`When is a dress not just a dress? When it’s part of a painting meant for posterity.`\
-https://nytimes.com/2022/09/08/style/michelle-obama-white-house-portrait.html?searchResultPosition=1
+**Watch live: Jerome Powell speaks on monetary policy.**\
+`The comments from the Federal Reserve chair will be his last public statements before the Fed’s policy setting committee meets later this month.`\
+https://nytimes.com/2022/09/08/business/watch-live-jerome-powell-speaks-on-monetary-policy.html?searchResultPosition=1
 
-**Watch Live: Fed Chair Speaks at Cato Institute Conference**\
-`Jerome H. Powell, the chair of the Federal Reserve, delivers remarks ahead of the next Federal Open Market Committee meeting where the Fed is expected to raise rates again.`\
-https://nytimes.com/video/business/economy/100000008522871/jerome-powell-cato-institute.html?searchResultPosition=2
+**How California Officials Are Trying to Keep the Lights On**\
+`The state continues to endure a prolonged heat wave that will test the power grid through Friday.`\
+https://nytimes.com/2022/09/08/us/california-power-grid.html?searchResultPosition=2
 
-**BlackRock Seeks to Defend Its Reputation Over E.S.G. Fight**\
-`The world’s largest money manager fired off a letter to attorneys general in 19 states rebutting claims about its position on climate-minded investing.`\
-https://nytimes.com/2022/09/08/business/dealbook/blackrock-texas-defend-reputation-esg-fight.html?searchResultPosition=3
+**Homes for Sale in New York and New Jersey**\
+`This week’s properties are a four-bedroom in Pleasantville, N.Y., and a six-bedroom in Allendale, N.J.`\
+https://nytimes.com/2022/09/08/realestate/housing-market-near-nyc.html?searchResultPosition=3
 
-**‘True Things’ Review: Escape Routes**\
-`This character study from Harry Wootliff bottles the lightning of a torrid fling.`\
-https://nytimes.com/2022/09/08/movies/true-things-review.html?searchResultPosition=4
+**On the Market in the New York Region**\
+`This week’s properties are a four-bedroom in Pleasantville, N.Y., and a six-bedroom in Allendale, N.J.`\
+https://nytimes.com/slideshow/2022/09/08/realestate/on-the-market-in-the-new-york-region.html?searchResultPosition=4
 
-**The body of a British aid worker captured by Russian proxies showed signs of torture, a Ukrainian official says.**\
-`Paul Urey was charged with mercenary activities by a pro-Russian separatist group, which claimed he died in July from illness and stress.`\
-https://nytimes.com/2022/09/08/world/europe/uk-aid-worker-paul-urey-torture.html?searchResultPosition=5
+**Homes for Sale in Brooklyn and Manhattan**\
+`This week’s properties are in Dumbo, Lenox Hill and Turtle Bay.`\
+https://nytimes.com/2022/09/08/realestate/homes-sale-brooklyn-manhattan.html?searchResultPosition=5
 
-**U.K.’s New Leader Lays Out Sweeping Plan to Cap Energy Prices**\
-`Facing severe economic headwinds, Prime Minister Liz Truss announced emergency measures on her third day in office to freeze gas and electricity rates.`\
-https://nytimes.com/2022/09/08/world/europe/uk-truss-energy.html?searchResultPosition=6
+**On the Market in New York City**\
+`This week’s properties are in Dumbo, Lenox Hill and Turtle Bay.`\
+https://nytimes.com/slideshow/2022/09/08/realestate/on-the-market-in-new-york-city.html?searchResultPosition=6
 
-**159 Films, for Every Taste, Coming This Fall**\
-`From art house to hellhouse and back, here’s a select list of the most anticipated titles this season, including “The Fabelmans,” “White Noise” and more.`\
-https://nytimes.com/2022/09/08/movies/films-this-fall.html?searchResultPosition=7
+**Can Architecture Build Values, Too?**\
+`With designs that strive to enhance ecology, strengthen community and affirm cultural identity, today’s innovative buildings and projects transcend style.`\
+https://nytimes.com/2022/09/08/arts/design/architecture-geffen-hall-egypt-museum-kimbell-rwanda-conservation.html?searchResultPosition=7
 
-**More Than 60 Plays and Musicals to Take In This Fall**\
-`From a stage adaptation of “Wuthering Heights” to a Neil Diamond biomusical, the theater calendar this season stands out for its variety and energy.`\
-https://nytimes.com/2022/09/08/theater/plays-musicals-this-fall.html?searchResultPosition=8
+**The Artist Sculpting a Terra-cotta Forest**\
+`Setsuko Klossowska de Rola’s exhibit in Rome, plus a fashion designer’s collaboration with West Elm and more recommendations from T Magazine.`\
+https://nytimes.com/2022/09/08/t-magazine/setsuko-klossowska-de-rola.html?searchResultPosition=8
 
-**54 Dance Programs, Festivals and More Coming This Fall**\
-`It’s a season of renewal and abundance — and also farewells: Yvonne Rainer makes her last dance and Kevin McKenzie says goodbye to Ballet Theater.`\
-https://nytimes.com/2022/09/08/arts/dance/new-season-dance-list.html?searchResultPosition=9
+**‘CoCocomelon’ Video Game Is a First for Fast-Growing Moonbug**\
+`Video games for toddlers are a promising business — albeit a tricky one, given parental concerns about screen time.`\
+https://nytimes.com/2022/09/08/business/cococomelon-video-game-is-a-first-for-fast-growing-moonbug.html?searchResultPosition=9
 
-**75 Pop and Jazz Albums, Shows and Festivals Coming This Fall**\
-`Major live events (Adele, Rosalía), buzzy debuts (Muni Long, Skullcrusher), energized returns (the Comet Is Coming, Kid Cudi) and a Taylor Swift LP are on the way.`\
-https://nytimes.com/2022/09/08/arts/music/fall-pop-jazz-calendar.html?searchResultPosition=10
+**Chess Replay: You Versus Paschitta**\
+`Take on Frank Paschitta in a recreation of a European Correspondence Chess Championship game in 1994. Solve for the best series of moves.`\
+https://nytimes.com/2022/09/08/crosswords/chess/chess-replay-you-versus-paschitta.html?searchResultPosition=10
 
