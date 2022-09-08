@@ -1,5 +1,5 @@
 **The Death of Queen Elizabeth: ‘We Shall Not Know Her Like Again’**\
-`Early reaction to the death of Queen Elizabeth. Also: Germany’s “moral failure”; women’s equality; Moosewood memories; homage to trees.`\
+`Early reaction to the end of the 70-year monarchy. Also: Germany’s “moral failure”; women’s equality; Moosewood memories; homage to trees.`\
 https://nytimes.com/2022/09/08/opinion/letters/queen-elizabeth-dead.html?searchResultPosition=1
 
 **How Much Watching Time Do You Have This Weekend?**\
