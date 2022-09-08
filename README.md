@@ -14,27 +14,27 @@ https://nytimes.com/2022/09/08/business/dealbook/blackrock-texas-defend-reputati
 `This character study from Harry Wootliff bottles the lightning of a torrid fling.`\
 https://nytimes.com/2022/09/08/movies/true-things-review.html?searchResultPosition=4
 
-**The queen remains at Balmoral Castle, and her doctors advised her to rest.**\
-`The queen, who is 96, has not been hospitalized, Buckingham Palace said in a statement.`\
-https://nytimes.com/2022/09/08/world/europe/queen-elizabeth-ill-health.html?searchResultPosition=5
-
 **The body of a British aid worker captured by Russian proxies showed signs of torture, a Ukrainian official says.**\
 `Paul Urey was charged with mercenary activities by a pro-Russian separatist group, which claimed he died in July from illness and stress.`\
-https://nytimes.com/2022/09/08/world/europe/uk-aid-worker-paul-urey-torture.html?searchResultPosition=6
+https://nytimes.com/2022/09/08/world/europe/uk-aid-worker-paul-urey-torture.html?searchResultPosition=5
 
 **U.K.’s New Leader Lays Out Sweeping Plan to Cap Energy Prices**\
 `Facing severe economic headwinds, Prime Minister Liz Truss announced emergency measures on her third day in office to freeze gas and electricity rates.`\
-https://nytimes.com/2022/09/08/world/europe/uk-truss-energy.html?searchResultPosition=7
+https://nytimes.com/2022/09/08/world/europe/uk-truss-energy.html?searchResultPosition=6
 
 **159 Films, for Every Taste, Coming This Fall**\
 `From art house to hellhouse and back, here’s a select list of the most anticipated titles this season, including “The Fabelmans,” “White Noise” and more.`\
-https://nytimes.com/2022/09/08/movies/films-this-fall.html?searchResultPosition=8
+https://nytimes.com/2022/09/08/movies/films-this-fall.html?searchResultPosition=7
 
 **More Than 60 Plays and Musicals to Take In This Fall**\
 `From a stage adaptation of “Wuthering Heights” to a Neil Diamond biomusical, the theater calendar this season stands out for its variety and energy.`\
-https://nytimes.com/2022/09/08/theater/plays-musicals-this-fall.html?searchResultPosition=9
+https://nytimes.com/2022/09/08/theater/plays-musicals-this-fall.html?searchResultPosition=8
 
 **54 Dance Programs, Festivals and More Coming This Fall**\
 `It’s a season of renewal and abundance — and also farewells: Yvonne Rainer makes her last dance and Kevin McKenzie says goodbye to Ballet Theater.`\
-https://nytimes.com/2022/09/08/arts/dance/new-season-dance-list.html?searchResultPosition=10
+https://nytimes.com/2022/09/08/arts/dance/new-season-dance-list.html?searchResultPosition=9
+
+**75 Pop and Jazz Albums, Shows and Festivals Coming This Fall**\
+`Major live events (Adele, Rosalía), buzzy debuts (Muni Long, Skullcrusher), energized returns (the Comet Is Coming, Kid Cudi) and a Taylor Swift LP are on the way.`\
+https://nytimes.com/2022/09/08/arts/music/fall-pop-jazz-calendar.html?searchResultPosition=10
 
