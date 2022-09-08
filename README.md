@@ -1,40 +1,40 @@
-**Covid’s Toll on Native Americans**\
-`Covid’s death toll in Indigenous communities has no modern precedent.`\
-https://nytimes.com/2022/09/08/briefing/covid-death-toll-native-americans.html?searchResultPosition=1
+**Liz Truss, New U.K. Leader, Lays Out Sweeping Plan to Cap Energy Prices**\
+`Facing severe economic headwinds, the prime minister, on her third day in office, announced emergency measures to freeze gas and electricity rates.`\
+https://nytimes.com/2022/09/08/world/europe/uk-truss-energy.html?searchResultPosition=1
 
-**China’s Zero-Covid Approach Explained**\
-`The country where the coronavirus first emerged is committed to going to great lengths to stop its spread.`\
-https://nytimes.com/2022/09/08/world/asia/china-zero-covid-explainer.html?searchResultPosition=2
+**159 Films, for Every Taste, Coming This Fall**\
+`From art house to hellhouse and back, here’s a select list of the most anticipated titles this season, including “The Fabelmans,” “White Noise” and more.`\
+https://nytimes.com/2022/09/08/movies/films-this-fall.html?searchResultPosition=2
 
-**Is California Jump-Starting the Electric Vehicle Revolution?**\
-`A new rule aiming to reduce emissions could set off a major shift in the automobile industry.`\
-https://nytimes.com/2022/09/08/podcasts/the-daily/california-electric-vehicles.html?searchResultPosition=3
+**More Than 60 Plays and Musicals to Take In This Fall**\
+`From a stage adaptation of “Wuthering Heights” to a Neil Diamond biomusical, the theater calendar this season stands out for its variety and energy.`\
+https://nytimes.com/2022/09/08/theater/plays-musicals-this-fall.html?searchResultPosition=3
 
-**Twilight of Entrepreneurs in China as More Leave the Country**\
-`Two of China’s best-known entrepreneurs, Pan Shiyi and Zhang Xin, stepped down from their top jobs at the real estate development company they built.`\
-https://nytimes.com/2022/09/08/business/soho-china-entrepreneurs.html?searchResultPosition=4
+**54 Dance Programs, Festivals and More Coming This Fall**\
+`It’s a season of renewal and abundance — and also farewells: Yvonne Rainer makes her last dance and Kevin McKenzie says goodbye to Ballet Theater.`\
+https://nytimes.com/2022/09/08/arts/dance/new-season-dance-list.html?searchResultPosition=4
 
-**To Probe Tornado Secrets, These Scientists Stalk Supercells**\
-`We went on the road with scientists crisscrossing the Great Plains, trying to learn how to tell which storms with tornado potential will actually spawn them.`\
-https://nytimes.com/2022/09/08/us/tornadoes-supercells-weather.html?searchResultPosition=5
+**75 Pop and Jazz Albums, Shows and Festivals Coming This Fall**\
+`Major live events (Adele, Rosalía), buzzy debuts (Muni Long, Skullcrusher), energized returns (the Comet Is Coming, Kid Cudi) and a Taylor Swift LP are on the way.`\
+https://nytimes.com/2022/09/08/arts/music/fall-pop-jazz-calendar.html?searchResultPosition=5
 
-**With Government Paralyzed and Militias Fighting, Iraq’s Instability Deepens**\
-`Politicians have failed to form a new government nearly a year after the last elections. Baghdad just saw its worst militia clashes in years. And despite vast oil wealth, the state can’t provide basic services.`\
-https://nytimes.com/2022/09/08/world/middleeast/iraq-failed-state-militias.html?searchResultPosition=6
+**Classical Music and Opera This Fall: 59 Programs, Premieres and More**\
+`Among the highlights: the reopening of David Geffen Hall, the premiere of ‘The Hours’ at the Met and visits from the Berlin and Los Angeles Philharmonics.`\
+https://nytimes.com/2022/09/08/arts/music/classical-music-opera-fall-season.html?searchResultPosition=6
 
-**33 Works of Fiction and Poetry Coming This Fall**\
-`Cormac McCarthy will publish two new novels; Alan Moore, the author of “Watchmen,” is releasing a story collection; and books from Celeste Ng, Andrew Sean Greer, Elizabeth Strout are on the way.`\
-https://nytimes.com/2022/09/08/books/new-fiction-fall-2022.html?searchResultPosition=7
+**41 TV Shows to Watch This Fall**\
+`Noteworthy premieres include new seasons of buzzy hits (“Abbott Elementary,” “The Handmaid’s Tale”), reboots and revivals (“Quantum Leap,” “Willow”) and more.`\
+https://nytimes.com/2022/09/08/arts/television/41-tv-shows-this-fall.html?searchResultPosition=7
 
-**The Best Red Carpet of the Year**\
-`Including a new group of fashion superstars.`\
-https://nytimes.com/2022/09/08/style/venice-film-festival-best-dressed.html?searchResultPosition=8
+**More Than 90 Art Shows and Exhibitions to See This Fall**\
+`Highlights include grand retrospectives of Alex Katz and Wolfgang Tillmans, a titanic assembly of van Gogh and a celebration of the pioneering Just Above Midtown gallery.`\
+https://nytimes.com/2022/09/08/arts/design/art-design-fall-season.html?searchResultPosition=8
 
-**When Weird Al Yankovic Met Daniel Radcliffe, Things Got … Well, You Know**\
-`For their decidedly nonfactual rock biopic, the pop-music parodist and the “Harry Potter” star found themselves on the same wavelength.`\
-https://nytimes.com/2022/09/08/movies/daniel-radcliffe-weird-al-yankovic-movie.html?searchResultPosition=9
+**The 1975’s Matty Healy Is Still Trying to Be Funny, Sincerely**\
+`Produced with Jack Antonoff, the British pop-rock band’s fifth album, due in October, is an attempt to focus the group’s infamous sprawl.`\
+https://nytimes.com/2022/09/08/arts/music/1975-matty-healy-being-funny-in-a-foreign-language.html?searchResultPosition=9
 
-**What Antarctica’s Disintegration Asks of Us**\
-`What if we saw Antarctica as a harbinger of transformation rather than doom?`\
-https://nytimes.com/2022/09/08/opinion/environment/antarctica-ice-sheet-climate-change.html?searchResultPosition=10
+**‘The Bengali’ Review: A Woman Reconnecting to Her Roots**\
+`In this travelogue-meets-mystery documentary, a granddaughter seeks out her grandfather’s past.`\
+https://nytimes.com/2022/09/08/movies/the-bengali-review.html?searchResultPosition=10
 
