@@ -1,40 +1,40 @@
-**A Last Taste of Summer Theater, as Paris Heads Back to Work**\
-`As offices and schools reopen, ParisOffFestival brings a carnival atmosphere to an area of low-income housing in the city.`\
-https://nytimes.com/2022/09/08/theater/parisofffestival.html?searchResultPosition=1
+**To Probe Tornado Secrets, These Scientists Stalk Supercells**\
+`We went on the road with scientists crisscrossing the Great Plains, trying to learn how to tell which storms with tornado potential will actually spawn them.`\
+https://nytimes.com/2022/09/08/us/tornadoes-supercells-weather.html?searchResultPosition=1
 
-**Shock Waves Hit the Global Economy, Posing Grave Risk to Europe**\
-`The threat to Europe’s industrial might and living standards is particularly acute as policymakers race to decouple the continent from Russia’s power sources.`\
-https://nytimes.com/2022/09/08/business/economy/russia-ukraine-global-economy.html?searchResultPosition=2
+**With Government Paralyzed and Militias Fighting, Iraq’s Instability Deepens**\
+`Politicians have failed to form a new government nearly a year after the last elections. Baghdad just saw its worst militia clashes in years. And despite vast oil wealth, the state can’t provide basic services.`\
+https://nytimes.com/2022/09/08/world/middleeast/iraq-failed-state-militias.html?searchResultPosition=2
 
-**Alcaraz Leaves It (Very, Very) Late in Defeating Sinner at U.S. Open**\
-`The Spaniard needed five sets and more than five hours to reach the semifinals in a match that ended shortly before 3 a.m. in New York.`\
-https://nytimes.com/2022/09/08/sports/tennis/alcarez-sinner-tiafoe-us-open.html?searchResultPosition=3
+**33 Works of Fiction and Poetry Coming This Fall**\
+`Cormac McCarthy will publish two new novels; Alan Moore, the author of “Watchmen,” is releasing a story collection; and books from Celeste Ng, Andrew Sean Greer, Elizabeth Strout are on the way.`\
+https://nytimes.com/2022/09/08/books/new-fiction-fall-2022.html?searchResultPosition=3
 
-**Fire at a Karaoke Bar in Vietnam Kills 33**\
-`An electrical problem set off the latest in a string of fatal blazes at entertainment venues in the country.`\
-https://nytimes.com/2022/09/08/world/asia/vietnam-fire-karaoke-bar.html?searchResultPosition=4
+**The Best Red Carpet of the Year**\
+`Including a new group of fashion superstars.`\
+https://nytimes.com/2022/09/08/style/venice-film-festival-best-dressed.html?searchResultPosition=4
 
-**Solomon Islands’ Leader, a Friend of China, Gets an Election Delayed**\
-`The prime minister claims the country can’t afford to hold national elections next year. His opponents see a power grab linked to Beijing’s influence.`\
-https://nytimes.com/2022/09/08/world/asia/solomon-islands-election-delay.html?searchResultPosition=5
+**When Weird Al Yankovic Met Daniel Radcliffe, Things Got … Well, You Know**\
+`For their decidedly nonfactual rock biopic, the pop-music parodist and the “Harry Potter” star found themselves on the same wavelength.`\
+https://nytimes.com/2022/09/08/movies/daniel-radcliffe-weird-al-yankovic-movie.html?searchResultPosition=5
 
-**The Day the Queen Went to Bloomie’s**\
-`It was where Sean Combs got his start in fashion, Sarah Jessica Parker bought her Calvins and André Leon Talley rode the escalator with Givenchy: memories from 150 years at Bloomingdale’s.`\
-https://nytimes.com/2022/09/08/style/the-day-the-queen-went-to-bloomies.html?searchResultPosition=6
+**What Antarctica’s Disintegration Asks of Us**\
+`What if we saw Antarctica as a harbinger of transformation rather than doom?`\
+https://nytimes.com/2022/09/08/opinion/environment/antarctica-ice-sheet-climate-change.html?searchResultPosition=6
 
-**Why a Narrow, Hard-Right G.O.P. House Majority Could Spell Chaos**\
-`Kevin McCarthy, who would become speaker if Republicans retake the chamber, could face a series of headaches. But beyond him, the nation might struggle to avoid a damaging default on its debt.`\
-https://nytimes.com/2022/09/08/us/politics/republican-house-majority-midterms.html?searchResultPosition=7
+**When Teens Find Misinformation, These Teachers Are Ready**\
+`Media literacy efforts are intensifying, targeting students as they approach voting age. But some educators struggle “to push through that apathy.”`\
+https://nytimes.com/2022/09/08/technology/misinformation-students-media-literacy.html?searchResultPosition=7
 
-**Everybody Has a Hair Complaint**\
-`Olaplex would like you to think it can fix all of them with what it refers to as a “bond building” regimen. The brand has a cultish following and some unhappy customers.`\
-https://nytimes.com/2022/09/08/style/everybody-has-a-hair-complaint.html?searchResultPosition=8
+**In Maryland, Frances Tiafoe’s Former Home Rallies Behind Him**\
+`At the junior tennis club in College Park that gave Tiafoe his start and where he still trains, coaches and aspiring players cheer him on, and never stop working.`\
+https://nytimes.com/2022/09/08/sports/tennis/tiafoe-us-open-maryland-jtcc.html?searchResultPosition=8
 
-**Orange Ball**\
-`What do you think this image is communicating?`\
-https://nytimes.com/2022/09/08/learning/orange-ball.html?searchResultPosition=9
+**15 Memoirs and Biographies to Read This Fall**\
+`New autobiographies from Jemele Hill, Matthew Perry and Hua Hsu are in the mix, along with books about Martha Graham, Agatha Christie and more.`\
+https://nytimes.com/2022/09/08/books/new-memoirs-biographies-fall-2022.html?searchResultPosition=9
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/09/08/crosswords/spelling-bee-forum.html?searchResultPosition=10
+**How a Veteran Coach Learned to Stop Yelling and Start Collaborating**\
+`A longtime Texas high school football coach has spent this season coaching a German team. The experience helped him see that he needed to change his coaching style.`\
+https://nytimes.com/2022/09/08/sports/football/german-football-coaching.html?searchResultPosition=10
 
