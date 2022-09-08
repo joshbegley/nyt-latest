@@ -2,7 +2,7 @@
 `Jerome H. Powell, the chair of the Federal Reserve, delivers remarks ahead of the next Federal Open Market Committee meeting where the Fed is expected to raise rates again.`\
 https://nytimes.com/video/business/economy/100000008522871/jerome-powell-cato-institute.html?searchResultPosition=1
 
-**BlackRock Seeks to Defends Its Reputation Over E.S.G. Fight**\
+**BlackRock Seeks to Defend Its Reputation Over E.S.G. Fight**\
 `The world’s largest money manager fired off a letter to attorneys general in 19 states rebutting claims about its position on climate-minded investing.`\
 https://nytimes.com/2022/09/08/business/dealbook/blackrock-texas-defend-reputation-esg-fight.html?searchResultPosition=2
 
