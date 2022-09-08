@@ -4,7 +4,7 @@ https://nytimes.com/2022/09/08/us/politics/trump-save-america-pac-subpoenas.html
 
 **David Shor, a Data Guru for Democrats, Throws One Last Bash**\
 `Political operatives, techies and the nightlife crowd mix at a Burning Man-style party hosted by an influential strategist who gained new friends and enemies after a tweet.`\
-https://nytimes.com/2022/09/08/style/david-shor-a-data-guru-for-democrats-throws-one-last-bash.html?searchResultPosition=2
+https://nytimes.com/2022/09/08/style/david-shor-democrats.html?searchResultPosition=2
 
 **EY, the accounting and consulting firm, will split into two businesses.**\
 `The firm, commonly known as Ernst & Young, announced a plan to separate into two companies, one that does mainly auditing work and the other that does consulting and advisory work.`\
