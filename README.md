@@ -18,7 +18,7 @@ https://nytimes.com/2022/09/08/us/politics/queen-presidents-history-biden-trump.
 `A state board had previously said the issue could not appear on the ballot because of word spacing problems on the petitions.`\
 https://nytimes.com/2022/09/08/us/michigan-supreme-court-abortion.html?searchResultPosition=5
 
-**The Queen and Her 13 Presidents**\
+**The Queen and Her Presidents**\
 `Six of the American leaders she met during her long life offer remembrances of her and their encounters.`\
 https://nytimes.com/2022/09/08/us/politics/queen-elizabeth-presidents-biden-trump.html?searchResultPosition=6
 
