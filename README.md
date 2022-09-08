@@ -36,5 +36,5 @@ https://nytimes.com/2022/09/08/t-magazine/paula-cooper-gallery.html?searchResult
 
 **Failure to Slow Warming Will Set Off Climate ‘Tipping Points,’ Scientists Say**\
 `As global warming passes certain limits, dire changes will probably become irreversible, the researchers said, including the loss of polar ice sheets and the death of coral reefs.`\
-https://nytimes.com/2022/09/08/climate/tipping-point-research-warming.html?searchResultPosition=10
+https://nytimes.com/2022/09/08/climate/global-warming-climate-tipping-point.html?searchResultPosition=10
 
