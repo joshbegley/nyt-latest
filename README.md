@@ -26,8 +26,8 @@ https://nytimes.com/2022/09/07/theater/kate-review.html?searchResultPosition=6
 `A federal judge in Texas found that the Affordable Care Act’s process for determining what kinds of preventive care should be covered by insurance violates the Constitution.`\
 https://nytimes.com/2022/09/07/us/politics/aca-preventive-care-texas.html?searchResultPosition=7
 
-**Politician Arrested in Las Vegas Reporter’s Stabbing Death, Newspaper Says**\
-`The Las Vegas Metropolitan Police Department would confirm only that an unnamed suspect in the killing of Jeff German, a veteran investigative reporter for The Las Vegas Review-Journal, had been taken into custody.`\
+**County Official Arrested in Las Vegas Reporter’s Stabbing Death, Prosecutor Says**\
+`Robert Telles, the Clark County public administrator, was taken into custody in the killing of Jeff German, a reporter at The Las Vegas Review-Journal, the district attorney said.`\
 https://nytimes.com/2022/09/07/us/journalist-stabbing-las-vegas.html?searchResultPosition=8
 
 **Pakistan’s Vulnerability to Disaster Was Through the Roof. Then Came the Floods.**\
