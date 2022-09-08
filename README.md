@@ -1,6 +1,6 @@
 **Mercedes and Rivian Plan to Make Vans Together in Europe**\
 `The agreement is a rare example of cooperation between a traditional carmaker and an upstart.`\
-https://nytimes.com/2022/09/08/business/energy-environment/mercedes-and-rivian-plan-to-make-vans-together-in-europe.html?searchResultPosition=1
+https://nytimes.com/2022/09/08/business/energy-environment/mercedes-rivian-vans-europe.html?searchResultPosition=1
 
 **As Pennsylvania Senate Race Tightens, Oz Sharpens Attacks on Fetterman**\
 `Dr. Mehmet Oz is seeking to reboot his campaign against Lt. Gov. John Fetterman with a pair of pointed attack lines, including about his rival’s “second chances” for felons.`\
