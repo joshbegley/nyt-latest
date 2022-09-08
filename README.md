@@ -1,5 +1,5 @@
-**Memphis Police Search for Suspect in String of Shootings in City**\
-`The local authorities urged people in the area to stay inside and identified a suspect, Ezekiel Kelly, 19, who they said was “armed and dangerous.”`\
+**Memphis Police Capture Suspect in a 5-Hour String of Shootings**\
+`The authorities urged residents to stay off the streets into the evening as they searched for an “armed and dangerous” 19-year-old who they said had carried out multiple shootings.`\
 https://nytimes.com/2022/09/07/us/memphis-shooter.html?searchResultPosition=1
 
 **Love of Texting**\
