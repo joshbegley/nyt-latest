@@ -22,7 +22,7 @@ https://nytimes.com/2022/09/08/nyregion/teen-killed-downtown-brooklyn.html?searc
 `Good news, book lovers: This is a great season to be a reader. Let us help you find your next book.`\
 https://nytimes.com/interactive/2022/books/fall-books.html?searchResultPosition=6
 
-**Trump’s Postelection Fund-Raising Comes Under Scrutiny by Justice Dept.**\
+**Trump’s Post-Election Fund-Raising Comes Under Scrutiny by Justice Dept.**\
 `A federal grand jury has issued subpoenas seeking information about Save America PAC, which was formed as Donald J. Trump promoted baseless assertions about election fraud.`\
 https://nytimes.com/2022/09/08/us/politics/trump-save-america-pac-subpoenas.html?searchResultPosition=7
 
