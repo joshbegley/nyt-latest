@@ -20,7 +20,7 @@ https://nytimes.com/2022/09/08/well/live/monkeypox-immunity-reinfection.html?sea
 
 **Ons Jabeur Will Play Iga Swiatek for the U.S. Open Women’s Singles Title**\
 `Jabeur, who lost this year’s Wimbledon final, will get another chance to win her first major title after beating Caroline Garcia in straight sets. Swiatek will play for her third Grand Slam title.`\
-https://nytimes.com/2022/09/08/sports/tennis/jabeur-swiatek-us-open.html?searchResultPosition=6
+https://nytimes.com/2022/09/08/sports/tennis/jabeur-swiatek-us-open-finals.html?searchResultPosition=6
 
 **Intense California Wildfire Begins Creating Its Own Weather**\
 `The blaze forced new evacuations of rural communities northeast of Sacramento.`\
