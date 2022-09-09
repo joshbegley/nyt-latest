@@ -20,7 +20,7 @@ https://nytimes.com/2022/09/09/business/dealbook/guns-sales-code-iso.html?search
 
 **Galileo Forgery’s Trail Leads to Web of Mistresses and Manuscripts**\
 `The unmasking of a fake Galileo manuscript this summer brought renewed attention to a colorful, prolific early-20th-century forger named Tobia Nicotra.`\
-https://nytimes.com/2022/09/09/arts/music/forger-galileo.html?searchResultPosition=6
+https://nytimes.com/2022/09/09/arts/music/galileo-manuscript-forger.html?searchResultPosition=6
 
 **In Ohio, Biden Says Democrats Have Started a Manufacturing Revival**\
 `President Biden attended the groundbreaking for an Intel computer chip factory in a heavily Republican part of Ohio, an effort to focus voter attention on parts of the economy that are improving.`\
