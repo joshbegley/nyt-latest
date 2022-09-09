@@ -18,9 +18,9 @@ https://nytimes.com/2022/09/08/movies/about-fate-review.html?searchResultPositio
 `Experts weigh in on how long immunity lasts after an infection — or vaccination.`\
 https://nytimes.com/2022/09/08/well/live/monkeypox-immunity-reinfection.html?searchResultPosition=5
 
-**At the U.S. Open, Ons Jabeur Cruises to the Women’s Final**\
-`Jabeur, who lost this year’s Wimbledon final, will get another chance to win her first Grand Slam singles title after beating Caroline Garcia of France in straight sets.`\
-https://nytimes.com/2022/09/08/sports/tennis/us-open-womens-semifinals.html?searchResultPosition=6
+**Ons Jabeur Will Play Iga Swiatek for the U.S. Open Women’s Singles Title**\
+`Jabeur, who lost this year’s Wimbledon final, will get another chance to win her first major title after beating Caroline Garcia in straight sets. Swiatek will play for her third Grand Slam title.`\
+https://nytimes.com/2022/09/08/sports/tennis/jabeur-swiatek-us-open.html?searchResultPosition=6
 
 **Intense California Wildfire Begins Creating Its Own Weather**\
 `The blaze forced new evacuations of rural communities northeast of Sacramento.`\
