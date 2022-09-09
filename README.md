@@ -18,7 +18,7 @@ https://nytimes.com/2022/09/09/business/dealbook/britain-royal-family-wealth.htm
 `Mr. Navalny said on Twitter that the prison administration had accused him of committing unspecified crimes by communicating with “accomplices through lawyers.”`\
 https://nytimes.com/2022/09/09/world/europe/russia-opposition-navalny-attorney.html?searchResultPosition=5
 
-**Remember ‘Avatar’? Neither Do We. Catch Up Before the Sequel Arrives**\
+**Remember ‘Avatar’? Neither Do We. Catch Up Before the Sequel Arrives.**\
 `After 13 years, James Cameron’s sequel, “Avatar: The Way of Water,” is finally opening in December. Here’s everything you need to know.`\
 https://nytimes.com/2022/09/09/movies/avatar-the-way-of-water-explainer.html?searchResultPosition=6
 
