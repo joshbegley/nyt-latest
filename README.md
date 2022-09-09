@@ -1,5 +1,5 @@
 **Queen Elizabeth, and the Power and Limitations of Inspiring Women**\
-`Fascination with figureheads is one thing, prompting change is another`\
+`Changing minds can be powerful, but history shows that changing societies takes more.`\
 https://nytimes.com/2022/09/09/world/europe/queen-elizabeth-women.html?searchResultPosition=1
 
 **Mr. Mayor, Who Are You Wearing?**\
@@ -20,7 +20,7 @@ https://nytimes.com/2022/09/09/world/europe/queen-elizabeth-death-balmoral.html?
 
 **Watch: King Charles III Delivers Inaugural Address**\
 `Britain’s new king addresses the nation a day after the death of his mother, Queen Elizabeth II. His remarks were pre-recorded.`\
-https://nytimes.com/video/world/europe/100000008526168/king-charles-speech.html?searchResultPosition=6
+https://nytimes.com/video/embedded/world/europe/100000008526168/king-charles-speech.html?searchResultPosition=6
 
 **The Best of Late Night This Week 🌙**\
 `After a summer full of breaks, the late-night hosts returned just in time to talk about the documents the F.B.I. found at Mar-a-Lago. Here’s what they had to say.`\
