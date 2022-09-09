@@ -4,7 +4,7 @@ https://nytimes.com/2022/09/09/arts/el-anatsui-bernardine-evaristo-rolex-mentor.
 
 **Two Top Trump Political Aides Among Those Subpoenaed in Jan. 6 Case**\
 `Stephen Miller, a senior policy adviser, and Brian Jack, who served as White House political director, are among those who received requests for information this week from a federal grand jury.`\
-https://nytimes.com/2022/09/09/us/politics/jan-6-trump-political-aides-subpoenae.html?searchResultPosition=2
+https://nytimes.com/2022/09/09/us/politics/jan-6-trump-political-aides-subpoena.html?searchResultPosition=2
 
 **Why the U.S. Is Being Ominously Compared to Hungary and Turkey**\
 `A conversation with Max Fisher, who covers the decline of democracy around the world.`\
