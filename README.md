@@ -10,8 +10,8 @@ https://nytimes.com/2022/09/09/briefing/queen-elizabeth-reign-life-death.html?se
 `“I don’t think we’ll ever have the security again that we had with her,” said one Australian about the death of Queen Elizabeth II.`\
 https://nytimes.com/2022/09/09/world/australia/for-australians-too-its-the-end-of-an-era.html?searchResultPosition=3
 
-**Many sports events are canceled out of respect for the queen.**\
-`After the death of Queen Elizabeth II, the British government left the decision over whether to postpone or cancel events up to individual sports organizations.`\
+**England’s Premier League postpones its weekend games after the queen’s death.**\
+`The league was one of many sports organizations in Britain to alter its schedule after the death of Queen Elizabeth II.`\
 https://nytimes.com/2022/09/09/world/europe/sports-soccer-canceled-queen-death.html?searchResultPosition=4
 
 **How Queen Elizabeth II Saved the Monarchy**\
