@@ -4,7 +4,7 @@ https://nytimes.com/2022/09/09/sports/baseball/minor-league-union.html?searchRes
 
 **Californians Unsure if Tropical Storm Will Be Friend or Foe**\
 `After enduring a historic heat wave and deadly wildfires, the rare storm could bring welcome relief — unless it causes floods or mudslides.`\
-https://nytimes.com/2022/09/09/us/californians-unsure-if-tropical-storm-will-be-friend-or-foe.html?searchResultPosition=2
+https://nytimes.com/2022/09/09/us/california-tropical-storm-hurricane.html?searchResultPosition=2
 
 **Mentors Named for Next Class in Rolex Arts Initiative**\
 `El Anatsui, Bernardine Evaristo and Dianne Reeves are among those pairing up for the program.`\
