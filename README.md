@@ -1,40 +1,40 @@
-**Connecticut Sun Complete Comeback to Reach W.N.B.A. Finals**\
-`Connecticut forced a decisive Game 5, then beat the reigning champion Sky and set up a finals matchup with the Las Vegas Aces.`\
-https://nytimes.com/2022/09/08/sports/basketball/connecticut-sun-chicago-sky-wnba-finals.html?searchResultPosition=1
+**Magic Mountains: Novels of Appalachia From Natalie Lloyd and David Barclay Moore**\
+`In “Hummingbird” and “Holler of the Fireflies,” a girl with brittle bones and a boy plagued by racist tensions seek healing in the hills.`\
+https://nytimes.com/2022/09/09/books/review/david-barclay-moore-holler-of-the-fireflies-natalie-lloyd-hummingbird.html?searchResultPosition=1
 
-**Variety: Acrostic**\
-`Emily Cox and Henry Rathvon make us feel better about watching television.`\
-https://nytimes.com/2022/09/08/crosswords/variety-acrostic.html?searchResultPosition=2
+**As Crises Mount, Europe Turns Once Again to Big Spending**\
+`The standoff with Russia over Ukraine and rising energy prices are rapidly overturning European economic orthodoxy, with barely a peep of dissent.`\
+https://nytimes.com/2022/09/09/world/europe/energy-prices-europe-austerity.html?searchResultPosition=2
 
-**First Pass Friday: Work the Crossings, Luke**\
-`Brandon Koppy finds a place for everything.`\
-https://nytimes.com/2022/09/08/crosswords/daily-puzzle-2022-09-09.html?searchResultPosition=3
+**‘We Deserve Gold Medals’**\
+`Fifty years after a painful, and controversial, loss to the Soviet Union in the 1972 Olympics, some American men’s basketball players still hope to be declared the rightful winners.`\
+https://nytimes.com/2022/09/09/sports/olympics/usa-soviet-union-1972-olympics-basketball.html?searchResultPosition=3
 
-**‘About Fate’ Review: Love the One You’re With?**\
-`Thomas Mann’s beguiling performance drives this Emma Roberts vehicle, but the romantic comedy creaks under the weight of its coincidences.`\
-https://nytimes.com/2022/09/08/movies/about-fate-review.html?searchResultPosition=4
+**Corrections: Sept. 9, 2022**\
+`Corrections that appeared in print on Friday, Sept. 9, 2022.`\
+https://nytimes.com/2022/09/09/pageoneplus/corrections-sept-9-2022.html?searchResultPosition=4
 
-**Can you get reinfected with monkeypox?**\
-`Experts weigh in on how long immunity lasts after an infection — or vaccination.`\
-https://nytimes.com/2022/09/08/well/live/monkeypox-immunity-reinfection.html?searchResultPosition=5
+**Quotation of the Day: Elizabeth II, Whose 7-Decade Reign Linked Generations, Dies at 96**\
+`Quotation of the Day for Friday, Sept. 9, 2022.`\
+https://nytimes.com/2022/09/09/todayspaper/quotation-of-the-day-elizabeth-ii-whose-7-decade-reign-linked-generations-dies-at-96.html?searchResultPosition=5
 
-**Ons Jabeur Will Play Iga Swiatek for the U.S. Open Women’s Singles Title**\
-`Jabeur, who lost this year’s Wimbledon final, will get another chance to win her first major title after beating Caroline Garcia in straight sets. Swiatek will play for her third Grand Slam title.`\
-https://nytimes.com/2022/09/08/sports/tennis/jabeur-swiatek-us-open-finals.html?searchResultPosition=6
+**No Longer Running From My Emotions**\
+`At 19, I rejected his romantic gestures because they were too intense. At 27, I relished intensity.`\
+https://nytimes.com/2022/09/09/style/modern-love-no-longer-running-from-my-emotions.html?searchResultPosition=6
 
-**Intense California Wildfire Begins Creating Its Own Weather**\
-`The blaze forced new evacuations of rural communities northeast of Sacramento.`\
-https://nytimes.com/2022/09/08/us/mosquito-fire-california.html?searchResultPosition=7
+**Hitting a High Note on and Off the Opera Stage**\
+`Soon after Jordan Rutter and Vincent Covatto met at a Halloween drag gala, the two, both members of New York City’s opera scene, found their paths crossing at the National Opera Center in Manhattan.`\
+https://nytimes.com/2022/09/09/style/jordan-rutter-vincent-covatto-wedding.html?searchResultPosition=7
 
-**Lesson Plan: The Life and Legacy of Queen Elizabeth II**\
-`Britain’s longest-reigning monarch died on Thursday at the age of 96. Learn about her seven-decade reign, as well as what is next for the British monarchy.`\
-https://nytimes.com/2022/09/08/learning/lesson-plans/lesson-plan-the-life-and-legacy-of-queen-elizabeth-ii.html?searchResultPosition=8
+**If at First You Don’t Succeed at Love, Try an Instagram DM**\
+`When Carly Stein and Oliver Kremer matched on Hinge, they didn’t make it past the messaging stage before she ghosted. But he persisted.`\
+https://nytimes.com/2022/09/09/style/carly-stein-oliver-kremer-wedding.html?searchResultPosition=8
 
-**Breast Implants May Be Linked to Additional Cancers, F.D.A. Warns**\
-`On rare occasions, new cancers have been found in women with both textured and smooth implants, filled with saline or silicone, federal health officials said.`\
-https://nytimes.com/2022/09/08/health/breast-implants-cancer.html?searchResultPosition=9
+**A Two-Week Trip That Took Them Out of the Friend Zone**\
+`Jennifer Noinaj and Perry Chu, part of the same social group for years, began to see each other in a more romantic light while competing online.`\
+https://nytimes.com/2022/09/09/style/jennifer-noinaj-perry-chu-wedding.html?searchResultPosition=9
 
-**When You Can’t Stand the Sound of Chewing (or Crunching, or Sniffling)**\
-`Misophonia, a little-known syndrome, is characterized by strong negative emotional reactions to certain sounds or visual cues.`\
-https://nytimes.com/2022/09/08/well/misophonia-chewing-noise-treatment.html?searchResultPosition=10
+**The Feelings Were There, Even When Words Were Not**\
+`After talking to Abrielle Moore for weeks, Kobina Johnson got her number and then sent a one-word message: “hey.” When he learned it upset her, he sent another (longer) note that led to a first date.`\
+https://nytimes.com/2022/09/09/style/abrielle-moore-kobina-johnson-wedding.html?searchResultPosition=10
 
