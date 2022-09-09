@@ -27,7 +27,7 @@ https://nytimes.com/2022/09/08/health/breast-implants-cancer.html?searchResultPo
 https://nytimes.com/2022/09/08/well/misophonia-chewing-noise-treatment.html?searchResultPosition=7
 
 **The Audacity of Big Foe**\
-`Francis Tiafoe’s rise has been the talk of the U.S. Open, but his path to the pros is all but unrepeatable for other young Black men hoping for a career in tennis.`\
+`Frances Tiafoe’s rise has been the talk of the U.S. Open, but his path to the pros is all but unrepeatable for other young Black men hoping for a career in tennis.`\
 https://nytimes.com/2022/09/08/sports/tennis/frances-tiafoe-black-tennis.html?searchResultPosition=8
 
 **After a Legal Fight, Oberlin Says It Will Pay $36.59 Million to a Local Bakery**\
