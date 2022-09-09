@@ -1,6 +1,6 @@
 **A California County Braces for Fire, Floods and Mudslides, All at Once**\
 `A storm threatens to bring heavy rain and strong winds to the state’s largest wildfire, creating a recipe for a compound disaster in Southern California.`\
-https://nytimes.com/2022/09/09/us/california-riverside-fire-floods-mudslides.html?searchResultPosition=1
+https://nytimes.com/2022/09/09/us/fairview-fire-california.html?searchResultPosition=1
 
 **The Queen in New York, From a Ferryboat to Bloomingdale’s**\
 `Queen Elizabeth II made three visits to New York City during her 70-year reign.`\
