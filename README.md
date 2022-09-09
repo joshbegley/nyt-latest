@@ -19,7 +19,7 @@ https://nytimes.com/2022/09/09/world/europe/un-human-rights-chief.html?searchRes
 https://nytimes.com/2022/09/09/briefing/queen-elizabeth-reign-life-death.html?searchResultPosition=5
 
 **Buckingham Palace provides details about tributes to the queen.**\
-`By The New York Times`\
+`The palace released the protocol for floral tributes, the closing of royal residences and a period of mourning to mark the death of Queen Elizabeth II.`\
 https://nytimes.com/2022/09/09/world/europe/uk-mourning-queen-elizabeth.html?searchResultPosition=6
 
 **For Australians, Too, It’s the End of an Era**\
