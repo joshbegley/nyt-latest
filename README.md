@@ -12,7 +12,7 @@ https://nytimes.com/2022/09/08/sports/tennis/us-open-womens-semifinals.html?sear
 
 **Intense California Wildfire Begins Creating Its Own Weather**\
 `The blaze forced new evacuations of rural communities northeast of Sacramento.`\
-https://nytimes.com/2022/09/08/us/intense-california-wildfire-begins-creating-its-own-weather.html?searchResultPosition=4
+https://nytimes.com/2022/09/08/us/mosquito-fire-california.html?searchResultPosition=4
 
 **Lesson Plan: The Life and Legacy of Queen Elizabeth II**\
 `Britain’s longest-reigning monarch died on Thursday at the age of 96. Learn about her seven-decade reign, as well as what is next for the British monarchy.`\
