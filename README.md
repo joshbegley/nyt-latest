@@ -12,7 +12,7 @@ https://nytimes.com/2022/09/09/world/australia/for-australians-too-its-the-end-o
 
 **Many sports events are canceled out of respect for the queen.**\
 `After the death of Queen Elizabeth II, the British government left the decision over whether to postpone or cancel events up to individual sports organizations.`\
-https://nytimes.com/2022/09/09/world/europe/sports-canceled.html?searchResultPosition=4
+https://nytimes.com/2022/09/09/world/europe/sports-soccer-canceled-queen-death.html?searchResultPosition=4
 
 **How Queen Elizabeth II Saved the Monarchy**\
 `A look back at the life of Britain’s longest-reigning monarch, who led her country and the royal family through moments of enormous upheaval.`\
