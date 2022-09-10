@@ -30,11 +30,11 @@ https://nytimes.com/2022/09/10/pageoneplus/corrections-sept-10-2022.html?searchR
 `Quotation of the Day for Saturday, Sept. 10, 2022.`\
 https://nytimes.com/2022/09/10/todayspaper/quotation-of-the-day-heating-aid-for-the-poor-will-be-less.html?searchResultPosition=8
 
+**Carlos Alcaraz outlasts Frances Tiafoe to reach the U.S. Open final.**\
+`The 19-year-old from Spain ended the talented American’s deep run in New York in five sets and will play Casper Ruud of Norway for the men’s singles title.`\
+https://nytimes.com/2022/09/09/sports/tennis/carlos-alcaraz-outlasts-frances-tiafoe-to-reach-us-open-final.html?searchResultPosition=9
+
 **What makes Casper Ruud a worthy opponent in the final.**\
 `Ruud, the No. 5 seed, has already played in one Grand Slam final this year.`\
-https://nytimes.com/2022/09/09/sports/tennis/casper-ruud-us-open-final.html?searchResultPosition=9
-
-**Justice Dept. and Trump Legal Team Clash Over Special Master Candidates**\
-`The two sides had sharply diverging views of who could serve as a special master and what that person would do.`\
-https://nytimes.com/2022/09/09/us/doj-trump-special-master-mar-a-lago.html?searchResultPosition=10
+https://nytimes.com/2022/09/09/sports/tennis/casper-ruud-us-open-final.html?searchResultPosition=10
 
