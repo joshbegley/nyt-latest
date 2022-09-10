@@ -3,7 +3,7 @@
 https://nytimes.com/2022/09/10/us/california-fires-rain-floods-heat.html?searchResultPosition=1
 
 **As Russians Retreat, Putin Is Criticized by Hawks Who Trumpeted His War**\
-`Russian bloggers reporting from the front line provide a uniquely uncensored view of the war. But as Russia’s military flails, these once vocal supporters are exposing its flaws, lies and all.`\
+`Russian bloggers reporting from the front line provide a uniquely less-censored view of the war. But as Russia’s military flails, these once vocal supporters are exposing its flaws, lies and all.`\
 https://nytimes.com/2022/09/10/world/europe/russia-ukraine-retreat-putin.html?searchResultPosition=2
 
 **The Ukraine War’s Decisive Season**\
