@@ -8,7 +8,7 @@ https://nytimes.com/2022/09/10/sports/ncaafootball/famu-football-scandal.html?se
 
 **For Ukraine, the Fight Is Often a Game of Bridges**\
 `The southern counteroffensive has been a painstaking battle of river crossings, with pontoon bridges as prime targets for both sides. But so far, it is Ukraine that has advanced.`\
-https://nytimes.com/2022/09/10/world/europe/for-ukraine-the-fight-is-often-a-game-of-bridges.html?searchResultPosition=3
+https://nytimes.com/2022/09/10/world/europe/ukraine-kherson-pontoon-bridges.html?searchResultPosition=3
 
 **Ons Jabeur and Iga Swiatek Face Mental Test in U.S. Open Final**\
 `Swiatek will look to affirm her place as the top-ranked player, while Jabeur could become the first African woman to win the U.S. Open.`\
