@@ -1,6 +1,6 @@
 **The Joke’s on Fashion Week**\
 `Chloe Fineman, Sarah Sherman and other comedians host an unusual fashion show at the Comedy Cellar.`\
-https://nytimes.com/2022/09/10/style/the-jokes-on-fashion-week.html?searchResultPosition=1
+https://nytimes.com/2022/09/10/style/new-york-fashion-week-comedians.html?searchResultPosition=1
 
 **Does Casper Ruud Stand a Chance Against the Tireless Carlos Alcaraz?**\
 `Sunday’s match is not only a battle for the U.S. Open men’s singles title. It will also determine the next world No. 1, and whoever wins will rise to the top spot for the first time.`\
