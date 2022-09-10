@@ -11,7 +11,7 @@ https://nytimes.com/video/world/europe/100000008527892/king-charles-proclamation
 https://nytimes.com/2022/09/10/style/linda-evangelista-fendi-baguette.html?searchResultPosition=3
 
 **Censorship Is the Refuge of the Weak**\
-`Republicans across the country are using the power of the state to restrict free speech. `\
+`Republicans across the country are trying to use the power of the state to restrict free speech.`\
 https://nytimes.com/2022/09/10/opinion/schools-banned-books.html?searchResultPosition=4
 
 **9/11 Was Rudy Giuliani’s Triumph and His Undoing**\
