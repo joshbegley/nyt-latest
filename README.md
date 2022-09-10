@@ -7,7 +7,7 @@ https://nytimes.com/2022/09/10/opinion/letters/teenagers-psychiatric-drugs.html?
 https://nytimes.com/2022/09/10/opinion/trump-maga-biden-democrat-republican.html?searchResultPosition=2
 
 **Charles III Proclaimed King at St. James’s Palace**\
-`King Charles III was officially proclaimed Britain’s new sovereign in a ceremony filled with pomp and process at St. James’s Palace.`\
+`King Charles III was officially proclaimed Britain’s new sovereign in a ceremony filled with pomp and procedure at St. James’s Palace.`\
 https://nytimes.com/video/world/europe/100000008527892/king-charles-proclamation.html?searchResultPosition=3
 
 **Linda Evangelista, the It bag and ‘Sex and the City.’**\
