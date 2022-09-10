@@ -1,4 +1,4 @@
-**Justice Dept. and Trump Legal Team Clash Over Special Master Qualifications**\
+**Justice Dept. and Trump Legal Team Clash Over Special Master Candidates**\
 `The two sides had sharply diverging views of who could serve as a special master and what that person would do.`\
 https://nytimes.com/2022/09/09/us/doj-trump-special-master-mar-a-lago.html?searchResultPosition=1
 
