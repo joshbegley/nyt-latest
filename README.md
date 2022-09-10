@@ -1,6 +1,6 @@
 **Writer’s Block?**\
 `Kameron Austin Collins gets us all unstuck.`\
-https://nytimes.com/2022/09/09/crosswords/writers-block.html?searchResultPosition=1
+https://nytimes.com/2022/09/09/crosswords/daily-puzzle-2022-09-10.html?searchResultPosition=1
 
 **To Play an Anti-Gay Parent, Gabrielle Union Dug Deep for ‘The Inspection’**\
 `At the Toronto premiere, she spoke of playing a homophobic mother as “the challenge of a lifetime” because it represents everything she stands against in reality.`\
