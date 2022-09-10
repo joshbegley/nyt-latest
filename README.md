@@ -34,7 +34,7 @@ https://nytimes.com/video/world/europe/100000008527892/king-charles-proclamation
 `Fashion week kicked off with a bang at the Hammerstein Ballroom, where Fendi celebrated 25 years of the Baguette bag (with the help of Marc Jacobs).`\
 https://nytimes.com/2022/09/10/style/linda-evangelista-fendi-baguette.html?searchResultPosition=9
 
-**Censorship Is the Refuge of the Weak**\
-`Republicans across the country are trying to use the power of the state to restrict free speech.`\
+**A Pernicious Threat to Free Expression**\
+`Republicans across the country are trying to use the power of the state to restrict speech.`\
 https://nytimes.com/2022/09/10/opinion/schools-banned-books.html?searchResultPosition=10
 
