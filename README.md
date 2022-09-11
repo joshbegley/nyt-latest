@@ -31,7 +31,7 @@ https://nytimes.com/2022/09/11/podcasts/the-daily/the-sunday-read-how-the-clarem
 https://nytimes.com/2022/09/11/world/europe/zaporizhzhia-nuclear-plant-shutdown.html?searchResultPosition=8
 
 **Queen Elizabeth’s coffin is moved from Balmoral Castle, beginning its procession.**\
-`The queen’s coffin will be moved to Edinburgh, where it will stay until it is flown to London on Tuesday.`\
+`The queen’s coffin was en route to Edinburgh, with crowds lining the streets during a six-hour journey.`\
 https://nytimes.com/2022/09/11/world/queen-elizabeths-coffin-is-moved-from-balmoral-castle-beginning-its-procession.html?searchResultPosition=9
 
 **School Is Back**\
