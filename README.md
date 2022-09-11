@@ -18,8 +18,8 @@ https://nytimes.com/2022/09/11/opinion/democrats-black-male-voter-problem.html?s
 `Marion Siéfert’s “_jeanne_dark_,” about a shy teenager beginning to express her sexuality, contains no nudity yet still ran afoul of Instagram’s opaque policies.`\
 https://nytimes.com/2022/09/11/theater/instagram-jeanne-dark-marion-siefert.html?searchResultPosition=5
 
-**Wildfire in Washington blows toxic air to Seattle and surrounding areas.**\
-`By Luke Vander Ploeg`\
+**Wildfire in Washington Blows Toxic Air to Seattle and Surrounding Areas**\
+`The Bolt Creek fire led to an evacuation order for one town and produced smoke and ash that drifted 40 miles away.`\
 https://nytimes.com/2022/09/06/us/washington-fires-smoke-weather.html?searchResultPosition=6
 
 **Review: In John Jasperse’s ‘Visitation,’ Mortality Seduces**\
