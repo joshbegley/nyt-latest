@@ -14,7 +14,7 @@ https://nytimes.com/2022/09/11/briefing/britain-mourning-queen-elizabeth.html?se
 `A late-night cat food emergency, a garage rock graduation and more reader tales of New York City in this week’s Metropolitan Diary.`\
 https://nytimes.com/2022/09/11/nyregion/metropolitan-diary.html?searchResultPosition=4
 
-**Is There Room for Debate in Real Life?**\
+**How to Argue Well**\
 `A former debating champion offers advice for our polarized moment.`\
 https://nytimes.com/2022/09/11/opinion/polarization-debate.html?searchResultPosition=5
 
