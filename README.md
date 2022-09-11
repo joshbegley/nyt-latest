@@ -34,7 +34,7 @@ https://nytimes.com/2022/09/11/todayspaper/quotation-of-the-day-2-bright-young-s
 `Corrections that appeared in print on Sunday, Sept. 11, 2022.`\
 https://nytimes.com/2022/09/11/pageoneplus/corrections-sept-11-2022.html?searchResultPosition=9
 
-**‘Very Dire:’ Devastated by Floods, Pakistan Faces Looming Food Crisis**\
+**‘Very Dire’: Devastated by Floods, Pakistan Faces Looming Food Crisis**\
 `The flooding has crippled Pakistan’s agricultural sector, battering the country as it reels from an economic crisis and double-digit inflation that has sent the price of basics soaring.`\
 https://nytimes.com/2022/09/11/world/pakistan-floods-food-crisis.html?searchResultPosition=10
 
