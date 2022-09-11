@@ -32,7 +32,7 @@ https://nytimes.com/2022/09/11/opinion/letters/electric-cars.html?searchResultPo
 
 **What We Pray for When We Pray for Our Children**\
 `How readers across the country pray with their families.`\
-https://nytimes.com/2022/09/11/opinion/what-we-pray-for-when-we-pray-for-our-children.html?searchResultPosition=9
+https://nytimes.com/2022/09/11/opinion/prayer-children-school.html?searchResultPosition=9
 
 **What to Cook This Week**\
 `By Sam Sifton`\
