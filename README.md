@@ -2,7 +2,7 @@
 `Nearly five inches of rain drenched parts of the city on Sunday, leaving cars stranded along some streets.`\
 https://nytimes.com/2022/09/11/us/chicago-rain-flash-flooding.html?searchResultPosition=1
 
-**Instead of Revenge, Baker Mayfield Again Is Humbled by the Browns**\
+**In Lieu of Revenge, Baker Mayfield Is Humbled Again by the Browns**\
 `Mayfield, the former Cleveland quarterback, was discarded after the team successfully recruited Deshaun Watson as his replacement. But leading Carolina, Mayfield could not out-duel Watson’s stand-in.`\
 https://nytimes.com/2022/09/11/sports/football/browns-panthers-score-nfl.html?searchResultPosition=2
 
