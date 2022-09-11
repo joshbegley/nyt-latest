@@ -6,8 +6,8 @@ https://nytimes.com/2022/09/11/world/europe/queen-scotland-independence.html?sea
 `A historian of colonial-era Louisiana, she dug deep into the archives to transform our understanding of the roots of American culture.`\
 https://nytimes.com/2022/09/11/us/gwendolyn-midlo-hall-dead.html?searchResultPosition=2
 
-**After Sept. 11, the queen requested ‘The Star-Spangled Banner’ at the changing of the guard.**\
-`The break with tradition was a show of support to a grieving nation.`\
+**After Sept. 11, Queen Elizabeth Ordered Up ‘The Star-Spangled Banner’**\
+`It was a break with tradition and a show of support to a grieving nation.`\
 https://nytimes.com/2022/09/11/world/sept-11-queen-elizabeth.html?searchResultPosition=3
 
 **Expanded Safety Net Drives Sharp Drop in Child Poverty**\
