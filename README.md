@@ -1,4 +1,4 @@
-**Gwendolyn Midlo Hall, 93, Dies; Created a Database of Enslaved People**\
+**Gwendolyn Midlo Hall, 93, Dies; Created Database of Enslaved People**\
 `A historian of colonial-era Louisiana, she dug deep into the archives to transform our understanding of the roots of American culture.`\
 https://nytimes.com/2022/09/11/us/gwendolyn-midlo-hall-dead.html?searchResultPosition=1
 
