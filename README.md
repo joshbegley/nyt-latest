@@ -1,6 +1,6 @@
 **The Man Who Keeps Baseball’s Union Moving**\
 `With Tony Clark running the show, M.L.B.’s players have labor peace, are on the path to unionizing minor leaguers for the first time and say they are fighting for the soul of the game.`\
-https://nytimes.com/2022/09/12/sports/baseball/the-man-who-keeps-baseballs-union-moving.html?searchResultPosition=1
+https://nytimes.com/2022/09/12/sports/baseball/tony-clark-mlbpa-union.html?searchResultPosition=1
 
 **What to Cook Right Now**\
 `One-pot recipes, eggs for dinner and more.`\
