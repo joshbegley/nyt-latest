@@ -26,15 +26,15 @@ https://nytimes.com/2022/09/12/sports/football/britt-reid-guilty-dwi.html?search
 `The White House has pledged $60 billion to a cause Robert Bullard has championed since the late seventies. He wants guarantees that the money will end up in the right hands.`\
 https://nytimes.com/2022/09/12/climate/robert-bullard-environmental-justice.html?searchResultPosition=7
 
+**Biden Will Be There. Putin Will Not. The Funeral Guest List is Coming Together.**\
+`Heads of state and royalty from around the world are expected to attend the funeral on Sept. 19.`\
+https://nytimes.com/2022/09/12/world/europe/biden-queen-funeral-guest-list.html?searchResultPosition=8
+
 **Dry Brushing, Body Scraping, Gua Sha: Lymphatic Health Is All the Rage**\
 `These wellness practices — which center on one invisible network of vessels and nodes — have soared in popularity in recent years. Should you try them?`\
-https://nytimes.com/2022/09/12/well/live/lymphatic-drainage-gua-sha.html?searchResultPosition=8
+https://nytimes.com/2022/09/12/well/live/lymphatic-drainage-gua-sha.html?searchResultPosition=9
 
 **Opening Old Wounds as the Man Who Warned About the Holocaust**\
 `In the solo play “Remember This,” David Strathairn portrays Jan Karski, a witness to the Nazi genocide during World War II.`\
-https://nytimes.com/2022/09/12/theater/jan-karski-holocaust-david-strathairn.html?searchResultPosition=9
-
-**Yellen to Visit I.R.S. Facility as Biden Administration Prepares to Bolster Tax Agency**\
-`The Treasury secretary will deliver a speech to staff laying out the modernization plans.`\
-https://nytimes.com/2022/09/12/business/janet-yellen-irs-overhaul-80-billion.html?searchResultPosition=10
+https://nytimes.com/2022/09/12/theater/jan-karski-holocaust-david-strathairn.html?searchResultPosition=10
 
