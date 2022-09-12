@@ -16,7 +16,7 @@ https://nytimes.com/2022/09/12/opinion/ukraine-deflates-maga-macho-myths.html?se
 
 **Inside a Republican Superlawyer’s Break With Donald Trump’s G.O.P.**\
 `An exclusive excerpt from a new book by David Enrich on powerful corporate law firms and how the Trump era changed and challenged one in particular.`\
-https://nytimes.com/2022/09/12/us/politics/inside-a-republican-superlawyers-break-with-donald-trumps-gop.html?searchResultPosition=5
+https://nytimes.com/2022/09/12/us/politics/david-enrich-trump-gop.html?searchResultPosition=5
 
 **New York Lawmakers Call for More Oversight of Hasidic Schools**\
 `After a New York Times investigation found that many of the private religious schools denied students a basic education, top officials voiced serious concerns.`\
