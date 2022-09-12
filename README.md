@@ -1,4 +1,4 @@
-**Justice Dept. Issues 40 Subpoenas in Jan. 6 Inquiry**\
+**Justice Dept. Issues 40 Subpoenas in Widening Jan. 6 Inquiry**\
 `Over the last week, it also seized the phones of two top Trump advisers, a sign of an escalating investigation two months before the midterm elections.`\
 https://nytimes.com/2022/09/12/us/politics/trump-aides-jan-6-doj.html?searchResultPosition=1
 
