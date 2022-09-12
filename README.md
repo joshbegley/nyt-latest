@@ -1,6 +1,6 @@
 **What Does Power Dressing Mean Today?**\
 `A new crop of designers at New York Fashion Week redefine the term.`\
-https://nytimes.com/2022/09/12/style/new-york-fashion-week-tommy-hilfiger-new-designers.html?searchResultPosition=1
+https://nytimes.com/2022/09/12/style/nyfw-tommy-hilfiger-proenza-schouler.html?searchResultPosition=1
 
 **How Long Is the Drive to the Edge of the Universe?**\
 `See you in a quadrillion years or so. Don’t forget to pack zillions of tons of snacks!`\
