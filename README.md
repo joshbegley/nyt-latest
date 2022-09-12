@@ -1,40 +1,40 @@
+**Are the Polls Wrong Again?**\
+`Are Democrats again about to be disappointed by overly optimistic polling?`\
+https://nytimes.com/2022/09/12/briefing/polling-midterms-republicans-democrats.html?searchResultPosition=1
+
 **Serena Williams’s Final Run**\
 `Discussing the legacy of a sporting great whose remarkable career had a deep impact not only on tennis but also on American society at large.`\
-https://nytimes.com/2022/09/12/podcasts/the-daily/serena-williams-tennis-retirement.html?searchResultPosition=1
+https://nytimes.com/2022/09/12/podcasts/the-daily/serena-williams-tennis-retirement.html?searchResultPosition=2
 
 **Prince Harry Pays Tribute to ‘Granny’**\
 `In his first public comments since the death of his grandmother, the prince said she was already “sorely missed.”`\
-https://nytimes.com/2022/09/12/world/europe/prince-harry-tribute-queen-elizabeth.html?searchResultPosition=2
+https://nytimes.com/2022/09/12/world/europe/prince-harry-tribute-queen-elizabeth.html?searchResultPosition=3
 
 **Trial Begins for Truck Maker Accused of Duping Investors**\
 `Prosecutors say Trevor Milton, former chief executive of Nikola, lured retail investors with lies about the electric truck company’s technology.`\
-https://nytimes.com/2022/09/12/business/trevor-milton-nikola-trial.html?searchResultPosition=3
+https://nytimes.com/2022/09/12/business/trevor-milton-nikola-trial.html?searchResultPosition=4
 
 **A Plan to Push Cars Out of Manhattan Could Make the Bronx’s Air Dirtier**\
 `New York City’s congestion pricing program could cut traffic in the busy commercial district but push more vehicles into vulnerable areas.`\
-https://nytimes.com/2022/09/12/nyregion/nyc-congestion-pricing-manhattan-bronx.html?searchResultPosition=4
+https://nytimes.com/2022/09/12/nyregion/nyc-congestion-pricing-manhattan-bronx.html?searchResultPosition=5
 
 **How Family and Friends Helped Get Me Through the Pandemic**\
 `As Covid raged, many Americans hunkered down with family members and relied on friends — and some came away with deepened relationships. Here are a few of their stories.`\
-https://nytimes.com/2022/09/12/us/pandemic-covid-friends-family.html?searchResultPosition=5
+https://nytimes.com/2022/09/12/us/pandemic-covid-friends-family.html?searchResultPosition=6
 
 **How to Avoid Hurting Yourself at the Gym**\
 `Here are the four exercises you’re most at risk of doing wrong — and how to prevent the missteps that lead to injury.`\
-https://nytimes.com/2022/09/12/well/move/exercise-injuries.html?searchResultPosition=6
+https://nytimes.com/2022/09/12/well/move/exercise-injuries.html?searchResultPosition=7
 
 **A Journey Through Black Nova Scotia**\
 `The 400-year history of African culture in this maritime Canadian province is expansive, but it’s a story that’s been tucked into the shadows of Canadian history. Now, grass-root initiatives are changing that.`\
-https://nytimes.com/2022/09/12/travel/a-journey-through-black-nova-scotia.html?searchResultPosition=7
+https://nytimes.com/2022/09/12/travel/a-journey-through-black-nova-scotia.html?searchResultPosition=8
 
 **Enter the Candidate Wives**\
 `The Republican Party is under particular pressure to slap a friendly face on its nominees, with a special focus on wooing women. `\
-https://nytimes.com/2022/09/12/opinion/abortion-female-voters.html?searchResultPosition=8
+https://nytimes.com/2022/09/12/opinion/abortion-female-voters.html?searchResultPosition=9
 
 **Store Shelves Are No Longer Bare, but Baby Formula Remains in Short Supply**\
 `While the situation has improved since mid-July, many families are still scrambling to find popular brands that remain out of stock.`\
-https://nytimes.com/2022/09/12/business/baby-formula-shortages.html?searchResultPosition=9
-
-**Cracking the Case of the Giant Fern Genome**\
-`Scientists have sequenced complete fern genomes for the first time, to learn why the plants have twice as much DNA as humans.`\
-https://nytimes.com/2022/09/12/science/fern-genetics-polyploidy.html?searchResultPosition=10
+https://nytimes.com/2022/09/12/business/baby-formula-shortages.html?searchResultPosition=10
 
