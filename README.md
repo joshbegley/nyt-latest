@@ -36,5 +36,5 @@ https://nytimes.com/2022/09/12/us/politics/child-poverty-families-west-virginia.
 
 **How ‘sustainable fashion’ could run afoul of antitrust regulators.**\
 `The organizer of New York Fashion Week has pledged to achieve a net zero goal by 2050, but agreements among fashion houses risk violating competition rules.`\
-https://nytimes.com/2022/09/12/business/how-sustainable-fashion-could-run-afoul-of-antitrust-regulators.html?searchResultPosition=10
+https://nytimes.com/2022/09/12/business/nyfw-sustainability-net-zero.html?searchResultPosition=10
 
