@@ -27,7 +27,7 @@ https://nytimes.com/2022/09/12/arts/design/rare-silver-coin-jews-israel.html?sea
 https://nytimes.com/2022/09/12/technology/uber-new-jersey-settlement.html?searchResultPosition=7
 
 **Emmys 2022 Red Carpet: Photos of All the Fashion**\
-`Television’s biggest stars have begun arriving for the 74th Emmy Awards in Los Angeles.`\
+`Television’s biggest stars are arriving for the 74th Emmy Awards in Los Angeles.`\
 https://nytimes.com/slideshow/2022/09/12/style/emmys-photos-red-carpet.html?searchResultPosition=8
 
 **Strike Threat on Freight Railroads Is New Supply Chain Worry**\
