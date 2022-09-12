@@ -1,4 +1,4 @@
-**How Long is the Drive to the Edge of the Universe?**\
+**How Long Is the Drive to the Edge of the Universe?**\
 `See you in a quadrillion years or so. Don’t forget to pack zillions of tons of snacks!`\
 https://nytimes.com/2022/09/12/science/randall-munroe-xkcd-universe-driving.html?searchResultPosition=1
 
