@@ -15,7 +15,7 @@ https://nytimes.com/2022/09/11/world/europe/sweden-election.html?searchResultPos
 https://nytimes.com/2022/09/11/sports/tennis/us-open-alcaraz-ruud.html?searchResultPosition=4
 
 **What We Learned From Week 1 of the N.F.L. Season**\
-`The Steelers defense returned to form and A.J. Brown gave the Eagles the receiving target it has lacked as the N.F.L. wobbled in the first week of the regular season.`\
+`Mahomes-to-Kelce keeps Kansas City on track, the Steelers defense returned to form and A.J. Brown gave the Eagles the receiving target they have lacked.`\
 https://nytimes.com/2022/09/11/sports/football/nfl-week-1-scores.html?searchResultPosition=5
 
 **Biden Honors 9/11 Victims at the Pentagon**\
