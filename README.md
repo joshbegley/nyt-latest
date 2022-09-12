@@ -14,7 +14,7 @@ https://nytimes.com/2022/09/12/t-magazine/fall-fashion-outerwear-coats.html?sear
 `The state has passed a flurry of pro-housing laws in recent years. But there was little enforcement — until recently.`\
 https://nytimes.com/2022/09/12/us/california-housing-laws.html?searchResultPosition=4
 
-**Things Started Poorly for the Cowboys, and Then It Got Worse**\
+**The Cowboys’ Season Started Poorly. Then It Got Worse.**\
 `A convincing loss to Tom Brady and the Buccaneers was compounded by an injury to Dak Prescott that will require surgery.`\
 https://nytimes.com/2022/09/12/sports/football/dak-prescott-injured-cowboys.html?searchResultPosition=5
 
