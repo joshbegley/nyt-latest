@@ -1,5 +1,5 @@
-**Justice Dept. Seizes Phones of Top Trump Aides in Jan. 6 Inquiry**\
-`It has also issued about 40 subpoenas seeking information about the actions of former President Donald J. Trump and his associates, a sign of an escalating inquiry two months before the midterm elections.`\
+**Justice Dept. Issues 40 Subpoenas in Jan. 6 Inquiry**\
+`Over the last week, it also seized the phones of two top Trump advisers, a sign of an escalating investigation two months before the midterm elections.`\
 https://nytimes.com/2022/09/12/us/politics/trump-aides-jan-6-doj.html?searchResultPosition=1
 
 **Reversal of Fortune**\
