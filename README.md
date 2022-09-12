@@ -1,5 +1,5 @@
 **Former M.L.B. Pitcher Turned Police Officer Killed in Car Crash**\
-`Anthony Varvaro, 37, was driving to a Sept. 11 commemoration in Manhattan when he struck a person driving the wrong way, the authorities said. Both were killed.`\
+`Anthony Varvaro, 37, was driving to a Sept. 11 commemoration in Manhattan when he was in a crash with a person driving the wrong way, the authorities said. Both were killed.`\
 https://nytimes.com/2022/09/11/us/anthony-varvaro-crash-dead.html?searchResultPosition=1
 
 **Aces Score Just Enough to Take W.N.B.A Finals Lead**\
