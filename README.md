@@ -10,7 +10,7 @@ https://nytimes.com/2022/09/11/sports/tennis/carlos-alcaraz-us-open.html?searchR
 `Anthony Varvaro, 37, was driving to a Sept. 11 commemoration in Manhattan when he was in a crash with a person driving the wrong way, the authorities said. Both were killed.`\
 https://nytimes.com/2022/09/11/us/anthony-varvaro-crash-dead.html?searchResultPosition=3
 
-**Aces Score Just Enough to Take W.N.B.A Finals Lead**\
+**Aces Score Just Enough to Take W.N.B.A. Finals Lead**\
 `The Las Vegas Aces’ high-powered offense scored a season-low 67 points, but a double-double from A’ja Wilson, the league’s most valuable player, helped them outlast the Connecticut Sun.`\
 https://nytimes.com/2022/09/11/sports/basketball/wnba-finals-las-vegas-aces-connecticut-sun.html?searchResultPosition=4
 
