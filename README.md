@@ -14,7 +14,7 @@ https://nytimes.com/2022/09/12/well/live/lymphatic-drainage-gua-sha.html?searchR
 `In the solo play “Remember This,” David Strathairn portrays Jan Karski, a witness to the Nazi genocide during World War II.`\
 https://nytimes.com/2022/09/12/theater/jan-karski-holocaust-david-strathairn.html?searchResultPosition=4
 
-**Yellen to Visit I.R.S. Facility as Biden Administration Prepares to Bolster Tax Agency.**\
+**Yellen to Visit I.R.S. Facility as Biden Administration Prepares to Bolster Tax Agency**\
 `The Treasury secretary will deliver a speech to staff laying out the modernization plans.`\
 https://nytimes.com/2022/09/12/business/janet-yellen-irs-overhaul-80-billion.html?searchResultPosition=5
 
