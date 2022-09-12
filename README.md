@@ -30,8 +30,8 @@ https://nytimes.com/2022/09/12/arts/design/rare-silver-coin-jews-israel.html?sea
 `New Jersey demanded back taxes from the ride-hailing company, claiming it misclassified drivers as independent contractors.`\
 https://nytimes.com/2022/09/12/technology/uber-new-jersey-settlement.html?searchResultPosition=8
 
-**Emmys 2022 Red Carpet: Photos of All the Fashion**\
-`Television’s biggest stars are arriving for the 74th Emmy Awards in Los Angeles.`\
+**Emmys 2022: Red Carpet Photos From TV’s Biggest Night**\
+`A look at the big swings and major hits on the 74th Emmy Awards red carpet.`\
 https://nytimes.com/slideshow/2022/09/12/style/emmys-photos-red-carpet.html?searchResultPosition=9
 
 **Strike Threat on Freight Railroads Is New Supply Chain Worry**\
