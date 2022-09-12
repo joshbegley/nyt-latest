@@ -1,40 +1,40 @@
-**Explore How CRISPR Is Revolutionizing Science**\
-`In this lesson plan, students will learn about the gene-editing technology known as CRISPR and its implications.`\
-https://nytimes.com/2022/09/12/learning/lesson-plans/explore-how-crispr-is-revolutionizing-science.html?searchResultPosition=1
+**Trial Begins for Truck Maker Accused of Duping Investors**\
+`Prosecutors say Trevor Milton, former chief executive of Nikola, lured retail investors with lies about the electric truck company’s technology.`\
+https://nytimes.com/2022/09/12/business/trevor-milton-nikola-trial.html?searchResultPosition=1
 
-**Monkeypox Shots, Treatments and Tests Are Unavailable in Much of the World**\
-`High-income countries snapped up vaccines when the disease hit them, leaving none for countries that have battled the virus for years, in an echo of the Covid response.`\
-https://nytimes.com/2022/09/12/health/monkeypox-vaccines-treatments-equity.html?searchResultPosition=2
+**A Plan to Push Cars Out of Manhattan Could Make the Bronx’s Air Dirtier**\
+`New York City’s congestion pricing program could cut traffic in the busy commercial district but push more vehicles into vulnerable areas.`\
+https://nytimes.com/2022/09/12/nyregion/nyc-congestion-pricing-manhattan-bronx.html?searchResultPosition=2
 
-**Finding Humor, and Humanity, in Canada’s Oil Fields**\
-`Kate Beaton headed to the tar sand fields of Alberta saddled with loans and in need of cash. She found a job — and the book she “was always going to make.”`\
-https://nytimes.com/2022/09/12/books/kate-beaton-ducks-canada-oil.html?searchResultPosition=3
+**How Family and Friends Helped Get Me Through the Pandemic**\
+`As Covid raged, many Americans hunkered down with family members and relied on friends — and some came away with deepened relationships. Here are a few of their stories.`\
+https://nytimes.com/2022/09/12/us/pandemic-covid-friends-family.html?searchResultPosition=3
 
-**In Atlanta, a Local Prosecutor Takes on Murder, Street Gangs and a President**\
-`Fani T. Willis has emerged as one of the most consequential legal threats to Donald Trump while presiding over the justice system in Georgia’s most populous county.`\
-https://nytimes.com/2022/09/12/us/fani-t-willis-trump-atlanta.html?searchResultPosition=4
+**How to Avoid Hurting Yourself at the Gym**\
+`Here are the four exercises you’re most at risk of doing wrong — and how to prevent the missteps that lead to injury.`\
+https://nytimes.com/2022/09/12/well/move/exercise-injuries.html?searchResultPosition=4
 
-**I Abandoned My Skinny Jeans. What Top Do I Wear With Baggy Pants?**\
-`A reader wonders how to style loose pants.`\
-https://nytimes.com/2022/09/12/style/top-baggy-pants.html?searchResultPosition=5
+**A Journey Through Black Nova Scotia**\
+`The 400-year history of African culture in this maritime Canadian province is expansive, but it’s a story that’s been tucked into the shadows of Canadian history. Now, grass-root initiatives are changing that.`\
+https://nytimes.com/2022/09/12/travel/a-journey-through-black-nova-scotia.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/09/12/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**Enter the Candidate Wives**\
+`The Republican Party is under particular pressure to slap a friendly face on its nominees, with a special focus on wooing women. `\
+https://nytimes.com/2022/09/12/opinion/abortion-female-voters.html?searchResultPosition=6
 
-**No Corrections: Sept. 12, 2022**\
-`No corrections appeared in print on Monday, Sept. 12, 2022.`\
-https://nytimes.com/2022/09/12/pageoneplus/no-corrections-sept-12-2022.html?searchResultPosition=7
+**Store Shelves Are No Longer Bare, but Baby Formula Remains in Short Supply**\
+`While the situation has improved since mid-July, many families are still scrambling to find popular brands that remain out of stock.`\
+https://nytimes.com/2022/09/12/business/baby-formula-shortages.html?searchResultPosition=7
 
-**Quotation of the Day: Queen’s Scottish Ties Muddle Push for Independence**\
-`Quotation of the Day for Monday, September 12, 2022.`\
-https://nytimes.com/2022/09/12/todayspaper/quotation-of-the-day-queens-scottish-ties-muddle-push-for-independence.html?searchResultPosition=8
+**Cracking the Case of the Giant Fern Genome**\
+`Scientists have sequenced complete fern genomes for the first time, to learn why the plants have twice as much DNA as humans.`\
+https://nytimes.com/2022/09/12/science/fern-genetics-polyploidy.html?searchResultPosition=8
 
-**Word of the Day: moratorium**\
-`This word has appeared in 247 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/09/12/learning/word-of-the-day-moratorium.html?searchResultPosition=9
+**Anti-Monarchists Tread Lightly After Queen’s Death, but Their Goal Persists**\
+`King Charles III is less popular than his mother, offering republican campaigners their best chance of momentum in years. But they risk offending mourners by moving too soon.`\
+https://nytimes.com/2022/09/12/world/europe/anti-monarchists-king-charles-queen-elizabeth.html?searchResultPosition=9
 
-**How the Brooklyn Library Helped Fight Book Bans in Oklahoma**\
-`An Oklahoma teacher left her job after she told her students how to access the library’s banned books program.`\
-https://nytimes.com/2022/09/12/nyregion/brooklyn-library-book-bans-oklahoma.html?searchResultPosition=10
+**A Music Producer Finds a Waterfront Home, and a More Harmonious Commute**\
+`When Stanley Brown heard about a recording studio for rent in Manhattan, he immediately took the lease — and landed a luxury apartment just across the river.`\
+https://nytimes.com/2022/09/12/realestate/nyc-music-producer-apartment-weehawken.html?searchResultPosition=10
 
