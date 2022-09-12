@@ -3,7 +3,7 @@
 https://nytimes.com/2022/09/12/books/review/catholicism-history-john-mcgreevy.html?searchResultPosition=1
 
 **Russian Strike on Kharkiv Power Plant Causes Widespread Blackouts**\
-`Kharkiv and several other regions in Ukraine’s northeast lost power after Russia hit criticial infrastructure, including a major heat and power plant.`\
+`Kharkiv and several other regions in Ukraine’s northeast lost power after Russia hit critical infrastructure, including a major heat and power plant.`\
 https://nytimes.com/video/world/europe/100000008529956/kharkiv-blackout-power.html?searchResultPosition=2
 
 **What Is a Constitutional Monarchy?**\
