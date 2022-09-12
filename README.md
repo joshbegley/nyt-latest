@@ -1,4 +1,4 @@
-**Goldman Sachs Prepares for Layoffs as Deal Making Slows**\
+**Goldman Sachs Prepares for Layoffs as Deal-Making Slows**\
 `The bank reported in July that its profit had fallen because of shakier economic conditions.`\
 https://nytimes.com/2022/09/12/business/dealbook/goldman-sachs-layoffs.html?searchResultPosition=1
 
