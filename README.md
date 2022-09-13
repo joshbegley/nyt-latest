@@ -1,20 +1,40 @@
-**Biden Flies Home to Wilmington to Vote in Delaware Primary**\
-`The president and the first lady arrived in Delaware shortly before polls closed to cast their votes in Tuesday’s primary election.`\
-https://nytimes.com/2022/09/13/us/politics/biden-vote-delaware-primary.html?searchResultPosition=1
+**Rhode Island First Congressional District Primary Election Results**\
+`See full results and maps from the Rhode Island primary elections.`\
+https://nytimes.com/interactive/2022/09/13/us/elections/results-rhode-island-us-house-district-1.html?searchResultPosition=1
 
-**N.Y. Elections Commissioner Charged in Absentee Ballot Scheme**\
-`Jason Schofield, a Republican in Rensselaer County, was accused of unlawfully requesting absentee ballots in the 2021 local election.`\
-https://nytimes.com/2022/09/13/nyregion/election-fraud-ny.html?searchResultPosition=2
+**Delaware Primary Election Results**\
+`See full results and maps from the Delaware primary elections.`\
+https://nytimes.com/interactive/2022/09/13/us/elections/results-delaware.html?searchResultPosition=2
 
-**Starbucks Union Leader Says Company Forced Her Out**\
-`Jaz Brisack said her employer had refused to accommodate her scheduling requests. Starbucks said it sought to balance requests against business needs.`\
-https://nytimes.com/2022/09/13/business/starbucks-union-leader-job.html?searchResultPosition=3
+**Delaware State Auditor Primary Election Results**\
+`See full results and maps from the Delaware primary elections.`\
+https://nytimes.com/interactive/2022/09/13/us/elections/results-delaware-state-auditor.html?searchResultPosition=3
 
-**Mary Peltola Is Sworn In as a Congresswoman**\
-`Representative Mary Peltola, a Democrat, became the first Alaska Native to serve in Congress and the first woman to represent her state in the House.`\
-https://nytimes.com/video/us/politics/100000008532989/mary-peltola-alaska-house.html?searchResultPosition=4
+**Rhode Island Attorney General Primary Election Results**\
+`See full results and maps from the Rhode Island primary elections.`\
+https://nytimes.com/interactive/2022/09/13/us/elections/results-rhode-island-attorney-general.html?searchResultPosition=4
 
-**After a Wave of Subpoenas, Notes of Caution About the Jan. 6 Investigation**\
-`The criminal inquiry into Donald Trump’s efforts to reverse the outcome of the 2020 election appears to be accelerating, but prosecutors are said to be a long way from making any decisions.`\
-https://nytimes.com/2022/09/13/us/politics/jan-6-justice-department-subpoenas.html?searchResultPosition=5
+**New Hampshire U.S. Senate Primary Election Results**\
+`See full results and maps from the New Hampshire primary elections.`\
+https://nytimes.com/interactive/2022/09/13/us/elections/results-new-hampshire-us-senate.html?searchResultPosition=5
+
+**Rhode Island Lieutenant Governor Primary Election Results**\
+`See full results and maps from the Rhode Island primary elections.`\
+https://nytimes.com/interactive/2022/09/13/us/elections/results-rhode-island-lieutenant-governor.html?searchResultPosition=6
+
+**Rhode Island Second Congressional District Primary Election Results**\
+`See full results and maps from the Rhode Island primary elections.`\
+https://nytimes.com/interactive/2022/09/13/us/elections/results-rhode-island-us-house-district-2.html?searchResultPosition=7
+
+**New Hampshire Governor Primary Election Results**\
+`See full results and maps from the New Hampshire primary elections.`\
+https://nytimes.com/interactive/2022/09/13/us/elections/results-new-hampshire-governor.html?searchResultPosition=8
+
+**New Hampshire Second Congressional District Primary Election Results**\
+`See full results and maps from the New Hampshire primary elections.`\
+https://nytimes.com/interactive/2022/09/13/us/elections/results-new-hampshire-us-house-district-2.html?searchResultPosition=9
+
+**New Hampshire Primary Election Results**\
+`See full results and maps from the New Hampshire primary elections.`\
+https://nytimes.com/interactive/2022/09/13/us/elections/results-new-hampshire.html?searchResultPosition=10
 
