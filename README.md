@@ -1,5 +1,5 @@
 **Republicans Struggle to Unite Party Around National Abortion Restrictions**\
-`A new proposal tried to align Republicans on abortion policy before the midterm elections. It only exposed divisions.`\
+`A new proposal was intended to align Republicans on abortion policy before the midterm elections. It only exposed divisions.`\
 https://nytimes.com/2022/09/13/us/politics/republicans-abortion-national-ban.html?searchResultPosition=1
 
 **Philadelphia Prosecutor Is Found in Contempt by State Representatives**\
