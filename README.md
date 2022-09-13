@@ -1,4 +1,4 @@
-**‘Succession’ Wins Top Drama at Emmys**\
+**‘Succession’ Wins Best Drama at Emmys as HBO Triumphs Again**\
 `It was the sixth time in eight years that HBO has taken the television industry’s biggest prize for a recurring series. “Ted Lasso” won best comedy.`\
 https://nytimes.com/2022/09/12/arts/television/emmys-succession-ted-lasso.html?searchResultPosition=1
 
