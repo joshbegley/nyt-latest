@@ -1,40 +1,40 @@
-**The Best Chef in The World**\
-`Sally Schmitt sold her successful Napa Valley establishment, the French Laundry. Then it became “the best restaurant in the world.”`\
-https://nytimes.com/video/opinion/100000008461714/the-best-chef-in-the-world.html?searchResultPosition=1
+**Why You Should Decorate Your Hallway (and How to Get Started)**\
+`When you’re furnishing your home, it’s easy to focus on larger rooms and overlook the hall. Here’s why that’s a mistake.`\
+https://nytimes.com/2022/09/13/realestate/decorate-hallway-paint-wallpaper.html?searchResultPosition=1
 
-**Lesson Plan: How an Eighth-Grade Civics Class Helped Reverse the Last Conviction in the Salem Witch Trials**\
-`Students will learn about the power of civic action to achieve justice — even 329 years later. Then, they will propose their own plan to rectify a wrong in their own community.`\
-https://nytimes.com/2022/09/13/learning/lesson-plans/lesson-plan-how-an-eighth-grade-civics-class-helped-reverse-the-last-conviction-in-the-salem-witch-trials.html?searchResultPosition=2
+**His Pulitzer-Winning Comedy Broke the Rules. He’s at It Again.**\
+`Andrew Sean Greer was elated, if a little confounded, when his 2017 novel “Less” received the award. Now he’s following it with a sequel, which he knows might raise some eyebrows. So what if it’s unseemly?`\
+https://nytimes.com/2022/09/13/books/andrew-sean-greer-less-is-lost.html?searchResultPosition=2
 
-**Charles to Visit Northern Ireland Before Queen’s Coffin Arrives in London**\
-`The new monarch will continue his tour of the nations of the United Kingdom on Tuesday, before meeting his mother’s coffin at Buckingham Palace.`\
-https://nytimes.com/2022/09/13/world/europe/king-charles-queen-elizabeth.html?searchResultPosition=3
+**Ian McEwan Returns With a Tale of Adolescent Lust and Adult Lassitude**\
+`In “Lessons,” the hero is seduced by his piano teacher when he’s 14, then abandoned by his wife while he passively watches history unfold. Are these events connected?`\
+https://nytimes.com/2022/09/13/books/review/ian-mcewan-lessons.html?searchResultPosition=3
 
-**To Search for a Near-Extinct Snail, Tread Lightly**\
-`Monitoring the last wild Chittenango ovate amber snails, scientists tiptoe through a waterfall spray zone the size of a living room.`\
-https://nytimes.com/2022/09/13/science/chittenango-snails-conservation.html?searchResultPosition=4
+**The Critical Moment Behind Ukraine’s Rapid Advance**\
+`President Volodymyr Zelensky wanted to make a dramatic move in the war against Russia. U.S. and Ukrainian officials came up with a plan.`\
+https://nytimes.com/2022/09/13/us/politics/ukraine-russia-pentagon.html?searchResultPosition=4
 
-**Unearthing a Maya Civilization That ‘Punched Above its Weight’**\
-`Before the pandemic, the long-sought ruins of Sak Tz’i’, a small but influential Mesoamerican kingdom, were discovered on a cattle ranch in Mexico. This summer archaeologists returned to excavate it.`\
-https://nytimes.com/2022/09/13/science/archaeology-mayan-mexico.html?searchResultPosition=5
+**This Might Not Be a Cold War, but It Feels Like One**\
+`Even at their worst moments, the Americans and the Soviets kept talking. Today, U.S.-China contacts are scarce, while Beijing and Moscow move closer together.`\
+https://nytimes.com/2022/09/13/world/asia/xi-jinping-china-biden.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/09/13/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**The Endless Torment of the ‘Recipe?’ Guy**\
+`A rampant internet comment that just won’t die shows how recipes, and the people who develop them, are undervalued.`\
+https://nytimes.com/2022/09/13/dining/recipe-requests-social-media-commenters.html?searchResultPosition=6
 
-**Football Season**\
-`Will you be watching or playing this fall?`\
-https://nytimes.com/2022/09/13/learning/football-season.html?searchResultPosition=7
+**Lake Superior is Cold, Sparsely Settled and Known for Bad Weather. Perfect for Cruising, Some Say.**\
+`As cruising picks up, one small Wisconsin port weighs the pros and cons of more ships and their impact on the town and the environment.`\
+https://nytimes.com/2022/09/13/travel/lake-superior-cruise-ships.html?searchResultPosition=7
 
-**At Soccer’s Best Talent Factory, the Future Is Always Now**\
-`Ajax sold the bulk of its Champions League-ready squad over the summer and never looked back. It can’t afford to.`\
-https://nytimes.com/2022/09/13/sports/soccer/ajax-liverpool-champions-league.html?searchResultPosition=8
+**What Is Brain Fog and How Can I Treat It?**\
+`Researchers are just beginning to understand the cognitive dysfunction that some people experience with Covid-19 and a range of other health issues.`\
+https://nytimes.com/2022/09/13/well/mind/brain-fog-treatment.html?searchResultPosition=8
 
-**Word of the Day: precipice**\
-`This word has appeared in 115 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/09/13/learning/word-of-the-day-precipice.html?searchResultPosition=9
+**A $100 Million Bet on Finding the Next ‘Mr. Beast’**\
+`Reed Duchscher, the manager of the YouTube megastar “Mr. Beast,” is teaming up with the investment firm TCG to bankroll businesses led by online creators.`\
+https://nytimes.com/2022/09/13/business/media/mr-beast-night-capital.html?searchResultPosition=9
 
-**Kenya to Inaugurate New President, but Kenyan TV Is Mostly Shut Out**\
-`After a bitter and close election, William Ruto takes the reins of power on Tuesday. One of his team’s first moves: Limiting the access of local television outlets to the ceremony.`\
-https://nytimes.com/2022/09/13/world/africa/kenya-president-william-ruto-inauguration.html?searchResultPosition=10
+**Girl Hunter or Girl Hunted?**\
+`In her Y.A. thriller “I’m the Girl,” Courtney Summers uses a murder mystery to explore pressing questions about female empowerment.`\
+https://nytimes.com/2022/09/13/books/review/im-the-girl-courtney-summers.html?searchResultPosition=10
 
