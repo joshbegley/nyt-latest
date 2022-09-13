@@ -1,6 +1,6 @@
 **Vogue Builds a World**\
 `In the former meatpacking district, Anna Wintour staged a commercial extravaganza with one eye on global domination.`\
-https://nytimes.com/2022/09/13/style/vogue-builds-a-world.html?searchResultPosition=1
+https://nytimes.com/2022/09/13/style/vogue-world-new-york-fashion-week.html?searchResultPosition=1
 
 **Montana Restricts Changes to Birth Certificates for Transgender People**\
 `A new rule made it “virtually impossible” for transgender people born in Montana to amend the gender listed on their birth certificates, according to the American Civil Liberties Union of Montana.`\
