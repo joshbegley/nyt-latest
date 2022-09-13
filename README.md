@@ -6,7 +6,7 @@ https://nytimes.com/2022/09/13/obituaries/jean-luc-godard-dead.html?searchResult
 `How do people cope and thrive with their disabilities? How can we better understand and respond to the needs of those with disabilities?`\
 https://nytimes.com/2022/09/13/learning/film-club-i-have-face-blindness-this-is-how-i-recognize-you.html?searchResultPosition=2
 
-**Early-Morning Tornado Warning Jolts New Yorkers Awake**\
+**Tornado Warning Jolts New Yorkers Awake**\
 `A warning was briefly issued for parts of New York City on Tuesday, but there were no immediate reports of a tornado sighting. A flash flood warning was in effect until 7:30 a.m.`\
 https://nytimes.com/2022/09/13/nyregion/tornado-flood-warning-new-york.html?searchResultPosition=3
 
