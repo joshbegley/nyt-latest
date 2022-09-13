@@ -19,7 +19,7 @@ https://nytimes.com/2022/09/13/books/review/whos-raising-the-kids-susan-linn.htm
 https://nytimes.com/2022/09/13/sports/baseball/mike-trout-home-run-streak.html?searchResultPosition=5
 
 **William Ruto Is Sworn In as Kenya’s New President After Bitter Election**\
-`William Ruto’s team limited access of local television outlets to the ceremony, which some analysts say was a sign of Mr. Ruto’s resentment toward the media who he repeatedly accused of being biased against him.`\
+`“I will work hard for all the people of Kenya irrespective of who or how they voted,” President William Ruto promised before a packed 60,000-capacity stadium.`\
 https://nytimes.com/video/world/africa/100000008531703/kenya-william-ruto-president.html?searchResultPosition=6
 
 **Delaware Primary: How to Vote and Who’s on the Ballot**\
