@@ -14,8 +14,8 @@ https://nytimes.com/2022/09/13/well/eat/food-sensitivity-test.html?searchResultP
 `What does it mean to be a work futurist? In this episode, we’ll explore how organizations can foster strong and innovative working connections among their employees.`\
 https://nytimes.com/paidpost/accenture/built-for-change/reimagining-the-future-of-work.html?searchResultPosition=4
 
-**N.B.A. Fines Phoenix Suns’ Owner $10 Million for Misconduct**\
-`An investigation found that the owner, Robert Sarver, had used racial slurs and treated female employees inequitably. Sarver also is suspended for one year.`\
+**N.B.A. Fines and Suspends Phoenix Suns Owner for Misconduct**\
+`An investigation found that the owner, Robert Sarver, had used racial slurs and treated female employees inequitably. The N.B.A. fined Sarver $10 million.`\
 https://nytimes.com/2022/09/13/sports/basketball/phoenix-suns-robert-sarver-suspended.html?searchResultPosition=5
 
 **The crown and climate**\
