@@ -27,7 +27,7 @@ https://nytimes.com/2022/09/13/movies/gameboys-the-movie-review.html?searchResul
 https://nytimes.com/2022/09/13/movies/jean-luc-godard-appreciation.html?searchResultPosition=7
 
 **Whistle-Blower Accuses Twitter of Lying About Its Security Flaws**\
-`Peiter Zatko, Twitter’s former head of security, said in a congressional hearing that significant security failures put user data at risk.`\
+`Peiter Zatko, Twitter’s former head of security, said in a Senate hearing that significant security failures put user data at risk.`\
 https://nytimes.com/video/us/politics/100000008531954/twitter-whistleblower-senate-peiter-zatko.html?searchResultPosition=8
 
 **When Schools Don’t Educate Their Students**\
