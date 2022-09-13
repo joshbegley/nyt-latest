@@ -4,7 +4,7 @@ https://nytimes.com/2022/09/13/nyregion/andrew-cuomo-letitia-james.html?searchRe
 
 **A Book of Recipes and Testimony From Auschwitz-Birkenau Survivors**\
 `This affecting new cookbook includes mostly Eastern European dishes as well as first-person accounts of suffering and survival.`\
-https://nytimes.com/2022/09/13/dining/honey-cake-latkes-auscwitz-birkenau.html?searchResultPosition=2
+https://nytimes.com/2022/09/13/dining/honey-cake-latkes-auschwitz-birkenau.html?searchResultPosition=2
 
 **Twitter Whistle-blower Is Set to Testify in Washington**\
 `Elon Musk’s legal team will follow closely the testimony of Twitter’s former head of security, Peiter Zatko, before the Senate Judiciary Committee.`\
