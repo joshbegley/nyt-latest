@@ -1,5 +1,5 @@
 **Clashes Erupt in Nagorno-Karabakh, Raising Fears of Another War**\
-`The simmering conflict between Armenia and Azerbaijan over the disputed region last flared in 2020, when Russia helped broker a cease-fire.`\
+`The simmering conflict between Armenia and Azerbaijan over the disputed region last flared in 2020, when Russia brokered a cease-fire.`\
 https://nytimes.com/2022/09/13/world/europe/armenia-azerbaijan.html?searchResultPosition=1
 
 **Ukraine on the March**\
