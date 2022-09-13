@@ -10,7 +10,7 @@ https://nytimes.com/2022/09/13/style/clothsurgeon-streetwear-savile-row.html?sea
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2022/09/13/style/tiny-modern-love-stories-irritated-by-the-drama-of-her-effort.html?searchResultPosition=3
 
-**Bill Gates: “We’re in a worse place than I expected”**\
+**Bill Gates: “We’re in a Worse Place Than I Expected”**\
 `The philanthropist on how the pandemic and the effects of the war in Ukraine are setting back progress.`\
 https://nytimes.com/2022/09/13/opinion/environment/bill-gates-climate-change-report.html?searchResultPosition=4
 
