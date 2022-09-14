@@ -30,7 +30,7 @@ https://nytimes.com/2022/09/14/style/ben-sinclair-gets-spiritual.html?searchResu
 `For more than a decade, Catherine Engelbrecht, a Texas mom turned election-fraud crusader, has sown doubts about ballots and voting. Her patience has paid off.`\
 https://nytimes.com/2022/09/14/technology/catherine-engelbrecht-voter-fraud-conspiracy-theories.html?searchResultPosition=8
 
-**Where the New Climate Law Means More Drilling, Not Less.**\
+**Where the New Climate Law Means More Drilling, Not Less**\
 `A compromise built into the law ensures oil and gas leasing in the Gulf of Mexico for the next decade. Activists say the region has been “sacrificed” to fossil fuels.`\
 https://nytimes.com/2022/09/14/climate/louisiana-gulf-drilling-fishing.html?searchResultPosition=9
 
