@@ -1,5 +1,5 @@
-**Mowers Concedes to Leavitt in New Hampshire House G.O.P. Primary**\
-`Matt Mowers bowed to Karoline Leavitt, a 25-year-old hard-right Republican, after a race that devolved into a slugfest over the MAGA mantle.`\
+**Leavitt Upsets Mowers, Winning New Hampshire House G.O.P. Primary**\
+`Karoline Leavitt, a 25-year-old hard-right Republican, prevailed over the presumed front-runner after a race that devolved into a slugfest over the MAGA mantle.`\
 https://nytimes.com/2022/09/13/us/politics/karoline-leavitt-nh-house-gop-primary.html?searchResultPosition=1
 
 **McKee, Rhode Island’s Appointed Governor, Wins Democratic Nomination to Run for Seat**\
