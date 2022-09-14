@@ -1,6 +1,6 @@
 **The E.U.’s top official lays out plans for lasting support of Ukraine.**\
 `Ursula von der Leyen’s State of the Union message asserted that the European Union would stick together against Russia despite the economic costs.`\
-https://nytimes.com/2022/09/14/world/eu-ukraine-support.html?searchResultPosition=1
+https://nytimes.com/2022/09/14/world/europe/eu-ukraine-support.html?searchResultPosition=1
 
 **Europe Plans to Ban Goods Made With Forced Labor**\
 `While it does not explicitly mention Xinjiang, the western Chinese region where Uyghurs are believed to be pressed to work in camps, the proposal is widely seen as being aimed at Beijing.`\
