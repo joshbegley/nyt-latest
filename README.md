@@ -1,4 +1,4 @@
-**Prosecutors Move to Vacate Murder Conviction in Case Featured on ‘Serial’**\
+**Prosecutors Move to Overturn Murder Conviction in ‘Serial’ Case**\
 `The Baltimore state’s attorney said she no longer had confidence in the conviction of Adnan Syed in the 1999 murder of his high school classmate Hae Min Lee.`\
 https://nytimes.com/2022/09/14/us/adnan-syed-serial-murder-hae-min-lee.html?searchResultPosition=1
 
