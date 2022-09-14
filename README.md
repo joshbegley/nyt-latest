@@ -18,7 +18,7 @@ https://nytimes.com/2022/09/14/us/massacre-chinese-los-angeles-1871.html?searchR
 `At New York Fashion Week, a big metal bag made in the Midwest helped represent “female hysteria.”`\
 https://nytimes.com/2022/09/14/style/bags-shopping-where-the-rust-belt-meets-the-runway.html?searchResultPosition=5
 
-**Lawmakers Tell Biden Administration to Withhold All Military Aid to Egypt**\
+**Lawmakers Tell Biden Administration to Withhold Military Aid to Egypt**\
 `Senior Democratic lawmakers said the United States must not give aid to Egypt until it improves its human rights record, in the latest instance of tensions over Middle East policies.`\
 https://nytimes.com/2022/09/14/us/politics/egypt-military-aid-biden.html?searchResultPosition=6
 
