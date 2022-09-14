@@ -1,5 +1,5 @@
 **Amtrak halts long-distance service over freight rail labor dispute.**\
-`The passenger railroad said trains would operate only if they could complete trips by 12:01 a.m. Friday. Most Northeast service will continue.`\
+`The passenger railroad said trains would operate only if they could complete trips by 12:01 a.m. Friday. Most Northeast Corridor service will continue.`\
 https://nytimes.com/2022/09/14/business/amtrak-long-distance-trains.html?searchResultPosition=1
 
 **Biden Announces Major Investment in Electric Vehicle Charging Stations**\
