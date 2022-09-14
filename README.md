@@ -16,7 +16,7 @@ https://nytimes.com/2022/09/14/t-magazine/classic-tailoring-fall-fashion.html?se
 
 **Why Won’t My Husband Change His Will to Protect Our Baby and Me?**\
 `A reader wonders how to negotiate the sensitive subject of her husband’s outdated will, which she worries could leave her and her child without a place to live.`\
-https://nytimes.com/2022/09/14/style/why-wont-my-husband-change-his-will-to-protect-our-baby-and-me.html?searchResultPosition=5
+https://nytimes.com/2022/09/14/style/husband-will-family.html?searchResultPosition=5
 
 **Watch Live: Queen Elizabeth II’s Coffin Arrives at Westminster**\
 `Queen Elizabeth II will lie in state for four days while the public pay their respects.`\
