@@ -28,7 +28,7 @@ https://nytimes.com/2022/09/14/podcasts/the-daily/college-student-debt.html?sear
 
 **Irene Papas, Actress in ‘Zorba the Greek’ and Greek Tragedies, Dies at 96**\
 `She was best known for commanding movie roles in the 1960s but received the greatest plaudits for playing heroines of the ancient stage.`\
-https://nytimes.com/2022/09/14/obituaries/irene-papas-dead.html?searchResultPosition=8
+https://nytimes.com/2022/09/14/movies/irene-papas-dead.html?searchResultPosition=8
 
 **Was Elizabeth the Queen of America? This Week It Seemed Like It.**\
 `More than two centuries after Americans fought for freedom from the British crown, their descendants are absorbed by the latest chapter in the royal family’s drama.`\
