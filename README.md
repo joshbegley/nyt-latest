@@ -18,8 +18,8 @@ https://nytimes.com/2022/09/14/t-magazine/classic-tailoring-fall-fashion.html?se
 `A reader wonders how to negotiate the sensitive subject of her husband’s outdated will, which she worries could leave her and her child without a place to live.`\
 https://nytimes.com/2022/09/14/style/why-wont-my-husband-change-his-will-to-protect-our-baby-and-me.html?searchResultPosition=5
 
-**Watch Live: Queen’s Coffin Is Moved to Parliament for Public Viewing**\
-`Queen Elizabeth II’s coffin will be moved from Buckingham Palace to the Parliament’s Westminster Hall, where the queen will lie in state for four days.`\
+**Watch Live: Queen Elizabeth II’s Coffin Arrives at Westminster**\
+`Queen Elizabeth II will lie in state for four days while the public pay their respects.`\
 https://nytimes.com/video/world/europe/100000008532839/queen-elizabeth-coffin-parliament.html?searchResultPosition=6
 
 **Los Angeles to Memorialize 1871 Massacre of Chinese Residents**\
