@@ -22,17 +22,17 @@ https://nytimes.com/2022/09/14/technology/catherine-engelbrecht-voter-fraud-cons
 `A compromise built into the law ensures oil and gas leasing in the Gulf of Mexico for the next decade. Activists say the region has been “sacrificed” to fossil fuels.`\
 https://nytimes.com/2022/09/14/climate/louisiana-gulf-drilling-fishing.html?searchResultPosition=6
 
+**London Marathon Joins Boston in Welcoming Nonbinary Runners**\
+`Five of the six largest marathons in the world will soon allow runners to compete without registering as men or women. The London Marathon changed its policy on Wednesday.`\
+https://nytimes.com/2022/09/14/sports/boston-nonbinary-runners-marathon.html?searchResultPosition=7
+
 **They Translated ‘Hamilton’ Into German. Was It Easy? Nein.**\
 `For the musical’s Hamburg premiere, a team wrestled with language and cultural differences to bring the story alive for a new audience.`\
-https://nytimes.com/2022/09/14/theater/hamilton-germany.html?searchResultPosition=7
+https://nytimes.com/2022/09/14/theater/hamilton-germany.html?searchResultPosition=8
 
 **Dutch Kills, Queens: Low-Key and Low-Slung, but Not for Much Longer**\
 `Sandwiched between Astoria and Long Island City — and often overlooked because of it — this formerly sleepy industrial area is looking at big changes.`\
-https://nytimes.com/2022/09/14/realestate/dutch-kills-queens-new-york.html?searchResultPosition=8
-
-**London Marathon Joins Boston in Welcoming Nonbinary Runners**\
-`Five of the six largest marathons in the world will soon allow runners to compete without registering as men or women. The London Marathon changed its policy on Wednesday.`\
-https://nytimes.com/2022/09/14/sports/boston-nonbinary-runners-marathon.html?searchResultPosition=9
+https://nytimes.com/2022/09/14/realestate/dutch-kills-queens-new-york.html?searchResultPosition=9
 
 **The Mystery Behind the Crime Wave at 312 Riverside Drive**\
 `In thousands of 911 calls over the course of more than two years, one man has falsely reported fights, murders, bombs and hostage situations at the same address. Why?`\
