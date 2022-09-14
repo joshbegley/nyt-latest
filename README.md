@@ -1,4 +1,4 @@
-**McKee, Rhode Island’s Appointed Governor, Wins Nomination to Run for Seat**\
+**McKee, Rhode Island’s Appointed Governor, Wins Democratic Nomination to Run for Seat**\
 `Gov. Daniel McKee, a Democrat who took over for Gina Raimondo last year, overcame four challengers in a hard-fought primary with a focus on his pandemic leadership.`\
 https://nytimes.com/2022/09/13/us/politics/governor-rhode-island-primary-mckee.html?searchResultPosition=1
 
