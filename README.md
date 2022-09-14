@@ -1,40 +1,40 @@
-**China’s Leader Emerges from Covid Bubble for First Foreign Trip Since 2020**\
-`Xi Jinping, who is expected to meet with Vladimir Putin, will seek to project confidence as a global statesman at a time of grave challenges at home.`\
-https://nytimes.com/2022/09/14/world/asia/xi-jinping-putin-china.html?searchResultPosition=1
+**What It Took for Stella Levi to Talk About the Holocaust**\
+`How a chance meeting with one of the last Jews of Rhodes changed me.`\
+https://nytimes.com/2022/09/14/opinion/stella-levi-holocaust-survivor.html?searchResultPosition=1
 
-**For the Very Rich, $3,200 a Night is a ‘Prototypical’ New York Experience**\
-`Life in a hotel for the $30,000-a-day crowd. Also, ex-Gov. Cuomo continues his campaign against harassment charges.`\
-https://nytimes.com/2022/09/14/nyregion/for-the-very-rich-3200-a-night-is-a-prototypical-new-york-experience.html?searchResultPosition=2
+**House Hunting in Spain: An Updated Finca With Guesthouse on Ibiza**\
+`The Balearic Islands archipelago was Spain’s most-visited province last year, with international buyers arriving to compete for a range of homes.`\
+https://nytimes.com/2022/09/14/realestate/house-market-spain-ibiza.html?searchResultPosition=2
 
-**How Fierce Primaries, Abortion and Inflation Transformed the 2022 Map**\
-`Democrats enter the final sprint to November more optimistic than expected, especially in the race for the Senate. But Republicans remain bullish that they can sweep into a House majority.`\
-https://nytimes.com/2022/09/14/us/politics/election-abortion-midterms-inflation.html?searchResultPosition=3
+**An Old Finca With New Life on Ibiza**\
+`This updated six-bedroom country home in the center of Ibiza, one of the Balearic Islands of Spain, is on the market for $4.65 million.`\
+https://nytimes.com/slideshow/2022/09/14/realestate/house-market-spain-ibiza.html?searchResultPosition=3
 
-**An Oily Challenge: Evict Stinky Old Furnaces in Favor of Heat Pumps**\
-`Building by building, New York and other cities are trying to stop the age-old use of fossil fuels to heat homes and buildings. In the U.S., new climate laws aim to speed things up.`\
-https://nytimes.com/2022/09/14/climate/oil-gas-furnace-heat-pump.html?searchResultPosition=4
+**Ben Sinclair Gets Spiritual**\
+`The actor and writer examined — and smelled — himself with a community of seekers in Hawaii.`\
+https://nytimes.com/2022/09/14/style/ben-sinclair-gets-spiritual.html?searchResultPosition=4
 
-**From the Amazon to Patagonia: One Bureau Chief’s Terrain**\
-`The Times correspondent Jack Nicas covers Latin America’s largest nation and four of its neighbors. Sometimes, several countries call for his attention at once.`\
-https://nytimes.com/2022/09/14/insider/jack-nicas-brazil.html?searchResultPosition=5
+**How a Spreader of Voter Fraud Conspiracy Theories Became a Star**\
+`For more than a decade, Catherine Engelbrecht, a Texas mom turned election-fraud crusader, has sown doubts about ballots and voting. Her patience has paid off.`\
+https://nytimes.com/2022/09/14/technology/catherine-engelbrecht-voter-fraud-conspiracy-theories.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/09/14/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**Where the New Climate Law Means More Drilling, Not Less.**\
+`A compromise built into the law ensures oil and gas leasing in the Gulf of Mexico for the next decade. Activists say the region has been “sacrificed” to fossil fuels.`\
+https://nytimes.com/2022/09/14/climate/louisiana-gulf-drilling-fishing.html?searchResultPosition=6
 
-**Annoying Noises**\
-`What sounds do you hate?`\
-https://nytimes.com/2022/09/14/learning/annoying-noises.html?searchResultPosition=7
+**They Translated ‘Hamilton’ Into German. Was It Easy? Nein.**\
+`For the musical’s Hamburg premiere, a team wrestled with language and cultural differences to bring the story alive for a new audience.`\
+https://nytimes.com/2022/09/14/theater/hamilton-germany.html?searchResultPosition=7
 
-**Who Won and Lost in New Hampshire, Rhode Island and Delaware**\
-`Here is a rundown of some of the most important wins and losses.`\
-https://nytimes.com/2022/09/14/us/politics/winners-losers-primary-elections-nh-ri-de.html?searchResultPosition=8
+**Dutch Kills, Queens: Low-Key and Low-Slung, but Not for Much Longer**\
+`Sandwiched between Astoria and Long Island City — and often overlooked because of it — this formerly sleepy industrial area is looking at big changes.`\
+https://nytimes.com/2022/09/14/realestate/dutch-kills-queens-new-york.html?searchResultPosition=8
 
-**Britain’s Inflation Rate Slows Slightly to 9.9 Percent**\
-`But prices are still rising at about the fastest pace in 40 years and an increase in core inflation will keep the pressure on the central bank to raise interest rates.`\
-https://nytimes.com/2022/09/14/business/britain-inflation.html?searchResultPosition=9
+**London Marathon Joins Boston in Welcoming Nonbinary Runners**\
+`Five of the six largest marathons in the world will soon allow runners to compete without registering as men or women. The London Marathon changed its policy on Wednesday.`\
+https://nytimes.com/2022/09/14/sports/boston-nonbinary-runners-marathon.html?searchResultPosition=9
 
-**Word of the Day: inimical**\
-`This word has appeared in eight articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/09/14/learning/word-of-the-day-inimical.html?searchResultPosition=10
+**The Mystery Behind the Crime Wave at 312 Riverside Drive**\
+`In thousands of 911 calls over the course of more than two years, one man has falsely reported fights, murders, bombs and hostage situations at the same address. Why?`\
+https://nytimes.com/2022/09/14/nyregion/nyc-911-calls-riverside-drive.html?searchResultPosition=10
 
