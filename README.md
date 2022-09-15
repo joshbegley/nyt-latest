@@ -7,7 +7,7 @@ https://nytimes.com/2022/09/15/movies/gods-country-review.html?searchResultPosit
 https://nytimes.com/2022/09/15/world/europe/queen-elizabeth-funeral.html?searchResultPosition=2
 
 **Busloads of Migrants Arrive Outside the Vice President’s D.C. Home**\
-`Gov. Greg Abbott of Texas sent two busloads of people to Vice President Kamala Harris’s residence to protest the large numbers of immigrants being allowed into the country at the Southwestern border.`\
+`Gov. Greg Abbott of Texas sent two busloads of people to Vice President Kamala Harris’s residence to protest the large numbers of immigrants being allowed into the country at the southern border.`\
 https://nytimes.com/video/us/politics/100000008536551/texas-dc-migrants.html?searchResultPosition=3
 
 **Democrats Delay Senate Vote to Protect Gay Marriage as G.O.P. Balks**\
