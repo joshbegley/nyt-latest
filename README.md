@@ -3,7 +3,7 @@
 https://nytimes.com/2022/09/15/business/adobe-figma-deal.html?searchResultPosition=1
 
 **Roger Federer Says He Will Retire From Tennis**\
-`Federer, who won 20 Grand Slam singles titles, said injuries and surgeries had taken their toll. His final competitive matches will be next week in London.`\
+`Federer, who won 20 Grand Slam singles titles, said injuries and surgeries had taken their toll on his body. His final competitive matches will be next week in London.`\
 https://nytimes.com/2022/09/15/sports/tennis/federer-retires-tennis.html?searchResultPosition=2
 
 **Biden Issues New Order to Block Chinese Investment in Technology in the U.S.**\
