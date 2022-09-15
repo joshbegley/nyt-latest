@@ -4,7 +4,7 @@ https://nytimes.com/2022/09/14/crosswords/daily-puzzle-2022-09-15.html?searchRes
 
 **简报：习近平疫情以来首次出国；欧洲计划禁止使用强迫劳动制造产品**\
 `TikTok就与中国关系接受美国议员质询；泽连斯基突访被收复城市；瑞典右翼联合政党胜选；加拿大护士短缺，多地急诊室关闭……这里是今日要闻。`\
-https://nytimes.com/2022/09/14/world/asia/xi-foreign-trip-china.html?searchResultPosition=2
+https://nytimes.com/zh-hans/2022/09/14/world/asia/xi-foreign-trip-china.html?searchResultPosition=2
 
 **Sex Abuse Victims Plead to Keep Doctor’s Conviction Despite His Suicide**\
 `Ricardo Cruciani killed himself at Rikers. His victims asked a judge to maintain his conviction all the same.`\
