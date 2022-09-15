@@ -3,7 +3,7 @@
 https://nytimes.com/2022/09/15/us/politics/senate-gay-marriage.html?searchResultPosition=1
 
 **Governors of Florida and Texas Intensify Fight Over Immigration**\
-`Decisions to bus migrants to the vice president’s residence and to fly others to Martha’s Vineyard were the latest attempt to provoke outrage over record arrivals at the border.`\
+`Decisions to bus migrants to the vice president’s residence and to fly others to Martha’s Vineyard were the latest attempts to provoke outrage over record arrivals at the border.`\
 https://nytimes.com/2022/09/15/us/desantis-abbott-migrants-immigration.html?searchResultPosition=2
 
 **Corrections: Sept. 15, 2022**\
