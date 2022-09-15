@@ -2,7 +2,7 @@
 `We may be more susceptible to the virus than we have been in recent years, but doctors have tips to stay healthy.`\
 https://nytimes.com/2022/09/15/well/live/flu-season.html?searchResultPosition=1
 
-**Judge Keeps Block on Inquiry Into Mar-a-Lago Files and Appoints Special Master**\
+**Judge Keeps Block on Inquiry Into Mar-a-Lago Files and Names Special Master**\
 `The Justice Department has threatened to go to an appeals court and seek an emergency stay if she did not agree to its proposal to resume a key part of the investigation.`\
 https://nytimes.com/2022/09/15/us/trump-documents-special-master.html?searchResultPosition=2
 
