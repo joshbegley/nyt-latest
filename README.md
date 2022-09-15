@@ -1,4 +1,4 @@
-**Mouners Wait Overnight to Pay Respects to Queen Elizabeth II**\
+**Mourners Wait Overnight to Pay Respects to Queen Elizabeth II**\
 `Thousands of people weaved through a line that stretched more than three miles long overnight to see the coffin of Queen Elizabeth II lying in state in Westminster Hall.`\
 https://nytimes.com/video/world/europe/100000008535751/queen-elizabeth-viewing-lines.html?searchResultPosition=1
 
