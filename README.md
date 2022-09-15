@@ -8,7 +8,7 @@ https://nytimes.com/2022/09/15/world/europe/putin-china-ukraine.html?searchResul
 
 **Who’s Afraid of the Consumer Price Index?**\
 `There wasn’t really much news in that inflation report.`\
-https://nytimes.com/2022/09/15/opinion/whos-afraid-of-the-consumer-price-index.html?searchResultPosition=3
+https://nytimes.com/2022/09/15/opinion/consumer-price-index.html?searchResultPosition=3
 
 **The Political Calculations Behind DeSantis’s Migrant Flights North**\
 `Gov. Ron DeSantis of Florida sent migrants to Massachusetts. He aimed to make a point about President Biden, but immigration issues are nothing new.`\
