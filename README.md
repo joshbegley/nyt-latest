@@ -4,7 +4,7 @@ https://nytimes.com/2022/09/15/world/asia/putin-xi-meeting.html?searchResultPosi
 
 **Your Thursday Briefing**\
 `Zelensky at the front.`\
-https://nytimes.com/2022/09/15/briefing/zelensky-ukraine-russia-sweden-election.html?searchResultPosition=2
+https://nytimes.com/2022/09/15/briefing/zelensky-ukraine-russia-election-izium.html?searchResultPosition=2
 
 **A Closer Look at The Times’s Report on Hasidic Schools**\
 `Our reporters did hundreds of interviews and read thousands of pages of documents to investigate the shortcomings of secular education in yeshivas.`\
