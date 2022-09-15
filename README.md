@@ -22,13 +22,13 @@ https://nytimes.com/2022/09/15/sports/football/football-helmet-shortage.html?sea
 `What we wear to take our kids to school may not be important, but it is uplifting.`\
 https://nytimes.com/2022/09/15/style/the-school-drop-off-outfit.html?searchResultPosition=6
 
-**How Cash-Strapped Schools Are Benefiting From the Sun**\
-`Public schools are increasingly using savings from solar energy to upgrade facilities, help their communities, and give teachers raises — often with no cost to taxpayers.`\
-https://nytimes.com/2022/09/15/climate/solar-energy-school-funding.html?searchResultPosition=7
-
 **New Inflation Developments Are Rattling Markets and Economists. Here’s Why.**\
 `Inflation is less about pandemic and war surprises and more about economic momentum. That could make the solution more painful.`\
-https://nytimes.com/2022/09/15/business/economy/inflation-markets-economy.html?searchResultPosition=8
+https://nytimes.com/2022/09/15/business/economy/inflation-markets-economy.html?searchResultPosition=7
+
+**How Cash-Strapped Schools Are Benefiting From the Sun**\
+`Public schools are increasingly using savings from solar energy to upgrade facilities, help their communities, and give teachers raises — often with no cost to taxpayers.`\
+https://nytimes.com/2022/09/15/climate/solar-energy-school-funding.html?searchResultPosition=8
 
 **Decoding the Dress Code: What to Wear to a Wedding Now**\
 `From “desert chic” to “beach formal,” many couples are selecting distinctive themes for their weddings and are asking their guests to look the part.`\
