@@ -28,7 +28,7 @@ https://nytimes.com/video/us/politics/100000008537009/biden-rail-labor-agreement
 
 **Roger Federer Came Along When Tennis Desperately Needed Him**\
 `Tennis had lost its cachet in the early 2000s before Federer made the classic sport modern and the modern sport classier.`\
-https://nytimes.com/2022/09/15/sports/roger-federer-came-along-when-tennis-desperately-needed-him.html?searchResultPosition=8
+https://nytimes.com/2022/09/15/sports/tennis/roger-federer-came-along-when-tennis-desperately-needed-him.html?searchResultPosition=8
 
 **Color, Sparkles and Style Return to New York**\
 `Nothing but vibes.`\
