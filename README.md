@@ -1,4 +1,4 @@
-**Amtrak Is Scrambling to Restore Trains it Had Canceled**\
+**Amtrak Is Scrambling to Restore Trains It Had Canceled**\
 `The rail service had started canceling all long-distance passenger trains on Wednesday because of the possible work stoppage on freight railroads.`\
 https://nytimes.com/2022/09/15/business/amtrak-restore-train-service.html?searchResultPosition=1
 
