@@ -1,5 +1,5 @@
 **European Union Signals a Move Away from Wood Energy**\
-`Wood was supposed to help the E.U. reach its renewable energy goals. But it has contributed to a loss of Europe’s protected woodlands.`\
+`Wood was supposed to help the E.U. reach its renewable energy goals. But it has contributed to increased emissions and a loss of Europe’s protected woodlands.`\
 https://nytimes.com/2022/09/15/world/europe/europe-wood-energy-deforestatation.html?searchResultPosition=1
 
 **A Man Tried to Kill the Vice President. Then Came the Conspiracy Theories.**\
