@@ -23,7 +23,7 @@ https://nytimes.com/2022/09/15/learning/whats-going-on-in-this-graph-sept-21-202
 https://nytimes.com/2022/09/15/style/tom-ford-michael-kors-new-york-fashion-week.html?searchResultPosition=6
 
 **Now Visiting From India, an ‘Ancestor’ for Everyone**\
-`A multi-headed goddess by the sculptor Bharti Kher has arrived at Central Park.  Its message is open to interpretation — and comfortable with contradiction.`\
+`A multi-headed goddess by the sculptor Bharti Kher has arrived at Central Park. Its message is open to interpretation — and comfortable with contradiction.`\
 https://nytimes.com/2022/09/15/arts/design/bharti-kher-statue-central-park-india.html?searchResultPosition=7
 
 **Mourners Wait Overnight to Pay Respects to Queen Elizabeth II**\
