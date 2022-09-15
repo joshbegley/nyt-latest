@@ -12,7 +12,7 @@ https://nytimes.com/2022/09/15/world/europe/germany-holocaust-reparations-ukrain
 
 **Workers Say Railroads’ Efficiency Push Became Too Much**\
 `Employees say the inflexibility of scheduling upended their personal lives. The companies say they maintained service while using fewer resources.`\
-https://nytimes.com/2022/09/15/business/economy/freight-railroad-workers.html?searchResultPosition=4
+https://nytimes.com/2022/09/15/business/economy/railroad-workers-strike.html?searchResultPosition=4
 
 **16 Soups Our Food Staff Cooks on Repeat**\
 `Cozy season is almost here. Greet it with a bowl of French onion, vegetable, chicken noodle or potato soup.`\
