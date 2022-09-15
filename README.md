@@ -7,7 +7,7 @@ https://nytimes.com/2022/09/15/sports/basketball/uconn-pay-kevin-ollie.html?sear
 https://nytimes.com/2022/09/15/arts/design/aperture-foundation-new-headquarters.html?searchResultPosition=2
 
 **Related Companies and Wynn to Bid for New Casino in Midtown Manhattan**\
-`The companies want to put the casino on the western half of the Hudson Yards, which remains undeveloped.`\
+`The companies want to put the casino on the western half of Hudson Yards, which remains undeveloped.`\
 https://nytimes.com/2022/09/15/nyregion/casino-hudson-yards-manhattan.html?searchResultPosition=3
 
 **Earl J. Silbert, Lead Prosecutor of Watergate Break-In, Dies at 86**\
