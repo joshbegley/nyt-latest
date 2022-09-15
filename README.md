@@ -1,5 +1,5 @@
 **Plays of Helplessness, and Hope, as the Planet Burns**\
-`New works by major German-language dramatists at the Kunstfest Weimar festival tackle ethical questions at a moment of ecological anxiety.`\
+`New works by major German-language dramatists at the Kunstfest Weimar festival tackle ethical questions at a moment of environmental anxiety.`\
 https://nytimes.com/2022/09/15/theater/kunstfest-weiman-falk-richter-thomas-koech.html?searchResultPosition=1
 
 **Could a National Abortion Ban Save Republicans?**\
@@ -26,8 +26,8 @@ https://nytimes.com/2022/09/15/realestate/homes-texas-minnesota-connecticut.html
 `A Tudor Revival cottage in Dallas; a 1950 house in Minnetonka, MInn.; and an 1890 Arts-and-Crafts home in Branford, Conn.`\
 https://nytimes.com/slideshow/2022/09/15/realestate/what-you-get-for-400000.html?searchResultPosition=7
 
-**Impact of Helmet Shortage Felt on High School Football Fields**\
-`Supply chain problems have slowed manufacturing, leaving coaches scrambling to find protective gear for their teams.`\
+**Helmet Shortage in High School Football Raises Costs, and Risks**\
+`Supply chain problems have slowed manufacturing, leaving coaches around the country scrambling to find protective gear for their teams.`\
 https://nytimes.com/2022/09/15/sports/football/football-helmet-shortage.html?searchResultPosition=8
 
 **Run-Down, Burnt Out and Dressed Up**\
