@@ -26,7 +26,7 @@ https://nytimes.com/2022/09/15/crosswords/spelling-bee-forum.html?searchResultPo
 `Tell us a story, real or made up, that is inspired by this image.`\
 https://nytimes.com/2022/09/15/learning/portal.html?searchResultPosition=7
 
-**The Hollywood Merger That Could Reshape Soccer’s Transfer Market**\
+**The Hollywood Merger That Could Reshape the Business of Soccer**\
 `As two behemoths join forces against boutique agencies in the fight for control and commissions, some fear profits could come before players.`\
 https://nytimes.com/2022/09/15/sports/soccer/soccer-transfers-agents.html?searchResultPosition=8
 
