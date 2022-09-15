@@ -1,40 +1,40 @@
-**What You Need to Know About a Possible Rail Strike**\
-`Tens of thousands of rail workers could walk off the job as soon as Friday because of an impasse in negotiations over sick time and working conditions.`\
-https://nytimes.com/2022/09/15/business/rail-strike-explainer.html?searchResultPosition=1
+**The World Is Waiting to Be Discovered. Take a Walk.**\
+`Walking in my neighborhood taught me what running wild in the mountains couldn’t. `\
+https://nytimes.com/2022/09/15/opinion/walking-mindfulness-benefits.html?searchResultPosition=1
 
-**Can You Guess the Country? A Geography Photo Quiz for Students**\
-`Test your geography knowledge using photographs from around the world.`\
-https://nytimes.com/interactive/2022/09/15/learning/14CountryPhotoQuiz.html?searchResultPosition=2
+**$400,000 Homes in Texas, Minnesota and Connecticut**\
+`A Tudor Revival cottage in Dallas, a 1950 house in Minnetonka and an 1890 Arts and Crafts-style home in Branford.`\
+https://nytimes.com/2022/09/15/realestate/homes-texas-minnesota-connecticut.html?searchResultPosition=2
 
-**Crypto’s Long-Awaited ‘Merge’ Reaches the Finish Line**\
-`Ethereum, the most popular cryptocurrency platform, completed its much-anticipated switch to a more energy-efficient infrastructure.`\
-https://nytimes.com/2022/09/15/technology/ethereum-merge-crypto.html?searchResultPosition=3
+**What You Get for $400,000**\
+`A Tudor Revival cottage in Dallas; a 1950 house in Minnetonka, MInn.; and an 1890 Arts-and-Crafts home in Branford, Conn.`\
+https://nytimes.com/slideshow/2022/09/15/realestate/what-you-get-for-400000.html?searchResultPosition=3
 
-**Fetterman Says Stroke Problems Have Not Slowed Down a ‘Normal’ Campaign**\
-`In one of his most extensive interviews since having a stroke, John Fetterman said he was fully capable of handling a campaign that may decide who controls the U.S. Senate.`\
-https://nytimes.com/2022/09/15/us/politics/fetterman-stroke-health.html?searchResultPosition=4
+**Impact of Helmet Shortage Felt on High School Football Fields**\
+`Supply chain problems have slowed manufacturing, leaving coaches scrambling to find protective gear for their teams.`\
+https://nytimes.com/2022/09/15/sports/football/football-helmet-shortage.html?searchResultPosition=4
 
-**Searching for Common Ground in a Fractured Political Landscape**\
-`Astead Herndon, who hosts “The Run-Up” podcast, discussed his approach to the show and why voters’ voices matter.`\
-https://nytimes.com/2022/09/15/insider/searching-for-common-ground-in-a-fractured-political-landscape.html?searchResultPosition=5
+**Run-Down, Burnt Out and Dressed Up**\
+`What we wear to take our kids to school may not be important, but it is uplifting.`\
+https://nytimes.com/2022/09/15/style/the-school-drop-off-outfit.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/09/15/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**How Cash-Strapped Schools Are Benefiting From the Sun**\
+`Public schools are increasingly using savings from solar energy to upgrade facilities, help their communities, and give teachers raises — often with no cost to taxpayers.`\
+https://nytimes.com/2022/09/15/climate/solar-energy-school-funding.html?searchResultPosition=6
 
-**Portal**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2022/09/15/learning/portal.html?searchResultPosition=7
+**New Inflation Developments Are Rattling Markets and Economists. Here’s Why.**\
+`Inflation is less about pandemic and war surprises and more about economic momentum. That could make the solution more painful.`\
+https://nytimes.com/2022/09/15/business/economy/inflation-markets-economy.html?searchResultPosition=7
 
-**The Hollywood Merger That Could Reshape the Business of Soccer**\
-`As two behemoths join forces against boutique agencies in the fight for control and commissions, some fear profits could come before players.`\
-https://nytimes.com/2022/09/15/sports/soccer/soccer-transfers-agents.html?searchResultPosition=8
+**Decoding the Dress Code: What to Wear to a Wedding Now**\
+`From “desert chic” to “beach formal,” many couples are selecting distinctive themes for their weddings and are asking their guests to look the part.`\
+https://nytimes.com/2022/09/15/style/wedding-guest-dress-code.html?searchResultPosition=8
 
-**Mosquito Fire Becomes California’s Largest of Year**\
-`The blaze grew to more than 63,000 acres on Wednesday, overtaking the McKinney fire to become the state’s biggest of 2022.`\
-https://nytimes.com/2022/09/15/us/mosquito-fire-california.html?searchResultPosition=9
+**5 Russian Bullets Dashed an Opera Singer’s Dreams. Then He Reclaimed His Voice.**\
+`While on a rescue mission in Ukraine, Sergiy Ivanchuk was shot in the lungs, apparently ending his chance at opera stardom. His recovery is a marvel of medicine, chance and his own spirit.`\
+https://nytimes.com/2022/09/15/world/europe/ukraine-opera-singer.html?searchResultPosition=9
 
-**Woman Is Arrested in South Korea Over Deaths of 2 Children in New Zealand**\
-`The children’s bodies were found in suitcases that had been in a storage facility, said the New Zealand police, who are seeking the woman’s extradition on murder charges.`\
-https://nytimes.com/2022/09/15/world/asia/new-zealand-south-korea.html?searchResultPosition=10
+**Giorgia Meloni May Lead Italy, and Europe Is Worried**\
+`The hard-right leader has excoriated the European Union in the past, and she regularly blasts illegal immigrants and George Soros. But she is closer than ever to becoming prime minister.`\
+https://nytimes.com/2022/09/15/world/europe/giorgia-meloni-italy-right.html?searchResultPosition=10
 
