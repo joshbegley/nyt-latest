@@ -30,7 +30,7 @@ https://nytimes.com/2022/09/16/sports/soccer/psg-attack-diallo-hamraoui.html?sea
 `Five articles from around The Times, narrated just for you.`\
 https://nytimes.com/2022/09/16/podcasts/san-francisco-fog-ukraine-monkey-pox-narrated-articles.html?searchResultPosition=8
 
-**Intense Rainstorms Leave at Least 11 Dead in Central Italy**\
+**Intense Rainstorms Leave at Least 9 Dead in Central Italy**\
 `The downpour was the latest in a summer of extreme weather events. Streets were turned into rivers, bridges and highways were blocked, and thousands were left without power.`\
 https://nytimes.com/2022/09/16/world/europe/italy-storms-floods.html?searchResultPosition=9
 
