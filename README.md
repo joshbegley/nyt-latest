@@ -30,7 +30,7 @@ https://nytimes.com/interactive/2022/09/16/briefing/the-weekender.html?searchRes
 `The September 16, 2022 episode of “The Ezra Klein Show.”`\
 https://nytimes.com/2022/09/16/podcasts/ezra-klein-interviews-felicia-wong.html?searchResultPosition=8
 
-**The Climate Philanthropists**\
+**The climate philanthropists**\
 `The founder of the Patagonia clothing company is handing the business to a nonprofit group. We look at climate giving and why this move is different.`\
 https://nytimes.com/2022/09/16/climate/yvon-chouinard-patagonia-philanthropy.html?searchResultPosition=9
 
