@@ -1,6 +1,6 @@
 **Stocks Slide in One of Market’s Worst Weeks This Year**\
 `Pessimism is deepening as bellwether companies like FedEx and General Electric warn of worsening economic and business conditions.`\
-https://nytimes.com/2022/09/16/business/stocks-slide-in-one-of-investors-worst-weeks-this-year.html?searchResultPosition=1
+https://nytimes.com/2022/09/16/business/stock-market-economy.html?searchResultPosition=1
 
 **Mass Grave Uncovered in Reclaimed Ukrainian City**\
 `Ukrainian officials said a grave site found in Izium, Ukraine, could hold the bodies of more than 400 people who died during the six months of Russian occupation.`\
