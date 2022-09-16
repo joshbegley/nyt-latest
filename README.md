@@ -1,40 +1,40 @@
+**Britain’s Spending and Tax Cut Plans Worry Investors in Its Debt**\
+`Simultaneous declines in bonds, stocks and the pound could set the stage for rising borrowing costs and persistent inflation.`\
+https://nytimes.com/2022/09/16/business/uk-government-debt.html?searchResultPosition=1
+
+**What Price Is Right? Why Capping Russian Oil Is Complicated.**\
+`Officials from the Group of 7 are striving to strike a delicate balance that encourages Russia to keep pumping oil but to sell it at a discount.`\
+https://nytimes.com/2022/09/16/business/russian-oil-price-cap.html?searchResultPosition=2
+
+**Corrections: Sept. 16, 2022**\
+`Corrections that appeared in print on Friday, Sept. 16, 2022.`\
+https://nytimes.com/2022/09/16/pageoneplus/corrections-sept-16-2022.html?searchResultPosition=3
+
+**Quotation of the Day: Homes Built in Harm’s Way, Even as Wildfires Grow Larger**\
+`Quotation of the Day for Friday, Sept. 16, 2022.`\
+https://nytimes.com/2022/09/16/todayspaper/quotation-of-the-day-homes-built-in-harms-way-even-as-wildfires-grow-larger.html?searchResultPosition=4
+
+**After a Fire, Rebuilding What Matters**\
+`Months before their wedding, Emily Thompson and Stefan Kienle lost most of their possessions in the Marshall fire that destroyed their home and many others in Louisville, Colo.`\
+https://nytimes.com/2022/09/16/style/emily-thompson-stefan-kienle-wedding.html?searchResultPosition=5
+
+**Please Let Me Do More Laundry and Vacuuming!**\
+`For decades, I avoided domestic tasks. My failing vision has made me cherish them.`\
+https://nytimes.com/2022/09/16/style/modern-love-marriage-embracing-domestic-tasks-vision-loss.html?searchResultPosition=6
+
+**A Relationship With Biblical Origins**\
+`Cecelia Thornton-Alson and Terence Lee met at a wedding, where they read from the ‘Song of Songs,’ and soon began a bicoastal relationship.`\
+https://nytimes.com/2022/09/16/style/cecelia-thornton-alson-terence-lee-wedding.html?searchResultPosition=7
+
+**Dog Lovers Become Almost Instant Companions**\
+`Weeks after Kachet Jackson-Henderson and James Bell met on Tinder, where the profiles of both featured photos of their dogs, she ended up in the hospital and he rushed to her side.`\
+https://nytimes.com/2022/09/16/style/kachet-jackson-henderson-james-bell-wedding.html?searchResultPosition=8
+
+**Without Knowing It, Opening the Door to Romance**\
+`Jobina Fortson and Bradley Evans met when he knocked on her dorm-room door at Howard University looking to use her printer. Eleven years later, they married.`\
+https://nytimes.com/2022/09/16/style/jobina-fortson-bradley-evans-wedding.html?searchResultPosition=9
+
 **YouTube Opens More Pathways for Creators to Make Money on the Platform**\
 `The video platform will let more creators earn payments and place ads in Shorts, its TikTok competitor, according to audio from an internal meeting.`\
-https://nytimes.com/2022/09/15/technology/youtube-opens-more-pathways-for-creators-to-make-money-on-the-platform.html?searchResultPosition=1
-
-**Is This the End of the People’s Beach?**\
-`For decades, the shoreline in the shelter of a derelict hospital at Riis Beach was a queer haven. Soon, the buildings will be demolished.`\
-https://nytimes.com/interactive/2022/09/15/nyregion/jacob-riis-beach-nyc.html?searchResultPosition=2
-
-**Ex-Police Detective Suspected of Preying on Black Women Faces U.S. Charges**\
-`The former officer, Roger Golubski, 69, was indicted on charges that he sexually assaulted two women while on duty from 1998 to 2002, the Justice Department said.`\
-https://nytimes.com/2022/09/15/us/kansas-police-officer-sexual-assault.html?searchResultPosition=3
-
-**Variety: Split Decisions**\
-`Fred Piscop presents an extravaganza of uncertainties.`\
-https://nytimes.com/2022/09/15/crosswords/variety-split-decisions.html?searchResultPosition=4
-
-**Monterey Runner**\
-`Juliana Tringali Golden opens our solving weekend.`\
-https://nytimes.com/2022/09/15/crosswords/daily-puzzle-2022-09-16.html?searchResultPosition=5
-
-**The U.S. will send $600 million in additional military supplies to Ukraine.**\
-`The new shipment continues the Pentagon’s recent trend of sending ammunition that Ukraine needs to carry out heavy fighting in the country’s south, east and northeast.`\
-https://nytimes.com/2022/09/15/world/europe/biden-ukraine-military-aid.html?searchResultPosition=6
-
-**Sandy Alderson Will Step Down as Mets Team President**\
-`Alderson, the team president, will move into a special adviser role for owners Steve and Alex Cohen when a successor has been found.`\
-https://nytimes.com/2022/09/15/sports/baseball/sandy-alderson-mets-team-president.html?searchResultPosition=7
-
-**Uber Investigating Breach of Its Computer Systems**\
-`The company said on Thursday that it was looking into the scope of the apparent hack.`\
-https://nytimes.com/2022/09/15/technology/uber-hacking-breach.html?searchResultPosition=8
-
-**Jan. 6 Rioter Wearing ‘Camp Auschwitz’ Sweatshirt Gets 75 Days in Prison**\
-`Robert Keith Packer, 57, of Newport News, Va., was also ordered to pay $500 in restitution in connection with the riot at the Capitol.`\
-https://nytimes.com/2022/09/15/us/jan-6-camp-auschwitz-hoodie.html?searchResultPosition=9
-
-**‘Remember This’ Review: Finding Strength Amid Moral Failure**\
-`David Strathairn is remarkable in a solo show about Jan Karski, who was profoundly changed by what he witnessed during World War II.`\
-https://nytimes.com/2022/09/15/theater/remember-this-the-lessons-of-jan-karski-review.html?searchResultPosition=10
+https://nytimes.com/2022/09/15/technology/youtube-opens-more-pathways-for-creators-to-make-money-on-the-platform.html?searchResultPosition=10
 
