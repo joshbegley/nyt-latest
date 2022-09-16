@@ -1,5 +1,5 @@
 **French Player Re-Arrested in Case of Attack on Teammate**\
-`Aminata Diallo, a former P.S.G. midfielder, was detained and then released last year after one of her teammates was attacked by masked men. On Friday, the police took her back into custody.`\
+`Aminata Diallo, a former P.S.G. midfielder, was detained and then released last year after one of her teammates was assaulted by masked men. On Friday, the police took her back into custody.`\
 https://nytimes.com/2022/09/16/sports/soccer/psg-attack-diallo-hamraoui.html?searchResultPosition=1
 
 **The Future of San Francisco’s Fog and More: The Week in Narrated Articles**\
