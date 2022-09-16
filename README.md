@@ -1,4 +1,4 @@
-**Stocks Slide in One of Investors’ Worst Weeks This Year**\
+**Stocks Slide in One of Market’s Worst Weeks This Year**\
 `Pessimism is deepening as bellwether companies like FedEx and General Electric warn of worsening economic and business conditions.`\
 https://nytimes.com/2022/09/16/business/stocks-slide-in-one-of-investors-worst-weeks-this-year.html?searchResultPosition=1
 
