@@ -18,7 +18,7 @@ https://nytimes.com/2022/09/15/theater/remember-this-the-lessons-of-jan-karski-r
 `Two high school girls with grudges form a bond to get back at those who wronged them.`\
 https://nytimes.com/2022/09/15/movies/do-revenge-review-strangers-on-a-text-chain.html?searchResultPosition=5
 
-**G.O.P. Governors Transfer Migrants to ‘Sanctuary’ Destinations**\
+**G.O.P. Governors Transfer Migrants to Faraway States**\
 `The Republican governors of Florida and Texas sent roughly 150 migrants to Washington, D.C., and Martha’s Vineyard in Massachusetts to protest the high number of arrivals at the Southern border.`\
 https://nytimes.com/video/us/politics/100000008537174/desantis-abbott-migrants-immigration.html?searchResultPosition=6
 
