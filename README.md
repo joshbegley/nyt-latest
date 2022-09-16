@@ -2,7 +2,7 @@
 `Ukraine begins to exhume bodies from a mass grave site.`\
 https://nytimes.com/2022/09/16/briefing/russia-ukraine-war-izium-putin-mykolaiv.html?searchResultPosition=1
 
-**Who’s the Best in Men’s Tennis? It Depends on How You Measure**\
+**Who’s the Best in Men’s Tennis? It Depends on How You Measure.**\
 `Roger Federer, Rafael Nadal and Novak Djokovic all have credible claims to be considered the best. Here are a few ways to consider their gaudy stats.`\
 https://nytimes.com/2022/09/16/sports/tennis/federer-stats-nadal-djokovic-career-numbers.html?searchResultPosition=2
 
