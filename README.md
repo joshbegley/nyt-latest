@@ -14,7 +14,7 @@ https://nytimes.com/2022/09/15/crosswords/variety-split-decisions.html?searchRes
 `Juliana Tringali Golden opens our solving weekend.`\
 https://nytimes.com/2022/09/15/crosswords/daily-puzzle-2022-09-16.html?searchResultPosition=4
 
-**Biden says the U.S. will send $600 million in additional military supplies to Ukraine.**\
+**The U.S. will send $600 million in additional military supplies to Ukraine.**\
 `The new shipment continues the Pentagon’s recent trend of sending ammunition that Ukraine needs to carry out heavy fighting in the country’s south, east and northeast.`\
 https://nytimes.com/2022/09/15/world/europe/biden-ukraine-military-aid.html?searchResultPosition=5
 
