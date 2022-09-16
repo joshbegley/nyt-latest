@@ -27,7 +27,7 @@ https://nytimes.com/video/us/politics/100000008537174/desantis-abbott-migrants-i
 https://nytimes.com/2022/09/15/well/live/flu-season.html?searchResultPosition=7
 
 **Judge Keeps Block on Inquiry Into Mar-a-Lago Files and Names Special Master**\
-`The Justice Department has threatened to go to an appeals court and seek an emergency stay if she did not agree to its proposal to resume a key part of the investigation.`\
+`The Justice Department is planning to appeal, but the decision is likely to significantly delay its investigation into former President Donald J. Trump’s handling of government records.`\
 https://nytimes.com/2022/09/15/us/trump-documents-special-master.html?searchResultPosition=8
 
 **‘I Ended Up on This Little Island’: Migrants Land in Political Drama**\
