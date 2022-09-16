@@ -1,4 +1,4 @@
-**Intense Rainstorms Kill at Least 11 in Central Italy**\
+**Intense Rainstorms Leave at Least 11 Dead in Central Italy**\
 `The downpour was the latest in a summer of extreme weather events. Streets were turned into rivers, bridges and highways were blocked, and thousands were left without power.`\
 https://nytimes.com/2022/09/16/world/europe/italy-storms-floods.html?searchResultPosition=1
 
