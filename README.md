@@ -1,5 +1,5 @@
 **G.O.P. Governors Send Migrants to Liberal Areas to Protest Immigration**\
-`The Republican governors of Florida and Texas sent roughly 150 people to Washington and Martha’s Vineyard to protest the high number of migrants crossing into the country at the Southern border.`\
+`The Republican governors of Florida and Texas sent roughly 150 migrants to Washington, D.C., and Martha’s Vineyard in Massachusetts to protest the high number of arrivals at the Southern border.`\
 https://nytimes.com/video/us/politics/100000008537174/desantis-abbott-migrants-immigration.html?searchResultPosition=1
 
 **Flu Season Is Coming. Here’s How to Prepare.**\
