@@ -1,40 +1,40 @@
-**‘At the Breaking Point’: Tibetans, Under Lockdown, Make Rare Cries for Help**\
-`China’s ever-tightening Covid rules have prompted public complaints from residents of areas usually intimidated into keeping quiet.`\
-https://nytimes.com/2022/09/16/world/asia/tibet-covid-lockdown.html?searchResultPosition=1
+**At Millions Per Detainee, Guantánamo Prison Stuck in a Cycle of Costly Delays**\
+`The mission has relied on short-term fixes for things like housing and medical care for two decades. With 36 detainees left, the prison will soon receive its 21st commander.`\
+https://nytimes.com/2022/09/16/us/politics/guantanamo-bay-prison-cost.html?searchResultPosition=1
 
-**Lesson Plan: The Mississippi Water Crisis and What It Means for the Rest of the Nation**\
-`In this lesson, students will learn how more than 150,000 people were without safe, reliable drinking water for weeks and how climate change has emerged as a growing threat to water systems across the country.`\
-https://nytimes.com/2022/09/16/learning/lesson-plans/lesson-plan-the-mississippi-water-crisis-and-what-it-means-for-the-rest-of-the-nation.html?searchResultPosition=2
+**How Far Should We Go to Save a Species?**\
+`As scientists push the frontiers of conservation technology, some of their initiatives raise ethical questions.`\
+https://nytimes.com/2022/09/16/opinion/conservation-ethics.html?searchResultPosition=2
 
-**The Afterlife of Willem de Kooning**\
-`The artist’s ghost lingers in his studio, as an auction of three of his paintings tests the vitality of his commercial reputation.`\
-https://nytimes.com/2022/09/16/arts/design/de-kooning-sothebys-studio-east-hampton.html?searchResultPosition=3
+**TikTok’s C.E.O. Navigates the Limits of His Power**\
+`Shou Zi Chew, TikTok’s chief executive, is balancing how to be an autonomous leader while juggling the demands of the app’s Chinese parent company.`\
+https://nytimes.com/2022/09/16/technology/tiktok-ceo-shou-zi-chew.html?searchResultPosition=3
 
-**31 Bridges, 2 Cities, 6 Towns: Greenway Is New Jersey’s High Line**\
-`New Jersey plans to convert a defunct train line into a 9-mile park, connecting the state’s densest cities to some of its wealthiest suburbs.`\
-https://nytimes.com/2022/09/16/nyregion/new-jersey-greenway.html?searchResultPosition=4
+**For Gen Z, TikTok Is the New Search Engine**\
+`Need to find a restaurant or figure out how to do something? Young people are turning to TikTok to search for answers. Google has noticed.`\
+https://nytimes.com/2022/09/16/technology/gen-z-tiktok-search-engine.html?searchResultPosition=4
 
-**Democrats Buoyed by Abortion and Trump, Times/Siena Poll Finds**\
-`President Biden’s approval rating has climbed to 42 percent, and the number of Americans who believe the country is on the right track has doubled but remains low.`\
-https://nytimes.com/2022/09/16/us/politics/biden-democrats-abortion-trump-poll.html?searchResultPosition=5
+**‘A Kitchen for the Kitchen’**\
+`The back kitchen, in essence a pantry on overdrive, has become increasingly popular in recent years, according to architects, designers and homebuilders.`\
+https://nytimes.com/2022/09/16/realestate/back-kitchen-scullery.html?searchResultPosition=5
 
-**What Shiva Taught Me About Covering Tragedy**\
-`I had never covered a mass shooting before. Calling the families of victims was tough, but a familiar ritual helped me.`\
-https://nytimes.com/2022/09/16/insider/what-shiva-taught-me-about-covering-tragedy.html?searchResultPosition=6
+**She’s Come Undone (on Purpose)**\
+`The jeans of the young and stylish are unzipped, unbuttoned and unbothered. Why?`\
+https://nytimes.com/2022/09/16/style/shes-come-undone-on-purpose.html?searchResultPosition=6
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/09/16/crosswords/spelling-bee-forum.html?searchResultPosition=7
+**At Old Coal Mines, the American Chestnut Tries for a Comeback**\
+`Across Appalachia, scientists and foresters are trying to reintroduce a hybrid version, helping to revive damaged land while also bringing back a beloved tree.`\
+https://nytimes.com/2022/09/16/climate/coal-mine-american-chestnut.html?searchResultPosition=7
 
-**Message Bubbles**\
-`What do you think this image is communicating?`\
-https://nytimes.com/2022/09/16/learning/message-bubbles.html?searchResultPosition=8
+**A Rail Strike Averted Reminds Us That There Is Power in a Union**\
+`The single best thing President Biden and the Democratic Party could do for workers is to give them the tools and support to build power for themselves.`\
+https://nytimes.com/2022/09/16/opinion/railroad-strike-labor-unions.html?searchResultPosition=8
 
-**September 2022 Times/Siena Poll: Cross-Tabs for All Respondents**\
-`Responses from a survey of registered voters conducted by The New York Times and Siena College Sept. 6 to 14, 2022`\
-https://nytimes.com/interactive/2022/09/16/upshot/september-2022-times-siena-poll-crosstabs.html?searchResultPosition=9
+**Was Kanye Right?**\
+`A civil rights advocate investigates.`\
+https://nytimes.com/2022/09/16/books/review/black-skinhead-brandi-collins-dexter.html?searchResultPosition=9
 
-**Ron DeSantis’s Migrant Stunt Gets Poor Reviews From Late Night**\
-`The Florida governor claimed credit for sending migrants to Martha’s Vineyard. Trevor Noah accused him of trolling on the taxpayers’ dime.`\
-https://nytimes.com/2022/09/16/arts/television/ron-desantiss-migrant-stunt-gets-poor-reviews-from-late-night.html?searchResultPosition=10
+**Privilege Is in Crisis. Look at Our Elite Private Schools.**\
+`The past few years have witnessed a lot of upheaval in the name of political reckoning. Is the pendulum swinging back to tradition?`\
+https://nytimes.com/2022/09/16/nyregion/trinity-grace-church-school.html?searchResultPosition=10
 
