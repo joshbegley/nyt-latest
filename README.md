@@ -23,7 +23,7 @@ https://nytimes.com/2022/09/16/arts/music/jean-efflam-bavouzet-haydn.html?search
 https://nytimes.com/2022/09/16/movies/olivia-wilde-dont-worry-darling.html?searchResultPosition=6
 
 **Chile Loses Appeal Seeking Ecuador’s Place in World Cup**\
-`A FIFA panel reaffirmed an earlier decision that dismissed Chile’s claim that its rival fielded an ineligible player.`\
+`A FIFA panel reaffirmed an earlier decision dismissing Chile’s claim that its rival fielded an ineligible player. Chile plans one last appeal.`\
 https://nytimes.com/2022/09/16/sports/soccer/chile-ecuador-world-cup.html?searchResultPosition=7
 
 **What Parents Should Know About the Latest Enterovirus Spike**\
