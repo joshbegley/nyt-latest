@@ -6,7 +6,7 @@ https://nytimes.com/2022/09/16/theater/phantom-of-the-opera-broadway-closing.htm
 `The holdups are becoming increasingly common, with five on Friday alone as a financial crisis and a freeze on bank withdrawals pushes some depositors to the brink.`\
 https://nytimes.com/2022/09/16/world/middleeast/lebanon-banks-economic-crisis.html?searchResultPosition=2
 
-**Despite a Life of Preparation, Charles Faces Growing Pains as King**\
+**A Stirring Start, but Also Some Growing Pains, for a King Long in Waiting**\
 `King Charles III has had an enthusiastic public reception so far, but for this man of strong opinions, replacing the beloved queen will be a challenge.`\
 https://nytimes.com/2022/09/16/world/europe/united-kingdom-charles-king-challenges.html?searchResultPosition=3
 
