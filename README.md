@@ -4,7 +4,7 @@ https://nytimes.com/2022/09/16/briefing/russia-ukraine-war-izium-putin-mykolaiv.
 
 **Who’s the Best in Men’s Tennis? It Depends on How You Measure**\
 `Roger Federer, Rafael Nadal and Novak Djokovic all have credible claims to be considered the best. Here are a few ways to consider their gaudy stats.`\
-https://nytimes.com/2022/09/16/sports/tennis/federer-numbers.html?searchResultPosition=2
+https://nytimes.com/2022/09/16/sports/tennis/federer-stats-nadal-djokovic-career-numbers.html?searchResultPosition=2
 
 **MoMA Photo Curator Departs for French Foundation After 2 Years**\
 `Clément Chéroux, who joined the museum in 2020, will direct the Henri Cartier-Bresson Foundation in Paris.`\
