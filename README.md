@@ -1,6 +1,6 @@
 **In Georgia County With Racist History, Flier Paints Abrams as Invading Enemy**\
 `Stacey Abrams is making a campaign stop in largely white Forsyth County. A G.O.P.-branded flier urged residents to show up to “save and protect our neighborhoods.”`\
-https://nytimes.com/2022/09/16/us/politics/forsyth-georgia-republicans.html?searchResultPosition=1
+https://nytimes.com/2022/09/16/us/politics/stacey-abrams-forsyth-georgia-republicans.html?searchResultPosition=1
 
 **In G.O.P.-Leaning Ohio, the Vance-Ryan Senate Race Is Closer Than Once Expected**\
 `Representative Tim Ryan, the Democratic nominee for Senate, had some advantages coming out of his May primary. But in Ohio, those advantages may not be enough.`\
