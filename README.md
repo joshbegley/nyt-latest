@@ -26,15 +26,15 @@ https://nytimes.com/2022/09/17/us/california-horses-kids.html?searchResultPositi
 `The Biden administration’s plan to stem migration by building the rule of law in Central America has thus far failed to stop authoritarians or persuade people to stay.`\
 https://nytimes.com/2022/09/17/world/americas/central-america-democracy-biden.html?searchResultPosition=7
 
+**In the City That Never Sleeps, Some Doors Now Close at 10 p.m.**\
+`Is New York still a 24-hour town?`\
+https://nytimes.com/2022/09/17/nyregion/new-york-city-closing-time.html?searchResultPosition=8
+
 **The State of New York Fashion**\
 `Here’s what you need to know about the fashion week that was.`\
-https://nytimes.com/2022/09/17/style/new-york-fashion-week.html?searchResultPosition=8
+https://nytimes.com/2022/09/17/style/new-york-fashion-week.html?searchResultPosition=9
 
 **A Fight Over Nantucket’s Bluff Pits Neighbor Against Neighbor**\
 `In an increasingly litigious conflict, the island’s residents are clashing over how to deal with the effects of climate change: Push back or accept what’s coming?`\
-https://nytimes.com/2022/09/17/realestate/nantucket-bluff-erosion-battle-climate.html?searchResultPosition=9
-
-**In the City That Never Sleeps, Some Doors Now Close at 10 p.m.**\
-`Is New York still a 24-hour town?`\
-https://nytimes.com/2022/09/17/nyregion/new-york-city-closing-time.html?searchResultPosition=10
+https://nytimes.com/2022/09/17/realestate/nantucket-bluff-erosion-battle-climate.html?searchResultPosition=10
 
