@@ -15,7 +15,7 @@ https://nytimes.com/2022/09/16/crosswords/daily-puzzle-2022-09-17.html?searchRes
 https://nytimes.com/2022/09/16/world/middleeast/iran-death-woman-protests.html?searchResultPosition=4
 
 **U.S. Asks Appeals Court to Restore Access to Sensitive Records Seized From Trump**\
-`The government, while calling a lower court’s decision “unprecedented,” did not seek to stop the installation of an outside arbiter to review other materials taken from Donald Trump’s residence.`\
+`The government, while calling a lower court’s decision “unprecedented,” did not seek to stop the installation of an outside arbiter to review other materials taken from Mar-a-Lago.`\
 https://nytimes.com/2022/09/16/us/politics/trump-special-master-justice-dept.html?searchResultPosition=5
 
 **Lawyer Told Archives Last Year That Trump Had No Classified Material**\
