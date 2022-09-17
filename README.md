@@ -19,7 +19,7 @@ https://nytimes.com/2022/09/17/world/europe/zaporizhzhia-nuclear-plant.html?sear
 https://nytimes.com/2022/09/17/nyregion/kevin-m-cahill-dead.html?searchResultPosition=5
 
 **Storm Surge in Alaska Pulls Homes From Their Foundations**\
-`Communities along hundreds of miles of Alaska’s western coast were evacuating to higher ground and assessing damage from the remnants of Typhoon Merbok.`\
+`Communities along Alaska’s western coast were evacuating to higher ground and assessing damage from the remnants of Typhoon Merbok on Saturday.`\
 https://nytimes.com/2022/09/17/us/alaska-storm.html?searchResultPosition=6
 
 **Maximilian Lerner, Whose Espionage Skills Helped Win a War, Dies at 98**\
