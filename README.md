@@ -6,8 +6,8 @@ https://nytimes.com/2022/09/16/crosswords/daily-puzzle-2022-09-17.html?searchRes
 `Masha Amini was detained for allegedly violating dress rules. Her suspicious death, publicized by social media, has led to protests and condemnations by prominent Iranians.`\
 https://nytimes.com/2022/09/16/world/middleeast/iran-death-woman-protests.html?searchResultPosition=2
 
-**Justice Dept. Appeals Part of Review of Materials Seized at Mar-a-Lago**\
-`The government is following through on its vow to challenge a ruling by a Trump-appointed judge in Florida, setting up a high-stakes legal fight.`\
+**U.S. Asks Appeals Court to Restore Access to Sensitive Records Seized From Trump**\
+`The government, while calling a lower court’s decision “unprecedented,” did not seek to stop the installation of an outside arbiter to review other materials taken from Donald Trump’s residence.`\
 https://nytimes.com/2022/09/16/us/politics/trump-special-master-justice-dept.html?searchResultPosition=3
 
 **Lawyer Told Archives Last Year That Trump Had No Classified Material**\
