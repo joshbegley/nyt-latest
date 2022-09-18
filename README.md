@@ -10,7 +10,7 @@ https://nytimes.com/2022/09/18/briefing/russians-ukraine-invasion.html?searchRes
 `Higher-than-expected inflation in August rattled financial markets. The Federal Reserve is expected to approve another big rate increase. But Social Security recipients have a reason to cheer.`\
 https://nytimes.com/2022/09/18/business/the-week-in-business-rail-strike.html?searchResultPosition=3
 
-**The Sunday Read: ‘Why Do We Love TikTok Audio Memes? Call it ‘Brainfeel’’**\
+**The Sunday Read: ‘Why Do We Love TikTok Audio Memes? Call it Brainfeel’**\
 `Repurposed sound has taken over social media. Science tells us why.`\
 https://nytimes.com/2022/09/18/podcasts/the-daily/tiktok-sounds-memes-sunday-read.html?searchResultPosition=4
 
