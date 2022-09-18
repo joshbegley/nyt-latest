@@ -1,40 +1,40 @@
-**Powerful Earthquake Strikes Taiwan**\
-`A southeastern county was shaken by a strong temblor for the second day in a row, and the authorities were working to assess damage.`\
-https://nytimes.com/2022/09/18/world/asia/taiwan-earthquake.html?searchResultPosition=1
+**Striking a Pose**\
+`Top outfits from the museum openings for Wolfgang Tillmans, Machine Dazzle and David LaChapelle, and LaQuan Smith’s after-party.`\
+https://nytimes.com/2022/09/18/style/party-photos-wolfgang-tillmans-machine-dazzle-david-lachapelle.html?searchResultPosition=1
 
-**Canelo and GGG End One of Boxing’s Fun Rivalries**\
-`For all his successes and talent, Gennadiy Golovkin is destined to be remembered as Saúl Álvarez’s foil.`\
-https://nytimes.com/2022/09/18/sports/canelo-ggg-rivalry.html?searchResultPosition=2
+**A Welsh Village Embraces Its Bond With the Queen**\
+`A disaster at Aberfan, a small Welsh community, almost 60 years ago forged an unusual link between the community and the queen. The atmosphere there today — quiet grief coupled with brief flashes of dissent — encapsulates the national mood.`\
+https://nytimes.com/2022/09/18/world/europe/aberfan-wales-queen-elizabeth-funeral.html?searchResultPosition=2
 
-**New Boosters Test Covid-Weary Nation. Shots Are Here. Do Americans Care?**\
-`The new vaccine campaign is one of the country’s last remaining strategies, as masks have fallen away and quarantines have diminished. So far, the rollout is methodical but muted.`\
-https://nytimes.com/2022/09/18/us/covid-vaccine.html?searchResultPosition=3
+**In New York City, the Demand for New Developments Is Bouncing Back**\
+`But everything is not as it was, with Covid both accelerating some nascent trends and pushing builders in new directions.`\
+https://nytimes.com/2022/09/18/realestate/nyc-development-rentals-condos-covid.html?searchResultPosition=3
 
-**A ‘Time Capsule’ in Photos, Just in Case a Beach Changes**\
-`A condemned building along a beach in Queens is coming down. A photographer spent the summer visiting beachgoers who felt protected by its standing.`\
-https://nytimes.com/2022/09/18/insider/a-time-capsule-in-photos-just-in-case-a-beach-changes.html?searchResultPosition=4
+**Bringing Home Some ‘Hairy Joie de Vivre,’ and Taking Notes**\
+`Like many, the canine behavioral expert Alexandra Horowitz adopted a dog during the pandemic. She had extra incentive: understanding a puppy’s development. Now, she’s turned her observations into a book.`\
+https://nytimes.com/2022/09/18/books/alexandra-horowitz-year-of-the-puppy.html?searchResultPosition=4
 
-**Majority of Latino Voters Out of G.O.P.’s Reach, New Poll Shows**\
-`A New York Times/Siena College poll found Democrats faring far worse than they have in the past with Hispanic voters. But overall, the party has maintained a hold on the Latino electorate.`\
-https://nytimes.com/2022/09/18/us/politics/latino-vote-polling.html?searchResultPosition=5
+**How Russian Trolls Helped Keep the Women’s March Out of Lock Step**\
+`As American feminists came together in 2017 to protest Donald Trump, Russia’s disinformation machine set about deepening the divides among them.`\
+https://nytimes.com/2022/09/18/us/womens-march-russia-trump.html?searchResultPosition=5
 
-**‘She Was Not a Talented Singer, but I Enjoyed It Nonetheless’**\
-`Walking the dog to a favorite tune, rush hour on the No. 2 and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2022/09/18/nyregion/metropolitan-diary.html?searchResultPosition=6
+**Children’s Drownings Mark the End of a Mother’s Descent**\
+`Erin Merdy, who is charged with killing her three children, had struggled with money, men and mental health. Now, she is accused of one of New York’s worst crimes against children in recent memory.`\
+https://nytimes.com/2022/09/18/nyregion/coney-island-drownings-children-mother.html?searchResultPosition=6
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/09/18/crosswords/spelling-bee-forum.html?searchResultPosition=7
+**The Art of Leaving Baseball Behind**\
+`Blake McFarland had a big fastball and a bad shoulder. Undeterred, he pivoted to an unexpected role: professional artist.`\
+https://nytimes.com/2022/09/18/sports/baseball/blake-mcfarland-artist-sculptor.html?searchResultPosition=7
 
-**September 2022 Times/Siena Poll: Cross-Tabs for Hispanic and Latino Respondents**\
-`Responses from Hispanic and Latino voters collected during a survey by The New York Times and Siena College from Sept. 6 to 14, 2022.`\
-https://nytimes.com/interactive/2022/09/18/upshot/times-siena-poll-hispanic-crosstabs.html?searchResultPosition=8
+**The Proud Boys and the Long-Lived Anxieties of American Men**\
+`Andy Campbell examines extremism in the U.S. through a history of an ascendant far-right group.`\
+https://nytimes.com/2022/09/18/books/review/andy-campbell-we-are-proud-boys.html?searchResultPosition=8
 
-**Canelo Álvarez Outclasses Gennadiy Golovkin in Third Rivalry Fight**\
-`The judges scored the fight fairly close for Golovkin, but not closely enough to stop Álvarez from taking his second win over his rival.`\
-https://nytimes.com/2022/09/17/sports/canelo-ggg-result.html?searchResultPosition=9
+**Echoing Trump, These Republicans Won’t Promise to Accept 2022 Results**\
+`Six Republican nominees for governor and the Senate in key midterm states, all backed by Donald Trump, would not commit to accepting the November outcome. Five others did not answer the question.`\
+https://nytimes.com/2022/09/18/us/politics/trump-republicans-midterm-election-results.html?searchResultPosition=9
 
-**Corrections: Sept. 18, 2022**\
-`Corrections that appeared in print on Sunday, Sept. 18, 2022.`\
-https://nytimes.com/2022/09/18/pageoneplus/corrections-sept-18-2022.html?searchResultPosition=10
+**Invent! Invent! Repeat.**\
+`A liberalism that is as ambitious about solving problems through invention as it is through redistribution would be powerful indeed.`\
+https://nytimes.com/2022/09/18/opinion/biden-invention-arpa-h.html?searchResultPosition=10
 
