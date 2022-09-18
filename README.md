@@ -3,7 +3,7 @@
 https://nytimes.com/2022/09/18/sports/football/nfl-week-2-scores.html?searchResultPosition=1
 
 **Las Vegas Aces Win First W.N.B.A. Championship**\
-`The Aces shook off their reputation for being better in the regular season by holding off several rallies by the Connecticut Sun.`\
+`The Aces shook off their reputation for being better in the regular season by holding off several rallies by the Sun.`\
 https://nytimes.com/2022/09/18/sports/basketball/aces-sun-wnba-finals-championship.html?searchResultPosition=2
 
 **Ukraine’s Counteroffensive Forces Face Mobilized Inmates and Drones**\
