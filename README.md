@@ -23,7 +23,7 @@ https://nytimes.com/2022/09/18/crosswords/daily-puzzle-2022-09-19.html?searchRes
 https://nytimes.com/2022/09/18/us/virginia-transgender-students.html?searchResultPosition=6
 
 **The Singular Offense of the Mass Grave**\
-`Violent loss is even more devastating when the dead are disposed of without identification. Russian flight in Ukraine leaves a trail of littered corpses.`\
+`Violent loss is even more devastating when the dead are disposed of without identification. When Russians pull out in Ukraine, they leave a trail of anonymous death.`\
 https://nytimes.com/2022/09/18/world/europe/izium-mass-grave-ukraine.html?searchResultPosition=7
 
 **What Is Your Reaction to the Growing Fight Over What Young People Can Read?**\
