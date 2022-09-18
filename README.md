@@ -20,7 +20,7 @@ https://nytimes.com/2022/09/18/world/europe/alla-pugacheva-ukraine.html?searchRe
 
 **‘The Woman King’ Surprises With $19 Million at the Box Office**\
 `The Gina Prince-Bythewood historical drama, starring Viola Davis, did at least 25 percent better than analysts had expected.`\
-https://nytimes.com/2022/09/18/business/the-woman-king-box-office.html?searchResultPosition=6
+https://nytimes.com/2022/09/18/movies/the-woman-king-box-office.html?searchResultPosition=6
 
 **Strong Earthquake Topples Building in Taiwan**\
 `A 6.8 magnitude earthquake in Taiwan killed at least one person and collapsed at least one building in the town of Yuli in Hualien County.`\
