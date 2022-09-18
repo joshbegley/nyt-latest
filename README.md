@@ -8,7 +8,7 @@ https://nytimes.com/2022/09/18/briefing/queen-funeral-japan-typhoon-asia.html?se
 
 **It’s not just princes and presidents. The guest list for the queen’s funeral also includes everyday heroes.**\
 `Among those invited to Queen Elizabeth II’s funeral are almost 200 people who were honored for various forms of public service this year.`\
-https://nytimes.com/2022/09/18/world/europe/queen-funeral-ordinary-people.html?searchResultPosition=3
+https://nytimes.com/2022/09/18/world/europe/queen-funeral-public-service-guests.html?searchResultPosition=3
 
 **Wegmans Discontinues Self-Checkout App, Citing Losses**\
 `Self-checkout systems are intended to make shopping convenient, but they also can lead to more thefts, experts said.`\
