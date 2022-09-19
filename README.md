@@ -3,7 +3,7 @@
 https://nytimes.com/2022/09/19/briefing/hurricane-fiona-queen-funeral.html?searchResultPosition=1
 
 **Adnan Syed Is Released After Judge Overturns His Murder Conviction**\
-`Mr. Syed, 41, had been serving a life sentence for the 1999 murder of his high school classmate Hae Min Lee. His case was chronicled in the first season of the hit podcast “Serial.”`\
+`Mr. Syed, 41, had been serving a life sentence after he was convicted in the 1999 murder of his high school classmate Hae Min Lee. His case was chronicled in the first season of the hit podcast “Serial.”`\
 https://nytimes.com/video/us/100000008542299/adnan-syed-serial-release.html?searchResultPosition=2
 
 **Physics Body Concedes Mistakes in Study of Missile Defense**\
