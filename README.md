@@ -36,5 +36,5 @@ https://nytimes.com/2022/09/19/podcasts/the-daily/queen-elizabeth-king-charles-c
 
 **Advocacy Groups Are Helping Drive a Rise in Book Bans**\
 `A report from the free speech organization PEN America looked at the role of politics and advocacy groups in the growing number of book bans in schools across the country.`\
-https://nytimes.com/2022/09/19/books/advocacy-groups-are-helping-drive-a-rise-in-book-bans.html?searchResultPosition=10
+https://nytimes.com/2022/09/19/books/advocacy-groups-book-bans.html?searchResultPosition=10
 
