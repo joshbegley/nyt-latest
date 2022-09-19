@@ -7,7 +7,7 @@ https://nytimes.com/2022/09/19/us/politics/police-democrats-congress-midterms.ht
 https://nytimes.com/2022/09/19/world/americas/mexico-earthquake-september-19.html?searchResultPosition=2
 
 **Top Aide Who Fueled Eric Adams’s Rise Will Resign at End of Year**\
-`Frank Carone, a Brooklyn power broker, says he never intended to stay for more than a year and will lead the mayor’s re-election campaign.`\
+`Frank Carone, a Brooklyn power broker who has drawn scrutiny for his past business dealings, says he will lead the mayor’s re-election campaign.`\
 https://nytimes.com/2022/09/19/nyregion/frank-carone-eric-adams.html?searchResultPosition=3
 
 **The New York City Ban on Foie Gras Is Delayed**\
