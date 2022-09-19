@@ -7,7 +7,7 @@ https://nytimes.com/2022/09/19/business/zelensky-meets-with-blackrock-chief-to-d
 https://nytimes.com/2022/09/19/business/mcdonalds-reopen-ukraine.html?searchResultPosition=2
 
 **U.S. Hostage Exchanged for Afghan Drug Lord in Prisoner Swap**\
-`The Taliban said it had freed an American engineer, Mark R. Frerichs, in exchange for the release of a prominent Afghan tribal leader convicted of drug trafficking.`\
+`The Taliban said they had freed an American engineer, Mark R. Frerichs, in exchange for the release of a prominent Afghan tribal leader convicted of drug trafficking.`\
 https://nytimes.com/2022/09/19/world/asia/mark-frerichs-prisoner-swap-biden-taliban.html?searchResultPosition=3
 
 **With a Playoff Spot in Reach, the Mets Control Their Destiny**\
