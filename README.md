@@ -1,5 +1,5 @@
 **See the Destruction Left in Hurricane Fiona’s Wake**\
-`Photos and video show the extent of the damage, including in Guadeloupe and in the Dominican Republic.`\
+`Photos and video show the extent of the damage, including in Puerto Rico, the Dominican Republic and Guadeloupe.`\
 https://nytimes.com/2022/09/19/us/hurricane-fiona-destruction-photos.html?searchResultPosition=1
 
 **Wall Street Is on Edge as It Tries to Guess What the Fed Is Thinking**\
