@@ -15,7 +15,7 @@ https://nytimes.com/2022/09/18/us/texas-migrants-bus-rides.html?searchResultPosi
 https://nytimes.com/interactive/2022/09/18/sports/football/jets-vs-browns-highlights.html?searchResultPosition=4
 
 **What We Learned From Week 2 of the N.F.L. Season**\
-`Tua Tagovailoa thrived against the Ravens’ secondary, the Lions win owes to an unheralded star, and the Giants are … working on some things.`\
+`Kyler Murray and the Cardinals had Sunday’s best comeback, Russell Wilson’s Broncos offense needs more time to cook, and the Giants are … working on some things.`\
 https://nytimes.com/2022/09/18/sports/football/nfl-week-2-scores.html?searchResultPosition=5
 
 **Las Vegas Aces Win First W.N.B.A. Championship**\
