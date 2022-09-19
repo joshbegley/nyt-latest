@@ -3,7 +3,7 @@
 https://nytimes.com/video/world/europe/100000008541042/queen-elizabeth-funeral-hyde-park.html?searchResultPosition=1
 
 **Judge Vacates Murder Conviction of Adnan Syed of ‘Serial’**\
-`The decision freed Mr. Syed, 41, who had been serving a life sentence for the 1999 murder of his high school classmate Hae Min Lee, but he could face a second trial.`\
+`The decision could soon free Mr. Syed, 41, who had been serving a life sentence for the 1999 murder of his high school classmate Hae Min Lee, but he could face a second trial.`\
 https://nytimes.com/2022/09/19/us/adnan-syed-murder-conviction-overturned.html?searchResultPosition=2
 
 **In a Season of Frustration, the Brewers Are Still Fighting**\
