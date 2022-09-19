@@ -6,7 +6,7 @@ https://nytimes.com/2022/09/19/dining/nyc-foie-gras-ban-delayed.html?searchResul
 `Tens of thousands of people gathered in Hyde Park in central London to watch Queen Elizabeth II’s funeral service, video of which was displayed on large screens.`\
 https://nytimes.com/video/world/europe/100000008541042/queen-elizabeth-funeral-hyde-park.html?searchResultPosition=2
 
-**Judge Vacates Murder Conviction of Adnan Syed of ‘Serial’**\
+**Judge Overturns Murder Conviction of Adnan Syed of ‘Serial’**\
 `Mr. Syed, 41, had been serving a life sentence for the 1999 murder of his high school classmate Hae Min Lee. The judge gave prosecutors 30 days to ask for a new trial or drop the case.`\
 https://nytimes.com/2022/09/19/us/adnan-syed-murder-conviction-overturned.html?searchResultPosition=3
 
