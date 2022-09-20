@@ -26,7 +26,7 @@ https://nytimes.com/2022/09/20/movies/ti-west-interview-pearl.html?searchResultP
 `“Govs. Greg Abbott and Ron DeSantis are using asylum seekers as political tools,” a reader writes. Also: President Biden and the pandemic; abortion prosecutors; arms for Ukraine.`\
 https://nytimes.com/2022/09/20/opinion/letters/migrants-republican-governors.html?searchResultPosition=7
 
-**America’s Most Interesting Opera Destination? The Midwest**\
+**America’s Most Interesting Opera Destination? The Midwest.**\
 `Barrie Kosky and Yuval Sharon, two of opera’s finest directors, open new productions in Chicago and Detroit.`\
 https://nytimes.com/2022/09/20/arts/music/fiddler-on-the-roof-chicago-valkyries-detroit.html?searchResultPosition=8
 
