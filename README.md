@@ -10,7 +10,7 @@ https://nytimes.com/2022/09/20/opinion/ukraine-putin.html?searchResultPosition=4
 `By Blake Hounshell`\
 https://nytimes.com/2022/09/20/us/politics/voter-registration-fundraising.html?searchResultPosition=5
 
-**The ‘Alien Goldfish’ Finds a Home**\
+**Fossils Solve Mystery of an Ancient ‘Alien Goldfish’**\
 `Closer examination of Typhloesus fossils suggests that the organism, which swam 330 million years ago, was similar to modern sea slugs.`\
 https://nytimes.com/2022/09/20/science/alien-goldfish-fossils.html?searchResultPosition=6
 
