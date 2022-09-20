@@ -4,7 +4,7 @@ https://nytimes.com/video/world/100000008543193/guterres-un-general-assembly.htm
 
 **Watch Live: Erdogan of Turkey Addresses U.N. General Assembly**\
 `President Recep Tayyip Erdogan of Turkey has been a crucial figure in the mediation between Ukraine and Russia.`\
-https://nytimes.com/video/world/100000008543124/united-nations-turkey-erdogan.html?searchResultPosition=2
+https://nytimes.com/video/embedded/world/100000008543124/united-nations-turkey-erdogan.html?searchResultPosition=2
 
 **Lots of Food Gets Tossed. These Apps Let You Buy It, Cheap.**\
 `Several companies say they are tackling food waste by connecting people with unsold food from restaurants and grocery stores.`\
