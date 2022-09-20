@@ -26,7 +26,7 @@ https://nytimes.com/2022/09/20/t-magazine/omer-arbel-vancouver-home.html?searchR
 `Some African countries, which have done little to cause the climate crisis, say they should. Many climate activists on the continent call the idea “folly.” We unpack the debate.`\
 https://nytimes.com/2022/09/20/climate/who-gets-to-use-gas.html?searchResultPosition=7
 
-**Patagonia’s ‘Do Boy’ Does Good**\
+**Yvon Chouinard Is the Founder of Patagonia. He’s Also My ‘Dirtbag’ Friend.**\
 `Yvon Chouinard has given away his company in his fight to save the planet.`\
 https://nytimes.com/2022/09/20/opinion/patagonia-yvon-chouinard-tom-brokaw.html?searchResultPosition=8
 
