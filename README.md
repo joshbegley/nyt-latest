@@ -28,7 +28,7 @@ https://nytimes.com/2022/09/20/theater/four-saints-in-three-acts-review.html?sea
 
 **Colin Hanks Finds Perfection in ‘What We Do in the Shadows’ and Tacos at Every Meal**\
 `The actor, who moves out of his comfort zone in Peacock’s “A Friend of the Family,” talks about his love affair with soccer and the pleasure of a shaved head.`\
-https://nytimes.com/2022/09/20/arts/television/collin-hanks-favorite-things.html?searchResultPosition=8
+https://nytimes.com/2022/09/20/arts/television/colin-hanks-favorite-things.html?searchResultPosition=8
 
 **Maker of the Theragun Massage Device Raises $165 Million**\
 `Therabody will use the money to invest in digital content and acquisitions, and is set to announce new products.`\
