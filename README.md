@@ -30,11 +30,11 @@ https://nytimes.com/2022/09/20/podcasts/serial-season-3.html?searchResultPositio
 `Dismayed by overpriced Hamptons real estate — ‘and nothing was really what I wanted’ — she decided to design her own house instead of buying one.`\
 https://nytimes.com/2022/09/20/realestate/indoor-outdoor-living-hamptons.html?searchResultPosition=8
 
-**A Buyer With a Vision Builds Her Own Hamptons Home**\
-`Dismayed by overpriced Hamptons real estate — ‘and nothing was really what I wanted’ — she decided to build her own house instead of buying one.`\
-https://nytimes.com/slideshow/2022/09/20/realestate/a-buyer-with-a-vision-builds-her-own-hamptons-home.html?searchResultPosition=9
-
 **Dinner in Seven Ingredients (or Even Fewer)**\
 `These 24 recipes show you how to make the very most of very little.`\
-https://nytimes.com/article/favorite-simple-recipes.html?searchResultPosition=10
+https://nytimes.com/article/favorite-simple-recipes.html?searchResultPosition=9
+
+**A Buyer With a Vision Builds Her Own Hamptons Home**\
+`Dismayed by overpriced Hamptons real estate — ‘and nothing was really what I wanted’ — she decided to build her own house instead of buying one.`\
+https://nytimes.com/slideshow/2022/09/20/realestate/a-buyer-with-a-vision-builds-her-own-hamptons-home.html?searchResultPosition=10
 
