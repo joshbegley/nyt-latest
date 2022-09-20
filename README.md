@@ -1,4 +1,4 @@
-**Maury Willis, Master of the Stolen Base, Is Dead at 89**\
+**Maury Wills, Master of the Stolen Base, Is Dead at 89**\
 `His speed (and his bat) helped the Los Angeles Dodgers win four pennants and three championships in the 1960s. He was voted the National League’s M.V.P. in 1962.`\
 https://nytimes.com/2022/09/20/sports/baseball/maury-willis-dead.html?searchResultPosition=1
 
@@ -12,7 +12,7 @@ https://nytimes.com/2022/09/20/us/politics/trump-declassification-documents.html
 
 **Watch Live: Macron Addresses the United Nations General Assembly**\
 `President Emmanuel Macron of France delivers a speech to world leaders at the 77th session of the United Nations General Assembly in New York City.`\
-https://nytimes.com/video/world/100000008542512/macron-un-general-assembly.html?searchResultPosition=4
+https://nytimes.com/video/embedded/world/100000008542512/macron-un-general-assembly.html?searchResultPosition=4
 
 **What London Wore While Remembering the Queen**\
 `Keeping calm and carrying on.`\
