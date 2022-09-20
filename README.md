@@ -28,7 +28,7 @@ https://nytimes.com/2022/09/20/arts/television/andor-review-star-wars.html?searc
 
 **Watch Live: Marcos Addresses the United Nations General Assembly**\
 `Ferdinand Marcos Jr., the president of the Philippines, gives a speech to world leaders at the 77th session of the United Nations General Assembly in New York City.`\
-https://nytimes.com/video/world/100000008542519/marcos-philippines-un-general-assembly.html?searchResultPosition=8
+https://nytimes.com/video/embedded/world/100000008542519/marcos-philippines-un-general-assembly.html?searchResultPosition=8
 
 **Maury Wills, Master of the Stolen Base, Is Dead at 89**\
 `His speed (and his bat) helped the Los Angeles Dodgers win four pennants and three championships in the 1960s. He was voted the National League’s M.V.P. in 1962.`\
