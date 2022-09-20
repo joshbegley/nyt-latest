@@ -1,5 +1,5 @@
 **Mets Clinch Playoff Spot With Scherzer’s 200th Win**\
-`After achieving a suddenly rare milestone, Max Scherzer focused on the bigger picture: The Mets qualified for the playoffs for the first time since 2016.`\
+`After achieving a suddenly rare milestone, Max Scherzer focused on the bigger picture: The Mets qualified for the postseason for the first time since 2016.`\
 https://nytimes.com/2022/09/20/sports/baseball/max-scherzer-200-wins-mets-playoffs.html?searchResultPosition=1
 
 **Why Adnan Syed Was Released From Prison**\
