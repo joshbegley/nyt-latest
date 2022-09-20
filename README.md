@@ -30,7 +30,7 @@ https://nytimes.com/2022/09/20/travel/istanbul-kasir.html?searchResultPosition=7
 `Major data gaps, the result of decades of underinvestment in public health, have undercut the government response to the coronavirus and now to monkeypox.`\
 https://nytimes.com/2022/09/20/us/politics/covid-data-outbreaks.html?searchResultPosition=8
 
-**We Are Aware and Unhappy**\
+**Your Mental Health Isn’t Just About You**\
 `Conversations about mental health are everywhere. So why do we still feel so bad?`\
 https://nytimes.com/interactive/2022/09/20/opinion/mental-health-america-politics.html?searchResultPosition=9
 
