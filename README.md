@@ -1,5 +1,5 @@
 **Watch Live: Erdogan of Turkey Addresses U.N. General Assembly**\
-`President Recep Tayyip Erdogan of Turkey has been a critical figure in the mediation between Ukraine and Russia.`\
+`President Recep Tayyip Erdogan of Turkey has been a crucial figure in the mediation between Ukraine and Russia.`\
 https://nytimes.com/video/world/100000008543124/united-nations-turkey-erdogan.html?searchResultPosition=1
 
 **Lots of Food Gets Tossed. These Apps Let You Buy It, Cheap.**\
