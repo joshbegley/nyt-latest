@@ -26,8 +26,8 @@ https://nytimes.com/2022/09/20/business/museum-theater-expansion-development.htm
 `The streaming service that transformed the music industry is expanding into audiobooks, and will offer more than 300,000 titles on a pay-per-book model.`\
 https://nytimes.com/2022/09/20/books/spotify-audiobooks.html?searchResultPosition=7
 
-**Watch Live: World Leaders Speak at U.N. General Assembly**\
-`The 77th session of the United Nations General Assembly in New York City will feature top leaders, including António Guterres, the U.N. secretary general, in person for the first time in three years.`\
+**Watch Live: Bolsonaro Addresses the United Nations General Assembly**\
+`President Jair Bolsonaro of Brazil delivers a speech to world leaders at the 77th session of the United Nations General Assembly in New York City.`\
 https://nytimes.com/video/world/100000008542453/guterres-bolsonaro-un-general-assembly.html?searchResultPosition=8
 
 **1922: Ex-Kaiser to Marry Princess Hermine**\
