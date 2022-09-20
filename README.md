@@ -1,6 +1,6 @@
 **A Finnish Scholar Wants to Change How We See American History**\
 `In “Indigenous Continent,” Pekka Hamalainen aims to upend the nation’s grand narrative, putting Native people and Native power at the center.`\
-https://nytimes.com/2022/09/20/arts/20indigenous-continent-pekka-hamalainen.html?searchResultPosition=1
+https://nytimes.com/2022/09/20/arts/indigenous-continent-pekka-hamalainen.html?searchResultPosition=1
 
 **Tiny Love Stories: ‘When I Hate My Husband’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
