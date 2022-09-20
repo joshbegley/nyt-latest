@@ -1,4 +1,4 @@
-**The U.S. and its allies will use the Assembly to take the temperature on proposed price cap of Russian oil.**\
+**Western Nations Will Take Temperature on Proposed Russian Oil Price Cap**\
 `The`\
 https://nytimes.com/2022/09/20/world/europe/russia-oil-united-nations.html?searchResultPosition=1
 
