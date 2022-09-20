@@ -3,7 +3,7 @@
 https://nytimes.com/2022/09/20/business/maker-of-the-theragun-massage-device-raises-165-million.html?searchResultPosition=1
 
 **Bad Bunny Leads 2022 Latin Grammy Nominations With 10**\
-`Rosalía, Jorge Drexler and Christina Aguilera follow with seven nods each for the awards, which will be held on Nov. 17 in Las Vegas.`\
+`Rosalía, Jorge Drexler and Christina Aguilera have seven nods each for the awards, which will be held on Nov. 17 in Las Vegas.`\
 https://nytimes.com/2022/09/20/arts/music/latin-grammy-nominations.html?searchResultPosition=2
 
 **A Virginia University Will Pay Hazing Victim’s Family Nearly $1 Million**\
