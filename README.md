@@ -10,7 +10,7 @@ https://nytimes.com/2022/09/20/us/morgan-stanley-smith-barney-settlement.html?se
 `The show had a bumpy, boisterous run, and will now begin a tour.`\
 https://nytimes.com/2022/09/20/theater/beetlejuice-broadway-closing.html?searchResultPosition=3
 
-**Arnold Tucker, Celebrated but Overshadowed Quarterback, Is Dead at 95**\
+**Arnold Tucker, 95, Celebrated but Overshadowed Quarterback, Is Dead**\
 `Though he helped lead Army to three national titles, he was eclipsed by two storied running backs, and his death in 2019 was largely overlooked.`\
 https://nytimes.com/2022/09/20/sports/football/arnold-tucker-dead.html?searchResultPosition=4
 
