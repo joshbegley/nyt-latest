@@ -15,7 +15,7 @@ https://nytimes.com/2022/09/20/arts/music/fiddler-on-the-roof-chicago-valkyries-
 https://nytimes.com/2022/09/20/arts/design/met-new-modern-and-contemporary-art.html?searchResultPosition=4
 
 **New York City Ends Private Employer Vaccine Mandate and Pushes Boosters**\
-`Mayor Eric Adams, who recently received the new booster, ended the Covid vaccine mandate and continued to roll back pandemic restrictions.`\
+`Mayor Eric Adams received the new booster on Tuesday, as he ended the Covid vaccine mandate and continued to roll back pandemic restrictions.`\
 https://nytimes.com/2022/09/20/nyregion/private-employer-vaccine-mandate.html?searchResultPosition=5
 
 **Will North Carolina’s Senate Race Break Democratic Hearts Again?**\
