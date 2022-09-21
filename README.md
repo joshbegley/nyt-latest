@@ -4,7 +4,7 @@ https://nytimes.com/2022/09/21/style/sheryl-lee-ralph-abbott-elementary.html?sea
 
 **Despite the Covid disruption, school test score declines look pretty modest**\
 `Despite the Covid disruption, school test score declines look pretty modest.`\
-https://nytimes.com/2022/09/21/opinion/how-big-were-pandemic-learning-losses-really.html?searchResultPosition=2
+https://nytimes.com/2022/09/21/opinion/pandemic-learning-loss.html?searchResultPosition=2
 
 **The Midlife Crisis Is Very Real and Nothing to Be Laughed At**\
 `It may be a result of our affluent world. Or it may be biological.`\
