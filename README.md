@@ -28,7 +28,7 @@ https://nytimes.com/2022/09/21/business/inflation-rate-increases-why.html?search
 
 **Watch Live: Biden Addresses U.N. General Assembly**\
 `President Biden gives a speech to world leaders at the 77th session of the U.N. General Assembly in New York.`\
-https://nytimes.com/video/us/politics/100000008544349/biden-unga-usa.html?searchResultPosition=8
+https://nytimes.com/video/embedded/us/politics/100000008544349/biden-unga-usa.html?searchResultPosition=8
 
 **The Myths That Made, and Still Make, Russia**\
 `In a new book, the historian Orlando Figes argues that the war on Ukraine is only the latest instance of a nation twisting the past to justify its future.`\
