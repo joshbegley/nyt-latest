@@ -16,7 +16,7 @@ https://nytimes.com/2022/09/21/movies/goodnight-mommy-horror-remakes.html?search
 
 **Watch Live: Kenya’s Leader Speaks at United Nations General Assembly**\
 `President William Ruto of Kenya addresses world leaders at the 77th session of the United Nations General Assembly in New York City.`\
-https://nytimes.com/video/world/100000008544377/kenya-president-william-ruto.html?searchResultPosition=5
+https://nytimes.com/video/embedded/world/100000008544377/kenya-president-william-ruto.html?searchResultPosition=5
 
 **What’s in Our Queue? ‘Never Have I Ever’ and More**\
 `I am a news assistant on The Times’s Culture desk. Here are five things I've been watching and listening to lately. `\
