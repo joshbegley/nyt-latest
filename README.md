@@ -35,6 +35,6 @@ https://nytimes.com/video/business/economy/100000008545506/powell-fed-interest-r
 https://nytimes.com/2022/09/21/world/europe/abortion-ireland-poland.html?searchResultPosition=9
 
 **Ten prisoners, including Americans, have been released as part of a Russia-Ukraine exchange, Saudi Arabia says.**\
-`Five British citizens who had been held in Ukraine by Russian-backed proxies have been released.`\
+`Alex Drueke, a former U.S. Army staff sergeant who served two tours in Iraq, and Andy Tai Ngoc Huynh, a former U.S. Marine, were released.`\
 https://nytimes.com/2022/09/21/world/europe/ukraine-russia-prison-exchange-americans.html?searchResultPosition=10
 
