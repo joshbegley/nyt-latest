@@ -1,5 +1,5 @@
 **Saul Kripke, Philosopher Who Found Truths in Semantics, Dies at 81**\
-`He published a landmark work at 32. Known for lecturing extemporaneously for hours without notes, he dazzled colleagues with the breadth of his ruminations.`\
+`A leading 20th-century thinker, he published a landmark work at 32. Known for lecturing extemporaneously without notes, he dazzled colleagues with the breadth of his ruminations.`\
 https://nytimes.com/2022/09/21/education/learning/saul-kripke-dead.html?searchResultPosition=1
 
 **Your Thursday Briefing: Russia’s ‘Partial Mobilization’**\
