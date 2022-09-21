@@ -23,7 +23,7 @@ https://nytimes.com/2022/09/21/us/politics/washington-monument-vandalized.html?s
 https://nytimes.com/2022/09/21/nyregion/thomas-barrack-trump-trial.html?searchResultPosition=6
 
 **Watch Live: Fed Expected to Announce Interest Rate Increase**\
-`The Federal Reserve is expected to deliver a third-straight supersize interest rate increase as it tries to wrestle stubborn inflation under control.`\
+`The Federal Reserve delivered a third-straight supersize interest rate increase as it tries to wrestle stubborn inflation under control.`\
 https://nytimes.com/video/business/economy/100000008545506/powell-fed-interest-rates-video.html?searchResultPosition=7
 
 **For Churches, Abortion Politics Is a Double-Edged Sword**\
