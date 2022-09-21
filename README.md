@@ -18,23 +18,23 @@ https://nytimes.com/2022/09/21/world/europe/biden-russia-united-nations.html?sea
 `The West Virginia Democrat is trying to attach an oil and gas permitting measure to must-pass spending legislation.`\
 https://nytimes.com/2022/09/21/us/politics/manchin-pipeline-spending-bill.html?searchResultPosition=5
 
+**In a Defiant Address, Zelensky Says, ‘Russia Should Pay for This War’**\
+`“A crime has been committed against Ukraine, and we demand just punishment,” President Volodymyr Zelensky of Ukraine said in a recorded speech to the U.N. General Assembly.`\
+https://nytimes.com/2022/09/21/world/zelensky-russia-war.html?searchResultPosition=6
+
 **The Fed Intensifies Its Battle Against Inflation**\
 `Federal Reserve officials made another large rate increase and signaled more to come, pledging to quash inflation despite expected pain.`\
-https://nytimes.com/2022/09/21/business/economy/fed-rates-inflation-powell.html?searchResultPosition=6
+https://nytimes.com/2022/09/21/business/economy/fed-rates-inflation-powell.html?searchResultPosition=7
 
 **Judge Dismisses Civil Rights Charge Against New Jersey Police Officer**\
 `Three officers were accused of using excessive force against a Black teenager. The charges against the two other men stand.`\
-https://nytimes.com/2022/09/21/nyregion/new-jersey-police-civil-rights-charge.html?searchResultPosition=7
+https://nytimes.com/2022/09/21/nyregion/new-jersey-police-civil-rights-charge.html?searchResultPosition=8
 
 **Russia releases 215 fighters, including Mariupol commanders, in a prisoner exchange.**\
 `The exchange, the war’s largest, included Viktor Medvechuk, a Ukrainian oligarch and close friend of the Russian president.`\
-https://nytimes.com/2022/09/21/world/europe/russia-ukraine-mariupol-azov-prisoners.html?searchResultPosition=8
+https://nytimes.com/2022/09/21/world/europe/russia-ukraine-mariupol-azov-prisoners.html?searchResultPosition=9
 
 **Neptune and Its Rings Come Into Focus With Webb Telescope**\
 `New images from the space-based observatory offer a novel view of the planet in infrared.`\
-https://nytimes.com/2022/09/21/science/neptune-webb-telescope-photos.html?searchResultPosition=9
-
-**For N.F.L. Kickers, Showing Too Much Leg Could Hurt Their Pockets**\
-`The league drew the ire of several kickers over its enforcement of uniform policies that require players to wear pants that cover their knees.`\
-https://nytimes.com/2022/09/21/sports/football/nfl-kickers-pants-fines.html?searchResultPosition=10
+https://nytimes.com/2022/09/21/science/neptune-webb-telescope-photos.html?searchResultPosition=10
 
