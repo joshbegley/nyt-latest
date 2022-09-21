@@ -1,41 +1,40 @@
-**Inside the Completely Legal G.O.P. Plot to Destroy American Democracy**\
-`Imagine a legal Jan. 6. It’s bureaucratic, boring, invisible — and it might actually succeed.`\
-https://nytimes.com/video/opinion/100000008442323/republicans-democracy-elections-bannon.html?searchResultPosition=1
+**What You Get for $1.1 Million**\
+`An 1861 house in New Hope, Pa.; a Craftsman bungalow in Portland, Ore.; and a converted 1794 schoolhouse in Greensburg, Ky.`\
+https://nytimes.com/slideshow/2022/09/21/realestate/what-you-get-for-1-1-million.html?searchResultPosition=1
 
-**On a Grim Anniversary, 230 Pilot Whales Are Stranded in Tasmania**\
-`“At least 95 percent will die, because the ocean’s just so fierce,” said a boat skipper on the scene, where 470 whales were also beached in 2020.`\
-https://nytimes.com/2022/09/21/world/australia/stranded-whales-tasmania.html?searchResultPosition=2
+**What Hemingway Left in Sloppy Joe’s Bar 80 Years Ago**\
+`The trove of items deposited in Key West, now part of a new archive at Penn State, includes four unpublished short stories, drafts of manuscripts and boxes of personal effects.`\
+https://nytimes.com/2022/09/21/arts/ernest-hemingway-archive-penn-state.html?searchResultPosition=2
 
-**Brunch the Spanish Way**\
-`Both Spaniards and Americans are welcoming a different take on the hybrid breakfast-lunch meal — one that opts for patatas bravas and cava over home fries and Champagne cocktails. 
-`\
-https://nytimes.com/paidpost/icex-food-and-wine/brunch-the-spanish-way.html?searchResultPosition=3
+**House Hunting in France: A Chateau Outside Bergerac**\
+`The rural Dordogne department of France “remains the most sought-after of French countryside house-buying destinations,” agents say.`\
+https://nytimes.com/2022/09/21/realestate/housing-market-france-bergerac.html?searchResultPosition=3
 
-**U.S. Gas Prices End Streak of Declines Just Short of 100 Days**\
-`Falling fuel costs have recently helped temper overall inflation, but the effect may be waning.`\
-https://nytimes.com/2022/09/21/business/gas-prices-decline-streak.html?searchResultPosition=4
+**For Sale: A Compact Chateau in Southwest France**\
+`This 19th-century, Tudor-style manor on nearly 20 forested acres outside the French city of Bergerac is on the market for $3.24 million.`\
+https://nytimes.com/slideshow/2022/09/21/realestate/housing-market-france-bergerac.html?searchResultPosition=4
 
-**Putin Announces an Expansion of the War Effort**\
-`In a rare address, which was prerecorded, President Vladimir V. Putin of Russia announced a partial mobilization of his military, effective immediately, stoking speculation that Mr. Putin could officially declare war and a nationwide draft.`\
-https://nytimes.com/video/world/europe/100000008544849/ukraine-putin-partial-military-mobilization.html?searchResultPosition=5
+**How a Looming Oil Ban Could Devastate a Small Italian City**\
+`Italy’s largest refinery, owned by Russia’s Lukoil, has lost financing because of sanctions. Now, it faces the cutoff of its crude supply, putting thousands of jobs at risk.`\
+https://nytimes.com/2022/09/21/business/economy/europe-oil-ban-italy-lukoil.html?searchResultPosition=5
 
-**German Government Nationalizes Uniper in Move to Secure Energy Supply**\
-`The utility company, once Germany’s largest importer of Russian gas, has been squeezed since Moscow cut the flow of the fuel, leading to a partial bailout in July that is now a full takeover.`\
-https://nytimes.com/2022/09/21/world/europe/germany-uniper-nationalized.html?searchResultPosition=6
+**‘No Pain, No Gain. No Risk, No Champagne.’**\
+`Behind the scenes with the most behind-the-scenes man in fashion, Etienne Russo, show producer for Dries Van Noten, Dior Men, Chanel, Hermès, Givenchy, Miu Miu and more.`\
+https://nytimes.com/2022/09/21/style/etienne-russo-fashion-show-producer.html?searchResultPosition=6
 
-**Staying Up Late to Find Out Why New York No Longer Does**\
-`More bars and restaurants are closing their doors at earlier hours, and more New Yorkers are grabbing dinner earlier in the evening. One of our reporters set off to find out why.`\
-https://nytimes.com/2022/09/21/nyregion/staying-up-late-to-find-out-why-new-york-no-longer-does.html?searchResultPosition=7
+**A Horse’s Collapse Rekindles Debate About New York City’s Carriage Rides**\
+`The horses have charmed tourists since the 19th century, but detractors say there is abuse and exploitation. Drivers say they are animal lovers doing their best.`\
+https://nytimes.com/2022/09/21/nyregion/carriage-horses-new-york.html?searchResultPosition=7
 
-**United Nations Gridlock Is Back in the Latest Sign of a Receding Pandemic**\
-`The first day of the U.N. General Assembly brought street closings and detours, but also more crowds for the city’s stores and restaurants.`\
-https://nytimes.com/2022/09/21/nyregion/traffic-nyc-united-nations.html?searchResultPosition=8
+**What to Do if You See a Spongy Moth (or Its Very Hungry Caterpillars)**\
+`The invasive spongy moth and its caterpillars can decimate a garden. Here’s how to fight back.`\
+https://nytimes.com/2022/09/21/realestate/spongy-moth-caterpillars-garden.html?searchResultPosition=8
 
-**Forever Giant: Buster Posey Joins San Francisco Ownership Group**\
-`Posey, the catcher who was a centerpiece of three championship teams, will also be on the Giants’ board of directors.`\
-https://nytimes.com/2022/09/21/sports/baseball/buster-posey-giants-ownership.html?searchResultPosition=9
+**Jim Crow’s Forgotten History of Homicides**\
+`“By Hands Now Known,” by Margaret A. Burnham, examines the chronic, quotidian violence faced by Black citizens in the American South — and the law’s failure to address it.`\
+https://nytimes.com/2022/09/21/books/review/by-hands-now-known-margaret-burnham.html?searchResultPosition=9
 
-**How We Chose the Most Exciting Restaurants in America**\
-`For months, eight of our intrepid reporters, critics and editors dined their way through the country in search of culinary bliss.`\
-https://nytimes.com/2022/09/21/insider/how-we-chose-the-most-exciting-restaurants-in-america.html?searchResultPosition=10
+**What’s Next for Profits? Cars Shed Light on a Key Inflation Question.**\
+`How easily companies give up swollen profits could determine how easily the Federal Reserve can cool inflation. Dealerships offer clues.`\
+https://nytimes.com/2022/09/21/business/economy/inflation-car-market.html?searchResultPosition=10
 
