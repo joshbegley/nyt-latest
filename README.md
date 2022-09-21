@@ -1,4 +1,4 @@
-**A Cornered Putin Is More Dangerous Than Ever**\
+**Analysis: A Cornered Putin Is More Dangerous Than Ever**\
 `In a major speech, he recast the war in Ukraine and made clear that it could spread.`\
 https://nytimes.com/2022/09/21/world/europe/putin-russia-ukraine-war.html?searchResultPosition=1
 
