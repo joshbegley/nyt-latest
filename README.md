@@ -1,5 +1,5 @@
 **Federer Says He Will Close Career With Doubles Match at Laver Cup**\
-`Federer, who announced his retirement last week, hinted his final competitive tennis could come Friday. And it would very likely be alongside his longtime rival Rafael Nadal.`\
+`Federer, who announced his retirement last week, hinted his final competitive tennis could come Friday. And it is likely to be alongside his longtime rival Rafael Nadal.`\
 https://nytimes.com/2022/09/21/sports/tennis/roger-federer-laver-cup.html?searchResultPosition=1
 
 **A Tangier House Is Given New Life, and an Extension**\
