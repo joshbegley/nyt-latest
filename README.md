@@ -10,7 +10,7 @@ https://nytimes.com/2022/09/20/business/europe-china-investment.html?searchResul
 `Organizations and officials in New York, a city with deep ties to both Puerto Rico and the Dominican Republic, have moved quickly to help with recovery efforts.`\
 https://nytimes.com/2022/09/20/nyregion/hurricane-fiona-relief-puerto-rico.html?searchResultPosition=3
 
-**Letter From Europe: We Still Don’t Know How the Ukraine War Ends**\
+**Three Paths Toward an Endgame for Putin’s War**\
 `But here are three possibilities.`\
 https://nytimes.com/2022/09/20/opinion/ukraine-putin.html?searchResultPosition=6
 
