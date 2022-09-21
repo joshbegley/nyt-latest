@@ -11,7 +11,7 @@ https://nytimes.com/2022/09/21/books/john-train-dead.html?searchResultPosition=2
 https://nytimes.com/2022/09/21/world/europe/iran-protests-mahsa-amini.html?searchResultPosition=3
 
 **Watch Live: New York Attorney General Makes Announcement**\
-`New York State’s Attorney General Leticia James is expected to make a major announcement.`\
+`New York State’s Attorney General Letitia James is expected to make a major announcement.`\
 https://nytimes.com/video/nyregion/100000008545072/trump-lawsuit-ny-attorney-general.html?searchResultPosition=4
 
 **How Restaurants Inspire Recipes**\
