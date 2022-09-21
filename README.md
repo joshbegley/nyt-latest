@@ -4,7 +4,7 @@ https://nytimes.com/2022/09/21/well/live/legionnaires-disease.html?searchResultP
 
 **Read the lawsuit**\
 `In a lawsuit filed on Sept. 21, the New York attorney general, Letitia James, accused Donald J. Trump and three of his children of fraudulently overvaluing his assets by billions of dollars.`\
-https://nytimes.com/interactive/2022/09/21/nyregion/21trumpsuit.html?searchResultPosition=2
+https://nytimes.com/interactive/2022/09/21/nyregion/read-trump-suit-james.html?searchResultPosition=2
 
 **Watch: Zelensky Addresses the United Nations General Assembly**\
 `In a pre taped address, President Volodymyr Zelensky of Ukraine delivered a speech to world leaders at the 77th session of the United Nations General Assembly in New York City.`\
