@@ -1,5 +1,5 @@
-**A watchdog group accuses the Senate G.O.P. campaign arm of breaking the law with its spending.**\
-`The Times recently reported that Senate Republicans’ campaign arm had used money meant for legal expenses to pay for political advertising. Now, both a watchdog group and Democrats are raising challenges.`\
+**Watchdog Group Accuses Senate G.O.P. Campaign Arm of Breaking the Law**\
+`The Times had reported that the campaign committee used money meant for legal expenses to pay for advertising. A watchdog group and Democrats are raising challenges.`\
 https://nytimes.com/2022/09/21/us/politics/fec-complaint-republican-campaign-finance.html?searchResultPosition=1
 
 **Vocabulary in Context: Gen Z At Work**\
