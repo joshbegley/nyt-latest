@@ -34,7 +34,7 @@ https://nytimes.com/2022/09/22/podcasts/the-daily/ukraine-putin-russia-nuclear.h
 `New maps reveal a picture of daily exposure to wildfire smoke in better geographic detail than ever before.`\
 https://nytimes.com/interactive/2022/09/22/climate/wildfire-smoke-pollution.html?searchResultPosition=9
 
-**Putin confidant Viktor Medvedchuk is the most prominent captive released in the prisoner swap.**\
+**Putin confidant Viktor Medvedchuk is the most prominent captive released in a prisoner swap.**\
 `The Ukrainian politician and oligarch had acted as the Kremlin’s primary agent of influence in Ukraine for years.`\
 https://nytimes.com/2022/09/22/world/europe/russia-ukraine-medvedchuk-released.html?searchResultPosition=10
 
