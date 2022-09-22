@@ -1,40 +1,40 @@
-**Season Two, Episode 9: Trade Secrets**\
-`You don’t hold peace negotiations with friends.`\
-https://nytimes.com/article/serial-podcast-season-2-episode-9.html?searchResultPosition=1
+**Season Three, Episode 9: Some Time When Everything Has Changed**\
+`The state of Ohio decides where Joshua belongs.`\
+https://nytimes.com/article/serial-podcast-season-3-episode-9.html?searchResultPosition=1
 
-**Season Two, Episode 8: Hindsight Revisited**\
-`Did the Army miss something critical?`\
-https://nytimes.com/article/serial-podcast-season-2-episode-8.html?searchResultPosition=2
+**Season Three, Episode 8: A Madman’s Vacation**\
+`A teenager decides to cooperate with the police.`\
+https://nytimes.com/article/serial-podcast-season-3-episode-8.html?searchResultPosition=2
 
-**Season Two, Episode 7: Hindsight, Part 1**\
-`Bowe Bergdahl’s actions make sense — if you’re Bowe Bergdahl.`\
-https://nytimes.com/article/serial-podcast-season-2-episode-7.html?searchResultPosition=3
+**Season Three, Episode 7: The Snowball Effect**\
+`The trash-talking of a man with a history of violent run-ins with the police starts to reveal a message.`\
+https://nytimes.com/article/serial-podcast-season-3-episode-7.html?searchResultPosition=3
 
-**Season Two, Episode 6: Five O’Clock Shadow**\
-`Why, exactly, did Bowe Bergdahl walk off?`\
-https://nytimes.com/article/serial-podcast-season-2-episode-6.html?searchResultPosition=4
+**Season Three, Episode 6: You in the Red Shirt**\
+`What is life like for a man who puts a police officer in jail?`\
+https://nytimes.com/article/serial-podcast-season-3-episode-6.html?searchResultPosition=4
 
-**Season Two, Episode 5: Meanwhile, in Tampa**\
-`The C.I.A., the F.B.I., YouTube and the Portland Police Department? As various organizations scrambled, they realized there was no handbook for getting Bergdahl back.`\
-https://nytimes.com/article/serial-podcast-season-2-episode-5.html?searchResultPosition=5
+**Season Three, Episode 5: Pleas, Baby Pleas**\
+`Don’t tell the judges, but in Cuyahoga County, Ohio, the prosecutors have the most power in the justice center.`\
+https://nytimes.com/article/serial-podcast-season-3-episode-5.html?searchResultPosition=5
 
-**Season Two, Episode 4: The Captors**\
-`After two attempts to escape from the Taliban, Bowe Bergdahl was often confined to a metal cage.`\
-https://nytimes.com/article/serial-podcast-season-2-episode-4.html?searchResultPosition=6
+**Season Three, Episode 4: A Bird in Jail Is Worth Two on the Street**\
+`What happens when the right evidence points to the wrong man?`\
+https://nytimes.com/article/serial-podcast-season-3-episode-4.html?searchResultPosition=6
 
-**Season Two, Episode 3: Escaping**\
-`During his first year in Taliban captivity, Bowe Bergdahl had one thing on his mind: getting out.`\
-https://nytimes.com/article/serial-podcast-season-2-episode-3.html?searchResultPosition=7
+**Season Three, Episode 3: Misdemeanor, Meet Mr. Lawsuit**\
+`The smell of raw marijuana, plus acting nervous, plus hands in pockets equals — what?`\
+https://nytimes.com/article/serial-podcast-season-3-episode-3.html?searchResultPosition=7
 
-**Season Two, Episode 2: The Golden Chicken**\
-`“A dead soldier is worth nothing,” one Taliban fighter said. But with Bowe Bergdahl in hand alive, the insurgent group knew it had scored.`\
-https://nytimes.com/article/serial-podcast-season2-episode-2.html?searchResultPosition=8
+**Season Three, Episode 2: You’ve Got Some Gauls**\
+`What happens when a judge believes he knows defendants better than they know themselves?`\
+https://nytimes.com/article/serial-podcast-season-3-episode-2.html?searchResultPosition=8
 
-**Season Two, Episode 1: Dustwun**\
-`Bowe Bergdahl had a plan. He would create a crisis, in order to call attention to another crisis.`\
-https://nytimes.com/article/serial-podcast-season-2-episode-1.html?searchResultPosition=9
+**Season Three, Episode 1: A Bar Fight Walks Into a Justice Center**\
+`A young woman is slapped on the butt. So why’s she the one in jail?`\
+https://nytimes.com/article/serial-podcast-season-3-episode-1.html?searchResultPosition=9
 
-**A Star-Studded Goodbye to All That**\
-`Among the well-wishers at Joan Didion’s memorial service in New York.`\
-https://nytimes.com/2022/09/22/style/joan-didion-memorial.html?searchResultPosition=10
+**Season Two, Episode 11: Present for Duty**\
+`The Season Two finale: What is Bowe Bergdahl’s fault, and what isn’t?`\
+https://nytimes.com/article/serial-podcast-season-2-episode-11.html?searchResultPosition=10
 
