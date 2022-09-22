@@ -1,5 +1,5 @@
 **Watch Live: Alex Jones Testifies in Sandy Hook Trial**\
-`Alex Jones, the conspiracy theorist and far-right media personality, is on trial over the falsehoods and provocations he promoted in the wake of the 2012 massacre at Sandy Hook Elementary School in Newtown, Conn.`\
+`Alex Jones, the conspiracy theorist and far-right media personality, is testifying in a trial to determine how much he must pay families of Sandy Hook shooting victims after he was found liable for defaming them.`\
 https://nytimes.com/video/us/100000008543285/alex-jones-testimony-video.html?searchResultPosition=1
 
 **From Prison to the Art Gallery**\
