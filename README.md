@@ -10,7 +10,7 @@ https://nytimes.com/2022/09/22/learning/whats-going-on-in-this-graph-sept-28-202
 `The men both make a living performing as the pop legend in Buenos Aires. But their lives are otherwise a study in contrasts, reflective of Argentina’s economic divide: One man financed 13 surgeries, while the other has to draw on his sideburns.`\
 https://nytimes.com/2022/09/22/world/americas/michael-jackson-impersonators-buenos-aires.html?searchResultPosition=3
 
-**For the Mets, a Record They Would Rather Not Have**\
+**A Record the Mets Would Rather Not Have**\
 `Mets batters have been hit 106 times with 11 games still to play: “It’s like a broken record at this point.”`\
 https://nytimes.com/2022/09/22/sports/baseball/mets-hit-by-pitch-record.html?searchResultPosition=4
 
