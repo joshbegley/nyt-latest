@@ -4,7 +4,7 @@ https://nytimes.com/2022/09/22/movies/invisible-demons-review.html?searchResultP
 
 **Japan Intervenes to Prop Up the Sliding Yen**\
 `The currency’s decline to a point not seen in 24 years prompted the rare action as officials keep interest rates low.`\
-https://nytimes.com/2022/09/22/business/japan-intervenes-to-prop-up-the-sliding-yen.html?searchResultPosition=2
+https://nytimes.com/2022/09/22/business/japan-yen-currency.html?searchResultPosition=2
 
 **On the Runway, Money Is the New Sex**\
 `In this season’s fashion, there’s nothing hotter than looking like a million bucks.`\
