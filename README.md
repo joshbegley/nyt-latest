@@ -7,7 +7,7 @@ https://nytimes.com/2022/09/22/arts/design/rosalie-genevro-architectural-league-
 https://nytimes.com/2022/09/22/learning/whats-going-on-in-this-graph-sept-28-2022.html?searchResultPosition=2
 
 **2 Michael Jackson Impersonators Look Identical. The Resemblance Ends There.**\
-`The men both make a living performing as the pop legend in Buenos Aires. But their lives are otherwise a study in contrasts, reflective of Argentina’s economic divide: One man financed 13 surgeries, while the other has to draw on his sideburns.`\
+`Two imitators of the King of Pop in Buenos Aires offer a study in contrasts, reflective of Argentina’s deep economic divide. One man financed 13 surgeries, while the other draws on his sideburns.`\
 https://nytimes.com/2022/09/22/world/americas/michael-jackson-impersonators-buenos-aires.html?searchResultPosition=3
 
 **A Record the Mets Would Rather Not Have**\
