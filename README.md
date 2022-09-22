@@ -11,7 +11,7 @@ https://nytimes.com/2022/09/21/us/philadelphia-police-murder-conviction.html?sea
 https://nytimes.com/2022/09/21/crosswords/daily-puzzle-2022-09-22.html?searchResultPosition=3
 
 **Truss pledges support for Ukraine and renews her commitment to the free market.**\
-`By Stephen Castle`\
+`The prime minister of Britain also restated a promise to raise Britain’s spending on defense to 3 percent of G.D.P. by 2030, a commitment long urged by the United States,.`\
 https://nytimes.com/2022/09/21/world/europe/liz-truss-speech-ukraine.html?searchResultPosition=4
 
 **Virginia Thomas Agrees to Interview With Jan. 6 Panel**\
