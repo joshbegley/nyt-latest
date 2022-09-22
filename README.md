@@ -2,7 +2,7 @@
 `The wife of Justice Clarence Thomas is a conservative activist who was involved in efforts to overturn the 2020 election.`\
 https://nytimes.com/2022/09/21/us/virginia-thomas-jan-6-panel.html?searchResultPosition=1
 
-**Appeals Court Restores Justice Dept.’s Access to Sensitive Files Seized From Trump**\
+**Appeals Court Frees Justice Dept. to Use Sensitive Files Seized From Trump**\
 `A federal judge had temporarily barred the department from using the records marked as classified in its inquiry into whether the former president illegally retained national defense documents.`\
 https://nytimes.com/2022/09/21/us/politics/trump-classified-documents.html?searchResultPosition=3
 
