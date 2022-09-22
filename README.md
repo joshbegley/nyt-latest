@@ -1,4 +1,4 @@
-**What Explains the Crazy Democrat-on-Democrat Sabotage in North Carolina?**\
+**What Explains the Alarming Democrat-on-Democrat Sabotage in North Carolina?**\
 `The heir apparent to the current governor is the target of an absolutely baffling prosecution.`\
 https://nytimes.com/2022/09/22/opinion/democrat-josh-stein-north-carolina.html?searchResultPosition=1
 
