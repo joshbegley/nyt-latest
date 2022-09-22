@@ -1,40 +1,40 @@
-**Diesel Sets a World Record**\
-`And Fendi updates Y2K.`\
-https://nytimes.com/2022/09/22/style/diesel-fendi-milan-fashion-week.html?searchResultPosition=1
+**The Tennis Player’s Dilemma: Play It Safe, or Go For Broke?**\
+`Shot by shot, players have to decide whether to just blast away or use more finesse.`\
+https://nytimes.com/2022/09/22/sports/tennis/shot-selection-players-decision.html?searchResultPosition=1
 
-**At the End of Her Reign, the Queen Takes a Bow Onstage**\
-`“Handbagged,” a play that opened in London a day after Queen Elizabeth II died, depicts a clever, compassionate monarch. But theatrical depictions haven’t always been so reverential.`\
-https://nytimes.com/2022/09/22/theater/handbagged-queen-onstage.html?searchResultPosition=2
+**The 25 Most Influential Postwar Women’s Wear Collections**\
+`A group of fashion experts — editors, historians and a designer — convened over Zoom to make a list of the clothes that shaped the world.`\
+https://nytimes.com/2022/09/22/t-magazine/fashion-influential-womens-collections.html?searchResultPosition=2
 
-**Lesson Plan: TikTok’s ‘Corn Kid’ and Viral Audio Memes**\
-`In this lesson, students will learn about Tariq, the 7-year-old TikTok sensation also known as Corn Kid. Then they’ll investigate what makes songs like “It’s Corn” so addictive.`\
-https://nytimes.com/2022/09/22/learning/lesson-plans/lesson-plan-tiktoks-corn-kid-and-viral-audio-memes.html?searchResultPosition=3
+**Guns, Gorillas and Netflix: A Belgian Prince in Congo**\
+`Emmanuel de Merode is trying to protect Virunga National Park, catching the eye of Hollywood, and its philanthropists, along the way. “Complicated” doesn’t even begin to describe the story.`\
+https://nytimes.com/2022/09/22/style/congo-belgian-prince.html?searchResultPosition=3
 
-**Late Night Examines New York’s Accusing Trump of ‘Staggering’ Fraud**\
-`“I don’t know, that doesn’t sound like the Donald Trump I know,” Jimmy Kimmel said Wednesday on his show.`\
-https://nytimes.com/2022/09/22/arts/late-night-trump-fraud-lawsuit.html?searchResultPosition=4
+**A Girl Survived a Suicide Bombing in Afghanistan. Then She Vanished in Texas.**\
+`Lina Sardar Khil was 3 when she barely escaped a terrorist attack during the fall of Afghanistan. While living in San Antonio, she went out to play — and has not been seen since.`\
+https://nytimes.com/2022/09/22/us/missing-girl-afghanistan-texas.html?searchResultPosition=4
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/09/22/crosswords/spelling-bee-forum.html?searchResultPosition=5
+**Counting the World’s Ants Requires a Lot of Zeros**\
+`There are 20 quadrillion ants worldwide, according to a new census, or 2.5 million for every living human. There are probably even more than that.`\
+https://nytimes.com/2022/09/22/science/ants-census-20-quadrillion.html?searchResultPosition=5
 
-**Word of the Day: tectonic**\
-`This word has appeared in 75 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/09/22/learning/word-of-the-day-tectonic.html?searchResultPosition=6
+**Bad News From the Fed? We’ve Been Here Before.**\
+`Fed rate increases are causing pain now. But an inside look at the Volcker era shows that conditions were far worse when the Fed tried different tacks to tame inflation.`\
+https://nytimes.com/2022/09/22/business/fed-rate-inflation-volcker.html?searchResultPosition=6
 
-**16 Years, 3 Convictions: The Khmer Rouge Trials Come to an End**\
-`The last surviving leader of the regime that killed 1.7 million Cambodians lost his appeal on Thursday. Some victims think the long, expensive tribunal was a hollow exercise.`\
-https://nytimes.com/2022/09/22/world/asia/cambodia-khmer-rouge-tribunal.html?searchResultPosition=7
+**3-K for All? Adams Retreats From Expanding N.Y.C. Preschool Program.**\
+`Mayor Eric Adams is reassessing how New York City’s so-called 3-K for All program, a top priority of his predecessor, fits into his administration’s strategy.`\
+https://nytimes.com/2022/09/22/nyregion/prekindergarten-adams-nyc-3k.html?searchResultPosition=7
 
-**North Korea Denies U.S. Claims of Arms Sales to Russia**\
-`Pyongyang accused the United States of spreading “reckless” rumors, but added that it had the right to build and export arms.`\
-https://nytimes.com/2022/09/22/world/asia/north-korea-russia-arms-us.html?searchResultPosition=8
+**Why Omicron Might Stick Around**\
+`Omicron, the 13th named variant of the coronavirus, seems to have a remarkable capacity to evolve new tricks.`\
+https://nytimes.com/2022/09/22/science/omicron-covid-variant.html?searchResultPosition=8
 
-**Putin Is in Trouble**\
-`The ground beneath his feet has started to shift.`\
-https://nytimes.com/2022/09/22/opinion/russia-ukraine-putin.html?searchResultPosition=9
+**Trump Support Remains Unmoved by Investigations, Poll Finds**\
+`Even during peak crises during his presidency, views of him were static. Post-presidency polls have continued the trend.`\
+https://nytimes.com/2022/09/22/upshot/donald-trump-approval-poll.html?searchResultPosition=9
 
-**Your Thursday Briefing**\
-`A warning from Vladimir Putin.`\
-https://nytimes.com/2022/09/22/briefing/putin-ukraine-russia-puerto-rico.html?searchResultPosition=10
+**How to Beat High Mortgage Interest Rates**\
+`Consider loans with shorter terms and tactics that build equity.`\
+https://nytimes.com/2022/09/22/realestate/high-mortgage-interest-rates-loans.html?searchResultPosition=10
 
