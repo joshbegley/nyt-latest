@@ -1,5 +1,5 @@
 **Virginia Thomas Agrees to Interview With Jan. 6 Panel**\
-`The wife of Supreme Court Justice Clarence Thomas is a conservative activist who was involved in efforts to overturn the 2020 election.`\
+`The wife of Justice Clarence Thomas is a conservative activist who was involved in efforts to overturn the 2020 election.`\
 https://nytimes.com/2022/09/21/us/virginia-thomas-jan-6-panel.html?searchResultPosition=1
 
 **Appeals Court Restores Justice Dept.’s Access to Sensitive Files Seized From Trump**\
