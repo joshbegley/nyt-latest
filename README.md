@@ -12,7 +12,7 @@ https://nytimes.com/2022/09/23/books/review/hilary-mantel-appraisal.html?searchR
 
 **Will Anyone Give ‘Don’t Worry Darling’ a Chance?**\
 `Olivia Wilde’s new film is trying to fight free of its pre-release reputation.`\
-https://nytimes.com/2022/09/23/magazine/dont-worry-darling-olivia.html?searchResultPosition=4
+https://nytimes.com/2022/09/23/magazine/dont-worry-darling-olivia-wilde.html?searchResultPosition=4
 
 **Meet the opponents for Federer and Nadal: Frances Tiafoe and Jack Sock.**\
 `Tiafoe had plenty of big moments in the U.S. Open. And Sock has won four Grand Slam doubles titles.`\
