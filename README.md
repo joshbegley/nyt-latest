@@ -19,7 +19,7 @@ https://nytimes.com/2022/09/23/briefing/crime-rates-murder-robberies-us.html?sea
 https://nytimes.com/2022/09/23/podcasts/the-daily/evangelicals-trumpism.html?searchResultPosition=5
 
 **U.K. Government Goes Full Tilt on Tax Cuts and Free-Market Economics**\
-`The new administration’s proposals are a sharp break from the era of Boris Johnson, and they represent a turn toward Thatcherism.`\
+`The new administration’s plans are a break from the Boris Johnson era and represent a turn toward Thatcherism. The negative reaction from financial markets underscored the extent of the gamble.`\
 https://nytimes.com/2022/09/23/world/europe/uk-tax-cuts-economy.html?searchResultPosition=6
 
 **The New York Times News Quiz, September 23, 2022**\
