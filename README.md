@@ -2,8 +2,8 @@
 `Olivia Wilde’s new film is trying to fight free of its pre-release reputation.`\
 https://nytimes.com/2022/09/23/magazine/dont-worry-darling-olivia.html?searchResultPosition=1
 
-**Tropical Storm Hermine Forms as Florida Prepares for Its Potential Effects**\
-`Gov. Ron DeSantis of Florida declared a state of emergency for 24 counties ahead of the storm. He warned that it has the potential to strengthen into a major hurricane.`\
+**Tropical Storm Hermine Forms**\
+`Forecasters said the storm was expected to strengthen through Saturday before weakening on Sunday.`\
 https://nytimes.com/article/tropical-storm-hermine-hurricane.html?searchResultPosition=2
 
 **Sham Referendums**\
