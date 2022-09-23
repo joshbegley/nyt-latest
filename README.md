@@ -1,6 +1,6 @@
 **Will Anyone Give ‘Don’t Worry Darling’ a Chance?**\
 `Olivia Wilde’s new film is trying to fight free of its pre-release reputation.`\
-https://nytimes.com/2022/09/23/magazine/will-anyone-give-dont-worry-darling-a-chance.html?searchResultPosition=1
+https://nytimes.com/2022/09/23/magazine/dont-worry-darling-olivia.html?searchResultPosition=1
 
 **Tropical Storm Hermine Forms as Florida Prepares for Its Potential Effects**\
 `Gov. Ron DeSantis of Florida declared a state of emergency for 24 counties ahead of the storm. He warned that it has the potential to strengthen into a major hurricane.`\
