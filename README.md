@@ -8,7 +8,7 @@ https://nytimes.com/2022/09/23/dining/pasta-breadcrumbs.html?searchResultPositio
 
 **The Fed Appears More Optimistic Than Some Investors. Here’s Why.**\
 `In some corners of the market, investors just don’t see how the Federal Reserve can lower inflation without risking high unemployment.`\
-https://nytimes.com/2022/09/23/business/the-fed-appears-more-optimistic-than-some-investors-heres-why.html?searchResultPosition=3
+https://nytimes.com/2022/09/23/business/fed-stocks-wall-street.html?searchResultPosition=3
 
 **The World’s Most Prestigious Art Exhibition Is Over. Maybe Forever.**\
 `The German mega-show Documenta closes this weekend. Whatever comes next, it will never be what it was before.`\
