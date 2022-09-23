@@ -23,7 +23,7 @@ https://nytimes.com/2022/09/22/us/politics/monkeypox-eradication.html?searchResu
 https://nytimes.com/2022/09/22/us/politics/trump-finances-lawsuits.html?searchResultPosition=6
 
 **Why New York Is Resorting to Tents to House Surge of Migrants**\
-`The city, struggling to provide shelter to more than 10,000 migrants, will use temporary structures to hold new arrivals for their first few days.`\
+`With over 10,000 asylum seekers crowding homeless shelters, the city will erect temporary structures to hold new arrivals for their first few days.`\
 https://nytimes.com/2022/09/22/nyregion/migrants-homeless-shelter-crisis.html?searchResultPosition=7
 
 **Banned Books, Censored Topics: Teaching About the Battle Over What Students Should Learn**\
