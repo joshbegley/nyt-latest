@@ -1,40 +1,40 @@
-**Spain Women’s Soccer Stars Refuse to Play in Dispute Over Coach**\
-`Spain’s federation rejected the players’ demand to fire the coach, Jorge Vilda, and said the players must apologize as a condition of their return to the team.`\
-https://nytimes.com/2022/09/23/sports/soccer/spain-soccer-women-jorge-vilda.html?searchResultPosition=1
+**The New York Times News Quiz, September 23, 2022**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2022/09/23/briefing/23-news-quiz-ukraine-hurricane-fiona.html?searchResultPosition=1
 
-**Dressing for the Age of Anxiety**\
-`At Moschino, Jeremy Scott throws out a comic life raft. At Prada, Miuccia Prada and Raf Simons embrace the imperfect.`\
-https://nytimes.com/2022/09/23/style/moschino-prada-milan-fashion-week.html?searchResultPosition=2
+**The World Got Diamonds. A Mining Town Got Buried in Sludge.**\
+`Waste from a diamond mine in South Africa grew ever higher as the ownership changed from De Beers to a billionaire to a Dubai-based retailer. The mining town paid the price.`\
+https://nytimes.com/2022/09/23/us/the-world-got-diamonds-a-mining-town-got-buried-in-sludge.html?searchResultPosition=2
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/09/23/crosswords/spelling-bee-forum.html?searchResultPosition=3
+**The Most Dominant Toxic Election Narratives Online**\
+`Misleading and divisive posts about the Nov. 8 midterm vote have flooded social media. Here are three prevalent themes.`\
+https://nytimes.com/2022/09/23/technology/midterm-elections-misinformation.html?searchResultPosition=3
 
-**Bookshelf**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2022/09/23/learning/bookshelf.html?searchResultPosition=4
+**Alone in a New World With Vast Open Space, and Sheep**\
+`Latin American sheepherders, here on work visas, do the same nomadic work that European immigrants did before them. But do they have a shot at the American dream?`\
+https://nytimes.com/2022/09/23/us/immigrant-shepherds.html?searchResultPosition=4
 
-**Supreme Court Says Alabama Can Kill Prisoner With Method He Fears**\
-`Alan Eugene Miller says that he is afraid of needles and that the state lost his request to die by nitrogen hypoxia. The court decided that the state could proceed with lethal injection instead.`\
-https://nytimes.com/2022/09/23/us/alan-miller-alabama-execution.html?searchResultPosition=5
+**In Vienna, Taking to the Hills for Wine**\
+`In the fall, the wine taverns set among the city’s vineyards known as heurigen and buschenschanken offer the perfect combination of outdoor activity, food and drink.`\
+https://nytimes.com/2022/09/23/travel/vienna-wine-heuriger.html?searchResultPosition=5
 
-**Word of the Day: cajole**\
-`This word has appeared in 103 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/09/23/learning/word-of-the-day-cajole.html?searchResultPosition=6
+**Democratic-Allied Group Pours $60 Million Into State Legislative Races**\
+`The group, the States Project, aims to help Democrats in Arizona, Pennsylvania, Michigan, Maine and Nevada, as the left tries to make up lost ground in state legislatures.`\
+https://nytimes.com/2022/09/23/us/politics/state-legislature-races.html?searchResultPosition=6
 
-**Jimmy Kimmel Jeers at Trump for Claiming to Declassify Documents With His Mind**\
-`“Like Harry Whodummy,” Jimmy Kimmel quipped on Thursday night.`\
-https://nytimes.com/2022/09/23/arts/television/jimmy-kimmel-jeers-at-trump-for-claiming-to-declassify-documents-with-his-mind.html?searchResultPosition=7
+**Where Online Hate Speech Can Bring the Police to Your Door**\
+`Battling far-right extremism, Germany has gone further than any other Western democracy to prosecute individuals for what they say online, testing the limits of free speech on the internet.`\
+https://nytimes.com/2022/09/23/technology/germany-internet-speech-arrest.html?searchResultPosition=7
 
-**Major Covid Holdouts in Asia Drop Border Restrictions**\
-`Hong Kong, Taiwan and Japan have relaxed their pandemic rules, as they look to bolster their economies and play catch-up with much of the world.`\
-https://nytimes.com/2022/09/23/business/asia-travel-reopening-japan-taiwan-hong-kong.html?searchResultPosition=8
+**Zeldin Has a Path to Becoming Governor. It Runs Through Brooklyn.**\
+`Representative Lee Zeldin, a Republican candidate for governor, is hoping for a realignment of political loyalties in parts of the borough, including those of Hasidic Jews.`\
+https://nytimes.com/2022/09/23/nyregion/zeldin-governor-hasidic-jews.html?searchResultPosition=8
 
-**In Melbourne, a Sky-High Drama Takes Hold**\
-`Peregrine falcons nesting in the city’s financial district offer riveting theater every day with their daily life, including sex, death and high-speed chases.`\
-https://nytimes.com/2022/09/23/world/australia/in-melbourne-a-sky-high-drama-takes-hold.html?searchResultPosition=9
+**Why New Yorkers Still ❤️ Film**\
+`Projectionists are busier than ever, as they serve a demand for obscure 35-millimeter titles, nostalgia and the quirks of analog.`\
+https://nytimes.com/2022/09/23/nyregion/35-mm-film-projectionists.html?searchResultPosition=9
 
-**Putin Is Not Liberating My Family. He Is Subjugating Them.**\
-`Starting on Friday, people in four occupied regions of Ukraine will “vote” on whether to become a part of Russia. Here’s what that really means.`\
-https://nytimes.com/2022/09/23/opinion/international-world/ukraine-referendum-donbas-putin.html?searchResultPosition=10
+**Giving People Money Is a Great Way to Reduce Poverty**\
+`Dozens of pilot programs and the success of the Child Tax Credit show the merits of a guaranteed income.`\
+https://nytimes.com/2022/09/23/opinion/columnists/child-tax-credit-basic-income.html?searchResultPosition=10
 
