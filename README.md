@@ -1,6 +1,6 @@
 **‘The Lord of the Rings: The Rings of Power,’ Season 1, Episode 5: Misty Mountain Hop**\
 `This week’s installment is the grandest in scale so far, with a running time to match. Here are five takeaways from the episode.`\
-https://nytimes.com/2022/09/23/arts/television/the-lord-of-the-rings-the-rings-of-power-season-1-episode-5-misty-mountain-hop.html?searchResultPosition=1
+https://nytimes.com/2022/09/23/arts/television/lotr-rings-of-power-season-1-episode-5-partings.html?searchResultPosition=1
 
 **Red Hot Chili Peppers Honor Eddie Van Halen, and 10 More New Songs**\
 `Hear tracks by Margo Price, Jamie xx, the Comet Is Coming and others.`\
