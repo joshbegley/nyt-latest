@@ -1,40 +1,40 @@
-**Swashbuckling Nautical Adventure Meets the 18th-Century Slave Trade**\
-`A West African girl thrust from her family’s private Eden confronts awful truths on the high seas in Timothée de Fombelle’s “The Wind Rises.”`\
-https://nytimes.com/2022/09/22/books/review/the-wind-rises-timothee-de-fombelle.html?searchResultPosition=1
+**What to Watch in Roger Federer’s Last Match**\
+`Federer will pair up with Rafael Nadal for a doubles match at the Laver Cup for the last competition of his career. They will play two Americans, Frances Tiafoe and Jack Sock.`\
+https://nytimes.com/2022/09/23/sports/roger-federer-nadal-doubles-match.html?searchResultPosition=1
 
-**Bermuda Braces for Hurricane Fiona**\
-`As Hurricane Fiona approached Bermuda, officials told residents to make final preparations for a Category 4 storm expected to bring strong winds, rain and surf.`\
-https://nytimes.com/video/world/100000008548541/bermuda-hurricane-fiona.html?searchResultPosition=2
+**Corrections: Sept. 23, 2022**\
+`Corrections that appeared in print on Friday, Sept. 23, 2022.`\
+https://nytimes.com/2022/09/23/pageoneplus/corrections-sept-23-2022.html?searchResultPosition=2
 
-**Variety: Acrostic**\
-`Emily Cox and Henry Rathvon rock out with a heavy puzzle.`\
-https://nytimes.com/2022/09/22/crosswords/variety-acrostic.html?searchResultPosition=3
+**Quotation of the Day: Mississippi Says Millions In Funding for the Needy Was Misused by the Rich**\
+`Quotation of the Day for Friday, Sept. 23, 2022.`\
+https://nytimes.com/2022/09/23/todayspaper/quotation-of-the-day-mississippi-says-millions-in-funding-for-the-needy-was-misused-by-the-rich.html?searchResultPosition=3
 
-**Passenger Charged With Punching Flight Attendant**\
-`A video shows the passenger, Alexander Tung Cuu Le, 33, rushing toward a flight attendant and punching him in the back of the head, the Justice Department said.`\
-https://nytimes.com/2022/09/22/us/passenger-charged-with-punching-flight-attendant.html?searchResultPosition=4
+**Why Is My Husband Marrying Her?**\
+`He was cute, funny — and totally wrong for me. Or was he?`\
+https://nytimes.com/2022/09/23/style/modern-love-why-is-my-husband-marrying-her.html?searchResultPosition=4
 
-**Kwame Alexander’s New Book About Slavery Focuses on Africa, Not America**\
-`In his new novel-in-verse, “The Door of No Return,” the Newbery Medal-winning author works hard to show that white people weren’t the only ones perpetuating an unjust system.`\
-https://nytimes.com/2022/09/22/books/review/kwame-alexander-the-door-of-no-return.html?searchResultPosition=5
+**For Two College Students, Finally a Place (and a Person) to Call Home**\
+`Yolka Gessen and Mohamad Eisa were nearly introduced by journalist Masha Gessen, who is the bride’s parent. But they found each other first.`\
+https://nytimes.com/2022/09/23/style/yolka-gessen-mohamad-eisa-wedding.html?searchResultPosition=5
 
-**A Nod to Folklore**\
-`Experience the joy of Erik Agard’s Friday puzzle.`\
-https://nytimes.com/2022/09/22/crosswords/daily-puzzle-2022-09-23.html?searchResultPosition=6
+**When He Stocked Her Fridge, Her Heart Was Full**\
+`As the little sister of David Doherty’s friends, Cait McDonagh passed a crucial test: “She was never annoying.”`\
+https://nytimes.com/2022/09/23/style/cait-mcdonagh-david-doherty-wedding.html?searchResultPosition=6
 
-**Celtics Coach Ime Udoka Suspended for 2022-23 Season**\
-`The team said Udoka violated unspecified team policies. He led Boston to the N.B.A. finals last season, his first as a head coach.`\
-https://nytimes.com/2022/09/22/sports/basketball/ime-udoka-celtics-suspended.html?searchResultPosition=7
+**At the Barbershop, a Meet-Cute Mid Cut**\
+`Everett Long Jr. and Fred Smith Jr. marvel at the fact that, as two queer men, they met at what Mr. Long called one of the “most masculine and most beloved institutions of the Black community.”`\
+https://nytimes.com/2022/09/23/style/everett-long-fred-smith-wedding.html?searchResultPosition=7
 
-**Companies Fined $325,000 for Selling Pesticide to Fight Coronavirus, E.P.A. Says**\
-`Zoono USA and Zoono Holdings, New Jersey companies, sold Zoono Microbe Shield through numerous websites and were fined by the U.S. Environmental Protection Agency.`\
-https://nytimes.com/2022/09/22/us/new-jersey-epa-pesticide-fine.html?searchResultPosition=8
+**Finally the Right Time for a Second Chance**\
+`Lisa Jenkins and Vincent Brown first met at choir practice in 1993. What followed was a nearly 30-year journey through life and love that ended, eventually, in a reunion.`\
+https://nytimes.com/2022/09/23/style/lisa-jenkins-vincent-brown-wedding.html?searchResultPosition=8
 
-**Jury Rules Against Project Veritas in Lawsuit**\
-`The conservative group was found to have violated wiretapping laws and fraudulently misrepresented itself to a Democratic consulting firm, to which it was ordered to pay $120,000.`\
-https://nytimes.com/2022/09/22/us/politics/project-veritas-lawsuit.html?searchResultPosition=9
+**Returning the Ring Only to Receive It Again**\
+`Jill Martin, a “Today” show contributor, and Erik Brooks, a financier, were first engaged in 2019, then broke up a year later. After 16 months of no communication, they recommitted to each other.`\
+https://nytimes.com/2022/09/23/style/jill-martin-erik-brooks-wedding.html?searchResultPosition=9
 
-**Read the Pac-12 Letter to the University of California Regents**\
-`Letter from the commissioner of the Pac-12 Conference to the University of California Board of Regents, objecting to a move by U.C.L.A. to go to the Big Ten Conference.`\
-https://nytimes.com/interactive/2022/09/22/sports/ncaafootball/23pac-12-uc-regents-letter.html?searchResultPosition=10
+**Finding Love in Fits and Starts**\
+`Lauren Shell and Seth Ratner dated on and off after meeting on a Disney cruise in 2014. A chance encounter at a Billy Joel concert in 2018 finally sealed their romance.`\
+https://nytimes.com/2022/09/23/style/lauren-shell-seth-ratner-wedding.html?searchResultPosition=10
 
