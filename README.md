@@ -1,5 +1,5 @@
-**Elton John, a Favorite of Trump, Performs at the Biden White House**\
-`A White House performance by the British pop superstar is an appearance President Biden’s predecessor wanted but never received.`\
+**Elton John, a Favorite of Trump, to Perform at the Biden White House**\
+`Such a performance by the British pop superstar was what President Biden’s predecessor had sought but never received.`\
 https://nytimes.com/2022/09/23/us/politics/elton-john-white-house.html?searchResultPosition=1
 
 **Rail Unions Say Deal Offers Gains on Scheduling; Some Workers Scoff**\
