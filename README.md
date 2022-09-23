@@ -34,7 +34,7 @@ https://nytimes.com/2022/09/22/well/live/exercise-safety-fall-winter.html?search
 `The state criminal appeals court shut down a district attorney’s argument that John Henry Ramirez should not be executed because the death penalty was “unethical.”`\
 https://nytimes.com/2022/09/22/us/john-henry-ramirez-execution-texas.html?searchResultPosition=9
 
-**Officials Express Optimism That Monkeypox Can Be Eliminated in the U.S.**\
+**Officials Hopeful That Monkeypox Can Be Eliminated in the U.S.**\
 `Cases are declining nationally, and the deputy coordinator of the White House monkeypox response team said he expected that, over time, they would drop to a trickle.`\
 https://nytimes.com/2022/09/22/us/politics/monkeypox-eradication.html?searchResultPosition=10
 
