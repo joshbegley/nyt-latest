@@ -1,40 +1,40 @@
+**Celtics Coach Ime Udoka Suspended for 2022-23 Season**\
+`The team said Udoka violated unspecified team policies. He led Boston to the N.B.A. finals last season, his first as a head coach.`\
+https://nytimes.com/2022/09/22/sports/basketball/ime-udoka-celtics-suspended.html?searchResultPosition=1
+
 **Companies Fined $325,000 for Selling Pesticide to Fight Coronavirus, E.P.A. Says**\
 `Zoono USA and Zoono Holdings, New Jersey companies, sold Zoono Microbe Shield through numerous websites and were fined by the U.S. Environmental Protection Agency.`\
-https://nytimes.com/2022/09/22/us/new-jersey-epa-pesticide-fine.html?searchResultPosition=1
+https://nytimes.com/2022/09/22/us/new-jersey-epa-pesticide-fine.html?searchResultPosition=2
 
 **Jury Rules Against Project Veritas in Lawsuit**\
 `The conservative group was found to have violated wiretapping laws and fraudulently misrepresented itself to a Democratic consulting firm, to which it was ordered to pay $120,000.`\
-https://nytimes.com/2022/09/22/us/politics/jury-rules-against-project-veritas-in-lawsuit.html?searchResultPosition=2
+https://nytimes.com/2022/09/22/us/politics/jury-rules-against-project-veritas-in-lawsuit.html?searchResultPosition=3
 
 **Read the Pac-12 Letter to the University of California Regents**\
 `Letter from the commissioner of the Pac-12 Conference to the University of California Board of Regents, objecting to a move by U.C.L.A. to go to the Big Ten Conference.`\
-https://nytimes.com/interactive/2022/09/22/sports/ncaafootball/23pac-12-uc-regents-letter.html?searchResultPosition=3
+https://nytimes.com/interactive/2022/09/22/sports/ncaafootball/23pac-12-uc-regents-letter.html?searchResultPosition=4
 
 **Opening Paul Allen’s Treasure Chest**\
 `It’s been a closely guarded secret which masterworks in the Microsoft co-founder’s collection will be auctioned at Christie’s in November. Here, highlights of a billionaire’s bounty.`\
-https://nytimes.com/2022/09/22/arts/design/paul-allen-collection-art-christies-auction.html?searchResultPosition=4
+https://nytimes.com/2022/09/22/arts/design/paul-allen-collection-art-christies-auction.html?searchResultPosition=5
 
 **How to Exercise Safely as It Gets Colder and Darker**\
 `Here are a few ways to protect yourself from the elements, oncoming traffic and other threats that ramp up in the fall and winter months.`\
-https://nytimes.com/2022/09/22/well/live/exercise-safety-fall-winter.html?searchResultPosition=5
+https://nytimes.com/2022/09/22/well/live/exercise-safety-fall-winter.html?searchResultPosition=6
 
 **Texas Prosecutor Loses Attempt to Spare a Murderer From Execution**\
 `The state criminal appeals court shut down a district attorney’s argument that John Henry Ramirez should not be executed because the death penalty was “unethical.”`\
-https://nytimes.com/2022/09/22/us/john-henry-ramirez-execution-texas.html?searchResultPosition=6
+https://nytimes.com/2022/09/22/us/john-henry-ramirez-execution-texas.html?searchResultPosition=7
 
 **Officials Express Optimism That Monkeypox Can Be Eliminated in the U.S.**\
 `Cases are declining nationally, and the deputy coordinator of the White House monkeypox response team said he expected that, over time, they would drop to a trickle.`\
-https://nytimes.com/2022/09/22/us/politics/monkeypox-eradication.html?searchResultPosition=7
+https://nytimes.com/2022/09/22/us/politics/monkeypox-eradication.html?searchResultPosition=8
 
 **As Trump’s Legal Woes Mount, So Do Financial Pressures on Him**\
 `The lawsuit filed by New York’s attorney general is the latest indication of how an array of investigations is affecting the former president’s business and personal wealth.`\
-https://nytimes.com/2022/09/22/us/politics/trump-finances-lawsuits.html?searchResultPosition=8
+https://nytimes.com/2022/09/22/us/politics/trump-finances-lawsuits.html?searchResultPosition=9
 
 **Why New York Is Resorting to Tents to House Surge of Migrants**\
 `With over 10,000 asylum seekers crowding homeless shelters, the city will erect temporary structures to hold new arrivals for their first few days.`\
-https://nytimes.com/2022/09/22/nyregion/migrants-homeless-shelter-crisis.html?searchResultPosition=9
-
-**Banned Books, Censored Topics: Teaching About the Battle Over What Students Should Learn**\
-`Suggestions for using recent Times and Learning Network articles, videos, podcasts, student forums and more.`\
-https://nytimes.com/2022/09/22/learning/lesson-plans/banned-books-censored-topics-teaching-about-the-battle-over-what-students-should-learn.html?searchResultPosition=10
+https://nytimes.com/2022/09/22/nyregion/migrants-homeless-shelter-crisis.html?searchResultPosition=10
 
