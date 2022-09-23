@@ -22,8 +22,8 @@ https://nytimes.com/2022/09/23/learning/word-of-the-day-cajole.html?searchResult
 `“Like Harry Whodummy,” Jimmy Kimmel quipped on Thursday night.`\
 https://nytimes.com/2022/09/23/arts/television/jimmy-kimmel-jeers-at-trump-for-claiming-to-declassify-documents-with-his-mind.html?searchResultPosition=6
 
-**Japan to Reopen Fully in October, as Asian Holdouts Dwindle**\
-`Japan will allow visitors to travel freely for the first time in nearly two and a half years. Taiwan announced an end to quarantines, and Hong Kong was expected to follow.`\
+**Major Covid Holdouts in Asia Drop Border Restrictions**\
+`Hong Kong, Taiwan and Japan have relaxed their pandemic rules, as they look to bolster their economies and play catch-up with much of the world.`\
 https://nytimes.com/2022/09/23/business/asia-travel-reopening-japan-taiwan-hong-kong.html?searchResultPosition=7
 
 **In Melbourne, a Sky-High Drama Takes Hold**\
