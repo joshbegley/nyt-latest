@@ -1,4 +1,4 @@
-**University of Utah Student Threatened to Detonate Nuclear Reactor, Officials Say**\
+**University of Utah Student Made Threat About Campus Nuclear Reactor, Officials Say**\
 `A 21-year-old student was arrested on suspicion of making a terrorist threat after posting on social media that she would detonate the reactor if the school’s football team lost, the university said.`\
 https://nytimes.com/2022/09/23/us/utah-nuclear-threat-football-game.html?searchResultPosition=1
 
