@@ -8,7 +8,7 @@ https://nytimes.com/2022/09/22/us/new-jersey-epa-pesticide-fine.html?searchResul
 
 **Jury Rules Against Project Veritas in Lawsuit**\
 `The conservative group was found to have violated wiretapping laws and fraudulently misrepresented itself to a Democratic consulting firm, to which it was ordered to pay $120,000.`\
-https://nytimes.com/2022/09/22/us/politics/jury-rules-against-project-veritas-in-lawsuit.html?searchResultPosition=3
+https://nytimes.com/2022/09/22/us/politics/project-veritas-lawsuit.html?searchResultPosition=3
 
 **Read the Pac-12 Letter to the University of California Regents**\
 `Letter from the commissioner of the Pac-12 Conference to the University of California Board of Regents, objecting to a move by U.C.L.A. to go to the Big Ten Conference.`\
