@@ -8,7 +8,7 @@ https://nytimes.com/2022/09/23/world/europe/ukraine-war-graves-bracelet.html?sea
 
 **Sloppy U.S. Falls to Japan in World Cup Tuneup**\
 `Careless and unthreatening, the Americans came up short in one of their final preparation matches before they head to Qatar in November.`\
-https://nytimes.com/2022/09/23/sports/usmnt-japan.html?searchResultPosition=3
+https://nytimes.com/2022/09/23/sports/usmnt-japan-world-cup.html?searchResultPosition=3
 
 **Election Deniers Are Pivoting to November. Can They Pull It Off?**\
 `“Stop the Steal” Republicans hoping to win over general-election voters are going through contortions — scrubbing websites, using coded language or simply saying different things to different audiences.`\
