@@ -18,23 +18,23 @@ https://nytimes.com/2022/09/23/world/europe/giorgia-meloni-italy-women.html?sear
 `The British landscape designer Dan Pearson has created a uniquely connected ecosystem that dances between cultivation and wilderness.`\
 https://nytimes.com/2022/09/23/t-magazine/dan-pearson-connecticut-garden-estate.html?searchResultPosition=5
 
+**U.N. experts find that war crimes have been committed in Ukraine.**\
+`In an unusually hard-hitting statement, the panel of experts laid out graphic allegations of rape and torture.`\
+https://nytimes.com/2022/09/23/world/europe/russia-ukraine-war-crimes-united-nations.html?searchResultPosition=6
+
 **When Whales Are Stranded, a Race Against Time Begins**\
 `After 230 pilot whales were stranded on the western coast of Tasmania, a scramble started almost immediately to save as many as possible.`\
-https://nytimes.com/2022/09/23/world/australia/stranded-whales-rescue.html?searchResultPosition=6
+https://nytimes.com/2022/09/23/world/australia/stranded-whales-rescue.html?searchResultPosition=7
 
 **Hilary Mantel, Prize-Winning Author of Historical Fiction, Dies at 70**\
 `The two-time Booker Prize-winning author was known for “Wolf Hall” and two other novels based on the life of Thomas Cromwell.`\
-https://nytimes.com/2022/09/23/books/hilary-mantel-dead.html?searchResultPosition=7
+https://nytimes.com/2022/09/23/books/hilary-mantel-dead.html?searchResultPosition=8
 
 **A Shift in Crime**\
 `Murders are declining, but other crimes are still disrupting American life.`\
-https://nytimes.com/2022/09/23/briefing/crime-rates-murder-robberies-us.html?searchResultPosition=8
+https://nytimes.com/2022/09/23/briefing/crime-rates-murder-robberies-us.html?searchResultPosition=9
 
 **The Pastors Being Driven Out by Trumpism**\
 `Why some evangelical pastors in the U.S. are quitting in large numbers.`\
-https://nytimes.com/2022/09/23/podcasts/the-daily/evangelicals-trumpism.html?searchResultPosition=9
-
-**U.K. Government Goes Full Tilt on Tax Cuts and Free-Market Economics**\
-`The new administration’s plans are a break from the Boris Johnson era and represent a turn toward Thatcherism. The negative reaction from financial markets underscored the extent of the gamble.`\
-https://nytimes.com/2022/09/23/world/europe/uk-tax-cuts-economy.html?searchResultPosition=10
+https://nytimes.com/2022/09/23/podcasts/the-daily/evangelicals-trumpism.html?searchResultPosition=10
 
