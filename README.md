@@ -2,8 +2,8 @@
 `A map showing the storm’s path in the Caribbean.`\
 https://nytimes.com/interactive/2022/09/24/climate/tropical-storm-ian-hurricane-path-tracker.html?searchResultPosition=1
 
-**Louise Fletcher, Who Won an Oscar for ‘One Flew Over the Cuckoo’s Nest,’ Dies at 88**\
-`Ms. Fletcher was largely unknown when she was cast as Nurse Ratched, the head administrative nurse at an Oregon mental institution, in the 1975 film.`\
+**Louise Fletcher, 88, Dies; Oscar Winner for ‘One Flew Over the Cuckoo’s Nest’**\
+`She was largely unknown when she was cast as the head administrative nurse at an Oregon mental institution, in the 1975 film, which won multiple awards.`\
 https://nytimes.com/2022/09/24/obituaries/louise-fletcher-one-flew-over-the-cuckoos-nest-oscar-dies.html?searchResultPosition=2
 
 **For Dreadlocked N.F.L. Players, Hair Is a Point of Pride**\
