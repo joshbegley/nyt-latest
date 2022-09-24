@@ -1,40 +1,40 @@
-**Iran Protests Surge to Dozens of Cities**\
-`Iranians fed up with oppressive rules and a battered economy have faced bullets, tear gas and arrests to demand an end to the Islamic Republic’s rule.`\
-https://nytimes.com/2022/09/24/world/middleeast/iran-protests.html?searchResultPosition=1
+**For Suburban Texas Men, a Workout Craze With a Side of Faith**\
+`In Katy, outside Houston, many men have taken up F3, a no-frills fitness group where members push themselves physically but also bond emotionally.`\
+https://nytimes.com/2022/09/24/us/f3-workout-men-texas.html?searchResultPosition=1
 
-**Defying travel warnings, Hasidic Jewish pilgrims flock to Ukraine.**\
-`Tens of thousands of Hasidic Jews traditionally travel to Uman to mark Rosh Hashana with a visit to the burial site of a revered 18th-century rabbi.`\
-https://nytimes.com/2022/09/24/world/europe/jewish-pilgrims-rosh-hashana.html?searchResultPosition=2
+**How a Hospital Chain Used a Poor Neighborhood to Turn Huge Profits**\
+`Bon Secours Mercy Health, a major nonprofit health system, used the poverty of Richmond Community Hospital’s patients to tap into a lucrative federal drug program.`\
+https://nytimes.com/2022/09/24/health/how-a-hospital-chain-used-a-poor-neighborhood-to-turn-huge-profits.html?searchResultPosition=2
 
-**G.O.P. Senate Hopefuls Leave Campaign Trail for Beltway Money Circuit**\
-`Their fund-raising dwarfed by their Democratic rivals, Republican nominees including Blake Masters and Mehmet Oz have been in Washington gathering cash from lobbyists.`\
-https://nytimes.com/2022/09/24/us/politics/gop-senate-fundraising-money.html?searchResultPosition=3
+**Silicon Valley Slides Back Into ‘Bro’ Culture**\
+`Elon Musk, Mark Zuckerberg and Marc Andreessen show how the tech industry’s insular culture remains largely unchanged.`\
+https://nytimes.com/2022/09/24/technology/silicon-valley-slides-back-into-bro-culture.html?searchResultPosition=3
 
-**The Discount Data That Some Colleges Won’t Publish**\
-`Want to know how few students pay full price, or the odds of getting merit aid? The so-called Common Data Set can help, but some schools don’t post it.`\
-https://nytimes.com/2022/09/24/your-money/college-common-data-set-merit-aid.html?searchResultPosition=4
+**They Were Entitled to Free Care. Hospitals Hounded Them to Pay.**\
+`With the help of a consulting firm, the Providence hospital system trained staff to wring money out of patients, even those eligible for free care.`\
+https://nytimes.com/2022/09/24/business/nonprofit-hospitals-poor-patients.html?searchResultPosition=4
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/09/24/crosswords/spelling-bee-forum.html?searchResultPosition=5
+**Italian Voters Appear Ready to Turn a Page for Europe**\
+`With the hard-right candidate Giorgia Meloni ahead before Sunday’s election, Italy could get its first leader whose party traces its roots to the wreckage of Fascism.`\
+https://nytimes.com/2022/09/24/world/europe/italy-election-fascism-meloni.html?searchResultPosition=5
 
-**Word of the Day: phalanx**\
-`This word has appeared in 55 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/09/24/learning/word-of-the-day-phalanx.html?searchResultPosition=6
+**The School Shooting Is Fake. Can It Prepare an Officer for a Real One?**\
+`A $50 million facility in upstate New York is trying to teach officers the thing they’ll need most during the next mass shooting: bravery.`\
+https://nytimes.com/2022/09/24/nyregion/the-school-shooting-is-fake-can-it-prepare-an-officer-for-a-real-one.html?searchResultPosition=6
 
-**Map: Tracking Tropical Storm Ian**\
-`A map showing the storm’s path in the Caribbean.`\
-https://nytimes.com/interactive/2022/09/24/climate/tropical-storm-ian-hurricane-path-tracker.html?searchResultPosition=7
+**This Surveillance Artist Knows How You Got That Perfect Instagram Photo**\
+`A tech-savvy artist unearthed video footage of people working hard to capture the perfect shot for Instagram. It is a lesson in the artifice of social media and the ubiquity of surveillance.`\
+https://nytimes.com/2022/09/24/technology/surveillance-footage-instagram.html?searchResultPosition=7
 
-**Louise Fletcher, 88, Dies; Oscar Winner for ‘One Flew Over the Cuckoo’s Nest’**\
-`She was largely unknown when she was cast as the head administrative nurse at an Oregon mental institution, in the 1975 film, which won multiple awards.`\
-https://nytimes.com/2022/09/24/obituaries/louise-fletcher-one-flew-over-the-cuckoos-nest-oscar-dies.html?searchResultPosition=8
+**Millennials Want to Retire at 50. How to Afford It Is Another Matter.**\
+`Dreams of stopping work, or doing only fulfilling work, 15 years before their parents did are colliding with the realities of amassing enough money to do so.`\
+https://nytimes.com/2022/09/24/business/millennials-retirement.html?searchResultPosition=8
 
-**For Dreadlocked N.F.L. Players, Hair Is a Point of Pride**\
-`N.F.L. players who wear dreadlocks risk being tackled by their hair and face helmet-fitting challenges. But they say expressing their identities and showing off their style is worth it.`\
-https://nytimes.com/2022/09/24/sports/football/nfl-locs-braids-black-hair.html?searchResultPosition=9
+**Moving? Here’s How to Keep Your Costs Low.**\
+`In August, the average cost of a local move in the United States reached a record high of $454, up 12 percent from a year ago, according to one analysis.`\
+https://nytimes.com/2022/09/24/realestate/moving-costs.html?searchResultPosition=9
 
-**After Years Away, One of Basketball’s Greats Returns at 41**\
-`Lauren Jackson, a hero of Australian women’s basketball and a three-time W.N.B.A. most valuable player, has rejoined her national team after injuries knocked her out of the sport in 2014.`\
-https://nytimes.com/2022/09/24/sports/basketball/lauren-jackson-comeback.html?searchResultPosition=10
+**In Alaska, Slowing Down to Take Things In**\
+`There are fewer miners now, but nature enthusiasts visit the town of McCarthy to learn field sketching, a technique that’s equal parts art and science.`\
+https://nytimes.com/2022/09/24/travel/alaska-field-sketching.html?searchResultPosition=10
 
