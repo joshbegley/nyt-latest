@@ -6,13 +6,13 @@ https://nytimes.com/2022/09/24/opinion/house-republican-elections.html?searchRes
 `Part of the particular wonder of reading her is the knowledge that no one else has ever written like that before nor will again.`\
 https://nytimes.com/2022/09/24/opinion/hilary-mantel-dead.html?searchResultPosition=2
 
+**Since You’ve Been Gone: What’s Next for the Royal Corgis?**\
+`Considering the next steps for  short dogs`\
+https://nytimes.com/2022/09/24/opinion/corgi-dog-royal-family-queen.html?searchResultPosition=3
+
 **What Issue Is Most On Your Mind for the Midterm Elections?**\
 `We want to know what’s motivating your vote ahead of Election Day. `\
-https://nytimes.com/2022/09/24/opinion/what-issue-is-most-on-your-mind-for-the-midterm-elections.html?searchResultPosition=3
-
-**Since You’ve Been Gone: What’s Next for the Royal Corgis?**\
-`By Emily Flake`\
-https://nytimes.com/2022/09/24/opinion/since-youve-been-gone-whats-next-for-the-royal-corgis.html?searchResultPosition=4
+https://nytimes.com/2022/09/24/opinion/what-issue-is-most-on-your-mind-for-the-midterm-elections.html?searchResultPosition=4
 
 **Let’s Talk About the Economic Roots of White Supremacy**\
 `It’s not just about racism.`\
