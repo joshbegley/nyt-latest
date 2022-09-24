@@ -20,7 +20,7 @@ https://nytimes.com/2022/09/23/nyregion/psychiatric-hospital-brooklyn-homicide.h
 
 **Federer, Even in Defeat, Gets Fitting End to Storied Career**\
 `Roger Federer and Rafael Nadal were defeated by Jack Sock and Frances Tiafoe in a tight Laver Cup match that included plenty of highlights and fond sentiments.`\
-https://nytimes.com/2022/09/23/sports/tennis/roger-federer-drops-final-match-of-career-in-a-final-tiebreaker-partnered-with-rafael-nadal.html?searchResultPosition=6
+https://nytimes.com/2022/09/23/sports/tennis/roger-federer-nadal-final-match.html?searchResultPosition=6
 
 **As Cable News Focused on Queen, Democratic Political Donations Slipped**\
 `With less coverage of politics, the usual September rush of donations slowed. “It feels almost like we have to start over,” a Democratic fund-raiser said.`\
