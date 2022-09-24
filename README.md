@@ -1,4 +1,4 @@
-**In Ukraine’s South, Fierce Fightingand Deadly Costs**\
+**In Ukraine’s South, Fierce Fighting and Deadly Costs**\
 `The offensive in the south was the most highly anticipated military action of the summer. Ukraine is making gains, but the fighting is grinding, grueling and steep in casualties.`\
 https://nytimes.com/2022/09/24/world/europe/ukraine-south-kherson-russia.html?searchResultPosition=1
 
