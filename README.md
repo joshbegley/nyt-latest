@@ -14,8 +14,8 @@ https://nytimes.com/2022/09/23/us/politics/tudor-dixon-gretchen-whitmer-kidnappi
 `The police said Shakim Devega, a patient at the Brooklyn facility, died from neck trauma, but no official cause has been determined. No charges were filed.`\
 https://nytimes.com/2022/09/23/nyregion/psychiatric-hospital-brooklyn-homicide.html?searchResultPosition=4
 
-**Federer Ends Career with Loss in Laver Cup, Paired With Nadal**\
-`Roger Federer and Rafael Nadal were defeated by Jack Sock and Frances Tiafoe in a tight match that included plenty of highlights and fond sentiments.`\
+**Federer, Even in Defeat, Gets Fitting End to Storied Career**\
+`Roger Federer and Rafael Nadal were defeated by Jack Sock and Frances Tiafoe in a tight Laver Cup match that included plenty of highlights and fond sentiments.`\
 https://nytimes.com/2022/09/23/sports/tennis/roger-federer-drops-final-match-of-career-in-a-final-tiebreaker-partnered-with-rafael-nadal.html?searchResultPosition=5
 
 **As Cable News Focused on Queen, Democratic Political Donations Slipped**\
