@@ -10,13 +10,13 @@ https://nytimes.com/2022/09/24/world/canada/a-year-when-everything-is-going-righ
 `Fitness apps and the power of live satellite tracking have allowed runners, cyclists and others to draw hearts, animals, birthday wishes — and even homages to Vermeer — across their local landscapes.`\
 https://nytimes.com/2022/09/24/technology/gps-art-strava-running.html?searchResultPosition=3
 
-**For Suburban Texas Men, a Workout Craze With a Side of Faith**\
-`In Katy, outside Houston, many men have taken up F3, a no-frills fitness group where members push themselves physically but also bond emotionally.`\
-https://nytimes.com/2022/09/24/us/f3-workout-men-texas.html?searchResultPosition=4
-
 **How a Hospital Chain Used a Poor Neighborhood to Turn Huge Profits**\
 `Bon Secours Mercy Health, a major nonprofit health system, used the poverty of Richmond Community Hospital’s patients to tap into a lucrative federal drug program.`\
-https://nytimes.com/2022/09/24/health/how-a-hospital-chain-used-a-poor-neighborhood-to-turn-huge-profits.html?searchResultPosition=5
+https://nytimes.com/2022/09/24/health/bon-secours-mercy-health-profit-poor-neighborhood.html?searchResultPosition=4
+
+**For Suburban Texas Men, a Workout Craze With a Side of Faith**\
+`In Katy, outside Houston, many men have taken up F3, a no-frills fitness group where members push themselves physically but also bond emotionally.`\
+https://nytimes.com/2022/09/24/us/f3-workout-men-texas.html?searchResultPosition=5
 
 **Silicon Valley Slides Back Into ‘Bro’ Culture**\
 `Elon Musk, Mark Zuckerberg and Marc Andreessen show how the tech industry’s insular culture remains largely unchanged.`\
@@ -32,7 +32,7 @@ https://nytimes.com/2022/09/24/world/europe/italy-election-fascism-meloni.html?s
 
 **The School Shooting Is Fake. Can It Prepare an Officer for a Real One?**\
 `A $50 million facility in upstate New York is trying to teach officers the thing they’ll need most during the next mass shooting: bravery.`\
-https://nytimes.com/2022/09/24/nyregion/the-school-shooting-is-fake-can-it-prepare-an-officer-for-a-real-one.html?searchResultPosition=9
+https://nytimes.com/2022/09/24/nyregion/gunman-shooter-training-schools.html?searchResultPosition=9
 
 **This Surveillance Artist Knows How You Got That Perfect Instagram Photo**\
 `A tech-savvy artist unearthed video footage of people working hard to capture the perfect shot for Instagram. It is a lesson in the artifice of social media and the ubiquity of surveillance.`\
