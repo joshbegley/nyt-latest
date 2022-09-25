@@ -34,7 +34,7 @@ https://nytimes.com/2022/09/25/opinion/david-french-religious-freedom.html?searc
 `A tofu and cabbage stir-fry, fish tacos and more recipes.`\
 https://nytimes.com/2022/09/25/dining/what-to-cook-this-week.html?searchResultPosition=9
 
-**Germany’s Chancellor Has ‘a Lot’ for Ukraine. But No Battle Tanks.**\
-`Military assistance to Kyiv has become something of a litmus test of Olaf Scholz’s ability to lead Europe through its most significant security crisis since World War II.`\
-https://nytimes.com/2022/09/25/world/europe/olaf-scholz-germany-ukraine-war.html?searchResultPosition=10
+**Ukraine warns of growing attacks by drones Iran has supplied to Russia.**\
+`As Moscow finds itself isolated internationally, and as its arsenal has been depleted during its monthslong campaign in Ukraine, it has turned for military support to countries including Iran.`\
+https://nytimes.com/2022/09/25/world/europe/ukraine-drones-iran-russia.html?searchResultPosition=10
 
