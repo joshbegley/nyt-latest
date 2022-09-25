@@ -6,7 +6,7 @@ https://nytimes.com/2022/09/25/world/europe/olaf-scholz-germany-ukraine-war.html
 `The DART mission has been flying to its target since launching last year. On Monday night, it will connect.`\
 https://nytimes.com/2022/09/25/science/nasa-dart-asteroid.html?searchResultPosition=2
 
-**A Show With a Cryptic Cryptic Title but No Code to Crack**\
+**A Show With a Cryptic Title but No Code to Crack**\
 `“300 el x 50 el x 30 el,” the Belgian troupe FC Bergman’s ambitious theatrical installation, will open BAM’s Next Wave festival with an elaborate set that recreates a rural settlement onstage.`\
 https://nytimes.com/2022/09/25/theater/fc-bergman-bam-next-wave.html?searchResultPosition=3
 
