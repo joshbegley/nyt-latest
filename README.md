@@ -18,13 +18,13 @@ https://nytimes.com/2022/09/25/business/federal-reserve-economy.html?searchResul
 `Kipchoge ran the Berlin Marathon in a time of 2:01:10. He has no equal in the distance.`\
 https://nytimes.com/2022/09/25/sports/eliud-kipchoge-marathon-record.html?searchResultPosition=5
 
-**The Sunday Read: ‘The Quest by Circadian Medicine to Make the Most of Our Body Clocks’**\
-`Researchers are trying to figure out the right hour of the day to do everything. Can their studies sync us up with better health?`\
-https://nytimes.com/2022/09/25/podcasts/the-daily/body-clocks-circadian-medicine.html?searchResultPosition=6
-
 **Do Not Bring Your ‘Whole Self’ to Work**\
 `Beware the latest fad from Human Resources.`\
-https://nytimes.com/2022/09/25/opinion/business-economics/work-office-whole-self.html?searchResultPosition=7
+https://nytimes.com/2022/09/25/opinion/business-economics/work-office-whole-self.html?searchResultPosition=6
+
+**The Sunday Read: ‘The Quest by Circadian Medicine to Make the Most of Our Body Clocks’**\
+`Researchers are trying to figure out the right hour of the day to do everything. Can their studies sync us up with better health?`\
+https://nytimes.com/2022/09/25/podcasts/the-daily/body-clocks-circadian-medicine.html?searchResultPosition=7
 
 **Playing Twinsies at Gucci**\
 `Plus gremlins, goddesses, Paris Hilton at Versace and a triumph at Bottega Veneta. Things are getting funky in Italy.`\
