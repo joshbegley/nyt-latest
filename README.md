@@ -3,7 +3,7 @@
 https://nytimes.com/video/world/europe/100000008551511/us-veterans-russia.html?searchResultPosition=1
 
 **Rihanna to Perform at Super Bowl Halftime**\
-`The singer’s highly anticipated return to the stage will mark the first halftime show under the N.F.L.’s new sponsorship deal with Apple Music.`\
+`The singer’s highly anticipated return to the stage will include the first halftime show under the N.F.L.’s new sponsorship deal with Apple Music.`\
 https://nytimes.com/2022/09/25/sports/football/rihanna-super-bowl-halftime.html?searchResultPosition=2
 
 **Fall for Dance Review: Some Tap, a Pas de Deux and a Monastic Chorus**\
