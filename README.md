@@ -1,40 +1,40 @@
-**Whatever Happened to the Starter Home?**\
-`The economics of the housing market, and the local rules that shape it, have squeezed out entry-level homes.`\
-https://nytimes.com/2022/09/25/upshot/starter-home-prices.html?searchResultPosition=1
+**Plenty of Glitz**\
+`Top looks from the Kering Foundation dinner, the Creative Capital benefit and comedy night with the Natural Resources Defense Council.`\
+https://nytimes.com/2022/09/25/style/kering-foundation-dinner-looks.html?searchResultPosition=1
 
-**Ghosts of New York’s Glamorous Past Haunt an Empty Pub**\
-`A bar from the Stork Club, once a gathering spot for Grace Kelly, Ernest Hemingway, Elizabeth Taylor and Marilyn Monroe, collects dust in a downtown tavern that went out of business.`\
-https://nytimes.com/2022/09/25/style/stork-club-closed.html?searchResultPosition=2
+**Deadlier Than the Titanic: A Ferry Set Out With About 1,900 Aboard. Only 64 Survived.**\
+`Tourists, vendors, babies, hundreds of university students and a soccer team from Senegal perished in a little-known ferry disaster 20 years ago. Survivors and families of victims still want justice.`\
+https://nytimes.com/2022/09/25/world/africa/senegal-ferry-joola.html?searchResultPosition=2
 
-**Sundance Liked Her Documentary on Terrorism, Until Muslim Critics Didn’t**\
-`The film festival gave Meg Smaker’s “Jihad Rehab” a coveted spot in its 2022 lineup, but apologized after an outcry over her race and her approach.`\
-https://nytimes.com/2022/09/25/us/sundance-jihad-rehab-meg-smaker.html?searchResultPosition=3
+**Exploring ‘The Land of Morning Calm’**\
+`A traveler gets beyond Seoul’s sprawl to explore tranquil thatched mountain hamlets, peaceful Buddhist temples and unhurried ‘slow food’ towns in rural South Korea.`\
+https://nytimes.com/2022/09/25/travel/korea-land-of-morning-calm.html?searchResultPosition=3
 
-**Notebook, Food and a Bear Canister: A Reporter Hits the Trail**\
-`To understand the changing challenge of hiking the Pacific Crest Trail, a reporter spent three days intercepting people walking from Southern California to the Northern Cascades.`\
-https://nytimes.com/2022/09/25/insider/pacific-crest-trail-reporting.html?searchResultPosition=4
+**An Anti-Muslim Symbol From India Is Paraded on Main Street, New Jersey**\
+`The bulldozer has become a symbol of oppression in India. Its appearance in a New Jersey parade has exposed fault lines between the region’s Hindu and Muslim communities.`\
+https://nytimes.com/2022/09/25/nyregion/bulldozer-indian-parade-new-jersey.html?searchResultPosition=4
 
-**‘Suddenly, a Sanitation Worker Jumped Out of the Truck’s Cab’**\
-`Finding relief on a hot day, taking the long way to the airport and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2022/09/25/nyregion/metropolitan-diary.html?searchResultPosition=5
+**Sidewalk Surfing With My Disabled Parents**\
+`Both skateboarding and navigating daily life with a disability involve surprisingly similar ways of engaging with the built environment.`\
+https://nytimes.com/2022/09/25/opinion/skateboarding-disability-hacks.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/09/25/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**Kyoto Wants You Back, but It Has Some Polite Suggestions**\
+`The city, one of Japan’s most-visited before the pandemic, desperately needs tourism’s money, but it would like to avoid the excesses of Instagram-driven itineraries.`\
+https://nytimes.com/2022/09/25/travel/kyoto-japan-tourism.html?searchResultPosition=6
 
-**Super Typhoon Noru Heads for Philippines After ‘Explosive’ Surge**\
-`Forecasters warned of heavy rains and winds that could bring flooding and landslides to densely populated areas of the country.`\
-https://nytimes.com/2022/09/25/world/asia/typhoon-noru-philippines.html?searchResultPosition=7
+**On the Edge of Delhi, a Dynamic Cultural Scene Takes Shape**\
+`Beneath an ancient tower, contemporary galleries, studios, bars and clubs are popping up in three neighborhoods, drawing art lovers, fashionistas and nightlife seekers.`\
+https://nytimes.com/2022/09/25/travel/delhi-neighborhoods-art-bars.html?searchResultPosition=7
 
-**Corrections: Sept. 25, 2022**\
-`Corrections that appeared in print on Sunday, Sept. 25, 2022.`\
-https://nytimes.com/2022/09/25/pageoneplus/corrections-sept-25-2022.html?searchResultPosition=8
+**A Bed-Stuy Mansion Has Become Rubble. Residents Ask: How, and Why?**\
+`Despite pleas, protests and petitions, a developer tore down the 120-year-old Jacob Dangler House. Residents are still reflecting on what happened.`\
+https://nytimes.com/2022/09/25/realestate/brooklyn-bed-stuy-dangler-mansion.html?searchResultPosition=8
 
-**Quotation of the Web: With No. 700, Pujols Wins His Race Against the End**\
-`Quotation of the Day for Sunday, September 25, 2022.`\
-https://nytimes.com/2022/09/25/todayspaper/quotation-of-the-web-with-no-700-pujols-wins-his-race-against-the-end.html?searchResultPosition=9
+**Homes That Sold for Around $1.5 Million**\
+`Recent residential sales in New York City and the region.`\
+https://nytimes.com/2022/09/25/realestate/homes-that-sold-for-around-1-5-million.html?searchResultPosition=9
 
-**The New India: Expanding Influence Abroad, Straining Democracy at Home**\
-`As India rises, Prime Minister Narendra Modi has faced little pushback as he weaponizes institutions to consolidate power and entrench his Hindu nationalist vision.`\
-https://nytimes.com/2022/09/24/world/asia/india-democracy.html?searchResultPosition=10
+**On the Thai Island of Koh Tao, Can Tourism and the Environment Coexist?**\
+`Travel to Southeast Asia is picking up again, and an island known for snorkeling and diving, part of a popular circuit, wants tourists back. But can development and nature stay in balance?`\
+https://nytimes.com/2022/09/25/travel/thailand-koh-tao.html?searchResultPosition=10
 
