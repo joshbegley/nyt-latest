@@ -34,7 +34,7 @@ https://nytimes.com/2022/09/25/arts/dance/fall-for-dance-review.html?searchResul
 `In online exchanges with Ukraines first lady, the Pink Floyd co-founder said Ukraine should seek peace with Russia and blamed the United States for encouraging the conflict.`\
 https://nytimes.com/2022/09/25/world/europe/roger-waters-poland-concert-ukraine.html?searchResultPosition=9
 
-**Beto O’Rourke Condemns Dehumanizing Stunts**\
-`In an interview, he told me about how he views his campaign to unseat Greg Abbott, the Republican governor of Texas.`\
+**Beto O’Rourke on Abbott’s Dehumanizing Stunts and Why He Hopes an Upset Looms in Texas**\
+`In an interview, he told me about how he views his campaign to unseat the Republican governor of Texas.`\
 https://nytimes.com/2022/09/25/opinion/beto-orourke-governors-race.html?searchResultPosition=10
 
