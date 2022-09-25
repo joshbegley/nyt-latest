@@ -15,7 +15,7 @@ https://nytimes.com/2022/09/25/briefing/the-morning-the-back-story-of-the-migran
 https://nytimes.com/2022/09/25/business/federal-reserve-economy.html?searchResultPosition=4
 
 **Eliud Kipchoge Smashes His Own Marathon World Record**\
-`Kipchoge ran the Berlin Marathon in a time of 2:01:10. He has no equal in the distance.`\
+`Kipchoge ran the Berlin Marathon in a time of 2:01:09. Tigist Assefa shocked the women’s field by running her second marathon in 2:15:38, a course record.`\
 https://nytimes.com/2022/09/25/sports/eliud-kipchoge-marathon-record.html?searchResultPosition=5
 
 **Do Not Bring Your ‘Whole Self’ to Work**\
