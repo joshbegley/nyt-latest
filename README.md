@@ -2,7 +2,7 @@
 `Officer Shaun Lucas, who is white, shot 31-year-old Jonathan Price four times. After the encounter, he was fired.`\
 https://nytimes.com/2022/09/25/us/jonathan-price-murder-officer-acquitted-texas.html?searchResultPosition=1
 
-**What We Learned from Week 3 in the N.F.L.**\
+**What We Learned From Week 3 in the N.F.L.**\
 `Some upsets — the Dolphins over the Bills, the Colts over Kansas City — are more upsetting than others (the Saints and Raiders are in real trouble.)`\
 https://nytimes.com/2022/09/25/sports/football/nfl-week-3-takeaways.html?searchResultPosition=2
 
