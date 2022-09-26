@@ -11,7 +11,7 @@ https://nytimes.com/2022/09/26/world/asia/thai-cave-rescue-tourism.html?searchRe
 https://nytimes.com/2022/09/26/world/europe/meloni-italy-russia-ukraine.html?searchResultPosition=3
 
 **TikTok May Face $29 Million Fine for Failing to Protect Children’s Privacy**\
-`British regulars have sent a warning notice to the company, the first major case under new rules in Britain that protect minors online.`\
+`British regulators have sent a warning notice to the company, the first major case under new rules in Britain that protect minors online.`\
 https://nytimes.com/2022/09/26/technology/tiktok-children-privacy-fine-uk.html?searchResultPosition=4
 
 **A Guide to the 7 Propositions on California’s November Ballot**\
