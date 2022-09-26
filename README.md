@@ -11,7 +11,7 @@ https://nytimes.com/2022/09/25/us/train-colorado-police-footage.html?searchResul
 https://nytimes.com/2022/09/25/us/jonathan-price-murder-officer-acquitted-texas.html?searchResultPosition=3
 
 **What We Learned From Week 3 in the N.F.L.**\
-`Some upsets — the Dolphins over the Bills, the Colts over Kansas City — are more upsetting than others (the Saints and Raiders are in real trouble.)`\
+`In a battle of headliner quarterbacks, Tom Brady vs. Aaron Rodgers needed more co-stars; Trevor Lawrence and the Jaguars look legit; and the Bills could’ve used some help with the Dolphins’ receivers.`\
 https://nytimes.com/2022/09/25/sports/football/nfl-week-3-takeaways.html?searchResultPosition=4
 
 **I Must Be Dreaming!**\
