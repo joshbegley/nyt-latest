@@ -1,6 +1,6 @@
 **Burberry, Finally, Puts on Its London Show**\
 `The latest runway show, delayed by the death of Queen Elizabeth II, was inspired by the British seaside. It had a decidedly muted air.`\
-https://nytimes.com/2022/09/26/style/burberry-finally-puts-on-its-london-show.html?searchResultPosition=1
+https://nytimes.com/2022/09/26/style/burberry-london-fashion-week.html?searchResultPosition=1
 
 **Canada Is Removing Strict Covid-19 Restrictions for Travelers**\
 `After two and a half years, Canada is dropping its remaining restrictions, including testing and quarantine requirements, effective Oct. 1.`\
