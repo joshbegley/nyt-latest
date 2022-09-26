@@ -28,7 +28,7 @@ https://nytimes.com/paidpost/ptt-global-chemical/ptt-global-chemical/achieving-n
 
 **Iran Strikes at Kurdish Separatist Groups in Northern Iraq**\
 `The death of a young Iranian Kurdish woman in police custody has set off an intense wave of protests over the past 10 days and ignited a fury in the country’s Kurdish minority community.`\
-https://nytimes.com/2022/09/26/world/middleeast/iran-iraq-kurdistan-separatists.html?searchResultPosition=8
+https://nytimes.com/2022/09/26/world/middleeast/iran-iraq-protests-kurdistan-separatists.html?searchResultPosition=8
 
 **Key Takeaways From Italy’s Landmark Election**\
 `Giorgia Meloni, leader of the hard-right Brothers of Italy, looked set to become prime minister after her party garnered more votes than any other.`\
