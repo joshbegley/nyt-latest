@@ -4,7 +4,7 @@ https://nytimes.com/2022/09/26/sports/baseball/aaron-judge-yankees-homestand.htm
 
 **Interpol Issues ‘Red Notice’ for South Korean Crypto Founder Do Kwon**\
 `Prosecutors in Seoul issued an arrest warrant last week for Mr. Kwon on charges of violating South Korea’s financial laws. His cryptocurrencies, Luna and TerraUSD, crashed in May.`\
-https://nytimes.com/2022/09/26/business/interpol-cryptocurrency-do-kwon.html?searchResultPosition=2
+https://nytimes.com/2022/09/26/business/interpol-do-kwon-korea-crypto.html?searchResultPosition=2
 
 **In Malibu, an Inflatable Bungalow for Robert Downey Jr.**\
 `The actor’s thin-shell home is at once an aerodynamic oddity and, perhaps, a harbinger of environmentally conscious architecture.`\
