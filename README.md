@@ -2,7 +2,7 @@
 `Notable pop culture figures, including the actor LeVar Burton and the K-pop phenomenon BTS, helped people get through Covid — from a distance.`\
 https://nytimes.com/2022/09/26/us/pandemic-inspiration-bts-levar-burton.html?searchResultPosition=1
 
-**Accomplished U.S. Mountaineer Is Missing as Avalanche Wreaks Havoc on Nepali Peak**\
+**Noted U.S. Mountaineer Is Missing as Avalanche Wreaks Havoc on Nepali Peak**\
 `Hillaree Nelson, 49, appears to have fallen into a crevasse on Manaslu while attempting to ski from the summit. Separately, an avalanche killed at least one and left many injured.`\
 https://nytimes.com/2022/09/26/world/asia/mountaineer-nepal-avalanche-manaslu.html?searchResultPosition=2
 
