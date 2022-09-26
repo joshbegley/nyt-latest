@@ -30,8 +30,8 @@ https://nytimes.com/2022/09/26/todayspaper/quotation-of-the-day-new-york-drug-ar
 `There are some surprising reasons why millions fewer U.S. children are growing up poor today compared with 30 years ago.`\
 https://nytimes.com/2022/09/26/podcasts/the-daily/us-child-poverty-decline.html?searchResultPosition=8
 
-**At Least 9 Killed in School Shooting in Russia, Including Children**\
-`An unidentified gunman entered a school in the city of Izhevsk, killing two security guards, two teachers and at least five minors, according to federal investigators.`\
+**At Least 13 Killed in School Shooting in Russia, Including Children**\
+`An unidentified gunman entered a school in the city of Izhevsk, killing six adults and seven children, according to federal investigators.`\
 https://nytimes.com/2022/09/26/world/europe/russia-school-shooting.html?searchResultPosition=9
 
 **China Lets Its Currency Weaken Past a Psychological Barrier**\
