@@ -1,4 +1,4 @@
-**TikTok May Face $29 Million Fine For Failing to Protect Children’s Privacy**\
+**TikTok May Face $29 Million Fine for Failing to Protect Children’s Privacy**\
 `British regulars have sent a warning notice to the company, the first major case under new rules in Britain that protect minors online.`\
 https://nytimes.com/2022/09/26/technology/tiktok-children-privacy-fine-uk.html?searchResultPosition=1
 
