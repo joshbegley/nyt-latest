@@ -4,7 +4,7 @@ https://nytimes.com/2022/09/26/movies/academy-museum-attendance.html?searchResul
 
 **Are Your Patients Worried About the Polio Vaccine?**\
 `We want to hear from you.`\
-https://nytimes.com/2022/09/26/technology/are-your-patients-worried-about-the-polio-vaccine.html?searchResultPosition=2
+https://nytimes.com/2022/09/26/technology/polio-vaccine-callout.html?searchResultPosition=2
 
 **Republicans Intensify Attacks on Crime as Democrats Push Back**\
 `With images of lawlessness, G.O.P. candidates are pressing the issue in places where worries about public safety are omnipresent. Democrats, on the defensive, are promising to fund the police.`\
