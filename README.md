@@ -2,7 +2,7 @@
 `The Academy Museum of Motion Pictures attracted about 20 percent more people than it expected since opening in September 2021. Now it needs to keep the momentum going.`\
 https://nytimes.com/2022/09/26/movies/academy-museum-attendance.html?searchResultPosition=1
 
-**Are your patients worried about the polio vaccine?**\
+**Are Your Patients Worried About the Polio Vaccine?**\
 `We want to hear from you.`\
 https://nytimes.com/2022/09/26/technology/are-your-patients-worried-about-the-polio-vaccine.html?searchResultPosition=2
 
