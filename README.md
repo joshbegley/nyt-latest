@@ -3,7 +3,7 @@
 https://nytimes.com/2022/09/26/us/pandemic-inspiration-bts-levar-burton.html?searchResultPosition=1
 
 **Noted U.S. Mountaineer Is Missing as Avalanche Wreaks Havoc on Nepali Peak**\
-`Hillaree Nelson, 49, appears to have fallen into a crevasse on Manaslu while attempting to ski from the summit. Separately, an avalanche killed at least one and left many injured.`\
+`Hilaree Nelson, 49, appears to have fallen into a crevasse on Manaslu while attempting to ski from the summit. Separately, an avalanche killed at least one and left many injured.`\
 https://nytimes.com/2022/09/26/world/asia/mountaineer-nepal-avalanche-manaslu.html?searchResultPosition=2
 
 **For the Saxophonist Zoh Amba, Free Jazz Is Gospel**\
