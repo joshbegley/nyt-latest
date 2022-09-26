@@ -1,5 +1,5 @@
 **A ‘Nightmare’ for Forecasters: Here’s Why Hurricanes Are Getting Stronger, Faster**\
-`Storms that intensify quickly and unpredictably present a big problem for public safety officials, who have less time assess threats.`\
+`Storms that intensify quickly and unpredictably present a big problem for public safety officials, who have less time to assess threats.`\
 https://nytimes.com/2022/09/26/climate/hurricane-ian-rapid-intensification.html?searchResultPosition=1
 
 **This Subway Sandwich Is Sanctioned by the M.T.A.**\
