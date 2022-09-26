@@ -8,11 +8,11 @@ https://nytimes.com/2022/09/26/dining/this-subway-sandwich-is-sanctioned-by-the-
 
 **How New Mexico’s Largest Wildfire Set Off a Drinking Water Crisis**\
 `In a community ravaged by fire, floods and contaminated drinking water, residents wonder, ‘What’s next?’ And who will pick up the bill?`\
-https://nytimes.com/2022/09/26/us/new-mexico-las-vegas-wildfire-water.html?searchResultPosition=3
+https://nytimes.com/2022/09/26/us/new-mexico-las-vegas-fire-water.html?searchResultPosition=3
 
 **Six-Figure Artworks, by a Fifth Grader**\
 `Andres Valencia’s paintings have sold for more than $125,000. And he’s 10 years old.`\
-https://nytimes.com/2022/09/26/style/six-figure-artworks-by-a-fifth-grader.html?searchResultPosition=4
+https://nytimes.com/2022/09/26/style/andres-valencia-art-paintings.html?searchResultPosition=4
 
 **A Work of Mourning Comes to New York, With No Rothkos in Sight**\
 `Tyshawn Sorey’s “Monochromatic Light (Afterlife),” written for the Rothko Chapel in Houston, becomes longer and grander for the Park Avenue Armory.`\
