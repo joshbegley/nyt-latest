@@ -30,11 +30,11 @@ https://nytimes.com/2022/09/27/arts/music/mahler-resurrection-symphony-manuscrip
 `Casa Cruz, a London celebrity hangout, opens on the Upper East Side.`\
 https://nytimes.com/2022/09/27/style/casa-cruz-private-social-club-new-york.html?searchResultPosition=8
 
+**Nine days after Hurricane Fiona, many in Puerto Rico are still without power.**\
+`Nearly 500,000 customers in Puerto Rico were without electricity.`\
+https://nytimes.com/2022/09/27/us/hurricane-fiona-puerto-rico-blackouts.html?searchResultPosition=9
+
 **Meta Removes Chinese Effort to Influence U.S. Elections**\
 `The parent of Facebook and Instagram said that it had taken down what was the first targeted Chinese campaign to interfere in U.S. politics and that the effort was limited.`\
-https://nytimes.com/2022/09/27/technology/meta-chinese-influence-us-elections.html?searchResultPosition=9
-
-**The British Pound Is on Parity Watch**\
-`Global markets rebounded on Tuesday, but traders continue to worry about Britain’s risky pro-growth fiscal policies.`\
-https://nytimes.com/2022/09/27/business/dealbook/british-pound-parity-markets-dollar.html?searchResultPosition=10
+https://nytimes.com/2022/09/27/technology/meta-chinese-influence-us-elections.html?searchResultPosition=10
 
