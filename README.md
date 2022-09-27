@@ -8,7 +8,7 @@ https://nytimes.com/2022/09/27/business/banks-fined-texting-sec.html?searchResul
 
 **Pipeline Breaks Look Deliberate, Europeans Say, Exposing Vulnerability**\
 `The leaks in the Nord Stream under the Baltic Sea heightened fears of shortages because of the clash with Russia, and showed how vital infrastructure could be at risk.`\
-https://nytimes.com/2022/09/27/world/europe/pipeline-leak-russia-nordstream.html?searchResultPosition=3
+https://nytimes.com/2022/09/27/world/europe/pipeline-leak-russia-nord-stream.html?searchResultPosition=3
 
 **Your Tuesday Evening Briefing**\
 `Here’s what you need to know at the end of the day.`\
