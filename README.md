@@ -32,7 +32,7 @@ https://nytimes.com/2022/09/27/technology/dating-apps-china.html?searchResultPos
 
 **The Second Amendment Gives No Comfort to Insurrectionists**\
 `It is essential to reject the myth that frustrated citizens have a right to raise arms against the government. `\
-https://nytimes.com/2022/09/27/opinion/the-second-amendment-gives-no-comfort-to-insurrectionists.html?searchResultPosition=9
+https://nytimes.com/2022/09/27/opinion/us-second-amendment.html?searchResultPosition=9
 
 **Jails Boss Pushed for Dying Man’s Release to Limit Rikers Death Count**\
 `Louis A. Molina, New York City’s jail commissioner, told his senior staff to ensure that a dying man was “off the Department’s count.”`\
