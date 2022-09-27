@@ -6,7 +6,7 @@ https://nytimes.com/video/world/europe/100000008554957/zelensky-russia-referendu
 `Plus a typhoon heads toward Vietnam and a thwarted Chinese attempt to influence U.S. elections.`\
 https://nytimes.com/2022/09/27/briefing/russia-pipeline-typhoon-noru.html?searchResultPosition=2
 
-**Biden Says Social Security Is on the ‘Chopping Block’ if Republicans Win Congress**\
+**Biden Says Social Security Is on ‘Chopping Block’ if Republicans Win Congress**\
 `The fate of America’s social safety net programs has re-emerged as a campaign issue ahead of November’s midterm elections.`\
 https://nytimes.com/2022/09/27/us/politics/biden-social-security-republicans.html?searchResultPosition=3
 
