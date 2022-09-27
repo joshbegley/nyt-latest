@@ -4,7 +4,7 @@ https://nytimes.com/2022/09/27/well/live/covid-vaccine-periods-delay.html?search
 
 **Federer on His Exit and Holding Nadal’s Hand: ‘It’s Maybe a Secret Thank You’**\
 `In an interview, Roger Federer opens up about the emotions of his goodbye at the Laver Cup and about the future of men’s tennis. “Nobody needs to play like me, by the way,” he said.`\
-https://nytimes.com/2022/09/27/sports/tennis/federer-on-his-exit-and-holding-nadals-hand-its-maybe-a-secret-thank-you.html?searchResultPosition=2
+https://nytimes.com/2022/09/27/sports/tennis/roger-federer-retired.html?searchResultPosition=2
 
 **Mastriano Said in 2019 That His Bill Would Treat Abortions as Murder**\
 `As a Pennsylvania senator, Doug Mastriano, now running for governor, pushed a bill to limit abortion. He indicated that women violating it should be treated as murderers.`\
