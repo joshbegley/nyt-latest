@@ -7,7 +7,7 @@ https://nytimes.com/2022/09/27/arts/television/netflix-expiring-october.html?sea
 https://nytimes.com/paidpost/accenture/built-for-change/how-to-build-a-responsible-metaverse.html?searchResultPosition=2
 
 **Sports teams adjust their schedules, but the Buccaneers say Sunday’s home game is still on.**\
-`By Jesus Jiménez`\
+`College football teams as far north as South Carolina are moving up kickoff times to try to beat the storm.`\
 https://nytimes.com/2022/09/27/us/sports-teams-adjust-their-schedules-but-the-buccaneers-say-sundays-home-game-is-still-on.html?searchResultPosition=3
 
 **‘Sesame Street: The Musical’ Review: Everything’s A-OK**\
