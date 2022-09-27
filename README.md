@@ -1,4 +1,4 @@
-**Restaurant Review: Laser Wolf Is Serving Grilled Meats and Endless Dips**\
+**Restaurant Review: Laser Wolf Is Serving Skewers, Dips and Sunset Vibes**\
 `At Michael Solomonov’s homage to Israel’s meat-skewer joints, skyline selfies are normal and salad is mandatory.`\
 https://nytimes.com/2022/09/27/dining/restaurant-review-laser-wolf-brooklyn.html?searchResultPosition=1
 
