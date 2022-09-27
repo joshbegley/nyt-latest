@@ -30,8 +30,8 @@ https://nytimes.com/2022/09/26/us/politics/biden-iran-protesters.html?searchResu
 `The authorities urged residents to begin evacuating some low-lying areas of the Gulf Coast. A troubling combination of dangerous storm surges, flooding and powerful winds is predicted for the coming days.`\
 https://nytimes.com/2022/09/26/us/florida-ian-hurricane.html?searchResultPosition=8
 
-**NASA Collides With an Asteroid, Completing a Mission to Save a Future Day**\
-`The DART mission completed its journey of some 10 months to crash into a small asteroid that poses no threat to our world.`\
+**NASA Smashes Into an Asteroid, Completing a Mission to Save a Future Day**\
+`The DART mission completed its 10month journey to smash into a small asteroid that poses no threat to our world.`\
 https://nytimes.com/2022/09/26/science/dart-nasa-asteroid-dimorphos-contact.html?searchResultPosition=9
 
 **Trump’s Heartless QAnon Embrace**\
