@@ -11,8 +11,8 @@ https://nytimes.com/2022/09/27/podcasts/transcript-ezra-klein-interviews-patrick
 https://nytimes.com/2022/09/27/us/hurricane-ian-cuba.html?searchResultPosition=3
 
 **Opposition Leader Tries to Seize the Moment as Britain’s Financial Woes Mount**\
-`Under the governing Conservatives, the markets are down and the pound is under pressure. On Thursday, Kir Starmer, the Labour leader, staked his claim as the guardian of sound fiscal policy.`\
-https://nytimes.com/2022/09/27/world/europe/uk-labour-keir-starmer-truss-pound.html?searchResultPosition=4
+`Under the governing Conservatives, the markets are down and the pound is under pressure. On Thursday, Keir Starmer, the Labour leader, staked his claim as the guardian of sound fiscal policy.`\
+https://nytimes.com/2022/09/27/world/europe/uk-keir-starmer-liz-truss-pound-economy.html?searchResultPosition=4
 
 **A Study of Friendship Where the Past Really Is Another Country**\
 `Kamila Shamsie’s new novel, “Best of Friends,” follows its title characters from their Pakistani girlhoods to their adult lives in London.`\
