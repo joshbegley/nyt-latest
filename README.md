@@ -1,6 +1,6 @@
 **C.E.O. of Celsius, the Crypto Bank, Resigns**\
 `Alex Mashinsky, the founder of Celsius, which filed for bankruptcy in July, said his role had “become an increasing distraction.”`\
-https://nytimes.com/2022/09/27/technology/ceo-of-celsius-the-crypto-bank-resigns.html?searchResultPosition=1
+https://nytimes.com/2022/09/27/technology/celsius-ceo-alex-mashinsky-resigns.html?searchResultPosition=1
 
 **The Justice Dept.’s ‘60-Day Rule’**\
 `Because the “rule” is not established in writing, its meaning is not defined.`\
