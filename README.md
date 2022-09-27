@@ -26,7 +26,7 @@ https://nytimes.com/2022/09/27/briefing/china-fishing-galapagos.html?searchResul
 `Paul Gicheru was accused of tampering with witnesses in favor of President William Ruto, whose trial at The Hague collapsed in 2016. The cause of death is not yet known.`\
 https://nytimes.com/2022/09/27/world/africa/kenya-lawyer-icc-dead.html?searchResultPosition=7
 
-**Why Was Pandemic Fraud So Easy?**\
+**The Great Pandemic Theft**\
 `As the coronavirus swept the United States, the government spent vast sums to help shield the economy. But billions of dollars of that aid disappeared.`\
 https://nytimes.com/2022/09/27/podcasts/the-daily/pandemic-fraud.html?searchResultPosition=8
 
