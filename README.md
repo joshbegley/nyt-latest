@@ -1,5 +1,5 @@
 **McConnell Endorses Electoral Count Overhaul, Lifting Chances of Enactment**\
-`The backing of the Republican leader enhanced prospects for legislation drafted to prevent a repeat of the Jan. 6 Capitol assault, when rioters tried to pressure the vice president to overturn the election.`\
+`The Republican leader’s backing enhanced prospects for legislation drafted to prevent a repeat of the Jan. 6 assault, when rioters tried to pressure the vice president to overturn the election.`\
 https://nytimes.com/2022/09/27/us/mcconnell-electoral-count-act.html?searchResultPosition=1
 
 **Texting on Private Apps Costs Wall Street Firms $1.8 Billion in Fines**\
