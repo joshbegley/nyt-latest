@@ -1,40 +1,40 @@
-**Hoop Skirts and Hoodies Redefined by Dior and Saint Laurent**\
-`Updating the past to communicate a new kind of power.`\
-https://nytimes.com/2022/09/28/style/dior-saint-laurent-paris-fashion-week.html?searchResultPosition=1
+**Ni Hao, Sawasdee, Xin Chào: Language Apps to Take You Through Asia**\
+`While you may not master every language ahead of a multistop tour through Asia, these apps and digital tools can help you get by (and maybe make you some friends).`\
+https://nytimes.com/2022/09/28/travel/asia-language-apps-papago.html?searchResultPosition=1
 
-**Far From Routine, Asia Trip Presents Thorny Tests for Kamala Harris**\
-`A visit for Shinzo Abe’s controversial state funeral also includes outreach to Asian allies over military advances by North Korea and China.`\
-https://nytimes.com/2022/09/28/world/asia/kamala-harris-asia.html?searchResultPosition=2
+**$380,000 Homes in Texas, Maryland and New Jersey**\
+`A Victorian cottage in Galveston, a 1900 rowhouse in Baltimore and a one-bedroom apartment in Jersey City.`\
+https://nytimes.com/2022/09/28/realestate/home-prices-texas-maryland-new-jersey.html?searchResultPosition=2
 
-**On Portugal’s ‘Bitcoin Beach,’ Crypto Optimism Still Reigns**\
-`In crypto havens such as Meia Praia beach, the confidence in digital currencies remains undimmed even after this summer’s crash.`\
-https://nytimes.com/2022/09/28/technology/crypto-portugal-bitcoin-beach.html?searchResultPosition=3
+**Athens, N.Y.: A ‘Perfect Combination of Old and New’ on the Hudson**\
+`With historic architecture, stunning river views and a lower-key vibe than other upstate areas, this Greene County community is growing in popularity.`\
+https://nytimes.com/2022/09/28/realestate/athens-ny-greene-county-hudson.html?searchResultPosition=3
 
-**Zambia and Its New President Are Still on Their Honeymoon**\
-`Hakainde Hichilema is hailed as a miracle worker for turning around the fortunes of the southern African country. But with his opposition neutralized and a corruption drive focused on his predecessors, some are uneasy.`\
-https://nytimes.com/2022/09/28/world/africa/zambia-hakainde-hichilema.html?searchResultPosition=4
+**What You Get for $380,000**\
+`A Victorian cottage in Galveston, Texas; a 1900 rowhouse in Baltimore; and a one-bedroom apartment in Jersey City, N.J.`\
+https://nytimes.com/slideshow/2022/09/28/realestate/what-you-get-for-380000.html?searchResultPosition=4
 
-**Activists Flood Election Offices With Challenges**\
-`Groups fueled by right-wing election conspiracy theories are trying to toss tens of thousands of voters from the rolls. “They are just going to beat the system into the ground,” said one election official.`\
-https://nytimes.com/2022/09/28/us/politics/election-activists-voter-challenges.html?searchResultPosition=5
+**Living In ... Athens, N.Y.**\
+`With historic architecture, stunning river views and a lower-key vibe than other upstate areas, this Greene County community is growing in popularity.`\
+https://nytimes.com/slideshow/2022/09/28/realestate/living-in-athens-ny.html?searchResultPosition=5
 
-**A New Tell-All About the Luxury Industry**\
-`The newsletter Glitz Paris is turning an investigative lens on fashion.`\
-https://nytimes.com/2022/09/28/style/glitz-paris-luxury-newsletter.html?searchResultPosition=6
+**Those Weird Marks on Your Leaves? Here’s How to Decipher Them.**\
+`Don’t jump to the conclusion that those mysterious marks are evidence of disease. They may be leaf mines or galls — and that’s a good thing.`\
+https://nytimes.com/2022/09/28/realestate/leaf-miners-galls-gardens.html?searchResultPosition=6
 
-**Falling**\
-`What do you think this image is communicating?`\
-https://nytimes.com/2022/09/28/learning/falling.html?searchResultPosition=7
+**How to Read the Cryptic Messages on Leaves**\
+`Those strange marks on your leaves may not be evidence of disease. They may be leaf mines or galls — and that’s a good thing.`\
+https://nytimes.com/slideshow/2022/09/28/realestate/leaf-miners-galls-gardens.html?searchResultPosition=7
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/09/28/crosswords/spelling-bee-forum.html?searchResultPosition=8
+**At 91, Ramblin’ Jack Elliott Still Wants to Tell You a Story**\
+`The singer and expert flatpicker is one of the last of the ’50s era folk music revivalists still on the road today.`\
+https://nytimes.com/2022/09/28/arts/music/ramblin-jack-elliott.html?searchResultPosition=8
 
-**The Florida Keys begin to feel the storm’s effects.**\
-`The storm brought flooding to the islands, and forecasters warned that the effects could worsen.`\
-https://nytimes.com/2022/09/28/us/hurricane-ian-florida-keys-key-west.html?searchResultPosition=9
+**After Pandemic Barriers, Can Hong Kong Recover as a Global Metropolis?**\
+`Officials are saying the city will bounce back. But even before 2020, Chinese control was changing Hong Kong’s character and driving people away.`\
+https://nytimes.com/2022/09/28/business/hong-kong-covid-international-city.html?searchResultPosition=9
 
-**Word of the Day: recalcitrant**\
-`This word has appeared in 49 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/09/28/learning/word-of-the-day-recalcitrant.html?searchResultPosition=10
+**A Vanishing Craft Reappears**\
+`The practice of making pajaki, the Polish folk art created to honor the earth, finds an unexpected revival.`\
+https://nytimes.com/2022/09/28/style/a-vanishing-craft-reappears.html?searchResultPosition=10
 
