@@ -1,5 +1,5 @@
 **Watch Live: Hurricane Ian Makes Landfall in Southwest Florida**\
-`The hurricane, which is close to Category 5 status, is one of the most powerful storms to hit the United States in decades. Live cameras in Tampa are following the storm’s approach.`\
+`The hurricane, which made landfall as a Category 4 storm, is one of the most powerful storms to hit the United States in decades. Live cameras in Tampa are following the storm’s approach.`\
 https://nytimes.com/video/us/100000008556262/hurricane-ian-tampa-live-video.html?searchResultPosition=1
 
 **One Last Haircut**\
