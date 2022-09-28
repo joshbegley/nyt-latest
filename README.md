@@ -26,15 +26,15 @@ https://nytimes.com/2022/09/28/learning/falling.html?searchResultPosition=6
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2022/09/28/crosswords/spelling-bee-forum.html?searchResultPosition=7
 
+**The Florida Keys begin to feel the storm’s effects.**\
+`The storm brought flooding to the islands, and forecasters warned that the effects could worsen.`\
+https://nytimes.com/2022/09/28/us/hurricane-ian-florida-keys-key-west.html?searchResultPosition=8
+
 **Word of the Day: recalcitrant**\
 `This word has appeared in 49 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/09/28/learning/word-of-the-day-recalcitrant.html?searchResultPosition=8
+https://nytimes.com/2022/09/28/learning/word-of-the-day-recalcitrant.html?searchResultPosition=9
 
 **Trevor Noah’s Take on Russia’s Sham Referendums in Ukraine**\
 `“I mean, it is one thing to conquer a town and blow up their buildings but to make them do paperwork? There is evil and then there’s evil,” Noah said.`\
-https://nytimes.com/2022/09/28/arts/television/trevor-noahs-take-on-russias-sham-referendums-in-ukraine.html?searchResultPosition=9
-
-**Your Wednesday Briefing**\
-`Suspicious gas leaks in Europe.`\
-https://nytimes.com/2022/09/28/briefing/gas-leak-sabotage-liz-truss.html?searchResultPosition=10
+https://nytimes.com/2022/09/28/arts/television/trevor-noahs-take-on-russias-sham-referendums-in-ukraine.html?searchResultPosition=10
 
