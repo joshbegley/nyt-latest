@@ -1,22 +1,22 @@
+**Watch Live: Gov. DeSantis Speaks After Hurricane Ian Makes Landfall**\
+`Hurricane Ian made landfall as a Category 4 storm on Cayo Costa, a barrier island just west of Fort Myers, Fla. Video is from WFSU-TV via Associated Press.`\
+https://nytimes.com/video/us/100000008556826/desantis-hurricane-ian-update.html?searchResultPosition=1
+
 **Why It’s Important to Know if You Have Dense Breasts**\
 `Katie Couric, who revealed on Wednesday that she had breast cancer, also said she had dense breasts. Here’s what that means and how it might influence cancer risk.`\
-https://nytimes.com/2022/09/28/well/live/dense-breasts.html?searchResultPosition=1
+https://nytimes.com/2022/09/28/well/live/dense-breasts.html?searchResultPosition=2
 
 **Supreme Court to Reopen to the Public When Justices Return**\
 `The courthouse has been closed to most visitors since the beginning of the coronavirus pandemic, and in the meantime the court has been transformed.`\
-https://nytimes.com/2022/09/28/us/supreme-court-public-reopening.html?searchResultPosition=2
+https://nytimes.com/2022/09/28/us/supreme-court-public-reopening.html?searchResultPosition=3
 
 **Rita Gardner, an Original ‘Fantasticks’ Star, Is Dead at 87**\
 `In 1960 she originated the lone female role in an Off Broadway show that became part of theater history thanks to a record-setting run.`\
-https://nytimes.com/2022/09/28/theater/rita-gardner-dead.html?searchResultPosition=3
+https://nytimes.com/2022/09/28/theater/rita-gardner-dead.html?searchResultPosition=4
 
 **Watch Live: Hurricane Ian Makes Landfall in Southwest Florida**\
 `The hurricane, which made landfall as a Category 4 storm, is one of the most powerful storms to hit the United States in decades. Live cameras in Tampa are following the storm’s approach.`\
-https://nytimes.com/video/us/100000008556262/hurricane-ian-tampa-live-video.html?searchResultPosition=4
-
-**Heavy rain could cause toxic waste spills at industrial sites in Ian’s path.**\
-`Storage pools can hold hundreds of millions of gallons of wastewater containing known carcinogens.`\
-https://nytimes.com/2022/09/28/us/hurricane-ian-rain-toxic.html?searchResultPosition=5
+https://nytimes.com/video/us/100000008556262/hurricane-ian-tampa-live-video.html?searchResultPosition=5
 
 **One Last Haircut**\
 `A man comes out to his wife — and breaks apart their family. Fifteen years later, we check back in.`\
