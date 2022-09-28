@@ -1,4 +1,4 @@
-**Cuomo Reveals His Plans to Return to Public Life**\
+**Cuomo’s Next Steps Include a Podcast and a P.A.C.**\
 `The former governor, who resigned after sexual harassment allegations, said he would start a podcast, a gun-safety project and a political action committee.`\
 https://nytimes.com/2022/09/28/nyregion/andrew-cuomo-return.html?searchResultPosition=1
 
