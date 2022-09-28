@@ -1,6 +1,6 @@
 **Bill Plante, CBS News’s Man at the White House, Dies at 84**\
 `He covered four presidencies in a 52-year career and never worried about “offending those in power in pursuit of answers,” one former White House press secretary said.`\
-https://nytimes.com/2022/09/28/business/media/bill-plante-cbs-newss-man-at-the-white-house-dies-at-84.html?searchResultPosition=1
+https://nytimes.com/2022/09/28/business/media/bill-plante-dead.html?searchResultPosition=1
 
 **6 Injured in California School Shooting, Police Say**\
 `Three of the victims were in critical condition, the authorities said. The shooting occurred at a campus in Oakland that houses multiple schools.`\
