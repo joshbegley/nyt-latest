@@ -1,6 +1,6 @@
 **Lasker Award Honors Development of Noninvasive Prenatal DNA Test**\
 `The prestigious medical prizes also recognized the creator of a global Covid dashboard and discoveries of proteins and cell bindings to fight disease.`\
-https://nytimes.com/2022/09/28/science/lasker-award-medical-research.html?searchResultPosition=1
+https://nytimes.com/2022/09/28/health/lasker-award-medical-research.html?searchResultPosition=1
 
 **Cheating Allegation Looms Over Elite Chess**\
 `Magnus Carlsen, the World Chess Championship winner, continues his protest against Hans Niemann.`\
