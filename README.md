@@ -2,8 +2,8 @@
 `He covered four presidencies in a 52-year career and never worried about “offending those in power in pursuit of answers,” one former White House press secretary said.`\
 https://nytimes.com/2022/09/28/business/media/bill-plante-dead.html?searchResultPosition=1
 
-**6 Injured in California School Shooting, Police Say**\
-`Three of the victims were in critical condition, the authorities said. The shooting occurred at a campus in Oakland that houses multiple schools.`\
+**6 Injured in Oakland School Shooting, Police Say**\
+`Three of the victims were in critical condition, the authorities said. The shooting occurred at a campus in the Bay Area that houses multiple schools.`\
 https://nytimes.com/2022/09/28/us/oakland-ca-school-shooting.html?searchResultPosition=2
 
 **C.D.C. Says Early Data Offers Positive Signs About Monkeypox Vaccine**\
