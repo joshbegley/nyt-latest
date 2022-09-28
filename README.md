@@ -1,5 +1,5 @@
 **Why It’s Important to Know if You Have Dense Breasts**\
-`Katie Couric, who revealed on Wednesday that she had breast cancer, noted that she also had dense breasts. Here’s what that means and how it might influence cancer risk.`\
+`Katie Couric, who revealed on Wednesday that she had breast cancer, also said she had dense breasts. Here’s what that means and how it might influence cancer risk.`\
 https://nytimes.com/2022/09/28/well/live/dense-breasts.html?searchResultPosition=1
 
 **Supreme Court to Reopen to the Public When Justices Return**\
