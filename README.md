@@ -12,7 +12,7 @@ https://nytimes.com/2022/09/28/sports/hilaree-nelson-dead.html?searchResultPosit
 
 **Lizzo Plays New Notes on James Madison’s Crystal Flute from 1813**\
 `A classically trained flutist, the singer, rapper and songwriter spent more than three hours admiring the flute collection at the Library of Congress. Madison’s instrument was made for the second inauguration by a Parisian craftsman.`\
-https://nytimes.com/2022/09/28/us/lizzo-james-madison-flute.html?searchResultPosition=4
+https://nytimes.com/2022/09/28/arts/music/lizzo-james-madison-flute.html?searchResultPosition=4
 
 **Your Wednesday Evening Briefing**\
 `Here’s what you need to know at the end of the day.`\
