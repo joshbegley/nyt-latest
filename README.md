@@ -2,8 +2,8 @@
 `As a member of the Photo League in the 1940s and ’50s, she roved New York City, capturing the humanity of ordinary people. She was 87 when her work was rediscovered.`\
 https://nytimes.com/2022/09/28/arts/handelman-meyer-dead.html?searchResultPosition=1
 
-**U.S., Russia Duel Over Leadership of U.N. Tech Group**\
-`Member countries vote on Thursday for an American or Russian to lead the International Telecommunication Union, which sets standards for new technologies.`\
+**U.S. and Russia Duel Over Leadership of U.N. Tech Group**\
+`Member countries vote on Thursday for an American or a Russian to lead the International Telecommunication Union, which sets standards for new technologies.`\
 https://nytimes.com/2022/09/28/technology/us-russia-technology-united-nations.html?searchResultPosition=2
 
 **Here Are Three Netflix Cartoons You Should Be Watching**\
