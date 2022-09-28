@@ -6,7 +6,7 @@ https://nytimes.com/2022/09/28/health/lasker-award-medical-research.html?searchR
 `Magnus Carlsen, the World Chess Championship winner, continues his protest against Hans Niemann.`\
 https://nytimes.com/2022/09/28/crosswords/hans-niemann-magnus-carlsen-cheating-update.html?searchResultPosition=2
 
-**This article was published in error**\
+**Editors’ Note: This article was published in error**\
 `This article was published in error`\
 https://nytimes.com/interactive/2022/09/28/opinion/published-in-error.html?searchResultPosition=3
 
