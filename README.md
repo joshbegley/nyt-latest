@@ -10,13 +10,13 @@ https://nytimes.com/2022/09/28/sports/football/afc-nfc-parity-rivals.html?search
 `Norm Van Brocklin threw for 554 yards in a game in 1951. A few players have come close but, even in a pass-heavy era of football, none have surpassed his total.`\
 https://nytimes.com/2022/09/28/sports/football/nfl-passing-record-norm-van-brocklin.html?searchResultPosition=3
 
-**Corrections: Sept. 28, 2022**\
-`Corrections that appeared in print on Wednesday, Sept. 28, 2022.`\
-https://nytimes.com/2022/09/28/pageoneplus/corrections-sept-28-2022.html?searchResultPosition=4
-
 **Quotation of the Day: Bless Them, For Still Being Odd**\
 `Quotation of the Day for Wednesday, Sept. 28, 2022.`\
-https://nytimes.com/2022/09/28/todayspaper/quotation-of-the-day-bless-them-for-still-being-odd.html?searchResultPosition=5
+https://nytimes.com/2022/09/28/todayspaper/quotation-of-the-day-bless-them-for-still-being-odd.html?searchResultPosition=4
+
+**Corrections: Sept. 28, 2022**\
+`Corrections that appeared in print on Wednesday, Sept. 28, 2022.`\
+https://nytimes.com/2022/09/28/pageoneplus/corrections-sept-28-2022.html?searchResultPosition=5
 
 **Yankees Clinch a First-Round Bye as Judge’s Wait Continues**\
 `A win over Toronto gave the Yankees the American League East title, but Aaron Judge remained stuck at 60 home runs.`\
