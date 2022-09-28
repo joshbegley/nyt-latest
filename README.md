@@ -8,7 +8,7 @@ https://nytimes.com/2022/09/28/technology/driverless-cars-san-francisco.html?sea
 
 **Should I Sign a Divorce Agreement With My Mother-in-Law?**\
 `A reader develops fresh reservations about his mother-in-law’s plan to build her “forever home” in their backyard after she asks him to sign an unusual document.`\
-https://nytimes.com/2022/09/28/style/should-i-sign-a-divorce-agreement-with-my-mother-in-law.html?searchResultPosition=3
+https://nytimes.com/2022/09/28/style/divorce-agreement-mother-in-law.html?searchResultPosition=3
 
 **‘Act of Sabotage’ Hits Europe’s Energy and Stocks Markets**\
 `Natural gas prices soared in Europe and stocks fell, as officials  investigate the causes of the Nordstream 1 and 2 gas pipeline explosions.`\
