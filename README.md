@@ -1,4 +1,4 @@
-**Global Markets Wobble as Britain Intervenes to Restore Order**\
+**Stocks climb after a week of turmoil.**\
 `The S&P 500 rose at the beginning of trading after six consecutive days of trading, the longest streak since the beginning of the pandemic.`\
 https://nytimes.com/2022/09/28/business/global-markets-wobble-as-britain-intervenes-to-restore-order.html?searchResultPosition=1
 
