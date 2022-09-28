@@ -16,7 +16,7 @@ https://nytimes.com/2022/09/28/world/asia/hilaree-nelson-death-avalanche.html?se
 
 **Tracking the storm’s approach: A hunkered-down forecasting office.**\
 `The meteorologists expect to live in the office this week, pausing only to grab a few hours’ sleep on air mattresses.`\
-https://nytimes.com/2022/09/28/us/tracking-the-storms-approach-a-hunkered-down-forecasting-office.html?searchResultPosition=5
+https://nytimes.com/2022/09/28/us/forecasters-tracking-hurricane-ian.html?searchResultPosition=5
 
 **Some in Florida wait after choosing to stay in the hurricane’s projected path.**\
 `In deciding not to evacuate, they weighed the threat of destruction against that of trouble leaving on clogged highways.`\
