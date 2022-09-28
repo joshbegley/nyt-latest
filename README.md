@@ -1,40 +1,40 @@
+**What to Do if Your Travel Plans Have Been Affected by Hurricane Ian**\
+`Airlines and hotels will have varying policies, so make sure to read the details carefully.`\
+https://nytimes.com/2022/09/28/travel/travel-flights-canceled-hurricane-ian.html?searchResultPosition=1
+
+**Powerful Category 4 Hurricane Ian Slams Florida**\
+`High winds and heavy rain from Hurricane Ian pounded southwestern Florida. The Category 4 storm was one of the most powerful to impact the United States in decades.`\
+https://nytimes.com/video/us/100000008556090/hurricane-ian-footage.html?searchResultPosition=2
+
 **Your Thursday Briefing: Iran Strikes Kurds in Iraq**\
 `Plus Australia moves to fight corruption and a Chinese businessman faces assault allegations in a U.S. court.`\
-https://nytimes.com/2022/09/28/briefing/iran-protests-kurds-iraq-asia.html?searchResultPosition=1
+https://nytimes.com/2022/09/28/briefing/iran-protests-kurds-iraq-asia.html?searchResultPosition=3
 
 **Watch Live: Gov. DeSantis Speaks After Hurricane Ian Makes Landfall**\
 `Hurricane Ian made landfall as a Category 4 storm on Cayo Costa, a barrier island just west of Fort Myers, Fla. Video is from WFSU-TV via Associated Press.`\
-https://nytimes.com/video/us/100000008556826/desantis-hurricane-ian-update.html?searchResultPosition=2
+https://nytimes.com/video/us/100000008556826/desantis-hurricane-ian-update.html?searchResultPosition=4
 
 **Why It’s Important to Know if You Have Dense Breasts**\
 `Katie Couric, who revealed on Wednesday that she had breast cancer, also said she had dense breasts. Here’s what that means and how it might influence cancer risk.`\
-https://nytimes.com/2022/09/28/well/live/dense-breasts.html?searchResultPosition=3
+https://nytimes.com/2022/09/28/well/live/dense-breasts.html?searchResultPosition=5
 
 **Supreme Court to Reopen to the Public When Justices Return**\
 `The courthouse has been closed to most visitors since the beginning of the coronavirus pandemic, and in the meantime the court has been transformed.`\
-https://nytimes.com/2022/09/28/us/supreme-court-public-reopening.html?searchResultPosition=4
+https://nytimes.com/2022/09/28/us/supreme-court-public-reopening.html?searchResultPosition=6
 
 **Rita Gardner, an Original ‘Fantasticks’ Star, Is Dead at 87**\
 `In 1960 she originated the lone female role in an Off Broadway show that became part of theater history thanks to a record-setting run.`\
-https://nytimes.com/2022/09/28/theater/rita-gardner-dead.html?searchResultPosition=5
+https://nytimes.com/2022/09/28/theater/rita-gardner-dead.html?searchResultPosition=7
 
 **Watch Live: Hurricane Ian Makes Landfall in Southwest Florida**\
 `The hurricane, which made landfall as a Category 4 storm, is one of the most powerful storms to hit the United States in decades. Live cameras in Tampa are following the storm’s approach.`\
-https://nytimes.com/video/us/100000008556262/hurricane-ian-tampa-live-video.html?searchResultPosition=6
+https://nytimes.com/video/us/100000008556262/hurricane-ian-tampa-live-video.html?searchResultPosition=8
 
 **One Last Haircut**\
 `A man comes out to his wife — and breaks apart their family. Fifteen years later, we check back in.`\
-https://nytimes.com/2022/09/28/podcasts/modern-love-one-last-haircut.html?searchResultPosition=7
+https://nytimes.com/2022/09/28/podcasts/modern-love-one-last-haircut.html?searchResultPosition=9
 
 **‘Giant Backfire’: Trump’s Demand for Special Master Is Looking Like a Mistake**\
 `The former president failed to derail the criminal investigation into his hoarding of sensitive documents and is stuck paying for a costly process that threatens to undermine his public claims.`\
-https://nytimes.com/2022/09/28/us/politics/trump-special-master-mar-a-lago.html?searchResultPosition=8
-
-**Fossilized Fish Reveal Earliest Known Prequel of ‘Jaws’**\
-`In two deposits in China, paleontologists dug up remains that suggest jawed fish are tens of millions of years older than previously known.`\
-https://nytimes.com/2022/09/28/science/jaws-fish-fossils-china.html?searchResultPosition=9
-
-**Left in the Dark After Hurricane Ian, Cuba Begins Restoring Power.**\
-`The island nation was still experiencing some minor flooding along its northern coast, but most of the storm had passed by Wednesday.`\
-https://nytimes.com/2022/09/28/us/cuba-hurricane-ian-electricity.html?searchResultPosition=10
+https://nytimes.com/2022/09/28/us/politics/trump-special-master-mar-a-lago.html?searchResultPosition=10
 
