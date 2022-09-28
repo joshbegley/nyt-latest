@@ -6,13 +6,13 @@ https://nytimes.com/2022/09/28/travel/asia-language-apps-papago.html?searchResul
 `A Victorian cottage in Galveston, a 1900 rowhouse in Baltimore and a one-bedroom apartment in Jersey City.`\
 https://nytimes.com/2022/09/28/realestate/home-prices-texas-maryland-new-jersey.html?searchResultPosition=2
 
-**Athens, N.Y.: A ‘Perfect Combination of Old and New’ on the Hudson**\
-`With historic architecture, stunning river views and a lower-key vibe than other upstate areas, this Greene County community is growing in popularity.`\
-https://nytimes.com/2022/09/28/realestate/athens-ny-greene-county-hudson.html?searchResultPosition=3
-
 **What You Get for $380,000**\
 `A Victorian cottage in Galveston, Texas; a 1900 rowhouse in Baltimore; and a one-bedroom apartment in Jersey City, N.J.`\
-https://nytimes.com/slideshow/2022/09/28/realestate/what-you-get-for-380000.html?searchResultPosition=4
+https://nytimes.com/slideshow/2022/09/28/realestate/what-you-get-for-380000.html?searchResultPosition=3
+
+**Athens, N.Y.: A ‘Perfect Combination of Old and New’ on the Hudson**\
+`With historic architecture, stunning river views and a lower-key vibe than other upstate areas, this Greene County community is growing in popularity.`\
+https://nytimes.com/2022/09/28/realestate/athens-ny-greene-county-hudson.html?searchResultPosition=4
 
 **Living In ... Athens, N.Y.**\
 `With historic architecture, stunning river views and a lower-key vibe than other upstate areas, this Greene County community is growing in popularity.`\
