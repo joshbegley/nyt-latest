@@ -1,6 +1,6 @@
 **Tensions in Iran Spill Across the Border Into Iraq**\
 `The Revolutionary Guards Corps has been attacking Kurdish opposition groups in northern Iraq, blaming them for fomenting the unrest in Iran that was set off by the death of Mahsa Amini.`\
-https://nytimes.com/2022/09/28/world/middleeast/tensions-in-iran-spill-across-the-border-into-iraq.html?searchResultPosition=1
+https://nytimes.com/2022/09/28/world/middleeast/iran-iraq-protests.html?searchResultPosition=1
 
 **Lasker Award Honors Development of Noninvasive Prenatal DNA Test**\
 `The prestigious medical prizes also recognized the creator of a global Covid dashboard and discoveries of proteins and cell bindings to fight disease.`\
