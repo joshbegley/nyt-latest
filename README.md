@@ -30,8 +30,8 @@ https://nytimes.com/slideshow/2022/09/28/learning/whats-going-on-in-this-picture
 `In renovating her family’s house, Sally Breer moved nearly every wall to create a space that is both modern and kid-friendly.`\
 https://nytimes.com/2022/09/28/t-magazine/sally-breer-los-angeles-home.html?searchResultPosition=8
 
-**Bank of England to Buy Bonds to Restore ‘Orderly’ Markets**\
-`The purchases will be carried out “on whatever scale is necessary,” the central bank said.`\
+**To Calm Markets, Bank of England Will Buy Bonds ‘On Whatever Scale is Necessary’**\
+`The purchases are designed “to restore orderly market conditions,”  the central bank said, after days of turmoil that followed the government’s plan for sweeping tax cuts and higher borrowing.`\
 https://nytimes.com/2022/09/28/business/economy/bank-of-england-bonds.html?searchResultPosition=9
 
 **Covid Boosters**\
