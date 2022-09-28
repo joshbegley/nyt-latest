@@ -3,7 +3,7 @@
 https://nytimes.com/2022/09/28/briefing/russia-ukraine-war-pipelines-donbas.html?searchResultPosition=1
 
 **Mysterious Blasts and Gas Leaks: What We Know About the Pipeline Breaks in Europe**\
-`The leaks, which may amount to as much as a third of Denmark’s annual carbon emissions, exposes the vulnerability of critical infrastructure as the war in Ukraine continues.`\
+`The leaks, which may amount to as much as a third of Denmark’s annual carbon emissions, expose the vulnerability of critical infrastructure as the war in Ukraine continues.`\
 https://nytimes.com/2022/09/28/world/asia/nordstream-pipeline-gas-leak-explosions.html?searchResultPosition=2
 
 **‘Redlining Is Racist’: $12 Million Settlement Ends Lending Inquiry**\
