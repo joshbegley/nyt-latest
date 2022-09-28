@@ -34,7 +34,7 @@ https://nytimes.com/2022/09/28/world/americas/if-brazils-president-attempts-a-co
 `Deciding if and how to share health information can leave daters on a tightrope between vulnerability and vigilance.`\
 https://nytimes.com/2022/09/28/well/live/chronic-illness-dating.html?searchResultPosition=9
 
-**How Money Is Ruining Youth Sports**\
+**Why Have We Allowed Money to Ruin Youth Sports?**\
 `An interview with Linda Flanagan, the author of “Take Back the Game.”`\
 https://nytimes.com/2022/09/28/opinion/youth-sports.html?searchResultPosition=10
 
