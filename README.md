@@ -1,5 +1,5 @@
-**Dries Van Noten Tells the Story of Us**\
-`Plus beauty in imperfection at Undercover and The Row. And Cher at Balmain.`\
+**Wrinkles, Wrinkles Everywhere, but They Look So Good**\
+`Dries Van Noten tell the story of us. Plus beauty in imperfection at Undercover and The Row. And Cher at Balmain.`\
 https://nytimes.com/2022/09/29/style/balmain-cher-dries-van-noten-paris-fashion-week.html?searchResultPosition=1
 
 **On Eve of Election, Bolsonaro’s Party Attacks Brazil’s Voting Systems**\
