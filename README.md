@@ -1,40 +1,40 @@
+**Homes for Sale in New York and Connecticut**\
+`This week’s properties are four-bedroom homes in Port Chester, N.Y., and Fairfield, Conn.`\
+https://nytimes.com/2022/09/29/realestate/housing-market-near-nyc.html?searchResultPosition=1
+
+**On the Market in the New York Region**\
+`This week’s properties are four-bedroom homes in Port Chester, N.Y., and Fairfield, Conn.`\
+https://nytimes.com/slideshow/2022/09/29/realestate/on-the-market-in-the-new-york-region.html?searchResultPosition=2
+
+**A Singaporean Chocolatier Infusing Sweets With Seaweed, Curry and Satay Spice**\
+`Plus: a French hotel in Tribeca, an Italian fashion exhibition and more recommendations from T Magazine.`\
+https://nytimes.com/2022/09/29/t-magazine/fossa-chocolate-singapore.html?searchResultPosition=3
+
+**Bottega Veneta Ties the Knot Again**\
+`A new clutch highlights the brand’s signature woven leather.`\
+https://nytimes.com/2022/09/29/t-magazine/bottega-veneta-knot-clutch.html?searchResultPosition=4
+
+**Hospitals in Coastal Cities Risk Flooding Even in ‘Weak’ Hurricanes, Study Finds**\
+`In a third of the 78 cities examined on the Atlantic and Gulf coasts, half or more of hospitals were at risk from a Category 2 storm, the researchers said.`\
+https://nytimes.com/2022/09/29/climate/coastal-hospitals-hurricane-flooding.html?searchResultPosition=5
+
+**McKinsey Is a Consulting Powerhouse. But Is It a Force for Good?**\
+`“When McKinsey Comes to Town,” by the Times reporters Walt Bogdanich and Michael Forsythe, argues that the legendary firm has accrued an inordinate amount of influence chasing profits at the expense of moral principle.`\
+https://nytimes.com/2022/09/29/books/review/when-mckinsey-comes-to-town-walt-bogdanich-michael-forsythe.html?searchResultPosition=6
+
+**Homes for Sale in Brooklyn and Manhattan**\
+`This week’s properties are in Brooklyn Heights, Greenwich Village and the Flatiron district.`\
+https://nytimes.com/2022/09/29/realestate/housing-market-nyc.html?searchResultPosition=7
+
+**Watch Live: DeSantis Gives an Update on Tropical Storm Ian**\
+`The Florida governor gives an update as the storm, which made landfall as a Category 4 hurricane, barrels across the Florida peninsula.`\
+https://nytimes.com/video/us/100000008557738/hurricane-ian-storm-desantis.html?searchResultPosition=8
+
 **‘Mona Lisa and the Blood Moon’ Review: Escape From New Orleans**\
 `This hyper-stylized quasi-superhero movie by Ana Lily Amirpour follows a mental hospital patient with supernatural abilities; it looks a lot more fun than it actually is.`\
-https://nytimes.com/2022/09/29/movies/mona-lisa-and-the-blood-moon-review.html?searchResultPosition=1
+https://nytimes.com/2022/09/29/movies/mona-lisa-and-the-blood-moon-review.html?searchResultPosition=9
 
 **Porsche Takes off in Trading Debut**\
 `Shares in the sportscar maker gained on Thursday, outperforming the wider market.`\
-https://nytimes.com/2022/09/29/business/dealbook/porsche-ipo-germany-trading-debut.html?searchResultPosition=2
-
-**An Italian Maximalist Moves Into a Muted Turin Villa**\
-`The tentmaker Guido Toschi brings color and pattern to a 12th-century citadel once occupied by his five great-aunts.`\
-https://nytimes.com/2022/09/29/t-magazine/guido-toschi-turin-design.html?searchResultPosition=3
-
-**Ian’s Next Stop: Georgia and South Carolina**\
-`Weakened but still dangerous, the tropical storm is expected to produce strong winds and heavy rains as it moves north to Georgia, the Carolinas and Virginia.`\
-https://nytimes.com/2022/09/29/us/ian-georgia-carolinas-virginia-forecast.html?searchResultPosition=4
-
-**Do You Talk to Yourself?**\
-`Do you ever mumble to yourself when you’re alone? Or have lively conversations in front of the mirror?`\
-https://nytimes.com/2022/09/29/learning/do-you-talk-to-yourself.html?searchResultPosition=5
-
-**Lesson Plan: Why Iranians Are Protesting**\
-`The death of a young woman has prompted an outpouring of anger across Iran. In this lesson, students will learn about the many factors that have led to this moment.`\
-https://nytimes.com/2022/09/29/learning/lesson-plans/lesson-plan-why-iranians-are-protesting.html?searchResultPosition=6
-
-**The Finnish government bars Russians from entering as tourists.**\
-`The long-planned move closes off the last land route into the European Union for people fleeing Russia’s military mobilization effort.`\
-https://nytimes.com/2022/09/29/world/europe/finland-border-russia.html?searchResultPosition=7
-
-**You Can’t Skip This Ad**\
-`As digital fatigue from the pandemic grows, hand-painted billboards are making a comeback.`\
-https://nytimes.com/2022/09/29/business/hand-painted-billboards-digital-ads.html?searchResultPosition=8
-
-**The Kashmiri Chef Foraging on Precarious Soil**\
-`For Prateek Sadhu, gathering native ingredients in the conflict zone where he grew up is the only way of asserting Kashmir’s tenuous place in the world.`\
-https://nytimes.com/2022/09/29/t-magazine/kashmir-foraging-prateek-sadhu.html?searchResultPosition=9
-
-**‘What We Leave Behind’ Review: A Father’s Final Project**\
-`At 89, Julián Moreno began building a home in Mexico for his children who had immigrated to the U.S. His granddaughter made the poignant documentary “What We Leave Behind.”`\
-https://nytimes.com/2022/09/29/movies/what-we-leave-behind-review.html?searchResultPosition=10
+https://nytimes.com/2022/09/29/business/dealbook/porsche-ipo-germany-trading-debut.html?searchResultPosition=10
 
