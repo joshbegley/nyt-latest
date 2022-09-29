@@ -19,7 +19,7 @@ https://nytimes.com/2022/09/29/crosswords/spelling-bee-forum.html?searchResultPo
 https://nytimes.com/2022/09/29/learning/face-filters.html?searchResultPosition=5
 
 **‘It’s the Stuff You Dream About. It’s Not Even Real.’**\
-`Aaron Judge went seven games without a home run and admitted the chase for No. 61 wore on him. But with one swing, he matched Roger Maris’s record. And now he’s ready for more.`\
+`Aaron Judge went seven games without a home run and admitted the chase for No. 61 wore on him. With one swing, he matched Roger Maris’s record. And now he’s ready for more.`\
 https://nytimes.com/2022/09/29/sports/baseball/aaron-judge-home-run-toronto.html?searchResultPosition=6
 
 **Australian Economic Adviser Sentenced to Three Years in Myanmar**\
