@@ -2,7 +2,7 @@
 `There is no official estimate of the number of people killed by Hurricane Ian in Lee County or across Florida.`\
 https://nytimes.com/2022/09/29/us/lee-county-death-toll-hundreds-unconfirmed.html?searchResultPosition=1
 
-**For Queer Couples, Engagement Rings with Subversive Stones**\
+**For Queer Couples, Engagement Rings With Subversive Stones**\
 `As one jeweler put it, many of her L.G.B.T.Q. clients want “the opposite of what a diamond is supposed to stand for.” Sapphires, opals and other nontraditional stones have in turn grown more coveted.`\
 https://nytimes.com/2022/09/29/style/queer-gay-engagement-rings.html?searchResultPosition=2
 
@@ -24,7 +24,7 @@ https://nytimes.com/video/us/100000008558066/biden-fema-ian-florida.html?searchR
 
 **Fed Announces Plan to Assess Climate Risks to Banks**\
 `The Federal Reserve will put big banks through climate scenario tests next year, but the exercises will not force banks to raise capital.`\
-https://nytimes.com/2022/09/29/business/fed-announces-plan-to-assess-climate-risks-to-banks.html?searchResultPosition=7
+https://nytimes.com/2022/09/29/business/fed-banks-climate-change.html?searchResultPosition=7
 
 **Zelensky’s Answer to Escalating Russian Threats: Defiance**\
 `In a nightly address, President Volodymyr Zelensky of Ukraine told Russian soldiers: ‘If you want to live, run.’`\
