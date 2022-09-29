@@ -24,7 +24,7 @@ https://nytimes.com/2022/09/29/fashion/sustainable-fashion-week-climate.html?sea
 
 **F.D.A. Approves A.L.S. Treatment Despite Questions About Effectiveness**\
 `The drug is safe, and one trial found it may extend survival and slow paralysis in functions like muscle control and speaking. A larger trial will be completed in 2024.`\
-https://nytimes.com/2022/09/29/health/als-treatment-amx0035.html?searchResultPosition=7
+https://nytimes.com/2022/09/29/health/als-treatment-relyvrio.html?searchResultPosition=7
 
 **Is the Fed Braking Too Hard?**\
 `It may be raising interest rates too far, too fast.`\
