@@ -3,7 +3,7 @@
 https://nytimes.com/2022/09/28/crosswords/daily-puzzle-2022-09-29.html?searchResultPosition=1
 
 **Coolio, ‘Gangsta’s Paradise’ Rapper, Dies at 59**\
-`Other hits by Coolio, who won a Grammy for “Gangsta’s Paradise” in the mid-1990s, included “1, 2, 3, 4 (Sumpin’ New)” and “C U When U Get There.”`\
+`Other hits by Coolio, who won a Grammy for “Gangsta’s Paradise” in the mid-1990s, included “Fantastic Voyage” and “1, 2, 3, 4 (Sumpin’ New).”`\
 https://nytimes.com/2022/09/28/arts/music/coolio-rapper-dead.html?searchResultPosition=2
 
 **61 Homers! Aaron Judge Ties Roger Maris With Another Monster Blast.**\
