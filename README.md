@@ -19,7 +19,7 @@ https://nytimes.com/2022/09/29/todayspaper/quotation-of-the-day-nj-bank-settles-
 https://nytimes.com/2022/09/28/crosswords/daily-puzzle-2022-09-29.html?searchResultPosition=5
 
 **Coolio, ‘Gangsta’s Paradise’ Rapper, Dies at 59**\
-`Other hits by Coolio, who won a Grammy for “Gangsta’s Paradise” in the mid-1990s, included “Fantastic Voyage” and “1, 2, 3, 4 (Sumpin’ New).”`\
+`From a bookish, asthmatic child to crack addict to mainstream recording powerhouse, Coolio charted a path to hip-hop superstardom like no other.`\
 https://nytimes.com/2022/09/28/arts/music/coolio-rapper-dead.html?searchResultPosition=6
 
 **61 Homers! Aaron Judge Ties Roger Maris With Another Monster Blast.**\
