@@ -7,7 +7,7 @@ https://nytimes.com/2022/09/29/movies/gods-creatures-review.html?searchResultPos
 https://nytimes.com/2022/09/29/movies/argentina-1985-review.html?searchResultPosition=2
 
 **On the Scene: The Vice President in Asia**\
-`I traveled with Vice President Kamala Harris as she attended the state funeral of former Prime Minister Shinzo Abe of Japan and stopped at the Demilitarized Zone separating the two Koreas.`\
+`I traveled with Vice President Kamala Harris as she attended the state funeral of former Prime Minister Shinzo Abe of Japan and stopped at the Demilitarized Zone separating the two Koreas. `\
 https://nytimes.com/interactive/2022/09/29/us/politics/kamala-harris-korea-dmz.html?searchResultPosition=3
 
 **‘Dead for a Dollar’ Review: How the Western’s Done**\
