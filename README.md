@@ -36,5 +36,5 @@ https://nytimes.com/2022/09/29/briefing/florida-flooding-hurricane-ian-russia-an
 
 **Watch Live: Gov. DeSantis Delivers Update on Ian**\
 `Gov. Ron DeSantis of Florida speaks from the Emergency Operations Center in Tallahassee, Fla. Video by WFSU-TV.`\
-https://nytimes.com/video/us/100000008559214/desantis-hurricane-ian-florida.html?searchResultPosition=10
+https://nytimes.com/video/embedded/us/100000008559214/desantis-hurricane-ian-florida.html?searchResultPosition=10
 
