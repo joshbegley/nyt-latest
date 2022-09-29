@@ -4,7 +4,7 @@ https://nytimes.com/2022/09/29/opinion/letters/jihad-documentary.html?searchResu
 
 **An Unconfirmed Death Toll Estimate From Lee County Spread Widely**\
 `There is no official estimate of the number of people killed by Hurricane Ian in Lee County or across Florida.`\
-https://nytimes.com/2022/09/29/us/lee-county-death-toll-hundreds-unconfirmed.html?searchResultPosition=2
+https://nytimes.com/2022/09/29/us/lee-county-florida-ian-unconfirmed-deaths.html?searchResultPosition=2
 
 **For Queer Couples, Engagement Rings With Subversive Stones**\
 `As one jeweler put it, many of her L.G.B.T.Q. clients want “the opposite of what a diamond is supposed to stand for.” Sapphires, opals and other nontraditional stones have in turn grown more coveted.`\
