@@ -1,6 +1,6 @@
 **Ian strains emergency services in Southwest Florida.**\
-`Before hurricanes and other major disasters, emergency response crews will typically station assets and resources in places where damage is most likely to occur, said Randall Styner, the director of emergency management at the University of California, Irvine.`\
-https://nytimes.com/2022/09/29/us/ian-strains-emergency-services-in-southwest-florida.html?searchResultPosition=1
+`Officials warned residents to be patient as emergency responders waited for conditions to improve to resume rescue and other efforts.`\
+https://nytimes.com/2022/09/29/us/hurricane-ian-emergency-services-southwest-florida.html?searchResultPosition=1
 
 **A Trip to Cover Pakistan’s Destructive Floods, and What’s Left Behind**\
 `Christina Goldbaum, a Times reporter based in Dubai, had to travel by boat in Pakistani places where extreme floods have destroyed entire villages.`\
