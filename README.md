@@ -1,4 +1,4 @@
-**Inland areas are facing ‘life-threatening’ flooding as Ian soaks Florida.**\
+**Inland areas are facing life-threatening flooding as Ian soaks Florida.**\
 `Rivers and creeks are flooding, and storm surge means there’s nowhere for the water to go.`\
 https://nytimes.com/2022/09/29/us/hurricane-ian-florida-flood-warning.html?searchResultPosition=1
 
