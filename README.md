@@ -1,6 +1,6 @@
 **Hurricane Ian’s Devastation Shows the Challenge of Pricing Climate Risk**\
 `As severe weather events become more frequent, pricing the risk associated with them will only get trickier.`\
-https://nytimes.com/2022/09/29/business/hurricane-ians-devastation-shows-the-challenge-of-pricing-climate-risk.html?searchResultPosition=1
+https://nytimes.com/2022/09/29/business/hurricane-ian-damage-risk.html?searchResultPosition=1
 
 **Homes for Sale in New York and Connecticut**\
 `This week’s properties are four-bedroom homes in Port Chester, N.Y., and Fairfield, Conn.`\
