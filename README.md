@@ -1,4 +1,4 @@
-**As Mortgage Rates Soar, the Housing Market Takes Another Hit**\
+**With Mortgage Rates Soaring, the Housing Market Takes Another Hit**\
 `As the average 30-year mortgage rate eclipses 7 percent, home buyers and sellers are confronting sticker shock.`\
 https://nytimes.com/2022/09/29/realestate/mortgage-rates-home-prices.html?searchResultPosition=1
 
