@@ -10,13 +10,13 @@ https://nytimes.com/2022/09/29/us/lee-county-death-toll-hundreds-unconfirmed.htm
 `As one jeweler put it, many of her L.G.B.T.Q. clients want “the opposite of what a diamond is supposed to stand for.” Sapphires, opals and other nontraditional stones have in turn grown more coveted.`\
 https://nytimes.com/2022/09/29/style/queer-gay-engagement-rings.html?searchResultPosition=3
 
-**Donald Can’t Quit Maggie**\
-`A Times reporter’s new biography of Trump shows the boundlessness of his self-regard.`\
-https://nytimes.com/2022/09/29/opinion/donald-trump-maggie-haberman.html?searchResultPosition=4
-
 **Curators for the 2024 Whitney Biennial Are Announced**\
 `Chrissie Iles, a longtime veteran of the museum, and Meg Onli, an important emerging voice in the art world, will organize the 81st edition of the show.`\
-https://nytimes.com/2022/09/29/arts/design/curators-2024-whitney-biennial.html?searchResultPosition=5
+https://nytimes.com/2022/09/29/arts/design/curators-2024-whitney-biennial.html?searchResultPosition=4
+
+**Donald Can’t Quit Maggie**\
+`A Times reporter’s new biography of Trump shows the boundlessness of his self-regard.`\
+https://nytimes.com/2022/09/29/opinion/donald-trump-maggie-haberman.html?searchResultPosition=5
 
 **Guess Who’s Coming to Mordor**\
 `Diversely casting fantasy series like “The Rings of Power” isn’t a betrayal of the story. It’s also just one step in opening up the genre.`\
@@ -31,7 +31,7 @@ https://nytimes.com/video/us/100000008558066/biden-fema-ian-florida.html?searchR
 https://nytimes.com/2022/09/29/business/fed-banks-climate-change.html?searchResultPosition=8
 
 **Zelensky’s Answer to Escalating Russian Threats: Defiance**\
-`In a nightly address, President Volodymyr Zelensky of Ukraine told Russian soldiers: ‘If you want to live, run.’`\
+`In a nightly address, President Volodymyr Zelensky of Ukraine told Russian soldiers: “If you want to live, run.”`\
 https://nytimes.com/2022/09/29/world/europe/zelensky-ukraine-russia-defiance.html?searchResultPosition=9
 
 **On ‘Fossora,’ Björk Is a Daughter, a Mother and a Universe**\
