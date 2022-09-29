@@ -1,40 +1,40 @@
-**Florida has been inundated with rain and storm surge with more in the forecast.**\
-`Ian has already brought a foot of rain to some parts of the state and storm surge of as much as 12 feet in some areas.`\
-https://nytimes.com/2022/09/29/us/florida-forecast-rain-ian.html?searchResultPosition=1
+**15 New Books Coming in October**\
+`A deeply reported history of Covid-19; Maggie Haberman’s look at Donald J. Trump; stories by George Saunders, Alan Moore and Samanta Schweblin; and more.`\
+https://nytimes.com/2022/09/29/books/15-new-books-coming-in-october.html?searchResultPosition=1
 
-**Wrinkles, Wrinkles Everywhere, but They Look So Good**\
-`Dries Van Noten tell the story of us. Plus beauty in imperfection at Undercover and The Row. And Cher at Balmain.`\
-https://nytimes.com/2022/09/29/style/balmain-cher-dries-van-noten-paris-fashion-week.html?searchResultPosition=2
+**The Last Days of an Outback Town Where Every Breath Can Be Toxic**\
+`The town of Wittenoom, ruined by asbestos mining, will be wiped off the face of the earth. But first the government had to remove those who wanted to stay.`\
+https://nytimes.com/2022/09/29/world/australia/wittenoom-asbestos-mining.html?searchResultPosition=2
 
-**On Eve of Election, Bolsonaro’s Party Attacks Brazil’s Voting Systems**\
-`Four days before Brazilians vote, President Jair Bolsonaro’s political party formally claimed, without evidence, that government employees could alter ballots.`\
-https://nytimes.com/2022/09/29/world/americas/election-bolsonaro-brazil-fraud.html?searchResultPosition=3
+**Physician Burnout Has Reached Distressing Levels, New Research Finds**\
+`Nearly two-thirds of doctors are experiencing at least one symptom of burnout, a huge increase from before the pandemic. But the situation is not irreparable, researchers say.`\
+https://nytimes.com/2022/09/29/health/doctor-burnout-pandemic.html?searchResultPosition=3
 
-**Ian strains emergency services in Southwest Florida.**\
-`Officials warned residents to be patient as emergency responders waited for conditions to improve to resume rescue and other efforts.`\
-https://nytimes.com/2022/09/29/us/hurricane-ian-emergency-services-southwest-florida.html?searchResultPosition=4
+**A Notoriously Jinxed Concert Hall Is Reborn, Again**\
+`David Geffen Hall, the New York Philharmonic’s Lincoln Center home, is reopening after a $550 million renovation aimed at breaking its acoustic curse — and adding a dash of glamour.`\
+https://nytimes.com/2022/09/29/arts/music/david-geffen-hall-reopening-lincoln-center.html?searchResultPosition=4
 
-**A Trip to Cover Pakistan’s Destructive Floods, and What’s Left Behind**\
-`Christina Goldbaum, a Times reporter based in Dubai, had to travel by boat in Pakistani places where extreme floods have destroyed entire villages.`\
-https://nytimes.com/2022/09/29/insider/a-trip-to-cover-pakistans-destructive-floods-and-whats-left-behind.html?searchResultPosition=5
+**How McKinsey Got Into the Business of Addiction**\
+`The consulting firm’s work with opioid makers is well known, but for decades McKinsey worked with Big Tobacco and has also advised Juul, the e-cigarette company.`\
+https://nytimes.com/2022/09/29/business/mckinsey-tobacco-juul-opioids.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/09/29/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**He’s Back From Prison. Now He Could Be Brazil’s President — Again.**\
+`Former President Luiz Inácio Lula da Silva is trying to cap a stunning political comeback by defeating the incumbent Jair Bolsonaro in Brazil’s elections on Sunday.`\
+https://nytimes.com/2022/09/29/world/americas/lula-bolsonaro-brazil-election.html?searchResultPosition=6
 
-**Face Filters**\
-`Do you use filters to alter your appearance? Are they fun or harmful?`\
-https://nytimes.com/2022/09/29/learning/face-filters.html?searchResultPosition=7
+**Timeline: The Long, Long Journey to a New David Geffen Hall**\
+`After decades of failed attempts, the New York Philharmonic and Lincoln Center are hoping that the new $550 million renovation has finally fixed the hall.`\
+https://nytimes.com/2022/09/29/arts/music/geffen-hall-philharmonic-timeline.html?searchResultPosition=7
 
-**‘It’s the Stuff You Dream About. It’s Not Even Real.’**\
-`Aaron Judge went seven games without a home run and admitted the chase for No. 61 wore on him. With one swing, he matched Roger Maris’s record. And now he’s ready for more.`\
-https://nytimes.com/2022/09/29/sports/baseball/aaron-judge-home-run-toronto.html?searchResultPosition=8
+**Young and Homeless in Rural America**\
+`Most social services come through the schools — but it can be impossible to get to them.`\
+https://nytimes.com/2022/09/29/magazine/rural-homeless-students.html?searchResultPosition=8
 
-**Australian Economic Adviser Sentenced to Three Years in Myanmar**\
-`Sean Turnell, arrested five days after the military seized power in a coup, has been convicted by the junta of violating the country’s official secrets act.`\
-https://nytimes.com/2022/09/29/world/asia/myanmar-sean-turnell-guilty.html?searchResultPosition=9
+**Where the Wall of Death Is a Way of Life**\
+`To ride a motorcycle in the carnival motordrome, you need to be an alpha dog with sawdust in your veins. Or at least have a driver’s license.`\
+https://nytimes.com/2022/09/29/nyregion/where-the-wall-of-death-is-a-way-of-life.html?searchResultPosition=9
 
-**Word of the Day: rankle**\
-`This word has appeared in 106 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/09/29/learning/word-of-the-day-rankle.html?searchResultPosition=10
+**New Infectious Threats Are Coming. The U.S. Probably Won’t Contain Them.**\
+`The coronavirus revealed flaws in the nation’s pandemic plans. The spread of monkeypox shows that the problems remain deeply entrenched.`\
+https://nytimes.com/2022/09/29/health/pandemic-preparedness-covid-monkeypox.html?searchResultPosition=10
 
