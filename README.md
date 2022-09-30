@@ -4,7 +4,7 @@ https://nytimes.com/2022/09/30/fashion/fashion-laws-regulations.html?searchResul
 
 **Slain Paramedic, ‘Mother of the Station,’ Was Near Retirement**\
 `Lt. Alison Russo-Elling had served nearly 25 years, through Sept. 11 and the Covid pandemic. She loved a tough job enough to volunteer in her free time.`\
-https://nytimes.com/2022/09/30/nyregion/slain-paramedic-mother-of-the-station-was-near-retirement.html?searchResultPosition=2
+https://nytimes.com/2022/09/30/nyregion/alison-russo-fdny-emt-stabbing.html?searchResultPosition=2
 
 **Yusuf al-Qaradawi, Influential Muslim Scholar, Dies at 96**\
 `Considered a moderate by some and an extremist by others, he backed political Islam, attacked Al Qaeda and dispensed advice in a TV show viewed by millions.`\
