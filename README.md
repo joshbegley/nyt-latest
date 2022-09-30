@@ -22,8 +22,8 @@ https://nytimes.com/2022/09/30/sports/baseball/francisco-alvarez-mets-braves.htm
 `Some hospitals on the state’s Gulf Coast were inundated when the storm hit, but even those that weren’t faced serious problems.`\
 https://nytimes.com/2022/09/30/us/florida-hospitals-ian.html?searchResultPosition=6
 
-**Greg Abbott and Beto O’Rourke prepare to debate in a Texas border city.**\
-`Mr. Abbott, the state’s Republican governor, holds a solid polling lead over his Democratic rival in what has been a contentious race.`\
+**Tonight’s debate between Abbott and O’Rourke may be the only one, and it comes at a crucial moment.**\
+`Greg Abbott, the state’s Republican governor, holds a solid polling lead over his Democratic rival in what has been a contentious race.`\
 https://nytimes.com/2022/09/30/us/politics/abbott-beto-debate-texas.html?searchResultPosition=7
 
 **McKinsey Charged in South African Corruption Case**\
