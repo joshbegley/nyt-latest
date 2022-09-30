@@ -1,5 +1,5 @@
 **Trevor Noah Announces He Will Leave ‘The Daily Show’**\
-`Telling his Comedy Central audience that it has been seven years since he replaced Jon Stewart, he says he will depart at a time to be determined.`\
+`During a taping of the Comedy Central program Thursday night, he noted that it has been seven years since he replaced Jon Stewart. He will depart at a time to be determined, he said.`\
 https://nytimes.com/2022/09/29/arts/television/trevor-noah-daily-show.html?searchResultPosition=1
 
 **Tua Tagovailoa Removed From Field After Second Head Hit in Two Games**\
