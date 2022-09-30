@@ -2,7 +2,7 @@
 `The district attorney in Los Angeles County said that the suspects’ actions had “dimmed a bright light in the lives of his fans, friends and most importantly his family.”`\
 https://nytimes.com/2022/09/29/us/pnb-rock-shooting-arrest.html?searchResultPosition=1
 
-**Hurricane Ian Leaves Behind a Staggering Scale of Wreckage in Florida**\
+**Hurricane Ian’s Staggering Scale of Wreckage Becomes Clear in Florida**\
 `The extent of the damage was difficult to comprehend, even for residents who had survived and rebuilt after other powerful storms.`\
 https://nytimes.com/2022/09/29/us/hurricane-ian-florida-damage.html?searchResultPosition=2
 
