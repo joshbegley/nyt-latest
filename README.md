@@ -1,5 +1,5 @@
 **Consumers kept spending in August amid rising earnings.**\
-`By Ben Casselman`\
+`Americans earned more and spent more in August, the latest sign that the economic recovery remains on track despite rising interest rates.`\
 https://nytimes.com/2022/09/30/business/consumer-spending-income.html?searchResultPosition=1
 
 **The Fed’s Preferred Inflation Measure Remains Stubbornly High**\
