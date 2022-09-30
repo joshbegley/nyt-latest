@@ -10,7 +10,7 @@ https://nytimes.com/video/world/europe/100000008560357/putin-signs-decree-annexa
 `Temperatures are falling. It’s time for apples and squash.`\
 https://nytimes.com/2022/09/30/dining/fall-vibes.html?searchResultPosition=3
 
-**In a Game Built on Violence, No Player Is Safe**\
+**N.F.L.’s Concussion Protocol Under Scrutiny After Tagovailoa Hit Hard Again**\
 `The N.F.L. said its concussion protocols were followed when Tua Tagovailoa hit his head on Sunday. On Thursday, the quarterback left the field on a stretcher after a second head hit.`\
 https://nytimes.com/2022/09/30/sports/tua-tagavailoa-nfl-concussion-protocol.html?searchResultPosition=4
 
