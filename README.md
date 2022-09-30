@@ -16,7 +16,7 @@ https://nytimes.com/2022/09/30/us/nsa-espionage-colorado.html?searchResultPositi
 
 **Florida After Hurricane Ian**\
 `Times reporters on the ground take stock of one of the deadliest storms ever to hit the state.`\
-https://nytimes.com/2022/09/30/podcasts/the-daily/hurrican-ian-florida.html?searchResultPosition=5
+https://nytimes.com/2022/09/30/podcasts/the-daily/hurricane-ian-florida.html?searchResultPosition=5
 
 **China Gets Its First mRNA Vaccine Approval — in Indonesia**\
 `Indonesia has cleared an mRNA Covid-19 vaccine developed by a Chinese company. But those types of shots, considered among the most effective, aren’t yet available in China.`\
