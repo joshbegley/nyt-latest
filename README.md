@@ -1,40 +1,40 @@
-**A Sneaker With a Built-In Puddle**\
-`Thinking about oceans of plastic at Paris Fashion Week.`\
-https://nytimes.com/2022/09/30/style/sneakers-botter-paris-fashion-week.html?searchResultPosition=1
+**The New York Times News Quiz, September 30, 2022**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2022/09/30/briefing/30-news-quiz-rihanna-super-bowl-hurricane-ian.html?searchResultPosition=1
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/09/30/crosswords/spelling-bee-forum.html?searchResultPosition=2
+**A Year Under the Taliban**\
+`A single year of extremist rule has turned life upside down for Afghans, especially women. A photographer who has long called the country home captured the jarring changes.`\
+https://nytimes.com/2022/09/30/world/asia/afghanistan-kabul-taliban-women.html?searchResultPosition=2
 
-**Inside the Met’s Plans for a Major Karl Lagerfeld Show**\
-`The Chanel, Fendi and Chloé designer will be the subject of the next Costume Institute blockbuster, even though he famously hated museum retrospectives.`\
-https://nytimes.com/2022/09/30/style/karl-lagerfeld-metropolitan-museum-of-art-costume-institute.html?searchResultPosition=3
+**Even as Iranians Rise Up, Protests Worldwide Are Failing at Record Rates**\
+`Mass protests, once a grave threat to even the fiercest autocrat, have plummeted in effectiveness, a study shows. Factors appear to include polarization, social media and rising nationalist attitudes.`\
+https://nytimes.com/2022/09/30/world/middleeast/iran-protests-haiti-russia-china.html?searchResultPosition=3
 
-**Word of the Day: bedlam**\
-`This word has appeared in 28 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/09/30/learning/word-of-the-day-bedlam.html?searchResultPosition=4
+**The Secret Lives of Sperm Whales**\
+`Deep in waters rarely seen by humans, these “gentle goliaths” are back from near-extinction.`\
+https://nytimes.com/2022/09/30/books/review/sperm-whales-gaelin-rosenwaks.html?searchResultPosition=4
 
-**After 7 Years on ‘The Daily Show,’ Trevor Noah Says ‘It’s Time’ to Depart**\
-`“It’s not instant. I’m not disappearing. Don’t worry. If I owe you money, I’ll still pay you,” Noah joked.`\
-https://nytimes.com/2022/09/30/arts/television/daily-show-trevor-noah-leaving.html?searchResultPosition=5
+**For 20-Somethings, a Confusing Rite of Passage: Finding Health Insurance**\
+`Whether you’re turning 26 and about to age out of a parent’s plan or just landing a job with benefits, finding coverage is a tricky task.`\
+https://nytimes.com/2022/09/30/business/health-insurance-obamacare-young-adults.html?searchResultPosition=5
 
-**Countering China, the U.S. Signs a Broad Deal to Aid Pacific Nations**\
-`Beijing’s inroads in a strategic region are pushing the Biden administration to shore up withered ties.`\
-https://nytimes.com/2022/09/30/world/asia/pacific-islands-summit-washington.html?searchResultPosition=6
+**French Feminist Rabbi Captivates Multifaith Crowds With Musings on Mortality**\
+`With Paris locked down over Passover, a rabbi started holding weekly talks over Zoom about Jewish texts. Thousands have tuned in to hear her reflections on death. “She is my rabbi,” said an atheist.`\
+https://nytimes.com/2022/09/30/world/europe/delphine-horvilleur-rabbi-judaism.html?searchResultPosition=6
 
-**These 12 College Students Don’t Like The System They’re In**\
-`Twelve college students spoke with Times Opinion about affirmative action, free speech, ideological diversity on campus and more.`\
-https://nytimes.com/interactive/2022/09/30/opinion/focus-group-college-students.html?searchResultPosition=7
+**Why Unpaid Labor Is More Likely to Hurt Women’s Mental Health Than Men’s**\
+`Women generally have long hours of housework and care duties on top of a job, while men have less time-sensitive chores like lawn mowing.`\
+https://nytimes.com/2022/09/30/upshot/women-mental-health-labor.html?searchResultPosition=7
 
-**Your Friday Briefing**\
-`Russia moves to annex Ukrainian territory.`\
-https://nytimes.com/2022/09/30/briefing/russia-annex-brazil-hurricane-europe.html?searchResultPosition=8
+**Are Driverless Cars the Future of Transportation?**\
+`Would you want to ride in one?`\
+https://nytimes.com/2022/09/30/learning/are-driverless-cars-the-future-of-transportation.html?searchResultPosition=8
 
-**Crisis in Iran Inspires a Cartoonist in New York**\
-`Nasrin Sheykhi drew a powerful caricature after the death of Mahsa Amini in the custody of Iran’s morality police.`\
-https://nytimes.com/2022/09/30/nyregion/mahsa-amini-iran-cartoonist.html?searchResultPosition=9
+**A Nobelist’s New Novel, Rife With Pestilence and Writerly Tricks**\
+`Set on an imaginary island at the twilight of the Ottoman Empire, “Nights of Plague,” by the Turkish novelist Orhan Pamuk, is a chronicle of an epidemic, a murder mystery and a winking literary game.`\
+https://nytimes.com/2022/09/30/books/review/nights-of-plague-orhan-pamuk.html?searchResultPosition=9
 
-**Poem: Moon for Aisha**\
-`Some friendships are so special they seem to exist before, during and after time.`\
-https://nytimes.com/2022/09/30/magazine/poem-moon-for-aisha.html?searchResultPosition=10
+**Gerrymandering Isn’t Giving Republicans the Advantage You Might Expect**\
+`Yes, the G.O.P. has a structural edge in the House, but it isn’t anything near insurmountable for Democrats.`\
+https://nytimes.com/2022/09/30/upshot/midterms-gerrymandering-republicans.html?searchResultPosition=10
 
