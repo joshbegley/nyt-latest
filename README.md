@@ -18,7 +18,7 @@ https://nytimes.com/2022/09/30/us/politics/abbott-beto-debate-texas.html?searchR
 `The South African branch of the global consulting firm has been charged in a corruption scandal related to its work with the country’s state-owned freight rail and port operator.`\
 https://nytimes.com/2022/09/30/world/africa/mckinsey-corruption-case-south-africa.html?searchResultPosition=5
 
-**Eric Adams Confidant Is Among New York’s Highest Paid City Employees**\
+**Eric Adams Confidant Is Among New York’s Highest Paid Public Employees**\
 `The city had initially declined to reveal the salary of Timothy Pearson, who left a second job at a casino over the summer.`\
 https://nytimes.com/2022/09/30/nyregion/eric-adams-pearson-salary-nyc.html?searchResultPosition=6
 
