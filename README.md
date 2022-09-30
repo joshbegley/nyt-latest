@@ -10,7 +10,7 @@ https://nytimes.com/2022/09/30/us/ian-tv-weather-reporters.html?searchResultPosi
 `The losses in tech stocks and bonds is wrecking investor portfolios, and analysts warn of more sell-offs.`\
 https://nytimes.com/2022/09/30/business/tech-stocks-bonds-nasdaq-bear-market.html?searchResultPosition=3
 
-**As Brazil Goes to the Polls, It’s a Far-Right Leader Vs. a Former Leftist President**\
+**Lula vs. Bolsonaro: What to Know About Brazil’s Election**\
 `Jair Bolsonaro has questioned the integrity of Sunday’s election and trails in polls to Luiz Inácio Lula da Silva, a leftist and former president, who was imprisoned amid a corruption scandal.`\
 https://nytimes.com/2022/09/30/world/americas/brazil-election-bolsonaro-lula.html?searchResultPosition=4
 
