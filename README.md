@@ -14,8 +14,8 @@ https://nytimes.com/2022/09/30/us/politics/house-vote-911-fund.html?searchResult
 `The U.S. imposed new sanctions on Russian officials and companies, and penalized foreign businesses aiding the Russian military. But officials are holding back on energy sanctions.`\
 https://nytimes.com/2022/09/30/us/biden-putin-russia-ukraine.html?searchResultPosition=4
 
-**What Putin’s ‘Outcrazy Your Opponent’ Strategy Means for the World**\
-`Putin is turning Russia into North Korea.`\
+**Putin Is Trying to Outcrazy the West**\
+`He has set in motion forces that are turning Russia into a giant North Korea.`\
 https://nytimes.com/2022/09/30/opinion/putin-russia-ukraine.html?searchResultPosition=5
 
 **‘I’m Going to Play My Game’: The Mets Call Up Francisco Álvarez**\
