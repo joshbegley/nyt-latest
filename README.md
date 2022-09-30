@@ -1,4 +1,4 @@
-**Work From Home Isn’t for Everyone**\
+**Some People Get to Stay Home. Get Over It.**\
 `It may seem unfair that your colleagues have been granted an exception, but resenting them won’t get you a remote-only job.`\
 https://nytimes.com/2022/09/30/business/roxane-gay-remote-work.html?searchResultPosition=1
 
