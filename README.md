@@ -12,7 +12,7 @@ https://nytimes.com/2022/09/30/us/politics/trump-executive-privilege.html?search
 
 **Watch Live: Gov. Desantis Delivers Update on Hurricane Ian Recovery**\
 `The Florida governor gives an update on recovery efforts after Hurricane Ian devastated parts of the state.`\
-https://nytimes.com/video/us/100000008561306/desantis-hurricane-ian.html?searchResultPosition=4
+https://nytimes.com/video/embedded/us/100000008561306/desantis-hurricane-ian.html?searchResultPosition=4
 
 **Maurice Kanbar, Who Defuzzed Sweaters and Defanged Vodka, Dies at 93**\
 `He was a busy inventor, entrepreneur and investor (movie theaters, real estate, a “super food” and more) whose Skyy Vodka was, he claimed, hangover-free.`\
