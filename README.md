@@ -1,6 +1,6 @@
 **Rachel Nichols Joins Showtime After Contentious ESPN Exit**\
 `Nichols was pulled from the air at ESPN last year after The New York Times reported on disparaging comments that Nichols, who is white, had made about a Black colleague.`\
-https://nytimes.com/2022/09/30/sports/basketball/rachel-nichols-joins-showtime-after-contentious-espn-exit.html?searchResultPosition=1
+https://nytimes.com/2022/09/30/sports/basketball/rachel-nichols-showtime-espn-maria-taylor.html?searchResultPosition=1
 
 **Putin’s Illegal Annexation**\
 `The Russian president said residents of four regions in Ukraine would become Russian citizens “forever.”`\
