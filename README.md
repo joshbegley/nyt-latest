@@ -2,7 +2,7 @@
 `The strikes killed a total of 30 civilians and wounded 107 in one of the bloodiest attacks in recent weeks.`\
 https://nytimes.com/2022/09/30/world/europe/russian-strikes-ukraine.html?searchResultPosition=1
 
-**Museums Vote to Allow Sale of Art to Care for Collections**\
+**Museums Vote to Allow the Sale of Art to Care for Collections**\
 `A policy of the Association of Art Museum Directors has been loosened to allow the limited use of funds from selling art to pay costs of preserving works.`\
 https://nytimes.com/2022/09/30/arts/design/museum-leaders-vote-deaccessioning.html?searchResultPosition=2
 
