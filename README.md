@@ -27,7 +27,7 @@ https://nytimes.com/2022/09/30/arts/television/this-england-coronavirus.html?sea
 https://nytimes.com/video/us/100000008558765/cape-coral-hurricane-ian-damage.html?searchResultPosition=7
 
 **Shohei Ohtani Makes M.V.P. Case by Flirting With No-Hitter**\
-`Ohtani, a two-way superstar for the Los Angeles Angels, was brilliant for eight innings and is on the verge of yet another feat no player has done in more than 100 years.`\
+`Ohtani, a two-way superstar for the Los Angeles Angels, was brilliant for eight innings and is on the verge of a feat no player has done in more than 100 years.`\
 https://nytimes.com/2022/09/30/sports/baseball/shohei-ohtani-aaron-judge-mvp.html?searchResultPosition=8
 
 **TikTok’s Corn Kid Is Doing Just Fine: The Week in Narrated Articles**\
