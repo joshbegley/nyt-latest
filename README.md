@@ -4,7 +4,7 @@ https://nytimes.com/interactive/2022/09/30/books/review/new-paperbacks.html?sear
 
 **Iran Protests Continue Despite Heavy Crackdowns**\
 `Dozens of people have been killed in nationwide demonstrations that erupted almost two weeks ago after Mahsa Amini, a 22-year-old woman, died in police custody.`\
-https://nytimes.com/2022/09/30/world/middleeast/iran-protests-continue.html?searchResultPosition=2
+https://nytimes.com/2022/09/30/world/middleeast/iran-protests-government-crackdown.html?searchResultPosition=2
 
 **In a Stately Ceremony, Supreme Court Welcomes Justice Ketanji Brown Jackson**\
 `The investiture of Justice Jackson, the first Black woman to serve on the court, was attended by President Biden and other dignitaries.`\
