@@ -20,7 +20,7 @@ https://nytimes.com/2022/09/30/sports/tua-tagavailoa-nfl-concussion-protocol.htm
 
 **Watch Live: Florida Governor Gives Update on Hurricane Ian Aftermath**\
 `Gov. Ron DeSantis of Florida addresses recovery efforts after Hurricane Ian.`\
-https://nytimes.com/video/us/100000008560065/desantis-hurricane-ian.html?searchResultPosition=6
+https://nytimes.com/video/embedded/us/100000008560065/desantis-hurricane-ian.html?searchResultPosition=6
 
 **Miami-Dade Fire Rescue Deploys Crews to the Barrier Islands**\
 `Firefighters from Florida Task Force 1 evacuated residents stranded on Sanibel and Captiva Islands after Hurricane Ian destroyed the bridge that connects them to mainland Florida.`\
