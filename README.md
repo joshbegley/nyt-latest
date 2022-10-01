@@ -34,7 +34,7 @@ https://nytimes.com/2022/10/01/business/lindt-lidl-chocolate-bunnies.html?search
 `Entries for the week of Sept. 26, 2022.`\
 https://nytimes.com/2022/10/01/crosswords/spelling-bee-diary.html?searchResultPosition=9
 
-**Broken glass, blown-out tires and a crater show the violence of a deadly attack on a civilian convoy.**\
-`The strike hit a convoy of people fleeing fighting in Zaporizhzhia Province, killing at least 30.`\
+**Broken glass, blown-out tires and a crater show the violence of a deadly attack in Zaporizhzhia.**\
+`The strike hit a convoy of people fleeing fighting, killing at least 30.`\
 https://nytimes.com/2022/10/01/world/europe/zaporizhzhia-strike.html?searchResultPosition=10
 
