@@ -1,5 +1,5 @@
-**In battered Port Charlotte, the wait for gasoline lasts hours.**\
-`n`\
+**Some Florida Residents Are Facing Long Gas Lines After Hurricane Ian**\
+`At one station, in Port Charlotte, cars stretched for over a mile, while hundreds of others in need carried cans. And lawn chairs.`\
 https://nytimes.com/2022/10/01/us/port-charlotte-florida-gas-lines-ian.html?searchResultPosition=1
 
 **Records From Trump White House Still Missing, National Archives Says**\
@@ -7,7 +7,7 @@ https://nytimes.com/2022/10/01/us/port-charlotte-florida-gas-lines-ian.html?sear
 https://nytimes.com/2022/10/01/us/politics/trump-white-house-records-national-archives.html?searchResultPosition=2
 
 **American Prisoners Are Released From Venezuela and Iran**\
-`Caracas released seven Americans in a trade for two nephews of Venezuela’s first lady who had been convicted on drug charges. Separately, Tehran released its longest-held American prisoner.`\
+`Caracas let go seven Americans in a trade for two nephews of Venezuela’s first lady who had been convicted on drug charges. Separately, Tehran freed its longest-held American prisoner.`\
 https://nytimes.com/2022/10/01/us/venezuela-iran-prisoner-swap.html?searchResultPosition=3
 
 **The Guardians of the Future**\
