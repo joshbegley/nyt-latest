@@ -31,7 +31,7 @@ https://nytimes.com/2022/10/01/us/port-charlotte-florida-gas-lines-ian.html?sear
 https://nytimes.com/2022/10/01/us/politics/trump-white-house-records-national-archives.html?searchResultPosition=8
 
 **American Prisoners Are Released From Venezuela and Iran**\
-`Caracas let go seven Americans in a trade for two nephews of Venezuela’s first lady who had been convicted on drug charges. Separately, Tehran freed its longest-held American prisoner.`\
+`Caracas freed seven Americans in a trade for two nephews of Venezuela’s first lady who had been convicted on drug charges. Separately, Tehran released its longest-held American captive.`\
 https://nytimes.com/2022/10/01/us/venezuela-iran-prisoner-swap.html?searchResultPosition=9
 
 **The Guardians of the Future**\
