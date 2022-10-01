@@ -28,7 +28,7 @@ https://nytimes.com/2022/10/01/world/europe/germany-pipeline-damage-fear.html?se
 
 **5 Takeaways From the Campaign Trail**\
 `Here's a look at the week in political news, including a tightening Senate race in Pennsylvania and a surprisingly competitive governor race in Oregon.`\
-https://nytimes.com/interactive/2022/10/01/us/politics/01pol-burst.html?searchResultPosition=8
+https://nytimes.com/interactive/2022/10/01/us/politics/week-in-midterms-news.html?searchResultPosition=8
 
 **Vladimir Putin’s ‘Medea’**\
 `What does Vlad the Impaler have in store for the world?`\
