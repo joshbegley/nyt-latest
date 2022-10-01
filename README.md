@@ -1,4 +1,4 @@
-**On a Chilly Day, Fans Keep Waiting For Judge’s 62nd Home Run**\
+**On a Chilly Day, Fans Keep Waiting for Judge’s 62nd Home Run**\
 `Baltimore largely pitched around Aaron Judge, who went 0 for 2 with a pair of walks, lowering his average to .313.`\
 https://nytimes.com/2022/10/01/sports/baseball/aaron-judge-yankees-orioles.html?searchResultPosition=1
 
