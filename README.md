@@ -1,4 +1,4 @@
-**The Guardians of the Earth Get Organized**\
+**The Guardians of the Future**\
 `Imagine what could be possible with more funding and support.`\
 https://nytimes.com/2022/10/01/opinion/climate-change-indigenous-activists.html?searchResultPosition=1
 
