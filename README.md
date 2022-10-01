@@ -1,5 +1,5 @@
 **The Guardians of the Future**\
-`Imagine what could be possible with more funding and support.`\
+`It’s time for Indigenous voices to lead the climate fight.`\
 https://nytimes.com/2022/10/01/opinion/climate-change-indigenous-activists.html?searchResultPosition=1
 
 **Will Nostalgia Kill the British Right?**\
