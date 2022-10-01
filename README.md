@@ -1,5 +1,5 @@
 **Federal Judge Rules Against Fair Fight Action in Georgia Voting Lawsuit**\
-`A U.S. District Court judge found that the sections of the state’s election law that cover absentee ballots, voter rolls and voter applications “violate neither the constitution nor the Voting Right Act.”`\
+`A U.S. District Court judge found that the sections of the state’s election law that cover absentee ballots, voter rolls and voter applications “violate neither the constitution nor the Voting Rights Act.”`\
 https://nytimes.com/2022/09/30/us/politics/voting-lawsuit-georgia.html?searchResultPosition=1
 
 **Portraits of Flight From Russia**\
