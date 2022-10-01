@@ -2,7 +2,7 @@
 `The archives said in a letter to the House Oversight Committee that it was seeking electronic messages from unnamed White House officials sent through personal accounts.`\
 https://nytimes.com/2022/10/01/us/politics/trump-white-house-records-national-archives.html?searchResultPosition=1
 
-**American Hostages Are Released From Venezuela and Iran**\
+**American Prisoners Are Released From Venezuela and Iran**\
 `Caracas released seven Americans in a trade for two nephews of Venezuela’s first lady who had been convicted on drug charges. Separately, Tehran released its longest-held American prisoner.`\
 https://nytimes.com/2022/10/01/us/venezuela-iran-prisoner-swap.html?searchResultPosition=2
 
