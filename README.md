@@ -1,40 +1,40 @@
-**How Do You Stop Erling Haaland? You Don’t.**\
-`The Manchester City striker is too big, too fast, too strong, too good. If there’s a secret to keeping him from getting a goal, Manchester United would love to hear it before Sunday.`\
-https://nytimes.com/2022/10/01/sports/soccer/erling-haaland-manchester-city-united.html?searchResultPosition=1
+**Battered by Floods and Trapped in Debt, Pakistani Farmers Struggle to Survive**\
+`The recent flooding has plunged small farmers in sharecropping arrangements further into debt with their landlords — a cycle that has worsened as extreme weather events become increasingly common.`\
+https://nytimes.com/2022/10/01/world/asia/pakistan-flood-farmers.html?searchResultPosition=1
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/10/01/crosswords/spelling-bee-forum.html?searchResultPosition=2
+**The Great Guinea Pig Giveaway Has Begun**\
+`From geckos to chinchillas, small pets were a pandemic balm. Now shelters across the country say they are being surrendered.`\
+https://nytimes.com/2022/10/01/nyregion/the-great-guinea-pig-giveaway-has-begun.html?searchResultPosition=2
 
-**Panic, Bribes, Ditched Cars and a Dash on Foot: Portraits of Flight From Russia**\
-`A mountain pass into Georgia has become a choke point for Russians fleeing the country, many of them men who faced being drafted and sent to fight in Ukraine.`\
-https://nytimes.com/2022/10/01/world/europe/escape-from-russia.html?searchResultPosition=3
+**How an Immigrant Rights Leader Spends His Sundays**\
+`If he’s not greeting arrivals from Texas at the Port Authority Bus Terminal, Murad Awawdeh is with his family.`\
+https://nytimes.com/2022/10/01/nyregion/murad-awawdeh-immigration.html?searchResultPosition=3
 
-**Safety Concerns Overshadow Europe’s First New Gas Link in Decades**\
-`Natural gas is set to flow through a new undersea pipeline between Norway and Poland after suspected sabotage devastated the Nord Stream pipelines.`\
-https://nytimes.com/2022/10/01/business/baltic-pipe-nord-stream.html?searchResultPosition=4
+**British Ruling Pins Blame on Social Media for Teenager’s Suicide**\
+`The internet, according to the ruling, “affected her mental health in a negative way and contributed to her death in a more than minimal way.”`\
+https://nytimes.com/2022/10/01/business/instagram-suicide-ruling-britain.html?searchResultPosition=4
 
-**Corrections: Oct. 1, 2022**\
-`Corrections that appeared in print on Saturday, Oct. 1, 2022.`\
-https://nytimes.com/2022/10/01/pageoneplus/corrections-oct-1-2022.html?searchResultPosition=5
+**Bolsonaro vs. Lula: Brazil Faces Radically Opposed Options in Divisive Election**\
+`Brazilians voting for president on Sunday will choose between two political titans in a contest seen as a major test for one of the world’s largest democracies.`\
+https://nytimes.com/2022/10/01/world/americas/bolsanoro-lula-brazil-election.html?searchResultPosition=5
 
-**Quotation of the Day: Unprepared for Covid and Monkeypox. And the Next Outbreak, Too.**\
-`Quotation of the Day for Saturday, Oct. 1, 2022.`\
-https://nytimes.com/2022/10/01/todayspaper/quotation-of-the-day-unprepared-for-covid-and-monkeypox-and-the-next-outbreak-too.html?searchResultPosition=6
+**In China, Living Not ‘With Covid,’ but With ‘Zero Covid’**\
+`The country’s strict coronavirus restrictions dictate the patterns of daily life, like waiting in line for frequent Covid tests and stocking up on extra groceries in case of lockdown.`\
+https://nytimes.com/2022/10/01/world/asia/china-covid-zero.html?searchResultPosition=6
 
-**Hector Lopez, Who Broke a Baseball Color Barrier, Dies at 93**\
-`A utility player for the powerhouse Yankees of the 1960s, he was named manager of the Triple-A Buffalo Bisons, becoming the first Black manager at minor league baseball’s highest level.`\
-https://nytimes.com/2022/09/30/sports/baseball/hector-lopez-dead.html?searchResultPosition=7
+**Fentanyl Test Strips Highlight Rift in Nation’s Struggle to Combat Drug Deaths**\
+`Proponents say the ability to check drugs for the presence of lethal fentanyl may save lives. But critics say the strips enable drug use.`\
+https://nytimes.com/2022/10/01/health/fantanyl-test-strips.html?searchResultPosition=7
 
-**Snapping the Fingers**\
-`Natan Last drops off a poetic Saturday grid.`\
-https://nytimes.com/2022/09/30/crosswords/daily-puzzle-2022-10-01.html?searchResultPosition=8
+**Fashion Week Comes Home**\
+`Nineteen days and more than 150 shows later, we’ve made it to Paris.`\
+https://nytimes.com/2022/10/01/style/paris-fashion-week-photos.html?searchResultPosition=8
 
-**Florida details 23 deaths from Ian.**\
-`The toll could take weeks to emerge.`\
-https://nytimes.com/2022/09/30/us/hurricane-ian-death-toll-florida.html?searchResultPosition=9
+**Will You Give Matthew M. Williams a Chance?**\
+`The designer of Givenchy wants to outlast fashion’s high turnover.`\
+https://nytimes.com/2022/10/01/style/will-you-give-matthew-m-williams-a-chance.html?searchResultPosition=9
 
-**Federal Judge Rules Against Fair Fight Action in Georgia Voting Lawsuit**\
-`A U.S. District Court judge found that the sections of the state’s election law that cover absentee ballots, voter rolls and voter applications “violate neither the constitution nor the Voting Rights Act.”`\
-https://nytimes.com/2022/09/30/us/politics/voting-lawsuit-georgia.html?searchResultPosition=10
+**Spending on Children Surged During the Pandemic. It Didn’t Last.**\
+`As programs expire, federal spending is returning to prior levels: $1 for every $6 spent on older adults.`\
+https://nytimes.com/2022/10/01/upshot/children-pandemic-spending.html?searchResultPosition=10
 
