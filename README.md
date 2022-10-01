@@ -1,5 +1,5 @@
 **Hector Lopez, Who Broke a Baseball Color Barrier, Dies at 93**\
-`A utility player for the powerhouse Yankees of the 1960s, he was named manager of the Triple-A Buffalo Bisons, becoming the first Black manager at minor-league baseball’s highest level.`\
+`A utility player for the powerhouse Yankees of the 1960s, he was named manager of the Triple-A Buffalo Bisons, becoming the first Black manager at minor league baseball’s highest level.`\
 https://nytimes.com/2022/09/30/sports/baseball/hector-lopez-dead.html?searchResultPosition=1
 
 **Snapping the Fingers**\
