@@ -1,4 +1,4 @@
-**Burkina Faso’s Self-Proclaimed Leader Says Situation Is ‘Under Control’**\
+**Burkina Faso’s Self-Proclaimed Leader Tries to Reassure Country**\
 `Capt. Ibrahim Traoré, who announced a coup on Friday, was greeted by dozens of protesters in the capital, Ouagadougou. Many of them said they wanted Russia to help the country tackle a security crisis.`\
 https://nytimes.com/2022/10/02/world/africa/burkina-faso-coup-france-russia.html?searchResultPosition=1
 
