@@ -10,7 +10,7 @@ https://nytimes.com/interactive/2022/10/02/world/americas/brazil-election-bolson
 `Witnesses said officers fired tear gas indiscriminately into the stands, causing a stampede that led to at least 125 deaths.`\
 https://nytimes.com/2022/10/02/world/asia/indonesia-soccer-stadium-stampede.html?searchResultPosition=3
 
-**Tesla Sold 343,000 Vehicles in Third Quarter, an Increase**\
+**Tesla Sold Record 343,000 Vehicles in Third Quarter**\
 `The increase from the same period last year comes as competition grows among automakers producing electric vehicles in the United States.`\
 https://nytimes.com/2022/10/02/business/tesla-sales.html?searchResultPosition=4
 
