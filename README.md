@@ -1,36 +1,36 @@
+**The Racial Divide Herschel Walker Couldn’t Outrun**\
+`As a teenage football prodigy, Mr. Walker was pressed to join a fight for civil rights in his hometown. His decision echoes decades later.`\
+https://nytimes.com/2022/10/02/us/politics/herschel-walker-georgia-senate-race.html?searchResultPosition=1
+
+**‘Out-of-Reach Dreams’ in a Sickly Economy Provoke the Rage in Iran**\
+`The country’s long economic decline has been one of the main forces sending Iranians into the streets over the past two weeks to demand change.`\
+https://nytimes.com/2022/10/02/world/middleeast/iran-protests-economy.html?searchResultPosition=2
+
+**Preparing to Cover a Wildfire Before it Starts**\
+`Reporters often have little time to prepare before they set out to cover a blaze. To mitigate risk, they adhere to their own guidelines and lean on the experience of others.`\
+https://nytimes.com/2022/10/02/insider/preparing-to-cover-a-wildfire-before-it-starts.html?searchResultPosition=3
+
+**‘I Had Just Left the Office After a Long Day and Was Racing to Union Square’**\
+`A break in the subway routine, a thrifty shopper and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2022/10/02/nyregion/metropolitan-diary.html?searchResultPosition=4
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2022/10/02/crosswords/spelling-bee-forum.html?searchResultPosition=5
+
 **‘S.N.L.’ Season Premiere Weighs in on Its Own Trump Sketch**\
 `The show kicked off its 48th year with a cold open that was also a commentary on the expectations it faces after big cast changes.`\
-https://nytimes.com/2022/10/02/arts/television/snl-miles-teller-kendrick-lamar.html?searchResultPosition=1
+https://nytimes.com/2022/10/02/arts/television/snl-miles-teller-kendrick-lamar.html?searchResultPosition=6
 
 **Quotation of the Day: Election Offers Brazil’s Voters a Momentous Choice Between Opposites**\
 `Quotation of the Day for Sunday, October 2, 2022.`\
-https://nytimes.com/2022/10/02/todayspaper/quotation-of-the-day-election-offers-brazils-voters-a-momentous-choice-between-opposites.html?searchResultPosition=2
+https://nytimes.com/2022/10/02/todayspaper/quotation-of-the-day-election-offers-brazils-voters-a-momentous-choice-between-opposites.html?searchResultPosition=7
 
 **Corrections: Oct. 2, 2022**\
 `Corrections that appeared in print on Sunday, Oct. 2, 2022.`\
-https://nytimes.com/2022/10/02/pageoneplus/corrections-oct-2-2022.html?searchResultPosition=3
+https://nytimes.com/2022/10/02/pageoneplus/corrections-oct-2-2022.html?searchResultPosition=8
 
 **What Hurricane Ian Destroyed in a Florida Beach Town**\
 `Aerial videos and photos show the destruction caused by Hurricane Ian on Fort Myers Beach, Fla.`\
-https://nytimes.com/interactive/2022/10/01/us/hurricane-ian-fort-myers-beach-damage.html?searchResultPosition=4
-
-**Doctor Who Examined Tagovailoa Is Dismissed; N.F.L. Assessing Concussion Rules**\
-`After Miami Dolphins quarterback Tua Tagovailoa sustained two head injuries in the last week, a neurologist who was part of the process that allowed him to return to the field was removed.`\
-https://nytimes.com/2022/10/01/sports/football/tua-tagovailoa-doctor-fired.html?searchResultPosition=6
-
-**On a Chilly Day, Fans Keep Waiting for Judge’s 62nd Home Run**\
-`Baltimore largely pitched around Aaron Judge, who went 0 for 2 with a pair of walks, lowering his average to .313.`\
-https://nytimes.com/2022/10/01/sports/baseball/aaron-judge-yankees-orioles.html?searchResultPosition=7
-
-**Le Puzzle**\
-`Et voilà! Kathy Bloomer makes a Sunday debut with panache.`\
-https://nytimes.com/2022/10/01/crosswords/daily-puzzle-2022-10-02.html?searchResultPosition=8
-
-**Ukraine Forces Retake Lyman, a Strategic City, as Russians Retreat**\
-`Russia’s withdrawal from the city comes one day after Moscow illegally annexed the surrounding region.`\
-https://nytimes.com/2022/10/01/world/europe/lyman-ukraine-russia.html?searchResultPosition=9
-
-**Hurricane Ian Leaves Boats Wedged Between Buildings**\
-`The storm damaged boats and buildings in the Fort Myers Yacht Basin, an area generally considered to be safe to dock a vessel. It also rocked boats lining Fort Myers Beach.`\
-https://nytimes.com/video/us/100000008562299/fort-myers-hurricane-boats.html?searchResultPosition=10
+https://nytimes.com/interactive/2022/10/01/us/hurricane-ian-fort-myers-beach-damage.html?searchResultPosition=9
 
