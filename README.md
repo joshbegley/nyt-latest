@@ -1,5 +1,5 @@
 **Families at the hospital share stories of death and survival.**\
-`Dozens of people sat sat on mats with bags of fruit and bottles of water waiting for their relatives’ name to be called.`\
+`Dozens of people sat on mats with bags of fruit and bottles of water waiting for their relatives’ name to be called.`\
 https://nytimes.com/2022/10/02/world/asia/survivor-stories-indonesia-stadium.html?searchResultPosition=1
 
 **What’s Going On in This Picture? | Oct. 3, 2022**\
