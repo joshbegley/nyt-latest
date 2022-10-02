@@ -1,5 +1,5 @@
-**Doctor Who Examined Tagovailoa Is Dismissed as Questions Mount**\
-`After Miami Dolphins quarterback Tua Tagovailoa sustained two head injuries in the last week, the players’ union removed a neurologist who was part of the process that allowed him to return to the field.`\
+**Doctor Who Examined Tagovailoa Is Dismissed; N.F.L. Assessing Concussion Rules**\
+`After Miami Dolphins quarterback Tua Tagovailoa sustained two head injuries in the last week, a neurologist who was part of the process that allowed him to return to the field was removed.`\
 https://nytimes.com/2022/10/01/sports/football/tua-tagovailoa-doctor-fired.html?searchResultPosition=2
 
 **Riots at Indonesian Soccer Match Leave Several Fans Dead**\
