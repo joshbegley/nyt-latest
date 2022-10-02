@@ -1,40 +1,40 @@
-**This is the latest in a grim history of deadly episodes at soccer stadiums.**\
-`These events have prompted major changes. But fatal tramplings still occur, with more than 150 killed in Indonesia on Saturday.`\
-https://nytimes.com/2022/10/02/world/asia/worst-soccer-deaths.html?searchResultPosition=1
+**Changing Up the Codes**\
+`Top looks from the Met Opera opening night, the New York City Ballet fashion gala and Annabel’s for the Amazon.`\
+https://nytimes.com/2022/10/02/style/fall-fashion-met-opera-nyc-ballet.html?searchResultPosition=1
 
-**The Racial Divide Herschel Walker Couldn’t Outrun**\
-`As a teenage football prodigy, Mr. Walker was pressed to join a fight for civil rights in his hometown. His decision echoes decades later.`\
-https://nytimes.com/2022/10/02/us/politics/herschel-walker-georgia-senate-race.html?searchResultPosition=2
+**As New Term Starts, Supreme Court Poised to Resume Rightward Push**\
+`The justices return to the bench on Monday to start a term that will include major cases on affirmative action, voting and discrimination against gay couples. Several will take on questions about race.`\
+https://nytimes.com/2022/10/02/us/conservative-supreme-court-legitimacy.html?searchResultPosition=2
 
-**‘Out-of-Reach Dreams’ in a Sickly Economy Provoke the Rage in Iran**\
-`The country’s long economic decline has been one of the main forces sending Iranians into the streets over the past two weeks to demand change.`\
-https://nytimes.com/2022/10/02/world/middleeast/iran-protests-economy.html?searchResultPosition=3
+**Once Known for Vaccine Skeptics, Marin Now Tells Them ‘You’re Not Welcome’**\
+`The wealthy California county just north of San Francisco has one of the nation’s highest Covid-19 vaccination rates after years of being known for parents who opposed shots for childhood diseases.`\
+https://nytimes.com/2022/10/02/us/covid-vaccine-marin-california.html?searchResultPosition=3
 
-**Preparing to Cover a Wildfire Before it Starts**\
-`Reporters often have little time to prepare before they set out to cover a blaze. To mitigate risk, they adhere to their own guidelines and lean on the experience of others.`\
-https://nytimes.com/2022/10/02/insider/preparing-to-cover-a-wildfire-before-it-starts.html?searchResultPosition=4
+**‘I Did All I Could’: As Floodwaters Rose, She Fought to Save Her Disabled Brothers**\
+`Darcy Bishop for decades has cared for her two brothers, who have cerebral palsy. Hurricane Ian was her biggest test yet.`\
+https://nytimes.com/2022/10/02/us/sister-ian-rescue-brothers.html?searchResultPosition=4
 
-**‘I Had Just Left the Office After a Long Day and Was Racing to Union Square’**\
-`A break in the subway routine, a thrifty shopper and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2022/10/02/nyregion/metropolitan-diary.html?searchResultPosition=5
+**A New Refrain From Artists: We ‘Almost Gave Up on Instagram’**\
+`Photographers and illustrators who once eagerly shared images of their work on Instagram are moving away from the site as it emphasizes video.`\
+https://nytimes.com/2022/10/02/technology/instagram-artists-video.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/10/02/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**For a Woman on Wall Street, Crude Jokes Weren’t the Worst of It**\
+`In “Bully Market,” Jamie Fiore Higgins describes being seduced, and ultimately repelled, by nearly two high-flying decades at Goldman Sachs.`\
+https://nytimes.com/2022/10/02/books/bully-market-jamie-fiore-higgins.html?searchResultPosition=6
 
-**‘S.N.L.’ Season Premiere Weighs in on Its Own Trump Sketch**\
-`The show kicked off its 48th year with a cold open that was also a commentary on the expectations it faces after big cast changes.`\
-https://nytimes.com/2022/10/02/arts/television/snl-miles-teller-kendrick-lamar.html?searchResultPosition=7
+**Mystery Solved: ‘Dateline’ Finds Path From TV to Podcast Stardom**\
+`The true crime storytelling that has done so well for so long on television seems to have met a moment in an entirely new medium.`\
+https://nytimes.com/2022/10/02/business/media/dateline-podcast-true-crime.html?searchResultPosition=7
 
-**Quotation of the Day: Election Offers Brazil’s Voters a Momentous Choice Between Opposites**\
-`Quotation of the Day for Sunday, October 2, 2022.`\
-https://nytimes.com/2022/10/02/todayspaper/quotation-of-the-day-election-offers-brazils-voters-a-momentous-choice-between-opposites.html?searchResultPosition=8
+**My First Yom Kippur in Exile**\
+`When it became clear that Vladimir Putin would require me to support his war in Ukraine, I had to leave. `\
+https://nytimes.com/2022/10/02/opinion/moscow-rabbi-yom-kippur.html?searchResultPosition=8
 
-**Corrections: Oct. 2, 2022**\
-`Corrections that appeared in print on Sunday, Oct. 2, 2022.`\
-https://nytimes.com/2022/10/02/pageoneplus/corrections-oct-2-2022.html?searchResultPosition=9
+**I Make Video Games. I Won’t Let My Daughters Play Them.**\
+`Parents aren’t doing enough to protect their kids from gaming addiction.`\
+https://nytimes.com/2022/10/02/opinion/video-game-addiction.html?searchResultPosition=9
 
-**What Hurricane Ian Destroyed in a Florida Beach Town**\
-`Aerial videos and photos show the destruction caused by Hurricane Ian on Fort Myers Beach, Fla.`\
-https://nytimes.com/interactive/2022/10/01/us/hurricane-ian-fort-myers-beach-damage.html?searchResultPosition=10
+**Eliud Kipchoge Had an Unexpected Hand in His Record-Setting Runs**\
+`Eliud Kipchoge, the world’s greatest marathoner, has an unlikely partner in his world-record-setting marathon runs: a course volunteer who is responsible for handing him nutrition.`\
+https://nytimes.com/2022/10/02/sports/eliud-kipchoge-bottle-claus.html?searchResultPosition=10
 
