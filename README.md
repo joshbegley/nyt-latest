@@ -10,7 +10,7 @@ https://nytimes.com/2022/10/02/style/self-care/my-year-of-stress-and-constipatio
 `Russia’s president decreed on Friday that four regions of Ukraine including Donetsk, where Lyman is located, would be absorbed into Russia.`\
 https://nytimes.com/2022/10/02/world/europe/putin-russia-donetsk-lyman.html?searchResultPosition=3
 
-**Hurricane Orlene Expected to Hit Western Mexico by Monday**\
+**Hurricane Orlene Expected to Hit Western Mexico On Monday**\
 `Orlene, a Category 3 storm, could bring as much as 14 inches of rain to some areas, forecasters said.`\
 https://nytimes.com/article/orlene-hurricane.html?searchResultPosition=4
 
