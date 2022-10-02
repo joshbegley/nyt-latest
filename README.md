@@ -10,8 +10,8 @@ https://nytimes.com/interactive/2022/10/01/us/hurricane-ian-fort-myers-beach-dam
 `After Miami Dolphins quarterback Tua Tagovailoa sustained two head injuries in the last week, a neurologist who was part of the process that allowed him to return to the field was removed.`\
 https://nytimes.com/2022/10/01/sports/football/tua-tagovailoa-doctor-fired.html?searchResultPosition=4
 
-**More Than 100 Dead in Unrest After Indonesian Soccer Match**\
-`After a home team loss, fans rushed the field and were confronted by the police, who used tear gas. In the panic that ensued, many were trampled.`\
+**More Than 150 Dead in Unrest After Indonesian Soccer Match**\
+`After a home team loss, fans ran onto the field and were confronted by the police, who used tear gas. In the panic that ensued, many were trampled.`\
 https://nytimes.com/2022/10/01/world/asia/indonesia-soccer-football-dead-arema-persebaya-surabaya.html?searchResultPosition=5
 
 **On a Chilly Day, Fans Keep Waiting for Judge’s 62nd Home Run**\
