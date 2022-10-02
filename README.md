@@ -12,7 +12,7 @@ https://nytimes.com/2022/10/02/pageoneplus/corrections-oct-2-2022.html?searchRes
 
 **Biden will visit Puerto Rico and Florida to assess damage from storms.**\
 `Trips on Monday and Wednesday are planned to the sites of the natural disasters.`\
-https://nytimes.com/2022/10/01/us/biden-florida-puerto-rico.html?searchResultPosition=4
+https://nytimes.com/live/2022/10/01/us/hurricane-ian-florida-south-carolina/biden-florida-puerto-rico?searchResultPosition=4
 
 **What Hurricane Ian Destroyed in a Florida Beach Town**\
 `Aerial videos and photos show the destruction caused by Hurricane Ian on Fort Myers Beach, Fla.`\
