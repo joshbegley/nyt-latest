@@ -26,15 +26,15 @@ https://nytimes.com/2022/10/02/world/europe/uk-kwasi-kwarteng-truss-economy.html
 `Brazil votes for president today. Jack Nicas, the bureau chief there, explains what’s at stake.`\
 https://nytimes.com/2022/10/02/briefing/a-choice-between-two-heavyweights.html?searchResultPosition=7
 
+**Four people in North Carolina have died in the remnants of Hurricane Ian.**\
+`Gov. Roy Cooper’s office said three of the deaths were in vehicles, and a fourth was from carbon monoxide poisoning.`\
+https://nytimes.com/2022/10/02/us/north-carolina-deaths.html?searchResultPosition=8
+
 **The Week in Business: Market Chaos in Britain**\
 `Wall Street volatility continued. Tallying the costs of Hurricane Ian has just begun. And a report on the strength of the job market is coming this week.`\
-https://nytimes.com/2022/10/02/business/the-week-in-business-markets-britain-pound.html?searchResultPosition=8
+https://nytimes.com/2022/10/02/business/the-week-in-business-markets-britain-pound.html?searchResultPosition=9
 
 **The Sunday Read: ‘The Safe Space That Became a Viral Nightmare’**\
 `An argument at Arizona State’s multicultural center spiraled into a disaster for everyone involved. Who was to blame?`\
-https://nytimes.com/2022/10/02/podcasts/the-daily/the-sunday-read-the-safe-space-that-became-a-viral-nightmare.html?searchResultPosition=9
-
-**Comme des Garçons and Co. Show Everyone What They’ve Been Missing**\
-`Bring on the mayhem and magic of weirdness. Plus a bit of surrealism at Loewe, and Victoria Beckham’s Paris debut.`\
-https://nytimes.com/2022/10/02/style/comme-des-garcons-loewe-paris-fashion-week.html?searchResultPosition=10
+https://nytimes.com/2022/10/02/podcasts/the-daily/the-sunday-read-the-safe-space-that-became-a-viral-nightmare.html?searchResultPosition=10
 
