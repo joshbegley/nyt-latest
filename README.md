@@ -26,7 +26,7 @@ https://nytimes.com/2022/10/02/world/asia/police-indonesia-soccer.html?searchRes
 `After losing games started by Jacob deGrom and Max Scherzer, the Mets are suddenly trailing in the N.L. East with time running out on the season.`\
 https://nytimes.com/2022/10/02/sports/baseball/mets-braves-nl-east.html?searchResultPosition=7
 
-**Families at the hospital share stories of death and survival.**\
+**Sorrow and anger mix as families and Arema supporters mourn the victims.**\
 `Dozens of people sat on mats with bags of fruit and bottles of water waiting for their relatives’ name to be called.`\
 https://nytimes.com/2022/10/02/world/asia/survivor-stories-indonesia-stadium.html?searchResultPosition=8
 
