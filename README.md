@@ -15,7 +15,7 @@ https://nytimes.com/2022/10/02/world/europe/ukraine-russia-lyman.html?searchResu
 https://nytimes.com/2022/10/02/crosswords/daily-puzzle-2022-10-03.html?searchResultPosition=4
 
 **On the Scene: Hurricane Ian Rescue Missions**\
-`I joined a rescue effort to one of the hardest-hit communities in Florida.`\
+`I joined a rescue operation to one of the hardest-hit communities in Florida.`\
 https://nytimes.com/interactive/2022/10/02/us/hurricane-ian-rescue-pine-island.html?searchResultPosition=5
 
 **OPEC Plus Considering Major Production Cut to Prop Up Oil Prices**\
