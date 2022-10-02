@@ -1,4 +1,4 @@
-**Rainy Victory Leaves Eagles as the N.F.L.’s Only Undefeated Team**\
+**Eagles Remain the N.F.L.’s Only Undefeated Team**\
 `The Eagles chugged along in Philadelphia, helped by Jaguars quarterback Trevor Lawrence’s four fumbles.`\
 https://nytimes.com/2022/10/02/sports/football/eagles-jaguars-score.html?searchResultPosition=1
 
