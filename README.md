@@ -7,8 +7,8 @@ https://nytimes.com/2022/10/02/sports/football/eagles-jaguars-score.html?searchR
 https://nytimes.com/video/us/100000008563333/florida-hurricane-rescue.html?searchResultPosition=2
 
 **Nord Stream pipelines have stopped leaking, the Danish Energy Agency says.**\
-`By Carly Olson`\
-https://nytimes.com/2022/10/02/world/europe/nord-stream-pipelines-have-stopped-leaking-the-danish-energy-agency-says.html?searchResultPosition=3
+`Both European and Russian leaders have said that ruptures discovered undersea were an act of sabotage.`\
+https://nytimes.com/2022/10/02/world/europe/nord-stream-pipeline-damage-russia.html?searchResultPosition=3
 
 **Antonio Inoki, Japanese Wrestler and Improbable Diplomat, Dies at 79**\
 `After gaining fame for an odd 1976 bout with Muhammad Ali, he became a politician and globe-traveling broker of peace.`\
