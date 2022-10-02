@@ -18,7 +18,7 @@ https://nytimes.com/2022/10/02/world/africa/burkina-faso-coup-france-russia.html
 `The Christian singer-songwriter, who died at age 41 in a car crash, has a legacy that lives on.`\
 https://nytimes.com/2022/10/02/opinion/rich-mullins-death-anniversary.html?searchResultPosition=5
 
-**While deaths are rare at soccer games, aggressive policing can light a match.**\
+**Deaths Are Rare at Soccer Games, but Aggressive Policing Can Light a Match**\
 `This is not the first time this year that the sport has had to confront the reality that tragedies often result from failures of policing, security and crowd management.`\
 https://nytimes.com/2022/10/02/world/asia/police-indonesia-soccer.html?searchResultPosition=6
 
