@@ -34,7 +34,7 @@ https://nytimes.com/2022/10/02/opinion/rich-mullins-death-anniversary.html?searc
 `This is not the first time this year that the sport has had to confront the reality that tragedies often result from failures of policing, security and crowd management.`\
 https://nytimes.com/2022/10/02/world/asia/police-indonesia-soccer.html?searchResultPosition=9
 
-**Mets Offered Their ‘Best Shots,’ but Atlanta Hit Back**\
+**Mets Offer Their ‘Best Shots,’ but Atlanta Hits Back**\
 `After losing games started by Jacob deGrom and Max Scherzer, the Mets are suddenly trailing in the N.L. East with time running out on the season.`\
 https://nytimes.com/2022/10/02/sports/baseball/mets-braves-nl-east.html?searchResultPosition=10
 
