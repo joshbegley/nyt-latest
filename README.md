@@ -1,4 +1,4 @@
-**Tesla Sold 343,000 Vehicles Sold in Third Quarter, an Increase**\
+**Tesla Sold 343,000 Vehicles in Third Quarter, an Increase**\
 `The increase from the same period last year comes as competition grows among automakers producing electric vehicles in the United States.`\
 https://nytimes.com/2022/10/02/business/tesla-sales.html?searchResultPosition=1
 
