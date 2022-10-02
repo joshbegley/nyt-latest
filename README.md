@@ -1,4 +1,4 @@
-**Fans Blame Police After More Than 100 Die at Indonesian Soccer Match**\
+**Fans Focus on Police After More Than 100 Die at Indonesian Soccer Match**\
 `Witnesses said officers fired tear gas indiscriminately into the stands, causing a stampede that led to at least 125 deaths.`\
 https://nytimes.com/2022/10/02/world/asia/indonesia-soccer-stadium-stampede.html?searchResultPosition=1
 
