@@ -11,7 +11,7 @@ https://nytimes.com/article/orlene-hurricane.html?searchResultPosition=2
 https://nytimes.com/2022/10/02/movies/bros-smile-box-office.html?searchResultPosition=3
 
 **America Has a Ginni Thomas Problem**\
-`Clarence and Ginny Thomas are Mr. and Mrs. Mutiny.`\
+`Clarence and Ginni Thomas are Mr. and Mrs. Mutiny.`\
 https://nytimes.com/2022/10/02/opinion/ginni-clarence-thomas.html?searchResultPosition=4
 
 **Brasil vota por su próximo presidente**\
