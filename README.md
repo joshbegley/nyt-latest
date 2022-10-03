@@ -24,7 +24,7 @@ https://nytimes.com/2022/10/03/world/europe/elon-musk-ukraine-war-tweets.html?se
 
 **6 Takeaways From the Report on Sexual Misconduct in Women’s Soccer**\
 `The report focused on three coaches who have been accused of abuse and the lack of action by leaders at U.S. Soccer and the National Women’s Soccer League.`\
-https://nytimes.com/2022/10/03/sports/soccer/takeaways-from-the-ussoccer-report-on-sexual-misconduct.html?searchResultPosition=7
+https://nytimes.com/2022/10/03/sports/soccer/soccer-abuse-report-takeaways.html?searchResultPosition=7
 
 **Election Deniers in U.S. Push Idea That Brazil’s Voting Was Tainted**\
 `Some prominent election denialists in the United States are using Brazil to try to whip up concern about the approaching midterms.`\
