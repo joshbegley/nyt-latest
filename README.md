@@ -1,6 +1,6 @@
 **Credit Suisse Takes a Hit Over Investor Fears**\
 `Shares in the troubled Swiss banking giant sunk on Monday as investors worry it may not pull off a risky turnaround plan.`\
-https://nytimes.com/2022/10/03/business/dealbook/swiss-bank-credit-suisse-share-fall-turnaround.html?searchResultPosition=1
+https://nytimes.com/2022/10/03/business/dealbook/credit-suisse-share-fall-turnaround.html?searchResultPosition=1
 
 **Second-Guessing on Fourth-and-Goal: Why Did the Ravens Go for It?**\
 `Coach John Harbaugh’s aggressive call in the final minutes against Buffalo went against conventional wisdom. When it didn’t work, he was left with a loss and some hard questions.`\
