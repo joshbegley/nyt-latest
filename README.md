@@ -35,6 +35,6 @@ https://nytimes.com/2022/10/03/arts/design/victoria-and-albert-museum-sacklers.h
 https://nytimes.com/2022/10/03/theater/mud-drowning-review.html?searchResultPosition=9
 
 **Deadly Soccer Clash in Indonesia Puts Police Tactics, and Impunity, in Spotlight**\
-`Experts say officers are almost never held accountable for their actions. And in a huge police budget, billions are spent on tear gas, batons and other devices deployed during protests.`\
+`Experts say officers are almost never held accountable for their actions. And in a huge police budget, millions are spent on tear gas, batons and other devices deployed during protests.`\
 https://nytimes.com/2022/10/03/world/asia/indonesia-soccer-stadium-stampede.html?searchResultPosition=10
 
