@@ -7,7 +7,7 @@ https://nytimes.com/2022/10/03/world/middleeast/iran-ayatollah-khameini-protests
 https://nytimes.com/2022/10/03/arts/music/wilco-yankee-hotel-foxtrot.html?searchResultPosition=2
 
 **A Silicon Valley County Battles With Uber Over Reporting of Sexual Assault**\
-`Uber does not inform the police of such incidents, citing advocacy group guidelines. But officials in a California county argue that it should.`\
+`Uber does not inform the police of such incidents, citing advocacy group guidelines. But officials in Santa Clara County argue that it should.`\
 https://nytimes.com/2022/10/03/technology/uber-sexual-assault-reporting-santa-clara-county.html?searchResultPosition=3
 
 **Read the Report on Abuse in Women’s Soccer**\
