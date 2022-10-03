@@ -1,14 +1,14 @@
+**A Silicon Valley County Battles With Uber Over Reporting of Sexual Assault**\
+`Uber does not inform the police of such incidents, citing advocacy group guidelines. But officials in a California district argue that it should.`\
+https://nytimes.com/2022/10/03/technology/uber-sexual-assault-reporting-santa-clara-county.html?searchResultPosition=1
+
 **Read the Report on Abuse in Women’s Soccer**\
 `An investigative report commissioned by the United States Soccer Federation found sexual misconduct, verbal abuse and emotional abuse by coaches in the National Women’s Soccer League.`\
-https://nytimes.com/interactive/2022/10/03/sports/soccer/soccer-abuse-read-report.html?searchResultPosition=1
+https://nytimes.com/interactive/2022/10/03/sports/soccer/soccer-abuse-read-report.html?searchResultPosition=2
 
 **The Return of Midnight Basketball and Its Oakland Community**\
 `A once-politicized program has made a comeback, and its organizers hope it can give young Black men a place to escape a troubled city.`\
-https://nytimes.com/2022/10/03/sports/midnight-basketball-oakland-community.html?searchResultPosition=2
-
-**Read the Report on Abuse in Women’s Soccer**\
-`An investigative report commissioned by the United States Soccer Federation found sexual misconduct, verbal abuse and emotional abuse by coaches in the National Women’s Soccer League.`\
-https://nytimes.com/interactive/2022/10/03/sports/soccer/soccer-abuse-report-read.html?searchResultPosition=3
+https://nytimes.com/2022/10/03/sports/midnight-basketball-oakland-community.html?searchResultPosition=3
 
 **Geneticist Awarded Nobel Prize for Discoveries in Human Evolution**\
 `The Swedish geneticist Svante Pääbo’s work unveiled the Neanderthal genome in 2010, opening the door to investigatory questions about how early humans relate to and differ from modern ones.`\
