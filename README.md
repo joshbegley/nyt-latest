@@ -22,7 +22,7 @@ https://nytimes.com/2022/10/03/arts/television/cop-shows-after-george-floyd.html
 `By Melissa Clark`\
 https://nytimes.com/2022/10/03/dining/fluffy-cheddar-biscuits-and-a-cocktail.html?searchResultPosition=6
 
-**Doorbell Cameras Offer Glimpse Into Hurricane Ian’s Devastation**\
+**Doorbell Cameras Offer Intimate Glimpse of Hurricane Ian**\
 `Many Florida residents who evacuated Hurricane Ian were able to monitor the storm in real time using their home camera security systems.`\
 https://nytimes.com/video/us/100000008564077/hurricane-ian-doorbell-video.html?searchResultPosition=7
 
