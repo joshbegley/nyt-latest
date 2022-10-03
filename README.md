@@ -6,7 +6,7 @@ https://nytimes.com/2022/10/03/us/politics/election-deniers-brazil-midterms.html
 `The former president has a history of threatening, and occasionally filing, lawsuits against media organizations whose coverage he deems unfair.`\
 https://nytimes.com/2022/10/03/business/media/trump-cnn-lawsuit.html?searchResultPosition=2
 
-**Hotel Lobby Killing Leads Police to Bomb Components in Suspects’ Room**\
+**Bomb Parts Found at Hotel Where Father Was Shot Dead on College Visit**\
 `The father of a student at Marist College in Poughkeepsie was fatally shot in an incident that the police said appeared to be random.`\
 https://nytimes.com/2022/10/03/nyregion/poughkeepsie-hotel-shooting-marist-college.html?searchResultPosition=3
 
