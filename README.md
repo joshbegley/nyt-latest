@@ -28,7 +28,7 @@ https://nytimes.com/2022/10/03/pageoneplus/no-corrections-oct-3-2022.html?search
 
 **This Is What Life After the N.B.A. Looks Like**\
 `Life is good for some N.B.A. retirees who use millions in earnings to do whatever they want. But others say they have struggled to find a new identity without basketball.`\
-https://nytimes.com/2022/10/03/sports/basketball/this-is-what-life-after-the-nba-looks-like.html?searchResultPosition=8
+https://nytimes.com/2022/10/03/sports/basketball/nba-retirement.html?searchResultPosition=8
 
 **I Lived in Russia? Annexation Is News to Key City Reclaimed by Ukraine**\
 `Without access to electricity, radios or the internet, residents of Lyman said they were unaware of President Vladimir V. Putin’s grandiose celebration of an illegal land grab.`\
