@@ -19,7 +19,7 @@ https://nytimes.com/2022/10/03/us/perla-migrant-flights-marthas-vineyard.html?se
 https://nytimes.com/2022/10/03/business/zelle-fraud-warren.html?searchResultPosition=5
 
 **Top Republican Pledges to Make House Intelligence Committee Less Partisan**\
-`If Republicans take Congress, Rep. Mike Turner wants to restore the focus on oversight and critical national security issues, but he will likely come under pressure from members of his own party.`\
+`If Republicans take Congress, Representative Michael R. Turner says, he wants to focus on oversight and national security issues. But he is likely to face pressure from his own party.`\
 https://nytimes.com/2022/10/03/us/politics/turner-house-intelligence-committee.html?searchResultPosition=6
 
 **Your Monday Evening Briefing**\
