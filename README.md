@@ -1,5 +1,5 @@
 **A Silicon Valley County Battles With Uber Over Reporting of Sexual Assault**\
-`Uber does not inform the police of such incidents, citing advocacy group guidelines. But officials in a California district argue that it should.`\
+`Uber does not inform the police of such incidents, citing advocacy group guidelines. But officials in a California county argue that it should.`\
 https://nytimes.com/2022/10/03/technology/uber-sexual-assault-reporting-santa-clara-county.html?searchResultPosition=1
 
 **Read the Report on Abuse in Women’s Soccer**\
