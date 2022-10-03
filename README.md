@@ -3,7 +3,7 @@
 https://nytimes.com/2022/10/02/theater/baldwin-buckley-at-cambridge-review.html?searchResultPosition=1
 
 **What We Learned From Week 4 in the N.F.L.**\
-`The Steelers are testing out a new quarterback, Lamar Jackson needs more help, and Geno Smith is cooking in the new-look Seahawks offense.`\
+`The Steelers are testing out a new quarterback, Baker Mayfield is struggling to hit an already low bar, and Geno Smith is cooking in the new-look Seahawks offense.`\
 https://nytimes.com/2022/10/02/sports/football/nfl-week-4-takeaways.html?searchResultPosition=2
 
 **Eagles Remain the N.F.L.’s Only Undefeated Team**\
