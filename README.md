@@ -7,7 +7,7 @@ https://nytimes.com/video/us/100000008564077/hurricane-ian-doorbell-video.html?s
 https://nytimes.com/2022/10/03/business/general-motors-auto-sales.html?searchResultPosition=2
 
 **Biden Will Visit Puerto Rico to Survey Storm Damage**\
-`Utility companies are still working to restore power to thousands of customers on the island, nearly two weeks after Hurricane Fiona made landfall.`\
+`Utility companies are still working to restore power to thousands of customers on the island nearly two weeks after Hurricane Fiona made landfall.`\
 https://nytimes.com/2022/10/03/us/politics/biden-puerto-rico-hurricane-fiona.html?searchResultPosition=3
 
 **Is It Safe to Whiten Your Teeth? And if So, What Works?**\
