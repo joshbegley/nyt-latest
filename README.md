@@ -15,7 +15,7 @@ https://nytimes.com/2022/10/03/nyregion/rex-tillerson-testify-foreign-influence-
 https://nytimes.com/2022/10/03/sports/baseball/braves-sweep-mets-nl-east.html?searchResultPosition=4
 
 **Donald Trump’s Methods**\
-`His speaking style is more strategic than it sometimes seems. Listen for the first time to audio clips from an interview with Maggie Haberman.`\
+`He often utters falsehoods, but his speaking style is more strategic than it sometimes seems. Listen for the first time to audio clips from an interview with Maggie Haberman.`\
 https://nytimes.com/2022/10/03/briefing/donald-trump-maggie-haberman-book.html?searchResultPosition=5
 
 **Mudslinging at Balenciaga**\
