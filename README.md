@@ -1,6 +1,6 @@
 **Truss, in Reversal, Drops Plan to Cut U.K. Tax Rate on High Earners**\
 `The announcement was a major capitulation by the government after tax cuts it announced roiled financial markets and drew widespread criticism.`\
-https://nytimes.com/2022/10/03/world/europe/truss-in-reversal-drops-plan-to-cut-uk-tax-rate-on-high-earners.html?searchResultPosition=1
+https://nytimes.com/2022/10/03/world/europe/uk-tax-rate-cut.html?searchResultPosition=1
 
 **They Legitimized the Myth of a Stolen Election — and Reaped the Rewards**\
 `On the day the Capitol was attacked, 139 Republicans in the House voted to dispute the Electoral College count. This is how they got there.`\
