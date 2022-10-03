@@ -1,4 +1,4 @@
-**Doorbell Cameras Offer Glimpse into Hurricane Ian’s Devastation**\
+**Doorbell Cameras Offer Glimpse Into Hurricane Ian’s Devastation**\
 `Many Florida residents who evacuated Hurricane Ian were able to monitor the storm in real time using their home camera security systems.`\
 https://nytimes.com/video/us/100000008564077/hurricane-ian-doorbell-video.html?searchResultPosition=1
 
