@@ -28,7 +28,7 @@ https://nytimes.com/2022/10/04/business/korea-naver-poshmark.html?searchResultPo
 
 **Jimmy Kimmel: Superman Doesn’t Fit Trump**\
 `Kimmel joked that aides couldn’t find the right size of Superman ‘Underoos’ for the former president, who wanted to pull a Clark Kent after leaving Walter Reed in 2020.`\
-https://nytimes.com/2022/10/04/arts/television/jimmy-kimmel-superman-doesnt-fit-trump.html?searchResultPosition=8
+https://nytimes.com/2022/10/04/arts/television/jimmy-kimmel-trump-superman.html?searchResultPosition=8
 
 **Word of the Day: flabbergasted**\
 `This word has appeared in 41 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
