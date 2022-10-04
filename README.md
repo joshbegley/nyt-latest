@@ -2,7 +2,7 @@
 `The Oct. 4, 2022 episode of The Ezra Klein Show`\
 https://nytimes.com/2022/10/04/podcasts/transcript-ezra-klein-interviews-rachel-aviv.html?searchResultPosition=1
 
-**‘They Are Gone’: Police Seek Clues in Kidnapping of Baby, Parents and Uncle**\
+**‘They Are Gone’: Police Seek Clues in Kidnapping of Baby and Family**\
 `The Merced County Sheriff’s Office in California said on Monday that it was searching for an unidentified man who was armed and dangerous.`\
 https://nytimes.com/2022/10/04/us/california-missing-family-kidnapped.html?searchResultPosition=2
 
