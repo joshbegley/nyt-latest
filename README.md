@@ -1,5 +1,5 @@
 **Loretta Lynn, Country Music Star and Symbol of Rural Resilience, Dies at 90**\
-`Ms. Lynn’s powerful voice, playful lyrics and topical songs were a model for generations of country singers and songwriters. So was her life story`\
+`Her powerful voice, playful lyrics and topical songs were a model for generations of country singers and songwriters. So was her life story`\
 https://nytimes.com/2022/10/04/arts/music/loretta-lynn-dead.html?searchResultPosition=1
 
 **3 Scientists Share Nobel Prize for Work in Quantum Technology**\
