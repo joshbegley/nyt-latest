@@ -3,7 +3,7 @@
 https://nytimes.com/2022/10/04/us/politics/fetterman-ads-black-jogger-gun.html?searchResultPosition=1
 
 **After More Than a Year, Ben Simmons Returns to the Court**\
-`Coach Steve Nash said he saw “glimpses of the potential” in a 6-point, 19-minute effort.`\
+`Nets Coach Steve Nash said he saw “glimpses of the potential” in a 6-point, 19-minute effort.`\
 https://nytimes.com/2022/10/04/sports/basketball/ben-simmons-nets.html?searchResultPosition=2
 
 **Keeping Up With the Crypto Influencers**\
