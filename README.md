@@ -1,6 +1,6 @@
 **Elon Musk Suggests Buying Twitter at His Original Price**\
 `The billionaire’s surprise move came months after he tried to back out of a $44 billion deal to acquire the company.`\
-https://nytimes.com/2022/10/04/technology/twitter-musk.html?searchResultPosition=1
+https://nytimes.com/2022/10/04/technology/elon-musk-twitter-deal.html?searchResultPosition=1
 
 **Amazon Freezes Corporate Hiring in Its Retail Business**\
 `It is the latest tech company to pump the brakes on hiring amid growing economic concerns.`\
