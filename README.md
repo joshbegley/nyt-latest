@@ -1,40 +1,40 @@
-**Nobel Prize in Physics to Be Awarded Today**\
-`The second Nobel announced this year will be presented by the Royal Swedish Academy of Sciences in Stockholm.`\
-https://nytimes.com/2022/10/04/science/nobel-prize-physics-winner.html?searchResultPosition=1
+**Back in the Fight**\
+`Russia’s war in Ukraine has sent marines from famously neutral Sweden into the arms of NATO, where they have begun working with American forces.`\
+https://nytimes.com/2022/10/04/us/politics/sweden-ukraine-nato-marines.html?searchResultPosition=1
 
-**Lesson Plan: Investigating Haiti’s History and the Damage Caused by the ‘Double Debt’**\
-`In this lesson, students learn about the history of how the nation of Haiti was looted by outside powers, foreign banks and its own leaders almost from its birth.`\
-https://nytimes.com/2022/10/04/learning/lesson-plans/lesson-plan-investigating-haitis-history-and-the-damage-caused-by-the-double-debt.html?searchResultPosition=2
+**‘Where Am I Going to Go?’ Floridians Hit by a Hurricane and a Housing Crunch.**\
+`Losses from the storm are just coming into focus. But what is clear is that recovery will be hardest on people already struggling to make ends meet.`\
+https://nytimes.com/2022/10/04/us/florida-hurricane-housing-crisis.html?searchResultPosition=2
 
-**Journalist Who Criticized Marcos Is Fatally Shot in the Philippines**\
-`The radio host Percival Mabasa was killed during an ambush, the police said. He had been a prominent critic of President Ferdinand Marcos Jr. and his predecessor, Rodrigo Duterte.`\
-https://nytimes.com/2022/10/04/world/asia/percy-lapid-philippines-murder.html?searchResultPosition=3
+**10 Gallons of Gas and a Free Joint: Tribal Pot Shops Thrive in New York**\
+`More than 100 marijuana dispensaries, run out of gas stations and wooden shacks, have opened on Native land while New York State awaits its first official retail licenses.`\
+https://nytimes.com/2022/10/04/nyregion/marijuana-native-american-indian.html?searchResultPosition=3
 
-**At Long Last, Can Malaria Be Eradicated?**\
-`Two new vaccines may finally turn back an ancient plague. But in unexpected ways, their arrival also complicates the path to ending the disease.`\
-https://nytimes.com/2022/10/04/health/malaria-vaccines.html?searchResultPosition=4
+**Is This the Most Notable (Purple) Wedding Dress Ever Worn?**\
+`To highlight the role that Anna Murray played in the life of her husband Frederick Douglass, Ms. Murray’s plum-colored wedding gown was recreated for an event held on the couple’s 184th anniversary.`\
+https://nytimes.com/2022/10/04/style/anna-murray-douglass-wedding-dress.html?searchResultPosition=4
 
-**For Autistic Mothers, Breastfeeding Is Complicated**\
-`Mothers with autism, who are less likely than others to breastfeed, have been hit particularly hard by the baby formula shortage.`\
-https://nytimes.com/2022/10/04/health/formula-shortage-autism-breastfeeding.html?searchResultPosition=5
+**In Montauk, N.Y., an Indoor-Outdoor House Emerges From the Landscape**\
+`They brought in earth to make one of the highest sites overlooking Block Island Sound even higher. Then they built down into it.`\
+https://nytimes.com/2022/10/04/realestate/montauk-ny-block-island-sound.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/10/04/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**Making the Most of the Views in Montauk**\
+`They brought in earth to make one of the highest sites overlooking Block Island Sound even higher. Then they built down into it.`\
+https://nytimes.com/slideshow/2022/10/04/realestate/making-the-most-of-the-views-in-montauk.html?searchResultPosition=6
 
-**South Korean Internet Giant Buys Poshmark in $1.2 Billion Deal**\
-`With its new acquisition — the company’s largest to date — Naver has gained a sizable foothold in North America’s secondhand retail market.`\
-https://nytimes.com/2022/10/04/business/korea-naver-poshmark.html?searchResultPosition=7
+**Climate Change for Preschoolers: A TV Show Explores Unmapped Ground**\
+`There are almost no books, TV shows or other tools to help parents and teachers talk to preschoolers about climate change. “Octonauts: Above and Beyond” is one of the first to try.`\
+https://nytimes.com/2022/10/04/climate/octonauts-climate-change-preschool.html?searchResultPosition=7
 
-**Jimmy Kimmel: Superman Doesn’t Fit Trump**\
-`Kimmel joked that aides couldn’t find the right size of Superman ‘Underoos’ for the former president, who wanted to pull a Clark Kent after leaving Walter Reed in 2020.`\
-https://nytimes.com/2022/10/04/arts/television/jimmy-kimmel-trump-superman.html?searchResultPosition=8
+**What Video Footage Reveals About the Protests in Iran**\
+`The New York Times analyzed dozens of videos circulating online for insights about what is propelling the demonstrations, and how women are leading the movement.`\
+https://nytimes.com/2022/10/04/world/asia/iran-protest-video-analysis.html?searchResultPosition=8
 
-**Word of the Day: flabbergasted**\
-`This word has appeared in 41 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/10/04/learning/word-of-the-day-flabbergasted.html?searchResultPosition=9
+**What a Conservative Therapist Thinks About Politics and Mental Health**\
+`Conservatives need mental health help too. But do they need to get it from someone who shares their worldview?`\
+https://nytimes.com/2022/10/04/opinion/us-conservative-therapy-politics.html?searchResultPosition=9
 
-**Corrections: Oct. 4, 2022**\
-`Corrections that appeared in print on Tuesday, Oct. 4, 2022.`\
-https://nytimes.com/2022/10/04/pageoneplus/corrections-oct-4-2022.html?searchResultPosition=10
+**Rules of Engagement**\
+`In “Waging a Good War,” Thomas E. Ricks examines the civil rights movement through the lens of military history.`\
+https://nytimes.com/2022/10/04/books/review/rules-of-engagement.html?searchResultPosition=10
 
