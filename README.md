@@ -6,7 +6,7 @@ https://nytimes.com/2022/10/04/us/the-onion-supreme-court.html?searchResultPosit
 `Two brothers traveled alone from the suburbs of Boston to the 1967 World’s Fair in Montreal by pony cart! Do today’s children need more parent-free adventures?`\
 https://nytimes.com/2022/10/04/learning/film-club-pony-boys.html?searchResultPosition=2
 
-**She Says She Was Raped in Parliament. Now, Her Case Is at Court.**\
+**She Says She Was Raped in Parliament. Now Her Case Is at Court.**\
 `The trial of the Australian man accused of sexually assaulting Brittany Higgins will be viewed against the backdrop of the global #MeToo movement.`\
 https://nytimes.com/2022/10/04/world/australia/brittany-higgins-trial.html?searchResultPosition=3
 
