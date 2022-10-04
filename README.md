@@ -1,4 +1,4 @@
-**Keeping Up with the Crypto Influencers**\
+**Keeping Up With the Crypto Influencers**\
 `Also, a group of regulators put together after the financial crisis weighs on how risky digital currencies are to the economy.`\
 https://nytimes.com/2022/10/04/business/dealbook/kardashian-crypto-sec-gensler-ethereummax.html?searchResultPosition=1
 
