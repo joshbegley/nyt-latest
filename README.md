@@ -7,7 +7,7 @@ https://nytimes.com/interactive/2022/10/04/smarter-living/wirecutter/leaf-peepin
 https://nytimes.com/2022/10/04/movies/davine-joy-randolph-only-murders-in-the-building-on-the-come-up.html?searchResultPosition=2
 
 **Ex-Northeastern Employee Is Charged With Making a False Bomb Report**\
-`A former technology manager at the university fabricated a report that he had been injured by an explosive package, prosecutors said. His call had drawn a large law enforcement response.`\
+`A former technology manager at the university made a false a report that he had been injured by an explosive package, prosecutors said. His call had drawn a large law enforcement response.`\
 https://nytimes.com/2022/10/04/us/northeastern-explosion-fbi-arrest.html?searchResultPosition=3
 
 **Ukraine’s top diplomat tries to counter Russia’s narrative on Africa tour.**\
