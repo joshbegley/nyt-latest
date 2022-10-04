@@ -6,8 +6,8 @@ https://nytimes.com/2022/10/03/us/politics/cdc-covid-travel-advisories.html?sear
 `The Biden administration disagrees with President Gustavo Petro’s views on the drug war, Venezuela and Cuba, but hopes to retain the historically strong ties the United States has with Bogotá.`\
 https://nytimes.com/2022/10/03/world/americas/colombia-blinken-petro.html?searchResultPosition=2
 
-**Report That Herschel Walker Paid for Abortion Is Condemned by Candidate**\
-`The Daily Beast, which has also broken news about Mr. Walker’s out-of-wedlock children, reported that a former girlfriend had the procedure in 2009. He called the report a “lie.”`\
+**Herschel Walker Paid for Girlfriend’s Abortion, Report Says**\
+`Mr. Walker called the report a lie, after The Daily Beast, which has also broken news about Mr. Walker’s out-of-wedlock children, reported that a former girlfriend had the procedure in 2009.`\
 https://nytimes.com/2022/10/03/us/politics/herschel-walker-abortion-report.html?searchResultPosition=3
 
 **Lawyer Declined Trump Request to Tell Archives All Material Was Returned**\
