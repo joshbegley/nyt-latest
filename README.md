@@ -4,7 +4,7 @@ https://nytimes.com/2022/10/04/technology/elon-musk-twitter-deal.html?searchResu
 
 **Amazon Freezes Corporate Hiring in Its Retail Business**\
 `It is the latest tech company to pump the brakes on hiring amid growing economic concerns.`\
-https://nytimes.com/2022/10/04/technology/amazon-freezes-corporate-hiring-in-its-retail-business.html?searchResultPosition=2
+https://nytimes.com/2022/10/04/technology/amazon-freezes-corporate-hiring.html?searchResultPosition=2
 
 **Millions Pour Into Group Working to Keep Democrats’ House Majority**\
 `The House Majority PAC, the outside spending group linked to Speaker Nancy Pelosi, raised more than $36 million in September and nearly $55 million since July.`\
