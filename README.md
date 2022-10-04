@@ -10,7 +10,7 @@ https://nytimes.com/2022/10/04/books/theo-richmond-dead.html?searchResultPositio
 `Molly Rankin’s group is known for emotional and melodic sophistication. Talking about its latest LP, “Blue Rev,” she reflected on how her family’s deep musical history led her there.`\
 https://nytimes.com/2022/10/04/arts/music/alvvays-blue-rev.html?searchResultPosition=3
 
-**Portland Thorns Owner Steps Aside as U.S. Soccer Stars Call for Change**\
+**Portland Thorns Owner Steps Aside as U.S. Soccer Star Calls for Change**\
 `Becky Sauerbrunn said any official found to have failed to protect players “should be gone.” As she spoke, the owner of her club, the Portland Thorns, said he would leave the team temporarily.`\
 https://nytimes.com/2022/10/04/sports/soccer/uswnt-abuse-sauerbrunn-paulson-thorns.html?searchResultPosition=4
 
