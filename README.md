@@ -1,4 +1,4 @@
-**Mike Pence and his group, pushing conservative causes, keep a 2024 dream alive.**\
+**Pence and His Group, Pushing Conservative Causes, Keep a 2024 Dream Alive**\
 `The former vice president has been quietly huddling with donors and building a political operation that could serve as a springboard to a 2024 presidential bid.`\
 https://nytimes.com/2022/10/04/us/politics/mike-pence-2024.html?searchResultPosition=1
 
