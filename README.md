@@ -23,7 +23,7 @@ https://nytimes.com/2022/10/04/arts/music/loretta-lynn-dead.html?searchResultPos
 https://nytimes.com/video/science/100000008565756/nobel-prize-award-physics.html?searchResultPosition=6
 
 **Stocks Rise Strongly for a Second Day**\
-`The rally brings some relief to Wall Street at the beginning of October, after the previous months ended on a sour note, capping a long streak of losses.`\
+`The rally brings some relief to Wall Street at the beginning of October, after the previous month ended on a sour note, capping a long streak of losses.`\
 https://nytimes.com/2022/10/04/business/stocks-wall-street-rally.html?searchResultPosition=7
 
 **‘Did You See Your Parents Fall?’ Tear Gas, a Stampede, and a Family Shattered**\
