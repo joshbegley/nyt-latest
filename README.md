@@ -34,7 +34,7 @@ https://nytimes.com/2022/10/03/world/europe/russia-disarray-ukraine.html?searchR
 `The family of a student killed in terrorist attacks challenged a 1996 law that gives websites immunity for suits based on their users’ posts.`\
 https://nytimes.com/2022/10/03/us/supreme-court-social-media-section-230.html?searchResultPosition=9
 
-**Japan Warns Residents to Take Shelter as North Korea Launches Missile**\
-`The test-firing was the latest in a flurry of launchings by the North. The missile flew over Japan and landed in the Pacific.`\
+**North Korea Fires Missile Over Japan in Major Escalation**\
+`The test-firing was the latest in a flurry of launches by the North. The missile flew over Japan and landed in the Pacific.`\
 https://nytimes.com/2022/10/03/world/asia/japan-north-korea-missile.html?searchResultPosition=10
 
