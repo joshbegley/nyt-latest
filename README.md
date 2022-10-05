@@ -10,7 +10,7 @@ https://nytimes.com/2022/10/05/arts/music/loretta-lynn-coal-miners-daughter.html
 `Halyna Hutchins was killed on set when a gun held by Alec Baldwin went off. A settlement with producers, including Baldwin, means the film will resume production in January.`\
 https://nytimes.com/2022/10/05/arts/alec-baldwin-halyna-hutchins-rust-settlement.html?searchResultPosition=3
 
-**Fossils Reveal Pterosaur Ancestors Before They Evolved Wings**\
+**Fossils Reveal Pterosaur Relatives Before They Evolved Wings**\
 `By reanalyzing earlier specimens, scientists linked small, leggy creatures that roamed 237 million years ago to the reptiles that flew through the dinosaur era.`\
 https://nytimes.com/2022/10/05/science/pterosaurs-reptiles-wings.html?searchResultPosition=4
 
