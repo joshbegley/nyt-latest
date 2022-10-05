@@ -18,7 +18,7 @@ https://nytimes.com/video/us/100000008567975/live-biden-florida-hurricane-offici
 `He spent the 1980s as the Polish regime’s sarcastic spokesman, then transformed himself into a controversial media entrepreneur in the ’90s.`\
 https://nytimes.com/2022/10/05/world/europe/jerzy-urban-dead.html?searchResultPosition=5
 
-**After Decades of Hints, Scooby-Doo’s Velma Is Depicted as Lesbian**\
+**After Decades of Hints, Scooby-Doo’s Velma Is Depicted as a Lesbian**\
 `The character has long been seen as a lesbian icon. Some fans were thrilled that her sexuality was at last officially acknowledged.`\
 https://nytimes.com/2022/10/05/arts/television/scooby-doo-velma-lesbian.html?searchResultPosition=6
 
