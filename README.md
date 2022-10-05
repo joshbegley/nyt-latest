@@ -4,7 +4,7 @@ https://nytimes.com/2022/10/04/crosswords/daily-puzzle-2022-10-05.html?searchRes
 
 **The Monsoon Is Becoming More Extreme**\
 `South Asia’s monsoon is inextricably linked, culturally and economically, to much of Asia. Climate change is making it increasingly violent and erratic.`\
-https://nytimes.com/interactive/2022/10/04/climate/04south-asia-monsoon-climate-change.html?searchResultPosition=2
+https://nytimes.com/interactive/2022/10/04/climate/south-asia-monsoon-climate-change.html?searchResultPosition=2
 
 **Amazon Suspends Workers After Protest Over Warehouse Fire**\
 `Several dozen night-shift employees at a Staten Island site that recently voted to unionize had refused to work amid safety concerns.`\
