@@ -22,8 +22,8 @@ https://nytimes.com/2022/10/05/travel/customs-kiosks-facial-recognition.html?sea
 `When the company said it couldn’t reveal what a driver had done wrong, he got suspicious. Was it a scam? In the end, privacy laws and bureaucracy took the blame.`\
 https://nytimes.com/2022/10/05/travel/foreign-rental-car-fees.html?searchResultPosition=6
 
-**The Billionaire Trying to Turn Kazakhstan Into a Thriving Tennis Nation**\
-`Bulat Utemuratov decided in 2007 to create a tennis culture for the masses in a former Soviet Republic known for combat sports and weight lifting. Add tennis to the list, too.`\
+**The Billionaire Trying to Turn Kazakhstan Into a Tennis Nation**\
+`Bulat Utemuratov decided in 2007 to create a tennis culture for the masses in a former Soviet Republic known for combat sports and weight lifting.`\
 https://nytimes.com/2022/10/05/sports/tennis/kazakhstan-utemuratov.html?searchResultPosition=7
 
 **Where Red and Blue Make Green**\
