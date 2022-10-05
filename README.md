@@ -1,40 +1,40 @@
+**A Guide to Flu Season**\
+`What to expect from this year’s influenza, and how to protect yourself.`\
+https://nytimes.com/2022/10/05/briefing/influenza-flu-season.html?searchResultPosition=1
+
 **Former Uber Security Chief Found Guilty of Hiding Hack From Authorities**\
-`A jury found Joe Sullivan, who led security at the ride-hailing company, guilty on two different counts. The case could change how security professionals handle data beaches.`\
-https://nytimes.com/2022/10/05/technology/uber-security-chief-joe-sullivan-verdict.html?searchResultPosition=1
+`A jury found Joe Sullivan, who led security at the ride-hailing company, guilty on two different counts. The case could change how security professionals handle data breaches.`\
+https://nytimes.com/2022/10/05/technology/uber-security-chief-joe-sullivan-verdict.html?searchResultPosition=2
 
 **Your Thursday Briefing: U.S. Believes Ukrainians Were Behind a Killing in Russia**\
 `Plus arming Taiwan to deter China and OPEC cuts oil production.`\
-https://nytimes.com/2022/10/05/briefing/ukraine-assassination-dugina-taiwan-opec.html?searchResultPosition=2
+https://nytimes.com/2022/10/05/briefing/ukraine-assassination-dugina-taiwan-opec.html?searchResultPosition=3
 
 **The Nuclear Option**\
 `U.S. officials are mapping out scenarios for how Russia might carry out a nuclear strike.`\
-https://nytimes.com/2022/10/05/briefing/russia-ukraine-war-nuclear.html?searchResultPosition=3
+https://nytimes.com/2022/10/05/briefing/russia-ukraine-war-nuclear.html?searchResultPosition=4
 
 **Climate Change Made Summer Hotter and Drier Worldwide, Study Finds**\
 `Europe, China and North America were parched by extreme heat that would have been ‘virtually impossible’ without the effects of global warming, scientists said.`\
-https://nytimes.com/2022/10/05/climate/climate-change-europe-drought.html?searchResultPosition=4
+https://nytimes.com/2022/10/05/climate/climate-change-europe-drought.html?searchResultPosition=5
 
 **The Secret to the Best Cauliflower Soup? High Heat and a Little Spice.**\
-`Roasted cauliflower meets harissa-glazed tomatoes in this a velvety vegan soup.`\
-https://nytimes.com/2022/10/05/dining/cauliflower-soup.html?searchResultPosition=5
+`Roasted cauliflower meets harissa-glazed tomatoes in this velvety vegan soup.`\
+https://nytimes.com/2022/10/05/dining/cauliflower-soup.html?searchResultPosition=6
 
 **Russia’s Retreat in Southern Ukraine Leaves a Trail of Devastation**\
 `The pull back of Russian forces has revealed a panorama of ruined towns and empty villages left in its wake.`\
-https://nytimes.com/video/world/europe/100000008568354/ukraine-southeast-counteroffensive-destruction.html?searchResultPosition=6
+https://nytimes.com/video/world/europe/100000008568354/ukraine-southeast-counteroffensive-destruction.html?searchResultPosition=7
 
 **G.O.P. Governor Candidate in Kansas Walks Abortion Tightrope in a Debate**\
 `The candidate, Derek Schmidt, is challenging Gov. Laura Kelly, a Democrat, in a changed political landscape two months after Kansas voters rejected an anti-abortion constitutional amendment.`\
-https://nytimes.com/2022/10/05/us/politics/kansas-governor-debate-abortion.html?searchResultPosition=7
+https://nytimes.com/2022/10/05/us/politics/kansas-governor-debate-abortion.html?searchResultPosition=8
 
 **Unveiled and Rising Up: How Protests in Iran Cut to the Heart of National Identity**\
 `The hijabs women are forced to wear have long been a sign of the government’s power. Now, the women-led protests have made them a symbol of a clashing vision of Iran’s future.`\
-https://nytimes.com/2022/10/05/world/middleeast/iran-protests-women-hijab.html?searchResultPosition=8
+https://nytimes.com/2022/10/05/world/middleeast/iran-protests-women-hijab.html?searchResultPosition=9
 
 **Coming of Age in 2022: Show Us What It’s Like to Be a Teenager Now**\
 `Submit a photo, cartoon, graph, chart, screenshot, illustration or any other visual piece that documents your life. Dates: Oct. 12 to Nov. 16.`\
-https://nytimes.com/2022/10/05/learning/coming-of-age-in-2022-show-us-what-its-like-to-be-a-teenager-now.html?searchResultPosition=9
-
-**Slain Emergency Worker Borne to Her Funeral in an Ambulance**\
-`Capt. Alison Russo-Elling’s daughter, Danielle Fuoco, urged mourners not to hang onto hatred for the person who attacked her mother in Astoria, Queens.`\
-https://nytimes.com/2022/10/05/nyregion/alison-russo-nyc-emt-funeral.html?searchResultPosition=10
+https://nytimes.com/2022/10/05/learning/coming-of-age-in-2022-show-us-what-its-like-to-be-a-teenager-now.html?searchResultPosition=10
 
