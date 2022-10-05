@@ -1,40 +1,40 @@
-**E.U. negotiators strike deal on capping Russian oil prices.**\
-`The cap, championed by the United States, would deprive the Kremlin of tens of billions of dollars annually. Experts warn that implementation will be difficult.`\
-https://nytimes.com/2022/10/05/world/europe/russia-oil-price-cap.html?searchResultPosition=1
+**What Did You Wear to That Wedding? Readers Respond.**\
+`We asked readers to submit their favorite distinctive outfits from weddings with nontraditional dress codes. Here’s a look at what they wore.`\
+https://nytimes.com/2022/10/05/style/wedding-outfits-responses.html?searchResultPosition=1
 
-**Nobel Prize in Chemistry to Be Awarded Today**\
-`The third Nobel awarded this year, it is the week’s final science prize.`\
-https://nytimes.com/2022/10/05/science/nobel-prize-chemistry-winner.html?searchResultPosition=2
+**Emerson, N.J.: A Small, Manageable ‘Family Town’**\
+`The Bergen County borough is a “solid, middle-class” place where “it’s easy to get to know people,” as one resident put it.`\
+https://nytimes.com/2022/10/05/realestate/bergen-county-emerson-nj.html?searchResultPosition=2
 
-**After Hitting No. 62, Aaron Judge Acknowledges Pressure of Chase**\
-`“The past couple games I’d look up and it’s the seventh inning and go, ‘Dang, I only got one more at-bat. We got to figure this out.’”`\
-https://nytimes.com/2022/10/05/sports/baseball/aaron-judge-yankees-rangers.html?searchResultPosition=3
+**Living In ... Emerson, N.J.**\
+`The Bergen County borough is a “solid, middle-class” place where “it’s easy to get to know people,” as one resident put it.`\
+https://nytimes.com/slideshow/2022/10/05/realestate/living-in-emerson-nj.html?searchResultPosition=3
 
-**Elon Musk’s Twitter Will Be a Wild Ride**\
-`His deal to buy the company is back on. Here are six predictions about Twitter under Musk’s control, if it happens.`\
-https://nytimes.com/2022/10/05/technology/elon-musk-twitter-predictions.html?searchResultPosition=4
+**U.S. Aims to Turn Taiwan Into Giant Weapons Depot**\
+`Officials say Taiwan needs to become a “porcupine” with enough weapons to hold out if the Chinese military blockades and invades it, even if Washington decides to send troops.`\
+https://nytimes.com/2022/10/05/us/politics/taiwan-biden-weapons-china.html?searchResultPosition=4
 
-**Video Games**\
-`If you were a parent, how much would you let your kids play?`\
-https://nytimes.com/2022/10/05/learning/video-games.html?searchResultPosition=5
+**Whatever Happened to Those Self-Service Passport Kiosks at Airports?**\
+`More than 80 percent of all travelers entering the U.S. are now verified by facial recognition. The loss of older, seemingly more convenient methods has many perplexed. And then there are the privacy issues.`\
+https://nytimes.com/2022/10/05/travel/customs-kiosks-facial-recognition.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/10/05/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**Help! A French Car Rental Company Charged Me Fees for Speeding Tickets I Never Received!**\
+`When the company said it couldn’t reveal what a driver had done wrong, he got suspicious. Was it a scam? In the end, privacy laws and bureaucracy took the blame.`\
+https://nytimes.com/2022/10/05/travel/foreign-rental-car-fees.html?searchResultPosition=6
 
-**Stephen Colbert Pens Get-Well Card to Herschel Walker**\
-`Colbert did not mince words in his greeting to the Senate candidate, who denied paying for a former girlfriend’s abortion, as was reported by The Daily Beast.`\
-https://nytimes.com/2022/10/05/arts/television/stephen-colbert-herschel-walker.html?searchResultPosition=7
+**The Billionaire Trying to Turn Kazakhstan Into a Thriving Tennis Nation**\
+`Bulat Utemuratov decided in 2007 to create a tennis culture for the masses in a former Soviet Republic known for combat sports and weight lifting. Add tennis to the list, too.`\
+https://nytimes.com/2022/10/05/sports/tennis/kazakhstan-utemuratov.html?searchResultPosition=7
 
-**Word of the Day: treatise**\
-`This word has appeared in 87 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/10/05/learning/word-of-the-day-treatise.html?searchResultPosition=8
+**Where Red and Blue Make Green**\
+`Part of the resistance or part of the problem? It doesn’t matter: These lawyers are part of the gang.`\
+https://nytimes.com/2022/10/05/opinion/where-red-and-blue-make-green.html?searchResultPosition=8
 
-**OPEC and Russia meet today, with a big cut in oil output on the table.**\
-`Saudi Arabia appears determined to bolster prices and continue coordinating with Russia during the Ukraine war.`\
-https://nytimes.com/2022/10/05/business/opec-russia-oil-output.html?searchResultPosition=9
+**Suzan-Lori Parks Is on Broadway, Off Broadway and Everywhere Else**\
+`The first African American woman to win the Pulitzer Prize in drama has four shows this season. “If you can hear the world singing, it’s your job to write it down,” she said.`\
+https://nytimes.com/2022/10/05/theater/suzan-lori-parks.html?searchResultPosition=9
 
-**How to Honor a New Yorker? Name a Street After Them.**\
-`Jim Houghton Way, near the Signature Theater on West 42nd Street, is the latest in roughly 2,000 “co-namings” of city streets.`\
-https://nytimes.com/2022/10/05/nyregion/street-renamings-jim-houghton.html?searchResultPosition=10
+**What Does Sustainable Living Look Like? Maybe Like Uruguay**\
+`No greater challenge faces humanity than reducing emissions without backsliding into preindustrial poverty. One tiny country is leading the way.`\
+https://nytimes.com/2022/10/05/magazine/uruguay-renewable-energy.html?searchResultPosition=10
 
