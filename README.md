@@ -18,7 +18,7 @@ https://nytimes.com/2022/10/05/world/europe/ukraine-russia-war.html?searchResult
 `OPEC’s decision to curb oil production was a signal that President Biden’s influence over his Gulf allies was far less than he had hoped.`\
 https://nytimes.com/2022/10/05/us/politics/opec-biden-saudi-arabia.html?searchResultPosition=5
 
-**Republicans on the March**\
+**Whoops! Behold the Republican Trove of Truly Terrible Candidates.**\
 `So much Senate strangeness.`\
 https://nytimes.com/2022/10/05/opinion/senate-election-republican.html?searchResultPosition=6
 
