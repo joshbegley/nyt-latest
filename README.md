@@ -27,7 +27,7 @@ https://nytimes.com/article/easy-cheap-one-pot-recipes.html?searchResultPosition
 https://nytimes.com/2022/10/05/arts/music/tosca-met-opera-review.html?searchResultPosition=7
 
 **Watch Live: Biden Meets With DeSantis Following Hurricane Ian**\
-`President Biden receives a briefing from federal, local and state officials on recovery efforts after Hurricane Ian devastated southwest Florida.`\
+`President Biden meets with Gov. Ron DeSantis of Florida during his visit to the state to survey the damage caused by Hurricane Ian.`\
 https://nytimes.com/video/us/100000008567975/live-biden-florida-hurricane-officials.html?searchResultPosition=8
 
 **Jerzy Urban, Acerbic Communist Turned Free-Speech Hero, Dies at 89**\
