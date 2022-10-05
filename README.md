@@ -26,7 +26,7 @@ https://nytimes.com/article/easy-cheap-one-pot-recipes.html?searchResultPosition
 `Aleksandra Kurzak, moving into heavier repertoire with Puccini’s opera, played the title diva as touchingly human.`\
 https://nytimes.com/2022/10/05/arts/music/tosca-met-opera-review.html?searchResultPosition=7
 
-**Watch Live: Biden Meets With Florida Officials After Hurricane Ian**\
+**Watch Live: Biden Meets With DeSantis Following Hurricane Ian**\
 `President Biden receives a briefing from federal, local and state officials on recovery efforts after Hurricane Ian devastated southwest Florida.`\
 https://nytimes.com/video/us/100000008567975/live-biden-florida-hurricane-officials.html?searchResultPosition=8
 
