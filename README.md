@@ -1,5 +1,5 @@
 **Twitter Wants Assurances from Musk**\
-`Elon Musk is back at the negotiating table. This time Twitter wants guarantees he won’t walk away—again.`\
+`Elon Musk is back at the negotiating table. This time Twitter wants guarantees he won’t walk away – again.`\
 https://nytimes.com/2022/10/06/business/dealbook/twitter-wants-assurances-musk-acquisition.html?searchResultPosition=1
 
 **Japanese Filmmaker Toru Kubota Sentenced to 10 Years in Myanmar**\
