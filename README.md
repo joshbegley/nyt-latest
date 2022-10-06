@@ -23,7 +23,7 @@ https://nytimes.com/2022/10/06/world/europe/russia-war-ukraine.html?searchResult
 https://nytimes.com/2022/10/06/us/politics/crime-republicans-democrats.html?searchResultPosition=6
 
 **Saskatchewan Mass Killings Were the Work of One Brother, Police Say**\
-`The police said Myles Sanderson had killed not just 10 people on an Indigenous reserve and in a nearby village, but also his brother, Damien, who was also originally charged with murder.`\
+`The police said Myles Sanderson had killed not just 10 people on an Indigenous reserve and in a nearby village, but also his brother, Damien, who was originally charged with murder.`\
 https://nytimes.com/2022/10/06/world/canada/saskatchewan-killings-myles-sanderson.html?searchResultPosition=7
 
 **The Triumph of the Ukrainian Idea**\
