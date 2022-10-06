@@ -1,5 +1,5 @@
 **Civil Rights Activist From Virginia Killed in Turks and Caicos Shooting**\
-`Ken Carter, a leader with the N.A.A.C.P. in Arlington, Va., was killed when shots were fired at a vehicle transporting tourists and employees. He was visiting for his birthday.`\
+`Kent Carter, a leader with the N.A.A.C.P. in Arlington, Va., was killed when shots were fired at a vehicle transporting tourists and employees. He was visiting for his birthday.`\
 https://nytimes.com/2022/10/06/us/turks-caicos-shooting-us-tourist-killed.html?searchResultPosition=1
 
 **2 Killed and 6 Others Are Injured in Stabbing on Las Vegas Strip**\
