@@ -16,7 +16,7 @@ https://nytimes.com/2022/10/06/movies/battleground-review.html?searchResultPosit
 
 **About 200 Newspapers Owned by Alden Will Stop Endorsing Candidates**\
 `The change will be announced in an editorial set to run in the company’s newspapers as early as Friday.`\
-https://nytimes.com/2022/10/06/business/media/about-200-newspapers-owned-by-alden-will-stop-endorsing-candidates.html?searchResultPosition=5
+https://nytimes.com/2022/10/06/business/media/alden-newspaper-candidate-endorsements.html?searchResultPosition=5
 
 **How Much Watching Time Do You Have This Weekend?**\
 `Our TV critic recommends a new show about shipwrecks, another about chain saws and a South African murder mystery.`\
