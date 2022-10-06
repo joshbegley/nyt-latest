@@ -1,40 +1,40 @@
+**Aces on the Mound and Trash Talkers Everywhere Else**\
+`Adam Wainwright and Max Scherzer are terrific veteran starters for playoff teams, and their off-field rivalry includes chirpy texts, fantasy football and (occasionally) some advice.`\
+https://nytimes.com/2022/10/06/sports/baseball/max-scherzer-adam-wainwright.html?searchResultPosition=1
+
+**Weekly Health Quiz: Medical Tests, Malaria and Teeth Whitening**\
+`Test your knowledge of this week’s health news.`\
+https://nytimes.com/interactive/2022/10/06/well/live/06healthquiz-10062022.html?searchResultPosition=2
+
+**Annie Ernaux Is Awarded the Nobel Prize in Literature**\
+`The French novelist Annie Ernaux was awarded one of literature’s highest honors for her body of work that has spoken particularly to women and to others who, like her, come from the working class.`\
+https://nytimes.com/video/world/europe/100000008570803/nobel-prize-literature-annie-ernaux.html?searchResultPosition=3
+
 **Your Thursday Evening Briefing**\
 `Here’s what you need to know at the end of the day.`\
-https://nytimes.com/2022/10/06/briefing/biden-marijuana-pardons-barnard-college.html?searchResultPosition=1
+https://nytimes.com/2022/10/06/briefing/biden-marijuana-pardons-barnard-college.html?searchResultPosition=4
 
 **Your Friday Briefing: Mass Shooting in Thailand**\
 `Plus growing dissent in Russia and China’s debt diplomacy`\
-https://nytimes.com/2022/10/06/briefing/thailand-shooting-russia.html?searchResultPosition=2
+https://nytimes.com/2022/10/06/briefing/thailand-shooting-russia.html?searchResultPosition=5
 
 **Gunman Kills Dozens, Including Children, in Rampage at Thai Child Care Center**\
 `The 36 victims of the mass shooting included a 2-year-old child and a teacher who was eight months pregnant, the police said. They identified the gunman as a recently fired officer.`\
-https://nytimes.com/2022/10/06/world/asia/shooting-thailand-day-care.html?searchResultPosition=3
+https://nytimes.com/2022/10/06/world/asia/shooting-thailand-day-care.html?searchResultPosition=6
 
 **The Missile Ukraine Wants Is One the U.S. Says It Doesn’t Need**\
 `Ukrainian officials have asked for a weapon that can strike targets 190 miles away. But the Pentagon — wary of widening the war — says the ones it has provided are powerful enough.`\
-https://nytimes.com/2022/10/06/us/ukraine-war-missile.html?searchResultPosition=4
+https://nytimes.com/2022/10/06/us/ukraine-war-missile.html?searchResultPosition=7
 
 **Civil Rights Activist From Virginia Killed in Turks and Caicos Shooting**\
 `Kent Carter, a leader with the N.A.A.C.P. in Arlington, Va., was killed when shots were fired at a vehicle transporting tourists and employees. He was visiting for his birthday.`\
-https://nytimes.com/2022/10/06/us/turks-caicos-shooting-us-tourist-killed.html?searchResultPosition=5
+https://nytimes.com/2022/10/06/us/turks-caicos-shooting-us-tourist-killed.html?searchResultPosition=8
 
 **2 Killed and 6 Others Are Injured in Stabbing on Las Vegas Strip**\
 `The Las Vegas police said a suspect was in custody and a large kitchen knife was recovered at the scene.`\
-https://nytimes.com/2022/10/06/us/vegas-strip-stabbing-attack.html?searchResultPosition=6
+https://nytimes.com/2022/10/06/us/vegas-strip-stabbing-attack.html?searchResultPosition=9
 
 **Colin Alevras, Inventive New York Chef and Restaurateur, Dies at 51**\
 `He popularized a farmers’ market cuisine at his and his wife’s tiny, quirky and acclaimed East Village establishment called the Tasting Room.`\
-https://nytimes.com/2022/10/06/dining/colin-alevras-dead.html?searchResultPosition=7
-
-**Meredith Tax, Feminist Author, Historian and Activist, Dies at 80**\
-`An uncompromising voice in the women’s movement’s second wave, she focused on working-class women and later on women’s rights around the world.`\
-https://nytimes.com/2022/10/06/books/meredith-tax-dead.html?searchResultPosition=8
-
-**New Jersey Governor Seeks to Slow New York’s Congestion Pricing Effort**\
-`The plan would charge drivers who enter Manhattan below 60th Street.`\
-https://nytimes.com/2022/10/06/nyregion/nj-biden-congestion-price-toll.html?searchResultPosition=9
-
-**Blunt Criticism of Russian Army Signals New Challenge for Putin**\
-`An official in a Russian-occupied region of Ukraine suggested Russia’s defense minister should shoot himself because of his army’s failings, an unusually blunt and public rebuke of Kremlin leadership.`\
-https://nytimes.com/2022/10/06/world/europe/putin-russia-army-criticism.html?searchResultPosition=10
+https://nytimes.com/2022/10/06/dining/colin-alevras-dead.html?searchResultPosition=10
 
