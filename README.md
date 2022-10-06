@@ -1,40 +1,40 @@
-**In Algeria, Veiled From the World, Past and Future Are Shrouded, Too**\
-`A land of thwarted potential, the country fends off outside influences, political change and some of its own history.`\
-https://nytimes.com/2022/10/06/world/middleeast/algeria-oran-camus.html?searchResultPosition=1
+**Yascha Mounk on What Democracy Needs to Survive**\
+`The author and educator explains that making diverse democracies work is difficult and offers suggestions on how they can succeed.`\
+https://nytimes.com/2022/10/06/world/yascha-mounk-democracy.html?searchResultPosition=1
 
-**Christian Walker, Warrior for the Right, Now Battles His Father**\
-`Before his Twitter posts upended the Georgia senate race, Herschel Walker’s son already had a large social media presence reveling in contradictions.`\
-https://nytimes.com/2022/10/06/us/herschel-walker-son-christian.html?searchResultPosition=2
+**For a Road Map to Successful Democracies, Scandinavia Offers Clues**\
+`Sweden, Norway, Finland and Denmark consistently rate highly on scales assessing democratic health, but it’s not easy to replicate their systems.`\
+https://nytimes.com/2022/10/06/world/europe/scandinavia-democracy.html?searchResultPosition=2
 
-**Should You Be ‘Skin Cycling’?**\
-`A newly popular approach to applying beauty products suggests that skin may benefit from fallow days and rotating chemicals.`\
-https://nytimes.com/2022/10/06/style/skin-cycling.html?searchResultPosition=3
+**How to Recycle a 14-Story Office Tower**\
+`Buildings are responsible for nearly 40 percent of the world’s carbon emissions. In Amsterdam, they are trying to create a blueprint to do something about it.`\
+https://nytimes.com/2022/10/06/headway/office-tower-carbon-emissions-amsterdam.html?searchResultPosition=3
 
-**There’s (Still) Something About Phoebe**\
-`A sale in Paris brought out the “Old Celine” followers, even as their leader, Phoebe Philo, sat out another fashion week.`\
-https://nytimes.com/2022/10/06/style/phoebe-philo-celine.html?searchResultPosition=4
+**In Global Slowdown, China Holds Sway Over Countries’ Fates**\
+`The lender of choice for many nations over the past decade, Beijing now has the power to cut them off, lend more or forgive some of their debts.`\
+https://nytimes.com/2022/10/06/business/china-debt-economy-global-slowdown.html?searchResultPosition=4
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/10/06/crosswords/spelling-bee-forum.html?searchResultPosition=5
+**Democrats Worry as G.O.P. Attack Ads Take a Toll in Wisconsin**\
+`Mandela Barnes, the party’s Senate candidate, is now wobbling in his race against Ron Johnson, the Republican incumbent. Democratic nominees in other states face similar challenges.`\
+https://nytimes.com/2022/10/06/us/politics/mandela-barnes-wisconsin-senate.html?searchResultPosition=5
 
-**New Sneakers**\
-`What do you think of these sneakers? What message do you think their designers are trying to communicate?`\
-https://nytimes.com/2022/10/06/learning/new-sneakers.html?searchResultPosition=6
+**Sounding Out a Better Way to Teach Reading**\
+`Schools are returning to phonics and other evidence-based literacy methods, and already there are signs that the switch is paying off in improved scores.`\
+https://nytimes.com/2022/10/06/education/learning/schools-teaching-reading-phonics.html?searchResultPosition=6
 
-**Late Night Rips Into Ron DeSantis for His ‘Go-Go’ Boots**\
-`“You’re not allowed to pass a ‘Don’t say gay’ bill then show up in public dressed like Nancy Sinatra,” Jimmy Kimmel said.`\
-https://nytimes.com/2022/10/06/arts/television/late-night-ron-desantis-boots.html?searchResultPosition=7
+**At the Edge of a Cliff, Some Colleges Are Teaming Up to Survive**\
+`Faced with declining enrollment, smaller schools are harnessing innovative ideas — like course sharing — to attract otherwise reluctant students.`\
+https://nytimes.com/2022/10/06/education/learning/college-course-sharing.html?searchResultPosition=7
 
-**Word of the Day: scion**\
-`This word has appeared in 128 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/10/06/learning/word-of-the-day-scion.html?searchResultPosition=8
+**Kathmandu Finally Got Tap Water. After a Climate Disaster, It Was Gone.**\
+`A disaster that wiped out a decades-long project to bring pipe-borne water to Nepal’s capital shows the mismatch between slow-moving donor-financed efforts and rapid global warming.`\
+https://nytimes.com/2022/10/06/world/asia/nepal-water-melamchi.html?searchResultPosition=8
 
-**Your Thursday Briefing**\
-`OPEC’s decision to curb oil production.`\
-https://nytimes.com/2022/10/06/briefing/opec-oil-ukraine-war-russia.html?searchResultPosition=9
+**‘Do You Look After Your Neighbors as Close as Your Crop or Herd?’**\
+`Aching from a string of farmer suicides and other mental health challenges, neighbors in rural eastern Colorado are learning how to check in on one another. But as the drought drags on, is talking enough?`\
+https://nytimes.com/2022/10/06/opinion/colorado-farmer-suicides.html?searchResultPosition=9
 
-**Meet the Shadowy Groups Behind Liz Truss**\
-`Britain has become a libertarian laboratory.`\
-https://nytimes.com/2022/10/06/opinion/truss-kwarteng-uk.html?searchResultPosition=10
+**Could Tutoring Be the Best Tool for Fighting Learning Loss?**\
+`In-school tutoring is not a silver bullet. But it may help students and schools reduce some pandemic-related slides in achievement.`\
+https://nytimes.com/2022/10/06/education/learning/tutoring-learning-loss.html?searchResultPosition=10
 
