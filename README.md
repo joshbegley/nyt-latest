@@ -22,7 +22,7 @@ https://nytimes.com/video/world/asia/100000008523311/li-wenliang-chinese-video-i
 `A New York Times video investigation reveals new details about Dr. Li Wenliang’s illness and death from Covid-19 based on medical records and an exclusive interview with a key witness.`\
 https://nytimes.com/video/world/asia/100000008352308/doctor-li-wenliang-covid-china.html?searchResultPosition=6
 
-**Four Members of California Family Found Dead Two Days After Abduction**\
+**Four Members of California Family Are Found Dead Two Days After Abduction**\
 `“Our worst fears have been confirmed,” the Merced County sheriff said after the bodies of a baby, her parents and an uncle were discovered two days after they were kidnapped in Merced, Calif.`\
 https://nytimes.com/2022/10/05/us/california-family-kidnapped.html?searchResultPosition=7
 
