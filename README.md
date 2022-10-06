@@ -19,7 +19,7 @@ https://nytimes.com/2022/10/06/business/media/netflix-glass-onion-theaters.html?
 https://nytimes.com/2022/10/06/us/politics/joseph-brody-jan-6-youngkin.html?searchResultPosition=5
 
 **Biden Pardons Thousands of People Convicted of Marijuana Possession Under Federal Law**\
-`The president will also urge governors to follow his lead for people convicted on state charges of possession, officials say.`\
+`The president urged governors to follow his lead for people convicted on state charges of possession.`\
 https://nytimes.com/2022/10/06/us/politics/biden-marijuana-pardon.html?searchResultPosition=6
 
 **What Does X Mean to Elon Musk?**\
