@@ -1,40 +1,40 @@
+**Here’s Hoping Elon Musk Destroys Twitter**\
+`The best thing the platform can do for society is implode.`\
+https://nytimes.com/2022/10/06/opinion/elon-musk-twitter.html?searchResultPosition=1
+
+**Russia Lashes Out in Ukraine, Raising Question of What’s Next**\
+`Facing battlefield setbacks and domestic criticism, the Kremlin has escalated its war, claiming ownership of a nuclear plant and launching more attacks on Ukrainian cities.`\
+https://nytimes.com/2022/10/06/world/europe/russia-war-ukraine.html?searchResultPosition=2
+
+**Some Democrats Embrace the Police as the G.O.P.’s Crime Attacks Bite**\
+`Violent crime in cities has become a central talking point of Republican campaigns. It’s hurting many Democratic candidates, but not all.`\
+https://nytimes.com/2022/10/06/us/politics/crime-republicans-democrats.html?searchResultPosition=3
+
+**Saskatchewan Mass Killings Were the Work of One Brother, Police Say**\
+`The Royal Canadian Mounted Police said Myles Sanderson had killed not just 10 people on an Indigenous reserve and in a nearby village but also his brother, Damien.`\
+https://nytimes.com/2022/10/06/world/canada/saskatchewan-killings-myles-sanderson.html?searchResultPosition=4
+
+**The Triumph of the Ukrainian Idea**\
+`Only a strong liberal nationalism can defeat the authoritarians.`\
+https://nytimes.com/2022/10/06/opinion/ukraine-liberal-nationalism.html?searchResultPosition=5
+
 **Mexico Military Is Hacked, Exposing Abuse and Efforts to Evade Oversight**\
 `Hackers infiltrated the Mexican Defense Ministry, publishing millions of emails that detail the military’s growing influence over the civilian government.`\
-https://nytimes.com/2022/10/06/world/americas/mexico-hack-government-military.html?searchResultPosition=1
+https://nytimes.com/2022/10/06/world/americas/mexico-hack-government-military.html?searchResultPosition=6
 
 **Tracking the Coming Economic Storm**\
 `We really don’t want the Fed to do a Lee County.`\
-https://nytimes.com/2022/10/06/opinion/fed-inflation-interest-rates.html?searchResultPosition=2
+https://nytimes.com/2022/10/06/opinion/fed-inflation-interest-rates.html?searchResultPosition=7
 
 **Gun-Related Suicides and Killings Continued to Rise in 2021, C.D.C. Reports**\
 `The increases in homicides were particularly stark among Black and Hispanic men, while suicides involving firearms rose among all adults.`\
-https://nytimes.com/2022/10/06/health/guns-homicides-suicides-cdc.html?searchResultPosition=3
+https://nytimes.com/2022/10/06/health/guns-homicides-suicides-cdc.html?searchResultPosition=8
 
 **Putin and M.B.S. Are Laughing at Us**\
 `Putin’s motivation for OPEC’s price hike is no mystery. `\
-https://nytimes.com/2022/10/06/opinion/opec-putin-mbs.html?searchResultPosition=4
+https://nytimes.com/2022/10/06/opinion/opec-putin-mbs.html?searchResultPosition=9
 
 **Governor’s Wife Has High-Profile Role After Florida Hurricane**\
 `Casey DeSantis has led a state effort to raise money for relief efforts in Ian’s wake, appealing for donations during her husband’s news briefings.`\
-https://nytimes.com/2022/10/06/us/casey-desantis-ron-desantis-florida.html?searchResultPosition=5
-
-**Rick Martínez’s Essential Mexican Recipes**\
-`The “Mi Cocina” author and a second-generation Mexican American shares the regional specialties he loves most.`\
-https://nytimes.com/2022/10/06/dining/rick-martinez-mi-cocina-author-essential-mexican-recipes.html?searchResultPosition=6
-
-**Witness in Oath Keepers Sedition Trial Says Leader Promoted Violent Approach**\
-`“It sounded like we were going to war against the United States government,” a former member of the militia group testified.`\
-https://nytimes.com/2022/10/06/us/politics/oath-keepers-jan-6-trial.html?searchResultPosition=7
-
-**Aces on the Mound and Trash Talkers Everywhere Else**\
-`Adam Wainwright and Max Scherzer are terrific veteran starters for playoff teams, and their off-field rivalry includes chirpy texts, fantasy football and (occasionally) some advice.`\
-https://nytimes.com/2022/10/06/sports/baseball/max-scherzer-adam-wainwright.html?searchResultPosition=8
-
-**Weekly Health Quiz: Medical Tests, Malaria and Teeth Whitening**\
-`Test your knowledge of this week’s health news.`\
-https://nytimes.com/interactive/2022/10/06/well/live/06healthquiz-10062022.html?searchResultPosition=9
-
-**Annie Ernaux Is Awarded the Nobel Prize in Literature**\
-`The French novelist Annie Ernaux was awarded one of literature’s highest honors for her body of work that has spoken particularly to women and to others who, like her, come from the working class.`\
-https://nytimes.com/video/world/europe/100000008570803/nobel-prize-literature-annie-ernaux.html?searchResultPosition=10
+https://nytimes.com/2022/10/06/us/casey-desantis-ron-desantis-florida.html?searchResultPosition=10
 
