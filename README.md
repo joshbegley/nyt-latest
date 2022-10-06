@@ -16,7 +16,7 @@ https://nytimes.com/2022/10/06/style/usa-mullet-championships.html?searchResultP
 
 **The Fed Wants to Quash Inflation. But Can It Do It More Gently?**\
 `Central bankers have been raising rates rapidly to temper demand and bring prices under control. Now, they’re asking when they can slow down.`\
-https://nytimes.com/2022/10/06/business/economy/the-fed-wants-to-quash-inflation-but-can-it-do-it-more-gently.html?searchResultPosition=5
+https://nytimes.com/2022/10/06/business/economy/fed-mary-daly-interview.html?searchResultPosition=5
 
 **‘Derry Girls’: And Now Their Troubles Are Ended**\
 `Netflix’s riotous comedy brings its coming-of-age story to a close, along with a chapter in Northern Ireland’s history.`\
