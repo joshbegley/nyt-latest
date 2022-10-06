@@ -7,7 +7,7 @@ https://nytimes.com/2022/10/06/us/politics/biden-saudi-arabia-oil.html?searchRes
 https://nytimes.com/2022/10/06/well/live/hangover-anxiety-mood.html?searchResultPosition=2
 
 **Justice Dept. Is Said to Believe Trump Has More Documents**\
-`Skepticism continues among investigators about the former president’s cooperation with the effort to retrieve government material, and it has exposed a rift among his lawyers.`\
+`Conversations between department officials and the former president’s representatives have underscored investigators’ skepticism about his cooperation and exposed a rift among his lawyers.`\
 https://nytimes.com/2022/10/06/us/politics/trump-white-house-documents-lawyers.html?searchResultPosition=4
 
 **Jurors in Alex Jones Case Begin Deliberating**\
