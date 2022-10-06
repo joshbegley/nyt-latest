@@ -19,7 +19,7 @@ https://nytimes.com/2022/10/06/movies/hellraiser-review.html?searchResultPositio
 https://nytimes.com/2022/10/06/theater/ophelias-got-talent-volksbuehne.html?searchResultPosition=5
 
 **Mass Shooting in Northeastern Thailand**\
-`Dozens of people, including many children, have died after a gunman opened fire at a child-care facility in the Uthaisawan subdistrict in Nong Bua Lamphu Province.`\
+`Dozens of people, most of them children, have died after a gunman opened fire at a child-care facility in the Uthaisawan subdistrict in Nong Bua Lamphu Province.`\
 https://nytimes.com/video/world/asia/100000008569354/thailand-children-mass-shooting.html?searchResultPosition=6
 
 **The Politics of Grievance**\
