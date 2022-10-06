@@ -1,5 +1,5 @@
 **Mass Shooting in Northeastern Thailand**\
-`Dozens of people, including many children, have died after a gunman opened fire at a child-care facility in the Uthai Sawan subdistrict in Nong Bua Lamphu Province.`\
+`Dozens of people, including many children, have died after a gunman opened fire at a child-care facility in the Uthaisawan subdistrict in Nong Bua Lamphu Province.`\
 https://nytimes.com/video/world/asia/100000008569354/thailand-children-mass-shooting.html?searchResultPosition=1
 
 **The Politics of Grievance**\
