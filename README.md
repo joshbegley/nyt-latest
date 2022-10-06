@@ -1,4 +1,4 @@
-**Justice Dept. Is Said to Have Told Trump Lawyers It Believes He Has More Documents**\
+**Justice Dept. Is Said to Believe Trump Has More Documents**\
 `The move underscores the skepticism among investigators about the former president’s cooperation with the effort to retrieve government material, and it exposed a rift among his lawyers.`\
 https://nytimes.com/2022/10/06/us/politics/trump-white-house-documents-lawyers.html?searchResultPosition=1
 
