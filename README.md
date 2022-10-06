@@ -1,5 +1,5 @@
 **Elon Musk Moves to Delay Trial as Talks With Twitter Drag on for a Third Day**\
-`Key details on the $44 billion offer are still being hashed out on a deal that could head off a trial set to begin in Delaware in a little more than week`\
+`Key details on the $44 billion offer are still being hashed out on a deal that could head off a trial set to begin in Delaware in a little more than week.`\
 https://nytimes.com/2022/10/06/technology/elon-musk-moves-to-delay-trial-as-talks-with-twitter-drag-on-for-a-third-day.html?searchResultPosition=1
 
 **Netflix’s ‘Knives Out’ Sequel Headed to Theaters Before Streaming**\
@@ -12,7 +12,7 @@ https://nytimes.com/2022/10/06/us/politics/joseph-brody-jan-6-youngkin.html?sear
 
 **Biden Pardons Thousands of People Convicted of Marijuana Possession Under Federal Law**\
 `The president will also urge governors to follow his lead for people convicted on state charges of possession, officials say.`\
-https://nytimes.com/2022/10/06/us/politics/biden-marijuana.html?searchResultPosition=4
+https://nytimes.com/2022/10/06/us/politics/biden-marijuana-pardon.html?searchResultPosition=4
 
 **What Does X Mean to Elon Musk?**\
 `The letter X has had significance in the billionaire’s life, from his early days as an entrepreneur to his personal life and now to his pursuit of Twitter.`\
