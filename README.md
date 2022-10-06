@@ -1,6 +1,6 @@
-**Thailand Mass Shooting: At Least 31 Dead**\
-`The attack happened at a child-care facility, and the victims include both children and adults.`\
-https://nytimes.com/live/2022/10/06/world/thailand-shooting/thailand-mass-shooting?searchResultPosition=1
+**In Algeria, Veiled From the World, Past and Future Are Shrouded, Too**\
+`A land of thwarted potential, the country fends off outside influences, political change and some of its own history.`\
+https://nytimes.com/2022/10/06/world/middleeast/algeria-oran-camus.html?searchResultPosition=1
 
 **Christian Walker, Warrior for the Right, Now Battles His Father**\
 `Before his Twitter posts upended the Georgia senate race, Herschel Walker’s son already had a large social media presence reveling in contradictions.`\
