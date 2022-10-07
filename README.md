@@ -2,7 +2,7 @@
 `Smaller countries see Germany’s domestic largess to tackle spiraling energy costs as undermining the effort to lower fuel prices for the wider European Union.`\
 https://nytimes.com/2022/10/07/world/europe/european-commission-natural-gas-germany.html?searchResultPosition=1
 
-**National Gallery of Art Reveals That a Vermeer Is an Imitator**\
+**A Vermeer? It’s Actually an Imitator, National Gallery of Art Reveals**\
 `Museum researchers said there was enough evidence to warrant changing the attribution of one of its four Vermeers.`\
 https://nytimes.com/2022/10/07/arts/vermeer-impostor-national-gallery.html?searchResultPosition=2
 
