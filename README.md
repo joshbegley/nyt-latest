@@ -3,7 +3,7 @@
 https://nytimes.com/2022/10/07/briefing/putin-russia-dissent-thailand-shooting.html?searchResultPosition=1
 
 **Thailand Mourns Victims of Day Care Mass Shooting**\
-`Family members and mourners laid flowers outside the day care center in northeastern Thailand where a gunman killed three dozen people, including 24 young children.`\
+`Volunteer rescue workers unloading a coffin at the Udon Thani Hospital morgue in Udon Thani, Thailand, on Friday. Andre Malerba for The New York Times`\
 https://nytimes.com/video/world/asia/100000008571340/thailand-daycare-shooting-memorial.html?searchResultPosition=2
 
 **Could Micron Help Reinvent Upstate New York?**\
