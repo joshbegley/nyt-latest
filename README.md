@@ -24,7 +24,7 @@ https://nytimes.com/2022/10/07/books/review/victory-stand-tommie-smith-call-him-
 
 **Tropical Depression Gains Power in the Caribbean**\
 `Heavy rains were lashing the Guajira Peninsula in northern Colombia and northwestern Venezuela on Friday. Forecasters warned of mudslides and flash flooding in parts of Central America.`\
-https://nytimes.com/article/tropical-storm-hurricane-caribbean-central-america.html?searchResultPosition=7
+https://nytimes.com/article/tropical-storm-julia-hurricane-caribbean-central-america.html?searchResultPosition=7
 
 **Under New Order, Europeans Can Complain to U.S. About Data Collection**\
 `The executive order, signed by President Biden, brings the United States and the European Union closer to a broader deal on the transfer of digital data.`\
