@@ -6,8 +6,8 @@ https://nytimes.com/video/world/americas/100000008573061/easter-island-fire-stat
 `The U.S. and England can be expected to enter next year’s World Cup as favorite and challenger. Friday’s friendly was a chance to establish which team would occupy which role.`\
 https://nytimes.com/2022/10/07/sports/soccer/england-beats-us-womens-soccer-team-ending-a-win-streak.html?searchResultPosition=2
 
-**Biden Warns of Nuclear Risk and Says Putin Needs an ‘Off-Ramp’**\
-`President Biden’s aides have been debating whether there might be a way out for the wounded Russian leader.`\
+**In Dealing With Putin Threat, Biden Turns to Lessons of Cuban Missile Crisis**\
+`President Biden has mused publicly on whether there might be an “off-ramp” for nuclear threats from the Russian leader that invoke Cold War rhetoric.`\
 https://nytimes.com/2022/10/07/us/politics/biden-putin-armageddon-nuclear-threat.html?searchResultPosition=3
 
 **What Are Your Holiday Shopping Plans? We Want to Know.**\
