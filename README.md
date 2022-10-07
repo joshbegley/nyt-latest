@@ -24,7 +24,7 @@ https://nytimes.com/2022/10/07/obituaries/gunter-lamprecht-dead.html?searchResul
 
 **Biden Administration to Clamp Down on China’s Access to Chip Technology**\
 `The White House is set to issue sweeping restrictions on selling semiconductors and chip-making equipment to China, an attempt to curb the country’s access to technologies that can be used in war.`\
-https://nytimes.com/2022/10/07/business/economy/biden-administration-to-clamp-down-on-chinas-access-to-chip-technology.html?searchResultPosition=7
+https://nytimes.com/2022/10/07/business/economy/biden-chip-technology.html?searchResultPosition=7
 
 **The New York Times Presents: ‘Superspreader’**\
 `A documentary from The Times explores the contentious career and business of the Florida-based physician.`\
