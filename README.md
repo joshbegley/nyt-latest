@@ -1,4 +1,4 @@
-**Anton Fier, Drummer Who Helped Shape a Downtown Scene, Dies at 66**\
+**Anton Fier, Drummer Who Left Stamp on a Downtown Scene, Dies at 66**\
 `He worked with everyone from the Feelies to Herbie Hancock to Laurie Anderson, as well as leading the indie-rock supergroup the Golden Palominos. But there was a troubled side.`\
 https://nytimes.com/2022/10/07/arts/music/anton-fier-dead.html?searchResultPosition=1
 
