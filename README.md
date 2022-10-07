@@ -1,5 +1,5 @@
 **Biden calls the ‘prospect of Armageddon’ the highest since the Cuban missile crisis.**\
-`The president’s blunt warnings were delivered informally to a group of Democratic donors in New York City.`\
+`The president’s blunt warnings, highly unusual for an American president, were delivered informally to a group of Democratic donors in New York City.`\
 https://nytimes.com/2022/10/06/world/europe/biden-nuclear-war-risk.html?searchResultPosition=1
 
 **Variety: Acrostic**\
