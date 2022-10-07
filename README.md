@@ -31,7 +31,7 @@ https://nytimes.com/2022/10/07/sports/baseball/guardians-rays-wild-card-game-1.h
 https://nytimes.com/2022/10/07/style/porcelain-challenge-tiktok.html?searchResultPosition=8
 
 **Many of Hurricane Ian’s Victims Were Older Adults Who Drowned**\
-`The storm, Florida’s deadliest since 1935, killed at least 117 people in the state, many of them older residents who lived near the coast.`\
+`The storm, Florida’s deadliest since 1935, killed at least 119 people in the state, many of them older residents who lived near the coast.`\
 https://nytimes.com/2022/10/07/us/hurricane-ian-victims-drowned.html?searchResultPosition=9
 
 **Nobel Peace Prize Winners Share a Past Shadowed by Russian Abuses**\
