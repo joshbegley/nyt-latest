@@ -30,11 +30,11 @@ https://nytimes.com/interactive/2022/10/07/books/review/southern-novels-quiz.htm
 `The number of people in the New York City main shelter system has exceeded 61,000, nearing a record for the city.`\
 https://nytimes.com/2022/10/07/nyregion/eric-adams-migrant-crisis-response.html?searchResultPosition=8
 
+**Putin’s 70th birthday is hailed in Russia and derided in Ukraine.**\
+`Russian newspapers lauded Mr. Putin’s leadership, comparing him to Peter the Great and Leonid Brezhnev. Some Ukrainians said they hoped the birthday would be his last.`\
+https://nytimes.com/2022/10/07/world/europe/putin-birthday-russia-ukraine.html?searchResultPosition=9
+
 **Revisiting Baldwin vs. Buckley**\
 `Nicholas Buccola talks about “The Fire Is Upon Us,” and Lydia Millet discusses “The Children’s Bible.”`\
-https://nytimes.com/2022/10/07/books/review/revisiting-baldwin-vs-buckley.html?searchResultPosition=9
-
-**Madame Wu’s Chinese Food Was Glamorous and Transformative**\
-`Sylvia Wu, who died this week at 106, reshaped the tastes of Los Angeles power diners.`\
-https://nytimes.com/2022/10/07/dining/madame-wus-chinese-food-garden-restaurant.html?searchResultPosition=10
+https://nytimes.com/2022/10/07/books/review/revisiting-baldwin-vs-buckley.html?searchResultPosition=10
 
