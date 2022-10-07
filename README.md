@@ -10,7 +10,7 @@ https://nytimes.com/2022/10/07/world/europe/ukraine-center-for-civil-liberties-n
 `Terrance Gore doesn’t play very often, but if the Mets need a run late in a postseason game, expect to see him pinch-run. He’ll be ready.`\
 https://nytimes.com/2022/10/07/sports/baseball/terrance-gore-mets.html?searchResultPosition=3
 
-**The power of Paxlovid**\
+**The Power of Paxlovid**\
 `The underuse of Covid treatments is leading to many needless deaths.`\
 https://nytimes.com/2022/10/07/briefing/covid-treatment-paxlovid.html?searchResultPosition=4
 
