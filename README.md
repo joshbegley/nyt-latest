@@ -1,6 +1,6 @@
 **A Distracted Russia Is Losing Its Grip on Its Old Soviet Sphere**\
 `Russia’s domination of Central Asia and the Caucasus region is unraveling as the Kremlin focuses on the war in Ukraine — and border violence is flaring.`\
-https://nytimes.com/2022/10/08/world/russia-putin-soviet.html?searchResultPosition=1
+https://nytimes.com/2022/10/08/world/asia/russia-putin-soviet.html?searchResultPosition=1
 
 **Corrections: Oct. 8, 2022**\
 `Corrections that appeared in print on Saturday, Oct. 8, 2022.`\
