@@ -2,7 +2,7 @@
 `In a late-night interview in her new Manhattan apartment, the fake heiress discussed her big plans, possible deportation and the glam potential of an ankle monitor.`\
 https://nytimes.com/2022/10/08/style/anna-sorokin-delvey-interview.html?searchResultPosition=1
 
-**A 15th Inning Walk-Off Sends the Guardians to Division Series**\
+**A 15th Inning Walk-Off Sends Guardians to Division Series**\
 `Oscar Gonzalez’s solo homer was the only run in a five-hour game that had 16 pitchers and 39 strikeouts. Next up for Cleveland: the Yankees.`\
 https://nytimes.com/2022/10/08/sports/baseball/guardians-rays-wild-card-game-2.html?searchResultPosition=2
 
