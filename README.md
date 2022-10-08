@@ -27,7 +27,7 @@ https://nytimes.com/2022/10/08/science/animals-rights-piglets-smithfield.html?se
 https://nytimes.com/2022/10/08/arts/dance/stephanie-dabney-dead.html?searchResultPosition=7
 
 **Four missiles strike Kharkiv in one of the most intense attacks in weeks.**\
-`By Carlotta Gall`\
+`Two building complexes used by the Ukrainian military appeared to be the targets.`\
 https://nytimes.com/2022/10/08/world/europe/russia-strikes-kharkiv-ukraine.html?searchResultPosition=8
 
 **But did they do something about the women’s bathrooms? Yes, they did.**\
