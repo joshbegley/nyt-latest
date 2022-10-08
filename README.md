@@ -1,40 +1,40 @@
-**Crimea’s Kerch Strait Bridge holds deep strategic, and symbolic, value.**\
-`President Vladimir V. Putin of Russia presided over the bridge’s opening, personally driving a truck across the link between Russia and Crimea — land seized from Ukraine in 2014.`\
-https://nytimes.com/2022/10/08/world/europe/crimea-kerch-strait-bridge-explosion-explainer.html?searchResultPosition=1
+**A New Capital Worthy of the Pharaohs Rises in Egypt, but at What Price?**\
+`It is the grandest in a slew of megaprojects spearheaded by the president. But as the country limps through a dire economic crisis, there are doubts about whether it can afford his grandiose dreams.`\
+https://nytimes.com/2022/10/08/world/middleeast/egypt-new-administrative-capital.html?searchResultPosition=1
 
-**Fetterman’s Blue-Collar Allure Is Tested as Pennsylvania Race Tightens**\
-`John Fetterman, the Democratic nominee for Senate, says he can win over working-class voters in deep-red counties. Some evidence suggests he can, but partisan loyalties may prove more powerful.`\
-https://nytimes.com/2022/10/08/us/politics/fetterman-pennsylvania-senate-race.html?searchResultPosition=2
+**In California, Where Trees Are King, One Hardy Pine Has Survived for 4,800 Years**\
+`In a harsh alpine desert, the Great Basin bristlecone pines abide amid climate change. Among them is the oldest tree on Earth (if you can find it).`\
+https://nytimes.com/2022/10/08/us/pine-trees-bishop-california.html?searchResultPosition=2
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/10/08/crosswords/spelling-bee-forum.html?searchResultPosition=3
+**‘The Cash Monster Was Insatiable’: How Insurers Exploited Medicare for Billions**\
+`By next year, half of Medicare beneficiaries will have a private Medicare Advantage plan. Most large insurers in the program have been accused in court of fraud.`\
+https://nytimes.com/2022/10/08/upshot/medicare-advantage-fraud-allegations.html?searchResultPosition=3
 
-**A Distracted Russia Is Losing Its Grip on Its Old Soviet Sphere**\
-`Russia’s domination of Central Asia and the Caucasus region is unraveling as the Kremlin focuses on the war in Ukraine — and border violence is flaring.`\
-https://nytimes.com/2022/10/08/world/asia/russia-putin-soviet.html?searchResultPosition=4
+**In Trump Case, Texas Creates a Headache for Georgia Prosecutors**\
+`A Texas court is thwarting Georgia prosecutors’ attempts to compel testimony from Texas witnesses as part of a criminal investigation into former President Donald J. Trump.`\
+https://nytimes.com/2022/10/08/us/trump-case-texas-georgia.html?searchResultPosition=4
 
-**Corrections: Oct. 8, 2022**\
-`Corrections that appeared in print on Saturday, Oct. 8, 2022.`\
-https://nytimes.com/2022/10/08/pageoneplus/corrections-oct-8-2022.html?searchResultPosition=5
+**The Global Might of the Tiny Chip**\
+`Silicon chips power everything from cars and toys to phones and nukes. “Chip War,” by Chris Miller, recounts the rise of the chip industry and the outsize geopolitical implications of its ascendancy.`\
+https://nytimes.com/2022/10/08/books/review/chip-war-chris-miller.html?searchResultPosition=5
 
-**Quotation of the Day: Nobel Peace Prize Carries Message in Shadow of Russia’s War**\
-`Quotation of the Day for Saturday, Oct. 8, 2022.`\
-https://nytimes.com/2022/10/08/todayspaper/quotation-of-the-day-nobel-peace-prize-carries-message-in-shadow-of-russias-war.html?searchResultPosition=6
+**At Frieze London, a Web of Art Circling the World**\
+`A collection of lesser-known galleries will be featured in a special section of the event titled “Indra’s Net,” showcasing the works of 18 artists.`\
+https://nytimes.com/2022/10/08/arts/frieze-london-galleries-indras-net.html?searchResultPosition=6
 
-**Fake Heiress Anna Sorokin Is Released From Jail**\
-`Ms. Sorokin, who was convicted of swindling Manhattan’s elite as the high-flying Anna Delvey, was taken from an ICE detention facility on Friday to her new apartment in Manhattan.`\
-https://nytimes.com/2022/10/07/style/anna-delvey-sorokin-released.html?searchResultPosition=7
+**As New York’s Fear of Crime Grows, a Neighborhood Lives With Its Reality**\
+`Cypress Hills in Brooklyn is among the areas that lead the city in serious crimes. Krystal Chimelis is looking for a way out.`\
+https://nytimes.com/2022/10/08/nyregion/brooklyn-cypress-hills-gun-violence.html?searchResultPosition=7
 
-**Mets Ace Exits to Boos as Padres Muscle Their Way to Victory**\
-`Max Scherzer’s disastrous outing leaves the Mets one loss away from elimination in a best-of-three wild-card series.`\
-https://nytimes.com/2022/10/07/sports/baseball/max-scherzer-mets-padres-wild-card.html?searchResultPosition=8
+**How Trump Deflected Demands for Documents, Enmeshing Aides**\
+`The former president exhibited a pattern of dissembling about the material he took from the White House, creating legal risk not just for himself but also some of his lawyers.`\
+https://nytimes.com/2022/10/08/us/politics/trump-documents-lawyers.html?searchResultPosition=8
 
-**Rivian Recalls 13,000 Electric Vehicles Over a Steering Issue**\
-`The announcement covers nearly all of the vehicles the company has delivered to date, though it said the problem had affected only a small number.`\
-https://nytimes.com/2022/10/07/business/rivian-recall-steering.html?searchResultPosition=9
+**How Kwame Onwuachi, Celebrity Chef, Spends His Sundays**\
+`The recent Los Angeles transplant is opening a restaurant at Lincoln Center. But he still finds time to “vibe out.”`\
+https://nytimes.com/2022/10/08/nyregion/kwame-onwuachi-tatiana.html?searchResultPosition=9
 
-**Sockdolager**\
-`Kyle Dolan’s Saturday puzzle is a breath of fresh air.`\
-https://nytimes.com/2022/10/07/crosswords/daily-puzzle-2022-10-08.html?searchResultPosition=10
+**Changing Baseball, One Snack at a Time**\
+`With each team required to have a dietitian on staff, the days of pizza, hot dogs and nachos are largely over.`\
+https://nytimes.com/2022/10/08/sports/baseball/snack-foods-dietitians.html?searchResultPosition=10
 
