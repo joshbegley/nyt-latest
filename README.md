@@ -6,7 +6,7 @@ https://nytimes.com/2022/10/08/world/europe/ireland-gas-station-explosion.html?s
 `In 2017, the Republican candidate for Senate started a nonprofit group to tackle the social ills he had written about in his “Hillbilly Elegy” memoir. It fell apart within two years.`\
 https://nytimes.com/2022/10/08/us/politics/jd-vance-ohio-senate-nonprofit.html?searchResultPosition=2
 
-**From Moscow to Tehran, A Crisis of Illiberalism**\
+**From Moscow to Tehran, a Crisis of Illiberalism**\
 `The liberal West is in trouble, but its rivals still aren’t ready to supplant it.`\
 https://nytimes.com/2022/10/08/opinion/russia-iran-china-putin.html?searchResultPosition=3
 
