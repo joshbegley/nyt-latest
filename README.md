@@ -16,7 +16,7 @@ https://nytimes.com/2022/10/08/opinion/herschel-walker-trump-republican.html?sea
 
 **‘Happy birthday, Mr. President’: Ukrainians celebrate the bridge blast with memes.**\
 `The bridge has both practical and symbolic resonance.`\
-https://nytimes.com/2022/10/08/world/europe/ukrainians-celebrate-the-bridge-blast-with-memes.html?searchResultPosition=5
+https://nytimes.com/2022/10/08/world/europe/ukrainians-crimea-bridge-memes.html?searchResultPosition=5
 
 **Billy Sothern, Crusading New Orleans Defense Lawyer, Dies at 45**\
 `He was known for taking on some of Louisiana’s toughest cases, including the wrongful conviction of Albert Woodfox, who spent 42 years in solitary confinement.`\
