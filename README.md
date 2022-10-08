@@ -26,15 +26,15 @@ https://nytimes.com/2022/10/08/science/animals-rights-piglets-smithfield.html?se
 `A principal dancer with Dance Theater of Harlem, she was an international star, a memorable Firebird and an inspiration for dancers of color.`\
 https://nytimes.com/2022/10/08/arts/dance/stephanie-dabney-dead.html?searchResultPosition=7
 
+**Four missiles strike Kharkiv in one of the most intense attacks in weeks.**\
+`By Carlotta Gall`\
+https://nytimes.com/2022/10/08/world/europe/russia-strikes-kharkiv-ukraine.html?searchResultPosition=8
+
 **But did they do something about the women’s bathrooms? Yes, they did.**\
 `Before the renovation, finding a restroom could be excruciating, especially for women.`\
-https://nytimes.com/2022/10/08/arts/music/david-geffen-hall-bathrooms.html?searchResultPosition=8
+https://nytimes.com/2022/10/08/arts/music/david-geffen-hall-bathrooms.html?searchResultPosition=9
 
 **Speedy Soup**\
 `You can make great soup in less than an hour! These recipes will get you there fast.`\
-https://nytimes.com/2022/10/08/dining/speedy-soup.html?searchResultPosition=9
-
-**The Purpose of Extra-Large Marshmallows? A U.K. Court Weighs In**\
-`A British tribunal considered how a slightly larger marshmallow might be taxed by evaluating its taste, size and packaging.`\
-https://nytimes.com/2022/10/08/world/europe/marshmallow-uk-tax.html?searchResultPosition=10
+https://nytimes.com/2022/10/08/dining/speedy-soup.html?searchResultPosition=10
 
