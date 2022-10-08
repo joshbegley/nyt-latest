@@ -6,8 +6,8 @@ https://nytimes.com/2022/10/08/dining/speedy-soup.html?searchResultPosition=1
 `A British tribunal considered how a slightly larger marshmallow might be taxed by evaluating its taste, size and packaging.`\
 https://nytimes.com/2022/10/08/world/europe/marshmallow-uk-tax.html?searchResultPosition=2
 
-**Annie Ernaux Understands That the Past Is Never Simple**\
-`Ernaux’s work insists that nothing in life is simple. And it is from that complexity that her work — and, indeed, her very voice — emerges. `\
+**What Nobel Prize-Winner Annie Ernaux Understands About the Past**\
+`Ernaux’s work insists that nothing in life is simple. And it is from that complexity that her work — and, indeed, her very voice — emerges.`\
 https://nytimes.com/2022/10/08/opinion/writing-annie-ernaux-nobel.html?searchResultPosition=3
 
 **The new hall sparkles with new art by Nina Chanel Abney and Jacolby Satterwhite.**\
