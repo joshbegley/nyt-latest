@@ -1,4 +1,4 @@
-**N.F.L., Players Union Agree to Change Concussion Rules**\
+**N.F.L. and Players’ Union Agree to Change Concussion Rules**\
 `The league and the union said the concussion protocol was followed after Dolphins quarterback Tua Tagovailoa hit his head two weeks ago. But his return to that game has prompted a change in the protocol.`\
 https://nytimes.com/2022/10/08/sports/football/nfl-concussion-protocol-change-tagavailoa.html?searchResultPosition=1
 
