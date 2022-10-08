@@ -2,7 +2,7 @@
 `The league and the union said the concussion protocol was followed after Dolphins quarterback Tua Tagovailoa hit his head two weeks ago. But his return to that game has prompted a change in the protocol.`\
 https://nytimes.com/2022/10/08/sports/football/nfl-concussion-protocol-change-tagavailoa.html?searchResultPosition=1
 
-**More College Athletes are Trekking to Ironman**\
+**More College Athletes Are Trekking to Ironman**\
 `The extreme triathlon has long been out of reach for many young athletes because of financial hurdles and timing demands. New rules and the coronavirus pandemic changed that.`\
 https://nytimes.com/2022/10/08/sports/ironman-college-athletes.html?searchResultPosition=2
 
