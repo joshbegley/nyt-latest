@@ -19,7 +19,7 @@ https://nytimes.com/2022/10/09/podcasts/the-daily/extraterrestrials-technosignat
 https://nytimes.com/2022/10/09/opinion/biden-trump-midterms.html?searchResultPosition=5
 
 **Why Strict but Inconsistent Gun Laws Did Not Keep Thailand Safe**\
-`Firearm policy is strict for some people and lax for others, a recipe for problems. The horrific attack by an ex-policeman may spur calls for change, but it will not be easy.`\
+`Firearm policy is tough for some people and lax for others, a recipe for problems. The horrific attack by an ex-policeman may spur calls for change, but it will not be easy.`\
 https://nytimes.com/2022/10/09/world/asia/thailand-gun-laws-shootings.html?searchResultPosition=6
 
 **At Frieze, Shining a Spotlight on Women Artists**\
