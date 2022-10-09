@@ -1,6 +1,6 @@
 **Emily Sisson Demolishes American Marathon Record in Chicago**\
 `Sisson, who finished second, ran the Chicago Marathon in 2:18:29. It is the second time the American record has fallen this year.`\
-https://nytimes.com/2022/10/09/sports/chicago-marathon-results.html?searchResultPosition=1
+https://nytimes.com/2022/10/09/sports/emily-sisson-chicago-marathon-results.html?searchResultPosition=1
 
 **Trains and cars are moving on the Kerch bridge, but not all traffic.**\
 `An explosion a day earlier partly damaged the span and embarrassed the Kremlin.`\
