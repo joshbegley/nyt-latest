@@ -1,5 +1,5 @@
 **With Their Season on the Line, the Mets Come to Life**\
-`Jacob deGrom kept things close early and the Mets’ offense exploded late, forcing a decisive Game 3 in the new wild-card round.`\
+`Jacob deGrom kept things close early and the Mets’ offense exploded late, forcing the only decisive Game 3 of the new wild-card round.`\
 https://nytimes.com/2022/10/08/sports/baseball/jacob-degrom-mets-padres-wild-card.html?searchResultPosition=1
 
 **Tradition in Tragedy: Funeral Rites Begin for Thai Massacre Victims**\
