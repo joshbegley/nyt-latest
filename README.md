@@ -15,7 +15,7 @@ https://nytimes.com/2022/10/09/crosswords/daily-puzzle-2022-10-10.html?searchRes
 https://nytimes.com/2022/10/09/world/europe/ukraine-zaporizhzhia-nuclear-power-plant-power.html?searchResultPosition=4
 
 **Another Dolphins Quarterback Exits After a Head Hit**\
-`The Dolphins’ backup, Teddy Bridgewater, left the game with head and shoulder injuries, leaving Skylar Thompson, a rookie, to finish.`\
+`The Dolphins’ backup, Teddy Bridgewater, left the game with head and elbow injuries, leaving Skylar Thompson, a rookie, to finish.`\
 https://nytimes.com/2022/10/09/sports/football/dolphins-jets-score.html?searchResultPosition=5
 
 **Behind Every Monarch, an Art Alliance**\
