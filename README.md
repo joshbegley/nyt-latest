@@ -1,40 +1,40 @@
+**‘There’s Nothing to be Sad About’: Pujols and Molina Say Goodbye**\
+`With the Phillies topping the Cardinals in the wild-card round, Albert Pujols and Yadier Molina have likely played their final game. Cooperstown is waiting.`\
+https://nytimes.com/2022/10/09/sports/baseball/albert-pujols-yadier-molina-cardinals.html?searchResultPosition=1
+
 **North Korea’s Threat**\
 `Frustrated and isolated, the North is conducting more missile tests than ever.`\
-https://nytimes.com/2022/10/09/briefing/north-korea-nuclear-tests.html?searchResultPosition=1
+https://nytimes.com/2022/10/09/briefing/north-korea-nuclear-tests.html?searchResultPosition=2
 
 **A Deadly Shooting at an Israeli Checkpoint Sets Jerusalem on Edge**\
 `Surging violence claimed the lives of four Palestinians and an Israeli soldier over the weekend, raising tensions on the eve of a Jewish holiday.`\
-https://nytimes.com/2022/10/09/world/middleeast/israel-palestinian-checkpoint-shooting.html?searchResultPosition=2
+https://nytimes.com/2022/10/09/world/middleeast/israel-palestinian-checkpoint-shooting.html?searchResultPosition=3
 
 **The Week in Business: Elon Musk’s Reversal**\
 `The September jobs numbers show that the labor market remains strong. OPEC Plus announced a major cut in oil production. And the Social Security cost-of-living increase will be announced.`\
-https://nytimes.com/2022/10/09/business/the-week-in-business-elon-musk-twitter.html?searchResultPosition=3
+https://nytimes.com/2022/10/09/business/the-week-in-business-elon-musk-twitter.html?searchResultPosition=4
 
 **Mismanagement and ‘Monster Trains’ Have Wrecked American Rail**\
 `Decades of cost-cutting takes a toll.`\
-https://nytimes.com/2022/10/09/opinion/business-economics/freight-train-mismanagement.html?searchResultPosition=4
+https://nytimes.com/2022/10/09/opinion/business-economics/freight-train-mismanagement.html?searchResultPosition=5
 
 **The Power of Joe Biden’s Anti-Charisma**\
 `A lot of politicians would have vied with Trump to make the election about them. `\
-https://nytimes.com/2022/10/09/opinion/biden-trump-midterms.html?searchResultPosition=5
+https://nytimes.com/2022/10/09/opinion/biden-trump-midterms.html?searchResultPosition=6
 
 **The Sunday Read: ‘The Search for Intelligent Life Is About to Get a Lot More Interesting’**\
 `There are an estimated 100 billion galaxies in the universe, home to an unimaginable abundance of planets. And now there are new ways to spot signs of life on them.`\
-https://nytimes.com/2022/10/09/podcasts/the-daily/extraterrestrials-technosignatures.html?searchResultPosition=6
+https://nytimes.com/2022/10/09/podcasts/the-daily/extraterrestrials-technosignatures.html?searchResultPosition=7
 
 **Why Strict but Inconsistent Gun Laws Did Not Keep Thailand Safe**\
 `Firearm policy is tough for some people and lax for others, a recipe for problems. The horrific attack by an ex-policeman may spur calls for change, but it will not be easy.`\
-https://nytimes.com/2022/10/09/world/asia/thailand-gun-laws-shootings.html?searchResultPosition=7
+https://nytimes.com/2022/10/09/world/asia/thailand-gun-laws-shootings.html?searchResultPosition=8
 
 **At Frieze, Shining a Spotlight on Women Artists**\
 `For years, female artists have been forgotten and erased. Camille Morineau aims to change that. Her next stop? Frieze Masters.`\
-https://nytimes.com/2022/10/09/arts/frieze-spotlight-women-artists.html?searchResultPosition=8
+https://nytimes.com/2022/10/09/arts/frieze-spotlight-women-artists.html?searchResultPosition=9
 
 **Rolling Out the Red Carpet**\
 `Top looks from George and Amal Clooney’s gala. Plus, opening nights at Carnegie Hall and the New York Film Festival.`\
-https://nytimes.com/2022/10/09/style/fashion-gala-george-amal-clooney-justice-carnegie-hall.html?searchResultPosition=9
-
-**Does everyone get the full Social Security cost-of-living adjustment?**\
-`The answer is tied to Medicare and how seniors pay for it.`\
-https://nytimes.com/2022/10/09/business/retirement/social-security-cola-medicare-impacts.html?searchResultPosition=10
+https://nytimes.com/2022/10/09/style/fashion-gala-george-amal-clooney-justice-carnegie-hall.html?searchResultPosition=10
 
