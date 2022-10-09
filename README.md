@@ -22,7 +22,7 @@ https://nytimes.com/2022/10/09/business/the-week-in-business-elon-musk-twitter.h
 `Decades of cost-cutting takes a toll.`\
 https://nytimes.com/2022/10/09/opinion/business-economics/freight-train-mismanagement.html?searchResultPosition=6
 
-**The Power of Joe Biden’s Anti-Charisma**\
+**Joe Biden Knows How to Use Donald Trump**\
 `A lot of politicians would have vied with Trump to make the election about them. `\
 https://nytimes.com/2022/10/09/opinion/biden-trump-midterms.html?searchResultPosition=7
 
