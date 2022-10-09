@@ -1,4 +1,4 @@
-**Moscow rushes to restore some road and rail traffic on the damaged Kerch bridge.**\
+**Trains and cars are moving on the Kerch bridge, but not all traffic.**\
 `An explosion a day earlier partly damaged the span and embarrassed the Kremlin.`\
 https://nytimes.com/2022/10/09/world/europe/russia-crimea-kerch-bridge-traffic.html?searchResultPosition=1
 
