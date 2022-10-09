@@ -1,5 +1,5 @@
 **Rescuing Civilians Along Ukraine’s Front Line**\
-`Soledar, in Ukraine’s east, was under heavy fire by Russia. Most people had already fled. Andrew Milburn’s mission was to evacuate the few still there.`\
+`Soledar, in Ukraine’s east, was under heavy fire by Russian forces. Most people had already fled. Andrew Milburn’s mission was to evacuate the few still there.`\
 https://nytimes.com/interactive/2022/10/09/world/europe/ukraine-war-soledar.html?searchResultPosition=1
 
 **Your Monday Briefing: Russia Strikes Key City**\
