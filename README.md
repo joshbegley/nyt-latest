@@ -1,6 +1,6 @@
 **Blast on Crimean Bridge Deals Blow to Russian War Effort in Ukraine**\
 `Any impediment to traffic on the bridge could affect Russia’s ability to wage war in southern Ukraine, where Ukraine’s forces have been fighting an increasingly effective counteroffensive.`\
-https://nytimes.com/2022/10/08/world/europe/ukraine-bridge-explosion.html?searchResultPosition=1
+https://nytimes.com/2022/10/08/world/europe/ukraine-crimea-bridge-explosion.html?searchResultPosition=1
 
 **Grace Glueck, 96, Dies; Arts Writer Fought for Equality at The Times**\
 `She made the art world a distinct beat at the newspaper, inspiring other papers to make it an industry standard. She later helped bring a groundbreaking sex-bias suit against The Times.`\
