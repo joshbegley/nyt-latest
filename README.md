@@ -1,6 +1,6 @@
 **What We Learned From Week 5 in the N.F.L.**\
 `The Giants’ win revealed the depth of the Packers’ offensive troubles, Jacoby Brissett was more than just a placeholder for the Browns, and the Bills have two receivers defenses should respect.`\
-https://nytimes.com/2022/10/09/sports/what-we-learned-from-week-5-in-the-nfl.html?searchResultPosition=1
+https://nytimes.com/2022/10/09/sports/nfl-week-5-takeaways.html?searchResultPosition=1
 
 **So Simple!**\
 `Byron Walden’s puzzle is a stroke of genius.`\
