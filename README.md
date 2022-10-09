@@ -23,7 +23,7 @@ https://nytimes.com/2022/10/08/sports/baseball/mariners-blue-jays-wild-card-seri
 https://nytimes.com/2022/10/08/world/europe/ukraine-crimea-bridge-explosion.html?searchResultPosition=6
 
 **Grace Glueck, 96, Dies; Arts Writer Fought for Equality at The Times**\
-`She made the art world a distinct beat at the newspaper, inspiring other papers to make it an industry standard. She later helped bring a groundbreaking sex-bias suit against The Times.`\
+`She made the art world a distinct beat at the newspaper, inspiring other papers to make it an industry standard. She later helped bring a groundbreaking sex-discrimination suit against The Times.`\
 https://nytimes.com/2022/10/08/business/media/grace-glueck-dead.html?searchResultPosition=7
 
 **Officer Fired After Shooting Teenager Who Was Eating in a McDonald’s Parking Lot**\
