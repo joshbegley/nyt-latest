@@ -23,7 +23,7 @@ https://nytimes.com/2022/10/09/world/middleeast/israel-solar-tower.html?searchRe
 https://nytimes.com/2022/10/09/opinion/racism-kanye-west.html?searchResultPosition=6
 
 **Putin blames Ukraine for the Crimea bridge blast, calling it an act of ‘terrorism.’**\
-`Mr. Putin’s remarks were his first about Saturday’s explosion on the Kerch Strait Bridge.`\
+`The Russian president’s remarks were his first about Saturday’s explosion on the Kerch Strait Bridge.`\
 https://nytimes.com/2022/10/09/world/europe/putin-ukraine-crimea-bridge-terrorism.html?searchResultPosition=7
 
 **Douglas Kirkland, Who Took Portraits of Movie Stars, Dies at 88**\
