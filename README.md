@@ -2,7 +2,7 @@
 `Many communities effectively ensure the only viable replacement for a starter home is a new one that’s much larger and more expensive.`\
 https://nytimes.com/2022/10/09/upshot/housing-home-prices-analysis.html?searchResultPosition=1
 
-**‘There’s Nothing to be Sad About’: Pujols and Molina Say Goodbye**\
+**‘There’s Nothing to Be Sad About’: Pujols and Molina Say Goodbye**\
 `With the Phillies topping the Cardinals in the wild-card round, Albert Pujols and Yadier Molina have likely played their final game. Cooperstown is waiting.`\
 https://nytimes.com/2022/10/09/sports/baseball/albert-pujols-yadier-molina-cardinals.html?searchResultPosition=2
 
