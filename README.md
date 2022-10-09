@@ -14,8 +14,8 @@ https://nytimes.com/2022/10/09/crosswords/daily-puzzle-2022-10-10.html?searchRes
 `The leader of the International Atomic Energy Agency said getting the plant reconnected to outside power was a “temporary relief in a still untenable situation.”`\
 https://nytimes.com/2022/10/09/world/europe/ukraine-zaporizhzhia-nuclear-power-plant-power.html?searchResultPosition=4
 
-**Another Dolphins Quarterback Leaves Game After a Head Hit**\
-`The Dolphins’ backup, Teddy Bridgewater, exited with head and shoulder injuries, leaving Skylar Thompson, a rookie, to finish the game.`\
+**Another Dolphins Quarterback Exits After a Head Hit**\
+`The Dolphins’ backup, Teddy Bridgewater, left the game with head and shoulder injuries, leaving Skylar Thompson, a rookie, to finish.`\
 https://nytimes.com/2022/10/09/sports/football/dolphins-jets-score.html?searchResultPosition=5
 
 **Behind Every Monarch, an Art Alliance**\
