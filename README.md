@@ -14,8 +14,8 @@ https://nytimes.com/2022/10/09/sports/baseball/mets-padres-wild-card-game-3.html
 `This week brought the end of an era as the second sons, those overshadowed, resentful men of Westeros, instigated most of the action.`\
 https://nytimes.com/2022/10/09/arts/television/house-of-the-dragon-season-1-episode-8-recap.html?searchResultPosition=4
 
-**2 Shot Outside Home of Lee Zeldin, Candidate for New York Governor**\
-`The conditions of the two people and the circumstances of what happened were unclear but officials said there was no connection between the shooting and the residents of the home.`\
+**2 Teenagers Shot Outside Home of Lee Zeldin, Candidate for New York Governor**\
+`The 17-year-old boys suffered injuries that were not life threatening and officials said there was no connection between the shooting and the residents of the home.`\
 https://nytimes.com/2022/10/09/nyregion/lee-zeldin-shooting-long-island-home.html?searchResultPosition=5
 
 **Review: In a New ‘Salesman,’ the Lomans Look Like All of Us**\
