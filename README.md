@@ -18,7 +18,7 @@ https://nytimes.com/2022/10/10/crosswords/wordle-wrap-up-oct-3-to-9.html?searchR
 `Entries for the week of Oct. 3, 2022.`\
 https://nytimes.com/2022/10/10/crosswords/spelling-bee-diary.html?searchResultPosition=5
 
-**Ben Bernanke Led the Fed During the Worst Financial Crisis in Generations**\
+**Bernanke Led the Fed During the Worst Financial Crisis in Generations**\
 `Mr. Bernanke was chair of the Federal Reserve during the global financial crisis, which brought the world’s economy to its knees.`\
 https://nytimes.com/2022/10/10/business/bernanke-fed-crisis-nobel-economics.html?searchResultPosition=6
 
