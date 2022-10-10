@@ -36,5 +36,5 @@ https://nytimes.com/2022/10/10/us/politics/oath-keeper-trials-jan-6.html?searchR
 
 **When and Where to Watch Key Debates in the Midterm Elections**\
 `With less than a month until Election Day, candidates are meeting for debates. Here’s what has taken place so far and how to watch the debates to come.`\
-https://nytimes.com/2022/10/10/us/politics/midterm-election-debates.html?searchResultPosition=10
+https://nytimes.com/article/midterm-election-debates.html?searchResultPosition=10
 
