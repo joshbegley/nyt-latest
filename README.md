@@ -1,6 +1,6 @@
 **Britain’s Young Hobbled by Inflation**\
 `Sharp price spikes are forcing the country’s young to move back in with family and worry about finances just as many were hoping to move past the pandemic.`\
-https://nytimes.com/2022/10/10/world/europe/britains-young-hobbled-by-inflation.html?searchResultPosition=1
+https://nytimes.com/2022/10/10/world/europe/uk-inflation-young-generations.html?searchResultPosition=1
 
 **Join Laurene Powell Jobs and John Doerr for a Times Climate Event**\
 `The Times is gathering innovators and storytellers on Oct. 12 to explore whether technology and art can inspire change in a warming world. Register for the free livestream.`\
