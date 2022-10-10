@@ -28,7 +28,7 @@ https://nytimes.com/2022/10/10/world/europe/ukraine-kyiv-russia-missiles.html?se
 
 **Watch Live: United Nations General Assembly Holds Emergency Session**\
 `The United Nations General Assembly holds an emergency special session to discuss Russia’s illegal annexation of parts of Ukraine.`\
-https://nytimes.com/video/world/europe/100000008575312/united-nations-general-assembly-russia-ukraine.html?searchResultPosition=8
+https://nytimes.com/video/embedded/world/europe/100000008575312/united-nations-general-assembly-russia-ukraine.html?searchResultPosition=8
 
 **U.K. Government Plans an Update to Its Tax and Spending Agenda**\
 `After an earlier announcement sent markets into a tailspin, the prime minister and the chancellor are under pressure to restore fiscal credibility.`\
