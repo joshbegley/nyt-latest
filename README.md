@@ -18,19 +18,19 @@ https://nytimes.com/2022/10/09/books/colleen-hoover.html?searchResultPosition=4
 `The Venezuelan armed forces planned to deploy canines and drones to find missing residents and to deliver food and medicine.`\
 https://nytimes.com/2022/10/09/world/americas/venezuela-mudslides.html?searchResultPosition=5
 
+**What is known about the possibility of a nuclear conflict with Russia.**\
+`Comments from President Biden last week raised the issue for the first time in decades.`\
+https://nytimes.com/2022/10/09/world/europe/russia-putin-nuclear-threat.html?searchResultPosition=7
+
 **A Minecraft Player Set Out to Build the Known Universe, Block by Block**\
 `Christopher Slayton, 18, spent two months intricately designing the planets. He even went skydiving to get a better appreciation for Earth.`\
-https://nytimes.com/2022/10/09/technology/minecraft-universe-developer.html?searchResultPosition=7
+https://nytimes.com/2022/10/09/technology/minecraft-universe-developer.html?searchResultPosition=8
 
 **Kanye West’s Posts Land Him in Trouble on Social Media**\
 `The rapper, who now goes by Ye, made remarks on Instagram and Twitter that were widely criticized as antisemitic. They came after he wore a “White Lives Matter” shirt at Paris Fashion Week.`\
-https://nytimes.com/2022/10/09/business/media/kanye-west-antisemitic-racist-twitter-instagram.html?searchResultPosition=8
+https://nytimes.com/2022/10/09/business/media/kanye-west-antisemitic-racist-twitter-instagram.html?searchResultPosition=9
 
 **What We Learned From Week 5 in the N.F.L.**\
 `The Giants’ win revealed the depth of the Packers’ offensive troubles, Jacoby Brissett was more than just a placeholder for the Browns, and the Bills have two receivers defenses should respect.`\
-https://nytimes.com/2022/10/09/sports/nfl-week-5-takeaways.html?searchResultPosition=9
-
-**So Simple!**\
-`Byron Walden’s puzzle is a stroke of genius.`\
-https://nytimes.com/2022/10/09/crosswords/daily-puzzle-2022-10-10.html?searchResultPosition=10
+https://nytimes.com/2022/10/09/sports/nfl-week-5-takeaways.html?searchResultPosition=10
 
