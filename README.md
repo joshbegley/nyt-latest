@@ -1,40 +1,40 @@
-**Deadly Explosions Rock Ukraine’s Capital**\
-`A series of explosions in the central Shevchenkivskyi district of Kyiv left at least five people dead and dozens wounded, according to a government official.`\
-https://nytimes.com/video/world/europe/100000008574541/kyiv-missile-strikes-explosions.html?searchResultPosition=1
+**$2 Million Homes in California**\
+`A Colonial Revival cottage in Carmel-by-the-Sea, a renovated Edwardian house in San Francisco and a midcentury-modern home in Los Angeles.`\
+https://nytimes.com/2022/10/10/realestate/home-prices-california.html?searchResultPosition=1
 
-**That Reusable Trader Joe’s Bag? It’s Rescuing an Indian Industry.**\
-`India’s deep-rooted jute industry has struggled for decades, undercut by cheaper synthetics. Now its bags are a sought-after biodegradable alternative.`\
-https://nytimes.com/2022/10/10/business/india-jute-reusable-shopping-bags.html?searchResultPosition=2
+**What You Get for $2 Million in California**\
+`A Colonial Revival cottage in Carmel-by-the-Sea, a renovated Edwardian house in San Francisco and a midcentury-modern home in Los Angeles.`\
+https://nytimes.com/slideshow/2022/10/10/realestate/what-you-get-for-2-million-in-california.html?searchResultPosition=2
 
-**Why Little-Noticed State Legislative Races Could Be Hugely Consequential**\
-`Races in state legislatures are often quiet and turn on local issues like roads or schools. But a Supreme Court case could give these legislative bodies nearly absolute power over federal elections.`\
-https://nytimes.com/2022/10/10/us/politics/supreme-court-state-legislature-elections.html?searchResultPosition=3
+**Savoring Bourbon, and Its Storied History, in Northern Kentucky**\
+`As new distilleries pop up across the United States, the region along the Ohio River remains a particularly exciting destination for spirits tourism.`\
+https://nytimes.com/2022/10/10/travel/kentucky-bourbon-whiskey-trail.html?searchResultPosition=3
 
-**‘Saved by Grace’: Evangelicals Find a Way Forward With Herschel Walker**\
-`The embattled G.O.P. candidate reportedly paid for an ex-girlfriend’s abortion, but conservatives have learned to tolerate the behavior of those who advance their cause.`\
-https://nytimes.com/2022/10/10/us/herschel-walker-evangelical-christians-georgia.html?searchResultPosition=4
+**After Giving Up on Cancer Vaccines, Doctors Start to Find Hope**\
+`Encouraging data from preliminary studies are making some doctors feel optimistic about developing immunizations against pancreatic, colon and breast cancers.`\
+https://nytimes.com/2022/10/10/health/cancer-vaccines.html?searchResultPosition=4
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/10/10/crosswords/spelling-bee-forum.html?searchResultPosition=5
+**They’re ‘World Champions’ of Banishing Water. Now, the Dutch Need to Keep It.**\
+`As climate change dries out Europe, the Netherlands, a country long shaped by its overabundance of water, is suddenly confronting drought.`\
+https://nytimes.com/2022/10/10/climate/netherlands-drought-climate-change.html?searchResultPosition=5
 
-**Quotation of the Day: Wildfire Destroys a Piece of Black History in Rural California**\
-`Quotation of the Day for Monday, October 10, 2022.`\
-https://nytimes.com/2022/10/10/todayspaper/quotation-of-the-day-wildfire-destroys-a-piece-of-black-history-in-rural-california.html?searchResultPosition=6
+**My Elders in Pakistan Predicted Calamity. Now It’s Here.**\
+`This is what happens when the floodwaters come.`\
+https://nytimes.com/2022/10/10/opinion/pakistan-floods-flood-crisis.html?searchResultPosition=6
 
-**North Korea Says It Is Building Underwater Nuclear Weapons Silos**\
-`The country’s leader, Kim Jong-un, has inspected a recent flurry of missile tests, vowing to increase — and never give up — his nuclear weapons.`\
-https://nytimes.com/2022/10/10/world/asia/north-korea-underwater-nuclear-missiles.html?searchResultPosition=7
+**As Warehouses Multiply, Some Cities Say: Enough**\
+`Several municipalities in California’s Inland Empire, a logistics hub, have halted warehouse construction to study their impact on pollution and congestion.`\
+https://nytimes.com/2022/10/10/business/economy/warehouses-moratorium-california.html?searchResultPosition=7
 
-**No Corrections: Oct. 10, 2022**\
-`No corrections appeared in print on Monday, Oct. 10, 2022.`\
-https://nytimes.com/2022/10/10/corrections/no-corrections-oct-10-2022.html?searchResultPosition=8
+**Justice Jackson Joins the Supreme Court, and the Debate Over Originalism**\
+`In arguments in a voting rights case, the new justice said history must inform constitutional interpretation, making a liberal case for an idea often associated with conservatives.`\
+https://nytimes.com/2022/10/10/us/politics/jackson-alito-kagan-supreme-court-originalism.html?searchResultPosition=8
 
-**Your Monday Briefing**\
-`Repercussions from an attack on the bridge between Crimea and Russia.`\
-https://nytimes.com/2022/10/10/briefing/russia-bridge-rwanda-migrants.html?searchResultPosition=9
+**How I Fell in Love With the Coal Miner’s Daughter**\
+`Loretta Lynn was complicated. Love is, too.`\
+https://nytimes.com/2022/10/10/opinion/loretta-lynn-trump-feminism-love.html?searchResultPosition=9
 
-**What’s on TV This Week: ‘38 at the Garden’ and a ‘Twilight Saga’ Marathon**\
-`HBO airs a documentary about Jeremy Lin’s winning streak with the New York Knicks. And all five vampire/werewolf romance movies play back to back.`\
-https://nytimes.com/2022/10/10/arts/television/whats-on-tv-this-week-38-at-the-garden-and-a-twilight-saga-marathon.html?searchResultPosition=10
+**The Dodgers Raise the Bar, but the Mandate Never Changes**\
+`No expansion-era team has had a better stretch of 1,000 regular-season games, but with only one World Series title so far, the baseball executive Andrew Friedman’s work isn’t done.`\
+https://nytimes.com/2022/10/10/sports/baseball/andrew-friedman-dodgers.html?searchResultPosition=10
 
