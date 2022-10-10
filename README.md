@@ -14,27 +14,27 @@ https://nytimes.com/2022/10/10/crosswords/wordle-wrap-up-oct-3-to-9.html?searchR
 `Entries for the week of Oct. 3, 2022.`\
 https://nytimes.com/2022/10/10/crosswords/spelling-bee-diary.html?searchResultPosition=4
 
+**Ben Bernanke led the Fed during the worst financial crisis in generations.**\
+`Mr. Bernanke was chair of the Federal Reserve during the global financial crisis, which brought the world’s economy to its knees.`\
+https://nytimes.com/2022/10/10/business/bernanke-fed-crisis-nobel-economics.html?searchResultPosition=5
+
 **A Brooklyn Artist Crafting Perforated Furniture**\
 `Plus: voluminous outerwear, a hotel with floor-to-ceiling views and more from T’s cultural compendium.`\
-https://nytimes.com/2022/10/10/t-magazine/thomas-barger-r48-tel-aviv.html?searchResultPosition=5
+https://nytimes.com/2022/10/10/t-magazine/thomas-barger-r48-tel-aviv.html?searchResultPosition=6
 
 **Ye Poses a Test for a Post-Musk Twitter**\
 `The rapper and designer’s suspension for antisemitic posts raises questions of how the social network will treat speech if it is sold to Elon Musk.`\
-https://nytimes.com/2022/10/10/business/dealbook/ye-kanye-west-elon-musk-twitter-instagram-ban.html?searchResultPosition=6
+https://nytimes.com/2022/10/10/business/dealbook/ye-kanye-west-elon-musk-twitter-instagram-ban.html?searchResultPosition=7
 
 **A Hamptons Cottage Where Everything Has Been Discovered Anew**\
 `To outfit his house, the furniture designer Maximilian Eicke repurposed materials from his own practice and his parents’ collection of antiques.`\
-https://nytimes.com/2022/10/10/t-magazine/maximilian-eicke-hamptons-cottage.html?searchResultPosition=7
+https://nytimes.com/2022/10/10/t-magazine/maximilian-eicke-hamptons-cottage.html?searchResultPosition=8
 
 **The Cooling Economy**\
 `The job market is still strong, but the long-expected slowdown has begun.`\
-https://nytimes.com/2022/10/10/briefing/economy-jobs-inflation.html?searchResultPosition=8
+https://nytimes.com/2022/10/10/briefing/economy-jobs-inflation.html?searchResultPosition=9
 
 **In Kyiv, the strikes shattered what had become a relative sense of calm.**\
 `Russia’s attacks on Ukraine’s capital on Monday came after months in which the fighting had shifted to other parts of the country.`\
-https://nytimes.com/2022/10/10/world/europe/kyiv-strikes-survivors.html?searchResultPosition=9
-
-**In Southern Ukraine, Signs of Low Russian Morale Amid Retreat**\
-`The Ukrainians are making gains in the south, an area where Russian soldiers are dug in more securely and where their retreat has been less chaotic than in the north.`\
-https://nytimes.com/2022/10/10/world/europe/ukraine-war-south.html?searchResultPosition=10
+https://nytimes.com/2022/10/10/world/europe/kyiv-strikes-survivors.html?searchResultPosition=10
 
