@@ -1,5 +1,5 @@
 **Ye Poses a Test for a Post-Musk Twitter**\
-`The rapper and designer’s suspension for posts deemed antisemitic raises questions of how the social network will treat speech if it is sold to Elon Musk.`\
+`The rapper and designer’s suspension for antisemitic posts raises questions of how the social network will treat speech if it is sold to Elon Musk.`\
 https://nytimes.com/2022/10/10/business/dealbook/ye-kanye-west-elon-musk-twitter-instagram-ban.html?searchResultPosition=1
 
 **A Hamptons Cottage Where Everything Has Been Discovered Anew**\
