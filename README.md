@@ -1,6 +1,6 @@
 **2 Shot Outside Home of Lee Zeldin, Candidate for New York Governor**\
 `The conditions of the two people and the circumstances of what happened were unclear but officials said there was no connection between the shooting and the residents of the home.`\
-https://nytimes.com/2022/10/09/nyregion/lee-zeldin-home-shooting.html?searchResultPosition=1
+https://nytimes.com/2022/10/09/nyregion/lee-zeldin-shooting-long-island-home.html?searchResultPosition=1
 
 **Review: In a New ‘Salesman,’ the Lomans Look Like All of Us**\
 `Wendell Pierce and Sharon D Clarke star in a powerful revival of Arthur Miller’s drama, led by a Black cast.`\
