@@ -1,6 +1,6 @@
 **U.K. Government Plans a Halloween Update to Its Tax and Spending Agenda**\
 `After an earlier announcement sent markets into a tailspin, the prime minister and the chancellor are under pressure to restore fiscal credibility.`\
-https://nytimes.com/2022/10/10/business/economy/uk-government-plans-a-halloween-update-to-its-tax-and-spending-agenda.html?searchResultPosition=1
+https://nytimes.com/2022/10/10/business/economy/uk-government-fiscal-plan-tax.html?searchResultPosition=1
 
 **Ukraine Is Weakened by Corruption, So How Is It Stymying the Russians?**\
 `Here are eight possible explanations.`\
