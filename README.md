@@ -1,5 +1,5 @@
-**Large Explosions Rock Ukraine’s Capital**\
-`Footage shows smoke rising as multiple blasts were heard in the Ukrainian capital of Kyiv. There was no immediate information about casualties.`\
+**Deadly Explosions Rock Ukraine’s Capital**\
+`A series of explosions in the central Shevchenkivskyi district of Kyiv left at least five people dead and dozens wounded, according to a government official.`\
 https://nytimes.com/video/world/europe/100000008574541/kyiv-missile-strikes-explosions.html?searchResultPosition=1
 
 **That Reusable Trader Joe’s Bag? It’s Rescuing an Indian Industry.**\
