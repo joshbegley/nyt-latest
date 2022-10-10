@@ -8,7 +8,7 @@ https://nytimes.com/2022/10/10/world/europe/uk-inflation-young-generations.html?
 
 **Douglas Diamond and Philip Dybvig Created an Influential Model About Bank Runs**\
 `The economists, who won this year’s Nobel Memorial Prize in economics, have spent their careers studying how things can go wrong with banks.`\
-https://nytimes.com/2022/10/10/business/diamond-and-dybvig-created-an-influential-model-about-the-dynamics-of-bank-runs.html?searchResultPosition=3
+https://nytimes.com/2022/10/10/business/diamond-dybvig-model-nobel-economics.html?searchResultPosition=3
 
 **Join Laurene Powell Jobs and John Doerr for a Times Climate Event**\
 `The Times is gathering innovators and storytellers on Oct. 12 to explore whether technology and art can inspire change in a warming world. Register for the free livestream.`\
