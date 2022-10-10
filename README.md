@@ -16,7 +16,7 @@ https://nytimes.com/2022/10/10/business/fed-inflation-rates-brainard.html?search
 
 **SPAC That Intends to Merge With Trump’s Truth Social Delays Shareholder Vote**\
 `The third postponement in the last month could put strain on Trump Media & Technology Group and its social media platform, Truth Social.`\
-https://nytimes.com/2022/10/10/business/spac-that-intends-to-merge-with-trumps-truth-social-delays-shareholder-vote.html?searchResultPosition=5
+https://nytimes.com/2022/10/10/business/trump-truth-social-spac.html?searchResultPosition=5
 
 **Amid Heartache and Anticipated Upheaval, the Mets Stay Positive**\
 `Their season ended in a crushing loss, and roster turnover could wildly remake the team, but Francisco Lindor and others see the seeds of future success.`\
