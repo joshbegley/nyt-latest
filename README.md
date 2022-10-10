@@ -32,7 +32,7 @@ https://nytimes.com/2022/10/10/briefing/ukraine-missile-russia-north-korea.html?
 
 **Stewart Rhodes is Not the Only Oath Keeper on Trial**\
 `The stories of the four other members of the far-right militia also facing charges of seditious conspiracy help flesh out the group’s role around the Jan. 6 attack on the Capitol.`\
-https://nytimes.com/2022/10/10/us/politics/stewart-rhodes-is-not-the-only-oath-keeper-on-trial.html?searchResultPosition=9
+https://nytimes.com/2022/10/10/us/politics/oath-keeper-trials-jan-6.html?searchResultPosition=9
 
 **When and Where to Watch Key Debates in the Midterm Elections**\
 `With less than a month until Election Day, candidates are meeting for debates. Here’s what has taken place so far and how to watch the debates to come.`\
