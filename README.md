@@ -3,7 +3,7 @@
 https://nytimes.com/2022/10/11/us/venezuelan-migrants-florida-doral-refugees.html?searchResultPosition=1
 
 **The Hunt to Arm Ukraine Leads to Difficult Choices**\
-`The U.S. and NATO are scouring the world for new sources of old weapons to send to Ukraine. But it risks as much peril for some nation as it does promise for Kyiv.`\
+`The U.S. and NATO are scouring the world for new sources of old weapons to send to Ukraine. But it risks as much peril for some nations as it does promise for Kyiv.`\
 https://nytimes.com/2022/10/11/world/europe/ukraine-cyprus-arms-race.html?searchResultPosition=2
 
 **NASA Spacecraft Smashed Asteroid Into New Orbit in Planetary Defense Test**\
