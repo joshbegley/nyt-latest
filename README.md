@@ -22,13 +22,13 @@ https://nytimes.com/2022/10/11/opinion/therapy-america.html?searchResultPosition
 `The residential programs that families and kids turn to for help are in desperate need of reform.`\
 https://nytimes.com/interactive/2022/10/11/opinion/teen-mental-health-care.html?searchResultPosition=6
 
-**One Nation Under Xi: How China’s Leader Is Remaking Its Identity**\
-`The leader’s nationalist effort to meld ethnic groups, an agenda increasingly central to his rule, is seen as a bulwark against internal divisions and threats from the West.`\
-https://nytimes.com/2022/10/11/world/asia/xi-jinping-china-nationhood.html?searchResultPosition=7
-
 **Cate Blanchett Doesn’t Want to Be Understood**\
 `The actress has stayed one step ahead of audiences by constantly being in motion. In her new movie “Tár,” she’s as inscrutable as ever.`\
-https://nytimes.com/2022/10/11/magazine/cate-blanchett-tar-movie.html?searchResultPosition=8
+https://nytimes.com/2022/10/11/magazine/cate-blanchett-tar-movie.html?searchResultPosition=7
+
+**One Nation Under Xi: How China’s Leader Is Remaking Its Identity**\
+`The leader’s nationalist effort to meld ethnic groups, an agenda increasingly central to his rule, is seen as a bulwark against internal divisions and threats from the West.`\
+https://nytimes.com/2022/10/11/world/asia/xi-jinping-china-nationhood.html?searchResultPosition=8
 
 **Why the Built-In Banquette Is Becoming a Designer Favorite**\
 `The banquette is compact, but also cozy and welcoming — and it can transform a space. Here’s how to design your own.`\
