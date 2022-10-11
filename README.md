@@ -26,7 +26,7 @@ https://nytimes.com/2022/10/11/business/bittrex-sanctions-penalty.html?searchRes
 `Angered by the kingdom’s decision to team up with Russia to slash petroleum output, the president signaled openness to retaliatory measures proposed in Congress, including a halt to arms sales and a new antitrust measure.`\
 https://nytimes.com/2022/10/11/us/politics/biden-saudi-arabia-oil-production-cut.html?searchResultPosition=7
 
-**Prosecutors Drop Charges Against Adnan Syed**\
+**Baltimore Prosecutors Drop Charges Against Adnan Syed**\
 `Mr. Syed, whose case was featured in the hit podcast “Serial,” had been convicted in the death of a high school classmate and spent 23 years in prison before being released last month.`\
 https://nytimes.com/2022/10/11/us/adnan-syed-charges-dropped.html?searchResultPosition=8
 
