@@ -34,7 +34,7 @@ https://nytimes.com/2022/10/11/t-magazine/chopard-peace-sign-pendant.html?search
 `The I.M.F. lowered its growth outlook for 2023 and suggested interest rate hikes could spur a harsh global recession.`\
 https://nytimes.com/2022/10/11/business/imf-world-economy-forecast.html?searchResultPosition=9
 
-**The Hard-Luck Raiders Come Close and Fail — Again**\
-`Rewarded for boldness earlier in the game, Las Vegas tried for a go-ahead 2-point conversion rather than a tie. The attempt failed and the team fell to 1-4.`\
+**The Hard-Luck Raiders Come Close and Fail. Again.**\
+`Rewarded for boldness earlier in the game, Las Vegas tried for a go-ahead 2-point conversion rather than a tie. The attempt failed, and the team fell to 1-4.`\
 https://nytimes.com/2022/10/11/sports/football/las-vegas-raiders-kansas-city.html?searchResultPosition=10
 
