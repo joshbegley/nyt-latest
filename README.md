@@ -31,7 +31,7 @@ https://nytimes.com/2022/10/11/science/nasa-dart-asteroid-spacecraft.html?search
 https://nytimes.com/2022/10/11/opinion/nobel-economics-bernanke-diamond-dybvig.html?searchResultPosition=8
 
 **Angela Lansbury, Star of Film, Stage and ‘Murder, She Wrote,’ Dies at 96**\
-`She was a Hollywood and Broadway sensation, but she captured the biggest audience of her career as the TV sleuth Jessica Fletche.r`\
+`She was a Hollywood and Broadway sensation, but she captured the biggest audience of her career as the TV sleuth Jessica Fletcher.`\
 https://nytimes.com/2022/10/11/arts/angela-lansbury-dead.html?searchResultPosition=9
 
 **Anita Kerr, an Architect of the Nashville Sound, Dies at 94**\
