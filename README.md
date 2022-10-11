@@ -32,7 +32,7 @@ https://nytimes.com/2022/10/11/learning/word-of-the-day-homage.html?searchResult
 
 **Seth Meyers Mocks Trump for Claiming George Bush Took Documents, Too**\
 `“And that is why to this day, if you’re in Texas, you can stop by H.W.’s Wok and Bowl and Top-Secret Document Warehouse,” Meyers joked.`\
-https://nytimes.com/2022/10/11/arts/television/seth-meyers-mocks-trump-for-claiming-george-bush-took-documents-too.html?searchResultPosition=9
+https://nytimes.com/2022/10/11/arts/television/seth-meyers-trump-george-bush.html?searchResultPosition=9
 
 **Quotation of the Day: Russia Unleashes a Deadly Barrage Against Civilians**\
 `Quotation of the Day for Tuesday, October 11, 2022.`\
