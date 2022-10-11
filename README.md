@@ -1,40 +1,40 @@
-**Russian forces targeted civilians in previous conflicts.**\
-`Russia’s attacks in Ukraine this week echo those of Moscow’s earlier military campaigns.`\
-https://nytimes.com/2022/10/11/world/europe/russia-civilian-targets.html?searchResultPosition=1
+**Can You Punish a Child’s Mental Health Problems Away?**\
+`The residential programs that families and kids turn to for help are in desperate need of reform.`\
+https://nytimes.com/interactive/2022/10/11/opinion/teen-mental-health-care.html?searchResultPosition=1
 
-**Film Club: ‘Leaf and Death’**\
-`What are your favorite sights, sounds, tastes and smells of fall?`\
-https://nytimes.com/2022/10/11/learning/film-club-leaf-and-death.html?searchResultPosition=2
+**Cate Blanchett Doesn’t Want to Be Understood**\
+`The actress has stayed one step ahead of audiences by constantly being in motion. In her new movie “Tár,” she’s as inscrutable as ever.`\
+https://nytimes.com/2022/10/11/magazine/cate-blanchett-tar-movie.html?searchResultPosition=2
 
-**Can This Man Solve Europe’s Energy Conundrum?**\
-`Marco Alverà has big plans to produce a “green gas” from hydrogen that uses existing infrastructure.`\
-https://nytimes.com/2022/10/11/business/green-natural-gas.html?searchResultPosition=3
+**One Nation Under Xi: How China’s Leader Is Remaking Its Identity**\
+`The leader’s nationalist effort to meld ethnic groups, an agenda increasingly central to his rule, is seen as a bulwark against internal divisions and threats from the West.`\
+https://nytimes.com/2022/10/11/world/asia/xi-jinping-china-nationhood.html?searchResultPosition=3
 
-**‘3,000 Years of History Are Literally Just Beneath Our Feet’**\
-`In Lima, home to 10 million Peruvians and more than 1,000 archaeological sites, the discovery of an ancient tomb is just the latest encounter with an omnipresent past.`\
-https://nytimes.com/2022/10/11/science/lima-peru-archaeology.html?searchResultPosition=4
+**Why the Built-In Banquette Is Becoming a Designer Favorite**\
+`The banquette is compact, but also cozy and welcoming — and it can transform a space. Here’s how to design your own.`\
+https://nytimes.com/2022/10/11/realestate/banquette-kitchen-living-dining-design-furniture.html?searchResultPosition=4
 
-**The Origins of the G.O.P. Tactic of Sending Migrants to Blue States**\
-`The idea of sending new arrivals to left-leaning areas circulated in conservative circles for years. It gained traction under Donald J. Trump, and now Republican governors have put it into practice.`\
-https://nytimes.com/2022/10/11/us/politics/busing-migrants-republicans-trump.html?searchResultPosition=5
+**In Fight for Congress, a Surprising Battleground Emerges: New York**\
+`After a haywire redistricting process, New York has more congressional battlegrounds than nearly any other state. Even the Democratic campaign chairman is locked in a dead heat.`\
+https://nytimes.com/2022/10/11/nyregion/house-elections-new-york.html?searchResultPosition=5
 
-**Yellow Cabs Are Struggling. Congestion Pricing Could Deal a New Blow.**\
-`The tolling program could push up fares and shrink taxi demand, the M.T.A. says. Cabdrivers are also seeking their own fare hike of up to 23 percent.`\
-https://nytimes.com/2022/10/11/nyregion/nyc-traffic-yellow-cab-tolls.html?searchResultPosition=6
+**Leonard Stern’s Cycladic Art Will Be Shown at the Met but Owned by Greece**\
+`An inventive collaboration allows a privately assembled collection of 161 ancient works to be viewed by the public.`\
+https://nytimes.com/2022/10/11/arts/design/stern-cycladic-antiquities-met-museum-greece.html?searchResultPosition=6
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/10/11/crosswords/spelling-bee-forum.html?searchResultPosition=7
+**As Hospitals Close Children’s Units, Where Does That Leave Lachlan?**\
+`Adult beds are more lucrative than children’s beds. So as institutions look to boost profit margins, pediatrics are often among the first services to be cut.`\
+https://nytimes.com/2022/10/11/health/pediatric-closures-hospitals.html?searchResultPosition=7
 
-**Word of the Day: homage**\
-`This word has appeared in 437 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/10/11/learning/word-of-the-day-homage.html?searchResultPosition=8
+**It’s Never Too Late to Pivot From N.F.L. Linebacker to Neurosurgeon**\
+`When Myron Rolle was cut from the Pittsburgh Steelers, he fell into a funk until his mother reminded him of his two childhood dreams: Play football, then become a neurosurgeon. It was time for Plan B.`\
+https://nytimes.com/2022/10/11/sports/football/myron-rolle-career-pivot-football-neurosurgeon.html?searchResultPosition=8
 
-**Seth Meyers Mocks Trump for Claiming George Bush Took Documents, Too**\
-`“And that is why to this day, if you’re in Texas, you can stop by H.W.’s Wok and Bowl and Top-Secret Document Warehouse,” Meyers joked.`\
-https://nytimes.com/2022/10/11/arts/television/seth-meyers-trump-george-bush.html?searchResultPosition=9
+**From Florence, 3 Fall Day Trips by Train**\
+`Tuscany in the autumn is all about celebrating the fruits of the earth and the vine, with enough time left over to savor the region’s art and history.`\
+https://nytimes.com/2022/10/11/travel/day-trips-from-florence-italy-autumn.html?searchResultPosition=9
 
-**Quotation of the Day: Russia Unleashes a Deadly Barrage Against Civilians**\
-`Quotation of the Day for Tuesday, October 11, 2022.`\
-https://nytimes.com/2022/10/11/todayspaper/quotation-of-the-day-russia-unleashes-a-deadly-barrage-against-civilians.html?searchResultPosition=10
+**What Would Timothée Wear?**\
+`Fashion month is over. What looks had the “Chalamet factor”?`\
+https://nytimes.com/2022/10/11/style/what-would-timothee-wear.html?searchResultPosition=10
 
