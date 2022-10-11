@@ -1,5 +1,5 @@
 **Angels Employee Sentenced to 22 Years in Prison Over Death of Pitcher**\
-`Eric Kay had been convicted in February of contributing to the death of the pitcher Tyler Skaggs by providing him with opiates.`\
+`Eric Kay had been convicted in February of contributing to the death of the pitcher Tyler Skaggs by providing him with opioids.`\
 https://nytimes.com/2022/10/11/sports/baseball/eric-kay-sentenced-tyler-skaggs.html?searchResultPosition=1
 
 **Phillies Continue to Be Road Warriors as They Stump Atlanta**\
