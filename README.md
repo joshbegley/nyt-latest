@@ -10,31 +10,31 @@ https://nytimes.com/2022/10/11/opinion/murkhiyeh-death-hebron.html?searchResultP
 `The Florida governor looks to be well positioned to head into a hypothetical presidential primary in 2024. But past Republican darlings rose just as fast — only to fall quickly.`\
 https://nytimes.com/2022/10/11/us/politics/ron-desantis-republicans.html?searchResultPosition=3
 
+**Pressure Grows on the West to Speed Air-Defense Systems to Ukraine**\
+`After Russia bombarded civilian targets, G7 leaders pledged “undeterred and steadfast” financial and military support for Kyiv.`\
+https://nytimes.com/2022/10/11/world/europe/ukraine-g7-air-defense.html?searchResultPosition=4
+
 **Angela Lansbury’s Greatest Roles: A Streaming Guide**\
 `From appearances in films as varied as “The Manchurian Candidate” to “Beauty and the Beast” to her long run on “Murder, She Wrote” on television, she entertained for decades.`\
-https://nytimes.com/2022/10/11/arts/television/angela-lansbury-movies-films.html?searchResultPosition=4
+https://nytimes.com/2022/10/11/arts/television/angela-lansbury-movies-films.html?searchResultPosition=5
 
 **For Zeldin, a Shooting Hits Close to Home and to His Campaign Theme**\
 `The shooting of two teenagers directly outside his Long Island home has given Mr. Zeldin an opportunity to push his tough-on-crime message within a personal frame.`\
-https://nytimes.com/2022/10/11/nyregion/lee-zeldin-shooting-house.html?searchResultPosition=5
+https://nytimes.com/2022/10/11/nyregion/lee-zeldin-shooting-house.html?searchResultPosition=6
 
 **Florida Jury Prepares to Decide Parkland Gunman’s Punishment**\
 `The jury will decide if the gunman who killed 17 people at Marjory Stoneman Douglas High School in 2018 gets sentenced to death or to life in prison.`\
-https://nytimes.com/2022/10/11/us/parkland-trial-closing-arguments.html?searchResultPosition=6
+https://nytimes.com/2022/10/11/us/parkland-trial-closing-arguments.html?searchResultPosition=7
 
 **Walter Dean Burnham, Who Traced Political Parties’ Shifts, Dies at 92**\
 `A noted political scientist, he saw parties periodically realigning themselves in stark fashion, presaging the rise of Donald Trump.`\
-https://nytimes.com/2022/10/11/us/politics/walter-dean-burnham-dead.html?searchResultPosition=7
+https://nytimes.com/2022/10/11/us/politics/walter-dean-burnham-dead.html?searchResultPosition=8
 
 **Your Tuesday Evening Briefing**\
 `Here’s what you need to know at the end of the day.`\
-https://nytimes.com/2022/10/11/briefing/nato-ukraine-weapons-angela-lansbury.html?searchResultPosition=8
+https://nytimes.com/2022/10/11/briefing/nato-ukraine-weapons-angela-lansbury.html?searchResultPosition=9
 
 **Tropical Storm Karl Forms Off the Gulf Coast of Mexico**\
 `The government of Mexico issued a tropical storm watch for the coast, from Cabo Rojo to Puerto Veracruz, after the 11th storm of the Atlantic hurricane season was named.`\
-https://nytimes.com/article/tropical-storm-karl-hurricane.html?searchResultPosition=9
-
-**Biden says Putin miscalculated badly about the reaction to his invasion.**\
-`The Russian leader “thought he was going to be welcomed with open arms,” Mr. Biden told CNN in an interview.`\
-https://nytimes.com/2022/10/11/world/europe/biden-putin-cnn-interview.html?searchResultPosition=10
+https://nytimes.com/article/tropical-storm-karl-hurricane.html?searchResultPosition=10
 
