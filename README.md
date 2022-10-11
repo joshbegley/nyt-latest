@@ -12,7 +12,7 @@ https://nytimes.com/2022/10/11/arts/television/eileen-ryan-dead.html?searchResul
 
 **Justice Dept. Asks Supreme Court to Reject Trump Request in Documents Case**\
 `The department said the justices should let stand an appeals court’s decision excluding about 100 sensitive documents seized at Mar-a-Lago from a special master’s review.`\
-https://nytimes.com/2022/10/11/us/justice-dept-supreme-court-trump-documents.html?searchResultPosition=4
+https://nytimes.com/2022/10/11/us/trump-documents-supreme-court.html?searchResultPosition=4
 
 **Jean-Michel Basquiat: Music as Means, Muse and Medium**\
 `An exhibition opening in Montreal and later in Paris shows how Jean-Michel Basquiat was inspired by New York City’s vibrant music and club scene.`\
