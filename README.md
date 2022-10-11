@@ -30,7 +30,7 @@ https://nytimes.com/2022/10/11/world/europe/china-us-conflict-russia-superyacht.
 `The sparkling peace sign from Chopard is adorned with a bouquet of gemstones.`\
 https://nytimes.com/2022/10/11/t-magazine/chopard-peace-sign-pendant.html?searchResultPosition=8
 
-**I.M.F. Warns ‘Stormy Waters’ Ahead for World Economy**\
+**I.M.F. Warns ‘Worst Is Yet to Come’ for World Economy**\
 `The I.M.F. lowered its growth outlook for 2023 and suggested interest rate hikes could spur a harsh global recession.`\
 https://nytimes.com/2022/10/11/business/imf-world-economy-forecast.html?searchResultPosition=9
 
