@@ -2,8 +2,8 @@
 `After weeks of setbacks on the battlefield, Russia struck civilian targets in Ukraine. But Vladimir Putin’s missiles may not accomplish much.`\
 https://nytimes.com/2022/10/11/briefing/russia-ukraine-strikes.html?searchResultPosition=1
 
-**Israel and Lebanon Reach Landmark Maritime Deal**\
-`If ratified by both governments, the agreement is expected to avert the immediate threat of conflict between Israel and Hezbollah, and could eventually help salve energy shortages.`\
+**Israel and Lebanon Reach Landmark Maritime Agreement**\
+`If ratified by both governments, the deal is expected to avert the immediate threat of conflict between Israel and Hezbollah, and could eventually help salve energy shortages.`\
 https://nytimes.com/2022/10/11/world/middleeast/israel-and-lebanon-maritime-deal.html?searchResultPosition=2
 
 **The Rise of the Single-Family Home**\
