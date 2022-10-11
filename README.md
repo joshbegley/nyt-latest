@@ -4,7 +4,7 @@ https://nytimes.com/2022/10/10/crosswords/daily-puzzle-2022-10-11.html?searchRes
 
 **简报：英国情报官员警告中国威胁；俄罗斯对乌克兰平民发动大规模袭击**\
 `拜登谴责俄罗斯袭击，中印呼吁立即缓和局势；朝鲜称正建造水下核武器发射井；美联储前主席伯南克等三名经济学家获诺贝尔经济学奖……这里是今日要闻。`\
-https://nytimes.com/2022/10/10/world/asia/uk-gchq-china-russia.html?searchResultPosition=2
+https://nytimes.com/zh-hans/2022/10/10/world/asia/uk-gchq-china-russia.html?searchResultPosition=2
 
 **Putin Unleashes Barrage of Missiles on Ukrainian Civilian Areas**\
 `The Russian president tied the attack to a bombing of the bridge to Crimea, and vowed that more strikes would follow if Russian targets were hit again.`\
