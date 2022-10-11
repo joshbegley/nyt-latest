@@ -2,7 +2,7 @@
 `To address the mental health crisis facing American youth, experts also said adolescents should be screened for depression.`\
 https://nytimes.com/2022/10/11/well/family/anxiety-screening-recommendation-children.html?searchResultPosition=1
 
-**Here is what is on the tape that led to the controversy.**\
+**Here’s what was said on the leaked recording of L.A. City Council members.**\
 `The profanity-laced recording of Los Angeles leaders mocking people in racist terms has stunned the nation’s second-largest city.`\
 https://nytimes.com/2022/10/11/us/la-city-council-audio-recording-leaked.html?searchResultPosition=2
 
