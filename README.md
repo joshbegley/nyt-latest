@@ -8,7 +8,7 @@ https://nytimes.com/2022/10/12/arts/design/bernice-bing-asian-americans-museum.h
 
 **Why So Many Celebrities Are Moving to Brooklyn Heights**\
 `With stately townhouses and a cute bakery, Brooklyn Heights is shaping up to be the next West Village.`\
-https://nytimes.com/2022/10/12/style/why-so-many-celebrities-are-moving-to-brooklyn-heights.html?searchResultPosition=3
+https://nytimes.com/2022/10/12/style/brooklyn-heights-neighborhood.html?searchResultPosition=3
 
 **Lucid Increases E.V. Production but Still Faces Challenges**\
 `The maker of electric sedans said it would hit its scaled-back production targets for 2022 after facing supply hurdles.`\
