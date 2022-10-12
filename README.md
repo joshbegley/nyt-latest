@@ -8,7 +8,7 @@ https://nytimes.com/2022/10/12/us/politics/christie-desantis-hurricane-aid.html?
 
 **Bruno Latour, Philosopher on the Social Basis of Scientific Facts, Dies at 74**\
 `He later became an unexpected ally of the science establishment in the face of attacks by climate deniers and conspiracy theorists.`\
-https://nytimes.com/2022/10/12/books/bruno-latour-philosopher-who-explored-social-basis-of-scientific-facts-dies-at-74.html?searchResultPosition=3
+https://nytimes.com/2022/10/12/books/bruno-latour-dead.html?searchResultPosition=3
 
 **Alex Jones to Pay Nearly $1 Billion to Sandy Hook Victims’ Families**\
 `Alex Jones and Infowars’ parent company, Free Speech Systems, must pay close to $1 billion to the family members of eight victims of the shooting at Sandy Hook Elementary and an F.B.I. agent who responded to the scene of the 2012 massacre, which killed 20 first graders and six educators.`\
