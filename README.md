@@ -1,4 +1,4 @@
-**Federal Watchdog Scrutinizes Use of Relief Funds in Transporting Migrants**\
+**Federal Watchdog Scrutinizes Florida’s Use of Relief Funds in Transporting Migrants**\
 `Gov. Ron DeSantis of Florida used interest that the state had accrued from stimulus money to send Venezuelan migrants by plane to Martha’s Vineyard.`\
 https://nytimes.com/2022/10/12/us/politics/federal-watchdog-desantis-migrants-relief-funds.html?searchResultPosition=1
 
