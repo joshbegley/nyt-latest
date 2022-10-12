@@ -32,7 +32,7 @@ https://nytimes.com/2022/10/12/travel/lufthansa-apple-airtags-luggage.html?searc
 
 **The Inadequacy of the Stories We Told About the Pandemic**\
 `Race has been as big a part of the story as partisanship.`\
-https://nytimes.com/2022/10/12/opinion/health/the-inadequacy-of-the-stories-we-told-about-the-pandemic.html?searchResultPosition=9
+https://nytimes.com/2022/10/12/opinion/health/covid-pandemic-data.html?searchResultPosition=9
 
 **Common Man**\
 `Video-4 Common Man`\
