@@ -30,7 +30,7 @@ https://nytimes.com/2022/10/12/arts/music/popcast-women-songwriters-tiktok.html?
 `Franklin’s recently released F.B.I. file reflects an era when the agency spied not only on civil rights leaders, political organizers and suspected Communists, but also on popular Black entertainers involved in civil rights activism.`\
 https://nytimes.com/2022/10/12/us/fbi-aretha-franklin-surveillance.html?searchResultPosition=8
 
-**For the Padres, the Dodgers are a Far Too Familiar Foil**\
+**For the Padres, the Dodgers Are a Far Too Familiar Foil**\
 `Built and rebuilt (and rebuilt again) to compete with “the dragon up the freeway,” San Diego believes its frustration could melt away — it just has to win one series.`\
 https://nytimes.com/2022/10/12/sports/baseball/padres-dodgers-nlds.html?searchResultPosition=9
 
