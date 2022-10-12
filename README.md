@@ -1,40 +1,40 @@
-**Deadly Protests in Iran Continue Into Fourth Week**\
-`Despite violent government crackdowns, protests over the death of Mahsa Amini have intensified, with workers from the country’s vital oil sector going on strike this week.`\
-https://nytimes.com/video/world/middleeast/100000008577734/iran-protests-crackdown.html?searchResultPosition=1
+**$800,000 Homes in Connecticut, Louisiana and Delaware**\
+`An 1832 farmhouse in Stonington, a 1941 bungalow in New Orleans and a three-bedroom triplex in a converted mill in Wilmington.`\
+https://nytimes.com/2022/10/12/realestate/home-prices-connecticut-louisiana-delaware.html?searchResultPosition=1
 
-**Protests in Iran Spread, Including to Oil Sector, Despite Violent Crackdown**\
-`Human rights groups say at least 185 people have been killed and thousands injured or arrested, but demonstrations that began after the death of Mahsa Amini have continued nearly a month.`\
-https://nytimes.com/2022/10/12/world/middleeast/iran-women-protests-strike.html?searchResultPosition=2
+**South Amboy, N.J.: ‘Nice and Quaint and Quiet’**\
+`This small Middlesex County city, once a neglected industrial area, is reinventing itself with new development and a ferry to Manhattan in the works.`\
+https://nytimes.com/2022/10/12/realestate/south-amboy-nj.html?searchResultPosition=2
 
-**Young, Underground Reporters ‘Fight a Gun With a Pen’ in Myanmar**\
-`The Southeast Asian nation has seen a relentless crackdown on free expression, with a small literary magazine emerging as one of the few remaining independent media outlets.`\
-https://nytimes.com/2022/10/12/world/asia/myanmar-journalists-press-freedom.html?searchResultPosition=3
+**State Investigation Fueled Flawed Understanding of Delays During Police Response in Uvalde**\
+`The school police chief was singled out for blame, but a Times visual investigation found that scores of trained officers, including those from an elite Border Patrol unit, took many of the same steps.`\
+https://nytimes.com/2022/10/12/us/uvalde-shooting-police-response-investigation.html?searchResultPosition=3
 
-**Wall Street Braces for an Earnings Season of Mixed Signals**\
-`Investors, weary of guessing where the Fed’s battle on inflation will take the economy, hope that third-quarter company earnings will bring clarity.`\
-https://nytimes.com/2022/10/12/business/wall-street-mixed-quarterly-earnings.html?searchResultPosition=4
+**Living In ... South Amboy, N.J.**\
+`This small Middlesex County city, once a neglected industrial area, is reinventing itself with new development and a ferry to Manhattan in the works.`\
+https://nytimes.com/slideshow/2022/10/12/realestate/living-in-south-amboy-nj.html?searchResultPosition=4
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/10/12/crosswords/spelling-bee-forum.html?searchResultPosition=5
+**What You Get for $800,000**\
+`An 1832 farmhouse in Stonington, Conn.; a 1941 bungalow in New Orleans; and a three-bedroom triplex in a converted mill in Wilmington, Del.`\
+https://nytimes.com/slideshow/2022/10/12/realestate/what-you-get-for-800000.html?searchResultPosition=5
 
-**Jimmy Kimmel Responds to Trump Lashing Out at Late Night**\
-`“I didn’t even see it, that’s how badly his social media platform is doing,” Kimmel said of Trump’s Truth Social rant about late night hosts.`\
-https://nytimes.com/2022/10/12/arts/television/late-night-kimmel-trump.html?searchResultPosition=6
+**An Irish Castle to Call Your Own**\
+`To most, the striking stone towers that dot the Irish countryside are quaint ruins. To a few ambitious people, they’re the perfect places to make into homes — and one-of-a-kind vacation rentals.`\
+https://nytimes.com/2022/10/12/travel/irish-castle-rental.html?searchResultPosition=6
 
-**Draymond Green Won’t Be Suspended for Punching Teammate**\
-`Green, the Golden State forward, punched guard Jordan Poole during a practice last week. The team decided that a fine, but no suspension, would be the best way to move forward.`\
-https://nytimes.com/2022/10/12/sports/basketball/draymond-green-suspension.html?searchResultPosition=7
+**American Culture Is Trash Culture**\
+`Our trash urges gave movies its musk, its fun, its hickies, its exercise. Where did it go?`\
+https://nytimes.com/2022/10/12/magazine/american-trash-culture.html?searchResultPosition=7
 
-**Word of the Day: forlorn**\
-`This word has appeared in 73 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/10/12/learning/word-of-the-day-forlorn.html?searchResultPosition=8
+**‘Almost Famous’ Heads to Broadway, Purple Aura Intact**\
+`Cameron Crowe adapted his Oscar-winning screenplay, about writing for Rolling Stone in the ’70s, preserving parts of the movie’s soundtrack and zingers (Don’t take drugs!) for the stage.`\
+https://nytimes.com/2022/10/12/theater/almost-famous-broadway-cameron-crowe.html?searchResultPosition=8
 
-**Putin Is Trying to Terrorize Ukrainians, but We Know He’s Losing**\
-`We are not back to the start of the war.`\
-https://nytimes.com/2022/10/12/opinion/ukraine-attacks-russia-kyiv.html?searchResultPosition=9
+**As Overdoses Soar, Rhode Island Embraces a Daring Addiction Strategy**\
+`It is the first state to legalize supervised drug consumption sites, which some addiction experts believe will help lower record overdose rates.`\
+https://nytimes.com/2022/10/12/us/politics/rhode-island-overdoses.html?searchResultPosition=9
 
-**Your Wednesday Briefing**\
-`Calls for more weapons for Ukraine.`\
-https://nytimes.com/2022/10/12/briefing/ukraine-weapons-global-economic-forecast.html?searchResultPosition=10
+**Misinformation Swirls in Non-English Languages Ahead of Midterms**\
+`More multilingual fact-checking groups are pushing back against misleading translations, manipulated images and outright lies that jump platforms and cross borders.`\
+https://nytimes.com/2022/10/12/business/media/midterms-foreign-language-misinformation.html?searchResultPosition=10
 
