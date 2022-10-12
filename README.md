@@ -8,7 +8,7 @@ https://nytimes.com/2022/10/12/us/politics/camp-hale-national-monument-colorado.
 
 **Lufthansa Says Apple AirTags Are Once Again Allowed in Checked Bags**\
 `The airline reversed itself Wednesday, saying it had consulted with German aviation authorities, who agreed that Bluetooth trackers were safe for passengers to use.`\
-https://nytimes.com/2022/10/12/us/lufthansa-apple-airtags-allowed.html?searchResultPosition=3
+https://nytimes.com/2022/10/12/travel/lufthansa-apple-airtags-luggage.html?searchResultPosition=3
 
 **The Inadequacy of the Stories We Told About the Pandemic**\
 `Race has been as big a part of the story as partisanship.`\
