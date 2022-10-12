@@ -1,6 +1,6 @@
 **New York City’s First Cannabis Boss Wants to Combat ‘Cannaphobia’**\
 `Dasheeda Dawson, a native New Yorker, returns home to direct the effort to build cannabis businesses and to absorb the illegal market into the new legitimate one.`\
-https://nytimes.com/2022/10/12/nyregion/nyc-cannabis-program-dasheeda-dawson.html?searchResultPosition=1
+https://nytimes.com/2022/10/12/nyregion/nyc-cannabis-dasheeda-dawson.html?searchResultPosition=1
 
 **Watch Live: Families of Sandy Hook Victims Speak**\
 `Alex Jones, the conspiracy theorist and Infowars host who was found liable for defamation, was ordered to pay nearly $1 billion in damages to eight families of Sandy Hook victims and a F.B.I. agent.`\
