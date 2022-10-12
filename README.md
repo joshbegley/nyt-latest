@@ -1,5 +1,5 @@
 **Los Angeles City Councilwoman Resigns From Office**\
-`Nury Martinez faced calls from state leaders and President Biden to leave office after making racist remarks on a recording that emerged on Sunday.`\
+`The former council president, Nury Martinez, faced calls from state leaders and President Biden to leave office after making racist remarks on a recording that emerged on Sunday.`\
 https://nytimes.com/2022/10/12/us/los-angeles-council-nury-martinez-resigns.html?searchResultPosition=1
 
 **Christie, Recalling Sandy, Questions DeSantis’s Views on Hurricane Aid**\
