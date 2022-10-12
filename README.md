@@ -24,7 +24,7 @@ https://nytimes.com/2022/10/12/arts/design/donald-judd-lawsuit-fingerprints.html
 
 **Watch Live: Jury Announces Damage Awards in Alex Jones Trial**\
 `Alex Jones, the conspiracy theorist and Infowars host who was found liable for defamation, owes damages to an F.B.I. agent and the families of shooting victims from Sandy Hook Elementary School.`\
-https://nytimes.com/video/us/100000008576895/alex-jones-trial-verdict.html?searchResultPosition=7
+https://nytimes.com/video/embedded/us/100000008576895/alex-jones-trial-verdict.html?searchResultPosition=7
 
 **Facing Parliament, Britain’s Leader Stirs More Uncertainty Over Economic Plans**\
 `Prime Minister Liz Truss appeared to rule out cuts in public spending, as doubts about the fiscal soundness of the government’s program continued to roil the markets.`\
