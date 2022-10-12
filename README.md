@@ -22,7 +22,7 @@ https://nytimes.com/2022/10/12/world/europe/russia-ukraine-war.html?searchResult
 `By Blake Hounshell`\
 https://nytimes.com/2022/10/12/us/politics/national-security-democrats-house.html?searchResultPosition=7
 
-**Researchers Reported a Staggering Decline in Wildlife. Here’s How to Understand It.**\
+**Researchers Report a Staggering Decline in Wildlife. Here’s How to Understand It.**\
 `The latest update to an important assessment found that populations had declined by an average of 69 percent since 1970. But that might not mean what you think.`\
 https://nytimes.com/2022/10/12/climate/living-planet-index-wildlife-declines.html?searchResultPosition=8
 
