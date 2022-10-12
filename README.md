@@ -1,4 +1,4 @@
-**Watch Live: Sandy Hook Victims’ Families Speak**\
+**Watch Live: Families of Sandy Hook Victims Expected to Speak**\
 `Alex Jones, the conspiracy theorist and Infowars host who was found liable for defamation, was ordered to pay nearly $1 billion in damages to eight families of Sandy Hook victims and a F.B.I. agent.`\
 https://nytimes.com/video/us/100000008579003/alex-jones-trial-verdict-live.html?searchResultPosition=1
 
@@ -15,7 +15,7 @@ https://nytimes.com/2022/10/12/podcasts/modern-love-when-the-music-stopped.html?
 https://nytimes.com/interactive/2022/10/12/arts/editors-recommendations-elvis.html?searchResultPosition=4
 
 **Court Gives New York State More Time to Argue for Its Gun Law**\
-`Attorney General Letitia James had asked that measure remain in place while she appeals a judge’s order striking down many provisions.`\
+`Attorney General Letitia James had asked that the measure remain in place while she appeals a judge’s order striking down many of its provisions.`\
 https://nytimes.com/2022/10/12/nyregion/ny-gun-law-james.html?searchResultPosition=5
 
 **Lawsuit Says Judd Sculpture Was Disfigured by Fingerprints**\
