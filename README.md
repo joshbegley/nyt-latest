@@ -1,40 +1,40 @@
+**Ignored in Life, Bernice Bing Is Discovered as Museums Rewrite History**\
+`Scholars and curators are beginning to focus on long-overlooked Asian American artists, acknowledging their importance in the narrative of American art.`\
+https://nytimes.com/2022/10/12/arts/design/bernice-bing-asian-americans-museum.html?searchResultPosition=1
+
+**Why So Many Celebrities Are Moving to Brooklyn Heights**\
+`With stately townhouses and a cute bakery, Brooklyn Heights is shaping up to be the next West Village.`\
+https://nytimes.com/2022/10/12/style/why-so-many-celebrities-are-moving-to-brooklyn-heights.html?searchResultPosition=2
+
+**Lucid Increases E.V. Production but Still Faces Challenges**\
+`The maker of electric sedans said it would hit its scaled-back production targets for 2022 after facing supply hurdles.`\
+https://nytimes.com/2022/10/12/business/energy-environment/lucid-electric-cars.html?searchResultPosition=3
+
+**The Economics Nobel Is Richly Deserved, but It’s Hardly the End of the Story**\
+`We need to help banks stay out of trouble, not just help them during a crisis.`\
+https://nytimes.com/2022/10/12/opinion/nobel-economics-bernanke-diamond-dybvig.html?searchResultPosition=4
+
+**Britain’s ‘Brexit Festival’ Is Under Investigation Over Cost**\
+`The festival, a series of exhibitions officially called “Unboxed: Creativity in the U.K.,” came to be known as the “Festival of Brexit.” It cost 120 million pounds.`\
+https://nytimes.com/2022/10/12/world/europe/uk-brexit-festival-spending.html?searchResultPosition=5
+
 **What a MacArthur Foundation ‘Genius Grant’ Gave Me**\
 `The award is about so much more than money and secrecy.`\
-https://nytimes.com/2022/10/12/opinion/macarthur-grant-winners-2022.html?searchResultPosition=1
+https://nytimes.com/2022/10/12/opinion/macarthur-grant-winners-2022.html?searchResultPosition=6
 
 **The Most Ridiculous Part of the L.A. City Council President’s Apology**\
 `Motherhood and racism aren’t compatible? If only it were that easy.`\
-https://nytimes.com/2022/10/12/opinion/los-angeles-city-council.html?searchResultPosition=2
+https://nytimes.com/2022/10/12/opinion/los-angeles-city-council.html?searchResultPosition=7
 
 **Sterling Johnson Jr., Former U.S. Judge in Brooklyn, Dies at 88**\
 `He closed a Guantánamo “H.I.V. prison camp” and castigated the city over its treatment poor people with AIDS. A former detective, he had also been a narcotics prosecutor.`\
-https://nytimes.com/2022/10/12/nyregion/sterling-johnson-jr-dead.html?searchResultPosition=3
+https://nytimes.com/2022/10/12/nyregion/sterling-johnson-jr-dead.html?searchResultPosition=8
 
 **Andy Detwiler, Armless Farmer Who Became a YouTube Star, Dies at 52**\
 `After a childhood accident, he learned how to drive tractors and feed farm animals with his feet. Then he started a popular farming channel on YouTube.`\
-https://nytimes.com/2022/10/12/us/andy-detwiler-dead.html?searchResultPosition=4
+https://nytimes.com/2022/10/12/us/andy-detwiler-dead.html?searchResultPosition=9
 
 **The Best Part of This Chicken Dinner? The Crispy Mushrooms, of Course.**\
 `The two are paired with a buttery pan sauce for an easy, low-lift, high-reward weeknight meal.`\
-https://nytimes.com/2022/10/12/dining/easy-chicken-dinner-recipe-mushrooms-weeknight.html?searchResultPosition=5
-
-**Federal Reserve Officials Worried About Risks of Faster Inflation at Last Meeting**\
-`Minutes from the Fed’s September meeting showed many were more worried about doing too little to control inflation than too much.`\
-https://nytimes.com/2022/10/12/business/federal-reserve-minutes-september.html?searchResultPosition=6
-
-**LaTasha Barnes: Let the Circle of Influence Be Unbroken**\
-`In a joyous program at the Joyce Theater, Barnes and company show the relationships among Black social dance forms. It’s all connected, and it’s all jazz.`\
-https://nytimes.com/2022/10/12/arts/dance/latasha-barnes-jazz-continuum.html?searchResultPosition=7
-
-**Turmoil Returns to the U.K. Bond Market**\
-`The Bank of England started a bond-buying program last month to stabilize financial markets. But its plan to end the program this Friday is only making investors more nervous.`\
-https://nytimes.com/2022/10/12/business/uk-bond-market-bank-of-england.html?searchResultPosition=8
-
-**Leonard Leo Pushed the Courts Right. Now He’s Aiming at American Society.**\
-`After leading efforts to put conservatives on the bench, the activist has quietly built a sprawling network and raised huge sums of money to challenge liberal values.`\
-https://nytimes.com/2022/10/12/us/politics/leonard-leo-courts-dark-money.html?searchResultPosition=9
-
-**For These Isolated Penguins, Two Eggs Are Not Better Than One**\
-`On the Antipodes Islands in the South Pacific, researchers observed a strange parenting move in erect-crested penguins — laying an egg that’s doomed to die.`\
-https://nytimes.com/2022/10/12/science/erect-crested-penguin-antipodes-egg.html?searchResultPosition=10
+https://nytimes.com/2022/10/12/dining/easy-chicken-dinner-recipe-mushrooms-weeknight.html?searchResultPosition=10
 
