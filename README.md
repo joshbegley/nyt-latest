@@ -31,7 +31,7 @@ https://nytimes.com/2022/10/11/us/san-antonio-mcdonalds-officer-charged.html?sea
 https://nytimes.com/2022/10/11/sports/baseball/yankees-guardians-alds-game-1.html?searchResultPosition=8
 
 **We Were Three**\
-`A story of lies, family, America and what Covid revealed, as well as what it destroyed.`\
+`A story of lies, family, America and what Covid revealed, as well as what it destroyed. All three parts arrive on Thursday.`\
 https://nytimes.com/2022/10/11/podcasts/we-were-three.html?searchResultPosition=9
 
 **You Got Me This Time!**\
