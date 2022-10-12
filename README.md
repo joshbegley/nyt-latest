@@ -16,7 +16,7 @@ https://nytimes.com/2022/10/12/us/politics/biden-china-russia-national-security.
 
 **In a Lawsuit, Eight Women Claim the F-Factor Diet Made Them Sick**\
 `The plaintiffs cite Tanya Zuckerbrot, the creator of the high-fiber eating plan, and her company, alleging that they suffered gastric distress and other ailments from F-Factor supplements.`\
-https://nytimes.com/2022/10/12/style/in-a-lawsuit-eight-women-claim-the-f-factor-diet-made-them-sick.html?searchResultPosition=5
+https://nytimes.com/2022/10/12/style/f-factor-diet-lawsuit.html?searchResultPosition=5
 
 **F.D.A. Authorizes Updated Covid Booster Shots for Children 5 to 11**\
 `Regulators authorized the shots for older age groups in late August, but much of the general population appears either unaware or uninterested in them.`\
