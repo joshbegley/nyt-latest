@@ -34,7 +34,7 @@ https://nytimes.com/2022/10/12/us/los-angeles-council-nury-martinez-resigns.html
 `Mr. Christie noted that Gov. Ron DeSantis of Florida sought help after Hurricane Ian despite having voted against aid for Hurricane Sandy in 2013.`\
 https://nytimes.com/2022/10/12/us/politics/christie-desantis-hurricane-aid.html?searchResultPosition=9
 
-**Bruno Latour, Philosopher on the Social Basis of Scientific Facts, Dies at 74**\
+**Bruno Latour, Philosopher on the Social Basis of Scientific Facts, Dies at 75**\
 `He later became an unexpected ally of the science establishment in the face of attacks by climate deniers and conspiracy theorists.`\
 https://nytimes.com/2022/10/12/books/bruno-latour-dead.html?searchResultPosition=10
 
