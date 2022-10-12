@@ -6,7 +6,7 @@ https://nytimes.com/video/us/100000008579222/camp-hale-national-monument-colorad
 `The moves at the nation’s largest newspaper publisher include a week of mandatory unpaid leave and voluntary buyouts.`\
 https://nytimes.com/2022/10/12/business/media/gannett-cost-cutting.html?searchResultPosition=2
 
-**Los Angeles City Councilwoman Resigns From Office**\
+**Los Angeles City Councilwoman Resigns Amid Uproar Over Racist Remarks**\
 `The former council president, Nury Martinez, faced calls from state leaders and President Biden to leave office after making racist remarks on a recording that emerged on Sunday.`\
 https://nytimes.com/2022/10/12/us/los-angeles-council-nury-martinez-resigns.html?searchResultPosition=3
 
