@@ -20,7 +20,7 @@ https://nytimes.com/2022/10/13/us/politics/biden-china-technology-semiconductors
 
 **Watch what the committee has covered in its hearings so far.**\
 `In eight hearings, the Jan. 6 committee has examined strategies meant to keep President Trump in power, from pressuring the vice president to stoking anger that culminated in the riot at the Capitol.`\
-https://nytimes.com/2022/10/13/us/politics/watch-what-the-committee-has-covered-in-its-hearings-so-far.html?searchResultPosition=6
+https://nytimes.com/2022/10/13/us/politics/jan-6-hearings-recap.html?searchResultPosition=6
 
 **Stand-Up Sets Where You Can Choose Your Own Adventure**\
 `Two specials let audiences click to determine which jokes they hear. It’s both an innovative way to add meaning and a further fragmenting of the culture.`\
