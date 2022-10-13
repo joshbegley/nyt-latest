@@ -6,8 +6,8 @@ https://nytimes.com/2022/10/12/sports/baseball/braves-phillies-nlds-game-2.html?
 `Lewis Rothlein runs off on us.`\
 https://nytimes.com/2022/10/12/crosswords/daily-puzzle-2022-10-13.html?searchResultPosition=2
 
-**Biden Administration to Expel Thousands of Venezuelan Migrants to Mexico**\
-`The United States also announced a narrow humanitarian parole program that would allow some Venezuelans a legal path into the country.`\
+**Biden Administration to Offer Thousands of Venezuelan Migrants Legal Path Into U.S.**\
+`The humanitarian parole program would be available to up to 24,000 Venezuelans who have a U.S. sponsor. However, a pandemic-era rule will be extended to expel Venezuelans who enter the country illegally.`\
 https://nytimes.com/2022/10/12/us/politics/biden-venezuela-migrants-humanitarian-parole.html?searchResultPosition=3
 
 **‘We Told the Truth’: Sandy Hook Families Win $1 Billion From Alex Jones**\
