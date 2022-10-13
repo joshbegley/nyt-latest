@@ -10,7 +10,7 @@ https://nytimes.com/2022/10/13/learning/teenagers-share-their-best-life-hacks.ht
 `In an extraordinary rebuke, a federal judge in Florida said officials misled a court to block the compassionate release of prisoner who was dying of cancer.`\
 https://nytimes.com/2022/10/13/us/politics/florida-prison-cancer-release.html?searchResultPosition=3
 
-**Why Ian May Push Florida Real Estate Out of Reach For All But the Super Rich**\
+**Why Ian May Push Florida Real Estate Out of Reach For All but the Super Rich**\
 `The hurricane’s record-breaking cost will make it even harder for many to get insurance, experts say — threatening home sales, mortgages and construction.`\
 https://nytimes.com/2022/10/13/climate/florida-real-estate-hurricane-ian.html?searchResultPosition=4
 
