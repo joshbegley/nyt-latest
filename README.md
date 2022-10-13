@@ -3,7 +3,7 @@
 https://nytimes.com/2022/10/13/us/politics/trump-supreme-court.html?searchResultPosition=1
 
 **DeSantis eases election rules for three hurricane-ravaged counties.**\
-`Florida will let Lee, Charlotte and Sarasota Counties create “super polling” sites, extend early voting by a couple days and send mail-in ballots to voters at alternate addresses.`\
+`Florida will let Lee, Charlotte and Sarasota Counties create “super polling” sites, extend early voting by a couple of days and send mail-in ballots to voters at alternate addresses.`\
 https://nytimes.com/2022/10/13/us/politics/desantis-election-rules-hurricane-ian.html?searchResultPosition=2
 
 **Mourners Gather in Bucha for Soldier’s Funeral**\
