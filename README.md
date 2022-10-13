@@ -1,40 +1,40 @@
+**With Leaps and Bounds, Parkour Athletes Turn Off the Lights in Paris**\
+`As an energy crisis looms, nimble young activists are using superhero-like moves to switch off wasteful lights that stores leave on all night.`\
+https://nytimes.com/2022/10/13/world/europe/paris-energy-conservation-parkour.html?searchResultPosition=1
+
+**Parkour Athletes Jump to Switch Off Wasteful Lights in Paris**\
+`Young athletes in French cities are practicing the sport of Parkour — which consists of running, climbing and jumping over urban obstacles — to turn off shop signs at night in an effort to fight light pollution.`\
+https://nytimes.com/video/world/europe/100000008579166/paris-parkour-light-pollution.html?searchResultPosition=2
+
+**How Should a Business Bro Dress?**\
+`Trading hoodies at the home office for hard pants, we take a snapshot of the finance bros in their native habitat.`\
+https://nytimes.com/2022/10/13/style/how-should-a-business-bro-dress.html?searchResultPosition=3
+
+**Florida, a ‘Microcosm of the Country’**\
+`The Times’s Miami bureau chief, Patricia Mazzei, shares what it’s like to cover hurricanes and elections, sometimes in the same day.`\
+https://nytimes.com/2022/10/13/insider/florida-a-microcosm-of-the-country.html?searchResultPosition=4
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2022/10/13/crosswords/spelling-bee-forum.html?searchResultPosition=5
+
+**Clocks**\
+`What do you think this image is communicating?`\
+https://nytimes.com/2022/10/13/learning/clocks.html?searchResultPosition=6
+
 **Late Night Confirms Alex Jones Is a Loser**\
 `Stephen Colbert was grateful that “by the grace of God, sometimes bad things happen to Alex Jones” on Wednesday.`\
-https://nytimes.com/2022/10/13/arts/television/late-night-alex-jones-stephen-colbert.html?searchResultPosition=1
+https://nytimes.com/2022/10/13/arts/television/late-night-alex-jones-stephen-colbert.html?searchResultPosition=7
 
 **Word of the Day: firmament**\
 `This word has appeared in 63 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/10/13/learning/word-of-the-day-firmament.html?searchResultPosition=2
+https://nytimes.com/2022/10/13/learning/word-of-the-day-firmament.html?searchResultPosition=8
 
 **Corrections: Oct. 13, 2022**\
 `Corrections that appeared in print on Thursday, Oct. 13, 2022.`\
-https://nytimes.com/2022/10/13/pageoneplus/corrections-oct-13-2022.html?searchResultPosition=3
+https://nytimes.com/2022/10/13/pageoneplus/corrections-oct-13-2022.html?searchResultPosition=9
 
 **Anna Sorokin: Never at a Loss for Words**\
 `The fake European heiress has recently been released from detention and has kept busy doing a photo shoot while under house arrest on the Lower East Side.`\
-https://nytimes.com/2022/10/13/nyregion/anna-sorokin-interview.html?searchResultPosition=4
-
-**Your Thursday Briefing**\
-`Western support for Ukraine.`\
-https://nytimes.com/2022/10/13/briefing/ukraine-arms-weapons-truss-economics.html?searchResultPosition=5
-
-**Germany’s New Hunger for Coal Dooms a Tiny Village**\
-`The cutting of Russian gas supplies to Europe has led Germany to step up coal use, despite its goal to phase it out by 2030.`\
-https://nytimes.com/2022/10/13/world/europe/germany-coal-energy-climate.html?searchResultPosition=6
-
-**N.F.L. Week 6 Predictions: Our Picks for Each Game**\
-`Kansas City and Buffalo get a long-awaited rematch of last season’s best N.F.L. game before the Eagles and Cowboys fight for the top of the N.F.C. East.`\
-https://nytimes.com/2022/10/13/sports/football/nfl-week-6-predictions-our-picks-for-each-game.html?searchResultPosition=7
-
-**Trump Aide Was Seen on Security Footage Moving Boxes at Mar-a-Lago**\
-`The aide, Walt Nauta, moved the boxes from a storage room before and after the Justice Department issued a subpoena demanding the return of all classified documents held by the former president.`\
-https://nytimes.com/2022/10/12/us/politics/trump-mar-a-lago-walt-nauta.html?searchResultPosition=8
-
-**Quotation of the Day: A Nonbinary Marathoner Finally Feels at Home**\
-`Quotation of the Day for Thursday, October 13, 2022.`\
-https://nytimes.com/2022/10/12/todayspaper/quotation-of-the-day-a-nonbinary-marathoner-finally-feels-at-home.html?searchResultPosition=9
-
-**Atlanta Evens Series Behind Timely Hitting and Sterling Pitching**\
-`Kyle Wright, Atlanta’s first 20-game winner since 2003, shut down Philadelphia’s offense over six innings.`\
-https://nytimes.com/2022/10/12/sports/baseball/braves-phillies-nlds-game-2.html?searchResultPosition=10
+https://nytimes.com/2022/10/13/nyregion/anna-sorokin-interview.html?searchResultPosition=10
 
