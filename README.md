@@ -1,4 +1,4 @@
-**The House Jan. 6 panel plans to vote to subpoena Trump.**\
+**The House Jan. 6 panel is said to plan a vote to subpoena Trump.**\
 `The move would be among the most aggressive by the committee since it formed last year. The former president would be all but certain to defy the subpoena, which could lead to a protracted legal battle.`\
 https://nytimes.com/2022/10/13/us/politics/trump-jan-6-panel-subpoena.html?searchResultPosition=1
 
