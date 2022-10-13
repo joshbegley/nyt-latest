@@ -3,7 +3,7 @@
 https://nytimes.com/2022/10/13/theater/kate-nash-only-gold.html?searchResultPosition=1
 
 **Saudi Arabia Pushes Back at U.S. Outrage Over Oil Cuts**\
-`The kingdom said that the Biden administration had asked for a one-month delay to the reduction in output. That could have prevented a price spike before the American midterm elections.`\
+`The kingdom said it had rejected the Biden administration’s urging for a one-month delay to the reduction in output. That could have prevented a price spike before the American midterm elections.`\
 https://nytimes.com/2022/10/13/world/middleeast/us-saudi-oil-production.html?searchResultPosition=2
 
 **Alice Gerrard Didn’t Plan a Bluegrass Career. She Broke Its Glass Ceiling.**\
