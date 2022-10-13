@@ -31,7 +31,7 @@ https://nytimes.com/2022/10/13/movies/sepa-our-lord-of-miracles-review.html?sear
 https://nytimes.com/2022/10/13/briefing/monkeypox-cases.html?searchResultPosition=8
 
 **2 Police Officers Are Killed in Connecticut Shooting**\
-`A third officer was seriously wounded in the shooting in Bristol, Conn., the state police announced early Thursday.`\
+`A third officer was seriously wounded in the shooting in Bristol, Conn., which came as the officers were responding to a domestic violence call, the authorities said.`\
 https://nytimes.com/2022/10/13/nyregion/bristol-connecticut-shooting.html?searchResultPosition=9
 
 **A strike outside Kyiv adds to concerns over Russia’s use of ‘kamikaze’ drones.**\
