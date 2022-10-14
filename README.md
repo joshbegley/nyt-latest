@@ -4,7 +4,7 @@ https://nytimes.com/2022/10/14/world/europe/turkey-jail-fake-news.html?searchRes
 
 **Watch Live: U.K. Prime Minister Speaks on Tax Cuts Package**\
 `Prime Minister Liz Truss is prepared to announce a large-scale retreat over a package of unfunded tax cuts that have shaken financial markets. Her remarks come after she fired Britain’s chancellor of the Exchequer, Kwasi Kwarteng.`\
-https://nytimes.com/video/world/europe/100000008582041/uk-prime-minister-truss-tax-cuts.html?searchResultPosition=2
+https://nytimes.com/video/embedded/world/europe/100000008582041/uk-prime-minister-truss-tax-cuts.html?searchResultPosition=2
 
 **U.K. Markets Still Troubled Despite Finance Minister’s Ouster**\
 `Kwasi Kwarteng, the chancellor of the Exchequer, was fired on Friday by Prime Minister Liz Truss in a bid to end weeks of market turmoil.`\
