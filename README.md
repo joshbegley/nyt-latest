@@ -15,7 +15,7 @@ https://nytimes.com/2022/10/13/theater/the-piano-lesson-review.html?searchResult
 https://nytimes.com/2022/10/13/technology/misinformation-integrity-institute-report.html?searchResultPosition=4
 
 **At Least 5 Killed in Raleigh as Police Respond to Active Shooter**\
-`The dead included an off-duty police officer. The authorities cautioned people in a residential neighborhood on the city’s east side to remain in their homes.`\
+`The dead included an off-duty police officer. The authorities in North Carolina cautioned people in a residential neighborhood on the city’s east side to remain in their homes.`\
 https://nytimes.com/2022/10/13/us/raleigh-shooting.html?searchResultPosition=5
 
 **Expert Tips for Curbing Bad Breath**\
