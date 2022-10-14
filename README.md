@@ -3,7 +3,7 @@
 https://nytimes.com/2022/10/14/podcasts/biden-hurrican-ian-ukraine-narrated-articles.html?searchResultPosition=1
 
 **Wells Fargo’s Scandals Drag on Profit as It Braces for a ‘Slowing Economy’**\
-`By Stacy Cowley`\
+`The bank’s earnings took a $2 billion hit, bringing its profit down to $3.5 billion in the third quarter.`\
 https://nytimes.com/2022/10/14/business/wells-fargos-scandals-drag-on-profit-as-it-braces-for-a-slowing-economy.html?searchResultPosition=2
 
 **Western sanctions have hampered Russia’s ability to resupply its army, a report says.**\
