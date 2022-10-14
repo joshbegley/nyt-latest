@@ -1,5 +1,5 @@
 **Police Respond to Shooting in Raleigh, N.C.**\
-`Officers from several law enforcement agencies rushed to a residential area on the city’s east side after at least four people were shot.`\
+`Officers from several law enforcement agencies rushed to a residential area on the city’s east side after at least five people were shot and killed.`\
 https://nytimes.com/video/us/100000008581567/raleigh-shooting-north-carolina.html?searchResultPosition=1
 
 **‘The Piano Lesson’ Review: August Wilson’s Phantom Notes**\
@@ -10,8 +10,8 @@ https://nytimes.com/2022/10/13/theater/the-piano-lesson-review.html?searchResult
 `A new analysis found that algorithms and some features of social media sites help false posts go viral.`\
 https://nytimes.com/2022/10/13/technology/misinformation-integrity-institute-report.html?searchResultPosition=3
 
-**At Least 4 Shot in Raleigh as Police Respond to Active Shooter**\
-`Officers from multiple law enforcement agencies rushed to a residential neighborhood on the city’s east side, as the authorities cautioned people to remain in their homes.`\
+**At Least 5 Killed in Raleigh as Police Respond to Active Shooter**\
+`The dead included an off-duty police officer. The authorities cautioned people in a residential neighborhood on the city’s east side to remain in their homes.`\
 https://nytimes.com/2022/10/13/us/raleigh-shooting.html?searchResultPosition=4
 
 **Expert Tips for Curbing Bad Breath**\
