@@ -18,8 +18,8 @@ https://nytimes.com/2022/10/13/theater/the-piano-lesson-review.html?searchResult
 `A new analysis found that algorithms and some features of social media sites help false posts go viral.`\
 https://nytimes.com/2022/10/13/technology/misinformation-integrity-institute-report.html?searchResultPosition=5
 
-**At Least 5 Killed in Raleigh as Police Respond to Active Shooter**\
-`The dead included an off-duty police officer. The authorities in North Carolina cautioned people in a residential neighborhood on the city’s east side to remain in their homes.`\
+**At Least 5 Killed, Including Off-Duty Police Officer, in Raleigh Shooting**\
+`At least two others were wounded, including a police officer, whose injuries were described as “non-life threatening.” The authorities said late Thursday that a suspect was in custody.`\
 https://nytimes.com/2022/10/13/us/raleigh-shooting.html?searchResultPosition=6
 
 **Expert Tips for Curbing Bad Breath**\
