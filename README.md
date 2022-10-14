@@ -8,7 +8,7 @@ https://nytimes.com/2022/10/14/us/mary-adelia-mcleod-dead.html?searchResultPosit
 
 **Mike Pence Runs Toward Abortion Fight**\
 `While many in the G.O.P. are trying to avoid talking about abortion in the weeks before midterm elections, the former vice president wants to make the procedure “unthinkable.”`\
-https://nytimes.com/2022/10/14/us/mike-pence-runs-toward-abortion-fight.html?searchResultPosition=3
+https://nytimes.com/2022/10/14/us/mike-pence-abortion.html?searchResultPosition=3
 
 **Under Fire, New U.K. Leader Retreats on Economic Strategy**\
 `Fighting for her political survival, Prime Minister Liz Truss fired her top ally and reversed course on tax-cutting plans, trying to shore up financial markets and her poll ratings.`\
