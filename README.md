@@ -1,40 +1,40 @@
+**‘Uncle Xi’ to Exalted Ruler: China’s Leader Embodies His Authoritarian Era**\
+`Xi Jinping was first cast as a firm but genial leader with a common touch. Approaching a second decade in power, he looms over China like a stern Communist monarch.`\
+https://nytimes.com/2022/10/14/world/asia/china-xi-jinping-communist-party.html?searchResultPosition=1
+
+**‘The Curse of Bridge Hollow’ Review: Attack of the Halloween Décor**\
+`A father and daughter team up to save a town after she sets loose a spirit that brings spooky decorations to life.`\
+https://nytimes.com/2022/10/14/movies/the-curse-of-bridge-hollow-review.html?searchResultPosition=2
+
+**‘The Rings of Power’: The Showrunners Unpack That Twisty Finale**\
+`Patrick McKay and J.D. Payne have had to thread a difficult needle, satisfying Tolkien die-hards and average viewers. The finale gave everyone plenty to mull.`\
+https://nytimes.com/2022/10/14/arts/television/rings-of-power-season-finale-showrunners.html?searchResultPosition=3
+
+**The Art of Dividing Up a Marriage**\
+`It’s impossible to know how you will feel in the aftermath of divorce until you’re experiencing it.`\
+https://nytimes.com/2022/10/14/style/modern-love-divorce-dividing-up-a-marriage.html?searchResultPosition=4
+
+**‘Still Growing Together,’ a Teenage Crush Leads to Marriage**\
+`Brittney Adu was smitten when she saw Aaron Canales on the first day of their freshman year of high school. Despite their cultural differences and the trials of a young romance, their love endured.`\
+https://nytimes.com/2022/10/14/style/brittney-adu-aaron-canales-wedding.html?searchResultPosition=5
+
+**An ‘Indoor Kid’ Falls in Love With Nature, and An Actress**\
+`Ellie MacPherson wasn’t sure Lucas McMahon, a fellow theater person, was cut out for a cross-country camping trip. He proved her wrong.`\
+https://nytimes.com/2022/10/14/style/ellie-macpherson-lucas-mcmahon-wedding.html?searchResultPosition=6
+
+**A Washington Newcomer Walks Into a Sports Bar …**\
+`When Tyler Cherry and Jakob Stronko, both government employees, first spotted each other, there was an immediate attraction.`\
+https://nytimes.com/2022/10/14/style/tyler-cherry-jakob-stronko-wedding.html?searchResultPosition=7
+
+**She Fell in Love With an Essay, and Then With its Author**\
+`Gabrielle Garcia was so impressed with the Modern Love column that Joel Walkowski wrote in 2008 that she looked him up and contacted him. A few months later they were dating.`\
+https://nytimes.com/2022/10/14/style/gabrielle-garcia-joel-walkowski-wedding.html?searchResultPosition=8
+
 **Loss of Steele Dossier Source Damaged National Security, F.B.I. Agent Testifies**\
 `The agent denounced the exposure by the Trump Justice Department of Igor Danchenko, who was an F.B.I. informant but is now on trial on charges of lying to investigators.`\
-https://nytimes.com/2022/10/13/us/politics/steele-dossier-national-security-fbi.html?searchResultPosition=1
+https://nytimes.com/2022/10/13/us/politics/steele-dossier-national-security-fbi.html?searchResultPosition=9
 
 **Variety: Diagramless Crossword**\
 `Alex Eaton-Salners presents a Gallic challenge.`\
-https://nytimes.com/2022/10/13/crosswords/variety-diagramless-crossword.html?searchResultPosition=2
-
-**Pile of Texts**\
-`Stretch your brain with David Steinberg’s Friday puzzle.`\
-https://nytimes.com/2022/10/13/crosswords/daily-puzzle-2022-10-14.html?searchResultPosition=3
-
-**Quotation of the Day: Parkland Gunman Is Sentenced to Life in Prison**\
-`Quotation of the Day for Friday, October 14, 2022.`\
-https://nytimes.com/2022/10/13/todayspaper/quotation-of-the-day-parkland-gunman-is-sentenced-to-life-in-prison.html?searchResultPosition=4
-
-**Jan. 6 Committee Plans to Issue a Subpoena to Trump**\
-`The vote to subpoena Donald J. Trump came after the House committee had presented a sweeping summation of its case against the former president and his role in the Jan. 6 attack on the Capitol.`\
-https://nytimes.com/video/us/politics/100000008580539/jan-6-trump-subpoena.html?searchResultPosition=5
-
-**Police Respond to Shooting in Raleigh, N.C.**\
-`Officers from several law enforcement agencies rushed to a residential area on the city’s east side after at least five people were shot and killed.`\
-https://nytimes.com/video/us/100000008581567/raleigh-shooting-north-carolina.html?searchResultPosition=6
-
-**‘The Piano Lesson’ Review: August Wilson’s Phantom Notes**\
-`John David Washington, Danielle Brooks and Samuel L. Jackson star in the first Broadway revival of Wilson’s haunting family drama set in 1936.`\
-https://nytimes.com/2022/10/13/theater/the-piano-lesson-review.html?searchResultPosition=7
-
-**How Social Media Amplifies Misinformation More Than Information**\
-`A new analysis found that algorithms and some features of social media sites help false posts go viral.`\
-https://nytimes.com/2022/10/13/technology/misinformation-integrity-institute-report.html?searchResultPosition=8
-
-**At Least 5 Killed, Including Off-Duty Police Officer, in Raleigh Shooting**\
-`At least two others were wounded, including a police officer, whose injuries were described as “non-life threatening.” The authorities said late Thursday that a suspect was in custody.`\
-https://nytimes.com/2022/10/13/us/raleigh-shooting.html?searchResultPosition=9
-
-**Expert Tips for Curbing Bad Breath**\
-`Food choices, oral hygiene habits and certain health conditions can play a role — but there are ways to keep dragon breath in check.`\
-https://nytimes.com/2022/10/13/well/live/bad-breath-tips.html?searchResultPosition=10
+https://nytimes.com/2022/10/13/crosswords/variety-diagramless-crossword.html?searchResultPosition=10
 
