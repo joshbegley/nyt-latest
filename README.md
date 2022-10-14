@@ -22,7 +22,7 @@ https://nytimes.com/2022/10/14/arts/television/the-lord-of-the-rings-the-rings-o
 `Britain’s economy may be in turmoil, but the mood during Frieze Week was buoyant, and big colorful paintings were in demand.`\
 https://nytimes.com/2022/10/14/arts/design/frieze-london.html?searchResultPosition=6
 
-**The Fight for the Soul of Pilates Moves From Instagram to Court**\
+**The Fight for the Soul of Pilates**\
 `Long after the death of Joseph Pilates, the exercise program’s magnetic founder, his disciples are battling over his legacy.`\
 https://nytimes.com/2022/10/14/style/the-fight-for-the-soul-of-pilates-moves-from-instagram-to-court.html?searchResultPosition=7
 
