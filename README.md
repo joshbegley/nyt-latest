@@ -1,40 +1,40 @@
+**Fox and News Corp, After Years Apart, Explore Merger**\
+`The two sides of Rupert Murdoch’s media business are weighing a proposal to recombine after about a decade apart.`\
+https://nytimes.com/2022/10/14/business/media/fox-news-corp-merger.html?searchResultPosition=1
+
 **Despite Its Barrage of Missiles, Russia Still Loses Ground in Ukraine**\
 `“They use their expensive rockets for nothing, just to frighten people,” a member of Ukraine’s Parliament said of Russian attacks on the country’s cities and infrastructure.`\
-https://nytimes.com/2022/10/14/world/europe/ukraine-battlefields-russian-missiles.html?searchResultPosition=1
+https://nytimes.com/2022/10/14/world/europe/ukraine-battlefields-russian-missiles.html?searchResultPosition=2
 
 **The Boys and Girls Off the Bus. Way Off.**\
 `Campaign reporting has changed enormously since the days of Theodore White, Timothy Crouse and Richard Ben Cramer. Today, a chat with two Times reporters who live in the brave new world of American politics.`\
-https://nytimes.com/2022/10/14/us/politics/campaign-reporting-misinformation-age.html?searchResultPosition=2
+https://nytimes.com/2022/10/14/us/politics/campaign-reporting-misinformation-age.html?searchResultPosition=3
 
 **For Game 3, the Guardians Will Turn to a Yankees Fan**\
 `Triston McKenzie grew up rooting for Derek Jeter and the Yankees, and he’s been mentored by CC Sabathia, but that’s all on hold for now. “I’m out there to win.”`\
-https://nytimes.com/2022/10/14/sports/baseball/triston-mckenzie-guardians-alds.html?searchResultPosition=3
+https://nytimes.com/2022/10/14/sports/baseball/triston-mckenzie-guardians-alds.html?searchResultPosition=4
 
 **Philadelphia Museum of Art Reaches Tentative Deal to End Strike**\
 `Members of the museum’s union ended a 19-day strike shortly before the start of an exhibition on Henri Matisse’s work.`\
-https://nytimes.com/2022/10/14/arts/design/philadelphia-museum-of-art-strike-ends.html?searchResultPosition=4
+https://nytimes.com/2022/10/14/arts/design/philadelphia-museum-of-art-strike-ends.html?searchResultPosition=5
 
 **What the $24.6 Billion Kroger-Albertsons Merger Could Mean for Groceries**\
 `Two of the largest U.S. supermarket chains hope to join forces as inflation pushes food prices higher and as Amazon and Walmart become more powerful.`\
-https://nytimes.com/2022/10/14/business/dealbook/albertsons-kroger-merger-explained.html?searchResultPosition=5
+https://nytimes.com/2022/10/14/business/dealbook/albertsons-kroger-merger-explained.html?searchResultPosition=6
 
 **Mary Adelia McLeod, 84, Dies; First Female Bishop of an Episcopal Diocese**\
 `She began her seminary studies around the time the church approved the ordination of women. She was elected to lead the Vermont Diocese in 1993.`\
-https://nytimes.com/2022/10/14/us/mary-adelia-mcleod-dead.html?searchResultPosition=6
+https://nytimes.com/2022/10/14/us/mary-adelia-mcleod-dead.html?searchResultPosition=7
 
 **Mike Pence Runs Toward Abortion Fight**\
 `While many in the G.O.P. are trying to avoid talking about abortion in the weeks before midterm elections, the former vice president wants to make the procedure “unthinkable.”`\
-https://nytimes.com/2022/10/14/us/mike-pence-abortion.html?searchResultPosition=7
+https://nytimes.com/2022/10/14/us/mike-pence-abortion.html?searchResultPosition=8
 
 **Under Fire, New U.K. Leader Retreats on Economic Strategy**\
 `Fighting for her political survival, Prime Minister Liz Truss fired her top ally and reversed course on tax-cutting plans, trying to shore up financial markets and her poll ratings.`\
-https://nytimes.com/2022/10/14/world/europe/liz-truss-kwarteng-fired.html?searchResultPosition=8
+https://nytimes.com/2022/10/14/world/europe/liz-truss-kwarteng-fired.html?searchResultPosition=9
 
 **Your Friday Evening Briefing**\
 `Here’s what you need to know at the end of the day.`\
-https://nytimes.com/2022/10/14/briefing/britain-economic-policies-xi-jinping-cormac-mccarthy.html?searchResultPosition=9
-
-**15-Year-Old Boy Shot Dead While Riding Subway in Far Rockaway**\
-`Police officials did not name the victim, who was taken from the train by fellow passengers. Emergency workers tried to save him, but he was pronounced dead at a hospital.`\
-https://nytimes.com/2022/10/14/nyregion/15-year-old-subway-shooting-far-rockaway.html?searchResultPosition=10
+https://nytimes.com/2022/10/14/briefing/britain-economic-policies-xi-jinping-cormac-mccarthy.html?searchResultPosition=10
 
