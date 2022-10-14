@@ -10,7 +10,7 @@ https://nytimes.com/2022/10/13/theater/the-piano-lesson-review.html?searchResult
 `A new analysis found that algorithms and some features of social media sites help false posts go viral.`\
 https://nytimes.com/2022/10/13/technology/misinformation-integrity-institute-report.html?searchResultPosition=3
 
-**4 Hospitalized in Raleigh as Police Respond in Force to ‘Active Shooter’**\
+**At Least 4 Shot in Raleigh as Police Respond to Active Shooter**\
 `Officers from multiple law enforcement agencies rushed to a residential neighborhood on the city’s east side, as the authorities cautioned people to remain in their homes.`\
 https://nytimes.com/2022/10/13/us/raleigh-shooting.html?searchResultPosition=4
 
