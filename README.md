@@ -26,9 +26,9 @@ https://nytimes.com/2022/10/14/world/europe/france-oil-refinery-strike.html?sear
 `We revisit the 2019 story of Ella Maners, a young girl whose fears were taking over her life — until she went to summer camp.`\
 https://nytimes.com/2022/10/14/podcasts/the-daily/ocd-anxiety-kids.html?searchResultPosition=7
 
-**Top U.K. Finance Official Cuts U.S. Trip Short in Face of Political Crisis**\
-`Kwasi Kwarteng, the chancellor of the Exchequer, is under pressure to reverse his fiscal plan after it rattled markets and prompted an open backlash among politicians.`\
-https://nytimes.com/2022/10/14/world/europe/kwasi-kwarteng-uk-crisis-tax.html?searchResultPosition=8
+**Top U.K. Finance Official Is Reportedly Ousted in Face of Political Crisis**\
+`Kwasi Kwarteng, the chancellor of the Exchequer, was under pressure to reverse his fiscal plan after it rattled markets and prompted an open backlash among politicians.`\
+https://nytimes.com/2022/10/14/world/europe/kwasi-kwarteng-uk-chancellor-tax.html?searchResultPosition=8
 
 **The New York Times News Quiz, October 14, 2022**\
 `Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
