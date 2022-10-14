@@ -3,7 +3,7 @@
 https://nytimes.com/2022/10/14/climate/climate-disasters-poor-nations-iimf.html?searchResultPosition=1
 
 **Yankees Wilt in Extra Innings as Guardians Tie Series**\
-`Asked to pitch in relief for the first time in his career, Jameson Taillon was undone by soft contact and defensive miscues.`\
+`Asked to pitch in relief for the first time in his career, Jameson Taillon was undone in the 10th inning by soft contact, a defensive miscue and a line drive.`\
 https://nytimes.com/2022/10/14/sports/baseball/yankees-guardians-alds-game-2.html?searchResultPosition=2
 
 **Echoes of Latin American Racism Reverberate in the U.S.**\
