@@ -1,40 +1,40 @@
-**Lesson Plan: NASA’s Mission to Save the World From a Possible Asteroid**\
-`A NASA spacecraft successfully smashed into a small asteroid and changed its orbit: Should we all sleep easier at night?`\
-https://nytimes.com/2022/10/14/learning/lesson-plans/lesson-plan-nasas-mission-to-save-the-world-from-a-possible-asteroid.html?searchResultPosition=1
+**As a Child in Haiti, I Was Taught to Despise My Language and Myself**\
+`Haiti cannot recover from its brutal history until its schools stop systematically demeaning its sole common language.`\
+https://nytimes.com/2022/10/14/opinion/haiti-kreyol-creole-language-education.html?searchResultPosition=1
 
-**Supercharging the Global Energy Transition**\
-`EDP is investing in innovation at scale and pioneering sustainable energy solutions.`\
-https://nytimes.com/paidpost/edp/supercharging-the-global-energy-transition.html?searchResultPosition=2
+**Reno Is Booming. Some Workers Feel Left Behind.**\
+`Companies are flocking to the Nevada city, but the rising cost of housing, gas and groceries is making daily life a struggle for many who work there.`\
+https://nytimes.com/2022/10/14/business/reno-warehouses-cost-of-living.html?searchResultPosition=2
 
-**The Future of Australian Children’s TV**\
-`It might make more economic sense for all English-language programming to be made in Los Angeles, but that would come at a different cost.`\
-https://nytimes.com/2022/10/14/world/australia/australian-children-television-bluey.html?searchResultPosition=3
+**Bangkok’s Priest to the Poor Finds His Fit Among Fellow Outcasts**\
+`For 50 years, the Rev. Joseph Maier has lived in one of the poorest parts of the Thai capital, ministering to Catholics, Buddhists and Muslims alike, and never finding favor with the church hierarchy.`\
+https://nytimes.com/2022/10/14/world/asia/bangkok-priest-father-joe.html?searchResultPosition=3
 
-**Trevor Noah Is Inspired by Trump’s Camera Work**\
-`Noah joked on Thursday that Trump gets away with so much criminal activity, “it just shows us we could do crime, too.”`\
-https://nytimes.com/2022/10/14/arts/television/trevor-noah-donald-trump.html?searchResultPosition=4
+**A Vault Holding Long-Hidden French Treasures Swings Open Its Doors**\
+`The National Library of France has undergone an extensive renovation, and relics from Charlemagne to Voltaire are now on display.`\
+https://nytimes.com/2022/10/14/arts/design/french-national-library-reopens.html?searchResultPosition=4
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/10/14/crosswords/spelling-bee-forum.html?searchResultPosition=5
+**The Golden Age of Dispensary Design Is Almost Here**\
+`As cannabis legalization has become more widespread, retailers are getting increasingly serious about the design and branding of their shops.`\
+https://nytimes.com/2022/10/14/realestate/marijuana-dispensary-interior-design.html?searchResultPosition=5
 
-**Choose Your Own Adventure**\
-`Tell us a story, real or made up, that is inspired by this illustration.`\
-https://nytimes.com/2022/10/14/learning/choose-your-own-adventure.html?searchResultPosition=6
+**An Appalachian Elegy, Hillbillies Not Included**\
+`In “Demon Copperhead,” Barbara Kingsolver reimagines “David Copperfield” as a tale set in Southern Appalachia, and brings humanity and humor to a region and people who have long endured exploitation and condescension.`\
+https://nytimes.com/2022/10/14/books/barbara-kingsolver-demon-copperhead.html?searchResultPosition=6
 
-**Word of the Day: promulgate**\
-`This word has appeared in 56 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/10/14/learning/word-of-the-day-promulgate.html?searchResultPosition=7
+**War Colliding With Recession Risks Leave Energy Markets on Uncertain Path**\
+`Russia’s invasion of Ukraine, along with governments’ reactions to that, might mean that prices rise. Or they could fall on fears of a global economic slowdown.`\
+https://nytimes.com/2022/10/14/business/mutual-funds/energy-markets-volatility.html?searchResultPosition=7
 
-**Your Friday Briefing**\
-`A fourth day of Russian bombardment.`\
-https://nytimes.com/2022/10/14/briefing/ukraine-arms-subpoena-donald-trump.html?searchResultPosition=8
+**In Mexico City, a Private Art Collection Evolves into a Public Museum**\
+`One of the world’s richest men says he hopes his extensive collection can be a gift to his country long after he is gone.`\
+https://nytimes.com/2022/10/14/arts/design/mexico-city-museo-kaluz.html?searchResultPosition=8
 
-**Why New Jersey Is Weighing a New Bill to Curb Guns**\
-`Since the Supreme Court overturned stringent gun laws in several states, 300,000 residents of New Jersey have applied for permits to carry guns in public.`\
-https://nytimes.com/2022/10/14/nyregion/why-new-jersey-is-weighing-a-new-bill-to-curb-guns.html?searchResultPosition=9
+**In Qatar, a Museum Looks Back at the Breadth of Islam**\
+`As the World Cup draws visitors to present-day Doha, the Museum of Islamic Art reopens with an expanded vision and presentation of Islamic history.`\
+https://nytimes.com/2022/10/14/arts/design/qatar-museum-islamic-art.html?searchResultPosition=9
 
-**‘Uncle Xi’ to Exalted Ruler: China’s Leader Embodies His Authoritarian Era**\
-`Xi Jinping was first cast as a firm but genial leader with a common touch. Approaching a second decade in power, he looms over China like a stern Communist monarch.`\
-https://nytimes.com/2022/10/14/world/asia/china-xi-jinping-communist-party.html?searchResultPosition=10
+**A Smithsonian Museum Sharpens Focus on the History of Slavery**\
+`Despite ambivalence from some on the topic, the institution’s latest leader “knew that slavery had to be at the heart of the museum.”`\
+https://nytimes.com/2022/10/14/arts/smithsonian-museum-slavery-history.html?searchResultPosition=10
 
