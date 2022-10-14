@@ -1,6 +1,6 @@
 **U.K. Markets Still Troubled Despite Finance Minister’s Ouster**\
 `Kwasi Kwarteng, the chancellor of the Exchequer, was fired on Friday by Prime Minister Liz Truss in a bid to end weeks of market turmoil.`\
-https://nytimes.com/2022/10/14/business/uk-markets-still-troubled-despite-finance-ministers-ouster.html?searchResultPosition=1
+https://nytimes.com/2022/10/14/business/uk-markets-kwarteng-truss.html?searchResultPosition=1
 
 **More States Require High School Seniors to Fill Out Financial Aid Form**\
 `Evidence suggests that students who file the federal form are more likely to attend college.`\
