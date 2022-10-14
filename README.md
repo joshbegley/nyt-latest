@@ -34,7 +34,7 @@ https://nytimes.com/2022/10/14/world/europe/france-oil-refinery-strike.html?sear
 `We revisit the 2019 story of Ella Maners, a young girl whose fears were taking over her life — until she went to summer camp.`\
 https://nytimes.com/2022/10/14/podcasts/the-daily/ocd-anxiety-kids.html?searchResultPosition=9
 
-**Top U.K. Finance Official Is Reportedly Ousted in Face of Political Crisis**\
+**Top U.K. Finance Official Is Fired in Face of Political Crisis**\
 `Kwasi Kwarteng, the chancellor of the Exchequer, was under pressure to reverse his fiscal plan after it rattled markets and prompted an open backlash among politicians.`\
 https://nytimes.com/2022/10/14/world/europe/kwasi-kwarteng-uk-chancellor-tax.html?searchResultPosition=10
 
