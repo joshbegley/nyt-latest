@@ -3,7 +3,7 @@
 https://nytimes.com/2022/10/15/business/student-debt-cancellation-applications.html?searchResultPosition=1
 
 **At Least 28 Are Killed in Coal Mine Explosion in Turkey**\
-`The accident occurred in the northern province of Bartin. The country’s health minister said that 11 people were being treated.`\
+`The accident was Turkey’s worst mine disaster in years. Rescue crews were working to reach more than a dozen miners still trapped inside.`\
 https://nytimes.com/2022/10/15/world/europe/turkey-mine-explosion.html?searchResultPosition=2
 
 **Belarus Wavers as Putin Presses It to Join Ukraine War**\
