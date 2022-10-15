@@ -7,7 +7,7 @@ https://nytimes.com/2022/10/15/world/europe/putin-annexations-ukraine-nuclear.ht
 https://nytimes.com/2022/10/15/world/middleeast/iran-evin-prison-fire.html?searchResultPosition=3
 
 **Suspect Is Arrested in Series of Killings in Stockton, Calif., Police Say**\
-`The police used ballistics and video footage to connect a series of shootings that had unnerved the Central Valley region and spread anxiety among residents.`\
+`The 43-year-old man was arrested early on Saturday while he was “out hunting” for another victim, said the police chief, who added, “We are sure we stopped another killing.”`\
 https://nytimes.com/2022/10/15/us/stockton-serial-killer-arrest.html?searchResultPosition=4
 
 **Terminal Connections**\
