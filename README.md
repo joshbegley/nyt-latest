@@ -19,7 +19,7 @@ https://nytimes.com/2022/10/15/business/student-debt-cancellation-applications.h
 https://nytimes.com/2022/10/15/world/europe/turkey-mine-explosion.html?searchResultPosition=5
 
 **Belarus Wavers as Putin Presses It to Join Ukraine War**\
-`The country’s strongman, Aleksandr Lukashenko, finds himself in a bind. He survives with support from Russia, but entering the fight could be ‘political suicide.’`\
+`The country’s strongman, Aleksandr Lukashenko, finds himself in a bind. He survives with support from Russia, but entering the fight could be “political suicide.”`\
 https://nytimes.com/2022/10/15/world/europe/belarus-ukraine-war-russia.html?searchResultPosition=6
 
 **Corrections: Oct. 15, 2022**\
