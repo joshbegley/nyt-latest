@@ -23,7 +23,7 @@ https://nytimes.com/2022/10/15/world/europe/britain-truss-hunt-economics-taxes.h
 https://nytimes.com/2022/10/15/us/politics/covid-booster-shots.html?searchResultPosition=6
 
 **What My Students Don’t Know About Their Own History**\
-`We can do better than to celebrate Latino heritage once a year, during Hispanic Heritage Month.`\
+`When Lat see themselves represented it leaves them empowered and curious to learn more.`\
 https://nytimes.com/2022/10/15/opinion/hispanic-heritage-latinx-studies.html?searchResultPosition=7
 
 **What an Antislavery Politician Missed and Why It Still Matters**\
