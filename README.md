@@ -1,5 +1,5 @@
 **Apple Store in Oklahoma City Becomes Second to Unionize**\
-`Workers said pay and benefits were good, but complained that managers’ practices often seemed arbitrary.`\
+`Workers said pay was adequate and benefits were good, but complained that managers’ practices often seemed arbitrary.`\
 https://nytimes.com/2022/10/14/business/economy/apple-store-union-oklahoma-city.html?searchResultPosition=1
 
 **The Phillies’ Return Home Was Worth the Wait**\
