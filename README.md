@@ -14,8 +14,8 @@ https://nytimes.com/2022/10/15/world/europe/britain-truss-hunt-economics-taxes.h
 `Only about 15 million doses of the new shots have been administered so far, and many Americans appear to be unaware of or simply uninterested in them.`\
 https://nytimes.com/2022/10/15/us/politics/covid-booster-shots.html?searchResultPosition=4
 
-**Put Latino Heritage and History Where It Belongs**\
-`When they see themselves represented it leaves them empowered and curious to learn more.`\
+**What My Students Don’t Know About Their Own History**\
+`We can do better than to celebrate Latino heritage once a year, during Hispanic Heritage Month.`\
 https://nytimes.com/2022/10/15/opinion/hispanic-heritage-latinx-studies.html?searchResultPosition=5
 
 **What an Antislavery Politician Missed and Why It Still Matters**\
