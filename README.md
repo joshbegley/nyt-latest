@@ -12,7 +12,7 @@ https://nytimes.com/2022/10/15/todayspaper/quotation-of-the-day-repairing-fractu
 
 **Biden authorizes an additional $725 million in military aid to Ukraine.**\
 `An air defense system is still not a part of the package, but that may be on the way soon.`\
-https://nytimes.com/2022/10/14/world/europe/biden-ukraine-military-aid.html?searchResultPosition=4
+https://nytimes.com/live/2022/10/14/world/russia-ukraine-war-news/biden-ukraine-military-aid?searchResultPosition=4
 
 **Large Storage Unit**\
 `John Hawksley makes us rummage around the ol’ cranium for some answers.`\
