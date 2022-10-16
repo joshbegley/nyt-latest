@@ -1,4 +1,4 @@
-**Tens of Thousands in Paris Protest Living Costs**\
+**French Protesters on Why They’re Marching in Paris**\
 `The march was planned by a coalition of left-wing parties eager to assert itself as the leading force in opposition to President Emmanuel Macron. Protesters voiced their discontent with wages and France’s “soaring inflation.”`\
 https://nytimes.com/video/world/europe/100000008584496/france-paris-protest-inflation.html?searchResultPosition=1
 
