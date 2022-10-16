@@ -1,40 +1,40 @@
+**Inmate Stole $11 Million in Gold Coin Scheme While in Prison, Officials Say**\
+`A Georgia inmate used a contraband phone to impersonate a billionaire, secured more than 6,000 gold coins and then arranged to buy a multimillion-dollar house, according to court records.`\
+https://nytimes.com/2022/10/16/us/georgia-inmate-scam-billionaire.html?searchResultPosition=1
+
+**Three Things Americans Should Learn From Xi’s China**\
+`The tactics he has used to maintain power may end up weakening his country in the end.`\
+https://nytimes.com/2022/10/16/opinion/xi-jinping-china-economy.html?searchResultPosition=2
+
 **Macron the Disrupter Seeks Direction**\
 `He wants to lead a united Europe to independence. But the world has changed on him.`\
-https://nytimes.com/2022/10/16/world/europe/macron-france.html?searchResultPosition=1
+https://nytimes.com/2022/10/16/world/europe/macron-france.html?searchResultPosition=3
 
 **What’s Going On in This Picture? | Oct. 17, 2022**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
-https://nytimes.com/2022/10/16/learning/whats-going-on-in-this-picture-oct-17-2022.html?searchResultPosition=2
+https://nytimes.com/2022/10/16/learning/whats-going-on-in-this-picture-oct-17-2022.html?searchResultPosition=4
 
 **Ketanji Brown Jackson’s Debut**\
 `She has spoken more extensively than other newcomers to the Supreme Court have.`\
-https://nytimes.com/2022/10/16/briefing/ketanji-brown-jackson-speaking-arguments.html?searchResultPosition=3
+https://nytimes.com/2022/10/16/briefing/ketanji-brown-jackson-speaking-arguments.html?searchResultPosition=5
 
 **The Week in Business: Prices Keep Climbing**\
 `But there will be some relief for the millions of people dependent on Social Security. And a report on how much the housing market is slowing.`\
-https://nytimes.com/2022/10/16/business/the-week-in-business-inflation.html?searchResultPosition=4
+https://nytimes.com/2022/10/16/business/the-week-in-business-inflation.html?searchResultPosition=6
 
 **On tech, Xi points to self-reliance and state-led initiatives.**\
 `Mr. Xi signaled that little would change on tech policy, as he emphasized internet controls, state-led innovation projects and a battle for key core technology.`\
-https://nytimes.com/2022/10/16/world/asia/on-tech-xi-points-to-self-reliance-and-state-led-initiatives.html?searchResultPosition=5
+https://nytimes.com/2022/10/16/world/asia/on-tech-xi-points-to-self-reliance-and-state-led-initiatives.html?searchResultPosition=7
 
 **We Should Try to Prevent Another Alex Jones**\
 `Even a billion-dollar verdict won’t stop the lies.`\
-https://nytimes.com/2022/10/16/opinion/alex-jones-sandy-hook.html?searchResultPosition=6
+https://nytimes.com/2022/10/16/opinion/alex-jones-sandy-hook.html?searchResultPosition=8
 
 **The Sunday Read: ‘Daring to Speak Up About Race in a Divided School District’**\
 `What happened when a superintendent in northern Michigan raised the issue of systemic racism?`\
-https://nytimes.com/2022/10/16/podcasts/the-daily/the-sunday-read-daring-to-speak-up-about-race-in-a-divided-school-district.html?searchResultPosition=7
+https://nytimes.com/2022/10/16/podcasts/the-daily/the-sunday-read-daring-to-speak-up-about-race-in-a-divided-school-district.html?searchResultPosition=9
 
 **Why Herschel Walker May Win**\
 `His performance in the Georgia Senate debate on Friday is a warning to Democrats who’ve found hope in the blunders of Republican candidates.`\
-https://nytimes.com/2022/10/16/opinion/warnock-herschel-walker-debate.html?searchResultPosition=8
-
-**Wait, Who Did You Say Is Middle-Aged?**\
-`Boomers didn’t appreciate getting long in the tooth. But as a Gen Xer, I have to assume it’s worse for us.`\
-https://nytimes.com/2022/10/16/opinion/middle-age-gen-x-boomer.html?searchResultPosition=9
-
-**The Man Who Bet on Neymar Wants His Money**\
-`A Brazilian supermarket magnate saw promise in the soccer star long before he became a household name. Now, believing he was cheated, he’s going to court for the payday that never arrived.`\
-https://nytimes.com/2022/10/16/sports/soccer/neymar-soccer-delcir-sonda-fraud.html?searchResultPosition=10
+https://nytimes.com/2022/10/16/opinion/warnock-herschel-walker-debate.html?searchResultPosition=10
 
