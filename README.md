@@ -4,7 +4,7 @@ https://nytimes.com/video/world/europe/100000008584496/france-paris-protest-infl
 
 **Lake Won’t Pledge to Accept Election Results, and More News From the Sunday Shows**\
 `“I’m going to win the election, and I will accept that result,” Kari Lake, a candidate for governor of Arizona, said on CNN. Evan McMullin said on NBC that he would never caucus with either party.`\
-https://nytimes.com/2022/10/16/us/politics/kari-lake-wont-pledge-to-accept-election-results.html?searchResultPosition=2
+https://nytimes.com/2022/10/16/us/politics/kari-lake-election-results-az.html?searchResultPosition=2
 
 **Review: Iranian Female Composers Speak Indirectly to the Moment**\
 `Planned before anti-regime protests broke out in Iran, a concert centered on connectivity finds itself tied to the news of the day.`\
