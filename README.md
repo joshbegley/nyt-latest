@@ -18,7 +18,7 @@ https://nytimes.com/2022/10/16/opinion/alex-jones-sandy-hook.html?searchResultPo
 `What happened when a superintendent in northern Michigan raised the issue of systemic racism?`\
 https://nytimes.com/2022/10/16/podcasts/the-daily/the-sunday-read-daring-to-speak-up-about-race-in-a-divided-school-district.html?searchResultPosition=5
 
-**Why You’d Be Foolish to Count Herschel Walker Out**\
+**Why Herschel Walker May Win**\
 `His performance in the Georgia Senate debate on Friday is a warning to Democrats who’ve found hope in the blunders of Republican candidates.`\
 https://nytimes.com/2022/10/16/opinion/warnock-herschel-walker-debate.html?searchResultPosition=6
 
