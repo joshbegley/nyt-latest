@@ -1,5 +1,5 @@
 **Democrats in Tight Races Are Asking for Biden’s Help (No, Not That Biden)**\
-`Requests for Jill Biden, the first lady and the president’s most popular surrogate, are piling up ahead of the midterm elections. Her visits can deliver a morale boost and a fund-raising opportunity.`\
+`Requests for the first lady, who is also the president’s most popular surrogate, are piling up ahead of the midterm elections. Her visits can deliver a morale boost and a fund-raising opportunity.`\
 https://nytimes.com/2022/10/16/us/politics/jill-biden-democrats-midterms.html?searchResultPosition=1
 
 **Discovery of Bodies in Oklahoma River Deepens Mystery of 4 Missing Friends**\
