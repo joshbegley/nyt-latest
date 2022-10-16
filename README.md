@@ -1,4 +1,4 @@
-**Democrats in Tight Races Are Asking for Biden’s Help (No, Not That Biden)**\
+**Democrats in Tight Races Turn to Jill Biden on the Campaign Trail**\
 `Requests for the first lady, who is also the president’s most popular surrogate, are piling up ahead of the midterm elections. Her visits can deliver a morale boost and a fund-raising opportunity.`\
 https://nytimes.com/2022/10/16/us/politics/jill-biden-democrats-midterms.html?searchResultPosition=1
 
