@@ -7,7 +7,7 @@ https://nytimes.com/2022/10/15/sports/claressa-shields-savannah-marshall.html?se
 https://nytimes.com/2022/10/15/world/europe/putin-annexations-ukraine-nuclear.html?searchResultPosition=3
 
 **Fire Erupts at Iran’s Most Notorious Prison Amid National Protests**\
-`Evin Prison, in Tehran, houses thousands of dissidents and political prisoners. Witnesses described hearing gunshots and explosions as a blaze made its way through the facility on Saturday.`\
+`Evin Prison, in Tehran, houses hundreds of dissidents and political prisoners. Witnesses described hearing gunshots and explosions as a blaze made its way through the facility on Saturday.`\
 https://nytimes.com/2022/10/15/world/middleeast/iran-evin-prison-fire.html?searchResultPosition=4
 
 **Suspect Is Arrested in Series of Killings in Stockton, Calif., Police Say**\
@@ -19,7 +19,7 @@ https://nytimes.com/2022/10/15/us/stockton-serial-killer-arrest.html?searchResul
 https://nytimes.com/2022/10/15/crosswords/daily-puzzle-2022-10-16.html?searchResultPosition=6
 
 **Fire and Gunshots Reported at Notorious Political Prison in Iran**\
-`Videos obtained by Reuters show a massive fire rising from the Evin prison in Tehran, where hundreds of political dissidents and foreign nationals are held. Explosions and gunshots can also be heard in the videos.`\
+`Videos obtained by Reuters show a massive fire rising from the Evin prison in Tehran, where many political dissidents and foreign nationals are held. Explosions and gunshots can also be heard in the videos.`\
 https://nytimes.com/video/world/middleeast/100000008583827/iran-evin-prison-fire.html?searchResultPosition=7
 
 **Phillies, Flashing Style and Power, Clinch N.L.C.S. Berth and End Atlanta’s Season**\
