@@ -1,4 +1,4 @@
-**In Xi’s China, the State Takes Economic Priority**\
+**In Xi’s China, the Business of Business Is State-Controlled**\
 `The Chinese leader has increasingly demanded that businesses conform to the aims of the Communist Party, an agenda he doubled down on this week at an important political gathering.`\
 https://nytimes.com/2022/10/17/business/china-xi-jinping-business-economy.html?searchResultPosition=1
 
