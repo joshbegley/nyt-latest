@@ -4,7 +4,7 @@ https://nytimes.com/video/world/europe/100000008585266/kyiv-russia-drones-strike
 
 **Jim Redmond, Who Created Olympics Moment Helping Son, Dies at 81**\
 `Derek Redmond pulled a hamstring at the 1992 Games. His father rushed to the track, and they finished the race together.`\
-https://nytimes.com/2022/10/17/sports/olympics/jim-redmond-who-created-olympics-moment-helping-son-dies-at-81.html?searchResultPosition=2
+https://nytimes.com/2022/10/17/sports/olympics/jim-redmond-dead.html?searchResultPosition=2
 
 **Review: A Tenor Claims His Place Among the Met Opera’s Stars**\
 `Allan Clayton brings pathos and terror, along with energy where it’s often missing, to a revival of Britten’s “Peter Grimes.”`\
@@ -16,7 +16,7 @@ https://nytimes.com/2022/10/17/dining/via-carota-cookbook.html?searchResultPosit
 
 **Videos Capture Drone Attack in Kyiv**\
 `At least four people were killed in Kyiv, the Ukrainian capital, when Russia attacked the city early Monday morning with explosive Iranian-made drones.`\
-https://nytimes.com/video/world/europe/100000008585359/drone-attack-kyiv.html?searchResultPosition=5
+https://nytimes.com/video/world/europe/100000008585359/kamikaze-drone-attack-kyiv.html?searchResultPosition=5
 
 **Stock Markets Bounce After a Week of Whiplash**\
 `The S&P 500 rose sharply in early trading on Monday after strong earnings at Bank of America and news of a radically revised tax plan in Britain.`\
