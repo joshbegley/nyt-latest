@@ -1,40 +1,40 @@
+**Fencing Can Be Six-Figure Expensive, but It Wins in College Admissions**\
+`How niche sports offer a pathway to the Ivy League and other elite schools.`\
+https://nytimes.com/2022/10/17/us/fencing-ivy-league-college-admissions.html?searchResultPosition=1
+
+**Republicans Gain Edge as Voters Worry About Economy, Times/Siena Poll Finds**\
+`With elections next month, independents, especially women, are swinging to the G.O.P. despite Democrats’ focus on abortion rights. Disapproval of President Biden seems to be hurting his party.`\
+https://nytimes.com/2022/10/17/us/politics/republicans-economy-nyt-siena-poll.html?searchResultPosition=2
+
+**Migrants in New York Are Grateful for Help. But They Want to Work.**\
+`Newly arrived asylum seekers are finding that their job options are limited by federal rules on work permits.`\
+https://nytimes.com/2022/10/17/nyregion/nyc-asylum-seekers-bronx.html?searchResultPosition=3
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2022/10/17/crosswords/spelling-bee-forum.html?searchResultPosition=4
+
+**Cross-Tabs for October 2022 Times/Siena Poll of Likely Voters**\
+`Responses from a survey of 792 likely voters conducted by The New York Times and Siena College from Oct. 9-12, 2022.`\
+https://nytimes.com/interactive/2022/10/17/upshot/times-siena-poll-likely-voters-crosstabs.html?searchResultPosition=5
+
 **Report on Bristol Attack Describes Heroism of Officer Who Survived**\
 `Officer Alec Iurato was shot in the leg, but he still managed to fire the shot that killed Nicholas Brutcher, the gunman who killed two officers, the authorities said.`\
-https://nytimes.com/2022/10/17/nyregion/bristol-shooting-officer-iurato-heroism.html?searchResultPosition=1
+https://nytimes.com/2022/10/17/nyregion/bristol-shooting-officer-iurato-heroism.html?searchResultPosition=6
 
 **Word of the Day: injunction**\
 `This word has appeared in 204 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/10/17/learning/word-of-the-day-injunction.html?searchResultPosition=2
+https://nytimes.com/2022/10/17/learning/word-of-the-day-injunction.html?searchResultPosition=7
 
 **No Corrections: Oct. 17, 2022**\
 `No corrections appeared in print on Monday, Oct. 17, 2022.`\
-https://nytimes.com/2022/10/17/pageoneplus/no-corrections-oct-17-2022.html?searchResultPosition=3
+https://nytimes.com/2022/10/17/pageoneplus/no-corrections-oct-17-2022.html?searchResultPosition=8
 
 **Quotation of the Day: At Their First Stop in Florida, Venezuelan Migrants Find Support**\
 `Quotation of the Day for Monday, October 17, 2022.`\
-https://nytimes.com/2022/10/17/todayspaper/quotation-of-the-day-at-their-first-stop-in-florida-venezuelan-migrants-find-support.html?searchResultPosition=4
+https://nytimes.com/2022/10/17/todayspaper/quotation-of-the-day-at-their-first-stop-in-florida-venezuelan-migrants-find-support.html?searchResultPosition=9
 
 **N.B.A. Season Preview: Injuries and Drama Are the Wild Cards**\
 `Newly healthy stars and rising young players could shift the power dynamics in both conferences. But if the Nets and the Lakers can recover from off-season drama, they may be the teams to beat.`\
-https://nytimes.com/2022/10/17/sports/basketball/nba-nets-lakers.html?searchResultPosition=5
-
-**What’s on TV This Week: ‘The Vow’ and ‘American Horror Story’**\
-`HBO airs a second season of the documentary on the Nxivm cult and Ryan Murphy’s show begins its 11th season, set in New York City.`\
-https://nytimes.com/2022/10/17/arts/television/whats-on-tv-this-week-the-vow-and-american-horror-story.html?searchResultPosition=6
-
-**Putin’s Desperate Measures Won’t Get Him What He Wants**\
-`None of the Kremlin’s recent gambits are likely to change the battlefield dynamics.`\
-https://nytimes.com/2022/10/17/opinion/russia-ukraine-military-putin.html?searchResultPosition=7
-
-**‘We’re Not All Democrats’: 10 Latino Voters on the G.O.P.’s Appeal**\
-`Ten Latino voters discuss their views on the Republican and Democratic parties and the efforts — or lack thereof — to win their vote.`\
-https://nytimes.com/interactive/2022/10/17/opinion/focus-group-election-latino-hispanic.html?searchResultPosition=8
-
-**Your Monday Briefing**\
-`Troubles with Russia’s draft.`\
-https://nytimes.com/2022/10/17/briefing/russia-draft-paris-protests-xi-jinping.html?searchResultPosition=9
-
-**Eagles Remain Undefeated as Jalen Hurts Outwits Cowboys Pass Rush**\
-`Hurts, the Eagles quarterback, threw for 155 yards and two touchdowns against one of the N.F.L.’s most fearsome defenses to keep Philadelphia atop the N.F.C. East.`\
-https://nytimes.com/2022/10/17/sports/football/eagles-cowboys-score.html?searchResultPosition=10
+https://nytimes.com/2022/10/17/sports/basketball/nba-nets-lakers.html?searchResultPosition=10
 
