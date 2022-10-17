@@ -22,19 +22,19 @@ https://nytimes.com/2022/10/17/business/bank-of-america-earnings.html?searchResu
 `Several municipalities have halted new projects to study their impact on pollution and congestion.`\
 https://nytimes.com/2022/10/17/us/california-inland-empire-warehouse-construction.html?searchResultPosition=6
 
+**The mayor of Moscow says the capital has reached its draft quota.**\
+`President Vladimir V. Putin of Russia announced what he called a partial mobilization of troops on Sep. 21. Defense officials had said Russia would aim to draft about 300,000 civilians.`\
+https://nytimes.com/2022/10/17/world/europe/russia-draft-quota.html?searchResultPosition=7
+
 **Markets Approve of U.K.’s Reversal of Tax Cuts**\
 `The British pound and government bonds rose after the country’s new finance minister overturned nearly all the proposals by Prime Minister Liz Truss.`\
-https://nytimes.com/2022/10/17/business/dealbook/markets-truss-tax-plan-jeremy-hunt.html?searchResultPosition=7
+https://nytimes.com/2022/10/17/business/dealbook/markets-truss-tax-plan-jeremy-hunt.html?searchResultPosition=8
 
 **‘Aggressively Moving’ Nakia Creek Fire Grows Rapidly in Washington State**\
 `The blaze, about 20 miles outside Portland, Ore., grew to 2,000 acres from 150 acres within hours on Sunday. Thousands of people were told to evacuate.`\
-https://nytimes.com/2022/10/17/us/nakia-creek-fire-washington.html?searchResultPosition=8
+https://nytimes.com/2022/10/17/us/nakia-creek-fire-washington.html?searchResultPosition=9
 
 **China Delays Indefinitely the Release of G.D.P. and Other Economic Statistics**\
 `The unusual move comes as the country’s ruling elite has gathered in Beijing for the twice-a-decade national congress of the Communist Party.`\
-https://nytimes.com/2022/10/17/business/china-gdp-delay.html?searchResultPosition=9
-
-**Generators switch back on at the Zaporizhzhia nuclear plant after a strike knocks out external power again.**\
-`A Russian strike again disconnected the embattled plant from the national power grid, forcing it to move to backup power, officials said.`\
-https://nytimes.com/2022/10/17/world/europe/russia-drone-strike-zaporizhzhia-nuclear-plant.html?searchResultPosition=10
+https://nytimes.com/2022/10/17/business/china-gdp-delay.html?searchResultPosition=10
 
