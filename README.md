@@ -6,8 +6,8 @@ https://nytimes.com/2022/10/17/briefing/marjorie-taylor-greene.html?searchResult
 `The agreement in principle to buy the social media service comes days after Twitter and Instagram restricted the rapper’s account for violating its terms.`\
 https://nytimes.com/2022/10/17/business/kanye-west-parler.html?searchResultPosition=2
 
-**New U.K. Finance Minister Pulls Back Further on Fiscal Plan**\
-`Jeremy Hunt, the new chancellor of the Exchequer, announced a sweeping reversal in an effort to steady the markets and reduce the pressure on Prime Minister Liz Truss.`\
+**New U.K. Finance Minister Drops Almost All of Tax-Cut Plan**\
+`Jeremy Hunt also put a time limit on energy subsidies, seeking to reassure markets and reduce pressure on Prime Minister Liz Truss.`\
 https://nytimes.com/2022/10/17/world/europe/uk-jeremy-hunt-fiscal-plan-budget.html?searchResultPosition=3
 
 **The Personal and Political Saga of Herschel Walker**\
