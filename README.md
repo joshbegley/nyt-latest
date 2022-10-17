@@ -1,40 +1,40 @@
-**Vocabulary in Context: Bad Bunny**\
-`Test your vocabulary and reading comprehension with this quiz based on the Times article “Behind Bad Bunny’s Summery Surprise, ‘Un Verano Sin Ti’.”`\
-https://nytimes.com/interactive/2022/10/17/learning/17VocabQuizLN.html?searchResultPosition=1
+**In Battle Against Trash and Rats, N.Y.C. Officials Try a Schedule Shift**\
+`New Yorkers will be asked to place trash on the curb later to reduce the amount of time that mountains of trash fester on the streets.`\
+https://nytimes.com/2022/10/17/nyregion/garbage-nyc-sidewalk-timing.html?searchResultPosition=1
 
-**U.K. Markets Rise as New Chancellor Rushes Forward New Tax Plans**\
-`Jeremy Hunt, Britain’s new top finance official, said he would bring forward by two weeks measures to “support fiscal sustainability.”`\
-https://nytimes.com/2022/10/17/business/uk-markets-pound-gilts.html?searchResultPosition=2
+**$3 Million Homes in California**\
+`A Craftsman-style home in Novato, a rural compound in Fort Bragg and a renovated 1951 house in San Diego.`\
+https://nytimes.com/2022/10/17/realestate/3-million-homes-in-california.html?searchResultPosition=2
 
-**Russia Attacks Kyiv with Explosive Iranian Drones**\
-`Footage shows people scrambling for cover as explosions were heard in the Ukrainian capital. The Russian attack came one week after it unleashed a deadly missile barrage that killed at least 19 people in Ukraine.`\
-https://nytimes.com/video/world/europe/100000008584920/kyiv-explosions-drones-russia.html?searchResultPosition=3
+**What You Get for $3 Million in California**\
+`A Craftsman-style home in Novato, a rural compound in Fort Bragg and a renovated 1951 house in San Diego.`\
+https://nytimes.com/slideshow/2022/10/17/realestate/what-you-get-for-3-million-in-california.html?searchResultPosition=3
 
-**Fencing Can Be Six-Figure Expensive, but It Wins in College Admissions**\
-`How niche sports offer a pathway to the Ivy League and other elite schools.`\
-https://nytimes.com/2022/10/17/us/fencing-ivy-league-college-admissions.html?searchResultPosition=4
+**Half the World Has a Clitoris. Why Don’t Doctors Study It?**\
+`The organ is “completely ignored by pretty much everyone,” medical experts say, and that omission can be devastating to women’s sexual health.`\
+https://nytimes.com/2022/10/17/health/clitoris-sex-doctors-surgery.html?searchResultPosition=4
 
-**Republicans Gain Edge as Voters Worry About Economy, Times/Siena Poll Finds**\
-`With elections next month, independents, especially women, are swinging to the G.O.P. despite Democrats’ focus on abortion rights. Disapproval of President Biden seems to be hurting his party.`\
-https://nytimes.com/2022/10/17/us/politics/republicans-economy-nyt-siena-poll.html?searchResultPosition=5
+**Ralph Macchio Will Always Be ‘The Karate Kid.’ He’s Finally Fine With That.**\
+`His new memoir, “Waxing On,” sees the ’80s star making peace with the role that has brought him back into circulation thanks to “Cobra Kai.”`\
+https://nytimes.com/2022/10/17/books/ralph-macchio-waxing-on-karate-kid.html?searchResultPosition=5
 
-**Migrants in New York Are Grateful for Help. But They Want to Work.**\
-`Newly arrived asylum seekers are finding that their job options are limited by federal rules on work permits.`\
-https://nytimes.com/2022/10/17/nyregion/nyc-asylum-seekers-bronx.html?searchResultPosition=6
+**Is This the World’s Most Picturesque High Dive?**\
+`Catch a glimpse of a storied tradition in Bosnia and Herzegovina, where, for hundreds of years, divers have leaped from a bridge in the southern city of Mostar.`\
+https://nytimes.com/2022/10/17/travel/mostar-bridge-diving-bosnia.html?searchResultPosition=6
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/10/17/crosswords/spelling-bee-forum.html?searchResultPosition=7
+**Has Frieze Become an Unofficial Fashion Week?**\
+`With shows from Alexander McQueen, Raf Simons and Roksanda Ilincic, it wasn’t only artists presenting new works in London.`\
+https://nytimes.com/2022/10/17/fashion/has-frieze-become-an-unofficial-fashion-week.html?searchResultPosition=7
 
-**Cross-Tabs for October 2022 Times/Siena Poll of Likely Voters**\
-`Responses from a survey of 792 likely voters conducted by The New York Times and Siena College from Oct. 9-12, 2022.`\
-https://nytimes.com/interactive/2022/10/17/upshot/times-siena-poll-likely-voters-crosstabs.html?searchResultPosition=8
+**The Rise of a Conservative Radio Juggernaut**\
+`Salem Media, which counts the conservative personalities Charlie Kirk and Sebastian Gorka among its radio hosts, has taken a pointed stance ahead of the midterm elections.`\
+https://nytimes.com/2022/10/17/technology/salem-media-charlie-kirk-sebastian-gorka.html?searchResultPosition=8
 
-**Report on Bristol Attack Describes Heroism of Officer Who Survived**\
-`Officer Alec Iurato was shot in the leg, but he still managed to fire the shot that killed Nicholas Brutcher, the gunman who killed two officers, the authorities said.`\
-https://nytimes.com/2022/10/17/nyregion/bristol-shooting-officer-iurato-heroism.html?searchResultPosition=9
+**How Much Will the Supreme Court Change the World?**\
+`Not to mention the midterms.`\
+https://nytimes.com/2022/10/17/opinion/supreme-court-midterms.html?searchResultPosition=9
 
-**Word of the Day: injunction**\
-`This word has appeared in 204 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/10/17/learning/word-of-the-day-injunction.html?searchResultPosition=10
+**Can $50 Million Make a Dull Brooklyn Office Park Cool?**\
+`A look inside the rebranding of MetroTech, an outdated corporate campus from the early 1990s.`\
+https://nytimes.com/2022/10/17/nyregion/metrotech-brooklyn-commons.html?searchResultPosition=10
 
