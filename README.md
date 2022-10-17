@@ -7,7 +7,7 @@ https://nytimes.com/video/us/100000008585612/nakia-creek-fire-washington-state.h
 https://nytimes.com/2022/10/17/crosswords/spellingbee-diary.html?searchResultPosition=2
 
 **Tim Ryan and J.D. Vance to Face Off Monday in Second Debate**\
-`They are competing for a Senate seat in Ohio, which former President Donald J. Trump comfortably won twice, though the race is more competitive than national observers initially expected. Here’s how to watch.`\
+`They are competing for a Senate seat in Ohio, a state that former President Donald J. Trump comfortably won twice, but the race is competitive. Here’s how to watch.`\
 https://nytimes.com/2022/10/17/us/politics/vance-tim-ryan-ohio-senate.html?searchResultPosition=3
 
 **It’s Not Diwali Without Mithai**\
