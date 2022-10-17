@@ -19,7 +19,7 @@ https://nytimes.com/2022/10/17/dining/diwali-mithai-sweets.html?searchResultPosi
 https://nytimes.com/2022/10/17/arts/music/opera-ballet-mask-requirements-new-york.html?searchResultPosition=5
 
 **Trump Hotels Charged Secret Service Exorbitant Rates, House Inquiry Finds**\
-`Records obtained by the House Oversight Committee showed the former president’s properties charged more than $1.4 million to agents protecting him and his family.`\
+`Records obtained by the House Oversight Committee show the former president’s properties charged more than $1.4 million to agents protecting him and his family.`\
 https://nytimes.com/2022/10/17/us/politics/trump-hotels-secret-service.html?searchResultPosition=6
 
 **Benjamin Civiletti, 87, Attorney General in Iran Hostage Crisis, Dies**\
