@@ -19,7 +19,7 @@ https://nytimes.com/2022/10/17/world/europe/kyiv-russia-strikes-resilience.html?
 https://nytimes.com/2022/10/17/opinion/letters/doctors-mental-health.html?searchResultPosition=5
 
 **Ukrainian Police Shoot at Drones Attacking Kyiv**\
-`Russia attacked Ukraine’s capital with Iranian-made “kamikaze” drones, which explode on impact, during morning rush hour in the city.`\
+`Russia attacked Ukraine’s capital with Iranian-made drones, which explode on impact, during morning rush hour in the city.`\
 https://nytimes.com/video/world/europe/100000008585266/kyiv-russia-drones-strike.html?searchResultPosition=6
 
 **Jim Redmond, Who Created Olympics Moment Helping Son, Dies at 81**\
