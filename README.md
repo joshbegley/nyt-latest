@@ -18,7 +18,7 @@ https://nytimes.com/2022/10/17/dining/apple-season-is-here.html?searchResultPosi
 `Right-wing leaders are mobilizing a national corps of aggressive election activists. “We’re going to adjudicate every battle,” Stephen K. Bannon said.`\
 https://nytimes.com/2022/10/17/us/politics/midterm-elections-challenges.html?searchResultPosition=5
 
-**An Uptick in Elder Poverty: A Blip, or Sign of Things to Come?**\
+**An Uptick in Elder Poverty: A Blip, or a Sign of Things to Come?**\
 `Seniors didn’t fare as well through the pandemic as most. But longer-term trends aren’t moving in their favor either.`\
 https://nytimes.com/2022/10/17/business/economy/elder-poverty-seniors.html?searchResultPosition=6
 
