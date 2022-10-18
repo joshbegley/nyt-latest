@@ -26,7 +26,7 @@ https://nytimes.com/2022/10/18/science/giant-sunfish-record-azores.html?searchRe
 `Sticking to the middle of the road, Gov. Laura Kelly pushes education, economic development and bipartisanship — and distances herself from Democrats in Washington.`\
 https://nytimes.com/2022/10/18/us/politics/laura-kelly-kansas-governor-democrats.html?searchResultPosition=7
 
-**Retailers’ Holiday Wish: That Cash-Strapped Shoppers Will Spend**\
+**Retailers’ Holiday Wish: That Strapped Shoppers Will Spend**\
 `Retailers have navigated pandemic closures and supply chain snarls in recent years. But dealing with the fallout from inflation could be an even tougher test.`\
 https://nytimes.com/2022/10/18/business/retail-holiday-shopping.html?searchResultPosition=8
 
