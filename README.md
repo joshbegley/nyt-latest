@@ -15,7 +15,7 @@ https://nytimes.com/2022/10/18/movies/mamas-boy-review.html?searchResultPosition
 https://nytimes.com/2022/10/18/well/move/running-injury-prevention.html?searchResultPosition=4
 
 **French Cement Company to Pay $780 Million Over Payoffs to ISIS**\
-`The Justice Department’s deal with the company, Lafarge, is one of the largest settlements a private corporation has paid for providing material support to a terrorist organization.`\
+`The Justice Department’s deal with the company, Lafarge, is one of the largest penalties a private corporation has paid for providing material support to a terrorist organization.`\
 https://nytimes.com/2022/10/18/nyregion/lafarge-cement-isis-terrorism.html?searchResultPosition=5
 
 **Can China’s leader deliver?**\
