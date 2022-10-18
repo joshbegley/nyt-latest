@@ -1,40 +1,40 @@
-**Lesson Plan: What Does a Photo Editor Do?**\
-`In this lesson, students will play the role of photo editor to learn how the images they see in The New York Times make their way from the camera to the paper.`\
-https://nytimes.com/2022/10/18/learning/lesson-plans/lesson-plan-what-does-a-photo-editor-do.html?searchResultPosition=1
+**The Dangers of Willful Ignorance**\
+`Jonathan Freedland’s “The Escape Artist” tells the story of Auschwitz’s horrors — and the multitudes who refused to listen.`\
+https://nytimes.com/2022/10/18/books/review/escape-artost-jonathan-freedland.html?searchResultPosition=1
 
-**Voters See Democracy in Peril, but Saving It Isn’t a Priority**\
-`A New York Times/Siena College poll found that other problems have seized voters’ focus — even as many do not trust this year’s election results and are open to anti-democratic candidates.`\
-https://nytimes.com/2022/10/18/us/politics/midterm-election-voters-democracy-poll.html?searchResultPosition=2
+**Jim Crow Should Have Made One Thing Clear**\
+`We don’t need foreign models to understand America’s authoritarian tendencies`\
+https://nytimes.com/2022/10/18/opinion/democracy-america-authoritarianism-midterms.html?searchResultPosition=2
 
-**Lessons From a ‘Difficult Patient’**\
-`Sal was the kind of patient that doctors strive to avoid. But for one medical student, he provided an education in compassion.`\
-https://nytimes.com/2022/10/18/health/doctor-patient-medical-school.html?searchResultPosition=3
+**How Atlanta Remade Hip-Hop**\
+`In a regional game, rap’s Southern contingent has come to dominate its counterparts in New York and L.A.`\
+https://nytimes.com/2022/10/18/books/review/rap-capital-an-atlanta-story-joe-coscarelli.html?searchResultPosition=3
 
-**Parkour for a Purpose**\
-`What is your reaction to these young athletes’ campaign?`\
-https://nytimes.com/2022/10/18/learning/parkour-for-a-purpose.html?searchResultPosition=4
+**When the Tax Agency Won’t Let You Deduct Your Reindeer-Herding Dog**\
+`Indigenous Sami tradition vs. Swedish bureaucracy — who wins this dogfight?`\
+https://nytimes.com/2022/10/18/opinion/svonni-swedish-tax-agency-sami.html?searchResultPosition=4
 
-**Today’s Politics Divide Parties, and Friends and Families, Too**\
-`In the latest poll by The New York Times and Siena College, nearly one in five voters said that politics hurt their friendships or family relationships.`\
-https://nytimes.com/2022/10/18/us/politics/political-division-friends-family.html?searchResultPosition=5
+**Traveling at the End of the World: A Tour of Canada’s Gaspé Peninsula**\
+`The St. Lawrence River was once a North American superhighway. Today, following its path takes you along a coastline best described as otherworldly.`\
+https://nytimes.com/2022/10/18/travel/gaspe-peninsula-tour.html?searchResultPosition=5
 
-**Patek Philippe’s Nautilus Turns to White Gold**\
-`“We made enough” watches with stainless steel, the brand’s president said. So he decided to take the new Ref. 5811 upmarket.`\
-https://nytimes.com/2022/10/18/fashion/watches-patek-philippe-nautilus.html?searchResultPosition=6
+**Why Chelsea Manning Went to WikiLeaks, and What It Cost Her**\
+`In a new memoir, “README.txt,” the former military intelligence analyst tells her life story and explains her decision to blow the whistle on U.S. actions in the Middle East.`\
+https://nytimes.com/2022/10/18/books/review/chelsea-manning-readme-txt-memoir.html?searchResultPosition=6
 
-**Sadder but Wiser? Maybe Not.**\
-`A landmark 1979 study found that depressed people had a more realistic view of their influence over events. New research calls that into question.`\
-https://nytimes.com/2022/10/18/health/depressive-realism-theory.html?searchResultPosition=7
+**Threat to Democracy? Start With Corruption, Many Voters Say**\
+`In a Times/Siena survey, respondents’ concerns about democracy often diverged from typical expert analysis.`\
+https://nytimes.com/2022/10/18/upshot/nyt-poll-threats-democracy.html?searchResultPosition=7
 
-**The Misinformation Beat, Translated**\
-`To report an article on the spread of false narratives in non-English languages, the journalist Tiffany Hsu spent time on fringe platforms — and Google Translate.`\
-https://nytimes.com/2022/10/18/insider/misinformation-reporter.html?searchResultPosition=8
+**Needing a Leader, San Diego Found a $300 Million Bargain**\
+`Manny Machado is a star on and off the field, and his unflinching presence, day in and day out, helped lead the Padres past the Dodgers and into the N.L.C.S.`\
+https://nytimes.com/2022/10/18/sports/baseball/manny-machado-padres-nlcs.html?searchResultPosition=8
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/10/18/crosswords/spelling-bee-forum.html?searchResultPosition=9
+**Philadelphia Embraces a Star Who Embraced the City Back**\
+`Bryce Harper is on a roll for the Phillies, and is deeper into the playoffs than he has ever been. The bond between him and his team’s home city continues to deepen.`\
+https://nytimes.com/2022/10/18/sports/baseball/bryce-harper-phillies-nlcs.html?searchResultPosition=9
 
-**Topline Results for the October 2022 Times/Siena Poll of Registered Voters**\
-`Responses from a survey of 792 registered voters conducted by The New York Times and Siena College from Oct. 9-12, 2022.`\
-https://nytimes.com/interactive/2022/10/18/upshot/times-siena-poll-toplines.html?searchResultPosition=10
+**Paul Newman’s Humanity and Star Power**\
+`When the actor appeared in the movie version of “Nobody’s Fool,” Richard Russo saw another side of him.`\
+https://nytimes.com/2022/10/18/books/review/paul-newman-the-extraordinary-life-of-an-ordinary-man.html?searchResultPosition=10
 
