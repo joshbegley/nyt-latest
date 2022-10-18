@@ -12,7 +12,7 @@ https://nytimes.com/2022/10/18/theater/jeff-weiss-dead.html?searchResultPosition
 
 **Worth the Wait: Yankees Head to A.L.C.S. With Win Over Guardians**\
 `Giancarlo Stanton and Aaron Judge gave the Yankees an early lead in Game 5 of their division series and Nestor Cortes and the bullpen made it last. Next up: the Houston Astros.`\
-https://nytimes.com/2022/10/18/sports/baseball/yankees-guardians-alds-score.html?searchResultPosition=4
+https://nytimes.com/2022/10/18/sports/baseball/yankees-guardians-alds-game-5.html?searchResultPosition=4
 
 **Thank You, Xi Jinping**\
 `China’s paramount leader is restoring faith in the free world — inadvertently, of course.`\
