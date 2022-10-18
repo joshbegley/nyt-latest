@@ -4,7 +4,7 @@ https://nytimes.com/2022/10/18/world/europe/eu-sanctions-russia-ukraine.html?sea
 
 **The N.B.A.’s Bumpy Road to a New Season**\
 `Much of the conversation around the league the past few months hasn’t been about basketball.`\
-https://nytimes.com/2022/10/18/sports/basketball/nba-season-opener.html?searchResultPosition=2
+https://nytimes.com/2022/10/18/sports/basketball/nba-season-preview.html?searchResultPosition=2
 
 **5 Takeaways From the Utah Senate Debate**\
 `Senator Mike Lee and Evan McMullin sparred about Donald Trump and Jan. 6, and had common ground on abortion.`\
