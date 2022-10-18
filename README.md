@@ -18,13 +18,13 @@ https://nytimes.com/2022/10/18/business/energy-climate-change-netherlands.html?s
 `The house is a few feet from its next-door neighbors, but you’d never know it when you’re inside: “We just turned the windows to the sky.”`\
 https://nytimes.com/2022/10/18/realestate/seattle-minimalist-home-design.html?searchResultPosition=5
 
-**A Simple House With a ‘Sense of Massiveness’**\
-`The house is only a few feet from its next-door neighbors, but you’d never know it when you’re inside: “We just turned the windows to the sky.”`\
-https://nytimes.com/slideshow/2022/10/18/realestate/a-simple-house-with-a-sense-of-massiveness.html?searchResultPosition=6
-
 **Italy’s Next Government Hinges on a Familiar Face: Silvio Berlusconi**\
 `Giorgia Meloni’s likely turn as prime minister will depend on support from the billionaire media mogul. So may the health of Italian democracy.`\
-https://nytimes.com/2022/10/18/world/europe/berlusconi-italy-right-wing.html?searchResultPosition=7
+https://nytimes.com/2022/10/18/world/europe/berlusconi-italy-right-wing.html?searchResultPosition=6
+
+**A Simple House With a ‘Sense of Massiveness’**\
+`The house is only a few feet from its next-door neighbors, but you’d never know it when you’re inside: “We just turned the windows to the sky.”`\
+https://nytimes.com/slideshow/2022/10/18/realestate/a-simple-house-with-a-sense-of-massiveness.html?searchResultPosition=7
 
 **After Roe, a Debate About What the Word ‘Abortion’ Means**\
 `In medical terms, the definition is clear. But when disputes arise, opponents argue that not every termination is an abortion.`\
