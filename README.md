@@ -14,7 +14,7 @@ https://nytimes.com/2022/10/18/dining/nyc-restaurant-news.html?searchResultPosit
 `A sunfish found near the Azores in the Atlantic Ocean weighed as much as an S.U.V. Scientists say it’s a sign that the sea’s largest creatures can live if we let them.`\
 https://nytimes.com/2022/10/18/science/giant-sunfish-record-azores.html?searchResultPosition=4
 
-**In Kansas, a Democratic Governor Tests if Any Politics Are Still Local**\
+**In Kansas, a Democratic Governor Tests if Any Politics Is Still Local**\
 `Sticking to the middle of the road, Gov. Laura Kelly pushes education, economic development and bipartisanship — and distances herself from Democrats in Washington.`\
 https://nytimes.com/2022/10/18/us/politics/laura-kelly-kansas-governor-democrats.html?searchResultPosition=5
 
