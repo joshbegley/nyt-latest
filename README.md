@@ -27,7 +27,7 @@ https://nytimes.com/video/world/europe/100000008587762/france-strike-protests.ht
 https://nytimes.com/2022/10/18/briefing/ukraine-china-lil-baby.html?searchResultPosition=7
 
 **Dan Snyder ‘Needs to Be Removed,’ Says One N.F.L. Owner**\
-`The Colts owner Jim Irsay was the first to break ranks with his peers, saying publicly that there is “merit” to pushing Snyder, the Commanders owner, out of the league.`\
+`Jim Irsay of the Colts was the first team owner to say publicly that there is “merit” to pushing Snyder, the Commanders owner, out of the league.`\
 https://nytimes.com/2022/10/18/sports/football/dan-snyder-washington-commanders.html?searchResultPosition=8
 
 **Jury Convicts Paul Flores of Murdering Kristin Smart in 1996**\
