@@ -1,4 +1,4 @@
-**Australia Reverses Recognition of West Jerusalem As Israel’s Capital**\
+**Australia Reverses Recognition of West Jerusalem as Israel’s Capital**\
 `The move rescinded a 2018 decision to recognize Israeli sovereignty in West Jerusalem. It drew barbs from Israel and praise from Palestinians.`\
 https://nytimes.com/2022/10/18/world/middleeast/australia-jerusalem-israel-capital.html?searchResultPosition=1
 
