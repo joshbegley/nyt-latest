@@ -1,6 +1,6 @@
 **Trump Acknowledged in Interview That Letters to Kim Were ‘Top Secret’**\
 `Recordings made by Bob Woodward of his interviews with Donald Trump appear to contradict Mr. Trump’s claims that none of the documents he took with him from the White House were classified.`\
-https://nytimes.com/2022/10/18/us/politics/classified-trump-letters-kim-woodward.html?searchResultPosition=1
+https://nytimes.com/2022/10/18/us/politics/trump-kim-woodward-letters.html?searchResultPosition=1
 
 **Inflation Adjustments Mean Lower Tax Rates for Some in 2023**\
 `Filers whose salaries have not kept pace with inflation could see savings on their federal income tax bills.`\
