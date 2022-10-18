@@ -14,8 +14,8 @@ https://nytimes.com/2022/10/18/technology/amazon-labor-union-alb1.html?searchRes
 `Readers discuss a politician’s disability as a factor in a campaign and in office. Also: The plight of Venezuelan migrants; giving dying people options.`\
 https://nytimes.com/2022/10/18/opinion/letters/john-fetterman-disability-politics.html?searchResultPosition=4
 
-**Stocks Jump Again as Corporate Earnings Continue to Defy Expectations**\
-`Another batch of quarterly profits beat analyst expectations, but some warn that the rally could be short lived, giving way to more selling.`\
+**Stocks Rise as Corporate Earnings Again Defy Expectations**\
+`Another batch of quarterly profits beat analyst expectations, but some warn that the rally could be short-lived, giving way to more selling.`\
 https://nytimes.com/2022/10/18/business/stocks-jump-corporate-earnings.html?searchResultPosition=5
 
 **Strikes Damage Ukrainian Power Stations Ahead of Winter**\
