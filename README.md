@@ -11,7 +11,7 @@ https://nytimes.com/interactive/2022/10/18/upshot/times-siena-poll-registered-vo
 https://nytimes.com/2022/10/18/podcasts/the-daily/hurricane-ian-floride-housing-market-insurance.html?searchResultPosition=3
 
 **Zeldin Draws Closer to Hochul, Gaining Ground in N.Y. Suburbs**\
-`A Siena College poll showed Gov. Kathy Hochul with a 10-point lead over her Republican challenger, Lee Zeldin, down from 17 points last month.`\
+`A Siena College poll showed Gov. Kathy Hochul with a 11-point lead over her Republican challenger, Lee Zeldin, down from 17 points last month.`\
 https://nytimes.com/2022/10/18/nyregion/hochul-zeldin-poll-governor.html?searchResultPosition=4
 
 **Film Club: ‘48 Hours in a Kansas Abortion Clinic: Longer Wait Times, Growing Fears’**\
