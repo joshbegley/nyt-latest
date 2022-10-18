@@ -28,7 +28,7 @@ https://nytimes.com/2022/10/18/nyregion/hochul-zeldin-poll-governor.html?searchR
 
 **Film Club: ‘48 Hours in a Kansas Abortion Clinic: Longer Wait Times, Growing Fears’**\
 `How has the growing number of state abortion bans affected women and health providers across the country?`\
-https://nytimes.com/2022/10/18/learning/film-club-48-hours-in-a-kansas-abortion-clinic-longer-wait-times-growing-fears.html?searchResultPosition=8
+https://nytimes.com/2022/10/18/learning/kansas-abortion-clinic-film.html?searchResultPosition=8
 
 **Four Questions to Ask Your Doctor Before Pelvic Surgery**\
 `To protect your sexual function, it’s vital to discuss your sex life, even if that feels awkward.`\
