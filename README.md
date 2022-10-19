@@ -27,7 +27,7 @@ https://nytimes.com/2022/10/19/sports/baseball/zack-wheeler-philadelphia-phillie
 https://nytimes.com/2022/10/19/world/asia/india-photographer-pulitzer.html?searchResultPosition=7
 
 **For Women in China’s Communist Party, It’s Lonely at the Top**\
-`Mao’s phrase that “women hold up half the sky,” rings hollow as China’s most powerful female politician readies for retirement with few others in line.`\
+`Mao’s phrase that “women hold up half the sky” rings hollow as China’s most powerful female politician readies for retirement with few others in line.`\
 https://nytimes.com/2022/10/19/business/china-women-communist-party.html?searchResultPosition=8
 
 **Art Challenges Social Norms in the Arab World**\
