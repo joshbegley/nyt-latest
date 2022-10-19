@@ -1,5 +1,5 @@
 **India Bars Kashmiri Photographer From Traveling to Receive Pulitzer**\
-`The Indian authorities stopped Sanna Irshad Mattoo at the New Delhi airport, in the latest case harassment of journalists in the country.`\
+`The Indian authorities stopped Sanna Irshad Mattoo at the New Delhi airport, in the latest case of harassment of journalists in the country.`\
 https://nytimes.com/2022/10/19/world/asia/india-photographer-pulitzer.html?searchResultPosition=1
 
 **For Women in China’s Communist Party, It’s Lonely at the Top**\
