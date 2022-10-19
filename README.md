@@ -1,40 +1,40 @@
-**South Korean Super App Goes Down, Putting a Halt on Life**\
-`A days-long outage at Kakao has led to the resignation of a co-CEO and a reckoning over Big Tech’s extensive grip over the South Korean economy.`\
-https://nytimes.com/2022/10/19/world/asia/korea-kakao-ceo.html?searchResultPosition=1
+**Art Challenges Social Norms in the Arab World**\
+`The Institut du Monde Arabe features works of art reflecting L.G.B.T.Q. perspectives.`\
+https://nytimes.com/2022/10/19/arts/design/arab-art-social-norms.html?searchResultPosition=1
 
-**A K-Pop Star Didn’t High-Five Black Fans. Was It Racism?**\
-`The singer Crush apologized for a “misunderstanding” after the exchange, which highlights what experts call K-pop’s uneasy relationship with Black culture.`\
-https://nytimes.com/2022/10/19/arts/music/crush-racism-kpop.html?searchResultPosition=2
+**A Pioneering Artist and Her Nemesis, Side by Side**\
+`Joan Mitchell, an Abstract Expressionist, hated being compared to Monet. Now he’s right next to her in one of two Paris shows that celebrate her work.`\
+https://nytimes.com/2022/10/19/arts/design/joan-mitchell-monet-fondation-vuitton.html?searchResultPosition=2
 
-**Bread Prices Skyrocket as Inflation Grips Europe**\
-`The elevated costs of flour, nuts, eggs and even electricity are forcing bakers to increase their prices and cut their production.`\
-https://nytimes.com/2022/10/19/business/europe-food-prices-inflation.html?searchResultPosition=3
+**Air-Powered Art From a Newly Minted Winner of a ‘Genius Grant’**\
+`After a detour into publishing, Paul Chan offers recent works in a show titled “Breathers” at the Walker Art Center in Minneapolis.`\
+https://nytimes.com/2022/10/19/arts/paul-chan-breather.html?searchResultPosition=3
 
-**Why an Ardent Knicks Fan Has Been Banned From the Garden**\
-`Or, beware when lawyers invoke obscure rules to further their cause. And the race for governor in New York appears to be getting closer.`\
-https://nytimes.com/2022/10/19/nyregion/why-an-ardent-knicks-fan-has-been-banned-from-the-garden.html?searchResultPosition=4
+**‘Art Fairs Bring Me the Whole World’**\
+`Ahead of Paris+ by Art Basel, collectors discussed what attracts them to top art fairs, in person and online — and shared some tips for beginners.`\
+https://nytimes.com/2022/10/19/arts/design/paris-art-basel-collectors.html?searchResultPosition=4
 
-**‘They Forgot About Us’: Inside the Wait for Refugee Status**\
-`As the Biden administration prioritizes resettling people fleeing Ukraine and Afghanistan, many other refugees are waiting years in a system struggling to rebuild.`\
-https://nytimes.com/2022/10/19/us/politics/refugees-asylum-immigration.html?searchResultPosition=5
+**$1.9 Million Homes in Michigan, California and Florida**\
+`A 1926 Tudor Revival house in Grosse Pointe Park, a Spanish-style home in Los Angeles and an 1895 mansion in Apalachicola.`\
+https://nytimes.com/2022/10/19/realestate/home-prices-michigan-california-florida.html?searchResultPosition=5
 
-**As Campaign Norms Erode, Even Debates Are Under Debate**\
-`Direct political engagement with voters is waning as candidates surround themselves with supporters. “They run these campaigns in bubbles,” a former congressman said.`\
-https://nytimes.com/2022/10/19/us/politics/midterm-campaigns-debates-democracy.html?searchResultPosition=6
+**What You Get for $1.9 Million**\
+`A 1926 Tudor Revival house in Grosse Pointe Park, Mich.; a Spanish-style home in Los Angeles; and an 1895 mansion in Apalachicola, Fla.`\
+https://nytimes.com/slideshow/2022/10/19/realestate/what-you-get-for-1-9-million.html?searchResultPosition=6
 
-**Britain Scales Back Foreign Aid, Threatening Progress in Global Health**\
-`The nation is often the second-largest donor to groups working in poor countries to prevent and treat infectious diseases, and to provide reproductive health services to women.`\
-https://nytimes.com/2022/10/19/health/britain-global-health-aid.html?searchResultPosition=7
+**Delaware Township, N.J.: A Farming Town With One Traffic Light**\
+`A commitment to preservation has kept this Hunterdon County township bucolic: “There’s no traffic, unless you get stuck behind a tractor.”`\
+https://nytimes.com/2022/10/19/realestate/delaware-township-nj-hunterdon-county.html?searchResultPosition=7
 
-**‘Yankees, Go Home!’: Seoul Gets Squeezed Between the U.S. and China**\
-`The intensifying rivalry between Washington and Beijing is causing jitters in South Korea, where security ties and economic priorities are not always aligned.`\
-https://nytimes.com/2022/10/19/world/asia/korea-china-us-thaad-missiles.html?searchResultPosition=8
+**What’s on the Minds of 12 Young Voters**\
+`For these Americans under 30, all living in swing states, political priorities ranged from the highly personal to the universal.`\
+https://nytimes.com/2022/10/19/us/politics/young-voters.html?searchResultPosition=8
 
-**Weary of Snarls, Small Businesses Build Their Own Supply Chains**\
-`They’re shifting to domestic sourcing and production, like some big manufacturers, but with at least one advantage the giants don’t have.`\
-https://nytimes.com/2022/10/19/business/small-businesses-supply-chain.html?searchResultPosition=9
+**Goodbye Planes, Trains and Automobiles. Hello, Luxury Bus?**\
+`Start-up travel companies are hoping more Americans will embrace the concept of sleeper and luxury coaches. Just don’t call them buses.`\
+https://nytimes.com/2022/10/19/travel/luxury-bus.html?searchResultPosition=9
 
-**What to Know as Trump Is Deposed in E. Jean Carroll Defamation Suit**\
-`The former president on Wednesday will be asked questions under oath in a defamation case brought by the writer E. Jean Carroll, who says he raped her in a dressing room.`\
-https://nytimes.com/2022/10/19/nyregion/trump-e-jean-carroll-lawsuit.html?searchResultPosition=10
+**Living In ... Delaware Township, N.J.**\
+`A commitment to preservation has kept this Hunterdon County township bucolic: “There’s no traffic, unless you get stuck behind a tractor.”`\
+https://nytimes.com/slideshow/2022/10/19/realestate/living-in-delaware-township-nj.html?searchResultPosition=10
 
