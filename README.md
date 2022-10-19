@@ -1,40 +1,40 @@
+**Zeldin Built His Profile Defending Trump. Will New Yorkers Mind?**\
+`Lee Zeldin, a Republican congressman from Long Island, voted to overturn 2020 election results and blamed Democrats for Jan. 6 violence. Now, he wants to lead New York State.`\
+https://nytimes.com/2022/10/19/nyregion/zeldin-trump-january-6th.html?searchResultPosition=1
+
 **A New Leader at New York Theater Ballet and a Call for New Audiences**\
 `Dance entered Steven Melendez’s life when Diana Byer met him at the shelter where he was living as a child. Now he runs the company she started.`\
-https://nytimes.com/2022/10/19/arts/dance/steven-melendez-new-york-theater-ballet.html?searchResultPosition=1
+https://nytimes.com/2022/10/19/arts/dance/steven-melendez-new-york-theater-ballet.html?searchResultPosition=2
 
 **F.D.A. Panel Recommends Pulling Preterm Birth Drug From the Market**\
 `The agency has weighed years of study that showed the treatment given accelerated approval 11 years ago was not effective.`\
-https://nytimes.com/2022/10/19/health/fda-preterm-birth-drug.html?searchResultPosition=2
+https://nytimes.com/2022/10/19/health/fda-preterm-birth-drug.html?searchResultPosition=3
 
 **The Effects of Climate Change Can Begin in the Womb**\
 `Parents shouldn’t freak out. We should push for change.`\
-https://nytimes.com/2022/10/19/opinion/climate-pregnancy.html?searchResultPosition=3
+https://nytimes.com/2022/10/19/opinion/climate-pregnancy.html?searchResultPosition=4
 
-**‘The World According to Fox’: C.E.O.’s Vision Gets Tested in Court**\
+**‘The World According to Fox’: A C.E.O.’s Vision Gets Tested in Court**\
 `Suzanne Scott remade Fox News Media into a lucrative consumer brand. But a $1.6 billion defamation suit against the company is testing her strategy and leadership.`\
-https://nytimes.com/2022/10/19/business/media/fox-news-suzanne-scott.html?searchResultPosition=4
+https://nytimes.com/2022/10/19/business/media/fox-news-suzanne-scott.html?searchResultPosition=5
 
 **Consumer Giants Keep Raising Prices as Profits Come Under Pressure**\
 `Nestlé and Procter & Gamble reported resilient earnings as they brought in more money from selling fewer goods.`\
-https://nytimes.com/2022/10/19/business/consumer-nestle-procter-gamble.html?searchResultPosition=5
+https://nytimes.com/2022/10/19/business/consumer-nestle-procter-gamble.html?searchResultPosition=6
 
 **First Known Family of Neanderthals Found in Russian Cave**\
 `Fossilized bone fragments of a father, teenage daughter and other related Neanderthals were found alongside stone tools and butchered bison bones.`\
-https://nytimes.com/2022/10/19/science/first-neanderthal-family-russian-cave.html?searchResultPosition=6
+https://nytimes.com/2022/10/19/science/first-neanderthal-family-russian-cave.html?searchResultPosition=7
 
 **How the ‘Black Death’ Left Its Genetic Mark on Future Generations**\
 `Scientists have discovered several genetic variants that protect Europeans from the bubonic plague — but also increase the risk of immune disorders.`\
-https://nytimes.com/2022/10/19/science/bubonic-plague-black-death-genetic-protection.html?searchResultPosition=7
+https://nytimes.com/2022/10/19/science/bubonic-plague-black-death-genetic-protection.html?searchResultPosition=8
 
 **Garlicky Braised Greens and Meatless Recipes**\
 `After moderating a panel on the climate crisis, Melissa Clark suggests a few recipes that are on her mind.`\
-https://nytimes.com/2022/10/19/dining/garlicky-braised-greens-and-meatless-recipes.html?searchResultPosition=8
+https://nytimes.com/2022/10/19/dining/garlicky-braised-greens-and-meatless-recipes.html?searchResultPosition=9
 
 **What’s in Our Queue? Yeah Yeah Yeahs and More**\
 `I’m a senior news assistant on the Culture desk. Here are five things I've been watching, reading and listening to lately.`\
-https://nytimes.com/interactive/2022/10/19/arts/editors-recommendations-yeahyeahyeahs.html?searchResultPosition=9
-
-**‘The School for Good and Evil’ Review: Ever Afters and Never Afters**\
-`Two best friends have princess dreams and witchy nightmares in this adaptation of Soman Chainani’s book series.`\
-https://nytimes.com/2022/10/19/movies/the-school-for-good-and-evil-review.html?searchResultPosition=10
+https://nytimes.com/interactive/2022/10/19/arts/editors-recommendations-yeahyeahyeahs.html?searchResultPosition=10
 
