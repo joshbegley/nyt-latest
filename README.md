@@ -31,7 +31,7 @@ https://nytimes.com/2022/10/19/briefing/ukraine-liz-truss.html?searchResultPosit
 https://nytimes.com/2022/10/19/us/seattle-portland-air-quality.html?searchResultPosition=8
 
 **Charley Trippi, Versatile Football Hall of Famer, Dies at 100**\
-`A standout on offense and defense, Trippi took the Georgia Bulldogs to a Rose Bowl victory and the Chicago Cardinals to an N.F.L. championship.`\
+`A star on offense and defense, he took Georgia to a Rose Bowl victory and the Chicago Cardinals to an N.F.L. title. “The greatest football player I’ve ever seen,” Jim Thorpe said.`\
 https://nytimes.com/2022/10/19/sports/ncaafootball/charley-trippi-dead.html?searchResultPosition=9
 
 **Webb Telescope Captures New View of ‘Pillars of Creation’**\
