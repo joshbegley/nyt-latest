@@ -6,7 +6,7 @@ https://nytimes.com/2022/10/19/briefing/russian-ukraine-power-france-strikes.htm
 `The Lebanese want their money, and they’re done asking politely.`\
 https://nytimes.com/2022/10/19/opinion/lebanon-bank-robberies.html?searchResultPosition=2
 
-**The Free Market Has Failed Britain**\
+**The Last Thatcherite**\
 `Animated by a fantasy version of the free market, Prime Minister Liz Truss set off a sequence of events that led her to the brink of being ousted by her own party.`\
 https://nytimes.com/2022/10/19/opinion/liz-truss-kwasi-kwarteng-uk.html?searchResultPosition=3
 
