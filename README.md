@@ -1,6 +1,6 @@
 **‘It Was Horror’: Liberated Ukrainians Share Tales of Occupation**\
 `With Russian soldiers pushed out, Ukrainian investigators have been overwhelmed   with accounts of detentions, torture and missing relatives, as well as collaboration and property theft.`\
-https://nytimes.com/2022/10/20/world/europe/ukraine-russia-civilian-abuse.html?searchResultPosition=1
+https://nytimes.com/2022/10/20/world/europe/ukraine-civilans-russia-occupation.html?searchResultPosition=1
 
 **‘The Fire that Took Her’ Review: An Unflinching Portrait of Pain**\
 `This documentary charts the case of Judy Malinowski, a young mother who suffered debilitating burns after being set on fire by a man she had dated.`\
