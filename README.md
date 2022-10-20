@@ -1,26 +1,26 @@
+**1897: India Frontier Fighting**\
+`A skirmish between British-led colonial forces and Pashtuns in what would later become northwestern Pakistan, near Afghanistan, left 10 dead and 53 wounded.`\
+https://nytimes.com/2022/10/20/world/1897-india-frontier-fighting.html?searchResultPosition=1
+
 **Why Does Peter Thiel Want Maltese Citizenship?**\
 `The Los Angeles-based tech investor, who has railed against the liberal government of California, applied for Maltese citizenship.`\
-https://nytimes.com/2022/10/20/us/peter-thiel-malta-citizenship-ca.html?searchResultPosition=1
+https://nytimes.com/2022/10/20/us/peter-thiel-malta-citizenship-ca.html?searchResultPosition=2
 
 **All Together at Last, the Nets Lose Anyway**\
 `A rusty Ben Simmons isn’t the difference-maker in his first appearance for Brooklyn.`\
-https://nytimes.com/2022/10/20/sports/basketball/nets-ben-simmons-pelicans.html?searchResultPosition=2
+https://nytimes.com/2022/10/20/sports/basketball/nets-ben-simmons-pelicans.html?searchResultPosition=3
 
 **Watch Live: Liz Truss Expected to Make an Announcement**\
 `Liz Truss has come under growing pressure to resign as U.K. prime minister.`\
-https://nytimes.com/video/embedded/world/europe/100000008587180/liz-truss-statement.html?searchResultPosition=3
+https://nytimes.com/video/embedded/world/europe/100000008587180/liz-truss-statement.html?searchResultPosition=4
 
 **M.L.S. Playoffs: An L.A. Derby, a Wounded Champion and More Questions**\
 `Major League Soccer’s playoffs have reached the conference semifinals as the league sprints to finish before the World Cup.`\
-https://nytimes.com/2022/10/20/sports/soccer/mls-playoffs-preview.html?searchResultPosition=4
+https://nytimes.com/2022/10/20/sports/soccer/mls-playoffs-preview.html?searchResultPosition=5
 
 **Tesla Optimists Are in Retreat**\
 `Investors sent the electric vehicle maker’s shares down sharply in after-hours trading after the company warned about uncertain customer demand.`\
-https://nytimes.com/2022/10/20/business/dealbook/tesla-bulls-share-price-elon-musk.html?searchResultPosition=5
-
-**Truss’s departure stirs further turmoil for the Conservative Party.**\
-`The announcement came shortly after the chairman of an influential committee, who oversees elections for party leader, met with Ms. Truss in her office.`\
-https://nytimes.com/2022/10/20/world/europe/liz-truss-uk-prime-minister-news.html?searchResultPosition=6
+https://nytimes.com/2022/10/20/business/dealbook/tesla-bulls-share-price-elon-musk.html?searchResultPosition=6
 
 **Do You See the Point in Learning Math?**\
 `Is there value in learning algebra, geometry and calculus? Do we appreciate math enough?`\
