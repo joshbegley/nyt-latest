@@ -1,40 +1,40 @@
-**A Shrinking Town at the Center of France’s Culture Wars**\
-`A plan to revitalize the town of Callac by bringing in skilled immigrants has divided it and made it an emblem of a nation’s anxiety over its identity and decline.`\
-https://nytimes.com/2022/10/20/world/europe/france-callac-immigrants-refugees.html?searchResultPosition=1
+**Succession, Nepotism or Just a New Generation in Watches?**\
+`Whatever you call it, these young leaders are changing the way their brands do business.`\
+https://nytimes.com/2022/10/20/fashion/watches-next-generation.html?searchResultPosition=1
 
-**‘Modern Love’ Goes Global in New Television Series**\
-`The latest iteration of the “Modern Love” franchise, “Modern Love Tokyo,” begins streaming on Oct. 21.`\
-https://nytimes.com/2022/10/20/insider/modern-love-global-new-television-series.html?searchResultPosition=2
+**A Pocket Watch Brings Pathos to a Movie Scene**\
+`The director of a new version of “All Quiet on the Western Front” said he added the Alpina timepiece to heighten the film’s drama.`\
+https://nytimes.com/2022/10/20/fashion/watches-all-quiet-on-the-western-front-movie.html?searchResultPosition=2
 
-**In Los Angeles, Politics Are More Complex Than a Racist Recording Indicates**\
-`Recently leaked audio of Latino leaders exposed their ambition to gain power. But loyalties don’t always follow racial lines in the city’s most Latino district.`\
-https://nytimes.com/2022/10/20/us/la-city-council-politics-black-hispanic.html?searchResultPosition=3
+**The Spirit of Halloween**\
+`“Because Spirit Halloween is a pop-up, I have to make sure I have all of my stuff until it pops up again next year.”`\
+https://nytimes.com/2022/10/20/business/the-spirit-of-halloween.html?searchResultPosition=3
 
-**Naked Dressing Has You Covered**\
-`The new “nudity” provides a form of self-pleasure and power for all body types.`\
-https://nytimes.com/2022/10/20/style/naked-dressing.html?searchResultPosition=4
+**A Cutting-Edge Music Festival in Uganda Keeps the Beat**\
+`Despite being called “immoral” by some politicians, this year’s Nyege Nyege festival celebrated diversity and innovation in contemporary African music.`\
+https://nytimes.com/2022/10/20/arts/music/nyege-nyege-music-festival.html?searchResultPosition=4
 
-**Quintessa Swindell Smashes Barriers in DC’s ‘Black Adam’**\
-`“My trans and nonbinary identity is the thing that I’m the most confident about in my life,” Mx. Swindell said.`\
-https://nytimes.com/2022/10/20/style/quintessa-swindell-smashes-barriers-in-dcs-black-adam.html?searchResultPosition=5
+**A Tribute to Black Artists Could Signal a Change for Museums**\
+`Four museums featuring exhibits this fall are recognizing the work of African and African American artists.`\
+https://nytimes.com/2022/10/20/arts/design/black-artists-african-art.html?searchResultPosition=5
 
-**Forest and Flower**\
-`What do you think this image is communicating?`\
-https://nytimes.com/2022/10/20/learning/forest-and-flower.html?searchResultPosition=6
+**New Southern California Exhibitions Reveal Riches of Art and Tradition**\
+`Several museums in Southern California are celebrating Latino and Chicano art and artists across various mediums.`\
+https://nytimes.com/2022/10/20/arts/design/border-art-chicano-latino.html?searchResultPosition=6
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/10/20/crosswords/spelling-bee-forum.html?searchResultPosition=7
+**How Toni Morrison Wrote Her Most Challenging Novel**\
+`‘Jazz’ is a roaming, musical book, writes the poet Morgan Parker. It reads differently than the author’s others and is said to have been her favorite.`\
+https://nytimes.com/2022/10/20/t-magazine/toni-morrison-jazz.html?searchResultPosition=7
 
-**Word of the Day: implacable**\
-`This word has appeared in 58 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/10/20/learning/word-of-the-day-implacable.html?searchResultPosition=8
+**In Detroit, a Look at America’s Passion for van Gogh**\
+`This fall, the first U.S. museum to purchase a painting by Vincent van Gogh mounts a comprehensive exhibition of his work. Here’s what to expect.`\
+https://nytimes.com/2022/10/20/arts/design/detroit-van-gogh-exhibit.html?searchResultPosition=8
 
-**The Day I Stood in the Path of a Driverless Bus**\
-`The Port Authority is testing electric vehicles with no driver for possible use at airports. It turns out they do stop if a pedestrian is in a crosswalk.`\
-https://nytimes.com/2022/10/20/nyregion/driverless-bus-new-york-airports.html?searchResultPosition=9
+**Louis Vuitton Marks 20 Years of Watchmaking**\
+`The brand is celebrating the milestone with a limited-edition watch and a video starring Bradley Cooper.`\
+https://nytimes.com/2022/10/20/fashion/louis-vuitton-watches-20-years.html?searchResultPosition=9
 
-**Your Thursday Briefing**\
-`Putin declares martial law in Ukrainian regions.`\
-https://nytimes.com/2022/10/20/briefing/martial-law-ukraine-truss.html?searchResultPosition=10
+**A Fed President Spoke at an Invite-Only, Off-the-Record Bank Client Event**\
+`James Bullard, who leads the Federal Reserve Bank of St. Louis, appeared at a Citigroup forum last week in Washington. Reporters were not invited.`\
+https://nytimes.com/2022/10/20/business/economy/james-bullard-citi-private-event.html?searchResultPosition=10
 
