@@ -1,40 +1,40 @@
+**Homes for Sale in New York and New Jersey**\
+`This week’s properties are three-bedroom in Croton-on-Hudson, N.Y., and a five-bedroom in Montclair, N.J.`\
+https://nytimes.com/2022/10/20/realestate/housing-market-near-nyc.html?searchResultPosition=1
+
+**On the Market in the New York Region**\
+`This week’s properties are a five-bedroom in Montclair, N.J., and a three-bedroom in Croton-on-Hudson, N.Y.`\
+https://nytimes.com/slideshow/2022/10/20/realestate/on-the-market-in-the-new-york-region.html?searchResultPosition=2
+
+**Homes for Sale in Brooklyn and Manhattan**\
+`This week’s properties are in Williamsburg, Hudson Heights and on the Upper East Side.`\
+https://nytimes.com/2022/10/20/realestate/housing-market-nyc.html?searchResultPosition=3
+
+**On the Market in New York City**\
+`This week’s properties are in Williamsburg, Hudson Heights and on the Upper East Side.`\
+https://nytimes.com/slideshow/2022/10/20/realestate/on-the-market-in-new-york-city.html?searchResultPosition=4
+
+**Cavetown’s Heartfelt Bedroom Pop Brings Kindness to a Cruel World**\
+`The 23-year-old British singer-songwriter Robin Skinner has a listenership devoted to his sensitive (but not despairing) music.`\
+https://nytimes.com/2022/10/20/arts/music/cavetown-worm-food.html?searchResultPosition=5
+
+**A Tranquil Place to Stay in Northern Thailand**\
+`Plus: an exhibition on cave dwelling, a Japanese tasting menu in Brooklyn and more recommendations from T Magazine.`\
+https://nytimes.com/2022/10/20/t-magazine/burirattana-hotel-thailand-chiang-mai.html?searchResultPosition=6
+
+**U.K. Markets Rise as Liz Truss Steps Aside**\
+`The British pound traded 0.5 percent higher against the dollar, reaching $1.13 as Ms. Truss read a short statement outside Downing Street.`\
+https://nytimes.com/2022/10/20/business/liz-truss-markets-pound.html?searchResultPosition=7
+
 **Mystery Surrounds Deadly Attack at a Notorious Myanmar Prison**\
 `A little-known group has claimed responsibility for two explosions, yet it remains unclear how the bombs got in, and how much of the carnage was a result of subsequent gunfire.`\
-https://nytimes.com/2022/10/20/world/asia/myanmar-prison-attack.html?searchResultPosition=1
+https://nytimes.com/2022/10/20/world/asia/myanmar-prison-attack.html?searchResultPosition=8
 
 **U.S. Details How It Plans to Police Foreign Firms**\
 `A government committee issued new guidelines for how it determines penalties for foreign companies that break agreements to protect U.S. national security.`\
-https://nytimes.com/2022/10/20/technology/us-foreign-firms.html?searchResultPosition=2
+https://nytimes.com/2022/10/20/technology/us-foreign-firms.html?searchResultPosition=9
 
 **1897: India Frontier Fighting**\
 `A skirmish between British-led colonial forces and Pashtuns in what would later become northwestern Pakistan, near Afghanistan, left 10 dead and 53 wounded.`\
-https://nytimes.com/2022/10/20/world/1897-india-frontier-fighting.html?searchResultPosition=3
-
-**Why Does Peter Thiel Want Maltese Citizenship?**\
-`The Los Angeles-based tech investor, who has railed against the liberal government of California, applied for Maltese citizenship.`\
-https://nytimes.com/2022/10/20/us/peter-thiel-malta-citizenship-ca.html?searchResultPosition=4
-
-**All Together at Last, the Nets Lose Anyway**\
-`A rusty Ben Simmons isn’t the difference-maker in his first appearance for Brooklyn.`\
-https://nytimes.com/2022/10/20/sports/basketball/nets-ben-simmons-pelicans.html?searchResultPosition=5
-
-**Watch Live: Liz Truss Expected to Make an Announcement**\
-`Liz Truss has come under growing pressure to resign as U.K. prime minister.`\
-https://nytimes.com/video/embedded/world/europe/100000008587180/liz-truss-statement.html?searchResultPosition=6
-
-**M.L.S. Playoffs: An L.A. Derby, a Wounded Champion and More Questions**\
-`Major League Soccer’s playoffs have reached the conference semifinals as the league sprints to finish before the World Cup.`\
-https://nytimes.com/2022/10/20/sports/soccer/mls-playoffs-preview.html?searchResultPosition=7
-
-**Tesla Optimists Are in Retreat**\
-`Investors sent the electric vehicle maker’s shares down sharply in after-hours trading after the company warned about uncertain customer demand.`\
-https://nytimes.com/2022/10/20/business/dealbook/tesla-bulls-share-price-elon-musk.html?searchResultPosition=8
-
-**Do You See the Point in Learning Math?**\
-`Is there value in learning algebra, geometry and calculus? Do we appreciate math enough?`\
-https://nytimes.com/2022/10/20/learning/do-you-see-the-point-in-learning-math.html?searchResultPosition=9
-
-**The Nola Brothers Are Keeping Their Parents on the Move**\
-`San Diego’s Austin Nola delivered a huge hit against Philadelphia’s Aaron Nola in Game 2 of the N.L.C.S. For their nervous (and well-traveled) parents, that was good and bad.`\
-https://nytimes.com/2022/10/20/sports/baseball/nola-brothers-nlcs.html?searchResultPosition=10
+https://nytimes.com/2022/10/20/world/1897-india-frontier-fighting.html?searchResultPosition=10
 
