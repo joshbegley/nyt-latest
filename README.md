@@ -1,5 +1,5 @@
-**Ex-Day Care Workers Charged for Scaring Children With Horror Mask**\
-`Videos showed an employee wearing the mask, similar to that of a serial-killer character in the ‘Scream’ movies, to spook children at a day care center in Mississippi. Five face abuse-related charges.`\
+**Ex-Day Care Workers Charged in Scaring Children With ‘Scream’ Mask**\
+`Videos showed an employee wearing the mask, similar to that of a serial-killer character in the horror movies, to spook children at a day care center in Mississippi. Five face abuse-related charges.`\
 https://nytimes.com/2022/10/20/us/mississippi-day-care-abuse-charges.html?searchResultPosition=1
 
 **Texas Will Send Election Inspectors to Harris County, Citing Trump-Driven Audit**\
