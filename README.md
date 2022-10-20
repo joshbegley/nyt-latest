@@ -1,6 +1,6 @@
 **Appeals Court Finds Consumer Bureau’s Funding Unconstitutional**\
 `The decision, expected to be appealed, could upend every regulation and enforcement action the bureau has issued.`\
-https://nytimes.com/2022/10/20/business/appeals-court-finds-consumer-bureaus-funding-unconstitutional.html?searchResultPosition=1
+https://nytimes.com/2022/10/20/business/consumer-bureau-funding-unconstitutional.html?searchResultPosition=1
 
 **There’s Something in the Water in Virginia. Before You Say ‘Yuck,’ Wait.**\
 `A crucial aquifer is running low, so officials are pumping in treated sewage. It’s an increasingly common strategy as heavy demand and climate change strain water supplies.`\
