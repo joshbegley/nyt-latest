@@ -4,7 +4,7 @@ https://nytimes.com/2022/10/20/world/asia/myanmar-prison-attack.html?searchResul
 
 **U.S. Details How It Plans to Police Foreign Firms**\
 `A government committee issued new guidelines for how it determines penalties for foreign companies that break agreements to protect U.S. national security.`\
-https://nytimes.com/2022/10/20/technology/us-details-how-it-plans-to-police-foreign-firms.html?searchResultPosition=2
+https://nytimes.com/2022/10/20/technology/us-foreign-firms.html?searchResultPosition=2
 
 **1897: India Frontier Fighting**\
 `A skirmish between British-led colonial forces and Pashtuns in what would later become northwestern Pakistan, near Afghanistan, left 10 dead and 53 wounded.`\
