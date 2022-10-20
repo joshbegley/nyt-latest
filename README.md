@@ -1,40 +1,40 @@
+**Researchers Find Benzene, Other Toxics in Gas Piped to California Homes**\
+`A new study estimated that each year California gas appliances and infrastructure leak the same amount of benzene as is emitted by nearly 60,000 cars.`\
+https://nytimes.com/2022/10/20/climate/gas-stove-benzene-california.html?searchResultPosition=1
+
+**‘The Return of Tanya Tucker: Featuring Brandi Carlile’ Review: The Evolution of a Country Star**\
+`A close-up of the singers’ collaboration at Sunset Sound that led to Tucker receiving two Grammys.`\
+https://nytimes.com/2022/10/20/movies/the-return-of-tanya-tucker-featuring-brandi-carlile-review.html?searchResultPosition=2
+
+**‘Aftersun’ Review: A Father and Time**\
+`A daughter’s memory of a vacation in Turkey is at the heart of Charlotte Wells’s astonishing and devastating debut feature.`\
+https://nytimes.com/2022/10/20/movies/aftersun-review.html?searchResultPosition=3
+
+**‘V/H/S/99’ Review: Death on the Way to DVD**\
+`The long-running horror anthology has a new installment.`\
+https://nytimes.com/2022/10/20/movies/v-h-s-99-review.html?searchResultPosition=4
+
+**‘Raymond & Ray’ Review: Oh, Brother**\
+`Ewan McGregor and Ethan Hawke struggle to dig themselves out of this dreary drama about damaged siblings reckoning with their father’s death.`\
+https://nytimes.com/2022/10/20/movies/raymond-ray-review.html?searchResultPosition=5
+
+**‘Brainwashed: Sex-Camera-Power’ Review: Demystifying the Male Gaze**\
+`Directed by Nina Menkes, the film is a distressingly prescriptive documentary aimed at unpacking the patriarchal ways of seeing that have dominated the history of cinema.`\
+https://nytimes.com/2022/10/20/movies/brainwashed-sex-camera-power-review.html?searchResultPosition=6
+
+**‘Ticket to Paradise’ Review: Yes, They Like Piña Coladas**\
+`George Clooney and Julia Roberts take another dip into romantic comedy with this Bali-set film.`\
+https://nytimes.com/2022/10/20/movies/ticket-to-paradise-review.html?searchResultPosition=7
+
 **Tiago Rodrigues’s Theater of Compassion**\
 `Three stage works in Paris by the incoming director of the Avignon Festival continue his preoccupation with empathy and human complexity.`\
-https://nytimes.com/2022/10/20/theater/tiago-rodrigues-paris.html?searchResultPosition=1
+https://nytimes.com/2022/10/20/theater/tiago-rodrigues-paris.html?searchResultPosition=8
 
 **The State of the Midterms**\
 `The midterm elections are less than three weeks away. We explain the state of the races for the House and Senate.`\
-https://nytimes.com/2022/10/20/briefing/midterms-republicans-democrats.html?searchResultPosition=2
+https://nytimes.com/2022/10/20/briefing/midterms-republicans-democrats.html?searchResultPosition=9
 
 **Why Republicans Are Winning Swing Voters**\
 `The G.O.P. is gaining an edge in midterm elections that will determine control of Congress.`\
-https://nytimes.com/2022/10/20/podcasts/the-daily/midterms-polling-swing-voters.html?searchResultPosition=3
-
-**How Taiwan’s ‘Adorable’ and Ambitious Diplomacy Aims to Keep the Island Safe**\
-`Even as China’s threats on reunification grow more pointed, most recently at the Communist Party congress, Taiwan is working creatively to bolster its alliances.`\
-https://nytimes.com/2022/10/20/world/asia/taiwan-diplomacy-china.html?searchResultPosition=4
-
-**Watches With a Sense of Place**\
-`Inspired by their surroundings, brands create designs that celebrate special landscapes.`\
-https://nytimes.com/2022/10/20/fashion/watches-designed-with-a-sense-of-place.html?searchResultPosition=5
-
-**Which Watches Will Be the Classics of Tomorrow?**\
-`Everybody talks about the Nautilus, Royal Oak and Daytona, standouts from the 1960s and ’70s. But what’s next?`\
-https://nytimes.com/2022/10/20/fashion/watches-swiss-design-classics-of-tomorrow.html?searchResultPosition=6
-
-**In Paris, a Kind of Watch Repair Cooperative**\
-`Three watchmakers who met as students now work together to fix and renovate timepieces.`\
-https://nytimes.com/2022/10/20/fashion/watches-repair-shop-paris.html?searchResultPosition=7
-
-**If a Watch Says ‘Glashütte,’ It Actually Has to Be Made There**\
-`A regulation now requires local brands to ensure that at least 50 percent of a timepiece’s ‘added value’ is created in the town.`\
-https://nytimes.com/2022/10/20/fashion/watches-glashutte-germany-regulation.html?searchResultPosition=8
-
-**An F1 Driver Is Not Alone in the Cockpit**\
-`He’s loaded with equipment, like a biometric sensor and fire-resistant overalls, to keep him safe, but please, no jewelry.`\
-https://nytimes.com/2022/10/20/sports/autoracing/f1-driver-gear-race.html?searchResultPosition=9
-
-**The U.S. Grand Prix in Austin Marks Its 10th Year**\
-`It still holds a record for the largest Formula 1 attendance, and its success helped spawn races in Miami and Las Vegas.`\
-https://nytimes.com/2022/10/20/sports/autoracing/f1-us-grand-prix-austin.html?searchResultPosition=10
+https://nytimes.com/2022/10/20/podcasts/the-daily/midterms-polling-swing-voters.html?searchResultPosition=10
 
