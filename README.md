@@ -26,8 +26,8 @@ https://nytimes.com/2022/10/20/briefing/liz-truss-resign-taiwan-china.html?searc
 `Videos showed an employee wearing the mask, similar to the one from the horror movies, to spook children at a day care center in Mississippi, the authorities said. Five face abuse-related charges.`\
 https://nytimes.com/2022/10/20/us/mississippi-day-care-abuse-charges.html?searchResultPosition=7
 
-**Texas Will Send Election Inspectors to Harris County, Citing Trump-Driven Audit**\
-`Judge Lina Hidalgo, a Democrat who is the top official in the county that includes Houston, called the measure’s timing “suspicious.”`\
+**Texas County Asks for U.S. Election Monitors as State Plans to Send Inspectors**\
+`Judge Lina Hidalgo, a Democrat who is the top official in the Harris county, which includes Houston, called the Texas government’s timing “suspicious” over its oversight plan.`\
 https://nytimes.com/2022/10/20/us/politics/election-inspectors-harris-county-texas.html?searchResultPosition=8
 
 **Justice Barrett Rejects Plea to Stop Biden Plan on Student Debt**\
