@@ -34,7 +34,7 @@ https://nytimes.com/2022/10/20/us/politics/military-abortion-access.html?searchR
 `Commissioned by the Louvre, the film brings together two of cinema’s unforgettable faces, Lee Kang-sheng and Jean-Pierre Léaud.`\
 https://nytimes.com/2022/10/20/movies/face-review.html?searchResultPosition=9
 
-**Review: From Twyla Tharp, the Effort and Possibilities of Dancing**\
-`Two classics, “In the Upper Room” and “Nine Sinatra Songs,” share a program at City Center.`\
-https://nytimes.com/2022/10/20/arts/dance/review-twyla-tharp-upper-room-sinatra.html?searchResultPosition=10
+**Memes accompanied Liz Truss’s rise, and helped propel her fall.**\
+`One of Ms. Truss’s defining talents as a politician has been her willingness to embrace a provocative message — and to provide visuals to match.`\
+https://nytimes.com/2022/10/20/world/europe/liz-truss-memes.html?searchResultPosition=10
 
