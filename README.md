@@ -18,23 +18,23 @@ https://nytimes.com/2022/10/20/us/politics/oath-keepers-jan-6-trial.html?searchR
 `This weekend our TV critic recommends a gorgeous Italian drama, a naughty Australian teen show and a happy rom-com set in Mexico.`\
 https://nytimes.com/2022/10/20/arts/television/heartbreak-high-acapulco-heartbreak-high.html?searchResultPosition=5
 
+**Liz Truss Resigns After 6 Chaotic Weeks, Igniting New Leadership Fight**\
+`The beleaguered British prime minister relinquished her office after just 44 days of political and economic tumult, the shortest tenure in British history.`\
+https://nytimes.com/2022/10/20/world/europe/liz-truss-resigns-conservative-party.html?searchResultPosition=6
+
 **Liz Truss is eligible for a taxpayer-funded allowance of $129,000 a year for life.**\
 `The departing British leader would be the sixth prime minister to receive the reimbursement for her expenses after leaving office.`\
-https://nytimes.com/2022/10/20/world/europe/uk-allowance-liz-truss.html?searchResultPosition=6
+https://nytimes.com/2022/10/20/world/europe/uk-allowance-liz-truss.html?searchResultPosition=7
 
 **Russian errors prompted the deployment of Iranian drone personnel to Ukraine, a U.S. official says.**\
 `John Kirby, a National Security Council official, also warned that Russia may try to buy advanced missiles from Iran.`\
-https://nytimes.com/2022/10/20/world/europe/russia-iran-drones-ukraine.html?searchResultPosition=7
+https://nytimes.com/2022/10/20/world/europe/russia-iran-drones-ukraine.html?searchResultPosition=8
 
 **Your Thursday Evening Briefing**\
 `Here’s what you need to know at the end of the day.`\
-https://nytimes.com/2022/10/20/briefing/liz-truss-resign-taiwan-china.html?searchResultPosition=8
+https://nytimes.com/2022/10/20/briefing/liz-truss-resign-taiwan-china.html?searchResultPosition=9
 
 **Ex-Day Care Workers Charged After Scaring Children With ‘Scream’ Mask**\
 `Videos showed an employee wearing the mask, similar to the one from the horror movies, to spook children at a day care center in Mississippi, the authorities said. Five face abuse-related charges.`\
-https://nytimes.com/2022/10/20/us/mississippi-day-care-abuse-charges.html?searchResultPosition=9
-
-**Texas County Asks for U.S. Election Monitors as State Plans to Send Inspectors**\
-`Judge Lina Hidalgo, a Democrat who is the top official in the Harris county, which includes Houston, called the Texas government’s timing “suspicious” over its oversight plan.`\
-https://nytimes.com/2022/10/20/us/politics/election-inspectors-harris-county-texas.html?searchResultPosition=10
+https://nytimes.com/2022/10/20/us/mississippi-day-care-abuse-charges.html?searchResultPosition=10
 
