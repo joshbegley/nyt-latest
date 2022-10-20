@@ -1,5 +1,5 @@
 **Watch Live: Liz Truss Expected to Make an Announcement**\
-`Liz Truss has come under growing pressure to step down as U.K. prime minister.`\
+`Liz Truss has come under growing pressure to resign as U.K. prime minister.`\
 https://nytimes.com/video/world/europe/100000008587180/liz-truss-statement.html?searchResultPosition=1
 
 **M.L.S. Playoffs: An L.A. Derby, a Wounded Champion and More Questions**\
