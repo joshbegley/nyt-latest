@@ -8,7 +8,7 @@ https://nytimes.com/2022/10/20/sports/basketball/nets-ben-simmons-pelicans.html?
 
 **Watch Live: Liz Truss Expected to Make an Announcement**\
 `Liz Truss has come under growing pressure to resign as U.K. prime minister.`\
-https://nytimes.com/video/world/europe/100000008587180/liz-truss-statement.html?searchResultPosition=3
+https://nytimes.com/video/embedded/world/europe/100000008587180/liz-truss-statement.html?searchResultPosition=3
 
 **M.L.S. Playoffs: An L.A. Derby, a Wounded Champion and More Questions**\
 `Major League Soccer’s playoffs have reached the conference semifinals as the league sprints to finish before the World Cup.`\
