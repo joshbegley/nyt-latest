@@ -2,8 +2,8 @@
 `Here’s what you need to know at the end of the day.`\
 https://nytimes.com/2022/10/20/briefing/liz-truss-resign-taiwan-china.html?searchResultPosition=1
 
-**Ex-Day Care Workers Charged in Scaring Children With ‘Scream’ Mask**\
-`Videos showed an employee wearing the mask, similar to that of a serial-killer character in the horror movies, to spook children at a day care center in Mississippi. Five face abuse-related charges.`\
+**Ex-Day Care Workers Charged After Scaring Children With ‘Scream’ Mask**\
+`Videos showed an employee wearing the mask, similar to the one from the horror movies, to spook children at a day care center in Mississippi, the authorities said. Five face abuse-related charges.`\
 https://nytimes.com/2022/10/20/us/mississippi-day-care-abuse-charges.html?searchResultPosition=2
 
 **Texas Will Send Election Inspectors to Harris County, Citing Trump-Driven Audit**\
