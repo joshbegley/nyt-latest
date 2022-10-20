@@ -15,7 +15,7 @@ https://nytimes.com/2022/10/20/movies/all-that-breathes-review.html?searchResult
 https://nytimes.com/2022/10/20/opinion/letters/trump-jan-6.html?searchResultPosition=4
 
 **Biden says America’s partnership with Britain is strong despite the Truss chaos.**\
-`By Jim Tankersley`\
+`“She was a great partner on Russia and Ukraine,” President Biden said of the British leader. “And the British are going to solve their problem.”`\
 https://nytimes.com/2022/10/20/world/europe/biden-liz-truss-uk.html?searchResultPosition=5
 
 **Alex Katz: Six Ramps of a Painter’s Progress**\
