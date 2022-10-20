@@ -26,8 +26,8 @@ https://nytimes.com/2022/10/19/us/social-security-gender-identity.html?searchRes
 `The Capitol Police arrested a man from Georgia and detained two other people who said they were delivering documents to the Supreme Court.`\
 https://nytimes.com/2022/10/19/us/politics/police-arrest-guns-capitol.html?searchResultPosition=7
 
-**With a Wild Fifth Inning, the Padres Even Series With Phillies**\
-`A 37-minute half-inning turned a two-run deficit into a three-run lead, letting San Diego salvage a split at home before the series heads to Philadelphia.`\
+**The Padres Catch Fire at Home to Even Series With Phillies**\
+`A wild fifth inning turned a two-run deficit into a three-run lead, letting San Diego salvage a split before the series heads to Philadelphia.`\
 https://nytimes.com/2022/10/19/sports/baseball/padres-phillies-nlcs-game-2-score.html?searchResultPosition=8
 
 **Politician, Thy Name Is Hypocrite**\
