@@ -10,8 +10,8 @@ https://nytimes.com/2022/10/20/sports/soccer/mls-playoffs-preview.html?searchRes
 `Investors sent the electric vehicle maker’s shares down sharply in after-hours trading after the company warned about uncertain customer demand.`\
 https://nytimes.com/2022/10/20/business/dealbook/tesla-bulls-share-price-elon-musk.html?searchResultPosition=3
 
-**Liz Truss Comes Under Growing Pressure to Quit as U.K. Prime Minister**\
-`The chairman of an influential committee, who oversees elections for party leader, traveled to Ms. Truss’s office for what officials said was an unscheduled meeting.`\
+**Truss’s departure stirs further turmoil for the Conservative Party.**\
+`The announcement came shortly after the chairman of an influential committee, who oversees elections for party leader, met with Ms. Truss in her office.`\
 https://nytimes.com/2022/10/20/world/europe/liz-truss-uk-prime-minister-news.html?searchResultPosition=4
 
 **Do You See the Point in Learning Math?**\
