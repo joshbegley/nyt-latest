@@ -12,7 +12,7 @@ https://nytimes.com/2022/10/21/technology/tiktok-youtube-facebook-misinformation
 
 **Peter Schjeldahl, New York Art Critic With a Poet’s Voice, Dies at 80**\
 `Mr. Schjeldahl, who wrote for The New Yorker and The Village Voice, was an indispensable guide to art on view, both old and new.`\
-https://nytimes.com/2022/10/21/obituaries/peter-schjeldahl-dead.html?searchResultPosition=4
+https://nytimes.com/2022/10/21/nyregion/peter-schjeldahl-dead.html?searchResultPosition=4
 
 **The Next Six Weeks**\
 `U.S. officials believe Ukraine has a window to make gains.`\
