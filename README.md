@@ -1,6 +1,6 @@
 **Biden Says 22 Million Americans Have Applied for Student Loan Debt Relief**\
 `President Biden accused Republicans of hypocrisy for trying to block the debt forgiveness.`\
-https://nytimes.com/2022/10/21/us/22-million-student-loan-debt-relief.html?searchResultPosition=1
+https://nytimes.com/2022/10/21/us/biden-student-loan-debt-relief.html?searchResultPosition=1
 
 **The Ins and Outs of America’s Shrug at the Threat to Democracy**\
 `With voters distracted by other issues and election denial flourishing, the country has what academics call a legitimacy problem.`\
