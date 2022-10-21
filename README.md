@@ -4,7 +4,7 @@ https://nytimes.com/interactive/2022/10/21/podcasts/we-were-three-covid-podcast.
 
 **Bannon Sentenced to 4 Months in Prison for Contempt of Congress**\
 `Stephen Bannon was found guilty of two counts of contempt of Congress this summer for defying a subpoena from the House Jan. 6 committee.`\
-https://nytimes.com/2022/10/21/us/politics/steve-bannon-contempt-congress.html?searchResultPosition=2
+https://nytimes.com/2022/10/21/us/politics/steve-bannon-sentence-contempt-congress.html?searchResultPosition=2
 
 **Five International Movies to Stream Now**\
 `This month’s picks include a postmodern Tamil rom-com, a stylish period drama from Vietnam, an Argentine film about a writer undergoing a creative crisis and more.`\
