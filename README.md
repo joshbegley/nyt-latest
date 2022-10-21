@@ -1,40 +1,40 @@
-**Airlines Cash In as Flexible Work Changes Travel Patterns**\
-`Untethered from desks, passengers are flying more often and in different ways. Carriers expect the new habits to endure, despite economic uncertainty.`\
-https://nytimes.com/2022/10/21/business/airlines-flex-work-travel.html?searchResultPosition=1
+**As Snowmelt Becomes Uncertain, Grit and Tradition Prevail**\
+`The melting of the snowpack in the high Cascades has long been a predictable source of sustenance in the Pacific Northwest. But the old patterns are changing.`\
+https://nytimes.com/2022/10/21/us/northwest-snowpack-climate.html?searchResultPosition=1
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/10/21/crosswords/spelling-bee-forum.html?searchResultPosition=2
+**How to Spend a Perfect Weekend in Santa Cruz**\
+`What once felt like a quirky California pit stop is now a popular getaway destination. Here’s a guide to the city’s beaches, bars, bookshops and beyond.`\
+https://nytimes.com/2022/10/21/travel/santa-cruz-weekend.html?searchResultPosition=2
 
-**Scream**\
-`Tell us a story, real or made up, that is inspired by this photo.`\
-https://nytimes.com/2022/10/21/learning/scream.html?searchResultPosition=3
+**EJ Hill Wants to Take You on a Ride**\
+`Some things about life — and America — “you have to feel in your gut,” this artist says. So he’s building a roller coaster inside a museum.`\
+https://nytimes.com/2022/10/21/arts/design/ej-hill-roller-coaster-mass-moca-art.html?searchResultPosition=3
 
-**Would a Casino Be Good for Times Square?**\
-`The Broadway League opposes a proposal to open a Caesars Palace in the area, but developers are trying to line up restaurants and unions to lobby for it.`\
-https://nytimes.com/2022/10/21/nyregion/would-a-casino-be-good-for-times-square.html?searchResultPosition=4
+**A Coming-Out Party for Generative A.I., Silicon Valley’s New Craze**\
+`A celebration for Stability AI, the start-up behind the controversial Stable Diffusion image generator, represents the arrival of a new A.I. boom.`\
+https://nytimes.com/2022/10/21/technology/generative-ai.html?searchResultPosition=4
 
-**An 8,000-Pound Tribute to the Power of the Beehive**\
-`What’s it like to create a giant beehive in a New York City museum? We asked the creator at the American Museum of Natural History.`\
-https://nytimes.com/2022/10/21/arts/design/bees-american-museum-natural-history.html?searchResultPosition=5
+**She’s Inheriting Millions of Euros. She Wants Her Wealth Taxed Away.**\
+`Marlene Engelhorn, 30, heir to a fortune, isn’t interested in philanthropy, believing it only perpetuates existing power dynamics. She’s calling for structural change to how the ultrarich are taxed.`\
+https://nytimes.com/2022/10/21/world/europe/marlene-engelhorn-wealth-tax.html?searchResultPosition=5
 
-**Bread, Pastrami and Cocktails: Museum Shows Focus on Food**\
-`From New York to Tucson and beyond, exhibitions examine what we eat and how we source and prepare our food.`\
-https://nytimes.com/2022/10/21/arts/design/museum-food-exhibitions.html?searchResultPosition=6
+**A New Procedure Could Expand Reproductive Choices for Transgender Women**\
+`Retrieving viable sperm from men with low fertility and from people who have used estrogen therapy for years has been a challenge, doctors say. A new, less invasive technique has promise.`\
+https://nytimes.com/2022/10/21/science/sperm-retrieval-essm-transgender-fertility.html?searchResultPosition=6
 
-**Prints Make Themselves Seen (and Heard) Again**\
-`A new exhibition at Print Center New York explores how 15 artists have used printmaking techniques since the 1970s to express their ideas about sound.`\
-https://nytimes.com/2022/10/21/arts/design/printmaking-exhibition-new-york.html?searchResultPosition=7
+**Democrats Should Be Freaking Out a Little About South Texas**\
+`In this deep-blue area of a red state, the Republican Party is focusing on local races in a quest to transform the political landscape.`\
+https://nytimes.com/2022/10/21/opinion/texas-democrats-republicans.html?searchResultPosition=7
 
-**The Rockefeller Family Estate Expands to Include New Artists and Audiences**\
-`The new David Rockefeller Creative Arts Center at the Pocantico Center in Tarrytown, N.Y., aims to bring new artists, audiences and life to the Rockefeller family estate.`\
-https://nytimes.com/2022/10/21/arts/design/rockefeller-arts-center-pocantico.html?searchResultPosition=8
+**A.I.-Generated Art Is Already Transforming Creative Work**\
+`Only a few months old, apps like DALL-E 2, Midjourney and Stable Diffusion are changing how filmmakers, interior designers and other creative professionals do their jobs.`\
+https://nytimes.com/2022/10/21/technology/ai-generated-art-jobs-dall-e-2.html?searchResultPosition=8
 
-**In the Lives of the Tudors, Hints of the Present-Day Monarchy**\
-`An exhibition at the Met reveals the majesty of this former British royal family and the manipulation of its image to exude power and relevance.`\
-https://nytimes.com/2022/10/21/arts/design/tudors-metropolitan-museum.html?searchResultPosition=9
+**A Decade After Hurricane Sandy, New Yorkers Still Fear the Rain**\
+`The historic storm prompted the city to invest millions in property protection. Then Hurricane Ida showed how vulnerable homeowners and renters really are to flash flooding.`\
+https://nytimes.com/2022/10/21/realestate/sandy-hurricane-ida-flooding.html?searchResultPosition=9
 
-**Are the Salem Witch Trials Part of Women’s History?**\
-`An exhibition at the New-York Historical Society gives the dark events a fresh look.`\
-https://nytimes.com/2022/10/21/arts/design/salem-witch-trials-womens-history.html?searchResultPosition=10
+**A Country Whose Main Exports Are Its Daughters and Sons**\
+`“On Every Tide,” by the historian Sean Connolly, traces the patterns — and staggering numbers — of Irish migration from the 19th century to the 21st.`\
+https://nytimes.com/2022/10/21/books/review/sean-connolly-on-every-tide.html?searchResultPosition=10
 
