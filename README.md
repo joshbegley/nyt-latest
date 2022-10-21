@@ -18,13 +18,13 @@ https://nytimes.com/2022/10/21/movies/glengarry-glen-ross-reservoir-dogs-anniver
 `For the first season of his horror anthology for Netflix, the filmmaker handpicked eight directors to tell a series of strange and macabre tales.`\
 https://nytimes.com/2022/10/21/arts/television/guillermo-del-toros-cabinet-of-curiosities-netflix.html?searchResultPosition=5
 
-**The Brilliance and the Blahs of City Ballet. (And Then There’s Solange.)**\
-`Reflections on the fall season of New York City Ballet, which remains in transition with a new generation raring to go.`\
-https://nytimes.com/2022/10/21/arts/dance/new-york-city-ballet-fall-season.html?searchResultPosition=6
-
 **Investing in the Shadow of a Recession**\
 `Recessions come in many varieties. Any would bring pain, but if history is a guide, stocks and bonds are likely to rise eventually, our columnist says.`\
-https://nytimes.com/2022/10/21/business/recession-investing-stock-market-bonds.html?searchResultPosition=7
+https://nytimes.com/2022/10/21/business/recession-investing-stock-market-bonds.html?searchResultPosition=6
+
+**The Brilliance and the Blahs of City Ballet. (And Then There’s Solange.)**\
+`Reflections on the fall season of New York City Ballet, which remains in transition with a new generation raring to go.`\
+https://nytimes.com/2022/10/21/arts/dance/new-york-city-ballet-fall-season.html?searchResultPosition=7
 
 **Do You Have Messy Handwriting? We Want to See It.**\
 `Is your penmanship a mess? Can you often not read your own handwriting? Share something you wrote and later found hard to decipher.`\
