@@ -1,5 +1,5 @@
 **Cristiano Ronaldo and the Long Walk**\
-`Soccer biggest stars used to have places to wind down their careers with dignity. The sport’s economics now require their humiliations be public.`\
+`Soccer’s biggest stars used to have places to wind down their careers with dignity. The sport’s economics now require their humiliations be public.`\
 https://nytimes.com/2022/10/21/sports/soccer/cristiano-ronaldo-manchester-united.html?searchResultPosition=1
 
 **California Is Home to the Tallest, Largest and Oldest Trees in the World**\
