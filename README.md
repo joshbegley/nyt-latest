@@ -1,40 +1,40 @@
+**An 8,000-Pound Tribute to the Power of the Beehive**\
+`What’s it like to create a giant beehive in a New York City museum? We asked the creator at the American Museum of Natural History.`\
+https://nytimes.com/2022/10/21/arts/design/bees-american-museum-natural-history.html?searchResultPosition=1
+
+**Bread, Pastrami and Cocktails: Museum Shows Focus on Food**\
+`From New York to Tucson and beyond, exhibitions examine what we eat and how we source and prepare our food.`\
+https://nytimes.com/2022/10/21/arts/design/museum-food-exhibitions.html?searchResultPosition=2
+
+**Prints Make Themselves Seen (and Heard) Again**\
+`A new exhibition at Print Center New York explores how 15 artists have used printmaking techniques since the 1970s to express their ideas about sound.`\
+https://nytimes.com/2022/10/21/arts/design/printmaking-exhibition-new-york.html?searchResultPosition=3
+
+**The Rockefeller Family Estate Expands to Include New Artists and Audiences**\
+`The new David Rockefeller Creative Arts Center at the Pocantico Center in Tarrytown, N.Y., aims to bring new artists, audiences and life to the Rockefeller family estate.`\
+https://nytimes.com/2022/10/21/arts/design/rockefeller-arts-center-pocantico.html?searchResultPosition=4
+
+**In the Lives of the Tudors, Hints of the Present-Day Monarchy**\
+`An exhibition at the Met reveals the majesty of this former British royal family and the manipulation of its image to exude power and relevance.`\
+https://nytimes.com/2022/10/21/arts/design/tudors-metropolitan-museum.html?searchResultPosition=5
+
+**Are the Salem Witch Trials Part of Women’s History?**\
+`An exhibition at the New-York Historical Society gives the dark events a fresh look.`\
+https://nytimes.com/2022/10/21/arts/design/salem-witch-trials-womens-history.html?searchResultPosition=6
+
+**Amber Cowan Gives New Life to Vintage Glass**\
+`Her work is instantly recognizable: lush, collaged tableaus in pastel colors, frozen in the middle of a drip, perpetually in motion.`\
+https://nytimes.com/2022/10/21/arts/design/amber-cowan-vintage-glass.html?searchResultPosition=7
+
+**Word of the Day: scant**\
+`This word has appeared in 266 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2022/10/21/learning/word-of-the-day-scant.html?searchResultPosition=8
+
 **Trauma Is the Best Comedy Material. But April 7 Was Not Funny.**\
 `Comedy has helped long me process the Israel-Palestine Conflict. Then I was in a terror attack.`\
-https://nytimes.com/2022/10/21/opinion/israel-palestine-comedy-terror.html?searchResultPosition=1
+https://nytimes.com/2022/10/21/opinion/israel-palestine-comedy-terror.html?searchResultPosition=9
 
 **Britain Is a Global Laughingstock, and It’s Not Just Liz Truss’s Fault**\
 `The Conservative Party has brought chaos to the country.`\
-https://nytimes.com/2022/10/21/opinion/liz-truss-uk.html?searchResultPosition=2
-
-**Your Friday Briefing**\
-`Liz Truss resigns.`\
-https://nytimes.com/2022/10/21/briefing/truss-britain-resign-ukraine-europe.html?searchResultPosition=3
-
-**The Clock Strikes: Time for Taylor Swift’s New LP, ‘Midnights’**\
-`The singer-songwriter’s 10th studio album is a return to the pop pipeline, with production from her longtime collaborator Jack Antonoff.`\
-https://nytimes.com/2022/10/21/arts/music/taylor-swift-midnights.html?searchResultPosition=4
-
-**As Inflation Stalks Europe, Leaders Shudder**\
-`The downfall of Britain’s prime minister served as a warning to all of the political peril that awaits those who fail to address the erosion of living standards, no matter the cause.`\
-https://nytimes.com/2022/10/21/world/europe/inflation-prices-britain-ukraine-russia.html?searchResultPosition=5
-
-**Corrections: Oct. 21, 2022**\
-`Corrections that appeared in print on Friday, Oct. 21, 2022.`\
-https://nytimes.com/2022/10/21/pageoneplus/corrections-oct-21-2022.html?searchResultPosition=6
-
-**Quotation of the Day: Its Aquifer Dwindling, Virginia Finds a Solution in the Sewers**\
-`Quotation of the Day for Friday, Oct. 21, 2022.`\
-https://nytimes.com/2022/10/21/todayspaper/quotation-of-the-day-its-aquifer-dwindling-virginia-finds-a-solution-in-the-sewers.html?searchResultPosition=7
-
-**After a Storm, Britain’s Economy Finds Itself Rudderless**\
-`The departure of Prime Minister Liz Truss raises uncertainty in a country searching for answers to soaring inflation and stagnant growth.`\
-https://nytimes.com/2022/10/21/business/uk-economy-liz-truss.html?searchResultPosition=8
-
-**Young, Gay and Single Among the Nuns and Widows**\
-`After graduating from college, I pictured myself scrolling through Grindr, not living with my grandmother.`\
-https://nytimes.com/2022/10/21/style/modern-love-young-gay-and-single-among-the-nuns-and-widows.html?searchResultPosition=9
-
-**The Tale of Steven and Stephen**\
-`Steven Romo and Stephen Morgan, both TV reporters, feared they would never find their happily ever after — until they found each other.`\
-https://nytimes.com/2022/10/21/style/steven-romo-stephen-morgan-wedding.html?searchResultPosition=10
+https://nytimes.com/2022/10/21/opinion/liz-truss-uk.html?searchResultPosition=10
 
