@@ -4,7 +4,7 @@ https://nytimes.com/2022/10/21/opinion/letters/poll-economy-democracy.html?searc
 
 **Pickleball Is Expanding. Tennis Is Mad.**\
 `From New York to Hawaii, weekend athletes and government officials are taking part in a battle that goes beyond the fight for court space.`\
-https://nytimes.com/2022/10/21/style/pickleball-is-expanding-tennis-is-mad.html?searchResultPosition=2
+https://nytimes.com/2022/10/21/style/pickleball-tennis-courts.html?searchResultPosition=2
 
 **Speed Cameras Vanish Along Swedish Roads. Could Russia Be Behind It?**\
 `The disappearance of the pricey cameras from rural roads is a mystery. Theories abound on why the cameras have become such a target.`\
