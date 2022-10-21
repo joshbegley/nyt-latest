@@ -8,7 +8,7 @@ https://nytimes.com/video/us/politics/100000008594563/biden-student-debt-relief-
 
 **Twitter Tries Calming Employees as Deal With Elon Musk Looms**\
 `With Mr. Musk’s $44 billion deal to buy Twitter set to close no later than Oct. 28, the company is trying to reassure workers about their employment and compensation.`\
-https://nytimes.com/2022/10/21/technology/twitter-employees-worry-musk.html?searchResultPosition=3
+https://nytimes.com/2022/10/21/technology/twitter-employees-elon-musk.html?searchResultPosition=3
 
 **In Arizona Governor’s Race, a Question Looms: ‘Where’s Katie?’**\
 `In the final weeks of a tight contest, critics say the Democrat, Katie Hobbs, has been too subdued. Her Republican rival, Kari Lake, a former TV news anchor, is taking full advantage.`\
