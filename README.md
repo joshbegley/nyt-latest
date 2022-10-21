@@ -6,7 +6,7 @@ https://nytimes.com/article/prime-minister-britain-uk.html?searchResultPosition=
 `In cities and towns battered by the war, residents worry about how to heat their homes as temperatures drop. But even in places spared from the worst of the fighting, Russian strikes on infrastructure have raised new fears.`\
 https://nytimes.com/2022/10/21/world/europe/ukraine-heat-winter.html?searchResultPosition=2
 
-**What Covid Revealed, And Destroyed**\
+**What Covid Revealed, and Destroyed **\
 `The pandemic has been a time of great loss — and a time of great reflection. Perhaps no one understands that more than Rachel McKibbens.`\
 https://nytimes.com/interactive/2022/10/21/podcasts/we-were-three-covid-podcast.html?searchResultPosition=3
 
