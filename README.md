@@ -2,7 +2,7 @@
 `The Department of Public Safety moved to fire a sergeant, and a captain is under investigation for his role in the response at Robb Elementary.`\
 https://nytimes.com/2022/10/21/us/uvalde-police-response-dps.html?searchResultPosition=1
 
-**Vulnerable, Trapped: A Look at Those Lost in Hurricane Ian**\
+**Vulnerable and Trapped: A Look at Those Lost in Hurricane Ian**\
 `Ian slammed into Florida’s southwest coast last month. Its fearsome storm surge and torrential rain made it the deadliest storm in a generation.`\
 https://nytimes.com/2022/10/21/us/hurricane-ian-victims.html?searchResultPosition=4
 
