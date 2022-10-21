@@ -6,8 +6,8 @@ https://nytimes.com/2022/10/21/us/hurricane-ian-victims.html?searchResultPositio
 `A member of the extremist group gave a comb to Mr. Cox, the Republican candidate for governor of Maryland, after his victory in the primary in July, a video showed.`\
 https://nytimes.com/2022/10/21/us/politics/proud-boys-dan-cox-md.html?searchResultPosition=4
 
-**Appeals Court Temporarily Halts Biden’s Student Debt Relief Plan**\
-`A federal appeals court temporarily halted President Biden’s debt relief plan, preventing the government from moving forward with the debt cancellation it had said could start as early as next week.`\
+**Appeals Court Temporarily Halts Biden’s Student Debt Cancellation**\
+`A federal appeals court on Friday temporarily halted President Biden’s student debt relief plan, preventing the government from moving forward with the debt cancellation it had said could start as early as next week.`\
 https://nytimes.com/2022/10/21/business/appeals-court-student-debt-relief-biden.html?searchResultPosition=5
 
 **Beryl Benacerraf, 73, Dies; Pioneered the Use of Prenatal Ultrasound**\
