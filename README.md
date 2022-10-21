@@ -2,7 +2,7 @@
 `The I.R.S. announced one of its largest increases in decades to caps on retirement contributions, allowing workers with access to the plans to save more.`\
 https://nytimes.com/2022/10/21/business/401k-contribution-limits-2023.html?searchResultPosition=1
 
-**G.O.P. Voter Fraud Crackdown Falters as Charges Are Dropped in Florida and Texas**\
+**G.O.P. Voter Fraud Crackdowns Falter as Charges Are Dropped in Florida and Texas**\
 `One man who had his charges dismissed was among a group of former felons who were rounded up in August under orders from Gov. Ron DeSantis of Florida.`\
 https://nytimes.com/2022/10/21/us/politics/voter-fraud-fl-tx.html?searchResultPosition=2
 
