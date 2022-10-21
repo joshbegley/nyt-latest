@@ -1,6 +1,6 @@
 **Appeals Court Temporarily Halts Biden’s Student Debt Relief Plan**\
 `A federal appeals court temporarily halted President Biden’s debt relief plan, preventing the government from moving forward with the debt cancellation it had said could start as early as next week.`\
-https://nytimes.com/2022/10/21/business/appeals-court-student-debt-relief.html?searchResultPosition=1
+https://nytimes.com/2022/10/21/business/appeals-court-student-debt-relief-biden.html?searchResultPosition=1
 
 **Beryl Benacerraf, 73, Dies; Pioneered the Use of Prenatal Ultrasound**\
 `A radiologist with an uncanny visual sense, she revolutionized the diagnosis of fetal abnormalities like Down syndrome.`\
