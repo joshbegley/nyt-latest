@@ -1,21 +1,40 @@
-**Yankees in a Hole After Another Tough Loss to Astros**\
-`A three-run homer by Alex Bregman was all the scoring Houston needed to support Framber Valdez and the Astros improved to 5-0 this postseason.`\
-https://nytimes.com/2022/10/20/sports/baseball/yankees-astros-alcs-game-2-score.html?searchResultPosition=1
+**The Clock Strikes: Time for Taylor Swift’s New LP, ‘Midnights’**\
+`The singer-songwriter’s 10th studio album is a return to the pop pipeline, with production from her longtime collaborator Jack Antonoff.`\
+https://nytimes.com/2022/10/21/arts/music/taylor-swift-midnights.html?searchResultPosition=1
 
-**Former U.C.L.A. Gynecologist Is Convicted of Sexually Abusing Patients**\
-`Dr. James Heaps faces up to 21 years in prison after he was convicted of five criminal counts, prosecutors said.`\
-https://nytimes.com/2022/10/20/us/ucla-james-heaps-guilty.html?searchResultPosition=2
+**As Inflation Stalks Europe, Leaders Shudder**\
+`The downfall of Britain’s prime minister served as a warning to all of the political peril that awaits those who fail to address the erosion of living standards, no matter the cause.`\
+https://nytimes.com/2022/10/21/world/europe/inflation-prices-britain-ukraine-russia.html?searchResultPosition=2
 
-**Variety: Acrostic**\
-`Emily Cox and Henry Rathvon gallop in with a gothic acrostic.`\
-https://nytimes.com/2022/10/20/crosswords/variety-acrostic.html?searchResultPosition=3
+**Corrections: Oct. 21, 2022**\
+`Corrections that appeared in print on Friday, Oct. 21, 2022.`\
+https://nytimes.com/2022/10/21/pageoneplus/corrections-oct-21-2022.html?searchResultPosition=3
 
-**Review: In ‘Topdog/Underdog,’ Staying Alive Is the Ultimate Hustle**\
-`A latter-day Lincoln and Booth try to survive the American dream in a hilarious, harrowing and superbly acted Broadway revival of the Suzan-Lori Parks play.`\
-https://nytimes.com/2022/10/20/theater/topdog-underdog-review.html?searchResultPosition=4
+**Quotation of the Day: Its Aquifer Dwindling, Virginia Finds a Solution in the Sewers**\
+`Quotation of the Day for Friday, Oct. 21, 2022.`\
+https://nytimes.com/2022/10/21/todayspaper/quotation-of-the-day-its-aquifer-dwindling-virginia-finds-a-solution-in-the-sewers.html?searchResultPosition=4
 
-**Vibed With**\
-`Rafael Musa makes his New York Times Crossword debut.`\
-https://nytimes.com/2022/10/20/crosswords/daily-puzzle-2022-10-21.html?searchResultPosition=5
+**After a Storm, Britain’s Economy Finds Itself Rudderless**\
+`The departure of Prime Minister Liz Truss raises uncertainty in a country searching for answers to soaring inflation and stagnant growth.`\
+https://nytimes.com/2022/10/21/business/uk-economy-liz-truss.html?searchResultPosition=5
 
-**Our Best Soup Recipes**\
+**Young, Gay and Single Among the Nuns and Widows**\
+`After graduating from college, I pictured myself scrolling through Grindr, not living with my grandmother.`\
+https://nytimes.com/2022/10/21/style/modern-love-young-gay-and-single-among-the-nuns-and-widows.html?searchResultPosition=6
+
+**The Tale of Steven and Stephen**\
+`Steven Romo and Stephen Morgan, both TV reporters, feared they would never find their happily ever after — until they found each other.`\
+https://nytimes.com/2022/10/21/style/steven-romo-stephen-morgan-wedding.html?searchResultPosition=7
+
+**Must Love Dogs, and Skiing**\
+`Mollie Finkel told her Tawkify matchmaker that her potential partner had to ski and love dogs. Raj Aidasani fit the bill.`\
+https://nytimes.com/2022/10/21/style/mollie-finkel-raj-aidasani-wedding.html?searchResultPosition=8
+
+**After a Two-Decade Pause, a Romance Rekindled**\
+`Antoinette Burke, the mother of #MeToo founder Tarana Burke, and Albert Humphreys Jr. first dated in the late 1990s. Twenty-two years later, he knocked at her front door.`\
+https://nytimes.com/2022/10/21/style/antoinette-tarana-burke-albert-humphreys-jr-wedding.html?searchResultPosition=9
+
+**The Red Adidas Tracksuit Sealed the Deal**\
+`Katherine Bonneau was charmed by Mikhail Kosyan’s ability to be himself, along with his sense of humor and thoughtfulness. They were engaged after seven months.`\
+https://nytimes.com/2022/10/21/style/katherine-bonneau-mikhail-kosyan-wedding.html?searchResultPosition=10
+
