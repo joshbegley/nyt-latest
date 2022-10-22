@@ -10,7 +10,7 @@ https://nytimes.com/2022/10/22/world/canada/passenger-trains-construction-pandem
 `Zar Amir Ebrahimi, who had to flee Iran after an intimate tape was leaked, has been transfixed by the protests erupting there as her film “Holy Spider” is released in the U.S.`\
 https://nytimes.com/2022/10/22/movies/zar-amir-ebrahimi-holy-spider.html?searchResultPosition=3
 
-**Lost and Found in Wartime Ukraine: Limbs and Comradeship**\
+**Ukraine War Amputees Find New Hope in Recovery**\
 `It did not take long for amputees to begin coming off the Ukrainian battlefield. Our photographer captured their new fight, to lead ordinary lives again.`\
 https://nytimes.com/2022/10/22/world/europe/ukraine-war-amputees.html?searchResultPosition=4
 
