@@ -1,32 +1,32 @@
+**Happy to Be Home, the Phillies Conquer a Padres Ace**\
+`Kyle Schwarber’s leadoff homer off Joe Musgrove got things started right and Philadelphia held on to take a series lead.`\
+https://nytimes.com/2022/10/21/sports/baseball/phillies-padres-nlcs-game-3-score.html?searchResultPosition=1
+
 **As Midterms Near, Biden Warns Republicans Seek to Dismantle Democratic Legislation**\
 `The president told MSNBC that G.O.P. lawmakers could undo Democrats’ legislative victories if they regained control of Congress.`\
-https://nytimes.com/2022/10/21/us/politics/biden-republicans-midterm-elections.html?searchResultPosition=1
+https://nytimes.com/2022/10/21/us/politics/biden-republicans-midterm-elections.html?searchResultPosition=2
 
 **‘So You’re In?’**\
 `Brooke Husic and Yacob Yonas take us for a spin in this Saturday puzzle.`\
-https://nytimes.com/2022/10/21/crosswords/daily-puzzle-2022-10-22.html?searchResultPosition=2
+https://nytimes.com/2022/10/21/crosswords/daily-puzzle-2022-10-22.html?searchResultPosition=3
 
 **Illegal Border Crossings by Venezuelans Plunge in the Face of New Policies**\
 `The number of Venezuelans entering the United States illegally dropped from about 1,200 a day to 150 in the first days after the Biden administration rolled out the new policies.`\
-https://nytimes.com/2022/10/21/us/politics/venezuela-immigrants-border.html?searchResultPosition=3
+https://nytimes.com/2022/10/21/us/politics/venezuela-immigrants-border.html?searchResultPosition=4
 
 **‘A Little Life’ Review: A Collage of Unrelenting Torment**\
 `Hanya Yanagihara’s best-selling novel comes to the BAM stage, and raises the question: How much suffering can the protagonist (and the audience) endure?`\
-https://nytimes.com/2022/10/21/theater/a-little-life-review.html?searchResultPosition=4
+https://nytimes.com/2022/10/21/theater/a-little-life-review.html?searchResultPosition=5
 
 **New Questions Over Actions of State Police in Uvalde School Shooting**\
 `The Department of Public Safety moved to fire a sergeant, and a captain is under investigation for his role in the response at Robb Elementary.`\
-https://nytimes.com/2022/10/21/us/uvalde-police-response-dps.html?searchResultPosition=5
+https://nytimes.com/2022/10/21/us/uvalde-police-response-dps.html?searchResultPosition=6
 
 **Vulnerable and Trapped: A Look at Those Lost in Hurricane Ian**\
 `Ian slammed into Florida’s southwest coast last month. Its fearsome storm surge and torrential rain made it the deadliest storm in a generation.`\
-https://nytimes.com/2022/10/21/us/hurricane-ian-victims.html?searchResultPosition=8
+https://nytimes.com/2022/10/21/us/hurricane-ian-victims.html?searchResultPosition=9
 
 **The Proud Boys Presented Dan Cox With a Gift. Now, He Says He Didn’t Keep It.**\
 `A member of the extremist group gave a comb to Mr. Cox, the Republican candidate for governor of Maryland, after his victory in the primary in July, a video showed.`\
-https://nytimes.com/2022/10/21/us/politics/proud-boys-dan-cox-md.html?searchResultPosition=9
-
-**Appeals Court Temporarily Halts Biden’s Student Debt Cancellation**\
-`A federal appeals court on Friday temporarily halted President Biden’s student debt relief plan, preventing the government from moving forward with the debt cancellation it had said could start as early as next week.`\
-https://nytimes.com/2022/10/21/business/appeals-court-student-debt-relief-biden.html?searchResultPosition=10
+https://nytimes.com/2022/10/21/us/politics/proud-boys-dan-cox-md.html?searchResultPosition=10
 
