@@ -30,4 +30,8 @@ https://nytimes.com/2022/10/22/world/asia/china-xi-jinping-congress-security.htm
 `A new lineup of the Communist Party elite will limit potential resistance to Mr. Xi’s agenda of bolstering security and expanding state sway over the economy.`\
 https://nytimes.com/2022/10/22/world/asia/china-xi-jinping-congress.html?searchResultPosition=8
 
-**How to watch the World Cup draw.**\
+**The U.S. women learn their opponents amid challenges to their World Cup supremacy.**\
+`By Andrew Das`\
+https://nytimes.com/2022/10/22/sports/soccer/the-us-women-await-their-opponents-amid-challenges-to-their-world-cup-supremacy.html?searchResultPosition=9
+
+**How the draw works: 32 teams, 4 pots, 8 groups.**\
