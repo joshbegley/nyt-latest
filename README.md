@@ -6,13 +6,13 @@ https://nytimes.com/2022/10/22/business/dealbook/nathan-anderson-nikola-trial.ht
 `For more than two years, Covid disrupted social rituals and rites of passage. Now a recent study suggests we have become less extroverted, creative, agreeable and conscientious. The declines in some traits were sharper among young people.`\
 https://nytimes.com/2022/10/22/health/covid-impact-personality-change.html?searchResultPosition=2
 
-**The Times Endorses Kathy Hochul for Governor of New York**\
-`In-person voting begins on Oct. 29.`\
-https://nytimes.com/2022/10/22/opinion/kathy-hochul-new-york-governor.html?searchResultPosition=3
-
 **The New York Times Editorial Board Interview With Kathy Hochul**\
 `Kathy Hochul is the governor of New York. She served as the state’s lieutenant governor.`\
-https://nytimes.com/2022/10/22/opinion/kathy-hochul-nyt-interview.html?searchResultPosition=4
+https://nytimes.com/2022/10/22/opinion/kathy-hochul-nyt-interview.html?searchResultPosition=3
+
+**The Times Endorses Kathy Hochul for Governor of New York**\
+`In-person voting begins on Oct. 29.`\
+https://nytimes.com/2022/10/22/opinion/kathy-hochul-new-york-governor.html?searchResultPosition=4
 
 **The New York Times Editorial Board Interview With Lee Zeldin**\
 `Lee Zeldin is a Republican congressman who has represented eastern Long Island since 2015.`\
