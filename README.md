@@ -14,7 +14,7 @@ https://nytimes.com/2022/10/22/todayspaper/quotation-of-the-day-this-heir-to-a-f
 `He said passengers killed on two 737 Max flights were crime victims, siding with relatives who objected to a deal that spared Boeing from a criminal charge.`\
 https://nytimes.com/2022/10/21/business/boeing-families-crime-victims.html?searchResultPosition=4
 
-**Happy to Be Home, the Phillies Conquer a Padres Ace**\
+**Emotions Run High as Phillies Beat Padres at Home in Game 3**\
 `Jean Segura put on a show with his glove and his bat, Kyle Schwarber hit a leadoff homer and Philadelphia was able to get a crucial win against the red-hot Joe Musgrove.`\
 https://nytimes.com/2022/10/21/sports/baseball/phillies-padres-nlcs-game-3-score.html?searchResultPosition=5
 
