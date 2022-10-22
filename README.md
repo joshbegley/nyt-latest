@@ -1,5 +1,5 @@
 **Happy to Be Home, the Phillies Conquer a Padres Ace**\
-`Kyle Schwarber’s leadoff homer off Joe Musgrove got things started right and Philadelphia held on to take a series lead.`\
+`Jean Segura put on a show with his glove and his bat, Kyle Schwarber hit a leadoff homer and Philadelphia was able to get a crucial win against the red-hot Joe Musgrove.`\
 https://nytimes.com/2022/10/21/sports/baseball/phillies-padres-nlcs-game-3-score.html?searchResultPosition=1
 
 **As Midterms Near, Biden Warns Republicans Seek to Dismantle Democratic Legislation**\
