@@ -3,7 +3,7 @@
 https://nytimes.com/2022/10/21/sports/baseball/phillies-padres-nlcs-game-3-score.html?searchResultPosition=1
 
 **As Midterms Near, Biden Warns Republicans Seek to Dismantle Democratic Legislation**\
-`The president also vowed to veto a federal abortion ban if Republicans regain control of Congress and seek to pass such legislation.`\
+`The president also vowed to veto a federal abortion ban if Republicans regain control of Congress and seek to pass such legislation, in an interview with MSNBC.`\
 https://nytimes.com/2022/10/21/us/politics/biden-republicans-midterm-elections.html?searchResultPosition=2
 
 **‘So You’re In?’**\
