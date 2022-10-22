@@ -2,7 +2,7 @@
 `Stuffed shells, schnitzel, breakfast burritos: Make the meals you can’t stop thinking about.`\
 https://nytimes.com/2022/10/22/dining/recipes-youll-crave.html?searchResultPosition=1
 
-**Ian Hamilton, 97, Who Stole a Scottish Relic from Westminster Abbey, Dies**\
+**Ian Hamilton, 97, Who Stole a Scottish Relic From Westminster Abbey, Dies**\
 `In an audacious caper, he and three other Scottish nationalists liberated the Stone of Destiny nearly 700 years after England had seized it from Scotland.`\
 https://nytimes.com/2022/10/22/world/europe/ian-hamilton-dead.html?searchResultPosition=2
 
