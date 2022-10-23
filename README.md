@@ -1,40 +1,40 @@
+**With Their Big Bats Silent, the Astros Keep Rolling**\
+`Jose Altuve’s double on Saturday was his first hit of the postseason and Yordan Alvarez and Kyle Tucker are struggling against the Yankees. Regardless, Houston is up, 3-0.`\
+https://nytimes.com/2022/10/23/sports/baseball/jose-altuve-houston-astros-alcs.html?searchResultPosition=1
+
+**The Week in Business: Liz Truss Concedes to the Markets**\
+`Americans are combining leisure and business travel. Tech profits are slowing. And the deadline for Elon Musk to buy Twitter is coming up.`\
+https://nytimes.com/2022/10/23/business/the-week-in-business-liz-truss-britain-financial-markets.html?searchResultPosition=2
+
 **Republicans’ Persistent 2020 Election Doubts**\
 `Hundreds of Republicans running for offices this year have questioned the 2020 election.`\
-https://nytimes.com/2022/10/23/briefing/republicans-election-misinformation.html?searchResultPosition=1
+https://nytimes.com/2022/10/23/briefing/republicans-election-misinformation.html?searchResultPosition=3
 
 **Quotation of the Day: Missing a Legal Deadline May Cost Harvard Millions**\
 `Quotation of the Day for Sunday, October 23, 2022.`\
-https://nytimes.com/2022/10/23/todayspaper/quotation-of-the-day-missing-a-legal-deadline-may-cost-harvard-millions.html?searchResultPosition=2
+https://nytimes.com/2022/10/23/todayspaper/quotation-of-the-day-missing-a-legal-deadline-may-cost-harvard-millions.html?searchResultPosition=4
 
 **The Sunday Read: ‘How Yiyun Li Became a Beacon for Readers in Mourning’**\
 `By Alexandra Kleeman, Jack D’Isidoro, Elisheba Ittoop, John Woo, Sophia Lanman and Devin Murphy`\
-https://nytimes.com/2022/10/23/podcasts/the-daily/the-sunday-read-how-yiyun-li-became-a-beacon-for-readers-in-mourning.html?searchResultPosition=3
+https://nytimes.com/2022/10/23/podcasts/the-daily/the-sunday-read-how-yiyun-li-became-a-beacon-for-readers-in-mourning.html?searchResultPosition=5
 
 **For Ukrainian Runners, a Brutal Race Made Sense When Little Else Did**\
 `Backyard ultramarathons are grueling, hourslong races. The international team competition, held on Oct. 15, included runners from dozens of nations racing on their home turf, including Ukraine.`\
-https://nytimes.com/2022/10/23/sports/backyard-ultra-ukraine.html?searchResultPosition=4
+https://nytimes.com/2022/10/23/sports/backyard-ultra-ukraine.html?searchResultPosition=6
 
 **How Xi Jinping Remade China in His Image**\
 `Mr. Xi has inserted himself into every corner of Chinese life, leaving no room for anointed successors.`\
-https://nytimes.com/interactive/2022/10/23/world/asia/xi-propaganda.html?searchResultPosition=5
+https://nytimes.com/interactive/2022/10/23/world/asia/xi-propaganda.html?searchResultPosition=7
 
 **Russian Superyachts Find Safe Haven in Turkey, Raising Concerns in Washington**\
 `Turkey’s welcoming ports are symptoms of a much larger problem: evasion of U.S. sanctions against Russia.`\
-https://nytimes.com/2022/10/23/world/europe/russian-superyachts-find-safe-haven-in-turkey-raising-concerns-in-washington.html?searchResultPosition=6
+https://nytimes.com/2022/10/23/world/europe/russian-superyachts-find-safe-haven-in-turkey-raising-concerns-in-washington.html?searchResultPosition=8
 
 **For Eric Adams, an Unexpected Influx of Migrants Poses a Major Test**\
 `The mayor has struggled to respond to thousands of migrants arriving on buses, and he has received criticism from every corner.`\
-https://nytimes.com/2022/10/23/nyregion/migrants-nyc-eric-adams.html?searchResultPosition=7
+https://nytimes.com/2022/10/23/nyregion/migrants-nyc-eric-adams.html?searchResultPosition=9
 
 **Why Am I Seeing That Political Ad? Check Your ‘Trump Resistance’ Score.**\
 `To help campaigns target ads, voter-profiling firms score millions of Americans on issues like guns, vaccines and QAnon.`\
-https://nytimes.com/2022/10/23/technology/voter-targeting-trump-score.html?searchResultPosition=8
-
-**Homes That Sold for Around $450,000**\
-`Recent residential sales in New York City and the region.`\
-https://nytimes.com/2022/10/23/realestate/homes-sold-450000-dollars-nyc.html?searchResultPosition=9
-
-**The One Where Matthew Perry Writes an Addiction Memoir**\
-`In “Friends, Lovers and the Big Terrible Thing,” the actor gets serious about sobriety, mortality, colostomy bags and pickleball.`\
-https://nytimes.com/2022/10/23/arts/television/matthew-perry-friends-lovers-and-the-big-terrible-thing.html?searchResultPosition=10
+https://nytimes.com/2022/10/23/technology/voter-targeting-trump-score.html?searchResultPosition=10
 
