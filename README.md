@@ -11,7 +11,7 @@ https://nytimes.com/2022/10/23/pageoneplus/corrections-oct-23-2022.html?searchRe
 https://nytimes.com/2022/10/23/world/europe/britain-truss-conservative.html?searchResultPosition=3
 
 **Slugging Phillies Are One Win Away From the World Series**\
-`Down 4-0 after a half-inning, the Phillies rallied, moving closer to their first World Series appearance since 2009.`\
+`Down 4-0 after a half-inning, the Phillies’ juggernaut of an offense picked up the team’s pitching staff and ran away with yet another victory.`\
 https://nytimes.com/2022/10/22/sports/baseball/phillies-padres-nlcs-game-4-score.html?searchResultPosition=4
 
 **Xi is expected to unveil a new lineup of top officials.**\
