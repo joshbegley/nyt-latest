@@ -27,7 +27,7 @@ https://nytimes.com/2022/10/22/nyregion/nyc-subway-police-combat-crime.html?sear
 https://nytimes.com/2022/10/22/sports/baseball/yankees-astros-alcs-game-3-score.html?searchResultPosition=7
 
 **Geoff Nuttall, First Among Equals in Acclaimed Quartet, Dies at 56**\
-`With the St. Lawrence Quartet, he played with such enthusiasm that he often swept himself from his seat. At the Spoleto Festival USA, he was a shaping force.`\
+`With the St. Lawrence Quartet, he played the violin with such enthusiasm that he often swept himself from his seat. At the Spoleto Festival USA, he was a shaping force.`\
 https://nytimes.com/2022/10/22/arts/music/geoff-nuttall-dead.html?searchResultPosition=8
 
 **Relief Workers in Mykolaiv Distribute Meals Amid Blackout**\
