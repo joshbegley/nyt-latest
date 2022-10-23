@@ -31,7 +31,7 @@ https://nytimes.com/2022/10/23/briefing/republicans-election-misinformation.html
 https://nytimes.com/2022/10/23/todayspaper/quotation-of-the-day-missing-a-legal-deadline-may-cost-harvard-millions.html?searchResultPosition=8
 
 **The Sunday Read: ‘How Yiyun Li Became a Beacon for Readers in Mourning’**\
-`By Alexandra Kleeman, Jack D’Isidoro, Elisheba Ittoop, John Woo, Sophia Lanman and Devin Murphy`\
+`The novelist Yiyun Li, known for her powerful distillations of personal grief, makes art from subverted expectations.`\
 https://nytimes.com/2022/10/23/podcasts/the-daily/the-sunday-read-how-yiyun-li-became-a-beacon-for-readers-in-mourning.html?searchResultPosition=9
 
 **For Ukrainian Runners, a Brutal Race Made Sense When Little Else Did**\
