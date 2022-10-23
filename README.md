@@ -10,7 +10,7 @@ https://nytimes.com/2022/10/23/opinion/kari-lake-martin-luther-king.html?searchR
 `Best known for her 1995 hit song “I Kissed a Girl,” the enchanting singer-songwriter Jill Sobule is the star of a winsome and defiant autobiographical musical.`\
 https://nytimes.com/2022/10/23/theater/review-retracing-the-path-from-middle-school-nerd-to-rock-goddess.html?searchResultPosition=3
 
-**Trump’s Business, Already Shrinking, Faces a Tough Test in Court**\
+**Trump’s Business, Under Threat, Faces a Tough Test in Court**\
 `The Trump Organization’s trial on tax fraud and other charges begins Monday in Manhattan, raising questions about the future of the former president’s family business.`\
 https://nytimes.com/2022/10/23/nyregion/donald-trump-organization-fraud-trial.html?searchResultPosition=4
 
