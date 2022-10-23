@@ -20,7 +20,7 @@ https://nytimes.com/2022/10/23/world/europe/britain-rishi-sunak-prime-minister.h
 
 **Boris Johnson’s Statement on Withdrawing From Race**\
 `The former prime minister cited concerns about a divided party.`\
-https://nytimes.com/2022/10/23/world/europe/boris-johnsons-statement-on-withdrawing-from-race.html?searchResultPosition=6
+https://nytimes.com/2022/10/23/world/europe/boris-johnson-statement-uk-prime-minister.html?searchResultPosition=6
 
 **As Russia and Ukraine Seek Gains on Front Line, U.S. and Allies Warn Moscow**\
 `Defense Secretary Lloyd J. Austin III held a call with Russia’s defense chief to discuss President Vladimir Putin’s nuclear threats.`\
