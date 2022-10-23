@@ -11,7 +11,7 @@ https://nytimes.com/2022/10/22/sports/baseball/yankees-astros-alcs-game-3-score.
 https://nytimes.com/2022/10/22/arts/music/geoff-nuttall-dead.html?searchResultPosition=3
 
 **Relief Workers in Mykolaiv Distribute Meals Amid Blackout**\
-`Hot meals were distributed to people affected by missile strikes in Mykolaiv, Ukraine. A maternity hospital lost power on Saturday.`\
+`Hot meals were distributed to people affected by missile strikes and a maternity hospital that lost power in Mykolaiv, Ukraine, on Saturday.`\
 https://nytimes.com/video/world/europe/100000008595242/ukraine-power-outage-mykolaiv.html?searchResultPosition=5
 
 **To Be Continued**\
