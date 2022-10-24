@@ -30,7 +30,7 @@ https://nytimes.com/2022/10/24/us/politics/democrats-midterms-economy.html?searc
 `The justice’s order was an “administrative stay” that will almost certainly not be the Supreme Court’s last word on the matter.`\
 https://nytimes.com/2022/10/24/us/politics/supreme-court-graham-thomas-testimony.html?searchResultPosition=8
 
-**Kanye West Tests His Corporate Partners**\
+**Kanye West’s Offensive Behavior Makes Corporate Partners Squirm**\
 `The antisemitic outbursts and provocations by the artist now known as Ye have raised questions about how much offensive behavior companies are willing to tolerate from a proven moneymaker.`\
 https://nytimes.com/2022/10/24/arts/music/kanye-west-adidas-balenciaga-yeezy.html?searchResultPosition=9
 
