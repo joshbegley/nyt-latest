@@ -2,7 +2,7 @@
 `The “interim report” by a House committee criticized Larry Krasner’s progressive criminal justice policies, but stopped short of calling for his impeachment.`\
 https://nytimes.com/2022/10/24/us/larry-krasner-philadelphia-committee-report.html?searchResultPosition=1
 
-**Sunak’s Ascent Inspires Pride in Indian Community**\
+**Sunak’s Ascent Is a Breakthrough for Diversity, With Privilege Attached**\
 `Rishi Sunak’s ascent to the prime minister’s office is a significant milestone for Britain’s Indian diaspora. But for many, his immense personal wealth has made him less relatable.`\
 https://nytimes.com/2022/10/24/world/europe/uk-rishi-sunak.html?searchResultPosition=2
 
