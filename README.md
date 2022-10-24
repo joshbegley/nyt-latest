@@ -1,6 +1,6 @@
 **Officer Pleads Guilty to Manslaughter in George Floyd’s Death**\
 `J. Alexander Kueng was a rookie Minneapolis police officer when he held Mr. Floyd down while a fellow officer fatally knelt on his neck.`\
-https://nytimes.com/2022/10/24/us/george-floyd-officers-kueng-thao.html?searchResultPosition=1
+https://nytimes.com/2022/10/24/us/george-floyd-officer-kueng-thao.html?searchResultPosition=1
 
 **Election Deniers Running for Office**\
 `A writer asks whether candidates will accept losses or refuse to concede. Also: The Trump subpoena; abductions by Russia; Berlusconi and Putin; eating animals.`\
