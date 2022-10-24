@@ -30,11 +30,11 @@ https://nytimes.com/2022/10/24/sports/olympics/paris-russia-ban-ioc.html?searchR
 `As headlines shift in the weeks before the midterms, so do voters’ top concerns.`\
 https://nytimes.com/2022/10/24/briefing/republican-polling-midterms.html?searchResultPosition=8
 
-**Who Are the Top 2 Contenders for Next U.K. Prime Minister?**\
-`The race has come down to two candidates: Rishi Sunak and Penny Mordaunt.`\
-https://nytimes.com/2022/10/24/world/europe/uk-prime-minister-contenders.html?searchResultPosition=9
-
 **A Partial Solar Eclipse Will Put On a Show. Here’s How to Watch.**\
 `The event will be visible from Europe, northern Africa, the Middle East and Asia on Tuesday.`\
-https://nytimes.com/2022/10/24/science/partial-solar-eclipse.html?searchResultPosition=10
+https://nytimes.com/2022/10/24/science/partial-solar-eclipse.html?searchResultPosition=9
+
+**Running an Election in the Heart of Election Denialism**\
+`A conversation with Stephen Richer, the chief election officer in Maricopa County, Ariz.`\
+https://nytimes.com/2022/10/24/podcasts/the-daily/midterm-elections-denialism-stephen-richer.html?searchResultPosition=10
 
