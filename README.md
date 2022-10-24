@@ -10,7 +10,7 @@ https://nytimes.com/2022/10/24/world/europe/uk-rishi-sunak.html?searchResultPosi
 `The Justice Department’s effort to win the witnesses’ cooperation shows how the investigation stemming from the classified materials found at Mar-a-Lago is entering a new phase.`\
 https://nytimes.com/2022/10/24/us/politics/justice-department-trump-documents.html?searchResultPosition=3
 
-**Russian Officials Flee Kherson as Russian Troops Dig in for a Battle**\
+**Russian Officials Flee Kherson as Russian Troops Dig In for a Battle**\
 `In Kherson, the first Ukrainian city to fall after the Russian invasion, occupation forces appear to be preparing to fight advancing Ukrainian troops.`\
 https://nytimes.com/2022/10/24/world/europe/russia-ukraine-kherson-war.html?searchResultPosition=4
 
