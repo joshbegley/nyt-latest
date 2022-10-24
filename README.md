@@ -27,7 +27,7 @@ https://nytimes.com/2022/10/23/world/europe/boris-johnson-statement-uk-prime-min
 https://nytimes.com/2022/10/23/world/europe/ukraine-russia-war.html?searchResultPosition=7
 
 **What We Learned From Week 7 in the N.F.L.**\
-`The Giants moved to 6-1 with another strong fourth-quarter finish, and the Bengals have beaten defenses by targeting their slot receiver.`\
+`The Giants moved to 6-1 with another strong fourth-quarter finish, and the Bengals are beating defenses by targeting their slot receiver.`\
 https://nytimes.com/2022/10/23/sports/football/nfl-week-7-scores.html?searchResultPosition=8
 
 **What Don’t Adults Understand About Teenage Life Online?**\
