@@ -1,40 +1,40 @@
+**As Israel Votes, Again, Netanyahu Pins Hopes on the Far Right**\
+`To regain power, Benjamin Netanyahu, the longest-serving Israeli prime minister, will most likely need the support of Itamar Ben-Gvir, a far-right leader with a history of extreme views.`\
+https://nytimes.com/2022/10/24/world/middleeast/israel-far-right-election.html?searchResultPosition=1
+
+**In Tim Ryan’s Ohio Senate Race, the D Is Often Silent**\
+`Mr. Ryan, the Ohio Democrat who is challenging J.D. Vance, has turned the state into perhaps the country’s unlikeliest Senate battleground.`\
+https://nytimes.com/2022/10/24/us/politics/tim-ryan-ohio-senate.html?searchResultPosition=2
+
+**The Hardest Hits of All**\
+`She lost her only son, a former N.F.L. player. A settlement would have provided some solace, but even that was taken away.`\
+https://nytimes.com/2022/10/24/sports/football/nfl-osborne-girardi-real-housewives.html?searchResultPosition=3
+
+**U.S. Executives Are Flocking to Saudi Davos in the Desert**\
+`Some top American business leaders area headed to the Saudi business conference. But Biden administration officials, angry over the kingdom’s stance on oil production and ties with Russia, are staying away.`\
+https://nytimes.com/2022/10/24/world/middleeast/saudi-davos-in-desert.html?searchResultPosition=4
+
+**Starbucks Showdown in Boston Points to New Phase of Union Campaign**\
+`The company moved to contain the labor push after it took off nationally. Now, with strikes and other tactics, organizers seek to regain momentum.`\
+https://nytimes.com/2022/10/24/business/economy/starbucks-union-campaign.html?searchResultPosition=5
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2022/10/24/crosswords/spelling-bee-forum.html?searchResultPosition=6
+
+**Lindsey Graham and the ‘Speech or Debate’ Clause, Explained**\
+`The senator, seeking to avoid testifying in a Georgia inquiry into election interference, has appealed to the Supreme Court. But what exactly is the clause behind his argument?`\
+https://nytimes.com/2022/10/24/us/lindsey-graham-speech-debate-clause-supreme-court.html?searchResultPosition=7
+
 **Word of the Day: assuage**\
 `This word has appeared in 165 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/10/24/learning/word-of-the-day-assuage.html?searchResultPosition=1
+https://nytimes.com/2022/10/24/learning/word-of-the-day-assuage.html?searchResultPosition=8
 
 **No Corrections: Oct. 24, 2022**\
 `No corrections appeared in print on Monday, Oct. 24, 2022.`\
-https://nytimes.com/2022/10/24/pageoneplus/no-corrections-oct-24-2022.html?searchResultPosition=2
+https://nytimes.com/2022/10/24/pageoneplus/no-corrections-oct-24-2022.html?searchResultPosition=9
 
 **What’s on TV This Week: ‘The White Lotus’ and Lots of Spooky Movies**\
 `The HBO series begins its second season. And we rounded up some scary movies to get you prepped for Halloween.`\
-https://nytimes.com/2022/10/24/arts/television/whats-on-tv-this-week-white-lotus.html?searchResultPosition=3
-
-**Your Monday Briefing**\
-`Britain’s leadership race.`\
-https://nytimes.com/2022/10/24/briefing/johnson-sunak-prime-minister-britain.html?searchResultPosition=4
-
-**The Migrant Crisis, Eric Adams and Politics 101**\
-`The mayor, criticized by the City Council and advocates, says he is “in the arena” every day trying to address the influx of migrants.`\
-https://nytimes.com/2022/10/24/nyregion/the-migrant-crisis-eric-adams-and-politics-101.html?searchResultPosition=5
-
-**In the Returns of Tua Tagovailoa and Brian Flores, the Dolphins’ Troubles Are Displayed**\
-`The N.F.L. has been bedeviled by its attempts to better evaluate players for concussions and to hire diverse head coaches. In the Dolphins’ win over the Steelers, those issues were on full display.`\
-https://nytimes.com/2022/10/24/sports/football/dolphins-steelers-score-brian-flores.html?searchResultPosition=6
-
-**Yankees Season Ends With a Sweep by Houston Astros**\
-`The gap between the American League’s two best teams proved awfully wide, with Houston heading to the World Series as the Yankees wonder what went wrong.`\
-https://nytimes.com/2022/10/24/sports/baseball/yankees-astros-alcs-game-4.html?searchResultPosition=7
-
-**Math Scores Fell in Nearly Every State, and Reading Dipped on National Exam**\
-`The results, from what is known as the nation’s report card, offer the most definitive picture yet of the pandemic’s devastating impact on students.`\
-https://nytimes.com/2022/10/24/us/math-reading-scores-pandemic.html?searchResultPosition=8
-
-**Ryan Condal Was Surprised People Liked ‘House of the Dragon’ So Quickly**\
-`Condal, a showrunner, discussed the challenges of pulling off Season 1 of the first “Game of Thrones” spinoff. “The reward for everybody is that the story from here forward happens in real time,” he said.`\
-https://nytimes.com/2022/10/23/arts/television/house-of-the-dragon-showrunner-ryan-condal.html?searchResultPosition=9
-
-**‘House of the Dragon’ Season 1 Finale Recap: The Angriest Dragon**\
-`A stirring, often moving season finale included many of the show’s signature elements as it set up the war to come.`\
-https://nytimes.com/2022/10/23/arts/television/house-of-the-dragon-recap-season-finale.html?searchResultPosition=10
+https://nytimes.com/2022/10/24/arts/television/whats-on-tv-this-week-white-lotus.html?searchResultPosition=10
 
