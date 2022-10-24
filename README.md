@@ -1,4 +1,4 @@
-**Rishi Sunak will make history as Britain’s first nonwhite prime minister.**\
+**Rishi Sunak will make history as the first person of color to be Britain’s prime minister.**\
 `Born in southern England to parents of Indian heritage, he has spoken of a childhood split between the Hindu temple and cheering on the local soccer team.`\
 https://nytimes.com/2022/10/24/world/europe/rishi-sunak-uk-first-prime-minister-color.html?searchResultPosition=1
 
