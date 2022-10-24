@@ -1,40 +1,40 @@
-**25 Picture Prompts for Writing Scary Stories**\
-`Photos and illustrations from The New York Times to inspire your spooky stories, poems and memoirs.`\
-https://nytimes.com/2022/10/24/learning/25-picture-prompts-for-writing-scary-stories.html?searchResultPosition=1
+**$1.2 Million Homes in California**\
+`A 1910 Arts and Crafts cottage in Los Angeles, a 1924 Mediterranean-style home in Berkeley and a Spanish-style house in Palm Springs.`\
+https://nytimes.com/2022/10/24/realestate/home-prices-california.html?searchResultPosition=1
 
-**As Israel Votes, Again, Netanyahu Pins Hopes on the Far Right**\
-`To regain power, Benjamin Netanyahu, the longest-serving Israeli prime minister, will most likely need the support of Itamar Ben-Gvir, a far-right leader with a history of extreme views.`\
-https://nytimes.com/2022/10/24/world/middleeast/israel-far-right-election.html?searchResultPosition=2
+**Geez, Even Fargo Has Gone Upscale**\
+`Visitors to the North Dakota town expecting a scene right out of the movie might be surprised by the James Beard-nominated chefs, Pride flags, hipster boutiques and craft breweries. Oh, and a museum dedicated to the bison.`\
+https://nytimes.com/2022/10/24/travel/fargo-upscales.html?searchResultPosition=2
 
-**In Tim Ryan’s Ohio Senate Race, the D Is Often Silent**\
-`Mr. Ryan, the Ohio Democrat who is challenging J.D. Vance, has turned the state into perhaps the country’s unlikeliest Senate battleground.`\
-https://nytimes.com/2022/10/24/us/politics/tim-ryan-ohio-senate.html?searchResultPosition=3
+**What You Get for $1.2 Million in California**\
+`A 1910 Arts and Crafts cottage in Los Angeles, a 1924 Mediterranean-style home in Berkeley and a Spanish-style house in Palm Springs.`\
+https://nytimes.com/slideshow/2022/10/24/realestate/what-you-get-for-1-2-million-in-california.html?searchResultPosition=3
 
-**The Hardest Hits of All**\
-`She lost her only son, a former N.F.L. player. A settlement would have provided some solace, but even that was taken away.`\
-https://nytimes.com/2022/10/24/sports/football/nfl-osborne-girardi-real-housewives.html?searchResultPosition=4
+**Madhur Jaffrey’s Undefinable Roles**\
+`The chef, author and actress, whose children’s book, “Seasons of Splendour,” was reissued this month, refuses to be boxed in.`\
+https://nytimes.com/2022/10/24/style/madhur-jaffreys-undefinable-roles.html?searchResultPosition=4
 
-**U.S. Executives Are Flocking to Saudi Davos in the Desert**\
-`Some top American business leaders area headed to the Saudi business conference. But Biden administration officials, angry over the kingdom’s stance on oil production and ties with Russia, are staying away.`\
-https://nytimes.com/2022/10/24/world/middleeast/saudi-davos-in-desert.html?searchResultPosition=5
+**Why Dine in a Furniture Store? The Food May Not Be the Point.**\
+`The company formerly known as Restoration Hardware has moved into the restaurant business, with bustling dining rooms that celebrate its opulent aesthetic.`\
+https://nytimes.com/2022/10/24/dining/restoration-hardware-restaurant.html?searchResultPosition=5
 
-**Starbucks Showdown in Boston Points to New Phase of Union Campaign**\
-`The company moved to contain the labor push after it took off nationally. Now, with strikes and other tactics, organizers seek to regain momentum.`\
-https://nytimes.com/2022/10/24/business/economy/starbucks-union-campaign.html?searchResultPosition=6
+**Bring Back Selective Admissions? Some N.Y.C. Middle Schools Say No.**\
+`After a pandemic moratorium, city leaders are letting school superintendents decide whether to bring back some admissions requirements that critics say feed racial disparities.`\
+https://nytimes.com/2022/10/24/nyregion/nyc-middle-school-admissions.html?searchResultPosition=6
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/10/24/crosswords/spelling-bee-forum.html?searchResultPosition=7
+**Who You Gonna Call? The Ransomware Hunting Team.**\
+`In their new book, Renee Dudley and Daniel Golden explain how a ragtag band of international tech nerds have defended the defenseless against cybercrime.`\
+https://nytimes.com/2022/10/24/books/review/the-ransomware-hunting-team-renee-dudley-daniel-golden.html?searchResultPosition=7
 
-**Lindsey Graham and the ‘Speech or Debate’ Clause, Explained**\
-`The senator, seeking to avoid testifying in a Georgia inquiry into election interference, has appealed to the Supreme Court. But what exactly is the clause behind his argument?`\
-https://nytimes.com/2022/10/24/us/lindsey-graham-speech-debate-clause-supreme-court.html?searchResultPosition=8
+**Why America Can’t Do Much About the OPEC Oil Cuts**\
+`Washington sees OPEC Plus’s decision to cut oil production as support for Russia, but Saudi Arabia had legitimate economic reasons for pushing it. `\
+https://nytimes.com/2022/10/24/opinion/international-world/saudi-arabia-opec-oil-cut.html?searchResultPosition=8
 
-**Word of the Day: assuage**\
-`This word has appeared in 165 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/10/24/learning/word-of-the-day-assuage.html?searchResultPosition=9
+**Tom Brady and Ron DeSantis Are Said to Be on Texting Terms**\
+`The Republican nominee for Wisconsin governor, Tim Michels, told supporters recently that while DeSantis was watching a Packers game at Lambeau Field, he was texting the Buccaneers quarterback.`\
+https://nytimes.com/2022/10/24/us/politics/tom-brady-ron-desantis.html?searchResultPosition=9
 
-**No Corrections: Oct. 24, 2022**\
-`No corrections appeared in print on Monday, Oct. 24, 2022.`\
-https://nytimes.com/2022/10/24/pageoneplus/no-corrections-oct-24-2022.html?searchResultPosition=10
+**Brazil’s Polls Were Wrong. Now the Right Wants to Criminalize Them.**\
+`President Jair Bolsonaro and conservative lawmakers in Brazil are trying to make it illegal to publish polls that later do not match the election results.`\
+https://nytimes.com/2022/10/24/world/americas/brazil-election-polls-criminalization.html?searchResultPosition=10
 
