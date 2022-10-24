@@ -1,4 +1,4 @@
-**Hasidic School to Pay $8 million After Admitting to Federal Fraud**\
+**Hasidic School to Pay $8 Million After Admitting to Federal Fraud**\
 `The Central United Talmudical Academy, which operates the largest all-boys yeshiva in New York State, acknowledged illegally diverting money from federal food aid and other programs.`\
 https://nytimes.com/2022/10/24/nyregion/hasidic-yeshiva-fraud-central-united-talmudical-academy.html?searchResultPosition=1
 
