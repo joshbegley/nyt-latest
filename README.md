@@ -1,6 +1,6 @@
-**Markets Appear Ready for Stability in U.K. Government**\
+**Markets Are Ready for Stability in U.K. Government**\
 `Investors appeared heartened by the prospect of Rishi Sunak, Britain’s former chancellor, becoming prime minister — but he must still solve huge economic problems.`\
-https://nytimes.com/2022/10/24/business/sunak-uk-prime-minister-boris-johnson-penny-mourdant.html?searchResultPosition=1
+https://nytimes.com/2022/10/24/business/sunak-uk-prime-minister-boris-johnson-penny-mordaunt.html?searchResultPosition=1
 
 **Italy’s New Right-Wing Government Seeks to Affirm Support for Ukraine**\
 `Foreign Minister Antonio Tajani expressed support for Ukraine, trying to dispel concerns that Italy could undercut Europe’s opposition to the Russian invasion.`\
