@@ -1,6 +1,6 @@
 **Who Are the Top 2 Contenders for Next U.K. Prime Minister?**\
 `The race has come down to two candidates: Rishi Sunak and Penny Mordaunt.`\
-https://nytimes.com/2022/10/24/world/europe/who-are-the-top-2-contenders-for-next-uk-prime-minister.html?searchResultPosition=1
+https://nytimes.com/2022/10/24/world/europe/uk-prime-minister-contenders.html?searchResultPosition=1
 
 **A Partial Solar Eclipse Will Put On a Show. Here’s How to Watch.**\
 `The event will be visible from Europe, northern Africa, the Middle East and Asia on Tuesday.`\
