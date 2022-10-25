@@ -7,7 +7,7 @@ https://nytimes.com/2022/10/25/briefing/democrats-midterm-elections-adidas-kanye
 https://nytimes.com/2022/10/25/arts/music/natalia-lafourcade-de-todas-las-flores.html?searchResultPosition=2
 
 **Biden Urges Americans to Get New Covid Booster Shot Before Winter**\
-`The president received his fifth dose of a coronavirus vaccine and his third booster shot, and pleaded with Americans to bolster their protection before a possible surge in virus cases.`\
+`The president received his fifth dose of a coronavirus vaccine and his third booster shot, about three months after contracting the virus.`\
 https://nytimes.com/video/us/politics/100000008599789/biden-covid-vaccine-winter.html?searchResultPosition=3
 
 **Sunak Faces Political Test of His Career: Unify Party and Fix the Economy**\
