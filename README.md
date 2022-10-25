@@ -1,40 +1,40 @@
+**Biden Receives Updated Booster Shot and Urges Americans to Follow Suit**\
+`With a possible winter surge on the horizon, the president tried to draw attention to the retooled shots, which Americans have been slow to receive so far.`\
+https://nytimes.com/2022/10/25/us/politics/biden-updated-booster-covid.html?searchResultPosition=1
+
 **What the ‘Cool Kids’ Are Super Into**\
 `Perfectly Imperfect, a cult newsletter for downtown tastemakers, held a raucous party in Brooklyn.`\
-https://nytimes.com/2022/10/25/style/perfectly-imperfect-party-newsletter.html?searchResultPosition=1
+https://nytimes.com/2022/10/25/style/perfectly-imperfect-party-newsletter.html?searchResultPosition=2
 
 **At Least 80 People Killed in Airstrike on Outdoor Concert in Myanmar**\
 `Video shows damage in the northern state of Kachin, where Myanmar military jets bombed a concert venue.`\
-https://nytimes.com/video/world/asia/100000008599081/myamar-strike-concert.html?searchResultPosition=2
+https://nytimes.com/video/world/asia/100000008599081/myamar-strike-concert.html?searchResultPosition=3
 
 **In Sunak’s Top Cabinet Ministers, an Emphasis on Continuity**\
 `The new prime minister named people with high-level experience, several of them to posts they have held before, sending a message of stability after a period of upheaval.`\
-https://nytimes.com/2022/10/25/world/europe/sunak-cabinet-appointments.html?searchResultPosition=3
+https://nytimes.com/2022/10/25/world/europe/sunak-cabinet-appointments.html?searchResultPosition=4
 
 **Spotify Wants to Get Into Audiobooks but Says Apple Is in the Way**\
 `Apple has rejected Spotify’s new app three times from its App Store. It is the latest in a series of confrontations between the two companies.`\
-https://nytimes.com/2022/10/25/business/spotify-apple-audiobooks-app.html?searchResultPosition=4
+https://nytimes.com/2022/10/25/business/spotify-apple-audiobooks-app.html?searchResultPosition=5
 
 **John Banville’s New Novel Is a Universe for His Past Creations**\
 `“The Singularities” is an ambitiously referential work that confronts some of humanity’s greatest challenges.`\
-https://nytimes.com/2022/10/25/books/review/john-banville-singularities.html?searchResultPosition=5
+https://nytimes.com/2022/10/25/books/review/john-banville-singularities.html?searchResultPosition=6
 
 **On Ukraine and on Energy, Germany Is Upsetting Its Allies in Europe**\
 `The government has dismissed criticism of its refusal to provide modern tanks to Ukraine and its massive energy subsidy for its own citizens. But its friends are bridling.`\
-https://nytimes.com/2022/10/25/world/europe/germany-ukraine-energy-policy.html?searchResultPosition=6
+https://nytimes.com/2022/10/25/world/europe/germany-ukraine-energy-policy.html?searchResultPosition=7
 
 **Right-Wing Operatives Plead Guilty in Voter-Suppression Scheme**\
 `Jacob Wohl and Jack Burkman arranged thousands of robocalls that prosecutors said were intended to discourage residents of minority neighborhoods from voting by mail in 2020.`\
-https://nytimes.com/2022/10/25/us/politics/ohio-robocalls-wohl-burkman-guilty.html?searchResultPosition=7
+https://nytimes.com/2022/10/25/us/politics/ohio-robocalls-wohl-burkman-guilty.html?searchResultPosition=8
 
 **Bard College Announces New Maya Lin-Designed Building**\
 `The 25,000-square-foot space will allow for more rehearsal space and an amphitheater for public performances. Groundbreaking will be in the spring.`\
-https://nytimes.com/2022/10/25/arts/design/maya-lin-bard.html?searchResultPosition=8
+https://nytimes.com/2022/10/25/arts/design/maya-lin-bard.html?searchResultPosition=9
 
 **An Ode to the New York Subway**\
 `Despite recent problems, it’s a great asset for New Yorkers, and America.`\
-https://nytimes.com/2022/10/25/opinion/nyc-subway.html?searchResultPosition=9
-
-**Multiple Palestinians Killed by Israeli Forces in West Bank Raid**\
-`An Israeli raid on the occupied West Bank city of Nablus targeted a new Palestinian militia known as the Lions’ Den. A leader of the group was among those killed.`\
-https://nytimes.com/video/world/middleeast/100000008599153/israel-palestine-west-bank-raid.html?searchResultPosition=10
+https://nytimes.com/2022/10/25/opinion/nyc-subway.html?searchResultPosition=10
 
