@@ -4,7 +4,7 @@ https://nytimes.com/2022/10/25/technology/alphabet-google-q3-earnings.html?searc
 
 **Microsoft Reports Slowest Revenue Growth in Five Years**\
 `The technology giant faced a strong U.S. dollar and weakening demand for personal computers in its latest financial results.`\
-https://nytimes.com/2022/10/25/technology/microsoft-q3-earnings.html?searchResultPosition=2
+https://nytimes.com/2022/10/25/technology/microsoft-earnings.html?searchResultPosition=2
 
 **The Try Guys and the Prison of Online Fame**\
 `This is what success looks like in the creator economy: Sometimes you have to beg millions of fans for mercy.`\
