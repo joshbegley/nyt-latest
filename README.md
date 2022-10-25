@@ -27,7 +27,7 @@ https://nytimes.com/2022/10/25/magazine/try-guys-internet-fame.html?searchResult
 https://nytimes.com/video/world/europe/100000008599564/biden-russia-nuclear-weapon.html?searchResultPosition=7
 
 **5.1-Magnitude Earthquake Jolts Bay Area**\
-`The earthquake struck late Tuesday morning about nine miles east of Seven Trees, a neighborhood in San Jose, Calif.`\
+`The earthquake, which likely occurred along the Calaveras Fault, struck late Tuesday morning about nine miles east of Seven Trees, a neighborhood in San Jose, Calif.`\
 https://nytimes.com/2022/10/25/us/bay-area-earthquake.html?searchResultPosition=8
 
 **She Knew the Cello. The Acting She Learned With Cate Blanchett.**\
