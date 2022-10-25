@@ -1,5 +1,5 @@
-**WhatsApp Users in Several Countries Report Disruptions**\
-`The app was down on Tuesday morning. WhatsApp said it was working to restore service as quickly as possible.`\
+**WhatsApp Is Down in Countries Around the World**\
+`The messaging app was down on Tuesday morning. WhatsApp said it was working to restore service as quickly as possible.`\
 https://nytimes.com/2022/10/25/technology/whatsapp-down-outage.html?searchResultPosition=1
 
 **8 Films About the Uses and Abuses of Digital Media**\
