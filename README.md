@@ -34,7 +34,7 @@ https://nytimes.com/2022/10/25/briefing/trumpism-desantis-midterms.html?searchRe
 `The automaker sold more cars in the third quarter after struggling with a shortage of computer chips earlier in the year.`\
 https://nytimes.com/2022/10/25/business/gm-reports-jump-in-profit-on-strong-sales.html?searchResultPosition=9
 
-**Adidas Ends Partnership with Kanye West**\
+**Adidas Ends Partnership With Kanye West**\
 `The German sportswear giant is the latest company to cut ties with the rapper and designer after his recent antisemitic outbursts and other provocations.`\
 https://nytimes.com/2022/10/25/business/adidas-kanye-west.html?searchResultPosition=10
 
