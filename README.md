@@ -4,7 +4,7 @@ https://nytimes.com/video/us/politics/100000008599361/biden-brittney-griner-russ
 
 **Russia’s unsupported ‘dirty bomb’ claims reverberate in right-wing U.S. communities.**\
 `Russia’s unsupported claim was portrayed as believable in right-wing American media, and as a warning that could serve to escalate the conflict for Ukraine’s benefit or trigger a world war.`\
-https://nytimes.com/2022/10/25/technology/russias-unsupported-dirty-bomb-claims-reverberate-in-right-wing-us-communities.html?searchResultPosition=2
+https://nytimes.com/2022/10/25/technology/dirty-bomb-russia-right-wing-us.html?searchResultPosition=2
 
 **Pennsylvania Senate Debate Will Have Real-Time Transcriptions to Accommodate Fetterman’s Recovery**\
 `After Lt. Gov. John Fetterman’s stroke in May, the campaigns agreed that questions and statements will also be displayed on large monitors.`\
