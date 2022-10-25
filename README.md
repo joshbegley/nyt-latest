@@ -19,7 +19,7 @@ https://nytimes.com/2022/10/25/us/politics/dirty-bomb-russia-ukraine.html?search
 https://nytimes.com/2022/10/25/well/live/uterine-cancer-symptoms-treatment.html?searchResultPosition=5
 
 **How Rollerblading Propelled Maxwell Alexandre’s Art Career**\
-`An Afro- Brazilian artist from a Rio favela is having his U.S. debut at the Shed this week.`\
+`An Afro-Brazilian artist from a Rio favela is having his U.S. debut at the Shed this week.`\
 https://nytimes.com/2022/10/25/arts/design/maxwell-alexandre-art-shed-brazil.html?searchResultPosition=6
 
 **How ‘Terrifier 2’ Slashed Its Way to Box Office Success**\
