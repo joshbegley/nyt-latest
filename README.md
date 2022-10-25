@@ -30,7 +30,7 @@ https://nytimes.com/2022/10/25/opinion/letters/democrats-republicans-midterms.ht
 `“Reality is setting in”: With two weeks to go, Republicans are competing in Democratic bastions like New York, California, Oregon and even Rhode Island.`\
 https://nytimes.com/2022/10/25/us/politics/blue-states-midterm-landscape.html?searchResultPosition=8
 
-**Coca-Cola Keeps Raising Prices, Pushing Profits Higher**\
+**Coca-Cola Keeps Raising Prices, Driving Profits Higher**\
 `The soft drink giant’s latest quarterly earnings defied worries about consumer cutbacks amid rising inflation and fragile economic growth.`\
 https://nytimes.com/2022/10/25/business/coca-cola-q3-earnings.html?searchResultPosition=9
 
