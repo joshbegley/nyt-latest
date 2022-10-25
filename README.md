@@ -22,13 +22,13 @@ https://nytimes.com/2022/10/25/business/trump-media-spac-sec.html?searchResultPo
 `These cholesterol-lowering medications have gotten a bad rap. Here’s why.`\
 https://nytimes.com/2022/10/25/well/live/statins-cholesterol-diabetes-side-effects.html?searchResultPosition=6
 
-**A Step-by-Step Guide to Becoming a Trump Enabler**\
-`The journalist Mark Leibovich details the story behind the “sycophants” who bowed to the ex-president.`\
-https://nytimes.com/2022/10/25/opinion/ezra-klein-podcast-mark-leibovich.html?searchResultPosition=7
-
 **The Rogue Valley Was Set to Become a Food Paradise. Then It Burned.**\
 `Two years ago, the Almeda fire tore through southern Oregon. Many people haven’t fully recovered, but farmers, chefs and others have rallied to sustain the area.`\
-https://nytimes.com/2022/10/25/dining/ashland-or-food-fires.html?searchResultPosition=8
+https://nytimes.com/2022/10/25/dining/ashland-or-food-fires.html?searchResultPosition=7
+
+**A Step-by-Step Guide to Becoming a Trump Enabler**\
+`The journalist Mark Leibovich details the story behind the “sycophants” who bowed to the ex-president.`\
+https://nytimes.com/2022/10/25/opinion/ezra-klein-podcast-mark-leibovich.html?searchResultPosition=8
 
 **Why the Price of Gas Has Such Power Over Us**\
 `“When prices go up, we have this feeling of oppression that we can’t do everything we want.”`\
