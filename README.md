@@ -8,7 +8,7 @@ https://nytimes.com/2022/10/25/dining/when-youre-sick-at-home.html?searchResultP
 
 **Biden Says U.S. ‘Not Stopping’ Negotiations to Free Brittney Griner**\
 `On the day a Russian appeals court upheld Brittney Griner’s sentence on drug smuggling charges, President Biden said that his administration would not stop trying to secure the basketball star’s release.`\
-https://nytimes.com/video/us/politics/100000008599361/biden-brittney-griner-russia.html?searchResultPosition=3
+https://nytimes.com/video/world/europe/100000008599361/biden-brittney-griner-russia.html?searchResultPosition=3
 
 **Russia’s unsupported ‘dirty bomb’ claims reverberate in right-wing U.S. communities.**\
 `Russia’s unsupported claim was portrayed as believable in right-wing American media, and as a warning that could serve to escalate the conflict for Ukraine’s benefit or trigger a world war.`\
