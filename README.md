@@ -10,7 +10,7 @@ https://nytimes.com/2022/10/25/arts/music/natalia-lafourcade-de-todas-las-flores
 `The president received his fifth dose of a coronavirus vaccine and his third booster shot, and pleaded with Americans to bolster their protection before a possible surge in virus cases.`\
 https://nytimes.com/video/us/politics/100000008599789/biden-covid-vaccine-winter.html?searchResultPosition=3
 
-**Sunak Faces Political Test of His Career: Unify Party, Fix the Economy**\
+**Sunak Faces Political Test of His Career: Unify Party and Fix the Economy**\
 `The Conservative Party is fractured and Britain’s public finances are battered. That will test the political skills of a leader who has been involved in national politics for only seven years.`\
 https://nytimes.com/2022/10/25/world/europe/rishi-sunak-uk-economy-politics.html?searchResultPosition=4
 
