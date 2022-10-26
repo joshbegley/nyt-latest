@@ -6,7 +6,7 @@ https://nytimes.com/2022/10/26/nyregion/new-york-fire-department-laura-kavanagh.
 `By counting the facial neurons in African savanna and Asian elephants, researchers made a discovery about the animals’ trunks.`\
 https://nytimes.com/2022/10/26/science/elephant-brains-trunks-faces.html?searchResultPosition=2
 
-**Justice Kagan Temporarily Blocks Subpoena From Jan. 6 Committee**\
+**Justice Kagan Temporarily Blocks a Jan. 6 Committee Subpoena**\
 `The justice’s “administrative stay” of a subpoena for an Arizona Republican’s phone records was not an indication of how the Supreme Court would rule.`\
 https://nytimes.com/2022/10/26/us/politics/kagan-jan-6-subpoena-supreme-court.html?searchResultPosition=3
 
