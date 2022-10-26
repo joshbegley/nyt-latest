@@ -3,7 +3,7 @@
 https://nytimes.com/interactive/2022/10/26/magazine/climate-change-warming-world.html?searchResultPosition=1
 
 **Tech’s Biggest Companies Are Sending Worrying Signals About the Economy**\
-`A series of quarterly earnings reports are showing that even Silicon Valley’s most powerful companies are feeling the impact of inflation and rising interest rates.`\
+`A series of quarterly earnings reports is showing that even Silicon Valley’s most powerful companies are feeling the impact of inflation and rising interest rates.`\
 https://nytimes.com/2022/10/26/technology/economy-facebook-google.html?searchResultPosition=2
 
 **For Sale: Yeezys, Never Worn**\
