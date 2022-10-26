@@ -4,7 +4,7 @@ https://nytimes.com/2022/10/25/us/politics/justice-alito-roe-abortion.html?searc
 
 **Battle for New York: 5 Takeaways From the Hochul-Zeldin Debate**\
 `Representative Lee Zeldin conveyed a sense of outrage over crime and the economy, as Gov. Kathy Hochul emphasized his views on abortion and his ties to Donald Trump.`\
-https://nytimes.com/2022/10/25/nyregion/takeaways.html?searchResultPosition=2
+https://nytimes.com/2022/10/25/nyregion/takeaways-hochul-zeldin-debate.html?searchResultPosition=2
 
 **Justice Dept. Seeks to Force Trump White House Lawyers to Testify in Jan. 6 Inquiry**\
 `The move is part of an effort by prosecutors to punch through the claims of privilege the former president is using to hamper the investigation of his push to overturn the election.`\
