@@ -3,7 +3,7 @@
 https://nytimes.com/2022/10/26/business/media/cnn-cuts-chris-licht.html?searchResultPosition=1
 
 **When Soup and Mashed Potatoes Are Thrown, Can the Earth Win?**\
-`The van Gogh and Monet paintings targeted in recent climates protests were unharmed. But a debate about tactics rages.`\
+`The van Gogh and Monet paintings targeted in recent climate protests were unharmed. But a debate about tactics rages.`\
 https://nytimes.com/2022/10/26/climate/art-climate-protests-monet.html?searchResultPosition=2
 
 **Texas Goes Permitless on Guns, and Police Face an Armed Public**\
