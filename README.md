@@ -36,5 +36,5 @@ https://nytimes.com/2022/10/26/world/europe/rishi-sunak-uk-prime-minister-questi
 
 **Tech Stocks Tumble as Growth Falters**\
 `Disappointing earnings from Microsoft, Alphabet and Texas Instruments reveal the big challenges facing technology giants.`\
-https://nytimes.com/2022/10/26/business/dealbook/tech-stocks-tumble-microsoft-google-alphabet-meta-apple-chips.html?searchResultPosition=10
+https://nytimes.com/2022/10/26/business/dealbook/tech-stocks-microsoft-google-alphabet-meta-apple.html?searchResultPosition=10
 
