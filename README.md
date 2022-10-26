@@ -14,7 +14,7 @@ https://nytimes.com/2022/10/26/briefing/social-media-twitter.html?searchResultPo
 `The number of students in temporary housing rose by about 3 percent, a daunting figure that does not include the thousands of migrant children who have recently entered city schools.`\
 https://nytimes.com/2022/10/26/nyregion/nyc-homeless-students.html?searchResultPosition=4
 
-**Can Congress Force Trump to Testify?**\
+**The Trump Subpeona**\
 `The Jan. 6 committee has voted to subpoena former President Donald J. Trump. It’s a momentous move, but it’s not without precedent.`\
 https://nytimes.com/2022/10/26/podcasts/the-daily/jan-6-committee-trump-subpoena.html?searchResultPosition=5
 
