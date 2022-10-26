@@ -4,7 +4,7 @@ https://nytimes.com/slideshow/2022/10/26/realestate/a-massive-fort-in-northwest-
 
 **Wisconsin Man Found Guilty of Killing 6 in Christmas Parade Attack**\
 `Darrell E. Brooks was convicted of first-degree intentional homicide after driving his car in a rampage through a parade in Waukesha, Wis., in 2021.`\
-https://nytimes.com/2022/10/26/us/darell-brooks-wisconsin-parade-verdict.html?searchResultPosition=2
+https://nytimes.com/2022/10/26/us/darrell-brooks-wisconsin-parade-verdict.html?searchResultPosition=2
 
 **‘New York, New York,’ a Film-Inspired Homage, Plans Broadway Bow**\
 `The new musical, based on the 1977 Martin Scorsese film, features songs by John Kander and Fred Ebb and is directed by Susan Stroman.`\
