@@ -4,7 +4,7 @@ https://nytimes.com/2022/10/26/nyregion/malliotakis-rose-staten-island.html?sear
 
 **Wisconsin Man Is Convicted of Homicide at Christmas Parade**\
 `Darrell E. Brooks was found guilty of first-degree intentional homicide after killing six people when he drove through a Christmas parade in 2021, a conviction that carries a mandatory life sentence in Wisconsin.`\
-https://nytimes.com/video/us/100000008600937/wisconsin-man-is-convicted-of-homicide-at-christmas-parade.html?searchResultPosition=2
+https://nytimes.com/video/us/100000008600937/darrell-brooks-verdict-wisconsin-parade.html?searchResultPosition=2
 
 **How Is Your Company Responding to Labor Organizing? We Want to Hear.**\
 `Employers are taking a variety of approaches to union campaigns.`\
