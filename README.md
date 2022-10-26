@@ -8,7 +8,7 @@ https://nytimes.com/2022/10/26/dining/drinks/george-t-stagg-bourbon-whiskey.html
 
 **Rishi Sunak, New U.K. Leader, Delays Major Economic Plan**\
 `Mr. Sunak’s government, seeking more time to make the “right decisions,” will deliver its first economic plan on Nov. 17 instead of Monday.`\
-https://nytimes.com/2022/10/26/business/rishi-sunak-new-uk-leader-delays-major-economic-plan.html?searchResultPosition=3
+https://nytimes.com/2022/10/26/business/rishi-sunak-uk-economic-plan.html?searchResultPosition=3
 
 **Tech Stocks Drag Market Lower as Investors Fret About Growth**\
 `Weak economic growth, rising inflation and a strong dollar are taking a toll on the tech giants that have an outsize impact on the stock market.`\
