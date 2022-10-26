@@ -35,6 +35,6 @@ https://nytimes.com/2022/10/26/world/europe/new-us-sanctions-target-russian-effo
 https://nytimes.com/2022/10/26/us/nurse-murder-insulin-north-carolina.html?searchResultPosition=9
 
 **Elon Musk Visits Twitter as $44 Billion Deal Nears Completion**\
-`The world’s richest man arrived at Twitter’s San Francisco offices on Wednesday as he faces a Friday deadline to complete the acquisition of the social media service.`\
+`The world’s richest man arrived at Twitter’s San Francisco offices on Wednesday ahead of a Friday deadline to complete the acquisition of the social media service.`\
 https://nytimes.com/2022/10/26/business/elon-musk-visits-twitter.html?searchResultPosition=10
 
