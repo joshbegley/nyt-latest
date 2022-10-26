@@ -4,7 +4,7 @@ https://nytimes.com/2022/10/26/us/politics/justice-department-reporters.html?sea
 
 **Prosecutors Seek Testimony on Trump’s Claims to Have Declassified Documents**\
 `The Justice Department is seeking to compel Kash Patel, an ally of the former president, to answer questions about assertions that material taken from the White House had been declassified.`\
-https://nytimes.com/2022/10/26/us/politics/prosecutors-trump-declassified-documents.html?searchResultPosition=2
+https://nytimes.com/2022/10/26/us/politics/trump-declassified-documents-testimony.html?searchResultPosition=2
 
 **Reports of Looting in Kherson as Ukrainians Battle to Retake the City**\
 `As Russia pressures local residents to leave, a hydroelectric dam outside the city may prove to be a major point of contention.`\
