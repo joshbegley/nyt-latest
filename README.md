@@ -22,7 +22,7 @@ https://nytimes.com/2022/10/27/t-magazine/tower-records-brooklyn.html?searchResu
 `“This is not the Shasta County I know,” said Cathy Darling Allen, who has been overseeing elections in the county for 18 years.`\
 https://nytimes.com/2022/10/27/us/shasta-county-election.html?searchResultPosition=6
 
-**U.S. Economy Grew Sluggishly in Third Quarter**\
+**U.S. Economy Returned to Growth in Third Quarter**\
 `Gross domestic product increased 0.6 percent after two quarters of decline, but key components continue to show an economic slowdown.`\
 https://nytimes.com/2022/10/27/business/economy/us-economy-gdp.html?searchResultPosition=7
 
