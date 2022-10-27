@@ -26,8 +26,8 @@ https://nytimes.com/2022/10/27/us/shasta-county-election.html?searchResultPositi
 `Gross domestic product increased 0.6 percent after two quarters of decline, but key components continue to show an economic slowdown.`\
 https://nytimes.com/2022/10/27/business/economy/us-economy-gdp.html?searchResultPosition=7
 
-**Shell Reports Its Second-Highest Profit, at $9.5 Billion, and Raises Dividend**\
-`The oil and gas giant said it had avoided Britain’s “windfall” tax because of big capital expenditures in the North Sea.`\
+**Shell and Total, Oil Giants, Report Huge Profits on High Energy Prices**\
+`The two European companies reported earnings totaling nearly $20 billion, partly on higher energy prices as Russia’s war in Ukraine continues.`\
 https://nytimes.com/2022/10/27/business/shell-earnings-profit-oil-gas.html?searchResultPosition=8
 
 **Credit Suisse Plans a Big Retreat From Wall Street**\
