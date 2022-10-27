@@ -10,7 +10,7 @@ https://nytimes.com/2022/10/27/arts/music/schirmer-jewish-composers.html?searchR
 `The sentence for the defendant, Albuquerque Cosper Head, was one of the most severe penalties handed down so far in the Justice Department’s investigation of the Capitol attack.`\
 https://nytimes.com/2022/10/27/us/politics/jan-6-sentencing.html?searchResultPosition=3
 
-**With Economy Reeling from Ukraine War, Egypt Secures $3 Billion I.M.F. Loan**\
+**With Economy Reeling From Ukraine War, Egypt Secures $3 Billion I.M.F. Loan**\
 `The local currency had tumbled against the dollar, and food and energy prices soared in the wake of Russia’s February invasion of Ukraine, adding to the struggles of millions of Egyptians.`\
 https://nytimes.com/2022/10/27/world/middleeast/with-economy-reeling-from-ukraine-war-egypt-secures-3-billion-imf-loan.html?searchResultPosition=4
 
