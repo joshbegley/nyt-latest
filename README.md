@@ -1,6 +1,6 @@
 **Musk Said to Begin Firing Twitter’s Top Executives**\
 `Some of Twitter’s top executives were fired on Thursday as Mr. Musk completes his takeover of the social media company.`\
-https://nytimes.com/2022/10/27/technology/musk-said-to-begin-firing-twitters-top-executives.html?searchResultPosition=1
+https://nytimes.com/2022/10/27/technology/musk-twitter.html?searchResultPosition=1
 
 **‘Walking With Ghosts’ Review: Gabriel Byrne Roams His Past**\
 `The Irish actor’s one-man show on Broadway delves into painful and playful memories alike. He even imitates the oddballs of his Dublin boyhood.`\
