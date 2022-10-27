@@ -1,40 +1,40 @@
+**What’s Going On in This Picture? | Oct. 31, 2022**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://nytimes.com/2022/10/27/learning/whats-going-on-in-this-picture-oct-31-2022.html?searchResultPosition=1
+
 **Climate Protester Glues His Head to ‘Girl With a Pearl Earring’ Painting**\
 `The artwork by Johannes Vermeer, exhibited in The Hague, was the latest artwork to be targeted by protesters concerned about climate change. One person glued his head to the painting and another glued his hand to the wall.`\
-https://nytimes.com/2022/10/27/arts/pearl-earring-vermeer-climate-activists.html?searchResultPosition=1
+https://nytimes.com/2022/10/27/arts/pearl-earring-vermeer-climate-activists.html?searchResultPosition=2
 
 **‘The Hair Tales’: Stories of Black Women’s Hair and Self-Acceptance**\
 `A new docu-series interviews stars like Oprah Winfrey and Issa Rae to explore the history and shared experiences of Black hair care.`\
-https://nytimes.com/2022/10/27/arts/television/the-hair-tales-hulu-own.html?searchResultPosition=2
+https://nytimes.com/2022/10/27/arts/television/the-hair-tales-hulu-own.html?searchResultPosition=3
 
 **Robert Gordon, Punk Rocker Turned Rockabilly Revivalist, Dies at 75**\
 `Weary of the angry and aggressive sound of New York’s musical underground of the late 1970s, he returned to rock’s roots and seeded a rockabilly revival.`\
-https://nytimes.com/2022/10/27/arts/music/robert-gordon-dead.html?searchResultPosition=3
+https://nytimes.com/2022/10/27/arts/music/robert-gordon-dead.html?searchResultPosition=4
 
 **Clara Schumann and Florence Price Get Their Due at Carnegie Hall**\
 `Two works by these composers have been marginalized in classical music, but they were never forgotten, as their histories show.`\
-https://nytimes.com/2022/10/27/arts/music/clara-schumann-florence-price-philadelphia-orchestra.html?searchResultPosition=4
+https://nytimes.com/2022/10/27/arts/music/clara-schumann-florence-price-philadelphia-orchestra.html?searchResultPosition=5
 
 **What Teenagers Want Adults to Understand About Their Lives Online**\
 `Young people told us they see the internet as a “world of endless possibilities.” But, they admitted, it’s not without its downsides.`\
-https://nytimes.com/2022/10/27/learning/what-teenagers-want-adults-to-understand-about-their-lives-online.html?searchResultPosition=5
+https://nytimes.com/2022/10/27/learning/what-teenagers-want-adults-to-understand-about-their-lives-online.html?searchResultPosition=6
 
 **Lucianne Goldberg, Who Helped Expose Clinton Affair, Dies at 87**\
 `It was Ms. Goldberg, a literary agent, who suggested that Linda Tripp tape her conversations with Monica Lewinsky. She later fed revelations to the news media.`\
-https://nytimes.com/2022/10/27/us/politics/lucianne-goldberg-dead.html?searchResultPosition=6
+https://nytimes.com/2022/10/27/us/politics/lucianne-goldberg-dead.html?searchResultPosition=7
 
 **Republicans Have No Inflation Plan**\
 `In fact, G.O.P. policies would make inflation worse.`\
-https://nytimes.com/2022/10/27/opinion/columnists/republicans-biden-inflation-policy.html?searchResultPosition=7
+https://nytimes.com/2022/10/27/opinion/columnists/republicans-biden-inflation-policy.html?searchResultPosition=8
 
 **‘Call Jane’ Review: Abortion History That’s Being Repeated Now**\
 `A fictionalized drama about the Jane Collective, a clandestine group that helped women secure safe, illegal abortions before 1973, is of the moment.`\
-https://nytimes.com/2022/10/27/movies/call-jane-review-abortion.html?searchResultPosition=8
+https://nytimes.com/2022/10/27/movies/call-jane-review-abortion.html?searchResultPosition=9
 
 **United Nations Employee Faces Sentencing in Sexual Assaults of Women**\
 `Karim Elkorany admitted to the attacks, which spanned years and continents. Mr. Elkorany, who worked in Iraq, Egypt and the United States, drugged his victims.`\
-https://nytimes.com/2022/10/27/nyregion/un-employee-women-abuse-sentencing.html?searchResultPosition=9
-
-**When Meteors Shook Mars, NASA Was Listening and Watching**\
-`Scientists thought the InSight spacecraft had recorded some major marsquakes, but with another NASA mission’s help, they found what had really shaken up the red planet.`\
-https://nytimes.com/2022/10/27/science/mars-meteorites-impacts-seismic.html?searchResultPosition=10
+https://nytimes.com/2022/10/27/nyregion/un-employee-women-abuse-sentencing.html?searchResultPosition=10
 
