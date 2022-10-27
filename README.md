@@ -1,6 +1,6 @@
 **Climate Protester Glues His Head to ‘Girl With a Pearl Earring’ Painting**\
 `The artwork by Johannes Vermeer, exhibited in The Hague, was the latest artwork to be targeted by protesters concerned about climate change. One person glued his head to the painting and another glued his hand to the wall.`\
-https://nytimes.com/2022/10/27/arts/climate-protester-glues-his-head-to-girl-with-a-pearl-earring-painting.html?searchResultPosition=1
+https://nytimes.com/2022/10/27/arts/pearl-earring-vermeer-climate-activists.html?searchResultPosition=1
 
 **‘The Hair Tales’: Stories of Black Women’s Hair and Self-Acceptance**\
 `A new docu-series interviews stars like Oprah Winfrey and Issa Rae to explore the history and shared experiences of Black hair care.`\
