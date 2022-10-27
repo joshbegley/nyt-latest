@@ -3,7 +3,7 @@
 https://nytimes.com/2022/10/27/opinion/republicans-midterms-kari-lake.html?searchResultPosition=1
 
 **Why Russia Stole Potemkin’s Bones From Ukraine**\
-`The 18th-century general and lover of Catherine the Great helped conquer Ukraine and looms large in the version of history the Kremlin uses to justify the war.`\
+`The 18th-century commander and lover of Catherine the Great helped conquer Ukraine and looms large in the version of history the Kremlin uses to justify the war.`\
 https://nytimes.com/2022/10/27/world/europe/ukraine-russia-potemkin-bones.html?searchResultPosition=2
 
 **A Phillies Veteran Perfects the Art of Getting Back Up**\
