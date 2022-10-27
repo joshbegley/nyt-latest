@@ -27,7 +27,7 @@ https://nytimes.com/2022/10/27/theater/one-act-plays-ensemble-studio-theater.htm
 https://nytimes.com/2022/10/27/nyregion/trump-thomas-barrack-cross-examination.html?searchResultPosition=7
 
 **No, That Democrat Didn’t Vote ‘100% of the Time’ With Nancy Pelosi**\
-`G.O.P. operatives, like a classic rock station playing “Stairway to Heaven,” know that the hits work, and so they eagerly link vulnerable Democrats to the “radical San Francisco liberal.”`\
+`G.O.P. operatives, like a classic rock station playing “Stairway to Heaven,” believe that the hits work, and so they eagerly link vulnerable Democrats to the “radical San Francisco liberal.”`\
 https://nytimes.com/2022/10/27/us/politics/nancy-pelosi-republican-attack-ads.html?searchResultPosition=8
 
 **Playing to Western Discord, Putin Says Russia Is Battling ‘Strange’ Elites**\
