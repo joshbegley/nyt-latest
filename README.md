@@ -27,7 +27,7 @@ https://nytimes.com/paidpost/servicenow/from-technology-to-civic-leadership.html
 https://nytimes.com/2022/10/28/movies/netflix-expiring-november.html?searchResultPosition=7
 
 **Five Ways to Prevent the Next Sandy**\
-`When Hurricane Sandy deluged the region, leaders promised bold action. Ten years later, it’s fair to ask: What, exactly, has been done?`\
+`When Hurricane Sandy deluged New York City, leaders promised bold action. Ten years later, it’s fair to ask: What, exactly, has been done?`\
 https://nytimes.com/2022/10/28/nyregion/hurricane-sandy-nyc-10-year-anniversary.html?searchResultPosition=8
 
 **A Timeline of Hurricane Sandy**\
