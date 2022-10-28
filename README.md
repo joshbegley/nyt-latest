@@ -1,6 +1,6 @@
 **Twitter Files to Pull Shares From Stock Market as Elon Musk Moves In**\
 `Twitter filed documents seeking to remove its shares from the New York Stock Exchange, the first step toward becoming a private company under Elon Musk’s ownership.`\
-https://nytimes.com/2022/10/28/business/twitter-musk-stock-market-delisting.html?searchResultPosition=1
+https://nytimes.com/2022/10/28/business/twitter-elon-musk.html?searchResultPosition=1
 
 **Spanish Prosecutors Drop Criminal Charges Against Neymar**\
 `The P.S.G. star, his parents and two former Barcelona presidents had faced the prospect of prison after being accused of corruption and fraud.`\
