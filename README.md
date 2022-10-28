@@ -1,9 +1,9 @@
 **Twitter Files to Pull Shares From Stock Market as Elon Musk Moves In**\
 `Twitter filed documents seeking to remove its shares from the New York Stock Exchange, the first step toward becoming a private company under Elon Musk’s ownership.`\
-https://nytimes.com/2022/10/28/business/twitter-files-to-pull-shares-from-stock-market-as-elon-musk-moves-in.html?searchResultPosition=1
+https://nytimes.com/2022/10/28/business/twitter-musk-stock-market-delisting.html?searchResultPosition=1
 
 **Spanish Prosecutors Drop Criminal Charges Against Neymar**\
-`The P.S.G. star, his parents and two former Barcelona presidents were accused of corruption and fraud. A Spanish court ruled the dispute was a civil matter, not a criminal one.`\
+`The P.S.G. star, his parents and two former Barcelona presidents were accused of corruption and fraud. Prosecutors withdrew their case, and the prospect of prison terms, after deciding the dispute was a civil matter, not a criminal one.`\
 https://nytimes.com/2022/10/28/sports/soccer/neymar-trial-barcelona.html?searchResultPosition=2
 
 **Intruder Assaults Nancy Pelosi’s Husband in Their San Francisco Home**\
