@@ -1,6 +1,6 @@
 **A big topic on Twitter? Twitter.**\
 `The discussion reflects the shifting landscape of social media ownership over the past year`\
-https://nytimes.com/2022/10/28/technology/a-big-topic-on-twitter-twitter.html?searchResultPosition=1
+https://nytimes.com/2022/10/28/technology/twitter-reactions-musk-takeover.html?searchResultPosition=1
 
 **Review: Dimming the Lights for Sensuously Flowing Bach**\
 `The harpsichordist Jean Rondeau played the “Goldberg” Variations at Weill Recital Hall with patience and a vibrant yet subtle touch.`\
