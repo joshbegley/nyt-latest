@@ -1,4 +1,4 @@
-**Inflation and Wages Continue to Climb Rapidly, Bad News for the Fed**\
+**Inflation and Wages Continue to Climb Rapidly, In Bad News for the Fed**\
 `The Federal Reserve’s preferred inflation measure showed that price gains remained fast in September, and a gauge of wages it watches closely is climbing quickly.`\
 https://nytimes.com/2022/10/28/business/fedeal-reserve-inflation-wages.html?searchResultPosition=1
 
