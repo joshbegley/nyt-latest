@@ -23,7 +23,7 @@ https://nytimes.com/interactive/2022/10/27/world/asia/hu-jintao-congress-videos.
 https://nytimes.com/2022/10/27/technology/elon-musk-twitter-deal-complete.html?searchResultPosition=6
 
 **8 People Dead in Oklahoma House Fire, Police Say**\
-`The episode, in a city near Tulsa, is being investigated as a homicide.`\
+`The deaths, in a city near Tulsa, are being investigated as homicide.`\
 https://nytimes.com/2022/10/27/us/oklahoma-house-fire.html?searchResultPosition=7
 
 **‘Walking With Ghosts’ Review: Gabriel Byrne Roams His Past**\
