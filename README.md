@@ -3,7 +3,7 @@
 https://nytimes.com/2022/10/28/business/twitter-musk-stock-market-delisting.html?searchResultPosition=1
 
 **Spanish Prosecutors Drop Criminal Charges Against Neymar**\
-`The P.S.G. star, his parents and two former Barcelona presidents were accused of corruption and fraud. Prosecutors withdrew their case, and the prospect of prison terms, after deciding the dispute was a civil matter, not a criminal one.`\
+`The P.S.G. star, his parents and two former Barcelona presidents had faced the prospect of prison after being accused of corruption and fraud.`\
 https://nytimes.com/2022/10/28/sports/soccer/neymar-trial-barcelona.html?searchResultPosition=2
 
 **Intruder Assaults Nancy Pelosi’s Husband in Their San Francisco Home**\
