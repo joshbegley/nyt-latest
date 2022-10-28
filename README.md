@@ -1,40 +1,40 @@
+**Transcript: Ezra Klein Interviews Lynn Vavreck and John Sides**\
+`The Oct. 28, 2022 episode of “The Ezra Klein Show”`\
+https://nytimes.com/2022/10/28/podcasts/ezra-klein-interviews-lynn-vavreck-and-john-sides.html?searchResultPosition=1
+
+**Emily Dickinson, at Home in Her ‘Full-Color Life’**\
+`The poet’s house museum in Amherst, Mass., gets a vibrant, historically correct makeover, underlining that she was not just a reclusive woman in white.`\
+https://nytimes.com/2022/10/28/arts/emily-dickinson-museum-renovation.html?searchResultPosition=2
+
+**I’m No Longer Sure New York Will Protect Itself From Rising Waters**\
+`Given the funding gaps and ever-extending deadlines for flood protection measures, is it better to be realistic about Manhattan’s future?`\
+https://nytimes.com/2022/10/28/opinion/hurricane-sandy-new-york-flooding.html?searchResultPosition=3
+
+**International Center of Photography Names Cindy Sherman a Trustee**\
+`She and four others are joining the museum’s board, part of an effort by the institution’s director to expand its reach beyond documentary photography.`\
+https://nytimes.com/2022/10/28/arts/design/international-center-of-photography-cindy-sherman.html?searchResultPosition=4
+
+**This Debate from 1912 Helps Us Understand What to Do About Today’s Corporate Giants**\
+`It’s Theodore Roosevelt versus Woodrow Wilson.`\
+https://nytimes.com/2022/10/28/opinion/antitrust-roosevelt-wilson.html?searchResultPosition=5
+
+**Diversity Enhanced ‘House of the Dragon.’ ‘The Rings of Power,’ Not So Much.**\
+`Realism and race in fantasy TV.`\
+https://nytimes.com/2022/10/28/opinion/rings-dragon.html?searchResultPosition=6
+
+**A Compromise on Immigration Is Possible. This Bill Could Make it Happen.**\
+`Congress needs to provide sufficient funding for an asylum system that admits those who qualify for refuge, and keeps out those who don’t.`\
+https://nytimes.com/2022/10/28/opinion/asylum-immigration-biden.html?searchResultPosition=7
+
 **The Rev. Calvin O. Butts III, Dynamic Harlem Pastor, Dies at 73**\
 `He led Abyssinian Baptist Church and helped revitalize his community by building housing, some of which he reserved for existing residents.`\
-https://nytimes.com/2022/10/28/nyregion/calvin-o-butts-iii-dead.html?searchResultPosition=1
+https://nytimes.com/2022/10/28/nyregion/calvin-o-butts-iii-dead.html?searchResultPosition=8
 
 **Attacker at Nancy Pelosi’s Home Charged With Attempted Homicide**\
 `After being assaulted at home by a man wielding a hammer, Paul Pelosi, the husband of House Speaker Nancy Pelosi, was hospitalized.`\
-https://nytimes.com/video/us/politics/100000008605883/pelosi-paul-sf-police-news.html?searchResultPosition=2
+https://nytimes.com/video/us/politics/100000008605883/pelosi-paul-sf-police-news.html?searchResultPosition=9
 
 **6 New Paperbacks to Read This Week**\
 `This week’s roundup includes the latest from Richard Powers, Lily King’s stories of grief and desire and more.`\
-https://nytimes.com/interactive/2022/10/28/books/review/new-paperbacks.html?searchResultPosition=3
-
-**The Best of Late Night This Week**\
-`This week, Kanye West, Elon Musk, Dr. Mehmet Oz and James Corden dominated headlines and the late-night shows. Here's what the hosts had to say.`\
-https://nytimes.com/interactive/2022/10/28/arts/television/best-of-late-night.html?searchResultPosition=4
-
-**AA Bronson’s Lifetime of Gay Joy and Provocation**\
-`With a pair of new shows centered on his influential collective, General Idea, the Berlin-based multimedia artist reflects on his pioneering practice.`\
-https://nytimes.com/2022/10/28/t-magazine/aa-bronson-art.html?searchResultPosition=5
-
-**Butternut Squash Everything**\
-`It’s the star of the season, whether in soup, stews, grain bowls or Kay Chun’s gorgeous pasta with brown-butter bread crumbs.`\
-https://nytimes.com/2022/10/28/dining/butternut-squash-everything.html?searchResultPosition=6
-
-**What should Twitter users do?**\
-`After Elon Musk took over, some Twitter users wondered if they should take additional measures to protect their accounts — or even delete them.`\
-https://nytimes.com/2022/10/28/technology/personaltech/twitter-account-delete-security.html?searchResultPosition=7
-
-**Smoke, Mirrors and Passing the Torch at American Ballet Theater**\
-`The company continues its fall season with the delight that is “The Dream,” and a Christopher Rudd premiere with an all-Black cast and creative team.`\
-https://nytimes.com/2022/10/28/arts/dance/american-ballet-theater-gala-christopher-rudd.html?searchResultPosition=8
-
-**No, the ban on Ye’s Twitter account was not lifted.**\
-`The Twitter account for the rapper formerly known as Kanye West was never banned to begin with.`\
-https://nytimes.com/2022/10/28/technology/kanye-ye-twitter-ban.html?searchResultPosition=9
-
-**Are Prebiotics Important for Gut Health?**\
-`And how do they differ from probiotics? Experts weigh in on how these trendy supplements may influence your well-being.`\
-https://nytimes.com/2022/10/28/well/eat/prebiotic-supplements-gut-health.html?searchResultPosition=10
+https://nytimes.com/interactive/2022/10/28/books/review/new-paperbacks.html?searchResultPosition=10
 
