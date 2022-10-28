@@ -6,7 +6,7 @@ https://nytimes.com/2022/10/28/business/germany-france-spain-q3-gdp.html?searchR
 `A fourth straight quarter of robust results came on the back of high oil and natural gas prices.`\
 https://nytimes.com/2022/10/28/business/energy-environment/exxon-chevron-quarterly-earnings.html?searchResultPosition=2
 
-**As inflation bites, Japan says it will help with electricity bills.**\
+**Japan says it will help with electricity bills, as inflation bites because of a weak yen and the Ukraine war.**\
 `Japan is the latest country to turn to enormous fiscal relief as it seeks to reduce the impact of geopolitical instability and rampant inflation.`\
 https://nytimes.com/2022/10/28/business/japan-inflation-electricity.html?searchResultPosition=3
 
