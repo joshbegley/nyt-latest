@@ -1,40 +1,40 @@
-**Corrections: Oct. 28, 2022**\
-`Corrections that appeared in print on Friday, Oct. 28, 2022.`\
-https://nytimes.com/2022/10/28/pageoneplus/corrections-oct-28-2022.html?searchResultPosition=1
+**The New York Times News Quiz, October 28, 2022**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2022/10/28/briefing/28news-quiz-world-series.html?searchResultPosition=1
 
-**A Celebrated Japanese Artist Died Trying to Save Others From Drowning**\
-`Kazuki Takahashi, creator of the internationally famous Yu-Gi-Oh! manga, was found dead in July. At the time, officials did not disclose the circumstances.`\
-https://nytimes.com/2022/10/28/world/asia/yu-gi-oh-kazuki-takahashi-drowning.html?searchResultPosition=2
+**What’s the Salary? N.Y.C. Job Seekers Can No Longer Be Kept in the Dark**\
+`A new city law going into effect on Tuesday will require companies with at least four employees to post salary ranges for openings, even if the jobs involve remote or hybrid work.`\
+https://nytimes.com/2022/10/28/nyregion/nyc-salary-transparency-job-postings.html?searchResultPosition=2
 
-**Stephen Colbert Bans Kanye West From ‘The Late Show’**\
-`Colbert said his jurisdiction extended into the northern half of Times Square, and that he was “banning Kanye from coming north of Bubba Gump Shrimp.”`\
-https://nytimes.com/2022/10/28/arts/television/stephen-colbert-kanye-west.html?searchResultPosition=3
+**Beaches? Cruises? ‘Dark’ Tourists Prefer the Gloomy and Macabre**\
+`Travelers who use their off time to visit places like the Chernobyl nuclear plant or current conflict zones say they no longer want a sanitized version of a troubled world.`\
+https://nytimes.com/2022/10/28/travel/dark-tourism-travel.html?searchResultPosition=3
 
-**In G.O.P. Ad Wars, Trump Takes an Uncharacteristic Supporting Role**\
-`After wielding a bullhorn to shape Republican primaries, the former president has let other groups dominate the airwaves and cover the high cost of commercials.`\
-https://nytimes.com/2022/10/28/us/politics/trump-republican-ads-midterms.html?searchResultPosition=4
+**How to Scan a Leopard Eel for Cancer**\
+`First, get the fish to stay still, all five feet of it.`\
+https://nytimes.com/2022/10/28/science/moray-eel-veterinary.html?searchResultPosition=4
 
-**Mobilizing Young Voters With Celebrities and Instagram Filters**\
-`Saad Amer is a telegenic climate activist and founder of Plus1Vote.`\
-https://nytimes.com/2022/10/28/style/mobilizing-voters-saad-amer-plus1vote.html?searchResultPosition=5
+**‘No Jobs Available’: The Feast or Famine Careers of America’s Port Drivers.**\
+`Consumer demand has cooled, leaving fewer containers to pick up on the West Coast. For Marshawn Jackson, a truck driver paid by the delivery, that means a hard scrabble to make ends meet.`\
+https://nytimes.com/2022/10/28/business/supply-chain-shipping-jobs.html?searchResultPosition=5
 
-**A Podcast for an Ever-Changing Tech Industry**\
-`“Hard Fork,” a new Times podcast, brings two seasoned reporters together for analysis of the latest tech headlines.`\
-https://nytimes.com/2022/10/28/insider/hard-fork-podcast-tech-industry.html?searchResultPosition=6
+**For Rail Workers, Anger Persists Over Sick Leave**\
+`A tentative new contract brokered by the White House offered employees one day off, leaving some dissatisfied and raising the risk of another impasse.`\
+https://nytimes.com/2022/10/28/business/railroad-workers-strike-threat.html?searchResultPosition=6
 
-**Vaping**\
-`Is vaping a problem among the students at your school?`\
-https://nytimes.com/2022/10/28/learning/vaping.html?searchResultPosition=7
+**With Majority in Sight, Republicans Hush Talk of Impeaching Biden**\
+`Party leaders have begun to equivocate about whether they would seek to impeach President Biden if they won a House majority, but pressure is building from those who have vowed to do so.`\
+https://nytimes.com/2022/10/28/us/politics/house-republicans-impeachment-biden.html?searchResultPosition=7
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/10/28/crosswords/spelling-bee-forum.html?searchResultPosition=8
+**How Twitter Will Change as a Private Company**\
+`The social media company went public in 2013. But Elon Musk is taking it private as part of his acquisition of the firm. Here’s what that means.`\
+https://nytimes.com/2022/10/28/technology/twitter-changes.html?searchResultPosition=8
 
-**Word of the Day: jetsam**\
-`This word has appeared in seven articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/10/28/learning/word-of-the-day-jetsam.html?searchResultPosition=9
+**On Affirmative Action, What Once Seemed Unthinkable Might Become Real**\
+`Should diversity still be considered the compelling interest in college admissions that the court said it was in 1978?`\
+https://nytimes.com/2022/10/28/opinion/affirmative-action-supreme-court.html?searchResultPosition=9
 
-**The Scars of Hurricane Sandy, 10 Years Later**\
-`Debbie Ingenito is still living with the storm’s aftermath. A box of Christmas ornaments helps her remember. Plus, early voting soon begins in New York.`\
-https://nytimes.com/2022/10/28/nyregion/the-scars-of-hurricane-sandy-10-years-later.html?searchResultPosition=10
+**Because of Bolsonaro, Millions of Brazilians Distrust Elections**\
+`President Jair Bolsonaro has attacked Brazil’s electronic voting system. Now, ahead of Sunday’s elections, many of his supporters believe there will be fraud.`\
+https://nytimes.com/2022/10/28/world/americas/bolsonaro-supporters-election.html?searchResultPosition=10
 
