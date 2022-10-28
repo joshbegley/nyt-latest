@@ -11,7 +11,7 @@ https://nytimes.com/article/midterm-elections-basics-explained.html?searchResult
 https://nytimes.com/2022/10/28/business/twitter-elon-musk.html?searchResultPosition=3
 
 **Spanish Prosecutors Drop Criminal Charges Against Neymar**\
-`The P.S.G. star, his parents and two former Barcelona presidents had faced the prospect of prison after being accused of corruption and fraud.`\
+`The Brazilian star, his parents and two former Barcelona presidents had faced the prospect of prison after being accused of corruption and fraud.`\
 https://nytimes.com/2022/10/28/sports/soccer/neymar-trial-barcelona.html?searchResultPosition=4
 
 **Intruder Assaults Nancy Pelosi’s Husband in Their San Francisco Home**\
