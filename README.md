@@ -34,7 +34,7 @@ https://nytimes.com/2022/10/28/business/supply-chain-shipping-jobs.html?searchRe
 `A tentative new contract brokered by the White House offered employees one day off, leaving some dissatisfied and raising the risk of another impasse.`\
 https://nytimes.com/2022/10/28/business/railroad-workers-strike-threat.html?searchResultPosition=9
 
-**With Majority in Sight, Republicans Hush Talk of Impeaching Biden**\
-`Party leaders have begun to equivocate about whether they would seek to impeach President Biden if they won a House majority, but pressure is building from those who have vowed to do so.`\
-https://nytimes.com/2022/10/28/us/politics/house-republicans-impeachment-biden.html?searchResultPosition=10
+**On Affirmative Action, What Once Seemed Unthinkable Might Become Real**\
+`Should diversity still be considered the compelling interest in college admissions that the court said it was in 1978?`\
+https://nytimes.com/2022/10/28/opinion/affirmative-action-supreme-court.html?searchResultPosition=10
 
