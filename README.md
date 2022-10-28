@@ -34,7 +34,7 @@ https://nytimes.com/2022/10/28/nyregion/the-scars-of-hurricane-sandy-10-years-la
 `Here’s what you need to know.`\
 https://nytimes.com/2022/10/28/briefing/climate-crisis-putin-west.html?searchResultPosition=9
 
-**The Young Pistons Are Trying to Bring Back That ‘Bad Boys’ Feeling**\
-`The rebuild in Detroit could finally turn the corner this year behind Cade Cunningham and Jaden Ivey.`\
-https://nytimes.com/2022/10/28/sports/basketball/nba-detroit-pistons.html?searchResultPosition=10
+**For Rishi Sunak, Family Wealth From Outsourcing Adds to a Secretive Fortune**\
+`Britain’s new prime minister married into an $800 million stake in Infosys, a company that does not fit neatly into his party’s views on immigration.`\
+https://nytimes.com/2022/10/28/world/europe/rishi-sunak-family-wealth.html?searchResultPosition=10
 
