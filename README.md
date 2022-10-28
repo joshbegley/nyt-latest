@@ -35,6 +35,6 @@ https://nytimes.com/2022/10/28/business/twitter-elon-musk.html?searchResultPosit
 https://nytimes.com/2022/10/28/sports/soccer/neymar-trial-barcelona.html?searchResultPosition=9
 
 **Intruder Assaults Nancy Pelosi’s Husband in Their San Francisco Home**\
-`Paul Pelosi, 82, was hospitalized after the assault but was expected to recover, a spokesman for Ms. Pelosi said. The House speaker was not in San Francisco at the time.`\
+`Paul Pelosi, 82, was hospitalized after the assault but was expected to recover, a spokesman for Ms. Pelosi said. The police said a suspect was in custody.`\
 https://nytimes.com/2022/10/28/us/politics/nancy-pelosi-husband-assaulted.html?searchResultPosition=10
 
