@@ -8,7 +8,7 @@ https://nytimes.com/2022/10/28/business/midterm-election-stock-market.html?searc
 
 **Elon Musk Faces Another Big Decision at Twitter**\
 `The social network’s new owner has just a few days to determine whether to pay millions to employees, or get rid of them.`\
-https://nytimes.com/2022/10/28/business/dealbook/elon-musk-faces-another-big-decision-at-twitter.html?searchResultPosition=3
+https://nytimes.com/2022/10/28/business/dealbook/elon-musk-twitter-employee-payouts.html?searchResultPosition=3
 
 **With Recession Looming, Big European Economies Still Show Some Growth**\
 `Germany surprised economists by expanding in the third quarter, but the French and Spanish economies both slowed down.`\
