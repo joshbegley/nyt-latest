@@ -1,40 +1,40 @@
+**The Young Pistons Are Trying to Bring Back That ‘Bad Boys’ Feeling**\
+`The rebuild in Detroit could finally turn the corner this year behind Cade Cunningham and Jaden Ivey.`\
+https://nytimes.com/2022/10/28/sports/basketball/nba-detroit-pistons.html?searchResultPosition=1
+
+**For Rishi Sunak, Family Wealth From Outsourcing Adds to a Secretive Fortune**\
+`Britain’s new prime minister married into an $800 million stake in Infosys, a company that does not fit neatly into his party’s views on immigration.`\
+https://nytimes.com/2022/10/28/world/europe/rishi-sunak-family-wealth.html?searchResultPosition=2
+
+**‘Peaceful’ Review: A Homage to French Filmmaking**\
+`Emmanuelle Bercot’s drama about a man diagnosed with late-stage cancer plays like a eulogy for a nearly bygone era of French cinema and its stars.`\
+https://nytimes.com/2022/10/28/movies/peaceful-review.html?searchResultPosition=3
+
+**A Throuple’s Tricky Geometry**\
+`In a couple, a straight line connects two points. With three people in a relationship, many more configurations emerge.`\
+https://nytimes.com/2022/10/28/style/modern-love-a-throuples-tricky-geometry.html?searchResultPosition=4
+
+**An ‘Aggressive Love for Life’ Regardless of Life’s Challenges**\
+`Months after Bradley Carbone met Barbara Torasso, he broke his neck snowboarding. A long recovery brought them closer together.`\
+https://nytimes.com/2022/10/28/style/barbara-torasso-bradley-carbone-wedding.html?searchResultPosition=5
+
+**With Scorpio and Pisces Rising, a Compatible Love Match**\
+`Natalie Labriola and Taylor Scruggs were more than just astrologically suited to each other: He also folded her laundry impeccably.`\
+https://nytimes.com/2022/10/28/style/natalie-labriola-taylor-scruggs-wedding.html?searchResultPosition=6
+
+**After Several False Starts, ‘Sunday Conversations’ Brought Them Closer**\
+`Janine Renae Lee and Janeine LeCorday Spencer, who bonded over a shared name, had an on-again, off-again relationship for years until they began to see a future together.`\
+https://nytimes.com/2022/10/28/style/janine-lee-janeine-spencer-wedding.html?searchResultPosition=7
+
+**Looking Past His Tinder Profile, and Her Fake Name**\
+`Katherine Turner wasn’t sure Robert Sparks was the right match for her, but she decided to give dating a try anyway. Several weeks later, the two had fallen in love.`\
+https://nytimes.com/2022/10/28/style/katherine-turner-robert-sparks-wedding.html?searchResultPosition=8
+
 **How China Is Fighting the Chip War With America**\
 `The battle for technological superiority between the United States and China is the ultimate competition between two radically different systems.`\
-https://nytimes.com/2022/10/27/opinion/china-america-chip-tech-war.html?searchResultPosition=1
+https://nytimes.com/2022/10/27/opinion/china-america-chip-tech-war.html?searchResultPosition=9
 
 **The Robber Barons Had Nothing on Elon Musk**\
 `Rogue billionaires have appeared before, and they will appear again. But this one will control our “digital town square.”`\
-https://nytimes.com/2022/10/27/opinion/elon-musk-twitter-purchase-robber-baron.html?searchResultPosition=2
-
-**Variety: Cryptic Crossword**\
-`Richard Silvestri runs us through our paces with a wide-ranging puzzle.`\
-https://nytimes.com/2022/10/27/crosswords/variety-cryptic-crossword.html?searchResultPosition=3
-
-**Might Include Poetry, but Not Pros**\
-`Will Nediger gives us a run for our money, but it’s all worth it.`\
-https://nytimes.com/2022/10/27/crosswords/daily-puzzle-2022-10-28.html?searchResultPosition=4
-
-**What Happened to Hu Jintao?**\
-`We deconstruct video footage of the surprising moment when the former Chinese leader was escorted out of the highly choreographed Communist Party Congress.`\
-https://nytimes.com/interactive/2022/10/27/world/asia/hu-jintao-congress-videos.html?searchResultPosition=5
-
-**Elon Musk Completes $44 Billion Deal to Own Twitter**\
-`The world’s richest man closed his blockbuster purchase of the social media service, thrusting Twitter into a new era.`\
-https://nytimes.com/2022/10/27/technology/elon-musk-twitter-deal-complete.html?searchResultPosition=6
-
-**8 People Dead in Oklahoma House Fire, Police Say**\
-`The deaths, in a city near Tulsa, are being investigated as homicide.`\
-https://nytimes.com/2022/10/27/us/oklahoma-house-fire.html?searchResultPosition=7
-
-**‘Walking With Ghosts’ Review: Gabriel Byrne Roams His Past**\
-`The Irish actor’s one-man show on Broadway delves into painful and playful memories alike. He even imitates the oddballs of his Dublin boyhood.`\
-https://nytimes.com/2022/10/27/theater/walking-with-ghosts-review.html?searchResultPosition=8
-
-**Smithsonian Picks Two Sites for Museums Honoring Latinos and Women**\
-`The Smithsonian board did not decide which museum will go where, and will not, until Congress approves the locations on the National Mall.`\
-https://nytimes.com/2022/10/27/arts/smithsonian-museums-latinos-women.html?searchResultPosition=9
-
-**Schumer Caught on Mic Forecasting Democrats’ Midterm Races**\
-`Relief at John Fetterman’s debate and the Pennsylvania Senate race, alarm at Herschel Walker’s standing in Georgia.`\
-https://nytimes.com/2022/10/27/us/politics/schumer-hot-mic-democrats-biden.html?searchResultPosition=10
+https://nytimes.com/2022/10/27/opinion/elon-musk-twitter-purchase-robber-baron.html?searchResultPosition=10
 
