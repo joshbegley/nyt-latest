@@ -1,6 +1,6 @@
 **Murkowski fends off attacks on her record in Alaska Senate debate.**\
 `As Senator Lisa Murkowski fights for re-election, she and her Trump-backed challenger, Kelly Tshibaka, tangled over who would be the right fit for Alaska.`\
-https://nytimes.com/2022/10/28/us/politics/murkowski-fends-off-attacks-on-her-record-in-alaska-senate-debate.html?searchResultPosition=1
+https://nytimes.com/live/2022/10/28/us/elections-midterms/murkowski-alaska-senate-debate?searchResultPosition=1
 
 **World Cup Dreams, Gone in an Instant**\
 `For hundreds of the world’s best players, injury is the fear shadowing every step, every turn, every tackle as the World Cup looms.`\
