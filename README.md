@@ -30,7 +30,7 @@ https://nytimes.com/2022/10/28/podcasts/haunted-house-balenciaga-kanye-west.html
 `Our playlist dedicated to the Golden State continues to grow.`\
 https://nytimes.com/2022/10/28/us/california-songs-playlist.html?searchResultPosition=8
 
-**Inflation and Wages Continue to Climb Rapidly, In Bad News for the Fed**\
+**Inflation and Wages Continue to Climb Rapidly, in Bad News for the Fed**\
 `The Federal Reserve’s preferred inflation measure showed that price gains remained fast in September, and a gauge of wages it watches closely is climbing quickly.`\
 https://nytimes.com/2022/10/28/business/fedeal-reserve-inflation-wages.html?searchResultPosition=9
 
