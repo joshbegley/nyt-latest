@@ -4,7 +4,7 @@ https://nytimes.com/2022/10/28/world/europe/ukraine-russia-kherson-bakhmut-sobch
 
 **It’s 2024. Trump Backers Won’t Certify the Election. What Next, Legally?**\
 `The question is most urgent in Arizona, where two of the former president’s loyalists may well become governor and secretary of state.`\
-https://nytimes.com/2022/10/28/us/politics/what-happens-legally-when-officials-refuse-to-certify-an-election.html?searchResultPosition=2
+https://nytimes.com/2022/10/28/us/politics/arizona-kari-lake-finchem-2024-certify.html?searchResultPosition=2
 
 **‘Hamlet’ Review: A Dirt-Eating Danish Prince, Born to Be Wild**\
 `Thomas Ostermeier’s production of “Hamlet,” presented as part of the Brooklyn Academy of Music’s Next Wave festival, unleashes more madness than what Shakespeare has already offered.`\
