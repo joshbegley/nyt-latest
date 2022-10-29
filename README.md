@@ -1,6 +1,6 @@
 **Realmuto’s Homer Gives Phillies Shocking Win in Extra Innings**\
 `Houston got off to an early 5-0 but watched it evaporate. Realmuto tied the game with a double in the fifth and put his team ahead to stay with a homer in the 10th.`\
-https://nytimes.com/2022/10/29/sports/baseball/phillies-astros-world-series-game-1.html?searchResultPosition=1
+https://nytimes.com/2022/10/29/sports/baseball/world-series-phillies-game-1-astros.html?searchResultPosition=1
 
 **After Years of ‘Hell’ in ISIS Detention Camp, 17 Australians Return Home**\
 `Dozens more Australians, many of them children, are still being held in Syria, but there is hope that the government will soon sponsor more releases.`\
