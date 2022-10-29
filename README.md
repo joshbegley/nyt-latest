@@ -12,7 +12,7 @@ https://nytimes.com/2022/10/29/world/americas/brazil-presidential-election-expla
 
 **Accommodation Is Not a Shield From Criticism**\
 `An employee with a chronic condition can be held accountable at work. But it should be about their performance apart from their illness.`\
-https://nytimes.com/2022/10/29/business/accommodation-is-not-a-shield-from-criticism.html?searchResultPosition=4
+https://nytimes.com/2022/10/29/business/chronic-condition-employee-performance.html?searchResultPosition=4
 
 **New Laws Force Honesty About Pay. Companies Are Catching Up.**\
 `New York City joins a handful of states in requiring employers to disclose salary ranges for openings. The goal is to narrow disparities.`\
