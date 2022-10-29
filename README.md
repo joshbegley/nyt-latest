@@ -26,7 +26,7 @@ https://nytimes.com/2022/10/29/sports/new-york-city-marathon-makoshi-yasuhiro.ht
 `Even as immigration has become increasingly divisive in many Western countries, particularly the United States, polls indicate that most Canadians support it.`\
 https://nytimes.com/2022/10/29/world/canada/canada-immigration-support.html?searchResultPosition=7
 
-**‘I Trust Anything That Man Does’**\
+**Phillies Comeback Was a Master Class in Managerial Urgency**\
 `Determined to capitalize on his team’s momentum, Phillies Manager Rob Thomson went to his top relievers early in Game 1. The moves paid off with a win on the road.`\
 https://nytimes.com/2022/10/29/sports/baseball/rob-thomson-phillies-bullpen.html?searchResultPosition=8
 
