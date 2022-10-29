@@ -1,40 +1,40 @@
-**At Least 45 Dead as Flooding and Landslides Hit the Philippines**\
-`Severe Tropical Storm Nalgae made landfall early Saturday and was expected to continue bringing strong winds and torrential rain to large areas of the country through the weekend.`\
-https://nytimes.com/2022/10/29/world/asia/philippines-storm-nalgae.html?searchResultPosition=1
+**The Disarray of the WTA**\
+`Money problems, shifting venues and a costly dispute with China have left the tour looking for answers — and a financial lifeline.`\
+https://nytimes.com/2022/10/29/sports/tennis/wta-2022-women.html?searchResultPosition=1
 
-**Justin Verlander Struggles in the World Series. Again.**\
-`Houston’s ace is one of the greatest pitchers of his generation but his disappointing start in Game 1 raised his career E.R.A. in the World Series to 6.07.`\
-https://nytimes.com/2022/10/29/sports/baseball/justin-verlander-astros-world-series.html?searchResultPosition=2
+**Months After the Floods, Eastern Kentucky Families Take Measure of What Was Lost**\
+`With hundreds of houses damaged or even washed away, a question looms in parts of the region: How many families who persevered there for generations will now leave for good?`\
+https://nytimes.com/2022/10/29/us/kentucky-floods-impacts.html?searchResultPosition=2
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/10/29/crosswords/spelling-bee-forum.html?searchResultPosition=3
+**Savoring Oregon’s Wine Country, No Driving Required**\
+`In the Willamette Valley, public transportation takes you to McMinnville, where you can walk to one, or all, of its nearly 20 tasting rooms.`\
+https://nytimes.com/2022/10/29/travel/oregon-wine-country-by-bus.html?searchResultPosition=3
 
-**Nets Owner Rebukes Kyrie Irving for Posts About Antisemitic Documentary**\
-`Irving, the Nets guard, posted a link on Twitter to a documentary that promotes antisemitic tropes. Joe Tsai, the Nets owner, said he was “disappointed.”`\
-https://nytimes.com/2022/10/29/sports/basketball/kyrie-irving-joe-tsai-antisemitic-documentary.html?searchResultPosition=4
+**Emo Fans Were Not OK**\
+`The When We Were Young festival in Las Vegas brought emo fans from all over the world to one destination. But when weather got in the way, they mourned together.`\
+https://nytimes.com/2022/10/29/style/when-we-were-young-festival.html?searchResultPosition=4
 
-**‘I Thought the Game Was Over’: A Big Catch Saved the Phillies**\
-`A fly ball in the ninth inning could easily have been a winning hit for Houston, but Nick Castellanos made a long run and a sliding catch, just has he had done against Atlanta.`\
-https://nytimes.com/2022/10/29/sports/baseball/nick-castellanos-phillies-catch.html?searchResultPosition=5
+**Bolsonaro vs. Lula: Brazil Faces a Stark Choice With Huge Stakes**\
+`Brazilians head to the polls on Sunday in an election between two political heavyweights that could have global repercussions.`\
+https://nytimes.com/2022/10/29/world/americas/brazil-bolsonaro-lula-presidential-election.html?searchResultPosition=5
 
-**Realmuto’s Homer Gives Phillies Shocking Win in Extra Innings**\
-`Houston got off to an early 5-0 lead but watched it evaporate. Realmuto tied the game with a double in the fifth and put his team ahead to stay with a homer in the 10th.`\
-https://nytimes.com/2022/10/29/sports/baseball/world-series-phillies-game-1-astros.html?searchResultPosition=6
+**How a Producer of Concerts in Crypts and Catacombs Spends His Sundays**\
+`Andrew Ousley, a classical music and hamburger devotee, will often run in the park or eat at Raoul’s, a nostalgic favorite.`\
+https://nytimes.com/2022/10/29/nyregion/how-a-producer-of-concerts-in-crypts-and-catacombs-spends-his-sundays.html?searchResultPosition=6
 
-**After Years of ‘Hell’ in ISIS Detention Camp, 17 Australians Return Home**\
-`Dozens more Australians, many of them children, are still being held in Syria, but there is hope that the government will soon sponsor more releases.`\
-https://nytimes.com/2022/10/29/world/australia/isis-detention-australians-return.html?searchResultPosition=7
+**An ‘Army’ of Volunteer Sleuths Are Out Hunting for Your Stolen Car**\
+`In Portland, vehicle thefts have soared, and the police say they are focused on other crimes. Now victims are helping each other track down their own cars.`\
+https://nytimes.com/2022/10/29/us/portland-car-thefts-crime.html?searchResultPosition=7
 
-**Corrections: Oct. 29, 2022**\
-`Corrections that appeared in print on Saturday, Oct. 29, 2022.`\
-https://nytimes.com/2022/10/28/pageoneplus/corrections-oct-29-2022.html?searchResultPosition=8
+**Biden’s Agenda Hangs in the Balance if Republicans Take Congress**\
+`On a wide array of issues like abortion, taxes, race and judges, President Biden’s opportunities would shrink as Republicans vow to dismantle much of his legislative accomplishments.`\
+https://nytimes.com/2022/10/29/us/politics/bidens-agenda-hangs-in-the-balance-if-republicans-take-congress.html?searchResultPosition=8
 
-**Quotation of the Day: Scarred by War, Ukraine’s Children Face Challenging Path Forward**\
-`Quotation of the Day for Saturday, October 29, 2022.`\
-https://nytimes.com/2022/10/28/todayspaper/quotation-of-the-day-scarred-by-war-ukraines-children-face-challenging-path-forward.html?searchResultPosition=9
+**Silicon Valley’s Unbridled Euphoria Runs Into Economic Reality**\
+`Once-buzzy start-ups had held out against the new reality that the good times are over. No longer.`\
+https://nytimes.com/2022/10/29/technology/silicon-valley-economic-reality.html?searchResultPosition=9
 
-**Grant in Folklore Stories?**\
-`Daniel Okulitch gets wishful with his latest Saturday grid.`\
-https://nytimes.com/2022/10/28/crosswords/daily-puzzle-2022-10-29.html?searchResultPosition=10
+**In Ohio, G.O.P. Sees a Clean Victory as Democrats Predict an Upset**\
+`Polls show Representative Tim Ryan competing within the margin of error against his Republican opponent, J.D. Vance, in the high-profile Ohio Senate race.`\
+https://nytimes.com/2022/10/29/us/politics/ohio-senate-race.html?searchResultPosition=10
 
