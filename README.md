@@ -1,5 +1,5 @@
 **The Pelosis and a Haunted America**\
-`Spooky Republicans are writing our national horror story.`\
+`Gruesome Republicans are writing our national horror story.`\
 https://nytimes.com/2022/10/28/opinion/pelosi-nancy-paul-attack.html?searchResultPosition=1
 
 **Jerry Lee Lewis: Listen to 10 Songs From a Rock ’n’ Roll Pioneer**\
