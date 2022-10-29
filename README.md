@@ -4,7 +4,7 @@ https://nytimes.com/2022/10/28/opinion/pelosi-nancy-paul-attack.html?searchResul
 
 **Jerry Lee Lewis: Listen to 10 Songs From a Rock ’n’ Roll Pioneer**\
 `From “Great Balls of Fire” to “Over the Rainbow,” whether the songs were brash or tearful, Jerry Lee Lewis was indomitable.`\
-https://nytimes.com/2022/10/28/arts/music/28jerry-lee-lewis-streaming-guide.html?searchResultPosition=2
+https://nytimes.com/2022/10/28/arts/music/jerry-lee-lewis-streaming-guide.html?searchResultPosition=2
 
 **Quotation of the Day: British Equality Agency Tells Schools They Can’t Ban Afro Hairstyles**\
 `Quotation of the Day for Friday, October 28, 2022.`\
