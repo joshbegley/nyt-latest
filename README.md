@@ -1,5 +1,5 @@
 **Realmuto’s Homer Gives Phillies Shocking Win in Extra Innings**\
-`Houston got off to an early 5-0 but watched it evaporate. Realmuto tied the game with a double in the fifth and put his team ahead to stay with a homer in the 10th.`\
+`Houston got off to an early 5-0 lead but watched it evaporate. Realmuto tied the game with a double in the fifth and put his team ahead to stay with a homer in the 10th.`\
 https://nytimes.com/2022/10/29/sports/baseball/world-series-phillies-game-1-astros.html?searchResultPosition=1
 
 **After Years of ‘Hell’ in ISIS Detention Camp, 17 Australians Return Home**\
