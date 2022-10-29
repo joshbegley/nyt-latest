@@ -1,6 +1,6 @@
 **Another Israeli Election Looms, and a Familiar Face Plans a Comeback**\
 `Ousted from the prime minister’s office 16 months ago, Benjamin Netanyahu, the leading candidate, is out to prove his political obituaries were premature.`\
-https://nytimes.com/2022/10/29/world/middleeast/another-israeli-election-looms-and-a-familiar-face-plans-a-comeback.html?searchResultPosition=1
+https://nytimes.com/2022/10/29/world/middleeast/israeli-election.html?searchResultPosition=1
 
 **Saudi Halloween: Once-Banned Holiday Now Haunted by Masked Monsters**\
 `Only a few years ago, a Halloween party meant arrest. Now, a government-sponsored “horror weekend” means sold-out costume shops and scary clowns. “Saudi is changing,” said a young man going as a wizard.`\
