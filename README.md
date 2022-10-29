@@ -2,7 +2,7 @@
 `As many as 100,000 people were celebrating in a popular nightlife district in the center of the South Korean capital.`\
 https://nytimes.com/2022/10/29/world/asia/seoul-south-korea-dead-.html?searchResultPosition=1
 
-**Penn State’s Football Team Isn’t Bad. They Aren’t Good Enough, Either.**\
+**Penn State’s Football Team Isn’t Bad. It Isn’t Good Enough, Either.**\
 `Ohio State defeated Penn State, 44-31. It was Penn State’s 11th consecutive loss to a top 10 opponent.`\
 https://nytimes.com/2022/10/29/sports/penn-state-ohio-state-football.html?searchResultPosition=3
 
