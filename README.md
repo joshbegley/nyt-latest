@@ -1,40 +1,40 @@
+**Dozens of South Koreans Injured in Halloween Stampede**\
+`Images showed firefighters carrying what looked like bodies covered with white sheets on stretchers to ambulances in the popular Itaewon neighborhood in Seoul.`\
+https://nytimes.com/2022/10/29/world/asia/korea-halloween-stampede-itaewon.html?searchResultPosition=1
+
 **The Cubs Never Returned to the World Series. Kyle Schwarber Did.**\
 `A dynasty-to-be ended up with only one championship, but Schwarber, an affable slugger known for (very) long home runs, is back in the Fall Classic with Philadelphia.`\
-https://nytimes.com/2022/10/29/sports/baseball/kyle-schwarber-phillies-world-series.html?searchResultPosition=1
+https://nytimes.com/2022/10/29/sports/baseball/kyle-schwarber-phillies-world-series.html?searchResultPosition=2
 
 **With Western Weapons, Ukraine Is Turning the Tables in an Artillery War**\
 `In the southern Kherson region, Ukraine now has the advantage in range and precision guidance of artillery, rockets and drones, erasing what had been a critical Russian asset.`\
-https://nytimes.com/2022/10/29/world/europe/ukraine-russia-war-artillery.html?searchResultPosition=2
+https://nytimes.com/2022/10/29/world/europe/ukraine-russia-war-artillery.html?searchResultPosition=3
 
 **In Russia, Nobel-Winning Rights Group Is Forced to Downsize Its Tribute**\
 `Memorial typically conducts a marathon reading of the names, ages, professions and dates of death of those killed under Stalin, but it had to find other ways to honor the victims after the authorities banned it.`\
-https://nytimes.com/2022/10/29/world/europe/russia-memorial-stalin-victims.html?searchResultPosition=3
+https://nytimes.com/2022/10/29/world/europe/russia-memorial-stalin-victims.html?searchResultPosition=4
 
 **Mental Health in America Today**\
 `Readers discuss recovered memories of abuse, community-based care, politics and more.`\
-https://nytimes.com/2022/10/29/opinion/letters/mental-health.html?searchResultPosition=4
+https://nytimes.com/2022/10/29/opinion/letters/mental-health.html?searchResultPosition=5
 
 **My Teenage Years With the Black Panthers**\
 `A photographer is reunited with images he made as a young man in the turbulent 1960s.`\
-https://nytimes.com/2022/10/29/opinion/black-panthers-photographs.html?searchResultPosition=5
+https://nytimes.com/2022/10/29/opinion/black-panthers-photographs.html?searchResultPosition=6
 
 **Classical Music Still Plays in the Theater of War**\
 `The reported killing of a Ukrainian conductor by Russian troops is a stark reminder that this art form is not irrelevant. `\
-https://nytimes.com/2022/10/29/opinion/classical-music-war-ukraine-russia.html?searchResultPosition=6
+https://nytimes.com/2022/10/29/opinion/classical-music-war-ukraine-russia.html?searchResultPosition=7
 
 **Science Has a Nasty Photoshopping Problem**\
 `Scientists need to toughen up about preventing fabricated scientific results from being published.`\
-https://nytimes.com/interactive/2022/10/29/opinion/science-fraud-image-manipulation-photoshop.html?searchResultPosition=7
+https://nytimes.com/interactive/2022/10/29/opinion/science-fraud-image-manipulation-photoshop.html?searchResultPosition=8
 
 **The Native American Artist Harnessing ‘Old Indian Tricks’**\
 `Hock E Aye Vi Edgar Heap of Birds uses a distinctive form of printmaking to convey the power of his people.`\
-https://nytimes.com/2022/10/29/us/old-indian-tricks-art-exhibit-edgar-heap-of-birds.html?searchResultPosition=8
+https://nytimes.com/2022/10/29/us/old-indian-tricks-art-exhibit-edgar-heap-of-birds.html?searchResultPosition=9
 
 **Vince Dooley, Hall of Fame Football Coach for Georgia, Dies at 90**\
 `In a 25-year coaching career, he appeared in 20 bowl games and won 201 games, the fourth-highest total in Southeastern Conference history.`\
-https://nytimes.com/2022/10/29/sports/football/vince-dooley-dead.html?searchResultPosition=9
-
-**Overlooked No More: Dorothy Spencer, Film Editor Sought Out by Big Directors**\
-`She worked with Alfred Hitchcock, Elia Kazan, Frank Capra and John Ford, and she was known for her deft touch, particularly with action movies.`\
-https://nytimes.com/2022/10/29/obituaries/dorothy-spencer-overlooked.html?searchResultPosition=10
+https://nytimes.com/2022/10/29/sports/football/vince-dooley-dead.html?searchResultPosition=10
 
