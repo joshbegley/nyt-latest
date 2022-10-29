@@ -10,7 +10,7 @@ https://nytimes.com/2022/10/29/books/carmen-callil-dead.html?searchResultPositio
 `The residents of tiny Piombino understand the need to replace Russian gas imports. They just want a huge regasification vessel anchored somewhere else.`\
 https://nytimes.com/2022/10/29/world/europe/italy-shipping-port-gas-russia.html?searchResultPosition=3
 
-**How Diversity Undermined Affirmative Action**\
+**Affirmative Action Has Become a Strange Monster**\
 `An admissions system that made sense as reparations has survived as something much more self-serving.`\
 https://nytimes.com/2022/10/29/opinion/supreme-court-affirmative-action.html?searchResultPosition=4
 
