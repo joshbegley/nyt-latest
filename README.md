@@ -26,8 +26,8 @@ https://nytimes.com/2022/10/30/sports/baseball/yordan-alvarez-astros-world-serie
 `Senator Raphael Warnock’s Sunday: a morning in the pulpit, then a Souls to the Polls event.`\
 https://nytimes.com/2022/10/30/us/politics/raphael-warnock-religion-campaign.html?searchResultPosition=7
 
-**Wilson and the Jets Stall Against an Old Rival**\
-`Zach Wilson threw three puzzling interceptions and the Jets turned over an early lead to the Patriots. New England has won the past 13 regular-season meetings.`\
+**Zach Wilson and the Jets Stall Against an Old Rival**\
+`Wilson threw three puzzling interceptions, and the Jets lost an early lead. New England has won the past 13 regular-season meetings.`\
 https://nytimes.com/2022/10/30/sports/football/jets-patriots-score-roughing.html?searchResultPosition=8
 
 **The Battle for Blue-Collar White Voters Raging in Biden’s Birthplace**\
