@@ -1,4 +1,4 @@
-**At Least 149 Killed in Halloween Crowd Surge in Seoul**\
+**At Least 151 Killed in Halloween Crowd Surge in Seoul**\
 `As many as 100,000 people were celebrating in a popular nightlife district in the center of the South Korean capital.`\
 https://nytimes.com/2022/10/29/world/asia/seoul-south-korea-dead-.html?searchResultPosition=1
 
