@@ -14,7 +14,7 @@ https://nytimes.com/2022/10/30/nyregion/malcom-x-muhammad-aziz-khalil-islam-sett
 `He fed material to gossip columns, buttered up reporters and banged on typewriters from the heyday of the Copacabana to the rise of reality TV.`\
 https://nytimes.com/2022/10/30/nyregion/sy-presten-dead.html?searchResultPosition=4
 
-**At Least 60 Dead in India as Suspension Bridge Collapses**\
+**At Least 60 Killed in India as Suspension Bridge Collapses**\
 `The bridge, in the state of Gujarat, was reopened recently after renovation.`\
 https://nytimes.com/2022/10/30/world/asia/india-bridge-collapse.html?searchResultPosition=5
 
