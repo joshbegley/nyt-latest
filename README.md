@@ -4,7 +4,7 @@ https://nytimes.com/2022/10/30/briefing/seoul-victim-halloween.html?searchResult
 
 **El tribunal electoral de Brasil pide respuesta a la policía de carreteras por bloqueos de tráfico**\
 `Ha habido decenas de informes en las redes sociales de agentes federales de carreteras que estaban deteniendo autobuses e interrogando a personas en varios estados de Brasil el domingo.`\
-https://nytimes.com/2022/10/30/espanol/america-latina/elecciones-brasil-bloqueo-trafico.html?searchResultPosition=2
+https://nytimes.com/2022/10/30/espanol/america-latina/elecciones-brasil-bloqueos-trafico.html?searchResultPosition=2
 
 **How the Jaguars Made Themselves at Home in London**\
 `Jacksonville has played nine regular-season N.F.L. games in London as the designated home team, but it did not control the environment until Sunday’s loss at Wembley Stadium.`\
