@@ -1,40 +1,40 @@
-**Witnesses describe the chaos in Itaewon.**\
-`With officials unsure of what caused the disaster, recollections from people who were there are helping to paint a fuller picture.`\
-https://nytimes.com/2022/10/29/world/asia/witnesses-chaos-itaewon-seoul.html?searchResultPosition=1
+**In Clash Over Affirmative Action, Both Sides Invoke Brown v. Board of Education**\
+`The Supreme Court will hear arguments on Monday about admissions policies at Harvard and the University of North Carolina — and the meaning of a civil rights landmark.`\
+https://nytimes.com/2022/10/30/us/supreme-court-affirmative-action-brown-board-education.html?searchResultPosition=1
 
-**Jake Paul, Still Seeking Legitimacy in Boxing, Beats Anderson Silva**\
-`Paul won a unanimous decision against Silva, who had a decorated U.F.C. career but was nearly double Paul’s age and had little pro boxing experience.`\
-https://nytimes.com/2022/10/30/sports/jake-paul-anderson-silva.html?searchResultPosition=2
+**King Tut Died Long Ago, but the Debate About His Tomb Rages On**\
+`Maybe the walls are disguising the undiscovered burial chamber of Nefertiti. Or “maybe it’s Al Capone’s safe.”`\
+https://nytimes.com/2022/10/30/science/tutankhamen-nefertiti-archaeology.html?searchResultPosition=2
 
-**What Machine Gun Kelly and Megan Fox Wore Last Week**\
-`Top outfits from the Time100 Next dinner, a Diwali gala and Creative Time cocktails.`\
-https://nytimes.com/2022/10/30/style/machine-gun-kelly-and-megan-fox-time100-parties.html?searchResultPosition=3
+**How the Hasidic Jewish Community Became a Political Force in New York**\
+`Elected officials rarely embrace positions that could antagonize Hasidic leaders, who typically encourage their community to vote as a unified bloc.`\
+https://nytimes.com/2022/10/30/nyregion/hasidic-political-power-new-york.html?searchResultPosition=3
 
-**Did Germany Learn From Its Russia Trouble? The Test May Come in China.**\
-`On the eve of Chancellor Olaf Scholz’s first trip to Beijing, concerns are growing that economic dependence on China is leaving his country vulnerable — again.`\
-https://nytimes.com/2022/10/30/world/europe/did-germany-learn-from-its-russia-trouble-the-test-may-come-in-china.html?searchResultPosition=4
+**We Need to Rethink How to Adapt to the Climate Crisis**\
+`What we’re doing now is not early enough.`\
+https://nytimes.com/2022/10/30/opinion/hurricanes-climate-adaptation.html?searchResultPosition=4
 
-**‘A Porter Was Hosing Down the Sidewalk, and Traffic Was Flowing’**\
-`Keeping a truck’s window clean, seeing “The Scream” and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2022/10/30/nyregion/metropolitan-diary.html?searchResultPosition=5
+**TV Prepares for a Chaotic Midterm Night**\
+`Broadcasters face challenges as they approach the climax of an election season marked by disinformation and distrust.`\
+https://nytimes.com/2022/10/30/business/media/tv-coverage-midterms.html?searchResultPosition=5
 
-**LIV Golf Threw a Sport Into Chaos. It Also Changed It.**\
-`The Saudi-backed golf series, which will expand next year, has forced the PGA Tour to redesign its economic model. The drama between the two golf entities seems far from over.`\
-https://nytimes.com/2022/10/30/sports/golf/liv-pga-trump-doral.html?searchResultPosition=6
+**A Factual Account of Truman Capote, Notorious Embroiderer of Truth**\
+`In “Deliberate Cruelty,” Roseanne Montillo delves into a grisly mystery involving one of the writer’s many nemeses.`\
+https://nytimes.com/2022/10/30/books/a-factual-account-of-truman-capote-notorious-embroiderer-of-truth.html?searchResultPosition=6
 
-**Following Up on America’s Downtowns**\
-`A team of reporters and photographers profiled 10 city centers across the country, all in varying stages of economic recovery and transformation.`\
-https://nytimes.com/2022/10/30/insider/following-up-on-americas-downtowns.html?searchResultPosition=7
+**Teaching Children About Climate Change**\
+`Two new picture books and a novel for young readers place children at the center of environmental calamity.`\
+https://nytimes.com/2022/10/30/books/review/teaching-children-about-climate-change-books.html?searchResultPosition=7
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/10/30/crosswords/spelling-bee-forum.html?searchResultPosition=8
+**An Ancient Bracelet, a Personal Haunting and an Overdue Reckoning**\
+`In Erika T. Wurth’s new horror novel, “White Horse,” a woman searches for the truth about her vanished mother, an investigation that involves confronting literal and metaphorical ghosts.`\
+https://nytimes.com/2022/10/30/books/review/white-horse-erika-t-wurth.html?searchResultPosition=8
 
-**Kyrie Irving Defends Antisemitic Documentary and Conspiracy Theory**\
-`Irving, the Nets guard, is facing backlash, but said he was “not going to stand down on anything I believe in.”`\
-https://nytimes.com/2022/10/30/sports/basketball/kyrie-irving-antisemitic-conspiracy-theory.html?searchResultPosition=9
+**Homes That Sold for Around $1.5 Million**\
+`Recent residential sales in New York City and the region.`\
+https://nytimes.com/2022/10/30/realestate/homes-sold-2-million-dollars.html?searchResultPosition=9
 
-**‘S.N.L.’ Takes on Herschel Walker, Dr. Oz and Kari Lake**\
-`Tom Hanks also returned to “Saturday Night Live” for a Halloween episode hosted by Jack Harlow. Any questions?`\
-https://nytimes.com/2022/10/30/arts/television/saturday-night-live.html?searchResultPosition=10
+**Bono, With or Without U2**\
+`In his new book, “Surrender,” the singer remembers hanging out with everyone from the Edge to Bill Gates.`\
+https://nytimes.com/2022/10/30/books/review/bono-memoir-surrender-40-songs-one-story.html?searchResultPosition=10
 
