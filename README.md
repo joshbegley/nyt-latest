@@ -6,7 +6,7 @@ https://nytimes.com/2022/10/30/pageoneplus/corrections-oct-30-2022.html?searchRe
 `Quotation of the Day for Sunday, October 30, 2022.`\
 https://nytimes.com/2022/10/30/todayspaper/quotation-of-the-day-cheap-drones-and-western-weapons-turn-tide.html?searchResultPosition=2
 
-**Astros Even Series by Making an Early Lead Hold Up**\
+**Astros Even Series as Jose Altuve Breaks Out of His Funk**\
 `Houston set the tone against Philadelphia with three straight hits to start the game, giving Framber Valdez and the Astros bullpen all the support they needed for a big win at home.`\
 https://nytimes.com/2022/10/29/sports/baseball/world-series-astros-game-2-phillies.html?searchResultPosition=3
 
