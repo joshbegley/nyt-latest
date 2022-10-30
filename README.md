@@ -1,5 +1,5 @@
 **Witnesses describe the chaos in Itaewon.**\
-`With officials unsure of what caused the distaster, recollections from people who were there are helping to paint a fuller picture.`\
+`With officials unsure of what caused the disaster, recollections from people who were there are helping to paint a fuller picture.`\
 https://nytimes.com/2022/10/29/world/asia/witnesses-chaos-itaewon-seoul.html?searchResultPosition=1
 
 **Jake Paul, Still Seeking Legitimacy in Boxing, Beats Anderson Silva**\
