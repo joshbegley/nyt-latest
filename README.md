@@ -10,31 +10,31 @@ https://nytimes.com/2022/10/30/business/retail-superhero-products.html?searchRes
 `The pandemic tested and reshaped the hearts of American cities.`\
 https://nytimes.com/2022/10/30/briefing/downtown-america.html?searchResultPosition=3
 
+**Halloween is a recent arrival in South Korea, but a cherished tradition in diverse Itaewon.**\
+`As Seoul has grown more cosmopolitan, and an increasing number of South Koreans have lived abroad and returned, Halloween has become a more popular occasion.`\
+https://nytimes.com/2022/10/29/world/asia/itaewon-halloween-south-korea.html?searchResultPosition=4
+
 **The Week in Business: Twitter Enters a New Era**\
 `Tech companies start to feel the economic pain. The Fed is poised to announce another three-quarter point increase in its benchmark rate. The jobs report is coming.`\
-https://nytimes.com/2022/10/30/business/the-week-in-business-twitter-enters-a-new-era.html?searchResultPosition=4
+https://nytimes.com/2022/10/30/business/the-week-in-business-twitter-enters-a-new-era.html?searchResultPosition=5
 
 **Tensions Over Racism Rock Australian Netball**\
 `“It’s been one of the toughest few weeks of my life,” one player said.`\
-https://nytimes.com/2022/10/30/world/australia/netball-australia-donnell-wallam-racism.html?searchResultPosition=5
+https://nytimes.com/2022/10/30/world/australia/netball-australia-donnell-wallam-racism.html?searchResultPosition=6
 
 **Death Toll in Somalia Attack Rises to at Least 100**\
 `The twin explosions were the deadliest terrorist attack in the country in five years and underscored the growing threat posed by the terrorist group Al Shabab.`\
-https://nytimes.com/2022/10/30/world/africa/somalia-shabab-terrorist-attack.html?searchResultPosition=6
+https://nytimes.com/2022/10/30/world/africa/somalia-shabab-terrorist-attack.html?searchResultPosition=7
 
 **Virus Research Can Save Lives. It Can Also be Safer.**\
 `A way forward for lab safety.`\
-https://nytimes.com/2022/10/30/opinion/virology-safety.html?searchResultPosition=7
+https://nytimes.com/2022/10/30/opinion/virology-safety.html?searchResultPosition=8
 
 **The Sunday Read: ‘Why We Take Animal Voyages’**\
 `What I’ve learned from a lifetime of voyaging with animals.`\
-https://nytimes.com/2022/10/30/podcasts/the-daily/animal-voyages.html?searchResultPosition=8
+https://nytimes.com/2022/10/30/podcasts/the-daily/animal-voyages.html?searchResultPosition=9
 
 **The Season of Dark Academia**\
 `The literary genre of “dark academia” may now be less dark than actual academia.`\
-https://nytimes.com/2022/10/30/opinion/dark-academia-halloween.html?searchResultPosition=9
-
-**For one family, a ringing phone and hope that their only daughter was not on the list of the dead.**\
-`Shin Su-Bin was out celebrating Halloween with friends when her father saw reports of the deadly crush.`\
-https://nytimes.com/2022/10/30/world/asia/victim-family-wait.html?searchResultPosition=10
+https://nytimes.com/2022/10/30/opinion/dark-academia-halloween.html?searchResultPosition=10
 
