@@ -20,7 +20,7 @@ https://nytimes.com/2022/10/29/world/asia/itaewon-halloween-south-korea.html?sea
 
 **The Week in Business: Twitter Enters a New Era**\
 `Tech companies start to feel the economic pain. The Fed is poised to announce another three-quarter point increase in its benchmark rate. The jobs report is coming.`\
-https://nytimes.com/2022/10/30/business/the-week-in-business-twitter-enters-a-new-era.html?searchResultPosition=6
+https://nytimes.com/2022/10/30/business/twitter-fed-jobs-report.html?searchResultPosition=6
 
 **Tensions Over Racism Rock Australian Netball**\
 `“It’s been one of the toughest few weeks of my life,” one player said.`\
