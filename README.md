@@ -3,7 +3,7 @@
 https://nytimes.com/2022/10/30/opinion/affirmative-action-harvard-unc-supreme-court.html?searchResultPosition=1
 
 **Legal Abortions Fell Around 6 Percent in Two Months After End of Roe**\
-`The procedures declined by more than 10,000, new data shows.`\
+`New data shows that the number of abortions fell by more than 10,000.`\
 https://nytimes.com/2022/10/30/upshot/legal-abortions-fall-roe.html?searchResultPosition=2
 
 **Can Elon Musk Make the Math Work on Owning Twitter? It’s Dicey.**\
