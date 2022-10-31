@@ -19,7 +19,7 @@ https://nytimes.com/video/world/americas/100000008608784/lula-brazil-election-vi
 https://nytimes.com/2022/10/31/us/political-violence-paul-pelosi.html?searchResultPosition=5
 
 **Diary of a Spelling Bee Fanatic**\
-`Entries for the week of Oct. 31, 2022.`\
+`Entries for the week of Oct. 24, 2022.`\
 https://nytimes.com/2022/10/31/crosswords/spelling-bee-diary.html?searchResultPosition=6
 
 **Wordle Wrap-Up: Oct. 24 to 30**\
