@@ -1,4 +1,4 @@
-**Moldova says it will treat the Russian missile debris as an accident.**\
+**Moldova condemns Russian strikes after missile debris lands in its territory.**\
 `Parts of a Russian missile intercepted by Ukrainian air defenses landed in a Moldovan border village on Monday.`\
 https://nytimes.com/2022/10/31/world/europe/moldova-russia-missile-debris-war.html?searchResultPosition=1
 
