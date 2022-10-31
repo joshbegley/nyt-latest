@@ -1,6 +1,6 @@
 **Sparks Fly as Musk Moves Fast to Remake Twitter**\
 `The social network’s new owner wants to cut costs and make money from more aspects of tweeting. But some advertisers and celebrities remain cautious.`\
-https://nytimes.com/2022/10/31/business/dealbook/elon-musk-remake-twitter-lebron-james-advertisers.html?searchResultPosition=1
+https://nytimes.com/2022/10/31/business/dealbook/elon-musk-twitter-lebron-james-advertisers.html?searchResultPosition=1
 
 **China Launches Its Space Station’s Third and Final Module**\
 `Completing the Tiangong space station is the latest step in Beijing’s effort to match and eventually surpass the United States in space exploration.`\
