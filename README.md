@@ -1,4 +1,4 @@
-**Trump Organization Trial Opens, and the Talk Is About 2 Men**\
+**In Trump Company Trial, Each Side Finds a Villain**\
 `In a case that centers on tax law, defense lawyers blame the company’s former chief financial officer. Prosecutors bring up the former president.`\
 https://nytimes.com/2022/10/31/nyregion/trump-organization-tax-weisselberg.html?searchResultPosition=2
 
