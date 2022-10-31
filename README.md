@@ -26,15 +26,15 @@ https://nytimes.com/2022/10/31/opinion/oregon-governor-race.html?searchResultPos
 `Inflation is high, but a lot has gone right.`\
 https://nytimes.com/2022/10/31/opinion/the-truth-about-americas-economic-recovery.html?searchResultPosition=7
 
-**An Achilles’ heel for House Democrats: the open seat**\
-`A rash of retirements has made a tough campaign even tougher.`\
-https://nytimes.com/2022/10/31/us/politics/democrats-house-open-seats-republicans.html?searchResultPosition=8
-
 **Republicans Continue to Spread Baseless Claims About Pelosi Attack**\
 `Some of the conspiracy theories have already seeped into the Republican mainstream.`\
-https://nytimes.com/2022/10/31/technology/pelosi-attack-misinformation-conspiracy-republicans.html?searchResultPosition=9
+https://nytimes.com/2022/10/31/technology/pelosi-attack-misinformation-conspiracy-republicans.html?searchResultPosition=8
 
 **Elon Musk, Plus a Circle of Confidants, Tightens Control Over Twitter**\
 `The billionaire and a group of his friends and advisers are working on layoff plans and how to swiftly change Twitter’s product, said people with knowledge of the matter.`\
-https://nytimes.com/2022/10/31/technology/elon-musk-twitter-control.html?searchResultPosition=10
+https://nytimes.com/2022/10/31/technology/elon-musk-twitter-control.html?searchResultPosition=9
+
+**Looking for Affordable Housing in New York? Here’s Where to Find It.**\
+`Enter your household income and size, and we’ll tell you what housing programs you may be eligible for and how to apply.`\
+https://nytimes.com/interactive/2022/10/31/realestate/affordable-housing-calculator.html?searchResultPosition=10
 
