@@ -18,7 +18,7 @@ https://nytimes.com/2022/10/31/world/asia/seoul-halloween-crowd-accountability.h
 `The multimillionaire said on Instagram that he “can’t and won’t be associated with a fascist country.”`\
 https://nytimes.com/2022/10/31/world/europe/oleg-tinkov-russia-citizenship.html?searchResultPosition=5
 
-**Trump companies’ defense lawyers are a thrown-together team.**\
+**Trump companies’ defense lawyers form an eclectic team.**\
 `The defense team includes a personal injury lawyer from Philadelphia and two New York criminal lawyers who have defended mobsters and white collar defendants.`\
 https://nytimes.com/2022/10/31/nyregion/trump-companies-defense-lawyers.html?searchResultPosition=6
 
