@@ -34,7 +34,7 @@ https://nytimes.com/2022/10/31/theater/romeo-and-juliet-andrew-rincon-review.htm
 `Why is generating capacity growing so slowly?`\
 https://nytimes.com/2022/10/31/opinion/energy-transition-electricity-us.html?searchResultPosition=9
 
-**Suspect in Attack on Pelosi Home Charged With Assault and Attempted Kidnapping**\
+**Intruder Wanted to Break Speaker Pelosi’s Kneecaps, Federal Complaint Says**\
 `Federal prosecutors filed charges on Monday against the man the police said broke into House Speaker Nancy Pelosi’s San Francisco home and struck her husband with a hammer.`\
 https://nytimes.com/2022/10/31/us/pelosi-home-attack-suspect-charged.html?searchResultPosition=10
 
