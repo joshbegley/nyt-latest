@@ -10,21 +10,21 @@ https://nytimes.com/2022/10/31/movies/documentaries-streaming.html?searchResultP
 `With eight days until Election Day, the candidates in New York’s governors race are hoping popular politicians can help them drum up support from their bases.`\
 https://nytimes.com/2022/10/31/nyregion/zeldin-youngkin-hochul-voters.html?searchResultPosition=3
 
-**Judge Blocks a Merger of Big Publishers**\
-`The government’s case against Penguin Random House’s bid to acquire Simon & Schuster reflected a more aggressive approach to curbing consolidation. It was closely watched by the publishing industry.`\
+**Judge Blocks a Merger of Penguin Random House and Simon & Schuster**\
+`The government’s case blocked the merger of two of the United States’ largest publishers and reflected a more aggressive approach to curbing consolidation. It was closely watched by the publishing industry.`\
 https://nytimes.com/2022/10/31/books/penguin-random-house-simon-schuster.html?searchResultPosition=4
 
 **Russian Missiles Deliver New Woe to Kyiv, Knocking Out Tap Water**\
 `Moscow kept up its campaign to destroy civilian infrastructure, in an apparent bid — so far unsuccessful — to break Ukrainian morale by making cities unlivable.`\
 https://nytimes.com/2022/10/31/world/europe/russia-ukraine-kyiv-water.html?searchResultPosition=5
 
-**The Truth About America’s Economic Recovery**\
-`Inflation is high, but a lot has gone right.`\
-https://nytimes.com/2022/10/31/opinion/the-truth-about-americas-economic-recovery.html?searchResultPosition=6
-
 **If Oregon Turns Red, Whose Fault Will That Be?**\
 `Disorder in Portland has created unexpected peril for Democrats.`\
-https://nytimes.com/2022/10/31/opinion/oregon-governor-race.html?searchResultPosition=7
+https://nytimes.com/2022/10/31/opinion/oregon-governor-race.html?searchResultPosition=6
+
+**The Truth About America’s Economic Recovery**\
+`Inflation is high, but a lot has gone right.`\
+https://nytimes.com/2022/10/31/opinion/the-truth-about-americas-economic-recovery.html?searchResultPosition=7
 
 **An Achilles’ heel for House Democrats: the open seat**\
 `A rash of retirements has made a tough campaign even tougher.`\
