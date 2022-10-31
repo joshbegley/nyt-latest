@@ -2,7 +2,7 @@
 `Tell us in 100 words or less what you are thankful for in 2022.`\
 https://nytimes.com/2022/10/31/well/tiny-gratitude-stories.html?searchResultPosition=1
 
-**Read the criminal complaint**\
+**Read the federal criminal complaint**\
 `Prosecutors filed charges on Monday against the man accused of attacking Nancy Pelosi’s husband.`\
 https://nytimes.com/interactive/2022/10/31/us/david-depape-criminal-complaint.html?searchResultPosition=2
 
