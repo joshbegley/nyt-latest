@@ -4,7 +4,7 @@ https://nytimes.com/2022/10/31/opinion/energy-transition-electricity-us.html?sea
 
 **Suspect in Attack on Pelosi Home Charged With Assault and Attempted Kidnapping**\
 `Federal prosecutors filed charges on Monday against the man the police said broke into House Speaker Nancy Pelosi’s San Francisco home and struck her husband with a hammer.`\
-https://nytimes.com/2022/10/31/us/suspect-in-attack-on-pelosi-home-charged-with-assault-and-attempted-kidnapping.html?searchResultPosition=2
+https://nytimes.com/2022/10/31/us/pelosi-home-attack-suspect-charged.html?searchResultPosition=2
 
 **Even as NFTs Plummet, Digital Artists Find Museums Are Calling**\
 `After decades as outcasts, digital artists are receiving a warm reception from curators at major museums looking to embrace new audiences and retain wealthy donors from the NFT boom.`\
