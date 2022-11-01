@@ -3,7 +3,7 @@
 https://nytimes.com/2022/11/01/business/dealbook/elon-musk-twitter-court-legal-battles-pay-layoffs.html?searchResultPosition=1
 
 **New Faces Celebrate Día de Los Muertos**\
-`We visited a job center for day laborers on Staten Island that was planning for two big events: graduation for a construction safety course, and a ceremony marking the Mexican Day of the Dead.`\
+`We visited a job center for day laborers on Staten Island that was planning for two big events: graduation for a construction safety course, and a ceremony marking the Mexican Day of the Dead. `\
 https://nytimes.com/interactive/2022/11/01/nyregion/Da-de-Los-Muertos.html?searchResultPosition=2
 
 **Affirmative Action’s Future**\
