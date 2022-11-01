@@ -1,40 +1,40 @@
-**Long Line of Ladies**\
-`In Northern California, the Karuk people celebrate a girl’s first period in a coming-of-age ceremony.`\
-https://nytimes.com/video/opinion/100000008461725/long-line-of-ladies.html?searchResultPosition=1
+**A Minimalist House for Clutter-Free Living (Despite the Kids)**\
+`A Southern California designer wanted to create a home where “everything gets put away at night” — and she succeeded. Sort of.`\
+https://nytimes.com/2022/11/01/realestate/southern-california-minimalist-home.html?searchResultPosition=1
 
-**American Money Has Discovered Indian Cricket**\
-`Billion-dollar investment funds and N.F.L. ownership groups are among those angling for a foothold in the Indian Premier League. The returns, not the sport, are the draw.`\
-https://nytimes.com/2022/11/01/sports/cricket/indian-cricket-us-investors.html?searchResultPosition=2
+**Southern California Minimalism with Old World Charm**\
+`An interior designer wanted to create a home where “everything gets put away at night” — and she succeeded. Sort of.`\
+https://nytimes.com/slideshow/2022/11/01/realestate/southern-california-minimalism-with-old-world-charm.html?searchResultPosition=2
 
-**Trevor Noah Brings ‘The Daily Show’ to Georgia**\
-`Noah kicked off a week of taping in Atlanta on Monday ahead of next week’s big elections.`\
-https://nytimes.com/2022/11/01/arts/television/trevor-noah-daily-show-georgia.html?searchResultPosition=3
+**In Hunt to Solve ‘Fairy Circle’ Mystery, One Suspect Is Dismissed**\
+`Water competition, termites and poisons have all been credited with causing the formations in an African desert’s vegetation, but researchers say a new study discounts one of them.`\
+https://nytimes.com/2022/11/01/science/fairy-circles-cause-water-termites.html?searchResultPosition=3
 
-**Why Does Israel Keep Having Elections?**\
-`A divided electorate and shifting alliances make for a delicate balance in the country’s voting outcomes and lawmakers’ ability to hold diverse blocs together.`\
-https://nytimes.com/2022/11/01/world/middleeast/israel-why-many-elections.html?searchResultPosition=4
+**The Democrats’ Last Stand in Wisconsin**\
+`With the G.O.P. in control of a majority of statehouses, Democrats are fighting for seats in battleground states. Is it too late?`\
+https://nytimes.com/2022/11/01/magazine/wisconsin-democrats.html?searchResultPosition=4
 
-**The Fading Art of Preserving the Dead**\
-`A dwindling group of professionals is tasked with navigating the often fraught passage from life to death.`\
-https://nytimes.com/2022/11/01/science/embalming-funerals-death.html?searchResultPosition=5
+**From Nashville to Tupelo on the Natchez Trace Parkway**\
+`With no billboards or gas stations, a fall drive along this winding, verdant All-American Road, is a head-clearing journey, offering encounters with history, nature, music and more.`\
+https://nytimes.com/2022/11/01/travel/natchez-park-traceway-driving.html?searchResultPosition=5
 
-**In Close, Crucial Governor’s Races, Poll Finds Sharp Split on Elections**\
-`In Arizona, voters are narrowly divided on whether to elect a prominent Trump-backed election denier. In Pennsylvania, they appear likely to reject a similarly minded Republican.`\
-https://nytimes.com/2022/11/01/us/politics/midterm-elections-governor-key-races.html?searchResultPosition=6
+**Inquiry Scrutinizes Trump Allies’ False Claims About Election Worker**\
+`Prosecutors are seeking testimony from three people who took part in the pressure campaign against the worker, Ruby Freeman, after the 2020 election.`\
+https://nytimes.com/2022/11/01/us/trump-georgia-election-ruby-freeman.html?searchResultPosition=6
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/11/01/crosswords/spelling-bee-forum.html?searchResultPosition=7
+**A 16th-Century French Chateau That Honors a Family’s Histories of Exile**\
+`For centuries, the owners of an ancestral estate have sought to secure within its walls the worlds they lost.`\
+https://nytimes.com/2022/11/01/t-magazine/chateau-montalembert-france-home-design.html?searchResultPosition=7
 
-**Red Poster**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2022/11/01/learning/red-poster.html?searchResultPosition=8
+**In a New Novel, Percival Everett Riffs Gleefully on 007**\
+`“Dr. No,” which borrows its name from an early James Bond story, features a math professor who’s recruited by a supervillain.`\
+https://nytimes.com/2022/11/01/books/review/in-a-new-novel-percival-everett-riffs-gleefully-on-007.html?searchResultPosition=8
 
-**When Picasso Created an Image of Notre-Dame, All in Glass**\
-`The “gemmail” — a glass mosaic — will go on the auction block with an estimate of at least $1 million.`\
-https://nytimes.com/2022/11/01/nyregion/picasso-notre-dame-gemmail.html?searchResultPosition=9
+**What Does the End of Yeezy Mean for the Sneakerverse?**\
+`Rampant speculation has entered the market.`\
+https://nytimes.com/2022/11/01/style/adidas-yeezy-nike-sneaker-market.html?searchResultPosition=9
 
-**Word of the Day: omniscient**\
-`This word has appeared in 49 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/11/01/learning/word-of-the-day-omniscient.html?searchResultPosition=10
+**Truth Social’s Influence Grows Despite Its Business Problems**\
+`The right-wing social network faces two federal investigations and an uncertain financial future. But it has still managed to outpace its rivals.`\
+https://nytimes.com/2022/11/01/technology/truth-social-conservative-social-app.html?searchResultPosition=10
 
