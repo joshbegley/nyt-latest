@@ -1,5 +1,5 @@
 **Bernard Rosen, Budget Brain for Four New York City Mayors, Dies at 91**\
-`“There wasn’t a budget director in the last 50 years who didn’t rely on Bernie,” said one of his acolytes in city government.`\
+`He knew how to find hidden pots of money. “There wasn’t a budget director in the last 50 years who didn’t rely on Bernie,” one of his acolytes said.`\
 https://nytimes.com/2022/11/01/nyregion/bernard-rosen-dead.html?searchResultPosition=1
 
 **The Visual Artist Who Thinks of Herself as a Dancer or an Aviator**\
