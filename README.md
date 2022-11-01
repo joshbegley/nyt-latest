@@ -11,7 +11,7 @@ https://nytimes.com/2022/11/01/dining/new-yorks-hottest-club-is-the-penn-station
 https://nytimes.com/2022/11/01/movies/barry-keoghan-banshees-inisherin.html?searchResultPosition=3
 
 **What’s next for the Amazon?**\
-`The election is over. We talked people on both sides of Brazil’s political divide about their expectations.`\
+`The election is over. We talked to people on both sides of Brazil’s political divide about their expectations.`\
 https://nytimes.com/2022/11/01/climate/amazon-climate-lula-bolsonaro.html?searchResultPosition=4
 
 **A Surge of Overseas Abortion Pills Blunted the Effects of State Abortion Bans**\
