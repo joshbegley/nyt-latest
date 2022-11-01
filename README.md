@@ -1,6 +1,6 @@
 **Correction Officer Is Stabbed in Head by Rikers Inmate**\
 `The officer was seriously injured in the attack, which took place in the protective custody unit at Rikers, a union official said.`\
-https://nytimes.com/2022/10/31/nyregion/rikers-inmate-stabbing-corrections-officer.html?searchResultPosition=1
+https://nytimes.com/2022/10/31/nyregion/rikers-inmate-stabbing-correction-officer.html?searchResultPosition=1
 
 **In Trump Company Trial, Each Side Finds a Villain**\
 `In a case that centers on tax law, defense lawyers blame the company’s former chief financial officer. Prosecutors bring up the former president.`\
