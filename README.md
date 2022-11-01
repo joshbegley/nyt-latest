@@ -1,5 +1,5 @@
 **Mike Pence Visits Georgia as Gov. Brian Kemp Plays Up Early Turnout**\
-`The former vice president was the first of several prominent Republicans who will visit before Election Day in support of Mr. Pence, who stressed the importance of voting.`\
+`The former vice president was the first of several prominent Republicans who will visit before Election Day in support of Mr. Kemp.`\
 https://nytimes.com/2022/11/01/us/politics/georgia-election-pence-kemp.html?searchResultPosition=1
 
 **A Coach Who Has ‘Seen It All’ Keeps Making the World Series**\
