@@ -1,4 +1,4 @@
-**Biden Verbally Fumbles, Twice, During Campaign Stop in Florida**\
+**Biden Verbally Fumbles, Twice, During Campaign Trip in Florida**\
 `The president confused the American war in Iraq with the Russian war in Ukraine and then misstated how his son Beau died.`\
 https://nytimes.com/2022/11/01/us/politics/biden-ukraine-iraq-beau.html?searchResultPosition=6
 
