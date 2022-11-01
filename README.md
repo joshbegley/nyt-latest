@@ -6,7 +6,7 @@ https://nytimes.com/2022/10/31/crosswords/daily-puzzle-2022-11-01.html?searchRes
 `The Houston Astros and the Philadelphia Phillies are tied at one game apiece. The series is scheduled to resume Tuesday, and each remaining game will be pushed back one day.`\
 https://nytimes.com/2022/10/31/sports/baseball/world-series-astros-game-3-phillies.html?searchResultPosition=2
 
-**Correction Officer Is Stabbed in Head by Rikers Inmate**\
+**Correction Officer Is Stabbed in Head by Rikers Detainee**\
 `The officer was seriously injured in the attack, which took place in the protective custody unit at Rikers, a union official said.`\
 https://nytimes.com/2022/10/31/nyregion/rikers-inmate-stabbing-correction-officer.html?searchResultPosition=3
 
