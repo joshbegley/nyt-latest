@@ -1,40 +1,40 @@
+**Why Does Israel Keep Having Elections?**\
+`A divided electorate and shifting alliances make for a delicate balance in the country’s voting outcomes and lawmakers’ ability to hold diverse blocs together.`\
+https://nytimes.com/2022/11/01/world/middleeast/israel-why-many-elections.html?searchResultPosition=1
+
+**The Fading Art of Preserving the Dead**\
+`A dwindling group of professionals is tasked with navigating the often fraught passage from life to death.`\
+https://nytimes.com/2022/11/01/science/embalming-funerals-death.html?searchResultPosition=2
+
+**In Close, Crucial Governor’s Races, Poll Finds Sharp Split on Elections**\
+`In Arizona, voters are narrowly divided on whether to elect a prominent Trump-backed election denier. In Pennsylvania, they appear likely to reject a similarly minded Republican.`\
+https://nytimes.com/2022/11/01/us/politics/midterm-elections-governor-key-races.html?searchResultPosition=3
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2022/11/01/crosswords/spelling-bee-forum.html?searchResultPosition=4
+
+**Red Poster**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://nytimes.com/2022/11/01/learning/red-poster.html?searchResultPosition=5
+
 **When Picasso Created an Image of Notre-Dame, All in Glass**\
 `The “gemmail” — a glass mosaic — will go on the auction block with an estimate of at least $1 million.`\
-https://nytimes.com/2022/11/01/nyregion/picasso-notre-dame-gemmail.html?searchResultPosition=1
+https://nytimes.com/2022/11/01/nyregion/picasso-notre-dame-gemmail.html?searchResultPosition=6
 
 **Word of the Day: omniscient**\
 `This word has appeared in 49 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/11/01/learning/word-of-the-day-omniscient.html?searchResultPosition=2
+https://nytimes.com/2022/11/01/learning/word-of-the-day-omniscient.html?searchResultPosition=7
 
 **Your Tuesday Briefing**\
 `Skyrocketing inflation in Europe.`\
-https://nytimes.com/2022/11/01/briefing/inflation-brazil-russia.html?searchResultPosition=3
+https://nytimes.com/2022/11/01/briefing/inflation-brazil-russia.html?searchResultPosition=8
 
 **Up to 14 People Are Wounded in Chicago Shooting**\
 `The victims included a 3-year-old child, the police said. There were no immediate reports of fatalities.`\
-https://nytimes.com/2022/11/01/us/chicago-shooting-halloween.html?searchResultPosition=4
+https://nytimes.com/2022/11/01/us/chicago-shooting-halloween.html?searchResultPosition=9
 
 **No, Putin Didn’t Awaken Ukraine**\
 `The country has a profound story to tell.`\
-https://nytimes.com/2022/11/01/opinion/ukraine-war-national-identity.html?searchResultPosition=5
-
-**In Israel’s Election, the Judiciary Is on Trial**\
-`Everyone’s eyes are on Benjamin Netanyahu as Israelis head back to the polls. It’s the Supreme Court they should be most worried about.`\
-https://nytimes.com/2022/11/01/opinion/in-israels-election-the-judiciary-is-on-trial.html?searchResultPosition=6
-
-**Corrections: Nov. 1, 2022**\
-`Corrections that appeared in print on Tuesday, Nov. 1, 2022.`\
-https://nytimes.com/2022/11/01/pageoneplus/corrections-nov-1-2022.html?searchResultPosition=7
-
-**2-Minute Showers and a Flotilla of Gas Shipments: Europe Braces for Winter**\
-`Countries across the continent have taken extraordinary steps to decrease energy use and ramp up supply, moving swiftly away from their longtime primary provider, Russia.`\
-https://nytimes.com/2022/11/01/business/europe-energy-crisis.html?searchResultPosition=8
-
-**Suit by Meadows Seeking to Block Jan. 6 Panel’s Subpoenas Is Dismissed**\
-`The decision does not necessarily mean the committee will get the information it is seeking.`\
-https://nytimes.com/2022/10/31/us/politics/meadows-jan-6-committee-lawsuit.html?searchResultPosition=9
-
-**Prosecutor Announces Charges Against Suspect in Pelosi Attack**\
-`David DePape, who is accused of breaking into the San Francisco home of Speaker Nancy Pelosi, was charged with attempting to kidnap Ms. Pelosi and with assaulting a relative of a federal official.`\
-https://nytimes.com/video/us/politics/100000008610372/pelosi-attack-suspect-charges.html?searchResultPosition=10
+https://nytimes.com/2022/11/01/opinion/ukraine-war-national-identity.html?searchResultPosition=10
 
