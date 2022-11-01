@@ -2,7 +2,7 @@
 `Republicans had sued to stop election officials from counting noncompliant ballots, which could again become a crucial point of contention in the battleground state.`\
 https://nytimes.com/2022/11/01/us/politics/pennsylvania-supreme-court-declares-mail-in-ballots-without-dates-invalid.html?searchResultPosition=1
 
-**John McVay, Key Figure in the Making of a 49ers’ Dynasty, Dies at 91**\
+**John McVay, Key Figure in the Making of a 49ers Dynasty, Dies at 91**\
 `He rebounded from the humiliation of “the fumble” as coach of the ’78 New York Giants to help San Francisco win five Super Bowls over 14 seasons as a top team executive.`\
 https://nytimes.com/2022/11/01/sports/football/john-mcvay-dead.html?searchResultPosition=2
 
