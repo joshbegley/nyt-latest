@@ -1,4 +1,4 @@
-**Do You Have to Sign and Date Mail-in Ballots in Pennsylvania?**\
+**Do You Have to Sign and Date Mail-In Ballots in Pennsylvania?**\
 `The state’s top election official has said ballots that are signed but not dated should still be counted if they’re returned by Nov. 8. But it’s probably a good idea to make sure to date it, anyway.`\
 https://nytimes.com/article/voting-mail-in-ballot-pennsylvania.html?searchResultPosition=1
 
