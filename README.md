@@ -6,9 +6,9 @@ https://nytimes.com/2022/10/31/sports/baseball/world-series-astros-game-3-philli
 `The officer was seriously injured in the attack, which took place in the protective custody unit at Rikers, a union official said.`\
 https://nytimes.com/2022/10/31/nyregion/rikers-inmate-stabbing-correction-officer.html?searchResultPosition=2
 
-**Justice Dept. says First Amendment may not protect self-appointed drop box monitors in Arizona.**\
-`By Ken Bensinger`\
-https://nytimes.com/2022/10/31/us/politics/justice-dept-says-first-amendment-may-not-protect-self-appointed-drop-box-monitors-in-arizona.html?searchResultPosition=4
+**Justice Dept. Questions Drop Box Monitoring in Arizona**\
+`A brief filed in U.S. District Court in Phoenix says, “the First Amendment does not protect individuals’ right to assemble to engage in voter intimidation or coercion.”`\
+https://nytimes.com/2022/10/31/us/politics/justice-department-arizona-drop-boxes.html?searchResultPosition=4
 
 **In Trump Company Trial, Each Side Finds a Villain**\
 `In a case that centers on tax law, defense lawyers blame the company’s former chief financial officer. Prosecutors bring up the former president.`\
