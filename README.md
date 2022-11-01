@@ -1,4 +1,4 @@
-**Steve Nash Out as Nets Coach**\
+**Nets Fire Coach Steve Nash**\
 `The Nets have struggled to a 2-5 start, and their star guard Kyrie Irving is under fire for promoting an antisemitic documentary.`\
 https://nytimes.com/2022/11/01/sports/basketball/steve-nash-fired-nets.html?searchResultPosition=1
 
