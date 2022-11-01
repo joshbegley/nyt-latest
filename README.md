@@ -22,8 +22,8 @@ https://nytimes.com/2022/11/01/briefing/affirmative-action-supreme-court.html?se
 `The ride-hailing company had strong revenue growth, but it still lost money in part because of its investments in other ride-hailing businesses.`\
 https://nytimes.com/2022/11/01/technology/uber-revenue.html?searchResultPosition=6
 
-**Saudi Aramco Reports $42 Billion in Profit as Cash Rolls In**\
-`The bumper earnings from the world’s largest oil company were, nonetheless, a slight decline on the previous quarter.`\
+**Saudi Aramco Reports $42 Billion in Profit as Cash Rolls In for Oil Giants**\
+`Bumper earnings from Aramco, the world’s largest oil company, and BP were, nonetheless, a slight decline on the previous quarter.`\
 https://nytimes.com/2022/11/01/business/saudi-aramco-oil-profit.html?searchResultPosition=7
 
 **What Do American’s Middle Schools Teach About Climate Change? Not Much.**\
