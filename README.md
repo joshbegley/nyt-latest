@@ -4,7 +4,7 @@ https://nytimes.com/2022/11/01/briefing/affirmative-action-supreme-court.html?se
 
 **Uber’s Revenue Is Up 72 Percent From Last Year, but It Posts a Loss**\
 `The ride-hailing company had strong revenue growth, but it still lost money in part because of its investments in other ride-hailing businesses.`\
-https://nytimes.com/2022/11/01/technology/ubers-revenue-is-up-72-percent-from-last-year-but-it-posts-a-loss.html?searchResultPosition=2
+https://nytimes.com/2022/11/01/technology/uber-revenue.html?searchResultPosition=2
 
 **Saudi Aramco Reports $42 Billion in Profit as Cash Rolls In**\
 `The bumper earnings from the world’s largest oil company were, nonetheless, a slight decline on the previous quarter.`\
