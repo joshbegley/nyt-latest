@@ -1,6 +1,6 @@
 **Key Witness Has Covid, Disrupting Trump Organization Trial After One Day**\
 `Jeffrey S. McConney, the company’s controller, had coughing fits on the stand. The judge said the trial would likely resume Monday, but that many in the courtroom were at risk.`\
-https://nytimes.com/2022/11/01/nyregion/key-witness-has-covid-disrupting-trump-organization-trial-after-one-day.html?searchResultPosition=1
+https://nytimes.com/2022/11/01/nyregion/trump-organization-trial-mcconney-covid.html?searchResultPosition=1
 
 **Tiny Love Stories: ‘I Love Drama’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
