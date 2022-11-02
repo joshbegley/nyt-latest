@@ -14,7 +14,7 @@ https://nytimes.com/2022/11/01/world/middleeast/israel-election-netanyahu-lapid.
 `The move comes in response to a New York Times investigation documenting years of torment and lenient oversight, and a surge in suicide attempts.`\
 https://nytimes.com/2022/11/01/us/louisiana-juvenile-detention-abuse.html?searchResultPosition=4
 
-**Pennsylvania Supreme Court Declares Mail-In Ballots Without Dates Invalid**\
+**Pennsylvania Supreme Court Says Mail-In Ballots Without Dates Should Not Be Counted**\
 `Republicans had sued to stop election officials from counting noncompliant ballots, which could again become a crucial point of contention in the battleground state.`\
 https://nytimes.com/2022/11/01/us/politics/pennsylvania-supreme-court-mail-in-ballots.html?searchResultPosition=5
 
