@@ -2,8 +2,8 @@
 `The New York Times pop music team had its say; now a new panel answers questions about the blockbuster album.`\
 https://nytimes.com/2022/11/02/arts/music/popcast-taylor-swift-midnights-questions.html?searchResultPosition=1
 
-**Stocks end a turbulent day sharply lower as the Fed leaves investors wondering what will happen next.**\
-`By Joe Rennison`\
+**Stocks end sharply lower as the Fed leaves investors wondering what will happen next.**\
+`The Fed chair said the central bank “still has a ways to go” before it will be finished raising interest rates, and that they may go higher than previously anticipated.`\
 https://nytimes.com/2022/11/02/business/stock-market-fed.html?searchResultPosition=2
 
 **Campaigns Pay Influencers to Carry Their Messages, Skirting Political Ad Rules**\
