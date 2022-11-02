@@ -1,40 +1,40 @@
-**Bruno Walter, a Conductor Who Found Truth Through Beauty**\
-`A survey of Walter’s recorded output is fascinating for the ways in which it reveals him reinventing the traditions he was seen to represent.`\
-https://nytimes.com/2022/11/02/arts/music/bruno-walter-conductor.html?searchResultPosition=1
+**Rikers: A Bright Green Future for a Dark Place?**\
+`One day, Rikers could be a source of light, in the form of solar power. Plus, Lee Zeldin’s efforts to avoid positions some New Yorkers consider unenlightened.`\
+https://nytimes.com/2022/11/02/nyregion/rikers-a-bright-green-future-for-a-dark-place.html?searchResultPosition=1
 
-**Pack Your Bags, We’re Moving to ‘Roku City’**\
-`Instead of streaming a new TV show or movie, some Roku users are in it for the screen saver.`\
-https://nytimes.com/2022/11/02/style/roku-city-screensaver.html?searchResultPosition=2
+**$3 Million Homes in Texas, South Carolina and Washington**\
+`A midcentury-modern retreat in Dallas, a three-bedroom home near the Battery in Charleston and a Shingle-style house in Seattle.`\
+https://nytimes.com/2022/11/02/realestate/home-prices-texas-south-carolina-washington.html?searchResultPosition=2
 
-**How to Salvage a Workout After a Bad Night of Sleep**\
-`The key to enjoying exercise after a fitful slumber is to start early and keep it simple.`\
-https://nytimes.com/2022/11/02/well/move/sleep-workout.html?searchResultPosition=3
+**What You Get for $3 Million in California**\
+`A midcentury-modern retreat in Dallas; a three-bedroom home near the Battery in Charleston, S.C.; and a Shingle-style house in Seattle.`\
+https://nytimes.com/slideshow/2022/11/02/realestate/what-you-get-for-3-million-in-california.html?searchResultPosition=3
 
-**Big “Pippin”: The Harmony and Dissonance of an American Classic**\
-`Elysa Gardner’s “Magic to Do” goes backstage at Bob Fosse and Stephen Schwartz’s 1972 musical about a lost prince.`\
-https://nytimes.com/2022/11/02/books/review/magic-to-do-elysa-gardner.html?searchResultPosition=4
+**Detroit Reclaims Halloween, a Holiday Once Marred by Fire**\
+`After decades of Devil’s Night fear and arson, Halloween in Detroit is again a celebration, and a sign of a changing city.`\
+https://nytimes.com/2022/11/02/us/detroit-halloween-arson.html?searchResultPosition=4
 
-**Hayao Miyazaki’s ‘Shuna’s Journey,’ Finally Translated Into English**\
-`First published in Japan in 1983, this picture book from the fabled animator is eerie, enchanting and surpassingly strange.`\
-https://nytimes.com/2022/11/02/books/review/hayao-miyazaki-shunas-journey.html?searchResultPosition=5
+**Can Lee Zeldin Reinvent His Way to the N.Y. Governor’s Mansion?**\
+`Representative Lee Zeldin’s political career reflects decades of preparation, alliances with more powerful Republicans and a hard-right embrace of former President Donald J. Trump.`\
+https://nytimes.com/2022/11/02/nyregion/ny-lee-zeldin-profile-governor.html?searchResultPosition=5
 
-**The Price of $5 Donations: Is Small-Dollar Fund-Raising Doing More Harm Than Good?**\
-`Tim Miller and Micah Sifry on how grass-roots funding has changed American politics.`\
-https://nytimes.com/2022/11/02/opinion/is-small-dollar-fund-raising-doing-more-harm-than-good.html?searchResultPosition=6
+**Patty Murray Faces Stiff Challenge in Senate Re-election Race**\
+`The five-term Washington senator is concerned about complacency among Democratic voters, who have come to regard her as a fixture who will always be there. She faces a Republican newcomer, Tiffany Smiley.`\
+https://nytimes.com/2022/11/02/us/politics/patty-murray-tiffany-smiley-washington-senate.html?searchResultPosition=6
 
-**Will One Small Shift Fix the Polls in 2022? (Wonkiness: 8/10)**\
-`The potential improvement is based on the idea that voters are less likely to recall voting for a losing candidate.`\
-https://nytimes.com/2022/11/02/upshot/polls-2022-midterms-fix.html?searchResultPosition=7
+**These Cakes Have Thorns**\
+`A group of bakers are taking nonconformist cake decorating trends to new heights, creating otherworldly confections bristling with surreal protrusions.`\
+https://nytimes.com/2022/11/02/t-magazine/spiky-cakes-baking.html?searchResultPosition=7
 
-**People Love to Hate-Watch Tech Villains. That Won’t Hurt Spotify.**\
-`“The Playlist” resembles other TV dramas that follow founders to their eventual comeuppance — except Spotify isn’t facing any messy implosion.`\
-https://nytimes.com/2022/11/02/magazine/the-playlist-netflix-spotify.html?searchResultPosition=8
+**The Crop Top Lands a 9-to-5**\
+`Young employees, many of them new to office jobs, are bringing a wardrobe staple usually reserved for the weekends into the workplace.`\
+https://nytimes.com/2022/11/02/style/crop-tops-office.html?searchResultPosition=8
 
-**In ‘Cheap Land Colorado,’ Surrounded by Beauty but Barely Getting By**\
-`For his new book, the journalist Ted Conover joined a community of off-gridders in a desolate corner of the West, capturing lives full of anguish and contradiction.`\
-https://nytimes.com/2022/11/02/books/review/cheap-land-colorado-ted-conover.html?searchResultPosition=9
+**5 Minutes That Will Make You Love Ornette Coleman**\
+`We asked writers, critics and musicians including Kamasi Washington, Nubya Garcia and Shabaka Hutchings to tell us how they connect with Coleman’s fearless artistry.`\
+https://nytimes.com/2022/11/02/arts/music/ornette-coleman-jazz-music.html?searchResultPosition=9
 
-**Pecan Tarts: A Love Story**\
-`Pastry has always been synonymous with pleasure — a way that we can treat our lovers and friends or strangers, even if for only a moment.`\
-https://nytimes.com/2022/11/02/magazine/pecan-tart-recipe.html?searchResultPosition=10
+**How the Right Became the Left and the Left Became the Right**\
+`A pair of prominent headlines highlight the reversals. `\
+https://nytimes.com/2022/11/02/opinion/left-right-reversal.html?searchResultPosition=10
 
