@@ -1,6 +1,6 @@
 **Thank You, Julie Powell. I Owe You.**\
 `The “Julie & Julia” author was the patron saint of amateur epicures.`\
-https://nytimes.com/2022/11/02/opinion/thank-you-julie-powell-i-owe-you.html?searchResultPosition=1
+https://nytimes.com/2022/11/02/opinion/julie-powell-food-death.html?searchResultPosition=1
 
 **How Her Ancestors Reignited Her Return to Theater**\
 `Quiara Alegría Hudes is back with a new work, an Off Broadway production of “My Broken Language,” adapted from her 2021 memoir.`\
