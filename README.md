@@ -27,7 +27,7 @@ https://nytimes.com/2022/11/02/world/africa/ethiopia-tigray-civil-war.html?searc
 https://nytimes.com/2022/11/02/opinion/julie-powell-food-death.html?searchResultPosition=7
 
 **The White House accuses North Korea of secretly supplying Russia with artillery shells.**\
-`By Alan Rappeport`\
+`The national security spokesman, John Kirby, said that it was unclear if the munitions had reached Russia, but that in any case, they would not “change the course of the war.”`\
 https://nytimes.com/2022/11/02/world/europe/russia-ukraine-north-korea-ammunition.html?searchResultPosition=8
 
 **How Her Ancestors Reignited Her Return to Theater**\
