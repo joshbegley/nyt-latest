@@ -4,7 +4,7 @@ https://nytimes.com/2022/11/02/sports/basketball/kevin-durant-kyrie-irving-nets.
 
 **Overtime Elite Gets Media Deal With Amazon Prime Video**\
 `The deal to stream Overtime Elite’s games to Prime Video comes as top male players consider the league an option instead of traditional high schools and colleges.`\
-https://nytimes.com/2022/11/02/sports/ncaabasketball/overtime-elite-gets-media-deal-with-amazon-prime-video.html?searchResultPosition=2
+https://nytimes.com/2022/11/02/sports/ncaabasketball/overtime-elite-amazon-prime-video-deal.html?searchResultPosition=2
 
 **The New York Times Company Adds 180,000 Digital Subscribers**\
 `The Times recorded an adjusted operating profit of $69 million for the third quarter, up from $65 million in the same period last year.`\
