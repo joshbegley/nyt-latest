@@ -23,7 +23,7 @@ https://nytimes.com/2022/11/02/us/california-prop-28.html?searchResultPosition=5
 https://nytimes.com/2022/11/02/business/dealbook/investors-market-fed-interest-rates-inflation-fomc.html?searchResultPosition=6
 
 **Kyiv says it is preparing 425 shelters in case of a Russian nuclear attack.**\
-`Worries that the Kremlin might turn to its nuclear arsenal have deepened since President Vladimir V. Putin of Russia raised the specter in September of using such weapons to hold on to territorial gains.`\
+`Worries that the Kremlin might turn to its nuclear arsenal have deepened since President Vladimir V. Putin of Russia raised the specter of using such weapons to hold on to territorial gains.`\
 https://nytimes.com/2022/11/02/world/europe/kyiv-ukraine-shelters-nuclear-attack.html?searchResultPosition=7
 
 **An ‘Oasis of Calm’ in Costa Blanca for $2 Million: House Hunting in Spain**\
