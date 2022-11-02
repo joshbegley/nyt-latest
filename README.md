@@ -1,6 +1,6 @@
 **Israel’s Election: 5 Takeaways**\
 `Benjamin Netanyahu seems poised to take power again. But regardless of his fate, the election already highlights several trends that could have a lasting effect on Israel.`\
-https://nytimes.com/2022/11/02/world/middleeast/israels-election-5-takeaways.html?searchResultPosition=1
+https://nytimes.com/2022/11/02/world/middleeast/israel-election-5-takeaways.html?searchResultPosition=1
 
 **A Chilling Crackdown at a Tehran Apartment Complex**\
 `Iran’s security forces shot at windows and threw stun grenades in a raid at the Shahrak Ekbatan complex, where a member of the feared Basij militia was killed last week, residents said.`\
