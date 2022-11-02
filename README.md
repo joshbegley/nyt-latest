@@ -36,5 +36,5 @@ https://nytimes.com/2022/11/02/us/harvard-insurance-affirmative-action.html?sear
 
 **Watch Live: Biden Gives Speech on Protecting Democracy**\
 `The president speaks at a Democratic National Convention event about protecting democracy and the threats election deniers pose six days before the midterm elections.`\
-https://nytimes.com/video/us/politics/100000008613373/midterm-elections-biden-speech-democracy.html?searchResultPosition=10
+https://nytimes.com/video/embedded/us/politics/100000008613373/midterm-elections-biden-speech-democracy.html?searchResultPosition=10
 
