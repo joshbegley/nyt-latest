@@ -7,7 +7,7 @@ https://nytimes.com/2022/11/01/us/politics/jd-vance-election-results-2020.html?s
 https://nytimes.com/interactive/2022/11/01/us/david-de-pape-motion-to-detain.html?searchResultPosition=2
 
 **Netanyahu Holds Slight Lead in Israeli Election, Exit Polls Show**\
-`If the right-wing bloc does eke out a narrow victory, it would allow Mr. Netanyahu, Israel’s longest-serving prime minister, to return to office even as he stands trial on corruption charges.`\
+`If the right-wing bloc does eke out a narrow victory, it will allow Mr. Netanyahu, Israel’s longest-serving prime minister, to return to office even as he stands trial on corruption charges.`\
 https://nytimes.com/2022/11/01/world/middleeast/israel-election-netanyahu-lapid.html?searchResultPosition=3
 
 **Louisiana Governor Calls for Inquiry Into Abuses at Juvenile Detention Center**\
@@ -27,6 +27,6 @@ https://nytimes.com/2022/11/01/sports/football/john-mcvay-dead.html?searchResult
 https://nytimes.com/2022/11/01/us/politics/pelosi-attack-congress-security-capitol.html?searchResultPosition=7
 
 **Biden, in Midterm Campaign Pitch, Focuses on Social Security and Medicare**\
-`At events in Florida, the president sought to paint Republicans as a threat to the two retirement programs. But his campaign swing did not go without bumps.`\
+`In a whirlwind tour of Florida, the president sought to paint Republicans as a threat to the two retirement programs. But his campaign swing did not go without bumps.`\
 https://nytimes.com/2022/11/01/us/politics/biden-campaign-florida.html?searchResultPosition=8
 
