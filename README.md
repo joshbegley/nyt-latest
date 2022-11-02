@@ -19,7 +19,7 @@ https://nytimes.com/2022/11/02/technology/musk-twitter-advertisers-civil-rights.
 https://nytimes.com/2022/11/02/us/harvard-insurance-affirmative-action.html?searchResultPosition=5
 
 **Watch Live: Biden Gives Speech on Protecting Democracy**\
-`The president will speak at a Democratic National Convention event about protecting democracy and the threats election deniers pose six days before the midterm elections.`\
+`The president speaks at a Democratic National Convention event about protecting democracy and the threats election deniers pose six days before the midterm elections.`\
 https://nytimes.com/video/us/politics/100000008613373/midterm-elections-biden-speech-democracy.html?searchResultPosition=6
 
 **Oath Keepers Leader Sought to Get Message to Trump After Jan. 6**\
