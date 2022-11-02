@@ -26,8 +26,8 @@ https://nytimes.com/2022/11/01/us/politics/pennsylvania-supreme-court-mail-in-ba
 `He rebounded from the humiliation of “the fumble” as coach of the ’78 New York Giants to help San Francisco win five Super Bowls over 14 seasons as a top team executive.`\
 https://nytimes.com/2022/11/01/sports/football/john-mcvay-dead.html?searchResultPosition=7
 
-**Pelosi Attack Highlights Lack of Security for Congress as Threats Grow**\
-`Capitol security officials announced they would beef up protection after the attack, but lawmakers and experts say gaping holes in the system have long persisted.`\
+**Police Cameras at Pelosi’s House Were Unmonitored as They Captured Break-In**\
+`Minutes went by before any Capitol Police officer reviewed the footage. Law enforcement leaders said they planned to beef up protections for members of Congress.`\
 https://nytimes.com/2022/11/01/us/politics/pelosi-attack-congress-security-capitol.html?searchResultPosition=8
 
 **Biden, in Midterm Campaign Pitch, Focuses on Social Security and Medicare**\
