@@ -1,5 +1,5 @@
 **Phillies Hit 1,950 Feet of Homers in Game 3**\
-`A look at Philadelphia's five home runs in a dominant Game 3 win that gave the team a 2-1 lead over the Houston Astros in the World Series.`\
+`A look at Philadelphia's five home runs in a dominant Game 3 win that gave the team a 2-1 lead over the Houston Astros in the World Series. `\
 https://nytimes.com/interactive/2022/11/02/sports/baseball/phillies-homers-world-series.html?searchResultPosition=1
 
 **A Capital Draped in Darkness**\
