@@ -23,7 +23,7 @@ https://nytimes.com/2022/11/01/us/politics/election-monitors-arizona-judge.html?
 https://nytimes.com/2022/11/01/sports/baseball/phillies-world-series-astros-game-3.html?searchResultPosition=6
 
 **North Korea Launches 10 Missiles, Triggering Air-Raid Alarm in South**\
-`People on an island took cover as one missile landed near South Korean territorial waters. The South promised to “ensure that North Korea pays a price.”`\
+`People on an island took cover as one missile landed near South Korean territorial waters. The South responded by firing three missiles of its own.`\
 https://nytimes.com/2022/11/01/world/asia/north-korea-missile-launch.html?searchResultPosition=7
 
 **Many Lawyer Puns**\
