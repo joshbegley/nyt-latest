@@ -30,8 +30,8 @@ https://nytimes.com/interactive/2022/11/02/arts/editors-recommendations-abbott.h
 `The New York Times pop music team had its say; now a new panel answers questions about the blockbuster album.`\
 https://nytimes.com/2022/11/02/arts/music/popcast-taylor-swift-midnights-questions.html?searchResultPosition=8
 
-**Stocks end sharply lower as the Fed leaves investors wondering what will happen next.**\
-`The Fed chair said the central bank “still has a ways to go” before it will be done raising interest rates, and that rates may go higher than previously anticipated.`\
+**Stocks Slide as Fed Leaves Investors Unsure About Path Ahead**\
+`Jerome H. Powell, the Federal Reserve chair, said the central bank “still has a ways to go” before it will be done raising interest rates, and that rates may go higher than previously anticipated.`\
 https://nytimes.com/2022/11/02/business/stock-market-fed.html?searchResultPosition=9
 
 **Campaigns Pay Influencers to Carry Their Messages, Skirting Political Ad Rules**\
