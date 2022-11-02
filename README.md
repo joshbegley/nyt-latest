@@ -23,7 +23,7 @@ https://nytimes.com/2022/11/02/world/middleeast/iran-protests-crackdown-tehran.h
 https://nytimes.com/2022/11/02/health/pulse-oximeters-black-patients.html?searchResultPosition=6
 
 **Ethiopia and Tigray Forces Agree to Truce in Civil War, Mediators Say**\
-`After two years of fighting that has left hundreds of thousands displaced and on the brink of starvation, the announcement came out of peace talks that were convened by the African Union in South Africa.`\
+`After two years of fighting that left millions displaced or on the brink of starvation, the announcement came out of peace talks convened by the African Union in South Africa.`\
 https://nytimes.com/2022/11/02/world/africa/ethiopia-tigray-civil-war.html?searchResultPosition=7
 
 **Thank You, Julie Powell. I Owe You.**\
