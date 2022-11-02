@@ -1,40 +1,40 @@
-**After Covid Lockdown, Fear and Unrest Sweep iPhone Factory in China**\
-`Hundreds of workers are said to have fled, afraid of being forced into quarantine with inadequate food and supplies.`\
-https://nytimes.com/2022/11/02/world/asia/china-foxconn-workers.html?searchResultPosition=1
+**Bruno Walter, a Conductor Who Found Truth Through Beauty**\
+`A survey of Walter’s recorded output is fascinating for the ways in which it reveals him reinventing the traditions he was seen to represent.`\
+https://nytimes.com/2022/11/02/arts/music/bruno-walter-conductor.html?searchResultPosition=1
 
-**Netanyahu Extends Lead, but Fate of Minor Parties Gives Opponents Hope**\
-`If the right-wing bloc does cement an election victory, Benjamin Netanyahu, Israel’s longest-serving prime minister, will return to office even as he stands trial on corruption charges.`\
-https://nytimes.com/2022/11/02/world/middleeast/israel-election-netanyahu.html?searchResultPosition=2
+**Pack Your Bags, We’re Moving to ‘Roku City’**\
+`Instead of streaming a new TV show or movie, some Roku users are in it for the screen saver.`\
+https://nytimes.com/2022/11/02/style/roku-city-screensaver.html?searchResultPosition=2
 
-**For Daughter of American Militant, Scars of ISIS’s Reign Run Deep**\
-`Allison Fluke-Ekren, a teacher from Kansas, dragged her family to Syria and forced her daughter, Leyla, to train for war on behalf of the Islamic State. Now her daughter wields final words against her.`\
-https://nytimes.com/2022/11/02/us/politics/isis-fluke-ekren-trial.html?searchResultPosition=3
+**How to Salvage a Workout After a Bad Night of Sleep**\
+`The key to enjoying exercise after a fitful slumber is to start early and keep it simple.`\
+https://nytimes.com/2022/11/02/well/move/sleep-workout.html?searchResultPosition=3
 
-**As Housing Costs Soar, Co-Living Makes a Comeback**\
-`The living arrangements, known as “dorms for adults,” are on the upswing after declining in the pandemic, and developers are adapting to the renewed interest.`\
-https://nytimes.com/2022/11/02/business/coliving-housing-dorms.html?searchResultPosition=4
+**Big “Pippin”: The Harmony and Dissonance of an American Classic**\
+`Elysa Gardner’s “Magic to Do” goes backstage at Bob Fosse and Stephen Schwartz’s 1972 musical about a lost prince.`\
+https://nytimes.com/2022/11/02/books/review/magic-to-do-elysa-gardner.html?searchResultPosition=4
 
-**Widespread Racial Bias Found in Home Appraisals**\
-`Researchers found evidence of a persistent practice that gives higher values to homes when the occupants are white, and devalue them if the owners are people of color.`\
-https://nytimes.com/2022/11/02/realestate/racial-bias-home-appraisals.html?searchResultPosition=5
+**Hayao Miyazaki’s ‘Shuna’s Journey,’ Finally Translated Into English**\
+`First published in Japan in 1983, this picture book from the fabled animator is eerie, enchanting and surpassingly strange.`\
+https://nytimes.com/2022/11/02/books/review/hayao-miyazaki-shunas-journey.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/11/02/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**The Price of $5 Donations: Is Small-Dollar Fund-Raising Doing More Harm Than Good?**\
+`Tim Miller and Micah Sifry on how grass-roots funding has changed American politics.`\
+https://nytimes.com/2022/11/02/opinion/is-small-dollar-fund-raising-doing-more-harm-than-good.html?searchResultPosition=6
 
-**‘Goodnight Moon’**\
-`What is your favorite book from childhood?`\
-https://nytimes.com/2022/11/02/learning/goodnight-moon.html?searchResultPosition=7
+**Will One Small Shift Fix the Polls in 2022? (Wonkiness: 8/10)**\
+`The potential improvement is based on the idea that voters are less likely to recall voting for a losing candidate.`\
+https://nytimes.com/2022/11/02/upshot/polls-2022-midterms-fix.html?searchResultPosition=7
 
-**Astros Starter Insists Awful Start Had ‘Nothing to Do With Tipping’**\
-`Houston’s Lance McCullers Jr. set a World Series record by allowing five home runs. The Phillies hinted they were onto something but McCullers said he just pitched poorly.`\
-https://nytimes.com/2022/11/02/sports/baseball/lance-mccullers-tipping-pitches-astros.html?searchResultPosition=8
+**People Love to Hate-Watch Tech Villains. That Won’t Hurt Spotify.**\
+`“The Playlist” resembles other TV dramas that follow founders to their eventual comeuppance — except Spotify isn’t facing any messy implosion.`\
+https://nytimes.com/2022/11/02/magazine/the-playlist-netflix-spotify.html?searchResultPosition=8
 
-**Word of the Day: impugn**\
-`This word has appeared in 21 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/11/02/learning/word-of-the-day-impugn.html?searchResultPosition=9
+**In ‘Cheap Land Colorado,’ Surrounded by Beauty but Barely Getting By**\
+`For his new book, the journalist Ted Conover joined a community of off-gridders in a desolate corner of the West, capturing lives full of anguish and contradiction.`\
+https://nytimes.com/2022/11/02/books/review/cheap-land-colorado-ted-conover.html?searchResultPosition=9
 
-**Stephen Colbert Isn’t Amused by Elon Musk’s Plan to Monetize Twitter**\
-`Colbert said that Musk’s idea to charge users for verification would lead to “chaos” on Twitter. “I rely on that blue check mark to know which of my butters I can’t not believe!”`\
-https://nytimes.com/2022/11/02/arts/television/stephen-colbert-twitter-musk.html?searchResultPosition=10
+**Pecan Tarts: A Love Story**\
+`Pastry has always been synonymous with pleasure — a way that we can treat our lovers and friends or strangers, even if for only a moment.`\
+https://nytimes.com/2022/11/02/magazine/pecan-tart-recipe.html?searchResultPosition=10
 
