@@ -15,7 +15,7 @@ https://nytimes.com/2022/11/02/arts/design/abortion-roe-v-wade.html?searchResult
 https://nytimes.com/2022/11/02/us/politics/biden-speech-democracy-threat.html?searchResultPosition=4
 
 **Dan Snyder Hires Bank to Explore Sale of Washington Commanders**\
-`Dan and Tanya Snyder, the embattled co-owners of the N.F.L. team, announced that they would seek “potential transactions” related to the sale of the team.`\
+`Daniel and Tanya Snyder, the embattled co-owners of the N.F.L. team, announced that they would seek “potential transactions” related to the sale of the team.`\
 https://nytimes.com/2022/11/02/sports/football/dan-snyder-washington-commanders-sale.html?searchResultPosition=5
 
 **These 6 Thanksgiving Dishes Only Get Better With Time**\
