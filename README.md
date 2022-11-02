@@ -6,9 +6,9 @@ https://nytimes.com/2022/11/02/world/middleeast/iran-protests-united-nations.htm
 `And now a word from their sponsor …`\
 https://nytimes.com/2022/11/02/opinion/trump-midterm-endorsements-senate.html?searchResultPosition=2
 
-**Les Moonves and Paramount, Accused of Hiding Sex Misconduct Claims, Will Pay $9.75 Million**\
+**Les Moonves and Paramount to Pay $9.75 Million in State Case Tied to Sexual Misconduct**\
 `The New York attorney general’s office found that CBS, whose parent company is now Paramount, concealed allegations about its former chief executive from investors.`\
-https://nytimes.com/2022/11/02/business/cbs-les-moonves-sexual-misconduct-allegations.html?searchResultPosition=3
+https://nytimes.com/2022/11/02/business/cbs-les-moonves-sexual-misconduct-paramount.html?searchResultPosition=3
 
 **Review: ‘The Year of Magical Thinking’ Gets Joan Didion’s Intention Just Right**\
 `A play based on the writer’s memoir about the death of her husband, in its first New York revival, goes small to powerful effect.`\
