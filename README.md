@@ -19,7 +19,7 @@ https://nytimes.com/2022/11/03/briefing/benjamin-netanyahu-israel-elections-midt
 https://nytimes.com/2022/11/03/us/paul-pelosi-leaves-hospital.html?searchResultPosition=5
 
 **Kamala Harris and Hillary Clinton Rally Women to Support Hochul**\
-`With Election Day approaching and the governor’s race tightening, Gov. Kathy Hochul will appear at a get-out-the-vote rally with major female Democratic leaders.`\
+`Representative Lee Zeldin and Republicans nationally want to “turn back the clock on women’s rights,” Mrs. Clinton said at the Manhattan rally.`\
 https://nytimes.com/2022/11/03/nyregion/hochul-women-kamala-harris.html?searchResultPosition=6
 
 **Accusations of Racism Against Lawmaker Roil France’s Parliament**\
