@@ -24,7 +24,7 @@ https://nytimes.com/2022/11/03/business/media/shepard-smith-cnbc.html?searchResu
 
 **Psychologist Says Primo Exposed Himself to Her During Sessions**\
 `A sports psychologist for the San Antonio Spurs sued Joshua Primo and the team, saying the Spurs did not protect her after she complained to senior executives.`\
-https://nytimes.com/2022/11/03/sports/basketball/josh-primo-spurs.html?searchResultPosition=7
+https://nytimes.com/2022/11/03/sports/basketball/josh-primo-spurs-allegations.html?searchResultPosition=7
 
 **The U.N.’s nuclear watchdog finds no evidence for Russia’s claim that Ukraine is readying a ‘dirty bomb.’**\
 `The International Atomic Energy Agency said its inspections had found no evidence of illegal nuclear activity at three sites that figured in Russia’s claims.`\
