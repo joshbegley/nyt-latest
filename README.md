@@ -1,5 +1,5 @@
 **New Tax Break for Clean Energy Draws Scrutiny**\
-`A defunct New Mexico coal plant would be converted with the help of subsidies authorized by the new climate legislation, but a plan to rely on natural gas converted into hydrogen has generated criticism.`\
+`A defunct New Mexico coal plant would be revamped with the help of subsidies authorized by the new climate legislation, but a plan to rely on natural gas converted into hydrogen has generated criticism.`\
 https://nytimes.com/2022/11/03/us/politics/climate-natural-gas-hydrogen-new-mexico.html?searchResultPosition=1
 
 **Review: Ayodele Casel Returns to the Joyce With ‘Chasing Magic’**\
