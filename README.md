@@ -1,40 +1,40 @@
-**Election Officials Say Efforts to Intimidate Voters Are Widening**\
-`Drop-box watchers and disinformation about mail-in voting pose threats for election officials, who want to assure the public that voting is secure.`\
-https://nytimes.com/2022/11/03/us/politics/voting-intimidation-democracy.html?searchResultPosition=1
+**The Tajik Artisans Guarding the Country’s Cultural Legacy**\
+`While Tajikistan’s history is being hidden behind glimmering new facades, some hold onto tradition with quiet determination.`\
+https://nytimes.com/2022/11/03/t-magazine/tajikistan-artisans.html?searchResultPosition=1
 
-**Greg Abbott’s Victory Would Be a Texas-Sized Blow to Accountability**\
-`Millions suffered, hundreds died, and Greg Abbott is likely to get a third term.`\
-https://nytimes.com/video/opinion/100000008608909/greg-abbott-texas-power-grid.html?searchResultPosition=2
+**In Search of a Lost Spain**\
+`In the southern part of the country, churches and streets hold the remnants of eight centuries of Islamic rule.`\
+https://nytimes.com/2022/11/03/t-magazine/spain-islamic-history.html?searchResultPosition=2
 
-**A No-Hitter With Four Pitchers but Only One Catcher**\
-`Christian Vázquez is still relatively new to the Houston Astros but he helped guided his team’s pitching staff to the second no-hitter in World Series history.`\
-https://nytimes.com/2022/11/03/sports/baseball/christian-vazquez-astros-world-series.html?searchResultPosition=3
+**Can Cultural Identity Be Defined by Food?**\
+`Cuisine is one of the few ways to characterize Singapore’s Peranakan culture, a hard-to-pin-down blend of ethnic and racial identities.`\
+https://nytimes.com/2022/11/03/t-magazine/singapore-peranakan-cuisine.html?searchResultPosition=3
 
-**Bank of England Is Set to Raise Rates After U.K. Political Turmoil**\
-`An increase of three-quarters of a point is expected as the central bank meets on Thursday for the first time since Liz Truss resigned as prime minister.`\
-https://nytimes.com/2022/11/03/business/bank-of-england-interest-rates.html?searchResultPosition=4
+**How Do You Visit a Vanished World?**\
+`For T’s Winter Travel issue, we look at three cultures that have all but disappeared — or been resurrected.`\
+https://nytimes.com/2022/11/03/t-magazine/travel-lost-worlds-culture.html?searchResultPosition=4
 
-**‘I’ve Been on Both Ends and Here for Two Out of Three’**\
-`Manager Dusty Baker has been in a dugout for two of Major League Baseball’s three postseason no-hitters: Roy Halladay’s in 2010 and the Astros’ combined effort in Game 4.`\
-https://nytimes.com/2022/11/03/sports/baseball/dusty-baker-no-hitter-world-series.html?searchResultPosition=5
+**America Can Stop Violent Extremism**\
+`A new series by the editorial board offers solutions to the growing problem of political violence.`\
+https://nytimes.com/2022/11/03/opinion/political-violence.html?searchResultPosition=5
 
-**Can Bill Richardson Free Brittney Griner and Paul Whelan?**\
-`The former New Mexico governor advised the family of one American freed from Russia and says he can help Ms. Griner and Mr. Whelan.`\
-https://nytimes.com/2022/11/03/us/politics/bill-richardson-griner-whelan.html?searchResultPosition=6
+**A Championship Season in Mariachi Country**\
+`Every year along the Texas border, high-school teams battle it out in one of the nation’s most intense championship rivalries. But they’re not playing football.`\
+https://nytimes.com/2022/11/03/magazine/mariachi-texas.html?searchResultPosition=6
 
-**The Wraparound Renaissance**\
-`A gas station staple, now embraced by celebrities and fashion fiends worldwide.`\
-https://nytimes.com/2022/11/03/style/the-wraparound-renaissance.html?searchResultPosition=7
+**As Drought Drops Water Level in the Mississippi, Shipwrecks Surface and Worries Rise**\
+`The river known for its vast reach and powerful currents has withered to levels not seen in decades, choking shipping lanes and endangering drinking water supplies.`\
+https://nytimes.com/2022/11/03/us/mississippi-river-drought.html?searchResultPosition=7
 
-**Democrats Twist and Turn on Immigration as Republicans Attack in Waves**\
-`Democratic candidates are either avoiding border issues or talking about them on Republicans’ terms. And the party’s grass-roots allies are struggling for cash and battling burnout.`\
-https://nytimes.com/2022/11/03/us/politics/midterms-immigration-democrats-republicans.html?searchResultPosition=8
+**Cherokees Ask U.S. to Make Good on a 187-Year-Old Promise, for a Start**\
+`The demand that Congress honor a treaty and seat a nonvoting delegate comes amid growing clashes over sovereignty and a tight race for Oklahoma’s governor, a Cherokee citizen.`\
+https://nytimes.com/2022/11/03/us/cherokees-congress-delegate-treaty.html?searchResultPosition=8
 
-**The Voyeur in Repose**\
-`Steven Klein’s sexually charged photography has captivated the fashion world for nearly three decades. His first monograph will be published this month.`\
-https://nytimes.com/2022/11/03/style/steven-klein-photographythe-voyeur-in-repose.html?searchResultPosition=9
+**China Is Burning More Coal, a Growing Climate Challenge**\
+`The country’s emissions of greenhouse gases rose last year at the fastest pace in a decade. Beijing is looking for alternatives.`\
+https://nytimes.com/2022/11/03/business/energy-environment/china-coal-natural-gas.html?searchResultPosition=9
 
-**Los Angeles Pedestrians Look Forward to Relaxed Jaywalking Law**\
-`“I’m smart enough to know if cars are coming,” said one walker who is glad the old law will come off the books on Jan. 1.`\
-https://nytimes.com/2022/11/03/style/los-angeles-pedestrians-look-forward-to-relaxed-jaywalking-law.html?searchResultPosition=10
+**Beyond the Book Club, An Artist’s To-Do List**\
+`In a Queens Museum show that is by turns serious and bitingly funny, Xaviera Simmons challenges individuals and museums to show their commitment to justice.`\
+https://nytimes.com/2022/11/03/arts/design/xaviera-simmons-queens-museum.html?searchResultPosition=10
 
