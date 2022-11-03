@@ -8,7 +8,7 @@ https://nytimes.com/2022/11/03/arts/design/art-show-park-avenue-armory.html?sear
 
 **Trump’s Iowa Rally Is About More Than the Midterms**\
 `Former President Donald J. Trump is eager to announce a new bid for the White House, and Iowa holds outsize importance. His Thursday night event will support two incumbents.`\
-https://nytimes.com/2022/11/03/us/politics/trump-iowa-rally-midterms.html?searchResultPosition=3
+https://nytimes.com/live/2022/11/03/us/midterm-elections-news/trump-iowa-rally-midterms?searchResultPosition=3
 
 **Battle Over Deep-Sea Mining Takes on New Urgency as Trial Run Winds Down**\
 `A Canadian company is testing mining equipment in the Pacific Ocean in its quest for metals needed for electric vehicles. Environmentalists oppose the mining, which could begin in 2024.`\
