@@ -10,7 +10,7 @@ https://nytimes.com/2022/11/03/nyregion/synagogues-new-jersey-threats.html?searc
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2022/11/03/books/review/9-new-books-we-recommend-this-week.html?searchResultPosition=3
 
-**Troubled Loner or Radical Recruit? In Political Violence, It’s Often Hard to Say**\
+**Troubled Loner? Political Terrorist? Both? It’s Often Hard to Say**\
 `The attack on Nancy Pelosi’s husband has raised questions about the role of demonizing political speech in violent acts, not for the first time.`\
 https://nytimes.com/2022/11/03/world/americas/pelosi-attack-interpreter.html?searchResultPosition=4
 
