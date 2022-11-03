@@ -15,7 +15,7 @@ https://nytimes.com/2022/11/03/podcasts/the-daily/affirmative-action-supreme-cou
 https://nytimes.com/2022/11/03/us/provincetown-body-lady-of-the-dunes.html?searchResultPosition=4
 
 **‘These Guys Are Nasty’: Houston Thrives With Unexpected Stars**\
-`Cristian Javier and Framber Valdez were never top prospects, but Houston’s Dominican starters are part of a superb group of Astros pitchers starring in the World Series.`\
+`Cristian Javier and Framber Valdez were never considered top prospects, but the young starting pitchers are leading the way for the Astros in the World Series.`\
 https://nytimes.com/2022/11/03/sports/baseball/cristian-javier-framber-valdez-astros.html?searchResultPosition=5
 
 **A Studio Ghibli Classic Comes to the London Stage**\
