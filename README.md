@@ -23,7 +23,7 @@ https://nytimes.com/2022/11/03/arts/television/dangerous-liaisons-starz-alice-en
 https://nytimes.com/2022/11/03/insider/what-to-expect-at-this-years-crucial-climate-summit.html?searchResultPosition=6
 
 **Brigitte Giraud Wins Goncourt Prize With Tragic Novel of Loss**\
-`The prestigious French literary award went to “Living Fast,” which explores the causes of an accident that killed the author’s partner.`\
+`The prestigious French literary award went to “Living Fast,” or “Vivre Vite,” which explores the causes of an accident that killed the author’s partner.`\
 https://nytimes.com/2022/11/03/books/brigitte-giraud-goncourt-prize-living-fast.html?searchResultPosition=7
 
 **Obama Denounces Divisive Politics After Being Heckled Again**\
