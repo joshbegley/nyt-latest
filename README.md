@@ -19,7 +19,7 @@ https://nytimes.com/2022/11/02/us/politics/transcript-biden-speech-democracy.htm
 https://nytimes.com/2022/11/02/world/asia/north-korea-missile-japan.html?searchResultPosition=5
 
 **‘Democracy Is on the Ballot,’ Biden Says Ahead of Midterm Elections**\
-`President Biden said that democracy was being threatened by Republicans who said they wouldn’t commit to accepting the results of the coming midterm elections.`\
+`President Biden said in a speech Wednesday night that democracy was at stake ahead of the coming midterm elections.`\
 https://nytimes.com/video/us/elections/100000008614456/biden-democracy-midterms.html?searchResultPosition=6
 
 **‘Selena Gomez: My Mind and Me’ Review: An Honest Portrait of Stardom**\
