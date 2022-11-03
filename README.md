@@ -1,40 +1,40 @@
+**The Best Places to Watch the New York City Marathon**\
+`It has become the city’s biggest block party. Here’s where to cheer for the 50,000 runners in every borough.`\
+https://nytimes.com/2022/11/03/sports/watch-nyc-marathon.html?searchResultPosition=1
+
+**Review: In ‘You Resemble Me,’ a Maladjusted Girl Is Interrupted**\
+`Dina Amer’s film uses empathetic, if simplistic, fictions to try to make sense of the complicated real life of a young Moroccan-French woman drawn to ISIS.`\
+https://nytimes.com/2022/11/03/movies/review-in-you-resemble-me-a-maladjusted-girl-is-interrupted.html?searchResultPosition=2
+
+**‘Next Exit’ Review: End of the Road**\
+`Two strangers reflect on their lives as they embark on a cross-country drive to join a study involving life after death.`\
+https://nytimes.com/2022/11/03/movies/next-exit-review-end-of-the-road.html?searchResultPosition=3
+
+**‘Something in the Dirt’ Review: The Truth Is Over There, by the Sofa**\
+`Two likable losers fall into conspiratorial rabbit holes while filming the strange goings-on in their apartment building.`\
+https://nytimes.com/2022/11/03/movies/something-in-the-dirt-review.html?searchResultPosition=4
+
+**‘Meet Me in the Bathroom’ Review: New York’s Last Rock Renaissance**\
+`The post-post punk New York rock scene gets an archival retrospective in this documentary.`\
+https://nytimes.com/2022/11/03/movies/meet-me-in-the-bathroom-review.html?searchResultPosition=5
+
+**‘Nocebo’ Review: A Troubled Home and a Sick Mother**\
+`A new horror starring Eva Green has a point to make about economic exploitation but lacks a sense of surprise.`\
+https://nytimes.com/2022/11/03/movies/nocebo-review.html?searchResultPosition=6
+
+**‘Good Night Oppy’ Review: Life (Kind of) on Mars**\
+`NASA’s Opportunity and Spirit rovers didn’t shoot cinematic-quality footage of Mars, but this documentary offers the next-best thing.`\
+https://nytimes.com/2022/11/03/movies/good-night-oppy-review.html?searchResultPosition=7
+
 **The Job Market’s Cues**\
 `Two measurements tell two stories about the strength of U.S. employment.`\
-https://nytimes.com/2022/11/03/briefing/fed-interest-rates.html?searchResultPosition=1
+https://nytimes.com/2022/11/03/briefing/fed-interest-rates.html?searchResultPosition=8
 
 **Netanyahu Set to Seal Victory, Returning Him to Power Within Weeks**\
 `After five elections in less than four years, Israel will have a stable government for the first time since 2019. But Benjamin Netanyahu’s coalition could test the constitutional framework and social fabric.`\
-https://nytimes.com/2022/11/03/world/middleeast/israel-netanyahu-election.html?searchResultPosition=2
+https://nytimes.com/2022/11/03/world/middleeast/israel-netanyahu-election.html?searchResultPosition=9
 
 **An Ethics Watchdog Criticized Stacey Abrams. His Boss Retracted It.**\
 `A failed lawsuit over voting rights prompts a debate over multimillion-dollar legal fees and conflicts of interest.`\
-https://nytimes.com/2022/11/03/us/stacey-abrams-ethics-voting-rights.html?searchResultPosition=3
-
-**Nations Must Increase Funding to Cope With Climate Shocks, U.N. Warns**\
-`Failing to help developing nations brace for disruption will lead to increased conflict and widespread suffering, the United Nations wrote in a new report.`\
-https://nytimes.com/2022/11/03/climate/united-nations-funding-climate-adaptation.html?searchResultPosition=4
-
-**Why the Supreme Court Might End Affirmative Action**\
-`A blockbuster case about race-conscious admissions programs in higher education could reshape American life.`\
-https://nytimes.com/2022/11/03/podcasts/the-daily/affirmative-action-supreme-court.html?searchResultPosition=5
-
-**Nearly 50 Years After Murder, the ‘Lady of the Dunes’ Is Identified**\
-`A body found in 1974 in Massachusetts was that of Ruth Marie Terry of Tennessee, the F.B.I. said this week. Her identity had captivated New Englanders for decades.`\
-https://nytimes.com/2022/11/03/us/provincetown-body-lady-of-the-dunes.html?searchResultPosition=6
-
-**‘These Guys Are Nasty’: Houston Thrives With Unexpected Stars**\
-`Cristian Javier and Framber Valdez were never considered top prospects, but the young starting pitchers are leading the way for the Astros in the World Series.`\
-https://nytimes.com/2022/11/03/sports/baseball/cristian-javier-framber-valdez-astros.html?searchResultPosition=7
-
-**A Studio Ghibli Classic Comes to the London Stage**\
-`An adaptation of  “My Neighbour Totoro” enchants  audiences at the Barbican. Across town at the Harold Pinter Theater, a revival of “Good” takes viewers to darker territory.`\
-https://nytimes.com/2022/11/03/theater/my-neighbour-totoro-barbican-london.html?searchResultPosition=8
-
-**The Tajik Artisans Guarding the Country’s Cultural Legacy**\
-`While Tajikistan’s history is being hidden behind glimmering new facades, some hold onto tradition with quiet determination.`\
-https://nytimes.com/2022/11/03/t-magazine/tajikistan-artisans.html?searchResultPosition=9
-
-**In Search of a Lost Spain**\
-`In the southern part of the country, churches and streets hold the remnants of eight centuries of Islamic rule.`\
-https://nytimes.com/2022/11/03/t-magazine/spain-islamic-history.html?searchResultPosition=10
+https://nytimes.com/2022/11/03/us/stacey-abrams-ethics-voting-rights.html?searchResultPosition=10
 
