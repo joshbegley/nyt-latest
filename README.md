@@ -1,5 +1,5 @@
 **Nearly 50 Years After Murder, the ‘Lady of the Dunes’ Is Identified**\
-`A body found in 1974 Massachusetts was that of Ruth Marie Terry of Tennessee, the F.B.I. said this week. Her identity had captivated New Englanders for decades.`\
+`A body found in 1974 in Massachusetts was that of Ruth Marie Terry of Tennessee, the F.B.I. said this week. Her identity had captivated New Englanders for decades.`\
 https://nytimes.com/2022/11/03/us/provincetown-body-lady-of-the-dunes.html?searchResultPosition=1
 
 **‘These Guys Are Nasty’: Houston Thrives With Unexpected Stars**\
