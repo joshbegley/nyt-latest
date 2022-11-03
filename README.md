@@ -1,40 +1,40 @@
+**Paul Pelosi Leaves San Francisco Hospital After Attack**\
+`The husband of Nancy Pelosi, the House speaker, returned home six days after being beaten with a hammer by an assailant who targeted his wife.`\
+https://nytimes.com/2022/11/03/us/paul-pelosi-leaves-hospital.html?searchResultPosition=1
+
 **Kamala Harris and Hillary Clinton Rally Women to Support Hochul**\
 `With Election Day approaching and the governor’s race tightening, Gov. Kathy Hochul will appear at a get-out-the-vote rally with major female Democratic leaders.`\
-https://nytimes.com/2022/11/03/nyregion/hochul-women-kamala-harris.html?searchResultPosition=1
+https://nytimes.com/2022/11/03/nyregion/hochul-women-kamala-harris.html?searchResultPosition=2
 
 **Accusations of Racism Against Lawmaker Roil France’s Parliament**\
 `A far-right member of Parliament shouted that someone should “go back to Africa” while a Black lawmaker was discussing migrants.`\
-https://nytimes.com/2022/11/03/world/europe/france-racism-parliament.html?searchResultPosition=2
+https://nytimes.com/2022/11/03/world/europe/france-racism-parliament.html?searchResultPosition=3
 
 **Kherson Braces for Battle as Russian Administration Evacuates**\
 `Evidence points to both sides preparing for a pitched battle for the southern city, and Ukrainians say hints of a Russian military withdrawal are mere deception.`\
-https://nytimes.com/2022/11/03/world/europe/russia-ukraine-kherson-battle.html?searchResultPosition=3
+https://nytimes.com/2022/11/03/world/europe/russia-ukraine-kherson-battle.html?searchResultPosition=4
 
 **Tony Isidore, Galvanizing Adman, Is Dead at 89**\
 `With arresting ad campaigns, he helped promote the New York Urban Coalition (“Give a Damn”) and the re-election of Mayor John V. Lindsay (“I Made Mistakes”).`\
-https://nytimes.com/2022/11/03/nyregion/tony-isidore-dead.html?searchResultPosition=4
+https://nytimes.com/2022/11/03/nyregion/tony-isidore-dead.html?searchResultPosition=5
 
 **The G.O.P. Plot Against Medicare and Social Security**\
 `Never mind the “populism,” it’s still a rich man’s party.`\
-https://nytimes.com/2022/11/03/opinion/republican-medicare-social-security.html?searchResultPosition=5
+https://nytimes.com/2022/11/03/opinion/republican-medicare-social-security.html?searchResultPosition=6
 
 **Voters Have Expanded Medicaid in 6 States. Is South Dakota Next?**\
 `Ten years after the Supreme Court ruled that states did not have to expand Medicaid, the politics are changing in states like South Dakota, where rural hospitals and nursing homes are struggling.`\
-https://nytimes.com/2022/11/03/us/politics/medicaid-expansion-south-dakota.html?searchResultPosition=6
+https://nytimes.com/2022/11/03/us/politics/medicaid-expansion-south-dakota.html?searchResultPosition=7
 
 **Elon Musk, Under Financial Pressure, Pushes to Make Money From Twitter**\
 `The billionaire and his advisers have discussed adding paid direct messages, fees to watch videos and other features to the service.`\
-https://nytimes.com/2022/11/03/technology/elon-musk-twitter-money-finances.html?searchResultPosition=7
+https://nytimes.com/2022/11/03/technology/elon-musk-twitter-money-finances.html?searchResultPosition=8
 
 **Anatoly Karpov, the Russian lawmaker and former chess champion, is injured in an apparent fall.**\
 `Mr. Karpov has been a loyal defender of Russia’s president, Vladimir V. Putin, and the invasion of Ukraine. But he has also expressed sympathy for the war’s civilian victims on both sides.`\
-https://nytimes.com/2022/11/03/world/europe/anatoly-karpov-chess-champion-russia.html?searchResultPosition=8
+https://nytimes.com/2022/11/03/world/europe/anatoly-karpov-chess-champion-russia.html?searchResultPosition=9
 
 **Your Friday Briefing: A COP 27 Preview**\
 `Plus Benjamin Netanyahu retakes power in Israel and Imran Khan is wounded in Pakistan.`\
-https://nytimes.com/2022/11/03/briefing/cop27-khan-israel-asia.html?searchResultPosition=9
-
-**How Much Watching Time Do You Have This Weekend?**\
-`Our TV critic recommends checking out an enchanting cartoon, a new British musical drama and a well-done crime documentary.`\
-https://nytimes.com/2022/11/03/arts/television/phil-spector-documentary-mood.html?searchResultPosition=10
+https://nytimes.com/2022/11/03/briefing/cop27-khan-israel-asia.html?searchResultPosition=10
 
