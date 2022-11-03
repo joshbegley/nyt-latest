@@ -4,7 +4,7 @@ https://nytimes.com/2022/11/03/nyregion/child-care-payments-nyc.html?searchResul
 
 **How does early voting work?**\
 `Most states allow pre-election voting, which surged in popularity during the 2020 election, although rules vary.`\
-https://nytimes.com/2022/11/03/us/politics/how-early-voting.html?searchResultPosition=2
+https://nytimes.com/2022/11/03/us/politics/midterm-elections-early-voting.html?searchResultPosition=2
 
 **The Best Places to Watch the New York City Marathon**\
 `It has become the city’s biggest block party. Here’s where to cheer for the 50,000 runners in every borough.`\
