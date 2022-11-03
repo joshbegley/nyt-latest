@@ -14,8 +14,8 @@ https://nytimes.com/2022/11/02/pageoneplus/corrections-nov-3-2022.html?searchRes
 `The president warned of escalating threats of political violence after the assault of the husband of Speaker Nancy Pelosi. Mr. Biden asked Americans to vote in the midterms for representatives who would accept the results.`\
 https://nytimes.com/2022/11/02/us/politics/transcript-biden-speech-democracy.html?searchResultPosition=4
 
-**North Korea Fires 3 More Missiles Toward Japan, Including Suspected ICBM**\
-`Just a day after launching nearly two dozen missiles, the North fired off more, one of which officials said appeared to be an intercontinental ballistic missile.`\
+**North Korea Fires 3 More Missiles Toward Japan, Including an ICBM**\
+`Just a day after launching nearly two dozen missiles, the North fired off more, one of which South Korean officials said was an intercontinental ballistic missile.`\
 https://nytimes.com/2022/11/02/world/asia/north-korea-missile-japan.html?searchResultPosition=5
 
 **‘Democracy Is on the Ballot,’ Biden Says Ahead of Midterm Elections**\
