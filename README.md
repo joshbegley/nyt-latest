@@ -8,7 +8,7 @@ https://nytimes.com/2022/11/03/us/politics/biden-new-mexico-economy.html?searchR
 
 **How to Be Bored, and What You Can Learn From It**\
 `Figuring out the root cause of our lack of inspiration can help us make better choices in how we spend our time, experts say.`\
-https://nytimes.com/2022/11/03/well/how-to-be-bored-and-what-you-can-learn-from-it.html?searchResultPosition=3
+https://nytimes.com/2022/11/03/well/boredom-inspiration-mindfulness.html?searchResultPosition=3
 
 **Biden and Netanyahu Gear Up for a Complicated New Era**\
 `The two leaders have forged a relationship over four decades that vacillates between warmth and combat.`\
