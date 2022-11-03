@@ -1,40 +1,40 @@
+**Winter Movies 2022: Here’s What’s Coming Soon to Streaming and Theaters**\
+`The season’s gifts include long-awaited sequels to “Black Panther” and “Knives Out” and intriguing originals like “Women Talking” and “The Fabelmans.”`\
+https://nytimes.com/2022/11/03/movies/winter-movies-2022.html?searchResultPosition=1
+
+**The Stars Have Holiday-Movie Favorites, Too**\
+`Don Cheadle, Hong Chau, Leslie Odom Jr., Zoey Deutch and Lindsay Lohan explain what films they turn to at this time of year.`\
+https://nytimes.com/2022/11/03/movies/actors-favorite-holiday-movies.html?searchResultPosition=2
+
+**Homes for Sale in New York City**\
+`This week’s properties are on the Lower East Side, in Morningside Heights and in Prospect Heights.`\
+https://nytimes.com/2022/11/03/realestate/housing-market-new-york-city.html?searchResultPosition=3
+
+**A Photographer’s Romantic Black-and-White Landscapes**\
+`Plus: a documentary chronicle of New York City’s underground rock scene, genderless jewelry and more recommendations from T Magazine.`\
+https://nytimes.com/2022/11/03/t-magazine/daniel-cheek-meet-me-in-the-bathroom.html?searchResultPosition=4
+
+**Homes for Sale in New Jersey and Connecticut**\
+`This week’s properties are a six-bedroom in Moorestown, N.J., and a four-bedroom in Southport, Conn.`\
+https://nytimes.com/2022/11/03/realestate/housing-market-near-nyc.html?searchResultPosition=5
+
+**Older, White and Wealthy Home Buyers Are Pushing Others Out of the Market**\
+`The share of first-time buyers fell to 26 percent, plummeting to the lowest level in four decades, when a real estate trade association began tracking such data.`\
+https://nytimes.com/2022/11/03/realestate/housing-market-buyer-wealth-race.html?searchResultPosition=6
+
 **Half of California’s 10 Biggest Cities Are Choosing a New Mayor**\
 `In places like Los Angeles, Oakland and San Jose, voters are especially concerned with affordable housing and homelessness.`\
-https://nytimes.com/2022/11/03/us/california-cities-mayor-elections.html?searchResultPosition=1
+https://nytimes.com/2022/11/03/us/california-cities-mayor-elections.html?searchResultPosition=7
 
 **Imran Khan, Ex-Prime Minister of Pakistan, Is Shot at Rally**\
 `At least one unidentified man opened fire on Mr. Khan’s convoy while he was leading a protest march to the capital, Islamabad. Mr. Khan was wounded in the leg, in what aides said was a targeted attack.`\
-https://nytimes.com/2022/11/03/world/asia/pakistan-imran-khan-shot.html?searchResultPosition=2
+https://nytimes.com/2022/11/03/world/asia/pakistan-imran-khan-shot.html?searchResultPosition=8
 
 **BlackRock Sees a ‘Revolution’ Coming in Corporate Governance**\
 `The money manager said it will let more clients vote individually in companies’ elections, as it faces criticism of its own shareholder power.`\
-https://nytimes.com/2022/11/03/business/dealbook/blackrock-investors-esg-corporate-governance.html?searchResultPosition=3
+https://nytimes.com/2022/11/03/business/dealbook/blackrock-investors-esg-corporate-governance.html?searchResultPosition=9
 
 **How Writing Prompts Can Motivate Students for Mock Debate**\
 `A fourth-grade teacher shares how he used a list of questions compiled by The Learning Network to get students writing and talking about the issues that mattered to them.`\
-https://nytimes.com/2022/11/03/learning/lesson-plans/how-writing-prompts-can-motivate-students-for-mock-debate.html?searchResultPosition=4
-
-**As Dollar Strengthens, U.S. Students in Europe Feel the Benefits**\
-`The pound and the euro are trading at decades-long lows against the dollar. For American students abroad, that has made weekend trips, dinners and theater tickets (somewhat) less of a splurge.`\
-https://nytimes.com/2022/11/03/world/europe/study-abroad-europe-students.html?searchResultPosition=5
-
-**With Child Care Centers in Crisis, New York Pledges to Speed Payments**\
-`Child care providers and parents have grown frustrated over millions of dollars in delayed payments, and one major center is closing.`\
-https://nytimes.com/2022/11/03/nyregion/child-care-funding-nyc.html?searchResultPosition=6
-
-**How does early voting work?**\
-`Most states allow pre-election voting, which surged in popularity during the 2020 election, although rules vary.`\
-https://nytimes.com/2022/11/03/us/politics/midterm-elections-early-voting.html?searchResultPosition=7
-
-**The Best Places to Watch the New York City Marathon**\
-`It has become the city’s biggest block party. Here’s where to cheer for the 50,000 runners in every borough.`\
-https://nytimes.com/2022/11/03/sports/watch-nyc-marathon.html?searchResultPosition=8
-
-**Review: In ‘You Resemble Me,’ a Maladjusted Girl Is Interrupted**\
-`Dina Amer’s film uses empathetic, if simplistic, fictions to try to make sense of the complicated real life of a young Moroccan-French woman drawn to ISIS.`\
-https://nytimes.com/2022/11/03/movies/review-in-you-resemble-me-a-maladjusted-girl-is-interrupted.html?searchResultPosition=9
-
-**‘Next Exit’ Review: End of the Road**\
-`Two strangers reflect on their lives as they embark on a cross-country drive to join a study involving life after death.`\
-https://nytimes.com/2022/11/03/movies/next-exit-review-end-of-the-road.html?searchResultPosition=10
+https://nytimes.com/2022/11/03/learning/lesson-plans/how-writing-prompts-can-motivate-students-for-mock-debate.html?searchResultPosition=10
 
