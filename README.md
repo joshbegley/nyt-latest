@@ -12,7 +12,7 @@ https://nytimes.com/2022/11/03/world/europe/study-abroad-europe-students.html?se
 
 **With Child Care Centers in Crisis, New York Pledges to Speed Payments**\
 `Child care providers and parents have grown frustrated over millions of dollars in delayed payments, and one major center is closing.`\
-https://nytimes.com/2022/11/03/nyregion/child-care-payments-nyc.html?searchResultPosition=4
+https://nytimes.com/2022/11/03/nyregion/child-care-funding-nyc.html?searchResultPosition=4
 
 **How does early voting work?**\
 `Most states allow pre-election voting, which surged in popularity during the 2020 election, although rules vary.`\
