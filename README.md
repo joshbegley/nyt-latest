@@ -3,7 +3,7 @@
 https://nytimes.com/2022/11/04/health/florida-gender-care-minors-medical-board.html?searchResultPosition=1
 
 **Confusion and Frustration Reign as Elon Musk Cuts Half of Twitter’s Staff**\
-`The layoffs hit across many divisions, including the engineering and machine learning units, the trust and safety teams that manage content moderation, and the sales and advertising departments.`\
+`The layoffs hit across many divisions, including the engineering and machine learning units, the teams that manage content moderation, and the sales and advertising departments.`\
 https://nytimes.com/2022/11/04/technology/elon-musk-twitter-layoffs.html?searchResultPosition=2
 
 **Review: In ‘Where the Mountain Meets the Sea,’ Missed Connections**\
