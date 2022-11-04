@@ -14,7 +14,7 @@ https://nytimes.com/2022/11/04/theater/macbeth-female-playwrights.html?searchRes
 `A nostalgic romp along Charoen Krung Road reveals salvaged shophouses, boutique inns and a scuba-diving cafe.`\
 https://nytimes.com/2022/11/04/t-magazine/wanderlust-bangkok-charoen-krung-road.html?searchResultPosition=4
 
-**Black Wall Street’ Was Burned Down in 1921, but It’s Being Revived**\
+**‘Black Wall Street’ Was Burned Down in 1921, but It’s Being Revived**\
 `The second Black Venture Summit was held in Tulsa this year.`\
 https://nytimes.com/2022/11/04/opinion/black-wall-street-tulsa.html?searchResultPosition=5
 
