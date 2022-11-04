@@ -34,7 +34,7 @@ https://nytimes.com/2022/11/04/todayspaper/quotation-of-the-day-in-europe-refuge
 `When loving a dog feels much more fraught than loving another man.`\
 https://nytimes.com/2022/11/04/style/modern-love-my-post-divorce-choice-okcupid-or-petfinder.html?searchResultPosition=9
 
-**‘Co-Conspirators and Playmates From the Get-Go’**\
-`Jennifer Douglas was “avowedly anti-marriage” after her divorce; Kent Shell, too. Until she got down on one knee.`\
-https://nytimes.com/2022/11/04/style/jennifer-douglas-kent-shell-wedding.html?searchResultPosition=10
+**China’s Out-of-Control Rocket Booster Is Headed Back to Earth**\
+`For the fourth time, the country’s space program has used a 23-ton launcher that has scattered debris after previous flights.`\
+https://nytimes.com/2022/11/04/science/china-rocket-debris.html?searchResultPosition=10
 
