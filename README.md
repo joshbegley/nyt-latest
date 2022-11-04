@@ -2,7 +2,7 @@
 `The former prime minister accused military and government officials of plotting the attack that wounded him as political violence welled up around Pakistan.`\
 https://nytimes.com/2022/11/04/world/asia/pakistan-imran-khan.html?searchResultPosition=1
 
-**U.S. Will Pay Tribes to Rebuild Away From Climate Threats**\
+**In a First, U.S. Pays Tribes to Move Away From Climate Threats**\
 `The Interior Department has selected the winners of a new competition to relocate communities vulnerable to climate change. It could become a model for the rest of the country.`\
 https://nytimes.com/2022/11/04/climate/native-americans-relocate-climate-change.html?searchResultPosition=2
 
