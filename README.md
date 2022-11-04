@@ -14,8 +14,8 @@ https://nytimes.com/2022/11/04/t-magazine/miniature-furniture.html?searchResultP
 `The 4-year-old colt is undefeated in five races, winning by an average of more than 10 lengths. The Breeders’ Cup Classic on Saturday will be his first big moment in the spotlight.`\
 https://nytimes.com/2022/11/04/sports/horse-racing/flightline-breeders-cup.html?searchResultPosition=4
 
-**India’s Air Quality Is Dreadfully Bad. Again.**\
-`Toxic air in northern India this week has prompted school closures, traffic restrictions and political infighting. “We are not breathing air but smoking it,” one activist said.`\
+**Air Quality in India’s Capital Is Dreadfully Bad. Again.**\
+`Toxic air in New Delhi and large parts of northern India this week has prompted school closures, traffic restrictions and political infighting.`\
 https://nytimes.com/2022/11/04/world/asia/india-air-pollution-sickness.html?searchResultPosition=5
 
 **A Poll Reversal**\
