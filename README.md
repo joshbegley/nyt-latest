@@ -31,7 +31,7 @@ https://nytimes.com/2022/11/04/world/asia/china-covid-lanzhou-boy.html?searchRes
 https://nytimes.com/2022/11/04/sports/baseball/phillies-offense-world-series.html?searchResultPosition=8
 
 **In Bid to Show It Is Open, Hong Kong Bends Covid Rules … for Some**\
-`Three splashy events this week were meant to prove that the former British colony was still “Asia’s World City.” But pandemic exemptions were only doled out to those who could afford them.`\
+`Three splashy events this week were meant to prove that the former British colony was still “Asia’s World City.” But Covid exemptions were provided for visitors from overseas, especially the wealthy ones.`\
 https://nytimes.com/2022/11/04/business/hong-kong-covid-rules.html?searchResultPosition=9
 
 **These Biologists Work With Animals, but in Real Estate**\
