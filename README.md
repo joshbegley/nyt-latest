@@ -1,14 +1,14 @@
+**What Twitter’s Shake-Up Could Mean: Midterm Misinformation Run Amok**\
+`By Blake Hounshell`\
+https://nytimes.com/2022/11/04/us/politics/twitter-midterms-misinformation.html?searchResultPosition=1
+
 **Democrats Promote Tough-on-Crime Credentials as Party Plays Defense**\
 `With sheriffs vouching for them and a flood of ads proclaiming their support for the police, Democrats are shoring up their public safety bona fides. Still, some worry it’s too late.`\
-https://nytimes.com/2022/11/04/us/politics/crime-midterms-ballot-democrats.html?searchResultPosition=1
+https://nytimes.com/2022/11/04/us/politics/crime-midterms-ballot-democrats.html?searchResultPosition=2
 
 **Life Without Limits **\
 `The Quest to Live Longer and Stronger`\
-https://nytimes.com/paidpost/national-geographic/national-geographic/life-without-limits.html?searchResultPosition=2
-
-**What Twitter’s Shake-Up Could Mean: Midterm Misinformation Run Amok**\
-`By Blake Hounshell`\
-https://nytimes.com/2022/11/04/us/politics/twitter-midterms-misinformation.html?searchResultPosition=3
+https://nytimes.com/paidpost/national-geographic/national-geographic/life-without-limits.html?searchResultPosition=3
 
 **Dancing at Paul Taylor, a New Generation Finds Its Footing**\
 `For its Lincoln Center season, the Paul Taylor Dance Company presents premieres by Lauren Lovette and Amy Hall Garner, along with the classics.`\
