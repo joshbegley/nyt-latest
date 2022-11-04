@@ -2,7 +2,7 @@
 `Elon Musk is not the worst thing about Twitter.`\
 https://nytimes.com/2022/11/04/opinion/elon-musk-twitter-free.html?searchResultPosition=1
 
-**Rebecca Godfrey, Who Found Humanity in Teenage Violence, Dies at 54**\
+**Rebecca Godfrey, Author Who Found Humanity in Teenage Violence, Dies at 54**\
 `She drew praise for the precision and compassion of “Under the Bridge,” her account of the beating and murder of a 14-year-old girl.`\
 https://nytimes.com/2022/11/04/books/rebecca-godfrey-dead.html?searchResultPosition=2
 
