@@ -22,8 +22,8 @@ https://nytimes.com/2022/11/04/business/election-prediction-markets-midterms.htm
 `The ballot initiative would increase taxes on the wealthiest Californians to subsidize electric vehicle programs.`\
 https://nytimes.com/2022/11/04/us/california-gavin-newsom-prop-30.html?searchResultPosition=6
 
-**Oprah Winfrey is supporting Fetterman over Oz in the Pennsylvania Senate race.**\
-`Ms. Winfrey was instrumental in the rise of Dr. Mehmet Oz, the celebrity television doctor and Republican Senate nominee, but she has announced her support for his Democratic opponent.`\
+**Oprah Winfrey is supporting Fetterman over Oz in Pennsylvania’s Senate race.**\
+`Ms. Winfrey was instrumental in the rise of Dr. Mehmet Oz, the celebrity television doctor and Republican Senate nominee, but she has announced her support for John Fetterman, his Democratic opponent.`\
 https://nytimes.com/2022/11/04/us/politics/oprah-winfrey-fetterman-oz-pennsylvania-senate.html?searchResultPosition=7
 
 **The Ax Falls for Twitter Employees**\
