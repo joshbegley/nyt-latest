@@ -1,4 +1,4 @@
-**Los Angeles F.C. Wins First Title on Dramatic Day’s Final Turn**\
+**Los Angeles F.C. Wins First Title on Dramatic Day’s Final Twist**\
 `A penalty shootout finally separated the league’s best teams after six goals, two overtimes and a last-minute goal by Gareth Bale.`\
 https://nytimes.com/2022/11/05/sports/soccer/mls-cup.html?searchResultPosition=1
 
