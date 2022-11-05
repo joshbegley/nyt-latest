@@ -8,7 +8,7 @@ https://nytimes.com/2022/11/05/us/politics/biden-coal-comments-manchin.html?sear
 
 **In 2022, Reality Has a Conservative Bias**\
 `Can liberalism adapt itself to what reality is asking?`\
-https://nytimes.com/2022/11/05/opinion/in-2022-reality-has-a-conservative-bias.html?searchResultPosition=3
+https://nytimes.com/2022/11/05/opinion/2022-election-democrat-republican.html?searchResultPosition=3
 
 **At Fetterman Rally, Obama Mocks Oz and Tells Crowd to Vote for Democracy**\
 `Former President Barack Obama, campaigning in Pittsburgh with John Fetterman as he seeks to become senator, urged supporters to vote to save democracy and abortion rights.`\
