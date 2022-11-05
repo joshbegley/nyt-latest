@@ -6,7 +6,7 @@ https://nytimes.com/2022/11/05/us/politics/biden-rally-pennsylvania.html?searchR
 `The new system for assigning check marks to users’ profiles is among a raft of changes the company has been discussing since Elon Musk’s takeover.`\
 https://nytimes.com/2022/11/05/business/twitter-verification-check-marks.html?searchResultPosition=2
 
-**Democrats Worry About Threats in the County Where Trump Will Rally**\
+**Democrats express concern about threats and violence in the Pennsylvania county where Trump is holding his rally.**\
 `“We are targets here,” said Michelle McFall, the chairwoman of the Westmoreland County Democrats.`\
 https://nytimes.com/2022/11/05/us/politics/political-violence-westmoreland-pa.html?searchResultPosition=3
 
