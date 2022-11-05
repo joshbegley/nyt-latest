@@ -1,4 +1,4 @@
-**Fractured Michigan G.O.P. offers a show of unity at a homestretch rally.**\
+**Michigan G.O.P. offers a show of unity at a homestretch rally.**\
 `Candidates for governor, secretary of state and attorney general join forces to get out the vote.`\
 https://nytimes.com/2022/11/04/us/politics/michigan-election-rally.html?searchResultPosition=1
 
