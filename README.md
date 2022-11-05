@@ -3,7 +3,7 @@
 https://nytimes.com/2022/11/05/us/politics/walker-warnock-georgia-tv-ads.html?searchResultPosition=1
 
 **Los Angeles F.C. Wins First Title on Dramatic Day’s Final Twist**\
-`A penalty shootout finally separated the league’s best teams after six goals, two overtimes and a last-minute goal by Gareth Bale.`\
+`A penalty shootout finally separated the league’s best teams after six goals, a scary injury and a last-minute goal by Gareth Bale.`\
 https://nytimes.com/2022/11/05/sports/soccer/mls-cup.html?searchResultPosition=2
 
 **The New York City Marathon by the Numbers**\
