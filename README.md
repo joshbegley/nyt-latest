@@ -34,7 +34,7 @@ https://nytimes.com/2022/11/05/us/politics/pennsylvania-mail-ballots-naacp.html?
 `Firefighters used ropes to make a daring rescue of a woman from a 20th floor apartment, officials said.`\
 https://nytimes.com/2022/11/05/nyregion/manhattan-high-rise-fire.html?searchResultPosition=9
 
-**Samuel L. Katz, a Developer of the Measles Vaccine, Dies at 94**\
+**Samuel L. Katz, a Developer of the Measles Vaccine, Dies at 95**\
 `In 1956, when he began working with a small group in a Boston laboratory, measles was a major threat. Seven years later, lifesaving immunizations began.`\
 https://nytimes.com/2022/11/05/health/samuel-katz-dead.html?searchResultPosition=10
 
