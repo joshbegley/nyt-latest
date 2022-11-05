@@ -30,7 +30,7 @@ https://nytimes.com/2022/11/05/world/europe/kyiv-ukraine-electricity-russia-infr
 `A House Democrat, he worked across the aisle with Senator Alan K. Simpson to enable a compromise allowing amnesty for millions of undocumented immigrants.`\
 https://nytimes.com/2022/11/05/us/politics/romano-mazzoli-who-oversaw-major-immigration-reform-dies-at-89.html?searchResultPosition=8
 
-**N.H.L. Commissioner Bars Player Who Racially Abused a Classmate**\
+**N.H.L. Commissioner Says Player Who Racially Abused a Classmate Is Ineligible**\
 `On Friday, the Bruins signed the 20-year-old defenseman who was convicted in 2016 of abusing a Black classmate who had a developmental disability to an entry-level contract.`\
 https://nytimes.com/2022/11/05/sports/hockey/bruins-miller-bettman-nhl.html?searchResultPosition=9
 
