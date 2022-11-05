@@ -2,13 +2,13 @@
 `The tennis star has spoken out against Russia’s invasion of Ukraine and come out as gay with her partner, the figure skater and fellow Russian Natalia Zabiiako. And she’s winning.`\
 https://nytimes.com/2022/11/05/sports/tennis/daria-kasatkina-russia.html?searchResultPosition=1
 
-**Corrections: Nov. 5, 2022**\
-`Corrections that appeared in print on Saturday, Nov. 5, 2022.`\
-https://nytimes.com/2022/11/05/pageoneplus/corrections-nov-5-2022.html?searchResultPosition=2
-
 **Quotation of the Day: Worries Rise, and Wrecks Emerge, as a River Dries Up**\
 `Quotation of the Day for Saturday, Nov. 5, 2022.`\
-https://nytimes.com/2022/11/05/todayspaper/quotation-of-the-day-worries-rise-and-wrecks-emerge-as-a-river-dries-up.html?searchResultPosition=3
+https://nytimes.com/2022/11/05/todayspaper/quotation-of-the-day-worries-rise-and-wrecks-emerge-as-a-river-dries-up.html?searchResultPosition=2
+
+**Corrections: Nov. 5, 2022**\
+`Corrections that appeared in print on Saturday, Nov. 5, 2022.`\
+https://nytimes.com/2022/11/05/pageoneplus/corrections-nov-5-2022.html?searchResultPosition=3
 
 **Michigan G.O.P. offers a show of unity at a homestretch rally.**\
 `Candidates for governor, secretary of state and attorney general join forces to get out the vote.`\
