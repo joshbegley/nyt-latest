@@ -1,40 +1,40 @@
-**How Diverse Are the Candidates in the Midterm Elections?**\
-`See where underrepresented groups have made gains and where they have declined.`\
-https://nytimes.com/interactive/2022/11/05/us/politics/midterms-diversity.html?searchResultPosition=1
+**A Vibrant Refuge in Seoul Goes Quiet After Deadly Crowd Crush**\
+`Itaewon was popular for its diversity and nightlife. A week after a disaster killed more than 150 young people there, the neighborhood is a monument of grief.`\
+https://nytimes.com/2022/11/05/world/asia/seoul-itaewon-stampede.html?searchResultPosition=1
 
-**Miami-Dade County Was Once a Lock for Democrats. Not Anymore.**\
-`Republicans could flip Florida’s most populous county, a “massive warning sign” for Democratic Party leaders.`\
-https://nytimes.com/2022/11/05/us/florida-miami-democrats-midterms.html?searchResultPosition=2
+**What Can U.S. Democracy Learn From Brazil?**\
+`Both nations had presidents who attacked their elections. But their responses — and the aftermaths — were much different.`\
+https://nytimes.com/2022/11/05/world/americas/brazil-election-us-democracy.html?searchResultPosition=2
 
-**G.O.P. Seeks to Erase Democratic Supermajority in New York Legislature**\
-`A Republican surge is threatening to counter gains made by progressive-minded Democrats, who have pushed the State Legislature to the left in recent years.`\
-https://nytimes.com/2022/11/05/nyregion/senate-assembly-election-ny.html?searchResultPosition=3
+**Questions for Kathy Hochul and Lee Zeldin**\
+`For the first time in decades, the race for governor in New York is competitive. Here’s what you need to know.`\
+https://nytimes.com/2022/11/05/nyregion/hochul-zeldin-governor-issues.html?searchResultPosition=3
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/11/05/crosswords/spelling-bee-forum.html?searchResultPosition=4
+**How an Astrophysicist Spends Her Sundays**\
+`Jackie Faherty is a people person, but the sky is a “familiar and safe friend,” too.`\
+https://nytimes.com/2022/11/05/nyregion/jackie-faherty.html?searchResultPosition=4
 
-**Daria Kasatkina’s Tumultuous and Triumphant Season**\
-`The tennis star has spoken out against Russia’s invasion of Ukraine and come out as gay with her partner, the figure skater and fellow Russian Natalia Zabiiako. And she’s winning.`\
-https://nytimes.com/2022/11/05/sports/tennis/daria-kasatkina-russia.html?searchResultPosition=5
+**Republican Gains in Congress Would Pressure Biden on Ukraine and Iran**\
+`Officials in the Biden administration expect plenty of complications, including summons to hearings over the U.S. withdrawal from Afghanistan.`\
+https://nytimes.com/2022/11/05/us/politics/biden-ukraine-midterm-elections.html?searchResultPosition=5
 
-**Corrections: Nov. 5, 2022**\
-`Corrections that appeared in print on Saturday, Nov. 5, 2022.`\
-https://nytimes.com/2022/11/05/pageoneplus/corrections-nov-5-2022.html?searchResultPosition=6
+**3 Presidents Swoop Into Pennsylvania, in a Clash That Transcends 2022**\
+`As the midterms come to a close, the establishment politics of the two most recent Democratic presidents will meet the disruptive force of the last Republican one, with control of Congress at stake.`\
+https://nytimes.com/2022/11/05/us/politics/obama-trump-biden-pennsylvania-midterms.html?searchResultPosition=6
 
-**Quotation of the Day: Worries Rise, and Wrecks Emerge, as a River Dries Up**\
-`Quotation of the Day for Saturday, Nov. 5, 2022.`\
-https://nytimes.com/2022/11/05/todayspaper/quotation-of-the-day-worries-rise-and-wrecks-emerge-as-a-river-dries-up.html?searchResultPosition=7
+**Family Ties. Political Divisions.**\
+`For Carolyn Broe and her family, the 2022 midterms have unfolded the way they have for countless others: with great bitterness and turbulence.`\
+https://nytimes.com/2022/11/05/us/politics/politically-divided-family.html?searchResultPosition=7
 
-**Michigan G.O.P. offers a show of unity at a homestretch rally.**\
-`Candidates for governor, secretary of state and attorney general join forces to get out the vote.`\
-https://nytimes.com/2022/11/04/us/politics/michigan-election-rally.html?searchResultPosition=8
+**It Looks Like a Shell, but an Octopus and 40,000 Eggs Live Inside**\
+`Scientists are studying how the argonaut octopus evolved the ability to produce a floating shell-like structure to care for its offspring.`\
+https://nytimes.com/2022/11/05/science/octopus-shell-argonaut.html?searchResultPosition=8
 
-**Humblebrag, of a Sort**\
-`John Westwig’s chaotic Saturday crossword is worth your best efforts.`\
-https://nytimes.com/2022/11/04/crosswords/daily-puzzle-2022-11-05.html?searchResultPosition=9
+**What Makes a Room Unforgettable?**\
+`Ask the founders of Roman and Williams, who for two decades have designed homes, hotels, restaurants, clubs, galleries, stores, furniture — even birdhouses — bathed in a luxe patina.`\
+https://nytimes.com/2022/11/05/style/roman-and-williams-20th-anniversary.html?searchResultPosition=9
 
-**Jan. 6 Committee Gives Trump More Time to Comply With Subpoena**\
-`The House committee investigating the Capitol attack said it was in discussions with the former president over his compliance ahead of an interview scheduled for this month.`\
-https://nytimes.com/2022/11/04/us/politics/trump-jan-6-subpoena-deadline.html?searchResultPosition=10
+**Pranks, Parties and Politics: Ron DeSantis’s Year as a Schoolteacher**\
+`At a private school 20 years ago, the future Florida governor was a popular history teacher and coach. But some students were taken aback by his comments on the Civil War and abortion.`\
+https://nytimes.com/2022/11/05/us/desantis-high-school-teacher-georgia.html?searchResultPosition=10
 
