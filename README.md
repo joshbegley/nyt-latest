@@ -26,13 +26,13 @@ https://nytimes.com/2022/11/05/opinion/number-the-stars.html?searchResultPositio
 `President Biden has seen his party’s political fortunes driven by the ups and downs of energy prices since the 1970s.`\
 https://nytimes.com/2022/11/05/opinion/biden-gas-prices.html?searchResultPosition=7
 
-**I Write About Post-Roe America Every Day. It’s Worse Than You Think.**\
-`Vote because abortion matters.`\
-https://nytimes.com/2022/11/05/opinion/election-abortion-roe-women.html?searchResultPosition=8
-
 **The Unruly Heirs of Sarah Palin**\
 `Even if Palin loses her House race next week, a new generation of conservative women stand poised to carry her complex legacy forward.`\
-https://nytimes.com/2022/11/05/opinion/sarah-palin-election-midterms.html?searchResultPosition=9
+https://nytimes.com/2022/11/05/opinion/sarah-palin-election-midterms.html?searchResultPosition=8
+
+**I Write About Post-Roe America Every Day. It’s Worse Than You Think.**\
+`Vote because abortion matters.`\
+https://nytimes.com/2022/11/05/opinion/election-abortion-roe-women.html?searchResultPosition=9
 
 **John Hancock and Samuel Adams Are Still Fighting for the Nation’s Soul**\
 `We have landed at the very intersection where the founders parted ways. Very little has changed.`\
