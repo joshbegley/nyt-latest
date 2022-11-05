@@ -1,6 +1,6 @@
 **Walker and Warnock Spend Big on TV Ads as Georgia Football Wins**\
 `Each candidate in Georgia’s pivotal Senate race booked 60 seconds of ads at a cost of $100,000 during the showdown between Tennessee and Georgia.`\
-https://nytimes.com/2022/11/05/us/politics/walker-and-warnock-spend-big-on-tv-ads-as-georgia-football-wins.html?searchResultPosition=1
+https://nytimes.com/2022/11/05/us/politics/walker-warnock-georgia-tv-ads.html?searchResultPosition=1
 
 **Los Angeles F.C. Wins First Title on Dramatic Day’s Final Twist**\
 `A penalty shootout finally separated the league’s best teams after six goals, two overtimes and a last-minute goal by Gareth Bale.`\
