@@ -2,7 +2,7 @@
 `The House committee investigating the Capitol attack said it was in discussions with the former president over his compliance ahead of an interview scheduled for this month.`\
 https://nytimes.com/2022/11/04/us/politics/trump-jan-6-subpoena-deadline.html?searchResultPosition=1
 
-**Nancy Pelosi Says Her Husband’s Recovery Will ‘Be a Long Haul’**\
+**Nancy Pelosi Says Her Husband’s Recovery Will Be a ‘Long Haul’**\
 `In her first publicly broadcast comments since her husband was injured by a hammer-wielding attacker, Ms. Pelosi said that “we have to be optimistic.”`\
 https://nytimes.com/2022/11/04/us/politics/nancy-pelosi-husband-recovery-statement.html?searchResultPosition=2
 
