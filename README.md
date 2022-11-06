@@ -26,7 +26,7 @@ https://nytimes.com/2022/11/06/world/europe/russian-general-putin-war.html?searc
 `The men’s and women’s winners will receive $100,000. The wheelchair winners got less — but made up for some of it with bonuses.`\
 https://nytimes.com/2022/11/06/sports/nyc-marathon-prize-money.html?searchResultPosition=7
 
-**Two Days Before the Midterms, G.O.P. Confidence Clashes With Democratic Anxiety**\
+**Confidence, Anxiety and a Scramble for Votes Two Days Before the Midterms**\
 `As candidates made their closing arguments on Sunday, Democrats braced for potential losses even in traditionally blue corners of the country while Republicans predicted a red wave.`\
 https://nytimes.com/2022/11/06/us/politics/election-democrats-republicans-predictions.html?searchResultPosition=8
 
