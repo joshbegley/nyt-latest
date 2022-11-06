@@ -1,4 +1,4 @@
-**Twitter Is Said to Delay Changes to Check Mark Badges Until After Midterms**\
+**Twitter Said to Delay Changes to Check Mark Badges Until After Midterm Election**\
 `Users and employees had raised concerns that Elon Musk’s plan to give check marks to those who paid a monthly fee could be misused to sow discord.`\
 https://nytimes.com/2022/11/06/technology/twitter-verification-check-marks.html?searchResultPosition=1
 
