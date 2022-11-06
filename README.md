@@ -26,8 +26,8 @@ https://nytimes.com/2022/11/05/sports/horse-racing/horses-flightline-breeders-cu
 `Finsterwald was one of the sport’s most consistent money winners. But he may be best known for twice narrowly missing out on winning the Masters.`\
 https://nytimes.com/2022/11/05/sports/golf/dow-finsterwald-dead.html?searchResultPosition=7
 
-**In Georgia, Football and Politics Converge**\
-`Some fans saw a convergence between a University of Georgia football game and the close race between Senator Raphael Warnock and Herschel Walker, a Georgia football hero.`\
+**In Georgia, Could a Football Win Help Walker Win as Well?**\
+`In a neck-and-neck Senate race, Herschel Walker’s supporters are hoping a big win by the Georgia Bulldogs just before Election Day could help him as well.`\
 https://nytimes.com/2022/11/05/us/politics/georgia-football-herschel-walker.html?searchResultPosition=8
 
 **Here’s a Curveball: What About Pressly for Series M.V.P.?**\
