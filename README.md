@@ -3,7 +3,7 @@
 https://nytimes.com/2022/11/06/technology/twitter-verification-check-marks.html?searchResultPosition=1
 
 **After a Life of Struggle, Biden Faces One More Inflection Point**\
-`President Biden had hoped to preside over a moment of  reconciliation after the turmoil of the Trump years. But the fever of polarizing politics has not broken ahead of Tuesday’s midterm elections.`\
+`President Biden had hoped to preside over a moment of reconciliation after the turmoil of the Trump years. But the fever of polarizing politics has not broken ahead of Tuesday’s midterm elections.`\
 https://nytimes.com/2022/11/06/us/politics/biden-election-midterms-trump.html?searchResultPosition=2
 
 **Runners and Spectators Celebrate the New York City Marathon**\
