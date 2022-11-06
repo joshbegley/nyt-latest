@@ -24,7 +24,7 @@ https://nytimes.com/2022/11/06/sports/nyc-marathon-prize-money.html?searchResult
 
 **Two Days Before the Midterms, G.O.P. Confidence Clashes With Democratic Anxiety**\
 `As candidates made their closing arguments on Sunday, Democrats braced for potential losses even in traditionally blue corners of the country while Republicans predicted a red wave.`\
-https://nytimes.com/2022/11/06/us/politics/midterm-election-landscape.html?searchResultPosition=7
+https://nytimes.com/2022/11/06/us/politics/election-democrats-republicans-predictions.html?searchResultPosition=7
 
 **A Climate Change Skeptic’s Change of Heart**\
 `Responses to Bret Stephens’s column about his new views after a visit to Greenland. Also: Homelessness in L.A.; political extremists; divorce and politics.`\
