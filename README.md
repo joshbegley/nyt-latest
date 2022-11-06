@@ -26,7 +26,7 @@ https://nytimes.com/2022/11/06/podcasts/the-daily/the-sunday-read-taken-under-fa
 `The bureau’s outmoded approach is one of the most important factors behind the stunning rise of cybercrime.`\
 https://nytimes.com/2022/11/06/opinion/ransomware-fbi.html?searchResultPosition=7
 
-**Republicans Aren’t Hiding What They Have in Store for Us**\
+**Republicans Have Made It Very Clear What They Want to Do if They Win Congress**\
 `Here comes the G.O.P.’s calamity caucus`\
 https://nytimes.com/2022/11/06/opinion/republican-congress-agenda-mccarthy.html?searchResultPosition=8
 
