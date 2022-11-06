@@ -7,7 +7,7 @@ https://nytimes.com/2022/11/06/todayspaper/quotation-of-the-day-pop-culture-and-
 https://nytimes.com/2022/11/06/sports/how-watch-nyc-marathon-tv-live.html?searchResultPosition=2
 
 **An Unimpeachable Championship: Houston Astros Win World Series**\
-`Dogged by criticism that they could not win without sign-stealing, Houston beat the Philadelphia Phillies in six games to complete a nearly perfect postseason.`\
+`Dogged by criticism that they could not win without sign-stealing, Houston beat the Philadelphia Phillies in six games to complete a truly dominant postseason.`\
 https://nytimes.com/2022/11/05/sports/baseball/houston-astros-world-series.html?searchResultPosition=3
 
 **Corrections: Nov. 6, 2022**\
