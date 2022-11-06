@@ -34,7 +34,7 @@ https://nytimes.com/2022/11/06/opinion/midterms-democracy.html?searchResultPosit
 `The couple served breakfast and hired a D.J. to work the crowd and cheer on the runners.`\
 https://nytimes.com/video/sports/100000008621620/marathon-running-nyc.html?searchResultPosition=9
 
-**Twitter Said to Delay Changes to Check Mark Badges Until After Midterm Election**\
-`Users and employees had raised concerns that Elon Musk’s plan to give check marks to those who paid a monthly fee could be misused to sow discord.`\
-https://nytimes.com/2022/11/06/technology/twitter-verification-check-marks.html?searchResultPosition=10
+**Here are the times of some celebrities running this year’s marathon.**\
+`Now you can compare yourself against Ashton Kutcher.`\
+https://nytimes.com/2022/11/06/sports/ashton-kutcher-marathon-time-ellie-kemper.html?searchResultPosition=10
 
