@@ -7,7 +7,7 @@ https://nytimes.com/video/sports/100000008621338/nyc-marathon-runners-collapse.h
 https://nytimes.com/2022/11/06/us/politics/indigenous-voters-influence.html?searchResultPosition=2
 
 **Russian state media confirms that a top general is no longer in his post.**\
-`Col. Gen. Alexander Lapin had been was publicly bashed by a close ally of President Vladimir V. Putin over his performance in Ukraine.`\
+`Col. Gen. Alexander Lapin had been publicly bashed by a close ally of President Vladimir V. Putin over his performance in Ukraine.`\
 https://nytimes.com/2022/11/06/world/europe/russian-general-putin-war.html?searchResultPosition=3
 
 **What is the prize money for the New York City Marathon?**\
