@@ -23,7 +23,7 @@ https://nytimes.com/2022/11/06/us/black-men-republican-party.html?searchResultPo
 https://nytimes.com/2022/11/06/sports/celebrities-nyc-marathon.html?searchResultPosition=6
 
 **Marcel Hug and Susannah Scaroni win the wheelchair races in record fashion.**\
-`Both Hug and Scaroni set course records and were never challenged throughout their races.`\
+`Both Hug and Scaroni set course records in their races.`\
 https://nytimes.com/2022/11/06/sports/marcel-hug-susannah-scaroni-win-wheelchair-nyc-marathon-records.html?searchResultPosition=7
 
 **The Case for ‘Hibernating’ During Winter**\
