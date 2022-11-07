@@ -1,40 +1,40 @@
+**A $102 Million Closer? It Could Pay Off in October.**\
+`Steven A. Cohen and the Mets are on the verge of completing an eye-popping deal with the right-hander Edwin Díaz that will be the largest contract for a reliever in baseball history.`\
+https://nytimes.com/2022/11/07/sports/baseball/edwin-diaz-contract-mets.html?searchResultPosition=1
+
+**Supreme Court Seems Poised to Streamline Challenges to Agency Power**\
+`The justices appeared ready to rule that people and companies need not wait for administrative rulings to press constitutional claims in federal court.`\
+https://nytimes.com/2022/11/07/us/supreme-court-agencies-sec-ftc.html?searchResultPosition=2
+
+**How does The Times get live election results?**\
+`We combine the work of our team of journalists and software engineers with the reporting of more than 4,000 Associated Press correspondents to power our results pages.`\
+https://nytimes.com/2022/11/07/us/politics/times-results-pages-how-data.html?searchResultPosition=3
+
 **Tracking Subtropical Storm Nicole**\
 `Maps show the storm and its path as Nicole heads toward the Bahamas and possibly Florida.`\
-https://nytimes.com/interactive/2022/11/07/us/tracking-storm-nicole.html?searchResultPosition=1
+https://nytimes.com/interactive/2022/11/07/us/tracking-storm-nicole.html?searchResultPosition=4
 
 **Biggest Surge of Misinformation May Arrive After Election Day, Researchers Say**\
 `People who study disinformation are warning that far-right influencers will seize on ballot-counting delays and other routine issues as evidence of fraud.`\
-https://nytimes.com/2022/11/07/technology/biggest-surge-of-misinformation-may-arrive-after-election-day-researchers-say.html?searchResultPosition=2
+https://nytimes.com/2022/11/07/technology/biggest-surge-of-misinformation-may-arrive-after-election-day-researchers-say.html?searchResultPosition=5
 
 **The Secret to Great Thanksgiving Turkey Is Already in Your Fridge**\
 `A mayonnaise-based marinade gives this bird from J. Kenji López-Alt its gorgeous finish. Spatchcocking and a simple brining technique get it evenly cooked and juicy.`\
-https://nytimes.com/2022/11/07/dining/thanksgiving-turkey-mayonnaise.html?searchResultPosition=3
+https://nytimes.com/2022/11/07/dining/thanksgiving-turkey-mayonnaise.html?searchResultPosition=6
 
 **When Does Collaboration Become Collusion?**\
 `Adhering to antitrust regulation while negotiating collective sustainability targets is proving tougher to navigate for some in the fashion industry.`\
-https://nytimes.com/2022/11/07/fashion/fashion-industry-antitrust-sustainability.html?searchResultPosition=4
+https://nytimes.com/2022/11/07/fashion/fashion-industry-antitrust-sustainability.html?searchResultPosition=7
 
 **Los Angeles Voters Are in a Foul Mood. Will a New Mayor Change Anything?**\
 `Residents are frustrated over homelessness, crime and rising costs. Two candidates for mayor, Karen Bass and Rick Caruso, say they can turn the tide.`\
-https://nytimes.com/2022/11/07/us/la-mayor-karen-bass-rick-caruso.html?searchResultPosition=5
+https://nytimes.com/2022/11/07/us/la-mayor-karen-bass-rick-caruso.html?searchResultPosition=8
 
 **‘My Broken Language’ Review: Piecing Together a Life of Many Dialects**\
 `In Quiara Alegría Hudes’s new play at the Signature Theater, five performers try to summon generations of willful women.`\
-https://nytimes.com/2022/11/07/theater/my-broken-language-review.html?searchResultPosition=6
+https://nytimes.com/2022/11/07/theater/my-broken-language-review.html?searchResultPosition=9
 
 **Why Fly or Swim When You Can Jump? Ask the Springtail.**\
 `Springtails are about the size of a pinhead, but they can control their jumps like seasoned acrobats.`\
-https://nytimes.com/2022/11/07/science/why-fly-or-swim-when-you-can-jump-ask-the-springtail.html?searchResultPosition=7
-
-**Covid Patients Coming Off Ventilators Can Take Weeks to Regain Consciousness**\
-`A new paper suggests that the combination of the virus and anesthesia plunges the brain into a prolonged state of quiet — like a freshwater turtle in winter.`\
-https://nytimes.com/2022/11/07/health/covid-patients-ventilators-consciousness.html?searchResultPosition=8
-
-**The Fed Won’t Say It, but It Doesn’t Want a Strong Stock Market**\
-`When you’re fighting inflation, it’s a problem if people feel richer.`\
-https://nytimes.com/2022/11/07/opinion/fed-stock-market-inflation.html?searchResultPosition=9
-
-**How unusual would a November hurricane be in Florida?**\
-`The official Atlantic hurricane season runs through Nov. 30. But hurricanes this late in the season are rare, and only a few have made U.S. landfall.`\
-https://nytimes.com/2022/10/17/us/november-hurricane-florida.html?searchResultPosition=10
+https://nytimes.com/2022/11/07/science/why-fly-or-swim-when-you-can-jump-ask-the-springtail.html?searchResultPosition=10
 
