@@ -7,7 +7,7 @@ https://nytimes.com/2022/11/07/briefing/us-midterms-cop27-asia.html?searchResult
 https://nytimes.com/2022/11/07/obituaries/ernie-lazar-dead.html?searchResultPosition=2
 
 **‘A Reason to Act Faster’: World Leaders Meet on Climate Amid Other Crises**\
-`On the first day of COP27, the U.N. climate talks, world leaders urged each other to move faster to cut the pollution that is warming the planet.`\
+`On the first day of COP27, the U.N. climate talks, world leaders urged each other to move faster to cut the pollution that is warming the planet while recognizing the war in Ukraine’s global energy effects and the unequal impacts of climate change to date.`\
 https://nytimes.com/2022/11/07/climate/climate-change-crisis-cop27.html?searchResultPosition=3
 
 **American Aid Worker Is Shot Dead in Baghdad**\
