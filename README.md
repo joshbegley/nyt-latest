@@ -10,7 +10,7 @@ https://nytimes.com/2022/11/07/climate/coca-cola-sponsor-cop27-climate-egypt.htm
 `If you’re planning to wake up early to head to the polls on Tuesday, you’ll get a shot at seeing the moon darken as it falls into Earth’s shadow.`\
 https://nytimes.com/2022/11/07/science/lunar-eclipse-when-where.html?searchResultPosition=3
 
-**Tom Brady Has Passed for 100,000 Yards. Sort Of.**\
+**Tom Brady Has Passed for 100,000 Yards. Sort of.**\
 `The Buccaneers quarterback reached a career milestone only by adding in his postseason totals to his regular-season mark. But no rival can match him on either list.`\
 https://nytimes.com/2022/11/07/sports/football/tom-brady-100000-yards.html?searchResultPosition=4
 
