@@ -1,40 +1,40 @@
+**Next to Lambeau Field, a Place Where Cheeseheads Come Together**\
+`In Green Bay, the field at the mixed-use development next to the Packer’s home stadium was designed as a place for football-obsessed fans to celebrate, win or lose.`\
+https://nytimes.com/2022/11/07/sports/green-bay-titletown-packers-fans.html?searchResultPosition=1
+
+**Even as Challenges Mount, Europeans Stick by Ukraine**\
+`Inflation and anxiety over nuclear weapons may be eating into some popular support for the war, but key governments remain insulated from the pressures for now.`\
+https://nytimes.com/2022/11/07/world/europe/europe-ukraine-war-support.html?searchResultPosition=2
+
+**Quotation of the Day: Indigenous Voters, Gaining Influence, Aim to Mobilize**\
+`Quotation of the Day for Monday, Nov. 7, 2022.`\
+https://nytimes.com/2022/11/07/todayspaper/quotation-of-the-day-indigenous-voters-gaining-influence-aim-to-mobilize.html?searchResultPosition=3
+
+**No Corrections: Nov. 7, 2022**\
+`No corrections appeared in print on Monday, Nov. 7, 2022.`\
+https://nytimes.com/2022/11/07/corrections/no-corrections-nov-7-2022.html?searchResultPosition=4
+
+**Women’s College Basketball Has Lots of Talent at the Top**\
+`South Carolina and the other top teams have high expectations, of course. But there are some upstart teams with chances to make a deep run, too.`\
+https://nytimes.com/2022/11/07/sports/womens-college-basketball-preview.html?searchResultPosition=5
+
+**Can North Carolina Finish the Job? Or Will the Big Ten Break Through?**\
+`The Tar Heels are ranked No. 1 after losing last season’s final to Kansas. And Gonzaga figures to be a contender again with Drew Timme among the star big men who’ve returned to college.`\
+https://nytimes.com/2022/11/07/sports/mens-college-basketball-preview.html?searchResultPosition=6
+
 **Bruins Reverse Course on Signing Player Who Racially Abused Classmate**\
 `Boston’s president said the team thought Mitchell Miller’s bullying, which led to a juvenile-court conviction, was an isolated incident but decided not to move forward based on new information.`\
-https://nytimes.com/2022/11/06/sports/hockey/bruins-reverse-course-on-signing-player-who-racially-abused-classmate.html?searchResultPosition=1
+https://nytimes.com/2022/11/06/sports/hockey/bruins-reverse-course-on-signing-player-who-racially-abused-classmate.html?searchResultPosition=7
 
 **What to Know About Irving’s Antisemitic Movie Post and the Fallout**\
 `Irving, the Nets guard, has faced backlash since he promoted an antisemitic film on social media last month.`\
-https://nytimes.com/article/kyrie-irving-antisemitic.html?searchResultPosition=2
+https://nytimes.com/article/kyrie-irving-antisemitic.html?searchResultPosition=8
 
 **Your Pies Have Arrived**\
 `Apple, pecan, pumpkin, lemon meringue: They’re all here, as you’ve never seen them before.`\
-https://nytimes.com/interactive/2022/dining/thanksgiving-pies-recipes.html?searchResultPosition=3
+https://nytimes.com/interactive/2022/dining/thanksgiving-pies-recipes.html?searchResultPosition=9
 
 **Apple Could Be Short of iPhones Because of Factory Disruptions in China**\
 `The company said Covid-19 restrictions were slowing production of the company’s new phones ahead of the holiday season.`\
-https://nytimes.com/2022/11/06/technology/apple-iphones-shortage.html?searchResultPosition=4
-
-**Trump-DeSantis Rift Grows, With Dueling Rallies in Florida**\
-`The Republican Party’s top two stars are campaigning, separately, in the midterms’ last days.`\
-https://nytimes.com/2022/11/06/us/politics/trump-desantis-republicans.html?searchResultPosition=5
-
-**Review: ‘You Will Get Sick’ Tells the Untellable, for a Price**\
-`In a new Off Broadway play, Linda Lavin shines as a woman paid to say what an ailing young man cannot.`\
-https://nytimes.com/2022/11/06/theater/review-you-will-get-sick.html?searchResultPosition=6
-
-**Jets Turn Up the Pressure on the Bills in the A.F.C. East With a Win**\
-`Josh Allen was sacked five times and threw two interceptions against the Jets, who climbed to within a half-game of their division rivals.`\
-https://nytimes.com/2022/11/06/sports/football/jets-bills-score.html?searchResultPosition=7
-
-**For Fetterman, Campaign Trail Doubles as Road to Recovery**\
-`After a stroke and an uneven debate against his rival, Mehmet Oz, John Fetterman is leaning into his health challenges, to cheering crowds, as he campaigns for Senate in Pennsylvania.`\
-https://nytimes.com/2022/11/06/us/politics/fetterman-stroke-election.html?searchResultPosition=8
-
-**Amazon Considers Disclaimer to Antisemitic Film Irving Shared Online**\
-`The company said it was working with the Anti-Defamation League to potentially add language to the page that viewers see before buying or renting the film.`\
-https://nytimes.com/2022/11/06/business/amazon-kyrie-irving-documentary.html?searchResultPosition=9
-
-**Now It Makes Sense!**\
-`Jill Singer makes her New York Times Crossword debut.`\
-https://nytimes.com/2022/11/06/crosswords/daily-puzzle-2022-11-07.html?searchResultPosition=10
+https://nytimes.com/2022/11/06/technology/apple-iphones-shortage.html?searchResultPosition=10
 
