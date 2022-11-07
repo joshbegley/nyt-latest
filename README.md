@@ -4,7 +4,7 @@ https://nytimes.com/2022/11/07/opinion/letters/midterm-elections.html?searchResu
 
 **What Is Mastodon and Why Are People Leaving Twitter for It?**\
 `Since Elon Musk took ownership of Twitter, some of its users have migrated to Mastodon, an alternative social platform.`\
-https://nytimes.com/2022/11/07/technology/what-is-mastodon-and-why-are-people-leaving-twitter-for-it.html?searchResultPosition=2
+https://nytimes.com/2022/11/07/technology/mastodon-twitter-elon-musk.html?searchResultPosition=2
 
 **Even as Egypt Hosts Climate Summit, Selling Fossil Fuels Is a Priority**\
 `Desperate for cash as the fallout from the Ukraine war batters its economy, Egypt has been conserving natural gas at home to sell to Europe.`\
