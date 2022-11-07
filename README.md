@@ -30,11 +30,11 @@ https://nytimes.com/2022/11/07/climate/climate-change-crisis-cop27.html?searchRe
 `Security officials said that gunmen opened fire on the aid worker’s vehicle in a drive-by shooting in the central Baghdad neighborhood where he lived.`\
 https://nytimes.com/2022/11/07/world/middleeast/american-aid-worker-baghdad.html?searchResultPosition=8
 
+**Trump, eyeing another run, keeps G.O.P. focus where he wants it.**\
+`A rumored announcement at a Monday rally has some Republicans nervous about the election eve fallout.`\
+https://nytimes.com/2022/11/07/us/politics/trump-2024-gop.html?searchResultPosition=9
+
 **A $102 Million Closer? It Could Pay Off in October.**\
 `Steven A. Cohen and the Mets are on the verge of completing an eye-popping deal with the right-hander Edwin Díaz that will be the largest contract for a reliever in baseball history.`\
-https://nytimes.com/2022/11/07/sports/baseball/edwin-diaz-contract-mets.html?searchResultPosition=9
-
-**Supreme Court Seems Poised to Streamline Challenges to Agency Power**\
-`The justices appeared ready to rule that people and companies need not wait for administrative rulings to press constitutional claims in federal court.`\
-https://nytimes.com/2022/11/07/us/supreme-court-agencies-sec-ftc.html?searchResultPosition=10
+https://nytimes.com/2022/11/07/sports/baseball/edwin-diaz-contract-mets.html?searchResultPosition=10
 
