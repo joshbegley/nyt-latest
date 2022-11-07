@@ -3,7 +3,7 @@
 https://nytimes.com/2022/11/07/briefing/us-midterms-cop27-asia.html?searchResultPosition=1
 
 **Ernie Lazar, Who Trawled for Secret Government Documents, Dies at 77**\
-`By pursuing his “unusual hobby” of filing Freedom of Information requests about extremist groups, he helped authors and other researchers.`\
+`By pursuing his “unusual hobby” of filing as many as 10,000 Freedom of Information requests about extremist groups, he proved invaluable to historians and journalists.`\
 https://nytimes.com/2022/11/07/obituaries/ernie-lazar-dead.html?searchResultPosition=2
 
 **‘A Reason to Act Faster’: World Leaders Meet on Climate Amid Other Crises**\
