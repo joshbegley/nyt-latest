@@ -35,6 +35,6 @@ https://nytimes.com/2022/11/06/business/amazon-kyrie-irving-documentary.html?sea
 https://nytimes.com/2022/11/06/crosswords/daily-puzzle-2022-11-07.html?searchResultPosition=9
 
 **What We Learned From Week 9 in the N.F.L.**\
-`The Jets’ defense had a counter for the Bills’ top-rated offense, the Raiders’ collapses aren’t Davante Adams’s fault, and Joe Burrow got a lift from Bengals not named Ja’Marr Chase.`\
+`The Jets’ defense had a counter for the Bills’ top-rated offense, Tom Brady stirred up some old magic, and Joe Burrow got a lift from Bengals not named Ja’Marr Chase.`\
 https://nytimes.com/2022/11/06/sports/football/nfl-week-9-scores.html?searchResultPosition=10
 
