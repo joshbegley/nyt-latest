@@ -32,7 +32,7 @@ https://nytimes.com/2022/11/07/climate/climate-change-crisis-cop27.html?searchRe
 
 **Resistance to misinformation is weakening on Twitter, a report found.**\
 `Researchers at Tufts expressed concern in a report about conspiracy theories on Twitter ahead of the midterms.`\
-https://nytimes.com/2022/11/07/business/media/resistance-to-misinformation-is-weakening-on-twitter-a-report-found.html?searchResultPosition=9
+https://nytimes.com/2022/11/07/business/media/twitter-misinformation-report.html?searchResultPosition=9
 
 **American Aid Worker Is Shot Dead in Baghdad**\
 `Security officials said that gunmen opened fire on the aid worker’s vehicle in a drive-by shooting in the central Baghdad neighborhood where he lived.`\
