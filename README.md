@@ -18,7 +18,7 @@ https://nytimes.com/2022/11/07/us/california-fire-season.html?searchResultPositi
 `As global leaders gather at COP27, efforts are reportedly underway to have companies help shoulder the financial burden.`\
 https://nytimes.com/2022/11/07/business/dealbook/cop27-climate-carbon-credits.html?searchResultPosition=5
 
-**How One of the World’s Top Wheelchair Racers Moves Through New York City**\
+**26.2 Miles is Easy. Getting Around New York City is Not.**\
 `Daniel Romanchuk, 24, placed second in the New York City Marathon on Sunday. But getting around the city can be more challenging than the race itself.`\
 https://nytimes.com/2022/11/07/sports/daniel-romanchuk-nyc-wheelchair-marathon-accessibility.html?searchResultPosition=6
 
