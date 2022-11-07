@@ -1,40 +1,40 @@
-**Home for the Holidays, With Long-Festering Issues**\
-`In Lynn Steger Strong’s third novel, “Flight,” a trio of siblings converge for their first Christmas without their mother. It’s complicated.`\
-https://nytimes.com/2022/11/07/books/review/flight-lynn-steger-strong.html?searchResultPosition=1
+**Are Trees Talking Underground? For Scientists, It’s In Dispute.**\
+`From Ted Lasso to TED Talks, the theory of the “wood-wide web” is everywhere, and some scientists argue that it is overblown and unproven.`\
+https://nytimes.com/2022/11/07/science/wood-wide-web-trees-fungi-talking.html?searchResultPosition=1
 
-**What Has Happened to My Country?**\
-`The vertigo of our democratic crisis is impossible to escape.`\
-https://nytimes.com/2022/11/07/opinion/american-politics-vertigo.html?searchResultPosition=2
+**$1.4 Million Homes in California**\
+`A 1920 bungalow in Los Angeles, a 1909 Craftsman-style house in Oakland and a two-bedroom cottage in Redondo Beach.`\
+https://nytimes.com/2022/11/07/realestate/home-prices-california.html?searchResultPosition=2
 
-**Where the Elections Are Looking Wonderfully, Thrillingly Mundane**\
-`Elections are staffed by real people, with real lives, who opt into this system. That could make you nervous — or deeply reassure you.`\
-https://nytimes.com/2022/11/07/opinion/election-workers-democracy-voting.html?searchResultPosition=3
+**What You Get for $1.4 Million in California**\
+`A 1920 bungalow in Los Angeles, a 1909 Craftsman-style house in Oakland and a two-bedroom cottage in Redondo Beach.`\
+https://nytimes.com/slideshow/2022/11/07/realestate/what-you-get-for-1-4-million-in-california.html?searchResultPosition=3
 
-**Who Will Win the Battle for Congress? Four Scenarios.**\
-`A wide range of outcomes is still possible. Here are signs to look for on election night.`\
-https://nytimes.com/2022/11/07/upshot/election-night-scenarios-midterms.html?searchResultPosition=4
+**Fears and Suspicion Hang Over Voting on Cusp of Election Day**\
+`Even as voting goes smoothly, the 2022 midterm elections have exposed the toll Donald J. Trump’s falsehoods have taken on American democracy.`\
+https://nytimes.com/2022/11/07/us/politics/election-day-voting.html?searchResultPosition=4
 
-**How Do You Make Hard Decisions?**\
-`Some decisions are more difficult than others. What path do you choose when there isn’t a clear best choice?`\
-https://nytimes.com/2022/11/07/learning/how-do-you-make-hard-decisions.html?searchResultPosition=5
+**The World’s Most-Visited Glaciers Could Soon Be Gone**\
+`The U.N.’s cultural agency warns that ice sheets on Kilimanjaro, in the Dolomites and in Yosemite and Yellowstone may disappear by 2050, highlighting travel’s impact on climate change.`\
+https://nytimes.com/2022/11/07/travel/glaciers-melting-unesco.html?searchResultPosition=5
 
-**What Are the Best Forever Boots?**\
-`A reader wants a pair of boots that will stay in style.`\
-https://nytimes.com/2022/11/07/style/boots-sustainable-fashion.html?searchResultPosition=6
+**Architects Plan a City for the Future in Ukraine, While Bombs Still Fall**\
+`Irpin was one of the first Ukrainian cities to be destroyed and liberated. Now it’s becoming a laboratory for rebuilding.`\
+https://nytimes.com/2022/11/07/magazine/ukraine-rebuild-irpin.html?searchResultPosition=6
 
-**A Core Question at COP27: Who Will Pay for Climate Change?**\
-`At this year’s annual climate summit, a debate over who bears the financial responsibility for climate change, and what they owe, will be center stage.`\
-https://nytimes.com/interactive/2022/11/06/climate/cop27-climate-change-loss-damage.html?searchResultPosition=7
+**Bob Dylan Breaks Down 66 Classic Tunes in His New Book**\
+`“The Philosophy of Modern Song” offers commentaries on a range of music, written in the singer’s unmistakable lyrical style.`\
+https://nytimes.com/2022/11/07/books/bob-dylan-philosophy-of-modern-song.html?searchResultPosition=7
 
-**Who Will Win in These Eight Races?**\
-`Political experts place their bets on the midterm elections.`\
-https://nytimes.com/interactive/2022/11/07/opinion/midterms-2022-predictions.html?searchResultPosition=8
+**China’s Business Elite Sees the Country That Let Them Thrive Slipping Away**\
+`The business class, which shunned politics, is now questioning if there is still a place for them in a system dominated by one ruler, Xi Jinping.`\
+https://nytimes.com/2022/11/07/business/xi-jinping-china-party-congress.html?searchResultPosition=8
 
-**What Are Your Stories of Rebuilding After Disaster? Tell Us.**\
-`Headway wants to learn more about the people affected by this issue and the stories we should tell.`\
-https://nytimes.com/2022/11/07/headway/rebuild-recover-disaster.html?searchResultPosition=9
+**Can the Most Hated Meal Be Redeemed? ‘The Big Brunch’ Says Yes.**\
+`Contempt for brunch is persistent, but a new show on HBO Max approaches the meal with ambition and optimism.`\
+https://nytimes.com/2022/11/07/dining/hbo-the-big-brunch.html?searchResultPosition=9
 
-**40 Chickens in 40 Days: How a Philadelphia Man Cheered His City**\
-`Alexander Tominsky was on an epic quest to give Philadelphia something to celebrate, but he said he felt relieved to be done with the challenge. “My body is ready to repair,” he said.`\
-https://nytimes.com/2022/11/07/us/philadelphia-chicken-man.html?searchResultPosition=10
+**An Engine of Upward Mobility Struggles to Capture Opportunities in Tech**\
+`Students at the City University of New York are increasingly graduating with degrees in technology. A new report details the obstacles they face in landing jobs.`\
+https://nytimes.com/2022/11/07/business/cuny-jobs-tech.html?searchResultPosition=10
 
