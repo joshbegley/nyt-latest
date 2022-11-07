@@ -12,7 +12,7 @@ https://nytimes.com/2022/11/07/fashion/fashion-industry-antitrust-sustainability
 
 **Los Angeles Voters Are in a Foul Mood. Will a New Mayor Change Anything?**\
 `Residents are frustrated over homelessness, crime and rising costs. Two candidates for mayor, Karen Bass and Rick Caruso, say they can turn the tide.`\
-https://nytimes.com/2022/11/07/us/midterms-la-mayor-karen-bass-rick-caruso.html?searchResultPosition=4
+https://nytimes.com/2022/11/07/us/la-mayor-karen-bass-rick-caruso.html?searchResultPosition=4
 
 **‘My Broken Language’ Review: Piecing Together a Life of Many Dialects**\
 `In Quiara Alegría Hudes’s new play at the Signature Theater, five performers try to summon generations of willful women.`\
