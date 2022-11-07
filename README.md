@@ -30,11 +30,11 @@ https://nytimes.com/2022/11/07/obituaries/ernie-lazar-dead.html?searchResultPosi
 `On the first day of COP27, the U.N. climate talks, world leaders urged each other to move faster to cut the pollution that is warming the planet while recognizing the war in Ukraine’s global energy effects and the unequal effects of climate change to date.`\
 https://nytimes.com/2022/11/07/climate/climate-change-crisis-cop27.html?searchResultPosition=8
 
+**Resistance to misinformation is weakening on Twitter, a report found.**\
+`Researchers at Tufts expressed concern in a report about conspiracy theories on Twitter ahead of the midterms.`\
+https://nytimes.com/2022/11/07/business/media/resistance-to-misinformation-is-weakening-on-twitter-a-report-found.html?searchResultPosition=9
+
 **American Aid Worker Is Shot Dead in Baghdad**\
 `Security officials said that gunmen opened fire on the aid worker’s vehicle in a drive-by shooting in the central Baghdad neighborhood where he lived.`\
-https://nytimes.com/2022/11/07/world/middleeast/american-aid-worker-baghdad.html?searchResultPosition=9
-
-**Trump, eyeing another run, keeps G.O.P. focus where he wants it.**\
-`A rumored announcement at a Monday rally has some Republicans nervous about the election eve fallout.`\
-https://nytimes.com/2022/11/07/us/politics/trump-2024-gop.html?searchResultPosition=10
+https://nytimes.com/2022/11/07/world/middleeast/american-aid-worker-baghdad.html?searchResultPosition=10
 
