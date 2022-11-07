@@ -4,7 +4,7 @@ https://nytimes.com/2022/11/07/us/ballot-abortion-voting-guns-states.html?search
 
 **C.E.O.s Are Talking More About Recession**\
 `The possibility of an economic slowdown has been a hot topic during the latest batch of quarterly earnings conference calls.`\
-https://nytimes.com/2022/11/07/business/chief-executives-recession.html?searchResultPosition=2
+https://nytimes.com/2022/11/07/business/dealbook/chief-executives-recession.html?searchResultPosition=2
 
 **‘Channeling the Mama Bear’: How Covid Closures Became Today’s Curriculum Wars**\
 `According to a new survey, one issue is especially divisive: teaching about L.G.B.T.Q. rights and gender identity.`\
