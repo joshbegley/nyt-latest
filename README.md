@@ -4,7 +4,7 @@ https://nytimes.com/article/kyrie-irving-antisemitic.html?searchResultPosition=1
 
 **Your Pies Have Arrived**\
 `Apple, pecan, pumpkin, lemon meringue: They’re all here, as you’ve never seen them before.`\
-https://nytimes.com/interactive/2022/11/06/dining/thanksgiving-pies-recipes.html?searchResultPosition=2
+https://nytimes.com/interactive/2022/dining/thanksgiving-pies-recipes.html?searchResultPosition=2
 
 **Apple Could Be Short of iPhones Because of Factory Disruptions in China**\
 `The company said Covid-19 restrictions were slowing production of the company’s new phones ahead of the holiday season.`\
