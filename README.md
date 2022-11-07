@@ -1,4 +1,4 @@
-**Will Rain Affect Turnout Tomorrow? The Answer is Cloudy.**\
+**Will Rain Affect Turnout Tomorrow? The Answer Is Cloudy.**\
 `Where the Election Day forecast is wetter than normal.`\
 https://nytimes.com/interactive/2022/11/07/us/elections/election-weather.html?searchResultPosition=1
 
