@@ -4,7 +4,7 @@ https://nytimes.com/article/how-the-times-covers-elections.html?searchResultPosi
 
 **The needle is back. Here’s how it works.**\
 `Our forecasting tool can help you understand which candidate or party is on track for victory. Look for it around 7 p.m. Eastern time.`\
-https://nytimes.com/2022/11/08/us/politics/the-needle-is-back-heres-how-it-works.html?searchResultPosition=2
+https://nytimes.com/2022/11/08/us/politics/nyt-election-needle.html?searchResultPosition=2
 
 **Elizabeth Holmes Denied New Trial and Is Set to Be Sentenced**\
 `The founder of the failed blood testing start-up Theranos faces a maximum sentence of 20 years in prison.`\
