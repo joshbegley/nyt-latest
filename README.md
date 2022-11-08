@@ -6,7 +6,7 @@ https://nytimes.com/2022/11/08/briefing/midterms-elections-cop27-us-asia.html?se
 `Despite officials in Maricopa County assuring that problems with some ballot tabulation machines would not deny people the chance to vote, claims of voter fraud circulated on social media and in right-wing media.`\
 https://nytimes.com/video/us/politics/100000008625900/arizona-voting-machine-maricopa.html?searchResultPosition=2
 
-**Trump says he would support McCarthy for speaker, but McConnell would be out.**\
+**Trump Says He Would Support Representative Kevin McCarthy for Speaker**\
 `The former president said that, if he runs for president and wins in 2024, Senator Mitch McConnell will “be out in two minutes.”`\
 https://nytimes.com/2022/11/08/us/politics/trump-mccarthy-mcconnell-speaker.html?searchResultPosition=3
 
