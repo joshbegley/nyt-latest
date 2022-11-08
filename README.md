@@ -1,14 +1,14 @@
+**Elizabeth Holmes Denied New Trial and Is Set to Be Sentenced**\
+`The founder of the failed blood testing start-up Theranos faces a maximum sentence of 20 years in prison.`\
+https://nytimes.com/2022/11/08/technology/elizabeth-holmes-denied-new-trial-and-is-set-to-be-sentenced.html?searchResultPosition=1
+
 **Candy on the Table, an Eye on the Exit: Poll Workers Run a Tense Election Day**\
 `Uncertainty rippled beneath the bustling energy as volunteers readied to face voters, monitors and America’s anxious mood. “I hope they don’t punch me out,” one worker said.`\
-https://nytimes.com/2022/11/08/us/midterm-elections-poll-workers-arizona.html?searchResultPosition=1
+https://nytimes.com/2022/11/08/us/midterm-elections-poll-workers-arizona.html?searchResultPosition=2
 
 **With Russia Stalling, Agency Appeals Valieva Case to Sports’ Highest Court**\
 `The move by the World Anti-Doping Agency to supersede Russian officials comes amid delays and distrust in how the figure skater’s case is being handled.`\
-https://nytimes.com/2022/11/08/sports/olympics/valieva-doping-wada-cas.html?searchResultPosition=2
-
-**Pulling off this election has been hard. What comes next could be harder.**\
-`This is the first election in which a substantial number of candidates for major offices are election deniers or conspiracy theorists.`\
-https://nytimes.com/2022/11/08/us/pulling-off-this-election-has-been-hard-what-comes-next-could-be-harder.html?searchResultPosition=3
+https://nytimes.com/2022/11/08/sports/olympics/valieva-doping-wada-cas.html?searchResultPosition=3
 
 **Tracking the Climate Toll as Leaders Meet**\
 `Readers discuss climate change as the summit in Egypt continues. Also: Ties to Israel; diarists of Ukraine; hope for the homeless; father and daughter.`\
