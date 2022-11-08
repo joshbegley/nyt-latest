@@ -36,5 +36,5 @@ https://nytimes.com/2022/11/08/world/europe/zelensky-russia-ukraine-war-climate.
 
 **The French Foreign Legion Advances Into Fashion**\
 `The result? A fresh take on old combat boots.`\
-https://nytimes.com/2022/11/08/fashion/french-foreign-legion-palladium-boot.html?searchResultPosition=10
+https://nytimes.com/2022/11/08/style/french-foreign-legion-palladium-boot.html?searchResultPosition=10
 
