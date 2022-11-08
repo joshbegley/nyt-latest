@@ -30,8 +30,8 @@ https://nytimes.com/2022/11/08/fashion/watches-breitling-lab-grown-diamonds.html
 `Manuel Emch currently is the interim chief executive at Louis Erard.`\
 https://nytimes.com/2022/11/08/fashion/watches-manuel-emch-louis-erard.html?searchResultPosition=8
 
-**The I**\
-`By The New York Times`\
+**Ocean-Eaten Islands, Fire-Scarred Forests: Our Changing World in Pictures**\
+`No single image tells the story of a climate in crisis, but our photographers have come back from their global travels with an encyclopedia’s worth of pictures that hint at the scope and devastation.`\
 https://nytimes.com/2022/11/08/world/climate-change-global-photos.html?searchResultPosition=9
 
 **The Return of the Jaguar**\
