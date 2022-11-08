@@ -12,7 +12,7 @@ https://nytimes.com/2022/11/08/us/politics/trump-mccarthy-mcconnell-speaker.html
 
 **Broadcast networks will give wall-to-wall political coverage, only a recent move for a midterm election.**\
 `Before 2018, TV reporting focused on major Senate and governor races, but now House races are getting detailed coverage.`\
-https://nytimes.com/2022/11/08/business/media/broadcast-networks-will-give-wall-to-wall-political-coverage-only-a-recent-move-for-a-midterm-election.html?searchResultPosition=4
+https://nytimes.com/2022/11/08/business/media/tv-broadcast-election-coverage.html?searchResultPosition=4
 
 **Pulses to Their Brains and 2 Women’s Binge Eating Went Away**\
 `A small study demonstrated that deep brain stimulation, used for people with Parkinson’s disease, can limit an urge to overeat.`\
