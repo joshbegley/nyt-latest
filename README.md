@@ -1,40 +1,40 @@
-**Kenya Discloses Part of Secret Railway Contract With China**\
-`The public disclosure of a 2014 loan agreement for a cross-country train fulfilled a campaign vow by President William Ruto and revealed China’s tough terms.`\
-https://nytimes.com/2022/11/08/world/africa/kenya-china-railway-contract.html?searchResultPosition=1
+**Keep Your Eyes on the Losing Candidates**\
+`How the defeated behave matters as much as who wins.`\
+https://nytimes.com/2022/11/08/opinion/midterms-election-denial-winners-losers.html?searchResultPosition=1
 
-**Rotted Vegetables and Rancid Milk No More, as a Bridge Replaces Ferries**\
-`Truck drivers used to wait for days before crossing the Gambia River by ferry, but a towering bridge has cut the transit time down to minutes, and brought Senegal and Gambia closer.`\
-https://nytimes.com/2022/11/08/world/africa/senegal-gambia-senegambia-bridge.html?searchResultPosition=2
+**Gabrielle Blair Embraces ‘the Least Sexy Way to Talk About Sex.”**\
+`In her book “Ejaculate Responsibly,” the home renovation guru encourages readers to revisit their thinking about unwanted pregnancies.`\
+https://nytimes.com/2022/11/08/books/review/ejaculate-responsibly-gabrielle-blair.html?searchResultPosition=2
 
-**A Soccer Team Once United Iran. Now It Reflects Its Divisions.**\
-`A squad long seen as a unifying force in a fractious nation has become ensnared in its internal politics as it heads to the World Cup.`\
-https://nytimes.com/2022/11/08/sports/soccer/world-cup-iran-qatar.html?searchResultPosition=3
+**Are the Polls Still Missing ‘Hidden’ Republicans? Here’s What We’re Doing to Find Out.**\
+`There was no breakthrough in our experiment, but the differences were intriguing.`\
+https://nytimes.com/2022/11/08/upshot/poll-experiment-wisconsin-trump.html?searchResultPosition=3
 
-**To Cover the Midterms, It’s All Hands on Deck**\
-`David Halbfinger, the Politics editor for The New York Times, shares what goes into overseeing a sprawling operation.`\
-https://nytimes.com/2022/11/08/insider/to-cover-the-midterms-its-all-hands-on-deck.html?searchResultPosition=4
+**Compare and Contrast. But Never Confess.**\
+`“Like” and “I Can Explain” delightfully get inside kids’ heads as they puzzle out what it means to be human — and how to keep one step ahead of Mom.`\
+https://nytimes.com/2022/11/08/books/review/like-annie-barrows-i-can-explain-shinsuke-yoshitake.html?searchResultPosition=4
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/11/08/crosswords/spelling-bee-forum.html?searchResultPosition=5
+**Haruki Murakami Has Never Found Writing Painful**\
+`In a new memoir, “Novelist as a Vocation,” the Japanese writer reflects on his craft and his career.`\
+https://nytimes.com/2022/11/08/books/review/haruki-murakami-novelist-as-a-vocation.html?searchResultPosition=5
 
-**Cities**\
-`Are you a city person? Or do you prefer a more quiet life?`\
-https://nytimes.com/2022/11/08/learning/cities.html?searchResultPosition=6
+**Fire Dept.’s First Female Boss Takes Over an Agency Resistant to Change**\
+`Laura Kavanagh has never been a firefighter, but has deep experience with the department and the city. She oversees 17,370 people, and is the youngest leader in a century.`\
+https://nytimes.com/2022/11/08/nyregion/nyc-laura-kavanagh-fire-comissioner.html?searchResultPosition=6
 
-**Late Night Rates Trump’s New Nickname for Ron DeSantis**\
-`“Trump doesn’t even know what that means,” Jimmy Fallon said after Donald Trump referred to the Florida governor as “Ron DeSanctimonious.”`\
-https://nytimes.com/2022/11/08/arts/television/late-trump-desantis.html?searchResultPosition=7
+**How We’ve Come to Genuflect to the ‘Free Market’**\
+`Jacob Soll’s ambitious history takes us from Cicero to Milton Friedman, but is hobbled by questionable assertions.`\
+https://nytimes.com/2022/11/08/books/review/free-market-jacob-soll.html?searchResultPosition=7
 
-**The World Is Falling Short of Its Climate Goals. Four Big Emitters Show Why.**\
-`New data reveals progress toward climate goals but also major challenges ahead.`\
-https://nytimes.com/interactive/2022/11/08/climate/cop27-emissions-country-compare.html?searchResultPosition=8
+**What Foods Are Closely Linked to Someone You Love?**\
+`Share your favorite food memory, and the person who inspired it.`\
+https://nytimes.com/2022/11/08/learning/what-foods-are-closely-linked-to-someone-you-love.html?searchResultPosition=8
 
-**Word of the Day: stupendous**\
-`This word has appeared in 38 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/11/08/learning/word-of-the-day-stupendous.html?searchResultPosition=9
+**How to Talk to Kids About Drugs in the Age of Fentanyl**\
+`Fentanyl has exponentially increased the risk of youthful experiments.`\
+https://nytimes.com/2022/11/08/opinion/fentanyl-teens.html?searchResultPosition=9
 
-**Your Tuesday Briefing**\
-`European countries are backing Ukraine.`\
-https://nytimes.com/2022/11/08/briefing/climate-ukraine-europe-midterms.html?searchResultPosition=10
+**What Time Do the Polls Close? A State-by-State Guide**\
+`A mapped guide to the races at stake in the midterm elections across the country.`\
+https://nytimes.com/interactive/2022/11/08/us/politics/poll-closing-times.html?searchResultPosition=10
 
