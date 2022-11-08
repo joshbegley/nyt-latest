@@ -1,6 +1,6 @@
 **Setting a Kahlo Drawing Aflame in Search of an NFT Spark**\
 `It’s tough to profit in the struggling market of blockchain assets right now. Burning a purported drawing from Frida Kahlo’s personal diary didn’t help a businessman’s cause.`\
-https://nytimes.com/2022/11/08/arts/frida-kahlo-nft-martin-mobarak.html?searchResultPosition=1
+https://nytimes.com/2022/11/08/arts/design/frida-kahlo-nft-martin-mobarak.html?searchResultPosition=1
 
 **Antidepressants Don’t Work the Way Many People Think**\
 `The most commonly prescribed medications for depression are somewhat effective — but not because they correct a “chemical imbalance.”`\
