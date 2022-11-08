@@ -6,7 +6,7 @@ https://nytimes.com/2022/11/08/podcasts/the-daily/how-democracy-itself-ended-up-
 `What responsibility do corporations have to take action on climate change right now?`\
 https://nytimes.com/2022/11/08/learning/film-club-new-climate-promises-same-old-global-warming.html?searchResultPosition=2
 
-**Here’s how ranked-choice voting works.**\
+**This is how ranked-choice voting works.**\
 `The system, in which voters list candidates in order of preference, is gaining popularity around the nation. Nevada will vote whether to adopt it.`\
 https://nytimes.com/2022/11/08/us/politics/ranked-choice-voting.html?searchResultPosition=3
 
