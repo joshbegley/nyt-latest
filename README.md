@@ -8,7 +8,7 @@ https://nytimes.com/2022/11/08/nyregion/epstein-victim-giuffre-dershowitz.html?s
 
 **After Decades of Resistance, Rich Countries Offer Direct Climate Aid**\
 `Several European leaders at COP27 announced funds to help poor nations recover from loss and damage caused by climate change. The United States was silent.`\
-https://nytimes.com/2022/11/08/climate/loss-and-damage-cop27-europeans.html?searchResultPosition=3
+https://nytimes.com/2022/11/08/climate/loss-and-damage-cop27-climate.html?searchResultPosition=3
 
 **D.I.Y. Sci-Fi: A Talk With Justin Benson and Aaron Moorhead**\
 `The filmmaking and acting team discuss their latest low-budget science fiction movie, “Something in the Dirt,” and their work on the Marvel Disney+ series “Moon Knight.”`\
