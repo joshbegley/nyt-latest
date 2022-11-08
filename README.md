@@ -1,40 +1,40 @@
-**Iowa Governor Election Results**\
-`See full results and maps from the 2022 Iowa elections.`\
-https://nytimes.com/interactive/2022/11/08/us/elections/results-iowa-governor.html?searchResultPosition=1
+**Misinformation experts have been prepping for this day.**\
+`Election results may take a while, experts say heading into Tuesday’s vote. Be wary of pre-emptive claims of fraud. Hiccups are to be expected.`\
+https://nytimes.com/2022/11/08/business/media/misinformation-experts-have-been-prepping-for-this-day.html?searchResultPosition=1
 
-**Illinois 17th Congressional District Election Results**\
-`See full results and maps from the 2022 Illinois elections.`\
-https://nytimes.com/interactive/2022/11/08/us/elections/results-illinois-us-house-district-17.html?searchResultPosition=2
+**A Parisian Brasserie With a Global Footprint Sets Up Shop in TriBeCa**\
+`A Ukrainian restaurant in the former Pegu Club space, a new look for the restaurant in Scandinavia House and more news.`\
+https://nytimes.com/2022/11/08/dining/nyc-restaurant-news.html?searchResultPosition=2
 
-**Washington Eighth Congressional District Election Results**\
-`See full results and maps from the 2022 Washington elections.`\
-https://nytimes.com/interactive/2022/11/08/us/elections/results-washington-us-house-district-8.html?searchResultPosition=3
+**Florida 27th Congressional District Election Results**\
+`See full results and maps from the 2022 Florida elections.`\
+https://nytimes.com/interactive/2022/11/08/us/elections/results-florida-us-house-district-27.html?searchResultPosition=3
 
-**Indiana Sixth Congressional District Election Results**\
-`See full results and maps from the 2022 Indiana elections.`\
-https://nytimes.com/interactive/2022/11/08/us/elections/results-indiana-us-house-district-6.html?searchResultPosition=4
+**Oklahoma Auditor Inspector Election Results**\
+`See full results and maps from the 2022 Oklahoma elections.`\
+https://nytimes.com/interactive/2022/11/08/us/elections/results-oklahoma-auditor-inspector.html?searchResultPosition=4
 
-**West Virginia First Congressional District Election Results**\
-`See full results and maps from the 2022 West Virginia elections.`\
-https://nytimes.com/interactive/2022/11/08/us/elections/results-west-virginia-us-house-district-1.html?searchResultPosition=5
+**Kentucky Election Results**\
+`See full results and maps from the 2022 Kentucky elections.`\
+https://nytimes.com/interactive/2022/11/08/us/elections/results-kentucky.html?searchResultPosition=5
 
-**Michigan Seventh Congressional District Election Results**\
-`See full results and maps from the 2022 Michigan elections.`\
-https://nytimes.com/interactive/2022/11/08/us/elections/results-michigan-us-house-district-7.html?searchResultPosition=6
-
-**South Carolina Superintendent of Education Election Results**\
-`See full results and maps from the 2022 South Carolina elections.`\
-https://nytimes.com/interactive/2022/11/08/us/elections/results-south-carolina-superintendent-of-education.html?searchResultPosition=7
-
-**Georgia Agriculture Commissioner Election Results**\
+**Georgia Lieutenant Governor Election Results**\
 `See full results and maps from the 2022 Georgia elections.`\
-https://nytimes.com/interactive/2022/11/08/us/elections/results-georgia-agriculture-commissioner.html?searchResultPosition=8
+https://nytimes.com/interactive/2022/11/08/us/elections/results-georgia-lieutenant-governor.html?searchResultPosition=6
 
-**Massachusetts Question 3 Election Results: Changes to Alcohol Retail Licensing**\
-`See full results and maps from the 2022 Massachusetts elections.`\
-https://nytimes.com/interactive/2022/11/08/us/elections/results-massachusetts-question-3-changes-to-alcohol-retail-licensing.html?searchResultPosition=9
+**South Dakota First Congressional District Election Results**\
+`See full results and maps from the 2022 South Dakota elections.`\
+https://nytimes.com/interactive/2022/11/08/us/elections/results-south-dakota-us-house-district-1.html?searchResultPosition=7
 
-**Texas 26th Congressional District Election Results**\
-`See full results and maps from the 2022 Texas elections.`\
-https://nytimes.com/interactive/2022/11/08/us/elections/results-texas-us-house-district-26.html?searchResultPosition=10
+**Indiana U.S. Senate Election Results**\
+`See full results and maps from the 2022 Indiana elections.`\
+https://nytimes.com/interactive/2022/11/08/us/elections/results-indiana-us-senate.html?searchResultPosition=8
+
+**Maryland Comptroller Election Results**\
+`See full results and maps from the 2022 Maryland elections.`\
+https://nytimes.com/interactive/2022/11/08/us/elections/results-maryland-comptroller.html?searchResultPosition=9
+
+**California Attorney General Election Results**\
+`See full results and maps from the 2022 California elections.`\
+https://nytimes.com/interactive/2022/11/08/us/elections/results-california-attorney-general.html?searchResultPosition=10
 
