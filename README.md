@@ -2,8 +2,8 @@
 `A township’s battle over a new mine shows the challenge of a nation dependent on coal, but also desperate to leave it behind.`\
 https://nytimes.com/2022/11/08/world/africa/south-africa-coal-cop27-climate.html?searchResultPosition=1
 
-**Kohl’s Says Its Chief Executive, Michelle Gass, Will Depart**\
-`Ms. Gass, who will be replaced on an interim basis by Tom Kingsbury, is leaving ahead of the critical holiday season.`\
+**Kohl’s Chief Executive, Michelle Gass, Will Depart to Join Levi’s**\
+`Ms. Gass, who will be become president at the denim maker, is expected to take over the top post at the company within 18 months.`\
 https://nytimes.com/2022/11/08/business/kohls-chief-executive-departure.html?searchResultPosition=2
 
 **To Play the Queen, ‘The Crown’ Chooses Another Stalwart Briton**\
