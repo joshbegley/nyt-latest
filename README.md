@@ -7,7 +7,7 @@ https://nytimes.com/2022/11/08/world/africa/kenya-china-railway-contract.html?se
 https://nytimes.com/2022/11/08/world/africa/senegal-gambia-senegambia-bridge.html?searchResultPosition=2
 
 **A Soccer Team Once United Iran. Now It Reflects Its Divisions.**\
-`A squad long seen as a unifying force in a fractious nation has become ensnared in its internal politics as its heads to the World Cup.`\
+`A squad long seen as a unifying force in a fractious nation has become ensnared in its internal politics as it heads to the World Cup.`\
 https://nytimes.com/2022/11/08/sports/soccer/world-cup-iran-qatar.html?searchResultPosition=3
 
 **To Cover the Midterms, It’s All Hands on Deck**\
