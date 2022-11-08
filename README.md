@@ -1,40 +1,40 @@
+**As Ukraine Bears Down, Life Worsens in Occupied Areas**\
+`Those fleeing speak of the growing dangers of bombardment and of Russian forces commandeering homes and sheltering among civilians.`\
+https://nytimes.com/2022/11/08/todayspaper/ukraine-refugees-kherson-zaporizhzhia.html?searchResultPosition=1
+
+**In Governors’ Races, Voting Access and Abortion Rights Are Put to Test**\
+`Some of the closest races feature contests involving Republicans who question or deny the results of the 2020 election.`\
+https://nytimes.com/2022/11/08/us/politics/governors-elections-midterms.html?searchResultPosition=2
+
+**Republicans Aim to Retake the House, With Many Democratic Seats Imperiled**\
+`Few prognostications give Democrats a chance to hold onto their narrow margin in the House, and Republicans hope to make gains in traditionally bedrock blue states.`\
+https://nytimes.com/2022/11/08/us/politics/house-midterms-what-to-watch.html?searchResultPosition=3
+
+**The Battle for the Senate Hinges on These Key Races**\
+`Republicans are hopeful they can capture control of the Senate, but Democrats are taking aim at some wobbly G.O.P. candidates who are very loyal to Trump.`\
+https://nytimes.com/2022/11/08/us/politics/senate-what-to-watch-election.html?searchResultPosition=4
+
+**Quotation of the Day: As Los Angeles Selects Mayor, City Is Losing Faith in Its Path**\
+`Quotation of the Day for Tuesday, Nov. 8, 2022.`\
+https://nytimes.com/2022/11/08/todayspaper/quotation-of-the-day-as-los-angeles-selects-mayor-city-is-losing-faith-in-its-path.html?searchResultPosition=5
+
+**New Endorsements for College Athletes Resurface an Old Concern: Sex Sells**\
+`Female college athletes are making millions thanks to their large social media followings. But some who have fought for equity in women’s sports worry that their brand building is regressive.`\
+https://nytimes.com/2022/11/08/sports/ncaabasketball/olivia-dunne-haley-jones-endorsements.html?searchResultPosition=6
+
 **At his last midterm rally of 2022, Trump offers a save-the-date for his 2024 plans.**\
 `The former president, after days of promotional teases, talks up “a very big announcement on Nov. 15 at Mar-a-Lago” during a rally for J.D. Vance in Ohio.`\
-https://nytimes.com/2022/11/07/us/politics/trump-2024-announcement.html?searchResultPosition=1
+https://nytimes.com/2022/11/07/us/politics/trump-2024-announcement.html?searchResultPosition=7
 
 **Nancy Pelosi Says Attack on Husband Will Affect Her Political Future**\
 `In her first televised interview since the attack, Ms. Pelosi also spoke about the first frightening moments after she learned what happened to her husband, Paul Pelosi.`\
-https://nytimes.com/2022/11/07/us/politics/pelosi-nancy-paul-attack-interview.html?searchResultPosition=2
+https://nytimes.com/2022/11/07/us/politics/pelosi-nancy-paul-attack-interview.html?searchResultPosition=8
 
 **Are You Sure About That?**\
 `Enrique Henestroza Anguiano’s puzzle may enlighten you.`\
-https://nytimes.com/2022/11/07/crosswords/daily-puzzle-2022-11-08.html?searchResultPosition=3
+https://nytimes.com/2022/11/07/crosswords/daily-puzzle-2022-11-08.html?searchResultPosition=9
 
 **Corrections: Nov. 8, 2022**\
 `Corrections that appeared in print on Tuesday, Nov. 8, 2022.`\
-https://nytimes.com/2022/11/07/pageoneplus/corrections-nov-8-2022.html?searchResultPosition=4
-
-**Fueled by Falsehoods, a Michigan Group Is Ready to Challenge the Vote**\
-`In private meetings, activists, lawyers and G.O.P. officials laid out their strategy. “If there is a close election, it’s going to be up to us to fix it,” one said.`\
-https://nytimes.com/2022/11/07/us/politics/michigan-elections-group.html?searchResultPosition=5
-
-**Don’t Believe Lee Zeldin When He Says He Can’t Touch Abortion Access in New York**\
-`Governors can do many things to mess with reproductive rights.`\
-https://nytimes.com/2022/11/07/opinion/lee-zeldin-abortion-ny.html?searchResultPosition=6
-
-**Election Day in New York: Who’s Running and How to Vote**\
-`Democrats are aiming to keep control of the governor’s mansion, the State Legislature and a majority of New York’s House seats, but Republicans seem to have momentum.`\
-https://nytimes.com/2022/11/07/nyregion/election-guide-new-york.html?searchResultPosition=7
-
-**Review: In ‘Only Gold,’ Each Move Is Worth 1,000 Words**\
-`The new Kate Nash dance musical, choreographed by Andy Blankenbuehler, is spectacular as long as you pay no attention to what it’s saying.`\
-https://nytimes.com/2022/11/07/theater/only-gold-review.html?searchResultPosition=8
-
-**How to Watch Election Night Like a Pro**\
-`Strategists are watching a few East Coast races that could be called early, offering a rough road map to the entire country.`\
-https://nytimes.com/2022/11/07/us/politics/election-night-races-to-watch.html?searchResultPosition=9
-
-**Cornell Halts Fraternity Parties After Alleged Sex Assault and Druggings**\
-`The campus police issued alerts over the weekend that one student was sexually assaulted and at least four others were drugged at off-campus residences affiliated with fraternities.`\
-https://nytimes.com/2022/11/07/nyregion/cornell-fraternities-sexual-assault.html?searchResultPosition=10
+https://nytimes.com/2022/11/07/pageoneplus/corrections-nov-8-2022.html?searchResultPosition=10
 
