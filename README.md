@@ -15,7 +15,7 @@ https://nytimes.com/2022/11/08/arts/design/marc-swanson-mass-moca.html?searchRes
 https://nytimes.com/2022/11/08/technology/elon-musk-puts-his-own-politics-on-display-on-election-day.html?searchResultPosition=4
 
 **Hello from COP27**\
-`Frustration and distrust among leaders is high. But, for the first time, countries have agreed to discuss funding for climate reparations.`\
+`Frustration and distrust among leaders are high. But, for the first time, countries have agreed to discuss funding for climate reparations.`\
 https://nytimes.com/2022/11/08/climate/cop27-egypt-postcard.html?searchResultPosition=5
 
 **Evelyn de Rothschild, Scion of Banking Dynasty, Dies at 91**\
