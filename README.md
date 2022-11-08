@@ -24,7 +24,7 @@ https://nytimes.com/2022/11/08/opinion/elon-musk-vote-republicans.html?searchRes
 
 **An inside look at the Ohio team pushing back on election fraud claims.**\
 `The effort is one of several misinformation rapid response teams run by state and local officials to confront problematic online assertions that fuel voter distrust.`\
-https://nytimes.com/2022/11/08/technology/ohio-election-fraud-misinformation.html?searchResultPosition=7
+https://nytimes.com/live/2022/11/08/us/voting-polls-ballots/ohio-election-fraud-misinformation?searchResultPosition=7
 
 **Wolf Blitzer passes a torch to Jake Tapper for CNN election coverage.**\
 `For the first time since 2004, the veteran broadcaster won’t be the network’s lead anchor announcing general election projections.`\
