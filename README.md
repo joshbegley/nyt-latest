@@ -20,7 +20,7 @@ https://nytimes.com/2022/11/08/sports/tennis/garcia-wta-finals-sabalenka.html?se
 
 **Misinformation experts have been prepping for this day.**\
 `Election results may take a while, experts say heading into Tuesday’s vote. Be wary of pre-emptive claims of fraud. Hiccups are to be expected.`\
-https://nytimes.com/2022/11/08/business/media/misinformation-experts-have-been-prepping-for-this-day.html?searchResultPosition=6
+https://nytimes.com/2022/11/08/business/media/misinformation-midterm-elections.html?searchResultPosition=6
 
 **A Parisian Brasserie With a Global Footprint Sets Up Shop in TriBeCa**\
 `A Ukrainian restaurant in the former Pegu Club space, a new look for the restaurant in Scandinavia House and more news.`\
