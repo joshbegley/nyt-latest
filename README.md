@@ -1,5 +1,5 @@
 **Why the 92nd Street Y Hired a Rabbi**\
-`With antisemitism on the rise, the cultural institution decides to more fully embrace its Jewish identity.`\
+`With antisemitism on the rise, the cultural institution decided to more fully embrace its Jewish identity.`\
 https://nytimes.com/2022/11/08/nyregion/92nd-street-y-rabbi-antisemitism.html?searchResultPosition=1
 
 **What I’m Voting For**\
