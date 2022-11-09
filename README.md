@@ -14,7 +14,7 @@ https://nytimes.com/2022/11/09/sports/new-york-marathon-lokedi-doping.html?searc
 `Some districts were closed as early as Wednesday, while others have canceled classes for the rest of the week.`\
 https://nytimes.com/2022/11/09/us/nicole-florida-schools-closures.html?searchResultPosition=4
 
-**Stocks Waver as Midterm Results Remain Unclear**\
+**Stocks Slip as Midterm Results Remain Unclear**\
 `Markets often bounce on the day after midterm elections, but early trading suggested a more muted response to close-run results for control of Congress.`\
 https://nytimes.com/2022/11/09/business/stock-market-midterms.html?searchResultPosition=5
 
