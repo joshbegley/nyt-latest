@@ -2,8 +2,8 @@
 `Republican hopes of an emphatic repudiation of President Biden had morphed into a district-by-district slog by Wednesday. But the party still had multiple paths to a House majority.`\
 https://nytimes.com/2022/11/09/us/politics/midterm-elections.html?searchResultPosition=1
 
-**Election Skeptics Won Races Across the Country**\
-`More than 200 Republicans who questioned or denied the results from 2020 have been elected.`\
+**See Which 2020 Election Deniers and Skeptics Won in the Midterm Elections**\
+`More than 200 Republicans who questioned or denied the 2020 election results have won in the midterms so far.`\
 https://nytimes.com/interactive/2022/11/09/us/politics/election-misinformation-midterms-results.html?searchResultPosition=2
 
 **Picking the Thanksgiving Wine Is the Easy Part**\
