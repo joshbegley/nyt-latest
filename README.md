@@ -1,4 +1,4 @@
-**Adidas Cuts Forecast Again, Contemplates Future for Yeezy Brand**\
+**Adidas Cuts Forecast Again as It Contemplates Future for Yeezy Brand**\
 `The German sportswear company slashed its yearly forecast after dropping the popular Yeezy line over hate speech by its creator, Kanye West.`\
 https://nytimes.com/2022/11/09/world/europe/adidas-cuts-forecast-again-contemplates-future-for-yeezy-brand.html?searchResultPosition=1
 
