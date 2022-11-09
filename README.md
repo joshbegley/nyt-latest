@@ -8,7 +8,7 @@ https://nytimes.com/2022/11/09/theater/sarah-ruhl-rebecca-taichman-becky-nurse-o
 
 **Adidas Cuts Forecast Again as It Contemplates Future for Yeezy Brand**\
 `The German sportswear company slashed its yearly forecast after dropping the popular Yeezy line over hate speech by its creator, Kanye West.`\
-https://nytimes.com/2022/11/09/world/europe/adidas-cuts-forecast-again-contemplates-future-for-yeezy-brand.html?searchResultPosition=3
+https://nytimes.com/2022/11/09/world/europe/adidas-earnings-yeezy.html?searchResultPosition=3
 
 **The Republican provocateur Lauren Boebert is in an unexpectedly tight race in Colorado.**\
 `A freshman House member, Ms. Boebert, 35, was facing a stiff challenge from Adam Frisch, a Democrat.`\
