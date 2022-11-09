@@ -1,5 +1,5 @@
 **Watch Live: Biden Delivers Remarks Following Midterm Elections**\
-`President Biden is expected to discuss the midterm election results.`\
+`President Biden speaks about the midterm election results.`\
 https://nytimes.com/video/us/politics/100000008628873/biden-midterm-elections-live-video.html?searchResultPosition=1
 
 **McCarthy Announces Run for Speaker as Scalise Lines Up for No. 2**\
