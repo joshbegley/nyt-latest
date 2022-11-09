@@ -1,5 +1,5 @@
 **What’s in Our Queue? ‘The Watcher’ and More**\
-`I am a senior photo editor on the Times's Culture desk. Here are five things I've been watching and listening to.`\
+`I am a senior photo editor on The Times's Culture desk. Here are five things I've been watching and listening to.`\
 https://nytimes.com/interactive/2022/11/09/arts/editors-recommendations-thewatcher.html?searchResultPosition=1
 
 **Russia Orders a Retreat From Kherson**\
