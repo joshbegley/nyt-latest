@@ -18,8 +18,8 @@ https://nytimes.com/2022/11/09/business/dealbook/ftx-binance-crypto-deal.html?se
 `Aaron Judge’s free agency looms over everything at the general managers’ meetings, but Brian Cashman says he has other holes to fill. Cashman’s own deal will have to wait.`\
 https://nytimes.com/2022/11/09/sports/baseball/aaron-judge-yankees-offseason.html?searchResultPosition=5
 
-**Who Will Control the House and Senate?**\
-`When we may know the outcome (not anytime soon, it appears).`\
+**When We’ll Know: The Remaining Key Factors in Georgia, Nevada, Arizona**\
+`Who will control the Senate as well as the House? Settle in for a long wait.`\
 https://nytimes.com/2022/11/09/upshot/election-midterms-winners.html?searchResultPosition=6
 
 **Accessories That Are Worth the Fuzz**\
