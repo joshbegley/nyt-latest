@@ -2,8 +2,12 @@
 `Making sense of the unexpected midterm results.`\
 https://nytimes.com/2022/11/09/podcasts/the-daily/midterm-results.html?searchResultPosition=1
 
+**Counting all of the votes in Nevada could take days, election officials say.**\
+`Overwhelmed state election officials say that they have been flooded by thousands of mail-in ballots, many of which will not be counted until Thursday.`\
+https://nytimes.com/2022/11/09/us/politics/nevada-election-results-votes.html?searchResultPosition=2
+
 **China’s Great ‘Zero-Covid’ Guessing Game**\
 `Companies, investors and global policymakers are trying to divine when the Chinese government will drop its strict restrictions. It comes down to one man: the country’s top leader, Xi Jinping.`\
-https://nytimes.com/2022/11/09/business/china-zero-covid-markets.html?searchResultPosition=2
+https://nytimes.com/2022/11/09/business/china-zero-covid-markets.html?searchResultPosition=3
 
 **Here’s a look at Nicole’s path.**\
