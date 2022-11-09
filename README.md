@@ -1,4 +1,4 @@
-**Bennet Wins Third Senate Term in Colorado, in Tougher-Than-Expected Fight**\
+**Bennet wins a third Senate term in Colorado, in a tougher-than-expected fight.**\
 `Mr. Bennet, a Colorado Democrat, held off an unexpectedly strong challenge from Joe O’Dea, a Republican making his first run for public office.`\
 https://nytimes.com/2022/11/08/us/politics/bennet-wins-colorado-senate.html?searchResultPosition=1
 
