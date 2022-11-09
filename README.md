@@ -1,6 +1,6 @@
 **U.S. Roster Could Be World Cup’s Youngest Team**\
 `On Wednesday, Coach Gregg Berhalter will name the 26-player roster for the U.S. men’s national soccer team’s long-anticipated return to the World Cup.`\
-https://nytimes.com/2022/11/09/sports/us-roster-could-be-world-cups-youngest-team.html?searchResultPosition=1
+https://nytimes.com/2022/11/09/sports/us-world-cup-roster.html?searchResultPosition=1
 
 **Watch Live: Biden Delivers Remarks Following Midterm Elections**\
 `President Biden speaks about the midterm election results.`\
