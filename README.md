@@ -2,7 +2,7 @@
 `The duel between Catherine Cortez Masto, the Democratic incumbent, and Adam Laxalt, her Republican challenger, serves as a referendum on voters’ concerns nationwide over inflation and the economy.`\
 https://nytimes.com/2022/11/09/us/politics/senate-control-nevada-race.html?searchResultPosition=1
 
-**Redfin, a Real Estate Broker, Lays Off 13% of Its Staff**\
+**Redfin, the Online Real Estate Broker, Lays Off 13% of Its Staff**\
 `The company also said it was shuttering RedfinNow, its home-flipping service, as concerns grow about a slowdown in the housing market.`\
 https://nytimes.com/2022/11/09/business/redfin-laysoffs.html?searchResultPosition=2
 
