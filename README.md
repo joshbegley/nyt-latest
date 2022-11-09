@@ -31,7 +31,7 @@ https://nytimes.com/2022/11/09/business/dealbook/ftx-binance-crypto-deal.html?se
 https://nytimes.com/2022/11/09/sports/baseball/aaron-judge-yankees-offseason.html?searchResultPosition=8
 
 **When We’ll Know: The Remaining Key Factors in Georgia, Nevada, Arizona**\
-`Who will control the Senate as well as the House? Settle in for a long wait.`\
+`Who will control the Senate and the House? Settle in for a long wait.`\
 https://nytimes.com/2022/11/09/upshot/election-midterms-winners.html?searchResultPosition=9
 
 **Accessories That Are Worth the Fuzz**\
