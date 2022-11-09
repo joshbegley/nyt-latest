@@ -1,6 +1,6 @@
 **Despite the Fears, Election Day Mostly Goes as Planned**\
 `There were the usual glitches, some ginned up into misinformation. But voting was largely free of major incidents of intimidation or disruption.`\
-https://nytimes.com/2022/11/09/us/despite-the-fears-election-day-mostly-goes-as-planned.html?searchResultPosition=1
+https://nytimes.com/2022/11/09/us/election-day-voting-polls.html?searchResultPosition=1
 
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
