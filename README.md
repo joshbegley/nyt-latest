@@ -22,7 +22,7 @@ https://nytimes.com/2022/11/09/world/europe/ukraine-us-election-republicans.html
 `Prime Minister Rishi Sunak’s pragmatic diplomacy did not grab attention the way the resignation of a cabinet minister did.`\
 https://nytimes.com/2022/11/09/world/europe/uk-politics-rishi-sunak-gavin-williamson.html?searchResultPosition=6
 
-**Is Putin laying the groundwork for a cease-fire with the Kherson withdrawal order?**\
+**Putin stays silent on the Kherson withdrawal order, as others parse his motive.**\
 `Some analysts saw the order as a reminder of President Vladimir Putin’s willingness to make tactical concessions.`\
 https://nytimes.com/2022/11/09/world/europe/putin-ukraine-russia-kherson.html?searchResultPosition=7
 
