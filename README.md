@@ -1,40 +1,40 @@
-**Michigan, California, Vermont Affirm Abortion Rights in State Ballot Proposals**\
-`Voters in all three states amended their constitutions to include reproductive rights.`\
-https://nytimes.com/2022/11/09/us/abortion-rights-ballot-proposals.html?searchResultPosition=1
+**Election Skeptics Won Races Across the Country**\
+`More than 200 Republicans who questioned or denied the results from 2020 have been elected.`\
+https://nytimes.com/interactive/2022/11/09/us/politics/election-misinformation-midterms-results.html?searchResultPosition=1
 
-**The DBQ Project: Forming Arguments With History, Literature and Current Events**\
-`A history teacher and an English teacher paired New York Times articles with novels and memoirs to prepare students to tackle the document-based question, or DBQ.`\
-https://nytimes.com/2022/11/09/learning/lesson-plans/the-dbq-project-forming-arguments-with-history-literature-and-current-events.html?searchResultPosition=2
+**Picking the Thanksgiving Wine Is the Easy Part**\
+`For this meal, selecting bottles is so simple that wine’s ceremonial importance is sometimes forgotten in the blizzard of preparations.`\
+https://nytimes.com/2022/11/09/dining/drinks/best-thanksgiving-wine.html?searchResultPosition=2
 
-**Votes on Ballot Measures Reflect the Nation’s Divisions**\
-`Mixed results on referendums involving marijuana and voting rights were among the early outcomes on state ballots.`\
-https://nytimes.com/2022/11/09/us/politics/state-ballot-measures-results.html?searchResultPosition=3
+**How a G.O.P. Wave Became a Ripple**\
+`The conditions seemed ripe for Republicans to make big midterm pickups. Voters had other ideas.`\
+https://nytimes.com/2022/11/09/us/politics/republican-election-results.html?searchResultPosition=3
 
-**Hochul Wins, but It’s No Cakewalk**\
-`The Democrat’s campaign will be analyzed and criticized, but she emerged as the first woman to be elected to the governorship in New York State.`\
-https://nytimes.com/2022/11/09/nyregion/hochul-wins-but-its-no-cakewalk.html?searchResultPosition=4
+**Sea Turtle Sanctuary Has Survived 40 Years. Climate Change May Kill It.**\
+`Against long odds and initially strong opposition, a pristine marine preserve in the Philippines has thrived for decades under the care of local fishermen. Warming waters threaten the achievement.`\
+https://nytimes.com/2022/11/09/world/asia/sea-turtle-sanctuary-philippines.html?searchResultPosition=4
 
-**Despite the Fears, Election Day Mostly Goes as Planned**\
-`There were the usual glitches, some ginned up into misinformation. But voting was largely free of major incidents of intimidation or disruption.`\
-https://nytimes.com/2022/11/09/us/election-day-voting-polls.html?searchResultPosition=5
+**A Little Girl and a Dream Lost in the Jungle**\
+`The pandemic, climate change and growing conflict are forcing a seismic shift in global migration. In few places is that more clear than a perilous crossing called the Darién Gap.`\
+https://nytimes.com/2022/11/09/world/americas/migrants-darien-gap.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/11/09/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**$1.1 Million Homes in Illinois, Georgia and Vermont**\
+`An International-style home in Riverwoods, a two-bedroom townhouse in Savannah and an 1845 farmhouse in Manchester.`\
+https://nytimes.com/2022/11/09/realestate/home-prices-illinois-georgia-vermont.html?searchResultPosition=6
 
-**Pie**\
-`What kind is the best kind, in your opinion? Why?`\
-https://nytimes.com/2022/11/09/learning/pie.html?searchResultPosition=7
+**What You Get for $1.1 Million**\
+`An International-style home in Riverwoods, Ill.; a two-bedroom townhouse in Savannah, Ga.; and an 1845 farmhouse in Manchester, Vt.`\
+https://nytimes.com/slideshow/2022/11/09/realestate/what-you-get-for-1-1-million.html?searchResultPosition=7
 
-**Across Texas, neither a red wave nor a blue one.**\
-`The surge of enthusiasm that lifted up Texas Democrats in 2018 did not resurface. At the same time, the party avoided a complete wipeout in South Texas.`\
-https://nytimes.com/2022/11/09/us/politics/texas-results-red-wave-democrats.html?searchResultPosition=8
+**New Hope, Pa.: A Walkable River Town With Plenty of Attractions**\
+`The Bucks County borough may be small, but it has a lot to offer — and much lower taxes than towns on the other side of the Delaware River.`\
+https://nytimes.com/2022/11/09/realestate/new-hope-bucks-county-pennsylvania.html?searchResultPosition=8
 
-**Trump Hoped for a Celebration but Did Not Have Much to Cheer**\
-`The former president endorsed roughly 300 candidates in the midterm elections. With votes still being counted, those in competitive races appeared to have mixed results.`\
-https://nytimes.com/2022/11/09/us/politics/trump-endorsements-midterms-gop.html?searchResultPosition=9
+**Five Takeaways From a Red Wave That Didn’t Reach the Shore**\
+`Inflation wasn’t the whole story, Democrats showed up, Trump-backed candidates underperformed: Here are last night’s lessons.`\
+https://nytimes.com/2022/11/09/us/politics/five-takeaways-from-a-red-wave-that-didnt-reach-the-shore.html?searchResultPosition=9
 
-**Hochul Wins Full Term in New York Amid a Wave of Discontent**\
-`Gov. Kathy Hochul became the state’s first woman to be elected governor, prevailing in a contest that was the closest New York has seen in decades.`\
-https://nytimes.com/2022/11/09/nyregion/hochul-governor-new-york.html?searchResultPosition=10
+**Imagining a Memorial to an Unimaginable Number of Covid Deaths**\
+`In cities, especially, monuments have become not just an artistic genre unto themselves but evanescent, ever-evolving tributes to those we lost — and continue to lose.`\
+https://nytimes.com/2022/11/09/t-magazine/public-memorials-monuments-covid.html?searchResultPosition=10
 
