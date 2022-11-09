@@ -4,7 +4,7 @@ https://nytimes.com/2022/11/09/world/middleeast/israel-left-netanyahu.html?searc
 
 **Florida airports close down or warn of possible flight cancellations.**\
 `Orlando and Palm Beach airports said they would halt all commercial arrivals and departures, while others stayed in operation for now.`\
-https://nytimes.com/2022/11/09/us/tropical-storm-nicole-florida-airport-closures.html?searchResultPosition=2
+https://nytimes.com/2022/11/09/us/tropical-storm-nicole-florida-airports-flights.html?searchResultPosition=2
 
 **J.D. Vance Gets What He Came For in Ohio, No Elegy Necessary**\
 `Many Republicans woke up on Wednesday to disappointment. But in Ohio, at least, was the picture of a gambit rewarded as the best-selling author won a Senate seat.`\
