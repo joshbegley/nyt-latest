@@ -28,7 +28,7 @@ https://nytimes.com/2022/11/09/learning/pie.html?searchResultPosition=7
 
 **Across Texas, neither a red wave nor a blue one.**\
 `The surge of enthusiasm that lifted up Texas Democrats in 2018 did not resurface. At the same time, the party avoided a complete wipeout in South Texas.`\
-https://nytimes.com/2022/11/09/us/politics/across-texas-neither-a-red-wave-nor-a-blue-one.html?searchResultPosition=8
+https://nytimes.com/2022/11/09/us/politics/texas-results-red-wave-democrats.html?searchResultPosition=8
 
 **Trump Hoped for a Celebration but Did Not Have Much to Cheer**\
 `The former president endorsed roughly 300 candidates in the midterm elections. With votes still being counted, those in competitive races appeared to have mixed results.`\
