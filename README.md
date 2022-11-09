@@ -18,7 +18,7 @@ https://nytimes.com/2022/11/09/us/politics/across-texas-neither-a-red-wave-nor-a
 `The former president endorsed roughly 300 candidates in the midterm elections. With votes still being counted, those in competitive races appeared to have mixed results.`\
 https://nytimes.com/2022/11/09/us/politics/trump-endorsements-midterms-gop.html?searchResultPosition=5
 
-**Hochul Wins Full Term in New York Despite a Wave of Discontent**\
+**Hochul Wins Full Term in New York Amid a Wave of Discontent**\
 `Gov. Kathy Hochul became the state’s first woman to be elected governor, prevailing in a contest that was the closest New York has seen in decades.`\
 https://nytimes.com/2022/11/09/nyregion/hochul-governor-new-york.html?searchResultPosition=6
 
