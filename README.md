@@ -15,7 +15,7 @@ https://nytimes.com/2022/11/09/us/nicole-florida-daytona-beach-shores-evacuation
 https://nytimes.com/2022/11/09/business/forbes-investor-group.html?searchResultPosition=4
 
 **Rivian Lost $1.7 Billion in the Third Quarter**\
-`The electric truck maker said it has enough cash to fund its operations through 2025.`\
+`The electric truck maker said it had enough cash to fund its operations through 2025.`\
 https://nytimes.com/2022/11/09/business/rivian-third-quarter-earnings.html?searchResultPosition=5
 
 **An Ancient People’s Oldest Message: Get Rid of Beard Lice.**\
