@@ -16,7 +16,7 @@ https://nytimes.com/2022/11/09/us/politics/lauren-boebert-colorado-election.html
 
 **Keurig Dr Pepper Invests $50 Million in Nonalcoholic Brewer**\
 `The deal is a sign of continued interest in the fast-growing category of nonalcoholic beer, which jumped to about $670 million in annual sales in 2021.`\
-https://nytimes.com/2022/11/09/business/keurig-dr-pepper-nonalcoholic-deal.html?searchResultPosition=5
+https://nytimes.com/2022/11/09/business/dealbook/keurig-dr-pepper-nonalcoholic-deal.html?searchResultPosition=5
 
 **Migrant Ship, Turned Away by Italy, Heads Toward France**\
 `The new right-wing government allowed passengers on three vessels to disembark, but it stood firm on a fourth, a move that France denounced as “unacceptable.”`\
