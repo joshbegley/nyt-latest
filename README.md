@@ -1,4 +1,4 @@
-**Chuck Schumer Wins 5th Term as Democrats in NY Hold Hope for Hochul**\
+**Chuck Schumer Wins 5th Term as Democrats in N.Y. Hold Hope for Hochul**\
 `Gov. Kathy Hochul held an early lead in a surprisingly tight race against Rep. Lee Zeldin, a conservative Republican.`\
 https://nytimes.com/2022/11/08/us/politics/chuck-schumer-wins-ny.html?searchResultPosition=1
 
