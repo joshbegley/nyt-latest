@@ -20,7 +20,7 @@ https://nytimes.com/2022/11/10/world/europe/ukraine-kherson-russia.html?searchRe
 
 **Paulina Porizkova Doesn’t Call Her Book a Memoir**\
 `The model and author spoke about writing “No Filter: The Good, the Bad and the Beautiful.”`\
-https://nytimes.com/2022/11/10/style/paulina-porizkova-doesnt-call-her-book-a-memoir.html?searchResultPosition=6
+https://nytimes.com/2022/11/10/style/paulina-porizkova-memoir.html?searchResultPosition=6
 
 **What Happened to FTX? Here’s What to Know.**\
 `Binance, the world’s largest cryptocurrency exchange, was set to bail out FTX. Then it pulled out of the deal.`\
