@@ -1,6 +1,6 @@
 **Takeaways From a Hopeful Inflation Report**\
 `The Consumer Price Index in October showed that inflation remained rapid, but there were some hopeful signs under the surface.`\
-https://nytimes.com/2022/11/10/business/takeaways-from-a-hopeful-inflation-report.html?searchResultPosition=1
+https://nytimes.com/2022/11/10/business/inflation-report-takeaways.html?searchResultPosition=1
 
 **Rising Democratic Star Survives Close Call in Houston**\
 `Lina Hidalgo, a progressive, won re-election as Harris County judge by a slim margin against a first-time candidate who focused on crime.`\
