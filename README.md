@@ -16,7 +16,7 @@ https://nytimes.com/2022/11/10/dining/thanksgiving-potato-recipes.html?searchRes
 
 **Path to 218: Tracking the Remaining House Races**\
 `We’re tracking the remaining uncalled House races — and showing when they are called — as states continue to count the outstanding votes from the midterm elections.`\
-https://nytimes.com/interactive/2022/11/08/us/elections/results-house-seats-elections-congress.html?searchResultPosition=5
+https://nytimes.com/interactive/2022/11/10/us/elections/results-house-seats-elections-congress.html?searchResultPosition=5
 
 **Transcript: Ezra Klein and Aaron Retica Discuss the 2022 Midterm Elections**\
 `The Nov. 10, 2022 episode of “The Ezra Klein Show”`\
