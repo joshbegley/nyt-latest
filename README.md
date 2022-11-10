@@ -1,40 +1,40 @@
+**‘My Father’s Dragon’ Review: Apocalypse Howl**\
+`A boy befriends a colorful creature in this animated film that struggles to maintain a consistent tone.`\
+https://nytimes.com/2022/11/10/movies/my-fathers-dragon-review.html?searchResultPosition=1
+
+**‘Retrograde’ Review: The U.S. Withdrawal From Afghanistan**\
+`This documentary follows one Afghan general, Sami Sadat, to tell an emotional story.`\
+https://nytimes.com/2022/11/10/movies/retrograde-review.html?searchResultPosition=2
+
+**‘Falling for Christmas’ Review: Trip Down Memory Lane**\
+`Lindsay Lohan stars as an amnesiac who falls off a mountain and in love in this Netflix holiday romance that is all too familiar.`\
+https://nytimes.com/2022/11/10/movies/falling-for-christmas-review-lindsay-lohan.html?searchResultPosition=3
+
+**‘Paradise City’ Review: John Travolta and Bruce Willis Reunite**\
+`Almost 30 years after “Pulp Fiction,” these kings of cool team up for a Hawaii-set action feature that isn’t as much fun as it sounds.`\
+https://nytimes.com/2022/11/10/movies/paradise-city-review-john-travolta-bruce-willis.html?searchResultPosition=4
+
+**‘Sam & Kate’ Review: It’s a Family Affair**\
+`Darren Le Gallo’s drama stars two real-life parent-child duos — Dustin and Jake Hoffman, and Sissy Spacek and Schuyler Fisk — as lonely small-towners looking for love.`\
+https://nytimes.com/2022/11/10/movies/sam-kate-review.html?searchResultPosition=5
+
+**‘The First Noelle’ Review: All I Want for Christmas Is My Ex**\
+`A young Black editor is set on winning back her ex-boyfriend this Christmas — even if it means breaking up his relationship.`\
+https://nytimes.com/2022/11/10/movies/the-first-noelle-review.html?searchResultPosition=6
+
+**‘Nothing Lasts Forever’ Review: Mining the Diamond Myth**\
+`This documentary positions an intriguing investigation into the rise of synthetic diamonds within a broader excavation of the myths these stones carry.`\
+https://nytimes.com/2022/11/10/movies/nothing-lasts-forever-review.html?searchResultPosition=7
+
 **Abortion on the Ballot**\
 `Democrats won crucial races in states where abortion rights were at stake.`\
-https://nytimes.com/2022/11/10/briefing/abortion-midterm-elections.html?searchResultPosition=1
+https://nytimes.com/2022/11/10/briefing/abortion-midterm-elections.html?searchResultPosition=8
 
 **Nicole Will Move Up the East Coast, Bringing Heavy Rain**\
 `The storm’s remnants will be in New England by Sunday.`\
-https://nytimes.com/2022/11/10/us/tropical-storm-nicole-forecast.html?searchResultPosition=2
+https://nytimes.com/2022/11/10/us/tropical-storm-nicole-forecast.html?searchResultPosition=9
 
 **Egypt Starts ‘Medical Intervention’ on Prominent Political Prisoner, Family Says**\
 `The hunger-striking dissident Alaa Abd El Fattah escalated his protest this week when he stopped drinking water as a U.N. climate conference opened in Egypt. His family fears that he is being force fed.`\
-https://nytimes.com/2022/11/10/world/middleeast/alaa-abd-el-fattah-hunger-strike-egypt.html?searchResultPosition=3
-
-**A Vatican Auditor Says He Dug Up Too Much Dirt, and Was Buried**\
-`Libero Milone is suing the Vatican for wrongful dismissal after he said he found cardinals siphoning off funds. The Vatican has hit him with a criminal investigation of its own.`\
-https://nytimes.com/2022/11/10/world/europe/vatican-auditor-sues.html?searchResultPosition=4
-
-**How Democrats Defied the Odds**\
-`In the midterms, the party bucked decades of conventional political wisdom, while the Republican playbook largely failed.`\
-https://nytimes.com/2022/11/10/podcasts/the-daily/midterm-results-democrats.html?searchResultPosition=5
-
-**This Land Is His Land**\
-`It’s too simplistic to label “Yellowstone” a “red-state drama.” But the cowboy soap speaks the language of culture war with a perfect accent.`\
-https://nytimes.com/2022/11/10/arts/television/yellowstone-taylor-sheridan.html?searchResultPosition=6
-
-**The 2022 New York Times/New York Public Library Best Illustrated Children’s Books Winners at Work**\
-`The artists behind this year’s winning books, in their studios.`\
-https://nytimes.com/2022/11/10/best-childrens-book-illustrators.html?searchResultPosition=7
-
-**Weed Is Now Legal in Thailand. How Long Will the High Times Last?**\
-`Cannabis shops have multiplied since the drug was decriminalized, with caveats, in June. But some lawmakers are pushing for tighter regulation.`\
-https://nytimes.com/2022/11/10/world/asia/thailand-weed-cannabis-law.html?searchResultPosition=8
-
-**The 2022 New York Times/New York Public Library Best Illustrated Children’s Books**\
-`Take a peek at all 10 of this year’s winners.`\
-https://nytimes.com/2022/11/10/books/review/the-2022-new-york-times-new-york-public-library-best-illustrated-childrens-books.html?searchResultPosition=9
-
-**Mary Kelly’s Revolution Is Ongoing**\
-`The pioneering artist’s feminist work was groundbreaking in the ’70s. She never dreamed it would look just as radical half a century later.`\
-https://nytimes.com/2022/11/10/t-magazine/mary-kelly.html?searchResultPosition=10
+https://nytimes.com/2022/11/10/world/middleeast/alaa-abd-el-fattah-hunger-strike-egypt.html?searchResultPosition=10
 
