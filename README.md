@@ -14,8 +14,8 @@ https://nytimes.com/2022/11/09/us/politics/arizona-governor-hobbs-kari-lake.html
 `“Republicans have followed Donald Trump off the side of a cliff,” a longtime adviser said.`\
 https://nytimes.com/2022/11/09/us/politics/trump-republicans-midterms.html?searchResultPosition=4
 
-**Paul G. Allen’s Art at Christie’s Tops $1 Billion, Cracking Records**\
-`A museum’s worth of masterworks from the Microsoft co-founder’s collection are offered in a two-part charity sale. Several topped $100 million.`\
+**Paul G. Allen’s Art at Christie’s Tops $1.5 Billion, Cracking Records**\
+`A museum’s worth of masterworks from the Microsoft co-founder’s collection are offered in a two-part charity sale. Five topped $100 million.`\
 https://nytimes.com/2022/11/09/arts/design/paul-allen-auction-christies.html?searchResultPosition=5
 
 **Why I’m Cheering Tuesday’s Results**\
