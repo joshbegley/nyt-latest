@@ -7,7 +7,7 @@ https://nytimes.com/2022/11/09/us/politics/arizona-governor-hobbs-kari-lake.html
 https://nytimes.com/2022/11/09/us/politics/trump-republicans-midterms.html?searchResultPosition=2
 
 **Paul G. Allen’s Art at Christie’s Tops $1 Billion, Cracking Records**\
-`A museum’s worth of masterworks from the Microsoft co-founder’s collection are offered in a two-part sale to benefit charity.`\
+`A museum’s worth of masterworks from the Microsoft co-founder’s collection are offered in a two-part charity sale. Several topped $100 million.`\
 https://nytimes.com/2022/11/09/arts/design/paul-allen-auction-christies.html?searchResultPosition=3
 
 **Why I’m Cheering Tuesday’s Results**\
