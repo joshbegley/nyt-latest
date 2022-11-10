@@ -26,15 +26,15 @@ https://nytimes.com/2022/11/09/pageoneplus/corrections-nov-10-2022.html?searchRe
 `Her graceful, flexible voice and ear for memorable songs sustained a five-decade career defining the sound of Brazilian pop.`\
 https://nytimes.com/2022/11/09/arts/music/gal-costa-dead.html?searchResultPosition=7
 
+**What We Know Now About the Midterms**\
+`Some of the dust has settled, and a clearer picture is emerging of Tuesday’s surprising, sometimes nuanced results.`\
+https://nytimes.com/2022/11/09/us/politics/midterms-races-trump-voting.html?searchResultPosition=8
+
 **L.A. Drops Criminal Charges Against Election Software Executive**\
 `Eugene Yu was accused of illegally sending data about poll workers to China, in a case that became fodder for election deniers.`\
-https://nytimes.com/2022/11/09/technology/konnech-eugene-yu-charges-dropped.html?searchResultPosition=8
+https://nytimes.com/2022/11/09/technology/konnech-eugene-yu-charges-dropped.html?searchResultPosition=9
 
 **In New Book, Pence Reflects on Trump and Jan. 6**\
 `“You’re too honest,” President Donald J. Trump said as he pressured his vice president to intervene to block Joseph R. Biden Jr.’s victory.`\
-https://nytimes.com/2022/11/09/us/politics/pence-trump-jan-6.html?searchResultPosition=9
-
-**With Runaway Win, DeSantis’s Political Career Becomes Supercharged**\
-`The Florida governor’s victory was a result of his commanding campaign, relentless voter registration and turnout efforts, and Democrats’ utter collapse in the state.`\
-https://nytimes.com/2022/11/09/us/ron-desantis-victory-florida.html?searchResultPosition=10
+https://nytimes.com/2022/11/09/us/politics/pence-trump-jan-6.html?searchResultPosition=10
 
