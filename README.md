@@ -2,7 +2,7 @@
 `Yilong Liu’s new play toggles between China in 1984 and the United States in 2021.`\
 https://nytimes.com/2022/11/10/theater/good-enemy-review.html?searchResultPosition=1
 
-**Biden Touts Cooling Inflation, Citing Economic Policies**\
+**Biden, Pointing to Cooling Inflation, Extols His Economic Policies**\
 `The president took credit for signs that rapid price rises were moderating, after spending months on the defensive about his handling of the economy.`\
 https://nytimes.com/2022/11/10/business/biden-inflation-economy.html?searchResultPosition=2
 
