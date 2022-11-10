@@ -1,40 +1,40 @@
+**A Japanese American Family, a Native American Tribe and a Bountiful Friendship**\
+`In the face of discrimination and hate, the Inabas and the Yakama Nation forged a bond through a farm in eastern Washington that has lasted for more than 100 years.`\
+https://nytimes.com/2022/11/10/us/yakama-nation-japanese-farm.html?searchResultPosition=1
+
+**How Democrats Used the Abortion Debate to Hold Off a Red Wave**\
+`In the first major election post-Roe, Democrats tied abortion rights to everyday economics and tapped into fears about the rise of right-wing Republicans.`\
+https://nytimes.com/2022/11/10/us/politics/abortion-midterm-elections-democrats-republicans.html?searchResultPosition=2
+
+**Kamila Valieva’s Doctor Has Long Worked in the Shadows of Sport**\
+`Dr. Filipp Shvetsky was listed as Valieva’s supervising physician at the Beijing Games, where it was revealed she had tested positive for a banned drug before the event. He says he didn’t administer it.`\
+https://nytimes.com/2022/11/10/sports/olympics/kamila-valieva-drug-test-doctor.html?searchResultPosition=3
+
+**Inventing a New Language for Talking About Style**\
+`Blackbird Spyplane, a popular but niche “dude-leaning” newsletter, introduces Concorde, a new endeavor aimed at women.`\
+https://nytimes.com/2022/11/10/style/inventing-a-new-language-for-talking-about-style.html?searchResultPosition=4
+
+**The Curious Life and Strange Death of a Fashion Insider**\
+`The flamboyant Long Nguyen left a powerful creative imprint on an industry slow to accept iconoclasts like him.`\
+https://nytimes.com/2022/11/10/style/the-curious-life-and-strange-death-of-a-fashion-insider.html?searchResultPosition=5
+
+**Writing About Life, on a Deadline**\
+`The Obituaries desk plans ahead. But occasionally, an unexpected death means a reporter only has hours to learn about a person.`\
+https://nytimes.com/2022/11/10/insider/writing-about-life-on-a-deadline.html?searchResultPosition=6
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2022/11/10/crosswords/spelling-bee-forum.html?searchResultPosition=7
+
+**Twitter**\
+`What do you think this image is communicating?`\
+https://nytimes.com/2022/11/10/learning/twitter.html?searchResultPosition=8
+
 **Late Night Thinks Trump Is the Biggest Loser in the Midterms**\
 `The former president was said to be livid that candidates he endorsed lost on Tuesday, including Dr. Oz.`\
-https://nytimes.com/2022/11/10/arts/television/late-night-trump-midterms.html?searchResultPosition=1
+https://nytimes.com/2022/11/10/arts/television/late-night-trump-midterms.html?searchResultPosition=9
 
 **Word of the Day: acumen**\
 `This word has appeared in 74 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/11/10/learning/word-of-the-day-acumen.html?searchResultPosition=2
-
-**N.Y. Democrats Play the Blame Game Despite Hochul Victory**\
-`Congressional losses in New York could be the deciding factor on whether Democrats keep the House.`\
-https://nytimes.com/2022/11/10/nyregion/ny-democrats-play-the-blame-game-despite-hochul-victory.html?searchResultPosition=3
-
-**Your Thursday Briefing**\
-`Takeaways from the U.S. midterms.`\
-https://nytimes.com/2022/11/10/briefing/midterm-takeaways-climate-crypto.html?searchResultPosition=4
-
-**N.F.L. Week 10 Predictions: Our Picks for Each Game**\
-`Josh Allen’s status puts the Bills’ matchup against the Vikings into disarray, the Seahawks look to extend their winning steak, and the 49ers are hoping for health out of their bye week.`\
-https://nytimes.com/2022/11/10/sports/football/nfl-week-10-picks.html?searchResultPosition=5
-
-**Quotation of the Day: Early Peace Talks Appear Unlikely as Russians Retreat and Retaliate**\
-`Quotation of the Day for Thursday, November 10, 2022.`\
-https://nytimes.com/2022/11/09/todayspaper/quotation-of-the-day-early-peace-talks-appear-unlikely-as-russians-retreat-and-retaliate.html?searchResultPosition=6
-
-**Bighearted Sort**\
-`Dan Caprera’s Thursday puzzle is a wild one.`\
-https://nytimes.com/2022/11/09/crosswords/daily-puzzle-2022-11-10.html?searchResultPosition=7
-
-**In Arizona’s race for governor, Hobbs defies expectations and takes a narrow lead.**\
-`The Democratic candidate’s mild manner has been a counterweight to her rival Kari Lake’s charismatic and antagonistic style.`\
-https://nytimes.com/2022/11/09/us/politics/arizona-governor-hobbs-kari-lake.html?searchResultPosition=8
-
-**Trump Under Fire From Within G.O.P. After Midterms**\
-`“Republicans have followed Donald Trump off the side of a cliff,” a longtime adviser said.`\
-https://nytimes.com/2022/11/09/us/politics/trump-republicans-midterms.html?searchResultPosition=9
-
-**Paul G. Allen’s Art at Christie’s Tops $1.5 Billion, Cracking Records**\
-`A museum’s worth of masterworks from the Microsoft co-founder’s collection are offered in a two-part charity sale. Five topped $100 million.`\
-https://nytimes.com/2022/11/09/arts/design/paul-allen-auction-christies.html?searchResultPosition=10
+https://nytimes.com/2022/11/10/learning/word-of-the-day-acumen.html?searchResultPosition=10
 
