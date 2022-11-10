@@ -4,7 +4,7 @@ https://nytimes.com/2022/11/10/arts/television/friend-of-the-family-finale.html?
 
 **Watch Live: Biden Delivers Remarks About Midterms**\
 `President Joe Biden and Vice President Kamala Harris discuss the midterm elections.`\
-https://nytimes.com/video/us/politics/100000008632019/biden-kamala-midterms.html?searchResultPosition=2
+https://nytimes.com/video/embedded/us/politics/100000008632019/biden-kamala-midterms.html?searchResultPosition=2
 
 **‘The Box’ Review: A Dark Coming-of-Age Tale**\
 `This unsettlingly cryptic thriller directed by Lorenzo Vigas follows a teenager after he retrieves the remains of his father who was found in a mass grave.`\
