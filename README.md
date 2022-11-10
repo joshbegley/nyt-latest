@@ -3,7 +3,7 @@
 https://nytimes.com/2022/11/10/us/tropical-storm-nicole-forecast.html?searchResultPosition=1
 
 **Egypt Starts ‘Medical Intervention’ on Prominent Political Prisoner, Family Says**\
-`The hunger-striking dissident Alaa Abd El Fattah escalated his protest this week when he stopped drinking water as a U.N.-sponsored climate conference opened in Egypt.`\
+`The hunger-striking dissident Alaa Abd El Fattah escalated his protest this week when he stopped drinking water as a U.N. climate conference opened in Egypt. His family fears that he is being force fed.`\
 https://nytimes.com/2022/11/10/world/middleeast/alaa-abd-el-fattah-hunger-strike-egypt.html?searchResultPosition=2
 
 **A Vatican Auditor Says He Dug Up Too Much Dirt, and Was Buried**\
