@@ -1,40 +1,40 @@
+**Lesson Plan: ‘How Many Languages Could a Child Speak?’**\
+`Make a guess and then find out the answer in this lesson.`\
+https://nytimes.com/2022/11/10/learning/lesson-plans/lesson-plan-how-many-languages-could-a-child-speak.html?searchResultPosition=1
+
 **France Cheers for a Musical It Loves but Hasn’t Watched**\
 `Songs from “Starmania” are frequently heard and covered in France, but until a new production opened in Paris, few had a chance to see the 1979 rock opera onstage.`\
-https://nytimes.com/2022/11/10/theater/starmania-review-la-seine-musicale.html?searchResultPosition=1
+https://nytimes.com/2022/11/10/theater/starmania-review-la-seine-musicale.html?searchResultPosition=2
 
 **A Japanese American Family, a Native American Tribe and a Bountiful Friendship**\
 `In the face of discrimination and hate, the Inabas and the Yakama Nation forged a bond through a farm in eastern Washington that has lasted for more than 100 years.`\
-https://nytimes.com/2022/11/10/us/yakama-nation-japanese-farm.html?searchResultPosition=2
+https://nytimes.com/2022/11/10/us/yakama-nation-japanese-farm.html?searchResultPosition=3
 
 **How Democrats Used the Abortion Debate to Hold Off a Red Wave**\
 `In the first major election post-Roe, Democrats tied abortion rights to everyday economics and tapped into fears about the rise of right-wing Republicans.`\
-https://nytimes.com/2022/11/10/us/politics/abortion-midterm-elections-democrats-republicans.html?searchResultPosition=3
+https://nytimes.com/2022/11/10/us/politics/abortion-midterm-elections-democrats-republicans.html?searchResultPosition=4
 
 **Kamila Valieva’s Doctor Has Long Worked in the Shadows of Sport**\
 `Dr. Filipp Shvetsky was listed as Valieva’s supervising physician at the Beijing Games, where it was revealed she had tested positive for a banned drug before the event. He says he didn’t administer it.`\
-https://nytimes.com/2022/11/10/sports/olympics/kamila-valieva-drug-test-doctor.html?searchResultPosition=4
+https://nytimes.com/2022/11/10/sports/olympics/kamila-valieva-drug-test-doctor.html?searchResultPosition=5
 
 **Inventing a New Language for Talking About Style**\
 `Blackbird Spyplane, a popular but niche “dude-leaning” newsletter, introduces Concorde, a new endeavor aimed at women.`\
-https://nytimes.com/2022/11/10/style/inventing-a-new-language-for-talking-about-style.html?searchResultPosition=5
+https://nytimes.com/2022/11/10/style/inventing-a-new-language-for-talking-about-style.html?searchResultPosition=6
 
 **The Curious Life and Strange Death of a Fashion Insider**\
 `The flamboyant Long Nguyen left a powerful creative imprint on an industry slow to accept iconoclasts like him.`\
-https://nytimes.com/2022/11/10/style/the-curious-life-and-strange-death-of-a-fashion-insider.html?searchResultPosition=6
+https://nytimes.com/2022/11/10/style/the-curious-life-and-strange-death-of-a-fashion-insider.html?searchResultPosition=7
 
 **Writing About Life, on a Deadline**\
 `The Obituaries desk plans ahead. But occasionally, an unexpected death means a reporter only has hours to learn about a person.`\
-https://nytimes.com/2022/11/10/insider/writing-about-life-on-a-deadline.html?searchResultPosition=7
+https://nytimes.com/2022/11/10/insider/writing-about-life-on-a-deadline.html?searchResultPosition=8
 
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/11/10/crosswords/spelling-bee-forum.html?searchResultPosition=8
+https://nytimes.com/2022/11/10/crosswords/spelling-bee-forum.html?searchResultPosition=9
 
 **Twitter**\
 `What do you think this image is communicating?`\
-https://nytimes.com/2022/11/10/learning/twitter.html?searchResultPosition=9
-
-**Late Night Thinks Trump Is the Biggest Loser in the Midterms**\
-`The former president was said to be livid that candidates he endorsed lost on Tuesday, including Dr. Oz.`\
-https://nytimes.com/2022/11/10/arts/television/late-night-trump-midterms.html?searchResultPosition=10
+https://nytimes.com/2022/11/10/learning/twitter.html?searchResultPosition=10
 
