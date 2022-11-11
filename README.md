@@ -31,7 +31,7 @@ https://nytimes.com/2022/11/10/business/biden-student-debt-court.html?searchResu
 https://nytimes.com/2022/11/10/us/challenger-nasa-bermuda-triangle-documentary.html?searchResultPosition=8
 
 **Kim Schrier Holds on to House Seat in Washington State**\
-`Republicans had eyed the district as a prime potential pickup in their drive to win back the House majority, after Ms. Schrier became the first Democrat to win it in 2018.`\
+`Republicans had eyed the district as a prime potential pickup in their drive to win back the House majority, after Dr. Schrier became the first Democrat to win it in 2018.`\
 https://nytimes.com/2022/11/10/us/politics/schrier-larkin-washington-house.html?searchResultPosition=9
 
 **Tina Kotek, a Progressive, Will Be Oregon’s Next Governor**\
