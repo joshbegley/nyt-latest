@@ -1,40 +1,40 @@
-**China Adjusts Some Pandemic Policies, While Sticking to ‘Zero Covid’**\
-`Investors cheered the changes, although officials emphasized that measures “must not be relaxed.”`\
-https://nytimes.com/2022/11/11/business/china-zero-covid-markets.html?searchResultPosition=1
+**Decades of Drama at the ATP Finals**\
+`The year-end event has plenty of great tennis. Here are five of the most memorable matches.`\
+https://nytimes.com/2022/11/11/sports/tennis/atp-finals-memorable-matches.html?searchResultPosition=1
 
-**On Alibaba’s Singles Day, Shopping Baskets Are Filled With Chinese Brands**\
-`As geopolitical and economic pressures mount, homegrown businesses are increasingly the preferred choice over Western competitors in a more insular China.`\
-https://nytimes.com/2022/11/11/world/asia/china-singles-day-alibaba.html?searchResultPosition=2
+**The New York Times News Quiz, November 11, 2022**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2022/11/11/briefing/11-news-quiz.html?searchResultPosition=2
 
-**KFC Apologizes for Linking Chicken Promotion to Kristallnacht**\
-`An automated push notification sent in error by KFC Germany conflated the notorious 1938 pogrom and “tender cheese with crispy chicken.”`\
-https://nytimes.com/2022/11/11/business/kfc-germany-kristallnacht-chicken.html?searchResultPosition=3
+**Two Weeks of Chaos: Inside Elon Musk’s Takeover of Twitter**\
+`Mr. Musk ordered immediate layoffs, fired executives by email, laid down product deadlines and has transformed the company.`\
+https://nytimes.com/2022/11/11/technology/elon-musk-twitter-takeover.html?searchResultPosition=3
 
-**Quotation of the Day: Strategy for Reforestation, Starting From the Ground Up**\
-`Quotation of the Day for Friday, November 11, 2022.`\
-https://nytimes.com/2022/11/11/todayspaper/quotation-of-the-day-strategy-for-reforestation-starting-from-the-ground-up.html?searchResultPosition=4
+**Election Officials Say Efforts to Bolster the Voting System Worked**\
+`Officials were braced for partisan poll monitors convinced of fraud to disrupt voting in the midterm elections. While there were scattered episodes, the vote went smoothly.`\
+https://nytimes.com/2022/11/11/us/election-security-2022-midterms.html?searchResultPosition=4
 
-**How Nepal Grew Back Its Forests**\
-`An effort decades in the making is showing results in Nepal, a rare success story in a world of cascading climate disasters and despair.`\
-https://nytimes.com/2022/11/11/world/asia/nepal-reforestration-climate.html?searchResultPosition=5
+**After 4 Sons Vanish, Their Mother Devotes Her Life to Mexico’s Missing**\
+`Over 100,000 people are missing in Mexico, but even amid this national agony, one mother’s story stands out both for the scope of her suffering and for her work trying to end the nation’s nightmare.`\
+https://nytimes.com/2022/11/11/world/americas/mexico-missing-children-maria-herrera-magdaleno.html?searchResultPosition=5
 
-**Why Some States Went in Different Directions in Midterms**\
-`Abortion rights and antidemocratic stances were more relevant or pressing in some places than others.`\
-https://nytimes.com/2022/11/11/upshot/midterm-election-abortion-democracy.html?searchResultPosition=6
+**‘The Crown’: The History Behind Season 5 on Netflix**\
+`The Netflix show’s blending of fact and fiction has received more criticism than ever around its most recent season. Here’s how The Times reported on its plotlines.`\
+https://nytimes.com/2022/11/11/arts/television/the-crown-history-season-5.html?searchResultPosition=6
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/11/11/crosswords/spelling-bee-forum.html?searchResultPosition=7
+**The Crypto Ponzi Scheme Avenger**\
+`From his home in New Zealand, the YouTuber Danny de Hek assails what he calls a dangerous and deceptive scheme, one rant at a time.`\
+https://nytimes.com/2022/11/11/business/crypto-ponzi-scheme-hyperfund.html?searchResultPosition=7
 
-**What I Saw in Nepal’s Forests**\
-`A Times reporter spent a week in southern Nepal to understand its successful reforestation program.`\
-https://nytimes.com/interactive/2022/11/11/world/asia/nepal-reforestation.html?searchResultPosition=8
+**Climate Reparations Aren’t Charity. They’re a Down Payment on a More Stable Future.**\
+`If rich countries agree to finance recovery from climate damages, it will ensure a more stable future for everyone.`\
+https://nytimes.com/2022/11/11/opinion/environment/un-climate-change-conference-2022-reparations.html?searchResultPosition=8
 
-**Britain’s Economy Shrinks as Threat of Recession Nears**\
-`Economic output fell 0.2 percent in the third quarter as the services and production industries slowed.`\
-https://nytimes.com/2022/11/11/business/economy/uk-economy-gdp-recession.html?searchResultPosition=9
+**Bouncing Your Way to Better Health**\
+`Trampolines aren’t just for kids. This exercise tool can be a low-impact boon for your cardiovascular fitness, pelvic floor strength and sense of balance`\
+https://nytimes.com/2022/11/11/well/move/trampoline-exercise-health-benefits.html?searchResultPosition=9
 
-**Seth Meyers Is Thrilled by G.O.P.’s New Treatment of Trump**\
-`“Republicans are running away from Trump faster than Josh Hawley on Jan. 6,” Meyers joked on Thursday.`\
-https://nytimes.com/2022/11/11/arts/television/seth-meyers-gop-trump.html?searchResultPosition=10
+**Today’s U.F.C. Star Doesn’t Care if You Think His Fights Are Boring**\
+`Israel Adesanya has cleared out most of his challengers and has faced criticism for some fights lacking flashy knockouts. “It’s a high-level game we play, but not everyone who watches is high-level,” he said.`\
+https://nytimes.com/2022/11/11/sports/ufc-israel-adesanya.html?searchResultPosition=10
 
