@@ -7,7 +7,7 @@ https://nytimes.com/2022/11/11/business/china-zero-covid-markets.html?searchResu
 https://nytimes.com/2022/11/11/world/asia/china-singles-day-alibaba.html?searchResultPosition=2
 
 **KFC Apologizes for Linking Chicken Promotion to Kristallnacht**\
-`An automated push notification sent in error by KFC Germany conflated the infamous 1938 pogrom and “tender cheese with crispy chicken.”`\
+`An automated push notification sent in error by KFC Germany conflated the notorious 1938 pogrom and “tender cheese with crispy chicken.”`\
 https://nytimes.com/2022/11/11/business/kfc-germany-kristallnacht-chicken.html?searchResultPosition=3
 
 **Quotation of the Day: Strategy for Reforestation, Starting From the Ground Up**\
