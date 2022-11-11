@@ -1,40 +1,40 @@
+**Putin’s Name Is Absent as Russians Discuss Retreat in Ukraine**\
+`Big decisions in Moscow are Vladimir Putin’s to make, but the Kremlin and state media are distancing him from the setback in Kherson and downplaying its seriousness.`\
+https://nytimes.com/2022/11/11/world/europe/putin-russia-kherson.html?searchResultPosition=1
+
+**U.C.L.A.’s Football Wins Can’t Mask Its Financial Woes**\
+`The Bruins are having their best recent season on the field, yet attendance is falling rapidly. Free tickets haven’t helped, and the athletic department’s balance sheet has suffered.`\
+https://nytimes.com/2022/11/11/sports/ncaafootball/ucla-football-game-attendance.html?searchResultPosition=2
+
+**Can There Be a Rights Reckoning for Nations That Don’t Want to Do It?**\
+`In nations reckoning with atrocities, reconciliation panels and similar bodies often obscure or delay the truth. But that doesn’t mean that international justice has no effect.`\
+https://nytimes.com/2022/11/11/world/asia/interpreter-human-rights-commission.html?searchResultPosition=3
+
+**Always the Wedding Singer, Finally the Bride**\
+`Maggie Doherty attended a lot of weddings as an entertainer. So when she married Josh Zager, there was no doubt what the focus would be.`\
+https://nytimes.com/2022/11/11/style/maggie-doherty-josh-zager-wedding.html?searchResultPosition=4
+
+**A ‘Magical Connection’ That Began on the First Date**\
+`Adam Drawas said he “knew in the first 10 seconds” of meeting Alan Pablos-Perez more than two years ago that he was the one.`\
+https://nytimes.com/2022/11/11/style/adam-drawas-joseph-pablos-perez-wedding.html?searchResultPosition=5
+
+**Failing in Marriage Does Not Mean Failing at Marriage**\
+`My wife has kicked me out five times. Another time I left on my own. Why are we still together?`\
+https://nytimes.com/2022/11/11/style/modern-love-failing-while-married-does-not-mean-failing-at-marriage.html?searchResultPosition=6
+
+**After a Rocky Start, Smooth Sailing**\
+`Ricky Wheeler always knew Kaitlyn Johnson was a catch. It was just a matter of timing.`\
+https://nytimes.com/2022/11/11/style/kaitlyn-johnson-ricky-wheeler-wedding.html?searchResultPosition=7
+
+**Playing Hard to Get Online? No, He Was Just Too Busy.**\
+`Eugene Daniels and Nate Stephens matched on three dating sites, but it took a while before they finally connected.`\
+https://nytimes.com/2022/11/11/style/eugene-daniels-nate-stephens-wedding.html?searchResultPosition=8
+
 **You Be the Ump: World Series Edition**\
 `Umpires were highly accurate in the World Series, getting the calls right 96 percent of the time. In this edition of “You Be the Ump,” can you do even better than they did?`\
-https://nytimes.com/interactive/2022/sports/baseball/you-be-the-ump-world-series.html?searchResultPosition=1
+https://nytimes.com/interactive/2022/sports/baseball/you-be-the-ump-world-series.html?searchResultPosition=9
 
 **Variety: Cascades**\
 `Joe DiPietro rafts us into the rapids, heads spinning.`\
-https://nytimes.com/2022/11/10/crosswords/variety-cascades.html?searchResultPosition=2
-
-**Review: ‘Kimberly Akimbo,’ Both Great and Small, Seizes the Day**\
-`The season’s most moving new musical earns its place among the behemoths of Broadway.`\
-https://nytimes.com/2022/11/10/theater/kimberly-akimbo-review.html?searchResultPosition=3
-
-**Present Perfect Indicative**\
-`Can you spot the mini-theme in this puzzle by Brooke Husic and Erik Agard?`\
-https://nytimes.com/2022/11/10/crosswords/daily-puzzle-2022-11-11.html?searchResultPosition=4
-
-**The End of ‘Atlanta’ Changes Everything**\
-`Donald Glover’s masterpiece was a different kind of prestige TV. It never explained itself, and was all the better for it.`\
-https://nytimes.com/2022/11/10/magazine/atlanta-hulu-donald-glover.html?searchResultPosition=5
-
-**Wael Shawky Enters the Realm of Myth**\
-`The multidisciplinary artist’s work dives into history and legend to explore the fantasies and manipulations underpinning our modern world.`\
-https://nytimes.com/2022/11/10/t-magazine/wael-shawky-lisson-gallery.html?searchResultPosition=6
-
-**Arizona Election Officials Call on G.O.P. Candidates to Tone Down the Rhetoric**\
-`In a news conference, they said they wouldn’t finish counting all the ballots until next week.`\
-https://nytimes.com/2022/11/10/us/elections/maricopa-arizona-election-gop.html?searchResultPosition=7
-
-**Texas Judge Strikes Down Biden’s Student Debt Cancellation**\
-`The ruling adds to the legal obstacles the president faces in his plan to cancel up to $20,000 per borrower in federal student loan debt.`\
-https://nytimes.com/2022/11/10/business/biden-student-debt-court.html?searchResultPosition=8
-
-**Divers Discover Piece of Space Shuttle Challenger Off Florida Coast**\
-`The discovery came 36 years after the shuttle exploded over the Atlantic Ocean, killing all seven crew members on board, in one of the worst accidents of the American space program.`\
-https://nytimes.com/2022/11/10/us/challenger-nasa-bermuda-triangle-documentary.html?searchResultPosition=9
-
-**Kim Schrier Holds on to House Seat in Washington State**\
-`Republicans had eyed the district as a prime potential pickup in their drive to win back the House majority, after Dr. Schrier became the first Democrat to win it in 2018.`\
-https://nytimes.com/2022/11/10/us/politics/schrier-larkin-washington-house.html?searchResultPosition=10
+https://nytimes.com/2022/11/10/crosswords/variety-cascades.html?searchResultPosition=10
 
