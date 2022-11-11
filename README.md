@@ -1,5 +1,5 @@
 **Activists Protest at Climate Summit in Egypt**\
-`Youth climate activists from around the world marched through the COP27 venue in Sharm el-Sheikh, Egypt, and called for more action from countries like the United States to combat climate change.`\
+`Youth climate activists from around the world marched through the COP27 venue in Sharm el Sheikh, Egypt, and called for more action from countries like the United States.`\
 https://nytimes.com/video/world/africa/100000008633652/cop27-climate-activists-egypt.html?searchResultPosition=1
 
 **Biden Casts America as Climate Leader, While Activists Push Him to Do More**\
