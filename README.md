@@ -1,6 +1,6 @@
 **Britain’s Economy Shrinks as Threat of Recession Nears**\
-`Economic output fell 0.2 percent in the third quarter as the services, production and construction industries shrank.`\
-https://nytimes.com/2022/11/11/business/economy/britains-economy-shrinks-as-threat-of-recession-nears.html?searchResultPosition=1
+`Economic output fell 0.2 percent in the third quarter as the services and production industries slowed.`\
+https://nytimes.com/2022/11/11/business/economy/uk-economy-gdp-recession.html?searchResultPosition=1
 
 **Seth Meyers Is Thrilled by G.O.P.’s New Treatment of Trump**\
 `“Republicans are running away from Trump faster than Josh Hawley on Jan. 6,” Meyers joked on Thursday.`\
