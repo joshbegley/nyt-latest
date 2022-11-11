@@ -32,7 +32,7 @@ https://nytimes.com/video/world/europe/100000008633242/ukrainian-troops-enter-kh
 
 **Watch Live: Biden Speaks at COP27 Summit in Egypt**\
 `President Biden hails the new U.S. climate law while attending the United Nations climate summit.`\
-https://nytimes.com/video/world/africa/100000008631015/cop27-summit-biden-speech.html?searchResultPosition=9
+https://nytimes.com/video/embedded/world/africa/100000008631015/cop27-summit-biden-speech.html?searchResultPosition=9
 
 **Embattled Crypto Exchange FTX Files for Bankruptcy**\
 `The announcement capped a stunning week that has sent shock waves through the crypto industry.`\
