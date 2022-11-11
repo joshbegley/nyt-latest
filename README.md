@@ -3,7 +3,7 @@
 https://nytimes.com/2022/11/11/opinion/atlanta-finale.html?searchResultPosition=1
 
 **Markets Edge Higher at End of a Strong Week**\
-`Signs of China easing its pandemic restrictions aided stocks, adding to investors’ bullishness about cooling inflation in the United States.`\
+`Signs of China easing its pandemic restrictions appeared to bolster stocks, adding to investors’ bullishness about cooling inflation in the United States.`\
 https://nytimes.com/2022/11/11/business/stock-markets-global-us.html?searchResultPosition=2
 
 **A Break in the Reverie**\
