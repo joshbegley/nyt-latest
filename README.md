@@ -19,7 +19,7 @@ https://nytimes.com/2022/11/11/arts/dance/jennifer-tipton-our-days-and-night.htm
 https://nytimes.com/video/world/europe/100000008633242/ukrainian-troops-enter-kherson.html?searchResultPosition=5
 
 **Watch Live: Biden Speaks at COP27 Summit in Egypt**\
-`President Biden hails the new U.S. climate law while attending the United Nations climate summit.`\
+`President Biden is expected to hail the new U.S. climate law while attending the United Nations climate summit.`\
 https://nytimes.com/video/world/africa/100000008631015/cop27-summit-biden-speech.html?searchResultPosition=6
 
 **Embattled Crypto Exchange FTX Files for Bankruptcy**\
