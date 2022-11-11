@@ -11,7 +11,7 @@ https://nytimes.com/2022/11/10/theater/kimberly-akimbo-review.html?searchResultP
 https://nytimes.com/2022/11/10/crosswords/daily-puzzle-2022-11-11.html?searchResultPosition=3
 
 **The End of ‘Atlanta’ Changes Everything**\
-`Donald Glover’s masterpiece was a different kind of prestige TV. It never explained itself, even when it was most expected.`\
+`Donald Glover’s masterpiece was a different kind of prestige TV. It never explained itself, and was all the better for it.`\
 https://nytimes.com/2022/11/10/magazine/atlanta-hulu-donald-glover.html?searchResultPosition=4
 
 **Wael Shawky Enters the Realm of Myth**\
