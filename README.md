@@ -1,5 +1,5 @@
 **Yellen Urges Congress to Raise Debt Limit Beyond 2024 Election**\
-`Republicans might try to use the borrowing cap as leverage if they achieve a majority in the House or Senate, but the Treasury secretary cautioned against a ‘devastating economic self-inflicted blow.’`\
+`Republicans might try to use the borrowing cap as leverage if they achieve a majority in the House or Senate, but the Treasury secretary cautioned against a “devastating economic self-inflicted blow.”`\
 https://nytimes.com/2022/11/12/business/yellen-congress-debt-limit.html?searchResultPosition=1
 
 **FTX Investigating Possible Hack Hours After Bankruptcy Filing**\
