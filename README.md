@@ -7,7 +7,7 @@ https://nytimes.com/2022/11/12/business/burlington-police-stolen-bikes.html?sear
 https://nytimes.com/2022/11/12/us/politics/how-the-2022-midterms-became-a-squeaker.html?searchResultPosition=2
 
 **U.K. Doubles Down on a Tactic Disproportionately Targeting Black People**\
-`The United States helped inspired Britain’s tough-on-crime politics. Even as crime fell and warnings mounted, politicians never looked back.`\
+`The United States helped inspire Britain’s tough-on-crime politics. Even as crime fell and warnings mounted, politicians never looked back.`\
 https://nytimes.com/2022/11/12/world/europe/uk-criminal-justice.html?searchResultPosition=3
 
 **In an Era of Confrontation, Biden and Xi Seek to Set Terms**\
