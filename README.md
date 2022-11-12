@@ -34,7 +34,7 @@ https://nytimes.com/2022/11/12/style/nyc-new-design-galleries.html?searchResultP
 `In his memoir “A Heart That Works,” the comedian and actor grapples with the pain of losing a child, and how to keep living.`\
 https://nytimes.com/2022/11/12/arts/television/rob-delaney-heart-that-works.html?searchResultPosition=9
 
-**Young Voters Helped Democrats. But Experts Differ on Just How Much.**\
-`The youth vote turned out, especially in some key swing states Democrats won. But some experts say reports of a surge in young voters were overstated.`\
-https://nytimes.com/2022/11/12/us/young-voter-turnout-election-democrats.html?searchResultPosition=10
+**Your Cat Might Not Be Ignoring You When You Speak**\
+`Cats have a reputation for being aloof, but a new study has found that their relationships with their owners may be stronger than we thought.`\
+https://nytimes.com/2022/11/12/science/cat-talking-owners-voice-dog.html?searchResultPosition=10
 
