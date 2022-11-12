@@ -1,4 +1,4 @@
-**Kyrie Irving’s Journey to Stardom, Activism and Conspiracies**\
+**Kyrie Irving’s Journey to Activism and Conspiracies**\
 `Irving’s antisemitic movie post is his biggest controversy yet. But the potential fallout could affect not just his basketball career but the N.B.A. itself.`\
 https://nytimes.com/2022/11/11/sports/kyrie-irving-career.html?searchResultPosition=1
 
