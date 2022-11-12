@@ -4,7 +4,7 @@ https://nytimes.com/2022/11/12/opinion/how-i-learned-the-art-of-seduction.html?s
 
 **Republican Elites Might Be Done With Trump, but He’s Not Done With Them.**\
 `If Trump pulls any fraction of his supporters away from the Republican Party, he would play the spoiler.`\
-https://nytimes.com/2022/11/12/opinion/bouie-newsletter.html?searchResultPosition=2
+https://nytimes.com/2022/11/12/opinion/trump-election-republican.html?searchResultPosition=2
 
 **Tracking the Mail Vote in the Uncalled House Districts**\
 `Republicans lead in the race for House control, but Democrats still have hope, thanks to mail ballot trends in California. We’ll provide updates.`\
