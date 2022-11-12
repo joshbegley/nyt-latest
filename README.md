@@ -1,6 +1,6 @@
 **Tiffany Trump Weds at Mar-a-Lago**\
 `Tiffany Trump and Michael Boulos, whose wedding was almost derailed by Hurricane Nicole, treated their guests to an American-Lebanese celebration at her father’s private residence.`\
-https://nytimes.com/2022/11/12/fashion/weddings/tiffany-trump-weds-at-mar-a-lago.html?searchResultPosition=1
+https://nytimes.com/2022/11/12/fashion/weddings/tiffany-trump-wedding-mar-a-lago.html?searchResultPosition=1
 
 **Collision Courses**\
 `Samuel A. Donaldson whips up a well-seasoned Sunday puzzle.`\
