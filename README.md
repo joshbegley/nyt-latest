@@ -1,5 +1,5 @@
-**Sisolak Concedes to Lombardo in Nevada Governor’s Race**\
-`Gov. Steve Sisolak, a Democrat, conceded to Joseph Lombardo, the Clark County sheriff who ran as a law-and-order Republican.`\
+**Lombardo Ousts Sisolak in Nevada Governor’s Race**\
+`Joseph Lombardo, the Clark County sheriff, ran as a law-and-order Republican who would focus on reducing regulations.`\
 https://nytimes.com/2022/11/11/us/politics/nevada-governor-sisolak-lombardo.html?searchResultPosition=1
 
 **After Hurricane Nicole, Condo Owners Grapple With Living Beachside**\
