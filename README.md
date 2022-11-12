@@ -2,7 +2,7 @@
 `If Trump pulls any fraction of his supporters away from the Republican Party, he would play the spoiler.`\
 https://nytimes.com/2022/11/12/opinion/bouie-newsletter.html?searchResultPosition=1
 
-**Tracking the Mail Vote in Every House District Still in Play**\
+**Tracking the Mail Vote in the House Districts Still in Play**\
 `Republicans lead in the race for House control, but Democrats still have hope, thanks to mail ballot trends in California. We’ll provide updates.`\
 https://nytimes.com/2022/11/12/upshot/tracking-house-results-midterms.html?searchResultPosition=2
 
