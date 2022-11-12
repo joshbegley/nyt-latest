@@ -1,4 +1,4 @@
-**Quotation of the Day: FRACTURED G.O.P. SEEKS DIRECTION**\
+**Quotation of the Day: Fractured G.O.P. Seeks Direction**\
 `Quotation of the Day for Saturday, Nov. 12, 2022.`\
 https://nytimes.com/2022/11/12/todayspaper/quotation-of-the-day-fractured-gop-seeks-direction.html?searchResultPosition=1
 
