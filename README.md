@@ -1,40 +1,40 @@
-**Winter Will Be a Major Factor in the Ukraine War, Officials Say**\
-`Both sides are expected to pause operations. But heavy snows and freezing temperatures could make it difficult for the poorly equipped Russian army to regroup.`\
-https://nytimes.com/2022/11/12/us/politics/winter-ukraine-russia-war.html?searchResultPosition=1
+**The Bike Thieves of Burlington, Vermont**\
+`A hunt for stolen goods has put citizens and business owners in the center of a debate about policing and a growing, sometimes violent, problem with crime.`\
+https://nytimes.com/2022/11/12/business/burlington-police-stolen-bikes.html?searchResultPosition=1
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/11/12/crosswords/spelling-bee-forum.html?searchResultPosition=2
+**How the 2022 Midterms Became a Squeaker**\
+`Interviews with more than 70 current and former officials show the outside forces — and miscalculations and infighting — that led to an improbable, still-undecided election.`\
+https://nytimes.com/2022/11/12/us/politics/how-the-2022-midterms-became-a-squeaker.html?searchResultPosition=2
 
-**Kittens? Sex Toys? Pushing the Limits of Flexible Spending Accounts.**\
-`The deadline for spending the money in the health accounts is approaching, and people are stretching the definition of eligible expenses.`\
-https://nytimes.com/2022/11/12/your-money/health-flexible-spending-account-uses.html?searchResultPosition=3
+**U.K. Doubles Down on a Tactic Disproportionately Targeting Black People**\
+`The United States helped inspired Britain’s tough-on-crime politics. Even as crime fell and warnings mounted, politicians never looked back.`\
+https://nytimes.com/2022/11/12/world/europe/uk-criminal-justice.html?searchResultPosition=3
 
-**Quotation of the Day: Fractured G.O.P. Seeks Direction**\
-`Quotation of the Day for Saturday, Nov. 12, 2022.`\
-https://nytimes.com/2022/11/12/todayspaper/quotation-of-the-day-fractured-gop-seeks-direction.html?searchResultPosition=4
+**In an Era of Confrontation, Biden and Xi Seek to Set Terms**\
+`Their first in-person presidential meeting, coming after both warned of deepening military, economic and diplomatic rivalry, will show how they address a range of U.S.-China tensions.`\
+https://nytimes.com/2022/11/12/world/asia/china-us-xi-biden-meeting.html?searchResultPosition=4
 
-**Corrections: Nov. 12, 2022**\
-`Corrections that appeared in print on Saturday, Nov. 12, 2022.`\
-https://nytimes.com/2022/11/12/pageoneplus/corrections-nov-12-2022.html?searchResultPosition=5
+**‘See, Touch…Smell’: The Next Generation of Design Gallerists Invites You Inside**\
+`New York’s new guard moves beyond social media, opening brick and mortar spaces to make design within reach.`\
+https://nytimes.com/2022/11/12/style/nyc-new-design-galleries.html?searchResultPosition=5
 
-**Flight Is Diverted When Passenger Is Seen With Box Cutter, Airline Says**\
-`A Cincinnati-to-Tampa flight landed in Atlanta, where a man who had threatened to stab people on the plane was taken into custody, an airport spokesman said.`\
-https://nytimes.com/2022/11/12/us/box-cutter-airline-passenger-tampa-cincinnati.html?searchResultPosition=6
+**Rob Delaney Wants You to Know How He’s Feeling (It May Ruin Your Day)**\
+`In his memoir “A Heart That Works,” the comedian and actor grapples with the pain of losing a child, and how to keep living.`\
+https://nytimes.com/2022/11/12/arts/television/rob-delaney-heart-that-works.html?searchResultPosition=6
 
-**Ukraine Signals It Will Stay on the Offensive, Despite Talk of a Lull**\
-`Many analysts and diplomats have suggested there could be a pause in major combat, and even peace talks, over the winter, but after pushing the Russians out of Kherson, Ukraine has no desire to stop.`\
-https://nytimes.com/2022/11/12/world/europe/ukraine-war-strategy-russia.html?searchResultPosition=7
+**Young Voters Helped Democrats. But Experts Differ on Just How Much.**\
+`The youth vote turned out, especially in some key swing states Democrats won. But some experts say reports of a surge in young voters were overstated.`\
+https://nytimes.com/2022/11/12/us/young-voter-turnout-election-democrats.html?searchResultPosition=7
 
-**Fontes Defeats Finchem, Vocal Election Denier, for Arizona Secretary of State**\
-`Adrian Fontes, a Democrat, defeated Mark Finchem, who had begun casting unfounded doubts on this year’s elections as it appeared that he might lose.`\
-https://nytimes.com/2022/11/11/us/politics/arizona-secretary-of-state-adrian-fontes-finchem.html?searchResultPosition=8
+**Internal Documents Show How Close the F.B.I. Came to Deploying Spyware**\
+`Christopher Wray, the F.B.I.’s director, told Congress last December that the bureau purchased the phone hacking tool Pegasus for research purposes.`\
+https://nytimes.com/2022/11/12/us/politics/fbi-pegasus-spyware-phones-nso.html?searchResultPosition=8
 
-**Mark Kelly Wins Arizona Senate Race, Putting Democrats a Seat From Control**\
-`Mr. Kelly, who ran as a bipartisan legislator devoted to the needs of Arizona, defeated Blake Masters, a Republican newcomer whose ideological fervor failed to win over enough independent voters.`\
-https://nytimes.com/2022/11/11/us/politics/arizona-senator-mark-kelly-blake-masters.html?searchResultPosition=9
+**Your Cat Might Not Be Ignoring You When You Speak**\
+`Cats have a reputation for being aloof, but a new study has found that their relationships with their owners may be stronger than we thought.`\
+https://nytimes.com/2022/11/12/science/cat-talking-owners-voice-dog.html?searchResultPosition=9
 
-**Refuse to Squeal**\
-`Billy Bratton presents a challenge for the supple and the stoic.`\
-https://nytimes.com/2022/11/11/crosswords/daily-puzzle-2022-11-12.html?searchResultPosition=10
+**A Writer’s Post and its Consequences Divide Latin American Literary Circles**\
+`Carolina Sanín published a video on feminism and transgender rights she knew could generate heated debate. The repercussions were more far-reaching and divisive than anticipated.`\
+https://nytimes.com/2022/11/12/books/carolina-sanin-almadia-trans-feminism.html?searchResultPosition=10
 
