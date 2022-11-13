@@ -7,7 +7,7 @@ https://nytimes.com/2022/11/12/opinion/elizabeth-warren-democrat-senate-midterm.
 https://nytimes.com/2022/11/12/us/elections/senate-control.html?searchResultPosition=2
 
 **Cortez Masto Defends Nevada Seat, Securing Democrats’ Hold on the Senate**\
-`The victory by Senator Catherine Cortez Masto, Democrats’ most endangered incumbent, denies Republicans the chance to capture power of the chamber.`\
+`The victory by Senator Catherine Cortez Masto, Democrats’ most endangered incumbent, denies Republicans the chance to capture power in the chamber.`\
 https://nytimes.com/2022/11/12/us/politics/cortez-masto-laxalt-nevada-senate.html?searchResultPosition=3
 
 **Perez, a Democrat, Wins in Washington, Picking Up a Competitive House Seat**\
