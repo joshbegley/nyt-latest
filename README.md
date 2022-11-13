@@ -1,4 +1,4 @@
-**Dustin Poirier turned around a wild fight with a choke to best Michael Chandler.**\
+**Dustin Poirier Chokes Out Michael Chandler at U.F.C. 281 in Wild Bout**\
 `The fight carries big implications in the U.F.C.’s loaded 155-pound division.`\
 https://nytimes.com/2022/11/12/sports/dustin-poirier-michael-chandler-ufc.html?searchResultPosition=1
 
