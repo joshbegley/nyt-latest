@@ -1,6 +1,6 @@
 **In an ‘Unreal’ Ending, Vikings Come Back Against the Bills**\
 `With help from a one-handed, acrobatic catch from Justin Jefferson and Josh Allen’s late-game miscues, the Vikings came back to beat the Bills in overtime.`\
-https://nytimes.com/2022/11/13/sports/in-an-unreal-ending-vikings-come-back-against-the-bills-in-overtime.html?searchResultPosition=1
+https://nytimes.com/2022/11/13/sports/vikings-bills-overtime.html?searchResultPosition=1
 
 **An Emboldened Biden Now Faces a Tough Choice About His Own Future**\
 `The president feels buoyant after the better-than-expected midterms. But as he nears his 80th birthday, he confronts a decision on whether to run in 2024 that has some Democrats uncomfortable.`\
