@@ -30,7 +30,7 @@ https://nytimes.com/2022/11/13/nyregion/china-iran-private-detectives.html?searc
 `Benjamin Bernheim’s arrival at the house was put off by the pandemic. Now singing in Verdi’s “Rigoletto,” he’s a natural fit there.`\
 https://nytimes.com/2022/11/13/arts/music/benjamin-bernheim-tenor.html?searchResultPosition=8
 
-**Samuel Folsom, Who Fought the Japanese Above Guadalcanal, Dies at 102**\
+**Samuel Folsom, 102, Who Fought the Japanese Above Guadalcanal, Dies**\
 `He went to war at 22 with limited flying experience but dodged Zeros, knocked out bombers and won the Distinguished Flying Cross and a Purple Heart.`\
 https://nytimes.com/2022/11/13/us/samuel-folsom-dead.html?searchResultPosition=9
 
