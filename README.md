@@ -26,13 +26,13 @@ https://nytimes.com/2022/11/13/world/asia/indonesia-joko-widodo-g20.html?searchR
 `Giving a friend some free rides, falling back in time and more reader tales of New York City in this week’s Metropolitan Diary.`\
 https://nytimes.com/2022/11/13/nyregion/metropolitan-diary.html?searchResultPosition=7
 
+**Electric Vehicles Start to Enter the Car-Buying Mainstream**\
+`While sales are still skewed toward affluent buyers, more people are choosing electric vehicles to save money.`\
+https://nytimes.com/2022/11/13/business/electric-vehicles-buyers-mainstream.html?searchResultPosition=8
+
 **Democrats Are Blowing It With Silicon Valley**\
 `The tech industry, long considered a bastion of progressivism and social liberalism, is moving to the right.`\
-https://nytimes.com/2022/11/13/opinion/democrats-are-blowing-it-with-silicon-valley.html?searchResultPosition=8
-
-**Electric Vehicles Start to Enter the Car Buying Mainstream**\
-`While sales are still skewed toward affluent buyers, more people are choosing electric vehicles to save money.`\
-https://nytimes.com/2022/11/13/business/electric-vehicles-buyers-mainstream.html?searchResultPosition=9
+https://nytimes.com/2022/11/13/opinion/democrats-are-blowing-it-with-silicon-valley.html?searchResultPosition=9
 
 **Yet Another Serving From the Royals Banquet**\
 `Rushed into print, Andrew Morton’s “The Queen: Her Life” is a thorough biography without much new to say.`\
