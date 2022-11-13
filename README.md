@@ -1,5 +1,5 @@
 **Voters Reject Election Deniers Running to Take Over Elections**\
-`With Jim Marchant’s defeat by Cisco Aguilar in Nevada’s secretary of state race, all but one of the “America First” slate of candidates who espoused conspiracy theories about the 2020 election, were defeated.`\
+`With Jim Marchant’s defeat by Cisco Aguilar in Nevada’s secretary of state race, all but one of the “America First” slate of candidates who espoused conspiracy theories about the 2020 election were defeated.`\
 https://nytimes.com/2022/11/12/us/politics/jim-marchant-nevada.html?searchResultPosition=1
 
 **Embattled Top Border Official Resigns Under Pressure**\
