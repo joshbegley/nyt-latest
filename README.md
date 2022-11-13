@@ -2,7 +2,7 @@
 `The Vikings proved their mettle once again, Tom Brady finally has a full complement of receivers and is making use of them, and Justin Fields continues to be dangerous as a runner.`\
 https://nytimes.com/2022/11/13/sports/football/nfl-week-10-scores.html?searchResultPosition=1
 
-**With Majority Uncertain, Congress Opens an Uncertain Post-Election Session**\
+**With Outcome Still in Doubt, Congress Opens an Uncertain Post-Election Session**\
 `A stronger-than-expected performance by Democrats that preserved their control of the Senate and left the House up for grabs has reshuffled the congressional agenda for the rest of the year.`\
 https://nytimes.com/2022/11/13/us/politics/congress-post-election.html?searchResultPosition=2
 
