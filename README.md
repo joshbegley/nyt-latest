@@ -1,4 +1,4 @@
-**In an ‘Unreal’ Ending, Vikings Come Back Against the Bills in Overtime**\
+**In an ‘Unreal’ Ending, Vikings Come Back Against the Bills**\
 `With help from a one-handed, acrobatic catch from Justin Jefferson and Josh Allen’s late-game miscues, the Vikings came back to beat the Bills in overtime.`\
 https://nytimes.com/2022/11/13/sports/in-an-unreal-ending-vikings-come-back-against-the-bills-in-overtime.html?searchResultPosition=1
 
@@ -19,7 +19,7 @@ https://nytimes.com/2022/11/13/world/europe/russia-kherson-ukraine.html?searchRe
 https://nytimes.com/2022/11/13/us/politics/lori-chavez-deremer-oregon-house-flip.html?searchResultPosition=5
 
 **What We Learned From Week 10 in the N.F.L.**\
-`The Vikings proved their mettle once again, Tom Brady finally has a full complement of receivers and is making use of them, and Justin Fields continues to be dangerous as a runner.`\
+`The Vikings proved their mettle once again, Tom Brady can finally make use of a full complement of receivers, and Justin Fields continues to be dangerous as a runner.`\
 https://nytimes.com/2022/11/13/sports/football/nfl-week-10-scores.html?searchResultPosition=6
 
 **With Outcome Still in Doubt, Congress Opens an Uncertain Post-Election Session**\
