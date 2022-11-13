@@ -8,7 +8,7 @@ https://nytimes.com/2022/11/13/sports/vikings-bills-overtime.html?searchResultPo
 
 **An Emboldened Biden Now Faces a Tough Choice About His Own Future**\
 `The president feels buoyant after the better-than-expected midterms. But as he nears his 80th birthday, he confronts a decision on whether to run in 2024 that has some Democrats uncomfortable.`\
-https://nytimes.com/2022/11/13/us/politics/biden-2024.html?searchResultPosition=3
+https://nytimes.com/2022/11/13/us/politics/biden-2024-election.html?searchResultPosition=3
 
 **You’d Better Believe It!**\
 `Taylor Johnson makes his New York Times Crossword debut.`\
