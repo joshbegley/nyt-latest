@@ -30,11 +30,11 @@ https://nytimes.com/2022/11/13/podcasts/the-daily/rural-america-homeless-student
 `Humanity faces a complex knot of seemingly distinct but entangled crises that are causing damage greater than the sum of their individual harms.`\
 https://nytimes.com/2022/11/13/opinion/coronavirus-ukraine-climate-inflation.html?searchResultPosition=8
 
+**Biden Is Wasting Precious Time Fighting for America’s ‘Soul’**\
+`Demands for unity actually tear us apart. `\
+https://nytimes.com/2022/11/13/opinion/biden-midterms-unity.html?searchResultPosition=9
+
 **The Cost of Going Cashless**\
 `What’s good for credit-card companies isn’t always good for customers.`\
-https://nytimes.com/2022/11/13/opinion/cashless-pay-problem.html?searchResultPosition=9
-
-**Biden Can Still Get Things Done. Achieving National Unity Isn’t One of Them.**\
-`Demands for unity actually tear us apart. `\
-https://nytimes.com/2022/11/13/opinion/biden-midterms-unity.html?searchResultPosition=10
+https://nytimes.com/2022/11/13/opinion/cashless-pay-problem.html?searchResultPosition=10
 
