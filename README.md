@@ -32,7 +32,7 @@ https://nytimes.com/2022/11/13/us/politics/senate-democrats-republicans.html?sea
 
 **Republicans Seek Distance From Trump, and Other News From the Sunday Shows**\
 `“I’ve been saying since 2020 that we have to get back to a party that appeals to more people,” said Larry Hogan, the Republican governor of Maryland and a possible 2024 candidate.`\
-https://nytimes.com/2022/11/13/us/politics/republicans-trump-sunday-news-shows.html?searchResultPosition=9
+https://nytimes.com/2022/11/13/us/politics/trump-gop-elections.html?searchResultPosition=9
 
 **‘Black Panther: Wakanda Forever’ Ends Box Office Drought**\
 `Turnout was especially strong at large-format IMAX theaters, where domestic ticket sales of $14.2 million set a record for a November opening.`\
