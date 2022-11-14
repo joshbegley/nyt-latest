@@ -18,23 +18,23 @@ https://nytimes.com/video/world/europe/100000008636243/zelensky-visits-newly-fre
 `Britain has promised France tens of millions of euros to step up coastal patrols, a sign of thawing relations.`\
 https://nytimes.com/2022/11/14/world/europe/uk-france-small-boat-deal.html?searchResultPosition=5
 
-**Extreme candidates and positions came back to bite candidates in the midterms.**\
-`By Jonathan Weisman and Katie Glueck`\
-https://nytimes.com/2022/11/14/us/politics/extreme-candidates-and-positions-came-back-to-bite-candidates-in-the-midterms.html?searchResultPosition=6
-
 **Watch Live: Biden Speaks After Meeting With Xi**\
 `President Biden and President Xi Jinping of China met before the Group of 20 summit in Indonesia. It was their first face-to-face meeting as top leaders.`\
-https://nytimes.com/video/us/politics/100000008635676/biden-xi-meeting-live-video.html?searchResultPosition=7
+https://nytimes.com/video/us/politics/100000008635676/biden-xi-meeting-live-video.html?searchResultPosition=6
 
 **Who Bears Blame for FTX’s Failure?**\
 `With the collapse of the giant cryptocurrency exchange, investors are asking whether regulators or the venture capitalists who funded FTX, are at fault.`\
-https://nytimes.com/2022/11/14/business/dealbook/ftx-bankruptcy-regulators-investors-cz-sbf.html?searchResultPosition=8
+https://nytimes.com/2022/11/14/business/dealbook/ftx-bankruptcy-regulators-investors-cz-sbf.html?searchResultPosition=7
 
 **Biden and Xi Meet Amid Heightened U.S.-China Relations**\
 `This was the first face-to-face meeting between President Biden and his Chinese counterpart, Xi Jinping, as top leaders.`\
-https://nytimes.com/video/world/asia/100000008636240/biden-xi-china-g20.html?searchResultPosition=9
+https://nytimes.com/video/world/asia/100000008636240/biden-xi-china-g20.html?searchResultPosition=8
 
 **New Covid Booster Strengthens Immune Response Against Subvariants, Moderna Says**\
 `A study suggested that the updated booster shot produced higher levels of neutralizing antibodies against BA.4 and BA.5 than the first booster, the company said.`\
-https://nytimes.com/2022/11/14/us/politics/moderna-booster.html?searchResultPosition=10
+https://nytimes.com/2022/11/14/us/politics/moderna-booster.html?searchResultPosition=9
+
+**Xaviera Simmons Is Embarrassed for America**\
+`For the interdisciplinary artist, watching the cycle of responses to white supremacist violence — outrage turning into apathy — is an anguish as familiar as heartbreak.`\
+https://nytimes.com/2022/11/14/t-magazine/xaviera-simmons-queens-museum.html?searchResultPosition=10
 
