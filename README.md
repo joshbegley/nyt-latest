@@ -22,19 +22,19 @@ https://nytimes.com/2022/11/14/world/europe/russia-lavrov-hospitalized-g20-bali.
 `Russia has suffered serious losses recently.`\
 https://nytimes.com/2022/11/14/briefing/ukraine-kherson-zelensky.html?searchResultPosition=6
 
+**Here’s a look at the midterms races that remain uncalled.**\
+`Democrats sealed control of the Senate, but the House is still up for grabs.`\
+https://nytimes.com/2022/11/14/us/politics/election-uncalled-races.html?searchResultPosition=7
+
 **The Nation’s ‘Report Card’ on Remote Learning**\
 `America’s national test scores have dropped sharply. What do students need now?`\
-https://nytimes.com/2022/11/14/podcasts/the-daily/pandemic-remote-learning-test-results.html?searchResultPosition=7
+https://nytimes.com/2022/11/14/podcasts/the-daily/pandemic-remote-learning-test-results.html?searchResultPosition=8
 
 **In Japan, Artisans Create ‘Cut Glass From Edo’**\
 `The traditional technique called edo-kiriko is primarily used for drinking glasses, but one company has used it to make watch dials, too.`\
-https://nytimes.com/2022/11/14/fashion/craftsmanship-glass-cutting-japan.html?searchResultPosition=8
+https://nytimes.com/2022/11/14/fashion/craftsmanship-glass-cutting-japan.html?searchResultPosition=9
 
 **His Surfboards Are ‘a Magic Carpet Built Just for You’**\
 `Michael Takayama of Michael Surfboards specializes in shaping longboards.`\
-https://nytimes.com/2022/11/14/fashion/michael-takayama-surfboards.html?searchResultPosition=9
-
-**Kari Lake’s path to victory narrows in the Arizona governor’s race.**\
-`Katie Hobbs, a Democrat, maintained a slight lead on Ms. Lake after new results were released from Maricopa County on Sunday.`\
-https://nytimes.com/2022/11/14/us/politics/arizona-governor-kari-lake-katie-hobbs.html?searchResultPosition=10
+https://nytimes.com/2022/11/14/fashion/michael-takayama-surfboards.html?searchResultPosition=10
 
