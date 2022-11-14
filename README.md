@@ -1,40 +1,40 @@
+**While Other Insects Played, This Species Evolved the Blade**\
+`Scientists are studying a fruit fly’s sharp organ that helps it lay eggs and eat, hoping to unlock the secrets of herbivorous insects.`\
+https://nytimes.com/2022/11/14/science/fruit-fly-vaginal-teeth.html?searchResultPosition=1
+
+**Winning Signs From the New York City Marathon**\
+`An artist takes in the sights and signs at the city’s annual race.`\
+https://nytimes.com/2022/11/14/arts/new-york-city-marathon.html?searchResultPosition=2
+
+**How to Make Thanksgiving Vegetarian**\
+`By Melissa Clark`\
+https://nytimes.com/2022/11/14/dining/how-to-make-thanksgiving-vegetarian.html?searchResultPosition=3
+
 **Amazon Is Said to Plan to Lay Off Thousands of Employees**\
 `The job cuts of approximately 10,000, which would start as soon as this week, would focus on the company’s devices organization, retail division and human resources.`\
-https://nytimes.com/2022/11/14/technology/amazon-layoffs.html?searchResultPosition=1
+https://nytimes.com/2022/11/14/technology/amazon-layoffs.html?searchResultPosition=4
 
 **Watch Live: University of Virginia Shooting Update**\
 `Authorities hold a news conference after three people were fatally shot at the University of Virginia. The gunman is still at large.`\
-https://nytimes.com/video/us/100000008636470/uva-shooting-press-conference.html?searchResultPosition=2
+https://nytimes.com/video/us/100000008636470/uva-shooting-press-conference.html?searchResultPosition=5
 
 **Marine Drill Instructor Charged in Recruit’s Death**\
 `Pfc. Dalton Beals, 19, died of hyperthermia, or abnormally high body temperature, during the intensive training exercise at Parris Island, S.C., according to an investigative report by the Marines.`\
-https://nytimes.com/2022/11/14/us/marine-drill-instructor-charged-recruit-death.html?searchResultPosition=3
+https://nytimes.com/2022/11/14/us/marine-drill-instructor-charged-recruit-death.html?searchResultPosition=6
 
 **‘Shucked’ Is Corny. It’s Country. And It’s Coming to Broadway.**\
 `The musical, with songs by Brandy Clark and Shane McAnally, just finished a pre-Broadway run in Utah, and will begin New York performances in March.`\
-https://nytimes.com/2022/11/14/theater/shucked-broadway.html?searchResultPosition=4
+https://nytimes.com/2022/11/14/theater/shucked-broadway.html?searchResultPosition=7
 
 **Biden Says Meeting with Xi was ‘Open and Candid’**\
 `President Biden and his Chinese counterpart, Xi Jinping, met face-to-face for a nearly three-hour meeting amid rising tensions between the U.S. and China.`\
-https://nytimes.com/video/us/politics/100000008636248/biden-xi-china-us-meeting-indonesia.html?searchResultPosition=5
+https://nytimes.com/video/us/politics/100000008636248/biden-xi-china-us-meeting-indonesia.html?searchResultPosition=8
 
 **Republicans Appear on Track to Take the House**\
 `Democrats are falling short of their targets in key races in California and Arizona.`\
-https://nytimes.com/2022/11/14/upshot/tracking-election-house-results.html?searchResultPosition=6
+https://nytimes.com/2022/11/14/upshot/tracking-election-house-results.html?searchResultPosition=9
 
 **Lithium-Ion Batteries in E-Bikes and Other Devices Pose Fire Risks**\
 `The batteries, also found in phones, laptops, toothbrushes and other items, have caused about 200 fires and six deaths in New York City this year, fire officials say. Here’s what to know about safety.`\
-https://nytimes.com/2022/11/14/us/lithium-ion-ebike-battery-fires.html?searchResultPosition=7
-
-**Art Tells New Jersey Stories at Newark’s New Terminal A**\
-`Permanent public artworks by Layqa Nuna Yawar and Karyn Olivier offer airport travelers different views of the Garden State.`\
-https://nytimes.com/2022/11/14/arts/design/art-newark-airport.html?searchResultPosition=8
-
-**At the summit, Biden’s advisers provide clues about U.S. strategy on China.**\
-`By David E. Sanger`\
-https://nytimes.com/2022/11/14/world/asia/at-the-summit-bidens-advisers-provide-clues-about-us-strategy-on-china.html?searchResultPosition=9
-
-**U.S. and China Restart Climate Talks**\
-`Discussions about combating climate change between the world’s two largest economies — and two biggest emitters of greenhouse gases — had been frozen since August.`\
-https://nytimes.com/2022/11/14/business/china-us-climate-change.html?searchResultPosition=10
+https://nytimes.com/2022/11/14/us/lithium-ion-ebike-battery-fires.html?searchResultPosition=10
 
