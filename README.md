@@ -1,6 +1,6 @@
 **U.S. and China Restart Climate Talks**\
 `Discussions about combating climate change between the world’s two largest economies — and two biggest emitters of greenhouse gases — had been frozen since August.`\
-https://nytimes.com/2022/11/14/business/us-and-china-restart-climate-talks.html?searchResultPosition=1
+https://nytimes.com/2022/11/14/business/china-us-climate-change.html?searchResultPosition=1
 
 **La Brea Tar Pits Begin an Unusual Rebrand**\
 `The Los Angeles institution is hoping to connect today’s climate disasters with the ice age fossils discovered on its grounds.`\
