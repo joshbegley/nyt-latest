@@ -7,7 +7,7 @@ https://nytimes.com/2022/11/14/opinion/letters/midterm-elections-nevada.html?sea
 https://nytimes.com/2022/11/14/sports/basketball/nba-joel-embiid-sixers.html?searchResultPosition=2
 
 **Brazil, Indonesia and Congo Sign Rainforest Protection Pact**\
-`The three countries, home to more than half of the world’s rainforests, have agreed to negotiate a “funding mechanism” for conservation.`\
+`The three countries, home to more than half of the world’s tropical rainforests, have agreed to negotiate a “funding mechanism” for conservation.`\
 https://nytimes.com/2022/11/14/climate/brazil-indonesia-democratic-congo-rainforest-protection-pact.html?searchResultPosition=3
 
 **Stymied by Protests, Iran Unleashes Its Wrath on Its Youth**\
