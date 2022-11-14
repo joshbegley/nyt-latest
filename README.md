@@ -35,6 +35,6 @@ https://nytimes.com/2022/11/13/world/europe/russia-kherson-ukraine.html?searchRe
 https://nytimes.com/2022/11/13/us/politics/lori-chavez-deremer-oregon-house-flip.html?searchResultPosition=9
 
 **What We Learned From Week 10 in the N.F.L.**\
-`The Vikings proved their mettle once again, Aaron Rodgers struck a partnership with the rookie Christian Watson, and the Colts tinkered their way to a win.`\
+`The Vikings proved their mettle once again, Aaron Rodgers struck a partnership with the rookie Christian Watson, and the Colts tinkered their way to an unlikely win.`\
 https://nytimes.com/2022/11/13/sports/football/nfl-week-10-scores.html?searchResultPosition=10
 
