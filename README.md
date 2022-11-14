@@ -15,7 +15,7 @@ https://nytimes.com/2022/11/14/technology/google-privacy-settlement.html?searchR
 https://nytimes.com/2022/11/14/us/university-of-california-strike-pay.html?searchResultPosition=4
 
 **‘Dogfooding’**\
-`/gō fôrwərd/`\
+`/dôgfo͝odĭng/`\
 https://nytimes.com/2022/11/14/business/dogfooding.html?searchResultPosition=5
 
 **While Other Insects Played, This Species Evolved the Blade**\
