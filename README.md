@@ -1,5 +1,5 @@
 **U.S. and China Restart Climate Talks**\
-`Talks about combating climate change between the world’s two largest economies — and two biggest emitters of greenhouse gases — had been frozen since August.`\
+`Discussions about combating climate change between the world’s two largest economies — and two biggest emitters of greenhouse gases — had been frozen since August.`\
 https://nytimes.com/2022/11/14/business/us-and-china-restart-climate-talks.html?searchResultPosition=1
 
 **La Brea Tar Pits Begin an Unusual Rebrand**\
@@ -14,8 +14,8 @@ https://nytimes.com/2022/11/14/crosswords/wordle-wrap-up-nov-7-to-13.html?search
 `A note in the handwriting of Alaa Abd El Fattah, who has been on hunger strike for about seven months, read: “I began drinking water, my vitals are good.”`\
 https://nytimes.com/2022/11/14/world/africa/alaa-abd-el-fattah-egypt-alive.html?searchResultPosition=4
 
-**The C.I.A. director met with his Russian counterpart about Ukraine.**\
-`By Jim Tankersley`\
+**The C.I.A. director met with his Russian counterpart to warn against the use of nuclear weapons in Ukraine.**\
+`The National Security Council said William J. Burns’s meeting was not in any way to negotiate or to discuss any settlement of the war in Ukraine.`\
 https://nytimes.com/2022/11/14/world/europe/cia-burns-ukraine-russia-nuclear.html?searchResultPosition=5
 
 **Jeff Bezos Says He Will Give Away Most of His Fortune**\
