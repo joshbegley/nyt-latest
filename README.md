@@ -7,7 +7,7 @@ https://nytimes.com/2022/11/14/business/jeff-bezos-charity.html?searchResultPosi
 https://nytimes.com/2022/11/14/sports/soccer/world-cup-beer-fifa.html?searchResultPosition=2
 
 **Turkey Accuses U.S. of Complicity in Istanbul Attack That Killed 6**\
-`Turkish police arrested a female suspect and accused her of entering from Syria to carry out the bombing on the orders of Kurdish militants. The U.S. is allied with a Kurdish-led militia in Syria.`\
+`Turkish police arrested a female suspect and accused her of entering from Syria to carry out the bombing on Kurdish orders. The U.S. is allied with a Kurdish-led militia in Syria.`\
 https://nytimes.com/2022/11/14/world/middleeast/turkey-us-istanbul-attack.html?searchResultPosition=3
 
 **Zelensky Visits Newly Freed Kherson**\
