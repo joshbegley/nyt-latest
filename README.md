@@ -27,8 +27,8 @@ https://nytimes.com/2022/11/14/dining/how-to-make-thanksgiving-vegetarian.html?s
 https://nytimes.com/2022/11/14/technology/amazon-layoffs.html?searchResultPosition=7
 
 **Watch Live: University of Virginia Shooting Update**\
-`Authorities hold a news conference after three people were fatally shot at the University of Virginia. The gunman is still at large.`\
-https://nytimes.com/video/us/100000008636470/uva-shooting-press-conference.html?searchResultPosition=8
+`Authorities hold a news conference after three people were fatally shot at the University of Virginia.`\
+https://nytimes.com/video/embedded/us/100000008636470/uva-shooting-press-conference.html?searchResultPosition=8
 
 **Marine Drill Instructor Charged in Recruit’s Death**\
 `Pfc. Dalton Beals, 19, died of hyperthermia, or abnormally high body temperature, during the intensive training exercise at Parris Island, S.C., according to an investigative report by the Marines.`\
