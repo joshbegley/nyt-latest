@@ -30,11 +30,11 @@ https://nytimes.com/video/world/europe/100000008636243/zelensky-visits-newly-fre
 `Britain has promised France tens of millions of euros to step up coastal patrols, a sign of thawing relations.`\
 https://nytimes.com/2022/11/14/world/europe/uk-france-small-boat-deal.html?searchResultPosition=8
 
+**‘People are stuck in the libraries’: A student describes a campus sheltering in place.**\
+`Students on the University of Virginia campus had been urged to stay inside all night.`\
+https://nytimes.com/2022/11/14/us/uva-shooting-students-shelter-in-place.html?searchResultPosition=9
+
 **Watch Live: Biden Speaks After Meeting With Xi**\
 `President Biden and President Xi Jinping of China met before the Group of 20 summit in Indonesia. It was their first face-to-face meeting as top leaders.`\
-https://nytimes.com/video/embedded/us/politics/100000008635676/biden-xi-meeting-live-video.html?searchResultPosition=9
-
-**Who Bears Blame for FTX’s Failure?**\
-`With the collapse of the giant cryptocurrency exchange, investors are asking whether regulators or the venture capitalists who funded FTX, are at fault.`\
-https://nytimes.com/2022/11/14/business/dealbook/ftx-bankruptcy-regulators-investors-cz-sbf.html?searchResultPosition=10
+https://nytimes.com/video/embedded/us/politics/100000008635676/biden-xi-meeting-live-video.html?searchResultPosition=10
 
