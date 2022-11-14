@@ -11,7 +11,7 @@ https://nytimes.com/2022/11/14/nyregion/students-and-teachers-how-is-the-school-
 https://nytimes.com/2022/11/14/us/politics/fbi-informants-proud-boys-jan-6.html?searchResultPosition=3
 
 **German Government Nationalizes Gas Unit Seized From Gazprom**\
-`The German government will nationalize the former Gazprom Germania, a subsidiary of the Russian state-owned gas monopoly that is deemed essential to Germany’s energy security.`\
+`The former Gazprom Germania, a subsidiary of the Russian state-owned gas monopoly, is deemed essential to Germany’s energy security.`\
 https://nytimes.com/2022/11/14/world/europe/germania-gazprom-nationalized.html?searchResultPosition=4
 
 **Historic Deauville Hotel Demolished in Miami Beach**\
