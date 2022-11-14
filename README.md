@@ -34,7 +34,7 @@ https://nytimes.com/2022/11/14/business/transportation-department-airline-fines.
 `Ms. Barnes, senior vice president for news and editorial director at NPR, has also held leadership roles at the Houston Chronicle and Minneapolis Star Tribune.`\
 https://nytimes.com/2022/11/14/business/media/nancy-barnes-boston-globe.html?searchResultPosition=9
 
-**U.S. Investigates Killing of Al Jazeera Journalist in West Bank**\
+**U.S. Investigating Killing of Al Jazeera Journalist in West Bank, Israel Says**\
 `The Justice Department inquiry is a shift by the Biden administration, which had said that Shireen Abu Akleh was probably killed accidentally, by gunfire from the position of Israeli soldiers.`\
 https://nytimes.com/2022/11/14/world/middleeast/shireen-abu-akleh-justice-department.html?searchResultPosition=10
 
