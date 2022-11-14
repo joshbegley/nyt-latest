@@ -1,5 +1,5 @@
 **Blinken to Visit China in Early 2023 After Biden and Xi’s Meeting**\
-`The trip is aim at keeping the lines of communication open and having frank exchanges about important issues at senior levels in order to avoid conflict.`\
+`The trip is aimed at keeping the lines of communication open and having frank exchanges about important issues at senior levels in order to avoid conflict.`\
 https://nytimes.com/2022/11/14/us/politics/blinken-china-2023.html?searchResultPosition=1
 
 **After Nevada: The New Political Landscape**\
