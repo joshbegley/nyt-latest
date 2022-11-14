@@ -11,7 +11,7 @@ https://nytimes.com/2022/11/14/sports/soccer/world-cup-beer-fifa.html?searchResu
 https://nytimes.com/2022/11/14/world/middleeast/turkey-us-istanbul-attack.html?searchResultPosition=3
 
 **Zelensky Visits Newly Freed Kherson**\
-`”This war took the best heroes of our country,” President Volodymyr Zelensky of Ukraine said during an unannounced visit to the newly liberated city of Kherson.`\
+`“This war took the best heroes of our country,” President Volodymyr Zelensky of Ukraine said during an unannounced visit to the newly liberated city of Kherson.`\
 https://nytimes.com/video/world/europe/100000008636243/zelensky-visits-newly-freed-kherson.html?searchResultPosition=4
 
 **U.K. and France Sign New Deal to Stem Small-Boat Crossings**\
