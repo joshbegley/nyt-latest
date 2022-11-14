@@ -32,7 +32,7 @@ https://nytimes.com/2022/11/14/world/europe/uk-france-small-boat-deal.html?searc
 
 **Watch Live: Biden Speaks After Meeting With Xi**\
 `President Biden and President Xi Jinping of China met before the Group of 20 summit in Indonesia. It was their first face-to-face meeting as top leaders.`\
-https://nytimes.com/video/us/politics/100000008635676/biden-xi-meeting-live-video.html?searchResultPosition=9
+https://nytimes.com/video/embedded/us/politics/100000008635676/biden-xi-meeting-live-video.html?searchResultPosition=9
 
 **Who Bears Blame for FTX’s Failure?**\
 `With the collapse of the giant cryptocurrency exchange, investors are asking whether regulators or the venture capitalists who funded FTX, are at fault.`\
