@@ -27,7 +27,7 @@ https://nytimes.com/2022/11/15/us/georgia-abortion-ban.html?searchResultPosition
 https://nytimes.com/2022/11/15/opinion/racism-systemic-structural.html?searchResultPosition=7
 
 **Ellen Levine, 79, Dies; Editor With Keen Sense of Women Readers**\
-`She was Good Housekeeping’s first female top editor, earlier edited  Woman’s Day and Redbook, and helped Oprah Winfrey create a newsstand sensation.`\
+`She was Good Housekeeping’s first female top editor, earlier edited Woman’s Day and Redbook, and helped Oprah Winfrey create a newsstand sensation.`\
 https://nytimes.com/2022/11/15/business/media/ellen-levine-dead.html?searchResultPosition=8
 
 **The Four-Star Restaurants of New York**\
