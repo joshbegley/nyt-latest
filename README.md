@@ -4,7 +4,7 @@ https://nytimes.com/2022/11/15/business/dealbook/g20-summit-biden-xi-markets.htm
 
 **Walmart Defies Gloom Over Inflation With Sales and Profit Upgrade**\
 `Ahead of the critical holiday shopping season, the nation’s largest retailer reported stronger-than-expected earnings and signaled confidence with a $20 billion share buyback.`\
-https://nytimes.com/2022/11/15/business/walmart-defies-gloom-over-inflation-with-sales-and-profit-upgrade.html?searchResultPosition=2
+https://nytimes.com/2022/11/15/business/walmart-inflation-sales-profit.html?searchResultPosition=2
 
 **Palestinian Assailant Kills 3 Israelis in West Bank**\
 `The attack began in a settlement industrial zone and continued along a highway, and took place on the day that Israel is to swear in a new Parliament.`\
