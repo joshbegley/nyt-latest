@@ -26,7 +26,7 @@ https://nytimes.com/2022/11/15/us/politics/nancy-pelosi-congress.html?searchResu
 `A new wave of serums and exfoliators highlight the importance of creating a good foundation for healthy hair.`\
 https://nytimes.com/2022/11/15/t-magazine/scalp-health-serums-exfoliators.html?searchResultPosition=7
 
-**Mr. Trump’s expected 2024 announcement injects new uncertainty into Justice Dept. inquiries.**\
+**Trump’s expected 2024 announcement injects new uncertainty into Justice Dept. inquiries.**\
 `Attorney General Merrick B. Garland, who shuns politics, finds himself at the center of the storm.`\
 https://nytimes.com/2022/11/15/us/politics/trump-2024-doj-inquiries.html?searchResultPosition=8
 
