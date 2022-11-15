@@ -6,8 +6,8 @@ https://nytimes.com/2022/11/15/technology/elon-musk-twitter-fired-criticism.html
 `George K. Lerner, a psychiatrist who has worked at the collapsed crypto exchange FTX since last year, said he had no knowledge of wrongdoing at the firm.`\
 https://nytimes.com/2022/11/15/technology/ftx-sam-bankman-fried-psychiatrist.html?searchResultPosition=2
 
-**Estée Lauder Agrees to Buy Tom Ford Brand**\
-`Tom Ford’s high-end fragrances routinely make best-seller lists, and the deal also brings apparel to Estée Lauder, which has been strictly focused on beauty.`\
+**Estée Lauder Agrees to Buy Tom Ford Brand in $2.8 Billion Deal**\
+`Tom Ford’s high-end fragrances routinely make best-seller lists, and the deal, the luxury industry’s biggest this year, also brings apparel to Estée Lauder, which had been strictly focused on beauty.`\
 https://nytimes.com/2022/11/15/business/estee-lauder-tom-ford.html?searchResultPosition=3
 
 **Foreign Trade Competition Has Hurt Black and Disadvantaged Workers Most, Report Says**\
