@@ -3,7 +3,7 @@
 https://nytimes.com/interactive/2022/podcasts/serial-productions.html?searchResultPosition=1
 
 **Georgia Judge Suspends State’s Abortion Ban**\
-`A county judge temporarily blocked Georgia’s ban on abortion early in pregnancy, meaning that abortions after six weeks are once again legal in the state.`\
+`A county judge  blocked Georgia’s ban on abortion early in pregnancy, meaning that abortions after six weeks are once again legal in the state.`\
 https://nytimes.com/2022/11/15/us/georgia-abortion-ban.html?searchResultPosition=2
 
 **When ‘Racism’ Is Not Really Racism**\
