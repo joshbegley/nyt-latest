@@ -8,7 +8,7 @@ https://nytimes.com/2022/11/15/briefing/iran-clampdown-protesters-xi-biden.html?
 
 **Western Allies Look to Ukraine as a Testing Ground for Weapons**\
 `Though the battle for Ukraine remains largely a grinding artillery war, new advances in technology and training there are being closely monitored for the ways they are starting to shape combat.`\
-https://nytimes.com/2022/11/15/world/europe/west-ukraine-weapons.html?searchResultPosition=3
+https://nytimes.com/2022/11/15/world/europe/ukraine-weapons.html?searchResultPosition=3
 
 **Roberta Flack Has A.L.S. and Can No Longer Sing, Her Publicist Says**\
 `The highly decorated vocalist, known for hits like “Killing Me Softly With His Song,” was diagnosed with the disease in August.`\
