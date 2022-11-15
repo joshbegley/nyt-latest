@@ -1,6 +1,6 @@
-**The Los Angeles Sheriff conceded after a combative first term in office.**\
+**The L.A. Sheriff Concedes After a CombativeFirst Term**\
 `Sheriff Alex Villanueva defended his tenure before conceding to Robert Luna, a former Long Beach police chief.`\
-https://nytimes.com/2022/11/15/us/politics/los-angeles-sheriff-concedes-after-combative-first-term-in-office.html?searchResultPosition=1
+https://nytimes.com/2022/11/15/us/politics/los-angeles-sheriff-villanueva-concedes.html?searchResultPosition=1
 
 **Judge Invalidates Rule Allowing Migrant Expulsions on Border**\
 `The pandemic-era health order, known as Title 42, has allowed the government to expel hundreds of thousands of migrants who otherwise might be allowed to pursue asylum claims.`\
