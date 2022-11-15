@@ -26,13 +26,13 @@ https://nytimes.com/2022/11/15/us/politics/covid-ukraine-funding-biden.html?sear
 `Mary Trump had claimed that the former president and other relatives had cheated her out of tens of millions of dollars. A judge dismissed her lawsuit.`\
 https://nytimes.com/2022/11/15/nyregion/trump-wins-legal-battle-against-his-niece.html?searchResultPosition=7
 
-**The Big Liar and His Losing Little Liars**\
-`Most election deniers who lost last week have conceded and did not claim fraud. That doesn’t absolve them from embracing Trump’s Big Lie in the first place.`\
-https://nytimes.com/2022/11/15/opinion/trump-election-deniers.html?searchResultPosition=8
-
 **32 Charged in Brooklyn Gang Shootings That Injured 14 and Killed 2**\
 `Two warring gangs began a feud on social media before taking their fight to the streets. The indictment came on the heels of several gang-related cases this year.`\
-https://nytimes.com/2022/11/15/nyregion/brooklyn-gang-violence-charges.html?searchResultPosition=9
+https://nytimes.com/2022/11/15/nyregion/brooklyn-gang-violence-charges.html?searchResultPosition=8
+
+**The Big Liar and His Losing Little Liars**\
+`Most election deniers who lost last week have conceded and did not claim fraud. That doesn’t absolve them from embracing Trump’s Big Lie in the first place.`\
+https://nytimes.com/2022/11/15/opinion/trump-election-deniers.html?searchResultPosition=9
 
 **Your Wednesday Briefing: Trump 2024?**\
 `Plus a deadly explosion in Poland and a record-breaking global population estimate.`\
