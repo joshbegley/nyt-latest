@@ -14,27 +14,27 @@ https://nytimes.com/2022/11/15/us/politics/kevin-mccarthy-speaker-house-gop.html
 `“Independent voters aren’t voting for our candidates,” Gov. Ron DeSantis of Florida said at an event hours before Donald Trump was expected to announce a third presidential bid. “That’s a problem.”`\
 https://nytimes.com/2022/11/15/us/politics/desantis-trump-republicans.html?searchResultPosition=4
 
+**Polish media reports a blast at a grain plant near Ukraine, and Poland’s government calls a crisis meeting.**\
+`By The New York Times`\
+https://nytimes.com/2022/11/14/world/europe/poland-explosion-ukraine-missile-strike.html?searchResultPosition=5
+
 **Watching ‘The Crown’ With Britain’s Anti-Monarchists: ‘I Feel Queasy’**\
 `Since the show debuted in 2016, there has been an increase in republican sentiment. How has the show contributed to that?`\
-https://nytimes.com/2022/11/15/arts/television/the-crown-republicanism.html?searchResultPosition=5
+https://nytimes.com/2022/11/15/arts/television/the-crown-republicanism.html?searchResultPosition=6
 
 **Will Pelosi Stay or Will She Go? Perhaps a Little Bit of Both.**\
 `With Democrats on the cusp of losing the House, all eyes are on Speaker Nancy Pelosi’s next move, and the party is frozen in place until she decides what to do.`\
-https://nytimes.com/2022/11/15/us/politics/nancy-pelosi-congress.html?searchResultPosition=6
+https://nytimes.com/2022/11/15/us/politics/nancy-pelosi-congress.html?searchResultPosition=7
 
 **Your Scalp Would Like Some Attention, Please**\
 `A new wave of serums and exfoliators highlight the importance of creating a good foundation for healthy hair.`\
-https://nytimes.com/2022/11/15/t-magazine/scalp-health-serums-exfoliators.html?searchResultPosition=7
+https://nytimes.com/2022/11/15/t-magazine/scalp-health-serums-exfoliators.html?searchResultPosition=8
 
 **Trump’s expected 2024 announcement injects new uncertainty into Justice Dept. inquiries.**\
 `Attorney General Merrick B. Garland, who shuns politics, finds himself at the center of the storm.`\
-https://nytimes.com/2022/11/15/us/politics/trump-2024-doj-inquiries.html?searchResultPosition=8
+https://nytimes.com/2022/11/15/us/politics/trump-2024-doj-inquiries.html?searchResultPosition=9
 
 **Transcript: Ezra Klein Interviews Bill McKibben**\
 `The Nov. 15, 2022 episode of ‘The Ezra Klein Show’`\
-https://nytimes.com/2022/11/15/podcasts/transcript-ezra-klein-interviews-bill-mckibben.html?searchResultPosition=9
-
-**Marcus Samuelsson’s First New York Restaurant in Seven Years Is Open**\
-`Aperitivos in Greenpoint, Brooklyn, Tocqueville reopens, and more restaurant news.`\
-https://nytimes.com/2022/11/15/dining/nyc-restaurant-news.html?searchResultPosition=10
+https://nytimes.com/2022/11/15/podcasts/transcript-ezra-klein-interviews-bill-mckibben.html?searchResultPosition=10
 
