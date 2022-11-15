@@ -2,8 +2,8 @@
 `Residents told of a frantic escape: “We were just running around, no idea what to do,” one said.`\
 https://nytimes.com/2022/11/15/world/europe/scene-kyiv-attack.html?searchResultPosition=1
 
-**At G20, Xi and Biden Offer Rival Visions for Solving Global Issues**\
-`At the meeting, China and the United States showed how global summits are an arena for great powers to compete, with implications for the war in Ukraine and Asia’s future.`\
+**At G20 Summit, Xi and Biden Offer Rival Visions for Solving Global Issues**\
+`China and the United States showed how global summits are an arena for great powers to compete, with implications for the war in Ukraine and Asia’s future.`\
 https://nytimes.com/2022/11/15/world/asia/xi-biden-g20.html?searchResultPosition=2
 
 **Russian Missiles Hit Residential Buildings in Kyiv**\
