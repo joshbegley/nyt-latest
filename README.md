@@ -15,7 +15,7 @@ https://nytimes.com/2022/11/15/us/politics/kevin-mccarthy-speaker-house-gop.html
 https://nytimes.com/2022/11/15/us/politics/desantis-trump-republicans.html?searchResultPosition=4
 
 **Polish media reports a blast at a grain plant near Ukraine, and Poland’s government calls a crisis meeting.**\
-`By The New York Times`\
+`The plant lies just a few miles from the border with Ukraine, and the explosion reported there came on the same day that Russia launched a widespread missile attack on Ukraine.`\
 https://nytimes.com/2022/11/14/world/europe/poland-explosion-ukraine-missile-strike.html?searchResultPosition=5
 
 **Watching ‘The Crown’ With Britain’s Anti-Monarchists: ‘I Feel Queasy’**\
