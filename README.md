@@ -30,11 +30,11 @@ https://nytimes.com/2022/11/15/travel/rock-climbing-malawi.html?searchResultPosi
 `The city is dismantling an emergency shelter on Randalls Island, so dozens of homeless men moved on Monday, headed for a Manhattan hotel.`\
 https://nytimes.com/2022/11/15/nyregion/randalls-island-migrants-hotel.html?searchResultPosition=8
 
+**Republicans’ 2022 Lesson: Voters Who Trust Elections Are More Likely to Vote**\
+`Election deniers’ doubts about voting made for compelling conspiracy theories, but proved to be a bad get-out-the-vote strategy.`\
+https://nytimes.com/2022/11/15/us/politics/kari-lake-republicans-election-midterms.html?searchResultPosition=9
+
 **What Does Your Favorite Reservation App Say About You?**\
 `For a decade, the online reservations industry was dominated by one player. Now the myriad choices have given way to strong opinions from diners.`\
-https://nytimes.com/2022/11/15/dining/restaurant-reservation-companies.html?searchResultPosition=9
-
-**Schumer Urges Republicans to Jettison Trump and Work With Democrats**\
-`The top Senate Democrat said the G.O.P. should join with his party on bipartisan initiatives, but Republicans were in no mood to cooperate after their electoral loss.`\
-https://nytimes.com/2022/11/15/us/politics/schumer-senate-republicans.html?searchResultPosition=10
+https://nytimes.com/2022/11/15/dining/restaurant-reservation-companies.html?searchResultPosition=10
 
