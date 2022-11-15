@@ -30,7 +30,7 @@ https://nytimes.com/2022/11/14/us/politics/katie-hobbs-arizona-governor.html?sea
 `Corrections that appeared in print on Tuesday, Nov. 15, 2022.`\
 https://nytimes.com/2022/11/14/pageoneplus/corrections-nov-15-2022.html?searchResultPosition=8
 
-**Japan’s Economy Shrinks, Weighed Down by a Weak Yen and Rising Inflation**\
+**Japan’s Economy Shrinks Unexpectedly, Hit by a Weak Yen and Rising Inflation**\
 `The economy contracted 1.2 percent as consumers and businesses were hit with rising import prices.`\
 https://nytimes.com/2022/11/14/business/japan-economy-gdp.html?searchResultPosition=9
 
