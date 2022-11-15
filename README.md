@@ -6,7 +6,7 @@ https://nytimes.com/2022/11/15/us/weinstein-jennifer-siebel-trial.html?searchRes
 `In an interview, the former vice president expressed anger over Donald Trump’s conduct on Jan. 6, 2021, but deflected questions about his character.`\
 https://nytimes.com/2022/11/15/us/politics/pence-trump-president-jan-6.html?searchResultPosition=2
 
-**New York City to Build Soccer Stadium in Queens Mega-Development**\
+**New York City Reaches Deal to Build Soccer Stadium in Queens**\
 `The New York City Football Club will pay roughly $780 million to build the stadium in Willets Point in Queens as part of a project that will include housing and a hotel.`\
 https://nytimes.com/2022/11/15/nyregion/soccer-stadium-nycfc-willets.html?searchResultPosition=3
 
