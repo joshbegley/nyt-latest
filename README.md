@@ -28,7 +28,7 @@ https://nytimes.com/2022/11/15/science/nasa-launch-moon-rocket.html?searchResult
 
 **John Aniston, Veteran Television Actor, Dies at 89**\
 `Mr. Aniston, the father of the actor Jennifer Aniston, played a suave villain on the soap opera “Days of Our Lives” for more than three decades.`\
-https://nytimes.com/2022/11/15/obituaries/john-aniston-dead.html?searchResultPosition=8
+https://nytimes.com/2022/11/15/arts/television/john-aniston-dead.html?searchResultPosition=8
 
 **Word of the Day: formidable**\
 `This word has appeared in 503 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
