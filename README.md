@@ -18,23 +18,23 @@ https://nytimes.com/2022/11/14/us/kansas-police-indicted-sex-trafficking.html?se
 `The Trump Organization will license its name for a planned golf course in Oman, renewing questions about the former president’s mixing of politics and business as he appears poised for another run.`\
 https://nytimes.com/2022/11/14/us/politics/trump-organization-oman-saudi.html?searchResultPosition=5
 
+**Katie Hobbs, Who Defied Trump in Arizona, Tops Kari Lake for Governor**\
+`Ms. Hobbs, Arizona’s secretary of state, narrowly defeated Ms. Lake, a former newscaster whose campaign was built on lies about the 2020 election.`\
+https://nytimes.com/2022/11/14/us/politics/katie-hobbs-arizona-governor.html?searchResultPosition=6
+
 **Corrections: Nov. 15, 2022**\
 `Corrections that appeared in print on Tuesday, Nov. 15, 2022.`\
-https://nytimes.com/2022/11/14/pageoneplus/corrections-nov-15-2022.html?searchResultPosition=6
+https://nytimes.com/2022/11/14/pageoneplus/corrections-nov-15-2022.html?searchResultPosition=7
 
 **Japan’s Economy Shrinks, Weighed Down by a Weak Yen and Rising Inflation**\
 `The economy contracted 1.2 percent as consumers and businesses were hit with rising import prices.`\
-https://nytimes.com/2022/11/14/business/japan-economy-gdp.html?searchResultPosition=7
+https://nytimes.com/2022/11/14/business/japan-economy-gdp.html?searchResultPosition=8
 
 **Four Stark Lessons From a Democratic Upset**\
 `What we can learn from Marie Gluesenkamp Perez’s victory.`\
-https://nytimes.com/2022/11/14/opinion/lessons-democratic-upset-washington-midterms.html?searchResultPosition=8
+https://nytimes.com/2022/11/14/opinion/lessons-democratic-upset-washington-midterms.html?searchResultPosition=9
 
 **Julio Rodríguez and Michael Harris II Are M.L.B.’s Top Rookies**\
 `Seattle’s Rodríguez and Atlanta’s Harris, who emerged as star center fielders, won M.L.B.’s Rookie of the Year Awards.`\
-https://nytimes.com/2022/11/14/sports/baseball/rookie-of-the-year-julio-rodriguez-michael-harris.html?searchResultPosition=9
-
-**Gunman Charged With Killing Three Fellow Students at the University of Virginia**\
-`The victims, all members of the football team, were remembered by classmates, coaches and teachers as affable students and dedicated activists.`\
-https://nytimes.com/2022/11/14/us/gunman-charged-uva-shooting.html?searchResultPosition=10
+https://nytimes.com/2022/11/14/sports/baseball/rookie-of-the-year-julio-rodriguez-michael-harris.html?searchResultPosition=10
 
