@@ -1,40 +1,40 @@
-**As Europe Quits Russian Gas, Half of France’s Nuclear Plants Are Off-Line**\
-`France’s state-backed nuclear operator is scrambling to overcome a monthslong crisis to get as many reactors as possible restarted before winter sets in.`\
-https://nytimes.com/2022/11/15/business/nuclear-power-france.html?searchResultPosition=1
+**After a Perilous Journey, Migrants Try to Make It in New York City**\
+`Faced with lengthy bureaucratic delays, tens of thousands of Venezuelan migrants are slipping into the city’s underground economy and joining its army of undocumented workers.`\
+https://nytimes.com/2022/11/15/nyregion/nyc-migrants-labor-market.html?searchResultPosition=1
 
-**Novak Djokovic Is Cleared to Play in Australian Open**\
-`Australia has lifted the tennis star’s three-year ban on entering the country, imposed when he was deported in January over his failure to be vaccinated for Covid.`\
-https://nytimes.com/2022/11/15/world/australia/novak-djokovic-australian-open.html?searchResultPosition=2
+**In Poland, a Warm Welcome for Ukrainian Refugees Wobbles**\
+`Poland took in millions of people fleeing the war in Ukraine. But a vocal minority is trying to stoke tensions as Russian attacks threaten to prompt a new surge.`\
+https://nytimes.com/2022/11/15/world/europe/poland-ukrainian-war-refugees.html?searchResultPosition=2
 
-**Wealthy Nations Offer Indonesia $20 Billion to Curb Coal**\
-`The deal is the most ambitious effort yet by the United States and European countries to coax a developing nation into abandoning the dirtiest of the fossil fuels.`\
-https://nytimes.com/2022/11/15/climate/indonesia-coal-agreement.html?searchResultPosition=3
+**Ukraine’s 15,000-Mile Lifeline**\
+`How the country’s vast rail system has helped it withstand an invasion.`\
+https://nytimes.com/2022/11/15/magazine/ukraine-trains.html?searchResultPosition=3
 
-**A Teacher-Created Unit on Race and Racism Using The New York Times**\
-`A middle school teacher shares the videos, articles, writing prompts and other resources that helped her students gain a better understanding of racial injustice and inequality.`\
-https://nytimes.com/2022/11/15/learning/lesson-plans/a-teacher-created-unit-on-race-and-racism-using-the-new-york-times.html?searchResultPosition=4
+**Is Rock Climbing the Future of Tourism in Malawi?**\
+`The small country in southeastern Africa is leveraging its little-known rock cliffs and boulders to develop local interest in climbing — and to draw adventure tourists.`\
+https://nytimes.com/2022/11/15/travel/rock-climbing-malawi.html?searchResultPosition=4
 
-**As U.K. Braces for Painful Budget Cuts, the Mood Is Gloomy**\
-`Swindon, west of London, has reinvented itself several times, always a rung lower on the economic ladder. Now it awaits another step down.`\
-https://nytimes.com/2022/11/15/world/europe/uk-economy-budget-rececssion-sunak.html?searchResultPosition=5
+**The Climate Movement Has Won Power. Now It Needs to Wield It.**\
+`The climate activist Bill McKibben discusses the ‘new era’ the climate movement is entering — and the urgent need to take action.`\
+https://nytimes.com/2022/11/15/opinion/ezra-klein-podcast-bill-mckibben.html?searchResultPosition=5
 
-**Frustrations Grow Over Company’s Response to Breathing Device Recalls**\
-`Lawsuits claim the company, Philips Respironics, knew of problems with its CPAP and other machines long before notifying customers of potential health risks.`\
-https://nytimes.com/2022/11/15/health/cpap-philips-breathing-device-recall.html?searchResultPosition=6
+**As Migrants Leave Tent Shelter, Mayor Defends His Strategy**\
+`The city is dismantling an emergency shelter on Randalls Island, so dozens of homeless men moved on Monday, headed for a Manhattan hotel.`\
+https://nytimes.com/2022/11/15/nyregion/randalls-island-migrants-hotel.html?searchResultPosition=6
 
-**Bringing Sexy Back — To Fight H.I.V.**\
-`Most safer sex campaigns focus on danger and disease. Acknowledging the importance of pleasure — and how to make safe sex good sex — could make them more effective.`\
-https://nytimes.com/2022/11/15/health/safe-sex-pleasure-condoms.html?searchResultPosition=7
+**What Does Your Favorite Reservation App Say About You?**\
+`For a decade, the online reservations industry was dominated by one player. Now the myriad choices have given way to strong opinions from diners.`\
+https://nytimes.com/2022/11/15/dining/restaurant-reservation-companies.html?searchResultPosition=7
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/11/15/crosswords/spelling-bee-forum.html?searchResultPosition=8
+**Schumer Urges Republicans to Jettison Trump and Work With Democrats**\
+`The top Senate Democrat said the G.O.P. should join with his party on bipartisan initiatives, but Republicans were in no mood to cooperate after their electoral loss.`\
+https://nytimes.com/2022/11/15/us/politics/schumer-senate-republicans.html?searchResultPosition=8
 
-**When Breaking News Is a Tweet Away**\
-`Ryan Mac, a New York Times technology reporter, discussed the flurry of recent news surrounding Twitter’s new owner, Elon Musk, and the “gold mine” of sources the platform offers.`\
-https://nytimes.com/2022/11/15/insider/elon-musk-twitter-reporting.html?searchResultPosition=9
+**Why Trump Could Win Again**\
+`He could win the Republican nomination and the presidency — and both would be bad for the country.`\
+https://nytimes.com/2022/11/15/opinion/trump-2024-announcement-republicans.html?searchResultPosition=9
 
-**Underwater Dining**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2022/11/15/learning/underwater-dining.html?searchResultPosition=10
+**Republicans’ 2022 Lesson: Voters Who Trust Elections Are More Likely to Vote**\
+`Election deniers’ doubts about voting made for compelling conspiracy theories, but proved to be a bad get-out-the-vote strategy.`\
+https://nytimes.com/2022/11/15/us/politics/kari-lake-republicans-election-midterms.html?searchResultPosition=10
 
