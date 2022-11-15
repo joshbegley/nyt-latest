@@ -14,7 +14,7 @@ https://nytimes.com/2022/11/15/arts/design/sothebys-auction-mondrian.html?search
 `“Houseboy” took shape at the South Africa-based Center for the Less Good Idea, where artists are allowed to follow their own impulses.`\
 https://nytimes.com/2022/11/15/theater/houseboy-kentridge-lace-phala.html?searchResultPosition=4
 
-**U.K. Pledges $1.19 Billion to Fight Diseases in Poor Countries**\
+**U.K. Pledges $1.2 Billion to Fight Diseases in Poor Countries**\
 `The contribution to the Global Fund is less than aid organizations had hoped for. Britain has been cutting foreign aid since 2020.`\
 https://nytimes.com/2022/11/15/health/britain-global-fund.html?searchResultPosition=5
 
