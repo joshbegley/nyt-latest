@@ -10,7 +10,7 @@ https://nytimes.com/2022/11/15/climate/indonesia-coal-agreement.html?searchResul
 `A middle school teacher shares the videos, articles, writing prompts and other resources that helped her students gain a better understanding of racial injustice and inequality.`\
 https://nytimes.com/2022/11/15/learning/lesson-plans/a-teacher-created-unit-on-race-and-racism-using-the-new-york-times.html?searchResultPosition=3
 
-**As Britain Braces for Painful Budget Cuts, the Mood Is Gloomy**\
+**As U.K. Braces for Painful Budget Cuts, the Mood Is Gloomy**\
 `Swindon, west of London, has reinvented itself several times, always a rung lower on the economic ladder. Now it awaits another step down.`\
 https://nytimes.com/2022/11/15/world/europe/uk-economy-budget-rececssion-sunak.html?searchResultPosition=4
 
