@@ -3,7 +3,7 @@
 https://nytimes.com/2022/11/15/nyregion/bear-hunt-new-jersey.html?searchResultPosition=1
 
 **Knife May Have Been Used to Kill 4 Idaho Students**\
-`Police said they did not have a suspect in custody, and were working to document the events that led to the deaths of four University of Idaho friends.`\
+`The police said they did not have a suspect in custody, and were working to document the events that led to the deaths of four University of Idaho friends.`\
 https://nytimes.com/2022/11/15/us/university-idaho-students-killings.html?searchResultPosition=2
 
 **A single fiery missile fragment brings terror and death to a Kyiv apartment building.**\
