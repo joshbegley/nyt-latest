@@ -18,13 +18,13 @@ https://nytimes.com/2022/11/15/learning/film-club-long-line-of-ladies.html?searc
 `Faced with lengthy bureaucratic delays, tens of thousands of Venezuelan migrants are slipping into the city’s underground economy and joining its army of undocumented workers.`\
 https://nytimes.com/2022/11/15/nyregion/nyc-migrants-labor-market.html?searchResultPosition=5
 
-**Ukraine’s 15,000-Mile Lifeline**\
-`How the country’s vast rail system has helped it withstand an invasion.`\
-https://nytimes.com/2022/11/15/magazine/ukraine-trains.html?searchResultPosition=6
-
 **In Poland, a Warm Welcome for Ukrainian Refugees Wobbles**\
 `Poland took in millions of people fleeing the war in Ukraine. But a vocal minority is trying to stoke tensions as Russian attacks threaten to prompt a new surge.`\
-https://nytimes.com/2022/11/15/world/europe/poland-ukrainian-war-refugees.html?searchResultPosition=7
+https://nytimes.com/2022/11/15/world/europe/poland-ukrainian-war-refugees.html?searchResultPosition=6
+
+**Ukraine’s 15,000-Mile Lifeline**\
+`How the country’s vast rail system has helped it withstand an invasion.`\
+https://nytimes.com/2022/11/15/magazine/ukraine-trains.html?searchResultPosition=7
 
 **The Climate Movement Has Won Power. Now It Needs to Wield It.**\
 `The climate activist Bill McKibben discusses the ‘new era’ the climate movement is entering — and the urgent need to take action.`\
