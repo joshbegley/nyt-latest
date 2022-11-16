@@ -19,7 +19,7 @@ https://nytimes.com/2022/11/16/movies/nan-goldin-laura-poitras-all-the-beauty-an
 https://nytimes.com/2022/11/16/arts/television/the-crown-new-cast-netflix.html?searchResultPosition=5
 
 **New School and Parsons School of Design Adjunct Professors Go On Strike**\
-`After negotiations broke down earlier this week, striking professors at the New School and Parsons School of Design stopped teaching classes and grading coursework on Wednesday.`\
+`Striking professors at the New School and Parsons School of Design stopped teaching classes and grading coursework on Wednesday.`\
 https://nytimes.com/2022/11/16/nyregion/new-school-parsons-strike-walkout.html?searchResultPosition=6
 
 **University of Virginia Cancels Final Home Football Game After Shooting**\
