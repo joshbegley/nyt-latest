@@ -19,7 +19,7 @@ https://nytimes.com/2022/11/16/business/october-retail-sales.html?searchResultPo
 https://nytimes.com/2022/11/16/world/europe/poland-russia-missile-escalation.html?searchResultPosition=5
 
 **U.K. Sees Myriad Domestic Threats, Mainly From Iran, Russia and China**\
-`In an annual assessment, the head of M15 also cited Iranian attempts to kill or kidnap at least 10 critics of the Iran’s government.`\
+`In an annual assessment, the head of M15 also cited Iranian attempts to kill or kidnap at least 10 critics of Iran’s government.`\
 https://nytimes.com/2022/11/16/world/europe/uk-threats-iran-russia-china.html?searchResultPosition=6
 
 **Lawmakers Criticize Ticketmaster After Taylor Swift Presale Snafus**\
