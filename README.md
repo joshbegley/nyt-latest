@@ -11,8 +11,8 @@ https://nytimes.com/video/world/asia/100000008640548/china-guangzhou-covid-prote
 https://nytimes.com/2022/11/16/us/virginia-mclaurin-obamas-dead.html?searchResultPosition=3
 
 **To Fight Climate Change, Canada Turns to Indigenous People to Save Its Forests**\
-`Canada is looking to its Indigenous communities to help manage its boreal forests, the world’s largest intact forest ecosystem and one if its biggest stores of carbon.`\
-https://nytimes.com/2022/11/16/canada-climate-change-indigenous-people.html?searchResultPosition=4
+`Canada is looking to its Indigenous communities to help manage its boreal forests, the world’s largest intact forest ecosystem and one of its biggest stores of carbon.`\
+https://nytimes.com/2022/11/16/climate/canada-climate-change-indigenous-people.html?searchResultPosition=4
 
 **How ‘The Lion King’ Got to Broadway and Ruled for 25 Years (So Far)**\
 `A surprising collaboration between an entertainment giant (Disney) and an avant-garde artist (Julie Taymor) birthed the most successful musical in history.`\
