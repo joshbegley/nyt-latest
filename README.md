@@ -1,40 +1,40 @@
-**Amid Crises, Biden Offers the World a Choice: My Way, or Trump’s**\
-`The president put his coalition-building approach on display on a trip through Asia, where he sought to ease tensions with China.`\
-https://nytimes.com/2022/11/16/world/biden-trump-g20.html?searchResultPosition=1
+**To Fight Climate Change, Canada Turns to Indigenous People to Save Its Forests**\
+`Canada is looking to its Indigenous communities to help manage its boreal forests, the world’s largest intact forest ecosystem and one if its biggest stores of carbon.`\
+https://nytimes.com/2022/11/16/canada-climate-change-indigenous-people.html?searchResultPosition=1
 
-**NASA Launches Artemis Rocket Toward Moon**\
-`The uncrewed mission is a crucial test for NASA’s Artemis program that aims to put astronauts back on the moon.`\
-https://nytimes.com/video/science/space/100000008640667/nasa-artemis-moon-launch.html?searchResultPosition=2
+**How ‘The Lion King’ Got to Broadway and Ruled for 25 Years (So Far)**\
+`A surprising collaboration between an entertainment giant (Disney) and an avant-garde artist (Julie Taymor) birthed the most successful musical in history.`\
+https://nytimes.com/2022/11/16/theater/the-lion-king-25th-anniversary.html?searchResultPosition=2
 
-**They Called Him a Gangster Out for Revenge. The Evidence? 6 Text Messages.**\
-`A murder-conspiracy case in northwestern England tells the story of Britain’s crackdown on gangs, which disproportionately targets young Black men.`\
-https://nytimes.com/2022/11/16/world/europe/uk-ademola-adedeji-murder-conspiracy-gangs.html?searchResultPosition=3
+**The World Cup’s Forgotten Team**\
+`Hundreds of thousands of Nepalis were part of an army of migrant workers who remade Qatar for its World Cup moment. But in chasing desperately needed paychecks abroad, many pay a heavy price.`\
+https://nytimes.com/2022/11/16/sports/soccer/world-cup-migrant-workers.html?searchResultPosition=3
 
-**An Even-Keeled Centrist Will Be Britain’s Bearer of Bad News**\
-`Jeremy Hunt, the chancellor of the Exchequer, is known for his competence and sober demeanor, which he will most likely need as he outlines tax increases and public spending cuts.`\
-https://nytimes.com/2022/11/16/world/europe/britain-budget-jeremy-hunt.html?searchResultPosition=4
+**Dressing Wakanda**\
+`The Oscar-winning costume designer Ruth E. Carter decodes her five favorite outfits.`\
+https://nytimes.com/2022/11/16/style/wakanda-forever-costume-design.html?searchResultPosition=4
 
-**Amid the Adderall Shortage, People With A.D.H.D. Face Withdrawal and Despair**\
-`Without medication, patients are wondering what comes next.`\
-https://nytimes.com/2022/11/16/well/mind/adderall-shortage-withdrawal-symptoms-adhd.html?searchResultPosition=5
+**Engineers From Taiwan Bolstered China’s Chip Industry. Now They’re Leaving.**\
+`The lure of money and new opportunities enticed talent to work in China’s semiconductor plants. The looming Cold War in tech changed the calculus.`\
+https://nytimes.com/2022/11/16/business/taiwan-china-semiconductors.html?searchResultPosition=5
 
-**The Mystery of the Missing Interview Tapes**\
-`After their rental car was stolen, two producers of “The Daily” embarked on a hunt for the precious cargo in the trunk.`\
-https://nytimes.com/2022/11/16/insider/the-mystery-of-the-missing-interview-tapes.html?searchResultPosition=6
+**How to Dress a Rock Star**\
+`For two decades, the Yeah Yeah Yeahs frontwoman Karen O has trusted a self-taught fashion designer to define her look.`\
+https://nytimes.com/2022/11/16/style/yeah-yeah-yeahs-karen-o-fashion.html?searchResultPosition=6
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/11/16/crosswords/spelling-bee-forum.html?searchResultPosition=7
+**Hundreds of Women Set to Sue New York Over Allegations of Prison Sex Abuse**\
+`A law that takes effect on Nov. 24 allows people to sue over years-old assaults long past the criminal statute of limitations.`\
+https://nytimes.com/2022/11/16/nyregion/new-york-prison-sex-abuse.html?searchResultPosition=7
 
-**Bouldering**\
-`Are you curious about this growing sport? Have you ever tried it?`\
-https://nytimes.com/2022/11/16/learning/bouldering.html?searchResultPosition=8
+**Newark’s Reviled Terminal A Is Getting a $2.7 Billion Upgrade**\
+`A huge, art-filled building will replace the cramped, overcrowded old terminal at Newark Liberty International Airport on Dec. 8.`\
+https://nytimes.com/2022/11/16/nyregion/newark-terminal-a-liberty-airport.html?searchResultPosition=8
 
-**Inflation in Britain Reaches 11.1 Percent, Led by Energy Costs**\
-`Prices in October rose at the fastest rate in more than 40 years, deepening the country’s cost-of-living crisis.`\
-https://nytimes.com/2022/11/16/business/uk-inflation-october.html?searchResultPosition=9
+**How to Read the Tree Leaves**\
+`A little knowledge of botany can be helpful, even if you’re an amateur gardener. Here are a few things you should know about what happens in the fall.`\
+https://nytimes.com/2022/11/16/realestate/tree-leaves-botany.html?searchResultPosition=9
 
-**Word of the Day: arbitrate**\
-`This word has appeared in 15 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/11/16/learning/word-of-the-day-arbitrate.html?searchResultPosition=10
+**Beneath Its Pink Cover, ‘Lessons in Chemistry’ Offers a Story About Power**\
+`The best-selling debut author Bonnie Garmus created Elizabeth Zott, a chemist battling a sexist 1950s establishment, as the role model she craved — and found that readers wanted the same.`\
+https://nytimes.com/2022/11/16/books/bonnie-garmus-lessons-chemistry-book.html?searchResultPosition=10
 
