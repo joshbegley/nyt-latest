@@ -2,7 +2,7 @@
 `Poland’s president said that a Ukrainian air defense missile had most likely caused a deadly blast there on Tuesday.`\
 https://nytimes.com/2022/11/16/world/europe/missile-explosion-przewodow-poland.html?searchResultPosition=1
 
-**A House panel is weighing whether to seat a delegate from the Cherokee Nation.**\
+**House Considers Seating a Delegate From the Cherokee Nation**\
 `Kim Teehee was named to the post in 2019, and seating her as a nonvoting delegate would fulfill part of 1836 treaty.`\
 https://nytimes.com/2022/11/16/us/elections/house-delegate-cherokee-nation.html?searchResultPosition=2
 
