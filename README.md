@@ -2,7 +2,7 @@
 `Poland’s president and NATO’s secretary general said an explosion in Polish territory was likely caused by a Ukrainian air defense missile that was intended to fend of Russian attacks.`\
 https://nytimes.com/video/world/europe/100000008640876/poland-nato-missiles-ukraine-russia.html?searchResultPosition=1
 
-**Elon Musk Says He Had Little Say in His Tesla Pay**\
+**Elon Musk Testifies He Had Little Say in His Tesla Pay**\
 `The billionaire chief executive is testifying about a multibillion dollar compensation package the electric car company’s board put in place in 2018.`\
 https://nytimes.com/2022/11/16/business/elon-musk-tesla-pay-trial.html?searchResultPosition=2
 
