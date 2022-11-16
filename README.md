@@ -8,7 +8,7 @@ https://nytimes.com/slideshow/2022/11/16/realestate/what-you-get-for-350000.html
 
 **With ‘Echo 3,’ Mark Boal Stays in His Comfort Zone: Danger Abroad**\
 `The Oscar-winning writer of “The Hurt Locker” makes his first excursion into television with a harrowing rescue tale set in the Colombian jungle.`\
-https://nytimes.com/2022/11/16/arts/television/with-echo-3-mark-boal-apple.html?searchResultPosition=3
+https://nytimes.com/2022/11/16/arts/television/echo-3-mark-boal-apple.html?searchResultPosition=3
 
 **How Can I Stop My Usually Sensible Parents From Splurging on a Milestone?**\
 `When her parents receive a windfall after a lifetime of economical living, a reader tries to steer them toward financial restraint — and away from a private jet.`\
