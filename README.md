@@ -16,7 +16,7 @@ https://nytimes.com/2022/11/15/sports/baseball/buck-showalter-terry-francona-man
 
 **Watch Live: Former President Trump Speaks at Mar-a-Lago**\
 `Former President Trump makes an announcement from his home in Palm Beach, Fla., where he is expected to say he will run for president in 2024.`\
-https://nytimes.com/video/us/politics/100000008638692/trump-presidential-candidate-announcement.html?searchResultPosition=5
+https://nytimes.com/video/embedded/us/politics/100000008638692/trump-presidential-candidate-announcement.html?searchResultPosition=5
 
 **U.S. Catholic Bishops Elect Leaders for Anti-Abortion Fight**\
 `The bishops said they would redouble efforts to end abortion; a new president and vice president are expected to continue the conservative leanings of the hierarchy.`\
