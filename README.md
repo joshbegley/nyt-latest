@@ -1,4 +1,4 @@
-**America Deserves Better Than Donald Trump**\
+**Enough.**\
 `Mr. Trump’s return to the campaign trail poses new dangers to American democracy.`\
 https://nytimes.com/2022/11/15/opinion/trump-2024-announcement.html?searchResultPosition=1
 
