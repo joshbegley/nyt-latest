@@ -31,7 +31,7 @@ https://nytimes.com/2022/11/16/nyregion/budget-deficit-nyc.html?searchResultPosi
 https://nytimes.com/2022/11/16/briefing/senate-same-sex-marriage-elon-musk.html?searchResultPosition=8
 
 **Artists Reveal a Dark Side of the Bourse’s Crowning Glory**\
-`Gerard and Kelly reverse the message of a 19th-century frieze in ‘Panorama,’ a video of emancipation at Marian Goodman Gallery.`\
+`Gerard & Kelly reverse the message of a 19th-century frieze in ‘Panorama,’ a video of emancipation at Marian Goodman Gallery.`\
 https://nytimes.com/2022/11/16/arts/dance/kelly-gerard-panorama-bourse-dance-monuments.html?searchResultPosition=9
 
 **Covid Tents Have Expanded Their Repertoire**\
