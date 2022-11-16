@@ -10,7 +10,7 @@ https://nytimes.com/2022/11/15/crosswords/daily-puzzle-2022-11-16.html?searchRes
 `It was unclear from the president’s remarks whether he meant the missile was not likely to have been fired from inside Russia, or by Russian forces in Ukraine or elsewhere.`\
 https://nytimes.com/2022/11/14/world/europe/biden-poland-missile-russia.html?searchResultPosition=3
 
-**Enough.**\
+**America Deserves Better Than Donald Trump**\
 `Mr. Trump’s return to the campaign trail poses new dangers to American democracy.`\
 https://nytimes.com/2022/11/15/opinion/trump-2024-announcement.html?searchResultPosition=4
 
