@@ -10,7 +10,7 @@ https://nytimes.com/video/us/politics/100000008641377/mcconnell-senate-challenge
 `Five Los Angeles County Sheriff’s Department cadets were in critical condition after a car plowed into them during a training run.`\
 https://nytimes.com/video/us/100000008641365/la-county-sheriffs-recruits-hit-car.html?searchResultPosition=3
 
-**Car Plows Into Sheriff’s Recruits in L.A. County, Injuring 22**\
+**Driver Plows Into Sheriff’s Recruits in L.A. County, Injuring 22**\
 `At least five cadets were in critical condition after they were struck on a morning run in South Whittier. The driver was in custody, the authorities said.`\
 https://nytimes.com/2022/11/16/us/la-sheriff-recruits-whittier-crash.html?searchResultPosition=4
 
