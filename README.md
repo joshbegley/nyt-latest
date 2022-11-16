@@ -1,5 +1,5 @@
 **We Fact-Checked Trump’s Speech**\
-`Former President Donald J. Trump made a number of claims about his policies and President Biden’s record. We are checking them for accuracy.`\
+`Former President Donald J. Trump made a number of claims about his policies and President Biden’s record. We checked them for accuracy.`\
 https://nytimes.com/2022/11/15/us/we-are-fact-checking-trumps-speech.html?searchResultPosition=1
 
 **Trump’s Announcement Is a Sign of Weakness**\
