@@ -6,7 +6,7 @@ https://nytimes.com/2022/11/15/pageoneplus/corrections-nov-16-2022.html?searchRe
 `Security forces fired on a crowd at a metro station on Tuesday, setting off a panicked rush of commuters, video showed.`\
 https://nytimes.com/2022/11/15/world/middleeast/iran-protests-tehran-metro-shooting.html?searchResultPosition=2
 
-**Poland Says Russian-Made Missile Killed 2 Inside Its Borders**\
+**Poland Suggests Russian-Made Missile Killed 2 Inside Its Borders**\
 `The explosion in a Polish village across the border from Ukraine occurred as Russia bombarded Ukrainian cities with about 100 missiles.`\
 https://nytimes.com/2022/11/15/world/europe/poland-ukraine-russia-nato.html?searchResultPosition=3
 
