@@ -7,7 +7,7 @@ https://nytimes.com/2022/11/16/science/cows-hemp-thc.html?searchResultPosition=1
 https://nytimes.com/2022/11/16/world/europe/missile-explosion-przewodow-poland.html?searchResultPosition=2
 
 **House Considers Seating a Delegate From the Cherokee Nation**\
-`Kim Teehee was named to the post in 2019, and seating her as a nonvoting delegate would fulfill part of 1836 treaty.`\
+`Kim Teehee was named to the post in 2019, and seating her as a nonvoting delegate would fulfill part of treaty signed in 1836.`\
 https://nytimes.com/2022/11/16/us/elections/house-delegate-cherokee-nation.html?searchResultPosition=3
 
 **Expectations Run High as an Exuberant Lula Speaks at Climate Summit**\
