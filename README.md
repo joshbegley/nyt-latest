@@ -1,5 +1,5 @@
 **Alabama to Execute Man Whose Jury Voted 11-1 to Spare Him**\
-`Kevin Eugene Smith’s execution was set to take place on Thursday evening after the Supreme Court rejected an appeal from the man’s lawyers.`\
+`Kevin Eugene Smith was set to be put to death on Thursday evening after the Supreme Court rejected an appeal from his lawyers.`\
 https://nytimes.com/2022/11/17/us/alabama-execution-kenneth-smith.html?searchResultPosition=1
 
 **Officer in Charge of Uvalde Police on Day of School Shooting Steps Down**\
