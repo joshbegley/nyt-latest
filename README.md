@@ -3,7 +3,7 @@
 https://nytimes.com/2022/11/17/world/middleeast/gaza-fire-jabaliya.html?searchResultPosition=1
 
 **Portrait of a Speaker: Nancy Pelosi’s Most Enduring Moments**\
-`From becoming the first woman speaker to the impeachments of Donald J. Trump, Nancy Pelosi has been one of the most visible women in Washington.`\
+`From becoming the first woman speaker to leading the impeachments of Donald J. Trump, Nancy Pelosi has been one of the most visible women in Washington.`\
 https://nytimes.com/2022/11/17/us/politics/nancy-pelosi-photos.html?searchResultPosition=2
 
 **Alabama to Execute Man Whose Jury Voted 11-1 to Spare Him**\
