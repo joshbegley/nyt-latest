@@ -10,7 +10,7 @@ https://nytimes.com/2022/11/17/books/review/9-new-books-we-recommend-this-week.h
 `Plus, Nancy Pelosi leaves leadership and the week in culture.`\
 https://nytimes.com/2022/11/17/briefing/mh17-ukraine-convictions-asia.html?searchResultPosition=3
 
-**Ticketmaster Cancels Sale of Taylor Swift Tickets After Glitches**\
+**Ticketmaster Cancels Sale of Taylor Swift Tickets After Snags**\
 `After a presale for the pop star’s Eras Tour ended in chaos earlier this week, the ticket broker canceled its plans to sell tickets to the general public on Friday.`\
 https://nytimes.com/2022/11/17/arts/music/taylor-swift-tickets-ticketmaster.html?searchResultPosition=4
 
