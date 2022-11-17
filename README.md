@@ -1,6 +1,6 @@
 **New Chief Calls FTX’s Corporate Control a ‘Complete Failure’**\
 `“This situation is unprecedented,” said John J. Ray III, who helped manage Enron after its collapse in an accounting fraud scandal in 2001.`\
-https://nytimes.com/2022/11/17/business/ftx-banktrupcty.html?searchResultPosition=1
+https://nytimes.com/2022/11/17/business/ftx-bankruptcy.html?searchResultPosition=1
 
 **Investor Losses From FTX’s Implosion Are Growing**\
 `The crypto exchange’s collapse is stoking fears of contagion across the industry. Meanwhile, FTX’s founder, Sam Bankman-Fried, is still speaking out.`\
