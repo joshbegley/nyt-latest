@@ -1,6 +1,6 @@
 **Children’s Groups Want F.T.C. to Ban ‘Unfair’ Online Manipulation of Kids**\
 `Children’s privacy and health experts pressed regulators to prohibit video games and social networks from using attention-hacking techniques on youngsters.`\
-https://nytimes.com/2022/11/17/business/childrens-groups-want-ftc-to-ban-unfair-online-manipulation-of-kids.html?searchResultPosition=1
+https://nytimes.com/2022/11/17/business/ftc-childrens-privacy.html?searchResultPosition=1
 
 **Homes for Sale in Brooklyn and Manhattan**\
 `This week’s properties are in Bay Ridge, Sutton Place and the Upper East Side.`\
