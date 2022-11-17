@@ -8,7 +8,7 @@ https://nytimes.com/2022/11/17/well/live/mouth-taping-benefits-sleep.html?search
 
 **Steven Ginsberg Named Editor of The Athletic**\
 `Mr. Ginsberg, a longtime editor at The Washington Post, will start in the newly created role in January.`\
-https://nytimes.com/2022/11/17/business/media/steven-ginsberg-named-editor-of-the-athletic.html?searchResultPosition=3
+https://nytimes.com/2022/11/17/business/media/steven-ginsberg-the-athletic-editor.html?searchResultPosition=3
 
 **What’s Going On in This Graph? | Nov. 30, 2022**\
 `How does life expectancy differ among ethnic and racial groups? How has Covid changed this relationship?`\
