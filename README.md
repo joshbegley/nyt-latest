@@ -1,6 +1,6 @@
 **The Pleasure of the Luxe Advent Calendar**\
 `Here are five opulent options on the market this year.`\
-https://nytimes.com/2022/11/17/style/the-pleasure-of-the-luxe-advent-calendar.html?searchResultPosition=1
+https://nytimes.com/2022/11/17/style/luxury-advent-calendar-christmas.html?searchResultPosition=1
 
 **A Test for C.T.E. in the Living May Be Closer Than Ever**\
 `A 2019 scientific breakthrough and recent studies have given leading researchers optimism that C.T.E. could soon be detected in blood samples or via brain scans.`\
