@@ -1,5 +1,5 @@
 **Lauren Boebert’s House race is nearing a conclusion, or a recount.**\
-`The race, in Colorado’s Third Congressional District, is one of the few that remains undecided. Adam Frisch, the Democratic challenger, trails Boebert, the Republican incumbent, by a mere 0.34 percentage points.`\
+`The race, in Colorado’s Third Congressional District, is one of the few that remain undecided. Adam Frisch, the Democratic challenger, trails Ms. Boebert, the Republican incumbent, by a mere 0.34 percentage points.`\
 https://nytimes.com/2022/11/17/us/politics/lauren-boebert-election-results.html?searchResultPosition=1
 
 **‘The Crown’: The Story of Mohamed Al-Fayed and His Valet**\
