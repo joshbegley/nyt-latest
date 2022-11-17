@@ -6,7 +6,7 @@ https://nytimes.com/2022/11/17/style/the-pleasure-of-the-luxe-advent-calendar.ht
 `A 2019 scientific breakthrough and recent studies have given leading researchers optimism that C.T.E. could soon be detected in blood samples or via brain scans.`\
 https://nytimes.com/2022/11/17/sports/football/cte-test-concussions-alzheimers.html?searchResultPosition=2
 
-**Britain Gets a New Budget Today: Here’s What to Expect**\
+**What to Expect from the U.K.’s Budget Proposals Today**\
 `Tax increases and spending cuts are expected as the government tries to stabilize its finances and reassure financial markets.`\
 https://nytimes.com/2022/11/17/world/europe/britain-budget-taxes.html?searchResultPosition=3
 
