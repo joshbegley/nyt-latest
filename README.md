@@ -8,7 +8,7 @@ https://nytimes.com/2022/11/17/sports/football/cte-test-concussions-alzheimers.h
 
 **What to Expect From the U.K.’s Budget Proposals Today**\
 `Tax increases and spending cuts are expected as the government tries to stabilize its finances and reassure financial markets.`\
-https://nytimes.com/2022/11/17/world/europe/britain-budget-taxes.html?searchResultPosition=3
+https://nytimes.com/2022/11/17/world/europe/uk-budget-taxes.html?searchResultPosition=3
 
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
