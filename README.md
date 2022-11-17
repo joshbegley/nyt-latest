@@ -30,11 +30,11 @@ https://nytimes.com/2022/11/17/us/elections/hakeem-jeffries-house-democrats-pelo
 `A portion of the proceeds from the sale of the mural, rediscovered after 30 years, will return to Mount Sinai Kravis Children’s Hospital, where the mural was originally housed.`\
 https://nytimes.com/2022/11/17/arts/design/keith-haring-mural-auction.html?searchResultPosition=8
 
+**Brittney Griner is transferred to a penal colony outside Moscow, her lawyers say.**\
+`The W.N.B.A. star, who has been detained in Russia since February, is facing nine years in a Russian prison on a drug charge.`\
+https://nytimes.com/2022/11/17/world/europe/brittney-griner-russia-penal-colony.html?searchResultPosition=9
+
 **Family of Egyptian Political Prisoner Says He Had Near-Death Experience**\
 `Alaa Abd El Fattah, who is being given nutrients intravenously, told his relatives he collapsed in prison but planned to resume his hunger strike again.`\
-https://nytimes.com/2022/11/17/world/middleeast/egypt-alaa-abd-el-fattah.html?searchResultPosition=9
-
-**What Students Are Saying About the Foods That Remind Them of the People They Love**\
-`Teenagers share the dishes and culinary traditions that have been passed down in their families.`\
-https://nytimes.com/2022/11/17/learning/what-students-are-saying-about-the-foods-that-remind-them-of-the-people-they-love.html?searchResultPosition=10
+https://nytimes.com/2022/11/17/world/middleeast/egypt-alaa-abd-el-fattah.html?searchResultPosition=10
 
