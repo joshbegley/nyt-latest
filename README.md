@@ -4,7 +4,7 @@ https://nytimes.com/2022/11/18/business/nelson-partners-lawsuit.html?searchResul
 
 **Ukrainian Teenager Who Fled War Will Play at Carnegie Hall**\
 `Dmytro Tishyn, who left his hometown with only a backpack and his father’s bassoon, will be playing with the New York Youth Symphony on Sunday.`\
-https://nytimes.com/live/2022/11/18/world/russia-ukraine-war-news/ukrainian-teenager-carnegie-hall?searchResultPosition=2
+https://nytimes.com/2022/11/18/arts/music/ukrainian-teenager-carnegie-hall.html?searchResultPosition=2
 
 **Novak Djokovic Finds Harmony and a Lot of Wins**\
 `Djokovic missed long stretches of the tennis season because he has refused to get vaccinated against Covid-19. That has only made him more determined.`\
