@@ -1,6 +1,6 @@
 **The Charming Star With Soulful Eyes Happens to Be a Donkey**\
 `The “EO” filmmakers wanted to tell their story via a silent animal but felt dogs or cats were clichéd. Their choice turned out to be anything but stubborn.`\
-https://nytimes.com/2022/11/18/movies/the-charming-star-with-soulful-eyes-happens-to-be-a-donkey.html?searchResultPosition=1
+https://nytimes.com/2022/11/18/movies/eo-donkey-banshees-of-inisherin-triangle-of-sadness.html?searchResultPosition=1
 
 **Stefanos Tsitsipas and Giving Back**\
 `Ranked No. 1 in the world as a junior player, Stefanos Tsitsipas has ascended to the top ranks of men’s tennis, becoming one of only two Greek players to reach the No. 3 spot.`\
