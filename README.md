@@ -1,40 +1,40 @@
+**What Employees Does Twitter Need, Anyway?**\
+`The many departures have set off a wave of hand-wringing about whether the site can continue to operate well.`\
+https://nytimes.com/2022/11/18/technology/twitter-employees-needed.html?searchResultPosition=1
+
+**Your Friday Evening Briefing**\
+`Here’s what you need to know at the end of the day.`\
+https://nytimes.com/2022/11/18/briefing/special-counsel-donald-trump-world-cup.html?searchResultPosition=2
+
+**A Family's Quest for the Perfect Tequila**\
+`TKTK`\
+https://nytimes.comhttp://brandedplaylist.nytimes.com/video/embedded/t-brand/100000008644005/a-familys-quest-for-the-perfect-tequila.html?searchResultPosition=3
+
 **Ohio Authorities Link Man to 1978 Murder and Say He May Have Killed 3 Others**\
 `Prosecutors said that Ralph Howell, who died in 1985, raped and murdered a Cincinnati college student, and are convinced he was a serial killer.`\
-https://nytimes.com/2022/11/18/us/dna-ralph-howell-murder-ohio.html?searchResultPosition=1
+https://nytimes.com/2022/11/18/us/dna-ralph-howell-murder-ohio.html?searchResultPosition=4
 
 **Hakeem Jeffries, Pressing to Lead Democrats, Marks a Generational Shift**\
 `The congressman, who has served in the House for a decade, would be a far different leader from Speaker Nancy Pelosi, whom he is running to succeed.`\
-https://nytimes.com/2022/11/18/us/politics/hakeem-jeffries-generational-shift.html?searchResultPosition=2
+https://nytimes.com/2022/11/18/us/politics/hakeem-jeffries-generational-shift.html?searchResultPosition=5
 
 **Elizabeth Holmes Is Sentenced to More Than 11 Years for Fraud**\
 `Ms. Holmes was convicted in January of four counts of wire fraud for deceiving investors with claims about her blood testing start-up Theranos.`\
-https://nytimes.com/2022/11/18/technology/elizabeth-holmes-sentence-theranos.html?searchResultPosition=3
+https://nytimes.com/2022/11/18/technology/elizabeth-holmes-sentence-theranos.html?searchResultPosition=6
 
 **At Danksgiving, There’s No Need to Go Outside for a Smoke**\
 `For a certain kind of Thanksgiving celebration, cannabis — in all its forms — is a key component of the year’s biggest meal.`\
-https://nytimes.com/2022/11/18/dining/thanksgiving-smoking-weed.html?searchResultPosition=4
+https://nytimes.com/2022/11/18/dining/thanksgiving-smoking-weed.html?searchResultPosition=7
 
 **Manhattan D.A. Slams Brakes on Prosecution of Woman in Husband’s Death**\
 `Tracy McCarter was charged with killing her estranged husband. District Attorney Alvin L. Bragg said he was not persuaded of her guilt.`\
-https://nytimes.com/2022/11/18/nyregion/tracy-mccarter-alvin-bragg.html?searchResultPosition=5
+https://nytimes.com/2022/11/18/nyregion/tracy-mccarter-alvin-bragg.html?searchResultPosition=8
 
 **Suspect in University of Virginia Shooting Had Guns in His Dorm Room, Report Says**\
 `Authorities found a semiautomatic rifle, a pistol and ammunition, according to a local newspaper.`\
-https://nytimes.com/2022/11/18/us/uva-shooting-guns.html?searchResultPosition=6
+https://nytimes.com/2022/11/18/us/uva-shooting-guns.html?searchResultPosition=9
 
 **Keith Levene, Public Image Ltd.’s Buzz-Saw Guitarist, Dies at 65**\
 `Considered a post-punk pioneer, he was also a founding member of the Clash but left before it became one of the biggest bands of its era.`\
-https://nytimes.com/2022/11/18/arts/music/keith-levene-dead.html?searchResultPosition=7
-
-**Digging In for Winter**\
-`A slow grind on the battlefield appears likely in the coming months.`\
-https://nytimes.com/2022/11/18/briefing/russia-ukraine-war-winter-missiles.html?searchResultPosition=8
-
-**Judge Blocks Student Housing Firm From Collecting $14 Million**\
-`The ruling is the latest twist in an ongoing battle that Nelson Partners Student Housing has waged with investors and students.`\
-https://nytimes.com/2022/11/18/business/nelson-partners-lawsuit.html?searchResultPosition=9
-
-**Ukrainian Teenager Who Fled War Will Play at Carnegie Hall**\
-`Dmytro Tishyn, who left his hometown with only a backpack and his father’s bassoon, will be playing with the New York Youth Symphony on Sunday.`\
-https://nytimes.com/2022/11/18/arts/music/ukrainian-teenager-carnegie-hall.html?searchResultPosition=10
+https://nytimes.com/2022/11/18/arts/music/keith-levene-dead.html?searchResultPosition=10
 
