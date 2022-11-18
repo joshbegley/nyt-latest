@@ -1,5 +1,5 @@
 **Justice Department Said to Investigate Ticketmaster’s Parent Company**\
-`The inquiry predates the botched presale of Taylor Swift tickets this week and is said to focus on whether Live Nation has abused it power in the live music industry.`\
+`The inquiry predates the botched presale of Taylor Swift tickets this week and is said to focus on whether Live Nation has abused its power in the live music industry.`\
 https://nytimes.com/2022/11/18/technology/live-nation-ticketmaster-investigation-taylor-swift.html?searchResultPosition=1
 
 **Are the Federal Reserve’s Rate Increases Working?**\
