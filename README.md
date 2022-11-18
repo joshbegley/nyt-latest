@@ -8,7 +8,7 @@ https://nytimes.com/2022/11/18/style/baby2baby.html?searchResultPosition=2
 
 **The State of the N.F.L.’s Playoff Push**\
 `Who's a virtual lock for the postseason, according to The Upshot's playoff simulator, and who has work to do?`\
-https://nytimes.com/interactive/2022/11/18/sports/football/18nfl-playoff-burst.html?searchResultPosition=3
+https://nytimes.com/interactive/2022/11/18/sports/football/nfl-playoff-race.html?searchResultPosition=3
 
 **Garland to Name Special Counsel for Trump Investigations**\
 `The attorney general is scheduled to make the announcement just days after former President Donald J. Trump announced that he would seek the White House again in 2024.`\
