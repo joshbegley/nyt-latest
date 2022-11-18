@@ -30,11 +30,11 @@ https://nytimes.com/2022/11/18/opinion/biden-place-based-aid.html?searchResultPo
 `The Philharmonic began to simulcast concerts on the 50-foot media wall in its lobby. Led by Hannu Lintu, they were some of the best this season.`\
 https://nytimes.com/2022/11/18/arts/music/new-york-philharmonic-hannu-lintu-review.html?searchResultPosition=8
 
+**Who Is Jack Smith, the New Special Counsel?**\
+`Mr. Smith will take on the role of special counsel after leaving his current position as a specialist prosecutor based in The Hague investigating war crimes.`\
+https://nytimes.com/2022/11/18/us/politics/jack-smith-special-counsel-trump.html?searchResultPosition=9
+
 **F.D.A. Approves a Drug That Can Delay Type 1 Diabetes**\
 `The therapy will cost nearly $200,000. But it’s the first treatment in 100 years to alter the course of the disease, which usually begins in adolescence.`\
-https://nytimes.com/2022/11/18/health/fda-type-1-diabetes-delay.html?searchResultPosition=9
-
-**Oil Prices Slide as Investors Worry Energy Demand Is Slowing**\
-`The U.S. benchmark oil price fell below $80 a barrel on Friday, and gasoline prices in some states are now close to $3 a gallon.`\
-https://nytimes.com/2022/11/18/business/energy-environment/oil-prices-fall.html?searchResultPosition=10
+https://nytimes.com/2022/11/18/health/fda-type-1-diabetes-delay.html?searchResultPosition=10
 
