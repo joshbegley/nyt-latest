@@ -1,4 +1,4 @@
-**Manhattan Prosecutor Ends Murder Case Against Domestic Violence Victim**\
+**Manhattan D.A. Declines to Prosecute Woman in Husband’s Death**\
 `Tracy McCarter was charged with killing her estranged husband. District Attorney Alvin L. Bragg said he was not persuaded of her guilt.`\
 https://nytimes.com/2022/11/18/nyregion/tracy-mccarter-alvin-bragg.html?searchResultPosition=1
 
