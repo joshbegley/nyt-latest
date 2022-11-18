@@ -6,7 +6,7 @@ https://nytimes.com/2022/11/18/arts/lincoln-gettysburg-address-oakley.html?searc
 `Twenty-one people were killed after a fire broke out during a family celebration in the northern Gaza neighborhood of Jabaliya.`\
 https://nytimes.com/video/world/middleeast/100000008645352/gaza-fire-funeral.html?searchResultPosition=2
 
-**In Buffalo, Two Feet of Snow on the Ground and More Expected**\
+**In Buffalo Area, Two Feet of Snow on the Ground and More Expected**\
 `A storm lasting through the weekend is underway on the eastern coasts of Lakes Erie and Ontario.`\
 https://nytimes.com/2022/11/18/nyregion/buffalo-snow-storm-ny.html?searchResultPosition=3
 
