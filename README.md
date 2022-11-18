@@ -12,7 +12,7 @@ https://nytimes.com/2022/11/18/fashion/holiday-presents-regifting.html?searchRes
 
 **The New York Times News Quiz, November 18, 2022**\
 `Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://nytimes.com/interactive/2022/11/18/briefing/beyonce-pelosi.html?searchResultPosition=4
+https://nytimes.com/interactive/2022/11/18/briefing/18-news-quiz.html?searchResultPosition=4
 
 **Anselm Kiefer Raises History’s Ghosts**\
 `On his vast estate in southern France and in two new U.S. exhibitions, the German-born artist conjures a world that hovers in the penumbra between life and death.`\
