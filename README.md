@@ -1,32 +1,32 @@
+**Russia Raises Hopes for Griner’s Release, but U.S. Says It’s Just Talk**\
+`The State Department says Russia refuses to negotiate seriously to free the basketball star Brittney Griner, who was sent to a penal colony with a nine-year sentence on a cannabis charge.`\
+https://nytimes.com/2022/11/18/world/europe/russia-us-brittney-griner.html?searchResultPosition=1
+
 **Democratic Centrists Lament Missed Opportunities to Keep the House**\
 `After an election this close, Democrats are debating whether losing the majority was so inevitable after all.`\
-https://nytimes.com/2022/11/18/us/politics/democrats-midterms.html?searchResultPosition=1
+https://nytimes.com/2022/11/18/us/politics/democrats-midterms.html?searchResultPosition=2
 
 **Maryland Finds That for Hundreds of Clergy Abuse Victims, ‘No Parish Was Safe’**\
 `The state attorney general investigated more than 80 years of sexual and physical abuse in the Archdiocese of Baltimore.`\
-https://nytimes.com/2022/11/18/us/baltimore-priest-sexual-abuse.html?searchResultPosition=4
+https://nytimes.com/2022/11/18/us/baltimore-priest-sexual-abuse.html?searchResultPosition=5
 
 **A Georgia judge allows another Saturday of early voting in the Senate runoff, a victory for Democrats.**\
 `Democrats had argued that a 2016 state law restricting early voting on a Saturday near a federal holiday, in this case Thanksgiving, would unfairly disenfranchise voters in the state’s runoff election for Senate.`\
-https://nytimes.com/2022/11/18/us/elections/georgia-runoff-early-voting.html?searchResultPosition=5
+https://nytimes.com/2022/11/18/us/elections/georgia-runoff-early-voting.html?searchResultPosition=6
 
 **Sheriff’s Report on ‘Rust’ Shooting Doesn’t Find Source of Live Rounds**\
 `A central question in the death of the film’s cinematographer was unanswered in the report delivered to prosecutors, who previously indicated that up to four people could be charged.`\
-https://nytimes.com/2022/11/18/movies/rust-shooting-report.html?searchResultPosition=6
+https://nytimes.com/2022/11/18/movies/rust-shooting-report.html?searchResultPosition=7
 
 **3 Women Are Fatally Stabbed in Queens Home**\
 `A grandmother, her daughter and stepdaughter were found dead by a home health aide.`\
-https://nytimes.com/2022/11/18/nyregion/queens-stabbing-fatal.html?searchResultPosition=7
+https://nytimes.com/2022/11/18/nyregion/queens-stabbing-fatal.html?searchResultPosition=8
 
 **What Makes a Special Counsel ‘Special’?**\
 `Former President Donald J. Trump’s continuing presence on the political scene has prompted the appointment of a third special counsel.`\
-https://nytimes.com/2022/11/18/us/politics/special-counsel-meaning-trump.html?searchResultPosition=8
+https://nytimes.com/2022/11/18/us/politics/special-counsel-meaning-trump.html?searchResultPosition=9
 
 **As More Top Law Schools Boycott Rankings, Others Say They Can’t Afford to Leave**\
 `Three schools joined Yale and Harvard’s rebellion against U.S. News. And the bar association will no longer require schools to mandate the LSAT or GRE. But rankings still matter.`\
-https://nytimes.com/2022/11/18/us/law-school-rankings-test-scores.html?searchResultPosition=9
-
-**What Employees Does Twitter Need, Anyway?**\
-`The many departures have set off a wave of hand-wringing about whether the site can continue to operate well.`\
-https://nytimes.com/2022/11/18/technology/twitter-employees-needed.html?searchResultPosition=10
+https://nytimes.com/2022/11/18/us/law-school-rankings-test-scores.html?searchResultPosition=10
 
