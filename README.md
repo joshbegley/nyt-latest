@@ -7,7 +7,7 @@ https://nytimes.com/2022/11/18/technology/twitter-employees-needed.html?searchRe
 https://nytimes.com/2022/11/18/briefing/special-counsel-donald-trump-world-cup.html?searchResultPosition=2
 
 **A Family's Quest for the Perfect Tequila**\
-`TKTK`\
+`The Jose Cuervo family has been crafting tequila for generations. When they celebrated their 200th anniversary, they decided to share their premium Reserva de La Familia tequila with the world.`\
 https://nytimes.comhttp://brandedplaylist.nytimes.com/video/embedded/t-brand/100000008644005/a-familys-quest-for-the-perfect-tequila.html?searchResultPosition=3
 
 **Ohio Authorities Link Man to 1978 Murder and Say He May Have Killed 3 Others**\
