@@ -1,40 +1,40 @@
+**Corrections: Nov. 18, 2022**\
+`Corrections that appeared in print on Friday, Nov. 18, 2022.`\
+https://nytimes.com/2022/11/18/world/corrections-nov-18-2022.html?searchResultPosition=1
+
+**Quotation of the Day: One of Ukraine’s Biggest Battles Is Keeping the Lights On Until Spring**\
+`Quotation of the Day for Friday, Nov. 18, 2022.`\
+https://nytimes.com/2022/11/18/pageoneplus/quotation-of-the-day-one-of-ukraines-biggest-battles-is-keeping-the-lights-on-until-spring.html?searchResultPosition=2
+
+**Will Taxing the Windfall Profits of Oil Giants Fix Countries’ Economies?**\
+`Britain is raising a tax on gas and oil producers, and adding a levy on companies that supply electricity — a similar approach to that of other governments chasing revenue.`\
+https://nytimes.com/2022/11/18/business/economy/windfall-taxes.html?searchResultPosition=3
+
+**Who’s Afraid of a Lovely Fern?**\
+`It’s just a plant — but one that takes me back to the traumatic adolescence I tried so hard to escape.`\
+https://nytimes.com/2022/11/18/style/modern-love-childhood-assault-staghorn-fern.html?searchResultPosition=4
+
+**A Union That Defied Tradition Gets a Blessing From Chaka Khan**\
+`Amanda Bupp and Kim Jimenez connected through Instagram in April 2019. A month later, they met in person, shared their first kiss and began a long-distance relationship.`\
+https://nytimes.com/2022/11/18/style/amanda-bupp-kim-jimenez-wedding.html?searchResultPosition=5
+
+**The Parking Lot Conversation That Solidified Their Connection**\
+`When Samantha Moray drove Lanny Grossman to his car after their first date in April 2021, he knew he had to see her again. Three months later he said “she was the one.”`\
+https://nytimes.com/2022/11/18/style/samantha-moray-lanny-grossman-wedding.html?searchResultPosition=6
+
+**He Sold an Xbox and a Printer to Afford Their First Date. It Paid Off.**\
+`Caroline Vazzana and David Lopes met as college students. Nine years later, they had a fashion-filled wedding befitting of a style influencer.`\
+https://nytimes.com/2022/11/18/style/caroline-vazzana-david-lopes-wedding.html?searchResultPosition=7
+
+**For the Love of Community and Artisanal Pasta**\
+`Kristina Gambarian and Ayinde Sankofa became close while working at the same restaurant. Now they are partners in life, love and business.`\
+https://nytimes.com/2022/11/18/style/kristina-gambarian-ayinde-sankofa-wedding.html?searchResultPosition=8
+
+**Kyrie Irving Could Return to the Nets Soon. A Top Jewish Leader Still Hopes to Meet.**\
+`Jonathan Greenblatt, the head of the Anti-Defamation League, was contacted by the Nets after Irving was suspended after highlighting an antisemitic film. On Thursday, Greenblatt said he had yet to speak with Irving directly.`\
+https://nytimes.com/2022/11/17/sports/basketball/kyrie-irving-could-return-to-the-nets-soon-a-top-jewish-leader-still-hopes-to-meet.html?searchResultPosition=9
+
 **Lesser Prairie Chickens Gain Protection Under U.S. Endangered Species Act**\
 `The new listing aims to prevent further loss of habitat for the flamboyant, stocky birds, which have drastically dwindled in population.`\
-https://nytimes.com/2022/11/17/us/lesser-prairie-chicken-endangered.html?searchResultPosition=1
-
-**Variety: Acrostic**\
-`Emily Cox and Henry Rathvon’s puzzle is full of gastronomy.`\
-https://nytimes.com/2022/11/17/crosswords/variety-acrostic.html?searchResultPosition=2
-
-**What You Always Get on Your Birthday**\
-`Have yourself a very Robyn Weintraub Friday.`\
-https://nytimes.com/2022/11/17/crosswords/what-you-always-get-on-your-birthday.html?searchResultPosition=3
-
-**North Korea Appears to Have Launched Another ICBM, South Says**\
-`Japan said the missile landed about 130 miles west of its shores. Personnel at a U.S. Air Force base in Japan were ordered to take cover.`\
-https://nytimes.com/2022/11/17/world/asia/north-korea-missile.html?searchResultPosition=4
-
-**Robert Clary, Who Took a Tragic Journey to ‘Hogan’s Heroes,’ Dies at 96**\
-`After surviving concentration camps as a youth, he went on to star on the hit 1960s sitcom set in a German prisoner-of-war camp.`\
-https://nytimes.com/2022/11/17/arts/television/robert-clary-dead.html?searchResultPosition=5
-
-**Review: On Broadway, ‘& Juliet’ (& Britney & Katy & Pink)**\
-`Shakespeare’s tragedy becomes a girl-power romp in a cotton candy jukebox musical, featuring songs by the Swedish hitmaker Max Martin.`\
-https://nytimes.com/2022/11/17/theater/and-juliet-review.html?searchResultPosition=6
-
-**Pelosi’s Decision to Step Aside Paves Path for a New Generation of Democrats**\
-`Representatives Hakeem Jeffries of New York, Katherine Clark of Massachusetts and Pete Aguilar of California were widely expected to seek the top three slots.`\
-https://nytimes.com/2022/11/17/us/politics/pelosi-jeffries-clark-house-democrats.html?searchResultPosition=7
-
-**The Power of Quitting**\
-`Society often tells us that it’s admirable to persist at all costs. But a new book by a professional poker player says sometimes you need to walk away.`\
-https://nytimes.com/2022/11/17/well/quit-annie-duke.html?searchResultPosition=8
-
-**Biden Administration Offers New Path to Discharging Student Debt in Bankruptcy**\
-`The Justice and Education Departments said the process would be more fair and consistent for people in bankruptcy seeking relief on their federal student loans.`\
-https://nytimes.com/2022/11/17/your-money/bankruptcy-student-loans.html?searchResultPosition=9
-
-**Capping a Record-Setting Year, Aaron Judge Wins A.L. M.V.P.**\
-`Judge, a slugging outfielder for the Yankees, swatted 62 home runs and beat out Shohei Ohtani, the Angels’ two-way superstar, for the American League’s top honor.`\
-https://nytimes.com/2022/11/17/sports/baseball/aaron-judge-al-mvp.html?searchResultPosition=10
+https://nytimes.com/2022/11/17/us/lesser-prairie-chicken-endangered.html?searchResultPosition=10
 
