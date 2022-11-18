@@ -12,7 +12,7 @@ https://nytimes.com/2022/11/18/technology/elon-musk-twitter-workers-quit.html?se
 
 **Watch Live: Garland Addresses Investigations Into Trump**\
 `Attorney General Merrick B. Garland names special counsel for Trump investigations.`\
-https://nytimes.com/video/us/politics/100000008645877/garland-trump-special-counsel-live-video.html?searchResultPosition=4
+https://nytimes.com/video/embedded/us/politics/100000008645877/garland-trump-special-counsel-live-video.html?searchResultPosition=4
 
 **A Cinematic Los Angeles Apartment With Nods to David Bowie**\
 `The designer Tiffany Howell transformed a well-loved home once shared by her clients with their many college roommates into a sophisticated ’70s-inspired sanctuary.`\
