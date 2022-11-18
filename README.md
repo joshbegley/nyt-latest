@@ -18,7 +18,7 @@ https://nytimes.com/2022/11/18/arts/music/review-travel-guide-to-nicaragua-micha
 `How we think about philanthropy.`\
 https://nytimes.com/2022/11/18/opinion/effective-altruism.html?searchResultPosition=5
 
-**Are You a Member of Gen Z Spending Too Much on Your Rent or Mortgage?**\
+**Are You a Member of Gen Z Spending Too Much on Your Housing?**\
 `With today’s inflation and skyrocketing housing costs, 30 percent of monthly income designated for rent might not cut it. We want to hear from members of Gen Z on their experiences.`\
 https://nytimes.com/2022/11/18/realestate/gen-z-rent-mortgage.html?searchResultPosition=6
 
