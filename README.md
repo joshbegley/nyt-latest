@@ -7,7 +7,7 @@ https://nytimes.com/2022/11/18/arts/lincoln-gettysburg-address-oakley.html?searc
 https://nytimes.com/video/world/middleeast/100000008645352/gaza-fire-funeral.html?searchResultPosition=2
 
 **In Buffalo, Two Feet of Snow on the Ground and More Expected**\
-`A snow event lasting through the weekend is underway on the eastern coasts of Lakes Erie and Ontario.`\
+`A storm lasting through the weekend is underway on the eastern coasts of Lakes Erie and Ontario.`\
 https://nytimes.com/2022/11/18/nyregion/buffalo-snow-storm-ny.html?searchResultPosition=3
 
 **Gucci Mane’s Tribute to Takeoff, and 6 More New Songs**\
