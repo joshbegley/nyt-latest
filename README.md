@@ -7,7 +7,7 @@ https://nytimes.com/2022/11/17/crosswords/variety-acrostic.html?searchResultPosi
 https://nytimes.com/2022/11/17/crosswords/what-you-always-get-on-your-birthday.html?searchResultPosition=2
 
 **North Korea Appears to Have Launched Another ICBM, South Says**\
-`If confirmed, it would be the North’s second test of an intercontinental ballistic missile this month.`\
+`Japan said the missile appeared to have landed about 130 miles west of its shores.`\
 https://nytimes.com/2022/11/17/world/asia/north-korea-missile.html?searchResultPosition=3
 
 **Robert Clary, Who Took a Tragic Journey to ‘Hogan’s Heroes,’ Dies at 96**\
