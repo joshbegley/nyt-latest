@@ -1,10 +1,10 @@
 **Rishi Sunak, With Elite Pedigree, Must Now Sell Britain on Austerity**\
 `The country’s new prime minister must now persuade ordinary Britons that they should support his government through a painful ordeal of tax increases, spending cuts and a recession.`\
-https://nytimes.com/2022/11/18/world/europe/rishi-sunak-with-elite-pedigree-must-now-sell-britain-on-austerity.html?searchResultPosition=1
+https://nytimes.com/2022/11/18/world/europe/rishi-sunak-uk-budget-economy.html?searchResultPosition=1
 
 **At the Latin Grammys, Youth and Age Were Both Welcome**\
 `Jorge Drexler, Bad Bunny, Rosalía, Christina Aguilera, Christian Nodal and the 95-year-old Angela Álvarez reaped wins at the 23rd annual awards.`\
-https://nytimes.com/2022/11/18/arts/music/latin-grammy-awards.html?searchResultPosition=2
+https://nytimes.com/2022/11/18/arts/music/latin-grammy-awards-winners.html?searchResultPosition=2
 
 **Justice Department Said to Investigate Ticketmaster’s Parent Company**\
 `The inquiry predates the botched presale of Taylor Swift tickets this week and is said to focus on whether Live Nation has abused its power in the live music industry.`\
