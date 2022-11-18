@@ -34,7 +34,7 @@ https://nytimes.com/2022/11/18/style/baby2baby.html?searchResultPosition=8
 `Who's a virtual lock for the postseason, according to The Upshot's playoff simulator, and who has work to do?`\
 https://nytimes.com/interactive/2022/11/18/sports/football/nfl-playoff-race.html?searchResultPosition=9
 
-**Lauren Boebert’s Rival, Adam Frisch, Concedes Their Colorado House Race**\
-`Ms. Boebert and Mr. Frisch have been locked in one of the country’s closest contests as she seeks a second term in the House.`\
-https://nytimes.com/2022/11/18/us/politics/lauren-boebert-colorado-frisch.html?searchResultPosition=10
+**Garland Names Special Counsel for Trump Investigations**\
+`The attorney general made the announcement just days after former President Donald J. Trump announced that he would seek the White House again in 2024.`\
+https://nytimes.com/2022/11/18/us/politics/trump-special-counsel-garland.html?searchResultPosition=10
 
