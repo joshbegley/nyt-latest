@@ -2,7 +2,7 @@
 `Musk, Bezos, Bankman-Fried, Trump: some of our most prominent billionaires laid waste to their carefully cultivated image as benevolent saviors.`\
 https://nytimes.com/2022/11/19/opinion/musk-trump-bezos-bankman-fried-billionaires.html?searchResultPosition=1
 
-**The First H.B.C.U. Gymnastics Team is Aiming Even Higher**\
+**The First H.B.C.U. Gymnastics Team Is Aiming Even Higher**\
 `Fisk University put a gymnastics team together after sensing an opportunity to encourage Black women to compete in the college sport.`\
 https://nytimes.com/2022/11/19/sports/gymnastics-fisk-hbcu.html?searchResultPosition=2
 
