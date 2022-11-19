@@ -10,7 +10,7 @@ https://nytimes.com/2022/11/19/world/europe/ukraine-russia-electrical-grid-rebui
 `A veteran public corruption and war-crimes prosecutor, Jack Smith will take over two Trump-related criminal investigations.`\
 https://nytimes.com/2022/11/19/us/politics/jack-smith-trump-special-counsel.html?searchResultPosition=3
 
-**In a Reversal, U.S. Won’t Block Climate Compensation for Poor Nations**\
+**In a Reversal, the U.S. Won’t Block Climate Compensation for Poor Nations**\
 `A U.S. official said negotiations continue over details for a fund to help developing countries cope with “loss and damage” caused by global warming.`\
 https://nytimes.com/2022/11/19/climate/un-climate-damage-cop27.html?searchResultPosition=4
 
