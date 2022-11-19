@@ -18,17 +18,17 @@ https://nytimes.com/2022/11/19/sports/soccer/world-cup-qatar-2022.html?searchRes
 `Matthew Cortellesi roams the city, photographing its reflection in water and glass. When the evening comes, he’ll sing a few show tunes, too.`\
 https://nytimes.com/2022/11/19/nyregion/matthew-cortellesi-cipriani-cheesemonger.html?searchResultPosition=5
 
+**Hundreds of Protesters in Iran Blinded by Metal Pellets and Rubber Bullets**\
+`Security forces have been firing ammunition that has ruptured the eyes of antigovernment demonstrators in the past two months. “Everything went dark,” one said.`\
+https://nytimes.com/2022/11/19/world/asia/iran-protesters-eye-injuries.html?searchResultPosition=6
+
 **President Biden Is Turning 80. Experts Say Age Is More Than a Number.**\
 `The New York Times spoke to 10 experts in aging to paint a picture of what the next six years might look like for a person of the president’s age.`\
-https://nytimes.com/2022/11/19/us/politics/biden-age-health.html?searchResultPosition=6
+https://nytimes.com/2022/11/19/us/politics/biden-age-health.html?searchResultPosition=7
 
 **Gauging Our Return to Office and the Subways, One Tip at a Time**\
 `It has been over a year since buskers, and their music, returned underground, and their slightly fuller tip jars and instrument cases suggest things may be looking up.`\
-https://nytimes.com/2022/11/19/arts/music/subway-buskers-new-york-city.html?searchResultPosition=7
-
-**Hundreds of Protesters in Iran Blinded by Metal Pellets and Rubber Bullets**\
-`Security forces have been firing ammunition that has ruptured the eyes of antigovernment demonstrators in the past two months. “Everything went dark,” one said.`\
-https://nytimes.com/2022/11/19/world/asia/iran-protesters-eye-injuries.html?searchResultPosition=8
+https://nytimes.com/2022/11/19/arts/music/subway-buskers-new-york-city.html?searchResultPosition=8
 
 **What if You Could Go to the Hospital … at Home?**\
 `Hospital-at-home care is an increasingly common option, and it is often a safer one for older adults. But the future of the approach depends on federal action.`\
