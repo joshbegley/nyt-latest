@@ -6,17 +6,17 @@ https://nytimes.com/2022/11/19/sports/gymnastics-fisk-hbcu.html?searchResultPosi
 `Right-wing extremist violence in the U.S. is part of a global phenomenon. It should be treated that way.`\
 https://nytimes.com/2022/11/19/opinion/us-white-supremacy-violence.html?searchResultPosition=2
 
+**Trump, Macho Macho Victim**\
+`His campaign is off to a special start (as in special counsel).`\
+https://nytimes.com/2022/11/19/opinion/trump-special-counsel.html?searchResultPosition=3
+
 **Leg Booty? Panoramic? Seggs? How TikTok Is Changing Language**\
 `A new vocabulary — a little fun, a little dystopian — has emerged on the social video platform, as creators try to get around algorithms and strict content moderation. They call it algospeak.`\
-https://nytimes.com/2022/11/19/style/tiktok-avoid-moderators-words.html?searchResultPosition=3
+https://nytimes.com/2022/11/19/style/tiktok-avoid-moderators-words.html?searchResultPosition=4
 
 **The Anti-Abortion Movement,After Dobbs and the Midterms**\
 `Readers react to a column by Ross Douthat and two guest essays about abortion after the Supreme Court decision.`\
-https://nytimes.com/2022/11/19/opinion/letters/abortion-dobbs-midterm-elections.html?searchResultPosition=4
-
-**Trump, Macho Macho Victim**\
-`His campaign is off to a special start (as in special counsel).`\
-https://nytimes.com/2022/11/19/opinion/trump-special-counsel.html?searchResultPosition=5
+https://nytimes.com/2022/11/19/opinion/letters/abortion-dobbs-midterm-elections.html?searchResultPosition=5
 
 **Twitter Was Influential in the Pandemic. Are We Better for It?**\
 `Reflecting on what worked and what didn’t.`\
