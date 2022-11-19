@@ -6,7 +6,7 @@ https://nytimes.com/2022/11/19/crosswords/daily-puzzle-2022-11-20.html?searchRes
 `Defense Secretary Lloyd J. Austin III stressed the high stakes of the Russia-Ukraine war for the United States and its allies during a keynote address at the Halifax International Security Forum.`\
 https://nytimes.com/video/world/europe/100000008647244/lloyd-austin-ukraine-russia.html?searchResultPosition=2
 
-**2 Arrested in Threats to New York Jewish Community, Police Say**\
+**2 Men Arrested in Threats to New York Jewish Community, Police Say**\
 `The two were arrested on Saturday at Pennsylvania Station. The police said they seized a large hunting knife and a firearm with a 30-round magazine.`\
 https://nytimes.com/2022/11/19/nyregion/jewish-attacks-threats-new-york.html?searchResultPosition=3
 
