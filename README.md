@@ -2,8 +2,8 @@
 `Mr. Frank played the Green and White Rangers in the campy television show, which featured six teenage high school students who transformed into superheroes to defend Earth against evil aliens.`\
 https://nytimes.com/2022/11/20/arts/television/jason-david-frank-dead.html?searchResultPosition=1
 
-**A patron ‘saved dozens and dozens of lives’ by tackling the Club Q gunman, owner says.**\
-`By Dave Philipps and Charlie Brennan`\
+**Club Q Patron Who Tackled Gunman ‘Saved Dozens and Dozens of Lives’**\
+`The carnage at a Colorado Springs nightclub where at least five people were killed in a shooting on Saturday night could have been far worse, the club’s owners said.`\
 https://nytimes.com/2022/11/20/us/colorado-springs-shooting-gunman-tackled.html?searchResultPosition=2
 
 **How Gregg Berhalter Made the U.S. Team His Own**\
