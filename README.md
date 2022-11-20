@@ -7,7 +7,7 @@ https://nytimes.com/2022/11/20/world/asia/bangladesh-inmates-flee-killed-writer-
 https://nytimes.com/2022/11/20/arts/christies-t-rex-shen-stan.html?searchResultPosition=2
 
 **Nets Lift Suspension of Kyrie Irving**\
-`In his first news conference since his suspension began, Irving said he doesn’t stand for ‘anything close to hate speech or antisemitism.’`\
+`In his first news conference since his suspension began, Irving said he doesn’t stand for “anything close to hate speech or antisemitism.”`\
 https://nytimes.com/2022/11/20/sports/basketball/kyrie-irving-nets-suspension.html?searchResultPosition=3
 
 **Several Killed in Mass Shooting at Colorado Nightclub**\
