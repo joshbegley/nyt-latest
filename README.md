@@ -2,7 +2,7 @@
 `Turkish officials said the airstrikes were a counterterrorism operation against militants it accused of carrying out a bomb attack in Istanbul.`\
 https://nytimes.com/2022/11/20/world/middleeast/turkey-kurds-iraq-syria.html?searchResultPosition=1
 
-**In Asian Town, some of the workers who built the World Cup gather to watch it.**\
+**In Asian Town, Some of the Workers Who Built the World Cup Gather to Watch It**\
 `Qatar’s big show would not have been possible without migrant workers. On Sunday, thousands gathered to gaze at some of their work.`\
 https://nytimes.com/2022/11/20/sports/soccer/world-cup-asian-town-watch.html?searchResultPosition=2
 
