@@ -34,7 +34,7 @@ https://nytimes.com/2022/11/20/sports/ncaafootball/usc-ucla.html?searchResultPos
 `Gratitude means noticing our interdependence`\
 https://nytimes.com/2022/11/20/opinion/gratitude-political-enemies-polarization.html?searchResultPosition=9
 
-**What Holds a Marriage Together, or Doesn’t**\
-`Marriage: Tom and Gisele’s, and others’. Also: Unpaid internships; children and drugs; undocumented farmworkers; Covid tests in New York.`\
-https://nytimes.com/2022/11/20/opinion/letters/marriage-tom-brady-gisele-bundchen.html?searchResultPosition=10
+**Russia and Ukraine again trade blame for shelling at the Zaporizhzhia nuclear plant.**\
+`The United Nations’ nuclear watchdog agency called the strikes “extremely disturbing.”`\
+https://nytimes.com/2022/11/20/world/europe/zaporizhzhia-nuclear-plant-shelling-ukraine.html?searchResultPosition=10
 
