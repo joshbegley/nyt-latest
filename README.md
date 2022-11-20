@@ -1,36 +1,40 @@
-**‘A Light to the World’: University of Virginia Pays Tribute to Shooting Victims**\
-`More than 9,000 people gathered for a memorial service for Devin Chandler, Lavel Davis Jr. and D’Sean Perry.`\
-https://nytimes.com/2022/11/19/us/uva-shooting-memorial.html?searchResultPosition=1
+**World Cup 2022: How Teams Can Advance to the Round of 16**\
+`An overview of the scenarios describing how teams can advance to the knockout round.`\
+https://nytimes.com/interactive/2022/upshot/world-cup-standings.html?searchResultPosition=1
 
-**Elon Musk Reinstates Trump’s Twitter Account**\
-`Mr. Musk, who had asked Twitter users about whether to bring back the former president to the service, said, “The people have spoken.”`\
-https://nytimes.com/2022/11/19/technology/trump-twitter-musk.html?searchResultPosition=2
+**World Cup 2022: How the Netherlands Can Advance to the Round of 16**\
+`Extremely detailed scenarios describing if, and how, the Netherlands can qualify for the next round of the 2022 World Cup.`\
+https://nytimes.com/interactive/2022/upshot/netherlands-world-cup-scores-standings.html?searchResultPosition=2
 
-**Kyrie Irving Apologizes in TV Interview: ‘I Don’t Condone Any Hate Speech’**\
-`The Nets indicated Irving could potentially be available for Sunday’s game but have yet to officially announce the end of his suspension.`\
-https://nytimes.com/2022/11/19/sports/basketball/kyrie-irving-nets.html?searchResultPosition=4
+**World Cup 2022: How France Can Advance to the Round of 16**\
+`Extremely detailed scenarios describing if, and how, France can qualify for the next round of the 2022 World Cup.`\
+https://nytimes.com/interactive/2022/upshot/france-world-cup-scores-standings.html?searchResultPosition=3
 
-**Massive Snowstorm Hits Western New York**\
-`The city of Buffalo and its neighbors experienced potentially record-breaking snowfall, as officials said that more than 70 inches fell in Erie County — with more expected.`\
-https://nytimes.com/video/nyregion/100000008647305/buffalo-ny-snowstorm.html?searchResultPosition=5
+**World Cup 2022: How Germany Can Advance to the Round of 16**\
+`Extremely detailed scenarios describing if, and how, Germany can qualify for the next round of the 2022 World Cup.`\
+https://nytimes.com/interactive/2022/upshot/germany-world-cup-scores-standings.html?searchResultPosition=4
 
-**Fan Club**\
-`Joe Deeney’s Sunday puzzle is for lovers.`\
-https://nytimes.com/2022/11/19/crosswords/daily-puzzle-2022-11-20.html?searchResultPosition=6
+**World Cup 2022: How Tunisia Can Advance to the Round of 16**\
+`Extremely detailed scenarios describing if, and how, Tunisia can qualify for the next round of the 2022 World Cup.`\
+https://nytimes.com/interactive/2022/upshot/tunisia-world-cup-scores-standings.html?searchResultPosition=5
 
-**Ukraine War Is a Preview of Potential ‘Tyranny and Turmoil,’ Austin Says**\
-`Defense Secretary Lloyd J. Austin III stressed the high stakes of the Russia-Ukraine war for the United States and its allies during a keynote address at the Halifax International Security Forum.`\
-https://nytimes.com/video/world/europe/100000008647244/lloyd-austin-ukraine-russia.html?searchResultPosition=7
+**World Cup 2022: How the United States Can Advance to the Round of 16**\
+`Extremely detailed scenarios describing if, and how, the United States can qualify for the next round of the 2022 World Cup.`\
+https://nytimes.com/interactive/2022/upshot/united-states-world-cup-scores-standings.html?searchResultPosition=6
 
-**2 Men Arrested in Threats to New York Jewish Community, Police Say**\
-`The two were arrested on Saturday at Pennsylvania Station. The police said they seized a large hunting knife and a firearm with a 30-round magazine.`\
-https://nytimes.com/2022/11/19/nyregion/jewish-attacks-threats-new-york.html?searchResultPosition=8
+**World Cup 2022: How Wales Can Advance to the Round of 16**\
+`Extremely detailed scenarios describing if, and how, Wales can qualify for the next round of the 2022 World Cup.`\
+https://nytimes.com/interactive/2022/upshot/wales-world-cup-scores-standings.html?searchResultPosition=7
 
-**Kyiv Train Arrives in Kherson for the First Time in 9 Months**\
-`The 11-hour journey signaled the start of regular service between the two cities for the first time since Russia invaded Ukraine.`\
-https://nytimes.com/video/world/europe/100000008647175/ukraine-train-kyiv-kherson.html?searchResultPosition=9
+**World Cup 2022: How Switzerland Can Advance to the Round of 16**\
+`Extremely detailed scenarios describing if, and how, Switzerland can qualify for the next round of the 2022 World Cup.`\
+https://nytimes.com/interactive/2022/upshot/switzerland-world-cup-scores-standings.html?searchResultPosition=8
 
-**‘Love and Rockets,’ a Series that Helped Redefine Comics, Turns 40**\
-`With its Chicana punk rockers and panels of untranslated Spanish, “Rockets” was unlike anything else — and, it turns out, just what the world of comics was craving.`\
-https://nytimes.com/2022/11/19/books/love-and-rockets-hernandez-bros.html?searchResultPosition=10
+**World Cup 2022: How Qatar Can Advance to the Round of 16**\
+`Extremely detailed scenarios describing if, and how, Qatar can qualify for the next round of the 2022 World Cup.`\
+https://nytimes.com/interactive/2022/upshot/qatar-world-cup-scores-standings.html?searchResultPosition=9
+
+**World Cup 2022: How Portugal Can Advance to the Round of 16**\
+`Extremely detailed scenarios describing if, and how, Portugal can qualify for the next round of the 2022 World Cup.`\
+https://nytimes.com/interactive/2022/upshot/portugal-world-cup-scores-standings.html?searchResultPosition=10
 
