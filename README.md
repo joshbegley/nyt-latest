@@ -4,7 +4,7 @@ https://nytimes.com/2022/11/20/movies/michael-j-fox-diane-warren-cher-governors-
 
 **Watch Live: Officials Give Update on Nightclub Shooting in Colorado**\
 `At least five people were killed and 18 injured in a shooting at an L.G.B.T.Q. nightclub in Colorado Springs.`\
-https://nytimes.com/video/us/100000008647924/colorado-springs-shooting-press-conference.html?searchResultPosition=2
+https://nytimes.com/video/embedded/us/100000008647924/colorado-springs-shooting-press-conference.html?searchResultPosition=2
 
 **Migrants hired to work at the opening match waited all day without food and water.**\
 `Instead of a day of work, the workers endured no water, no food and no toilets under the hot desert sun.`\
