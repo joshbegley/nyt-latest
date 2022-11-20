@@ -30,7 +30,7 @@ https://nytimes.com/video/us/100000008647992/colorado-springs-nightclub-shooting
 `Elon Musk’s decision to activate Donald Trump’s account is a dangerous one.`\
 https://nytimes.com/2022/11/20/opinion/donald-trump-twitter-return.html?searchResultPosition=8
 
-**Turkey Bombs Kurdish Foes in Iraq and Syria in Retaliatory Strike**\
+**Turkey Bombs Kurdish Foes in Iraq and Syria, Likely Killing Dozens**\
 `Turkish officials said the airstrikes were a counterterrorism operation against militants it accused of bombing Istanbul last week.`\
 https://nytimes.com/2022/11/20/world/middleeast/turkey-kurds-iraq-syria.html?searchResultPosition=9
 
