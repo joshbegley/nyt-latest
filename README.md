@@ -7,7 +7,7 @@ https://nytimes.com/2022/11/19/us/uva-shooting-memorial.html?searchResultPositio
 https://nytimes.com/2022/11/19/technology/trump-twitter-musk.html?searchResultPosition=2
 
 **Kyrie Irving Apologizes in TV Interview: ‘I Don’t Condone Any Hate Speech’**\
-`The Nets have listed Irving as questionable for Sunday’s game, indicating his suspension from the team may have been lifted.`\
+`The Nets indicated Irving could potentially be available for Sunday’s game but have yet to officially announce the end of his suspension.`\
 https://nytimes.com/2022/11/19/sports/basketball/kyrie-irving-nets.html?searchResultPosition=4
 
 **Massive Snowstorm Hits Western New York**\
