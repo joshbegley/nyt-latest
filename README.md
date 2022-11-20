@@ -1,6 +1,6 @@
 **In Iraq’s Mountains, Iranian Opposition Fighters Feel the Squeeze**\
 `The armed groups, which have trained in the Kurdistan region for decades, face attacks from Iran and pressure from the Iraqi government to give up their weapons.`\
-https://nytimes.com/2022/11/20/world/middleeast/in-iraqs-mountains-iranian-opposition-fighters-feel-the-squeeze.html?searchResultPosition=1
+https://nytimes.com/2022/11/20/world/middleeast/iraq-iran-fighters.html?searchResultPosition=1
 
 **Democratic Senate Loss in Ohio Raises Bar for Sherrod Brown in 2024**\
 `Tim Ryan’s loss to J. D. Vance is another reminder that Ohio is no longer a swing state. Can Mr. Brown, the Democratic incumbent, hold the seat in what’s shaping up as a crucial Senate election in 2024?`\
