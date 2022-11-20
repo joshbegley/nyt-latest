@@ -8,7 +8,7 @@ https://nytimes.com/video/world/middleeast/100000008648071/turkey-syria-iraq-kur
 
 **Videos Suggest Captive Russian Soldiers Were Killed at Close Range**\
 `Videos circulating online and reported on by Russian state media have raised questions about whether Ukrainian soldiers committed a war crime.`\
-https://nytimes.com/2022/11/20/world/europe/videos-captive-russian-soldiers-ukrainians.html?searchResultPosition=3
+https://nytimes.com/2022/11/20/world/europe/russian-soldiers-shot-ukraine.html?searchResultPosition=3
 
 **Inmates Who Killed a Writer and a Publisher Escape in Bangladesh**\
 `Men convicted of fatally stabbing the Bangladeshi-American author Avijit Roy and his publisher fled custody in an unsettling reminder of extremist violence against intellectuals.`\
