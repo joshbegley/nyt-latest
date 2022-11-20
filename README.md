@@ -1,5 +1,5 @@
-**The suspect appears to have been accused of threatening his mother with a bomb in 2021.**\
-`By Charlie Brennan, Nicholas Bogel-Burroughs and April Rubin`\
+**Club Q Suspect Appears to Have Been Accused of Threatening Mother With Bomb**\
+`A man with the same name and age as the club shooting suspect was arrested in June 2021 after police negotiators persuaded him to surrender.`\
 https://nytimes.com/2022/11/20/us/colorado-springs-shooting-suspect-charges.html?searchResultPosition=1
 
 **Two Men Arrested in Threat to New York’s Jewish Community Are Charged**\
