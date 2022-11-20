@@ -1,4 +1,4 @@
-**‘A Light to the World’: University of Virginia Pays Tribute to Its Slain Students**\
+**‘A Light to the World’: University of Virginia Pays Tribute to Shooting Victims**\
 `More than 9,000 people gathered for a memorial service for Devin Chandler, Lavel Davis Jr. and D’Sean Perry.`\
 https://nytimes.com/2022/11/19/us/uva-shooting-memorial.html?searchResultPosition=1
 
