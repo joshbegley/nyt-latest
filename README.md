@@ -1,5 +1,5 @@
 **Nets Lift Suspension of Kyrie Irving**\
-`In this first news conference since his suspension began, Irving said he doesn’t stand for ‘anything close to hate speech or antisemitism.’`\
+`In his first news conference since his suspension began, Irving said he doesn’t stand for ‘anything close to hate speech or antisemitism.’`\
 https://nytimes.com/2022/11/20/sports/basketball/kyrie-irving-nets-suspension.html?searchResultPosition=1
 
 **Several Killed in Mass Shooting at Colorado Nightclub**\
