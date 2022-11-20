@@ -2,7 +2,7 @@
 `More than 9,000 people gathered for a memorial service for Devin Chandler, Lavel Davis Jr. and D’Sean Perry.`\
 https://nytimes.com/2022/11/19/us/uva-shooting-memorial.html?searchResultPosition=1
 
-**Elon Musk Says He Will Reinstate Trump on Twitter**\
+**Elon Musk Reinstates Trump’s Twitter Account**\
 `Mr. Musk, who had run a poll on Twitter about whether to bring back the former president to the service, said, “The people have spoken.”`\
 https://nytimes.com/2022/11/19/technology/trump-twitter-musk.html?searchResultPosition=2
 
