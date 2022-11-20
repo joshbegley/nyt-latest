@@ -26,15 +26,15 @@ https://nytimes.com/2022/11/20/briefing/world-cup-qatar.html?searchResultPositio
 `The turmoil at Twitter continues. The holiday shopping season officially begins, although retailers have already been running sales. And the Fed releases the minutes from its last meeting.`\
 https://nytimes.com/2022/11/20/business/the-week-in-business-ftxs-collapse.html?searchResultPosition=7
 
+**There have been several mass shootings in Colorado Springs over the years.**\
+`Attacks had occurred for years before the deadly shooting at an L.G.B.T.Q. nightclub on Saturday.`\
+https://nytimes.com/2022/11/20/us/colorado-springs-mass-shootings.html?searchResultPosition=8
+
 **The Sunday Read: ‘What Does Sustainable Living Look Like? Maybe Like Uruguay’**\
 `No greater challenge faces humanity than reducing emissions without backsliding into preindustrial poverty. One tiny country is leading the way.`\
-https://nytimes.com/2022/11/20/podcasts/the-daily/uruguay-sustainable-living.html?searchResultPosition=8
+https://nytimes.com/2022/11/20/podcasts/the-daily/uruguay-sustainable-living.html?searchResultPosition=9
 
 **What New Hampshire Can Tell Us About Restoring Faith in Elections**\
 `The state is trying to work with people who doubt the voting process rather than demonizing them.`\
-https://nytimes.com/2022/11/20/opinion/election-fraud-new-hampshire-audit.html?searchResultPosition=9
-
-**Thanksgiving Bash**\
-`All the ways we make ourselves cranky about a holiday about giving thanks.`\
-https://nytimes.com/2022/11/20/opinion/thanksgiving-debates.html?searchResultPosition=10
+https://nytimes.com/2022/11/20/opinion/election-fraud-new-hampshire-audit.html?searchResultPosition=10
 
