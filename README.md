@@ -1,4 +1,4 @@
-**Gregg Berhalter Rebuilt a Broken U.S. Team. Now Comes the Hard Part.**\
+**How Gregg Berhalter Made the U.S. Team His Own**\
 `After an embarrassing failure to qualify for the 2018 World Cup, the U.S. has returned to the event with a new identity instilled by its coach.`\
 https://nytimes.com/2022/11/20/sports/soccer/usa-wales-berhalter.html?searchResultPosition=1
 
