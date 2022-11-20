@@ -3,7 +3,7 @@
 https://nytimes.com/2022/11/19/us/uva-shooting-memorial.html?searchResultPosition=1
 
 **Elon Musk Reinstates Trump’s Twitter Account**\
-`Mr. Musk, who had run a poll on Twitter about whether to bring back the former president to the service, said, “The people have spoken.”`\
+`Mr. Musk, who had asked Twitter users about whether to bring back the former president to the service, said, “The people have spoken.”`\
 https://nytimes.com/2022/11/19/technology/trump-twitter-musk.html?searchResultPosition=2
 
 **Kyrie Irving Apologizes in TV Interview: ‘I Don’t Condone Any Hate Speech’**\
