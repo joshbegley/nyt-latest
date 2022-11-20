@@ -1,5 +1,5 @@
 **Turkey Launches Airstrikes Over Northern Syria and Iraq**\
-`The airstrikes, which Turkish officials called an antiterrorism campaign against Kurdish militants, came a week after a deadly bomb attack in Istanbul. The airstrikes killed at least two dozen people.`\
+`The airstrikes, which Turkish officials called an antiterrorism campaign against Kurdish militants, came a week after a deadly bomb attack in Istanbul. The airstrikes killed more than two dozen people.`\
 https://nytimes.com/video/world/middleeast/100000008648071/turkey-syria-iraq-kurds-airstrikes.html?searchResultPosition=1
 
 **Videos Suggest Captive Russian Soldiers Were Killed at Close Range**\
