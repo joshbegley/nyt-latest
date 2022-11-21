@@ -1,40 +1,40 @@
-**Party Poster**\
-`In Mumbai, India, science, religion and politics collide when a group of laundry workers sets out to design a poster in time for a major festival.`\
-https://nytimes.com/video/opinion/100000008463558/party-poster.html?searchResultPosition=1
+**Large Retailers Move Into High Jewelry**\
+`From Jared to Birks, regional multibrand groups are elevating their offerings.`\
+https://nytimes.com/2022/11/21/fashion/jewelry-signet-jared-bucherer.html?searchResultPosition=1
 
-**Would You Pay $1,000 to See the World’s Biggest Lizards?**\
-`Indonesia wants to make it vastly more expensive to see the country’s famous Komodo dragons. The local tourism industry is up in arms.`\
-https://nytimes.com/2022/11/21/world/asia/indonesia-tourism-komodo-dragons.html?searchResultPosition=2
+**Some Jewelry Designers Keep Their Day Jobs**\
+`As one maker said, her life will always be about finding ways to meld her creative work and her legal career.`\
+https://nytimes.com/2022/11/21/fashion/jewelry-designers-jobs.html?searchResultPosition=2
 
-**Why the World Cup in Qatar Brings Fans Joy and Anxiety**\
-`Two things can be true at the same time: The World Cup will dazzle fans and also make them dizzy over the human rights issues where the event is staged.`\
-https://nytimes.com/2022/11/21/sports/soccer/qatar-human-rights-world-cup.html?searchResultPosition=3
+**Three Jewelers Who Reimagine Designs with Ethical, Organic Materials**\
+`“In the business that we are in, it’s important that we make a difference in the way things are made and the livelihoods of people,” one said.`\
+https://nytimes.com/2022/11/21/fashion/jewelry-ethical-sustainable.html?searchResultPosition=3
 
-**Inside the Saudi Strategy to Keep the World Hooked on Oil**\
-`The kingdom is working to keep fossil fuels at the center of the world economy for decades to come by lobbying, funding research and using its diplomatic muscle to obstruct climate action.`\
-https://nytimes.com/2022/11/21/climate/saudi-arabia-aramco-oil-solar-climate.html?searchResultPosition=4
+**The 2022 Well Gift Guide**\
+`Looking for the perfect present? We’ve got 28 ways to keep your loved ones healthy and happy.`\
+https://nytimes.com/2022/11/21/well/wellness-holiday-gifts.html?searchResultPosition=4
 
-**Can Big Tech Get Bigger? Microsoft Presses Governments to Say Yes.**\
-`Microsoft’s $69 billion deal for Activision Blizzard, which is undergoing reviews in 16 countries, has become a test for whether tech giants can buy companies amid a backlash.`\
-https://nytimes.com/2022/11/21/technology/microsoft-activision-deal.html?searchResultPosition=5
+**$4.7 Million Homes in California**\
+`A 1929 Spanish Revival retreat in Pebble Beach, a midcentury home in Beverly Hills and a four-bedroom house in a gated community in Laguna Niguel.`\
+https://nytimes.com/2022/11/21/realestate/home-prices-california.html?searchResultPosition=5
 
-**A Conversation With the Women Who Curate New York’s Museums**\
-`Ann Temkin of MoMA and Naomi Beckwith of the Guggenheim discuss how they’re rethinking business as usual — and why they have reason to be hopeful.`\
-https://nytimes.com/2022/11/21/arts/museum-curators-moma-guggenheim-temkin-beckwith.html?searchResultPosition=6
+**Trapped Between Extremists and Extreme Weather, Somalis Brace for Famine**\
+`The worst drought in 40 years is pushing Somalia to the brink. If it triggers a rare famine declaration, the militant group Al Shabab will also be to blame.`\
+https://nytimes.com/2022/11/21/world/africa/somalia-famine-al-shabab-climate.html?searchResultPosition=6
 
-**Inside a Crypto Nemesis’ Campaign to Rein In the Industry**\
-`Gary Gensler, the chair of the S.E.C., is at the center of a reckoning over the future of cryptocurrency after the implosion of FTX.`\
-https://nytimes.com/2022/11/21/technology/gary-gensler-crypto-sec.html?searchResultPosition=7
+**Brave Little Worriers**\
+`Exposure therapy contends that many children with anxiety would be helped by following an old and simple dictum: Face your fears.`\
+https://nytimes.com/2022/11/21/health/anxiety-treatment-exposure-therapy.html?searchResultPosition=7
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/11/21/crosswords/spelling-bee-forum.html?searchResultPosition=8
+**On the River at Night, Ambushing Russians**\
+`Ukrainian units plying the Dnipro River venture behind enemy lines under the cover of darkness, carrying out reconnaissance and sabotage.`\
+https://nytimes.com/2022/11/21/world/europe/ukraine-russia-war-river.html?searchResultPosition=8
 
-**What to Know About the Georgia Runoff**\
-`As Senator Raphael Warnock and Herschel Walker enter the final weeks of their runoff election, both sides are pouring money into ads and courting national allies for visits.`\
-https://nytimes.com/interactive/2022/11/21/us/politics/georgia-senate-runoff.html?searchResultPosition=9
+**What You Get for $4.7 Million in California**\
+`A 1929 Spanish Revival retreat in Pebble Beach, a midcentury home in Beverly Hills and a four-bedroom house in a gated community in Laguna Niguel.`\
+https://nytimes.com/slideshow/2022/11/21/realestate/what-you-get-for-4-7-million-in-california.html?searchResultPosition=9
 
-**Word of the Day: obsequious**\
-`This word has appeared in 22 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/11/21/learning/word-of-the-day-obsequious.html?searchResultPosition=10
+**Gems Are Said to Heal. This Jewelry Brand Believes It.**\
+`The founders of Healers Fine Jewelry for men say the approach is ‘a little more modern.’`\
+https://nytimes.com/2022/11/21/fashion/healers-fine-jewelry-mens-paris.html?searchResultPosition=10
 
