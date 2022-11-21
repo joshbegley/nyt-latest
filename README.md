@@ -1,5 +1,5 @@
-**Allegation of Supreme Court Breach Prompts Renewed Calls for Ethics Code**\
-`A minister’s claim that a major contraception decision had been prematurely disclosed through a secretive influence campaign underscored the court’s lack of transparency and accountability.`\
+**Allegation of Supreme Court Breach Prompts Calls for Inquiry and Ethics Code**\
+`A minister’s claim that a major contraception decision was prematurely disclosed through a secretive influence campaign underscores the court’s lack of transparency and accountability.`\
 https://nytimes.com/2022/11/20/us/supreme-court-breach-alito.html?searchResultPosition=1
 
 **Jason David Frank, Who Starred in ‘Power Rangers’ Franchise, Dies at 49**\
