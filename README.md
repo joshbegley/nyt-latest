@@ -11,7 +11,7 @@ https://nytimes.com/2022/11/21/movies/jeremy-pope-the-inspection.html?searchResu
 https://nytimes.com/2022/11/21/us/colorado-springs-lgbtq-community.html?searchResultPosition=3
 
 **Senegal vs. Netherlands Updates: Scoreless at halftime, but plenty of action.**\
-`Senegal is dangerous but without Sadio Mane, they’ll have its hands full with Netherlands.`\
+`Senegal is dangerous but without Sadio Mane, it will have its hands full with Netherlands.`\
 https://nytimes.com/2022/11/21/sports/soccer/senegal-netherlands-score-match.html?searchResultPosition=4
 
 **Drag events across the country have often faced threats in recent years.**\
