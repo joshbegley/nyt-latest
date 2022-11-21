@@ -1,5 +1,5 @@
 **Senegal vs. Netherlands: The Dutch are stacked while Senegal is missing its star.**\
-`Without Sadio Mane, Senegal will be hard-pressed to match Netherlands.`\
+`Senegal is dangerous but without Sadio Mane, they’ll have their hands full with Netherlands.`\
 https://nytimes.com/2022/11/21/sports/soccer/senegal-netherlands-score-match.html?searchResultPosition=1
 
 **Drag events across the country have often faced threats in recent years.**\
