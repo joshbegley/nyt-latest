@@ -34,7 +34,7 @@ https://nytimes.com/2022/11/21/world/africa/south-africa-jacob-zuma.html?searchR
 `The Israeli prime minister-designate, Benjamin Netanyahu, and his family won a libel suit against a former prime minister, Ehud Olmert, but got far less compensation than they had demanded.`\
 https://nytimes.com/2022/11/21/world/middleeast/netanyahu-libel-wins-damages.html?searchResultPosition=9
 
-**Live updates: England leads by 3-0 at the half.**\
+**Live updates: England leads Iran at halftime.**\
 `Iran’s goalkeeper was injured early on as England was threatening.`\
 https://nytimes.com/2022/11/21/sports/soccer/england-iran-score-world-cup.html?searchResultPosition=10
 
