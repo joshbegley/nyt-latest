@@ -6,8 +6,8 @@ https://nytimes.com/2022/11/21/nyregion/trump-organization-trial.html?searchResu
 `Firing people. Talking of bankruptcy. Telling workers to be “hard core.” Mr. Musk has repeatedly used those tactics at many of his companies.`\
 https://nytimes.com/2022/11/21/technology/elon-musk-twitter-management.html?searchResultPosition=2
 
-**NASA Spacecraft Makes Close Approach to the Moon in Test Flight**\
-`NASA’s Orion spacecraft flew near the moon’s surface during part of the Artemis I mission.`\
+**NASA Spacecraft Approaches Moon During Test Flight**\
+`Footage recorded from NASA’s Orion spacecraft during the Artemis I mission before it passed behind the moon.`\
 https://nytimes.com/video/science/space/100000008649510/nasa-artemis-orion-moon.html?searchResultPosition=3
 
 **The history behind the Welsh national team’s anthem.**\
