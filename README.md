@@ -22,7 +22,7 @@ https://nytimes.com/2022/11/21/arts/television/liza-colon-zayas-between-riversid
 `The reality dating show wraps up this season, and the 96th annual Macy’s parade takes place in New York City.`\
 https://nytimes.com/2022/11/21/arts/television/tv-bachelor-in-paradise-thanksgiving-day-parade.html?searchResultPosition=6
 
-**Key Union Votes Down Freight Rail Contract, Making Strike More Likely**\
+**Key Freight Rail Union Rejects Deal, Increasing Strike Risk**\
 `The tentative agreement, brokered in September with help from the Biden administration, had averted a strike before the midterm elections.`\
 https://nytimes.com/2022/11/21/business/economy/freight-rail-union-contract.html?searchResultPosition=7
 
