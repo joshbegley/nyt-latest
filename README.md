@@ -2,7 +2,7 @@
 `Workers at one restaurant decided they would serve dinner in a kind of defiant love for their community, which has not always felt welcome in a conservative area that was once a center of anti-gay activism.`\
 https://nytimes.com/2022/11/21/us/colorado-springs-lgbtq-community.html?searchResultPosition=1
 
-**Senegal vs. Netherlands Updates: The Dutch are stacked while Senegal is missing its star.**\
+**Senegal vs. Netherlands Updates: No score but plenty of action so far.**\
 `Senegal is dangerous but without Sadio Mane, they’ll have its hands full with Netherlands.`\
 https://nytimes.com/2022/11/21/sports/soccer/senegal-netherlands-score-match.html?searchResultPosition=2
 
