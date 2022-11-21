@@ -30,8 +30,8 @@ https://nytimes.com/2022/11/21/movies/jeremy-pope-the-inspection.html?searchResu
 `Workers at one restaurant decided they would serve dinner in a kind of defiant love for their community, which has not always felt welcome in a conservative area that was once a center of anti-gay activism.`\
 https://nytimes.com/2022/11/21/us/colorado-springs-lgbtq-community.html?searchResultPosition=8
 
-**Senegal vs. Netherlands updates: Still seeking a goal.**\
-`Senegal is dangerous but without Sadio Mane, it’ll have its hands full with the Netherlands.`\
+**Senegal vs. Netherlands updates: The Dutch strike in the 84th minute.**\
+`In his World Cup debut, Cody Gakpo puts the Dutch ahead.`\
 https://nytimes.com/2022/11/21/sports/soccer/senegal-netherlands-score-match.html?searchResultPosition=9
 
 **Drag events across the country have often faced threats in recent years.**\
