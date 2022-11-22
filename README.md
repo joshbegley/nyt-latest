@@ -1,6 +1,6 @@
 **Buffeted by Economic Woes, U.K. Starts to Look at Brexit With ‘Bregret’**\
 `Stung by inflation and bracing for tax increases, the country is in the midst of its gravest slump in a generation, leading many to wonder how much the split with the European Union is to blame.`\
-https://nytimes.com/2022/11/22/world/europe/uk-brexit-bregret.html?searchResultPosition=1
+https://nytimes.com/2022/11/22/world/europe/uk-brexit-regret.html?searchResultPosition=1
 
 **Genesis, the Troubled Crypto Lender, Hires a Restructuring Adviser**\
 `The firm has been under pressure from its creditors since the crypto exchange F.T.X. began to unravel this month.`\
