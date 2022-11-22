@@ -30,11 +30,11 @@ https://nytimes.com/2022/11/22/business/robert-kern-dead.html?searchResultPositi
 `Corporate governance experts say the electric-car maker’s directors may need to rein in the chief executive, with whom many have personal ties.`\
 https://nytimes.com/2022/11/22/business/elon-musk-tesla-board-twitter.html?searchResultPosition=8
 
-**Meet the First Ladies of Croatian Soccer**\
-`Iva Olivari and Ivancica Sudac have served Croatia’s federation since before it joined FIFA. They have had, in different ways, the job of a lifetime.`\
-https://nytimes.com/2022/11/22/sports/soccer/croatia-world-cup.html?searchResultPosition=9
-
 **Almost Safe, She Returned to Munich and Lost Her Painting and Her Life**\
 `A portrait by Bronzino that Ilse Hesselberger once owned is coming up for sale, a reminder of the brutality, and twists of fate, that Jews confronted in the Nazi era.`\
-https://nytimes.com/2022/11/22/arts/design/bronzino-portrait-ilse-hesselberger.html?searchResultPosition=10
+https://nytimes.com/2022/11/22/arts/design/bronzino-portrait-ilse-hesselberger.html?searchResultPosition=9
+
+**Meet the First Ladies of Croatian Soccer**\
+`Iva Olivari and Ivancica Sudac have served Croatia’s federation since before it joined FIFA. They have had, in different ways, the job of a lifetime.`\
+https://nytimes.com/2022/11/22/sports/soccer/croatia-world-cup.html?searchResultPosition=10
 
