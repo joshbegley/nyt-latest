@@ -14,9 +14,9 @@ https://nytimes.com/2022/11/22/technology/elon-musk-twitter-cost-cutting.html?se
 `Empty streets, shuttered shops, long lines at coronavirus testing sites and other scenes from China as it tries to combat rapidly spreading outbreaks in cities across the country.`\
 https://nytimes.com/2022/11/22/world/asia/china-covid-photos.html?searchResultPosition=4
 
-**The Fake Scorcese Film You Haven’t Seen. Or Have You?**\
+**The Fake Scorsese Film You Haven’t Seen. Or Have You?**\
 `Tumblr is obsessed with the mafia film “Goncharov.” The problem is it isn’t real.`\
-https://nytimes.com/2022/11/22/style/goncharov-scorcese-tumblr.html?searchResultPosition=5
+https://nytimes.com/2022/11/22/style/goncharov-scorsese-tumblr.html?searchResultPosition=5
 
 **Ronaldo and Manchester United Part Ways ‘By Mutual Agreement’**\
 `The exit for the superstar comes as Ronaldo is playing for Portugal in the World Cup.`\
