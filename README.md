@@ -1,5 +1,5 @@
-**Senate to Hold Hearing on Competition Issues in Ticketing Industry**\
-`A committee led by Senator Amy Klobuchar of Minnesota will examine the industry after Ticketmaster failures last week frustrated millions of Taylor Swift fans.`\
+**Senate Announces Hearing After Chaos Over Taylor Swift Ticket Sales**\
+`A committee led by Senator Amy Klobuchar of Minnesota will examine the ticketing industry after failures last week frustrated millions of the superstar’s fans.`\
 https://nytimes.com/2022/11/22/business/senate-antitrust-ticketmaster-taylor-swift.html?searchResultPosition=1
 
 **‘Specimen Days’ Is Both an Ode to Walt Whitman and Its Own Portrait of America**\
