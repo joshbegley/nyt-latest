@@ -1,4 +1,4 @@
-**Robert Kern, Developer of Emergency Generators, Dies at 96**\
+**Robert D. Kern, Developer of Emergency Generators, Dies at 96**\
 `Born in a garage, his company, Generac, thrived on the threat of power failures to corner the market on portable and backup sources of electricity.`\
 https://nytimes.com/2022/11/22/business/robert-kern-dead.html?searchResultPosition=1
 
