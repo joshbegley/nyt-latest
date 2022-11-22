@@ -1,5 +1,5 @@
-**The View From Inside a Nation Once Again Grappling With the Virus**\
-`Empty streets, shuttered shops, long lines at testing sites and other scenes from China as it tries to combat rapidly spreading outbreaks in cities across the country.`\
+**The View From Inside a Nation Once Again Grappling With Covid-19**\
+`Empty streets, shuttered shops, long lines at coronavirus testing sites and other scenes from China as it tries to combat rapidly spreading outbreaks in cities across the country.`\
 https://nytimes.com/2022/11/22/world/asia/the-view-from-inside-a-nation-once-again-grappling-with-the-virus.html?searchResultPosition=1
 
 **The Fake Scorcese Film You Haven’t Seen. Or Have You?**\
