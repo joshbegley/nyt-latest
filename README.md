@@ -23,7 +23,7 @@ https://nytimes.com/2022/11/22/t-magazine/flamingo-estate-honey.html?searchResul
 https://nytimes.com/2022/11/22/sports/soccer/fifa-armbands-germay.html?searchResultPosition=6
 
 **Saudi Arabia Leaves Another Scar on Argentina’s Soul**\
-`Argentina entered the tournament as one of the favorites in its star’s final chance at the trophy.`\
+`Argentina and Lionel Messi entered the tournament as one of the favorites in its star’s final chance at the trophy. Now it’ll struggle to advance.`\
 https://nytimes.com/2022/11/22/sports/soccer/saudi-arabia-argentina-messi-loss-world-cup.html?searchResultPosition=7
 
 **The Colombian Architect Who Reimagined Modernism for a New Era**\
