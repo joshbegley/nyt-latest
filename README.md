@@ -7,7 +7,7 @@ https://nytimes.com/2022/11/22/us/trump-special-master-review-mar-a-lago.html?se
 https://nytimes.com/2022/11/22/briefing/indonesia-earthquake-death-messi-asia.html?searchResultPosition=2
 
 **Hebe de Bonafini, 93, Who Rallied Mothers of ‘the Disappeared,’ Dies**\
-`She was a key force behind a 1970s human rights movement demanding justice from Argentina’s brutal military dictatorship. Her leftist views later made her a polarizing figure.`\
+`She was a key force behind a 1970s human rights movement demanding justice from Argentina’s brutal military dictatorship. Her extreme leftist views later made her a polarizing figure.`\
 https://nytimes.com/2022/11/22/world/americas/hebe-de-bonafini-dead.html?searchResultPosition=3
 
 **I’m That Girl**\
