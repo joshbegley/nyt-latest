@@ -1,9 +1,9 @@
 **U.S. Officials Offer Hopeful Tone on Covid as Winter Nears**\
 `Dr. Anthony S. Fauci said the administration was optimistic that “we’re not going to see a repeat of what we saw last year,” when the Omicron variant swept through the country.`\
-https://nytimes.com/2022/11/22/us/politics/covid-surge-winter.html?searchResultPosition=1
+https://nytimes.com/2022/11/22/us/politics/fauci-covid-winter-surge.html?searchResultPosition=1
 
 **Supreme Court Permits House Democrats to Obtain Trump’s Tax Returns**\
-`In a terse order, the Supreme Court rejected the former president’s request that it block the Treasury Dept. from turning over the files.`\
+`In a terse order, the Supreme Court rejected the former president’s request that it block the Treasury Department from turning over the files.`\
 https://nytimes.com/2022/11/22/us/supreme-court-trump-taxes-house-democrats.html?searchResultPosition=2
 
 **‘All the Beauty and the Bloodshed’ Review: Nan Goldin’s Art and Activism**\
@@ -23,7 +23,7 @@ https://nytimes.com/2022/11/22/theater/the-patient-gloria-review.html?searchResu
 https://nytimes.com/2022/11/22/world/europe/uk-brexit-regret.html?searchResultPosition=6
 
 **Genesis, the Troubled Crypto Lender, Hires a Restructuring Adviser**\
-`The firm has been under pressure from its creditors since the crypto exchange F.T.X. began to unravel this month.`\
+`The firm has been under pressure from its creditors since the crypto exchange FTX began to unravel this month.`\
 https://nytimes.com/2022/11/22/business/dealbook/genesis-crypto-restructuring-adviser.html?searchResultPosition=7
 
 **Inside Sam Bankman-Fried’s Quest to Win Friends and Influence People**\
