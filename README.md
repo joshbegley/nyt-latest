@@ -2,9 +2,9 @@
 `Mr. Musk and his advisers are examining all types of expenses at Twitter. Some of the social media company’s vendors have gotten stiffed.`\
 https://nytimes.com/2022/11/22/technology/elon-musk-twitter-cost-cutting.html?searchResultPosition=1
 
-**The View From Inside a Nation Once Again Grappling With Covid-19**\
+**This Is What China’s Renewed War on Covid Looks Like**\
 `Empty streets, shuttered shops, long lines at coronavirus testing sites and other scenes from China as it tries to combat rapidly spreading outbreaks in cities across the country.`\
-https://nytimes.com/2022/11/22/world/asia/the-view-from-inside-a-nation-once-again-grappling-with-the-virus.html?searchResultPosition=2
+https://nytimes.com/2022/11/22/world/asia/china-covid-photos.html?searchResultPosition=2
 
 **The Fake Scorcese Film You Haven’t Seen. Or Have You?**\
 `Tumblr is obsessed with the mafia film “Goncharov.” The problem is it isn’t real.`\
