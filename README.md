@@ -6,8 +6,8 @@ https://nytimes.com/2022/11/22/arts/design/edward-hopper-whitney-museum.html?sea
 `A new motion argues that lifting the Covid-19 policy next month will open the door to a surge of migrants in their states.`\
 https://nytimes.com/2022/11/22/us/border-title-42-republican-states.html?searchResultPosition=2
 
-**Extreme heat takes the field**\
-`Billions are watching the World Cup play out in one of world’s hottest spots. It could offer a glimpse of the future.`\
+**Extreme Heat Takes the Field**\
+`Billions are watching the World Cup play out in one of the world’s hottest spots. It could offer a glimpse of the future.`\
 https://nytimes.com/2022/11/22/climate/world-cup-soccer-heat.html?searchResultPosition=3
 
 **Stepping Out of Her Family’s Shadow, and Laying Bare Family History**\
