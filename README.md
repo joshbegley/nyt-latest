@@ -14,7 +14,7 @@ https://nytimes.com/2022/11/22/t-magazine/flamingo-estate-honey.html?searchResul
 `Rewe ended its long sponsorship of Germany’s soccer federation on Tuesday.`\
 https://nytimes.com/2022/11/22/sports/soccer/fifa-armbands-germay.html?searchResultPosition=4
 
-**Saudi Arabia Stuns Lionel Messi and Argentina for the World Cup’s First Shock.**\
+**Saudi Arabia Stuns Lionel Messi and Argentina for the World Cup’s First Shock**\
 `Argentina entered the tournament as one of the favorites in its star’s final chance at the trophy.`\
 https://nytimes.com/2022/11/22/sports/soccer/saudi-arabia-argentina-messi-loss-world-cup.html?searchResultPosition=5
 
