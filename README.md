@@ -4,7 +4,7 @@ https://nytimes.com/2022/11/22/business/russia-oil-price-cap.html?searchResultPo
 
 **What Will Iger Do with ESPN and Hulu?**\
 `With Robert Iger back in charge at Disney, his to-do list takes shape: turn around the streaming businesses, and groom a successor.`\
-https://nytimes.com/2022/11/22/business/robert-iger-espn-hulu-disney.html?searchResultPosition=2
+https://nytimes.com/2022/11/22/business/bob-iger-disney-espn-hulu.html?searchResultPosition=2
 
 **A New Range of Honey From the Gardens of LeBron James and Ai Weiwei**\
 `Plus: Norman Teague’s culturally minded furniture and more from T’s cultural compendium.`\
