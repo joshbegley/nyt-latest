@@ -3,7 +3,7 @@
 https://nytimes.com/2022/11/21/crosswords/daily-puzzle-2022-11-22.html?searchResultPosition=1
 
 **David Valadao, a Republican Who Voted to Impeach Trump, Wins Re-election**\
-`His victory, which came after nearly two weeks of vote-counting, made the congressman one of the few House Republicans who supported impeaching the former president to remain in Congress.`\
+`His victory, which came after nearly two weeks of vote-counting, made the congressman one of just two House Republicans who supported impeaching the former president to remain in Congress.`\
 https://nytimes.com/2022/11/21/us/politics/valadao-salas-california-house.html?searchResultPosition=2
 
 **Atlanta to Pay $1 Million to Rayshard Brooks’s Family**\
