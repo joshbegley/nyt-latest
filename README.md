@@ -1,6 +1,6 @@
 **A Report on Violence at Rikers Is to Be Kept Secret**\
 `A monitor appointed to oversee the jails said the information should be held in confidence so that it is not taken out of “context.”`\
-https://nytimes.com/2022/11/21/nyregion/a-report-on-violence-at-rikers-is-to-be-kept-secret.html?searchResultPosition=1
+https://nytimes.com/2022/11/21/nyregion/rikers-jail-violence-report.html?searchResultPosition=1
 
 **Progressive Activists Ready Campaign to Counter New House G.O.P. Majority**\
 `A new group is planning a war room to focus on what it sees as the harms of Republican policies on Americans and to counter expected investigations of the Biden administration.`\
