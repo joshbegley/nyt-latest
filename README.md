@@ -1,5 +1,5 @@
 **In Indonesia, an Earthquake, Landslides and Homes ‘Flat to the Earth’**\
-`As workers try to find survivors, rescue efforts have been hampered by power outages and blocked roads in a disaster that has killed at least 162 people and injured hundreds.`\
+`As workers try to find survivors, rescue efforts have been hampered by power outages and blocked roads in a disaster that has killed at least 252 people and injured hundreds.`\
 https://nytimes.com/2022/11/22/world/asia/indonesia-earthquake-landslide.html?searchResultPosition=1
 
 **China Factory Fire Kills 38**\
