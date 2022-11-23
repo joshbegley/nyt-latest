@@ -1,5 +1,5 @@
-**Four Students Are Injured in Philadelphia Shooting**\
-`Two 15-year-old girls and two 16-year-old boys were injured after someone fired at a group of students from an S.U.V. on Wednesday, the authorities said.`\
+**Four Students Are Injured in Shooting Near Philadelphia High School**\
+`Two 15-year-old girls and two 16-year-old boys were injured on Wednesday when someone fired from a passing S.U.V. about a block from Overbrook High School, the authorities said.`\
 https://nytimes.com/2022/11/23/us/philadelphia-school-shooting.html?searchResultPosition=1
 
 **‘The Son’ Review: Father Doesn’t Know Best**\
