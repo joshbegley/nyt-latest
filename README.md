@@ -1,5 +1,5 @@
 **Deadly Explosions Rock Bus Stops in Jerusalem**\
-`Two explosions during morning rush hour in northwest Jerusalem killed one person and injured at least 13 others.`\
+`Two blasts during morning rush hour in northwest Jerusalem killed one person and injured at least 13 others.`\
 https://nytimes.com/video/world/middleeast/100000008653426/jerusalem-bus-explosions.html?searchResultPosition=1
 
 **Multiple Fatalities in Walmart Shooting in Virginia**\
