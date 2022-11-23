@@ -22,9 +22,9 @@ https://nytimes.com/2022/11/23/crosswords/spelling-bee-forum.html?searchResultPo
 `Tell us a story, real or made up, that is inspired by this image.`\
 https://nytimes.com/2022/11/23/learning/together.html?searchResultPosition=6
 
-**Two Blasts in Jerusalem Kill 1 and Wound at Least 13**\
+**Two Explosions in Jerusalem Kill 1 and Wound at Least 13**\
 `The two explosions occurred at bus stops during the morning rush hour in what were believed to be the first bomb attacks on Israeli civilians since 2016.`\
-https://nytimes.com/2022/11/23/world/middleeast/israel-jerusalem-blasts.html?searchResultPosition=7
+https://nytimes.com/2022/11/23/world/middleeast/israel-jerusalem-explosions.html?searchResultPosition=7
 
 **Your Thanksgiving Flight Might Have Turbulence. Here’s the Forecast.**\
 `Pilots use predictions to avoid bumpy zones in the sky — or at least that’s the goal.`\
