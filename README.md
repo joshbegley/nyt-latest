@@ -27,7 +27,7 @@ https://nytimes.com/2022/11/23/us/california-thanksgiving.html?searchResultPosit
 https://nytimes.com/2022/11/23/style/thanksgiving-dinner-etiquette.html?searchResultPosition=7
 
 **How to Read Printed Periodicals on a Tablet**\
-`Text-only books work well on most devices, but what if you like to read comics, graphic novels and magazines?`\
+`Text-only books work well on most devices, but what if you like to read comics, graphic novels and magazines? `\
 https://nytimes.com/interactive/2022/11/23/technology/how-to-read-magazines-tablet.html?searchResultPosition=8
 
 **Haunted by Disaster, Volunteers Search for Survivors in Indonesia**\
