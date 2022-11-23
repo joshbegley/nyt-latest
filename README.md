@@ -1,40 +1,40 @@
+**Classic Car Show Right at Home in ‘City That Put the World on Wheels’**\
+`The first Detroit Concours d’Elegance, part of a series of events traditionally held at upscale resorts, took place in the heart of the Motor City.`\
+https://nytimes.com/2022/11/23/business/detroit-concours-delegance-hagerty.html?searchResultPosition=1
+
+**How to Make the Most of E-Books, and Find Free Ones**\
+`Even if you still love printed books, the digital option lets you put an entire library in your bag, just in time for holiday travel and vacation.`\
+https://nytimes.com/2022/11/23/technology/personaltech/guide-to-ebooks.html?searchResultPosition=2
+
+**Century-Old Letters Add New Twist to Michigan-Ohio State Rivalry**\
+`Fans have long wondered whether Michigan’s famed coach, Fielding Yost, had a hand in derailing Ohio State’s 1922 season. Newly uncovered correspondence shows exactly how he did it.`\
+https://nytimes.com/2022/11/23/sports/ncaafootball/michigan-ohio-state-letters.html?searchResultPosition=3
+
+**Jenna Ortega Knows What Wednesday Addams Wants**\
+`In a new Netflix series, the actress plays a teenage version of the sardonic Addams Family character who, she said, “won’t let anyone get in her way.”`\
+https://nytimes.com/2022/11/23/arts/television/jenna-ortega-wednesday-netflix.html?searchResultPosition=4
+
+**How Californians Celebrate Thanksgiving**\
+`With sourdough stuffing, lots of fresh vegetables and, often, eating outdoors.`\
+https://nytimes.com/2022/11/23/us/how-californians-celebrate-thanksgiving.html?searchResultPosition=5
+
+**How Can I Get the Men to Pitch In at Our Thanksgiving Table?**\
+`A reader bristles at the reluctance of her male relatives and neighborhood husbands to volunteer for cleanup duty after meals she hosts at her home.`\
+https://nytimes.com/2022/11/23/style/thanksgiving-dinner-etiquette.html?searchResultPosition=6
+
+**How to Read Printed Periodicals on a Tablet**\
+`Text-only books work well on most devices, but what if you like to read comics, graphic novels and magazines?`\
+https://nytimes.com/interactive/2022/11/23/technology/how-to-read-magazines-tablet.html?searchResultPosition=7
+
+**Haunted by Disaster, Volunteers Search for Survivors in Indonesia**\
+`Amid aftershocks and landslides from Monday’s deadly quake in West Java, bands of volunteer rescuers have put aside their daily lives to save others.`\
+https://nytimes.com/2022/11/23/world/asia/indonesia-earthquake-rescue.html?searchResultPosition=8
+
 **Germany Protests FIFA Decision That Blocked Rainbow Armbands**\
 `Soccer’s governing body had moved to block a plan by seven European team captains to wear armbands promoting gay rights by threatening them with yellow cards.`\
-https://nytimes.com/2022/11/23/sports/soccer/german-player-protest-armbands-world-cup.html?searchResultPosition=1
+https://nytimes.com/2022/11/23/sports/soccer/german-player-protest-armbands-world-cup.html?searchResultPosition=9
 
 **U.S. Blocks Dominican Republic Sugar Imports, Citing Forced Labor**\
 `An import ban targets sugar from Central Romana Corporation, a sugar behemoth whose sugar is sold under the Domino, Florida Crystals and C&H brands.`\
-https://nytimes.com/2022/11/23/business/economy/us-sugar-imports-forced-labor.html?searchResultPosition=2
-
-**Russian Rocket Hits Hospital, Killing a Newborn, Ukraine Says**\
-`Video from the scene shows the aftermath of a Russian rocket attack on a hospital’s maternity ward in Vilniansk, in the Zaporizhzhia region, Ukrainian authorities said.`\
-https://nytimes.com/video/world/europe/100000008653488/russia-ukrain-maternity-ward.html?searchResultPosition=3
-
-**Losses Pile Up in FTX Bankruptcy Turmoil**\
-`The crypto exchange’s founder, Sam Bankman-Fried, says the company suffered a $51 billon collapse in collateral, but he thinks filing for Chapter 11 was a mistake.`\
-https://nytimes.com/2022/11/23/business/dealbook/sbf-ftx-bankruptcy-turmoil.html?searchResultPosition=4
-
-**A Mystery Hidden in a Family Photograph**\
-`A Times journalist wanted to find out where his great-grandfather had grown up in Italy. He ended up stumbling down an art-world rabbit hole.`\
-https://nytimes.com/interactive/2022/11/23/magazine/italy-photos.html?searchResultPosition=5
-
-**For Sale in the French Alps: Ski Chalet With a Backyard Mountain Range**\
-`Peak properties in France’s Auvergne-Rhône-Alpes region remain as popular as ever, with clients seeking a ‘safe refuge for their cash,’ agents say.`\
-https://nytimes.com/2022/11/23/realestate/international-house-hunting-french-alps.html?searchResultPosition=6
-
-**Peek Inside a $200-a-Night ‘Room’ at the World Cup in Qatar**\
-`The ads didn’t lie, but container life might not be for everyone.`\
-https://nytimes.com/2022/11/23/sports/soccer/qatar-world-cup-shipping-containers.html?searchResultPosition=7
-
-**For Sale: Mountain Majesty in Southeast France**\
-`This four-bedroom chalet, perched on a hill in the mountainous Auvergne-Rhône-Alpes region of southeast France, is on the market for $4.1 million`\
-https://nytimes.com/slideshow/2022/11/23/reader-center/for-sale-mountain-majesty-in-southeast-france.html?searchResultPosition=8
-
-**A High-Drama Gemstone With an Almost Supernatural Iridescence**\
-`Opals light up pendant necklaces, drop earrings, statement bracelets and cocktail rings.`\
-https://nytimes.com/2022/11/23/t-magazine/opals-jewelry.html?searchResultPosition=9
-
-**Watch Live: Officials Give Updates on Walmart Shooting in Virginia**\
-`Multiple people were shot and killed inside a Walmart in Chesapeake, Va., on Tuesday night, the authorities said.`\
-https://nytimes.com/video/embedded/us/100000008653463/walmart-shooting.html?searchResultPosition=10
+https://nytimes.com/2022/11/23/business/economy/us-sugar-imports-forced-labor.html?searchResultPosition=10
 
