@@ -2,7 +2,7 @@
 `Even the country’s de facto leader had downplayed expectations. After a win over Lionel Messi’s Argentina, one of the most shocking results in World Cup history, Wednesday will be a national holiday.`\
 https://nytimes.com/2022/11/22/sports/soccer/saudi-arabia-argentina.html?searchResultPosition=1
 
-**This Holiday I’m Going to a Gay Bar**\
+**This Holiday, I’m Going to a Gay Bar**\
 `We protect ourselves. We’ll fight for our own. We’ll mourn. We’ll organize. And we’ll keep fighting, until all of us are safe, everywhere. `\
 https://nytimes.com/2022/11/22/opinion/club-q-colorado-springs-james-dobson.html?searchResultPosition=2
 
