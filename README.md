@@ -1,5 +1,5 @@
-**Germany’s players protested a decision to block them from wearing a rainbow armband.**\
-`FIFA had prevented Germany and several other European team captains from wearing armbands promoting gay rights by threatening them with yellow cards.`\
+**Germany Protests FIFA Decision That Blocked Rainbow Armbands**\
+`Soccer’s governing body had moved to block a plan by seven European team captains to wear armbands promoting gay rights by threatening them with yellow cards.`\
 https://nytimes.com/2022/11/23/sports/soccer/german-player-protest-armbands-world-cup.html?searchResultPosition=1
 
 **U.S. Blocks Dominican Republic Sugar Imports, Citing Forced Labor**\
