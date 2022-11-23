@@ -1,40 +1,40 @@
-**Deadly Explosions Rock Bus Stops in Jerusalem**\
-`Two blasts during morning rush hour in northwest Jerusalem killed one person and injured at least 13 others.`\
-https://nytimes.com/video/world/middleeast/100000008653426/jerusalem-bus-explosions.html?searchResultPosition=1
+**$1 Million Homes in New York, California and Minnesota**\
+`A renovated 1810 farmhouse in Hudson, a midcentury-modern home in Oakland and an Edwardian house in St. Paul.`\
+https://nytimes.com/2022/11/23/realestate/1-million-homes-in-new-york-california-and-minnesota.html?searchResultPosition=1
 
-**Multiple Fatalities in Walmart Shooting in Virginia**\
-`The assailant opened fire inside a Walmart in Chesapeake, Va., on Tuesday night, and was later found dead at the store, the authorities said.`\
-https://nytimes.com/video/us/100000008653387/chesapeake-virginia-walmart-shooting.html?searchResultPosition=2
+**What You Get for $1 Million**\
+`A renovated 1810 farmhouse in Hudson, N.Y.; a midcentury-modern home in Oakland, Calif.; and an Edwardian house in St. Paul, Minn.`\
+https://nytimes.com/slideshow/2022/11/23/realestate/what-you-get-for-1-million.html?searchResultPosition=2
 
-**What to Know About This Year’s Thanksgiving Day N.F.L. Games**\
-`Thursday’s games should see playoff jockeying between the Bills and Lions, and the Giants and Cowboys, before the Patriots and Vikings match wits in prime time.`\
-https://nytimes.com/2022/11/23/sports/football/nfl-thanksgiving-games-schedule.html?searchResultPosition=3
+**The Disputed Border Where Every Shepherd Is Seen as a Potential Spy**\
+`Lebanese herders say that Israel crosses an ill-defined frontier to abduct and interrogate them. Israel accuses the herders of espionage on behalf of Hezbollah.`\
+https://nytimes.com/2022/11/23/world/middleeast/israel-border-shepherds-spies.html?searchResultPosition=3
 
-**In a Brutal Jungle, Small Acts of Kindness**\
-`Julie Turkewitz, The Times’s Andes bureau chief, and Federico Rios, a photographer, recently traveled the 70-mile migrant route in the Darién Gap.`\
-https://nytimes.com/2022/11/23/insider/in-a-brutal-jungle-small-acts-of-kindness.html?searchResultPosition=4
+**Where Shoppers in Bogotá Find Colombia’s Emerging Brands**\
+`Shops like St. Dom and Ba hué offer customers in the capital ways to explore the latest trends while supporting the country’s brands.`\
+https://nytimes.com/2022/11/23/style/bogota-colombia-shopping-brands.html?searchResultPosition=4
 
-**Did You Quit Your Job in the Last Year? We Want to Hear About It.**\
-`We are specifically interested in hearing from parents, people whose relationships were affected and those who quit because of burnout.`\
-https://nytimes.com/2022/11/23/business/quitting-readers-burnout-parents-relationships.html?searchResultPosition=5
+**The ‘Sleeping Beauty’ of Basque Country**\
+`For a mellower vibe, travel and shop in Bayonne, on the French side of the Pyrenees mountains.`\
+https://nytimes.com/2022/11/23/style/basque-country-bayonne-shopping.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/11/23/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**Lawsuit Takes Aim at the Way A.I. Is Built**\
+`A programmer is suing Microsoft, GitHub and OpenAI over artificial intelligence technology that generates its own computer code.`\
+https://nytimes.com/2022/11/23/technology/copilot-microsoft-ai-lawsuit.html?searchResultPosition=6
 
-**Together**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2022/11/23/learning/together.html?searchResultPosition=7
+**How Iran’s Security Forces Use Ambulances to Suppress Protests**\
+`Witness accounts and video analysis reveal how the state is co-opting ambulances to infiltrate demonstrations and detain protesters.`\
+https://nytimes.com/2022/11/23/world/middleeast/iran-protesters-detained-ambulance.html?searchResultPosition=7
 
-**Two Explosions in Jerusalem Kill 1 and Wound at Least 13**\
-`The two explosions occurred at bus stops during the morning rush hour in what were believed to be the first bomb attacks on Israeli civilians since 2016.`\
-https://nytimes.com/2022/11/23/world/middleeast/israel-jerusalem-explosions.html?searchResultPosition=8
+**In Warsaw, Mining a Rich Vein of Polish Creativity**\
+`Over the last decade, Warsaw has bloomed into one of Europe’s most compelling capitals, and Mokotowska Street has flowered along with it.`\
+https://nytimes.com/2022/11/23/style/warsaw-poland-shopping.html?searchResultPosition=8
 
-**Your Thanksgiving Flight Might Have Turbulence. Here’s the Forecast.**\
-`Pilots use predictions to avoid bumpy zones in the sky — or at least that’s the goal.`\
-https://nytimes.com/interactive/2022/11/23/us/23wx-thanksgiving-turbulence.html?searchResultPosition=9
+**Saw It? Loved It? Get It Anywhere in the World.**\
+`Several personal shopping services aim to get their clients exactly what they want, by plane, train or automobile.`\
+https://nytimes.com/2022/11/23/fashion/luxury-personal-shopping.html?searchResultPosition=9
 
-**Word of the Day: warble**\
-`This word has appeared in 10 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/11/23/learning/word-of-the-day-warble.html?searchResultPosition=10
+**How Noah Baumbach Made ‘White Noise’ a Disaster Movie for Our Moment**\
+`When the world shut down in 2020, the filmmaker found solace in Don DeLillo’s supposedly unadaptable novel — and turned it into a film that speaks to our deepest fears.`\
+https://nytimes.com/2022/11/23/magazine/white-noise-noah-baumbach.html?searchResultPosition=10
 
