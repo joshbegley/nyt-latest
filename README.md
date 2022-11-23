@@ -1,6 +1,6 @@
 **The Dinosaur Bone Market Is Booming. It Also Has Growing Pains.**\
 `Fossils are fetching millions at auction, inspiring legal disputes and introducing intellectual property rights, trademarks and nondisclosure agreements to the world of paleontology.`\
-https://nytimes.com/2022/11/23/arts/dinosaur-bones-market-auction.html?searchResultPosition=1
+https://nytimes.com/2022/11/23/arts/design/dinosaur-bones-market-auction.html?searchResultPosition=1
 
 **5 Classical Music Albums You Can Listen to Right Now**\
 `A Schumann cycle conducted by Daniel Barenboim, works by Tyondai Braxton and Schubert sonatas by the pianist Paul Lewis are among the highlights.`\
