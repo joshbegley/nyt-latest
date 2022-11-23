@@ -1,4 +1,4 @@
-**Walmart is frequently at the center of the national gun debate.**\
+**Walmart Is Often at the Center of the National Gun Debate**\
 `In recent years, the nation’s largest retailer has stopped selling handguns and certain rifles, including AR-15s, and raised the minimum age to purchase firearms to 21.`\
 https://nytimes.com/2022/11/23/business/walmart-guns-firearms.html?searchResultPosition=1
 
