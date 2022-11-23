@@ -16,7 +16,7 @@ https://nytimes.com/2022/11/23/arts/television/jenna-ortega-wednesday-netflix.ht
 
 **How Californians Celebrate Thanksgiving**\
 `With sourdough stuffing, lots of fresh vegetables and, often, eating outdoors.`\
-https://nytimes.com/2022/11/23/us/how-californians-celebrate-thanksgiving.html?searchResultPosition=5
+https://nytimes.com/2022/11/23/us/california-thanksgiving.html?searchResultPosition=5
 
 **How Can I Get the Men to Pitch In at Our Thanksgiving Table?**\
 `A reader bristles at the reluctance of her male relatives and neighborhood husbands to volunteer for cleanup duty after meals she hosts at her home.`\
