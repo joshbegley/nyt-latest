@@ -14,7 +14,7 @@ https://nytimes.com/slideshow/2022/11/23/reader-center/for-sale-mountain-majesty
 `Opals light up pendant necklaces, drop earrings, statement bracelets and cocktail rings.`\
 https://nytimes.com/2022/11/23/t-magazine/opals-jewelry.html?searchResultPosition=4
 
-**Police Give Updates on Walmart Shooting in Virginia**\
+**Watch Live: Police Give Updates on Walmart Shooting in Virginia**\
 `Multiple people were shot and killed inside a Walmart in Chesapeake, Va., on Tuesday night, the authorities said.`\
 https://nytimes.com/video/us/100000008653463/walmart-shooting.html?searchResultPosition=5
 
