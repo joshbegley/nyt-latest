@@ -30,8 +30,8 @@ https://nytimes.com/2022/11/23/nyregion/harriet-bograd-dead.html?searchResultPos
 `Prosecutors say Saadah Masoud assaulted three Jewish men in 2021 and 2022, one of whom he dragged across the sidewalk during a pro-Palestinian demonstration in Manhattan.`\
 https://nytimes.com/2022/11/23/nyregion/ny-man-antisemitic-attacks-hate-crimes.html?searchResultPosition=8
 
-**Bolsonaro’s Team Makes Late Bid to Overturn Brazil’s Election**\
-`President Jair Bolsonaro’s campaign said votes from about 60 percent of voting machines should be thrown out because of a software bug. Independent experts say the bug does not affect the vote’s integrity.`\
+**Judge Slaps Down Bolsonaro’s Late Bid to Overturn Brazil’s Election**\
+`President Jair Bolsonaro’s campaign argued many votes should be nullified because of a software bug. But experts said the bug did not affect the vote, and Brazil’s elections chief dismissed the complaint.`\
 https://nytimes.com/2022/11/23/world/americas/bolsonaro-brazil-election.html?searchResultPosition=9
 
 **A Stolen 1527 Record Signed by Cortés Will Be Returned to Mexico**\
