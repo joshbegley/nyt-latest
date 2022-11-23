@@ -2,7 +2,7 @@
 `An import ban targets sugar from Central Romana Corporation, a sugar behemoth whose sugar is sold under the Domino, Florida Crystals and C&H brands.`\
 https://nytimes.com/2022/11/23/business/economy/us-sugar-imports-forced-labor.html?searchResultPosition=1
 
-**Russian Strike on Hospital Kills Newborn and Injures Mother**\
+**Russian Rocket Hits Hospital, Killing a Newborn, Ukraine Says**\
 `Video from the scene shows the aftermath of a Russian rocket attack on a hospital’s maternity ward in Vilniansk, in the Zaporizhzhia region, Ukrainian authorities said.`\
 https://nytimes.com/video/world/europe/100000008653488/russia-ukrain-maternity-ward.html?searchResultPosition=2
 
