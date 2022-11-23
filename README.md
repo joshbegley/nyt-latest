@@ -3,7 +3,7 @@
 https://nytimes.com/video/world/middleeast/100000008653426/jerusalem-bus-explosions.html?searchResultPosition=1
 
 **Multiple Fatalities in Walmart Shooting in Virginia**\
-`The assailant opened fire inside a Walmart in Chesapeake, Va., on Tuesday night, and was later found dead at the store, authorities said.`\
+`The assailant opened fire inside a Walmart in Chesapeake, Va., on Tuesday night, and was later found dead at the store, the authorities said.`\
 https://nytimes.com/video/us/100000008653387/chesapeake-virginia-walmart-shooting.html?searchResultPosition=2
 
 **What to Know About This Year’s Thanksgiving Day N.F.L. Games**\
