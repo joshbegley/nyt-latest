@@ -1,5 +1,5 @@
 **A Stolen 1527 Record Signed by Cortés Will Be Returned to Mexico**\
-`The receipt bearing the signature of the conquistador was taken more than 30 years ago. It turned up at an auction in Massachusetts, and the F.B.I. stepped in.`\
+`The receipt bearing the signature of the conquistador was taken some 30 years ago. It turned up at an auction in Massachusetts, and the F.B.I. stepped in.`\
 https://nytimes.com/2022/11/23/us/cortes-manuscript-mexico-boston.html?searchResultPosition=1
 
 **Pope Francis compares Russia’s war against Ukraine to a devastating Stalin-era famine.**\
