@@ -2,7 +2,7 @@
 `Four books show kids the infinite joys of building, sailing, restoring and just plain floating a boat.`\
 https://nytimes.com/2022/11/23/books/review/picture-books-about-boats.html?searchResultPosition=1
 
-**Winter Cold Becomes a Weapon**\
+**Winter Cold Becomes a Weapon in Ukraine**\
 `A barrage of Russian missiles causes power outages as temperatures drop.`\
 https://nytimes.com/2022/11/23/briefing/russia-ukraine-war-humanitarian-crisis.html?searchResultPosition=2
 
