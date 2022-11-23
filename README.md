@@ -1,4 +1,4 @@
-**A Saudi Soccer Victory Rings Out Across the Arab World**\
+**Even the Saudi Team Is Stunned After Victory Over Argentina**\
 `Even the country’s de facto leader had downplayed expectations. After a win over Lionel Messi’s Argentina, one of the most shocking results in World Cup history, Wednesday will be a national holiday.`\
 https://nytimes.com/2022/11/22/sports/soccer/saudi-arabia-argentina.html?searchResultPosition=1
 
