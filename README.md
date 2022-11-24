@@ -1,40 +1,40 @@
+**Are You Really So Different From the Blue Sea Blob?**\
+`A call for empathy for strangeness. `\
+https://nytimes.com/2022/11/24/opinion/are-you-really-so-different-from-the-blue-sea-blob.html?searchResultPosition=1
+
+**Why Imran Khan Can’t Outplay Pakistan’s Military**\
+`The rise and fall of Imran Khan is a reminder of the enduring dominance of the military in Pakistan’s polity.`\
+https://nytimes.com/2022/11/24/opinion/pakistan-imran-khan-assassination-attempt.html?searchResultPosition=2
+
+**Is Donald Trump Ineligible to Be President?**\
+`The nation once again faces dilemma as it confronts a third presidential run by Donald Trump.`\
+https://nytimes.com/2022/11/24/opinion/trump-14th-amendment.html?searchResultPosition=3
+
+**The Glow of a Wedding Amid Bombs and Blackouts**\
+`How beauty in war can remind us of our humanity.`\
+https://nytimes.com/2022/11/24/opinion/wedding-beauty-ukraine-war.html?searchResultPosition=4
+
+**Joan Mitchell: A Painter at Her Peak**\
+`A new exhibition shows the artist going deeper into the blues, greens and yellows of the French countryside, and into the act of painting itself.`\
+https://nytimes.com/2022/11/24/arts/design/joan-mitchell-david-zwirner.html?searchResultPosition=5
+
+**The Science of Comfort Food**\
+`Much of the joy we get from our favorite dishes stems from the memories we associate with them.`\
+https://nytimes.com/2022/11/24/well/eat/comfort-food.html?searchResultPosition=6
+
+**Everything Is Going to Be All Right**\
+`Happy Thanksgiving! We have you covered.`\
+https://nytimes.com/2022/11/24/dining/everything-is-going-to-be-all-right.html?searchResultPosition=7
+
 **Review: At the Philharmonic, a Taste of Holiday Bounty**\
 `Stéphane Denève leads a program of extravagantly colorful French works, with the pianist Víkingur Ólafsson as the soloist in a Ravel concerto.`\
-https://nytimes.com/2022/11/24/arts/music/review-new-york-philharmonic.html?searchResultPosition=1
+https://nytimes.com/2022/11/24/arts/music/review-new-york-philharmonic.html?searchResultPosition=8
 
 **9 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
-https://nytimes.com/2022/11/24/books/review/9-new-books-we-recommend-this-week.html?searchResultPosition=2
+https://nytimes.com/2022/11/24/books/review/9-new-books-we-recommend-this-week.html?searchResultPosition=9
 
 **The Secret to a National Cross-Country Title? Fun.**\
 `Cross-country can be a brutally hard, especially for runners who were phenoms in high school. For North Carolina State, the secret is simple.`\
-https://nytimes.com/2022/11/24/sports/cross-country-nc-state.html?searchResultPosition=3
-
-**‘Every hour is getting harder’: Surgeons struggle to operate when the power goes out.**\
-`The scene in a Kyiv hospital was a vivid illustration of the cascading toll Russia’s attacks are having on civilians far from the front lines.`\
-https://nytimes.com/2022/11/24/world/europe/ukraine-power-outages-hospitals.html?searchResultPosition=4
-
-**The Democrats Should Run ____ in 2024**\
-`Readers add to Frank Bruni’s list of possible candidates. Also: A gay marriage bill; funding Covid vaccines.`\
-https://nytimes.com/2022/11/24/opinion/letters/democrats-2024-election.html?searchResultPosition=5
-
-**The Tiny Dancers Who Make ‘The Nutcracker’ Sparkle**\
-`In New York City Ballet’s production this year, the children, most of them new to the show, are back to normal. Pint-size, that is.`\
-https://nytimes.com/2022/11/24/arts/dance/the-nutcracker-young-performers.html?searchResultPosition=6
-
-**Homes Became Offices, and Offices Became Homes**\
-`In 2020 and 2021, thousands of apartments were created in buildings that once housed offices, factories and hotels, signaling a trend that could grow as more people work remotely.`\
-https://nytimes.com/2022/11/24/realestate/apartment-converted-adaptive-reuse.html?searchResultPosition=7
-
-**‘The Rat Trap’ Review: Together for Better, but Mostly for Worse**\
-`Noël Coward’s bleak portrait of a collapsing marriage between two artists has its American premiere at New York City Center.`\
-https://nytimes.com/2022/11/24/theater/the-rat-trap-review.html?searchResultPosition=8
-
-**An Earthquake Took a Heavy Toll on Children. Shoddy Construction Could Be to Blame.**\
-`Children accounted for a third of the at least 272 dead when an earthquake hit Indonesia this week. Experts say the disaster highlights poor building standards in rural areas.`\
-https://nytimes.com/2022/11/24/world/asia/indonesia-earthquake-victims-children.html?searchResultPosition=9
-
-**In a Challenge to Beijing, Unrest Over Covid Lockdowns Spreads**\
-`Protests are rising as China enacts more lockdowns and quarantines, with no end in sight. The defiance is a test of Xi Jinping’s authoritarian leadership.`\
-https://nytimes.com/2022/11/24/world/asia/china-unrest-covid-lockdowns.html?searchResultPosition=10
+https://nytimes.com/2022/11/24/sports/cross-country-nc-state.html?searchResultPosition=10
 
