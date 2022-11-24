@@ -4,7 +4,7 @@ https://nytimes.com/2022/11/23/us/politics/guantanamo-prisoner-surgery.html?sear
 
 **How to Watch the Macy’s Thanksgiving Day Parade**\
 `This year’s parade will feature performers like Mariah Carey and Paula Abdul and will have 27 giant balloons and 31 floats.`\
-https://nytimes.com/2022/11/23/nyregion/macys-parade-time-thanksgiving.html?searchResultPosition=2
+https://nytimes.com/2022/11/23/nyregion/macys-thanksgiving-day-parade-time.html?searchResultPosition=2
 
 **Sarah Palin Loses as the Party She Helped Transform Moves Past Her**\
 `The former Alaska governor, once the standard-bearer of the G.O.P.’s dog-whistling, no-apologies culture, was no match for the same forces she rode to national prominence.`\
