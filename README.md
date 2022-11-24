@@ -1,6 +1,6 @@
 **Are You Really So Different From the Blue Sea Blob?**\
 `A call for empathy for strangeness. `\
-https://nytimes.com/2022/11/24/opinion/are-you-really-so-different-from-the-blue-sea-blob.html?searchResultPosition=1
+https://nytimes.com/2022/11/24/opinion/sea-creatures-blue-blob.html?searchResultPosition=1
 
 **Why Imran Khan Can’t Outplay Pakistan’s Military**\
 `The rise and fall of Imran Khan is a reminder of the enduring dominance of the military in Pakistan’s polity.`\
