@@ -1,5 +1,5 @@
 **Pakistan Names a New Army Chief, Amid Political Drama Centered on the Military**\
-`The appointment of Lt. Gen. Asim Munir comes after weeks of intense speculation and backstage negotiations over who would lead the nuclear-armed military.`\
+`The appointment of Lt. Gen. Syed Asim Munir comes after weeks of intense speculation and backstage negotiations over who would lead the nuclear-armed military.`\
 https://nytimes.com/2022/11/24/world/asia/pakistan-military.html?searchResultPosition=1
 
 **Your Thursday Briefing**\
