@@ -32,7 +32,7 @@ https://nytimes.com/2022/11/24/arts/music/review-new-york-philharmonic.html?sear
 
 **9 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
-https://nytimes.com/2022/11/24/books/review/9-new-books-we-recommend-this-week.html?searchResultPosition=9
+https://nytimes.com/2022/11/24/books/review/new-books-recommendations.html?searchResultPosition=9
 
 **The Secret to a National Cross-Country Title? Fun.**\
 `Cross-country can be a brutally hard, especially for runners who were phenoms in high school. For North Carolina State, the secret is simple.`\
