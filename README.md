@@ -30,11 +30,11 @@ https://nytimes.com/2022/11/24/world/europe/uk-disabled-astronaut-esa.html?searc
 `School, banks and government offices closed early on Thursday, and just about everyone was off work, unless they were serving beer or frying something.`\
 https://nytimes.com/2022/11/24/sports/soccer/brazilians-world-cup.html?searchResultPosition=8
 
+**Richarlíson, Brazil and, maybe, the start of something special.**\
+`Richarlíson scored both goals for Brazil, one of the tournament favorites, as it opened with a win against Serbia.`\
+https://nytimes.com/2022/11/24/sports/soccer/brazil-richarlison-goal.html?searchResultPosition=9
+
 **Lawmakers Back Bill to Enshrine Abortion Rights in France’s Constitution**\
 `The bill, which developed in response to the U.S. Supreme Court’s overturning of Roe v. Wade, may face opposition in France’s Senate and would have to be approved in a referendum.`\
-https://nytimes.com/2022/11/24/world/europe/france-abortion-rights-constitution.html?searchResultPosition=9
-
-**Jean-Marie Straub, Uncompromising Filmmaker, Is Dead at 89**\
-`Emerging from the French New Wave, driven by artistic purity, he and his wife and directing partner, Danièle Huillet, didn’t care if audiences walked out on their films.`\
-https://nytimes.com/2022/11/24/movies/jean-marie-straub-dead.html?searchResultPosition=10
+https://nytimes.com/2022/11/24/world/europe/france-abortion-rights-constitution.html?searchResultPosition=10
 
