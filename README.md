@@ -30,11 +30,11 @@ https://nytimes.com/2022/11/24/arts/television/lars-von-trier-the-kingdom-exodus
 `After a childhood of surfing and skateboarding on Oahu’s North Shore, the “Gossip Girl” star, party-circuit fixture and friend to many brands is making waves on the island of Manhattan.`\
 https://nytimes.com/2022/11/24/style/evan-mock-is-having-the-best-time.html?searchResultPosition=8
 
-**Homes for Sale in Connecticut and New York**\
-`This week’s properties are a four-bedroom in Branford, Conn., and a three-bedroom in Armonk, N.Y.`\
-https://nytimes.com/2022/11/24/realestate/homes-for-sale-in-connecticut-and-new-york.html?searchResultPosition=9
-
 **Giving Thanks for a Beloved Sugar Maple**\
 `A majestic tree is fading fast. For the people who loved it, it’s like losing a family member.`\
-https://nytimes.com/2022/11/24/climate/sugar-maple-pennsylvania-farm.html?searchResultPosition=10
+https://nytimes.com/2022/11/24/climate/sugar-maple-pennsylvania-farm.html?searchResultPosition=9
+
+**Homes for Sale in Connecticut and New York**\
+`This week’s properties are a four-bedroom in Branford, Conn., and a three-bedroom in Armonk, N.Y.`\
+https://nytimes.com/2022/11/24/realestate/homes-for-sale-in-connecticut-and-new-york.html?searchResultPosition=10
 
