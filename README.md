@@ -1,40 +1,40 @@
-**London’s Theater Cuts Matter, on Broadway and Beyond**\
-`The cushion of state money let the Hampstead and Donmar playhouses develop broad programs with international reach. Now they must find creative ways to play on.`\
-https://nytimes.com/2022/11/24/theater/london-theater-funding-cuts-donmar-hampstead-theater.html?searchResultPosition=1
+**The New York Times News Quiz, November 25, 2022**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2022/11/24/briefing/24news-quiz-world-cup-disney.html?searchResultPosition=1
 
-**Meet the World’s New Human Rights Crisis Manager. He Has a Lot to Do.**\
-`From Somalia to Ukraine to Xinjiang in China, Volker Türk will have no shortage of challenges as he steps into one of the United Nations’ most delicate roles.`\
-https://nytimes.com/2022/11/24/world/europe/volker-turk-un-human-rights.html?searchResultPosition=2
+**After 3 Mass Shootings, a Thanksgiving With 14 Empty Chairs**\
+`The victims’ lives paint a picture of a uniquely American holiday’s ideals. Their deaths reveal how routinely those dreams are dashed.`\
+https://nytimes.com/2022/11/24/nyregion/shootings-virginia-walmart-club-q-thanksgiving.html?searchResultPosition=2
 
-**American Dreams, Honed in Leeds**\
-`Christian Pulisic might be the standard-bearer for the United States World Cup team, but it is Brenden Aaronson who has captured hearts in England.`\
-https://nytimes.com/2022/11/24/sports/soccer/world-cup-usmnt-wales.html?searchResultPosition=3
+**Manx Language, Once Almost Silenced, Is Now the Talk of the Town**\
+`After being on the brink of extinction, the ancient tongue is experiencing a revival on the Isle of Man, thanks in part to an elementary school and some impassioned parents.`\
+https://nytimes.com/2022/11/24/world/europe/isle-of-man-manx-language.html?searchResultPosition=3
 
-**‘The Noel Diary’ Review: Revelations on a Cold Winter’s Night**\
-`Justin Hartley (“This Is Us”) is no stranger to the themes in this holiday romance, while Barrett Doss (“Station 19”) brings nuanced comedic timing and charm.`\
-https://nytimes.com/2022/11/24/movies/the-noel-diary-review.html?searchResultPosition=4
+**‘The Hours’ Gets Dressed for the Opera**\
+`While creating the costumes for a new opera adaptation of “The Hours,” a designer found inspiration in archival wallpaper, an English farmhouse and 1990s Calvin Klein.`\
+https://nytimes.com/2022/11/24/style/the-hours-met-opera-costumes.html?searchResultPosition=4
 
-**How Not to Be a Character in a ‘Bad Fashion Movie’**\
-`Laura Brown lost her job as a top magazine editor in 2022. That’s OK.`\
-https://nytimes.com/2022/11/24/style/how-not-to-be-a-character-in-a-bad-fashion-movie.html?searchResultPosition=5
+**Lars von Trier Had the Key to the End of ‘The Kingdom’ All Along**\
+`As he grapples with Parkinson’s and considers what’s next, the director continues to provoke in “The Kingdom Exodus,” the final season of his haunted-hospital drama.`\
+https://nytimes.com/2022/11/24/arts/television/lars-von-trier-the-kingdom-exodus.html?searchResultPosition=5
 
-**A Food and Cooking Editor Sets the Menu**\
-`Emily Weinstein, who leads The Times’s Food and Cooking coverage, keeps her focus on the readers who rely on the desk for recommendations and recipes.`\
-https://nytimes.com/2022/11/24/insider/a-food-and-cooking-editor-sets-the-menu.html?searchResultPosition=6
+**Evan Mock Is Having the Best Time**\
+`After a childhood of surfing and skateboarding on Oahu’s North Shore, the “Gossip Girl” star, party-circuit fixture and friend to many brands is making waves on the island of Manhattan.`\
+https://nytimes.com/2022/11/24/style/evan-mock-is-having-the-best-time.html?searchResultPosition=6
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/11/24/crosswords/spelling-bee-forum.html?searchResultPosition=7
+**Homes for Sale in Connecticut and New York**\
+`This week’s properties are a four-bedroom in Branford, Conn., and a three-bedroom in Armonk, N.Y.`\
+https://nytimes.com/2022/11/24/realestate/homes-for-sale-in-connecticut-and-new-york.html?searchResultPosition=7
 
-**Late Night Predicts a Tough Thanksgiving**\
-`For the humans, there’s inflation; for the turkeys, there’s avian flu. “To be fair, I’m pretty sure every Thanksgiving is a tough one for turkey,” said Stephen Colbert.`\
-https://nytimes.com/2022/11/24/arts/television/stephen-colbert-thanksgiving.html?searchResultPosition=8
+**Giving Thanks for a Beloved Sugar Maple**\
+`A majestic tree is fading fast. For the people who loved it, it’s like losing a family member.`\
+https://nytimes.com/2022/11/24/climate/sugar-maple-pennsylvania-farm.html?searchResultPosition=8
 
-**Ending Days of Political Gridlock, Malaysia’s King Appoints a Prime Minister**\
-`Before Anwar Ibrahim’s selection, the country had been contending with its first hung Parliament after Saturday’s election.`\
-https://nytimes.com/2022/11/24/world/asia/malaysia-elections-prime-minister.html?searchResultPosition=9
+**Will You Be Alone for Matching Pajamas Season?**\
+`Whether hard launching a relationship, recreating a childhood memory or just doing it for the ’Gram, people are embracing a cuffing season tradition.`\
+https://nytimes.com/2022/11/24/style/matching-christmas-pjs.html?searchResultPosition=9
 
-**Pakistan Names a New Army Chief, Amid Political Drama Centered on the Military**\
-`The appointment of Lt. Gen. Syed Asim Munir comes after weeks of intense speculation and backstage negotiations over who would lead the nuclear-armed military.`\
-https://nytimes.com/2022/11/24/world/asia/pakistan-military.html?searchResultPosition=10
+**United States Enters a New Era of Direct Confrontation With Iran**\
+`The Biden administration has imposed new sanctions on Tehran and expressed support for protesters, as the Iranian government aids Russia in the Ukraine war and continues nuclear enrichment.`\
+https://nytimes.com/2022/11/24/us/politics/iran-protests-ukraine-nuclear-enrichment.html?searchResultPosition=10
 
