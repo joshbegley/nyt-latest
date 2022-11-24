@@ -30,8 +30,8 @@ https://nytimes.com/interactive/2022/11/24/briefing/24news-quiz-world-cup-disney
 `The victims’ lives paint a picture of a uniquely American holiday’s ideals. Their deaths reveal how routinely those dreams are dashed.`\
 https://nytimes.com/2022/11/24/nyregion/shootings-virginia-walmart-club-q-thanksgiving.html?searchResultPosition=8
 
-**Manx Language, Once Almost Silenced, Is Now the Talk of the Town**\
-`After being on the brink of extinction, the ancient tongue is experiencing a revival on the Isle of Man, thanks in part to an elementary school and some impassioned parents.`\
+**An Ancient Language, Declared Dead, Is a British Isle’s Talk of the Town**\
+`After being on the brink of extinction, Manx is experiencing a revival on the Isle of Man, thanks in part to an elementary school and some impassioned parents.`\
 https://nytimes.com/2022/11/24/world/europe/isle-of-man-manx-language.html?searchResultPosition=9
 
 **‘The Hours’ Gets Dressed for the Opera**\
