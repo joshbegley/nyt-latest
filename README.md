@@ -3,7 +3,7 @@
 https://nytimes.com/2022/11/25/sports/soccer/world-cup-mexico.html?searchResultPosition=1
 
 **Trump’s Latest Dinner Guest: Nick Fuentes, White Supremacist**\
-`The former president’s table for four at Mar-a-Lago on Wednesday also included Kanye West, whose antisemitic statements have made him an entertainment-industry outcast.`\
+`The former president’s table for four at Mar-a-Lago on Tuesday also included Kanye West, whose antisemitic statements have made him an entertainment-industry outcast.`\
 https://nytimes.com/2022/11/25/us/politics/trump-nick-fuentes-dinner.html?searchResultPosition=2
 
 **Brazil’s Neymar Is Out With an Injury After Serbia Match**\
