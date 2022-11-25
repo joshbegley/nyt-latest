@@ -12,7 +12,7 @@ https://nytimes.com/2022/11/25/us/john-y-brown-jr-dead.html?searchResultPosition
 
 **The U.S. team looks different. But it sounds different, too.**\
 `This squad has developed an English lilt.`\
-https://nytimes.com/2022/11/25/sports/the-us-team-looks-different-but-it-sounds-different-too.html?searchResultPosition=4
+https://nytimes.com/2022/11/25/sports/us-team-roster-accents.html?searchResultPosition=4
 
 **Puerto Ricans Expand the Scope of ‘American Art’ at the Whitney**\
 `On the fifth anniversary of Hurricane Maria, a show of extraordinary tenderness and political bite shines a light on a man-made and natural disaster.`\
