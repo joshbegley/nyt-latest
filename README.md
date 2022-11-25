@@ -26,15 +26,15 @@ https://nytimes.com/2022/11/25/us/ukraine-artillery-breakdown.html?searchResultP
 `“This is the revenge of those who lost,” the Ukrainian president, Volodymyr Zelensky, said of Russia’s attacks.`\
 https://nytimes.com/2022/11/25/world/europe/ukraine-russia-kherson.html?searchResultPosition=7
 
+**Call It Football or Soccer. The U.S. Is Claiming It as Its Own.**\
+`A feisty 0-0 tie against World Cup contender England gave the U.S. a chance — and perhaps the courage — to advance in the tournament.`\
+https://nytimes.com/2022/11/25/sports/soccer/us-soccer-england-tie-draw-world-cup.html?searchResultPosition=8
+
 **For Mexico, an Unlucky Seven**\
 `El Tri has advanced out of the group stage in seven straight World Cups. It is only then that the problems start.`\
-https://nytimes.com/2022/11/25/sports/soccer/world-cup-mexico.html?searchResultPosition=8
+https://nytimes.com/2022/11/25/sports/soccer/world-cup-mexico.html?searchResultPosition=9
 
 **Trump’s Latest Dinner Guest: Nick Fuentes, White Supremacist**\
 `The former president’s table for four at Mar-a-Lago on Tuesday also included Kanye West, whose antisemitic statements have made him an entertainment-industry outcast.`\
-https://nytimes.com/2022/11/25/us/politics/trump-nick-fuentes-dinner.html?searchResultPosition=9
-
-**Brazil’s Neymar Is Out With an Injury After Serbia Match**\
-`Neymar injured a lateral ligament on his right ankle, the team’s doctor said. He will not play in Monday’s game against Switzerland.`\
-https://nytimes.com/2022/11/25/sports/soccer/neymar-injury-world-cup.html?searchResultPosition=10
+https://nytimes.com/2022/11/25/us/politics/trump-nick-fuentes-dinner.html?searchResultPosition=10
 
