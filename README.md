@@ -1,4 +1,4 @@
-**Putin holds a highly-choreographed meeting with mothers of Russian servicemen.**\
+**Putin holds a highly choreographed meeting with mothers of Russian servicemen.**\
 `The televised event came amid intensifying public criticism over the conditions recent Russian conscripts have been forced to bear.`\
 https://nytimes.com/2022/11/25/world/europe/putin-russia-soldiers-mothers-war.html?searchResultPosition=1
 
