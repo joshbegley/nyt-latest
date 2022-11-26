@@ -23,7 +23,7 @@ https://nytimes.com/2022/11/25/briefing/virginia-walmart-shooting-world-cup-us-e
 https://nytimes.com/2022/11/25/business/black-friday-shopping.html?searchResultPosition=7
 
 **Meet the House Republicans Who Will Wield Power in the New Congress**\
-`The G.O.P. lawmakers in line to chair key committees have made it clear they will prioritize investigations of the Biden administration.`\
+`The G.O.P. lawmakers in line to lead key committees have made it clear they will prioritize investigations of the Biden administration.`\
 https://nytimes.com/2022/11/25/us/politics/house-republicans-congress.html?searchResultPosition=8
 
 **Artillery Is Breaking in Ukraine. It’s Becoming a Problem for the Pentagon.**\
