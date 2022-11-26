@@ -34,7 +34,7 @@ https://nytimes.com/2022/11/26/us/ukrainian-flags-maine-why.html?searchResultPos
 `Roth was an outraged witness to tyranny, which led him to exile, and his books to the bonfire. In “Endless Flight,” Keiron Pim examines the flawed man and his resonant legacy.`\
 https://nytimes.com/2022/11/26/books/joseph-roth-endless-flight-keiron-pim.html?searchResultPosition=9
 
-**What Do the Objects You Own Say About You?**\
-`A new book, “How to Live With Objects,” from the founders of the design website Sight Unseen explores the topic.`\
-https://nytimes.com/2022/11/26/style/home-decor-design-sight-unseen.html?searchResultPosition=10
+**What Does Queens Need More, a New Park or a New Train Line?**\
+`A derelict rail line is being reimagined as a linear park, like Manhattan’s High Line. But in a borough that lacks both green space and transportation, locals wonder whether its best use would the original one.`\
+https://nytimes.com/2022/11/26/nyregion/queens-high-line.html?searchResultPosition=10
 
