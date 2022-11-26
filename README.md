@@ -8,7 +8,7 @@ https://nytimes.com/2022/11/26/arts/music/irene-cara-dead.html?searchResultPosit
 
 **Mexico’s love-hate relationship with Argentina haunts the team’s World Cup matchup.**\
 `A legacy has led to success, but not always enough of it.`\
-https://nytimes.com/2022/11/26/sports/soccer/mexicos-love-hate-relationship-with-argentina-haunts-the-teams-world-cup-matchup.html?searchResultPosition=3
+https://nytimes.com/2022/11/26/sports/soccer/cesar-luis-menotti-argentina-mexico.html?searchResultPosition=3
 
 **Deadly Landslide Hits Italian Island of Ischia**\
 `Heavy rains on the southern Italian island of Ischia caused a landslide that killed at least one person and left nearly a dozen missing, according to the authorities.`\
