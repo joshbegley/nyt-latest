@@ -26,13 +26,13 @@ https://nytimes.com/2022/11/26/business/hunting-wyoming-elk-mountain-access.html
 `Reporters under surveillance. Political opponents being wiretapped. The scandal is called the ‘Greek Watergate.’ But not enough people are paying attention.`\
 https://nytimes.com/2022/11/26/business/greece-journalists-surveillance-predator.html?searchResultPosition=7
 
-**A Timely Biography Traces Joseph Roth’s Accounts of Fascism**\
-`Roth was an outraged witness to tyranny, which led him to exile, and his books to the bonfire. In “Endless Flight,” Keiron Pim examines the flawed man and his resonant legacy.`\
-https://nytimes.com/2022/11/26/books/joseph-roth-endless-flight-keiron-pim.html?searchResultPosition=8
-
 **Ukrainian Flags Are on Display All Over Maine. Why?**\
 `Like people in other states, Mainers want to show their solidarity with Ukraine. But it’s more than that.`\
-https://nytimes.com/2022/11/26/us/ukrainian-flags-are-on-display-all-over-maine-why.html?searchResultPosition=9
+https://nytimes.com/2022/11/26/us/ukrainian-flags-maine-why.html?searchResultPosition=8
+
+**A Timely Biography Traces Joseph Roth’s Accounts of Fascism**\
+`Roth was an outraged witness to tyranny, which led him to exile, and his books to the bonfire. In “Endless Flight,” Keiron Pim examines the flawed man and his resonant legacy.`\
+https://nytimes.com/2022/11/26/books/joseph-roth-endless-flight-keiron-pim.html?searchResultPosition=9
 
 **What Do the Objects You Own Say About You?**\
 `A new book, “How to Live With Objects,” from the founders of the design website Sight Unseen explores the topic.`\
