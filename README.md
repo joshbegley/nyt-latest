@@ -34,7 +34,7 @@ https://nytimes.com/2022/11/26/opinion/republican-party-extremism.html?searchRes
 `We’re as close as ever but still far apart.`\
 https://nytimes.com/2022/11/26/opinion/its-time-again-for-my-brother-kevin.html?searchResultPosition=9
 
-**As Ukraine Marks Anniversary of Famine, Officials Draw Parallels to Russia’s Strikes**\
-`The Holodomor commemoration came as President Vladimir V. Putin was accused of using missile strikes on Ukraine’s power grid to freeze the country into submission.`\
+**On the Anniversary of Ukraine’s Famine, Parallels to Russia’s Strikes**\
+`The Holodomor commemoration came as President Vladimir V. Putin was accused of degrading Ukraine’s power grid to freeze the country into submission.`\
 https://nytimes.com/2022/11/26/world/europe/ukraine-war-holodomor-strikes.html?searchResultPosition=10
 
