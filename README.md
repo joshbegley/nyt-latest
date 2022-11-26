@@ -10,8 +10,8 @@ https://nytimes.com/2022/11/26/world/americas/venezuela-chevron-oil-us.html?sear
 `Edgar Dworsky has become the go-to expert on “shrinkflation,” when products or packaging are manipulated so people get less for their money.`\
 https://nytimes.com/2022/11/26/climate/fighting-shrinkflation-consumer-products.html?searchResultPosition=3
 
-**Lionel Messi saved Argentina’s World Cup, and a soccer nation has hope again.**\
-`Messi led the charge, but Enzo Fernández closed this one out.`\
+**Lionel Messi Scores as Argentina Saves Its World Cup**\
+`Argentina’s biggest star scored the goal that saved the day. Enzo Fernández scored the one that made him smile.`\
 https://nytimes.com/2022/11/26/sports/soccer/messi-argentina-mexico.html?searchResultPosition=4
 
 **This Country’s Top Judges Were All Foreigners. Now They’re Gone.**\
