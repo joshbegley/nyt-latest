@@ -1,40 +1,40 @@
-**Giant Wind Farms Arise Off Scotland, Easing the Pain of Oil’s Decline**\
-`Oil and gas workers, losing their jobs as fossil fuel investment wanes, find work in the wind energy business.`\
-https://nytimes.com/2022/11/27/business/scotland-wind-farms-offshore.html?searchResultPosition=1
+**Going Local on the Island of St. Lucia**\
+`Creole cooking classes, boisterous street parties, a tour of a cacao plantation and visits with islanders preserving local traditions: A traveler explores a more intimate St. Lucia.`\
+https://nytimes.com/2022/11/27/travel/st-lucia-sustainable-tourism.html?searchResultPosition=1
 
-**He Never Denied Selling Drugs. But Britain Says He’s a Slave Master, Too.**\
-`A law written to prevent human trafficking is being wielded against low-level drug dealers. The effects are long-lasting.`\
-https://nytimes.com/2022/11/27/world/europe/uk-drug-dealer-slave-master.html?searchResultPosition=2
+**Can Responsible Travel to Hawaii Be Fun? We Gave It a Try.**\
+`It turns out that farm stays and eco-friendly snorkeling trips really are more entertaining than sitting on a beach with a mai tai. Here’s one approach to thoughtful travel in an overtouristed place.`\
+https://nytimes.com/2022/11/27/travel/hawaii-sustainable-tourism.html?searchResultPosition=2
 
-**The Exceptionally American Problem of Rising Roadway Deaths**\
-`Why other rich nations have surpassed the U.S. in protecting pedestrians, cyclists and motorists.`\
-https://nytimes.com/2022/11/27/upshot/road-deaths-pedestrians-cyclists.html?searchResultPosition=3
+**How Green is Your Cruise?**\
+`As cruise companies head into their busiest season, they say they have ambitious plans to find cleaner sources of fuel. But critics say the progress is too slow.`\
+https://nytimes.com/2022/11/27/travel/cruise-sustainability-climate-change.html?searchResultPosition=3
 
-**What Ziwe and LaQuan Smith Wore to Club Moda**\
-`And Aperture celebrates a book on Black trans liberation.`\
-https://nytimes.com/2022/11/27/style/what-ziwe-and-laquan-smith-wore-to-club-moda.html?searchResultPosition=4
+**7 New Escapes in the Caribbean**\
+`From an off-the-grid tropical hideaway to a reefside diving resort, these new hotels will take you far from anything that resembles snow and cold.`\
+https://nytimes.com/2022/11/27/travel/new-caribbean-hotels.html?searchResultPosition=4
 
-**He Says His Landlord Is Harassing Him to Leave a $450-a-Month Apartment**\
-`A 77-year-old man has lived in the same building for years. He says in a lawsuit that a neighbor and his landlord are jointly using dubious tactics to push him out.`\
-https://nytimes.com/2022/11/27/realestate/apartment-landlord-harassment.html?searchResultPosition=5
+**The Key to Vacationing with a Toddler? A Wave-Free Beach.**\
+`A good solution for calmer waters when traveling with a small child is looking for just that. Here’s a guide to destinations that are basically bathtubs — even in the winter.`\
+https://nytimes.com/2022/11/27/travel/toddler-kids-vacation-beach.html?searchResultPosition=5
 
-**These Young Workers Are ‘Romanticizing’ the Return to Office**\
-`As many others chafe against employer mandates, creators on TikTok —  some new to the work force — are trying to show that the office can be fun.`\
-https://nytimes.com/2022/11/27/business/tiktok-office-influencers.html?searchResultPosition=6
+**Love or Leave Winter, On the Cheap**\
+`Whether you embrace the chill or want to flee it, save on your next vacation with these 10 tips for affordable cold-weather travel.`\
+https://nytimes.com/2022/11/27/travel/love-or-leave-winter-on-the-cheap.html?searchResultPosition=6
 
-**Christmas Trees Trimmed in Irony**\
-`A Wordle grid. A mitten-wearing Bernie Sanders. A stick of butter. Modern ornaments capture the zeitgeist.`\
-https://nytimes.com/2022/11/27/style/christmas-ornaments.html?searchResultPosition=7
+**Long Stretches of the Mississippi River Have Run Dry. What’s Next?**\
+`There are no new rivers left to tap. We must learn to do more with less.`\
+https://nytimes.com/2022/11/27/opinion/environment/mississippi-river-drought-colorado.html?searchResultPosition=7
 
-**Homes That Sold for Around $450,000**\
-`Recent residential sales in New York City and the region.`\
-https://nytimes.com/2022/11/27/realestate/home-sales-450000-dollars.html?searchResultPosition=8
+**Grief Is a Forever Thing**\
+`I take issue with the idea that lasting grief, especially after a suicide, is pathological.`\
+https://nytimes.com/2022/11/27/opinion/prolonged-grief-suicide.html?searchResultPosition=8
 
-**Walkers in the City**\
-`During the pandemic, the New York Times architecture critic, Michael Kimmelman, toured parts of New York on foot with architects, urban planners and other experts. His book “The Intimate City” is a record of what they saw.`\
-https://nytimes.com/2022/11/27/books/review/the-intimate-city-michael-kimmelman.html?searchResultPosition=9
+**Selena Gomez, Taylor Swift and the Reality of Imperfection**\
+`A new documentary on Selena Gomez is the latest to lift the veil.`\
+https://nytimes.com/2022/11/27/opinion/selena-gomez-stardom-vulnerability.html?searchResultPosition=9
 
-**Don’t Let a Co-Worker Turn Your Life Upside Down**\
-`Or sing too loudly through the cubicle.`\
-https://nytimes.com/2022/11/27/business/roxane-gay-work-friend-toxic-coworker.html?searchResultPosition=10
+**How to Talk to a Widow**\
+`Please, don’t email a widow with sympathy and then just disappear. There is no timetable for us moving on.`\
+https://nytimes.com/2022/11/27/opinion/widows-mental-health.html?searchResultPosition=10
 
