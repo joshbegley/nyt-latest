@@ -1,4 +1,4 @@
-**Riots breaks out in Brussels after Belgium’s loss to Morocco.**\
+**Riots breaks out in Brussels after Belgium’s surprising loss to Morocco.**\
 `The violence erupted after Morocco upset Belgium, 2-0, at the World Cup.`\
 https://nytimes.com/2022/11/27/sports/soccer/belgium-riots-world-cup-morocco.html?searchResultPosition=1
 
