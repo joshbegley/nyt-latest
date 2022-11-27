@@ -4,7 +4,7 @@ https://nytimes.com/2022/11/27/us/politics/biden-marijuana-pardons.html?searchRe
 
 **Mexico’s view from last place: ‘We still have some hope.’**\
 `Its streak of advancing to the knockout stage in seven straight World Cups is dangerously close to ending.`\
-https://nytimes.com/2022/11/27/sports/soccer/mexico-group-e-last-place.html?searchResultPosition=2
+https://nytimes.com/2022/11/27/sports/soccer/mexico-group-standings-world-cup.html?searchResultPosition=2
 
 **Is Bilal Baig Ready for Fame? Sort Of.**\
 `“Sort Of,” the melancholy comedy loosely based on the performer’s life and experiences, returns for its second season on HBO Max on Dec. 1.`\
