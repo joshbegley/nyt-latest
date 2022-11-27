@@ -3,7 +3,7 @@
 https://nytimes.com/2022/11/27/business/toddler-bottles-recall-green-sprouts.html?searchResultPosition=1
 
 **Iran Calls for U.S. to Be Expelled From World Cup**\
-`U.S. Soccer angered Iran by posting a doctored Iran flag on social media. The Americans said the decision was intentional, but later deleted the posts.`\
+`U.S. Soccer angered Iran by posting a doctored Iran flag on social media. The Americans said the decision was intentional but later deleted the posts.`\
 https://nytimes.com/2022/11/27/sports/soccer/iran-flag-us-world-cup.html?searchResultPosition=2
 
 **Riots break out in Brussels after Belgium’s surprising loss to Morocco.**\
