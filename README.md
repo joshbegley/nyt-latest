@@ -10,8 +10,8 @@ https://nytimes.com/2022/11/27/sports/soccer/japan-fans-clean-up-world-cup.html?
 `Sam Bankman-Fried’s downfall is spectacular and interesting, but it’s really nothing new. `\
 https://nytimes.com/2022/11/27/opinion/ftx-sam-bankman-fried-fullenkamp.html?searchResultPosition=3
 
-**Deadly Fire in China Fuels Protests Over Xi’s Covid Policies**\
-`Demonstrations became rare once the government cut off most routes to collective action. But ubiquitous Covid rules, bringing shared suffering, have created a focus for anger.`\
+**After a Deadly Blaze, a Surge of Defiance Against China’s Covid Policies**\
+`Stringent Covid rules, bringing shared suffering, have created a focus for an eruption of public anger.`\
 https://nytimes.com/2022/11/27/world/asia/china-covid-protest.html?searchResultPosition=4
 
 **What’s Going On in This Picture? | Nov. 28, 2022**\
