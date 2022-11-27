@@ -15,7 +15,7 @@ https://nytimes.com/2022/11/27/crosswords/daily-puzzle-2022-11-28.html?searchRes
 https://nytimes.com/2022/11/27/world/africa/mogadishu-shabab-hotel.html?searchResultPosition=4
 
 **What We Learned From Week 12 in the N.F.L.**\
-`The Jets kept pace in the A.F.C. playoff race by beating the Bears after making a quarterback change. Tennessee and Cincinnati are developing one of the A.F.C.’s most underrated rivalries.`\
+`The Jets kept pace by beating the Bears after making a quarterback change. The Titans and Bengals are developing one of the A.F.C.’s most underrated rivalries and the Ravens’ fourth-quarter drama continued.`\
 https://nytimes.com/2022/11/27/sports/football/nfl-week-12-scores.html?searchResultPosition=5
 
 **Footage Shows Protests Across China Over Covid Restrictions**\
