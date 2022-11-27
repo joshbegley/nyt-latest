@@ -30,8 +30,8 @@ https://nytimes.com/2022/11/27/business/economy/holiday-shopping-retail-sales.ht
 `Rescuers were still searching for people who might have been swept up in the disaster.`\
 https://nytimes.com/2022/11/27/world/africa/cameroon-landslide-funeral.html?searchResultPosition=8
 
-**Germany Meets the Moment and Keeps Its World Cup Hopes Alive**\
-`A single moment shows just how fast a team’s journey can turn.`\
+**Germany meets the moment and keeps its World Cup hopes alive.**\
+`A sin`\
 https://nytimes.com/2022/11/27/sports/soccer/germany-world-cup-standing-spain.html?searchResultPosition=9
 
 **Your Monday Briefing: Covid Protests Intensify in China**\
