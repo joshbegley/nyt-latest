@@ -11,7 +11,7 @@ https://nytimes.com/2022/11/27/sports/soccer/japan-fans-clean-up-world-cup.html?
 https://nytimes.com/2022/11/27/opinion/ftx-sam-bankman-fried-fullenkamp.html?searchResultPosition=3
 
 **After a Deadly Blaze, a Surge of Defiance Against China’s Covid Policies**\
-`Stringent Covid rules, bringing shared suffering, have created a focus for an eruption of public anger.`\
+`Protests became rare once the government cut off most routes to collective action. But ubiquitous Covid rules, bringing shared suffering, have created a focus for anger.`\
 https://nytimes.com/2022/11/27/world/asia/china-covid-protest.html?searchResultPosition=4
 
 **What’s Going On in This Picture? | Nov. 28, 2022**\
