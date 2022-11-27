@@ -3,7 +3,7 @@
 https://nytimes.com/2022/11/26/crosswords/daily-puzzle-2022-11-27.html?searchResultPosition=2
 
 **Protests Erupt in Shanghai and Other Chinese Cities Over Covid Controls**\
-`In Shanghai, a crowd chanted calls for China’s leader, Xi Jinping, to step down, a rare act of political defiance reflecting growing public frustration with his “zero Covid” demands.`\
+`A chanting crowd called for China’s leader, Xi Jinping, to step down, a rare act of defiance reflecting growing anger after nearly three years of lockdowns.`\
 https://nytimes.com/2022/11/26/world/asia/china-protests-covid.html?searchResultPosition=3
 
 **U.S. Allows Chevron to Expand Energy Operations in Venezuela**\
