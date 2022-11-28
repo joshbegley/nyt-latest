@@ -1,5 +1,5 @@
 **Antiwar Activists Who Flee Russia Find Detention, Not Freedom, in the U.S.**\
-`Thousands of Russians are crossing the southern border to claim asylum. Many are ending up in immigration prison. “I left Russia for a place just like Russia,” said one.`\
+`Thousands of Russians are crossing the U.S. southern border to claim asylum. Many are ending up in immigration prison. “I left Russia for a place just like Russia,” said one.`\
 https://nytimes.com/2022/11/28/us/russian-activists-asylum.html?searchResultPosition=1
 
 **Elon Musk Takes On Apple’s Power, Setting Up a Clash**\
