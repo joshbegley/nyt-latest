@@ -1,40 +1,40 @@
+**Set Adrift**\
+`Driven by Covid chaos, online disinformation and a YouTube guru, two Americans went looking for solace on a sailboat in the middle of the Pacific. They found a different fate.`\
+https://nytimes.com/interactive/2022/11/27/us/set-adrift.html?searchResultPosition=1
+
 **Small Plane Crashes Into Transmission Tower in Maryland**\
 `Rescuers on Sunday night were devising a plan to extricate the two people on board. Photos showed the plane entangled in power lines and seemingly suspended in a snarled mess of metal.`\
-https://nytimes.com/2022/11/27/us/maryland-plane-crash-power-line.html?searchResultPosition=1
+https://nytimes.com/2022/11/27/us/maryland-plane-crash-power-line.html?searchResultPosition=2
 
 **Another Patron Who Subdued Assailant at Club Q Acted to Save ‘the Family I Found’**\
 `Thomas James, a Navy officer, knocked down the attacker along with an Army veteran.`\
-https://nytimes.com/2022/11/27/us/colorado-shooting-club-q-heroes.html?searchResultPosition=2
+https://nytimes.com/2022/11/27/us/colorado-shooting-club-q-heroes.html?searchResultPosition=3
 
 **Germany’s Late Equalizer Revives Its World Cup Hopes**\
 `See how Niclas Füllkrug scored a late goal, in a 1-1 draw with Spain, to preserve Germany’s chance of advancing to the knockout rounds.`\
-https://nytimes.com/interactive/2022/11/27/sports/world-cup/spain-germany-world-cup-goal.html?searchResultPosition=3
+https://nytimes.com/interactive/2022/11/27/sports/world-cup/spain-germany-world-cup-goal.html?searchResultPosition=4
 
 **Mexico’s President Leads Supporters in March Through Capital**\
 `Tens of thousands of Mexicans walked through the streets Sunday to show their support for President Andrés Manuel López Obrador amid some pushback to his political agenda in recent weeks.`\
-https://nytimes.com/2022/11/27/world/americas/mexico-amlo-march.html?searchResultPosition=4
+https://nytimes.com/2022/11/27/world/americas/mexico-amlo-march.html?searchResultPosition=5
 
 **Louise Tobin, Jazz Vocalist Who Put Her Career on Hold, Dies at 104**\
 `She stopped performing to raise children, at the request of her first husband, the bandleader Harry James. After remarrying, she resumed singing decades later.`\
-https://nytimes.com/2022/11/27/arts/music/louise-tobin-dead.html?searchResultPosition=5
+https://nytimes.com/2022/11/27/arts/music/louise-tobin-dead.html?searchResultPosition=6
 
 **Review: In ‘KPOP,’ Korean Pop and Broadway Meet (Too) Cute**\
 `The worldwide sensation and American-style musical theater form an awkward alliance onstage.`\
-https://nytimes.com/2022/11/27/theater/kpop-review-broadway.html?searchResultPosition=6
+https://nytimes.com/2022/11/27/theater/kpop-review-broadway.html?searchResultPosition=7
 
 **Really Miffed**\
 `Chloe Revery makes her New York Times Crossword debut, and she’s … well, you’ll find out.`\
-https://nytimes.com/2022/11/27/crosswords/daily-puzzle-2022-11-28.html?searchResultPosition=7
+https://nytimes.com/2022/11/27/crosswords/daily-puzzle-2022-11-28.html?searchResultPosition=8
 
 **Gunmen Storm Mogadishu Hotel, Trapping Government Officials**\
 `An extremist group, Al Shabab, claimed responsibility for the attack at the hotel in the Somali capital. There were few immediate reports of casualties, but the siege was still underway.`\
-https://nytimes.com/2022/11/27/world/africa/mogadishu-shabab-hotel.html?searchResultPosition=8
+https://nytimes.com/2022/11/27/world/africa/mogadishu-shabab-hotel.html?searchResultPosition=9
 
 **What We Learned From Week 12 in the N.F.L.**\
 `The Jets kept pace by beating the Bears after making a quarterback change. The Titans and Bengals are developing one of the A.F.C.’s most underrated rivalries and the Ravens’ fourth-quarter drama continued.`\
-https://nytimes.com/2022/11/27/sports/football/nfl-week-12-scores.html?searchResultPosition=9
-
-**Footage Shows Protests Across China Over Covid Restrictions**\
-`Rare nationwide protests have broken out in multiple cities in China. Many expressed frustration over stringent Covid lockdowns; others demanded freedom of speech and even the removal of China’s top leader.`\
-https://nytimes.com/video/world/asia/100000008659018/china-covid-protests.html?searchResultPosition=10
+https://nytimes.com/2022/11/27/sports/football/nfl-week-12-scores.html?searchResultPosition=10
 
