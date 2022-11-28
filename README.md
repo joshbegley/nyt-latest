@@ -1,40 +1,40 @@
+**Amid Scandals and Politics, Poland’s Youths Lose Faith in Catholic Church**\
+`The Polish church is in a deep crisis, as its authority is sapped by cascading sexual abuse scandals and as more people grow wary of its perceived alliance with the country’s right-wing government.`\
+https://nytimes.com/2022/11/28/world/europe/poland-catholic-church-youth.html?searchResultPosition=1
+
+**Two Innovators on ‘Telling Stories Through Ice Cream’**\
+`Jeni Britton Bauer and Pooja Bavishi are both redefining the market by making their own rules.`\
+https://nytimes.com/2022/11/28/business/jenis-ice-cream-bauer-malai-pooja-bavaishi-leadership.html?searchResultPosition=2
+
+**When Visiting Michelangelo’s David, She Brings a Duster**\
+`The revered statue in Italy is not going to dust itself. That’s where Eleonora Pucci comes in.`\
+https://nytimes.com/2022/11/28/world/europe/italy-michelangelo-david.html?searchResultPosition=3
+
+**Biden Helped Democrats Avert a ’22 Disaster. What About ’24?**\
+`A stronger-than-expected midterm showing has quieted the party’s public hand-wringing about a re-election campaign for President Biden. But it hasn’t put those worries to rest.`\
+https://nytimes.com/2022/11/28/us/politics/biden-2024.html?searchResultPosition=4
+
+**Brooklyn D.A. Assigns 1 in 5 Workers to Fight Violence Against Women**\
+`A new division will be created in a major restructuring meant to streamline complex cases against abusers. It’s part of a national trend.`\
+https://nytimes.com/2022/11/28/nyregion/brooklyn-prosecutor-violence-against-women.html?searchResultPosition=5
+
+**Have the Anticapitalists Reached Harvard Business School?**\
+`Social justice joins discounted cash flows on the syllabus as essential knowledge for aspiring corporate leaders.`\
+https://nytimes.com/2022/11/28/business/business-school-social-justice.html?searchResultPosition=6
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2022/11/28/crosswords/spelling-bee-forum.html?searchResultPosition=7
+
 **A Mural Celebrated Migrant Workers. When the World Cup Began, It Was Gone.**\
 `A mosaic of photographs once decorated Qatar’s showpiece stadium in Lusail. Now a V.I.P. entrance sits beside the spot.`\
-https://nytimes.com/2022/11/28/sports/soccer/mural-migrant-workers-world-cup.html?searchResultPosition=1
+https://nytimes.com/2022/11/28/sports/soccer/mural-migrant-workers-world-cup.html?searchResultPosition=8
 
 **Word of the Day: obsolete**\
 `This word has appeared in 184 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/11/28/learning/word-of-the-day-obsolete.html?searchResultPosition=2
+https://nytimes.com/2022/11/28/learning/word-of-the-day-obsolete.html?searchResultPosition=9
 
 **Your Monday Briefing**\
 `Anger over Covid restrictions in China has created a crisis for its leader, Xi Jinping.`\
-https://nytimes.com/2022/11/28/briefing/china-protests-covid-ukraine-drugs-britain.html?searchResultPosition=3
-
-**Something Remarkable Is Happening in African Football**\
-`The continent’s teams are coming to understand the power of the diaspora.`\
-https://nytimes.com/2022/11/28/opinion/world-cup-africa-coach-senegal-cameroon.html?searchResultPosition=4
-
-**What’s on TV This Week: ‘Love Actually’ 20-Year Reunion and ‘Barmageddon’**\
-`The stars of the beloved holiday movie reflect with Diane Sawyer, and USA airs a preview of Blake Shelton’s new celebrity game show.`\
-https://nytimes.com/2022/11/28/arts/television/whats-on-tv-this-week-love-actually-reunion-barmageddon.html?searchResultPosition=5
-
-**Some Child Welfare Workers Say the System Is Racist**\
-`A draft report found that caseworkers overpolice parents during investigations of possible child abuse and neglect.`\
-https://nytimes.com/2022/11/28/nyregion/some-child-welfare-workers-say-the-system-is-racist.html?searchResultPosition=6
-
-**No Corrections: Nov. 28, 2022**\
-`No corrections appeared in print on Monday, Nov. 28, 2022.`\
-https://nytimes.com/2022/11/28/pageoneplus/no-corrections-nov-28-2022.html?searchResultPosition=7
-
-**Quotation of the Day: Fatal Fire Spurs Unrest in China Over ‘Zero Covid’**\
-`Quotation of the Day for Monday, November 28, 2022.`\
-https://nytimes.com/2022/11/28/pageoneplus/quotation-of-the-day-fatal-fire-spurs-unrest-in-china-over-zero-covid.html?searchResultPosition=8
-
-**Once a Star of College Basketball, Kevin Ollie Is Now Disrupting It**\
-`Since winning his lawsuit against the university he coached to a national championship, Ollie has found purpose running an upstart pro league.`\
-https://nytimes.com/2022/11/28/sports/ncaabasketball/kevin-ollie-overtime-elite-basketball.html?searchResultPosition=9
-
-**Set Adrift**\
-`Driven by Covid chaos, online disinformation and a YouTube guru, two Americans went looking for solace on a sailboat in the middle of the Pacific. They found a different fate.`\
-https://nytimes.com/interactive/2022/11/27/us/set-adrift.html?searchResultPosition=10
+https://nytimes.com/2022/11/28/briefing/china-protests-covid-ukraine-drugs-britain.html?searchResultPosition=10
 
