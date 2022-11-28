@@ -6,13 +6,13 @@ https://nytimes.com/2022/11/28/dining/tanya-holland-california-soul.html?searchR
 `A heaving mass of flesh and energy has brought life to the host nation’s matches at the World Cup. They are Qatar’s loudest fans, but they’re not from Qatar.`\
 https://nytimes.com/2022/11/28/sports/soccer/world-cup-fans-qatar-ultras.html?searchResultPosition=2
 
-**A Sikh Temple Combats Loneliness With Chai and Laughter**\
-`A village in northern India has found a way to address a growing global issue: a deep sense of isolation among older people.`\
-https://nytimes.com/2022/11/28/world/asia/india-punjab-elderly-loneliness.html?searchResultPosition=3
-
 **Monkeypox Has a New Name: Mpox**\
 `Health experts said the old nomenclature was imprecise, played into racist stereotypes and fueled stigmatization, making it harder to contain the most recent outbreaks.`\
-https://nytimes.com/2022/11/28/health/monkeypox-mpox-who.html?searchResultPosition=4
+https://nytimes.com/2022/11/28/health/monkeypox-mpox-who.html?searchResultPosition=3
+
+**A Sikh Temple Combats Loneliness With Chai and Laughter**\
+`A village in northern India has found a way to address a growing global issue: a deep sense of isolation among older people.`\
+https://nytimes.com/2022/11/28/world/asia/india-punjab-elderly-loneliness.html?searchResultPosition=4
 
 **Forecasters Warn of Tornado Threat Across the South**\
 `A regional tornado outbreak is possible Tuesday afternoon and evening across parts of the lower and mid-Mississippi Valley, forecasters warned on Monday.`\
