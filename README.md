@@ -32,7 +32,7 @@ https://nytimes.com/2022/11/28/opinion/charity-holiday-gift-one-rising-seas-inst
 
 **I Have an Idea: Let’s Just Ignore Donald Trump**\
 `My father’s advice on how to deal with bullies would work great on Donald Trump.`\
-https://nytimes.com/2022/11/28/opinion/should-we-just-ignore-donald-trump.html?searchResultPosition=9
+https://nytimes.com/2022/11/28/opinion/donald-trump-news.html?searchResultPosition=9
 
 **How Would You Feel About a 100-Year-Old Doctor?**\
 `We should mandate periodic competency assessments for physicians after a certain age.`\
