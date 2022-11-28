@@ -1,5 +1,5 @@
-**Many Roads Lead to the Chef Tanya Holland’s ‘California Soul’**\
-`In her new cookbook, the acclaimed owner of Brown Sugar Kitchen chronicles the Great Migration’s influence on West Coast cuisine.`\
+**The Chef Tanya Holland Chronicles the Journey of ‘California Soul’**\
+`In her new cookbook, the acclaimed owner of Brown Sugar Kitchen traces the Great Migration’s influence on West Coast cuisine.`\
 https://nytimes.com/2022/11/28/dining/tanya-holland-california-soul.html?searchResultPosition=1
 
 **The Fans Screamed for Qatar. Their Passion Hid a Secret.**\
