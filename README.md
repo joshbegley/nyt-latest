@@ -2,8 +2,8 @@
 `Readers discuss the benefits and risks of puberty blockers. Also: Donald Trump’s dinner with antisemites; robots in the workplace.`\
 https://nytimes.com/2022/11/28/opinion/letters/puberty-blockers-transgender-youths.html?searchResultPosition=1
 
-**Organ Donations Spike Around Motorcycle Rallies**\
-`A new study suggests a link between the large gatherings and a higher number of transplants after traffic crashes.`\
+**Organ Donations Rise Around Motorcycle Rallies**\
+`A new study suggests a link between the large gatherings and a slightly higher number of transplants after traffic crashes.`\
 https://nytimes.com/2022/11/28/health/organ-donations-motorcycle-rallies.html?searchResultPosition=2
 
 **China Appears to Limit Crowd Shots to Avoid ‘Zero-Covid’ Comparisons**\
