@@ -22,7 +22,7 @@ https://nytimes.com/2022/11/28/business/blockfi-bankruptcy-cryptocurrency-ftx.ht
 `“Midnights” logs a fourth week leading the Billboard 200, while Drake and 21 Savage, Bad Bunny and Lil Baby also hold their spots in the Top 5.`\
 https://nytimes.com/2022/11/28/arts/music/taylor-swift-midnights-billboard-chart.html?searchResultPosition=6
 
-**Buffalo Gunman Expected to Plead Guilty Today in Racist Attack**\
+**Buffalo Gunman Pleads Guilty to All Charges in Racist Attack**\
 `The man, who was accused of killing 10 Black people in June, was charged on 25 counts, including murder, domestic terrorism and hate crimes.`\
 https://nytimes.com/2022/11/28/nyregion/buffalo-shooting-guilty-plea.html?searchResultPosition=7
 
