@@ -19,7 +19,7 @@ https://nytimes.com/interactive/2022/11/27/us/set-adrift.html?searchResultPositi
 https://nytimes.com/2022/11/27/us/maryland-plane-crash-power-line.html?searchResultPosition=5
 
 **Another Patron Who Subdued Assailant at Club Q Acted to Save ‘the Family I Found’**\
-`Thomas James, a Navy officer, knocked down the attacker along with an Army veteran.`\
+`Thomas James, a Navy petty officer, knocked down the attacker along with an Army veteran.`\
 https://nytimes.com/2022/11/27/us/colorado-shooting-club-q-heroes.html?searchResultPosition=6
 
 **Germany’s Late Equalizer Revives Its World Cup Hopes**\
