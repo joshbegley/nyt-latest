@@ -1,6 +1,6 @@
 **California Will Soon Have the Nation’s Most Expansive Record-Clearing Law**\
 `State lawmakers approved one of the most far-reaching criminal justice reform measures in the nation this year, but it attracted little attention.`\
-https://nytimes.com/2022/11/28/us/california-will-soon-have-the-nations-most-expansive-record-clearing-law.html?searchResultPosition=1
+https://nytimes.com/2022/11/28/us/california-criminal-record-law.html?searchResultPosition=1
 
 **Diary of a Spelling Bee Fanatic**\
 `Entries for the week of Nov. 21, 2022.`\
