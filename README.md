@@ -2,7 +2,7 @@
 `With matches on a 30-second delay, China’s television network is able to replace crowd shots with close-ups of coaches.`\
 https://nytimes.com/2022/11/28/sports/soccer/china-world-cup-tv.html?searchResultPosition=1
 
-**A Protest? A Vigil? In Beijing, Anxious Crowds Are Unsure How Far to Go**\
+**A Protest? A Vigil? In Beijing, Anxious Crowds Are Unsure How Far to Go.**\
 `In a country where protests are swiftly quashed, many who gathered to voice their discontent — under the watchful eye of the police — were uncertain about how far to go.`\
 https://nytimes.com/2022/11/28/world/asia/china-protests-covid-beijing.html?searchResultPosition=2
 
