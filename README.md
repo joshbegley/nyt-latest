@@ -4,7 +4,7 @@ https://nytimes.com/article/china-covid-protests.html?searchResultPosition=1
 
 **$1.8 Million Homes in California**\
 `A renovated showplace in Los Angeles, a ranch house in Sonoma and a midcentury home in Orinda.`\
-https://nytimes.com/2022/11/28/realestate/1-8-million-homes-in-california.html?searchResultPosition=2
+https://nytimes.com/2022/11/28/realestate/california-homes.html?searchResultPosition=2
 
 **What You Get for $1.8 Million in California**\
 `A renovated showplace in Los Angeles, a ranch house in Sonoma and a midcentury home in Orinda.`\
