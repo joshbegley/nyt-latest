@@ -16,7 +16,7 @@ https://nytimes.com/2022/11/28/us/whole-foods-lobster-maine-whales.html?searchRe
 
 **For Trump’s Jewish Allies, His Dinner With Antisemites Is a Breaking Point**\
 `Supporters who looked past the former president’s admirers in bigoted corners of the far right, and his own use of antisemitic tropes, now are drawing a line. “He legitimizes Jew hatred and Jew haters,” says one. “And this scares me.”`\
-https://nytimes.com/2022/11/28/us/politics/trump-jews.html?searchResultPosition=5
+https://nytimes.com/2022/11/28/us/politics/trump-kanye-west-nick-fuentes-antisemitism.html?searchResultPosition=5
 
 **Videos Show Heavy Police Presence In Response to Protests in China**\
 `In Chinese cities where protests took place over the weekend, police displayed a show of force on Monday to deter gatherings. Some protesters showed up despite tight security.`\
