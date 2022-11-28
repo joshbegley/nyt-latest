@@ -4,7 +4,7 @@ https://nytimes.com/2022/11/28/sports/baseball/hall-of-fame-committee-bonds-clem
 
 **Ukraine Warns of More Strikes on Power Plants, as Russians Dig In**\
 `Russian forces are fortifying positions in southern Ukraine after retreating from Kherson, and the Kremlin denied planning to withdraw from the Zaporizhzhia nuclear plant.`\
-https://nytimes.com/2022/11/28/world/europe/ulkraine-russia-war-kherson.html?searchResultPosition=2
+https://nytimes.com/2022/11/28/world/europe/ukraine-russia-war-kherson.html?searchResultPosition=2
 
 **Was Election Denial Just a Passing Threat?**\
 `Or is it here to stay?`\
