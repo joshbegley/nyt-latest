@@ -22,7 +22,7 @@ https://nytimes.com/2022/11/28/us/politics/supreme-court-corruption-cuomo.html?s
 `The city in the Donbas has become a destructive vortex for Ukrainian and Russian forces.`\
 https://nytimes.com/2022/11/28/briefing/russia-ukraine-war-bakhmut-weapons.html?searchResultPosition=6
 
-**Chinese Unrest Over Lockdowns Upends Global Economic Outlook**\
+**Chinese Unrest Over Lockdown Upends Global Economic Outlook**\
 `Growing protests in the world’s biggest manufacturing nation add a new element of uncertainty atop the Ukraine war, an energy crisis and inflation.`\
 https://nytimes.com/2022/11/28/business/economy/china-unrest-global-economy.html?searchResultPosition=7
 
