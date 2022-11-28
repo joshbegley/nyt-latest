@@ -1,4 +1,4 @@
-**Small Plane Crashes Into Power Line Tower in Maryland**\
+**Small Plane Crashes Into Transmission Tower in Maryland**\
 `Rescuers on Sunday night were devising a plan to extricate the two people on board. Photos showed the plane entangled in power lines and seemingly suspended in a snarled mess of metal.`\
 https://nytimes.com/2022/11/27/us/maryland-plane-crash-power-line.html?searchResultPosition=1
 
