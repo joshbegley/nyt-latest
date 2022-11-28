@@ -31,7 +31,7 @@ https://nytimes.com/2022/11/28/sports/ncaabasketball/kevin-ollie-overtime-elite-
 https://nytimes.com/interactive/2022/11/27/us/set-adrift.html?searchResultPosition=8
 
 **Small Plane Crashes Into Transmission Tower in Maryland**\
-`Rescuers on Sunday night devised a careful plan to extricate the two people on board, as 117,000 were without power. Photos showed the plane entangled in power lines.`\
+`Rescuers on Sunday night worked carefully to extricate the two people on board, after 117,000 were at one point without power. Photos showed the plane entangled in power lines.`\
 https://nytimes.com/2022/11/27/us/maryland-plane-crash-power-line.html?searchResultPosition=9
 
 **Another Patron Who Subdued Assailant at Club Q Acted to Save ‘the Family I Found’**\
