@@ -7,7 +7,7 @@ https://nytimes.com/2022/11/29/briefing/us-iran-world-cup-china.html?searchResul
 https://nytimes.com/2022/11/29/us/michael-pertschuk-dead.html?searchResultPosition=2
 
 **Pulisic’s Injury on First World Cup Goal Could Be Costly**\
-`Pulisic collided with Iran’s keeper as he scored, then left the game at halftime with an abdominal injury. His status for a knockout stage match with the Netherlands was unclear.`\
+`Pulisic collided with Iran’s keeper as he scored then left the game at halftime with an abdominal injury. His status for a knockout stage match with the Netherlands was unclear.`\
 https://nytimes.com/2022/11/29/sports/soccer/christian-pulisic-injury-usa-iran-game.html?searchResultPosition=3
 
 **Melody Miller, Trusted Aide to the Kennedys, Dies at 77**\
