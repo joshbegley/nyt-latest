@@ -22,7 +22,7 @@ https://nytimes.com/2022/11/29/arts/design/ganggang-racism-indianapolis-artists-
 `Mayor Eric Adams directed city agencies, including the Police Department, to take people who appear to be severely mentally ill to hospitals for psychiatric care.`\
 https://nytimes.com/2022/11/29/nyregion/nyc-mentally-ill-involuntary-custody.html?searchResultPosition=6
 
-**Torrisi Bar & Grill, From the Carbone Team, Opens in SoHo**\
+**Torrisi Bar & Restaurant, From the Carbone Team, Opens in SoHo**\
 `French-Japanese fare in a small Greenpoint, Brooklyn, space, a larger branch of Bao Tea House in Little Italy and more restaurant news.`\
 https://nytimes.com/2022/11/29/dining/nyc-restaurant-news.html?searchResultPosition=7
 
