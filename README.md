@@ -6,7 +6,7 @@ https://nytimes.com/2022/11/29/briefing/nick-fuentes-trump.html?searchResultPosi
 `Inside an evangelical minister’s yearslong effort.`\
 https://nytimes.com/2022/11/29/podcasts/the-daily/supreme-court-abortion-roe-v-wade.html?searchResultPosition=2
 
-**With Intimidation and Surveillance, China Tries to Snuff Out Covid Protests**\
+**With Intimidation and Surveillance, China Tries to Snuff Out Protests**\
 `Communist Party officials are using decades-old tactics, along with some new ones, to quash the most widespread protests in decades. But Xi Jinping is silent.`\
 https://nytimes.com/2022/11/29/world/asia/china-protest-covid-security.html?searchResultPosition=3
 
