@@ -18,8 +18,8 @@ https://nytimes.com/2022/11/29/books/best-books-2022.html?searchResultPosition=4
 `The pace of consumer price gains in the two countries eased in November, the latest in a series of indications that their economies might suffer less in the coming months than predicted.`\
 https://nytimes.com/2022/11/29/business/inflation-germany-spain.html?searchResultPosition=5
 
-**Biden Will Meet With Congressional Leaders as Rail Strike Looms**\
-`President Biden has urged lawmakers to pass legislation that would prevent a labor stoppage by rail workers next month.`\
+**Biden Says Congressional Leaders Must Act to Prevent Rail Strike**\
+`President Biden told lawmakers that the U.S. economy would be “at risk” if rail workers went on strike next month.`\
 https://nytimes.com/2022/11/29/us/politics/biden-rail-strike.html?searchResultPosition=6
 
 **Train Your Brain**\
