@@ -2,7 +2,7 @@
 `Inside an evangelical minister’s yearslong effort.`\
 https://nytimes.com/2022/11/29/podcasts/the-daily/supreme-court-abortion-roe-v-wade.html?searchResultPosition=1
 
-**China Regroups to Snuff Out a Wave of Protests**\
+**China Regroups to Snuff Out a Wave of Covid Protests**\
 `Officials are using the ruling Communist Party’s decades-old policy of repression and surveillance to quash the most widespread protests in decades. But Xi Jinping is silent.`\
 https://nytimes.com/2022/11/29/world/asia/china-protest-covid-security.html?searchResultPosition=2
 
