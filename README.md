@@ -8,7 +8,7 @@ https://nytimes.com/video/us/100000008661704/mauna-loa-hawaii-erupts.html?search
 
 **The Willows Inn Closes After Abuse Allegations and Lawsuits**\
 `The world-famous restaurant on a Washington State island has been donated to a nonprofit, a year after a Times report on harassment and discrimination.`\
-https://nytimes.com/2022/11/29/dining/willows-inn-closes-allegations-workplace-abuse.html?searchResultPosition=3
+https://nytimes.com/2022/11/29/dining/willows-inn-closes-allegations-abuse.html?searchResultPosition=3
 
 **Transcript: Ezra Klein Interviews Leah Garcés**\
 `The Nov. 29, 2022 episode of “The Ezra Klein Show”`\
