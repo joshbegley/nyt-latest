@@ -1,5 +1,5 @@
 **England Remakes the Case for Itself With a 3-0 Win Over Wales**\
-`By toppling Wales, England advanced to the knockout stages.`\
+`By toppling Wales, England advanced to the knockout stages, and reinvigorated itself.`\
 https://nytimes.com/2022/11/29/sports/world-cup/england-wales-win-world-cup.html?searchResultPosition=1
 
 **Judge Will Decide Whether DeSantis Went Too Far in Ousting Prosecutor**\
