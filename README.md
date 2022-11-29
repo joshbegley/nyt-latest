@@ -3,7 +3,7 @@
 https://nytimes.com/2022/11/29/movies/ainbo-review.html?searchResultPosition=1
 
 **A ‘Bridge to the West’ Dies in Belarus, as Moscow Seeks More Help in Ukraine**\
-`Vladimir Makei, a former foreign minister who led failed efforts to improve relations with the West, died over the weekend. His death comes as Russia presses Ukraine to send troops to Ukraine.`\
+`Vladimir Makei, a former foreign minister who led failed efforts to improve relations with the West, died over the weekend. His death comes as Russia presses Belarus to send troops to Ukraine.`\
 https://nytimes.com/2022/11/29/world/europe/vladimir-makei-belarus-dies.html?searchResultPosition=2
 
 **Rail Strike Would Put Nation’s Economy ‘At Risk,’ Biden Says**\
