@@ -14,7 +14,7 @@ https://nytimes.com/2022/11/28/us/michigan-oxford-school-shooting-safety.html?se
 `Maine’s political leaders criticized the decision, which was based on assessments by two conservation groups that have raised concerns that North Atlantic right whales have become entangled in the ropes used to fish for lobster.`\
 https://nytimes.com/2022/11/28/us/whole-foods-lobster-maine-whales.html?searchResultPosition=4
 
-**For Trump’s Jewish Allies, His Dinner With Antisemites Is a Breaking Point**\
+**Jewish Allies Call Trump’s Dinner With Antisemites a Breaking Point**\
 `Supporters who looked past the former president’s admirers in bigoted corners of the far right, and his own use of antisemitic tropes, now are drawing a line. “He legitimizes Jew hatred and Jew haters,” says one. “And this scares me.”`\
 https://nytimes.com/2022/11/28/us/politics/trump-kanye-west-nick-fuentes-antisemitism.html?searchResultPosition=5
 
