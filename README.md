@@ -22,19 +22,19 @@ https://nytimes.com/2022/11/29/briefing/us-iran-world-cup-china.html?searchResul
 `As an obscure but muscular congressional staffer and chairman of the Federal Trade Commission, he helped usher into law a raft of consumer protections.`\
 https://nytimes.com/2022/11/29/us/michael-pertschuk-dead.html?searchResultPosition=6
 
-**Pulisic’s Injury on First World Cup Goal Could Be Costly**\
-`Pulisic collided with Iran’s keeper as he scored then left the game at halftime with an abdominal injury. He went to a hospital and his status for a knockout stage match with the Netherlands was unclear.`\
-https://nytimes.com/2022/11/29/sports/soccer/christian-pulisic-injury-usa-iran-game.html?searchResultPosition=7
-
 **Melody Miller, Trusted Aide to the Kennedys, Dies at 77**\
 `She worked with the family for over 40 years, mostly for Senator Ted Kennedy. But her duties went far beyond the office.`\
-https://nytimes.com/2022/11/29/us/melody-miller-dead.html?searchResultPosition=8
+https://nytimes.com/2022/11/29/us/melody-miller-dead.html?searchResultPosition=7
 
 **How to Watch the Christmas Tree Lighting at Rockefeller Center**\
 `The 90th annual celebration will take place on Wednesday and feature performances by Gwen Stefani, Alicia Keys, Blake Shelton and others.`\
-https://nytimes.com/2022/11/29/nyregion/rockefeller-center-tree-lighting.html?searchResultPosition=9
+https://nytimes.com/2022/11/29/nyregion/rockefeller-center-tree-lighting.html?searchResultPosition=8
 
 **Plastic Off the Sofa**\
 `“Black Panther: Wakanda Forever” doesn’t shy away from big subjects like grief and colonization. The hosts of “Still Processing” are ready for it.`\
-https://nytimes.com/2022/11/29/podcasts/still-processing-black-panther-wakanda-forever.html?searchResultPosition=10
+https://nytimes.com/2022/11/29/podcasts/still-processing-black-panther-wakanda-forever.html?searchResultPosition=9
+
+**Holiday Gift Guide for the Restaurant-Obsessed**\
+`Bottle totes, cookie tins and more gift ideas from some of New York’s best restaurants.`\
+https://nytimes.com/2022/11/29/dining/holiday-gifts-restaurants.html?searchResultPosition=10
 
