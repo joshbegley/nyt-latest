@@ -26,15 +26,15 @@ https://nytimes.com/2022/11/29/us/michael-pertschuk-dead.html?searchResultPositi
 `She worked with the family for over 40 years, mostly for Senator Ted Kennedy. But her duties went far beyond the office.`\
 https://nytimes.com/2022/11/29/us/melody-miller-dead.html?searchResultPosition=7
 
+**The World Cup continues for the U.S. Will Christian Pulisic be part of it?**\
+`The United States beat Iran, 1-0, but the price of victory may be a high one: Christian Pulisic was taken to the hospital after sustaining an abdominal injury.`\
+https://nytimes.com/2022/11/29/sports/soccer/christian-pulisic-us-advance-iran-world-cup.html?searchResultPosition=8
+
 **How to Watch the Christmas Tree Lighting at Rockefeller Center**\
 `The 90th annual celebration will take place on Wednesday and feature performances by Gwen Stefani, Alicia Keys, Blake Shelton and others.`\
-https://nytimes.com/2022/11/29/nyregion/rockefeller-center-tree-lighting.html?searchResultPosition=8
+https://nytimes.com/2022/11/29/nyregion/rockefeller-center-tree-lighting.html?searchResultPosition=9
 
 **Plastic Off the Sofa**\
 `“Black Panther: Wakanda Forever” doesn’t shy away from big subjects like grief and colonization. The hosts of “Still Processing” are ready for it.`\
-https://nytimes.com/2022/11/29/podcasts/still-processing-black-panther-wakanda-forever.html?searchResultPosition=9
-
-**Holiday Gift Guide for the Restaurant-Obsessed**\
-`Bottle totes, cookie tins and more gift ideas from some of New York’s best restaurants.`\
-https://nytimes.com/2022/11/29/dining/holiday-gifts-restaurants.html?searchResultPosition=10
+https://nytimes.com/2022/11/29/podcasts/still-processing-black-panther-wakanda-forever.html?searchResultPosition=10
 
