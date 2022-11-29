@@ -18,7 +18,7 @@ https://nytimes.com/2022/11/29/crosswords/spelling-bee-forum.html?searchResultPo
 `What can you do for others this holiday season?`\
 https://nytimes.com/2022/11/29/learning/giving-tuesday.html?searchResultPosition=5
 
-**The Woman Once Considered Africa’s Richest Faces Arrest on Corruption Charges**\
+**The Woman Once Considered Africa’s Richest Faces Arrest on Graft Charges**\
 `Isabel dos Santos, the daughter of Angola’s former president, was accused of enriching herself with state resources during her time in control of the country’s oil company.`\
 https://nytimes.com/2022/11/29/world/africa/angola-isabel-dos-santos-arrest-warrant.html?searchResultPosition=6
 
