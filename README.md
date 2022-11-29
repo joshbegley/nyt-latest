@@ -1,4 +1,4 @@
-**Ukraine Tests an Old Alliance as Macron Begins State Visit to U.S.**\
+**As Macron Pays State Visit to U.S., Ukraine Tests an Old Alliance**\
 `The French president goes to Washington with differences over how to end the war in Ukraine, and how to share its burdens, at the heart of talks with President Biden.`\
 https://nytimes.com/2022/11/29/world/europe/biden-macron-state-visit.html?searchResultPosition=1
 
