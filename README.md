@@ -1,5 +1,5 @@
 **Bill to Protect Same-Sex Marriage Wins Bipartisan Support in Senate**\
-`12 Republicans joined Democrats in advancing a bill back to the House of Representatives that would codify federal recognition for same-sex and interracial marriages.`\
+`Twelve Republicans joined Democrats in advancing a bill back to the House that would codify federal recognition for same-sex and interracial marriages.`\
 https://nytimes.com/video/us/politics/100000008663062/senate-same-sex-marriage.html?searchResultPosition=1
 
 **In a Pinch**\
