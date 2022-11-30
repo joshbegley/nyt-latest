@@ -1,5 +1,5 @@
 **Watch Christian Pulisic Send the U.S. Past Iran and Into the Knockout Rounds**\
-`See how the United States scored the goal in a 1-0 win against Iran to reach the round of 16.`\
+`See how Christian Pulisic scored the U.S. goal before leaving with an injury in a 1-0 win against Iran.`\
 https://nytimes.com/interactive/2022/11/29/sports/world-cup/iran-usa-world-cup-goal-pulisic.html?searchResultPosition=1
 
 **Woman Pleads Guilty in Connection With Killing of Vanessa Guillen at Fort Hood**\
