@@ -1,6 +1,6 @@
 **New York’s Plan to Address Crisis of Mentally Ill Faces High Hurdles**\
 `Many city residents agree something needs to be done to remove people with severe mental illness from public places. But some experts say the mayor’s aggressive new approach may not help.`\
-https://nytimes.com/2022/11/30/nyregion/new-yorks-plan-to-address-crisis-of-mentally-ill-faces-high-hurdles.html?searchResultPosition=1
+https://nytimes.com/2022/11/30/nyregion/mental-health-plan-eric-adams.html?searchResultPosition=1
 
 **Introducing Ads Is a Good Tactic for Netflix, Hastings Says**\
 `Reed Hastings, a co-founder and co-chief executive of Netflix, said that he regretted not bringing an advertising tier to the streaming service sooner.`\
