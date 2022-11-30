@@ -1,6 +1,6 @@
 **2022 World Cup Bracket: The Knockout Stage**\
 `The World Cup will soon reach its knockout stage: win or go home. The teams in the bracket will be updated as the round of 16 matchups are determined in the group stage.`\
-https://nytimes.com/interactive/2022/11/30/sports/world-cup/world-cup-bracket.html?searchResultPosition=1
+https://nytimes.com/interactive/2022/sports/world-cup/world-cup-bracket.html?searchResultPosition=1
 
 **Zelensky Derides Musk’s Peace Proposal for Ukraine and Russia**\
 `During an interview at The New York Times’ DealBook Summit, President Volodymyr Zelensky of Ukraine rebuked Elon Musk’s peace proposal that included ceding territory to Russia.`\
