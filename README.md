@@ -23,7 +23,7 @@ https://nytimes.com/2022/11/30/dining/homemade-holiday-food-gifts.html?searchRes
 https://nytimes.com/2022/11/30/business/media/layoffs-cnn.html?searchResultPosition=6
 
 **In a Show of Unity, House Democrats Elect Hakeem Jeffries Minority Leader**\
-`A new trio, including Representatives Katherine Clark of Massachusetts as No. 2 and Pete Aguilar of California as No. 3, will take the reins in January, replacing Speaker Nancy Pelosi and her team.`\
+`A new trio, including Representatives Katherine Clark of Massachusetts as No. 2 and Pete Aguilar of California as No. 3 will take the reins in January, replacing Speaker Nancy Pelosi and her team.`\
 https://nytimes.com/2022/11/30/us/politics/house-democrats-hakeem-jeffries.html?searchResultPosition=7
 
 **Moving Mentally Ill People Off the Streets of New York**\
