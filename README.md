@@ -1,5 +1,5 @@
 **Introducing Ads Is a Good Tactic for Netflix, Hastings Says**\
-`Reed Hastings, the co-founder and co-chief executive of Netflix, said that he regretted not bringing an advertising tier to the streaming service sooner.`\
+`Reed Hastings, a co-founder and co-chief executive of Netflix, said that he regretted not bringing an advertising tier to the streaming service sooner.`\
 https://nytimes.com/video/business/100000008664430/reed-hastings-netflix-ads.html?searchResultPosition=1
 
 **‘Drum Listens to Heart’: Images, Words and Sculptures, Bound by a Beat**\
