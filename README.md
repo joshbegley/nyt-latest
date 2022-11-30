@@ -10,7 +10,7 @@ https://nytimes.com/2022/11/30/us/georgia-senate-runoff-insulin.html?searchResul
 `Larry Fink, the chief executive of BlackRock, said that his company invested $24 million in FTX, and hinted that his own firm may have been given faulty information.`\
 https://nytimes.com/video/business/100000008663944/larry-fink-black-rock-ftx.html?searchResultPosition=3
 
-**Does Broadway Need Another ‘Romeo and Juliet’ Musical? Pat Benatar Says Yes**\
+**Does Broadway Need Another ‘Romeo and Juliet’ Musical? Pat Benatar Says Yes.**\
 `After competing ideas and a cease-and-desist order, “Invincible — The Musical” arrives onstage. Just don’t call it a jukebox musical.`\
 https://nytimes.com/2022/11/30/theater/pat-benatar-invincible-musical.html?searchResultPosition=4
 
