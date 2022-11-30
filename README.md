@@ -27,7 +27,7 @@ https://nytimes.com/2022/11/30/arts/television/danny-masterson-rape-case-mistria
 https://nytimes.com/video/business/dealbook/100000008665252/tiktok-ceo-metaverse-zuckerberg.html?searchResultPosition=8
 
 **Sam Bankman-Fried Blames ‘Huge Management Failures’ for FTX Collapse**\
-`Mr. Bankman-Fried spoke at The New York Times’ DealBook conference, in his first public appearance since his crypto exchange imploded.`\
+`Mr. Bankman-Fried spoke at The New York Times’s DealBook conference, in his first public appearance since his crypto exchange imploded.`\
 https://nytimes.com/2022/11/30/business/sam-bankman-fried-ftx-collapse.html?searchResultPosition=9
 
 **McCarthy Warns Jan. 6 Committee Republicans Will Investigate Its Work**\
