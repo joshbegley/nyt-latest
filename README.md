@@ -3,7 +3,7 @@
 https://nytimes.com/2022/11/30/business/jeffrey-epstein-settlement-virgin-islands.html?searchResultPosition=1
 
 **Zuckerberg Says Social Media Is Still the Primary Focus of Meta**\
-`Despite plunging millions into its Reality Labs division, Mark Zuckerberg, Meta’s chief executive, said that the company’s VR and AR efforts represents only 20 percent of its investment portfolio.`\
+`Despite plunging millions into its Reality Labs division, Mark Zuckerberg, Meta’s chief executive, said that the company’s VR and AR efforts represent only 20 percent of its investment portfolio.`\
 https://nytimes.com/video/business/dealbook/100000008664545/mark-zuckerberg-meta-facebook.html?searchResultPosition=2
 
 **Concern grows about Paul Whelan, an American imprisoned in Russia.**\
