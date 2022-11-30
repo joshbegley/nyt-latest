@@ -1,40 +1,40 @@
+**A Mysterious Professor, a Financier and a Beauty Phenomenon**\
+`Who can explain the success of the skin care brand Augustinus Bader?`\
+https://nytimes.com/2022/11/30/style/augustinus-bader-skin-care.html?searchResultPosition=1
+
+**A Breakthrough in the University of California Labor Dispute**\
+`Postdoctoral scholars and academic researchers announced a tentative deal, but the strike continued Tuesday as 36,000 other academic workers lacked an agreement.`\
+https://nytimes.com/2022/11/30/us/university-of-california-strike-breakthrough.html?searchResultPosition=2
+
+**I Will Miss Alessandro Michele’s Freaky, Geeky Gucci**\
+`Whatever you may think of his designs, he changed how people dressed.`\
+https://nytimes.com/2022/11/30/style/alessandro-michele-gucci.html?searchResultPosition=3
+
+**Our Children Won’t Stop Bickering Over Our Vacation Condo. Help!**\
+`A reader’s five adult children can’t seem to agree on an equitable arrangement for sharing her and her husband’s unused vacation home during the holidays.`\
+https://nytimes.com/2022/11/30/style/vacation-home-share-arrangement.html?searchResultPosition=4
+
 **Watch Live: Zelensky Addresses DealBook Summit**\
 `President Volodymyr Zelensky is the sixth president of Ukraine.`\
-https://nytimes.com/video/business/100000008662127/volodymyr-zelensky-ukraine.html?searchResultPosition=1
+https://nytimes.com/video/business/100000008662127/volodymyr-zelensky-ukraine.html?searchResultPosition=5
 
 **Kyiv’s mayor expresses resolve as Russian attacks aim to make his city unlivable.**\
 `Vitali Klitschko says of Moscow: “They want to destroy the country from inside.”`\
-https://nytimes.com/2022/11/30/world/europe/ukraine-kyiv-mayor-vitali-klitschko.html?searchResultPosition=2
+https://nytimes.com/2022/11/30/world/europe/ukraine-kyiv-mayor-vitali-klitschko.html?searchResultPosition=6
 
 **Watch a Live Interview With Sam Bankman-Fried.**\
 `Register for a free live interview on Nov. 30 with Mr. Bankman-Fried, the former chief executive of the failed crypto exchange FTX, by Andrew Ross Sorkin.`\
-https://nytimes.com/2022/11/30/business/dealbook/ftx-sam-bankman-fried-dealbook.html?searchResultPosition=3
+https://nytimes.com/2022/11/30/business/dealbook/ftx-sam-bankman-fried-dealbook.html?searchResultPosition=7
 
 **U. S. to Pay Millions to Move Tribes Threatened by Climate Change**\
 `Two tribes in Alaska and a third in Washington State will get $25 million each to retreat to higher ground.`\
-https://nytimes.com/2022/11/30/climate/native-tribes-relocate-climate.html?searchResultPosition=4
+https://nytimes.com/2022/11/30/climate/native-tribes-relocate-climate.html?searchResultPosition=8
 
 **For Sale in Chile: A Modern Mediterranean Villa for $2.5 Million**\
 `After a robust recovery in 2021, Chile’s volatile housing market is sagging again as 2022 comes to a close, leading to gloomy forecasts.`\
-https://nytimes.com/2022/11/30/realestate/for-sale-in-chile-a-modern-mediterranean-villa-for-2-5-million.html?searchResultPosition=5
+https://nytimes.com/2022/11/30/realestate/for-sale-in-chile-a-modern-mediterranean-villa-for-2-5-million.html?searchResultPosition=9
 
 **Your Own Secret Garden in Santiago, Chile**\
 `This Mediterranean-style, four-bedroom house in the Lo Barnechea commune of Santiago, Chile, is for sale for $2.5 million.`\
-https://nytimes.com/slideshow/2022/11/30/realestate/your-own-secret-garden-in-santiago-chile.html?searchResultPosition=6
-
-**Top Questions for Today’s DealBook Summit Speakers**\
-`Andrew will interview Janet Yellen, Volodymyr Zelensky, Mark Zuckerberg, Andy Jassy, Ben Affleck and many more.`\
-https://nytimes.com/2022/11/30/business/dealbook/top-questions-dealbook-summit-speakers-yellen-zuckerberg-jassy.html?searchResultPosition=7
-
-**Power Outages Hit Northwest as Winter Storm Moves Through**\
-`Nearly four million people were under a winter storm warning as of early Wednesday as meteorologists expect widespread travel disruptions and heavy snow.`\
-https://nytimes.com/2022/11/30/us/power-outage-winter-weather-northwest.html?searchResultPosition=8
-
-**$750,000 Homes in Pennsylvania, Arizona and North Carolina**\
-`A Colonial Revival house in Villanova, a Spanish-style home in Phoenix and an Edwardian house in Wilmington.`\
-https://nytimes.com/2022/11/30/realestate/homes-pennsylvania-arizona-north-carolina.html?searchResultPosition=9
-
-**What You Get for $750,000**\
-`A Colonial Revival house in Villanova, Pa.; a Spanish-style home in Phoenix; and an Edwardian house in Wilmington, N.C.`\
-https://nytimes.com/slideshow/2022/11/30/realestate/what-you-get-for-750000.html?searchResultPosition=10
+https://nytimes.com/slideshow/2022/11/30/realestate/your-own-secret-garden-in-santiago-chile.html?searchResultPosition=10
 
