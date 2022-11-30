@@ -8,7 +8,7 @@ https://nytimes.com/2022/11/30/us/power-outage-winter-weather-northwest.html?sea
 
 **$750,000 Homes in Pennsylvania, Arizona and North Carolina**\
 `A Colonial Revival house in Villanova, a Spanish-style home in Phoenix and an Edwardian house in Wilmington.`\
-https://nytimes.com/2022/11/30/realestate/750000-homes-in-pennsylvania-arizona-and-north-carolina.html?searchResultPosition=3
+https://nytimes.com/2022/11/30/realestate/homes-pennsylvania-arizona-north-carolina.html?searchResultPosition=3
 
 **What You Get for $750,000**\
 `A Colonial Revival house in Villanova, Pa.; a Spanish-style home in Phoenix; and an Edwardian house in Wilmington, N.C.`\
