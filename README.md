@@ -1,40 +1,40 @@
-**The Text Messages From Desperate Afghans Left Behind: ‘Show This to the People of America’**\
-`More than a year after the U.S. withdrawal from Afghanistan, a network of volunteers is still trying to evacuate Afghan allies. But this commitment has come at a great cost.`\
-https://nytimes.com/video/opinion/100000008634824/afghan-refugees-biden.html?searchResultPosition=1
+**NFTs, on the Decline Elsewhere, Are Embraced by Some Museums**\
+`ICA Miami owns a few, and M.F.A. Boston and others are selling them to reach new audiences “in a world where Instagram and Siri are prevalent.”`\
+https://nytimes.com/2022/11/30/arts/design/nfts-museums.html?searchResultPosition=1
 
-**‘Breach of the Big Silence.’ Protests Stretch China’s Censorship to Its Limits**\
-`Days later, videos of chants and confrontations are still visible on the Chinese internet. It’s a sign of how a groundswell outmatched the world’s best internet control system.`\
-https://nytimes.com/2022/11/30/business/china-protests-censorship-video.html?searchResultPosition=2
+**‘The Miracle of Miami’: Art Basel Marks 20 Years in South Florida**\
+`Two decades ago, Art Basel started its sun-splashed edition. Now, as the fair changes leaders, art world insiders consider the road ahead.`\
+https://nytimes.com/2022/11/30/arts/design/art-basel-miami-beach-20-years.html?searchResultPosition=2
 
-**Severe Storms Batter U.S. South**\
-`The storms caused strong winds and large hail in several southern states. Threats from the storms were expected to persist through early Wednesday morning.`\
-https://nytimes.com/video/us/100000008663282/tornado-us-south.html?searchResultPosition=3
+**Art to See in South Florida This Winter**\
+`Visitors will find a rich variety of works at museums, satellite fairs and art spaces.`\
+https://nytimes.com/2022/11/30/arts/design/art-basel-miami-beach-florida.html?searchResultPosition=3
 
-**Jiang Zemin, Leader Who Guided China Into Global Market, Dies at 96**\
-`Mr. Jiang, a wily and garrulous politician, presided over a decade of meteoric economic growth in the post-Tiananmen era.`\
-https://nytimes.com/2022/11/30/obituaries/jiang-zemin-dead.html?searchResultPosition=4
+**In Paris, an Apartment Built on Heirlooms and Wicker**\
+`For the founders of the design company Atelier Vime, making a home means living with the past.`\
+https://nytimes.com/2022/11/30/t-magazine/atelier-vime-paris-apartment-design.html?searchResultPosition=4
 
-**Mayor Adams Goes Abroad, for an Antisemitism Conference and the World Cup**\
-`Mayor Eric Adams leaves on Wednesday for Greece and Qatar, a four-day trip that furthers his penchant for visiting countries far from his New York constituents.`\
-https://nytimes.com/2022/11/30/nyregion/mayor-adams-world-cup-antisemitism.html?searchResultPosition=5
+**When the Abortion Clinic Came to Town**\
+`After Roe fell, a sleepy college town in southern Illinois found itself to be a crucial destination for abortion access. Not all of its residents are happy about it.`\
+https://nytimes.com/2022/11/30/us/abortion-clinic-illinois.html?searchResultPosition=5
 
-**Cigars, Colleges, Booze and Blitzes: Investigating the Sports Betting Boom**\
-`The New York Times spent nearly a year digging into the sports-gambling industry in the United States to learn how it grew so big so quickly.`\
-https://nytimes.com/2022/11/30/insider/investigating-the-sports-betting-boom.html?searchResultPosition=6
+**Where Cowboys Fly and Cattle Set Sail: An Epic Food Journey**\
+`Exporting live cattle from northern Australia to Indonesia has created a unique culture, both a throwback and a modern marvel of globalization.`\
+https://nytimes.com/2022/11/30/business/cattle-exports-australia-indonesia.html?searchResultPosition=6
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/11/30/crosswords/spelling-bee-forum.html?searchResultPosition=7
+**An Exhibition That Blends the Runway and the Street**\
+`The Norton Museum of Art brings together giants of street and fashion photography in one sweeping exhibition.`\
+https://nytimes.com/2022/11/30/arts/design/norton-museum-photography-models.html?searchResultPosition=7
 
-**Back-to-Back**\
-`What do you think this image is communicating?`\
-https://nytimes.com/2022/11/30/learning/back-to-back.html?searchResultPosition=8
+**At the World Cup in Qatar, Even V.I.P.s Are Not Very Important**\
+`If you desire truly cushy treatment, it’s not enough to be a V.I.P. What you want is to be a V.V.I.P., sipping free cognac and rubbing elbows with the emir.`\
+https://nytimes.com/2022/11/30/sports/soccer/qatar-world-cup-vip.html?searchResultPosition=8
 
-**Jimmy Kimmel: Trump’s ‘Not a Racist — He Just Eats With Them’**\
-`Kimmel poked fun at Mike Pence asking Donald Trump to apologize for a recent dinner, saying, “He hasn’t even apologized for trying to kill you.”`\
-https://nytimes.com/2022/11/30/arts/television/late-night-trump-dinner.html?searchResultPosition=9
+**Best Albums of 2022**\
+`The most effective artists of the year weren’t afraid to root around deep inside and boldly share the messiness, the complexities and the beauty of their discoveries.`\
+https://nytimes.com/2022/11/30/arts/music/best-albums-renaissance-bad-bunny.html?searchResultPosition=9
 
-**Word of the Day: grovel**\
-`This word has appeared in 11 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/11/30/learning/word-of-the-day-grovel.html?searchResultPosition=10
+**Playing Neil Diamond: A Dream Role, and a ‘Crazy Privilege’**\
+`Will Swenson, the star of “A Beautiful Noise,” has come a long way from his days as an eighth grader wooing girls with his Diamond repertoire.`\
+https://nytimes.com/2022/11/30/theater/will-swenson-neil-diamond-broadway.html?searchResultPosition=10
 
