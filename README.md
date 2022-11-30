@@ -7,7 +7,7 @@ https://nytimes.com/2022/11/30/world/europe/ukraine-kyiv-mayor-vitali-klitschko.
 https://nytimes.com/2022/11/30/business/dealbook/ftx-sam-bankman-fried-dealbook.html?searchResultPosition=2
 
 **U. S. to Pay Millions to Move Tribes Threatened by Climate Change**\
-`Two tribes in Alaska, and a third in Washington State, will get $25 million each to retreat to higher ground.`\
+`Two tribes in Alaska and a third in Washington State will get $25 million each to retreat to higher ground.`\
 https://nytimes.com/2022/11/30/climate/native-tribes-relocate-climate.html?searchResultPosition=3
 
 **For Sale in Chile: A Modern Mediterranean Villa for $2.5 Million**\
