@@ -22,7 +22,7 @@ https://nytimes.com/slideshow/2022/11/30/realestate/your-own-secret-garden-in-sa
 `Andrew will interview Janet Yellen, Volodymyr Zelensky, Mark Zuckerberg, Andy Jassy, Ben Affleck and many more.`\
 https://nytimes.com/2022/11/30/business/dealbook/top-questions-dealbook-summit-speakers-yellen-zuckerberg-jassy.html?searchResultPosition=6
 
-**Power Outages Hit Washington as Winter Storm Moves Through the Northwest**\
+**Power Outages Hit Northwest as Winter Storm Moves Through**\
 `Nearly four million people were under a winter storm warning as of early Wednesday as meteorologists expect widespread travel disruptions and heavy snow.`\
 https://nytimes.com/2022/11/30/us/power-outage-winter-weather-northwest.html?searchResultPosition=7
 
