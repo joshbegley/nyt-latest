@@ -1,5 +1,5 @@
 **Christine McVie, of Fleetwood Mac, Is Dead at 79**\
-`As a singer, songwriter and keyboardist, she was a driving force behind one of the most popular rock bands of the 1970s and ’80s.`\
+`As a singer, songwriter and keyboardist, she was a prolific force behind one of the most popular rock bands of the 1970s and ’80s.`\
 https://nytimes.com/2022/11/30/arts/music/christine-mcvie-dead.html?searchResultPosition=1
 
 **Scooter Driver Who Struck and Killed Actress Gets Up to 3 Years**\
