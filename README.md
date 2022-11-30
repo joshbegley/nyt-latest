@@ -6,7 +6,7 @@ https://nytimes.com/2022/11/30/world/europe/ukraine-kyiv-mayor-vitali-klitschko.
 `Register for a free live interview on Nov. 30 with Mr. Bankman-Fried, the former chief executive of the failed crypto exchange FTX, by Andrew Ross Sorkin.`\
 https://nytimes.com/2022/11/30/business/dealbook/ftx-sam-bankman-fried-dealbook.html?searchResultPosition=2
 
-**U. S. Awards Millions to Move Tribes Threatened by Climate Change**\
+**U. S. to Pay Millions to Move Tribes Threatened by Climate Change**\
 `Two tribes in Alaska, and a third in Washington State, will get $25 million each to retreat to higher ground.`\
 https://nytimes.com/2022/11/30/climate/native-tribes-relocate-climate.html?searchResultPosition=3
 
