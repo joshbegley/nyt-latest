@@ -10,13 +10,13 @@ https://nytimes.com/2022/11/30/nyregion/mayor-adams-goes-on-a-trip.html?searchRe
 `Tagovailoa, the Dolphins quarterback, is putting up numbers that have him being mentioned alongside Tom Brady, Peyton Manning and Dan Marino. That wasn’t the expectation entering this season.`\
 https://nytimes.com/2022/11/30/sports/how-is-tua-tagovailoa-having-a-season-this-good.html?searchResultPosition=3
 
-**Corrections: Nov. 30, 2022**\
-`Corrections that appeared in print on Wednesday, Nov. 30, 2022.`\
-https://nytimes.com/2022/11/30/pageoneplus/corrections-nov-30-2022.html?searchResultPosition=4
-
 **Quotation of the Day: ‘Phantom of the Opera’ To Delay Its Closing**\
 `Quotation of the Day for Wednesday, Nov. 30, 2022.`\
-https://nytimes.com/2022/11/30/pageoneplus/quotation-of-the-day-phantom-of-the-opera-to-delay-its-closing.html?searchResultPosition=5
+https://nytimes.com/2022/11/30/pageoneplus/quotation-of-the-day-phantom-of-the-opera-to-delay-its-closing.html?searchResultPosition=4
+
+**Corrections: Nov. 30, 2022**\
+`Corrections that appeared in print on Wednesday, Nov. 30, 2022.`\
+https://nytimes.com/2022/11/30/pageoneplus/corrections-nov-30-2022.html?searchResultPosition=5
 
 **Bill to Protect Same-Sex Marriage Wins Bipartisan Support in Senate**\
 `Twelve Republicans joined Democrats in advancing a bill back to the House that would codify federal recognition for same-sex and interracial marriages.`\
