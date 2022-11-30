@@ -2,7 +2,7 @@
 `The request for Congress to impose contract terms that several unions had rejected rankled rank-and-file members who had rallied behind the president.`\
 https://nytimes.com/2022/11/30/business/freight-rail-labor-union.html?searchResultPosition=1
 
-**Verdict in Trump Trial Could Come Down to Three Little Words**\
+**Verdict in Trump Organization Trial Could Come Down to 3 Little Words**\
 `What jurors make of the phrase “in behalf of” could decide whether the former president’s namesake company is guilty of tax fraud.`\
 https://nytimes.com/2022/11/30/nyregion/trump-organization-trial-weisselberg.html?searchResultPosition=2
 
