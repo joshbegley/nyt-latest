@@ -14,7 +14,7 @@ https://nytimes.com/2022/11/30/us/politics/oath-keepers-stewart-rhodes.html?sear
 `Jeffrey Maddrey will be the acting chief of department. He was punished after an incident with a colleague, who later sued him for harassment.`\
 https://nytimes.com/2022/11/30/nyregion/jeffrey-maddrey-nypd-promotion.html?searchResultPosition=4
 
-**South Africa’s President, Cyril Ramaphosa, Faces Impeachment Hearing**\
+**South Africa’s President, Cyril Ramaphosa, Faces Impeachment**\
 `An independent panel found evidence that Mr. Ramaphosa, who is accused of a cover-up involving millions of dollars in cash, may have engaged in misconduct.`\
 https://nytimes.com/2022/11/30/us/cyril-ramaphosa-impeachment.html?searchResultPosition=5
 
