@@ -22,7 +22,7 @@ https://nytimes.com/2022/12/01/movies/farha-review.html?searchResultPosition=5
 `How has the volume of Russian trade changed since it invaded Ukraine?`\
 https://nytimes.com/2022/12/01/learning/whats-going-on-in-this-graph-dec-7-2022.html?searchResultPosition=6
 
-**Not Shaken, Not Stirred: These Cocktails Are Thrown**\
+**Not Shaken, Not Stirred, These Cocktails Are Thrown**\
 `A showy tradition of mixing drinks in midair can add both flavor and a show to the bar experience.`\
 https://nytimes.com/2022/12/01/dining/drinks/why-throw-a-cocktail.html?searchResultPosition=7
 
