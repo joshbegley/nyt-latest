@@ -1,40 +1,40 @@
-**In Paris, First-Person Trauma Jumps from Page to Stage**\
-`Several intimate literary accounts of pain and suffering have been adapted for the theater recently — with varying success.`\
-https://nytimes.com/2022/12/01/theater/paris-trauma-plays.html?searchResultPosition=1
+**Widespread Racial Disparities in Discipline Found at N.Y. Prisons**\
+`The state inspector general concluded that the disparities had worsened since a 2015 New York Times investigation found that Black prisoners faced more punishment than white ones.`\
+https://nytimes.com/2022/12/01/nyregion/prisons-racial-bias-ny.html?searchResultPosition=1
 
-**It’s the World Cup’s Hot Accessory. But Should Fans Wear It?**\
-`Head scarves in the colors of the participating teams have become fan favorites in Qatar. Rather than object, locals say they like the twist on a traditional look.`\
-https://nytimes.com/2022/12/01/sports/world-cup/world-cup-head-scarf.html?searchResultPosition=2
+**A Man Fell From a Cruise Ship. And Survived.**\
+`He treaded water for hours in the Gulf of Mexico, withstanding rain, winds and waves before he was rescued. Others have not been so lucky. What happens when a person goes overboard?`\
+https://nytimes.com/2022/12/01/travel/cruise-ship-overboard-survival.html?searchResultPosition=2
 
-**Stephen Colbert Is Conflicted Over Oath Keepers Leader’s Conviction**\
-`Colbert said he felt “pretty darn good” about Stewart Rhodes’s verdict: “and I feel a little bad about that, because the thing I feel great about is somebody else going to prison.”`\
-https://nytimes.com/2022/12/01/arts/television/late-night-oath-keepers.html?searchResultPosition=3
+**Best TV Shows of 2022**\
+`In a year dominated by the familiar, series like “Reservation Dogs,” “The Rehearsal,” “Bad Sisters” and others showed us something new.`\
+https://nytimes.com/2022/12/01/arts/television/best-tv-shows.html?searchResultPosition=3
 
-**What the World Cup Looks Like Off the Field**\
-`Our photographers in Qatar show what the world’s biggest soccer tournament looks like from the streets of Doha and beyond.`\
-https://nytimes.com/2022/12/01/sports/soccer/qatar-world-cup-photos.html?searchResultPosition=4
+**Biden’s Meeting With Macron Comes Amid Rising Trans-Atlantic Tensions**\
+`The president’s “Made in America” plan has drawn accusations of protectionism from Europe as the United States tries to keep its Western allies aligned against Russia.`\
+https://nytimes.com/2022/12/01/business/biden-macron-trade-eu-russia.html?searchResultPosition=4
 
-**Gold Chains Look Sexy on All Genders, All Body Types**\
-`They come in a variety lengths and weights. Here are six to covet.`\
-https://nytimes.com/2022/12/01/style/gold-chains-look-sexy-on-all-genders-all-body-types.html?searchResultPosition=5
+**The Wayward Joy of the Dinner Party**\
+`For T’s 2022 Holiday issue, we dropped in on 12 gatherings around the world, from Tokyo to New Orleans to Paris and beyond.`\
+https://nytimes.com/2022/12/01/t-magazine/dinner-parties.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/12/01/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**Patti Smith’s Book Beats a 2023 Calendar Any Day of the Week**\
+`In her collection of photographs, the author and performer proves that pictures can be a window to the soul — and the era we’re living in.`\
+https://nytimes.com/2022/12/01/books/review/patti-smith-a-book-of-days.html?searchResultPosition=6
 
-**Holiday Ornaments**\
-`What are your favorite tree and home decorations for the winter holidays?`\
-https://nytimes.com/2022/12/01/learning/holiday-ornaments.html?searchResultPosition=7
+**Silicon Valley Made Big Promises in Africa. Where Are the Results?**\
+`The developing nations in Africa have yet to experience any enduring gains from Silicon Valley’s financial speculation.`\
+https://nytimes.com/2022/12/01/opinion/silicon-valley-zuckerberg-dorsey-nigeria-africa.html?searchResultPosition=7
 
-**Word of the Day: apprehension**\
-`This word has appeared in 95 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/12/01/learning/word-of-the-day-apprehension.html?searchResultPosition=8
+**‘The Writing Is as Good as the Food’: Prue Leith’s Favorite Cookbooks**\
+`The judge on “The Great British Baking Show,” whose new book is “Bliss on Toast,” recommends “The Joy of Cooking” along with M.F.K. Fisher and Elizabeth David: “Both the latter are a real pleasure to read.”`\
+https://nytimes.com/2022/12/01/books/review/the-writing-is-as-good-as-the-food-prue-leiths-favorite-cookbooks.html?searchResultPosition=8
 
-**Transcript of Sam Bankman-Fried’s Interview at the DealBook Summit**\
-`In a discussion with Andrew Ross Sorkin of The New York Times, Sam Bankman-Fried blamed “huge management failures” and sloppy accounting for the collapse of the FTX cryptocurrency exchange.`\
-https://nytimes.com/2022/12/01/business/dealbook/sam-bankman-fried-dealbook-interview-transcript.html?searchResultPosition=9
+**Xi Broke the Social Contract That Helped China Prosper**\
+`Xi Jinping broke the social contract, in which the Communist Party and Chinese society observed certain boundaries and helped the country prosper.`\
+https://nytimes.com/2022/12/01/opinion/china-covid-protests.html?searchResultPosition=9
 
-**Germany’s Coach Is Out of His Depth, and So Is Its Chancellor**\
-`The similarities are uncanny.`\
-https://nytimes.com/2022/12/01/opinion/germany-world-cup-scholz.html?searchResultPosition=10
+**What Is Prince William’s Earthshot Prize?**\
+`The charity will award $6 million to five entrepreneurs from around the globe working on breakthrough climate solutions.`\
+https://nytimes.com/2022/12/01/climate/earthshot-prize-prince-william.html?searchResultPosition=10
 
