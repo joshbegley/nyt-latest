@@ -1,6 +1,6 @@
 **They Used Robocalls to Suppress Black Votes. Now They Have to Register Voters.**\
 `An Ohio judge ordered Jacob Wohl and Jack Burkman, who concocted a 2020 robocall scheme to discourage mail-in voting, to spend hundreds of hours registering new voters.`\
-https://nytimes.com/2022/12/01/us/elections/wohl-burkman-voter-suppression-ohio.html?searchResultPosition=1
+https://nytimes.com/2022/12/01/us/politics/wohl-burkman-voter-suppression-ohio.html?searchResultPosition=1
 
 **Warnock Turns to Obama to Help Boost Turnout in Final Days of Runoff Campaign**\
 `For Democrats, the former president’s event in Atlanta with Senator Raphael Warnock on Thursday is viewed as an ironclad way to ensure that Black voters remain enthusiastic.`\
