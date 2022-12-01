@@ -23,7 +23,7 @@ https://nytimes.com/2022/12/01/briefing/china-covid-relax-restrictions.html?sear
 https://nytimes.com/2022/12/01/world/americas/brazil-yellow-jersey-world-cup-neymar.html?searchResultPosition=6
 
 **Japan sends a jolt through the World Cup.**\
-`Japan surprisingly emerged at the top of its group, and Spain also advanced. But in a stunning result of the group stage math, Germany, a former champion, was eliminated.`\
+`Japan surprisingly emerged at the top of its group, and Spain also advanced. Those results meant Germany, a former champion, was eliminated.`\
 https://nytimes.com/2022/12/01/sports/soccer/japan-germany-world-cup-group-e.html?searchResultPosition=7
 
 **How Much Watching Time Do You Have This Weekend?**\
