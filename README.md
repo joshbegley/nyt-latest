@@ -4,7 +4,7 @@ https://nytimes.com/2022/12/01/arts/music/ukraine-shchedryk-childrens-choir.html
 
 **Plantains Are Everyday Superstars**\
 `Versatile recipes for starchy plantains and unripe green bananas.`\
-https://nytimes.com/2022/12/01/dining/plantains-are-everyday-superstars.html?searchResultPosition=2
+https://nytimes.com/2022/12/01/dining/plantain-recipes.html?searchResultPosition=2
 
 **Ramaphosa’s Future as South Africa’s Leader in Doubt After Damning Report**\
 `An independent panel reported to Parliament that the South African president might have broken the law in a scandal over a large amount of cash hidden at his game farm that was then stolen.`\
