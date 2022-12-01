@@ -6,8 +6,8 @@ https://nytimes.com/2022/12/01/arts/television/george-tammy-review-were-gonna-ho
 `The extra magma doesn’t mean it’s more likely to erupt, scientists say. In fact, the better measurement helps them to understand its future.`\
 https://nytimes.com/2022/12/01/science/yellowstone-volcano-magma.html?searchResultPosition=2
 
-**‘Jeanne Dielman’ Named Greatest Film of All Time in Sight and Sound Poll**\
-`The Chantal Ackerman drama is among several by female and Black directors in the respected once-a-decade survey, last conducted in 2012.`\
+**Chantal Akerman’s ‘Jeanne Dielman’ Named Greatest Film of All Time in Sight and Sound Poll**\
+`The  drama is among several by female and Black directors in the respected once-a-decade survey, last conducted in 2012.`\
 https://nytimes.com/2022/12/01/movies/jeanne-dielman-greatest-film-of-all-time-sight-and-sound-poll.html?searchResultPosition=3
 
 **11 New Books We Recommend This Week**\
