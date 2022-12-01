@@ -3,7 +3,7 @@
 https://nytimes.com/2022/12/01/style/viva-magenta-pantone-color.html?searchResultPosition=1
 
 **Brace for Bombs, Fix and Repeat: Ukraine’s Grim Efforts to Restore Power**\
-`Even as Ukrainian workers race to restore basic services like electricity, heat and water, new Russians airstrikes send them back to the starting line.`\
+`Even as Ukrainian workers race to restore basic services like electricity, heat and water, new Russian airstrikes send them back to the starting line.`\
 https://nytimes.com/2022/12/01/world/europe/russoa-ukraine-war-infrastructure.html?searchResultPosition=2
 
 **Blockchains, What Are They Good For?**\
