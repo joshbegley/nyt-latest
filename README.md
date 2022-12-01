@@ -1,4 +1,4 @@
-**After Xi’s Coronation, a Roar of Discontent Against His Hard-line Politics**\
+**After Xi’s Coronation, a Roar of Discontent Against His Hard-Line Politics**\
 `Protests in China have roused a tradition of dissent that had seemed spent after 10 years under Xi Jinping. The effects may far outlast the street clashes.`\
 https://nytimes.com/2022/12/01/world/asia/china-covid-protests-xi-jinping.html?searchResultPosition=1
 
