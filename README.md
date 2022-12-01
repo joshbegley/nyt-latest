@@ -4,7 +4,7 @@ https://nytimes.com/2022/12/01/movies/2nd-chance-review.html?searchResultPositio
 
 **A Royal Visit, at a Careful Distance**\
 `Prince William and Princess Catherine of Wales arrived in Boston in a snap of cold rain and on the tails of another crisis for the palace.`\
-https://nytimes.com/2022/12/01/style/a-royal-visit-at-a-careful-distance.html?searchResultPosition=2
+https://nytimes.com/2022/12/01/style/prince-william-kate-boston-visit.html?searchResultPosition=2
 
 **‘Spoiler Alert’ Review: Perfect Strangers Form Family Ties**\
 `Jim Parsons and Ben Aldridge star in this tear-jerker romance adapted from the memoir by the television journalist Michael Ausiello.`\
