@@ -3,7 +3,7 @@
 https://nytimes.com/2022/12/01/us/politics/state-dinner-biden-macron.html?searchResultPosition=1
 
 **Appeals Court Scraps Special Master Review in Trump Documents Case**\
-`The panel’s decision removed a major obstacle that had hindered the Justice Department’s investigation into Mr. Trump’s handling of sensitive government documents.`\
+`The panel’s decision removed a major obstacle that for more than two months had hindered the Justice Department’s investigation into Mr. Trump’s handling of sensitive government documents.`\
 https://nytimes.com/2022/12/01/us/politics/trump-special-master.html?searchResultPosition=2
 
 **Senate Advances Bill to Avert Rail Strike**\
