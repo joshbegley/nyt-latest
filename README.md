@@ -4,7 +4,7 @@ https://nytimes.com/video/us/politics/100000008667825/obama-warnock-georgia.html
 
 **Day 2: Your Ugly Christmas Sweater Is Beautiful in Its Own Way**\
 `The Times’s fashion director casts a discerning eye on this peculiar holiday tradition.`\
-https://nytimes.com/2022/12/01/style/day-2-your-ugly-christmas-sweater-is-beautiful-in-its-own-way.html?searchResultPosition=2
+https://nytimes.com/2022/12/01/style/ugly-christmas-sweater.html?searchResultPosition=2
 
 **The Full Guest List for the State Dinner**\
 `More than 300 guests were invited, including government officials, French fashion designers, actors and big donors.`\
