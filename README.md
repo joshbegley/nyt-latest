@@ -3,7 +3,7 @@
 https://nytimes.com/2022/12/02/books/review/penny-wolin-guest-register.html?searchResultPosition=1
 
 **A Fan’s Notes on Bong Joon Ho, Replete With Pictures**\
-`Karen Ha’s coffee table book celebrates the Korean director’s work and distinctive vision.`\
+`Karen Han’s coffee table book celebrates the Korean director’s work and distinctive vision.`\
 https://nytimes.com/2022/12/02/books/review/bong-joon-ho-dissident-cinema-karen-han.html?searchResultPosition=2
 
 **When Santa Slays: Holiday Genre Movies**\
