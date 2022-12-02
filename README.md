@@ -1,40 +1,40 @@
+**The Women Behind the Camera**\
+`Some of the year’s best photography books come from artists like Carrie Mae Weems and Susan Meiselas, Rosamond Purcell and Lorna Simpson.`\
+https://nytimes.com/2022/12/02/books/review/photography-books.html?searchResultPosition=1
+
+**Wheels, Waves and Wings**\
+`Books about exploring the world by bike, by car, by boat or by plane, passport in hand.`\
+https://nytimes.com/2022/12/02/books/review/new-travel-books.html?searchResultPosition=2
+
+**When Homicide Is a Family Affair**\
+`If you like bone-chilling, shudder-inducing reads, pick up any of these psychological thrillers.`\
+https://nytimes.com/2022/12/02/books/review/new-psychological-thrillers.html?searchResultPosition=3
+
+**If Books Were Drinks, These Would Be Hot Toddies**\
+`Five delightful new romance novels to savor.`\
+https://nytimes.com/2022/12/02/books/review/new-romance-books.html?searchResultPosition=4
+
+**A Cornucopia of Stories From the Past, Satisfying All Appetites**\
+`There’s something for everyone in this season’s bumper crop of novels set in other times and places.`\
+https://nytimes.com/2022/12/02/books/review/new-historical-fiction.html?searchResultPosition=5
+
+**The Late Great: Paul Newman, Michael K. Williams and Stephen Sondheim**\
+`Two memoirs and one collection of interviews take us inside the hearts and minds of three remarkable artists.`\
+https://nytimes.com/2022/12/02/books/review/hollywood-books.html?searchResultPosition=6
+
+**These Sporting Lives**\
+`Thomas Beller’s tribute to playground basketball, Kelcey Ervick’s graphic memoir of her soccer days and the great Willie Horton’s baseball career.`\
+https://nytimes.com/2022/12/02/books/review/sports-roundup.html?searchResultPosition=7
+
+**A Most Unlikely Pop Trio**\
+`This season’s music books include a collection of interviews with Nick Cave, a memoir by Sporty Spice and Greil Marcus’s latest meditation on Bob Dylan.`\
+https://nytimes.com/2022/12/02/books/review/new-music-books.html?searchResultPosition=8
+
 **Chinese Solar Makers Evaded U.S. Tariffs, Investigation Finds**\
 `The Biden administration preemptively halted any penalties from the case in June, prompting critics to say the administration has shortcut its own trade rules`\
-https://nytimes.com/2022/12/02/business/economy/chinese-solar-makers-evaded-us-tariffs-investigation-finds.html?searchResultPosition=1
+https://nytimes.com/2022/12/02/business/economy/chinese-solar-makers-evaded-us-tariffs-investigation-finds.html?searchResultPosition=9
 
 **Dog Flu Is Back, Too**\
 `Canine influenza can spread quickly through shelters, kennels and day care facilities, although most dogs will recover on their own, experts said.`\
-https://nytimes.com/2022/12/02/health/dogs-canine-flu.html?searchResultPosition=2
-
-**A Versatile Director Brings Powerful Imagery to Wagner and Film**\
-`Kornel Mundruczo’s varied career has included the Oscar-nominated movie “Pieces of a Woman,” stage productions across Europe and now, “Lohengrin.”`\
-https://nytimes.com/2022/12/02/arts/music/kornel-mundruczo-lohengrin.html?searchResultPosition=3
-
-**Did Someone With a Trust Fund Paint This?**\
-`An exhibition in Berlin shines a light on class, showing how social and financial inequality affect how art gets made, sold and displayed.`\
-https://nytimes.com/2022/12/02/arts/design/class-issues-exhibit-berlin.html?searchResultPosition=4
-
-**A Life Derailed by Compulsive Lying, and More: The Week in Reporter Reads**\
-`Five articles from around The Times, narrated just for you.`\
-https://nytimes.com/2022/12/02/podcasts/christopher-massimine-shrinkflation-anderson-cooper.html?searchResultPosition=5
-
-**At the State Dinner, Jill Biden Revives the Oscar de la Renta Tradition**\
-`The first lady returns to a tentpole of White House image-making.`\
-https://nytimes.com/2022/12/02/style/state-dinner-fashion-biden-macron.html?searchResultPosition=6
-
-**How Well Do You Know the New York City of the Beats?**\
-`Here are five questions to test your knowledge of the Beat Generation in the Big Apple.`\
-https://nytimes.com/interactive/2022/12/02/books/review/new-york-beats-quiz.html?searchResultPosition=7
-
-**Hate Speech’s Rise on Twitter Is Unprecedented, Researchers Find**\
-`Problematic content and formerly barred accounts have increased sharply in the short time since Elon Musk took over, researchers said.`\
-https://nytimes.com/2022/12/02/technology/twitter-hate-speech.html?searchResultPosition=8
-
-**Latinas Have Struggled to Build Savings, but a Younger Cohort Is Making Gains**\
-`As one of the longest-living yet lowest-earning groups in America, Hispanic women have challenges ensuring that their later years are secure. But things are changing.`\
-https://nytimes.com/2022/12/02/business/retirement-latinas-personal-finance.html?searchResultPosition=9
-
-**Doing It Again: Spears Songs and Fairy Tale Characters, Now for Broadway**\
-`“Once Upon a One More Time” plans to open on Broadway next summer.`\
-https://nytimes.com/2022/12/02/theater/britney-spears-once-upon-one-more-time-broadway.html?searchResultPosition=10
+https://nytimes.com/2022/12/02/health/dogs-canine-flu.html?searchResultPosition=10
 
