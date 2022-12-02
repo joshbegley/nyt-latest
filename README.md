@@ -10,31 +10,31 @@ https://nytimes.com/2022/12/02/sports/soccer/us-world-cup-team-soccer-diversity.
 `Thomas S. Nilsen and Steffen Ojala Soderholm made songs with superfast tempos and high-pitched vocals for a school project. They were shocked to learn their “nightcore” sound had gone global.`\
 https://nytimes.com/2022/12/02/arts/music/tiktok-sped-up-remixes-nightcore.html?searchResultPosition=3
 
+**Paul Whelan, an American imprisoned in Russia, contacts his family after weeks of silence.**\
+`Mr. Whelan is serving a 16-year sentence in Russia on espionage charges that the United States calls politically motivated.`\
+https://nytimes.com/2022/12/02/world/paul-whelan-russia-prison.html?searchResultPosition=4
+
 **Big Feelings at the Premiere of ‘The Whale’**\
 `More than 100 actors, singers and creative professionals attended the New York premiere of Darren Aronofsky’s new film at Alice Tully Hall this week. Some of them shared their thoughts.`\
-https://nytimes.com/2022/12/02/style/the-whale-new-york-premiere.html?searchResultPosition=4
+https://nytimes.com/2022/12/02/style/the-whale-new-york-premiere.html?searchResultPosition=5
 
 **Woman Burned by Chemical Thrown in Her Face at Brooklyn Subway Stop**\
 `The attack, which occurred early Friday at a subway station in Prospect-Lefferts Gardens, left the victim in critical but stable condition.`\
-https://nytimes.com/2022/12/02/nyregion/subway-attack-brooklyn.html?searchResultPosition=5
+https://nytimes.com/2022/12/02/nyregion/subway-attack-brooklyn.html?searchResultPosition=6
 
 **Feta for Dinner**\
 `Add a salad and some bread to Ali Slagle’s grilled (or oven-roasted) feta with nuts, and you have a gorgeously simple dinner.`\
-https://nytimes.com/2022/12/02/dining/feta-for-dinner.html?searchResultPosition=6
+https://nytimes.com/2022/12/02/dining/feta-for-dinner.html?searchResultPosition=7
 
 **The Fight Over Warnock’s Record Comes Down to an Electric Car Plant in Georgia**\
 `Hyundai’s huge new plant outside Savannah could be a model for bipartisanship and a central achievement for Raphael Warnock, whose biggest efforts otherwise fell short. But Republicans aren’t giving him credit.`\
-https://nytimes.com/2022/12/02/us/politics/warnock-georgia-senate-electric-vehicles.html?searchResultPosition=7
+https://nytimes.com/2022/12/02/us/politics/warnock-georgia-senate-electric-vehicles.html?searchResultPosition=8
 
 **As Shootings Continue, Prospects for Gun Control Action in Congress Remain Dim**\
 `With Republicans taking control of the House in January, the chances that Congress will consider any added restrictions in next two years are also exceedingly slim.`\
-https://nytimes.com/2022/12/02/us/gun-control-congress.html?searchResultPosition=8
+https://nytimes.com/2022/12/02/us/gun-control-congress.html?searchResultPosition=9
 
 **A Very Streaming Christmas**\
 `With so many Christmas movies to stream this season, which ones are quality nuggets and which are lumps of coal?`\
-https://nytimes.com/2022/12/02/movies/christmas-movies-streaming.html?searchResultPosition=9
-
-**Freddie Roman, Who Brought Catskill Comedy to Broadway, Dies at 85**\
-`Bored with selling shoes, he became a comedian in the 1960s and later conceived the hit show “Catskills on Broadway.” He was also the longtime dean of the Friars Club.`\
-https://nytimes.com/2022/12/02/arts/freddie-roman-dead.html?searchResultPosition=10
+https://nytimes.com/2022/12/02/movies/christmas-movies-streaming.html?searchResultPosition=10
 
