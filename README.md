@@ -1,6 +1,6 @@
 **Hate Speech’s Rise on Twitter Is Unprecedented, Researchers Find**\
 `Problematic content and formerly barred accounts have increased sharply in the short time since Elon Musk took over, researchers said.`\
-https://nytimes.com/2022/12/02/technology/hate-speechs-rise-on-twitter-is-unprecedented-researchers-find.html?searchResultPosition=1
+https://nytimes.com/2022/12/02/technology/twitter-hate-speech.html?searchResultPosition=1
 
 **Latinas Have Struggled to Build Savings, but a Younger Cohort Is Making Gains**\
 `As one of the longest-living yet lowest-earning groups in America, Hispanic women have challenges ensuring that their later years are secure. But things are changing.`\
