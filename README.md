@@ -1,4 +1,4 @@
-**Under Pressure, South Africa’s President Snub’s Party’s Leadership**\
+**Under Pressure, South Africa’s President Snubs Party’s Leadership**\
 `In the face of possible impeachment, Cyril Ramaphosa has not been seen since the release of a damning report. But his allies are urging him to fight back and remain in office.`\
 https://nytimes.com/2022/12/02/us/south-africa-president-cyril-ramaphosa-report.html?searchResultPosition=1
 
