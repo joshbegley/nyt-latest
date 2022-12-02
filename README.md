@@ -26,7 +26,7 @@ https://nytimes.com/2022/12/02/books/review/books-holiday-gifts-history.html?sea
 `This week, the hosts had plenty to say about Kanye West’s dinner at Mar-a-Lago with Trump and the conviction of the Oath Keepers leader Stewart Rhodes for sedition.`\
 https://nytimes.com/interactive/2022/12/02/arts/television/best-of-late-night.html?searchResultPosition=7
 
-**2022 Holiday Books**\
+**Books to Give This Season**\
 `Whether you’re looking for thrillers or romances, historical fiction or travel books, let us help.`\
 https://nytimes.com/interactive/2022/12/02/books/best-book-gifts.html?searchResultPosition=8
 
