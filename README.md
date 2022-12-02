@@ -11,7 +11,7 @@ https://nytimes.com/2022/12/02/books/review/scientific-illustration-anna-escardo
 https://nytimes.com/2022/12/02/books/review/rhona-bitner-listen-stages-studios-shaped-american-music.html?searchResultPosition=3
 
 **Suspect Arrested in Killing of Takeoff, the Migos Rapper**\
-`The Houston Police said that Patrick Xavier Clark, 33, was being charged with murder in the killing of Takeoff at a party in Houston last month.`\
+`The Houston Police said that Patrick Xavier Clark, 33, was being charged with murder, and that Takeoff had been an “innocent bystander.”`\
 https://nytimes.com/2022/12/02/arts/music/takeoff-migos-murder-arrest.html?searchResultPosition=4
 
 **Love Makes a Family — and for This Photographer, a Book**\
