@@ -4,7 +4,7 @@ https://nytimes.com/2022/12/01/style/crypto-awards.html?searchResultPosition=1
 
 **Biden, Demoting Iowa and Prizing Diversity, Wants S.C. as First Primary**\
 `Michigan would become the fifth primary. The plan came as the president asked that “voters of color have a voice in choosing our nominee much earlier in the process.”`\
-https://nytimes.com/2022/12/01/us/politics/biden-demoting-iowa-and-prizing-diversity-wants-sc-as-first-primary.html?searchResultPosition=2
+https://nytimes.com/2022/12/01/us/politics/biden-dnc-primary-south-carolina-2024.html?searchResultPosition=2
 
 **Holiday Drinking Can Harm Your Heart**\
 `December is peak time for cardiovascular issues. Here’s how to stay safe.`\
