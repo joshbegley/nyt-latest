@@ -24,7 +24,7 @@ https://nytimes.com/2022/12/02/us/raphael-warnock-teen-canvasser-shot.html?searc
 
 **Cold, Rain, Mud, Snow or Even a Perfect Day. Tell Us Your Most Memorable Run of 2022.**\
 `The Times wants to hear about the most unforgettable run — and route — from the miles you logged this year and what made it so indelible. (Hint: It doesn’t need to be your fastest.)`\
-https://nytimes.com/2022/12/02/sports/cold-rain-mud-snow-or-even-a-perfect-day-tell-us-your-most-memorable-run-of-2022.html?searchResultPosition=7
+https://nytimes.com/2022/12/02/sports/most-memorable-run.html?searchResultPosition=7
 
 **Ukraine’s Allies Agree on Russian Oil Price Cap**\
 `The plan to impose a top price of $60 a barrel on Russian crude will most likely make a small dent in the Kremlin’s revenue, but the White House hopes it will help avert an oil shock.`\
