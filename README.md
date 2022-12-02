@@ -2,8 +2,8 @@
 `More than 100 actors, singers and creative professionals attended the New York premiere of Darren Aronofsky’s new film at Alice Tully Hall this week. Some of them shared their thoughts.`\
 https://nytimes.com/2022/12/02/style/the-whale-new-york-premiere.html?searchResultPosition=1
 
-**Woman Suffers Burns After Unknown Chemical Is Thrown in Her Face**\
-`The attack, which occurred early Friday at a subway station in Prospect-Lefferts Gardens in Brooklyn, left the victim in critical but stable condition.`\
+**Woman Burned by Chemical Thrown in Her Face at Brooklyn Subway Stop**\
+`The attack, which occurred early Friday at a subway station in Prospect-Lefferts Gardens, left the victim in critical but stable condition.`\
 https://nytimes.com/2022/12/02/nyregion/subway-attack-brooklyn.html?searchResultPosition=2
 
 **Feta for Dinner**\
