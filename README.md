@@ -1,5 +1,5 @@
 **Alex Jones Files for Bankruptcy**\
-`The Infowars broadcaster has been ordered by courts to pay about $1.5 billion in damages to families hurt by his promotion of conspiracy theories.`\
+`The Infowars broadcaster has been ordered by courts to pay about $1.5 billion in damages to Sandy Hook families hurt by his promotion of conspiracy theories.`\
 https://nytimes.com/2022/12/02/us/politics/alex-jones-bankruptcy.html?searchResultPosition=1
 
 **Transcript: Ezra Klein Interviews Michael Brendan Dougherty**\
