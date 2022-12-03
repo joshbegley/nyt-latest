@@ -3,7 +3,7 @@
 https://nytimes.com/2022/12/03/books/john-prados-dead.html?searchResultPosition=1
 
 **For young Americans, an honorable exit against a wave of Dutch goals.**\
-`By Andrew Keh`\
+`The United States saw its weaknesses exploited in a 3-1 loss to the Netherlands. But after a solid showing and with a young team brimming with promise, the best may be yet to come.`\
 https://nytimes.com/2022/12/03/sports/soccer/us-out-world-cup-netherlands.html?searchResultPosition=2
 
 **Where Does Jacob deGrom Rank in Mets History?**\
