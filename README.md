@@ -1,5 +1,5 @@
 **In Huge Blow to Mets, Jacob deGrom Signs With Texas Rangers**\
-`DeGrom, a two-time winner of the Cy Young Award, received an enormous commitment despite his recent injury concerns.`\
+`DeGrom, a two-time winner of the Cy Young Award, received an enormous commitment despite his recent injuries.`\
 https://nytimes.com/2022/12/02/sports/baseball/jacob-degrom-texas-rangers.html?searchResultPosition=1
 
 **What Makes a Movie the Greatest of All Time?**\
