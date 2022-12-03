@@ -1,5 +1,5 @@
 **FedEx Driver Charged in Kidnapping and Killing of Girl, 7, Officials Say**\
-`About 200 people in Paradise, Texas, searched for Athena Strand for three days. The authorities said she was taken near her home and found dead on Friday.`\
+`About 200 people in Paradise, Texas, searched for Athena Strand for three days. The authorities said she was taken near her home on Wednesday and found dead on Friday.`\
 https://nytimes.com/2022/12/03/us/athena-strand-kidnapped-fedex-driver.html?searchResultPosition=1
 
 **Gossip Session**\
