@@ -14,8 +14,8 @@ https://nytimes.com/2022/12/03/business/dealbook/dealbooksummit.html?searchResul
 `Nearly one million Americans have no immediate family members to provide assistance if needed. The number is expected to grow.`\
 https://nytimes.com/2022/12/03/health/elderly-living-alone.html?searchResultPosition=4
 
-**Texas Man Threatened Boston Doctor Who Treats Gender Nonconforming Children, U.S. Says**\
-`Matthew Jordan Lindner, 38, left a voice mail message threatening to kill the doctor, prosecutors said.`\
+**Man Threatened Doctor Who Cares For Gender Nonconforming Children, U.S. Says**\
+`A Texas man left a voice mail message threatening to kill the Boston-based doctor, prosecutors said.`\
 https://nytimes.com/2022/12/03/us/lgbtq-patients-doctor-threatened-boston.html?searchResultPosition=5
 
 **Outside the stadium, a get-well message for Pelé, who is back in the hospital.**\
