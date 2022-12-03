@@ -2,8 +2,8 @@
 `The pug’s videos served as a safe space and a distraction on an often divisive internet.`\
 https://nytimes.com/2022/12/03/style/tiktok-dog-noodle-died.html?searchResultPosition=1
 
-**By Scoring First, Messi Sets the Tone for Argentina**\
-`Messi scored his first goal in a World Cup elimination game to help Argentina advance.`\
+**By scoring first, Messi sets the tone for Argentina.**\
+`Futbol Unites the World`\
 https://nytimes.com/2022/12/03/sports/soccer/messi-argentina-world-cup.html?searchResultPosition=2
 
 **What Euthanasia Has Done to Canada**\
