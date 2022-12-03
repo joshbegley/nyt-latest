@@ -1,4 +1,4 @@
-**‘Andor’ is the best Star Wars anything in quite a while**\
+**‘Andor’ Is the Best Star Wars Anything in Quite a While**\
 `On the Empire, the Rebellion and a series that works.`\
 https://nytimes.com/2022/12/03/opinion/andor-star-wars-disney.html?searchResultPosition=1
 
