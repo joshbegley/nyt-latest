@@ -6,8 +6,8 @@ https://nytimes.com/2022/12/02/sports/baseball/jacob-degrom-texas-rangers.html?s
 `The much-respected Sight and Sound poll of the best films ever shows that what is valued onscreen has changed over time, sometimes radically.`\
 https://nytimes.com/interactive/2022/12/02/arts/sight-and-sound-best-movies-of-all-time.html?searchResultPosition=2
 
-**Judge Criticizes D.A. for Halting Case Against Woman Who Killed Husband**\
-`Alvin L. Bragg, Manhattan’s district attorney, abandoned the murder prosecution of Tracy McCarter. Justice Diane Kiesel cast a critical eye on the politics surrounding the case.`\
+**Judge Criticizes D.A. for Halting Prosecution of Woman in Husband’s Death**\
+`Alvin L. Bragg, Manhattan’s district attorney, abandoned the murder case against Tracy McCarter. Justice Diane Kiesel cast a critical eye on the politics surrounding the case.`\
 https://nytimes.com/2022/12/02/nyregion/mccarter-case-dismissed-bragg.html?searchResultPosition=3
 
 **Man Cashed His Dead Mother’s Social Security Checks for 26 Years, U.S. Says**\
