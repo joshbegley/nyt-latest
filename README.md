@@ -1,40 +1,40 @@
+**8 New Hotels for Winter Enthusiasts in the U.S. and Europe**\
+`For those looking to get away to the cold, new and reimagined hotels in New England, the Alps and beyond offer stylish accommodations near the snow.`\
+https://nytimes.com/2022/12/03/travel/winter-hotels-united-states-europe.html?searchResultPosition=1
+
+**At a Club Med Ski Resort, Learning to Love the Apéro**\
+`Will the company’s all-inclusive approach work in the North American market? An avid skier puts the company’s resort at Québec’s Massif de Charlevoix to the test.`\
+https://nytimes.com/2022/12/03/travel/skiing-club-med-quebec-charlevoix.html?searchResultPosition=2
+
+**Taking Back the Mountains**\
+`Big resorts are crowded, pricey and exclusive. But some skiers and snowboarders are trying to reclaim their sports by building a culture that is more inclusive and sustainable. Here’s how.`\
+https://nytimes.com/2022/12/03/travel/skiing-snowboarding-overcrowding-lift-lines.html?searchResultPosition=3
+
+**Making the Slopes Fun from Day 1**\
+`When it comes to designing terrain and the learning experience, resorts have finally started thinking about beginners, with the idea of getting them to keep coming back.`\
+https://nytimes.com/2022/12/03/travel/beginner-learn-to-ski.html?searchResultPosition=4
+
+**The Quiet Thrill of Winter Wildlife Viewing**\
+`In Colorado’s Rockies, birds and other animals stand out against the snow, and even if you can’t see them, their tracks let you know they’re around.`\
+https://nytimes.com/2022/12/03/travel/winter-wildlife-bird-watching.html?searchResultPosition=5
+
+**Why Christmas Trees Could Cost More This Year**\
+`Inflation and tight supplies are the big reasons. Still, there are some things you can do to keep the price down and still have a natural tree.`\
+https://nytimes.com/2022/12/03/your-money/christmas-tree-cost-inflation.html?searchResultPosition=6
+
+**Faster Rides, Shorter Waits: New Ski Lifts Changing U.S. Slopes This Winter**\
+`A flurry of construction at major ski resorts has led to a high number of notable new chairlifts and gondolas opening this season.`\
+https://nytimes.com/2022/12/03/travel/new-ski-lifts.html?searchResultPosition=7
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2022/12/03/crosswords/spelling-bee-forum.html?searchResultPosition=8
+
 **Richarlison, Messi and Pulisic: Three Stunning Goals Frozen in Time**\
 `Here’s a 3-D view of three memorable goals from the group phase of the 2022 World Cup.`\
-https://nytimes.com/interactive/2022/12/03/sports/world-cup/richarlison-messi-pulisic-world-cup-goals.html?searchResultPosition=1
+https://nytimes.com/interactive/2022/12/03/sports/world-cup/richarlison-messi-pulisic-world-cup-goals.html?searchResultPosition=9
 
 **Spot the Ball**\
 `We’re through the group stage at the World Cup in Qatar, and we’ve seen magical goals, phantom fouls and the heartbreak of teams being eliminated from competition.`\
-https://nytimes.com/interactive/2022/12/03/sports/world-cup/spot-the-ball-round-1.html?searchResultPosition=2
-
-**He Returned a Dazed Soldier to the Russians. Ukraine Calls It Treason.**\
-`No one knew what to do with a lost Russian pilot who suddenly appeared in the occupied city of Kherson. The case has revealed the blurred line between pragmatism in a war zone and collaboration with the enemy.`\
-https://nytimes.com/2022/12/03/world/europe/ukraine-kherson-treason.html?searchResultPosition=3
-
-**How to Watch the U.S. vs. the Netherlands at the World Cup**\
-`The Americans will play the Netherlands on Saturday in the round of 16. Here’s how to watch, and what to watch for.`\
-https://nytimes.com/2022/12/03/sports/soccer/watch-us-netherlands-world-cup-time-game.html?searchResultPosition=4
-
-**Day 3: Ice Skating in Style**\
-`When the cold snaps, New York’s rinks come alive.`\
-https://nytimes.com/2022/12/02/style/ice-skating-in-style.html?searchResultPosition=5
-
-**Quotation of the Day: Axed as Democrats’ First Stop, Iowa Faces an Existential Crisis**\
-`Quotation of the Day for Saturday, December 3, 2022.`\
-https://nytimes.com/2022/12/02/pageoneplus/quotation-of-the-day-axed-as-democrats-first-stop-iowa-faces-an-existential-crisis.html?searchResultPosition=6
-
-**Editors’ Note: Dec. 3, 2022**\
-`Corrections that appeared in print on Saturday, Dec. 3, 2022.`\
-https://nytimes.com/2022/12/02/pageoneplus/editors-note-dec-3-2022.html?searchResultPosition=7
-
-**Quite the Reverse**\
-`Kate Hawkins’s Saturday puzzle debut switches gears on us.`\
-https://nytimes.com/2022/12/02/crosswords/daily-puzzle-2022-12-03.html?searchResultPosition=8
-
-**These Georgia Precincts Were Red. Then Blue. Now They Are Purple.**\
-`This small collection of precincts has backed both Democrats and Republicans in recent elections and could be the most competitive areas in Georgia.`\
-https://nytimes.com/interactive/2022/12/02/us/elections/georgia-senate-results-analysis.html?searchResultPosition=9
-
-**In Huge Blow to Mets, Jacob deGrom Signs With Texas Rangers**\
-`DeGrom, a two-time winner of the Cy Young Award, received an enormous commitment despite his recent injuries.`\
-https://nytimes.com/2022/12/02/sports/baseball/jacob-degrom-texas-rangers.html?searchResultPosition=10
+https://nytimes.com/interactive/2022/12/03/sports/world-cup/spot-the-ball-round-1.html?searchResultPosition=10
 
