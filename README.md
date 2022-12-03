@@ -20,7 +20,7 @@ https://nytimes.com/2022/12/03/opinion/andor-star-wars-disney.html?searchResultP
 
 **Did You Miss the DealBook Summit?**\
 `Business and policy leaders from around the world joined us at our annual newsmaking event last Wednesday. Here’s what happened.`\
-https://nytimes.com/2022/12/03/business/dealbook/dealbooksummit.html?searchResultPosition=6
+https://nytimes.com/2022/12/03/business/dealbook/dealbook-summit-ftx-zuckerberg-zelensky.html?searchResultPosition=6
 
 **Who Will Care for ‘Kinless’ Seniors?**\
 `Nearly one million Americans have no immediate family members to provide assistance if needed. The number is expected to grow.`\
