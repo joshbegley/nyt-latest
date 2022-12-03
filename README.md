@@ -3,7 +3,7 @@
 https://nytimes.com/2022/12/03/us/lgbtq-patients-doctor-threatened-boston.html?searchResultPosition=1
 
 **Outside the stadium, a get-well message for Pelé, who is back in the hospital.**\
-`By Andrew Das and Tariq Panja`\
+`The soccer legend’s health has been the subject of reports coming out of Brazil, his home country.`\
 https://nytimes.com/2022/12/03/sports/soccer/pele-hospital.html?searchResultPosition=2
 
 **We’re Spending More Time Alone. Maybe It’s Because We’re Exhausted.**\
