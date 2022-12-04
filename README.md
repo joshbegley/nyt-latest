@@ -2,13 +2,13 @@
 `Brian Kemp is having a moment.`\
 https://nytimes.com/2022/12/04/opinion/brian-kemp-herschel-walker.html?searchResultPosition=1
 
-**The Teen Romance Novel That Russia’s Politicians Just Can’t Bear**\
-`“Summer in a Pioneer Tie” is more than a breakout hit.`\
-https://nytimes.com/2022/12/04/opinion/russia-lgbt-putin.html?searchResultPosition=2
-
 **I Still Believe in Effective Altruism, Emphasis on ‘Effective’**\
 `The fall of Sam Bankman-Fried helps us see the movement’s vices, but that shouldn’t blind us to its virtues, either. `\
-https://nytimes.com/2022/12/04/opinion/charity-holiday-gift-givewell.html?searchResultPosition=3
+https://nytimes.com/2022/12/04/opinion/charity-holiday-gift-givewell.html?searchResultPosition=2
+
+**The Teen Romance Novel That Russia’s Politicians Just Can’t Bear**\
+`“Summer in a Pioneer Tie” is more than a breakout hit.`\
+https://nytimes.com/2022/12/04/opinion/russia-lgbt-putin.html?searchResultPosition=3
 
 **The Sunday Read: ‘How Noah Baumbach Made “White Noise” a Disaster Movie for Our Moment’**\
 `When the world shut down in 2020, the filmmaker found solace in Don DeLillo’s supposedly unadaptable novel — and turned it into a film that speaks to our deepest fears.`\
