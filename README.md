@@ -2,7 +2,7 @@
 `A New York writer and artist who found inspiration in the countryside, she used experimental forms to celebrate mundane pleasures.`\
 https://nytimes.com/2022/12/04/books/bernadette-mayer-dead.html?searchResultPosition=1
 
-**Georgia, Michigan, T.C.U., Ohio State Are Playoff Semifinalists**\
+**Georgia, Michigan, T.C.U. and Ohio State Are Playoff Semifinalists**\
 `Alabama, despite lobbying by its coach, Nick Saban, was left out for the second time under the four-team playoff format. Instead, Georgia will play Ohio State and Michigan will play Texas Christian in the semifinals.`\
 https://nytimes.com/2022/12/04/sports/ncaafootball/playoff-georgia-michigan-tcu-ohio-state.html?searchResultPosition=2
 
