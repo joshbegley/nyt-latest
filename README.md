@@ -19,7 +19,7 @@ https://nytimes.com/2022/12/04/sports/ncaafootball/playoff-georgia-michigan-tcu-
 https://nytimes.com/2022/12/04/us/politics/gay-rights-supreme-court-first-amendment.html?searchResultPosition=5
 
 **Mbappé and France make a statement in extending their title defense.**\
-`By James Wagner`\
+`France is trying to become just the third nation to win consecutive World Cups.`\
 https://nytimes.com/2022/12/04/sports/mbappe-france-world-cup-bracket.html?searchResultPosition=6
 
 **Review: The Met Opera’s Grand Old ‘Aida’ Isn’t Dead Yet**\
