@@ -18,7 +18,7 @@ https://nytimes.com/interactive/2022/12/04/nyregion/metropolitan-diary-contest.h
 `A television writer deals with too much plot.`\
 https://nytimes.com/2022/12/04/style/a-previvors-tale.html?searchResultPosition=5
 
-**Iran Abolishes Morality Police After Months of Protests**\
+**Iran Shutting Down Morality Police,Official Says, After Months of Protests**\
 `The move appeared to be a concession to the protest movement that erupted after the death of Mahsa Amini, a young woman who was being held by the morality police for supposedly violating Islamic dress rules.`\
 https://nytimes.com/2022/12/04/world/middleeast/iran-morality-police.html?searchResultPosition=6
 
