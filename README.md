@@ -27,7 +27,7 @@ https://nytimes.com/2022/12/04/world/middleeast/iran-morality-police.html?search
 https://nytimes.com/2022/12/04/us/power-outages-north-carolina.html?searchResultPosition=7
 
 **Amid Churning Oil Market, OPEC and Russia Leave Production Unchanged**\
-`The group, OPEC Plus, reaffirmed an output cut in October as “the right course of action” but outlined no further changes before an E.U. embargo of Russian oil begins on Monday.`\
+`The group, OPEC Plus, reaffirmed an output cut in October as “the right course of action” but outlined no other changes before an E.U. embargo of Russian oil begins on Monday.`\
 https://nytimes.com/2022/12/04/business/opec-plus-oil-production.html?searchResultPosition=8
 
 **What’s Going On in This Picture? | Dec. 5, 2022**\
