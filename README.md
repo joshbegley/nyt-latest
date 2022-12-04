@@ -1,40 +1,40 @@
-**The Chinese Dream, Denied**\
-`The world’s harshest Covid restrictions exemplify how Xi Jinping’s authoritarian excesses have rewritten Beijing’s longstanding social contract with its people.`\
-https://nytimes.com/2022/12/04/world/asia/china-xi-jinping-covid-zero.html?searchResultPosition=1
+**He’s the Bad Boy of Chess. But Did He Cheat?**\
+`An American teenager, Hans Niemann, defeated Magnus Carlsen, the world’s best chess player. Then Mr. Carlsen accused his opponent of cheating. It’s either overdue justice or paranoia.`\
+https://nytimes.com/2022/12/04/business/chess-cheating-scandal-magnus-carlsen-hans-niemann.html?searchResultPosition=1
 
-**After Arkansas Trial, Judge Weighs Legality of Ban on Care for Transgender Youth**\
-`The trial, the first over a challenge to a state ban on gender-affirming care, concluded last week; the judge has not indicated when he will rule.`\
-https://nytimes.com/2022/12/04/us/arkansas-hormone-therapy-transgender.html?searchResultPosition=2
+**What Jared Leto and Hailee Steinfeld Wore to Art Basel Miami Beach**\
+`Top outfits from the parties for White Cube, CORE, Farfetch and Prada.`\
+https://nytimes.com/2022/12/04/style/jared-leto-hailee-steinfeld-art-basel-miami-parties.html?searchResultPosition=2
 
-**‘We Chose a Bench Beneath Good Lighting for Safety’s Sake’**\
-`A special seat in Union Square Park, impatience overheard and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2022/12/04/nyregion/metropolitan-diary.html?searchResultPosition=3
+**The Best Thrillers of 2022**\
+`A fiendish puzzle, an all-out struggle for survival on a remote island, the mysterious disappearance of a spouse: The year’s best thrillers could not be more different.`\
+https://nytimes.com/2022/12/04/books/review/the-best-thrillers-of-2022.html?searchResultPosition=3
 
-**The Texas Group Waging a National Crusade Against Climate Action**\
-`The Texas Public Policy Foundation is shaping laws, running influence campaigns and taking legal action in a bid to promote fossil fuels.`\
-https://nytimes.com/2022/12/04/climate/texas-public-policy-foundation-climate-change.html?searchResultPosition=4
+**The Best Historical Fiction of 2022**\
+`These sturdy time machines have two things in common: They’re built to last and they’re constructed by pros.`\
+https://nytimes.com/2022/12/04/books/review/the-best-historical-fiction-of-2022.html?searchResultPosition=4
 
-**Arab Fans Confront Israeli Reporters Covering World Cup in Qatar**\
-`When Qatar granted access to Israeli soccer fans and media despite an absence of diplomatic ties, some saw it as another sign of warming ties with the Arab world. Instead, some of the Israelis got a chilly reception.`\
-https://nytimes.com/2022/12/04/world/middleeast/qatar-israel-world-cup-arab-palestinian.html?searchResultPosition=5
+**Violence and Bliss in Three New Essay Collections**\
+`From a war correspondent to a Two-Spirit Ojibwe-nêhiyaw poet, these authors trace past devastations to find paths back to humanity.`\
+https://nytimes.com/2022/12/04/books/review/bright-unbearable-reality-anna-badkhen-still-no-word-from-you-peter-orner-making-love-with-the-land-joshua-whitehead.html?searchResultPosition=5
 
-**I Thought I Would Always Be a Writer. Then I Saw the Other Side.**\
-`After working as a reporter for years, I learned to appreciate the qualities that make editors good at their job.`\
-https://nytimes.com/2022/12/04/insider/i-thought-i-would-always-be-a-writer-then-i-saw-the-other-side.html?searchResultPosition=6
+**Abuse in K-Pop in Spotlight Again After L.A. Hotel Altercation**\
+`A public dispute between band members and the head of their agency has revived concerns about whether South Korean entertainment agencies exploit young musicians.`\
+https://nytimes.com/2022/12/04/world/asia/omega-x-kpop-abuse.html?searchResultPosition=6
 
-**‘S.N.L.’ Mocks Herschel Walker Ahead of Georgia’s Senate Vote**\
-`Also this week: The episode host, Keke Palmer, revealed that she is pregnant and Kenan Thompson reunited with his old TV partner, Kel Mitchell.`\
-https://nytimes.com/2022/12/04/arts/television/saturday-night-live-herschel-walker.html?searchResultPosition=7
+**YouTube Stars Rhett and Link Think This Is Their Moment**\
+`The creator economy has become fertile ground for investment. Rhett McLaughlin and Charles Lincoln Neal III want to take advantage of that for their business, Mythical.`\
+https://nytimes.com/2022/12/04/business/media/youtube-creator-economy-rhett-and-link.html?searchResultPosition=7
 
-**At Qatar’s Church City, Sunday Comes on Friday**\
-`In a nation deeply rooted in Islam, worshipers from other faiths find community in a government-sanctioned island of Christianity on the outskirts of Doha.`\
-https://nytimes.com/2022/12/04/sports/soccer/at-qatars-church-city-sunday-comes-on-friday.html?searchResultPosition=8
+**At Boucheron, Even Asbestos is Precious**\
+`The house’s creative director says Cofalit, commonly used for road building, was an interesting alternative to use in pieces like a high jewelry brooch.`\
+https://nytimes.com/2022/12/04/fashion/jewelry-boucheron-asbestos-waste.html?searchResultPosition=8
 
-**Corrections: Dec. 4, 2022**\
-`Corrections that appeared in print on Sunday, Dec. 4, 2022.`\
-https://nytimes.com/2022/12/04/pageoneplus/corrections-dec-4-2022.html?searchResultPosition=9
+**How Democrats’ New Primary Calendar Changes the Chessboard**\
+`President Biden’s push to abandon Iowa for younger, racially diverse states is likely to reward candidates who connect with the party’s most loyal voters.`\
+https://nytimes.com/2022/12/04/us/politics/democrats-presidential-primary-calendar.html?searchResultPosition=9
 
-**Quotation of the Day: For Many Black Voters, Walker’s Troubles Mar Historic Moment**\
-`Quotation of the Day for Sunday, December 4, 2022.`\
-https://nytimes.com/2022/12/04/pageoneplus/quotation-of-the-day-for-many-black-voters-walkers-troubles-mar-historic-moment.html?searchResultPosition=10
+**Mayor Eric Adams’s Trip to Qatar Was a Bit of a Mystery Tour**\
+`Eric Adams visited the Acropolis in Athens and attended two World Cup games in Doha on his first major foreign trip as mayor.`\
+https://nytimes.com/2022/12/04/nyregion/eric-adams-qatar-trip.html?searchResultPosition=10
 
