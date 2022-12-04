@@ -1,6 +1,6 @@
 **Warnock and Walker, at Finish Line in Georgia, Stick to Their Strategies**\
 `Senator Raphael Warnock preached from his Atlanta church and put on rallies, while Herschel Walker held a series of low-key events.`\
-https://nytimes.com/2022/12/04/us/warnock-walker-georgia-senate-runoff.html?searchResultPosition=1
+https://nytimes.com/2022/12/04/us/georgia-senate-runoff-warnock-walker.html?searchResultPosition=1
 
 **Popular Pastor Returns After Absence Over an ‘Inappropriate’ Online Relationship**\
 `Matt Chandler of the Village Church in suburban Dallas received a standing ovation after his leave, part of a period of turmoil among evangelical churches.`\
