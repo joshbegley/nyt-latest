@@ -1,4 +1,4 @@
-**Georgia, Michigan, T.C.U., Ohio State are Playoff Semifinalists**\
+**Georgia, Michigan, T.C.U., Ohio State Are Playoff Semifinalists**\
 `Alabama, despite lobbying by its coach, Nick Saban, was left out for the second time under the four-team playoff format. Instead, Georgia will play Ohio State and Michigan will play Texas Christian in the semifinals.`\
 https://nytimes.com/2022/12/04/sports/ncaafootball/playoff-georgia-michigan-tcu-ohio-state.html?searchResultPosition=1
 
