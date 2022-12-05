@@ -1,5 +1,5 @@
 **Skyrocketing Prices in Turkey Hurt Families and Tarnish Erdogan**\
-`Annual inflation is at its highest level in decades, devaluing salaries and devouring savings less than a year before President Recep Tayyip Erdogan runs for re-election.`\
+`Annual inflation is around its highest level in decades, devaluing salaries and devouring savings less than a year before President Recep Tayyip Erdogan runs for re-election.`\
 https://nytimes.com/2022/12/05/world/middleeast/skyrocketing-prices-in-turkey-hurt-families-and-tarnish-erdogan.html?searchResultPosition=1
 
 **Twin Friends of Eric Adams Are Dogged by Allegations and Unpaid Debts**\
