@@ -3,7 +3,7 @@
 https://nytimes.com/2022/12/05/business/dealbook/oil-price-russia-cap.html?searchResultPosition=1
 
 **Can You Tell a Country by Its Corner Kicks?**\
-`Sometimes, a simple play can be a reliable indicator of national identity.`\
+`Soccer may be a global game, but one area remains proudly, defiantly local.`\
 https://nytimes.com/interactive/2022/12/05/sports/world-cup/corner-kicks-world-cup.html?searchResultPosition=2
 
 **TikTok Influencer Is Fined After Hitting a Golf Ball Into the Grand Canyon**\
