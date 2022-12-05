@@ -1,40 +1,40 @@
+**In Jewelry, Mini Meets Maxi**\
+`Tiny earrings and slender chains still are popular, but big and bold statement pieces are stealing some of the spotlight.`\
+https://nytimes.com/2022/12/05/fashion/jewelry-mini-maxi-trends.html?searchResultPosition=1
+
+**Photos: Indonesia’s Mount Semeru Erupts, Displacing Nearly 2,000**\
+`When the volcano erupted late last year, more than 50 people were killed, and hundreds more were injured.`\
+https://nytimes.com/2022/12/05/world/asia/photos-indonesia-volcano-eruption.html?searchResultPosition=2
+
+**Bulgari’s Serpenti Turns 75**\
+`Iterations of the bracelet that coils itself around the wearer’s wrist have turned the popular motif into the Italian jewelry house’s best seller.`\
+https://nytimes.com/2022/12/05/fashion/bulgari-serpenti-75th-anniversary-rome.html?searchResultPosition=3
+
+**Gems Made in the U.S.A.**\
+`While the country isn’t in the same league as global producers, a large variety of beautiful stones are found within its borders.`\
+https://nytimes.com/2022/12/05/fashion/gems-mines-united-states.html?searchResultPosition=4
+
+**Jewelry in 2023: Big and Small**\
+`Statement cuffs and tiny pieces for piercings are among the styles that retailers expect shoppers to gravitate toward in the year ahead.`\
+https://nytimes.com/2022/12/05/fashion/trends/jewelry-trends-net-a-porter-saks-liberty.html?searchResultPosition=5
+
 **A Dublin Jeweler Believes ‘Every Creation Starts With a Stone’**\
 `Sam Lafford calls himself a ‘style chameleon,’ adapting his designs to best display gems he has collected for more than a decade.`\
-https://nytimes.com/2022/12/05/fashion/jewelry-sam-lafford-dublin.html?searchResultPosition=1
+https://nytimes.com/2022/12/05/fashion/jewelry-sam-lafford-dublin.html?searchResultPosition=6
 
 **Wearing Some Childhood Memories**\
 `Fanciful jewelry designs like forget-me-not earrings and a happy face charm are linked to the past.`\
-https://nytimes.com/2022/12/05/fashion/jewelry-inspired-childhood-memories.html?searchResultPosition=2
+https://nytimes.com/2022/12/05/fashion/jewelry-inspired-childhood-memories.html?searchResultPosition=7
 
 **Genderless and Minimalist Jewelry. And That Was in the ’70s.**\
 `The Dinh Van brand is planning to expand in the United States and Asia.`\
-https://nytimes.com/2022/12/05/fashion/jewelry-dinh-van-paris.html?searchResultPosition=3
+https://nytimes.com/2022/12/05/fashion/jewelry-dinh-van-paris.html?searchResultPosition=8
 
 **The Best Science Fiction and Fantasy of 2022**\
 `Pandemics, witchcraft, terrifying A.I.: speculative fiction that stood out in 2022.`\
-https://nytimes.com/2022/12/05/books/review/best-science-fiction-and-fantasy.html?searchResultPosition=4
+https://nytimes.com/2022/12/05/books/review/best-science-fiction-and-fantasy.html?searchResultPosition=9
 
 **Best Theater of 2022**\
 `In a time of renewed awakening, a surprising number of shows smartly reflected those changes in song.`\
-https://nytimes.com/2022/12/05/theater/best-theater-broadway.html?searchResultPosition=5
-
-**Supreme Court to Hear Case of Web Designer Opposed to Same-Sex Marriage**\
-`The justices are likely to settle a question left open in 2018: how to reconcile claims of religious liberty with laws barring discrimination based on sexual orientation.`\
-https://nytimes.com/2022/12/05/us/supreme-court-same-sex-marriage.html?searchResultPosition=6
-
-**Best Comedy of 2022**\
-`Stand-up specials like “Rothaniel” pushed boundaries this year, and Netflix’s financial setbacks could mean that its dominance in comedy is slowing.`\
-https://nytimes.com/2022/12/05/arts/best-comedy-specials-2022.html?searchResultPosition=7
-
-**Covid Protests in China Raise Hope for Solidarity Among Activists Abroad**\
-`People opposing Beijing over issues like Hong Kong, Taiwan or the persecution of Uyghurs see the moment as an opportunity to find common cause.`\
-https://nytimes.com/2022/12/05/world/asia/china-protests-students-abroad.html?searchResultPosition=8
-
-**What Makes Jewelry Valuable? The Gold or the Artistry?**\
-`“People used to scoff at wood or glass or bronze in fine jewelry, but now it’s more accepted,” one gallerist said.`\
-https://nytimes.com/2022/12/05/fashion/jewelry-craftsmanship-louisa-guinness-london.html?searchResultPosition=9
-
-**Helping the Jewelry World to Be More Sustainable**\
-`Christina T. Miller’s agency does everything from sourcing gems to offering video sessions about recycled gold.`\
-https://nytimes.com/2022/12/05/fashion/jewelry-sustainability-christina-t-miller.html?searchResultPosition=10
+https://nytimes.com/2022/12/05/theater/best-theater-broadway.html?searchResultPosition=10
 
