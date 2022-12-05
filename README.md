@@ -7,7 +7,7 @@ https://nytimes.com/2022/12/05/sports/baseball/justin-verlander-mets.html?search
 https://nytimes.com/2022/12/05/us/politics/same-sex-marriage-free-speech-supreme-court.html?searchResultPosition=2
 
 **South Africa’s President Is Unlikely to Face Impeachment**\
-`Executives of the governing party, the African National Congress, said on Monday they would instruct their legislators to reject a report suggesting Cyril Ramaphosa might have broken the law.`\
+`Leaders of the ruling African National Congress said they oppose holding an impeachment hearing for President Cyril Ramaphosa over a scandal involving cash stolen from a couch at his game farm.`\
 https://nytimes.com/2022/12/05/world/africa/south-africa-ramaphosa-anc.html?searchResultPosition=3
 
 **Telescopes Team Up to Forecast an Alien Storm on Titan**\
