@@ -6,7 +6,7 @@ https://nytimes.com/2022/12/05/business/cryptocurrency-investors-ftx-blockfi.htm
 `The buzzy series is one of several featuring the actor, who at 83 is finding some of the most satisfying work of his career. “I still am thrilled by acting,” he said.`\
 https://nytimes.com/2022/12/05/arts/television/f-murray-abraham-white-lotus.html?searchResultPosition=2
 
-**Trump’s Call for Setting the Constitution Aside**\
+**Trump’s Call for ‘Termination’ of the Constitution**\
 `Readers react to Donald Trump’s provocative statement. Also: Mr. Trump and the 14th Amendment; deaths in New York City jails; an organ donation. `\
 https://nytimes.com/2022/12/05/opinion/letters/trump-constitution.html?searchResultPosition=3
 
