@@ -1,40 +1,40 @@
+**How to Spot Flu Symptoms in Children**\
+`This year’s influenza season looks to be particularly bad. We asked doctors what parents need to know about the virus — and need to recognize when things turn serious.`\
+https://nytimes.com/2022/12/05/well/family/flu-symptoms-children.html?searchResultPosition=1
+
 **Paul Pelosi Cheered at Kennedy Honors in Public Return After Attack**\
 `The ceremony honored the rock band U2, the singer Gladys Knight, the actor George Clooney, the composer Tania León and the singer-songwriter Amy Grant.`\
-https://nytimes.com/2022/12/05/arts/music/paul-pelosi-kennedy-center-honors.html?searchResultPosition=1
+https://nytimes.com/2022/12/05/arts/music/paul-pelosi-kennedy-center-honors.html?searchResultPosition=2
 
 **Chinese Abroad: Worried, Wary and Protesting**\
 `Chinese expatriates in the United States are elated but nervous as they watch the protests at home.`\
-https://nytimes.com/2022/12/05/nyregion/new-york-china-protests.html?searchResultPosition=2
+https://nytimes.com/2022/12/05/nyregion/new-york-china-protests.html?searchResultPosition=3
 
 **Diary of a Spelling Bee Fanatic**\
 `Entries for the week of Nov. 28, 2022.`\
-https://nytimes.com/2022/12/05/crosswords/spelling-bee-diary.html?searchResultPosition=3
+https://nytimes.com/2022/12/05/crosswords/spelling-bee-diary.html?searchResultPosition=4
 
 **Behind the Story: The Case That Came Back to Haunt a San Francisco Judge**\
 `After 40 years, Anthony Kline had to confront a case he had forgotten.`\
-https://nytimes.com/2022/12/05/us/san-francisco-judge-anthony-kline.html?searchResultPosition=4
+https://nytimes.com/2022/12/05/us/san-francisco-judge-anthony-kline.html?searchResultPosition=5
 
 **Wordle Wrap-Up: Nov. 28 to Dec. 4**\
 `A recap of the Wordle answers for the past week.`\
-https://nytimes.com/2022/12/05/crosswords/wordle-wrap-up-nov-28-to-dec-4.html?searchResultPosition=5
+https://nytimes.com/2022/12/05/crosswords/wordle-wrap-up-nov-28-to-dec-4.html?searchResultPosition=6
 
 **What to Know About the North Carolina Power Outages**\
 `Two electric substations were damaged by gunfire on Saturday, leaving tens of thousands of customers in the dark. The cost of the damage is probably in the millions, one official said.`\
-https://nytimes.com/2022/12/05/us/north-carolina-power-outage-moore-county.html?searchResultPosition=6
+https://nytimes.com/2022/12/05/us/north-carolina-power-outage-moore-county.html?searchResultPosition=7
 
 **Sudan Military and Pro-Democracy Coalition Sign Peace Deal**\
 `The agreement, which was boycotted by some political forces, comes more than a year after a coup that scuttled the country’s transition to democratic rule.`\
-https://nytimes.com/2022/12/05/world/africa/sudan-military-democracy-coalition-deal.html?searchResultPosition=7
+https://nytimes.com/2022/12/05/world/africa/sudan-military-democracy-coalition-deal.html?searchResultPosition=8
 
 **China Stems Wave of Protest, but Ripples of Resistance Remain**\
 `Students, residents, lawyers and workers are still challenging the country’s Covid-19 restrictions, even though the intensity of the political chants has been dialed back.`\
-https://nytimes.com/2022/12/05/world/asia/china-covid-protests.html?searchResultPosition=8
+https://nytimes.com/2022/12/05/world/asia/china-covid-protests.html?searchResultPosition=9
 
 **Oil Climbs as Western Nations Single Out Russia**\
 `Energy traders pushed crude prices higher on Monday following Europe’s embargo of seaborne Russian crude and a price cap by Group of 7 nations went into effect.`\
-https://nytimes.com/2022/12/05/business/dealbook/oil-price-russia-cap.html?searchResultPosition=9
-
-**Can You Tell a Country by Its Corner Kicks?**\
-`Soccer may be a global game, but one area remains proudly, defiantly local.`\
-https://nytimes.com/interactive/2022/12/05/sports/world-cup/corner-kicks-world-cup.html?searchResultPosition=10
+https://nytimes.com/2022/12/05/business/dealbook/oil-price-russia-cap.html?searchResultPosition=10
 
