@@ -1,5 +1,5 @@
 **Crime Dog to Cooperstown: Fred McGriff Elected to Hall of Fame**\
-`A popular first baseman who had seasons in which he led both leagues in homers, McGriff was elected by a committee that rejected Barry Bonds and Roger Clemens.`\
+`A popular first baseman who had a season in each league as the home run leader, McGriff was elected by a committee that rejected Barry Bonds and Roger Clemens.`\
 https://nytimes.com/2022/12/04/sports/baseball/fred-mcgriff-hall-of-fame.html?searchResultPosition=1
 
 **One Dough, Six Cookies**\
