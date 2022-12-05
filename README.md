@@ -11,7 +11,7 @@ https://nytimes.com/2022/12/05/sports/tennis/nick-bollettieri-dead.html?searchRe
 https://nytimes.com/2022/12/05/technology/slack-ceo-stewart-butterfield-stepping-down.html?searchResultPosition=3
 
 **Video Game Workers at Microsoft and Activision Take Steps to Unionize**\
-`A union is testing Microsoft’s pledge to remain neutral on an organizing bid as the Xbox maker seeks regulatory approval for its Activision acquisition.`\
+`Microsoft has remained neutral during a labor organizing bid as the Xbox maker seeks regulatory approval for its Activision acquisition.`\
 https://nytimes.com/2022/12/05/business/microsoft-activision-game-union.html?searchResultPosition=4
 
 **The Battle Royale Over Apple’s App Store**\
