@@ -8,7 +8,7 @@ https://nytimes.com/2022/12/05/us/politics/chips-act-congress-innovation-hubs.ht
 
 **Georgia Voters Brace for Long Lines and Wet Weather**\
 `Officials in Fulton County acknowledged that there could be significant wait times at election precincts, which they said will be fully staffed.`\
-https://nytimes.com/2022/12/04/us/politics/election-day-wait-weather.html?searchResultPosition=3
+https://nytimes.com/2022/12/04/us/politics/georgia-runoff-election-day-weather.html?searchResultPosition=3
 
 **Ecstasy Gives Way to Despair in a Liberated Ukrainian City**\
 `Kherson has been whipsawed by occupation, liberation and now dread. It’s a lonely place. And cold.`\
