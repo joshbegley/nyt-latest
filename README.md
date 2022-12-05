@@ -1,5 +1,5 @@
 **South Africa’s President Is Unlikely to Face Impeachment**\
-`Executives of the governing party, the African National Congress, said on Monday they would instruct their legislators not to support a report suggesting Cyril Ramaphosa might have broken the law.`\
+`Executives of the governing party, the African National Congress, said on Monday they would instruct their legislators to reject a report suggesting Cyril Ramaphosa might have broken the law.`\
 https://nytimes.com/2022/12/05/world/africa/south-africa-ramaphosa-anc.html?searchResultPosition=1
 
 **Telescopes Team Up to Forecast an Alien Storm on Titan**\
