@@ -1,5 +1,5 @@
 **A Year After Tragedy, Holiday Parade Returns**\
-`Waukesha, Wis., held its annual Christmas parade on Sunday, with attendees celebrating a return to tradition while honoring the residents who died in last year’s attack.`\
+`Waukesha, Wis., held its annual Christmas parade on Sunday, with attendees celebrating a tradition once again while honoring those who died in last year’s attack.`\
 https://nytimes.com/interactive/2022/12/04/us/waukesha-parade-returns.html?searchResultPosition=1
 
 **Bob McGrath, Longtime ‘Sesame Street’ Star, Dies at 90**\
