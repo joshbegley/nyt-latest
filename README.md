@@ -6,13 +6,13 @@ https://nytimes.com/2022/12/05/arts/music/paul-pelosi-kennedy-center-honors.html
 `Chinese expatriates in the United States are elated but nervous as they watch the protests at home.`\
 https://nytimes.com/2022/12/05/nyregion/new-york-china-protests.html?searchResultPosition=2
 
+**Diary of a Spelling Bee Fanatic**\
+`Entries for the week of Nov. 28, 2022.`\
+https://nytimes.com/2022/12/05/crosswords/spelling-bee-diary.html?searchResultPosition=3
+
 **Behind the Story: The Case That Came Back to Haunt a San Francisco Judge**\
 `After 40 years, Anthony Kline had to confront a case he had forgotten.`\
-https://nytimes.com/2022/12/05/us/san-francisco-judge-anthony-kline.html?searchResultPosition=3
-
-**Diary of a Spelling Bee Fanatic**\
-`Entries for the week of Dec. 5, 2022.`\
-https://nytimes.com/2022/12/05/crosswords/spelling-bee-diary.html?searchResultPosition=4
+https://nytimes.com/2022/12/05/us/san-francisco-judge-anthony-kline.html?searchResultPosition=4
 
 **Wordle Wrap-Up: Nov. 28 to Dec. 4**\
 `A recap of the Wordle answers for the past week.`\
