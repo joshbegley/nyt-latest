@@ -15,7 +15,7 @@ https://nytimes.com/slideshow/2022/12/05/realestate/what-you-get-for-2-7-million
 https://nytimes.com/video/us/100000008672677/north-carolina-power-outages.html?searchResultPosition=4
 
 **Putin inspects a bridge linking Russia and Crimea, two months after an explosion partially destroyed it.**\
-`By Matthew Mpoke Bigg and Ivan Nechepurenko`\
+`When the bridge opened in 2018, it was a powerful symbol of the connection the Kremlin was attempting to forge between Russia and Crimea, a Ukrainian region illegally annexed by Moscow.`\
 https://nytimes.com/2022/12/05/world/europe/putin-crimea-bridge.html?searchResultPosition=5
 
 **Ordinary Investors Who Jumped Into Crypto Are Saying: Now What?**\
