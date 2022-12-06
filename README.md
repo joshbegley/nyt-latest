@@ -20,7 +20,7 @@ https://nytimes.com/2022/12/06/dining/the-hotel-lobby-restaurant-is-back.html?se
 
 **Morgan Stanley Cuts 2% of Global Work Force as Deal-Making Slows**\
 `The Wall Street firm had paused layoffs during the pandemic, as deal activity spiked industrywide. The layoffs will affect workers across all divisions.`\
-https://nytimes.com/2022/12/06/business/morgan-stanley-cuts-2-of-global-workforce.html?searchResultPosition=6
+https://nytimes.com/2022/12/06/business/morgan-stanley-layoffs.html?searchResultPosition=6
 
 **A Trans Icon of the 20th Century Revived by Trans Stars of the 21st Century**\
 `The documentary “Framing Agnes” uses transcripts to tell the story of an anonymous woman who became the subject of a series of landmark interviews.`\
