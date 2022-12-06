@@ -1,6 +1,6 @@
 **Governor Calls Attack on Power Stations a ‘New Level of Threat’**\
 `Gov. Roy Cooper, of North Carolina, said that whoever carried out the attack “knew exactly what they were doing.”`\
-https://nytimes.com/2022/12/05/us/governor-calls-attack-on-power-stations-a-new-level-of-threat.html?searchResultPosition=1
+https://nytimes.com/2022/12/05/us/north-carolina-power-station-attack.html?searchResultPosition=1
 
 **Michael Avenatti Gets 14-Year Sentence for Stealing Millions From Clients**\
 `The former lawyer for Stormy Daniels was found guilty of stealing money from four clients and of obstructing I.R.S. efforts to collect more than $3 million in unpaid payroll taxes.`\
