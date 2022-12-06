@@ -20,7 +20,7 @@ https://nytimes.com/2022/12/06/books/review/best-crime-fiction-2022.html?searchR
 
 **The Best Poetry of 2022**\
 `Our columnist selects the books that have stuck with her this year.`\
-https://nytimes.com/2022/12/06/books/review/the-best-poetry-of-2022.html?searchResultPosition=6
+https://nytimes.com/2022/12/06/books/review/best-poetry-2022.html?searchResultPosition=6
 
 **Best Movies of 2022**\
 `Amid endless agonizing over the State of Cinema, the actual releases proved a bounty for film lovers, whether fans of the art house or the multiplex.`\
