@@ -4,7 +4,7 @@ https://nytimes.com/2022/12/06/nyregion/judge-in-trump-company-trial-knew-how-to
 
 **Natural History Museum Names College Leader as New Chief**\
 `Sean M. Decatur, the president of Kenyon College and a biophysical chemist, will become the museum’s first Black leader when he succeeds Ellen V. Futter.`\
-https://nytimes.com/2022/12/06/arts/design/natural-history-museum-first-black-chief-decatur.html?searchResultPosition=2
+https://nytimes.com/2022/12/06/arts/design/natural-history-museum-sean-decatur.html?searchResultPosition=2
 
 **A Real Tale of Spy vs. Spy, at Sea in the American Civil War**\
 `In “The Lion and the Fox,” Alexander Rose tells the story of a pivotal naval conflict.`\
