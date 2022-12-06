@@ -15,7 +15,7 @@ https://nytimes.com/2022/12/06/world/europe/ukraine-drone-strikes-russian-bases.
 https://nytimes.com/2022/12/06/opinion/military-defense-spending.html?searchResultPosition=4
 
 **How Biden Can Help Save the Middle East**\
-`The fate of the Jordan River can tell us a lot about the future of Israeli-Arab relations.`\
+`The fate of the Jordan River may tell us a lot about the future of Israeli-Arab relations.`\
 https://nytimes.com/2022/12/06/opinion/how-biden-can-help-save-the-middle-east.html?searchResultPosition=5
 
 **Will Georgia Deal Trump Another Political Blow?**\
