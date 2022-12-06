@@ -1,6 +1,6 @@
 **Five State Parks to Visit This Winter**\
 `See elephant seals, visit a gold rush town and more.`\
-https://nytimes.com/2022/12/06/us/five-state-parks-to-visit-this-winter.html?searchResultPosition=1
+https://nytimes.com/2022/12/06/us/ca-state-parks-to-visit.html?searchResultPosition=1
 
 **China’s Xi to Visit Saudi Arabia for Regional Summits**\
 `Xi Jinping is expected to sign a flurry of contracts with the Saudis and other Gulf States, highlighting Beijing’s growing clout in the region when Washington has pulled away.`\
