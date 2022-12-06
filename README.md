@@ -8,7 +8,7 @@ https://nytimes.com/2022/12/06/opinion/broadway-loud.html?searchResultPosition=2
 
 **Restaurant Review: The Loveliness of a Lunch Counter With No Fancy Ideas**\
 `S & P Lunch sits in the space long occupied by Eisenberg’s Sandwich Shop, and shares its quirky, deadpan spirit.`\
-https://nytimes.com/2022/12/06/dining/restaurant-review-s-p-lunch-former-eisenberg-sandwich-space.html?searchResultPosition=3
+https://nytimes.com/2022/12/06/dining/s-p-lunch-eisenbergs.html?searchResultPosition=3
 
 **Tiny Love Stories: ‘Her Dreams of Infidelity’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
