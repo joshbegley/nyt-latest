@@ -26,7 +26,7 @@ https://nytimes.com/2022/12/06/nyregion/why-the-owners-of-the-nets-are-funding-t
 `An earlier version of the bill was shelved in 2019 after tens of thousands of young people protested in the streets, arguing that the law threatened their civil liberties.`\
 https://nytimes.com/2022/12/06/world/asia/indonesia-sex-gay-rights.html?searchResultPosition=7
 
-**A Russian Journalist’s Reference to Russian Troops Causes Fury and Soul Searching.**\
+**A Russian Journalist’s Reference to Russian Troops Causes Fury and Soul Searching**\
 `An unscripted comment by a television host has plunged a major independent Russian media outlet in crisis, and put focus on the public role of Russian exiles in their country’s war.`\
 https://nytimes.com/2022/12/06/world/europe/ukraine-russia-war-latvia-tv-rain-journalism.html?searchResultPosition=8
 
