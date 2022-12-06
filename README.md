@@ -11,7 +11,7 @@ https://nytimes.com/2022/12/05/us/politics/michael-avenatti-tax-fraud-sentence.h
 https://nytimes.com/2022/12/05/opinion/trump-evangelical-leaders.html?searchResultPosition=3
 
 **Warnock Claims Momentum in Georgia, as Walker Banks on Election Day Turnout**\
-`On the eve of Georgia’s Senate runoff, Raphael Warnock, a Democrat, warned his supporters about being over confident. Herschel Walker urged Republicans to flood the polls on Tuesday.`\
+`On the eve of Georgia’s Senate runoff, Raphael Warnock, a Democrat, warned his supporters about being overconfident. Herschel Walker urged Republicans to flood the polls on Tuesday.`\
 https://nytimes.com/2022/12/05/us/politics/georgia-senate-runoff-election-day-turnout.html?searchResultPosition=4
 
 **‘Torso Killer’ Admits to ’68 Strangling and 4 More Cold-Case Murders**\
