@@ -1,4 +1,4 @@
-**Georgia’s Senate race again draws astronomical spending: ‘There’s never been anything like it.’**\
+**Georgia Senate Race Again Draws Huge Spending: ‘There’s Never Been Anything Like It’**\
 `An astonishing $1.4 billion has been spent on just four races in the state since the beginning of 2020, according to a New York Times analysis.`\
 https://nytimes.com/2022/12/06/us/politics/georgia-runoff-election-cost-funding.html?searchResultPosition=1
 
