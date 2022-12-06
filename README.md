@@ -6,7 +6,7 @@ https://nytimes.com/2022/12/06/arts/dance/aaron-marcellus-michelle-dorrance.html
 `The city’s Pandemic Response Lab, which provided mass testing, is shutting down due in part to the prevalence of at-home tests and a reduction in business.`\
 https://nytimes.com/2022/12/06/nyregion/nyc-covid-testing-response.html?searchResultPosition=2
 
-**Cristiano Ronaldo Not in the Starting Lineup for Portugal.**\
+**Cristiano Ronaldo Benched in Portugal’s World Cup Game Against Switzerland**\
 `After Ronaldo’s petulant reaction to being substituted against South Korea, Portugal’s coach opted to bench him against Switzerland.`\
 https://nytimes.com/2022/12/06/sports/soccer/the-lineups-are-out-ronaldo-is-not-in-the-starting-lineup-for-portugal.html?searchResultPosition=3
 
