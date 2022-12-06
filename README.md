@@ -1,20 +1,24 @@
+**Mayor Eric Adams, Fined For Rats on His Property, Takes on City Hall**\
+`Mr. Adams, a noted rat antagonist who once endorsed a special rat-drowning device, on Tuesday contested a summons and fine over an infestation at a rental property he owns.`\
+https://nytimes.com/2022/12/06/nyregion/adams-rats-summons-apartment.html?searchResultPosition=1
+
 **U.S. Court Dismisses Suit Against Saudi Ruler in Khashoggi Killing**\
 `The court followed the Biden administration’s guidance that Crown Prince Mohammed bin Salman has immunity as a head of government in a case over the death of Jamal Khashoggi.`\
-https://nytimes.com/2022/12/06/us/politics/saudi-mbs-khashoggi-biden.html?searchResultPosition=1
+https://nytimes.com/2022/12/06/us/politics/saudi-mbs-khashoggi-biden.html?searchResultPosition=2
 
 **Ukraine Strikes More Boldly, Seeing Little Room for Russia to Escalate**\
 `The third apparent drone attack in two days on a Russian air base indicates a new phase of the war for Ukraine as it develops longer-range weapons.`\
-https://nytimes.com/2022/12/06/world/europe/ukraine-drone-strikes-russian-bases.html?searchResultPosition=2
+https://nytimes.com/2022/12/06/world/europe/ukraine-drone-strikes-russian-bases.html?searchResultPosition=3
 
 **Are We Sleepwalking Through a ‘Decisive Decade’?**\
 `Americans can no longer take their traditional military advantages for granted.`\
-https://nytimes.com/2022/12/06/opinion/military-defense-spending.html?searchResultPosition=3
+https://nytimes.com/2022/12/06/opinion/military-defense-spending.html?searchResultPosition=4
 
 **How Biden Can Help Save the Middle East**\
 `The fate of the Jordan River can tell us a lot about the future of Israeli-Arab relations.`\
-https://nytimes.com/2022/12/06/opinion/how-biden-can-help-save-the-middle-east.html?searchResultPosition=4
+https://nytimes.com/2022/12/06/opinion/how-biden-can-help-save-the-middle-east.html?searchResultPosition=5
 
 **Will Georgia Deal Trump Another Political Blow?**\
 `The former president faces serious legal jeopardy. A defeat for Herschel Walker would hardly help him with Republican voters.`\
-https://nytimes.com/2022/12/06/us/politics/trump-georgia-runoff.html?searchResultPosition=5
+https://nytimes.com/2022/12/06/us/politics/trump-georgia-runoff.html?searchResultPosition=6
 
