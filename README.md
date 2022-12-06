@@ -1,6 +1,6 @@
 **Judge in Trump Company Trial Knew How to Read the Numbers**\
 `Juan M. Merchan, who oversaw the tax fraud case against Donald J. Trump’s business, was an auditor at a real estate development company decades ago.`\
-https://nytimes.com/2022/12/06/nyregion/judge-in-trump-company-trial-knew-how-to-read-the-numbers.html?searchResultPosition=1
+https://nytimes.com/2022/12/06/nyregion/trump-org-trial-judge.html?searchResultPosition=1
 
 **Natural History Museum Names College Leader as New Chief**\
 `Sean M. Decatur, the president of Kenyon College and a biophysical chemist, will become the museum’s first Black leader when he succeeds Ellen V. Futter.`\
