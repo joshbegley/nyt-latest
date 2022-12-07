@@ -1,6 +1,6 @@
 **Another Path for Central American Migrants: Staying Home**\
 `The story of Arnoldo and Acceso offers a new model for empowering would-be migrant farmers`\
-https://nytimes.com/paidpost/2022-11-18/.html?searchResultPosition=1
+https://nytimes.com/paidpost/2022/acceso-canada-q4/another-path.html?searchResultPosition=1
 
 **The sounds of war mark time in one battered town.**\
 `In Bakhmut, in eastern Ukraine, rumbles and blasts are just background noise, until they aren’t.`\
