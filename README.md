@@ -1,40 +1,40 @@
+**When Black Girls Dare to Dream**\
+`The Nigerian filmmaker Mo Abudu reflects on how a childhood without onscreen role models drove her to change the future of African storytelling.`\
+https://nytimes.com/2022/12/07/special-series/nigeria-television-movies-mo-abudu.html?searchResultPosition=1
+
+**A Failed Romance, Long Lockdowns and a Friend’s Suicide in India**\
+`During the height of the Covid pandemic, a friend was a precious lifeline, quick to help and hug, while struggling to reconcile himself to a relationship’s end.`\
+https://nytimes.com/2022/12/07/world/asia/india-suicide-social-conventions.html?searchResultPosition=2
+
 **Lasik Patients Should Be Warned of Complications, F.D.A. Draft Says**\
 `Draft recommendations by the agency describe dry eyes, visual disturbances and other side effects of the procedure. Surgeons say the benefits are being ignored.`\
-https://nytimes.com/2022/12/07/health/lasik-injuries-fda.html?searchResultPosition=1
+https://nytimes.com/2022/12/07/health/lasik-injuries-fda.html?searchResultPosition=3
 
 **Aaron Judge Returning to Yankees on $360 Million Deal**\
 `Judge, who hit 62 home runs in 2022 and won the A.L.’s Most Valuable Player Award, will commit to nine more seasons with the club that drafted him.`\
-https://nytimes.com/2022/12/07/sports/baseball/aaron-judge-yankees.html?searchResultPosition=2
+https://nytimes.com/2022/12/07/sports/baseball/aaron-judge-yankees.html?searchResultPosition=4
 
 **A Look at What California Has Done So Far About Reparations**\
 `Gov. Gavin Newsom signed a bill in 2020 to create a statewide panel to study reparations for Black Californians.`\
-https://nytimes.com/2022/12/07/us/california-reparations.html?searchResultPosition=3
+https://nytimes.com/2022/12/07/us/california-reparations.html?searchResultPosition=5
 
 **How Can I Stop Children From Bringing Toy Guns to the Playground?**\
 `A reader is frustrated by her children’s gravitation toward the toy guns a family brings to play with.`\
-https://nytimes.com/2022/12/07/style/toy-guns-playground-safety.html?searchResultPosition=4
+https://nytimes.com/2022/12/07/style/toy-guns-playground-safety.html?searchResultPosition=6
 
 **Tell Us: What Book Was Your Favorite Read of 2022?**\
 `We want to know what books, new or old, you read and loved this year.`\
-https://nytimes.com/2022/12/07/books/reader-favorite-book-recommendation-2022.html?searchResultPosition=5
+https://nytimes.com/2022/12/07/books/reader-favorite-book-recommendation-2022.html?searchResultPosition=7
 
 **Zelensky is named Time’s person of the year.**\
 `Ukraine’s president was propelled onto the world stage with Russia’s invasion of his country.`\
-https://nytimes.com/2022/12/07/world/europe/zelensky-ukraine-time-person-of-the-year.html?searchResultPosition=6
+https://nytimes.com/2022/12/07/world/europe/zelensky-ukraine-time-person-of-the-year.html?searchResultPosition=8
 
 **An Activist Investor Takes on BlackRock Over E.S.G.**\
 `A hedge fund sees BlackRock’s embrace of E.S.G. principles as a distraction, and it wants the money-management giant’s C.E.O., Laurence Fink, to step down.`\
-https://nytimes.com/2022/12/07/business/dealbook/blackrock-esg-activist-bluebell.html?searchResultPosition=7
+https://nytimes.com/2022/12/07/business/dealbook/blackrock-esg-activist-bluebell.html?searchResultPosition=9
 
 **What China’s ‘Zero Covid’ Policy Has Looked Like**\
 `Public unrest erupted across the country after years of disruptive restrictions. These photographs give a glimpse of life under those measures.`\
-https://nytimes.com/2022/12/07/world/asia/china-zero-covid-pictures.html?searchResultPosition=8
-
-**National Mall Commissions 6 Artists for Monument Exhibition**\
-`Themes explored in next summer’s temporary exhibition may include diaspora, migration, displacement and civic gathering.`\
-https://nytimes.com/2022/12/07/arts/design/national-mall-exhibition-pulling-together.html?searchResultPosition=9
-
-**Three Looks That Got Our Attention at the People’s Choice Awards**\
-`Shania Twain, Olivia Wilde and Lizzo wore some of the most showstopping looks to the ceremony Tuesday night.`\
-https://nytimes.com/2022/12/07/style/fashion-peoples-choice-awards-shania-twain.html?searchResultPosition=10
+https://nytimes.com/2022/12/07/world/asia/china-zero-covid-pictures.html?searchResultPosition=10
 
