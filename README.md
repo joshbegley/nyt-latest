@@ -14,7 +14,7 @@ https://nytimes.com/2022/12/07/nyregion/andriy-derkash-money-laundering-ukraine.
 `Images generated with Lensa AI are all over social media, but at what cost?`\
 https://nytimes.com/2022/12/07/style/lensa-ai-selfies.html?searchResultPosition=4
 
-**FTX Founder Sam Bankman-Fried Faces Market Manipulation Inquiry**\
+**FTX Founder Sam Bankman-Fried Is Said to Face Market Manipulation Inquiry**\
 `Federal prosecutors are investigating whether Sam Bankman-Fried and his hedge fund orchestrated trades in a way that led to the collapse of two cryptocurrencies in May.`\
 https://nytimes.com/2022/12/07/business/ftx-sbf-crypto-market-investigation.html?searchResultPosition=5
 
