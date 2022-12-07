@@ -1,4 +1,4 @@
-**Democrats Didn’t Just Win Georgia, They Secured a Firmer Grip on the Senate**\
+**Democrats Didn’t Just Win Georgia. They Secured a Firmer Grip on the Senate.**\
 `Senator Raphael Warnock’s victory provides a real working majority for Democrats after two years of a tenuous 50-50 split.`\
 https://nytimes.com/2022/12/06/us/democrats-georgia-senate-majority.html?searchResultPosition=1
 
