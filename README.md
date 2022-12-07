@@ -1,40 +1,40 @@
+**Wait! Wait! Georgia’s Over?**\
+`Hey, we survived.`\
+https://nytimes.com/2022/12/07/opinion/georgia-election-walker-warnock.html?searchResultPosition=1
+
+**Emhoff Emerges as Face of White House Fight Against Antisemitism**\
+`Doug Emhoff, the husband of Vice President Kamala Harris, has become a forceful voice against what he called an “epidemic of hate” against the Jewish community.`\
+https://nytimes.com/2022/12/07/us/politics/doug-emhoff-antisemitism.html?searchResultPosition=2
+
+**Is Aaron Judge the Next Yankees Captain?**\
+`With a new contract in place, the next step for Judge may be following in the footsteps of Lou Gehrig, Thurman Munson, Derek Jeter and others as the team’s captain.`\
+https://nytimes.com/2022/12/07/sports/baseball/aaron-judge-captain-yankees.html?searchResultPosition=3
+
+**‘Guillermo del Toro’s Pinocchio’ Review: Puppets and Power**\
+`This quirky classic has been made all the stranger by the decision to turn it into an ill-conceived metaphor about fascism.`\
+https://nytimes.com/2022/12/07/movies/guillermo-del-toros-pinocchio-review-puppets-and-power.html?searchResultPosition=4
+
 **As Covid Cases Rise in a Weary Los Angeles, So Does Apathy**\
 `Hospitalizations and Covid cases have increased sharply in Los Angeles since Thanksgiving. But fear — and masks — are missing this time around.`\
-https://nytimes.com/2022/12/07/us/as-covid-cases-rise-in-a-weary-los-angeles-so-does-apathy.html?searchResultPosition=1
+https://nytimes.com/2022/12/07/us/as-covid-cases-rise-in-a-weary-los-angeles-so-does-apathy.html?searchResultPosition=5
 
 **After Georgia Loss, G.O.P. Stares Down Its Trump Dilemma**\
 `Republicans from Georgia to Washington traded blame for their bruising defeats in the Senate races. Much of it landed on Donald Trump.`\
-https://nytimes.com/2022/12/07/us/politics/georgia-senate-republicans-trump.html?searchResultPosition=2
+https://nytimes.com/2022/12/07/us/politics/georgia-senate-republicans-trump.html?searchResultPosition=6
 
 **Putin Warns Russians to Prepare for Protracted Ukraine War**\
 `Vladimir Putin appeared to acknowledge that subduing Russia’s neighbor was taking longer than expected, but said there was no need for another draft now.`\
-https://nytimes.com/2022/12/07/world/europe/putin-russia-ukraine-war.html?searchResultPosition=3
+https://nytimes.com/2022/12/07/world/europe/putin-russia-ukraine-war.html?searchResultPosition=7
 
 **Xi Loosens Up. It Won’t Be Enough.**\
 `Brave Chinese protesters’ broader yearning for rights can no more be extinguished than a virus.`\
-https://nytimes.com/2022/12/07/opinion/xi-loosens-up-it-wont-be-enough.html?searchResultPosition=4
+https://nytimes.com/2022/12/07/opinion/xi-loosens-up-it-wont-be-enough.html?searchResultPosition=8
 
 **Where Trump Stands in Early (Very Early) 2024 Polls**\
 `The former president’s support has not collapsed. But Republican voters appear strikingly open to another Florida-based politician.`\
-https://nytimes.com/2022/12/07/us/politics/trump-2024-republicans-desantis.html?searchResultPosition=5
+https://nytimes.com/2022/12/07/us/politics/trump-2024-republicans-desantis.html?searchResultPosition=9
 
 **Jule Campbell, 96, Dies; Architect of the Sports Illustrated Swimsuit Issue**\
 `Be it objectification or celebration, the annual rite she created earned millions for the magazine and helped usher in the supermodel era.`\
-https://nytimes.com/2022/12/07/style/jule-campbell-dead.html?searchResultPosition=6
-
-**‘The Whale’ Review: Body Issues**\
-`Brendan Fraser plays an obese writing instructor reckoning with grief and regret in Darren Aronofsky’s latest film.`\
-https://nytimes.com/2022/12/07/movies/the-whale-review.html?searchResultPosition=7
-
-**A Return From Scandal, but With Little Said About the Scandal**\
-`When Deshaun Watson’s suspension ended, the N.F.L.’s broadcast partners focused mainly on his return to the field, not on the behavior a hearing officer had deemed “predatory,” or on the women who accused him.`\
-https://nytimes.com/2022/12/07/sports/football/nfl-deshaun-watson.html?searchResultPosition=8
-
-**Cyberattack Takes Down the Met Opera’s Website and Box Office**\
-`The opera company has been unable to sell tickets for more than 30 hours. But the shows went on.`\
-https://nytimes.com/2022/12/07/arts/met-opera-cyberattack-website.html?searchResultPosition=9
-
-**Your Wednesday Evening Briefing**\
-`Here’s what you need to know at the end of the day.`\
-https://nytimes.com/2022/12/07/briefing/china-zero-covid-peru-president-aaron-judge.html?searchResultPosition=10
+https://nytimes.com/2022/12/07/style/jule-campbell-dead.html?searchResultPosition=10
 
