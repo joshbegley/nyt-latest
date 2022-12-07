@@ -1,6 +1,6 @@
 **Indiana Sues TikTok for Security and Child Safety Violations**\
 `The lawsuits are the first by an American state against TikTok, which is owned by the Chinese company ByteDance, in a sign of mounting legal pressure.`\
-https://nytimes.com/2022/12/07/technology/indiana-sues-tiktok-for-security-and-child-safety-violations.html?searchResultPosition=1
+https://nytimes.com/2022/12/07/technology/tiktok-lawsuit.html?searchResultPosition=1
 
 **Germany Arrests More Than Two Dozen Over Alleged Coup Plot**\
 `Twenty-five people suspected of belonging to a far-right domestic terrorist group were arrested across the country for allegedly planning to overthrow the government and install a prince as the new head of state.`\
