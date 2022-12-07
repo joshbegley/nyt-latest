@@ -3,7 +3,7 @@
 https://nytimes.com/2022/12/07/world/asia/china-zero-covid-changes.html?searchResultPosition=1
 
 **Germany Arrests Dozens Suspected of Planning to Overthrow Government**\
-`Many the police detained had military training and were believed to belong to a recently formed group that operated on the conviction that the country was ruled by the so-called deep state.`\
+`Many the police detained had military training and were believed to belong to a recently formed group that operated on the conviction that the country was ruled by a so-called deep state.`\
 https://nytimes.com/2022/12/07/world/europe/germany-coup-arrests.html?searchResultPosition=2
 
 **El Salvador’s Leader Has Eroded Rights to Tackle Violence. Is It Working?**\
