@@ -18,8 +18,8 @@ https://nytimes.com/2022/12/06/nyregion/trump-org-verdict-guilty.html?searchResu
 `Long before the current body-positivity movement, Ms. Alley made people think about fatness on TV, often at her own expense.`\
 https://nytimes.com/2022/12/06/style/kirstie-alley-body.html?searchResultPosition=5
 
-**Clash Over Vaccine Mandate for Troops Snarls Annual Defense Bill**\
-`An $857 billion military policy measure is hung up in a dispute over whether to roll back a mandate that troops receive a coronavirus vaccination.`\
+**Congress Poised to Repeal Covid Vaccine Mandate for Troops**\
+`Republicans and Democrats agreed to roll back the requirement as part of an $857 billion military policy measure, acting over the Biden administration’s objections.`\
 https://nytimes.com/2022/12/06/us/politics/vaccine-mandate-defense-bill.html?searchResultPosition=6
 
 **Mayor Eric Adams, Fined For Rats on His Property, Takes on City Hall**\
