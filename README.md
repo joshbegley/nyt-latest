@@ -1,40 +1,40 @@
+**Indiana Sues TikTok for Security and Child Safety Violations**\
+`The lawsuits are the first by an American state against TikTok, which is owned by the Chinese company ByteDance, in a sign of mounting legal pressure.`\
+https://nytimes.com/2022/12/07/technology/indiana-sues-tiktok-for-security-and-child-safety-violations.html?searchResultPosition=1
+
 **Germany Arrests More Than Two Dozen Over Alleged Coup Plot**\
 `Twenty-five people suspected of belonging to a far-right domestic terrorist group were arrested across the country for allegedly planning to overthrow the government and install a prince as the new head of state.`\
-https://nytimes.com/video/world/europe/100000008677381/germany-coup-police-raids.html?searchResultPosition=1
+https://nytimes.com/video/world/europe/100000008677381/germany-coup-police-raids.html?searchResultPosition=2
 
 **When a Workplace Affair Becomes Public**\
 `It can be complicated to navigate, particularly if it involves people in the public eye.`\
-https://nytimes.com/2022/12/07/style/workplace-romance.html?searchResultPosition=2
+https://nytimes.com/2022/12/07/style/workplace-romance.html?searchResultPosition=3
 
 **An American Icon Tries to Find Its Way**\
 `The breakup of General Electric is a story of hubris and a humbling.`\
-https://nytimes.com/2022/12/07/opinion/general-electric-breakup-downfall.html?searchResultPosition=3
+https://nytimes.com/2022/12/07/opinion/general-electric-breakup-downfall.html?searchResultPosition=4
 
 **Turner Prize Goes to Veronica Ryan, a Sculptor of Quiet Moments**\
 `The New York-based artist who exhibited at this year’s Whitney Biennial won Britain’s major art award on Wednesday.`\
-https://nytimes.com/2022/12/07/arts/design/turner-prize-winner.html?searchResultPosition=4
+https://nytimes.com/2022/12/07/arts/design/turner-prize-winner.html?searchResultPosition=5
 
 **What’s In Our Queue? ‘Andor’ and More**\
 `I am an editing resident on The New York Times Culture Desk. Here are five things I have been enjoying.`\
-https://nytimes.com/interactive/2022/12/07/arts/editors-recommendations-andor.html?searchResultPosition=5
+https://nytimes.com/interactive/2022/12/07/arts/editors-recommendations-andor.html?searchResultPosition=6
 
 **A Cast and Crew’s Commitment to Making ‘Devotion’**\
 `The biographical Korean War drama is more about the bonds of friendship than war itself. The film’s director and stars share how they brought the story to life.`\
-https://nytimes.com/2022/12/07/movies/devotion-behind-the-scenes.html?searchResultPosition=6
+https://nytimes.com/2022/12/07/movies/devotion-behind-the-scenes.html?searchResultPosition=7
 
 **George Newall, a Creator of ‘Schoolhouse Rock,’ Dies at 88**\
 `He was the last surviving member of the team that produced the educational cartoon for ABC-TV that informed Generation X.`\
-https://nytimes.com/2022/12/07/arts/television/george-newall-dead.html?searchResultPosition=7
+https://nytimes.com/2022/12/07/arts/television/george-newall-dead.html?searchResultPosition=8
 
 **What Do We Know About Prince Heinrich XIII of Reuss?**\
 `Descended from an ancient aristocratic family, Heinrich now stands accused of being a leader of a far-right plot to overthrow the German government.`\
-https://nytimes.com/2022/12/07/world/europe/prince-heinrich-reuss-germany.html?searchResultPosition=8
+https://nytimes.com/2022/12/07/world/europe/prince-heinrich-reuss-germany.html?searchResultPosition=9
 
 **What It’s Like to Perform at the Met With No Opera Experience**\
 `Some of the company’s productions, like the recently opened “Aida,” require over a hundred additional actors. On opening night, I joined them.`\
-https://nytimes.com/2022/12/07/arts/music/met-opera-aida-actors.html?searchResultPosition=9
-
-**Can Movie Theaters and Netflix Coexist? Rian Johnson Makes His Case.**\
-`The “Glass Onion” director explains why he sold the “Knives Out” franchise to a streamer, and how he feels about its theatrical test: “I want more.”`\
-https://nytimes.com/2022/12/07/movies/rian-johnson-glass-onion-knives-out-mystery.html?searchResultPosition=10
+https://nytimes.com/2022/12/07/arts/music/met-opera-aida-actors.html?searchResultPosition=10
 
