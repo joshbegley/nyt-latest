@@ -1,6 +1,6 @@
 **Sundance Unveils an In-Person Lineup Filled With Stories of Anxiety and Urgency**\
 `Veterans like Nicole Holofcener and Ira Sachs and first-timer filmmakers like Randall Park made the cut, as did films about Ukraine.`\
-https://nytimes.com/2022/12/07/movies/sundance-unveils-an-in-person-lineup-filled-with-stories-of-anxiety-and-urgency.html?searchResultPosition=1
+https://nytimes.com/2022/12/07/movies/sundance-film-festival-lineup-2023.html?searchResultPosition=1
 
 **Five Things You Need to Know About the Supreme Court Case That Could Radically Change Elections**\
 `The Supreme Court is hearing arguments today on a legal theory that holds that state courts cannot review their legislatures’ rules for federal elections, even when the rules violate the state constitution.`\
