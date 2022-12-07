@@ -1,6 +1,6 @@
 **What Has Changed About China’s ‘Zero Covid’ Policy**\
 `The Chinese government ordered officials to cut back on mass testing and hair-trigger regional lockdowns, in a pivot from stringent pandemic rules.`\
-https://nytimes.com/2022/12/07/business/china-zero-covid-changes.html?searchResultPosition=1
+https://nytimes.com/2022/12/07/world/asia/china-zero-covid-changes.html?searchResultPosition=1
 
 **Germany Arrests Dozens Suspected of Planning to Overthrow Government**\
 `Many the police detained had military training and were believed to belong to a recently formed group that operated on the conviction that the country was ruled by the so-called deep state.`\
