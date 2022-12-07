@@ -1,5 +1,5 @@
 **The Ankylosaur’s Club-Tail Wasn’t Only Swinging at T. Rex**\
-`A dinosaur named for a demon dog in “Ghostbusters” had a sledgehammer attached to its rear. A new study found it was could both shatter shins and woo potential mates.`\
+`A dinosaur named for a demon dog in “Ghostbusters” had a sledgehammer attached to its rear. A new study found it could both shatter shins and woo potential mates.`\
 https://nytimes.com/2022/12/06/science/ankylosaur-club-tail-dinosaur.html?searchResultPosition=1
 
 **‘Your Own Personal Exegesis’ Review: Blessed Be the Young and Lustful**\
