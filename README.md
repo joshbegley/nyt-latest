@@ -1,5 +1,5 @@
 **Peru’s President, Facing Impeachment, Says He Will Dissolve Congress**\
-`The president, Pedro Castillo, imposed a national curfew and said an emergency government would rule by decree. Critics  said the president was staging a coup.`\
+`The president, Pedro Castillo, imposed a national curfew and said an emergency government would rule by decree. Critics said the president was staging a coup.`\
 https://nytimes.com/2022/12/07/world/americas/peru-pedro-castillo-coup.html?searchResultPosition=1
 
 **Hearty Beans, Tender Lamb and a Menu to Remember**\
