@@ -2,8 +2,8 @@
 `The “Glass Onion” director explains why he sold the “Knives Out” franchise to a streamer, and how he feels about its theatrical test: “I want more.”`\
 https://nytimes.com/2022/12/07/movies/rian-johnson-glass-onion-knives-out-mystery.html?searchResultPosition=1
 
-**Accuser Blames Letitia James for Protecting Top Aide From Fallout**\
-`The woman said that her sexual harassment allegation against one of the attorney general’s closest aides was handled differently than similar ones lodged against former Gov. Andrew Cuomo.`\
+**Letitia James Accused of Protecting Top Aide From Harassment Allegations**\
+`Sofia Quintanar said that her sexual harassment allegations against the aide were handled differently than similar ones lodged against former Gov. Andrew Cuomo.`\
 https://nytimes.com/2022/12/07/nyregion/letitia-james-victim-khan.html?searchResultPosition=2
 
 **Obama and Bob Iger Speak at a Sandy Hook Benefit in Manhattan**\
