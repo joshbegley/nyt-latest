@@ -4,7 +4,7 @@ https://nytimes.com/video/us/elections/100000008675794/warnock-speech-georgia-ru
 
 **Warnock Defeats Walker in Georgia’s Senate Runoff**\
 `In the final battle of the 2022 midterms, Senator Raphael Warnock dealt another blow to Donald Trump, whose handpicked candidate, Herschel Walker, was outspent and outmatched.`\
-https://nytimes.com/2022/12/06/us/politics/raphael-warnock-georgia-senator.html?searchResultPosition=2
+https://nytimes.com/live/2022/12/06/us/warnock-walker-georgia-senate-runoff/raphael-warnock-georgia-senator?searchResultPosition=2
 
 **Juul Agrees to Settle Thousands of Vaping Lawsuits**\
 `The deal is the latest in the company’s efforts to resolve litigation over its marketing of products that some contend fueled the teenage vaping crisis.`\
