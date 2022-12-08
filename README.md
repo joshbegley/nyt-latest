@@ -1,6 +1,6 @@
-**Griner Is Being Taken to an Army Hospital in San Antonio**\
+**Brittney Griner Is Being Taken to an Army Hospital in San Antonio**\
 `The hospital treats both civilians and military personnel who have survived torture or other trauma.`\
-https://nytimes.com/2022/12/08/world/europe/griner-army-hospital-san-antonio.html?searchResultPosition=1
+https://nytimes.com/2022/12/08/world/europe/brittney-griner-brooke-army-medical-center.html?searchResultPosition=1
 
 **Key Partner in Global Covid Vaccine Effort Will End Support for Middle-Income Nations**\
 `Many of the poorest countries will continue to get free Covid shots, but global demand for them has plummeted, driving a shift away from the goal of broad coverage.`\
