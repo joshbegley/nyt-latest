@@ -15,7 +15,7 @@ https://nytimes.com/2022/12/08/us/politics/biden-union-pensions.html?searchResul
 https://nytimes.com/2022/12/08/books/review/11-new-books-we-recommend-this-week.html?searchResultPosition=4
 
 **Who Is Dina Boluarte, the New President of Peru?**\
-`Ms. Boluarte, the country’s first woman president, ascended to power suddenly, after her predecessor was arrested. She takes power as corruption and discontent test democracies across Latin America.`\
+`Ms. Boluarte, the country’s first woman president, ascended to power suddenly, after her predecessor was arrested. She takes office as corruption and discontent test democracies across Latin America.`\
 https://nytimes.com/2022/12/08/world/americas/dina-boluarte-peru-president.html?searchResultPosition=5
 
 **Jim Stewart, Unlikely Entrepreneur of Soul Music, Dies at 92**\
