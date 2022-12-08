@@ -3,7 +3,7 @@
 https://nytimes.com/2022/12/08/world/europe/harry-meghan-netflix-media.html?searchResultPosition=1
 
 **Video Shows Brittney Griner Boarding Russian Flight**\
-`Russian State Media broadcast footage showing Brittney Griner boarding a plane in the snow.`\
+`Russian state media broadcast footage showing the basketball player boarding a plane in the snow.`\
 https://nytimes.com/video/sports/100000008679097/brittney-griner-wnba-russia.html?searchResultPosition=2
 
 **Saying Goodbye to Magic Realism**\
