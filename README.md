@@ -1,5 +1,5 @@
 **Biden Speaks After Russia Releases Brittney Griner in Prisoner Swap**\
-`President Biden confirmed that Basketball star Brittney Griner landed in the United Arab Emirates, as she made her way home from detention in Russia.`\
+`President Biden confirmed that the basketball star Brittney Griner landed in the United Arab Emirates as she made her way home from detention in Russia.`\
 https://nytimes.com/video/sports/100000008678578/brittney-griner-russia-ukraine-biden.html?searchResultPosition=1
 
 **The Fall of Wirecard, a Tech Scandal That Rocked Germany, Reaches a Courtroom**\
