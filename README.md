@@ -1,5 +1,5 @@
 **In the Deal to Free Griner, Putin Used a Familiar Lever: Pain**\
-`By seizing the basketball star, the Russian president made things so painful for the U.S. that it capitulated and turned over a convicted arms dealer. Can the same tactic work in the Ukraine war?`\
+`By seizing the basketball star, the Russian president made things so painful for the U.S. that it capitulated and turned over a convicted arms dealer. Can the same tactic work in the war in Ukraine?`\
 https://nytimes.com/2022/12/08/world/europe/brittney-griner-putin-pain.html?searchResultPosition=1
 
 **Your Friday Briefing: Griner Freed in Swap for Russian Arms Dealer**\
