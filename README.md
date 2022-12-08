@@ -1,4 +1,4 @@
-**House Passes Bill to Protect Same-Sex Marriage Rights**\
+**House Passes Bill to Protect Same-Sex Marriage**\
 `The House gave final approval to the Respect for Marriage Act with both sides voting in favor of the legislation, which provides federal recognition for same-sex marriages.`\
 https://nytimes.com/video/us/politics/100000008678738/congress-same-sex-marriage.html?searchResultPosition=1
 
