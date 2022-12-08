@@ -4,7 +4,7 @@ https://nytimes.com/2022/12/08/us/politics/covid-booster-children.html?searchRes
 
 **House Passes $858 Billion Defense Bill Repealing Vaccine Mandate for Troops**\
 `The legislation would rescind the coronavirus vaccine mandate in defiance of the Biden administration’s wishes, and increase the defense budget $45 billion over the president’s request.`\
-https://nytimes.com/2022/12/08/us/politics/house-defense-bill-coronavirus-vaccine.html?searchResultPosition=2
+https://nytimes.com/2022/12/08/us/politics/house-defense-bill-covid-vaccine-mandate.html?searchResultPosition=2
 
 **‘Dick Rivington & the Cat’ Review: A Civic-Minded Holiday Treat**\
 `This wacky family show respects the codes of the British holiday tradition known as panto, which means playfully not holding anything back.`\
