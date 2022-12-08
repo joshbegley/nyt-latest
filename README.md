@@ -1,6 +1,6 @@
-**Brittney Griner is freed as part of a prisoner swap with Russia.**\
-`Ms. Griner has been at the center of a fraught geopolitical showdown between Washington and Moscow. The Biden administration traded her for Viktor Bout, a notorious Russian arms dealer known as the “Merchant of Death.”`\
-https://nytimes.com/live/2022/12/08/world/russia-ukraine-war-news/brittney-griner-russia?searchResultPosition=1
+**The Legal Heat Grows for Bankman-Fried**\
+`A federal investigation into whether the FTX founder’s trading firm illicitly manipulated the markets for two crypto tokens compounds his troubles.`\
+https://nytimes.com/2022/12/08/business/dealbook/bankman-fried-market-manipulation-terrausd-luna.html?searchResultPosition=1
 
 **German Plotters, Long Dismissed as Fringe, Got a Lift From QAnon**\
 `Reichsbürger, the movement behind a plan to overthrow Germany’s government, gained momentum from conspiracy theories that grew during the pandemic, turning it into a potent new threat.`\
