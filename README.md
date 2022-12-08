@@ -1,5 +1,5 @@
 **Key Partner in Global Covid Vaccine Effort Will End Support for Middle-Income Nations**\
-`Many of the poorest countries will continue to get free shots, but global demand for Covid vaccines has plummeted, driving a shift away from the goal of broad coverage.`\
+`Many of the poorest countries will continue to get free Covid shots, but global demand for them has plummeted, driving a shift away from the goal of broad coverage.`\
 https://nytimes.com/2022/12/08/health/covid-vaccines-covax-gavi.html?searchResultPosition=1
 
 **Special Master’s Review in Trump Case Ends as Appeal Court’s Ruling Takes Effect**\
