@@ -1,6 +1,6 @@
 **Prosecutor Says Colorado Shooting Suspect’s Family Did Not Cooperate in Prior Case**\
 `The suspect’s mother and grandparents did not testify, resulting in dropped charges after a 2021 threat, the district attorney in Colorado Springs said.`\
-https://nytimes.com/2022/12/08/us/prosecutor-says-colorado-shooting-suspects-family-did-not-cooperate-in-prior-case.html?searchResultPosition=1
+https://nytimes.com/2022/12/08/us/colorado-springs-shooting-suspect-club-q.html?searchResultPosition=1
 
 **Is the Supreme Court About to Upend American Election Laws?**\
 `Here’s what to know about a court case that could change the way Americans vote — and who decides how they do.`\
