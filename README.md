@@ -18,7 +18,7 @@ https://nytimes.com/2022/12/08/sports/football/congress-commanders-investigation
 `Zoey Deutsch shines in a story of an epic Christmas gift mix-up.`\
 https://nytimes.com/2022/12/08/movies/something-from-tiffanys-review.html?searchResultPosition=5
 
-**The sports world, especially, women’s basketball, erupts in joy.**\
+**‘BG is FREE!!!’ Sports Figures Celebrate Brittney Griner’s Release**\
 `Brianna Turner, a Phoenix Mercury teammate, thanked “every single person that kept Brittney Griner’s name alive.” Another teammate, Shey Peddy, said the situation went from “FREE BG to BG is FREE!!”`\
 https://nytimes.com/2022/12/08/sports/brittney-griner-release-reactions-wnba.html?searchResultPosition=6
 
