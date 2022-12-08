@@ -1,40 +1,40 @@
-**What We Learned From ‘Harry and Meghan,’ the Netflix Series**\
-`In the first episodes, the couple describe ongoing harassment from the media and wanting to continue Princess Diana’s legacy.`\
-https://nytimes.com/2022/12/08/arts/television/harry-meghan-netflix.html?searchResultPosition=1
+**The Best Children’s Books of 2022**\
+`Here are the most notable picture and middle grade books, selected by The Times’s children’s books editor.`\
+https://nytimes.com/2022/12/08/books/review/the-best-childrens-books-of-2022.html?searchResultPosition=1
 
-**Drama, in German, in the Shadow of ‘Leopoldtstadt’**\
-`New stagings in Germany and Austria, including Tom Stoppard’s latest play, explore the themes of social integration and tolerance that animated the “Jewish question.”`\
-https://nytimes.com/2022/12/08/theater/leopoldstadt-plays-german.html?searchResultPosition=2
+**In Appalachia, Margo Miller Leads From a ‘Place of Courageous Joy’**\
+`Ms. Miller’s work has made her one of the most powerful people in philanthropy in a rapidly evolving region that has long been marred by stereotypes.`\
+https://nytimes.com/2022/12/08/business/black-women-appalachia-margo-miller.html?searchResultPosition=2
 
-**U.S. Gas Prices Are Now Lower Than a Year Ago**\
-`A visible symbol of inflation for much of the year, prices at the pump have been driven down by reduced global demand and tumbling oil prices.`\
-https://nytimes.com/2022/12/08/business/energy-environment/gasoline-prices.html?searchResultPosition=3
+**‘Ebola Could Have Wiped Us All’: Slow Lockdown Haunts Uganda**\
+`The authorities hesitated to impose restrictions in the epicenter of the Ebola outbreak because of residual trauma from the Covid lockdown. Ebola then spread to the capital, killing dozens of Ugandans.`\
+https://nytimes.com/2022/12/08/world/africa/ebola-uganda.html?searchResultPosition=3
 
-**A Surge in Tourists in Restive Kashmir, but ‘No Mental Peace’ for Residents**\
-`Visitors have flocked back to the region — proof, India says, that its imposition of control worked. But people who live there say fear and uncertainty persist.`\
-https://nytimes.com/2022/12/08/world/asia/kashmir-india-tourism.html?searchResultPosition=4
+**State Officials Seek to Revisit Sports-Betting Arrangements**\
+`Officials in New York, Kansas and elsewhere are voicing new concerns about the rise of online sports betting after a series of articles in The Times examined it.`\
+https://nytimes.com/2022/12/08/business/sports-betting-regulators-barstool.html?searchResultPosition=4
 
-**A Long Road to Renewal for Former Military Bases**\
-`Closed defense sites are like snowflakes in that no two are alike. The efforts to redevelop two New Jersey forts show the obstacles to revitalization.`\
-https://nytimes.com/2022/12/08/business/a-long-road-to-renewal-for-former-military-bases.html?searchResultPosition=5
+**How the Global Spyware Industry Spiraled Out of Control**\
+`The market for commercial spyware — which allows governments to invade mobile phones and vacuum up data — is booming. Even the U.S. government is using it.`\
+https://nytimes.com/2022/12/08/us/politics/spyware-nso-pegasus-paragon.html?searchResultPosition=5
 
-**My Practice: Retelling Rituals**\
-`As a reporter embedded on the Styles desk, I faced the challenging task of sharing the details of sacred rituals across the country — using only a few hundred words.`\
-https://nytimes.com/2022/12/08/insider/my-practice-retelling-rituals.html?searchResultPosition=6
+**Public School Failed Her Kids. She’s on a Mission to Save Yours.**\
+`Naomi Peña doesn’t think parents should have to sue so their kids can learn to read.`\
+https://nytimes.com/2022/12/08/opinion/schools-teaching-reading-dyslexia.html?searchResultPosition=6
 
-**Deion Sanders Leaving Jackson State Is No Surprise in the Coaching World**\
-`His move to the University of Colorado is understandable in the college football world, but that doesn’t mean it can’t hurt given the pledges he had made to his historically Black institution.`\
-https://nytimes.com/2022/12/08/sports/deion-sanders-colorado-hbcu.html?searchResultPosition=7
+**Shaping the Future of a New American Pottery Company**\
+`Since East Fork started in 2009, its fans have been drawn to a founder’s frank and candid style of communication. Can it stay transparent in a muddy world?`\
+https://nytimes.com/2022/12/08/style/east-fork-pottery.html?searchResultPosition=7
 
-**Striving to Make Netflix’s Harry and Meghan Series ‘Personal and Raw’**\
-`The documentary series is the most high-profile project from Story Syndicate, a company run by the filmmaker Liz Garbus and her husband, Dan Cogan.`\
-https://nytimes.com/2022/12/08/business/media/netflix-harry-meghan-documentary.html?searchResultPosition=8
+**5 Minutes That Will Make You Love Jazz Vocals**\
+`Nat King Cole, Billie Holiday and Louis Armstrong were A-list celebrities at the top of their art form. Today’s jazz singers are finding new paths. Listen to these 11 favorites.`\
+https://nytimes.com/2022/12/08/arts/music/jazz-vocals.html?searchResultPosition=8
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/12/08/crosswords/spelling-bee-forum.html?searchResultPosition=9
+**Losing Another Runoff, Georgia Republicans Weigh an Election Shake-Up**\
+`Some in the party said that additional changes to election rules were likely, after Senator Raphael Warnock’s victory put a new spotlight on a major 2021 voting law passed by the G.O.P.`\
+https://nytimes.com/2022/12/08/us/politics/georgia-runoff-rules.html?searchResultPosition=9
 
-**Late Night Celebrates Raphael Warnock’s Win in the Georgia Runoff**\
-`Stephen Colbert said he was both “gratified and terrified” after Warnock narrowly beat Herschel Walker for a Senate seat.`\
-https://nytimes.com/2022/12/08/arts/television/late-night-raphael-warnock.html?searchResultPosition=10
+**The (Incomplete) Revolution in Counting Abortions**\
+`Researchers know more than before, but incomplete data is still an issue as more women try to sidestep restrictions.`\
+https://nytimes.com/2022/12/08/upshot/abortion-roe-dobbs-drugs.html?searchResultPosition=10
 
