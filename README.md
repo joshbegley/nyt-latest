@@ -1,5 +1,5 @@
 **American Given 8-Month Suspended Sentence in Traffic Death of British Teen**\
-`Anne Sacoolas, a U.S. government employee, had left England after her car hit motorcyclist Harry Dunn, 19. His parents, who fought for three years to bring her to justice, said, “Harry, we done it.”`\
+`Anne Sacoolas, a U.S. government employee, had fled England after her car hit motorcyclist Harry Dunn, 19. His parents, who fought for three years to bring her to justice, said, “Harry, we done it.”`\
 https://nytimes.com/2022/12/08/world/europe/anne-sacoolas.html?searchResultPosition=1
 
 **Johnny Johnson, the Last World War II ‘Dambuster,’ Dies at 101**\
