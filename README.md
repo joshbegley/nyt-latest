@@ -12,7 +12,7 @@ https://nytimes.com/2022/12/08/opinion/letters/older-doctors.html?searchResultPo
 
 **The Last Stand of Soccer’s Greatest Generation**\
 `The World Cup is bidding farewell to the starriest cast the game has ever assembled. The setting is a perfect fit for the game’s age of excess.`\
-https://nytimes.com/2022/12/08/sports/world-cup/messi-ronaldo.html?searchResultPosition=4
+https://nytimes.com/2022/12/08/sports/world-cup/messi-ronaldo-soccer.html?searchResultPosition=4
 
 **5 New Recipes to Get Excited About**\
 `A look at my to-cook list right now.`\
