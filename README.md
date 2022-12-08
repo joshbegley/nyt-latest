@@ -1,4 +1,4 @@
-**How Will China Turn its Economy Back On? The World is About to Find Out.**\
+**How Will China Turn Its Economy Back On? The World Is About to Find Out.**\
 `Strict “zero Covid” curbs have been smothering growth. After easing them, Beijing faces the twin challenges of rising caseloads and wary consumers.`\
 https://nytimes.com/2022/12/08/business/china-economy-covid.html?searchResultPosition=1
 
