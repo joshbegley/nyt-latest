@@ -1,40 +1,40 @@
-**A Smarter Robot**\
-`A new chatbot shows rapid advances in artificial intelligence.`\
-https://nytimes.com/2022/12/08/briefing/ai-chatgpt-openai.html?searchResultPosition=1
+**‘Loudmouth’ Review: Portrait of the Firebrand Preacher as a Young Man**\
+`A stirring new biographical documentary about the Rev. Al Sharpton revisits a racially divided New York City and offers a critique of the news media then and now.`\
+https://nytimes.com/2022/12/08/movies/loudmouth-review-al-sharpton.html?searchResultPosition=1
 
-**Britain Approves New Coal Mine Despite Climate Concerns**\
-`Local politicians said the facility, the country’s first new coal mine in decades, would create hundreds of jobs.`\
-https://nytimes.com/2022/12/08/business/uk-new-coal-mine.html?searchResultPosition=2
+**Kojin Karatani Wins $1 Million Berggruen Prize**\
+`The Japanese philosopher is the recipient of this year’s award, which is given to thinkers whose ideas have “provided wisdom and self-understanding in a rapidly changing world.”`\
+https://nytimes.com/2022/12/08/arts/kojin-karatani-berggruen-prize.html?searchResultPosition=2
 
-**Why Haiti Wants an Armed Intervention**\
-`The small nation has asked for international aid to pull it back from the brink of a humanitarian disaster.`\
-https://nytimes.com/2022/12/08/podcasts/the-daily/haiti-violence-intervention.html?searchResultPosition=3
+**‘One Fine Morning’ Review: The Moments That Make Up a Rich Life**\
+`Mia Hansen-Love directs Léa Seydoux in a delicate look at a mother, daughter and lover whose quotidian existence is instantly recognizable yet sublime.`\
+https://nytimes.com/2022/12/08/movies/one-fine-morning-review.html?searchResultPosition=3
 
-**‘Systemic Problems’ Hindered Government’s Pandemic Response, Senate Report Says**\
-`An examination by the Democratic staff of the Senate homeland security committee portrayed a government wholly unprepared for the arrival of the coronavirus.`\
-https://nytimes.com/2022/12/08/us/politics/senate-covid-report.html?searchResultPosition=4
+**Review: ‘The Treasure of His Youth: The Photographs of Paolo Di Paolo’ Delights**\
+`A documentary by Bruce Weber about a nonagenarian Italian photographer is sprinkled with la dolce vita, our critic writes.`\
+https://nytimes.com/2022/12/08/movies/review-the-treasure-of-his-youth-the-photographs-of-paolo-di-paolo.html?searchResultPosition=4
 
-**‘Zero Covid,’ Once Ubiquitous, Vanishes in China’s Messy Pivot**\
-`As China casts aside many Covid rules, it is also playing down the threat of the virus. The move could help ease the burden on hospitals but comes with its own risks.`\
-https://nytimes.com/2022/12/08/world/asia/china-covid-rollback.html?searchResultPosition=5
+**‘Empire of Light’ Review: They Found It at the Movies**\
+`Olivia Colman and Micheal Ward pursue a bittersweet workplace romance in Sam Mendes’s look back at Britain in the early 1980s.`\
+https://nytimes.com/2022/12/08/movies/empire-of-light-review.html?searchResultPosition=5
 
-**Stadiums as High Art in a World Cup Fantasyland**\
-`From a desert tent to a golden bowl, the spectacular arenas Qatar has built in and around Doha showcase the majesty, and the folly, of this World Cup.`\
-https://nytimes.com/2022/12/08/sports/soccer/world-cup-stadiums.html?searchResultPosition=6
+**‘To the End’ Review: Seeing Red While Left on Read**\
+`This documentary follows climate activists and politicians like Alexandria Ocasio-Cortez as they lobby for the Green New Deal.`\
+https://nytimes.com/2022/12/08/movies/to-the-end-review.html?searchResultPosition=6
 
-**Read the Intellexa Pitch on Its Spyware Tool**\
-`The New York Times obtained a copy of a nine-page Intellexa pitch for Predator to a Ukrainian intelligence agency in 2021, the first full such commercial spyware proposal to be made public.`\
-https://nytimes.com/interactive/2022/12/08/us/politics/intellexa-commercial-proposal.html?searchResultPosition=7
+**‘2/Duo’ Review: Relationship Rituals**\
+`This spare Japanese drama from 1997 gets a belated New York release.`\
+https://nytimes.com/2022/12/08/movies/2-duo-review.html?searchResultPosition=7
 
-**How Will China Turn Its Economy Back On? The World Is About to Find Out.**\
-`Strict “zero Covid” curbs have been smothering growth. After easing them, Beijing faces the twin challenges of rising caseloads and wary consumers.`\
-https://nytimes.com/2022/12/08/business/china-economy-covid.html?searchResultPosition=8
+**‘Idina Menzel: Which Way to the Stage?’ Review: Wickedly Talented**\
+`This Disney+ documentary uses a concert set list as a springboard to chronicle Idina Menzel’s musical achievements.`\
+https://nytimes.com/2022/12/08/movies/idina-menzel-which-way-to-the-stage-review.html?searchResultPosition=8
 
-**The Best Children’s Books of 2022**\
-`Here are the most notable picture and middle grade books, selected by The Times’s children’s books editor.`\
-https://nytimes.com/2022/12/08/books/review/the-best-childrens-books-of-2022.html?searchResultPosition=9
+**‘Nr. 10’ Review: A Strange Joke, Too Dryly Delivered**\
+`The tenth feature from the Dutch auteur Alex van Warmerdam tracks one man’s strange journey into determining the origins of his birth.`\
+https://nytimes.com/2022/12/08/movies/nr-10-review-a-strange-joke-too-dryly-delivered.html?searchResultPosition=9
 
-**In Appalachia, Margo Miller Leads From a ‘Place of Courageous Joy’**\
-`Ms. Miller’s work has made her one of the most powerful people in philanthropy in a rapidly evolving region that has long been marred by stereotypes.`\
-https://nytimes.com/2022/12/08/business/black-women-appalachia-margo-miller.html?searchResultPosition=10
+**‘Blanquita’ Review: The Victim’s Dilemma**\
+`Based on a sex scandal that sent waves throughout Chile in the early 2000s, the film looks at the meaning of victimhood and the impotence of black-and-white systems of justice.`\
+https://nytimes.com/2022/12/08/movies/blanquita-review-the-victims-dilemma.html?searchResultPosition=10
 
