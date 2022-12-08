@@ -1,5 +1,5 @@
-**Video Shows Brittney Griner And Viktor Bout in Prisoner Swap**\
-`Footage broadcast on Russian State Media shows U.S. basketball star Brittney Griner and notorious Russian arms dealer Viktor Bout exchanged on the tarmac in historic prisoner swap.`\
+**Video Shows Brittney Griner and Viktor Bout in Prisoner Swap**\
+`Footage broadcast on Russian state media shows the U.S. basketball star Brittney Griner and the notorious Russian arms dealer Viktor Bout being exchanged on a U.A.E. airport tarmac.`\
 https://nytimes.com/video/sports/100000008678968/brittney-griner-victor-bout-russia.html?searchResultPosition=1
 
 **F.T.C. Sues to Block Microsoft’s $69 Billion Acquisition of Activision**\
@@ -22,19 +22,19 @@ https://nytimes.com/2022/12/08/us/politics/house-defense-bill-covid-vaccine-mand
 `This wacky family show respects the codes of the British holiday tradition known as panto, which means playfully not holding anything back.`\
 https://nytimes.com/2022/12/08/theater/dick-rivington-the-cat-review.html?searchResultPosition=6
 
+**The number of Americans ‘wrongfully detained’ by other nations has risen.**\
+`A State Department official said over the summer that there were between 40 and 50 Americans being wrongfully detained by foreign governments.`\
+https://nytimes.com/2022/12/08/world/europe/griner-americans-detained.html?searchResultPosition=7
+
 **Adams Plan Would Relax Rules for Developers Amid N.Y.C. Housing Crisis**\
 `The mayor proposed reducing requirements that he said slow the construction of new homes as the city contends with a housing crisis.`\
-https://nytimes.com/2022/12/08/nyregion/eric-adams-nyc-affordable-housing-crisis.html?searchResultPosition=7
+https://nytimes.com/2022/12/08/nyregion/eric-adams-nyc-affordable-housing-crisis.html?searchResultPosition=8
 
 **‘Harry & Meghan’: What People Are Saying About the Netflix Series**\
 `Critics on both sides of the Atlantic found common ground in negative reviews of the first three episodes of the series.`\
-https://nytimes.com/2022/12/08/arts/television/prince-harry-and-meghan-netflix-documentary.html?searchResultPosition=8
+https://nytimes.com/2022/12/08/arts/television/prince-harry-and-meghan-netflix-documentary.html?searchResultPosition=9
 
 **The Edge of the Universe**\
 `The Webb telescope’s remarkable view of our past and future.`\
-https://nytimes.com/paidpost/northrop-grumman/the-edge-of-the-universe.html?searchResultPosition=9
-
-**Christmas Kitsch, No Longer Full of Hot Air**\
-`Forget the blow-up Santas for your lawn. A new generation of old-fashioned blow mold decorations have come to town.`\
-https://nytimes.com/2022/12/08/style/christmas-decor-blow-molds.html?searchResultPosition=10
+https://nytimes.com/paidpost/northrop-grumman/the-edge-of-the-universe.html?searchResultPosition=10
 
