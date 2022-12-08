@@ -2,8 +2,8 @@
 `Restoring a mangrove forest and building out gardens to protect, educate and nourish.`\
 https://nytimes.com/2022/12/07/neediest-cases/they-invest-in-the-land-to-build-the-future.html?searchResultPosition=1
 
-**Federal Officer Fatally Shoots Person on D.C. Subway Platform**\
-`The shooting happened during the evening rush in the Metro Center station, the authorities said.`\
+**Off-Duty F.B.I. Agent Fatally Shoots Person on D.C. Subway Platform**\
+`The shooting happened after an altercation caused the two to fall off a platform at the Metro Center station during the evening rush, the authorities said.`\
 https://nytimes.com/2022/12/07/us/dc-metro-center-officer-shooting.html?searchResultPosition=2
 
 **Florida Lawmaker Charged With Pandemic Aid Fraud**\
