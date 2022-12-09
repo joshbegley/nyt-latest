@@ -2,7 +2,7 @@
 `The senator told CNN that she would register as an independent.`\
 https://nytimes.com/2022/12/09/us/politics/kyrsten-sinema-democrats.html?searchResultPosition=1
 
-**With Brittney Griner’s Release, Anxiety Turns to Relief**\
+**With Brittney Griner’s Release, Anxiety turns to Relief**\
 `Supporters of the W.N.B.A. star had watched with dismay as her situation appeared to worsen over the summer. Now they are celebrating her release.`\
 https://nytimes.com/2022/12/09/us/brittney-griner-wait-relief.html?searchResultPosition=2
 
