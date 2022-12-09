@@ -1,40 +1,40 @@
+**Squash + Chickpeas + Sheet Pan**\
+`Melissa Clark’s recipe is the sheet-pan dinner of my winter dreams.`\
+https://nytimes.com/2022/12/09/dining/squash-chickpeas-sheet-pan.html?searchResultPosition=1
+
 **L.A. County Grants Girl’s Request for Unicorn License**\
 `Animal control officials issued the license to a girl in search of a unicorn on the condition that she fed it watermelon and gave it “regular access to sunlight, moonbeams and rainbows.”`\
-https://nytimes.com/2022/12/09/us/unicorn-license-los-angeles.html?searchResultPosition=1
+https://nytimes.com/2022/12/09/us/unicorn-license-los-angeles.html?searchResultPosition=2
 
 **Trevor Noah’s Optimism Set His Version of ‘The Daily Show’ Apart**\
 `Though his final episode made the mysterious reason for his departure a running joke, his specials and memoir suggest he was always comfortable with uncertainty.`\
-https://nytimes.com/2022/12/09/arts/television/trevor-noah-daily-show-final-episode.html?searchResultPosition=2
+https://nytimes.com/2022/12/09/arts/television/trevor-noah-daily-show-final-episode.html?searchResultPosition=3
 
 **Five Horror Movies to Stream Now**\
 `If you’d rather see Santa slashing through the snow, check out “Christmas Bloody Christmas,” along with other frightful gems this holiday season.`\
-https://nytimes.com/2022/12/09/movies/horror-movies-streaming.html?searchResultPosition=3
+https://nytimes.com/2022/12/09/movies/horror-movies-streaming.html?searchResultPosition=4
 
 **Met Opera, Reeling From Cyberattack, Will Sell Tickets on New Site**\
 `The company’s computer systems have been down for more than three days. It will now use a Lincoln Center website to offer $50 general admission seats to some performances.`\
-https://nytimes.com/2022/12/09/arts/music/met-opera-cyberattack-tickets.html?searchResultPosition=4
+https://nytimes.com/2022/12/09/arts/music/met-opera-cyberattack-tickets.html?searchResultPosition=5
 
 **We Can Cure Disease by Editing a Person’s DNA. Why Aren’t We?**\
 `Revolutionized medicine may be at hand, but barriers remain.`\
-https://nytimes.com/2022/12/09/opinion/crispr-gene-editing-cures.html?searchResultPosition=5
+https://nytimes.com/2022/12/09/opinion/crispr-gene-editing-cures.html?searchResultPosition=6
 
 **Love Letter: Three Dealbreakers**\
 `“These are the three reasons we cannot be together.”`\
-https://nytimes.com/2022/12/09/style/love-letter-newsletter-three-dealbreakers.html?searchResultPosition=6
+https://nytimes.com/2022/12/09/style/love-letter-newsletter-three-dealbreakers.html?searchResultPosition=7
 
 **T. Rex Skull Brings $6.1 Million at Sotheby’s, Well Below Estimate**\
 `The skull, which weighs more than 200 pounds, was expected to fetch between $15 million and $20 million.`\
-https://nytimes.com/2022/12/09/arts/t-rex-skull-auction-sothebys.html?searchResultPosition=7
+https://nytimes.com/2022/12/09/arts/t-rex-skull-auction-sothebys.html?searchResultPosition=8
 
 **SZA and Phoebe Bridgers’s Team-Up, and 8 More New Songs**\
 `Hear tracks by Paramore, Sparklehorse, Lana Del Rey and others.`\
-https://nytimes.com/2022/12/09/arts/music/playlist-sza-phoebe-bridgers-paramore.html?searchResultPosition=8
+https://nytimes.com/2022/12/09/arts/music/playlist-sza-phoebe-bridgers-paramore.html?searchResultPosition=9
 
 **Let’s Talk Books**\
 `We’ve put together a selection of titles to take you to new worlds, conjured and remembered, fictional and real.`\
-https://nytimes.com/2022/12/09/climate/books-about-climate.html?searchResultPosition=9
-
-**Dominique Lapierre, 91, Dies; Popular Author Wrote ‘Is Paris Burning?’**\
-`His books, many co-written with the American journalist Larry Collins, were international best-sellers, among them “City of Joy,” based on his travels to India.`\
-https://nytimes.com/2022/12/09/books/dominique-lapierre-dead.html?searchResultPosition=10
+https://nytimes.com/2022/12/09/climate/books-about-climate.html?searchResultPosition=10
 
