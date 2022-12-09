@@ -1,5 +1,5 @@
 **Kyrsten Sinema Says She Will Leave the Democratic Party**\
-`The senator told CNN that she would register as an independent.`\
+`The senator is registering as an independent, noting that she “never fit perfectly in either national party.”`\
 https://nytimes.com/2022/12/09/us/politics/kyrsten-sinema-democrats.html?searchResultPosition=1
 
 **With Brittney Griner’s Release, Anxiety turns to Relief**\
