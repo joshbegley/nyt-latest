@@ -11,7 +11,7 @@ https://nytimes.com/2022/12/09/dining/warsaw-bakery-jewish-food.html?searchResul
 https://nytimes.com/2022/12/09/well/move/flexibility-test-mobility-fitness.html?searchResultPosition=3
 
 **Oil Prices Drop, Despite Heightened Sanctions on Russian Crude**\
-`The price of oil fell about 10 percent this week, easing (for now) supply worries about the E.U. embargo and a price cap.`\
+`The price of oil fell by about 10 percent this week, easing (for now) supply worries about the E.U. embargo and a price cap.`\
 https://nytimes.com/2022/12/09/business/oil-prices-russia-sanctions.html?searchResultPosition=4
 
 **For French Firebrand, Ecology and Feminism Are ‘Next Battlegrounds’ in Culture Wars**\
