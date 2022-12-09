@@ -18,7 +18,7 @@ https://nytimes.com/2022/12/09/world/europe/russia-ukraine-nato-stoltenberg.html
 `How a deal on the prisoner exchanger took shape.`\
 https://nytimes.com/2022/12/09/briefing/russia-ukraine-war-griner.html?searchResultPosition=5
 
-**When a Prisoner Swap is a Rorschach-Test**\
+**When a Prisoner Swap Is a Rorschach-Test**\
 `The scene on the tarmac with Brittney Griner and Viktor Bout didn’t just show a prisoner trade. It told the story of where two rival countries had landed decades after the Cold War.`\
 https://nytimes.com/2022/12/09/magazine/griner-bout-swap-putin.html?searchResultPosition=6
 
