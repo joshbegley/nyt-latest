@@ -19,7 +19,7 @@ https://nytimes.com/2022/12/09/opinion/living-alone-single.html?searchResultPosi
 https://nytimes.com/2022/12/09/briefing/dissent-democracy-freedom-house.html?searchResultPosition=5
 
 **Kyrsten Sinema Says She Will Leave the Democratic Party**\
-`The senator is registering as an independent, noting that she “never fit perfectly in either national party.”`\
+`The Arizona senator is registering as an independent, noting that she “never fit perfectly in either national party.”`\
 https://nytimes.com/2022/12/09/us/politics/kyrsten-sinema-democrats.html?searchResultPosition=6
 
 **With Brittney Griner’s Release, Anxiety turns to Relief**\
