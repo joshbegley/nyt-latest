@@ -1,6 +1,6 @@
 **The Wednesday Dance Is an Invitation. Be Weird.**\
 `Jenna Ortega’s dance for her Addams Family character is a viral sensation, but why? It is disarming and defiant: the dance of a nonconformist.`\
-https://nytimes.com/2022/12/09/arts/dance/the-wednesday-dance-jenna-ortega.html?searchResultPosition=1
+https://nytimes.com/2022/12/09/arts/dance/wednesday-dance-jenna-ortega.html?searchResultPosition=1
 
 **Covid Rates Are Climbing in Los Angeles, but Residents Are Weary**\
 `Los Angeles County may bring back a mask mandate if hospitalizations continue to increase.`\
