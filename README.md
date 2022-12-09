@@ -1,6 +1,6 @@
 **Recruited for Navy SEALs, Many Sailors Wind Up Scraping Paint**\
 `The high failure rate of the elite force’s selection course shunts hundreds of candidates into low-skilled jobs.`\
-https://nytimes.com/2022/12/09/us/recruited-for-navy-seals-many-sailors-wind-up-scraping-paint.html?searchResultPosition=1
+https://nytimes.com/2022/12/09/us/navy-seals-recruits.html?searchResultPosition=1
 
 **Squash + Chickpeas + Sheet Pan**\
 `Melissa Clark’s recipe is the sheet-pan dinner of my winter dreams.`\
