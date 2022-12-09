@@ -16,7 +16,7 @@ https://nytimes.com/2022/12/09/us/politics/kyrsten-sinema-democrats.html?searchR
 
 **With Brittney Griner’s Release, Anxiety turns to Relief**\
 `Supporters of the W.N.B.A. star had watched with dismay as her situation appeared to worsen over the summer. Now they are celebrating her release.`\
-https://nytimes.com/2022/12/09/us/brittney-griner-wait-relief.html?searchResultPosition=5
+https://nytimes.com/2022/12/09/us/brittney-griner-release.html?searchResultPosition=5
 
 **A Rural Hospital’s Excruciating Choice: $3.2 Million a Year or Inpatient Care?**\
 `A new federal program offers hefty payments to small hospitals at risk of closing. But it comes with a bewildering requirement: to end all inpatient care.`\
