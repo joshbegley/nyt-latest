@@ -1,40 +1,40 @@
+**North Korea Wants Dollars. It’s a Sign of Trouble.**\
+`Kim Jong-un is desperately trying to find hard currency to fund his military and economic ambitions.`\
+https://nytimes.com/interactive/2022/12/09/world/asia/north-korea-promises.html?searchResultPosition=1
+
+**Her Fictitious ‘Remember Me’ Email Sparked a Real Connection**\
+`When Emily Todebush was diagnosed with multiple sclerosis, her passion for affordable health care led her to contact Garrett Arwa.`\
+https://nytimes.com/2022/12/09/style/emily-todebush-garrett-arwa-wedding.html?searchResultPosition=2
+
+**Fish and Chips (and a Kiss) Sealed the Deal**\
+`Shortly after a gay pride parade in Australia, Cherie King knew Ilka Tiedemann was meant for her: “When I know I know.”`\
+https://nytimes.com/2022/12/09/style/cherie-king-ilka-tiedemann-wedding.html?searchResultPosition=3
+
+**‘You Bought the Wrong Nipple Clamps’**\
+`Our relationship was impossible, which of course is what made it possible.`\
+https://nytimes.com/2022/12/09/style/modern-love-marriage-you-bought-the-wrong-nipple-clamps.html?searchResultPosition=4
+
+**They Found Love in an Elevator**\
+`After dating for more than five years, Nicolas Platt’s proposal to Rachel Love, a social media influencer, ran an hour and a half late.`\
+https://nytimes.com/2022/12/09/style/nicolas-platt-rachel-love-wedding.html?searchResultPosition=5
+
+**Day 9: The Magic of Less ‘Holiday Magic’**\
+`Some people respond to the stress of the season by adopting a Marie Kondo approach: relinquishing the rituals that no longer bring them joy.`\
+https://nytimes.com/2022/12/09/style/opting-out-holidays-christmas.html?searchResultPosition=6
+
+**Winning the Long Game in Love**\
+`Patrick Sheehan always wanted Carolyn Cost to be his girlfriend. After dating casually for years, he finally got his wish.`\
+https://nytimes.com/2022/12/09/style/patrick-sheehan-carolyn-cost-wedding.html?searchResultPosition=7
+
 **Review: Who Committed the ‘Ohio State Murders’? Who Didn’t?**\
 `Audra McDonald stars in Adrienne Kennedy’s 1991 play about the worst imaginable crime and the world that made it inevitable.`\
-https://nytimes.com/2022/12/08/theater/ohio-state-murders-review.html?searchResultPosition=1
+https://nytimes.com/2022/12/08/theater/ohio-state-murders-review.html?searchResultPosition=8
 
 **Variety: Split Decisions**\
 `Fred Piscop springs a tough puzzle on us.`\
-https://nytimes.com/2022/12/08/crosswords/variety-split-decisions.html?searchResultPosition=2
+https://nytimes.com/2022/12/08/crosswords/variety-split-decisions.html?searchResultPosition=9
 
 **Statement in a Closing Argument**\
 `Kim Vu and Brooke Husic open our solving weekend.`\
-https://nytimes.com/2022/12/08/crosswords/daily-puzzle-2022-12-09.html?searchResultPosition=3
-
-**Mayor Eric Adams Wins Fight Over Rat Infestation Fine**\
-`The mayor, who had been issued a summons for rats at a property he owns in Brooklyn, defended himself at a hearing this week.`\
-https://nytimes.com/2022/12/08/nyregion/adams-rats-summons-apartment.html?searchResultPosition=4
-
-**How to Fend Off Holiday Stress, from People Who Should Know**\
-`A UPS driver, a baker and Santa’s helper share advice for staying present through the season.`\
-https://nytimes.com/2022/12/08/well/mind/holiday-stress-relief.html?searchResultPosition=5
-
-**Brittney Griner Is Being Taken to an Army Hospital in San Antonio**\
-`The hospital treats both civilians and military personnel who have survived torture or other trauma.`\
-https://nytimes.com/2022/12/08/world/europe/brittney-griner-brooke-army-medical-center.html?searchResultPosition=6
-
-**Key Partner in Covax Will End Support for Middle-Income Nations**\
-`Many of the poorest countries will continue to get free Covid shots, but global demand for them has plummeted, driving a shift away from the goal of broad coverage.`\
-https://nytimes.com/2022/12/08/health/covid-vaccines-covax-gavi.html?searchResultPosition=7
-
-**Special Master’s Review in Trump Case Ends as Appeal Court’s Ruling Takes Effect**\
-`A federal judge in Florida had shocked experts by intervening after the F.B.I. seized sensitive files from the former president’s residence and club.`\
-https://nytimes.com/2022/12/08/us/trump-special-master-case.html?searchResultPosition=8
-
-**Prosecutor Says Colorado Shooting Suspect’s Family Did Not Cooperate in Prior Case**\
-`The suspect’s mother and grandparents did not testify, resulting in dropped charges after a 2021 threat, the district attorney in Colorado Springs said.`\
-https://nytimes.com/2022/12/08/us/colorado-springs-shooting-suspect-club-q.html?searchResultPosition=9
-
-**Is the Supreme Court About to Upend American Election Laws?**\
-`Here’s what to know about a court case that could change the way Americans vote — and who decides how they do.`\
-https://nytimes.com/2022/12/08/us/politics/supreme-court-independent-legislature-theory.html?searchResultPosition=10
+https://nytimes.com/2022/12/08/crosswords/daily-puzzle-2022-12-09.html?searchResultPosition=10
 
