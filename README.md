@@ -1,40 +1,20 @@
+**Sununu on Trump: ‘He’s Not Scaring Anyone Out of the Race’**\
+`In a wide-ranging interview, Chris Sununu, the New Hampshire governor, called the Republican presidential primary a tossup. As for Trump? “He’s not clearing the field.”`\
+https://nytimes.com/2022/12/09/us/politics/chris-sununu-trump-2024.html?searchResultPosition=1
+
+**Blowback Over Griner’s Release Exposes Depth of America’s Divisions**\
+`Past hostage exchanges have sparked criticism, but the response to Brittney Griner’s homecoming has been fueled by the politics of race, gender and sexual orientation.`\
+https://nytimes.com/2022/12/09/us/politics/griner-blowback.html?searchResultPosition=7
+
 **Winter Weather Havoc Is Expected to Make a Cross-Country Run**\
 `A “major storm system” approaching the Pacific Coast is forecast to rumble across the U.S., dealing feet of snow in the West, blizzard conditions in the Northern Plains and tornadoes across the South, forecasters say.`\
-https://nytimes.com/article/winter-storm-snow-west-northern-plains.html?searchResultPosition=1
+https://nytimes.com/article/winter-storm-snow-west-northern-plains.html?searchResultPosition=8
 
 **Review: A Tere O’Connor Dance That Ebbs, Flows and Weaves**\
 `“Rivulets,” with a score composed by the choreographer, brings a mesmerizing stream of consciousness to Baryshnikov Arts Center.`\
-https://nytimes.com/2022/12/09/arts/dance/tere-oconnor-rivulets-review.html?searchResultPosition=2
+https://nytimes.com/2022/12/09/arts/dance/tere-oconnor-rivulets-review.html?searchResultPosition=9
 
 **‘It Hurts’: Brazil Is Left Wondering What Went Wrong**\
 `A favorite in the World Cup, Brazil is headed home after failing to hold onto a lead in extra time.`\
-https://nytimes.com/2022/12/09/sports/soccer/brazil-croatia-neymar.html?searchResultPosition=3
-
-**Age Is Just a Number as M.L.B. Teams Drop $2 Billion on Free Agents**\
-`Baseball was in a spending mood at the winter meetings, where the Mets added Justin Verlander, the Yankees kept Aaron Judge and San Diego splurged on Xander Bogaerts.`\
-https://nytimes.com/2022/12/09/sports/baseball/mlb-free-agents.html?searchResultPosition=4
-
-**Your Friday Evening Briefing**\
-`Here’s what you need to know at the end of the day.`\
-https://nytimes.com/2022/12/09/briefing/kyrsten-sinema-democrat-brittney-griner-russia.html?searchResultPosition=5
-
-**Playing Santa Onscreen Takes Much More Than Just Donning a Red Suit**\
-`David Harbour, George Wendt and Tim Allen explain the acting challenge that is Jolly St. Nick.`\
-https://nytimes.com/2022/12/09/movies/santa-movies-tim-allen-david-harbour-george-wendt.html?searchResultPosition=6
-
-**A Look at the Heisman Trophy Finalists**\
-`Four quarterbacks are in the running for college football's M.V.P. award.`\
-https://nytimes.com/interactive/2022/12/09/sports/ncaafootball/heisman-trophy-finalists.html?searchResultPosition=7
-
-**‘Off Peak’ Review: Caught in Limbo on the Northbound Track**\
-`Two passengers share more than just an eerie commute aboard a train headed upstate.`\
-https://nytimes.com/2022/12/09/theater/off-peak-review.html?searchResultPosition=8
-
-**Eric Allison, Prison Reporter Who Knew the Beat All Too Well, Dies at 79**\
-`A career criminal in England for nearly a half-century, he was hired by The Guardian to report on injustices in prisons — work that led to exposés and honors.`\
-https://nytimes.com/2022/12/09/world/europe/eric-allison-dead.html?searchResultPosition=9
-
-**Golf Course on Ancient Earthworks Must Surrender Lease, Justices Say**\
-`The Ohio Supreme Court ruled that the state historical society could pay a country club to acquire its lease on the Octagon Earthworks, with the intent of opening the site as a public park.`\
-https://nytimes.com/2022/12/09/arts/design/octagon-earthworks-ohio-golf-course.html?searchResultPosition=10
+https://nytimes.com/2022/12/09/sports/soccer/brazil-croatia-neymar.html?searchResultPosition=10
 
