@@ -1,40 +1,40 @@
+**Newly Published, From Children’s Books to the Bloomsbury Group**\
+`A selection of recently published books.`\
+https://nytimes.com/2022/12/09/books/review/new-this-week.html?searchResultPosition=1
+
 **Animals Are Running Out of Places to Live**\
 `Talks in Montreal this month could be a big victory, or a missed opportunity, for the planet’s wildlife. We explain why, and show you some of the species losing habitat fast.`\
-https://nytimes.com/interactive/2022/12/09/climate/biodiversity-habitat-loss-climate.html?searchResultPosition=1
+https://nytimes.com/interactive/2022/12/09/climate/biodiversity-habitat-loss-climate.html?searchResultPosition=2
 
 **After a Terrible Year for Bonds, the Outlook Is Better**\
 `October capped their worst 12-month period ever, and the economy is under pressure. Yet the fundamental math of bond returns bodes well for 2023, our columnist says.`\
-https://nytimes.com/2022/12/09/business/bond-market-economy-investing.html?searchResultPosition=2
+https://nytimes.com/2022/12/09/business/bond-market-economy-investing.html?searchResultPosition=3
 
 **Mysteries of a Venetian Perfectionist Revealed in Washington**\
 `Vittore Carpaccio, a great Renaissance painter (and a dish’s namesake), re-emerges with his first-ever survey in the U.S. It’s anything but uncooked.`\
-https://nytimes.com/2022/12/09/arts/design/carpacchio-venice-national-gallery-art.html?searchResultPosition=3
+https://nytimes.com/2022/12/09/arts/design/carpacchio-venice-national-gallery-art.html?searchResultPosition=4
 
 **How Bad Are Microplastics? An Expert Weighs In.**\
 `“We’re becoming aware that they’re everywhere.” An environmental researcher weighs in on the little particles that break away from the everyday plastic items in our lives.`\
-https://nytimes.com/2022/12/09/business/how-bad-are-microplastics.html?searchResultPosition=4
+https://nytimes.com/2022/12/09/business/how-bad-are-microplastics.html?searchResultPosition=5
 
 **‘Harry & Meghan’ Has All the Intimacy of Instagram**\
 `The new Netflix series portrays the ex-royals with a soft filter and a lack of surprise. But some will still find it aspirational.`\
-https://nytimes.com/2022/12/09/style/harry-meghan-netflix-documentary.html?searchResultPosition=5
+https://nytimes.com/2022/12/09/style/harry-meghan-netflix-documentary.html?searchResultPosition=6
 
 **A Guide to Signing Up for Health Coverage**\
 `With the deadline near for marketplace medical insurance, a video offers some down-to-earth advice for navigating numerous options and obscure terms.`\
-https://nytimes.com/2022/12/09/your-money/cobra-affordable-health-insurance-marketplace.html?searchResultPosition=6
+https://nytimes.com/2022/12/09/your-money/cobra-affordable-health-insurance-marketplace.html?searchResultPosition=7
 
 **Bangladesh Arrests Opposition Leaders as Crackdown Intensifies**\
 `Tensions boiled over this week as opposition supporters descended on the capital ahead of a major demonstration against the government of Prime Minister Sheikh Hasina.`\
-https://nytimes.com/2022/12/09/world/asia/bangladesh-protests-election.html?searchResultPosition=7
+https://nytimes.com/2022/12/09/world/asia/bangladesh-protests-election.html?searchResultPosition=8
 
 **Hamish Bowles Lists His High-Design Village Co-op for $2.9 Million**\
 `The longtime Vogue editor has moved to London, leaving behind a duplex that still has traces of his “objects of affection.”`\
-https://nytimes.com/2022/12/09/realestate/exclusive-sales-hamish-bowles.html?searchResultPosition=8
+https://nytimes.com/2022/12/09/realestate/exclusive-sales-hamish-bowles.html?searchResultPosition=9
 
 **Illuminating a Forgotten History**\
 `An artist’s new short film, “shadow bone,” uncovers buried colonial truths.`\
-https://nytimes.com/2022/12/09/special-series/indigenous-australian-art-film.html?searchResultPosition=9
-
-**N.F.L. Owner by Day, Rock ’n’ Roller by Night**\
-`While other N.F.L. owners sail on their yachts far from prying eyes, Jim Irsay roams the country showing his museum-quality memorabilia and jamming with rock legends.`\
-https://nytimes.com/2022/12/09/arts/music/jim-irsay-memorabilia.html?searchResultPosition=10
+https://nytimes.com/2022/12/09/special-series/indigenous-australian-art-film.html?searchResultPosition=10
 
