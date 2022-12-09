@@ -4,7 +4,7 @@ https://nytimes.com/2022/12/09/business/dealbook/ftc-microsoft-activision-khan.h
 
 **This Case Should Never Have Made It to the Supreme Court**\
 `Moore v. Harper is a political power grab in the guise of a legal theory.`\
-https://nytimes.com/2022/12/09/opinion/supreme-court.html?searchResultPosition=2
+https://nytimes.com/2022/12/09/opinion/supreme-court-moore-v-harper.html?searchResultPosition=2
 
 **Russia Finds a War Critic Guilty of ‘Spreading False Information’**\
 `Ilya Yashin, who pleaded not guilty, is among the highest-profile opposition politicians remaining in Russia.`\
