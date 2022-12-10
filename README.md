@@ -6,13 +6,13 @@ https://nytimes.com/2022/12/10/sports/soccer/brazil-neymar.html?searchResultPosi
 `In conversation with the photographer Wolfgang Tillmans, he reflects on a career spanning more than five decades.`\
 https://nytimes.com/2022/12/10/opinion/anthony-fauci-wolfgang-tillmans.html?searchResultPosition=2
 
-**America’s Toxic Gun Culture**\
-`Gun-rights extremism and political violence are inextricably linked.`\
-https://nytimes.com/2022/12/10/opinion/america-gun-violence.html?searchResultPosition=3
-
 **Anthony Fauci: A Message to the Next Generation of Scientists**\
 `As he prepares to retire, “America’s doctor” reflects on his long career.`\
-https://nytimes.com/2022/12/10/opinion/anthony-fauci-retirement.html?searchResultPosition=4
+https://nytimes.com/2022/12/10/opinion/anthony-fauci-retirement.html?searchResultPosition=3
+
+**America’s Toxic Gun Culture**\
+`Gun-rights extremism and political violence are inextricably linked.`\
+https://nytimes.com/2022/12/10/opinion/america-gun-violence.html?searchResultPosition=4
 
 **A Contagion the U.S. and China Both Fear: Each Other**\
 `Each felt their superiority in the face of the pandemic, each found their flaws.`\
