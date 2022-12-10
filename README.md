@@ -1,40 +1,40 @@
-**Critics Say Musk Has Revealed Himself as a Conservative. It’s Not So Simple.**\
-`Elon Musk has tweeted about political topics regularly since taking over Twitter, often belittling some liberal causes. But what he stands for remains largely unclear.`\
-https://nytimes.com/2022/12/10/business/media/elon-musk-politics-twitter.html?searchResultPosition=1
+**His Estate Has 3 Swimming Pools and a Stable. He Says He’s Not Rich.**\
+`A rare look inside a Qatari home offers a glimpse at how the lucrative gas industry has transformed the formerly poor, barren country.`\
+https://nytimes.com/2022/12/10/world/middleeast/qatar-wealth-world-cup.html?searchResultPosition=1
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/12/10/crosswords/spelling-bee-forum.html?searchResultPosition=2
+**Transgender Americans Feel Under Siege as Political Vitriol Rises**\
+`Language about pedophiles and “grooming” of young children has intensified a movement, reminiscent of campaigns dating to the 1970s, that seeks to turn transgender people into a political wedge.`\
+https://nytimes.com/2022/12/10/us/politics/anti-transgender-lgbtq-threats-attacks.html?searchResultPosition=2
 
-**China’s Looming ‘Tsunami’ of Covid Cases Will Test Its Hospitals**\
-`To conserve resources for the severely ill, the government is urging residents not to seek help unless necessary. But the pivot has left many confused and anxious.`\
-https://nytimes.com/2022/12/10/world/asia/china-covid-hospitals.html?searchResultPosition=3
+**Wish You Were Here. Ignore the Floods and Fires.**\
+`Climate change is reshaping the American economy. New Mexico is leaning on ecotourism and sustainable industries to see it through, but extreme weather keeps getting in the way.`\
+https://nytimes.com/2022/12/10/business/new-mexico-climate-change-wildfires-floods.html?searchResultPosition=3
 
-**University of California Academic Workers Partly End Strike**\
-`Postdoctoral students and academic researchers said they will return to work on Monday after ratifying a new contract, but workers who help teach undergraduates and assign grades remain on strike.`\
-https://nytimes.com/2022/12/10/us/university-of-california-workers-partial-deal.html?searchResultPosition=4
+**The Surprising Health Benefits of Bird-Watching**\
+`Spending time outdoors with a pair of binoculars is good for your body and soul. The upcoming Audubon Christmas Bird Count is the perfect excuse to start.`\
+https://nytimes.com/2022/12/10/well/move/bird-watching-health-benefits.html?searchResultPosition=4
 
-**You’ve Heard About Taylor Swift. Here’s What Live Nation Means for Artists Like Me**\
-`Live Nation’s control of the live music ecosystem is staggering.`\
-https://nytimes.com/2022/12/10/opinion/taylor-swift-live-nation-clyde-lawrence.html?searchResultPosition=5
+**The New Chat Bots Could Change the World. Can You Trust Them?**\
+`Siri, Google Search, online marketing and your child’s homework will never be the same. Then there’s the misinformation problem.`\
+https://nytimes.com/2022/12/10/technology/the-new-chat-bots-could-change-the-world-can-you-trust-them.html?searchResultPosition=5
 
-**Spat Over Patriot Missiles Reveals Deepening Rifts in Europe Over Ukraine**\
-`Relations between Warsaw and Berlin, never warm, have deteriorated since the start of the Ukraine war, damaging unity in both NATO and the European Union.`\
-https://nytimes.com/2022/12/10/world/europe/poland-germany-ukraine-patriots-missiles.html?searchResultPosition=6
+**‘The Only People They Hit Were Black’: When a Race Riot Roiled New York**\
+`Four decades ago, a bat-wielding mob raged through Washington Square Park, leaving dozens injured and one dead. The violence lasted only 10 minutes, but the repercussions persist today.`\
+https://nytimes.com/2022/12/10/nyregion/the-only-people-they-hit-were-black-when-a-race-riot-roiled-new-york.html?searchResultPosition=6
 
-**A Chatty Putin’s Underlying Message: I’m Still in Charge**\
-`In a string of appearances, it wasn’t so much what the Russian leader said, much of it false, as it was his apparent need to demonstrate that he is healthy, alert and in control.`\
-https://nytimes.com/2022/12/10/world/europe/putin-ukraine-nuclear.html?searchResultPosition=7
+**Even as China Eases Covid Rules, Some Youths Still Fear a Grim Future**\
+`A sluggish economy continues to leave many young people unemployed, with few job prospects or hopes to tap into the rising incomes their parents enjoyed during boom times.`\
+https://nytimes.com/2022/12/10/business/china-protests-students-jobs.html?searchResultPosition=7
 
-**Day 10: The Secrets of Being Santa**\
-`Four pros share their tips for making magical Christmas memories.`\
-https://nytimes.com/2022/12/10/style/santa-claus-tips.html?searchResultPosition=8
+**‘Cuba is Depopulating:’ Largest Exodus Yet Threatens Country’s Future**\
+`The pandemic and tougher U.S. sanctions have decimated Cuba’s economy, prompting the biggest migration since Fidel Castro rose to power.`\
+https://nytimes.com/2022/12/10/world/cuba-us-migration.html?searchResultPosition=8
 
-**Kari Lake Sues Arizona’s Largest County, Seeking to Overturn Her Defeat**\
-`Ms. Lake, who fueled the false claims that the 2020 election had been stolen from Donald Trump, lost the Arizona governor’s race by 17,000 votes.`\
-https://nytimes.com/2022/12/09/us/politics/kari-lake-election-lawsuit.html?searchResultPosition=9
+**Brittney Griner Swap Puts Spotlight on Americans in Russia**\
+`Westerners in Russia have to weigh the risks of living and working in the country against professional and financial opportunities there.`\
+https://nytimes.com/2022/12/10/world/europe/brittney-griner-russia-athletes.html?searchResultPosition=9
 
-**Quotation of the Day: N.Y.P.D. Officers Lured Away by Better Pay in Small Towns**\
-`Quotation of the Day for Saturday, December 10, 2022.`\
-https://nytimes.com/2022/12/09/pageoneplus/quotation-of-the-day-nypd-officers-lured-away-by-better-pay-in-small-towns.html?searchResultPosition=10
+**The New Landscape of the Abortion Fight**\
+`After the midterm elections, abortion rights advocates hope to harness public support for the long term, while abortion foes look to advance new laws in sympathetic courts and legislatures.`\
+https://nytimes.com/2022/12/10/us/the-new-landscape-of-the-abortion-fight.html?searchResultPosition=10
 
