@@ -31,7 +31,7 @@ https://nytimes.com/2022/12/09/us/philadelphia-columbus-statue.html?searchResult
 https://nytimes.com/2022/12/09/crosswords/daily-puzzle-2022-12-10.html?searchResultPosition=8
 
 **Soccer Journalist Dies at World Cup After Collapsing at Argentina Game**\
-`Grant Wahl, who in his career covered soccer for Sports Illustrated, Fox Sports and CBS, was in Qatar for his eighth World Cup.`\
+`Grant Wahl, who in his career covered soccer for Sports Illustrated, Fox Sports and CBS, was in Qatar for his eighth men’s World Cup.`\
 https://nytimes.com/2022/12/09/sports/soccer/grant-wahl-dead.html?searchResultPosition=9
 
 **New York Loosens Rules on Locations for Weed Dispensaries**\
