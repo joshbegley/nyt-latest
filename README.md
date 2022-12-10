@@ -14,13 +14,13 @@ https://nytimes.com/2022/12/10/opinion/anthony-fauci-retirement.html?searchResul
 `Gun-rights extremism and political violence are inextricably linked.`\
 https://nytimes.com/2022/12/10/opinion/america-gun-violence.html?searchResultPosition=4
 
-**The Cruel Spectacle of ‘The Whale’**\
-`Stories have an impact. They contribute to perception. And how this film deals with fatness is egregious: exploitative and, at times, cruel.`\
-https://nytimes.com/2022/12/10/opinion/the-whale-film.html?searchResultPosition=5
-
 **A Contagion the U.S. and China Both Fear: Each Other**\
 `Each felt their superiority in the face of the pandemic, each found their flaws.`\
-https://nytimes.com/2022/12/10/opinion/a-contagion-the-us-and-china-both-fear-each-other.html?searchResultPosition=6
+https://nytimes.com/2022/12/10/opinion/a-contagion-the-us-and-china-both-fear-each-other.html?searchResultPosition=5
+
+**The Cruel Spectacle of ‘The Whale’**\
+`Stories have an impact. They contribute to perception. And how this film deals with fatness is egregious: exploitative and, at times, cruel.`\
+https://nytimes.com/2022/12/10/opinion/the-whale-film.html?searchResultPosition=6
 
 **True ‘Holiday Magic’ Can’t Be Manufactured**\
 `It’s not about elaborate preparation.`\
