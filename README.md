@@ -1,40 +1,40 @@
+**Brazil Feels the Familiar Sting of Failure**\
+`The country that expects to win every World Cup has been to the semifinals only once since 2002. But it can always find someone new to blame.`\
+https://nytimes.com/2022/12/10/sports/soccer/brazil-neymar.html?searchResultPosition=1
+
+**A Conversation With Anthony Fauci, America’s Doctor**\
+`In conversation with the photographer Wolfgang Tillmans, he reflects on a career spanning more than five decades.`\
+https://nytimes.com/2022/12/10/opinion/anthony-fauci-wolfgang-tillmans.html?searchResultPosition=2
+
+**America’s Toxic Gun Culture**\
+`Gun-rights extremism and political violence are inextricably linked.`\
+https://nytimes.com/2022/12/10/opinion/america-gun-violence.html?searchResultPosition=3
+
+**Anthony Fauci: A Message to the Next Generation of Scientists**\
+`As he prepares to retire, “America’s doctor” reflects on his long career.`\
+https://nytimes.com/2022/12/10/opinion/anthony-fauci-retirement.html?searchResultPosition=4
+
+**A Contagion the U.S. and China Both Fear: Each Other**\
+`Each felt their superiority in the face of the pandemic, each found their flaws.`\
+https://nytimes.com/2022/12/10/opinion/a-contagion-the-us-and-china-both-fear-each-other.html?searchResultPosition=5
+
+**The Cruel Spectacle of “The Whale”**\
+`Stories have an impact. They contribute to perception. And how this film deals with fatness is egregious: exploitative and, at times, cruel.`\
+https://nytimes.com/2022/12/10/opinion/the-whale-film.html?searchResultPosition=6
+
+**True ‘Holiday Magic’ Can’t Be Manufactured**\
+`It’s not about elaborate preparation.`\
+https://nytimes.com/2022/12/10/opinion/holiday-magic.html?searchResultPosition=7
+
+**What Are the Causes of Obesity?**\
+`Readers offer their opinions in response to a guest essay asserting that scientists aren’t sure.`\
+https://nytimes.com/2022/12/10/opinion/letters/obesity-causes.html?searchResultPosition=8
+
+**Trump Struggles, but America Is Still Feverish**\
+`To heal the body politic, we must cure our socio-economic crisis.`\
+https://nytimes.com/2022/12/10/opinion/trump-politics-despar.html?searchResultPosition=9
+
 **In a Future Filled With Electric Cars, AM Radio May Be Left Behind**\
 `Carmakers say electromagnetic interference causes static and noise on AM transmissions, annoying customers. Broadcasters say they could lose a connection to their core listeners, who rely on the radio for emergencies.`\
-https://nytimes.com/2022/12/10/business/media/am-radio-cars.html?searchResultPosition=1
-
-**To Rein In Big Tech, Europe Looked Beyond Lawsuits. Will the U.S. Follow?**\
-`The largest American banks are classified as “systemically important” and subject to more stringent scrutiny. Some lawmakers want to do the same for Big Tech.`\
-https://nytimes.com/2022/12/10/business/big-tech-antitrust-rules.html?searchResultPosition=2
-
-**Rights Advocates Honored at Nobel Peace Prize Ceremony**\
-`The laureates from Russia, Ukraine and Belarus have become symbols of resistance during Russia’s invasion of Ukraine.`\
-https://nytimes.com/2022/12/10/world/europe/nobel-peace-prize-ukraine-russia-belarus.html?searchResultPosition=3
-
-**German Police Block Off Parts of Dresden After Standoff With Gunman**\
-`The police said they believed that the suspect, whom they identified as a 40-year-old German citizen, had shot his mother before moving on to the center of the city.`\
-https://nytimes.com/2022/12/10/world/europe/germany-dresden-shooting.html?searchResultPosition=4
-
-**Fool’s Paradise**\
-`The finale of “The White Lotus” airs tomorrow. Here’s to being a fan, without going overboard.`\
-https://nytimes.com/2022/12/10/briefing/white-lotus-finale.html?searchResultPosition=5
-
-**The World Comes to Montreal to Reverse a Rise in Species Extinction**\
-`A conversation with Prime Minister Justin Trudeau during the United Nations’ biodiversity negotiations in Montreal.`\
-https://nytimes.com/2022/12/10/world/canada/the-world-comes-to-montreal-to-reverse-a-rise-in-species-extinction.html?searchResultPosition=6
-
-**Hong Kong Media Tycoon Sentenced to Five Years in Prison**\
-`Jimmy Lai, the outspoken owner of a pro-democracy newspaper, was sentenced to more than five years in prison for violating terms of a lease contract.`\
-https://nytimes.com/2022/12/10/world/asia/hong-kong-jimmy-lai-sentenced.html?searchResultPosition=7
-
-**His Estate Has 3 Swimming Pools and a Stable. He Says He’s Not Rich.**\
-`A rare look inside a Qatari home offers a glimpse at how the lucrative gas industry has transformed the formerly poor, barren country.`\
-https://nytimes.com/2022/12/10/world/middleeast/qatar-wealth-world-cup.html?searchResultPosition=8
-
-**Transgender Americans Feel Under Siege as Political Vitriol Rises**\
-`Language about pedophiles and “grooming” of young children has intensified a movement, reminiscent of campaigns dating to the 1970s, that seeks to turn transgender people into a political wedge.`\
-https://nytimes.com/2022/12/10/us/politics/anti-transgender-lgbtq-threats-attacks.html?searchResultPosition=9
-
-**Wish You Were Here. Ignore the Floods and Fires.**\
-`Climate change is reshaping the American economy. New Mexico is leaning on ecotourism and sustainable industries to see it through, but extreme weather keeps getting in the way.`\
-https://nytimes.com/2022/12/10/business/new-mexico-climate-change-wildfires-floods.html?searchResultPosition=10
+https://nytimes.com/2022/12/10/business/media/am-radio-cars.html?searchResultPosition=10
 
