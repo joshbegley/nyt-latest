@@ -1,4 +1,4 @@
-**Fans Celebrate Morocco’s Historic World Cup Semifinal Berth**\
+**Fans Celebrate Morocco’s Upset Win in the World Cup Quarterfinals**\
 `Morocco became the first Arab and African country to advance to the World Cup semifinals after stunning Portugal 1-0.`\
 https://nytimes.com/video/sports/soccer/100000008682019/morocco-world-cup-semi-finals.html?searchResultPosition=1
 
