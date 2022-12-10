@@ -26,13 +26,13 @@ https://nytimes.com/2022/12/09/sports/basketball/brittney-griner-return-letter.h
 `Some Democrats had hoped to act on the issue before their party loses unified control of Congress, but a lack of political will and time appears to have sapped momentum for doing so.`\
 https://nytimes.com/2022/12/09/us/politics/congress-debt-ceiling.html?searchResultPosition=7
 
-**Kyrsten Sinema and the Politics of Narcissism**\
-`The Arizona senator’s self-absorbed independence.`\
-https://nytimes.com/2022/12/09/opinion/kyrsten-sinema-independent-narcissism.html?searchResultPosition=8
-
 **Lina Khan, Aiming to Block Microsoft’s Activision Deal, Faces a Challenge**\
 `Ms. Khan, the chair of the Federal Trade Commission, has staked an ambitious trustbusting agenda on a case that may be difficult to win.`\
-https://nytimes.com/2022/12/09/technology/lina-khan-ftc-microsoft-activision.html?searchResultPosition=9
+https://nytimes.com/2022/12/09/technology/lina-khan-ftc-microsoft-activision.html?searchResultPosition=8
+
+**Kyrsten Sinema and the Politics of Narcissism**\
+`The Arizona senator’s self-absorbed independence.`\
+https://nytimes.com/2022/12/09/opinion/kyrsten-sinema-independent-narcissism.html?searchResultPosition=9
 
 **Sununu on Trump: ‘He’s Not Scaring Anyone Out of the Race’**\
 `In a wide-ranging interview, Chris Sununu, the New Hampshire governor, called the Republican presidential primary a tossup. As for Trump? “He’s not clearing the field.”`\
