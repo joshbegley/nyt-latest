@@ -26,9 +26,9 @@ https://nytimes.com/2022/12/10/nyregion/the-only-people-they-hit-were-black-when
 `A sluggish economy continues to leave many young people unemployed, with few job prospects or hopes to tap into the rising incomes their parents enjoyed during boom times.`\
 https://nytimes.com/2022/12/10/business/china-protests-students-jobs.html?searchResultPosition=7
 
-**‘Cuba is Depopulating:’ Largest Exodus Yet Threatens Country’s Future**\
+**‘Cuba Is Depopulating’: Largest Exodus Yet Threatens Country’s Future**\
 `The pandemic and tougher U.S. sanctions have decimated Cuba’s economy, prompting the biggest migration since Fidel Castro rose to power.`\
-https://nytimes.com/2022/12/10/world/cuba-us-migration.html?searchResultPosition=8
+https://nytimes.com/2022/12/10/world/americas/cuba-us-migration.html?searchResultPosition=8
 
 **Brittney Griner Swap Puts Spotlight on Americans in Russia**\
 `Westerners in Russia have to weigh the risks of living and working in the country against professional and financial opportunities there.`\
