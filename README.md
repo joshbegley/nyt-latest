@@ -18,17 +18,17 @@ https://nytimes.com/2022/12/10/well/move/bird-watching-health-benefits.html?sear
 `Siri, Google Search, online marketing and your child’s homework will never be the same. Then there’s the misinformation problem.`\
 https://nytimes.com/2022/12/10/technology/the-new-chat-bots-could-change-the-world-can-you-trust-them.html?searchResultPosition=5
 
+**‘Cuba Is Depopulating’: Largest Exodus Yet Threatens Country’s Future**\
+`The pandemic and tougher U.S. sanctions have decimated Cuba’s economy, prompting the biggest migration since Fidel Castro rose to power.`\
+https://nytimes.com/2022/12/10/world/americas/cuba-us-migration.html?searchResultPosition=6
+
 **‘The Only People They Hit Were Black’: When a Race Riot Roiled New York**\
 `Four decades ago, a bat-wielding mob raged through Washington Square Park, leaving dozens injured and one dead. The violence lasted only 10 minutes, but the repercussions persist today.`\
-https://nytimes.com/2022/12/10/nyregion/the-only-people-they-hit-were-black-when-a-race-riot-roiled-new-york.html?searchResultPosition=6
+https://nytimes.com/2022/12/10/nyregion/the-only-people-they-hit-were-black-when-a-race-riot-roiled-new-york.html?searchResultPosition=7
 
 **Even as China Eases Covid Rules, Some Youths Still Fear a Grim Future**\
 `A sluggish economy continues to leave many young people unemployed, with few job prospects or hopes to tap into the rising incomes their parents enjoyed during boom times.`\
-https://nytimes.com/2022/12/10/business/china-protests-students-jobs.html?searchResultPosition=7
-
-**‘Cuba Is Depopulating’: Largest Exodus Yet Threatens Country’s Future**\
-`The pandemic and tougher U.S. sanctions have decimated Cuba’s economy, prompting the biggest migration since Fidel Castro rose to power.`\
-https://nytimes.com/2022/12/10/world/americas/cuba-us-migration.html?searchResultPosition=8
+https://nytimes.com/2022/12/10/business/china-protests-students-jobs.html?searchResultPosition=8
 
 **Brittney Griner Swap Puts Spotlight on Americans in Russia**\
 `Westerners in Russia have to weigh the risks of living and working in the country against professional and financial opportunities there.`\
