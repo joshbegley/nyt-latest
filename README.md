@@ -14,7 +14,7 @@ https://nytimes.com/2022/12/11/movies/judd-hirsch-the-fabelmans.html?searchResul
 `Adjunct faculty had walked out over wages and compensation for work outside the classroom. The private school had faced a lawsuit from parents.`\
 https://nytimes.com/2022/12/11/nyregion/new-school-nyc-adjunct-strike.html?searchResultPosition=4
 
-**Mets Continue to Splurge With Addition of Japanese Ace**\
+**Mets Continue to Splurge With the Addition of a Japanese Ace**\
 `Kodai Senga will bring his “ghost fork” pitch and his championship pedigree to the Mets in a deal that will push the team’s 2023 spending past $400 million.`\
 https://nytimes.com/2022/12/11/sports/baseball/kodai-senga-mets.html?searchResultPosition=5
 
