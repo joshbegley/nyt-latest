@@ -1,4 +1,4 @@
-**Caleb Williams Caps a Brilliant Sophomore Season With Heisman Trophy**\
+**Caleb Williams Caps Brilliant Sophomore Season With Heisman Trophy**\
 `The quarterback led U.S.C. to 11 wins, the Trojans’ best season since 2017.`\
 https://nytimes.com/2022/12/10/sports/ncaafootball/heisman-caleb-williams-usc.html?searchResultPosition=1
 
