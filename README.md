@@ -18,7 +18,7 @@ https://nytimes.com/2022/12/11/arts/design/fernando-campana-dead.html?searchResu
 `At Alvin Ailey American Dance Theater’s current season at New York City Center, Twyla Tharp’s insouciance shines through, while anger rings true in “Survivors.”`\
 https://nytimes.com/2022/12/11/arts/dance/review-survivors-and-roys-joys.html?searchResultPosition=5
 
-**Eagles Clinch a Playoff Spot With a Big Win Over the Giants**\
+**Eagles Clinch a Playoff Spot but Turn the Giants’ Outlook Gloomier**\
 `Philadelphia improved to 12-1, but the Giants (7-5-1) could not secure a victory for a fourth consecutive game.`\
 https://nytimes.com/2022/12/11/sports/football/eagles-giants-score.html?searchResultPosition=6
 
