@@ -31,7 +31,7 @@ https://nytimes.com/2022/12/11/arts/design/hearst-museum-ohlone-cafe-repatriate-
 https://nytimes.com/2022/12/11/us/politics/louisiana-prison-overdetention.html?searchResultPosition=8
 
 **Paul Silas, N.B.A. Defensive Star and Head Coach, Dies at 79**\
-`Known for his rebounding, he spent 16 seasons as a player, most notably with the Celtics. He also was LeBron James’s first coach as a pro.`\
+`Known for his rebounding, he spent 16 seasons as a player, most notably with the Celtics. He was also LeBron James’s first coach as a pro.`\
 https://nytimes.com/2022/12/11/obituaries/paul-silas-dead.html?searchResultPosition=9
 
 **Review: The Rising Star of Conducting Arrives in New York**\
