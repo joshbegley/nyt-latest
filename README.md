@@ -31,7 +31,7 @@ https://nytimes.com/2022/12/11/us/jeans-shipwreck-auction.html?searchResultPosit
 https://nytimes.com/2022/12/11/learning/whats-going-on-in-this-picture-dec-12-2022.html?searchResultPosition=8
 
 **Libyan Operative Charged in 1988 Lockerbie Bombing Is in F.B.I. Custody**\
-`Abu Agila Mohammad Mas’ud, a Libyan bomb expert, is accused of building the explosive device used in the 1988 bombing of Pan Am Flight 103.`\
+`Abu Agila Mohammad Mas’ud, a Libyan bomb expert, is accused of building the explosive device used in the bombing of Pan Am Flight 103.`\
 https://nytimes.com/2022/12/11/us/politics/masud-pan-am-bombing-libya-fbi.html?searchResultPosition=9
 
 **Ending a Civil War**\
