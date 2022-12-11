@@ -4,7 +4,7 @@ https://nytimes.com/video/science/100000008682300/spacex-ispace-rocket-launch.ht
 
 **In Hostage Diplomacy, It’s Often the Hostage-Takers Who Pay**\
 `Detaining foreigners to wring concessions from their home country’s government holds perils for both sides, but especially, perhaps surprisingly, for the hostage takers.`\
-https://nytimes.com/2022/12/11/world/europe/in-hostage-diplomacy-its-often-the-hostage-takers-who-pay.html?searchResultPosition=2
+https://nytimes.com/2022/12/11/world/europe/hostage-diplomacy-griner.html?searchResultPosition=2
 
 **4 Charged With Corruption in Bribery Inquiry Linked to Qatar**\
 `The Belgian authorities announced other charges, including money laundering, in a case involving current and former members of the European Parliament.`\
