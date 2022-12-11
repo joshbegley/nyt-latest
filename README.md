@@ -1,36 +1,40 @@
+**What’s More Important for This Town: A Library or a Police Station?**\
+`In a community known for cross-country glory, the library is a vital resource for families who eke out a living in the fields. But city leaders want their crowded police force to move in.`\
+https://nytimes.com/2022/12/11/us/mcfarland-calif-library-police-station.html?searchResultPosition=1
+
+**Thousands of Teens Are Being Pushed Into Military’s Junior R.O.T.C.**\
+`In high schools across the country, students are being placed in military classes without electing them on their own. “The only word I can think of is ‘indoctrination,’” one parent said.`\
+https://nytimes.com/2022/12/11/us/jrotc-schools-mandatory-automatic-enrollment.html?searchResultPosition=2
+
+**J.R.O.T.C. Textbooks Offer an Alternative View of the World**\
+`Descriptions of civic life and some key historical events differ from the way they are taught in typical public school textbooks.`\
+https://nytimes.com/2022/12/11/us/jrotc-textbooks.html?searchResultPosition=3
+
+**Behind New York City’s Shift on Mental Health, a Solitary Quest**\
+`The psychiatrist E. Fuller Torrey has been advocating tougher involuntary psychiatric treatment policies for 40 years. Now it’s paying off.`\
+https://nytimes.com/2022/12/11/health/fuller-torrey-psychosis-commitment.html?searchResultPosition=4
+
+**How the Spoken Word Shapes the Written Word**\
+`Whether it’s to themselves, their spouse or their dog, reading aloud is essential to the writing process for these Times reporters.`\
+https://nytimes.com/2022/12/11/insider/how-the-spoken-word-shapes-the-written-word.html?searchResultPosition=5
+
+**New York Subway Fare Could Soon Top $3 to Offset Steep Drop in Riders**\
+`Raising the transit system’s base fare twice by 2025 is among the options being considered as officials try to stave off a budget disaster.`\
+https://nytimes.com/2022/12/11/nyregion/new-york-subway-fare-mta.html?searchResultPosition=6
+
+**‘I Was Walking Along the Path by the East River Near 20th Street’**\
+`Awaiting a special moment, a sidewalk exchange and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2022/12/11/nyregion/metropolitan-diary.html?searchResultPosition=7
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2022/12/11/crosswords/spelling-bee-forum.html?searchResultPosition=8
+
 **Steve Martin and Martin Short Trade Barbs, and Eulogies, on ‘S.N.L.’**\
 `The two seasoned comedians brought their playful rivalry to this week’s episode, which featured the musical guest Brandi Carlile.`\
-https://nytimes.com/2022/12/11/arts/television/saturday-night-live-steve-martin-short.html?searchResultPosition=1
+https://nytimes.com/2022/12/11/arts/television/saturday-night-live-steve-martin-short.html?searchResultPosition=9
 
 **Corrections: Dec. 11, 2022**\
 `Corrections that appeared in print on Sunday, Dec. 11, 2022.`\
-https://nytimes.com/2022/12/11/pageoneplus/corrections-dec-11-2022.html?searchResultPosition=2
-
-**Quotation of the Day: Largest Exodus Imperils Future of Ailing Cuba**\
-`Quotation of the Day for Sunday, December 11, 2022.`\
-https://nytimes.com/2022/12/11/pageoneplus/quotation-of-the-day-largest-exodus-imperils-future-of-ailing-cuba.html?searchResultPosition=3
-
-**War Next Door Brings Energy Crunch, and Paid Protests, to Moldova**\
-`The tiny country, starved of natural gas and electricity because of the conflict in neighboring Ukraine, is confronting street rallies bankrolled by a pro-Russian politician to target its pro-Western government.`\
-https://nytimes.com/2022/12/11/world/europe/moldova-russian-ukraine-war.html?searchResultPosition=4
-
-**Next Launch to the Moon: A Japanese Company’s Lunar Lander**\
-`The company, Ispace, is carrying a rover from the United Arab Emirates, a Japanese robot and other cargo in its bid to possibly be the first commercial lander to reach the moon.`\
-https://nytimes.com/2022/12/11/science/spacex-ispace-japan-moon-lander.html?searchResultPosition=5
-
-**Day 11: Why Do We Drink These Holiday Cocktails Every Year?**\
-`Hot or cold? Glogg or nog? A century’s worth of cocktail coverage in the Times chronicles our conflicted feelings about seasonal staples.`\
-https://nytimes.com/2022/12/11/style/popular-holiday-cocktails-nog.html?searchResultPosition=6
-
-**As New Leaders Take Office, Los Angeles Struggles With Ongoing Wounds**\
-`An altercation and City Council protest indicate the city still has a long way to go to overcome divisions that erupted this year.`\
-https://nytimes.com/2022/12/10/us/los-angeles-council-fight-transition.html?searchResultPosition=7
-
-**Caleb Williams Caps a Brilliant Sophomore Season With Heisman Trophy**\
-`The quarterback led U.S.C. to 11 wins, the Trojans’ best season since 2017.`\
-https://nytimes.com/2022/12/10/sports/ncaafootball/heisman-caleb-williams-usc.html?searchResultPosition=8
-
-**Fans Celebrate Morocco’s Upset Win in the World Cup Quarterfinals**\
-`Morocco became the first Arab and African country to advance to the World Cup semifinals after stunning Portugal 1-0.`\
-https://nytimes.com/video/sports/soccer/100000008682019/morocco-world-cup-semi-finals.html?searchResultPosition=10
+https://nytimes.com/2022/12/11/pageoneplus/corrections-dec-11-2022.html?searchResultPosition=10
 
