@@ -3,7 +3,7 @@
 https://nytimes.com/2022/12/12/nyregion/hasidic-yeshivas-schools-divorce.html?searchResultPosition=1
 
 **Biden Is Bringing Africa’s Leaders to Washington, Hoping to Impress**\
-`China, Russia, Turkey and the United Arab Emirates are all vying for influence in Africa. What will the Biden administration offer at a summitthat starts Tuesday in Washington?`\
+`China, Russia, Turkey and the United Arab Emirates are all vying for influence in Africa. What will the Biden administration offer at a summit that starts Tuesday in Washington?`\
 https://nytimes.com/2022/12/12/world/africa/us-africa-summit.html?searchResultPosition=2
 
 **Two Fashion Designers on Staying Inspired and Independent**\
