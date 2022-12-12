@@ -1,40 +1,40 @@
-**What Is the Best Winter Coat That Is Not a Puffer?**\
-`A reader is looking for a warm winter coat that does not look like a sleeping bag.`\
-https://nytimes.com/2022/12/12/style/best-winter-coat-puffer-overcoat.html?searchResultPosition=1
+**The World Cup Is Ending, but the Migrant Labor Economy Grinds On**\
+`The World Cup was a $220 billion construction project powered by migrant workers. We went  to Nepal – a major source of labor for Qatar — to find out what’s driving workers to do dangerous jobs that many say they can’t afford to lose.`\
+https://nytimes.com/2022/12/12/sports/world-cup-migrant-workers.html?searchResultPosition=1
 
-**Why Some Hasidic Children Can’t Leave Failing Schools**\
-`Parents who try to withdraw their children from yeshivas over a lack of secular education often cannot do so, hampered by social pressure and a rabbinical court system.`\
-https://nytimes.com/2022/12/12/nyregion/hasidic-yeshivas-schools-divorce.html?searchResultPosition=2
+**How We Saw the Arts This Year**\
+`These are the images that defined a remarkable time across the worlds of art, music, dance and performance.`\
+https://nytimes.com/2022/12/12/arts/best-arts-photos-2022.html?searchResultPosition=2
 
-**Biden Is Bringing Africa’s Leaders to Washington, Hoping to Impress**\
-`China, Russia, Turkey and the United Arab Emirates are all vying for influence in Africa. What will the Biden administration offer at a summit that starts Tuesday in Washington?`\
-https://nytimes.com/2022/12/12/world/africa/us-africa-summit.html?searchResultPosition=3
+**$1.3 Million Homes in California**\
+`A hillside house in Lake Arrowhead, a two-bedroom condominium in San Francisco and a Tudor Revival cottage in Long Beach.`\
+https://nytimes.com/2022/12/12/realestate/1-3-million-homes-in-california.html?searchResultPosition=3
 
-**Two Fashion Designers on Staying Inspired and Independent**\
-`While decades apart in experience, Dries Van Noten and Christopher John Rogers are both known for their creative use of color and holding on to their autonomy.`\
-https://nytimes.com/2022/12/12/style/fashion-designers-van-noten-christopher-rogers.html?searchResultPosition=4
+**What You Get for $1.3 Million in California**\
+`A hillside house in Lake Arrowhead, a two-bedroom condominium in San Francisco and a Tudor Revival cottage in Long Beach.`\
+https://nytimes.com/slideshow/2022/12/12/realestate/what-you-get-for-1-3-million-in-california.html?searchResultPosition=4
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/12/12/crosswords/spelling-bee-forum.html?searchResultPosition=5
+**Taking to the Woods With Maine’s ‘Tree Tippers’**\
+`Generations of Mainers have made a living working seasonal, nature-based jobs. Harvesting the balsam used to make wreaths is one of them.`\
+https://nytimes.com/2022/12/12/travel/maine-balsam-tippers.html?searchResultPosition=5
 
-**Where Are Midterm Recounts Happening?**\
-`In Arizona and a handful of other states, official recounts are underway in especially tight races. Here’s a look.`\
-https://nytimes.com/interactive/2022/12/12/us/politics/arizona-midterm-recounts.html?searchResultPosition=6
+**Rockefeller Center Is the New York Restaurant Event of the Year**\
+`In a miracle off 49th Street, a complex where the food skewed corporate is suddenly a dining destination where chefs pursue their own ideas.`\
+https://nytimes.com/2022/12/12/dining/rockefeller-center-restaurants.html?searchResultPosition=6
 
-**Word of the Day: remiss**\
-`This word has appeared in 20 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/12/12/learning/word-of-the-day-remiss.html?searchResultPosition=7
+**After an Election Tie in New Hampshire, a Do-Over Without the Drama**\
+`One race’s final tally: 970 to 970. So two candidates square off again in a city where voters are mostly keeping their politics to themselves.`\
+https://nytimes.com/2022/12/12/us/new-hampshire-state-house-election-tie.html?searchResultPosition=7
 
-**What’s on TV This Week: Lots of Holiday Specials and ‘Yellowstone’**\
-`NBC, The CW and ABC celebrate the holidays and the Paramount show airs its midseason finale.`\
-https://nytimes.com/2022/12/12/arts/television/whats-on-tv-this-week-holiday-specials-and-yellowstone.html?searchResultPosition=8
+**The Year in Micro News**\
+`You may have forgotten — or wanted to forget — what happened on the internet in 2022. Here are some reminders.`\
+https://nytimes.com/2022/12/12/style/the-year-in-micro-news.html?searchResultPosition=8
 
-**Your Monday Briefing**\
-`The German aristocrat connected to a plot to overthrow the government.`\
-https://nytimes.com/2022/12/12/briefing/german-conspiracy-russia-war.html?searchResultPosition=9
+**Japan Needs Indian Tech Workers. But Do They Need Japan?**\
+`Recruiters call the push a crucial test of whether the world’s third-largest economy can compete with the U.S. and Europe for global talent.`\
+https://nytimes.com/2022/12/12/business/japan-indian-tech-workers.html?searchResultPosition=9
 
-**Winter Storm Hits the U.S. West**\
-`The storm is expected to reach the Great Basin and the Desert Southwest by Monday, the Weather Service said.`\
-https://nytimes.com/video/us/100000008682817/california-nevada-storm-snow.html?searchResultPosition=10
+**Russia Is Using Old Ukrainian Missiles Against Ukraine, General Says**\
+`The missiles, returned to Russia in the 1990s under an agreement aimed at assuring Ukraine’s sovereignty and territorial integrity, have shown up in rubble.`\
+https://nytimes.com/2022/12/12/world/europe/russia-ukraine-missiles.html?searchResultPosition=10
 
