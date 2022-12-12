@@ -34,7 +34,7 @@ https://nytimes.com/2022/12/12/style/the-year-in-micro-news.html?searchResultPos
 `Recruiters call the push a crucial test of whether the world’s third-largest economy can compete with the U.S. and Europe for global talent.`\
 https://nytimes.com/2022/12/12/business/japan-indian-tech-workers.html?searchResultPosition=9
 
-**Russia Is Using Old Ukrainian Missiles Against Ukraine, General Says**\
-`The missiles, returned to Russia in the 1990s under an agreement aimed at assuring Ukraine’s sovereignty and territorial integrity, have shown up in rubble.`\
-https://nytimes.com/2022/12/12/world/europe/russia-ukraine-missiles.html?searchResultPosition=10
+**These Bills Could Help End the War on Drugs**\
+`There’s a bipartisan opportunity to help the drug crisis. `\
+https://nytimes.com/2022/12/12/opinion/drug-crisis-addiction.html?searchResultPosition=10
 
