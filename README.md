@@ -7,7 +7,7 @@ https://nytimes.com/2022/12/12/arts/design/bro-sis-harlem-community-center.html?
 https://nytimes.com/2022/12/12/dining/latke-party.html?searchResultPosition=2
 
 **Wall Street Journal Names a New Editor**\
-`News Corp said that Emma Tucker, a longtime editor in London, would replace Matthew Murray, who has led the news organization for four years.`\
+`News Corp said that Emma Tucker, a longtime editor in London, would replace Matt Murray, who has led the news organization for four years.`\
 https://nytimes.com/2022/12/12/business/media/wall-street-journal-matt-murray-emma-tucker.html?searchResultPosition=3
 
 **Police Seek 18-Year-Old Man After Teen Girl Is Fatally Stabbed in Harlem**\
