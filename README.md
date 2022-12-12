@@ -23,7 +23,7 @@ https://nytimes.com/2022/12/12/business/musk-twitter-fauci.html?searchResultPosi
 https://nytimes.com/2022/12/12/learning/what-would-you-pick-as-word-of-the-year.html?searchResultPosition=6
 
 **Snow and Cold Bring Parts of U.K. to a Standstill**\
-`Unusually freezing temperatures raised concerns about energy costs. Three children died after falling into an icy lake, the police said.`\
+`Freezing temperatures raised concerns about energy costs. Three children died after falling into an icy lake, the police said.`\
 https://nytimes.com/2022/12/12/world/europe/uk-cold-london-snow.html?searchResultPosition=7
 
 **Winter Illnesses**\
