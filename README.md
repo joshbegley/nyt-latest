@@ -1,4 +1,4 @@
-**Kamala Harris Swears in Karen Bass as Los Angeles Mayor**\
+**Kamala Harris Swears in Karen Bass as Los Angeles’s Mayor**\
 `Karen Bass is the first woman and the second Black person to be elected mayor of Los Angeles. During her inaugural speech, Ms. Bass said her first act would be to declare a state of emergency on homelessness.`\
 https://nytimes.com/video/us/politics/100000008682607/karen-bass-los-angeles-mayor-harris.html?searchResultPosition=1
 
