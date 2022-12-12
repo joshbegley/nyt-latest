@@ -1,5 +1,5 @@
 **Kyrsten Sinema’s Exit From the Democratic Party**\
-`Readers analyze the senator’s decision to become an independent. Also: The incumbent’s advantage; Black homeowners; an opera buff’s dream; alone, and feree.`\
+`Readers analyze the senator’s decision to become an independent. Also: The incumbent’s advantage; Black homeowners; an opera buff’s dream; alone, and free.`\
 https://nytimes.com/2022/12/12/opinion/letters/kyrsten-sinema-democrats.html?searchResultPosition=2
 
 **Ashley Bickerton, Unflinchingly Honest About His Work and Illness**\
