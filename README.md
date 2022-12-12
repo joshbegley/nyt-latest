@@ -7,7 +7,7 @@ https://nytimes.com/2022/12/12/opinion/sexism-shareholders-corporate-governance.
 https://nytimes.com/2022/12/12/books/bookforum-magazine-closing.html?searchResultPosition=2
 
 **A Brooklyn Hospital Network Battles a Cyberattack**\
-`For nearly two months, medical professionals have been using pen and paper as experts work to get the facilities fully back online.`\
+`Since late November, medical professionals have been using pen and paper as experts work to get the facilities fully back online.`\
 https://nytimes.com/2022/12/12/nyregion/brooklyn-hospital-cyberattack.html?searchResultPosition=3
 
 **‘Kindred’ Review: Octavia Butler Comes to the Screen**\
