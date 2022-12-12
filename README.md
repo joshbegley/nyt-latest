@@ -34,7 +34,7 @@ https://nytimes.com/2022/12/12/briefing/covid-rsv-flu.html?searchResultPosition=
 `American tech companies have been shedding jobs, raising worries about a broader ripple effect.`\
 https://nytimes.com/2022/12/12/podcasts/the-daily/tech-layoffs-job-market-us-economy.html?searchResultPosition=9
 
-**Golden Globes Announce 2023 Nominations**\
+**Golden Globes Announce 2023 Nominations After Recent Troubles**\
 `The tarnished awards ceremony will air on NBC in January in a one-year trial. But which stars will show up to collect their trophies?`\
 https://nytimes.com/2022/12/12/movies/golden-globes-nominees-list.html?searchResultPosition=10
 
