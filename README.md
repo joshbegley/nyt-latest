@@ -15,7 +15,7 @@ https://nytimes.com/2022/12/11/arts/dance/review-folds.html?searchResultPosition
 https://nytimes.com/2022/12/11/crosswords/daily-puzzle-2022-12-12.html?searchResultPosition=4
 
 **What We Learned From Week 14 in the N.F.L.**\
-`Receiver Jameson Williams gave the Lions a major boost to beat the Vikings, the Cowboys avoided being upset but Houston exposed a weakness, and the Jaguars’ Trevor Lawrence is earning some respect.`\
+`Patrick Mahomes’s magic made up for his errors against the Broncos, Brock Purdy took control of the 49ers’ offense, and receiver Jameson Williams gave the Lions a major boost to beat the Vikings.`\
 https://nytimes.com/2022/12/11/sports/football/nfl-week-14-scores.html?searchResultPosition=5
 
 **Fernando Campana, Provocateur of Furniture Design, Is Dead at 61**\
