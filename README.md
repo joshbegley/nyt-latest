@@ -1,6 +1,6 @@
 **Photography’s Road From Edgy to Excess**\
 `David LaChapelle’s religious-themed images reprise narratives from the 19th century. Steven Klein embraces blood and menace. But whatever happened to a wink and wit?`\
-https://nytimes.com/2022/12/12/arts/design/steven-klein-david-lachapelle-photographs-fashion.html?searchResultPosition=1
+https://nytimes.com/2022/12/12/arts/design/steven-klein-david-lachapelle-photos.html?searchResultPosition=1
 
 **Scott Stringer Sues for Defamation Over Sexual Assault Claim**\
 `Mr. Stringer, the former New York City comptroller, said that a woman’s claims of sexual assault were lies and caused “irreparable harm” as he ran for mayor.`\
