@@ -2,7 +2,7 @@
 `Saniyah Lawrence, 16, was found in an apartment, mortally wounded after an argument. She was one of a series of teenage homicide victims this year.`\
 https://nytimes.com/2022/12/12/nyregion/16-year-old-stabbing-harlem.html?searchResultPosition=1
 
-**Inflation Forecasts Were Wrong Last Year. Should We Believe them Now?**\
+**Inflation Forecasts Were Wrong Last Year. Should We Believe Them Now?**\
 `Economists misjudged how much staying power inflation would have. Next year could be better — but there’s ample room for humility.`\
 https://nytimes.com/2022/12/12/business/economy/inflation-forecasts-historical-outlook.html?searchResultPosition=2
 
