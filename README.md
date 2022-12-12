@@ -18,7 +18,7 @@ https://nytimes.com/2022/12/12/us/politics/republican-national-committee-rnc.htm
 `The conservative nonprofit said it had paid for staff to accompany its founder, James O’Keefe, when he starred in a 2021 production of “Oklahoma!”`\
 https://nytimes.com/2022/12/12/us/politics/project-veritas-james-okeefe-taxes.html?searchResultPosition=5
 
-**FTX’s Sam Bankman-Fried Said to Be Arrested in the Bahamas**\
+**FTX’s Sam Bankman-Fried Is Arrested in the Bahamas**\
 `A statement by the government of the Bahamas said Mr. Bankman-Fried was arrested after prosecutors in the United States filed criminal charges.`\
 https://nytimes.com/2022/12/12/business/ftx-sam-bankman-fried-bahamas.html?searchResultPosition=6
 
