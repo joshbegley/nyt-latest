@@ -1,6 +1,6 @@
 **Mastermind of Tax Scheme Sentenced to Eight Years in Prison**\
 `Hanno Berger, a former lawyer and tax adviser, was at the center of a scandal that cost Germany nearly $300 million.`\
-https://nytimes.com/2022/12/13/business/hanno-berger-sentenced-to-eight-years-in-prison.html?searchResultPosition=1
+https://nytimes.com/2022/12/13/business/hanno-berger-sentenced-tax-fraud.html?searchResultPosition=1
 
 **Curt Simmons, Last of the Phillies’ Whiz Kids, Dies at 93**\
 `A three-time All Star pitcher, he helped Philadelphia win the pennant in 1950 and was with the Cardinals when they won the 1964 World Series.`\
