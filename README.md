@@ -7,7 +7,7 @@ https://nytimes.com/video/us/100000008685020/tornado-texas-weather.html?searchRe
 https://nytimes.com/2022/12/13/nyregion/judge-in-bankman-fried-case-is-part-of-a-local-legal-clan.html?searchResultPosition=2
 
 **French Court Convicts 8 of Aiding 2016 Terrorist Attack in Nice**\
-`The defendants were found guilty/not guilty of helping the perpetrator prepare for the assault in which he plowed a truck into a Bastille Day crowd, killing 86 people.`\
+`The defendants were found guilty of helping the perpetrator prepare for the assault in which he plowed a truck into a Bastille Day crowd, killing 86 people.`\
 https://nytimes.com/2022/12/13/world/europe/france-nice-terrorist-attack-trial.html?searchResultPosition=3
 
 **Violence Spreads Through Peru in Days After Its President’s Ouster**\
@@ -34,7 +34,7 @@ https://nytimes.com/2022/12/13/opinion/letters/gender-identity.html?searchResult
 `The indictment charges Mr. Bankman-Fried with eight counts, including wire fraud on customers and lenders and conspiracy to defraud the United States and violate campaign finance laws, among other charges.`\
 https://nytimes.com/interactive/2022/12/13/us/samuel-bankman-fried-indictment.html?searchResultPosition=9
 
-**Prosecutors Say that FTX Was Engaged in a ‘Massive, Yearslong Fraud’**\
+**Prosecutors Say FTX Was Engaged in a ‘Massive, Yearslong Fraud’**\
 `A criminal indictment unsealed on Tuesday and a complaint by the S.E.C. describe years of wrongdoing in Sam Bankman-Fried’s crypto empire.`\
 https://nytimes.com/2022/12/13/business/ftx-sam-bankman-fried-fraud-charges.html?searchResultPosition=10
 
