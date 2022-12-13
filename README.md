@@ -30,8 +30,8 @@ https://nytimes.com/slideshow/2022/12/13/realestate/in-seattle-a-lake-house-that
 `If you’re feeling sick, this handy chart will help you zero in on which virus you might have.`\
 https://nytimes.com/2022/12/13/well/covid-flu-rsv-symptoms.html?searchResultPosition=8
 
-**Fire Erupts at an N.Y.P.D. Evidence Center in Brooklyn**\
-`A three-alarm fire on Tuesday burned parts of a warehouse compound in Red Hook that contained vehicles used for evidence in cases, as well as large stores of DNA material.`\
+**Massive Fire Burns Down Part of an N.Y.P.D. Evidence Center in Brooklyn**\
+`A three-alarm fire led to the collapse of a portion of a warehouse compound in Red Hook that contained large stores of evidence, most of which may be destroyed, according to officials.`\
 https://nytimes.com/2022/12/13/nyregion/nypd-brooklyn-fire-evidence-center.html?searchResultPosition=9
 
 **Ixta, Serving Mexican Food With an Eye to Tulum, Opens on the Bowery**\
