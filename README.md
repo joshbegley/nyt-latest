@@ -1,40 +1,40 @@
+**Don Lewis, Unsung Pioneer of Electronic Music, Dies at 81**\
+`He invented the first system for integrating multiple instruments using a single control panel, predating the MIDI controller by years.`\
+https://nytimes.com/2022/12/13/arts/music/don-lewis-dead.html?searchResultPosition=1
+
 **Concern Grows in Israel’s Military as Netanyahu Nears Coalition Deal**\
 `Preliminary agreements between Benjamin Netanyahu and his far-right allies have raised questions about political interference in the army’s chain of command.`\
-https://nytimes.com/2022/12/13/world/middleeast/netanyahu-israel-military.html?searchResultPosition=1
+https://nytimes.com/2022/12/13/world/middleeast/netanyahu-israel-military.html?searchResultPosition=2
 
 **SZA Revels in Mixed Emotions on ‘SOS’**\
 `On her second album, the singer with an unpredictable and emotionally charged flow expands her sound as she ponders all her conflicting impulses.`\
-https://nytimes.com/2022/12/13/arts/music/sza-sos-review.html?searchResultPosition=2
+https://nytimes.com/2022/12/13/arts/music/sza-sos-review.html?searchResultPosition=3
 
 **Banksy’s works near Kyiv have inspired Ukraine. But did one activist go too far?**\
 `The removal of a Banksy mural sparks a debate about the future of a handful of his works scattered in and around Ukraine’s capital.`\
-https://nytimes.com/2022/12/13/world/europe/banksy-ukraine-kyiv.html?searchResultPosition=3
+https://nytimes.com/2022/12/13/world/europe/banksy-ukraine-kyiv.html?searchResultPosition=4
 
 **Tornado Hits North Texas as Storms Sweep the South**\
 `There were no immediate reports of damage or injuries after the tornado hit an area northwest of Dallas.`\
-https://nytimes.com/2022/12/13/us/texas-tornado-damage.html?searchResultPosition=4
+https://nytimes.com/2022/12/13/us/texas-tornado-damage.html?searchResultPosition=5
 
 **Europe Reaches Deal for Carbon Tax Law on Imports**\
 `If approved, as expected, the plan would impose tariffs on countries that fail to take strict steps to curb their greenhouse gas emissions.`\
-https://nytimes.com/2022/12/13/world/europe/eu-carbon-tax-law-imports.html?searchResultPosition=5
+https://nytimes.com/2022/12/13/world/europe/eu-carbon-tax-law-imports.html?searchResultPosition=6
 
 **The Year In Illustration**\
 `The most memorable New York Times illustrations of 2022`\
-https://nytimes.com/interactive/2022/12/13/arts/year-in-illustration.html?searchResultPosition=6
+https://nytimes.com/interactive/2022/12/13/arts/year-in-illustration.html?searchResultPosition=7
 
 **Why Do Stanford, Harvard and NASA Still Honor a Nazi Past?**\
 `At a time when this country is reconsidering our darkest corners of history, Nazi scientists are still lauded across the country.`\
-https://nytimes.com/2022/12/13/opinion/stanford-harvard-nasa-nazi-scientists.html?searchResultPosition=7
+https://nytimes.com/2022/12/13/opinion/stanford-harvard-nasa-nazi-scientists.html?searchResultPosition=8
 
 **Despite Soaring Deaths in Somalia, Monitor Says It’s Not Yet a Famine. Some Object.**\
 `An official declaration of famine would unleash aid and attention. Some experts say Somalia shows that the international system for making the judgment is broken.`\
-https://nytimes.com/2022/12/13/world/africa/somalia-famine.html?searchResultPosition=8
+https://nytimes.com/2022/12/13/world/africa/somalia-famine.html?searchResultPosition=9
 
 **A Conversation With Eric Garcetti, Who Led Los Angeles for Nearly a Decade**\
 `As he steps down, the city’s 42nd mayor talks legacy, racial tensions and whether he’ll become the U.S. ambassador to India.`\
-https://nytimes.com/2022/12/13/us/eric-garcetti-los-angeles-mayor.html?searchResultPosition=9
-
-**Sam Bankman-Fried’s ‘House of Cards’ Teeters**\
-`Now under arrest, the fallen crypto mogul faces a barrage of charges, including defrauding investors out of billions.`\
-https://nytimes.com/2022/12/13/business/sam-bankman-fried-sbf-arrest-ftx-crypto.html?searchResultPosition=10
+https://nytimes.com/2022/12/13/us/eric-garcetti-los-angeles-mayor.html?searchResultPosition=10
 
