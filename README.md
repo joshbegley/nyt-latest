@@ -10,7 +10,7 @@ https://nytimes.com/2022/12/13/briefing/morocco-world-cup.html?searchResultPosit
 `United plans to take delivery of the planes over an eight-year span to refresh its fleet and increase fuel efficiency, with an option to buy 100 more.`\
 https://nytimes.com/2022/12/13/business/united-airlines-boeing.html?searchResultPosition=3
 
-**The Far-Right Plot to Seize the German Government**\
+**The Far-Right Plot to Overthrow the German Government**\
 `How conspiracy theories, pandemic anger and right-wing extremism combined to supercharge a dangerous fringe group.`\
 https://nytimes.com/2022/12/13/podcasts/the-daily/far-right-german-plot.html?searchResultPosition=4
 
