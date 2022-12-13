@@ -6,8 +6,8 @@ https://nytimes.com/2022/12/13/style/tiny-modern-love-stories-i-decided-to-be-br
 `As typing increasingly replaces handwriting, an old form of penmanship has become an anachronism.`\
 https://nytimes.com/2022/12/13/opinion/teaching-cursive-handwriting.html?searchResultPosition=2
 
-**FTX chief: Company Appeared to Use ‘Old-Fashioned Embezzlement'**\
-`The man charged with recovering customer funds from the collapsed crypto exchange described an ‘unprecedented’ lack of record keeping.`\
+**FTX chief: Company Appeared to Use ‘Old-Fashioned Embezzlement’**\
+`The man charged with recovering customer funds from the collapsed crypto exchange described an “unprecedented” lack of record keeping.`\
 https://nytimes.com/2022/12/13/technology/ftx-crypto-hearing.html?searchResultPosition=3
 
 **Despite Modest G.O.P. Gains, Democrats Maintain Grasp on Suburbs**\
