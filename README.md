@@ -26,13 +26,13 @@ https://nytimes.com/2022/12/12/business/binance-crypto-ftx-collapse.html?searchR
 `The finale of the hit show was absurd in the existential sense.`\
 https://nytimes.com/2022/12/12/opinion/the-white-lotus-finale-toxic-masculinity.html?searchResultPosition=7
 
-**Why America Is Getting Tough on Trade**\
-`Trump huffed and puffed; Biden is rewriting the rules.`\
-https://nytimes.com/2022/12/12/opinion/america-trade-biden.html?searchResultPosition=8
-
 **Review: ‘Merrily We Roll Along’ Returns, the Way It Never Was**\
 `Maria Friedman’s rethinking of the much-loved, much-monkeyed-with 1981 Sondheim-Furth flop gets very close to coherence, and all the way to enjoyable.`\
-https://nytimes.com/2022/12/12/theater/merrily-we-roll-along-review.html?searchResultPosition=9
+https://nytimes.com/2022/12/12/theater/merrily-we-roll-along-review.html?searchResultPosition=8
+
+**Why America Is Getting Tough on Trade**\
+`Trump huffed and puffed; Biden is rewriting the rules.`\
+https://nytimes.com/2022/12/12/opinion/america-trade-biden.html?searchResultPosition=9
 
 **Putin Skips Annual News Conference, Avoiding Possible Questions on War**\
 `The December event has offered reporters rare — albeit stage-managed — chances to pose hard questions. With the war going poorly for Russia, that could have been awkward.`\
