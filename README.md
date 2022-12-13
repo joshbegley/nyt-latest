@@ -34,7 +34,7 @@ https://nytimes.com/2022/12/13/books/review/misty-copeland-the-wind-at-my-back-e
 `In Tomihiko Morimi’s novel, a college junior in Kyoto has four chances at happiness, with frustratingly similar results.`\
 https://nytimes.com/2022/12/13/books/review/the-tatami-galaxy-tomihiko-morimi.html?searchResultPosition=9
 
-**Major Nuclear Fusion Energy Announcement: How to Watch**\
-`The Energy Department on Tuesday morning will present “a major scientific breakthrough” achieved at Lawrence Livermore National Laboratory.`\
-https://nytimes.com/2022/12/13/science/nuclear-fusion-energy-breakthrough.html?searchResultPosition=10
+**Time Is Way Weirder Than You Think**\
+`The neuroscientist Dean Buonomano talks expansively about time — what it is and all the ways humans perceive its passing.`\
+https://nytimes.com/2022/12/13/opinion/ezra-klein-podcast-dean-buonomano.html?searchResultPosition=10
 
