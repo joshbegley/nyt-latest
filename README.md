@@ -3,7 +3,7 @@
 https://nytimes.com/video/us/politics/100000008684858/biden-inflation.html?searchResultPosition=1
 
 **Hey Silicon Valley, It’s Time to Wear a Suit**\
-`Sam Bankman-Fried’s choices may signal the end of and mystique about looking schlubby.`\
+`Sam Bankman-Fried’s choices may signal an end to the schlubby mystique.`\
 https://nytimes.com/2022/12/13/style/sam-bankman-fried-style.html?searchResultPosition=2
 
 **House Committee Vows to Find Answers Behind FTX Collapse**\
