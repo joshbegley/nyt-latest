@@ -1,4 +1,4 @@
-**2 Officers and Bystander Are Killed in Australia Shootout**\
+**2 Officers and Bystander Are Killed in Rural Australia Shootout**\
 `Three other people, believed to be the assailants, were killed by the police during the incident, the authorities in the state of Queensland said.`\
 https://nytimes.com/2022/12/12/world/australia/shooting-queensland-officers.html?searchResultPosition=1
 
