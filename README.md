@@ -7,7 +7,7 @@ https://nytimes.com/2022/12/13/business/cpi-report-november-takeaways.html?searc
 https://nytimes.com/2022/12/13/technology/john-j-ray-iii-ftx-chief-executive.html?searchResultPosition=2
 
 **Tony Awards to Be Staged in Manhattan’s Washington Heights**\
-`The annual ceremony honoring Broadway’s top productions and performers is moving to the Manhatta neighborhood where “In the Heights” was set.`\
+`The annual ceremony honoring Broadway’s top productions and performers is moving to the New York neighborhood where the musical “In the Heights” was set.`\
 https://nytimes.com/2022/12/13/theater/tony-awards-united-palace-washington-heights.html?searchResultPosition=3
 
 **Don Lewis, Unsung Pioneer of Electronic Music, Dies at 81**\
