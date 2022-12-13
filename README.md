@@ -18,6 +18,10 @@ https://nytimes.com/2022/12/13/business/damian-williams-ftx.html?searchResultPos
 `Astor Place Hairstylists turns into an underground dance club once a month, thanks to an enterprising sophomore.`\
 https://nytimes.com/2022/12/13/style/nyu-students-party-at-beloved-barbershop.html?searchResultPosition=5
 
+**As Regents Ready U.C.L.A. Decision, Emails Show Little Public Support**\
+`Emails obtained through a records request showed backlash to U.C.L.A.’s planned move to the Big Ten among alumni and parents.`\
+https://nytimes.com/2022/12/13/sports/ncaafootball/ucla-big-ten-uc-regents.html?searchResultPosition=6
+
 **Lloyd Newman, Teenage Chronicler of ‘Ghetto Life,’ Dies at 43**\
 `He and LeAlan Jones recorded stories of life and death in a Chicago housing project for NPR, winning a Peabody Award and inspiring the birth of StoryCorps.`\
 https://nytimes.com/2022/12/13/business/media/lloyd-newman-dead.html?searchResultPosition=7
