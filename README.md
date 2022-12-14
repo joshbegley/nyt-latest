@@ -1,40 +1,40 @@
+**New Suit Uses Data to Back Racial Bias Claims Against State Farm**\
+`Black customers have long claimed that the nation’s largest home insurer discriminates against them. A lawsuit claims a nine-month study provides some proof.`\
+https://nytimes.com/2022/12/14/business/state-farm-racial-bias-lawsuit.html?searchResultPosition=1
+
 **For the Lost Children of Tuam, a Proper Burial at Last**\
 `Hundreds of bodies were buried under a playground at a home for unwed mothers, many in a disused sewage system. Almost six years after Ireland acknowledged the grim discovery, a resolution is finally near.`\
-https://nytimes.com/2022/12/14/world/europe/ireland-mother-and-baby-home-tuam.html?searchResultPosition=1
+https://nytimes.com/2022/12/14/world/europe/ireland-mother-and-baby-home-tuam.html?searchResultPosition=2
 
 **New Zealand Bans Cigarette Sales to Everyone Born After 2008**\
 `The new laws are aimed at eliminating most smoking by 2025 and slashing the number of licensed tobacco retailers.`\
-https://nytimes.com/2022/12/14/world/asia/new-zealand-smoking-ban.html?searchResultPosition=2
+https://nytimes.com/2022/12/14/world/asia/new-zealand-smoking-ban.html?searchResultPosition=3
 
 **The 10 Best California Books of 2022**\
 `These new works of fiction and nonfiction vividly render the state’s past and present.`\
-https://nytimes.com/2022/12/14/us/10-best-california-books-2022.html?searchResultPosition=3
+https://nytimes.com/2022/12/14/us/10-best-california-books-2022.html?searchResultPosition=4
 
 **The New Etiquette of Kids and Coughs**\
 `When a viral question goes viral.`\
-https://nytimes.com/2022/12/14/opinion/covid-symptoms.html?searchResultPosition=4
+https://nytimes.com/2022/12/14/opinion/covid-symptoms.html?searchResultPosition=5
 
 **How Can I Get My Aunt to Stop Sending Me Lavish Holiday Gifts?**\
 `A reader feels overwhelmed by the extravagant Christmas gifts she receives from an aunt living overseas.`\
-https://nytimes.com/2022/12/14/style/holiday-gift-anxiety.html?searchResultPosition=5
+https://nytimes.com/2022/12/14/style/holiday-gift-anxiety.html?searchResultPosition=6
 
 **In Fiji’s Closely Observed Election, a Former Coup Leader Is Ahead**\
 `In a region where China and the United States fight for influence, observers await results from the vote to choose the island nation’s prime minister — and to see if the outcome will be respected.`\
-https://nytimes.com/2022/12/14/world/asia/fiji-election.html?searchResultPosition=6
+https://nytimes.com/2022/12/14/world/asia/fiji-election.html?searchResultPosition=7
 
 **Grant Wahl Died of a Burst Blood Vessel, His Family Says**\
 `An autopsy in New York showed that the journalist had a tear in the ascending aorta, a large vessel that carries blood from the heart.`\
-https://nytimes.com/2022/12/14/health/grant-wahl-death.html?searchResultPosition=7
+https://nytimes.com/2022/12/14/health/grant-wahl-death.html?searchResultPosition=8
 
 **FTX’s Founder Faces Growing Legal Troubles**\
 `The fallen crypto mogul Sam Bankman-Fried plans to fight extradition as charges pile up in what prosecutors called a record financial fraud.`\
-https://nytimes.com/2022/12/14/business/dealbook/ftx-sbf-charges-extradition.html?searchResultPosition=8
+https://nytimes.com/2022/12/14/business/dealbook/ftx-sbf-charges-extradition.html?searchResultPosition=9
 
 **‘This Will Take Years’: Florida’s Beekeepers Reel From Hurricane Ian**\
 `The storm destroyed up to 300,000 beehives, the Florida State Beekeepers Association said. The loss could have far-reaching consequences for the country’s food supply.`\
-https://nytimes.com/2022/12/14/us/hurricane-ian-florida-bees.html?searchResultPosition=9
-
-**Respond to a Story in The Times via Our One-Pager Challenge**\
-`Show us your thinking about a recent Times article, video, graph, photo essay or podcast. Open from Dec. 14, 2022 to Jan. 18, 2023.`\
-https://nytimes.com/2022/12/14/learning/respond-to-a-story-in-the-times-via-our-one-pager-challenge.html?searchResultPosition=10
+https://nytimes.com/2022/12/14/us/hurricane-ian-florida-bees.html?searchResultPosition=10
 
