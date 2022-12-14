@@ -1,5 +1,5 @@
 **Turkey Bars Potential Challenger to President Erdogan From Politics**\
-`The mayor of Istanbul, a potential challenger to President Recep Tayyip Erdogan in the 2023 elections, was convicted of insulting public officials.`\
+`The mayor of Istanbul, a possible rival to President Recep Tayyip Erdogan in the 2023 elections, was convicted of insulting public officials.`\
 https://nytimes.com/2022/12/14/world/middleeast/turkey-bars-potential-challenger-to-president-erdogan-from-politics.html?searchResultPosition=1
 
 **‘See You Friday, Robinson’ Review: Dear Godard**\
