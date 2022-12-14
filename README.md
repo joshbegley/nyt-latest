@@ -1,4 +1,4 @@
-**Why Police Officers are Leaving: Low Pay, Overwork and High Costs**\
+**Why Police Officers Are Leaving: Low Pay, Overwork and High Costs**\
 `The New York Police Department is being raided by other departments across the country, for good reason. Also, Governor Hochul gets to pick the state’s top judge.`\
 https://nytimes.com/2022/12/14/nyregion/why-police-officers-are-leaving-low-pay-overwork-and-high-costs.html?searchResultPosition=1
 
