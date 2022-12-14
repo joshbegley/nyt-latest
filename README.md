@@ -1,40 +1,40 @@
+**Dorothy Pitman Hughes Dies at 84; Brought Black Issues to Feminism**\
+`A close friend of Gloria Steinem, she toured with her and spoke widely about the need for women to confront racism and classism in their ranks.`\
+https://nytimes.com/2022/12/14/us/dorothy-pitman-hughes-dead.html?searchResultPosition=1
+
 **Amid Deadly Protests, Peru to Declare National State of Emergency**\
 `The measure would suspend some civil rights, including the freedom of assembly, and deepens a crisis set off when the elected president was impeached by Congress last week.`\
-https://nytimes.com/2022/12/14/world/americas/peru-state-of-emergency-protests.html?searchResultPosition=1
+https://nytimes.com/2022/12/14/world/americas/peru-state-of-emergency-protests.html?searchResultPosition=2
 
 **Higher Pay for New York’s Uber Drivers Is Temporarily Halted by Judge**\
 `Uber argues in a lawsuit that it could be forced to raise fares if regulators are allowed to increase pay rates for ride-hail drivers.`\
-https://nytimes.com/2022/12/14/nyregion/ny-uber-pay-hike.html?searchResultPosition=2
+https://nytimes.com/2022/12/14/nyregion/ny-uber-pay-hike.html?searchResultPosition=3
 
 **Review: In ‘Ye Bear & Ye Cubb,’ Colonial America Takes the Stage**\
 `A play first performed in a tavern in 1665 survives with its title, and the court case it precipitated, intact — but nothing else.`\
-https://nytimes.com/2022/12/14/theater/review-ye-bear-ye-cubb.html?searchResultPosition=3
+https://nytimes.com/2022/12/14/theater/review-ye-bear-ye-cubb.html?searchResultPosition=4
 
 **Iran Ousted From U.N. Women’s Rights Agency in U.S.-backed Vote**\
 `The resolution was the strongest symbolic gesture so far by the U.N. in response to Iran’s efforts to quell a women-led uprising now in its third month.`\
-https://nytimes.com/2022/12/14/world/middleeast/iran-un-womens-rights-vote.html?searchResultPosition=4
+https://nytimes.com/2022/12/14/world/middleeast/iran-un-womens-rights-vote.html?searchResultPosition=5
 
 **The N.W.S.L. and Players’ Union Report on Women’s Soccer**\
 `A report organized by the league and its players union added yet more stinging information about how the league was mismanaged and how it mistreated its players.`\
-https://nytimes.com/interactive/2022/12/14/us/nwsl-report-abuse.html?searchResultPosition=5
+https://nytimes.com/interactive/2022/12/14/us/nwsl-report-abuse.html?searchResultPosition=6
 
 **Theo Hernandez, France’s goalscorer, stepped up after his brother fell.**\
 `Lucas Hernandez was lost for the tournament when he injured his knee in France’s opener.`\
-https://nytimes.com/2022/12/14/sports/soccer/theo-hernandez-france-goal.html?searchResultPosition=6
+https://nytimes.com/2022/12/14/sports/soccer/theo-hernandez-france-goal.html?searchResultPosition=7
 
 **El Paso, Long an Immigrant Haven, Is Tested by Spike in Arrivals**\
 `The influx is arousing a mix of emotions in a predominantly Latino border city where immigrants already make up a quarter of the population.`\
-https://nytimes.com/2022/12/14/us/el-paso-migrants-title-42.html?searchResultPosition=7
+https://nytimes.com/2022/12/14/us/el-paso-migrants-title-42.html?searchResultPosition=8
 
 **N.W.S.L. and Players’ Union Say Athletes Fearful of Reporting Abuse**\
 `A report by the embattled professional women’s soccer league and its players’ union said athletes worried that their careers could be ruined if they reported abuse from coaches or others.`\
-https://nytimes.com/2022/12/14/sports/soccer/nwsl-abuse-report.html?searchResultPosition=8
+https://nytimes.com/2022/12/14/sports/soccer/nwsl-abuse-report.html?searchResultPosition=9
 
 **The U.S. wants to counter China’s moves in Africa. But American officials try not to mention that.**\
 `President Biden and his aides do not want the nearly 50 African leaders attending the event to perceive that official U.S. interests on the continent are mainly driven by a desire to counter China.`\
-https://nytimes.com/2022/12/14/us/politics/the-us-wants-to-counter-chinas-moves-in-africa-but-american-officials-try-not-to-mention-that.html?searchResultPosition=9
-
-**Rwanda’s president says the United States can’t ‘bully’ him into releasing a political opponent.**\
-`President Paul Kagame of Rwanda suggested that only an invasion of his country could force him to release Paul Rusesabagina, a rescuer in the 1994 Rwandan genocide.`\
-https://nytimes.com/2022/12/14/us/politics/rwanda-president-kagame-rusesabagina.html?searchResultPosition=10
+https://nytimes.com/2022/12/14/us/politics/the-us-wants-to-counter-chinas-moves-in-africa-but-american-officials-try-not-to-mention-that.html?searchResultPosition=10
 
