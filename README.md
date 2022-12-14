@@ -1,5 +1,5 @@
 **Washington Post Publisher Announces Plan for Job Cuts**\
-`Fred Ryan, the news outlet’s publisher, said in a meeting with employees that cuts jobs would amount to a single-digit percentage of staff.`\
+`Fred Ryan, the news outlet’s publisher, said in a meeting with employees that cuts would amount to a single-digit percentage of staff.`\
 https://nytimes.com/2022/12/14/business/media/washington-post-wapo-layoffs.html?searchResultPosition=1
 
 **Citing Progress Toward Spending Deal, Lawmakers Move to Avoid Shutdown**\
