@@ -22,7 +22,7 @@ https://nytimes.com/2022/12/14/nyregion/ny-uber-pay-hike.html?searchResultPositi
 `A play first performed in a tavern in 1665 survives with its title, and the court case it precipitated, intact — but nothing else.`\
 https://nytimes.com/2022/12/14/theater/review-ye-bear-ye-cubb.html?searchResultPosition=6
 
-**Iran Ousted From U.N. Women’s Rights Agency in U.S.-backed Vote**\
+**Iran Ousted From U.N. Women’s Rights Agency in U.S.-Backed Vote**\
 `The resolution was the strongest symbolic gesture so far by the U.N. in response to Iran’s efforts to quell a women-led uprising now in its third month.`\
 https://nytimes.com/2022/12/14/world/middleeast/iran-un-womens-rights-vote.html?searchResultPosition=7
 
