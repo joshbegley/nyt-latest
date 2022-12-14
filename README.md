@@ -4,7 +4,7 @@ https://nytimes.com/2022/12/14/arts/thomas-pynchon-huntington-archive.html?searc
 
 **Turkey Bars Potential Challenger to President Erdogan From Politics**\
 `The mayor of Istanbul, a possible rival to President Recep Tayyip Erdogan in the 2023 elections, was convicted of insulting public officials.`\
-https://nytimes.com/2022/12/14/world/middleeast/turkey-bars-potential-challenger-to-president-erdogan-from-politics.html?searchResultPosition=2
+https://nytimes.com/2022/12/14/world/middleeast/turkey-president-erdogan.html?searchResultPosition=2
 
 **‘See You Friday, Robinson’ Review: Dear Godard**\
 `In Mitra Farahani’s film, Jean-Luc Godard and the Iranian writer-director Ebrahim Golestan undertake an epistolary dialogue, puttering and pondering at their homes.`\
