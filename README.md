@@ -1,4 +1,4 @@
-**A Group of ‘FinTwit’ Influencers Faces Stock Fraud Charges**\
+**‘FinTwit’ Influencers Face Charges in $100 Million Scheme**\
 `The conspirators used podcasts and social media to talk up stock prices to their large followings, then sold their shares, according to court filings by the S.E.C. and the Justice Department.`\
 https://nytimes.com/2022/12/14/business/sec-influencers-twitter-discord-fintwit.html?searchResultPosition=1
 
