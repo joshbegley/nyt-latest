@@ -10,7 +10,7 @@ https://nytimes.com/video/us/100000008688016/tornado-louisiana.html?searchResult
 `Joe DiTomasso and Kevin Hyde were sailing to Florida from New Jersey when they lost contact with family and friends on Dec. 3. On Tuesday, they were found more than 200 miles off the coast of Delaware.`\
 https://nytimes.com/2022/12/14/us/nj-sailboat-men-pet-dog-found.html?searchResultPosition=3
 
-**Free Beef and a Blue Bidet: Watching the World Cup at Maradona’s House.**\
+**Free Beef and a Blue Bidet: Watching the World Cup at Maradona’s House**\
 `A Buenos Aires businessman bought Diego Maradona’s old house and has been opening it up for Argentina’s World Cup matches, meat included.`\
 https://nytimes.com/2022/12/14/world/americas/argentina-world-cup-maradona-watch-party.html?searchResultPosition=4
 
