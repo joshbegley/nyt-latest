@@ -24,7 +24,7 @@ https://nytimes.com/2022/12/14/science/apollo-17-moon-50th-anniversary.html?sear
 
 **$880,000 Homes in Georgia, Massachusetts and Oregon**\
 `An 1886 rowhouse in Savannah, a 19th-century home in Rockport and a Victorian in Lake Oswego.`\
-https://nytimes.com/2022/12/14/realestate/home-prices-georgia-massachusetts-and-oregon.html?searchResultPosition=7
+https://nytimes.com/2022/12/14/realestate/home-prices-georgia-massachusetts-oregon.html?searchResultPosition=7
 
 **What You Get for $880,000**\
 `An 1886 rowhouse in Savannah, Ga.; a 19th-century home in Rockport, Mass.; and a Victorian in Lake Oswego, Ore.`\
@@ -36,5 +36,5 @@ https://nytimes.com/2022/12/14/technology/personaltech/parental-controls-smartph
 
 **A Six-Decade Tour of Barbie’s Dreamhouses**\
 `From midcentury modern to a Gen-Z collab house, Barbie has kept up with design trends.`\
-https://nytimes.com/2022/12/14/style/barbies-dreamhouse-history-six-decades.html?searchResultPosition=10
+https://nytimes.com/2022/12/14/style/barbie-dreamhouse-history-six-decades.html?searchResultPosition=10
 
