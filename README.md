@@ -1,6 +1,6 @@
 **Thomas Pynchon, Famously Private, Sells His Archive**\
 `The elusive author of “Gravity’s Rainbow” and “Mason & Dixon” has sold his papers to the Huntington Library. It includes drafts, notes and letters — but sorry, no photographs of him.`\
-https://nytimes.com/2022/12/14/arts/14thomas-pynchon-huntington-archive.html?searchResultPosition=1
+https://nytimes.com/2022/12/14/arts/thomas-pynchon-huntington-archive.html?searchResultPosition=1
 
 **Turkey Bars Potential Challenger to President Erdogan From Politics**\
 `The mayor of Istanbul, a possible rival to President Recep Tayyip Erdogan in the 2023 elections, was convicted of insulting public officials.`\
