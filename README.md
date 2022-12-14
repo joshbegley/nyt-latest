@@ -6,8 +6,8 @@ https://nytimes.com/interactive/2022/12/14/magazine/gun-violence-white-cloud-kan
 `Tioni Theus was one of thousands of American children killed by gun violence this year.`\
 https://nytimes.com/interactive/2022/12/14/magazine/gun-violence-los-angeles-tioni-theus.html?searchResultPosition=2
 
-**Childhood’s Greatest Danger: The Data on Kids and Gun Violence**\
-`Gun violence recently surpassed car accidents as the leading cause of death for American children. No group of kids has been spared, but some have fared far worse.`\
+**Kids Gun Deaths graphic embeds**\
+`By Robert Gebeloff, Danielle Ivory, Bill Marsh, Allison McCann and Albert Sun`\
 https://nytimes.com/interactive/2022/12/14/magazine/gun-violence-children-data-statistics.html?searchResultPosition=3
 
 **He Was Baptized on Sunday and Started School on Monday. Then He Was Gone.**\
