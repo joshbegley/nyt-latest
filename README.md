@@ -1,6 +1,6 @@
 **Video Shows Damaged Buildings in Kyiv After Russian Drone Attack**\
 `Two government buildings in Kyiv and at least four homes in the region surrounding the capital were damaged, Ukrainian officials said. There were no immediate reports of casualties.`\
-https://nytimes.com/video/world/europe/100000008686542/kyiv-ukraine-drone-strikes.html?searchResultPosition=1
+https://nytimes.com/video/embedded/world/europe/100000008686542/kyiv-ukraine-drone-strikes.html?searchResultPosition=1
 
 **10 Years Later, a State Trooper Who Responded to Sandy Hook Looks Back**\
 `Bill Cario was one of the first to enter the elementary school after the shooting on Dec. 14, 2012, but he stresses that he was not alone in helping, or in healing the community.`\
