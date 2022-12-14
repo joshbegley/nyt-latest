@@ -1,40 +1,40 @@
-**Migrant Boat Capsizes in English Channel**\
-`British maritime authorities were carrying out a major rescue operation, a day after the government announced new plans to slow migrant crossings.`\
-https://nytimes.com/2022/12/14/world/europe/uk-migrant-boat-capsize-english-channel.html?searchResultPosition=1
+**50 Years After the Apollo 17 Mission, the Moon Looks Closer Than Ever**\
+`Astronauts from NASA said goodbye to the moon for the last time on Dec. 14, 1972. The somberness of the anniversary is offset by the scenes of Artemis I’s recently concluded mission.`\
+https://nytimes.com/2022/12/14/science/apollo-17-moon-50th-anniversary.html?searchResultPosition=1
 
-**Two Dogs, Two Presidents and a History of Political Attacks in Seoul**\
-`North Korean leader Kim Jong-un gifted two pups to South Korea as a symbol of peace. Now the canines have become victims of a political squabble between leaders in the South.`\
-https://nytimes.com/2022/12/14/world/asia/korea-dogs-president.html?searchResultPosition=2
+**$880,000 Homes in Georgia, Massachusetts and Oregon**\
+`An 1886 rowhouse in Savannah, a 19th-century home in Rockport and a Victorian in Lake Oswego.`\
+https://nytimes.com/2022/12/14/realestate/home-prices-georgia-massachusetts-and-oregon.html?searchResultPosition=2
 
-**Britain’s Inflation Rate Slows to 10.7 Percent**\
-`Helped by an easing of price increases for fuel and other goods, the rate of inflation in November edged down from a 41-year high.`\
-https://nytimes.com/2022/12/14/business/economy/uk-inflation-prices.html?searchResultPosition=3
+**What You Get for $880,000**\
+`An 1886 rowhouse in Savannah, Ga.; a 19th-century home in Rockport, Mass.; and a Victorian in Lake Oswego, Ore.`\
+https://nytimes.com/slideshow/2022/12/14/realestate/what-you-get-for-880000.html?searchResultPosition=3
 
-**DO NOT USE: Video Shows Damaged Buildings in Kyiv After Russian Drone Attack**\
-`DO NOT USE: Two government buildings in Kyiv and at least four homes in the region surrounding the capital were damaged, Ukrainian officials said. There were no immediate reports of casualties.`\
-https://nytimes.com/video/embedded/world/europe/100000008686542/kyiv-ukraine-drone-strikes.html?searchResultPosition=4
+**How to Use Parental Controls on Your Child’s New Phone**\
+`Apple and Google have upgraded their built-in software for managing the mobile experience, but you have many options for digital supervision.`\
+https://nytimes.com/2022/12/14/technology/personaltech/parental-controls-smartphone.html?searchResultPosition=4
 
-**10 Years Later, a State Trooper Who Responded to Sandy Hook Looks Back**\
-`Bill Cario was one of the first to enter the elementary school after the shooting on Dec. 14, 2012, but he stresses that he was not alone in helping, or in healing the community.`\
-https://nytimes.com/2022/12/14/us/politics/sandy-hook-anniversary.html?searchResultPosition=5
+**A Six-Decade Tour of Barbie’s Dreamhouses**\
+`From midcentury modern to a Gen-Z collab house, Barbie has kept up with design trends.`\
+https://nytimes.com/2022/12/14/style/barbies-dreamhouse-history-six-decades.html?searchResultPosition=5
 
-**Covid’s Ripples, in the Middle of the Ocean**\
-`After reading a mother’s desperate plea, a journalist traced the path of two men driven by conspiracy theories and paranoia to their last known whereabouts in the South Pacific.`\
-https://nytimes.com/2022/12/14/insider/covids-ripples-in-the-middle-of-the-ocean.html?searchResultPosition=6
+**Are Mushrooms the Future of Alternative Leather?**\
+`MycoWorks uses mycelium, the substance in the root structure of mushrooms, to make Reishi, which has the look and feel of leather. Big-name companies are very interested.`\
+https://nytimes.com/2022/12/14/business/leather-fake-mycelium-mushrooms-fashion.html?searchResultPosition=6
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/12/14/crosswords/spelling-bee-forum.html?searchResultPosition=7
+**A Sign That Tuition Is Too High: Some Colleges Are Hacking It in Half**\
+`Colby-Sawyer in New Hampshire has reduced its tuition to $17,500 a year, from about $46,000. But the cut is also a recognition that few pay the list price.`\
+https://nytimes.com/2022/12/14/us/college-universities-college-tuition-reset.html?searchResultPosition=7
 
-**Crypto**\
-`What do you think this image is communicating?`\
-https://nytimes.com/2022/12/14/learning/crypto.html?searchResultPosition=8
+**Does American Society Need Abortion?**\
+`Is nothing else so important as to continue ensuring that thousands of unborn lives can be ended in utero every year?`\
+https://nytimes.com/2022/12/14/opinion/abortion-america.html?searchResultPosition=8
 
-**Stephen Colbert Doesn’t Want to Editorialize, but He Will**\
-`Colbert was shocked by a report that 34 lawmakers texted Mark Meadows about subverting the 2020 election. “That is unbelievable — 34 people wanted to talk to Mark Meadows!” he said.`\
-https://nytimes.com/2022/12/14/arts/television/stephen-colbert-mark-meadows.html?searchResultPosition=9
+**She Harvests Shellfish and Helps Protect Them**\
+`Ana Shellem has found peace and prosperity while searching for wild species off the North Carolina coast for her one-woman sustainable fishing company.`\
+https://nytimes.com/2022/12/14/business/ana-shellem-fishing-company.html?searchResultPosition=9
 
-**Word of the Day: prodigal**\
-`This word has appeared in 35 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/12/14/learning/word-of-the-day-prodigal.html?searchResultPosition=10
+**Xi Jinping’s Covid Crisis Is Really an Opportunity**\
+`Recent protests against his now-scrapped Covid policy are a chance to renew the Communist Party’s compact with China’s people.`\
+https://nytimes.com/2022/12/14/opinion/international-world/china-covid-protest-democracy-xi.html?searchResultPosition=10
 
