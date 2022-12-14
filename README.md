@@ -1,5 +1,5 @@
 **Pope Francis calls for people to celebrate a more ‘humble’ Christmas and donate to Ukraine.**\
-`By Elisabetta Povoledo`\
+`“Let us not forget Christmas,” the pope said at the end of his weekly general audience, “but with the people of Ukraine in our hearts, and let us offer concrete signs of help for them.”`\
 https://nytimes.com/2022/12/14/world/europe/pope-francis-ukraine-christmas.html?searchResultPosition=1
 
 **Turning Sci-fi Into Reality**\
