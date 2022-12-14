@@ -2,8 +2,8 @@
 `Helped by an easing of price increases for fuel and other goods, the rate of inflation in November edged down from a 41-year high.`\
 https://nytimes.com/2022/12/14/business/economy/uk-inflation-prices.html?searchResultPosition=1
 
-**Video Shows Damaged Buildings in Kyiv After Russian Drone Attack**\
-`Two government buildings in Kyiv and at least four homes in the region surrounding the capital were damaged, Ukrainian officials said. There were no immediate reports of casualties.`\
+**DO NOT USE: Video Shows Damaged Buildings in Kyiv After Russian Drone Attack**\
+`DO NOT USE: Two government buildings in Kyiv and at least four homes in the region surrounding the capital were damaged, Ukrainian officials said. There were no immediate reports of casualties.`\
 https://nytimes.com/video/embedded/world/europe/100000008686542/kyiv-ukraine-drone-strikes.html?searchResultPosition=2
 
 **10 Years Later, a State Trooper Who Responded to Sandy Hook Looks Back**\
