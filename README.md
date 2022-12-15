@@ -3,7 +3,7 @@
 https://nytimes.com/2022/12/14/us/politics/taney-thurgood-marshall-statue-capitol.html?searchResultPosition=1
 
 **U.C.L.A. Is Allowed by California Regents to Join Big Ten**\
-`By an 11-5 vote, the University of California Board of Regents chose not to block U.C.L.A. from leaving the Pac-12. But it attached conditions to protect U.C. Berkeley.`\
+`By an 11-5 vote, the University of California Board of Regents chose not to block U.C.L.A. from leaving the Pac-12. But it attached conditions that could cost the school more than $20 million annually, including some money that would be diverted to U.C. Berkeley.`\
 https://nytimes.com/2022/12/14/sports/ncaafootball/ucla-big-ten.html?searchResultPosition=2
 
 **Corrections: Dec. 15, 2022**\
