@@ -1,40 +1,40 @@
-**The Best (and Worst) Theater in Europe in 2022**\
-`The Times’s three European theater critics pick their favorite productions of the year — plus a turkey apiece for the festive season.`\
-https://nytimes.com/2022/12/15/theater/best-theater-europe-2022.html?searchResultPosition=1
+**Harrison Ford Loves His Craft. ‘1923’ Tested His Limits.**\
+`The actor, now 80, is still trying new things, including his first major TV role. Just don’t ask him to get all touchy-feely about it.`\
+https://nytimes.com/2022/12/15/arts/television/harrison-ford-1923-yellowstone.html?searchResultPosition=1
 
-**Russian Spacewalk Is Canceled Due to Coolant Leak**\
-`When mission controllers observed white particles spewing from a spacecraft that serves as a “lifeboat” for the International Space Station, they scrapped the mission.`\
-https://nytimes.com/2022/12/15/science/space/russia-nasa-spacewalk-canceled.html?searchResultPosition=2
+**Traumatized by Covid, but Ruled by a Party That Never Apologizes**\
+`Gripped with grief, anxiety and depression, many in China want a national reckoning over the hard-line “zero Covid” policy. Holding the government to account may be a quixotic quest.`\
+https://nytimes.com/2022/12/15/business/china-zero-covid-apology.html?searchResultPosition=2
 
-**Keeping the National in National Team Coach**\
-`There is nothing in the rules that requires a World Cup team to be managed by someone born, raised or otherwise connected to that country. So should it matter?`\
-https://nytimes.com/2022/12/15/sports/world-cup/keeping-the-national-in-national-team-coach.html?searchResultPosition=3
+**For Chris Paul, Studying at an H.B.C.U. Was a ‘Natural’ Fit**\
+`Paul, the star N.B.A. guard, will graduate from Winston-Salem State on Friday, completing an educational journey he started in 2003 and continuing his quest to spotlight Black colleges.`\
+https://nytimes.com/2022/12/15/sports/chris-paul-hbcu-winston-salem-state.html?searchResultPosition=3
 
-**What Made You Look in 2022?**\
-`Thinking about some of the images that defined the Styles Desk this year.`\
-https://nytimes.com/2022/12/15/style/best-style-photos-2022.html?searchResultPosition=4
+**Why Do We Keep Destroying the Homes of The World’s Creatures? Dinner**\
+`If current eating and farming trends continue, the world will clear at least one and a quarter more Indias worth of land by 2050.`\
+https://nytimes.com/2022/12/15/opinion/environment/food-diets-meat-biodiverstiy-cop15.html?searchResultPosition=4
 
-**Surviving 10 Hours and 32 Minutes at Bergdorf Goodman**\
-`What can a luxury department store offer in 2022? We spent 10 hours and 32 minutes looking for answers at the Manhattan institution, where no one says, “no.”`\
-https://nytimes.com/2022/12/15/style/surviving-10-hours-and-32-minutes-at-bergdorf-goodman.html?searchResultPosition=5
+**Best Art Between the Covers of These Holidayx Books**\
+`Holland Cotter, Jason Farago and Roberta Smith round up their favorite books, from museum catalogs of high-profile shows to photographs by Native artists to the treasures of Ukraine.`\
+https://nytimes.com/2022/12/15/arts/design/best-art-books-2022.html?searchResultPosition=5
 
-**An Alternate Reality: How Russia’s State TV Spins the Ukraine War**\
-`Leaked emails detail how Russia’s biggest state broadcaster, working with the nation’s security services, mined right-wing American news and Chinese media to craft a narrative that Moscow was winning.`\
-https://nytimes.com/2022/12/15/technology/an-alternate-reality-how-russias-state-tv-spins-the-ukraine-war.html?searchResultPosition=6
+**Can New York’s Plan for Mentally Ill Homeless People Make a Difference?**\
+`In a big city, the number of untreated, severely mentally ill people is relatively small. But making sure they get the help they need feels like an enormous, intractable task.`\
+https://nytimes.com/article/nyc-homeless-mental-health-plan.html?searchResultPosition=6
 
-**You Bought the Thing. Now You Regret the Thing.**\
-`Ever experienced buyer’s remorse? Of course you have. But there are ways to prevent it.`\
-https://nytimes.com/2022/12/15/business/buyers-remorse-personal-finance.html?searchResultPosition=7
+**Congress Is Considering Financial Help for Parents. Here Are Details.**\
+`Policymakers are trying to bring back an expanded child allowance, but disagree on who should get it.`\
+https://nytimes.com/2022/12/15/upshot/child-tax-credit.html?searchResultPosition=7
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/12/15/crosswords/spelling-bee-forum.html?searchResultPosition=8
+**Once You See the Truth About Cars, You Can’t Unsee It**\
+`Cars promised liberation. They delivered something very different.`\
+https://nytimes.com/2022/12/15/opinion/car-ownership-inequality.html?searchResultPosition=8
 
-**Nuclear Fusion**\
-`What do you think has been the most important scientific discovery of all time?`\
-https://nytimes.com/2022/12/15/learning/nuclear-fusion.html?searchResultPosition=9
+**N.Y.C. Community Boards Usually Oppose New Housing. Not This One.**\
+`Local groups are known for opposing new development. But amid a housing shortage, one community board representing parts of Manhattan’s West Side wants to see a lot more.`\
+https://nytimes.com/2022/12/15/nyregion/manhattan-community-board-housing.html?searchResultPosition=9
 
-**Word of the Day: lofty**\
-`This word has appeared in 193 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/12/15/learning/word-of-the-day-lofty.html?searchResultPosition=10
+**Planning a Wedding While Navigating Grief**\
+`Losing a loved one is among life’s most traumatizing events. But the grief that follows can be even more pronounced if you’re planning a wedding.`\
+https://nytimes.com/2022/12/15/fashion/weddings/planning-wedding-grief.html?searchResultPosition=10
 
