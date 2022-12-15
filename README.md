@@ -23,7 +23,7 @@ https://nytimes.com/2022/12/15/briefing/us-china-trade-ukraine.html?searchResult
 https://nytimes.com/2022/12/15/world/europe/missile-attack-kherson-ukraine-photos.html?searchResultPosition=6
 
 **How Much Watching Time Do You Have This Weekend?**\
-`For a weekend watch, our TV critic recommends a Polish drama, a warm series about the arts and a dark comedy that is about to stop streaming`\
+`For a weekend watch, our TV critic recommends a Polish drama, a warm series about the arts and a dark comedy that is about to stop streaming.`\
 https://nytimes.com/2022/12/15/arts/television/dead-end-made-for-love.html?searchResultPosition=7
 
 **White Officer Found Guilty in Killing of Black Woman in Her Texas Home**\
