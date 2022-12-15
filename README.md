@@ -1,4 +1,4 @@
-**What We Learned From ‘Harry and Meghan,’ Part Two**\
+**What We Learned From ‘Harry & Meghan,’ Part Two**\
 `The second collection of episodes of the couple’s Netflix docuseries landed on Thursday. It dives deep into mental health and royal drama.`\
 https://nytimes.com/2022/12/15/arts/television/harry-meghan-netflix-documentary-part-two.html?searchResultPosition=1
 
