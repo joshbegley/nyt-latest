@@ -31,7 +31,7 @@ https://nytimes.com/2022/12/15/technology/amazon-europe-settlement.html?searchRe
 https://nytimes.com/2022/12/15/health/covid-dead-bodies.html?searchResultPosition=8
 
 **Retail Sales Fell in November, Despite Black Friday**\
-`With prices for necessities like food still high, U.S. shoppers were more reluctant to spend on more discretionary items as the holiday shopping season arrived.`\
+`Inflation changed the way U.S. shoppers approached the holiday season, while lower gas prices and a decline in car sales were also factors.`\
 https://nytimes.com/2022/12/15/business/retail-sales-november.html?searchResultPosition=9
 
 **In Qatar, the Ancient Sport of Falconry Gets Some Upgrades**\
