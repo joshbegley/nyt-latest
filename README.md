@@ -1,5 +1,5 @@
-**Congress Clears Bill to Replace Taney Statue in Capitol With Thurgood Marshall**\
-`The measure would give officials 45 days to remove a statue of Justice Roger Brooke Taney, who wrote the racist Dred Scott decision, from its place on the Senate side of the Capitol.`\
+**Congress Set to Replace Dred Scott Author’s Statue With Thurgood Marshall**\
+`A bill passed Wednesday would require officials to remove a statue of Justice Roger Brooke Taney, who wrote the racist Dred Scott decision, from its place on the Senate side of the Capitol.`\
 https://nytimes.com/2022/12/14/us/politics/taney-thurgood-marshall-statue-capitol.html?searchResultPosition=1
 
 **U.C.L.A. Is Allowed by California Regents to Join Big Ten**\
