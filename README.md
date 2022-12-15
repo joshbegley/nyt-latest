@@ -1,4 +1,4 @@
-**Met Opera’s Website and Box Office Are Back After 9-Day Cyberattack**\
+**Met Opera’s Website and Box Office Are Back, 9 Days After Cyberattack**\
 `Hackers had left the Met, the largest performing arts organization in the United States, unable to sell tickets as it tries to recover from the pandemic.`\
 https://nytimes.com/2022/12/15/arts/music/met-opera-cyberattack.html?searchResultPosition=1
 
