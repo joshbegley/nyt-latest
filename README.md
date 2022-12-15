@@ -1,40 +1,40 @@
+**Yo-Yo Ma Is Finding His Way Back to Nature Through Music**\
+`This superstar cellist’s latest project, which has taken him to America’s national parks, aims to newly understand our place in the world.`\
+https://nytimes.com/2022/12/15/arts/music/yo-yo-ma-our-common-nature.html?searchResultPosition=1
+
+**E.R. Doctors Misdiagnose Patients With Unusual Symptoms**\
+`Doctors fail to recognize serious conditions like stroke and sepsis in tens of thousands of patients each year, according to a new study.`\
+https://nytimes.com/2022/12/15/health/medical-errors-emergency-rooms.html?searchResultPosition=2
+
+**GLAAD Praises Increased Inclusiveness of Disney Films**\
+`In a report on L.G.B.T.Q. representation in movies, the organization lauded the studio but noted some depictions were one dimensional or stereotypical.`\
+https://nytimes.com/2022/12/15/business/media/glaad-disney-lgbtq.html?searchResultPosition=3
+
+**Homes for Sale in Manhattan and on Staten Island**\
+`This week’s properties are in Greenwich Village, the Financial District and St. George.`\
+https://nytimes.com/2022/12/15/realestate/housing-market-nyc.html?searchResultPosition=4
+
+**Homes for Sale in New York and New Jersey**\
+`This week’s properties are four-bedroom homes in Port Washington, N.Y., and Englewood Cliffs, N.J.`\
+https://nytimes.com/2022/12/15/realestate/housing-market-near-nyc.html?searchResultPosition=5
+
+**Arts Organizations in New York City Will Receive $58 Million in Grants**\
+`Several programs receiving funding from the city are dedicated to disabled artists and audiences, and to extending access to the arts to groups whose primary language is not English.`\
+https://nytimes.com/2022/12/15/arts/new-york-cultural-grants.html?searchResultPosition=6
+
+**How Californians Celebrate the Holidays**\
+`It may be by the beach, with a batch of tamales, or stargazing in the desert.`\
+https://nytimes.com/2022/12/15/us/california-holiday-celebrations.html?searchResultPosition=7
+
 **Gary Peters on How Democrats Held and Expanded Their Senate Majority**\
 `The Michigan Democrat who led the party’s campaign effort credits candidate quality, abortion rights and the battleground map.`\
-https://nytimes.com/2022/12/15/us/politics/gary-peters-senate-democrats-majority.html?searchResultPosition=1
+https://nytimes.com/2022/12/15/us/politics/gary-peters-senate-democrats-majority.html?searchResultPosition=8
 
 **U.S. Cracks Down on Chinese Companies for Security Concerns**\
 `The Biden administration placed severe restrictions on trade with dozens of Chinese entities, its latest step in a campaign to curtail Beijing’s technology ambitions.`\
-https://nytimes.com/2022/12/15/business/economy/us-china-biden-security.html?searchResultPosition=2
+https://nytimes.com/2022/12/15/business/economy/us-china-biden-security.html?searchResultPosition=9
 
 **European Central Bank Raises Rates Half a Point, Moderating Its Pace**\
 `But the bank warned that interest rates would “still have to rise significantly” to tame inflation.`\
-https://nytimes.com/2022/12/15/business/european-central-bank-inflation-interest-rates.html?searchResultPosition=3
-
-**Where Are the Most and Least Affordable Homes?**\
-`A new study compares median home prices against household income, property taxes and mortgage expenses to determine affordability.`\
-https://nytimes.com/2022/12/15/realestate/where-are-the-most-and-least-affordable-homes.html?searchResultPosition=4
-
-**Wall Street Fears the Fed Could Cause ‘Some Damage’**\
-`The Federal Reserve’s commitment to vanquish inflation is continuing to add volatility to the stock market.`\
-https://nytimes.com/2022/12/15/business/dealbook/fed-interest-rates-recession.html?searchResultPosition=5
-
-**Nurses in U.K. Strike for First Time, Seeking Higher Pay**\
-`The walkout is just one of a series of industrial actions across Britain this month as ballooning inflation, rising interest rates and a recession put pressure on workers.`\
-https://nytimes.com/2022/12/15/world/europe/uk-nhs-nurses-strike.html?searchResultPosition=6
-
-**Bank of England Raises Rates by Half a Point to Curb Inflation**\
-`The action pushes the benchmark rate to its highest since 2008, but the central bank moderated the pace of increases as Britain braces for a prolonged recession.`\
-https://nytimes.com/2022/12/15/business/bank-of-england-interest-rate-inflation.html?searchResultPosition=7
-
-**‘Children of the Mist’ Review: Stolen Youth**\
-`A documentarian traces a Hmong girl’s experience with a custom that permits boys to detain girls with the intention of marriage.`\
-https://nytimes.com/2022/12/15/movies/children-of-the-mist-review.html?searchResultPosition=8
-
-**‘Jurassic Punk’ Review: Making Digital Dinosaurs Walk**\
-`This documentary looks at the computer animation innovator Steve Williams.`\
-https://nytimes.com/2022/12/15/movies/jurassic-punk-review.html?searchResultPosition=9
-
-**‘The Volcano: Rescue from Whakaari’ Review: A Seismic Tragedy**\
-`A Netflix documentary recounts the eruption of an active volcano off the coast of New Zealand that left several tourist groups struggling to survive.`\
-https://nytimes.com/2022/12/15/movies/the-volcano-rescue-from-whakaari-review.html?searchResultPosition=10
+https://nytimes.com/2022/12/15/business/european-central-bank-inflation-interest-rates.html?searchResultPosition=10
 
