@@ -31,7 +31,7 @@ https://nytimes.com/2022/12/15/us/atatiana-jefferson-aaron-dean-verdict.html?sea
 https://nytimes.com/2022/12/15/arts/design/refik-anadol-unsupervised-moma-review.html?searchResultPosition=8
 
 **Spot the Ball: And Then There Were Two**\
-`After a thrilling quarterfinals round and a more predictable semifinals, Argentina and France stand alone. These pictures show how they got here, with one tricky change: We've removed the ball. See if you can guess where it was.`\
+`After a thrilling quarterfinal round and a more predictable semifinals, Argentina and France stand alone. These pictures show how they got here, with one tricky change: We’ve  removed the ball. See if you can guess where it was.`\
 https://nytimes.com/interactive/2022/12/15/sports/world-cup/spot-the-ball-round-three.html?searchResultPosition=9
 
 **Sheriff Found Not Guilty of Falsely Accusing Black Newspaper Carrier**\
