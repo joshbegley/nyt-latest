@@ -1,10 +1,10 @@
-**The Days of Doggies in the Window Are Numbered**\
-`New York State is banning pet shops from selling dogs, cats and rabbits, starting in 2024, in an effort to crack down on “puppy mills.”`\
-https://nytimes.com/2022/12/16/nyregion/the-days-of-doggies-in-the-window-are-numbered.html?searchResultPosition=1
-
 **Your Friday Briefing**\
 `Allegations of a bribery scheme at the heart of the E.U.`\
-https://nytimes.com/2022/12/16/briefing/bribery-european-parliament-russia-ukraine.html?searchResultPosition=2
+https://nytimes.com/2022/12/16/briefing/bribery-european-parliament-russia-ukraine.html?searchResultPosition=1
+
+**The Days of Doggies in the Window Are Numbered**\
+`New York State is banning pet shops from selling dogs, cats and rabbits, starting in 2024, in an effort to crack down on “puppy mills.”`\
+https://nytimes.com/2022/12/16/nyregion/the-days-of-doggies-in-the-window-are-numbered.html?searchResultPosition=2
 
 **Death Penalty Researchers Call 2022 ‘Year of the Botched Execution’**\
 `Even as the total number of executions remained among the lowest in a generation, several high-profile failures forced states including Alabama and Tennessee to temporarily halt executions.`\
