@@ -1,40 +1,40 @@
-**Berlin Hotel’s Huge Aquarium Bursts, With 1,500 Fish Inside**\
-`A 50-foot-high, 264,000-gallon cylindrical tank called AquaDom, housed in a Radisson in the German capital, spectacularly collapsed, spewing waves of water through the building and onto the street.`\
-https://nytimes.com/2022/12/16/world/europe/germany-aquarium-aquadom.html?searchResultPosition=1
+**Unleash the Song in Your Heart Without Leaving the Building**\
+`Luxury condos have been adding music rooms to their lists of amenities. One was designed by Lenny Kravitz, and another is simply a piano in a room with a desk and a couch.`\
+https://nytimes.com/2022/12/16/realestate/music-rooms-high-end-amenity.html?searchResultPosition=1
 
-**Is Suffering a Substitute for Style?**\
-`A common language and a common goal have resulted in a homogenizing of the World Cup’s teams, and a rise in parity.`\
-https://nytimes.com/2022/12/16/sports/world-cup/argentina-france.html?searchResultPosition=2
+**He Used to Post Up. Now He Throws Down.**\
+`Satnam Singh, the first Indian-born player drafted by an N.B.A. team, never realized his dream of playing in the league. Now, he is living a new dream: slam-dunking other people.`\
+https://nytimes.com/2022/12/16/sports/basketball/nba-wrestling-satnam-singh-india.html?searchResultPosition=2
 
-**How The Times Remembered Young Lives Lost to Guns**\
-`The Lives They Lived, an annual New York Times Magazine feature, is devoted this year to the stories of 12 children killed by gun violence.`\
-https://nytimes.com/2022/12/16/insider/editors-magazine.html?searchResultPosition=3
+**Can a Federally Funded ‘Netflix Model’ Fix the Broken Market for Antibiotics?**\
+`Shortages and drug-resistant germs have renewed attention on a $6 billion proposal in Congress that would reconfigure the way antimicrobial drugs are developed and sold.`\
+https://nytimes.com/2022/12/16/health/congress-antibiotics-drug-resistance.html?searchResultPosition=3
 
-**A Traditional Exchange? FTX Was Anything But.**\
-`FTX called itself an exchange. But it was vastly different from stock exchanges, which are highly regulated and barred from engaging in many of the activities FTX pursued.`\
-https://nytimes.com/2022/12/16/business/a-traditional-exchange-ftx-was-anything-but.html?searchResultPosition=4
+**Which Virus Is It This Time? New Yorkers Are Sick of Being Sick.**\
+`New Yorkers are contending with a bewildering and miserable mix of symptoms as Covid, flu, R.S.V. and various mystery illnesses circulate.`\
+https://nytimes.com/2022/12/16/nyregion/covid-flu-rsv-sick.html?searchResultPosition=4
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/12/16/crosswords/spelling-bee-forum.html?searchResultPosition=5
+**Contemplating a Canon of Jewish American Films**\
+`Two new films remind us that the experiences of U.S. Jews don’t often get the Hollywood treatment. When they do, depictions range from shticky to subtle.`\
+https://nytimes.com/2022/12/16/movies/jewish-american-films.html?searchResultPosition=5
 
-**Bubbles**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2022/12/16/learning/bubbles.html?searchResultPosition=6
+**The Breakout Stars of 2022**\
+`Here are the actors, pop stars, dancers and artists who broke away from the pack this year, delighting us and making us think.`\
+https://nytimes.com/2022/12/16/arts/breakout-stars-2022-music-tv-movies.html?searchResultPosition=6
 
-**Fire in France Kills at Least 10, Including 5 Children**\
-`Firefighters managed to put out the blaze, in a seven-floor building near Lyon, in central France. It was unclear how the fire started.`\
-https://nytimes.com/2022/12/16/world/europe/france-lyon-apartment-fire-children.html?searchResultPosition=7
+**Can Child Care Be a Big Business? Private Equity Thinks So.**\
+`Some high-end chains are surprisingly profitable, and they are trying to shape child care policy in Washington.`\
+https://nytimes.com/2022/12/16/us/child-care-centers-private-equity.html?searchResultPosition=7
 
-**Jimmy Kimmel: Trump NFTs Are ‘Literally Cards Against Humanity’**\
-`“At least last time, you got a red hat. Now he’s selling you nothing,” Kimmel said of Trump’s new digital trading cards.`\
-https://nytimes.com/2022/12/16/arts/television/jimmy-kimmel-trump-trading-cards.html?searchResultPosition=8
+**A Businessman, Buffaloes and a Sofa Full of Cash: A President’s Alibi**\
+`A bizarre scandal threatens to topple President Cyril Ramaphosa of South Africa from leadership of the African National Congress, which begins its party conference on Friday. Will A.N.C. members buy his astonishing account?`\
+https://nytimes.com/2022/12/16/world/africa/south-africa-president-ramaphosa-farmgate.html?searchResultPosition=8
 
-**Word of the Day: perplexed**\
-`This word has appeared in 122 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/12/16/learning/word-of-the-day-perplexed.html?searchResultPosition=9
+**The Left’s Fever Is Breaking**\
+`Maurice Mitchell on progressive dysfunction.`\
+https://nytimes.com/2022/12/16/opinion/left-progressives-.html?searchResultPosition=9
 
-**N​orth Korea Says It Has Tested a New ICBM Engine**\
-`​The statement, issued Friday, followed an order from the country’s leader, Kim Jong-un, to develop a new ICBM that is harder to intercept.`\
-https://nytimes.com/2022/12/16/world/asia/north-korea-icbm-engine-test.html?searchResultPosition=10
+**I Can’t Stop Talking to My New Chatbot Pal**\
+`ChatGPT makes a lot of mistakes. But it’s fun to talk to, and it knows its limitations.`\
+https://nytimes.com/2022/12/16/opinion/conversation-with-chatgpt.html?searchResultPosition=10
 
