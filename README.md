@@ -3,7 +3,7 @@
 https://nytimes.com/2022/12/15/theater/great-expectations-review-eddie-izzard.html?searchResultPosition=1
 
 **Twitter Suspends Accounts of Half a Dozen Journalists**\
-`The social media service, which is owned by Elon Musk, said the accounts were suspended for “violating the Twitter rules” but did not provide details.`\
+`The social media service, which is owned by Elon Musk, said that it suspends accounts that “violate the Twitter rules” but did not provide details.`\
 https://nytimes.com/2022/12/15/technology/twitter-suspends-journalist-accounts-elon-musk.html?searchResultPosition=2
 
 **Yankees Dig Deep Again, Committing $162 Million to Carlos Rodón**\
@@ -34,7 +34,7 @@ https://nytimes.com/2022/12/15/us/politics/jan-6-panel-criminal-referrals.html?s
 `The report by Democrats on the House Intelligence Committee raises questions about how well prepared spy agencies are for future global health crises.`\
 https://nytimes.com/2022/12/15/us/politics/coronavirus-pandemic-intelligence.html?searchResultPosition=9
 
-**Outside a Peru Prison, Protesters Demand Justice for Their Ousted President**\
+**Protesters in Peru Demand Justice for Ousted President Pedro Castillo**\
 `Eight days after Pedro Castillo’s removal from office and arrest, thousands of his supporters have joined protests demanding his reinstatement. To them, he is the voice of the marginalized.`\
 https://nytimes.com/2022/12/15/world/americas/peru-protests-pedro-castillo.html?searchResultPosition=10
 
