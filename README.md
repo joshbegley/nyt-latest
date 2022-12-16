@@ -1,5 +1,5 @@
 **The Darkness of ‘Snow White’**\
-`Beatrice Alemagna’s “You Can’t Kill Snow White,” for older kids, mines the brutal envy that underpins the original Brothers Grimm tale.`\
+`Beatrice Alemagna’s “You Can’t Kill Snow White,” a picture book for older kids, mines the brutal envy that underpins the original Brothers Grimm tale.`\
 https://nytimes.com/2022/12/16/books/review/you-cant-kill-snow-white-beatrice-alemagna.html?searchResultPosition=1
 
 **Not the Same Old Stories**\
