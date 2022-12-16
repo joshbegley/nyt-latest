@@ -10,13 +10,13 @@ https://nytimes.com/2022/12/16/opinion/fusion-climate-change-clean-energy.html?s
 `TOKYO—If you aren’t already paying for your morning coffee with your face, you soon will. New biometric payment services are letting customers pay `\
 https://nytimes.com/paidpost/nec-corporation/with-a-glance-biometrics-are-set-to-simplify-payments.html?searchResultPosition=3
 
-**The Year in Tech News**\
-`A conversation with The Times’s technology editor, Pui-Wing Tam.`\
-https://nytimes.com/2022/12/16/us/the-year-in-tech-news.html?searchResultPosition=4
-
 **How to Approach the Biggest Crossword You’ve Ever Solved**\
 `Puzzle Mania’s Super Mega Crossword may look overwhelming, but you’ve got this. Here are our tips for a successful solve.`\
-https://nytimes.com/2022/12/16/crosswords/puzzlemania-supermega-solve.html?searchResultPosition=5
+https://nytimes.com/2022/12/16/crosswords/puzzlemania-supermega-solve.html?searchResultPosition=4
+
+**The Year in Tech News**\
+`A conversation with The Times’s technology editor, Pui-Wing Tam.`\
+https://nytimes.com/2022/12/16/us/the-year-in-tech-news.html?searchResultPosition=5
 
 **Forget Stock Predictions for Next Year. Focus on the Next Decade.**\
 `Wall Street’s market forecasts for 2023 are worthless, our columnist says. But the long view is much clearer.`\
