@@ -1,4 +1,4 @@
-**A Kennedy Scion to Be Named as Envoy to Northern Island**\
+**A Kennedy Scion to Be Named as Envoy to Northern Ireland**\
 `With the appointment of Joe Kennedy III, President Biden hopes a marquee name will aid in promoting economic development in the struggling country.`\
 https://nytimes.com/2022/12/16/world/europe/kennedy-envoy-northern-ireland.html?searchResultPosition=1
 
