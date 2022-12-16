@@ -34,7 +34,7 @@ https://nytimes.com/2022/12/16/arts/television/harry-meghan-race.html?searchResu
 `Ngozi Fulani, who runs a charity for abused women, said a palace aide, Susan Hussey,  pressed her on where she was from, dismissing Britain as an answer. Ms. Hussey resigned over the episode.`\
 https://nytimes.com/2022/12/16/world/europe/uk-royal-racism.html?searchResultPosition=9
 
-**Congress Passed a $858 Billion Military Bill. Here’s What’s in It.**\
+**Congress Passed an $858 Billion Military Bill. Here’s What’s in It.**\
 `Lawmakers approved an 8 percent overall budget increase, funding for Taiwan and Ukraine, and a slew of provisions focused on judicial security and environmental protections.`\
 https://nytimes.com/2022/12/16/us/politics/congress-defense-bill-military.html?searchResultPosition=10
 
