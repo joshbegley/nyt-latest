@@ -2,7 +2,7 @@
 `Jonathan Groff, Lindsay Mendez and Daniel Radcliffe, now starring in an Off Broadway revival, will lead the Broadway production as well.`\
 https://nytimes.com/2022/12/16/theater/merrily-we-roll-along-daniel-radcliffe-broadway.html?searchResultPosition=1
 
-**Police Officers May No Longer Hold People as They Check for Warrants**\
+**Police Officers May No Longer Hold People to Check for Warrants**\
 `A settlement filed Friday will bar N.Y.P.D. officers from detaining people at length as they check databases for reasons to arrest them.`\
 https://nytimes.com/2022/12/16/nyregion/nypd-warrant-settlement.html?searchResultPosition=2
 
