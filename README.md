@@ -1,40 +1,40 @@
+**The Days of Doggies in the Window Are Numbered**\
+`New York State is banning pet shops from selling dogs, cats and rabbits, starting in 2024, in an effort to crack down on “puppy mills.”`\
+https://nytimes.com/2022/12/16/nyregion/the-days-of-doggies-in-the-window-are-numbered.html?searchResultPosition=1
+
+**Your Friday Briefing**\
+`Allegations of a bribery scheme at the heart of the E.U.`\
+https://nytimes.com/2022/12/16/briefing/bribery-european-parliament-russia-ukraine.html?searchResultPosition=2
+
+**Death Penalty Researchers Call 2022 ‘Year of the Botched Execution’**\
+`Even as the total number of executions remained among the lowest in a generation, several high-profile failures forced states including Alabama and Tennessee to temporarily halt executions.`\
+https://nytimes.com/2022/12/16/us/death-penalty-botched-executions.html?searchResultPosition=3
+
+**Tradition Was Never Their Thing. Why Start With a Wedding?**\
+`Kelly Daniels and Emir Muhovic were married by a graffiti artist they love, during a pop-up wedding at Art Basel in Miami Beach, Fla.`\
+https://nytimes.com/2022/12/16/style/kelly-daniels-emir-muhovic-wedding.html?searchResultPosition=4
+
+**Each Gave Up on Love. Which, of Course, Is When They Found It.**\
+`Jay Wong and Shawn Lamb grew up with supportive families. Now they want to build one of their own.`\
+https://nytimes.com/2022/12/16/style/jay-wong-shawn-lamb-wedding.html?searchResultPosition=5
+
+**My Stint as the Adulterous Flavor-of-the-Month**\
+`I was trying to have an experience and ended up having a life.`\
+https://nytimes.com/2022/12/16/style/modern-love-my-stint-as-adulterer.html?searchResultPosition=6
+
+**Not Quite a Setup, But an Instant Connection Nonetheless**\
+`After Courtney Seamon and Kyle Moore’s first date they knew right away that there was something special brewing between them.`\
+https://nytimes.com/2022/12/16/style/courtney-seamon-kyle-moore-wedding.html?searchResultPosition=7
+
+**An Almost-Missed Connection Saved By a DM**\
+`Allison Port wasn’t responding to Joseph Flaum’s dating app messages, so he tracked her down through social media. She was impressed.`\
+https://nytimes.com/2022/12/16/style/allison-port-joseph-flaum-wedding.html?searchResultPosition=8
+
+**Day 16: A “Community” Christmas**\
+`Danny Pudi, who played Abed, reflects on the show’s lessons for the holiday season.`\
+https://nytimes.com/2022/12/16/style/danny-pudi-community-christmas.html?searchResultPosition=9
+
 **5 Louisiana Officers Charged in 2019 Death of Black Driver**\
 `The charges are the first to emerge in a case that has mobilized activists and drawn widespread scrutiny of the Louisiana State Police.`\
-https://nytimes.com/2022/12/15/us/ronald-greene-louisiana-police-charges.html?searchResultPosition=1
-
-**Deadly Protests Rock Peru Following Ouster of the Former President**\
-`At least 16 people were killed in violent clashes, as thousands of former President Pedro Castillo’s supporters protested to demand his reinstatement.`\
-https://nytimes.com/video/world/americas/100000008690347/peru-protest-pedro-castillo.html?searchResultPosition=2
-
-**Inside Mar-a-Lago, Where Thousands Partied Near Secret Files**\
-`A Times investigation shows how Donald J. Trump stored classified documents in high-traffic areas at Mar-a-Lago, where guests may have been within feet of the materials.`\
-https://nytimes.com/interactive/2022/12/15/us/mar-a-lago-trump-documents.html?searchResultPosition=3
-
-**What in the World Is Happening in Israel?**\
-`The future may bring a one-state solution, a two-state solution or really one big mess.`\
-https://nytimes.com/2022/12/15/opinion/israel-palestinians-arabs-jews.html?searchResultPosition=4
-
-**Quotation of the Day: Covid Can Spread From Corpses, Studies Say**\
-`Quotation of the Day for Friday, December 16, 2022.`\
-https://nytimes.com/2022/12/15/pageoneplus/quotation-of-the-day-covid-can-spread-from-corpses-studies-say.html?searchResultPosition=5
-
-**Variety: Acrostic**\
-`Emily Cox and Henry Rathvon’s puzzle preaches the power of adaptation.`\
-https://nytimes.com/2022/12/15/crosswords/variety-acrostic.html?searchResultPosition=6
-
-**Corrections: Dec. 16, 2022**\
-`Corrections that appeared in print on Friday, Dec. 16, 2022.`\
-https://nytimes.com/2022/12/15/pageoneplus/corrections-dec-16-2022.html?searchResultPosition=7
-
-**Channel Through a Barrel**\
-`Kameron Austin Collins schools me on a few things.`\
-https://nytimes.com/2022/12/15/crosswords/daily-puzzle-2022-12-16.html?searchResultPosition=8
-
-**Congress Inches Toward Spending Deal, Clearing a Weeklong Extension**\
-`The Senate passed legislation to avert a government shutdown this weekend as negotiators worked to finalize an agreement to provide funding through September.`\
-https://nytimes.com/2022/12/15/us/politics/senate-spending-deal.html?searchResultPosition=9
-
-**Review: A Solo ‘Great Expectations’ That Calls for Endurance**\
-`The British comedian Eddie Izzard plays every part in this relatively straightforward adaptation of Charles Dickens’s classic story.`\
-https://nytimes.com/2022/12/15/theater/great-expectations-review-eddie-izzard.html?searchResultPosition=10
+https://nytimes.com/2022/12/15/us/ronald-greene-louisiana-police-charges.html?searchResultPosition=10
 
