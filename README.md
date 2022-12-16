@@ -1,5 +1,5 @@
 **Spending a Month’s Salary to See Bad Bunny, Only to Be Turned Away**\
-`The concert was supposed to be one of Mexico’s largest, sold out months before. Instead, one of the world’s biggest stars played to a nearly empty floor.`\
+`The concert was supposed to be one of Mexico’s largest, sold out months before. Instead, one of the world’s biggest stars played to a half empty floor.`\
 https://nytimes.com/2022/12/16/world/americas/bad-bunny-ticketmaster-mexico.html?searchResultPosition=1
 
 **The Top Weeknight Recipes of 2022**\
