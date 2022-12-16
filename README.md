@@ -2,7 +2,7 @@
 `Griner, in her first public comments since being freed from imprisonment in Russia, said she would return to the Phoenix Mercury next season and work to free wrongful detainees outside the United States. “Every family deserves to be whole,” she said.`\
 https://nytimes.com/2022/12/16/sports/brittney-griner-wnba-home.html?searchResultPosition=1
 
-**Father of Accused Highland Park Gunman Charged in Connection with Shooting**\
+**Father of Accused Highland Park Gunman Charged in Connection With Shooting**\
 `Robert Crimo Jr., whose son is accused of killing seven people at this year’s Fourth of July parade in Highland Park, Ill., was charged with seven counts of reckless conduct.`\
 https://nytimes.com/2022/12/16/us/highland-park-shooting-gunman-father-charged.html?searchResultPosition=2
 
