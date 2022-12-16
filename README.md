@@ -27,7 +27,7 @@ https://nytimes.com/2022/12/16/us/highland-park-shooting-gunman-father-charged.h
 https://nytimes.com/2022/12/16/us/chicago-shooting.html?searchResultPosition=7
 
 **Justice Dept. Revises Rules for Drug Cases to Address Racial Disparities**\
-`A majority of those convicted of possession of crack cocaine are Black, and the mandatory sentence is far harsher than for powder cocaine.`\
+`A majority of those convicted of crack cocaine trafficking are Black, and the mandatory sentence is far harsher than for powder cocaine.`\
 https://nytimes.com/2022/12/16/us/politics/justice-dept-crack-cocaine.html?searchResultPosition=8
 
 **Russian Official in Africa Wounded by Package Bomb, Moscow Says**\
