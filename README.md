@@ -4,7 +4,7 @@ https://nytimes.com/2022/12/17/insider/first-crossword.html?searchResultPosition
 
 **Vo1., No. 1**\
 `The first issue of The Times arrived in a country that was tearing itself apart.`\
-https://nytimes.com/2022/12/17/pageoneplus/new-york-times-year.html?searchResultPosition=2
+https://nytimes.com/2022/12/17/insider/new-york-times-year.html?searchResultPosition=2
 
 **Corrections: Dec. 17, 2022**\
 `Corrections that appeared in print on Saturday, Dec. 17, 2022.`\
