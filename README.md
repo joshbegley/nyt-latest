@@ -1,4 +1,4 @@
-**Record Number of Guns Confiscated at U.S. Airports in 2022**\
+**Record Number of Guns Confiscated at U.S. Airports, T.S.A. Says**\
 `Transportation Security Administration officers had intercepted 6,301 guns as of mid-December, the agency said.`\
 https://nytimes.com/2022/12/17/us/tsa-firearms-record.html?searchResultPosition=1
 
