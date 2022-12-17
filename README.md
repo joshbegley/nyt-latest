@@ -1,40 +1,40 @@
-**Once a Figurehead of Change, Ireland’s Returning Leader Has Lots to Prove**\
-`In Leo Varadkar’s first stint as prime minister, he embodied for many his country’s move into modernity. But after several missteps, he now takes up the role for a second time, with the glow of optimism dimmed.`\
-https://nytimes.com/2022/12/17/world/europe/leo-varadkar-ireland.html?searchResultPosition=1
+**In Chicago, a Battle Over a Religious Statue Is About Much More Than Religion**\
+`The city’s Pilsen neighborhood used to be home to Polish immigrants. Now it’s mostly Latino. Both groups see much at stake in the fate of a replica of Michelangelo’s Pietà.`\
+https://nytimes.com/2022/12/17/us/chicago-archdiocese-st-adalbert-statue.html?searchResultPosition=1
 
-**Restaurateur, Political Donor, Tipster: The Many Roles of FTX’s Ryan Salame**\
-`The co-chief executive of an FTX unit who told regulators about wrongdoing at the exchange was a big Republican donor. He also bought restaurants.`\
-https://nytimes.com/2022/12/17/business/ftx-ryan-salame.html?searchResultPosition=2
+**The World Cup Final Caps a Complex Saga Between Messi and Argentina**\
+`Lionel Messi left Argentina when he was 13 and has had a complicated relationship with the nation since. But this World Cup has changed things.`\
+https://nytimes.com/2022/12/17/world/americas/world-cup-final-messi-argentina.html?searchResultPosition=2
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/12/17/crosswords/spelling-bee-forum.html?searchResultPosition=3
+**How a Town Famous for Xenophobia Fell in Love With Immigrants**\
+`“We now want as many immigrants as possible,” said Bernard Thompson, the mayor of Hérouxville, Quebec, a onetime supporter of the town’s anti-immigrant code.`\
+https://nytimes.com/2022/12/17/world/canada/quebec-immigrants-xenophobia.html?searchResultPosition=3
 
-**Birth of the Crossword**\
-`In 1941, the Japanese attack on Pearl Harbor ushered the United States into World War II and the New York Times Crossword into print.`\
-https://nytimes.com/2022/12/17/insider/first-crossword.html?searchResultPosition=4
+**How Dapper Dan, Harlem Haberdasher, Spends His Sundays**\
+`The style icon is a news obsessive, a reader, a salsa dancer and a churchgoer (he skips the sermons, though).`\
+https://nytimes.com/2022/12/17/nyregion/dapper-dan.html?searchResultPosition=4
 
-**Vo1., No. 1**\
-`The first issue of The Times arrived in a country that was tearing itself apart.`\
-https://nytimes.com/2022/12/17/insider/new-york-times-year.html?searchResultPosition=5
+**What Comes Next for the Most Empty Downtown in America**\
+`Tech workers are still at home. The $17 salad place is expanding into the suburbs. So what is left in San Francisco?`\
+https://nytimes.com/2022/12/17/business/economy/california-san-francisco-empty-downtown.html?searchResultPosition=5
 
-**Corrections: Dec. 17, 2022**\
-`Corrections that appeared in print on Saturday, Dec. 17, 2022.`\
-https://nytimes.com/2022/12/17/pageoneplus/corrections-dec-17-2022.html?searchResultPosition=6
+**How to Stock Your Medicine Cabinet During the ‘Tripledemic’**\
+`Doctors weigh in on the essentials families need and what parents can do if they’re unable to find children’s pain reliever.`\
+https://nytimes.com/2022/12/17/well/covid-flu-rsv-medicine.html?searchResultPosition=6
 
-**Quotation of the Day: For the Hundreds of Lost Children at Tuam, a Proper Burial Is Near**\
-`Quotation of the Day for Saturday, December 17, 2022.`\
-https://nytimes.com/2022/12/17/pageoneplus/quotation-of-the-day-for-the-hundreds-of-lost-children-at-tuam-a-proper-burial-is-near.html?searchResultPosition=7
+**They Dispense Street Justice, One Defaced License Plate at a Time**\
+`Scofflaws are tampering with tags, costing New York agencies more than $100 million a year in missed payments and fines. A group of citizen enforcers is coming to the city’s rescue.`\
+https://nytimes.com/2022/12/17/nyregion/license-plate-vigilantes.html?searchResultPosition=7
 
-**Tunisia Heads for First Elections Since Presidential Power Grab**\
-`Voters will choose a new Parliament, but under revised rules that vastly dilute the influence of political parties that many blame for sabotaging the North African nation’s 10-year experiment with democracy.`\
-https://nytimes.com/2022/12/17/world/middleeast/tunisia-parliament-elections.html?searchResultPosition=8
+**The Year We Lost It**\
+`We’re living in a rage-filled emotional dystopia. Is there a way out?`\
+https://nytimes.com/2022/12/17/style/the-year-we-lost-it.html?searchResultPosition=8
 
-**How to Watch the N.F.L.’s Saturday Tripleheader**\
-`The Week 15 lineup features a rare Saturday lineup of three games topped by a prime-time matchup between the Miami Dolphins and the Buffalo Bills.`\
-https://nytimes.com/2022/12/17/sports/football/nfl-tripleheader-how-to-watch.html?searchResultPosition=9
+**Man Admits Fatally Beating Chinese Immigrant and Faces 20-Year Term**\
+`GuiYing Ma and her husband immigrated to New York seeking work and adventure. She died after a vicious sidewalk attack.`\
+https://nytimes.com/2022/12/17/nyregion/guiying-ma-killing-sentence.html?searchResultPosition=9
 
-**Day 17: The Mysterious History of Mistletoe**\
-`How a hemiparasitic shrub became a symbol of romantic high jinks and holiday cheer.`\
-https://nytimes.com/2022/12/17/style/mistletoe-history-mystery.html?searchResultPosition=10
+**For Planet Earth, This Might Be the Start of a New Age**\
+`A panel of experts has spent more than a decade deliberating on how, and whether, to mark a momentous new epoch in geologic time: our own.`\
+https://nytimes.com/2022/12/17/climate/anthropocene-age-geology.html?searchResultPosition=10
 
