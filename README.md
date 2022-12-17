@@ -1,6 +1,6 @@
 **Birth of the Crossword**\
 `In 1941, the Japanese attack on Pearl Harbor ushered the United States into World War II and the New York Times Crossword into print.`\
-https://nytimes.com/2022/12/17/pageoneplus/first-crossword.html?searchResultPosition=1
+https://nytimes.com/2022/12/17/insider/first-crossword.html?searchResultPosition=1
 
 **Vo1., No. 1**\
 `The first issue of The Times arrived in a country that was tearing itself apart.`\
