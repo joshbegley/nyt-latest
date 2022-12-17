@@ -22,7 +22,7 @@ https://nytimes.com/2022/12/17/business/media/twitter-reinstates-accounts.html?s
 `The city’s Pilsen neighborhood used to be home to Polish immigrants. Now it’s mostly Latino. Both groups see much at stake in the fate of a replica of Michelangelo’s Pietà.`\
 https://nytimes.com/2022/12/17/us/chicago-archdiocese-st-adalbert-statue.html?searchResultPosition=6
 
-**The World Cup Final Caps a Complex Saga Between Messi and Argentina**\
+**World Cup Final Caps a Complex Saga Between Messi and Argentina**\
 `Lionel Messi left Argentina when he was 13 and has had a complicated relationship with the nation since. But this World Cup has changed things.`\
 https://nytimes.com/2022/12/17/world/americas/world-cup-final-messi-argentina.html?searchResultPosition=7
 
