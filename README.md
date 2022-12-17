@@ -26,13 +26,13 @@ https://nytimes.com/2022/12/17/opinion/iran-women-rape.html?searchResultPosition
 `Benjamin Netanyahu’s government is a threat to the democratic future of Israel.`\
 https://nytimes.com/2022/12/17/opinion/israel-netanyahu.html?searchResultPosition=7
 
-**Celebrity Crypto-Hawkers Should Get a Close Look**\
-`Fame should not be a “get out of jail free” card when it comes to crypto fraud.`\
-https://nytimes.com/2022/12/17/opinion/crypto-ftx-crash-celebrity.html?searchResultPosition=8
-
 **This Was the Perfect World Cup for Our Strange Era**\
 `The tournament offered a version of the world in which the global south is more present and more powerful.`\
-https://nytimes.com/2022/12/17/opinion/world-cup-final-argentina-france.html?searchResultPosition=9
+https://nytimes.com/2022/12/17/opinion/world-cup-final-argentina-france.html?searchResultPosition=8
+
+**Celebrity Crypto-Hawkers Should Get a Close Look**\
+`Fame should not be a “get out of jail free” card when it comes to crypto fraud.`\
+https://nytimes.com/2022/12/17/opinion/crypto-ftx-crash-celebrity.html?searchResultPosition=9
 
 **Title Search: Can You Find the 14 Y.A. Novels Hidden in This Text?**\
 `The titles of 14 popular young-adult novels are hidden here in one text passage. Can you discover all the books?`\
