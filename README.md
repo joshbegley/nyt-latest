@@ -8,7 +8,7 @@ https://nytimes.com/2022/12/17/opinion/all-quiet-on-the-western-front.html?searc
 
 **Kylian Mbappé Is Ready to Make Messi’s Moment His Own**\
 `The France and Argentina stars are teammates at Qatar-owned Paris St.-Germain. But when they collide in the World Cup final, both have much to gain, and a lot to lose.`\
-https://nytimes.com/2022/12/17/sports/soccer/kylian-mbappe-lionel-messi-final.html?searchResultPosition=3
+https://nytimes.com/2022/12/17/sports/soccer/kylian-mbappe-lionel-messi-world-cup-final.html?searchResultPosition=3
 
 **How It Feels to Be a Widow**\
 `Readers offer their personal stories and advice in response to an essay by Betty Rollin. Also: Solitude as we age.`\
