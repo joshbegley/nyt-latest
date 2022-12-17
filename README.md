@@ -4,7 +4,7 @@ https://nytimes.com/2022/12/17/business/dealbook/kroger-albertsons-merger-privat
 
 **Iran Uses Rape to Enforce Women’s Modesty**\
 `America and the West need to show as much strength in opposing this tyrannical regime as these protesters have. `\
-https://nytimes.com/2022/12/17/opinion/iran-uses-rape-to-enforce-womens-modesty.html?searchResultPosition=2
+https://nytimes.com/2022/12/17/opinion/iran-women-rape.html?searchResultPosition=2
 
 **The Ideal of Democracy in a Jewish State Is in Jeopardy**\
 `Benjamin Netanyahu’s government is a threat to the democratic future of Israel.`\
