@@ -1,4 +1,4 @@
-**¡Gooooool! Watch All 12 Scores From the Incredible World Cup Final**\
+**¡Gooooool! Watch All the Scores From the Incredible World Cup Final**\
 `Argentina and France each scored two goals in regulation, both scored once in extra time, and Argentina won in a penalty shootout, 4-2. See all the highlights from Telemundo and Fox.`\
 https://nytimes.com/2022/12/18/sports/soccer/goals-world-cup-final-penalty-kicks.html?searchResultPosition=1
 
