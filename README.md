@@ -1,4 +1,4 @@
-**For Messi, and Argentina, the (extra) wait is worth it.**\
+**For Messi, and Argentina, the (Extra) Wait Is Worth It**\
 `It looked like another title might have slipped through its fingers, but Argentina, and its star, claimed the ultimate trophy.`\
 https://nytimes.com/2022/12/18/sports/soccer/messi-world-cup-win.html?searchResultPosition=1
 
