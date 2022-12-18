@@ -1,40 +1,40 @@
+**What Jessica Chastain and Uma Thurman Wore to the Museum**\
+`Great outfits from the Met Museum, MoMA and Creative Time galas.`\
+https://nytimes.com/2022/12/18/style/jessica-chastain-uma-thurman-dress-moma-met-creative-time.html?searchResultPosition=1
+
+**‘I’m Not Ready’: A Mother Denied an Abortion in Texas Faces an Uncertain Future**\
+`Faith-based Blue Haven Ranch provides temporary aid for poor Texas women with newborns. But how will they survive when it ends?`\
+https://nytimes.com/2022/12/18/us/politics/im-not-ready-a-mother-denied-an-abortion-in-texas-faces-an-uncertain-future.html?searchResultPosition=2
+
+**The Education of CNN’s Chris Licht**\
+`The network’s chief executive knew the job would not be easy. But this hard?`\
+https://nytimes.com/2022/12/18/business/media/the-education-of-cnns-chris-licht.html?searchResultPosition=3
+
+**Counting Russia’s War Dead, With Tips, Clips and a Giant Spreadsheet**\
+`Amid doubts about Moscow’s true war losses, Russian data journalists and volunteers use news articles, tombstone photographs and other open-source information to tally the Russian toll from the war in Ukraine.`\
+https://nytimes.com/2022/12/18/world/europe/russia-death-toll-war.html?searchResultPosition=4
+
+**In the U.S., His Site Has Been Linked to Massacres. In Japan, He’s a Star.**\
+`Hiroyuki Nishimura has become a famous voice for disenchanted young Japanese. What he talks much less about is his ownership of the notorious website 4chan.`\
+https://nytimes.com/2022/12/18/business/4chan-hiroyuki-nishimura.html?searchResultPosition=5
+
+**Why Many Older Women Are Getting Pap Tests They Don’t Need**\
+`Women over 65 are being screened for cervical cancer in diminishing numbers. But some are reluctant to give up the tests.`\
+https://nytimes.com/2022/12/18/health/older-women-pap-tests.html?searchResultPosition=6
+
+**A New Lifeline for the Unseen: Homeless College Students**\
+`Two privately funded pilot programs are covering the rent for City University of New York students who face housing insecurity.`\
+https://nytimes.com/2022/12/18/realestate/college-housing-homeless-students.html?searchResultPosition=7
+
+**Another Sign of Hard Times in Local News: A Declined Visa**\
+`Phil O’Brien, a Briton who has run a Manhattan publication for several years, had his visa denied because immigration officials deemed his struggling business “marginal.”`\
+https://nytimes.com/2022/12/18/business/media/nyc-local-news-immigration-visa.html?searchResultPosition=8
+
+**For Jan Morris, Staying in One Place Was Never an Option**\
+`A new biography examines what made the prolific travel writer and transgender figure so driven, and who was ignored along the way.`\
+https://nytimes.com/2022/12/18/books/jan-morris-biography-life-from-both-sides.html?searchResultPosition=9
+
 **How Can Tainted Spinach Cause Hallucinations?**\
 `A food recall from Australia sheds light on an unusual aspect of brain chemistry.`\
-https://nytimes.com/2022/12/18/world/australia/spinach-hallucinations.html?searchResultPosition=1
-
-**Quotation of the Day: With Christmas a Sunday, Pews May Be Empty**\
-`Quotation of the Day for Sunday, December 18, 2022.`\
-https://nytimes.com/2022/12/18/pageoneplus/quotation-of-the-day-with-christmas-a-sunday-pews-may-be-empty.html?searchResultPosition=2
-
-**Vatican Removes Anti-Abortion Activist From the Priesthood**\
-`Frank Pavone’s work has led to clashes over the years with some Catholic leaders.`\
-https://nytimes.com/2022/12/18/us/vatican-removes-anti-abortion-leader-priesthood.html?searchResultPosition=3
-
-**North Korea Fires Missiles Capable of Reaching Japan**\
-`The launches were the first missile tests by North Korea since it fired an ICBM a month ago.`\
-https://nytimes.com/2022/12/18/world/asia/north-korea-missiles-japan.html?searchResultPosition=4
-
-**Military Spending Surges, Creating New Boom for Arms Makers**\
-`The combination of the war in Ukraine and concern about longer-term threats from Russia and China are driving a bipartisan push to increase U.S. capacity to produce weapons.`\
-https://nytimes.com/2022/12/18/us/politics/defense-contractors-ukraine-russia.html?searchResultPosition=5
-
-**Where Romantic Poetry in a Fading Language Draws Stadium Crowds**\
-`That 300,000 people celebrated Urdu verse during a three-day festival was testament to the peculiar reality of the language in India.`\
-https://nytimes.com/2022/12/18/world/asia/india-urdu-poetry.html?searchResultPosition=6
-
-**O Come All Ye Faithful, Except When Christmas Falls on a Sunday**\
-`Worried about coaxing people into pews when they’d rather be in their pajamas, some Protestant pastors are canceling Sunday services on Dec. 25.`\
-https://nytimes.com/2022/12/18/us/christmas-church-service-protestants.html?searchResultPosition=7
-
-**Capturing the Religions of New York on Camera**\
-`A Times photographer who documented the spiritual diversity of the city’s boroughs for nearly a year said he was deeply moved by the assignment.`\
-https://nytimes.com/2022/12/18/insider/new-york-religion-photography.html?searchResultPosition=8
-
-**‘After We Finished Our Meal, Our Waitress Returned to the Table’**\
-`The upside of eating at small restaurant, a Coney Island day and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2022/12/18/nyregion/metropolitan-diary.html?searchResultPosition=9
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/12/18/crosswords/spelling-bee-forum.html?searchResultPosition=10
+https://nytimes.com/2022/12/18/world/australia/spinach-hallucinations.html?searchResultPosition=10
 
