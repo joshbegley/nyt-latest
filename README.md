@@ -1,40 +1,40 @@
+**Want to Understand Television’s Troubles? Look at AMC.**\
+`The company has struggled to earn enough from streaming to make up for losses from its traditional cable business. It is a story widespread in the industry.`\
+https://nytimes.com/2022/12/18/business/media/amc-networks-streaming-cable.html?searchResultPosition=1
+
+**Streaming’s Golden Age Is Suddenly Dimming**\
+`After years of breakneck growth, the number of scripted TV series orders made by networks and streamers is in decline.`\
+https://nytimes.com/2022/12/18/business/media/streaming-tv-shows-canceled.html?searchResultPosition=2
+
 **After Historic Comeback, Mbappé’s Quest to Be Considered the Best Becomes Longer**\
 `Kylian Mbappé twice brought France back to tie Argentina, but his bid to lead his country to consecutive World Cup titles fell short on penalty kicks.`\
-https://nytimes.com/2022/12/18/sports/soccer/mbappe-world-cup-france-loss.html?searchResultPosition=1
+https://nytimes.com/2022/12/18/sports/soccer/mbappe-world-cup-france-loss.html?searchResultPosition=3
 
 **Your Monday Briefing: Argentina Triumphs**\
 `Plus: A Times analysis of how Russia bungled the invasion.`\
-https://nytimes.com/2022/12/18/briefing/argentina-france-world-cup.html?searchResultPosition=2
+https://nytimes.com/2022/12/18/briefing/argentina-france-world-cup.html?searchResultPosition=4
 
 **Twitter to Ban Accounts That Promote Rival Social Media**\
 `The move may affect giant social media platforms, including Facebook and Instagram, as well as smaller ones like Mastodon and Truth Social.`\
-https://nytimes.com/2022/12/18/business/twitter-ban-social-media-competitors-mastodon.html?searchResultPosition=3
+https://nytimes.com/2022/12/18/business/twitter-ban-social-media-competitors-mastodon.html?searchResultPosition=5
 
 **¡Gooooool! Watch All the Scores From the Incredible World Cup Final**\
 `Argentina and France each scored two goals in regulation, both scored once in extra time, and Argentina won in a penalty shootout, 4-2. See all the highlights from Telemundo and Fox.`\
-https://nytimes.com/2022/12/18/sports/soccer/goals-world-cup-final-penalty-kicks.html?searchResultPosition=4
+https://nytimes.com/2022/12/18/sports/soccer/goals-world-cup-final-penalty-kicks.html?searchResultPosition=6
 
 **Review: ‘The Magic Flute’ Directs Its Whimsy Toward the Younger Set**\
 `Julie Taymor’s version of Mozart’s opera, a fairy tale of puppets and plexiglass, achieves its finest form in the Met’s condensed version for families.`\
-https://nytimes.com/2022/12/18/arts/music/review-the-magic-flute.html?searchResultPosition=5
+https://nytimes.com/2022/12/18/arts/music/review-the-magic-flute.html?searchResultPosition=7
 
 **Proud Boys Trial Is Set to Open, Focusing on Role in Jan. 6 Violence**\
 `The charge of seditious conspiracy is the same as in a recent trial of members of the Oath Keepers militia, but the Proud Boys defendants are accused of a central role in the fighting at the Capitol.`\
-https://nytimes.com/2022/12/18/us/politics/proud-boys-trial-jan-6-capitol-attack.html?searchResultPosition=6
+https://nytimes.com/2022/12/18/us/politics/proud-boys-trial-jan-6-capitol-attack.html?searchResultPosition=8
 
 **Hubert Davis Brings Out North Carolina’s Toughness at the Garden**\
 `The men’s basketball teams at North Carolina and U.C.L.A., in wins against Ohio State and Kentucky, took to the big stage at Madison Square Garden and showed how tough they could be.`\
-https://nytimes.com/2022/12/18/sports/ncaabasketball/ucla-north-carolina-ohio-state-kentucky.html?searchResultPosition=7
+https://nytimes.com/2022/12/18/sports/ncaabasketball/ucla-north-carolina-ohio-state-kentucky.html?searchResultPosition=9
 
 **For Messi, and Argentina, the (Extra) Wait Is Worth It**\
 `It looked like another title might have slipped through its fingers, but Argentina, and its star, claimed the ultimate trophy.`\
-https://nytimes.com/2022/12/18/sports/soccer/messi-world-cup-win.html?searchResultPosition=8
-
-**‘Avatar: The Way of Water’ Has a Subdued Start at the Box Office**\
-`Ticket sales totaled $134 million in North America, nearly doubling the opening for the first ‘Avatar.’ But Hollywood was expecting more.`\
-https://nytimes.com/2022/12/18/movies/avatar-the-way-of-water-box-office.html?searchResultPosition=9
-
-**Ukraine Says Russia Is Training Soldiers for Possible New Offensive**\
-`An adviser to President Volodymyr Zelensky urged Western allies to take seriously the threat of a new Russian onslaught, which could include mass infantry attacks.`\
-https://nytimes.com/2022/12/18/world/europe/ukraine-russia-war-winter.html?searchResultPosition=10
+https://nytimes.com/2022/12/18/sports/soccer/messi-world-cup-win.html?searchResultPosition=10
 
