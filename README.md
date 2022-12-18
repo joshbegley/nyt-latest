@@ -34,7 +34,7 @@ https://nytimes.com/2022/12/18/business/the-week-in-business-the-ftx-arrest.html
 `The riot was an attack not just on an essential American institution but also on the people who live and serve to protect it.`\
 https://nytimes.com/2022/12/18/opinion/capitol-police-riot.html?searchResultPosition=9
 
-**The Sunday Read: ‘He Had a Dark Secret. It Changed His Best Friend’s Life.’**\
-`Tin Chin and Mo Lin were inseparable at the homeless shelter. But one of the men wasn’t who he seemed to be.`\
-https://nytimes.com/2022/12/18/podcasts/the-daily/the-sunday-read-he-had-a-dark-secret-it-changed-his-best-friends-life.html?searchResultPosition=10
+**The U.S. Needs to Change the Way It Does Business With China**\
+`It’s time to adopt an explicit policy of strategic decoupling of our economy from theirs.`\
+https://nytimes.com/2022/12/18/opinion/united-states-china-economics-tariffs.html?searchResultPosition=10
 
