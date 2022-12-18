@@ -6,7 +6,7 @@ https://nytimes.com/2022/12/18/business/media/amc-networks-streaming-cable.html?
 `After years of breakneck growth, the number of scripted TV series orders made by networks and streamers is in decline.`\
 https://nytimes.com/2022/12/18/business/media/streaming-tv-shows-canceled.html?searchResultPosition=2
 
-**After Historic Comeback, Mbappé’s Quest to Be Considered the Best Becomes Longer**\
+**For Mbappé, Three Goals Are a Bitter Consolation Prize**\
 `Kylian Mbappé twice brought France back to tie Argentina, but his bid to lead his country to consecutive World Cup titles fell short on penalty kicks.`\
 https://nytimes.com/2022/12/18/sports/soccer/mbappe-world-cup-france-loss.html?searchResultPosition=3
 
