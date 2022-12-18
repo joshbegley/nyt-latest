@@ -1,6 +1,6 @@
 **How Can Tainted Spinach Cause Hallucinations?**\
 `A food recall from Australia sheds light on an unusual aspect of brain chemistry.`\
-https://nytimes.com/2022/12/18/world/australia/tainted-spinach-may-cause-hallucinations.html?searchResultPosition=1
+https://nytimes.com/2022/12/18/world/australia/spinach-hallucinations.html?searchResultPosition=1
 
 **Quotation of the Day: With Christmas a Sunday, Pews May Be Empty**\
 `Quotation of the Day for Sunday, December 18, 2022.`\
