@@ -23,7 +23,7 @@ https://nytimes.com/2022/12/18/sports/louis-orr-dead.html?searchResultPosition=5
 https://nytimes.com/2022/12/18/crosswords/daily-puzzle-2022-12-19.html?searchResultPosition=6
 
 **What We Learned From Week 15 in the N.F.L.**\
-`Kansas City and the Cowboys were pushed to overtime in surprise finales, but the Lions’ continued playoff push may be the most shocking N.F.L. result.`\
+`The Raiders got a last-minute gift from the Patriots, the Jaguars shocked the Cowboys in overtime, and the Lions aren’t out of surprises quite yet.`\
 https://nytimes.com/2022/12/18/sports/football/nfl-week-15-picks.html?searchResultPosition=7
 
 **Qatar Got the World Cup It Wanted**\
