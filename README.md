@@ -36,5 +36,5 @@ https://nytimes.com/2022/12/19/theater/stephen-sondheim-books.html?searchResultP
 
 **Watch Live: Jan. 6 Panel Holds Final Public Session**\
 `The House committee investigating the Jan. 6 attack on the Capitol is expected to approve its final report and vote on issuing criminal and ethics referrals against former President Donald J. Trump.`\
-https://nytimes.com/video/us/politics/100000008693889/jan-6-hearing-trump.html?searchResultPosition=10
+https://nytimes.com/video/embedded/us/politics/100000008693889/jan-6-hearing-trump.html?searchResultPosition=10
 
