@@ -1,40 +1,40 @@
+**Seeking Heat, and Companionship, in a Hard Scotland Winter**\
+`In a Glasgow neighborhood, the cost-of-living crisis is exacerbating energy problems and financial worries, and vital community hubs are struggling to stay afloat.`\
+https://nytimes.com/2022/12/19/world/europe/scotland-winter-heat-poverty.html?searchResultPosition=1
+
+**How Naming the James Webb Telescope Turned Into a Fight Over Homophobia**\
+`Did the former head of NASA discriminate against gay people? One physicist tried to rebut the accusation, only to find himself the target of attacks.`\
+https://nytimes.com/2022/12/19/us/james-webb-telescope-gay-rights.html?searchResultPosition=2
+
+**Who Is Rep.-Elect George Santos? His Résumé May Be Largely Fiction.**\
+`Mr. Santos, a Republican from New York, says he’s the “embodiment of the American dream.” But he seems to have misrepresented a number of his career highlights.`\
+https://nytimes.com/2022/12/19/nyregion/george-santos-ny-republicans.html?searchResultPosition=3
+
+**Can a $10 Billion Highway Fix One of New Jersey’s Worst Traffic Jams?**\
+`And, in the face of climate change, should it? A plan to widen the highway that leads into the Holland Tunnel is fueling heated debate.`\
+https://nytimes.com/2022/12/19/nyregion/holland-tunnel-turnpike-extension.html?searchResultPosition=4
+
+**Tesla’s Direct Sales Model Helps It Thwart Customer Lawsuits**\
+`Sales contracts prevent buyers of the company’s electric cars from pursuing class-action suits if something goes wrong.`\
+https://nytimes.com/2022/12/19/business/tesla-class-action-lawsuit-arbitration.html?searchResultPosition=5
+
+**How to Watch the Jan. 6 Committee’s Final Session**\
+`The House committee will meet on Monday afternoon to consider criminal referrals against former President Donald J. Trump and several of his associates before issuing its final report.`\
+https://nytimes.com/2022/12/19/us/politics/how-to-watch-jan-6-hearing.html?searchResultPosition=6
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2022/12/19/crosswords/spelling-bee-forum.html?searchResultPosition=7
+
+**How Latinos Voted in Key House Races**\
+`Democrats did better with Latinos in some places, but there were still warning signs for the party.`\
+https://nytimes.com/interactive/2022/12/19/us/politics/latino-voters-midterms.html?searchResultPosition=8
+
 **Royal Thai Navy Scrambles to Rescue 31 After Its Ship Sinks**\
 `Officials said that the HTMS Sukhothai took on water, lost power and eventually sank in the Gulf of Thailand overnight.`\
-https://nytimes.com/2022/12/19/world/asia/thai-navy-ship-sinks.html?searchResultPosition=1
+https://nytimes.com/2022/12/19/world/asia/thai-navy-ship-sinks.html?searchResultPosition=9
 
 **Word of the Day: ameliorate**\
 `This word has appeared in 27 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/12/19/learning/word-of-the-day-ameliorate.html?searchResultPosition=2
-
-**Your Monday Briefing**\
-`A World Cup final for the ages.`\
-https://nytimes.com/2022/12/19/briefing/world-cup-russia-failures.html?searchResultPosition=3
-
-**What’s on TV This Week: ‘The Banshees of Inisherin’ and Mariah Carey**\
-`Martin McDonagh’s latest dark comedy airs on HBO. And Mariah Carey performs in a Christmas special on CBS.`\
-https://nytimes.com/2022/12/19/arts/television/whats-on-tv-this-week.html?searchResultPosition=4
-
-**No Corrections: Dec. 19, 2022**\
-`No corrections appeared in print on Monday, Dec. 19, 2022.`\
-https://nytimes.com/2022/12/19/pageoneplus/no-corrections-dec-19-2022.html?searchResultPosition=5
-
-**At Least 5 Killed in Shooting at Condo in Canada, Police Say**\
-`The shooting occurred in the city of Vaughan, Ontario, about 20 miles north of Toronto.`\
-https://nytimes.com/2022/12/19/world/canada/canada-vaughan-shooting-condo.html?searchResultPosition=6
-
-**Jan. 6 Panel to Cap 18-Month Inquiry With Final Public Session**\
-`The committee, which consistently broke new ground for a congressional investigation, is expected to approve its final report and vote on issuing criminal and civil referrals against Donald J. Trump.`\
-https://nytimes.com/2022/12/19/us/politics/jan-6-committee-final-hearing.html?searchResultPosition=7
-
-**Day 19: A Season of Hope and Feathers**\
-`For 30 years, I’ve stalked fields and forest for the Christmas Bird Count, an exhausting, exhilarating way to heal.`\
-https://nytimes.com/2022/12/19/style/christmas-bird-count.html?searchResultPosition=8
-
-**The Year in Pictures 2022**\
-`Photographers captured historic moments of war, grief and wonder that defined the year.`\
-https://nytimes.com/interactive/2022/world/year-in-pictures.html?searchResultPosition=9
-
-**‘The Last Straw’: Twitter Users Rage Over Elon Musk’s Latest Actions**\
-`Fury mounted over Mr. Musk’s moves to prevent Twitter users from sharing links to other social media platforms. The billionaire also asked whether he should remain as head of the service.`\
-https://nytimes.com/2022/12/18/technology/elon-musk-twitter-policies-chaos.html?searchResultPosition=10
+https://nytimes.com/2022/12/19/learning/word-of-the-day-ameliorate.html?searchResultPosition=10
 
