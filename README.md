@@ -30,8 +30,8 @@ https://nytimes.com/video/business/100000008694640/ftx-bankman-fried-court-baham
 `Some people may spend more than they should when they use a ‘buy now, pay later’ company `\
 https://nytimes.com/2022/12/19/opinion/buy-now-pay-later.html?searchResultPosition=8
 
-**Republican-Led States Ask Supreme Court to Allow Border Expulsions**\
-`The case concerns Title 42, a public health measure invoked by the Trump administration during the pandemic to block migrants from seeking asylum in the United States.`\
+**Chief Justice Roberts Briefly Halts Decision Banning Border Expulsions**\
+`At issue is Title 42, a public health measure invoked by the Trump administration during the pandemic to block migrants from seeking asylum in the United States.`\
 https://nytimes.com/2022/12/19/us/politics/title-42-scotus-immigration-asylum.html?searchResultPosition=9
 
 **Drew Griffin, CNN Investigative Journalist, Dies at 60**\
