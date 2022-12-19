@@ -1,4 +1,4 @@
-**For Wasps, Sexuality Equality Includes Genital Stingers**\
+**For Wasps, Sexual Equality Includes Genital Stingers**\
 `A study that involved giving frogs an unpleasant snack has shown that male wasps really can defend themselves with jabs from their genitalia.`\
 https://nytimes.com/2022/12/19/science/wasps-penis-spike-sting.html?searchResultPosition=1
 
