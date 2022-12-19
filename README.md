@@ -1,40 +1,40 @@
+**Jan. 6 Panel to Cap 18-Month Inquiry With Final Public Session**\
+`The committee, which consistently broke new ground for a congressional investigation, is expected to approve its final report and vote on issuing criminal and civil referrals against Donald J. Trump.`\
+https://nytimes.com/2022/12/19/us/politics/jan-6-committee-final-hearing.html?searchResultPosition=1
+
+**Day 19: A Season of Hope and Feathers**\
+`For 30 years, I’ve stalked fields and forest for the Christmas Bird Count, an exhausting, exhilarating way to heal.`\
+https://nytimes.com/2022/12/19/style/christmas-bird-count.html?searchResultPosition=2
+
 **The Year in Pictures 2022**\
 `Photographers captured historic moments of war, grief and wonder that defined the year.`\
-https://nytimes.com/interactive/2022/world/year-in-pictures.html?searchResultPosition=1
+https://nytimes.com/interactive/2022/world/year-in-pictures.html?searchResultPosition=3
 
 **‘The Last Straw’: Twitter Users Rage Over Elon Musk’s Latest Actions**\
 `Fury mounted over Mr. Musk’s moves to prevent Twitter users from sharing links to other social media platforms. The billionaire also asked whether he should remain as head of the service.`\
-https://nytimes.com/2022/12/18/technology/elon-musk-twitter-policies-chaos.html?searchResultPosition=2
+https://nytimes.com/2022/12/18/technology/elon-musk-twitter-policies-chaos.html?searchResultPosition=4
 
 **36 People Hurt, 11 Seriously, as Turbulence Rocks a Flight to Hawaii**\
 `A 14-month old and a teenager were among those injured in the flight from Phoenix to Honolulu, the authorities said.`\
-https://nytimes.com/2022/12/18/us/hawaii-flight-turbulence.html?searchResultPosition=3
+https://nytimes.com/2022/12/18/us/hawaii-flight-turbulence.html?searchResultPosition=5
 
 **In Heart of Peru’s Protest, a Pause to Mourn the Dead**\
 `Confrontations between protesters and the Peruvian authorities have left at least 25 dead and hundreds injured. Nowhere may tensions be higher than in the highland city of Ayacucho.`\
-https://nytimes.com/2022/12/18/world/americas/peru-protests.html?searchResultPosition=4
+https://nytimes.com/2022/12/18/world/americas/peru-protests.html?searchResultPosition=6
 
 **Winter Storm and Bitter Cold Could Disrupt Holiday Travel, Forecasters Say**\
 `A storm could make for treacherous conditions for parts of the country leading up to Christmas. Temperatures are also expected to plummet, forecasters said.`\
-https://nytimes.com/2022/12/18/us/winter-storm-snow-cold-christmas.html?searchResultPosition=5
+https://nytimes.com/2022/12/18/us/winter-storm-snow-cold-christmas.html?searchResultPosition=7
 
 **Argentina Hits the Streets for Long-Awaited Celebration**\
 `Spontaneous marches broke out across the country after the Argentine national team won its first World Cup title since 1986.`\
-https://nytimes.com/2022/12/18/sports/soccer/argentina-celebration-win.html?searchResultPosition=6
+https://nytimes.com/2022/12/18/sports/soccer/argentina-celebration-win.html?searchResultPosition=8
 
 **Louis Orr, 64, Dies; Syracuse Star, Knicks Forward and a Coach**\
 `He helped lead a dominant squad at Syracuse and won all-American honors. He later became a role player for the Knicks and a college coach.`\
-https://nytimes.com/2022/12/18/sports/louis-orr-dead.html?searchResultPosition=7
+https://nytimes.com/2022/12/18/sports/louis-orr-dead.html?searchResultPosition=9
 
 **Easy as 1, 2, 3**\
 `Unwrap Jennifer Nutt’s puzzle this holiday season.`\
-https://nytimes.com/2022/12/18/crosswords/daily-puzzle-2022-12-19.html?searchResultPosition=8
-
-**What We Learned From Week 15 in the N.F.L.**\
-`The Raiders got a last-minute gift from the Patriots, the Jaguars shocked the Cowboys in overtime, and the Lions aren’t out of surprises quite yet.`\
-https://nytimes.com/2022/12/18/sports/football/nfl-week-15-picks.html?searchResultPosition=9
-
-**Qatar Got the World Cup It Wanted**\
-`In the end, after a tournament shadowed by controversy since the host rights were awarded, Qatar had the turn in the global spotlight it sought.`\
-https://nytimes.com/2022/12/18/sports/soccer/qatar-world-cup-host.html?searchResultPosition=10
+https://nytimes.com/2022/12/18/crosswords/daily-puzzle-2022-12-19.html?searchResultPosition=10
 
