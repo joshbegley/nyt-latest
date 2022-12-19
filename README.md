@@ -26,8 +26,8 @@ https://nytimes.com/2022/12/19/learning/15-prompts-for-talking-and-writing-about
 `In a letter to Tesla’s board, the Democratic senator asks whether investors have been harmed by the billionaire tech mogul’s time running the social network.`\
 https://nytimes.com/2022/12/19/business/dealbook/warren-musk-tesla-twitter.html?searchResultPosition=7
 
-**Countries Adopt a Sweeping Agreement to Protect Nature**\
-`Delegates meeting in Canada, aiming to halt a dangerous decline in biodiversity, agreed on a deal to place 30 percent of the planet under protection.`\
+**Nearly Every Country Signs On to a Sweeping Deal to Protect Nature**\
+`Roughly 190 nations, aiming to halt a dangerous decline in biodiversity, agreed to preserve 30 percent of the planet’s land and seas. The United States is not officially a participant.`\
 https://nytimes.com/2022/12/19/climate/biodiversity-cop15-montreal-30x30.html?searchResultPosition=8
 
 **The Unsinkable Memes of ‘Titanic’**\
