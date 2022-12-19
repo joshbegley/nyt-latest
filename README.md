@@ -1,5 +1,5 @@
-**Elon Musk Asks Twitter Users if He Should Quit as C.E.O.**\
-`After weeks of turmoil since he bought the company, Mr. Musk surveyed Twitter about whether he should remain in charge and said he would abide by the result.`\
+**Twitter Users Say Elon Musk Should Quit as C.E.O.**\
+`After weeks of turmoil since he bought the company, Mr. Musk surveyed Twitter about whether he should remain in charge, and said he would abide by the result.`\
 https://nytimes.com/2022/12/19/business/elon-musk-quit-twitter.html?searchResultPosition=1
 
 **The Austere Beauty of Egypt’s Long-Distance Hiking Trails**\
