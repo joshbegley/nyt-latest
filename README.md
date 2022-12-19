@@ -8,7 +8,7 @@ https://nytimes.com/2022/12/19/opinion/january-6-trump-criminal-referrals.html?s
 
 **After 90 Years, a Menorah That Symbolized Defiance Is Rekindled in Germany**\
 `A 1931 photograph of a menorah on a windowsill also showed a Nazi flag in the street outside. This Hanukkah the menorah returned to Germany.`\
-https://nytimes.com/2022/12/19/world/europe/after-90-years-a-menorah-that-symbolized-defiance-is-rekindled-in-germany.html?searchResultPosition=3
+https://nytimes.com/2022/12/19/world/europe/menorah-hanukkah-germany.html?searchResultPosition=3
 
 **The ‘Tripledemic’ Holiday: How to Fly More Safely (Hint: Wear a Mask)**\
 `Case counts of Covid, the flu and R.S.V. are ticking up. Here’s what you need to know if you’re planning on flying during the holiday season.`\
