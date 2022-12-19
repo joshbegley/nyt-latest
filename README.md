@@ -1,40 +1,40 @@
+**Quotation of the Day: In Final Session, House Panel to Vote on Criminal Referral for Trump**\
+`Quotation of the Day for Monday, December 19, 2022.`\
+https://nytimes.com/2022/12/19/pageoneplus/quotation-of-the-day-in-final-session-house-panel-to-vote-on-criminal-referral-for-trump.html?searchResultPosition=1
+
 **Seeking Heat, and Companionship, in a Hard Scotland Winter**\
 `In a Glasgow neighborhood, the cost-of-living crisis is exacerbating energy problems and financial worries, and vital community hubs are struggling to stay afloat.`\
-https://nytimes.com/2022/12/19/world/europe/scotland-winter-heat-poverty.html?searchResultPosition=1
+https://nytimes.com/2022/12/19/world/europe/scotland-winter-heat-poverty.html?searchResultPosition=2
 
 **How Naming the James Webb Telescope Turned Into a Fight Over Homophobia**\
 `Did the former head of NASA discriminate against gay people? One physicist tried to rebut the accusation, only to find himself the target of attacks.`\
-https://nytimes.com/2022/12/19/us/james-webb-telescope-gay-rights.html?searchResultPosition=2
+https://nytimes.com/2022/12/19/us/james-webb-telescope-gay-rights.html?searchResultPosition=3
 
 **Who Is Rep.-Elect George Santos? His Résumé May Be Largely Fiction.**\
 `Mr. Santos, a Republican from New York, says he’s the “embodiment of the American dream.” But he seems to have misrepresented a number of his career highlights.`\
-https://nytimes.com/2022/12/19/nyregion/george-santos-ny-republicans.html?searchResultPosition=3
+https://nytimes.com/2022/12/19/nyregion/george-santos-ny-republicans.html?searchResultPosition=4
 
 **Can a $10 Billion Highway Fix One of New Jersey’s Worst Traffic Jams?**\
 `And, in the face of climate change, should it? A plan to widen the highway that leads into the Holland Tunnel is fueling heated debate.`\
-https://nytimes.com/2022/12/19/nyregion/holland-tunnel-turnpike-extension.html?searchResultPosition=4
+https://nytimes.com/2022/12/19/nyregion/holland-tunnel-turnpike-extension.html?searchResultPosition=5
 
 **Tesla’s Direct Sales Model Helps It Thwart Customer Lawsuits**\
 `Sales contracts prevent buyers of the company’s electric cars from pursuing class-action suits if something goes wrong.`\
-https://nytimes.com/2022/12/19/business/tesla-class-action-lawsuit-arbitration.html?searchResultPosition=5
+https://nytimes.com/2022/12/19/business/tesla-class-action-lawsuit-arbitration.html?searchResultPosition=6
 
 **How to Watch the Jan. 6 Committee’s Final Session**\
 `The House committee will meet on Monday afternoon to consider criminal referrals against former President Donald J. Trump and several of his associates before issuing its final report.`\
-https://nytimes.com/2022/12/19/us/politics/how-to-watch-jan-6-hearing.html?searchResultPosition=6
+https://nytimes.com/2022/12/19/us/politics/how-to-watch-jan-6-hearing.html?searchResultPosition=7
 
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/12/19/crosswords/spelling-bee-forum.html?searchResultPosition=7
+https://nytimes.com/2022/12/19/crosswords/spelling-bee-forum.html?searchResultPosition=8
 
 **How Latinos Voted in Key House Races**\
 `Democrats did better with Latinos in some places, but there were still warning signs for the party.`\
-https://nytimes.com/interactive/2022/12/19/us/politics/latino-voters-midterms.html?searchResultPosition=8
+https://nytimes.com/interactive/2022/12/19/us/politics/latino-voters-midterms.html?searchResultPosition=9
 
 **Royal Thai Navy Scrambles to Rescue 31 After Its Ship Sinks**\
 `Officials said that the HTMS Sukhothai took on water, lost power and eventually sank in the Gulf of Thailand overnight.`\
-https://nytimes.com/2022/12/19/world/asia/thai-navy-ship-sinks.html?searchResultPosition=9
-
-**Word of the Day: ameliorate**\
-`This word has appeared in 27 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/12/19/learning/word-of-the-day-ameliorate.html?searchResultPosition=10
+https://nytimes.com/2022/12/19/world/asia/thai-navy-ship-sinks.html?searchResultPosition=10
 
