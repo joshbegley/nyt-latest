@@ -3,7 +3,7 @@
 https://nytimes.com/2022/12/19/briefing/jan-6-panel-trump-crime.html?searchResultPosition=1
 
 **FTX Founder Leaves Court in Handcuffs**\
-`Sam Bankman-Fried, who faces fraud charged related to the collapse of his cryptocurrency exchange, FTX, agreed to be extradited to the United States, one of his lawyers said, following a chaotic day in court.`\
+`Sam Bankman-Fried, who faces fraud charges related to the collapse of his cryptocurrency exchange, FTX, agreed to be extradited to the United States, one of his lawyers said, following a chaotic day in court.`\
 https://nytimes.com/video/business/100000008694640/ftx-bankman-fried-court-bahamas.html?searchResultPosition=2
 
 **Buy Now, Regret Later?**\
