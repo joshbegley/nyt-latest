@@ -1,4 +1,4 @@
-**Taliban Releases 2 Americans Detained in Afghanistan**\
+**Taliban Release 2 Americans Detained in Afghanistan**\
 `One of the Americans being held is an independent filmmaker who had been held since August.`\
 https://nytimes.com/2022/12/20/us/politics/taliban-american-prisoners.html?searchResultPosition=1
 
