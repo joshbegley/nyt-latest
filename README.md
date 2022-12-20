@@ -14,7 +14,7 @@ https://nytimes.com/2022/12/20/business/wells-fargo-consumer-loans-fine.html?sea
 `The return of Sitiveni Rabuka paves the way for a potential pivot in a country where the United States and China are fighting for influence.`\
 https://nytimes.com/2022/12/20/world/asia/fiji-election.html?searchResultPosition=4
 
-**What Do Two Fires Have In Common? It Comes Down to Guts.**\
+**What Do Two Fires Have in Common? It Comes Down to Guts.**\
 `At MoMA, the choreographer and artist Yve Laris Cohen’s installation, inspired by a fire at Jacob’s Pillow, looks at the fragility of space, art and the body.`\
 https://nytimes.com/2022/12/20/arts/dance/yve-laris-cohen-moma.html?searchResultPosition=5
 
