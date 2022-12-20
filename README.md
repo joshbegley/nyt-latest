@@ -1,5 +1,5 @@
 **What’s In (and Not In) the $1.7 Trillion Spending Bill**\
-`A big boost for the military, more aid for Ukraine, a preference for lobsters over whales and an overhaul of the Electoral Count Act are among the provisions in the 4,155-page bill lawmakers expect to pass this week.`\
+`A big boost for the military, more aid for Ukraine, a preference for the lobsterindustry over whales and an overhaul of the Electoral Count Act are among the provisions in the 4,155-page bill lawmakers expect to pass this week.`\
 https://nytimes.com/article/spending-bill-fy23-congress.html?searchResultPosition=1
 
 **Pakistan Raids a Prison After Militants Seize a Hostage**\
