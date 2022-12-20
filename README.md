@@ -1,40 +1,40 @@
+**Your Tuesday Briefing**\
+`The House Jan. 6 committee placed clear blame on Donald Trump.`\
+https://nytimes.com/2022/12/20/briefing/trump-investigation-house-china-covid.html?searchResultPosition=1
+
 **Surrender to a Drone? Ukraine Is Urging Russian Soldiers to Do Just That.**\
 `Capitalizing on reports of low Russian morale, Ukraine has begun offering enemy troops detailed instructions on how to make their way over the battlefield and lay down their arms.`\
-https://nytimes.com/2022/12/20/world/europe/russian-soldier-drone-surrenders.html?searchResultPosition=1
+https://nytimes.com/2022/12/20/world/europe/russian-soldier-drone-surrenders.html?searchResultPosition=2
 
 **Day 20: The Best (and Worst) Gifts of All**\
 `When it comes to gift-giving, context is everything.`\
-https://nytimes.com/2022/12/20/style/best-christmas-holiday-gift.html?searchResultPosition=2
+https://nytimes.com/2022/12/20/style/best-christmas-holiday-gift.html?searchResultPosition=3
 
 **Review: In ‘Between Riverside and Crazy,’ Real Estate Gets Real**\
 `Stephen Adly Guirgis’s 2014 play finally comes to Broadway, its hilarious, loving and unvarnished vision of the universal human hustle intact.`\
-https://nytimes.com/2022/12/19/theater/between-riverside-and-crazy-review.html?searchResultPosition=3
+https://nytimes.com/2022/12/19/theater/between-riverside-and-crazy-review.html?searchResultPosition=4
 
 **Trust Issues**\
 `Between us, Peter Koetters’s puzzle is a little tricky for a Tuesday!`\
-https://nytimes.com/2022/12/19/crosswords/daily-puzzle-2022-12-20.html?searchResultPosition=4
+https://nytimes.com/2022/12/19/crosswords/daily-puzzle-2022-12-20.html?searchResultPosition=5
 
 **Weinstein’s Prosecutors Brought His Past Into the Courtroom. Good.**\
 `The latest verdict against Mr. Weinstein offers lessons for other sex crimes cases`\
-https://nytimes.com/2022/12/19/opinion/harvey-weinstein-verdict-la.html?searchResultPosition=5
+https://nytimes.com/2022/12/19/opinion/harvey-weinstein-verdict-la.html?searchResultPosition=6
 
 **A Culture in the Cross Hairs**\
 `Russia’s invasion has systematically destroyed Ukrainian cultural sites. A Times investigation has identified 339 that sustained substantial damage this year.`\
-https://nytimes.com/interactive/2022/12/19/arts/design/ukraine-cultural-heritage-war-impacts.html?searchResultPosition=6
+https://nytimes.com/interactive/2022/12/19/arts/design/ukraine-cultural-heritage-war-impacts.html?searchResultPosition=7
 
 **Key Findings From the Jan. 6 Committee’s Report, Annotated**\
 `The panel included 17 specific findings in the executive summary of its final report.`\
-https://nytimes.com/2022/12/19/us/politics/jan-6-committee-key-findings.html?searchResultPosition=7
+https://nytimes.com/2022/12/19/us/politics/jan-6-committee-key-findings.html?searchResultPosition=8
 
 **Ex-Google Contractor Settles Lawsuit Over Religious Sect**\
 `The suit claimed that the Fellowship of Friends, an obscure group based in the Sierra Nevada foothills, gained influence inside Google.`\
-https://nytimes.com/2022/12/19/technology/google-contractor-lawsuit-fellowship-of-friends.html?searchResultPosition=8
+https://nytimes.com/2022/12/19/technology/google-contractor-lawsuit-fellowship-of-friends.html?searchResultPosition=9
 
 **A Diminished Trump Meets a Damning Narrative**\
 `Former President Donald Trump’s current woes extend beyond the report by the House Jan. 6 committee, but the case the panel laid out against him further complicates his future.`\
-https://nytimes.com/2022/12/19/us/politics/trump-jan-6-committee-referral.html?searchResultPosition=9
-
-**Family Loosens Grip on New York Irish Group and Its Gilded Age Mansion**\
-`The American Irish Historical Society had been dominated by a single family. It had planned to sell its Fifth Avenue home and move to Cooperstown.`\
-https://nytimes.com/2022/12/19/nyregion/irish-america-society-board-quits.html?searchResultPosition=10
+https://nytimes.com/2022/12/19/us/politics/trump-jan-6-committee-referral.html?searchResultPosition=10
 
