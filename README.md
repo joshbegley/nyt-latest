@@ -4,7 +4,7 @@ https://nytimes.com/2022/12/20/world/europe/ukraine-kids-holidays.html?searchRes
 
 **Bans on TikTok Gain Momentum in Washington and States**\
 `At least 14 states have passed bans on the service on government-issued devices in recent weeks. And Congress appears poised to pass a similar prohibition for federal workers.`\
-https://nytimes.com/2022/12/20/technology/bans-on-tiktok-gain-momentum-in-washington-and-states.html?searchResultPosition=2
+https://nytimes.com/2022/12/20/technology/tiktok-ban-government-issued-devices.html?searchResultPosition=2
 
 **New Spending Bill Makes It Easier for Americans Saving for Retirement**\
 `Several provisions in the spending bill outline new ways employers can help workers save for retirement.`\
