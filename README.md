@@ -1,5 +1,5 @@
 **Bank of Japan Surprises Markets With Policy Tweak**\
-`The central bank widened the yield on 10-year bonds and increased its monthly asset purchases in hopes of reviving a stagnant domestic bond trade.`\
+`The adjustment to bond buying policies was a rare move for the central bank, keen on helping the country battle rising inflation and a weak currency.`\
 https://nytimes.com/2022/12/20/business/japan-bank-yen-bonds.html?searchResultPosition=1
 
 **A Secret Society Tied to the Underground Railroad Fights to Save Its Home**\
