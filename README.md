@@ -6,7 +6,7 @@ https://nytimes.com/2022/12/20/arts/music/sza-sos-billboard-chart.html?searchRes
 `Items in the home were strewn across the floor after the 6.4-magnitude earthquake knocked over a shelf.`\
 https://nytimes.com/video/us/100000008695591/california-earthquake.html?searchResultPosition=2
 
-**Wells Fargo Fined $1.7 Billion Over Consumer Banking Violations**\
+**Wells Fargo to Pay $3.7 Billion Over Consumer Banking Violations**\
 `The Consumer Financial Protection Bureau cited improper overdraft fees, account freezes, auto repossessions and misapplied home loan payments that have harmed millions of consumers since 2011.`\
 https://nytimes.com/2022/12/20/business/wells-fargo-consumer-loans-fine.html?searchResultPosition=3
 
