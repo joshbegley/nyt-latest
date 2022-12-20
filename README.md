@@ -1,5 +1,5 @@
 **6.4-Magnitude Quake Shakes Northern California**\
-`The quake was reported around 2:30 a.m. local time.`\
+`The quake was reported around 2:30 a.m. local time. Tens of thousands of customers were without power.`\
 https://nytimes.com/2022/12/20/us/california-earthquake.html?searchResultPosition=1
 
 **A Congressional Call to Prosecute Trump**\
