@@ -12,7 +12,7 @@ https://nytimes.com/2022/12/20/briefing/trump-jan-6.html?searchResultPosition=3
 
 **Zelensky visits the battleground city of Bakhmut, aiming to show Ukraine’s resolve.**\
 `Despite months of Russian bombardments and waves of assaults, the city has remained in Ukrainian control.`\
-https://nytimes.com/2022/12/20/world/europe/zelensky-bakhmut.html?searchResultPosition=4
+https://nytimes.com/2022/12/20/world/europe/zelensky-bakhmut-visit-ukraine.html?searchResultPosition=4
 
 **6.4-Magnitude Earthquake Shakes Northern California**\
 `The quake was reported around 2:30 a.m. local time. Tens of thousands of customers were without power.`\
