@@ -2,8 +2,8 @@
 `Much of the country faces dangerous conditions, including heavy snow, strong winds and steep temperature drops. In Buffalo, meteorologists warned of a “once-in-a-generation storm.”`\
 https://nytimes.com/2022/12/21/us/winter-storm-snow-blizzard-forecast.html?searchResultPosition=1
 
-**Gunmen Attacked a Famous TV Anchor. Mexico’s Leader Suggested It Was Staged.**\
-`After assailants shot at Ciro Gómez Leyva in his own neighborhood, President Andrés Manuel López Obrador suggested that the attack was actually an effort to destabilize the government.`\
+**Gunmen Tried to Kill a Famous TV Anchor. Mexico’s Leader Suggested It Was Staged.**\
+`After assailants shot at Ciro Gómez Leyva in his own neighborhood, President Andrés Manuel López Obrador suggested that the assassination attempt was actually an effort to destabilize the government.`\
 https://nytimes.com/2022/12/21/world/americas/mexico-journalist-attack-ciro-gomez-leyva.html?searchResultPosition=2
 
 **How to Pack Better**\
