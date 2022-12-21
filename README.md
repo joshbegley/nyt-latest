@@ -4,7 +4,7 @@ https://nytimes.com/2022/12/21/dining/breakfast-strata-recipe.html?searchResultP
 
 **What Are Patriot Missiles, and Why Does Ukraine Want Them?**\
 `The United States is sending its most advanced ground-based missile defense system to Ukraine, as Russia continues to pummel the country with airstrikes.`\
-https://nytimes.com/2022/12/21/us/politics/what-are-patriot-missiles-ukraine-us.html?searchResultPosition=2
+https://nytimes.com/2022/12/21/us/politics/patriot-missiles-russia-ukraine-us.html?searchResultPosition=2
 
 **What to Know if the Winter Storm Wreaks Havoc on Your Holiday Travel**\
 `Forecasters say a “bomb cyclone” will tear through much of the U.S. this week and that travelers could face cold, snow and rain. What can you do if your plans are disrupted?`\
