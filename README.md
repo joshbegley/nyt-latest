@@ -1,5 +1,5 @@
-**Under Armour Hires Marriott Executive as C.E.O.**\
-`Stephanie Linnartz takes over the sportswear giant when its stock has fallen and some of its customer base has strayed.`\
+**Struggling Under Armour Hires ‘Fresh Eyes’ From Marriott to Lead It**\
+`Stephanie Linnartz will become chief executive of the sportswear giant after its stock has fallen and some of its customer base has strayed.`\
 https://nytimes.com/2022/12/21/business/under-armour-stephanie-linnartz.html?searchResultPosition=1
 
 **President Biden Signs Bill Outlawing Private Ownership of Big Cats**\
