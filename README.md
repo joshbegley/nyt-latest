@@ -2,7 +2,7 @@
 `American officials believe that with Russia bolstering defenses and learning lessons, Ukraine will find it more challenging to retake land.`\
 https://nytimes.com/2022/12/21/us/politics/ukraine-russia-war-stalemate.html?searchResultPosition=1
 
-**Hackers Mined a Single Software Flaw for a Year in N.Y. Cyberattack**\
+**How Hackers Used One Software Flaw to Take Down a County Computer System**\
 `Suffolk County officials on Wednesday released the results of their investigation into a devastating breach that was discovered in the fall, forcing the government offline.`\
 https://nytimes.com/2022/12/21/nyregion/suffolk-county-cyberattack.html?searchResultPosition=2
 
