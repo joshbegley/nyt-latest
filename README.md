@@ -34,7 +34,7 @@ https://nytimes.com/2022/12/21/business/energy-environment/battery-recycling-ele
 `Subzero temperatures and blizzard conditions are expected across much of the Midwest, making life harder for workers on the front lines of the weather.`\
 https://nytimes.com/2022/12/21/us/christmas-winter-storm-snow-blizzard.html?searchResultPosition=9
 
-**‘Emily in Paris’ Star Lily Collins On Her Own Trauma Haircut**\
-`The cast also talked about berets and big life choices at a screening and reception at the French Consulate General to celebrate Season 3.`\
-https://nytimes.com/2022/12/21/style/emily-in-paris-screening.html?searchResultPosition=10
+**Dark Christmas Signals Tough Times for a Prosperous City in Hungary**\
+`Dimmed festive lighting at an annual market in the city of Gyor underscores the economic pain being felt across Hungary as energy costs and inflation soar.`\
+https://nytimes.com/2022/12/21/world/europe/hungary-economy-christmas.html?searchResultPosition=10
 
