@@ -1,6 +1,6 @@
 **8 Teenage Girls Charged With Killing a Toronto Man**\
 `Police said the girls, who ranged from 13 to 16 years old, connected on social media before meeting up, possibly for the first time, on the day of the killing.`\
-https://nytimes.com/2022/12/21/world/canada/8-teenage-girls-charged-with-killing-a-toronto-man.html?searchResultPosition=1
+https://nytimes.com/2022/12/21/world/canada/toronto-killing-charges.html?searchResultPosition=1
 
 **How New IRS Rules Could Affect Venmo, Zelle and CashApp Users**\
 `Users of digital wallets and e-commerce platforms must start reporting small transactions, sowing fears among small-business owners.`\
