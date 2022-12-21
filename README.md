@@ -1,9 +1,9 @@
 **Document: Report on Trump’s Tax Returns**\
-`Read the Report on Trump’s Tax Returns`\
+`This report summarizes the House Ways and Means Committee’s review of the I.R.S. examination of Trump’s tax returns from 2015 to 2020.`\
 https://nytimes.com/interactive/2022/12/21/us/house-ways-and-means-trump-tax-report.html?searchResultPosition=1
 
 **Document: Report on the I.R.S. Mandatory Audit Program for Presidents**\
-`Read the Report on the I.R.S. Mandatory Audit Program for Presidents`\
+`An I.R.S. policy requires the agency audit presidents in office, but the House Ways and Means Committee found it failed to do so for President Donald J. Trump.`\
 https://nytimes.com/interactive/2022/12/21/us/house-ways-and-means-report-on-irs-audit-program.html?searchResultPosition=2
 
 **Elon Musk Says He Will Resign as Twitter C.E.O. When He Finds Successor**\
