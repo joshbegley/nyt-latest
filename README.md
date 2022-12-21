@@ -7,7 +7,7 @@ https://nytimes.com/2022/12/21/sports/baseball/carlos-correa-mets.html?searchRes
 https://nytimes.com/2022/12/21/arts/dance/george-balanchines-nutcracker-city-ballet.html?searchResultPosition=2
 
 **Franco Harris, N.F.L. Hall of Famer Who Caught ‘Immaculate Reception,’ Dies at 72**\
-`The death of the former Pittsburgh Steelers running back comes days before the 50th anniversary of one of the most memorable plays in N.F.L. history.`\
+`The former Pittsburgh Steelers running back died days before the 50th anniversary of one of the most memorable plays in N.F.L. history.`\
 https://nytimes.com/2022/12/21/sports/football/franco-harris-dead-steelers.html?searchResultPosition=3
 
 **Elon Musk’s Succession Plan Comes with Strings Attached**\
