@@ -36,5 +36,5 @@ https://nytimes.com/2022/12/21/briefing/zelensky-biden-washington.html?searchRes
 
 **Watch Live: Zelensky and Biden Hold Joint News Conference**\
 `President Volodymyr Zelensky of Ukraine and President Biden address reporters following a bilateral meeting in Washington.`\
-https://nytimes.com/video/world/100000008697482/zelensky-biden-washington-video.html?searchResultPosition=10
+https://nytimes.com/video/embedded/world/100000008697482/zelensky-biden-washington-video.html?searchResultPosition=10
 
