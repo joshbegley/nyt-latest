@@ -2,7 +2,7 @@
 `At a news conference to finalize his $360 million contract, Judge was give a position previously held by Lou Gehrig, Thurman Munson, Derek Jeter and other team greats.`\
 https://nytimes.com/2022/12/21/sports/baseball/aaron-judge-yankees-captain.html?searchResultPosition=1
 
-**Jenna Hager Bush Is Making a List. Authors Are Obsessed With It.**\
+**Jenna Bush Hager Is Making a List. Authors Are Obsessed With It.**\
 `She was born into a life in the public eye. Then she chose to go on morning TV.`\
 https://nytimes.com/2022/12/21/business/jenna-bush-hager-book-club.html?searchResultPosition=2
 
