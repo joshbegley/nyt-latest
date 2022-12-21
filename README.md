@@ -30,11 +30,11 @@ https://nytimes.com/2022/12/21/travel/hamburg-miniatur-wunderland.html?searchRes
 `Many companies and investors are eager to recycle batteries but it could take a decade or more before enough used lithium-ion batteries become available.`\
 https://nytimes.com/2022/12/21/business/energy-environment/battery-recycling-electric-vehicles.html?searchResultPosition=8
 
-**‘Emily in Paris’ Star Lily Collins On Her Own Trauma Haircut**\
-`The cast also talked about berets and big life choices at a screening and reception at the French Consulate General to celebrate Season 3.`\
-https://nytimes.com/2022/12/21/style/emily-in-paris-screening.html?searchResultPosition=9
-
 **As a Holiday Storm Bears Down, Some Brace for a Long Week at Work**\
 `Subzero temperatures and blizzard conditions are expected across much of the Midwest, making life harder for workers on the front lines of the weather.`\
-https://nytimes.com/2022/12/21/us/christmas-winter-storm-snow-blizzard.html?searchResultPosition=10
+https://nytimes.com/2022/12/21/us/christmas-winter-storm-snow-blizzard.html?searchResultPosition=9
+
+**‘Emily in Paris’ Star Lily Collins On Her Own Trauma Haircut**\
+`The cast also talked about berets and big life choices at a screening and reception at the French Consulate General to celebrate Season 3.`\
+https://nytimes.com/2022/12/21/style/emily-in-paris-screening.html?searchResultPosition=10
 
