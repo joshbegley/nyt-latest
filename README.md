@@ -1,4 +1,4 @@
-**Gunmen Tried to Kill a Famous TV Anchor. Mexico’s Leader Blamed Him for the Attack.**\
+**Gunmen Attack Prominent Mexican News Anchor, Spreading Fear Among Journalists**\
 `After assailants shot at Ciro Gómez Leyva in his own neighborhood, President Andrés Manuel López Obrador suggested that the assassination attempt was staged to destabilize the government.`\
 https://nytimes.com/2022/12/21/world/americas/mexico-journalist-attack-ciro-gomez-leyva.html?searchResultPosition=1
 
