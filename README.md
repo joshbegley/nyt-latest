@@ -23,7 +23,7 @@ https://nytimes.com/2022/12/21/business/under-armour-stephanie-linnartz.html?sea
 https://nytimes.com/2022/12/21/us/politics/biden-big-cat-safety-bill.html?searchResultPosition=6
 
 **Frank James to Plead Guilty to Terror Counts in Brooklyn Subway Shooting**\
-`Mr. James told his lawyers he wants to admit to the April attack, according to a court filing.`\
+`Mr. James told his lawyers he wants to admit to the April attack on the N train, which shook the city and set off a manhunt.`\
 https://nytimes.com/2022/12/21/nyregion/brooklyn-subway-shooting-frank-james-guilty-plea.html?searchResultPosition=7
 
 **Your Thursday Briefing: Zelensky at the White House**\
