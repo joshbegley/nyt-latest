@@ -1,40 +1,40 @@
-**As Covid Deaths Climb, Even Seniors Skip the Latest Booster**\
-`Nearly all Americans over 65 got their initial Covid vaccines. But that immunity is waning, and this time, the government is offering far less support for new shots.`\
-https://nytimes.com/2022/12/21/health/covid-bivalent-booster-elderly.html?searchResultPosition=1
+**Our Favorite 2022 Climate Coverage. (Some of It’s Even Good News!)**\
+`Huge legislation. Secret Amazon airstrips. Political shenanigans. Also a trash guessing game. Reporters and editors from The Times’s Climate Desk share pieces they particularly liked.`\
+https://nytimes.com/2022/12/21/climate/nyt-climate-coverage-2022.html?searchResultPosition=1
 
-**81 Minutes in, Two Big Goals and One Big Rewrite**\
-`The Times’s chief soccer correspondent hoped for a “boring” World Cup final. He didn’t get one.`\
-https://nytimes.com/2022/12/21/insider/81-minutes-in-two-big-goals-and-one-big-rewrite.html?searchResultPosition=2
+**Christmas at Dollywood, With Streetmosphere and a Chicken Lady**\
+`Dolly Parton’s theme park gets into the holiday spirit in a way that rivals Radio City’s Rockettes — with fewer kicklines but far more fingerpicking.`\
+https://nytimes.com/2022/12/21/arts/music/christmas-dollywood-dolly-parton.html?searchResultPosition=2
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/12/21/crosswords/spelling-bee-forum.html?searchResultPosition=3
+**The Worst Trends of the Year, According to Men’s Fashion Obsessives**\
+`Hosts of the cult podcast “Throwing Fits” gathered with friends and fans to weigh in on fashion and who’s the coolest person in Los Angeles.`\
+https://nytimes.com/2022/12/21/style/worst-trends-2022-throwing-fits.html?searchResultPosition=3
 
-**2022 in Pictures**\
-`Which of the images in this Times collection stand out for you? Why?`\
-https://nytimes.com/2022/12/21/learning/2022-in-pictures.html?searchResultPosition=4
+**The World in Miniature: A Model Train (and Plane) Lover’s Paradise in Hamburg**\
+`With some 53,000 feet of train track, the world’s largest model airport and an array of meticulously scaled-town cities, Miniatur Wunderland captivates all who enter its life-size doors.`\
+https://nytimes.com/2022/12/21/travel/hamburg-miniatur-wunderland.html?searchResultPosition=4
 
-**These Activists Target Drivers Who Tamper With License Plates**\
-`Citizen enforcers are taking it upon themselves to fix the plates, which have been altered to avoid paying tolls.`\
-https://nytimes.com/2022/12/21/nyregion/these-activists-target-drivers-who-tamper-with-license-plates.html?searchResultPosition=5
+**Electric Cars Are Taking Off, but When Will Battery Recycling Follow?**\
+`Many companies and investors are eager to recycle batteries but it could take a decade or more before enough used lithium-ion batteries become available.`\
+https://nytimes.com/2022/12/21/business/energy-environment/battery-recycling-electric-vehicles.html?searchResultPosition=5
 
-**Word of the Day: concede**\
-`This word has appeared in 232 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2022/12/21/learning/word-of-the-day-concede.html?searchResultPosition=6
+**‘Emily in Paris’ Star Lily Collins On Her Own Trauma Haircut**\
+`The cast also talked about berets and big life choices at a screening and reception at the French Consulate General to celebrate Season 3.`\
+https://nytimes.com/2022/12/21/style/emily-in-paris-screening.html?searchResultPosition=6
 
-**Zelensky Will Meet With Biden in Washington and Address Congress, Officials Say**\
-`The visit will be the first time President Volodymyr Zelensky of Ukraine has left his country since Russia invaded in February.`\
-https://nytimes.com/2022/12/21/us/politics/zelensky-washington-biden-congress.html?searchResultPosition=7
+**As a Holiday Storm Bears Down, Some Brace for a Long Week at Work**\
+`Subzero temperatures and blizzard conditions are expected across much of the Midwest, making life harder for workers on the front lines of the weather.`\
+https://nytimes.com/2022/12/21/us/christmas-winter-storm-snow-blizzard.html?searchResultPosition=7
 
-**Trump Paid $1.1 Million in Taxes During Presidency, but $0 in 2020, Report Shows**\
-`The former president reported a burst of income after entering the Oval Office, but by the end of his term, his tax filings had reverted to large losses, according to data released by a House panel.`\
-https://nytimes.com/2022/12/21/us/politics/trump-taxes-income.html?searchResultPosition=8
+**Dark Christmas Signals Tough Times for a Prosperous City in Hungary**\
+`Dimmed festive lighting at an annual market in the city of Gyor underscores the economic pain being felt across Hungary as energy costs and inflation soar.`\
+https://nytimes.com/2022/12/21/world/europe/hungary-economy-christmas.html?searchResultPosition=8
 
-**Your Wednesday Briefing**\
-`As the war in Ukraine enters its 11th month, Volodymyr Zelensky is planning to address Congress in person today.`\
-https://nytimes.com/2022/12/21/briefing/zelensky-washington-trump-taxes.html?searchResultPosition=9
+**The Best TV Episodes of 2022**\
+`TV in the streaming era is an endless feast. This year, series like “Barry,” “Ms. Marvel,” “Pachinko,” “Station Eleven” and “This Fool” offered some of the best bites.`\
+https://nytimes.com/2022/12/21/arts/television/best-tv-episodes-2022.html?searchResultPosition=9
 
-**What N.F.L. Teams Do When the Playoffs Are Out of Reach**\
-`Teams with little or no hope of making the postseason are auditioning new quarterbacks, remaking their cultures or simply dreaming of that No. 1 overall pick.`\
-https://nytimes.com/2022/12/21/sports/football/nfl-football-teams-eliminated-playoffs.html?searchResultPosition=10
+**At Berkeley Law, a Debate Over Zionism, Free Speech and Campus Ideals**\
+`A student group, Law Students for Justice in Palestine, barred supporters of Zionism from speaking at its events. The outrage — and legal misunderstandings — grew from there.`\
+https://nytimes.com/2022/12/21/us/uc-berkeley-free-speech.html?searchResultPosition=10
 
