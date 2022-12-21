@@ -1,5 +1,5 @@
-**New I.R.S. Rules for Online Sales Sow Fears About Surprise Tax Bills**\
-`Users of digital wallets and e-commerce platforms like Venmo, CashApp, Etsy and StubHub must start reporting small transactions.`\
+**How New IRS Rules Could Affect Venmo, Zelle and CashApp Users**\
+`Users of digital wallets and e-commerce platforms must start reporting small transactions, sowing fears among small-business owners.`\
 https://nytimes.com/2022/12/21/business/irs-online-sales-tax-bills.html?searchResultPosition=1
 
 **Why the Joys of Parenting Can Be So Difficult to Express**\
