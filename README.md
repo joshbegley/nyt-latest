@@ -16,7 +16,7 @@ https://nytimes.com/2022/12/22/arts/music/bad-bunny-rosalia-latin-pop.html?searc
 
 **The One About When Groucho Marx and Dick Cavett Became Great Friends**\
 `The beloved talk-show host, now 86, spoke about a new PBS documentary that tells the story of the friendship that changed his life.`\
-https://nytimes.com/2022/12/22/arts/television/the-one-about-when-groucho-marx-and-dick-cavett-became-great-friends.html?searchResultPosition=5
+https://nytimes.com/2022/12/22/arts/television/dick-cavett-groucho-marx-pbs.html?searchResultPosition=5
 
 **T Magazine’s Favorite Food Stories of 2022**\
 `In a special edition of the T List, we look back on a year of eating early, being hypnotized by wobbly dishes, watching Ina Garten make risotto — and more.`\
