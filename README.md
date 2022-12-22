@@ -34,7 +34,7 @@ https://nytimes.com/2022/12/22/well/live/best-advice-2022-callout.html?searchRes
 `We want to hear from you.`\
 https://nytimes.com/2022/12/22/us/extreme-cold-callout.html?searchResultPosition=9
 
-**‘I Wanna Dance With Somebody’ Review: Her Lonely Heart Calls**\
+**‘Whitney Houston: I Wanna Dance With Somebody’ Review: Her Lonely Heart Calls**\
 `This film from Kasi Lemmons is a jukebox retelling of Whitney Houston’s parabola from sweatshirts to sequins.`\
 https://nytimes.com/2022/12/22/movies/i-wanna-dance-with-somebody-review.html?searchResultPosition=10
 
