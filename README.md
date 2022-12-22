@@ -2,7 +2,7 @@
 `Bill Nighy stars as a buttoned-up bureaucrat transformed by a grim diagnosis in this drama by the novelist Kazuo Ishiguro, adapted from an Akira Kurosawa movie.`\
 https://nytimes.com/2022/12/22/movies/living-review.html?searchResultPosition=1
 
-**Sam Bankman-Fried Released on $250 Million Bond With Highly Restrictive Terms**\
+**Sam Bankman-Fried to Be Released on $250 Million Bond With Restrictive Terms**\
 `The disgraced cryptocurrency executive appeared in court in Manhattan after his extradition from the Bahamas last night. He was granted bail and will live with his parents in California.`\
 https://nytimes.com/2022/12/22/business/sam-bankman-fried-ftx-bail.html?searchResultPosition=2
 
