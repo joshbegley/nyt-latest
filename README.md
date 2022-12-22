@@ -18,7 +18,7 @@ https://nytimes.com/2022/12/22/arts/design/st-johns-cathedral-dome-guastavino.ht
 `A significant winter storm sweeping much of the nation means that snow is in the holiday forecast in many areas that don’t normally see a single flake.`\
 https://nytimes.com/interactive/2022/12/22/us/white-christmas.html?searchResultPosition=5
 
-**‘Babylon’ Review: Boozing. Snorting. Grinding. That’s Entertainment!?**\
+**‘Babylon’ Review: Boozing. Snorting. That’s Entertainment!?**\
 `Damien Chazelle directs Brad Pitt, Margot Robbie and Diego Calva in a 1920s story about Hollywood’s good and sometimes very bad old days.`\
 https://nytimes.com/2022/12/22/movies/babylon-review-damien-chazelle.html?searchResultPosition=6
 
