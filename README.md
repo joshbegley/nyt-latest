@@ -16,7 +16,7 @@ https://nytimes.com/2022/12/22/us/prepare-home-cold-weather-freeze.html?searchRe
 
 **Will University of California Academic Workers End the Strike?**\
 `U.C. administrators and a majority of union leaders have a deal to end the walkout, but there’s a movement afoot to convince the rank and file to reject the agreement.`\
-https://nytimes.com/2022/12/22/us/will-university-of-california-academic-workers-end-the-strike.html?searchResultPosition=5
+https://nytimes.com/2022/12/22/us/university-of-california-academic-workers-strike.html?searchResultPosition=5
 
 **Lucio Fontana, a Sculptor but So Perverse**\
 `In terra cotta, clay, metal and concrete, the Argentine Italian artist overhauled the history of European sculpture.`\
