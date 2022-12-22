@@ -1,4 +1,4 @@
-**Former Juilliard Chair Put on Leave Amid Sexual Misconduct Investigation**\
+**Former Juilliard Chair Goes on Leave Amid Sexual Misconduct Investigation**\
 `An outside law firm is looking into claims against Robert Beaser, a professor who led the composition department for 25 years.`\
 https://nytimes.com/2022/12/22/arts/juilliard-robert-beaser.html?searchResultPosition=1
 
@@ -23,7 +23,7 @@ https://nytimes.com/2022/12/22/nyregion/barry-feinstein-dead.html?searchResultPo
 https://nytimes.com/article/best-air-fryer-recipes.html?searchResultPosition=6
 
 **Guaidó, the Face of Opposition in Venezuela, May Be on His Way Out**\
-`The lawmaker may soon be voted out of power by the opposition, which no longer sees his interim government as a path to “real political change” against the country’s authoritarian regime.`\
+`The lawmaker may soon be voted out of power by the opposition, which no longer sees his interim government as a path to “real political change” against the country’s authoritarian government.`\
 https://nytimes.com/2022/12/22/world/americas/venezuela-juan-guaido-removal.html?searchResultPosition=7
 
 **In Amsterdam, a Mostly Vegan, All Cashmere Feast**\
