@@ -14,7 +14,7 @@ https://nytimes.com/2022/12/22/world/europe/belarus-lukashenko-ukraine-russia.ht
 `Europeans used to flock to London for restaurant jobs. Now, with doors to migrants largely closed after Britain left the European Union, many establishments are becoming desperate.`\
 https://nytimes.com/2022/12/22/world/europe/uk-restaurants-waiters-brexit.html?searchResultPosition=4
 
-**Senate Moves to Pass Spending Package After Immigration Dispute Delays Votes**\
+**Senate Moves to Pass Spending Package After Immigration Dispute Initially Delayed Votes**\
 `An effort to force a vote to maintain Title 42, a pandemic-era border policy, had stalled the scramble to pass the spending package before a midnight Friday deadline.`\
 https://nytimes.com/2022/12/22/us/politics/senate-spending-bill.html?searchResultPosition=5
 
