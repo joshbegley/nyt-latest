@@ -18,13 +18,13 @@ https://nytimes.com/2022/12/22/health/covid-flu-rsv-winter-surge.html?searchResu
 `The poet Richard Marsh is winning praise in London for a one-man theatrical version of the action movie.`\
 https://nytimes.com/2022/12/22/theater/die-hard-yipee-ki-yay.html?searchResultPosition=5
 
-**To Save a Ruin, Send in the Sheep**\
-`The archaeological park of Pompeii has found a low-tech way to prevent the site from being overrun by vegetation: hungry sheep.`\
-https://nytimes.com/2022/12/22/world/europe/pompeii-sheep-mount-vesuvius.html?searchResultPosition=6
-
 **Without a Covid Narrative, China’s Censors Are Not Sure What to Do**\
 `The end of “zero Covid” has undermined years of official propaganda, and the vast censorship system is struggling to catch up.`\
-https://nytimes.com/2022/12/22/business/china-covid-censorship-propaganda.html?searchResultPosition=7
+https://nytimes.com/2022/12/22/business/china-covid-censorship-propaganda.html?searchResultPosition=6
+
+**To Save a Ruin, Send in the Sheep**\
+`The archaeological park of Pompeii has found a low-tech way to prevent the site from being overrun by vegetation: hungry sheep.`\
+https://nytimes.com/2022/12/22/world/europe/pompeii-sheep-mount-vesuvius.html?searchResultPosition=7
 
 **For Zelensky, a Celebration of Resilience and a Sales Pitch for Support**\
 `For all the talk of victory, President Volodymyr Zelensky’s remarks in Washington revealed hints about his worries for the year ahead.`\
