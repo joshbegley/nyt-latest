@@ -1,6 +1,6 @@
 **Feed a Crowd With These Festive Savory Pies**\
 `By Tejal Rao`\
-https://nytimes.com/2022/12/22/dining/feed-a-crowd-with-these-festive-savory-pies.html?searchResultPosition=1
+https://nytimes.com/2022/12/22/dining/savory-holiday-pies.html?searchResultPosition=1
 
 **What’s in Our Queue? ‘Midnight Diner’ and More**\
 `I'm a photo editor on The Times's Culture desk. Here are five things I've been watching and listening to.`\
