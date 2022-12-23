@@ -30,7 +30,7 @@ https://nytimes.com/2022/12/23/briefing/winter-storm.html?searchResultPosition=7
 `Kim Jong-un’s regime has launched more than 90 ballistic and other missiles in 2022 — more than in any previous year — in defiance of United Nations resolutions.`\
 https://nytimes.com/article/north-korea-missile-launches.html?searchResultPosition=8
 
-**A Restaurant Critic on the Year that Changed Him Forever**\
+**A Restaurant Critic (Ours) on the Year that Changed Him Forever**\
 `A conversation, over dinner, with Pete Wells, The New York Times’s “food sheriff.”`\
 https://nytimes.com/2022/12/23/podcasts/the-daily/restaurant-reviews-pete-wells.html?searchResultPosition=9
 
