@@ -6,35 +6,35 @@ https://nytimes.com/2022/12/23/business/sister-patricia-daly-dead.html?searchRes
 `Thousands lack electricity in Nashville, where 10-minute outages are being imposed every few hours.`\
 https://nytimes.com/2022/12/23/us/rolling-blackouts-tennessee-power.html?searchResultPosition=2
 
+**Ukraine’s spy chief says the threat of invasion from Belarus is low.**\
+`By Andrew E. Kramer`\
+https://nytimes.com/2022/12/23/world/europe/ukraines-spy-chief-says-the-threat-of-invasion-from-belarus-is-low.html?searchResultPosition=3
+
 **Tshala Muana, Congolese Singer With Danceable Messages, Dies at 64**\
 `A superstar in Africa, she sang in the language of her tribe and often addressed social concerns, insisting on women’s strength and decrying abuse.`\
-https://nytimes.com/2022/12/23/arts/music/tshala-muana-dead.html?searchResultPosition=3
+https://nytimes.com/2022/12/23/arts/music/tshala-muana-dead.html?searchResultPosition=4
 
 **Why Jesus Loved Friendship**\
 `A vulnerable God is an essential part of the Christian story.`\
-https://nytimes.com/2022/12/23/opinion/jesus-love-friendship-christmas.html?searchResultPosition=4
+https://nytimes.com/2022/12/23/opinion/jesus-love-friendship-christmas.html?searchResultPosition=5
 
 **Threat of Invasion From Belarus Low, Says Ukraine Spy Chief**\
 `In a wide-ranging interview on the state of the war, Kyrylo Budanov also spoke about Russia-Iran relations and Moscow’s obsession with taking the city of Bakhmut.`\
-https://nytimes.com/2022/12/23/world/europe/belarus-ukraine-invasion-threat.html?searchResultPosition=5
+https://nytimes.com/2022/12/23/world/europe/belarus-ukraine-invasion-threat.html?searchResultPosition=6
 
 **The F.D.A. Now Says It Plainly: Morning-After Pills Are Not Abortion Pills**\
 `Labels of Plan B One-Step had previously said, without scientific evidence, that the pill might block fertilized eggs from implanting in the womb.`\
-https://nytimes.com/2022/12/23/health/morning-after-pills-abortion-fda.html?searchResultPosition=6
+https://nytimes.com/2022/12/23/health/morning-after-pills-abortion-fda.html?searchResultPosition=7
 
 **Kentucky Lawmaker Speaks Out About Transgender Son’s Suicide**\
 `Henry Berg-Brousseau, who had supported transgender rights since he was in high school, died by suicide at 24. “This hate building across the country weighed on him,” his mother said.`\
-https://nytimes.com/2022/12/23/us/henry-berg-brousseau-transgender-activist-dead.html?searchResultPosition=7
+https://nytimes.com/2022/12/23/us/henry-berg-brousseau-transgender-activist-dead.html?searchResultPosition=8
 
 **She Worked for Twitter. Then She Tweeted at Elon Musk.**\
 `Sasha Solomon, a software engineer, joined others in the media business who lost their jobs this year after publicly taking on their employers.`\
-https://nytimes.com/2022/12/23/style/twitter-elon-musk-sasha-solomon.html?searchResultPosition=8
+https://nytimes.com/2022/12/23/style/twitter-elon-musk-sasha-solomon.html?searchResultPosition=9
 
 **Russia Is Starting to Feel Squeezed by Sanctions**\
 `The ruble is weakening, and some say its fall will continue.`\
-https://nytimes.com/2022/12/23/opinion/russia-ruble-sanctions-economy.html?searchResultPosition=9
-
-**The Ambivalence of Advent**\
-`Birth and death at the edge of Christmas.`\
-https://nytimes.com/2022/12/23/opinion/christmas-advent.html?searchResultPosition=10
+https://nytimes.com/2022/12/23/opinion/russia-ruble-sanctions-economy.html?searchResultPosition=10
 
