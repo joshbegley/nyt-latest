@@ -14,8 +14,8 @@ https://nytimes.com/2022/12/22/crosswords/variety-cryptic-crossword.html?searchR
 `Brandon Koppy opens our solving weekend.`\
 https://nytimes.com/2022/12/22/crosswords/daily-puzzle-2022-12-23.html?searchResultPosition=4
 
-**Jan. 6 Committee Issues Its Final Report**\
-`The release, the panel’s last major action in its groundbreaking inquiry, came days after lawmakers formally accused former President Donald J. Trump of inciting insurrection and other crimes.`\
+**Jan. 6 Panel Issues Final Report on Effort to Overturn 2020 Election**\
+`“Our democratic institutions are only as strong as the commitment of those who are entrusted with their care,” Speaker Nancy Pelosi wrote in a forward to the report.`\
 https://nytimes.com/2022/12/22/us/politics/jan-6-committee-report.html?searchResultPosition=5
 
 **Arbitrator Reinstates Trevor Bauer to Major League Baseball**\
