@@ -30,11 +30,11 @@ https://nytimes.com/2022/12/23/business/sister-patricia-daly-dead.html?searchRes
 `Thousands lack electricity in Nashville, where 10-minute outages are being imposed every few hours.`\
 https://nytimes.com/2022/12/23/us/rolling-blackouts-tennessee-power.html?searchResultPosition=8
 
-**Ukraine’s spy chief says the threat of invasion from Belarus is low.**\
-`By Andrew E. Kramer`\
-https://nytimes.com/2022/12/23/world/europe/ukraines-spy-chief-says-the-threat-of-invasion-from-belarus-is-low.html?searchResultPosition=9
-
 **Tshala Muana, Congolese Singer With Danceable Messages, Dies at 64**\
 `A superstar in Africa, she sang in the language of her tribe and often addressed social concerns, insisting on women’s strength and decrying abuse.`\
-https://nytimes.com/2022/12/23/arts/music/tshala-muana-dead.html?searchResultPosition=10
+https://nytimes.com/2022/12/23/arts/music/tshala-muana-dead.html?searchResultPosition=9
+
+**Why Jesus Loved Friendship**\
+`A vulnerable God is an essential part of the Christian story.`\
+https://nytimes.com/2022/12/23/opinion/jesus-love-friendship-christmas.html?searchResultPosition=10
 
