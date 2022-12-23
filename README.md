@@ -1,6 +1,6 @@
 **What Is a ‘Bomb Cyclone’?**\
 `These storms aren’t tremendously rare, but this particular one is much more powerful than most.`\
-https://nytimes.com/2022/12/23/climate/what-is-a-bomb-cyclone.html?searchResultPosition=1
+https://nytimes.com/2022/12/23/climate/bomb-cyclone.html?searchResultPosition=1
 
 **The Premier League Is Back, With Quite an Act to Follow**\
 `The Premier League will play on Boxing Day because the Premier League always plays on Boxing Day. But the title race changed over the World Cup break.`\
