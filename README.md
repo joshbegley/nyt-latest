@@ -1,40 +1,40 @@
+**Girl, 5, and Brother, 6, Are Killed in a Staten Island House Fire**\
+`The two were among six siblings in the home when flames engulfed the second story, officials said.`\
+https://nytimes.com/2022/12/23/nyregion/staten-island-fire-children.html?searchResultPosition=1
+
 **Jan. 6 Report Leaves Questions About What Happened in Trump’s S.U.V.**\
 `Witnesses had less detailed recollections than the account provided by Cassidy Hutchinson of a furious president reaching for the steering wheel when told he could not go to the Capitol.`\
-https://nytimes.com/2022/12/23/us/politics/jan-6-report-hutchinson-trump-ornato-suv.html?searchResultPosition=1
+https://nytimes.com/2022/12/23/us/politics/jan-6-report-hutchinson-trump-ornato-suv.html?searchResultPosition=2
 
 **What Are JDAMs? And What Will They Do For Ukraine?**\
 `The United States is giving satellite-guided bombs to Kyiv for the first time as part of a new $1.85 billion military aid package.`\
-https://nytimes.com/2022/12/23/us/politics/ukraine-weapons-russia.html?searchResultPosition=2
+https://nytimes.com/2022/12/23/us/politics/ukraine-weapons-russia.html?searchResultPosition=3
 
 **Emily Is Still in Paris. Why Are We Still Watching?**\
 `The Netflix hit has been widely mocked from the beginning. But despite its flaws — or perhaps because of them — it’s a pop-culture phenomenon.`\
-https://nytimes.com/2022/12/23/magazine/emily-in-paris-netflix.html?searchResultPosition=3
+https://nytimes.com/2022/12/23/magazine/emily-in-paris-netflix.html?searchResultPosition=4
 
 **Sister Patricia Daly, 66, Dies; Took On Corporate Giants on Social Justice**\
 `A leader in the field of socially responsible investing, she used shareholder actions and private meetings to pressure big corporations, including G.E. and Ford.`\
-https://nytimes.com/2022/12/23/business/sister-patricia-daly-dead.html?searchResultPosition=4
+https://nytimes.com/2022/12/23/business/sister-patricia-daly-dead.html?searchResultPosition=5
 
 **Tennessee Residents Endure Blackouts and Are Warned to Save Power**\
 `Thousands lack electricity in Nashville, where 10-minute outages are being imposed every few hours.`\
-https://nytimes.com/2022/12/23/us/rolling-blackouts-tennessee-power.html?searchResultPosition=5
+https://nytimes.com/2022/12/23/us/rolling-blackouts-tennessee-power.html?searchResultPosition=6
 
 **Ukraine’s spy chief says the threat of invasion from Belarus is low.**\
 `By Andrew E. Kramer`\
-https://nytimes.com/2022/12/23/world/europe/ukraines-spy-chief-says-the-threat-of-invasion-from-belarus-is-low.html?searchResultPosition=6
+https://nytimes.com/2022/12/23/world/europe/ukraines-spy-chief-says-the-threat-of-invasion-from-belarus-is-low.html?searchResultPosition=7
 
 **Tshala Muana, Congolese Singer With Danceable Messages, Dies at 64**\
 `A superstar in Africa, she sang in the language of her tribe and often addressed social concerns, insisting on women’s strength and decrying abuse.`\
-https://nytimes.com/2022/12/23/arts/music/tshala-muana-dead.html?searchResultPosition=7
+https://nytimes.com/2022/12/23/arts/music/tshala-muana-dead.html?searchResultPosition=8
 
 **Why Jesus Loved Friendship**\
 `A vulnerable God is an essential part of the Christian story.`\
-https://nytimes.com/2022/12/23/opinion/jesus-love-friendship-christmas.html?searchResultPosition=8
+https://nytimes.com/2022/12/23/opinion/jesus-love-friendship-christmas.html?searchResultPosition=9
 
 **Threat of Invasion From Belarus Low, Says Ukraine Spy Chief**\
 `In a wide-ranging interview on the state of the war, Kyrylo Budanov also spoke about Russia-Iran relations and Moscow’s obsession with taking the city of Bakhmut.`\
-https://nytimes.com/2022/12/23/world/europe/belarus-ukraine-invasion-threat.html?searchResultPosition=9
-
-**The F.D.A. Now Says It Plainly: Morning-After Pills Are Not Abortion Pills**\
-`Labels of Plan B One-Step had previously said, without scientific evidence, that the pill might block fertilized eggs from implanting in the womb.`\
-https://nytimes.com/2022/12/23/health/morning-after-pills-abortion-fda.html?searchResultPosition=10
+https://nytimes.com/2022/12/23/world/europe/belarus-ukraine-invasion-threat.html?searchResultPosition=10
 
