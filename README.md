@@ -8,7 +8,7 @@ https://nytimes.com/2022/12/23/movies/babylon-a-guide-to-the-characters-and-thei
 
 **The ‘Black Panther’ Sequel That Never Was**\
 `Writer-director Ryan Coogler and co-screenwriter Joe Robert Cole reveal the original plot for “Wakanda Forever” and discuss working in the Marvel universe.`\
-https://nytimes.com/2022/12/23/arts/the-black-panther-sequel-that-never-was.html?searchResultPosition=3
+https://nytimes.com/2022/12/23/arts/ryan-coogler-black-panther-wakanda-forever.html?searchResultPosition=3
 
 **Zoey Deutch Enjoys ‘The Joy of Cooking’ and the Occasional Tracksuit**\
 `The actor, now in the movie “Something From Tiffany’s,” thrives on regular readings of “Our Town,” discussions of “Sapiens” and whiffs of her dog’s paws.`\
