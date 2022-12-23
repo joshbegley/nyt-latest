@@ -1,6 +1,6 @@
 **Alameda Executive Says She Is ‘Truly Sorry’ for Her Role in FTX Collapse**\
 `Caroline Ellison of Alameda, a trading firm tied closely to FTX, admitted she participated in defrauding customers and misleading investors.`\
-https://nytimes.com/2022/12/23/business/alameda-executive-says-she-is-truly-sorry-for-her-role-in-ftx-collapse.html?searchResultPosition=1
+https://nytimes.com/2022/12/23/business/caroline-ellison-ftx-alameda-research.html?searchResultPosition=1
 
 **An OK Basketball Player Hopes to Be a Great N.B.A. Team Owner**\
 `Mat Ishbia was a walk on at Michigan State 20 years ago before he became a wealthy businessman. His $4 billion deal to buy the Phoenix Suns could help him live his sports dream.`\
