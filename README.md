@@ -11,7 +11,7 @@ https://nytimes.com/2022/12/23/sports/soccer/premier-league-boxing-day.html?sear
 https://nytimes.com/interactive/2022/12/23/books/review/new-paperbacks.html?searchResultPosition=3
 
 **How Angela Lansbury and Stephen Sondheim Came to Appear in ‘Knives Out’ Sequel**\
-`A fan of musical theater, Rian Johnson had long hoped to land the two stars. But he was already the editing phase when they agreed to take part.`\
+`A fan of musical theater, Rian Johnson had long hoped to land the two stars. But he was already in the editing phase when they agreed to take part.`\
 https://nytimes.com/2022/12/23/movies/glass-onion-knives-out-cameos.html?searchResultPosition=4
 
 **How Californians Are Celebrating the Holidays**\
