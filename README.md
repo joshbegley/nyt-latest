@@ -6,8 +6,8 @@ https://nytimes.com/2022/12/23/us/politics/jan-6-committee-report-legacy.html?se
 `His complaints led to an investigation of egregious misconduct by the authorities on Long Island, but he paid a political price.`\
 https://nytimes.com/2022/12/23/nyregion/stuart-namm-dead.html?searchResultPosition=2
 
-**Rapper Tory Lanez Guilty in Shooting of Megan Thee Stallion**\
-`Mr. Lanez, a Canadian rapper, was accused of firing at the Houston hip-hop star after an argument in 2020. The matter became the subject of speculation and gossip on social media and in songs.`\
+**Tory Lanez Found Guilty of Shooting Megan Thee Stallion**\
+`Mr. Lanez, a Canadian rapper, was convicted of firing at the Houston hip-hop star after an argument in 2020. The matter became the subject of speculation and gossip on social media and in songs.`\
 https://nytimes.com/2022/12/23/arts/music/tory-lanez-megan-thee-stallion-verdict.html?searchResultPosition=3
 
 **Alameda Executive Says She Is ‘Truly Sorry’ for Her Role in FTX Collapse**\
