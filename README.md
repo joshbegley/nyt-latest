@@ -26,7 +26,7 @@ https://nytimes.com/2022/12/23/podcasts/the-daily/restaurant-reviews-pete-wells.
 `The university said that Mr. Syed, who spent more than two decades in prison, will work with its Prisons and Justice Initiative to help wrongfully convicted people.`\
 https://nytimes.com/2022/12/23/us/adnan-syed-georgetown.html?searchResultPosition=7
 
-**As Cases Spread, China’s Low Covid Death Toll Convinces No One**\
+**As Cases Explode, China’s Low Covid Death Toll Convinces No One**\
 `China’s murky statistics are fueling widespread public distrust. Its narrow definition of Covid deaths “will very much underestimate the true death toll,” the W.H.O. says.`\
 https://nytimes.com/2022/12/23/world/asia/china-covid-death-toll.html?searchResultPosition=8
 
