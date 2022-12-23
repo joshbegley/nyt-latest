@@ -1,6 +1,6 @@
 **How Californians Are Celebrating the Holidays**\
 `Christmas In-N-Out burgers, tree-cutting traditions and, of course, chilly walks on the beach.`\
-https://nytimes.com/2022/12/23/us/how-californians-are-celebrating-the-holidays.html?searchResultPosition=1
+https://nytimes.com/2022/12/23/us/holiday-celebrations-california.html?searchResultPosition=1
 
 **‘Babylon’: A Guide to the Characters and Their Real-Life Counterparts**\
 `The Damien Chazelle epic is set in 1920s Hollywood and draws on figures from that time, including “the ‘It’ Girl,” Clara Bow.`\
