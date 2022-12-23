@@ -2,8 +2,8 @@
 `The release, the panel’s last major action in its groundbreaking inquiry, came days after lawmakers formally accused former President Donald J. Trump of inciting insurrection and other crimes.`\
 https://nytimes.com/2022/12/22/us/politics/jan-6-committee-report.html?searchResultPosition=1
 
-**Trevor Bauer Is Reinstated by Major League Baseball**\
-`An arbitrator reduced Bauer’s suspension to 194 games, making him once again eligible to play. Bauer, a right-handed pitcher, last appeared for the Dodgers in June 2021.`\
+**Arbitrator Reinstates Trevor Bauer to Major League Baseball**\
+`Bauer’s suspension over sexual assault allegations was reduced to 194 games and he is eligible to play. Bauer, a right-handed pitcher, last appeared for the Dodgers in June 2021.`\
 https://nytimes.com/2022/12/22/sports/baseball/trevor-bauer-reinstated.html?searchResultPosition=2
 
 **Need to Defuse Family Squabbles? Learn From an F.B.I. Crisis Negotiator.**\
