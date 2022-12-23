@@ -19,7 +19,7 @@ https://nytimes.com/2022/12/23/nyregion/george-santos-republican-resume.html?sea
 https://nytimes.com/2022/12/23/business/dealbook/sbf-ftx-epic-fraud-lawsuit.html?searchResultPosition=5
 
 **Gunman in Paris Opens Fire, Killing at Least 3**\
-`The shooting took place at a Kurdish community center on a narrow street in the French capital, and a 69-year-old has been taken into custody. The motive for the attack was not immediately clear.`\
+`The shooting took place at a Kurdish community center on a narrow street in the French capital, and a 69-year-old has been taken into custody. Police were investigating a possible racist motive.`\
 https://nytimes.com/2022/12/23/world/europe/paris-shooting-france.html?searchResultPosition=6
 
 **With the Big Pieces in Place, the Yankees Still Have Needs**\
