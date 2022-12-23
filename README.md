@@ -34,7 +34,7 @@ https://nytimes.com/2022/12/23/sports/sailing/sydney-hobart-crew-sleep.html?sear
 `Kathy Veel and Bridget Canham, competing in the two-handed division, will also be on the race’s second-smallest boat.`\
 https://nytimes.com/2022/12/23/sports/sailing/sydney-hobart-race-female-crew.html?searchResultPosition=9
 
-**Notable Deaths 2022**\
+**Notable Deaths of 2022**\
 `Remembering Queen Elizabeth II, Mikhail S. Gorbachev, Sidney Poitier, Bill Russell, Loretta Lynn, Jiang Zemin, Madeleine Albright, Jean-Luc Godard, Shinzo Abe, Régine, Meat Loaf, Ivana Trump, Vin Scully and many others who died in 2022.`\
 https://nytimes.com/interactive/2022/obituaries/notable-deaths.html?searchResultPosition=10
 
