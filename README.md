@@ -1,40 +1,40 @@
+**Their Mothers Brought Them Together. Loss Cemented Their Bond.**\
+`Charmaine Gomez and Joseph Contreras first met during a dress alteration in his parents’ kitchen. But it would be another couple of years before he gathered the courage to ask her out.`\
+https://nytimes.com/2022/12/23/style/charmaine-gomez-joseph-contreras-wedding.html?searchResultPosition=1
+
+**When a Doorbell’s Ring Means Hope**\
+`It was as if someone was saying to us, “You are seen. You are loved.”`\
+https://nytimes.com/2022/12/23/style/modern-love-when-a-doorbells-ring-brings-light-and-hope.html?searchResultPosition=2
+
+**Day 23: On Christmas Day, No Rest for the Weary. (Or the Guy Who Feeds the Penguins.)**\
+`For a biologist in San Francisco, Dec. 25 will bring not presents and mistletoe, but beak trims and fish guts.`\
+https://nytimes.com/2022/12/23/style/christmas-tradition-penguin-feeding.html?searchResultPosition=3
+
+**A Helmet and a Hug Won Her Over**\
+`On their first date, Vanessa Zoltan wanted to make sure Peter Mueller, a cyclist, had taken proper safety precautions while riding. He did, and “it made me melt,” she said.`\
+https://nytimes.com/2022/12/23/style/vanessa-zoltan-peter-mueller-wedding.html?searchResultPosition=4
+
+**Marriage Was Not in His Plan, Divine Intervention Changed That**\
+`Brad Stensrude was seriously committed to Denise Pinto but never wanted to marry again. During a tour of Israel, he had a revelation.`\
+https://nytimes.com/2022/12/23/style/denise-pinto-brad-stensrude-wedding.html?searchResultPosition=5
+
+**She Kick-Started His Heart**\
+`Jacquelyn Drozdow and Matthew Comite began dating after she joined his kickball team at the suggestion of her matchmaking sister-in-law.`\
+https://nytimes.com/2022/12/23/style/jacquelyn-drozdow-matthew-comite-wedding.html?searchResultPosition=6
+
 **Congress Votes to Expand U.S. Power to Prosecute International War Crimes**\
 `Passed after an address by Ukraine’s leader, the bill would allow foreigners in the United States who are suspected of war crimes to be tried even if the crime was overseas and the victim was not American.`\
-https://nytimes.com/2022/12/22/us/politics/congress-war-crimes.html?searchResultPosition=1
+https://nytimes.com/2022/12/22/us/politics/congress-war-crimes.html?searchResultPosition=7
 
 **Adam Schiff: Don’t Forget That Many Republicans in Congress Enabled Trump’s Big Lie**\
 `The Jan. 6 committee found that multiple laws were violated in an attempt to overturn the 2020 election, and not just by Donald Trump’s foot soldiers.`\
-https://nytimes.com/2022/12/22/opinion/adam-schiff-jan-6-committee-report-referrals.html?searchResultPosition=2
+https://nytimes.com/2022/12/22/opinion/adam-schiff-jan-6-committee-report-referrals.html?searchResultPosition=8
 
 **Final Report From the Jan. 6 Committee**\
 `The lengthy, eight-chapter document details former President Donald J. Trump’s efforts to overturn the 2020 election. Each chapter roughly mirrors the presentation of the committee’s investigative hearings this past year.`\
-https://nytimes.com/interactive/2022/12/23/us/january-6-committee-final-report.html?searchResultPosition=3
+https://nytimes.com/interactive/2022/12/23/us/january-6-committee-final-report.html?searchResultPosition=9
 
 **Variety: Cryptic Crossword**\
 `John Forbes graces us with a cryptic gift.`\
-https://nytimes.com/2022/12/22/crosswords/variety-cryptic-crossword.html?searchResultPosition=4
-
-**Co-Writer of Tone Loc’s ‘Wild Thing’**\
-`Brandon Koppy opens our solving weekend.`\
-https://nytimes.com/2022/12/22/crosswords/daily-puzzle-2022-12-23.html?searchResultPosition=5
-
-**Jan. 6 Panel Issues Final Report, Placing Blame for Capitol Riot on ‘One Man’**\
-`The release of the report, the panel’s last major action, came three days after lawmakers formally accused former President Donald J. Trump of inciting insurrection and other crimes.`\
-https://nytimes.com/2022/12/22/us/politics/jan-6-committee-report.html?searchResultPosition=6
-
-**Arbitrator Reinstates Trevor Bauer to Major League Baseball**\
-`Bauer’s suspension over sexual assault allegations was reduced to 194 games and he is eligible to play. Bauer, a right-handed pitcher, last appeared for the Dodgers in June 2021.`\
-https://nytimes.com/2022/12/22/sports/baseball/trevor-bauer-reinstated.html?searchResultPosition=7
-
-**Need to Defuse Family Squabbles? Learn From an F.B.I. Crisis Negotiator.**\
-`He uses seven skills for active listening in high-pressure situations, and they can help you communicate better, too.`\
-https://nytimes.com/2022/12/22/well/family/active-listening-skills-fbi.html?searchResultPosition=8
-
-**Ali Ahmed Aslam, Credited With Inventing Chicken Tikka Masala, Dies at 77**\
-`A Glasgow restaurateur, he was part of the rise of the British curry house — and played an essential part in its story.`\
-https://nytimes.com/2022/12/22/dining/ali-ahmed-aslam-dead.html?searchResultPosition=9
-
-**Five Science Fiction Movies to Stream Now**\
-`Post-apocalyptic drama and A.I. trauma are part of this month’s sci-fi picks.`\
-https://nytimes.com/2022/12/22/movies/science-fiction-movies-streaming.html?searchResultPosition=10
+https://nytimes.com/2022/12/22/crosswords/variety-cryptic-crossword.html?searchResultPosition=10
 
