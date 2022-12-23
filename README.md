@@ -15,7 +15,7 @@ https://nytimes.com/interactive/2022/12/23/movies/holiday-christmas-movie-quiz.h
 https://nytimes.com/2022/12/23/nyregion/george-santos-republican-resume.html?searchResultPosition=4
 
 **Bankman-Fried’s ‘Epic’ Legal Battle**\
-`The disgraced crypto entrpreneur was freed on $250 million bond, but is due back in court in early January on federal fraud charges.`\
+`The disgraced crypto entrepreneur was freed on $250 million bond, but is due back in court in early January on federal fraud charges.`\
 https://nytimes.com/2022/12/23/business/dealbook/sbf-ftx-epic-fraud-lawsuit.html?searchResultPosition=5
 
 **Gunman in Paris Opens Fire, Killing at Least 3**\
