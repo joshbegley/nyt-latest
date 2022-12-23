@@ -19,7 +19,7 @@ https://nytimes.com/2022/12/23/movies/zoey-deutch-something-from-tiffanys.html?s
 https://nytimes.com/2022/12/23/movies/babylon-margot-robbie.html?searchResultPosition=5
 
 **Consumer Spending Cooled in November as Closely Watched Inflation Gauge Slowed**\
-`The Personal Consumption Expenditures index showed prices increased 5.5 last month, as consumer spending pulled back.`\
+`The Personal Consumption Expenditures index showed prices increased 5.5 percent last month, as consumer spending pulled back.`\
 https://nytimes.com/2022/12/23/business/economy/consumer-spending-inflation-november.html?searchResultPosition=6
 
 **The Most Sought After Manuscript in Publishing? The Jan. 6 Report.**\
