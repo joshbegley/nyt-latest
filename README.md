@@ -3,7 +3,7 @@
 https://nytimes.com/2022/12/23/books/jan-6-report-publishing.html?searchResultPosition=1
 
 **As Hope Fades for Missing Thai Sailors, Ship’s Safety Is Scrutinized**\
-`Four days after the warship sank, 23 men remain missing. The authorities said the warship did not have enough life jackets.`\
+`Five days after the warship sank, 23 men remain missing. The authorities said the warship did not have enough life jackets.`\
 https://nytimes.com/2022/12/23/world/asia/thai-navy-ship-sinks.html?searchResultPosition=2
 
 **How Well Do You Know Your Holiday Movies?**\
