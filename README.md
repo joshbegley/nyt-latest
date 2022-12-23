@@ -14,27 +14,27 @@ https://nytimes.com/2022/12/22/dining/ali-ahmed-aslam-dead.html?searchResultPosi
 `Post-apocalyptic drama and A.I. trauma are part of this month’s sci-fi picks.`\
 https://nytimes.com/2022/12/22/movies/science-fiction-movies-streaming.html?searchResultPosition=4
 
+**Outreach intensifies to find shelter for homeless people caught in the path of the storm.**\
+`Across much of the country, temperatures and wind chills far lower than normal are endangering even people used to sleeping in the cold, and leaving officials scrambling to find people and convince them to come inside, exposing the patchwork nature of many cities’ outreach efforts.`\
+https://nytimes.com/2022/12/22/us/winter-storm-cold-weather-homeless-shelters.html?searchResultPosition=5
+
 **Biden’s America Finds Its Voice**\
 `Zelensky reminds us of our timeless cause.`\
-https://nytimes.com/2022/12/22/opinion/biden-zelensky-speech.html?searchResultPosition=5
+https://nytimes.com/2022/12/22/opinion/biden-zelensky-speech.html?searchResultPosition=6
 
 **China’s Future Isn’t What It Used to Be**\
 `Global dominance has been postponed, maybe indefinitely.`\
-https://nytimes.com/2022/12/22/opinion/china-future-growth.html?searchResultPosition=6
+https://nytimes.com/2022/12/22/opinion/china-future-growth.html?searchResultPosition=7
 
 **Joe Lieberman to Kyrsten Sinema: Come on In, the Water’s Warm**\
 `Few others know quite what it’s like to infuriate the Democratic Party by leaving it.`\
-https://nytimes.com/2022/12/22/us/politics/joe-lieberman-kyrsten-sinema-democrats.html?searchResultPosition=7
+https://nytimes.com/2022/12/22/us/politics/joe-lieberman-kyrsten-sinema-democrats.html?searchResultPosition=8
 
 **Ukraine Buoyed by Hero’s Welcome for Zelensky in Washington**\
 `Ukrainians, many left in the dark and cold by Russian airstrikes, drew solace from President Volodymyr Zelensky’s speech to Congress.`\
-https://nytimes.com/2022/12/22/world/europe/zelensky-us-visit-reaction.html?searchResultPosition=8
+https://nytimes.com/2022/12/22/world/europe/zelensky-us-visit-reaction.html?searchResultPosition=9
 
 **Madison Square Garden Uses Facial Recognition to Ban Its Owner’s Enemies**\
 `MSG Entertainment, the owner of the arena and Radio City Music Hall, has put lawyers who represent people suing it on an “exclusion list” to keep them out of concerts and sporting events.`\
-https://nytimes.com/2022/12/22/nyregion/madison-square-garden-facial-recognition.html?searchResultPosition=9
-
-**Target Recalls Over 200,000 Children’s Weighted Blankets After 2 Girls Die**\
-`The department store chain, which exclusively sold the blankets, also received four other reports of children becoming entrapped, the U.S. Consumer Product Safety Commission said.`\
-https://nytimes.com/2022/12/22/us/target-weighted-blanket-recall.html?searchResultPosition=10
+https://nytimes.com/2022/12/22/nyregion/madison-square-garden-facial-recognition.html?searchResultPosition=10
 
