@@ -2,13 +2,13 @@
 `Christmas In-N-Out burgers, tree-cutting traditions and, of course, chilly walks on the beach.`\
 https://nytimes.com/2022/12/23/us/holiday-celebrations-california.html?searchResultPosition=1
 
-**‘Babylon’: A Guide to the Characters and Their Real-Life Counterparts**\
-`The Damien Chazelle epic is set in 1920s Hollywood and draws on figures from that time, including “the ‘It’ Girl,” Clara Bow.`\
-https://nytimes.com/2022/12/23/movies/babylon-a-guide-to-the-characters-and-their-real-life-counterparts.html?searchResultPosition=2
-
 **The ‘Black Panther’ Sequel That Never Was**\
 `Writer-director Ryan Coogler and co-screenwriter Joe Robert Cole reveal the original plot for “Wakanda Forever” and discuss working in the Marvel universe.`\
-https://nytimes.com/2022/12/23/arts/ryan-coogler-black-panther-wakanda-forever.html?searchResultPosition=3
+https://nytimes.com/2022/12/23/arts/ryan-coogler-black-panther-wakanda-forever.html?searchResultPosition=2
+
+**‘Babylon’: A Guide to the Characters and Their Real-Life Counterparts**\
+`The Damien Chazelle epic is set in 1920s Hollywood and draws on figures from that time, including “the ‘It’ Girl,” Clara Bow.`\
+https://nytimes.com/2022/12/23/movies/babylon-a-guide-to-the-characters-and-their-real-life-counterparts.html?searchResultPosition=3
 
 **Zoey Deutch Enjoys ‘The Joy of Cooking’ and the Occasional Tracksuit**\
 `The actor, now in the movie “Something From Tiffany’s,” thrives on regular readings of “Our Town,” discussions of “Sapiens” and whiffs of her dog’s paws.`\
