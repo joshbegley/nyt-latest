@@ -8,7 +8,7 @@ https://nytimes.com/2022/12/23/arts/ryan-coogler-black-panther-wakanda-forever.h
 
 **‘Babylon’: A Guide to the Characters and Their Real-Life Counterparts**\
 `The Damien Chazelle epic is set in 1920s Hollywood and draws on figures from that time, including “the ‘It’ Girl,” Clara Bow.`\
-https://nytimes.com/2022/12/23/movies/babylon-a-guide-to-the-characters-and-their-real-life-counterparts.html?searchResultPosition=3
+https://nytimes.com/2022/12/23/movies/babylon-cast-real-life-counterparts.html?searchResultPosition=3
 
 **Zoey Deutch Enjoys ‘The Joy of Cooking’ and the Occasional Tracksuit**\
 `The actor, now in the movie “Something From Tiffany’s,” thrives on regular readings of “Our Town,” discussions of “Sapiens” and whiffs of her dog’s paws.`\
