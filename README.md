@@ -1,4 +1,4 @@
-**Alex Ovechkin Has 802 Goals. Wayne Gretzky Is Next In His Sights.**\
+**Alex Ovechkin Has 802 Goals. Wayne Gretzky Is Next in His Sights.**\
 `With two goals against the Winnipeg Jets, Ovechkin, the Capitals winger, passed Gordie Howe on the N.H.L. career list, leaving only one player in his path to being the greatest goal scorer of all time.`\
 https://nytimes.com/2022/12/23/sports/hockey/ovechkin-goals-record-howe-gretzky.html?searchResultPosition=1
 
