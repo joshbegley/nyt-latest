@@ -23,7 +23,7 @@ https://nytimes.com/2022/12/24/opinion/jan-6-report-trump-watergate.html?searchR
 https://nytimes.com/2022/12/24/opinion/did-the-mother-of-young-adult-literature-identify-as-a-man.html?searchResultPosition=6
 
 **Fuel Tanker Wedged Beneath Overpass Explodes Near Hospital in South Africa**\
-`At least nine people were killed and 60 injured from the ensuing fireball, in a scene a witness described as a “zombie apocalypse.”`\
+`At least 10 people were killed and 60 injured from the ensuing fireball, in a scene a witness described as a “zombie apocalypse.”`\
 https://nytimes.com/2022/12/24/world/africa/johannesburg-tanker-explosion.html?searchResultPosition=7
 
 **With Unfit Drinking Water, Indigenous Communities in Canada Bear Hardship**\
