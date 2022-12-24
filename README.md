@@ -18,7 +18,7 @@ https://nytimes.com/2022/12/24/us/politics/kari-lake-election-trial-arizona.html
 `The heavy snow and bone-chilling temperatures in Canada were part of the same weather system affecting much of the United States.`\
 https://nytimes.com/video/world/canada/100000008702645/canada-winter-snow-storm.html?searchResultPosition=5
 
-**La Guardia flight delays and cancellations leave travelers with little recourse**\
+**La Guardia flight delays and cancellations leave travelers with little recourse.**\
 `People stranded at the airport prepared to spend Christmas Eve there or at nearby hotels, or tried to find alternate ways to reach their holiday destinations.`\
 https://nytimes.com/2022/12/24/us/la-guardia-flight-delays-cancellations.html?searchResultPosition=6
 
