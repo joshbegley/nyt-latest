@@ -32,7 +32,7 @@ https://nytimes.com/2022/12/24/briefing/your-favorite-things-of-2022.html?search
 
 **The Syrian Family That Rebuilt a Chocolate Empire in Nova Scotia**\
 `Seven years on, Peace by Chocolate continues to expand, and its founder has become an advocate of more open immigration.`\
-https://nytimes.com/2022/12/24/world/canada/the-syrian-family-that-rebuilt-a-chocolate-empire-in-nova-scotia.html?searchResultPosition=9
+https://nytimes.com/2022/12/24/world/canada/immigrants-canada.html?searchResultPosition=9
 
 **At Least 7 Killed in Kherson Shelling, Fueling Anger Over Christmas Strikes**\
 `President Volodymyr Zelensky of Ukraine had urged vigilance after the military noted the presence of Russian ships carrying cruise missiles in the Black Sea.`\
