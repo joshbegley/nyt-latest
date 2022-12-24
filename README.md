@@ -35,6 +35,6 @@ https://nytimes.com/2022/12/24/world/canada/canada-indigenous-populations-drinki
 https://nytimes.com/2022/12/24/world/canada/canada-weather.html?searchResultPosition=9
 
 **In Buffalo, it was ‘a very, very bad night in our community.’**\
-`By Michael D. Regan`\
+`A barreling storm thrust piles of snow against the fronts of homes and businesses, pinning vehicles parked in roads and driveways. The few people who ventured out faced bitterly cold temperatures.`\
 https://nytimes.com/2022/12/24/us/buffalo-blizzard-snow.html?searchResultPosition=10
 
