@@ -14,7 +14,7 @@ https://nytimes.com/2022/12/24/us/west-point-confederate-symbols.html?searchResu
 `Kari Lake, a Republican who was defeated by Katie Hobbs in the Arizona governor’s race, had made false election claims the centerpiece of her campaign.`\
 https://nytimes.com/2022/12/24/us/politics/kari-lake-election-trial-arizona.html?searchResultPosition=4
 
-**Winter Storms Wreak Havoc Across Canada**\
+**Winter Weather Wreaks Havoc Across Canada**\
 `The heavy snow and bone-chilling temperatures in Canada were part of the same weather system affecting much of the United States.`\
 https://nytimes.com/video/world/canada/100000008702645/canada-winter-snow-storm.html?searchResultPosition=5
 
