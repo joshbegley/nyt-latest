@@ -19,6 +19,6 @@ https://nytimes.com/2022/12/23/us/politics/jan-6-committee-report-legacy.html?se
 https://nytimes.com/2022/12/23/nyregion/stuart-namm-dead.html?searchResultPosition=9
 
 **Tory Lanez Found Guilty of Shooting Megan Thee Stallion**\
-`Mr. Lanez, a Canadian rapper, was convicted of firing at the Houston hip-hop star after an argument in 2020. The matter became the subject of speculation and gossip on social media and in songs.`\
+`Mr. Lanez, a Canadian rapper, fired at the Houston hip-hop star after an argument in 2020. The matter became the subject of speculation and gossip on social media and in songs.`\
 https://nytimes.com/2022/12/23/arts/music/tory-lanez-megan-thee-stallion-verdict.html?searchResultPosition=10
 
