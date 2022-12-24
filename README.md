@@ -2,13 +2,13 @@
 `A letter from Afghanistan’s Ministry of Economy warned that it would revoke the operating licenses of any organizations that defied the decree.`\
 https://nytimes.com/2022/12/24/world/asia/taliban-women-ngos-afghanistan.html?searchResultPosition=1
 
-**How Would You Prove That God Performed a Miracle?**\
-`A neuroscientist who believes in divine intervention is trying to document it. He is not alone. `\
-https://nytimes.com/2022/12/24/opinion/miracles-neuroscience-proof.html?searchResultPosition=2
-
 **How Americans Can Stand Against Extremism**\
 `Transgender people are under threat from political violence.`\
-https://nytimes.com/2022/12/24/opinion/anti-trans-violence.html?searchResultPosition=3
+https://nytimes.com/2022/12/24/opinion/anti-trans-violence.html?searchResultPosition=2
+
+**How Would You Prove That God Performed a Miracle?**\
+`A neuroscientist who believes in divine intervention is trying to document it. He is not alone. `\
+https://nytimes.com/2022/12/24/opinion/miracles-neuroscience-proof.html?searchResultPosition=3
 
 **This Was the Year Everything Changed in Germany**\
 `The country has acknowledged the war in Ukraine as its own.`\
