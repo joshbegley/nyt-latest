@@ -10,8 +10,8 @@ https://nytimes.com/2022/12/24/briefing/your-favorite-things-of-2022.html?search
 `Seven years on, Peace by Chocolate continues to expand, and its founder has become an advocate of more open immigration.`\
 https://nytimes.com/2022/12/24/world/canada/the-syrian-family-that-rebuilt-a-chocolate-empire-in-nova-scotia.html?searchResultPosition=3
 
-**Russia Shells Kherson, Killing 5 as Zelensky Warns More Strikes Could Mar Christmas**\
-`Ukraine’s leader had urged vigilance after the military noted the presence of Russian ships carrying cruise missiles in the Black Sea.`\
+**At Least 7 Killed in Kherson Shelling, Fueling Anger Over Christmas Strikes**\
+`President Volodymyr Zelensky of Ukraine had urged vigilance after the military noted the presence of Russian ships carrying cruise missiles in the Black Sea.`\
 https://nytimes.com/2022/12/24/world/europe/russia-kherson-ukraine-shelling.html?searchResultPosition=4
 
 **Putin Wants Fealty, and He’s Found It in Africa**\
