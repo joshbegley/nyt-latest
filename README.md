@@ -1,40 +1,40 @@
-**A Christmas Tree Brings Life to a Destroyed Palestinian Village**\
-`For former residents of Iqrit, where Israeli forces leveled everything but the church in 1951, religious rituals bind them to a place from which they were expelled.`\
-https://nytimes.com/2022/12/24/world/middleeast/christmas-tree-iqrit-palestinian-christians.html?searchResultPosition=1
+**Putin Wants Fealty, and He’s Found It in Africa**\
+`The Russian president has unleashed a new disorder on the world with his war in Ukraine, and the Central African Republic may be its ultimate expression.`\
+https://nytimes.com/2022/12/24/world/africa/central-african-republic-russia-wagner.html?searchResultPosition=1
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/12/24/crosswords/spelling-bee-forum.html?searchResultPosition=2
+**St. Nicholas (the Church) Has Come to Town**\
+`The Greek Orthodox house of worship was destroyed on Sept. 11. After 21 years and $85 million, its glowing new home has opened.`\
+https://nytimes.com/2022/12/24/nyregion/st-nicholas-greek-orthodox-sept-11.html?searchResultPosition=2
 
-**The Tom Brady of Other Jobs**\
-`Meet the people as old in their jobs as Tom Brady is in his.`\
-https://nytimes.com/interactive/2022/12/24/upshot/tom-brady-of-other-jobs.html?searchResultPosition=3
+**Lonely, Single and Over 50? China Has a Game Show for That.**\
+`Several popular television programs in the country are helping to encourage conversations about the social, romantic and sexual needs of older Chinese people.`\
+https://nytimes.com/2022/12/24/world/asia/china-older-dating-shows.html?searchResultPosition=3
 
-**Gunfire at Mall of America Leaves One Dead and Shoppers Fleeing**\
-`A dispute between two groups of young men quickly led to a shooting in the nation’s largest mall on one of the busiest shopping days of the year.`\
-https://nytimes.com/2022/12/24/us/shooting-mall-of-america.html?searchResultPosition=4
+**How the Worst Fears for Democracy Were Averted in 2022**\
+`A precariously narrow but consequential slice of the electorate broke with its own voting history to reject openly extremist Republican candidates — at least partly out of concern for the health of the political system.`\
+https://nytimes.com/2022/12/24/us/politics/democracy-voters-elections-2022.html?searchResultPosition=4
 
-**Corrections: Dec. 24, 2022**\
-`Corrections that appeared in print on Saturday, Dec. 24, 2022.`\
-https://nytimes.com/2022/12/24/pageoneplus/corrections-dec-24-2022.html?searchResultPosition=5
+**A High-Tech Strategy for Keeping Drug Users Safe: Analyzing Their Fentanyl**\
+`Machines that examine samples of drugs can cost tens or even hundreds of thousands of dollars, but experts say they are an increasingly vital tool in stemming overdoses.`\
+https://nytimes.com/2022/12/24/us/politics/fentanyl-drug-testing.html?searchResultPosition=5
 
-**Quotation of the Day: ‘Just Part of Life’: Experiences With Egg Freezing**\
-`Quotation of the Day for Saturday, December 24, 2022.`\
-https://nytimes.com/2022/12/24/pageoneplus/quotation-of-the-day-just-part-of-life-experiences-with-egg-freezing.html?searchResultPosition=6
+**What’s the Big Deal About Handbags?**\
+`MZ Wallace built a successful brand with its utilitarian, untrendy, unfussy approach to accessories.`\
+https://nytimes.com/2022/12/24/style/mz-wallace-handbags.html?searchResultPosition=6
 
-**Listen. Can You Guess These 12 Christmas Movies?**\
-`Find out if you deserve the expert’s Santa hat or a big old lump of coal.`\
-https://nytimes.com/2022/12/24/style/christmas-movie-audio-quiz.html?searchResultPosition=7
+**Readers Share Their Favorite Books of 2022**\
+`New York Times readers recommend some of their favorite books, new and old, that they read in 2022.`\
+https://nytimes.com/2022/12/24/books/readers-favorite-books-2022.html?searchResultPosition=7
 
-**Britain’s Soaring Energy Costs Strain Crisis Responders**\
-`Families in chilly, drafty homes are seeking help. The response may be a blanket and thick socks, while some doctors are writing prescriptions for heat.`\
-https://nytimes.com/2022/12/24/business/britain-energy-crisis-responders.html?searchResultPosition=8
+**N.B.A. Christmas Day Games: What to Know**\
+`The N.B.A. brings out its stars on Christmas. This year, there will be some new rivalries, too.`\
+https://nytimes.com/2022/12/24/sports/basketball/nba-christmas-day-games.html?searchResultPosition=8
 
-**Alex Ovechkin Has 802 Goals. Wayne Gretzky Is Next in His Sights.**\
-`With two goals against the Winnipeg Jets, Ovechkin, the Capitals winger, passed Gordie Howe on the N.H.L. career list, leaving only one player in his path to being the greatest goal scorer of all time.`\
-https://nytimes.com/2022/12/23/sports/hockey/ovechkin-goals-record-howe-gretzky.html?searchResultPosition=9
+**When a Taylor Swift Concert Means Getting Your First Credit Card**\
+`For some fans, a chance to see their favorite artists in concert is the most compelling reason to sign up for their first credit cards and start building credit.`\
+https://nytimes.com/2022/12/24/business/taylor-swift-tour-capital-one.html?searchResultPosition=9
 
-**Step Toward Nirvana**\
-`Trenton Charlson’s challenging Saturday grid is as pretty as a picture.`\
-https://nytimes.com/2022/12/23/crosswords/daily-puzzle-2022-12-24.html?searchResultPosition=10
+**Sports-Betting Apps Transform Clueless Spectators Into Rabid Fans. Trust Me.**\
+`One in five Americans bet on sports this year. Against most odds — my total lack of interest in all professional athletics — I was one of them. And I was hooked.`\
+https://nytimes.com/2022/12/24/business/sports-betting-apps.html?searchResultPosition=10
 
