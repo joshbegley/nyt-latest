@@ -22,7 +22,7 @@ https://nytimes.com/2022/12/24/opinion/jan-6-report-trump-watergate.html?searchR
 `Louisa May Alcott felt a strong affinity with manhood.`\
 https://nytimes.com/2022/12/24/opinion/did-the-mother-of-young-adult-literature-identify-as-a-man.html?searchResultPosition=6
 
-**Fuel Tanker Wedged in Overpass Explodes Near Hospital in South Africa**\
+**Fuel Tanker Wedged Beneath Overpass Explodes Near Hospital in South Africa**\
 `At least nine people were killed and 60 injured from the ensuing fireball, in a scene a witness described as a “zombie apocalypse.”`\
 https://nytimes.com/2022/12/24/world/africa/johannesburg-tanker-explosion.html?searchResultPosition=7
 
