@@ -30,7 +30,7 @@ https://nytimes.com/2022/12/25/business/the-week-in-business-who-comes-after-elo
 `A railway bridge with a shallow underpass is bashed into by vehicles with startling regularity, causing mostly embarrassment, but sending cargo — flowers, bicycles, eggs and potatoes — flying onto the roadway.`\
 https://nytimes.com/2022/12/25/world/europe/rail-bridge-crashes-stonea-england.html?searchResultPosition=8
 
-**Putin Insists He Is Ready for Peace Talks, as Air-Raid Sirens Sound Across Ukraine**\
+**Putin Insists He Is Open to Talks, as Air-Raid Sirens Sound Across Ukraine**\
 `The alert was lifted in most areas after about two hours. President Vladimir V. Putin repeated the claim that he invaded Ukraine to defend Russia’s national interests.`\
 https://nytimes.com/2022/12/25/world/europe/ukraine-russia-war.html?searchResultPosition=9
 
