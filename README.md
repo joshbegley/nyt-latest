@@ -2,13 +2,13 @@
 `Literacy lessons are embedded in every academic class. Even in biology.`\
 https://nytimes.com/2022/12/25/us/reading-literacy-memphis-tennessee.html?searchResultPosition=1
 
-**How Henri Matisse (and I) Got a ‘Beautiful Body’**\
-`The new limitations of the artist’s body became an opportunity for renewal. With paint, scissors and paper, he constructed a new self.`\
-https://nytimes.com/2022/12/25/opinion/matisse-disability-beauty-body.html?searchResultPosition=2
-
 **Ice Climbing Is Having Its Moment. But How Much Longer Will the Ice Be Around?**\
 `The planet is warming, and the winter ice is melting ever faster.`\
-https://nytimes.com/2022/12/25/opinion/climate-change-ice-climbing.html?searchResultPosition=3
+https://nytimes.com/2022/12/25/opinion/climate-change-ice-climbing.html?searchResultPosition=2
+
+**How Henri Matisse (and I) Got a ‘Beautiful Body’**\
+`The new limitations of the artist’s body became an opportunity for renewal. With paint, scissors and paper, he constructed a new self.`\
+https://nytimes.com/2022/12/25/opinion/matisse-disability-beauty-body.html?searchResultPosition=3
 
 **Having a Hard Christmas? Jesus Did Too**\
 `Jesus Did Too`\
