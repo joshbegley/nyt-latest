@@ -8,7 +8,7 @@ https://nytimes.com/2022/12/25/crosswords/daily-puzzle-2022-12-26.html?searchRes
 
 **They Traveled From South Korea. They Got Stranded Near Buffalo.**\
 `A South Korean tour group’s van became stuck in the snow outside a house in Williamsville, N.Y. They spent the weekend with the homeowners — who luckily had a well-stocked kitchen.`\
-https://nytimes.com/2022/12/25/us/snow-storm-korean-tourists.html?searchResultPosition=3
+https://nytimes.com/2022/12/25/nyregion/snow-storm-korean-tourists.html?searchResultPosition=3
 
 **Kathy Whitworth, Record-Holder for U.S. Golf Wins, Dies at 83**\
 `Whitworth was a hall of famer who became the first woman’s pro golfer to earn more than $1 million.`\
