@@ -6,13 +6,13 @@ https://nytimes.com/2022/12/25/us/reading-literacy-memphis-tennessee.html?search
 `The new limitations of the artist’s body became an opportunity for renewal. With paint, scissors and paper, he constructed a new self.`\
 https://nytimes.com/2022/12/25/opinion/matisse-disability-beauty-body.html?searchResultPosition=2
 
+**Having a Hard Christmas? Jesus Did, Too**\
+`Jesus Did Too`\
+https://nytimes.com/2022/12/25/opinion/hard-christmas-jesus.html?searchResultPosition=3
+
 **Ice Climbing Is Having Its Moment. But How Much Longer Will the Ice Be Around?**\
 `The planet is warming, and the winter ice is melting ever faster.`\
-https://nytimes.com/2022/12/25/opinion/climate-change-ice-climbing.html?searchResultPosition=3
-
-**Having a Hard Christmas? Jesus Did Too**\
-`Jesus Did Too`\
-https://nytimes.com/2022/12/25/opinion/hard-christmas-jesus.html?searchResultPosition=4
+https://nytimes.com/2022/12/25/opinion/climate-change-ice-climbing.html?searchResultPosition=4
 
 **This Year Was the Beginning of a Green Transition**\
 `Switching off fossil fuels is going to be a bumpy ride — an energy disruption.`\
