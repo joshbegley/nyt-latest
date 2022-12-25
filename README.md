@@ -1,6 +1,6 @@
-**Air-Raid Sirens Sound Across All of Ukraine on Christmas Morning**\
-`The authorities in Ukraine have been warning for days that Russia’s military planned another wave of missile attacks.`\
-https://nytimes.com/2022/12/25/world/ukraine-russia-war.html?searchResultPosition=1
+**Air-Raid Sirens Sound Across Ukraine on Christmas Morning**\
+`The alert was lifted in most areas after about two hours. The authorities in Ukraine had warned for days that Russia planned another wave of missile attacks.`\
+https://nytimes.com/2022/12/25/world/europe/ukraine-russia-war.html?searchResultPosition=1
 
 **Quotation of the Day: Police Deploy New Strategies to Refill Ranks**\
 `Quotation of the Day for Sunday, December 25, 2022.`\
