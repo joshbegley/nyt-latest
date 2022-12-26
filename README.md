@@ -1,6 +1,6 @@
 **‘Roald Dahl’s Matilda the Musical’ Review: Youth in Revolt**\
 `This musical adaptation of Roald Dahl’s novel is a jolt of sour candy guaranteed to make you grin.`\
-https://nytimes.com/2022/12/26/movies/roald-dahls-matilda-the-musical-review.html?searchResultPosition=1
+https://nytimes.com/2022/12/26/movies/matilda-musical-review-roald-dahl.html?searchResultPosition=1
 
 **It’s Turtles All the Way Down in the Fossil Record**\
 `How smushed shells could help to resolve paleontological mysteries.`\
