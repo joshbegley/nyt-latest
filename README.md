@@ -18,7 +18,7 @@ https://nytimes.com/2022/12/26/opinion/philanthropy-charitable-giving-holiday.ht
 `Recipes for Kwanzaa, risotto for New Year’s Eve and more.`\
 https://nytimes.com/2022/12/26/dining/what-to-cook-right-now.html?searchResultPosition=5
 
-**29 Dead in Western New York Blizzard, With More Snow on Way**\
+**27 Dead in Western New York Blizzard, With More Snow on Way**\
 `Thousands remain without power in the Buffalo region, where there is as much as 49 inches of snow on the ground.`\
 https://nytimes.com/2022/12/26/nyregion/blizzard-storm-snow-deaths.html?searchResultPosition=6
 
