@@ -26,7 +26,7 @@ https://nytimes.com/2022/12/26/world/asia/china-covid-quarantine-travelers.html?
 `Residents there have a generous view of the disgraced FTX founder, who has been accused of misusing billions of dollars in customer funds.`\
 https://nytimes.com/2022/12/26/business/sam-bankman-fried-bahamas.html?searchResultPosition=7
 
-**Paris Shooting Suspect Indicted on Charges of MurderWith Racist Motive**\
+**Paris Shooting Suspect Indicted on Charges of Murder With Racist Motive**\
 `The suspect is accused of killing three Kurds. Prosecutors say he admitted targeting foreigners, but many Kurds see the attack as politically motivated terrorism.`\
 https://nytimes.com/2022/12/26/world/europe/paris-shooting-kurds.html?searchResultPosition=8
 
