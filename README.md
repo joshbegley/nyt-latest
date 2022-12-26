@@ -1,40 +1,40 @@
-**With Record Military Incursions, China Warns Taiwan and U.S.**\
-`Taiwan said China sent 71 military aircraft near the island days after President Biden bolstered U.S. support for Taiwan.`\
-https://nytimes.com/2022/12/26/world/asia/china-taiwan-jets.html?searchResultPosition=1
+**The I.C.U. Nurse: A Symbol of Endurance**\
+`Caring for seriously ill patients needing round-the-clock attention during the pandemic has added layers of commitment.`\
+https://nytimes.com/2022/12/26/health/icu-nurse-pandemic.html?searchResultPosition=1
 
-**North Korean Drones Breach Border, Triggering Alarms in South**\
-`South Korean war planes fired warning shots, while the authorities briefly prohibited commercial planes from taking off at two international airports near Seoul.`\
-https://nytimes.com/2022/12/26/world/asia/north-korea-drones.html?searchResultPosition=2
+**Nets, Buoys, Salt, Ice. For West African Fishermen, ‘Everything’ Is Going Up.**\
+`Fishermen in Sierra Leone need large amounts of ice to store their catch on multiday journeys. Like many commodities, it has become pricey.`\
+https://nytimes.com/2022/12/26/world/africa/sierra-leone-fishermen.html?searchResultPosition=2
 
-**Casinos Target a Vulnerable Clientele: Older Asian Gamblers**\
-`The industry’s efforts to lure Asian customers will be a significant factor looming over the upcoming application process for new casino licenses in New York.`\
-https://nytimes.com/2022/12/26/nyregion/nyc-casino-asian-immigrant-gamblers.html?searchResultPosition=3
+**In Nord Stream Mystery, Baltic Seabed Provides a Nearly Ideal Crime Scene**\
+`As investigators piece together clues, Russia has quietly taken steps to begin expensive repairs on the giant gas pipeline, complicating theories about who was behind September’s sabotage.`\
+https://nytimes.com/2022/12/26/world/europe/nordstream-pipeline-explosion-russia.html?searchResultPosition=3
 
-**One Final Twist in the Rev. Louis Gigante’s Colorful Life: A Son**\
-`Father Gigante, a towering figure in the Bronx, left a $7 million fortune entirely to the son he had while he was a priest.`\
-https://nytimes.com/2022/12/26/nyregion/louis-gigante-bronx-nyc-priest-son.html?searchResultPosition=4
+**With ‘Zero Covid,’ China Proved It’s Good at Control. Governance Is Harder.**\
+`For a powerful government that has bragged about its command of the country, its absence at a moment of crisis has made the public question its credibility.`\
+https://nytimes.com/2022/12/26/business/china-covid-communist-party.html?searchResultPosition=4
 
-**Democrats, Feeling New Strength, Plan to Go on Offense on Voting Rights**\
-`After retaining most of the governor’s offices they hold and capturing the legislatures in Michigan and Minnesota, Democrats are putting forward a long list of proposals to expand voting access.`\
-https://nytimes.com/2022/12/26/us/politics/democrats-voting-rights.html?searchResultPosition=5
+**These Women Distillers Are Rising With the American Whiskey Boom**\
+`Before Dry January hits, Andrea Wilson of Michter’s and Nicole Austin of Cascade Hollow discuss how the expansion has affected them, particularly as women in a historically male industry.`\
+https://nytimes.com/2022/12/26/business/whiskey-distillers-wilson-austin-michters-dickel.html?searchResultPosition=5
 
-**Biden’s Pick to Lead F.A.A. Faces Murky Road to Confirmation**\
-`The nominee, Phillip A. Washington, who has yet to receive a confirmation hearing, has drawn scrutiny over his aviation experience and his involvement in a corruption inquiry.`\
-https://nytimes.com/2022/12/26/us/politics/phil-washington-faa-senate-confirmation.html?searchResultPosition=6
+**The Last Holdouts**\
+`It can be tough being a committed mask wearer when others have long since moved on.`\
+https://nytimes.com/2022/12/26/us/covid-masks-risk.html?searchResultPosition=6
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/12/26/crosswords/spelling-bee-forum.html?searchResultPosition=7
+**For Richmond, a Compelling New Chapter**\
+`Visitors to Virginia’s capital will find a Monument Avenue devoid of Confederate statues, a lively dining scene featuring more Black-owned restaurants, and exhibitions that take on the city’s complicated past.`\
+https://nytimes.com/2022/12/26/travel/richmond-virginia-african-american-culture.html?searchResultPosition=7
 
-**For Trump, the Legal Shoes Finally Drop**\
-`The threat of investigations has long hung over Donald Trump. But now the legal and political consequences appear more real.`\
-https://nytimes.com/interactive/2022/12/26/us/politics/trump-investigations.html?searchResultPosition=8
+**Motorsports Is Looking for the Next Danica Patrick. And the One After That.**\
+`Despite a push for greater diversity, female drivers remain a rarity in top racing series like Formula 1, NASCAR and IndyCar.`\
+https://nytimes.com/2022/12/26/sports/women-motorsports-f1-indycar-nascar.html?searchResultPosition=8
 
-**What’s on TV This Week: Kennedy Center Honors and New Year’s Eve**\
-`This year’s Kennedy Center Honors ceremony airs on CBS. And various networks offer New Year’s Eve festivities.`\
-https://nytimes.com/2022/12/26/arts/television/whats-on-tv-this-week.html?searchResultPosition=9
+**A Bricklayer Rebuilds His Life**\
+`After leaving the foster care system, Francis Rosario found a career path and a new home.`\
+https://nytimes.com/2022/12/26/opinion/neediest-cases-foster-housing.html?searchResultPosition=9
 
-**Did a Fourth Grader Write This? Or the New Chatbot?**\
-`Don’t be surprised if you can’t always tell. Neither could two teachers, a professor, nor even the renowned children’s author Judy Blume.`\
-https://nytimes.com/interactive/2022/12/26/upshot/chatgpt-child-essays.html?searchResultPosition=10
+**Blue States Want Red States to Face Consequences, but Travel Bans Are Harmful**\
+`Well-intentioned laws are making it harder for young academics to do their research.`\
+https://nytimes.com/2022/12/26/opinion/travel-bans-academic-freedom.html?searchResultPosition=10
 
