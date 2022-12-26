@@ -7,7 +7,7 @@ https://nytimes.com/2022/12/25/nyregion/migrants-christmas-new-york.html?searchR
 https://nytimes.com/2022/12/25/world/canada/british-columbia-bus-crash.html?searchResultPosition=2
 
 **Epitome of Precision**\
-`Brandon Koppy shows up right on time.`\
+`Kurt Weller shows up right on time.`\
 https://nytimes.com/2022/12/25/crosswords/daily-puzzle-2022-12-26.html?searchResultPosition=3
 
 **They Traveled From South Korea. They Got Stranded Near Buffalo.**\
