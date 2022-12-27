@@ -19,7 +19,7 @@ https://nytimes.com/2022/12/27/books/menahem-schmelzer-dead.html?searchResultPos
 https://nytimes.com/2022/12/27/arts/music/pop-men-harry-styles-jack-harlow-bad-bunny.html?searchResultPosition=8
 
 **Well’s Favorite Health Tips of the Year**\
-`Our health editors and reporters shared key pieces of advice they learned in 2022.`\
+`Our health editors and reporters shared key pieces of advice they learned in 2022. `\
 https://nytimes.com/interactive/2022/12/27/well/health-tips-advice.html?searchResultPosition=9
 
 **Southwest Airlines Cancellations Strand Travelers**\
