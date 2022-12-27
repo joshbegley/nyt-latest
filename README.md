@@ -1,5 +1,5 @@
 **George Santos Admits to Lying About College and Work History**\
-`The congressman-elect told The New York Post that he had not graduated from college or worked at two major Wall Street companies, as he had previously claimed.`\
+`The congressman-elect confirmed The New York Times’s findings that he had not graduated from college or worked at two major Wall Street companies, as he had claimed.`\
 https://nytimes.com/2022/12/26/nyregion/george-santos-interview.html?searchResultPosition=1
 
 **Russian Air Base Is Attacked, as Ukraine Discounts Escalation Threat**\
