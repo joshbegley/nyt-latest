@@ -1,6 +1,6 @@
 **Ukraine’s difficulties on the bond markets leave it more reliant on foreign aid.**\
 `Unable to roll over debt accumulated before the war, Ukraine has paid investors more than it has collected this year, the Central Bank says.`\
-https://nytimes.com/2022/12/27/world/europe/ukraine-economy-markets-foreign-aid.html?searchResultPosition=1
+https://nytimes.com/2022/12/27/world/europe/ukraine-economy-markets-bonds.html?searchResultPosition=1
 
 **Lee Myung-bak, South Korean Ex-President, Receives Pardon**\
 `The action by the current president, Yoon Suk Yeol, will release Mr. Lee from a 17-year sentence for bribery and embezzlement and nullify the enormous fines he owed.`\
