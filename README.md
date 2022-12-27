@@ -2,7 +2,7 @@
 `LittlePuss Press specializes in work by transgender writers. Its founders also know it’s hard to resist a great party.`\
 https://nytimes.com/2022/12/27/style/littlepuss-press-literary-parties.html?searchResultPosition=1
 
-**The Iconic French Pastry You Should Bake for New Year’s Party**\
+**The Iconic French Pastry You Should Bake for a New Year’s Party**\
 `Forget croissants. Let Claire Saffitz teach you how to make a showstopping Paris-Brest.`\
 https://nytimes.com/2022/12/27/dining/paris-brest-recipe-french-pastry.html?searchResultPosition=2
 
