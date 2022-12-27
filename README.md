@@ -20,7 +20,7 @@ https://nytimes.com/2022/12/27/books/nelida-pinon-dead.html?searchResultPosition
 
 **J.J. Watt, Quarterbacks’ Nightmare, Is Retiring From the N.F.L.**\
 `Watt became an outsize celebrity for a defensive player during 10 seasons with Houston and two with Arizona, dominating on the field and raising millions of dollars for hurricane relief.`\
-https://nytimes.com/2022/12/27/sports/jj-watt-retiring.html?searchResultPosition=6
+https://nytimes.com/2022/12/27/sports/football/jj-watt-retiring.html?searchResultPosition=6
 
 **TikTokers Were Reviewing In-N-Out, Until a Stranger Harassed Them for Being Asian**\
 `A Denver man was arrested after unleashing a “homophobic and racist rant” against Arine Kim and a friend at the chain on Christmas Eve, local authorities said.`\
