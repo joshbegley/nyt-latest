@@ -1,4 +1,4 @@
-**A Musical Modernist’s New, Smiling Guise**\
+**A Musical Modernist’s Newly Polished, Smiling Guise**\
 `A three-CD set of music by Bernd Alois Zimmermann, released by the Wergo label, backs up a more expansive view of the artist and is among the standouts of 2022.`\
 https://nytimes.com/2022/12/27/arts/music/bernd-alois-zimmermann-recomposed.html?searchResultPosition=1
 
