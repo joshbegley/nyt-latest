@@ -19,7 +19,7 @@ https://nytimes.com/2022/12/26/nyregion/harlem-stabbing-killing-spree-nyc.html?s
 https://nytimes.com/2022/12/26/world/middleeast/iran-protests-ali-daei.html?searchResultPosition=5
 
 **Thousands of Canceled Flights Cap Holiday Weekend of Travel Nightmares**\
-`Southwest Airlines, which canceled nearly 70 percent of its flights, was the airline most affected on Monday.`\
+`Southwest Airlines, which canceled about 70 percent of its flights, was the airline most affected on Monday.`\
 https://nytimes.com/2022/12/26/us/flights-canceled-holiday-travel.html?searchResultPosition=6
 
 **Your Tuesday Briefing: China Menaces Taiwan**\
