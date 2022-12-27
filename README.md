@@ -14,7 +14,7 @@ https://nytimes.com/2022/12/27/us/politics/treasury-rules-corporate-taxes.html?s
 `Here’s what you need to know at the end of the day.`\
 https://nytimes.com/2022/12/27/briefing/your-tuesday-evening-briefing.html?searchResultPosition=4
 
-**Border Program to Expel Migrants Must Remain in Place, Supreme Court Rules**\
+**Border Program to Expel Migrants Must Stay in Place for Now, Supreme Court Says**\
 `The ruling is a provisional victory for 19 states led mostly by Republicans that had sought to keep the pandemic rule known as Title 42 in place.`\
 https://nytimes.com/2022/12/27/us/politics/title-42-border-supreme-court.html?searchResultPosition=5
 
