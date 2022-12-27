@@ -3,7 +3,7 @@
 https://nytimes.com/2022/12/26/crosswords/daily-puzzle-2022-12-27.html?searchResultPosition=1
 
 **George Santos Admits to Lying About College and Work History**\
-`The congressman-elect confirmed The New York Times’s findings that he had not graduated from college or worked at two major Wall Street companies, as he had claimed.`\
+`The congressman-elect confirmed The New York Times’s findings that he had not graduated from college or worked at two major Wall Street firms, as he had claimed.`\
 https://nytimes.com/2022/12/26/nyregion/george-santos-interview.html?searchResultPosition=2
 
 **Russian Air Base Is Attacked, as Ukraine Discounts Escalation Threat**\
