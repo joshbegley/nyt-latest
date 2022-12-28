@@ -1,6 +1,6 @@
 **Iranian Soccer Great’s Family Is Targeted After He Supports Protests**\
 `The wife and daughter of the soccer star Ali Daei, one of the most prominent critics of Iran’s crackdown on protesters, were stopped from leaving Iran.`\
-https://nytimes.com/2022/12/28/world/middleeast/iranian-soccer-greats-family-is-targeted-after-he-supports-protests.html?searchResultPosition=1
+https://nytimes.com/2022/12/28/world/middleeast/ali-daei-iran-protest.html?searchResultPosition=1
 
 **The Trials of Harry and Meghan**\
 `Readers discuss an essay by Roxane Gay about a new Netflix documentary. Also: Prosecuting Trump; Black mayors; older workers; nature at night. `\
