@@ -34,7 +34,7 @@ https://nytimes.com/2022/12/28/world/asia/north-korea-drones.html?searchResultPo
 `American and Europeans are using Airbnb to find long-term rentals in Mexico’s capital, pushing housing costs higher and, critics say, forcing out local residents.`\
 https://nytimes.com/2022/12/28/world/americas/mexico-city-airbnb-remote-workers.html?searchResultPosition=9
 
-**Stream These 7 Movies and Shows Before They Leave Netflix in January**\
-`Among the gems leaving for U.S. subscribers next month are two irreverent TV adaptations and the last movie from one of the most successful filmmakers of the 1970s.`\
-https://nytimes.com/2022/12/28/arts/television/netflix-expiring-january.html?searchResultPosition=10
+**U.S. Scrambles to Stop Iran From Providing Drones for Russia**\
+`As the war in Ukraine grinds on, some officials have become convinced that Iran and Russia are building a new alliance of convenience.`\
+https://nytimes.com/2022/12/28/us/politics/iran-drones-russia-ukraine.html?searchResultPosition=10
 
