@@ -1,40 +1,40 @@
+**Hard-Line Positions by Russia and Ukraine Dim Hope for Peace Talks**\
+`Both Moscow and Kyiv say they are ready to talk, but their terms for sitting down at a negotiating table suggest otherwise.`\
+https://nytimes.com/2022/12/28/world/europe/ukraine-russia-peace-talks.html?searchResultPosition=1
+
 **U.S. Announces New Covid Test Requirements for Travelers From China**\
 `The Biden administration said those coming from China, Hong Kong and Macau must show negative coronavirus tests before entering the United States.`\
-https://nytimes.com/2022/12/28/us/politics/covid-requirements-china-us-travel.html?searchResultPosition=1
+https://nytimes.com/2022/12/28/us/politics/covid-requirements-china-us-travel.html?searchResultPosition=2
 
 **A ‘Titanic’ Parody Show That Draws Fans Near, Far, Wherever They Are**\
 `Some of the devotees of ‘Titanique,’ which recently moved to the larger Daryl Roth Theater after months of sold-out shows, have seen it more than a dozen times.`\
-https://nytimes.com/2022/12/28/theater/titanique-titanic-parody-show.html?searchResultPosition=2
+https://nytimes.com/2022/12/28/theater/titanique-titanic-parody-show.html?searchResultPosition=3
 
 **Exxon Mobil sues to try to block Europe windfall tax.**\
 `European subsidiaries of the American oil giant filed a lawsuit with a European Union court seeking to stop the tax, which Exxon Mobil said could cost it billions of dollars.`\
-https://nytimes.com/2022/12/28/world/exxon-mobil-european-union-windfall-tax.html?searchResultPosition=3
+https://nytimes.com/2022/12/28/world/exxon-mobil-european-union-windfall-tax.html?searchResultPosition=4
 
 **What’s on Our Queue? Art Pop and More**\
 `I’m an editor in The Times’s Seoul office. Here are five things I've been watching, reading and listening to.`\
-https://nytimes.com/interactive/2022/12/28/arts/editors-recommendations-suns-signature.html?searchResultPosition=4
+https://nytimes.com/interactive/2022/12/28/arts/editors-recommendations-suns-signature.html?searchResultPosition=5
 
 **You’re Stranded at the Airport. Now What?**\
 `Airlines may provide vouchers or reimbursements, or there may be places to sleep within the airport.`\
-https://nytimes.com/2022/12/28/us/airport-stranded-tips-flight-cancellations.html?searchResultPosition=5
+https://nytimes.com/2022/12/28/us/airport-stranded-tips-flight-cancellations.html?searchResultPosition=6
 
 **A ‘Once in a Generation’ Storm. What’s the Role of Climate Change?**\
 `The deadly freeze that swept the United States was extraordinary, but while scientists know that global warming can intensify extreme weather, the effects on winter storms are tricky to untangle.`\
-https://nytimes.com/2022/12/28/climate/storm-buffalo-climate-change.html?searchResultPosition=6
+https://nytimes.com/2022/12/28/climate/storm-buffalo-climate-change.html?searchResultPosition=7
 
 **Ask Wirecutter: Cheap New Year’s Eve**\
 `What should I do if I don't want to go out?`\
-https://nytimes.com/interactive/2022/12/28/smarter-living/wirecutter/nye-party.html?searchResultPosition=7
+https://nytimes.com/interactive/2022/12/28/smarter-living/wirecutter/nye-party.html?searchResultPosition=8
 
 **The Storm’s Victims: an Expectant Parent, a Doting Daughter, a Refugee**\
 `More than 30 people in western New York are known to have died in the storm, but officials expect the death toll to rise.`\
-https://nytimes.com/2022/12/28/nyregion/winter-storm-deaths-buffalo-new-york.html?searchResultPosition=8
+https://nytimes.com/2022/12/28/nyregion/winter-storm-deaths-buffalo-new-york.html?searchResultPosition=9
 
 **Lawmakers Signal Inquiries Into U.S. Government’s Use of Foreign Spyware**\
 `The moves come as Congress passed a measure last week to try to rein in the proliferation of the hacking tools.`\
-https://nytimes.com/2022/12/28/us/politics/spyware-israel-dea-fbi.html?searchResultPosition=9
-
-**Republicans Step Up Attacks on F.B.I. as It Investigates Trump**\
-`Historically, the F.B.I.’s critics have come from the left. But the bureau’s array of inquiries into former President Donald J. Trump has turned the tables.`\
-https://nytimes.com/2022/12/28/us/politics/fbi-gop-attacks.html?searchResultPosition=10
+https://nytimes.com/2022/12/28/us/politics/spyware-israel-dea-fbi.html?searchResultPosition=10
 
