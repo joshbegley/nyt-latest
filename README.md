@@ -1,6 +1,6 @@
 **This 2022 ‘Best of’ List Includes Swaddling a Chicken**\
 `Really.`\
-https://nytimes.com/2022/12/28/opinion/best-of.html?searchResultPosition=1
+https://nytimes.com/2022/12/28/opinion/best-of-2022-list.html?searchResultPosition=1
 
 **60-21-10: Luka Doncic Enters Uncharted Territory**\
 `The Mavericks rallied to beat the Knicks in overtime as Doncic rewrote the N.B.A. record books.`\
