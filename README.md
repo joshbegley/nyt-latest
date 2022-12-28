@@ -18,8 +18,8 @@ https://nytimes.com/2022/12/28/briefing/your-thursday-briefing-the-us-requires-c
 `Both Moscow and Kyiv say they are ready to talk, but their terms for sitting down at a negotiating table suggest otherwise.`\
 https://nytimes.com/2022/12/28/world/europe/ukraine-russia-peace-talks.html?searchResultPosition=5
 
-**U.S. Announces New Covid Test Requirements for Travelers From China**\
-`The Biden administration said those coming from China, Hong Kong and Macau must show negative coronavirus tests before entering the United States.`\
+**U.S. to Require Negative Covid Tests for Travelers From China**\
+`Amid concerns about a coronavirus surge in Beijing, the Biden administration announced the change in policy for those entering the United States from China, Hong Kong and Macau.`\
 https://nytimes.com/2022/12/28/us/politics/covid-requirements-china-us-travel.html?searchResultPosition=6
 
 **A ‘Titanic’ Parody Show That Draws Fans Near, Far, Wherever They Are**\
