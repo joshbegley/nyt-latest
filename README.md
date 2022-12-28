@@ -1,40 +1,40 @@
-**Wild and Wilde: At Celebrity Cemetery, Nature Takes on Starring Role**\
-`Père-Lachaise in Paris, whose tombs of Oscar Wilde, Jim Morrison, Édith Piaf and many other artistic icons have made it a popular tourist draw, has become a haven for wildlife, too.`\
-https://nytimes.com/2022/12/28/world/europe/paris-pere-lachaise-cemetery-.html?searchResultPosition=1
+**Remote Workers Descend on Mexico City, and Housing Prices Surge**\
+`American and Europeans are using Airbnb to find long-term rentals in Mexico’s capital, pushing housing costs higher and, critics say, forcing out local residents.`\
+https://nytimes.com/2022/12/28/world/americas/mexico-city-airbnb-remote-workers.html?searchResultPosition=1
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/12/28/crosswords/spelling-bee-forum.html?searchResultPosition=2
+**Stream These 7 Movies and Shows Before They Leave Netflix in January**\
+`Among the gems leaving for U.S. subscribers next month are two irreverent TV adaptations and the last movie from one of the most successful filmmakers of the 1970s.`\
+https://nytimes.com/2022/12/28/arts/television/netflix-expiring-january.html?searchResultPosition=2
 
-**The Pocket Chinese Almanac Sees Some Hope for 2023**\
-`A little book bases its forecasts on a geomancer in Hong Kong, and says next year will be “nowhere near as bad” as 2022.`\
-https://nytimes.com/2022/12/28/nyregion/pocket-chinese-almanac-2023.html?searchResultPosition=3
+**U.S. Scrambles to Stop Iran From Providing Drones for Russia**\
+`As the war in Ukraine grinds on, some officials have become convinced that Iran and Russia are building a new alliance of convenience.`\
+https://nytimes.com/2022/12/28/us/politics/iran-drones-russia-ukraine.html?searchResultPosition=3
 
-**It’s the End of an Era of Great European Cinema. Or Is It?**\
-`After the deaths of Jean-Luc Godard and Jean-Marie Straub, the medium still thrums with life.`\
-https://nytimes.com/2022/12/28/opinion/godard-straub-european-cinema.html?searchResultPosition=4
+**As Covid-19 Continues to Spread, So Does Misinformation About It**\
+`Doctors are exasperated by the persistence of false and misleading claims about the virus.`\
+https://nytimes.com/2022/12/28/technology/covid-misinformation-online.html?searchResultPosition=4
 
-**Your Wednesday Briefing**\
-`China’s medical system is buckling under the strain of thousands of Covid infections.`\
-https://nytimes.com/2022/12/28/briefing/china-covid-russia-oil.html?searchResultPosition=5
+**Eight Important Moments in Responsible Fashion This Year**\
+`Kourtney Kardashian Barker, the reach of Shein and big changes for Patagonia — a look at major developments in the fashion industry’s push for sustainability.`\
+https://nytimes.com/2022/12/28/fashion/eight-important-moments-in-responsible-fashion-this-year.html?searchResultPosition=5
 
-**Corrections: Dec. 28, 2022**\
-`Corrections that appeared in print on Wednesday, Dec. 28, 2022.`\
-https://nytimes.com/2022/12/28/pageoneplus/corrections-dec-28-2022.html?searchResultPosition=6
+**What Does It Take to Become the No. 1 Lumberjack?**\
+`For Jason Lentz, being a world-class competitive lumberjack was fated in his family tree.`\
+https://nytimes.com/2022/12/28/magazine/competitive-lumberjack-timbersports-jason-lentz.html?searchResultPosition=6
 
-**Quotation of the Day: Cartoonist Pushes on Amid the ‘Maus’ Chaos**\
-`Quotation of the Day for Wednesday, Dec. 28, 2022.`\
-https://nytimes.com/2022/12/28/pageoneplus/quotation-of-the-day-cartoonist-pushes-on-amid-the-maus-chaos.html?searchResultPosition=7
+**Race for G.O.P. Chair Obscures the Party’s Bigger Problems**\
+`Ronna McDaniel’s quest for a fourth term atop the Republican National Committee has triggered an ugly intraparty fight between the right and the farther right. Figuring out how to win back swing voters is not a top priority.`\
+https://nytimes.com/2022/12/28/us/politics/ronna-mcdaniel-harmeet-dhillon-rnc.html?searchResultPosition=7
 
-**Day 28: How I Lost My Head on New Year’s Eve**\
-`The writer recalls how his parents held painting re-creation parties on New Year’s Eve. Friends would work feverishly for hours to become a live Renaissance painting — a tableau vivant — by midnight. Occasionally, it would demand a beheading.`\
-https://nytimes.com/2022/12/28/style/day-28-how-i-lost-my-head-on-new-years-eve.html?searchResultPosition=8
+**Childhood Vaccination Rates Are Falling. Here’s How States Can Raise Them.**\
+`Covid is not the only reason immunization rates are in decline. Policies in some states are also hurting efforts to keep children safe.`\
+https://nytimes.com/2022/12/28/opinion/vaccination-childhood-disease.html?searchResultPosition=8
 
-**‘Atmospheric River’ Begins to Pound Western U.S. With Rain and Snow**\
-`As the Eastern United States starts to recover from a deadly weekend, the West is dealing with a fast-moving storm system that could bring flooding and mudslides, forecasters say.`\
-https://nytimes.com/2022/12/27/us/atmospheric-river-california-storm-rain.html?searchResultPosition=9
+**The Language We Use to Talk About Domestic Violence Isn’t Enough**\
+`Terms like “crime of passion” can imply that violence is a consequence of love.`\
+https://nytimes.com/2022/12/28/opinion/intimate-partner-violence.html?searchResultPosition=9
 
-**Get a Leg Up**\
-`Josh Goodman makes his New York Times Crossword debut.`\
-https://nytimes.com/2022/12/27/crosswords/daily-puzzle-2022-12-28.html?searchResultPosition=10
+**Use Your Disillusion: A Philosopher Makes the Case**\
+`“In Praise of Failure,” by Costica Bradatan, examines a handful of thinkers who rejected worldly success in favor of struggle.`\
+https://nytimes.com/2022/12/28/books/review/in-praise-of-failure-costica-bradatan.html?searchResultPosition=10
 
