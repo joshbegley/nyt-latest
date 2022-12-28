@@ -2,8 +2,8 @@
 `Set yourself up for a more fulfilled, connected 2023.`\
 https://nytimes.com/2022/12/28/well/mind/signup-happiness-challenge.html?searchResultPosition=1
 
-**Denmark May Eliminate a Holiday as It Beefs Up Its Military**\
-`A proposal by Prime Minister Mette Frederiksen would cancel Great Prayer Day as a public holiday in an effort to bolster the defense budget.`\
+**Denmark May End Great Prayer Day Holiday as It Seeks to Bolster Military**\
+`A proposal by Prime Minister Mette Frederiksen would eliminate one public day off from work in an effort to increase spending on defense.`\
 https://nytimes.com/2022/12/28/world/europe/denmark-great-prayer-day.html?searchResultPosition=2
 
 **Making Intergalactic and Intergenerational Art**\
