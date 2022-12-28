@@ -3,7 +3,7 @@
 https://nytimes.com/2022/12/28/opinion/best-of-2022-list.html?searchResultPosition=1
 
 **60-21-10: Luka Doncic Enters Uncharted Territory**\
-`The Mavericks rallied to beat the Knicks in overtime as Doncic rewrote the N.B.A. record books.`\
+`The Mavericks rallied to beat the Knicks in overtime as Doncic rewrote the N.B.A. record books with a 60-point triple-double.`\
 https://nytimes.com/2022/12/28/sports/basketball/luka-doncic-60-points-mavericks-knicks.html?searchResultPosition=2
 
 **Illuminating Toni Morrison’s Manuscripts at Princeton**\
