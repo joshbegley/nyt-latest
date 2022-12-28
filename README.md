@@ -1,6 +1,6 @@
 **On Long Island, George Santos Faces an Investigation and Public Dismay**\
 `The Nassau County district attorney said on Wednesday her office would examine Mr. Santos, who admitted to lying about his work and educational history during his campaign.`\
-https://nytimes.com/2022/12/28/nyregion/on-long-island-george-santos-faces-an-investigation-and-public-dismay.html?searchResultPosition=1
+https://nytimes.com/2022/12/28/nyregion/george-santos-long-island-investigation.html?searchResultPosition=1
 
 **U.S. Virgin Islands Sues JPMorgan Over Epstein Sex-Trafficking Scheme**\
 `A lawsuit says the bank helped conceal the exploitation of women and girls by the convicted sex offender Jeffrey Epstein.`\
