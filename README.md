@@ -11,7 +11,7 @@ https://nytimes.com/interactive/2022/12/28/smarter-living/wirecutter/nye-party.h
 https://nytimes.com/2022/12/28/nyregion/winter-storm-deaths-buffalo-new-york.html?searchResultPosition=3
 
 **Lawmakers Signal Inquiries Into U.S. Government’s Use of Foreign Spyware**\
-`The moves come as Congress passed a measure last week to try to reign in the proliferation of the hacking tools.`\
+`The moves come as Congress passed a measure last week to try to rein in the proliferation of the hacking tools.`\
 https://nytimes.com/2022/12/28/us/politics/spyware-israel-dea-fbi.html?searchResultPosition=4
 
 **Republicans Step Up Attacks on F.B.I. as It Investigates Trump**\
