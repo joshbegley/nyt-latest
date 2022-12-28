@@ -1,5 +1,5 @@
 **Republicans Step Up Attacks on F.B.I. as It Investigates Trump**\
-`Historically, the F.B.I.’s critics have come from the left. But the bureau’s array of inquiries into former President Donald J. Trump have turned the tables.`\
+`Historically, the F.B.I.’s critics have come from the left. But the bureau’s array of inquiries into former President Donald J. Trump has turned the tables.`\
 https://nytimes.com/2022/12/28/us/politics/fbi-gop-attacks.html?searchResultPosition=1
 
 **Jack Whitten’s ‘Lost Chapter,’ Now at Dia:Beacon**\
