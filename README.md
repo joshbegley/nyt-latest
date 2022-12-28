@@ -22,7 +22,7 @@ https://nytimes.com/2022/12/28/us/politics/covid-title-42-border-migrants-biden.
 `What lies within someone so eager to invent a new self?`\
 https://nytimes.com/2022/12/28/opinion/george-santos-lies.html?searchResultPosition=6
 
-**On Long Island, George Santos Faces an Investigation and Public Dismay**\
+**George Santos Faces an Investigation and Public Dismay**\
 `The Nassau County district attorney said on Wednesday her office would examine Mr. Santos, who admitted to lying about his work and educational history during his campaign.`\
 https://nytimes.com/2022/12/28/nyregion/george-santos-long-island-investigation.html?searchResultPosition=7
 
