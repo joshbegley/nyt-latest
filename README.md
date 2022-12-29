@@ -11,7 +11,7 @@ https://nytimes.com/2022/12/29/world/middleeast/algeria-free-media-radio-m.html?
 https://nytimes.com/2022/12/29/nyregion/princeton-student-death-suicide-misrach-ewunetie.html?searchResultPosition=3
 
 **Tax Credits for Electric Vehicles Are About to Get Confusing**\
-`Foreign-made cars no longer qualify. Tesla and G.M. are eligible again. But officials are still working on the fine print.`\
+`Foreign-made cars no longer qualify. Tesla and G.M. should become eligible again. But officials are still working on the fine print.`\
 https://nytimes.com/2022/12/29/business/electric-vehicles-tax-credit.html?searchResultPosition=4
 
 **10 New Books Coming in January**\
