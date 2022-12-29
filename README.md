@@ -34,7 +34,7 @@ https://nytimes.com/2022/12/28/crosswords/daily-puzzle-2022-12-29.html?searchRes
 `The issues surfaced several days after Elon Musk said he had shut down one of the company’s major data centers.`\
 https://nytimes.com/2022/12/28/technology/twitter-outages.html?searchResultPosition=9
 
-**In Buffalo, Finger-Pointing and Mounting Criticism Over Storm Response**\
+**In Buffalo, Finger-Pointing and Growing Complaints Over Storm Response**\
 `As the death toll grew, the Erie County executive criticized the Buffalo mayor, and the mayor suggested stress led to the outburst.`\
 https://nytimes.com/2022/12/28/nyregion/buffalo-storm-response-criticism.html?searchResultPosition=10
 
