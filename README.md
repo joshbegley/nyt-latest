@@ -18,7 +18,7 @@ https://nytimes.com/2022/12/29/us/politics/amerisourcebergen-opioids-lawsuit.htm
 `A police officer at Nashville International Airport told travelers whose Southwest flights had been canceled that they would be arrested for trespassing if they did not leave a secure area, a video shows.`\
 https://nytimes.com/2022/12/29/us/southwest-traveler-records-airport-police-nashville.html?searchResultPosition=5
 
-**How Bad Is China’s Covid Outbreak? It’s a Scientific Guessing Game**\
+**How Bad Is China’s Covid Outbreak? It’s a Scientific Guessing Game.**\
 `In the absence of credible information from the Chinese government, researchers around the world are looking for any clues to determine the size and severity of the surge.`\
 https://nytimes.com/2022/12/29/health/china-covid-outbreak-predictions.html?searchResultPosition=6
 
