@@ -4,7 +4,7 @@ https://nytimes.com/2022/12/29/crosswords/two-crosswords-that-almost-broke-wordp
 
 **Homes for Sale in Manhattan and the Bronx**\
 `This week’s properties are on the Upper East Side and in Riverdale.`\
-https://nytimes.com/2022/12/29/realestate/homes-for-sale-in-manhattan-and-the-bronx.html?searchResultPosition=2
+https://nytimes.com/2022/12/29/realestate/houses-manhattan-bronx.html?searchResultPosition=2
 
 **A Music Historian Takes a Top Job at the New York Public Library**\
 `Brent Reidy, the new director of Research Libraries, said he hoped to help democratize the 127-year-old library by reaching a younger generation.`\
