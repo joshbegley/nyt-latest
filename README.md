@@ -1,40 +1,40 @@
+**Pelé, the Global Face of Soccer, Dies at 82**\
+`Pelé, who was declared a national treasure in his native Brazil, achieved worldwide celebrity and helped popularize the sport in the United States.`\
+https://nytimes.com/2022/12/29/sports/soccer/pele-dead.html?searchResultPosition=1
+
+**A Look Back at Pelé’s Storied Soccer Career**\
+`Born Edson Arantes do Nascimento, Pelé was a formative 20th-century sports figure who was revered as a national treasure in his native Brazil. He was known for popularizing soccer in the United States, and citing it as a tool for connecting people worldwide.`\
+https://nytimes.com/video/obituaries/100000008700485/pele-soccer-obituary-video.html?searchResultPosition=2
+
+**‘Wildcat’ Review: Rescue and Rewild**\
+`This documentary follows a couple’s efforts to reintroduce an ocelot, headed to a zoo or worse, into its home in the Peruvian Amazon.`\
+https://nytimes.com/2022/12/29/movies/wildcat-review.html?searchResultPosition=3
+
 **Recount Confirms Democrat’s Victory in Arizona’s Attorney General Race**\
 `Kris Mayes defeated Abraham Hamadeh, a Republican election denier, by 280 votes out of 2.5 million ballots cast, a court announced.`\
-https://nytimes.com/2022/12/29/us/politics/arizona-ag-mayes-hamadeh.html?searchResultPosition=1
+https://nytimes.com/2022/12/29/us/politics/arizona-ag-mayes-hamadeh.html?searchResultPosition=4
 
 **9 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
-https://nytimes.com/2022/12/29/books/review/9-new-books-we-recommend-this-week.html?searchResultPosition=2
+https://nytimes.com/2022/12/29/books/review/9-new-books-we-recommend-this-week.html?searchResultPosition=5
 
 **Congressional Inquiry into Alzheimer’s Drug Faults Its Maker and F.D.A.**\
 `The report said the F.D.A.’s approval process for Aduhelm was “rife with irregularities” and criticized Biogen for setting an “unjustifiably high price.”`\
-https://nytimes.com/2022/12/29/health/alzheimers-drug-aduhelm-biogen.html?searchResultPosition=3
+https://nytimes.com/2022/12/29/health/alzheimers-drug-aduhelm-biogen.html?searchResultPosition=6
 
 **Sweet and Savory Feasts**\
 `Chestnut risotto, black-eyed peas and malawax to ring in the New Year.`\
-https://nytimes.com/2022/12/29/dining/sweet-and-savory-feasts.html?searchResultPosition=4
+https://nytimes.com/2022/12/29/dining/sweet-and-savory-feasts.html?searchResultPosition=7
 
 **Met Opera Takes On ‘Fedora,’ Neglected Tale of Murder and Love**\
 `Umberto Giordano’s 1898 opera has struggled to win over modern audiences, but a production opening on Saturday aims to give it fresh appeal.`\
-https://nytimes.com/2022/12/29/arts/music/fedora-met-opera.html?searchResultPosition=5
+https://nytimes.com/2022/12/29/arts/music/fedora-met-opera.html?searchResultPosition=8
 
 **Southwest Stole Christmas. It Still Has Superfans.**\
 `It’s been a disastrous week for the budget airline. But its influencers are prepared to defend their brand.`\
-https://nytimes.com/2022/12/29/business/southwest-christmas-delays-superfans.html?searchResultPosition=6
+https://nytimes.com/2022/12/29/business/southwest-christmas-delays-superfans.html?searchResultPosition=9
 
 **After Half a Century, Fauci Prepares for Life After Government**\
 `The nation’s top infectious disease expert, whose last day as a federal employee is Saturday, plans to write a memoir and wants to encourage people to go into public service.`\
-https://nytimes.com/2022/12/29/us/politics/anthony-fauci-retirement.html?searchResultPosition=7
-
-**‘Annual Animation Show of Shows’ Review: A Mix of Whimsy and Dread**\
-`This festival’s 22nd edition covers themes of crisis, both personal and planetary, with short works from the likes of Gil Alkabetz and Frédéric Back.`\
-https://nytimes.com/2022/12/29/movies/annual-animation-show-of-shows-review.html?searchResultPosition=8
-
-**Personal Stories About Coming Out**\
-`Readers are moved by a column by Charles Blow and offer their own experiences. Also: Santos’s lies; Covid in China; digital payments; ableist language.`\
-https://nytimes.com/2022/12/29/opinion/letters/personal-stories-coming-out.html?searchResultPosition=9
-
-**How to Spare Yourself From Shoulder Pain**\
-`Shoulder pain can make your days more challenging and keep you up at night. Ward it off with a few smart exercise habits.`\
-https://nytimes.com/2022/12/29/well/move/shoulder-injury-prevention.html?searchResultPosition=10
+https://nytimes.com/2022/12/29/us/politics/anthony-fauci-retirement.html?searchResultPosition=10
 
