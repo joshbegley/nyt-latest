@@ -1,6 +1,6 @@
 **Advice From a Political Daughter: ‘Every Woman Needs a Paul Pelosi’**\
 `Speaker Nancy Pelosi’s husband, a multimillionaire venture capitalist recovering from a brutal attack, has long taken care of the couple’s “business of living,’’ including shopping for the speaker’s clothes.`\
-https://nytimes.com/2022/12/29/us/politics/paul-pelosi-nancy-pelosi-in-the-house.html?searchResultPosition=1
+https://nytimes.com/2022/12/29/us/politics/paul-pelosi-nancy-pelosi.html?searchResultPosition=1
 
 **Pelé Was Brazil’s Ambassador to the World**\
 `In leading his national team to success on the field, a soccer star helped his country find itself.`\
