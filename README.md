@@ -7,7 +7,7 @@ https://nytimes.com/2022/12/29/world/middleeast/israel-netanyahu-government-swea
 https://nytimes.com/2022/12/29/world/middleeast/algeria-free-media-radio-m.html?searchResultPosition=2
 
 **Death of Missing Princeton Student Ruled a Suicide**\
-`An autopsy report revealed that Misrach Ewunetie had died of “Bupropion, Escitalopram and Hydroxyzine Toxicity,” according to the local prosecutor’s office.`\
+`Misrach Ewunetie had been found dead in a remote spot behind the university tennis courts in October.`\
 https://nytimes.com/2022/12/29/nyregion/princeton-student-death-suicide-misrach-ewunetie.html?searchResultPosition=3
 
 **Tax Credits for Electric Vehicles Are About to Get Confusing**\
