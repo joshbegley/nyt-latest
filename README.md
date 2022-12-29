@@ -1,40 +1,40 @@
-**Look to the Mobile Phone for Southeast Asia's Potential**\
-`Superapps are creating new habits by increasing demand for digital services.`\
-https://nytimes.com/paidpost/grab/look-to-the-mobile-phone-for-southeast-asias-potential.html?searchResultPosition=1
+**10 Unforgettable Marriage Proposals**\
+`Here are some of our favorite ways that couples who wed in 2022 said, “Will you marry me?”`\
+https://nytimes.com/2022/12/29/style/10-unforgettable-marriage-proposals.html?searchResultPosition=1
 
-**Fire at Cambodian Casino Near Thai Border Kills at Least 10**\
-`The blaze at the Grand Diamond City also injured at least 30 people, officials said. Guests at the 17-story complex leaped from windows to escape the flames.`\
-https://nytimes.com/2022/12/29/world/asia/cambodia-casino-fire.html?searchResultPosition=2
+**Clutter Is Good for You**\
+`Take that, Marie Kondo. `\
+https://nytimes.com/2022/12/29/opinion/sunday/clutter-decluttering-marie-kondo.html?searchResultPosition=2
 
-**A Year of Being the Most**\
-`This year, partygoers were ready to get out, get together and get dressed.`\
-https://nytimes.com/2022/12/29/style/best-dressed-nyc-parties.html?searchResultPosition=3
+**The Unstoppable, Unsinkable, Uninhibited Margo Price**\
+`Country songs are often filled with tragedy and hard times. Price has detailed her own catalog of traumas in a memoir and her music, but also turns her lens outward on a new LP, “Strays.”`\
+https://nytimes.com/2022/12/29/arts/music/margo-price-strays.html?searchResultPosition=3
 
-**How a Windfall of Special Education Funding Benefited Hasidic Schools**\
-`New York has paid companies millions of dollars to help children with disabilities in religious schools. But the services are not always needed or even provided.`\
-https://nytimes.com/2022/12/29/nyregion/hasidic-orthodox-jewish-special-education.html?searchResultPosition=4
+**Rikers Island Is the Perfect Place to Build a Casino**\
+`The millions gambling would generate for the city should be used to fight poverty and crime.`\
+https://nytimes.com/2022/12/29/opinion/rikers-island-casino.html?searchResultPosition=4
 
-**Will Lifting Title 42 Cause a Border Crisis? It’s Already Here.**\
-`Plans to lift Title 42 have prompted dire predictions of chaos on the border. But there is already a migrant surge, because the pandemic policy was never an effective border-control tool.`\
-https://nytimes.com/2022/12/29/us/title-42-border-el-paso.html?searchResultPosition=5
+**Rick Rubin Wants You to Read Sherlock Holmes Before You’re 21**\
+`“The earlier the better,” says the record producer and author of the forthcoming book “The Creative Act: A Way of Being.” “The stories are engaging and they train readers to look deeply into all they see. A great primer for awareness practice.”`\
+https://nytimes.com/2022/12/29/books/review/rick-rubin-by-the-book-interview.html?searchResultPosition=5
 
-**Inside an Underground Network of Los Angeles Museums**\
-`Shrines to skateboarding, bunnies, neon, aviation and citrus trees dot the sprawling region, highlighting its diversity.`\
-https://nytimes.com/2022/12/29/arts/design/los-angeles-diversity-museums.html?searchResultPosition=6
+**Where Did All the Bargain Bourbon Go? Blame the Whiskey Mania.**\
+`Bourbon and rye used to be workaday drinks, but prices are being driven way up by speculators, a scramble for bragging rights and a large shot of hype.`\
+https://nytimes.com/2022/12/29/dining/drinks/bourbon-prices-american-whiskey.html?searchResultPosition=6
 
-**Finding Community in Indonesia’s Disaster Once More**\
-`A reporter and a photographer, covering the recent earthquake in West Java, recount experiences of resilience despite frequent tragedies.`\
-https://nytimes.com/2022/12/29/insider/indonesia-earthquake.html?searchResultPosition=7
+**Maybe the Southwest Debacle Is the Disaster We Needed**\
+`Southwest’s mass cancellation event over the holidays could finally spur Congress to do something.`\
+https://nytimes.com/2022/12/29/opinion/southwest-flight-cancellation-deregulation.html?searchResultPosition=7
 
-**The Tech That Will Invade Our Lives in 2023**\
-`Say hello to new-and-improved A.I. assistants, and move over to brands like Twitter and Tesla.`\
-https://nytimes.com/2022/12/29/technology/personaltech/new-tech-2023-ai-chat-vr.html?searchResultPosition=8
+**The 2022 Good Tech Awards**\
+`Nuclear fusion, generative A.I., bee tracking and more. There’s a lot to like.`\
+https://nytimes.com/2022/12/29/technology/good-tech-awards-2022.html?searchResultPosition=8
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/12/29/crosswords/spelling-bee-forum.html?searchResultPosition=9
+**Do You Want to Buy a House in Canada? Not So Fast.**\
+`Beginning Jan. 1, America’s neighbor to the north will ban most foreigners from buying residential property for two years. Why?`\
+https://nytimes.com/2022/12/29/realestate/canada-bans-foreign-buyers.html?searchResultPosition=9
 
-**Why Are So Many Women Wearing Red Eye Makeup?**\
-`It’s a lot more flattering than it sounds.`\
-https://nytimes.com/2022/12/29/style/why-are-so-many-women-wearing-red-eye-makeup.html?searchResultPosition=10
+**As a Researcher, I Study the Health of Palestinians. It’s Time to Pay Attention.**\
+`The blockade of my hometown, Nablus, this past October devastated the Palestinian community there in ways that are hard to measure.`\
+https://nytimes.com/2022/12/29/opinion/international-world/palestinians-health-west-bank.html?searchResultPosition=10
 
