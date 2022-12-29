@@ -1,5 +1,5 @@
-**In Blizzard-Weary Buffalo, a Top Official Lashes Out**\
-`As the death toll grew and public criticism mounted, the Erie County executive criticized the Buffalo mayor, and the mayor suggested stress led to the outburst.`\
+**In Buffalo, Finger-Pointing and Mounting Criticism Over Storm Response**\
+`As the death toll grew, the Erie County executive criticized the Buffalo mayor, and the mayor suggested stress led to the outburst.`\
 https://nytimes.com/2022/12/28/nyregion/buffalo-storm-response-criticism.html?searchResultPosition=1
 
 **In Much of the South, Subfreezing Weather Crippled Water Systems**\
