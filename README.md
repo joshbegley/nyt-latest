@@ -34,7 +34,7 @@ https://nytimes.com/2022/12/29/style/vivienne-westwood-a-lifetime-of-looks.html?
 `Leave the past behind, walk toward the monster and always notice loneliness.`\
 https://nytimes.com/2022/12/29/well/live/advice-for-2023.html?searchResultPosition=9
 
-**In California, Southwest Meltdown Reveals Cracks in Key Travel Link**\
-`Residents have come to rely on the airline that now dominates the California market and bridges the northern and southern parts of the state.`\
+**Southwest Is California’s ‘Unofficial Airline.’ The Meltdown Has Residents Anxious.**\
+`Once a Texas mainstay, Southwest has become a major airline that many Californians rely upon to travel across the vast state.`\
 https://nytimes.com/2022/12/29/us/southwest-california-commuters.html?searchResultPosition=10
 
