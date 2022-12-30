@@ -8,7 +8,7 @@ https://nytimes.com/video/us/100000008709231/idaho-murders-college-students.html
 
 **Woman Accuses Steven Tyler of Sexually Assaulting Her in the 1970s**\
 `In a lawsuit filed under California’s Child Victims Act, the woman says she met the Aerosmith frontman when she was 16.`\
-https://nytimes.com/2022/12/30/arts/steven-tyler-lawsuit-aerosmith.html?searchResultPosition=3
+https://nytimes.com/2022/12/30/arts/music/steven-tyler-lawsuit-aerosmith.html?searchResultPosition=3
 
 **A Soaring N.B.A. Star Brings His Friends Along for the Ride**\
 `Shai Gilgeous-Alexander, the Oklahoma City Thunder guard, is having a career season as one of the N.B.A.’s top scorers. He’s had a little help from his childhood friends.`\
