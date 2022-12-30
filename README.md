@@ -1,40 +1,40 @@
+**Attack on Oil Workers in Eastern Syria Kills at Least 10**\
+`No group claimed responsibility for the assault on a bus convoy. But Islamic State militants remain active in parts of Syria and have increased attacks in the area, which is government-controlled.`\
+https://nytimes.com/2022/12/30/world/middleeast/syria-attack-isis-oil-workers.html?searchResultPosition=1
+
 **Five Action Movies to Stream Now**\
 `From comedic secret agents to melodramatic comic book heroes, this month’s action picks bend the genre.`\
-https://nytimes.com/2022/12/30/movies/five-action-movies-to-stream-now.html?searchResultPosition=1
+https://nytimes.com/2022/12/30/movies/five-action-movies-to-stream-now.html?searchResultPosition=2
 
 **Creating the Exiled Sea Creature of ‘Avatar: The Way of Water’**\
 `Payakan, the estranged young tulkun, exemplifies the director James Cameron’s obsessive attention to the biomechanics of every entity that inhabits the world of “Avatar.”`\
-https://nytimes.com/2022/12/30/movies/avatar-the-way-of-water-tulkun.html?searchResultPosition=2
+https://nytimes.com/2022/12/30/movies/avatar-the-way-of-water-tulkun.html?searchResultPosition=3
 
 **What to Cook This Weekend**\
 `Thoughts on New Year’s Eve, and recipes for celebrating.`\
-https://nytimes.com/2022/12/30/dining/what-to-cook-this-weekend.html?searchResultPosition=3
+https://nytimes.com/2022/12/30/dining/what-to-cook-this-weekend.html?searchResultPosition=4
 
 **Tributes Pour In as Brazil Readies for Pelé’s Funeral**\
 `Pelé’s body will lie at midfield at the Estádio Urbano Caldeira, his former club’s stadium, for 24 hours.`\
-https://nytimes.com/2022/12/30/sports/soccer/pele-funeral-reaction.html?searchResultPosition=4
+https://nytimes.com/2022/12/30/sports/soccer/pele-funeral-reaction.html?searchResultPosition=5
 
 **When Pelé Took New York by Storm**\
 `In August 1967, it was hard to imagine that Americans might get interested in soccer. Then Pelé played at Yankee Stadium.`\
-https://nytimes.com/2022/12/30/sports/soccer/pele-new-york-santos.html?searchResultPosition=5
+https://nytimes.com/2022/12/30/sports/soccer/pele-new-york-santos.html?searchResultPosition=6
 
 **Do You Know Where These Authors (and Their Characters) Have Lived?**\
 `Can you guess where these five novelists have resided based on their books? Take the quiz!`\
-https://nytimes.com/interactive/2022/12/30/books/review/author-states-quiz.html?searchResultPosition=6
+https://nytimes.com/interactive/2022/12/30/books/review/author-states-quiz.html?searchResultPosition=7
 
 **Ahead of Major Court Case, E.P.A. Revises Clean-Water Protections**\
 `A new rule revives an older set of protections for rivers, marshes and waterways, setting aside changes in the Obama and Trump administrations that led to years of legal wrangling.`\
-https://nytimes.com/2022/12/30/climate/epa-clean-water-protections-wotus.html?searchResultPosition=7
+https://nytimes.com/2022/12/30/climate/epa-clean-water-protections-wotus.html?searchResultPosition=8
 
 **Thick Mall, a Market for ‘Size L and Up,’ Fills the Gap**\
 `A pop-up in Chicago offers wider sizing to a wider audience.`\
-https://nytimes.com/2022/12/30/style/thick-mall-chicago.html?searchResultPosition=8
+https://nytimes.com/2022/12/30/style/thick-mall-chicago.html?searchResultPosition=9
 
 **Trump Tax Returns Released by House Democrats**\
 `The publication of former President Donald J. Trump’s private tax documents comes amid questions about why the I.R.S. failed to fully audit him during his presidency.`\
-https://nytimes.com/2022/12/30/us/politics/trump-tax-returns-released.html?searchResultPosition=9
-
-**Turning Sports Statistics Into Riveting Cinema**\
-`Jon Bois and his collaborators specialize in documentaries about seemingly unremarkable teams. Then he wields charts and graphs to spellbinding effect.`\
-https://nytimes.com/2022/12/30/movies/jon-bois-sb-nation-sports.html?searchResultPosition=10
+https://nytimes.com/2022/12/30/us/politics/trump-tax-returns-released.html?searchResultPosition=10
 
