@@ -7,7 +7,7 @@ https://nytimes.com/interactive/2022/12/30/books/review/author-states-quiz.html?
 https://nytimes.com/2022/12/30/climate/epa-clean-water-protections-wotus.html?searchResultPosition=2
 
 **Thick Mall, a Market for ‘Size L and Up,’ Fills the Gap**\
-`A pop-up in Chicago, offers wider sizing to a wider audience.`\
+`A pop-up in Chicago offers wider sizing to a wider audience.`\
 https://nytimes.com/2022/12/30/style/thick-mall-chicago.html?searchResultPosition=3
 
 **Trump Tax Returns Released by House Democrats**\
