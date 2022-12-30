@@ -34,7 +34,7 @@ https://nytimes.com/2022/12/30/podcasts/the-daily/putin-draft-escape.html?search
 `Russia is isolated by its invasion of Ukraine and needs China more than ever. But China, facing a Covid crisis, is in no position to risk sanctions.`\
 https://nytimes.com/2022/12/30/world/asia/xi-putin-china-russia.html?searchResultPosition=9
 
-**With Only Dozens of Cancellations on Friday, Southwest Steps Closer to Normal**\
-`Barring last-minute problems, the airline was poised to return to its usual schedule, but challenges remain.`\
-https://nytimes.com/2022/12/30/business/southwest-canceled-flights-updates.html?searchResultPosition=10
+**Zelensky signs a controversial law to regulate the news media.**\
+`The measure was passed this month as part of an effort lawmakers say was intended to help meet European Union conditions for membership, but journalists say it goes far beyond what the bloc requires.`\
+https://nytimes.com/2022/12/30/world/zelensky-journalism-law-free-speech.html?searchResultPosition=10
 
