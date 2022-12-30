@@ -10,7 +10,7 @@ https://nytimes.com/2022/12/30/us/politics/biden-pardons-drug-offenses.html?sear
 `Friends and collaborators gathered at the gallerist Nina Johnson’s bungalow this month to toast the artist Rochelle Feinstein.`\
 https://nytimes.com/2022/12/30/t-magazine/nina-johnson-rochelle-feinstein.html?searchResultPosition=3
 
-**Met’s Efforts to Increase Ticket Sales for Operas**\
+**The Met’s Efforts to Increase Ticket Sales for Operas**\
 `Readers praise plans for more contemporary works. Also: Zelensky and American values; protecting the minority; remote work; the Groucho exception. `\
 https://nytimes.com/2022/12/30/opinion/letters/met-operas.html?searchResultPosition=4
 
