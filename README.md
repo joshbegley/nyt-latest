@@ -1,5 +1,5 @@
 **Santos, a Suburban House and $11,000 in Campaign Payments for ‘Rent’**\
-`Representative-elect George Santos, under scrutiny after fabricating much of his résumé, also spent campaign funds on hotels, high-end restaurants and $40,000 worth of air travel.`\
+`Representative-elect George Santos, under scrutiny after fabricating much of his résumé, also spent campaign funds on $40,000 worth of air travel.`\
 https://nytimes.com/2022/12/29/nyregion/george-santos-campaign-finance.html?searchResultPosition=1
 
 **Trial for Myanmar’s Ousted Civilian Leader Nears Its End**\
