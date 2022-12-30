@@ -12,7 +12,7 @@ https://nytimes.com/2022/12/30/arts/television/giancarlo-esposito-kaleidoscope-n
 
 **Unmotivated Cowboys Beat Unmotivated Titans**\
 `Take two teams. Subtract incentive. Result: Thursday night’s game.`\
-https://nytimes.com/2022/12/30/sports/football/cowboys-titans-thursday-night-football.html?searchResultPosition=4
+https://nytimes.com/2022/12/30/sports/football/cowboys-titans-score.html?searchResultPosition=4
 
 **Deal-making Thrived, Then Hit a Road Bump**\
 `Mergers and acquisitions activity plunged in the second half of 2022, but there are signs that it could pick up again next year.`\
