@@ -3,7 +3,7 @@
 https://nytimes.com/2022/12/30/books/review/new-horror-fiction.html?searchResultPosition=1
 
 **Test Your Knowledge of New York City's Climate and Environment**\
-`Test your knowledge of New York City’s Climate and Environment`\
+`Take our quiz to see how much you know about the New York region’s climate footprint and its environmental challenges.`\
 https://nytimes.com/interactive/2022/12/30/nyregion/ny-climate-environment-quiz.html?searchResultPosition=2
 
 **Another Russian Drone Strike Targets Kyiv**\
