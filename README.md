@@ -26,7 +26,7 @@ https://nytimes.com/2022/12/30/world/africa/ivory-coast-troops-jailed-mali.html?
 `The Kol Israel Foundation Holocaust Memorial in Bedford Heights, Ohio, received national recognition as part of the omnibus government funding package signed by President Biden.`\
 https://nytimes.com/2022/12/30/us/kol-israel-holocaust-national-memorial.html?searchResultPosition=7
 
-**It Was a Bad Year for Stocks, and a Worse Year for Tesla**\
+**In a Bad Year for Stocks, Tesla Plunged 65 Percent**\
 `Investors blame Elon Musk and wonder how much more the stock will fall.`\
 https://nytimes.com/2022/12/30/business/tesla-stock-elon-musk.html?searchResultPosition=8
 
