@@ -1,40 +1,40 @@
-**In Japan, A Taste of Living History**\
-`Off-the-beaten-track Oita offers lessons in living with nature`\
-https://nytimes.com/paidpost/int-oita-tourism-board_japan-reopen-campaign/int-mondly-by-pearson-q1-2023-campaign/in-japan-a-taste-of-living-history.html?searchResultPosition=1
+**These Young Musicians Made an Album. Now It’s Nominated for a Grammy.**\
+`The debut album of the New York Youth Symphony, featuring some players who were in middle school, is up against recordings by some of the world’s top orchestras.`\
+https://nytimes.com/2022/12/30/arts/music/youth-symphony-grammy.html?searchResultPosition=1
 
-**How to Make a Superapp for Southeast Asia**\
-`Discover how the superapp Grab is shaping everyday life in one of the world’s fastest-growing economic regions.`\
-https://nytimes.com/paidpost/grab/how-to-make-a-superapp-for-southeast-asia.html?searchResultPosition=2
+**Once an Open Sewer, New York Harbor Now Teems With Life. Thank the Clean Water Act.**\
+`Bald eagles are back. So are humpback whales. And oysters. And more. Life has returned.`\
+https://nytimes.com/2022/12/30/opinion/new-york-harbor-clean-water-act.html?searchResultPosition=2
 
-**A Town-by-Town Battle to Sell Americans on Renewable Energy**\
-`In the fight against climate change, national goals are facing local resistance. One county scheduled 19 nights of meetings to debate one wind farm.`\
-https://nytimes.com/2022/12/30/climate/wind-farm-renewable-energy-fight.html?searchResultPosition=3
+**They Were Promised an End to Homelessness. Now They Face Eviction.**\
+`A Harlem building beckoned a group of families desperate for a home, only to serve them another cruel twist.`\
+https://nytimes.com/2022/12/30/nyregion/homeless-harlem-vouchers.html?searchResultPosition=3
 
-**Sedona Prince Has a Good Feeling About the Next Era**\
-`For many, the basketball player’s TikTok was a before-and-after marker of how society talks about modern women’s sports. For Prince, there’s much to celebrate, more to be done and a W.N.B.A. roster spot to secure.`\
-https://nytimes.com/2022/12/30/sports/ncaabasketball/sedona-prince-womens-basketball.html?searchResultPosition=4
+**In the Pacific, Outcry Over Japan’s Plan to Release Fukushima Wastewater**\
+`The proposal has angered many of Japan’s neighbors, particularly those with the most direct experience of unexpected exposure to dangerous levels of radiation.`\
+https://nytimes.com/2022/12/30/world/asia/japan-fukushima-wastewater-pacific-radiation.html?searchResultPosition=4
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/12/30/crosswords/spelling-bee-forum.html?searchResultPosition=5
+**The Complex History Behind a Vienna Philharmonic Tradition**\
+`A global event today, the orchestra’s annual New Year’s Concert took shape during dark days in Austrian history.`\
+https://nytimes.com/2022/12/30/arts/music/vienna-philharmonic-new-years-concert.html?searchResultPosition=5
 
-**Netanyahu’s New Ministers Have Very Strict Ideas About Who Is a Jew**\
-`The new far-right-dominated government of Israel is ushering in an era that may fracture the Jewish people. `\
-https://nytimes.com/2022/12/30/opinion/netanyahus-new-ministers-have-very-strict-ideas-about-who-is-a-jew.html?searchResultPosition=6
+**Happy Low-Key New Year!**\
+`Some people are giving themselves permission to replace grand ambitions with more realistic expectations for 2023.`\
+https://nytimes.com/2022/12/30/style/new-years-resolutions-expectations.html?searchResultPosition=6
 
-**The Meter Eats First**\
-`Seven million homes in Britain ticking down to silence, dark and cold. `\
-https://nytimes.com/2022/12/30/opinion/prepayment-meters-uk.html?searchResultPosition=7
+**She’s Building a Little Jewish Magazine On Big Ideas**\
+`After a rebellious youth and years spent on an unpublished novel, Arielle Angel, the editor of Jewish Currents, has carved out a role for herself as someone who questions entrenched ideas.`\
+https://nytimes.com/2022/12/30/style/arielle-angel-jewish-currents-magazine.html?searchResultPosition=7
 
-**Europeans, How Is the Energy Crisis Affecting You?**\
-`Times Opinion wants to hear from Europeans: How are you coping with increasing energy costs? `\
-https://nytimes.com/2022/12/30/opinion/europeans-energy-crisis-russia.html?searchResultPosition=8
+**A Cop Called Coco, an Actor Named Mani, a Quebecer Exploring Quebec**\
+`When Mani Soleymanlou began acting, he was offered roles as stereotypical outsiders. That he now stars as a cop named Coco is indicative of broader shifts in a changing Quebec.`\
+https://nytimes.com/2022/12/30/world/canada/mani-suleymanlou-quebec.html?searchResultPosition=8
 
-**Welcome to Little Kiwi, N.Y.C.**\
-`Young New Zealanders are once again venturing back out into the world.`\
-https://nytimes.com/2022/12/30/world/australia/new-zealanders-traveling-new-york.html?searchResultPosition=9
+**The Year the Long Stock Market Rally Ended**\
+`How fast inflation and high interest rates upended markets across the globe.`\
+https://nytimes.com/2022/12/30/business/stocks-year-in-review.html?searchResultPosition=9
 
-**When the Times Square Ball Drop Began at Midnight**\
-`Nowadays, the ball drop is a countdown, ending at the stroke of midnight. But it used to work more like a starter’s pistol.`\
-https://nytimes.com/2022/12/30/nyregion/times-square-ball-drop-midnight.html?searchResultPosition=10
+**An Architect of Biden’s Antitrust Push Is Leaving the White House**\
+`Tim Wu has been a leading proponent of a more aggressive approach to reining in the power of big business.`\
+https://nytimes.com/2022/12/30/technology/tim-wu-leaves-white-house.html?searchResultPosition=10
 
