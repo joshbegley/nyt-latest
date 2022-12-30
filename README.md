@@ -1,5 +1,5 @@
-**Deal-making Thrived in 2022, Then Hit a Road Bump**\
-`Mergers and acquisitions activity plunged in the second half of the year, but there are signs that it could pick up again in 2023.`\
+**Deal-making Thrived, Then Hit a Road Bump**\
+`Mergers and acquisitions activity plunged in the second half of 2022, but there are signs that it could pick up again next year.`\
 https://nytimes.com/2022/12/30/business/dealbook/deal-making-in-2022.html?searchResultPosition=1
 
 **A Housing Market Hangover**\
