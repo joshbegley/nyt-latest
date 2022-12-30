@@ -23,7 +23,7 @@ https://nytimes.com/2022/12/30/nyregion/times-square-ball-drop-midnight.html?sea
 https://nytimes.com/2022/12/30/books/review/candace-fleming-eric-rohmann-polar-bear-caron-levis-charles-santoso-feathers-together.html?searchResultPosition=6
 
 **Where You Start and Where You Finish**\
-`A once purely decorative form is now full of wit, surprise, even feeling.`\
+`A once purely decorative form, picture-book endpapers are now full of wit, surprise, even feeling.`\
 https://nytimes.com/2022/12/30/books/review/picture-book-endpapers.html?searchResultPosition=7
 
 **Your Friday Briefing**\
