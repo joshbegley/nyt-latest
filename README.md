@@ -1,40 +1,40 @@
-**Benedict XVI, First Modern Pope to Resign, Dies at 95**\
-`He defined a conservative course for the Roman Catholic Church, but his papacy was noted for his struggle with the clergy sexual abuse scandal and for his unexpected resignation.`\
-https://nytimes.com/2022/12/31/world/europe/benedict-xvi-dead.html?searchResultPosition=1
+**At 100, the Rose Bowl Has Seen Many Sunsets**\
+`The stadium lacks the modern amenities of many newer arenas. But the Southern California backdrop has made the Rose Bowl a fitting place for big games and other shows.`\
+https://nytimes.com/2022/12/31/sports/ncaafootball/college-football-rose-bowl-photos.html?searchResultPosition=1
 
-**Benedict: Pope for a Church in Crisis**\
-`Ian Fisher, The Times's Rome bureau chief from 2004 to 2008, covered Pope Benedict XVI and remembers him as a brilliant theologian who led the Catholic Church through rough times.`\
-https://nytimes.com/video/world/europe/100000004009495/benedict-pope-for-a-church-in-crisis-obituary.html?searchResultPosition=2
+**Victor Hugo Statue Takes a Prominent Place in France’s Debate on Race**\
+`After a restoration darkened the hue of a statue at the birthplace of the French writer, complaints ensued — then vandalism.`\
+https://nytimes.com/2022/12/31/world/europe/victor-hugo-france.html?searchResultPosition=2
 
-**The ‘Red Wave’ Washout: How Skewed Polls Fed a False Election Narrative**\
-`The errant surveys spooked some candidates into spending more money than necessary, and diverted help from others who otherwise had a fighting chance of winning.`\
-https://nytimes.com/2022/12/31/us/politics/polling-election-2022-red-wave.html?searchResultPosition=3
+**Their Mothers Were Teenagers. They Didn’t Want That for Themselves.**\
+`Teen pregnancies have plummeted, as has child poverty. The result is a profound change in the forces that bring opportunity between generations.`\
+https://nytimes.com/2022/12/31/us/teen-pregnancies-child-poverty.html?searchResultPosition=3
 
-**What TikTok Told Us About the Economy in 2022**\
-`From Barbiecore to revenge travel, social media trends gave us a clear picture of the forces reshaping the economy.`\
-https://nytimes.com/2022/12/31/business/economy/tiktok-economic-trends.html?searchResultPosition=4
+**Clergymen or Spies? Churches Become Tools of War in Ukraine**\
+`Ukrainian officials are cracking down on a branch of the Russian Orthodox Church that they describe as a subversive force doing the Kremlin’s bidding.`\
+https://nytimes.com/2022/12/31/world/europe/orthodox-church-ukraine-russia.html?searchResultPosition=4
 
-**Mikaela Shiffrin Has Moved On From Beijing and Moved Closer to History**\
-`Only two victories behind Lindsey Vonn’s women’s record for career World Cup victories, Mikaela Shiffrin is also in reach of the all-time record of 86.`\
-https://nytimes.com/2022/12/31/sports/skiing/shiffrin-vonn-world-cup.html?searchResultPosition=5
+**Her Escape From Kabul Was Supposed to Be the Hardest Part**\
+`About 16 months into her new life in Australia, Fati, who was the Afghanistan women’s soccer team’s goalkeeper, can still be overwhelmed by “all the things I’ve lost.” It’s time to jump-start life, she said.`\
+https://nytimes.com/2022/12/31/sports/soccer/afghan-goalkeeper-escape-australia.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2022/12/31/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**For Palestinians, a Rush to Claim ‘Martyrs’ Killed by Israel**\
+`In one of the deadliest years for Palestinians, a tradition of political and armed groups claiming Palestinian “martyrs” clouds the distinction between civilian and fighter.`\
+https://nytimes.com/2022/12/31/world/middleeast/palestinian-martyrs-israel.html?searchResultPosition=6
 
-**All Glory to T.C.U.’s Meme Mascot**\
-`Officially, the Texas Christian University mascot is the Horned Frog. But the team’s real hero is the Hypnotoad, a “Futurama” gag of mesmerizing power.`\
-https://nytimes.com/2022/12/31/sports/ncaafootball/hypnotoad-tcu-michigan.html?searchResultPosition=7
+**Recession? What Recession? Pass Me Some Grapes.**\
+`The recently opened Bacchanalia serves a feast inspired by ancient Rome in an unabashedly luxurious setting that Nero would have loved.`\
+https://nytimes.com/2022/12/31/business/recession-what-recession-pass-me-some-grapes.html?searchResultPosition=7
 
-**Day 31: How The Times Started a Beloved Tradition, in 10 … 9 … 8 …**\
-`A brief history of the Times Square ball drop, a New Year’s rite with journalistic beginnings and a dynamite origin.`\
-https://nytimes.com/2022/12/31/style/times-square-ball-drop-history.html?searchResultPosition=8
+**Tonight D.J.s Will Party Like It’s 2019**\
+`For the first time in years, New Year’s Eve parties are back in full swing, despite a possible equipment shortage and a tripledemic.`\
+https://nytimes.com/2022/12/31/nyregion/new-years-eve-nyc.html?searchResultPosition=8
 
-**The Best of Barbara Walters**\
-`Walters was a broadcasting trailblazer who helped develop many modern TV templates. Here are some of the most memorable moments from her influential career.`\
-https://nytimes.com/2022/12/30/arts/television/the-best-of-barbara-walters.html?searchResultPosition=9
+**A New England Town Invaded by Coyotes Calls in the Sharpshooters**\
+`Compact, densely populated and surrounded by water, Nahant (and its small dogs) are on edge. It’s the first Massachusetts municipality to ask the government to kill problem animals.`\
+https://nytimes.com/2022/12/31/us/coyotes-sharpshooters-nahant-massachussets.html?searchResultPosition=9
 
-**Barbara Walters Is Remembered as a Trailblazer, and a Friend**\
-`Her fellow journalists, celebrity interview subjects and others offered tribute to the renowned newswoman.`\
-https://nytimes.com/2022/12/30/business/media/barbara-walters-reaction-tributes.html?searchResultPosition=10
+**Insightful Entertainment For Your Party Guests**\
+`Theresa Fernand, an energy reader and psychic from Boca Raton, Fla., talks about why she is hired for weddings, bridal showers and bachelorette parties.`\
+https://nytimes.com/2022/12/31/fashion/weddings/tarot-reading-psychic-wedding-guests.html?searchResultPosition=10
 
