@@ -22,8 +22,8 @@ https://nytimes.com/2022/12/31/us/california-weather-rain-flooding-landslides.ht
 `She infused her work with political and feminist perspectives and insisted that art had to be understood within its social context.`\
 https://nytimes.com/2022/12/31/obituaries/jean-franco-dead.html?searchResultPosition=6
 
-**Katie Couric: What Barbara Walters Made Possible for Women**\
-`She never took no for an answer, so women who came after her could hear “yes.”`\
+**Katie Couric: Barbara Walters Didn’t Take ‘No’ for an Answer**\
+`Because of her, generations of working women in journalism heard “yes” a lot more often.`\
 https://nytimes.com/2022/12/31/opinion/barbara-walters-dead-katie-couric.html?searchResultPosition=7
 
 **Breaking Out of the #MeToo Movie Formula**\
