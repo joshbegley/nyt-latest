@@ -3,7 +3,7 @@
 https://nytimes.com/2022/12/30/crosswords/daily-puzzle-2022-12-31.html?searchResultPosition=1
 
 **Barbara Walters, a First Among TV Newswomen, Is Dead at 93**\
-`She broke barriers for women as a co-host of the “Today” show and a network evening news anchor while gaining her own kind of celebrity for interviewing the famous.`\
+`She broke barriers for women as a co-host of the “Today” show, a network evening news anchor and a creator of “The View,” all while gaining her own kind of celebrity.`\
 https://nytimes.com/2022/12/30/business/media/barbara-walters-dead.html?searchResultPosition=2
 
 **Mark Meadows Won’t Face Voting Fraud Charges in North Carolina**\
