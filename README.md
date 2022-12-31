@@ -22,7 +22,7 @@ https://nytimes.com/2022/12/31/arts/music/walter-wolfman-washington-dead.html?se
 `Andrea Stevens, a Times editor, died this month at 83. She was a loved and feared presence in the theater world. In an essay, Ben Brantley explores her legacy.`\
 https://nytimes.com/2022/12/31/insider/andrea-stevens.html?searchResultPosition=6
 
-**Benedict was criticized for his leadership of the church’s sex abuse scandal.**\
+**Benedict was criticized for his handling of the church’s sex abuse scandal.**\
 `His efforts to rid the church of what he called “filth” went further than those of John Paul II, but he was reluctant to hold bishops accountable.`\
 https://nytimes.com/2022/12/31/world/europe/pope-emeritus-benedict-xvi-sex-abuse-scandal.html?searchResultPosition=7
 
