@@ -1,5 +1,5 @@
 **Extreme Weather in California Causes Flooding and Landslides**\
-`Heavy rain, snow and wind were battering parts of California on Saturday less than a week after an “atmospheric river” pounded the West Coast.`\
+`Heavy rain, snow and wind were battering parts of California on Saturday less than a week after another “atmospheric river” pounded the West Coast.`\
 https://nytimes.com/2022/12/31/us/california-weather-rain-flooding-landslides.html?searchResultPosition=1
 
 **Jean Franco, 98, Pioneering Scholar of Latin American Literature, Dies**\
