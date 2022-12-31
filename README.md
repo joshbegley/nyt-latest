@@ -6,7 +6,7 @@ https://nytimes.com/2022/12/31/arts/music/walter-wolfman-washington-dead.html?se
 `Andrea Stevens, a Times editor, died this month at 83. She was a loved and feared presence in the theater world. In an essay, Ben Brantley explores her legacy.`\
 https://nytimes.com/2022/12/31/insider/andrea-stevens.html?searchResultPosition=2
 
-**With Leadership and Speaking Skills, Zelensky Shapes Narrative of the War**\
+**With Speeches to Ukraine, and the World, Zelensky Shapes Narrative of the War**\
 `In nightly addresses to his people and passionate speeches to foreign leaders, the Ukrainian president has delivered a story line to rally his country, and its allies, to Ukraine’s cause.`\
 https://nytimes.com/2022/12/31/world/europe/zelensky-ukraine-war.html?searchResultPosition=3
 
