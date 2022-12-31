@@ -1,5 +1,5 @@
 **Remembering a Revered, No-Nonsense Editor of Culture**\
-`Andrea Stevens, a Times editor, died this month at 83. She was a loved and feared presence in the theater world. In an essay, Ben Brantley, explores her legacy.`\
+`Andrea Stevens, a Times editor, died this month at 83. She was a loved and feared presence in the theater world. In an essay, Ben Brantley explores her legacy.`\
 https://nytimes.com/2022/12/31/insider/andrea-stevens.html?searchResultPosition=1
 
 **With Leadership and Speaking Skills, Zelensky Shapes Narrative of the War**\
