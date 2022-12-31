@@ -10,8 +10,8 @@ https://nytimes.com/2022/12/31/style/times-square-ball-drop-history.html?searchR
 `Walters was a broadcasting trailblazer who helped develop many modern TV templates. Here are some of the most memorable moments from her influential career.`\
 https://nytimes.com/2022/12/30/arts/television/the-best-of-barbara-walters.html?searchResultPosition=3
 
-**Barbara Walters Is Remembered as a Trailblazer in Journalism**\
-`Print reporters, broadcasters, celebrities and others paid tribute to the legendary news anchor.`\
+**Barbara Walters Is Remembered as a Trailblazer, and a Friend**\
+`Her fellow journalists, celebrity interview subjects and others offered tribute to the renowned newswoman.`\
 https://nytimes.com/2022/12/30/business/media/barbara-walters-reaction-tributes.html?searchResultPosition=4
 
 **Arizona Doctors Cannot Be Prosecuted Under 1864 Abortion Ban, Court Says**\
