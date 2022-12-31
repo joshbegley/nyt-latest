@@ -1,40 +1,40 @@
+**Jean Franco, 98, Pioneering Scholar of Latin American Literature, Dies**\
+`She infused her work with political and feminist perspectives and insisted that art had to be understood within its social context.`\
+https://nytimes.com/2022/12/31/obituaries/jean-franco-dead.html?searchResultPosition=1
+
 **Katie Couric: What Barbara Walters Made Possible for Women**\
 `She never took no for an answer, so women who came after her could hear “yes.”`\
-https://nytimes.com/2022/12/31/opinion/barbara-walters-dead-katie-couric.html?searchResultPosition=1
+https://nytimes.com/2022/12/31/opinion/barbara-walters-dead-katie-couric.html?searchResultPosition=2
 
 **Breaking Out of the #MeToo Movie Formula**\
 `How “Women Talking” and “Tár” make the discourse around the movement feel thrillingly unfamiliar.`\
-https://nytimes.com/2022/12/31/movies/tar-women-talking-metoo.html?searchResultPosition=2
+https://nytimes.com/2022/12/31/movies/tar-women-talking-metoo.html?searchResultPosition=3
 
 **Without Updated Tools, N.F.L. Is Still Finding Concussions Too Late**\
 `Despite nearly 30 medical professionals on hand for every N.F.L. game, more subtle symptoms of concussions can be missed, and the league still relies heavily on players to self-report them.`\
-https://nytimes.com/2022/12/31/sports/football/tua-nfl-concussions.html?searchResultPosition=3
+https://nytimes.com/2022/12/31/sports/football/tua-nfl-concussions.html?searchResultPosition=4
 
 **Russia’s War Could Make It India’s World**\
 `The invasion of Ukraine, compounding the effects of the pandemic, has contributed to the ascent of a giant that defies easy alignment. It could be the decisive force in a changing global system.`\
-https://nytimes.com/2022/12/31/world/asia/india-ukraine-russia.html?searchResultPosition=4
+https://nytimes.com/2022/12/31/world/asia/india-ukraine-russia.html?searchResultPosition=5
 
 **The Invention of Elise Stefanik**\
 `To rise through the Trump-era G.O.P., a young congresswoman gave up her friends, her mentors and her ideals. Will it be enough?`\
-https://nytimes.com/2022/12/31/us/politics/elise-stefanik.html?searchResultPosition=5
+https://nytimes.com/2022/12/31/us/politics/elise-stefanik.html?searchResultPosition=6
 
 **Russian Strikes Rattle Kyiv on New Year’s Eve**\
 `Russian attacks partly destroyed a hotel, damaged houses and left behind a crater on a residential street in Ukraine’s capital.`\
-https://nytimes.com/video/world/europe/100000008709694/kyiv-ukraine-strike-new-year.html?searchResultPosition=6
+https://nytimes.com/video/world/europe/100000008709694/kyiv-ukraine-strike-new-year.html?searchResultPosition=7
 
 **71 of Our Favorite Facts of 2022**\
 `Each day, Inside The Times Times Insider editors scour the newspaper for the most interesting facts to appear in articles. Here are facts that surprised, enlightened or entertained us this year.`\
-https://nytimes.com/2022/12/31/insider/71-of-our-favorite-facts-of-2022.html?searchResultPosition=7
+https://nytimes.com/2022/12/31/insider/71-of-our-favorite-facts-of-2022.html?searchResultPosition=8
 
 **How Barbara Walters Went From ‘Today Girl’ to Pioneering Media Star**\
 `The first woman to co-anchor the evening news, she endured the scorn of her male counterparts.`\
-https://nytimes.com/2022/12/31/business/media/barbara-walters-appraisal.html?searchResultPosition=8
+https://nytimes.com/2022/12/31/business/media/barbara-walters-appraisal.html?searchResultPosition=9
 
 **Biden Set an Ambitious Goal for Nature. It’s Time He Went After It.**\
 `The president can do more to better protect America’s natural world.`\
-https://nytimes.com/2022/12/31/opinion/biodiversity-summit.html?searchResultPosition=9
-
-**For Lula and the World, the Tough Job of Saving the Amazon Begins**\
-`Deforestation is one of many problems Brazil’s new government will need to address.`\
-https://nytimes.com/2022/12/31/opinion/brazil-elections-amazon-rainforest.html?searchResultPosition=10
+https://nytimes.com/2022/12/31/opinion/biodiversity-summit.html?searchResultPosition=10
 
