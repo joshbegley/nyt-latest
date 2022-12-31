@@ -30,11 +30,11 @@ https://nytimes.com/2022/12/31/obituaries/jean-franco-dead.html?searchResultPosi
 `Because of her, generations of working women in journalism heard “yes” a lot more often.`\
 https://nytimes.com/2022/12/31/opinion/barbara-walters-dead-katie-couric.html?searchResultPosition=8
 
+**Biden and Pelosi pay homage to Pope Benedict XVI.**\
+`President Biden and House Speaker Nancy Pelosi, both Catholic, issued statements mourning the passing of the retired pope.`\
+https://nytimes.com/2022/12/31/world/europe/biden-pelosi-pope-benedict.html?searchResultPosition=9
+
 **Breaking Out of the #MeToo Movie Formula**\
 `How “Women Talking” and “Tár” make the discourse around the movement feel thrillingly unfamiliar.`\
-https://nytimes.com/2022/12/31/movies/tar-women-talking-metoo.html?searchResultPosition=9
-
-**Without Updated Tools, N.F.L. Is Still Finding Concussions Too Late**\
-`Despite nearly 30 medical professionals on hand for every N.F.L. game, more subtle symptoms of concussions can be missed, and the league still relies heavily on players to self-report them.`\
-https://nytimes.com/2022/12/31/sports/football/tua-nfl-concussions.html?searchResultPosition=10
+https://nytimes.com/2022/12/31/movies/tar-women-talking-metoo.html?searchResultPosition=10
 
