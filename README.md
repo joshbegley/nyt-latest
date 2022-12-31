@@ -18,23 +18,23 @@ https://nytimes.com/2022/12/31/arts/music/walter-wolfman-washington-dead.html?se
 `Andrea Stevens, a Times editor, died this month at 83. She was a loved and feared presence in the theater world. In an essay, Ben Brantley explores her legacy.`\
 https://nytimes.com/2022/12/31/insider/andrea-stevens.html?searchResultPosition=5
 
+**Benedict was criticized for his leadership of the church’s sex abuse scandal.**\
+`His efforts to rid the church of what he called “filth” went further than those of John Paul II, but he was reluctant to hold bishops accountable.`\
+https://nytimes.com/2022/12/31/world/europe/pope-emeritus-benedict-xvi-sex-abuse-scandal.html?searchResultPosition=6
+
 **With Speeches to Ukraine, and the World, Zelensky Shapes Narrative of the War**\
 `In nightly addresses to his people and passionate speeches to foreign leaders, the Ukrainian president has delivered a story line to rally his country, and its allies, to Ukraine’s cause.`\
-https://nytimes.com/2022/12/31/world/europe/zelensky-ukraine-war.html?searchResultPosition=6
+https://nytimes.com/2022/12/31/world/europe/zelensky-ukraine-war.html?searchResultPosition=7
 
 **The Choice of a Medically Assisted Death**\
 `Readers discuss a column by Ross Douthat criticizing Canada’s medical assistance in dying law.`\
-https://nytimes.com/2022/12/31/opinion/letters/euthanasia-canada-death.html?searchResultPosition=7
+https://nytimes.com/2022/12/31/opinion/letters/euthanasia-canada-death.html?searchResultPosition=8
 
-**The Dark Possibilities of A.I. and Art**\
+**The Alt-Right Manipulated My Comic. Then A.I. Claimed It.**\
 `My drawings are a reflection of my soul. What happens when artificial intelligence — and anyone with access to it — can replicate them?`\
-https://nytimes.com/2022/12/31/opinion/sarah-andersen-how-algorithim-took-my-work.html?searchResultPosition=8
+https://nytimes.com/2022/12/31/opinion/sarah-andersen-how-algorithim-took-my-work.html?searchResultPosition=9
 
 **Cheer Up! The World Is Better Off Than You Think.**\
 `The year 2022 was not great. But even in the midst of overlapping calamities, progress is being made.`\
-https://nytimes.com/2022/12/31/opinion/2022-good-news.html?searchResultPosition=9
-
-**Anthony Fauci Quietly Shocked Us All**\
-`An ACT UP veteran remembers the doctor’s AIDS legacy.`\
-https://nytimes.com/2022/12/31/opinion/anthony-fauci-hiv-aids-act-up.html?searchResultPosition=10
+https://nytimes.com/2022/12/31/opinion/2022-good-news.html?searchResultPosition=10
 
