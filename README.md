@@ -6,9 +6,9 @@ https://nytimes.com/2022/12/31/insider/andrea-stevens.html?searchResultPosition=
 `In nightly addresses to his people and passionate speeches to foreign leaders, the Ukrainian president has delivered a story line to rally his country, and its allies, to Ukraine’s cause.`\
 https://nytimes.com/2022/12/31/world/europe/zelensky-ukraine-war.html?searchResultPosition=2
 
-**Choosing to End One’s Life**\
+**The Choice of a Medically Assisted Death**\
 `Readers discuss a column by Ross Douthat criticizing Canada’s medical assistance in dying law.`\
-https://nytimes.com/2022/12/31/opinion/letters/choosing-to-end-ones-life.html?searchResultPosition=3
+https://nytimes.com/2022/12/31/opinion/letters/euthanasia-canada-death.html?searchResultPosition=3
 
 **The Dark Possibilities of A.I. and Art**\
 `My drawings are a reflection of my soul. What happens when artificial intelligence — and anyone with access to it — can replicate them?`\
