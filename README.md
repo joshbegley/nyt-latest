@@ -2,8 +2,8 @@
 `Hours before Russian troops began withdrawing from the suburban town, a Russian soldier left a trail of blood and devastated lives in a last paroxysm of violence.`\
 https://nytimes.com/2022/12/31/world/europe/bucha-ukraine-killings.html?searchResultPosition=1
 
-**T.C.U. Topples Michigan in Wild Playoff Semifinal**\
-`Texas Christian returned two interceptions for touchdowns, just part of a zany back-and-forth upset of Michigan, 51-45, to put the Horned Frogs in the national championship game.`\
+**T.C.U. Upends Michigan in Wild Playoff Semifinal**\
+`Texas Christian returned two interceptions for touchdowns, just part of a zany back-and-forth upset of Michigan, 51-45, which put the Horned Frogs in the national championship game.`\
 https://nytimes.com/2022/12/31/sports/ncaafootball/fiesta-bowl-michigan-tcu.html?searchResultPosition=2
 
 **When Does Life Begin?**\
