@@ -10,7 +10,7 @@ https://nytimes.com/2023/01/01/pageoneplus/quotation-of-the-day-today-girl-to-tv
 `Pope Benedict’s legacy will be felt across decades or even centuries. `\
 https://nytimes.com/2023/01/01/opinion/pope-benedict-xvi-catholic-church.html?searchResultPosition=3
 
-**Georgia Beats Ohio State in Semifinal on Last-Minute Touchdown**\
+**Georgia Downs Ohio State in Semifinal on Last-Minute Touchdown**\
 `Georgia scored in the final minute of the game, and Ohio State missed a field goal in the first minute of 2023.`\
 https://nytimes.com/2023/01/01/sports/ncaafootball/peach-bowl-georgia-ohio-state.html?searchResultPosition=4
 
