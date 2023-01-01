@@ -1,5 +1,5 @@
 **Jeremiah Green, Drummer for Modest Mouse, Dies at 45**\
-`Mr. Green was one of the founding members of Modest Mouse, an indie rock band founded in Washington in the 1990s that was known for its textured and wide-ranging sound.`\
+`Mr. Green was one of the founding members of Modest Mouse, an indie rock band founded in Washington State in the 1990s that was known for its textured and wide-ranging sound.`\
 https://nytimes.com/2023/01/01/arts/music/jeremiah-green-dead.html?searchResultPosition=1
 
 **Edith Pearlman, Writer Who Won Acclaim Late in Life, Dies at 86**\
