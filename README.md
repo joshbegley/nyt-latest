@@ -6,7 +6,7 @@ https://nytimes.com/2023/01/01/opinion/putin-russia-ukraine-war-strategy.html?se
 `Short people don’t just save resources; as resources become scarcer owing to overpopulation and global warming, they may also be best suited for long-term survival.`\
 https://nytimes.com/2023/01/01/opinion/height-short.html?searchResultPosition=2
 
-**Forget the Beach Bod. Try These Soul Resolutions Instead**\
+**Forget the Beach Bod. Try These Soul Resolutions Instead.**\
 `New Year’s habits that are good for the soul. `\
 https://nytimes.com/2023/01/01/opinion/soul-resolutions-new-year.html?searchResultPosition=3
 
