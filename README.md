@@ -1,6 +1,6 @@
 **As Lula Becomes Brazil’s President, Bolsonaro Flees to Florida**\
 `Brazil inaugurates its new president, Luiz Inácio Lula da Silva, on Sunday. Facing investigations, former President Jair Bolsonaro has taken refuge in Orlando.`\
-https://nytimes.com/2023/01/01/world/americas/as-lula-becomes-brazils-president-bolsonaro-flees-to-florida.html?searchResultPosition=1
+https://nytimes.com/2023/01/01/world/americas/bolsonaro-florida-brazil.html?searchResultPosition=1
 
 **Putin Has No Red Lines**\
 `There are better ways to think about strategy.`\
