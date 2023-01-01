@@ -18,7 +18,7 @@ https://nytimes.com/2023/01/01/nyregion/hochul-inauguration-ny-governor.html?sea
 `2023 should be a good year for meteor lovers.`\
 https://nytimes.com/article/meteor-showers-how-to-see.html?searchResultPosition=5
 
-**A Stinky Stew on Cape Cod: Human Waste and Warming Water**\
+**A Toxic Stew on Cape Cod: Human Waste and Warming Water**\
 `Climate change is contributing to electric-green algae blooms. Massachusetts wants a cleanup of the antiquated septic systems feeding the mess, but it could cost billions.`\
 https://nytimes.com/2023/01/01/climate/cape-cod-algae-septic.html?searchResultPosition=6
 
