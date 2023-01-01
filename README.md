@@ -2,7 +2,7 @@
 `She was the lead vocalist on all three of the Pointer Sisters’ Top 40 hits in the group’s early years, and she helped define its pop sound in the 1980s.`\
 https://nytimes.com/2023/01/01/obituaries/anita-pointer-dead.html?searchResultPosition=1
 
-**Brazil’s Luiz Inácio Lula da Silva Is Sworn in as President**\
+**Brazil’s Luiz Inácio Lula da Silva Is Sworn In as President**\
 `Hundreds of thousands of supporters filled the central esplanade in Brazil’s capital, as President Luiz Inácio Lula da Silva waved to onlookers from his motorcade on the way to his inauguration ceremony.`\
 https://nytimes.com/video/world/americas/100000008710294/lula-brazil-inauguration.html?searchResultPosition=2
 
