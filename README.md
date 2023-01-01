@@ -16,7 +16,7 @@ https://nytimes.com/2023/01/01/headway/composting-food-leftovers.html?searchResu
 
 **U.S. Pours Money Into Chips, but Even Soaring Spending Has Limits**\
 `Amid a tech cold war with China, U.S. companies have pledged nearly $200 billion for chip manufacturing projects since early 2020. But the investments are not a silver bullet.`\
-https://nytimes.com/2023/01/01/technology/us-chip-making-investments-ramp-up.html?searchResultPosition=5
+https://nytimes.com/2023/01/01/technology/us-chip-making-china-invest.html?searchResultPosition=5
 
 **10 Things Our Critics Are Looking Forward to in 2023**\
 `“Succession” returns, the Spider-Verse spawns a sequel, Kelela hits the road and Michael B. Jordan makes his directing debut with “Creed III.”`\
