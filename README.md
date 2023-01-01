@@ -1,5 +1,5 @@
 **T.C.U. Topples Michigan in Wild Playoff Semifinal**\
-`Dee Winters returned an interception for a touchdown that proved a mere appetizer for a zany back and forth as Texas Christian upset Michigan, 51-45, to reach the College Football Playoff title game.`\
+`Texas Christian returned two interceptions for touchdowns, just part of a zany back-and-forth upset of Michigan, 51-45, to put the Horned Frogs in the national championship game.`\
 https://nytimes.com/2022/12/31/sports/ncaafootball/fiesta-bowl-michigan-tcu.html?searchResultPosition=1
 
 **When Does Life Begin?**\
