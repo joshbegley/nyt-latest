@@ -26,7 +26,7 @@ https://nytimes.com/2023/01/01/arts/music/fedora-met-opera.html?searchResultPosi
 `Departing longtime lawmakers perceive little prospect of orderly business in a divided Congress. They’re taking with them decades of experience in the day-to-day work of keeping the government running.`\
 https://nytimes.com/2023/01/01/us/politics/senate-house-retiring-burr-shelby.html?searchResultPosition=7
 
-**As Lula Becomes Brazil’s President, Bolsonaro Flees to Florida**\
+**Lula Becomes Brazil’s President, With Bolsonaro in Florida**\
 `Brazil inaugurates its new president, Luiz Inácio Lula da Silva, on Sunday. Facing investigations, former President Jair Bolsonaro has taken refuge in Orlando.`\
 https://nytimes.com/2023/01/01/world/americas/bolsonaro-florida-brazil.html?searchResultPosition=8
 
