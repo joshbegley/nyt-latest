@@ -15,7 +15,7 @@ https://nytimes.com/video/world/americas/100000008710294/lula-brazil-inauguratio
 https://nytimes.com/2023/01/01/crosswords/daily-puzzle-2023-01-02.html?searchResultPosition=4
 
 **What We Learned From Week 17 in the N.F.L.**\
-`Led by 207 yards receiving from Mike Evans, Tampa Bay won the woeful N.F.C. South with a victory over Carolina, while Washington’s baffling quarterback switch wasn’t enough to get past Cleveland.`\
+`Quarterback problems doomed the Jets and Commanders, while Tampa Bay won the woeful N.F.C. South with a banner day from Mike Evans in a victory over Carolina.`\
 https://nytimes.com/2023/01/01/sports/football/nfl-week-17-scores.html?searchResultPosition=5
 
 **Jeremiah Green, Drummer for Modest Mouse, Dies at 45**\
