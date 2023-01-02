@@ -1,4 +1,4 @@
-**Brazilian Authorities Revive Fraud Case Against George Santos**\
+**Brazilian Authorities Will Revive Fraud Case Against George Santos**\
 `A 2008 court case had been suspended because Brazilian law enforcement officials could not find Mr. Santos.`\
 https://nytimes.com/2023/01/02/nyregion/george-santos-brazil.html?searchResultPosition=1
 
