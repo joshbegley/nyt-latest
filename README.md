@@ -30,8 +30,8 @@ https://nytimes.com/2023/01/02/world/europe/uk-rail-strike-work.html?searchResul
 `The pope emeritus is lying in state in St. Peter’s Basilica, where a long line of mourners, including Roman Catholic faithful and tourists, waited to pray and to pay last respects.`\
 https://nytimes.com/2023/01/02/world/europe/pope-benedict-lying-in-state.html?searchResultPosition=8
 
-**Jeremy Renner Is Hospitalized After a ‘Traumatic Injury’**\
-`The actor, known for his role as Hawkeye in Marvel’s Avengers movies, was injured while plowing snow, his representative told The Associated Press.`\
+**Jeremy Renner Is Hospitalized With ‘Traumatic Injury’ After Snowplow Accident**\
+`The actor, known for his role as Hawkeye in Marvel’s Avengers movies, was in critical but stable condition, his representative said.`\
 https://nytimes.com/2023/01/02/arts/jeremy-renner-hospitalized.html?searchResultPosition=9
 
 **The Question of Life Itself**\
