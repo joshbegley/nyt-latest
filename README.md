@@ -26,7 +26,7 @@ https://nytimes.com/2023/01/02/business/tesla-fourth-quarter-sales.html?searchRe
 `Thousands of the Roman Catholic faithful and tourists lined up to pay their respects to Benedict XVI, the pope emeritus.`\
 https://nytimes.com/video/world/europe/100000008710811/pope-benedict-vatican-city.html?searchResultPosition=7
 
-**Here Are the House Republicans to Watch If McCarthy’s Bid For Speaker Falters**\
+**Here Are the House Republicans to Watch if McCarthy’s Bid for Speaker Falters**\
 `Representative Kevin McCarthy has so far faced no viable challenger for the speakership. But if he is unable to secure the votes, an alternative could quickly emerge.`\
 https://nytimes.com/2023/01/02/us/politics/mccarthy-speaker-alternatives.html?searchResultPosition=8
 
