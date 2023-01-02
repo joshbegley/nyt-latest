@@ -14,8 +14,8 @@ https://nytimes.com/video/world/americas/100000008710882/pele-brazil-wake.html?s
 `Trevor Bickford, a 19-year-old man from Maine, had recently become radicalized and traveled to New York to attack the police, according to a law enforcement official.`\
 https://nytimes.com/2023/01/02/nyregion/times-square-nyc-machete-attack.html?searchResultPosition=4
 
-**Tesla Car Sales Rose 18% in Last Quarter**\
-`The company’s rapid growth is expected to ease as the economy slows and demand for its electric cars weakens.`\
+**Tesla Car Sales Grow Slower Than Expected, Amplifying Concerns**\
+`Wall Street has grown decidedly pessimistic about Tesla, fearful that Elon Musk, its chief executive, is too focused on Twitter.`\
 https://nytimes.com/2023/01/02/business/tesla-fourth-quarter-sales.html?searchResultPosition=5
 
 **Benedict XVI Lies in State in St. Peter’s Basilica**\
