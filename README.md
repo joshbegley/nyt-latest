@@ -26,8 +26,8 @@ https://nytimes.com/2023/01/02/crosswords/wordle-wrap-up-dec-26-to-jan-1.html?se
 `Public sympathy for striking nurses and other health workers is particularly strong, posing a challenge for Prime Minister Rishi Sunak, who has promised to confront trade unions.`\
 https://nytimes.com/2023/01/02/world/europe/uk-rail-strike-work.html?searchResultPosition=7
 
-**A Chance to Say Goodbye to Benedict Draws Thousands**\
-`The pope emeritus is lying in state in St. Peter’s Basilica, where a long line of mourners, including Roman Catholic faithful and tourists, waited to pray and to pay last respects.`\
+**A Chance to Say Goodbye to Benedict Draws Tens of Thousands**\
+`The pope emeritus is lying in state in St. Peter’s Basilica, where more than 40,000 mourners, including Roman Catholic faithful and tourists, had paid last respects by Monday afternoon.`\
 https://nytimes.com/2023/01/02/world/europe/pope-benedict-lying-in-state.html?searchResultPosition=8
 
 **Jeremy Renner Is Hospitalized With ‘Traumatic Injury’ After Snowplow Accident**\
