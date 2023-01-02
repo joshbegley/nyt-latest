@@ -1,40 +1,40 @@
-**‘Biofoul’ on Hull Strands Cruise Ship at Sea for 6 Days**\
-`An unidentified organism prompted Australia to block the vessel from docking, forcing passengers to skip a series of port stops.`\
-https://nytimes.com/2023/01/02/world/australia/biofoul-cruise-ship.html?searchResultPosition=1
+**On the Streets of Dakar, a Kaleidoscope of Style**\
+`The capital of Senegal has become a fashion center. But photographing stylish people going about their day isn’t as easy as clicking a button.`\
+https://nytimes.com/2023/01/02/style/dakar-street-style.html?searchResultPosition=1
 
-**Quotation of the Day: A Mall Where Vendors and Shoppers Celebrate the Beauty in Every Body**\
-`Quotation of the Day for Monday, January 2, 2023.`\
-https://nytimes.com/2023/01/02/pageoneplus/quotation-of-the-day-a-mall-where-vendors-and-shoppers-celebrate-the-beauty-in-every-body.html?searchResultPosition=2
+**Why China’s Economy Faces a Perilous Road to Recovery**\
+`Years of lockdowns took a brutal toll on businesses. Now, the rapid spread of Covid after a chaotic reopening has deprived them of workers and customers.`\
+https://nytimes.com/2023/01/02/business/china-economy-covid.html?searchResultPosition=2
 
-**No Corrections: Jan. 2, 2023**\
-`No corrections appeared in print on Monday, Jan. 2, 2023.`\
-https://nytimes.com/2023/01/02/pageoneplus/no-corrections-jan-2-2023.html?searchResultPosition=3
+**Russia’s War on Ukraine Worsens Global Starvation**\
+`Moscow blocks most shipments from Ukraine, one of the world’s largest wheat producers, and its attacks on the country’s energy grid also disrupt the flow of food.`\
+https://nytimes.com/2023/01/02/us/politics/russia-ukraine-food-crisis.html?searchResultPosition=3
 
-**My Uncle Taught Pelé Guitar: The Mourning Is Deeper in One City**\
-`While fans around the world grieve Pelé’s death, in Santos, Brazil, where he first made his mark, residents recall a friend and neighbor who never forgot them.`\
-https://nytimes.com/2023/01/02/sports/soccer/pele-santos-brazil-mourn.html?searchResultPosition=4
+**Timeless Portraits of L.A.’s Arcades**\
+`Documenting video game parlors offered a French photographer a way to explore Los Angeles and its surrounding areas.`\
+https://nytimes.com/2023/01/02/travel/los-angeles-arcades.html?searchResultPosition=4
 
-**Climate Activists Find a Way to Get Germany’s Attention: Stop Traffic**\
-`Extreme tactics have pushed the climate crisis to the top of the public discourse but also stirred debate over whether the activists are going too far.`\
-https://nytimes.com/2023/01/02/world/europe/climate-activists-find-a-way-to-get-germanys-attention-stop-traffic.html?searchResultPosition=5
+**The Etiquette Guru Who Broke Up With a Boyfriend Over Text**\
+`Sara Jane Ho offers practical manners for a new, global world.`\
+https://nytimes.com/2023/01/02/style/the-etiquette-guru-who-broke-up-with-a-boyfriend-over-text.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/01/02/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**A Heavily Armed Man Caused Panic at a Supermarket. But Did He Break the Law?**\
+`In states with permissive gun laws, police and prosecutors have limited tools at their disposal when a heavily armed individual sows fear or panic in public.`\
+https://nytimes.com/2023/01/02/us/a-heavily-armed-man-caused-panic-at-a-supermarket-but-did-he-break-the-law.html?searchResultPosition=6
 
-**What’s on TV This Week: ‘Finding Your Roots’ and ‘Mayfair Witches’**\
-`Henry Louis Gates Jr.’s genealogy series returns on PBS. And a TV adaptation of an Anne Rice trilogy debuts on AMC.`\
-https://nytimes.com/2023/01/02/arts/television/whats-on-tv-this-week-finding-your-roots-and-mayfair-witches.html?searchResultPosition=7
+**China’s Young Elite Clamber for Government Jobs. Some Come to Regret It.**\
+`With youth unemployment high, millions will take this month’s Civil Service exam. But for those who get jobs, the reality can be monotonous work that blurs the line with personal lives.`\
+https://nytimes.com/2023/01/02/business/china-youth-unemployment.html?searchResultPosition=7
 
-**Your Monday Briefing**\
-`Lula is now the president of Brazil.`\
-https://nytimes.com/2023/01/02/briefing/lula-ukraine-benedict.html?searchResultPosition=8
+**One Indelible Scene: the Master Class in Ambiguity in ‘Tár’**\
+`Cate Blanchett’s character visits Juilliard to tackle the big questions about art, life and music-world rivalry.`\
+https://nytimes.com/2023/01/02/movies/lydia-tar-juilliard-conducting-scene.html?searchResultPosition=8
 
-**The Man Who Made Spain the Magic Capital of the World**\
-`Inside the mind of Juan Tamariz, the godfather of close-up card magic.`\
-https://nytimes.com/2023/01/02/magazine/juan-tamariz-magic.html?searchResultPosition=9
+**They Got an Apartment They Liked, but Had to Wait for the Happy Ending**\
+`A couple found a rental apartment in Manhattan on the first day they searched. But there were weeks of snags and delays before they actually moved in.`\
+https://nytimes.com/2023/01/02/realestate/renters-midtown-east-manhattan.html?searchResultPosition=9
 
-**Day 1: Take Stock of Your Relationships**\
-`Today, you will identify the areas of your life in which you would like to be more connected.`\
-https://nytimes.com/2023/01/01/well/happiness-challenge-relationships.html?searchResultPosition=10
+**In the ‘Cozy Catastrophe’ Novel, the End of the World Is Not So Bad**\
+`Originally published in 1939, “The Hopkins Manuscript,” by the British writer R.C. Sherriff, inaugurated a genre of post-apocalyptic fiction in which a resourceful hero survives unthinkable cataclysm.`\
+https://nytimes.com/2023/01/02/books/review/r-c-sherriff-the-hopkins-manuscript.html?searchResultPosition=10
 
