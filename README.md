@@ -6,7 +6,7 @@ https://nytimes.com/2023/01/03/us/scott-stallings-masters-tournament-invitation.
 `The Russian leader has dropped the pretense that life goes on as normal despite the war, evident in the Kremlin’s quick acknowledgment of mass casualties inflicted by Ukraine last weekend.`\
 https://nytimes.com/2023/01/03/world/europe/putin-russia-ukraine-war.html?searchResultPosition=2
 
-**Hakeem Jeffries Is Elevated to Lead House Democrats as Minority Leader**\
+**Hakeem Jeffries Takes Over as Leader of House Democrats**\
 `A lawyer and disciplined tactician, Mr. Jeffries is the first Black politician to lead either party in Congress.`\
 https://nytimes.com/2023/01/03/nyregion/hakeem-jeffries-house-speaker.html?searchResultPosition=3
 
