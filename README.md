@@ -6,7 +6,7 @@ https://nytimes.com/2023/01/02/crosswords/daily-puzzle-2023-01-03.html?searchRes
 `The recent agreement to expand the College Football Playoff, to 12 teams from four, has threatened not just the Rose Bowl’s pre-eminent status among bowl games but also its relevance.`\
 https://nytimes.com/2023/01/02/sports/penn-state-utah-rose-bow.html?searchResultPosition=2
 
-**Monday Night Football Game Suspended After Player Collapses on Field**\
+**Monday Night Football Game Postponed After Player Collapses on Field**\
 `Bills safety Damar Hamlin, 24, collapsed after a tackle and received medical treatment on the field for 10 minutes before being taken to the hospital.`\
 https://nytimes.com/2023/01/02/sports/football/damar-hamlin-bills-hit.html?searchResultPosition=3
 
