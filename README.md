@@ -14,7 +14,7 @@ https://nytimes.com/2023/01/03/movies/diego-calva-babylon.html?searchResultPosit
 `Warm weather, alternatives to Russian gas and a buildup of storage all help. But prices remain high for consumers and industry.`\
 https://nytimes.com/2023/01/03/business/europe-natural-gas-prices.html?searchResultPosition=4
 
-**Unbeaten, but Untested**\
+**New Mexico’s Men’s Team Is Unbeaten, but Untested**\
 `New Mexico is the last Division I men’s basketball team without a loss. But few consider it a real contender.`\
 https://nytimes.com/2023/01/03/sports/ncaabasketball/new-mexico-last-unbeaten.html?searchResultPosition=5
 
