@@ -8,7 +8,7 @@ https://nytimes.com/2023/01/03/health/damar-hamlin-cardiac-arrest-arrhythmia.htm
 
 **Suspect in Killing of 4 Idaho Undergrads Arrives at Courthouse**\
 `An extradition hearing in Pennsylvania will determine whether the 28-year-old Ph.D. student accused in the killings will be returned to Idaho to face charges.`\
-https://nytimes.com/2023/01/03/us/moscow-idaho-bryan-khoberger-extradition.html?searchResultPosition=3
+https://nytimes.com/2023/01/03/us/moscow-idaho-bryan-kohberger-extradition.html?searchResultPosition=3
 
 **This Is Girlhood, Warts and All**\
 `In “Sam,” Allegra Goodman provides a sweeping yet intimate view of the challenges and triumphs of growing up.`\
