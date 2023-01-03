@@ -23,7 +23,7 @@ https://nytimes.com/2023/01/03/dining/corner-bar-review-pete-wells.html?searchRe
 https://nytimes.com/2023/01/03/style/tiny-modern-love-stories-a-wife-who-left.html?searchResultPosition=6
 
 **Crowds Line the Streets for Pelé’s Funeral Procession**\
-`The coffin of the late football star was driven through the streets of Santos, Brazil, before he was laid to rest in his hometown.`\
+`The coffin of the late football star was driven through the streets of Santos, Brazil, before he was laid to rest.`\
 https://nytimes.com/video/sports/soccer/100000008712067/pele-brazil-funeral-procession.html?searchResultPosition=7
 
 **‘Three Pines,’ Based on Louise Penny Books, Tackles Indigenous Suffering**\
