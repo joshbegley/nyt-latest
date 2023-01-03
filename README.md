@@ -1,5 +1,5 @@
-**Bills-Game Suspended After Damar Hamlin is Rushed to Hospital**\
-`Hamlin, 24, collapsed after a tackle and received medical treatment on the field for 10 minutes during Monday night football broadcast.`\
+**Monday Night Football Game Suspended After Player Collapses on Field**\
+`Bills Safety Damar Hamlin, 24, collapsed after a tackle and received medical treatment on the field for 10 minutes before being taken to the hospital.`\
 https://nytimes.com/2023/01/02/sports/football/damar-hamlin-bills-hit.html?searchResultPosition=1
 
 **Day 2: The Secret Power of the 8-Minute Phone Call**\
