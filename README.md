@@ -1,6 +1,6 @@
 **Tanks and Teddy Bears: Ukrainian Children Paint the War**\
 `An artist from Lviv has brought works by young people affected by the Russian invasion to a museum in Chicago’s Ukrainian enclave.`\
-https://nytimes.com/2023/01/03/arts/ukraine-children-war-art.html?searchResultPosition=1
+https://nytimes.com/2023/01/03/arts/design/ukraine-children-war-art.html?searchResultPosition=1
 
 **The Gay Rights Movement Before the Gay Rights Movement**\
 `In his debut novel, “The New Life,” Tom Crewe reimagines the lives of two pioneers who studied, and supported, homosexuality in 19th-century England.`\
