@@ -1,4 +1,4 @@
-**China Calls Travel Restrictions Imposed on Its Travelers ‘Political’**\
+**China Denounces Covid Testing Rules Imposed on Its Travelers**\
 `A government spokeswoman said Beijing would consider reciprocal measures against countries that have sought to limit travelers arriving from China.`\
 https://nytimes.com/2023/01/03/world/asia/china-covid.html?searchResultPosition=1
 
