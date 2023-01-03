@@ -4,7 +4,7 @@ https://nytimes.com/2023/01/03/health/abortion-pill-cvs-walgreens-pharmacies.htm
 
 **Twitter to Relax Ban on Political Ads**\
 `Elon Musk’s social media service said it would begin to permit cause-based advertising to “facilitate public conversation around important topics.”`\
-https://nytimes.com/2023/01/03/technology/twitter-to-relax-ban-on-political-ads.html?searchResultPosition=2
+https://nytimes.com/2023/01/03/technology/twitter-political-ads.html?searchResultPosition=2
 
 **John Fetterman Got a New Suit for His Senate Swearing-In**\
 `The Pennsylvania lawmaker joins the Washington establishment. Sort of.`\
