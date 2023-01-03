@@ -18,7 +18,7 @@ https://nytimes.com/2023/01/03/world/europe/france-cesar-awards-sexual-abuse.htm
 `The acclaimed driver, best known for his “Gymkhana” videos, was killed in a snowmobile accident.`\
 https://nytimes.com/2023/01/03/sports/ken-block-dead.html?searchResultPosition=5
 
-**How Bankman-Fried Negotiated His Way Out of Jail**\
+**How Sam Bankman-Fried Negotiated His Way Out of Jail**\
 `Intense legal wrangling led to the disgraced crypto mogul paying virtually nothing to live with his parents ahead of his upcoming trial. He returns to court on Tuesday.`\
 https://nytimes.com/2023/01/03/business/dealbook/bankman-fried-bail-jail.html?searchResultPosition=6
 
