@@ -1,4 +1,4 @@
-**What the N.F.L. Says — and What It Doesn’t — About Injuries**\
+**What the N.F.L. Says, and What It Doesn’t, About Injuries**\
 `The league regularly shares information about concussions and knee injuries, but it reveals only so much about player health in general.`\
 https://nytimes.com/2023/01/03/sports/football/nfl-injuries-statistics.html?searchResultPosition=1
 
