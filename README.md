@@ -7,7 +7,7 @@ https://nytimes.com/2023/01/02/crosswords/daily-puzzle-2023-01-03.html?searchRes
 https://nytimes.com/2023/01/02/sports/penn-state-utah-rose-bow.html?searchResultPosition=2
 
 **Monday Night Football Game Postponed Indefinitely After Player Collapses on Field**\
-`Bills safety Damar Hamlin, 24, collapsed after a tackle and received medical treatment on the field for 10 minutes before being taken to the hospital.`\
+`Bills safety Damar Hamlin, 24, collapsed after a tackle and received medical treatment on the field for 10 minutes before being taken to a hospital.`\
 https://nytimes.com/2023/01/02/sports/football/damar-hamlin-bills-hit.html?searchResultPosition=3
 
 **Day 2: The Secret Power of the 8-Minute Phone Call**\
