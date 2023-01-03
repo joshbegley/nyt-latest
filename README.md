@@ -18,8 +18,8 @@ https://nytimes.com/2023/01/02/crosswords/daily-puzzle-2023-01-03.html?searchRes
 `The recent agreement to expand the College Football Playoff, to 12 teams from four, has threatened not just the Rose Bowl’s pre-eminent status among bowl games but also its relevance.`\
 https://nytimes.com/2023/01/02/sports/penn-state-utah-rose-bow.html?searchResultPosition=5
 
-**Monday Night Football Game Postponed Indefinitely After Player Collapses on Field**\
-`Bills safety Damar Hamlin, 24, collapsed after a tackle and received medical treatment on the field for 10 minutes before being taken to a hospital.`\
+**Damar Hamlin of Buffalo Bills in Critical Condition After Collapsing at N.F.L. Game**\
+`Hamlin, a 24-year-old safety, collapsed after a tackle and received medical treatment on the field for 10 minutes before being taken to a hospital.`\
 https://nytimes.com/2023/01/02/sports/football/damar-hamlin-bills-hit.html?searchResultPosition=6
 
 **Day 2: The Secret Power of the 8-Minute Phone Call**\
