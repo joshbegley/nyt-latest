@@ -1,6 +1,6 @@
 **Sam Bankman-Fried Pleads Not Guilty to Fraud and Other Charges**\
 `The founder of the collapsed cryptocurrency exchange FTX, who was released on a $250 million bond, returned to New York to appear in court on Tuesday.`\
-https://nytimes.com/2023/01/03/technology/sam-bankman-fried-pleads-not-guilty-to-fraud-and-other-charges.html?searchResultPosition=1
+https://nytimes.com/2023/01/03/technology/sam-bankman-fried-pleads-not-guilty.html?searchResultPosition=1
 
 **Damar Hamlin’s Cardiac Arrest: What We Know and Don’t Know**\
 `Cardiac doctors say that blows to the chest causing an erratic heart rhythm are highly unusual, but not unheard-of in sports.`\
