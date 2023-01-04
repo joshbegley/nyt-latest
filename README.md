@@ -1,40 +1,40 @@
+**How Far Right Are the 20 Republicans Who Voted Against McCarthy**\
+`Most denied the 2020 election, are members of the ultraconservative Freedom Caucus, or both.`\
+https://nytimes.com/interactive/2023/01/04/us/politics/house-speaker-republicans-vote-against-mccarthy.html?searchResultPosition=1
+
 **Your Wednesday Briefing**\
 `Here’s what you need to know.`\
-https://nytimes.com/2023/01/04/briefing/ukraine-drones-china-covid.html?searchResultPosition=1
+https://nytimes.com/2023/01/04/briefing/ukraine-drones-china-covid.html?searchResultPosition=2
 
 **Brooklyn Library’s ‘Books Unbanned’ Team Wins Accolade**\
 `The five staff members were recognized as librarians of the year for their efforts to reach readers in places that censor books.`\
-https://nytimes.com/2023/01/04/nyregion/brooklyn-public-library-books-unbanned.html?searchResultPosition=2
+https://nytimes.com/2023/01/04/nyregion/brooklyn-public-library-books-unbanned.html?searchResultPosition=3
 
 **Benedict Leaves Behind a Conflicted Legacy on Clerical Sexual Abuse**\
 `Joseph Ratzinger was accused of mishandling cases when he was bishop of Munich, but as pope he was credited with forcing the Catholic Church to face a scourge long ignored.`\
-https://nytimes.com/2023/01/04/world/europe/benedict-sexual-abuse-priests.html?searchResultPosition=3
+https://nytimes.com/2023/01/04/world/europe/benedict-sexual-abuse-priests.html?searchResultPosition=4
 
 **Quotation of the Day: Fourth Grader or Chatbot?**\
 `Quotation of the Day for Wednesday, January 4th, 2023.`\
-https://nytimes.com/2023/01/03/pageoneplus/quotation-of-the-day-fourth-grader-or-chatbot.html?searchResultPosition=4
+https://nytimes.com/2023/01/03/pageoneplus/quotation-of-the-day-fourth-grader-or-chatbot.html?searchResultPosition=5
 
 **Corrections: Jan. 4, 2023**\
 `Corrections that appeared in print on Wednesday, Jan. 4, 2023.`\
-https://nytimes.com/2023/01/03/pageoneplus/corrections-jan-4-2023.html?searchResultPosition=5
+https://nytimes.com/2023/01/03/pageoneplus/corrections-jan-4-2023.html?searchResultPosition=6
 
 **Day 3: Small Talk Has Big Benefits**\
 `Regular exchanges with your “weak ties” will bring you more happiness.`\
-https://nytimes.com/2023/01/03/well/talking-to-strangers-happiness-challenge.html?searchResultPosition=6
+https://nytimes.com/2023/01/03/well/talking-to-strangers-happiness-challenge.html?searchResultPosition=7
 
 **When You Don’t Think of It First**\
 `Try this astronomically awesome debut from Laura Breiman and Tom Bachant.`\
-https://nytimes.com/2023/01/03/crosswords/daily-puzzle-2023-01-04.html?searchResultPosition=7
+https://nytimes.com/2023/01/03/crosswords/daily-puzzle-2023-01-04.html?searchResultPosition=8
 
 **Jeremy Renner Was Run Over by 7-Ton Snow Plow, Authorities Say**\
 `The 51-year-old Marvel actor, who remained in a critical but stable condition on Tuesday, said in an Instagram post that he was “too messed up now to type,” but sent his love.`\
-https://nytimes.com/2023/01/03/us/jeremy-renner-accident-snow-plow.html?searchResultPosition=8
+https://nytimes.com/2023/01/03/us/jeremy-renner-accident-snow-plow.html?searchResultPosition=9
 
 **Walter Cunningham, Who Helped Pave the Way to the Moon, Dies at 90**\
 `In 1968 he was a member of the first manned Apollo mission, which buoyed an America shocked by a fatal capsule fire the previous year.`\
-https://nytimes.com/2023/01/03/science/space/walter-cunningham-dead.html?searchResultPosition=9
-
-**Ukraine Keeps Downing Russian Drones, but Price Tag Is High**\
-`When costly missiles take out cheap drones, the real winner over time may be the country that spends less.`\
-https://nytimes.com/2023/01/03/world/europe/ukraine-russia-drones.html?searchResultPosition=10
+https://nytimes.com/2023/01/03/science/space/walter-cunningham-dead.html?searchResultPosition=10
 
