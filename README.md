@@ -31,7 +31,7 @@ https://nytimes.com/article/damar-hamlin-injury-update.html?searchResultPosition
 https://nytimes.com/2023/01/04/us/politics/mccarthy-republicans-rebellion.html?searchResultPosition=8
 
 **Fed Officials Fretted That Markets Would Misread Rate Slowdown**\
-`Central bankers remained committed to wrestling inflation lower, and wanted to make sure investors understood that message, minutes from its December meeting showed.`\
+`Central bankers remained committed to wrestling inflation lower, and wanted to make sure investors understood that message, minutes from the Federal Reserve’s December meeting showed.`\
 https://nytimes.com/2023/01/04/business/economy/inflation-markets-fed.html?searchResultPosition=9
 
 **Will These Be the 10 Best Picture Oscar Nominees?**\
