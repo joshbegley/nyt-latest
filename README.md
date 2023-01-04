@@ -3,7 +3,7 @@
 https://nytimes.com/2023/01/04/world/europe/europe-warm-weather.html?searchResultPosition=1
 
 **Damar Hamlin and the Hard Truths About Football**\
-`Readers respond to the devastating injury to Damar Hamlin and what it means  for football. Also: Keep supporting charities.`\
+`Readers respond to the devastating injury to Damar Hamlin and what it means for football. Also: Keep supporting charities.`\
 https://nytimes.com/2023/01/04/opinion/letters/damar-hamlin-football.html?searchResultPosition=2
 
 **Fort Lee, N.J.: ‘Like Being in the City Without Being in the City’**\
