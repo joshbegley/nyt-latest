@@ -6,7 +6,7 @@ https://nytimes.com/2023/01/04/us/politics/byron-donalds-house-republican.html?s
 `Plus reader’s pandemic photos, then and now.`\
 https://nytimes.com/2023/01/04/briefing/chinas-unfolding-tragedy.html?searchResultPosition=2
 
-**U.S. Soccer Will Investigate Coach After Report From a Player’s Parent**\
+**U.S. Soccer Investigating Coach After Report From a Player’s Parent**\
 `Gregg Berhalter, the coach, said a decades-old domestic incident had been reported to U.S. Soccer by someone looking to get him fired. It turned out to be the mother of winger Gio Reyna.`\
 https://nytimes.com/2023/01/04/sports/soccer/gregg-berhalter-claudio-reyna.html?searchResultPosition=3
 
