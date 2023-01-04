@@ -1,6 +1,6 @@
 **Will These Be the 10 Best Picture Oscar Nominees?**\
 `Now that critics’ laurels and box office results are in, the race for the top honor is clearer. But there’s still room for an outside contender to slip in.`\
-https://nytimes.com/2023/01/04/movies/best-picture-oscar-contenders.html?searchResultPosition=1
+https://nytimes.com/2023/01/04/movies/best-picture-oscar-nominees.html?searchResultPosition=1
 
 **Broadway Bounces Back With ‘Best Week Since the Before Times’**\
 `Broadway shows grossed $51.9 million during the holiday week, the most since 2019, and “The Lion King” set a record for the most earned by any show in a single week.`\
