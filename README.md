@@ -4,7 +4,7 @@ https://nytimes.com/2023/01/04/world/middleeast/taraneh-alidoosti-iran-actress.h
 
 **Asian Researchers Face Disparity With Key U.S. Science Funding Source**\
 `White researchers fared best in winning grants from the National Science Foundation, a study says. Asians encounter the highest rate of rejections, challenging an academic stereotype.`\
-https://nytimes.com/2023/01/04/science/asian-students-nsf-funding.html?searchResultPosition=2
+https://nytimes.com/2023/01/04/science/asian-scientists-nsf-funding.html?searchResultPosition=2
 
 **United Talent Agency Grows Its Literary Business**\
 `With the acquisition of the literary agency Fletcher & Company, UTA added hundreds of authors to its client roster. The deal comes amid consolidation in the entertainment industry.`\
