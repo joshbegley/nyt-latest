@@ -19,7 +19,7 @@ https://nytimes.com/2023/01/04/us/politics/gaetz-mccarthy-speakers-office.html?s
 https://nytimes.com/2023/01/04/arts/music/prototype-festival-10-years.html?searchResultPosition=5
 
 **Live Vote Count: Tracking the House Speaker Votes**\
-`Follow live to see how each representative voted for House speaker.`\
+`Follow live to see how each representative voted for House speaker on each ballot.`\
 https://nytimes.com/interactive/2023/01/04/us/politics/house-speaker-vote-tally.html?searchResultPosition=6
 
 **A Tablecloth as Source Material**\
