@@ -8,7 +8,7 @@ https://nytimes.com/2023/01/04/theater/broadway-record-grosses.html?searchResult
 
 **How Will the Suspended Bills-Bengals Game Be Resolved?**\
 `The N.F.L. has a number of options, none of them perfect, for how to handle competition for the last week of the regular season and the playoffs.`\
-https://nytimes.com/2023/01/04/sports/football/bills-bengals-game-options.html?searchResultPosition=3
+https://nytimes.com/2023/01/04/sports/football/bills-bengals-game-season.html?searchResultPosition=3
 
 **Times Square Suspect Wanted to ‘Carry Out Jihad,’ Prosecutors Say**\
 `Trevor Bickford on New Year’s Eve attacked three police officers because he considered government agents and men of military age legitimate targets, authorities said.`\
