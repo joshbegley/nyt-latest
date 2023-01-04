@@ -30,8 +30,8 @@ https://nytimes.com/2023/01/04/movies/the-wounded-man-anthology.html?searchResul
 `Also, Kim Jong-un presents a possible successor.`\
 https://nytimes.com/2023/01/04/briefing/russia-soldiers-cellphones-asia.html?searchResultPosition=8
 
-**New Speaker of Divided Pennsylvania House Promises to Be ‘Independent’**\
-`Representative Mark Rozzi, a moderate Democrat, surprised almost everyone by pledging not to caucus with either party as speaker. Many questions remain.`\
+**Surprise in Pennsylvania: Republicans Back a (Former?) Democrat for Speaker**\
+`Representative Mark Rozzi, long a moderate Democrat, pledged not to caucus with either party as speaker of the closely divided state House of Representatives. Many questions remain.`\
 https://nytimes.com/2023/01/04/us/pennsylvania-house-speaker-rozzi-independent.html?searchResultPosition=9
 
 **Rick Singer, Mastermind of Varsity Blues Scandal, Is Sentenced to 3½ Years in Prison**\
