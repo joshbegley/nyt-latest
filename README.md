@@ -1,40 +1,40 @@
+**Coinbase Reaches $100 Million Settlement With New York Regulators**\
+`The U.S. crypto exchange will pay a $50 million fine for letting customers open accounts with few background checks and spend $50 million to improve compliance.`\
+https://nytimes.com/2023/01/04/business/coinbase-settlement-anti-money-laundering.html?searchResultPosition=1
+
+**Celebrating El Cholo Restaurant in L.A. on Its 100th Anniversary**\
+`In 1923, “going out to a restaurant was kind of a special thing — it wasn’t what it is today,” said Ron Salisbury, grandson of El Cholo’s founders.`\
+https://nytimes.com/2023/01/04/us/los-angeles-el-cholo-anniversary.html?searchResultPosition=2
+
+**The Hour Between Babe and Hag**\
+`If you’re a woman, you get about 10 years to be taken seriously at work.`\
+https://nytimes.com/2023/01/04/opinion/women-men-work.html?searchResultPosition=3
+
+**I’m Worried About a Fancy Cat in This Frigid Weather. Help!**\
+`A reader is visited daily by a cat that seems desperate to get out of the cold. The problem? It already has an owner, albeit a neglectful one.`\
+https://nytimes.com/2023/01/04/style/stray-cat-winter.html?searchResultPosition=4
+
+**Salesforce to Lay Off 10 Percent of Staff and Cut Office Space**\
+`The software company plans to cut around 8,000 jobs as business slows for tech companies. “We hired too many people leading into this economic downturn,” Salesforce’s chief executive said.`\
+https://nytimes.com/2023/01/04/business/salesforce-layoffs.html?searchResultPosition=5
+
 **When Darkness Falls, Three Friends Find Ancient Art**\
 `Some Norwegian hobbyists are having a great time uncovering hundreds of Bronze Age carvings. Their discoveries have lent weight to theories about what the mysterious images mean.`\
-https://nytimes.com/2023/01/04/arts/design/petroglyph-hunters-norway.html?searchResultPosition=1
+https://nytimes.com/2023/01/04/arts/design/petroglyph-hunters-norway.html?searchResultPosition=6
 
 **Tesla Bulls Brace for a Rough Year Ahead**\
 `A huge sell-off wiped billions of dollars from the electric carmaker’s market capitalization on Tuesday. Analysts see more trouble ahead.`\
-https://nytimes.com/2023/01/04/business/dealbook/tesla-bulls-challenges.html?searchResultPosition=2
+https://nytimes.com/2023/01/04/business/dealbook/tesla-bulls-challenges.html?searchResultPosition=7
 
 **Violence and the N.F.L.**\
 `After Damar Hamlin’s on-field collapse on Monday, a Times Sports columnist writes that “we’re all complicit in the N.F.L.’s violent spectacle.” Do you agree?`\
-https://nytimes.com/2023/01/04/learning/violence-and-the-nfl.html?searchResultPosition=3
+https://nytimes.com/2023/01/04/learning/violence-and-the-nfl.html?searchResultPosition=8
 
 **A House Divided**\
 `House Republicans are struggling with a test of governing.`\
-https://nytimes.com/2023/01/04/world/house-republicans-leadership-vote.html?searchResultPosition=4
+https://nytimes.com/2023/01/04/world/house-republicans-leadership-vote.html?searchResultPosition=9
 
 **Inside Russia’s Military Catastrophe**\
 `As the war against Ukraine rolls on, it has become increasingly clear that this was not the Russian Army anyone expected.`\
-https://nytimes.com/2023/01/04/podcasts/the-daily/russia-ukraine-military-catastrophe.html?searchResultPosition=5
-
-**L.A. County to Pay $20 Million for Land Once Seized From Black Family**\
-`California officials seized a beachfront property from Willa and Charles Bruce in 1924. Los Angeles County returned it to their great-grandsons last year. Now they’re selling it back.`\
-https://nytimes.com/2023/01/04/us/bruces-beach-la-county.html?searchResultPosition=6
-
-**Farewell to ‘Stomp,’ a Show at the Beating Heart of New York**\
-`The wordless percussion and dance spectacle, which became part of the fabric and culture of the city, leaves the Orpheum Theater on Jan. 8.`\
-https://nytimes.com/2023/01/04/theater/stomp-closing.html?searchResultPosition=7
-
-**California Braces for Yet More Rain**\
-`Emergency responders and residents have endured several powerful storms in recent weeks. Wednesday brings another.`\
-https://nytimes.com/2023/01/04/us/california-storm.html?searchResultPosition=8
-
-**Why Are Energy Prices So High? Some Experts Blame Deregulation.**\
-`California and the 34 other states that have deregulated all or parts of their electricity system tend to have higher rates than the rest of the country.`\
-https://nytimes.com/2023/01/04/business/energy-environment/electricity-deregulation-energy-markets.html?searchResultPosition=9
-
-**Meet the Newer, Bolder Michelle Williams**\
-`With “The Fabelmans,” the Oscar-nominated actress moves from minor-key naturalism to more stylized performances: “I wanted to make work that an audience member had to deal with.”`\
-https://nytimes.com/2023/01/04/movies/michelle-williams-fabelmans.html?searchResultPosition=10
+https://nytimes.com/2023/01/04/podcasts/the-daily/russia-ukraine-military-catastrophe.html?searchResultPosition=10
 
