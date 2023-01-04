@@ -26,13 +26,13 @@ https://nytimes.com/2023/01/04/opinion/disabilities-employment-wage.html?searchR
 `The curious case of the philosemitic fabulist.`\
 https://nytimes.com/2023/01/04/opinion/george-santos-jewish-heritage.html?searchResultPosition=7
 
-**With Heavy Hearts, N.F.L. Players Prepare to Go Back to Work**\
-`Teams will return to practices on Wednesday, two days after Buffalo Bills safety Damar Hamlin suffered a cardiac arrest during a game. He remains hospitalized.`\
-https://nytimes.com/2023/01/04/sports/football/damar-hamlin-nfl-players.html?searchResultPosition=8
-
 **The Dirt on Clean Beauty**\
 `More and more products promise “clean beauty,” along with plumper lips and fewer wrinkles. But what does that actually mean?`\
-https://nytimes.com/2023/01/04/style/the-dirt-on-clean-beauty.html?searchResultPosition=9
+https://nytimes.com/2023/01/04/style/clean-beauty.html?searchResultPosition=8
+
+**With Heavy Hearts, N.F.L. Players Prepare to Go Back to Work**\
+`Teams will return to practices on Wednesday, two days after Buffalo Bills safety Damar Hamlin suffered a cardiac arrest during a game. He remains hospitalized.`\
+https://nytimes.com/2023/01/04/sports/football/damar-hamlin-nfl-players.html?searchResultPosition=9
 
 **Biden Promotes Bipartisan Victories as Divisions Roil the Republican Party**\
 `The president, who has said he intends to run for re-election, will travel to Kentucky to emphasize that he is determined to reach across the aisle.`\
