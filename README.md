@@ -16,7 +16,7 @@ https://nytimes.com/2023/01/04/movies/michelle-williams-fabelmans.html?searchRes
 
 **My Daughter Will Hold a Job One Day, but Will She Be Paid Fairly?**\
 `We need to consider how we can more effectively support people with disabilities in the mainstream work force.`\
-https://nytimes.com/2023/01/04/opinion/my-daughter-will-hold-a-job-one-day-but-will-she-be-paid-fairly.html?searchResultPosition=5
+https://nytimes.com/2023/01/04/opinion/disabilities-employment-wage.html?searchResultPosition=5
 
 **George Santos and Being ‘Jew-ish’ Among Jews**\
 `The curious case of the philosemitic fabulist.`\
