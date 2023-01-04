@@ -1,40 +1,40 @@
-**Why Saving Kids Is Bad Business in America**\
-`For hospitals, caring for kids isn’t as lucrative as adult health care. As a result, hundreds of pediatrics departments have closed over the past two decades.`\
-https://nytimes.com/video/opinion/100000008668952/covid-flu-rsv-children-hospitals.html?searchResultPosition=1
+**Farewell to ‘Stomp,’ a Show at the Beating Heart of New York**\
+`The wordless percussion and dance spectacle, which became part of the fabric and culture of the city, leaves the Orpheum Theater on Jan. 8.`\
+https://nytimes.com/2023/01/04/theater/stomp-closing.html?searchResultPosition=1
 
-**Need an Onion? These Indian Apps Will Deliver It in Minutes.**\
-`Fueled by billions of dollars in investments, Indian companies are rushing to cut delivery prices and wait times, relying on an army of low-paid, harried drivers.`\
-https://nytimes.com/2023/01/04/business/need-an-onion-these-indian-apps-will-deliver-it-in-minutes.html?searchResultPosition=2
+**California Braces for Yet More Rain**\
+`Emergency responders and residents have endured several powerful storms in recent weeks. Wednesday brings another.`\
+https://nytimes.com/2023/01/04/us/california-storm.html?searchResultPosition=2
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/01/04/crosswords/spelling-bee-forum.html?searchResultPosition=3
+**Why Are Energy Prices So High? Some Experts Blame Deregulation.**\
+`California and the 34 other states that have deregulated all or parts of their electricity system tend to have higher rates than the rest of the country.`\
+https://nytimes.com/2023/01/04/business/energy-environment/electricity-deregulation-energy-markets.html?searchResultPosition=3
 
-**Stephen Colbert Is Thrilled Over Kevin McCarthy’s Troubles**\
-`“But remember, there’s more important things in life than winning or losing — there’s making fun of Kevin McCarthy for losing,” Colbert said.`\
-https://nytimes.com/2023/01/04/arts/television/stephen-colbert-kevin-mccarthy.html?searchResultPosition=4
+**Meet the Newer, Bolder Michelle Williams**\
+`With “The Fabelmans,” the Oscar-nominated actress moves from minor-key naturalism to more stylized performances: “I wanted to make work that an audience member had to deal with.”`\
+https://nytimes.com/2023/01/04/movies/michelle-williams-fabelmans.html?searchResultPosition=4
 
-**Word of the Day: inept**\
-`This word has appeared in 53 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/01/04/learning/word-of-the-day-inept.html?searchResultPosition=5
+**My Daughter Will Hold a Job One Day, but Will She Be Paid Fairly?**\
+`We need to consider how we can more effectively support people with disabilities in the mainstream work force.`\
+https://nytimes.com/2023/01/04/opinion/my-daughter-will-hold-a-job-one-day-but-will-she-be-paid-fairly.html?searchResultPosition=5
 
-**How Far Right Are the 20 Republicans Who Voted Against McCarthy**\
-`Most denied the 2020 election, are members of the ultraconservative Freedom Caucus, or both.`\
-https://nytimes.com/interactive/2023/01/04/us/politics/house-speaker-republicans-vote-against-mccarthy.html?searchResultPosition=6
+**George Santos and Being ‘Jew-ish’ Among Jews**\
+`The curious case of the philosemitic fabulist.`\
+https://nytimes.com/2023/01/04/opinion/george-santos-jewish-heritage.html?searchResultPosition=6
 
-**Your Wednesday Briefing**\
-`Here’s what you need to know.`\
-https://nytimes.com/2023/01/04/briefing/ukraine-drones-china-covid.html?searchResultPosition=7
+**With Heavy Hearts, N.F.L. Players Prepare to Go Back to Work**\
+`Teams will return to practices on Wednesday, two days after Buffalo Bills safety Damar Hamlin suffered a cardiac arrest during a game. He remains hospitalized.`\
+https://nytimes.com/2023/01/04/sports/football/damar-hamlin-nfl-players.html?searchResultPosition=7
 
-**Brooklyn Library’s ‘Books Unbanned’ Team Wins Accolade**\
-`The five staff members were recognized as librarians of the year for their efforts to reach readers in places that censor books.`\
-https://nytimes.com/2023/01/04/nyregion/brooklyn-public-library-books-unbanned.html?searchResultPosition=8
+**The Dirt on Clean Beauty**\
+`More and more products promise “clean beauty,” along with plumper lips and fewer wrinkles. But what does that actually mean?`\
+https://nytimes.com/2023/01/04/style/the-dirt-on-clean-beauty.html?searchResultPosition=8
 
-**Benedict Leaves Behind a Conflicted Legacy on Clerical Sexual Abuse**\
-`Joseph Ratzinger was accused of mishandling cases when he was bishop of Munich, but as pope he was credited with forcing the Catholic Church to face a scourge long ignored.`\
-https://nytimes.com/2023/01/04/world/europe/benedict-sexual-abuse-priests.html?searchResultPosition=9
+**Biden Promotes Bipartisan Victories as Divisions Roil the Republican Party**\
+`The president, who has said he intends to run for re-election, will travel to Kentucky to emphasize that he is determined to reach across the aisle.`\
+https://nytimes.com/2023/01/04/us/politics/biden-bipartisanship.html?searchResultPosition=9
 
-**Quotation of the Day: Fourth Grader or Chatbot?**\
-`Quotation of the Day for Wednesday, January 4th, 2023.`\
-https://nytimes.com/2023/01/03/pageoneplus/quotation-of-the-day-fourth-grader-or-chatbot.html?searchResultPosition=10
+**G.O.P. Fight Over Speaker Enters Its Second Day**\
+`The House is set to reconvene at noon to continue a historic floor fight — the first in a century — prompted by the Republican leader’s failure to secure a majority to become speaker.`\
+https://nytimes.com/2023/01/04/us/politics/kevin-mccarthy-house-speaker-vote-republicans.html?searchResultPosition=10
 
