@@ -1,4 +1,4 @@
-**Stephen Colbert is Thrilled Over Kevin McCarthy’s Troubles**\
+**Stephen Colbert Is Thrilled Over Kevin McCarthy’s Troubles**\
 `“But remember, there’s more important things in life than winning or losing — there’s making fun of Kevin McCarthy for losing,” Colbert said.`\
 https://nytimes.com/2023/01/04/arts/television/stephen-colbert-kevin-mccarthy.html?searchResultPosition=1
 
