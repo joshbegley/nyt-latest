@@ -34,7 +34,7 @@ https://nytimes.com/2023/01/04/business/energy-environment/electricity-deregulat
 `With “The Fabelmans,” the Oscar-nominated actress moves from minor-key naturalism to more stylized performances: “I wanted to make work that an audience member had to deal with.”`\
 https://nytimes.com/2023/01/04/movies/michelle-williams-fabelmans.html?searchResultPosition=9
 
-**My Daughter Will Hold a Job One Day, but Will She Be Paid Fairly?**\
+**I Don’t Want My Child to Earn Less Than Minimum Wage Because of Who She Is**\
 `We need to consider how we can more effectively support people with disabilities in the mainstream work force.`\
 https://nytimes.com/2023/01/04/opinion/disabilities-employment-wage.html?searchResultPosition=10
 
