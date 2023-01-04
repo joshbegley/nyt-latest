@@ -2,8 +2,8 @@
 `Hamlin, a Buffalo Bills safety, was in critical condition at a hospital after going into cardiac arrest following a routine tackle.`\
 https://nytimes.com/article/damar-hamlin-injury-update.html?searchResultPosition=1
 
-**At the heart of the speakership battle is a right-wing push for more influence.**\
-`By Carl Hulse and Emily Cochrane`\
+**What the Far-Right Republicans Want: To Remake Congress and the Government**\
+`At the heart of the speakership battle is a right-wing push for more influence.`\
 https://nytimes.com/2023/01/04/us/politics/mccarthy-republicans-rebellion.html?searchResultPosition=2
 
 **Fed Officials Fretted That Markets Would Misread Rate Slowdown**\
