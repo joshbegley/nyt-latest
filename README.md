@@ -8,7 +8,7 @@ https://nytimes.com/2023/01/04/business/economy/fed-inflation-rates-kashkari.htm
 
 **Meta’s Ad Practices Ruled Illegal Under E.U. Law**\
 `The decision is one of the most consequential issued under the E.U.’s landmark data-protection law and creates a new business headwind for the social media giant.`\
-https://nytimes.com/2023/01/04/business/meta-facebook-eu-gdpr.html?searchResultPosition=3
+https://nytimes.com/2023/01/04/technology/meta-facebook-eu-gdpr.html?searchResultPosition=3
 
 **When the Camera Can’t Turn Away, These Women Force Us to Listen**\
 `Films as different as the biopic “Till” and the thriller “Resurrection” use lengthy monologues to give female characters the chance to truly be heard.`\
