@@ -1,4 +1,4 @@
-**Stabenow, Michigan Senator For More Than Two Decades, Won’t Run in 2024**\
+**Stabenow, Michigan Senator for More Than Two Decades, Won’t Run in 2024**\
 `The Michigan lawmaker becomes the first Senate Democrat to announce she will not be on the ballot next year.`\
 https://nytimes.com/2023/01/05/us/politics/stabenow-michigan-2024.html?searchResultPosition=1
 
