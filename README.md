@@ -4,7 +4,7 @@ https://nytimes.com/2023/01/05/books/deepti-kapoor-age-of-vice.html?searchResult
 
 **Alexei Ratmansky, Renowned Choreographer, to Join City Ballet**\
 `“I wanted a change,” Ratmansky said, announcing his next chapter after 13 years at American Ballet Theater.`\
-https://nytimes.com/2023/01/05/arts/dance/alexei-ratmansky-to-join-new-york-city-ballet.html?searchResultPosition=2
+https://nytimes.com/2023/01/05/arts/dance/alexei-ratmansky-new-york-city-ballet.html?searchResultPosition=2
 
 **Ford Sales Dipped in 2022, but Electric Vehicle Deliveries Surged**\
 `The company’s production was limited by a global chip shortage but it made big gains in the fastest-growing segment of the auto market.`\
