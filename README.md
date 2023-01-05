@@ -1,10 +1,10 @@
+**Read the Affidavit**\
+`Here’s how the police say they identified Bryan Kohberger as the suspect in the Idaho college murders.`\
+https://nytimes.com/interactive/2023/01/05/us/bryan-kohberger-affidavit.html?searchResultPosition=1
+
 **Tell Us About Your Strangest Terms of Endearment**\
 `Do you have a surprising pet name for your loved ones? When you were young, were you called something bizarre? Tell us about it.`\
-https://nytimes.com/2023/01/05/style/tell-us-about-your-strangest-terms-of-endearment.html?searchResultPosition=1
-
-**Read the Police Affidavit in the Idaho College Murders**\
-`Here’s how investigators say they identified the suspect.`\
-https://nytimes.com/2023/01/05/us/idaho-murders-affidavit-kohberger.html?searchResultPosition=2
+https://nytimes.com/2023/01/05/style/tell-us-about-your-strangest-terms-of-endearment.html?searchResultPosition=2
 
 **El Chapo’s Son Is Captured by Mexican Authorities for 2nd Time**\
 `The arrest of Ovidio Guzmán López was a victory for the Mexican government. He had been briefly detained in 2019, but was released after cartel gunmen overpowered law enforcement.`\
