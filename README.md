@@ -2,7 +2,7 @@
 `He was best known for his formal portraits of prominent politicians and entertainers. Less famously, he took thousands of candid shots of John, Paul, George and Ringo.`\
 https://nytimes.com/2023/01/05/arts/henry-grossman-dead.html?searchResultPosition=1
 
-**With Republicans in Disarray, the House Clerk is in Charge**\
+**With Republicans in Disarray, the House Clerk Is in Charge**\
 `As the Clerk of the House of Representatives, Cheryl L. Johnson has tried to keep lawmakers in order.`\
 https://nytimes.com/2023/01/05/us/politics/house-clerk-in-charge-cheryl-johnson.html?searchResultPosition=2
 
