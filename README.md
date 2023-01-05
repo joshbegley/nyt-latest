@@ -1,40 +1,40 @@
-**In his homily, the pope calls Benedict a ‘faithful friend’ of Jesus.**\
-`Pope Francis’ short speech honored the former pontiff, whose life’s work was meditating on the life of Jesus, and who faced many challenges before retiring in 2013.`\
-https://nytimes.com/2023/01/05/world/pope-francis-homily-benedict-funeral.html?searchResultPosition=1
+**How a Texas Border City Is Shaping the Future of Global Trade**\
+`Laredo, across from Mexico on the Rio Grande, is primed to become one of the world’s most important land ports as American companies reduce their reliance on factories in Asia.`\
+https://nytimes.com/2023/01/05/business/us-mexico-trade-laredo.html?searchResultPosition=1
 
-**The Funeral for the Pope Emeritus, in Photos**\
-`Benedict XVI was laid to rest in a ceremony that marked the end of an unusual arrangement during which he lived on the Vatican grounds after having resigned in 2013.`\
-https://nytimes.com/2023/01/05/world/europe/funeral-pope-benedict-photos.html?searchResultPosition=2
+**Robert Caro, Robert Gottlieb and the Art of the Edit**\
+`A 50-year literary partnership is the subject of a new documentary.`\
+https://nytimes.com/2023/01/05/opinion/robert-caro-robert-gottlieb-and-the-art-of-the-edit.html?searchResultPosition=2
 
-**Floods Show California’s Climate Dilemma: Fight the Water, or Pull Back?**\
-`As global warming brings more intense rainfall, experts say the state needs to give rivers more room to flood safely. But the obstacles are enormous.`\
-https://nytimes.com/2023/01/05/climate/california-floods-drought-preparedness.html?searchResultPosition=3
+**‘This Is What We Do While We’re Waiting for the World to Change’**\
+`The writer Tracy Kidder follows Dr. Jim O’Connell’s long crusade to care for Boston’s homeless.`\
+https://nytimes.com/2023/01/05/magazine/this-is-what-we-do-while-were-waiting-for-the-world-to-change.html?searchResultPosition=3
 
-**Six Reasons to Get Excited About Fashion in 2023**\
-`Yayoi Kusama. Gucci. Barbie. The coronation. What will matter to your wardrobe this year?`\
-https://nytimes.com/2023/01/05/style/fashion-preview-2023.html?searchResultPosition=4
+**A (Bitter) Winter Love Letter**\
+`An artist reflects on enduring a winter in New York City.`\
+https://nytimes.com/2023/01/05/arts/winter-love-letter.html?searchResultPosition=4
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/01/05/crosswords/spelling-bee-forum.html?searchResultPosition=5
+**Inside South Korea’s Art-Mad Capital**\
+`The inaugural Frieze Seoul fair was one sign of the city’s ascent. Now a dealer invasion is underway and artists are navigating a new landscape, as competition heats up.`\
+https://nytimes.com/2023/01/05/arts/design/seoul-art-gallery-museum-korea.html?searchResultPosition=5
 
-**Crossing the Line**\
-`What do you think this image is communicating?`\
-https://nytimes.com/2023/01/05/learning/crossing-the-line.html?searchResultPosition=6
+**Prayers for Damar Hamlin Show Bond Between Football and Faith**\
+`Christianity is embedded in N.F.L. culture in a way that goes beyond most sports; “Lord, I need you, please be by my side.”`\
+https://nytimes.com/2023/01/05/us/damar-hamlin-prayers-football-religion.html?searchResultPosition=6
 
-**Watch Live: Pope Emeritus Benedict XVI Is Laid to Rest in the Vatican**\
-`Pope Francis presides over the funeral of Pope Emeritus Benedict XVI on the steps of St. Peter’s Basilica.`\
-https://nytimes.com/video/embedded/world/europe/100000008713366/pope-benedict-funeral.html?searchResultPosition=7
+**‘Nobody Is in Charge’: A Ragged G.O.P. Stumbles Through the Wilderness**\
+`With no unified agenda or clear leadership, Republicans face the prospect that the anti-establishment fervor that has powered the party in recent years could now devour it.`\
+https://nytimes.com/2023/01/05/us/politics/republican-party-leadership.html?searchResultPosition=7
 
-**Word of the Day: reproach**\
-`This word has appeared in 35 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/01/05/learning/word-of-the-day-reproach.html?searchResultPosition=8
+**A Black Composer’s Legacy Flourishes 500 Years After His Birth**\
+`The reputation of Vicente Lusitano, one of the earliest known composers of African descent active in Europe, was thwarted for centuries.`\
+https://nytimes.com/2023/01/05/arts/music/vincente-lusitano.html?searchResultPosition=8
 
-**Jimmy Kimmel Roasts Kevin McCarthy as He Falls Short, Again**\
-`Kimmel joked that the “last time a Kevin felt this abandoned in his house was in the movie ‘Home Alone.’”`\
-https://nytimes.com/2023/01/05/arts/television/jimmy-kimmel-kevin-mccarthy.html?searchResultPosition=9
+**That Mocktail Costs How Much?**\
+`Gulp.`\
+https://nytimes.com/2023/01/05/style/nonalcoholic-cocktails-mocktails.html?searchResultPosition=9
 
-**Covid Testing Rules Do Little More Than Stoke Anti-Asian Hate**\
-`The policy for Chinese travelers relies on racial bias rather than science.`\
-https://nytimes.com/2023/01/05/opinion/covid-testing-rules-china-usa.html?searchResultPosition=10
+**Why the Fringiest Fringe of the G.O.P. Now Has So Much Power Over the Party**\
+`Kevin McCarthy looks like the latest victim of the new forces of fragmentation in American politics. `\
+https://nytimes.com/2023/01/05/opinion/kevin-mccarthy-republican-speaker.html?searchResultPosition=10
 
