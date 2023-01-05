@@ -2,7 +2,7 @@
 `Pope Francis’ short speech honored the former pontiff, whose life’s work was meditating on the life of Jesus, and who faced many challenges before retiring in 2013.`\
 https://nytimes.com/2023/01/05/world/pope-francis-homily-benedict-funeral.html?searchResultPosition=1
 
-**The Funeral for the Pope Emeritus**\
+**The Funeral for the Pope Emeritus, in Photos**\
 `Benedict XVI was laid to rest in a ceremony that marked the end of an unusual arrangement during which he lived on the Vatican grounds after having resigned in 2013.`\
 https://nytimes.com/2023/01/05/world/europe/funeral-pope-benedict-photos.html?searchResultPosition=2
 
