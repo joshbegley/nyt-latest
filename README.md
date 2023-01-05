@@ -24,7 +24,7 @@ https://nytimes.com/2023/01/05/learning/crossing-the-line.html?searchResultPosit
 
 **Watch Live: Pope Emeritus Benedict XVI Is Laid to Rest in the Vatican**\
 `Pope Francis presides over the funeral of Pope Emeritus Benedict XVI on the steps of St. Peter’s Basilica.`\
-https://nytimes.com/video/world/europe/100000008713366/pope-benedict-funeral.html?searchResultPosition=7
+https://nytimes.com/video/embedded/world/europe/100000008713366/pope-benedict-funeral.html?searchResultPosition=7
 
 **Word of the Day: reproach**\
 `This word has appeared in 35 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
