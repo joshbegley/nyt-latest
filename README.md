@@ -15,7 +15,7 @@ https://nytimes.com/2023/01/05/movies/raul-castillo-inspection.html?searchResult
 https://nytimes.com/2023/01/05/theater/peter-pan-goes-wrong-broadway.html?searchResultPosition=4
 
 **Bed Bath & Beyond Warns of Potential Bankruptcy**\
-`The home goods retailer said weak sales and slower foot traffic had forced it to consider options for restructuring, including bankruptcy.`\
+`The home goods retailer said weak sales and slower foot traffic had forced it to consider options for restructuring.`\
 https://nytimes.com/2023/01/05/business/bed-bath-beyond-bankruptcy.html?searchResultPosition=5
 
 **Russia issues the first pardons to prisoners who fought in Ukraine, state media reports.**\
