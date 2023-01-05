@@ -28,7 +28,7 @@ https://nytimes.com/2023/01/05/opinion/robert-caro-robert-gottlieb-and-the-art-o
 
 **‘This Is What We Do While We’re Waiting for the World to Change’**\
 `The writer Tracy Kidder follows Dr. Jim O’Connell’s long crusade to care for Boston’s homeless.`\
-https://nytimes.com/2023/01/05/magazine/this-is-what-we-do-while-were-waiting-for-the-world-to-change.html?searchResultPosition=8
+https://nytimes.com/2023/01/05/magazine/boston-homeless-dr-jim-oconnell.html?searchResultPosition=8
 
 **A (Bitter) Winter Love Letter**\
 `An artist reflects on enduring a winter in New York City.`\
