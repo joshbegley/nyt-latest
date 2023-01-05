@@ -1,5 +1,5 @@
 **Bed Bath & Beyond Has ‘Substantial Doubt’ About Its Future**\
-`The home goods retailer said weak sales and slower foot traffic has forced it to consider options for restructuring, including bankruptcy.`\
+`The home goods retailer said weak sales and slower foot traffic had forced it to consider options for restructuring, including bankruptcy.`\
 https://nytimes.com/2023/01/05/business/bed-bath-beyond-bankruptcy.html?searchResultPosition=1
 
 **Russia issues the first pardons to prisoners who fought in Ukraine, state media reports.**\
