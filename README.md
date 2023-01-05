@@ -28,7 +28,7 @@ https://nytimes.com/2023/01/05/us/politics/senator-bob-casey-democrat-cancer.htm
 
 **California Could See Rain and High Winds for Days**\
 `Here is a day-by-day look at what to expect.`\
-https://nytimes.com/2023/01/05/us/california-weather-forecast-rain-wind.html?searchResultPosition=8
+https://nytimes.com/article/california-weather-forecast-rain-wind.html?searchResultPosition=8
 
 **Mercedes-Benz Plans to Build U.S. Electric Car Charging Network**\
 `The network could help increase the low number of charging stations, encouraging more people to buy electric vehicles.`\
