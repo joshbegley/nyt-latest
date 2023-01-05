@@ -1,4 +1,4 @@
-**Day 4: Why you should write a ‘living eulogy’**\
+**Day 4: Why You Should Write a ‘Living Eulogy’**\
 `Happy people express their gratitude for others.`\
 https://nytimes.com/2023/01/04/well/gratitude-letter-happiness-challenge.html?searchResultPosition=1
 
