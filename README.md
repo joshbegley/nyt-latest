@@ -1,4 +1,4 @@
-**‘Ohio State Murders,’ Starring Audra MacDonald, to Close on Broadway**\
+**‘Ohio State Murders,’ Starring Audra McDonald, to Close on Broadway**\
 `The 75-minute memory play by Adrienne Kennedy had been scheduled to run until Feb. 12; it will close on Jan. 15.`\
 https://nytimes.com/2023/01/05/theater/ohio-state-murders-broadway-closing.html?searchResultPosition=1
 
