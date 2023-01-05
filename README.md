@@ -2,7 +2,7 @@
 `The farce, by the team behind “The Play That Goes Wrong,” is about a bumbling theater company attempting to stage the popular children’s play.`\
 https://nytimes.com/2023/01/05/theater/peter-pan-goes-wrong-broadway.html?searchResultPosition=1
 
-**Bed Bath & Beyond Has ‘Substantial Doubt’ About Its Future**\
+**Bed Bath & Beyond Warns of Potential Bankruptcy**\
 `The home goods retailer said weak sales and slower foot traffic had forced it to consider options for restructuring, including bankruptcy.`\
 https://nytimes.com/2023/01/05/business/bed-bath-beyond-bankruptcy.html?searchResultPosition=2
 
