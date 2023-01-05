@@ -1,6 +1,6 @@
 **Winter TV: 24 Shows to Keep an Eye On**\
 `That downturn in streaming content that you’ve been hearing about? Not here yet.`\
-https://nytimes.com/2023/01/05/arts/television/new-tv-shows-to-watch.html?searchResultPosition=1
+https://nytimes.com/2023/01/05/arts/television/winter-tv-shows-premieres.html?searchResultPosition=1
 
 **Lesson Plan: A House Without a Speaker**\
 `House Republicans began their new majority rule by failing to elect a speaker. The infighting has exposed a big rift in the party. What does that mean for the nation and you?`\
