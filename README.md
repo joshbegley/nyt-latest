@@ -10,7 +10,7 @@ https://nytimes.com/2023/01/04/pageoneplus/quotation-of-the-day-golden-gays-retu
 `Corrections that appeared in print on Thursday, Jan. 5, 2023.`\
 https://nytimes.com/2023/01/04/pageoneplus/corrections-jan-5-2023.html?searchResultPosition=3
 
-**8 People, Including 5 Children, Are Found Fatally Shot at Utah Home, Police Say**\
+**Family of 8, Including 5 Children, Found Shot to Death in Utah Home, Police Say**\
 `The Police Department in Enoch City, Utah, said officers had responded to the home for a welfare check on Wednesday. The authorities said they did not believe that any suspects were at large.`\
 https://nytimes.com/2023/01/04/us/enoch-utah-shooting-dead.html?searchResultPosition=4
 
