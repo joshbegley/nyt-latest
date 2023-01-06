@@ -23,7 +23,7 @@ https://nytimes.com/2023/01/06/realestate/washington-heights-audubon-terrace-his
 https://nytimes.com/2023/01/06/business/southwest-airlines-meltdown-costs-reimbursement.html?searchResultPosition=6
 
 **Hell and High Water: California’s Wild Weather Uproots Trees, Strains State**\
-`Pounding rainstorms following an epic drought leave thousands of broken trees that batter roads, levees and neighborhoods`\
+`Pounding rainstorms following an epic drought leave thousands of broken trees that batter roads, levees and neighborhoods.`\
 https://nytimes.com/2023/01/06/us/california-storms-trees.html?searchResultPosition=7
 
 **China’s Covid Surge Threatens Villages as Lunar New Year Approaches**\
