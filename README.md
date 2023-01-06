@@ -15,7 +15,7 @@ https://nytimes.com/2023/01/05/sports/football/michigan-state-khary-crump-tunnel
 https://nytimes.com/2023/01/05/well/work-friends-happiness-challenge.html?searchResultPosition=4
 
 **Major Crimes Rose 22 Percent in New York City, Even as Shootings Fell**\
-`Homicides fell to their lowest level since 2019, before the pandemic, but other categories of crime, including robbery and burglary, drove the overall increase compared to last year.`\
+`Homicides fell to their lowest level since 2019, before the pandemic, but other categories of crime, including robbery and burglary, drove the overall increase compared with last year.`\
 https://nytimes.com/2023/01/05/nyregion/new-york-crime-stats.html?searchResultPosition=5
 
 **N.F.L. Cancels Bills-Bengals Game**\
