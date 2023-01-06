@@ -1,40 +1,40 @@
+**Corrections: Jan. 6, 2023**\
+`Corrections that appeared in print on Friday, Jan. 6, 2023.`\
+https://nytimes.com/2023/01/06/pageoneplus/corrections-jan-6-2023.html?searchResultPosition=1
+
+**Quotation of the Day: Era of 2 Popes Is Laid to Rest, If Not Its Rifts**\
+`Quotation of the Day for Friday, Jan. 6, 2023.`\
+https://nytimes.com/2023/01/06/pageoneplus/quotation-of-the-day-era-of-2-popes-is-laid-to-rest-if-not-its-rifts.html?searchResultPosition=2
+
+**Across Continents, Two Doctors Find Romance**\
+`Dr. Femi Kuti and Dr. Ugochi Nwosu met in the Bay Area but soon entered a relationship that stretched from Lagos, Nigeria, to the United States.`\
+https://nytimes.com/2023/01/06/style/ugochi-nwosu-femi-kuti-wedding.html?searchResultPosition=3
+
+**A Web Between Her Body and Mine**\
+`For decades we connected nearly every day. One terrible moment changed all that.`\
+https://nytimes.com/2023/01/06/style/modern-love-a-web-between-her-body-and-mine.html?searchResultPosition=4
+
+**Pajamas and Wet Hair Led to Love at First Sight**\
+`When Erik Ostberg spotted Grey O’Reilly on a couch, he said, “I loved everything about what I saw.”`\
+https://nytimes.com/2023/01/06/style/erik-ostberg-grey-oreilly-wedding.html?searchResultPosition=5
+
+**A Train Mix-Up Leads to an Unexpected Connection**\
+`Elizabeth Gregory and Charles Aoki bonded while waiting on the platform for almost an hour for the wrong train.`\
+https://nytimes.com/2023/01/06/style/elizabeth-gregory-charles-aoki-wedding.html?searchResultPosition=6
+
+**Finding Love Through the Art of Combat**\
+`Meg He felt an immediate connection with Margot Ciccarelli during a private jiu-jitsu lesson more than three years ago.`\
+https://nytimes.com/2023/01/06/style/meg-he-margot-ciccarelli-wedding.html?searchResultPosition=7
+
 **Democrats Face Obstacles in Plan to Reorder Presidential Primary Calendar**\
 `The party is radically reshuffling the early-state order, but Georgia and New Hampshire present challenges.`\
-https://nytimes.com/2023/01/05/us/politics/democrats-primary-calendar.html?searchResultPosition=1
+https://nytimes.com/2023/01/05/us/politics/democrats-primary-calendar.html?searchResultPosition=8
 
 **Variety: Building Blocks**\
 `Will Shortz provides the materials for three intricate structures.`\
-https://nytimes.com/2023/01/05/crosswords/variety-building-blocks.html?searchResultPosition=2
+https://nytimes.com/2023/01/05/crosswords/variety-building-blocks.html?searchResultPosition=9
 
 **Pet Dogs and Cats**\
 `Erica Hsiung Wojcik opens our solving weekend.`\
-https://nytimes.com/2023/01/05/crosswords/daily-puzzle-2023-01-06.html?searchResultPosition=3
-
-**Michigan State Football Player Who Hit Rival Pleads Guilty to Misdemeanors**\
-`On Oct. 29, Khary Crump, a cornerback for the Spartans, swung his helmet and hit an opposing player inside Michigan Stadium.`\
-https://nytimes.com/2023/01/05/sports/football/michigan-state-khary-crump-tunnel-guilty.html?searchResultPosition=4
-
-**Day 5: The Importance of Work Friends**\
-`People who are close to their colleagues are happier and more productive.`\
-https://nytimes.com/2023/01/05/well/work-friends-happiness-challenge.html?searchResultPosition=5
-
-**Major Crimes Rose 22 Percent in New York City, Even as Shootings Fell**\
-`Homicides fell last year to their lowest level since 2019, before the pandemic, but other categories of crime, including robbery and burglary, drove the overall increase compared with 2021.`\
-https://nytimes.com/2023/01/05/nyregion/new-york-crime-stats.html?searchResultPosition=6
-
-**N.F.L. Cancels Bills-Bengals Game**\
-`The league announced that it would not resume the Monday night matchup that was postponed after Buffalo safety Damar Hamlin collapsed on the field in Cincinnati.`\
-https://nytimes.com/2023/01/05/sports/football/bills-bengals-game-canceled.html?searchResultPosition=7
-
-**U.F.C. and Partners Reluctant to Speak On Dana White Slapping His Wife**\
-`White, the president of the U.F.C., slapped his wife during an argument at a nightclub on Jan. 1. Since then, he has faced almost no consequences.`\
-https://nytimes.com/2023/01/05/sports/dana-white-slap-wife-ufc.html?searchResultPosition=8
-
-**Chaos in House Rolls On: ‘I’m Never Getting Sworn In, Am I?’**\
-`Near collisions abound on Capitol Hill as House members make history in failing to elect a speaker after three days and more than 10 futile votes.`\
-https://nytimes.com/2023/01/05/us/politics/speaker-election-house-media.html?searchResultPosition=9
-
-**Putin Calls a 36-Hour Cease-Fire, but Ukraine and U.S. Are Skeptical**\
-`The cease-fire would coincide with the Eastern Orthodox Christmas on Saturday, but Kremlin adversaries and some analysts call it a ploy for military and political advantage.`\
-https://nytimes.com/2023/01/05/world/europe/russia-ukraine-ceasefire.html?searchResultPosition=10
+https://nytimes.com/2023/01/05/crosswords/daily-puzzle-2023-01-06.html?searchResultPosition=10
 
