@@ -1,6 +1,6 @@
 **Márcio Freire, Renowned Brazilian Surfer, Dies in Portugal’s Nazaré**\
 `Mr. Freire began surfing at an early age and starred in a 2016 documentary on the sport. He was 47.`\
-https://nytimes.com/2023/01/06/world/europe/brazilian-surfer-marcio-freire-dies-portugal-nazare.html?searchResultPosition=1
+https://nytimes.com/2023/01/06/world/europe/surfer-marcio-freire-dead.html?searchResultPosition=1
 
 **7 Songs We Nearly Missed in 2022**\
 `Hear tracks by Flo, Becky G and Karol G, Monster and Big Flock and more.`\
