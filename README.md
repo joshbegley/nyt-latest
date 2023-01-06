@@ -1,6 +1,6 @@
 **U.F.C. and Partners Reluctant to Speak On Dana White Slapping His Wife**\
 `White, the president of the U.F.C., slapped his wife during an argument at a nightclub on Jan. 1. Since then, he has faced almost no consequences.`\
-https://nytimes.com/2023/01/05/sports/ufc-and-partners-reluctant-to-speak-on-dana-white-slapping-his-wife.html?searchResultPosition=1
+https://nytimes.com/2023/01/05/sports/dana-white-slap-wife-ufc.html?searchResultPosition=1
 
 **Chaos in House Rolls On: ‘I’m Never Getting Sworn In, Am I?’**\
 `Near collisions abound on Capitol Hill as House members make history in failing to elect a speaker after three days and more than 10 futile votes.`\
