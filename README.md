@@ -18,8 +18,8 @@ https://nytimes.com/2023/01/06/climate/bears-hunting-alaska-doughnuts.html?searc
 `President Biden marked the second anniversary of the Jan. 6 attack by awarding the Presidential Citizens Medal to 14 people.`\
 https://nytimes.com/2023/01/06/us/politics/biden-jan-6-presidential-citizens-medal.html?searchResultPosition=5
 
-**Judge Blocks Pay Raise for Uber and Other For-Hire Drivers**\
-`The judge expressed sympathy for drivers but said that the Taxi and Limousine Commission had not supported its case for the raise.`\
+**Uber Doesn’t Have to Raise New York City Drivers’ Pay, Judge Rules**\
+`The judge sympathized with drivers for Uber and other ride-hail companies but said that the Taxi and Limousine Commission had not supported its case for the raise.`\
 https://nytimes.com/2023/01/06/nyregion/uber-lyft-driver-pay.html?searchResultPosition=6
 
 **Far-Right Critics Vex McCarthy in His Bakersfield District, Too**\
