@@ -1,6 +1,6 @@
 **S.E.C. Inquiry Into Former Senator’s Stock Sales Is Closed Without Charges**\
 `The Securities and Exchange Commission ended its investigation into former Senator Richard Burr, three years after he sold more than $1.6 million in stocks following Covid-19 briefings.`\
-https://nytimes.com/2023/01/06/business/burr-sec-inquiry-closed.html?searchResultPosition=1
+https://nytimes.com/2023/01/06/us/politics/burr-sec-inquiry-closed.html?searchResultPosition=1
 
 **Art McNally, N.F.L.’s ‘Father of Instant Replay,’ Dies at 97**\
 `The first field official in the Pro Football Hall of Fame, he helped bring technology into the sport and kept his cool even in the face of angry coaches and players.`\
