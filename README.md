@@ -1,5 +1,5 @@
-**Facing Deadline, Dodgers Release Trevor Bauer**\
-`The team is still required to pay Bauer $22.5 million for 2023 even after cutting ties with the pitcher who was found to have violated M.L.B.’s domestic violence policy.`\
+**Facing Deadline, Dodgers Cut Ties With Trevor Bauer**\
+`The team is still required to pay Bauer $22.5 million for 2023 even after designating him for assignment. The pitcher was found to have violated M.L.B.’s domestic violence policy.`\
 https://nytimes.com/2023/01/06/sports/baseball/trevor-bauer-dodgers-released.html?searchResultPosition=1
 
 **Hamlin’s Cardiac Arrest Highlights Danger Across Sports**\
