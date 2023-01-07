@@ -11,7 +11,7 @@ https://nytimes.com/2023/01/07/sports/football/joseph-torg-dead.html?searchResul
 https://nytimes.com/2023/01/07/us/politics/mccarthy-speaker-rules-house.html?searchResultPosition=3
 
 **From Gingrich to McCarthy, the Roots of Governance by Chaos**\
-`Mr. Gingrich began the zero-sum politics that mutated into the Tea Party to Trump M.A.G.A. Republicans to the raucous five-day stretch in the House that ended early Saturday.`\
+`Mr. Gingrich began the zero-sum politics that mutated into the Tea Party and Trump M.A.G.A. Republicans and presaged the raucous, multiday speaker battle in the House.`\
 https://nytimes.com/2023/01/07/us/politics/speaker-mccarthy-gingrich-trump.html?searchResultPosition=4
 
 **Detained Journalist’s Hunger Strike Highlights Press Freedom Woes in Senegal**\
