@@ -26,8 +26,8 @@ https://nytimes.com/2023/01/06/us/politics/mccarthy-trump-republicans.html?searc
 `Fourteen people who fought the violent mob at the Capitol two years ago and stood against election denialism in 2020 were awarded the Presidential Citizens Medal.`\
 https://nytimes.com/video/us/politics/100000008717800/biden-jan-6-presidential-citizens-medal.html?searchResultPosition=7
 
-**McCarthy, All Carrots and No Sticks, Grinned His Way to the Speakership**\
-`The Republican leader’s sheer willingness to endure vote after vote against him — even as he offered a slew of concessions — delivered him the top post.`\
+**McCarthy, All Carrots and No Sticks, Tries to Grin His Way to the Speakership**\
+`The Republican leader’s sheer willingness to endure vote after vote against him — even as he offered a slew of concessions — was moving closer to paying off.`\
 https://nytimes.com/2023/01/06/us/politics/mccarthy-affable-and-malleable-is-compromising-his-way-to-the-speakership.html?searchResultPosition=8
 
 **Facing Deadline, Dodgers Cut Ties With Trevor Bauer**\
