@@ -4,7 +4,7 @@ https://nytimes.com/2023/01/07/opinion/letters/doctors-emergency-room.html?searc
 
 **Mali Pardons Ivorian Soldiers It Had Sentenced to 20 Years in Prison**\
 `Ivory Coast had said the 49 soldiers were in Mali to provide security for a United Nations peacekeeping mission, but Mali had accused them of being mercenaries.`\
-https://nytimes.com/2023/01/07/world/europe/mali-pardons-ivorian-soldiers.html?searchResultPosition=2
+https://nytimes.com/2023/01/07/world/africa/mali-pardons-ivorian-soldiers.html?searchResultPosition=2
 
 **U.S.D.A. Approves First Vaccine for Honeybees**\
 `Dalan Animal Health’s vaccine for American foulbrood, an aggressive bacterial disease, is the first for any insect in the United States.`\
