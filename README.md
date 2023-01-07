@@ -19,7 +19,7 @@ https://nytimes.com/video/us/politics/100000008717800/biden-jan-6-presidential-c
 https://nytimes.com/2023/01/06/us/politics/mccarthy-affable-and-malleable-is-compromising-his-way-to-the-speakership.html?searchResultPosition=5
 
 **Facing Deadline, Dodgers Cut Ties With Trevor Bauer**\
-`The team is still required to pay Bauer $22.5 million for 2023 even after designating him for assignment. The pitcher was found to have violated M.L.B.’s domestic violence policy.`\
+`The team is still required to pay Bauer $22.5 million for 2023 even after stating he will not play for them. The pitcher was found to have violated M.L.B.’s domestic violence policy.`\
 https://nytimes.com/2023/01/06/sports/baseball/trevor-bauer-dodgers-released.html?searchResultPosition=6
 
 **Hamlin’s Cardiac Arrest Highlights Danger Across Sports**\
