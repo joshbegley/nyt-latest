@@ -1,6 +1,6 @@
 **In Speaker Fight’s Final Hours, Arm-Twisting, Flaring Tempers and Calls from Trump**\
 `Speaker Kevin McCarthy’s slog to his post ended with a remarkably public show of intraparty strife that played out in a history-making overnight session.`\
-https://nytimes.com/2023/01/07/us/politics/mccarthy-gaetz-speaker-trump.html?searchResultPosition=1
+https://nytimes.com/2023/01/07/us/politics/kevin-mccarthy-house-speaker-gaetz-trump.html?searchResultPosition=1
 
 **Damar Hamlin and the Existential Crisis of ‘Monday Night Football’**\
 `Fans are used to seeing gruesome injuries. But there was no media playbook for what happened to Hamlin.`\
