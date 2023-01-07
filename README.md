@@ -1,4 +1,4 @@
-**After a dramatic 14th vote, Trump calls holdouts who refused to back McCarthy.**\
+**After Dramatic 14th Vote, Trump Calls Holdouts Who Refused to Back McCarthy**\
 `The former president made crucially timed calls to Representative Matt Gaetz and others who sunk McCarthy’s 14th effort to be elected House speaker.`\
 https://nytimes.com/2023/01/06/us/politics/trump-calls-gaetz-mccarthy.html?searchResultPosition=1
 
