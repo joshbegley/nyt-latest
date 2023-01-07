@@ -14,23 +14,23 @@ https://nytimes.com/2023/01/06/us/politics/mccarthy-trump-republicans.html?searc
 `Fourteen people who fought the violent mob at the Capitol two years ago and stood against election denialism in 2020 were awarded the Presidential Citizens Medal.`\
 https://nytimes.com/video/us/politics/100000008717800/biden-jan-6-presidential-citizens-medal.html?searchResultPosition=4
 
+**McCarthy, All Carrots and No Sticks, Grins His Way Toward the Speakership**\
+`The Republican leader’s sheer willingness to endure vote after vote against him — even as he offered a slew of concessions — appeared to be on the brink of paying off.`\
+https://nytimes.com/2023/01/06/us/politics/mccarthy-affable-and-malleable-is-compromising-his-way-to-the-speakership.html?searchResultPosition=5
+
 **Facing Deadline, Dodgers Cut Ties With Trevor Bauer**\
 `The team is still required to pay Bauer $22.5 million for 2023 even after designating him for assignment. The pitcher was found to have violated M.L.B.’s domestic violence policy.`\
-https://nytimes.com/2023/01/06/sports/baseball/trevor-bauer-dodgers-released.html?searchResultPosition=5
+https://nytimes.com/2023/01/06/sports/baseball/trevor-bauer-dodgers-released.html?searchResultPosition=6
 
 **Hamlin’s Cardiac Arrest Highlights Danger Across Sports**\
 `The collapse of Damar Hamlin of the Buffalo Bills has brought attention to sudden cardiac arrest and the need for the proper medical care and equipment from youth leagues to the professional ranks.`\
-https://nytimes.com/2023/01/06/sports/damar-hamlin-cardiac-arrest.html?searchResultPosition=6
+https://nytimes.com/2023/01/06/sports/damar-hamlin-cardiac-arrest.html?searchResultPosition=7
 
 **Republicans Can’t Decide Whether to Woo or Condemn Young Voters**\
 `As Democrats keep winning millennials and Gen Z, Republicans are still debating how to get them back.`\
-https://nytimes.com/2023/01/06/us/politics/republicans-young-voters.html?searchResultPosition=7
+https://nytimes.com/2023/01/06/us/politics/republicans-young-voters.html?searchResultPosition=8
 
 **The Toll of Capturing El Chapo’s Son: 10 Soldiers, 19 Cartel Members Dead**\
 `After troops arrested a son of the notorious drug lord known as El Chapo, cartel gunmen tried to free him, resulting in a series of gun battles and thousands of troops called into the fight.`\
-https://nytimes.com/2023/01/06/world/americas/mexico-capture-chapo-deaths.html?searchResultPosition=9
-
-**Idaho Supreme Court Upholds Abortion Bans**\
-`The justices found that the state’s Constitution does not include a right to the procedure, bringing an end to a monthslong legal battle.`\
-https://nytimes.com/2023/01/06/us/idaho-supreme-court-abortion-bans.html?searchResultPosition=10
+https://nytimes.com/2023/01/06/world/americas/mexico-capture-chapo-deaths.html?searchResultPosition=10
 
