@@ -30,8 +30,8 @@ https://nytimes.com/2023/01/08/opinion/grant-wahl-celine-gounder-vaccine.html?se
 `Why the return of colonial art is a powerful and necessary statement.`\
 https://nytimes.com/2023/01/08/opinion/benin-bronzes-germany.html?searchResultPosition=8
 
-**‘Where’s My Flying Car?’ Is a Legitimate Question**\
-`The dystopia we fear is keeping us from the utopia we deserve.`\
+**The Dystopia We Fear Is Keeping Us From the Utopia We Deserve**\
+`We’ve lost sight of the world that abundant, clean energy could make possible.`\
 https://nytimes.com/2023/01/08/opinion/nuclear-fusion-flying-cars.html?searchResultPosition=9
 
 **Damar Hamlin and the Beautiful Terror of Loving Football**\
