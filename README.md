@@ -15,7 +15,7 @@ https://nytimes.com/2023/01/08/world/africa/senegal-bus-crash.html?searchResultP
 https://nytimes.com/2023/01/08/us/california-storms-weather-power-outage.html?searchResultPosition=4
 
 **Bills Score on Opening Kickoff in First Game Since Hamlin’s Collapse**\
-`Nyheim Hines returned the kick 96 yards to score in the opening seconds of Buffalo’s game against the New England Patriots.`\
+`Emotions ran high as Nyheim Hines returned the kick 96 yards to score in the opening seconds of Buffalo’s game against the New England Patriots.`\
 https://nytimes.com/2023/01/08/sports/football/buffalo-bills-patriots-game.html?searchResultPosition=5
 
 **China Drops Its Covid Quarantine Requirements for Incoming Travelers**\
