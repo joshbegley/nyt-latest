@@ -20,7 +20,7 @@ https://nytimes.com/2023/01/08/us/california-storms-weather-power-outage.html?se
 
 **Bills Score on Opening Kickoff in First Game Since Hamlin’s Collapse**\
 `Emotions ran high as Nyheim Hines returned the kick 96 yards to score in the opening seconds of Buffalo’s game against the New England Patriots.`\
-https://nytimes.com/2023/01/08/sports/football/buffalo-bills-patriots-game.html?searchResultPosition=6
+https://nytimes.com/2023/01/08/sports/football/buffalo-bills-hines-return.html?searchResultPosition=6
 
 **China Drops Its Covid Quarantine Requirements for Incoming Travelers**\
 `Chinese citizens and international visitors were welcomed into mainland China as the country fully opened its borders for the first time since the coronavirus pandemic began.`\
