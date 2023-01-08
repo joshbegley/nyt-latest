@@ -1,6 +1,6 @@
 **As Historians Gather, No Truce in the History Wars**\
 `At the annual meeting of the American Historian Association, the raging battle over how to write about the past — and why — was uncomfortably front and center.`\
-https://nytimes.com/2023/01/08/arts/08history-wars-james-sweet.html?searchResultPosition=1
+https://nytimes.com/2023/01/08/arts/american-historical-association-james-sweet.html?searchResultPosition=1
 
 **Matt Shultz, Cage the Elephant Singer, Arrested on Weapons Charges**\
 `Mr. Shultz, 39, was seen pulling a gun out of his pocket in a public restroom at a Manhattan hotel, the authorities said.`\
