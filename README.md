@@ -1,4 +1,4 @@
-**Avalanche Buries and Kills Two Colorado Snowmobilers**\
+**Two Snowmobilers Killed in Colorado Avalanche**\
 `Dog and helicopter rescue teams helped with the weekend searches near Winter Park, Colo. The danger of avalanche conditions in the area was “considerable” on Saturday.`\
 https://nytimes.com/2023/01/08/us/colorado-avalanche-deaths.html?searchResultPosition=1
 
