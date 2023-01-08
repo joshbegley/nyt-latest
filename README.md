@@ -1,4 +1,4 @@
-**Unwanted Linebacker on T.C.U.’s Unlikely Cast in C.F.P. Title Game**\
+**Unwanted Linebacker on T.C.U.’s Unlikely Cast in College Title Game**\
 `Johnny Hodges transferred to Texas Christian from Navy after numerous rejections. On Monday, he’ll play in the College Football Playoff national championship game against Georgia.`\
 https://nytimes.com/2023/01/08/sports/ncaafootball/tcu-georgia-cfp-championship.html?searchResultPosition=1
 
