@@ -15,7 +15,7 @@ https://nytimes.com/2023/01/08/world/americas/brazil-jan-6-riots.html?searchResu
 https://nytimes.com/2023/01/08/world/americas/brazil-protests-videos.html?searchResultPosition=4
 
 **Bolsonaro Supporters Lay Siege to Brazil’s Capital**\
-`Thousands of supporters of former President Jair Bolsonaro invaded Brazil’s Congress, presidential offices and Supreme Court, denouncing what they falsely claim was a rigged election.`\
+`Backers of former President Jair Bolsonaro ransacked government offices, denouncing what they falsely claim was a rigged election. Hundreds were arrested.`\
 https://nytimes.com/2023/01/08/world/americas/brazil-election-protests-bolsonaro.html?searchResultPosition=5
 
 **Who is Jair Bolsonaro?**\
