@@ -19,7 +19,7 @@ https://nytimes.com/2023/01/09/style/nonbinary-professional-work-attire.html?sea
 https://nytimes.com/2023/01/09/nyregion/twin-parks-fire-bronx-safety.html?searchResultPosition=5
 
 **Football Is Deadly, but Not for the Reasons You Think**\
-`By Chris Nowinski`\
+`While the risks do not end on the field, the medical care often does. `\
 https://nytimes.com/2023/01/09/opinion/football-health-injury-concussion.html?searchResultPosition=6
 
 **A.I. Turns Its Artistry to Creating New Human Proteins**\
