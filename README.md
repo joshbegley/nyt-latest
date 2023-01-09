@@ -4,7 +4,7 @@ https://nytimes.com/2023/01/09/arts/music/sza-sos-billboard-chart.html?searchRes
 
 **French Food Giant Danone Sued Over Plastic Use Under Landmark Law**\
 `Environmental groups are relying on a law in France requiring large companies to address their environmental footprint.`\
-https://nytimes.com/2023/01/09/world/europe/french-food-giant-danone-sued-over-plastic-use-under-landmark-law.html?searchResultPosition=2
+https://nytimes.com/2023/01/09/world/europe/danone-sued-plastic-use-france.html?searchResultPosition=2
 
 **Wall Street Braces for a Weak Earnings Season**\
 `Analysts have begun trimming their profit forecasts, with pronounced downgrades for growth at energy and financial firms.`\
