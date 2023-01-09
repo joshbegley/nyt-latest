@@ -1,4 +1,4 @@
-**Here’s What We Learned From Prince Harry’s Interviews**\
+**What We Learned From Prince Harry’s Interviews**\
 `Two days before the publication of his memoir, “Spare,” Harry appeared at ease and at times emotional in high-profile interviews in the United States and Britain.`\
 https://nytimes.com/2023/01/08/books/prince-harry-itv-60-minutes-interviews.html?searchResultPosition=1
 
