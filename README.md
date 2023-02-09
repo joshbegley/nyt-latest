@@ -1,40 +1,40 @@
-**12 Great Places to Drink Wine in London**\
-`It’s one of the world’s best cities for wine. You can find terrific lists in pubs, bars and all sorts of restaurants in almost any neighborhood.`\
-https://nytimes.com/2023/01/09/dining/drinks/london-wine.html?searchResultPosition=1
+**A Pigeon Was Dyed. Then It Died. Now the Police Are Investigating.**\
+`The artificially pink pigeon, nicknamed Flamingo, was thought to be a victim of a gender reveal stunt gone wrong. The New York City Police Department’s animal cruelty unit has opened an inquiry.`\
+https://nytimes.com/2023/02/09/nyregion/pink-pigeon-flamingo-gender-reveal.html?searchResultPosition=1
 
-**Was Louisa May Alcott a Transgender Man?**\
-`Readers write about the author of “Little Women.” Also: Brazil’s insurrection; credit for ghostwriters; law school rankings; resisting temptation.`\
-https://nytimes.com/2023/01/09/opinion/letters/louisa-may-alcott-transgender.html?searchResultPosition=2
+**Family of ‘Rust’ Cinematographer Sues Baldwin and Other Producers**\
+`Halyna Hutchins’s husband previously agreed to settle his lawsuit regarding the fatal on-set shooting. Now her parents and sister are suing producers and crew members.`\
+https://nytimes.com/2023/02/09/arts/alec-baldwin-lawsuit-halyna-hutchins.html?searchResultPosition=2
 
-**Czech Court Clears Ex-Prime Minister of Fraud in E.U. Funds Case**\
-`Andrej Babis, a billionaire agriculturalist, had been accused of illegally obtaining farm subsidies for one of his properties.`\
-https://nytimes.com/2023/01/09/world/europe/czech-babis-eu-subsidies.html?searchResultPosition=3
+**Alleva Dairy, a Little Italy Cheese Shop, Will Close After 130 Years**\
+`The Grand Street store, known for its fresh ricotta and mozzarella, owed more than $600,000 in back rent to its landlord.`\
+https://nytimes.com/2023/02/09/dining/alleva-dairy-closing-nyc.html?searchResultPosition=3
 
-**Texans’ Lovie Smith Fired as N.F.L. Coaches Come Under Review**\
-`Smith was the first coach terminated during the annual purge at the end of the regular season.`\
-https://nytimes.com/2023/01/09/sports/football/nfl-coaches-fired-smith-kingsbury.html?searchResultPosition=4
+**How M&M’s ‘Trendjacked’ the Super Bowl**\
+`Mars Wrigley has parlayed a controversy over “woke” M&M’s into what amounts to free advertising for the candy maker’s new spokeswoman, Maya Rudolph.`\
+https://nytimes.com/interactive/2023/02/09/business/trendjacking-superbowl-maya-rudolph.html?searchResultPosition=4
 
-**Has Prince Harry’s Confessional Tour Run Its Course?**\
-`Even in the United States, which has a high tolerance for redemptive stories about overcoming trauma and family dysfunction, the tide seems to be turning.`\
-https://nytimes.com/2023/01/09/books/prince-harry-book-royal-family.html?searchResultPosition=5
+**When a ‘Miracle’ Drug Is Out of Reach**\
+`People in poorer countries cannot get access to a revolutionary cystic fibrosis treatment.`\
+https://nytimes.com/interactive/2023/02/09/health/cystic-fibrosis-drug-vertex.html?searchResultPosition=5
 
-**SZA’s ‘SOS’ Holds Off Taylor Swift for a Fourth Week at No. 1**\
-`Both artists introduced new digital versions of their albums, bringing a tight race to a typically sleepy week on the Billboard charts.`\
-https://nytimes.com/2023/01/09/arts/music/sza-sos-billboard-chart.html?searchResultPosition=6
+**The Absolute Vermeer, in a Show More Precious Than Pearls**\
+`This blockbuster at the Rijksmuseum, never to be repeated, pares the sphinx of Dutch art to the essence: 28 gemlike paintings.`\
+https://nytimes.com/2023/02/09/arts/design/vermeer-painter-rijksmuseum-review.html?searchResultPosition=6
 
-**French Food Giant Danone Sued Over Plastic Use Under Landmark Law**\
-`Environmental groups are relying on a law in France requiring large companies to address their environmental footprint.`\
-https://nytimes.com/2023/01/09/world/europe/danone-sued-plastic-use-france.html?searchResultPosition=7
+**Energy Dept. Will Lend $2 Billion to a Battery Component Maker**\
+`The loan will help accelerate Redwood Materials’ plans to produce components for electric car batteries from new and recycled sources.`\
+https://nytimes.com/2023/02/09/business/redwood-materials-energy-department-loan.html?searchResultPosition=7
 
-**Wall Street Braces for a Weak Earnings Season**\
-`Analysts have begun trimming their profit forecasts, with pronounced downgrades for growth at energy and financial firms.`\
-https://nytimes.com/2023/01/09/business/wall-street-braces-for-a-weak-earnings-season.html?searchResultPosition=8
+**SpaceX Test Fires 31 Engines on the Most Powerful Rocket Ever**\
+`The ignition of the Super Heavy booster may set up an uncrewed orbital flight test next month of Starship, the company’s prototype spacecraft.`\
+https://nytimes.com/2023/02/09/science/spacex-starship-static-fire.html?searchResultPosition=8
 
-**How to Focus Like It’s 1990**\
-`Smartphones, pings and Insta-everything have shortened our attention spans. Get some old-school concentration back with these tips.`\
-https://nytimes.com/2023/01/09/well/mind/concentration-focus-distraction.html?searchResultPosition=9
+**As Aid Trickles Into Syria, Residents Say Too Little, Too Late**\
+`“Some people under ruins are sharing their wills with the team,” said one rescue worker. “They share names of their loved ones, then they die.”`\
+https://nytimes.com/2023/02/09/world/middleeast/syria-earthquake-aid.html?searchResultPosition=9
 
-**The Heartache of Being Sidelined From Your Favorite Sport**\
-`Sitting out during an injury can feel a lot like grief. Experts provide tips on how to handle it.`\
-https://nytimes.com/2023/01/09/well/move/sports-injury-recovery.html?searchResultPosition=10
+**Your Friday Briefing: 20,000 Dead in Turkey and Syria**\
+`Also, new U.S. information about China’s spy balloon and North Korea’s newest missile.`\
+https://nytimes.com/2023/02/09/briefing/syria-turkey-china-korea-asia.html?searchResultPosition=10
 
