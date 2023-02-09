@@ -1,6 +1,6 @@
 **What Was the Chinese Spy Balloon Trying to Collect?**\
 `Here is what we know about the balloon.`\
-https://nytimes.com/2023/02/09/us/politics/chinese-spy-balloon-mission.html?searchResultPosition=1
+https://nytimes.com/article/chinese-spy-balloon-mission.html?searchResultPosition=1
 
 **Florida Sports Board Removes Menstruation Questions From Medical Form**\
 `Responding to concerns about student privacy, high school athletics officials voted to remove questions about menstruation history from a medical form.`\
