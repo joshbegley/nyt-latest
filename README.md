@@ -1,5 +1,5 @@
 **N.B.A. Power Shifts to the West With Trade Frenzy**\
-`No move was bigger than Phoenix Suns’ agreement to trade for Kevin Durant. But the Lakers and Mavericks look stronger after deals of their own.`\
+`No move was bigger than Phoenix Suns’ trade for Kevin Durant. But the Lakers and Mavericks look stronger after deals of their own.`\
 https://nytimes.com/2023/02/09/sports/basketball/nba-trade-deadline.html?searchResultPosition=1
 
 **Pence Gets Subpoena From Special Counsel in Jan. 6 Investigation**\
