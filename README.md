@@ -8,7 +8,7 @@ https://nytimes.com/2023/02/10/world/europe/amsterdam-red-light-cannabis.html?se
 
 **Electric Vehicles Could Match Gasoline Cars on Price This Year**\
 `Competition, government incentives and falling raw material prices are making battery-powered cars more affordable sooner than expected.`\
-https://nytimes.com/2023/02/10/business/electric-vehicles-cost.html?searchResultPosition=3
+https://nytimes.com/2023/02/10/business/electric-vehicles-price-cost.html?searchResultPosition=3
 
 **6-Year-Old Among Those Killed in East Jerusalem Bus Stop Attack**\
 `A man drove a car into a group of people at a bus stop outside an Israeli settlement in East Jerusalem in what the police described as a terrorist attack.`\
