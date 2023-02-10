@@ -3,7 +3,7 @@
 https://nytimes.com/2023/02/09/sports/football/patrick-mahomes-nfl-mvp.html?searchResultPosition=1
 
 **Joe Klecko’s Hall of Fame Election Recalls Bygone Jets Era**\
-`The Jets did not make a single playoff appearance in the 1970s, but Klecko, as part of a defensive foursome called the Sack Exchange, he helped the team rise in the 1980s as its leaders.`\
+`The Jets did not make a single playoff appearance in the 1970s, but Klecko, as part of a defensive foursome called the Sack Exchange, helped the team rise in the 1980s as its leader.`\
 https://nytimes.com/2023/02/09/sports/jets-joe-klecko-pro-football-hall-of-fame.html?searchResultPosition=2
 
 **Variety: Acrostic**\
