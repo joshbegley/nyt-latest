@@ -27,7 +27,7 @@ https://nytimes.com/2023/02/10/us/california-trees-dying.html?searchResultPositi
 https://nytimes.com/2023/02/10/world/middleeast/jerusalem-car-attack.html?searchResultPosition=7
 
 **The English Soccer Streak That Is ‘Just Statistically Ridiculous’**\
-`Bristol City has played 65 games since its last penalty kick, a drought that has baffled the team and its fans. It has to end eventually, right?`\
+`Bristol City has gone 65 games since its last penalty kick, a drought that has baffled the team and its fans. It has to end eventually, right?`\
 https://nytimes.com/2023/02/10/sports/soccer/bristol-city-penalty-kicks.html?searchResultPosition=8
 
 **Five Children’s Movies to Stream Now**\
