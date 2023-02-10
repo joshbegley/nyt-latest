@@ -1,5 +1,5 @@
 **F.B.I. Is Searching Pence’s Home in Indiana**\
-`Aides to former Vice President Mike Pence agreed to the search, which took place after discussions with the Justice Department.`\
+`Aides to former Vice President Mike Pence agreed to the search after discussions with the Justice Department.`\
 https://nytimes.com/2023/02/10/us/politics/pence-fbi-home-search.html?searchResultPosition=1
 
 **Story Collections to Take Readers Around the World**\
