@@ -35,6 +35,6 @@ https://nytimes.com/2023/02/10/movies/international-movies-streaming.html?search
 https://nytimes.com/2023/02/10/dining/what-to-cook-this-weekend.html?searchResultPosition=9
 
 **The War’s Violent Next Stage**\
-`Both sides are preparing to attack after months of static fighting. Russia is moving first. Here’s how each side is trying to shape the critical next few months in Ukraine.`\
+`Both sides are preparing to attack after months of slow-moving fighting. Russia is moving first. Here’s how each side is trying to shape the critical next few months in Ukraine.`\
 https://nytimes.com/interactive/2023/02/10/world/europe/russia-ukraine-offensives-maps.html?searchResultPosition=10
 
