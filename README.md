@@ -19,7 +19,7 @@ https://nytimes.com/2023/02/09/books/harper-collins-strike-tentative-agreement.h
 https://nytimes.com/2023/02/09/nyregion/george-santos-checks-amish.html?searchResultPosition=5
 
 **Man, 22, Fatally Shot Near Times Square During Rush Hour**\
-`The police were searching for two gunmen after the shooting on Eighth Avenue near 44th Street, near a Shake Shack. The victim was not immediately identified.`\
+`The police were searching for two gunmen after the shooting on Eighth Avenue near 44th Street. The victim was not immediately identified.`\
 https://nytimes.com/2023/02/09/nyregion/shooting-midtown-manhattan.html?searchResultPosition=6
 
 **Fetterman Remains Hospitalized as Doctors Rule Out a Second Stroke**\
