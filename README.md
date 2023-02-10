@@ -2,7 +2,7 @@
 `Hector LaSalle, Gov. Kathy Hochul’s choice, was rejected by the State Senate Judiciary Committee. But now a member of the opposing party has gone to court on his behalf.`\
 https://nytimes.com/2023/02/10/nyregion/a-republican-takes-up-the-fight-for-a-democrats-chief-judge-pick.html?searchResultPosition=1
 
-**‘They’re Hunting Me.’ Life as a Ukrainian Mayor on the Frontline**\
+**‘They’re Hunting Me.’ Life as a Ukrainian Mayor on the Front Line**\
 `Being the leader of Kherson may feel more like a curse than an honor. But one woman isn’t giving up, even though the Russians are sitting just across the river and shelling her city nearly every hour.`\
 https://nytimes.com/2023/02/10/world/europe/kherson-mayor-halyna-luhova-ukraine-russia.html?searchResultPosition=2
 
