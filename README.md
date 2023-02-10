@@ -1,5 +1,5 @@
 **The Australians in the Super Bowl**\
-`How Jordan Malaita and Arryn Siposs made it to the N.F.L.`\
+`How Jordan Mailata and Arryn Siposs made it to the N.F.L.`\
 https://nytimes.com/2023/02/10/world/australia/australian-players-super-bowl.html?searchResultPosition=1
 
 **Your Friday Briefing**\
