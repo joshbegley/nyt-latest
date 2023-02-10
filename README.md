@@ -1,6 +1,6 @@
 **Pentagon Downed Object Over Alaska, Official Says**\
-`The incident comes less than a week after U.S. fighter jet shot down a Chinese spy balloon over the Atlantic.`\
-https://nytimes.com/2023/02/10/us/politics/pentagon-downed-object-over-alaska.html?searchResultPosition=1
+`The incident comes less than a week after a U.S. fighter jet shot down a Chinese spy balloon over the Atlantic.`\
+https://nytimes.com/2023/02/10/us/politics/unidentified-object-shot-down-alaska.html?searchResultPosition=1
 
 **The Weekender**\
 `How candy hearts explain the world. Also in this edition: the New York City mixtape and how SZA’s enigmatic music made her a megastar.`\
