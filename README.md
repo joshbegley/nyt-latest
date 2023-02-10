@@ -1,4 +1,4 @@
-**Britain’s Economy Sputters and Barely Avoids a Recession**\
+**U.K. Economy Sputters and Barely Avoids a Recession**\
 `Economic growth was unchanged in the fourth quarter, and little expansion is expected in the years ahead.`\
 https://nytimes.com/2023/02/10/business/uk-fourth-quarter-gdp-recession.html?searchResultPosition=1
 
