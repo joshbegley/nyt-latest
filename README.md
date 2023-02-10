@@ -28,7 +28,7 @@ https://nytimes.com/2023/02/10/world/americas/biden-lula-brazil-us.html?searchRe
 
 **Ronald S. Lauder Reaches Agreement on Klimt Painting With Jewish Heirs**\
 `Under the agreement, Mr. Lauder restituted the painting and then repurchased it from the relatives of an art collector who fled Europe in 1941 to avoid Nazi persecution.`\
-https://nytimes.com/2023/02/10/arts/ronald-lauder-klimt-painting-restitution.html?searchResultPosition=8
+https://nytimes.com/2023/02/10/arts/design/ronald-lauder-klimt-painting-restitution.html?searchResultPosition=8
 
 **Celebrity ‘Queer Baiting’ and More: The Week in Reporter Reads**\
 `Five articles from around The Times, narrated just for you.`\
