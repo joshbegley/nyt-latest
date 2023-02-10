@@ -1,5 +1,5 @@
-**Police Search for Gunmen After Man, 22, Fatally Shot Near Times Square**\
-`The shooting took place on Eighth Avenue near 44th Street during the evening rush hour. The victim was not immediately identified.`\
+**Man, 22, Fatally Shot Near Times Square During Rush Hour**\
+`The police were searching for two gunmen after the shooting on Eighth Avenue near 44th Street, near a Shake Shack. The victim was not immediately identified.`\
 https://nytimes.com/2023/02/09/nyregion/shooting-midtown-manhattan.html?searchResultPosition=1
 
 **Fetterman Remains Hospitalized as Doctors Rule Out a Second Stroke**\
