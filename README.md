@@ -18,8 +18,8 @@ https://nytimes.com/2023/02/10/business/baby-trend-stroller-death.html?searchRes
 `Two aides played pivotal roles in how the classified documents appear to have gotten from the White House to a Biden think tank, where they were discovered years later.`\
 https://nytimes.com/2023/02/10/us/politics/biden-documents-aides.html?searchResultPosition=5
 
-**Pentagon Downed Object Over Alaska, Officials Say**\
-`The incident comes less than a week after a U.S. fighter jet shot down a Chinese spy balloon over the Atlantic.`\
+**Pentagon Shot Down Object Over Alaska, U.S. Officials Say**\
+`The incident comes less than a week after U.S. fighter jet shot down a Chinese spy balloon over the Atlantic.`\
 https://nytimes.com/2023/02/10/us/politics/unidentified-object-shot-down-alaska.html?searchResultPosition=6
 
 **The Weekender**\
