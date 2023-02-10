@@ -2,7 +2,7 @@
 `The stabbing, which happened at Harding High School in St. Paul on Friday, was the first homicide in the city this year, the police said.`\
 https://nytimes.com/2023/02/10/us/stabbing-st-paul-harding-high-school.html?searchResultPosition=1
 
-**Postcard from Phoenix: A Day Inside Sport’s Party Vortex**\
+**Postcard From Phoenix: A Day Inside Sport’s Party Vortex**\
 `The Phoenix Open is known as golf’s most raucous event. This year’s tournament collided with an influx of football fans in town for Super Bowl LVII.`\
 https://nytimes.com/2023/02/10/sports/football/waste-management-phoenix-open-super-bowl.html?searchResultPosition=2
 
