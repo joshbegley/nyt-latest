@@ -11,7 +11,7 @@ https://nytimes.com/2023/02/10/insider/oh-football-is-on-were-here-for-the-food.
 https://nytimes.com/2023/02/10/learning/young-love.html?searchResultPosition=3
 
 **U.K. Economy Sputters and Barely Avoids a Recession**\
-`Economic growth was unchanged in the fourth quarter, and little expansion is expected in the years ahead.`\
+`Economic growth was unchanged in the fourth quarter, and slow expansion is expected in the years ahead.`\
 https://nytimes.com/2023/02/10/business/uk-fourth-quarter-gdp-recession.html?searchResultPosition=4
 
 **Late Night Is Still Concerned About That Balloon**\
