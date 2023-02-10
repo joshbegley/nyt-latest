@@ -23,7 +23,7 @@ https://nytimes.com/2023/02/10/your-money/retirement-401k-job-switching.html?sea
 https://nytimes.com/2023/02/10/us/california-trees-dying.html?searchResultPosition=6
 
 **At Least 2 Dead as Driver Rams Bus Stop in East Jerusalem**\
-`A man drove a car into a group of people outside an Israeli settlement in what the police described as a terrorist attack. A 6-year-old was among those killed.`\
+`A man drove a car into a group of civilians outside an Israeli settlement in what the police described as a terrorist attack. A 6-year-old was among those killed.`\
 https://nytimes.com/2023/02/10/world/middleeast/jerusalem-car-attack.html?searchResultPosition=7
 
 **The English Soccer Streak That Is ‘Just Statistically Ridiculous’**\
