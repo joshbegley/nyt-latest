@@ -6,13 +6,13 @@ https://nytimes.com/2023/02/10/us/politics/michael-gerson-memorial-compassionate
 `Creating a great wedding playlist can be a challenging task. So we’re putting one together based on your input.`\
 https://nytimes.com/2023/02/10/style/what-are-your-favorite-wedding-songs-we-want-to-hear-them.html?searchResultPosition=2
 
-**Love and Scallops**\
-`Scallops may be a little fancier than most everyday ingredients, but Melissa Clark’s creamy preparation couldn’t be easier.`\
-https://nytimes.com/2023/02/10/dining/love-and-scallops.html?searchResultPosition=3
-
 **A Nun With Very Bad Habits**\
 `In the novel “Scorched Grace,” a tattooed, chain-smoking, swearing-prone nun turns out to be a crack detective.`\
-https://nytimes.com/2023/02/10/books/review/new-crime-fiction.html?searchResultPosition=4
+https://nytimes.com/2023/02/10/books/review/new-crime-fiction.html?searchResultPosition=3
+
+**Love and Scallops**\
+`Scallops may be a little fancier than most everyday ingredients, but Melissa Clark’s creamy preparation couldn’t be easier.`\
+https://nytimes.com/2023/02/10/dining/love-and-scallops.html?searchResultPosition=4
 
 **Has Wokeness Changed Hollywood?**\
 `What movies define our political moment?`\
