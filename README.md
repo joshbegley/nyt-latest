@@ -1,40 +1,40 @@
+**Cockatoos Know How to Pick the Right Tools for the Job**\
+`The job, in these experiments, was getting a cashew out of a puzzle box.`\
+https://nytimes.com/2023/02/10/science/cockatoos-tool-use.html?searchResultPosition=1
+
+**Five International Movies to Stream Now**\
+`This month’s picks include a wry Bosnian coming-of-age film, a documentary about supernatural phenomena in Scotland and a drama about missing women in Mexico.`\
+https://nytimes.com/2023/02/10/movies/international-movies-streaming.html?searchResultPosition=2
+
+**What to Cook This Weekend**\
+`Chili, Moroccan nachos and more for the Super Bowl.`\
+https://nytimes.com/2023/02/10/dining/what-to-cook-this-weekend.html?searchResultPosition=3
+
+**The War’s Violent Next Stage**\
+`Both sides are preparing to attack after months of static fighting. Russia is moving first. Here’s how each side is trying to shape the critical next few months in Ukraine.`\
+https://nytimes.com/interactive/2023/02/10/world/europe/russia-ukraine-offensives-maps.html?searchResultPosition=4
+
 **Brazil’s Lula Heads to the White House**\
 `President Biden hosts Brazil’s new president on Friday in a refresh of the countries’ relations. The two leaders agree on the Amazon but are split on Ukraine.`\
-https://nytimes.com/2023/02/10/world/americas/biden-lula-brazil-us.html?searchResultPosition=1
+https://nytimes.com/2023/02/10/world/americas/biden-lula-brazil-us.html?searchResultPosition=5
 
-**Ronald S. Lauder Reaches Agreement on Klimt Painting with Jewish Heirs**\
+**Ronald S. Lauder Reaches Agreement on Klimt Painting With Jewish Heirs**\
 `Under the agreement, Mr. Lauder restituted the painting and then repurchased it from the relatives of an art collector who fled Europe in 1941 to avoid Nazi persecution.`\
-https://nytimes.com/2023/02/10/arts/ronald-lauder-klimt-painting-restitution.html?searchResultPosition=2
+https://nytimes.com/2023/02/10/arts/ronald-lauder-klimt-painting-restitution.html?searchResultPosition=6
 
 **Celebrity ‘Queer Baiting’ and More: The Week in Reporter Reads**\
 `Five articles from around The Times, narrated just for you.`\
-https://nytimes.com/2023/02/10/podcasts/queer-baiting-styles-rihanna-george-santos.html?searchResultPosition=3
+https://nytimes.com/2023/02/10/podcasts/queer-baiting-styles-rihanna-george-santos.html?searchResultPosition=7
 
 **Adidas Tumbles as Losses From Its Kanye West Venture Pile Up**\
 `Shares in the German sportswear brand fell sharply on Friday as the company grapples with a mountain of unsold Yeezy merchandise.`\
-https://nytimes.com/2023/02/10/business/dealbook/adidas-shares-kanye-west.html?searchResultPosition=4
+https://nytimes.com/2023/02/10/business/dealbook/adidas-shares-kanye-west.html?searchResultPosition=8
 
 **The Students Quietly Kicked Out of Class**\
 `Students with disabilities face high suspension rates, leading to millions of lost class hours. But schools are also covertly removing children from class.`\
-https://nytimes.com/interactive/2023/02/10/us/politics/disability-schools-informal-removal.html?searchResultPosition=5
+https://nytimes.com/interactive/2023/02/10/us/politics/disability-schools-informal-removal.html?searchResultPosition=9
 
 **Putin used a secret decree to pardon an ex-inmate who joined Russia’s war effort, a document shows.**\
 `A copy of a prison release certificate reviewed by The New York Times offers evidence of what activists say is a mass pardon campaign to entice tens of thousands of inmates to enter battle.`\
-https://nytimes.com/2023/02/10/world/europe/russia-putin-pardon-wagner-fighter-prison.html?searchResultPosition=6
-
-**The prime minister of Moldova, a Ukrainian neighbor rattled by the war, steps down.**\
-`Natalia Gavrilita had been prime minister since 2021, when she took charge of the government after elections gave a strong majority in Parliament to pro-Western politicians.`\
-https://nytimes.com/2023/02/10/world/europe/moldova-prime-minister-resigns.html?searchResultPosition=7
-
-**E.U. Lawmaker Arrested in Qatar-Linked Corruption Inquiry**\
-`The detention of Marc Tarabella, who lost his immunity last week, is part of a long-running investigation into whether there were efforts to influence the European Parliament.`\
-https://nytimes.com/2023/02/10/world/europe/eu-corruption-inquiry-arrest.html?searchResultPosition=8
-
-**Young Fathers’ Music Has Always Been Subversive. Now It’s Joyful, Too.**\
-`The Scottish trio has been making political, genre-blending songs for a decade. On a new album, the group embraces the elation of community.`\
-https://nytimes.com/2023/02/10/arts/music/young-fathers-heavy-heavy.html?searchResultPosition=9
-
-**Real Interest Rates Are Moving Up, but Don’t Celebrate Yet**\
-`While markets are predicting that inflation will fall further, savings rates still aren’t keeping up with the prices we’re paying.`\
-https://nytimes.com/2023/02/10/business/interest-rates-inflation-economy.html?searchResultPosition=10
+https://nytimes.com/2023/02/10/world/europe/russia-putin-pardon-wagner-fighter-prison.html?searchResultPosition=10
 
