@@ -2,7 +2,7 @@
 `Bernard Labadie and the Orchestra of St. Luke’s returned to Carnegie Hall in a program that also included a Mozart piano concerto with Emanuel Ax.`\
 https://nytimes.com/2023/02/10/arts/music/orchestra-of-st-lukes-carnegie-hall-review.html?searchResultPosition=1
 
-**White House Says Biden Will Not Do a Super Bowl Interview With Fox**\
+**Biden Will Not Do a Super Bowl Interview With Fox, White House Says**\
 `The president, who participated when NBC and CBS aired the game, will not appear on a broadcast expected to reach tens of millions of viewers.`\
 https://nytimes.com/2023/02/10/us/politics/biden-super-bowl-fox.html?searchResultPosition=2
 
