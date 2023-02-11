@@ -15,7 +15,7 @@ https://nytimes.com/2023/02/11/crosswords/daily-puzzle-2023-02-12.html?searchRes
 https://nytimes.com/2023/02/11/world/europe/solomon-perel-dead.html?searchResultPosition=5
 
 **U.S. Jet Shoots Down Flying Object Over Canada**\
-`Prime Minister Justin Trudeau said the object violating Canadian airspace was taken down on his orders.`\
+`Prime Minister Justin Trudeau said the object violating Canadian airspace was taken down on his orders, a day after another aerial object was shot down near Alaska.`\
 https://nytimes.com/2023/02/11/us/politics/unidentified-object-canada-alaska-pentagon.html?searchResultPosition=6
 
 **Hazel McCallion, No-Nonsense Canadian Mayor for 36 Years, Dies at 101**\
