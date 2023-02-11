@@ -6,13 +6,13 @@ https://nytimes.com/2023/02/11/business/india-adani-market.html?searchResultPosi
 `Test your knowledge of the latest relationship terminology.`\
 https://nytimes.com/2023/02/11/style/dating-relationship-terms-quiz.html?searchResultPosition=2
 
-**How Multilingual Couples Express Their Love Across Languages**\
-`Five couples who speak different languages share how they communicate affection with each other.`\
-https://nytimes.com/2023/02/11/style/multilingual-language-love.html?searchResultPosition=3
-
 **‘Ghosting,’ ‘Orbiting,’ ‘Rizz’: A Guide to Modern Dating Terms**\
 `The way we talk about relationships has drastically changed in recent years. Here is a glossary of some of the most popular words and phrases you should know.`\
-https://nytimes.com/2023/02/11/style/dating-terms-guide-ghosting-rizz.html?searchResultPosition=4
+https://nytimes.com/2023/02/11/style/dating-terms-guide-ghosting-rizz.html?searchResultPosition=3
+
+**How Multilingual Couples Express Their Love Across Languages**\
+`Five couples who speak different languages share how they communicate affection with each other.`\
+https://nytimes.com/2023/02/11/style/multilingual-language-love.html?searchResultPosition=4
 
 **How the Language of Therapy Took Over Dating**\
 `In a time when emotional maturity is highly desirable, almost everyone is “doing the work.”`\
