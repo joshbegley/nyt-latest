@@ -1,6 +1,6 @@
 **A Music Award Went Gender Neutral. It Ended Up With All-Male Nominees.**\
 `In 2022, the Brit Awards merged its top artist prizes to include male, female and nonbinary acts. This year, the event faced backlash for not nominating any women.`\
-https://nytimes.com/2023/02/11/arts/music/brit-awards-gender.html?searchResultPosition=2
+https://nytimes.com/2023/02/11/arts/music/brit-awards-harry-styles-gender.html?searchResultPosition=2
 
 **A Skeptic in Football Paradise**\
 `The festivities leading up to the Super Bowl are full of fun and feel-good stories. But they obscure the harsh reality of the N.F.L.’s dangerous game.`\
