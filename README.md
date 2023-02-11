@@ -1,40 +1,40 @@
-**Following a Two-Year Decline, Suicide Rates Rose Again in 2021**\
-`Suicide increased among younger Black, Hispanic and Native American people, and declined among whites and older people, the C.D.C. reported.`\
-https://nytimes.com/2023/02/11/health/suicide-minorities-cdc.html?searchResultPosition=1
+**Anger Over Quake Response Challenges Erdogan Ahead of Election**\
+`A furor is building among some survivors over the government’s handling of the crisis. “I have been voting for this government for 20 years, and I’m telling everyone about my anger,” said one. “I will never forgive them.”`\
+https://nytimes.com/2023/02/11/world/europe/earthquake-turkey-erdogan-election.html?searchResultPosition=1
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/02/11/crosswords/spelling-bee-forum.html?searchResultPosition=2
+**9 Dating Coaches on How to Find Love Right Now**\
+`Relationship experts advise going on dates that are more active, using the upside-down smiley-face emoji and not being afraid to make the first move.`\
+https://nytimes.com/2023/02/11/style/love-relationships-dating-coaches.html?searchResultPosition=2
 
-**Why Adani’s $100 Billion Loss Hasn’t Tanked India’s Markets**\
-`The steadfastness of India’s economy attests to the size and seeming strength of the country’s broader business landscape.`\
-https://nytimes.com/2023/02/11/business/india-adani-market.html?searchResultPosition=3
+**With a Land Dispute Deadlocked, a Wisconsin Tribe Blockades Streets**\
+`Tribal leaders in Lac du Flambeau said they were asserting sovereignty in demanding long overdue payment for roads used by non-Native residents, who are now unable to drive home.`\
+https://nytimes.com/2023/02/11/us/wisconsin-tribe-lac-du-flambeau-road-blockades.html?searchResultPosition=3
 
-**Quiz: How Well Do You Know Your Modern Dating Terms?**\
-`Test your knowledge of the latest relationship terminology.`\
-https://nytimes.com/2023/02/11/style/dating-relationship-terms-quiz.html?searchResultPosition=4
+**How a Spotify Storyteller Spends Her Sundays**\
+`Mimi O’Donnell is big on gift giving, early dinners and the healing intimacy of audio.`\
+https://nytimes.com/2023/02/11/nyregion/how-a-spotify-storyteller-spends-her-sundays.html?searchResultPosition=4
 
-**‘Ghosting,’ ‘Orbiting,’ ‘Rizz’: A Guide to Modern Dating Terms**\
-`The way we talk about relationships has drastically changed in recent years. Here is a glossary of some of the most popular words and phrases you should know.`\
-https://nytimes.com/2023/02/11/style/dating-terms-guide-ghosting-rizz.html?searchResultPosition=5
+**Kisses, Crushes and Marriage Proposals: Wait, Aren’t You Only 6 Years Old?**\
+`It’s not unusual for young children to become fascinated by romance, but sometimes these big feelings can take parents by surprise. Experts share tips on how to navigate a child’s first ‘love.’`\
+https://nytimes.com/2023/02/11/well/family/child-first-crush.html?searchResultPosition=5
 
-**How Multilingual Couples Express Their Love Across Languages**\
-`Five couples who speak different languages share how they communicate affection with each other.`\
-https://nytimes.com/2023/02/11/style/multilingual-language-love.html?searchResultPosition=6
+**For Many Older Americans, the Pandemic Is Not Over**\
+`Seniors continue to bear the brunt of deaths and hospitalizations, even as most of the nation abandons precautions: “Americans do not agree about the duty to protect others.”`\
+https://nytimes.com/2023/02/11/health/covid-pandemic-seniors.html?searchResultPosition=6
 
-**How the Language of Therapy Took Over Dating**\
-`In a time when emotional maturity is highly desirable, almost everyone is “doing the work.”`\
-https://nytimes.com/2023/02/11/style/therapy-speak-dating.html?searchResultPosition=7
+**Wagner Founder Has Putin’s Support, but the Kremlin’s Side-Eye**\
+`Yevgeny V. Prigozhin, the once secretive tycoon, is confounding Moscow’s Kremlin-allied elite by starting to dabble in politics alongside waging war in Ukraine.`\
+https://nytimes.com/2023/02/11/world/europe/russia-wagner-group-prigozhin-putin.html?searchResultPosition=7
 
-**What Language Does Your Heart Speak?**\
-`A playful (and not very scientific) examination of where love and language intersect.`\
-https://nytimes.com/2023/02/11/style/love-language-relationships-dating.html?searchResultPosition=8
+**An Elegy to a Pluralistic, Polyglot India Wins Readers and Critics in the West**\
+`Geetanjali Shree’s prizewinning novel “Tomb of Sand” pushed the boundaries of experimental writing in Hindi and spotlighted the wealth of Indian literature in languages other than English.`\
+https://nytimes.com/2023/02/11/books/geetanjali-shree-tomb-sand.html?searchResultPosition=8
 
-**Why Some Husbands Choose to Take Their Wives’ Last Names**\
-`Five men discuss their decision to change their surnames after marriage and some of the reactions they faced from friends and family members.`\
-https://nytimes.com/2023/02/11/style/husbands-take-wives-last-names.html?searchResultPosition=9
+**One Solution to the Housing Crisis: Just Make People Rich**\
+`A Brooklyn institution dating to the Civil Rights era has an ambitious, new plan to close the racial wealth gap.`\
+https://nytimes.com/2023/02/11/nyregion/restoration-brooklyn-housing-bed-stuy.html?searchResultPosition=9
 
-**When There’s No Word Like ‘Widow’**\
-`After my sister died, I yearned for a word like “orphan” to name my new identity.`\
-https://nytimes.com/2023/02/11/style/grief-loss-sibling.html?searchResultPosition=10
+**Why Are You Seeing So Many Bad Digital Ads Now?**\
+`Scrolling past ads has rarely been enjoyable. But in recent months, people say the experience seems so much worse.`\
+https://nytimes.com/2023/02/11/technology/bad-digital-ads.html?searchResultPosition=10
 
