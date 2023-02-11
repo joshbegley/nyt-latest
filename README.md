@@ -1,5 +1,5 @@
 **Chinese Spy Balloons Are a Sign of Weakness**\
-`They are a sign of weakness, not strength.`\
+`Military decision making doesn’t occur in a vacuum. Especially in a political system as opaque, and undemocratic, as China’s.`\
 https://nytimes.com/2023/02/10/opinion/china-spy-balloon.html?searchResultPosition=1
 
 **Toronto Mayor Resigns After Admitting to Relationship With Employee**\
