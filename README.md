@@ -18,13 +18,13 @@ https://nytimes.com/2023/02/11/opinion/ukraine-cold-winter-kharkiv.html?searchRe
 `The music industry may not be ready for his sazón, but the rest of us are.`\
 https://nytimes.com/2023/02/11/opinion/bad-bunny-non-english-grammys.html?searchResultPosition=5
 
-**A Girl Trapped Under Fallen Concrete. A Man Unsure of What to Do.**\
-`Nobel Prize-winning author Orhan Pamuk on watching the devastation and pleas for help following the earthquake in Turkey.`\
-https://nytimes.com/2023/02/11/opinion/turkey-earthquake-orhan-pamuk.html?searchResultPosition=6
-
 **How Watching (and Listening to) Sports Made Me Who I Am**\
 `My hypochondria eventually passed, leaving me as mysteriously as it seized me, but my love of sports never did.`\
-https://nytimes.com/2023/02/11/opinion/sports-fandom-hypochondria.html?searchResultPosition=7
+https://nytimes.com/2023/02/11/opinion/sports-fandom-hypochondria.html?searchResultPosition=6
+
+**A Girl Trapped Under Fallen Concrete. A Man Unsure of What to Do.**\
+`Nobel Prize-winning author Orhan Pamuk on watching the devastation and pleas for help following the earthquake in Turkey.`\
+https://nytimes.com/2023/02/11/opinion/turkey-earthquake-orhan-pamuk.html?searchResultPosition=7
 
 **Scranton Joe Is Ready to Go**\
 `No soothsayer needed. We know Biden’s future.`\
