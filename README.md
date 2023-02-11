@@ -1,6 +1,6 @@
 **Chinese Spy Balloons Are a Sign of Weakness**\
 `They are a sign of weakness, not strength.`\
-https://nytimes.com/2023/02/10/opinion/chinese-spy-balloons-are-a-sign-of-weakness.html?searchResultPosition=1
+https://nytimes.com/2023/02/10/opinion/chinese-spy-balloon.html?searchResultPosition=1
 
 **Toronto Mayor Resigns After Admitting to Relationship With Employee**\
 `The mayor, John Tory, who had led the city since 2014, apologized for what he called a serious error in judgment.`\
