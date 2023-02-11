@@ -1,6 +1,6 @@
-**U.S. Jet Shoots Down U.F.O. Over Canada**\
+**U.S. Jet Shoots Down Flying Object Over Canada**\
 `Prime Minister Justin Trudeau said the object violating Canadian airspace was taken down on his orders.`\
-https://nytimes.com/2023/02/11/us/politics/object-alaska-pentagon.html?searchResultPosition=1
+https://nytimes.com/2023/02/11/us/politics/unidentified-object-canada-alaska-pentagon.html?searchResultPosition=1
 
 **Hazel McCallion, No-Nonsense Canadian Mayor for 36 Years, Dies at 101**\
 `Tough, pragmatic and brusque when she had to be, she helped transform Mississauga from a sleepy Toronto suburb into one of the country’s largest and most dynamic cities.`\
