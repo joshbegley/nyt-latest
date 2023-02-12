@@ -26,8 +26,8 @@ https://nytimes.com/2023/02/12/style/super-bowl-party.html?searchResultPosition=
 `Also, Turkey investigates building contractors after a deadly earthquake and Russians who fight for Ukraine.`\
 https://nytimes.com/2023/02/12/briefing/ufo-us-turkey-earthquake-ukraine.html?searchResultPosition=7
 
-**U.S. Shoots Down a Fourth Flying Object**\
-`The latest object was taken down over Lake Huron.`\
+**What’s Going On Up There? Theories but No Answers in Shootdowns of Mystery Craft.**\
+`The U.S. and Canada are investigating three unidentified flying objects shot down over North America in the past three days. Militaries have adjusted radars to try to spot more incursions.`\
 https://nytimes.com/2023/02/12/us/politics/us-shoots-down-object-michigan.html?searchResultPosition=8
 
 **A Dramatic Injury Wasn’t Enough to Keep One Eagles Fan Away**\
