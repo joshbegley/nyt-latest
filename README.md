@@ -15,7 +15,7 @@ https://nytimes.com/2023/02/12/learning/whats-going-on-in-this-picture-feb-13-20
 https://nytimes.com/2023/02/12/briefing/super-bowl-sunday.html?searchResultPosition=4
 
 **Turkey Widens Investigation Into Contractors as Quake Toll Rises**\
-`A top U.N. official said that aid efforts in neighboring Syria had “failed” so far. More than 28,000 people have died in the two countries.`\
+`A top U.N. official said that aid efforts in neighboring Syria had “failed” so far. More than 33,000 people have died in the two countries.`\
 https://nytimes.com/2023/02/12/world/middleeast/turkey-syria-quake.html?searchResultPosition=5
 
 **The Week in Business: Microsoft’s Big Bet on A.I.**\
