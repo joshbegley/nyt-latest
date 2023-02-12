@@ -3,7 +3,7 @@
 https://nytimes.com/2023/02/12/dining/what-to-cook-this-weekend.html?searchResultPosition=1
 
 **Jürgen Flimm, Director of Festivals and Opera Houses, Dies at 81**\
-`He left his mark in Hamburg, Berlin, Strasburg and elsewhere. He also directed a memorable “Ring” cycle in Bayreuth.`\
+`He left his mark in Hamburg, Berlin, Salzburg and elsewhere. He also directed a memorable “Ring” cycle in Bayreuth.`\
 https://nytimes.com/2023/02/12/arts/music/jurgen-flimm-dead.html?searchResultPosition=2
 
 **Greg of ‘The White Lotus’ Walks a Runway**\
