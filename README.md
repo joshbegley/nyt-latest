@@ -1,5 +1,5 @@
-**U.S. Shoots Down a Third Unidentified Object**\
-`The latest object was shot down over Lake Huron.`\
+**U.S. Shoots Down a Fourth Flying Object**\
+`The latest object was taken down over Lake Huron.`\
 https://nytimes.com/2023/02/12/us/politics/us-shoots-down-object-michigan.html?searchResultPosition=1
 
 **A Dramatic Injury Wasn’t Enough to Keep One Eagles Fan Away**\
