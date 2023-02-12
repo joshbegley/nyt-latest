@@ -1,5 +1,5 @@
 **What is ‘He Gets Us’?**\
-`A media blitz for the`\
+`The campaign aims to increase the relevance of Jesus in American culture, according the agency behind the ads. David Green, the founder of Hobby Lobby, has said he is a donor.`\
 https://nytimes.com/2023/02/12/business/media/what-is-he-gets-us.html?searchResultPosition=1
 
 **Crypto ads are so last year.**\
