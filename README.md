@@ -1,40 +1,40 @@
+**I Answer the Phone at a Mental Health Hotline. Here’s What I’ve Learned.**\
+`Callers need more than just a sympathetic ear. They need an informed listener.`\
+https://nytimes.com/2023/02/12/opinion/health/mental-health-outreach.html?searchResultPosition=1
+
+**This Super Bowl Is the Start of Something New**\
+`For decades, people expected N.F.L. quarterbacks to play a certain way. Now the old style is exploding — and the Chiefs-Eagles Super Bowl will show how.`\
+https://nytimes.com/2023/02/12/opinion/patrick-mahomes-jalen-hurts-super-bowl.html?searchResultPosition=2
+
+**A Huge, Uncharted Experiment on the U.S. Economy Is About to Begin**\
+`If it fails or misfires, then it will greatly limit the number of tools to fight climate change or a recession.`\
+https://nytimes.com/2023/02/12/opinion/economy-ira-infrastructure-clean-energy.html?searchResultPosition=3
+
+**Trump’s Supreme Court Picks Are Not Quite What You Think**\
+`We now have real data about Justices Gorsuch, Kavanaugh and Barrett. The court’s gone hard right, but the three are less unified than they might appear.`\
+https://nytimes.com/2023/02/12/opinion/gorsuch-barrett-kavanaugh-conservative.html?searchResultPosition=4
+
+**India’s Proud Tradition of a Free Press Is at Risk**\
+`Self-censorship has spread, along with a shrill Hindu nationalism in news reports that echoes the government line.`\
+https://nytimes.com/2023/02/12/opinion/modi-bbc-documentary-india.html?searchResultPosition=5
+
+**The Sunday Read: ‘Women Have Been Misled About Menopause’**\
+`Hot flashes, sleeplessness, pain during sex: For some of menopause’s worst symptoms, there’s an established treatment. Why aren’t more women offered it?`\
+https://nytimes.com/2023/02/12/podcasts/the-daily/menopause-treatment-hormone-therapy.html?searchResultPosition=6
+
+**Men Need Purpose More Than ‘Respect’**\
+`Few goals are more rewarding than helping the people you love walk through life.`\
+https://nytimes.com/2023/02/12/opinion/men-purpose-respect.html?searchResultPosition=7
+
 **Wagner Fighters Claim to Capture Village Outside Bakhmut**\
 `The Russian paramilitary group said its fighters had seized Krasna Gora, as Moscow’s forces continue a brutal campaign that has nearly encircled the strategic eastern city of Bakhmut.`\
-https://nytimes.com/2023/02/12/world/europe/ukraine-russia-bakhmut-wagner.html?searchResultPosition=1
+https://nytimes.com/2023/02/12/world/europe/ukraine-russia-bakhmut-wagner.html?searchResultPosition=8
 
 **They Are Russians Fighting Against Their Homeland. Here’s Why.**\
 `In the Free Russia Legion, soldiers repelled by Vladimir Putin’s invasion have taken arms against their home country, engaged in some of the most heated fighting in the war.`\
-https://nytimes.com/2023/02/12/world/europe/russian-legion-ukraine-war.html?searchResultPosition=2
+https://nytimes.com/2023/02/12/world/europe/russian-legion-ukraine-war.html?searchResultPosition=9
 
 **Gustavo Dudamel: A Maestro at a Crossroads**\
 `“I’m not a young conductor anymore,” Dudamel said as he prepares to leave Los Angeles in 2026 to lead the New York Philharmonic.`\
-https://nytimes.com/2023/02/12/arts/music/gustavo-dudamel-new-york-philharmonic.html?searchResultPosition=3
-
-**At the Domino Sugar Refinery, a Glass Egg in a Brick Shell**\
-`After Two Trees took over the restoration of the refinery in Williamsburg, Brooklyn, the plan for offices, retail, housing and open space is coming into focus.`\
-https://nytimes.com/2023/02/12/realestate/domino-refinery-brooklyn-development.html?searchResultPosition=4
-
-**A Yale Professor Suggested Mass Suicide for Old People in Japan. What Did He Mean?**\
-`Yusuke Narita says he is mainly addressing a growing effort to revamp Japan’s age-based hierarchies. Still, he has pushed the country’s hottest button.`\
-https://nytimes.com/2023/02/12/world/asia/japan-elderly-mass-suicide.html?searchResultPosition=5
-
-**Bernie Sanders Has a New Role. It Could Be His Final Act in Washington.**\
-`After two unsuccessful runs for the presidency, the Vermont senator now leads the Senate health committee, a job that gives him sweeping jurisdiction over issues he cares about.`\
-https://nytimes.com/2023/02/12/us/politics/bernie-sanders-help-committee.html?searchResultPosition=6
-
-**Wanted: Interns Who Can Make TikTok Hits**\
-`The hot new internship for college students is creating TikTok content for brands hawking jewelry, ice cream, sunflower seeds and more.`\
-https://nytimes.com/2023/02/12/business/tiktok-interns.html?searchResultPosition=7
-
-**Young, in Love and Figuring Out How to Talk About Money**\
-`In an age when making Venmo payment requests is easy, many young couples find that discussing their finances can be hard.`\
-https://nytimes.com/2023/02/12/business/couples-relationships-money.html?searchResultPosition=8
-
-**The Man Who Caught Marilyn Monroe’s Skirt on Film**\
-`“The American Way,” by Helene Stapinski and Bonnie Siegler, tells the story of Siegler’s immigrant grandfather — who happened on the movie star while she was filming “The Seven Year Itch” — while delving into other colorful mid-20th-century American characters.`\
-https://nytimes.com/2023/02/12/books/review/the-american-way-helene-stapinski-bonnie-siegler.html?searchResultPosition=9
-
-**<strong>Childbirth Is Deadlier for Black Families Even When They’re Rich, Expansive Study Finds</strong>**\
-`An analysis of two million births in California, the first research of its size to include both race and income, shows the best medical care for mothers and babies is not equally accessible to everyone.`\
-https://nytimes.com/interactive/2023/02/12/upshot/child-maternal-mortality-rich-poor.html?searchResultPosition=10
+https://nytimes.com/2023/02/12/arts/music/gustavo-dudamel-new-york-philharmonic.html?searchResultPosition=10
 
