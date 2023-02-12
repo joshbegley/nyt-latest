@@ -1,6 +1,6 @@
 **Crypto ads are so last year.**\
 `At this year’s Super Bowl, crypto ads are nowhere to be found.`\
-https://nytimes.com/2023/02/12/business/media/crypto-ads-are-so-last-year.html?searchResultPosition=1
+https://nytimes.com/2023/02/12/business/media/crypto-super-bowl-commercials-ads.html?searchResultPosition=1
 
 **Many Baa-a-ad Puns**\
 `Eric Rollfing makes his New York Times Crossword debut.`\
