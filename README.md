@@ -3,7 +3,7 @@
 https://nytimes.com/2023/02/12/us/politics/us-shoots-down-object-michigan.html?searchResultPosition=1
 
 **A Dramatic Injury Wasn’t Enough to Keep One Eagles Fan Away**\
-`Michael Gordon, of South Philadelphia, put off surgery to repair his fractured foot so he could fly to Arizona to watch the Eagles play in the Super Bowl.`\
+`Michael Gordon of South Philadelphia put off surgery to repair his fractured foot so he could fly to Arizona to watch the Eagles play in the Super Bowl.`\
 https://nytimes.com/2023/02/12/sports/football/super-bowl-eagles-fan-surgery.html?searchResultPosition=2
 
 **Looking for a Last-Minute Super Bowl Ticket? That’ll Be $2,900.**\
