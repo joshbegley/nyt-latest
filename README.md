@@ -30,9 +30,9 @@ https://nytimes.com/2023/02/12/arts/sandra-seacat-much-dead.html?searchResultPos
 `Prime Minister Justin Trudeau of Canada said that he and President Biden had ordered the downing of a flying object that “represented a reasonable threat to civilian aircraft.”`\
 https://nytimes.com/video/world/canada/100000008767256/canada-trudeau-unidentified-object.html?searchResultPosition=8
 
-**What to Cook This Weekend**\
+**What to Cook This Week**\
 `Italian heroes, lentil and sweet potato soup and more recipes.`\
-https://nytimes.com/2023/02/12/dining/what-to-cook-this-weekend.html?searchResultPosition=9
+https://nytimes.com/2023/02/12/dining/what-to-cook-this-week.html?searchResultPosition=9
 
 **Jürgen Flimm, Director of Festivals and Opera Houses, Dies at 81**\
 `He left his mark in Hamburg, Berlin, Salzburg and elsewhere. He also directed a memorable “Ring” cycle in Bayreuth.`\
