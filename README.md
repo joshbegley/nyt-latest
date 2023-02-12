@@ -26,8 +26,8 @@ https://nytimes.com/2023/02/12/podcasts/the-daily/menopause-treatment-hormone-th
 `Few goals are more rewarding than helping the people you love walk through life.`\
 https://nytimes.com/2023/02/12/opinion/men-purpose-respect.html?searchResultPosition=7
 
-**Wagner Fighters Claim to Capture Village Outside Bakhmut**\
-`The Russian paramilitary group said its fighters had seized Krasna Gora, as Moscow’s forces continue a brutal campaign that has nearly encircled the strategic eastern city of Bakhmut.`\
+**Russia’s Wagner Fighters Claim Advance Near Bakhmut**\
+`The Wagner paramilitary group said its fighters had seized a village outside Bakhmut, as Moscow’s forces continue a brutal campaign that has nearly encircled the strategic eastern city.`\
 https://nytimes.com/2023/02/12/world/europe/ukraine-russia-bakhmut-wagner.html?searchResultPosition=8
 
 **They Are Russians Fighting Against Their Homeland. Here’s Why.**\
