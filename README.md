@@ -14,27 +14,27 @@ https://nytimes.com/2023/02/12/us/tax-fraud-dead-chicago.html?searchResultPositi
 `The trio expanded the stylistic vocabulary of hip-hop in the 1980s and ’90s, but its early experiments with sampling led to legal troubles, and the group’s longtime exclusion from streaming.`\
 https://nytimes.com/2023/02/12/arts/music/trugoy-the-dove-dave-jolicoeur-dead.html?searchResultPosition=4
 
+**Damar Hamlin Attends the Super Bowl Just Weeks After Collapsing**\
+`Hamlin, 24, has made several public appearances leading up to the Super Bowl, receiving an award from the players’ union for community service, attending the N.F.L. honors awards show and speaking with Michael Strahan in an interview for “Good Morning America.”`\
+https://nytimes.com/2023/02/12/sports/football/damar-hamlin-super-bowl.html?searchResultPosition=5
+
 **Guest Lists, Six-Figure Tables, Long Lines for the Bathroom: Welcome to the Super Bowl Party**\
 `Tim Cook, Cher, Drake and many hangers-on descend on makeshift clubs in Arizona for the game weekend.`\
-https://nytimes.com/2023/02/12/style/super-bowl-party.html?searchResultPosition=5
+https://nytimes.com/2023/02/12/style/super-bowl-party.html?searchResultPosition=6
 
 **Your Monday Briefing: U.S. Destroys U.F.O.s**\
 `Also, Turkey investigates building contractors after a deadly earthquake and Russians who fight for Ukraine.`\
-https://nytimes.com/2023/02/12/briefing/ufo-us-turkey-earthquake-ukraine.html?searchResultPosition=6
+https://nytimes.com/2023/02/12/briefing/ufo-us-turkey-earthquake-ukraine.html?searchResultPosition=7
 
 **U.S. Shoots Down a Fourth Flying Object**\
 `The latest object was taken down over Lake Huron.`\
-https://nytimes.com/2023/02/12/us/politics/us-shoots-down-object-michigan.html?searchResultPosition=7
+https://nytimes.com/2023/02/12/us/politics/us-shoots-down-object-michigan.html?searchResultPosition=8
 
 **A Dramatic Injury Wasn’t Enough to Keep One Eagles Fan Away**\
 `Michael Gordon of South Philadelphia put off surgery to repair his fractured foot so he could fly to Arizona to watch the Eagles play in the Super Bowl.`\
-https://nytimes.com/2023/02/12/sports/football/super-bowl-eagles-fan-surgery.html?searchResultPosition=8
+https://nytimes.com/2023/02/12/sports/football/super-bowl-eagles-fan-surgery.html?searchResultPosition=9
 
 **Looking for a Last-Minute Super Bowl Ticket? That’ll Be $2,900.**\
 `Prices have been falling, which might have something to do with the teams: Both franchises have been in a Super Bowl lately, so well-heeled fans could be sitting this one out.`\
-https://nytimes.com/2023/02/12/sports/football/super-bowl-tickets-sales.html?searchResultPosition=9
-
-**Celia Cruz Will Be First Afro-Latina to Appear on the U.S. Quarter**\
-`Ms. Cruz, a Cuban American singer known as the Queen of Salsa, was described by the U.S. Mint as “one of the most popular Latin artists of the 20th century.”`\
-https://nytimes.com/2023/02/12/us/celia-cruz-quarters.html?searchResultPosition=10
+https://nytimes.com/2023/02/12/sports/football/super-bowl-tickets-sales.html?searchResultPosition=10
 
