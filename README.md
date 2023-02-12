@@ -2,9 +2,9 @@
 `The latest object was shot down over Lake Huron.`\
 https://nytimes.com/2023/02/12/us/politics/us-shoots-down-object-michigan.html?searchResultPosition=1
 
-**A dramatic injury wasn’t enough to keep one Eagles fan away.**\
+**A Dramatic Injury Wasn’t Enough to Keep One Eagles Fan Away**\
 `Michael Gordon, of South Philadelphia, put off surgery to repair his fractured foot so he could fly to Arizona to watch the Eagles play in the Super Bowl.`\
-https://nytimes.com/2023/02/12/sports/football/eagles-fan-super-bowl-surgery.html?searchResultPosition=2
+https://nytimes.com/2023/02/12/sports/football/super-bowl-eagles-fan-surgery.html?searchResultPosition=2
 
 **Looking For a Last-Minute Super Bowl Ticket? That’ll Be $2,900.**\
 `Prices have been falling, which might have something to do with the teams: Both franchises have been in the Super Bowl lately, so well-heeled fans could be sitting this one out.`\
