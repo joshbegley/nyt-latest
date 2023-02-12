@@ -4,7 +4,7 @@ https://nytimes.com/2023/02/12/arts/music/jurgen-flimm-dead.html?searchResultPos
 
 **Greg of ‘The White Lotus’ Walks a Runway**\
 `Jon Gries made a surprise appearance in the Eckhaus Latta show. He’s not totally ready to give up on Tanya.`\
-https://nytimes.com/2023/02/12/style/greg-of-the-white-lotus-walks-a-runway.html?searchResultPosition=2
+https://nytimes.com/2023/02/12/style/greg-white-lotus-fashion-show.html?searchResultPosition=2
 
 **In Praise of Bookstores, a Reader’s Refuge**\
 `Delighting in brick-and-mortar bookstores. Also: The Kafka diaries; news literacy; misdiagnosed by an Apple watch; unrepresentative polls.`\
