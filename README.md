@@ -1,4 +1,4 @@
-**Ukraine Bars Aid Workers From Bakhmut as Russian Tightens Its Grip**\
+**Ukraine Bars Aid Workers From Bakhmut as Russia Tightens Its Grip**\
 `With Moscow’s forces closing in, the besieged city is too dangerous for the volunteers, Ukrainian commanders said, in what could be a prelude to a Ukrainian withdrawal.`\
 https://nytimes.com/2023/02/13/world/europe/ukraine-russia-bakhmut-aid-volunteers.html?searchResultPosition=1
 
