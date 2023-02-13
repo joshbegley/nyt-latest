@@ -1,5 +1,5 @@
 **Man Driving U-Haul Truck Hits Pedestrians in Brooklyn**\
-`The man had been stopped by the police for driving erratically. He then fled the traffic stop and hit several pedestrians.`\
+`The man had been stopped by the police. He then fled the traffic stop and hit several pedestrians.`\
 https://nytimes.com/2023/02/13/nyregion/brooklyn-truck-hit-pedestrians.html?searchResultPosition=1
 
 **After Four Turbulent Years, Lori Lightfoot Seeks a Second Term as Chicago’s Mayor**\
