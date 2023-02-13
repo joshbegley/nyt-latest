@@ -30,8 +30,8 @@ https://nytimes.com/2023/02/13/business/dealbook/winners-losers-super-bowl-nfl-r
 `The Italian designer reflects on his career, from “American Gigolo” to his latest, samurai-inspired collection.`\
 https://nytimes.com/2023/02/13/t-magazine/giorgio-armani-fashion-photographs.html?searchResultPosition=8
 
-**One Week After Quake, Relief Efforts Stymied by Lack of Supplies and Housing**\
-`More than 31,600 people in Turkey and more than 3,500 in Syria have died in the earthquake, the deadliest in Turkey since 1939.`\
+**Shortages of Shelter and Medical Supplies Pose Dangers to Quake Survivors**\
+`A week after a powerful quake struck Turkey and Syria, the combined death toll surpassed 35,000. With more than a million homeless in Turkey alone, there is a desperate need for temporary housing.`\
 https://nytimes.com/2023/02/13/world/middleeast/turkey-syria-earthquake.html?searchResultPosition=9
 
 **Panel Finds Decades of Abuse in Catholic Church in Portugal**\
