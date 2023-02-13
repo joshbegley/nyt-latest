@@ -10,11 +10,11 @@ https://nytimes.com/2023/02/13/style/rihanna-super-bowl.html?searchResultPositio
 `After seven years largely away from the stage, the singer and mogul used the halftime show to perform a dozen hits, nod to her nonmusical business and announce that she’s pregnant.`\
 https://nytimes.com/2023/02/12/arts/music/rihanna-super-bowl-halftime-review.html?searchResultPosition=3
 
-**A representative for Rihanna says the singer is pregnant.**\
+**A Representative for Rihanna Says the Singer Is Pregnant**\
 `Rihanna performed for the first time in nearly four years, running through a medley of her hits, before the confirmation of her pregnancy.`\
 https://nytimes.com/2023/02/12/sports/football/rihanna-pregnant-super-bowl-.html?searchResultPosition=4
 
-**What’s going on with the Super Bowl grass?**\
+**What’s Going on With the Super Bowl Grass?**\
 `Players have slid and slipped all game, leading television announcers and fans watching at home to wonder whether the field is too slippery.`\
 https://nytimes.com/2023/02/12/sports/football/super-bowl-turf-grass-state-farm-stadium.html?searchResultPosition=5
 
