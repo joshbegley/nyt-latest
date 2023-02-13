@@ -11,7 +11,7 @@ https://nytimes.com/2023/02/13/movies/carlos-saura-dead.html?searchResultPositio
 https://nytimes.com/2023/02/13/world/middleeast/earthquake-idlib-syria-aid.html?searchResultPosition=3
 
 **Syria’s President Agrees to 2 More Border Crossings for Quake Aid**\
-`The decision is the first time that President Bashar al-Assad has agreed to the cross-border delivery of humanitarian aid to opposition-held territory since the civil war began.`\
+`The decision is the first time that President Bashar al-Assad has agreed to the delivery of humanitarian aid to opposition-held territory since the civil war began.`\
 https://nytimes.com/2023/02/13/world/middleeast/earthquake-syria-aid-un.html?searchResultPosition=4
 
 **Bally’s Casino Proposal May Hinge on Removal of One Word: Trump**\
