@@ -3,7 +3,7 @@
 https://nytimes.com/2023/02/13/sports/football/super-bowl-holding-call.html?searchResultPosition=1
 
 **Man Driving U-Haul Truck Hits Pedestrians in Brooklyn**\
-`The man had been stopped by the police. He then fled the traffic stop and hit several pedestrians.`\
+`The man had been stopped by the police and then fled in the truck, striking several pedestrians before being arrested at Hamilton Avenue and Columbia Street.`\
 https://nytimes.com/2023/02/13/nyregion/brooklyn-truck-hit-pedestrians.html?searchResultPosition=2
 
 **After Four Turbulent Years, Lori Lightfoot Seeks a Second Term as Chicago’s Mayor**\
