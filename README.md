@@ -26,7 +26,7 @@ https://nytimes.com/2023/02/13/briefing/ukraine-war.html?searchResultPosition=6
 `Natural disasters should get us thinking about how and why we prepare for the worst.`\
 https://nytimes.com/2023/02/13/opinion/earthquake-natural-disaster.html?searchResultPosition=7
 
-**When the Navy Buys a Lemon (Ship)**\
+**The Warships the U.S. Can’t Get Rid Of**\
 `Inside the move to retire a specific type of combat vessel.`\
 https://nytimes.com/2023/02/13/podcasts/the-daily/navy-littoral-combat-ships.html?searchResultPosition=8
 
