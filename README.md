@@ -26,7 +26,7 @@ https://nytimes.com/2023/02/13/arts/design/ruben-ochoa-frieze-los-angeles.html?s
 `A pantry’s worth of savory food scents, from burgers to croissants to latkes, are finding their way into luxury candles.`\
 https://nytimes.com/2023/02/13/dining/food-candles.html?searchResultPosition=7
 
-**Ted Lerner, Developer Who Bought and Built the Washington Nationals, Dies at 97**\
+**Ted Lerner, 97, Dies; Developer Bought and Built Washington Nationals**\
 `A billionaire and Washington native, he gave the city its first baseball championship in 95 years, along with 20 million square feet of shopping malls and housing.`\
 https://nytimes.com/2023/02/13/sports/football/ted-lerner-dead.html?searchResultPosition=8
 
