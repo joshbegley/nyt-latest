@@ -30,7 +30,7 @@ https://nytimes.com/2023/02/13/t-magazine/ostalgie-art-east-germany.html?searchR
 `The war in Ukraine is entering a new phase. We explain each side’s strategy.`\
 https://nytimes.com/2023/02/13/briefing/ukraine-war.html?searchResultPosition=8
 
-**Let’s Embrace Constructive Paranoia**\
+**Like Finland, Imagine Everything That Could Go Wrong**\
 `Natural disasters should get us thinking about how and why we prepare for the worst.`\
 https://nytimes.com/2023/02/13/opinion/earthquake-natural-disaster.html?searchResultPosition=9
 
