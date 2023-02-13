@@ -1,6 +1,6 @@
 **What is ‘He Gets Us’?**\
 `The campaign aims to increase the relevance of Jesus in American culture, according to the agency behind the ads. David Green, the founder of Hobby Lobby, has said he is a donor.`\
-https://nytimes.com/2023/02/12/business/media/he-gets-us-super-bowl.html?searchResultPosition=1
+https://nytimes.com/2023/02/12/business/media/he-gets-us-jesus-commercial-super-bowl.html?searchResultPosition=1
 
 **Crypto ads are so last year.**\
 `At this year’s Super Bowl, crypto ads are nowhere to be found.`\
