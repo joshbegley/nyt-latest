@@ -28,7 +28,7 @@ https://nytimes.com/2023/02/13/briefing/ufo-russia-unit-ukraine.html?searchResul
 
 **Rihanna’s Big Red Super Bowl Reveal**\
 `She’s pregnant and once again setting the rules for maternity fashion.`\
-https://nytimes.com/2023/02/13/style/rihanna-super-bowl.html?searchResultPosition=8
+https://nytimes.com/2023/02/13/style/rihanna-pregnancy-fashion-super-bowl.html?searchResultPosition=8
 
 **At the Super Bowl, Rihanna Returns to Music, Briefly**\
 `After seven years largely away from the stage, the singer and mogul used the halftime show to perform a dozen hits, nod to her nonmusical business and announce that she’s pregnant.`\
