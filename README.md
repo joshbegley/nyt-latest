@@ -10,7 +10,7 @@ https://nytimes.com/2023/02/13/sports/football/eagles-super-bowl-hurts.html?sear
 `Sayfullo Saipov was convicted of killing eight people. A decision to execute him would require a unanimous vote of the 12 jurors.`\
 https://nytimes.com/2023/02/13/nyregion/a-jury-in-manhattan-weighs-a-matter-of-life-and-death.html?searchResultPosition=3
 
-**With Another Super Bowl Comeback, Patrick Mahomes Brightens N.F.L.’s Future**\
+**With Another Super Bowl Comeback, Patrick Mahomes Brightens the N.F.L.’s Future**\
 `Capping a season plagued by shocking injuries and turnover among football’s most recognizable names, Mahomes, the Kansas City quarterback, dazzled in a Super Bowl win over Philadelphia.`\
 https://nytimes.com/2023/02/12/sports/football/chiefs-super-bowl-patrick-mahomes.html?searchResultPosition=4
 
