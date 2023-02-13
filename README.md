@@ -30,8 +30,8 @@ https://nytimes.com/2023/02/13/health/teen-girls-sadness-suicide-violence.html?s
 `Philadelphia cornerback James Bradberry admitted he tugged on the jersey of a Kansas City receiver. But was it really a penalty? The answer depends largely on what colors you wear.`\
 https://nytimes.com/2023/02/13/sports/football/super-bowl-holding-call.html?searchResultPosition=8
 
-**Man Driving U-Haul Truck Hits Pedestrians in Brooklyn**\
-`The man had been stopped by the police and then fled in the truck, striking several pedestrians before being arrested at Hamilton Avenue and Columbia Street.`\
+**Man Driving U-Haul Truck Hits Pedestrians in Brooklyn, Injuring 8**\
+`Seven civilians and one police officer were hospitalized after a man drove erratically through Bay Ridge Monday morning, before being arrested several miles away.`\
 https://nytimes.com/2023/02/13/nyregion/brooklyn-truck-hit-pedestrians.html?searchResultPosition=9
 
 **After Four Turbulent Years, Lori Lightfoot Seeks a Second Term as Chicago’s Mayor**\
