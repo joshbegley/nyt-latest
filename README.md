@@ -1,5 +1,5 @@
-**After a Long Hiatus, Rihanna Returns on the Super Bowl Stage**\
-`Rihanna did not bring any other artists to the stage, preferring to frame the set as a celebration of her dominant pop career.`\
+**After a Long Hiatus, a Pregnant Rihanna Returns on the Super Bowl Stage**\
+`Rihanna did not bring any other artists to the stage, preferring to frame the set as a celebration of her dominant pop career. The performance also served as a pregnancy reveal.`\
 https://nytimes.com/2023/02/12/sports/football/rihanna-super-bowl-halftime-review.html?searchResultPosition=1
 
 **What is ‘He Gets Us’?**\
