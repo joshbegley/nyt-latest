@@ -18,17 +18,17 @@ https://nytimes.com/2023/02/13/health/tiktok-tics-gender-tourettes.html?searchRe
 `Conditions that are less than ideal (too little snow in some areas, too much in others) have left would-be skiers to find other forms of winter revelry.`\
 https://nytimes.com/2023/02/13/style/ski-season-snow.html?searchResultPosition=5
 
+**‘Our Losses Were Gigantic’: Life in a Sacrificial Russian Assault Wave**\
+`Poorly trained Russian soldiers captured by Ukraine describe being used as cannon fodder by commanders throwing waves of bodies into an assault.`\
+https://nytimes.com/2023/02/13/world/europe/ukraine-russia-prisoners.html?searchResultPosition=6
+
 **The Rocky Path to the College Board’s A.P. Black Studies Course**\
 `Over a year, the nonprofit dropped concepts favored by academics, held a frustrating meeting with Florida officials and left educators in doubt about the process.`\
-https://nytimes.com/2023/02/13/us/ap-black-studies-course-college-board-desantis.html?searchResultPosition=6
+https://nytimes.com/2023/02/13/us/ap-black-studies-course-college-board-desantis.html?searchResultPosition=7
 
 **George Santos and the Case of the Missing $365,000**\
 `Representative George Santos’s failure to account for hundreds of thousands of dollars in spending is part of a pattern of irregularities in the way his campaign handled its finances.`\
-https://nytimes.com/2023/02/13/nyregion/george-santos-campaign-money.html?searchResultPosition=7
-
-**‘Our Losses Were Gigantic’: Life in a Sacrificial Russian Assault Wave**\
-`Poorly trained Russian soldiers captured by Ukraine describe being used as cannon fodder by commanders throwing waves of bodies into an assault.`\
-https://nytimes.com/2023/02/13/world/europe/ukraine-russia-prisoners.html?searchResultPosition=8
+https://nytimes.com/2023/02/13/nyregion/george-santos-campaign-money.html?searchResultPosition=8
 
 **This Tool Could Protect Artists From A.I.-Generated Art That Steals Their Style**\
 `Artists want to be able to post their work online without the fear “of feeding this monster” that could replace them.`\
