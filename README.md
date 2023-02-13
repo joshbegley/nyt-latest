@@ -34,7 +34,7 @@ https://nytimes.com/2023/02/13/podcasts/the-daily/navy-littoral-combat-ships.htm
 `The claim followed a weekend of aerial theatrics, with Washington and Beijing spotting unidentified flying objects in their airspaces.`\
 https://nytimes.com/2023/02/13/world/asia/china-us-balloons-airspace.html?searchResultPosition=9
 
-**China’s Top Airship Scientist Said He Sent One Over North America in 2019**\
+**China’s Top Airship Scientist Promoted Program to Watch the World from Above**\
 `Corporate records and media reports reveal an airship scientist at the center of China’s high-altitude balloon program. Companies he has founded were among those targeted by Washington.`\
 https://nytimes.com/2023/02/13/world/asia/china-spy-balloon.html?searchResultPosition=10
 
