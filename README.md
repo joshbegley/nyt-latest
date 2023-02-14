@@ -2,7 +2,7 @@
 `After taking down a Chinese spy balloon last week, the U.S. military shot down three other high-flying objects, without knowing exactly what they were.`\
 https://nytimes.com/2023/02/14/podcasts/the-daily/spy-balloons-ufos-shoot-down.html?searchResultPosition=1
 
-**Indian Tax Agents Raid BBC Offices After Airing of Scathing Modi Documentary**\
+**Indian Tax Agents Raid BBC Offices After Airing of Documentary Critical of Modi**\
 `The authorities under Prime Minister Narendra Modi have often used such raids in what activists call an effort to silence dissent.`\
 https://nytimes.com/2023/02/14/world/asia/india-bbc-tax-raid.html?searchResultPosition=2
 
