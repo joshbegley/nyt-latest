@@ -1,40 +1,40 @@
-**A Brief History of Hating My Face**\
-`“It’s really, really hard to live when you’re constantly focused on how you look.”`\
-https://nytimes.com/video/opinion/100000008758216/body-dysmorphia-anxiety-face.html?searchResultPosition=1
+**Montblanc Plans to Capitalize on a Popular New Design**\
+`The brand has struggled to be seen as a watchmaker, but its recent 1858 Iced Sea line seems to have struck a chord with customers.`\
+https://nytimes.com/2023/02/14/fashion/watches-montblanc-1858-iced-sea.html?searchResultPosition=1
 
-**China Tries to Depict Furor Over Spy Balloon as Sign of U.S. Decline**\
-`Ignoring charges of spying, Beijing says Washington’s “overreaction” is a symptom of the country’s broken politics.`\
-https://nytimes.com/2023/02/14/world/asia/us-china-spy-balloon-ufo.html?searchResultPosition=2
+**Cartier’s Tank Française Watch Gets a Makeover**\
+`Experts credit Meghan Markle’s fondness for the feminine timepiece as one reason it has legions of fans. Its new look aims for a gender-crossing appeal.`\
+https://nytimes.com/2023/02/14/fashion/cartier-tank-francaise.html?searchResultPosition=2
 
-**Guided Missile Killed U.S. Aid Worker in Ukraine, Video Shows**\
-`A Times analysis suggests that an intentional strike, not an indiscriminate attack, most likely killed Pete Reed. It is unclear whether the attackers knew he was with a group of aid workers.`\
-https://nytimes.com/2023/02/14/world/europe/russian-attack-aid-worker-video.html?searchResultPosition=3
+**Marlo Thomas, on Love and Entertaining**\
+`The actor and author has a tableware collection for Williams-Sonoma, out just in time for Valentine’s Day. For an enthusiastic host, it wasn’t much of a stretch.`\
+https://nytimes.com/2023/02/14/realestate/marlo-thomas-love-williams-sonoma.html?searchResultPosition=3
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/02/14/crosswords/spelling-bee-forum.html?searchResultPosition=4
+**At Home With Marlo Thomas**\
+`The actor has a new tableware collection for Williams Sonoma out in time for Valentine’s Day. For an enthusiastic host, it wasn’t much of a stretch.`\
+https://nytimes.com/slideshow/2023/02/14/realestate/at-home-with-marlo-thomas.html?searchResultPosition=4
 
-**Fear Gripped Michigan State University as Gunman Roamed Campus**\
-`Students and nearby residents waited anxiously for hours as the police searched for the 43-year-old gunman. He later died of a self-inflicted gunshot wound.`\
-https://nytimes.com/2023/02/14/us/michigan-state-shooting-student-reactions.html?searchResultPosition=5
+**Spirited Away to Miyazaki Land**\
+`What happens when the surreal imagination of the world’s greatest living animator, Hayao Miyazaki, is turned into a theme park?`\
+https://nytimes.com/2023/02/14/magazine/hayao-miyazaki-ghibli-park.html?searchResultPosition=5
 
-**The Changing Online Language of Hearts**\
-`How to show a heart — the universal symbol of love — has shifted on the internet over the years, driven by new technology.`\
-https://nytimes.com/2023/02/14/technology/hearts-emojis-gen-z.html?searchResultPosition=6
+**A Parisian Hotel Designer Creates a Space of Her Own**\
+`Dorothée Meilichzon has infused her 19th-century apartment with a sense of hospitality.`\
+https://nytimes.com/2023/02/14/t-magazine/dorothee-meilichzon-paris-apartment.html?searchResultPosition=6
 
-**In the Archives, Finding Love (Stories)**\
-`Journalists have always ventured into the shifting world of romance.`\
-https://nytimes.com/2023/02/14/insider/in-the-archives-finding-love-stories.html?searchResultPosition=7
+**Honey Dijon’s Victory Lap**\
+`She may not have won a Grammy, but she’s an undisputed champion in the D.J. booth.`\
+https://nytimes.com/2023/02/14/style/honey-dijon-party-fashion-week.html?searchResultPosition=7
 
-**Binge Drinking May Be Curbed With a Pill**\
-`A recent study suggested the use of a decades-old medicine taken before imbibing could reduce the amount of alcohol consumed.`\
-https://nytimes.com/2023/02/14/health/alcohol-binge-drinking-pill-naltrexone.html?searchResultPosition=8
+**A Love Letter to Libraries, Long Overdue**\
+`The New York Times sent photographers to seven states to document the thrum and buzz in buildings once known for silence.`\
+https://nytimes.com/2023/02/14/books/review/library-public-local.html?searchResultPosition=8
 
-**A ChatGPT Valentine**\
-`Play with The Times’s A. I. valentine generator and see what you think of the results.`\
-https://nytimes.com/2023/02/14/learning/a-chatgpt-valentine.html?searchResultPosition=9
+**When a Visit to the Museum Becomes an Ethical Dilemma**\
+`Western museums are major tourist attractions, drawing travelers from around the world. But what responsibility do we bear as spectators for patronizing institutions that display what critics say are stolen works?`\
+https://nytimes.com/2023/02/14/travel/museums-stolen-art.html?searchResultPosition=9
 
-**Late Night Recaps Rihanna’s Super Bowl Halftime Surprise**\
-`Jimmy Kimmel called the pop singer’s pregnancy reveal “the biggest ‘we’re expecting’ announcement in the history of the world.”`\
-https://nytimes.com/2023/02/14/arts/television/late-night-super-bowl-rihanna.html?searchResultPosition=10
+**On Their Own: Isolation, and Resignation, in Villages Devastated by Quake**\
+`In rural southern Turkey, some villages were cut off from aid for days, and locals were left to fend for themselves.`\
+https://nytimes.com/2023/02/14/world/middleeast/rural-turkey-earthquake.html?searchResultPosition=10
 
