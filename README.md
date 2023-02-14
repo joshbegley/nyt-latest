@@ -14,27 +14,27 @@ https://nytimes.com/2023/02/14/business/biden-lael-brainard-national-economic-co
 `Anyone can donate a memento from an unsuccessful romance to the Museum of Broken Relationships in Croatia, no matter how sentimental or quirky.`\
 https://nytimes.com/2023/02/14/arts/design/museum-of-broken-relationships.html?searchResultPosition=4
 
+**Moldova briefly closed its airspace, a day after its president accused Russia of trying to plot a coup.**\
+`The national carrier, Air Moldova, confirmed the closure but did not provide an explanation. Two hours later, it said the airspace had reopened.`\
+https://nytimes.com/2023/02/14/world/europe/moldova-airspace-russia.html?searchResultPosition=5
+
 **Nigerian Election 2023: What to Know**\
 `The presidential election this month in Africa’s most populous country is completely unpredictable. An unexpected third candidate with a huge youth following may upend decades of traditional politics.`\
-https://nytimes.com/article/nigeria-election.html?searchResultPosition=5
+https://nytimes.com/article/nigeria-election.html?searchResultPosition=6
 
 **Parting Is Such Sweet Spectacle: A Collector Sells His Hirst, Koons and Calder**\
 `In an unusual midseason, single-owner auction at Christie’s on March 9, Adam Lindemann is purging some of his prizes.`\
-https://nytimes.com/2023/02/14/arts/design/lindemann-hirst-koons-calder-collector-auction.html?searchResultPosition=6
+https://nytimes.com/2023/02/14/arts/design/lindemann-hirst-koons-calder-collector-auction.html?searchResultPosition=7
 
 **Valentine’s Day Love Letters to California**\
 `What we love about our state.`\
-https://nytimes.com/2023/02/14/us/california-valentines-day-love-letters.html?searchResultPosition=7
+https://nytimes.com/2023/02/14/us/california-valentines-day-love-letters.html?searchResultPosition=8
 
 **Three men, buried in rubble for over a week, are rescued.**\
 `The first 72 hours are critical for finding survivors after natural disasters. The men rescued in Turkey on Tuesday had been under rubble for nearly 200 hours.`\
-https://nytimes.com/2023/02/14/world/middleeast/turkey-earthquake-rescue.html?searchResultPosition=8
+https://nytimes.com/2023/02/14/world/middleeast/turkey-earthquake-rescue.html?searchResultPosition=9
 
 **Broadway and West End Theater Owners Agree to Join Forces**\
 `A major British theater company, Ambassador Theater Group, says it is “combining operations” with Jujamcyn, the smallest of Broadway’s three big landlords.`\
-https://nytimes.com/2023/02/14/theater/jujamcyn-atg-broadway.html?searchResultPosition=9
-
-**Investors Await a Momentous Inflation Report**\
-`Tuesday’s Consumer Price Index data could hold big clues about the Federal Reserve’s future policy moves.`\
-https://nytimes.com/2023/02/14/business/dealbook/investors-cpi-inflation-report-stocks.html?searchResultPosition=10
+https://nytimes.com/2023/02/14/theater/jujamcyn-atg-broadway.html?searchResultPosition=10
 
