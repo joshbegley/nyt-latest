@@ -12,7 +12,7 @@ https://nytimes.com/2023/02/14/us/michigan-shooting-suspect-anthony-mcrae.html?s
 
 **Earthquakes Destroy. People Rebuild.**\
 `Cities are a form of life and they need constant care to stay strong. They didn’t get that care in Turkey.`\
-https://nytimes.com/2023/02/14/homepage/earthquakes-destroy-people-rebuild.html?searchResultPosition=4
+https://nytimes.com/2023/02/14/world/turkey-earthquake-rebuild.html?searchResultPosition=4
 
 **The Fraying of the American Wardrobe**\
 `Coach and Elena Velez find common cause in style.`\
