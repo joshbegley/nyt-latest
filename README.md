@@ -6,7 +6,7 @@ https://nytimes.com/2023/02/14/us/powerball-jackpot-winner-california.html?searc
 `Newly declassified memos offer a window into how the world appeared as the Bush administration was winding down.`\
 https://nytimes.com/2023/02/14/us/politics/bush-obama-memos.html?searchResultPosition=2
 
-**From a Parole Board to the Senate: 9 Key Moments in Dianne Feinstein’s Career**\
+**From Harvey Milk’s Side to the Senate: 9 Key Moments in Dianne Feinstein’s Career**\
 `In her decades-long political career, Ms. Feinstein has led San Francisco in the wake of political assassinations, kept the C.I.A. accountable for torture and held sway over Supreme Court nominations.`\
 https://nytimes.com/2023/02/14/us/dianne-feinstein-career.html?searchResultPosition=3
 
