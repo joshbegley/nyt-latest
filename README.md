@@ -1,40 +1,20 @@
+**How Climate Change Is Spreading Malaria in Africa**\
+`The mosquitoes that transmit the disease dramatically increased their range over the last century as temperatures warmed, scientists reported.`\
+https://nytimes.com/2023/02/14/health/malaria-mosquitoes-climate-change.html?searchResultPosition=1
+
+**Is China ‘Probing With Bayonets’?**\
+`Balloons may seem unthreatening, but they can expose weaknesses.`\
+https://nytimes.com/2023/02/14/opinion/china-balloon-ufo.html?searchResultPosition=2
+
+**Netanyahu’s Judicial Coup Could Destroy Israel’s Start-Up Nation**\
+`The greatest risk to Israel in the prime minister’s radical judicial plan is now coming into focus.`\
+https://nytimes.com/2023/02/14/opinion/bibi-netanyahu-israel.html?searchResultPosition=3
+
+**Delivery Cyclists Bore the Brunt of Brooklyn Truck Rampage**\
+`YiJie Ye, who was killed, had worked his way up from collecting cans to bringing New Yorkers food. A man faces a second-degree murder charge in his death.`\
+https://nytimes.com/2023/02/14/nyregion/brooklyn-uhaul-truck-rampage-death.html?searchResultPosition=9
+
 **Murdaugh ‘Never Talked’ With Relative About Finding His Family’s Killer**\
 `Alex Murdaugh’s sister-in-law, the first close family member to testify at his murder trial, said he had been more interested in protecting his son’s reputation than in finding the person who murdered him.`\
-https://nytimes.com/2023/02/14/us/alex-murdaugh-wife-sister-proctor.html?searchResultPosition=1
-
-**Your Tuesday Evening Briefing**\
-`Here’s what you need to know at the end of the day.`\
-https://nytimes.com/2023/02/14/briefing/michigan-state-shooting-nikki-haley-president.html?searchResultPosition=2
-
-**With Battles Looming, Ukraine’s Allies Meet to Plan Arms Supply**\
-`One of Ukraine’s biggest problems in fighting the Russian invasion is a basic one: It is firing artillery rounds much faster than its Western backers are producing them.`\
-https://nytimes.com/2023/02/14/world/europe/ukraine-nato-allies-artillery.html?searchResultPosition=3
-
-**As Camps Open, the Mets Understand Their Assignment**\
-`With the team having a payroll that will approach $500 million once taxes are included, the players know the World Series is the goal. Manager Buck Showalter is taking things more slowly.`\
-https://nytimes.com/2023/02/14/sports/baseball/buck-showalter-mets.html?searchResultPosition=4
-
-**Prosecutors Seek Trump Lawyer’s Testimony, Suggesting Evidence of Crime**\
-`The Justice Department cited the crime-fraud exception to attorney-client privilege in demanding testimony from a lawyer representing former President Donald Trump in his documents case.`\
-https://nytimes.com/2023/02/14/us/politics/trump-lawyer-classified-documents-investigation.html?searchResultPosition=5
-
-**Biden Administration to Brief ‘Gang of Eight’ on Mishandled Classified Files**\
-`The disclosure won’t include sharing the specific documents that improperly accompanied top officials when they left office, which lawmakers of both parties have demanded to see.`\
-https://nytimes.com/2023/02/14/us/politics/biden-pence-trump-congress-classified-files.html?searchResultPosition=6
-
-**Health and Environmental Fears Remain After Ohio Derailment and Inferno**\
-`Experts say more work could be needed to determine the consequences after a release of toxic chemicals from a Feb. 3 train crash.`\
-https://nytimes.com/2023/02/14/climate/ohio-train-derailment-chemical-spill-health.html?searchResultPosition=7
-
-**Julian Wasser, the ‘Photographer Laureate’ of L.A., Dies at 89**\
-`In the 1960s and ’70s, he created indelible images of the city’s combustible mix of art, rock ’n’ roll, new Hollywood and social ferment.`\
-https://nytimes.com/2023/02/14/arts/julian-wasser-dead.html?searchResultPosition=8
-
-**Florida College Cancels Concert Over Gay Singer, Drawing Backlash**\
-`Pensacola Christian College called off an appearance by the King’s Singers, citing the “lifestyle” of a member.`\
-https://nytimes.com/2023/02/14/arts/music/pensacola-college-kings-singers.html?searchResultPosition=9
-
-**Ford Halts Production of Electric Pickup Over Battery Issue**\
-`The automaker cited a potential problem with the battery pack of the F-150 Lightning but said it was unaware of any incidents “in the field.”`\
-https://nytimes.com/2023/02/14/business/ford-f150-lightning-battery.html?searchResultPosition=10
+https://nytimes.com/2023/02/14/us/alex-murdaugh-wife-sister-proctor.html?searchResultPosition=10
 
