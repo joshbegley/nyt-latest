@@ -11,7 +11,7 @@ https://nytimes.com/2023/02/14/us/politics/thomson-bureau-of-prisons-illinois.ht
 https://nytimes.com/2023/02/14/nyregion/eric-adams-rats-summons.html?searchResultPosition=3
 
 **Walmart to Close Three Tech Hubs**\
-`Operations in Carlsbad, Calif., Austin, Texas, and Portland, Ore., will cease and the retailer will aim to relocate those workers, including to its headquarters in Bentonville, Ark.`\
+`Operations in Carlsbad, Calif., Austin, Texas, and Portland, Ore., will cease, and the retailer will aim to relocate those workers, including to its headquarters in Bentonville, Ark.`\
 https://nytimes.com/2023/02/14/business/walmart-tech-hubs-closing.html?searchResultPosition=4
 
 **Senator Dianne Feinstein to Retire at the End of Her Term**\
