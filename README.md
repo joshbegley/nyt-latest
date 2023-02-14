@@ -1,6 +1,6 @@
 **Prosecutors Seek Trump Lawyer’s Testimony, Suggesting Evidence of Crime**\
 `The Justice Department cited the crime-fraud exception to attorney-client privilege in demanding testimony from a lawyer representing former President Donald Trump in his documents case.`\
-https://nytimes.com/2023/02/14/us/politics/prosecutors-seek-trump-lawyers-testimony.html?searchResultPosition=1
+https://nytimes.com/2023/02/14/us/politics/trump-lawyer-classified-documents-investigation.html?searchResultPosition=1
 
 **Biden Administration to Brief ‘Gang of Eight’ on Mishandled Classified Files**\
 `The disclosure won’t include sharing the specific documents that improperly accompanied top officials when they left office, which lawmakers of both parties have demanded to see.`\
