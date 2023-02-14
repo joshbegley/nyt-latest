@@ -4,7 +4,7 @@ https://nytimes.com/2023/02/14/dining/where-should-the-covid-conscious-dine-its-
 
 **Pharrell Williams Is Louis Vuitton’s Next Men’s Designer**\
 `The rapper and music producer will succeed Virgil Abloh and “lead Louis Vuitton toward a new and very exciting chapter,” the brand said in a statement.`\
-https://nytimes.com/2023/02/14/fashion/pharrell-williams-louis-vuitton-mens-creative-director.html?searchResultPosition=2
+https://nytimes.com/2023/02/14/style/pharrell-williams-louis-vuitton-mens-creative-director.html?searchResultPosition=2
 
 **What We Know About the Michigan State Shooting Victims**\
 `Three students were killed in the shooting at the university’s campus on Monday night and five others were wounded.`\
