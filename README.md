@@ -15,7 +15,7 @@ https://nytimes.com/2023/02/14/us/politics/nikki-haley-career-background.html?se
 https://nytimes.com/2023/02/14/us/politics/mike-pence-subpoena-jan-6.html?searchResultPosition=4
 
 **U.S. Arrests Three Americans in the Assassination of Haiti’s President**\
-`Antonio Intriago, a Venezuelan-American businessman, and Arcángel Pretel, a Colombian American citizen, are the owners of a Florida-based security company that has been tied to the 2021 killing.`\
+`Antonio Intriago, a Venezuelan American businessman, and Arcángel Pretel, a Colombian American citizen, are the owners of a Florida-based security company that has been tied to the 2021 killing.`\
 https://nytimes.com/2023/02/14/world/americas/haiti-president-assassination-americans.html?searchResultPosition=5
 
 **Michigan Gunman’s Neighbor Says the Man Fired a Gun in the Backyard**\
