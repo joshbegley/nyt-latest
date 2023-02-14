@@ -22,7 +22,7 @@ https://nytimes.com/2023/02/14/health/malaria-mosquitoes-climate-change.html?sea
 `Balloons may seem unthreatening, but they can expose weaknesses.`\
 https://nytimes.com/2023/02/14/opinion/china-balloon-ufo.html?searchResultPosition=6
 
-**Netanyahu’s Judicial Coup Could Destroy Israel’s Start-Up Nation**\
+**Netanyahu’s Judicial Coup Could Destroy His Start-Up Nation**\
 `The greatest risk to Israel in the prime minister’s radical judicial plan is now coming into focus.`\
 https://nytimes.com/2023/02/14/opinion/bibi-netanyahu-israel.html?searchResultPosition=7
 
