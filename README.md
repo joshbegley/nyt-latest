@@ -7,7 +7,7 @@ https://nytimes.com/2023/02/14/theater/jujamcyn-atg-broadway.html?searchResultPo
 https://nytimes.com/2023/02/14/business/dealbook/investors-cpi-inflation-report-stocks.html?searchResultPosition=2
 
 **Nikki Haley Is Running for President, the First G.O.P. Rival to Take On Trump**\
-`Ms. Haley, 51, a former South Carolina governor and a U.N. ambassador in the Trump administration, has spoken recently of the need for “generational change.”`\
+`Ms. Haley, 51, a former South Carolina governor and a U.N. ambassador in the Trump administration, called for  “generational change” in the party.`\
 https://nytimes.com/2023/02/14/us/politics/nikki-haley-president-trump.html?searchResultPosition=3
 
 **This Season’s Fashion Looks on the Bright Side**\
