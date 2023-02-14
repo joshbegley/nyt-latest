@@ -18,7 +18,7 @@ https://nytimes.com/video/us/100000008770977/michigan-state-shooting-memorial.ht
 `Defense Secretary Lloyd J. Austin III said the United States and other allies were working to help Ukraine prepare for a renewed offensive against Russian forces in the coming months.`\
 https://nytimes.com/video/world/europe/100000008770825/ukraine-offensive-russia-us.html?searchResultPosition=5
 
-**How to Tell if Someone is at Risk for Suicide**\
+**How to Tell if Someone Is at Risk for Suicide**\
 `Experts explain what to watch out for — and what to do — if you’re concerned about a loved one.`\
 https://nytimes.com/article/suicide-risk-signs.html?searchResultPosition=6
 
