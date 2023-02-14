@@ -1,40 +1,40 @@
+**Jewels in Camilla’s Crown Will Not Include Famed Diamond Claimed by India**\
+`For the coronation of King Charles III and the queen consort, she will wear a century-old crown that does not include the storied Koh-i-Noor diamond, taken from India under British rule.`\
+https://nytimes.com/2023/02/14/world/europe/camilla-crown-koh-i-noor-diamond.html?searchResultPosition=1
+
+**According to Medical Guidelines, Your Doctor Needs a 27-Hour Workday**\
+`Some doctors say that however reasonable guidelines may seem, their cumulative burden causes “constant frustration” to medical practice.`\
+https://nytimes.com/2023/02/14/health/doctors-medical-guidelines.html?searchResultPosition=2
+
 **Bad Roman, Offering Modern Italian, Opens in Columbus Circle**\
 `The latest space from the Musket Room team, a twist on Greek fare in the West Village, and more restaurant news.`\
-https://nytimes.com/2023/02/14/dining/nyc-restaurant-news.html?searchResultPosition=1
+https://nytimes.com/2023/02/14/dining/nyc-restaurant-news.html?searchResultPosition=3
 
 **Michigan State University Remembers Shooting Victims**\
 `Students laid flowers at a makeshift memorial on campus after a gunman killed three students and injured five others.`\
-https://nytimes.com/video/us/100000008770977/michigan-state-shooting-memorial.html?searchResultPosition=2
+https://nytimes.com/video/us/100000008770977/michigan-state-shooting-memorial.html?searchResultPosition=4
 
 **U.S. Expects Ukraine to Launch Offensive Against Russia in Spring**\
 `Defense Secretary Lloyd J. Austin III said the United States and other allies were working to help Ukraine prepare for a renewed offensive against Russian forces in the coming months.`\
-https://nytimes.com/video/world/europe/100000008770825/ukraine-offensive-russia-us.html?searchResultPosition=3
+https://nytimes.com/video/world/europe/100000008770825/ukraine-offensive-russia-us.html?searchResultPosition=5
 
 **How to Tell if Someone is at Risk for Suicide**\
 `Experts explain what to watch out for — and what to do — if you’re concerned about a loved one.`\
-https://nytimes.com/article/suicide-risk-signs.html?searchResultPosition=4
+https://nytimes.com/article/suicide-risk-signs.html?searchResultPosition=6
 
 **Transcript: Ezra Klein Interviews Tim Hwang**\
 `The Feb. 14, 2023, episode of “The Ezra Klein Show.”`\
-https://nytimes.com/2023/02/14/podcasts/transcript-ezra-klein-interviews-tim-hwang.html?searchResultPosition=5
+https://nytimes.com/2023/02/14/podcasts/transcript-ezra-klein-interviews-tim-hwang.html?searchResultPosition=7
 
 **Let’s Talk About Intimacy**\
 `Cyndi Darnell, a sex therapist and clinical sexologist, teaches couples how to experience more “pleasure and joy” in their relationships.`\
-https://nytimes.com/2023/02/14/style/sex-intimacy-coach.html?searchResultPosition=6
+https://nytimes.com/2023/02/14/style/sex-intimacy-coach.html?searchResultPosition=8
 
 **A Proposal to Overhaul the Judiciary Is Roiling Israel. What Is the Plan?**\
 `The government says its plan is a much-needed reform to curb the influence of an overreaching judiciary; critics say it will undermine the country’s democratic institutions.`\
-https://nytimes.com/article/israeli-judicial-overhaul.html?searchResultPosition=7
+https://nytimes.com/article/israeli-judicial-overhaul.html?searchResultPosition=9
 
 **5 Things to Know About Nikki Haley**\
 `Ms. Haley, for now the only well-known Republican to challenge Donald Trump for president, made history as South Carolina governor, and was a face of Mr. Trump’s foreign policy as his U.N. ambassador.`\
-https://nytimes.com/2023/02/14/us/politics/nikki-haley-career-background.html?searchResultPosition=8
-
-**Pence to Oppose Subpoena Seeking Testimony in Jan. 6 Inquiry**\
-`The former vice president is said to be planning to invoke the Constitution’s “speech or debate” clause, saying his role as president of the Senate should insulate him from grand jury questions.`\
-https://nytimes.com/2023/02/14/us/politics/mike-pence-subpoena-jan-6.html?searchResultPosition=9
-
-**U.S. Arrests Three Americans in the Assassination of Haiti’s President**\
-`Antonio Intriago, a Venezuelan American businessman, and Arcángel Pretel, a Colombian American citizen, are the owners of a Florida-based security company that has been tied to the 2021 killing.`\
-https://nytimes.com/2023/02/14/world/americas/haiti-president-assassination-americans.html?searchResultPosition=10
+https://nytimes.com/2023/02/14/us/politics/nikki-haley-career-background.html?searchResultPosition=10
 
