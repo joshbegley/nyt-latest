@@ -1,4 +1,4 @@
-**Fear gripped Michigan State University as a gunman roamed campus.**\
+**Fear Gripped Michigan State University as Gunman Roamed Campus**\
 `Students and nearby residents waited anxiously for hours as the police searched for the 43-year-old gunman. He later died of a self-inflicted gunshot wound.`\
 https://nytimes.com/2023/02/14/us/michigan-state-shooting-student-reactions.html?searchResultPosition=1
 
