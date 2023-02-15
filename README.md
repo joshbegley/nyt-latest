@@ -1,6 +1,6 @@
 **Scotland’s Leader Quits, Citing Toll of the Job**\
 `Nicola Sturgeon’s resignation removes one of the most formidable figures from British politics, one who has dedicated her life to the cause of Scottish independence.`\
-https://nytimes.com/2023/02/15/world/europe/nicola-sturgeon-scotland-resigns.html?searchResultPosition=1
+https://nytimes.com/2023/02/15/world/europe/nicola-sturgeon-scotland-resignation.html?searchResultPosition=1
 
 **Severe Storms Could Bring Tornadoes to the South**\
 `The risk stretches from Texas to Kentucky on Wednesday and from the Gulf Coast of Alabama as far north as the shore of Lake Erie in western New York on Thursday, forecasters said.`\
