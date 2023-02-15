@@ -1,5 +1,5 @@
 **Manchester City and the Bruising Battle to Avoid Losing It All**\
-`The Premier League has accused its serial champion of using misleading accounting, secret deals and legal obstruction. The club is digging in for its biggest fight yet.`\
+`The Premier League has accused its serial champion of using misleading accounting, secret deals and legal obstruction to sidestep financial rules. The club is digging in for its biggest fight yet.`\
 https://nytimes.com/2023/02/15/sports/soccer/manchester-city-premier-league.html?searchResultPosition=1
 
 **The Story of a Production That Changed the Metropolitan Opera**\
