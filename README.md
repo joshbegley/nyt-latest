@@ -7,7 +7,7 @@ https://nytimes.com/2023/02/15/opinion/balloon-china-taiwan-biden.html?searchRes
 https://nytimes.com/2023/02/15/nyregion/george-santos-marriage-immigration.html?searchResultPosition=2
 
 **How a Fog of Questions Over a Spy Balloon and U.F.O.s Fed a Diplomatic Crisis**\
-`U.S. officials now suspect that the balloon was sent to spy on bases in Guam and Hawaii and that recent U.F.O.s were not surveillance machines. Washington’s evolving understanding reflects how difficult it is for the U.S. and China to discern each other’s intentions.`\
+`U.S. officials now suspect that the balloon was sent to spy on bases in Guam and Hawaii and that recent U.F.O.s were not surveillance machines. Washington’s evolving view reflects U.S. and Chinese difficulties in discerning each other’s intentions.`\
 https://nytimes.com/2023/02/15/us/politics/balloon-ufo-us-china.html?searchResultPosition=3
 
 **Hans Modrow, 95, Dies; One of East Germany’s Last Communist Leaders**\
