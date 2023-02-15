@@ -1,40 +1,40 @@
+**Retail Sales Surge as Prices Rise and Shoppers Keep Buying**\
+`Consumer spending jumped in January, which was good news for retailers but could weigh on the Federal Reserve’s efforts to tame rapid inflation.`\
+https://nytimes.com/2023/02/15/business/retail-sales-january-inflation.html?searchResultPosition=1
+
+**In a Battered Turkish City, Keeping Watch as the Bodies Emerge**\
+`Residents of Adiyaman, hit hard by the quake, hold impromptu vigils while they await news of relatives still under the rubble, feeding wood from shattered cupboards into fires to keep warm.`\
+https://nytimes.com/2023/02/15/world/europe/turkey-earthquake-rescue-vigils.html?searchResultPosition=2
+
+**Glossier Grows Up, by Reaching the Next Generation**\
+`Founded almost a decade ago, the millennial beauty start-up takes a big step with a hyped SoHo flagship.`\
+https://nytimes.com/2023/02/15/style/glossier-gen-z-make-up-skin-care.html?searchResultPosition=3
+
+**$950,000 Homes in New Jersey, Minnesota and Missouri**\
+`An Edward Durell Stone house in Montclair, a two-bedroom condominium in St. Paul and a 1928 Tudor Revival home in Kansas City.`\
+https://nytimes.com/2023/02/15/realestate/home-prices-new-jersey-minnesota-and-missouri.html?searchResultPosition=4
+
+**What Dianne Feinstein’s Announcement Means for California**\
+`The race to fill her Senate seat is likely to be one of the most competitive in the country.`\
+https://nytimes.com/2023/02/15/us/dianne-feinstein-california.html?searchResultPosition=5
+
+**What Should I Do About a Neighbor Who Verbally Abused Her Child?**\
+`A reader who overheard a neighbor shouting cruelties at her young son wonders whether, and how, to intervene.`\
+https://nytimes.com/2023/02/15/style/what-should-i-do-about-a-neighbor-who-verbally-abused-her-child.html?searchResultPosition=6
+
 **Scotland’s Leader Nicola Sturgeon to Step Down**\
 `Nicola Sturgeon, a champion of Scottish independence, said she would resign as Scotland’s first minister and leader of the Scottish National Party.`\
-https://nytimes.com/video/world/europe/100000008772137/nicola-sturgeon-scotland.html?searchResultPosition=1
+https://nytimes.com/video/world/europe/100000008772137/nicola-sturgeon-scotland.html?searchResultPosition=7
 
 **Air India Places Record Order for 470 Planes From Airbus and Boeing**\
 `The deals are part of an ambitious overhaul by the Tata Group, which resumed control of the once-prestigious airline last year.`\
-https://nytimes.com/2023/02/15/business/air-india-airbus-boeing.html?searchResultPosition=2
+https://nytimes.com/2023/02/15/business/air-india-airbus-boeing.html?searchResultPosition=8
 
 **Russia has relocated 6,000 Ukrainian children to camps in Russian territory, a report finds.**\
 `Children as young as four months old are being held in “integration programs” designed to Russify them, according to researchers.`\
-https://nytimes.com/2023/02/15/world/europe/russia-ukraine-children-camps.html?searchResultPosition=3
+https://nytimes.com/2023/02/15/world/europe/russia-ukraine-children-camps.html?searchResultPosition=9
 
 **Newly Published, From Quiet Poems to Climate Migrants**\
 `A selection of books published this week.`\
-https://nytimes.com/2023/02/15/books/review/new-this-week.html?searchResultPosition=4
-
-**A Big Breakup at the Federal Trade Commission**\
-`A second Republican commissioner has resigned as the agency gears up for a big showdown on noncompete agreements and the Microsoft-Activision merger.`\
-https://nytimes.com/2023/02/15/business/dealbook/lina-khan-federal-trade-commission-wilson-resignation.html?searchResultPosition=5
-
-**Severed Cable Forces Lufthansa to Cancel More Than 120 Flights**\
-`A cable cut during construction knocked systems offline for Lufthansa, Germany’s leading carrier, stranding thousands of travelers at Frankfurt Airport and elsewhere.`\
-https://nytimes.com/2023/02/15/business/lufthansa-it-problem-canceled-flights.html?searchResultPosition=6
-
-**Pasta That’s Almost Too Pretty to Eat**\
-`Plus: illuminated sculptures inspired by Indigenous motifs, elegant ballet slippers and more from T’s cultural compendium.`\
-https://nytimes.com/2023/02/15/t-magazine/rainbow-pasta-ballet-slippers-klove-studio.html?searchResultPosition=7
-
-**Captain of Thai Soccer Team Who Survived Cave Rescue Dies in England**\
-`Duangpetch Promthep, 17, was a member of the soccer team that made an extraordinary escape from a submerged cave in Thailand in 2018. The cause of his death was unclear.`\
-https://nytimes.com/2023/02/15/world/europe/thai-cave-rescue-soccer-captain-dead.html?searchResultPosition=8
-
-**Nicola Sturgeon Is Scotland’s Longest-Serving First Minister**\
-`Nicola D`\
-https://nytimes.com/2023/02/15/world/europe/who-is-nicola-sturgeon-scotland.html?searchResultPosition=9
-
-**Diversity vs. Fairness**\
-`When the Supreme Court upheld affirmative action in the 1970s, it helped lay the groundwork for the program’s demise.`\
-https://nytimes.com/2023/02/15/briefing/affirmative-action.html?searchResultPosition=10
+https://nytimes.com/2023/02/15/books/review/new-this-week.html?searchResultPosition=10
 
