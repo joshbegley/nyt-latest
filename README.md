@@ -15,7 +15,7 @@ https://nytimes.com/2023/02/15/arts/music/lviv-national-philharmonic-orchestra-o
 https://nytimes.com/2023/02/15/world/europe/england-lostwithiel-doctor-music-video.html?searchResultPosition=4
 
 **Breaking Impasse, State Senate Will Vote on N.Y. Chief Judge Nominee**\
-`Gov. Kathy Hochul has argued that Justice Hector LaSalle, her divisive nominee for the state’s top judgeship, was denied his constitutional right to a full Senate vote.`\
+`It is highly unlikely that Justice Hector LaSalle, Gov. Kathy Hochul’s divisive nominee, will survive the floor vote in the chamber.`\
 https://nytimes.com/2023/02/15/nyregion/hector-lasalle-chief-judge-vote.html?searchResultPosition=5
 
 **The Prince of New York**\
