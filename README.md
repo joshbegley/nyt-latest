@@ -1,5 +1,5 @@
 **Breaking Impasse, State Senate Will Vote on N.Y. Chief Judge Nominee**\
-`Gov. Kathy Hochul has argued that Justice Hector LaSalle, her divisive nominee for the state’s top judgeship, was denied his constitutional right to a full Senate vote on his nomination.`\
+`Gov. Kathy Hochul has argued that Justice Hector LaSalle, her divisive nominee for the state’s top judgeship, was denied his constitutional right to a full Senate vote.`\
 https://nytimes.com/2023/02/15/nyregion/hector-lasalle-chief-judge-vote.html?searchResultPosition=1
 
 **The Prince of New York**\
