@@ -1,40 +1,40 @@
-**Explaining Climate Change, With a Little Tech Help**\
-`A new tool uses machine learning to help readers discover answers to common climate-related questions, written and edited by journalists on the Climate desk.`\
-https://nytimes.com/2023/02/15/insider/explaining-climate-change-with-a-little-tech-help.html?searchResultPosition=1
+**Choosing a Houseplant? Durable Doesn’t Have to Mean Boring.**\
+`Rule No. 1: “You don’t have to just have a plain-Jane green plant.” But here’s what you do have to do — to find the right plant and maintain it.`\
+https://nytimes.com/2023/02/15/realestate/houseplants-type-care.html?searchResultPosition=1
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/02/15/crosswords/spelling-bee-forum.html?searchResultPosition=2
+**Why Are We Living With Such Ugly Succulents and Cactuses?**\
+`Lumpy and weirdly shaped plants are a reminder of what can still grow under harsh conditions.`\
+https://nytimes.com/2023/02/15/t-magazine/ugly-plants-cactus-succulent.html?searchResultPosition=2
 
-**Ruminating**\
-`What do you think this image is communicating?`\
-https://nytimes.com/2023/02/15/learning/ruminating.html?searchResultPosition=3
+**Carmakers Are Pushing Autonomous Tech. This Engineer Wants Limits.**\
+`Missy Cummings, who spent more than a year at the federal auto safety agency, said that drivers were putting too much trust in systems like Tesla’s Autopilot and that regulators needed to restrict their use.`\
+https://nytimes.com/2023/02/15/business/missy-cummings-tesla-autopilot.html?searchResultPosition=3
 
-**U.K. Inflation Eases to 10.1 Percent, but Food Prices Push Higher**\
-`January was the third month of declines in the inflation rate, but the double-digit increase shows Britain’s cost-of-living crisis persisting.`\
-https://nytimes.com/2023/02/15/business/uk-inflation-january.html?searchResultPosition=4
+**Netflix Shuns Live Sports but Embraces Sports Documentaries**\
+`Unlike many of its rivals, Netflix has not pursued showing live games. Instead, it has invested in series on professional auto racing, tennis and now golf.`\
+https://nytimes.com/2023/02/15/business/media/netflix-sports-documentaries.html?searchResultPosition=4
 
-**Stephen Colbert is Underwhelmed by Nikki Haley’s Big Announcement**\
-`“As she said in her campaign announcement tweet, ‘Get excited,’” Colbert said on Tuesday.`\
-https://nytimes.com/2023/02/15/arts/television/stephen-colbert-nikki-haley.html?searchResultPosition=5
+**Why Is Affirmative Action in Peril? One Man’s Decision.**\
+`How the landmark 1978 Supreme Court decision that upheld the practice may ultimately have set it on a path to being outlawed.`\
+https://nytimes.com/2023/02/15/magazine/affirmative-action-supreme-court.html?searchResultPosition=5
 
-**Word of the Day: indictment**\
-`This word has appeared in 570 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/02/15/learning/word-of-the-day-indictment.html?searchResultPosition=6
+**A Manifesto for Loving the Darkness, and Not Metaphorically**\
+`Light pollution is disruptive to many species, from corals to bats to the humans who put up all those lights. “The Darkness Manifesto” urges us to reconsider our drive to dispel the dark.`\
+https://nytimes.com/2023/02/15/books/light-pollution-impact-darkness-manifesto.html?searchResultPosition=6
 
-**Your Wednesday Briefing**\
-`Rescues in Turkey against the odds.`\
-https://nytimes.com/2023/02/15/briefing/rescues-turkey-flying-objects.html?searchResultPosition=7
+**Hari Nef and Parker Posey: Two ‘It’ Girls Whose ‘Humanity Peeks Through’**\
+`In a pairing that seems almost predestined, the actresses are sharing a stage in “The Seagull/Woodstock, NY,” a contemporary riff on Chekhov.`\
+https://nytimes.com/2023/02/15/theater/hari-nef-parker-posey-seagull-chekhov.html?searchResultPosition=7
 
-**Before Lincoln Center, San Juan Hill Was a Vibrant Black Community**\
-`An executive at Lincoln Center who was investigating the arts center’s origins found out that she had roots in the neighborhood herself.`\
-https://nytimes.com/2023/02/15/nyregion/lincoln-center-san-juan-hill.html?searchResultPosition=8
+**In Bleak Russian Cemetery, Sea of Crosses Signals War’s True Toll**\
+`A dismal, snowy plot near the Black Sea is the final resting place for more and more soldiers from the Wagner mercenary forces, a testament to the huge casualties Russia is suffering in its invasion.`\
+https://nytimes.com/2023/02/15/world/europe/wagner-russia-cemetery.html?searchResultPosition=8
 
-**As Taliban Settle In, Kabul’s Green Zone Comes Back to Life**\
-`Walking down its streets a year ago was like wandering into the modern ruins of another empire come and gone from Afghanistan. Now, the Taliban have adopted the former diplomatic enclave as their own.`\
-https://nytimes.com/2023/02/15/world/asia/kabul-afghanistan-greenzone-taliban.html?searchResultPosition=9
+**Exploring South Africa’s Black Wine Scene**\
+`White South Africans control a vast majority of the country’s wine industry. But it’s growing increasingly possible to support Black winemakers and owners.`\
+https://nytimes.com/2023/02/15/travel/black-south-african-wine.html?searchResultPosition=9
 
-**New Zealand Declares State of Emergency After Cyclone Gabrielle**\
-`The cyclone battered most of New Zealand’s North Island and caused severe flooding, landslides and power outages.`\
-https://nytimes.com/video/world/asia/100000008771868/new-zealand-cyclone-gabrielle.html?searchResultPosition=10
+**FTX Negotiates for Return of $400 Million From Obscure Hedge Fund**\
+`The founders of the trading firm Modulo Capital are in talks with FTX about returning the investment that Sam Bankman-Fried made in the fund.`\
+https://nytimes.com/2023/02/15/technology/ftx-modulo-capital.html?searchResultPosition=10
 
