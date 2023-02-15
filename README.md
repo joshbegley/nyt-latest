@@ -34,7 +34,7 @@ https://nytimes.com/2023/02/15/climate/ohio-train-fire-toxic-chemicals.html?sear
 `Reacting to Nicholas Kristof’s opinion that the push for new terminology may have gone too far. Also: Mike Pence; the death penalty; Joe Biden’s plans for 2024; forced parenthood.`\
 https://nytimes.com/2023/02/15/opinion/letters/inclusive-language.html?searchResultPosition=9
 
-**Caviar as a Taco Topping? Don’t Mention It to This Crowd.**\
-`Caviar Kaspia, the Parisian restaurant known as the unofficial headquarters for the fashion set, made its New York debut on a recent evening.`\
+**Where Caviar Kaspia Goes, Fashion Follows**\
+`The Parisian restaurant known as the unofficial headquarters for the fashion set made its New York debut on a recent evening.`\
 https://nytimes.com/2023/02/15/style/caviar-kaspia-nyfw-party.html?searchResultPosition=10
 
