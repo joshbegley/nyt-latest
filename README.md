@@ -1,4 +1,4 @@
-**Nicotine Gum and Acid Reflux — What We Learn From Presidential Physicals**\
+**Nicotine Gum and Acid Reflux: What We Learn From Presidential Physicals**\
 `President Biden will undergo a routine checkup on Thursday. Here’s what exams of Mr. Biden and past presidents have turned up.`\
 https://nytimes.com/2023/02/15/us/politics/biden-trump-obama-physicals-doctors-health.html?searchResultPosition=1
 
