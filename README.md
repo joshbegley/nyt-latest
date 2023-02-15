@@ -1,5 +1,5 @@
 **Severed Cable Forces Lufthansa to Cancel Its Flights**\
-`A cable cut during construction knocked systems offline for Lufthansa, Germany’s leading carrier, stranding hundreds of travelers at Frankfurt Airport and elsewhere.`\
+`A cable cut during construction knocked systems offline for Lufthansa, Germany’s leading carrier, stranding thousands of travelers at Frankfurt Airport and elsewhere.`\
 https://nytimes.com/2023/02/15/business/lufthansa-it-problem-cancelled-flights.html?searchResultPosition=1
 
 **Pasta That’s Almost Too Pretty to Eat**\
