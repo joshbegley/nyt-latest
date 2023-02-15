@@ -11,7 +11,7 @@ https://nytimes.com/2023/02/15/us/severe-storms-could-bring-tornadoes-to-the-sou
 https://nytimes.com/2023/02/15/movies/raquel-welch-dead.html?searchResultPosition=3
 
 **World Bank President, Dogged by Climate Questions, Steps Down Early**\
-`David Malpass, under fire for months by critics who called him a climate denier, said he will step down as president, leaving a year before his term ends.`\
+`David Malpass, under fire for months by critics who called him a climate denier, said he will leave the World Bank by June, a year before his term ends.`\
 https://nytimes.com/2023/02/15/climate/david-malpass-world-bank.html?searchResultPosition=4
 
 **The Super Bowl Can Teach Us About Incompatible Incentives**\
