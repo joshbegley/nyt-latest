@@ -6,7 +6,7 @@ https://nytimes.com/2023/02/15/world/asia/china-spy-balloon-xinjiang-tibet.html?
 `An agreement with the White House to allow electric cars made by other automakers is part of a broad drive to improve charging and increase sales of battery-powered vehicles.`\
 https://nytimes.com/2023/02/15/business/energy-environment/tesla-electric-vehicle-chargers-biden.html?searchResultPosition=2
 
-**How Many Countries are in This Country? A Look at the Shape of the U.K. Government.**\
+**How Many Countries Are in This Country? A Look at the Shape of the U.K. Government.**\
 `In Scotland, the government makes decisions relating to the economy, education, health, justice and other areas.`\
 https://nytimes.com/2023/02/15/world/europe/scotland-uk-government-sturgeon.html?searchResultPosition=3
 
