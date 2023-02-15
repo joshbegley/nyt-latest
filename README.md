@@ -1,4 +1,4 @@
-**World Bank President, Dogged By Climate Questions, Steps Down Early**\
+**World Bank President, Dogged by Climate Questions, Steps Down Early**\
 `David Malpass, under fire for months by critics who called him a climate denier, said he will step down as president, leaving a year before his term ends.`\
 https://nytimes.com/2023/02/15/climate/david-malpass-world-bank.html?searchResultPosition=1
 
