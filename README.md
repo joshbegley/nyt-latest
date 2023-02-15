@@ -1,4 +1,4 @@
-**Long in Uber’s Shadow, Lyft’s Financial Woes Thrust It Into the Spotlight**\
+**Financial Woes Thrust Lyft, Long in Uber’s Shadow, Into the Spotlight**\
 `Lyft recovered from pandemic restrictions slower than Uber, and critics said it lacked the kind of ambitious investments that could distinguish itself from its rival.`\
 https://nytimes.com/2023/02/15/technology/lyft-financial-woes.html?searchResultPosition=1
 
