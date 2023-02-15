@@ -1,5 +1,5 @@
 **Israeli Parliament Votes to Deport Citizens Convicted of Terrorism**\
-`Amid a surge in violence, lawmakers voted to allow the authorities to deport convicted Palestinians, including Israeli citizens. Opponents called the law, aimed only at Arabs, discriminatory.`\
+`Amid a surge in violence, lawmakers voted to allow the authorities to deport convicted Palestinians, including Israeli citizens. Opponents called the law, aimed at Arabs, discriminatory.`\
 https://nytimes.com/2023/02/15/world/middleeast/israel-deport-citizens-terrorism.html?searchResultPosition=1
 
 **Families of Buffalo Victims Speak Before Gunman’s Sentencing**\
