@@ -27,14 +27,14 @@ https://nytimes.com/2023/02/15/t-magazine/rainbow-pasta-ballet-slippers-klove-st
 https://nytimes.com/2023/02/15/world/europe/thai-cave-rescue-soccer-captain-dead.html?searchResultPosition=7
 
 **Nicola Sturgeon Is Scotland’s Longest-Serving First Minister**\
-`Nicola Sturgeon, a powerful voice for Scottish independence, rose through her party’s ranks to become the most prominent figure in Scottish politics.`\
+`Nicola D`\
 https://nytimes.com/2023/02/15/world/europe/who-is-nicola-sturgeon-scotland.html?searchResultPosition=8
 
 **Diversity vs. Fairness**\
 `When the Supreme Court upheld affirmative action in the 1970s, it helped lay the groundwork for the program’s demise.`\
 https://nytimes.com/2023/02/15/briefing/affirmative-action.html?searchResultPosition=9
 
-**Thousands of Syrian refugees in Turkey rush to a border crossing to return home.**\
-`The Syrian administration of a key border crossing into opposition-held territory in northwestern Syria said on social media that Turkey would allow Syrians to leave the country and then return. Thousands flocked to that and other crossings.`\
+**Thousands of Syrian refugees in Turkey rush to border crossings to return home.**\
+`The Syrian administration of a key border crossing into opposition-held territory in northwestern Syria said that Turkey would allow Syrians to leave the country and then return. Thousands flocked to the border.`\
 https://nytimes.com/2023/02/15/world/middleeast/turkey-syria-refugees-earthquake.html?searchResultPosition=10
 
