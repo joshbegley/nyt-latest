@@ -1,4 +1,4 @@
-**Senator Bob Casey Undergoes Surgery For Prostate Cancer**\
+**Senator Bob Casey Undergoes Surgery for Prostate Cancer**\
 `Mr. Casey’s office wrote on Twitter that the surgery went well, that he “should not require further treatment” and that he expected to resume a normal schedule after some rest.`\
 https://nytimes.com/2023/02/14/us/politics/bob-casey-pennsylvania-cancer.html?searchResultPosition=1
 
