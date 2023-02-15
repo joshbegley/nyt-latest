@@ -3,7 +3,7 @@
 https://nytimes.com/2023/02/15/sports/soccer/arsenal-manchester-city.html?searchResultPosition=1
 
 **Narcan Is Safe to Sell Over the Counter, Advisers to the F.D.A. Conclude**\
-`The overdose reversal drug has been administered mostly by emergency responders and outreach workers. If the agency approves a nonprescription version, it could be come as easily available as aspirin.`\
+`The overdose reversal drug has been administered mostly by emergency responders and outreach workers. If the agency approves a nonprescription version, it could become as easily available as aspirin.`\
 https://nytimes.com/2023/02/15/health/narcan-nalaxone-drug-stores.html?searchResultPosition=2
 
 **The Yankees Start Their Season With a Plot Twist**\
