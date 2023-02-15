@@ -1,4 +1,4 @@
-**Hans Modrow, 95, One of East Germany’s Last Communist Leaders, Is Dead**\
+**Hans Modrow, 95, Dies; One of East Germany’s Last Communist Leaders**\
 `He became prime minister less than two weeks after the fall of the Berlin Wall, and initially sought to preserve East Germany before accepting reunification.`\
 https://nytimes.com/2023/02/15/world/europe/hans-modrow-dead.html?searchResultPosition=1
 
