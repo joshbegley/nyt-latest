@@ -10,9 +10,9 @@ https://nytimes.com/2023/02/15/books/review/new-this-week.html?searchResultPosit
 `A second Republican commissioner has resigned as the agency gears up for a big showdown on noncompete agreements and the Microsoft-Activision merger.`\
 https://nytimes.com/2023/02/15/business/dealbook/lina-khan-federal-trade-commission-wilson-resignation.html?searchResultPosition=3
 
-**Severed Cable Forces Lufthansa to Cancel Its Flights**\
+**Severed Cable Forces Lufthansa to Cancel More Than 120 Flights**\
 `A cable cut during construction knocked systems offline for Lufthansa, Germany’s leading carrier, stranding thousands of travelers at Frankfurt Airport and elsewhere.`\
-https://nytimes.com/2023/02/15/business/lufthansa-it-problem-cancelled-flights.html?searchResultPosition=4
+https://nytimes.com/2023/02/15/business/lufthansa-it-problem-canceled-flights.html?searchResultPosition=4
 
 **Pasta That’s Almost Too Pretty to Eat**\
 `Plus: illuminated sculptures inspired by Indigenous motifs, elegant ballet slippers and more from T’s cultural compendium.`\
