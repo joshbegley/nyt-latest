@@ -1,5 +1,5 @@
 **He Smeared Feces on a Critic, and Lost a Job. Now, He Wants to be Heard.**\
-`Marco Goecke on Thursday lost his position as ballet director at Hanover’s main opera house. The reaction “been a bit blown up,” he says.`\
+`Marco Goecke on Thursday lost his position as ballet director at Hanover’s main opera house. The reaction has  “been a bit blown up,” he says.`\
 https://nytimes.com/2023/02/16/arts/dance/goecke-dog-feces-critic.html?searchResultPosition=1
 
 **Fluffy, Party-Ready Spring Accessories**\
