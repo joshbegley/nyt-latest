@@ -1,5 +1,5 @@
 **Raquel Welch, a Lifetime of Looks**\
-`From cave woman to ‘Woman of the Year,” Ms. Welch defied expectations.`\
+`From cave woman to “Woman of the Year,” Ms. Welch defied expectations.`\
 https://nytimes.com/2023/02/15/style/raquel-welch-photos.html?searchResultPosition=1
 
 **Thousands of Chinese Retirees Protest Government Cuts to Benefits**\
