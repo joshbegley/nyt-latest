@@ -15,7 +15,7 @@ https://nytimes.com/2023/02/16/arts/design/orchid-show-botanical-garden.html?sea
 https://nytimes.com/2023/02/16/us/politics/john-fetterman-health.html?searchResultPosition=4
 
 **Tim McCarver, 81, All-Star Catcher in Hall of Fame as Broadcaster, Dies**\
-`He played with four teams over four decades and won two World Series titles, then took his gift of gab into the TV booth.`\
+`He played with four teams over four decades and won two World Series titles, then took his baseball smarts and gift of gab into the TV booth.`\
 https://nytimes.com/2023/02/16/sports/baseball/tim-mccarver-dead.html?searchResultPosition=5
 
 **Spain Allows Legal Gender Change Without a Medical Evaluation**\
