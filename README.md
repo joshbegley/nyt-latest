@@ -3,7 +3,7 @@
 https://nytimes.com/2023/02/15/crosswords/daily-puzzle-2023-02-16.html?searchResultPosition=1
 
 **‘We’re Scared, Too’: Ohio Residents Press for Answers on Train Derailment at Meeting**\
-`Officials for the railroad company pulled out of the town hall hours before it was scheduled to start, further infuriating residents who had planned to press the company on the derailment and its fallout.`\
+`Officials for the railroad company pulled out hours earlier, infuriating some residents who said they wanted answers from the company.`\
 https://nytimes.com/2023/02/15/us/ohio-train-derailment-town-hall.html?searchResultPosition=2
 
 **F.B.I. Searched University of Delaware in Biden Documents Inquiry**\
