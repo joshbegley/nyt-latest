@@ -31,7 +31,7 @@ https://nytimes.com/2023/02/16/sports/skiing/mikaela-shiffrin-world-championship
 https://nytimes.com/2023/02/16/arts/music/amiri-baraka-blues-people-performance.html?searchResultPosition=8
 
 **As Scrutiny of Crypto Rises, Bitcoin Stages a Comeback**\
-`The cryptocurrency has hit a six-month high as investors eagerly jump back into risky digital assets, while regulators and lawmakers consider stricter rules for the sector.`\
+`The cryptocurrency hit an eight-month high as investors eagerly jump back into risky digital assets, while regulators and lawmakers consider stricter rules for the sector.`\
 https://nytimes.com/2023/02/16/business/bitcoin-price-rally.html?searchResultPosition=9
 
 **Homes for Sale in Manhattan and the Bronx**\
