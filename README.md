@@ -30,9 +30,9 @@ https://nytimes.com/2023/02/16/world/europe/scotland-independence-nicola-sturgeo
 `A lavish exhibition, “The Orchid Show: Natural Heritage” explores the diversity of these charismatic flowers.`\
 https://nytimes.com/2023/02/16/arts/design/orchid-show-botanical-garden.html?searchResultPosition=8
 
-**Belarusian leader outlines condition for joining Ukraine war before talks with Putin.**\
-`By Anatoly Kurmanaev and Marc Santora`\
-https://nytimes.com/2023/02/16/world/europe/belarusian-leader-outlines-condition-for-joining-ukraine-war-before-talks-with-putin.html?searchResultPosition=9
+**Belarus Would Join Russia’s War if Ukraine Attacked, Lukashenko Says**\
+`President Aleksandr Lukashenko of Belarus has been surrounded by speculation that his country could be pressed into providing more support for Russia.`\
+https://nytimes.com/2023/02/16/world/europe/belarus-lukashenko-ukraine-war.html?searchResultPosition=9
 
 **Fetterman Checks In to Hospital for Treatment of Clinical Depression**\
 `A spokesman for the first-term senator from Pennsylvania, who suffered a near-fatal stroke last year, said his depression had grown severe in recent weeks, as he has worked to adjust to life in the Senate.`\
