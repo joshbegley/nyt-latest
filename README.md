@@ -14,7 +14,7 @@ https://nytimes.com/2023/02/16/science/sandra-trehub-dead.html?searchResultPosit
 `President Biden said the latest objects shot down by the U.S. military over North America were likely not related to the Chinese spy balloon program.`\
 https://nytimes.com/video/us/politics/100000008774692/biden-unidentified-objects-spy-balloon.html?searchResultPosition=4
 
-**‘Chernobyl 2.0’? Ohio Train Derailment Spurs Wild Speculation**\
+**‘Chernobyl 2.0’? Ohio Train Derailment Spurs Wild Speculation.**\
 `For many influencers across the political spectrum, claims about the environmental effects of the train derailment have gone far beyond known facts.`\
 https://nytimes.com/2023/02/16/technology/ohio-train-derailment-chernobyl.html?searchResultPosition=5
 
