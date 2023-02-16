@@ -8,7 +8,7 @@ https://nytimes.com/video/us/politics/100000008774692/biden-unidentified-objects
 
 **‘Chernobyl 2.0’? Ohio Train Derailment Spurs Wild Speculation**\
 `For many influencers across the political spectrum, claims about the environmental effects of the train derailment have gone far beyond known facts.`\
-https://nytimes.com/2023/02/16/technology/chernobyl-2-0-ohio-train-derailment.html?searchResultPosition=3
+https://nytimes.com/2023/02/16/technology/ohio-train-derailment-chernobyl.html?searchResultPosition=3
 
 **Supreme Court Cancels Arguments in Title 42 Immigration Case**\
 `The justices, who had been set to hear arguments on March 1, acted after the Biden administration filed a brief saying that the measure would soon be moot.`\
