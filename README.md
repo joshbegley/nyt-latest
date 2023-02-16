@@ -1,6 +1,6 @@
 **Raquel Welch, a Lifetime of Looks**\
 `From cave woman to ‘Woman of the Year,” Ms. Welch defied expectations.`\
-https://nytimes.com/2023/02/15/style/raquel-welch-a-lifetime-of-looks.html?searchResultPosition=1
+https://nytimes.com/2023/02/15/style/raquel-welch-photos.html?searchResultPosition=1
 
 **Thousands of Chinese Retirees Protest Government Cuts to Benefits**\
 `The protest in Wuhan highlights the strain on the finances of local governments, made worse by heavy spending on “zero Covid” measures.`\
