@@ -22,19 +22,19 @@ https://nytimes.com/2023/02/16/us/politics/trump-georgia-grand-jury-report.html?
 `Two creative people in two different fields in one wide-ranging conversation. This time: the artist and the “Bones and All” actress.`\
 https://nytimes.com/2023/02/16/t-magazine/elizabeth-peyton-taylor-russell.html?searchResultPosition=6
 
+**Syria’s Assad Uses Disaster Diplomacy to Inch Back Onto World Stage**\
+`“A tragedy for Syrians is a boon for Assad because nobody else wants to manage this mess,” one analyst said of President Bashar al-Assad, who became a global pariah for his regime’s abuses during a civil war.`\
+https://nytimes.com/2023/02/16/world/middleeast/syria-earthquake-assad-diplomacy.html?searchResultPosition=7
+
 **‘Party Down’ Is Back. Did You R.S.V.P.?**\
 `The cult cater-waiter comedy got abysmal ratings when it was canceled in 2010. Now a six-episode revival is one of the most anticipated shows of the year.`\
-https://nytimes.com/2023/02/16/arts/television/party-down-is-back-did-you-rsvp.html?searchResultPosition=7
+https://nytimes.com/2023/02/16/arts/television/party-down-is-back-did-you-rsvp.html?searchResultPosition=8
 
 **6 Ways to Make Your Home More Energy Efficient**\
 `The smartest tech you can buy right now might not be the latest phone or tablet, but rather the energy-efficient electric systems you need to power them.`\
-https://nytimes.com/2023/02/16/realestate/solar-energy-efficient-home.html?searchResultPosition=8
+https://nytimes.com/2023/02/16/realestate/solar-energy-efficient-home.html?searchResultPosition=9
 
 **In Defense of J.K. Rowling**\
 `The charge that she’s a transphobe doesn’t square with her actual views.`\
-https://nytimes.com/2023/02/16/opinion/jk-rowling-transphobia.html?searchResultPosition=9
-
-**Syria’s Assad Uses Disaster Diplomacy to Inch Back Onto World Stage**\
-`“A tragedy for Syrians is a boon for Assad because nobody else wants to manage this mess,” one analyst said of President Bashar al-Assad, who became a global pariah for his regime’s abuses during a civil war.`\
-https://nytimes.com/2023/02/16/world/middleeast/syria-earthquake-assad-diplomacy.html?searchResultPosition=10
+https://nytimes.com/2023/02/16/opinion/jk-rowling-transphobia.html?searchResultPosition=10
 
