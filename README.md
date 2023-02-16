@@ -30,11 +30,11 @@ https://nytimes.com/2023/02/16/world/europe/scotland-independence-nicola-sturgeo
 `A lavish exhibition, “The Orchid Show: Natural Heritage” explores the diversity of these charismatic flowers.`\
 https://nytimes.com/2023/02/16/arts/design/orchid-show-botanical-garden.html?searchResultPosition=8
 
-**Fetterman Checks Into Hospital to Seek Treatment for Clinical Depression**\
-`A spokesman for the first-term senator from Pennsylvania, who suffered a near-fatal stroke last year, said his depression had grown severe in recent weeks, as he has worked to adjust to life in the Senate.`\
-https://nytimes.com/2023/02/16/us/politics/john-fetterman-health.html?searchResultPosition=9
+**Belarusian leader outlines condition for joining Ukraine war before talks with Putin.**\
+`By Anatoly Kurmanaev and Marc Santora`\
+https://nytimes.com/2023/02/16/world/europe/belarusian-leader-outlines-condition-for-joining-ukraine-war-before-talks-with-putin.html?searchResultPosition=9
 
-**Tim McCarver, 81, All-Star Catcher in Hall of Fame as Broadcaster, Dies**\
-`He played with four teams over four decades and won two World Series titles, then took his baseball smarts and gift of gab into the TV booth.`\
-https://nytimes.com/2023/02/16/sports/baseball/tim-mccarver-dead.html?searchResultPosition=10
+**Fetterman Checks In to Hospital for Treatment of Clinical Depression**\
+`A spokesman for the first-term senator from Pennsylvania, who suffered a near-fatal stroke last year, said his depression had grown severe in recent weeks, as he has worked to adjust to life in the Senate.`\
+https://nytimes.com/2023/02/16/us/politics/john-fetterman-health.html?searchResultPosition=10
 
