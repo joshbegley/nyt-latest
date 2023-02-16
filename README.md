@@ -22,8 +22,8 @@ https://nytimes.com/2023/02/16/arts/design/ming-smith-photographer-museum-of-mod
 `The art form needs to make room for lesser-known names, to refresh and enlarge the talent pool, our critic writes.`\
 https://nytimes.com/2023/02/16/theater/sylvia-standing-at-the-skys-edge-london-musicals.html?searchResultPosition=6
 
-**Celtics Hire Joe Mazzulla Permanently, Cutting Ties With Ime Udoka**\
-`The Boston Celtics had named Mazzulla the interim head coach in September after suspending Udoka for the season for violating team policies.`\
+**Celtics Make Joe Mazzulla Their Head Coach, Cutting Ties With Ime Udoka**\
+`Mazzulla had been the interim head coach since September after Boston suspended Udoka for the season for violating team policies.`\
 https://nytimes.com/2023/02/16/sports/basketball/ime-udoka-fired-joe-mazzulla.html?searchResultPosition=7
 
 **How One President’s Day Became Presidents’ Day**\
