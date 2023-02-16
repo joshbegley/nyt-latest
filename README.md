@@ -12,7 +12,7 @@ https://nytimes.com/2023/02/16/arts/television/hello-tomorrow-review.html?search
 
 **A Fast Way to Orange Rolls, the Citrusy Sister of Cinnamon Rolls**\
 `Whether or not you have nostalgia for these breakfast treats, you’ll want to bake these homemade ones from Genevieve Ko.`\
-https://nytimes.com/2023/02/16/dining/orange-rolls.html?searchResultPosition=4
+https://nytimes.com/2023/02/16/dining/orange-rolls-recipe.html?searchResultPosition=4
 
 **Dismiss Ron DeSantis at Your Peril**\
 `The Florida governor isn’t punching back at Donald Trump. That’s discipline, not weakness.`\
