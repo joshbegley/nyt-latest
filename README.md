@@ -1,40 +1,40 @@
+**Revenge of the Chatbots**\
+`Microsoft’s investment in the technology has been a boon for the company’s stock, even as early users find the A.I.-powered system erratic.`\
+https://nytimes.com/2023/02/16/business/dealbook/microsoft-chatgpt-revenge-chatbots.html?searchResultPosition=1
+
 **Magic: The Gathering Becomes a Billion-Dollar Brand for Toymaker Hasbro**\
 `The fantasy card game has surpassed the sales of the 100-year-old company’s other brands, including Transformers and G.I. Joe, but some are worried about the downsides of rapid growth.`\
-https://nytimes.com/2023/02/16/business/magic-the-gathering-hasbro.html?searchResultPosition=1
+https://nytimes.com/2023/02/16/business/magic-the-gathering-hasbro.html?searchResultPosition=2
 
 **Why the Chimera Is the Monster for Our Uncertain Age**\
 `Whenever the human world is in trouble, our imagination turns to this creature: a hybrid beast that defies easy understanding.`\
-https://nytimes.com/2023/02/16/t-magazine/chimera-monsters.html?searchResultPosition=2
+https://nytimes.com/2023/02/16/t-magazine/chimera-monsters.html?searchResultPosition=3
 
 **‘The First Step’ Review: Van Jones Battles for Bipartisanship**\
 `This well-meaning documentary follows the liberal commentator as he works with both political parties to pass a criminal justice reform bill.`\
-https://nytimes.com/2023/02/16/movies/the-first-step-review.html?searchResultPosition=3
+https://nytimes.com/2023/02/16/movies/the-first-step-review.html?searchResultPosition=4
 
 **‘A Radiant Girl’ Review: Coming of Age in Paris, 1942**\
 `This Holocaust drama could have easily passed for a blissful teen romance; instead, it’s an awkwardly rendered portrait of a young Jewish woman in denial.`\
-https://nytimes.com/2023/02/16/movies/a-radiant-girl-review.html?searchResultPosition=4
+https://nytimes.com/2023/02/16/movies/a-radiant-girl-review.html?searchResultPosition=5
 
 **‘88’ Review: Finding Hate in Numbers**\
 `In this new political thriller, a campaign finance manager uncovers a corrupt scheme.`\
-https://nytimes.com/2023/02/16/movies/88-review.html?searchResultPosition=5
+https://nytimes.com/2023/02/16/movies/88-review.html?searchResultPosition=6
 
 **‘Lonesome’ Review: Using Sex, Finding Intimacy**\
 `The Australian filmmaker Craig Boreham’s drama credibly depicts characters who feel most comfortable communicating through sex.`\
-https://nytimes.com/2023/02/16/movies/lonesome-review.html?searchResultPosition=6
+https://nytimes.com/2023/02/16/movies/lonesome-review.html?searchResultPosition=7
 
 **‘Sharper’ Review: The Big Con**\
 `The film stars Sebastian Stan and Julianne Moore in a baroque but lackluster story of con artists circling a Manhattan billionaire’s fortune.`\
-https://nytimes.com/2023/02/16/movies/sharper-review.html?searchResultPosition=7
+https://nytimes.com/2023/02/16/movies/sharper-review.html?searchResultPosition=8
 
 **‘Unlocked’ Review: A Surveillance Thriller Best Left Offline**\
 `A woman experiences paranoia, loss and bodily danger after a serial killer hacks her phone.`\
-https://nytimes.com/2023/02/16/movies/unlocked-review.html?searchResultPosition=8
+https://nytimes.com/2023/02/16/movies/unlocked-review.html?searchResultPosition=9
 
 **‘Devil’s Peak’ Review: The Curse of a Family Name**\
 `In this thin drama, Billy Bob Thornton plays a menacing drug kingpin whose son begins to question their way of life.`\
-https://nytimes.com/2023/02/16/movies/devils-peak-review.html?searchResultPosition=9
-
-**‘Pacifiction’ Review: Trouble in Paradise**\
-`Albert Serra’s languorous new film is a dreamy meditation on post-colonial geopolitics.`\
-https://nytimes.com/2023/02/16/movies/pacifiction-review.html?searchResultPosition=10
+https://nytimes.com/2023/02/16/movies/devils-peak-review.html?searchResultPosition=10
 
