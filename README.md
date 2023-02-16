@@ -14,7 +14,7 @@ https://nytimes.com/2023/02/16/sports/basketball/luka-doncic-dallas-mavericks-al
 `I write about publishing and the literary world for The Times. Here are five things I've been watching, reading and listening to.`\
 https://nytimes.com/interactive/2023/02/16/arts/editors-recommendations-gudetama.html?searchResultPosition=4
 
-**Tesla to Recall 362,000 Cars With Its ‘Full Self-Driving’ System**\
+**Tesla to Recall 362,000 Cars With Its ‘Full Self Driving’ System**\
 `A federal auto safety agency said the technology can cause crashes, but said the company was unaware of any deaths or injuries caused by the flaws.`\
 https://nytimes.com/2023/02/16/business/tesla-recall-full-self-driving.html?searchResultPosition=5
 
