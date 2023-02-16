@@ -3,7 +3,7 @@
 https://nytimes.com/interactive/2023/02/16/arts/editors-recommendations-gudetama.html?searchResultPosition=1
 
 **Tesla to Recall 362,000 Cars With Its ‘Full Self-Driving’ System**\
-`A federal auto safety agency said the technology can cause crashes, but said the company was unaware of any deaths of injuries caused by the flaws.`\
+`A federal auto safety agency said the technology can cause crashes, but said the company was unaware of any deaths or injuries caused by the flaws.`\
 https://nytimes.com/2023/02/16/business/tesla-recall-full-self-driving.html?searchResultPosition=2
 
 **‘Ant-Man and the Wasp: Quantumania’ Review: Splat**\
