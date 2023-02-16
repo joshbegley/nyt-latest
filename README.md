@@ -1,40 +1,40 @@
-**Russia has lost around half of its tanks since invading Ukraine, a new report says.**\
-`A report by the International Institute for Strategic Studies said Russia’s tank and artillery fleets had suffered “significant attrition” in the war.`\
-https://nytimes.com/2023/02/16/world/europe/russia-tanks-ukraine-war.html?searchResultPosition=1
+**By Adding Apartments, Malls Seek to Bring Shopping Closer to Home**\
+`Facing an existential crisis over empty space, owners are trying to fill malls with residences, building on the live-work-play model sought by young adults.`\
+https://nytimes.com/2023/02/16/business/shopping-malls-residences.html?searchResultPosition=1
 
-**Scientists Wondered if Warming Caused Argentina’s Drought. The Answer: No.**\
-`Climate change didn’t make the dry spell more likely, researchers found, though extreme heat probably made it hurt more.`\
-https://nytimes.com/2023/02/16/climate/argentina-drought.html?searchResultPosition=2
+**For Observant Jews in Brooklyn, the Sabbath Expands**\
+`For the first time, an exception to the prohibition against “carrying” on the day of rest includes most of the borough, allowing, among other things, children to be pushed in strollers.`\
+https://nytimes.com/2023/02/16/nyregion/brooklyn-observant-jews.html?searchResultPosition=2
 
-**Ohio Residents Demand Answers on Train Derailment**\
-`Residents of East Palestine, Ohio, held a town hall to seek answers about the ongoing fallout from a derailed freight train carrying hazardous chemicals.`\
-https://nytimes.com/video/us/100000008773879/ohio-train-derailment-town-hall.html?searchResultPosition=3
+**After News Anchor’s Long Career, She Found Herself Focus of the Story**\
+`Lisa LaFlamme was dismissed after a decades-long TV career, not long after she stopped dyeing her hair, setting off debates across Canada about sexism, ageism and going gray.`\
+https://nytimes.com/2023/02/16/world/canada/lisa-laflamme-ctv-anchor.html?searchResultPosition=3
 
-**What Does a Cool Girl Look Like?**\
-`The young New York brand Khaite has grown into a powerhouse with an elusive aesthetic.`\
-https://nytimes.com/2023/02/16/style/what-does-a-cool-girl-look-like.html?searchResultPosition=4
+**Georgia Judge to Release Grand Jury Findings in Trump Election Inquiry**\
+`The judge ordered the report’s introduction and conclusion to be made public, along with a section detailing the special grand jury’s concerns about witnesses lying under oath.`\
+https://nytimes.com/2023/02/16/us/politics/trump-georgia-grand-jury-report.html?searchResultPosition=4
 
-**Solving Your Travel Nightmare Is His Mission**\
-`Seth Kugel, who writes the Tripped Up column for The New York Times, offers readers travel advice and problem solving — including, once, a $17,000 refund.`\
-https://nytimes.com/2023/02/16/insider/tripped-up-seth-kugel.html?searchResultPosition=5
+**Elizabeth Peyton and Taylor Russell on Portraiture and Self-Protection**\
+`Two creative people in two different fields in one wide-ranging conversation. This time: the artist and the “Bones and All” actress.`\
+https://nytimes.com/2023/02/16/t-magazine/elizabeth-peyton-taylor-russell.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/02/16/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**‘Party Down’ Is Back. Did You R.S.V.P.?**\
+`The cult cater-waiter comedy got abysmal ratings when it was canceled in 2010. Now a six-episode revival is one of the most anticipated shows of the year.`\
+https://nytimes.com/2023/02/16/arts/television/party-down-is-back-did-you-rsvp.html?searchResultPosition=6
 
-**2023**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2023/02/16/learning/2023.html?searchResultPosition=7
+**6 Ways to Make Your Home More Energy Efficient**\
+`The smartest tech you can buy right now might not be the latest phone or tablet, but rather the energy-efficient electric systems you need to power them.`\
+https://nytimes.com/2023/02/16/realestate/solar-energy-efficient-home.html?searchResultPosition=7
 
-**Shoichiro Toyoda, Who Helped Make Toyota a Global Force, Dies at 97**\
-`He pushed the company into North America and beyond, setting it on its path to becoming one of the world’s most powerful automakers.`\
-https://nytimes.com/2023/02/16/business/shoichiro-toyoda-dead.html?searchResultPosition=8
+**In Defense of J.K. Rowling**\
+`The charge that she’s a transphobe doesn’t square with her actual views.`\
+https://nytimes.com/2023/02/16/opinion/jk-rowling-transphobia.html?searchResultPosition=8
 
-**Word of the Day: prevail**\
-`This word has appeared in 402 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/02/16/learning/word-of-the-day-prevail.html?searchResultPosition=9
+**Syria’s Assad Uses Disaster Diplomacy to Inch Back Onto World Stage**\
+`“A tragedy for Syrians is a boon for Assad because nobody else wants to manage this mess,” one analyst said of President Bashar al-Assad, who became a global pariah for his regime’s abuses during a civil war.`\
+https://nytimes.com/2023/02/16/world/middleeast/syria-earthquake-assad-diplomacy.html?searchResultPosition=9
 
-**Sarah Silverman Defines ‘Woke’ for Newsmax**\
-`“The Daily Show” guest host Sarah Silverman called Newsmax “basically an even more far-right Fox News — like if your crazy uncle had a crazy uncle.”`\
-https://nytimes.com/2023/02/16/arts/television/sarah-silverman-newsmax-woke.html?searchResultPosition=10
+**Horseshoe Crabs Are in Trouble. How Much Longer Can We Rely on Their Blood to Test Our Drugs?**\
+`An alternative test is urgently needed to protect horseshoe crabs and the birds that depend on their eggs.`\
+https://nytimes.com/2023/02/16/opinion/drug-safety-horsehoe-crab.html?searchResultPosition=10
 
