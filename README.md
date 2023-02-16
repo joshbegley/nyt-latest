@@ -1,10 +1,10 @@
-**America Should Be in the Middle of a Schools Revolution**\
-`Covid disrupted education, and now the task is to build something new.`\
-https://nytimes.com/2023/02/16/opinion/america-schools-revolution.html?searchResultPosition=1
-
 **The Right Don’t Need No Education**\
 `Hey! Teachers! Leave our ignorance alone!`\
-https://nytimes.com/2023/02/16/opinion/the-right-dont-need-no-education.html?searchResultPosition=2
+https://nytimes.com/2023/02/16/opinion/education-desantis.html?searchResultPosition=1
+
+**America Should Be in the Middle of a Schools Revolution**\
+`Covid disrupted education, and now the task is to build something new.`\
+https://nytimes.com/2023/02/16/opinion/america-schools-revolution.html?searchResultPosition=2
 
 **Suspect in Half Moon Bay Shooting Pleads Not Guilty**\
 `Zhao Chunli, a 66-year-old farmworker, pleaded not guilty on Thursday to seven counts of murder and one charge of attempted murder in the January mass shooting.`\
