@@ -26,8 +26,8 @@ https://nytimes.com/2023/02/16/sports/skiing/mikaela-shiffrin-world-championship
 `The trumpeter and composer Russell Gunn will premiere “The Blues and Its People,” a suite inspired by Baraka’s influential text, to mark its 60th anniversary.`\
 https://nytimes.com/2023/02/16/arts/music/amiri-baraka-blues-people-performance.html?searchResultPosition=7
 
-**Defying the Gloom, Bitcoin Stages a Comeback**\
-`The cryptocurrency has soared to a six-month high as investors eagerly jump back into risky digital assets.`\
+**As Scrutiny of Crypto Rises, Bitcoin Stages a Comeback**\
+`The cryptocurrency has hit a six-month high as investors eagerly jump back into risky digital assets, while regulators and lawmakers consider stricter rules for the sector.`\
 https://nytimes.com/2023/02/16/business/bitcoin-price-rally.html?searchResultPosition=8
 
 **Homes for Sale in Manhattan and the Bronx**\
