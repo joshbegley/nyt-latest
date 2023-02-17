@@ -1,6 +1,6 @@
 **Norfolk Southern’s Profits and Accident Rates Rose in Recent Years**\
 `Safety experts say a focus on financial returns may be partly to blame for derailments and accidents like the one in Ohio.`\
-https://nytimes.com/2023/02/17/business/energy-environment/norfolk-southern-derrailment-safety.html?searchResultPosition=1
+https://nytimes.com/2023/02/17/business/energy-environment/norfolk-southern-derailment-safety.html?searchResultPosition=1
 
 **Trudeau Was Right to Use Emergency Powers to End Blockade, Report Says**\
 `The judge who wrote the report found the decision “regrettable,” but said that the government was left with no choice to end the protest that paralyzed Canada’s capital.`\
