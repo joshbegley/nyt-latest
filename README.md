@@ -16,7 +16,7 @@ https://nytimes.com/2023/02/17/t-magazine/ferragamo-sandal-gancini-clasp.html?se
 
 **Milo Ventimiglia on the ‘Honest Deception’ of ‘The Company You Keep’**\
 `In his first regular TV role since the hit series “This is Us,” the actor plays a character who is himself a kind of actor: a charming con man.`\
-https://nytimes.com/2023/02/17/arts/television/milo-ventimiglia-on-the-honest-deception-of-the-company-you-keep.html?searchResultPosition=5
+https://nytimes.com/2023/02/17/arts/television/milo-ventimiglia-the-company-you-keep.html?searchResultPosition=5
 
 **Pandemic Closures, Unpatrolled Beach Visits Blamed for Spike in Drownings**\
 `The number of drownings nationwide last summer exceeded the 10-year average by 44 percent, while New South Wales is presently having “one of our worst summers on record.”`\
