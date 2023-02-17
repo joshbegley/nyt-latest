@@ -2,8 +2,8 @@
 `American officials are worried China is far along in developing military technology that operates in the unregulated high-altitude zone of “near space.”`\
 https://nytimes.com/2023/02/17/us/politics/china-us-balloons-ufo.html?searchResultPosition=1
 
-**At Least 18 Migrants Found Dead in Truck in Bulgaria**\
-`More than 30 other people were taken to hospitals in the capital, Sofia.`\
+**18 Migrants Found Dead in Truck in Bulgaria**\
+`The dead appeared to have suffocated inside a secret compartment under a load of lumber.`\
 https://nytimes.com/2023/02/17/world/europe/migrants-dead-bulgaria.html?searchResultPosition=2
 
 **Feist’s Electrifying Return, and 9 More New Songs**\
