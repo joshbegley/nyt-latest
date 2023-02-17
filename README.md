@@ -10,13 +10,13 @@ https://nytimes.com/2023/02/17/briefing/ukraine-assault-biden-balloons-syria.htm
 `“Café con Felo” features Félix Matos Rodriguez in a new role on the City University’s television channel.`\
 https://nytimes.com/2023/02/17/nyregion/cuny-chancellor-tv-host.html?searchResultPosition=3
 
+**Why Did a Turkish City Withstand the Quake When Others Crumbled?**\
+`Erzin survived last week’s 7.8-magnitude quake with no casualties and little damage. The mayor credited his enforcement of building standards, but scientists say it is more likely about geology.`\
+https://nytimes.com/2023/02/17/world/middleeast/erzin-turkey-earthquake.html?searchResultPosition=4
+
 **How a Tiny NATO Nation Tackled a Big Problem: Arming Ukraine**\
 `Luxembourg’s challenges in buying arms on the open market underscore the struggle to keep Ukraine supplied until sophisticated Western weapons arrive in the spring.`\
-https://nytimes.com/2023/02/17/world/europe/luxembourg-weapons-ukraine-nato.html?searchResultPosition=4
-
-**Why Did a Turkish City Withstand the Quake When Others Crumbled?**\
-`Erzin survived last week’s 7.8-magnitude quake with no casualties and little damage. The mayor credited his enforcement of building standards, but scientists say it is likely be more about geology.`\
-https://nytimes.com/2023/02/17/world/middleeast/erzin-turkey-earthquake.html?searchResultPosition=5
+https://nytimes.com/2023/02/17/world/europe/luxembourg-weapons-ukraine-nato.html?searchResultPosition=5
 
 **Corrections: Feb. 17, 2023**\
 `Corrections that appeared in print on Friday, Feb. 17, 2023.`\
