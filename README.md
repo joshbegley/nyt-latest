@@ -28,7 +28,7 @@ https://nytimes.com/2023/02/17/arts/television/milo-ventimiglia-the-company-you-
 
 **Pandemic Closures, Unpatrolled Beach Visits Blamed for Spike in Drownings**\
 `The number of drownings nationwide last summer exceeded the 10-year average by 44 percent, while New South Wales is presently having “one of our worst summers on record.”`\
-https://nytimes.com/2023/02/17/world/australia/pandemic-closures-unpatrolled-beach-visits-blamed-for-spike-in-drownings.html?searchResultPosition=8
+https://nytimes.com/2023/02/17/world/australia/australia-drownings.html?searchResultPosition=8
 
 **Fox News for Universities**\
 `Conservatives are trying to do to higher education what they did to the news media and think tanks.`\
