@@ -1,40 +1,40 @@
+**The CUNY Chancellor Turns to TV Hosting**\
+`“Café con Felo” features Félix Matos Rodriguez in a new role on the City University’s television channel.`\
+https://nytimes.com/2023/02/17/nyregion/cuny-chancellor-tv-host.html?searchResultPosition=1
+
+**Why Did a Turkish City Withstand the Quake When Others Crumbled?**\
+`Erzin survived last week’s 7.8-magnitude quake with no casualties and little damage. The mayor credited his enforcement of building standards, but scientists say it is likely be more about geology.`\
+https://nytimes.com/2023/02/17/world/middleeast/erzin-turkey-earthquake.html?searchResultPosition=2
+
+**How a Tiny NATO Nation Tackled a Big Problem: Arming Ukraine**\
+`Luxembourg’s challenges in buying arms on the open market underscore the struggle to keep Ukraine supplied until sophisticated Western weapons arrive in the spring.`\
+https://nytimes.com/2023/02/17/world/europe/luxembourg-weapons-ukraine-nato.html?searchResultPosition=3
+
+**Corrections: Feb. 17, 2023**\
+`Corrections that appeared in print on Friday, Feb. 17, 2023.`\
+https://nytimes.com/2023/02/17/pageoneplus/corrections-feb-17-2023.html?searchResultPosition=4
+
+**Quotation of the Day: Recent Surge in Murders of Women Alarms Spain**\
+`Quotation of the Day for Friday, Feb. 17, 2023.`\
+https://nytimes.com/2023/02/17/pageoneplus/quotation-of-the-day-recent-surge-in-murders-of-women-alarms-spain.html?searchResultPosition=5
+
+**A Relationship That Moved Like a Rolling Stone**\
+`Lisa Smartt, a writer, and Kevin Gleeson, a former graphic artist for the N.Y.P.D. and Keith Richards tribute guitarist, found harmony — and within four months, marriage — in each other.`\
+https://nytimes.com/2023/02/17/style/lisa-smartt-kevin-gleeson-wedding.html?searchResultPosition=6
+
+**A Study Abroad Cut Short. A Relationship That Endured.**\
+`Jessica Lopez Valerio and Jorge Plaza met as students in Spain, just a couple months before both returned home because of the pandemic.`\
+https://nytimes.com/2023/02/17/style/jessica-lopez-valerio-jorge-plaza-wedding.html?searchResultPosition=7
+
+**Must We Feel Shame Over Divorce?**\
+`In my South Asian community, where ending a marriage is relatively uncommon, the answer seemed to be yes.`\
+https://nytimes.com/2023/02/17/style/modern-love-must-we-feel-shame-over-divorce.html?searchResultPosition=8
+
 **Variety: Cryptic Crossword**\
 `Richard Silvestri’s latest cryptic puzzle tries to leave us in the dark.`\
-https://nytimes.com/2023/02/16/crosswords/variety-cryptic-crossword.html?searchResultPosition=1
+https://nytimes.com/2023/02/16/crosswords/variety-cryptic-crossword.html?searchResultPosition=9
 
 **Drill Switches**\
 `Jem Burch’s crossword is twisty, thorny and full of misdirection — just the way I like my puzzles.`\
-https://nytimes.com/2023/02/16/crosswords/daily-puzzle-2023-02-17.html?searchResultPosition=2
-
-**Review: In ‘The Wanderers,’ Two Marriages and a Movie Star**\
-`Anna Ziegler’s play about an Orthodox couple in the 1970s and an unorthodox one in the 2010s explores the limits of longing.`\
-https://nytimes.com/2023/02/16/theater/the-wanderers-review.html?searchResultPosition=3
-
-**The Sports Calendar Is Heating Up**\
-`The N.F.L. is done (for now), but we're about to enter one of the busiest times of the year.`\
-https://nytimes.com/interactive/2023/02/16/sports/spring-calendar-nba-mlb-march-madness.html?searchResultPosition=4
-
-**Federal Officials Send Help After Ohio Derailment, but Residents’ Frustrations Persist**\
-`A visit to East Palestine from the head of the E.P.A. and a White House pledge to lend more support were met with skepticism in the community.`\
-https://nytimes.com/2023/02/16/us/politics/east-palestine-ohio-train-chemicals-fema.html?searchResultPosition=5
-
-**Three Booms. A Masked, Armed Man. How Horror Unfolded in a Michigan State Classroom.**\
-`A professor recalls: “It looked like a robot, not someone human, covered with a mask and a cap.”`\
-https://nytimes.com/2023/02/16/us/michigan-state-shooting-professor-berkey-hall.html?searchResultPosition=6
-
-**New Russian Missile Barrage Hits Ukraine**\
-`In a blend of the old school and the new, Moscow sent balloons over Ukraine before pummeling it with high-tech weaponry.`\
-https://nytimes.com/2023/02/16/world/europe/ukraine-russia-missile-attack.html?searchResultPosition=7
-
-**Burn Pit Program for Veterans Could Cost at Least $400 Billion, Agency Finds**\
-`In a report reviewing the nation’s budget outlook, Congress’s nonpartisan scorekeeper estimated that a veterans health program created last year would swell the federal deficit.`\
-https://nytimes.com/2023/02/16/us/politics/burn-pits-veterans-budget-deficit.html?searchResultPosition=8
-
-**From ‘Birth of a Nation’ to ‘Till’: Confronting Racism in the White House Screening Room**\
-`“History matters,” President Biden said before showing a movie about Emmett Till, whose murder galvanized the civil rights movement.`\
-https://nytimes.com/2023/02/16/us/politics/biden-emmett-till.html?searchResultPosition=9
-
-**Bruce Willis Has Frontotemporal Dementia, His Family Announces**\
-`FTD is the most common cause of dementia for people under 60.`\
-https://nytimes.com/2023/02/16/well/mind/bruce-willis-frontotemporal-dementia-aphasia.html?searchResultPosition=10
+https://nytimes.com/2023/02/16/crosswords/daily-puzzle-2023-02-17.html?searchResultPosition=10
 
