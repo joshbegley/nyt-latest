@@ -19,7 +19,7 @@ https://nytimes.com/2023/02/17/movies/banshees-of-inisherin-clip.html?searchResu
 https://nytimes.com/video/movies/100000008776231/the-banshees-of-inisherin-scene.html?searchResultPosition=5
 
 **‘We Have to Talk’: Murdaugh’s Wife and Son Found Pill Stash Before Murders**\
-`Prosecutors were expected to rest their case after questioning more than 60 witnesses at the murder trial of Alex Murdaugh, a prominent South Carolina lawyer.`\
+`Prosecutors rested their case after questioning more than 60 witnesses at the murder trial of Alex Murdaugh, a prominent South Carolina lawyer.`\
 https://nytimes.com/2023/02/17/us/alex-murdaugh-trial-prosecution.html?searchResultPosition=6
 
 **6 Takeaways From the Report on the Trump Investigation in Georgia**\
