@@ -19,7 +19,7 @@ https://nytimes.com/2023/02/17/podcasts/studio-ghibli-train-derailment-tik-tok.h
 https://nytimes.com/2023/02/17/business/dealbook/sbf-crypto-crackdown-ftx-terra.html?searchResultPosition=5
 
 **PGA Tour Can Depose Saudi Wealth Fund’s Leader, Judge Rules**\
-`The decision in a case involving the LIV Golf series could open a rare window into the operations of Saudi Arabia’s Public Investment Fund.`\
+`The decision in a case involving the LIV Golf series could reveal details of the operations of Saudi Arabia’s Public Investment Fund.`\
 https://nytimes.com/2023/02/17/sports/golf/liv-pga-saudi-influence.html?searchResultPosition=6
 
 **A Signature Ferragamo Clasp Becomes a Gravity-Defying Heel**\
