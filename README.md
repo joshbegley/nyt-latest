@@ -1,5 +1,5 @@
-**Jimmy Carter, 98, Enters Hospice Care**\
-`The 39th president has decided to forgo further medical care and will “spend his remaining time at home with his family,” the Carter Center announced.`\
+**Jimmy Carter, 98, Opts for Hospice Care**\
+`The 39th president has decided to forgo further medical treatment and will “spend his remaining time at home with his family,” the Carter Center announced.`\
 https://nytimes.com/2023/02/18/us/politics/jimmy-carter-hospice.html?searchResultPosition=1
 
 **Istvan Banyai, Illustrator Who Mined the Surreal, Dies at 73**\
