@@ -4,11 +4,11 @@ https://nytimes.com/2023/02/18/opinion/when-parents-hear-that-their-child-is-not
 
 **Wooing a Latin Star, Kardashian-Style**\
 `Why did a Latinx put an X through The Times?`\
-https://nytimes.com/2023/02/18/opinion/wooing-a-latin-star-kardashian-style.html?searchResultPosition=2
+https://nytimes.com/2023/02/18/opinion/john-leguizamo.html?searchResultPosition=2
 
 **What Happens When an Artist Loses His Sight**\
 `Losing your sight forces you to go inward, to use your creativity to conjure a world you can no longer see.`\
-https://nytimes.com/2023/02/18/sunday-review/what-happens-when-an-artist-loses-his-sight.html?searchResultPosition=3
+https://nytimes.com/2023/02/18/opinion/artist-vision-sight.html?searchResultPosition=3
 
 **In a First, a Woman Issues a Thunderstorm Watch, Officials Say**\
 `The National Weather Service has issued thunderstorm and tornado watches for decades, but one had never been sent by a woman, until Wednesday.`\
