@@ -18,7 +18,7 @@ https://nytimes.com/2023/02/18/arts/istvan-banyai-dead.html?searchResultPosition
 `The meeting resumed diplomatic contact between Washington and Beijing that had been frozen after the U.S. shot down a Chinese spy balloon.`\
 https://nytimes.com/2023/02/18/world/europe/blinken-wang-china-balloon.html?searchResultPosition=5
 
-**The Smartphone and the Sources of Teenager Despair**\
+**American Teens Are Really Miserable. Why?**\
 `Social media has added to a sense of isolation.`\
 https://nytimes.com/2023/02/18/opinion/depression-teen-social.html?searchResultPosition=6
 
