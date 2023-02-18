@@ -11,7 +11,7 @@ https://nytimes.com/2023/02/18/world/asia/north-korea-missile-launch.html?search
 https://nytimes.com/2023/02/18/business/dealbook/rethinking-the-digital-detox.html?searchResultPosition=3
 
 **Kamala Harris says Moscow committed crimes against humanity in Ukraine.**\
-`The vice president was among a number of Western officials projecting unity behind Kyiv at the annual Munich Security Conference ahead of the first anniversary of Russia’s invasion.`\
+`The vice president was among a number of Western officials projecting unity behind Kyiv at the annual Munich Security Conference before the first anniversary of Russia’s invasion.`\
 https://nytimes.com/2023/02/18/world/europe/kamala-harris-russia-crimes-against-humanity.html?searchResultPosition=4
 
 **A top Chinese official calls the U.S. balloon response ‘hysterical’ and says the war in Ukraine must not continue.**\
