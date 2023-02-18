@@ -1,5 +1,5 @@
 **Mikaela Shiffrin Falls Short of Gold in Slalom at the World Championships**\
-`Shiffrin’s strong showing at the Alpine world skiing championships over the past two weeks ended on Saturday with a silver medal in slalom.`\
+`Shiffrin’s strong showing at the Alpine world skiing championships over the past two weeks ended on Saturday with a silver medal in what is considered her best discipline.`\
 https://nytimes.com/2023/02/18/sports/skiing/mikaela-shiffrin-world-championships.html?searchResultPosition=1
 
 **North Korea Launches ICBM**\
