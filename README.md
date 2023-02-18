@@ -1,4 +1,4 @@
-**Jerrold Schechter, Who Procured Khrushchev’s Memoirs, Dies at 90**\
+**Jerrold Schecter, Who Procured Khrushchev’s Memoirs, Dies at 90**\
 `As a Time magazine bureau chief, he was pivotal in the publication of revelatory taped interviews with the ousted premier that had been smuggled out of the Soviet Union.`\
 https://nytimes.com/2023/02/18/books/jerrold-schechter-dead.html?searchResultPosition=1
 
