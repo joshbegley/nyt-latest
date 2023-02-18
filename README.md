@@ -3,7 +3,7 @@
 https://nytimes.com/2023/02/18/world/middleeast/turkey-earthquake-victims-homeless.html?searchResultPosition=1
 
 **Trading Books for a Rifle: The Teacher Who Volunteered in Ukraine**\
-`A summary will go here.`\
+`When Russia invaded, recruiting officers asked no questions of the Ukrainian teacher. They handed her a rifle and 120 bullets, and assigned her to a unit expecting to fight in urban combat if the Russian Army broke into Kyiv.`\
 https://nytimes.com/2023/02/18/world/europe/ukraine-teacher-combat.html?searchResultPosition=2
 
 **In a Treacherous Corner of Washington, a Classroom With 40-Foot Waves**\
