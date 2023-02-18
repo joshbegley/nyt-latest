@@ -26,13 +26,13 @@ https://nytimes.com/2023/02/18/opinion/trans-gender-missouri.html?searchResultPo
 `Why did a Latinx put an X through The Times?`\
 https://nytimes.com/2023/02/18/opinion/john-leguizamo.html?searchResultPosition=7
 
-**What Happens When an Artist Loses His Sight**\
-`Losing your sight forces you to go inward, to use your creativity to conjure a world you can no longer see.`\
-https://nytimes.com/2023/02/18/opinion/artist-vision-sight.html?searchResultPosition=8
-
 **In a First, a Woman Issues a Thunderstorm Watch, Officials Say**\
 `The National Weather Service has issued thunderstorm and tornado watches for decades, but one had never been sent by a woman, until Wednesday.`\
-https://nytimes.com/2023/02/18/us/elizabeth-leitman-storm-watch.html?searchResultPosition=9
+https://nytimes.com/2023/02/18/us/elizabeth-leitman-storm-watch.html?searchResultPosition=8
+
+**What Happens When an Artist Loses His Sight**\
+`Losing your sight forces you to go inward, to use your creativity to conjure a world you can no longer see.`\
+https://nytimes.com/2023/02/18/opinion/artist-vision-sight.html?searchResultPosition=9
 
 **Biden Should Give Ukraine What It Needs to Win**\
 `Yes, there are risks of escalation. But there are greater risks of letting this awful war drag on.`\
