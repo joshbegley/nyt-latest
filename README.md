@@ -1,6 +1,6 @@
 **When Parents Hear That Their Child ‘Is Not Normal and Should Not Exist’**\
 `Anti-trans legislation in dozens of states is an attack on parental rights.`\
-https://nytimes.com/2023/02/18/opinion/when-parents-hear-that-their-child-is-not-normal-and-should-not-exist.html?searchResultPosition=1
+https://nytimes.com/2023/02/18/opinion/trans-gender-missouri.html?searchResultPosition=1
 
 **Wooing a Latin Star, Kardashian-Style**\
 `Why did a Latinx put an X through The Times?`\
