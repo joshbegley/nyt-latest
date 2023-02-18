@@ -4,7 +4,7 @@ https://nytimes.com/video/world/europe/100000008777515/kamala-harris-crimes-agai
 
 **Jerrold Schecter, Who Procured Khrushchev’s Memoirs, Dies at 90**\
 `As a Time magazine bureau chief, he was pivotal in the publication of revelatory taped interviews with the ousted premier that had been smuggled out of the Soviet Union.`\
-https://nytimes.com/2023/02/18/books/jerrold-schechter-dead.html?searchResultPosition=2
+https://nytimes.com/2023/02/18/books/jerrold-schecter-dead.html?searchResultPosition=2
 
 **Why Doctors Are Calling It Quits**\
 `Readers discuss a guest essay about doctors demoralized by the health care system.`\
