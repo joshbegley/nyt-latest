@@ -1,40 +1,40 @@
-**Can My Neighbor Point a Video Doorbell at My Apartment Door?**\
-`Ubiquitous in many suburban neighborhoods, the devices have been slow to catch on in city apartments, but that is changing as New Yorkers warm to the technology.`\
-https://nytimes.com/2023/02/18/realestate/ring-doorbell-camera-aparments-nyc.html?searchResultPosition=1
+**Caves, Tents and Shipping Containers: Quake Survivors’ Desperate Hunt for Shelter**\
+`For now, the Turkish government is relying on short-term solutions to house an estimated one million who are crowding into gyms, hotels and dormitories. A cruise ship is set to arrive to house thousands.`\
+https://nytimes.com/2023/02/18/world/middleeast/turkey-earthquake-victims-homeless.html?searchResultPosition=1
 
-**Even a Mother Can’t Body-Block Mental Illness**\
-`In her memoir, “Zig-Zag Boy,” Tanya Frank looks back on her son’s epic struggle with schizoaffective disorder.`\
-https://nytimes.com/2023/02/18/books/review/zig-zag-boy-tanya-frank.html?searchResultPosition=2
+**Trading Books for a Rifle: The Teacher Who Volunteered in Ukraine**\
+`A summary will go here.`\
+https://nytimes.com/2023/02/18/world/europe/ukraine-teacher-combat.html?searchResultPosition=2
 
-**Just How Good for the Planet Is That Big Electric Pickup Truck?**\
-`E.V.s are usually a more climate-friendly option. But as they bulk up, their emissions savings, and other environmental and safety benefits, begin to diminish.`\
-https://nytimes.com/interactive/2023/02/17/climate/electric-vehicle-emissions-truck-suv.html?searchResultPosition=3
+**In a Treacherous Corner of Washington, a Classroom With 40-Foot Waves**\
+`One of the most challenging water-rescue training programs in the world is run by the Coast Guard on the Columbia River when the conditions are at their roughest.`\
+https://nytimes.com/2023/02/18/us/coast-guard-columbia-river-bar.html?searchResultPosition=3
 
-**Government Cracks Down on Crypto Industry With Flurry of Actions**\
-`State and federal agencies have levied fines, brought new cases and issued policy statements to rein in freewheeling practices in recent weeks.`\
-https://nytimes.com/2023/02/18/business/crypto-crackdown-regulation.html?searchResultPosition=4
+**He’s Energized Nigeria’s Young Voters. Will They Turn Out for Him?**\
+`The race is wide open in the presidential election in Nigeria, Africa’s most populous nation and a struggling economic powerhouse. Youth looking to evict the old guard are cheering on Peter Obi, a surprise third-party candidate.`\
+https://nytimes.com/2023/02/18/world/africa/nigeria-election-youth-obi.html?searchResultPosition=4
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/02/18/crosswords/spelling-bee-forum.html?searchResultPosition=5
+**Looking for a Job? The Cannabis Industry Is Hiring in New York.**\
+`The industry estimates that there could be 63,000 jobs in weed across the state by 2025, many of them in retail and hospitality.`\
+https://nytimes.com/2023/02/18/nyregion/new-york-cannabis-industry-jobs.html?searchResultPosition=5
 
-**Jimmie Johnson, NASCAR’s Unlikely Prodigal Son, Returns at Daytona**\
-`After two years of retirement from stock-car racing, Johnson, the seven-time NASCAR Cup Series champion, will race again in the sport he once dominated.`\
-https://nytimes.com/2023/02/18/sports/autoracing/daytona-500-jimmie-johnson.html?searchResultPosition=6
+**How Climate Change Is Making Tampons (and Lots of Other Stuff) More Expensive**\
+`Cotton farmers in Texas suffered record losses amid heat and drought last year, new data shows. It’s an example of how global warming is a “secret driver of inflation.”`\
+https://nytimes.com/2023/02/18/climate/climate-change-cotton-tampons.html?searchResultPosition=6
 
-**Body of Baby Boy Is Found Submerged in Vehicle After Flooding in West Virginia**\
-`The discovery came after heavy rains swept across the state over a couple of days, with up to three inches falling in some areas.`\
-https://nytimes.com/2023/02/17/us/baby-flood-west-virginia.html?searchResultPosition=7
+**‘Daisy Jones & the Six’ and the Ballad of Making Rock ’n’ Roll TV**\
+`After more than a year of delays and adjustments, the big-budget adaptation of a best-selling novel about music, love and fame hopes to become this year’s irresistible streaming series.`\
+https://nytimes.com/2023/02/18/arts/television/daisy-jones-six-riley-keough.html?searchResultPosition=7
 
-**Corrections: Feb. 18, 2023**\
-`Corrections that appeared in print on Saturday, Feb. 18, 2023.`\
-https://nytimes.com/2023/02/17/pageoneplus/corrections-feb-18-2023.html?searchResultPosition=8
+**A Handfasting Ceremony For Two … or Three (or More)**\
+`The Celtic ritual has become a popular commitment ceremony for some polyamorous couples.`\
+https://nytimes.com/2023/02/18/style/a-handfasting-ceremony-for-two-or-three-or-more.html?searchResultPosition=8
 
-**Quotation of the Day: Politicians Face Risks in Telling of Depression**\
-`Quotation of the Day for Saturday, February 18, 2023.`\
-https://nytimes.com/2023/02/17/pageoneplus/quotation-of-the-day-politicians-face-risks-in-telling-of-depression.html?searchResultPosition=9
+**Do I Have to Smell My Co-Worker?**\
+`Either way, saying something about a colleague’s overwhelming perfume, or enduring it, is a delicate situation.`\
+https://nytimes.com/2023/02/18/business/coworker-strong-perfume.html?searchResultPosition=9
 
-**Art of Cutting Cards?**\
-`Kameron Austin Collins paints us into several corners with a challenging Saturday puzzle.`\
-https://nytimes.com/2023/02/17/crosswords/daily-puzzle-2023-02-18.html?searchResultPosition=10
+**Michigan G.O.P. Fixates on Election Deniers in Leadership Race**\
+`Matthew DePerno and Kristina Karamo, both Trump loyalists who resoundingly lost their midterm races, are the front-runners to lead the state party.`\
+https://nytimes.com/2023/02/18/us/politics/michigan-republicans-deperno-karamo.html?searchResultPosition=10
 
