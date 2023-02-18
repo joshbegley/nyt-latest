@@ -22,8 +22,8 @@ https://nytimes.com/2023/02/18/us/politics/jimmy-carter-hospice.html?searchResul
 `His fantastical work for The New Yorker, New York and Playboy made him a hot commodity in the last golden era for magazines and their illustrators.`\
 https://nytimes.com/2023/02/18/arts/istvan-banyai-dead.html?searchResultPosition=7
 
-**Blinken Meets With Chinese Official Amid Spy Balloon Furor, U.S. Says**\
-`The meeting resumed diplomatic contact between Washington and Beijing that had been frozen after the U.S. shot down a Chinese spy balloon.`\
+**Blinken Has Tense Meeting With Chinese Official Amid Spy Balloon Furor**\
+`The meeting resumed diplomatic contact between Washington and Beijing that had been frozen since the U.S. shot down a Chinese spy balloon.`\
 https://nytimes.com/2023/02/18/world/europe/blinken-wang-china-balloon.html?searchResultPosition=8
 
 **American Teens Are Really Miserable. Why?**\
