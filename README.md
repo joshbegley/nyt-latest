@@ -7,7 +7,7 @@ https://nytimes.com/2023/02/18/us/politics/jimmy-carter-hospice.html?searchResul
 https://nytimes.com/2023/02/18/arts/istvan-banyai-dead.html?searchResultPosition=2
 
 **Blinken Meets With Chinese Official Amid Spy Balloon Furor, U.S. Says**\
-`The meeting resumed diplomacy between Washington and Beijing that had been frozen after the United States shot down a Chinese spy balloon.`\
+`The meeting resumed diplomatic contact between Washington and Beijing that had been frozen after the United States shot down a Chinese spy balloon.`\
 https://nytimes.com/2023/02/18/world/europe/blinken-wang-china-balloon.html?searchResultPosition=3
 
 **The Smartphone and the Sources of Teenager Despair**\
