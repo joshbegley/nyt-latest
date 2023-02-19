@@ -14,7 +14,7 @@ https://nytimes.com/2023/02/19/world/europe/andrew-tate-uk-teachers.html?searchR
 `Griner, who was released from a prison camp in Russia in December, signed a one-year contract with the Phoenix Mercury.`\
 https://nytimes.com/2023/02/18/sports/basketball/brittney-griner-phoenix-mercury.html?searchResultPosition=4
 
-**Israel Carried Out Deadly Strike in Damascus, Syrian State Media Says**\
+**Syrian State Media Reports a Deadly Strike in Damascus**\
 `The news agency SANA and the Syrian Observatory for Human Rights said Israel was behind the bombing.`\
 https://nytimes.com/2023/02/18/world/middleeast/damascus-syria-airstrikes.html?searchResultPosition=5
 
