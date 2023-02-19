@@ -1,6 +1,6 @@
 **Jazz Duo**\
 `Emily Carroll dares us to swim with the current.`\
-https://nytimes.com/2023/02/19/crosswords/daily-puzzle-2023-03-20.html?searchResultPosition=1
+https://nytimes.com/2023/02/19/crosswords/daily-puzzle-2023-02-20.html?searchResultPosition=1
 
 **Sal Piro, ‘Rocky Horror Picture Show’ Superfan, Dies at 72**\
 `Like many others, he was riveted by the film and attended numerous midnight showings. Unlike many others, he made it the focus of his life.`\
