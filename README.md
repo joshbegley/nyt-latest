@@ -22,8 +22,8 @@ https://nytimes.com/2023/02/19/business/the-week-in-business-ai-chatbot-microsof
 `In Ukraine, President Vladimir V. Putin’s invasion has met setback after setback. But its effect at home has been very different.`\
 https://nytimes.com/2023/02/19/world/europe/ukraine-war-russia-putin.html?searchResultPosition=6
 
-**A Deadly Chemical Was Released in the Ohio Train Derailment. It Should Be Banned.**\
-`The cancer-causing chemical vinyl chloride, used to make PVC, was vented and burned to avoid an explosion. The United States should phase it out.`\
+**This Deadly Chemical Should Be Banned**\
+`The cancer-causing chemical vinyl chloride was vented and burned after the Ohio train crash to avoid an explosion. The United States should phase it out.`\
 https://nytimes.com/2023/02/19/opinion/train-ohio-chemical.html?searchResultPosition=7
 
 **America Can’t Go ‘Wobbly’ on Ukraine**\
