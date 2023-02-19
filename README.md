@@ -23,7 +23,7 @@ https://nytimes.com/2023/02/19/sports/kristin-harila-record.html?searchResultPos
 https://nytimes.com/2023/02/19/us/memphis-mass-shooting-whitehaven.html?searchResultPosition=6
 
 **Auxiliary Bishop Is Fatally Shot at His Los Angeles Home, Police Say**\
-`The bishop, David O’Connell, was killed on Saturday in his home in Hacienda Heights. What led to the shooting was unclear.`\
+`The Roman Catholic bishop, David O’Connell, was killed on Saturday in his home in Hacienda Heights. What led to the shooting was unclear.`\
 https://nytimes.com/2023/02/19/us/bishop-david-oconnell-shot-hacienda-heights.html?searchResultPosition=7
 
 **U.S. Warnings to China on Arms Aid for Russia’s War Portend Global Rift**\
