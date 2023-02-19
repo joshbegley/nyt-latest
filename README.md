@@ -1,36 +1,36 @@
+**What Biden 2024 Has That Biden 2020 Didn’t**\
+`The oldest president has an argument about the future.`\
+https://nytimes.com/2023/02/19/opinion/biden-campaign-2024-2020.html?searchResultPosition=1
+
 **‘Brainwashing a Generation’: British Schools Combat Andrew Tate’s Views**\
 `Alarmed by an online personality’s popularity among their students, educators are mobilizing to combat the sexism he promotes.`\
-https://nytimes.com/2023/02/19/world/europe/andrew-tate-uk-teachers.html?searchResultPosition=1
+https://nytimes.com/2023/02/19/world/europe/andrew-tate-uk-teachers.html?searchResultPosition=2
 
 **Brittney Griner Will Return to W.N.B.A.**\
 `Griner, who was released from a prison camp in Russia in December, signed a one-year contract with the Phoenix Mercury.`\
-https://nytimes.com/2023/02/18/sports/basketball/brittney-griner-phoenix-mercury.html?searchResultPosition=2
+https://nytimes.com/2023/02/18/sports/basketball/brittney-griner-phoenix-mercury.html?searchResultPosition=3
 
 **Israel Carried Out Deadly Strike in Damascus, Syrian State Media Says**\
 `The news agency SANA and the Syrian Observatory for Human Rights said Israel was behind the bombing.`\
-https://nytimes.com/2023/02/18/world/middleeast/damascus-syria-airstrikes.html?searchResultPosition=3
+https://nytimes.com/2023/02/18/world/middleeast/damascus-syria-airstrikes.html?searchResultPosition=4
 
 **Kamala Harris Accuses Russia of ‘Crimes Against Humanity’ in Ukraine**\
 `The vice president warned China against providing Moscow with any kind of support during her appearance at the Munich Security Conference.`\
-https://nytimes.com/2023/02/18/world/europe/chinese-official-us-balloon-response-ukraine-war.html?searchResultPosition=5
+https://nytimes.com/2023/02/18/world/europe/chinese-official-us-balloon-response-ukraine-war.html?searchResultPosition=6
 
 **Simile Irresistible**\
 `Rebecca Goldstein’s Sunday debut is incomparable.`\
-https://nytimes.com/2023/02/18/crosswords/daily-puzzle-2023-02-19.html?searchResultPosition=6
+https://nytimes.com/2023/02/18/crosswords/daily-puzzle-2023-02-19.html?searchResultPosition=7
 
 **Journalist Who Investigated Navalny’s Poisoning Says He Was Banned From the BAFTA Awards**\
 `Christo Grozev, a key figure in the documentary film, “Navalny,” said he was told his presence at the BAFTA awards on Sunday would pose a security risk.`\
-https://nytimes.com/2023/02/18/world/europe/christo-grozev-bafta-navalny.html?searchResultPosition=7
+https://nytimes.com/2023/02/18/world/europe/christo-grozev-bafta-navalny.html?searchResultPosition=8
 
 **Art Fair Visitor Breaks a Jeff Koons Balloon Dog Sculpture**\
 `A woman accidentally knocked over a bright blue dog sculpture at Art Wynwood in Miami, causing the $42,000 artwork to shatter, witnesses said.`\
-https://nytimes.com/2023/02/18/arts/jeff-koons-sculpture-broken-miami.html?searchResultPosition=8
+https://nytimes.com/2023/02/18/arts/jeff-koons-sculpture-broken-miami.html?searchResultPosition=9
 
 **Jimmy Carter, 98, Opts for Hospice Care**\
 `The 39th president has decided to forgo further medical treatment and will “spend his remaining time at home with his family,” the Carter Center announced.`\
-https://nytimes.com/2023/02/18/us/politics/jimmy-carter-hospice.html?searchResultPosition=9
-
-**Istvan Banyai, Illustrator Who Mined the Surreal, Dies at 73**\
-`His fantastical work for The New Yorker, New York and Playboy made him a hot commodity in the last golden era for magazines and their illustrators.`\
-https://nytimes.com/2023/02/18/arts/istvan-banyai-dead.html?searchResultPosition=10
+https://nytimes.com/2023/02/18/us/politics/jimmy-carter-hospice.html?searchResultPosition=10
 
