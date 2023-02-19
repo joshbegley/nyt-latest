@@ -22,8 +22,8 @@ https://nytimes.com/2023/02/19/opinion/train-ohio-chemical.html?searchResultPosi
 `This is a winnable war.`\
 https://nytimes.com/2023/02/19/opinion/america-ukraine-war-russia.html?searchResultPosition=6
 
-**Zelensky Welcomes Pledges to Hold Russia Accountable for Crimes**\
-`The Ukrainian leader said he was grateful for Western statements of support, as Russia rejected American accusations that it had committed “crimes against humanity” in the war.`\
+**E.U.’s Top Diplomat Calls for West to Accelerate Military Support for Ukraine**\
+`Josep Borrell Fontelles told international leaders meeting in Munich that Western allies’ recent decision to provide Ukraine with tanks took too long.`\
 https://nytimes.com/2023/02/19/world/europe/ukraine-russia-war.html?searchResultPosition=7
 
 **What Lil Nas X and LaQuan Smith Wore to Fashion Week Parties**\
