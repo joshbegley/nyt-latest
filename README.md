@@ -14,7 +14,7 @@ https://nytimes.com/2023/02/20/arts/music/kate-soper-romance-rose-opera-review.h
 `Mr. O’Keefe had been the face of the group since he founded Project Veritas in his father’s garage in suburban New York in 2010.`\
 https://nytimes.com/2023/02/20/us/politics/james-okeefe-project-veritas.html?searchResultPosition=4
 
-**Another Earthquake Strikes Southwest Turkey, Stirring Panic**\
+**Another Earthquake Strikes Southern Turkey, Stirring Panic**\
 `The 6.3-magnitude quake struck near a town in hard-hit Hatay Province, one of the areas most devastated by the Feb. 6 quake that killed more than 46,000 people across Turkey and northwestern Syria.`\
 https://nytimes.com/2023/02/20/world/middleeast/earthquake-turkey.html?searchResultPosition=5
 
