@@ -20,7 +20,7 @@ https://nytimes.com/2023/02/20/world/middleeast/protest-jerusalem-judicial-overh
 
 **China Says U.S. Is ‘Not Qualified’ to Issue Orders on Arms**\
 `Beijing is trying to preserve ties with Moscow while asserting it is a neutral observer trying only to coax Russia and Ukraine to peace talks.`\
-https://nytimes.com/2023/02/20/world/china-says-us-is-not-qualified-to-issue-orders-on-arms.html?searchResultPosition=6
+https://nytimes.com/2023/02/20/world/asia/china-says-us-is-not-qualified-to-issue-orders-on-arms.html?searchResultPosition=6
 
 **Biden Visits Kyiv, Ukraine’s Embattled Capital, as Air-Raid Siren Sounds**\
 `President Biden took a nearly 10-hour train ride from the border of Poland to show his administration’s “unwavering support” nearly a year into Russia’s invasion.`\
