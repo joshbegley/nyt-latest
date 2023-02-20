@@ -7,7 +7,7 @@ https://nytimes.com/2023/02/20/world/middleeast/protest-jerusalem-judicial-overh
 https://nytimes.com/2023/02/20/world/china-says-us-is-not-qualified-to-issue-orders-on-arms.html?searchResultPosition=2
 
 **Biden Visits Kyiv, Ukraine’s Besieged Capital, as Air-Raid Siren Sounds**\
-`President Biden took a nearly 10-hour-long train ride from the border of Poland in a demonstration of his administration’s “unwavering support” in the face of Russia’s yearlong invasion of Ukraine.`\
+`President Biden took a nearly 10-hour train ride from the border of Poland to show his administration’s “unwavering support” a year into Russia’s invasion of Ukraine.`\
 https://nytimes.com/2023/02/20/us/politics/biden-ukraine-visit.html?searchResultPosition=3
 
 **They Were Married. They Shared a Trench. They Died in It Together.**\
