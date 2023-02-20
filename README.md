@@ -23,7 +23,7 @@ https://nytimes.com/2023/02/20/theater/die-monosau-review-volksbuehne.html?searc
 https://nytimes.com/2023/02/20/world/middleeast/protest-jerusalem-judicial-overhaul.html?searchResultPosition=6
 
 **China Says U.S. Is ‘Not Qualified’ to Issue Orders on Arms**\
-`Beijing is trying to preserve ties with Moscow while asserting it is a neutral observer trying only to coax Russia and Ukraine to peace talks.`\
+`Beijing is trying to preserve ties with Moscow while asserting it is a neutral observer trying only to coax Russia and Ukraine into peace talks.`\
 https://nytimes.com/2023/02/20/world/asia/china-says-us-is-not-qualified-to-issue-orders-on-arms.html?searchResultPosition=7
 
 **Biden Visits Kyiv, Ukraine’s Embattled Capital, as Air-Raid Siren Sounds**\
