@@ -1,4 +1,4 @@
-**Biden’s Kyiv Visit Lifts Spirits of War-Wary Ukrainians**\
+**Biden’s Kyiv Visit Lifts Spirits of War-Weary Ukrainians**\
 `The American president was the most prominent Western leader to visit Ukraine since Russia invaded, and the capital was swept up in the excitement.`\
 https://nytimes.com/2023/02/20/world/europe/kyiv-biden-visit.html?searchResultPosition=1
 
