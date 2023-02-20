@@ -1,40 +1,40 @@
+**‘8 Players 1 Heartbeat’: A Game Men and Women Play as Equals**\
+`Korfball is not new, but its proponents say it has new relevance amid questions about the gender divide in sports. Now it just needs to catch on outside the Netherlands.`\
+https://nytimes.com/2023/02/20/sports/korfball-gender-equality.html?searchResultPosition=1
+
+**Inside the Medical Examiner’s Office, Where Opioids Fuel Surge in Deaths**\
+`The rising tide of death that began during the pandemic is now the “new normal” for the New York City medical examiner’s office.`\
+https://nytimes.com/2023/02/20/nyregion/sudden-deaths-overdoses-fentanyl-nyc.html?searchResultPosition=2
+
+**Hedge Fund Billionaire Extracts Billions More to Retire**\
+`Bridgewater’s founder, Ray Dalio, retired last year after months of negotiations that guaranteed him a gigantic exit package.`\
+https://nytimes.com/2023/02/20/business/bridgewater-ray-dalio-retire.html?searchResultPosition=3
+
+**A Fraught New Frontier in Telehealth: Ketamine**\
+`With loosened rules around remote prescriptions, a psychedelic-like drug has become a popular treatment for mental health conditions. But a boom in at-home use has outpaced evidence of safety.`\
+https://nytimes.com/2023/02/20/us/ketamine-telemedicine.html?searchResultPosition=4
+
+**Democrats Reckon With Biden 2024**\
+`We spoke with dozens of Democratic voters as they pondered President Biden's likely re-election bid. Here's what they said.`\
+https://nytimes.com/interactive/2023/02/20/us/politics/biden-2024.html?searchResultPosition=5
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2023/02/20/crosswords/spelling-bee-forum.html?searchResultPosition=6
+
 **Five People Shot at New Orleans Parade Ahead of Mardi Gras**\
 `Four adults and a girl were wounded at the Krewe of Bacchus Parade, with one man in critical condition. One person was detained at the scene, the police said.`\
-https://nytimes.com/2023/02/20/us/mardi-gras-parade-shooting.html?searchResultPosition=1
+https://nytimes.com/2023/02/20/us/mardi-gras-parade-shooting.html?searchResultPosition=7
 
 **What’s on TV This Week: ‘Snowfall’ and the N.A.A.C.P. Image Awards**\
 `The final season of the drama series “Snowfall” airs on FX, and the 54th annual N.A.A.C.P. Image Awards are live on BET.`\
-https://nytimes.com/2023/02/20/arts/television/whats-on-tv-this-week-snowfall-naacp-image-awards.html?searchResultPosition=2
+https://nytimes.com/2023/02/20/arts/television/whats-on-tv-this-week-snowfall-naacp-image-awards.html?searchResultPosition=8
 
 **The Problem With Russia Is Russia**\
 `Ukrainians will survive the Russian Federation, just as we survived the Soviet Union.`\
-https://nytimes.com/2023/02/20/opinion/russia-ukraine-war.html?searchResultPosition=3
+https://nytimes.com/2023/02/20/opinion/russia-ukraine-war.html?searchResultPosition=9
 
 **Your Monday Briefing**\
 `Russia under President Vladimir Putin.`\
-https://nytimes.com/2023/02/20/briefing/russia-vladimir-putin-turkey.html?searchResultPosition=4
-
-**No Corrections: Feb. 20, 2023**\
-`No corrections appeared in print on Monday, Feb. 20, 2023.`\
-https://nytimes.com/2023/02/20/pageoneplus/no-corrections-feb-20-2023.html?searchResultPosition=5
-
-**Quotation of the Day: Distrustful Residents Seek Own Tests in Derailment**\
-`Quotation of the Day for Monday, February 20, 2023.`\
-https://nytimes.com/2023/02/20/pageoneplus/quotation-of-the-day-distrustful-residents-seek-own-tests-in-derailment.html?searchResultPosition=6
-
-**Review: In Eulalie Spence’s Harlem, the 1920s Come to Life**\
-`“She’s Got Harlem on Her Mind,” three of Spence’s one-acts, packaged together at the Metropolitan Playhouse, are filled with gender and class politics.`\
-https://nytimes.com/2023/02/20/theater/shes-got-harlem-on-her-mind-review.html?searchResultPosition=7
-
-**In Troubled Times, the Sports World Offers a Necessary Salve**\
-`Three months of athletic brilliance have offered reminders that the soulful, spiritual aspect of games has elevated them to something like a modern religious experience.`\
-https://nytimes.com/2023/02/20/sports/sports-and-spirituality.html?searchResultPosition=8
-
-**‘The Last of Us,’ Season 1, Episode 6: The Ties That Bind**\
-`This week, Joel and Ellie encounter a safer and more social way of life, but it’s not clear whether they want any part of it.`\
-https://nytimes.com/2023/02/19/arts/television/the-last-of-us-season-1-episode-6-recap.html?searchResultPosition=9
-
-**White Sox Minor Leaguer Announces He Is Gay**\
-`Few players in professional baseball have revealed publicly that they are gay. Anderson Comás, a relief pitcher in the Chicago White Sox organization, said he wanted to be “an inspiration” for people like him.`\
-https://nytimes.com/2023/02/19/sports/baseball/anderson-comas-chicago-white-sox.html?searchResultPosition=10
+https://nytimes.com/2023/02/20/briefing/russia-vladimir-putin-turkey.html?searchResultPosition=10
 
