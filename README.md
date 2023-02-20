@@ -14,7 +14,7 @@ https://nytimes.com/2023/02/20/arts/music/christian-mcbride.html?searchResultPos
 `Kate Soper’s “The Romance of the Rose,” which had its long-delayed premiere at Long Beach Opera, showcases her signature quick-shifting eclecticism.`\
 https://nytimes.com/2023/02/20/arts/music/kate-soper-romance-rose-opera-review.html?searchResultPosition=4
 
-**James O’Keefe Is Removed as Project Veritas’ Leader**\
+**James O’Keefe Is Removed as Leader of Project Veritas**\
 `Mr. O’Keefe had been the face of the group since he founded Project Veritas in his father’s garage in suburban New York in 2010.`\
 https://nytimes.com/2023/02/20/us/politics/james-okeefe-project-veritas.html?searchResultPosition=5
 
