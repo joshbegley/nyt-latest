@@ -6,8 +6,8 @@ https://nytimes.com/2023/02/20/world/middleeast/protest-jerusalem-judicial-overh
 `Beijing is trying to preserve ties with Moscow while asserting it is a neutral observer trying only to coax Russia and Ukraine to peace talks.`\
 https://nytimes.com/2023/02/20/world/china-says-us-is-not-qualified-to-issue-orders-on-arms.html?searchResultPosition=2
 
-**Biden Visits Kyiv, Ukraine’s Besieged Capital**\
-`President Biden took an hourslong train ride from the border of Poland in a demonstration of his administration’s resolve in the face of Russia’s yearlong invasion of Ukraine.`\
+**Biden Visits Kyiv, Ukraine’s Besieged Capital, as Air-Raid Siren Sounds**\
+`President Biden took a nearly 10-hour-long train ride from the border of Poland in a demonstration of his administration’s “unwavering support” in the face of Russia’s yearlong invasion of Ukraine.`\
 https://nytimes.com/2023/02/20/us/politics/biden-ukraine-visit.html?searchResultPosition=3
 
 **They Were Married. They Shared a Trench. They Died in It Together.**\
