@@ -1,40 +1,40 @@
-**Presenting the Big Burberry Reset**\
-`Daniel Lee makes his debut at the ultimate British brand, and starts by putting his ducks in a row.`\
-https://nytimes.com/2023/02/21/style/burberry-daniel-lee-london.html?searchResultPosition=1
+**As Their Family Grew, the Suburbs Beckoned**\
+`But finding the right house wasn’t easy during the pandemic. Neither was renovating on a tight schedule.`\
+https://nytimes.com/2023/02/21/realestate/house-renovation-new-jersey.html?searchResultPosition=1
 
-**Victim or Criminal? A U.S. Navy Officer’s Imprisonment in Japan.**\
-`Lt. Ridge Alkonis was sentenced to three years after causing a deadly traffic accident in 2021. The case has irritated U.S. relations with a crucial military ally.`\
-https://nytimes.com/2023/02/21/world/asia/ridge-alkonis-navy-japan-crash.html?searchResultPosition=2
+**A Suburban Home They Could Grow Into**\
+`Finding the right house wasn’t easy during the pandemic. Neither was renovating on a tight schedule.`\
+https://nytimes.com/slideshow/2023/02/21/realestate/a-suburban-home-they-could-grow-into.html?searchResultPosition=2
 
-**Quotation of the Day: Long, Risky Night for Biden on Way to a Besieged Kyiv**\
-`Quotation of the Day for Tuesday, February 21, 2023.`\
-https://nytimes.com/2023/02/21/pageoneplus/quotation-of-the-day-long-risky-night-for-biden-on-way-to-a-besieged-kyiv.html?searchResultPosition=3
+**In Northern Ukraine, a Different Sort of War Game**\
+`Russian forces are shelling border areas there to tie up thousands of Ukrainian troops that might otherwise defend against attacks farther south.`\
+https://nytimes.com/2023/02/21/world/europe/ukraine-russia-shelling-kharkiv.html?searchResultPosition=3
 
-**Are North Korea’s Nuclear Weapons Tests as Safe as the Country Claims?**\
-`The country has conducted six underground nuclear tests, and a seventh may be on the way. Rights groups fear their environmental and health consequences.`\
-https://nytimes.com/2023/02/21/world/asia/north-korea-nuclear-weapons-tests.html?searchResultPosition=4
+**Ian Fishback’s American Nightmare**\
+`He was a decorated soldier, a whistle-blower against torture. Then he was undone by his own mind — and a health care system that utterly failed him.`\
+https://nytimes.com/2023/02/21/magazine/ian-fishback.html?searchResultPosition=4
 
-**As Austin’s SoCo District Grows, Is It Losing Its ‘Weird’?**\
-`Streets like South Congress Avenue are crucial to retail and hotel chains looking for cachet, real estate experts say, but gentrification can push out local businesses and residents.`\
-https://nytimes.com/2023/02/21/business/austin-soco-south-congress.html?searchResultPosition=5
+**New York’s Record Warm Winter: Good for Sunbathing, Bad for Ski Slopes**\
+`A wildly erratic season has been a blessing for haters of mittens and blizzards, but a potential disaster for businesses that rely on snow and ice.`\
+https://nytimes.com/2023/02/21/nyregion/ny-warm-winter-weather.html?searchResultPosition=5
 
-**Big Soda’s Alcohol Drinks Worry Health Experts**\
-`PepsiCo and Coca-Cola enter hard soda markets, causing concerns among regulators and researchers.`\
-https://nytimes.com/2023/02/21/health/alcohol-soft-drinks-health-risk.html?searchResultPosition=6
+**‘Equality of Injustice for All’: Saudi Arabia Expands Crackdown on Dissent**\
+`The kingdom’s courts are meting out harsher punishments than ever to citizens who criticize the government, with prosecutions built on Twitter posts ending in prison sentences of 15 to 45 years.`\
+https://nytimes.com/2023/02/21/world/middleeast/saudi-arabia-dissent-crackdown.html?searchResultPosition=6
 
-**Cocaine Bear, Meet Cannabis Raccoon and McFlurry Skunk**\
-`Wild animals eat the strangest things. That can be a problem, for them and for us.`\
-https://nytimes.com/2023/02/21/science/animals-wildlife-drugs.html?searchResultPosition=7
+**In Vermont, a School and Artist Fight Over Murals of Slavery**\
+`Created to depict the brutality of enslavement, the works are seen by some as offensive. The school wants them permanently covered. The artist says they are historically important.`\
+https://nytimes.com/2023/02/21/us/vermont-law-art-slavery.html?searchResultPosition=7
 
-**‘Effective Altruism’ Led Bankman-Fried to a Little-Known Wall St. Firm**\
-`The FTX founder joined Jane Street Capital not to learn about controlling risk, which is its focus, but because the tenets of a philanthropic movement drew him there.`\
-https://nytimes.com/2023/02/21/business/bankman-fried-altruism-jane-street.html?searchResultPosition=8
+**Black Mayors of 4 Biggest U.S. Cities Draw Strength From One Another**\
+`The mayors of New York City, Los Angeles, Chicago and Houston have banded together as they confront violent crime, homelessness and other similar challenges.`\
+https://nytimes.com/2023/02/21/nyregion/black-mayors.html?searchResultPosition=8
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/02/21/crosswords/spelling-bee-forum.html?searchResultPosition=9
+**The Marquis de Sade’s Filthy, Pricey 40-Foot Scroll of Depravity**\
+`A new book by Joel Warner traces the fate of the parchment on which the infamous author wrote “120 Days of Sodom,” a trail involving scholars, aristocrats and thieves — and lots of money.`\
+https://nytimes.com/2023/02/21/books/review/the-curse-of-the-marquis-de-sade-joel-warner.html?searchResultPosition=9
 
-**Hand-Me-Downs**\
-`Do you have any favorite items that have been handed down to you?`\
-https://nytimes.com/2023/02/21/learning/hand-me-downs.html?searchResultPosition=10
+**An Unlikely College Bromance That Has Lasted a Lifetime**\
+`In his new memoir, Will Schwalbe — theater nerd and bookworm — describes the bond he continues to share with a former Navy SEAL turned eco-warrior.`\
+https://nytimes.com/2023/02/21/books/review-will-schwalbe-we-should-not-be-friends.html?searchResultPosition=10
 
