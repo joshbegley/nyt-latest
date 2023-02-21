@@ -1,40 +1,40 @@
+**Presenting the Big Burberry Reset**\
+`Daniel Lee makes his debut at the ultimate British brand, and starts by putting his ducks in a row.`\
+https://nytimes.com/2023/02/21/style/burberry-daniel-lee-london.html?searchResultPosition=1
+
 **Victim or Criminal? A U.S. Navy Officer’s Imprisonment in Japan.**\
 `Lt. Ridge Alkonis was sentenced to three years after causing a deadly traffic accident in 2021. The case has irritated U.S. relations with a crucial military ally.`\
-https://nytimes.com/2023/02/21/world/asia/ridge-alkonis-navy-japan-crash.html?searchResultPosition=1
+https://nytimes.com/2023/02/21/world/asia/ridge-alkonis-navy-japan-crash.html?searchResultPosition=2
 
 **Quotation of the Day: Long, Risky Night for Biden on Way to a Besieged Kyiv**\
 `Quotation of the Day for Tuesday, February 21, 2023.`\
-https://nytimes.com/2023/02/21/pageoneplus/quotation-of-the-day-long-risky-night-for-biden-on-way-to-a-besieged-kyiv.html?searchResultPosition=2
+https://nytimes.com/2023/02/21/pageoneplus/quotation-of-the-day-long-risky-night-for-biden-on-way-to-a-besieged-kyiv.html?searchResultPosition=3
 
 **Are North Korea’s Nuclear Weapons Tests as Safe as the Country Claims?**\
 `The country has conducted six underground nuclear tests, and a seventh may be on the way. Rights groups fear their environmental and health consequences.`\
-https://nytimes.com/2023/02/21/world/asia/north-korea-nuclear-weapons-tests.html?searchResultPosition=3
+https://nytimes.com/2023/02/21/world/asia/north-korea-nuclear-weapons-tests.html?searchResultPosition=4
 
 **As Austin’s SoCo District Grows, Is It Losing Its ‘Weird’?**\
 `Streets like South Congress Avenue are crucial to retail and hotel chains looking for cachet, real estate experts say, but gentrification can push out local businesses and residents.`\
-https://nytimes.com/2023/02/21/business/austin-soco-south-congress.html?searchResultPosition=4
+https://nytimes.com/2023/02/21/business/austin-soco-south-congress.html?searchResultPosition=5
 
 **Big Soda’s Alcohol Drinks Worry Health Experts**\
 `PepsiCo and Coca-Cola enter hard soda markets, causing concerns among regulators and researchers.`\
-https://nytimes.com/2023/02/21/health/alcohol-soft-drinks-health-risk.html?searchResultPosition=5
+https://nytimes.com/2023/02/21/health/alcohol-soft-drinks-health-risk.html?searchResultPosition=6
 
 **Cocaine Bear, Meet Cannabis Raccoon and McFlurry Skunk**\
 `Wild animals eat the strangest things. That can be a problem, for them and for us.`\
-https://nytimes.com/2023/02/21/science/animals-wildlife-drugs.html?searchResultPosition=6
+https://nytimes.com/2023/02/21/science/animals-wildlife-drugs.html?searchResultPosition=7
 
 **‘Effective Altruism’ Led Bankman-Fried to a Little-Known Wall St. Firm**\
 `The FTX founder joined Jane Street Capital not to learn about controlling risk, which is its focus, but because the tenets of a philanthropic movement drew him there.`\
-https://nytimes.com/2023/02/21/business/bankman-fried-altruism-jane-street.html?searchResultPosition=7
+https://nytimes.com/2023/02/21/business/bankman-fried-altruism-jane-street.html?searchResultPosition=8
 
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/02/21/crosswords/spelling-bee-forum.html?searchResultPosition=8
+https://nytimes.com/2023/02/21/crosswords/spelling-bee-forum.html?searchResultPosition=9
 
 **Hand-Me-Downs**\
 `Do you have any favorite items that have been handed down to you?`\
-https://nytimes.com/2023/02/21/learning/hand-me-downs.html?searchResultPosition=9
-
-**Manchester United Bidding War Already Has a Winner: The Sellers**\
-`A Qatari royal and a British billionaire have designs on the Premier League giant. But the Glazer family still gets to set the price.`\
-https://nytimes.com/2023/02/21/sports/soccer/manchester-united-sale.html?searchResultPosition=10
+https://nytimes.com/2023/02/21/learning/hand-me-downs.html?searchResultPosition=10
 
