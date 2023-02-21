@@ -1,5 +1,5 @@
 **Don Lemon Will Return to CNN on Wednesday After Uproar**\
-`CNN’s chairman, Chris Licht, said in a Monday night memo that the anchor “has agreed to participate in formal training.”`\
+`CNN’s chairman, Chris Licht, said in a Monday night memo that the anchor “has agreed to participate in formal training” after making on-air comments widely regarded as sexist.`\
 https://nytimes.com/2023/02/20/business/media/don-lemon-cnn.html?searchResultPosition=1
 
 **What Will Ukraine Do With Its New Tanks?**\
