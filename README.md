@@ -1,40 +1,40 @@
+**Judge Hears Final Arguments in Suit Over Musk’s Tesla Pay**\
+`Shareholders’ lawyers challenged the board’s contention that Elon Musk’s record-setting compensation was deserved and an effective tool of motivation.`\
+https://nytimes.com/2023/02/21/business/elon-musk-tesla-pay-suit.html?searchResultPosition=1
+
 **In Kyiv, Italy’s prime minister condemns Russia and pledges further support to Ukraine.**\
 `The prime minister, Giorgia Meloni, reiterated her backing amid dissension within her coalition government on the issue.`\
-https://nytimes.com/2023/02/21/world/europe/giorgia-meloni-ukraine-kyiv-russia.html?searchResultPosition=1
+https://nytimes.com/2023/02/21/world/europe/giorgia-meloni-ukraine-kyiv-russia.html?searchResultPosition=2
 
 **Looted Artifacts, Returned to Yemen, Will Stay at Smithsonian for Now**\
 `Under an agreement, ownership of 77 objects seized from a New York art dealer reverted to Yemen. They will be returned when the violent conflict there subsides.`\
-https://nytimes.com/2023/02/21/arts/design/yemen-looted-artifacts-smithsonian.html?searchResultPosition=2
+https://nytimes.com/2023/02/21/arts/design/yemen-looted-artifacts-smithsonian.html?searchResultPosition=3
 
 **Your Tuesday Evening Briefing**\
 `Here’s what you need to know at the end of the day.`\
-https://nytimes.com/2023/02/21/briefing/biden-putin-ukraine-speech-supreme-court-section-230.html?searchResultPosition=3
+https://nytimes.com/2023/02/21/briefing/biden-putin-ukraine-speech-supreme-court-section-230.html?searchResultPosition=4
 
 **6 Paperbacks to Read This Week**\
 `This week’s selection includes Richard Zenith’s biography of Fernando Pessoa, a collection of interviews with notable Black women writers and more.`\
-https://nytimes.com/interactive/2023/02/21/books/review/new-paperbacks.html?searchResultPosition=4
+https://nytimes.com/interactive/2023/02/21/books/review/new-paperbacks.html?searchResultPosition=5
 
 **Red McCombs, Used Car Salesman Turned Media Mogul, Dies at 95**\
 `A Texas entrepreneur, he co-founded the media giant Clear Channel, owned pro sports teams and created more than 400 businesses in a variety of industries.`\
-https://nytimes.com/2023/02/21/business/red-mccombs-dead.html?searchResultPosition=5
+https://nytimes.com/2023/02/21/business/red-mccombs-dead.html?searchResultPosition=6
 
 **Did You Retire Early in Britain? We Want to Hear From You.**\
 `Since the pandemic began in 2020 a large number of people in Britain have left the work force and not returned. We’d like to know how it’s going.`\
-https://nytimes.com/2023/02/21/us/did-you-retire-early-in-britain-we-want-to-hear-from-you.html?searchResultPosition=6
+https://nytimes.com/2023/02/21/us/did-you-retire-early-in-britain-we-want-to-hear-from-you.html?searchResultPosition=7
 
 **Wisconsin State Supreme Court Primary Election**\
 `See full results and maps from the 2023 Wisconsin Supreme Court primary election.`\
-https://nytimes.com/interactive/2023/02/21/us/elections/results-wisconsin-supreme-court.html?searchResultPosition=7
+https://nytimes.com/interactive/2023/02/21/us/elections/results-wisconsin-supreme-court.html?searchResultPosition=8
 
 **Virginia Fourth Congressional District Special Election Results**\
 `See full results and maps from the 2023 Virginia special election.`\
-https://nytimes.com/interactive/2023/02/21/us/elections/results-virginia-us-house-district-4-special.html?searchResultPosition=8
+https://nytimes.com/interactive/2023/02/21/us/elections/results-virginia-us-house-district-4-special.html?searchResultPosition=9
 
 **Italian Prime Minister Pledges Additional Support for Ukraine**\
 `Prime Minister Giorgia Meloni of Italy vowed to continue to provide Ukraine with military, financial and humanitarian support, but said supplying military planes was “not on the table.”`\
-https://nytimes.com/video/world/europe/100000008780581/italy-ukraine-war-aid.html?searchResultPosition=9
-
-**How Do You Buy and Sell Goods? We Want to Know.**\
-`E-commerce is more prevalent than ever, and goods today are often rented or resold. We want to hear about your experiences with the companies offering these services.`\
-https://nytimes.com/2023/02/21/business/retail-callout.html?searchResultPosition=10
+https://nytimes.com/video/world/europe/100000008780581/italy-ukraine-war-aid.html?searchResultPosition=10
 
