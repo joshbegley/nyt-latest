@@ -10,7 +10,7 @@ https://nytimes.com/2023/02/21/business/elon-musk-tesla-pay-suit.html?searchResu
 `The prime minister, Giorgia Meloni, reiterated her backing amid dissension within her coalition government on the issue.`\
 https://nytimes.com/2023/02/21/world/europe/giorgia-meloni-ukraine-kyiv-russia.html?searchResultPosition=3
 
-**Looted Artifacts, Returned to Yemen, Will Stay at Smithsonian for Now**\
+**Looted Artifacts, Returned to Yemen, Will Go to the Smithsonian, for Now**\
 `Under an agreement, ownership of 77 objects seized from a New York art dealer reverted to Yemen. They will be returned when the violent conflict there subsides.`\
 https://nytimes.com/2023/02/21/arts/design/yemen-looted-artifacts-smithsonian.html?searchResultPosition=4
 
