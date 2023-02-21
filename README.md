@@ -10,7 +10,7 @@ https://nytimes.com/2023/02/21/world/europe/putin-new-start-treaty.html?searchRe
 `The retail giant reported strong results for the holiday shopping season, but said that the coming year would be tougher.`\
 https://nytimes.com/2023/02/21/business/walmart-earnings-consumers.html?searchResultPosition=3
 
-**Barbara Lee, a Longtime Congresswoman, Announces a Run for Senate in California**\
+**Barbara Lee, a Longtime Congresswoman, Is Running for Senate in California**\
 `Ms. Lee, the sole member of Congress to oppose a broad war authorization after the Sept. 11 attacks, is joining the race for Senator Dianne Feinstein’s seat.`\
 https://nytimes.com/2023/02/21/us/politics/barbara-lee-senate-california.html?searchResultPosition=4
 
