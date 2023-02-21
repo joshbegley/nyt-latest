@@ -1,6 +1,6 @@
 **Jury in Georgia Trump Inquiry Recommended Multiple Indictments, Forewoman Says**\
 `She would not discuss specific indictments in the special grand jury’s report but noted that its recommendations are “not going to be some giant plot twist.”`\
-https://nytimes.com/2023/02/21/us/jury-in-georgia-trump-inquiry-recommended-multiple-indictments-forewoman-says.html?searchResultPosition=1
+https://nytimes.com/2023/02/21/us/trump-georgia-grand-jury-indictments.html?searchResultPosition=1
 
 **Israel Unlikely to Extradite Mexican Ex-Lawman Wanted in Mass Abduction, Officials Say**\
 `The Mexican authorities say Tomás Zerón tortured witnesses and tampered with evidence in a crucial investigation into the 2014 disappearance of 43 students.`\
