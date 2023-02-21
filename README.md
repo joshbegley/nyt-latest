@@ -1,5 +1,5 @@
 **Fighting Corporate Lies**\
-`Yes, there’ still a lot of greenwashing out there. But regulators and activists are on alert more than ever.`\
+`Yes, there’s still a lot of greenwashing out there. But regulators and activists are on alert more than ever.`\
 https://nytimes.com/2023/02/21/climate/greenwashing-climate-misinformation.html?searchResultPosition=1
 
 **Joan Mitchell Foundation Claims Vuitton Ads Infringe on Painter’s Copyright**\
