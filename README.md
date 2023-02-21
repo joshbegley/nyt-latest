@@ -1,6 +1,6 @@
 **2 Teens’ Deaths Underscore Dangers of ‘Subway Surfing’**\
 `In New York, incidents of people riding outside of train cars have more than quadrupled in one year. Two recent deaths show the dangers of a trend stoked by social media.`\
-https://nytimes.com/2023/02/21/special-series/subway-surfing-new-york-death.html?searchResultPosition=1
+https://nytimes.com/2023/02/21/nyregion/subway-surfing-new-york-death.html?searchResultPosition=1
 
 **Supreme Court Frustrated and Wary Over Legal Shield for Tech Companies**\
 `The case, concerning a law that gives websites immunity for suits based on their users’ posts, has the potential to alter the very structure of the internet.`\
