@@ -1,40 +1,40 @@
+**As Austin’s SoCo District Grows, Is It Losing Its ‘Weird’?**\
+`Streets like South Congress Avenue are crucial to retail and hotel chains looking for cachet, real estate experts say, but gentrification can push out local businesses and residents.`\
+https://nytimes.com/2023/02/21/business/austin-soco-south-congress.html?searchResultPosition=1
+
+**Big Soda’s Alcohol Drinks Worry Health Experts**\
+`PepsiCo and Coca-Cola enter hard soda markets, causing concerns among regulators and researchers.`\
+https://nytimes.com/2023/02/21/health/alcohol-soft-drinks-health-risk.html?searchResultPosition=2
+
+**Cocaine Bear, Meet Cannabis Raccoon and McFlurry Skunk**\
+`Wild animals eat the strangest things. That can be a problem, for them and for us.`\
+https://nytimes.com/2023/02/21/science/animals-wildlife-drugs.html?searchResultPosition=3
+
+**‘Effective Altruism’ Led Bankman-Fried to a Little-Known Wall St. Firm**\
+`The FTX founder joined Jane Street Capital not to learn about controlling risk, which is its focus, but because the tenets of a philanthropic movement drew him there.`\
+https://nytimes.com/2023/02/21/business/bankman-fried-altruism-jane-street.html?searchResultPosition=4
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2023/02/21/crosswords/spelling-bee-forum.html?searchResultPosition=5
+
+**Hand-Me-Downs**\
+`Do you have any favorite items that have been handed down to you?`\
+https://nytimes.com/2023/02/21/learning/hand-me-downs.html?searchResultPosition=6
+
 **Manchester United Bidding War Already Has a Winner: The Sellers**\
 `A Qatari royal and a British billionaire have designs on the Premier League giant. But the Glazer family still gets to set the price.`\
-https://nytimes.com/2023/02/21/sports/soccer/manchester-united-sale.html?searchResultPosition=1
+https://nytimes.com/2023/02/21/sports/soccer/manchester-united-sale.html?searchResultPosition=7
 
 **Word of the Day: akimbo**\
 `This word has appeared in 26 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/02/21/learning/word-of-the-day-akimbo.html?searchResultPosition=2
+https://nytimes.com/2023/02/21/learning/word-of-the-day-akimbo.html?searchResultPosition=8
 
 **Your Tuesday Briefing**\
 `President Biden’s covert trip to Kyiv.`\
-https://nytimes.com/2023/02/21/briefing/biden-kyiv-earthquake-turkey.html?searchResultPosition=3
+https://nytimes.com/2023/02/21/briefing/biden-kyiv-earthquake-turkey.html?searchResultPosition=9
 
 **These 12 Asian Americans Wonder When the Stereotypes Will Fade**\
 `The group discusses identity, stereotypes, discrimination and more.`\
-https://nytimes.com/interactive/2023/02/21/opinion/asian-americans-focus-group.html?searchResultPosition=4
-
-**One Dead, a Dozen Injured in Explosion at Ohio Metal Plant**\
-`The explosion at a metal plant in Bedford, Ohio, scattered debris over hundreds of yards. The cause was under investigation.`\
-https://nytimes.com/2023/02/21/us/bedford-metal-fire-explosion.html?searchResultPosition=5
-
-**The Growing Risk of Battery Fires in New York**\
-`Some 50 batteries were found inside a building in Bushwick, Brooklyn, that burned a week ago.`\
-https://nytimes.com/2023/02/21/nyregion/lithium-ion-battery-fires.html?searchResultPosition=6
-
-**Don Lemon Will Return to CNN on Wednesday After Uproar**\
-`CNN’s chairman, Chris Licht, said in a Monday night memo that the anchor “has agreed to participate in formal training” after making on-air comments widely regarded as sexist.`\
-https://nytimes.com/2023/02/20/business/media/don-lemon-cnn.html?searchResultPosition=7
-
-**What Will Ukraine Do With Its New Tanks?**\
-`Ukraine is getting a slew of new offensive weapons. It may change the war.`\
-https://nytimes.com/2023/02/20/opinion/ukraine-russia-tanks-offensive.html?searchResultPosition=8
-
-**Variety of Pun**\
-`Daniel Raymon’s puzzle may have ulterior motives.`\
-https://nytimes.com/2023/02/20/crosswords/daily-puzzle-2023-02-21.html?searchResultPosition=9
-
-**Biden’s Surreal and Secretive Journey Into a War Zone**\
-`President Biden traveled covertly to the besieged Ukrainian capital of Kyiv, hoping to demonstrate American resolve to help defeat the Russian forces that invaded a year ago this week.`\
-https://nytimes.com/2023/02/20/us/politics/biden-kyiv-ukraine.html?searchResultPosition=10
+https://nytimes.com/interactive/2023/02/21/opinion/asian-americans-focus-group.html?searchResultPosition=10
 
