@@ -2,9 +2,9 @@
 `Nigeria’s government changed the currency design right before the presidential election, causing shortages and wreaking social havoc. The timing, many say, is political.`\
 https://nytimes.com/2023/02/22/world/africa/nigeria-cash-shortage-election.html?searchResultPosition=1
 
-**Fed Minutes Showed Policymakers Were Still Intent on Cooling Inflation**\
-`Federal Reserve officials thought they needed to do more to cool the economy even before a series of strong data releases in recent weeks`\
-https://nytimes.com/2023/02/22/business/economy/fed-minutes-showed-policymakers-were-still-intent-on-cooling-inflation.html?searchResultPosition=2
+**Fed Minutes Showed Policymakers Were Still Intent on Easing Inflation**\
+`Federal Reserve officials thought they needed to do more to cool the economy even before a series of strong data releases in recent weeks.`\
+https://nytimes.com/2023/02/22/business/economy/inflation-fed-minutes.html?searchResultPosition=2
 
 **Joyce Theater Expands to the East Village**\
 `The longtime dance presenter has signed a yearlong lease on rehearsal and studio space that it hopes to purchase.`\
