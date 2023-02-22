@@ -8,7 +8,7 @@ https://nytimes.com/2023/02/21/magazine/ivie-demolina-prison-letters-project.htm
 
 **3 Killed in Avalanche in Washington’s Cascade Mountains**\
 `The climbers had been trying to reach an 8,705-foot peak when a mass of snow, ice and rock crashed down on them, the authorities said.`\
-https://nytimes.com/2023/02/21/us/avalanche-deaths-washingto.html?searchResultPosition=3
+https://nytimes.com/2023/02/21/us/avalanche-deaths-washington.html?searchResultPosition=3
 
 **Liberal Judge Is First to Advance in Major Wisconsin Supreme Court Election**\
 `Janet Protasiewicz, a liberal judge from Milwaukee County, will face one of two conservatives in a race that could tilt the balance of the court, with abortion rights, gerrymandered maps and more in the balance.`\
