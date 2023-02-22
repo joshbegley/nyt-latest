@@ -1,40 +1,40 @@
+**Nigeria’s Cash Crunch Causes Chaos and Suffering Before Crucial Election**\
+`Nigeria’s government changed the currency design right before the presidential election, causing shortages and wreaking social havoc. The timing, many say, is political.`\
+https://nytimes.com/2023/02/22/world/africa/nigeria-cash-shortage-election.html?searchResultPosition=1
+
+**Fed Minutes Showed Policymakers Were Still Intent on Cooling Inflation**\
+`Federal Reserve officials thought they needed to do more to cool the economy even before a series of strong data releases in recent weeks`\
+https://nytimes.com/2023/02/22/business/economy/fed-minutes-showed-policymakers-were-still-intent-on-cooling-inflation.html?searchResultPosition=2
+
 **Joyce Theater Expands to the East Village**\
 `The longtime dance presenter has signed a yearlong lease on rehearsal and studio space that it hopes to purchase.`\
-https://nytimes.com/2023/02/22/arts/dance/joyce-theater-expands-east-village.html?searchResultPosition=1
+https://nytimes.com/2023/02/22/arts/dance/joyce-theater-expands-east-village.html?searchResultPosition=3
 
 **NPR to Cut 10% of Its Staff**\
 `The nonprofit media organization, which has a staff of about 1,100 people, said the layoffs were required because of a slowdown in advertising and a drop in corporate sponsorships.`\
-https://nytimes.com/2023/02/22/business/media/npr-layoffs.html?searchResultPosition=2
+https://nytimes.com/2023/02/22/business/media/npr-layoffs.html?searchResultPosition=4
 
 **She’s Oscar-Nominated, but Hong Chau Hopes to Stay an Underdog**\
 `Up for best supporting actress for “The Whale,” she never dreamed of being a performer. But she has turned into “a force of nature,” says Brendan Fraser.`\
-https://nytimes.com/2023/02/22/movies/hong-chau-the-whale-oscars.html?searchResultPosition=3
+https://nytimes.com/2023/02/22/movies/hong-chau-the-whale-oscars.html?searchResultPosition=5
 
 **Strong Democratic Showing in Wisconsin Court Race Sets Up a Frenzied Finish**\
 `Democratic turnout was high in the Tuesday primary for the State Supreme Court, ahead of a costly general election that will decide the future of abortion rights and gerrymandered maps in the state.`\
-https://nytimes.com/2023/02/22/us/politics/wisconsin-supreme-court-race.html?searchResultPosition=4
+https://nytimes.com/2023/02/22/us/politics/wisconsin-supreme-court-race.html?searchResultPosition=6
 
 **On London Stages, Finding Something Fresh in Tragedy**\
 `New productions of “Medea” and “Phaedra” feature outstanding performances from Sophie Okonedo and Janet McTeer as women pushed to the edge.`\
-https://nytimes.com/2023/02/22/theater/medea-sohoplace-phaedra-natinoal-theater.html?searchResultPosition=5
+https://nytimes.com/2023/02/22/theater/medea-sohoplace-phaedra-natinoal-theater.html?searchResultPosition=7
 
 **The Hometown That Drew Jimmy Carter Back Keeps Vigil**\
 `Plains, Ga., is indelibly linked with the legacy of the 39th president. After he entered hospice care, the town has been gripped by a somber and sometimes strange wait.`\
-https://nytimes.com/2023/02/22/us/jimmy-carter-hometown-plains-georgia.html?searchResultPosition=6
+https://nytimes.com/2023/02/22/us/jimmy-carter-hometown-plains-georgia.html?searchResultPosition=8
 
 **Counting votes and cutting violence**\
 `A new study found that the type of party that won election in Brazil seemed to have a correlation with violence immediately after the vote.`\
-https://nytimes.com/2023/02/22/world/americas/counting-votes-and-cutting-violence.html?searchResultPosition=7
+https://nytimes.com/2023/02/22/world/americas/counting-votes-and-cutting-violence.html?searchResultPosition=9
 
-**Trump Heads to East Palestine, Seeking to Draw Contrast With Biden**\
-`The former president has attacked President Biden over his administration’s handling of the train derailment disaster, even as his own environmental policies while in office have been criticized.`\
-https://nytimes.com/2023/02/22/us/politics/trump-east-palestine-ohio-visit.html?searchResultPosition=8
-
-**This Buttery Fish Is Weeknight Easy and Julia Child Fancy**\
-`Fish almondine is a nutty variation on a classic French dish, sole meunière.`\
-https://nytimes.com/2023/02/22/dining/buttery-roasted-fish-recipe.html?searchResultPosition=9
-
-**The Wild World Inside Your Gut**\
-`Your trickiest digestive-health questions, answered by experts.`\
-https://nytimes.com/interactive/2023/02/22/well/eat/gut-microbiome-health.html?searchResultPosition=10
+**Ukraine prepares itself for the possibility of Russian aggression via Moldova and Belarus.**\
+`Military analysts doubt Russia’s ability to sustain a new front, but Ukrainian and Western officials have warned that Moscow could try to divert Ukrainian resources.`\
+https://nytimes.com/2023/02/22/world/europe/russia-moldova-ukraine.html?searchResultPosition=10
 
