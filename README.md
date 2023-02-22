@@ -31,7 +31,7 @@ https://nytimes.com/2023/02/22/realestate/home-prices-virginia-massachusetts-and
 https://nytimes.com/2023/02/22/style/marital-infidelity-confrontation.html?searchResultPosition=8
 
 **At Least 10 Palestinians Killed During Israeli Raid in West Bank**\
-`A gunfight broke out between Israeli soldiers and Palestinian gunmen during an Israeli operation to arrest Palestinian fighters. Ten Palestinians were killed and more than 100 others wounded.`\
+`An hourslong gunfight broke out between Israeli soldiers and Palestinian gunmen during an Israeli operation to arrest Palestinian fighters. The violence left the region braced for further unrest.`\
 https://nytimes.com/2023/02/22/world/middleeast/west-bank-nablus-palestinians-killed.html?searchResultPosition=9
 
 **Your Women’s World Cup Questions, Answered**\
