@@ -6,7 +6,7 @@ https://nytimes.com/2023/02/22/business/economy/nlrb-severance.html?searchResult
 `By a 5-to-4 vote, the justices sided with John Montenegro Cruz, who was sentenced to death by jurors who were not told he would be ineligible for parole if they voted for a life sentence.`\
 https://nytimes.com/2023/02/22/us/politics/supreme-court-death-penalty-arizona.html?searchResultPosition=2
 
-**In the Country of True Crime**\
+**‘Murdaugh Murders’ and the Allure of Regional True Crime**\
 `From the Central Valley to the Lowcountry to a four-year liberal-arts college, the landscape is a character in a range of new documentary series.`\
 https://nytimes.com/2023/02/22/arts/television/murdaugh-murders-netfix-true-crime.html?searchResultPosition=3
 
