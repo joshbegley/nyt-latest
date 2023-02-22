@@ -6,7 +6,7 @@ https://nytimes.com/2023/02/21/us/politics/vivek-ramaswamy-presidential-candidat
 `Jennifer McClellan, a state senator, will fill the seat held by Representative A. Donald McEachin, who died in November.`\
 https://nytimes.com/2023/02/21/us/politics/jennifer-mcclellan-virginia.html?searchResultPosition=2
 
-**Biden and Putin Give Clashing Claims of Who Is to Blame on Ukraine**\
+**Biden Accuses Putin of Atrocities and Urges World to Rebuke Him**\
 `In sharply opposed speeches, President Vladimir V. Putin said Russia invaded in self-defense, while President Biden said Mr. Putin bore sole responsibility. But they agreed the war would not end soon.`\
 https://nytimes.com/2023/02/21/world/europe/biden-putin-russia-ukraine.html?searchResultPosition=3
 
