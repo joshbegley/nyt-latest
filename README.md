@@ -1,5 +1,5 @@
 **Republican bashing of E.S.G. gets a bit more complicated**\
-`A number of G.O.P. lawmakers have taken money from the companies they vilified, but some of the party’s presidential candidates are still on the attack.`\
+`A number of G.O.P. lawmakers have taken money from the companies they vilified, but some of the party’s presidential hopefuls are still on the attack.`\
 https://nytimes.com/2023/02/22/business/dealbook/republicans-esg-vivek-ramaswamy.html?searchResultPosition=1
 
 **China’s Tech Rainmaker Vanishes, and So Does Business Confidence**\
