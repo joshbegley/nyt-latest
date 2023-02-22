@@ -1,5 +1,5 @@
 **Nigeria’s Cash Crunch Causes Chaos and Suffering Before Crucial Election**\
-`Nigeria’s government changed the currency design right before the presidential election, causing shortages and wreaking social havoc. The timing, many say, is political.`\
+`Nigeria’s government changed the currency design  before the presidential election, causing shortages and wreaking social havoc.`\
 https://nytimes.com/2023/02/22/world/africa/nigeria-cash-shortage-election.html?searchResultPosition=1
 
 **Fed Minutes Showed Policymakers Were Still Intent on Easing Inflation**\
