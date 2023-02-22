@@ -1,6 +1,6 @@
 **A Wealthy ‘Anti-Woke’ Activist Joins the 2024 Presidential Field**\
 `Vivek Ramaswamy, 37, has made a name for himself in right-wing circles by opposing corporate efforts to advance political, social and environmental causes.`\
-https://nytimes.com/2023/02/21/us/politics/a-wealthy-anti-woke-activist-joins-the-2024-presidential-field.html?searchResultPosition=1
+https://nytimes.com/2023/02/21/us/politics/vivek-ramaswamy-presidential-candidate-2024.html?searchResultPosition=1
 
 **McClellan Wins in Virginia and Will Be State’s First Black Woman in Congress**\
 `Jennifer McClellan, a state senator, will fill the seat held by Representative A. Donald McEachin, who died in November.`\
