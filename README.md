@@ -31,7 +31,7 @@ https://nytimes.com/2023/02/22/us/cattle-shooting-new-mexico-helicopter.html?sea
 https://nytimes.com/2023/02/22/us/winter-storm-weather-california.html?searchResultPosition=8
 
 **U.K. Court Upholds Ruling Stripping Shamima Begum’s Citizenship**\
-`Ms. Begum was one of three teenage girls from London who ran away to Syria in 2015 to join the Islamic State.`\
+`Ms. Begum was one of three teenage girls from London who traveled to Syria in 2015 to join the Islamic State.`\
 https://nytimes.com/2023/02/22/world/europe/shamima-begum-uk-citizenship-isis.html?searchResultPosition=9
 
 **Live Performance in New York: Here’s What to See This Spring**\
