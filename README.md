@@ -7,7 +7,7 @@ https://nytimes.com/2023/02/21/us/politics/vivek-ramaswamy-presidential-candidat
 https://nytimes.com/2023/02/21/us/politics/jennifer-mcclellan-virginia.html?searchResultPosition=2
 
 **Biden Accuses Putin of Atrocities and Urges World to Rebuke Him**\
-`In sharply opposed speeches, President Vladimir V. Putin said Russia invaded in self-defense, while President Biden said Mr. Putin bore sole responsibility. But they agreed the war would not end soon.`\
+`In sharply opposed speeches, President Biden said Vladimir V. Putin bore sole responsibility for the war, while Mr. Putin said Russia had invaded in self-defense. But they agreed the war would not end soon.`\
 https://nytimes.com/2023/02/21/world/europe/biden-putin-russia-ukraine.html?searchResultPosition=3
 
 **Biden Administration Announces New Border Crackdown**\
