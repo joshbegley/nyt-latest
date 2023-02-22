@@ -4,7 +4,7 @@ https://nytimes.com/2023/02/21/us/politics/wisconsin-supreme-court-election.html
 
 **Review: Rude T-Shirts and Rude Awakenings in ‘A Bright New Boise’**\
 `An early play by Samuel D. Hunter finds the author developing his voice by lending it to the lost souls working at an Idaho Hobby Lobby.`\
-https://nytimes.com/2023/02/21/theater/review-rude-t-shirts-and-rude-awakenings-in-a-bright-new-boise.html?searchResultPosition=2
+https://nytimes.com/2023/02/21/theater/a-bright-new-boise-review.html?searchResultPosition=2
 
 **Southern Baptists Expel Saddleback Church Over Female Pastor**\
 `The nation’s largest Protestant denomination has grappled with issues around gender, sexuality and politics.`\
