@@ -30,7 +30,7 @@ https://nytimes.com/2023/02/22/world/americas/gloria-maria-dead.html?searchResul
 `I'm a news editor for the Foreign desk. Here are five things I've been watching, reading and listening to.`\
 https://nytimes.com/interactive/2023/02/22/arts/editors-recommendations-marchita.html?searchResultPosition=8
 
-**Three Years Into Covid, We Still Don’t Know to Talk About It**\
+**Three Years Into Covid, We Still Don’t Know How to Talk About It**\
 `Most Americans think they know the story of the pandemic. But when a writer immersed himself in a Covid oral-history project, he realized how much we’re still missing.`\
 https://nytimes.com/interactive/2023/02/22/magazine/covid-pandemic-oral-history.html?searchResultPosition=9
 
