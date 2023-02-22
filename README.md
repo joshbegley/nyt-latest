@@ -1,6 +1,6 @@
 **Who’s Running for President in 2024?**\
 `See who is in, and who else might run.`\
-https://nytimes.com/interactive/2023/02/21/us/presidential-candidates-2024.html?searchResultPosition=1
+https://nytimes.com/interactive/2023/us/politics/presidential-candidates-2024.html?searchResultPosition=1
 
 **A Wealthy ‘Anti-Woke’ Activist Joins the 2024 Presidential Field**\
 `Vivek Ramaswamy, 37, has made a name for himself in right-wing circles by opposing corporate efforts to advance political, social and environmental causes.`\
