@@ -35,6 +35,6 @@ https://nytimes.com/2023/02/23/us/politics/arizona-brnovich-election-fraud.html?
 https://nytimes.com/2023/02/23/books/review/colin-winnette-users.html?searchResultPosition=9
 
 **The Weekender**\
-`Why Emma Chamberlain is pulling back from YouTube. Also: How to spend 36 hours in Miami, and inside a search for downed U.F.O.s.`\
+`By Jaclyn Reiss`\
 https://nytimes.com/interactive/2023/02/23/briefing/the-weekender.html?searchResultPosition=10
 
