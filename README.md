@@ -7,7 +7,7 @@ https://nytimes.com/2023/02/22/movies/dancing-the-twist-in-bamako-review.html?se
 https://nytimes.com/2023/02/22/opinion/a-farewell-to-readers.html?searchResultPosition=2
 
 **Gunman Kills 3, Including News Reporter, in Shooting Spree, Sheriff Says**\
-`A TV reporter and a photographer for News 13 in Orlando, Fla., had been covering a homicide when a shooter returned to the site of the killing and shot both of them, the authorities said.`\
+`A TV reporter and a photographer for News 13 in Orlando, Fla., had been covering a homicide when a shooter returned to the site of a killing and shot them both, the authorities said. A 9-year-old was also killed.`\
 https://nytimes.com/2023/02/22/us/florida-shooting-news.html?searchResultPosition=3
 
 **Global Declines in Maternal Mortality Have Stalled**\
