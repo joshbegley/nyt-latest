@@ -1,40 +1,40 @@
-**Another Brexit Deal Is Another Gamble for Another Prime Minister**\
-`Ever since Britain voted to leave the European Union, the question of Northern Ireland’s border has bedeviled prime ministers. Rishi Sunak’s effort to broker a deal is already under threat.`\
-https://nytimes.com/2023/02/23/world/europe/rishi-sunak-northern-ireland-brexit.html?searchResultPosition=1
+**What’s Inside the Earth’s Core?**\
+`Seismic waves measuring earthquakes reveal more about the deepest layers of the planet, a new study suggests.`\
+https://nytimes.com/2023/02/23/science/earth-core-seismic-waves.html?searchResultPosition=1
 
-**Diesel Was Brilliant. This Is Why We Need Designers.**\
-`Glenn Martens makes the case with condoms, fun and mind-blowing technique.`\
-https://nytimes.com/2023/02/23/style/diesel-glenn-martens-milan-fashion-week.html?searchResultPosition=2
+**Yes, Your Something Borrowed Can Be the Wedding Dress Itself**\
+`Laine London, a Black-owned rental company, offers affordable, size-inclusive options for brides who want a perfectly tailored fit.`\
+https://nytimes.com/2023/02/23/style/laine-london-wedding-dress-rental.html?searchResultPosition=2
 
-**David Bowie, and His Personas, Will Live On at Victoria and Albert Museum**\
-`The London museum will house more than 80,000 items from the star’s music career at a new David Bowie Center for the Study of Performing Arts. It will open in 2025.`\
-https://nytimes.com/2023/02/23/arts/music/david-bowie-victoria-albert-museum.html?searchResultPosition=3
+**How Health Insurance Works in China, and How It’s Changing**\
+`China is undertaking a far-reaching overhaul of its health care system as its cities reel from the financial pressure of three years of strict Covid policies.`\
+https://nytimes.com/2023/02/23/business/china-health-insurance-explained.html?searchResultPosition=3
 
-**Yellen Calls for More Ukraine Support as G20 Finance Ministers Gather**\
-`The Treasury secretary offered a dark assessment of Russia’s economy but a more upbeat outlook for the global economic recovery.`\
-https://nytimes.com/2023/02/23/business/yellen-ukraine-g20.html?searchResultPosition=4
+**California, Stop Parching Your Neighbors**\
+`Six states that depend on the Colorado River want to share the burden of cuts in water use. But California refuses to play fair.`\
+https://nytimes.com/2023/02/23/opinion/colorado-river-california-arizona-drought.html?searchResultPosition=4
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/02/23/crosswords/spelling-bee-forum.html?searchResultPosition=5
+**Microsoft Is Sacrificing Its Ethical Principles to Win the A.I. Race**\
+`By launching Bing, Microsoft is abandoning the ethical principles it had carefully crafted around A.I.`\
+https://nytimes.com/2023/02/23/opinion/microsoft-bing-ai-ethics.html?searchResultPosition=5
 
-**Cracked Mirror**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2023/02/23/learning/cracked-mirror.html?searchResultPosition=6
+**Rupert Holmes Can’t Read While Music Is Playing**\
+`“The resulting cacophony interferes with the author’s rhythms and rests,” says the musician and crime novelist, whose latest book is “Murder Your Employer.” “Like listening to Beethoven in one ear and ‘Roll Over Beethoven’ in the other.”`\
+https://nytimes.com/2023/02/23/books/review/rupert-holmes-cant-read-while-music-is-playing.html?searchResultPosition=6
 
-**Word of the Day: sever**\
-`This word has appeared in 123 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/02/23/learning/word-of-the-day-sever.html?searchResultPosition=7
+**At Sing Sing, Prisoners’ Charges of Brutal Beatings Prompt U.S. Inquiry**\
+`Dozens of inmates sued after the November incident, which sent seven to the hospital. They described systematic abuse by special teams of correctional officers.`\
+https://nytimes.com/2023/02/23/nyregion/sing-sing-beatings-investigation.html?searchResultPosition=7
 
-**More Than 50 Missing After Coal Mine Collapses in Northern China**\
-`By Thursday, four deaths had been confirmed as rescuers worked to save miners at the site in Inner Mongolia.`\
-https://nytimes.com/2023/02/23/world/asia/china-mine-inner-mongolia.html?searchResultPosition=8
+**Georgia Gun Laws Weigh on Atlanta’s Bid to Host 2024 Democratic Convention**\
+`Boosters of Chicago’s bid are raising safety questions about Georgia’s lenient concealed-carry laws, jockeying for the upper hand as a decision nears.`\
+https://nytimes.com/2023/02/23/us/politics/democratic-convention-guns.html?searchResultPosition=8
 
-**What the War in Ukraine Has Truly Cost Us**\
-`War isn’t just tragic. It squanders our resources.`\
-https://nytimes.com/2023/02/23/opinion/ukraine-war.html?searchResultPosition=9
+**Poem: In Defense of Nothing**\
+`Anyone familiar with the concept of the “1990s” might recognize the cunning of this poem’s slacker mood.`\
+https://nytimes.com/2023/02/23/magazine/poem-in-defense-of-nothing.html?searchResultPosition=9
 
-**Journalist and Child Are Fatally Shot in Florida**\
-`The gunman also killed a 20-year-old woman and left two others in critical condition during the shooting spree in Orange County, Fla.`\
-https://nytimes.com/video/us/100000008782856/florida-shooting.html?searchResultPosition=10
+**Grief, Pain and the Lingering Impact of Trauma on Black Women’s Bodies**\
+`In her new novel, “An Autobiography of Skin,” Lakiesha Carr tells the stories of three contemporary Black women, each struggling with different manifestations of trauma.`\
+https://nytimes.com/2023/02/23/books/review/an-autobiography-of-skin-lakiesha-carr.html?searchResultPosition=10
 
