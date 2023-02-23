@@ -1,6 +1,6 @@
 **Fur Sales Are Illegal in California. Does Anyone Care?**\
 `The popularity of fur products had been diminishing in the state even before the new ban.`\
-https://nytimes.com/2023/02/23/style/fur-sales-are-illegal-in-california-does-anyone-care.html?searchResultPosition=1
+https://nytimes.com/2023/02/23/style/fur-sales-california.html?searchResultPosition=1
 
 **A New ‘Lohengrin,’ Threatened by War in Ukraine, Comes to the Met**\
 `François Girard’s staging, originally a co-production with the Bolshoi Theater, arrives a year after its Moscow premiere, which coincided with Russia’s invasion of Ukraine.`\
