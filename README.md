@@ -28,7 +28,7 @@ https://nytimes.com/2023/02/23/movies/linoleum-review-rocket-plan.html?searchRes
 
 **Two Above the Rest**\
 `We offer a field guide to the 2024 Republican presidential campaign.`\
-https://nytimes.com/2023/02/23/world/gop-race-2024-field-guide.html?searchResultPosition=8
+https://nytimes.com/2023/02/23/world/gop-race-2024-trump-desantis.html?searchResultPosition=8
 
 **A Ruling That Could End the Internet as We Know It**\
 `The Supreme Court is reviewing a legal shield that tech companies have long relied on to avoid liability for content on their platforms.`\
