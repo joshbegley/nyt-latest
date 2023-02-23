@@ -26,8 +26,8 @@ https://nytimes.com/2023/02/23/technology/personaltech/twitter-two-factor-authen
 `This week’s properties are in Prospect-Lefferts Gardens, Midtown East and on Riverside Drive.`\
 https://nytimes.com/2023/02/23/realestate/homes-for-sale-in-brooklyn-and-manhattan.html?searchResultPosition=7
 
-**Homes for Sale in New York and**\
-`This week’s properties are a five-bedroom homes in Armonk, N.Y., and Upper Saddle River, N.J.`\
+**Homes for Sale in New York and New Jersey**\
+`This week’s properties are five-bedroom homes in Armonk, N.Y., and Upper Saddle River, N.J.`\
 https://nytimes.com/2023/02/23/realestate/homes-for-sale-in-new-york-and.html?searchResultPosition=8
 
 **An Edinburgh Shop That Celebrates Scottish Design**\
