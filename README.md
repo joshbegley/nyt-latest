@@ -1,40 +1,40 @@
+**Marian Goodman Joins TriBeCa Gallery Throng**\
+`The 94-year-old gallerist will relocate from West 57th Street to prepare her company for the future, which includes new leadership and artist changes.`\
+https://nytimes.com/2023/02/23/arts/marian-goodman-gallery-tribeca.html?searchResultPosition=1
+
+**Philadelphia Museum Creates Center for African Art**\
+`With a gift from the trustee Ira Brind, the center will aim to advance the museum’s new Equity Agenda.`\
+https://nytimes.com/2023/02/23/arts/design/philadelphia-museum-center-african-art.html?searchResultPosition=2
+
+**Are We Having Fun Yet? ‘Party Down’ and the Sadness of the Sitcom Revival**\
+`Bringing beloved comedies back from the dead is usually a bad idea. The best ones, like Starz’s cater-waiter-com, lean into the discomfort.`\
+https://nytimes.com/2023/02/23/arts/television/party-down-review.html?searchResultPosition=3
+
 **How Hard Is It to Paint Like Vermeer? TV Contestants Find Out.**\
 `Amateur and professional artists are competing to recreate some of the old master’s lost works in a Dutch reality show that coincides with a blockbuster Vermeer exhibition in Amsterdam.`\
-https://nytimes.com/2023/02/23/arts/design/the-new-vermeer-tv-show.html?searchResultPosition=1
+https://nytimes.com/2023/02/23/arts/design/the-new-vermeer-tv-show.html?searchResultPosition=4
 
 **New Details Shed Light on FTX’s Campaign Contributions**\
 `Prosecutors accused FTX founder Sam Bankman-Fried and two unnamed people of making unlawful campaign donations using customers’ money.`\
-https://nytimes.com/2023/02/23/business/sam-bankman-fried-ftx.html?searchResultPosition=2
+https://nytimes.com/2023/02/23/business/sam-bankman-fried-ftx.html?searchResultPosition=5
 
 **How I Hold It Together: Kitchen Connections and More**\
 `An art director for the Well desk shares tips for staying happy and balanced.`\
-https://nytimes.com/interactive/2023/02/23/well/mind/self-care-tips-gardening-running-cooking.html?searchResultPosition=3
+https://nytimes.com/interactive/2023/02/23/well/mind/self-care-tips-gardening-running-cooking.html?searchResultPosition=6
 
 **Ozy Media’s Founder, Carlos Watson, Arrested on Fraud Charges**\
 `Mr. Watson had founded the troubled digital-media start-up Ozy, which unraveled after The New York Times examined its business practices.`\
-https://nytimes.com/2023/02/23/business/carlos-watson-ozy-arrested.html?searchResultPosition=4
+https://nytimes.com/2023/02/23/business/carlos-watson-ozy-arrested.html?searchResultPosition=7
 
 **9 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
-https://nytimes.com/2023/02/23/books/review/9-new-books-we-recommend-this-week.html?searchResultPosition=5
+https://nytimes.com/2023/02/23/books/review/9-new-books-we-recommend-this-week.html?searchResultPosition=8
 
 **Christoph Waltz Has Some Thoughts**\
 `His title character in the new Amazon series “The Consultant” is a blend of pleasant and menacing, with some very specific ideas about running a business.`\
-https://nytimes.com/2023/02/23/arts/television/christoph-waltz-the-consultant-amazon.html?searchResultPosition=6
+https://nytimes.com/2023/02/23/arts/television/christoph-waltz-the-consultant-amazon.html?searchResultPosition=9
 
 **The U.S. Has Billions for Wind and Solar Projects. Good Luck Plugging Them In.**\
 `An explosion in proposed clean energy ventures has overwhelmed the system for connecting new power sources to homes and businesses.`\
-https://nytimes.com/2023/02/23/climate/renewable-energy-us-electrical-grid.html?searchResultPosition=7
-
-**Jessye Norman Rejected These Recordings. Should They Be Released?**\
-`The new collection “Jessye Norman: The Unreleased Masters” raises artistic and ethical questions.`\
-https://nytimes.com/2023/02/23/arts/music/jessye-norman-unreleased-recordings.html?searchResultPosition=8
-
-**6 Podcasts to Help Tackle Your Climate Anxiety**\
-`These shows, full of passionate reporting, will leave you better informed and perhaps less prone to doom paralysis.`\
-https://nytimes.com/2023/02/23/arts/podcasts-climate-change.html?searchResultPosition=9
-
-**The West Tried to Isolate Russia. It Didn’t Work.**\
-`The West never won over as much of the world as it initially seemed. Here’s how Russia is taking advantage of a fragmented world.`\
-https://nytimes.com/interactive/2023/02/23/world/russia-ukraine-geopolitics.html?searchResultPosition=10
+https://nytimes.com/2023/02/23/climate/renewable-energy-us-electrical-grid.html?searchResultPosition=10
 
