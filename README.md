@@ -1,40 +1,40 @@
+**Your Thursday Evening Briefing**\
+`Here’s what you need to know at the end of the day.`\
+https://nytimes.com/2023/02/23/briefing/ukraine-russia-un-general-assembly-alex-murdaugh-trial.html?searchResultPosition=1
+
+**Orlando Journalist Mourned as Local Newsrooms Face More Danger**\
+`Journalism experts said it was a sign that covering local news was growing more dangerous. The gunman killed two other people, including a 9-year-old, and wounded two more, the authorities said.`\
+https://nytimes.com/2023/02/23/us/journalist-killed-orlando-shooting.html?searchResultPosition=2
+
+**Pharrell Threads the Needle**\
+`Why Louis Vuitton chose Mr. Williams as its new designer of men’s wear. It’s bigger than hip-hop.`\
+https://nytimes.com/2023/02/23/style/pharrell-williams-louis-vuitton-hip-top.html?searchResultPosition=3
+
+**JetBlue and Spirit Unions Split on Airlines’ Merger**\
+`Flight attendant unions at the two carriers are pushing in opposite directions as federal officials decide whether and on what terms to allow the deal.`\
+https://nytimes.com/2023/02/23/business/jetblue-spirit-airlines-merger-union-doj.html?searchResultPosition=4
+
 **Tony Earl, Progressive Former Governor of Wisconsin, Dies at 86**\
 `He served only one term, but he went on to make his mark as a champion of environmental causes, gay rights and election reform.`\
-https://nytimes.com/2023/02/23/us/politics/tony-earl-dead.html?searchResultPosition=1
+https://nytimes.com/2023/02/23/us/politics/tony-earl-dead.html?searchResultPosition=5
 
 **Punk Is What You Make It**\
 `The style looms large on the streets of London, where it is expressed in myriad ways.`\
-https://nytimes.com/2023/02/23/style/london-fashion-week-street-style-photos.html?searchResultPosition=2
+https://nytimes.com/2023/02/23/style/london-fashion-week-street-style-photos.html?searchResultPosition=6
 
 **Alex Murdaugh Admits to Lying to Investigators**\
 `The prominent South Carolina lawyer testified that he repeatedly lied to investigators about being at the location where his wife and son were murdered, and denied fatally shooting them.`\
-https://nytimes.com/video/us/100000008784137/alex-murdaugh-murder-trial-lying.html?searchResultPosition=3
+https://nytimes.com/video/us/100000008784137/alex-murdaugh-murder-trial-lying.html?searchResultPosition=7
 
 **Soy, Oat and Almond Drinks Can Be Called Milk, F.D.A. Says**\
 `Plant-based beverage makers hailed the agency’s decision but objected to the recommendation for labels to specify the nutritional differences with cow’s milk.`\
-https://nytimes.com/2023/02/23/health/soy-almond-oat-milk-fda.html?searchResultPosition=4
+https://nytimes.com/2023/02/23/health/soy-almond-oat-milk-fda.html?searchResultPosition=8
 
 **‘Woodstock’ for Christians: Revival Draws Thousands to Kentucky Town**\
 `Over two weeks, more than 50,000 people descended on a small campus chapel to experience the nation’s first major spiritual revival in decades — one driven by Gen Z.`\
-https://nytimes.com/2023/02/23/us/kentucky-revival-asbury-university.html?searchResultPosition=5
+https://nytimes.com/2023/02/23/us/kentucky-revival-asbury-university.html?searchResultPosition=9
 
 **Your Friday Briefing: A Year of War**\
 `Also, Nigeria’s upcoming election and healthcare protests in China.`\
-https://nytimes.com/2023/02/23/briefing/russia-ukraine-anniversary-war-asia.html?searchResultPosition=6
-
-**How Much Watching Time Do You Have This Weekend?**\
-`Our TV critic recommends checking out a scrappy one-season wonder, an escape room series for children and a sunny British mystery series.`\
-https://nytimes.com/2023/02/23/arts/television/how-much-watching-time-do-you-have-this-weekend.html?searchResultPosition=7
-
-**New York’s New Breed of Diners**\
-`A few new (and sometimes old) restaurants that are breathing life into the diner as we know it. `\
-https://nytimes.com/interactive/2023/02/23/dining/where-to-eat-diner.html?searchResultPosition=8
-
-**M.L.S. Returns With Another New Team and a Whole New Way to Watch**\
-`St. Louis City S.C. will hit the field as the league’s 29th franchise, but to watch it, and every other team, fans will have to get to know Apple TV+.`\
-https://nytimes.com/2023/02/23/sports/soccer/mls-preview-2023.html?searchResultPosition=9
-
-**The Wisdom and Prophecy of Jimmy Carter’s ‘Malaise’ Speech**\
-`The irony is that it is better attuned to our time than to its own.`\
-https://nytimes.com/2023/02/23/opinion/jimmy-carter-malaise-speech.html?searchResultPosition=10
+https://nytimes.com/2023/02/23/briefing/russia-ukraine-anniversary-war-asia.html?searchResultPosition=10
 
