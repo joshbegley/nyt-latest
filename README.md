@@ -22,7 +22,7 @@ https://nytimes.com/2023/02/22/world/americas/mexico-election-law.html?searchRes
 `This is the New Right’s strategic plan: a relentless push to strengthen the white supremacist power structure.`\
 https://nytimes.com/2023/02/22/opinion/america-right-wing-censors.html?searchResultPosition=6
 
-**Giving Jan. 6 Tapes to Carlson, McCarthy Keeps a Promise to the Hard Right**\
+**McCarthy Puts Jan. 6 Footage in the Hands of a Conspiracy Theorist**\
 `In granting exclusive access to Jan. 6 Capitol surveillance footage to a cable news host bent on rewriting the history of the attack, the speaker effectively outsourced a politically toxic re-litigation of the riot.`\
 https://nytimes.com/2023/02/22/us/politics/tucker-carlson-jan-6-mccarthy.html?searchResultPosition=7
 
