@@ -11,7 +11,7 @@ https://nytimes.com/2023/02/23/arts/television/how-much-watching-time-do-you-hav
 https://nytimes.com/interactive/2023/02/23/dining/where-to-eat-diner.html?searchResultPosition=3
 
 **M.L.S. Returns With Another New Team and a Whole New Way to Watch**\
-`St. Louis City S.C. will hit the field as the league’s 29th franchise, but to watch it, and every other team, fans will have to get to know Apple TV.`\
+`St. Louis City S.C. will hit the field as the league’s 29th franchise, but to watch it, and every other team, fans will have to get to know Apple TV+.`\
 https://nytimes.com/2023/02/23/sports/soccer/mls-preview-2023.html?searchResultPosition=4
 
 **The Wisdom and Prophecy of Jimmy Carter’s ‘Malaise’ Speech**\
