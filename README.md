@@ -4,7 +4,7 @@ https://nytimes.com/2023/02/23/us/politics/tony-earl-dead.html?searchResultPosit
 
 **Punk Is What You Make It**\
 `The style looms large on the streets of London, where it is expressed in myriad ways.`\
-https://nytimes.com/2023/02/23/style/london-fashion-week-street-style.html?searchResultPosition=2
+https://nytimes.com/2023/02/23/style/london-fashion-week-street-style-photos.html?searchResultPosition=2
 
 **Alex Murdaugh Admits to Lying to Investigators**\
 `The prominent South Carolina lawyer testified that he repeatedly lied to investigators about being at the location where his wife and son were murdered, and denied fatally shooting them.`\
