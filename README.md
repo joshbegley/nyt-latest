@@ -6,13 +6,13 @@ https://nytimes.com/2023/02/23/arts/hogwarts-legacy-sales-rowling.html?searchRes
 `A federal jury considering the death penalty heard testimony from the father of Sayfullo Saipov, who said he expected that he would never see his son again.`\
 https://nytimes.com/2023/02/23/nyregion/saipov-father-testifies-death-penalty.html?searchResultPosition=2
 
-**Lethal Threat or Tolerable Risk? Ukrainians Must Judge Constantly.**\
-`After a year of war, people in Ukraine have become adept at telling which threats are probably not deadly, leaving room for a little enjoyment, and even hope.`\
-https://nytimes.com/2023/02/23/world/europe/ukraine-war-anniversary.html?searchResultPosition=3
-
 **Let’s All Do the DeSantis Shimmy!**\
 `How to be a recovering globalist in a few easy lessons.`\
-https://nytimes.com/2023/02/23/opinion/desantis-ukraine-shimmy.html?searchResultPosition=4
+https://nytimes.com/2023/02/23/opinion/desantis-ukraine-shimmy.html?searchResultPosition=3
+
+**Lethal Threat or Tolerable Risk? Ukrainians Must Judge Constantly.**\
+`After a year of war, people in Ukraine have become adept at telling which threats are probably not deadly, leaving room for a little enjoyment, and even hope.`\
+https://nytimes.com/2023/02/23/world/europe/ukraine-war-anniversary.html?searchResultPosition=4
 
 **Putin and the Right’s Tough-Guy Problem**\
 `What if wokeness doesn’t make you weak and swaggering does?`\
