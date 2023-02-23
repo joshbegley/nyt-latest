@@ -1,6 +1,6 @@
 **What Nutritional Yeast Can Do for You**\
 `Nutritional yeast takes these dressings, toppings and seasoning blends up a notch.`\
-https://nytimes.com/2023/02/23/dining/what-nutritional-yeast-can-do-for-you.html?searchResultPosition=1
+https://nytimes.com/2023/02/23/dining/nutritional-yeast-recipes.html?searchResultPosition=1
 
 **5 Classical Music Albums You Can Listen to Right Now**\
 `A pairing of Clara and Robert Schumann’s piano concertos, Kurt Weill’s symphonies and Steve Reich’s string quartets are among the highlights.`\
