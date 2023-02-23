@@ -10,7 +10,7 @@ https://nytimes.com/2023/02/23/briefing/biden-warsaw-israel-raid.html?searchResu
 `For Kormotech and its 1,300 employees, Russia’s invasion disrupted everything. After nimble decision-making and good fortune, sales are up, providing Ukraine with much-needed tax revenue.`\
 https://nytimes.com/2023/02/23/business/economy/ukraine-company-kormotech.html?searchResultPosition=3
 
-**A National Treasure on the Rise, Then Hit With a Doping Allegation**\
+**A National Treasure on the Rise Is Hit With a Doping Allegation**\
 `A star Olympic runner from Australia was suspended over a positive drug test of a kind that critics have called alarmingly open to human error.`\
 https://nytimes.com/2023/02/22/world/australia/peter-bol-doping-allegations-australia.html?searchResultPosition=4
 
