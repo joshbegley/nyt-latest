@@ -1,4 +1,4 @@
-**Cosori Recalls Two Million Air Fryers After Reports of Fire and Burn Risk**\
+**Cosori Recalls 2 Million Air Fryers After Reports of Fire and Burn Risk**\
 `A faulty wire connection caused some air fryers to overheat and catch fire, causing at least 10 minor injuries.`\
 https://nytimes.com/2023/02/24/business/cosori-air-fryer-recall.html?searchResultPosition=1
 
