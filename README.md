@@ -14,13 +14,13 @@ https://nytimes.com/2023/02/24/arts/dance/bob-fosse-dancin-broadway.html?searchR
 `Jean-Baptiste Reddé has hoisted his giant, colorful signs in nearly every street protest for over a decade, embodying France’s enduring passion for demonstrations.`\
 https://nytimes.com/2023/02/24/world/europe/france-protests-jean-baptiste-redde.html?searchResultPosition=4
 
-**Delbert Anderson’s Mission: Putting ‘Native Sound Back Into Jazz’**\
-`The trumpeter’s trio takes inspiration from traditional Navajo songs. Its work has stirred up global interest, as well as conversations about the responsibilities of Indigenous artists.`\
-https://nytimes.com/2023/02/24/arts/music/delbert-anderson-trio-jazz.html?searchResultPosition=5
-
 **Inside New York City’s Nastiest (and Smallest) Newspaper War**\
 `Hurt feelings, broken agreements, nasty gossip. Has the news of Greenwich Village ever been more readable?`\
-https://nytimes.com/2023/02/24/nyregion/newspaper-war-nyc.html?searchResultPosition=6
+https://nytimes.com/2023/02/24/nyregion/newspaper-war-nyc.html?searchResultPosition=5
+
+**Delbert Anderson’s Mission: Putting ‘Native Sound Back Into Jazz’**\
+`The trumpeter’s trio takes inspiration from traditional Navajo songs. Its work has stirred up global interest, as well as conversations about the responsibilities of Indigenous artists.`\
+https://nytimes.com/2023/02/24/arts/music/delbert-anderson-trio-jazz.html?searchResultPosition=6
 
 **Digital Clutter Can Be Overwhelming. Here’s How to Clean Up.**\
 `Hint: Tackle your photos last.`\
