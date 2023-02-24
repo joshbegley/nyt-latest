@@ -1,6 +1,6 @@
-**Lawyers say Alex Murdaugh taking the witness stand is a risky but calculated move.**\
-`Lawyers said that as evidence and testimony mounted against Alex Murdaugh, he likely felt that taking the witness stand was a better option than saying nothing at all.`\
-https://nytimes.com/2023/02/24/us/lawyers-say-alex-murdaugh-taking-the-witness-stand-is-a-risky-but-calculated-move.html?searchResultPosition=1
+**Review: He Needs Your Help. And She’s Trapped Under a Mound.**\
+`In Dean Moss’s “Your marks and surface,” at Danspace, images of softness and struggle coexist.`\
+https://nytimes.com/2023/02/24/arts/dance/review-dean-moss-danspace.html?searchResultPosition=1
 
 **In Town Where Train Derailed, Lawyers Are Signing Up Clients in Droves**\
 `Lawyers have poured into East Palestine, Ohio, since the derailment that led to a burn-off of toxic chemicals, filing more than a dozen lawsuits so far on behalf of local residents.`\
