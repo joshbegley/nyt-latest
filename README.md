@@ -1,40 +1,40 @@
+**Our Photographers in Ukraine on the Images They Can’t Forget**\
+`In a year of war, New York Times photographers have reported from the front line, from cities and villages and in the footsteps of refugees. These pictures stayed with them.`\
+https://nytimes.com/2023/02/24/world/europe/ukraine-war-anniversary-photos.html?searchResultPosition=1
+
+**‘It’s Complicated’: How Biden and Zelensky Forged a Wartime Partnership**\
+`The relationship between the two leaders has become critical to the future of the international order.`\
+https://nytimes.com/2023/02/24/us/politics/biden-zelensky-ukraine-russia.html?searchResultPosition=2
+
+**In ‘The Coldest Case in Laramie,’ a Journalist Returns Home**\
+`For a new podcast, the reporter Kim Barker traveled to Laramie, Wyo., a town she lived in as a teen, to revisit a murder case from 1985.`\
+https://nytimes.com/2023/02/24/insider/in-the-coldest-case-in-laramie-a-journalist-returns-home.html?searchResultPosition=3
+
+**Fashioning a Future in the Face of War**\
+`A year after Russia began its invasion of Ukraine, four figures from the Kyiv fashion scene reflect on a year of personal and professional survival.`\
+https://nytimes.com/2023/02/24/style/russia-ukraine-war-fashion.html?searchResultPosition=4
+
+**Ahead of Crucial Election, Security Crises and Kidnappings Plague Nigeria**\
+`Nigerian voters say that insecurity is the most important issue in this week’s presidential election. One man who was kidnapped said, “You can only survive on your own in Nigeria.”`\
+https://nytimes.com/2023/02/24/world/africa/nigeria-election-kidnappings.html?searchResultPosition=5
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2023/02/24/crosswords/spelling-bee-forum.html?searchResultPosition=6
+
+**Children and a Year of War**\
+`On this anniversary of the war in Ukraine, what do you notice and wonder about the lives of young people there?`\
+https://nytimes.com/2023/02/24/learning/children-and-a-year-of-war.html?searchResultPosition=7
+
 **That Mystery Orb on a Japanese Beach? It Was Just a Buoy. (Sorry.)**\
 `Experts said the sphere that washed ashore, leading to speculation about espionage, was nothing special. “Maybe everybody is paranoid because of balloons,” one said.`\
-https://nytimes.com/2023/02/24/world/asia/japan-buoy-sphere.html?searchResultPosition=1
+https://nytimes.com/2023/02/24/world/asia/japan-buoy-sphere.html?searchResultPosition=8
 
 **5 New(ish) Australasian Books for Your Reading List**\
 `Great reads you might have missed.`\
-https://nytimes.com/2023/02/24/world/australia/books-australia-new-zealand.html?searchResultPosition=2
+https://nytimes.com/2023/02/24/world/australia/books-australia-new-zealand.html?searchResultPosition=9
 
 **Word of the Day: ingratiating**\
 `This word has appeared in 13 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/02/24/learning/word-of-the-day-ingratiating.html?searchResultPosition=3
-
-**How Will the War in Ukraine End? Maybe Like 1953 Korea.**\
-`A frozen conflict can be preferable to the alternatives.`\
-https://nytimes.com/2023/02/24/opinion/ukraine-russia-war-korea.html?searchResultPosition=4
-
-**Yellen Confronts Russian Officials at G20 Meeting**\
-`In a private session, Treasury Secretary Janet L. Yellen said the Russians were “complicit in Putin’s atrocities,” according to remarks shared by a U.S. official.`\
-https://nytimes.com/2023/02/24/world/europe/yellen-confronts-russian-officials-at-g20-meeting.html?searchResultPosition=5
-
-**Your Friday Briefing**\
-`The war in Ukraine, one year in.`\
-https://nytimes.com/2023/02/24/briefing/ukraine-war-anniversary-nigeria-elections.html?searchResultPosition=6
-
-**China Repeats Call for Cease-Fire in Ukraine and Peace Talks**\
-`A new policy paper  was not the blueprint or bold initiative that some in European capitals appeared to expect.`\
-https://nytimes.com/2023/02/24/world/europe/china-ukraine-war-policy-paper.html?searchResultPosition=7
-
-**Giant Winter Storm Sweeps the U.S.**\
-`Heavy snowfall caused power outages and treacherous travel conditions across several states.`\
-https://nytimes.com/video/us/100000008784783/winter-storm-weather.html?searchResultPosition=8
-
-**Stained Glass With an Unsettling Backstory**\
-`The windows at Old First Reformed Church in Brooklyn were donated by families whose ancestors had owned slaves. And inmates at Sing Sing have a disturbing tale of brutality by guards.`\
-https://nytimes.com/2023/02/24/nyregion/stained-glass-with-an-unsettling-backstory.html?searchResultPosition=9
-
-**Shattered Homes and Lurking Disease: Quake Hardships Pile Up**\
-`Hundreds of thousands are sheltering in tents, breathing air thick with pollutants unleashed from tombs of rubble, fearful that a new disaster could strike at any moment.`\
-https://nytimes.com/2023/02/24/world/europe/turkey-earthquake-hardships.html?searchResultPosition=10
+https://nytimes.com/2023/02/24/learning/word-of-the-day-ingratiating.html?searchResultPosition=10
 
