@@ -31,7 +31,7 @@ https://nytimes.com/2023/02/24/style/letting-go-of-her-ballet-dream.html?searchR
 https://nytimes.com/2023/02/24/world/europe/the-times-invites-readers-to-reflect-on-the-war-in-ukraine.html?searchResultPosition=8
 
 **Winter Storm Sweeps Over Southern California After Battering Oregon**\
-`A rare blizzard warning will be in effect for parts of California on Friday. “It’s not a weekend for the beach,” one Los Angeles County official said.`\
+`A rare blizzard warning was in effect for parts of California. “It’s not a weekend for the beach,” one Los Angeles County official said.`\
 https://nytimes.com/2023/02/24/us/winter-storm-california-weather.html?searchResultPosition=9
 
 **Fear, Anger, Love: See Ukrainians’ Texts From the First Hours of War**\
