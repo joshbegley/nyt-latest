@@ -2,7 +2,7 @@
 `On the anniversary of the invasion, Volodymyr Zelensky held a marathon news conference and vowed victory if Ukraine’s allies remained united “like a fist.”`\
 https://nytimes.com/2023/02/24/world/europe/ukraine-russia-war-anniversary.html?searchResultPosition=1
 
-**First At-Home Test for Flu and Covid Is OK’d by the F.D.A.**\
+**First At-Home Combination Test for Flu and Covid Is OK’d by the F.D.A.**\
 `But the company that created the 30-minute, over-the-counter test has filed for bankruptcy, so the product’s eventual availability to consumers remains unclear.`\
 https://nytimes.com/2023/02/24/health/covid-flu-test-fda.html?searchResultPosition=2
 
