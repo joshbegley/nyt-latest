@@ -30,7 +30,7 @@ https://nytimes.com/2023/02/24/opinion/letters/language-college-campuses.html?se
 `This week’s suggestions include a reprint of Nora Ephron’s first novel, Tolkien’s final writings on the world of “The Lord of the Rings” and more.`\
 https://nytimes.com/interactive/2023/02/24/books/review/new-paperbacks.html?searchResultPosition=8
 
-**‘The Consultant’ Review: Silicon Valley Goes to the Devil**\
+**‘The Consultant’ Review: When Your Start-Up Goes to Hell**\
 `Christoph Waltz plays a very, very bad boss in a dark tech-industry satire from Amazon Prime Video.`\
 https://nytimes.com/2023/02/24/arts/television/the-consultant-review.html?searchResultPosition=9
 
