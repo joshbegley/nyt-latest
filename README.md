@@ -1,40 +1,40 @@
+**Thomas H. Lee, a Pioneer in Leveraged Buyouts, Is Dead at 78**\
+`Born into wealth, he turned it into even greater wealth in founding a Boston firm and was remembered as a “kinder, gentler” corporate raider.`\
+https://nytimes.com/2023/02/24/business/dealbook/thomas-h-lee-dead.html?searchResultPosition=1
+
 **This Year, the Berlin Film Festival Sparkles**\
 `After two years of pandemic disruptions, the festival returns in full, with Kristen Stewart as the jury president and gems like Celine Song’s “Past Lives.”`\
-https://nytimes.com/2023/02/24/movies/berlin-film-festival-kristen-stewart.html?searchResultPosition=1
+https://nytimes.com/2023/02/24/movies/berlin-film-festival-kristen-stewart.html?searchResultPosition=2
 
 **Your Friday Evening Briefing**\
 `Here’s what you need to know at the end of the day.`\
-https://nytimes.com/2023/02/24/briefing/ukraine-russia-war-anniversary-winter-storm.html?searchResultPosition=2
+https://nytimes.com/2023/02/24/briefing/ukraine-russia-war-anniversary-winter-storm.html?searchResultPosition=3
 
 **12 States Sue F.D.A., Seeking Removal of Special Restrictions on Abortion Pill**\
 `The suit argues that rules applying to mifepristone unnecessarily limit patients’ access to medication abortion.`\
-https://nytimes.com/2023/02/24/health/abortion-pills-fda-lawsuit.html?searchResultPosition=3
+https://nytimes.com/2023/02/24/health/abortion-pills-fda-lawsuit.html?searchResultPosition=4
 
 **5 New(ish) Australasian Books for Your Reading List**\
 `Great reads you might have missed.`\
-https://nytimes.com/2023/02/24/world/australia/books-australia-new-zealand.html?searchResultPosition=4
+https://nytimes.com/2023/02/24/world/australia/books-australia-new-zealand.html?searchResultPosition=5
 
 **Twin Brothers Face Prosecution as Manhattan Cracks Down on Wage Theft**\
 `Prosecutors say Lulzim and Gzim Shabaj stiffed day laborers on construction sites for thousands of dollars. When one worker complained, he was punched bloody, they say.`\
-https://nytimes.com/2023/02/24/nyregion/shabaj-brothers-new-york-wage-theft.html?searchResultPosition=5
+https://nytimes.com/2023/02/24/nyregion/shabaj-brothers-new-york-wage-theft.html?searchResultPosition=6
 
 **What the HBO Show ‘South Side’ Teaches Us**\
 `Black people are entirely comfortable with “details.”`\
-https://nytimes.com/2023/02/24/opinion/south-side-race.html?searchResultPosition=6
+https://nytimes.com/2023/02/24/opinion/south-side-race.html?searchResultPosition=7
 
 **Former Soldier Is Charged With Killing Pregnant Army Private 2 Decades Ago**\
 `Private Amanda Gonzales, 19, was on her first assignment in the Army when she was killed on a military base in Germany. A former soldier, arrested on Thursday, has been charged with her murder.`\
-https://nytimes.com/2023/02/24/us/amanda-gonzales-army-murder.html?searchResultPosition=7
+https://nytimes.com/2023/02/24/us/amanda-gonzales-army-murder.html?searchResultPosition=8
 
 **An Office in Which Screaming Is Encouraged**\
 `At the Berlin headquarters of the art magazine Blau International, editor in chief Cornelius Tittel doubles as an instructor of Kundalini yoga classes.`\
-https://nytimes.com/2023/02/24/t-magazine/blau-international-berlin-cornelius-tittel-kundalini-yoga.html?searchResultPosition=8
+https://nytimes.com/2023/02/24/t-magazine/blau-international-berlin-cornelius-tittel-kundalini-yoga.html?searchResultPosition=9
 
 **Russia, Ukraine and the West Vow to Fight On, in a War With No End in Sight**\
 `Moscow and Kyiv face daunting challenges in moving forward, with no clear sense of what an attainable victory might look like.`\
-https://nytimes.com/2023/02/24/world/europe/russia-ukraine-war-next-steps.html?searchResultPosition=9
-
-**Canada Saw a Deadly Derailment. A Decade Later, Little Has Changed.**\
-`When a runaway train loaded with oil jumped the tracks in Lac-Mégantic, Quebec, 47 people died in Canada’s worst rail disaster in nearly 150 years.`\
-https://nytimes.com/2023/02/24/world/americas/canada-train-derailment.html?searchResultPosition=10
+https://nytimes.com/2023/02/24/world/europe/russia-ukraine-war-next-steps.html?searchResultPosition=10
 
