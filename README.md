@@ -15,7 +15,7 @@ https://nytimes.com/2023/02/24/podcasts/the-daily/ukraine-russia-war-anniversary
 https://nytimes.com/2023/02/24/style/letting-go-of-her-ballet-dream.html?searchResultPosition=4
 
 **Winter Storm Sweeps Over Southern California After Battering Oregon**\
-`A rare blizzard warning will go into effect for parts of California on Friday. ‘It’s not a weekend for the beach,’ one Los Angeles County official said.`\
+`A rare blizzard warning will go into effect for parts of California on Friday. “It’s not a weekend for the beach,” one Los Angeles County official said.`\
 https://nytimes.com/2023/02/24/us/winter-storm-california-weather.html?searchResultPosition=5
 
 **Fear, Anger, Love: See Ukrainians’ Texts From the First Hours of War**\
