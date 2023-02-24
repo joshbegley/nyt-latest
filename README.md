@@ -1,6 +1,6 @@
 **Tracking the California Blizzard**\
 `A rare snowstorm could bring several feet of snow to mountains near Los Angeles.`\
-https://nytimes.com/2023/02/24/us/california-blizzard-weather-map.html?searchResultPosition=1
+https://nytimes.com/2023/02/24/us/california-snow-tracker-map.html?searchResultPosition=1
 
 **Tell Us What’s Wild Around You**\
 `We’d love to hear about the animals in your city.`\
