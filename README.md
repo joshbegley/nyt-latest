@@ -10,7 +10,7 @@ https://nytimes.com/2023/02/24/world/europe/yellen-confronts-russian-officials-a
 `The war in Ukraine, one year in.`\
 https://nytimes.com/2023/02/24/briefing/ukraine-war-anniversary-nigeria-elections.html?searchResultPosition=3
 
-**China Repeats Call for Ceasefire in Ukraine and Peace Talks**\
+**China Repeats Call for Cease-Fire in Ukraine and Peace Talks**\
 `A new policy paper  was not the blueprint or bold initiative that some in European capitals appeared to expect.`\
 https://nytimes.com/2023/02/24/world/europe/china-ukraine-war-policy-paper.html?searchResultPosition=4
 
