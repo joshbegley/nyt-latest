@@ -23,7 +23,7 @@ https://nytimes.com/2023/02/24/business/dealbook/thomas-lee-private-equity-dead.
 https://nytimes.com/2023/02/24/us/california-snow-tracker-map.html?searchResultPosition=6
 
 **Tell Us What’s Wild Around You**\
-`We’d love to hear about the animals in your city.`\
+`We’d love to hear about the wildlife in your life, especially if you live in a city.`\
 https://nytimes.com/2023/02/24/climate/city-wildlife-feedback.html?searchResultPosition=7
 
 **Their Retirement Plan Did Not Include Being Forced to Sell Their Condo**\
