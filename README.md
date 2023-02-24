@@ -1,40 +1,40 @@
-**U.S. Unseals Terrorism Charges Against Men Identified as MS-13 Leaders**\
-`The indictment detailed the gang’s operations in El Salvador, Mexico and the United States. Three of the men will be transferred to New York to face federal charges.`\
-https://nytimes.com/2023/02/23/nyregion/us-terrorism-charges-ms-13.html?searchResultPosition=1
+**Giant Winter Storm Sweeps the U.S.**\
+`Heavy snowfall caused power outages and treacherous travel conditions across several states.`\
+https://nytimes.com/video/us/100000008784783/winter-storm-weather.html?searchResultPosition=1
 
-**Variety: Acrostic**\
-`Emily Cox and Henry Rathvon make order from chaos, as usual.`\
-https://nytimes.com/2023/02/23/crosswords/variety-acrostic.html?searchResultPosition=2
+**Stained Glass With an Unsettling Backstory**\
+`The windows at Old First Reformed Church in Brooklyn were donated by families whose ancestors had owned slaves. And inmates at Sing Sing have a disturbing tale of brutality by guards.`\
+https://nytimes.com/2023/02/24/nyregion/stained-glass-with-an-unsettling-backstory.html?searchResultPosition=2
 
-**Just for Kicks**\
-`Margaret Seikel and Sophia Maymudes team up for a Friday themeless that sparkles.`\
-https://nytimes.com/2023/02/23/crosswords/daily-puzzle-2023-02-24.html?searchResultPosition=3
+**Shattered Homes and Lurking Disease: Quake Hardships Pile Up**\
+`Hundreds of thousands are sheltering in tents, breathing air thick with pollutants unleashed from tombs of rubble, fearful that a new disaster could strike at any moment.`\
+https://nytimes.com/2023/02/24/world/europe/turkey-earthquake-hardships.html?searchResultPosition=3
 
-**‘We Have a Ghost’ Review: Me and My Boo**\
-`David Harbour stars as an apparition haunting a family’s home in this supernatural Netflix comedy.`\
-https://nytimes.com/2023/02/23/movies/we-have-a-ghost-review.html?searchResultPosition=4
+**Europe Has Weathered an Energy Crisis, for Now**\
+`Worries about gas and oil supplies have greatly eased. But reverberations from the war in Ukraine continue to cloud longer-term forecasts.`\
+https://nytimes.com/2023/02/24/business/europe-energy-crisis.html?searchResultPosition=4
 
-**Thomas Lee, Private Equity Pioneer, Is Dead at 78**\
-`The financier, who called himself Tomcat, was an early buyout enthusiast.`\
-https://nytimes.com/2023/02/23/business/thomas-lee-billionaire-dead.html?searchResultPosition=5
+**MacDowell Names Chiwoniso Kaitano Its Next Executive Director**\
+`Kaitano, the first Black person in the role at the artists’ residency, will focus on identifying underrepresented artistic voices and intensifying outreach.`\
+https://nytimes.com/2023/02/24/arts/chiwoniso-kaitano-macdowell-director.html?searchResultPosition=5
 
-**Suspect in Colorado Springs Shooting Can Be Tried for Hate Crimes, Judge Says**\
-`An arraignment was set for May 30, when a trial will likely be scheduled. The attack at an L.G.B.T.Q. nightclub killed five people last year and injured 17.`\
-https://nytimes.com/2023/02/23/us/colorado-springs-shooting-hate-crimes.html?searchResultPosition=6
+**Corrections: Feb. 24, 2023**\
+`Corrections that appeared in print on Friday, Feb. 24, 2023.`\
+https://nytimes.com/2023/02/24/pageoneplus/corrections-feb-24-2023.html?searchResultPosition=6
 
-**How the U.S. Adopted a New Intelligence Playbook to Expose Russia’s War Plans**\
-`Bolder disclosures are part of a larger effort to stymie the Kremlin’s offensive in Ukraine and align support for Kyiv’s war effort in allied countries.`\
-https://nytimes.com/2023/02/23/us/politics/intelligence-russia-us-ukraine-china.html?searchResultPosition=7
+**Quotation of the Day: Science Fiction Magazines Battle Flood of Chatbot-Generated Stories, and They’re Not Very Good**\
+`Quotation of the Day for Friday, Feb. 24, 2023.`\
+https://nytimes.com/2023/02/24/pageoneplus/quotation-of-the-day-science-fiction-magazines-battle-flood-of-chatbot-generated-stories-and-theyre-not-very-good.html?searchResultPosition=7
 
-**Long Under Scrutiny, a Gymnastics Coach Is Placed Under Restrictions**\
-`The United States Center for SafeSport is investigating allegations that Qi Han abused one of his athletes. He has faced similar charges in the past.`\
-https://nytimes.com/2023/02/23/sports/olympics/gymnastics-abuse-qi-han.html?searchResultPosition=8
+**Among the Ruins of a Hurricane, Love Thrives**\
+`When they fell in love on a Florida island, Beth Sharer and Jay Goad couldn’t imagine that months later it would be devastated by Hurricane Ian, throwing their wedding plans into the winds.`\
+https://nytimes.com/2023/02/24/style/beth-sharer-jay-goad-wedding.html?searchResultPosition=8
 
-**Hogwarts Legacy Sells 12 Million Copies During Dispute Over Rowling**\
-`The video game generated $850 million in sales in two weeks. Online discussion before its release was largely about the “Harry Potter” creator J.K. Rowling’s comments on transgender issues.`\
-https://nytimes.com/2023/02/23/arts/hogwarts-legacy-sales-rowling.html?searchResultPosition=9
+**He Even Recommended a Dentist**\
+`When Cat Lukaszewski and Steven Whalen met in Los Angeles, she was new to the city and he was lost in his hometown. Then they found each other.`\
+https://nytimes.com/2023/02/24/style/he-even-recommended-a-dentist.html?searchResultPosition=9
 
-**Bike Path Attacker’s Father Testifies to Save Son: ‘He Ruined Their Lives’**\
-`A federal jury considering the death penalty heard testimony from the father of Sayfullo Saipov, who said he expected that he would never see his son again.`\
-https://nytimes.com/2023/02/23/nyregion/saipov-father-testifies-death-penalty.html?searchResultPosition=10
+**Home is Where Their Hearts (and Careers) Are**\
+`Alison Zhuk and Jay Parker first met during a real estate transaction. Years later, the housing market reunited them.`\
+https://nytimes.com/2023/02/24/style/alison-zhuk-jay-parker-wedding.html?searchResultPosition=10
 
