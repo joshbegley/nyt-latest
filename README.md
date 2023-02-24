@@ -4,7 +4,7 @@ https://nytimes.com/2023/02/24/world/europe/russia-ukraine-war-next-steps.html?s
 
 **Canada Saw a Deadly Derailment. A Decade Later, Little Has Changed.**\
 `When a runaway train loaded with oil jumped the tracks in Lac-Mégantic, Quebec, 47 people died in Canada’s worst rail disaster in nearly 150 years.`\
-https://nytimes.com/2023/02/24/world/canada-train-derailment.html?searchResultPosition=2
+https://nytimes.com/2023/02/24/world/americas/canada-train-derailment.html?searchResultPosition=2
 
 **Review: He Needs Your Help. And She’s Trapped Under a Mound.**\
 `In Dean Moss’s “Your marks and surface,” at Danspace, images of softness and struggle coexist.`\
