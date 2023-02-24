@@ -1,5 +1,5 @@
 **Doctor Describes and Denounces C.I.A. Practice of ‘Rectal Feeding’ of Prisoners**\
-`An expert gave a graphic public depiction of detainee torture after the Sept. 11, 2001, terror attacks in a pretrial hearing at Guantánamo Bay.`\
+`An expert gave a graphic public depiction of torture after the Sept. 11, 2001, terror attacks in a pretrial hearing at Guantánamo Bay.`\
 https://nytimes.com/2023/02/24/us/politics/cia-torture-guantanamo-nashiri-doctor.html?searchResultPosition=1
 
 **Raymond Trollat, Who Took a Hilly Wine Region to New Heights, Dies at 91**\
