@@ -1,6 +1,6 @@
 **A NATO Minnow Reels From Cyberattacks Linked to Iran**\
 `Albania has been the target of repeated digital assaults believed to be linked to its sheltering of an Iranian dissident group on its soil.`\
-https://nytimes.com/2023/02/25/world/europe/a-nato-minnow-reels-from-cyberattacks-linked-to-iran.html?searchResultPosition=1
+https://nytimes.com/2023/02/25/world/europe/albania-iran-nato-cyberattacks.html?searchResultPosition=1
 
 **Berkshire Hathaway Reports Major Investment Losses in 2022**\
 `After a $22.8 billion loss, Warren Buffett called the figure “100 percent misleading” and urged shareholders to focus on his empire’s overall health.`\
