@@ -11,7 +11,7 @@ https://nytimes.com/2023/02/25/world/asia/shinta-ratri-dead.html?searchResultPos
 https://nytimes.com/video/world/africa/100000008786757/nigeria-election-gunshots.html?searchResultPosition=3
 
 **China to Welcome Belarusian Leader, Raising Concerns Over Ukraine**\
-`A state visit next week by Aleksandr G. Lukashenko of Belarus seems to confirm U.S. fears that China is prepared to send lethal aid to Russia.`\
+`A state visit next week by Aleksandr G. Lukashenko of Belarus comes as the U.S. has accused China of preparing to send lethal aid to Russia.`\
 https://nytimes.com/2023/02/25/world/europe/china-belarus-leader-russia-ukraine.html?searchResultPosition=4
 
 **Five Killed in Medical Plane Crash in Nevada, Officials Say**\
