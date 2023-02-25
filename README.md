@@ -3,7 +3,7 @@
 https://nytimes.com/2023/02/24/us/california-rare-snow-hollywood.html?searchResultPosition=1
 
 **Protests and Defiance Mark a Year of Russia’s War on Ukraine**\
-`On the anniversary of the invasion, Volodymyr Zelensky held a marathon news conference and vowed victory if Ukraine’s allies remained united “like a fist.”`\
+`On the anniversary of the invasion, Volodymyr Zelensky held a marathon news conference and vowed victory if Ukraine’s allies remained united like a fist.`\
 https://nytimes.com/2023/02/24/world/europe/ukraine-russia-war-anniversary.html?searchResultPosition=2
 
 **First At-Home Combination Test for Flu and Covid Is OK’d by the F.D.A.**\
