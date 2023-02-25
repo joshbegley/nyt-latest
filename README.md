@@ -32,7 +32,7 @@ https://nytimes.com/2023/02/25/arts/television/liaison-vincent-cassel-and-eva-gr
 
 **Is It Fraud, or Is It ‘Puffery’?**\
 `Courts have given companies some leeway to make (perhaps overly optimistic) sweeping statements, a practice lawyers call “puffing.”`\
-https://nytimes.com/2023/02/25/business/dealbook/is-it-fraud-or-is-it-puffery.html?searchResultPosition=9
+https://nytimes.com/2023/02/25/business/dealbook/company-puffing-fraud.html?searchResultPosition=9
 
 **Self-Study, Becoming American and the Art of Translation**\
 `An editor recommends old and new books`\
