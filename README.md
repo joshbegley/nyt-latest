@@ -34,7 +34,7 @@ https://nytimes.com/video/us/100000008786474/alex-murdaugh-trial-testimony.html?
 `The Biden administration announced new measures targeting Moscow and supporters of President Vladimir V. Putin’s war.`\
 https://nytimes.com/2023/02/24/us/politics/biden-ukraine-russia.html?searchResultPosition=9
 
-**Robert Hébras, Last Survivor of 1944 Massacre in France, Dies at 97**\
+**Robert Hébras, Last Survivor of a 1944 Massacre in France, Dies at 97**\
 `Dead bodies shielded him as the Nazis killed 643 people in Oradour-sur-Glane. He spent his life keeping the memory of the slaughter alive.`\
 https://nytimes.com/2023/02/24/world/europe/robert-hebras-dead.html?searchResultPosition=10
 
