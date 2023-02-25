@@ -4,7 +4,7 @@ https://nytimes.com/video/world/africa/100000008786757/nigeria-election-gunshots
 
 **China to Welcome Belarusian Leader, Raising Concerns Over Ukraine**\
 `A state visit next week by Aleksandr G. Lukashenko of Belarus seems to confirm U.S. fears that China is prepared to send lethal aid to Russia.`\
-https://nytimes.com/2023/02/25/world/europe/china-to-welcome-belarusian-leader-raising-concerns-over-ukraine.html?searchResultPosition=2
+https://nytimes.com/2023/02/25/world/europe/china-belarus-leader-russia-ukraine.html?searchResultPosition=2
 
 **Five Killed in Medical Plane Crash in Nevada, Officials Say**\
 `The wreckage of a Care Flight plane was found about 45 miles southeast of Reno on Friday night. It was not immediately clear what might have caused the crash.`\
