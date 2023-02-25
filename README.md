@@ -19,7 +19,7 @@ https://nytimes.com/2023/02/25/world/europe/china-belarus-leader-russia-ukraine.
 https://nytimes.com/2023/02/25/us/nevada-care-flight-plane-crash.html?searchResultPosition=5
 
 **In the Los Angeles Area, Snow Up High, and Flooding Down Below**\
-`Residents braced for more fallout on Saturday after heavy rains and wind caused damage at lower elevations overnight.`\
+`Residents encountered more fallout on Saturday after heavy rains and wind caused damage at lower elevations overnight.`\
 https://nytimes.com/2023/02/25/us/california-weather-storm-snow-blizzard.html?searchResultPosition=6
 
 **The Founders Were More Creative Than You Think**\
