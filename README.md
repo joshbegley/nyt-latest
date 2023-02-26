@@ -1,40 +1,40 @@
+**Why Fox News Lied to the Viewers It ‘Respects’**\
+`It’s about “representation.”`\
+https://nytimes.com/2023/02/26/opinion/fox-news-lies-dominion.html?searchResultPosition=1
+
+**The Sunday Read: ‘Elon Musk’s Appetite for Destruction’**\
+`A wave of lawsuits argue that Tesla’s self-driving software is dangerously overhyped. What can its blind spots teach us about the company’s erratic C.E.O.?`\
+https://nytimes.com/2023/02/26/podcasts/the-daily/elon-musk-tesla-self-driving.html?searchResultPosition=2
+
+**How the W.W.E. Explains What’s Happened to U.S. Politics**\
+`Kayfabe — the knowledge that pro wrestling is fake — has a long and rich history in American entertainment. It also explains something deep about G.O.P. politics now.`\
+https://nytimes.com/2023/02/26/opinion/vince-mcmahon-wwe-trump-kayfabe.html?searchResultPosition=3
+
+**Think of Everything You Hate About the Internet. Now Add A.I.**\
+`Somehow, society is going to have to figure out what it’s comfortable having A.I. doing, and what A.I. should not be permitted to try.`\
+https://nytimes.com/2023/02/26/opinion/microsoft-bing-sydney-artificial-intelligence.html?searchResultPosition=4
+
+**Even Democrats Like Me Are Fed Up With San Francisco**\
+`San Francisco’s problems are largely attributable to a small coterie that knows how to bend government to its will. `\
+https://nytimes.com/2023/02/26/opinion/san-francisco-democrats-board-of-supervisors.html?searchResultPosition=5
+
+**Russian Artillery Strikes Reported in Ukraine’s East and South**\
+`Three civilians were killed in the eastern Donetsk region and two others in Kherson, Ukrainian officials said.`\
+https://nytimes.com/2023/02/26/world/europe/26ukraine-battlefield-russia-latest.html?searchResultPosition=6
+
 **In the Aftermath of a Would-Be Dynasty, the Cubs Begin to Build**\
 `After their World Series curse was lifted, the Cubs faded away and jettisoned their stars. The brutal process of starting over took a turn this off-season thanks to $310 million in free agents.`\
-https://nytimes.com/2023/02/26/sports/baseball/dansby-swanson-chicago-cubs.html?searchResultPosition=1
+https://nytimes.com/2023/02/26/sports/baseball/dansby-swanson-chicago-cubs.html?searchResultPosition=7
 
 **Why Do A.I. Chatbots Tell Lies and Act Weird? Look in the Mirror.**\
 `One of the pioneers of artificial intelligence argues that chatbots are often prodded into producing strange results by the people who are using them.`\
-https://nytimes.com/2023/02/26/technology/why-do-ai-chatbots-tell-lies-and-act-weird-look-in-the-mirror.html?searchResultPosition=2
+https://nytimes.com/2023/02/26/technology/why-do-ai-chatbots-tell-lies-and-act-weird-look-in-the-mirror.html?searchResultPosition=8
 
 **A Sister’s Murder and the Language of Violence**\
 `In “Liliana’s Invincible Summer,” Cristina Rivera Garza interrogates her sister’s death to reshape the conversation about femicide.`\
-https://nytimes.com/2023/02/26/books/review/lilianas-invincible-summer-cristina-rivera-garza.html?searchResultPosition=3
+https://nytimes.com/2023/02/26/books/review/lilianas-invincible-summer-cristina-rivera-garza.html?searchResultPosition=9
 
 **In Ukraine War, Talking About Peace Is a Fight of Its Own**\
 `Russia and the West have argued for months about which side is more willing to negotiate, with the world as an audience.`\
-https://nytimes.com/2023/02/26/us/politics/russia-ukraine-peace.html?searchResultPosition=4
-
-**When It Comes to Money, Your Brain Can Be Your Own Worst Enemy**\
-`Our cognitive biases can get in the way of saving for the future, especially for retirement. Here’s how to recognize and overcome them.`\
-https://nytimes.com/2023/02/26/business/personal-finance-cognitive-bias-retirement.html?searchResultPosition=5
-
-**Why Aren’t Doctors Screening Older Americans for Anxiety?**\
-`Anxiety disorders are common among seniors, but an influential panel seems likely to recommend against routine screening. Some experts disagree.`\
-https://nytimes.com/2023/02/26/health/seniors-anxiety.html?searchResultPosition=6
-
-**Frozen Poop Chisels and Amputated Toes: A Life of Arctic Adventure**\
-`“Wanderlust,” Reid Mitenbuler’s biography of the early-20th-century Danish explorer Peter Freuchen, examines a man drawn to some of the most isolated places on Earth.`\
-https://nytimes.com/2023/02/26/books/review/wanderlust-reid-mitenbuler.html?searchResultPosition=7
-
-**For Thomas Mann, the World’s Chaos Is Inside the House**\
-`A newly translated story by the German master explores a father’s feelings for his children in a time of fierce social change.`\
-https://nytimes.com/2023/02/26/books/review/thomas-mann-new-selected-stories.html?searchResultPosition=8
-
-**After City Bans Sleeping at Homeless Youth Centers, a Center Resists**\
-`The number of runaway and homeless young people using drop-in programs has surged. Now, the city says they must stay awake, even overnight.`\
-https://nytimes.com/2023/02/26/nyregion/homeless-drop-in-center-youth.html?searchResultPosition=9
-
-**The Marlins Go All-In on Baseball’s New Rules**\
-`Putting the ball in play, stealing bases and having pitchers work quickly? Sounds good to Jazz Chisholm Jr. and his new teammates: Johnny Cueto and Luis Arraez.`\
-https://nytimes.com/2023/02/26/sports/baseball/miami-marlins-luis-arraez.html?searchResultPosition=10
+https://nytimes.com/2023/02/26/us/politics/russia-ukraine-peace.html?searchResultPosition=10
 
