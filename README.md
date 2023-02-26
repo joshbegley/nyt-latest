@@ -23,7 +23,7 @@ https://nytimes.com/2023/02/26/opinion/microsoft-bing-sydney-artificial-intellig
 https://nytimes.com/2023/02/26/opinion/san-francisco-democrats-board-of-supervisors.html?searchResultPosition=6
 
 **Deadly Russian Artillery Strikes Reported in Ukraine’s East and South**\
-`Three civilians were killed in the eastern Donetsk region and two others in Kherson, Ukrainian officials said.`\
+`Officials said at least five civilians were killed in the attacks, as President Vladimir V. Putin repeated his claim that the war is part of a U.S.-led effort to destroy Russia.`\
 https://nytimes.com/2023/02/26/world/europe/26ukraine-battlefield-russia-latest.html?searchResultPosition=7
 
 **In the Aftermath of a Would-Be Dynasty, the Cubs Begin to Build**\
