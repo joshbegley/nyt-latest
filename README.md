@@ -30,8 +30,8 @@ https://nytimes.com/2023/02/26/us/oklahoma-severe-weather-winds.html?searchResul
 `Readers discuss a guest essay calling on people to have more sex. Also: A G.O.P. message; the World Bank; Latinos in Hollywood; rewriting Roald Dahl.`\
 https://nytimes.com/2023/02/26/opinion/letters/sex-loneliness.html?searchResultPosition=8
 
-**West Bank Attack Kills 2 Israelis as Middle East Officials Meet in Jordan**\
-`The fatal shooting occurred while American, Israeli, Palestinian and other Arab officials attended a summit to discuss ways of lowering tensions.`\
+**West Bank Erupts in Violence as Officials Pledge to Work for Calm**\
+`A Palestinian gunman killed two Israelis as American, Israeli and Arab officials met to discuss ways to lower tensions. Then Jewish settlers went on a rampage.`\
 https://nytimes.com/2023/02/26/world/middleeast/west-bank-israel-attack.html?searchResultPosition=9
 
 **Lab Leak Most Likely Caused Pandemic, Energy Dept. Says**\
