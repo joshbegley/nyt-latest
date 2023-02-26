@@ -1,5 +1,5 @@
 **Across the Globe, the Russian Diaspora Finds Ways to Protest Putin’s War**\
-`From Berlin to Chicago, crowds gathered  to express solidarity with Ukraine and to underscore that not all Russians support Vladimir Putin’s war.`\
+`From Berlin to Chicago, crowds gathered to express solidarity with Ukraine and to underscore that not all Russians support Vladimir Putin’s war.`\
 https://nytimes.com/2023/02/26/world/europe/russia-diaspora-protests.html?searchResultPosition=1
 
 **What Layoffs? Many Employers Are Eager to Hang On to Workers.**\
