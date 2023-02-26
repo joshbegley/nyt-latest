@@ -6,13 +6,13 @@ https://nytimes.com/2023/02/26/us/dilbert-newspapers-racism.html?searchResultPos
 `Prime Minister Rishi Sunak appeared to be closing in on an agreement with E.U. negotiators. The backing of some in his own party looked less certain.`\
 https://nytimes.com/2023/02/26/world/europe/uk-northern-ireland-protocol-rishi-sunak.html?searchResultPosition=2
 
-**The Remains of a Son Missing for Nearly 50 Years Are Identified**\
-`The parents of Kyle Clinkscales, who was last seen in Georgia in 1976, were tireless in their search for their son. They became crusaders on behalf of missing persons.`\
-https://nytimes.com/2023/02/26/us/auburn-missing-student-kyle-clinkscales.html?searchResultPosition=3
-
 **The Wages of Idolatry**\
 `Worthy goals like freedom and autonomy can harm others if we hold them above all else.`\
-https://nytimes.com/2023/02/26/opinion/the-wages-of-idolatry.html?searchResultPosition=4
+https://nytimes.com/2023/02/26/opinion/the-wages-of-idolatry.html?searchResultPosition=3
+
+**The Remains of a Son Missing for Nearly 50 Years Are Identified**\
+`The parents of Kyle Clinkscales, who was last seen in Georgia in 1976, were tireless in their search for their son. They became crusaders on behalf of missing persons.`\
+https://nytimes.com/2023/02/26/us/auburn-missing-student-kyle-clinkscales.html?searchResultPosition=4
 
 **Child Labor Today**\
 `A Times exposé has revealed that young teenagers work long shifts, sometimes for nationally known brands. What can be done?`\
