@@ -32,7 +32,7 @@ https://nytimes.com/2023/02/26/opinion/san-francisco-democrats-board-of-supervis
 
 **Deadly Russian Artillery Strikes Reported in Ukraine’s East and South**\
 `Officials said at least five civilians were killed in the attacks, as President Vladimir V. Putin repeated his claim that the war is part of a U.S.-led effort to destroy Russia.`\
-https://nytimes.com/2023/02/26/world/europe/26ukraine-battlefield-russia-latest.html?searchResultPosition=9
+https://nytimes.com/2023/02/26/world/europe/ukraine-russia-strikes.html?searchResultPosition=9
 
 **In the Aftermath of a Would-Be Dynasty, the Cubs Begin to Build**\
 `After their World Series curse was lifted, the Cubs faded away and jettisoned their stars. The brutal process of starting over took a turn this off-season thanks to $310 million in free agents.`\
