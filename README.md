@@ -34,7 +34,7 @@ https://nytimes.com/2023/02/26/opinion/san-francisco-democrats-board-of-supervis
 `Officials said at least five civilians were killed in the attacks, as President Vladimir V. Putin repeated his claim that the war is part of a U.S.-led effort to destroy Russia.`\
 https://nytimes.com/2023/02/26/world/europe/ukraine-russia-strikes.html?searchResultPosition=9
 
-**In the Aftermath of a Would-Be Dynasty, the Cubs Begin to Build**\
-`After their World Series curse was lifted, the Cubs faded away and jettisoned their stars. The brutal process of starting over took a turn this off-season thanks to $310 million in free agents.`\
-https://nytimes.com/2023/02/26/sports/baseball/dansby-swanson-chicago-cubs.html?searchResultPosition=10
+**Why Do A.I. Chatbots Tell Lies and Act Weird? Look in the Mirror.**\
+`One of the pioneers of artificial intelligence argues that chatbots are often prodded into producing strange results by the people who are using them.`\
+https://nytimes.com/2023/02/26/technology/ai-chatbot-information-truth.html?searchResultPosition=10
 
