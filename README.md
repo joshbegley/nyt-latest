@@ -18,7 +18,7 @@ https://nytimes.com/2023/02/26/opinion/microsoft-bing-sydney-artificial-intellig
 `San Francisco’s problems are largely attributable to a small coterie that knows how to bend government to its will. `\
 https://nytimes.com/2023/02/26/opinion/san-francisco-democrats-board-of-supervisors.html?searchResultPosition=5
 
-**Russian Artillery Strikes Reported in Ukraine’s East and South**\
+**Deadly Russian Artillery Strikes Reported in Ukraine’s East and South**\
 `Three civilians were killed in the eastern Donetsk region and two others in Kherson, Ukrainian officials said.`\
 https://nytimes.com/2023/02/26/world/europe/26ukraine-battlefield-russia-latest.html?searchResultPosition=6
 
