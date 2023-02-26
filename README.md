@@ -30,7 +30,7 @@ https://nytimes.com/2023/02/26/opinion/fox-news-lies-dominion.html?searchResultP
 `A wave of lawsuits argue that Tesla’s self-driving software is dangerously overhyped. What can its blind spots teach us about the company’s erratic C.E.O.?`\
 https://nytimes.com/2023/02/26/podcasts/the-daily/elon-musk-tesla-self-driving.html?searchResultPosition=8
 
-**How the W.W.E. Explains What’s Happened to U.S. Politics**\
+**The Best Way to Explain the G.O.P. Is Found in the W.W.E.**\
 `Kayfabe — the knowledge that pro wrestling is fake — has a long and rich history in American entertainment. It also explains something deep about G.O.P. politics now.`\
 https://nytimes.com/2023/02/26/opinion/vince-mcmahon-wwe-trump-kayfabe.html?searchResultPosition=9
 
