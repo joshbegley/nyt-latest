@@ -1,5 +1,5 @@
 **Enter the New Era of Stealth Wealth**\
-`Bottega Veneta leads the way, while Gucci remains in limbo.`\
+`A season-defining Bottega Veneta leads the way, while Gucci remains in limbo.`\
 https://nytimes.com/2023/02/26/style/gucci-bottega-veneta-milan-fashion-week.html?searchResultPosition=1
 
 **Quotation of the Day: In California Town, Floods Destroy Farmworkers’ Hard-Won Idyll**\
