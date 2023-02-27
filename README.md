@@ -7,7 +7,7 @@ https://nytimes.com/2023/02/27/podcasts/the-daily/lawsuit-fox-news-2020-election
 https://nytimes.com/2023/02/27/t-magazine/home-design-restoration-galicia-spain.html?searchResultPosition=2
 
 **Dying Children and Frozen Flocks in Afghanistan’s Bitter Winter of Crisis**\
-`Hundreds have died in plunging temperatures, and malnutrition has been rampant, even as the Taliban government’s ban on female workers has hampered international aid.`\
+`Hundreds have died in plunging temperatures, and malnutrition has been rampant as the Taliban government’s ban on female workers has hampered international aid.`\
 https://nytimes.com/2023/02/27/world/asia/afghanistan-cold-malnutrition-crisis.html?searchResultPosition=3
 
 **Russia’s New Offensive Sends Conscripts Into the Teeth of Ukraine’s Lines**\
