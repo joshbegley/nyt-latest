@@ -10,7 +10,7 @@ https://nytimes.com/video/world/middleeast/100000008788909/turkey-earthquake-mal
 `A dispute left over from the Britain-European Union split has chilled relations, paralyzed Northern Ireland’s government, risked a trade war and even caused friction between London and Washington.`\
 https://nytimes.com/2023/02/27/world/europe/uk-eu-northern-ireland.html?searchResultPosition=3
 
-**Read Murdoch’s Deposition in the Fox-Dominion Case Files**\
+**Read What Murdoch Said in His Deposition in the Fox-Dominion Case**\
 `Rupert Murdoch’s remarks were made last month as part of the $1.6 billion defamation lawsuit against Fox News by Dominion Voting Systems.`\
 https://nytimes.com/interactive/2023/02/27/business/media/dominion-fox-news.html?searchResultPosition=4
 
