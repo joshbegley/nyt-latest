@@ -1,5 +1,5 @@
 **Supreme Court to Take Up Case on Fate of Consumer Watchdog**\
-`The justices agreed to decide whether the way Congress chose to fund the Consumer Financial Protection Bureau violated the Constitution.`\
+`A decision against the bureau could cast doubt on every rule and enforcement action the Consumer Financial Protection Bureau has taken.`\
 https://nytimes.com/2023/02/27/us/supreme-court-cfpb-consumer-watchdog.html?searchResultPosition=1
 
 **SZA’s ‘SOS’ Is No. 1 for a 10th Time, as Morgan Wallen Waits on Deck**\
