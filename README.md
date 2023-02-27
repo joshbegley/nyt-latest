@@ -7,7 +7,7 @@ https://nytimes.com/2023/02/26/us/snow-storm-weather-ny-northeast.html?searchRes
 https://nytimes.com/2023/02/26/arts/dance/four-dancers-promoted-at-new-york-city-ballet.html?searchResultPosition=2
 
 **SAG Awards 2023: Complete List of Winners**\
-`Will “Everything Everywhere All at Once” take the top prize as it did at the Producers Guild Awards the night before?`\
+`“Abbott Elementary” takes best comedy series. Other early winners include Jeremy Allen White of “The Bear” and Jean Smart of “Hacks” are early winners.`\
 https://nytimes.com/2023/02/26/movies/sag-awards-winners-list.html?searchResultPosition=3
 
 **Tens of Thousands Protest Overhaul of Mexico’s Election Agency**\
