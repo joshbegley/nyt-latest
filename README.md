@@ -2,8 +2,8 @@
 `President Andrés Manuel López Obrador tweeted an image of what he said was an aluxe, a legendary elflike creature. News outlets said it looked like a 2021 photo of another questionable creature.`\
 https://nytimes.com/2023/02/27/world/americas/andres-manuel-lopez-obrador-mexico-aluxe.html?searchResultPosition=1
 
-**Biden Administration to Set Financial Guardrails for Chip Makers**\
-`Guidelines to be released Tuesday will include firm financial requirements to try to ensure that chip makers don’t waste federal money`\
+**Biden Administration to Impose Financial Restrictions for Chip Makers**\
+`Guidelines to be released Tuesday will include firm financial requirements to try to ensure that chip makers don’t waste federal money.`\
 https://nytimes.com/2023/02/27/us/politics/chips-act-biden-commerce-department.html?searchResultPosition=2
 
 **TD Bank Agrees to Pay $1.2 Billion to Settle Ponzi Scheme Case**\
