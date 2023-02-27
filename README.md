@@ -1,5 +1,5 @@
-**Agency Controlled by Modi Arrests a Top Indian Opposition Leader**\
-`The corruption charges follow a bitter fight between India’s governing party and a regional competitor with national ambitions.`\
+**Top Indian Opposition Leader Arrested on Corruption Charges**\
+`The detention follows a bitter fight between India’s B.J.P. governing party and a regional competitor with national ambitions.`\
 https://nytimes.com/2023/02/27/world/asia/india-manish-sisodia-arrest.html?searchResultPosition=1
 
 **Why Fashion Can’t Get Enough of the Bloomsbury Group**\
