@@ -1,6 +1,6 @@
 **Musk Accuses Media of Bias for Dropping ‘Dilbert’ over Creator’s Racist Rant**\
 `The Tesla and Twitter chief called the media racist as newspapers stopped running “Dilbert” after the comic strip’s creator, Scott Adams, described Black people as a “hate group.”`\
-https://nytimes.com/2023/02/27/business/musk-dilbert-racist.html?searchResultPosition=1
+https://nytimes.com/2023/02/27/business/elon-musk-dilbert.html?searchResultPosition=1
 
 **The Best Looks From the Screen Actors Guild Awards**\
 `On a night of many, many, many, (so many) stars, here are some outstanding red carpet moments.`\
