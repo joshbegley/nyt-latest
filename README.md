@@ -31,7 +31,7 @@ https://nytimes.com/video/world/middleeast/100000008788909/turkey-earthquake-mal
 https://nytimes.com/2023/02/27/world/europe/uk-eu-northern-ireland.html?searchResultPosition=8
 
 **Read What Murdoch Said in His Deposition in the Fox-Dominion Case**\
-`Rupert Murdoch’s remarks were made last month as part of the $1.6 billion defamation lawsuit against Fox News by Dominion Voting Systems.`\
+`Rupert Murdoch made his remarks last month as part of the $1.6 billion defamation lawsuit against Fox News by Dominion Voting Systems.`\
 https://nytimes.com/interactive/2023/02/27/business/media/dominion-fox-news.html?searchResultPosition=9
 
 **Supreme Court Seems Skeptical of Broad Sweep of Identity Theft Law**\
