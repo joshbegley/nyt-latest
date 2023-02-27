@@ -10,8 +10,8 @@ https://nytimes.com/2023/02/27/learning/if-artwork-offends-people-should-it-be-r
 `This documentary walks through the delicate task of saving the history of movies with the help of enchanting clips and eagle-eyed preservationists`\
 https://nytimes.com/2023/02/27/movies/film-the-living-record-of-our-memory-review.html?searchResultPosition=3
 
-**Israelis and Palestinians on Alert After West Bank Violence**\
-`Israel was preparing to bury two brothers killed by a Palestinian, while Palestinians assessed the damage from a settler rampage that an official said left one Palestinian dead.`\
+**Revenge Attacks After Killing of 2 Israeli Brothers Leave West Bank on Edge**\
+`Settlers burned and vandalized hundreds of cars and homes in four Palestinian villages, according to Israeli rights groups and Palestinian officials, and the area was braced for more violence.`\
 https://nytimes.com/2023/02/27/world/middleeast/israel-palestinians-west-bank.html?searchResultPosition=4
 
 **The Phone in the Room**\
