@@ -11,7 +11,7 @@ https://nytimes.com/2023/02/26/us/snow-storm-weather-ny-northeast.html?searchRes
 https://nytimes.com/2023/02/26/arts/dance/four-dancers-promoted-at-new-york-city-ballet.html?searchResultPosition=3
 
 **SAG Awards 2023: Complete List of Winners**\
-`“Abbott Elementary” and “The White Lotus” take the top TV honors. Jamie Lee Curtis and Ke Huy Quan win for “Everything Everywhere All at Once.”`\
+`Michelle Yeoh, Jamie Lee Curtis and Ke Huy Quan of   “Everything Everywhere All at Once” win trophies. “Abbott Elementary” and “The White Lotus” take the top TV honors.`\
 https://nytimes.com/2023/02/26/movies/sag-awards-winners-list.html?searchResultPosition=4
 
 **Tens of Thousands Protest Overhaul of Mexico’s Election Agency**\
