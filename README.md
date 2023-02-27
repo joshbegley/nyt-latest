@@ -22,7 +22,7 @@ https://nytimes.com/2023/02/26/obituaries/james-abourezk-dead.html?searchResultP
 `David Rockow asks for your patience.`\
 https://nytimes.com/2023/02/26/crosswords/daily-puzzle-2023-02-27.html?searchResultPosition=6
 
-**Review: ‘black odyssey’ Sails Through Black Past and Present**\
+**Review: ‘Black Odyssey’ Sails Through Black Past and Present**\
 `This wine-dark sea threads through Harlem, and its Ulysses, buffeted by the gods, is a soldier fighting in Afghanistan who makes a fatal mistake.`\
 https://nytimes.com/2023/02/26/theater/black-odyssey-review.html?searchResultPosition=7
 
