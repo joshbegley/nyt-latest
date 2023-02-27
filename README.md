@@ -34,7 +34,7 @@ https://nytimes.com/2023/02/27/t-magazine/home-design-restoration-galicia-spain.
 `Hundreds have died in plunging temperatures, and malnutrition has been rampant as the Taliban government’s ban on female workers has hampered international aid.`\
 https://nytimes.com/2023/02/27/world/asia/afghanistan-cold-malnutrition-crisis.html?searchResultPosition=9
 
-**Russia’s New Offensive Sends Conscripts Into the Teeth of Ukraine’s Lines**\
-`A month into the campaign, Russian forces have barely budged despite forays by small units in fields, pine forests and ruined towns.`\
-https://nytimes.com/2023/02/27/world/europe/russia-offensive-ukraine.html?searchResultPosition=10
+**I Went to Syria, the Country That Remade Our World, and This Is What I Saw**\
+`We have abandoned the Syrian people to biblical devastation.`\
+https://nytimes.com/2023/02/27/opinion/syria-earthquake.html?searchResultPosition=10
 
