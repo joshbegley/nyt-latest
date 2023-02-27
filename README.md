@@ -1,40 +1,40 @@
-**Where Can You Carry a Gun? Whiplash Court Rulings Create Confusion.**\
-`A Supreme Court decision has produced scores of new lawsuits, sowing confusion as jurists and citizens sort out what’s legal now.`\
-https://nytimes.com/2023/02/27/nyregion/new-york-gun-rules-supreme-court.html?searchResultPosition=1
+**In Spain, a Family Home Is Restored With One Principle: Do No Harm**\
+`A 14th-generation owner is reviving his ancestral wine estate in Galicia by doing as little as possible.`\
+https://nytimes.com/2023/02/27/t-magazine/home-design-restoration-galicia-spain.html?searchResultPosition=1
 
-**Indian Americans Rapidly Climbing Political Ranks**\
-`The 2024 cycle reflects huge strides in representation: A decade ago, “it was inconceivable that someone named Raj Goyle — let alone Rajeev Goyle — would run for office in Wichita,” said Mr. Goyle, a former Kansas lawmaker.`\
-https://nytimes.com/2023/02/27/us/politics/indian-american-politicians.html?searchResultPosition=2
+**Dying Children and Frozen Flocks in Afghanistan’s Bitter Winter of Crisis**\
+`Hundreds have died in plunging temperatures, and malnutrition has been rampant, even as the Taliban government’s ban on female workers has hampered international aid.`\
+https://nytimes.com/2023/02/27/world/asia/afghanistan-cold-malnutrition-crisis.html?searchResultPosition=2
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/02/27/crosswords/spelling-bee-forum.html?searchResultPosition=3
+**Russia’s New Offensive Sends Conscripts Into the Teeth of Ukraine’s Lines**\
+`A month into the campaign, Russian forces have barely budged despite forays by small units in fields, pine forests and ruined towns.`\
+https://nytimes.com/2023/02/27/world/europe/russia-offensive-ukraine.html?searchResultPosition=3
 
-**Nikki Haley Hits the Campaign Trail**\
-`Haley’s first week as a presidential candidate featured stops in Iowa and New Hampshire with crowds of voters sizing her up — and an uproar over a CNN host’s comments.`\
-https://nytimes.com/interactive/2023/02/27/us/politics/nikki-haley-campaign-trail.html?searchResultPosition=4
+**Is There an Ethical Way to Kill Rats? Should We Even Ask?**\
+`Welcome to the rat trapper’s dilemma.`\
+https://nytimes.com/2023/02/27/science/rats-rodents-trapping.html?searchResultPosition=4
 
-**West Bank Tensions Escalate After Fatal Shooting**\
-`Jewish settlers went on a violent rampage in the West Bank after a Palestinian gunman killed two Israeli brothers.`\
-https://nytimes.com/video/world/middleeast/100000008787694/west-bank-israel-attack.html?searchResultPosition=5
+**I Went to Syria to See Biblical Devastation in a Land of Political Tragedy**\
+`We live in a world remade by Syria’s war. And yet we have abandoned the Syrian people. `\
+https://nytimes.com/2023/02/27/opinion/syria-earthquake.html?searchResultPosition=5
 
-**Word of the Day: tremulous**\
-`This word has appeared in 11 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/02/27/learning/word-of-the-day-tremulous.html?searchResultPosition=6
+**What to Know About Chicago’s Mayoral Election**\
+`Mayor Lori Lightfoot is seeking a second term, but she faces a wide field of challengers who have attacked her record on crime, policing and education.`\
+https://nytimes.com/2023/02/27/us/chicago-mayoral-election-lightfoot.html?searchResultPosition=6
 
-**Severe Thunderstorms and Strong Winds Slam Several States**\
-`Warnings for severe weather, including tornado watches, were issued in Oklahoma, Kansas and Texas.`\
-https://nytimes.com/video/us/100000008787712/oklahoma-kansas-texas-severe-weather.html?searchResultPosition=7
+**Challenges to Student Loan Cancellation Reach Supreme Court**\
+`Justices will hear arguments Tuesday on President Biden’s plan to forgive an estimated $400 billion in debt. Conservative states have called it an abuse of his authority.`\
+https://nytimes.com/2023/02/27/business/student-loan-debt-supreme-court.html?searchResultPosition=7
 
-**Muppet Makers Turn to Creating Whooping Cranes**\
-`At Jim Henson’s Creature Shop in Queens, puppet makers craft characters for a musical featuring Native American performers.`\
-https://nytimes.com/2023/02/27/nyregion/hensons-creature-shop-muppets.html?searchResultPosition=8
+**As Oil Companies Stay Lean, Workers Move to Renewable Energy**\
+`Solar, wind, geothermal, battery and other alternative-energy businesses are adding workers from fossil fuel companies, where employment has fallen.`\
+https://nytimes.com/2023/02/27/business/energy-environment/oil-gas-renewable-energy-jobs.html?searchResultPosition=8
 
-**A War With China Would Reach Deep Into American Society**\
-`A Chinese invasion of Taiwan may include a multipronged war strategy that causes havoc in American society.`\
-https://nytimes.com/2023/02/27/opinion/a-war-with-china-would-reach-deep-into-american-society.html?searchResultPosition=9
+**It’s the Cool Season in Death Valley**\
+`Scorching summer temperatures are fearsome in this national park, but winter and early spring offer visitors a chance to appreciate a stunning landscape of snow-capped peaks, salt flats, winding canyons and volcanic hills.`\
+https://nytimes.com/2023/02/27/travel/death-valley-national-park-winter-spring.html?searchResultPosition=9
 
-**What’s on TV This Week: ‘True Lies’ and ‘Black Girl Missing’**\
-`An action series premieres on CBS, and a new film on Lifetime highlights how missing Black women are treated by the police and the media.`\
-https://nytimes.com/2023/02/27/arts/television/whats-on-tv-this-week-true-lies-and-black-girl-missing.html?searchResultPosition=10
+**DeSantis Would Be Bad. But He Would Not Be Worse Than Trump.**\
+`Why exaggerating the threat posed by the Florida governor could actually increase Trump’s prospects in the G.O.P. primaries.`\
+https://nytimes.com/2023/02/27/opinion/desantis-trump-president-comparison.html?searchResultPosition=10
 
