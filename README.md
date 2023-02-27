@@ -14,8 +14,8 @@ https://nytimes.com/2023/02/26/us/snow-storm-weather-ny-northeast.html?searchRes
 `Signaling the arrival of ballet’s next generation, the soloists Emilie Gerrity, Isabella LaFreniere, Roman Mejia and Mira Nadon move up.`\
 https://nytimes.com/2023/02/26/arts/dance/four-dancers-promoted-at-new-york-city-ballet.html?searchResultPosition=4
 
-**SAG Awards 2023: Complete List of Winners**\
-`Michelle Yeoh, Jamie Lee Curtis and Ke Huy Quan of   “Everything Everywhere All at Once” win trophies. “Abbott Elementary” and “The White Lotus” take the top TV honors.`\
+**SAG Awards 2023: Complete List of Winners, Led by ‘Everything Everywhere All at Once’**\
+`“Everything Everywhere All at Once” and three of its cast members win trophies. “Abbott Elementary” and “The White Lotus” take TV honors.`\
 https://nytimes.com/2023/02/26/movies/sag-awards-winners-list.html?searchResultPosition=5
 
 **Tens of Thousands Protest Overhaul of Mexico’s Election Agency**\
