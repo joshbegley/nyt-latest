@@ -23,7 +23,7 @@ https://nytimes.com/2023/02/28/books/penguin-random-house-leadership.html?search
 https://nytimes.com/2023/02/28/arts/music/michael-cleveland-fiddler.html?searchResultPosition=6
 
 **Opposition Parties in Nigeria Call for Election Rerun, Citing Vote Rigging**\
-`Two parties say that the presidential vote in Africa’s biggest democracy was marred by fraud and violence, and they called for the head of the election commission to step down.`\
+`Two parties say the presidential vote in Africa’s biggest democracy was marred by fraud and violence, and they called for the head of the election commission to step down.`\
 https://nytimes.com/2023/02/28/world/africa/nigeria-election-challenges.html?searchResultPosition=7
 
 **Zelensky says the situation in Bakhmut is ‘getting more and more difficult.’**\
