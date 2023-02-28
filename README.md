@@ -1,6 +1,6 @@
 **After a Difficult Debut, Fire Commissioner Faces a Suit From Top Chiefs**\
 `Laura Kavanagh, the first woman to lead the New York Fire Department, demoted several officials. In return, they accused her of putting residents at risk.`\
-https://nytimes.com/2023/02/28/nyregion/after-a-difficult-debut-fire-commissioner-faces-a-suit-from-top-chiefs.html?searchResultPosition=1
+https://nytimes.com/2023/02/28/nyregion/fdny-laura-kavanagh-lawsuit.html?searchResultPosition=1
 
 **Lawmakers Question Pentagon on Ukraine Funds, Signaling Fresh Doubts**\
 `Some Republicans and Democrats quizzed military officials about the money that has been sent to Kyiv so far and what is still to come, threatening a consensus in favor of aid.`\
