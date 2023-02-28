@@ -22,7 +22,7 @@ https://nytimes.com/2023/02/28/podcasts/the-daily/turkey-buildings-earthquake-co
 `How does life go on after a gun violence tragedy?`\
 https://nytimes.com/2023/02/28/learning/film-club-survivors-of-the-monterey-park-shooting-dance-on.html?searchResultPosition=6
 
-**‘Different from the Other Southerners’: Jimmy Carter’s Relationship with Black America**\
+**‘Different From the Other Southerners’: Jimmy Carter’s Relationship With Black America**\
 `How a white politician from the South who once supported segregationist policies eventually won the enduring support of Black voters.`\
 https://nytimes.com/2023/02/28/us/politics/jimmy-carter-black-americans.html?searchResultPosition=7
 
