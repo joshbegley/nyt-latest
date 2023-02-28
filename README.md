@@ -1,6 +1,6 @@
 **Vanessa Bryant Settles Helicopter Crash Photos Lawsuit for $28.85 Million**\
 `Bryant, the wife of the basketball star Kobe Bryant, sued Los Angeles County after some of its employees shared graphic photos of the crash that killed her husband and one of their daughters.`\
-https://nytimes.com/2023/02/28/sports/basketball/vanessa-bryant-helicopter-crash-lawsuit.html?searchResultPosition=1
+https://nytimes.com/2023/02/28/sports/basketball/vanessa-bryant-kobe-helicopter-crash-lawsuit.html?searchResultPosition=1
 
 **Fox Leaders Wanted to Break From Trump but Struggled to Make It Happen**\
 `Executives and top hosts found themselves in a bind after Donald Trump began pushing unfounded claims about election fraud, court filings show.`\
