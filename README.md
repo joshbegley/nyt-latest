@@ -1,40 +1,40 @@
-**How Do You Feel About Your Height?**\
-`A guest writer argues that while society might favor tall people, being short is actually great. What do you think?`\
-https://nytimes.com/2023/02/28/learning/how-do-you-feel-about-your-height.html?searchResultPosition=1
+**‘Different from the Other Southerners’: Jimmy Carter’s Relationship with Black America**\
+`How a white politician from the South who once supported segregationist policies eventually won the enduring support of Black voters.`\
+https://nytimes.com/2023/02/28/us/politics/jimmy-carter-black-americans.html?searchResultPosition=1
 
-**Where the Lion and the Witch Met the Hobbit**\
-`Discovering the Oxford where C.S. Lewis, the writer of over 30 books, including the “Chronicles of Narnia” series, found faith, inspiration and a life-changing friendship with J.R.R. Tolkien.`\
-https://nytimes.com/2023/02/28/travel/cs-lewis-oxford-narnia.html?searchResultPosition=2
+**Why Jaromir Jagr Won’t Quit Playing Hockey**\
+`The former N.H.L. star recently turned 51 and is wrapping up his 35th season playing pro hockey with Rytiri Kladno of the Czech Extraliga. As the team’s owner and its biggest draw on the ice, Jagr knows his hometown club’s survival is all on him.`\
+https://nytimes.com/2023/02/28/sports/hockey/jaromir-jagr-czech-extraliga.html?searchResultPosition=2
 
-**Love, Death and Recipes: The Surprising Epitaphs of Green-Wood Cemetery**\
-`Perusing the eerily poetic lines found in a library of completed lives.`\
-https://nytimes.com/2023/02/28/magazine/epitaphs-green-wood-cemetery.html?searchResultPosition=3
+**What You Should Know Before Choosing Kitchen Cabinets**\
+`It’s more complicated than you might think. Here’s what to consider before you spend a lot on the wrong ones.`\
+https://nytimes.com/2023/02/28/realestate/kitchen-cabinets.html?searchResultPosition=3
 
-**Meet the World’s Most Honorable Bank Robbers**\
-`In Lebanon the economic collapse is forcing citizens to take extreme measures to get their savings.`\
-https://nytimes.com/2023/02/28/opinion/lebanon-crisis-economy-bank-robbers.html?searchResultPosition=4
+**‘Nobody Wants to Be the World’s Villain’**\
+`Inside the Louisville Police Department, where officers are reckoning with what it means to be a cop in a city that doesn’t trust them.`\
+https://nytimes.com/2023/02/28/magazine/louisville-police-department.html?searchResultPosition=4
 
-**Meet the World’s Most Honorable Bank Robbers**\
-`In Lebanon the economic collapse is forcing citizens to use extreme measures to get their savings.`\
-https://nytimes.com/video/opinion/100000008770827/lebanon-crisis-economy-bank-robbers.html?searchResultPosition=5
+**Sunak Hopes to Move Past Brexit, at Long Last, With E.U. Deal**\
+`In addition to removing an obstacle to London-Brussels relations, the Northern Ireland trade deal could remove Brexit from the center of British politics after seven divisive years.`\
+https://nytimes.com/2023/02/28/world/europe/uk-eu-sunak-brexit.html?searchResultPosition=5
 
-**Jacob deGrom Liked the Mets. But the Rangers Liked Him More.**\
-`Texas was desperate for pitching and deGrom’s interest was piqued. A $185 million contract, and a “vision” of how to win, convinced him to leave New York.`\
-https://nytimes.com/2023/02/28/sports/baseball/jacob-degrom-rangers.html?searchResultPosition=6
+**How to Make Great Beef Stew? Here’s a World of Wisdom.**\
+`Every culture has its own versions of the classic dish. Cooking our way through these recipes, we found some basic lessons for any aspiring stew chef.`\
+https://nytimes.com/2023/02/28/dining/how-to-make-beef-stew.html?searchResultPosition=6
 
-**Chicago Votes for Mayor in a Race Dominated by Crime and Policing**\
-`Mayor Lori Lightfoot faces a wide field of challengers on Tuesday, including one front-runner who has portrayed Chicago as a city in disarray.`\
-https://nytimes.com/2023/02/28/us/chicago-mayoral-election-lightfoot-vallas.html?searchResultPosition=7
+**China Moves to Erase the Vestiges of ‘Zero Covid’ to Deter Dissent**\
+`The ruling Communist Party is waging an ambitious propaganda campaign to rewrite the public’s memory of its handling of the pandemic, which included some of the harshest restrictions in the world.`\
+https://nytimes.com/2023/02/28/world/asia/china-moves-to-erase-the-vestiges-of-zero-covid-to-deter-dissent.html?searchResultPosition=7
 
-**Lawmakers Propose Legislation to Tighten Rail Safety Regulations**\
-`The train that derailed in Ohio was exempt from some federal safety requirements because it was not carrying enough hazardous material to be considered “high hazard.” Lawmakers want to lower the threshold.`\
-https://nytimes.com/2023/02/28/us/politics/congress-east-palestine-legislation.html?searchResultPosition=8
+**Scrounging for Tanks for Ukraine, Europe’s Armies Come Up Short**\
+`The struggle to deliver on promises to provide Leopard 2 tanks for use against Russian forces has exposed just how unprepared European militaries are.`\
+https://nytimes.com/2023/02/28/world/europe/ukraine-tanks.html?searchResultPosition=8
 
-**As Lightfoot Tries for Second Term, Jabs Go From Friendly to Harsh**\
-`When the pandemic took hold, Chicago was awash in affectionate memes featuring Lori Lightfoot, the city’s stern, no-nonsense new mayor. Since then, the joke has worn off.`\
-https://nytimes.com/2023/02/28/us/lori-lightfoot-chicago-mayor.html?searchResultPosition=9
+**Why 23 Dead Whales Have Washed Up on the East Coast Since December**\
+`An unlikely confluence of factors, including climate change and online shopping, appears to be at least partially to blame for the uptick.`\
+https://nytimes.com/2023/02/28/nyregion/east-coast-whale-deaths.html?searchResultPosition=9
 
-**After Santos’s Résumé Unraveled, a Reporter Asks, ‘Now What?’**\
-`After two New York Times reporters published an explosive investigation into Representative George Santos’s past, more revelations have come to light.`\
-https://nytimes.com/2023/02/28/insider/george-santos-investigation.html?searchResultPosition=10
+**Murder and Memory in Laramie, Wyoming**\
+`Kim Barker, a Times investigative reporter, reflects on her formative years in Laramie, Wyo. — and on her return to the town decades later for the latest podcast from Serial and The New York Times.`\
+https://nytimes.com/2023/02/28/podcasts/laramie-wyoming-murder.html?searchResultPosition=10
 
