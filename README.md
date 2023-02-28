@@ -26,8 +26,8 @@ https://nytimes.com/2023/02/28/us/politics/desantis-primary-states.html?searchRe
 `President Aleksandr G. Lukashenko’s visit comes shortly after the United States accused Beijing of preparing to give arms and ammunition to Russia to help its war on Ukraine.`\
 https://nytimes.com/2023/02/28/world/asia/china-russia-belarus.html?searchResultPosition=7
 
-**French Soccer Chief Quits Amid Abuse Claims but Pivots to FIFA Post**\
-`Noël Le Graët resigned after an investigation found federation staff members had endured sexual and mental abuse, but he will stay in soccer: FIFA has hired him to run its Paris office.`\
+**French Soccer Chief Resigns but Has a FIFA Lifeboat**\
+`Noël Le Graët quit after an investigation found federation staff members had endured sexual and mental abuse, but he will stay in soccer: FIFA has hired him to run its Paris office.`\
 https://nytimes.com/2023/02/28/sports/soccer/fff-le-graet-france.html?searchResultPosition=8
 
 **Ukraine War Squeezes Street Snack in Uganda**\
