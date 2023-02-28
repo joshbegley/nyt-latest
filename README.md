@@ -1,4 +1,4 @@
-**New York: Where the Money is For Republican Presidential Hopefuls**\
+**New York: Where the Money Is for Republican Presidential Hopefuls**\
 `Potential candidates are heading to the city looking for deep-pocket donors. Also, two brothers are accused of stiffing construction workers of wages.`\
 https://nytimes.com/2023/02/28/nyregion/new-york-where-the-money-is-for-republican-presidential-hopefuls.html?searchResultPosition=1
 
