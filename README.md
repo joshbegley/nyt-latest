@@ -3,7 +3,7 @@
 https://nytimes.com/2023/02/28/world/europe/russia-ukraine-drone-strikes.html?searchResultPosition=1
 
 **Walter Mirisch, Pioneering Producer of Canonical Films, Dies at 101**\
-`Admired for his creative instincts, he oversaw films that won 28 Oscars. including “West Side Story,” “The Apartment” and “In the Heat of the Night.”`\
+`Admired for his creative instincts, he oversaw films that won 28 Oscars, including “West Side Story,” “The Apartment” and “In the Heat of the Night.”`\
 https://nytimes.com/2023/02/28/movies/walter-mirisch-dead.html?searchResultPosition=2
 
 **Chicagoans Cast Votes in Highly Contested Mayoral Race**\
