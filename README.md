@@ -14,8 +14,8 @@ https://nytimes.com/2023/02/27/pageoneplus/quotation-of-the-day-russian-offensiv
 `Gia Bosko makes her New York Times Crossword debut.`\
 https://nytimes.com/2023/02/27/crosswords/daily-puzzle-2023-02-28.html?searchResultPosition=4
 
-**Latino Workers Reach $1 Million Settlement Over Raid at Meat Plant**\
-`The workers accused the government of racial profiling and excessive force. Legal experts called it a rare victory for undocumented immigrants.`\
+**In Rare Victory, Immigrants Prevail in Suit Over Meat Plant Raid**\
+`The workers accused the government of racial profiling and excessive force. The agreement is very likely the first class settlement over an immigration enforcement operation at a work site, experts say.`\
 https://nytimes.com/2023/02/27/us/meat-plant-raid-immigrants-tennessee.html?searchResultPosition=5
 
 **Hong Kong, One of World’s Last Holdouts, Ends Its Mask Mandate**\
