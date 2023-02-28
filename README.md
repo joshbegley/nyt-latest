@@ -36,5 +36,5 @@ https://nytimes.com/2023/02/28/dining/how-to-make-beef-stew.html?searchResultPos
 
 **China Moves to Erase the Vestiges of ‘Zero Covid’ to Deter Dissent**\
 `The ruling Communist Party is waging an ambitious propaganda campaign to rewrite the public’s memory of its handling of the pandemic, which included some of the harshest restrictions in the world.`\
-https://nytimes.com/2023/02/28/world/asia/china-moves-to-erase-the-vestiges-of-zero-covid-to-deter-dissent.html?searchResultPosition=10
+https://nytimes.com/2023/02/28/world/asia/china-covid-lab-leak.html?searchResultPosition=10
 
