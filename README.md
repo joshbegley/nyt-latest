@@ -31,7 +31,7 @@ https://nytimes.com/2023/02/27/crosswords/daily-puzzle-2023-02-28.html?searchRes
 https://nytimes.com/2023/02/27/us/meat-plant-raid-immigrants-tennessee.html?searchResultPosition=8
 
 **Hong Kong, One of World’s Last Holdouts, Ends Its Mask Mandate**\
-`As of Wednesday, residents will no longer be required to wear masks indoors, outdoors or on public transportation.`\
+`As of Wednesday, people in the city will no longer be required to wear masks indoors, outdoors or on public transportation.`\
 https://nytimes.com/2023/02/27/world/asia/hong-kong-mask-mandate.html?searchResultPosition=9
 
 **‘Elyria’ Review: The Past Catches Up to Them, Outside Cleveland**\
