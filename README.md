@@ -19,7 +19,7 @@ https://nytimes.com/2023/02/28/learning/film-club-survivors-of-the-monterey-park
 https://nytimes.com/2023/02/28/us/politics/jimmy-carter-black-americans.html?searchResultPosition=5
 
 **Why Jaromir Jagr Won’t Quit Playing Hockey**\
-`The former N.H.L. star recently turned 51 and is wrapping up his 35th pro season with his hometown team. He knows its very survival depends on him.`\
+`The former N.H.L. star recently turned 51 and is wrapping up his 35th season in pro hockey as a member of his hometown team. He knows its very survival depends on him.`\
 https://nytimes.com/2023/02/28/sports/hockey/jaromir-jagr-czech-extraliga.html?searchResultPosition=6
 
 **What You Should Know Before Choosing Kitchen Cabinets**\
