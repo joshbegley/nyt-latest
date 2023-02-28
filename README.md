@@ -6,8 +6,8 @@ https://nytimes.com/2023/02/28/opinion/nigerian-elections-obi.html?searchResultP
 `Pink Floyd’s enduring blockbuster merged grandeur and malaise. Very much a product of its era, it became one of the best-selling albums of all time.`\
 https://nytimes.com/2023/02/28/arts/music/pink-floyd-dark-side-of-the-moon-50th-anniversary.html?searchResultPosition=2
 
-**King Charles’s Role in Northern Ireland Deal Raises Eyebrows**\
-`The king’s tie-in to a divisive Brexit-related trade issue drew angry recriminations from critics who viewed it as an improper foray into British politics.`\
+**Tea and a Photo-Op Put King Charles in Critics’ Crosshairs**\
+`King Charles’s meeting with an E.U. leader on the day a Northern Ireland trade deal was announced drew angry recriminations from critics who viewed it as an improper foray into British politics.`\
 https://nytimes.com/2023/02/28/world/europe/uk-king-charles-northern-ireland.html?searchResultPosition=3
 
 **Biden Nominates Julie Su as U.S. Labor Secretary**\
