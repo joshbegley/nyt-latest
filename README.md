@@ -1,40 +1,40 @@
-**Make Way for the French Woman**\
-`Emily’s not in Paris this season, that’s for sure.`\
-https://nytimes.com/2023/03/01/style/dior-saint-laurent-paris-fashion-week.html?searchResultPosition=1
+**14 Books Coming in March**\
+`A haunting horror novel set a century ago in the American West, Eleanor Catton’s first novel in a decade, a Ukrainian war diary and much more.`\
+https://nytimes.com/2023/03/01/books/new-march-books.html?searchResultPosition=1
 
-**‘A Strange Dream’: A Cruise Ship Is a Floating Shelter for Displaced Turks**\
-`More than 1,000 Turkish residents displaced by the recent earthquakes are staying on a luxury boat in the Mediterranean Sea.`\
-https://nytimes.com/2023/03/01/world/europe/turkey-quake-cruise-ship.html?searchResultPosition=2
+**For Silvia Venturini Fendi, Fashion Is Family**\
+`The longtime artistic director of men’s wear at Fendi, a brand founded by her grandparents, no longer feels she has to prove that she earned her place.`\
+https://nytimes.com/2023/03/01/t-magazine/silvia-venturini-fendi.html?searchResultPosition=2
 
-**He Took His Shoes Off 20 Years Ago. He Hasn’t Put Them Back On.**\
-`Joseph DeRuvo Jr. has lived a mostly barefooted life for nearly two decades. The experience has given him a thick skin.`\
-https://nytimes.com/2023/03/01/nyregion/he-took-his-shoes-off-20-years-ago-he-hasnt-put-them-back-on.html?searchResultPosition=3
+**Many Undocumented Immigrants Are Departing After Decades in the U.S.**\
+`Crowded scenes at the border do not necessarily translate into an increase in the undocumented population. Many other immigrants have been returning home.`\
+https://nytimes.com/2023/03/01/us/undocumented-immigrants-exodus.html?searchResultPosition=3
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/03/01/crosswords/spelling-bee-forum.html?searchResultPosition=4
+**Where Digital Payments, Even for a 10-Cent Chai, Are Colossal in Scale**\
+`India’s homegrown instant payment system has remade commerce and pulled millions into the formal economy.`\
+https://nytimes.com/2023/03/01/business/india-digital-payments-upi.html?searchResultPosition=4
 
-**Digital Clutter**\
-`How organized are your digital spaces?`\
-https://nytimes.com/2023/03/01/learning/digital-clutter.html?searchResultPosition=5
+**There’s a Reason Those Tropical Plants Look Good Enough to Eat**\
+`Some of the most visually appealing ones are also delicious. Here’s how to choose — and grow — the best ones.`\
+https://nytimes.com/2023/03/01/realestate/tropical-plants-edible-garden.html?searchResultPosition=5
 
-**Stephen Colbert Has News for Fans of Fox**\
-`“If there are any Fox viewers watching this — first off, I assume you’re looking for remote batteries. Try the junk drawer in the kitchen,” Colbert said.`\
-https://nytimes.com/2023/03/01/arts/television/stephen-colbert-fox-news.html?searchResultPosition=6
+**In an Epic Battle of Tanks, Russia Was Routed, Repeating Earlier Mistakes**\
+`A three-week fight in the town of Vuhledar in southern Ukraine produced what Ukrainian officials say was the biggest tank battle of the war so far, and a stinging setback for the Russians.`\
+https://nytimes.com/2023/03/01/world/europe/ukraine-russia-tanks.html?searchResultPosition=6
 
-**Train Crash in Greece Kills at Least 36**\
-`A train with 350 passengers aboard collided with a freight train. Two of the carriages “basically don’t exist anymore,” a regional governor said.`\
-https://nytimes.com/2023/03/01/world/europe/greece-train-crash.html?searchResultPosition=7
+**Some Republicans Want to Ban ‘Latinx.’ These Latino Democrats Agree.**\
+`In Connecticut, some Democratic lawmakers want to prohibit the use of the gender-neutral term in official government documents. The Republican governor of Arkansas does too.`\
+https://nytimes.com/2023/03/01/nyregion/connecticut-arkansas-latinx.html?searchResultPosition=7
 
-**Word of the Day: extravagance**\
-`This word has appeared in 67 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/03/01/learning/word-of-the-day-extravagance.html?searchResultPosition=8
+**As Dollar Stores Proliferate, Some Communities Say No**\
+`More than 70 proposed dollar stores have been rejected since 2019, a report shows. It’s a small number compared with those that opened but evidence of opposition to the industry.`\
+https://nytimes.com/2023/03/01/business/dollar-stores-rejected.html?searchResultPosition=8
 
-**U.S. fears Lukashenko’s visit to China is strengthening ties between Russia’s closest allies.**\
-`By David Pierson`\
-https://nytimes.com/2023/03/01/world/europe/us-fears-lukashenkos-visit-to-china-is-strengthening-ties-between-russias-closest-allies.html?searchResultPosition=9
+**Living at Home With Mom and Dad While Figuring Out a Financial Exit Plan**\
+`Some young adults who returned home to save money and figure out their careers are calculating what it will take for them to leave again.`\
+https://nytimes.com/2023/03/01/business/adults-living-home-parents-saving.html?searchResultPosition=9
 
-**Nigeria Elects a New President**\
-`Bola Tinubu, a candidate from the All Progressives Congress party, was declared the winner of Nigeria’s presidential election.`\
-https://nytimes.com/video/world/africa/100000008791300/nigeria-election-tinubu.html?searchResultPosition=10
+**How Paul Vallas Went From Electoral Also-Ran to Chicago Front-Runner**\
+`Mr. Vallas, a former public school executive with more conservative views on crime and education, will face Brandon Johnson, a progressive county commissioner, in an April runoff.`\
+https://nytimes.com/2023/03/01/us/paul-vallas-chicago-mayor-election.html?searchResultPosition=10
 
