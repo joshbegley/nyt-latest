@@ -22,9 +22,9 @@ https://nytimes.com/video/world/europe/100000008791166/greece-train-crash.html?s
 `Aaron M. Rosenberg’s puzzle is royally fun.`\
 https://nytimes.com/2023/02/28/crosswords/daily-puzzle-2023-03-01.html?searchResultPosition=6
 
-**Train Crash in Greece Kills 29**\
+**Train Crash in Greece Kills at Least 29**\
 `A rail operator said a passenger train had about 350 passengers on board when the collision with a freight train occurred. At least 85 people were injured.`\
-https://nytimes.com/2023/02/28/briefing/train-crash-greece.html?searchResultPosition=7
+https://nytimes.com/2023/02/28/world/europe/train-crash-greece.html?searchResultPosition=7
 
 **Adams, Discussing Faith, Dismisses Idea of Separating Church and State**\
 `Mayor Eric Adams also suggested that banning organized public school prayer was a mistake, saying, “When we took prayers out of schools, guns came into schools.”`\
