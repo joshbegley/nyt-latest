@@ -3,7 +3,7 @@
 https://nytimes.com/2023/03/01/nyregion/george-santos-bill-salt.html?searchResultPosition=1
 
 **Starbucks Violated Labor Law in Buffalo Union Drive, Judge Rules**\
-`An administrative judge for the National Labor Relations Board cited infractions including illegal monitoring and firing of workers. The company can appeal to the agency.`\
+`The decision cited “egregious and widespread misconduct,” including illegal monitoring and firing of workers. Starbucks signaled that it would appeal.`\
 https://nytimes.com/2023/03/01/business/economy/starbucks-union-buffalo-ruling.html?searchResultPosition=2
 
 **Richard Anobile, Chronicler of the Marx Brothers, Dies at 76**\
