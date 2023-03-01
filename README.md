@@ -1,8 +1,8 @@
-**Unionist Party in Northern Ireland Faces Dilemma Over Accepting New Trade Deal**\
-`The Democratic Unionist Party has no legal power to hold up the agreement, which would simplify post-Brexit trad rules. But a rejection could sabotage efforts to restart Northern Ireland’s government.`\
+**Unionists in Northern Ireland Face Dilemma Over Accepting New Trade Deal**\
+`The Democratic Unionist Party has no legal power to hold up the agreement, which would simplify post-Brexit trade rules. But a rejection could sabotage efforts to restart Northern Ireland’s government.`\
 https://nytimes.com/2023/03/01/world/europe/uk-northern-ireland.html?searchResultPosition=1
 
-**Doomed Vessel and Its Unused Lifeboat are Discovered at the Bottom of Lake Huron**\
+**Doomed Vessel and Its Unused Lifeboat Are Discovered at the Bottom of Lake Huron**\
 `Researchers have found the wreck of the wooden schooner barge Ironton, which sank after a collision in 1894, claiming the lives of five crew members.`\
 https://nytimes.com/2023/03/01/us/shipwreck-lake-huron.html?searchResultPosition=2
 
