@@ -2,7 +2,7 @@
 `The Feb. 6 earthquake’s vast destruction will present a challenge when it comes to mounting a viable election. But President Recep Tayyip Erdogan said the vote would go on in May, “God willing.”`\
 https://nytimes.com/2023/03/01/world/middleeast/turkey-earthquake-elections.html?searchResultPosition=1
 
-**‘Gathering Storm’ Was Nearing Murdaugh Before Murders, Prosecutors Say**\
+**‘Gathering Storm’ Was Nearing Murdaugh Before the Murders, Prosecutors Say**\
 `In closing arguments, the lead prosecutor said Alex Murdaugh killed his wife and son to hide financial crimes. The once-influential lawyer has insisted on his innocence.`\
 https://nytimes.com/2023/03/01/us/alex-murdaugh-trial-closing-arguments.html?searchResultPosition=2
 
