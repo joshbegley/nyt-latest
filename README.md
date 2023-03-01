@@ -2,7 +2,7 @@
 `George Santos’s first bill seeks to raise the cap on the so-called SALT deduction, a move that puts him at odds with his party, but would help his constituents.`\
 https://nytimes.com/2023/03/01/nyregion/george-santos-bill-salt.html?searchResultPosition=1
 
-**Starbucks Violated Labor Law in Buffalo Union Effort, Judge Rules**\
+**Starbucks Violated Labor Law in Buffalo Union Drive, Judge Rules**\
 `An administrative judge for the National Labor Relations Board cited infractions including illegal monitoring and firing of workers. The company can appeal to the agency.`\
 https://nytimes.com/2023/03/01/business/economy/starbucks-union-buffalo-ruling.html?searchResultPosition=2
 
