@@ -10,8 +10,8 @@ https://nytimes.com/2023/03/01/world/africa/nigeria-president-election-tinubu.ht
 `Peter Obi was until recently a secondary player in Nigerian politics. By switching parties and appealing to the digitally savvy, he overturned the old order.`\
 https://nytimes.com/2023/02/28/world/africa/peter-obi-nigeria-election.html?searchResultPosition=3
 
-**Chicago Weighs Its Future, as G.O.P. Assails Democrats Over Big-City Woes**\
-`The two mayoral candidates, both Democrats, are on opposite sides of the debate over crime and policing. Republicans, with an eye toward 2024, will be watching closely.`\
+**Chicago’s Choice Points to a Democratic Divide the G.O.P. Hopes to Exploit**\
+`The two mayoral candidates, both Democrats, are on opposite sides of the debate over crime and policing. Republicans, with an eye toward 2024, are watching closely.`\
 https://nytimes.com/2023/03/01/us/politics/chicago-mayor-republicans-democrats-trump.html?searchResultPosition=4
 
 **Israeli Police Use Water Cannons and Stun Grenades on Protesters in Tel Aviv**\
