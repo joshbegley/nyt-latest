@@ -2,8 +2,8 @@
 `Destroyed buildings lined the streets of Bakhmut as fighting intensified in the city.`\
 https://nytimes.com/video/world/europe/100000008791803/ukraine-bakhmut-russia-war.html?searchResultPosition=1
 
-**Georgia’s Jalen Carter Accused in Crash That Killed Teammate**\
-`Police said that Carter, who has been projected as a top-5 pick in April’s N.F.L. draft, was racing his car with one driven by Georgia recruiting analyst Chandler LeCroy, who also died in the crash.`\
+**Georgia’s Jalen Carter Accused in Crash That Killed Two People**\
+`Arrest warrants were issued for Carter, projected as a top-5 pick in the N.F.L. draft, after police said he had been involved in a crash that killed a Georgia teammate and a team staffer.`\
 https://nytimes.com/2023/03/01/sports/football/jalen-carter-arrest-nfl-draft.html?searchResultPosition=2
 
 **Why Some Black Playwrights Are Saying Their Shows Must Not Go On**\
