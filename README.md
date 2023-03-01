@@ -1,4 +1,4 @@
-**Bike-Path Attacker’s Mother Says She Urged ‘Tired’ Son to Leave U.S.**\
+**Bike-Path Attacker’s Mother Says She Wanted ‘Tired’ Son to Leave U.S.**\
 `A federal jury in Manhattan, which must decide whether to sentence Sayfullo Saipov to life in prison or to death, heard testimony from members of his family.`\
 https://nytimes.com/2023/03/01/nyregion/sayfullo-saipov-trial-mother.html?searchResultPosition=1
 
