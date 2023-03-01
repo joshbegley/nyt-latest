@@ -1,5 +1,5 @@
 **Train Crash in Greece Kills at Least 32**\
-`A train with 350 passengers aboard collided with a freight train, officials said. Two of the carriages “basically don’t exist anymore,” a regional governor said.`\
+`A train with 350 passengers aboard collided with a freight train. Two of the carriages “basically don’t exist anymore,” a regional governor said.`\
 https://nytimes.com/2023/03/01/world/europe/greece-train-crash.html?searchResultPosition=1
 
 **Word of the Day: extravagance**\
