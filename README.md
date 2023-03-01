@@ -27,7 +27,7 @@ https://nytimes.com/2023/03/01/realestate/700000-homes-in-new-york-california-an
 https://nytimes.com/2023/03/01/style/child-support-family-members.html?searchResultPosition=7
 
 **Eli Lilly Says It Will Cut the Price of Insulin**\
-`The company said it would cap the out-of-pocket cost of the diabetes drug at $35.`\
+`The company said it would cap the monthly out-of-pocket cost of the diabetes drug at $35.`\
 https://nytimes.com/2023/03/01/business/insulin-price-cap-eli-lilly.html?searchResultPosition=8
 
 **China’s Factories Report Surge in Activity After Lockdowns End**\
