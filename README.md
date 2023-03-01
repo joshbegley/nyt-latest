@@ -16,7 +16,7 @@ https://nytimes.com/2023/03/01/briefing/chicago-mayor-election.html?searchResult
 
 **Port Chester, N.Y.: A ‘Tiny Little Village’ With a Lot of Development**\
 `With more than 2,800 new housing units approved in the last three years, ‘Port Chester is certainly on the move.’ Not everyone is happy about it.`\
-https://nytimes.com/2023/03/01/realestate/port-chester-ny-a-tiny-little-village-with-a-lot-of-development.html?searchResultPosition=5
+https://nytimes.com/2023/03/01/realestate/port-chester-ny-housing.html?searchResultPosition=5
 
 **Living In ... Port Chester, N.Y.**\
 `With more than 2,800 new housing units approved in the last three years, ‘Port Chester is certainly on the move.’ Not everyone is happy about it.`\
