@@ -11,7 +11,7 @@ https://nytimes.com/2023/03/01/theater/the-lonely-few-lauren-patten.html?searchR
 https://nytimes.com/2023/03/01/arts/music/de-la-soul-catalog-streaming.html?searchResultPosition=3
 
 **New York Will Pay Millions to Protesters Violently Corralled by Police**\
-`The police boxed in hundreds of racial justice demonstrators in 2020, an anti-protest practice known as “kettling,” then hit them with batons and pepper spray.`\
+`The police boxed in racial justice demonstrators in 2020, an anti-protest practice known as “kettling,” then hit them with batons and pepper spray. Hundreds will receive $21,500 each.`\
 https://nytimes.com/2023/03/01/nyregion/nypd-kettling-blm-protests-settlement.html?searchResultPosition=4
 
 **South Africa’s Embattled Deputy President Resigns**\
