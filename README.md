@@ -34,7 +34,7 @@ https://nytimes.com/video/us/politics/100000008791876/lori-lightfoot-mayor-chica
 `Weeks after a train carrying hazardous materials derailed outside East Palestine, Ohio, a bipartisan group of lawmakers has proposed that the Transportation Department impose stricter rules.`\
 https://nytimes.com/2023/03/01/us/politics/senate-rail-safety-legislation.html?searchResultPosition=9
 
-**The Spectacular Fall of Lori Lightfoot and the Politics of Race and Crime**\
+**The Spectacular Fall of Lori Lightfoot**\
 `Are Black mayors too quickly and easily blamed for rising crime?`\
 https://nytimes.com/2023/03/01/opinion/lori-lightfoot-chicago.html?searchResultPosition=10
 
