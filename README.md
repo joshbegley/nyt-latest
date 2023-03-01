@@ -11,7 +11,7 @@ https://nytimes.com/2023/03/01/world/europe/ukraine-russia-bakhmut-reinforcement
 https://nytimes.com/2023/03/01/world/middleeast/iran-schoolgirls-poison.html?searchResultPosition=3
 
 **Opioid Distributors Cleared of Liability to Georgia Families Ravaged by Addiction**\
-`The case illustrates the enormous challenges victims of the opioid crisis have had in getting compensation from the pharmaceutical industry, despite its pledge of billions of dollars to state and local governments.`\
+`The case illustrates the enormous challenges that victims of the opioid crisis have had in getting compensation from the pharmaceutical industry, despite its pledge of billions of dollars to state and local governments.`\
 https://nytimes.com/2023/03/01/health/opioid-victims-trial-georgia.html?searchResultPosition=4
 
 **U.S. Braces for G20 Clash Over Ukraine War**\
