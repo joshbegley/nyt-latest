@@ -26,7 +26,7 @@ https://nytimes.com/2023/02/28/theater/the-seagull-woodstock-ny-review.html?sear
 `Laura Kavanagh, the first woman to lead the New York Fire Department, demoted several officials. In return, they accused her of putting residents at risk.`\
 https://nytimes.com/2023/02/28/nyregion/fdny-laura-kavanagh-lawsuit.html?searchResultPosition=7
 
-**Lawmakers Question Pentagon on Ukraine Funds, Signaling Fresh Doubts**\
+**Lawmakers Question Pentagon on Ukraine Funds, Signaling Fresh Concerns**\
 `Some Republicans and Democrats quizzed military officials about the money that has been sent to Kyiv so far and what is still to come, threatening a consensus in favor of aid.`\
 https://nytimes.com/2023/02/28/us/politics/ukraine-congress-military-spending-republicans-democrats.html?searchResultPosition=8
 
