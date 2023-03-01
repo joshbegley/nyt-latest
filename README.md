@@ -1,40 +1,40 @@
+**Intricate Enamel Pieces From a Storied Indian Jewelry Family**\
+`Plus: new ranges of medjool dates, floral-print bags for men and more from T’s cultural compendium.`\
+https://nytimes.com/2023/03/01/t-magazine/munnu-gem-palace-jewelry.html?searchResultPosition=1
+
+**Bad Dates Turn Out to Be Excellent on TikTok**\
+`In a corner of the platform sometimes known as #DatingTok, young women find comfort and cachet by turning dating mishaps into viral content.`\
+https://nytimes.com/2023/03/01/style/tiktok-dating-ghosting.html?searchResultPosition=2
+
+**A Homeless Student’s Search Sheds Light on L.A. Housing Challenges**\
+`Jacqueline Benitez thought getting a housing voucher would be a golden ticket to her own apartment. Her search quickly proved otherwise.`\
+https://nytimes.com/2023/03/01/us/a-homeless-students-search-sheds-light-on-la-housing-challenges.html?searchResultPosition=3
+
+**Why Are Ketamine Ads Following Me Around the Internet?**\
+`The rules around pharmaceutical advertising need a 21st-century update.`\
+https://nytimes.com/2023/03/01/opinion/ketamine-ads-depression-anxiety.html?searchResultPosition=4
+
+**Chief of a Democratic Super PAC Is Stepping Down**\
+`Guy Cecil has led Priorities USA since 2015 and will leave at the end of March, as outside political groups begin to make plans for the 2024 races.`\
+https://nytimes.com/2023/03/01/us/politics/priorities-usa-guy-cecil-biden.html?searchResultPosition=5
+
+**$700,000 Homes in New York, California and Maryland**\
+`A modern farmhouse in East Chatham, a Southwestern-style home in La Quinta and a combined pair of 1840 rowhouses in Baltimore.`\
+https://nytimes.com/2023/03/01/realestate/700000-homes-in-new-york-california-and-maryland.html?searchResultPosition=6
+
+**My Grandson Is a Deadbeat Dad. What Should I Do?**\
+`Distressed by her grandson’s failure to pay for the support of his daughter, a reader wonders whether she should try to engage with him — and his absenteeism.`\
+https://nytimes.com/2023/03/01/style/child-support-family-members.html?searchResultPosition=7
+
 **Eli Lilly Says It Will Cut the Price of Insulin**\
 `The company said it would cap the out-of-pocket cost of the diabetes drug at $35.`\
-https://nytimes.com/2023/03/01/business/insulin-price-cap-eli-lilly.html?searchResultPosition=1
+https://nytimes.com/2023/03/01/business/insulin-price-cap-eli-lilly.html?searchResultPosition=8
 
 **China’s Factories Report Surge in Activity After Lockdowns End**\
 `Manufacturing activity rose in February to its highest level in more than a decade, bolstering China’s recovery after restrictions paralyzed much of the country.`\
-https://nytimes.com/2023/03/01/business/china-factories-economy.html?searchResultPosition=2
+https://nytimes.com/2023/03/01/business/china-factories-economy.html?searchResultPosition=9
 
 **Jurors in Murdaugh Murder Trial to Visit S.C. Crime Scene**\
 `It is rare for jurors to visit crime scenes, and doing so can be a risk for both the prosecution and defense. Closing arguments were scheduled for later on Wednesday.`\
-https://nytimes.com/2023/03/01/us/alex-murdaugh-jury-visit.html?searchResultPosition=3
-
-**The Heat on Salesforce Grows Ahead of a Big Earnings Call**\
-`The software giant faces mounting pressure from activist investors and pushback from employees unhappy about a wave of firings and the scaling back of office perks.`\
-https://nytimes.com/2023/03/01/business/dealbook/benioff-salesforce-activist-investors-earnings.html?searchResultPosition=4
-
-**A Designer Creates a Secret Garden in a Dutch Former Factory**\
-`Valentin Loellmann shares his home with the trees that inspire his work.`\
-https://nytimes.com/2023/03/01/t-magazine/valentin-loellmann-garden-design.html?searchResultPosition=5
-
-**Chicago Votes for Change**\
-`After a crime surge, Chicago voters have ousted their current mayor.`\
-https://nytimes.com/2023/03/01/briefing/chicago-mayor-election.html?searchResultPosition=6
-
-**Port Chester, N.Y.: A ‘Tiny Little Village’ With a Lot of Development**\
-`With more than 2,800 new housing units approved in the last three years, ‘Port Chester is certainly on the move.’ Not everyone is happy about it.`\
-https://nytimes.com/2023/03/01/realestate/port-chester-ny-housing.html?searchResultPosition=7
-
-**Living In ... Port Chester, N.Y.**\
-`With more than 2,800 new housing units approved in the last three years, ‘Port Chester is certainly on the move.’ Not everyone is happy about it.`\
-https://nytimes.com/slideshow/2023/03/01/realestate/living-in-port-chester-ny.html?searchResultPosition=8
-
-**A Threat to Abortion Pills. Plus, the U.S. Shares Secrets.**\
-`A lawsuit could force the F.D.A. to revoke its approval of the two main drugs used for medication abortion in the United States.`\
-https://nytimes.com/2023/03/01/podcasts/abortion-pill-china-secret-intelligence.html?searchResultPosition=9
-
-**Why 1997 Was Fashion’s ‘It’ Year**\
-`From the arrival of John Galliano at Dior to the murder of Gianni Versace, a new museum show in Paris looks at how 1997 changed fashion — forever.`\
-https://nytimes.com/2023/03/01/style/fashion-1997-exhibition-palais-galleria-paris.html?searchResultPosition=10
+https://nytimes.com/2023/03/01/us/alex-murdaugh-jury-visit.html?searchResultPosition=10
 
