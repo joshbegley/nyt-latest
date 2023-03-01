@@ -1,5 +1,5 @@
 **N.Y.P.D. Fails to Appear at Hearing Over Contentious Policing Unit**\
-`The no-show infuriated City Council members scrutinizing the Strategic Response Group. The unit was criticized after racial-justice protests in 2020 turned violent.`\
+`The no-show infuriated City Council members scrutinizing the Strategic Response Group. The unit was criticized after it was deployed during the racial justice protests in 2020.`\
 https://nytimes.com/2023/03/01/nyregion/nypd-unit-george-floyd-protests.html?searchResultPosition=1
 
 **Foreign Adversaries Unlikely to Blame for Havana Syndrome, Intelligence Review Finds**\
