@@ -8,7 +8,7 @@ https://nytimes.com/interactive/2023/03/01/science/china-mars-rover-nasa.html?se
 
 **Why Brexit’s immigration politics have fizzled out**\
 `Did the Northern Ireland trade deal end Brexit politics with a whimper?`\
-https://nytimes.com/2023/03/01/world/europe/brexit-01interpreter-newsletter-onsite.html?searchResultPosition=3
+https://nytimes.com/2023/03/01/world/europe/brexit-immigration-eu.html?searchResultPosition=3
 
 **For Two Broadway Stars, a Love Story Blossoms in a Honky-Tonk Bar**\
 `The new musical “The Lonely Few,” starring Lauren Patten and Ciara Renée, puts a romance between two women at its very heart.`\
