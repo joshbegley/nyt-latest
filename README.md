@@ -2,7 +2,7 @@
 `“If there are any Fox viewers watching this — first off, I assume you’re looking for remote batteries. Try the junk drawer in the kitchen,” Colbert said.`\
 https://nytimes.com/2023/03/01/arts/television/stephen-colbert-fox-news.html?searchResultPosition=1
 
-**Train Crash in Greece Kills at Least 32**\
+**Train Crash in Greece Kills at Least 36**\
 `A train with 350 passengers aboard collided with a freight train. Two of the carriages “basically don’t exist anymore,” a regional governor said.`\
 https://nytimes.com/2023/03/01/world/europe/greece-train-crash.html?searchResultPosition=2
 
