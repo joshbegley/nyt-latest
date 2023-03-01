@@ -10,7 +10,7 @@ https://nytimes.com/2023/03/01/nyregion/nypd-kettling-blm-protests-settlement.ht
 `Despite scandal and controversy, David Mabuza remained in office for five years, only leaving once he had lost power within the governing African National Congress party.`\
 https://nytimes.com/2023/03/01/world/africa/david-mabuza-resignation-south-africa.html?searchResultPosition=3
 
-**Out-of-Control Tipping Is a Tech Problem**\
+**Tech Is Allowing Businesses to Overcharge You in Tips**\
 `Payment apps and touch screens have made it easy for merchants to ask us for preset gratuity amounts. We don’t need to succumb to the pressure.`\
 https://nytimes.com/2023/03/01/technology/personaltech/tipping-defaults-digital-payments.html?searchResultPosition=4
 
