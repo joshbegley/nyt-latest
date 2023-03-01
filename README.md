@@ -26,15 +26,15 @@ https://nytimes.com/2023/03/01/world/europe/greece-train-crash.html?searchResult
 `This word has appeared in 67 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2023/03/01/learning/word-of-the-day-extravagance.html?searchResultPosition=7
 
+**U.S. fears Lukashenko’s visit to China is strengthening ties between Russia’s closest allies.**\
+`By David Pierson`\
+https://nytimes.com/2023/03/01/world/europe/us-fears-lukashenkos-visit-to-china-is-strengthening-ties-between-russias-closest-allies.html?searchResultPosition=8
+
 **Nigeria Elects a New President**\
 `Bola Tinubu, a candidate from the All Progressives Congress party, was declared the winner of Nigeria’s presidential election.`\
-https://nytimes.com/video/world/africa/100000008791300/nigeria-election-tinubu.html?searchResultPosition=8
+https://nytimes.com/video/world/africa/100000008791300/nigeria-election-tinubu.html?searchResultPosition=9
 
 **Your Wednesday Briefing**\
 `Concerns about U.S. spending on aid to Ukraine.`\
-https://nytimes.com/2023/03/01/briefing/spending-ukraine-nigeria-election-israel.html?searchResultPosition=9
-
-**Man Arrested in Brazen Sidewalk Killing in St. Louis That Was Captured on Video**\
-`The morning shooting shocked many people who saw a roughly 45-second clip of the encounter.`\
-https://nytimes.com/2023/03/01/us/st-louis-man-shot.html?searchResultPosition=10
+https://nytimes.com/2023/03/01/briefing/spending-ukraine-nigeria-election-israel.html?searchResultPosition=10
 
