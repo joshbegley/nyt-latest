@@ -8,7 +8,7 @@ https://nytimes.com/2023/03/01/style/tiktok-dating-ghosting.html?searchResultPos
 
 **A Homeless Student’s Search Sheds Light on L.A. Housing Challenges**\
 `Jacqueline Benitez thought getting a housing voucher would be a golden ticket to her own apartment. Her search quickly proved otherwise.`\
-https://nytimes.com/2023/03/01/us/a-homeless-students-search-sheds-light-on-la-housing-challenges.html?searchResultPosition=3
+https://nytimes.com/2023/03/01/us/homeless-student-los-angeles-housing.html?searchResultPosition=3
 
 **Why Are Ketamine Ads Following Me Around the Internet?**\
 `The rules around pharmaceutical advertising need a 21st-century update.`\
