@@ -1,6 +1,6 @@
 **Board Denies Parole for Sirhan Sirhan, the Assassin of Robert F. Kennedy**\
 `The California parole board reversed course from its 2021 recommendation that Mr. Sirhan be released from prison. That decision was rejected by Gov. Gavin Newsom.`\
-https://nytimes.com/2023/03/01/us/sirhan-parole-board-kennedy.html?searchResultPosition=1
+https://nytimes.com/2023/03/01/us/sirhan-sirhan-parole-robert-kennedy.html?searchResultPosition=1
 
 **Maurizio Costanzo, Who Transformed Italian Talk Shows, Dies at 84**\
 `Praised by critics as the inventor of contemporary Italian television, he also used his position to take on the Sicilian Mafia, which tried to kill him.`\
