@@ -35,6 +35,6 @@ https://nytimes.com/2023/02/28/world/africa/nigeria-election-bola-tinubu.html?se
 https://nytimes.com/2023/02/28/world/canada/canada-elections-foreign-interference.html?searchResultPosition=9
 
 **Death Toll Climbs After Trains Collide in Greece**\
-`A train with about 350 passengers collided with a freight train near the city of Larissa in northern Greece. At least 29 people were killed, according to officials.`\
+`A train with about 350 passengers collided with a freight train near the city of Larissa in northern Greece.`\
 https://nytimes.com/video/world/europe/100000008791166/greece-train-crash.html?searchResultPosition=10
 
