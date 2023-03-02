@@ -2,7 +2,7 @@
 `Capt. Rebecca Hillman, who is charged with negligent homicide, didn’t believe the man was truly committing suicide at the Manhattan Detention Complex, prosecutors said.`\
 https://nytimes.com/2023/03/02/nyregion/new-york-corrections-captain-trial.html?searchResultPosition=1
 
-**‘Unjustifiable Delays’: Rail Safety Upgrade in Greece Is Long Overdue**\
+**‘Unjustifiable Delays’: Rail Safety Upgrade in Greece Stalled for Years**\
 `The technology would have automatically stopped trains before they collided. Years of delays and neglect have left Greece with a hobbled system.`\
 https://nytimes.com/2023/03/02/world/europe/greece-rail-safety.html?searchResultPosition=2
 
