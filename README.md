@@ -30,8 +30,8 @@ https://nytimes.com/2023/03/02/learning/whats-going-on-in-this-graph-march-8-202
 `Nina Katchadourian pairs her artwork and family heirlooms with some treasures from the collection founded by John Pierpont Morgan. The collaboration works.`\
 https://nytimes.com/2023/03/02/arts/design/nina-katchadourian-morgan-library.html?searchResultPosition=8
 
-**Wayne Shorter, Innovator During Era of Change in Jazz, Dies at 89**\
-`His career as an influential tenor saxophonist reached across more than half a century, tracking jazz’s complex evolution during that span.`\
+**Wayne Shorter, Innovator During an Era of Change in Jazz, Dies at 89**\
+`His career as an influential tenor saxophonist and composer reached across more than half a century, tracking jazz’s complex evolution during that span.`\
 https://nytimes.com/2023/03/02/arts/music/wayne-shorter-dead.html?searchResultPosition=9
 
 **Hubble Telescope Faces Threat From SpaceX and Other Companies’ Satellites**\
