@@ -34,7 +34,7 @@ https://nytimes.com/2023/03/02/t-magazine/olga-paris-cheese-bar.html?searchResul
 `The celebrated cellist capped a concert with the New York Philharmonic with a work that Pablo Casals often played to protest war and oppression.`\
 https://nytimes.com/2023/03/02/arts/music/yo-yo-ma-peace.html?searchResultPosition=9
 
-**Craig Green’s Inspirations: Paper Dolls and Art From a London Gay Bar**\
-`The British men’s wear designer with a utilitarian style pulls back the curtain on his creative process.`\
-https://nytimes.com/2023/03/02/t-magazine/craig-green-fashion.html?searchResultPosition=10
+**A Fresh Look at a Pioneering Black Voice of Revolutionary America**\
+`A new biography places the poet Phillis Wheatley in her own time — and in the middle of the current hot debate about the American Revolution and slavery.`\
+https://nytimes.com/2023/03/02/books/phillis-wheatley-david-waldstreicher.html?searchResultPosition=10
 
