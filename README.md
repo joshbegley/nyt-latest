@@ -11,7 +11,7 @@ https://nytimes.com/2023/03/02/world/asia/hong-kong-skyscraper-fire.html?searchR
 https://nytimes.com/2023/03/02/briefing/blinken-meeting-ukraine-russia-migrants-canada.html?searchResultPosition=3
 
 **E.P.A. Orders Train Operator to Test for Dioxins in Ohio Derailment**\
-`The order on Thursday evening came as officials from Norfolk Southern were expected at a public meeting in East Palestine, giving the community a chance to confront the company over the crash’s aftermath.`\
+`The order on Thursday came as officials from Norfolk Southern were expected at a public meeting in East Palestine, giving the community a chance to confront the company over the crash’s aftermath.`\
 https://nytimes.com/2023/03/02/us/politics/east-palestine-ohio-train-derailment.html?searchResultPosition=4
 
 **Fire Engulfs Skyscraper Under Construction in Hong Kong**\
