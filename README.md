@@ -1,5 +1,5 @@
-**Rail Safety System, Long Overdue in Greece, Was Designed to Prevent Crashes**\
-`The technological upgrade would have automatically stopped trains before they collided. Years of delays and neglect have left Greece with a hobbled system.`\
+**‘Unjustifiable Delays’: Rail Safety Upgrade in Greece Was Designed to Prevent Crashes**\
+`The technology would have automatically stopped trains before they collided. Years of delays and neglect have left Greece with a hobbled system.`\
 https://nytimes.com/2023/03/02/world/europe/greece-rail-safety.html?searchResultPosition=1
 
 **The Promise and Peril of Biden’s Climate Policy**\
