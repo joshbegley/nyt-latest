@@ -1,4 +1,4 @@
-**Nicaragua’s ‘Nazis’: Stunned Investigators Invoke Hitler’s Germany**\
+**Nicaragua’s ‘Nazis’: Stunned Investigators Cite Hitler’s Germany**\
 `A U.N. inquiry found that President Daniel Ortega and top members of his government committed human rights abuses, providing evidence for efforts to try them overseas.`\
 https://nytimes.com/2023/03/02/world/americas/nicaragua-human-rights-nazi-germany-un.html?searchResultPosition=1
 
