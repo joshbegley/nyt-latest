@@ -27,7 +27,7 @@ https://nytimes.com/2023/03/01/world/europe/blinken-g20-central-asia-trip.html?s
 https://nytimes.com/2023/03/01/us/politics/student-loan-debt-supreme-court-executive-power.html?searchResultPosition=7
 
 **Topeka Mayor’s Advice for Eric Adams: Learn Humility**\
-`Mayor Eric Adams said that God chose him to lead New York City, and not someplace like Topeka, Kan. The mayor of Topeka was not amused.`\
+`New York’s mayor said that God chose him to lead the nation’s largest city, and not someplace like Topeka, Kan. The mayor of Topeka was not amused.`\
 https://nytimes.com/2023/03/01/nyregion/eric-adams-topeka-kansas.html?searchResultPosition=8
 
 **Chicago Police Superintendent Steps Down After Mayor Lori Lightfoot’s Defeat**\
