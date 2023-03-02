@@ -22,8 +22,8 @@ https://nytimes.com/2023/03/01/health/opioid-victims-trial-georgia.html?searchRe
 `China is urging the start of peace talks, and some Group of 20 nations could support that idea when they gather in India, but U.S. officials argue Russia would not negotiate in good faith.`\
 https://nytimes.com/2023/03/01/world/europe/blinken-g20-central-asia-trip.html?searchResultPosition=6
 
-**Student Loan Case Could Reshape Presidential Politics**\
-`President Biden has tried to bypass gridlock in Congress by using executive power. The Supreme Court is skeptical, and could curb that authority.`\
+**Student Loan Case Could Redefine Limits of Presidential Power**\
+`It is not the first time that the Supreme Court has suggested that President Biden has overstepped his authority, but the case could curtail his ambitions.`\
 https://nytimes.com/2023/03/01/us/politics/student-loan-debt-supreme-court-executive-power.html?searchResultPosition=7
 
 **Topeka Mayor’s Advice for Eric Adams: Learn Humility**\
