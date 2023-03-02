@@ -1,6 +1,6 @@
 **Mayor of College Park, Md., Resigns Over Child Abuse Imagery Charges**\
 `Patrick L. Wojahn, who had served as the city’s mayor since 2015, was arrested on Thursday, the police said. He submitted a resignation letter on Wednesday night.`\
-https://nytimes.com/2023/03/02/us/college-park-mayor-resigns-child-pornography.html?searchResultPosition=1
+https://nytimes.com/2023/03/02/us/college-park-mayor-resigns-child-sexual-abuse.html?searchResultPosition=1
 
 **Bill to Make Daylight Saving Permanent Re-Emerges From the Dark**\
 `Senator Marco Rubio of Florida reintroduced legislation that would end the practice of turning clocks back one hour every November. The bill died in the House last year.`\
