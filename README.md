@@ -1,40 +1,40 @@
-**The History of Asian Actors at the Oscars**\
-`A record number of actors of Asian ancestry were recognized with Oscar nominations this year, led by Michelle Yeoh of “Everything Everywhere All at Once.” Historically, Asian stars have rarely been part of the Academy Awards.`\
-https://nytimes.com/interactive/2023/03/02/movies/oscars-asian-actors-history.html?searchResultPosition=1
+**Art Rooted in Nature Blooms at TEFAF**\
+`With works ranging from faux slime to hyper-realistic glass flowers, three artists examine our relationship to nature — and share hope along the way.`\
+https://nytimes.com/2023/03/02/arts/design/tefaf-nature-art.html?searchResultPosition=1
 
-**They Wanted a Two-Bedroom in Queens for $500,000 — Dishwasher Optional. Which Option Did They Buy?**\
-`For a couple of pizza lovers trying to buy their first home, finding a new place meant finding the right kitchen, even if it meant a renovation. Here were their choices.`\
-https://nytimes.com/interactive/2023/03/02/realestate/apartment-house-queens-ny.html?searchResultPosition=2
+**The Hotel Pennsylvania’s Great Disappearing Act**\
+`It was the largest hotel on earth, a virtual city within a city. They wrote a song about it. But in the end, none of this was enough to save it.`\
+https://nytimes.com/2023/03/02/nyregion/hotel-pennsylvania-nyc.html?searchResultPosition=2
 
-**36 Hours in Rio de Janeiro**\
-`There is perhaps no city as dazzling and full of life. Experience Rio’s irrepressible energy at a street samba party, or take it all in from a soaring mountain peak.`\
-https://nytimes.com/interactive/2023/03/02/travel/things-to-do-rio-de-janeiro.html?searchResultPosition=3
+**Why Willem Dafoe Can’t Slow Down**\
+`For nearly 50 years, the actor has made himself go toward places other artists hardly ever seek.`\
+https://nytimes.com/2023/03/02/t-magazine/willem-dafoe.html?searchResultPosition=3
 
-**Anger Mounts in Greece After Deadly Train Crash**\
-`As the death toll rose to 47, protesters clashed with the police outside the headquarters of the rail operator, and train employees went on strike.`\
-https://nytimes.com/2023/03/02/world/europe/greece-train-crash.html?searchResultPosition=4
+**A Ukrainian Mayor Disappeared, but Questions of His Loyalty Did Not**\
+`Traitor or hero? A decision by the former mayor of Kherson to remain in his post under Russian occupation has divided opinion, even after he vanished.`\
+https://nytimes.com/2023/03/02/world/europe/ukraine-kherson-mayor-russia.html?searchResultPosition=4
 
-**Intimate Encounters**\
-`Dries Van Noten and Olivier Rousteing of Balmain get personal.`\
-https://nytimes.com/2023/03/02/style/dries-van-noten-balmain-paris-fashion-week.html?searchResultPosition=5
+**‘I Don’t Take a Single Second for Granted’: Asian and Asian American Nominees on the Oscars**\
+`It was a record year for actors, but directors, musicians and other artists of Asian descent are also up for statuettes. We asked many of the contenders to reflect on their work.`\
+https://nytimes.com/2023/03/02/movies/oscar-nominees-asian-americans.html?searchResultPosition=5
 
-**How to Run a Fashion Magazine in China in 2023**\
-`Margaret Zhang, an Australian-born influencer, got the top role at Vogue China in 2021, making her the youngest Vogue editor ever. Will Condé Nast’s gamble pay off?`\
-https://nytimes.com/2023/03/02/style/vogue-china-margaret-zhang.html?searchResultPosition=6
+**Canadians Fume as Migrants Surge at Their Border**\
+`A surge in illegal crossings from the United States has led to calls to shut down a rural road on the Canadian border.`\
+https://nytimes.com/2023/03/02/world/canada/canada-migrants-immigration.html?searchResultPosition=6
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/03/02/crosswords/spelling-bee-forum.html?searchResultPosition=7
+**When Clothes Fly Off, This Intimacy Coordinator Steps In**\
+`Jessica Steinrock’s work on intimate scenes in film has come to prominence as the entertainment industry reels from the litany of sexual abuses brought to light by the #MeToo movement.`\
+https://nytimes.com/2023/03/02/business/intimacy-coordinator-sex-scenes-film-jessica-steinrock.html?searchResultPosition=7
 
-**As Storms Pummel California, Yosemite Valley Is Buried Deep in Snow**\
-`The accumulation has prompted the closing of Yosemite National Park. As crews worked to restore vital services, officials have not yet set a date for it to reopen.`\
-https://nytimes.com/2023/03/02/us/yosemite-national-park-closed-snow.html?searchResultPosition=8
+**Memphis, Through the Lens of Tyre Nichols**\
+`His photos, which he wrote were meant to “bring my viewers deep into what I am seeing,” reveal parts of the city some residents say they had forgotten.`\
+https://nytimes.com/2023/03/02/us/tyre-memphis-photos.html?searchResultPosition=8
 
-**Word of the Day: usurp**\
-`This word has appeared in 33 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/03/02/learning/word-of-the-day-usurp.html?searchResultPosition=9
+**The Art Fair Curators Love**\
+`TEFAF, the European Fine Art Fair, is beloved by museum pros. Four curators share their prized finds from Maastricht.`\
+https://nytimes.com/2023/03/02/arts/design/tefaf-museum-acquisitions.html?searchResultPosition=9
 
-**Late Night Gives the Lowdown on CPAC**\
-`“CPAC stands for ‘Clowns Periodically Assembling in Convention Centers,’” Jimmy Kimmel joked on Wednesday.`\
-https://nytimes.com/2023/03/02/arts/television/late-night-cpac.html?searchResultPosition=10
+**A Homecoming for Dutch Masters, Thanks to an American Billionaire**\
+`Last year, the Hermitage Amsterdam cut ties with Russia. This spring, they’re filling their walls with pieces from Thomas Kaplan’s treasure trove.`\
+https://nytimes.com/2023/03/02/arts/design/hermitage-amsterdam-leiden-collection.html?searchResultPosition=10
 
