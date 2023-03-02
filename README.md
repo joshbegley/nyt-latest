@@ -34,7 +34,7 @@ https://nytimes.com/2023/03/02/movies/gods-of-mexico-review.html?searchResultPos
 `As centenary events celebrate Simeon ten Holt’s work, music historians have questioned his omission from histories of Minimalism, and its focus on American greats.`\
 https://nytimes.com/2023/03/02/arts/music/simeon-ten-holt-minimalism.html?searchResultPosition=9
 
-**To Aid Mentally Ill New Yorkers, City Shifts Away From the Police**\
+**Street Teams and Clubhouses: A New Plan to Help Mentally Ill New Yorkers**\
 `In his latest plan to help people with severe mental illness, Mayor Eric Adams says the city will focus on sending more counselors and medical professionals into the streets, not police officers.`\
 https://nytimes.com/2023/03/02/nyregion/eric-adams-mental-illness-plan.html?searchResultPosition=10
 
