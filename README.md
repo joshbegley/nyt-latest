@@ -10,7 +10,7 @@ https://nytimes.com/2023/03/02/movies/palm-trees-and-power-lines-review.html?sea
 `Patrick L. Wojahn, who had served as the city’s mayor since 2015, was arrested on Thursday, the police said. He submitted a resignation letter on Wednesday night.`\
 https://nytimes.com/2023/03/02/us/college-park-mayor-resigns-child-sexual-abuse.html?searchResultPosition=3
 
-**Bill to Make Daylight Saving Permanent Re-Emerges From the Dark**\
+**Bill to Make Daylight Saving Permanent Re-emerges From the Dark**\
 `Senator Marco Rubio of Florida reintroduced legislation that would end the practice of turning clocks back one hour every November. The bill died in the House last year.`\
 https://nytimes.com/2023/03/02/us/politics/daylight-savings-bill-marco-rubio.html?searchResultPosition=4
 
