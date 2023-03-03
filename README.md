@@ -1,6 +1,6 @@
 **In Chernobyl’s Stray Dogs, Geneticists Find Nuclear Families**\
 `A new study is the first step in an effort to understand how exposure to chronic, low-level radiation has affected the area’s dogs.`\
-https://nytimes.com/2023/03/03/science/in-chernobyls-stray-dogs-geneticists-find-nuclear-families.html?searchResultPosition=1
+https://nytimes.com/2023/03/03/science/chernobyl-dogs-dna.html?searchResultPosition=1
 
 **Love Letter: ‘Maybe It Was a Bit Weird’**\
 `On their second date, he gave her his only olive.`\
