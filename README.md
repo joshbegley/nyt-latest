@@ -1,5 +1,5 @@
-**In Rare Conviction, Brooklyn Contractor Held Liable in Construction Death**\
-`The conviction came nearly five years after a worker was crushed to death by 15,000 pounds of building materials.`\
+**In Rare Conviction, Contractor Is Held Liable in Construction Death**\
+`The conviction came nearly five years after a worker was crushed to death by 15,000 pounds of building materials on a Brooklyn construction site.`\
 https://nytimes.com/2023/03/03/nyregion/brooklyn-homicide-construction-worker.html?searchResultPosition=1
 
 **Staten Island Man Sentenced to 18 Months in Prison for Attacks on Jews**\
