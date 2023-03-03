@@ -32,7 +32,7 @@ https://nytimes.com/interactive/2023/03/02/us/dc-weaponization-report.html?searc
 
 **G.O.P. Witnesses, Paid by Trump Ally, Embraced Jan. 6 Conspiracy Theories**\
 `Democrats said a trio of witnesses billed as “whistle-blowers” provided no evidence of wrongdoing, espoused false claims about the Capitol riot and were compensated by an ally of former President Donald J. Trump.`\
-https://nytimes.com/2023/03/02/us/politics/weaponization-panel-witnesses.html?searchResultPosition=9
+https://nytimes.com/2023/03/02/us/politics/house-weaponization-committee-jan-6.html?searchResultPosition=9
 
 **Corrections: March 3, 2023**\
 `Corrections that appeared in print on Friday, March 3, 2023.`\
