@@ -1,6 +1,6 @@
 **The U.S. attorney general meets with Zelensky during a surprise visit to Ukraine.**\
 `A major topic of talks was how to hold Russia accountable for any war crimes committed over the past year.`\
-https://nytimes.com/2023/03/03/world/europe/the-us-attorney-general-meets-with-zelensky-during-a-surprise-visit-to-ukraine.html?searchResultPosition=1
+https://nytimes.com/2023/03/03/world/europe/merrick-garland-ukraine-zelensky.html?searchResultPosition=1
 
 **Why the Student Debt Pause Became a Political Trap**\
 `Debtors have gotten out of the habit of making monthly payments.`\
