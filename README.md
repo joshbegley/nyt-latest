@@ -6,9 +6,9 @@ https://nytimes.com/2023/03/03/climate/the-coal-challenge.html?searchResultPosit
 `The company has been struggling with weak growth and has recently expanded its cost-cutting plans.`\
 https://nytimes.com/2023/03/03/business/amazon-second-headquarters.html?searchResultPosition=2
 
-**Media industry races to capitalize on interest in the trial.**\
-`By John Koblin`\
-https://nytimes.com/2023/03/03/us/media-industry-races-to-capitalize-on-interest-in-the-trial.html?searchResultPosition=3
+**The media industry raced to capitalize on interest in the trial.**\
+`Every so often, a trial seems to captivate the nation. This year, it was the Alex Murdaugh murder case.`\
+https://nytimes.com/2023/03/03/us/murdaugh-murders-trial-netflix-media.html?searchResultPosition=3
 
 **Five Horror Movies to Stream Now**\
 `This month’s picks are all thrillers, with scares coming from a single-family cult, a monster drug deal and other weirdness.`\
