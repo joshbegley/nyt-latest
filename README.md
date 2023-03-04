@@ -10,13 +10,13 @@ https://nytimes.com/2023/03/04/world/europe/ukraine-russia-war-bakhmut.html?sear
 `At the PEN America Literary Awards, David Sedaris, Judith Thurman and others discussed the role A.I. could play in literature.`\
 https://nytimes.com/2023/03/04/style/pen-america-awards.html?searchResultPosition=3
 
-**In West Bank, New Armed Groups Emerge, and Dormant Ones Stir**\
-`The small but influential Lions’ Den network has attracted young Palestinians disappointed by their leaders and angry at Israeli violence. Veteran fighters are restless, too.`\
-https://nytimes.com/2023/03/04/world/middleeast/west-bank-lions-den.html?searchResultPosition=4
-
 **They Shared Erotic Images in a Group Chat. The Fine: $17,000.**\
 `A couple in Singapore created a Telegram account where they posted risqué content for subscribers. They were convicted of violating nudity and obscenity laws.`\
-https://nytimes.com/2023/03/04/world/asia/singapore-telegram-couple.html?searchResultPosition=5
+https://nytimes.com/2023/03/04/world/asia/singapore-telegram-couple.html?searchResultPosition=4
+
+**In West Bank, New Armed Groups Emerge, and Dormant Ones Stir**\
+`The small but influential Lions’ Den network has attracted young Palestinians disappointed by their leaders and angry at Israeli violence. Veteran fighters are restless, too.`\
+https://nytimes.com/2023/03/04/world/middleeast/west-bank-lions-den.html?searchResultPosition=5
 
 **‘Dilbert’ Is Canceled but Cubicle Comedians Live On**\
 `They weren’t fans of the comic strip, which was recently dropped from hundreds of newspapers, but their work builds on the office grind as comic premise.`\
