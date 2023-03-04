@@ -1,4 +1,4 @@
-**Migrants’ Shipwreck Near Italy Claimed a Pro Athlete from Pakistan**\
+**Migrants’ Shipwreck Near Italy Claimed a Pro Athlete From Pakistan**\
 `Shahida Raza, a national soccer and field hockey player, wanted her disabled son to have a better life. The boat carrying her to Italy crashed just off the coast.`\
 https://nytimes.com/2023/03/04/world/europe/shahida-raza-pakistani-soccer-shipwreck-italy.html?searchResultPosition=1
 
