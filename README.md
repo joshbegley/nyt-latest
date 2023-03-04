@@ -26,8 +26,8 @@ https://nytimes.com/2023/03/04/opinion/wives-lives.html?searchResultPosition=6
 `After a gunman killed three students at Michigan State University in February, unlicensed “Spartan Strong” merchandise appeared for sale online. Experts said it’s part of a familiar pattern.`\
 https://nytimes.com/2023/03/04/us/michigan-state-shooting-fundraising-scam.html?searchResultPosition=7
 
-**Ford vs. Tesla: Guess Which One Is More Old-Fashioned**\
-`Why 120-year-old Ford is cooler than Tesla.`\
+**A 120-Year-Old Company Is Leaving Tesla in the Dust**\
+`Boring old Ford is proving to be a very modern company.`\
 https://nytimes.com/2023/03/04/opinion/ford-tesla-bluecruise-self-driving-remote-work.html?searchResultPosition=8
 
 **Does Gene Editing Have a Future in Reproductive Medicine?**\
