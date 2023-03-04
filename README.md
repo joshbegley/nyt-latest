@@ -7,7 +7,7 @@ https://nytimes.com/2023/03/03/movies/tom-sizemore-dead.html?searchResultPositio
 https://nytimes.com/2023/03/03/crosswords/daily-puzzle-2023-03-04.html?searchResultPosition=2
 
 **Pennsylvania Airport Closed After Suspicious Package Is Found in Checked Bag**\
-`The terminal at University Park Airport in State College, Pa., was evacuated on Friday night after a checked bag on its way to Chicago was flagged, officials said.`\
+`The terminal at University Park Airport in State College, Pa., was evacuated on Friday night. Officials later said that there was nothing hazardous inside the bag.`\
 https://nytimes.com/2023/03/03/us/airport-evacuation-suspicious-item-pennsylvania.html?searchResultPosition=3
 
 **In Southern California, Snow Has Trapped People for Days**\
