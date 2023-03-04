@@ -1,5 +1,5 @@
 **Gordon Pinsent, Actor Known for Playing Twinkle-Eyed Rogues, Dies at 92**\
-`Frustrated in Hollywood but celebrated in Canada, he drew praise late in life for his performance opposite Julie Christie in “Away From Her.”`\
+`Frustrated in Hollywood but celebrated in Canada, he drew widespread praise late in life for his performance opposite Julie Christie in “Away From Her.”`\
 https://nytimes.com/2023/03/04/arts/gordon-pinsent-dead.html?searchResultPosition=1
 
 **At Least 12 Dead After Storms Sweep the South**\
