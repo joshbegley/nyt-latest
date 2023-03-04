@@ -11,7 +11,7 @@ https://nytimes.com/2023/03/04/business/biden-buffett-debate-share-buybacks.html
 https://nytimes.com/2023/03/04/world/europe/ukraine-helicopters-russia.html?searchResultPosition=3
 
 **Station Manager Faces Court, but Greeks See a Scapegoat for Official Neglect**\
-`Rail workers say that a key signal light was always stuck on red, and that station managers only warned one another of oncoming trains via walkie-talkie.`\
+`After a deadly train crash, rail workers said that a key signal light was always stuck on red, and that station managers only warned one another of oncoming trains via walkie-talkie.`\
 https://nytimes.com/2023/03/04/world/europe/greek-crash-station-manager-court.html?searchResultPosition=4
 
 **Provincial Governor Is Fatally Shot in the Philippines**\
