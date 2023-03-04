@@ -1,4 +1,4 @@
-**Fight for Ukrainian City of Bakhmut, After 7 Months, Becomes a Battle Over Roads**\
+**With Ukraine Under Pressure in Bakhmut, Fight Becomes a Battle Over Roads**\
 `Ukraine’s military said that Russia was continuing its efforts to encircle the city but that it had beaten back several attacks.`\
 https://nytimes.com/2023/03/04/world/europe/ukraine-russia-war-bakhmut.html?searchResultPosition=1
 
