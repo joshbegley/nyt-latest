@@ -1,5 +1,5 @@
 **Station Manager Faces Court but Greeks See a Scapegoat for Official Neglect**\
-`Rail workers say that a key signal light was always stuck on red, and that stations managers only warned one another of oncoming trains via walkie-talkie.`\
+`Rail workers say that a key signal light was always stuck on red, and that station managers only warned one another of oncoming trains via walkie-talkie.`\
 https://nytimes.com/2023/03/04/world/europe/greek-crash-station-manager-court.html?searchResultPosition=1
 
 **Provincial Governor Is Fatally Shot in the Philippines**\
