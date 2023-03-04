@@ -1,40 +1,40 @@
-**Migrants’ Shipwreck Near Italy Claimed a Pro Athlete From Pakistan**\
-`Shahida Raza, a national soccer and field hockey player, wanted her disabled son to have a better life. The boat carrying her to Italy crashed just off the coast.`\
-https://nytimes.com/2023/03/04/world/europe/shahida-raza-pakistani-soccer-shipwreck-italy.html?searchResultPosition=1
+**Could the Next Great Author Be a Robot? We Asked (Human) Writers.**\
+`At the PEN America Literary Awards, David Sedaris, Judith Thurman and others discussed the role A.I. could play in literature.`\
+https://nytimes.com/2023/03/04/style/pen-america-awards.html?searchResultPosition=1
 
-**The Woman Shaking Up Italian Politics (No, Not the New Prime Minister)**\
-`Daughter of Italian and Jewish American parents, Elly Schlein wants to remake the center-left opposition to Giorgia Meloni, if only her party can survive it.`\
-https://nytimes.com/2023/03/04/world/europe/elly-schlein-italy.html?searchResultPosition=2
+**In West Bank, New Armed Groups Emerge, and Dormant Ones Stir**\
+`The small but influential Lions’ Den network has attracted young Palestinians disappointed by their leaders and angry at Israeli violence. Veteran fighters are restless, too.`\
+https://nytimes.com/2023/03/04/world/middleeast/west-bank-lions-den.html?searchResultPosition=2
 
-**Retailers Lay Out a Downbeat Outlook as Inflation Squeezes Low-Income Shoppers**\
-`Despite better-than-expected earnings, retail executives predict that any sales growth will be much smaller than in years past.`\
-https://nytimes.com/2023/03/04/business/retail-inflation-sales.html?searchResultPosition=3
+**They Shared Erotic Images in a Group Chat. The Fine: $17,000.**\
+`A couple in Singapore created a Telegram account where they posted risqué content for subscribers. They were convicted of violating nudity and obscenity laws.`\
+https://nytimes.com/2023/03/04/world/asia/singapore-telegram-couple.html?searchResultPosition=3
 
-**Diplomat Who Faced Brexit Freeze in U.K. Now Sees a ‘New Beginning’**\
-`As the European Union’s first ambassador in London, João Vale de Almeida had to fight even for official recognition. Prime Minister Rishi Sunak and the Windsor Framework are changing things, he says.`\
-https://nytimes.com/2023/03/04/world/europe/uk-eu-northern-ireland.html?searchResultPosition=4
+**‘Dilbert’ Is Canceled but Cubicle Comedians Live On**\
+`They weren’t fans of the comic strip, which was recently dropped from hundreds of newspapers, but their work builds on the office grind as comic premise.`\
+https://nytimes.com/2023/03/04/business/dilbert-tiktok-office-humor.html?searchResultPosition=4
 
-**A Times TV Critic Feels Authenticity Is His Top Responsibility**\
-`James Poniewozik, chief TV critic at The Times, explains why HBO’s zombie series “The Last of Us” intrigued him and reveals why he avoids ‘self-editing.’`\
-https://nytimes.com/2023/03/04/insider/a-times-tv-critic-feels-authenticity-is-his-top-responsibility.html?searchResultPosition=5
+**How a Makeup Artist Spends Her Sundays**\
+`Originally from Milan, Angie Valentino honors her Italian heritage with flare in New York City.`\
+https://nytimes.com/2023/03/04/nyregion/angie-valentino-makeup-artist.html?searchResultPosition=5
 
-**Your Pristine Hermès Bag, to Some, Looks Tacky**\
-`As a growing resale market has made the brand’s handbags available to more people, some say the image that they convey depends on their condition.`\
-https://nytimes.com/2023/03/04/style/hermes-bags-resale-used.html?searchResultPosition=6
+**A New Front Line in the Debate Over Policing: a Forest Near Atlanta**\
+`Six weeks after a protester was shot and killed, officials are bracing for more confrontations with activists seeking to stop a police and fire training center.`\
+https://nytimes.com/2023/03/04/us/cop-city-atlanta-police-training.html?searchResultPosition=6
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/03/04/crosswords/spelling-bee-forum.html?searchResultPosition=7
+**Time Has Been Codified and Commodified. Jenny Odell Wants to Set It Free**\
+`First Jenny Odell examined our obsession with productivity. Now she’s turned to our relationship with time — and what happens when you remove the grid.`\
+https://nytimes.com/2023/03/04/books/time-jenny-odell-.html?searchResultPosition=7
 
-**3 Children Are Killed and 2 Others Are Wounded in Town Near Dallas**\
-`The killings occurred on Friday in Italy, Texas, and a suspect is in custody, the Ellis County Sheriff’s Office said.`\
-https://nytimes.com/2023/03/04/us/texas-children-killed.html?searchResultPosition=8
+**How the Fall of Roe Turned North Carolina Into an Abortion Destination**\
+`The state, surrounded by neighbors with abortion bans and restrictions, has had a 37 percent rise in abortions since the constitutional right to abortion was overturned.`\
+https://nytimes.com/2023/03/04/business/abortion-north-carolina.html?searchResultPosition=8
 
-**Corrections: March 4, 2023**\
-`Corrections that appeared in print on Saturday, March 4, 2023.`\
-https://nytimes.com/2023/03/04/pageoneplus/corrections-march-4-2023.html?searchResultPosition=9
+**Remember Pamela Smart? ‘To Die For’ Convict Now Seeks Mercy.**\
+`The woman who became a national sensation in 1990 after her teenage lover killed her husband has become a prison preacher. She hopes New Hampshire will set her free.`\
+https://nytimes.com/2023/03/04/nyregion/pamela-smart-husband-killing-clemency.html?searchResultPosition=9
 
-**Quotation of the Day: Amazon Pauses Work on Campus in Virginia**\
-`Quotation of the Day for Saturday, March 4, 2023.`\
-https://nytimes.com/2023/03/04/pageoneplus/quotation-of-the-day-amazon-pauses-work-on-campus-in-virginia.html?searchResultPosition=10
+**Migrants Risk It All on ‘La Bestia’**\
+`It doesn’t have to be this way.`\
+https://nytimes.com/2023/03/04/opinion/venezuelan-migrants-border-la-bestia.html?searchResultPosition=10
 
