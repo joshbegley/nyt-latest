@@ -26,7 +26,7 @@ https://nytimes.com/2023/03/04/opinion/credit-card-rewards-points-poor-interchan
 `For the parents and the grandparents of the children who were killed as they slept at a rural day care, coming to terms with the tragedy has been an impossible task.`\
 https://nytimes.com/2023/03/04/world/asia/thailand-daycare-massacre.html?searchResultPosition=7
 
-**The Trillion Dollar Debate Over Share Buybacks**\
+**The Trillion-Dollar Debate Over Share Buybacks**\
 `The White House is at odds with business leaders over share repurchase programs. DealBook digs into the numbers to see who’s gaining from the practice.`\
 https://nytimes.com/2023/03/04/business/biden-buffett-debate-share-buybacks.html?searchResultPosition=8
 
