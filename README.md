@@ -28,7 +28,7 @@ https://nytimes.com/2023/03/04/us/politics/donald-trump-campaign-2024.html?searc
 
 **After China’s Winter of Discontent, Xi Jinping Sets Sights on Growth and Power**\
 `China’s government said it expected the economy to grow “around 5 percent” this year. A meeting of the top legislature will reinforce Mr. Xi’s grip on power.`\
-https://nytimes.com/2023/03/04/world/asia/heres-the-latest-on-the-national-peoples-congress-in-china.html?searchResultPosition=8
+https://nytimes.com/2023/03/04/world/asia/china-xi-jinping-congress.html?searchResultPosition=8
 
 **Marianne Williamson Kicks Off 2024 Presidential Campaign**\
 `Marianne Williamson, the self-help author who ended her 2020 bid weeks before the first votes were cast, announced that she would once again run for president.`\
