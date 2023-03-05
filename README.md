@@ -14,13 +14,13 @@ https://nytimes.com/2023/03/05/business/remote-work-personality-tests.html?searc
 `When the summer tourist season ends in Put-in-Bay, an island on Lake Erie, the residents turn to the ice for fun and to earn a living. What happens when the lake refuses to freeze?`\
 https://nytimes.com/2023/03/05/us/put-in-bay-ohio-ice.html?searchResultPosition=4
 
-**As Trump Inquiry Continues, Republicans Seek Oversight of Georgia Prosecutors**\
-`The proposals are part of a broader push by conservative lawmakers around the country to rein in district attorneys whom they consider too liberal.`\
-https://nytimes.com/2023/03/05/us/as-trump-inquiry-continues-republicans-seek-oversight-of-georgia-prosecutors.html?searchResultPosition=5
-
 **U.S. Sanctions Relief for Syrian Regime Troubles Assad Opponents**\
 `Washington has temporarily eased sanctions on the authoritarian government of President Bashar al-Assad to allow humanitarian aid to flow freely after a disastrous earthquake struck Syria.`\
-https://nytimes.com/2023/03/05/world/middleeast/us-syria-assad-sanctions.html?searchResultPosition=6
+https://nytimes.com/2023/03/05/world/middleeast/us-syria-assad-sanctions.html?searchResultPosition=5
+
+**As Trump Inquiry Continues, Republicans Seek Oversight of Georgia Prosecutors**\
+`The proposals are part of a broader push by conservative lawmakers around the country to rein in district attorneys whom they consider too liberal.`\
+https://nytimes.com/2023/03/05/us/as-trump-inquiry-continues-republicans-seek-oversight-of-georgia-prosecutors.html?searchResultPosition=6
 
 **Heads Up: A Better Movie Seat May Cost You**\
 `As the film business changes rapidly, multiplexes are experimenting with prices in ways that may seem shocking to theatergoers.`\
