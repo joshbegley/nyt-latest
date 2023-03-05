@@ -1,5 +1,5 @@
 **Larry Hogan Says He Will Not Run for President**\
-`Pointing to Trump and DeSantis, Mr. Hogan, the former Maryland governor, says he saw little room to climb in the polls.`\
+`Mr. Hogan, the former Maryland governor and longtime Trump critic, said he saw little room to gain support and did not want a large candidate field that could help Mr. Trump win the 2024 Republican primary.`\
 https://nytimes.com/2023/03/05/us/politics/larry-hogan-president-not-running.html?searchResultPosition=1
 
 **In Florida Legislative Session, a Chance for DeSantis to Check Off His Wish List**\
