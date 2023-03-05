@@ -3,7 +3,7 @@
 https://nytimes.com/2023/03/05/arts/chris-rock-will-smith-netflix-oscars-slap.html?searchResultPosition=1
 
 **Nations Agree on Language for Historic Treaty to Protect Ocean Life**\
-`The United Nations agreement is a significant step toward protecting biodiversity under growing threat from climate change, overfishing and mining of seabeds.`\
+`The United Nations agreement is a significant step toward protecting biodiversity under growing threat from climate change, overfishing and seabed mining.`\
 https://nytimes.com/2023/03/04/climate/united-nations-treaty-oceans-biodiversity.html?searchResultPosition=2
 
 **Fact-Checking Trump’s Speech at CPAC**\
