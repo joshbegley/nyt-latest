@@ -3,7 +3,7 @@
 https://nytimes.com/2023/03/04/world/asia/china-2023-gdp-target.html?searchResultPosition=1
 
 **Trump Says He Would Stay in 2024 Race if Indicted**\
-`Donald Trump says he “wouldn’t even think about” dropping out of the race for the White House if he’s indicted. The former president has increasingly used his campaign as a cudgel against investigators.`\
+`Donald Trump said he “wouldn’t even think about” dropping out of the race for the White House if he’s indicted. The former president has increasingly used his campaign as a cudgel against investigators.`\
 https://nytimes.com/2023/03/04/us/politics/donald-trump-campaign-2024.html?searchResultPosition=2
 
 **Marianne Williamson Kicks Off 2024 Presidential Campaign**\
