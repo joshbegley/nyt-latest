@@ -1,36 +1,40 @@
-**‘S.N.L.’ Imagines How ‘Fox & Friends’ Might Cover the Dominion Suit**\
-`The cast and writers stepped in to fill the gap in Fox News’s coverage of its own election lies scandal, in an episode hosted by Travis Kelce.`\
-https://nytimes.com/2023/03/05/arts/television/snl-fox-news-dominion-travis-kelce.html?searchResultPosition=1
+**The $2 Billion Question of Who You Are at Work**\
+`Employers are finding personality tests — measuring how employees think and feel — more useful than ever while navigating hybrid work. But the tests are not always up-to-date.`\
+https://nytimes.com/2023/03/05/business/remote-work-personality-tests.html?searchResultPosition=1
 
-**Corrections: March 5, 2023**\
-`Corrections that appeared in print on Sunday, March 5, 2023.`\
-https://nytimes.com/2023/03/05/pageoneplus/corrections-march-5-2023.html?searchResultPosition=2
+**This Ohio Island Has a Problem: There’s No Ice**\
+`When the summer tourist season ends in Put-in-Bay, an island on Lake Erie, the residents turn to the ice for fun and to earn a living. What happens when the lake refuses to freeze?`\
+https://nytimes.com/2023/03/05/us/put-in-bay-ohio-ice.html?searchResultPosition=2
 
-**Quotation of the Day: Greeks Say Government Should Share Blame for a Deadly Train Crash**\
-`Quotation of the Day for Sunday, March 5, 2023.`\
-https://nytimes.com/2023/03/05/pageoneplus/quotation-of-the-day-greeks-say-government-should-share-blame-for-a-deadly-train-crash.html?searchResultPosition=3
+**As Trump Inquiry Continues, Republicans Seek Oversight of Georgia Prosecutors**\
+`The proposals are part of a broader push by conservative lawmakers around the country to rein in district attorneys whom they consider too liberal.`\
+https://nytimes.com/2023/03/05/us/as-trump-inquiry-continues-republicans-seek-oversight-of-georgia-prosecutors.html?searchResultPosition=3
 
-**Chris Rock Mocks Will Smith in Live Netflix Special, Addressing Oscars Slap**\
-`Nearly a year after Smith smacked the comedian across the face at the Academy Awards, Rock gave the stunning episode the full stand-up treatment.`\
-https://nytimes.com/2023/03/05/arts/chris-rock-will-smith-netflix-oscars-slap.html?searchResultPosition=4
+**U.S. Sanctions Relief for Syrian Regime Troubles Assad Opponents**\
+`Washington has temporarily eased sanctions on the authoritarian government of President Bashar al-Assad to allow humanitarian aid to flow freely after a disastrous earthquake struck Syria.`\
+https://nytimes.com/2023/03/05/world/middleeast/us-syria-assad-sanctions.html?searchResultPosition=4
 
-**Nations Agree on Language for Historic Treaty to Protect Ocean Life**\
-`The United Nations agreement is a significant step toward protecting biodiversity under growing threat from climate change, overfishing and seabed mining.`\
-https://nytimes.com/2023/03/04/climate/united-nations-treaty-oceans-biodiversity.html?searchResultPosition=5
+**Heads Up: A Better Movie Seat May Cost You**\
+`As the film business changes rapidly, multiplexes are experimenting with prices in ways that may seem shocking to theatergoers.`\
+https://nytimes.com/2023/03/05/business/media/movie-theaters-ticket-prices.html?searchResultPosition=5
 
-**Fact-Checking Trump’s Speech at CPAC**\
-`The former president made inaccurate claims about the murder rate in New York, the withdrawal from Afghanistan and windmills at a conservative conference.`\
-https://nytimes.com/2023/03/04/us/politics/fact-check-trump-cpac.html?searchResultPosition=6
+**Why the N.Y. Metro Area Is Seeing an Explosive Growth in Electric Cars**\
+`Ownership rates of electric cars have more than doubled in New York City and the surrounding area, propelled by more varied models, more public charging stations and the fact they are now cheaper.`\
+https://nytimes.com/2023/03/05/nyregion/electric-vehicles-cars-nyc.html?searchResultPosition=6
 
-**China Says Its Economy Will Expand About 5 Percent, a Cautious Target**\
-`Last year China’s economy grew 3 percent, one of its worst performances. Now leaders are expecting a revival, but it will rely partly on public spending.`\
-https://nytimes.com/2023/03/04/world/asia/china-2023-gdp-target.html?searchResultPosition=7
+**Patrolling The Times**\
+`A security officer recalls four decades of incidents around the headquarters, including a whack from John Houseman’s cane.`\
+https://nytimes.com/2023/03/05/insider/patrolling-the-times.html?searchResultPosition=7
 
-**Trump Says He Would Stay in 2024 Race if Indicted**\
-`Donald Trump said he “wouldn’t even think about” dropping out of the race for the White House if he’s indicted. The former president has increasingly used his campaign as a cudgel against investigators.`\
-https://nytimes.com/2023/03/04/us/politics/donald-trump-campaign-2024.html?searchResultPosition=8
+**‘When the F Train I Was on Got to West Fourth, I Stopped Reading’**\
+`A familiar melody, a skill comes in handy and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2023/03/05/nyregion/metropolitan-diary.html?searchResultPosition=8
 
-**After China’s Winter of Discontent, Xi Jinping Sets Sights on Growth and Power**\
-`China’s government said it expected the economy to grow “around 5 percent” this year. A meeting of the top legislature will reinforce Mr. Xi’s grip on power.`\
-https://nytimes.com/2023/03/04/world/asia/china-xi-jinping-congress.html?searchResultPosition=9
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2023/03/05/crosswords/spelling-bee-forum.html?searchResultPosition=9
+
+**Are You a Cubicle Cat or a Couch Koala? Test Your Office Personality.**\
+`Personality assessment has ballooned into a giant industry that aims to explain your working style. Take our quiz to find out what kind of office creature you are.`\
+https://nytimes.com/2023/03/05/business/are-you-a-cubicle-cat-or-a-couch-koala-test-your-office-personality.html?searchResultPosition=10
 
