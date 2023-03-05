@@ -18,7 +18,7 @@ https://nytimes.com/2023/03/05/business/remote-work-personality-tests.html?searc
 `When the summer tourist season ends in Put-in-Bay, an island on Lake Erie, the residents turn to the ice for fun and to earn a living. What happens when the lake refuses to freeze?`\
 https://nytimes.com/2023/03/05/us/put-in-bay-ohio-ice.html?searchResultPosition=5
 
-**U.S. Sanctions Relief for Syrian Regime Troubles Assad Opponents**\
+**U.S. Sanctions Relief for Syria Troubles Assad Regime Opponents**\
 `Washington has temporarily eased sanctions on the authoritarian government of President Bashar al-Assad to allow humanitarian aid to flow freely after a disastrous earthquake struck Syria.`\
 https://nytimes.com/2023/03/05/world/middleeast/us-syria-assad-sanctions.html?searchResultPosition=6
 
