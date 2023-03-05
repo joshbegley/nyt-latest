@@ -14,17 +14,17 @@ https://nytimes.com/2023/03/05/us/tennessee-law-drag-shows.html?searchResultPosi
 `Scientists say that reintroducing the fast-moving predators to the West Coast could help control the spread of sea urchins that are devouring kelp.`\
 https://nytimes.com/2023/03/05/science/sunflower-sea-stars-urchins.html?searchResultPosition=4
 
+**Using A.I. to Detect Breast Cancer That Doctors Miss**\
+`Hungary has become a major testing ground for A.I. software to spot cancer, as doctors debate whether the technology will replace them in medical jobs.`\
+https://nytimes.com/2023/03/05/technology/artificial-intelligence-breast-cancer-detection.html?searchResultPosition=5
+
 **A Tangled Tale of Gun Parts, Identity Theft and the Ease of Buy Now, Pay Later**\
 `Seung Song said his identity was stolen and used to buy $5,000 worth of gun components from an online dealer using a buy now, pay later service.`\
-https://nytimes.com/2023/03/05/business/gun-parts-identity-theft-buy-now-pay-later.html?searchResultPosition=5
+https://nytimes.com/2023/03/05/business/gun-parts-identity-theft-buy-now-pay-later.html?searchResultPosition=6
 
 **The Maddux Brothers Want Their Pitchers to Laugh**\
 `Mike and Greg Maddux are keeping things light — very light — while rebuilding the Texas Rangers pitching staff through fundamentals and fielding drills.`\
-https://nytimes.com/2023/03/05/sports/baseball/greg-mike-maddux-rangers.html?searchResultPosition=6
-
-**Using A.I. to Detect Breast Cancer That Doctors Miss**\
-`Hungary has become a major testing ground for A.I. software to spot cancer, as doctors debate whether the technology will replace them in medical jobs.`\
-https://nytimes.com/2023/03/05/technology/artificial-intelligence-breast-cancer-detection.html?searchResultPosition=7
+https://nytimes.com/2023/03/05/sports/baseball/greg-mike-maddux-rangers.html?searchResultPosition=7
 
 **Biden to Address Voting Rights on ‘Bloody Sunday’ Anniversary in Selma**\
 `The president is expected to emphasize that securing civil rights for Black Americans includes the fight to protect ballot access.`\
