@@ -18,7 +18,7 @@ https://nytimes.com/2023/03/06/nyregion/eric-adams-theft-masks-nyc.html?searchRe
 `After Alex Murdaugh’s trial ended in a conviction for the murders of his wife and son, his older brother Randy is still trying to understand what happened that night.`\
 https://nytimes.com/2023/03/06/us/alex-murdaugh-brother-randy.html?searchResultPosition=6
 
-**How Tennis and Team Djokovic Are Pushing to Get Him Into the U.S.**\
+**How Tennis and Djokovic Are Pushing Against the U.S. Covid Vaccine Rule**\
 `Djokovic, the world No. 1, who is unvaccinated against Covid-19, has lobbied the Biden administration for an exemption so he can play at Indian Wells and the Miami Open. So far, he has come up short.`\
 https://nytimes.com/2023/03/06/sports/tennis/djokovic-biden-miami-open-covid-vaccine.html?searchResultPosition=7
 
