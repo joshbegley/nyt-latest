@@ -1,6 +1,6 @@
 **With Stories of Her Oppressed Community, a Journalist Takes Aim at the Walls of Caste**\
 `Meena Kotwal started a news outlet focused on Dalit and other marginalized groups in India, hoping that telling their stories will help improve their lives.`\
-https://nytimes.com/2023/03/06/world/asia/with-stories-of-her-oppressed-community-a-journalist-takes-aim-at-the-walls-of-caste.html?searchResultPosition=1
+https://nytimes.com/2023/03/06/world/asia/india-caste-discrimination-dalit-journalist-mooknayak.html?searchResultPosition=1
 
 **Maryse Condé, at Home in the World**\
 `Throughout her four-decade literary career, the Guadeloupean writer has explored a global vision of the Black diaspora, and placed Caribbean life at the center.`\
