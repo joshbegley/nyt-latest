@@ -12,7 +12,7 @@ https://nytimes.com/2023/03/06/world/europe/he-heeded-russias-call-to-enlist-fiv
 
 **‘Baltimore Was Waiting on Him’**\
 `Adley Rutschman led the Orioles to a winning record last year, and he may already be the American League’s best catcher. But he and his team are just getting started.`\
-https://nytimes.com/2023/03/06/sports/baseball/baltimore-was-waiting-on-him.html?searchResultPosition=4
+https://nytimes.com/2023/03/06/sports/baseball/adley-rutschman-orioles.html?searchResultPosition=4
 
 **Watch Cate Blanchett Break Down in ‘Tár’**\
 `The writer and director Todd Field narrates an emotional moment from his film, which stars Cate Blanchett and is nominated for six Oscars.`\
