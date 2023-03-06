@@ -1,6 +1,6 @@
 **U.S. Is Said to Consider Reinstating Detention of Migrant Families**\
 `President Biden has turned to increasingly restrictive measures as his administration prepares for the end of Title 42, which has allowed border authorities to swiftly expel migrants.`\
-https://nytimes.com/2023/03/06/us/politics/immigration-family-detention.html?searchResultPosition=1
+https://nytimes.com/2023/03/06/us/politics/biden-immigration-family-detention.html?searchResultPosition=1
 
 **The Rumored ‘Vanderpump Rules’ Affair, Explained**\
 `Word of a cheating scandal involving the cast members of a Bravo reality television show has taken the internet by storm.`\
