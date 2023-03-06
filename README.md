@@ -1,40 +1,40 @@
-**Estonia Election Delivers Vote of Confidence for Ukraine Aid**\
-`The party of Prime Minister Kaja Kallas, who has pushed the West to send more weapons to Kyiv and impose tougher penalties on Moscow, took about double the tally of the second-place finisher.`\
-https://nytimes.com/2023/03/06/world/europe/estonia-election.html?searchResultPosition=1
+**With Stories of Her Oppressed Community, a Journalist Takes Aim at the Walls of Caste**\
+`Meena Kotwal started a news outlet focused on Dalit and other marginalized groups in India, hoping that telling their stories will help improve their lives.`\
+https://nytimes.com/2023/03/06/world/asia/with-stories-of-her-oppressed-community-a-journalist-takes-aim-at-the-walls-of-caste.html?searchResultPosition=1
 
-**Ukrainian Soldiers, Nearly Encircled, Push Russians Back**\
-`The battle for Bakhmut is not over — at least not yet. Ukrainian assault brigades offered Moscow a bloody reminder of that over the weekend.`\
-https://nytimes.com/2023/03/06/world/europe/ukraine-bakhmut-battle.html?searchResultPosition=2
+**Maryse Condé, at Home in the World**\
+`Throughout her four-decade literary career, the Guadeloupean writer has explored a global vision of the Black diaspora, and placed Caribbean life at the center.`\
+https://nytimes.com/2023/03/06/books/maryse-conde-books.html?searchResultPosition=2
 
-**An Ex-D.J. Has a Housing Voucher. He Still Can’t Find a Home.**\
-`Facing eviction, a former D.J. agreed to leave his apartment after a housing nonprofit offered assistance. Now he’s sleeping on the floor in an illegal squat.`\
-https://nytimes.com/2023/03/06/nyregion/homelessness-housing-voucher.html?searchResultPosition=3
+**The Happy Warriors of CPAC Seemed Less Than Happy This Year**\
+`At the four-day conclave of MAGA conservatives, only former President Trump provided a jolt of excitement.`\
+https://nytimes.com/2023/03/06/opinion/cpac-trump-republicans.html?searchResultPosition=3
 
-**You’re Now a ‘Manager.’ Forget About Overtime Pay.**\
-`New evidence shows that many employers are mislabeling rank-and-file workers as managers to avoid paying them overtime.`\
-https://nytimes.com/2023/03/06/business/economy/managers-overtime-pay.html?searchResultPosition=4
+**When War Came to Ukraine, She Took Up a Diary and a Camera**\
+`In photographs and journal entries, Yevgenia Belorusets captures Kyiv in the early days of Russia’s invasion.`\
+https://nytimes.com/2023/03/06/books/yevgenia-belorusets-war-diary.html?searchResultPosition=4
 
-**The MAGA-fication of North Idaho College**\
-`G.O.P. activists set out of root out the “deep state” at home. An Idaho community college may never be the same.`\
-https://nytimes.com/2023/03/06/us/politics/north-idaho-college-republicans.html?searchResultPosition=5
+**A Deep Pac-12 May Soon Have a Sea Change**\
+`Washington State won the Pac-12 women’s basketball tournament as the No. 7 seed, the latest sign of parity in a league once ruled by Stanford. But realignment looms.`\
+https://nytimes.com/2023/03/06/sports/ncaabasketball/pac12-tournament-washington-state-ucla.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/03/06/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**The Curious Rise of a Supreme Court Doctrine That Threatens Biden’s Agenda**\
+`The “major questions doctrine,” promoted by conservative commentators, is of recent vintage but has enormous power and may doom student loan relief and other programs.`\
+https://nytimes.com/2023/03/06/us/politics/supreme-court-major-questions-doctrine.html?searchResultPosition=6
 
-**5 Takeaways From Ron DeSantis’s New Book**\
-`I read all 256 pages of “The Courage to Be Free.” Here’s what I learned.`\
-https://nytimes.com/interactive/2023/03/06/us/politics/ron-desantis-courage-to-be-free.html?searchResultPosition=7
+**How To Get Behind the Scenes at Frank Lloyd Wright’s Taliesin? Take A Baking Class.**\
+`The writer gets a room of her own at the architect’s former home in the Wisconsin hills. A weekend workshop offers ample time to explore the grounds.`\
+https://nytimes.com/2023/03/06/travel/taliesin-frank-lloyd-wright-wisconsin-baking-class.html?searchResultPosition=7
 
-**Word of the Day: fusillade**\
-`This word has appeared in 21 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/03/06/learning/word-of-the-day-fusillade.html?searchResultPosition=8
+**Tyler James Williams Lifts His Spirits With bell hooks and Tom Ford**\
+`The “Abbott Elementary” star keeps nourished, body and soul, with D’Angelo’s music, Earl Grey lattes and early 2000s rom-coms.`\
+https://nytimes.com/2023/03/06/arts/television/tyler-james-williams-abbott-elementary.html?searchResultPosition=8
 
-**What’s on TV This Week: ‘Perry Mason’ and The Oscars**\
-`The HBO legal drama, starring Matthew Rhys, returns, and ABC airs the 95th Academy Awards.`\
-https://nytimes.com/2023/03/06/arts/television/whats-on-tv-this-week-perry-mason-and-the-oscars.html?searchResultPosition=9
+**Should Award Shows Eliminate Gendered Categories?**\
+`Some think the prizes for best male artist and best female artist should simply be “best artist.” Would this approach be more inclusive, or less?`\
+https://nytimes.com/2023/03/06/learning/should-award-shows-eliminate-gendered-categories.html?searchResultPosition=9
 
-**Your Monday Briefing**\
-`The fight for the Ukrainian city of Bakhmut.`\
-https://nytimes.com/2023/03/06/briefing/bakhmut-breast-cancer-syria.html?searchResultPosition=10
+**E-Bikes Are Convenient. They Can Also Catch Fire and Destroy Buildings.**\
+`Three years after New York legalized micro-mobility bikes and scooters, lawmakers and building managers are grappling with how to make them safer, after numerous fires, some fatal.`\
+https://nytimes.com/2023/03/06/realestate/e-bikes-fires-danger.html?searchResultPosition=10
 
