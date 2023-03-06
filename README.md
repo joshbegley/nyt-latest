@@ -1,40 +1,40 @@
+**Plunge in Currency Deepens Iran’s Economic Crisis**\
+`Years of Western sanctions are partly to blame for the crisis. But economists say poor management by the country’s authoritarian clerical rulers also plays a big part.`\
+https://nytimes.com/2023/03/06/world/middleeast/iran-economy-currency-rial.html?searchResultPosition=1
+
+**Residents Near Bakhmut Struggle to Get Food as Fighting Continues**\
+`Ukrainian forces continue to defend the eastern city, Bakhmut, against brutal Russian attacks that have knocked out basic utilities including gas and water.`\
+https://nytimes.com/video/world/europe/100000008798656/bakhmut-ukraine-russia-war.html?searchResultPosition=2
+
 **Alleva Dairy, a Little Italy Cheese Shop, Will Reopen in New Jersey**\
 `The store will relocate to Lyndhurst, a spring market with Japanese goodies comes to the West Village, and more.`\
-https://nytimes.com/2023/03/06/dining/alleva-dairy-reopen-new-jersey.html?searchResultPosition=1
+https://nytimes.com/2023/03/06/dining/alleva-dairy-reopen-new-jersey.html?searchResultPosition=3
 
 **U.S. Considers Vaccinating Chickens as Bird Flu Kills Millions of Them**\
 `The largest outbreak of avian influenza in U.S. history has driven up egg prices and raised concerns about a human pandemic, though C.D.C. experts say the risk of that is low.`\
-https://nytimes.com/2023/03/06/us/politics/bird-flu-vaccine-chickens.html?searchResultPosition=2
+https://nytimes.com/2023/03/06/us/politics/bird-flu-vaccine-chickens.html?searchResultPosition=4
 
 **White House Said to Consider Pushing Congress on Dealing With TikTok**\
 `In a strategy shift, the Biden administration is increasingly pointing to Congress to give it more legal power to deal with TikTok and other technology that could expose Americans’ sensitive data to China.`\
-https://nytimes.com/2023/03/06/technology/white-house-congress-on-tiktok.html?searchResultPosition=3
+https://nytimes.com/2023/03/06/technology/white-house-congress-on-tiktok.html?searchResultPosition=5
 
 **Desert X Finds Roots in the Region**\
 `Almost all the artworks in the Coachella Valley biennial are socially engaged and site-specific.`\
-https://nytimes.com/2023/03/06/arts/design/desert-x-biennial-palm-springs.html?searchResultPosition=4
+https://nytimes.com/2023/03/06/arts/design/desert-x-biennial-palm-springs.html?searchResultPosition=6
 
 **‘The Outsiders’ Review: Growing Pains Both Brutal and Poetic**\
 `At La Jolla Playhouse, the musical adaptation of the novel and film has considerable appeal, but is weighed down by too many characters and themes.`\
-https://nytimes.com/2023/03/06/theater/the-outsiders-review-la-jolla-playhouse.html?searchResultPosition=5
+https://nytimes.com/2023/03/06/theater/the-outsiders-review-la-jolla-playhouse.html?searchResultPosition=7
 
 **A Rival for Erdogan Emerges as Opposition Parties Pick a Candidate**\
 `Kemal Kilicdaroglu, the head of Turkey’s largest opposition party, and his allies are looking to unseat President Recep Tayyip Erdogan, who they say has damaged the country’s democracy.`\
-https://nytimes.com/2023/03/06/world/middleeast/erdogan-turkey-election-kilicdaroglu.html?searchResultPosition=6
+https://nytimes.com/2023/03/06/world/middleeast/erdogan-turkey-election-kilicdaroglu.html?searchResultPosition=8
 
 **Review: In ‘The Best We Could,’ the Players Follow Directions**\
 `The playwright Emily Feldman structures this work like a personal GPS that plots the course of a family.`\
-https://nytimes.com/2023/03/06/theater/the-best-we-could-mtc-review.html?searchResultPosition=7
+https://nytimes.com/2023/03/06/theater/the-best-we-could-mtc-review.html?searchResultPosition=9
 
 **A24, the Indie Film Studio, Buys New York’s Cherry Lane Theater**\
 `The studio’s first venture into live performance follows the move by Audible, Amazon’s audio subsidiary, to stage works at the nearby Minetta Lane Theater.`\
-https://nytimes.com/2023/03/06/theater/a24-cherry-lane.html?searchResultPosition=8
-
-**Mapping California’s ‘Zombie’ Forests**\
-`A fifth of the Sierra Nevada’s conifer forests are out of sync with the warming climate around them, which makes them less likely to grow back after a major wildfire.`\
-https://nytimes.com/interactive/2023/03/06/climate/california-zombie-forests.html?searchResultPosition=9
-
-**To Build a Consistent Winner, Royals Look to Rays and Guardians**\
-`Kansas City’s approach had been boom and (mostly) bust. A new strategy has the team trying to attain the sustained relevance of Tampa Bay and Cleveland.`\
-https://nytimes.com/2023/03/06/sports/baseball/kansas-city-royals.html?searchResultPosition=10
+https://nytimes.com/2023/03/06/theater/a24-cherry-lane.html?searchResultPosition=10
 
