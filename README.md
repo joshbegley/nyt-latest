@@ -34,7 +34,7 @@ https://nytimes.com/2023/03/06/arts/music/karol-g-manana-sera-bonito-billboard.h
 `In “The Curator,” a historical fantasy by Owen King, a woman searches for answers about her brother’s death in a time of unrest.`\
 https://nytimes.com/2023/03/06/books/review/owen-king-the-curator.html?searchResultPosition=9
 
-**Can a Czech Firefighter Strike Out Shohei Ohtani?**\
-`The World Baseball Classic is a battle of the game’s biggest stars. A scrappy Czech Republic team, full of guys with regular jobs, just might win your heart.`\
+**Can a Czech Firefighter Compete With M.L.B.’s Biggest Stars?**\
+`The World Baseball Classic is a battle of the game’s top professional players. A scrappy Czech Republic team, full of guys with regular jobs, just might win your heart.`\
 https://nytimes.com/2023/03/06/sports/baseball/czech-republic-world-baseball-classic.html?searchResultPosition=10
 
