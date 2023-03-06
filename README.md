@@ -14,7 +14,7 @@ https://nytimes.com/2023/03/05/theater/the-trees-review-playwrights-horizons.htm
 `These New York City maps show how, among a wave of new Republican support, areas with a majority of eligible Asian voters had the largest move to the right, according to a New York Times analysis.`\
 https://nytimes.com/interactive/2023/03/05/nyregion/election-asians-voting-republicans-nyc.html?searchResultPosition=4
 
-**Protesters Damage Vehicles at Site of New Police Center in Atlanta**\
+**Protesters Damage Property at Site of Planned Police Center in Atlanta**\
 `The disturbance grew out of a demonstration among hundreds of activists in a forest being developed into a training center.`\
 https://nytimes.com/2023/03/05/us/atlanta-cop-city-protests.html?searchResultPosition=5
 
