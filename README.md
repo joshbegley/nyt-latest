@@ -12,7 +12,7 @@ https://nytimes.com/2023/03/06/technology/gen-z-instagram-facebook.html?searchRe
 
 **Translating the Music of Trees Into the Sounds of Opera**\
 `The tech-forward composer Tod Machover has made a chamber opera of Richard Powers’s novel “The Overstory,” featuring Joyce DiDonato.`\
-https://nytimes.com/2023/03/06/arts/music/06overstory-tod-machover-joyce-didonato-richard-powers.html?searchResultPosition=4
+https://nytimes.com/2023/03/06/arts/music/tod-machover-overstory-overture.html?searchResultPosition=4
 
 **Belarus sentences the country’s exiled opposition leader to 15 years in prison.**\
 `Sviatlana Tsikhanouskaya fled the country after running for president in 2020 against Belarus’s authoritarian leader. She has described the conspiracy case against her as a “farce.”`\
