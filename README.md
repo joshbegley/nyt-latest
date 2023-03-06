@@ -35,6 +35,6 @@ https://nytimes.com/2023/03/05/theater/the-trees-review-playwrights-horizons.htm
 https://nytimes.com/interactive/2023/03/05/nyregion/election-asians-voting-republicans-nyc.html?searchResultPosition=9
 
 **Protesters Damage Property at Site of Planned Police Center in Atlanta**\
-`The disturbance grew out of a demonstration on Sunday among hundreds of activists in a forest being developed into a training complex. The police said it had detained 35 peopled so far.`\
+`The disturbance grew out of a demonstration among hundreds of activists in a forest being developed into a training center.`\
 https://nytimes.com/2023/03/05/us/atlanta-cop-city-protests.html?searchResultPosition=10
 
