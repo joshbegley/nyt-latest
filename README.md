@@ -34,7 +34,7 @@ https://nytimes.com/2023/03/06/business/jetblue-spirit-merger.html?searchResultP
 `The military leadership is concerned that anger over the government’s plan, with some pilots saying they will skip some training sessions and operations, could diminish military capabilities.`\
 https://nytimes.com/2023/03/06/world/middleeast/israel-military-judiciary.html?searchResultPosition=9
 
-**Plunge in Currency Deepens Iran’s Economic Crisis**\
+**Iran’s Rulers, Shaken by Protests, Now Face Currency Crisis**\
 `Years of Western sanctions are partly to blame for the crisis. But economists say poor management by the country’s authoritarian clerical rulers also plays a big part.`\
 https://nytimes.com/2023/03/06/world/middleeast/iran-economy-currency-rial.html?searchResultPosition=10
 
