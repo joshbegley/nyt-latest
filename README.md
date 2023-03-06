@@ -1,40 +1,36 @@
+**City Life, Culture Wars and Conspiracy Theories**\
+`When walkability meets grievance and paranoia.`\
+https://nytimes.com/2023/03/06/opinion/city-walkability-culture-wars-conspiracy-theories.html?searchResultPosition=1
+
+**Ukraine Signals It Will Keep Battling for Bakhmut to Drain Russia**\
+`Gradual Russian advances and high Ukrainian casualties have fueled talk of a retreat from the eastern city, but Ukrainians say Russian losses are worse, a reason to keep them fighting.`\
+https://nytimes.com/2023/03/06/world/europe/bakhmut-ukraine-russia-siege.html?searchResultPosition=2
+
+**‘Media Men’ Lawsuit Ends in a Settlement**\
+`Stephen Elliott, whose name appeared on a crowdsourced document containing allegations of misconduct against male writers and editors, filed his defamation suit against the list’s creator and its contributors in 2018.`\
+https://nytimes.com/2023/03/06/style/media-men-list-settlement-moira-donegan.html?searchResultPosition=4
+
+**Mayor Adams to New York City Shoppers: Drop That Mask**\
+`To prevent robberies, Mayor Eric Adams is telling shopkeepers to bar customers who refuse to lower their masks when they first enter stores.`\
+https://nytimes.com/2023/03/06/nyregion/eric-adams-theft-masks-nyc.html?searchResultPosition=5
+
 **Breaking Silence, Murdaugh Brother Says ‘Not Knowing Is the Worst Thing’**\
 `After Alex Murdaugh’s trial ended in a conviction for the murders of his wife and son, his older brother Randy is still trying to understand what happened that night.`\
-https://nytimes.com/2023/03/06/us/alex-murdaugh-brother-randy.html?searchResultPosition=1
+https://nytimes.com/2023/03/06/us/alex-murdaugh-brother-randy.html?searchResultPosition=6
 
 **How Tennis and Team Djokovic Are Pushing to Get Him Into the U.S.**\
 `Djokovic, the world No. 1, who is unvaccinated against Covid-19, has lobbied the Biden administration for an exemption so he can play at Indian Wells and the Miami Open. So far, he has come up short.`\
-https://nytimes.com/2023/03/06/sports/tennis/djokovic-biden-miami-open-covid-vaccine.html?searchResultPosition=2
+https://nytimes.com/2023/03/06/sports/tennis/djokovic-biden-miami-open-covid-vaccine.html?searchResultPosition=7
 
 **Whitney Museum Reaches Agreement With Unionized Workers**\
 `After more than a year of bargaining, the cultural institution and its employees are moving forward with a deal that will significantly raise pay and improve job security.`\
-https://nytimes.com/2023/03/06/arts/design/whitney-museum-union-contract.html?searchResultPosition=3
+https://nytimes.com/2023/03/06/arts/design/whitney-museum-union-contract.html?searchResultPosition=8
 
 **Gary Rossington, Lynyrd Skynyrd Guitarist, Dies at 71**\
 `The last surviving original member of the classic Southern rock group, he played the soaring slide guitar solo on “Free Bird” and co-wrote “Sweet Home Alabama.”`\
-https://nytimes.com/2023/03/06/arts/music/gary-rossington-dead-lynyrd-skynyrd.html?searchResultPosition=4
+https://nytimes.com/2023/03/06/arts/music/gary-rossington-dead-lynyrd-skynyrd.html?searchResultPosition=9
 
 **Your Monday Evening Briefing**\
 `Here’s what you need to know at the end of the day.`\
-https://nytimes.com/2023/03/06/briefing/israel-judicial-protests-chicken-vaccine-bird-flu.html?searchResultPosition=5
-
-**Prosecutors Seek to Show Jan. 6 Videos at Proud Boys Trial**\
-`On Monday, a judge held a hearing to decide which videos he would allow the jury to see under a novel legal theory that the defendants used other rioters as “tools” of their conspiracy.`\
-https://nytimes.com/2023/03/06/us/politics/proud-boys-trial-jan-6-videos.html?searchResultPosition=6
-
-**Bernie Sanders Presses Ahead With Subpoena of Starbucks C.E.O.**\
-`The senator has set a Wednesday vote to compel Howard Schultz, the billionaire Starbucks chief executive, to testify in front of the Senate Health, Education, Labor and Pensions Committee.`\
-https://nytimes.com/2023/03/06/us/politics/starbucks-bernie-sanders-howard-schultz.html?searchResultPosition=7
-
-**He Heeded Russia’s Call to Enlist. Five Months Later, He Was Dead.**\
-`Pvt. Ivan Ovlashenko was one of at least 16,000 Russians who have died in Ukraine, more than in the Soviets’ Afghan war. It’s getting hard for the Kremlin to cover that up.`\
-https://nytimes.com/2023/03/06/world/europe/russia-soldier-casualties.html?searchResultPosition=8
-
-**‘Baltimore Was Waiting on Him’**\
-`Adley Rutschman led the Orioles to a winning record last year, and he may already be the American League’s best catcher. But he and his team are just getting started.`\
-https://nytimes.com/2023/03/06/sports/baseball/adley-rutschman-orioles.html?searchResultPosition=9
-
-**Watch Cate Blanchett Break Down in ‘Tár’**\
-`The writer and director Todd Field narrates an emotional moment from his film, which stars Cate Blanchett and is nominated for six Oscars.`\
-https://nytimes.com/2023/03/06/movies/tar-clip.html?searchResultPosition=10
+https://nytimes.com/2023/03/06/briefing/israel-judicial-protests-chicken-vaccine-bird-flu.html?searchResultPosition=10
 
