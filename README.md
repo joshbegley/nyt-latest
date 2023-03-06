@@ -8,7 +8,7 @@ https://nytimes.com/2023/03/06/us/politics/howard-schultz-starbucks-subpoena.htm
 
 **He Heeded Russia’s Call to Enlist. Five Months Later, He Was Dead.**\
 `Pvt. Ivan Ovlashenko was one of at least 16,000 Russians who have died in Ukraine, more than in the Soviets’ Afghan war. It’s getting hard for the Kremlin to cover that up.`\
-https://nytimes.com/2023/03/06/world/europe/he-heeded-russias-call-to-enlist-five-months-later-he-was-dead.html?searchResultPosition=3
+https://nytimes.com/2023/03/06/world/europe/russia-soldier-casualties.html?searchResultPosition=3
 
 **‘Baltimore Was Waiting on Him’**\
 `Adley Rutschman led the Orioles to a winning record last year, and he may already be the American League’s best catcher. But he and his team are just getting started.`\
