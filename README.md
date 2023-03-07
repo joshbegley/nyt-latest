@@ -1,6 +1,6 @@
 **6 Wellness Retreats That Promise High-Tech Healing**\
 `Yoga classes and beach massages? That’s so 2019. Since the pandemic, hotels and resorts around the world have embraced services like comprehensive blood tests, IV infusions and 3-D scans.`\
-https://nytimes.com/2023/03/07/travel/wellness-longevity-hotels-resorts-spas.html?searchResultPosition=1
+https://nytimes.com/2023/03/07/travel/wellness-retreats.html?searchResultPosition=1
 
 **Anthony Pellicano: Then and Now**\
 `A two-part documentary from The New York Times explores the work of a man who made the problems of Hollywood’s elite disappear.`\
