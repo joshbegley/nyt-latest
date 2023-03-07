@@ -2,7 +2,7 @@
 `Jones, 25, had sought a major raise after leading the Giants to the playoffs in the last year of his rookie deal.`\
 https://nytimes.com/2023/03/07/sports/football/giants-daniel-jones-contract.html?searchResultPosition=1
 
-**Elon Musk Says Twitter’s Finances Improving After Big Cuts**\
+**Elon Musk Says Twitter’s Finances Are Improving After Big Cuts**\
 `Twitter’s owner says the company is recovering after a sharp drop in ad sales. But its revenue is still far short of its level in 2021, before he took over.`\
 https://nytimes.com/2023/03/07/business/elon-musk-twitter-finances.html?searchResultPosition=2
 
