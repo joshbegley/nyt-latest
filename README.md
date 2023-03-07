@@ -1,5 +1,5 @@
 **Ski Resorts Near N.Y.C. Finally Get Snow**\
-`After a lackluster winter season, ski mountains in the Catskills get over a foot of snow.`\
+`After a lackluster winter season, ski mountains in the Catskills get over a foot of snow. `\
 https://nytimes.com/interactive/2023/03/07/nyregion/snow-catskills.html?searchResultPosition=1
 
 **Principe, From Two NoMad Alumni, Opens in SoHo**\
