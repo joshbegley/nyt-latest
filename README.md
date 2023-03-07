@@ -6,7 +6,7 @@ https://nytimes.com/2023/03/07/arts/television/late-night-trump-cpac.html?search
 `This word has appeared in six articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2023/03/07/learning/word-of-the-day-pecuniary.html?searchResultPosition=2
 
-**China’s Leader, With Rare Bluntness, Blames Troubles on U.S. Containment**\
+**China’s Leader, With Rare Bluntness, Blames U.S. Containment for Troubles**\
 `Xi Jinping criticized what he called a U.S.-led campaign of “encirclement and suppression.” His new foreign minister said it was impossible for China not to fight back.`\
 https://nytimes.com/2023/03/07/world/asia/china-us-xi-jinping.html?searchResultPosition=3
 
