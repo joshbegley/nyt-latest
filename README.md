@@ -34,7 +34,7 @@ https://nytimes.com/2023/03/07/world/europe/uk-migration-asylum.html?searchResul
 `European soccer’s governing body will return millions of dollars to fans affected by dangerous overcrowding that its own investigation said could have turned deadly.`\
 https://nytimes.com/2023/03/07/sports/soccer/liverpool-tickets-champions-league-final.html?searchResultPosition=9
 
-**Biden Budget Will Propose Tax Increase to Boost Medicare**\
+**Biden Budget Will Propose Tax Increase to Bolster Medicare**\
 `The president’s plan targets Americans earning more than $400,000 a year in an attempt to increase the program’s solvency by 25 years.`\
 https://nytimes.com/2023/03/07/business/biden-budget-medicare-tax-increase.html?searchResultPosition=10
 
