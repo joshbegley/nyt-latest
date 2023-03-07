@@ -1,40 +1,40 @@
-**You Are Always 20**\
-`When a director gets hold of an action movie he and his best friend made two decades ago, he reconsiders the risks they took as young men.`\
-https://nytimes.com/video/opinion/100000008672307/you-are-always-20.html?searchResultPosition=1
+**An Architect Applies Her Skills to Giving Back**\
+`Diana Kellogg specialized in high-end New York residences. Now, she has designed a girls school in India and is pursuing other projects that address social change.`\
+https://nytimes.com/2023/03/07/world/asia/architect-kellogg-india-girls-school.html?searchResultPosition=1
 
-**Fire in Bangladesh Camp Adds to Rohingya Refugees’ Misery**\
-`Twelve thousand residents of the camp, already some of the most dispossessed people on earth, were left without shelter.`\
-https://nytimes.com/2023/03/07/world/asia/bangladesh-rohingya-camp-fire.html?searchResultPosition=2
+**Moldova’s Pro-Europe Leader Tries to Thwart Russia’s Influence**\
+`Maia Sandu, president of the former Soviet republic, remains popular in a deeply divided nation as Vladimir V. Putin continues to apply pressure.`\
+https://nytimes.com/2023/03/07/world/europe/moldova-president-maia-sandu-russia.html?searchResultPosition=2
 
-**Learning With The Times’s ‘Anatomy of a Scene’**\
-`What does it take to make movie magic?`\
-https://nytimes.com/2023/03/07/learning/learning-with-the-timess-anatomy-of-a-scene.html?searchResultPosition=3
+**A Photographer Focuses on Her African Roots — and the Continent’s Future**\
+`Aida Muluneh, based in Ivory Coast, explores themes of history, politics, sense of place and pressing issues like the climate crisis.`\
+https://nytimes.com/2023/03/07/arts/design/aida-muluneh-photographer-africa.html?searchResultPosition=3
 
-**Rail Heat Sensors, Under Scrutiny in Ohio Crash, Face Few Regulations**\
-`Safety experts said the East Palestine derailment might not have happened had Norfolk Southern placed sensors closer together. The federal government doesn’t require or regulate their use.`\
-https://nytimes.com/2023/03/07/business/norfolk-southern-derailment-east-palestine-regulation.html?searchResultPosition=4
+**The Subversive Art of Phillis Wheatley**\
+`A biography by David Waldstreicher offers a radical new vision of the life and work of colonial America’s brilliant Black female poet.`\
+https://nytimes.com/2023/03/07/books/review/the-odyssey-of-phillis-wheatley-david-waldstreicher.html?searchResultPosition=4
 
-**Could the Next Blockbuster Drug Be Lab-Rat Free?**\
-`Alternatives to animal testing are gaining momentum.`\
-https://nytimes.com/2023/03/07/health/drug-animals-testing.html?searchResultPosition=5
+**Awash in Asphalt, Cities Rethink Their Parking Needs**\
+`Local leaders across the nation are overhauling parking requirements for developers, scaling back the minimum number of spots for shopping centers and apartment complexes.`\
+https://nytimes.com/2023/03/07/business/fewer-parking-spots.html?searchResultPosition=5
 
-**Before the Games Count, a Baseball Writer Is in Full Swing**\
-`Since 1998, Tyler Kepner has spent every March with baseball teams in Florida and Arizona. This year, along with the usual promise of possibility, spring training brings change.`\
-https://nytimes.com/2023/03/07/insider/spring-training.html?searchResultPosition=6
+**They Finally Found Their Dream House: One in Desperate Need of Repair**\
+`The floors were sagging, the roof was leaking, man of the original details had been stripped out. In other words, it was perfect — for a gut renovation.`\
+https://nytimes.com/2023/03/07/realestate/georgetown-home-renovation.html?searchResultPosition=6
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/03/07/crosswords/spelling-bee-forum.html?searchResultPosition=7
+**Debt Default Would Cripple U.S. Economy, New Analysis Warns**\
+`As President Biden prepares to release his latest budget proposal, a top economist will warn lawmakers that Republicans’ refusal to raise the nation’s borrowing cap could put millions out of work.`\
+https://nytimes.com/2023/03/07/us/politics/debt-default-economy.html?searchResultPosition=7
 
-**Coffee and Olive Oil**\
-`What unusual food combinations do you love?`\
-https://nytimes.com/2023/03/07/learning/coffee-and-olive-oil.html?searchResultPosition=8
+**Restoring a Historic House in Washington, D.C.**\
+`The floors were sagging, the roof was leaking, everything interesting had been stripped out. In other words, it was perfect — for a gut renovation.`\
+https://nytimes.com/slideshow/2023/03/07/realestate/restoring-a-historic-house-in-washington-dc.html?searchResultPosition=8
 
-**Jimmy Fallon Recaps Trump’s ‘Off the Rails’ CPAC Speech**\
-`Fallon said Donald Trump “made some pretty intense promises” in his headlining speech on Saturday.`\
-https://nytimes.com/2023/03/07/arts/television/late-night-trump-cpac.html?searchResultPosition=9
+**Bunkmates Turned Scam Artists Take Silicon Valley for a Ride**\
+`In Rafael Frumkin’s “Confidence,” a shy grifter is more than infatuated with a charismatic friend: He sees them getting rich peddling electromagnetic “bliss.”`\
+https://nytimes.com/2023/03/07/books/confidence-rafael-frumkin.html?searchResultPosition=9
 
-**Word of the Day: pecuniary**\
-`This word has appeared in six articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/03/07/learning/word-of-the-day-pecuniary.html?searchResultPosition=10
+**How to Make Hitler Grow Breasts, and Other Busts**\
+`Exploding pens and fluorescent foxes were just two of the schemes the O.S.S. tried in their quest to best Axis powers, according to a new book, “The Dirty Tricks Department.”`\
+https://nytimes.com/2023/03/07/books/review/dirty-tricks-department-john-lisle.html?searchResultPosition=10
 
