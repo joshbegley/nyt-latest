@@ -1,4 +1,4 @@
-**WeWork, Still Reeling From Cash Crunch, Tries to Shore Up Financial Footing**\
+**WeWork, Reeling From Cash Crunch, Tries to Shore Up Financial Footing**\
 `The co-working giant is close to an agreement with SoftBank and others for new money and to restructure its debt.`\
 https://nytimes.com/2023/03/07/business/wework-softbank-investors-debt.html?searchResultPosition=1
 
