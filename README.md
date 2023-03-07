@@ -10,7 +10,7 @@ https://nytimes.com/2023/03/07/books/review/new-poetry-collections.html?searchRe
 `The co-working giant is close to an agreement with SoftBank and others for new money and to restructure its debt.`\
 https://nytimes.com/2023/03/07/business/wework-softbank-investors-debt.html?searchResultPosition=3
 
-**As Judicial Plans Rocks Israel, Secret Talks Seek Compromise**\
+**As Judicial Plans Rock Israel, Secret Talks Seek Compromise**\
 `Benjamin Netanyahu’s plans to restrict judicial independence have divided Israel. But a small group of academics has met privately with lawmakers in a search for middle ground.`\
 https://nytimes.com/2023/03/07/world/middleeast/israel-judiciary-compromise-meetings.html?searchResultPosition=4
 
