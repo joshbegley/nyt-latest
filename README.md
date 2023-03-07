@@ -30,7 +30,7 @@ https://nytimes.com/2023/03/07/travel/wellness-retreats.html?searchResultPositio
 `A two-part documentary from The New York Times explores the work of a man who made the problems of Hollywood’s elite disappear.`\
 https://nytimes.com/2023/03/07/NYT-Presents/anthony-pellicano-fixer-hollywood.html?searchResultPosition=8
 
-**Judy Blume Finally Got a ‘Yes’ From Hollywood**\
+**How Judy Blume Finally Got a ‘Yes’ From Hollywood**\
 `Decades after she first discussed translating her work to film and television, the Blume-aissance is upon us. All it needed was for Judy Blume fans to take charge in the entertainment industry.`\
 https://nytimes.com/2023/03/07/business/media/judy-blume-hollywood.html?searchResultPosition=9
 
