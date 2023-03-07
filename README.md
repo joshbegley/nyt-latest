@@ -7,7 +7,7 @@ https://nytimes.com/2023/03/07/opinion/letters/ron-desantis-free-speech-florida.
 https://nytimes.com/2023/03/07/dining/joseph-zucchero-dead-the-bear.html?searchResultPosition=2
 
 **Fed Is Likely to Raise Rates Higher Than Expected, Powell Says**\
-`Jerome H. Powell, the Federal Reserve chair, said the central bank is prepared to raise interest rates higher than previously anticipated to combat inflation.`\
+`Jerome H. Powell, the Federal Reserve chair, said the central bank was prepared to raise interest rates higher than it had previously anticipated to combat inflation.`\
 https://nytimes.com/video/business/economy/100000008800427/interest-rate-hike-powell.html?searchResultPosition=3
 
 **She Taught Us to Do Nothing. Now Jenny Odell Wants to Save Time.**\
