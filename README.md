@@ -26,7 +26,7 @@ https://nytimes.com/2023/03/07/movies/all-quiet-on-the-western-front-oscars.html
 `The Mar. 7, 2023, episode of “The Ezra Klein Show.”`\
 https://nytimes.com/2023/03/07/podcasts/transcript-ezra-klein-interviews-gillian-branstetter.html?searchResultPosition=7
 
-**6 Palestinians Killed After Israeli Raid in West Bank Clashes**\
+**6 Palestinians Killed in Israeli Raid in West Bank Clashes**\
 `The Israeli military said one of those killed was suspected in the fatal shooting of two Israeli brothers in the West Bank village of Huwara, which set off revenge attacks by Jewish settlers.`\
 https://nytimes.com/2023/03/07/world/middleeast/west-bank-israel-raid.html?searchResultPosition=8
 
