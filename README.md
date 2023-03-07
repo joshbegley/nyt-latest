@@ -11,7 +11,7 @@ https://nytimes.com/2023/03/07/science/moon-time-zone.html?searchResultPosition=
 https://nytimes.com/2023/03/07/podcasts/the-daily/ron-desantis-gop-republican-primary-election.html?searchResultPosition=3
 
 **Let Us Now All Praise Wearability**\
-`As shown at Louis Vuitton, Loewe and Hermès. The idea has nothing to do with tech, and everything to do with good clothes.`\
+`It’s turning into the mantra of the fashion season. As Louis Vuitton, Loewe and Hermès know, sometimes you just want a great coat.`\
 https://nytimes.com/2023/03/07/style/louis-vuitton-loewe-hermes-paris.html?searchResultPosition=4
 
 **Battered by the Elements, San Francisco’s Bay Bridge Lights Go Dark**\
