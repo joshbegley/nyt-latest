@@ -18,13 +18,13 @@ https://nytimes.com/2023/03/06/pageoneplus/quotation-of-the-day-an-ordinary-play
 `The man was charged in federal court after he tried to unlock an emergency exit and attempted to stab a flight attendant with a broken spoon, the authorities said.`\
 https://nytimes.com/2023/03/06/us/united-airlines-arrest-stab-flight-attendant-emergency-exit.html?searchResultPosition=5
 
-**City Life, Culture Wars and Conspiracy Theories**\
-`When walkability meets grievance and paranoia.`\
-https://nytimes.com/2023/03/06/opinion/city-walkability-culture-wars-conspiracy-theories.html?searchResultPosition=6
-
 **Ukraine Signals It Will Keep Battling for Bakhmut to Drain Russia**\
 `Gradual Russian advances and high Ukrainian casualties have fueled talk of a retreat from the eastern city, but Ukrainians say Russian losses are worse, a reason to keep them fighting.`\
-https://nytimes.com/2023/03/06/world/europe/bakhmut-ukraine-russia-siege.html?searchResultPosition=7
+https://nytimes.com/2023/03/06/world/europe/bakhmut-ukraine-russia-siege.html?searchResultPosition=6
+
+**City Life, Culture Wars and Conspiracy Theories**\
+`When walkability meets grievance and paranoia.`\
+https://nytimes.com/2023/03/06/opinion/city-walkability-culture-wars-conspiracy-theories.html?searchResultPosition=7
 
 **‘Media Men’ Lawsuit Ends in a Settlement**\
 `Stephen Elliott, whose name appeared on a crowdsourced document containing allegations of misconduct against male writers and editors, filed his defamation suit against the list’s creator and its contributors in 2018.`\
