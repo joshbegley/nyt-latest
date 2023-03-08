@@ -34,7 +34,7 @@ https://nytimes.com/2023/03/07/us/republicans-tucker-carlson-jan-6.html?searchRe
 `The chain’s situation shows the complicated legal and reputational landscape that it and its competitors must navigate in the post-Roe era.`\
 https://nytimes.com/2023/03/07/business/walgreens-abortion-pill.html?searchResultPosition=9
 
-**‘The Whole Thing Seems Insane’: New Documents Shed Light on Debate Inside Fox After Election**\
-`Messages and depositions from the network’s stars like Tucker Carlson revealed serious misgivings about claims of election fraud even as some of the hosts told their audiences of millions a very different story.`\
+**‘The Whole Thing Seems Insane’: New Documents on Fox and the Election**\
+`Messages and depositions from stars like Tucker Carlson revealed serious misgivings about claims of fraud even as some hosts told millions of viewers a very different story.`\
 https://nytimes.com/2023/03/07/business/media/fox-dominion-2020-election.html?searchResultPosition=10
 
