@@ -2,8 +2,8 @@
 `A modernist kit house in Lake Leelanau, a Mediterranean-style home in Providence and a Craftsman bungalow in Portland.`\
 https://nytimes.com/2023/03/08/realestate/home-prices-michigan-rhode-island-oregon.html?searchResultPosition=1
 
-**Adidas Looks to Transition as Losses From Yeezy Bite**\
-`After severing business ties with the rapper Ye, Adidas said it would cut its dividend but hasn’t yet decided what to do with $1.3 billion in Yeezy sneakers.`\
+**Adidas Wants to Move On but Still Has $1.3 Billion in Yeezy Sneakers**\
+`After severing business ties with the rapper Ye, Adidas said it would cut its dividend and declared 2023 a “transition year.”`\
 https://nytimes.com/2023/03/08/world/europe/adidas-earnings-yeezy.html?searchResultPosition=2
 
 **‘Therapy Dogs’ Review: It’s Time to Be Real**\
