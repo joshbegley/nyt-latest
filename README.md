@@ -1,4 +1,4 @@
-**Justice Dept. Finds Pattern of ‘Discriminatory’ Policing in Louisville**\
+**Justice Dept. Finds Pattern of Discriminatory Policing in Louisville**\
 `The review, undertaken after a specialized unit killed Breonna Taylor in a botched raid in 2020, paints a damning portrait of a department in crisis.`\
 https://nytimes.com/2023/03/08/us/politics/louisville-police-breonna-taylor-justice-dept.html?searchResultPosition=1
 
