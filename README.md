@@ -1,5 +1,5 @@
 **Data Breach Could Compromise Lawmakers’ Personal Information**\
-`A cyberattack on the District of Columbia’s online health insurance marketplace may have compromised identifying data of members of Congress and other users.`\
+`A cyberattack on the District of Columbia’s online health insurance marketplace may have compromised identifying data of many members of Congress and other users.`\
 https://nytimes.com/2023/03/08/us/politics/hack-dc-health-marketplace-congress-personal-information.html?searchResultPosition=1
 
 **Mexicans Question Government’s Swift Response to Lethal Attack on Americans**\
