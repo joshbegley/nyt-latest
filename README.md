@@ -14,17 +14,17 @@ https://nytimes.com/2023/03/08/arts/music/popcast-de-la-soul.html?searchResultPo
 `G.O.P. elites are simply lagging behind their states.`\
 https://nytimes.com/2023/03/08/opinion/clean-energy-gop-red-states.html?searchResultPosition=4
 
+**A Changing of the Guard at the Whitney Brings a New Director**\
+`After 20 years, Adam D. Weinberg will step down as leader in the fall. Scott Rothkopf, his deputy, will succeed him.`\
+https://nytimes.com/2023/03/08/arts/design/whitney-weinberg-rothkopf-director.html?searchResultPosition=5
+
 **Chinese Companies Are Doing Risky Business in the Caribbean**\
 `They’re using tax havens to raise foreign money — and neither Beijing nor Washington is happy about it.`\
-https://nytimes.com/2023/03/08/opinion/china-tax-haven-shell-companies.html?searchResultPosition=5
+https://nytimes.com/2023/03/08/opinion/china-tax-haven-shell-companies.html?searchResultPosition=6
 
 **A Hitter Who Is Happy to Go His Own Way**\
 `Ty France is part of the young core that ended the Seattle Mariners’ 20-season playoff drought. He did it with a contact-heavy approach that Tony Gwynn taught him.`\
-https://nytimes.com/2023/03/08/sports/baseball/ty-france-seattle-mariners.html?searchResultPosition=6
-
-**A Changing of the Guard at the Whitney Brings a New Director**\
-`After 20 years, Adam D. Weinberg will step down as leader in the fall. Scott Rothkopf, his deputy, will succeed him.`\
-https://nytimes.com/2023/03/08/arts/design/whitney-weinberg-rothkopf-director.html?searchResultPosition=7
+https://nytimes.com/2023/03/08/sports/baseball/ty-france-seattle-mariners.html?searchResultPosition=7
 
 **Why Racial Discussions Should Also Focus on Progress**\
 `Is that progress slow, uneven and often dispiriting? Of course. But that doesn’t make it any less real.`\
