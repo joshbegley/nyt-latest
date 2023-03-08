@@ -22,7 +22,7 @@ https://nytimes.com/2023/03/08/podcasts/the-daily/nordstream-pipeline-ukraine-ru
 `Researchers in Germany named bacterial compounds after the actor, saying they proved as devastating to difficult foes as the protagonist of the “John Wick” franchise.`\
 https://nytimes.com/2023/03/08/science/keanu-reeves-fungus.html?searchResultPosition=6
 
-**After a night of protests, Georgia’s opposition urges more demonstrations over a ‘Kremlin-inspired’ law.**\
+**Protesters in Georgia hold more demonstrations over a ‘Kremlin-inspired’ law.**\
 `Critics of proposed legislation targeting “foreign agents” say the law brings the country closer to Russia.`\
 https://nytimes.com/2023/03/08/world/europe/georgia-protests-foreign-agents-law.html?searchResultPosition=7
 
