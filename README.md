@@ -2,13 +2,13 @@
 `Sgt. Enis Jevric fatally shot a man who had been unconscious at the wheel of a running car after he woke up and tried to drive away.`\
 https://nytimes.com/2023/03/08/us/dc-officer-shooting-murder-charges.html?searchResultPosition=1
 
+**The Chatbots Are Here, and the Internet Industry Is in a Tizzy**\
+`The new technology could upend many online businesses. But for companies that figure out how to work with it, A.I. could be a boon.`\
+https://nytimes.com/2023/03/08/technology/chatbots-disrupt-internet-industry.html?searchResultPosition=2
+
 **Ukraine Needs Shells, and Arms Makers Want Money. Enter the E.U.**\
 `Ukraine is firing artillery shells faster than manufacturers can make them. Brussels is working on a plan to increase production by guaranteeing big advance purchases.`\
-https://nytimes.com/2023/03/08/world/europe/ukraine-eu-shells-ammunition.html?searchResultPosition=2
-
-**The Chatbots Are Here, and the Internet Industry Is in a Tizzy**\
-`The new technology could upend many online businesses. But for companies that figure out how to work with it, the A.I. could be a boon.`\
-https://nytimes.com/2023/03/08/technology/chatbots-disrupt-internet-industry.html?searchResultPosition=3
+https://nytimes.com/2023/03/08/world/europe/ukraine-eu-shells-ammunition.html?searchResultPosition=3
 
 **As Some States Restrict Black Studies, New York City Expands It**\
 `The city will launch lessons about Black and Asian Americans across more schools next year, but some students say there should be more.`\
