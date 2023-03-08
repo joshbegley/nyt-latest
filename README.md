@@ -2,7 +2,7 @@
 `The award, one of the most prestigious in the field of American history, honors “scope, significance, depth of research and richness of interpretation.”`\
 https://nytimes.com/2023/03/08/arts/bancroft-prize-winners.html?searchResultPosition=1
 
-**The Patriarchy Trap**\
+**On International Women’s Day, Avoiding the Patriarchy Trap**\
 `Happy International Women’s Day to those who celebrate.`\
 https://nytimes.com/2023/03/08/world/europe/interpreter-patriarchy-onsite.html?searchResultPosition=2
 
