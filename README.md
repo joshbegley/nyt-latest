@@ -1,6 +1,6 @@
 **India Is Arming Villagers in One of Earth’s Most Militarized Places**\
 `The government is reviving local militias in the Jammu part of the restive Kashmir region, laying bare the limits of its military approach there.`\
-https://nytimes.com/2023/03/08/world/asia/kashmir-village-defense-committess.html?searchResultPosition=1
+https://nytimes.com/2023/03/08/world/asia/kashmir-village-defense-committees.html?searchResultPosition=1
 
 **Who Blew Up the Nord Stream Pipelines?**\
 `A Times investigation may finally have revealed who was behind the sabotage in the Baltic Sea.`\
