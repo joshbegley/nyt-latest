@@ -1,4 +1,4 @@
-**A Recession Warning Spooks the Market**\
+**Fear of a Recession Spooks the Market**\
 `Investors were alarmed at suggestions by Jerome Powell, the Federal Reserve’s chairman, that interest rates could go even higher in a bid to halt inflation.`\
 https://nytimes.com/2023/03/08/business/powell-fed-inflation-recession.html?searchResultPosition=1
 
