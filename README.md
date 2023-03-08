@@ -1,40 +1,40 @@
-**D.C. Police Officer Who Shot Man in Car Is Charged With Murder**\
-`Sgt. Enis Jevric fatally shot a man who had been unconscious at the wheel of a running car after he woke up and tried to drive away.`\
-https://nytimes.com/2023/03/08/us/dc-officer-shooting-murder-charges.html?searchResultPosition=1
+**‘Beautiful, Forgotten Watches’ Are Getting Second Lives**\
+`A Thai jewelry designer customizes vintage timekeepers while honoring their imperfections.`\
+https://nytimes.com/2023/03/08/fashion/watches-patcharavipa-bodiratnangkura-london.html?searchResultPosition=1
 
-**The Chatbots Are Here, and the Internet Industry Is in a Tizzy**\
-`The new technology could upend many online businesses. But for companies that figure out how to work with it, A.I. could be a boon.`\
-https://nytimes.com/2023/03/08/technology/chatbots-disrupt-internet-industry.html?searchResultPosition=2
+**The Little Black Watch Is the New Little Black Dress**\
+`Dior, Chopard, Bulgari and Ralph Lauren are among the brands that recently introduced small watches in the fashionable shade.`\
+https://nytimes.com/2023/03/08/fashion/womens-black-watches.html?searchResultPosition=2
 
-**Ukraine Needs Shells, and Arms Makers Want Money. Enter the E.U.**\
-`Ukraine is firing artillery shells faster than manufacturers can make them. Brussels is working on a plan to increase production by guaranteeing big advance purchases.`\
-https://nytimes.com/2023/03/08/world/europe/ukraine-eu-shells-ammunition.html?searchResultPosition=3
+**It Took 8 Months, but He Made a Winning Pocket Watch**\
+`Maciej Misnik of Poland took the top prize in the 2022 iteration of the F.P. Journe Young Talent Competition.`\
+https://nytimes.com/2023/03/08/fashion/watches-fp-journe-young-talent-competition-switzerland.html?searchResultPosition=3
 
-**As Some States Restrict Black Studies, New York City Expands It**\
-`The city will launch lessons about Black and Asian Americans across more schools next year, but some students say there should be more.`\
-https://nytimes.com/2023/03/08/nyregion/black-asian-american-studies-nyc.html?searchResultPosition=4
+**The Perils of Working on a C.E.O.’s Pet Project**\
+`Big tech companies have long been willing to fund efforts with no obvious payoff. But those groups have been hit hard in recent layoffs.`\
+https://nytimes.com/2023/03/08/technology/tech-big-bets-layoffs.html?searchResultPosition=4
 
-**In Western Ukraine, Far From the Battlefield but Not the War**\
-`It has been more than a year since Russia invaded Ukraine, and life continues on. Babies are born. Children go to school. Some families go skiing. And a reporter is paying attention.`\
-https://nytimes.com/2023/03/08/insider/in-western-ukraine-far-from-the-battlefield-but-not-the-war.html?searchResultPosition=5
+**The Essential Patricia Highsmith**\
+`Known for her psychopathic antiheroes and novels such as “The Talented Mr. Ripley” and “The Price of Salt,” Highsmith was a tangle of contradictions.`\
+https://nytimes.com/article/best-patricia-highsmith-books.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/03/08/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**Who Needs a Shave? ‘Sweeney Todd’ Is Back.**\
+`Josh Groban, Annaleigh Ashford and a starry creative team are hoping there’s an appetite for Broadway’s first full-scale revival of Sondheim’s Grand Guignol masterpiece in 43 years.`\
+https://nytimes.com/2023/03/08/theater/sweeney-todd-sondheim-josh-groban.html?searchResultPosition=6
 
-**Pasta Puffer**\
-`What items of clothing do you wear that inspire strong reactions, whether negative or positive? Do you prefer to stand out, or blend in?`\
-https://nytimes.com/2023/03/08/learning/pasta-puffer.html?searchResultPosition=7
+**Adams Ally Moves Quickly From City Hall to Lucrative Real Estate Work**\
+`Frank Carone, who stepped down as Mayor Eric Adams’s chief of staff in December, has found work with two commercial real estate titans, including one seeking a casino.`\
+https://nytimes.com/2023/03/08/nyregion/frank-carone-adams-lobby.html?searchResultPosition=7
 
-**Stephen Colbert Ponders a Trump-Kari Lake Ticket**\
-`Donald Trump is said to be considering the Arizona politician, who also denies having lost an election. Colbert says she’s the “governor of the state of denial.”`\
-https://nytimes.com/2023/03/08/arts/television/stephen-colbert-trump-kari-lake.html?searchResultPosition=8
+**A Photographer Frames His Own American South**\
+`Tommy Kha’s portraits blends his Asian heritage with the mythology of the South.`\
+https://nytimes.com/2023/03/08/arts/design/tommy-kha-photography.html?searchResultPosition=8
 
-**Word of the Day: incipient**\
-`This word has appeared in 30 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/03/08/learning/word-of-the-day-incipient.html?searchResultPosition=9
+**Inside the ‘Blood Sport’ of Oscars Campaigns**\
+`War rooms. Oppo dumps. Eight-figure budgets. How the quest for awards-season glory got so cutthroat.`\
+https://nytimes.com/2023/03/08/magazine/oscars-campaign.html?searchResultPosition=9
 
-**Your Wednesday Briefing**\
-`High Russian casualties in Bakhmut.`\
-https://nytimes.com/2023/03/08/briefing/bakhmut-pensions-france-israel.html?searchResultPosition=10
+**Why Is the E.P.A. So Timid in the East Palestine Train Disaster?**\
+`By acting as a reluctant regulator, the E.P.A. has left people at the site of the derailment desperate for answers.`\
+https://nytimes.com/2023/03/08/opinion/east-palestine-ohio-epa-dioxin.html?searchResultPosition=10
 
