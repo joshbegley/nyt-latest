@@ -14,8 +14,8 @@ https://nytimes.com/2023/03/08/magazine/pets-ethics.html?searchResultPosition=3
 `The Fox host’s private comments, revealed recently in court documents, contrast sharply with his support of conservatives on his show.`\
 https://nytimes.com/2023/03/08/business/media/tucker-carlson-trump.html?searchResultPosition=4
 
-**A Room-Temperature Superconductor Discovery Aims to Overcome Resistance**\
-`After a 2020 paper by Ranga Dias and colleagues was retracted, the physicist and his team are back with a bolder finding.`\
+**New Room-Temperature Superconductor Offers Tantalizing Possibilities**\
+`the breakthrough could one day transform technologies that use electric energy, but it comes from a team facing doubts after a retracted paper on superconductors.`\
 https://nytimes.com/2023/03/08/science/room-temperature-superconductor-ranga-dias.html?searchResultPosition=5
 
 **The Wonders of Pasta Alla Gricia**\
