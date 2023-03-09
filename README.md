@@ -6,7 +6,7 @@ https://nytimes.com/2023/03/08/pageoneplus/quotation-of-the-day-progress-stalls-
 `Simeon Seigel brightens our Thursday.`\
 https://nytimes.com/2023/03/08/crosswords/daily-puzzle-2023-03-09.html?searchResultPosition=2
 
-**4 Found Dead in Snowbound Houses in Southern California**\
+**Death Toll Rises in Southern California Mountains After Blizzards**\
 `Piles of snow from a relentless winter storm have trapped some residents in the San Bernardino Mountains for two weeks.`\
 https://nytimes.com/2023/03/08/us/san-bernardino-snow-storm-deaths.html?searchResultPosition=3
 
