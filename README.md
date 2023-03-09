@@ -1,40 +1,40 @@
+**White Supremacist Propaganda Soared Last Year, Report Finds**\
+`The report, by the Anti-Defamation League, said three far-right groups were responsible for the large majority of the hateful fliers, banners and graffiti.`\
+https://nytimes.com/2023/03/09/us/politics/white-supremacist-propaganda.html?searchResultPosition=1
+
+**‘The Magic Flute’ Review: Mozart Meets CGI, With Help From a Tween**\
+`A young tenor enters a CGI-enlivened world at a school devoted to the composer’s works in this Roland Emmerich- inspired film.`\
+https://nytimes.com/2023/03/09/movies/the-magic-flute-review-mozart-meets-cgi-with-help-from-a-tween.html?searchResultPosition=2
+
+**‘Rewind & Play’ Review: Thelonious Monk Dazzles Even When an Interview Falls Flat**\
+`Alain Gomis’s documentary uses rushes from a 1969 French TV interview to make a smart indictment of music industry bias and offer viewers a subtle tribute to Monk.`\
+https://nytimes.com/2023/03/09/movies/rewind-play-review-thelonious-monk-dazzles-even-when-an-interview-falls-flat.html?searchResultPosition=3
+
+**‘Luther: The Fallen Sun’ Review: Psycho Filler**\
+`A smoldering Idris Elba is no match for the preposterousness of this feature-length Netflix continuation of the popular BBC crime thriller.`\
+https://nytimes.com/2023/03/09/movies/luther-the-fallen-sun-review.html?searchResultPosition=4
+
+**‘Champions’ Review: Following the Playbook**\
+`This film directed by Bobby Farrelly has elements that recall “Kingpin” and “There’s Something About Mary.” But the ratio of tastelessness to sentimentality has been reversed.`\
+https://nytimes.com/2023/03/09/movies/champions-review-following-the-playbook.html?searchResultPosition=5
+
 **The Debate Over Covid’s Origin**\
 `Both U.S. political parties are now open to the idea that Covid may have come from a lab in China.`\
-https://nytimes.com/2023/03/09/briefing/lab-leak-covid.html?searchResultPosition=1
+https://nytimes.com/2023/03/09/briefing/lab-leak-covid.html?searchResultPosition=6
 
 **Colorful, Iconic Jeepneys May Soon Be Off the Road in the Philippines**\
 `The passenger vehicles have been ubiquitous for decades. The way the government wants to replace them with pricey new minibuses is rankling operators.`\
-https://nytimes.com/2023/03/09/world/asia/philippines-jeepney.html?searchResultPosition=2
+https://nytimes.com/2023/03/09/world/asia/philippines-jeepney.html?searchResultPosition=7
 
 **A New Child Labor Crisis in America**\
 `Migrant children are ending up in some of the most dangerous jobs in the country.`\
-https://nytimes.com/2023/03/09/podcasts/the-daily/migrant-child-labor-america.html?searchResultPosition=3
+https://nytimes.com/2023/03/09/podcasts/the-daily/migrant-child-labor-america.html?searchResultPosition=8
 
 **Patrick Ewing, Georgetown and a Bitter End at the Garden**\
 `A loss in the Big East tournament may signal the end of a Hoya legend’s trying coaching tenure at his alma mater.`\
-https://nytimes.com/2023/03/09/sports/ncaabasketball/georgetown-villanova-big-east-tournament-patrick-ewing.html?searchResultPosition=4
+https://nytimes.com/2023/03/09/sports/ncaabasketball/georgetown-villanova-big-east-tournament-patrick-ewing.html?searchResultPosition=9
 
 **9 Furniture Designers From Across the African Diaspora**\
 `Jomo Tariku, a designer and data scientist, shines a spotlight on trailblazing industrial artisans and their provocative, inspiring work.`\
-https://nytimes.com/2023/03/09/style/furniture-designers-african-diaspora.html?searchResultPosition=5
-
-**A Panorama of Design**\
-`A look at design-world events, products and people.`\
-https://nytimes.com/2023/03/09/arts/design/products-events-people.html?searchResultPosition=6
-
-**How an Indigenous Architect Came Out of His Shell**\
-`Chris Cornelius imparts the lessons of his Oneida heritage in the classroom and other territories.`\
-https://nytimes.com/2023/03/09/style/indigenous-architect-chris-cornelius.html?searchResultPosition=7
-
-**Cautionary Climate Tales That Give People Pause When They Press Play**\
-`The India-born director Joshua Ashish Dawson builds digital worlds that ruminate on the future shock of environmental destruction in the real world.`\
-https://nytimes.com/2023/03/09/movies/climate-change-design-stories.html?searchResultPosition=8
-
-**4 Books That Reflect on Faces, Fragments and Torments**\
-`New reading relates the history of mirrors, patchwork and a monumental teahouse, plus the struggle to make design more just.`\
-https://nytimes.com/2023/03/09/books/4-books-that-reflect-on-faces-fragments-and-torments.html?searchResultPosition=9
-
-**Changing His Tune for Mother Russia**\
-`As the Kremlin seeks to remake Russia’s institutions to comport with its militaristic worldview, cultural figures are picking a side. One singer made his choice — and is growing rich.`\
-https://nytimes.com/2023/03/09/world/europe/shaman-putin-russia-ukraine-war.html?searchResultPosition=10
+https://nytimes.com/2023/03/09/style/furniture-designers-african-diaspora.html?searchResultPosition=10
 
