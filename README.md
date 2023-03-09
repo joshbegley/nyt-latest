@@ -35,6 +35,6 @@ https://nytimes.com/2023/03/09/style/fashion-week-moments.html?searchResultPosit
 https://nytimes.com/2023/03/09/style/borg-drinking-tiktok.html?searchResultPosition=9
 
 **Shooting in Germany Leaves Several Dead**\
-`A police spokesman said there were no indications that a shooter remained at large.`\
+`A police spokesman said there were no indications that a shooter remained at large in the attack, on a Jehovah’s Witness hall.`\
 https://nytimes.com/2023/03/09/world/europe/hamburg-shooting.html?searchResultPosition=10
 
