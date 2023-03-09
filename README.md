@@ -6,8 +6,8 @@ https://nytimes.com/2023/03/08/crosswords/daily-puzzle-2023-03-09.html?searchRes
 `Piles of snow from a relentless winter storm have trapped some residents in the San Bernardino Mountains for two weeks.`\
 https://nytimes.com/2023/03/08/us/san-bernardino-snow-storm-deaths.html?searchResultPosition=2
 
-**Biden to Visit Monterey Park and Call for Tougher Gun Control Measures**\
-`Facing a spate of mass shootings but dim prospects for any gun measures in Congress, the president will visit the California city where a gunman killed 11 people at a dance studio in January.`\
+**Biden to Visit California and Call for Tougher Gun Control Measures**\
+`Facing a spate of mass shootings, the president will visit the city where a gunman killed 11 people in January. He will also meet with the British prime minister while in California.`\
 https://nytimes.com/2023/03/08/us/politics/biden-monterey-park-mass-shooting.html?searchResultPosition=3
 
 **JPMorgan Sues Ex-Executive Accused of Helping Jeffrey Epstein**\
