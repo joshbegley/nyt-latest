@@ -14,7 +14,7 @@ https://nytimes.com/interactive/2023/03/09/smarter-living/wirecutter/survive-day
 `I’m the Johannesburg bureau chief for The Times. Here are five things I've been watching, reading and listening to.`\
 https://nytimes.com/interactive/2023/03/09/arts/editors-recommendations-industry.html?searchResultPosition=4
 
-**Eugene Kohn, Architect of Skyscraping Ambitions, Dies at 92**\
+**Eugene Kohn, Architect of Skyscraping Reach, Dies at 92**\
 `His firm, Kohn Pedersen Fox, became an international force, merging the commercial with the creative in designing some of the world’s tallest buildings.`\
 https://nytimes.com/2023/03/09/arts/design/eugene-kohn-dead.html?searchResultPosition=5
 
