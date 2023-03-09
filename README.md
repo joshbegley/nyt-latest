@@ -6,7 +6,7 @@ https://nytimes.com/2023/03/09/learning/lesson-plans/lesson-plan-how-nature-come
 `Communities in Southern California’s San Bernardino Mountains have begun to clear away several feet of snow that left many trapped in their homes.`\
 https://nytimes.com/video/us/100000008803440/san-bernardino-snow-storm.html?searchResultPosition=2
 
-**Georgia’s Governing Party Plans to Withdraw Foreign Agents Bill After Protests**\
+**Georgia Plans to Withdraw Foreign Agents Bill After Protests**\
 `Opposition lawmakers had said the legislation mimicked a similar one in Russia that has been used to clamp down on dissent.`\
 https://nytimes.com/2023/03/09/world/europe/georgia-protests-bill.html?searchResultPosition=3
 
