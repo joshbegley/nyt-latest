@@ -1,4 +1,4 @@
-**The U.N.’s atomic agency denounces complacency over safety at Zaporizhzhia plant after more Russian shelling.**\
+**The U.N.’s atomic agency denounces complacency over safety at the Zaporizhzhia plant after more Russian shelling.**\
 `It’s the sixth time the facility had to move to its emergency power supply since Russia invaded Ukraine a year ago.`\
 https://nytimes.com/2023/03/09/world/europe/zaporizhzhia-nuclear-power-ukraine-un-iaea.html?searchResultPosition=1
 
