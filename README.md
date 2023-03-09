@@ -20,7 +20,7 @@ https://nytimes.com/2023/03/09/business/roger-ng-goldman-sachs-1mdb-sentenced.ht
 
 **Questions surround Russia’s use of hypersonic missiles in its latest attack.**\
 `Moscow fired more of the air-launched weapons ever used in a single wave since the war began a year ago`\
-https://nytimes.com/2023/03/09/world/europe/questions-surround-russias-use-of-hypersonic-missiles-in-its-latest-attack.html?searchResultPosition=6
+https://nytimes.com/2023/03/09/world/europe/hypersonic-missiles-russia-ukraine.html?searchResultPosition=6
 
 **Bob Dylan Always Gives the Camera What It Wants**\
 `A new ad campaign for the fashion brand Céline reveals the 81-year-old troubadour’s hidden talent.`\
