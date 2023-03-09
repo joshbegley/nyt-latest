@@ -1,40 +1,40 @@
+**Recovery Continues After Blizzards Hit the San Bernardino Mountains**\
+`Communities in Southern California’s San Bernardino Mountains have begun to clear away several feet of snow that left many trapped in their homes.`\
+https://nytimes.com/video/us/100000008803440/san-bernardino-snow-storm.html?searchResultPosition=1
+
 **Georgia’s Governing Party Plans to Withdraw Foreign Agents Bill After Protests**\
 `Opposition lawmakers had said the legislation mimicked a similar one in Russia that has been used to clamp down on dissent.`\
-https://nytimes.com/2023/03/09/world/europe/georgia-protests-bill.html?searchResultPosition=1
+https://nytimes.com/2023/03/09/world/europe/georgia-protests-bill.html?searchResultPosition=2
 
 **Beauty’s New Queen of N.S.F.W.**\
 `The makeup artist Isamaya Ffrench has long been lauded behind the scenes for her work with fashion brands. Now her own high-end beauty label is getting a lot of attention.`\
-https://nytimes.com/2023/03/09/style/beautys-new-queen-of-nsfw.html?searchResultPosition=2
+https://nytimes.com/2023/03/09/style/beautys-new-queen-of-nsfw.html?searchResultPosition=3
 
 **Biden Will Release Dead-on-Arrival Budget, Picking Fight With G.O.P.**\
 `The president’s plans have little in common with the budget Republicans are set to release this spring, as the nation hurtles toward a possible default on its debt.`\
-https://nytimes.com/2023/03/09/us/politics/biden-budget-gop.html?searchResultPosition=3
+https://nytimes.com/2023/03/09/us/politics/biden-budget-gop.html?searchResultPosition=4
 
 **Michelle Obama’s Secret Style Weapon**\
 `Known in some quarters as the first lady’s tailor and dressmaker, Christy Rilling is starting her own line.`\
-https://nytimes.com/2023/03/09/style/new-fashion-line-michelle-obamas-secret-style-weapon.html?searchResultPosition=4
+https://nytimes.com/2023/03/09/style/new-fashion-line-michelle-obamas-secret-style-weapon.html?searchResultPosition=5
 
 **Two Sports, Two Stories, Too Many Climbs**\
 `A former N.H.L. star in his 50s was still playing. Then the Czechs qualified for the World Baseball Classic, and a reporter booked a flight.`\
-https://nytimes.com/2023/03/09/insider/two-sports-two-stories-too-many-climbs.html?searchResultPosition=5
+https://nytimes.com/2023/03/09/insider/two-sports-two-stories-too-many-climbs.html?searchResultPosition=6
 
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/03/09/crosswords/spelling-bee-forum.html?searchResultPosition=6
+https://nytimes.com/2023/03/09/crosswords/spelling-bee-forum.html?searchResultPosition=7
 
 **The Dinner Party**\
 `Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2023/03/09/learning/the-dinner-party.html?searchResultPosition=7
+https://nytimes.com/2023/03/09/learning/the-dinner-party.html?searchResultPosition=8
 
 **Late Night Can’t Believe Tucker Carlson’s Texts About Trump**\
 `“Oh, my God, it turns out the Trump hatred was coming from inside the house!” Seth Meyers said.`\
-https://nytimes.com/2023/03/09/arts/television/late-night-tucker-carlson.html?searchResultPosition=8
+https://nytimes.com/2023/03/09/arts/television/late-night-tucker-carlson.html?searchResultPosition=9
 
 **Word of the Day: seasoned**\
 `This word has appeared in 413 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/03/09/learning/word-of-the-day-seasoned.html?searchResultPosition=9
-
-**Topol, Star of ‘Fiddler on the Roof’ on the Screen and the Stage, Dies at 87**\
-`Wide acclaim for the role of Tevye helped make him, according to one newspaper, “Israel’s most famous export since the Jaffa orange.”`\
-https://nytimes.com/2023/03/09/obituaries/topol-dead.html?searchResultPosition=10
+https://nytimes.com/2023/03/09/learning/word-of-the-day-seasoned.html?searchResultPosition=10
 
