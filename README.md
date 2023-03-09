@@ -8,7 +8,7 @@ https://nytimes.com/2023/03/09/us/politics/australia-nuclear-submarines-china.ht
 
 **‘Unicorn Wars’ Review: Teddy Bears in Battle**\
 `The contrast between this animated film’s grim subject matter and its bubbly animation style is a big part of what makes it so creepy, our critic writes.`\
-https://nytimes.com/2023/03/09/movies/unicorn-wars-review-teddy-bears-in-battle.html?searchResultPosition=3
+https://nytimes.com/2023/03/09/movies/unicorn-wars-review.html?searchResultPosition=3
 
 **La Niña Has Ended, and El Niño May Be on the Way**\
 `The climate pattern that tends to bring drier, warmer conditions to the southern half of the United States and wetter weather to the northern half has ended, NOAA said Thursday.`\
