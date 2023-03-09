@@ -1,5 +1,5 @@
-**Georgia’s Ruling Party Plans to Withdraw Foreign Agents Bill After Protests**\
-`Opposition lawmakers had said that the legislation mimicked a similar one in Russia that has been used to clamp down on dissent.`\
+**Georgia’s Governing Party Plans to Withdraw Foreign Agents Bill After Protests**\
+`Opposition lawmakers had said the legislation mimicked a similar one in Russia that has been used to clamp down on dissent.`\
 https://nytimes.com/2023/03/09/world/europe/georgia-protests-bill.html?searchResultPosition=1
 
 **Beauty’s New Queen of N.S.F.W.**\
