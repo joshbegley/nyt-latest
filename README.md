@@ -12,7 +12,7 @@ https://nytimes.com/2023/03/08/world/europe/ukraine-russia-bakhmut.html?searchRe
 
 **Data Breach Could Compromise Lawmakers’ Personal Information**\
 `A cyberattack on the District of Columbia’s online health insurance marketplace may have compromised identifying data of many members of Congress and other users.`\
-https://nytimes.com/2023/03/08/us/politics/hack-dc-health-marketplace-congress-personal-information.html?searchResultPosition=4
+https://nytimes.com/2023/03/08/us/politics/data-breach-health-marketplace-congress.html?searchResultPosition=4
 
 **Mexicans Question Government’s Swift Response to Lethal Attack on Americans**\
 `Many noted the coordinated action after four Americans were kidnapped, and two killed, in a country where crimes against Mexicans get far less attention.`\
