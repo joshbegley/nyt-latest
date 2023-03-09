@@ -4,7 +4,7 @@ https://nytimes.com/2023/03/09/style/fashion-week-moments.html?searchResultPosit
 
 **What on Earth Is a BORG?**\
 `Many college students seem to love this alcohol-heavy concoction. College officials, not so much.`\
-https://nytimes.com/2023/03/09/style/what-on-earth-is-a-borg.html?searchResultPosition=2
+https://nytimes.com/2023/03/09/style/borg-drinking-tiktok.html?searchResultPosition=2
 
 **Shooting in Germany Leaves Several Dead**\
 `Several more people were injured in the shooting, at a Jehovah’s Witness Hall in Hamburg.`\
