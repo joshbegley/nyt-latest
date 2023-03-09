@@ -1,6 +1,6 @@
 **Former Goldman Banker Gets 10 Years in Prison for His Role in 1MDB Scandal**\
 `Roger Ng, who was convicted of bribery and money-laundering charges last year, was sentenced to a 10-year prison term.`\
-https://nytimes.com/2023/03/09/business/roger-ng-sentenced-10-years-1mdb-scandal.html?searchResultPosition=1
+https://nytimes.com/2023/03/09/business/roger-ng-goldman-sachs-1mdb-sentenced.html?searchResultPosition=1
 
 **Questions surround Russia’s use of hypersonic missiles in its latest attack.**\
 `Moscow fired more of the air-launched weapons ever used in a single wave since the war began a year ago`\
