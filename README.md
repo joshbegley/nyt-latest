@@ -11,7 +11,7 @@ https://nytimes.com/2023/03/09/style/fashion-week-moments.html?searchResultPosit
 https://nytimes.com/2023/03/09/style/borg-drinking-tiktok.html?searchResultPosition=3
 
 **Shooting in Germany Leaves Several Dead**\
-`Several more people were injured in the shooting, at a Jehovah’s Witness Hall in Hamburg.`\
+`A police spokesman said there were no indications that a shooter remained at large.`\
 https://nytimes.com/2023/03/09/world/europe/hamburg-shooting.html?searchResultPosition=4
 
 **Your Friday Briefing: Australia’s U.S. Nuclear Submarine Deal**\
