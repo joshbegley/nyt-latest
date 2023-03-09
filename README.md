@@ -22,9 +22,9 @@ https://nytimes.com/2023/03/09/world/europe/zaporizhzhia-nuclear-power-ukraine-u
 `The report, by the Anti-Defamation League, said three far-right groups were responsible for the large majority of the hateful fliers, banners and graffiti.`\
 https://nytimes.com/2023/03/09/us/politics/white-supremacist-propaganda.html?searchResultPosition=6
 
-**‘The Magic Flute’ Review: Mozart Meets CGI, With Help From a Tween**\
-`A young tenor enters a CGI-enlivened world at a school devoted to the composer’s works in this Roland Emmerich- inspired film.`\
-https://nytimes.com/2023/03/09/movies/the-magic-flute-review-mozart-meets-cgi-with-help-from-a-tween.html?searchResultPosition=7
+**‘The Magic Flute’ Review: Mozart Meets C.G.I., With Help From a Tween**\
+`A young tenor enters a world enlivened by computer graphics at a school devoted to the composer’s works in this Roland Emmerich-inspired film.`\
+https://nytimes.com/2023/03/09/movies/the-magic-flute-review.html?searchResultPosition=7
 
 **‘Rewind & Play’ Review: Thelonious Monk Dazzles Even When an Interview Falls Flat**\
 `Alain Gomis’s documentary uses rushes from a 1969 French TV interview to make a smart indictment of music industry bias and offer viewers a subtle tribute to Monk.`\
