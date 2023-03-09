@@ -1,40 +1,40 @@
-**Your Thursday Evening Briefing**\
-`Here’s what you need to know at the end of the day.`\
-https://nytimes.com/2023/03/09/briefing/donald-trump-prosecutors-biden-budget-proposal.html?searchResultPosition=1
-
-**F.D.A. Will Require Dense Breast Disclosure at Mammogram Clinics**\
-`The U.S. agency wants to ensure that doctors inform women that some breast anomalies require more examination.`\
-https://nytimes.com/2023/03/09/health/dense-breast-fda-mammogram.html?searchResultPosition=2
-
-**‘65’ Review: What on Earth?**\
-`Millions of years ago, a guy from another planet landed on this one. Like most survivors, he had a moody little girl with him.`\
-https://nytimes.com/2023/03/09/movies/65-review-adam-driver.html?searchResultPosition=3
-
 **Prosecutors Signal Criminal Charges for Trump Are Likely**\
 `The former president was told that he could appear before a Manhattan grand jury next week if he wishes to testify, a strong indication that an indictment could soon follow.`\
-https://nytimes.com/2023/03/09/nyregion/trump-potential-criminal-charges-bragg.html?searchResultPosition=4
+https://nytimes.com/2023/03/09/nyregion/trump-potential-criminal-charges-bragg.html?searchResultPosition=1
 
 **12 Fashion Week Moments That Kept Us Talking**\
 `Including frog clogs, denim scraps, robot dogs and scented dresses.`\
-https://nytimes.com/2023/03/09/style/fashion-week-moments.html?searchResultPosition=5
+https://nytimes.com/2023/03/09/style/fashion-week-moments.html?searchResultPosition=2
 
 **What on Earth Is a BORG?**\
 `Many college students seem to love this alcohol-heavy concoction. College officials, not so much.`\
-https://nytimes.com/2023/03/09/style/borg-drinking-tiktok.html?searchResultPosition=6
+https://nytimes.com/2023/03/09/style/borg-drinking-tiktok.html?searchResultPosition=3
 
 **Shooting in Germany Leaves Several Dead**\
 `Several more people were injured in the shooting, at a Jehovah’s Witness Hall in Hamburg.`\
-https://nytimes.com/2023/03/09/world/europe/hamburg-shooting.html?searchResultPosition=7
+https://nytimes.com/2023/03/09/world/europe/hamburg-shooting.html?searchResultPosition=4
 
 **Your Friday Briefing: Australia’s U.S. Nuclear Submarine Deal**\
 `Also, Russia hits targets across Ukraine.`\
-https://nytimes.com/2023/03/09/briefing/australia-us-aukus-nuclear-submarines.html?searchResultPosition=8
+https://nytimes.com/2023/03/09/briefing/australia-us-aukus-nuclear-submarines.html?searchResultPosition=5
 
 **Weeks After Ohio Train Derailment, Health Concerns Mount**\
 `In a tight-knit town already skeptical of the government, the lack of concrete information, and the open-ended nature of the crisis, undergird anxiety.`\
-https://nytimes.com/2023/03/09/health/east-palestine-derailment-health-issues.html?searchResultPosition=9
+https://nytimes.com/2023/03/09/health/east-palestine-derailment-health-issues.html?searchResultPosition=6
 
 **Jean Faut, Star Pitcher in Women’s Baseball League, Dies at 98**\
 `She threw two perfect games — something no major league pitcher has done — in the league that inspired the film “A League of Their Own.”`\
-https://nytimes.com/2023/03/09/sports/baseball/jean-faut-dies.html?searchResultPosition=10
+https://nytimes.com/2023/03/09/sports/baseball/jean-faut-dies.html?searchResultPosition=7
+
+**‘Unrivaled’ Storm Threatens California With Floods**\
+`Officials warned of inundated streets and overflowing rivers. Strong winds could also knock down trees and power lines.`\
+https://nytimes.com/2023/03/09/us/california-weather-rain-storm-flood.html?searchResultPosition=8
+
+**Biden Introduces His $6.8 Trillion Budget Proposal**\
+`President Biden’s plan, which he said would reduce the deficit and raise taxes on the rich, is widely considered to be dead on arrival with Republicans controlling the House.`\
+https://nytimes.com/video/us/politics/100000008804922/biden-budget-proposal-deficit.html?searchResultPosition=9
+
+**Lawmaker Says He Was Target of F.B.I. Surveillance Material Searches**\
+`The revelation by Representative Darin LaHood, Republican of Illinois, put a twist on a murky incident that has loomed over a debate on reauthorizing an expiring surveillance law.`\
+https://nytimes.com/2023/03/09/us/politics/fbi-surveillance-darin-lahood.html?searchResultPosition=10
 
