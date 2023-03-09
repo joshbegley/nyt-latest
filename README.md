@@ -7,7 +7,7 @@ https://nytimes.com/2023/03/09/obituaries/topol-dead.html?searchResultPosition=1
 https://nytimes.com/2023/03/09/briefing/israel-judiciary-ukraine-explosions.html?searchResultPosition=2
 
 **Mitch McConnell Is Hospitalized After Tripping at Washington Hotel**\
-`The Senate minority leader tripped during a private dinner, his spokesman said. No other details were immediately available.`\
+`The Senate minority leader tripped during a private dinner, his spokesman said. No details on the 81-year-old Republican’s condition were available.`\
 https://nytimes.com/2023/03/09/us/politics/mitch-mcconnell-hospitalized-washington.html?searchResultPosition=3
 
 **A Monument to Harriet Tubman Replaces a Columbus Statue in Newark**\
