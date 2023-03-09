@@ -1,40 +1,40 @@
+**Beauty’s New Queen of N.S.F.W.**\
+`The makeup artist Isamaya Ffrench has long been lauded behind the scenes for her work with fashion brands. Now her own high-end beauty label is getting a lot of attention.`\
+https://nytimes.com/2023/03/09/style/beautys-new-queen-of-nsfw.html?searchResultPosition=1
+
+**Biden Will Release Dead-on-Arrival Budget, Picking Fight With G.O.P.**\
+`The president’s plans have little in common with the budget Republicans are set to release this spring, as the nation hurtles toward a possible default on its debt.`\
+https://nytimes.com/2023/03/09/us/politics/biden-budget-gop.html?searchResultPosition=2
+
+**Michelle Obama’s Secret Style Weapon**\
+`Known in some quarters as the first lady’s tailor and dressmaker, Christy Rilling is starting her own line.`\
+https://nytimes.com/2023/03/09/style/new-fashion-line-michelle-obamas-secret-style-weapon.html?searchResultPosition=3
+
+**Two Sports, Two Stories, Too Many Climbs**\
+`A former N.H.L. star in his 50s was still playing. Then the Czechs qualified for the World Baseball Classic, and a reporter booked a flight.`\
+https://nytimes.com/2023/03/09/insider/two-sports-two-stories-too-many-climbs.html?searchResultPosition=4
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2023/03/09/crosswords/spelling-bee-forum.html?searchResultPosition=5
+
+**The Dinner Party**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://nytimes.com/2023/03/09/learning/the-dinner-party.html?searchResultPosition=6
+
 **Late Night Can’t Believe Tucker Carlson’s Texts About Trump**\
 `“Oh, my God, it turns out the Trump hatred was coming from inside the house!” Seth Meyers said.`\
-https://nytimes.com/2023/03/09/arts/television/late-night-tucker-carlson.html?searchResultPosition=1
+https://nytimes.com/2023/03/09/arts/television/late-night-tucker-carlson.html?searchResultPosition=7
 
 **Word of the Day: seasoned**\
 `This word has appeared in 413 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/03/09/learning/word-of-the-day-seasoned.html?searchResultPosition=2
+https://nytimes.com/2023/03/09/learning/word-of-the-day-seasoned.html?searchResultPosition=8
 
 **Topol, Star of ‘Fiddler on the Roof’ on the Screen and the Stage, Dies at 87**\
 `Wide acclaim for the role of Tevye helped make him, according to one newspaper, “Israel’s most famous export since the Jaffa orange.”`\
-https://nytimes.com/2023/03/09/obituaries/topol-dead.html?searchResultPosition=3
+https://nytimes.com/2023/03/09/obituaries/topol-dead.html?searchResultPosition=9
 
 **Your Thursday Briefing**\
 `Criticism in the U.S. of Israel’s judicial overhaul plan.`\
-https://nytimes.com/2023/03/09/briefing/israel-judiciary-ukraine-explosions.html?searchResultPosition=4
-
-**Mitch McConnell Is Hospitalized After Tripping at Washington Hotel**\
-`The Senate minority leader tripped during a private dinner, his spokesman said. No details on the 81-year-old Republican’s condition were available.`\
-https://nytimes.com/2023/03/09/us/politics/mitch-mcconnell-hospitalized-washington.html?searchResultPosition=5
-
-**A Monument to Harriet Tubman Replaces a Columbus Statue in Newark**\
-`A new statue honors the abolitionist hero, but it also prompts a debate about Newark history and honoring George Washington.`\
-https://nytimes.com/2023/03/09/nyregion/harriet-tubman-monument-newark.html?searchResultPosition=6
-
-**Quotation of the Day: Progress Stalls for Black Women Trying to Achieve Higher Office**\
-`Quotation of the Day for Thursday, March 9, 2023.`\
-https://nytimes.com/2023/03/08/pageoneplus/quotation-of-the-day-progress-stalls-for-black-women-trying-to-achieve-higher-office.html?searchResultPosition=7
-
-**Take Off**\
-`Simeon Seigel brightens our Thursday.`\
-https://nytimes.com/2023/03/08/crosswords/daily-puzzle-2023-03-09.html?searchResultPosition=8
-
-**Death Toll Rises in Southern California Mountains After Blizzards**\
-`Piles of snow from a relentless winter storm have trapped some residents in the San Bernardino Mountains for two weeks.`\
-https://nytimes.com/2023/03/08/us/san-bernardino-snow-storm-deaths.html?searchResultPosition=9
-
-**Biden to Visit California and Call for Tougher Gun Control Measures**\
-`Facing a spate of mass shootings, the president will visit the city where a gunman killed 11 people in January. He will also meet with the British prime minister while in California.`\
-https://nytimes.com/2023/03/08/us/politics/biden-monterey-park-mass-shooting.html?searchResultPosition=10
+https://nytimes.com/2023/03/09/briefing/israel-judiciary-ukraine-explosions.html?searchResultPosition=10
 
