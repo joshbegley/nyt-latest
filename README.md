@@ -1,40 +1,40 @@
+**Xi Jinping Secures Third Presidential Term**\
+`The ruling Communist Party voted unanimously to keep Xi Jinping as president of China.`\
+https://nytimes.com/video/world/asia/100000008805551/china-xi-jinping-president.html?searchResultPosition=1
+
 **Stephen Colbert Is Not Paying $99 for Trump’s New Book**\
 `“Yes, it sounds expensive, but how should he know?” the “Late Show” host said. “He’s never bought a book.”`\
-https://nytimes.com/2023/03/10/arts/television/stephen-colbert-trump-book.html?searchResultPosition=1
+https://nytimes.com/2023/03/10/arts/television/stephen-colbert-trump-book.html?searchResultPosition=2
 
 **Your Friday Briefing**\
 `The toll of Russia’s Thursday morning assault on Ukraine.`\
-https://nytimes.com/2023/03/10/briefing/missiles-ukraine-shooting-hamburg.html?searchResultPosition=2
+https://nytimes.com/2023/03/10/briefing/missiles-ukraine-shooting-hamburg.html?searchResultPosition=3
 
 **Here Are the Men Leading China for the Next Five Years**\
 `As Xi Jinping starts his third term as president, he is pushing sweeping changes to the rest of the country’s leadership to elevate his allies.`\
-https://nytimes.com/article/china-leaders-xi-jinping.html?searchResultPosition=3
+https://nytimes.com/article/china-leaders-xi-jinping.html?searchResultPosition=4
 
 **Different Visions for New York Herald Clash of Mayor and Council Speaker**\
 `The mayor wants tougher policing, while Adrienne Adams, the City Council speaker, wants to close Rikers. Also, a man is freed after 18 years in prison for a crime he didn’t commit.`\
-https://nytimes.com/2023/03/10/nyregion/different-visions-for-new-york-herald-clash-of-mayor-and-council-speaker.html?searchResultPosition=4
+https://nytimes.com/2023/03/10/nyregion/different-visions-for-new-york-herald-clash-of-mayor-and-council-speaker.html?searchResultPosition=5
 
 **In Dubai, a Wedding Steeped in Palestinian and Moroccan Culture**\
 `Nora Achmaoui and Khalid Alherani met on Instagram. One month later, they started a TikTok account that now has 1.3 million followers.`\
-https://nytimes.com/2023/03/10/style/nora-achmaoui-khalid-alherani-wedding.html?searchResultPosition=5
+https://nytimes.com/2023/03/10/style/nora-achmaoui-khalid-alherani-wedding.html?searchResultPosition=6
 
 **Why Russia Has Such a Strong Grip on Europe’s Nuclear Power**\
 `New energy sources to replace oil and natural gas have been easier to find than kicking the dependency on Rosatom, the state-owned nuclear superstore.`\
-https://nytimes.com/2023/03/10/business/economy/russia-nuclear-energy-ukraine.html?searchResultPosition=6
+https://nytimes.com/2023/03/10/business/economy/russia-nuclear-energy-ukraine.html?searchResultPosition=7
 
 **A Not-So-Fat Indian Wedding**\
 `Khushboo Chaudhary and Param Gupta, who met in New York, chose to cancel their 300-person wedding in favor of an intimate celebration.`\
-https://nytimes.com/2023/03/10/style/khushboo-chaudhary-param-gupta-wedding.html?searchResultPosition=7
+https://nytimes.com/2023/03/10/style/khushboo-chaudhary-param-gupta-wedding.html?searchResultPosition=8
 
 **They Met the Day the World Shut Down**\
 `Courtney Smith and Andrew Fede had their first date on March 13, 2020. Lockdown eventually led to a lifetime commitment.`\
-https://nytimes.com/2023/03/10/style/courtney-smith-andrew-fede-wedding.html?searchResultPosition=8
+https://nytimes.com/2023/03/10/style/courtney-smith-andrew-fede-wedding.html?searchResultPosition=9
 
 **A More Secure Future, Courtesy of a Green Card**\
 `The connection that Kirsten Erwin and Ricardo Kozuchowicz had when they first met was quickly overshadowed by his struggles to remain in the country.`\
-https://nytimes.com/2023/03/10/style/kirsten-erwin-ricardo-kozuchowicz-wedding.html?searchResultPosition=9
-
-**Former Ohio Legislator Found Guilty of Racketeering in $60 Million Scheme**\
-`Larry Householder, a former Ohio House speaker, and Matthew Borges, a former chairman of the Ohio Republican Party, were found guilty in a conspiracy that dated back to 2017, the Justice Department said.`\
-https://nytimes.com/2023/03/09/us/politics/ohio-householder-borges-bribery.html?searchResultPosition=10
+https://nytimes.com/2023/03/10/style/kirsten-erwin-ricardo-kozuchowicz-wedding.html?searchResultPosition=10
 
