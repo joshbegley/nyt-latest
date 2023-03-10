@@ -1,40 +1,40 @@
+**In Dubai, a Wedding Steeped in Palestinian and Moroccan Culture**\
+`Nora Achmaoui and Khalid Alherani met on Instagram. One month later, they started a TikTok account that now has 1.3 million followers.`\
+https://nytimes.com/2023/03/10/style/nora-achmaoui-khalid-alherani-wedding.html?searchResultPosition=1
+
+**Why Russia Has Such a Strong Grip on Europe’s Nuclear Power**\
+`New energy sources to replace oil and natural gas have been easier to find than kicking the dependency on Rosatom, the state-owned nuclear superstore.`\
+https://nytimes.com/2023/03/10/business/economy/russia-nuclear-energy-ukraine.html?searchResultPosition=2
+
+**A Not-So-Fat Indian Wedding**\
+`Khushboo Chaudhary and Param Gupta, who met in New York, chose to cancel their 300-person wedding in favor of an intimate celebration.`\
+https://nytimes.com/2023/03/10/style/khushboo-chaudhary-param-gupta-wedding.html?searchResultPosition=3
+
+**They Met the Day the World Shut Down**\
+`Courtney Smith and Andrew Fede had their first date on March 13, 2020. Lockdown eventually led to a lifetime commitment.`\
+https://nytimes.com/2023/03/10/style/courtney-smith-andrew-fede-wedding.html?searchResultPosition=4
+
+**A More Secure Future, Courtesy of a Green Card**\
+`The connection that Kirsten Erwin and Ricardo Kozuchowicz had when they first met was quickly overshadowed by his struggles to remain in the country.`\
+https://nytimes.com/2023/03/10/style/kirsten-erwin-ricardo-kozuchowicz-wedding.html?searchResultPosition=5
+
 **Former Ohio Legislator Found Guilty of Racketeering in $60 Million Scheme**\
 `Larry Householder, a former Ohio House speaker, and Matthew Borges, a former chairman of the Ohio Republican Party, were found guilty in a conspiracy that dated back to 2017, the Justice Department said.`\
-https://nytimes.com/2023/03/09/us/politics/ohio-householder-borges-bribery.html?searchResultPosition=1
+https://nytimes.com/2023/03/09/us/politics/ohio-householder-borges-bribery.html?searchResultPosition=6
 
 **Inside the ‘Top Chef’ Industrial Complex**\
 `Entering its 20th season, the sprawling Bravo franchise has changed the way Americans eat and become a mirror of the restaurant industry.`\
-https://nytimes.com/2023/03/09/dining/top-chef-season-20.html?searchResultPosition=2
+https://nytimes.com/2023/03/09/dining/top-chef-season-20.html?searchResultPosition=7
 
 **Track the Latest Atmospheric River to Hit California**\
 `Use these maps to follow the storm’s forecast and impact.`\
-https://nytimes.com/interactive/2023/03/09/us/track-california-storm.html?searchResultPosition=3
+https://nytimes.com/interactive/2023/03/09/us/track-california-storm.html?searchResultPosition=8
 
 **Quotation of the Day: After Derailment, Health Fears in an Ohio Town**\
 `Quotation of the Day for Friday, March 10, 2023.`\
-https://nytimes.com/2023/03/09/pageoneplus/quotation-of-the-day-after-derailment-health-fears-in-an-ohio-town.html?searchResultPosition=4
+https://nytimes.com/2023/03/09/pageoneplus/quotation-of-the-day-after-derailment-health-fears-in-an-ohio-town.html?searchResultPosition=9
 
 **Variety: Acrostic**\
 `Emily Cox and Henry Rathvon change phases.`\
-https://nytimes.com/2023/03/09/crosswords/variety-acrostic.html?searchResultPosition=5
-
-**Why China Is Tightening Its Oversight of Banking and Tech**\
-`A series of regulatory changes approved this week reflect the increasingly centralized control of Xi Jinping, newly confirmed for a third term as China’s president.`\
-https://nytimes.com/2023/03/09/business/china-peoples-congress-financial-regulation.html?searchResultPosition=6
-
-**Republicans Open Inquiry Into Treatment of Jan. 6 Defendants at D.C. Jail**\
-`House Republicans demanded answers about whether Jan. 6 prisoners were mistreated, part of a broader effort by the G.O.P. to rewrite the history of the riot.`\
-https://nytimes.com/2023/03/09/us/politics/jan-6-prisoners-republican-investigation.html?searchResultPosition=7
-
-**Out of Control**\
-`Claire Rimkus offers up a fantastic puzzle.`\
-https://nytimes.com/2023/03/09/crosswords/daily-puzzle-2023-03-10.html?searchResultPosition=8
-
-**Xi, More Dominant Than Ever, Focuses on Economy and U.S. Rivalry**\
-`The Communist Party-controlled legislature, the National People’s Congress, endorsed Xi Jinping for president in a ritual ballot.`\
-https://nytimes.com/2023/03/09/world/asia/xi-economy-us-rivalry.html?searchResultPosition=9
-
-**Former Fox Employee Convicted of Bribery for Soccer Broadcast Deals**\
-`The employee, Hernán López, and an Argentine marketing firm were accused of helping make illegal payments for rights to tournaments in South America.`\
-https://nytimes.com/2023/03/09/sports/fifa-soccer-fox-bribery-trial-hernan-lopez-convicted.html?searchResultPosition=10
+https://nytimes.com/2023/03/09/crosswords/variety-acrostic.html?searchResultPosition=10
 
