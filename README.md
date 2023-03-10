@@ -18,9 +18,9 @@ https://nytimes.com/2023/03/10/us/yeti-cooler-recall-magnet.html?searchResultPos
 `The Italian brand held a splashy runway show in Los Angeles, making the most of a star-studded weekend.`\
 https://nytimes.com/2023/03/10/style/versace-fashion-show-oscars.html?searchResultPosition=5
 
-**Adams Friends Have Paid Just a Fraction of Sum Ordered in Federal Case**\
+**Friends of Eric Adams Have Paid Fraction of Sum Ordered in Federal Case**\
 `The operators of Mayor Eric Adams’s favorite Manhattan restaurant still owe the government hundreds of thousands of dollars as part of a decade-old criminal case, court records show.`\
-https://nytimes.com/2023/03/10/nyregion/petrosyants-eric-adams-money-laundering.html?searchResultPosition=6
+https://nytimes.com/2023/03/10/nyregion/eric-adams-friends-petrosyants-federal-case.html?searchResultPosition=6
 
 **At the End of a Hard Journey, Migrants Face Another: Navigating Bureaucracy**\
 `The Biden administration’s new rules have brought down a record number of border crossings, but critics say they expose the pitfalls of policies intended to manage an immediate problem.`\
