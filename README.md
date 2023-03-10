@@ -11,7 +11,7 @@ https://nytimes.com/2023/03/10/world/europe/da-vinci-funeral-ukraine.html?search
 https://nytimes.com/2023/03/10/science/francisco-ayala-dead.html?searchResultPosition=3
 
 **Silicon Valley Bank Fails After Run by Venture Capital Customers**\
-`The Federal Deposit Insurance Corporation took control of the bank’s assets on Friday.`\
+`The Federal Deposit Insurance Corporation took control of the bank’s assets on Friday. The failure raised concerns that other banks could face problems, too.`\
 https://nytimes.com/2023/03/10/business/silicon-valley-bank-stock.html?searchResultPosition=4
 
 **Its Georgia O’Keeffe Is Worth Millions. And Its Dorms Need Updating.**\
