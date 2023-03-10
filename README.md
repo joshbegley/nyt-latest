@@ -1,4 +1,4 @@
-**Residents Fret Over Death Toll in Southern California Mountains**\
+**Residents Fret Over Deaths in Southern California Mountains**\
 `Relatives and neighbors described the heartbreaking end for those who died during heavy snowstorms northeast of Los Angeles.`\
 https://nytimes.com/2023/03/09/us/san-bernardino-snow-deaths.html?searchResultPosition=1
 
