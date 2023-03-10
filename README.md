@@ -26,8 +26,8 @@ https://nytimes.com/2023/03/10/us/one-of-the-oldest-restaurants-in-the-country-i
 `Even with Messi, Mbappé and Neymar, the French champion is a Champions League also-ran once again. Is buying local the way forward?`\
 https://nytimes.com/2023/03/10/sports/soccer/psg-messi-mbappe.html?searchResultPosition=7
 
-**Saudi Arabia and Iran Agree to Re-establish Ties in Major Regional Shift**\
-`The two regional rivals agreed to reactivate a lapsed security cooperation agreement as well as older trade, investment and cultural pacts.`\
+**Saudi Arabia and Iran Agree to Re-establish Ties in Talks Hosted by China**\
+`The two regional rivals agreed to reactivate a lapsed security cooperation agreement and reopen embassies within two months.`\
 https://nytimes.com/2023/03/10/world/middleeast/saudi-arabia-iran-reestablish-ties.html?searchResultPosition=8
 
 **Drum-and-Bass Is Rising Again, With Nia Archives in the Spotlight**\
