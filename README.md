@@ -30,7 +30,7 @@ https://nytimes.com/2023/03/09/us/politics/jan-6-prisoners-republican-investigat
 `Claire Rimkus offers up a fantastic puzzle.`\
 https://nytimes.com/2023/03/09/crosswords/daily-puzzle-2023-03-10.html?searchResultPosition=8
 
-**Xi Starts New Term in China, With a Focus on Economy and U.S. Rivalry**\
+**Xi, More Dominant Than Ever, Focuses on Economy and U.S. Rivalry**\
 `The Communist Party-controlled legislature, the National People’s Congress, endorsed Xi Jinping for president in a ritual ballot.`\
 https://nytimes.com/2023/03/09/world/asia/xi-economy-us-rivalry.html?searchResultPosition=9
 
