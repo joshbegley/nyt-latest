@@ -1,6 +1,6 @@
 **Residents Fret Over Death Toll in Southern California Mountains**\
 `Relatives and neighbors described the heartbreaking end for those who died during heavy snowstorms northeast of Los Angeles.`\
-https://nytimes.com/2023/03/09/us/residents-fret-over-death-toll-in-southern-california-mountains.html?searchResultPosition=1
+https://nytimes.com/2023/03/09/us/san-bernardino-snow-deaths.html?searchResultPosition=1
 
 **Silicon Valley Bank’s Financial Stability Worries Investors**\
 `The bank, a linchpin of tech industry financing, is trying to persuade clients not to pull their money over concerns of a liquidity crisis.`\
