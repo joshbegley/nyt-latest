@@ -18,7 +18,7 @@ https://nytimes.com/2023/03/09/pageoneplus/quotation-of-the-day-after-derailment
 `Emily Cox and Henry Rathvon change phases.`\
 https://nytimes.com/2023/03/09/crosswords/variety-acrostic.html?searchResultPosition=5
 
-**Why China Is Turning the Screw Tighter on Oversight of Banking and Tech**\
+**Why China Is Tightening Its Oversight of Banking and Tech**\
 `A series of regulatory changes approved this week reflect the increasingly centralized control of Xi Jinping, newly confirmed for a third term as China’s president.`\
 https://nytimes.com/2023/03/09/business/china-peoples-congress-financial-regulation.html?searchResultPosition=6
 
