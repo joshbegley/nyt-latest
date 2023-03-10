@@ -3,7 +3,7 @@
 https://nytimes.com/2023/03/10/sports/baseball/nelson-cruz-dominican-republic-wbc.html?searchResultPosition=1
 
 **Giving the Middle Finger Is a ‘God-Given’ Right, a Quebec Judge Says**\
-`In dismissing a harassment case, the judge wrote that the right to make the obscene gesture is one that “that belongs to every red-blooded Canadian.”`\
+`In dismissing a harassment case, the judge wrote that the right to make the obscene gesture is one “that belongs to every red-blooded Canadian.”`\
 https://nytimes.com/2023/03/10/world/canada/middle-finger-god-given-right-canada.html?searchResultPosition=2
 
 **A (Literal) Passport Out of Russia: Give Birth in Argentina**\
