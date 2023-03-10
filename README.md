@@ -1,5 +1,5 @@
 **Prince Edward Receives a New Title on His Birthday**\
-`King Charles named Edward, his youngest brother, the Duke of Edinburgh on his 59th birthday. The title was previously held by their father, Prince Philip.`\
+`King Charles III named Edward, his youngest brother, the Duke of Edinburgh on his 59th birthday. The title was previously held by their father, Prince Philip.`\
 https://nytimes.com/2023/03/10/world/europe/prince-edward-duke-of-edinburgh.html?searchResultPosition=1
 
 **Troubles at Silicon Valley Bank Rock the Global Market**\
