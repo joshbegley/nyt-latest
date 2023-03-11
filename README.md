@@ -1,6 +1,6 @@
 **How Mikaela Shiffrin Won More World Cup Races Than Anyone**\
 `Shiffrin has now won 87 World Cup races, passing Ingemar Stenmark’s record that stood for 34 years. Her ski racing career has been a master class in evading common pitfalls.`\
-https://nytimes.com/2023/03/11/sports/skiing/shiffrin-stenmark-world-cup.html?searchResultPosition=1
+https://nytimes.com/2023/03/11/sports/skiing/shiffrin-stenmark-world-cup-record.html?searchResultPosition=1
 
 **Broken Bones, Broken Hearts and Broken Souls**\
 `An editor recommends old and new books.`\
