@@ -1,5 +1,5 @@
 **Front Line Shifts in Russia and Ukraine’s Battle for Bakhmut, Analysts Say**\
-`Britain’s defense intelligence agency said that Russian forces had taken control of most of Bakhmut’s east, but advances further west might be challenging.`\
+`Britain’s defense intelligence agency said that Russian forces had taken control of most of Bakhmut’s east, but advances farther west might be challenging.`\
 https://nytimes.com/2023/03/11/world/europe/russia-ukraine-war-bakhmut.html?searchResultPosition=1
 
 **Inside the Global Race to Turn Water Into Fuel**\
