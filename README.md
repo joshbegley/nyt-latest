@@ -1,4 +1,4 @@
-**An Audio Streamer and Husband Fatally Shot by Stalker, Police Say**\
+**Stalker Fatally Shoots Audio Streamer and Husband, Police Say**\
 `The police in Redmond, Wash., said the gunman had been stalking the woman, who appeared on an audio stream on the social media app Clubhouse.`\
 https://nytimes.com/2023/03/11/us/podcast-husband-killed-washington-stalker.html?searchResultPosition=1
 
