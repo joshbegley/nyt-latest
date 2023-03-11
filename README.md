@@ -30,11 +30,11 @@ https://nytimes.com/2023/03/11/us/navy-ship-confederate-robert-smalls.html?searc
 `Pursuing disengagement from China is not in America’s national interest.`\
 https://nytimes.com/2023/03/11/opinion/china-us-relationship.html?searchResultPosition=8
 
+**What Old and Young Americans Owe One Another**\
+`Social Security and Medicare should bring generations together, not tear them apart. `\
+https://nytimes.com/2023/03/11/opinion/social-security-medicare-intergenerational-compact.html?searchResultPosition=9
+
 **Faith Healing Should Not Be Mainstream Treatment for Addiction**\
 `All addiction treatment should be science-based.`\
-https://nytimes.com/2023/03/11/opinion/faith-addiction-treatment.html?searchResultPosition=9
-
-**My Life With Tom Cruise**\
-`How the ageless actor has held my — and our — unbroken attention for a lifetime.`\
-https://nytimes.com/2023/03/11/opinion/tom-cruise-maverick.html?searchResultPosition=10
+https://nytimes.com/2023/03/11/opinion/faith-addiction-treatment.html?searchResultPosition=10
 
