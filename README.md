@@ -18,8 +18,8 @@ https://nytimes.com/2023/03/12/world/europe/swiss-neutrality-russia-ukraine.html
 `Ricotta pasta alla vodka, cauliflower shawarma and more recipes.`\
 https://nytimes.com/2023/03/12/dining/what-to-cook-this-week.html?searchResultPosition=5
 
-**Yellen Says Regulators at Work to Contain Fallout From Silicon Valley Bank Collapse**\
-`The Treasury secretary’s comments on Sunday morning sought to assure the public that the overall banking sector was safe.`\
+**Yellen Reassures as Regulators Race to Contain Bank Collapse Fallout**\
+`Treasury Secretary Janet Yellen sought to reassure the public on Sunday as regulators scrambled to ensure that one bank’s failure would not ignite broader problems.`\
 https://nytimes.com/2023/03/12/business/janet-yellen-silicon-valley-bank.html?searchResultPosition=6
 
 **Authorities Reinstate Alcohol Ban for Aboriginal Australians**\
