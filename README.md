@@ -15,7 +15,7 @@ https://nytimes.com/2023/03/12/sports/olympics/pat-mccormick-dead.html?searchRes
 https://nytimes.com/2023/03/12/opinion/letters/arts-refuge.html?searchResultPosition=4
 
 **At Least 8 Dead as Two Small Boats Capsize in San Diego**\
-`Searchers were looking for victims from the air and in the water late on Saturday. They recovered bodies, life jackets and fuel barrels.`\
+`Searchers were looking for victims of what the authorities said was a human smuggling operation. They recovered bodies, life jackets and fuel barrels.`\
 https://nytimes.com/2023/03/12/us/san-diego-drownings.html?searchResultPosition=5
 
 **A Nor’easter Is Expected to Bring Heavy Snow Starting Monday Night**\
