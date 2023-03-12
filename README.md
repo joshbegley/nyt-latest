@@ -22,8 +22,8 @@ https://nytimes.com/2023/03/12/climate/silicon-valley-bank-climate.html?searchRe
 `Stars have begun to arrive at the 95th Academy Awards.`\
 https://nytimes.com/2023/03/12/style/oscars-red-carpet-photos.html?searchResultPosition=6
 
-**Biden Plans New Limits on Arctic Drilling Ahead of Controversial Willow Decision**\
-`New rules will limit offshore oil leases, among other things, an administration official said. The changes come as the administration moves toward approving an $8 billion ConocoPhillips drilling project.`\
+**Administration to Approve Huge Alaska Oil Project on Monday, Two Officials Say**\
+`Biden is also expected to put broad new limits on Arctic drilling in an apparent effort to temper criticism over the $8 billion Willow oil project, which has faced sharp climate opposition.`\
 https://nytimes.com/2023/03/12/climate/biden-willow-arctic-drilling-restrictions.html?searchResultPosition=7
 
 **Who Are You Wearing? For Costume Designers, the Answer May Be ‘Me.’**\
