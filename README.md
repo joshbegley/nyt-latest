@@ -19,7 +19,7 @@ https://nytimes.com/2023/03/12/arts/music/adam-tendler-inheritances-review.html?
 https://nytimes.com/2023/03/12/movies/oscars-winners-list.html?searchResultPosition=5
 
 **Pat McCormick, Olympic Diving Champion, Is Dead at 92**\
-`The first diver to sweep the gold medals in two Olympics, she won 26 national championships in a career that ended when she was still in her 20s.`\
+`The first diver to sweep the gold medals in two Olympics, she won numerous national championships in a career that ended when she was still in her 20s.`\
 https://nytimes.com/2023/03/12/sports/olympics/pat-mccormick-dead.html?searchResultPosition=6
 
 **Finding Refuge, and More, in the Arts**\
