@@ -2,39 +2,39 @@
 `Alabama, Houston, Kansas and Purdue earned No. 1 seeds in a tournament where top teams seem more beatable than usual, and others that usually might be considered upstarts have viable paths to the championship.`\
 https://nytimes.com/2023/03/12/sports/ncaabasketball/ncaa-tournament-seedings.html?searchResultPosition=1
 
+**How the Slap Has Changed the Oscars**\
+`Here’s a look at the fallout from last year’s Oscars, when Will Smith slapped Chris Rock onstage.`\
+https://nytimes.com/2023/03/12/movies/oscars-slap-will-smith-chris-rock.html?searchResultPosition=2
+
 **2023 N.C.A.A. Men’s Tournament Bracket**\
 `Print your bracket, make your picks, and follow the latest scores as the tournament unfolds.`\
-https://nytimes.com/interactive/2023/03/12/sports/ncaabasketball/march-madness-mens-bracket.html?searchResultPosition=2
+https://nytimes.com/interactive/2023/03/12/sports/ncaabasketball/march-madness-mens-bracket.html?searchResultPosition=3
 
 **Bamboozled**\
 `Sam Koperwas and Jeff Chen are just giving you a hard time.`\
-https://nytimes.com/2023/03/12/crosswords/daily-puzzle-2023-03-13.html?searchResultPosition=3
+https://nytimes.com/2023/03/12/crosswords/daily-puzzle-2023-03-13.html?searchResultPosition=4
 
 **Silicon Valley Bank Collapse Threatens Climate Start-Ups**\
 `The bank had relationships with more than 1,500 companies working on technologies aimed at curbing global warming.`\
-https://nytimes.com/2023/03/12/climate/silicon-valley-bank-climate.html?searchResultPosition=4
+https://nytimes.com/2023/03/12/climate/silicon-valley-bank-climate.html?searchResultPosition=5
 
 **2023 Oscars: Every Look From the Red Carpet**\
 `Stars have begun to arrive at the 95th Academy Awards.`\
-https://nytimes.com/2023/03/12/style/oscars-red-carpet-photos.html?searchResultPosition=5
+https://nytimes.com/2023/03/12/style/oscars-red-carpet-photos.html?searchResultPosition=6
 
 **Biden Plans New Limits on Arctic Drilling Ahead of Controversial Willow Decision**\
 `New rules will limit offshore oil leases, among other things, an administration official said. The changes come as the administration moves toward approving an $8 billion ConocoPhillips drilling project.`\
-https://nytimes.com/2023/03/12/climate/biden-willow-arctic-drilling-restrictions.html?searchResultPosition=6
+https://nytimes.com/2023/03/12/climate/biden-willow-arctic-drilling-restrictions.html?searchResultPosition=7
 
 **Who Are You Wearing? For Costume Designers, the Answer May Be ‘Me.’**\
 `The five Oscar nominees for costume design approach red-carpet fashion with an eye toward storytelling.`\
-https://nytimes.com/2023/03/12/style/ruth-carter-costume-designers-oscars.html?searchResultPosition=7
+https://nytimes.com/2023/03/12/style/ruth-carter-costume-designers-oscars.html?searchResultPosition=8
 
 **Your Monday Briefing: China’s Saudi-Iran Deal**\
 `Also, Xi Jinping loyalists stack China’s leadership and Australia revives an Aboriginal alcohol ban.`\
-https://nytimes.com/2023/03/12/briefing/china-saudi-iran-deal.html?searchResultPosition=8
+https://nytimes.com/2023/03/12/briefing/china-saudi-iran-deal.html?searchResultPosition=9
 
 **What Do You Think of the Oscars Show?**\
 `The Times invites readers to share their comments and observations about the 2023 Academy Awards.`\
-https://nytimes.com/2023/03/12/movies/oscars-viewer-comments.html?searchResultPosition=9
-
-**Judge in Abortion Pill Case Set Hearing but Sought to Delay Telling the Public**\
-`Saying he wanted safe and orderly proceedings, Judge Matthew J. Kacsmaryk asked lawyers not to disclose the hearing and planned to add it to the public case file only the evening before.`\
-https://nytimes.com/2023/03/12/health/texas-abortion-pills-lawsuit.html?searchResultPosition=10
+https://nytimes.com/2023/03/12/movies/oscars-viewer-comments.html?searchResultPosition=10
 
