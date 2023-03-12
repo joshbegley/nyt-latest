@@ -22,8 +22,8 @@ https://nytimes.com/2023/03/12/us/northeast-winter-storm-weather.html?searchResu
 `He and his brothers, Felipe and Matty, were the only three brothers in major league history to play together in a single game.`\
 https://nytimes.com/2023/03/12/sports/baseball/jesus-alou-dead.html?searchResultPosition=6
 
-**Spiraling Spat With Star Sports Host Puts BBC’s Reputation on the Line**\
-`The British public broadcaster’s suspension of one of its highest-profile anchors has become a sprawling conflict that poses risks to its reputation for neutrality and independence.`\
+**Spiraling Dispute With Star Host Puts BBC’s Reputation on the Line**\
+`The British public broadcaster’s suspension of one of its highest-profile sports anchors has grown into a wider controversy that poses risks to its reputation for neutrality and independence.`\
 https://nytimes.com/2023/03/12/world/europe/gary-lineker-bbc.html?searchResultPosition=7
 
 **The Week in Business: Fox News Anchors’ Private Messages**\
