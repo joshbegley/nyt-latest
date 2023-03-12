@@ -30,11 +30,11 @@ https://nytimes.com/2023/03/12/opinion/international-world/taiwan-china.html?sea
 `Leery of Russian aggression, Europe’s economic giant is making a historic attempt to revitalize its armed forces. It has a long way to go.`\
 https://nytimes.com/2023/03/12/podcasts/the-daily/the-sunday-read-can-germany-be-a-great-military-power-again.html?searchResultPosition=8
 
-**This Changes Everything**\
-`I have tried to spend time regularly with the people working on A.I. I don’t know that I can convey just how weird that culture is.`\
-https://nytimes.com/2023/03/12/opinion/chatbots-artificial-intelligence-future-weirdness.html?searchResultPosition=9
-
 **Don’t Let the Culture War Degrade the Constitution**\
 `Our right to free expression should not be contingent on our ability to gain political control.`\
-https://nytimes.com/2023/03/12/opinion/newsom-desantis-walgreens-constitution.html?searchResultPosition=10
+https://nytimes.com/2023/03/12/opinion/newsom-desantis-walgreens-constitution.html?searchResultPosition=9
+
+**This Changes Everything**\
+`I have tried to spend time regularly with the people working on A.I. I don’t know that I can convey just how weird that culture is.`\
+https://nytimes.com/2023/03/12/opinion/chatbots-artificial-intelligence-future-weirdness.html?searchResultPosition=10
 
