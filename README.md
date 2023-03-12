@@ -19,7 +19,7 @@ https://nytimes.com/2023/03/12/crosswords/daily-puzzle-2023-03-13.html?searchRes
 https://nytimes.com/2023/03/12/climate/silicon-valley-bank-climate.html?searchResultPosition=5
 
 **2023 Oscars: Every Look From the Red Carpet**\
-`Stars have begun to arrive at the 95th Academy Awards.`\
+`Hollywood’s brightest stars battle to make the biggest splash on the champagne carpet before the 95th Academy Awards.`\
 https://nytimes.com/2023/03/12/style/oscars-red-carpet-photos.html?searchResultPosition=6
 
 **Administration to Approve Huge Alaska Oil Project on Monday, Two Officials Say**\
