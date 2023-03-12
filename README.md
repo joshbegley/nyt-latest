@@ -6,7 +6,7 @@ https://nytimes.com/2023/03/12/us/politics/mike-pence-donald-trump-gridiron.html
 `At least eight people died after two small boats capsized near a San Diego beach in what a local fire-rescue official called “one of the worst maritime smuggling tragedies” in California in recent years.`\
 https://nytimes.com/video/us/100000008807879/boats-capsize-migrants-human-smuggling-california.html?searchResultPosition=2
 
-**Before the Oscars, the Parties are Everything**\
+**Before the Oscars, the Parties Are Everything**\
 `The celebrities are having a ball, everywhere the fashion brands play host.`\
 https://nytimes.com/2023/03/12/style/oscars-party-guest-list-brands-hosts.html?searchResultPosition=3
 
