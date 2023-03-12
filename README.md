@@ -1,4 +1,4 @@
-**Seedings for N.C.A.A. Men’s Tournament Show Wide Open Field**\
+**Seedings for N.C.A.A. Men’s Tournament Show Wide-Open Field**\
 `Alabama, Houston, Kansas and Purdue earned No. 1 seeds in a tournament where top teams seem more beatable than usual, and others that usually might be considered upstarts have viable paths to the championship.`\
 https://nytimes.com/2023/03/12/sports/ncaabasketball/ncaa-tournament-seedings.html?searchResultPosition=1
 
