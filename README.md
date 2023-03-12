@@ -1,40 +1,40 @@
+**Will the Future of Alaska’s Wild Lands Hang on a Dispute Over a Gravel Road?**\
+`A federal court will rule soon on whether the Interior secretary can swap government land so a road can be built through a wilderness wildlife refuge.`\
+https://nytimes.com/2023/03/12/opinion/alaska-wilderness-road-jimmy-carter.html?searchResultPosition=1
+
+**A Chinese Commonwealth? An Unpopular Idea Resurfaces in Taiwan.**\
+`The war in Ukraine is causing many Taiwanese to rethink their relationship with China.`\
+https://nytimes.com/2023/03/12/opinion/international-world/taiwan-china.html?searchResultPosition=2
+
+**The Sunday Read: ‘Can Germany Be a Great Military Power Again?’**\
+`Leery of Russian aggression, Europe’s economic giant is making a historic attempt to revitalize its armed forces. It has a long way to go.`\
+https://nytimes.com/2023/03/12/podcasts/the-daily/the-sunday-read-can-germany-be-a-great-military-power-again.html?searchResultPosition=3
+
+**This Changes Everything**\
+`I have tried to spend time regularly with the people working on A.I. I don’t know that I can convey just how weird that culture is.`\
+https://nytimes.com/2023/03/12/opinion/chatbots-artificial-intelligence-future-weirdness.html?searchResultPosition=4
+
+**Don’t Let the Culture War Degrade the Constitution**\
+`Our right to free expression should not be contingent on our ability to gain political control.`\
+https://nytimes.com/2023/03/12/opinion/newsom-desantis-walgreens-constitution.html?searchResultPosition=5
+
+**How to Prepare for the Next Pandemic**\
+`America should be ready for Disease X.`\
+https://nytimes.com/2023/03/12/opinion/pandemic-health-prepare.html?searchResultPosition=6
+
+**What Really Controls Our Global Economy**\
+`Economic zones are fundamental to understanding modern-day capitalism.`\
+https://nytimes.com/2023/03/12/opinion/economic-zones-global-economy.html?searchResultPosition=7
+
+**What if the Next Pandemic Happened Tomorrow?**\
+`8 experts debate what to do.`\
+https://nytimes.com/interactive/2023/03/12/opinion/pandemic-disease-x-simulation.html?searchResultPosition=8
+
 **Ukraine Steps Up Calls for Evacuation of Northeast Town Under Relentless Russian Shelling**\
 `Attacks on the town of Kupiansk in Ukraine’s northeastern region of Kharkiv continued on Sunday.`\
-https://nytimes.com/2023/03/12/world/europe/ukraine-russia-kupiansk.html?searchResultPosition=1
+https://nytimes.com/2023/03/12/world/europe/ukraine-russia-kupiansk.html?searchResultPosition=9
 
 **Saudi Aramco Reports Record Profit as Fossil Fuels Remain ‘Essential’**\
 `Saudi Arabia’s national oil company earned $161 billion last year, a nearly 50 percent jump over 2021, and said demand for oil would continue.`\
-https://nytimes.com/2023/03/12/business/saudi-aramco-record-earnings-profit.html?searchResultPosition=2
-
-**Influencers Have Nothing on Greta Garbo**\
-`The long ropes of pearls, wide cuffs and Art Deco pieces worn by film stars in the 1920s and ’30s have never gone out of style.`\
-https://nytimes.com/2023/03/12/fashion/jewelry-1920s-1930s-movie-glamour.html?searchResultPosition=3
-
-**The Cross Returns as a Style Choice in Jewelry**\
-`Remember Madonna’s look for “Like a Virgin”? Well, it’s back.`\
-https://nytimes.com/2023/03/12/fashion/jewelry-cross-diana-madonna-1980s.html?searchResultPosition=4
-
-**Get Your Tiara Ready. The Coronation Is Coming.**\
-`Gem-studded headpieces are traditional, so jewelers in Britain have been readying new styles as well as special creations to mark the event.`\
-https://nytimes.com/2023/03/12/fashion/jewelry-tiaras-coronation-london.html?searchResultPosition=5
-
-**Brilliance in the Sonoran Desert**\
-`From inexpensive amazonite to wildly expensive faceted zircon, the stones at the annual gem shows in Tucson draw jewelers from around the world.`\
-https://nytimes.com/2023/03/12/fashion/jewelry-tucson-gem-shows-arizona.html?searchResultPosition=6
-
-**In Paris, a Former School Has Become a Creative Hive**\
-`About 100 artists, musicians and artisans fill a building known as Le Doc with their work.`\
-https://nytimes.com/2023/03/12/fashion/jewelry-craftsmanship-le-doc-collective-paris.html?searchResultPosition=7
-
-**Jewelry With a Focus on Nature**\
-`The Spanish designer Luz Camino puts an emphasis on realism, particularly in her flower and fruit brooches.`\
-https://nytimes.com/2023/03/12/fashion/jewelry-luz-camino-madrid.html?searchResultPosition=8
-
-**Jewelry Fans Recognize Their Favorites**\
-`Many smaller jewelry brands incorporate details that become signatures. “It’s kind of a hidden, secret club,” one retailer said.`\
-https://nytimes.com/2023/03/12/fashion/jewelry-marie-lichtenberg-paris.html?searchResultPosition=9
-
-**The Desert Rose of Qatar**\
-`Jewelry makers have been inspired by the unusual crystal formation, a kind of national emblem in this tiny desert state.`\
-https://nytimes.com/2023/03/12/fashion/jewelry-desert-rose-qatar.html?searchResultPosition=10
+https://nytimes.com/2023/03/12/business/saudi-aramco-record-earnings-profit.html?searchResultPosition=10
 
