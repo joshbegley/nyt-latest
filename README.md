@@ -26,7 +26,7 @@ https://nytimes.com/2023/03/13/style/oscar-fashion-marketing.html?searchResultPo
 `The cases before the International Criminal Court would accuse Russia of abducting Ukrainian children and of deliberately targeting civilian infrastructure.`\
 https://nytimes.com/2023/03/13/world/europe/icc-war-crimes-russia-ukraine.html?searchResultPosition=7
 
-**Inside the Governor’s Ball 2023 Oscars Party**\
+**Inside the Governors Ball 2023 Oscars Party**\
 `Ke Huy Quan, Ruth Carter and Darren Aronofsky were among the stars and filmmakers celebrating at the academy’s big post-Oscars party.`\
 https://nytimes.com/2023/03/13/movies/governors-ball-oscars-party.html?searchResultPosition=8
 
