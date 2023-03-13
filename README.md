@@ -31,7 +31,7 @@ https://nytimes.com/video/us/politics/100000008811288/aukus-biden-submarine.html
 https://nytimes.com/2023/03/13/briefing/us-banks-biden-silicon.html?searchResultPosition=8
 
 **Silicon Valley Bank Isn’t Lehman**\
-`And the bailout, while infuriating, probably won’t cost much.`\
+`And any bailout, while infuriating, probably wouldn’t cost much.`\
 https://nytimes.com/2023/03/13/opinion/silicon-valley-bank-lehman-bailout.html?searchResultPosition=9
 
 **Your Monday Evening Briefing**\
