@@ -2,13 +2,13 @@
 `Arms control began at a low point during the Cold War. Are we there again?`\
 https://nytimes.com/2023/03/13/opinion/international-world/putin-ukraine-nuclear-weapons.html?searchResultPosition=1
 
-**What’s on TV This Week: ‘Lucky Hank’ and ‘The Hours’**\
-`A new comedy series starring Bob Odenkirk comes to AMC, and the Metropolitan Opera’s adaptation of Virginia Woolf’s “Mrs. Dalloway” premieres on PBS.`\
-https://nytimes.com/2023/03/13/arts/television/whats-on-tv-this-week-lucky-hank-and-the-hours.html?searchResultPosition=2
-
 **Your Monday Briefing**\
 `The collapse of three U.S. banks in a week.`\
-https://nytimes.com/2023/03/13/briefing/banks-collapse-ukraine-swiss-oscars.html?searchResultPosition=3
+https://nytimes.com/2023/03/13/briefing/banks-collapse-ukraine-swiss-oscars.html?searchResultPosition=2
+
+**What’s on TV This Week: ‘Lucky Hank’ and ‘The Hours’**\
+`A new comedy series starring Bob Odenkirk comes to AMC, and the Metropolitan Opera’s adaptation of Virginia Woolf’s “Mrs. Dalloway” premieres on PBS.`\
+https://nytimes.com/2023/03/13/arts/television/whats-on-tv-this-week-lucky-hank-and-the-hours.html?searchResultPosition=3
 
 **21 Looks That Did the Most at the Oscars**\
 `The greater the fashion risk, the greater the reward.`\
