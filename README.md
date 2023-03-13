@@ -34,7 +34,7 @@ https://nytimes.com/2023/03/13/crosswords/wordle-wrap-up-march-6-to-12.html?sear
 `The Federal Reserve has been rapidly raising interest rates to fight inflation. But making big moves could be tricker amid instability.`\
 https://nytimes.com/2023/03/13/business/economy/federal-reserve-interest-rates.html?searchResultPosition=9
 
-**An Indian tech company’s stock falls after it reveals a link to Silicon Valley Bank.**\
+**The fallout from Silicon Valley Bank’s collapse spreads to an Indian tech company.**\
 `Nazara Technologies, a mobile gaming company, said two of its subsidiaries had together more than $7.7 million in balances at the failed bank.`\
 https://nytimes.com/2023/03/13/business/india-tech-company-silicon-valley-bank.html?searchResultPosition=10
 
