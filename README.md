@@ -8,7 +8,7 @@ https://nytimes.com/2023/03/13/climate/willow-biden-oil-climate.html?searchResul
 
 **Oscars Draw 18.7 Million Viewers**\
 `The viewership rose a second consecutive year, but was still the third-least-watched Oscars on record.`\
-https://nytimes.com/2023/03/13/business/oscars-draw-18-7-million-viewers.html?searchResultPosition=3
+https://nytimes.com/2023/03/13/business/oscars-viewers-ratings.html?searchResultPosition=3
 
 **Fifteen Years After 2008, Why Do Banks Keep Failing?**\
 `It may be time for the F.D.I.C. to insure all bank deposits.`\
