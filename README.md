@@ -2,8 +2,8 @@
 `It’s a day of uncertainty for the U.S. economy.`\
 https://nytimes.com/2023/03/13/briefing/silicon-valley-bank.html?searchResultPosition=1
 
-**Gary Lineker to Return to BBC Soccer Show ‘Match of the Day’**\
-`The move brings an end to a crisis for the network that had begun when the sports presenter was suspended because of a Twitter post about British immigration policy.`\
+**BBC Ends Suspension of Top Sports Host After Staff Mutiny**\
+`The move calms a crisis at the publicly funded broadcaster after Gary Lineker, a former soccer star, was removed from a flagship show because of a tweet about immigration policy.`\
 https://nytimes.com/2023/03/13/world/europe/gary-lineker-bbc-return-motd.html?searchResultPosition=2
 
 **Best and Worst Moments From the 2023 Oscars**\
