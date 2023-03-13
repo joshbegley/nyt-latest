@@ -1,5 +1,5 @@
 **Kenzaburo Oe, Nobel Laureate and Critic of Postwar Japan, Dies at 88**\
-`With his powerful novels and essays, Mr. Oe became a prominent target of the right wing as he tried to ensure that Japan learned the lessons of its 20th-century militarism.`\
+`With his powerful novels and essays, Mr. Oe tried to ensure that Japan learned the lessons of its 20th-century militarism.`\
 https://nytimes.com/2023/03/13/obituaries/kenzaburo-oe-dead.html?searchResultPosition=1
 
 **HSBC to Buy Silicon Valley Bank’s British Subsidiary**\
