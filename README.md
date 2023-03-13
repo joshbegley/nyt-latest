@@ -1,9 +1,13 @@
+**Once Underdogs, They’re Still Playing With Chips on Their Shoulders**\
+`No. 2-seed Marquette was picked ninth of 11 teams in the Big East preseason poll. The Golden Eagles’ point guard, Tyler Kolek, hasn’t forgotten.`\
+https://nytimes.com/2023/03/13/sports/ncaabasketball/underdogs-marquette-tyler-kolek.html?searchResultPosition=1
+
 **A24 Achieves Art-House Supremacy With Triumphant Oscar Night**\
 `The independent studio behind “Everything Everywhere All at Once” and “The Whale” became the first to sweep the acting awards and win best director and best picture in the same year.`\
-https://nytimes.com/2023/03/13/business/media/a24-oscars-everything-everywhere-the-whale.html?searchResultPosition=1
+https://nytimes.com/2023/03/13/business/media/a24-oscars-everything-everywhere-the-whale.html?searchResultPosition=2
 
 **Ruth E. Carter Becomes First Black Woman to Win Two Oscars**\
 `The costume designer won an Academy Award for “Black Panther: Wakanda Forever,” adding to the history-making Oscar she won for the original “Black Panther” in 2019.`\
-https://nytimes.com/2023/03/13/movies/ruth-carter-oscars-wakanda-forever.html?searchResultPosition=2
+https://nytimes.com/2023/03/13/movies/ruth-carter-oscars-wakanda-forever.html?searchResultPosition=3
 
 **Jamie Lee Curtis Wins First Oscar for Best Supporting Actress**\
