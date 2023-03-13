@@ -4,7 +4,7 @@ https://nytimes.com/2023/03/13/technology/silicon-valley-image.html?searchResult
 
 **Investigators Clear Former U.S. Soccer Coach in 1992 Incident**\
 `An inquiry found no reason U.S. Soccer could not rehire Gregg Berhalter as coach of the men’s national team. But investigators criticized the parents of a player for their part in the controversy.`\
-https://nytimes.com/2023/03/13/sports/soccer/investigators-clear-former-us-soccer-coach-in-1992-incident.html?searchResultPosition=2
+https://nytimes.com/2023/03/13/sports/soccer/usmnt-gregg-berhalter-investigation.html?searchResultPosition=2
 
 **California Court Mostly Upholds Prop. 22 in Win for Uber and Other Gig Companies**\
 `The decision lessens the chances that gig drivers will be considered employees in the state, but it is expected to be appealed to the state Supreme Court.`\
