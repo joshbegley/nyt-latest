@@ -22,7 +22,7 @@ https://nytimes.com/2023/03/13/arts/music/solomon-handel-carnegie-hall.html?sear
 `Mr. Cohen, Donald Trump’s onetime fixer, is a key piece of the puzzle as prosecutors move toward an indictment of the former president.`\
 https://nytimes.com/2023/03/13/business/michael-cohen-trump-grand-jury.html?searchResultPosition=6
 
-**‘Navalny’ wins Oscar for best documentary as dissident’s wife issues message of defiance.**\
+**‘Navalny’ wins the Oscar for best documentary as the dissident’s wife issues a defiant message.**\
 `The film followed Aleksei Navalny, a prominent critic of President Vladimir V. Putin of Russia, as he investigated his own near-fatal poisoning in 2020.`\
 https://nytimes.com/2023/03/13/world/europe/navalny-oscar-best-documentary.html?searchResultPosition=7
 
