@@ -1,5 +1,5 @@
 **Cyclone Freddy Wreaks Disaster in Malawi**\
-`Search and rescue operations were underway in the city of Blantyre after the storm flattened homes and killed dozens.`\
+`Search and rescue operations were underway in the city of Blantyre after the storm flattened buildings and killed at least 80 people, officials said.`\
 https://nytimes.com/video/world/africa/100000008811802/cyclone-freddy-africa-dead.html?searchResultPosition=1
 
 **At Long Last, a Donkey Family Tree**\
