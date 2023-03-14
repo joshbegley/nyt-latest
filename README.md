@@ -1,40 +1,40 @@
-**Cyclone Freddy Wreaks Disaster in Malawi**\
-`Search and rescue operations were underway in the city of Blantyre after the storm flattened buildings and killed at least 80 people, officials said.`\
-https://nytimes.com/video/world/africa/100000008811802/cyclone-freddy-africa-dead.html?searchResultPosition=1
+**At Indian Wells, the Players Have a Playground of Their Own**\
+`To protect the Indian Wells Tennis Garden, the tournament’s founder took a “get off my lawn” approach so that tennis players could always count on getting on his lawn.`\
+https://nytimes.com/2023/03/14/sports/tennis/indian-wells-lawn.html?searchResultPosition=1
 
-**At Long Last, a Donkey Family Tree**\
-`In a new study, genetics and archaeology combine to reveal the ancient origins of humanity’s first beast of burden.`\
-https://nytimes.com/2023/03/14/science/donkeys-genetics-archaeology.html?searchResultPosition=2
+**Macron Faces Pivotal Week in His Attempt to Change France at its Core**\
+`Millions are again expected to protest President Emmanuel Macron’s plan to raise the retirement age before a decisive vote that could redefine his nation and his legacy.`\
+https://nytimes.com/2023/03/14/world/europe/macron-france-retirement-age.html?searchResultPosition=2
 
-**M.I.A. in 2024: The Republicans Trump Vanquished in 2016**\
-`None of these former candidates have made any concrete moves toward 2024 bids, signaling how many in the party see more long-term costs than benefits in opposing Donald Trump.`\
-https://nytimes.com/2023/03/14/us/politics/trump-opponents.html?searchResultPosition=3
+**Why Is Bronislava Nijinska Still Waiting in the Wings?**\
+`With a new biography and a production of “Les Noces,” the time has come to reconsider the choreographer, whose work and reputation have languished since .`\
+https://nytimes.com/2023/03/14/arts/dance/bronislava-nijinska-les-noces-ballet-west.html?searchResultPosition=3
 
-**Aggressive Medical Care Remains Common at Life’s End**\
-`Most older cancer patients received invasive care in the last month of their lives, a new study finds. That may not be what they wanted.`\
-https://nytimes.com/2023/03/14/health/end-of-life-care-hospice.html?searchResultPosition=4
+**Your Annoying Roommate Is Slaying on TikTok**\
+`Sabrina Brier is finding success online in the role of a 20-something in New York who’s trying to shed her basic suburban past.`\
+https://nytimes.com/2023/03/14/style/your-annoying-roommate-is-slaying-on-tiktok.html?searchResultPosition=4
 
-**Heartbeat May Shape Our Perception of Time, Study Shows**\
-`Researchers have long assumed that the brain controls our sense of time. A new study suggests the heart plays an important role.`\
-https://nytimes.com/2023/03/14/health/heart-brain-time.html?searchResultPosition=5
+**Britain Wants Its Early Retirees Back, but Their Days Are ‘Never Boring’**\
+`The country’s work force is smaller than it was before the pandemic, sapping economic potential. The government is going to try luring more people off the sidelines.`\
+https://nytimes.com/2023/03/14/business/britain-retirees-return-to-work-covid.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/03/14/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**Longing for Spring? A New Batch of Hotels Will Help You Celebrate It.**\
+`Cherry blossoms in Tokyo, wildflowers in the Hudson Valley, breezy rooftop views in Paris: Here’s where to check in for a spring getaway.`\
+https://nytimes.com/2023/03/14/travel/new-hotels.html?searchResultPosition=6
 
-**Daylight Saving Time**\
-`How does it affect you? Do you favor making it permanent? Why or why not?`\
-https://nytimes.com/2023/03/14/learning/daylight-saving-time.html?searchResultPosition=7
+**In the Gun Law Fights of 2023, a Need for Experts on the Weapons of 1791**\
+`A Supreme Court decision has forced courts to consider what gun restrictions existed two centuries ago, sending demand soaring for historians.`\
+https://nytimes.com/2023/03/14/us/gun-law-1791-supreme-court.html?searchResultPosition=7
 
-**Portrait of an Artist, Still Just a Young Man**\
-`Khvicha Kvaratskhelia has become a star in nine months at Napoli. With his transcendent talent, things may only get better.`\
-https://nytimes.com/2023/03/14/sports/soccer/khvicha-kvaratskhelia-napoli.html?searchResultPosition=8
+**Not Even This City Councilman Can Find an Apartment in New York City**\
+`Chi Ossé called his unsuccessful search for a new home “tiring, treacherous, and competitive.” To many New Yorkers, his experience is relatable.`\
+https://nytimes.com/2023/03/14/nyregion/housing-market-nyc-chi-osse.html?searchResultPosition=8
 
-**Word of the Day: unintelligible**\
-`This word has appeared in 23 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/03/14/learning/word-of-the-day-unintelligible.html?searchResultPosition=9
+**The Joy of Zero-Waste Cooking**\
+`In Tamar Adler’s “The Everlasting Meal Cookbook” and other thrifty cookbooks, recipes that use up leftovers and waste less food lead to a richer relationship with cooking.`\
+https://nytimes.com/2023/03/14/dining/zero-waste-cooking.html?searchResultPosition=9
 
-**Late Night Sums Up the Silicon Valley Bank Situation**\
-`“It’s pretty bad when the very first time you ever hear of a bank is when they’re going out of business,” Stephen Colbert said on Monday.`\
-https://nytimes.com/2023/03/14/arts/television/late-night-silicon-valley-bank.html?searchResultPosition=10
+**Black, Evangelical and Torn**\
+`With America’s white conservatives increasingly drawn to Christian nationalism, many Black believers feel caught between their faith and the long shadow of history.`\
+https://nytimes.com/2023/03/14/magazine/black-evangelicals.html?searchResultPosition=10
 
