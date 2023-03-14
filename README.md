@@ -2,7 +2,7 @@
 `Ms. Schroeder, who had a long career in the House, helped steer passage of legislation on family leave, pregnancy discrimination and other progressive causes.`\
 https://nytimes.com/2023/03/14/obituaries/pat-schroeder-dead.html?searchResultPosition=1
 
-**An Irishman Takes On the Word “Paddy”**\
+**An Irishman Takes on the Word ‘Paddy’**\
 `The photographer Ross O’Callaghan, fighting a stereotype, asks his countrymen to carry Paddy proudly. And it’s back to the future for New York Republicans.`\
 https://nytimes.com/2023/03/14/nyregion/an-irishman-takes-on-the-word-paddy.html?searchResultPosition=2
 
