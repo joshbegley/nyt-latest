@@ -8,7 +8,7 @@ https://nytimes.com/2023/03/14/dining/nyc-restaurant-news.html?searchResultPosit
 
 **Tiny Love Stories: ‘The Deceptively Sunny Day’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2023/03/14/style/tiny-modern-love-stories-pull-quote.html?searchResultPosition=3
+https://nytimes.com/2023/03/14/style/tiny-modern-love-stories-the-deceptively-sunny-day.html?searchResultPosition=3
 
 **Who Was Leonardo’s Mother? A Novelist Has Evidence She Was Enslaved.**\
 `An author has a theory that the artist’s mother, Caterina, was kidnapped as a girl in the Caucasus area of Central Asia.`\
