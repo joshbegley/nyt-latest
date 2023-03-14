@@ -28,9 +28,5 @@ https://nytimes.com/2023/03/13/theater/review-the-coast-starlight.html?searchRes
 
 **After Bank Debacle, Silicon Valley Reckons With Its Image**\
 `Even as start-ups and investors began recovering their money from Silicon Valley Bank, the episode exposed the tech industry’s vulnerabilities.`\
-https://nytimes.com/2023/03/13/technology/silicon-valley-image.html?searchResultPosition=9
-
-**Investigators Clear Former U.S. Soccer Coach in 1992 Incident**\
-`An inquiry found no reason U.S. Soccer could not rehire Gregg Berhalter as coach of the men’s national team. But investigators criticized the parents of a player for their part in the controversy.`\
-https://nytimes.com/2023/03/13/sports/soccer/usmnt-gregg-berhalter-investigation.html?searchResultPosition=10
+https://nytimes.com/2023/03/13/technology/silicon-valley-image.html?searchResultPosition=10
 
