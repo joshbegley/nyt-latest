@@ -6,7 +6,7 @@ https://nytimes.com/2023/03/14/world/europe/russians-georgia-armenia-war.html?se
 `To protect the Indian Wells Tennis Garden, the tournament’s founder took a “get off my lawn” approach so that tennis players could always count on getting on his lawn.`\
 https://nytimes.com/2023/03/14/sports/tennis/indian-wells-lawn.html?searchResultPosition=2
 
-**Macron Faces Pivotal Week in His Attempt to Change France at its Core**\
+**Macron Faces Pivotal Week in His Attempt to Change France at Its Core**\
 `Millions are again expected to protest President Emmanuel Macron’s plan to raise the retirement age before a decisive vote that could redefine his nation and his legacy.`\
 https://nytimes.com/2023/03/14/world/europe/macron-france-retirement-age.html?searchResultPosition=3
 
