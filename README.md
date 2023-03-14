@@ -31,7 +31,7 @@ https://nytimes.com/2023/03/14/sports/tennis/indian-wells-lawn.html?searchResult
 https://nytimes.com/2023/03/14/world/europe/macron-france-retirement-age.html?searchResultPosition=8
 
 **Why Is Bronislava Nijinska Still Waiting in the Wings?**\
-`With a new biography and a production of “Les Noces,” the time has come to reconsider the choreographer, whose work and reputation have languished since .`\
+`With a new biography and a production of “Les Noces,” the time has come to reconsider the choreographer, whose work and reputation have languished in the shadows.`\
 https://nytimes.com/2023/03/14/arts/dance/bronislava-nijinska-les-noces-ballet-west.html?searchResultPosition=9
 
 **Your Annoying Roommate Is Slaying on TikTok**\
