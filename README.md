@@ -6,7 +6,7 @@ https://nytimes.com/2023/03/13/us/politics/ron-desantis-ukraine-tucker-carlson.h
 `Aerial imagery from the Turkish government shows astonishing destruction in Antakya, where a 7.8-magnitude earthquake struck on Feb. 6.`\
 https://nytimes.com/interactive/2023/03/13/world/middleeast/antakya-damage-assessment.html?searchResultPosition=2
 
-**Joe Pepitone, Rambunctious Star When the Yankees Faded, Dies at 82**\
+**Joe Pepitone, Rowdy Star When the Yankees Faded, Dies at 82**\
 `He had All-Star years, won three Gold Gloves, hit with power and was a fan favorite, but as the team’s fortunes dimmed, his renegade lifestyle had its costs.`\
 https://nytimes.com/2023/03/13/sports/baseball/joe-pepitone-dead.html?searchResultPosition=3
 
