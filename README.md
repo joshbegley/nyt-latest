@@ -1,6 +1,6 @@
 **Banks, Trains and Political Finger-Pointing**\
 `As two news events — banking turmoil and a train derailment — became flash points in America’s culture wars, conservative presidential hopefuls and media voices pounced.`\
-https://nytimes.com/2023/03/14/us/politics/banks-trains-and-political-finger-pointing.html?searchResultPosition=1
+https://nytimes.com/2023/03/14/us/politics/bank-collapse-train-derailment.html?searchResultPosition=1
 
 **Ohio Attorney General Sues Norfolk Southern Over Derailment**\
 `The suit, filed in federal court, seeks to force the company to pay civil penalties, costs and damages after the train derailment and controlled burn of toxic chemicals.`\
