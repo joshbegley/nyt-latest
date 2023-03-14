@@ -10,8 +10,8 @@ https://nytimes.com/2023/03/14/arts/rust-andrea-reeb-special-prosecutor.html?sea
 `The incident was the first known physical contact between the two militaries since the war in Ukraine began last year.`\
 https://nytimes.com/2023/03/14/us/politics/russia-us-drone-black-sea.html?searchResultPosition=6
 
-**How a California Bank Sparked a Financial Panic**\
-`While its C.E.O. extolled innovation and the future of tech, Silicon Valley Bank paid less attention to risk management and was caught flat-footed by economic change.`\
+**Inside the Collapse of Silicon Valley Bank**\
+`While its leader extolled innovation and the future of tech, the bank paid less attention to risk management and was caught flat-footed by economic change.`\
 https://nytimes.com/2023/03/14/business/silicon-valley-bank-gregory-becker.html?searchResultPosition=7
 
 **Bank Failures, the Fed and an ‘Uncertain Juncture’ in the Economy**\
