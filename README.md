@@ -1,4 +1,4 @@
-**Flood of Russians Alter Life for Countries That Took Them In**\
+**Flood of Russians Alters Life for Countries That Took Them In**\
 `Russians, fleeing their country and its war, have quickly reshaped the societies of nations like Georgia and Armenia.`\
 https://nytimes.com/2023/03/14/world/europe/russians-georgia-armenia-war.html?searchResultPosition=1
 
