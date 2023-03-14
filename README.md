@@ -1,6 +1,6 @@
 **Puerto Rico Combines for First Perfect Game in W.B.C. History**\
 `Four pitchers threw eight perfect innings against Israel before the game was ended, 10-0, by way of the tournament’s mercy rule.`\
-https://nytimes.com/2023/03/13/sports/baseball/israel-puerto-rico-perfect-game.html?searchResultPosition=1
+https://nytimes.com/2023/03/13/sports/baseball/wbc-puerto-rico-israel.html?searchResultPosition=1
 
 **‘Perry Mason’ Season 2, Episode 2 Recap: Mason for the Defense**\
 `Perry gets back to his true calling after his nose tells him something smells funny about the Brooks McCutcheon murder. That was fast.`\
