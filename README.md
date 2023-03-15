@@ -15,7 +15,7 @@ https://nytimes.com/2023/03/15/arts/music/bobby-caldwell-dead.html?searchResultP
 https://nytimes.com/2023/03/15/world/middleeast/israel-herzog-judicial-compromise.html?searchResultPosition=4
 
 **3 Are Charged With Selling ‘Ghost Guns,’ Including Assault-Style Rifles**\
-`Many of the weapons were untraceable so-called `ghost guns’ assembled from components, authorities said. One defendant tutored buyers on their use.`\
+`Many of the weapons were untraceable so-called ghost guns assembled from components, authorities said. One defendant tutored buyers on their use.`\
 https://nytimes.com/2023/03/15/nyregion/nyc-men-charged-ghost-guns.html?searchResultPosition=5
 
 **Donald Trump Must Be Prosecuted**\
