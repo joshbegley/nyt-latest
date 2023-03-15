@@ -1,6 +1,6 @@
 **Blinken Calls for ‘Accountability’ on War Crimes in Ethiopia**\
 `Secretary of State Antony J. Blinken walked a careful line during a visit to Ethiopia as the Biden administration reassesses relations with the prime minister, Abiy Ahmed.`\
-https://nytimes.com/2023/03/15/us/politics/blinken-abiy-ethiopia.html?searchResultPosition=1
+https://nytimes.com/2023/03/15/world/africa/blinken-abiy-ethiopia.html?searchResultPosition=1
 
 **Lawyers Spar Before Judge Over Rescinding Federal Approval of Abortion Pill**\
 `The judge said he would decide soon whether to issue a preliminary injunction ordering the F.D.A. to withdraw its approval of the drug or wait for the full trial.`\
