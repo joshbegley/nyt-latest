@@ -6,13 +6,13 @@ https://nytimes.com/video/science/space/100000008814105/nasa-artemis-space-suit-
 `Officials said that the man was behind a roadside blast in northern Israel, most likely after having crossed the border secretly, in a rare incident along the frontier.`\
 https://nytimes.com/2023/03/15/world/middleeast/israel-lebanon-bomber.html?searchResultPosition=2
 
-**Scientists Investigate a Bird Flu Outbreak in Seals**\
-`Wild birds passed the virus to seals in New England at least twice last summer, a new study suggests.`\
-https://nytimes.com/2023/03/15/health/avian-influenza-seals.html?searchResultPosition=3
-
 **Vail Dance Festival’s Season to Feature New Work by 10 Choreographers**\
 `A group of eclectic performers will gather to perform new and old dances. Adji Cissoko, a member of Alonzo King’s Lines Ballet, will be the artist in residence.`\
-https://nytimes.com/2023/03/15/arts/dance/vail-dance-festival-season.html?searchResultPosition=4
+https://nytimes.com/2023/03/15/arts/dance/vail-dance-festival-season.html?searchResultPosition=3
+
+**Scientists Investigate a Bird Flu Outbreak in Seals**\
+`Wild birds passed the virus to seals in New England at least twice last summer, a new study suggests.`\
+https://nytimes.com/2023/03/15/health/avian-influenza-seals.html?searchResultPosition=4
 
 **When a Military Spies on Citizens’ Phones**\
 `How the Mexican military is using private data against civilians — and what that reveals about the country’s democracy.`\
