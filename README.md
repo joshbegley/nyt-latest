@@ -18,8 +18,8 @@ https://nytimes.com/2023/03/15/us/frank-t-griswold-iii-dead.html?searchResultPos
 `Readers respond to a guest essay by the linguist Noam Chomsky and his co-authors. Also: Transgender men at Wellesley; bias in lending; wages and tips.`\
 https://nytimes.com/2023/03/15/opinion/letters/chatgpt-brain-noam-chomsky.html?searchResultPosition=5
 
-**Garcetti’s Nomination Advances in Senate, With Confirmation Expected**\
-`Despite concerns among some Democrats about claims that the former Los Angeles mayor condoned sexual harassment by an aide, several Republicans supported him, saving his nomination to be U.S. envoy to India.`\
+**Senate Confirms Garcetti as Ambassador to India, Capping a Two-Year Fight**\
+`Despite concerns among some Democrats about claims that the former Los Angeles mayor condoned sexual harassment by an aide, several Republicans supported him, saving his confirmation from collapse.`\
 https://nytimes.com/2023/03/15/us/politics/eric-garcetti-senate-nomination-india.html?searchResultPosition=6
 
 **Richard Rosenberg, Who Rejuvenated Bank of America, Dies at 92**\
