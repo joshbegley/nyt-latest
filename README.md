@@ -1,6 +1,6 @@
 **It’s Not a Stretch: This Dinosaur Had a 50-Foot Neck**\
 `Researchers developed a new estimate of the neck length of Mamenchisaurus, which foraged for foliage more than 150 million years ago in what is now China.`\
-https://nytimes.com/2023/03/15/science/mamenchisaurus-neck.html?searchResultPosition=1
+https://nytimes.com/2023/03/15/science/dinosaur-neck-mamenchisaurus-china.html?searchResultPosition=1
 
 **Pandemic Shows New York Is Too Quick to Split Families, Advocates Say**\
 `When fewer children were taken into foster care in 2020, child abuse did not appear to rise, a study by Legal Aid lawyers found.`\
