@@ -1,5 +1,5 @@
 **Once an Inspiration to People at Home, a Former Star Now Faces Trial**\
-`Shoni Schimmel was the pride of Native Americans when played for Louisville and then starred briefly in the W.N.B.A. Now she is accused of violence against her romantic partner.`\
+`Shoni Schimmel was the pride of Native Americans when she played for Louisville and then starred briefly in the W.N.B.A. Now she is accused of violence against her romantic partner.`\
 https://nytimes.com/2023/03/15/sports/ncaabasketball/shoni-schimmel-basketball-domestic-violence.html?searchResultPosition=1
 
 **Top N.B.A. Prospects Skip College, but Not Stardom**\
