@@ -4,7 +4,7 @@ https://nytimes.com/2023/03/15/opinion/donald-trump-prosecution.html?searchResul
 
 **Stripe Raises New Funding That Values It at $50 Billion**\
 `The payments processing start-up was valued at $95 billion in 2021, but private company dealmaking has been hurt by souring global economic conditions.`\
-https://nytimes.com/2023/03/15/technology/stripe-raises-new-funding-that-values-it-at-50-billion.html?searchResultPosition=2
+https://nytimes.com/2023/03/15/technology/stripe-funding-50-billion.html?searchResultPosition=2
 
 **Lynn Seymour, Acclaimed Ballerina and a Dramatic Force, Dies at 83**\
 `Considered one of the greats of her era, she partnered with Nureyev, Baryshnikov and others, bringing a passionate style to roles in dance, both ballet and modern.`\
