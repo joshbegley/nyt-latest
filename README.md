@@ -1,5 +1,5 @@
 **The Designer Whose Swoops, Whorls and Waves Ruled the Red Carpet**\
-`The Indian couturier Gaurav Gupta was inescapable during awards season, dressing Cardi B and Quinta Brunson after his brand’s Paris couture week debut.`\
+`The Indian couturier Gaurav Gupta was inescapable during awards season, dressing Cardi B and Quinta Brunson after his brand’s Paris couture debut.`\
 https://nytimes.com/2023/03/16/us/gaurav-gupta-fashion-designer.html?searchResultPosition=1
 
 **Where to Eat Near Lincoln Center**\
