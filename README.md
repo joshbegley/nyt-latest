@@ -1,22 +1,22 @@
+**Three and a Half Myths About the Bank Bailouts**\
+`There were good reasons to act, despite uncertainty.`\
+https://nytimes.com/2023/03/16/opinion/bank-bailout.html?searchResultPosition=1
+
 **3 Dogs Die After Eating Poisoned Meatballs at a Race in France**\
 `The poisonings took place at the French canicross championships, in which people run or cycle while attached to their dogs.`\
-https://nytimes.com/2023/03/16/world/europe/dog-poisoning-france.html?searchResultPosition=1
+https://nytimes.com/2023/03/16/world/europe/dog-poisoning-france.html?searchResultPosition=2
 
 **The Best Cuts of Chicken Hold the Most Flavor. It’s in Their Bones.**\
 `Savor the richness of drumsticks, wings and thighs in a satisfying phở gà and a Cantonese-style clay pot rice from Genevieve Ko.`\
-https://nytimes.com/2023/03/16/dining/bone-in-chicken.html?searchResultPosition=2
+https://nytimes.com/2023/03/16/dining/bone-in-chicken.html?searchResultPosition=3
 
 **HelloFresh to Stop Buying Coconut Milk From Thailand Amid Claims of Monkey Labor**\
 `The meal kit company’s decision follows an advocacy group’s report claiming that some monkeys in Thailand are forced to climb trees and pick the fruit.`\
-https://nytimes.com/2023/03/16/world/asia/hellofresh-thai-coconut-milk-monkeys.html?searchResultPosition=3
+https://nytimes.com/2023/03/16/world/asia/hellofresh-thai-coconut-milk-monkeys.html?searchResultPosition=4
 
 **‘Shazam! Fury of the Gods’ Review: Yells Like Teen Spirit**\
 `The problem with this sequel is that the character used up his best ideas in the first movie.`\
-https://nytimes.com/2023/03/16/movies/shazam-fury-of-the-gods-review.html?searchResultPosition=4
-
-**Three and a Half Myths About the Bank Bailouts**\
-`There were good reasons to act, despite uncertainty.`\
-https://nytimes.com/2023/03/16/opinion/bank-bailout.html?searchResultPosition=5
+https://nytimes.com/2023/03/16/movies/shazam-fury-of-the-gods-review.html?searchResultPosition=5
 
 **Dominique Fishback Knows You Think She’s Sweet. ‘Swarm’ May Confuse That**\
 `In a new Amazon series cocreated by Donald Glover, Fishback plays the crazed fan of a Beyoncé-like pop star. Who knew she could be so terrifying?`\
