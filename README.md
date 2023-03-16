@@ -6,8 +6,8 @@ https://nytimes.com/video/world/asia/100000008815561/south-korea-japan-relations
 `A guest writer shares his love and admiration for Tom Cruise, who has captivated him for more than 40 years. Which actor has inspired you, moved you or touched your heart?`\
 https://nytimes.com/2023/03/16/learning/who-is-your-favorite-actor.html?searchResultPosition=2
 
-**The European Central Bank is meeting today to raise rates amid uncertainty.**\
-`By Eshe Nelson`\
+**The European Central Bank Meets to Raise Rates Amid Uncertainty**\
+`The E.C.B. is the first major central bank to set monetary policy since banking worries gripped financial markets, and its decision could be a gauge on how far the reverberations are expected to spread.`\
 https://nytimes.com/2023/03/16/business/the-european-central-bank-is-meeting-today-to-raise-rates-amid-uncertainty.html?searchResultPosition=3
 
 **6 Cities on 5 Continents That Are Reimagining Urban Life**\
