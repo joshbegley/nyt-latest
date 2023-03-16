@@ -1,40 +1,40 @@
-**France Holds Its Breath Over Tense Pension Vote After Large Protests**\
-`In a test for President Emmanuel Macron’s political goals, lawmakers will decide on his proposal to raise the retirement age for most workers by two years, to 64.`\
-https://nytimes.com/2023/03/16/world/europe/france-pension-vote.html?searchResultPosition=1
+**6 Cities on 5 Continents That Are Reimagining Urban Life**\
+`What we can learn from creative city initiatives, from Sydney to Paris.`\
+https://nytimes.com/2023/03/16/world/cities-urban-development-lisbon-paris-sydney-singapore-durban-medellin.html?searchResultPosition=1
 
-**Two Acquittals, One 18-Month Sentence in Indonesia Soccer Disaster**\
-`The defendants, all police officers, were charged with criminal negligence in connection with the October stampede that killed 135 people.`\
-https://nytimes.com/2023/03/16/world/asia/indonesia-soccer-verdict.html?searchResultPosition=2
+**China Wine Tariff Pushes Australia’s Grape Growers Into Crisis**\
+`Two years later, they’re suffering from a glut of red wine and plummeting grape prices with no overseas market big enough to fill the gap.`\
+https://nytimes.com/2023/03/16/business/china-wine-australia.html?searchResultPosition=2
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/03/16/crosswords/spelling-bee-forum.html?searchResultPosition=3
+**The War Outside the Frame:20 Years Photographing Iraq**\
+`I learned that there is no such thing as an objective narrator in human conflict.`\
+https://nytimes.com/2023/03/16/opinion/iraq-war-20-photojournalism.html?searchResultPosition=3
 
-**Childhood Hobbies**\
-`Tell us a story, real or made up, about an activity you enjoyed as a child that you gave up as you got older.`\
-https://nytimes.com/2023/03/16/learning/childhood-hobbies.html?searchResultPosition=4
+**Florida Scoured Math Textbooks for ‘Prohibited Topics.’ Next Up: Social Studies.**\
+`Behind the scenes, one publisher went to great lengths to avoid mentions of race, even in the story of Rosa Parks.`\
+https://nytimes.com/2023/03/16/us/florida-textbooks-african-american-history.html?searchResultPosition=4
 
-**Kamala Harris Stops By to Chat With Stephen Colbert**\
-`The vice president visited “The Late Show” on Wednesday for the first time since the 2020 election.`\
-https://nytimes.com/2023/03/16/arts/television/kamala-harris-stephen-colbert.html?searchResultPosition=5
+**How Peru Used Lethal Force to Crack Down on Anti-Government Protests**\
+`A New York Times investigation found that the country’s police and military fired lethal ammunition at unarmed civilians during protests in December and January.`\
+https://nytimes.com/2023/03/16/world/americas/peru-protests-police.html?searchResultPosition=5
 
-**Word of the Day: remedial**\
-`This word has appeared in 31 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/03/16/learning/word-of-the-day-remedial.html?searchResultPosition=6
+**Ukraine Burns Through Ammunition in Bakhmut, Risking Future Fights**\
+`The military is using thousands of artillery shells a day as it tries to hold the eastern city, which could jeopardize a planned springtime campaign.`\
+https://nytimes.com/2023/03/16/world/europe/ukraine-ammunition-bakhmut.html?searchResultPosition=6
 
-**Freight Train Carrying Hazardous Materials Derails in Arizona**\
-`There were no immediate reports of spills after the derailment in Mohave County, near the border with California and Nevada.`\
-https://nytimes.com/2023/03/16/us/trail-derails-arizona.html?searchResultPosition=7
+**As Plundered Items Return to Wounded Knee, Decisions Await**\
+`The Oglala Sioux Tribe recently secured the return of cultural objects kept for over a century in a tiny Massachusetts museum. Now it is seeking consensus on their final resting place.`\
+https://nytimes.com/2023/03/16/arts/repatriation-native-american-cultural-heritage.html?searchResultPosition=7
 
-**Asian Markets Drop After Credit Suisse Moves to Borrow Billions**\
-`Stocks were set to open higher in Europe and the United States after days of volatility, but markets in Asia were down as fears grew about unseen risks.`\
-https://nytimes.com/2023/03/16/business/markets-credit-suisse.html?searchResultPosition=8
+**The Female Artisans Honoring, and Reinventing, Japanese Noh Masks**\
+`In taking on the male-dominated theatrical craft, contemporary women carvers are changing the face of a centuries-old tradition.`\
+https://nytimes.com/2023/03/16/t-magazine/noh-mask-makers-women.html?searchResultPosition=8
 
-**Your Thursday Briefing**\
-`Here’s what you need to know.`\
-https://nytimes.com/2023/03/16/briefing/credit-suisse-ukraine-weapons.html?searchResultPosition=9
+**MAGA and Martinis: Is This the Future of the N.Y. Republican Party?**\
+`A combative young Republican group in the state, firmly on the right and Trump-friendly, is wary of the official G.O.P. establishment’s more moderate path.`\
+https://nytimes.com/2023/03/16/nyregion/republicans-roger-stone-ny.html?searchResultPosition=9
 
-**Mets Closer Injured During World Baseball Classic Celebration**\
-`Edwin Díaz had just closed out Puerto Rico’s win over the Dominican Republic when he collapsed to the ground with what appeared to be a serious right knee injury.`\
-https://nytimes.com/2023/03/16/sports/baseball/edwin-diaz-injured.html?searchResultPosition=10
+**All-or-Nothing Abortion Politics Will Leave Women With Nothing**\
+`I’m afraid pregnant women will die if we don’t change Tennessee’s abortion law.`\
+https://nytimes.com/2023/03/16/opinion/medical-exceptions-abortion-tennessee.html?searchResultPosition=10
 
