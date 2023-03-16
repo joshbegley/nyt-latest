@@ -1,5 +1,5 @@
 **Princeton Commemorates Long-Ago Upset With a New One, of Arizona**\
-`In 1996, Princeton dropped U.C.L.A. in one of the most stirring N.C.A.A. tournament upsets. In the same city this year, it downed No. 2 seed Arizona.`\
+`In 1996, Princeton dropped U.C.L.A. in one of the most stirring N.C.A.A. tournament upsets. This year, it downed No. 2 seed Arizona.`\
 https://nytimes.com/2023/03/16/sports/ncaabasketball/princeton-arizona-upset-march-madness.html?searchResultPosition=1
 
 **Corrections: March 17, 2023**\
