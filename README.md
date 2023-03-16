@@ -26,13 +26,13 @@ https://nytimes.com/2023/03/16/health/covid-pregnancy-death.html?searchResultPos
 `A pregnant woman is more likely to develop serious Covid-19 and to die of it. Several factors amplify the risks.`\
 https://nytimes.com/2023/03/16/health/covid-pregnancy-protection.html?searchResultPosition=7
 
-**A Princeton Passer’s Skills Recall a Departed Coach’s Legacy**\
-`Tosan Evbuomwan is leading Princeton into the N.C.A.A. tournament seven months after the death of one of its best-known coaches, Pete Carril.`\
-https://nytimes.com/2023/03/16/sports/ncaabasketball/princeton-ncaa-tournament.html?searchResultPosition=8
-
 **Thursday’s Matchups to Watch in the N.C.A.A. Tournament**\
 `Two 8-vs.-9 games should provide first-day excitement, while No. 10 Utah State is a popular upset pick.`\
-https://nytimes.com/2023/03/16/sports/ncaabasketball/march-madness-thursday.html?searchResultPosition=9
+https://nytimes.com/2023/03/16/sports/ncaabasketball/march-madness-thursday.html?searchResultPosition=8
+
+**A Princeton Passer’s Skills Recall a Departed Coach’s Legacy**\
+`Tosan Evbuomwan is leading Princeton into the N.C.A.A. tournament seven months after the death of one of its best-known coaches, Pete Carril.`\
+https://nytimes.com/2023/03/16/sports/ncaabasketball/princeton-ncaa-tournament.html?searchResultPosition=9
 
 **30-Minute Trip to La Guardia? Forget About It.**\
 `The AirTrain to the airport, a pet project of former Gov. Andrew Cuomo, was killed after its projected cost spiraled.`\
