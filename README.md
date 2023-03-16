@@ -18,7 +18,7 @@ https://nytimes.com/2023/03/16/world/cities-urban-development-lisbon-paris-sydne
 `Two years later, they’re suffering from a glut of red wine and plummeting grape prices with no overseas market big enough to fill the gap.`\
 https://nytimes.com/2023/03/16/business/china-wine-australia.html?searchResultPosition=5
 
-**The War Outside the Frame:20 Years Photographing Iraq**\
+**The War Outside the Frame: 20 Years Photographing Iraq**\
 `I learned that there is no such thing as an objective narrator in human conflict.`\
 https://nytimes.com/2023/03/16/opinion/iraq-war-20-photojournalism.html?searchResultPosition=6
 
