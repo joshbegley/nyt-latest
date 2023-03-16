@@ -2,8 +2,8 @@
 `This documentary looks at the offenses of the pornography industry through interviews with performers and activists.`\
 https://nytimes.com/2023/03/16/movies/money-shot-the-pornhub-story-review.html?searchResultPosition=1
 
-**What is Article 49.3 of the French Constitution?**\
-`The move, used often by President Emmanuel Macron, can push bills through the lower house of Parliament without a vote. But detractors view it as an undemocratic tool to strong-arm lawmakers.`\
+**What Is Article 49.3 of the French Constitution?**\
+`A move used often by President Emmanuel Macron can push bills through the lower house of Parliament without a vote. But detractors view it as an undemocratic tool to strong-arm lawmakers.`\
 https://nytimes.com/2023/03/16/world/europe/france-consitituion-article-49-3.html?searchResultPosition=2
 
 **First Republic Is Said to Be Exploring a Potential Sale**\
