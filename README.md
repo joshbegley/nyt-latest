@@ -1,4 +1,4 @@
-**10 Drums of Nuclear Material Is Missing From Libya Site, U.N. Agency Says**\
+**10 Drums of Nuclear Material Are Missing From Libya Site, U.N. Agency Says**\
 `The U.N. nuclear watchdog said that 2.5 tons of natural uranium concentrate was unaccounted for, but that the ore itself posed little radiation hazard.`\
 https://nytimes.com/2023/03/16/world/africa/libya-missing-uranium.html?searchResultPosition=1
 
