@@ -2,7 +2,7 @@
 `Jean-Yves Thibaudet is playing Messiaen’s “Turangalîla-Symphonie” this week. But before, he debuted a night of jazz standards with Michael Feinstein.`\
 https://nytimes.com/2023/03/16/arts/music/jean-yves-thibaudet-michael-feinstein-two-pianos.html?searchResultPosition=1
 
-**North Dakota Supreme Court Blocks Abortion Ban; Says Constitution Protects Procedure**\
+**N. Dakota Supreme Court Blocks Abortion Ban; Says Constitution Protects Procedure**\
 `The court’s opinion is not the final word on the case, but it upheld a lower court’s decision to suspend the state’s abortion ban.`\
 https://nytimes.com/2023/03/16/us/north-dakota-abortion-ban.html?searchResultPosition=2
 
