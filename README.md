@@ -16,7 +16,7 @@ https://nytimes.com/2023/03/16/learning/who-is-your-favorite-actor.html?searchRe
 
 **The European Central Bank Meets to Raise Rates Amid Uncertainty**\
 `The E.C.B. is the first major central bank to set monetary policy since banking worries gripped financial markets, and its decision could be a gauge on how far the reverberations are expected to spread.`\
-https://nytimes.com/2023/03/16/business/the-european-central-bank-is-meeting-today-to-raise-rates-amid-uncertainty.html?searchResultPosition=5
+https://nytimes.com/2023/03/16/business/ecb-interest-rates-inflation.html?searchResultPosition=5
 
 **6 Cities on 5 Continents That Are Reimagining Urban Life**\
 `What we can learn from creative city initiatives, from Sydney to Paris.`\
