@@ -6,7 +6,7 @@ https://nytimes.com/2023/03/16/books/review/9-new-books-we-recommend-this-week.h
 `Emmett Shear was a co-founder of the Amazon-owned streaming service and managed it for 16 years.`\
 https://nytimes.com/2023/03/16/technology/twitchs-ceo-resigns.html?searchResultPosition=2
 
-**Macron Forces Through Pension Reform Bill**\
+**Macron Forces Through Pension Bill**\
 `Élisabeth Borne, the French prime minister, said, “We cannot gamble on the future of our pensions. The reform is necessary.”`\
 https://nytimes.com/video/world/europe/100000008816306/france-pension-no-vote.html?searchResultPosition=3
 
