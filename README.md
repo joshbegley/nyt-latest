@@ -1,40 +1,40 @@
-**March Madness Is Here**\
-`A preview for fans and non-fans alike.`\
-https://nytimes.com/2023/03/16/briefing/march-madness.html?searchResultPosition=1
+**Gold Metal Bags That Are Sure to Spark a Conversation**\
+`Luminous clutches to hold your phone — and offer a sculptural allure.`\
+https://nytimes.com/2023/03/16/t-magazine/gold-metal-clutches-bags.html?searchResultPosition=1
 
-**Russian Jet Dumps Substance on U.S. Drone Over Black Sea**\
-`A camera on a U.S. surveillance drone filmed a Russian warplane spraying it with what the Pentagon said was fuel.`\
-https://nytimes.com/video/world/europe/100000008815618/us-drone-russian-jet-pentagon.html?searchResultPosition=2
+**‘Drylongso’ Review: Extraordinary**\
+`Cauleen Smith’s 1998 movie, set in Oakland in the mid-90s, remains a vivid and prescient feature debut.`\
+https://nytimes.com/2023/03/16/movies/drylongso-review.html?searchResultPosition=2
 
-**France’s Battle Over Retirement**\
-`After months of street protests across the country, the moment has arrived for a pivotal vote on raising the pension age.`\
-https://nytimes.com/2023/03/16/podcasts/the-daily/france-retirement-strikes-protests-macron.html?searchResultPosition=3
+**‘Rodeo’ Review: The Good, the Bad and the Kids on Motorbikes**\
+`This naturalistic drama from France follows a young woman as she immerses herself in the underground world of urban motorbiking — it’s a seductive thrill-ride that falters as a character study.`\
+https://nytimes.com/2023/03/16/movies/rodeo-review.html?searchResultPosition=3
 
-**Japanese Prime Minister Greets South Korean President**\
-`Yoon Suk Yeol of South Korea arrived in Tokyo for a summit with Prime Minister Fumio Kishida aimed at strengthening security and economic ties, the first such visit in a dozen years.`\
-https://nytimes.com/video/world/asia/100000008815561/south-korea-japan-relations.html?searchResultPosition=4
+**‘Are You Lonesome Tonight?’ Review: Hit and Run, Sleight of Hand**\
+`Wen Shipei’s first feature is a twisty and sophisticated debut whose best trick of misdirection is convincing us we’re watching a different kind of movie.`\
+https://nytimes.com/2023/03/16/movies/are-you-lonesome-tonight-review.html?searchResultPosition=4
 
-**Who Is Your Favorite Actor?**\
-`A guest writer shares his love and admiration for Tom Cruise, who has captivated him for more than 40 years. Which actor has inspired you, moved you or touched your heart?`\
-https://nytimes.com/2023/03/16/learning/who-is-your-favorite-actor.html?searchResultPosition=5
+**Review: ‘Pinball: The Man Who Saved the Game’**\
+`The mesmerizing silver ball, banned for decades in New York for its perils, pings from bumper to bumper in a film that tilts toward the underwhelming.`\
+https://nytimes.com/2023/03/16/movies/review-pinball-the-man-who-saved-the-game.html?searchResultPosition=5
 
-**The European Central Bank Meets to Raise Rates Amid Uncertainty**\
-`The E.C.B. is the first major central bank to set monetary policy since banking worries gripped financial markets, and its decision could be a gauge on how far the reverberations are expected to spread.`\
-https://nytimes.com/2023/03/16/business/ecb-interest-rates-inflation.html?searchResultPosition=6
+**‘Full River Red’ Review: A Song Dynasty Blockbuster**\
+`The latest film from Zhang Yimou weaves slapstick fun into an investigation of a 12th-century political murder.`\
+https://nytimes.com/2023/03/16/movies/full-river-red-review.html?searchResultPosition=6
 
-**6 Cities on 5 Continents That Are Reimagining Urban Life**\
-`What we can learn from creative city initiatives, from Sydney to Paris.`\
-https://nytimes.com/2023/03/16/world/cities-urban-development-lisbon-paris-sydney-singapore-durban-medellin.html?searchResultPosition=7
+**‘The Magician’s Elephant’ Review: The Promise of a Pachyderm**\
+`Adapted from Kate DiCamillo’s beloved children’s book, this animated adventure sands down the somberness of its source material while turning up the silliness.`\
+https://nytimes.com/2023/03/16/movies/the-magicians-elephant-review.html?searchResultPosition=7
 
-**China Wine Tariff Pushes Australia’s Grape Growers Into Crisis**\
-`Two years later, they’re suffering from a glut of red wine and plummeting grape prices with no overseas market big enough to fill the gap.`\
-https://nytimes.com/2023/03/16/business/china-wine-australia.html?searchResultPosition=8
+**‘The Innocent’ Review: A Heist With a French Accent**\
+`A light, enjoyable confection of a film that is built upon an amusingly absurd premise.`\
+https://nytimes.com/2023/03/16/movies/the-innocent-review-a-heist-with-a-french-accent.html?searchResultPosition=8
 
-**The War Outside the Frame: 20 Years Photographing Iraq**\
-`I learned that there is no such thing as an objective narrator in human conflict.`\
-https://nytimes.com/2023/03/16/opinion/iraq-war-20-photojournalism.html?searchResultPosition=9
+**‘Wildflower’ Review: The Parents Are All Right**\
+`A snarky teenager navigates her loving but complicated relationship with two intellectually disabled parents in the coming-of-age comedy “Wildflower.”`\
+https://nytimes.com/2023/03/16/movies/wildflower-review.html?searchResultPosition=9
 
-**Florida Scoured Math Textbooks for ‘Prohibited Topics.’ Next Up: Social Studies.**\
-`Behind the scenes, one publisher went to great lengths to avoid mentions of race, even in the story of Rosa Parks.`\
-https://nytimes.com/2023/03/16/us/florida-textbooks-african-american-history.html?searchResultPosition=10
+**Gianni Infantino Is Re-elected, Unopposed, as FIFA President**\
+`The Swiss administrator, a contentious figure in the soccer world, had no rivals for the position and was crowned for another four years by acclamation.`\
+https://nytimes.com/2023/03/16/sports/soccer/infantino-fifa-president.html?searchResultPosition=10
 
