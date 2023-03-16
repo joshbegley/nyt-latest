@@ -23,7 +23,7 @@ https://nytimes.com/2023/03/16/realestate/highest-property-taxes.html?searchResu
 https://nytimes.com/2023/03/16/arts/dance/maqoma-sibisi-broken-chord.html?searchResultPosition=6
 
 **Banking Backstops Have Gone Global**\
-`Bank stocks recovered after Credit Suisse secured a $54 billion lifeline from Switzerland’s central bank.`\
+`Credit Suisse secured a $54 billion lifeline from Switzerland’s central bank a day after the lender’s share price hit a record low.`\
 https://nytimes.com/2023/03/16/business/dealbook/credit-suisse-bank-stocks.html?searchResultPosition=7
 
 **China’s Answer to ChatGPT Gets an Artificial Debut and Disappoints**\
