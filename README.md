@@ -1,4 +1,4 @@
-**North Dakota Supreme Court Blocks Abortion Ban, Says Constitution Protects Procedure**\
+**North Dakota Supreme Court Blocks Abortion Ban; Says Constitution Protects Procedure**\
 `The court’s opinion is not the final word on the case, but it upheld a lower court’s decision to suspend the state’s abortion ban.`\
 https://nytimes.com/2023/03/16/us/north-dakota-abortion-ban.html?searchResultPosition=1
 
