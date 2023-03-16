@@ -3,7 +3,7 @@
 https://nytimes.com/2023/03/16/business/us-regional-banks-stocks.html?searchResultPosition=1
 
 **Kehinde Wiley’s New Exhibition Is a Chapel of Mourning**\
-`“An Archaeology of Silence” opens in San Francisco after a string of police killings of Black men. It offers a respite room to those needing a break.`\
+`“An Archaeology of Silence” opens in San Francisco, in a nation reeling after a string of police killings of Black men. Along with art, it offers a respite room to those needing a break.`\
 https://nytimes.com/2023/03/16/arts/design/kehinde-wiley-de-young-museum.html?searchResultPosition=2
 
 **The Poignant Music of Melting Ice**\
