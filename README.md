@@ -1,4 +1,4 @@
-**U.S. Regional Banks Remain a Source of Worry**\
+**First Republic and other U.S. Regional Banks Remain a Source of Worry**\
 `Even as the stock price of Credit Suisse, the giant European lender, recovered after a plunge, shares of some midsize American banks plummeted on Thursday.`\
 https://nytimes.com/2023/03/16/business/us-regional-banks-stocks.html?searchResultPosition=1
 
