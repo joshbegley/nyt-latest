@@ -34,7 +34,7 @@ https://nytimes.com/2023/03/17/world/europe/ukraine-jets-mig-f16.html?searchResu
 `The move would place SVB Financial Group, which owns other businesses aside from the collapsed Silicon Valley Bank, into a court-led process as creditors look to recover funds.`\
 https://nytimes.com/2023/03/17/business/svb-silicon-valley-bank-bankruptcy.html?searchResultPosition=9
 
-**Anger Simmers in France as Opposition Rushes to File No-Confidence Motions**\
+**Anger Simmers in France as Opposition Files No-Confidence Motions**\
 `After President Emmanuel Macron pushed his unpopular pension bill through Parliament without a vote, demonstrations about the changes broke out again.`\
 https://nytimes.com/2023/03/17/world/europe/france-pension-macron.html?searchResultPosition=10
 
