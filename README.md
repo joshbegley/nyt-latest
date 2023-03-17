@@ -27,7 +27,7 @@ https://nytimes.com/2023/03/17/world/asia/thailand-radioactive-canister-lost.htm
 https://nytimes.com/2023/03/17/t-magazine/victor-lavalle-mona-simpson.html?searchResultPosition=7
 
 **Investors Warily Approach the End of a Tumultuous Week**\
-`The rescues of two ailing lenders provided a tenuous sense of relief in stock markets.`\
+`Despite the rescues of two ailing lenders, bank stocks resumed sliding on Friday.`\
 https://nytimes.com/2023/03/17/business/banks-crisis-first-republic-credit-suisse.html?searchResultPosition=8
 
 **Going Hungry in America**\
