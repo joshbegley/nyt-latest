@@ -3,7 +3,7 @@
 https://nytimes.com/2023/03/17/learning/word-of-the-day-callous.html?searchResultPosition=1
 
 **Jimmy Kimmel Mocks Trump’s New Lawyer**\
-`Kimmel joked that Joe Tacopina “seems to have been born in the ashtray of Rudy Giulian’s Lincoln Continental.”`\
+`Kimmel joked that Joe Tacopina “seems to have been born in the ashtray of Rudy Giuliani’s Lincoln Continental.”`\
 https://nytimes.com/2023/03/17/arts/television/jimmy-kimmel-donald-trump.html?searchResultPosition=2
 
 **Britain’s National Health Service Is Exhausted**\
