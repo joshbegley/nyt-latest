@@ -2,7 +2,7 @@
 `Five articles from around The Times, narrated just for you.`\
 https://nytimes.com/2023/03/17/podcasts/oprah-winfrey-book-club-face-recognition-software.html?searchResultPosition=1
 
-**Hundreds of L.A. Schools to Close Next Week as Workers Strike**\
+**Hundreds of L.A. Schools May Close Next Week as Workers Strike**\
 `A three-day strike at Los Angeles Unified School District is scheduled to start Tuesday.`\
 https://nytimes.com/2023/03/17/us/hundreds-of-la-schools-to-close-next-week-as-workers-strike.html?searchResultPosition=2
 
