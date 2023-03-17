@@ -2,8 +2,8 @@
 `Pitino not long ago was ousted in Louisville as a recruiting scandal hit men’s college basketball. Years later, he is back in contention for bigger jobs in the sport.`\
 https://nytimes.com/2023/03/17/sports/ncaabasketball/iona-rick-pitino.html?searchResultPosition=5
 
-**W.H.O. Accuses China of Withholding Data on Pandemic’s Origins**\
-`Genetic research from China suggests to some experts that the coronavirus may have sprung from a market in Wuhan. Now the data are missing from a scientific database.`\
+**W.H.O. Accuses China of Hiding Data That May Link Covid’s Origins to Animals**\
+`Genetic research from China suggests to some experts that the coronavirus may have sprung from a seafood market in Wuhan. Now the data are missing from a scientific database.`\
 https://nytimes.com/2023/03/17/health/covid-origins-who.html?searchResultPosition=6
 
 **Police Pleaded for Hours With a Man in Crisis. Then They Shot Him.**\
