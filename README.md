@@ -15,7 +15,7 @@ https://nytimes.com/2023/03/17/opinion/liberal-catholicism.html?searchResultPosi
 https://nytimes.com/video/world/europe/100000008818312/putin-arrest-warrant.html?searchResultPosition=4
 
 **Banking Crisis Hangs Over Economy, Rekindling Recession Fear**\
-`With new doubts about the recovery’s staying power, borrowing could become tougher, a particular blow to small businesses.`\
+`Borrowing could become tougher, a particular blow to small businesses — and a threat to the recovery’s staying power.`\
 https://nytimes.com/2023/03/17/business/economy/economy-banks-recession.html?searchResultPosition=5
 
 **Page and Screen: Can You Guess This Busy Mystery Author?**\
