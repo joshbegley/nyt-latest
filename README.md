@@ -1,40 +1,40 @@
-**To Tyre Nichols, Memphis Was a City of Light**\
-`After Mr. Nichols’s death at the hands of police officers, his photographs of Memphis took on more meaning. The Times published several of them.`\
-https://nytimes.com/2023/03/17/insider/to-tyre-nichols-memphis-was-a-city-of-light.html?searchResultPosition=1
+**What Do Clothes Look Like in a Climate-Changed Future?**\
+`The costume designers behind the new Apple TV+ show “Extrapolations” offer a glimpse into the future of clothing in a warming world.`\
+https://nytimes.com/2023/03/17/style/extrapolations-fashion-climate-change.html?searchResultPosition=1
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/03/17/crosswords/spelling-bee-forum.html?searchResultPosition=2
+**An Artist for the End of the World**\
+`What’s so funny about our dystopian future? Just ask Josh Kline.`\
+https://nytimes.com/2023/03/17/t-magazine/josh-kline.html?searchResultPosition=2
 
-**Banking**\
-`What do you think this image is communicating?`\
-https://nytimes.com/2023/03/17/learning/banking.html?searchResultPosition=3
+**Residents’ Right to Be Rude Upheld by Massachusetts Supreme Court**\
+`In an age of division, the court ruled that towns could not mandate polite discourse at public meetings. One official called the decision “very dispiriting.”`\
+https://nytimes.com/2023/03/17/us/massachusetts-public-meeting-discourse.html?searchResultPosition=3
 
-**Word of the Day: callous**\
-`This word has appeared in 96 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/03/17/learning/word-of-the-day-callous.html?searchResultPosition=4
+**The Second Life of a Christian College in Manhattan Nears Its End**\
+`The King’s College, which draws students from around the country to Manhattan, has not been able to recover from enrollment and financial losses.`\
+https://nytimes.com/2023/03/17/nyregion/the-second-life-of-a-christian-college-in-manhattan-nears-its-end.html?searchResultPosition=4
 
-**Jimmy Kimmel Mocks Trump’s New Lawyer**\
-`Kimmel joked that Joe Tacopina “seems to have been born in the ashtray of Rudy Giuliani’s Lincoln Continental.”`\
-https://nytimes.com/2023/03/17/arts/television/jimmy-kimmel-donald-trump.html?searchResultPosition=5
+**Chicago’s New Manager Has a Clear Message: Details Matter**\
+`The star-laden White Sox underperformed last year. Pedro Grifol plans to wake up the A.L. Central’s “sleeping horse.”`\
+https://nytimes.com/2023/03/17/sports/baseball/pedro-grifol-white-sox.html?searchResultPosition=5
 
-**Britain’s National Health Service Is Exhausted**\
-`But it’s not too late to save it.`\
-https://nytimes.com/2023/03/17/opinion/nhs-britain-privatization.html?searchResultPosition=6
+**Banned From Russian Airspace, U.S. Airlines Look to Restrict Competitors**\
+`Because of the war in Ukraine, U.S. carriers have to take the long way on flights to and from Asia, giving an advantage to foreign rivals flying the same routes.`\
+https://nytimes.com/2023/03/17/us/politics/russia-us-airlines-ukraine.html?searchResultPosition=6
 
-**Your Friday Briefing**\
-`Private-sector bailout for First Republic Bank.`\
-https://nytimes.com/2023/03/17/briefing/poland-ukraine-banking.html?searchResultPosition=7
+**American Directors Bring Fresh Visions to Europe’s Opera Stages**\
+`Young music theater makers are benefiting from the continent’s huge operatic resources while developing their own distinctive voices.`\
+https://nytimes.com/2023/03/17/arts/music/american-opera-directors-ted-huffman-lydia-steier-rb-schlather.html?searchResultPosition=7
 
-**Purdue Favors Old Basketball Ideas. Will It Keep Working?**\
-`Led by center Zach Edey, the Boilermakers, who play on Friday, have earned a No. 1 seed in the N.C.A.A. men’s tournament.`\
-https://nytimes.com/2023/03/17/sports/ncaabasketball/zach-edey-purdue.html?searchResultPosition=8
+**After a Wild Week, What Are Markets Saying About the World?**\
+`Stocks, bonds and commodities markets are all sending different signals. While the S&P 500 actually rose this week, oil prices fell along with bond yields, signs that investors are worried about the economy.`\
+https://nytimes.com/2023/03/17/business/stock-markets-economy-banks.html?searchResultPosition=8
 
-**Turning the ‘Music of Daily Life’ Into All Kinds of Anthems**\
-`Steve Barakatt never planned to become the composer of official songs for his native Quebec and other entities. It just worked out that way.`\
-https://nytimes.com/2023/03/17/nyregion/turning-the-music-of-daily-life-into-all-kinds-of-anthems.html?searchResultPosition=9
+**What Happened to the Woman in the Hotel Room Next Door?**\
+`With their closed doors and transient nature, hotels can provide an environment for crimes like sex trafficking. An incident in the middle of the night prompts a writer to ask what is being done to prevent them.`\
+https://nytimes.com/2023/03/17/travel/hotels-sex-trafficking-violence-crime.html?searchResultPosition=9
 
-**Friday’s Matchups to Watch in the N.C.A.A. Tournament**\
-`The South Carolina women begin their title defense, while a couple of No. 12 seeds have us on upset watch in the men’s tournament.`\
-https://nytimes.com/2023/03/17/sports/ncaabasketball/march-madness-friday.html?searchResultPosition=10
+**Will the Fed Keep Tightening as Banks Fail?**\
+`By quietly shedding billions in assets, the Fed is making conditions tighter for banks, home buyers and investors, our columnist says.`\
+https://nytimes.com/2023/03/17/business/federal-reserve-markets-mortgages-inflation-interest-rates.html?searchResultPosition=10
 
