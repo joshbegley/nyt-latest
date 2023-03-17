@@ -15,7 +15,7 @@ https://nytimes.com/2023/03/17/us/politics/trump-lawyer-testify-documents.html?s
 https://nytimes.com/2023/03/17/theater/fish-in-a-tree-dyslexia.html?searchResultPosition=4
 
 **Lance Reddick, Star of ‘The Wire’ and ‘John Wick,’ Dies at 60**\
-`He also branched out into video games, notably Horizon Zero Dawn and its sequel, and the Destiny franchise.`\
+`A prolific actor who also starred in the Amazon series “Bosch,” Mr. Reddick had branched out into video games, notably Horizon Zero Dawn and its sequel, and the Destiny franchise.`\
 https://nytimes.com/2023/03/17/us/lance-reddick-dead.html?searchResultPosition=5
 
 **Jaylen Brown on Basketball, Activism and Being Black in Boston**\
