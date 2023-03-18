@@ -1,5 +1,5 @@
 **Chaos Breaks Out as Imran Khan Makes Court Appearance**\
-`Supporters of the former prime minister of Pakistan and the security forces have repeatedly clashed this week, keeping the country on edge. “Show you can fight,” he told supporters.`\
+`Supporters of the former prime minister of Pakistan have repeatedly clashed this week with the security forces, keeping the country on edge. “Show you can fight,” he told supporters.`\
 https://nytimes.com/2023/03/18/world/asia/imran-khan-pakistan-court.html?searchResultPosition=1
 
 **My Tenant Split Without Paying the Rent. What Are My Options?**\
