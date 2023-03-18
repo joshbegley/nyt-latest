@@ -4,7 +4,7 @@ https://nytimes.com/2023/03/18/us/kentucky-university-wrestler-settlement.html?s
 
 **A Clandestine Trip and a Four-Decade Secret: An Untold Story Behind Jimmy Carter’s Defeat**\
 `Nearly 43 years later, a prominent Texas politician said he was an unwitting part of a mission to sabotage President Carter’s campaign.`\
-https://nytimes.com/2023/03/18/us/politics/october-surprise-iran-hostages.html?searchResultPosition=2
+https://nytimes.com/2023/03/18/us/politics/jimmy-carter-october-surprise-iran-hostages.html?searchResultPosition=2
 
 **What It Means to Be Woke**\
 `It boils down to cultural and psychological project.`\
