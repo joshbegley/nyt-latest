@@ -35,6 +35,6 @@ https://nytimes.com/2023/03/18/sports/gary-cantrell-barkley-marathons.html?searc
 https://nytimes.com/2023/03/18/us/politics/trump-indictment-arrest-protests.html?searchResultPosition=9
 
 **Change Makes Fools of Us All**\
-`Banking is a critical form of public infrastructure that we pretend is a private act of risk management,`\
+`Banking is a critical form of public infrastructure that we pretend is a private act of risk management.`\
 https://nytimes.com/2023/03/18/opinion/svb-banks-change.html?searchResultPosition=10
 
