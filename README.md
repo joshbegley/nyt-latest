@@ -14,8 +14,8 @@ https://nytimes.com/2023/03/18/business/frozen-strawberry-recall-hepatitis.html?
 `Grant Brace, 20, died after he begged for water during a practice at the University of the Cumberlands in Kentucky, according to a lawsuit brought by his family.`\
 https://nytimes.com/2023/03/18/us/kentucky-university-wrestler-settlement.html?searchResultPosition=4
 
-**A Four-Decade Secret: The Untold Story of Sabotaging Jimmy Carter’s Re-election**\
-`Nearly 43 years later, a prominent Texas politician said he unwittingly took part in a Middle East tour with a clandestine agenda.`\
+**A Four-Decade Secret: One Man’s Untold Story of Sabotaging Carter’s Re-election**\
+`A prominent Texas politician said he unwittingly took part in a 1980 tour of the Middle East with a clandestine agenda.`\
 https://nytimes.com/2023/03/18/us/politics/jimmy-carter-october-surprise-iran-hostages.html?searchResultPosition=5
 
 **What It Means to Be Woke**\
