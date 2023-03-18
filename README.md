@@ -1,40 +1,40 @@
-**Fairleigh Dickinson, Princeton, Furman and the Joy of March Upsets**\
-`“This is one of the few things in life where they told me how good it was and, somehow, it’s better.”`\
-https://nytimes.com/2023/03/18/sports/ncaabasketball/march-madness-upsets.html?searchResultPosition=1
+**The Many Lives of Jeannette Walls**\
+`The writer of “The Glass Castle” starts a new chapter with a rip-roaring novel set during Prohibition.`\
+https://nytimes.com/2023/03/18/style/the-many-lives-of-jeannette-walls.html?searchResultPosition=1
 
-**In Stoic Ukraine, Stony Faces Are Starting to Crack and to Cry**\
-`Although Ukrainians excel at putting up a brave front, a tremendous amount of suffering is being kept bottled up and sometimes bursts out.`\
-https://nytimes.com/2023/03/18/world/europe/ukraine-emotional-toll-crying.html?searchResultPosition=2
+**Where Did All Your Zoom Friends Go?**\
+`They got lost in this weird moment, where the world is caught between crisis and normalcy, nostalgic for house parties — and Houseparty, too.`\
+https://nytimes.com/2023/03/18/business/zoom-friends-socializing.html?searchResultPosition=2
 
-**In Photos: The Iraq War**\
-`By The New York Times`\
-https://nytimes.com/2023/03/18/world/middleeast/iraq-war-photos-us-military.html?searchResultPosition=3
+**Macron Faces an Angry France Alone**\
+`President Emmanuel Macron saw his decision to push through a change in the retirement age as necessary, but the price may be high.`\
+https://nytimes.com/2023/03/18/world/europe/macron-pension-future.html?searchResultPosition=3
 
-**20 Years After U.S. Invasion, Iraq Is a Freer Place, but Not a Hopeful One**\
-`Conversations with dozens of Iraqis offer a portrait of a nation that is rich in oil, hobbled by corruption and unable to guarantee its citizens’ safety.`\
-https://nytimes.com/2023/03/18/world/middleeast/iraq-war-20th-anniversary.html?searchResultPosition=4
+**For Trump and His Potential 2024 G.O.P. Rivals, It’s All About Iowa**\
+`As former Vice President Mike Pence visits the state on Saturday, Iowa has become pivotal for possible Republican presidential contenders, and for Donald Trump in particular.`\
+https://nytimes.com/2023/03/18/us/politics/republicans-2024-iowa.html?searchResultPosition=4
 
-**20 Years On, a Question Lingers About Iraq: Why Did the U.S. Invade?**\
-`Two decades after the Bush administration said it wanted to disarm weapons of mass destruction and free Iraqis, the debates rages on about who knew what when, and which motive mattered most.`\
-https://nytimes.com/2023/03/18/world/middleeast/iraq-war-reason.html?searchResultPosition=5
+**How the Head of a Shelter for Young L.G.B.T.Q. Adults Spends Sundays**\
+`Wendy Kaplan takes her daughter for a bicycle ride and then for dinner at her workplace, where there is always a busy kitchen.`\
+https://nytimes.com/2023/03/18/nyregion/lgbtq-nyc-shelter-trinity.html?searchResultPosition=5
 
-**A Question About Your Money: Has Anything Truly Changed This Week?**\
-`Watching the banking industry descend into turmoil is unnerving. But unless your financial goals have changed, embrace inaction.`\
-https://nytimes.com/2023/03/18/your-money/bank-failures-finance-goals.html?searchResultPosition=6
+**Biden and McCarthy Are on a Collision Course in a Divided Government**\
+`The president and House speaker need each other to govern, but a messaging battle has replaced functional legislating as the two spar over the budget and federal debt limit.`\
+https://nytimes.com/2023/03/18/us/politics/biden-mccarthy-relationship.html?searchResultPosition=6
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/03/18/crosswords/spelling-bee-forum.html?searchResultPosition=7
+**She Never Existed. Catherine Lacey Wrote Her Biography Anyway.**\
+`In her new novel, “Biography of X,” Lacey dreams up a larger-than-life, narcissistic artist, and rewrites American history to tell her story.`\
+https://nytimes.com/2023/03/18/books/catherine-lacey-biography-of-x.html?searchResultPosition=7
 
-**Word of the Day: sibilant**\
-`This word has appeared in four articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/03/18/learning/word-of-the-day-sibilant.html?searchResultPosition=8
+**Six Takeaways From New York’s First Nightlife Czar**\
+`As she leaves her role, the bar czar reflects on what she discovered about the city, and about herself.`\
+https://nytimes.com/2023/03/18/nyregion/ariel-palitz-nyc-nightlife.html?searchResultPosition=8
 
-**Who is Fairleigh Dickinson, the No. 16 Seed That Beat Purdue?**\
-`The Knights, who delivered one of the biggest upsets in March Madness history by defeating Purdue, made an unlikely run just to even get to the game.`\
-https://nytimes.com/2023/03/18/sports/ncaabasketball/who-is-fairleigh-dickinson.html?searchResultPosition=9
+**What Does a Black Vulture Over Manhattan Mean for Climate Change?**\
+`Milder winters, shrinking habitats and new migratory patterns have changed the birds of the city.`\
+https://nytimes.com/2023/03/18/nyregion/bird-species-nyc-climate-change.html?searchResultPosition=9
 
-**For Villanova Star Maddy Siegrist, an Early Rejection Was Motivating**\
-`And the more she scores (and scores), the more she makes good on her promise to always make the team.`\
-https://nytimes.com/2023/03/18/sports/ncaabasketball/villanova-maddy-siegrist.html?searchResultPosition=10
+**Their Body, Their Choice of Undergarments**\
+`If someone is actually violating a dress code, let H.R. handle. Otherwise, let it go.`\
+https://nytimes.com/2023/03/18/business/roxane-gay-work-advice-work-wardrobe.html?searchResultPosition=10
 
