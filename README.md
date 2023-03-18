@@ -2,13 +2,13 @@
 `Banking is a critical form of public infrastructure that we pretend is a private act of risk management,`\
 https://nytimes.com/2023/03/18/opinion/change-makes-fools-of-us-all.html?searchResultPosition=1
 
-**Banning TikTok Should Be Just the Beginning**\
-`China poses a broad range of data security risks.`\
-https://nytimes.com/2023/03/18/opinion/tiktok-ban-china-spying.html?searchResultPosition=2
-
 **He’s the World’s Most Popular Leader. Beware.**\
 `Prime Minister Narendra Modi of India is building roads while also dangerously corroding democracy.`\
-https://nytimes.com/2023/03/18/opinion/hes-the-worlds-most-popular-leader-beware.html?searchResultPosition=3
+https://nytimes.com/2023/03/18/opinion/modi-india.html?searchResultPosition=2
+
+**Banning TikTok Should Be Just the Beginning**\
+`China poses a broad range of data security risks.`\
+https://nytimes.com/2023/03/18/opinion/tiktok-ban-china-spying.html?searchResultPosition=3
 
 **‘Everyone Is a Created Being of Their Own’**\
 `Trans liberation is a gift to everyone, because it expands the categories for what it means to be human.`\
