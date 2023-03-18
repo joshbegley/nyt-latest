@@ -2,7 +2,7 @@
 `Gary Cantrell, the mastermind behind the Barkley Marathons, is in a race of his own: against time.`\
 https://nytimes.com/2023/03/18/sports/gary-cantrell-barkley-marathons.html?searchResultPosition=1
 
-**Trump Says His Arrest Is Imminent, and, Echoing Jan. 6, Calls for Protests**\
+**Trump Says His Arrest Is Imminent and Calls for Protests, Echoing Jan. 6**\
 `His indictment by a Manhattan grand jury is expected, but its timing is unclear.`\
 https://nytimes.com/2023/03/18/us/politics/trump-indictment-arrest-protests.html?searchResultPosition=2
 
