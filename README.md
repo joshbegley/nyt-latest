@@ -1,6 +1,6 @@
 **Change Makes Fools of Us All**\
 `Banking is a critical form of public infrastructure that we pretend is a private act of risk management,`\
-https://nytimes.com/2023/03/18/opinion/change-makes-fools-of-us-all.html?searchResultPosition=1
+https://nytimes.com/2023/03/18/opinion/svb-banks-change.html?searchResultPosition=1
 
 **He’s the World’s Most Popular Leader. Beware.**\
 `Prime Minister Narendra Modi of India is building roads while also dangerously corroding democracy.`\
