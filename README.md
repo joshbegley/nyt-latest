@@ -8,7 +8,7 @@ https://nytimes.com/2023/03/18/opinion/womens-health-care.html?searchResultPosit
 
 **Watch Lance Reddick’s Best Performances**\
 `The actor, who died on Friday, brought gravitas to series like “The Wire” and “Bosch,” but he also subverted his image in comic roles. Here’s how to stream his most memorable work.`\
-https://nytimes.com/2023/03/18/arts/television/lance-reddick.html?searchResultPosition=3
+https://nytimes.com/2023/03/18/arts/television/lance-reddick-tv-shows-movies.html?searchResultPosition=3
 
 **Life Isn’t Fair. He Didn’t Want This Race to Be, Either.**\
 `Gary Cantrell, the mastermind behind the Barkley Marathons, is in a race of his own: against time.`\
