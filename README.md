@@ -4,7 +4,7 @@ https://nytimes.com/2023/03/19/dining/cruz-miguel-ortiz-cuadra-dead.html?searchR
 
 **Review: In Fosse’s ‘Dancin’,’ a Wiggle Is Worth a Thousand Words**\
 `A revival of the 1978 dancical has been substantially revamped to argue for Bob Fosse’s pure dance cred. It’s a joy anyway.`\
-https://nytimes.com/2023/03/19/theater/bob-fosses-dancin-review-broadway.html?searchResultPosition=2
+https://nytimes.com/2023/03/19/theater/dancin-broadway-review.html?searchResultPosition=2
 
 **Hedge Funds That Bet on Credit Suisse Rescue Face Uneven Results**\
 `Among the funds to bet on the rescue deal were two that specialize in buying the bonds of companies on the brink of bankruptcy.`\
