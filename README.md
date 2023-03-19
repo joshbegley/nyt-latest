@@ -1,6 +1,6 @@
 **On Pets, Moral Logic and Love**\
 `I didn’t think I was a “dog person.” Then Herbie showed up and taught me a lesson about love.`\
-https://nytimes.com/2023/03/19/opinion/on-pets-moral-logic-and-love.html?searchResultPosition=1
+https://nytimes.com/2023/03/19/opinion/pets-dogs-love.html?searchResultPosition=1
 
 **Bill Gates: We Must Fight Pandemics Like We Fight Fires**\
 `“We can’t afford to get caught flat-footed again.”`\
