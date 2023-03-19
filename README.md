@@ -2,7 +2,7 @@
 `America’s central bank and its counterparts around the world are rushing to cushion markets against the impact of bank problems.`\
 https://nytimes.com/2023/03/19/business/economy/federal-reserve-banks-dollar-access.html?searchResultPosition=1
 
-**Here Are Some of the Charges That Could Arise From the Trump Investigations**\
+**Dissecting Charges That Could Arise From the Trump Investigations**\
 `Prosecutors in New York, Georgia and the Justice Department face complex choices about what crimes to charge if they decide to indict Donald Trump.`\
 https://nytimes.com/2023/03/19/us/politics/trump-investigations.html?searchResultPosition=2
 
