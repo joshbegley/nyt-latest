@@ -10,8 +10,8 @@ https://nytimes.com/2023/03/19/pageoneplus/quotation-of-the-day-yes-there-were-u
 `Trea Turner’s grand slam gave the U.S. a come-from-behind win over Venezuela, setting up what should be a tense game against Cuba in Miami.`\
 https://nytimes.com/2023/03/19/sports/baseball/united-states-venezuela-wbc.html?searchResultPosition=3
 
-**Putin Makes Surprise Visit to Occupied Ukraine**\
-`State media said the Russian leader flew by helicopter to Mariupol, site of one of the bloodiest battles since Russia invaded Ukraine last year.`\
+**Defiant Putin Visits Mariupol, Second Stop in Tour of Occupied Ukraine**\
+`The surprise trip signals the Kremlin is trying to keep up business as usual, two days after an international court issued an arrest warrant for the Russian president.`\
 https://nytimes.com/2023/03/19/world/europe/putin-makes-surprise-visit-to-occupied-ukraine.html?searchResultPosition=4
 
 **Sunday’s Matchups to Watch in the N.C.A.A. Tournament**\
