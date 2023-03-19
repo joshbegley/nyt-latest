@@ -1,6 +1,6 @@
 **Hedge Funds That Bet on Credit Suisse Rescue Face Uneven Results**\
 `Among the funds to bet on the rescue deal were two that specialize in buying the bonds of companies on the brink of bankruptcy.`\
-https://nytimes.com/2023/03/19/business/hedge-funds-that-bet-on-credit-suisse-rescue-face-uneven-results.html?searchResultPosition=1
+https://nytimes.com/2023/03/19/business/credit-suisse-investors-hedge-funds.html?searchResultPosition=1
 
 **Review: A Dance Gushes With an Outpouring of the Inner Self**\
 `Bobbi Jene Smith and Or Schraiber seem to have had a thousand ideas for “Pit.” All of them appear to have been included.`\
