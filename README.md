@@ -31,7 +31,7 @@ https://nytimes.com/2023/03/19/business/ubs-credit-suisse.html?searchResultPosit
 https://nytimes.com/2023/03/19/world/middleeast/syria-assad-uae.html?searchResultPosition=8
 
 **On Pets, Moral Logic and Love**\
-`I didn’t think I was a “dog person.” Then Herbie showed up and taught me a lesson about love.`\
+`I didn’t think I was a dog person. Then Herbie showed up and taught me a lesson about love.`\
 https://nytimes.com/2023/03/19/opinion/pets-dogs-love.html?searchResultPosition=9
 
 **Bill Gates: We Must Fight Pandemics the Way We Fight Fires**\
