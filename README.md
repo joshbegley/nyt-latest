@@ -34,7 +34,7 @@ https://nytimes.com/2023/03/19/world/middleeast/syria-assad-uae.html?searchResul
 `I didn’t think I was a “dog person.” Then Herbie showed up and taught me a lesson about love.`\
 https://nytimes.com/2023/03/19/opinion/pets-dogs-love.html?searchResultPosition=9
 
-**Bill Gates: We Must Fight Pandemics Like We Fight Fires**\
+**Bill Gates: We Must Fight Pandemics the Way We Fight Fires**\
 `“We can’t afford to get caught flat-footed again.”`\
 https://nytimes.com/2023/03/19/opinion/bill-gates-pandemic-preparedness-covid.html?searchResultPosition=10
 
