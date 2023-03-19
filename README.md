@@ -1,6 +1,6 @@
 **Review: Protecting and Defending Ukraine’s Cultural Identity**\
 `A festival responds to the assaults and insults of war by celebrating the composer who shaped the nation’s contemporary music, Borys Liatoshynsky.`\
-https://nytimes.com/2023/03/19/arts/music/review-protecting-and-defending-ukraines-cultural-identity.html?searchResultPosition=1
+https://nytimes.com/2023/03/19/arts/music/ukrainian-contemporary-music-festival-review.html?searchResultPosition=1
 
 **Leader of International Seabed Mining Agency Admonished by Diplomats**\
 `The United Nations-affiliated agency faces pressure from some member nations to greenlight ocean mining — and from others to slow it down.`\
