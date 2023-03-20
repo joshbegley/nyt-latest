@@ -12,7 +12,7 @@ https://nytimes.com/paidpost/pfizer/finding-relief-from-migraine-pain.html?searc
 
 **The Ski Season That Just Won’t Quit**\
 `What do you do with 55 feet of snow? Across the country, record snowfall has resorts pushing back closing dates and skiers and snowboarders making plans into June.`\
-https://nytimes.com/2023/03/20/travel/the-ski-season-that-just-wont-quit.html?searchResultPosition=4
+https://nytimes.com/2023/03/20/travel/ski-season-snow-records.html?searchResultPosition=4
 
 **A Behind-the-Mask Tour of a Generation of Pitchers**\
 `Stephen Vogt, Seattle’s new bullpen coach, caught 6,000 innings in pro ball and came away with keen insights on the colorful pitchers he worked with along the way.`\
@@ -31,7 +31,7 @@ https://nytimes.com/2023/03/20/crosswords/wordle-review-answer-639.html?searchRe
 https://nytimes.com/2023/03/20/sports/tennis/alacraz-indian-wells-miami.html?searchResultPosition=8
 
 **Amazon Plans to Lay Off Another 9,000 Employees**\
-`The cuts follow another round of layoffs affecting more than 18,000 jobs announced several months ago.`\
+`The cuts follow a round of layoffs announced several months ago that affected more than 18,000 jobs.`\
 https://nytimes.com/2023/03/20/technology/amazon-layoffs.html?searchResultPosition=9
 
 **Morgan Wallen Holds at No. 1 With Strong Streaming Numbers**\
