@@ -10,8 +10,8 @@ https://nytimes.com/2023/03/20/arts/podcasts-cults-nxivm-manson.html?searchResul
 `A Spanish-style home in Los Angeles, a renovated 1905 bungalow in Palo Alto and a Cape Code-style retreat in Laguna Beach.`\
 https://nytimes.com/2023/03/20/realestate/home-prices-los-angeles-palo-alto-laguna-beach-california.html?searchResultPosition=3
 
-**Bank Stocks Teeter as Investors Worry About Who May Fall Next**\
-`Shares in UBS and other lenders tumbled on Monday, following the regulator-driven deal of Credit Suisse.`\
+**Why More Deals Are Likely After the Fall of Credit Suisse**\
+`Investors are still spooked after UBS bought its Swiss peer, with confidence in the banking sector in short supply.`\
 https://nytimes.com/2023/03/20/business/dealbook/ubs-bank-stocks-credit-suisse.html?searchResultPosition=4
 
 **How Do People Released From Prison Find Housing?**\
