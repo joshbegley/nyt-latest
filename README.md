@@ -3,7 +3,7 @@
 https://nytimes.com/2023/03/20/sports/tennis/alacraz-indian-wells-miami.html?searchResultPosition=1
 
 **Amazon Plans to Lay Off Another 9,000 Employees**\
-`The cuts follow another round of 18,000 layoffs announced several months ago.`\
+`The cuts follow another round of layoffs affecting more than 18,000 jobs announced several months ago.`\
 https://nytimes.com/2023/03/20/technology/amazon-lay-off-9000-employees.html?searchResultPosition=2
 
 **Morgan Wallen Holds at No. 1 With Strong Streaming Numbers**\
