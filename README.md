@@ -27,7 +27,7 @@ https://nytimes.com/2023/03/20/arts/dance/stuart-hodes-dead.html?searchResultPos
 https://nytimes.com/2023/03/20/sports/baseball/world-baseball-classic-final-preview.html?searchResultPosition=7
 
 **Trump Grand Jury Hears From Lawyer Who Assails Cohen’s Credibility**\
-`Once a legal adviser to Michael Cohen, Robert J. Costello is now one of his sharpest critics.`\
+`Robert J. Costello, a former legal adviser to Michael Cohen, said after testifying, “I told the grand jury that this guy couldn’t tell the truth if you put a gun to his head.”`\
 https://nytimes.com/2023/03/20/nyregion/costello-cohen-trump-grand-jury.html?searchResultPosition=8
 
 **Ryan McGinness Reimagines The ‘We ❤️ NYC’ Logo**\
