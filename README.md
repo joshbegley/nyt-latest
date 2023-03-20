@@ -1,40 +1,40 @@
-**Why China and Russia Are Closer Than Ever**\
-`This week’s meeting between the leaders of China and Russia marks another key moment in the deepening relationship between the two powers.`\
-https://nytimes.com/2023/03/20/world/asia/china-russia-ties.html?searchResultPosition=1
+**A Parisian Designer Builds His Dream House in a Former Brothel**\
+`Ramdane Touhami has turned a haute bohemian landmark into an audacious showcase for his inimitable, fearless creativity.`\
+https://nytimes.com/2023/03/20/t-magazine/ramdane-touhami-paris-home.html?searchResultPosition=1
 
-**Some Details on the Agenda for Xi Jinping’s Visit to Russia**\
-`The Chinese leader is expected to talk to Vladimir V. Putin about Ukraine and other issues.`\
-https://nytimes.com/2023/03/20/world/europe/some-details-on-the-agenda-for-xi-jinpings-visit-to-russia.html?searchResultPosition=2
+**Giant Mud Glaciers Are on the Move**\
+`It’s time to drill holes in Glen Canyon Dam on the Colorado River and empty Lake Powell.`\
+https://nytimes.com/2023/03/20/opinion/colorado-river-lake-powell-glen-canyon-dam.html?searchResultPosition=2
 
-**Putin Visits Mariupol in First Trip to Russian-Occupied Territory**\
-`Russian state media showed the president driving into Mariupol, Ukraine, and meeting with locals who moved into new apartments after intense fighting destroyed the city. The visit marks his closest trip to the front lines.`\
-https://nytimes.com/video/world/europe/100000008820522/putin-visits-mariupol-ukraine.html?searchResultPosition=3
+**A Tiny Town Was Dying, but Reba McEntire Came to the Rescue**\
+`The country-music star is trying to revive her childhood home in Oklahoma with a restaurant, concert stage and lots of Reba memorabilia.`\
+https://nytimes.com/2023/03/20/dining/reba-mcentire-atoka-oklahoma.html?searchResultPosition=3
 
-**The Children of the Iraq War Have Grown Up, but Some Wounds Don’t Heal**\
-`Twenty years after the U.S. invaded Iraq, a veteran Times correspondent and photographer asked Iraqis about growing up in wartime, and about their hopes now.`\
-https://nytimes.com/2023/03/20/world/middleeast/iraq-war-anniversary-youth.html?searchResultPosition=4
+**House Tour | Ramdane Touhami & Victoire de Taillac-Touhami**\
+`The husband-and-wife creatives invite T into their 5,400-square-foot home, a former brothel in Paris.`\
+https://nytimes.com/video/t-magazine/design/100000008802635/house-tour-ramdane-touhami-victoire-de-taillac-touhami.html?searchResultPosition=4
 
-**Iraq, 20 Years Later: A Changed Washington and a Terrible Toll on America**\
-`The White House, Congress, the military and the intelligence agencies see the war as a lesson in failed policymaking, one deeply absorbed if not thoroughly learned.`\
-https://nytimes.com/2023/03/20/us/politics/iraq-20-years.html?searchResultPosition=5
+**Americans’ Old Car Batteries are Making Mexican Workers Sick**\
+`The removal of lead from car batteries, many from the United States, at recycling plants in northern Mexico has led to high levels of lead contamination, a new report found.`\
+https://nytimes.com/2023/03/20/world/car-batteries-lead-mexico.html?searchResultPosition=5
 
-**For Years She Said a Coach Abused Her. Now She Has Named a Legend.**\
-`Jennifer Fox has long discussed what happened when she was 13 and her coach was 40. She even based a film on it. Now she has revealed the final detail: his identity.`\
-https://nytimes.com/2023/03/20/sports/olympics/jennifer-fox-sexual-abuse-the-tale.html?searchResultPosition=6
+**Exploring a Malaysian Jewel Box Packed With Color and Spice**\
+`George Town, a colonial port on the island of Penang, dazzles visitors with its winding alleys, pastel-painted storefronts, sumptuously restored hotels and mouthwatering food.`\
+https://nytimes.com/2023/03/20/travel/penang-malaysia-george-town.html?searchResultPosition=6
 
-**Trial of 2016 Twitter Troll to Test Limits of Online Speech**\
-`Douglass Mackey tried to trick Black people into thinking they could vote by text in the Clinton-Trump presidential election, prosecutors said.`\
-https://nytimes.com/2023/03/20/nyregion/douglass-mackey-twitter-misinformation-trial.html?searchResultPosition=7
+**Never Mind About Ron DeSantis**\
+`The governor of Florida has the national interest all wrong.`\
+https://nytimes.com/2023/03/20/opinion/ron-desantis-trump-silicon-valley-bank.html?searchResultPosition=7
 
-**Which Is the Better Buy? The Washington Commanders or Manchester United?**\
-`A struggling N.F.L. franchise is for sale. So is a Premier League club that is a storied name in a global sport. The markets for the two teams say a lot about sports economics.`\
-https://nytimes.com/2023/03/20/sports/commanders-manchester-united-sale.html?searchResultPosition=8
+**Falling Lithium Prices Are Making Electric Cars More Affordable**\
+`An unexpected decline in the price of an essential battery material, along with those of other commodities, is good news for buyers. But experts disagree on how long low prices will last.`\
+https://nytimes.com/2023/03/20/business/lithium-prices-falling-electric-vehicles.html?searchResultPosition=8
 
-**Out of Power, Trump Still Exerts It**\
-`An early-morning social media post amounted to a starter’s gun for Republican officials: Many raced to the former president’s side, denouncing a Democratic prosecutor investigating him.`\
-https://nytimes.com/2023/03/20/us/politics/trump-indictment-republicans.html?searchResultPosition=9
+**A Sumptuous Historical, a Sweet Paranormal, a Gorgeous Bit of Horror**\
+`New romance novels brim with shining, seductive, beautifully crafted sentences.`\
+https://nytimes.com/2023/03/20/books/review/new-romance-novels.html?searchResultPosition=9
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/03/20/crosswords/spelling-bee-forum.html?searchResultPosition=10
+**13 Women, 30 Activities and One Goal: Make Friends**\
+`I traveled to Morocco with a group-travel company that promises to build “meaningful friendships” among its youngish clientele.`\
+https://nytimes.com/2023/03/20/magazine/women-friendships-travel-morocco.html?searchResultPosition=10
 
