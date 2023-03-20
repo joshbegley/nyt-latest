@@ -1,6 +1,6 @@
 **Earth to Hit Critical Warming Threshold by Early 2030s, Climate Panel Says**\
 `A new U.N. report says it is still possible to hold global warming to relatively safe levels, but doing so will require global cooperation, billions of dollars and big changes.`\
-https://nytimes.com/2023/03/20/climate/earth-to-hit-critical-warming-threshold-by-early-2030s-climate-panel-says.html?searchResultPosition=1
+https://nytimes.com/2023/03/20/climate/global-warming-ipcc-earth.html?searchResultPosition=1
 
 **California Marks Three Years Since Covid Stay-at-Home Orders**\
 `The nation’s first statewide stay-at-home order was announced on March 19, 2020.`\
