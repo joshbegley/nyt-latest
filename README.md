@@ -7,7 +7,7 @@ https://nytimes.com/2023/03/20/health/candida-auris-us-fungus.html?searchResultP
 https://nytimes.com/2023/03/20/briefing/xi-putin-china-russia-asia.html?searchResultPosition=2
 
 **Peanut Butter Stirs an Old Debate: To the T.S.A., What’s a Liquid?**\
-`A podcaster’s Twitter post about surrendering his jar of Jif inspired sympathy and a wave of comments, and a bit of cheek from the T.S.A.`\
+`A podcaster’s complaint about surrendering his jar of Jif inspired sympathy and a wave of comments, and a bit of cheek from the T.S.A.`\
 https://nytimes.com/2023/03/20/travel/tsa-peanut-butter-liquid-security.html?searchResultPosition=3
 
 **A Newcomer in the Mushrooming Field of ‘Animal-Free’ Meats**\
