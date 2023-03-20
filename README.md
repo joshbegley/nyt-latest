@@ -11,7 +11,7 @@ https://nytimes.com/2023/03/20/world/europe/putin-xi-russia-china.html?searchRes
 https://nytimes.com/interactive/2023/03/20/science/chinese-space-balloon-incident.html?searchResultPosition=3
 
 **Macron’s Government Survives but Faces Wrath of France Over Pension Overhaul**\
-`Two no-confidence votes failed to oust the cabinet of President Emmanuel Macron over his raising the retirement age to 64 from 62.`\
+`Two no-confidence votes failed to oust the cabinet of President Emmanuel Macron over a new law raising the retirement age to 64 from 62.`\
 https://nytimes.com/2023/03/20/world/europe/france-no-confidence-macron-retirement.html?searchResultPosition=4
 
 **Your Monday Evening Briefing**\
