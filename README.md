@@ -16,7 +16,7 @@ https://nytimes.com/2023/03/20/sports/tennis/alacraz-indian-wells-miami.html?sea
 
 **Amazon Plans to Lay Off Another 9,000 Employees**\
 `The cuts follow another round of layoffs affecting more than 18,000 jobs announced several months ago.`\
-https://nytimes.com/2023/03/20/technology/amazon-lay-off-9000-employees.html?searchResultPosition=5
+https://nytimes.com/2023/03/20/technology/amazon-layoffs.html?searchResultPosition=5
 
 **Morgan Wallen Holds at No. 1 With Strong Streaming Numbers**\
 `“One Thing at a Time” had the second-biggest streaming total for a country album, after its debut last week. The nine-woman K-pop group Twice opens at No. 2.`\
