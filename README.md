@@ -27,7 +27,7 @@ https://nytimes.com/interactive/2023/03/20/nyregion/ryan-mc-ginness-we-heart-nyc
 https://nytimes.com/2023/03/20/nyregion/new-jersey-high-school-woman-student.html?searchResultPosition=7
 
 **Deadly Fungus Spread Rapidly During the Pandemic, C.D.C. Says**\
-`Candida auris, a drug-resistant fungus that health officials hoped to contain is now in more than half the states, according to a new research paper.`\
+`Candida auris, a drug-resistant fungus that health officials hoped to contain is now in more than half the 50 states, according to a new research paper.`\
 https://nytimes.com/2023/03/20/health/candida-auris-us-fungus.html?searchResultPosition=8
 
 **Your Tuesday Briefing: Xi Meets Putin in Moscow**\
