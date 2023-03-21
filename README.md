@@ -1,6 +1,6 @@
 **Video to Be Released Showing Virginia Man’s Death in Custody**\
 `Seven deputies in Henrico County have been charged with second-degree murder in the death of Irvo Otieno at a hospital.`\
-https://nytimes.com/2023/03/21/us/using-irvo-otieno-virginia-police-video.html?searchResultPosition=1
+https://nytimes.com/2023/03/21/us/irvo-otieno-virginia-police-video.html?searchResultPosition=1
 
 **Designing Their Own Studios to Meet Demand for Content**\
 `Businesses are spending hundreds of thousands of dollars to add in-house production and broadcast facilities to their offices.`\
