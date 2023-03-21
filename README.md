@@ -1,40 +1,40 @@
+**UConn’s Freshman Center Stands Out Off the Bench**\
+`At 7-foot-2, Donovan Clingan is proving himself a natural, but he dedicated himself to basketball only after his mother, a Connecticut high school star who played at Maine, died when he was 14.`\
+https://nytimes.com/2023/03/21/sports/ncaabasketball/march-madness-uconn-clingan.html?searchResultPosition=1
+
 **Trump at Mar-a-Lago: Magical Thinking and a Perp-Walk Fixation**\
 `Those who have spent time with Donald Trump in recent days say he has often appeared significantly disconnected from the severity of his potential legal woes.`\
-https://nytimes.com/2023/03/21/us/politics/trump-pending-indictment.html?searchResultPosition=1
+https://nytimes.com/2023/03/21/us/politics/trump-pending-indictment.html?searchResultPosition=2
 
 **Possible Trump Indictment Puts Attention on Prosecutorial Discretion**\
 `The Manhattan district attorney has considerable leeway in deciding whether to bring charges against the former president using what could be an untested legal theory.`\
-https://nytimes.com/2023/03/21/us/politics/trump-prosecutorial-discretion.html?searchResultPosition=2
+https://nytimes.com/2023/03/21/us/politics/trump-prosecutorial-discretion.html?searchResultPosition=3
 
 **A ‘Rocking Chair Rebellion’: Seniors Call On Banks to Dump Big Oil**\
 `Older climate activists gathered in cities around the country for a day of action targeting banks that finance fossil fuel projects.`\
-https://nytimes.com/2023/03/21/climate/climate-change-protests-oil-banks.html?searchResultPosition=3
+https://nytimes.com/2023/03/21/climate/climate-change-protests-oil-banks.html?searchResultPosition=4
 
 **Your Tuesday Evening Briefing**\
 `Here’s what you need to know at the end of the day.`\
-https://nytimes.com/2023/03/21/briefing/congress-insurance-deposit-limit-los-angeles-schools.html?searchResultPosition=4
+https://nytimes.com/2023/03/21/briefing/congress-insurance-deposit-limit-los-angeles-schools.html?searchResultPosition=5
 
 **Fox and Dominion Urge Judge to Rule on Case**\
 `At the start of a pretrial hearing for the $1.6 billion defamation trial, the judge said he was still weighing whether to issue a summary judgment.`\
-https://nytimes.com/2023/03/21/business/media/fox-news-dominion-voting-lawsuit.html?searchResultPosition=5
+https://nytimes.com/2023/03/21/business/media/fox-news-dominion-voting-lawsuit.html?searchResultPosition=6
 
 **Wisconsin Court Candidates Clash Over Abortion and Democracy**\
 `In their lone debate, Janet Protasiewicz, a liberal, and Daniel Kelly, a conservative, unleashed searing attacks on each other. At stake is a crucial seat on the battleground state’s Supreme Court.`\
-https://nytimes.com/2023/03/21/us/politics/wisconsin-supreme-court-debate.html?searchResultPosition=6
+https://nytimes.com/2023/03/21/us/politics/wisconsin-supreme-court-debate.html?searchResultPosition=7
 
 **Gwyneth Paltrow to Testify in Trial Over Utah Ski Accident**\
 `A retired optometrist accused the actress in a lawsuit of violently crashing into him in a skiing accident in Park City in 2016. He is seeking $300,000 in damages.`\
-https://nytimes.com/2023/03/21/arts/gwyneth-paltrow-ski-accident-trial.html?searchResultPosition=7
+https://nytimes.com/2023/03/21/arts/gwyneth-paltrow-ski-accident-trial.html?searchResultPosition=8
 
 **Puppetry So Lifelike, Even Their Deaths Look Real**\
 `Members of the puppetry team for “Life of Pi” discuss making the show’s animals seem all-too-real on a very crowded lifeboat.`\
-https://nytimes.com/2023/03/21/theater/life-of-pi-tiger-puppet.html?searchResultPosition=8
+https://nytimes.com/2023/03/21/theater/life-of-pi-tiger-puppet.html?searchResultPosition=9
 
 **Your Wednesday Briefing: China, Japan Divided on Ukraine**\
 `Also, an I.M.F. loan to Sri Lanka and the Japan-U.S. final in the World Baseball Classic.`\
-https://nytimes.com/2023/03/21/briefing/china-japan-russia-ukraine-asia.html?searchResultPosition=9
-
-**Here is what Putin and Xi agreed to in Moscow.**\
-`The two leaders did not reveal any progress toward achieving peace in Ukraine.`\
-https://nytimes.com/2023/03/21/world/europe/xi-putin-russia.html?searchResultPosition=10
+https://nytimes.com/2023/03/21/briefing/china-japan-russia-ukraine-asia.html?searchResultPosition=10
 
