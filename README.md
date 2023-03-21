@@ -23,7 +23,7 @@ https://nytimes.com/video/arts/100000008823755/gwyneth-paltrow-ski-collision-tri
 https://nytimes.com/2023/03/21/us/politics/biden-white-house-medals-arts-humanities.html?searchResultPosition=6
 
 **Report of Wuhan Market Samples Found Covid and Animal Mixtures**\
-`In a much-anticipated study, experts described a swab that contained loads of genetic material from the coronavirus and raccoon dogs.`\
+`In a much-anticipated study, experts described a swab that was positive for the coronavirus and contained loads of genetic material from raccoon dogs.`\
 https://nytimes.com/2023/03/21/science/covid-raccoon-dogs-wuhan-market.html?searchResultPosition=7
 
 **Warren Boroson, Who Surveyed Psychiatrists on Goldwater, Dies at 88**\
