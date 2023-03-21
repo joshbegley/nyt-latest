@@ -1,6 +1,6 @@
 **‘Perry Mason’ Season 2, Episode 3 Recap: ‘King Kong’ Ding-Dong**\
 `Perry tries to be a better dad. Della tries a Turkish cigarette. Paul runs an interesting and inconvenient ballistics experiment.`\
-https://nytimes.com/2023/03/20/arts/television/perry-mason-season-2-episode-3-recap-king-kong-ding-dong.html?searchResultPosition=1
+https://nytimes.com/2023/03/20/arts/television/perry-mason-season-2-episode-3-recap.html?searchResultPosition=1
 
 **Something to Reflect on**\
 `Michael Lieberman’s puzzle asks you to repeat yourself.`\
