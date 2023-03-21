@@ -35,6 +35,6 @@ https://nytimes.com/2023/03/21/us/california-atmospheric-river-photos.html?searc
 https://nytimes.com/2023/03/21/obituaries/lilian-lindsay-overlooked.html?searchResultPosition=9
 
 **Push to Insure Big Deposits Percolates on Capitol Hill**\
-`The government insures deposits up to $250,000, but there is precedent for lifting that cap amid the banking sector’s turmoil. It could be raised again.`\
+`The government only insures deposits of less than $250,000, but there is precedent for lifting that cap amid turmoil. It could happen again.`\
 https://nytimes.com/2023/03/21/business/economy/banks-insurance-deposit-cap.html?searchResultPosition=10
 
