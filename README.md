@@ -36,5 +36,5 @@ https://nytimes.com/2023/03/21/books/patrick-french-dead.html?searchResultPositi
 
 **Reconstructing Kyiv, One Synth Wave at a Time**\
 `“Kyiv Eternal,” by the composer and sound artist Heinali (real name Oleh Shpudeiko), submerges listeners in the sounds of the prewar Ukrainian capital.`\
-https://nytimes.com/2023/03/21/arts/music/reconstructing-kyiv-one-synth-wave-at-a-time.html?searchResultPosition=10
+https://nytimes.com/2023/03/21/arts/music/heinali-kyiv-eternal-ukraine.html?searchResultPosition=10
 
