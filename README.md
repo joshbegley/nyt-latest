@@ -1,6 +1,6 @@
 **Jeremy Scott Speaks for the First Time Since His Split From Moschino**\
 `The former creative director of the Italian label shared what his future holds, what brought him to Seoul and the celebrity Oscar gown that was his “cherry on top.”`\
-https://nytimes.com/2023/03/21/fashion/jeremy-scott-speaks-for-the-first-time-since-his-split-from-moschino.html?searchResultPosition=1
+https://nytimes.com/2023/03/21/fashion/jeremy-scott-moschino.html?searchResultPosition=1
 
 **DeSantis, Doubling Down, Presses Questions About Trump’s Character**\
 `In an interview with Piers Morgan, the Florida governor sought to strike a clear contrast with Donald Trump, calling himself a low-drama “winner.”`\
