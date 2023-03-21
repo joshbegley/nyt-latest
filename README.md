@@ -18,7 +18,7 @@ https://nytimes.com/2023/03/21/crosswords/spelling-bee-forum.html?searchResultPo
 `What are you reading for fun right now?`\
 https://nytimes.com/2023/03/21/learning/spring-books.html?searchResultPosition=5
 
-**Japan’s Prime Minister Becomes Last G7 Leader to Visit Ukraine**\
+**Japan’s Prime Minister Becomes Latest G7 Leader to Visit Ukraine**\
 `Fumio Kishida, who has been seeking a more active role for his country in international affairs, made an unannounced trip to meet with Ukraine’s president.`\
 https://nytimes.com/2023/03/21/world/europe/japan-kishida-ukraine.html?searchResultPosition=6
 
