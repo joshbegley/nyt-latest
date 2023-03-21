@@ -22,7 +22,7 @@ https://nytimes.com/2023/03/21/world/europe/xi-putin-russia-china-ukraine.html?s
 `The rationale was wrong, and the execution was lousy. But getting rid of Saddam Hussein was the right call.`\
 https://nytimes.com/2023/03/21/opinion/20-years-on-i-dont-regret-supporting-the-iraq-war.html?searchResultPosition=6
 
-**Everything, Everywhere Is Going to Change All at Once**\
+**I Witnessed Magic, and It’s the Future**\
 `I just saw magic, and it’s the future.`\
 https://nytimes.com/2023/03/21/opinion/artificial-intelligence-chatgpt.html?searchResultPosition=7
 
