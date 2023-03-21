@@ -1,40 +1,40 @@
-**In This Story, George W. Bush Is The Hero**\
-`20 years ago Bush did something amazing. Hint: it wasn’t the Iraq war.`\
-https://nytimes.com/video/opinion/100000008811012/george-bush-iraq-pepfar.html?searchResultPosition=1
+**What’s It Like to Live in a Grocery Store? Surprisingly Comfortable.**\
+`When two artists bought the vacant building, it was ‘grim and creepy.’ Now it’s not only a home — it’s a communal arts space.`\
+https://nytimes.com/2023/03/21/realestate/whats-it-like-to-live-in-a-grocery-store-surprisingly-comfortable.html?searchResultPosition=1
 
-**Damning Report Finds London Police Force Is Sexist and Racist**\
-`The report, ordered up after the murder of Sarah Everard by a London police officer in 2021, denounced the culture within Britain’s largest police force and called for change.`\
-https://nytimes.com/2023/03/21/world/europe/london-met-police-report.html?searchResultPosition=2
+**Ferraris and Hungry Children: Venezuela’s Socialist Vision in Shambles**\
+`After years of extreme scarcity, some Venezuelans lead lives of luxury as others scrape by. The nation of grinding scarcity has increasingly become one of haves and have-nots.`\
+https://nytimes.com/2023/03/21/world/americas/venezuela-economy-wealth-gap.html?searchResultPosition=2
 
-**Comer, Republicans’ Investigative Chief, Embraces Role of Biden Antagonist**\
-`The fourth-term Kentuckian and chairman of the House Oversight and Accountability Committee has become an aggressive promoter of sinister-sounding claims about the president and his family.`\
-https://nytimes.com/2023/03/21/us/politics/james-comer-republican-oversight-biden.html?searchResultPosition=3
+**In Seattle, a Grocery Store Becomes a Live-Work Space**\
+`When two artists bought the vacant building, it was ‘grim and creepy.’ Now it’s not only a home — it’s a communal arts space.`\
+https://nytimes.com/slideshow/2023/03/21/realestate/in-seattle-a-grocery-store-becomes-a-live-work-space.html?searchResultPosition=3
 
-**‘We Were Helpless’: Despair at the C.D.C. as the Pandemic Erupted**\
-`Current and former employees recall rising desperation as Trump administration officials squelched research into the new coronavirus.`\
-https://nytimes.com/2023/03/21/health/covid-cdc.html?searchResultPosition=4
+**Following a Folk Tale Through the Himalayas**\
+`On a trip through northern India, a writer was guided by the age-old epic story of “Rajula Malushahi,” which led him to a series of unexpected places.`\
+https://nytimes.com/2023/03/21/travel/himalayas-folk-tale-rajula-malushahi.html?searchResultPosition=4
 
-**A Music Newsletter Offers an ‘Alternative to the Algorithm’**\
-`Lindsay Zoladz, a pop music critic for The Times, cuts through the noise with The Amplifier, a newsletter that harks back to the days of mixtapes.`\
-https://nytimes.com/2023/03/21/insider/amplifier-newsletter.html?searchResultPosition=5
+**As War in Ukraine Grinds on, China Helps Refill Russian Drone Supplies**\
+`China has shipped more than $12 million in drones to Russia since it invaded Ukraine, in an indication of quiet collaboration between the two.`\
+https://nytimes.com/2023/03/21/business/russia-china-drones-ukraine-war.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/03/21/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**Strains Emerge Inside the Union That Beat Amazon**\
+`Nearly a year after its victory on Staten Island, the Amazon Labor Union is grappling with election losses and internal conflict.`\
+https://nytimes.com/2023/03/21/business/amazon-labor-union.html?searchResultPosition=6
 
-**Spring Books**\
-`What are you reading for fun right now?`\
-https://nytimes.com/2023/03/21/learning/spring-books.html?searchResultPosition=7
+**Mike Pence Is Still Afraid of Trump**\
+`And he is not alone among Republican presidential aspirants.`\
+https://nytimes.com/2023/03/21/opinion/mike-pence-donald-trump-indictment.html?searchResultPosition=7
 
-**Japan’s Prime Minister Becomes Latest G7 Leader to Visit Ukraine**\
-`Fumio Kishida, who has been seeking a more active role for his country in international affairs, made an unannounced trip to meet with Ukraine’s president.`\
-https://nytimes.com/2023/03/21/world/europe/japan-kishida-ukraine.html?searchResultPosition=8
+**In T’s Spring Design Issue, Three Maximalist Homes Filled With Collections**\
+`It’s the objects in each of these spaces — as well as those in her own, T’s editor in chief writes — that bring the place to life.`\
+https://nytimes.com/2023/03/21/t-magazine/design-objects-home.html?searchResultPosition=8
 
-**Los Angeles Schools to Close Ahead of Employee Strike**\
-`The superintendent of the Los Angeles Unified School District announced that all classes would be canceled on Tuesday.`\
-https://nytimes.com/video/us/100000008822272/los-angeles-school-strike.html?searchResultPosition=9
+**The Age-Old Food Fight That Beats an Italian Town to a Pulp**\
+`Every winter, Ivrea erupts into a ferocious three-day festival where its citizens pelt one another with 900 tons of oranges. (Yes, oranges.)`\
+https://nytimes.com/2023/03/21/magazine/battle-oranges-italy.html?searchResultPosition=9
 
-**Jimmy Kimmel Celebrates ‘the Calm Before the Stormy’**\
-`Kimmel joked that indictments were “in the air” after former President Donald Trump said he expected to be arrested on Tuesday.`\
-https://nytimes.com/2023/03/21/arts/television/late-night-donald-trump-arrest.html?searchResultPosition=10
+**Unlikely Allies, They Spread the Gospel of Tree-Hugging**\
+`In “Guardians of the Valley,” Dean King chronicles the friendship between the naturalist John Muir and the journalist Robert Underwood Johnson.`\
+https://nytimes.com/2023/03/21/books/review/guardians-of-the-valley-dean-king.html?searchResultPosition=10
 
