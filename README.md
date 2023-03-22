@@ -22,19 +22,19 @@ https://nytimes.com/2023/03/22/health/medicare-insurance-fraud.html?searchResult
 `President Vladimir V. Putin of Russia falsely claimed the material had a “nuclear component.” Many armies, including Russia’s, use it in weapons.`\
 https://nytimes.com/2023/03/22/world/europe/uk-depleted-uranium-putin-ukraine.html?searchResultPosition=6
 
+**Political leaders are keeping a low profile on the school labor dispute.**\
+`The mayor of Los Angeles, Karen Bass, has avoided taking sides over the three-day Los Angeles Unified School District strike, and California’s governor, Gavin Newsom, has not intervened.`\
+https://nytimes.com/2023/03/22/us/politicians-la-school-strike.html?searchResultPosition=7
+
 **‘The Mandalorian’ Season 3, Episode 4 Recap: Out of the Nest**\
 `This week filled in some of Baby Yoda’s back story and offered yet another thrilling aerial chase. Then another.`\
-https://nytimes.com/2023/03/22/arts/television/the-mandalorian-season-3-episode-4-recap.html?searchResultPosition=7
+https://nytimes.com/2023/03/22/arts/television/the-mandalorian-season-3-episode-4-recap.html?searchResultPosition=8
 
 **Track Covid-19 in Places Important to You**\
 `Build your own dashboard to track the virus in places across the United States.`\
-https://nytimes.com/interactive/2023/us/covid-personalized-tracker.html?searchResultPosition=8
+https://nytimes.com/interactive/2023/us/covid-personalized-tracker.html?searchResultPosition=9
 
 **Track Covid-19 in the U.S.**\
 `Track the virus in your area, and get the latest state and county data on hospitalizations, cases, deaths, tests and vaccinations.`\
-https://nytimes.com/interactive/2023/us/covid-cases.html?searchResultPosition=9
-
-**On Paris Streets, Anti-Macron Protests Take On a Hint of Menace**\
-`Peaceful solidarity alternates with the threat of violence, and all of France waits to see which way the standoff will turn.`\
-https://nytimes.com/2023/03/22/world/europe/protesters-france-paris-macron.html?searchResultPosition=10
+https://nytimes.com/interactive/2023/us/covid-cases.html?searchResultPosition=10
 
