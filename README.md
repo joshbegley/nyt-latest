@@ -1,40 +1,40 @@
-**Rescuers Work to Save Dolphins in New Jersey**\
-`Despite the crew’s efforts to soak the animals with ocean water, all eight dolphins died after beaching themselves in Sea Isle City, N.J.`\
-https://nytimes.com/video/us/100000008824242/dolphins-dead-new-jersey-shore.html?searchResultPosition=1
+**At Al Aqsa Mosque, Shards of Stained Glass Tell a Story of Conflict**\
+`Artisans at the contested Jerusalem holy site, known to Jews as the Temple Mount, complain of Israeli interference with their work and face a constant struggle to keep up with repairs after violence flares.`\
+https://nytimes.com/2023/03/22/world/middleeast/aqsa-mosque-jerusalem.html?searchResultPosition=1
 
-**U.K. Inflation Swings Upward, in a U-Turn**\
-`Prices in Britain reversed a recent downward trend, rising by 10.4 percent in the year through February.`\
-https://nytimes.com/2023/03/22/business/uk-inflation-february.html?searchResultPosition=2
+**A Century of Mexican Creativity at Art Basel Hong Kong**\
+`Think of Proyectos Monclova’s booth as a well-curated dive into art history, showing the titans of Mexican Modernism alongside the superstars of today.`\
+https://nytimes.com/2023/03/22/arts/design/proyectos-monclova-art-basel-hong-kong.html?searchResultPosition=2
 
-**In Duluth, Real Estate Collides With Climate**\
-`More Americans are uprooting their lives for safer climates. That sent one Times real estate reporter to the Upper Midwest.`\
-https://nytimes.com/2023/03/22/reader-center/in-duluth-real-estate-collides-with-climate.html?searchResultPosition=3
+**‘Camelot,’ Beloved but Befuddling, Gets the Aaron Sorkin Treatment**\
+`The Golden Age musical is back on Broadway, with a new take by one of the nation’s great screenwriters. Walk with us.`\
+https://nytimes.com/2023/03/22/theater/aaron-sorkin-camelot-broadway.html?searchResultPosition=3
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/03/22/crosswords/spelling-bee-forum.html?searchResultPosition=4
+**This 835-Year-Old English Manor Needs Some Modern Love**\
+`Tim and Sue Soar have toiled for decades to maintain their medieval estate and not go broke. They can’t take it much longer. But will it sell?`\
+https://nytimes.com/2023/03/22/realestate/medieval-manor-england-buckinghamshire.html?searchResultPosition=4
 
-**Spring’s Arrival**\
-`What do you like and dislike about the season?`\
-https://nytimes.com/2023/03/22/learning/springs-arrival.html?searchResultPosition=5
+**As Chatbots Spread, Conservatives Dream About a Right-Wing Response**\
+`After criticizing A.I. companies for liberal bias, programmers started envisioning right-wing alternatives, making chatbots a new front in the culture wars.`\
+https://nytimes.com/2023/03/22/business/media/ai-chatbots-right-wing-conservative.html?searchResultPosition=5
 
-**Climate Protesters Demand Action From Banks**\
-`Activists, many of them senior, sat in rocking chairs and cut up credit cards to protest banks that have invested in oil and gas.`\
-https://nytimes.com/video/us/100000008824213/climate-change-protests-oil-banks.html?searchResultPosition=6
+**Turing Award Won by Co-Inventor of Ethernet Technology**\
+`In the 1970s, Bob Metcalfe helped develop the primary technology that lets you send email or connect with a printer over an office network.`\
+https://nytimes.com/2023/03/22/technology/turing-award-bob-metcalfe-ethernet.html?searchResultPosition=6
 
-**Late Night Is Getting Antsy for a Trump Indictment**\
-`The former president was not charged Tuesday, as he predicted. “Right now in Times Square, Anderson Cooper and Andy Cohen are hosting the indictment countdown,” Jimmy Fallon said.`\
-https://nytimes.com/2023/03/22/arts/television/late-night-trump-charges.html?searchResultPosition=7
+**I’m Lost All the Time. So I Went on a Labyrinth Vacation.**\
+`The dizzying joys of maze tourism, in Barcelona, Paris and Chenonceaux.`\
+https://nytimes.com/2023/03/22/magazine/maze-tourism.html?searchResultPosition=7
 
-**Word of the Day: flail**\
-`This word has appeared in 15 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/03/22/learning/word-of-the-day-flail.html?searchResultPosition=8
+**An Independent Barbados**\
+`The country recently declared itself a republic and there’s a new energy on the Caribbean island. Rum shops, farmers’ markets and surf breaks are there to be found if you venture beyond the resorts of the island’s west coast.`\
+https://nytimes.com/2023/03/22/travel/independent-barbados.html?searchResultPosition=8
 
-**China Approves an mRNA Covid Vaccine, Its First**\
-`The homegrown shot is a crucial tool that China has been lacking — a vaccine based on a technology considered among the most effective the world has to offer.`\
-https://nytimes.com/2023/03/22/business/china-mrna-covid-vaccine.html?searchResultPosition=9
+**As Haiti’s Police Retreat, Gangs Take Over Much of the Capital**\
+`Even wealthier areas in the capital, Port-au-Prince, are no longer immune to violence as gangs attack police officers and destroy police stations.`\
+https://nytimes.com/2023/03/22/world/americas/haiti-police-gang-violence.html?searchResultPosition=9
 
-**Your Wednesday Briefing**\
-`Closer ties between Russia and China.`\
-https://nytimes.com/2023/03/22/briefing/china-russia-federal-reserve.html?searchResultPosition=10
+**Bank Crisis Could Cast Pall Over Commercial Real Estate Market**\
+`The market hadn’t fully rebounded from the pandemic. Some worry that another slowdown could add to fears of a recession.`\
+https://nytimes.com/2023/03/22/business/svb-signature-commercial-real-estate.html?searchResultPosition=10
 
