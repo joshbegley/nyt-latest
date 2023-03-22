@@ -1,6 +1,6 @@
 **8 Dolphins Dead After Washing Ashore in New Jersey**\
 `It was the latest instance of marine mammals being found dead on the state’s beaches, raising concerns among residents over what might be the cause.`\
-https://nytimes.com/2023/03/22/us/dolphins-dead-new-jersey-shore.html?searchResultPosition=1
+https://nytimes.com/2023/03/22/nyregion/dolphins-dead-new-jersey-shore.html?searchResultPosition=1
 
 **Barney Frank on His Role in the Banking Crisis**\
 `Looser financial requirements contributed to the failure of Signature and Silicon Valley banks. And one of the rules’ creators supported loosening them.`\
