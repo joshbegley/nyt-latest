@@ -23,7 +23,7 @@ https://nytimes.com/2023/03/22/business/dealbook/credit-suisses-investment-bank.
 https://nytimes.com/interactive/2023/03/22/world/europe/kyiv-pechersk-lavra-ukraine-war.html?searchResultPosition=6
 
 **Love in Three Dimensions**\
-`Alice Oseman on bringing her viral webcomic, “Heartstopper”, to life.`\
+`Alice Oseman on bringing her viral webcomic, “Heartstopper,” to life.`\
 https://nytimes.com/interactive/2023/03/22/books/heartstopper-adaptation.html?searchResultPosition=7
 
 **The Designer Marco De Vincenzo’s Inspirations, and Obsessions, in Pictures**\
