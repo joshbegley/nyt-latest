@@ -1,40 +1,40 @@
+**Uganda Passes Strict Anti-Gay Bill That Imposes Death Penalty for Some**\
+`The legislation, which now goes to the president, also calls for life in prison for anyone engaging in gay sex. Policies to stifle gay rights have been on the rise in several African nations.`\
+https://nytimes.com/2023/03/22/world/africa/uganda-lgtbq-anti-gay-law.html?searchResultPosition=1
+
+**A Pouf for Every Living Room**\
+`The eternally useful furniture piece is available in new, unusually pleasing forms.`\
+https://nytimes.com/2023/03/22/t-magazine/poufs-ottomans-living-room-furniture.html?searchResultPosition=2
+
+**A Stage Adaptation of ‘Smash’ Is Setting Its Sights on Broadway**\
+`Producers including Steven Spielberg have been exploring several possible incarnations of the decade-old TV series. Now they have a plan.`\
+https://nytimes.com/2023/03/22/theater/smash-broadway.html?searchResultPosition=3
+
+**Behind the Story: Can U.F.W. Make a Comeback?**\
+`The United Farm Workers union hopes a California law can help it regain lost influence.`\
+https://nytimes.com/2023/03/22/us/behind-the-story-can-ufw-make-a-comeback.html?searchResultPosition=4
+
+**My New Boyfriend Offered to Pay Off My Credit Card Debt. Help!**\
+`A reader doing battle with 25 percent annual interest is tempted by her boyfriend’s offer of an interest-free loan, but she worries it may be inappropriate to accept.`\
+https://nytimes.com/2023/03/22/style/new-relationship-loan.html?searchResultPosition=5
+
+**The A.I. Chatbots Have Arrived. Time to Talk to Your Kids.**\
+`Artificial intelligence can make adults nervous, but experts say exploring it as a family is the best way to understand its pros and cons.`\
+https://nytimes.com/2023/03/22/well/family/ai-chatgpt-parents-children.html?searchResultPosition=6
+
 **A 90-Year-Old Tortoise Named Mr. Pickles Is a New Dad of Three**\
 `The radiated tortoise is the oldest animal at the Houston Zoo. He has been with his partner, Mrs. Pickles, since she arrived in 1996. The mom and hatchlings are doing fine.`\
-https://nytimes.com/2023/03/22/us/houston-zoo-tortoise-babies.html?searchResultPosition=1
+https://nytimes.com/2023/03/22/us/houston-zoo-tortoise-babies.html?searchResultPosition=7
 
 **In a Brother Act with Putin, Xi Reveals China’s Fear of Containment**\
 `Instead of focusing on a solution to the war in Ukraine, the Chinese leader’s visit to Moscow reinforced China and Russia’s shared opposition to American dominance.`\
-https://nytimes.com/2023/03/22/world/asia/china-xi-putin-ukraine.html?searchResultPosition=2
+https://nytimes.com/2023/03/22/world/asia/china-xi-putin-ukraine.html?searchResultPosition=8
 
 **Not Your Daddy’s Freud**\
 `A new generation of analysts and patients are embracing the father of psychoanalysis – in magazines and memes and many hours on the couch.`\
-https://nytimes.com/2023/03/22/style/freud-psychoanalysis.html?searchResultPosition=3
+https://nytimes.com/2023/03/22/style/freud-psychoanalysis.html?searchResultPosition=9
 
 **John Wick Sure Has a Lot of Friends for a Lone Assassin**\
 `How does a taciturn solo killer have so many pals? The films’ creators can’t really explain, but each character has a raison d’être in this world.`\
-https://nytimes.com/2023/03/22/movies/john-wick-friends.html?searchResultPosition=4
-
-**$250,000 Homes in Wisconsin, Pennsylvania and Alabama**\
-`A Craftsman bungalow in Kaukauna, a rowhouse in Philadelphia and a midcentury ranch house in Florence.`\
-https://nytimes.com/2023/03/22/realestate/home-prices-wisconsin-pennsylvania-alabama.html?searchResultPosition=5
-
-**Credit Suisse’s Investment Bank Is Slowly Disappearing**\
-`UBS is weighing whether and how to end a deal that would have preserved most of its rival’s investment bank, as part of its takeover of the ailing Swiss lender.`\
-https://nytimes.com/2023/03/22/business/dealbook/credit-suisses-investment-bank.html?searchResultPosition=6
-
-**The Latest in the Battle for Ukraine’s Orthodox Church**\
-`A war-fueled rift between the living clerics loyal to Moscow and those loyal to Kyiv is coming to a head.`\
-https://nytimes.com/interactive/2023/03/22/world/europe/kyiv-pechersk-lavra-ukraine-war.html?searchResultPosition=7
-
-**Love in Three Dimensions**\
-`Alice Oseman on bringing her viral webcomic, “Heartstopper,” to life.`\
-https://nytimes.com/interactive/2023/03/22/books/heartstopper-adaptation.html?searchResultPosition=8
-
-**The Designer Marco De Vincenzo’s Inspirations, and Obsessions, in Pictures**\
-`The new creative director of Etro shares his favorite flea-market finds, and a few creations of his own.`\
-https://nytimes.com/2023/03/22/t-magazine/marco-de-vincenzo.html?searchResultPosition=9
-
-**Abel Prize Goes to Mathematician Who Studied Equations That Describe Nature**\
-`The honor, like a Nobel Prize for mathematics, was given this year to Luis Caffarelli for his work on partial differential equations.`\
-https://nytimes.com/2023/03/22/science/abel-prize-math-luis-caffarelli.html?searchResultPosition=10
+https://nytimes.com/2023/03/22/movies/john-wick-friends.html?searchResultPosition=10
 
