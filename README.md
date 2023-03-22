@@ -14,9 +14,9 @@ https://nytimes.com/2023/03/22/podcasts/modern-love-mother-cancer-gay.html?searc
 `His work helped break down the chemical structures of THC, the psychoactive compound in marijuana, to figure out how cannabis makes users high.`\
 https://nytimes.com/2023/03/22/science/raphael-mechoulam-dead.html?searchResultPosition=4
 
-**Takeaways from a big day for the Fed.**\
-`By Jeanna Smialek`\
-https://nytimes.com/2023/03/22/business/takeaways-from-a-big-day-for-the-fed.html?searchResultPosition=5
+**Seven takeaways from a big day for the Fed.**\
+`By raising interest rates a quarter-point, the Federal Reserve signaled that it was continuing to fight inflation, but it was holding off an aggressive move that might spook investors.`\
+https://nytimes.com/2023/03/22/business/fed-powell-takeaways.html?searchResultPosition=5
 
 **The Inevitability of Ice Spice**\
 `A conversation about the ubiquitous Bronx rapper’s rise, and her boosts from the meme universe.`\
