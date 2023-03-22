@@ -4,7 +4,7 @@ https://nytimes.com/2023/03/22/world/asia/china-xi-putin-ukraine.html?searchResu
 
 **Not Your Daddy’s Freud**\
 `A new generation of analysts and patients are embracing the father of psychoanalysis – in magazines and memes and many hours on the couch.`\
-https://nytimes.com/2023/03/22/style/not-your-daddys-freud.html?searchResultPosition=2
+https://nytimes.com/2023/03/22/style/freud-psychoanalysis.html?searchResultPosition=2
 
 **John Wick Sure Has a Lot of Friends for a Lone Assassin**\
 `How does a taciturn solo killer have so many pals? The films’ creators can’t really explain, but each character has a raison d’être in this world.`\
