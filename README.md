@@ -14,7 +14,7 @@ https://nytimes.com/interactive/2023/us/covid-cases.html?searchResultPosition=3
 `Peaceful solidarity alternates with the threat of violence, and all of France waits to see which way the standoff will turn.`\
 https://nytimes.com/2023/03/22/world/europe/protesters-france-paris-macron.html?searchResultPosition=4
 
-**U.K. Lawmakers Approve Key Measure of N. Ireland Trade Deal**\
+**U.K. Lawmakers Approve Key Measure of Northern Ireland Trade Deal**\
 `An important element of the agreement known as the Windsor Framework, a Brexit provision negotiated with the European Union, was roundly endorsed in the British Parliament.`\
 https://nytimes.com/2023/03/22/world/europe/uk-brexit-stormont-brake.html?searchResultPosition=5
 
