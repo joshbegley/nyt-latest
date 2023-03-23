@@ -1,4 +1,4 @@
-**Ukranian Author Andrey Kurkov Among National Book Critics Circle Award Winners**\
+**Ukrainian Author Andrey Kurkov Among National Book Critics Circle Award Winners**\
 `A collection of fantastical short stories and a book of poems about escaping capitalist society were also among the 2022 winners.`\
 https://nytimes.com/2023/03/23/books/national-book-critics-circle-award-2023.html?searchResultPosition=1
 
