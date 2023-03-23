@@ -36,5 +36,5 @@ https://nytimes.com/2023/03/23/realestate/bespoke-real-estate-racial-discriminat
 
 **With Beijing opposing a TikTok sale, the Biden administration’s options narrow.**\
 `If the White House can’t force a sale, that would effectively leave it with two options to resolve concerns about the company.`\
-https://nytimes.com/2023/03/23/technology/with-beijing-opposing-a-tiktok-sale-the-biden-administrations-options-narrow.html?searchResultPosition=10
+https://nytimes.com/2023/03/23/technology/china-tiktok-sale-biden.html?searchResultPosition=10
 
