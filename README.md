@@ -26,13 +26,13 @@ https://nytimes.com/2023/03/22/theater/the-hunting-gun-review.html?searchResultP
 `We are called to endure what I call the inconvenience of the necessary, a point at which something is morally right, but the political timing is problematic.`\
 https://nytimes.com/2023/03/22/opinion/trump-indictment.html?searchResultPosition=7
 
-**Can’t Read? Here’s a ‘Barefoot College’ for You.**\
-`This is a campus that trains even illiterate people in job skills, while messing with people’s heads.`\
-https://nytimes.com/2023/03/22/opinion/india-barefoot-college.html?searchResultPosition=8
-
 **Centuries of Stargazing Leave Jesuit Names Written in the Heavens**\
 `The latest list of approved labels for asteroids includes nods to three more scholars of the order, as well as a pope, challenging the idea that science and religion make awkward partners.`\
-https://nytimes.com/2023/03/22/world/europe/asteroid-names-jesuits.html?searchResultPosition=9
+https://nytimes.com/2023/03/22/world/europe/asteroid-names-jesuits.html?searchResultPosition=8
+
+**Can’t Read? Here’s a ‘Barefoot College’ for You.**\
+`This is a campus that trains even illiterate people in job skills, while messing with people’s heads.`\
+https://nytimes.com/2023/03/22/opinion/india-barefoot-college.html?searchResultPosition=9
 
 **Zelensky Makes Morale-Boosting Trip to Bakhmut**\
 `The Ukrainian leader also condemned a deadly Russian missile attack against an apartment building in Zaporizhzhia.`\
