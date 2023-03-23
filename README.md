@@ -15,7 +15,7 @@ https://nytimes.com/2023/03/23/business/utah-social-media-law-tiktok-instagram.h
 https://nytimes.com/2023/03/23/dining/pineapple-ham-recipes.html?searchResultPosition=4
 
 **U.S. and Canada Reach an Agreement on Turning Away Asylum Seekers**\
-`The deal allows both countries to turn away people who cross their borders without authorization at a time when migration has surged.`\
+`The deal allows both countries to turn back people who cross their borders without authorization at a time when migration has surged.`\
 https://nytimes.com/2023/03/23/us/politics/us-canada-asylum-seekers.html?searchResultPosition=5
 
 **Your Friday Briefing: U.S. Lawmakers Blast TikTok’s C.E.O.**\
