@@ -1,40 +1,40 @@
+**A New Trio of Watches That Honors Breitling’s Founding Family**\
+`Each timepiece is named after the brand’s patriarchs, spanning three generations of craftsmen.`\
+https://nytimes.com/2023/03/23/t-magazine/breitling-premier-watch.html?searchResultPosition=1
+
+**‘Reggie’ Review: Reggie Jackson on Himself, Racism and, Yes, Baseball**\
+`Jackson, a.k.a. Mr. October, was called a lot of things during his storied career with the Yankees. A new documentary goes beyond the nicknames.`\
+https://nytimes.com/2023/03/23/movies/reggie-review.html?searchResultPosition=2
+
+**‘Ithaka’ Review: In Julian Assange They Trust**\
+`A frustrating new advocacy documentary about the WikiLeaks founder, with appearances by his father and wife, loses its footing on weak assertions and reporting.`\
+https://nytimes.com/2023/03/23/movies/ithaka-review.html?searchResultPosition=3
+
+**‘Walk Up’ Review: Good Friends Make Bad Neighbors**\
+`Hong Sang-soo’s latest film traces the relationships in a small Seoul apartment building as they evolve and grow heavier with complications.`\
+https://nytimes.com/2023/03/23/movies/walk-up-review.html?searchResultPosition=4
+
+**‘A Good Person’ Review: Zach Braff’s New Chapter**\
+`The filmmaker behind “Garden State” has created a fully drawn female character in Florence Pugh’s grieving addict. But this recovery drama often has too heavy a hand.`\
+https://nytimes.com/2023/03/23/movies/a-good-person-review-zach-braff.html?searchResultPosition=5
+
+**‘Nam June Paik: Moon Is the Oldest TV’ Review: Art Onscreen**\
+`A new documentary follows the ceaseless innovations of a man who made art out of television sets and found inspiration in disruption.`\
+https://nytimes.com/2023/03/23/movies/nam-june-paik-moon-is-the-oldest-tv-review.html?searchResultPosition=6
+
+**‘The Lost King’ Review: A Royal Obsession**\
+`Sally Hawkins lights a fire under this droll dramedy about the search for the final resting place of Richard III.`\
+https://nytimes.com/2023/03/23/movies/the-lost-king-review.html?searchResultPosition=7
+
+**‘What the Hell Happened to Blood, Sweat & Tears?’ Review: What Goes Up**\
+`The rise and fall of a classic-rock band is chronicled (shakily) in this documentary.`\
+https://nytimes.com/2023/03/23/movies/what-the-hell-happened-to-blood-sweat-tears-review.html?searchResultPosition=8
+
+**‘The Five Devils’ Review: The Scent of the Past**\
+`Part queer love story, part supernatural psychodrama, the uncanny second feature by Léa Mysius follows a young girl with a magical sense of smell.`\
+https://nytimes.com/2023/03/23/movies/the-five-devils-review.html?searchResultPosition=9
+
 **The Threat of TikTok**\
 `U.S. officials say TikTok is a national security risk. They’re trying to turn it into their advantage.`\
-https://nytimes.com/2023/03/23/briefing/tiktok-hearing-ban.html?searchResultPosition=1
-
-**Leader of Indian Party Opposing Modi Is Sentenced in Defamation Case**\
-`Rahul Gandhi, who leads the main opposition party, received a two-year sentence after making a comment in 2019 criticizing Prime Minister Narendra Modi.`\
-https://nytimes.com/2023/03/23/world/asia/india-gandhi-modi-defamation.html?searchResultPosition=2
-
-**Our Film Critic on Why He’s Done With the Movies**\
-`A.O. Scott discusses how American cinema has evolved over his 23 years at The New York Times.`\
-https://nytimes.com/2023/03/23/podcasts/the-daily/ao-scott-film-critic-american-cinema-movies.html?searchResultPosition=3
-
-**Vocabulary in Context: Invasive Pythons**\
-`Test your vocabulary and reading comprehension with this quiz based on the Times article “Pythons, Invasive and Hungry, Are Making Their Way North in Florida.”`\
-https://nytimes.com/interactive/2023/03/23/learning/PythonsVocabularyQuiz.html?searchResultPosition=4
-
-**China’s Rise Relied on Ties to the West, Which Xi Is Now Loosening**\
-`The Chinese leader has edged ever closer to Russia, while distancing China from countries that have helped it develop over the past four decades.`\
-https://nytimes.com/2023/03/23/business/china-xi-jinping-russia-putin.html?searchResultPosition=5
-
-**An Interior Designer Creates a Sea of Tranquillity in Greenwich Village**\
-`In his compact walk-up, Nicholas Obeid combines objects of his own design and flea-market finds to create an escape from the city below.`\
-https://nytimes.com/2023/03/23/t-magazine/nicholas-obeid-greenwich-village.html?searchResultPosition=6
-
-**Migration Tops Agenda as Biden Visits Canada**\
-`As migration has swelled at Canada’s border, the country is seeking a renegotiation of an agreement with the United States that binds it to accept asylum seekers at unofficial crossing points.`\
-https://nytimes.com/2023/03/23/world/canada/biden-migration.html?searchResultPosition=7
-
-**Along the Volta, African Commandos Train to Battle Terrorists by Land and Sea**\
-`As terrorists move south through the Sahel, the Pentagon’s annual Flintlock exercise reinforced the rule of law in a region roiled by coups.`\
-https://nytimes.com/2023/03/23/us/terrorism-africa-commandos-flintlock.html?searchResultPosition=8
-
-**N.F.L. Teams Are Bullish on Cornerbacks and Bearish on Running Backs**\
-`Recent off-season deals also show that trades are hot, free-agent signings are not, and “bridge quarterback” is one of the greatest jobs ever.`\
-https://nytimes.com/2023/03/23/sports/football/nfl-free-agents.html?searchResultPosition=9
-
-**The South Carolina Player Taking Basketball to Girls in West Africa**\
-`“I’ve never coached anybody that comes with that much determination,” Coach Dawn Staley said of Laeticia Amihere.`\
-https://nytimes.com/2023/03/23/sports/ncaabasketball/south-carolina-laeticia-amihere.html?searchResultPosition=10
+https://nytimes.com/2023/03/23/briefing/tiktok-hearing-ban.html?searchResultPosition=10
 
