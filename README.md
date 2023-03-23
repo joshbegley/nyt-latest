@@ -2,7 +2,7 @@
 `Edging out Miss USA, Ms. Malaret — who was also the first winner from the Caribbean — brokered her fame to become a television host and magazine editor back home.`\
 https://nytimes.com/2023/03/23/us/marisol-malaret-dead.html?searchResultPosition=1
 
-**ISIS Matchmaker Sentenced to 18 Years for Backing Terrorism**\
+**ISIS Matchmaker Gets 18 Years in First Trial Under N.Y. Terrorism Law**\
 `Abdullah el-Faisal, a Jamaican cleric, was the first person to face a jury under state terrorism laws passed after Sept. 11. He was not in the city when he committed his crimes.`\
 https://nytimes.com/2023/03/23/nyregion/abdullah-el-faisal-sentenced.html?searchResultPosition=2
 
