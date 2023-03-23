@@ -1,5 +1,5 @@
-**Officers Grapple With Irvo Otieno in His Jail Cell**\
-`Surveillance video shows a group of sheriff’s deputies rushing into Irvo Otieno’s jail cell and tackling him hours before his death.`\
+**Officers Tackle Irvo Otieno in His Jail Cell**\
+`Surveillance video shows a group of sheriff’s deputies rushing into Irvo Otieno’s jail cell and overpowering him hours before his death.`\
 https://nytimes.com/video/us/100000008826127/irvo-otieno-jail-videos.html?searchResultPosition=1
 
 **Your Thursday Briefing**\
