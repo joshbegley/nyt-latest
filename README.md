@@ -6,7 +6,7 @@ https://nytimes.com/2023/03/23/briefing/trump-legal-bakhmut-boris-johnson.html?s
 `Terran 1, which has nine 3-D printed engines, experienced an “anomaly” shortly after takeoff.`\
 https://nytimes.com/video/science/space/100000008826042/relativity-space-launch-terran.html?searchResultPosition=2
 
-**New Video Shows Virginia Officers Overpowering and Punching Irvo Otieno Outside Jail Cell**\
+**New Video Shows Virginia Officers Overpowering and Punching Irvo Otieno in Jail Cell**\
 `The video was recorded several hours before previously released footage, which showed seven sheriff’s deputies pinning Mr. Otieno down for more than 11 minutes.`\
 https://nytimes.com/2023/03/23/us/irvo-otieno-videos-virginia.html?searchResultPosition=3
 
