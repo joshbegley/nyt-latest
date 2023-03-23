@@ -10,7 +10,7 @@ https://nytimes.com/2023/03/23/health/autism-children-diagnosis.html?searchResul
 `Carrots, beets and sweet potatoes make subtly sweet and vibrant treats.`\
 https://nytimes.com/2023/03/23/dining/yes-vegetables-for-dessert.html?searchResultPosition=3
 
-**Ja Morant Says He Wants ‘Redemption’ After Gun Video**\
+**Ja Morant Moves Toward ‘Redemption’ After Gun Video**\
 `Back from an eight-game suspension, the Memphis Grizzlies guard said he had more work to do to improve himself. But there was also a hint of defiance in his approach.`\
 https://nytimes.com/2023/03/23/sports/basketball/ja-morant-memphis-grizzlies.html?searchResultPosition=4
 
