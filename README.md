@@ -1,40 +1,40 @@
-**Australian Prime Minister’s Emotional Reaction to Referendum**\
-`The Voice to Parliament would enshrine in the Constitution a body to advise the government on Indigenous issues.`\
-https://nytimes.com/video/world/australia/100000008826202/voice-to-parliament-referendum.html?searchResultPosition=1
+**An Interior Designer Creates a Sea of Tranquillity in Greenwich Village**\
+`In his compact walk-up, Nicholas Obeid combines objects of his own design and flea-market finds to create an escape from the city below.`\
+https://nytimes.com/2023/03/23/t-magazine/nicholas-obeid-greenwich-village.html?searchResultPosition=1
 
-**Bank of England to Weigh a Rate Increase After a Jump in Inflation**\
-`As policymakers assess an inflation rate that persists in double digits, as well as risks in the banking sector, analysts predict a quarter-point increase.`\
-https://nytimes.com/2023/03/23/business/bank-of-england-rates-inflation.html?searchResultPosition=2
+**Along the Volta, African Commandos Train to Battle Terrorists by Land and Sea**\
+`As terrorists move south through the Sahel, the Pentagon’s annual Flintlock exercise reinforced the rule of law in a region roiled by coups.`\
+https://nytimes.com/2023/03/23/us/terrorism-africa-commandos-flintlock.html?searchResultPosition=2
 
-**$20,000 Pants … and Other Adventures in Men’s Luxury Resale!**\
-`Late-night appointments with Offset and Cardi B! Trading Rick Owens for Balenciaga! The secondhand trade in upmarket men’s wear is booming.`\
-https://nytimes.com/2023/03/23/style/mens-fashion-resale-20000-pants-and-other-adventures-in-mens-luxury-resale.html?searchResultPosition=3
+**N.F.L. Teams Are Bullish on Cornerbacks and Bearish on Running Backs**\
+`Recent off-season deals also show that trades are hot, free-agent signings are not, and “bridge quarterback” is one of the greatest jobs ever.`\
+https://nytimes.com/2023/03/23/sports/football/nfl-free-agents.html?searchResultPosition=3
 
-**TikTok Claims It’s Limiting Teen Screen Time. Teens Say It Isn’t.**\
-`This month, the company announced a new 60-minute “daily screen time limit” for users under 18. But for most young users, staying on the app takes just a few taps.`\
-https://nytimes.com/2023/03/23/business/tiktok-screen-time.html?searchResultPosition=4
+**Migration Tops Agenda as Biden Visits Canada**\
+`As migration has swelled at Canada’s border, the country is seeking a renegotiation of an agreement with the United States that binds it to accept asylum seekers at unofficial crossing points.`\
+https://nytimes.com/2023/03/23/world/canada/biden-migration.html?searchResultPosition=4
 
-**Poverty**\
-`What do you think this image is communicating?`\
-https://nytimes.com/2023/03/23/learning/poverty.html?searchResultPosition=5
+**The South Carolina Player Taking Basketball to Girls in West Africa**\
+`“I’ve never coached anybody that comes with that much determination,” Coach Dawn Staley said of Laeticia Amihere.`\
+https://nytimes.com/2023/03/23/sports/ncaabasketball/south-carolina-laeticia-amihere.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/03/23/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**‘Give Me an Abrams!’ Ukrainian Tank Commanders Grow Impatient.**\
+`For now, they are holding on with inferior Soviet-era tanks, but relish the idea of taking on the Russians with modern Western battle tanks.`\
+https://nytimes.com/2023/03/23/world/europe/ukraine-tanks-abrams-russia.html?searchResultPosition=6
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: contains spoilers!`\
-https://nytimes.com/2023/03/23/crosswords/wordle-review-answer-642.html?searchResultPosition=7
+**Homes for Sale in New York and New Jersey**\
+`This week’s homes are a five-bedroom in Larchmont, and a six-bedroom in Cherry Hill once owned by Muhammad Ali.`\
+https://nytimes.com/2023/03/23/realestate/housing-market-near-nyc.html?searchResultPosition=7
 
-**For Argentina’s Champions, Back to Work Means Back to Earth**\
-`Lionel Messi and his Argentina teammates have reunited for the first time. Most are finding a day job feels different after you’ve won the World Cup.`\
-https://nytimes.com/2023/03/23/sports/soccer/argentina-world-cup.html?searchResultPosition=8
+**Double-Barreled Economic Threat Puts Congress on Edge**\
+`Republicans and Democrats disagree over how recent bank closures should impact the debt limit stalemate, and have taken divergent lessons from past economic crises.`\
+https://nytimes.com/2023/03/23/us/politics/congress-republicans-banks-debt-limit.html?searchResultPosition=8
 
-**Late Night Awaits Donald Trump’s Perp Walk**\
-`Jimmy Kimmel joked that a grand jury “decided to push the hearing to tomorrow to give Trump supporters time to iron their Confederate flags.”`\
-https://nytimes.com/2023/03/23/arts/television/late-night-trump-arrest.html?searchResultPosition=9
+**What to Know About Today’s Congressional Hearing on TikTok**\
+`The Chinese-owned video app has become a battleground as the U.S. and China duel for tech leadership.`\
+https://nytimes.com/2023/03/23/technology/tiktok-congress-hearing.html?searchResultPosition=9
 
-**Norfolk Southern CEO Commits to Long-Term Help For East Palestine**\
-`The chief executive told Congress that the company is paying for temporary housing in hotels and plans to set up a medical fund and a property value assurance program.`\
-https://nytimes.com/video/us/politics/100000008826069/norfolk-southern-ceo-congress.html?searchResultPosition=10
+**Chatbot Start-Up Character.AI Valued at $1 Billion in New Funding Round**\
+`Founded by ex-Google employees, the Silicon Valley company is among the few start-ups poised to compete with OpenAI, the creator of ChatGPT.`\
+https://nytimes.com/2023/03/23/technology/chatbot-characterai-chatgpt-valuation.html?searchResultPosition=10
 
