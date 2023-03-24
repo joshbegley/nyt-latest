@@ -2,8 +2,8 @@
 `Plus: Roberto Lugo’s Afrocentric ceramics, wooden accessories and more from T’s cultural compendium.`\
 https://nytimes.com/2023/03/24/t-magazine/eric-tobua-headpieces.html?searchResultPosition=1
 
-**King Charles Postpones Trip to France Amid Unrest, French Presidency Says**\
-`France has been rocked by strikes and protests over the past week in response to a move by President Emmanuel Macron to push through an increase in the legal retirement age.`\
+**King Charles Postpones Trip to France Amid Unrest**\
+`The country has been rocked by strikes and protests over the past week in response to a move by President Emmanuel Macron to push through an increase in the legal retirement age.`\
 https://nytimes.com/2023/03/24/world/europe/france-king-charles-unrest.html?searchResultPosition=2
 
 **Israel’s Attorney General Says Netanyahu Broke Law With Judicial Intervention Pledge**\
