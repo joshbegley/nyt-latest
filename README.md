@@ -1,10 +1,10 @@
-**Greg Wittine, Once a Hero for Disabled Boy Scouts, Dies at 67**\
-`As a young man with cerebral palsy, he gained notice for his quest to be an Eagle Scout and changed Scouting. But his name had been mostly lost to popular memory.`\
-https://nytimes.com/2023/03/24/us/greg-wittine-dead.html?searchResultPosition=1
-
 **Biden Addresses Canadian Parliament**\
 `President Biden praised the close ties between the United States and Canada during his first official visit to the country since taking office.`\
-https://nytimes.com/video/us/politics/100000008828937/biden-canada-parliament-speech.html?searchResultPosition=2
+https://nytimes.com/video/us/politics/100000008828937/biden-canada-parliament-speech.html?searchResultPosition=1
+
+**Greg Wittine, Once a Hero for Disabled Boy Scouts, Dies at 67**\
+`As a young man with cerebral palsy, he gained notice for his quest to be an Eagle Scout and changed Scouting. But his name had been mostly lost to popular memory.`\
+https://nytimes.com/2023/03/24/us/greg-wittine-dead.html?searchResultPosition=2
 
 **Biden and Trudeau Announce Agreement on Asylum Seekers**\
 `The deal allows Canada to turn back asylum seekers entering from the United States, regardless of where they cross on the border. In turn, Canada agreed to accept 15,000 migrants from Central and South America who are fleeing persecution and poverty.`\
