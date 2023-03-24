@@ -1,6 +1,6 @@
 **U.S. Launches Airstrikes After a Drone Attack in Syria Kills American Contractor**\
 `The attacks are likely to stoke tensions with Iran, which Biden administration officials call the largest security threat in the Middle East.`\
-https://nytimes.com/2023/03/24/us/politics/us-launches-airstrikes-after-a-drone-attack-in-syria-kills-american-contractor.html?searchResultPosition=1
+https://nytimes.com/2023/03/24/us/politics/syria-us-contractor-killed-iran-drone.html?searchResultPosition=1
 
 **Rwanda Announces Release From Prison of ‘Hotel Rwanda’ Hero**\
 `Paul Rusesabagina, whose story inspired a Hollywood movie, was kidnapped by the Rwandan government and jailed. In a deal brokered by the U.S. and Qatar, he is to be set free.`\
