@@ -6,8 +6,8 @@ https://nytimes.com/2023/03/24/t-magazine/eric-tobua-headpieces.html?searchResul
 `France has been rocked by strikes and protests over the past week in response to a move by President Emmanuel Macron to push through an increase in the legal retirement age.`\
 https://nytimes.com/2023/03/24/world/europe/france-king-charles-unrest.html?searchResultPosition=2
 
-**Israel’s Attorney General Says Netanyahu Broke the Law With Judicial Intervention**\
-`Gali Baharav-Miara said that Prime Minister Benjamin Netanyahu created a conflict of interest by pushing for a judicial overhaul while on trial for corruption.`\
+**Israel’s Attorney General Says Netanyahu Broke Law With Judicial Intervention Pledge**\
+`Gali Baharav-Miara said Prime Minister Benjamin Netanyahu created a conflict of interest by saying he would become more involved in pushing for a judicial overhaul while on trial for corruption.`\
 https://nytimes.com/2023/03/24/world/middleeast/israel-netanyahu-judicial-overhaul.html?searchResultPosition=3
 
 **Free Speech (or Not) at Stanford**\
