@@ -1,40 +1,40 @@
-**Melbourne Art and Design, Past and Present**\
-`Two exhibitions in Melbourne — “Radical Utopia” and “Melbourne Now” — trace the city’s art and design from the 1980s to the present.`\
-https://nytimes.com/2023/03/23/world/australia/radical-utopia-melbourne-now.html?searchResultPosition=1
+**40 Years After Phi Slama Jama, There’s Hope in Houston for a Better Finish**\
+`The 1982-83 Houston Cougars, a sensation nicknamed Phi Slama Jama, lost the N.C.A.A. men’s title game to North Carolina State on a dunk in the final moments.`\
+https://nytimes.com/2023/03/24/sports/ncaabasketball/houston-phi-slama-jama.html?searchResultPosition=1
 
-**American Contractor Killed in Drone Attack on Base in Syria**\
-`Five service members and another U.S. contractor were wounded. The Pentagon said the drone was of “Iranian origin” and ordered airstrikes on facilities in Syria used by Iran-linked groups.`\
-https://nytimes.com/2023/03/23/us/politics/syria-drone-attack-us-base.html?searchResultPosition=2
+**‘Bad Cinderella’ Review: The Title Warned Us**\
+`Andrew Lloyd Webber hopes to extend an unbroken 43-year streak on Broadway. But his 13th new musical may not be the charm.`\
+https://nytimes.com/2023/03/24/theater/bad-cinderella-review-broadway.html?searchResultPosition=2
 
-**Quotation of Day: Tank Crews Impatient for New Gear From West**\
-`Quotation of the Day for Friday, March 24, 2023.`\
-https://nytimes.com/2023/03/23/pageoneplus/quotation-of-day-tank-crews-impatient-for-new-gear-from-west.html?searchResultPosition=3
+**They’re Desperation Heaves for Most Players. For Caitlin Clark, They’re Money.**\
+`Clark, the Iowa guard whose long-range shots have made a stir online, perfected her form in her driveway. But even when she abandons that form, she can hit game-winners from nearly halfcourt.`\
+https://nytimes.com/2023/03/24/sports/ncaabasketball/caitlin-clark-iowa-shooting.html?searchResultPosition=3
 
-**That Missing Trump Portrait? Found, Next to Some Old Yoga Mats.**\
-`After a tip, The Times located a portrait of Donald Trump given to him by El Salvador’s president and that Democrats were eager to account for. It was propped up in an obscure spot in a Trump hotel.`\
-https://nytimes.com/2023/03/23/world/americas/missing-trump-portrait-found-florida.html?searchResultPosition=4
+**The Lawmaker Who’s a Fan and Defender of TikTok**\
+`Jamaal Bowman, who represents parts of the Bronx and Westchester, thinks opposition to the platform is rooted in anti-China bias.`\
+https://nytimes.com/2023/03/24/nyregion/the-lawmaker-whos-a-fan-and-defender-of-tiktok.html?searchResultPosition=4
 
-**Variety: Acrostic**\
-`Emily Cox and Henry Rathvon wish us sweet dreams.`\
-https://nytimes.com/2023/03/23/crosswords/variety-acrostic.html?searchResultPosition=5
+**For a Restaurateur, the Secret Desire for Romance Was Finally Sated**\
+`Ilson Goncalves, who runs a popular Brazilian restaurant in New Jersey, never thought he would have a meaningful relationship — until he met Yasar Sakman on a summer vacation in Turkey.`\
+https://nytimes.com/2023/03/24/style/ilson-goncalves-yasar-sakman-wedding.html?searchResultPosition=5
 
-**Things That Make Hay**\
-`Check out the grid in Blake Slonecker’s Friday puzzle.`\
-https://nytimes.com/2023/03/23/crosswords/daily-puzzle-2023-03-24.html?searchResultPosition=6
+**Garden State’s Basketball Talent Blooms in N.C.A.A. Tournament**\
+`Whether it’s teams like Princeton and Fairleigh Dickinson pulling off upsets or standout performances from players, New Jersey’s imprint has been all over the Division I men’s basketball tournament.`\
+https://nytimes.com/2023/03/24/sports/ncaa-basketball-tournament-new-jersey-princeton.html?searchResultPosition=6
 
-**Ukrainian Author Andrey Kurkov Among National Book Critics Circle Award Winners**\
-`A collection of fantastical short stories and a book of poems about escaping capitalist society were also among the 2022 winners.`\
-https://nytimes.com/2023/03/23/books/national-book-critics-circle-award-2023.html?searchResultPosition=7
+**Our Second Date Was Statistically Abnormal**\
+`And the ensuing beauty, tragedy and pain has been exquisite.`\
+https://nytimes.com/2023/03/24/style/modern-love-our-second-date-was-statistically-abnormal.html?searchResultPosition=7
 
-**Corrections: March 24, 2023**\
-`Corrections that appeared in print on Friday, March 24, 2023.`\
-https://nytimes.com/2023/03/23/pageoneplus/corrections-march-24-2023.html?searchResultPosition=8
+**From Volunteers to High School Sweethearts**\
+`Hannah Sellinger and Basil Azim met while working for a mentorship program in Texas. He then asked for a number he already had.`\
+https://nytimes.com/2023/03/24/style/hannah-sellinger-basil-azim-wedding.html?searchResultPosition=8
 
-**A Paler Uranus Emerges in the Latest Hubble Telescope Image**\
-`A pair of images, taken eight years apart, show changes to the ice giant planet as spring arrives in the northern hemisphere.`\
-https://nytimes.com/2023/03/23/science/uranus-climate-hubble.html?searchResultPosition=9
+**The Care Package That Revived Their Relationship**\
+`Jennifer Walters and Clark Palicka met as Air Force pilots. Eventually, the stresses of military life caused them to cut off contact for a while.`\
+https://nytimes.com/2023/03/24/style/jennifer-walters-clark-palicka-wedding.html?searchResultPosition=9
 
-**Antisemitic Incidents Reach New High in U.S., Anti-Defamation League Says**\
-`The report from the advocacy group included online harassment and speech as well as physical attacks, and mirrored similar data from the federal government and another study.`\
-https://nytimes.com/2023/03/23/us/antisemitism-anti-defamation-league-report.html?searchResultPosition=10
+**For These World Travelers, Home Base Is Wherever They Are Together**\
+`Anna Spelman and Peter Prix, who met in Cambodia, lived in several cities over the years before settling in Istanbul. They married in Arizona.`\
+https://nytimes.com/2023/03/24/style/anna-spelman-peter-prix-wedding.html?searchResultPosition=10
 
