@@ -23,7 +23,7 @@ https://nytimes.com/2023/03/24/opinion/inflation-federal-reserve-interest-rates.
 https://nytimes.com/2023/03/24/arts/music/playlist-rosalia-rauw-alejandro-shygirl-bjork.html?searchResultPosition=6
 
 **Florida Bill Would Shield DeSantis’s Travel Records**\
-`A bill advanced by state legislators would exempt the governor, as well as other officials, their families and staff members, from having records of their trips released to the public.`\
+`A bill advanced by state legislators would exempt the governor, as well as other officials and their families and staff members, from having records of their trips released to the public.`\
 https://nytimes.com/2023/03/24/us/politics/desantis-travel-records-florida-republicans.html?searchResultPosition=7
 
 **Art vs. Dorms: A Dispute at Valparaiso U.**\
