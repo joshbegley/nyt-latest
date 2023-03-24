@@ -22,7 +22,7 @@ https://nytimes.com/2023/03/24/us/politics/army-base-pickett-barfoot.html?search
 `Scientists have retracted a study that showed a rare goblin shark washed up on a Greek beach after other researchers voiced doubts about the find.`\
 https://nytimes.com/2023/03/24/science/goblin-shark-plastic-toy.html?searchResultPosition=6
 
-**China Denies Pressuring Companies Like TikTok to Spy on Government’s Behalf**\
+**Beijing Denies Pressuring Companies Like TikTok to Spy for China**\
 `China’s foreign ministry rebuffed claims made by U.S. lawmakers at a hearing on Thursday that TikTok could be a tool of surveillance for the Chinese government.`\
 https://nytimes.com/2023/03/24/world/asia/china-tiktok-spying-denial.html?searchResultPosition=7
 
