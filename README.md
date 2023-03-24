@@ -1,4 +1,4 @@
-**North Korea Says It Tested an Underwater Nuclear-Capable Attack Drone**\
+**North Korea Says It Tested a Nuclear-Capable Underwater Attack Drone**\
 `Such a test would be a first for Kim Jong-un’s weapons program. But there was no independent confirmation that it had happened.`\
 https://nytimes.com/2023/03/24/world/asia/north-korea-underwater-nuclear-drone.html?searchResultPosition=1
 
