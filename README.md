@@ -34,7 +34,7 @@ https://nytimes.com/2023/03/24/sports/ncaa-basketball-tournament-new-jersey-prin
 `And the ensuing beauty, tragedy and pain has been exquisite.`\
 https://nytimes.com/2023/03/24/style/modern-love-our-second-date-was-statistically-abnormal.html?searchResultPosition=9
 
-**From Volunteers to High School Sweethearts**\
-`Hannah Sellinger and Basil Azim met while working for a mentorship program in Texas. He then asked for a number he already had.`\
-https://nytimes.com/2023/03/24/style/hannah-sellinger-basil-azim-wedding.html?searchResultPosition=10
+**The Care Package That Revived Their Relationship**\
+`Jennifer Walters and Clark Palicka met as Air Force pilots. Eventually, the stresses of military life caused them to cut off contact for a while.`\
+https://nytimes.com/2023/03/24/style/jennifer-walters-clark-palicka-wedding.html?searchResultPosition=10
 
