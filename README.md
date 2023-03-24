@@ -15,7 +15,7 @@ https://nytimes.com/2023/03/24/us/in-proud-boys-jan-6-sedition-trial-fbi-informa
 https://nytimes.com/video/world/asia/100000008828673/rahul-gandhi-protest-india-parliament.html?searchResultPosition=4
 
 **92nd Street Y, a Storied Home of Dance, Gives It More Space**\
-`With a renovation, new studios and the return of performance, an institution once central to dance in New York invests in its future.`\
+`With a renovation, new studios and the return of dance to the Kaufmann Concert Hall, an institution once central to dance in New York invests in its future.`\
 https://nytimes.com/2023/03/24/arts/dance/92nd-street-y-renovated-dance-space.html?searchResultPosition=5
 
 **Transcript: Ezra Klein Interviews Morgan Ricks**\
