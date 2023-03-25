@@ -10,7 +10,7 @@ https://nytimes.com/2023/03/25/crosswords/spelling-bee-forum.html?searchResultPo
 `Our columnist reviews the day’s puzzle. Warning: contains spoilers!`\
 https://nytimes.com/2023/03/25/crosswords/wordle-review-answer-644.html?searchResultPosition=3
 
-**‘Hotel Rwanda’ Hero Released From Prison After Two and a Half Years**\
+**‘Hotel Rwanda’ Activist Released From Prison After Two and a Half Years**\
 `Paul Rusesabagina, a critic of Rwanda’s president, was tricked into entering the country, then sentenced to 25 years after what his supporters called a show trial.`\
 https://nytimes.com/2023/03/25/world/africa/paul-rusesabagina-rwanda.html?searchResultPosition=4
 
