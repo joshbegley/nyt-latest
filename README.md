@@ -6,8 +6,8 @@ https://nytimes.com/2023/03/25/briefing/succession-season-4.html?searchResultPos
 `A new book “What’s Prison For?” explains how American prisons can better educate and rehabilitate the incarcerated.`\
 https://nytimes.com/2023/03/25/us/prisons-rehabilitation-san-quentin.html?searchResultPosition=2
 
-**Deadly Tornado Tears Through Mississippi**\
-`As daylight neared, emergency workers were still assessing the damage in the rural area. More than 100,000 people across three states were without power.`\
+**At Least 23 Killed as Deadly Tornado Tears Through Mississippi**\
+`Dozens more were injured after a deadly tornado ripped through a rural area. The death toll is expected to rise.`\
 https://nytimes.com/2023/03/25/us/tornado-mississippi-storms-dead.html?searchResultPosition=3
 
 **200,000-Dollar Fine Aims to Expose Money Laundering in Canada**\
