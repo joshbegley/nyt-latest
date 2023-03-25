@@ -6,7 +6,7 @@ https://nytimes.com/2023/03/24/us/politics/rodolphe-jaar-jovenel-moise-plot.html
 `The migrants were found trapped inside a sweltering shipping container that was stopped near a town in Uvalde County, according to officials.`\
 https://nytimes.com/2023/03/24/us/migrants-dead-train-uvalde-texas.html?searchResultPosition=2
 
-**Los Angeles Schools and 30,000 Workers Reach Deal After Strike**\
+**Los Angeles Schools and 30,000 Workers Reach Tentative Deal After Strike**\
 `The three-day walkout included Los Angeles Unified School District teachers, gardeners, bus drivers, cafeteria workers and special education assistants.`\
 https://nytimes.com/2023/03/24/us/los-angeles-schools-strike-deal.html?searchResultPosition=3
 
