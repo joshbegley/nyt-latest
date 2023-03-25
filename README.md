@@ -30,11 +30,11 @@ https://nytimes.com/2023/03/25/world/europe/pope-francis-sexual-abuse-minors.htm
 `Following even basic screenings and operations, patients often must arrange for someone to deliver them home. For older people, it can be a tall order.`\
 https://nytimes.com/2023/03/25/health/medical-escorts-seniors.html?searchResultPosition=8
 
+**Rolling Fork, the birthplace of Muddy Waters, has faced tornado and flooding concerns for years.**\
+`Many people in the area live in mobile homes, a particular issue when severe weather strikes.`\
+https://nytimes.com/2023/03/25/us/rolling-fork-tornado.html?searchResultPosition=9
+
 **What’s Driving a Fresh Wave of Irish Music? Tradition.**\
 `As Ireland reimagines itself, musicians including the singer Lisa O’Neill and the band Lankum are reimagining the island’s music with an ever-growing sense of pride.`\
-https://nytimes.com/2023/03/25/arts/music/irish-music-lankum-lisa-oneill.html?searchResultPosition=9
-
-**I Want to Buy a Co-op Now and a Piano Later. Do I Have to Tell the Board?**\
-`You should never lie to a co-op board, but you don’t necessarily have to disclose future plans, either. But, ethically, is this a plan that will keep you up at night with guilt?`\
-https://nytimes.com/2023/03/25/realestate/co-op-boards-ethics-pianos.html?searchResultPosition=10
+https://nytimes.com/2023/03/25/arts/music/irish-music-lankum-lisa-oneill.html?searchResultPosition=10
 
