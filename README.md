@@ -18,13 +18,13 @@ https://nytimes.com/2023/03/25/opinion/letters/english-courses.html?searchResult
 `The Latter-day Saints church has the moral authority and political sway to save Great Salt Lake.`\
 https://nytimes.com/2023/03/25/opinion/great-salt-lake-drought-utah-climate-change.html?searchResultPosition=5
 
+**People Can’t Get Their A.D.H.D. Medicine, and That’s a Sign of a Larger Problem**\
+`The Drug Enforcement Administration is failing at its mission.`\
+https://nytimes.com/2023/03/25/opinion/adderall-shortage-drug-policy.html?searchResultPosition=6
+
 **Welcome to Muskville, Texas**\
 `Companies shouldn’t need to build worker housing. Workers shouldn’t have to live in company towns.`\
-https://nytimes.com/2023/03/25/opinion/elon-musk-town-muskville-texas.html?searchResultPosition=6
-
-**The Adderall Shortage Reflects Bad Drug Policy**\
-`The D.E.A. is failing at its mission.`\
-https://nytimes.com/2023/03/25/opinion/adderall-shortage-drug-policy.html?searchResultPosition=7
+https://nytimes.com/2023/03/25/opinion/elon-musk-town-muskville-texas.html?searchResultPosition=7
 
 **Whatever the Problem, It’s Probably Solved by Walking**\
 `A walk begins to carve out space between my thoughts that allows clarity to rise up through my shoes.`\
