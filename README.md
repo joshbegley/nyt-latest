@@ -19,7 +19,7 @@ https://nytimes.com/2023/03/24/us/migrants-dead-train-uvalde-texas.html?searchRe
 https://nytimes.com/2023/03/24/us/los-angeles-schools-strike-deal.html?searchResultPosition=5
 
 **Chocolate Factory Explosion in Pennsylvania Leaves Two Dead and Nine Missing**\
-`At least six people were also injured in the explosion at the R.M. Palmer Company chocolate factory in West Reading, Pa., on Friday, an official said.`\
+`Eight people were also taken to a hospital after the explosion at the R.M. Palmer Company chocolate factory in West Reading, Pa., on Friday, officials said.`\
 https://nytimes.com/2023/03/24/us/fire-chocolate-factory-west-reading.html?searchResultPosition=6
 
 **Former Trump Officials Must Testify in 2020 Election Inquiry, Judge Says**\
