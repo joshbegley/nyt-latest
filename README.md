@@ -1,5 +1,5 @@
 **Gordon E. Moore, the Intel Co-Founder Behind Moore’s Law, Dies at 94**\
-`His prediction in the 1960s about exponential advances in computer chip technology set a course for the age of high tech.`\
+`His prediction in the 1960s about exponential advances in computer chip technology charted a course for the age of high tech.`\
 https://nytimes.com/2023/03/24/obituaries/gordon-moore-intel-obituary.html?searchResultPosition=1
 
 **Man Pleads Guilty in Case Related to Assassination of Haiti’s President**\
