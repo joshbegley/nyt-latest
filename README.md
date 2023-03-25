@@ -14,8 +14,8 @@ https://nytimes.com/2023/03/24/us/migrants-dead-train-uvalde-texas.html?searchRe
 `The three-day walkout included Los Angeles Unified School District teachers, gardeners, bus drivers, cafeteria workers and special education assistants.`\
 https://nytimes.com/2023/03/24/us/los-angeles-schools-strike-deal.html?searchResultPosition=4
 
-**Explosion Rips Through Chocolate Factory in Pennsylvania**\
-`At least six people were injured in the explosion at the R.M. Palmer Company chocolate factory in West Reading, Pa., on Friday, an official said.`\
+**Two Dead and Nine Are Missing in Chocolate Factory Explosion in Pennsylvania**\
+`At least six people were also injured in the explosion at the R.M. Palmer Company chocolate factory in West Reading, Pa., on Friday, an official said.`\
 https://nytimes.com/2023/03/24/us/fire-chocolate-factory-west-reading.html?searchResultPosition=5
 
 **Former Trump Officials Must Testify in 2020 Election Inquiry, Judge Says**\
