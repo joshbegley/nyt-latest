@@ -22,8 +22,8 @@ https://nytimes.com/2023/03/25/world/middleeast/israel-defense-minister-opposes-
 `Yolett McPhee-McCuin, buoyed by her confidence, represents a new wave of coaching in women’s college basketball. “We’re gliding now,” she said of her Rebels.`\
 https://nytimes.com/2023/03/25/sports/ncaabasketball/mississippi-coach-yo.html?searchResultPosition=6
 
-**South Carolina Stays on March in Chase for Perfect Season**\
-`The Gamecocks, the reigning champions and the top overall seed in the N.C.A.A. women’s tournament, rolled past U.C.L.A. to the round of 8.`\
+**UConn’s Streak of Final Fours Ends in Loss to Ohio State**\
+`The Huskies had been in every Final Four since 2008. In the round of 16 against Ohio State, UConn had no answer for an aggressive press.`\
 https://nytimes.com/2023/03/25/sports/ncaabasketball/march-madness-saturday.html?searchResultPosition=7
 
 **Donald Trump, and the Sordid Tradition of Suppressing October Surprises**\
