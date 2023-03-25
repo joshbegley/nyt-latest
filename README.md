@@ -4,7 +4,7 @@ https://nytimes.com/2023/03/25/us/politics/trump-october-surprise.html?searchRes
 
 **The Amazon’s Largest Isolated Tribe Is Dying**\
 `Illegal mines have fueled a humanitarian crisis for the Yanomami Indigenous group. Brazil’s new president is trying to fight back.`\
-https://nytimes.com/2023/03/25/world/americas/brazil-amazon-indiginous-tribe.html?searchResultPosition=2
+https://nytimes.com/2023/03/25/world/americas/brazil-amazon-indigenous-tribe.html?searchResultPosition=2
 
 **Lawmakers Tour D.C. Jail Where Jan. 6 Defendants Are Held**\
 `Representative Marjorie Taylor Greene said the detainees had reported mistreatment, but a Democratic lawmaker said their conditions were better than others.`\
