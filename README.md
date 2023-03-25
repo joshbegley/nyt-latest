@@ -19,7 +19,7 @@ https://nytimes.com/2023/03/25/world/africa/paul-rusesabagina-rwanda.html?search
 https://nytimes.com/2023/03/25/sports/ncaabasketball/alabama-san-diego-state.html?searchResultPosition=5
 
 **Stolen Valor: The U.S. Volunteers in Ukraine Who Lie, Waste and Bicker**\
-`People who would not be allowed anywhere near the battlefield in a U.S.-led war are active on the Ukrainian front, with ready access to American weaponry.`\
+`People who would not be allowed anywhere near the battlefield in a U.S.-led war are active on the Ukrainian front, with ready access to American weapons.`\
 https://nytimes.com/2023/03/25/world/europe/volunteers-us-ukraine-lies.html?searchResultPosition=6
 
 **For 38 Years at UConn, Chris Dailey Has Been the Yin to Geno’s Yang**\
