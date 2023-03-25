@@ -2,9 +2,9 @@
 `Who was so good they earned a surprise Saturday grid from Robyn Weintraub? All of us, apparently.`\
 https://nytimes.com/2023/03/24/crosswords/daily-puzzle-2023-03-25.html?searchResultPosition=1
 
-**Gordon E. Moore, the Intel Co-Founder Behind Moore’s Law, Dies at 94**\
+**Gordon E. Moore, Intel Co-Founder Behind Moore’s Law, Dies at 94**\
 `His prediction in the 1960s about exponential advances in computer chip technology charted a course for the age of high tech.`\
-https://nytimes.com/2023/03/24/obituaries/gordon-moore-intel-obituary.html?searchResultPosition=2
+https://nytimes.com/2023/03/24/obituaries/gordon-moore-dead.html?searchResultPosition=2
 
 **Man Pleads Guilty in Case Related to Assassination of Haiti’s President**\
 `Rodolphe Jaar, a dual Haitian and Chilean citizen, said he had provided money to buy weapons and a location to stage the 2021 attack.`\
