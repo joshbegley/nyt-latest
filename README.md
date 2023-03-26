@@ -18,7 +18,7 @@ https://nytimes.com/2023/03/26/arts/music/scott-johnson-dead.html?searchResultPo
 `More than 8,000 gallons of an acrylic polymer solution were released late on Friday into a tributary of the Delaware River, a source of the city’s drinking water.`\
 https://nytimes.com/2023/03/26/us/delaware-river-latex-chemical-spill.html?searchResultPosition=5
 
-**At the Waco Rally and Beyond, Trump’s Movement Now Commands Him**\
+**MAGA, Not Trump, Controls the Movement Now**\
 `It’s clear who runs the GOP now.`\
 https://nytimes.com/2023/03/26/opinion/donald-trump-waco-rally-speech.html?searchResultPosition=6
 
