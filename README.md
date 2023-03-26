@@ -1,5 +1,5 @@
 **Twitter Says Parts of Its Source Code Were Leaked Online**\
-`The leak adds to the challenges facing the Elon Musk-owned company, which is trying to unmask the person responsible and any other people who downloaded the code.`\
+`The leak adds to the challenges facing the Elon Musk-owned company, which is trying to identify the person responsible and any other people who downloaded the code.`\
 https://nytimes.com/2023/03/26/technology/twitter-source-code-leak.html?searchResultPosition=1
 
 **Ready When You Are**\
