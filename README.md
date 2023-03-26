@@ -30,7 +30,7 @@ https://nytimes.com/2023/03/26/opinion/ai-art-fiction.html?searchResultPosition=
 `Chinese regulators have proven the financial doomsayers wrong again and again. But their biggest test may yet lie ahead.`\
 https://nytimes.com/2023/03/26/opinion/china-finance-banking-evergrande-crisis.html?searchResultPosition=8
 
-**The Potential Trump Indictment Isn’t Frivolous, but It Is Unwise**\
+**The Potential Trump Indictment Is Unwise**\
 `Why I’m skeptical of the Manhattan district attorney’s case.`\
 https://nytimes.com/2023/03/26/opinion/trump-indictment-skeptical-case.html?searchResultPosition=9
 
