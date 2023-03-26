@@ -31,6 +31,6 @@ https://nytimes.com/2023/03/25/us/politics/trump-waco-texas-speech.html?searchRe
 https://nytimes.com/interactive/2023/03/25/sports/ncaabasketball/caitlin-clark-iowa.html?searchResultPosition=8
 
 **In Blow to Taiwan, Honduras Switches Relations to China**\
-`The Central American country changed diplomatic recognition to Beijing, leaving 12 nations and the Vatican still recognizing Taiwan as a sovereign state.`\
+`The decision by Honduras is also a setback in Washington’s efforts to use its influence in Central America to help prevent China from isolating Taiwan.`\
 https://nytimes.com/2023/03/25/world/asia/taiwan-honduras-china-relations.html?searchResultPosition=9
 
