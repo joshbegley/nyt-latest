@@ -15,7 +15,7 @@ https://nytimes.com/2023/03/26/technology/twitter-source-code-leak.html?searchRe
 https://nytimes.com/2023/03/26/crosswords/daily-puzzle-2023-03-27.html?searchResultPosition=4
 
 **Furious Finishes Set the Final Four: No. 5 Seeds Miami, San Diego State Are In**\
-`Miami rallied from 13 points down to beat Houston, while a foul and a free throw gave San Diego State a win over Creighton. They join UConn and Florida Atlantic in the national semifinals.`\
+`Miami rallied from 13 points down to beat Texas, while a foul and a free throw gave San Diego State a win over Creighton. They join UConn and Florida Atlantic in the national semifinals.`\
 https://nytimes.com/2023/03/26/sports/ncaabasketball/march-madness-sunday.html?searchResultPosition=5
 
 **U.N. Investigators Protest to U.S. Over Health Care at Guantánamo Bay**\
