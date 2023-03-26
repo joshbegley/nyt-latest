@@ -2,7 +2,7 @@
 `Once a symbol of Wall Street excess, Cohen has invested lavishly in the Mets, becoming the most beloved billionaire in Queens. Is that enough to reverse team history?`\
 https://nytimes.com/2023/03/26/sports/baseball/steve-cohen-mets-new-york.html?searchResultPosition=1
 
-**Brothers Renew A Rivalry When Creighton Plays San Diego State**\
+**Brothers Renew a Rivalry When Creighton Plays San Diego State**\
 `Creighton’s Arthur Kaluma and San Diego State’s Adam Seiko have faced each other at the N.C.A.A. tournament, and plenty of other times, before.`\
 https://nytimes.com/2023/03/26/sports/ncaabasketball/creighton-san-diego-state-brothers.html?searchResultPosition=2
 
