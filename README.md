@@ -15,7 +15,7 @@ https://nytimes.com/2023/03/26/technology/twitter-source-code-leak.html?searchRe
 https://nytimes.com/2023/03/26/crosswords/daily-puzzle-2023-03-27.html?searchResultPosition=4
 
 **A Foul and a Free Throw Send San Diego State to the Final Four**\
-`Fifth-seeded San Diego State will face Florida Atlantic in a national semifinal after slipping past No. 6 seed Creighton.`\
+`Fifth-seeded San Diego State will face No. 9 seed Florida Atlantic in a national semifinal after slipping past No. 6 seed Creighton.`\
 https://nytimes.com/2023/03/26/sports/ncaabasketball/march-madness-sunday.html?searchResultPosition=5
 
 **U.N. Investigators Protest to U.S. Over Health Care at Guantánamo Bay**\
