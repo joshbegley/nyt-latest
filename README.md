@@ -1,40 +1,40 @@
+**What Did We Learn From Trump’s Waco Rally? He’s Stuck in the Past.**\
+`Trump is still fighting old battles. But Republicans have moved on to their own war, a new war, a culture war.`\
+https://nytimes.com/2023/03/26/opinion/trump-waco-rally.html?searchResultPosition=1
+
 **Elon Musk Values Twitter at $20 Billion**\
 `The billionaire bought the social media company for $44 billion in October and took it private.`\
-https://nytimes.com/2023/03/26/technology/elon-musk-twitter-value.html?searchResultPosition=1
+https://nytimes.com/2023/03/26/technology/elon-musk-twitter-value.html?searchResultPosition=2
 
 **Review: In Chicago, an Opera Triptych Reaches for Connection**\
 `Lyric Opera of Chicago follows a recent world premiere with yet another: “Proximity,” a set of works by three librettist-composer pairs.`\
-https://nytimes.com/2023/03/26/arts/music/proxmity-lyric-opera-chicago-review.html?searchResultPosition=2
+https://nytimes.com/2023/03/26/arts/music/proxmity-lyric-opera-chicago-review.html?searchResultPosition=3
 
 **His ‘Soft White Cube’ Is Conquering TriBeCa**\
 `With more than a dozen projects, the architect Markus Dochantschi of studioMDA is reshaping the state of the art gallery, one historic building at a time.`\
-https://nytimes.com/2023/03/26/arts/design/tribeca-art-gallery-markus-dochantschi-architect.html?searchResultPosition=3
+https://nytimes.com/2023/03/26/arts/design/tribeca-art-gallery-markus-dochantschi-architect.html?searchResultPosition=4
 
 **Ro Khanna Endorses Barbara Lee’s Senate Campaign as He Declines to Run**\
 `The race in California to succeed Senator Dianne Feinstein is likely to be one of the most expensive in the nation in 2024.`\
-https://nytimes.com/2023/03/26/us/ro-khanna-barbara-lee-senate-california.html?searchResultPosition=4
+https://nytimes.com/2023/03/26/us/ro-khanna-barbara-lee-senate-california.html?searchResultPosition=5
 
 **A Conservative’s View of What ‘Woke’ Means**\
 `Readers react to a column by Ross Douthat. Also: Budget proposals and actual spending; the music scene on FM radio.`\
-https://nytimes.com/2023/03/26/opinion/letters/conservative-woke.html?searchResultPosition=5
+https://nytimes.com/2023/03/26/opinion/letters/conservative-woke.html?searchResultPosition=6
 
 **What to Cook This Week**\
 `Stuffed peppers, carne asada and more recipes.`\
-https://nytimes.com/2023/03/26/dining/what-to-cook-this-week.html?searchResultPosition=6
+https://nytimes.com/2023/03/26/dining/what-to-cook-this-week.html?searchResultPosition=7
 
 **At Apple, Rare Dissent Over a New Product: Interactive Goggles**\
 `The company is expected to unveil an augmented reality headset in a few months. Some employees wonder if the device makes sense for Apple.`\
-https://nytimes.com/2023/03/26/technology/apple-augmented-reality-dissent.html?searchResultPosition=7
+https://nytimes.com/2023/03/26/technology/apple-augmented-reality-dissent.html?searchResultPosition=8
 
 **George Washington University Is Moving on From ‘Colonials’**\
 `The move comes amid a reckoning of the fraught history of team names across American sports. Potential new names include: “Ambassadors,” “Blue Fog,” “Revolutionaries” and “Sentinels.”`\
-https://nytimes.com/2023/03/26/us/george-washington-university-moniker.html?searchResultPosition=8
+https://nytimes.com/2023/03/26/us/george-washington-university-moniker.html?searchResultPosition=9
 
 **We Have Cutting-Edge Science to Make Vaccines. But Will Everyone Benefit?**\
 `A vaccine scientist on what needs to change.`\
-https://nytimes.com/2023/03/26/opinion/barney-graham-vaccine-science.html?searchResultPosition=9
-
-**The Global Transformation of Christianity Is Here**\
-`The influx of nonwhite believers will challenge white religious conservatives to choose between xenophobia and building alliances with immigrants who share their views on social issues.`\
-https://nytimes.com/2023/03/26/opinion/christianity-global-demographics.html?searchResultPosition=10
+https://nytimes.com/2023/03/26/opinion/barney-graham-vaccine-science.html?searchResultPosition=10
 
