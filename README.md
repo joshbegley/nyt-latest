@@ -1,14 +1,14 @@
+**A.I. Can’t Write My Cat Story Because It Hasn’t Felt What I Feel**\
+`A.I. hasn’t suffered enough to write this essay.`\
+https://nytimes.com/2023/03/26/opinion/ai-art-fiction.html?searchResultPosition=1
+
 **How China Keeps Putting Off Its ‘Lehman Moment’**\
 `Chinese regulators have proven the financial doomsayers wrong again and again. But their biggest test may yet lie ahead.`\
-https://nytimes.com/2023/03/26/opinion/china-finance-banking-evergrande-crisis.html?searchResultPosition=1
+https://nytimes.com/2023/03/26/opinion/china-finance-banking-evergrande-crisis.html?searchResultPosition=2
 
 **The Potential Trump Indictment Isn’t Frivolous, but It Is Unwise**\
 `Why I’m skeptical of the Manhattan district attorney’s case.`\
-https://nytimes.com/2023/03/26/opinion/trump-indictment-skeptical-case.html?searchResultPosition=2
-
-**A.I. Can’t Write My Cat Story Because It Hasn’t Felt What I Feel**\
-`A.I. hasn’t suffered enough to write this essay.`\
-https://nytimes.com/2023/03/26/opinion/ai-art-fiction.html?searchResultPosition=3
+https://nytimes.com/2023/03/26/opinion/trump-indictment-skeptical-case.html?searchResultPosition=3
 
 **The Sunday Read: ‘How Danhausen Became Professional Wrestling’s Strangest Star’**\
 `What’s the best way for a not particularly athletic barista-slash-wrestling geek to go pro? Act really weird.`\
