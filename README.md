@@ -23,7 +23,7 @@ https://nytimes.com/2023/03/26/briefing/asia-weapons-putin-belarus-israel-netany
 https://nytimes.com/2023/03/26/arts/music/scott-johnson-dead.html?searchResultPosition=6
 
 **Philadelphia Tells Residents to Consider Bottled Water After Chemical Spill**\
-`More than 8,000 gallons of an acrylic polymer solution were released late on Friday into a tributary of the Delaware River, a source of the city’s drinking water.`\
+`More than 8,000 gallons of an acrylic polymer solution leaked on Friday into a tributary of the Delaware River, a source of the city’s drinking water.`\
 https://nytimes.com/2023/03/26/us/delaware-river-latex-chemical-spill.html?searchResultPosition=7
 
 **MAGA, Not Trump, Controls the Movement Now**\
