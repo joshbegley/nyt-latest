@@ -1,5 +1,5 @@
 **A Foul and a Free Throw Send San Diego State to the Final Four**\
-`The fifth-seeded Aztecs will face Florida Atlantic in a national semifinal after slipping past No. 6 seed Creighton.`\
+`Fifth-seeded San Diego State will face Florida Atlantic in a national semifinal after slipping past No. 6 seed Creighton.`\
 https://nytimes.com/2023/03/26/sports/ncaabasketball/march-madness-sunday.html?searchResultPosition=1
 
 **U.N. Investigators Protest to U.S. Over Health Care at Guantánamo Bay**\
