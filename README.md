@@ -27,7 +27,7 @@ https://nytimes.com/2023/03/26/podcasts/the-daily/danhausen-professional-wrestli
 https://nytimes.com/2023/03/26/opinion/cancer-treatment-dreams.html?searchResultPosition=7
 
 **Putin Says He Could Put Tactical Nuclear Weapons in Belarus by Summer**\
-`The proposal from President Vladimir V. Putin of Russia, talked of since last year, would be provocative without changing the West’s battlefield calculus.`\
+`The proposal from President Vladimir V. Putin of Russia, talked of since last year, would be provocative without changing the West’s battlefield calculus in Ukraine.`\
 https://nytimes.com/2023/03/26/world/europe/russia-ukraine-putin-belarus.html?searchResultPosition=8
 
 **Can’t Buy the Watch You Want? It’s Partly a Lack of Watchmakers.**\
