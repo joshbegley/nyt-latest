@@ -1,40 +1,40 @@
+**Israeli Government’s Plan to Overhaul the Judiciary Sets Off a Crisis**\
+`Prime Minister Benjamin Netanyahu’s right-wing government contends the Supreme Court has unchecked power.`\
+https://nytimes.com/2023/03/27/world/middleeast/israel-judiciary-crisis-explainer.html?searchResultPosition=1
+
+**The Dual Education of Hakeem Jeffries**\
+`Shaped by Black Brooklyn and trained by Manhattan’s legal elite, the House Democrats’ new leader is not easily pigeonholed.`\
+https://nytimes.com/2023/03/27/nyregion/hakeem-jeffries-profile.html?searchResultPosition=2
+
+**Clash Over Natives’ Graves Inflames Hochul’s Relationship With Tribes**\
+`After battles with previous governors, New York’s Native American leaders were hopeful for a reset with the new administration. Instead, the tensions have increased.`\
+https://nytimes.com/2023/03/27/nyregion/kathy-hochul-native-americans-graves.html?searchResultPosition=3
+
+**‘Catastrophe’ for Poor New Yorkers as Pandemic Food Aid Ends**\
+`The Met Council, a major nonprofit, is calling for nearly $13 million in emergency city funding for food pantries.`\
+https://nytimes.com/2023/03/27/nyregion/food-stamps-snap-nyc.html?searchResultPosition=4
+
+**Finding Common Ground With the Commissioner**\
+`While interviewing Rob Manfred for his book about baseball, Joe Kelly, an outspoken reliever, realized their goals weren’t all that different.`\
+https://nytimes.com/2023/03/27/sports/baseball/joe-kelly-rob-manfred-book.html?searchResultPosition=5
+
+**A Whole New (Old) Ballgame**\
+`With three major rule changes this season, Major League Baseball will try to reinvent itself while looking to the game’s past for inspiration.`\
+https://nytimes.com/2023/03/27/sports/baseball/rob-manfred-mlb-new-rules.html?searchResultPosition=6
+
+**Today’s Wordle Review**\
+`Our columnist reviews the day’s puzzle. Warning: contains spoilers!`\
+https://nytimes.com/2023/03/27/crosswords/wordle-review-answer-646.html?searchResultPosition=7
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2023/03/27/crosswords/spelling-bee-forum.html?searchResultPosition=8
+
+**A Trump-DeSantis War of Words**\
+`The two men have increasingly clashed lately. But while Trump has delivered his usual stream of insults, DeSantis has operated from a more old-school playbook.`\
+https://nytimes.com/interactive/2023/03/27/us/politics/trump-desantis-2024.html?searchResultPosition=9
+
 **Taiwan’s Ex-President Heads to China in Historic and Closely Watched Visit**\
 `Though his visit is not official, it is nonetheless significant and may offer clues to political calculations on both sides of the increasingly tense Taiwan Strait.`\
-https://nytimes.com/2023/03/27/world/asia/taiwan-china-ma-visit.html?searchResultPosition=1
-
-**The Mystery of Beethoven’s Skull Remains Unsolved**\
-`A researcher at Mount Sinai thought he was testing a piece of the composer’s skull. Later he learned he might have been mistaken.`\
-https://nytimes.com/2023/03/27/nyregion/the-mystery-of-beethovens-skull-remains-unsolved.html?searchResultPosition=2
-
-**No Corrections: March 27, 2023**\
-`No corrections appeared in print on Monday, March 27, 2023.`\
-https://nytimes.com/2023/03/27/pageoneplus/no-corrections-march-27-2023.html?searchResultPosition=3
-
-**Word of the Day: earnest**\
-`This word has appeared in 464 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/03/27/learning/word-of-the-day-earnest.html?searchResultPosition=4
-
-**First Citizens to Acquire Silicon Valley Bank**\
-`The Federal Deposit Insurance Corporation, which announced the deal late Sunday, had been looking for a buyer since seizing control of the bank.`\
-https://nytimes.com/2023/03/27/business/silicon-valley-bank-first-citizens.html?searchResultPosition=5
-
-**What’s on TV This Week: ‘Riverdale’ and ‘Royal Crackers’**\
-`Riverdale returns for a seventh season on the CW, and a new animated comedy series comes to Adult Swim.`\
-https://nytimes.com/2023/03/27/arts/television/whats-on-tv-this-week-riverdale-royal-crackers.html?searchResultPosition=6
-
-**The Final Four That Nobody Could Have Expected**\
-`Connecticut has a pedigree but hasn’t made a deep run since 2014. Florida Atlantic plays in a small gym on a campus that’s an owl sanctuary. San Diego State got in on a free throw. And Miami’s coach likes his self-help advice.`\
-https://nytimes.com/2023/03/27/sports/ncaabasketball/mens-final-four-preview.html?searchResultPosition=7
-
-**Your Monday Briefing**\
-`Mass protests in Israel.`\
-https://nytimes.com/2023/03/27/briefing/israel-protests-netanyahu-europe.html?searchResultPosition=8
-
-**In Africa, Kamala Harris Looks to Deepen Relations Amid China’s Influence**\
-`In a weeklong trip to Ghana, Tanzania and Zambia, the vice president will face a balancing act as she tries to foster a collaborative U.S. relationship.`\
-https://nytimes.com/2023/03/27/world/africa/kamala-harris-visit.html?searchResultPosition=9
-
-**As Banking Worries Swirl, Europe’s Policymakers Express Confidence, With Caution**\
-`Officials say eurozone lenders are strictly supervised and continue to be strong. But at a recent conference, wariness about the future remained.`\
-https://nytimes.com/2023/03/27/business/eu-banks-deutsche-bank.html?searchResultPosition=10
+https://nytimes.com/2023/03/27/world/asia/taiwan-china-ma-visit.html?searchResultPosition=10
 
