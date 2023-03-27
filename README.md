@@ -6,7 +6,7 @@ https://nytimes.com/video/us/100000008831809/biden-nashville-school-shooting.htm
 `Prime Minister Benjamin Netanyahu of Israel’s contentious judicial overhaul plan has sparked civil unrest throughout the country.`\
 https://nytimes.com/video/world/middleeast/100000008831640/israel-netanyahu-protests-judicial-overhaul.html?searchResultPosition=2
 
-**Former National Enquirer Publisher Again Testifies in Trump Inquiry**\
+**Former National Enquirer Publisher Testifies Again in Trump Inquiry**\
 `The grand jury investigating a hush-money case against the former president met again on Monday, but the timing of any potential indictment remained unclear.`\
 https://nytimes.com/2023/03/27/nyregion/trump-grand-jury-witness-indictment.html?searchResultPosition=3
 
