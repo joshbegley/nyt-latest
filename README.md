@@ -1,40 +1,40 @@
+**Attracting The Right People With The Right Benefits**\
+`Dental and vision care can be critical to our personal health. They’re also critical to a company’s recruitment and benefits strategy.`\
+https://nytimes.com/paidpost/humana/attracting-the-right-people-with-the-right-benefits.html?searchResultPosition=1
+
 **Silicon Valley Bank’s Collapse Chills Start-Up Funding**\
 `Two weeks after Silicon Valley Bank failed, the fallout has hit the start-up market as investors pull back further and fear has risen.`\
-https://nytimes.com/2023/03/27/technology/silicon-valley-bank-start-ups.html?searchResultPosition=1
+https://nytimes.com/2023/03/27/technology/silicon-valley-bank-start-ups.html?searchResultPosition=2
 
 **The Moment They Knew: A ‘Last First Date,’ and Not a Moment Too Soon**\
 `Four years after a first date at a food hall, a Denver couple talked about what drew them to each other at the tail end of a “season” of online dating.`\
-https://nytimes.com/2023/03/27/style/the-moment-they-knew.html?searchResultPosition=2
+https://nytimes.com/2023/03/27/style/the-moment-they-knew.html?searchResultPosition=3
 
 **$1.6 Million Homes in California**\
 `A midcentury-modern home designed by Cliff May in Long Beach, a 1918 Craftsman house in Oakland and a three-bedroom bungalow in Sierra Madre.`\
-https://nytimes.com/2023/03/27/realestate/1-6-million-homes-in-california.html?searchResultPosition=3
+https://nytimes.com/2023/03/27/realestate/1-6-million-homes-in-california.html?searchResultPosition=4
 
 **Markets Climb as Silicon Valley Bank Finally Finds a Buyer**\
 `First Citizens agreed on Sunday to acquire the failed lender’s retail operations, a move that will cost taxpayers but is reassuring investors.`\
-https://nytimes.com/2023/03/27/business/dealbook/markets-silicon-valley-bank-acquisition.html?searchResultPosition=4
+https://nytimes.com/2023/03/27/business/dealbook/markets-silicon-valley-bank-acquisition.html?searchResultPosition=5
 
 **A Republican Spending Problem**\
 `Will the House be willing to cut programs that benefit G.O.P. voters?`\
-https://nytimes.com/2023/03/27/briefing/gop-republican-spending-cuts.html?searchResultPosition=5
+https://nytimes.com/2023/03/27/briefing/gop-republican-spending-cuts.html?searchResultPosition=6
 
 **A Sweeping Plan to Protect Kids From Social Media**\
 `A new law in Utah bans any account held by minors without parental consent.`\
-https://nytimes.com/2023/03/27/podcasts/the-daily/social-media-instagram-tiktok-utah-ban.html?searchResultPosition=6
+https://nytimes.com/2023/03/27/podcasts/the-daily/social-media-instagram-tiktok-utah-ban.html?searchResultPosition=7
 
 **People Bought Crocs During the Pandemic. They Haven’t Stopped.**\
 `While other brands that thrived with customers in quarantine have dropped off, sales of the easily slipped-on clogs are up nearly 200 percent since 2019.`\
-https://nytimes.com/2023/03/27/business/crocs-sales.html?searchResultPosition=7
+https://nytimes.com/2023/03/27/business/crocs-sales.html?searchResultPosition=8
 
 **Restoring a Giant Plane: Ukrainian Resilience or Folly?**\
 `Ukraine, with far more pressing needs, plans to rebuild the colossal Mriya cargo plane, a symbol of pride that was destroyed last year in a battle for its airfield.`\
-https://nytimes.com/2023/03/27/world/europe/ukraine-giant-plane-mriya.html?searchResultPosition=8
+https://nytimes.com/2023/03/27/world/europe/ukraine-giant-plane-mriya.html?searchResultPosition=9
 
 **Save the Gowns!**\
 `What’s the best way to preserve fashion? For some brands, it’s a white-glove storage service.`\
-https://nytimes.com/2023/03/27/style/fashion-archiving-clothes-storage.html?searchResultPosition=9
-
-**In the Basque Region of Spain: Art, Culture and a Puppy That Blooms**\
-`Does a culture-centric family trip have to be boring for the kids? Our writer finds the perfect balance of contemporary art, scary medieval weapons, Gothic cloisters and wide-open space.`\
-https://nytimes.com/2023/03/27/travel/basque-country-spain-family-travel.html?searchResultPosition=10
+https://nytimes.com/2023/03/27/style/fashion-archiving-clothes-storage.html?searchResultPosition=10
 
