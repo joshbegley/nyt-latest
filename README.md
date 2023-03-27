@@ -8,7 +8,7 @@ https://nytimes.com/2023/03/27/opinion/letters/iraq-war-justifications.html?sear
 
 **This story was published in error**\
 `The charges`\
-https://nytimes.com/2023/03/27/nyregion/the-unprecedented-case-against-the-former-president-will-have-wide-ranging-implications.html?searchResultPosition=3
+https://nytimes.com/2023/03/27/nyregion/published-in-error.html?searchResultPosition=3
 
 **Paul Rusesabagina, ‘Hotel Rwanda’ Dissident, Departs Rwanda for Qatar**\
 `His release ended more than two and a half years of captivity, during which he was tried on terrorism charges and sentenced to 25 years in prison.`\
