@@ -1,40 +1,40 @@
-**Watch Fans Have Eyes on Geneva**\
-`TAG Heuer, Zenith and IWC are just a few of the brands introducing new models at the annual Watches and Wonders show.`\
-https://nytimes.com/2023/03/27/fashion/watch-tag-heuer-zenith-iwc-geneva.html?searchResultPosition=1
+**People Bought Crocs During the Pandemic. They Haven’t Stopped.**\
+`While other brands that thrived with customers in quarantine have dropped off, sales of the easily slipped-on clogs are up nearly 200 percent since 2019.`\
+https://nytimes.com/2023/03/27/business/crocs-sales.html?searchResultPosition=1
 
-**Zenith Modernizes Its Pilot Watch Line**\
-`The historic design, tied to the first flight across the English Channel, now features dials in black opaline, luminous numerals and a smaller crown.`\
-https://nytimes.com/2023/03/27/fashion/watches-zenith-pilot-line-switzerland.html?searchResultPosition=2
+**Restoring a Giant Plane: Ukrainian Resilience or Folly?**\
+`Ukraine, with far more pressing needs, plans to rebuild the colossal Mriya cargo plane, a symbol of pride that was destroyed last year in a battle for its airfield.`\
+https://nytimes.com/2023/03/27/world/europe/ukraine-giant-plane-mriya.html?searchResultPosition=2
 
-**Panerai Targets Women, and Rolex, With the Radiomir’s Return**\
-`The brand anticipates that the model’s 40-millimeter size will be an attraction.`\
-https://nytimes.com/2023/03/27/fashion/watches-panerai-radiomir-return.html?searchResultPosition=3
+**Save the Gowns!**\
+`What’s the best way to preserve fashion? For some brands, it’s a white-glove storage service.`\
+https://nytimes.com/2023/03/27/style/fashion-archiving-clothes-storage.html?searchResultPosition=3
 
-**Watches and Wonders Geneva Will Have 2 Days for Fans**\
-`The fair’s new chief executive says that, in addition to expanding public access, it will spill into the city’s streets with tours and electro music.`\
-https://nytimes.com/2023/03/27/fashion/watches-and-wonders-geneva.html?searchResultPosition=4
+**In the Basque Region of Spain: Art, Culture and a Puppy That Blooms**\
+`Does a culture-centric family trip have to be boring for the kids? Our writer finds the perfect balance of contemporary art, scary medieval weapons, Gothic cloisters and wide-open space.`\
+https://nytimes.com/2023/03/27/travel/basque-country-spain-family-travel.html?searchResultPosition=4
 
-**Israeli Government’s Plan to Overhaul the Judiciary Sets Off a Crisis**\
-`Prime Minister Benjamin Netanyahu’s right-wing government contends the Supreme Court has unchecked power.`\
-https://nytimes.com/2023/03/27/world/middleeast/israel-judiciary-crisis-explainer.html?searchResultPosition=5
+**Reckoning with an Upbringing in a ‘Noah’s Ark’ of a Family, With ‘Two of Every Race’**\
+`Matthew Guterl’s parents wanted a family that embodied an integrated American future. The ‘experiment’ — his father’s word — had painfully mixed results.`\
+https://nytimes.com/2023/03/27/books/matthew-guterl-skinfolk.html?searchResultPosition=5
 
-**The Dual Education of Hakeem Jeffries**\
-`Shaped by Black Brooklyn and trained by Manhattan’s legal elite, the House Democrats’ new leader is not easily pigeonholed.`\
-https://nytimes.com/2023/03/27/nyregion/hakeem-jeffries-profile.html?searchResultPosition=6
+**Why Tiny Ponds and Singing Frogs Matter So Much**\
+`When we work to preserve frogs and salamanders — when we work to preserve any species — we are working to preserve life on earth as we know it.`\
+https://nytimes.com/2023/03/27/opinion/frogs-vernal-pools-ecosystem-climate.html?searchResultPosition=6
 
-**Clash Over Natives’ Graves Inflames Hochul’s Relationship With Tribes**\
-`After battles with previous governors, New York’s Native American leaders were hopeful for a reset with the new administration. Instead, the tensions have increased.`\
-https://nytimes.com/2023/03/27/nyregion/kathy-hochul-native-americans-graves.html?searchResultPosition=7
+**8 Places to Dazzle the Grandkids in Florida**\
+`Arm yourself with this list of child-friendly activities in the Palm Beach area and never hear the dreaded words “I’m so bored” again.`\
+https://nytimes.com/2023/03/27/travel/8-places-to-dazzle-the-grandkids-in-florida.html?searchResultPosition=7
 
-**‘Catastrophe’ for Poor New Yorkers as Pandemic Food Aid Ends**\
-`The Met Council, a major nonprofit, is calling for nearly $13 million in emergency city funding for food pantries.`\
-https://nytimes.com/2023/03/27/nyregion/food-stamps-snap-nyc.html?searchResultPosition=8
+**A Lighthouse to Call Your Own**\
+`A weekend at a family hostel in a light station on the California coast is filled with tide-pooling, stargazing and marking time by the beacon’s flash.`\
+https://nytimes.com/2023/03/27/travel/family-hostel-california-lighthouse.html?searchResultPosition=8
 
-**Finding Common Ground With the Commissioner**\
-`While interviewing Rob Manfred for his book about baseball, Joe Kelly, an outspoken reliever, realized their goals weren’t all that different.`\
-https://nytimes.com/2023/03/27/sports/baseball/joe-kelly-rob-manfred-book.html?searchResultPosition=9
+**Germany Wants More Chip Makers, but They Won’t Come Cheap**\
+`The global competition to attract semiconductor companies is expected to cost Berlin billions. Some wonder if it’s a good use of money.`\
+https://nytimes.com/2023/03/27/world/europe/germany-chips-subsidies.html?searchResultPosition=9
 
-**A Whole New (Old) Ballgame**\
-`With three major rule changes this season, Major League Baseball will try to reinvent itself while looking to the game’s past for inspiration.`\
-https://nytimes.com/2023/03/27/sports/baseball/rob-manfred-mlb-new-rules.html?searchResultPosition=10
+**Meet the Xi Jinping Loyalist Now Overseeing China’s Economy**\
+`He Lifeng’s long career in government has spanned the extremes of China’s approach, from the early embrace of small business in the 1980s to today’s tighter state control.`\
+https://nytimes.com/2023/03/27/business/xi-jinping-he-lifeng-china-economy.html?searchResultPosition=10
 
