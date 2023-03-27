@@ -1,4 +1,4 @@
-**Hoping for a Comeback in a Town With Nothing to Come Back to**\
+**Hoping for a Comeback in a Town With Nothing to Come Back To**\
 `Officials have vowed that Rolling Fork, Miss., ravaged by a tornado, will come back better than ever. But first people need food, water, shelter, medicine and life’s other necessities.`\
 https://nytimes.com/2023/03/27/us/tornado-storms-mississippi-rolling-fork.html?searchResultPosition=1
 
