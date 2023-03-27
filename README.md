@@ -2,7 +2,7 @@
 `Matt Wolking, who was part of the 2020 Trump campaign, will coordinate strategic communications for Never Back Down, a super PAC backing Gov. Ron DeSantis of Florida.`\
 https://nytimes.com/2023/03/27/us/politics/trump-desantis-super-pac.html?searchResultPosition=1
 
-**Deadly Shooting at Nashville Christian School**\
+**Deadly Shooting at a Christian School in Nashville**\
 `A Twitter user filmed law enforcement responding to a shooting at a private Christian school.`\
 https://nytimes.com/video/us/100000008831469/nashville-school-shooting.html?searchResultPosition=2
 
