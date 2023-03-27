@@ -1,6 +1,6 @@
 **Fed Vice Chair Calls Silicon Valley Bank a ‘Textbook Case of Mismanagement’**\
 `The Federal Reserve’s top bank cop blamed Silicon Valley Bank’s leaders, while previewing the cental bank’s review of its faulty oversight.`\
-https://nytimes.com/2023/03/27/business/economy/fed-silicon-valley-bank-case-of-mismanagement.html?searchResultPosition=1
+https://nytimes.com/2023/03/27/business/economy/fed-silicon-valley-bank-mismanagement.html?searchResultPosition=1
 
 **Review: In ‘Día y Noche,’ Opposites Intertwine**\
 `David Anzuelo’s generous, unwieldy play about an oil-and-water friendship between two high school boys opens at 59E59 Theaters.`\
