@@ -1,4 +1,4 @@
-**Senator Seeks Details of Colleges’ Deals With Betting Companies**\
+**Senator Seeks Details of Schools’ Deals With Betting Companies**\
 `Senator Richard Blumenthal, asserting that gambling causes “very real harm” to students, has asked 66 colleges to provide information about their marketing relationships with sportsbooks.`\
 https://nytimes.com/2023/03/27/sports/sports-gambling-universities.html?searchResultPosition=1
 
