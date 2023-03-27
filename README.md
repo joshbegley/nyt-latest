@@ -14,8 +14,8 @@ https://nytimes.com/2023/03/26/business/jet-dana-hyde-ntsb-report.html?searchRes
 `The Roy family is back for a fourth and final season, and everyone came out swinging. Let the humiliations begin.`\
 https://nytimes.com/2023/03/26/arts/television/succession-recap-season-4-premiere.html?searchResultPosition=4
 
-**Off Shooting Night Can’t Keep L.S.U. From the Final Four**\
-`Led by Alexis Morris and Angel Reese, the Tigers beat Miami to return to the Final Four for the first time since 2008.`\
+**Caitlin Clark Powers Iowa to the Final Four, While L.S.U. Gets Past Its Cold Shooting**\
+`Clark delivered a 41-point triple-double against Louisville to take Iowa to its second Final Four; Angel Reese recorded her 32nd double-double of the season to propel L.S.U. over Miami.`\
 https://nytimes.com/2023/03/26/sports/ncaabasketball/march-madness-sunday-women.html?searchResultPosition=5
 
 **Review: The Many Thrilling Flavors of a Full-Scale ‘Sweeney Todd’**\
