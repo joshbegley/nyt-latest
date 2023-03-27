@@ -15,7 +15,7 @@ https://nytimes.com/2023/03/27/us/nashville-shooting-covenant-school.html?search
 https://nytimes.com/2023/03/27/us/gwyneth-paltrow-trial-ski.html?searchResultPosition=4
 
 **Quiz: Become an Expert on A.I.**\
-`You read Part 1 of our weeklong series on artificial intelligence. Now test your knowledge.`\
+`You read <a href="https://www.nytimes.com/article/ai-artificial-intelligence-chatbot.html">Part 1 of our weeklong series on artificial intelligence.</a> Now test your knowledge.`\
 https://nytimes.com/interactive/2023/03/27/technology/ai-artificial-intelligence-expert-quiz.html?searchResultPosition=5
 
 **Artificial Intelligence Glossary: Neural Networks and Other Terms Explained**\
