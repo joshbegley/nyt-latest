@@ -18,7 +18,7 @@ https://nytimes.com/2023/03/27/world/europe/germany-transport-strike.html?search
 `Part 1 of our weeklong series.`\
 https://nytimes.com/article/ai-artificial-intelligence-chatbot.html?searchResultPosition=5
 
-**3 Children Dead in Shooting at Nashville Christian School, Hospital Says**\
+**5 Killed in Shooting at Christian School in Nashville, Hospital Says**\
 `The shooter died after police officers responded Monday morning at the Covenant School, the authorities said. Details remained sparse.`\
 https://nytimes.com/2023/03/27/us/nashville-shooting-covenant-school.html?searchResultPosition=6
 
