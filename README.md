@@ -27,7 +27,7 @@ https://nytimes.com/video/us/100000008831469/nashville-school-shooting.html?sear
 https://nytimes.com/2023/03/27/theater/james-brown-wore-curlers-review-yasmina-reza.html?searchResultPosition=7
 
 **Fox News Fires Producer Who Accused Network of Coercion**\
-`The producer, Abby Grossberg, has accused the network of pushing her to give a false deposition in a $1.6 billion defamation lawsuit.`\
+`The producer, Abby Grossberg, has said the network pushed her to give a false deposition in a $1.6 billion defamation lawsuit.`\
 https://nytimes.com/2023/03/27/business/media/fox-news-fires-producer-coercion.html?searchResultPosition=8
 
 **Man Exonerated in Alice Sebold Rape Case to Get $5.5 Million**\
