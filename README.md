@@ -3,7 +3,7 @@
 https://nytimes.com/2023/03/27/books/review/tanya-poems-brenda-shaughnessy.html?searchResultPosition=1
 
 **Lyft’s Co-Founders to Step Down as Company Struggles**\
-`It has been slow to bounce back from early pandemic problems even as the business of its much bigger rival, Uber, has improved.`\
+`Lyft has been slow to bounce back from early pandemic problems even as the business of its much bigger rival, Uber, has improved.`\
 https://nytimes.com/2023/03/27/technology/lyft-founders-resign.html?searchResultPosition=2
 
 **Gladys Kessler, Judge Who Curbed Deceptive Tobacco Ads, Dies at 85**\
