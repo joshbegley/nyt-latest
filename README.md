@@ -23,7 +23,7 @@ https://nytimes.com/2023/03/27/sports/sports-gambling-universities.html?searchRe
 https://nytimes.com/2023/03/27/opinion/ai-chatgpt-chatbots.html?searchResultPosition=6
 
 **The Covenant School is a small academy housed at a Presbyterian church.**\
-`By Sarah Mervosh`\
+`A mass shooting at a private school is rare; most recent high-profile cases have occurred at public schools.`\
 https://nytimes.com/2023/03/27/us/covenant-school-presbyterian-church-nashville.html?searchResultPosition=7
 
 **Senator Blumenthal Letter to Colleges and Universities**\
