@@ -22,8 +22,8 @@ https://nytimes.com/2023/03/27/arts/television/27perry-mason-recap-season-2-epis
 `Daniel Kantor and Jay Kaskel show you how they feel.`\
 https://nytimes.com/2023/03/27/crosswords/daily-puzzle-2023-03-28.html?searchResultPosition=6
 
-**South Carolina Pulls Away From Maryland for 3rd Straight Final Four**\
-`The Gamecocks wore down Maryland with their swarming defense, while Virginia Tech overpowered Ohio State to claim the last spot in Dallas.`\
+**South Carolina Powers to a Third Straight Final Four. Virginia Tech Makes Its First.**\
+`South Carolina wore down Maryland with its swarming defense, while Virginia Tech overpowered Ohio State to claim the last spot in Dallas.`\
 https://nytimes.com/2023/03/27/sports/ncaabasketball/march-madness-monday.html?searchResultPosition=7
 
 **Hoping for a Comeback in a Town With Little to Come Back To**\
