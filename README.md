@@ -2,7 +2,7 @@
 `Maryland led after a quarter, but the Gamecocks wore down the Terrapins with their swarming defense. South Carolina will face Iowa in a national semifinal.`\
 https://nytimes.com/2023/03/27/sports/ncaabasketball/march-madness-monday.html?searchResultPosition=1
 
-**Hoping for a Comeback in a Town With Nothing to Come Back To**\
+**Hoping for a Comeback in a Town With Little to Come Back To**\
 `Officials have vowed that Rolling Fork, Miss., ravaged by a tornado, will come back better than ever. But first people need food, water, shelter, medicine and life’s other necessities.`\
 https://nytimes.com/2023/03/27/us/tornado-storms-mississippi-rolling-fork.html?searchResultPosition=2
 
