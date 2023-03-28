@@ -1,5 +1,5 @@
 **Banking Regulators Prepare for Tough Questions from Lawmakers**\
-`Three top officials will testify in Congress today about the turmoil caused by the collapse of Silicon Valley Bank, and their role in it.`\
+`Three top officials will testify in Congress about the turmoil caused by the collapse of Silicon Valley Bank, and their role in it.`\
 https://nytimes.com/2023/03/28/business/dealbook/silicon-valley-bank.html?searchResultPosition=1
 
 **California Prepares for More Rain and Snow**\
