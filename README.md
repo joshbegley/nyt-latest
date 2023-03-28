@@ -16,7 +16,7 @@ https://nytimes.com/2023/03/28/arts/music/philip-glass-phelim-mcdermott-music.ht
 
 **Bankman-Fried Is Charged With Foreign Bribery**\
 `Federal prosecutors said Sam Bankman-Fried had instructed employees to pay a $40 million bribe to one or more Chinese officials to help unfreeze trading accounts maintained by FTX’s sister company.`\
-https://nytimes.com/2023/03/28/business/28ftx-bribery-chinese-charges.html?searchResultPosition=5
+https://nytimes.com/2023/03/28/business/ftx-sam-bankman-fried-bribery.html?searchResultPosition=5
 
 **King Charles Will Travel to Germany for First Visit as Monarch**\
 `Charles is set to begin his trip on Wednesday. He had planned to start the royal tour in France, but that leg was canceled because of the country’s ongoing protests.`\
