@@ -6,9 +6,9 @@ https://nytimes.com/video/us/100000008833532/nashville-shooting-firearms.html?se
 `Dodging a contentious debate on participation, Olympic officials instead issued rules that could allow athletes from Russia and Belarus to earn places in next year’s Games.`\
 https://nytimes.com/2023/03/28/sports/olympics/olympics-russia.html?searchResultPosition=2
 
-**Hearing takeaways: Bank failures spur a blame game, but few solutions.**\
-`By Alan Rappeport`\
-https://nytimes.com/2023/03/28/business/economy/hearing-takeaways-bank-failures-spur-a-blame-game-but-few-solutions.html?searchResultPosition=3
+**Silicon Valley Bank Hearing Takeaways: A Blame Game, but Few Solutions**\
+`Senators sharply questioned federal regulators about shortcomings in oversight after two bank failures rattled the financial system. Regulators put the blame on the banks’ management.`\
+https://nytimes.com/2023/03/28/business/economy/svb-hearing-bank-failure-takeaways.html?searchResultPosition=3
 
 **Spring Forward: Songs for a New Season**\
 `Hear a playlist tuned to rebirth, as well as the risk to bloom. Plus: a selection of tracks that explain our readers.`\
