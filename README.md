@@ -18,7 +18,7 @@ https://nytimes.com/2023/03/28/arts/music/bitches-brew-london-brew.html?searchRe
 `Deborah D.E.E.P. Mouton’s “Black Chameleon,” Laura Cathcart Robbins’s “Stash” and Christine Barker’s “Third Girl From the Left” offer stories of perseverance and ultimate triumph.`\
 https://nytimes.com/2023/03/28/books/review/new-memoirs.html?searchResultPosition=5
 
-**A Russian father flees amid a conviction that may keep his daughter in an orphanage.**\
+**A Russian father flees before a conviction that may keep his daughter in an orphanage.**\
 `Aleksei Moskalyov was convicted over antiwar comments on social media that came to light after his daughter made a drawing at school.`\
 https://nytimes.com/2023/03/28/world/europe/moskalyov-verdict-russia-daughter-custody.html?searchResultPosition=6
 
