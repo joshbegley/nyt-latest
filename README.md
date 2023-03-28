@@ -1,6 +1,6 @@
 **Pence Must Testify to Jan. 6 Grand Jury, Judge Rules**\
 `The ruling in Washington was the latest setback to efforts by former President Donald J. Trump’s legal team to limit testimony to grand juries investigating him on various matters.`\
-https://nytimes.com/2023/03/28/us/politics/pence-trump-jan-6.html?searchResultPosition=1
+https://nytimes.com/2023/03/28/us/politics/pence-testify-jan-6-grand-jury.html?searchResultPosition=1
 
 **He Wanted to Unclog Cities. Now He’s ‘Public Enemy No. 1’**\
 `Researchers like Carlos Moreno, the professor behind a popular urban planning concept, are struggling with conspiracy theories and death threats.`\
