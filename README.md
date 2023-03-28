@@ -7,8 +7,8 @@ https://nytimes.com/2023/03/28/us/politics/biden-economy.html?searchResultPositi
 https://nytimes.com/2023/03/28/nyregion/mta-congestion-pricing-pollution-bronx.html?searchResultPosition=2
 
 **The Nashville shooting response draws comparisons to Uvalde, but there are key differences.**\
-`the situations that officers confronted upon arriving at each school were not the same.`\
-https://nytimes.com/2023/03/28/us/the-nashville-shooting-response-draws-comparisons-to-uvalde-but-there-are-key-differences.html?searchResultPosition=3
+`In both instances, officers rushed to the scenes and immediately entered the schools. But the situations that they confronted were not the same.`\
+https://nytimes.com/2023/03/28/us/nashville-uvalde-school-shooting-response.html?searchResultPosition=3
 
 **Randall Robinson, Anti-Apartheid Catalyst, Is Dead at 81**\
 `He also supported reparations for descendants of enslaved Americans and sanctuary for Haitian refugees. But he lived for two decades in self-imposed exile.`\
