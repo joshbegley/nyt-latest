@@ -22,7 +22,7 @@ https://nytimes.com/2023/03/28/technology/tiktok-users-defend-app.html?searchRes
 `Energy from Earth’s crust is renewable and clean. Here’s where it’s hot, and where it’s not.`\
 https://nytimes.com/2023/03/28/climate/geothermal-energy.html?searchResultPosition=6
 
-**Over-the-Counter Narcan Could Save More Lives. But Price and Stigma Are Obstacles**\
+**Over-the-Counter Narcan Could Save More Lives. But Price and Stigma Are Obstacles.**\
 `The Food and Drug Administration is expected this week to allow the overdose-reversal medication to be sold without a prescription, a step toward making it a common emergency tool.`\
 https://nytimes.com/2023/03/28/health/narcan-otc-price.html?searchResultPosition=7
 
