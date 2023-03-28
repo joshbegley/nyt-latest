@@ -35,6 +35,6 @@ https://nytimes.com/2023/03/28/us/politics/artificial-intelligence-2024-campaign
 https://nytimes.com/2023/03/28/opinion/letters/gun-violence.html?searchResultPosition=9
 
 **Lawmakers Rebuke Biden for Bypassing Congress in Trade Deal With Japan**\
-`Lawmakers called the Biden administration’s deal “unacceptable,” saying it should have been made available to Congress and the public for review.`\
+`A statement from two Democrats called the Biden administration’s deal “unacceptable,” saying it should have been made available to Congress and the public for review.`\
 https://nytimes.com/2023/03/28/business/economy/us-japan-battery-trade-deal.html?searchResultPosition=10
 
