@@ -31,7 +31,7 @@ https://nytimes.com/2023/03/28/business/dealbook/silicon-valley-bank.html?search
 https://nytimes.com/2023/03/28/us/california-oregon-storm-weather.html?searchResultPosition=8
 
 **Fire in Mexico Kills at Least 39 in Migration Center Near U.S. Border**\
-`The cause of the fire at the National Migration Institute in Ciudad Juárez, a border city near Texas, was not immediately clear.`\
+`President Andrés Manuel López Obrador said the blaze at the National Migration Institute in Ciudad Juárez, a border city near Texas, was the result of a protest by migrants who were set to be deported.`\
 https://nytimes.com/2023/03/28/world/americas/mexico-fire-ciudad-juarez.html?searchResultPosition=9
 
 **A Win for Israel’s Protesters**\
