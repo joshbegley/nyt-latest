@@ -6,8 +6,8 @@ https://nytimes.com/2023/03/28/us/politics/september-11-plea-deal-guantanamo.htm
 `Quotation of the Day for Tuesday, March 28, 2023.`\
 https://nytimes.com/2023/03/28/pageoneplus/quotation-of-the-day-this-einstein-was-a-math-puzzle-to-be-solved.html?searchResultPosition=2
 
-**With Judicial Overhaul Paused, U.S. Offers Olive Branch to Netanyahu**\
-`News that Prime Minister Benjamin Netanyahu had been invited to Washington came a day after the Israeli leader delayed plans to limit the power of the courts and signaled a calmer atmosphere.`\
+**With Judicial Overhaul Paused, U.S. Softens Tone on Netanyahu**\
+`News that Prime Minister Benjamin Netanyahu would be welcomed in Washington came a day after the Israeli leader delayed plans to limit the power of the courts and signaled a calmer atmosphere.`\
 https://nytimes.com/2023/03/28/world/middleeast/israel-netanyahu-judicial-overhaul.html?searchResultPosition=3
 
 **Banking Regulators Prepare for Tough Questions from Lawmakers**\
