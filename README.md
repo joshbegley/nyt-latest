@@ -19,7 +19,7 @@ https://nytimes.com/2023/03/27/arts/television/27perry-mason-recap-season-2-epis
 https://nytimes.com/2023/03/27/crosswords/daily-puzzle-2023-03-28.html?searchResultPosition=5
 
 **South Carolina Pulls Away From Maryland for 3rd Straight Final Four**\
-`Maryland led after a quarter, but the Gamecocks wore down the Terrapins with their swarming defense. South Carolina will face Iowa in a national semifinal.`\
+`The Gamecocks wore down Maryland with their swarming defense, while Virginia Tech overpowered Ohio State to claim the last spot in Dallas.`\
 https://nytimes.com/2023/03/27/sports/ncaabasketball/march-madness-monday.html?searchResultPosition=6
 
 **Hoping for a Comeback in a Town With Little to Come Back To**\
