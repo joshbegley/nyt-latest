@@ -2,7 +2,7 @@
 `As a Black man from a relatively comfortable background, I preferred stories that taught me about other people.`\
 https://nytimes.com/2023/03/28/opinion/black-representation-television-books.html?searchResultPosition=1
 
-**Appeals Court Reinstates Adnan Syed’s Murder Conviction in ‘Serial’ Case**\
+**Court Reinstates Adnan Syed’s Murder Conviction in ‘Serial’ Case and Orders New Hearing**\
 `The Appellate Court of Maryland ruled that a lower court had violated the right of the victim’s brother to have been notified of and to attend a hearing.`\
 https://nytimes.com/2023/03/28/us/adan-syed-serial-conviction-reinstated.html?searchResultPosition=2
 
