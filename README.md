@@ -1,40 +1,40 @@
-**Alexander Skarsgard Explains the Answer to Everything. (It Involves Doing Some Math.)**\
-`It’s time to completely rethink how we measure our economic success.`\
-https://nytimes.com/video/opinion/100000008794874/alexander-skarsgard-partha-dasgupta-economy.html?searchResultPosition=1
+**We Will Never Reach Peak Croissant**\
+`Ten years after the Cronut, croissants are still taking on new shapes, sporting swirls and stripes and drawing crowds.`\
+https://nytimes.com/2023/03/28/dining/croissant-types.html?searchResultPosition=1
 
-**Bracing for More Protests, France Is Caught in a Tense Impasse**\
-`Neither President Emmanuel Macron nor opponents of his pension overhaul were ready to back down on a new day of strikes and marches, with fears of rising anger and violence.`\
-https://nytimes.com/2023/03/28/world/europe/france-protests-pensions-macron.html?searchResultPosition=2
+**‘We’re Going Away’: A State’s Choice to Forgo Medicaid Funds Is Killing Hospitals**\
+`Mississippi is one of 10 states, all with Republican-led legislatures, that continue to reject federal funding to expand health insurance for the poor, intensifying financial pressure on hospitals.`\
+https://nytimes.com/2023/03/28/us/politics/mississippi-medicaid-hospitals.html?searchResultPosition=2
 
-**Math Lesson: Investigating Houston’s Strategy to End Homelessness**\
-`In this lesson, students will use scatter plots and line of best fit to compare rates of homelessness in four American cities. Then they’ll find out what one city is doing to tackle the problem.`\
-https://nytimes.com/2023/03/28/learning/lesson-plans/math-lesson-investigating-houstons-strategy-to-end-homelessness.html?searchResultPosition=3
+**Why You Need Window Blinds (Even if You Don’t Think So)**\
+`Designers consider window shades and blinds essential for many reasons. But there are so many options — how do you choose the right ones?`\
+https://nytimes.com/2023/03/28/realestate/window-blinds-coverings.html?searchResultPosition=3
 
-**Elusive ‘Einstein’ Solves a Longstanding Math Problem**\
-`And it all began with a hobbyist “messing about and experimenting with shapes.”`\
-https://nytimes.com/2023/03/28/science/mathematics-tiling-einstein.html?searchResultPosition=4
+**When Your Family Becomes a Noah’s Ark-Style Experiment With Race**\
+`In his memoir, “Skinfolk,” Matthew Pratt Guterl chronicles his life growing up in a multiracial family in suburban New Jersey.`\
+https://nytimes.com/2023/03/28/books/review/skinfolk-matthew-pratt-guterl.html?searchResultPosition=4
 
-**No Longer at Starbucks Helm, Howard Schultz Is the Focus at Labor Hearing**\
-`After giving up the chief executive’s job (again), Mr. Schultz still casts a long shadow over Starbucks’ policy, not least in fighting unionization.`\
-https://nytimes.com/2023/03/28/business/starbucks-howard-schultz-senate.html?searchResultPosition=5
+**Where Everybody Knows Your Name. Seriously.**\
+`If your name is Ryan, there is a party for you. And no one else.`\
+https://nytimes.com/2023/03/28/nyregion/ryan-meetup-nyc.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/03/28/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**A Plan to Lift the Fog of War in Ukraine? It’s in the Cards.**\
+`To help soldiers quickly distinguish friend from foe, the Pentagon is issuing playing cards with pictures of 52 different NATO weapons systems.`\
+https://nytimes.com/2023/03/28/world/europe/ukraine-cards-nato-weapons.html?searchResultPosition=6
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/03/28/crosswords/wordle-review-answer-647.html?searchResultPosition=7
+**Plan B for Fixing Penn Station Would Wrap Madison Square Garden in Glass**\
+`The previous proposal to help pay for the renovation of the station, which could cost up to $10 billion in state funds, has been shelved.`\
+https://nytimes.com/2023/03/28/nyregion/penn-station-hochul-nyc.html?searchResultPosition=7
 
-**Mindfulness**\
-`When are you most focused and present?`\
-https://nytimes.com/2023/03/28/learning/mindfulness.html?searchResultPosition=8
+**Torture and Turmoil at Ukrainian Nuclear Plant: An Insider’s Account**\
+`The former director of Europe’s largest nuclear facility describes abuse of Ukrainian workers and careless practices by the Russians who took control of the plant.`\
+https://nytimes.com/2023/03/28/world/europe/ukraine-zaporizhzhia-nuclear-plant-grossi.html?searchResultPosition=8
 
-**Late Night Recaps Donald Trump’s Waco Rally**\
-`Hosts raised their eyebrows over the former president’s choice  of venue, near the Texas compound where the Branch Davidian cult met with disaster 30 years ago.`\
-https://nytimes.com/2023/03/28/arts/television/late-night-trump-waco-rally.html?searchResultPosition=9
+**Trump’s Legal Jeopardy and America’s Political Crossroads**\
+`David French takes stock of the cases involving the ex-president and the challenges they present to the political system.`\
+https://nytimes.com/2023/03/28/opinion/ezra-klein-podcast-david-french.html?searchResultPosition=9
 
-**A First Step Toward Mandatory Composting**\
-`New York plans to require composting of yard waste, like leaves, twigs and grass clippings.`\
-https://nytimes.com/2023/03/28/nyregion/a-first-step-toward-mandatory-composting.html?searchResultPosition=10
+**The Agony of Putting Your Life on Hold to Care for Your Parents**\
+`Randi Schofield is the sole provider for an ailing father and, at the same time, for her own children — a situation now common among Americans in their 30s and 40s.`\
+https://nytimes.com/2023/03/28/magazine/elder-child-care-millennials.html?searchResultPosition=10
 
