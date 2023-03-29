@@ -2,8 +2,8 @@
 `A Tudor Revival house in Seattle, a 2021 home in Santa Fe and a circa 1750 Colonial in Concord.`\
 https://nytimes.com/2023/03/29/realestate/home-prices-washington-new-mexico-massachusetts.html?searchResultPosition=1
 
-**Macy’s Announces a Coming Leadership Change**\
-`Tony Spring, who runs Bloomingdale’s, will replace Jeff Gennette as C.E.O. in February. Mr. Gennette has led the chain since 2017.`\
+**Macy’s C.E.O. Jeff Gennette to Depart**\
+`Tony Spring, who runs Bloomingdale’s, will replace Jeff Gennette as chief executive in February. Mr. Gennette has led the chain since 2017.`\
 https://nytimes.com/2023/03/29/business/macys-tony-spring-jeff-gennette.html?searchResultPosition=2
 
 **Obamacare Keeps Winning**\
