@@ -34,7 +34,7 @@ https://nytimes.com/2023/03/29/world/europe/ukraine-zaporizhzhia-fighting.html?s
 `The change comes as members of Congress have called for the justices to be held to ethics standards similar to those for the executive and legislative branches.`\
 https://nytimes.com/2023/03/29/us/politics/supreme-court-trips-gifts-disclosures.html?searchResultPosition=9
 
-**Prayer Can Be the Prerequisite to Action**\
+**In the Face of Tragedy, Petitioning God Is an Act of Faith**\
 `‘We’re praying for you’ has been ridiculed as an empty phrase. But it can be an incitement to action rather than an excuse for inaction.`\
 https://nytimes.com/2023/03/29/opinion/nashville-shooting-prayer.html?searchResultPosition=10
 
