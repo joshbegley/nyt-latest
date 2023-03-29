@@ -27,7 +27,7 @@ https://nytimes.com/2023/03/29/style/splitting-check-with-boss.html?searchResult
 https://nytimes.com/interactive/2023/03/29/health/narcan-reverse-overdose.html?searchResultPosition=7
 
 **10 Questions About Narcan**\
-`The F.D.A.’s decision to allow the overdose-reversing nasal spray to be sold over the counter means it will become much more widely available.`\
+`The F.D.A.’s decision to allow the overdose-reversing nasal spray to be sold over the counter means it will become much more widely available. Here is some guidance for using it correctly.`\
 https://nytimes.com/2023/03/29/health/narcan-naloxone-opioids-questions.html?searchResultPosition=8
 
 **How to Use Narcan Nasal Spray**\
