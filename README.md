@@ -1,6 +1,6 @@
 **Indictments Issued in the Deaths of Men Drugged at Gay Bars and Robbed**\
 `Assailants used facial recognition to unlock phones and then looted financial accounts. The crimes, which occurred in Hell’s Kitchen, spread fear in New York’s nightlife.`\
-https://nytimes.com/2023/03/29/nyregion/nyc-fatal-overdoses-gay-bars-homicide.html?searchResultPosition=1
+https://nytimes.com/2023/03/29/nyregion/indictments-nyc-gay-bars-homicide.html?searchResultPosition=1
 
 **Defending Starbucks, Schultz Spars With Party That Once Embraced Him**\
 `Howard Schultz faced rancor from Senate Democrats at a hearing where he chafed at “propaganda that is floating around” about company labor practices.`\
