@@ -6,7 +6,7 @@ https://nytimes.com/2023/03/29/sports/sports-betting-universities-pointsbet-caes
 `Eric Adams, who ran for mayor on a pledge to make it easier for poor New Yorkers to access city services, introduced an online portal called “MyCity.”`\
 https://nytimes.com/2023/03/29/nyregion/mycity-child-care-adams.html?searchResultPosition=2
 
-**G.O.P. Lawmakers Override Governor’s Veto on Anti-Trans Laws**\
+**G.O.P. Lawmakers Override Kentucky Governor’s Veto on Anti-Trans Laws**\
 `Republican legislators voted overwhelmingly on Wednesday to enact a bill that places new restrictions on transgender youth, including banning access to transition care.`\
 https://nytimes.com/2023/03/29/us/kentucky-anti-transgender-bill.html?searchResultPosition=3
 
