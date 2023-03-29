@@ -18,23 +18,23 @@ https://nytimes.com/2023/03/29/nyregion/hochul-renewable-energy-aoc.html?searchR
 `Former and current staff members said they were fighting the decision to shut down the publication, a bastion of liberal opinion and investigative journalism in a red state.`\
 https://nytimes.com/2023/03/29/us/texas-observer-closing.html?searchResultPosition=5
 
+**Putin’s top security adviser holds talks with India’s prime minister as Moscow seeks closer ties.**\
+`The Russian envoy was accompanied by a Russian oil executive, who signed new deals with India.`\
+https://nytimes.com/2023/03/29/world/europe/putins-top-security-adviser-holds-talks-with-indias-prime-minister-as-moscow-seeks-closer-ties.html?searchResultPosition=6
+
 **Money Is Up. Patriotism and Religion Are Down.**\
 `A new survey revealed a striking decline in traditional American values. What should we make of it?`\
-https://nytimes.com/2023/03/29/opinion/money-is-up-patriotism-and-religion-are-down.html?searchResultPosition=6
+https://nytimes.com/2023/03/29/opinion/money-is-up-patriotism-and-religion-are-down.html?searchResultPosition=7
 
 **Two Black Men, One Shot in the Mouth, Plan to Sue Mississippi Deputies**\
 `“The gun was placed inside of his mouth” during a house raid in January, Malik Shabazz, a lawyer for the men, said.`\
-https://nytimes.com/2023/03/29/us/mississippi-sheriff-lawsuit-rankin-county.html?searchResultPosition=7
+https://nytimes.com/2023/03/29/us/mississippi-sheriff-lawsuit-rankin-county.html?searchResultPosition=8
 
 **At New Directors/New Films, See the World Through Perceptive Filmmakers’ Eyes**\
 `“Earth Mama,” “Tótem” and other strong entries offer proof that the art form is flourishing regardless of what’s happening in Hollywood.`\
-https://nytimes.com/2023/03/29/movies/new-directors-new-films-festival.html?searchResultPosition=8
+https://nytimes.com/2023/03/29/movies/new-directors-new-films-festival.html?searchResultPosition=9
 
 **D.M. Thomas, 88, Dies; His ‘White Hotel’ Was a Surprise Best Seller**\
 `A former English teacher with a modest writing career in Britain, he found fame in 1981 with an inventive story of an opera singer, Freud and the Holocaust.`\
-https://nytimes.com/2023/03/29/books/dm-thomas-dead.html?searchResultPosition=9
-
-**Lake Mead Remains Belong to Man Who Drowned in the ’70s, Authorities Say**\
-`The remains found in October were identified as those of Donald P. Smith, who officials said died by accidental drowning.`\
-https://nytimes.com/2023/03/29/us/lake-mead-human-remains.html?searchResultPosition=10
+https://nytimes.com/2023/03/29/books/dm-thomas-dead.html?searchResultPosition=10
 
