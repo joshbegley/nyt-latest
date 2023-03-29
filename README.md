@@ -1,5 +1,5 @@
 **Taiwan’s President Heads to the U.S., Bracing for China’s Retaliation**\
-`President Tsai Ing-wen is expected to meet Speaker Kevin McCarthy next week, risking a show of force from China, which opposes any such exchanges.`\
+`President Tsai Ing-wen is expected to meet Speaker Kevin McCarthy next week, risking a show of force from Beijing, which opposes any such exchanges.`\
 https://nytimes.com/2023/03/29/world/asia/taiwan-president-us-china.html?searchResultPosition=1
 
 **Hakeem Jeffries’s Path to Power in the House**\
