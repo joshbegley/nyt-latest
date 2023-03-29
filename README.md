@@ -22,7 +22,7 @@ https://nytimes.com/2023/03/29/us/supreme-court-mercenary-confrontation-clause.h
 `Also, a plea for a pause on A.I. and a U.N. resolution on climate lawsuits.`\
 https://nytimes.com/2023/03/29/briefing/narendra-modi-elon-musk-vanuatu.html?searchResultPosition=6
 
-**Federal Court Lifts Hold on 108 Cannabis Licenses in New York**\
+**Court Lifts Ban on Legal Weed Shops in Brooklyn, Buffalo and Beyond**\
 `The decision lets regulators issue licenses in some of the state’s most populated areas, but 18 remain on hold as judges prepare to hear arguments.`\
 https://nytimes.com/2023/03/29/nyregion/cannabis-licenses-marijuana.html?searchResultPosition=7
 
