@@ -1,40 +1,40 @@
+**Walter Cole, Who Dazzled as Darcelle, the World’s Oldest Drag Performer, Dies at 92**\
+`He turned a run-down tavern into a drag cabaret that became a hub and a fund-raising powerhouse for the L.G.B.T.Q. community as well as a beloved Portland, Ore., institution.`\
+https://nytimes.com/2023/03/29/arts/walter-cole-dead.html?searchResultPosition=1
+
 **Several Face Charges in Killings of Gay Men Who Were Drugged and Robbed**\
 `Assailants used facial recognition to unlock phones and then looted financial accounts. The crimes, which occurred in Hell’s Kitchen, spread fear in New York’s nightlife.`\
-https://nytimes.com/2023/03/29/nyregion/indictments-nyc-gay-bars-homicide.html?searchResultPosition=1
+https://nytimes.com/2023/03/29/nyregion/indictments-nyc-gay-bars-homicide.html?searchResultPosition=2
 
 **Defending Starbucks, Schultz Spars With Party That Once Embraced Him**\
 `Howard Schultz faced rancor from Senate Democrats at a hearing where he chafed at “propaganda that is floating around” about company labor practices.`\
-https://nytimes.com/2023/03/29/business/economy/starbucks-howard-schultz-senate.html?searchResultPosition=2
+https://nytimes.com/2023/03/29/business/economy/starbucks-howard-schultz-senate.html?searchResultPosition=3
 
 **Your Wednesday Evening Briefing**\
 `Here’s what you need to know at the end of the day.`\
-https://nytimes.com/2023/03/29/briefing/us-israel-kentucky-legilators-veto-ai.html?searchResultPosition=3
+https://nytimes.com/2023/03/29/briefing/us-israel-kentucky-legilators-veto-ai.html?searchResultPosition=4
 
 **Trump Says the Justice System Has Been Weaponized. He Would Know.**\
 `The former president is attempting to cast the investigations into his actions as politically motivated uses of the justice system. In office, he regularly sought to use government powers against his foes.`\
-https://nytimes.com/2023/03/29/us/politics/trump-justice-system-weaponized.html?searchResultPosition=4
+https://nytimes.com/2023/03/29/us/politics/trump-justice-system-weaponized.html?searchResultPosition=5
 
 **When in Doubt, Tweak the Logo**\
 `It’s a classic move in the fashion playbook when trying to signal a new direction or herald a new designer. But are shifting sensibilities leading more brands to reconsider the humble serif?`\
-https://nytimes.com/2023/03/29/style/logo-design-fashion-brands.html?searchResultPosition=5
+https://nytimes.com/2023/03/29/style/logo-design-fashion-brands.html?searchResultPosition=6
 
 **Facing Criticism, a Gambling Company and a University End Their Deal**\
 `The decision by PointsBet and University of Colorado Boulder came as the industry released guidelines meant to limit how sports betting is marketed on campus.`\
-https://nytimes.com/2023/03/29/sports/sports-betting-universities-pointsbet-caesars.html?searchResultPosition=6
+https://nytimes.com/2023/03/29/sports/sports-betting-universities-pointsbet-caesars.html?searchResultPosition=7
 
 **New York City Unveils ‘User-Friendly’ Way to Find Child Care Help**\
 `Eric Adams, who ran for mayor on a pledge to make it easier for poor New Yorkers to access city services, introduced an online portal called “MyCity.”`\
-https://nytimes.com/2023/03/29/nyregion/mycity-child-care-adams.html?searchResultPosition=7
+https://nytimes.com/2023/03/29/nyregion/mycity-child-care-adams.html?searchResultPosition=8
 
 **G.O.P. Lawmakers Override Kentucky Governor’s Veto on Anti-Trans Laws**\
 `Republican legislators voted overwhelmingly on Wednesday to enact a bill that places new restrictions on transgender youth, including banning access to transition care.`\
-https://nytimes.com/2023/03/29/us/kentucky-anti-transgender-bill.html?searchResultPosition=8
+https://nytimes.com/2023/03/29/us/kentucky-anti-transgender-bill.html?searchResultPosition=9
 
 **Prosecutor Behind ‘Rust’ Charges Steps Aside, Appointing Replacements**\
 `The involuntary manslaughter case against Alec Baldwin has suffered setbacks, and now the district attorney has withdrawn from the case and named two special prosecutors.`\
-https://nytimes.com/2023/03/29/movies/alec-baldwin-rust-special-prosecutor.html?searchResultPosition=9
-
-**Supreme Court Considers a Mercenary’s Confession and the Confrontation Clause**\
-`In the case of a murder in the Philippines, the justices weighed whether relaying a confession that implicated another crossed a constitutional line.`\
-https://nytimes.com/2023/03/29/us/supreme-court-mercenary-confrontation-clause.html?searchResultPosition=10
+https://nytimes.com/2023/03/29/movies/alec-baldwin-rust-special-prosecutor.html?searchResultPosition=10
 
