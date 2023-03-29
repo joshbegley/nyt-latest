@@ -1,6 +1,6 @@
 **Elon Musk and Others Call for Pause on A.I., Citing ‘Profound Risks to Society’**\
 `More than 1,000 tech leaders, researchers and others signed an open letter that urged a moratorium on the development of the most powerful artificial intelligence systems.`\
-https://nytimes.com/2023/03/29/business/ai-artificial-intelligence-musk-risks.html?searchResultPosition=1
+https://nytimes.com/2023/03/29/technology/ai-artificial-intelligence-musk-risks.html?searchResultPosition=1
 
 **How to Enhance Your Run With Diaphragmatic Breathing**\
 `If you’re not using your diaphragm efficiently, you’re not getting the most out of your workout, experts say.`\
