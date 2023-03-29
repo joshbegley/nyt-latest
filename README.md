@@ -26,7 +26,7 @@ https://nytimes.com/2023/03/29/style/splitting-check-with-boss.html?searchResult
 `Narcan and other naloxone nasal sprays swiftly reverse an opioid overdose and are easy to use.`\
 https://nytimes.com/interactive/2023/03/29/health/narcan-reverse-overdose.html?searchResultPosition=7
 
-**Ten Questions About Narcan**\
+**10 Questions About Narcan**\
 `The F.D.A.’s decision to allow the overdose-reversing nasal spray to be sold over the counter means it will become much more widely available.`\
 https://nytimes.com/2023/03/29/health/narcan-naloxone-opioids-questions.html?searchResultPosition=8
 
