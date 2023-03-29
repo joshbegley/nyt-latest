@@ -30,7 +30,7 @@ https://nytimes.com/2023/03/29/world/asia/modi-india-gandhi-judiciary.html?searc
 `This week’s chapter is unusually disjointed even by the standards of this season, in which nearly every episode has sometimes bounced awkwardly between multiple plotlines.`\
 https://nytimes.com/2023/03/29/arts/television/the-mandalorian-season-3-episode-5-recap.html?searchResultPosition=8
 
-**Pamela Smart, Who Inspired ‘To Die For,’ Denied Parole Bid**\
+**Pamela Smart, Who Inspired ‘To Die For,’ Is Denied Parole Bid**\
 `New Hampshire’s highest court turned away an attempt at winning a hearing for Ms. Smart, who plotted to have a teenage lover kill her husband.`\
 https://nytimes.com/2023/03/29/nyregion/pamela-smart-husband-killing.html?searchResultPosition=9
 
