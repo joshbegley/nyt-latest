@@ -1,5 +1,5 @@
 **Pope Francis, 86, Enters a Hospital for Tests**\
-`The Vatican said the medical tests were planned, but it did describe the tests or say how long he might stay.`\
+`The Vatican said the medical tests were planned, but it did not describe the tests or say how long he might stay.`\
 https://nytimes.com/2023/03/29/world/europe/pope-francis-hospital-tests.html?searchResultPosition=1
 
 **Even as U.S. Beckons, European Leaders Head to Beijing**\
