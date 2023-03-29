@@ -34,7 +34,7 @@ https://nytimes.com/video/health/100000008821323/narcan-instructions-drug-overdo
 `The nasal spray reverses opioid overdoses and public health officials hope that making it more widely available could save lives and reduce the nation’s high rates of drug fatalities.`\
 https://nytimes.com/2023/03/29/health/narcan-over-the-counter.html?searchResultPosition=9
 
-**UBS Taps an Ex-C.E.O. to ‘Pilot’ its Takeover of Credit Suisse**\
-`Sergio Ermotti helped the bank recover after the 2008 financial crisis, but faces a tougher task this time around.`\
+**UBS Taps an Ex-C.E.O. to ‘Pilot’ Its Takeover of Credit Suisse**\
+`Sergio Ermotti helped the bank recover after the 2008 financial crisis, but faces a tougher task this time.`\
 https://nytimes.com/2023/03/29/business/dealbook/ubs-credit-suisse-sergio-ermotti.html?searchResultPosition=10
 
