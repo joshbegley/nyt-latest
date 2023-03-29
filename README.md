@@ -1,4 +1,4 @@
-**Indictments Issued in the Deaths of Men Drugged at Gay Bars and Robbed**\
+**Several Face Charges in Killings of Gay Men Who Were Drugged and Robbed**\
 `Assailants used facial recognition to unlock phones and then looted financial accounts. The crimes, which occurred in Hell’s Kitchen, spread fear in New York’s nightlife.`\
 https://nytimes.com/2023/03/29/nyregion/indictments-nyc-gay-bars-homicide.html?searchResultPosition=1
 
