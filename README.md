@@ -27,7 +27,7 @@ https://nytimes.com/2023/03/29/world/asia/modi-india-gandhi-judiciary.html?searc
 https://nytimes.com/2023/03/29/arts/television/the-mandalorian-season-3-episode-5-recap.html?searchResultPosition=7
 
 **Pamela Smart, Who Inspired ‘To Die For,’ Denied Parole Bid**\
-`Ms. Smart, who plotted to have a teenage lover kill her husband, is held in New York but subject to New Hampshire’s laws where the crime occurred. That state’s highest court denied her attempt to win parole.`\
+`New Hampshire’s highest court turned away an attempt at winning a hearing for Ms. Smart, who plotted to have a teenage lover kill her husband.`\
 https://nytimes.com/2023/03/29/nyregion/pamela-smart-husband-killing.html?searchResultPosition=8
 
 **Amsterdam Has a Message for Male Tourists From the U.K.: ‘Stay Away’**\
