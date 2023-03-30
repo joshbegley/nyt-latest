@@ -1,1 +1,1 @@
-**Who Is Riley Keough?**\
+**Brett Goldstein Faces Life After ‘Ted Lasso’**\
