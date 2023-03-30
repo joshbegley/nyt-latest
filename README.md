@@ -4,7 +4,7 @@ https://nytimes.com/2023/03/30/us/lolita-orca-whale-return-home.html?searchResul
 
 **Trump denounces indictment as ‘political persecution.’**\
 `Donald J. Trump’s statement echoed what has been an extraordinary and blistering effort to try to prevent the Manhattan district attorney, Alvin L. Bragg, from indicting him.`\
-https://nytimes.com/2023/03/30/nyregion/trump-denounces-indictment-as-political-persecution.html?searchResultPosition=2
+https://nytimes.com/2023/03/30/nyregion/trump-indictment-response.html?searchResultPosition=2
 
 **In Berlin, King Charles lauds Germany’s support for Ukraine.**\
 `‘Together we must be vigilant against threats to our values,’ the British monarch said to German lawmakers.`\
