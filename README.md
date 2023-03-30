@@ -1,4 +1,4 @@
-**Starbucks Founder Faces Senate Questions on Union Practices**\
+**Starbucks Leader Faces Senate Questions on Union Practices**\
 `Howard Schultz, the former chief executive of Starbucks, said it paid a higher minimum wage than that offered in the home states of some senators at the hearing.`\
 https://nytimes.com/video/us/politics/100000008836493/howard-schultz-starbucks-union-senate.html?searchResultPosition=1
 
