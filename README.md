@@ -1,1 +1,1 @@
-**Brett Goldstein Faces Life After ‘Ted Lasso’**\
+**How the Indian Action Spectacular ‘RRR’ Became a Smash in America**\
