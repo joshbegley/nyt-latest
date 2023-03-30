@@ -1,5 +1,5 @@
 **Russia detains a Wall Street Journal reporter, accusing him of espionage.**\
-`Russia’s F.S.B. security service said that the American journalist Evan Gershkovich was detained in Yekaterinburg, a city in Russia’s Ural Mountains.`\
+`The F.S.B. security service, a successor to the K.G.B., said that the American journalist Evan Gershkovich had been detained in Yekaterinburg, a city about 900 miles east of Moscow.`\
 https://nytimes.com/2023/03/30/world/europe/russia-wsj-reporter-detained-gershkovich.html?searchResultPosition=1
 
 **The Undoing of Guo Wengui, Billionaire Accused of Fraud on 2 Continents**\
