@@ -20,7 +20,7 @@ https://nytimes.com/2023/03/30/us/politics/desantis-dustin-carmack-adviser.html?
 
 **The jury finds Gwyneth Paltrow not liable in damages over the crash.**\
 `The verdict came after more than a week of testimony that covered skiing etiquette, medical history and celebrity culture.`\
-https://nytimes.com/2023/03/30/us/gwyneth-paltrow-trial-verdict.html?searchResultPosition=6
+https://nytimes.com/live/2023/03/30/us/gwyneth-paltrow-trial/gwyneth-paltrow-trial-verdict?searchResultPosition=6
 
 **Your Thursday Evening Briefing**\
 `Here’s what you need to know at the end of the day.`\
