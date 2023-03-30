@@ -26,7 +26,7 @@ https://nytimes.com/2023/03/30/nyregion/trump-indictment-response.html?searchRes
 `“Together we must be vigilant against threats to our values,” the British monarch said to German lawmakers.`\
 https://nytimes.com/2023/03/30/world/europe/king-charles-germany-ukraine.html?searchResultPosition=7
 
-**Even a President Should Be Held Accountable**\
+**Even Donald Trump Should Be Held Accountable**\
 `A grand jury’s decision to indict Donald Trump is a necessary part of the American justice system.`\
 https://nytimes.com/2023/03/30/opinion/trump-indicted.html?searchResultPosition=8
 
