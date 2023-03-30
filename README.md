@@ -1,4 +1,4 @@
-**At Mar-a-Lago, Trump’s Camp is Caught Off Guard**\
+**At Mar-a-Lago, Trump’s Camp Is Caught Off Guard**\
 `The former president’s aides had believed that any action by the grand jury was still weeks away.`\
 https://nytimes.com/2023/03/30/nyregion/mar-a-lago-trump-off-guard.html?searchResultPosition=1
 
@@ -22,7 +22,7 @@ https://nytimes.com/2023/03/30/nyregion/vermont-deputy-caselnova-charged-ny.html
 `Everything went well in the Bronx. Gerrit Cole cruised, Aaron Judge homered and Anthony Volpe made his major league debut in an easy win over San Francisco.`\
 https://nytimes.com/2023/03/30/sports/baseball/yankees-giants-opening-day.html?searchResultPosition=6
 
-**The Mets Gets Some Bad News, but Walk Away With a Win**\
+**The Mets Get Some Bad News, but Walk Away With a Win**\
 `The ace right-hander Justin Verlander’s being put on the injured list will test the team’s depth, but Max Scherzer and the Mets’ bullpen were enough to beat Miami.`\
 https://nytimes.com/2023/03/30/sports/baseball/mets-marlins-opening-day.html?searchResultPosition=7
 
