@@ -1,6 +1,6 @@
 **In Arrest of American Reporter, Russia Doubles Down on Isolation From West**\
 `The Kremlin, which accused a Wall Street Journal correspondent of being a spy, made a move not seen since the Cold War, further raising the barriers between Russia and the West.`\
-https://nytimes.com/2023/03/30/world/europe/russia-gershkovich-arrest-putin.html?searchResultPosition=1
+https://nytimes.com/2023/03/30/world/europe/russia-putin-gershkovich-arrest.html?searchResultPosition=1
 
 **Stream These 9 Titles Before They Leave Netflix in April**\
 `A bunch of great TV shows and movies are departing for U.S. subscribers this month. Catch them while you can.`\
