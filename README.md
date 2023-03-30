@@ -1,6 +1,6 @@
 **The Plan to Save Baseball**\
 `A look at the sport’s home run problem and the big changes this season.`\
-https://nytimes.com/2023/03/30/podcasts/the-daily/the-plan-to-save-baseball.html?searchResultPosition=1
+https://nytimes.com/2023/03/30/podcasts/the-daily/mlb-new-rules-home-run.html?searchResultPosition=1
 
 **Ferry Catches Fire in the Philippines**\
 `The blaze on the passenger ferry, at sea near the southern province of Basilan, killed more than two dozen people.`\
