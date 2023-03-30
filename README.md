@@ -2,7 +2,7 @@
 `The news of the indictment of former President Trump immediately took over cable news channels and the country’s main broadcast networks on Thursday.`\
 https://nytimes.com/2023/03/30/business/media/trump-indictment-media-coverage.html?searchResultPosition=1
 
-**Las Vegas Gunman Was Angry at Casinos, New F.B.I. Files Show**\
+**Gunman in 2017 Las Vegas Shooting Was Angry at Casinos, New F.B.I. Files Show**\
 `While investigators concluded that the motive of Stephen Paddock was unclear, newly released records include an account that he was angry about the casinos’ treatment of wealthy clients.`\
 https://nytimes.com/2023/03/30/us/las-vegas-shooting-gunman.html?searchResultPosition=2
 
@@ -30,11 +30,11 @@ https://nytimes.com/2023/03/30/opinion/patriotism-america-gen-z.html?searchResul
 `A central area of expertise for Dustin Carmack, who will leave his post at the Heritage Foundation, is national security, with a focus on cybersecurity.`\
 https://nytimes.com/2023/03/30/us/politics/desantis-dustin-carmack-adviser.html?searchResultPosition=8
 
+**The jury finds Gwyneth Paltrow not liable in damages over the crash.**\
+`The verdict came after more than a week of testimony that covered skiing etiquette, medical history and celebrity culture.`\
+https://nytimes.com/2023/03/30/us/gwyneth-paltrow-trial-verdict.html?searchResultPosition=9
+
 **Your Thursday Evening Briefing**\
 `Here’s what you need to know at the end of the day.`\
-https://nytimes.com/2023/03/30/briefing/donald-trump-grand-jury-indictment-mlb-season.html?searchResultPosition=9
-
-**Lolita the Orca May Swim Free After Decades at Miami Seaquarium**\
-`The killer whale, also known as Tokitae, has been in captivity for more than 50 years. Amid increasing pressure, the Seaquarium has agreed to release her.`\
-https://nytimes.com/2023/03/30/us/lolita-orca-whale-return-home.html?searchResultPosition=10
+https://nytimes.com/2023/03/30/briefing/donald-trump-grand-jury-indictment-mlb-season.html?searchResultPosition=10
 
