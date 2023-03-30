@@ -1,40 +1,40 @@
+**Homes for Sale in Manhattan and Queens**\
+`This week’s properties are on Central Park South, in Chelsea and in Long Island City.`\
+https://nytimes.com/2023/03/30/realestate/homes-for-sale-in-manhattan-and-queens.html?searchResultPosition=1
+
+**Homes for Sale in New York State**\
+`This week’s listings are in Northport, N.Y., and Briarcliff Manor, N.Y.`\
+https://nytimes.com/2023/03/30/realestate/homes-for-sale-in-new-york-state.html?searchResultPosition=2
+
+**These Cats Do Their Own Stunts. They Film Them, Too.**\
+`With the help of cameras that attach to collars, a niche style of cat content shows the world from a feline perspective.`\
+https://nytimes.com/2023/03/30/style/cat-videos-gonzo-kitters.html?searchResultPosition=3
+
+**Will California’s Plan to Make Its Own Insulin Work?**\
+`Recent moves by major insulin suppliers might undercut the state’s initiative before any new product emerges.`\
+https://nytimes.com/2023/03/30/us/california-insulin-diabetes.html?searchResultPosition=4
+
+**A Knack for Wordplay and Kindness Is Rewarded**\
+`Rich Norris, the former editor of the L.A. Times Crossword, will receive the 2023 MEmoRiaL Award at the American Crossword Puzzle Tournament.`\
+https://nytimes.com/2023/03/30/crosswords/merl-reagle-award-rich-norris.html?searchResultPosition=5
+
+**Natural Wines That Channel Berlin, Down to the Spray-Paint Label**\
+`Plus: Ai Weiwei’s first design-focused exhibition, Italian Easter pastries made with balsamic vinegar and more recommendations from T Magazine.`\
+https://nytimes.com/2023/03/30/t-magazine/chateaumoabit-berlin-natural-wines.html?searchResultPosition=6
+
 **Bolsonaro Returns to Brazil, Ending Self-Imposed Exile**\
 `The former president returned to a tense political landscape in which he is under investigation for spreading election misinformation and for inspiring the Jan. 8 attack in the capital.`\
-https://nytimes.com/2023/03/30/world/americas/bolsonaro-returns-brazil.html?searchResultPosition=1
+https://nytimes.com/2023/03/30/world/americas/bolsonaro-returns-brazil.html?searchResultPosition=7
 
 **We Are in a Golden Age for Hair**\
 `Whatever your preferences, making a style statement doesn’t end with your clothes. And there’s no look too bold.`\
-https://nytimes.com/2023/03/30/style/street-style-hair-inspiration.html?searchResultPosition=2
+https://nytimes.com/2023/03/30/style/street-style-hair-inspiration.html?searchResultPosition=8
 
 **The Best Places to Buy a House on a Budget**\
 `A recent study used various metrics to find the most promising locations for buyers with incomes just below the national median.`\
-https://nytimes.com/2023/03/30/realestate/buying-a-house-on-a-budget.html?searchResultPosition=3
+https://nytimes.com/2023/03/30/realestate/buying-a-house-on-a-budget.html?searchResultPosition=9
 
 **Bob Iger Ousts a Marvel Antagonist**\
 `Ike Perlmutter, the chairman of Marvel Entertainment who’s had a volatile tenure at Disney, was among the latest round of job cuts at the entertainment giant.`\
-https://nytimes.com/2023/03/30/business/dealbook/bob-iger-layoffs-marvel-ike-perlmutter.html?searchResultPosition=4
-
-**A Mexican Grandmother Finds the Right Recipe for Culinary Stardom**\
-`Through her YouTube videos, Doña Ángela has become among the most watched and beloved cooks in the crowded market of online food shows. But what explains her widespread popularity?`\
-https://nytimes.com/2023/03/30/world/americas/dona-angela-youtube-cooking-mexico.html?searchResultPosition=5
-
-**27 New Words Invented by Teenagers**\
-`We invited students to suggest words to fill gaps in the English language. Here are our favorites.`\
-https://nytimes.com/2023/03/30/learning/27-new-words-invented-by-teenagers.html?searchResultPosition=6
-
-**For the Crispiest Tofu, Give It the Milanese Treatment**\
-`A vegetarian twist on the classic anchors this cool-weather menu from David Tanis, which begins with a radicchio salad and ends with a citrusy panna cotta.`\
-https://nytimes.com/2023/03/30/dining/crispy-tofu-recipe.html?searchResultPosition=7
-
-**‘In Viaggio: The Travels of Pope Francis’ Review: Serene Demeanor, Bracing Message**\
-`The Pontiff travels well. Gianfranco Rosi’s new documentary chronicles his visits to Catholic communities the world over, and he never seems to tire.`\
-https://nytimes.com/2023/03/30/movies/in-viaggio-the-travels-of-pope-francis-review.html?searchResultPosition=8
-
-**‘Kill Boksoon’ Review: It’s a Deadly Job for a Busy Single Mom**\
-`An assassin must choose between the murderous career she loves and the daughter she’s been hiding it from.`\
-https://nytimes.com/2023/03/30/movies/kill-boksoon-review.html?searchResultPosition=9
-
-**‘Smoking Causes Coughing’ Review: A Superteam Saga With a Demented Twist**\
-`Quentin Dupieux’s gift for surreal comedy is in full bloom in this nutty tale of heroes named after tobacco’s toxic components.`\
-https://nytimes.com/2023/03/30/movies/smoking-causes-coughing-review.html?searchResultPosition=10
+https://nytimes.com/2023/03/30/business/dealbook/bob-iger-layoffs-marvel-ike-perlmutter.html?searchResultPosition=10
 
