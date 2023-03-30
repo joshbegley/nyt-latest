@@ -34,7 +34,7 @@ https://nytimes.com/2023/03/30/sports/olympics/sapporo-winter-games.html?searchR
 `This word has appeared in 17 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2023/03/30/learning/word-of-the-day-receptacle.html?searchResultPosition=9
 
-**Two Army Helicopters Collide Over Kentucky**\
-`It was not immediately clear whether there were casualties from the crash, which happened near Fort Campbell on Wednesday night.`\
+**Casualties Reported After Army Helicopters Collide Over Kentucky**\
+`The 101st Airborne Division said there were several casualties from the crash, which happened near Fort Campbell on Wednesday night.`\
 https://nytimes.com/2023/03/30/us/fort-campbell-helicopter-crash-kentucky.html?searchResultPosition=10
 
