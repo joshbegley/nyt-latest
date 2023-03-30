@@ -11,7 +11,7 @@ https://nytimes.com/2023/03/30/opinion/sweden-pandemic-coronavirus.html?searchRe
 https://nytimes.com/2023/03/30/us/nebraska-filibuster-transgender-bills.html?searchResultPosition=3
 
 **Michael Blackwood, Who Captured 20th-Century Artists on Film, Dies at 88**\
-`He made cinéma vérité movies — 160 in all — about musicians (Thelonious Monk), architects (Frank Gehry), composers (Philip Glass) and sculptors (Isamu Noguchi).`\
+`He made cinéma vérité movies — more than 160 — about musicians (Thelonious Monk), architects (Frank Gehry), composers (Philip Glass) and sculptors (Isamu Noguchi).`\
 https://nytimes.com/2023/03/30/arts/michael-blackwood-dead.html?searchResultPosition=4
 
 **The Weekender**\
