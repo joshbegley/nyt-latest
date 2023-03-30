@@ -1,6 +1,6 @@
 **Biden Calls for Regulators to Increase Oversight of Certain Banks**\
-`The proposals, which would not require Congress, are a response to the failure of Silicon Valley Bank earlier this month, which sent shocks through the financial system.`\
-https://nytimes.com/2023/03/30/us/politics/biden-calls-for-regulators-to-increase-oversight-of-certain-banks.html?searchResultPosition=1
+`The proposals, which would not require congressional approval, are a response to Silicon Valley Bank’s failure earlier this month, which sent shocks through the financial system.`\
+https://nytimes.com/2023/03/30/us/politics/biden-banks-crisis.html?searchResultPosition=1
 
 **Macron, Trying to Move Past Pension Fury, Announces Water Plan**\
 `President Emmanuel Macron of France presented conservation proposals after an exceptionally dry winter. But his government is still dogged by pension protests.`\
