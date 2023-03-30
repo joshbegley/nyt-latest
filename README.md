@@ -2,7 +2,7 @@
 `The Florida governor, preparing for an all-but-declared campaign, is said to see an opening to take on the former president from the right.`\
 https://nytimes.com/2023/03/29/us/politics/ron-desantis-donald-trump-crime-2024.html?searchResultPosition=1
 
-**Mexico Investigates Migrant Deaths in Border City Fire as Homicide**\
+**Mexico Investigates Migrant Deaths in Border City Fire as Homicide Case**\
 `The authorities identified eight suspects and said government workers and private security workers had done nothing to help migrants flee the blaze at a detention center in Ciudad Juárez.`\
 https://nytimes.com/2023/03/29/world/americas/fire-mexico-migrants.html?searchResultPosition=2
 
