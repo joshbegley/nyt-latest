@@ -2,7 +2,7 @@
 `The blaze on the passenger ferry, at sea near the southern province of Basilan, killed more than two dozen people.`\
 https://nytimes.com/video/world/asia/100000008836713/philippines-ferry-fire.html?searchResultPosition=1
 
-**The Most Important Election of 2023 is Taking Place in Wisconsin**\
+**The Most Important Election of 2023 Is Taking Place in Wisconsin**\
 `A supreme court contest could break the right’s lock on the state. Abortion, representation and election integrity are all on the ballot.`\
 https://nytimes.com/2023/03/30/opinion/wisconsin-supreme-court-election.html?searchResultPosition=2
 
