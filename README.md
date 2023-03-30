@@ -3,7 +3,7 @@
 https://nytimes.com/2023/03/30/arts/television/jimmy-kimmel-donald-trump.html?searchResultPosition=1
 
 **Pieces of a Doomed Aircraft Come Back to the Intrepid**\
-`In 1945, two bombers did not make it back from a raid on Japan. Now parts of their plane will return to the carrier they took off from.`\
+`In 1945, two bombers did not make it back from a raid on Japan. Now parts of one of the planes will return to the carrier it took off from.`\
 https://nytimes.com/2023/03/30/nyregion/aircraft-intrepid-world-war.html?searchResultPosition=2
 
 **King Charles Visits Germany in First Foreign Trip as Monarch**\
