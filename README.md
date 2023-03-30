@@ -1,6 +1,6 @@
 **At Mar-a-Lago, Trump’s Camp Is Caught Off Guard**\
 `The former president’s aides had believed that any action by the grand jury was still weeks away.`\
-https://nytimes.com/2023/03/30/nyregion/mar-a-lago-trump-off-guard.html?searchResultPosition=1
+https://nytimes.com/2023/03/30/nyregion/trump-mar-a-lago.html?searchResultPosition=1
 
 **Indictment elicits extensive coverage, and some gasps, on TV.**\
 `The news of the indictment of former President Trump immediately took over cable news channels and the country’s main broadcast networks on Thursday.`\
