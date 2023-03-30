@@ -22,7 +22,7 @@ https://nytimes.com/2023/03/30/briefing/donald-trump-evan-gershkovich-guo-wengui
 `There are legitimate concerns about this indictment, but how could we give the boss a pass after convicting his fixer?`\
 https://nytimes.com/2023/03/30/opinion/president-trump-indictment-democracy.html?searchResultPosition=6
 
-**Here are the key events that led to the grand jury vote.**\
+**Here are the key events that led to the indictment.**\
 `Donald J. Trump will become the first United States president, current or former, to face criminal charges.`\
 https://nytimes.com/2023/03/30/nyregion/trump-investigation-timeline.html?searchResultPosition=7
 
