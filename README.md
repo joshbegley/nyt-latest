@@ -11,7 +11,7 @@ https://nytimes.com/2023/03/30/style/street-style-hair-inspiration.html?searchRe
 https://nytimes.com/2023/03/30/realestate/buying-a-house-on-a-budget.html?searchResultPosition=3
 
 **Bob Iger Ousts a Marvel Antagonist**\
-`Ike Perlmutter, the chairman of Marvel Entertainment who’s had a volatile tenure at Disney, was reportedly among the latest round of job cuts at the entertainment giant.`\
+`Ike Perlmutter, the chairman of Marvel Entertainment who’s had a volatile tenure at Disney, was among the latest round of job cuts at the entertainment giant.`\
 https://nytimes.com/2023/03/30/business/dealbook/bob-iger-layoffs-marvel-ike-perlmutter.html?searchResultPosition=4
 
 **A Mexican Grandmother Finds the Right Recipe for Culinary Stardom**\
