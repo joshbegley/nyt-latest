@@ -1,6 +1,6 @@
 **A Mexican Grandmother Finds the Right Recipe for Culinary Stardom**\
 `Through her YouTube videos, Doña Ángela has become among the most watched and beloved cooks in the crowded market of online food shows. But what explains her widespread popularity?`\
-https://nytimes.com/2023/03/30/us/dona-angela-youtube-cooking-mexico.html?searchResultPosition=1
+https://nytimes.com/2023/03/30/world/americas/dona-angela-youtube-cooking-mexico.html?searchResultPosition=1
 
 **27 New Words Invented by Teenagers**\
 `We invited students to suggest words to fill gaps in the English language. Here are our favorites.`\
