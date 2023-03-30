@@ -11,7 +11,7 @@ https://nytimes.com/2023/03/30/sports/olympics/sapporo-winter-games.html?searchR
 https://nytimes.com/2023/03/30/learning/word-of-the-day-receptacle.html?searchResultPosition=3
 
 **Two Army Helicopters Collide Over Kentucky**\
-`Few details were immediately available about the crash, which happened near Fort Campbell.`\
+`It was not immediately clear whether there were casualties from the crash, which happened near Fort Campbell on Wednesday night.`\
 https://nytimes.com/2023/03/30/us/fort-campbell-helicopter-crash-kentucky.html?searchResultPosition=4
 
 **Your Thursday Briefing**\
