@@ -15,7 +15,7 @@ https://nytimes.com/2023/03/30/sports/ncaabasketball/pep-bands-march-madness.htm
 https://nytimes.com/2023/03/30/us/census-immigration-large-counties.html?searchResultPosition=4
 
 **Fire Kills at Least 10 on Passenger Ferry in Philippines**\
-`The vessel caught fire near an island in the southern province of Basilan, the coast guard said. The cause was not immediately clear.`\
+`The vessel caught fire near the southern island province of Basilan, the coast guard said. At least seven passengers were missing.`\
 https://nytimes.com/2023/03/29/world/asia/philippines-ferry-fire.html?searchResultPosition=5
 
 **Quotation of the Day: Football Yankees? Basketball Yankees? Brazilians Don’t Care, They Just Want the Cap.**\
