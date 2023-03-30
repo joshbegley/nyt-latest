@@ -1,40 +1,40 @@
+**‘In Viaggio: The Travels of Pope Francis’ Review: Serene Demeanor, Bracing Message**\
+`The Pontiff travels well. Gianfranco Rosi’s new documentary chronicles his visits to Catholic communities the world over, and he never seems to tire.`\
+https://nytimes.com/2023/03/30/movies/in-viaggio-the-travels-of-pope-francis-review.html?searchResultPosition=1
+
+**‘Kill Boksoon’ Review: It’s a Deadly Job for a Busy Single Mom**\
+`An assassin must choose between the murderous career she loves and the daughter she’s been hiding it from.`\
+https://nytimes.com/2023/03/30/movies/kill-boksoon-review.html?searchResultPosition=2
+
+**‘Smoking Causes Coughing’ Review: A Superteam Saga With a Demented Twist**\
+`Quentin Dupieux’s gift for surreal comedy is in full bloom in this nutty tale of heroes named after tobacco’s toxic components.`\
+https://nytimes.com/2023/03/30/movies/smoking-causes-coughing-review.html?searchResultPosition=3
+
+**‘Enys Men’ Review: Island of the Lost**\
+`In this stylistically bold folk-horror movie, a woman is disturbed by visions related to a long-ago tragedy.`\
+https://nytimes.com/2023/03/30/movies/enys-men-review.html?searchResultPosition=4
+
+**‘Fugue’ Review: Lost Time**\
+`This psychological thriller about a woman experiencing amnesia poses an essentially cinematic question: Who are we without our memories?`\
+https://nytimes.com/2023/03/30/movies/fugue-review.html?searchResultPosition=5
+
+**‘Giraffe’ Review: Introspection in the Danish Countryside**\
+`In the pensive drama “Giraffe,” an ethnologist researching an abandoned cottage wonders whether her own life could or should change.`\
+https://nytimes.com/2023/03/30/movies/giraffe-review.html?searchResultPosition=6
+
+**‘Space Oddity’ Review: Failure to Launch**\
+`Men will literally contemplate traveling to Mars instead of going to therapy in “Space Oddity,” directed by Kyra Sedgwick.`\
+https://nytimes.com/2023/03/30/movies/space-oddity-review.html?searchResultPosition=7
+
+**‘Tetris’ Review: Falling Blocks and Rising Freedom**\
+`Like it’s namesake, this film is clever, crafty and shockingly entertaining.`\
+https://nytimes.com/2023/03/30/movies/tetris-review.html?searchResultPosition=8
+
 **The Biggest Battle in Ukraine**\
 `Why Russia and Ukraine are fighting for a city with little strategic value.`\
-https://nytimes.com/2023/03/30/briefing/bakhmut-ukraine.html?searchResultPosition=1
+https://nytimes.com/2023/03/30/briefing/bakhmut-ukraine.html?searchResultPosition=9
 
 **The Plan to Save Baseball from the Home Run**\
 `A look at the sport’s home run problem and the big changes this season.`\
-https://nytimes.com/2023/03/30/podcasts/the-daily/mlb-new-rules-home-run.html?searchResultPosition=2
-
-**Ferry Catches Fire in the Philippines**\
-`The blaze on the passenger ferry, at sea near the southern province of Basilan, killed more than two dozen people.`\
-https://nytimes.com/video/world/asia/100000008836713/philippines-ferry-fire.html?searchResultPosition=3
-
-**The Most Important Election of 2023 Is Taking Place in Wisconsin**\
-`A supreme court contest could break the right’s lock on the state. Abortion, representation and election integrity are all on the ballot.`\
-https://nytimes.com/2023/03/30/opinion/wisconsin-supreme-court-election.html?searchResultPosition=4
-
-**A Shepherd, a Cook, a Palace Chef: Making Food With Less Under the Taliban**\
-`In a time of famine and money shortages, meals are a rallying point — and a topic of worry — during a season of change in Afghanistan.`\
-https://nytimes.com/2023/03/30/world/asia/food-afghanistan-taliban.html?searchResultPosition=5
-
-**In a Corner of the Former U.S.S.R., There’s Something for Everyone**\
-`For a dad planning a family trip, Georgia seemed to have it all: skiing, hot springs, just the right dose of history, and huge dumplings (not to mention gelato). But would his family share his enthusiasm?`\
-https://nytimes.com/2023/03/30/travel/georgia-former-soviet-republic-family-vacation.html?searchResultPosition=6
-
-**Ukraine Goes Dark: Images From Space Drive Home the Nation’s Anguish**\
-`A satellite operated by NASA and NOAA bares how Russia’s drones and missiles knocked out the nation’s power.`\
-https://nytimes.com/2023/03/30/world/europe/ukraine-satellite-darkness.html?searchResultPosition=7
-
-**It’s a Really Weird Time to Be an Umpire**\
-`With replay cameras watching every call, it has become an increasingly stressful job — and baseball’s new rules will just make it harder.`\
-https://nytimes.com/2023/03/30/magazine/umpires-replay-cameras.html?searchResultPosition=8
-
-**Subway Workers Exit Token Booths as an Era Ends Underground**\
-`Station clerks begin a new role on Thursday that will require them to walk around and assist the public instead of being closed off in booths.`\
-https://nytimes.com/2023/03/30/nyregion/nyc-subway-station-agents-booths.html?searchResultPosition=9
-
-**Chelsea Sodaro Conquered Kona. Then the Real Struggles Returned.**\
-`Sodaro thought her life had fallen into place when she won the Ironman world championship last October. Little did she know, it was about to fall apart.`\
-https://nytimes.com/2023/03/30/sports/ironwoman-kona-chelsa-sodaro.html?searchResultPosition=10
+https://nytimes.com/2023/03/30/podcasts/the-daily/mlb-new-rules-home-run.html?searchResultPosition=10
 
