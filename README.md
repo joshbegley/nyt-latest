@@ -1,6 +1,6 @@
 **Conspiracy theorists online grasp for explanation behind indictment.**\
 `Mr. Trump tried rallying his base as the expected indictment drew near.`\
-https://nytimes.com/2023/03/30/business/media/conspiracy-theorists-online-grasp-for-explanation-behind-indictment.html?searchResultPosition=1
+https://nytimes.com/2023/03/30/business/media/trump-indictment-social-media-conspiracy.html?searchResultPosition=1
 
 **Quotation of the Day: Online Grudges Fuel Surge of Teen Murder Across New York City**\
 `Quotation of the Day for Friday, March 31, 2023.`\
