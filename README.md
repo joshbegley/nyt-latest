@@ -14,13 +14,13 @@ https://nytimes.com/2023/03/31/us/military-abortion-promotions-blocked.html?sear
 `This week’s quiz challenges you to identify the novels that influenced certain tracks from several popular songwriters.`\
 https://nytimes.com/interactive/2023/03/31/books/booksupdate/song-novels-quiz.html?searchResultPosition=4
 
-**Fear of an A.I. Pundit**\
-`Could machine intelligence become prophetic?`\
-https://nytimes.com/2023/03/31/opinion/ai-pause.html?searchResultPosition=5
-
 **How to Use Up Those Leafy Green Herbs**\
 `Handfuls of parsley, mint, cilantro and dill add a healthy dose of green to crispy chicken and Mediterranean-ish meatballs.`\
-https://nytimes.com/2023/03/31/dining/how-to-use-up-those-leafy-green-herbs.html?searchResultPosition=6
+https://nytimes.com/2023/03/31/dining/what-to-do-leftover-herbs.html?searchResultPosition=5
+
+**Fear of an A.I. Pundit**\
+`Could machine intelligence become prophetic?`\
+https://nytimes.com/2023/03/31/opinion/ai-pause.html?searchResultPosition=6
 
 **How Taylor Swift Shapes the Story of Her Eras**\
 `The pop superstar is back on tour for the first time since 2018, performing grand stadium shows that spin a narrative from her 10-album catalog.`\
