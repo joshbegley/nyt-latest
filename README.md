@@ -1,40 +1,40 @@
+**‘Murder Mystery 2’ Review: The Case of the Innocuous Sequel**\
+`Adam Sandler and Jennifer Aniston return as private detectives in this Netflix follow-up comedy.`\
+https://nytimes.com/2023/03/31/movies/murder-mystery-2-review.html?searchResultPosition=1
+
+**‘I Don’t Want to Let Them Down’**\
+`As South Carolina seeks its second straight N.C.A.A. women’s basketball championship, Coach Dawn Staley carries the hopes of her family, her team and the generation of coaches she has inspired.`\
+https://nytimes.com/2023/03/31/sports/ncaabasketball/south-carolina-womens-basketball-dawn-staley.html?searchResultPosition=2
+
+**A Former Marine, Reporting on the Front Lines of a Different War**\
+`Thomas Gibbons-Neff, who served as an infantryman in Afghanistan before joining The Times in 2017, takes on a new role: Ukraine correspondent.`\
+https://nytimes.com/2023/03/31/insider/thomas-gibbons-neff-marine.html?searchResultPosition=3
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2023/03/31/crosswords/spelling-bee-forum.html?searchResultPosition=4
+
+**Today’s Wordle Review**\
+`Our columnist reviews the day’s puzzle. Warning: contains spoilers!`\
+https://nytimes.com/2023/03/31/crosswords/wordle-review-answer-650.html?searchResultPosition=5
+
+**‘Keep TikTok’**\
+`What do you think this image is communicating?`\
+https://nytimes.com/2023/03/31/learning/keep-tiktok.html?searchResultPosition=6
+
 **Once Before, an Ex-President Was in Jeopardy in New York**\
 `Ulysses S. Grant was all but ruined by his involvement in investment banking, but unlike Donald Trump, he was never indicted.`\
-https://nytimes.com/2023/03/31/nyregion/ulysses-grant-trump.html?searchResultPosition=1
+https://nytimes.com/2023/03/31/nyregion/ulysses-grant-trump.html?searchResultPosition=7
 
 **Late Night Is Tickled by Trump’s Indictment**\
 `“He was right — we’re finally saying ‘Merry Christmas’ again!” Stephen Colbert said of Donald Trump on Thursday.`\
-https://nytimes.com/2023/03/31/arts/television/late-night-trump-indictment.html?searchResultPosition=2
+https://nytimes.com/2023/03/31/arts/television/late-night-trump-indictment.html?searchResultPosition=8
 
 **Word of the Day: bleat**\
 `This word has appeared in eight articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/03/31/learning/word-of-the-day-bleat.html?searchResultPosition=3
+https://nytimes.com/2023/03/31/learning/word-of-the-day-bleat.html?searchResultPosition=9
 
 **Why Do Russians Still Want to Fight?**\
 `The war in Ukraine may be a horror, but it’s also an opportunity.`\
-https://nytimes.com/2023/03/31/opinion/russia-ukraine-war-soldiers.html?searchResultPosition=4
-
-**In Taiwan’s Waters, a Hunt for Tiny, Wriggling ‘Gold’**\
-`For generations, people have fished for baby eels in the island’s estuaries. But they seem to be getting harder to find.`\
-https://nytimes.com/2023/03/31/world/asia/taiwan-eels.html?searchResultPosition=5
-
-**Your Friday Briefing**\
-`Donald Trump was indicted.`\
-https://nytimes.com/2023/03/31/briefing/trump-indicted-europe.html?searchResultPosition=6
-
-**When Two Acrobats Fall Head Over Heels — for Each Other**\
-`Caitlin Reichel and Kristy Graziano met at a holiday party in Orlando, Fla., in 2016, but it would take three more years to become a couple.`\
-https://nytimes.com/2023/03/31/style/caitlin-reichel-kristy-graziano-wedding.html?searchResultPosition=7
-
-**When Climate Change Melts Your Relationship**\
-`Everything was going great until I told him to dump his kerosene lamp for an LED.`\
-https://nytimes.com/2023/03/31/style/modern-love-when-climate-change-melts-your-relationship.html?searchResultPosition=8
-
-**‘Mom, I’m Telling You, She’s the One’**\
-`Alexandra Howard and Dr. Brandon von Tobel knew on their first date six years ago that they had each found someone special.`\
-https://nytimes.com/2023/03/31/style/alexandra-howard-brandon-von-tobel-wedding.html?searchResultPosition=9
-
-**The Joke (Surprise, Surprise) Was on Them**\
-`Dr. Amit Raj’s cousins kept nudging him to ask Dr. Ami Modi out. So he got her on board to pretend they were dating. Soon enough, they really were.`\
-https://nytimes.com/2023/03/31/style/ami-modi-amit-raj-wedding.html?searchResultPosition=10
+https://nytimes.com/2023/03/31/opinion/russia-ukraine-war-soldiers.html?searchResultPosition=10
 
