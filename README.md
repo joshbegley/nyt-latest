@@ -1,5 +1,5 @@
-**The Justice Department did not indict Trump on hush-money charges. Here’s what happened.**\
-`Some of the reasons appear to concern how the prosecutors viewed Donald J. Trump’s longtime fixer, Michael D. Cohen, who is expected to be in the case brought by the Manhattan district attorney, Alvin L. Bragg.`\
+**Why was Trump indicted by the Manhattan D.A. over hush money, but not by the Justice Department?**\
+`Some of the reasons appear to concern how federal prosecutors viewed Donald J. Trump’s longtime fixer, Michael D. Cohen.`\
 https://nytimes.com/2023/03/31/nyregion/justice-dept-trump-indictment-charges.html?searchResultPosition=1
 
 **When Every Win Means Water, Water Everywhere**\
