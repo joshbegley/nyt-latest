@@ -19,7 +19,7 @@ https://nytimes.com/2023/03/31/movies/dungeons-and-dragons-movie-guide.html?sear
 https://nytimes.com/2023/03/31/opinion/ties-neckties-out-of-fashion.html?searchResultPosition=5
 
 **Sanna Marin, Finland’s Political Rock Star, Could Be Slipping**\
-`Parliamentary elections on Sunday are extremely tight among three biggest parties, with the prime minister’s Social Democrats in a tough fight to lead the next government.`\
+`Parliamentary elections on Sunday are extremely tight among the three biggest parties, with the prime minister’s Social Democrats in a tough fight to lead the next government.`\
 https://nytimes.com/2023/03/31/world/europe/marin-finland-election-political.html?searchResultPosition=6
 
 **Rangers vs. Devils in the First Round of the N.H.L. Playoffs? Bring it On.**\
