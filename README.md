@@ -1,4 +1,4 @@
-**The Justice Dept. did not indict Trump on hush-money charges. Here’s what happened.**\
+**The Justice Department did not indict Trump on hush-money charges. Here’s what happened.**\
 `Some of the reasons appear to concern how the prosecutors viewed Donald J. Trump’s longtime fixer, Michael D. Cohen, who is expected to be in the case brought by the Manhattan district attorney, Alvin L. Bragg.`\
 https://nytimes.com/2023/03/31/nyregion/justice-dept-trump-indictment-charges.html?searchResultPosition=1
 
@@ -7,7 +7,7 @@ https://nytimes.com/2023/03/31/nyregion/justice-dept-trump-indictment-charges.ht
 https://nytimes.com/interactive/2023/03/31/sports/ncaabasketball/locker-room-celebrations-water-pour.html?searchResultPosition=2
 
 **The Last Strand: Let’s Talk About Hair Loss**\
-`“If I was a monk, I would be bald. But I’m not a monk. So, here I am with hair transplants.” Eight people and three experts talk about hair loss.`\
+`“If I was a monk, I would be bald. But I’m not a monk. So, here I am with hair transplants.” Seven people and three experts talk about shedding.`\
 https://nytimes.com/interactive/2023/03/31/business/hair-loss-treatments.html?searchResultPosition=3
 
 **Tesla and Musk Lose Ruling on Factory Union Issues**\
