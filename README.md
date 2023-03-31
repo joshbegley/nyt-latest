@@ -4,7 +4,7 @@ https://nytimes.com/2023/03/31/briefing/trump-indicted-criminal-charges.html?sea
 
 **In a Land With No Soccer, Group Hopes to Use It to Score Climate Goals**\
 `The Marshall Islands Soccer Federation aims to draw interest in the sport — and to growing global warming events in the Pacific.`\
-https://nytimes.com/2023/03/31/world/australia/in-a-land-with-no-soccer-group-hopes-to-use-it-to-score-climate-goals.html?searchResultPosition=2
+https://nytimes.com/2023/03/31/world/australia/marshall-islands-soccer-climate-change.html?searchResultPosition=2
 
 **The Indictment of Donald Trump**\
 `The former president will face criminal charges over his role in paying hush money to Stormy Daniels.`\
