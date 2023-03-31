@@ -1,5 +1,5 @@
-**Defense Lawyer Charged With Bribing Court Clerk to Send Clients His Way**\
-`The lawyer, Telesforo Del Valle Jr., paid Dionisio Figueroa tens of thousands of dollars over a decade, according to prosecutors.`\
+**Defense Lawyer Is Charged With Bribing Court Clerk to Send Clients His Way**\
+`The New York-based lawyer, Telesforo Del Valle Jr., paid Dionisio Figueroa tens of thousands of dollars over a decade, according to prosecutors.`\
 https://nytimes.com/2023/03/31/nyregion/defense-lawyer-bribe-sdny.html?searchResultPosition=1
 
 **Biden Surveys Damage From Deadly Tornado in Mississippi**\
