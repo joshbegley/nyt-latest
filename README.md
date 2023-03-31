@@ -1,40 +1,40 @@
+**Health Plans No Longer Have to Cover Preventive Care at No Cost. Here’s What to Know.**\
+`A ruling by a federal judge this week could set up yet another Supreme Court challenge to the Obamacare health law.`\
+https://nytimes.com/2023/03/31/health/obamacare-coverage-preventive-care-aca.html?searchResultPosition=1
+
+**The Bizarro Worlds of Quentin Dupieux’s Comedy**\
+`The French director, whose latest film is “Smoking Causes Coughing,” spoke about five comedy clips that have inspired his work.`\
+https://nytimes.com/2023/03/31/movies/quentin-dupieux-comedy-clips.html?searchResultPosition=2
+
+**Medicare Delays a Full Crackdown on Private Health Plans**\
+`After intense lobbying by insurers, U.S. health officials say curbs aimed at overbilling by Medicare Advantage will be eased in over 3 years.`\
+https://nytimes.com/2023/03/31/health/medicare-overbilling-insurance.html?searchResultPosition=3
+
 **Biden Surveys Tornado Damage in Mississippi**\
 `President Biden said he was committed to providing federal support for Mississippi residents after a deadly tornado ripped through rural parts of the state last week.`\
-https://nytimes.com/video/us/politics/100000008839947/biden-mississippi-tornado.html?searchResultPosition=1
+https://nytimes.com/video/us/politics/100000008839947/biden-mississippi-tornado.html?searchResultPosition=4
 
 **My Husband No Longer Wants Sex. Do I Divorce Him?**\
 `The magazine’s Ethicist columnist on navigating a celibate marriage.`\
-https://nytimes.com/2023/03/31/magazine/divorce-sex-affair-ethics.html?searchResultPosition=2
+https://nytimes.com/2023/03/31/magazine/divorce-sex-affair-ethics.html?searchResultPosition=5
 
 **‘I Heard Them Screaming:’ Witness Says Migrants Were Left to Die in Mexico Fire**\
 `On March 27, Viangly Infante Padrón, a Venezuelan migrant, was inside Mexico’s migrant detention center in Ciudad Juárez trying to secure her husband’s release when a fire broke out inside. She captured on video the moments leading up to the death of 39 migrants.`\
-https://nytimes.com/video/world/americas/100000008837794/i-heard-them-screaming-witness-says-migrants-were-left-to-die-in-mexico-fire.html?searchResultPosition=3
+https://nytimes.com/video/world/americas/100000008837794/i-heard-them-screaming-witness-says-migrants-were-left-to-die-in-mexico-fire.html?searchResultPosition=6
 
 **Fallout From the Trump Indictment**\
 `Readers both hail and condemn the indictment and discuss the political effects.`\
-https://nytimes.com/2023/03/31/opinion/letters/donald-trump-indictment.html?searchResultPosition=4
+https://nytimes.com/2023/03/31/opinion/letters/donald-trump-indictment.html?searchResultPosition=7
 
 **Trump’s Indictment Is About the Crimes That Helped Elect Him**\
 `The hush money scheme is part of a pattern of anti-democratic behavior.`\
-https://nytimes.com/2023/03/31/opinion/trump-criminal-charges-indictment.html?searchResultPosition=5
+https://nytimes.com/2023/03/31/opinion/trump-criminal-charges-indictment.html?searchResultPosition=8
 
 **U.S. Recalls 53,000 Hoverboards After Reports of Fires**\
 `Examples include the hoverboard burning, sparking or melting. In one instance last year, a fire that began with one of them killed two girls in Pennsylvania.`\
-https://nytimes.com/2023/03/31/us/jetson-hoverboard-recall-fire-deaths.html?searchResultPosition=6
+https://nytimes.com/2023/03/31/us/jetson-hoverboard-recall-fire-deaths.html?searchResultPosition=9
 
 **Four Stand-Up Specials That Punch Above Their Weight**\
 `Jaye McBride, Mike Vecchione and Kyle Kinane focus on punch lines and delivery. Mae Martin creates a vibe that works in a different key.`\
-https://nytimes.com/2023/03/31/arts/television/comedy-specials-mae-martin.html?searchResultPosition=7
-
-**A.I. May Change Everything, but Probably Not Too Quickly**\
-`History suggests that technological payoffs take time.`\
-https://nytimes.com/2023/03/31/opinion/ai-chatgpt-jobs-economy.html?searchResultPosition=8
-
-**A Beginner’s Guide to Dungeons & Dragons**\
-`The filmmakers behind “Dungeons & Dragons: Honor Among Thieves” help explain the characters, monsters and spells that make up their new film.`\
-https://nytimes.com/2023/03/31/movies/dungeons-and-dragons-movie-guide.html?searchResultPosition=9
-
-**Where Have All the Neckties Gone?**\
-`They’re in my closet.`\
-https://nytimes.com/2023/03/31/opinion/ties-neckties-out-of-fashion.html?searchResultPosition=10
+https://nytimes.com/2023/03/31/arts/television/comedy-specials-mae-martin.html?searchResultPosition=10
 
