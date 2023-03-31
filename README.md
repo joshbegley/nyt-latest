@@ -30,11 +30,11 @@ https://nytimes.com/2023/03/30/crosswords/daily-puzzle-2023-03-31.html?searchRes
 `The man, Ashton Connor Garcia, 20, falsely reported bombs, shootings and other threats, prosecutors said. In some cases, the calls prompted police officers to enter homes and detain people.`\
 https://nytimes.com/2023/03/30/us/washington-man-swatting-calls.html?searchResultPosition=8
 
+**DeSantis says Florida wouldn’t aid Trump’s extradition to New York.**\
+`The Republican governor called the indictment of the former president ‘un-American.’`\
+https://nytimes.com/2023/03/30/us/politics/trump-extradition-desantis-florida.html?searchResultPosition=9
+
 **One key player did not cooperate with prosecutors: Trump’s financial gatekeeper.**\
 `There is one central player who did not cooperate with the Manhattan district attorney’s office: Mr. Trump’s longtime financial gatekeeper.`\
-https://nytimes.com/2023/03/30/nyregion/allen-weisselberg-trump-hush-money.html?searchResultPosition=9
-
-**Finland Clears Last Hurdle to Joining NATO**\
-`Finland’s entry into the military alliance after Turkey formally signed off is a significant defeat for President Vladimir V. Putin of Russia.`\
-https://nytimes.com/2023/03/30/world/europe/finland-nato-turkey.html?searchResultPosition=10
+https://nytimes.com/2023/03/30/nyregion/allen-weisselberg-trump-hush-money.html?searchResultPosition=10
 
