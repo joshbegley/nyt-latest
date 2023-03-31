@@ -34,7 +34,7 @@ https://nytimes.com/2023/03/31/world/australia/marshall-islands-soccer-climate-c
 `The former president will face criminal charges over his role in paying hush money to Stormy Daniels.`\
 https://nytimes.com/2023/03/31/podcasts/the-daily/indictment-donald-trump-criminal-charges.html?searchResultPosition=9
 
-**Fox News Hosts Rally Around Trump, After Months of Keeping Some Distance**\
-`In an about-face from recent criticism of him, the network’s star personalities denounced Donald Trump’s indictment as politically motivated and suggested it might lead to unrest.`\
+**Fox News Hosts Back Trump, After Months of Keeping Some Distance**\
+`Despite recent criticism, the network’s star personalities joined other leading conservatives in denouncing the indictment as politically motivated and a possible cause for unrest.`\
 https://nytimes.com/2023/03/31/business/media/fox-news-trump-tucker-carlson.html?searchResultPosition=10
 
