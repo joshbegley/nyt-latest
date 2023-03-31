@@ -1,6 +1,6 @@
 **Quiz: What’s the Future for A.I.?**\
 `You read Part 5 of our weeklong series on artificial intelligence. Now test your knowledge.`\
-https://nytimes.com/interactive/2023/03/31/technology/31ontechquiz5.html?searchResultPosition=1
+https://nytimes.com/interactive/2023/03/31/technology/quiz-ai-chatbots-benefits-dangers.html?searchResultPosition=1
 
 **Dior’s Gateway to India**\
 `The stakes are getting higher in fashiontainment. What a flex.`\
