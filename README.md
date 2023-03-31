@@ -1,4 +1,4 @@
-**“I Heard Them Screaming:” Witness Says Migrants Were Left to Die in Mexico Fire**\
+**‘I Heard Them Screaming:’ Witness Says Migrants Were Left to Die in Mexico Fire**\
 `On March 27, Viangly Infante Padrón, a Venezuelan migrant, was inside Mexico’s migrant detention center in Ciudad Juárez trying to secure her husband’s release when a fire broke out inside. She captured on video the moments leading up to the death of 39 migrants.`\
 https://nytimes.com/video/world/americas/100000008837794/i-heard-them-screaming-witness-says-migrants-were-left-to-die-in-mexico-fire.html?searchResultPosition=1
 
