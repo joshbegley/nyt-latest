@@ -1,40 +1,40 @@
-**Austrian Far-Right Lawmakers Walk Out During Zelensky Speech**\
-`Members of Austria’s Freedom Party left Parliament to protest the Ukrainian president’s speech over what they said was a violation of their nation’s neutrality.`\
-https://nytimes.com/video/world/europe/100000008838818/austria-zelensky-speech-walk-out.html?searchResultPosition=1
+**You Think Your Dog Is Special? Meet Elphinore.**\
+`In M.T. Anderson’s “Elf Dog & Owl Head,” a scrappy hound scampers out of a magical world and into our own.`\
+https://nytimes.com/2023/03/31/books/review/m-t-anderson-elf-dog-and-owl-head.html?searchResultPosition=1
 
-**‘Murder Mystery 2’ Review: The Case of the Innocuous Sequel**\
-`Adam Sandler and Jennifer Aniston return as private detectives in this Netflix follow-up comedy.`\
-https://nytimes.com/2023/03/31/movies/murder-mystery-2-review.html?searchResultPosition=2
+**How Big Tech Camouflaged Wall Street’s Crisis in March**\
+`Investors in the S&P 500 are highly dependent on the fate of Microsoft, Apple and other big technology stocks. A rally in March showed how this can mask turmoil in the rest of the market.`\
+https://nytimes.com/2023/03/31/business/tech-stocks-sp-500.html?searchResultPosition=2
 
-**‘I Don’t Want to Let Them Down’**\
-`As South Carolina seeks its second straight N.C.A.A. women’s basketball championship, Coach Dawn Staley carries the hopes of her family, her team and the generation of coaches she has inspired.`\
-https://nytimes.com/2023/03/31/sports/ncaabasketball/south-carolina-womens-basketball-dawn-staley.html?searchResultPosition=3
+**What New Rules Would Improve Your Favorite Sport?**\
+`Major League Baseball is implementing some of the biggest changes in the sport’s history to make games more fun and action-packed. Will they help bring in younger fans?`\
+https://nytimes.com/2023/03/31/learning/what-new-rules-would-improve-your-favorite-sport.html?searchResultPosition=3
 
-**A Former Marine, Reporting on the Front Lines of a Different War**\
-`Thomas Gibbons-Neff, who served as an infantryman in Afghanistan before joining The Times in 2017, takes on a new role: Ukraine correspondent.`\
-https://nytimes.com/2023/03/31/insider/thomas-gibbons-neff-marine.html?searchResultPosition=4
+**Google C.E.O. Sundar Pichai on Bard, A.I. ‘Whiplash’ and Competing With ChatGPT**\
+`“Am I concerned? Yes. Am I optimistic and excited about all the potential of this technology? Incredibly.”`\
+https://nytimes.com/2023/03/31/podcasts/hard-fork-sundar.html?searchResultPosition=4
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/03/31/crosswords/spelling-bee-forum.html?searchResultPosition=5
+**My Favorite Song | Alex Newell**\
+`The actor and singer Alex Newell on Whitney Houston’s “How Will I Know.”`\
+https://nytimes.com/video/t-magazine/100000008833613/my-favorite-song-alex-newell.html?searchResultPosition=5
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: contains spoilers!`\
-https://nytimes.com/2023/03/31/crosswords/wordle-review-answer-650.html?searchResultPosition=6
+**Hamlet, and a Political Awakening, Stir in the West Bank**\
+`Isabella Hammad’s new novel, “Enter Ghost,” recounts an actor’s return to Palestine amid a sea of troubles.`\
+https://nytimes.com/2023/03/31/books/review/isabella-hammad-enter-ghost.html?searchResultPosition=6
 
-**‘Keep TikTok’**\
-`What do you think this image is communicating?`\
-https://nytimes.com/2023/03/31/learning/keep-tiktok.html?searchResultPosition=7
+**Do You Speak Real Estate? Take Our Home Buyer’s Quiz.**\
+`Ready to purchase a home? Test your knowledge of real estate vocabulary.`\
+https://nytimes.com/interactive/2023/03/31/realestate/home-buying-real-estate-quiz.html?searchResultPosition=7
 
-**Once Before, an Ex-President Was in Jeopardy in New York**\
-`Ulysses S. Grant was all but ruined by his involvement in investment banking, but unlike Donald Trump, he was never indicted.`\
-https://nytimes.com/2023/03/31/nyregion/ulysses-grant-trump.html?searchResultPosition=8
+**5 Things to Do This Weekend**\
+`Selections from the Weekend section, including a review of boygenius's album "The Record."`\
+https://nytimes.com/interactive/2023/03/31/arts/weekend-editors-picks-boygenius-album.html?searchResultPosition=8
 
-**Late Night Is Tickled by Trump’s Indictment**\
-`“He was right — we’re finally saying ‘Merry Christmas’ again!” Stephen Colbert said of Donald Trump on Thursday.`\
-https://nytimes.com/2023/03/31/arts/television/late-night-trump-indictment.html?searchResultPosition=9
+**6 New Paperbacks to Read This Week**\
+`This week’s picks include Emily St. John Mandel’s latest novel, a biography of the Getty dynasty and more.`\
+https://nytimes.com/interactive/2023/03/31/books/review/new-paperbacks.html?searchResultPosition=9
 
-**Word of the Day: bleat**\
-`This word has appeared in eight articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/03/31/learning/word-of-the-day-bleat.html?searchResultPosition=10
+**How I Hold It Together: Cher’s Advice and More**\
+`Jancee Dunn, Well's weekly newsletter columnist, shares her strategies for self-care.`\
+https://nytimes.com/interactive/2023/03/31/well/mind/self-care-tips-stretching-libraries-cher.html?searchResultPosition=10
 
