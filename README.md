@@ -1,40 +1,40 @@
-**You Think Your Dog Is Special? Meet Elphinore.**\
-`In M.T. Anderson’s “Elf Dog & Owl Head,” a scrappy hound scampers out of a magical world and into our own.`\
-https://nytimes.com/2023/03/31/books/review/m-t-anderson-elf-dog-and-owl-head.html?searchResultPosition=1
+**In Scotland, Coastal Living Beckons at a Golfing Hot Spot**\
+`Since the late 17th century, when Archerfield House was built, the East Lothian area has been a desired locale to lay roots and swing iron.`\
+https://nytimes.com/2023/03/31/realestate/scotland-golf-archerfield-house.html?searchResultPosition=1
 
-**How Big Tech Camouflaged Wall Street’s Crisis in March**\
-`Investors in the S&P 500 are highly dependent on the fate of Microsoft, Apple and other big technology stocks. A rally in March showed how this can mask turmoil in the rest of the market.`\
-https://nytimes.com/2023/03/31/business/tech-stocks-sp-500.html?searchResultPosition=2
+**4 Architects on What Golf Means to Them**\
+`The professionals talked about how playing the sport can influence the way they conceive and interpret design projects.`\
+https://nytimes.com/2023/03/31/realestate/architecture-golf-homes.html?searchResultPosition=2
 
-**What New Rules Would Improve Your Favorite Sport?**\
-`Major League Baseball is implementing some of the biggest changes in the sport’s history to make games more fun and action-packed. Will they help bring in younger fans?`\
-https://nytimes.com/2023/03/31/learning/what-new-rules-would-improve-your-favorite-sport.html?searchResultPosition=3
+**Resort Communities Turn to Adventure Sports to Lure New Residents**\
+`From wave pools to archery ranges, horseback riding to ax-throwing, communities are expanding beyond golf — and winning customers along the way.`\
+https://nytimes.com/2023/03/31/realestate/golf-resort-extreme-activities.html?searchResultPosition=3
 
-**Google C.E.O. Sundar Pichai on Bard, A.I. ‘Whiplash’ and Competing With ChatGPT**\
-`“Am I concerned? Yes. Am I optimistic and excited about all the potential of this technology? Incredibly.”`\
-https://nytimes.com/2023/03/31/podcasts/hard-fork-sundar.html?searchResultPosition=4
+**Oman Draws Visitors, and Residents, with Hospitality, Sunshine and, Yes, Golf**\
+`Slung alongside the Gulf of Oman and the Arabian Sea, the welcoming nation beckons those looking for a quieter experience in a booming region.`\
+https://nytimes.com/2023/03/31/realestate/oman-muscat-al-mouj-golf.html?searchResultPosition=4
 
-**My Favorite Song | Alex Newell**\
-`The actor and singer Alex Newell on Whitney Houston’s “How Will I Know.”`\
-https://nytimes.com/video/t-magazine/100000008833613/my-favorite-song-alex-newell.html?searchResultPosition=5
+**The New York Times News Quiz, March 31, 2023**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2023/03/31/briefing/news-quiz-trump-nashville.html?searchResultPosition=5
 
-**Hamlet, and a Political Awakening, Stir in the West Bank**\
-`Isabella Hammad’s new novel, “Enter Ghost,” recounts an actor’s return to Palestine amid a sea of troubles.`\
-https://nytimes.com/2023/03/31/books/review/isabella-hammad-enter-ghost.html?searchResultPosition=6
+**French Anger at Macron Seeps Into Unexpected Corners**\
+`Even Bordeaux, known for its surrounding vineyards and conservative politics, has become a flashpoint. The City Hall’s charred doors attest to that.`\
+https://nytimes.com/2023/03/31/world/europe/macron-france-bordeaux.html?searchResultPosition=6
 
-**Do You Speak Real Estate? Take Our Home Buyer’s Quiz.**\
-`Ready to purchase a home? Test your knowledge of real estate vocabulary.`\
-https://nytimes.com/interactive/2023/03/31/realestate/home-buying-real-estate-quiz.html?searchResultPosition=7
+**Practical but Not Pretty. That’s Pro Tennis at Miami’s N.F.L. Stadium.**\
+`Five years ago, the Miami Open had to abandon Crandon Park on Key Biscayne for Hard Rock Stadium and its parking lot. It remains a work in progress.`\
+https://nytimes.com/2023/03/31/sports/tennis/miami-open-dolphins-stadium.html?searchResultPosition=7
 
-**5 Things to Do This Weekend**\
-`Selections from the Weekend section, including a review of boygenius's album "The Record."`\
-https://nytimes.com/interactive/2023/03/31/arts/weekend-editors-picks-boygenius-album.html?searchResultPosition=8
+**Millennials Pay for a Dose of ’90s Nostalgia**\
+`At the second annual 90s Con, aging millennials traveled from across the United States to connect with the stars of their youth.`\
+https://nytimes.com/2023/03/31/style/90s-con.html?searchResultPosition=8
 
-**6 New Paperbacks to Read This Week**\
-`This week’s picks include Emily St. John Mandel’s latest novel, a biography of the Getty dynasty and more.`\
-https://nytimes.com/interactive/2023/03/31/books/review/new-paperbacks.html?searchResultPosition=9
+**Her Views From Close Up Are on Everyone’s Radar**\
+`Lois Dodd, at 95, is finally getting her largest museum show yet at the newly expanded Bruce Museum in Greenwich, Conn.`\
+https://nytimes.com/2023/03/31/arts/design/lois-dodd-bruce-museum-artist.html?searchResultPosition=9
 
-**How I Hold It Together: Cher’s Advice and More**\
-`Jancee Dunn, Well's weekly newsletter columnist, shares her strategies for self-care.`\
-https://nytimes.com/interactive/2023/03/31/well/mind/self-care-tips-stretching-libraries-cher.html?searchResultPosition=10
+**Women’s Sports Are Raking in Investments. The Final Four Shows Why.**\
+`With stars, story lines and skill, the TV rights for the women’s Division I basketball tournament could be worth over $80 million, part of a larger wave of investors flocking to women’s sports.`\
+https://nytimes.com/2023/03/31/sports/ncaabasketball/womens-final-four-tv-deal.html?searchResultPosition=10
 
