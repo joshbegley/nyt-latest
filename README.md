@@ -14,7 +14,11 @@ https://nytimes.com/2023/03/31/nyregion/alvin-bragg-trump-investigation.html?sea
 `Officers killed the man early Saturday outside the Aqsa Mosque compound, known to Jews as the Temple Mount. The killing risks raising tensions during Ramadan.`\
 https://nytimes.com/2023/03/31/world/middleeast/aqsa-mosque-shooting-jerusalem.html?searchResultPosition=4
 
+**L.S.U. Rallies Against Virginia Tech to Make N.C.A.A. Championship Game**\
+`Angel Reese had 24 points and 12 rebounds as the Tigers took control of the game in the last period.`\
+https://nytimes.com/2023/03/31/sports/ncaabasketball/lsu-virginia-tech-score.html?searchResultPosition=5
+
 **22-Year Sentence for Man Guilty in Hate-Crime Killing of Asian Immigrant**\
 `Jarrod Powell pleaded guilty to attacking Yao Pan Ma on an East Harlem street because the victim was of Asian descent.`\
-https://nytimes.com/2023/03/31/nyregion/asian-hate-crime-killing-man-sentenced.html?searchResultPosition=5
+https://nytimes.com/2023/03/31/nyregion/asian-hate-crime-killing-man-sentenced.html?searchResultPosition=6
 
