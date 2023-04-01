@@ -1,5 +1,5 @@
 **The Beach Boys Making a Final Four Run**\
-`Florida Atlantic has seemingly come out of nowhere to make a deep run in the N.C.A.A. men’s tournament. The university’s ambitions are relatively young, too.`\
+`Florida Atlantic has seemingly come out of nowhere to make a deep run in the men’s N.C.A.A. tournament. The university’s ambitions are relatively young, too.`\
 https://nytimes.com/2023/04/01/sports/ncaabasketball/florida-atlantic-final-four.html?searchResultPosition=1
 
 **A Once Lowly Program Gets a Second Shot at the Top**\
