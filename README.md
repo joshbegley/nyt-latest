@@ -22,7 +22,7 @@ https://nytimes.com/2023/04/01/us/politics/trump-indictment-scandals.html?search
 `Call it the consolation bracket, as teams jockey for position for next season.`\
 https://nytimes.com/2023/04/01/sports/ncaabasketball/final-four-transfer-portal.html?searchResultPosition=6
 
-**If DeSantis Thinks His Competence Will Help Him Beat Trump, He May Want to Think Again**\
+**Is It Too Late for Ron DeSantis?**\
 `Republican voters don’t want a manager, they want a performer.`\
 https://nytimes.com/2023/04/01/opinion/trump-desantis.html?searchResultPosition=7
 
