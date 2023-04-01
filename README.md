@@ -10,7 +10,7 @@ https://nytimes.com/2023/04/01/sports/ncaabasketball/iowa-south-carolina-final-f
 `Across many court cases over the decades, Mr. Trump has regularly leaned on those tactics. Now facing criminal charges in Manhattan, he has already lashed out at the judge.`\
 https://nytimes.com/2023/04/01/nyregion/trump-bragg-legal-defense-strategy.html?searchResultPosition=3
 
-**What the Trump Indictment Doesn’t Change for Ron DeSantis**\
+**What the Trump Indictment Means for Ron DeSantis and the G.O.P.**\
 `The Florida governor hasn’t yet swung back hard at Trump.`\
 https://nytimes.com/2023/04/01/opinion/trump-indictment-2024-desantis.html?searchResultPosition=4
 
