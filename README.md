@@ -2,31 +2,31 @@
 `The Times reviewed 101 studies of medication abortion, spanning continents and decades. All concluded that the pills are a safe method for terminating a pregnancy.`\
 https://nytimes.com/interactive/2023/04/01/health/abortion-pill-safety.html?searchResultPosition=1
 
-**What Decades of Providing Trans Health Care Have Taught Me**\
-`The field of transgender medicine is every bit as objective- and outcome-driven as any other specialty in medicine.`\
-https://nytimes.com/2023/04/01/opinion/trans-healthcare-law.html?searchResultPosition=2
-
 **Trump’s Prosecution Has Set a Dangerous Precedent**\
 `Biden could soon find himself in the cross hairs of politically motivated suits from local prosecutors eager to make names for themselves.`\
-https://nytimes.com/2023/04/01/opinion/trump-prosecution-precedent.html?searchResultPosition=3
+https://nytimes.com/2023/04/01/opinion/trump-prosecution-precedent.html?searchResultPosition=2
 
-**In the Utah Ski Trial, We Are All Gwynoccent**\
-`This case has reminded us that the justice system is easily exploited in ways that are wasteful and stupid.`\
-https://nytimes.com/2023/04/01/opinion/gwyneth-paltrow-ski-trial-what-means.html?searchResultPosition=4
-
-**I Am Not 80 Yet, but Among These 80-Year-Olds Is Where I Like to Be**\
-`In this locker room, the arc of fitness is long.`\
-https://nytimes.com/2023/04/01/opinion/locker-rooms-swimming-pools.html?searchResultPosition=5
+**What Decades of Providing Trans Health Care Have Taught Me**\
+`The field of transgender medicine is every bit as objective- and outcome-driven as any other specialty in medicine.`\
+https://nytimes.com/2023/04/01/opinion/trans-healthcare-law.html?searchResultPosition=3
 
 **Israel’s Protesters Won a Victory, but the Fight for Democracy Is Far From Over**\
 `Protesters who took to the streets understand that the written and unwritten checks and balances of Israeli government are still vulnerable.`\
-https://nytimes.com/2023/04/01/opinion/israel-protests-netanyahu.html?searchResultPosition=6
+https://nytimes.com/2023/04/01/opinion/israel-protests-netanyahu.html?searchResultPosition=4
+
+**In the Utah Ski Trial, We Are All Gwynoccent**\
+`This case has reminded us that the justice system is easily exploited in ways that are wasteful and stupid.`\
+https://nytimes.com/2023/04/01/opinion/gwyneth-paltrow-ski-trial-what-means.html?searchResultPosition=5
+
+**I Am Not 80 Yet, but Among These 80-Year-Olds Is Where I Like to Be**\
+`In this locker room, the arc of fitness is long.`\
+https://nytimes.com/2023/04/01/opinion/locker-rooms-swimming-pools.html?searchResultPosition=6
 
 **What We Had to Lose**\
 `An artist reflects on what was lost during the Ukraine war.`\
 https://nytimes.com/interactive/2023/04/01/opinion/ukraine-kyiv-war.html?searchResultPosition=7
 
-**The N.B.A. and Its Players Union Reach a Tentative Labor Deal**\
+**The N.B.A. and Its Players’ Union Reach a Tentative Labor Deal**\
 `The collective bargaining agreement, which is said to create a new in-season tournament, must be ratified by the players and team governors.`\
 https://nytimes.com/2023/04/01/sports/basketball/nba-collective-bargaining-agreement.html?searchResultPosition=8
 
