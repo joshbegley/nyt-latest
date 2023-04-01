@@ -7,7 +7,7 @@ https://nytimes.com/interactive/2023/03/31/us/tennessee-drag-ruling.html?searchR
 https://nytimes.com/2023/03/31/crosswords/daily-puzzle-2023-04-01.html?searchResultPosition=2
 
 **How Alvin Bragg Resurrected the Case Against Donald Trump**\
-`A year ago, the investigation into the former president appeared to be over. But a series of crucial turning points led to this week’s indictment.`\
+`A year ago, the investigation into the former president appeared from the outside to be over. But a series of crucial turning points led to this week’s indictment.`\
 https://nytimes.com/2023/03/31/nyregion/alvin-bragg-trump-investigation.html?searchResultPosition=3
 
 **Israeli Police Fatally Shoot Arab Outside Holy Site in Jerusalem**\
