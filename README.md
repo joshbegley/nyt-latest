@@ -2,9 +2,9 @@
 `A federal judge put a hold on the law hours before it was to take effect, saying there were legitimate questions about whether it violated the First Amendment.`\
 https://nytimes.com/2023/03/31/us/politics/tennessee-drag-law.html?searchResultPosition=1
 
-**Read the judge’s ruling**\
+**Read the judge’s order**\
 `Judge Thomas L. Parker agreed to delay the implementation of a law limiting drag performance in Tennessee for at least 14 days.`\
-https://nytimes.com/interactive/2023/03/31/us/tennessee-drag-ruling.html?searchResultPosition=2
+https://nytimes.com/interactive/2023/04/01/us/tennessee-drag-ruling.html?searchResultPosition=2
 
 **Cry Heard on April Fools’ Day**\
 `This Saturday collaboration between Wyna Liu and Joel Fagliano looks hard, but it really just looks hard.`\
