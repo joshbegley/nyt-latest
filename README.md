@@ -1,6 +1,6 @@
 **The Value of Regional Banks**\
 `As midsized lenders have come under pressure in the wake of Silicon Valley Bank’s collapse, experts say their role in the economy must be preserved.`\
-https://nytimes.com/2023/04/01/business/dealbook/the-value-of-regional-banks.html?searchResultPosition=1
+https://nytimes.com/2023/04/01/business/dealbook/regional-banks-economy.html?searchResultPosition=1
 
 **Are Abortion Pills Safe? Here’s the Evidence.**\
 `The Times reviewed 101 studies of medication abortion, spanning continents and decades. All concluded that the pills are a safe method for terminating a pregnancy.`\
