@@ -1,40 +1,40 @@
+**Chicagoans Are Picking a Mayor. Here’s What Matters From 4 Key Wards.**\
+`Voters will go to the polls on Tuesday in the nation’s third-largest city, a place where neighborhoods often stand apart.`\
+https://nytimes.com/2023/04/02/us/chicago-mayor-election-neighborhoods.html?searchResultPosition=1
+
+**No More Blank Checks: Saudi Arabia Clamps Down on Regional Aid**\
+`The kingdom used to send money to poorer countries like Egypt with few strings attached. But it is increasingly leveraging its economic power for influence in the Middle East and beyond.`\
+https://nytimes.com/2023/04/02/world/middleeast/no-more-blank-checks-saudi-arabia-clamps-down-on-regional-aid.html?searchResultPosition=2
+
+**A Chicago Mayoral Hopeful Who Took on Hard-to-Fix Schools Faces a Political Shift**\
+`Paul Vallas has long been a supporter of charter schools. He is running against Brandon Johnson, an ex-teacher with a different approach.`\
+https://nytimes.com/2023/04/02/us/chicago-mayor-election-education.html?searchResultPosition=3
+
+**An Unlikely Champion**\
+`The publisher of The New York Times received a Red Sox World Series ring after Boston’s historic triumph in 2004.`\
+https://nytimes.com/2023/04/02/insider/an-unlikely-champion.html?searchResultPosition=4
+
+**‘A Cabdriver With Four Young Male Passengers Cut Across a Lane’**\
+`An exchange on Fifth Avenue, sketching on the C and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2023/04/02/nyregion/metropolitan-diary.html?searchResultPosition=5
+
+**Today’s Wordle Review**\
+`Our columnist reviews the day’s puzzle. Warning: contains spoilers!`\
+https://nytimes.com/2023/04/02/crosswords/wordle-review-answer-652.html?searchResultPosition=6
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2023/04/02/crosswords/spelling-bee-forum.html?searchResultPosition=7
+
 **‘Saturday Night Live’ Tackles the Trump Indictment**\
 `The episode, hosted by Quinta Brunson, envisioned the former president going to unusual lengths to pay for his legal defense.`\
-https://nytimes.com/2023/04/02/arts/television/saturday-night-live-trump-indictment.html?searchResultPosition=1
+https://nytimes.com/2023/04/02/arts/television/saturday-night-live-trump-indictment.html?searchResultPosition=8
 
 **Corrections: April 2, 2023**\
 `Corrections that appeared in print on Sunday, April 2, 2023.`\
-https://nytimes.com/2023/04/02/pageoneplus/corrections-april-2-2023.html?searchResultPosition=2
+https://nytimes.com/2023/04/02/pageoneplus/corrections-april-2-2023.html?searchResultPosition=9
 
 **Quotation of the Day: As Sea Levels Rise, the Savior of Venice May Also Be Its Curse**\
 `Quotation of the Day for Sunday, April 2, 2023.`\
-https://nytimes.com/2023/04/02/pageoneplus/quotation-of-the-day-as-sea-levels-rise-the-savior-of-venice-may-also-be-its-curse.html?searchResultPosition=3
-
-**The Endorsement Deals Shaping the N.C.A.A. Tournaments**\
-`Both Miami’s men’s and women’s teams made deep runs in March. Their athletes also had significant backing in the form of name, image and likeness deals.`\
-https://nytimes.com/2023/04/02/sports/ncaabasketball/nil-deals-ncaa-tournament.html?searchResultPosition=4
-
-**For Leaders Abroad, the Prospect of a Trump Revival Is Ever-Present**\
-`The indictment last week of Donald J. Trump has not changed the calculations of many world leaders who view his political resilience as inevitable.`\
-https://nytimes.com/2023/04/02/world/trump-indictment-world-leaders.html?searchResultPosition=5
-
-**Journalist Detained by Russia Was Reporting Stories That ‘Needed to Be Told’**\
-`Evan Gershkovich, who works for The Wall Street Journal, knew the risks of reporting in Russia but felt a deep connection to the country, his friends said.`\
-https://nytimes.com/2023/04/02/business/media/evan-gershkovich-wsj-reporter-russia.html?searchResultPosition=6
-
-**UConn Will Meet San Diego State in the Final After Romping Past Miami**\
-`The Huskies could claim their fifth championship in 25 years — something no men’s program other than U.C.L.A. and Duke has accomplished.`\
-https://nytimes.com/2023/04/01/sports/ncaabasketball/uconn-miami-final-four.html?searchResultPosition=7
-
-**Heidi Gardner Celebrates Easter … Candy**\
-`When she isn’t making audiences laugh on “Saturday Night Live,” she’s hanging out with girlfriends, admiring the flowers at 30 Rock and cheering for the Kansas City Chiefs.`\
-https://nytimes.com/2023/04/01/arts/television/heidi-gardner-saturday-night-live.html?searchResultPosition=8
-
-**Iowa’s Win Over South Carolina Was a Hit for ESPN, With 5.5 Million Viewers**\
-`The highly anticipated matchup delivered more viewers than any non-championship game in women’s college basketball. And the Iowa-Louisiana State final on Sunday is on network TV.`\
-https://nytimes.com/2023/04/01/sports/ncaabasketball/iowa-south-carolina-tv-ratings-espn.html?searchResultPosition=9
-
-**Red Bull Starts First and Last in Melbourne**\
-`Red Bull’s Max Verstappen and Sergio Pérez split the first two races of the Formula 1 season. But there’s a lot of road left.`\
-https://nytimes.com/2023/04/01/sports/autoracing/australian-grand-prix-results-f1.html?searchResultPosition=10
+https://nytimes.com/2023/04/02/pageoneplus/quotation-of-the-day-as-sea-levels-rise-the-savior-of-venice-may-also-be-its-curse.html?searchResultPosition=10
 
