@@ -14,7 +14,7 @@ https://nytimes.com/2023/04/01/arts/television/heidi-gardner-saturday-night-live
 `The highly anticipated matchup delivered more viewers than any non-championship game in women’s college basketball. And the Iowa-Louisiana State final on Sunday is on network TV.`\
 https://nytimes.com/2023/04/01/sports/ncaabasketball/iowa-south-carolina-tv-ratings-espn.html?searchResultPosition=4
 
-**Two Drivers, One Title, No Problem. Yet.**\
+**Red Bull Starts First and Last in Melbourne**\
 `Red Bull’s Max Verstappen and Sergio Pérez split the first two races of the Formula 1 season. But there’s a lot of road left.`\
 https://nytimes.com/2023/04/01/sports/autoracing/australian-grand-prix-results-f1.html?searchResultPosition=5
 
