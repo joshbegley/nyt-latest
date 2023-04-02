@@ -14,13 +14,13 @@ https://nytimes.com/2023/04/02/briefing/donald-trump-indictment-arrest.html?sear
 `Regulators faced questions about their oversight in the wake of bank failures. The jobs numbers for March come out. And Donald Trump is expected to be arraigned.`\
 https://nytimes.com/2023/04/02/business/the-week-in-business-silicon-valley-bank-takeover.html?searchResultPosition=4
 
-**The Problem With Everything-Bagel Liberalism**\
-`Trouble comes when Democrats try to do everything everywhere all at once.`\
-https://nytimes.com/2023/04/02/opinion/democrats-liberalism.html?searchResultPosition=5
-
 **Colleges Should Be More Than Just Vocational Schools**\
 `Elected officials have pushed vocational programs at the expense of the liberal arts. That’s hurting America.`\
-https://nytimes.com/2023/04/02/opinion/humanities-liberal-arts-policy-higher-education.html?searchResultPosition=6
+https://nytimes.com/2023/04/02/opinion/humanities-liberal-arts-policy-higher-education.html?searchResultPosition=5
+
+**The Problem With Everything-Bagel Liberalism**\
+`Trouble comes when Democrats try to do everything everywhere all at once.`\
+https://nytimes.com/2023/04/02/opinion/democrats-liberalism.html?searchResultPosition=6
 
 **The Sunday Read: ‘A Sandwich Shop, a Tent City and an American Crisis’**\
 `As homelessness overwhelms downtown Phoenix, a small business wonders how long it can hang on.`\
