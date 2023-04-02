@@ -1,4 +1,4 @@
-**Montenegro’s President Is Defeated in Runoff Election**\
+**Montenegro’s President, Europe’s Longest-Serving Leader, Is Defeated in Runoff**\
 `The incumbent, Milo Djukanovic, conceded  to Jakov Milatovic, who had campaigned on pledges to root out corruption and organized crime.`\
 https://nytimes.com/2023/04/02/world/europe/milo-djukanovic-montenegro-election.html?searchResultPosition=1
 
