@@ -6,7 +6,7 @@ https://nytimes.com/2023/04/01/sports/ncaabasketball/iowa-south-carolina-tv-rati
 `Red Bull’s Max Verstappen and Sergio Pérez split the first two races of the Formula 1 season. But there’s a lot of road left.`\
 https://nytimes.com/2023/04/01/sports/autoracing/australian-grand-prix-results-f1.html?searchResultPosition=2
 
-**Lamont Butler hits a buzzer-beater to send San Diego State to the championship game.**\
+**Lamont Butler Hits a Buzzer-Beater to Send San Diego State to the Title Game**\
 `“You cant even dream about what just happened,” his father, Lamont Butler Sr., said moments after the shot went in.`\
 https://nytimes.com/2023/04/01/sports/ncaabasketball/san-diego-state-buzzer-beater.html?searchResultPosition=3
 
