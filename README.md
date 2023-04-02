@@ -2,17 +2,17 @@
 `Regulators faced questions about their oversight in the wake of bank failures. The jobs numbers for March come out. And Donald Trump is expected to be arraigned.`\
 https://nytimes.com/2023/04/02/business/the-week-in-business-silicon-valley-bank-takeover.html?searchResultPosition=1
 
+**The Problem With Everything-Bagel Liberalism**\
+`Trouble comes when Democrats try to do everything everywhere all at once.`\
+https://nytimes.com/2023/04/02/opinion/democrats-liberalism.html?searchResultPosition=2
+
 **Colleges Should Be More Than Just Vocational Schools**\
 `Elected officials have pushed vocational programs at the expense of the liberal arts. That’s hurting America.`\
-https://nytimes.com/2023/04/02/opinion/humanities-liberal-arts-policy-higher-education.html?searchResultPosition=2
+https://nytimes.com/2023/04/02/opinion/humanities-liberal-arts-policy-higher-education.html?searchResultPosition=3
 
 **The Sunday Read: ‘A Sandwich Shop, a Tent City and an American Crisis’**\
 `As homelessness overwhelms downtown Phoenix, a small business wonders how long it can hang on.`\
-https://nytimes.com/2023/04/02/podcasts/the-daily/sandwich-shop-tent-city-and-an-american-crisis-homelessness-phoenix.html?searchResultPosition=3
-
-**The Problem With Everything-Bagel Liberalism**\
-`Trouble comes when Democrats try to do everything everywhere all at once.`\
-https://nytimes.com/2023/04/02/opinion/democrats-liberalism.html?searchResultPosition=4
+https://nytimes.com/2023/04/02/podcasts/the-daily/sandwich-shop-tent-city-and-an-american-crisis-homelessness-phoenix.html?searchResultPosition=4
 
 **Ending Your Pet’s Life Was the Right Decision. So Why Do You Feel So Guilty?**\
 `As a veterinarian, I counseled many people through the end of a beloved pet’s life. But when my cat got sick, it started a whole new journey.`\
