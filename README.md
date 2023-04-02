@@ -19,7 +19,7 @@ https://nytimes.com/2023/04/02/world/europe/russian-military-blogger-explosion.h
 https://nytimes.com/video/world/europe/100000008841451/palm-sunday-pope-francis.html?searchResultPosition=5
 
 **In Surprise, OPEC Plus Announces Cut in Oil Production**\
-`The move is an apparent effort to boost prices. Still, its significance may be slight, especially if the global economy slows.`\
+`The move to cut 1.2 million barrels a day is an apparent effort to increase prices. Still, its significance may be slight, especially if the global economy slows.`\
 https://nytimes.com/2023/04/02/business/02opec-plus-oil-production.html?searchResultPosition=6
 
 **Review: Doleful ‘Vespers’ Pray for an Earth in Crisis**\
