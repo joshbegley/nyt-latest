@@ -1,40 +1,40 @@
-**Forest Fire Breaks Out on a Mountain in Central Seoul**\
-`Dozens of nearby homes were evacuated as firefighters hurried to contain the blaze on one of Seoul’s most popular hiking sites.`\
-https://nytimes.com/2023/04/02/world/asia/forest-fire-seoul.html?searchResultPosition=1
+**‘On a Tightrope’: How Taiwan’s President Navigated the U.S. and China**\
+`Known for her quiet pragmatism, Tsai Ing-wen has ushered in a new era of American cooperation as worries about Chinese aggression rise.`\
+https://nytimes.com/2023/04/02/world/asia/taiwan-president-tsai-ing-wen.html?searchResultPosition=1
 
-**Zelensky Denounces ‘Absurd’ U.N. Security Council Presidency for Russia**\
-`President Volodymyr Zelensky of Ukraine said that permitting Moscow its monthlong chairmanship of Security Council meetings showed “the complete bankruptcy of such institutions.”`\
-https://nytimes.com/2023/04/02/world/europe/ukraine-russia-un-security-council.html?searchResultPosition=2
+**Democrats Run on Abortion, Even for Offices With Little Say on the Issue**\
+`Seizing on a powerful motivator for their party, Democratic candidates for municipal offices have put Republicans on their heels. “I’m running for mayor, I’m not debating abortion,” one said.`\
+https://nytimes.com/2023/04/02/us/politics/democrats-abortion-mayor.html?searchResultPosition=2
 
-**Caitlin Clark and the Talent Conundrum Facing the W.N.B.A.**\
-`Women’s college basketball has never seen the scale of talent it has today. But with only 144 spots in the W.N.B.A., some very bright college stars will have to play elsewhere.`\
-https://nytimes.com/2023/04/02/sports/ncaabasketball/womens-basketball-caitlin-clark-angel-reese.html?searchResultPosition=3
+**Norfolk Southern’s Push for Profits Compromised Safety, Workers Say**\
+`Federal officials are investigating the railroad’s safety practices and culture after the derailment in East Palestine, Ohio, and worker deaths.`\
+https://nytimes.com/2023/04/02/business/norfolk-southern-railroad-safety.html?searchResultPosition=3
 
-**Chicagoans Are Picking a Mayor. Here’s What Matters From 4 Key Wards.**\
-`Voters will go to the polls on Tuesday in the nation’s third-largest city, a place where neighborhoods often stand apart.`\
-https://nytimes.com/2023/04/02/us/chicago-mayor-election-neighborhoods.html?searchResultPosition=4
+**How a Milliner Spends Her Sundays**\
+`Linda Pagan, who runs a popular hat shop in SoHo, likes to stroll and visit neighborhood spots like Fanelli Cafe and Film Forum.`\
+https://nytimes.com/2023/04/02/nyregion/the-hat-shop-nyc.html?searchResultPosition=4
 
-**No More Blank Checks: Saudi Arabia Clamps Down on Regional Aid**\
-`The kingdom used to send money to poorer countries like Egypt with few strings attached. But it is increasingly leveraging its economic power for influence in the Middle East and beyond.`\
-https://nytimes.com/2023/04/02/world/middleeast/no-more-blank-checks-saudi-arabia-clamps-down-on-regional-aid.html?searchResultPosition=5
+**These Ukrainians Arrived Under a Biden Program. They Ended Up Homeless.**\
+`More than 280,000 Ukrainians have escaped the war through a program meant to resettle them into the homes of Americans. But not everyone has found a safe or welcoming place to stay.`\
+https://nytimes.com/2023/04/02/nyregion/ukraine-refugees-homeless.html?searchResultPosition=5
 
-**A Chicago Mayoral Hopeful Who Took on Hard-to-Fix Schools Faces a Political Shift**\
-`Paul Vallas has long been a supporter of charter schools. He is running against Brandon Johnson, an ex-teacher with a different approach.`\
-https://nytimes.com/2023/04/02/us/chicago-mayor-election-education.html?searchResultPosition=6
+**The Rise and Fall of a Grand Dragon of the Ku Klux Klan**\
+`In a new book, Timothy Egan traces the Klan’s expansion in the 1920s across American political and civic life. Then its leader, David C. Stephenson, committed murder.`\
+https://nytimes.com/2023/04/02/books/review/a-fever-in-the-heartland-timothy-egan.html?searchResultPosition=6
 
-**An Unlikely Champion**\
-`The publisher of The New York Times received a Red Sox World Series ring after Boston’s historic triumph in 2004.`\
-https://nytimes.com/2023/04/02/insider/an-unlikely-champion.html?searchResultPosition=7
+**It Takes More Than the Kindness of Strangers**\
+`Playing Blanche DuBois is shattering, say the actresses featured in Nancy Schoenberger’s “Blanche.” But Tennessee Williams’s most indelible character is now a figure of sympathy.`\
+https://nytimes.com/2023/04/02/books/blanche-dubois-nancy-schoenberger.html?searchResultPosition=7
 
-**‘A Cabdriver With Four Young Male Passengers Cut Across a Lane’**\
-`An exchange on Fifth Avenue, sketching on the C and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2023/04/02/nyregion/metropolitan-diary.html?searchResultPosition=8
+**Fight Over Corruption and Congo’s Mining Riches Takes a Turn in Washington**\
+`Dan Gertler, an Israeli billionaire, is pressing President Biden to remove sanctions that were imposed on him for bribe-fueled transactions in the impoverished African country.`\
+https://nytimes.com/2023/04/02/us/politics/dan-gertler-biden-congo-sanctions.html?searchResultPosition=8
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: contains spoilers!`\
-https://nytimes.com/2023/04/02/crosswords/wordle-review-answer-652.html?searchResultPosition=9
+**SPAC Tied to Trump Media Rushes to Complete Deal**\
+`The merger of Digital World and Trump Media has been held up by investigations, but executives are rushing to complete the deal by a Sept. 8 deadline.`\
+https://nytimes.com/2023/04/02/business/trump-truth-social-spac.html?searchResultPosition=9
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/04/02/crosswords/spelling-bee-forum.html?searchResultPosition=10
+**The Children’s Rights Advocate Accused of Russian War Crimes**\
+`Maria Lvova-Belova says she is running a humanitarian evacuation of abandoned Ukrainian children. The International Criminal Court accuses her of abducting them wholesale.`\
+https://nytimes.com/2023/04/02/world/europe/maria-lvova-belova-russia.html?searchResultPosition=10
 
