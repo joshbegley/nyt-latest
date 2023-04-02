@@ -1,5 +1,5 @@
 **Arrest Made in Robberies and Murders of Gay Men Who Were Drugged**\
-`Jacob Barroso, 30, arrested Saturday and charged with the murder of Julio Ramirez, a 25-year-old social worker, is the third person charged in the cases.`\
+`Jacob Barroso, 30, arrested Saturday in the murder of Julio Ramirez, a 25-year-old social worker, is the third person charged in the cases.`\
 https://nytimes.com/2023/04/02/nyregion/manhattan-gay-bars-drugging-murders.html?searchResultPosition=1
 
 **For Sarah Bakewell, Nothing Human is Alien**\
