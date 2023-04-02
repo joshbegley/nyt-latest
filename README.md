@@ -31,7 +31,7 @@ https://nytimes.com/2023/04/02/nyregion/trump-nyc-arraignment-indictment.html?se
 https://nytimes.com/2023/04/02/us/storm-tornadoes-forecast-weather-tx-il.html?searchResultPosition=8
 
 **Influential Russian Military Blogger Is Killed in St. Petersburg Bombing**\
-`Maksim Fomin, who was known as Vladlen Tatarsky, represented a radical wing of pro-invasion bloggers and activists who backed Moscow’s war but also criticized what they saw as the flaws in the Russian Army.`\
+`Vladlen Tatarsky represented a radical wing of pro-invasion bloggers and activists who backed Moscow’s war but also criticized what they saw as the flaws in the Russian Army.`\
 https://nytimes.com/2023/04/02/world/europe/russian-military-blogger-explosion.html?searchResultPosition=9
 
 **Pope Francis Leads Palm Sunday Mass After Hospital Stay**\
