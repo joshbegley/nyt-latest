@@ -1,6 +1,6 @@
 **2 Pro-Impeachment Senators Question Motives Behind Trump Indictment**\
 `Joe Manchin, a Democrat, and Bill Cassidy, a Republican, both voted to convict Donald Trump after Jan. 6. They expressed concern on Sunday that the criminal case against him is political.`\
-https://nytimes.com/2023/04/02/us/politics/sunday-shows-trump-indictment.html?searchResultPosition=1
+https://nytimes.com/2023/04/02/us/politics/trump-indictment-joe-manchin.html?searchResultPosition=1
 
 **Tesla Sales Jumped in the First Quarter**\
 `The electric car company’s decision to slash prices appears to have paid off in reviving demand.`\
