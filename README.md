@@ -27,7 +27,7 @@ https://nytimes.com/2023/04/03/podcasts/the-daily/trump-indictment-reaction.html
 https://nytimes.com/2023/04/03/us/politics/super-pac-desantis.html?searchResultPosition=7
 
 **Oil Prices Jump, Signaling a ‘Proactive, Pre-emptive’ OPEC**\
-`Adding to global economic uncertainties, oil prices rose about 5 percent on Monday after Saudi Arabia and other major producers announced a surprise cut in crude production.`\
+`Adding to global economic uncertainties, oil prices rose on Monday after Saudi Arabia and other major producers announced a surprise cut in crude production.`\
 https://nytimes.com/2023/04/03/business/oil-prices-opec-cut.html?searchResultPosition=8
 
 **Ex-Principal Extradited From Israel Is Convicted of Abuse in Australia**\
