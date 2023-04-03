@@ -1,5 +1,5 @@
 **Nigel Lawson, Economic Force Under Thatcher, Dies at 91**\
-`As chancellor of the Exchequer, he helped lift Britain with tax cuts and other conservative measures — the “Lawson Boom” — but harder times followed, and he resigned.`\
+`As chancellor of the Exchequer, he helped lift Britain with tax cuts and other Conservative measures — the “Lawson Boom” — but harder times followed, and he resigned.`\
 https://nytimes.com/2023/04/03/world/europe/nigel-lawson-dead.html?searchResultPosition=1
 
 **N.C.A.A. Women’s Tournament Shatters Ratings Record in Final**\
