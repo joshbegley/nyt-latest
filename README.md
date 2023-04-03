@@ -19,7 +19,7 @@ https://nytimes.com/2023/04/03/arts/music/emahoy-tsegue-maryam-guebrou-dead.html
 https://nytimes.com/2023/04/03/nyregion/trump-indictment-lawyer-blanche.html?searchResultPosition=5
 
 **Strange Days at the U.N. as Russia Takes the Helm of the Security Council**\
-`The monthlong presidency of an organization dedicated to preserving world peace is now in the hand of a nation waging the biggest land war in Europe in decades.`\
+`The monthlong presidency of an organization dedicated to preserving world peace is now in the hands of a nation waging the biggest land war in Europe in decades.`\
 https://nytimes.com/2023/04/03/world/europe/un-security-council-russia.html?searchResultPosition=6
 
 **Brooke Shields and the Curse of Great Beauty**\
