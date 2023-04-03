@@ -1,40 +1,40 @@
-**Sanna Marin’s Party Finishes Third in Finland’s Election**\
-`The prime minister and her Social Democratic Party conceded the parliamentary election as Peter Orpo and the National Coalition Party celebrated victory.`\
-https://nytimes.com/video/world/europe/100000008842055/sanna-marin-finland-election.html?searchResultPosition=1
+**5 Types of Watches Define the Market**\
+`The options for building a solid collection of timepieces are almost limitless, but choices from these categories would be a good start.`\
+https://nytimes.com/2023/04/03/fashion/watches-collection-categories.html?searchResultPosition=1
 
-**Battered by Storms, the Midwest and South Brace for More**\
-`Days after powerful storms pummeled much of the U.S., another weather system is expected to bring blizzards, hail and thunderstorms.`\
-https://nytimes.com/video/us/100000008842144/storm-central-north-blizzard.html?searchResultPosition=2
+**Joy in Little-Known Watch Brands**\
+`As the hype around household names became overwhelming, some collectors turned to makers like Moritz Grossmann and Furlan Marri.`\
+https://nytimes.com/2023/04/03/fashion/watches-collectors-hype.html?searchResultPosition=2
 
-**2023 Masters: Last-Minute Practice, and Tiger and Phil Return**\
-`Plus, Rose Zhang won the Augusta National Women’s Amateur in breathtaking fashion.`\
-https://nytimes.com/2023/04/03/sports/golf/masters-woods-mickelson-johnson-liv.html?searchResultPosition=3
+**We Should Mythologize Women’s Sports**\
+`Time, instead of adding to the luster of women’s sports as it does men’s, erodes it.`\
+https://nytimes.com/2023/04/03/opinion/we-should-mythologize-womens-sports.html?searchResultPosition=3
 
-**Drug-Resistant Bacteria Tied to Eyedrops Can Spread Person to Person**\
-`The C.D.C. traced deaths and cases of blindness to products imported from India. The agency said it was concerned that the bacteria could gain a foothold in the U.S.`\
-https://nytimes.com/2023/04/03/health/superbug-eyedrops-blindness.html?searchResultPosition=4
+**How the U.S., Family and Hollywood Freed the ‘Hotel Rwanda’ Hero**\
+`Paul Rusesabagina, depicted in the 2004 film about genocide in his country, was reunited with his family last week. It took years of pressure to get him out of Rwanda, where he was convicted on terrorism charges.`\
+https://nytimes.com/2023/04/03/world/africa/hotel-rwanda-rusesabagina-kagame.html?searchResultPosition=4
 
-**LIV Golf Talks a Big Game to the Global Elite. Now Come the Majors.**\
-`Despite setbacks, LIV’s executives insist the Saudi-backed league is soaring. For many fans, the rhetoric is less important than results at events like the Masters Tournament.`\
-https://nytimes.com/2023/04/03/sports/golf/masters-liv-pga.html?searchResultPosition=5
+**Inside a Detective’s Quest to Find the Man Who Killed a Young Mother**\
+`Jasmine Porter’s 4-year-old son watched as a man assaulted her in their Bronx apartment. Decades later, a Police Department investigator began trying to crack the case.`\
+https://nytimes.com/2023/04/03/nyregion/jasmine-porter-murder-bronx.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/04/03/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**As Classic Novels Get Revised for Today’s Readers, a Debate About Where to Draw the Line**\
+`Agatha Christie. Roald Dahl. Ian Fleming. Classics are being reworked to remove offensive language. But some readers wonder, when does posthumous editing go too far?`\
+https://nytimes.com/2023/04/03/books/classic-novels-revisions-agatha-christie-roald-dahl.html?searchResultPosition=6
 
-**A Presidential Candidate and a City Brace for a Consequential Week**\
-`Donald Trump and his campaign spent the weekend making plans for his arrest, and how to capitalize on it, while officials in New York prepared for potential turmoil.`\
-https://nytimes.com/2023/04/03/us/donald-trump-indicted-new-york.html?searchResultPosition=7
+**‘Hot Ones’ Was a Slow Burn All Along**\
+`This YouTube talk show’s premise is simple: Disarm celebrities with deep-cut questions and scorchingly spicy wings. Nearly 300 episodes later, the recipe still works.`\
+https://nytimes.com/2023/04/03/arts/television/hot-ones-youtube-show.html?searchResultPosition=7
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/04/03/crosswords/wordle-review-answer-653.html?searchResultPosition=8
+**California Salmon Stocks Are Crashing. A Fishing Ban Looks Certain.**\
+`Scientists say alarming declines at the southern end of the fishes’ range may be a sign of what’s to come as waters warm farther north.`\
+https://nytimes.com/2023/04/03/climate/salmon-fishery-closed-california.html?searchResultPosition=8
 
-**Hail the Bagel: Rockefeller Center Flags Honor N.Y.C. Food**\
-`To celebrate the city’s resilience, the flags salute New York’s cornucopia of culinary delights.`\
-https://nytimes.com/2023/04/03/nyregion/flags-rockefeller-center-food.html?searchResultPosition=9
+**Netflix’s Approach Shifts, Pushing Content That Can ‘Pop’**\
+`The streaming service long thought spending on ads didn’t result in more viewers. That has subtly changed under the marketing chief Marian Lee.`\
+https://nytimes.com/2023/04/03/business/media/netflix-marketing.html?searchResultPosition=9
 
-**Word of the Day: inexorable**\
-`This word has appeared in 55 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/04/03/learning/word-of-the-day-inexorable.html?searchResultPosition=10
+**We’re Living in a World Where the Sanctuaries Are Actually Prisons**\
+`The rich world has developed a shockingly high tolerance for cruelty in order to keep out desperate people.`\
+https://nytimes.com/2023/04/03/opinion/refguees-migration-mexico-fire-turkey-earthquake.html?searchResultPosition=10
 
