@@ -6,8 +6,8 @@ https://nytimes.com/2023/04/04/nyregion/trump-hush-money-charges.html?searchResu
 `The “Scream” actress opens up about reprising her role in the franchise, becoming sober and grieving the death of her brother.`\
 https://nytimes.com/2023/04/04/style/hayden-panettiere-scream-6.html?searchResultPosition=2
 
-**Charlie Javice Is Charged With Defrauding JPMorgan Chase of $175 Million**\
-`The 31-year-old founder of Frank, a college financial planning company, was sued by JPMorgan Chase for falsifying customer data.`\
+**Former Start-up Founder Charged by Prosecutors for Defrauding JPMorgan Chase**\
+`Charlie Javice, the 31-year-old founder of Frank, a college financial planning company, was sued by JPMorgan Chase for falsifying customer data.`\
 https://nytimes.com/2023/04/04/business/charlie-javice-jpmorgan-fraud.html?searchResultPosition=3
 
 **Transcript: Ezra Klein Interviews Chris Miller**\
