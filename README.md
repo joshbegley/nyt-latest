@@ -19,7 +19,7 @@ https://nytimes.com/2023/04/04/dining/nyc-restaurant-news.html?searchResultPosit
 https://nytimes.com/2023/04/04/opinion/internet-economy.html?searchResultPosition=5
 
 **Former Aide to Maryland Ex-Governor Dies After Shooting Involving F.B.I.**\
-`Roy McGrath, who was chief of staff to former Gov. Larry Logan, was wanted by the F.B.I. for three weeks after he did not appear for a federal fraud trial in March.`\
+`Roy McGrath, who was chief of staff to former Gov. Larry Hogan, was wanted by the F.B.I. for three weeks after he did not appear for a federal fraud trial in March.`\
 https://nytimes.com/2023/04/04/us/roy-mcgrath-maryland-fbi-shooting.html?searchResultPosition=6
 
 **Marjorie Taylor Greene Speaks Outside Manhattan Criminal Court**\
