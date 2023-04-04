@@ -28,7 +28,7 @@ https://nytimes.com/2023/04/03/world/europe/un-security-council-russia.html?sear
 
 **Brooke Shields and the Curse of Great Beauty**\
 `“Pretty Baby,” a new documentary on Hulu, explores the toll that sexual and commercial objectification takes on women.`\
-https://nytimes.com/2023/04/03/style/pretty-baby-hulu.html?searchResultPosition=8
+https://nytimes.com/2023/04/03/style/brooke-shields-pretty-baby.html?searchResultPosition=8
 
 **Raghavan Iyer Dies at 61; Made Indian Cooking Accessible to Americans**\
 `He broke with traditions in writing cookbooks, teaching thousands of cooks, consulting for restaurants, leading tours, catering meals and creating frozen dinners.`\
