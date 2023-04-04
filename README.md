@@ -1,4 +1,4 @@
-**Job Openings Fell in February as Labor Market’s Slow Cool-down Continued**\
+**Job Openings Fell in February as Labor Market’s Slow Cool-Down Continued**\
 `The data shows the job market continues to ease off its red-hot pace, but there are still more openings than unemployed workers in the country.`\
 https://nytimes.com/2023/04/04/business/economy/february-jolts-jobs-report.html?searchResultPosition=1
 
