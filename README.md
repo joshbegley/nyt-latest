@@ -1,40 +1,40 @@
+**Review: ‘Berlusconi: A New Musical’ Is Hammy and Hamstrung**\
+`The show, in London, skewers its protagonist through maximalist kitsch, but it comes with a tone of finger-wagging moralism that’s no fun.`\
+https://nytimes.com/2023/04/04/theater/berlusconi-a-new-musical-review.html?searchResultPosition=1
+
 **The Trump Spectacle in a Manhattan Courtroom**\
 `Readers respond to the Trump drama in New York. Also: Finland enters NATO.`\
-https://nytimes.com/2023/04/04/opinion/letters/trump-arraignment.html?searchResultPosition=1
+https://nytimes.com/2023/04/04/opinion/letters/trump-arraignment.html?searchResultPosition=2
 
 **Tiny Love Stories: ‘Several Failed First Dates’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2023/04/04/style/tiny-modern-love-stories-several-failed-first-dates.html?searchResultPosition=2
+https://nytimes.com/2023/04/04/style/tiny-modern-love-stories-several-failed-first-dates.html?searchResultPosition=3
 
 **The Carriage House, Complete With Butter Candles, Opens in the West Village**\
 `A bistro with a wine pedigree, a sprawling New Jersey restaurant with views of Manhattan, and more.`\
-https://nytimes.com/2023/04/04/dining/nyc-restaurant-news.html?searchResultPosition=3
+https://nytimes.com/2023/04/04/dining/nyc-restaurant-news.html?searchResultPosition=4
 
 **The Internet Was an Economic Disappointment**\
 `A glamorous technology delivered surprisingly small benefits.`\
-https://nytimes.com/2023/04/04/opinion/internet-economy.html?searchResultPosition=4
+https://nytimes.com/2023/04/04/opinion/internet-economy.html?searchResultPosition=5
 
 **Former Aide to Maryland Ex-Governor Dies After Shooting Involving F.B.I.**\
 `Roy McGrath, who was chief of staff to former Gov. Larry Logan, was wanted by the F.B.I. for three weeks after he did not appear for a federal fraud trial in March.`\
-https://nytimes.com/2023/04/04/us/roy-mcgrath-maryland-fbi-shooting.html?searchResultPosition=5
+https://nytimes.com/2023/04/04/us/roy-mcgrath-maryland-fbi-shooting.html?searchResultPosition=6
 
 **Marjorie Taylor Greene Speaks Outside Manhattan Criminal Court**\
 `Trump supporters gathered around Representative Marjorie Taylor Greene and chanted “U.S.A.”, while anti-Trump protesters booed during her remarks outside the courthouse.`\
-https://nytimes.com/video/us/politics/100000008844697/trump-court-indictment-greene.html?searchResultPosition=6
+https://nytimes.com/video/us/politics/100000008844697/trump-court-indictment-greene.html?searchResultPosition=7
 
 **He Covered Repression of Russian Journalists. Now, They Are Covering Him.**\
 `Evan Gershkovich’s work for The Wall Street Journal included reporting on the efforts by Russians to help others who were being repressed. Russian journalists are now scrutinizing his arrest as a brazen attack on press freedom.`\
-https://nytimes.com/2023/04/04/world/europe/evan-gershkovich-wall-street-journal-russia.html?searchResultPosition=7
+https://nytimes.com/2023/04/04/world/europe/evan-gershkovich-wall-street-journal-russia.html?searchResultPosition=8
 
 **Angie Thomas’s Middle Grade Debut Celebrates Black Girl Magic**\
 `In “The Manifestor Prophecy,” 12-year-old Nic Blake draws supernatural strength from her “Remarkable” African American forebears.`\
-https://nytimes.com/2023/04/04/books/review/angie-thomas-nic-blake-and-the-remarkables-the-manifestor-prophecy.html?searchResultPosition=8
+https://nytimes.com/2023/04/04/books/review/angie-thomas-nic-blake-and-the-remarkables-the-manifestor-prophecy.html?searchResultPosition=9
 
 **A new $2.6 billion package of U.S. military aid to Ukraine includes $500 million for immediate supplies.**\
 `Most of the funds will go toward future purchases of munitions, radar and other weapons to send to Ukraine.`\
-https://nytimes.com/2023/04/04/us/politics/us-ukraine-military-aid.html?searchResultPosition=9
-
-**Trump Arrives for Arraignment on Felony Charges**\
-`Former president Donald J. Trump departed Trump Tower and traveled in a motorcade to the Manhattan district attorney’s office.`\
-https://nytimes.com/video/us/politics/100000008844739/trump-court-arraignment-arrival.html?searchResultPosition=10
+https://nytimes.com/2023/04/04/us/politics/us-ukraine-military-aid.html?searchResultPosition=10
 
