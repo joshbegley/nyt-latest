@@ -6,13 +6,13 @@ https://nytimes.com/video/us/politics/100000008845334/trump-charges-alvin-bragg.
 `Using aerial drones to spot the enemy and direct artillery fire has become a staple of war for Ukraine and Russia, especially in the savage fight for control of Bakhmut.`\
 https://nytimes.com/2023/04/04/world/europe/ukraine-bakhmut-russia-drones.html?searchResultPosition=2
 
-**Wisconsin Spring Election Results**\
-`See full results and maps from the 2023 Wisconsin spring elections.`\
-https://nytimes.com/interactive/2023/04/04/us/elections/results-wisconsin-spring-elections.html?searchResultPosition=3
-
 **Wisconsin Supreme Court Election Results**\
 `See full results and maps from the 2023 Wisconsin Supreme Court election.`\
-https://nytimes.com/interactive/2023/04/04/us/elections/results-wisconsin-supreme-court.html?searchResultPosition=4
+https://nytimes.com/interactive/2023/04/04/us/elections/results-wisconsin-supreme-court.html?searchResultPosition=3
+
+**Wisconsin Spring Election Results**\
+`See full results and maps from the 2023 Wisconsin spring elections.`\
+https://nytimes.com/interactive/2023/04/04/us/elections/results-wisconsin-spring-elections.html?searchResultPosition=4
 
 **Chicago Mayor Runoff Election Results**\
 `See full results and maps from the 2023 Chicago mayoral election runoff.`\
