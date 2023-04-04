@@ -1,5 +1,5 @@
-**Can’t Hoop? Blame It on the Calamari.**\
-`The squid dish got caught up in the N.C.A.A. men’s tournament as just the latest example of food taking the blame for an athlete’s illness.`\
+**Did a Squid Nearly Derail UConn’s Title Run?**\
+`A UConn star blamed calamari for a rough weekend at the Final Four, putting it on a long menu of meals that have altered the course of sporting events.`\
 https://nytimes.com/2023/04/04/sports/ncaabasketball/uconn-calamari.html?searchResultPosition=1
 
 **Train Derails in the Netherlands, Killing at Least One**\
