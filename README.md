@@ -30,7 +30,7 @@ https://nytimes.com/2023/04/04/nyregion/george-santos-trump-rally.html?searchRes
 `Kamala Harris is the latest U.S. official to visit to Zambia. Why? Batteries. And China.`\
 https://nytimes.com/2023/04/04/climate/evs-zambia-china.html?searchResultPosition=8
 
-**Pro- and anti-Trump demonstrators converge, tensely but mostly peacefully.**\
+**Marjorie Taylor Greene attacks Democrats as demonstrators converge at the courthouse.**\
 `Supporters and opponents of former President Donald J. Trump gathered in Lower Manhattan on Tuesday, galvanized by his impending arraignment.`\
 https://nytimes.com/2023/04/04/nyregion/marjorie-taylor-green-trump-rally-nyc.html?searchResultPosition=9
 
