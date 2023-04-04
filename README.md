@@ -1,4 +1,4 @@
-**Adams, for First Time, Suggests Services May be Cut to Meet Budget Needs**\
+**Adams Orders New Round of Budget Cuts That Could Erode City Services**\
 `The Police Department, schools and CUNY won’t be spared in latest round of New York City budget reductions.`\
 https://nytimes.com/2023/04/04/nyregion/nyc-budget-cuts-eric-adams.html?searchResultPosition=1
 
