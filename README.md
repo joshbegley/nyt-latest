@@ -1,5 +1,5 @@
 **Can’t Hoop? Blame It on the Calamari.**\
-`The squid dish got caught up in the N.C.A.A. men’s tournament as just the latest example of food taking the blame for an athlete illness.`\
+`The squid dish got caught up in the N.C.A.A. men’s tournament as just the latest example of food taking the blame for an athlete’s illness.`\
 https://nytimes.com/2023/04/04/sports/ncaabasketball/uconn-calamari.html?searchResultPosition=1
 
 **Train Derails in the Netherlands, Killing at Least One**\
