@@ -18,7 +18,7 @@ https://nytimes.com/2023/04/04/world/australia/melbourne-bat-showers.html?search
 `Fallout from a bombing in Russia.`\
 https://nytimes.com/2023/04/04/briefing/bombing-russia-blogger-trump.html?searchResultPosition=5
 
-**UConn Wins Fifth Men’s N.C.A.A. Title by Overwhelming San Diego St.**\
+**UConn Wins Fifth Men’s N.C.A.A. Title by Overwhelming San Diego State**\
 `UConn’s defeat of San Diego State, 76-59, ended a dominant run in the tournament in which its closest of six victories was by 13 points.`\
 https://nytimes.com/2023/04/03/sports/ncaabasketball/uconn-wins-championship.html?searchResultPosition=6
 
