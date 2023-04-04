@@ -10,7 +10,7 @@ https://nytimes.com/2023/04/04/opinion/letters/trump-arraignment.html?searchResu
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2023/04/04/style/tiny-modern-love-stories-several-failed-first-dates.html?searchResultPosition=3
 
-**The Carriage House, Complete With Butter Candles, Opens in the West Village**\
+**Carriage House, Complete With Butter Candles, Opens in the West Village**\
 `A bistro with a wine pedigree, a sprawling New Jersey restaurant with views of Manhattan, and more.`\
 https://nytimes.com/2023/04/04/dining/nyc-restaurant-news.html?searchResultPosition=4
 
