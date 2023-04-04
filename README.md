@@ -23,7 +23,7 @@ https://nytimes.com/2023/04/03/arts/television/perry-mason-recap-season-2-episod
 https://nytimes.com/2023/04/03/crosswords/daily-puzzle-2023-04-04.html?searchResultPosition=6
 
 **Nigel Lawson, Economic Force Under Thatcher, Dies at 91**\
-`As chancellor of the Exchequer, he helped lift Britain with tax cuts and other Conservative measures — the “Lawson Boom” — but harder times followed, and he resigned.`\
+`As chancellor of the Exchequer, he helped lift Britain with tax cuts and other Conservative measures — the “Lawson Boom” — but harder times followed, and he resigned in bitterness.`\
 https://nytimes.com/2023/04/03/world/europe/nigel-lawson-dead.html?searchResultPosition=7
 
 **N.C.A.A. Women’s Tournament Shatters Ratings Record in Final**\
