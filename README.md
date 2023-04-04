@@ -7,7 +7,7 @@ https://nytimes.com/2023/04/04/business/bing-newcomb-dead.html?searchResultPosit
 https://nytimes.com/2023/04/04/us/politics/trump-arraignment-protests.html?searchResultPosition=2
 
 **Days into Russia’s U.N. Security Council presidency, Britain draws a line.**\
-`Russia had made it clear that a Kremlin official accused of war crimes related to Ukrainian children would be addressing a Council meeting.`\
+`Russia had made it clear that a Kremlin official accused of war crimes related to Ukrainian children would be addressing a Council meeting on Ukrainian children.`\
 https://nytimes.com/2023/04/04/world/europe/russia-uk-un-webcast-blocked.html?searchResultPosition=3
 
 **Chicago City Council Runoff Election Results**\
