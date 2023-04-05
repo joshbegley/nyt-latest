@@ -1,6 +1,6 @@
 **Tunisia’s Influence in Europe**\
 `The European Union relies heavily on Tunisia to stem migration, giving its increasingly authoritarian president leverage in negotiations with the bloc.`\
-https://nytimes.com/2023/04/05/world/africa/tunisias-influence-in-europe.html?searchResultPosition=1
+https://nytimes.com/2023/04/05/world/africa/tunisia-europe-migration.html?searchResultPosition=1
 
 **E.P.A. to Tighten Limits on Mercury and Other Pollutants From Power Plants**\
 `A new rule would reduce mercury, arsenic, nickel and lead emissions, which the Biden administration said would protect public health.`\
