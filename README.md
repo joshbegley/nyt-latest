@@ -6,8 +6,8 @@ https://nytimes.com/2023/04/05/arts/dance/balanchine-feminism-ballet.html?search
 `Most of this week’s episode is about Mandalorians doing what they do best: acting as hired muscle.`\
 https://nytimes.com/2023/04/05/arts/television/the-mandalorian-season-3-episode-6-recap.html?searchResultPosition=2
 
-**McCarthy to Meet With Tsai, Backing Taiwan Amid Rising Tensions With China**\
-`Speaker Kevin McCarthy will become the most senior elected official to meet with a Taiwanese president on American soil since the United States established diplomatic relations with Beijing.`\
+**McCarthy Meets With Tsai, Backing Taiwan Amid Rising Tensions With China**\
+`Speaker Kevin McCarthy became the most senior elected official to meet with a Taiwanese president on American soil since the United States established diplomatic relations with Beijing.`\
 https://nytimes.com/2023/04/05/us/politics/mccarthy-tsai-taiwan-china.html?searchResultPosition=3
 
 **Review: Kyle Abraham Takes on Cunningham and, as Always, Love**\
