@@ -3,7 +3,7 @@
 https://nytimes.com/2023/04/05/arts/television/late-night-donald-trump-arrest.html?searchResultPosition=1
 
 **Israeli Police Raid the Aqsa Mosque Compound in Jerusalem**\
-`Israeli authorities rushed into the mosque and arrested Palestinian worshipers, some who police said had fireworks and refused to leave. Later, clashes broke out on the streets.`\
+`The Israeli police arrested Palestinian worshipers, some with fireworks, who had barricaded themselves inside a prayer hall. Later, clashes broke out in the streets.`\
 https://nytimes.com/video/world/middleeast/100000008845790/israel-police-al-aqsa.html?searchResultPosition=2
 
 **Your Wednesday Briefing**\
