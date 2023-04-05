@@ -1,40 +1,40 @@
-**Jacinda Ardern Delivers Final Speech to New Zealand Parliament**\
-`The former prime minister discussed the legacy she hoped to leave and ended the emotional speech in New Zealand’s indigenous Maori language.`\
-https://nytimes.com/video/world/asia/100000008845945/jacinda-ardern-new-zealand.html?searchResultPosition=1
+**How to Brainstorm and Plan Events With Friends and Family**\
+`Many apps and tools for online collaboration work just as well for personal projects as they do for office tasks, and can be fun.`\
+https://nytimes.com/2023/04/05/technology/personaltech/how-to-brainstorm-and-plan-events-with-friends-and-family.html?searchResultPosition=1
 
-**Jacinda Ardern’s Career in New Zealand Politics Ends**\
-`The former prime minister, who is now stepping down from Parliament, urged lawmakers to take action on climate change.`\
-https://nytimes.com/2023/04/05/world/asia/jacinda-ardern-new-zealand-resignation.html?searchResultPosition=2
+**How a Tiny Literary Magazine Became a Springboard for Great Irish Writing**\
+`The Stinging Fly has helped launch several of Ireland’s most promising writers. How has a publication with 1,000 subscribers carved a niche in the Irish canon?`\
+https://nytimes.com/2023/04/05/books/stinging-fly-irish-literature.html?searchResultPosition=2
 
-**The Disrupter**\
-`Gerard Piqué won a World Cup and lost a pop star as he built a multimillion-dollar side business. Now he has quit the sport that made him famous to build a better version of soccer.`\
-https://nytimes.com/2023/04/05/sports/soccer/gerard-pique-barcelona-kings-league.html?searchResultPosition=3
+**For Lower-Income Students, Big Tech Internships Can Be Hard to Get**\
+`Critics say the intern selection process often favors wealthier students, just like the admission process at some elite colleges.`\
+https://nytimes.com/2023/04/05/business/tech-internship-application-grind.html?searchResultPosition=3
 
-**Tornadoes Pass Through the Midwest**\
-`A tornado was spotted in Pleasantville, Iowa, on Tuesday. Several tornadoes were reported across Iowa, Missouri and Illinois as storms moved through.`\
-https://nytimes.com/video/us/100000008845910/storms-midwest-weather-tornadoes.html?searchResultPosition=4
+**Rejecting a ‘Republican in Disguise,’ Chicago Voters Elect Johnson as Next Mayor**\
+`In a largely liberal city, Chicago voters chose Brandon Johnson, a county commissioner and union organizer, over Paul Vallas, who took a hard line on crime.`\
+https://nytimes.com/2023/04/05/us/chicago-voters-mayor-election.html?searchResultPosition=4
 
-**A Pre-Passover Seder Where War Memories Intersected**\
-`A Holocaust survivor’s recollections give her insight into the plight of today’s Ukrainians. And in Brooklyn, a garage sale with more than a touch of glamour.`\
-https://nytimes.com/2023/04/05/nyregion/a-pre-passover-seder-where-war-memories-intersected.html?searchResultPosition=5
+**Polish Leaders Hope Defense of a Dead Pope Propels Them to Re-Election**\
+`Criticism of John Paul II, the canonized, Polish-born pope who is a national hero, has fueled anger that the governing party wants to turn into votes.`\
+https://nytimes.com/2023/04/05/world/europe/poland-election-pope-john-paul-ii.html?searchResultPosition=5
 
-**A Fitness Writer Breaks a Sweat for Work, Underground**\
-`Wirecutter, a product recommendation site, uses the basement of an old warehouse in Queens to test products including body pillows, microwaves and strollers.`\
-https://nytimes.com/2023/04/05/insider/a-fitness-writer-breaks-a-sweat-for-work-underground.html?searchResultPosition=6
+**In ‘Thanksgiving Play,’ the Pageantry of ‘Well-Meaning’ White People**\
+`Larissa FastHorse is making her Broadway debut with a satire about a socially conscious show that doesn’t go as planned.`\
+https://nytimes.com/2023/04/05/theater/thanksgiving-play-larissa-fasthorse-broadway.html?searchResultPosition=6
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/04/05/crosswords/spelling-bee-forum.html?searchResultPosition=7
+**End of the Gas-Engine Camaro Opens a New Door for Muscle Cars**\
+`G.M. is ending production of the classic American sports car, but executives say an electric version is likely. Corvette is already planning one.`\
+https://nytimes.com/2023/04/05/business/camaro-gm-electric-vehicles.html?searchResultPosition=7
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: contains spoilers!`\
-https://nytimes.com/2023/04/05/crosswords/wordle-review-answer-655.html?searchResultPosition=8
+**Sorry, These Big, Ugly Sneakers are Here to Stay**\
+`After infiltrating the fashion crowd, Hokas broke the billion dollar mark in 2022.`\
+https://nytimes.com/2023/04/05/style/hokas-fashion.html?searchResultPosition=8
 
-**Janet Protasiewicz Wins Wisconsin Supreme Court Election**\
-`During her victory speech, the liberal candidate said she would treat the role with “integrity,” then was joined on stage by current members of the court.`\
-https://nytimes.com/video/us/politics/100000008845900/wisconsin-supreme-court-protasiewicz.html?searchResultPosition=9
+**The School Where the Pandemic Never Ended**\
+`As the nation’s schools ‘return to normal,’ teachers in an L.A. neighborhood hit hard by Covid are left to manage their students’ grief — and their own.`\
+https://nytimes.com/2023/04/05/magazine/la-school-pandemic.html?searchResultPosition=9
 
-**Word of the Day: miffed**\
-`This word has appeared in 22 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/04/05/learning/word-of-the-day-miffed.html?searchResultPosition=10
+**An Ever-Changing Masters Course Changes Again**\
+`The course at Augusta National is like a living entity, growing and shifting regularly. The risky 13th hole, for example, is now 35 yards longer and even riskier.`\
+https://nytimes.com/2023/04/05/sports/golf/masters-course-augusta-national.html?searchResultPosition=10
 
