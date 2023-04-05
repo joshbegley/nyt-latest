@@ -14,7 +14,7 @@ https://nytimes.com/2023/04/04/us/politics/trump-speech-arraignment-mar-a-lago.h
 `A countrified musical about corn, and filled with it, too, transplants itself to Broadway, with songs by Brandy Clark and Shane McAnally.`\
 https://nytimes.com/2023/04/04/theater/shucked-review-broadway.html?searchResultPosition=4
 
-**A Surprise Accusation Bolsters a Risky Case Against Trump**\
+**Analysis: A Surprise Accusation Bolsters a Risky Case Against Trump**\
 `The unsealed case against Donald J. Trump accuses him of falsifying records in part to lay the groundwork for planned lies to tax authorities.`\
 https://nytimes.com/2023/04/04/us/politics/trump-bookkeeping-fraud-taxes.html?searchResultPosition=5
 
