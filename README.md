@@ -7,7 +7,7 @@ https://nytimes.com/2023/04/05/movies/lewis-capaldi-how-im-feeling-now-review.ht
 https://nytimes.com/2023/04/05/opinion/artificial-intelligence-democracy-chatgpt.html?searchResultPosition=2
 
 **France, Guardian of Égalité, Leads the List of Ultrarich**\
-`Two French business titans, Bernard Arnault, of the LVMH empire, and Françoise Bettencourt-Meyers, of L’Oréal, are named the world’s wealthiest man and woman.`\
+`Two French business titans, Bernard Arnault of the LVMH empire and Françoise Bettencourt-Meyers of L’Oréal, are named the world’s wealthiest man and woman.`\
 https://nytimes.com/2023/04/05/business/forbes-richest-list-france.html?searchResultPosition=3
 
 **Pence Won’t Appeal Ruling Forcing Testimony to Jan. 6 Grand Jury, Aide Says**\
