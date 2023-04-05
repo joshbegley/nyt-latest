@@ -18,7 +18,7 @@ https://nytimes.com/2023/04/05/world/europe/berlusconi-hospitalized.html?searchR
 `The former president’s post-arraignment speech at Mar-a-Lago reinforced just how stale he’s become.`\
 https://nytimes.com/2023/04/05/opinion/trump-arraignment-speech-maralago.html?searchResultPosition=5
 
-**The Trump Indictment Is a Disaster**\
+**The Trump Indictment Is a Legal Embarrassment**\
 `Why it was a setback for the rule of law and established a dangerous precedent for prosecutors.`\
 https://nytimes.com/2023/04/05/opinion/trump-bragg-indictment.html?searchResultPosition=6
 
