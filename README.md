@@ -4,7 +4,7 @@ https://nytimes.com/2023/04/05/us/politics/north-carolina-tricia-cotham.html?sea
 
 **‘The Super Mario Bros. Movie’ Review: This Ain’t No Game**\
 `A famed video game character side-scrolls once again to the big screen in this bland, witless and flagrantly pandering animated comedy.`\
-https://nytimes.com/2023/04/05/movies/the-super-mario-bros-movie-review-this-aint-no-game.html?searchResultPosition=2
+https://nytimes.com/2023/04/05/movies/the-super-mario-bros-movie-review.html?searchResultPosition=2
 
 **Brandon Johnson Elected as Next Mayor of Chicago**\
 `Chicago voters chose Brandon Johnson, a county commissioner and union organizer with more liberal polices than his opponent Paul Vallas.`\
