@@ -6,7 +6,7 @@ https://nytimes.com/2023/04/05/briefing/trump-felony-charges.html?searchResultPo
 `You have questions. I have answers.`\
 https://nytimes.com/2023/04/05/opinion/trump-charges-explained.html?searchResultPosition=2
 
-**Donald Trump’s Arraignment**\
+**What It Was Like at Donald Trump’s Arraignment**\
 `What it was like inside the courthouse as the former president pleaded not guilty to 34 felonies.`\
 https://nytimes.com/2023/04/05/podcasts/the-daily/donald-trumps-arraignment.html?searchResultPosition=3
 
