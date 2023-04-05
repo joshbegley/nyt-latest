@@ -4,7 +4,7 @@ https://nytimes.com/2023/04/05/us/politics/jill-biden-lsu-iowa-white-house.html?
 
 **Who Gets to Use a Hair Oil?**\
 `When bottles of a hair-care product favored by Black women started getting harder to find, all eyes turned to the influencers.`\
-https://nytimes.com/2023/04/05/us/mielle-organics.html?searchResultPosition=2
+https://nytimes.com/2023/04/05/us/mielle-organics-rosemary-hair-oil.html?searchResultPosition=2
 
 **Your Wednesday Evening Briefing**\
 `Here’s what you need to know at the end of the day.`\
