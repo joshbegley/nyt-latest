@@ -7,7 +7,7 @@ https://nytimes.com/2023/04/05/business/dealbook/europe-vonderleyen-macron-xi-ch
 https://nytimes.com/2023/04/05/realestate/home-prices-new-york-the-district-of-columbia-and-illinois.html?searchResultPosition=2
 
 **For Once, Donald Trump Did Not Enjoy the Show**\
-`The ex-president’s indictment put him in the rare position of being forced onto on a public stage not of his own choosing.`\
+`The ex-president’s indictment put him in the rare position of being forced onto a public stage not of his own choosing.`\
 https://nytimes.com/2023/04/05/arts/television/donald-trump-arraignment.html?searchResultPosition=3
 
 **Donald Trump’s Day in Court**\
