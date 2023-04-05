@@ -1,40 +1,40 @@
+**Trump’s Charges Bring Doubts, Hopes and Uncertainty in Both Parties**\
+`To some Republicans and Democrats, the charges appeared flimsy and less consequential than many had hoped. To others, the case had the potential to reverberate politically.`\
+https://nytimes.com/2023/04/05/us/politics/trumps-charges-republicans-democrats.html?searchResultPosition=1
+
+**Do Critics of Trump’s Indictment Have a Point?**\
+`This case may be a legal stretch, but it would be a problem to give a boss impunity after imprisoning his underling.`\
+https://nytimes.com/2023/04/05/opinion/trump-charges-presumed-innocent.html?searchResultPosition=2
+
+**For Now, Trump and Allies Focus on Political Upside of a Criminal Case**\
+`The indictment of the former president has unlocked a rush of fund-raising and has frozen the 2024 Republican primary, but he faces deeper legal peril in multiple inquiries.`\
+https://nytimes.com/2023/04/05/us/politics/trump-campaign-indictment.html?searchResultPosition=3
+
 **Jill Biden Stumbles by Inviting N.C.A.A. Winners (and Losers) to the White House**\
 `The first lady waded into the aftermath of a women’s basketball championship game that was about more than who won and who lost.`\
-https://nytimes.com/2023/04/05/us/politics/jill-biden-lsu-iowa-white-house.html?searchResultPosition=1
+https://nytimes.com/2023/04/05/us/politics/jill-biden-lsu-iowa-white-house.html?searchResultPosition=4
 
 **Who Gets to Use a Hair Oil?**\
 `When bottles of a hair-care product favored by Black women started getting harder to find, all eyes turned to the influencers.`\
-https://nytimes.com/2023/04/05/us/mielle-organics-rosemary-hair-oil.html?searchResultPosition=2
+https://nytimes.com/2023/04/05/us/mielle-organics-rosemary-hair-oil.html?searchResultPosition=5
 
 **Your Wednesday Evening Briefing**\
 `Here’s what you need to know at the end of the day.`\
-https://nytimes.com/2023/04/05/briefing/trump-trial-timeline-kevin-mccarthy-taiwan.html?searchResultPosition=3
+https://nytimes.com/2023/04/05/briefing/trump-trial-timeline-kevin-mccarthy-taiwan.html?searchResultPosition=6
 
 **Neal Boenzi, Top New York Times Photographer for Four Decades, Dies at 97**\
 `He built a reputation for finding compelling subjects on the street. “Anyone can take a picture,” he liked to say, “but are you a journalist?”`\
-https://nytimes.com/2023/04/05/business/media/neal-boenzi-dead.html?searchResultPosition=4
+https://nytimes.com/2023/04/05/business/media/neal-boenzi-dead.html?searchResultPosition=7
 
 **Rupert Murdoch Can Be Forced to Testify in Defamation Trial, Judge Says**\
 `Star hosts for Fox News like Tucker Carlson and Sean Hannity may also appear in person at the high-profile trial, which is set to start April 17.`\
-https://nytimes.com/2023/04/05/business/media/rupert-murdoch-testify-fox-dominion-trial.html?searchResultPosition=5
+https://nytimes.com/2023/04/05/business/media/rupert-murdoch-testify-fox-dominion-trial.html?searchResultPosition=8
 
 **Wisconsin Rout Points to Democrats’ Enduring Post-Dobbs Strength**\
 `A resounding victory by a liberal judge who ran on abortion rights showed that a largely unified political left is keeping up its momentum, and served as a new warning sign to Republicans.`\
-https://nytimes.com/2023/04/05/us/politics/wisconsin-supreme-court-abortion-protasiewicz.html?searchResultPosition=6
+https://nytimes.com/2023/04/05/us/politics/wisconsin-supreme-court-abortion-protasiewicz.html?searchResultPosition=9
 
 **Heroin Dealer Who Sold Michael K. Williams a Fatal Dose Pleads Guilty**\
 `Irvin Cartagena, who prosecutors said sold fentanyl-laced heroin in Brooklyn to the “Wire” actor, pleaded guilty to narcotics charges and faces at least 24 years in prison.`\
-https://nytimes.com/2023/04/05/nyregion/michael-k-williams-death-irvin-cartagena-drug-guilty.html?searchResultPosition=7
-
-**Your Thursday Briefing: Diplomatic Visits Highlight Tension With China**\
-`Also, what’s next for Donald Trump and Israeli police raid a Jerusalem mosque.`\
-https://nytimes.com/2023/04/05/briefing/china-taiwan-diplomacy-trump-charge-israel.html?searchResultPosition=8
-
-**China Publishes Data Showing Raccoon Dog DNA at Wuhan Market**\
-`Scientists from the Chinese C.D.C. confirmed that DNA from raccoon dogs and other animals susceptible to the coronavirus was found at the market in early 2020.`\
-https://nytimes.com/2023/04/05/science/china-virus-origins-racoon-dogs.html?searchResultPosition=9
-
-**Four Opinion Writers on Trump’s Indictment and ‘The Borderlands of Illegality’**\
-`Four Opinion writers discuss the indictment of President Donald Trump.`\
-https://nytimes.com/interactive/2023/04/05/opinion/trump-indictment-roundtable.html?searchResultPosition=10
+https://nytimes.com/2023/04/05/nyregion/michael-k-williams-death-irvin-cartagena-drug-guilty.html?searchResultPosition=10
 
