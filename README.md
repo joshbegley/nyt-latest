@@ -1,5 +1,5 @@
 **Pence Won’t Appeal Ruling Forcing Testimony to Jan. 6 Grand Jury, Aide Says**\
-`A decision may clear the way for what could be consequential testimony that federal prosecutors have long sought as they explore Donald J. Trump’s attempts to stay in office.`\
+`The decision may clear the way for what could be consequential testimony that federal prosecutors have long sought as they explore Donald J. Trump’s attempts to stay in office.`\
 https://nytimes.com/2023/04/05/us/politics/pence-jan-6-testimony.html?searchResultPosition=1
 
 **Italian Ex-Prime Minister Silvio Berlusconi Is Hospitalized**\
