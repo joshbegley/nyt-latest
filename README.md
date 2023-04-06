@@ -22,7 +22,7 @@ https://nytimes.com/2023/04/06/nyregion/trump-case-judge-juan-merchan.html?searc
 `There was nothing easy about the first round of Woods’s 25th Masters Tournament on Thursday. He was in pain and limped, laboring up and down Augusta National’s hills.`\
 https://nytimes.com/2023/04/06/sports/golf/masters-tiger-woods-first-round.html?searchResultPosition=6
 
-**Fentanyl Contributed to ‘Gangsta’s Paradise’ Rapper’s Death, Official Says**\
+**Fentanyl Contributed to Coolio’s Death, Medical Examiner Says**\
 `Coolio’s death was accidental, according to the Los Angeles County medical examiner, who also said that the rapper had a heart condition and asthma.`\
 https://nytimes.com/2023/04/06/us/coolio-death-cause-fentanyl.html?searchResultPosition=7
 
