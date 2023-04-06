@@ -30,7 +30,7 @@ https://nytimes.com/2023/04/06/arts/television/the-crossover-disney-jury-duty-fr
 `Protesters gathered at the Tennessee State Capitol as three Democratic lawmakers faced expulsion from the House.`\
 https://nytimes.com/video/us/politics/100000008848790/tennessee-house-votes-democrats.html?searchResultPosition=8
 
-**Police Officer With Bit Part in Epstein Jail Drama Convicted of Murder**\
+**Police Officer With Bit Part in Epstein Jail Drama Is Convicted of Murder**\
 `Nicholas Tartaglione, a retired police officer who had shared a cell with Jeffrey Epstein, the disgraced financier, killed four men over a debt, prosecutors said.`\
 https://nytimes.com/2023/04/06/nyregion/briarcliff-manor-police-officer-murder.html?searchResultPosition=9
 
