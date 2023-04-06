@@ -27,7 +27,7 @@ https://nytimes.com/2023/04/06/nyregion/briarcliff-manor-police-officer-murder.h
 https://nytimes.com/2023/04/06/sports/basketball/domantas-sabonis-sacramento-kings.html?searchResultPosition=7
 
 **School Sports Cannot ‘Categorically’ Ban Transgender Athletes, Under Biden Proposal**\
-`The proposed rules under Title IX would give schools flexibility for “fairness in competition” or for the possibility that participation could lead to injury.`\
+`The proposed Title IX rules would give schools flexibility for “fairness in competition” or for the possibility that participation could lead to injury.`\
 https://nytimes.com/2023/04/06/us/transgender-athletes-title-ix-biden-adminstration.html?searchResultPosition=8
 
 **Xi and Macron Call for Ukraine Peace Talks, but the Path Is Murky**\
