@@ -3,7 +3,7 @@
 https://nytimes.com/2023/04/06/business/airbus-china-double-production.html?searchResultPosition=1
 
 **Militias in Lebanon Fire Rocket Barrage Into Israel**\
-`The unusual attack followed weeks of rising tensions between Israel and Hezbollah, an Iran-backed group that is very powerful in Lebanon. Hezbollah has not claimed responsibility.`\
+`The unusual attack followed weeks of rising tensions between Israel and Hezbollah, the Iran-backed militia and political group that wields considerable power in Lebanon. Hezbollah has not claimed responsibility.`\
 https://nytimes.com/2023/04/06/world/middleeast/lebanon-rockets-israel.html?searchResultPosition=2
 
 **A New Exhibition Shows That Barkley L. Hendricks Was Never Simply a Painter**\
