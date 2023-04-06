@@ -6,7 +6,7 @@ https://nytimes.com/2023/04/06/nyregion/briarcliff-manor-police-officer-murder.h
 `The Sacramento Kings big man Domantas Sabonis plays with the bruising style of his father, Arvydas. It has made him an All-Star and helped the Kings break a 16-season playoff drought.`\
 https://nytimes.com/2023/04/06/sports/basketball/domantas-sabonis-sacramento-kings.html?searchResultPosition=2
 
-**School Sports Cannot ‘Categorically’ Ban Transgender Athletes, Under Biden Title IX Proposal**\
+**School Sports Cannot ‘Categorically’ Ban Transgender Athletes, Under Biden Proposal**\
 `The proposed rules would give schools flexibility for “fairness in competition” or where participation could lead to injury.`\
 https://nytimes.com/2023/04/06/us/transgender-athletes-title-ix-biden-adminstration.html?searchResultPosition=3
 
