@@ -1,40 +1,40 @@
+**Zelensky’s aides send mixed messages on Crimea and the possibility of negotiations.**\
+`Top government officials in Kyiv clarify that their mission remains to reclaim all Ukrainian territory from Russia.`\
+https://nytimes.com/2023/04/06/world/europe/crimea-ukraine-zelensky.html?searchResultPosition=1
+
 **‘They Deserve Better’: What Students Are Saying About Respect and Pay for School Workers**\
 `In light of the Los Angeles schools strike last month, we invited teenagers to tell us how bus drivers, custodians, cafeteria workers and other school staff have made their education possible.`\
-https://nytimes.com/2023/04/06/learning/they-deserve-better-what-students-are-saying-about-respect-and-pay-for-school-workers.html?searchResultPosition=1
+https://nytimes.com/2023/04/06/learning/they-deserve-better-what-students-are-saying-about-respect-and-pay-for-school-workers.html?searchResultPosition=2
 
 **Why Does Written Language Have to Be So Particular?**\
 `An ode to the flexibility of spoken words.`\
-https://nytimes.com/2023/04/06/opinion/why-does-written-language-have-to-be-so-particular.html?searchResultPosition=2
+https://nytimes.com/2023/04/06/opinion/why-does-written-language-have-to-be-so-particular.html?searchResultPosition=3
 
 **The Friendship Harmonies of boygenius**\
 `How Julien Baker, Phoebe Bridgers and Lucy Dacus’s side project has become a major part of their music — and their lore.`\
-https://nytimes.com/2023/04/06/arts/music/popcast-boygenius.html?searchResultPosition=3
+https://nytimes.com/2023/04/06/arts/music/popcast-boygenius.html?searchResultPosition=4
 
 **Tripping in the Bronze Age**\
 `A new study based on strands of hair found in a Spanish burial cave reveals that humans living about 3,000 years ago used hallucinogens, likely derived from local plants, as part of their rituals.`\
-https://nytimes.com/2023/04/06/science/psychedelics-bronze-age.html?searchResultPosition=4
+https://nytimes.com/2023/04/06/science/psychedelics-bronze-age.html?searchResultPosition=5
 
 **Divisions emerge in NATO over giving Ukraine a pathway to membership, officials say.**\
 `The debate on the status of Kyiv will continue up to the military alliance’s mid-July summit meeting.`\
-https://nytimes.com/2023/04/06/world/europe/ukraine-nato-membership.html?searchResultPosition=5
+https://nytimes.com/2023/04/06/world/europe/ukraine-nato-membership.html?searchResultPosition=6
 
 **What’s in Our Queue? ‘Elephant Whisperers’ and More**\
 `I’m a New Delhi-based reporter and visual journalist for The New York Times. Here are five things I've been watching, reading and listening to.`\
-https://nytimes.com/interactive/2023/04/06/arts/editors-recommendations-elephant-whisperers.html?searchResultPosition=6
+https://nytimes.com/interactive/2023/04/06/arts/editors-recommendations-elephant-whisperers.html?searchResultPosition=7
 
 **Lawmakers Call for Tighter Ethics Rules After Revelations About Justice Thomas**\
 `An investigation by ProPublica revealed that Clarence Thomas accompanied Harlan Crow, a conservative donor and real estate billionaire, on a series of luxury vacations almost every year without disclosing them.`\
-https://nytimes.com/2023/04/06/us/politics/clarence-thomas-luxury-trips-ethics.html?searchResultPosition=7
+https://nytimes.com/2023/04/06/us/politics/clarence-thomas-luxury-trips-ethics.html?searchResultPosition=8
 
 **The Sports to Watch This Weekend**\
 `Along with the Masters, there’s the best one-day cycling race of the year — and the best-named sports tournament.`\
-https://nytimes.com/interactive/2023/04/06/sports/weekend-what-to-watch.html?searchResultPosition=8
+https://nytimes.com/interactive/2023/04/06/sports/weekend-what-to-watch.html?searchResultPosition=9
 
 **What’s Going On in This Graph? | April 19, 2023**\
 `The final brackets for the 2023 N.C.A.A. women’s and men’s basketball tournaments show teams’ initial seedings and subsequent game scores. What do you notice and wonder?`\
-https://nytimes.com/2023/04/06/learning/whats-going-on-in-this-graph-april-19-2023.html?searchResultPosition=9
-
-**10 New Books We Recommend This Week**\
-`Suggested reading from critics and editors at The New York Times.`\
-https://nytimes.com/2023/04/06/books/review/10-new-books-we-recommend-this-week.html?searchResultPosition=10
+https://nytimes.com/2023/04/06/learning/whats-going-on-in-this-graph-april-19-2023.html?searchResultPosition=10
 
