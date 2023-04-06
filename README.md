@@ -2,7 +2,7 @@
 `The artist plants her gravity-defying installations in the uppermost nest of the Guggenheim Museum.`\
 https://nytimes.com/2023/04/06/arts/design/sarah-sze-guggenheim-sculpture-timelapse.html?searchResultPosition=1
 
-**U.S. Acknowledges It Should Have Started Evacuations From Afghanistan Sooner**\
+**U.S. Acknowledges Afghanistan Evacuations Should Have Started Sooner**\
 `President Biden’s decision to end a 20-year war in August 2021 led to the swift collapse of the Afghan government and military.`\
 https://nytimes.com/2023/04/06/us/politics/evacuations-afghanistan-war-biden.html?searchResultPosition=2
 
