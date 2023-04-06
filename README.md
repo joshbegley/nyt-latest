@@ -1,40 +1,40 @@
-**The Math That Makes Videos Go Viral: Exponential Growth and Decay**\
-`In this lesson, students use exponential models to explore why companies big and small are hiring young people to make videos.`\
-https://nytimes.com/2023/04/06/learning/lesson-plans/the-math-that-makes-videos-go-viral-exponential-growth-and-decay.html?searchResultPosition=1
+**Fans of Women’s Sports Walk Into a Bar Inspired by Women’s Sports**\
+`The Sports Bra in Portland, Ore., is a rarity dedicated exclusively to women’s sports. The latest highlight was the N.C.A.A. women’s basketball final.`\
+https://nytimes.com/2023/04/06/style/sports-bra-oregon-ncaa-womens-sports.html?searchResultPosition=1
 
-**2 Generals Took Over a Country. Will They Deliver Democracy or War?**\
-`The deadline is approaching for the generals who took power in a military coup in Sudan to turn over their authority to a civilian government. The mood in the capital, Khartoum, is anxious.`\
-https://nytimes.com/2023/04/06/world/africa/sudan-generals-coup-civilian-rule.html?searchResultPosition=2
+**In Pristine Alaska, an Oil Giant Prepares to Drill for Decades**\
+`Scientists say nations must stop new oil and gas projects to avoid climate catastrophe. But after the Biden administration greenlit the $8 billion Willow project, ConocoPhillips is racing ahead.`\
+https://nytimes.com/2023/04/06/climate/willow-alaska-oil-biden.html?searchResultPosition=2
 
-**A Bird’s-Eye View of the Chinese Balloon**\
-`The New York Times’s Visual Investigations team tracked the balloon’s path across the United States.`\
-https://nytimes.com/2023/04/06/insider/tracking-chinese-balloon.html?searchResultPosition=3
+**In Northern Ireland Town, Painful Memories Lie Beneath a Fragile Peace**\
+`Twenty-five years after the Good Friday Agreement ended an era of bloodshed, this is a moment to celebrate reconciliation across Northern Ireland. But for many, the past is not always easy to leave behind.`\
+https://nytimes.com/2023/04/06/world/europe/northern-ireland-good-friday-peace.html?searchResultPosition=3
 
-**House G.O.P.’s Plan to Cut Food Stamps Faces a Tough Vote**\
-`A proposal to tighten work requirements for federal nutrition programs has generated fissures among Republicans, highlighting the difficult choices ahead in coming up with a budget plan.`\
-https://nytimes.com/2023/04/06/us/politics/food-stamps-house-republicans-farm-bill.html?searchResultPosition=4
+**It’s Not Just Willow: Oil and Gas Projects Are Back in a Big Way**\
+`Alaska’s controversial Willow project has drawn criticism, but a global analysis shows that it’s just one of hundreds of investments approved in the past year or so.`\
+https://nytimes.com/2023/04/06/climate/oil-gas-drilling-investment-worldwide-willow.html?searchResultPosition=4
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/04/06/crosswords/spelling-bee-forum.html?searchResultPosition=5
+**10 Artists on Picasso’s Enduring, Confounding Influence**\
+`Beyond simple hero and villain stories, Picasso is a fact of life 50 years after his death. We all swim in a visual world he helped constitute.`\
+https://nytimes.com/2023/04/06/arts/design/picasso-influence-artists.html?searchResultPosition=5
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: contains spoilers!`\
-https://nytimes.com/2023/04/06/crosswords/wordle-review-answer-656.html?searchResultPosition=6
+**Booking the Paris Olympics For 2024? What You Need To Know**\
+`Next year’s Summer Olympic Games in Paris are expected to draw millions of spectators. Here’s how to get tickets if you want to be one of them.`\
+https://nytimes.com/2023/04/06/travel/paris-olympics-2024-tickets.html?searchResultPosition=6
 
-**A New York Walk-Up? No, an Art Installation in New Jersey.**\
-`A four-story apartment facade becomes a stage that helps people look at it in a different way.`\
-https://nytimes.com/2023/04/06/nyregion/liberty-science-center-installation.html?searchResultPosition=7
+**Safety Net Barriers Add to Child Poverty in Immigrant Families**\
+`Both legal immigrants and undocumented parents face hurdles in getting aid. The problem has grown more acute as children of immigrants account for a growing share of young people.`\
+https://nytimes.com/2023/04/06/us/politics/child-poverty-immigrants.html?searchResultPosition=7
 
-**Stephen Colbert on Trump: ‘Business Fraud Is His Brand’**\
-`Colbert recapped Donald Trump’s post-arraignment return to Mar-a-Lago, “where he held an angry rally for all his cult members.”`\
-https://nytimes.com/2023/04/06/arts/television/stephen-colbert-trump-arraignment.html?searchResultPosition=8
+**Trump’s Indictment Is Karmic Justice, Regardless of the Verdict**\
+`This brings us full circle, back to the sleaziness we knew about before Trump ever set foot in office.`\
+https://nytimes.com/2023/04/06/opinion/trump-indictment.html?searchResultPosition=8
 
-**Word of the Day: venomous**\
-`This word has appeared in 47 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/04/06/learning/word-of-the-day-venomous.html?searchResultPosition=9
+**5 Lessons for Democrats From Victories in Wisconsin and Chicago**\
+`The Wisconsin results show that the salience of abortion is not fading, and in Chicago, a “tough-on-crime” message fell short.`\
+https://nytimes.com/2023/04/06/us/politics/wisconsin-chicago-election-takeaways.html?searchResultPosition=9
 
-**Your Thursday Briefing**\
-`The reaction to criminal charges against Donald Trump.`\
-https://nytimes.com/2023/04/06/briefing/trump-charges-macron-beijing.html?searchResultPosition=10
+**Chinese Officials Flock to Twitter to Defend TikTok**\
+`The company has tried to distance itself, but the information push shows just how deeply invested Beijing is in its fate.`\
+https://nytimes.com/2023/04/06/business/chinese-officials-defend-tiktok-on-twitter.html?searchResultPosition=10
 
