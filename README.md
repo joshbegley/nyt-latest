@@ -15,7 +15,7 @@ https://nytimes.com/2023/04/06/world/europe/italy-silvio-berlusconi-leukemia.htm
 https://nytimes.com/2023/04/06/business/airbus-china-double-production.html?searchResultPosition=4
 
 **Militias in Lebanon Fire Rocket Barrage Into Israel**\
-`The unusual attack followed weeks of rising tensions between Israel and Hezbollah, the Iran-backed militia and political group that wields considerable power in Lebanon. Hezbollah has not claimed responsibility.`\
+`The unusual attack followed weeks of rising tensions between Israel and Lebanon’s Iran-backed Hezbollah militia. Hezbollah has not claimed responsibility, and Palestinian militias also operate in Lebanon.`\
 https://nytimes.com/2023/04/06/world/middleeast/lebanon-rockets-israel.html?searchResultPosition=5
 
 **A New Exhibition Shows That Barkley L. Hendricks Was Never Simply a Painter**\
