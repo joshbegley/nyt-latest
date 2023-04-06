@@ -1,40 +1,40 @@
+**Retirement-Age Money Issues: Planners Weigh In on Your Questions**\
+`Readers sent some of their most urgent financial queries, asking about issues like Social Security and student loan debt. Financial planners offered ideas.`\
+https://nytimes.com/2023/04/06/business/retirement-social-security-student-loans.html?searchResultPosition=1
+
 **Six Places to Drink Wine in Napa Valley and Sonoma**\
 `The restaurants in California wine country can be superexpensive or somewhat dull, but these places offer great combinations of intrigue and value.`\
-https://nytimes.com/2023/04/06/dining/drinks/sonoma-napa-valley-restaurants-wine.html?searchResultPosition=1
+https://nytimes.com/2023/04/06/dining/drinks/sonoma-napa-valley-restaurants-wine.html?searchResultPosition=2
 
 **A World Chess Championship Without the World’s Best Player**\
 `A victory by Ian Nepomniachtchi or Ding Liren would come with political overtones. But Magnus Carlsen’s absence is the talk of the final.`\
-https://nytimes.com/2023/04/06/sports/world-chess-championship.html?searchResultPosition=2
+https://nytimes.com/2023/04/06/sports/world-chess-championship.html?searchResultPosition=3
 
 **Tennessee House Moves to Oust Lawmakers: What You Need to Know**\
 `Expulsions from state legislatures have been rare and usually involve accusations of criminal or sexual misconduct.`\
-https://nytimes.com/2023/04/06/us/tennessee-house-democrats-expulsion-shooting-gun-control.html?searchResultPosition=3
+https://nytimes.com/2023/04/06/us/tennessee-house-democrats-expulsion-shooting-gun-control.html?searchResultPosition=4
 
 **Why Oral Hygiene Is Crucial to Your Overall Health**\
 `Gum disease has been associated with a range of health conditions, including diabetes, heart disease, dementia and more. Here’s what experts say you can do to manage the risk.`\
-https://nytimes.com/2023/04/06/well/oral-health-hygiene.html?searchResultPosition=4
+https://nytimes.com/2023/04/06/well/oral-health-hygiene.html?searchResultPosition=5
 
 **Silvio Berlusconi, Former Italian Prime Minister, Is Being Treated for Leukemia**\
 `Mr. Berlusconi, who is in the intensive care unit of a Milan hospital, has had the blood disorder for “some time,” his personal physician said.`\
-https://nytimes.com/2023/04/06/world/europe/italy-silvio-berlusconi-leukemia.html?searchResultPosition=5
+https://nytimes.com/2023/04/06/world/europe/italy-silvio-berlusconi-leukemia.html?searchResultPosition=6
 
 **Airbus to Double Production in China as It Moves Ahead With New Orders**\
 `The French plane maker’s deal comes despite pressure on Europe from the Biden administration to isolate Beijing.`\
-https://nytimes.com/2023/04/06/business/airbus-china-double-production.html?searchResultPosition=6
+https://nytimes.com/2023/04/06/business/airbus-china-double-production.html?searchResultPosition=7
 
 **Militias in Lebanon Fire Rocket Barrage Into Israel**\
 `The unusual attack followed weeks of rising tensions between Israel and Lebanon’s Iran-backed Hezbollah militia. Hezbollah has not claimed responsibility, and Palestinian militias also operate in Lebanon.`\
-https://nytimes.com/2023/04/06/world/middleeast/lebanon-rockets-israel.html?searchResultPosition=7
+https://nytimes.com/2023/04/06/world/middleeast/lebanon-rockets-israel.html?searchResultPosition=8
 
 **A New Exhibition Shows That Barkley L. Hendricks Was Never Simply a Painter**\
 `Plus: an expanding group of Japanese restaurants in Brooklyn, exuberant tableware from Kit Kemp and more recommendations from T Magazine.`\
-https://nytimes.com/2023/04/06/t-magazine/barkley-l-hendricks-photographs-jack-shainman.html?searchResultPosition=8
+https://nytimes.com/2023/04/06/t-magazine/barkley-l-hendricks-photographs-jack-shainman.html?searchResultPosition=9
 
 **Homes for Sale in Manhattan and the Bronx**\
 `This week’s properties are on Central Park South, the Upper West Side and in Riverdale.`\
-https://nytimes.com/2023/04/06/realestate/homes-for-sale-in-manhattan-and-the-bronx.html?searchResultPosition=9
-
-**A Major Ansel Adams Exhibition Arrives in San Francisco**\
-`The self-described “California photographer” captured far more than the Golden State’s national parks.`\
-https://nytimes.com/2023/04/06/us/ansel-adams-san-francisco.html?searchResultPosition=10
+https://nytimes.com/2023/04/06/realestate/homes-for-sale-in-manhattan-and-the-bronx.html?searchResultPosition=10
 
