@@ -4,7 +4,7 @@ https://nytimes.com/2023/04/06/world/asia/india-textbooks-changes.html?searchRes
 
 **America Has a Problem in Africa: China**\
 `What’s at stake as the U.S. races to deepen its relationships with African countries.`\
-https://nytimes.com/2023/04/06/podcasts/the-daily/america-has-a-problem-in-africa-china.html?searchResultPosition=2
+https://nytimes.com/2023/04/06/podcasts/the-daily/kamala-harris-us-africa-china.html?searchResultPosition=2
 
 **Ivanka Trump Is Pained**\
 `With Daddy in disgrace, what’s a fair-haired, fair-weather daughter to do?`\
