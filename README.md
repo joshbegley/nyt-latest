@@ -1,6 +1,6 @@
 **Militias in Lebanon Fire Rocket Barrage Into Israel**\
 `The unusual attack followed weeks of rising tensions between Israel and Hezbollah, an Iran-backed group that is very powerful in Lebanon.`\
-https://nytimes.com/2023/04/06/world/middleeast/militias-in-lebanon-fire-rocket-barrage-into-israel.html?searchResultPosition=1
+https://nytimes.com/2023/04/06/world/middleeast/lebanon-rockets-israel.html?searchResultPosition=1
 
 **A New Exhibition Shows That Barkley L. Hendricks Was Never Simply a Painter**\
 `Plus: an expanding group of Japanese restaurants in Brooklyn, exuberant tableware from Kit Kemp and more recommendations from T Magazine.`\
