@@ -1,5 +1,5 @@
 **Police Officer With Bit Part in Epstein Jail Drama Convicted of Murder**\
-`Nicholas Tartaglione, a bodybuilder and drug dealer who retired from the police force in Briarcliff Manor, N.Y., killed four men over a debt, prosecutors said.`\
+`Nicholas Tartaglione, a retired police officer who shared a cell with Jeffrey Epstein, the disgraced financier, killed four men over a debt, prosecutors said.`\
 https://nytimes.com/2023/04/06/nyregion/briarcliff-manor-police-officer-murder.html?searchResultPosition=1
 
 **‘Your Dad Is Better Than You’: The N.B.A. Star Fueled by Family Legacy**\
@@ -7,7 +7,7 @@ https://nytimes.com/2023/04/06/nyregion/briarcliff-manor-police-officer-murder.h
 https://nytimes.com/2023/04/06/sports/basketball/domantas-sabonis-sacramento-kings.html?searchResultPosition=2
 
 **School Sports Cannot ‘Categorically’ Ban Transgender Athletes, Under Biden Proposal**\
-`The proposed rules would give schools flexibility for “fairness in competition” or where participation could lead to injury.`\
+`The proposed rules under Title IX would give schools flexibility for “fairness in competition” or for the possibility that participation could lead to injury.`\
 https://nytimes.com/2023/04/06/us/transgender-athletes-title-ix-biden-adminstration.html?searchResultPosition=3
 
 **Xi and Macron Call for Ukraine Peace Talks, but the Path Is Murky**\
