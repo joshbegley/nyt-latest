@@ -3,7 +3,7 @@
 https://nytimes.com/2023/04/06/sports/basketball/domantas-sabonis-sacramento-kings.html?searchResultPosition=1
 
 **School Sports Cannot ‘Categorically’ Ban Transgender Athletes, Under Biden Title IX Proposal**\
-`The proposed rules would give schools flexibility for “fairness in competition or where participation could lead to injury.`\
+`The proposed rules would give schools flexibility for “fairness in competition” or where participation could lead to injury.`\
 https://nytimes.com/2023/04/06/us/transgender-athletes-title-ix-biden-adminstration.html?searchResultPosition=2
 
 **Xi and Macron Call for Ukraine Peace Talks, but the Path Is Murky**\
