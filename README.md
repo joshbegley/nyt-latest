@@ -7,7 +7,7 @@ https://nytimes.com/2023/04/05/world/europe/russia-un-security-council.html?sear
 https://nytimes.com/2023/04/05/us/politics/tennessee-house-democrats-expulsion-gun-control.html?searchResultPosition=2
 
 **Picasso: Love Him or Hate Him?**\
-`Fifty years after the artist’s death, a critic wrestles with her feelings about him.`\
+`Fifty years after the artist’s death, a critic wrestles with her mixed feelings.`\
 https://nytimes.com/interactive/2023/04/05/arts/design/picasso-death.html?searchResultPosition=3
 
 **How Brandon Johnson Made Up Ground and Won Chicago’s Mayoral Race**\
