@@ -31,7 +31,7 @@ https://nytimes.com/2023/04/06/arts/television/the-crossover-disney-jury-duty-fr
 https://nytimes.com/video/us/politics/100000008848790/tennessee-house-votes-democrats.html?searchResultPosition=8
 
 **Police Officer With Bit Part in Epstein Jail Drama Convicted of Murder**\
-`Nicholas Tartaglione, a retired police officer who shared a cell with Jeffrey Epstein, the disgraced financier, killed four men over a debt, prosecutors said.`\
+`Nicholas Tartaglione, a retired police officer who had shared a cell with Jeffrey Epstein, the disgraced financier, killed four men over a debt, prosecutors said.`\
 https://nytimes.com/2023/04/06/nyregion/briarcliff-manor-police-officer-murder.html?searchResultPosition=9
 
 **‘Your Dad Is Better Than You’: The N.B.A. Star Fueled by Family Legacy**\
