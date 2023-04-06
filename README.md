@@ -3,7 +3,7 @@
 https://nytimes.com/2023/04/06/us/jeremy-renner-accident-interview.html?searchResultPosition=1
 
 **Biden Administration to Curb Toxic Pollutants From Chemical Plants**\
-`The rule would chiefly affect plants along the Gulf Coast, the Ohio River Valley and in West Virginia.`\
+`The rule would affect the majority of chemical manufacturers, which have plants spread across the Gulf Coast, the Ohio River Valley and in West Virginia.`\
 https://nytimes.com/2023/04/06/climate/biden-toxic-pollutants-chemical-plants.html?searchResultPosition=2
 
 **Applications Open! The New York Times Illustration Portfolio Review**\
