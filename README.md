@@ -1,40 +1,40 @@
+**For Texas Judge in Abortion Case, a Life Shaped by Conservative Causes**\
+`Judge Matthew J. Kacsmaryk issued a preliminary ruling in a closely watched Texas case that could make it harder for patients to get abortions throughout the country.`\
+https://nytimes.com/2023/04/07/us/politics/texas-judge-matthew-kacsmaryk-abortion-pill.html?searchResultPosition=1
+
 **Biden Plan for Transgender Title IX Protections Began on Inauguration Day**\
 `Officials were working on a plan to protect transgender athletes since the day the president was sworn in. In recent months, they raced to issue protections as states moved to revoke them.`\
-https://nytimes.com/2023/04/07/us/politics/transgender-athletes-schools-title-ix.html?searchResultPosition=1
+https://nytimes.com/2023/04/07/us/politics/transgender-athletes-schools-title-ix.html?searchResultPosition=2
 
 **Both Citi Field — and the Mets — Look Slick in Victory Over Marlins**\
 `Starling Marte, Francisco Lindor and Pete Alonso hit home runs as Tylor Megill led the Mets to a 9-3 victory in their home opener.`\
-https://nytimes.com/2023/04/07/sports/baseball/mets-home-opener.html?searchResultPosition=2
+https://nytimes.com/2023/04/07/sports/baseball/mets-home-opener.html?searchResultPosition=3
 
 **Trump’s Next Legal Threat Could Be in Georgia. That May Be Tricky for Federal Prosecutors.**\
 `The concurrent investigations create complications for separate teams relying on similar evidence, some of the same criminal targets and a small, shared pool of witnesses.`\
-https://nytimes.com/2023/04/07/us/politics/trump-georgia-justice-department.html?searchResultPosition=3
+https://nytimes.com/2023/04/07/us/politics/trump-georgia-justice-department.html?searchResultPosition=4
 
 **Nora Forster, 80, Who Married (and Stayed Married to) a Sex Pistol, Dies**\
 `A German publishing heiress and music promoter, she settled in London in time for the 1970s punk-rock explosion and became the muse to its baddest boy.`\
-https://nytimes.com/2023/04/07/arts/music/nora-forster-dead.html?searchResultPosition=4
+https://nytimes.com/2023/04/07/arts/music/nora-forster-dead.html?searchResultPosition=5
 
 **Rory McIlroy, Confident Before the Masters, Is Likely to Miss the Cut**\
 `McIlroy had five bogeys in the first 11 holes on Friday to finish five over par. His quest for a career Grand Slam will probably have to wait one more year.`\
-https://nytimes.com/2023/04/07/sports/golf/masters-rory-mcilroy.html?searchResultPosition=5
+https://nytimes.com/2023/04/07/sports/golf/masters-rory-mcilroy.html?searchResultPosition=6
 
 **Israel Launches Retaliatory Attack on Lebanon and Gaza**\
 `Rare fighting broke out along the Israel-Lebanon border as Passover and Ramadan coincided.`\
-https://nytimes.com/video/world/middleeast/100000008849579/israel-lebanon-gaza-strikes.html?searchResultPosition=6
+https://nytimes.com/video/world/middleeast/100000008849579/israel-lebanon-gaza-strikes.html?searchResultPosition=7
 
 **Judge Invalidates F.D.A. Approval of the Abortion Pill Mifepristone**\
 `The Texas judge’s ruling was quickly contradicted by another federal judge in Washington State who ordered the F.D.A. to keep mifepristone available.`\
-https://nytimes.com/2023/04/07/health/abortion-pills-ruling-texas.html?searchResultPosition=7
+https://nytimes.com/2023/04/07/health/abortion-pills-ruling-texas.html?searchResultPosition=8
 
 **Brooks Koepka, Cut at Augusta Last Year, Seizes Masters Lead**\
 `The LIV golfer was at 12 under with a three-stroke lead after two rounds when play was suspended because of inclement weather.`\
-https://nytimes.com/2023/04/07/sports/golf/masters-brooks-koepka-rory-mcilroy.html?searchResultPosition=8
+https://nytimes.com/2023/04/07/sports/golf/masters-brooks-koepka-rory-mcilroy.html?searchResultPosition=9
 
 **Want This Snoopy T-Shirt? You’ll Have to Pay in Blood.**\
 `The Red Cross teamed up with “Peanuts” for an April blood drive, and a T-shirt promoting the campaign has become an unexpectedly hot commodity online.`\
-https://nytimes.com/2023/04/07/style/snoopy-red-cross-t-shirt.html?searchResultPosition=9
-
-**New Batch of Classified Documents Appears on Social Media Sites**\
-`Secret documents that appear to detail American national security secrets on Ukraine, the Middle East and China have surfaced online.`\
-https://nytimes.com/2023/04/07/us/politics/classified-documents-leak.html?searchResultPosition=10
+https://nytimes.com/2023/04/07/style/snoopy-red-cross-t-shirt.html?searchResultPosition=10
 
