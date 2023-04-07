@@ -1,6 +1,6 @@
 **As Her Music Is Reconsidered, a Composer Turns 135. Again.**\
 `The work of Florence B. Price is having a renaissance, and new, foundational details about her life and racial identity are still being discovered.`\
-https://nytimes.com/2023/04/07/arts/music/as-her-music-is-reconsidered-a-composer-turns-135-again.html?searchResultPosition=1
+https://nytimes.com/2023/04/07/arts/music/florence-price-music.html?searchResultPosition=1
 
 **A Cobra Appeared Mid-Flight. The Pilot’s Quick Thinking Saved Lives.**\
 `The pilot made an emergency landing after feeling a Cape Cobra slither under his shirt while flying across South Africa. “I had a moment of stunned silence,” he said.`\
