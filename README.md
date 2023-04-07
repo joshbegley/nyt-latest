@@ -1,4 +1,4 @@
-**Baptist Minister in Myanmar Gets Six Years in Prison for Opposing Junta**\
+**Baptist Minister in Myanmar Gets 6 Years in Prison for Opposing Junta**\
 `The minister met with President Donald J. Trump in 2019 to highlight the abuses of Myanmar’s military, which later seized power in a coup.`\
 https://nytimes.com/2023/04/07/world/asia/baptist-minister-myanmar-prison-coup.html?searchResultPosition=1
 
