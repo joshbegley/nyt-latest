@@ -1,5 +1,5 @@
 **As Restaurant Critic, Mimi Sheraton Made a Show Out of Hiding**\
-`The food writer, who died this week, came up with the wigs, costumes and other skulduggery that many people expect a reviewer to employ.`\
+`Our current critic, Pete Wells, writes that she came up with the wigs, costumes and other skulduggery that many people now expect reviewers like him to employ.`\
 https://nytimes.com/2023/04/07/dining/restaurant-critic-mimi-sheraton-appraisal.html?searchResultPosition=1
 
 **For Texas Judge in Abortion Case, a Life Shaped by Conservative Causes**\
