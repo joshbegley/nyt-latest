@@ -1,6 +1,6 @@
 **Brooks Koepka, Cut at Augusta Last Year, Seizes Masters Lead**\
 `The LIV golfer was at 12 under with a three-stroke lead after two rounds when play was suspended because of inclement weather.`\
-https://nytimes.com/2023/04/07/sports/golf/masters-brooks-kopeka-rory-mcilroy.html?searchResultPosition=1
+https://nytimes.com/2023/04/07/sports/golf/masters-brooks-koepka-rory-mcilroy.html?searchResultPosition=1
 
 **Want This Snoopy T-Shirt? You’ll Have to Pay in Blood.**\
 `The Red Cross teamed up with “Peanuts” for an April blood drive, and a T-shirt promoting the campaign has become an unexpectedly hot commodity online.`\
