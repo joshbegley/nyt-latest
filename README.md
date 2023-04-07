@@ -15,7 +15,7 @@ https://nytimes.com/2023/04/06/insider/on-deadline-decoding-the-trump-indictment
 https://nytimes.com/2023/04/06/sports/golf/masters-first-round.html?searchResultPosition=4
 
 **Tennessee House Expels 2 Democrats Over Gun Control Protest**\
-`The unseating of the lawmakers threatens to further inflame partisan rancor in a state that is divided over issues like how to respond to a school shooting in Nashville.`\
+`The unseating of the lawmakers threatened to further inflame partisan rancor in a state that is divided over issues like how to respond to a school shooting in Nashville.`\
 https://nytimes.com/2023/04/06/us/tennessee-house-democrats-expelled.html?searchResultPosition=5
 
 **Dilemma for Judge in Trump Case: Whether to Muzzle the Former President**\
