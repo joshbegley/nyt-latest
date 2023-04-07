@@ -6,7 +6,7 @@ https://nytimes.com/2023/04/07/sports/golf/masters-brooks-kopeka-rory-mcilroy.ht
 `The Red Cross teamed up with “Peanuts” for an April blood drive, and a T-shirt promoting the campaign has become an unexpectedly hot commodity online.`\
 https://nytimes.com/2023/04/07/style/snoopy-red-cross-t-shirt.html?searchResultPosition=2
 
-**New Batch of Classified Documents Appear on Social Media Sites**\
+**New Batch of Classified Documents Appears on Social Media Sites**\
 `Secret documents that appear to detail American national security secrets on Ukraine, the Middle East and China have surfaced online.`\
 https://nytimes.com/2023/04/07/us/politics/classified-documents-leak.html?searchResultPosition=3
 
