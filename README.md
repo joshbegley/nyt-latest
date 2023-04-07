@@ -26,7 +26,7 @@ https://nytimes.com/2023/04/06/insider/on-deadline-decoding-the-trump-indictment
 `The opening round of the first Masters Tournament of the LIV Golf era ended with a blend of PGA Tour and LIV players tied at the top.`\
 https://nytimes.com/2023/04/06/sports/golf/masters-first-round.html?searchResultPosition=7
 
-**Tennessee House Expels 2 Democrats Over Gun Control Protest**\
+**Tennessee G.O.P. Punishes 2 Democrats by Throwing Them Out of House**\
 `The unseating of the lawmakers threatened to further inflame partisan rancor in a state that is divided over issues like how to respond to a school shooting in Nashville.`\
 https://nytimes.com/2023/04/06/us/tennessee-house-democrats-expelled.html?searchResultPosition=8
 
