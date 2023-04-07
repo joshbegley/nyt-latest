@@ -8,7 +8,7 @@ https://nytimes.com/paidpost/rocky-mountaineer/-a-life-changing-train-journey-th
 
 **Russia formally charges detained American reporter with espionage, according to state media.**\
 `Evan Gershkovich, a reporter for The Wall Street Journal, was detained last week. The Journal and U.S. officials have vehemently rejected the Russian authorities’ allegations against him.`\
-https://nytimes.com/2023/04/07/world/europe/russia-formally-charges-detained-american-reporter-with-espionage-according-to-state-media.html?searchResultPosition=3
+https://nytimes.com/2023/04/07/world/europe/evan-gershkovich-charged-espionage-russia.html?searchResultPosition=3
 
 **Harry Lorayne, Dazzling Master of Total Recall, Is Dead at 96**\
 `A memory expert and magician who was a favorite guest of Johnny Carson’s, he astonished audiences by reeling off the names of hundreds of people he had only just met.`\
