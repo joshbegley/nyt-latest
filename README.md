@@ -1,6 +1,6 @@
 **Pope Will Miss Good Friday Procession Because of Cold Weather**\
 `Francis was released from the hospital only last Saturday after a bout with bronchitis.`\
-https://nytimes.com/2023/04/07/world/europe/pope-cold-weather.html?searchResultPosition=1
+https://nytimes.com/2023/04/07/world/europe/pope-good-friday-procession-weather.html?searchResultPosition=1
 
 **Calculating the Fastest Road to an Electric Car Future**\
 `Government scientists have spent a year analyzing electric vehicles to help the E.P.A. design new tailpipe rules to trigger an electric car revolution.`\
