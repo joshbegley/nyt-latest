@@ -1,6 +1,6 @@
-**Nora Forster, Who Married (and Stayed Married to) a Sex Pistol, Dies at 80**\
+**Nora Forster, 80, Who Married (and Stayed Married to) a Sex Pistol, Dies**\
 `A German publishing heiress and music promoter, she settled in London in time for the 1970s punk-rock explosion and became the muse to its baddest boy.`\
-https://nytimes.com/2023/04/07/arts/music/nora-forster-who-married-and-stayed-married-to-a-sex-pistol-dies-at-80.html?searchResultPosition=1
+https://nytimes.com/2023/04/07/arts/music/nora-forster-dead.html?searchResultPosition=1
 
 **Rory McIlroy, Confident Before the Masters, Is Likely to Miss the Cut**\
 `McIlroy had five bogeys in the first 11 holes on Friday to finish five over par. His quest for a career Grand Slam will probably have to wait one more year.`\
