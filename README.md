@@ -15,7 +15,7 @@ https://nytimes.com/2023/04/08/world/canada/nasa-artemis-jeremy-hansen.html?sear
 https://nytimes.com/interactive/2023/04/08/opinion/covid-culture-tiktok-bo-burnham.html?searchResultPosition=4
 
 **Ukraine Says Russia Is Preparing to Evacuate Civilians From Occupied Areas of South**\
-`Ukraine is widely expected to launch a counteroffensive in the coming weeks to recapture territory from Russian forces. Military analysts have speculated that it could focus on the south of the country.`\
+`Ukraine is widely expected to launch a counteroffensive in the coming weeks to recapture territory from Russian forces. Some Ukrainian officials say it could focus on the south of the country.`\
 https://nytimes.com/2023/04/08/world/europe/russia-ukraine-war.html?searchResultPosition=5
 
 **The Russians Took Their Children. These Mothers Went and Got Them Back.**\
