@@ -1,6 +1,6 @@
 **Read the Court Decision Invalidating F.D.A. Approval of Mifepristone**\
-`A federal judge in Texas issued a preliminary ruling invalidating the Food and Drug Administration’s 23-year-old approval of the abortion pill mifepristone on Friday evening.`\
-https://nytimes.com/interactive/2023/04/07/us/court-decision-invalidating-approval-of-mifepristone.html?searchResultPosition=1
+`A federal judge in Texas issued a preliminary ruling invalidating the Food and Drug Administration’s 23-year-old approval of the abortion pill mifepristone on Friday, clashing with another court’s ruling in a legal standoff likely to escalate to the Supreme Court.`\
+https://nytimes.com/interactive/2023/04/08/us/court-decision-invalidating-approval-of-mifepristone.html?searchResultPosition=1
 
 **Supporting Elements in a Story?**\
 `Sid Sivakumar’s puzzle throws us off kilter.`\
