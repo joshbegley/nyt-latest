@@ -22,7 +22,7 @@ https://nytimes.com/2023/04/07/dining/restaurant-critic-mimi-sheraton-appraisal.
 `Judge Matthew J. Kacsmaryk issued a preliminary ruling in a closely watched Texas case that could make it harder for patients to get abortions throughout the country.`\
 https://nytimes.com/2023/04/07/us/politics/texas-judge-matthew-kacsmaryk-abortion-pill.html?searchResultPosition=9
 
-**Biden Plan for Transgender Title IX Protections Began on Inauguration Day**\
+**Biden Plan for Transgender Title IX Rules Began on Inauguration Day**\
 `Officials were working on a plan to protect transgender athletes since the day the president was sworn in. In recent months, they raced to issue protections as states moved to revoke them.`\
 https://nytimes.com/2023/04/07/us/politics/transgender-athletes-schools-title-ix.html?searchResultPosition=10
 
