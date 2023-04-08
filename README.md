@@ -1,40 +1,40 @@
-**Trump and His Lawyers: A Restless Search for Another Roy Cohn**\
-`Hired after TV appearances or brief phone calls, lawyers for the former president can come and go, as he demands they defend him first in the court of public opinion.`\
-https://nytimes.com/2023/04/08/us/politics/trump-indictment-lawyers.html?searchResultPosition=1
+**The Russians Took Their Children. These Mothers Went and Got Them Back.**\
+`Making a nerve-wracking 3,000-mile journey from Ukraine, into Russia-occupied territory, and back again, a group of mothers managed to recover their children from the custody of the Russian authorities.`\
+https://nytimes.com/2023/04/08/todayspaper/ukrainian-children-mothers-russia.html?searchResultPosition=1
 
-**It Was Just a Bench. So Why Do I Miss It So Much?**\
-`How an old, worn two-seater brought a neighborhood together.`\
-https://nytimes.com/2023/04/08/nyregion/cowgirl-west-village.html?searchResultPosition=2
+**The More Kates the Merrier**\
+`The “Night of 1,000 Kates,” an annual variety show in Philadelphia, taps into the singer Kate Bush’s lasting appeal.`\
+https://nytimes.com/2023/04/08/style/night-of-1000-kates-kate-bush.html?searchResultPosition=2
 
-**A Great Credit Score, but She Can’t Get a Mortgage**\
-`Despite solid financial track records, many older Americans have a hard time refinancing because of their mortality risks and lower retirement incomes.`\
-https://nytimes.com/2023/04/08/health/mortgage-loan-credit-score-financials.html?searchResultPosition=3
+**In a Deadly Mountain Pass, a Tiny Hotel Is a Lifeline**\
+`Traversing the Sabzak Pass in Afghanistan is treacherous. But for travelers in distress, one innkeeper, who personifies Afghan generosity, is there to help — with a cup of tea, a meal or car repair.`\
+https://nytimes.com/2023/04/08/world/asia/afghanistan-generosity-sabzak-pass.html?searchResultPosition=3
 
-**A Brother-in-Law Explores a Family Tragedy**\
-`Using journals left behind by his idol and mentor, Daniel Wallace tries to make sense of the inexplicable.`\
-https://nytimes.com/2023/04/08/books/review/this-isnt-going-to-end-well-daniel-wallace.html?searchResultPosition=4
+**Can We No Longer Believe Anything We See?**\
+`Human eyes — and even technology — often struggle to identify images created by artificial intelligence. Experts fear that may hasten an erosion of trust in media, in government and in society.`\
+https://nytimes.com/2023/04/08/business/media/ai-generated-images.html?searchResultPosition=4
 
-**Think You Know How ‘Succession’ Ends? Want to Bet?**\
-`Viewers of the popular HBO drama are placing friendly wagers on who will succeed the media mogul Logan Roy. Buy-ins can go up to $200.`\
-https://nytimes.com/2023/04/08/style/succession-bets-hbo.html?searchResultPosition=5
+**7 Manga Titles Perfect for Any Young Adult Reading List**\
+`Harmony Becker, author of “Himawari House,” shares her recommendations of manga that teens will enjoy.`\
+https://nytimes.com/2023/04/08/books/review/young-adult-manga.html?searchResultPosition=5
 
-**Lessons in Civility and Compassion From A.B. Yehoshua**\
-`In his novel “The Only Daughter,” the late Israeli writer urges a return to the moral values learned in youth.`\
-https://nytimes.com/2023/04/08/books/review/ab-yehoshua-only-daughter.html?searchResultPosition=6
+**Fed Up With Mayhem, Miami Beach Wants to Tame Spring Break for Good**\
+`After a series of violent incidents, the city is moving to pre-empt late-night partying, but businesses worry about crimping their most profitable tourism season.`\
+https://nytimes.com/2023/04/08/us/miami-beach-spring-break-curfew.html?searchResultPosition=6
 
-**Marvel Superhero and Indigenous Actress Holds Fast to Maya Roots**\
-`After filming her part in “Black Panther: Wakanda Forever,” María Mercedes Coroy returned to her “normal” life of farming and trading in a Guatemalan town at the base of a volcano.`\
-https://nytimes.com/2023/04/08/world/americas/maria-mercedes-coroy-indigenous-roots.html?searchResultPosition=7
+**The Great Story You Might Not See in ‘Welcome to Wrexham’**\
+`Notts County is having one of the most remarkable seasons in its long history. It might even win the league. But you don’t get to star in someone else’s drama.`\
+https://nytimes.com/2023/04/08/sports/soccer/welcome-to-wrexham-notts-county.html?searchResultPosition=7
 
-**Banks Are Closing Customer Accounts, With Little Explanation**\
-`Increasing attention to suspicious-seeming transactions has led to some people suddenly losing access to their bank accounts. The reasons are often a mystery.`\
-https://nytimes.com/2023/04/08/your-money/bank-account-suspicious-activity.html?searchResultPosition=8
+**For DeSantis, Overflowing War Chest Obscures the Challenges Ahead**\
+`As he prepares for a widely expected 2024 campaign, the Florida governor has at least $110 million in allied committees. But he will also have to navigate a series of financial and political hurdles.`\
+https://nytimes.com/2023/04/08/us/politics/ron-desantis-2024-fundraising-trump.html?searchResultPosition=8
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/04/08/crosswords/spelling-bee-forum.html?searchResultPosition=9
+**Why Pope Francis Is the Star of A.I.-Generated Photos**\
+`Francis has become a recurring favorite to show in incongruous situations, such as riding a motorcycle and attending Burning Man, in A.I.-generated images.`\
+https://nytimes.com/2023/04/08/technology/ai-photos-pope-francis.html?searchResultPosition=9
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: contains spoilers!`\
-https://nytimes.com/2023/04/08/crosswords/wordle-review-answer-658.html?searchResultPosition=10
+**Georgia Looms Next After Trump’s Indictment in New York**\
+`Former President Donald J. Trump now faces a very different legal challenge in the culmination of a more than two-year Atlanta investigation into election interference.`\
+https://nytimes.com/2023/04/08/us/trump-georgia-election-fani-willis.html?searchResultPosition=10
 
