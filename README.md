@@ -4,7 +4,7 @@ https://nytimes.com/article/leaked-documents-ukraine-russia-war.html?searchResul
 
 **Phil Mickelson Has Best Final Round in 30th Masters Appearance**\
 `Mickelson, who withdrew from last year’s Masters Tournament as he took criticism for joining LIV Golf, earned a measure of redemption from fans by finishing in a tie for second place.`\
-https://nytimes.com/2023/04/09/sports/golf/masters-mickelson-liv-spieth.html?searchResultPosition=2
+https://nytimes.com/2023/04/09/sports/golf/masters-mickelson-liv.html?searchResultPosition=2
 
 **How the Latest Leaked Documents Are Different From Past Breaches**\
 `The freshness of the documents — some appear to be barely 40 days old — and the hints they hold for operations to come make them particularly damaging, officials say.`\
