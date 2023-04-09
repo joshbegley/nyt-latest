@@ -19,7 +19,7 @@ https://nytimes.com/2023/04/09/arts/marilyn-minter-lgdr-gallery.html?searchResul
 https://nytimes.com/2023/04/09/learning/whats-going-on-in-this-picture-april-17-2023.html?searchResultPosition=5
 
 **Adesanya Brings Moment of Stability by Regaining U.F.C. Title**\
-`Israel Adesanya knocked out Alex Pereira to regain the 185-pound championship belt, winning a rematch of a bout he had lost in November amid a time of star turnover in the sport.`\
+`Israel Adesanya knocked out Alex Pereira to regain the 185-pound championship belt, winning a rematch of a bout he lost in November amid a time of star turnover in the sport.`\
 https://nytimes.com/2023/04/09/sports/ufc-287-israel-adesanya.html?searchResultPosition=6
 
 **The Week in Business: Cuts to Oil Production**\
