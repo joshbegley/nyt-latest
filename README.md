@@ -8,7 +8,7 @@ https://nytimes.com/2023/04/09/opinion/letters/walking.html?searchResultPosition
 
 **María Kodama, Keeper of the Borges Legacy, Dies at 86**\
 `She was a writer and translator but was best known as the widow of Jorge Luis Borges, one of Latin America’s great writers.`\
-https://nytimes.com/2023/04/09/books/maria-kodama-keeper-of-the-borges-legacy-dies-at-86.html?searchResultPosition=3
+https://nytimes.com/2023/04/09/books/maria-kodama-dead.html?searchResultPosition=3
 
 **Did Jesus Really Rise From the Dead?**\
 `The theologian N.T. Wright on the baffling, world-altering claim of the resurrection.`\
