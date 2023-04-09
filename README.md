@@ -1,40 +1,40 @@
+**How a Civil Rights Champion Spends Her Sundays**\
+`Donna Lieberman, head of the New York Civil Liberties Union, “steps back” from job pressures with family outings and a swim.`\
+https://nytimes.com/2023/04/09/nyregion/donna-lieberman-aclu-nyu.html?searchResultPosition=1
+
+**The World Bank Is Getting a New Chief. Will He Pivot Toward Climate Action?**\
+`Under pressure from world leaders, development experts and shareholders, the bank opens its spring meeting on Monday, poised for big changes.`\
+https://nytimes.com/2023/04/09/climate/world-bank-anjay-banga.html?searchResultPosition=2
+
+**Sunday’s Masters Plan: End the Third Round, Play the Fourth, Crown a Winner. Maybe Dry Out, Too.**\
+`Plus, Fred Couples sets a Masters record.`\
+https://nytimes.com/2023/04/09/sports/golf/masters-sunday-weather.html?searchResultPosition=3
+
+**For a Literary Man’s Man, Mother Knew Best**\
+`In his new memoir, “Irma,” Terry McDonell, a magazine editor during the golden age of magazines, gives credit to Mom (and Hemingway).`\
+https://nytimes.com/2023/04/09/books/irma-terry-mcdonell-memoir.html?searchResultPosition=4
+
+**The Abortion Pill Ruling Is Bad Law, and the Biden Administration Should Fight It**\
+`The opinion from a federal judge in Texas is a legal travesty`\
+https://nytimes.com/2023/04/09/opinion/abortion-pill-case-decision.html?searchResultPosition=5
+
+**For This American, Self-Discovery Begins at a Ukrainian Call Center**\
+`“Calling Ukraine,” a novel by Johannes Lichtman, combines an expatriate story and an office satire.`\
+https://nytimes.com/2023/04/09/books/review/johannes-lichtman-calling-ukraine.html?searchResultPosition=6
+
+**Is It a Cold, or Is It Allergies?**\
+`Sneezing, sniffling, coughing — here’s how to tell what’s causing your symptoms.`\
+https://nytimes.com/2023/04/09/well/live/cold-allergy-symptoms.html?searchResultPosition=7
+
+**The Case for Staying Married to a Spouse You Cannot Stand**\
+`It’s worth exploring why, so often, our culture encourages us to run from the ambivalent space between “happy” and “irreconcilable differences.`\
+https://nytimes.com/2023/04/09/opinion/marriage-divorce-hatred.html?searchResultPosition=8
+
 **Quotation of the Day: Nashville, Shattered and Mourning, Prepares to Gather for Easter**\
 `Quotation of the Day for Sunday, April 9, 2023.`\
-https://nytimes.com/2023/04/09/pageoneplus/quotation-of-the-day-nashville-shattered-and-mourning-prepares-to-gather-for-easter.html?searchResultPosition=1
+https://nytimes.com/2023/04/09/pageoneplus/quotation-of-the-day-nashville-shattered-and-mourning-prepares-to-gather-for-easter.html?searchResultPosition=9
 
 **At Stanford Law School, the Dean Takes a Stand for Free Speech. Will It Work?**\
 `After a student protest, Jenny S. Martinez wrote a much-praised memo defending academic freedom. But that protest shows how complicated protecting free speech can be.`\
-https://nytimes.com/2023/04/09/us/stanford-law-school-free-speech.html?searchResultPosition=2
-
-**Ireland Readies a Warm Welcome for Biden, ‘the Most Irish’ President Since J.F.K.**\
-`Ahead of President Biden’s trip to Ireland, the locals of two towns, including several of his relatives, are hoping he’ll return to celebrate their ancestral ties.`\
-https://nytimes.com/2023/04/09/world/europe/biden-ireland-visit.html?searchResultPosition=3
-
-**How It Looks to Come of Age**\
-`The Where We Are series gives readers an inside look at the communities and coming-of-age traditions young people are creating today.`\
-https://nytimes.com/2023/04/09/insider/how-it-looks-to-come-of-age.html?searchResultPosition=4
-
-**Nashville, Battered and Mourning, Pauses for Easter**\
-`The holiest day in the Christian calendar comes as the church-filled city is in a heated political debate, and still deep in grief.`\
-https://nytimes.com/2023/04/09/us/nashville-easter.html?searchResultPosition=5
-
-**‘I Opened the Door, Got in and Slumped Down in the Seat’**\
-`Hoping to make a quick getaway, help with a hood and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2023/04/09/nyregion/metropolitan-diary.html?searchResultPosition=6
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/04/09/crosswords/spelling-bee-forum.html?searchResultPosition=7
-
-**Fresh Meanings for a Common Word**\
-`Fruit can be fresh. So can style, the country air and an impertinent teenage boy.`\
-https://nytimes.com/2023/04/09/insider/fresh-meanings-for-a-common-word.html?searchResultPosition=8
-
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: contains spoilers!`\
-https://nytimes.com/2023/04/09/crosswords/wordle-review-answer-659.html?searchResultPosition=9
-
-**‘S.N.L.’ Brings Donald Trump to the Last Supper for Easter Weekend**\
-`In an episode hosted by Molly Shannon, the former president, as played by James Austin Johnson, compared his recent indictment to the persecution of Jesus.`\
-https://nytimes.com/2023/04/09/arts/television/saturday-night-live-donald-trump-jesus-last-supper.html?searchResultPosition=10
+https://nytimes.com/2023/04/09/us/stanford-law-school-free-speech.html?searchResultPosition=10
 
