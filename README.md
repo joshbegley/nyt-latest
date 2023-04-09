@@ -26,9 +26,9 @@ https://nytimes.com/2023/04/09/opinion/brazil-favelas-pandemic-trust.html?search
 `Even as Russian forces made some gains in the battered eastern city last week, Ukraine’s forces say they have thwarted Moscow’s efforts to sever supply lines. For now.`\
 https://nytimes.com/2023/04/09/world/europe/ukraine-bakhmut-roads.html?searchResultPosition=7
 
-**Tiger Woods Withdraws from the Masters**\
-`Augusta National Golf Club announced that Woods had exited the tournament during the third round. It was the second time in less than a year that he withdrew during a major tournament.`\
-https://nytimes.com/2023/04/09/sports/golf/tiger-woods-withdraws-masters.html?searchResultPosition=8
+**At the Masters, Brooks Koepka Holds the Lead and Tiger Woods Withdraws**\
+`Woods exited the tournament during the third round that finished around noon on Sunday. Koepka held a two-stroke lead over Jon Rahm head into the final round.`\
+https://nytimes.com/2023/04/09/sports/golf/tiger-woods-withdraws-koepka-rahm.html?searchResultPosition=8
 
 **Marilyn Minter, an Artist Who Resonates and Repels**\
 `In her most ambitious show to date, the 74-year-old artist is continuing to push the envelope with a new body of work.`\
