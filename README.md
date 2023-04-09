@@ -36,5 +36,5 @@ https://nytimes.com/2023/04/09/arts/television/saturday-night-live-donald-trump-
 
 **Leaked Documents Show Seoul Torn Between U.S. Demands and Its Own Policy**\
 `The documents showed the United States most likely spied on a key Asian ally as pressure built for South Korea to help Washington supply ammunition to Ukraine.`\
-https://nytimes.com/2023/04/09/world/leak-pentagon-south-korea-ukraine.html?searchResultPosition=10
+https://nytimes.com/2023/04/09/world/asia/leak-pentagon-south-korea-ukraine.html?searchResultPosition=10
 
