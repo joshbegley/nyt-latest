@@ -1,36 +1,40 @@
+**At Stanford Law School, the Dean Takes a Stand for Free Speech. Will It Work?**\
+`After a student protest, Jenny S. Martinez wrote a much-praised memo defending academic freedom. But that protest shows how complicated protecting free speech can be.`\
+https://nytimes.com/2023/04/09/us/stanford-law-school-free-speech.html?searchResultPosition=1
+
+**Ireland Readies a Warm Welcome for Biden, ‘the Most Irish’ President Since J.F.K.**\
+`Ahead of President Biden’s trip to Ireland, the locals of two towns, including several of his relatives, are hoping he’ll return to celebrate their ancestral ties.`\
+https://nytimes.com/2023/04/09/world/europe/biden-ireland-visit.html?searchResultPosition=2
+
+**How It Looks to Come of Age**\
+`The Where We Are series gives readers an inside look at the communities and coming-of-age traditions young people are creating today.`\
+https://nytimes.com/2023/04/09/insider/how-it-looks-to-come-of-age.html?searchResultPosition=3
+
+**Nashville, Battered and Mourning, Pauses for Easter**\
+`The holiest day in the Christian calendar comes as the church-filled city is in a heated political debate, and still deep in grief.`\
+https://nytimes.com/2023/04/09/us/nashville-easter.html?searchResultPosition=4
+
+**‘I Opened the Door, Got in and Slumped Down in the Seat’**\
+`Hoping to make a quick getaway, help with a hood and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2023/04/09/nyregion/metropolitan-diary.html?searchResultPosition=5
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2023/04/09/crosswords/spelling-bee-forum.html?searchResultPosition=6
+
+**Fresh Meanings for a Common Word**\
+`Fruit can be fresh. So can style, the country air and an impertinent teenage boy.`\
+https://nytimes.com/2023/04/09/insider/fresh-meanings-for-a-common-word.html?searchResultPosition=7
+
+**Today’s Wordle Review**\
+`Our columnist reviews the day’s puzzle. Warning: contains spoilers!`\
+https://nytimes.com/2023/04/09/crosswords/wordle-review-answer-659.html?searchResultPosition=8
+
 **‘S.N.L.’ Brings Donald Trump to the Last Supper for Easter Weekend**\
 `In an episode hosted by Molly Shannon, the former president, as played by James Austin Johnson, compared his recent indictment to the persecution of Jesus.`\
-https://nytimes.com/2023/04/09/arts/television/saturday-night-live-donald-trump-jesus-last-supper.html?searchResultPosition=1
+https://nytimes.com/2023/04/09/arts/television/saturday-night-live-donald-trump-jesus-last-supper.html?searchResultPosition=9
 
 **Leaked Documents Show Seoul Torn Between U.S. Demands and Its Own Policy**\
 `The documents showed the United States most likely spied on a key Asian ally as pressure built for South Korea to help Washington supply ammunition to Ukraine.`\
-https://nytimes.com/2023/04/09/world/leak-pentagon-south-korea-ukraine.html?searchResultPosition=2
-
-**How to Make Trump Go Away**\
-`It starts by having some humility and understanding his appeal.`\
-https://nytimes.com/2023/04/09/opinion/donald-trump-2024-campaign.html?searchResultPosition=3
-
-**Northern Ireland Is Far Too Quiet**\
-`Peace here is a matchstick tower. And in the last few years there has been a shifting of the ground below.`\
-https://nytimes.com/2023/04/09/opinion/northern-ireland-biden-good-friday.html?searchResultPosition=4
-
-**Corrections: April 8, 2023**\
-`Corrections that appeared in print on Saturday, April 8, 2023.`\
-https://nytimes.com/2023/04/09/pageoneplus/corrections-april-8-2023.html?searchResultPosition=5
-
-**Texas Governor Says He Plans to Pardon Man Convicted of Killing Protester**\
-`Gov. Greg Abbott said he would forgo a prison sentence for Daniel S. Perry, who was convicted on Friday in the murder of Garrett Foster at a Black Lives Matter demonstration in 2020.`\
-https://nytimes.com/2023/04/08/us/politics/greg-abbott-pardon-daniel-perry-texas.html?searchResultPosition=6
-
-**U.S. Sends Attack Submarine to Middle East as Tensions Rise Between Iran and Israel**\
-`Officials said the move was meant as a  deterrent against Iran and to maintain the stability of one of the world’s busiest shipping lanes.`\
-https://nytimes.com/2023/04/08/world/middleeast/us-submarine-middle-east-iran.html?searchResultPosition=8
-
-**U.S. Women Win a World Cup Soccer Tuneup but Lose a Top Scorer**\
-`Mallory Swanson was carted off with a knee injury during a 2-0 victory over Ireland. She is considered key to the United States’ hopes of winning a third consecutive World Cup championship.`\
-https://nytimes.com/2023/04/08/sports/soccer/soccer-swanson-world-cup.html?searchResultPosition=9
-
-**If the Clue Fits …**\
-`John Ewbank’s Sunday puzzle is like a box of chocolates. …`\
-https://nytimes.com/2023/04/08/crosswords/daily-puzzle-2023-04-09.html?searchResultPosition=10
+https://nytimes.com/2023/04/09/world/leak-pentagon-south-korea-ukraine.html?searchResultPosition=10
 
