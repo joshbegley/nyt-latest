@@ -1,5 +1,5 @@
 **Review: ‘Ainadamar’ Turns Lorca Into Death-Haunted Opera**\
-`Osvaldo Golijov’s poetic 2003 work is being presented in a new production at Detroit Opera that will travel to the Metropolitan Opera.`\
+`Osvaldo Golijov’s poetic 2003 work is being presented in a new production at Detroit Opera that will travel to the Met.`\
 https://nytimes.com/2023/04/09/arts/music/review-ainadamar-golijov-detroit-opera.html?searchResultPosition=1
 
 **Walking as a Cure for What Ails Us**\
