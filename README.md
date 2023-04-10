@@ -23,7 +23,7 @@ https://nytimes.com/2023/04/09/world/europe/marseille-building-collapse-france.h
 https://nytimes.com/2023/04/09/business/elon-musk-tesla-shanghai-battery-factory.html?searchResultPosition=6
 
 **What Do Leaked U.S. Intelligence Reports Say? Here Is a Quick Guide.**\
-`A trove of classified documents dribbling onto the web has tongues wagging.`\
+`Many questions remain about the classified documents that have been dribbling onto the web.`\
 https://nytimes.com/article/leaked-documents-ukraine-russia-war.html?searchResultPosition=7
 
 **Phil Mickelson Has Best Final Round in 30th Masters Appearance**\
