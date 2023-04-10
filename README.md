@@ -14,7 +14,7 @@ https://nytimes.com/2023/04/10/us/politics/nashville-council-tennessee-lawmaker-
 `It will offer customized hints, but only if you want them.`\
 https://nytimes.com/2023/04/10/upshot/spelling-bee-buddy-introduction.html?searchResultPosition=4
 
-**Spelling Bee Buddy: Your Personalized, Daily Puzzle Hints**\
+**Spelling Bee Buddy: Your Daily Personalized Puzzle Hints**\
 `Customized hints that update based on your progress in today’s puzzle.`\
 https://nytimes.com/interactive/2023/upshot/spelling-bee-buddy.html?searchResultPosition=5
 
