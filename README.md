@@ -15,7 +15,7 @@ https://nytimes.com/2023/04/10/health/abortion-ruling-pharma-executives.html?sea
 https://nytimes.com/2023/04/10/world/europe/italy-migrants-rescue.html?searchResultPosition=4
 
 **Hochul Names a New Candidate to Become New York’s Top Judge**\
-`Her choice of Rowan D. Wilson, who already serves on the highest court, the Court of Appeals, might soothe left-leaning Democrats who spurned her previous pick.`\
+`Gov. Kathy Hochul’s choice of Rowan D. Wilson, who already serves on the highest court, the Court of Appeals, might soothe left-leaning Democrats who spurned her previous pick.`\
 https://nytimes.com/2023/04/10/nyregion/hochul-chief-judge.html?searchResultPosition=5
 
 **Revised Plan for Justice System in Mississippi Capital Leaves Same Bitter Divide**\
