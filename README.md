@@ -14,7 +14,7 @@ https://nytimes.com/2023/04/10/opinion/letters/child-labor.html?searchResultPosi
 `In his new memoir, “Enough: Scenes From Childhood,” Stephen Hough recalls his artistic and sexual coming-of-age with a light touch.`\
 https://nytimes.com/2023/04/10/arts/music/stephen-hough-enough.html?searchResultPosition=4
 
-**Met Museum Commissions Bring Contemporary Art Front and Center**\
+**Met Museum Commissions to Bring Contemporary Art Front and Center**\
 `With a new wing years away, the Met will highlight cutting-edge art with Nairy Baghramian on its facade and Jacolby Satterwhite in the Great Hall.`\
 https://nytimes.com/2023/04/10/arts/design/met-museum-satterwhite-baghramian-commission.html?searchResultPosition=5
 
