@@ -35,6 +35,6 @@ https://nytimes.com/2023/04/10/world/middleeast/yemen-peace-talks.html?searchRes
 https://nytimes.com/2023/04/10/us/senate-democrats-supreme-court-clarence-thomas.html?searchResultPosition=9
 
 **Nashville Council Returns Justin Jones to Tennessee House**\
-`The Metropolitan Nashville Council voted to temporarily appoint Justin Jones back to his Nashville seat in the state legislature, just days after Republicans overwhelmingly voted to expel him.`\
+`Within an hour of the Metropolitan Nashville Council unanimously voting to temporarily appoint Justin Jones back to the seat, the young lawmaker had returned to take his place in the Republican-controlled legislature.`\
 https://nytimes.com/video/us/politics/100000008853096/nashville-justin-jones-tennessee.html?searchResultPosition=10
 
