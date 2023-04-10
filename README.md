@@ -1,40 +1,40 @@
-**Council Likely to Ban Weight Bias in the Workplace**\
-`Under a bill that is expected to pass, employers won’t be able to turn down applicants because they are overweight.`\
-https://nytimes.com/2023/04/10/nyregion/council-likely-to-ban-weight-bias-in-the-workplace.html?searchResultPosition=1
+**Clarence Thomas Decided Against the Staycation**\
+`Meanwhile, Dobbs continues to shape the political landscape.`\
+https://nytimes.com/2023/04/10/opinion/clarence-thomas-harlan-crow-donald-trump.html?searchResultPosition=1
 
-**How Much Do You Know About St. Kitts and Nevis?**\
-`Can you find St. Kitts and Nevis on a map? What else do you know about this island nation with about 53,000 people?`\
-https://nytimes.com/interactive/2023/04/10/learning/StKittsNevisGeographyQuiz.html?searchResultPosition=2
+**Calling All Bodies**\
+`With a graphic new H&M capsule collection and joyful accompanying video, Mugler celebrates the inclusivity the label’s founder pioneered.`\
+https://nytimes.com/2023/04/10/style/mugler-h-and-m-collaboration.html?searchResultPosition=2
 
-**What Is Your Secret to a Happy Life?**\
-`Finns, whose country has been ranked as the happiest for six years in a row, say happiness is “knowing when you have enough.” What is happiness to you?`\
-https://nytimes.com/2023/04/10/learning/what-is-your-secret-to-a-happy-life.html?searchResultPosition=3
+**DeSantis Pushes Toughest Immigration Crackdown in the Nation**\
+`The Florida governor is pushing an aggressive proposal to penalize those who aid undocumented immigrants and to track costs for providing them with health care.`\
+https://nytimes.com/2023/04/10/us/florida-desantis-immigration.html?searchResultPosition=3
 
-**A Look at Northern Ireland 25 Years After the Peace Accord**\
-`As it commemorates a quarter-century since the Good Friday Agreement, the region is searching for its place and trying to move on from a legacy of bloody divisions.`\
-https://nytimes.com/2023/04/10/world/europe/northern-ireland-good-friday-photos.html?searchResultPosition=4
+**‘Feels Like Forever Since We’ve Been Home’**\
+`The Toronto Blue Jays had a nomad-like existence away from Canada in 2020 and for most of 2021. Because of stadium renovations, they began 2023 with 10 games on the road.`\
+https://nytimes.com/2023/04/10/sports/baseball/toronto-blue-jays.html?searchResultPosition=4
 
-**New York City Offers Free Preschool. Why Are 30,000 Spots Empty?**\
-`The pandemic affected enrollment for pre-K and 3-K. Now, some believe the city should ramp up efforts to enroll new children.`\
-https://nytimes.com/2023/04/10/nyregion/nyc-free-preschool-prek.html?searchResultPosition=5
+**Superyachts Are Climate Supervillains**\
+`Even small victories against the carbon aristocracy challenge the standard narrative around climate change.`\
+https://nytimes.com/2023/04/10/opinion/superyachts-private-plane-climate-change.html?searchResultPosition=5
 
-**A.I. Is Coming for Lawyers, Again**\
-`Previous advances in A.I. inspired predictions that the law was the lucrative profession most likely to suffer job losses. It didn’t happen. Is this time different?`\
-https://nytimes.com/2023/04/10/technology/ai-is-coming-for-lawyers-again.html?searchResultPosition=6
+**The Unequal Racial Burdens of Rising Seas**\
+`In “Charleston,” a case study of climate change and government negligence in the South Carolina city, Susan Crawford makes clear the disproportionate costs borne by communities of color in the coastal United States.`\
+https://nytimes.com/2023/04/10/books/review/charleston-susan-crawford.html?searchResultPosition=6
 
-**Abortion Ruling Could Undermine the F.D.A.’s Drug-Approval Authority**\
-`Legal scholars say the ruling by a Texas judge, if upheld, could spur disputes over many medications and upend the drug industry’s reliance on the agency.`\
-https://nytimes.com/2023/04/10/health/abortion-pill-fda.html?searchResultPosition=7
+**Truffle Hunting in Syria, Once a Beloved Pastime, Is Now a Danger**\
+`A cherished spring tradition has become a perilous gamble to earn a bit of desperately needed income during an economic crisis after 12 years of war. Dozens of foragers have been killed already this year.`\
+https://nytimes.com/2023/04/10/world/middleeast/syria-truffles-war.html?searchResultPosition=7
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/04/10/crosswords/spelling-bee-forum.html?searchResultPosition=8
+**Turning Over the Stones of England’s Lost Jewish Past**\
+`Around eight centuries ago, Jews thrived in England, worshiping freely and living where they pleased. Then everything changed. You can uncover their stories, if you know where to look.`\
+https://nytimes.com/2023/04/10/travel/medieval-jewish-england.html?searchResultPosition=8
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: contains spoilers!`\
-https://nytimes.com/2023/04/10/crosswords/wordle-review-answer-660.html?searchResultPosition=9
+**China Has Reopened to Tourists. The Hard Part Is Getting There.**\
+`Despite loosened visa rules, the number of flights into China is still a small fraction of what it was before the pandemic, fueled partly by geopolitical tensions.`\
+https://nytimes.com/2023/04/10/business/china-tourism.html?searchResultPosition=9
 
-**Politicians Who Switch Parties**\
-`The defection of a Democrat in North Carolina last week fit into a long tradition.`\
-https://nytimes.com/interactive/2023/04/10/us/politics/politicians-switching-parties.html?searchResultPosition=10
+**Material Event: Unpacking That Pivotal ‘Succession’ Episode**\
+`The Roy family has never felt more human than it has in this season’s third episode — or more alien.`\
+https://nytimes.com/2023/04/10/arts/television/succession-roy-family-episode-3.html?searchResultPosition=10
 
