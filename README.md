@@ -18,23 +18,23 @@ https://nytimes.com/video/world/europe/100000008852648/italy-migrants-rescue-med
 `Prosecutors had previously decided not to charge the boy, a first grader who brought the gun to his Newport News, Va., elementary school in January.`\
 https://nytimes.com/2023/04/10/us/virginia-school-shooting-mother-charged.html?searchResultPosition=5
 
-**DQA**\
-``\
-https://nytimes.com/newsgraphics/card-story/gws-dqa?searchResultPosition=6
-
 **Nashville Council to Vote on Returning Expelled Lawmaker to House**\
 `The council was set to meet Monday to move toward sending back to the state legislature one of two lawmakers expelled by Republicans.`\
-https://nytimes.com/2023/04/10/us/politics/nashville-council-tennessee-lawmaker-jones.html?searchResultPosition=7
+https://nytimes.com/2023/04/10/us/politics/nashville-council-tennessee-lawmaker-jones.html?searchResultPosition=6
 
 **Introducing Spelling Bee Buddy: Your Personalized Daily Bee Helper**\
 `It will offer customized hints, but only if you want them.`\
-https://nytimes.com/2023/04/10/upshot/spelling-bee-buddy-introduction.html?searchResultPosition=8
+https://nytimes.com/2023/04/10/upshot/spelling-bee-buddy-introduction.html?searchResultPosition=7
 
 **Spelling Bee Buddy: Your Daily Personalized Puzzle Hints**\
 `Customized hints that update based on your progress in today’s puzzle.`\
-https://nytimes.com/interactive/2023/upshot/spelling-bee-buddy.html?searchResultPosition=9
+https://nytimes.com/interactive/2023/upshot/spelling-bee-buddy.html?searchResultPosition=8
 
 **R.I.P. W.F.H.? Not So Fast.**\
 `Working from home isn’t as common as at the pandemic’s start, but experts agree it’s here to stay.`\
-https://nytimes.com/2023/04/10/opinion/work-from-home-future.html?searchResultPosition=10
+https://nytimes.com/2023/04/10/opinion/work-from-home-future.html?searchResultPosition=9
+
+**Trump Ignores Deadline for Personal Financial Disclosure to F.E.C.**\
+`The disclosure will eventually provide the first look at the former president’s businesses since leaving the White House.`\
+https://nytimes.com/2023/04/10/us/politics/trump-campaign-fec-filing.html?searchResultPosition=10
 
