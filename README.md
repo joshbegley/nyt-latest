@@ -11,7 +11,7 @@ https://nytimes.com/2023/04/10/world/asia/china-activists-prison.html?searchResu
 https://nytimes.com/2023/04/10/podcasts/the-daily/tennessee-democrats-republicans-house.html?searchResultPosition=3
 
 **South Korea’s Unhealthy Obsession With Japan**\
-`Fear of China is forcing South Korea to reassess its fraught relations with Japan`\
+`Fear of China is forcing South Korea to reassess its fraught relations with Japan.`\
 https://nytimes.com/2023/04/10/opinion/south-korea-japan-china-relations.html?searchResultPosition=4
 
 **Clarence Thomas Decided Against the Staycation**\
