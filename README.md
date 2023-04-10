@@ -14,7 +14,7 @@ https://nytimes.com/2023/04/10/style/taylor-swift-joe-alwyn-breakup-reports.html
 `Ahead of the W.N.B.A. draft, women’s basketball remains troubled by racial disparities in how its stars are showcased.`\
 https://nytimes.com/2023/04/10/sports/basketball/wnba-draft-marketing-race.html?searchResultPosition=4
 
-**Papaya King's Reign Continues Just Across the Street**\
+**Papaya King’s Reign Continues Just Across the Street**\
 `The Upper East Side fixture makes a short move, Murray’s Cheese Shop serves up cacio e pepe mac and cheese, and more.`\
 https://nytimes.com/2023/04/10/dining/papaya-king-hot-dogs-reopening-upper-east-side.html?searchResultPosition=5
 
