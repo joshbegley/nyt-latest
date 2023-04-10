@@ -2,7 +2,7 @@
 `Economists are watching for the aftereffects of recent bank collapses across many industries. How bad could it get?`\
 https://nytimes.com/2023/04/10/business/economy/bank-economy-credit-crunch.html?searchResultPosition=1
 
-**‘Multiple Casualties’ After Shooting in Louisville, Ky., Police Say**\
+**5 Dead and 6 Injured in Shooting in Louisville, Ky., Police Say**\
 `The police urged people to stay away from Slugger Field, the minor league baseball stadium, because of an “active aggressor.”`\
 https://nytimes.com/2023/04/10/us/louisville-kentucky-shooting.html?searchResultPosition=2
 
