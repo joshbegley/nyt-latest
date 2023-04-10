@@ -22,7 +22,7 @@ https://nytimes.com/2023/04/10/nyregion/hochul-chief-judge.html?searchResultPosi
 `A new plan for overhauling the police and courts imposed by the mostly white Mississippi Legislature received a cold response in the mostly Black capital of Jackson.`\
 https://nytimes.com/2023/04/10/us/jackson-mississippi-crime-police.html?searchResultPosition=6
 
-**Justice Department Recently Looked Into Twitter, Lawsuit Says**\
+**Justice Dept. Recently Looked Into Twitter, Lawsuit Says**\
 `The focus of the inquiry was unclear, but several former executives said they had racked up more than $1 million in expenses dealing with it and other legal issues.`\
 https://nytimes.com/2023/04/10/technology/twitter-lawsuit-justice-department.html?searchResultPosition=7
 
