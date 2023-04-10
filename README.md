@@ -3,7 +3,7 @@
 https://nytimes.com/2023/04/10/us/fire-fishing-boat-puget-sound.html?searchResultPosition=1
 
 **Drug Company Leaders Condemn Ruling Invalidating F.D.A. Approval of Abortion Pill**\
-`More than 250 executives said that the decision ignored both scientific and legal precedent and, if it stands, would create uncertainty for the entire pharmaceutical and biotech industries.`\
+`More than 250 executives said that the decision ignored both scientific and legal precedent and, if it stands, would create uncertainty for the pharmaceutical and biotech industries.`\
 https://nytimes.com/2023/04/10/health/abortion-ruling-pharma-executives.html?searchResultPosition=2
 
 **Italy’s Coast Guard Rescues Hundreds of Migrants in ‘Chaotic’ Few Days at Sea**\
