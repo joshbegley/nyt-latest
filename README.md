@@ -3,7 +3,7 @@
 https://nytimes.com/2023/04/10/us/supreme-court-abortion-pill-fda.html?searchResultPosition=1
 
 **Clues Left Online Might Aid Leak Investigation, Officials Say**\
-`A large number of people potentially had access to the Pentagon intelligence documents posted on a social media.`\
+`A large number of people potentially had access to the Pentagon intelligence documents posted on social media.`\
 https://nytimes.com/2023/04/10/us/politics/classified-documents-leak.html?searchResultPosition=2
 
 **W.N.B.A. Draft: Aliyah Boston Goes No. 1 to Indiana Fever**\
