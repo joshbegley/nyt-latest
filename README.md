@@ -1,6 +1,6 @@
 **Al Jaffee, King of the Mad Magazine Fold-In, Dies at 102**\
 `For 55 years, he encouraged fans of the satiric magazine to mutilate it.`\
-https://nytimes.com/2023/04/10/obituaries/al-jaffee-king-of-the-mad-magazine-fold-in-dies-at-102.html?searchResultPosition=1
+https://nytimes.com/2023/04/10/arts/al-jaffee-dead.html?searchResultPosition=1
 
 **Michael Lerner, ‘Elf’ and ‘Barton Fink’ Actor, Dies at 81**\
 `“I would love people to know that I am a chameleon,” Mr. Lerner, who was nominated for a best supporting actor Oscar in 1992, said of his five-decade career as a character actor in movies and television.`\
@@ -34,7 +34,7 @@ https://nytimes.com/video/world/europe/100000008852648/italy-migrants-rescue-med
 `Prosecutors had previously decided not to charge the boy, a first grader who brought the gun to his Newport News, Va., elementary school in January.`\
 https://nytimes.com/2023/04/10/us/virginia-school-shooting-mother-charged.html?searchResultPosition=9
 
-**DQA**\
-``\
-https://nytimes.com/newsgraphics/card-story/gws-dqa?searchResultPosition=10
+**Nashville Council to Vote on Returning Expelled Lawmaker to House**\
+`The council was set to meet Monday to move toward sending back to the state legislature one of two lawmakers expelled by Republicans.`\
+https://nytimes.com/2023/04/10/us/politics/nashville-council-tennessee-lawmaker-jones.html?searchResultPosition=10
 
