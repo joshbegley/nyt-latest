@@ -14,7 +14,7 @@ https://nytimes.com/2023/04/10/arts/music/stephen-hough-enough.html?searchResult
 `With a new wing years away, the Met will highlight cutting-edge art with Nairy Baghramian on its facade and Jacolby Satterwhite in the Great Hall.`\
 https://nytimes.com/2023/04/10/arts/design/met-museum-satterwhite-baghramian-commission.html?searchResultPosition=4
 
-**Gunman Kills at Least 5 People at a Louisville Bank**\
+**Police Respond to Mass Shooting at a Louisville Bank**\
 `In video from the scene, a series of gunshots can be heard, as well as a man yelling, “Active shooter at the bank.”`\
 https://nytimes.com/video/us/100000008852196/louisville-shooting-bank-kentucky.html?searchResultPosition=5
 
