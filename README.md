@@ -30,7 +30,7 @@ https://nytimes.com/2023/04/10/world/asia/dalai-lama-boy.html?searchResultPositi
 `Economists are watching for the aftereffects of recent bank collapses across many industries. How bad could it get?`\
 https://nytimes.com/2023/04/10/business/economy/bank-economy-credit-crunch.html?searchResultPosition=8
 
-**5 Dead and 6 Injured in Shooting in Louisville, Ky., Police Say**\
+**5 Dead and 8 Injured in Shooting in Louisville, Ky., Police Say**\
 `The deputy police chief said that the suspected gunman was confirmed dead at the scene.`\
 https://nytimes.com/2023/04/10/us/louisville-kentucky-shooting.html?searchResultPosition=9
 
