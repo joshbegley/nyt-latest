@@ -1,40 +1,40 @@
-**The Great American Labor Trap**\
-`We made this video for the three people who can end an absurd workplace nightmare for millions of Americans.`\
-https://nytimes.com/video/opinion/100000008785506/ftc-noncompete-clause-rule.html?searchResultPosition=1
+**In Milan, Every Third Year’s the Charm**\
+`The Milan Triennale, a treasure house of design, turns 100.`\
+https://nytimes.com/2023/04/11/arts/design/milan-triennale.html?searchResultPosition=1
 
-**Amid Furor, Seoul Downplays Leaked Pentagon Documents**\
-`As opposition lawmakers in South Korea accuse Washington of spying, President Yoon Suk Yeol has tried to minimize the significance of the breach.`\
-https://nytimes.com/2023/04/11/world/asia/south-korea-leaked-pentagon-documents.html?searchResultPosition=2
+**New Ways to Take a Seat at Milan Design Week**\
+`Designers are showing off some of their latest works at the furniture fair.`\
+https://nytimes.com/2023/04/11/arts/design/seating-milan-design-week.html?searchResultPosition=2
 
-**What Pop Culture Moments Define the Covid Era?**\
-`Tell us the shows, movies, songs, podcasts, books, games or other activities that you think capture this moment in time.`\
-https://nytimes.com/2023/04/11/learning/what-pop-culture-moments-define-the-covid-era.html?searchResultPosition=3
+**‘The Marvelous Mrs. Maisel’ Takes Its Final Curtsy**\
+`In its final season, the pioneering Amazon hit wanted to go out the way it came in: fabulously, in heels and with a dizzying words-to-minutes ratio.`\
+https://nytimes.com/2023/04/11/arts/television/the-marvelous-mrs-maisel-final-season.html?searchResultPosition=3
 
-**Automakers Face Test in Reaching U.S. Target for Electric Vehicles**\
-`New federal rules are expected to speed the transition to E.V.s, a shift that car companies have embraced but will be challenged to carry out.`\
-https://nytimes.com/2023/04/11/business/energy-environment/cars-electric-vehicles-epa.html?searchResultPosition=4
+**Sex Abuse, Beatings and an Untouchable Mississippi Sheriff**\
+`As abuse allegations in a rural jail piled up, criminal inquiries dragged on or went nowhere. No one scrutinized how the sheriff ran his jail.`\
+https://nytimes.com/2023/04/11/us/noxubee-mississippi-sheriffs-abuse.html?searchResultPosition=4
 
-**In China, Young People Ditch Prestige Jobs for Manual Labor**\
-`Some people who’ve walked away from China’s grueling corporate culture say it’s worth the financial sacrifice. “I was tired of living like that,” one said.`\
-https://nytimes.com/2023/04/11/world/asia/china-youth-employment.html?searchResultPosition=5
+**An Urban Farmer and TV Host on Why She Recycles Almost Everything**\
+`Jamila Norman — a.k.a. Farmer J from the Magnolia Network series “Homegrown” — has a simple home-décor philosophy: “I don’t like buying new stuff.”`\
+https://nytimes.com/2023/04/11/realestate/jamila-norman-homegrown-urban-farming.html?searchResultPosition=5
 
-**The Direct Effects and Existential Dread Created by Gun Violence**\
-`Christina Caron, a reporter for the Well section of The New York Times, asked readers how mass shootings had affected them. More than 600 people responded.`\
-https://nytimes.com/2023/04/11/insider/gun-violence-readers.html?searchResultPosition=6
+**How Ukraine Won the War to Keep the Lights On**\
+`Russia was determined to break Ukrainians’ will by plunging them into cold and darkness. But the long winter is almost over.`\
+https://nytimes.com/2023/04/11/world/europe/ukraine-war-infrastructure.html?searchResultPosition=6
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/04/11/crosswords/spelling-bee-forum.html?searchResultPosition=7
+**At Home With Jamila Norman**\
+`The urban farmer, who hosts the Magnolia Network series “Homegrown,” has a simple home-décor philosophy: “I don’t like buying new stuff.”`\
+https://nytimes.com/slideshow/2023/04/11/realestate/at-home-with-jamila-norman.html?searchResultPosition=7
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: contains spoilers!`\
-https://nytimes.com/2023/04/11/crosswords/wordle-review-answer-661.html?searchResultPosition=8
+**As Mental Health Crisis Grows, More Doors Open to Care**\
+`Developers are working with health care providers to add psychiatric hospitals, addiction recovery centers and other behavioral health clinics.`\
+https://nytimes.com/2023/04/11/business/mental-health-addiction-care.html?searchResultPosition=8
 
-**TikTok Dances**\
-`Have you ever learned choreography from a TikTok influencer? Participated in a dance challenge?`\
-https://nytimes.com/2023/04/11/learning/tiktok-dances.html?searchResultPosition=9
+**Textiles Are Part of the Fabric of Milan Design Week**\
+`The annual festival of furnishings and household objects has several presentations involving cloth materials and techniques.`\
+https://nytimes.com/2023/04/11/arts/design/textiles-milan-design-week.html?searchResultPosition=9
 
-**Can Intelligence Be Separated From the Body?**\
-`Some researchers question whether A.I. can be truly intelligent without a body to interact with and learn from the physical world.`\
-https://nytimes.com/2023/04/11/science/artificial-intelligence-body-robots.html?searchResultPosition=10
+**Even in Exile, Bob Baffert Is the King of the Sport of Kings**\
+`Baffert was barred from Triple Crown races after Medina Spirit tested positive for a prohibited drug at the 2021 Kentucky Derby. But owners keep sending him expensive horses — and he keeps winning.`\
+https://nytimes.com/2023/04/11/sports/horse-racing/bob-baffert-horse-racing.html?searchResultPosition=10
 
