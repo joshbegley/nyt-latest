@@ -1,6 +1,6 @@
-**headline test videoNV !**\
-`Summary NV test video!`\
-https://nytimes.com/video/admin/02-autotest-022749997-20180102/100000007092325/headline-test-videonv.html?searchResultPosition=1
+**Tina Peters, Clerk Indicted in Election Case, Is Sentenced in Separate Matter**\
+`Ms. Peters, who is awaiting trial in a voting equipment tampering case, was given four months of home detention and community service after her conviction on an obstruction charge.`\
+https://nytimes.com/2023/04/11/us/politics/tina-peters-clerk-colorado-sentenced.html?searchResultPosition=1
 
 **Why Are Taxpayers Propping Up the Fossil Fuel Industry?**\
 `Worldwide, government subsidies for oil and gas are at a record high. Global financial institutions have been trying for years to get them phased out.`\
