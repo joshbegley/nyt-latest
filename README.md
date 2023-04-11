@@ -1,6 +1,6 @@
 **Ex-Firefighter Who Threw Extinguisher at Police at Capitol Gets Prison**\
 `The retired firefighter, who prosecutors said struck three police officers in the head on Jan. 6, 2021, was sentenced to 52 months behind bars.`\
-https://nytimes.com/2023/04/11/us/ex-firefighter-who-threw-extinguisher-at-police-at-capitol-gets-prison.html?searchResultPosition=1
+https://nytimes.com/2023/04/11/us/jan-6-retired-firefighter-sentenced.html?searchResultPosition=1
 
 **Judge’s Ruling Against Abortion Pill Is Filled With Activists’ Language**\
 `The preliminary ruling from Judge Matthew J. Kacsmaryk adopts the terminology of anti-abortion groups, such as “chemical abortion,” “abortionist” and “unborn human.”`\
