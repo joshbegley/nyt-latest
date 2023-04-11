@@ -1,5 +1,5 @@
 **Why Drugmakers’ Battle in Texas is Such a Big Deal**\
-`The decision by a Texas judge to overturn F.D.A. approval for the abortion pill mifepristone could potentially upend the pharmaceutical industry.`\
+`The decision by a Texas judge to overturn F.D.A. approval for the abortion pill mifepristone could upend the pharmaceutical industry.`\
 https://nytimes.com/2023/04/11/business/dealbook/drugmakers-texas-abortion-pill-mifepristone.html?searchResultPosition=1
 
 **To Become Oscar Levant, Sean Hayes Revisited His First Role**\
