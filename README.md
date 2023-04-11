@@ -8,7 +8,7 @@ https://nytimes.com/2023/04/11/world/asia/myanmar-airstrike.html?searchResultPos
 
 **I.M.F. Lowers Growth Outlook Amid Financial System Tremors**\
 `The International Monetary Fund says a painful slowdown, which could include a recession, has become a bigger risk for the global economy.`\
-https://nytimes.com/2023/04/11/business/international-monetary-fund-growth-outlook-lowers.html?searchResultPosition=3
+https://nytimes.com/2023/04/11/business/imf-world-economic-outlook.html?searchResultPosition=3
 
 **What Should California’s Official State Food Be?**\
 `With so many options, state leaders have shied away from choosing just one.`\
