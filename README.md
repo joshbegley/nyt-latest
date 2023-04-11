@@ -27,7 +27,7 @@ https://nytimes.com/2023/04/11/us/noxubee-mississippi-sheriffs-abuse.html?search
 https://nytimes.com/2023/04/11/realestate/jamila-norman-homegrown-urban-farming.html?searchResultPosition=7
 
 **How Ukraine Won the War to Keep the Lights On**\
-`Russia was determined to break Ukrainians’ will by plunging them into cold and darkness. But the long winter is almost over.`\
+`Russia was determined to break Ukrainians’ will by plunging them into cold and darkness. Its failure, in the face of Ukrainian resilience, offers lessons as winter has released its icy grip.`\
 https://nytimes.com/2023/04/11/world/europe/ukraine-war-infrastructure.html?searchResultPosition=8
 
 **At Home With Jamila Norman**\
