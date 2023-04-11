@@ -1,40 +1,40 @@
+**Automakers Face Test in Reaching U.S. Target for Electric Vehicles**\
+`New federal rules are expected to speed the transition to E.V.s, a shift that car companies have embraced but will be challenged to carry out.`\
+https://nytimes.com/2023/04/11/business/energy-environment/cars-electric-vehicles-epa.html?searchResultPosition=1
+
+**In China, Young People Ditch Prestige Jobs for Manual Labor**\
+`Some people who’ve walked away from China’s grueling corporate culture say it’s worth the financial sacrifice. “I was tired of living like that,” one said.`\
+https://nytimes.com/2023/04/11/world/asia/china-youth-employment.html?searchResultPosition=2
+
+**The Direct Effects and Existential Dread Created by Gun Violence**\
+`Christina Caron, a reporter for the Well section of The New York Times, asked readers how mass shootings had affected them. More than 600 people responded.`\
+https://nytimes.com/2023/04/11/insider/gun-violence-readers.html?searchResultPosition=3
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2023/04/11/crosswords/spelling-bee-forum.html?searchResultPosition=4
+
+**Today’s Wordle Review**\
+`Our columnist reviews the day’s puzzle. Warning: contains spoilers!`\
+https://nytimes.com/2023/04/11/crosswords/wordle-review-answer-661.html?searchResultPosition=5
+
+**TikTok Dances**\
+`Have you ever learned choreography from a TikTok influencer? Participated in a dance challenge?`\
+https://nytimes.com/2023/04/11/learning/tiktok-dances.html?searchResultPosition=6
+
+**Can Intelligence Be Separated From the Body?**\
+`Some researchers question whether A.I. can be truly intelligent without a body to interact with and learn from the physical world.`\
+https://nytimes.com/2023/04/11/science/artificial-intelligence-body-robots.html?searchResultPosition=7
+
+**These Devices Save Lives, but Almost Nobody Has One at Home**\
+`While researchers are divided over whether more people should have automated external defibrillators at home, those who have used one have no doubts.`\
+https://nytimes.com/2023/04/11/health/aeds-defibrillator-cardiac-arrest.html?searchResultPosition=8
+
 **Stephen Colbert Isn’t Fazed by the News About Clarence Thomas**\
 `“‘Wow, I can’t believe Clarence Thomas did something inappropriate,’ said a woolly mammoth reanimated after being frozen in the Siberian permafrost,” Colbert joked.`\
-https://nytimes.com/2023/04/11/arts/television/stephen-colbert-clarence-thomas.html?searchResultPosition=1
+https://nytimes.com/2023/04/11/arts/television/stephen-colbert-clarence-thomas.html?searchResultPosition=9
 
 **Word of the Day: insufferable**\
 `This word has appeared in 37 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/04/11/learning/word-of-the-day-insufferable.html?searchResultPosition=2
-
-**Corrections: April 11, 2023**\
-`Corrections that appeared in print on Tuesday, April 11, 2023.`\
-https://nytimes.com/2023/04/11/pageoneplus/corrections-april-11-2023.html?searchResultPosition=3
-
-**Quotation of the Day: Lengthy Prison Sentences For Leading Chinese Activists**\
-`Quotation of the Day for Tuesday, April 11, 2023.`\
-https://nytimes.com/2023/04/11/pageoneplus/quotation-of-the-day-lengthy-prison-sentences-for-leading-chinese-activists.html?searchResultPosition=4
-
-**He’s a Brutal Dictator, and One of the West’s Best Friends**\
-`Paul Kagame has reduced Rwanda to tyranny.`\
-https://nytimes.com/2023/04/11/opinion/paul-kagame-rwanda-britain.html?searchResultPosition=5
-
-**Your Tuesday Briefing**\
-`The investigation into leaked Ukraine war documents.`\
-https://nytimes.com/2023/04/11/briefing/ukraine-documents-migrants-italy.html?searchResultPosition=6
-
-**17 Trees That Planters Hope Will Grow in Brooklyn**\
-`Big oaks and sweetgums have been moved into a former sugar factory, to make it a more inviting space for prospective tenants and their employees.`\
-https://nytimes.com/2023/04/11/nyregion/trees-domino-factory-brooklyn.html?searchResultPosition=7
-
-**Review: ‘White Girl in Danger’ Flips the Script on Soap Operas**\
-`Michael R. Jackson’s wild new musical satire is packed with a thesis’ worth of insight about fate and representation.`\
-https://nytimes.com/2023/04/10/theater/review-white-girl-in-danger.html?searchResultPosition=8
-
-**Mind … blown!**\
-`Taylor Johnson and Jeff Chen take us on a long road trip.`\
-https://nytimes.com/2023/04/10/crosswords/daily-puzzle-2023-04-11.html?searchResultPosition=9
-
-**‘Perry Mason’ Season 2, Episode 6 Recap: The Smoking Gun**\
-`Della shreds a witness in court. The prosecution shreds Perry’s credibility.`\
-https://nytimes.com/2023/04/10/arts/television/perry-mason-recap-season-2-episode-6.html?searchResultPosition=10
+https://nytimes.com/2023/04/11/learning/word-of-the-day-insufferable.html?searchResultPosition=10
 
