@@ -8,7 +8,7 @@ https://nytimes.com/2023/04/11/arts/music/review-champion-blanchard-met-opera.ht
 
 **Gunman Who Killed Five in Louisville Left Note and Bought Rifle Legally**\
 `The police plan to release body camera video on Tuesday afternoon from officers who responded to the shooting at a downtown bank.`\
-https://nytimes.com/2023/04/11/us/gunman-who-killed-five-in-louisville-left-note-bought-rifle-legally.html?searchResultPosition=3
+https://nytimes.com/2023/04/11/us/louisville-shooting-gunman.html?searchResultPosition=3
 
 **Greywind, From Chef Behind Loring Place, Opens Near Hudson Yards**\
 `A spot offering coffee by day and noodles, dumplings and more by night in Long Island City, a lobster-based spinoff from the Seamore’s team, and a return for a fine-dining personality.`\
