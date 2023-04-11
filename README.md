@@ -1,18 +1,18 @@
+**Your Tuesday Evening Briefing**\
+`Here’s what you need to know at the end of the day.`\
+https://nytimes.com/2023/04/11/briefing/colorado-river-usage-imf-global-economy.html?searchResultPosition=1
+
 **From Red Carpet to Doghouse: Macron Returns From China to Allied Dismay**\
 `Criticism of the French president’s performance in Beijing has been scathing among some allies, who saw him as cozying up to Beijing.`\
-https://nytimes.com/2023/04/11/world/europe/macron-china-allies.html?searchResultPosition=1
+https://nytimes.com/2023/04/11/world/europe/macron-china-allies.html?searchResultPosition=2
 
 **Carl Fischer, Who Shot Attention-Getting Esquire Covers, Dies at 98**\
 `Among his most famous photographs was one depicting Muhammad Ali as a martyr stuck full of arrows.`\
-https://nytimes.com/2023/04/11/arts/carl-fischer-dead.html?searchResultPosition=2
+https://nytimes.com/2023/04/11/arts/carl-fischer-dead.html?searchResultPosition=3
 
 **An Online Meme Group Is at the Center of Uproar Over Leaked Military Secrets**\
 `Youth culture and national defense collided in a community known for edgy jokes. The YouTube celebrity it was dedicated to seemed as surprised as anyone.`\
-https://nytimes.com/2023/04/11/business/discord-leaked-military-documents.html?searchResultPosition=3
-
-**Bridging Divides, Most Agree on Economic Outlook: It’s Bleak**\
-`Even if not directly hurt by the coronavirus pandemic, Americans largely expect unemployment and depression to prevail over the next five years.`\
-https://nytimes.com/2020/04/18/business/economy/coronavirus-economy-survey.html?searchResultPosition=4
+https://nytimes.com/2023/04/11/business/discord-leaked-military-documents.html?searchResultPosition=4
 
 **Leadership of Foundation Honoring Justin Trudeau’s Father Quits**\
 `The Pierre Elliott Trudeau Foundation said that accusations of Chinese meddling in its affairs had made it impossible for it to function as before.`\
