@@ -2,13 +2,13 @@
 `Michael R. Jackson’s wild new musical satire is packed with a thesis’ worth of insight about fate and representation.`\
 https://nytimes.com/2023/04/10/theater/review-white-girl-in-danger.html?searchResultPosition=1
 
-**‘Perry Mason’ Season 2, Episode 6 Recap: The Smoking Gun**\
-`Della shreds a witness in court. The prosecution shreds Perry’s credibility.`\
-https://nytimes.com/2023/04/10/arts/television/perry-mason-recap-season-2-episode-6.html?searchResultPosition=2
-
 **Mind … blown!**\
 `Taylor Johnson and Jeff Chen take us on a long road trip.`\
-https://nytimes.com/2023/04/10/crosswords/daily-puzzle-2023-04-11.html?searchResultPosition=3
+https://nytimes.com/2023/04/10/crosswords/daily-puzzle-2023-04-11.html?searchResultPosition=2
+
+**‘Perry Mason’ Season 2, Episode 6 Recap: The Smoking Gun**\
+`Della shreds a witness in court. The prosecution shreds Perry’s credibility.`\
+https://nytimes.com/2023/04/10/arts/television/perry-mason-recap-season-2-episode-6.html?searchResultPosition=3
 
 **For Biden, an Era When Treaties Are More Likely to Be Broken Than Brokered**\
 `The president’s trip to Northern Ireland will mark the 25th anniversary of the Good Friday Agreement, which ended decades of violence. But such breakthroughs are harder to achieve in today’s fractious world.`\
