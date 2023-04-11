@@ -14,13 +14,13 @@ https://nytimes.com/2023/04/11/world/europe/leaked-documents-russia-ukraine.html
 `Party leaders said the choice reflected their momentum in the Midwest. But the political map was only one factor behind the decision.`\
 https://nytimes.com/2023/04/11/us/politics/democratic-national-convention-chicago.html?searchResultPosition=4
 
-**Liberals Have a Blind Spot on Defense**\
-`If you want to fight for freedom, you have to pay for it.`\
-https://nytimes.com/2023/04/11/opinion/military-budget-democrats.html?searchResultPosition=5
-
 **Russia Moves to Make Draft Evasion More Difficult**\
 `A new law would bar anyone called up to fight in Ukraine from leaving the country, among other restrictions, even as the Kremlin insists it is not planning a new conscription.`\
-https://nytimes.com/2023/04/11/world/europe/russia-military-draft-ukraine.html?searchResultPosition=6
+https://nytimes.com/2023/04/11/world/europe/russia-military-draft-ukraine.html?searchResultPosition=5
+
+**Liberals Have a Blind Spot on Defense**\
+`If you want to fight for freedom, you have to pay for it.`\
+https://nytimes.com/2023/04/11/opinion/military-budget-democrats.html?searchResultPosition=6
 
 **Jet-Setting With Clarence Thomas Puts Spotlight on an Eccentric Billionaire**\
 `The justice’s relationship with Harlan Crow has raised questions about whether a friendship can be separated from politics and intensified calls for an ethics code for the justices.`\
