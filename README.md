@@ -1,28 +1,28 @@
+**Ex-Firefighter Who Threw Extinguisher at Police at Capitol Gets Prison**\
+`The retired firefighter, who prosecutors said struck three police officers in the head on Jan. 6, 2021, was sentenced to 52 months behind bars.`\
+https://nytimes.com/2023/04/11/us/ex-firefighter-who-threw-extinguisher-at-police-at-capitol-gets-prison.html?searchResultPosition=1
+
 **Judge’s Ruling Against Abortion Pill Is Filled With Activists’ Language**\
 `The preliminary ruling from Judge Matthew J. Kacsmaryk adopts the terminology of anti-abortion groups, such as “chemical abortion,” “abortionist” and “unborn human.”`\
-https://nytimes.com/2023/04/11/us/abortion-pill-ruling.html?searchResultPosition=4
+https://nytimes.com/2023/04/11/us/abortion-pill-ruling.html?searchResultPosition=5
 
 **U.S. Officials Speak to Ukrainians After Document Leaks**\
 `Defense Secretary Lloyd J. Austin III and Secretary of State Antony J. Blinken talked to their counterparts in Kyiv, but offered little detail on the investigation into the breach.`\
-https://nytimes.com/2023/04/11/us/politics/document-leak-pentagon.html?searchResultPosition=5
+https://nytimes.com/2023/04/11/us/politics/document-leak-pentagon.html?searchResultPosition=6
 
 **An Undemocratic Power Play in Tennessee**\
 `State lawmakers usurped a right that belongs to voters.`\
-https://nytimes.com/2023/04/11/opinion/tennessee-justin-house-expulson.html?searchResultPosition=6
+https://nytimes.com/2023/04/11/opinion/tennessee-justin-house-expulson.html?searchResultPosition=7
 
 **A leaked document outlines four ‘wild card’ scenarios in the Russia-Ukraine conflict.**\
 `The scenarios, as assessed by the Defense Intelligence Agency, include the deaths of Presidents Vladimir V. Putin of Russia and Volodymyr Zelensky of Ukraine.`\
-https://nytimes.com/2023/04/11/world/europe/leaked-documents-russia-ukraine.html?searchResultPosition=7
+https://nytimes.com/2023/04/11/world/europe/leaked-documents-russia-ukraine.html?searchResultPosition=8
 
 **5 Reasons Democrats Picked Chicago for Their 2024 Convention**\
 `Party leaders said the choice reflected their momentum in the Midwest. But the political map was only one factor behind the decision.`\
-https://nytimes.com/2023/04/11/us/politics/democratic-national-convention-chicago.html?searchResultPosition=8
+https://nytimes.com/2023/04/11/us/politics/democratic-national-convention-chicago.html?searchResultPosition=9
 
 **Russia Moves to Make Draft Evasion More Difficult**\
 `A new law would bar anyone called up to fight in Ukraine from leaving the country, among other restrictions, even as the Kremlin insists it is not planning a new conscription.`\
-https://nytimes.com/2023/04/11/world/europe/russia-military-draft-ukraine.html?searchResultPosition=9
-
-**Liberals Have a Blind Spot on Defense**\
-`If you want to fight for freedom, you have to pay for it.`\
-https://nytimes.com/2023/04/11/opinion/military-budget-democrats.html?searchResultPosition=10
+https://nytimes.com/2023/04/11/world/europe/russia-military-draft-ukraine.html?searchResultPosition=10
 
