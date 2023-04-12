@@ -26,8 +26,8 @@ https://nytimes.com/2023/04/12/us/student-textbook-mistake.html?searchResultPosi
 `“Tu nombre verdadero” (“Your Real Name”), which debuts Friday in New York, is a spiritual multimedia performance from the 45-year-old novelist and musician.`\
 https://nytimes.com/2023/04/12/arts/music/rita-indiana-tu-nombre-verdadero.html?searchResultPosition=7
 
-**Expelled Democrat Faces Vote on Returning Him to Tennessee House**\
-`County officials are expected to vote Wednesday on sending Justin J. Pearson back to the state legislature, less than a week after he and a colleague were expelled.`\
+**Second Expelled Democrat Is Sent Back to Tennessee House**\
+`County officials voted Wednesday to return Justin J. Pearson to the state legislature, less than a week after he and a colleague were expelled.`\
 https://nytimes.com/2023/04/12/us/justin-pearson-tennessee-house-vote.html?searchResultPosition=8
 
 **‘Tommy Guns’ Review: A Shape-Shifting Spectacle of Military Life**\
