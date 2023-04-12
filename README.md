@@ -34,7 +34,7 @@ https://nytimes.com/2023/04/12/opinion/recession-credit-supply-demand.html?searc
 `These inexpensive items can still last a lifetime.`\
 https://nytimes.com/interactive/2023/04/12/smarter-living/wirecutter/kitchen-workhorses.html?searchResultPosition=9
 
-**Testing**\
-`This is for testing`\
-https://nytimes.com/slideshow/2023/04/12/afternoonupdate/testing.html?searchResultPosition=10
+**‘Sick of Myself’ Review: When Main Character Syndrome Runs Amok**\
+`From Norway, this smug satire tracks the rise and fall of an attention-seeking young woman who intentionally disfigures herself by taking a sketchy Russian drug.`\
+https://nytimes.com/2023/04/12/movies/sick-of-myself-review.html?searchResultPosition=10
 
