@@ -32,7 +32,7 @@ https://nytimes.com/2023/04/12/upshot/legal-abortions-fell-dobbs.html?searchResu
 
 **Lyndon Johnson Was No Friend of Martin Luther King Jr.**\
 `The president was more of an antagonist to King and conspirator with J. Edgar Hoover than he has been portrayed.`\
-https://nytimes.com/2023/04/12/opinion/lyndon-johnson-was-no-friend-of-martin-luther-king-jr.html?searchResultPosition=9
+https://nytimes.com/2023/04/12/opinion/lyndon-johnson-martin-luther-king-jr.html?searchResultPosition=9
 
 **Gourmet Dog Food Has Pet Owners Sending Kibbles Back**\
 `Dog ownership surged during the pandemic. So did the options for fresh, human-grade dog food, an expanding market.`\
