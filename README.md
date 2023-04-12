@@ -3,7 +3,7 @@
 https://nytimes.com/2023/04/12/business/economy/fed-minutes-rate-increases.html?searchResultPosition=1
 
 **Judge Imposes Sanction on Fox for Withholding Evidence in Defamation Case**\
-`Judge Eric Davis also said an investigation was likely into Fox’s handling of documents and whether it withheld details about Rupert Murdoch’s corporate role.`\
+`Judge Eric Davis also said an investigation was likely into Fox’s handling of documents and whether it had withheld details about Rupert Murdoch’s corporate role.`\
 https://nytimes.com/2023/04/12/business/media/fox-dominion-trial-sanctioned.html?searchResultPosition=2
 
 **Virginia Fifth Grader Is Celebrated for Spotting Textbook’s Error**\
