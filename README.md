@@ -1,4 +1,4 @@
-**Fed Officials in March Wanted to Remain Flexible on Future Rate Increases**\
+**Fed Officials Fretted Bank Turmoil Could Have Serious Economic Consequences**\
 `Minutes from the Federal Reserve’s March 21-22 meeting showed that officials were grappling with how much more to lift borrowing costs.`\
 https://nytimes.com/2023/04/12/business/economy/fed-minutes-rate-increases.html?searchResultPosition=1
 
