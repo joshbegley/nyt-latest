@@ -1,5 +1,5 @@
 **Max Streaming App Aims to Win Viewers by Losing ‘HBO’ From Its Name**\
-`The service, which will debut on May 23, will try to broaden appeal by including reality series like TLC’s “Love and Translation” alongside HBO dramas like “Succession.”`\
+`The service, which will debut on May 23, will try to broaden appeal by including reality series like TLC’s “Love & Translation” alongside HBO dramas like “Succession.”`\
 https://nytimes.com/2023/04/12/business/media/max-warner-new-streaming-app.html?searchResultPosition=1
 
 **‘I’m Comin’ Home’: Biden Takes a Tour of His Irish Heritage**\
