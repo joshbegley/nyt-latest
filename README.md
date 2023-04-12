@@ -6,8 +6,8 @@ https://nytimes.com/2023/04/12/us/justin-pearson-tennessee-house-vote.html?searc
 `Portuguese boys train for service in occupied Angola in Carlos Conceição’s drama, which incorporates elements of a ghost story.`\
 https://nytimes.com/2023/04/12/movies/tommy-guns-review.html?searchResultPosition=2
 
-**The 24-Hour Workday**\
-`The Times Magazine asked nine Americans to keep video diaries to help us explore the new freedoms and burdens of flexible work.`\
+**What Are People Even Doing All Day?**\
+`Now that work is more flexible, see how nine people are using their time in new ways.`\
 https://nytimes.com/interactive/2023/04/12/magazine/flexible-work-remote-jobs.html?searchResultPosition=3
 
 **New York City Welcomes Growing Number of Out-of-State Abortion Patients**\
@@ -26,15 +26,15 @@ https://nytimes.com/2023/04/12/world/artificial-intelligence-nick-bostrom.html?s
 `The map is just one element of the Justice Department’s inquiry into former President Donald Trump’s possession of sensitive documents and whether he obstructed justice in seeking to hold onto them.`\
 https://nytimes.com/2023/04/12/us/politics/trump-map-classified-documents-justice-department.html?searchResultPosition=7
 
-**test-gws-p**\
-``\
-https://nytimes.com/newsgraphics/card-story/test-gws-p?searchResultPosition=8
-
-**test-gws**\
-``\
-https://nytimes.com/newsgraphics/card-story/test-gws?searchResultPosition=9
-
 **The Return of Justin Jones and the White Suit**\
 `The Tennessee lawmaker has become a viral symbol.`\
-https://nytimes.com/2023/04/12/style/justin-jones-tennessee-white-suit.html?searchResultPosition=10
+https://nytimes.com/2023/04/12/style/justin-jones-tennessee-white-suit.html?searchResultPosition=8
+
+**In Chinese Photography, Political Anguish Made Physical**\
+`In an exhibition at the Hirshhorn Museum, conceptual Chinese photographers of the tumultuous ’90s use the human body to document their pain.`\
+https://nytimes.com/2023/04/12/arts/design/chinese-photography-1990s-hirshhorn.html?searchResultPosition=9
+
+**Fire With Toxic Fumes Could Burn for Days in Indiana, Officials Warn**\
+`Residents within a half-mile radius of a plastics recycling plant in Richmond, Ind., were ordered to evacuate after the fire broke out on the 14-acre property on Tuesday.`\
+https://nytimes.com/2023/04/12/us/richmond-indiana-recycling-plant-fire.html?searchResultPosition=10
 
