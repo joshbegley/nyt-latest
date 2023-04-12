@@ -1,5 +1,5 @@
 **Elon Musk Addresses the ‘Painful’ Side of Running Twitter**\
-`In an interview with the BBC interview, the Twitter C.E.O. also talked about bots, blue checks and why he went ahead with the $44 billion acquisition.`\
+`The Twitter C.E.O. also talked about bots, blue checks and why he went ahead with the $44 billion acquisition.`\
 https://nytimes.com/2023/04/12/business/dealbook/elon-musk-addresses-the-painful-side-of-running-twitter.html?searchResultPosition=1
 
 **A Swashbuckling Tale of Mutiny Took Him Where ‘the Soul of Man Dies’**\
