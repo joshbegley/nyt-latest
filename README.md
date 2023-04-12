@@ -1,6 +1,6 @@
 **Superbueno, in the East Village, Wants to Redefine the Agave Bar**\
 `A veteran of the downtown cocktail scene, Ignacio Jimenez will focus on Mexican ingredients and hospitality.`\
-https://nytimes.com/2023/04/12/dining/drinks/suberbueno-east-village-agave-mexican-american-bar.html?searchResultPosition=1
+https://nytimes.com/2023/04/12/dining/drinks/superbueno-east-village-agave-mexican-american-bar.html?searchResultPosition=1
 
 **Alicia C. Shepard, Ombudsman Who Defended NPR in Torture Debate, Dies at 69**\
 `In one of many jobs she held in a diverse journalism career, she dealt with charges that the network was “serving as right-wing apologists for waterboarding.”`\
