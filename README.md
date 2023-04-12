@@ -7,8 +7,8 @@ https://nytimes.com/2023/04/12/theater/jodie-comer-prima-facie-killing-eve.html?
 https://nytimes.com/2023/04/12/realestate/800000-homes-in-idaho-texas-and-oregon.html?searchResultPosition=2
 
 **Elon Musk Addresses the ‘Painful’ Side of Running Twitter**\
-`The Twitter C.E.O. also talked about bots, blue checks and why he went ahead with the $44 billion acquisition.`\
-https://nytimes.com/2023/04/12/business/dealbook/elon-musk-addresses-the-painful-side-of-running-twitter.html?searchResultPosition=3
+`The social network's owner  talks about bots, blue checks and why he went ahead with the $44 billion acquisition.`\
+https://nytimes.com/2023/04/12/business/dealbook/elon-musk-twitter-bbc-interview.html?searchResultPosition=3
 
 **A Swashbuckling Tale of Mutiny Took Him Where ‘the Soul of Man Dies’**\
 `“The Wager,” David Grann’s new book, is as much a rousing adventure as an exploration of the power of narratives to shape our perception of reality.`\
