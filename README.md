@@ -14,27 +14,27 @@ https://nytimes.com/2023/04/12/world/artificial-intelligence-nick-bostrom.html?s
 `The map is just one element of the Justice Department’s inquiry into former President Donald Trump’s possession of sensitive documents and whether he obstructed justice in seeking to hold onto them.`\
 https://nytimes.com/2023/04/12/us/politics/trump-map-classified-documents-justice-department.html?searchResultPosition=4
 
+**test-gws-p**\
+``\
+https://nytimes.com/newsgraphics/card-story/test-gws-p?searchResultPosition=5
+
+**test-gws**\
+``\
+https://nytimes.com/newsgraphics/card-story/test-gws?searchResultPosition=6
+
 **The Return of Justin Jones and the White Suit**\
 `The Tennessee lawmaker has become a viral symbol.`\
-https://nytimes.com/2023/04/12/style/justin-jones-tennessee-white-suit.html?searchResultPosition=5
+https://nytimes.com/2023/04/12/style/justin-jones-tennessee-white-suit.html?searchResultPosition=7
 
 **In Chinese Photography, Political Anguish Made Physical**\
 `In an exhibition at the Hirshhorn Museum, conceptual Chinese photographers of the tumultuous ’90s use the human body to document their pain.`\
-https://nytimes.com/2023/04/12/arts/design/chinese-photography-1990s-hirshhorn.html?searchResultPosition=6
+https://nytimes.com/2023/04/12/arts/design/chinese-photography-1990s-hirshhorn.html?searchResultPosition=8
 
 **Fire With Toxic Fumes Could Burn for Days in Indiana, Officials Warn**\
 `Residents within a half-mile radius of a plastics recycling plant in Richmond, Ind., were ordered to evacuate after the fire broke out on the 14-acre property on Tuesday.`\
-https://nytimes.com/2023/04/12/us/richmond-indiana-recycling-plant-fire.html?searchResultPosition=7
+https://nytimes.com/2023/04/12/us/richmond-indiana-recycling-plant-fire.html?searchResultPosition=9
 
 **Juul Reaches $462 Million Settlement With New York, California and Other States**\
 `The case ends major litigation over claims of marketing e-cigarettes to adolescents, resolving thousands of lawsuits and amounting to billions of dollars in payouts to states, cities and people.`\
-https://nytimes.com/2023/04/12/health/juul-vaping-settlement-new-york-california.html?searchResultPosition=8
-
-**Here’s What Happens Next in the Abortion Pill Case**\
-`If a ruling by a federal judge in Texas is upheld, the decision has the potential to upend the nation’s abortion landscape. Here is what’s at stake and how the case may play out in the courts.`\
-https://nytimes.com/2023/04/12/us/politics/abortion-pill-ruling-explainer.html?searchResultPosition=9
-
-**An Avett Brother Meets a Founding Son: John Quincy Adams**\
-`Bob Crawford is one quarter of the folk-rock band the Avett Brothers. He’s also the host of a new podcast about the sixth president.`\
-https://nytimes.com/2023/04/12/arts/john-quincy-adams-crawford-podcast.html?searchResultPosition=10
+https://nytimes.com/2023/04/12/health/juul-vaping-settlement-new-york-california.html?searchResultPosition=10
 
