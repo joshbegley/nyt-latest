@@ -1,4 +1,4 @@
-**Kwame Brathwaite, 85, Photographer With a Lens on Black Pride, Dies**\
+**Kwame Brathwaite, 85, Photographer With a Lens on Black Pride, Is Dead**\
 `Part of the ‘Black is beautiful’ movement during the civil rights era, he trained his camera on athletes, musicians and models as well as everyday people.`\
 https://nytimes.com/2023/04/12/arts/kwame-brathwaite-dead.html?searchResultPosition=1
 
