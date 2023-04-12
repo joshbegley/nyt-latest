@@ -1,40 +1,40 @@
-**Wildfire in Central New Jersey Forces Evacuations**\
-`The blaze, about 50 miles east of Philadelphia in Manchester Township, had burned 2,500 acres and was 10 percent contained.`\
-https://nytimes.com/2023/04/12/us/new-jersey-wildfire.html?searchResultPosition=1
+**Inside the Pods With ‘Love Is Blind,’ the Reality TV Juggernaut**\
+`As the Netflix series concludes its fourth buzzy, boozy season, its top producers insist that what they see is (mostly) what you get.`\
+https://nytimes.com/2023/04/12/arts/television/love-is-blind-netflix-reality-show.html?searchResultPosition=1
 
-**Large Wildfire Burns in New Jersey**\
-`Residents of Manchester Township, N.J., evacuated as the fire engulfed more than 2,500 acres, according to the state’s forest fire service.`\
-https://nytimes.com/video/us/100000008855059/new-jersey-wildfire.html?searchResultPosition=2
+**Springfield, N.J.: A Homey Place With Relatively Affordable Housing**\
+`In this ‘family-friendly' Union County township just 25 miles from Midtown Manhattan, ‘you’re going to get a little bit more for your money.’`\
+https://nytimes.com/2023/04/12/realestate/springfield-nj-a-homey-place-with-relatively-affordable-housing.html?searchResultPosition=2
 
-**The Young Muslims Challenging Islam’s Status Quo**\
-`A conservative religious movement, spread through social media, has taken hold among Indonesian youth. The government wants to curb its influence.`\
-https://nytimes.com/2023/04/12/world/asia/indonesia-muslim-hijrah-youth.html?searchResultPosition=3
+**Living In ... Springfield, N.J.**\
+`In this ‘family-friendly’ Union County township just 25 miles from Midtown Manhattan, ‘you’re going to get a little bit more for your money.’`\
+https://nytimes.com/slideshow/2023/04/12/realestate/living-in-springfield-nj.html?searchResultPosition=3
 
-**Mass Layoffs and Absentee Bosses Create a Morale Crisis at Meta**\
-`Workers at Facebook’s parent have been increasingly alarmed by job cuts and the company’s direction.`\
-https://nytimes.com/2023/04/12/technology/meta-layoffs-employees-management.html?searchResultPosition=4
+**Why the Pineapple Lily Makes Such a Big Impression**\
+`And no, it’s not because it stinks like rotten meat. (Just for the record, they don’t all have a rancid smell.)`\
+https://nytimes.com/2023/04/12/realestate/pineapple-lily-plant.html?searchResultPosition=4
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/04/12/crosswords/spelling-bee-forum.html?searchResultPosition=5
+**‘Emo Prom’ Was Open to All. No Slow Dancing Required.**\
+`At the event in Brooklyn, hundreds of attendees dressed up, danced and reflected on the resurgence of the pop culture phenomenon.`\
+https://nytimes.com/2023/04/12/style/emo-prom-was-open-to-all-no-slow-dancing-required.html?searchResultPosition=5
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: contains spoilers!`\
-https://nytimes.com/2023/04/12/crosswords/wordle-review-answer-662.html?searchResultPosition=6
+**Why China Could Dominate the Next Big Advance in Batteries**\
+`China is far ahead of the rest of the world in the development of batteries that use sodium, which are starting to compete with ubiquitous lithium power cells.`\
+https://nytimes.com/2023/04/12/business/china-sodium-batteries.html?searchResultPosition=6
 
-**Tipping**\
-`Are you sometimes confused about how much you should tip?`\
-https://nytimes.com/2023/04/12/learning/tipping.html?searchResultPosition=7
+**The Broadway Star Phillipa Soo Sings Her Favorite Pop Song**\
+`In a new revival of “Camelot,” updated by Aaron Sorkin, the actress finds humanity in the legend of King Arthur and Guenevere.`\
+https://nytimes.com/2023/04/12/t-magazine/phillipa-soo-camelot-broadway.html?searchResultPosition=7
 
-**What’s Smudgy, Crinkly and Still Sold in New York? Carbon Paper.**\
-`The author Robert Caro still makes a carbon of every sheet he types. He’s one of a select few customers for the once-ubiquitous office staple.`\
-https://nytimes.com/2023/04/12/nyregion/carbon-paper-robert-caro.html?searchResultPosition=8
+**Legal Abortions Fell by 6 Percent in the Six Months After Dobbs, New Data Shows**\
+`While clinics in some states expanded capacity, bans prevented thousands from getting legal abortions, a major new survey of abortion providers finds.`\
+https://nytimes.com/2023/04/12/upshot/legal-abortions-fell-dobbs.html?searchResultPosition=8
 
-**Word of the Day: chasm**\
-`This word has appeared in 102 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/04/12/learning/word-of-the-day-chasm.html?searchResultPosition=9
+**Lyndon Johnson Was No Friend of Martin Luther King Jr.**\
+`The president was more of an antagonist to King and conspirator with J. Edgar Hoover than he has been portrayed.`\
+https://nytimes.com/2023/04/12/opinion/lyndon-johnson-was-no-friend-of-martin-luther-king-jr.html?searchResultPosition=9
 
-**Bye-Bye, Ya Ya: Giant Panda Is Heading Home to China**\
-`As Ya Ya leaves the Memphis Zoo, some observers have said her patchy fur is sign of mistreatment. A spokesperson said it’s due to a genetic skin condition.`\
-https://nytimes.com/video/world/asia/100000008854961/panda-yaya-memphis-china.html?searchResultPosition=10
+**Gourmet Dog Food Has Pet Owners Sending Kibbles Back**\
+`Dog ownership surged during the pandemic. So did the options for fresh, human-grade dog food, an expanding market.`\
+https://nytimes.com/2023/04/12/business/human-grade-dog-food.html?searchResultPosition=10
 
