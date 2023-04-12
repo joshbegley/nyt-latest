@@ -1,10 +1,10 @@
+**Trump Asks That Trial of Writer’s Suit Accusing Him of Rape Be Delayed**\
+`The author E. Jean Carroll has accused Donald J. Trump of attacking her in a dressing room, and the ex-president complained of pretrial publicity. The case is supposed to begin on April 25.`\
+https://nytimes.com/2023/04/12/nyregion/trump-e-jean-carroll-lawsuit-delay.html?searchResultPosition=1
+
 **A Panda Is Coming Home, and Her Chinese Fans Say It’s About Time**\
 `Ya Ya, who has been at the Memphis Zoo for 20 years, will soon return to China, where a campaign accusing the zoo of mistreating her has resonated on social media.`\
-https://nytimes.com/2023/04/12/world/asia/panda-china-memphis-zoo-ya-ya.html?searchResultPosition=1
-
-**test head last one**\
-`summary test last one`\
-https://nytimes.com/video/jobs/100000007092560/test-head-last-one.html?searchResultPosition=2
+https://nytimes.com/2023/04/12/world/asia/panda-china-memphis-zoo-ya-ya.html?searchResultPosition=2
 
 **NPR to Suspend Twitter Use After ‘Government-Funded’ Label**\
 `The broadcaster said that the label undermined its credibility “by falsely implying that we are not editorially independent.”`\
@@ -30,11 +30,11 @@ https://nytimes.com/2023/04/12/us/stanford-law-free-speech.html?searchResultPosi
 `Eager not to participate in his husband’s junk-food habit, a reader hesitates to draw a line in the sand, stung by memories of disagreements over his spouse’s smoking.`\
 https://nytimes.com/2023/04/12/style/my-husband-is-obese-can-i-refuse-to-buy-him-fattening-snacks.html?searchResultPosition=8
 
-**HEADLINE TEST 2 MOV NV**\
-`summary test mov`\
-https://nytimes.com/video/arts/design/100000007092548/headline-test-2-mov-nv.html?searchResultPosition=9
+**In ‘Prima Facie,’ Jodie Comer Finds Her Light**\
+`The one-woman show, coming to Broadway, is the “Killing Eve” star’s first stage role. She dared herself to do it.`\
+https://nytimes.com/2023/04/12/theater/jodie-comer-prima-facie-killing-eve.html?searchResultPosition=9
 
-**Datacheckingdata**\
-`This is used for checking Mov2hrcaptionsdata`\
-https://nytimes.com/video/afternoonupdate/100000007092542/datachecking.html?searchResultPosition=10
+**$800,000 Homes in Idaho, Texas and Oregon**\
+`A one-bedroom cottage in Hope, a two-family home in Austin and a two-bedroom bungalow in Portland.`\
+https://nytimes.com/2023/04/12/realestate/800000-homes-in-idaho-texas-and-oregon.html?searchResultPosition=10
 
