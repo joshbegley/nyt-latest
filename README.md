@@ -30,11 +30,11 @@ https://nytimes.com/2023/04/13/us/affirmative-action-callout.html?searchResultPo
 `In a furniture store, it’s a chair. In an art gallery, it’s a sculpture. But at International Objects in Brooklyn, it could be either, neither or both.`\
 https://nytimes.com/2023/04/13/arts/design/gallery-bushwick-international-objects.html?searchResultPosition=8
 
+****\
+``\
+https://nytimes.com/video/embedded/admin/100000007092896/mosaic-sample-video-480-by-270-606.html?searchResultPosition=9
+
 **Northern Ireland Shows How Hard It Is to End a Conflict**\
 `Northern Ireland had tremendous economic, political, and geographic advantages — but ending the Troubles still proved extremely difficult.`\
-https://nytimes.com/2023/04/13/world/europe/northern-ireland-peace-deal.html?searchResultPosition=9
-
-**‘Suzume’ Review: Gods, Spells and Instagram Posts**\
-`Makoto Shinkai’s latest animated film, about a girl who accidentally unleashes chaos over Japan, is at once mythical and thoroughly modern.`\
-https://nytimes.com/2023/04/13/movies/suzume-review-makoto-shinkai.html?searchResultPosition=10
+https://nytimes.com/2023/04/13/world/europe/northern-ireland-peace-deal.html?searchResultPosition=10
 
