@@ -4,7 +4,7 @@ https://nytimes.com/2023/04/13/business/media/fox-dominon-judge-davis.html?searc
 
 **Expanding the Witherspoon Television Universe**\
 `“The Last Thing He Told Me” and “Tiny Beautiful Things,” both executive produced by Reese Witherspoon, tell mother-daughter stories in very different ways.`\
-https://nytimes.com/2023/04/13/arts/television/expanding-the-witherspoon-television-universe.html?searchResultPosition=2
+https://nytimes.com/2023/04/13/arts/television/the-last-thing-he-told-me-reese-witherspoon.html?searchResultPosition=2
 
 **‘Rare Objects’ Review: A Woman Under the Influence**\
 `Actors are given a long and generous leash in this sometimes compelling, sometimes tepid drama about mental illness from Katie Holmes.`\
