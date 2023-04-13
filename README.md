@@ -1,5 +1,5 @@
 **The Challenges That Await the New Rat Czar**\
-`A man who wrote a book about rodents says Mayor Eric Adam’s new appointee faces a formidable opponent.`\
+`A man who wrote a book about rodents says Mayor Eric Adams’s new appointee faces a formidable opponent.`\
 https://nytimes.com/2023/04/13/nyregion/the-challenges-that-await-the-new-rat-czar.html?searchResultPosition=1
 
 **Europe’s Juice Mission Will Launch to Jupiter and Its Moons: How to Watch**\
