@@ -1,5 +1,5 @@
 **South Korean Actress Is Found Dead at 26**\
-`Though the cause of her unexpected death was not disclosed, it has renewed concerns about mental health in the country’s highly competitive entertainment industry.`\
+`Though the cause of the unexpected death of Jung Chae-yull was not disclosed, it has renewed concerns about mental health in the country’s highly competitive entertainment industry.`\
 https://nytimes.com/2023/04/13/world/asia/south-korea-jung-chae-yull-dead.html?searchResultPosition=1
 
 **‘Glory to Putin’: How Pro-Russian Narratives Spread in Africa**\
