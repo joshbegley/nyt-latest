@@ -11,7 +11,7 @@ https://nytimes.com/2023/04/13/briefing/fbi-arrest-document-leak-florida-abortio
 https://nytimes.com/2023/04/13/arts/leonard-abrams-dead.html?searchResultPosition=3
 
 **Pierre Lacotte, Choreographer Who Aided a Defection, Dies at 91**\
-`He befriended Rudolf Nureyev in 1961 while the Kirov Ballet was in Paris, and he witnessed Nureyev’s headline-making defection at the height of the Cold War.`\
+`He befriended Rudolf Nureyev in 1961 while the Kirov Ballet was in Paris and witnessed his headline-making defection at the height of the Cold War.`\
 https://nytimes.com/2023/04/13/arts/dance/pierre-lacotte-dead.html?searchResultPosition=4
 
 **It’s a Toddler’s Party. How About a $75,000 Budget?**\
