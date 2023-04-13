@@ -6,7 +6,7 @@ https://nytimes.com/video/us/100000008858238/bob-lee-stabbing-arrest.html?search
 `Here’s what you need to know at the end of the day.`\
 https://nytimes.com/2023/04/13/briefing/fbi-arrest-document-leak-florida-abortion.html?searchResultPosition=2
 
-**Leonard Abrams, Chronicler of the 1980s East Village Art Boom, Dies at 68**\
+**Leonard Abrams, 68, Chronicler of 1980s East Village Art Boom, Dies**\
 `His newspaper, the East Village Eye, was as scrappy and iconoclastic as the young maverick stars its pages brought to life.`\
 https://nytimes.com/2023/04/13/arts/leonard-abrams-dead.html?searchResultPosition=3
 
