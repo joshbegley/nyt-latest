@@ -22,7 +22,7 @@ https://nytimes.com/2023/04/13/realestate/housing-market-near-nyc.html?searchRes
 `Everything you could ever want to know about Operation Golden Orb, a.k.a. the coronation of King Charles III.`\
 https://nytimes.com/interactive/2023/style/king-charles-coronation.html?searchResultPosition=6
 
-**Mary Quant, Fashion Icon and Mother of the Miniskirt, Dies at 93**\
+**Mary Quant, the Mother of the Miniskirt, Dies at 93**\
 `As a designer, clad in her signature playclothes and boots, with huge painted eyes, fake freckles and a distinctive bob, she epitomized the style of London’s Swinging Sixties.`\
 https://nytimes.com/2023/04/13/fashion/mary-quant-dead.html?searchResultPosition=7
 
