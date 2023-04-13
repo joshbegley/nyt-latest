@@ -7,7 +7,7 @@ https://nytimes.com/2023/04/12/pageoneplus/corrections-april-13-2023.html?search
 https://nytimes.com/2023/04/12/pageoneplus/quotation-of-the-day-sexual-abuse-beatings-and-an-untouchable-sheriff.html?searchResultPosition=2
 
 **Romantic Music Genre**\
-`Robin Yu makes her New York Times Crossword debut.`\
+`Robin Yu makes his New York Times Crossword debut.`\
 https://nytimes.com/2023/04/12/crosswords/daily-puzzle-2023-04-13.html?searchResultPosition=3
 
 **Feinstein, Under Pressure to Resign, Asks to Step Down From Judiciary Panel**\
