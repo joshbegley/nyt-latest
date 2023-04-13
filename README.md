@@ -2,7 +2,7 @@
 `A modern gloss on “Hamlet” set at a backyard barbecue remakes the tragedy as a comedy, and as a challenge for today.`\
 https://nytimes.com/2023/04/12/theater/fat-ham-review.html?searchResultPosition=1
 
-**Police Chief Is Charged With Sexually Assaulting a Female Employee**\
+**Police Chief Is Charged With Sexually Assaulting 2 Female Employees**\
 `The assault charges in New Jersey were announced the same day a retired chief in the state was charged with trying to cover up an improper relationship with a subordinate.`\
 https://nytimes.com/2023/04/12/nyregion/police-chiefs-nj-sex-crimes.html?searchResultPosition=2
 
