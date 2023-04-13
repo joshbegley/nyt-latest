@@ -10,7 +10,7 @@ https://nytimes.com/2023/04/12/nyregion/police-chiefs-nj-sex-crimes.html?searchR
 `Shanquella Robinson, 25, of Charlotte, N.C., had traveled last fall to Mexico with six friends. A widely circulated video appears to show her being beaten by another woman.`\
 https://nytimes.com/2023/04/12/us/shanquella-robinson-cabo-fbi-mexico.html?searchResultPosition=3
 
-**Contractors Face Homicide Charges After Worker Crushed by Cinder Blocks**\
+**Contractors Face Homicide Charges After Worker Was Crushed by Cinder Blocks**\
 `Segundo Manuel Huerta Mayancela, an immigrant from Ecuador, died in 2019 as he worked in a Bronx building surrounded by relatives.`\
 https://nytimes.com/2023/04/12/nyregion/bronx-building-collapse-homicide-charges.html?searchResultPosition=4
 
