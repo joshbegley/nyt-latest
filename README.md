@@ -10,7 +10,7 @@ https://nytimes.com/2023/04/13/style/mary-quant-photos.html?searchResultPosition
 `Readers cite stories of their own illness and that of a father and a beloved dog. Also: Long lives of humorists; baseball’s new look; protest songs.`\
 https://nytimes.com/2023/04/13/opinion/letters/aid-in-dying-laws.html?searchResultPosition=3
 
-**Leader of Online Group Where Secret Documents Leaked Is Air National Guardsman**\
+**Here’s what we know about the leader of the online group where secret documents were leaked.**\
 `Federal investigators are searching for the person who shared classified documents that revealed government secrets about the Ukraine war.`\
 https://nytimes.com/2023/04/13/world/documents-leak-leaker-identity.html?searchResultPosition=4
 
