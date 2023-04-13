@@ -6,7 +6,7 @@ https://nytimes.com/2023/04/13/health/abortion-pill-ruling-appeal.html?searchRes
 `The U.S. Fifth Court of Appeals published an order in the abortion pill case.`\
 https://nytimes.com/interactive/2023/04/13/us/abortion-pill-fifth-court-of-appeals.html?searchResultPosition=2
 
-**If Tennessee’s Legislature Looks Broken, It’s Not Alone.**\
+**If Tennessee’s Legislature Looks Broken, It’s Not Alone**\
 `State legislatures around the country — plagued by partisan division, uncompetitive races and gerrymandering — reflect the current pressures on democracy.`\
 https://nytimes.com/2023/04/13/us/tennessee-house-republicans.html?searchResultPosition=3
 
