@@ -1,40 +1,40 @@
-**Listening**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2023/04/13/learning/listening.html?searchResultPosition=1
+**‘Glory to Putin’: How Pro-Russian Narratives Spread in Africa**\
+`Pro-Russian content presenting a distorted version of the war in Ukraine and promoting Russia’s interests in Africa is gaining an audience on the continent.`\
+https://nytimes.com/2023/04/13/world/africa/russia-africa-disinformation.html?searchResultPosition=1
 
-**Court Says Abortion Pill Can Remain Available but Imposes Temporary Restrictions**\
-`The judges blocked the drug from being sent to patients through the mail and rolled back other steps the government had taken to ease access.`\
-https://nytimes.com/2023/04/13/health/abortion-pill-ruling-appeal.html?searchResultPosition=2
+**When Your Boss Is an App**\
+`Gig work has been silently taking over new industries, but not in the way many expected.`\
+https://nytimes.com/2023/04/13/magazine/gig-jobs-apps.html?searchResultPosition=2
 
-**Read the document**\
-`The U.S. Fifth Court of Appeals published an order in the abortion pill case.`\
-https://nytimes.com/interactive/2023/04/13/us/abortion-pill-fifth-court-of-appeals.html?searchResultPosition=3
+**Dour Earnings Loom Over Wall St. as a Slowing Economy Bites**\
+`The outlook for corporate profits has swiftly deteriorated, with inflation still fast and a banking scare prompting some investor caution.`\
+https://nytimes.com/2023/04/13/business/earnings-reports-stock-market.html?searchResultPosition=3
 
-**If Tennessee’s Legislature Looks Broken, It’s Not Alone**\
-`State legislatures around the country — plagued by partisan division, uncompetitive races and gerrymandering — reflect the current pressures on democracy.`\
-https://nytimes.com/2023/04/13/us/tennessee-house-republicans.html?searchResultPosition=4
+**From Self-Taught Designer to Sought-After Couturier**\
+`Esé Azénabor-Grembowski talked about her inspirations for her ornate wedding gowns, opening her second boutique on Madison Avenue and debuting at New York Bridal Fashion Week this month.`\
+https://nytimes.com/2023/04/13/style/ese-azenabor-grembowski-bridal-designer.html?searchResultPosition=4
 
-**Lonely Cry for Action as China Locks Up Japanese Citizens on Spy Charges**\
-`Hideji Suzuki says Japan failed him during his six years in a Chinese prison. China’s recent arrest of a Japanese citizen is again testing Tokyo’s resolve.`\
-https://nytimes.com/2023/04/13/world/asia/china-japan-spying-espionage.html?searchResultPosition=5
+**Trump to Face Questioning Thursday in N.Y. Attorney General’s Lawsuit**\
+`Letitia James, the attorney general, has sued Donald J. Trump and three of his children, accusing them of a “staggering” fraud.`\
+https://nytimes.com/2023/04/13/nyregion/trump-letitia-james-deposition.html?searchResultPosition=5
 
-**Landmark Trial Against Fox News Could Affect the Future of Libel Law**\
-`Jury selection starts on Thursday in Delaware Superior Court, where the proceedings will tackle misinformation and the limits of journalistic responsibility.`\
-https://nytimes.com/2023/04/13/business/media/fox-dominion-libel-trial.html?searchResultPosition=6
+**As the Office Market Craters, Support for Penn Station Plan Evaporates**\
+`Several lawmakers have withdrawn their support for the state’s project in Midtown Manhattan as new developers rush to offer alternatives for remaking the transit hub.`\
+https://nytimes.com/2023/04/13/nyregion/midtown-offices-penn-station.html?searchResultPosition=6
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/04/13/crosswords/spelling-bee-forum.html?searchResultPosition=7
+**How Janelle Jones’s Story About Black Women and the Economy Caught On**\
+`The first Black woman to serve as chief economist at the Labor Department advanced the idea that lifting up people on the margins helps everyone else, too.`\
+https://nytimes.com/2023/04/13/business/economy-black-women-labor-union-janelle-jones.html?searchResultPosition=7
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: contains spoilers!`\
-https://nytimes.com/2023/04/13/crosswords/wordle-review-answer-663.html?searchResultPosition=8
+**Michael Jordan Was an Activist After All**\
+`Jordan wasn’t vocal about social justice like today’s N.B.A. stars, but his secret brand of activism is a key reason they have the spotlight now, our columnist writes.`\
+https://nytimes.com/2023/04/13/sports/basketball/michael-jordan-retirement-activism.html?searchResultPosition=8
 
-**Jimmy Kimmel Skewers Trump for Tucker Carlson Interview**\
-`Kimmel called the interview “a 45-minute blabfest,” saying it made “one thing very clear: the fact that Donald Trump is a profoundly stupid person.”`\
-https://nytimes.com/2023/04/13/arts/television/jimmy-kimmel-trump-tucker-carlson.html?searchResultPosition=9
+**Who Is Alvin Bragg, the D.A. Leading the Prosecution of Trump?**\
+`The Manhattan district attorney finds himself in the eye of the storm after an investigation by his office led to the indictment of former President Donald J. Trump.`\
+https://nytimes.com/2023/04/13/nyregion/alvin-bragg-manhattan-da-trump.html?searchResultPosition=9
 
-**Word of the Day: nostalgic**\
-`This word has appeared in 333 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/04/13/learning/word-of-the-day-nostalgic.html?searchResultPosition=10
+**Mets Enjoy the Comforts of Home**\
+`A win over San Diego on Wednesday gave the team back-to-back series victories in its first homestand of the season, rebounding from a sweep. Now, it’s back on the road again.`\
+https://nytimes.com/2023/04/13/sports/baseball/mets-homestand-padres.html?searchResultPosition=10
 
