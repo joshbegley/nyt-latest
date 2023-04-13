@@ -10,8 +10,8 @@ https://nytimes.com/2023/04/13/us/politics/clarence-thomas-harlan-crow-real-esta
 `His nephew reported that someone was trying to break in to the apartment. When officers arrived, the man pulled a gun on them, authorities said.`\
 https://nytimes.com/2023/04/13/nyregion/nypd-officer-shooting-burglary.html?searchResultPosition=3
 
-**The Young Gamers Who Shook the Intelligence World**\
-`They liked online war games. But Airman Jack Teixeira wanted them to learn about real war. So, they say, he began showing them classified documents.`\
+**The Airman Who Wanted to Give Gamers a Real Taste of War**\
+`The group liked online war games. But then Airman Jack Teixeira, members say, began showing them classified documents.`\
 https://nytimes.com/2023/04/13/world/europe/jake-teixeira-pentagon-leak.html?searchResultPosition=4
 
 **LinkedIn’s Co-Founder Helped Fund the Suit Accusing Trump of Rape**\
