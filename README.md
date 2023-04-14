@@ -1,5 +1,5 @@
 **Teixeira’s case is unusual even in the small world of leak cases.**\
-`Based on the charging documents, Airman Jack Teixeira does not appear to have been acting as a foreign agent, differentiating him from classic spying cases. He also does not appear to have been acting as a whistle-blower`\
+`Based on the charging documents, Airman Jack Teixeira does not appear to have been acting as a foreign agent, differentiating him from classic spying cases. He also does not appear to have been acting as a whistle-blower.`\
 https://nytimes.com/2023/04/14/us/politics/jack-teixeira-leaked-documents-case.html?searchResultPosition=1
 
 **An Uptown Cat Became a Chinese Artist. Then He Returned Home.**\
@@ -11,7 +11,7 @@ https://nytimes.com/2023/04/14/arts/payano-china-artist.html?searchResultPositio
 https://nytimes.com/2023/04/14/arts/dance/review-gregory-maqoma-cion-joyce-theater.html?searchResultPosition=3
 
 **Tech Executive Was Left to ‘Slowly Die’ After Stabbing, Prosecutors Say**\
-`Bob Lee was stabbed three times on a dark San Francisco street. Prosecutors said the assailant appeared to have personal motives.`\
+`Bob Lee was stabbed three times on a dark San Francisco street after what appeared to be an argument over a personal relationship, prosecutors said in court documents.`\
 https://nytimes.com/2023/04/14/us/bob-lee-stabbing-nima-momeni.html?searchResultPosition=4
 
 **Keith Johnstone, Champion of Improvisational Theater, Dies at 90**\
