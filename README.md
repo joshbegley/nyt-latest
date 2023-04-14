@@ -30,11 +30,11 @@ https://nytimes.com/2023/04/14/opinion/dollar-reserve-currency.html?searchResult
 `The charges, in five related cases, offered a panoramic view of how the deadly drug was created, transported and ultimately sold by the Sinaloa cartel on American streets.`\
 https://nytimes.com/2023/04/14/us/politics/el-chapo-sons-fentanyl-charges.html?searchResultPosition=8
 
-**Supreme Court Endorses Streamlined Challenges to Agency Power**\
-`In a unanimous decision, the justices ruled that people and companies need not wait for administrative rulings to press constitutional claims in federal court.`\
-https://nytimes.com/2023/04/14/us/supreme-court-administrative-state.html?searchResultPosition=9
+**It’s Hot in Florida, Again.**\
+`Tonya Greene did not wear her favorite sweater this year. She did not wear her favorite boots. The reason? Unrelenting heat.`\
+https://nytimes.com/2023/04/14/us/its-hot-in-florida-again.html?searchResultPosition=9
 
-**Dallas Mavericks Fined $750,000 for ‘Desire to Lose’ a Game**\
-`The N.B.A. fined the team for resting players and making statements that indicated it did not want to win against the Chicago Bulls this month.`\
-https://nytimes.com/2023/04/14/sports/basketball/dallas-mavericks-fined.html?searchResultPosition=10
+**How to Make Perfect Pancakes**\
+`Here is how to make perfect pancakes:`\
+https://nytimes.com/2023/04/14/us/how-to-make-perfect-pancakes.html?searchResultPosition=10
 
