@@ -22,19 +22,19 @@ https://nytimes.com/2023/04/14/sports/football/dan-snyder-washington-commanders-
 `In a recent Webb telescope image, astronomers simultaneously captured three moments during an ancient supernova explosion marking the death of a star.`\
 https://nytimes.com/interactive/2023/04/14/science/supernova-explosion-webb.html?searchResultPosition=6
 
-****\
-``\
-https://nytimes.com/video/embedded/admin/100000007093224/mosaic-sample-video-480-by-270-632.html?searchResultPosition=7
-
-****\
-``\
-https://nytimes.com/video/embedded/admin/100000007093222/mosaic-sample-video-480-by-270-708.html?searchResultPosition=8
-
 **DeSantis Attempts to Woo Young Evangelicals**\
 `The Florida governor pitched himself as a defender of traditional values to students at Liberty University, an important stage for Republican presidential hopefuls.`\
-https://nytimes.com/2023/04/14/us/desantis-evangelicals-2024-election.html?searchResultPosition=9
+https://nytimes.com/2023/04/14/us/desantis-evangelicals-2024-election.html?searchResultPosition=7
 
 **Lucinda Williams Tells Her Secrets**\
 `The singer-songwriter reveals herself in a memoir that captures her adventures with charming rogues, puzzled music executives and her own demons.`\
-https://nytimes.com/2023/04/14/style/lucinda-williams-memoir.html?searchResultPosition=10
+https://nytimes.com/2023/04/14/style/lucinda-williams-memoir.html?searchResultPosition=8
+
+**Core of Macron’s Pension Plan Clears Key Legal Test as Protesters Fume**\
+`A constitutional council reviewing President Emmanuel Macron’s law upheld an increase in the retirement age, but struck down some sections. Anger over the plan remains high.`\
+https://nytimes.com/2023/04/14/world/europe/macron-pension-retirement-ruling.html?searchResultPosition=9
+
+**Building Better Buildings**\
+`Homes and offices have huge climate footprints. There are many ways to fix that.`\
+https://nytimes.com/2023/04/14/climate/passive-house-climate.html?searchResultPosition=10
 
