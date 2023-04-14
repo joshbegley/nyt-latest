@@ -3,8 +3,8 @@
 https://nytimes.com/2023/04/14/sports/soccer/brighton-chelsea-premier-league.html?searchResultPosition=1
 
 **Russia’s ambassador says the U.S. threatened ‘retaliatory measures’ unless a jailed reporter is released.**\
-`By Ivan Nechepurenko`\
-https://nytimes.com/2023/04/14/world/europe/russias-ambassador-says-the-us-threatened-retaliatory-measures-unless-a-jailed-reporter-is-released.html?searchResultPosition=2
+`American officials and The Wall Street Journal have vehemently denied the accusation that Evan Gershkovich was engaged in any kind of spying activity.`\
+https://nytimes.com/2023/04/14/world/europe/russia-gershkovich-ambassador.html?searchResultPosition=2
 
 **Will Abortion Kill the Filibuster?**\
 `Courts don’t make laws. Congress does.`\
