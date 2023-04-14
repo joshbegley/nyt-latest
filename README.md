@@ -7,7 +7,7 @@ https://nytimes.com/2023/04/14/podcasts/bitcoin-mining-beef.html?searchResultPos
 https://nytimes.com/2023/04/14/business/dealbook/what-bank-earnings-reveal-about-the-health-of-the-economy.html?searchResultPosition=2
 
 **Biggest U.S. Banks Report Bumper Profits Amid Industry Turmoil**\
-`JPMorgan Chase, Wells Fargo and PNC Financial comfortably beat expectations for earnings in the first quarter, when the failures of smaller banks sent jitters throughout the sector.`\
+`JPMorgan Chase, Wells Fargo, Citigroup and PNC Financial comfortably beat expectations for earnings in the first quarter, when the failures of smaller banks sent jitters throughout the sector.`\
 https://nytimes.com/2023/04/14/business/jpmorgan-citi-wells-fargo-earnings.html?searchResultPosition=3
 
 **Your Guides to the World of Fairies and to the Multiverse**\
