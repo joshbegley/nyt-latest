@@ -1,4 +1,4 @@
-**Tech Executive Was Left ‘to Slowly Die’ After Stabbing, Prosecutors Say**\
+**Tech Executive Was Left to ‘Slowly Die’ After Stabbing, Prosecutors Say**\
 `Bob Lee was stabbed three times on a dark San Francisco street. Prosecutors said the assailant appeared to have personal motives.`\
 https://nytimes.com/2023/04/14/us/bob-lee-stabbing-nima-momeni.html?searchResultPosition=1
 
