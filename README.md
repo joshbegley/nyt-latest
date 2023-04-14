@@ -7,7 +7,7 @@ https://nytimes.com/2023/04/14/science/bird-flu-humans.html?searchResultPosition
 https://nytimes.com/2023/04/14/world/ukraine-strike-sloviansk-toddler.html?searchResultPosition=2
 
 **Mike Pompeo Says He Won’t Run for President in 2024**\
-`“This isn’t our moment,” said Mr. Pompeo, referring to himself and his wife, as he announced that he would not seek the Republican nomination for president.`\
+`“This isn’t our moment,” said Mr. Pompeo, a former Trump administration official. But he declined to endorse the former president and obliquely criticized him.`\
 https://nytimes.com/2023/04/14/us/politics/mike-pompeo-president-2024.html?searchResultPosition=3
 
 **Strep Is on the Rise. Here’s How to Minimize Your Risk.**\
