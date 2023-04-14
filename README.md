@@ -12,7 +12,7 @@ https://nytimes.com/2023/04/14/business/jpmorgan-citi-wells-fargo-earnings.html?
 
 **Your Guides to the World of Fairies and to the Multiverse**\
 `New science-fiction and fantasy novels from Heather Fawcett, Moses Ose Utomi and M.R. Carey.`\
-https://nytimes.com/2023/04/14/books/review/fawcett-utomi-carey.html?searchResultPosition=4
+https://nytimes.com/2023/04/14/books/review/science-fiction-fantasy-books-fawcett-utomi-carey.html?searchResultPosition=4
 
 **The Secret Behind the Premier League’s Smartest Team**\
 `Brighton has risen into the top half of the league with smart signings, contingency plans and a spreadsheet that sees the future.`\
