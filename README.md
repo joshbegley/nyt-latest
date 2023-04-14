@@ -23,7 +23,7 @@ https://nytimes.com/2023/04/13/us/politics/clarence-thomas-harlan-crow-real-esta
 https://nytimes.com/2023/04/13/nyregion/nypd-officer-shooting-burglary.html?searchResultPosition=6
 
 **The Airman Who Wanted to Give Gamers a Real Taste of War**\
-`The group liked online war games. But then Airman Jack Teixeira, members say, began showing them classified documents.`\
+`The group liked online war games. But then Jack Teixeira, an active-duty airman, began showing them classified documents, members say.`\
 https://nytimes.com/2023/04/13/world/europe/jake-teixeira-pentagon-leak.html?searchResultPosition=7
 
 **LinkedIn’s Co-Founder Helped Fund the Suit Accusing Trump of Rape**\
