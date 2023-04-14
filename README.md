@@ -8,7 +8,7 @@ https://nytimes.com/2023/04/14/movies/the-popes-exorcist-review.html?searchResul
 
 **Read the criminal complaint against Jack Teixeira**\
 `Mr. Teixeira, a 21-year-old member of the Massachusetts Air National Guard, is facing two counts related to the leaking of hundreds of classified documents on a gaming chat server.`\
-https://nytimes.com/interactive/2023/04/14/us/texiera-docs.html?searchResultPosition=3
+https://nytimes.com/interactive/2023/04/14/us/teixeira-docs.html?searchResultPosition=3
 
 **‘Barry’ by Bullet Point: What to Remember Before Season 4 Begins**\
 `Is there still time for Barry to find redemption? He has one season left to figure it out. Here’s where the show left off at the end of Season 3.`\
