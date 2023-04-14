@@ -1,6 +1,6 @@
 **Biggest U.S. Banks Report Bumper Profts Amid Industry Turmoil**\
 `JPMorgan Chase, Wells Fargo and PNC Financial comfortably beat expectations for earnings in the first quarter, when the failures of smaller banks sent jitters throughout the sector.`\
-https://nytimes.com/2023/04/14/business/jpmorgan-chase-wells-fargo-earnings.html?searchResultPosition=1
+https://nytimes.com/2023/04/14/business/jpmorgan-citi-wells-fargo-earnings.html?searchResultPosition=1
 
 **Your Guides to the World of Fairies and to the Multiverse**\
 `New science-fiction and fantasy novels from Heather Fawcett, Moses Ose Utomi and M.R. Carey.`\
