@@ -1,4 +1,4 @@
-**Biggest U.S. Banks Report Bumper Profts Amid Industry Turmoil**\
+**Biggest U.S. Banks Report Bumper Profits Amid Industry Turmoil**\
 `JPMorgan Chase, Wells Fargo and PNC Financial comfortably beat expectations for earnings in the first quarter, when the failures of smaller banks sent jitters throughout the sector.`\
 https://nytimes.com/2023/04/14/business/jpmorgan-citi-wells-fargo-earnings.html?searchResultPosition=1
 
