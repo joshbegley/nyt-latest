@@ -28,7 +28,7 @@ https://nytimes.com/2023/04/13/nyregion/nypd-officer-shooting-burglary.html?sear
 
 **The Airman Who Wanted to Give Gamers a Real Taste of War**\
 `The group liked online war games. But then Jack Teixeira, an active-duty airman, began showing them classified documents, members say.`\
-https://nytimes.com/2023/04/13/world/europe/jake-teixeira-pentagon-leak.html?searchResultPosition=8
+https://nytimes.com/2023/04/13/world/europe/jack-teixeira-pentagon-leak.html?searchResultPosition=8
 
 **LinkedIn’s Co-Founder Helped Fund the Suit Accusing Trump of Rape**\
 `Reid Hoffman, a billionaire and critic of Donald J. Trump, is backing E. Jean Carroll’s suit against the former president.`\
