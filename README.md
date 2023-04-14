@@ -1,32 +1,32 @@
+**Hochul Paid $2 Million for Outside Help on State of the State Speeches**\
+`Gov. Kathy Hochul hired two big consulting firms as well as outside ghostwriters to help her prepare the annual addresses.`\
+https://nytimes.com/2023/04/14/nyregion/hochul-consultants-state-of-state.html?searchResultPosition=1
+
 **Tech Leaders Blamed San Francisco for Bob Lee’s Killing. Then Came the Arrest.**\
 `Some influential tech executives said Mr. Lee’s death reflected a city overrun by crime, but few have reversed course since the arrest of a man who knew the victim.`\
-https://nytimes.com/2023/04/14/business/bob-lee-tech-reaction-san-francisco.html?searchResultPosition=3
+https://nytimes.com/2023/04/14/business/bob-lee-tech-reaction-san-francisco.html?searchResultPosition=4
 
 **Airman Charged in Leak of Classified Documents**\
 `Jack Teixeira, 21, was granted a top-secret security clearance in 2021, which was required for his job, the Justice Department complaint said.`\
-https://nytimes.com/2023/04/14/us/politics/jack-teixeira-classified-documents-leak.html?searchResultPosition=4
+https://nytimes.com/2023/04/14/us/politics/jack-teixeira-classified-documents-leak.html?searchResultPosition=5
 
 **Bird Flu Sample from Chilean Man Showed Some Signs of Adaptation to Mammals**\
 `These changes were unlikely to be enough to allow the virus to spread easily among humans, and the health risk to the public remains low, experts said.`\
-https://nytimes.com/2023/04/14/science/bird-flu-humans.html?searchResultPosition=5
+https://nytimes.com/2023/04/14/science/bird-flu-humans.html?searchResultPosition=6
 
 **A Ukrainian toddler was pulled from the rubble after a missile strike, but he did not survive.**\
 `The 2-year-old boy and at least seven other people were killed after a Russian attack in Sloviansk, Ukrainian officials said. His father is believed to still be trapped in the carnage.`\
-https://nytimes.com/2023/04/14/world/ukraine-strike-sloviansk-toddler.html?searchResultPosition=6
+https://nytimes.com/2023/04/14/world/ukraine-strike-sloviansk-toddler.html?searchResultPosition=7
 
 **Mike Pompeo Says He Won’t Run for President in 2024**\
 `“This isn’t our moment,” said Mr. Pompeo, a former Trump administration official. But he declined to endorse the former president and obliquely criticized him.`\
-https://nytimes.com/2023/04/14/us/politics/mike-pompeo-president-2024.html?searchResultPosition=7
+https://nytimes.com/2023/04/14/us/politics/mike-pompeo-president-2024.html?searchResultPosition=8
 
 **Strep Is on the Rise. Here’s How to Minimize Your Risk.**\
 `Strep throat is typically not considered dangerous, but it can be excruciating.`\
-https://nytimes.com/2023/04/14/well/live/strep-throat-symptoms-tests.html?searchResultPosition=8
+https://nytimes.com/2023/04/14/well/live/strep-throat-symptoms-tests.html?searchResultPosition=9
 
 **35 Ways Real People Are Using A.I. Right Now**\
 `Artificial intelligence models have found their way into many people’s lives, for work and for fun.`\
-https://nytimes.com/interactive/2023/04/14/upshot/up-ai-uses.html?searchResultPosition=9
-
-**N.B.A. Suspends Miles Bridges for 30 Games for Domestic Violence**\
-`Bridges pleaded no contest to felony domestic violence in November. He was accused of assaulting the mother of his children.`\
-https://nytimes.com/2023/04/14/sports/basketball/miles-bridges-suspended-domestic-violence-charlotte-hornets.html?searchResultPosition=10
+https://nytimes.com/interactive/2023/04/14/upshot/up-ai-uses.html?searchResultPosition=10
 
