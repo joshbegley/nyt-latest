@@ -2,8 +2,8 @@
 `Make it a time of personal inventory, of looking back and taking account.`\
 https://nytimes.com/2023/04/15/briefing/surviving-tax-day.html?searchResultPosition=1
 
-**Rescuers Search Rubble in Eastern Ukraine as Death Toll From Russian Strike Climbs to Nine**\
-`Russia sent a barrage of missiles into residential areas of the city of Sloviansk on Friday, according to Ukrainian officials.`\
+**Death Toll From Russian Attack in Eastern Ukraine Climbs to 9**\
+`Rescuers were searching through rubble a day after Ukrainian officials said Russia sent a barrage of missiles into residential areas of the city of Sloviansk.`\
 https://nytimes.com/2023/04/15/world/europe/ukraine-russia-war-sloviansk.html?searchResultPosition=2
 
 **We Want to Hear From Canada Letter Readers**\
