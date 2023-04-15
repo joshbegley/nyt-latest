@@ -1,40 +1,40 @@
+**1 Dead and Nearly 100 Sickened in Fungal Outbreak at Paper Mill**\
+`Local and federal investigators are investigating the source of a rare outbreak of blastomycosis at a paper mill in Escanaba, Mich.`\
+https://nytimes.com/2023/04/15/us/michigan-mill-blastomycosis-fungus.html?searchResultPosition=1
+
 **A Tiny Number of Shoplifters Commit Thousands of New York City Thefts**\
 `Nearly a third of all shoplifting arrests in the city last year involved just 327 people, the police said. Businesses say they have little defense.`\
-https://nytimes.com/2023/04/15/nyregion/shoplifting-arrests-nyc.html?searchResultPosition=1
+https://nytimes.com/2023/04/15/nyregion/shoplifting-arrests-nyc.html?searchResultPosition=2
 
 **Who is General Hamdan, the leader of the Rapid Support Forces?**\
 `A former camel trader who led a militia accused of genocidal violence in Darfur, Lt. Gen. Mohamed Hamdan, widely known as Hemeti, leads the Rapid Support Forces paramilitary unit.`\
-https://nytimes.com/2023/04/15/world/africa/hamdan-hemeti-sudan-rsf.html?searchResultPosition=2
+https://nytimes.com/2023/04/15/world/africa/hamdan-hemeti-sudan-rsf.html?searchResultPosition=3
 
 **Brian Cox’s Style Comes Alive Off Screen**\
 `The actor’s happy presence was a breath of fresh air after all the power-suiting we normally associate with his image.`\
-https://nytimes.com/2023/04/15/style/brian-cox-style.html?searchResultPosition=3
+https://nytimes.com/2023/04/15/style/brian-cox-style.html?searchResultPosition=4
 
 **The Phantom of the Opera Is Here, Inside The Times**\
 `As Broadway’s longest-running show headed to a close on Sunday after more than 35 years, New York Times employees shared their memories.`\
-https://nytimes.com/2023/04/15/insider/the-phantom-of-the-opera-employees.html?searchResultPosition=4
+https://nytimes.com/2023/04/15/insider/the-phantom-of-the-opera-employees.html?searchResultPosition=5
 
 **In High School, Airman Charged With Leak Was Focused on the Military**\
 `Jack Teixeira grew up in a family with strong military ties, was quiet and somewhat awkward in high school and seemed, to some, unnervingly obsessed with war and guns.`\
-https://nytimes.com/2023/04/15/us/jack-teixeira-pentagon-leak.html?searchResultPosition=5
+https://nytimes.com/2023/04/15/us/jack-teixeira-pentagon-leak.html?searchResultPosition=6
 
 **Rutgers University Faculty Members Suspend Strike**\
 `With progress made on pay increases and job security, classes are expected to resume on Monday, officials said.`\
-https://nytimes.com/2023/04/15/nyregion/rutgers-strike-suspended.html?searchResultPosition=6
+https://nytimes.com/2023/04/15/nyregion/rutgers-strike-suspended.html?searchResultPosition=7
 
 **A Justice in Trouble**\
 `Remembering a low moment for the high court.`\
-https://nytimes.com/2023/04/15/opinion/supreme-court-impeachment-samuel-chase.html?searchResultPosition=7
+https://nytimes.com/2023/04/15/opinion/supreme-court-impeachment-samuel-chase.html?searchResultPosition=8
 
 **Deadly Clashes Erupt in Sudan’s Capital**\
 `Fighting between the Sudanese Army and a powerful paramilitary group broke out in Khartoum, Sudan, after months of rising tensions.`\
-https://nytimes.com/video/world/africa/100000008860584/sudan-khartoum-clashes.html?searchResultPosition=8
+https://nytimes.com/video/world/africa/100000008860584/sudan-khartoum-clashes.html?searchResultPosition=9
 
 **Who is Gen. Abdel Fattah al-Burhan, the head of Sudan’s military?**\
 `Little known before 2019, he rose to power in the aftermath of the military-led coup that ousted Omar Hassan al-Bashir, the longtime leader who was deposed after popular uprisings.`\
-https://nytimes.com/2023/04/15/world/africa/sudan-military-abdel-fattah-al-burhan.html?searchResultPosition=9
-
-**Boy’s Suicide in Poland Spurs Backlash Against State Media Tactics**\
-`A public radio station in the city of Szczecin is under fire for helping to identify a 15-year-old sex abuse victim, the son of a local opposition politician, who later killed himself.`\
-https://nytimes.com/2023/04/15/world/europe/poland-suicide-radio-szczecin.html?searchResultPosition=10
+https://nytimes.com/2023/04/15/world/africa/sudan-military-abdel-fattah-al-burhan.html?searchResultPosition=10
 
