@@ -1,5 +1,5 @@
 **What the Boston Marathon Finish Line Means Now**\
-`Ten years after the Boston Marathon bombing, the finish line of one of the world’s oldest and most prestigious events holds even stronger significance.`\
+`Ten years after the Boston Marathon bombing, the finish line of one of the world’s oldest and most prestigious events holds even stronger significance, especially for those who were there.`\
 https://nytimes.com/interactive/2023/04/15/sports/boston-marathon-bombing-finish.html?searchResultPosition=1
 
 **Corrections: April 15, 2023**\
