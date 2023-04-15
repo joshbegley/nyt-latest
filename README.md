@@ -1,5 +1,5 @@
 **Japan’s Prime Minister Safely Evacuated After Blast**\
-`Prime Minister Fumio Kishida was about to give a speech in the western Japanese city of Wakayama when a loud explosion was heard.`\
+`Prime Minister Fumio Kishida was about to give a campaign speech in the western Japanese city of Wakayama when a loud explosion was heard.`\
 https://nytimes.com/2023/04/14/world/asia/japan-prime-minister-blast-fumio-kishida.html?searchResultPosition=1
 
 **Quotation of the Day: Surviving the Meltdown and a Russian Invasion**\
