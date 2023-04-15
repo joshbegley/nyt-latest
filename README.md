@@ -1,40 +1,40 @@
-**Fighting Erupts in Sudan’s Capital**\
-`Residents reported clashes between the army and a powerful paramilitary group across the city, after weeks of mounting tensions between military leaders.`\
-https://nytimes.com/2023/04/15/world/africa/khartoum-sudan-fighting.html?searchResultPosition=1
+**At Christianity’s Holiest Site, Rival Monks Struggle to Turn Other Cheek**\
+`At the Church of the Holy Sepulcher in Jerusalem, on the site where Jesus is believed to have been crucified and resurrected, a centuries-long real estate spat tends to flare up at Orthodox Easter.`\
+https://nytimes.com/2023/04/15/world/middleeast/orthodox-easter-holy-sepulcher.html?searchResultPosition=1
 
-**Religious Pop Star Singing of ‘God and Faith’ Wins Over Secular Israel**\
-`The songs of Ishay Ribo, who was raised in a settlement on the West Bank, are a staple of Israeli radio. He is part of a wave of singers from religious backgrounds who are also gaining a wider audience.`\
-https://nytimes.com/2023/04/15/world/middleeast/israel-music-ishay-ribo.html?searchResultPosition=2
+**‘The Tale of Genji’ Is More Than 1,000 Years Old. What Explains Its Lasting Appeal?**\
+`The book is often described as the world’s first novel and a touchstone of Japanese literature. But some of its themes, including its take on gender and power, have echoed over centuries.`\
+https://nytimes.com/2023/04/15/books/tale-of-genji-japan-women.html?searchResultPosition=2
 
-**New Jersey Environmental Agency Accuses Itself of Harming Bird Habitats**\
-`A construction project meant to improve conditions for the American woodcock has worsened them for the barred owl and the red-shouldered hawk.`\
-https://nytimes.com/2023/04/15/nyregion/new-jersey-destroyed-bird-habitat.html?searchResultPosition=3
+**For Former Friend of Boston Marathon Bomber, a Burden of Shame and Betrayal**\
+`Ten years after the attack that killed three people and injured hundreds, Youssef Eddafali still wrestles with guilt and anger over the “monster” he thought he knew.`\
+https://nytimes.com/2023/04/15/us/friend-boston-marathon-bomber.html?searchResultPosition=3
 
-**The College Data You Probably Can’t Find, but Definitely Need**\
-`Fed up with the lack of clear college pricing and other data, these parents hacked the information they needed into usable tools and guides.`\
-https://nytimes.com/2023/04/15/your-money/college-cost-data-tools.html?searchResultPosition=4
+**Why China’s Leader Hasn’t Called the President of Ukraine**\
+`China had been Ukraine’s top trade partner, importing barley, corn and arms. Now, Russia’s war raises the question: Is there still a relationship?`\
+https://nytimes.com/2023/04/15/world/asia/why-chinas-leader-hasnt-called-the-president-of-ukraine.html?searchResultPosition=4
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/04/15/crosswords/spelling-bee-forum.html?searchResultPosition=5
+**The Hard-Fought Journey From East Africa to an Award-Winning Detroit Restaurant**\
+`Hamissi Mamba, a refugee from Burundi, knew little of American culture when he arrived eight years ago and learned English watching the “Peppa Pig” cartoon. But he opened his dream restaurant, and the accolades have rolled in.`\
+https://nytimes.com/2023/04/15/dining/baobab-fare-restaurant-detroit.html?searchResultPosition=5
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/04/15/crosswords/wordle-review-answer-665.html?searchResultPosition=6
+**The End of Faking It in Silicon Valley**\
+`Recent charges, convictions and sentences all indicate that the start-up world’s habit of playing fast and loose with the truth actually has consequences.`\
+https://nytimes.com/2023/04/15/business/silicon-valley-fraud.html?searchResultPosition=6
 
-**What the Boston Marathon Finish Line Means Now**\
-`Ten years after the Boston Marathon bombing, the blue and yellow finish line of one of the world’s oldest and most prestigious events holds even stronger significance.`\
-https://nytimes.com/interactive/2023/04/15/sports/boston-marathon-bombing-finish.html?searchResultPosition=7
+**Is Public Television the Israeli Government’s Next Target?**\
+`Kan, a multimedia network of news, prestige TV and niche language radio, is prepared to fight for its life.`\
+https://nytimes.com/2023/04/15/business/israel-government-public-television.html?searchResultPosition=7
 
-**Corrections: April 15, 2023**\
-`Corrections that appeared in print on Saturday, April 15, 2023.`\
-https://nytimes.com/2023/04/15/pageoneplus/corrections-april-15-2023.html?searchResultPosition=8
+**Traditional Filipino Wedding Gowns Go Modern**\
+`Filipino American designers across the United States and Canada are putting their own spin on classic Filipiniana outfits for a new generation of brides.`\
+https://nytimes.com/2023/04/15/fashion/weddings/filipino-wedding-dresses.html?searchResultPosition=8
 
-**Toronto Puts an End to Tampa Bay’s Record-Tying Win Streak**\
-`The Rays’ streak tied the modern era record for best start to a season. But a few costly mistakes put things out of reach, dropping Tampa Bay to 13-1.`\
-https://nytimes.com/2023/04/14/sports/baseball/tampa-bay-rays-blue-jays.html?searchResultPosition=9
+**A Fresh Map of Mars, From a Spacecraft Called Hope**\
+`Scientists assembled 3,000 images from an Emirati orbiter to create the prettiest atlas yet of the red planet.`\
+https://nytimes.com/2023/04/15/science/astronomy-mars-atlas.html?searchResultPosition=9
 
-**Japan’s Prime Minister Safely Evacuated After Blast**\
-`Prime Minister Fumio Kishida was about to give a campaign speech in the western Japanese city of Wakayama when a loud explosion was heard.`\
-https://nytimes.com/2023/04/14/world/asia/japan-prime-minister-blast-fumio-kishida.html?searchResultPosition=10
+**N.Y. Budget Chief’s Exit Prompts Inquiry Into Covid Contract Deals**\
+`The departure of two state officials is now part of an inspector general review into whether no-bid Covid contract expansions followed procurement guidelines.`\
+https://nytimes.com/2023/04/15/nyregion/hochul-budget-director-investigation.html?searchResultPosition=10
 
