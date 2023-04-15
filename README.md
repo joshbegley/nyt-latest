@@ -35,6 +35,6 @@ https://nytimes.com/2023/04/15/nyregion/rutgers-strike-suspended.html?searchResu
 https://nytimes.com/2023/04/15/opinion/supreme-court-impeachment-samuel-chase.html?searchResultPosition=9
 
 **Deadly Clashes Erupt in Sudan’s Capital**\
-`Fighting between the Sudanese Army and a powerful paramilitary group broke out in Khartoum, Sudan, after months of rising tensions.`\
+`Fighting between the Sudanese Army and a powerful paramilitary group broke out in Khartoum, Sudan, after months of rising tensions. Video footage shows smoke billowing from the Khartoum airport and people taking cover inside.`\
 https://nytimes.com/video/world/africa/100000008860584/sudan-khartoum-clashes.html?searchResultPosition=10
 
