@@ -26,7 +26,7 @@ https://nytimes.com/2023/04/15/sports/boston-marathon-route-map.html?searchResul
 `The Interior Department must now take charge of the negotiation and get the parties to consensus.`\
 https://nytimes.com/2023/04/15/opinion/colorado-river-california-arizona-cuts.html?searchResultPosition=7
 
-**Election Denial Isn’t Over — It’s Often Just Local**\
+**The Threats to Our Democracy Have Gone Local**\
 `Many of the best-known election-denying candidates lost last year. But the movement is still alive and is most often seen in local and bureaucratic issues.`\
 https://nytimes.com/2023/04/15/opinion/election-denial-eric-certification.html?searchResultPosition=8
 
