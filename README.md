@@ -1,6 +1,6 @@
 **Rutgers University Faculty Members Suspend Strike**\
 `With progress made on pay increases and job security, classes are expected to resume on Monday, officials said.`\
-https://nytimes.com/2023/04/15/nyregion/rutgers-university-faculty-members-suspend-strike.html?searchResultPosition=1
+https://nytimes.com/2023/04/15/nyregion/rutgers-strike-suspended.html?searchResultPosition=1
 
 **A Justice in Trouble**\
 `Remembering a low moment for the high court.`\
