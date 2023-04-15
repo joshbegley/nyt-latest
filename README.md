@@ -1,6 +1,6 @@
 **The Phantom of the Opera Is Here, Inside The Times**\
 `As Broadway’s longest-running show headed to a close on Sunday after more than 35 years, New York Times employees shared their memories.`\
-https://nytimes.com/2023/04/15/insider/the-phantom-of-the-opera-is-here-inside-the-times.html?searchResultPosition=1
+https://nytimes.com/2023/04/15/insider/the-phantom-of-the-opera-employees.html?searchResultPosition=1
 
 **In High School, Airman Charged With Leak Was Focused on the Military**\
 `Jack Teixeira grew up in a family with strong military ties, was quiet and somewhat awkward in high school and seemed, to some, unnervingly obsessed with war and guns.`\
