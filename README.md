@@ -1,40 +1,40 @@
-**Quotation of the Day: Turkish Opposition Leader Positions Himself as Erdogan’s Polar Opposite**\
-`Quotation of the Day for Sunday, April 16, 2023.`\
-https://nytimes.com/2023/04/16/pageoneplus/quotation-of-the-day-turkish-opposition-leader-positions-himself-as-erdogans-polar-opposite.html?searchResultPosition=1
+**Winter Showers (and Showers and Showers) Bring a Bounty of Wildflowers**\
+`The relentless succession of storms in California created conditions for a wondrous display now emerging in the state.`\
+https://nytimes.com/2023/04/16/us/superbloom-california.html?searchResultPosition=1
 
-**‘Kids Can’t Read’: The Revolt That Is Taking on the Education Establishment**\
-`Fed up parents, civil rights activists, newly awakened educators and lawmakers are crusading for “the science of reading.” Can they get results?`\
-https://nytimes.com/2023/04/16/us/science-of-reading-literacy-parents.html?searchResultPosition=2
+**To Speed Up, a Top Runner Is (Kind of) Slowing Down**\
+`Hellen Obiri moved from Kenya to Boulder to chase one of the only running accomplishments she’s yet to achieve: dominance in the marathon.`\
+https://nytimes.com/2023/04/16/sports/hellen-obiri-boston-marathon.html?searchResultPosition=2
 
-**The Nuggets Are in the Playoffs Again. Hold the Champagne.**\
-`Woe be to Denver, where the Nuggets’ playoff failures — 37 chances without a championship so far — haunt the city like the ghost of a bearded cartoon miner.`\
-https://nytimes.com/2023/04/16/sports/basketball/denver-nuggets-playoffs-history.html?searchResultPosition=3
+**Eliud Kipchoge’s Next Feat: The Tactical Boston Marathon**\
+`The Boston Marathon, a tricky, hilly beast of a course, has humbled legends in the past. Can this master of speed tackle Heartbreak Hill?`\
+https://nytimes.com/2023/04/16/sports/olympics/eliud-kipchoge-boston-marathon.html?searchResultPosition=3
 
-**How a Candle Seller Spends Her Sundays**\
-`Between walking the dog and Zoom workouts, Erica Schwartz Werber gets the family to stop and smell the Late Fees at the Library.`\
-https://nytimes.com/2023/04/16/nyregion/literie-candle-nyc.html?searchResultPosition=4
+**Google Devising Radical Search Changes to Beat Back A.I. Rivals**\
+`The tech giant is sprinting to protect its core business with a flurry of projects, including updates to its search engine and plans for an all-new one.`\
+https://nytimes.com/2023/04/16/technology/google-search-engine-ai.html?searchResultPosition=4
 
-**A Beauty Treatment Promised to Zap Fat. For Some, It Brought Disfigurement.**\
-`CoolSculpting is among the most popular fixes for unwanted bulges. But the risk of a serious side effect appears to be higher than previously known.`\
-https://nytimes.com/2023/04/16/health/coolsculpting-side-effect-risks.html?searchResultPosition=5
+**Supreme Court Weighs Clash of Postal Worker’s Sabbath and Sunday Deliveries**\
+`The justices have been receptive to claims of religious freedom and may take a broad view of a federal law that requires employers to “reasonably accommodate” workers’ religious practices.`\
+https://nytimes.com/2023/04/16/us/supreme-court-religious-freedom-postal-worker.html?searchResultPosition=5
 
-**How a Campaign Against Transgender Rights Mobilized Conservatives**\
-`Defeated on same-sex marriage, the religious right went searching for an issue that would re-energize supporters and donors. The campaign that followed has stunned political leaders across the spectrum.`\
-https://nytimes.com/2023/04/16/us/politics/transgender-conservative-campaign.html?searchResultPosition=6
+**12 Books You Should Be Reading Right Now**\
+`Finding a book you’ll love can be daunting. Let us help.`\
+https://nytimes.com/article/best-books.html?searchResultPosition=6
 
-**Taking on Erdogan, Turkish Opposition Leader Banks on Everyman Appeal**\
-`Ahead of next month’s elections, Kemal Kilicdaroglu has pledged to undo President Recep Tayyip Erdogan’s legacy with a focus on tackling inflation and strengthening democracy.`\
-https://nytimes.com/2023/04/16/world/middleeast/turkey-elections-erdogan-kilicdaroglu.html?searchResultPosition=7
+**For ‘Last Tango’ Actress, the Ugly Aftermath of Notoriety**\
+`In a troubling new memoir, Vanessa Schneider contends that the sexually explicit 1972 film exploited, and irrevocably hurt, her cousin.`\
+https://nytimes.com/2023/04/16/books/my-cousin-maria-schneider-vanessa-schneider.html?searchResultPosition=7
 
-**Save for a Down Payment and Retirement, All at Once? It’s Tricky.**\
-`With mortgage rates and prices high, first-time home buyers find these competing goals aren’t always doable, at least at the same time. Here are points to consider.`\
-https://nytimes.com/2023/04/16/business/retirement-mortgage-down-payment.html?searchResultPosition=8
+**This Is Too Important to Leave to Microsoft, Google and Facebook**\
+`How America, China and Europe want to regulate A.I.`\
+https://nytimes.com/2023/04/16/opinion/this-is-too-important-to-leave-to-microsoft-google-and-facebook.html?searchResultPosition=8
 
-**‘I Sighed, Preparing Myself for the Possibility of a Delay’**\
-`Riding Metro-North on Valentine’s Day, washing the day away and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2023/04/16/nyregion/metropolitan-diary.html?searchResultPosition=9
+**Shoot Your (Carefully Aimed) Shot**\
+`When everything is still possible, take a moment to enjoy a work crush. Just don’t do anything unwise, or illegal.`\
+https://nytimes.com/2023/04/16/business/shoot-your-carefully-aimed-shot.html?searchResultPosition=9
 
-**A Front-Page Proposal**\
-`A reader with an eye for detail put his girlfriend to the test with a question in fine print.`\
-https://nytimes.com/2023/04/16/insider/nyt-front-page-proposal.html?searchResultPosition=10
+**Fox News Is on Trial, and So Are Falsehoods About 2020**\
+`A jury in Delaware will be asked to weigh the limits of the First Amendment. Another question in the case is whether the network will pay a financial penalty for disseminating election lies.`\
+https://nytimes.com/2023/04/16/business/media/fox-news-dominion-trial.html?searchResultPosition=10
 
