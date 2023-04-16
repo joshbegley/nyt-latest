@@ -35,6 +35,6 @@ https://nytimes.com/2023/04/16/world/asia/atiq-ahmed-shot-india.html?searchResul
 https://nytimes.com/2023/04/16/dining/what-to-cook-this-week.html?searchResultPosition=9
 
 **Alabama Birthday Party Shooting Leaves at Least 4 Dead**\
-`Multiple people were also injured in the shooting on Saturday night in Dadeville, Ala., the authorities said.`\
+`At least 15 teenagers were also wounded in the shooting on Saturday night in Dadeville, Ala., officials said.`\
 https://nytimes.com/2023/04/16/us/birthday-party-shooting-dadeville-alabama.html?searchResultPosition=10
 
