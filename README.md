@@ -1,5 +1,5 @@
 **Sudan Fears ‘Ghost of Civil War’ as Explosions Rock Capital**\
-`The civilian death toll is climbing and concern over a broader conflict is growing as rival generals vie for control of Africa’s third-largest country,`\
+`The civilian death toll is climbing and concern over a broader conflict is growing as rival generals vie for control of Africa’s third-largest country.`\
 https://nytimes.com/2023/04/16/world/africa/sudan-civil-war-khartoum.html?searchResultPosition=1
 
 **SpaceX Test-Launches Its Starship Rocket: How to Watch**\
