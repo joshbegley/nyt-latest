@@ -34,7 +34,7 @@ https://nytimes.com/2023/04/16/briefing/pentagon-leak-suspect.html?searchResultP
 `The Biden administration’s sweeping plans to get more electric vehicles on the road. The big banks’ strong earnings. The Fox v. Dominion trial is starting. And tax day is almost here.`\
 https://nytimes.com/2023/04/16/business/the-week-in-business-inflation-economy.html?searchResultPosition=9
 
-**Hungary Joins Poland in Banning Grain Imports From Ukraine**\
-`The move is a diplomatic setback for Kyiv, and further raises the stakes of negotiations to renew a deal on shipments via the Black Sea.`\
+**As Poland and Hungary Ban Ukraine Grain Imports, Brussels Cries Foul**\
+`The European Union lifted tariffs on Ukrainian grain last year, but a glut of produce in Europe had seen the livelihoods of farmers suffer.`\
 https://nytimes.com/2023/04/16/world/europe/hungary-poland-grain-imports-ukraine.html?searchResultPosition=10
 
