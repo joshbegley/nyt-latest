@@ -14,8 +14,8 @@ https://nytimes.com/2023/04/16/world/asia/atiq-ahmed-shot-india.html?searchResul
 `Easy but substantial: bricklayer-style nachos with puntas al albañil, and one-pot tortellini with meat sauce.`\
 https://nytimes.com/2023/04/16/dining/what-to-cook-this-week.html?searchResultPosition=4
 
-**At Least 4 Killed and Multiple People Injured in Alabama Shooting**\
-`The shooting in Dadeville, Ala., took place at a dance studio where teenagers had gathered for a birthday party, according to local news reports.`\
+**Alabama Birthday Party Shooting Leaves at Least 4 Dead**\
+`Multiple people were also injured in the shooting on Saturday night in Dadeville, Ala., the authorities said.`\
 https://nytimes.com/2023/04/16/us/birthday-party-shooting-dadeville-alabama.html?searchResultPosition=5
 
 **A Japanese Island Where the Wild Things Are**\
