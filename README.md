@@ -4,7 +4,7 @@ https://nytimes.com/2023/04/16/business/edward-h-meyer-dead.html?searchResultPos
 
 **Killing on Live TV Renews Alarm About India’s Slide Toward Extrajudicial Violence**\
 `The victim was a former politician, a notorious criminal and a Muslim. Afterward, two government officials described the killing as akin to divine justice.`\
-https://nytimes.com/2023/04/16/world/asia/killing-on-live-tv-renews-alarm-about-indias-slide-toward-extrajudicial-violence.html?searchResultPosition=2
+https://nytimes.com/2023/04/16/world/asia/atiq-ahmed-shot-india.html?searchResultPosition=2
 
 **What to Cook This Week**\
 `Easy but substantial: bricklayer-style nachos with puntas al albañil, and one-pot tortellini with meat sauce.`\
