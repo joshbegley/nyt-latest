@@ -35,6 +35,6 @@ https://nytimes.com/2023/04/16/us/birthday-party-shooting-dadeville-alabama.html
 https://nytimes.com/2023/04/16/world/asia/japan-shodoshima-yokai.html?searchResultPosition=9
 
 **A Century-Old Mystery Surfaces From Lake Superior**\
-`A lumber fleet left the docks of Baraga, Mich., in 1914, and was never seen again. A team of shipwreck hunters found two of its vessels nearly 100 years later.`\
+`A lumber fleet left the docks of Baraga, Mich., in 1914, and was never seen again. A team of shipwreck hunters found two of its vessels more than 100 years later.`\
 https://nytimes.com/2023/04/16/us/lake-superior-shipwrecks.html?searchResultPosition=10
 
