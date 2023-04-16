@@ -18,7 +18,7 @@ https://nytimes.com/2023/04/16/crosswords/daily-puzzle-2023-04-17.html?searchRes
 `The Ohio Republican defines himself by his penchant for punching back, whether against allegations that he was derelict in a sex abuse scandal or attempts to prosecute the former president.`\
 https://nytimes.com/2023/04/16/us/politics/jim-jordan-trump.html?searchResultPosition=5
 
-**Memories Unleashed for Boston Marathon’s Top Dog**\
+**Golden Retrievers Gather to Salute the Therapy Dog of Mile 3**\
 `Hundreds of dogs and humans gathered in Boston to honor Spencer, the official dog of the Boston Marathon, who died in February.`\
 https://nytimes.com/2023/04/16/sports/boston-marathon-dog-spencer-retrievers.html?searchResultPosition=6
 
