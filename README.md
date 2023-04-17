@@ -2,7 +2,7 @@
 `As the Republican primary field takes shape, the groups supporting the top two hopefuls are already spending millions.`\
 https://nytimes.com/2023/04/17/us/politics/trump-desantis-tv-ads.html?searchResultPosition=1
 
-**Grand Jury Decides Not to Charge Officers in Shooting Death of Jaylon Walker**\
+**Grand Jury Decides Not to Charge Officers in Shooting Death of Jayland Walker**\
 `Mr. Walker, a 25-year-old Black man, was shot dozens of times after an attempted traffic stop and chase in Akron, Ohio, last year.`\
 https://nytimes.com/2023/04/17/us/jayland-walker-akron-grand-jury-decision.html?searchResultPosition=2
 
