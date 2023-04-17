@@ -11,7 +11,7 @@ https://nytimes.com/2023/04/17/us/theodore-mccarrick-cardinal-sex-assault-wiscon
 https://nytimes.com/2023/04/17/business/ron-desantis-disney-world-florida.html?searchResultPosition=3
 
 **After American’s Killing in Syria, F.B.I. Builds War Crimes Case Against Top Officials**\
-`The inquiry aims to hold to account Syrian officials considered key architects of a brutal system of detention and torture that flourished under President Bashar al-Assad.`\
+`The inquiry aims to hold to account Syrian officials considered key architects of a brutal system of detention and torture that has flourished under President Bashar al-Assad.`\
 https://nytimes.com/2023/04/17/us/politics/justice-department-syria-war-crimes.html?searchResultPosition=4
 
 **Bernice Rose, Curator Who Elevated the Art of Drawing, Dies at 87**\
