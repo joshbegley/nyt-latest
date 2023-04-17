@@ -1,40 +1,40 @@
-**Battles for Control of Sudan Stretch Into a Third Day**\
-`Nearly 100 people were killed over the weekend in battles between the army and paramilitary forces as the country’s two top generals vied for dominance.`\
-https://nytimes.com/2023/04/17/world/africa/sudan-fighting-khartoum.html?searchResultPosition=1
+**In Photos: Families of Guatemalans Killed in Migrant Center Fire Bury Their Dead**\
+`The fire in March left 40 people dead.`\
+https://nytimes.com/2023/04/17/world/americas/guatemala-fire-victims-juarez.html?searchResultPosition=1
 
-**An Eagle Who Adopted a Rock Becomes a Real Dad**\
-`Murphy, a bald eagle at a bird sanctuary in Valley Park, Mo., had been incubating a rock, and his keepers did not have the heart to separate them. He seemed ready when an eaglet needed a dad.`\
-https://nytimes.com/2023/04/17/us/murphy-bald-eagle-rock.html?searchResultPosition=2
+**Japan Has Millions of Empty Houses. Want to Buy One for $25,000?**\
+`With a shrinking population and more than 10 million abandoned properties, the country is straining to match houses with curious buyers.`\
+https://nytimes.com/2023/04/17/realestate/japan-empty-houses.html?searchResultPosition=2
 
-**Two Children, a Burst of Gunfire and the Year That Came After**\
-`When a gunman opened fire in two classrooms in Uvalde, Texas, 19 children died. Two fourth graders wounded in the massacre are still trying to recover.`\
-https://nytimes.com/2023/04/17/us/uvalde-shooting-survivors.html?searchResultPosition=3
+**Are Crumbl Cookies the Best or the Worst? It Doesn’t Matter.**\
+`The fastest-growing dessert chain in the United States has sweets lovers divided. But the debate is great for business.`\
+https://nytimes.com/2023/04/17/dining/crumbl-cookies.html?searchResultPosition=3
 
-**In Pakistan, Economic Crisis Mutes Ramadan Celebrations**\
-`Rampant inflation, damaged crops and the war in Ukraine have sent food prices soaring during the Muslim holy month of daytime fasting and nighttime feasting.`\
-https://nytimes.com/2023/04/17/world/asia/pakistan-economy-ramadan.html?searchResultPosition=4
+**With Russia’s Invasion of Ukraine, NATO Readies for Combat on Its Borders**\
+`Shocked by Russian atrocities, NATO is becoming the war-fighting alliance it was during the Cold War, committed to defending “every inch” of its territory from Day 1.`\
+https://nytimes.com/2023/04/17/world/europe/nato-russia-ukraine-war.html?searchResultPosition=4
 
-**What to Know About Dominion, the Voting Machine Company Suing Fox**\
-`Dominion, which is owned by a New York private equity firm, has accused the news network of spreading false narratives about its election technology.`\
-https://nytimes.com/2023/04/17/business/media/dominion-fox-lawsuit.html?searchResultPosition=5
+**Satellites Threaten Astronomy, but a Few Scientists See an Opportunity**\
+`Mega-constellations built by SpaceX, Amazon and other companies could carry thousands of sensors that could aid research into gamma rays, space weather and other subjects.`\
+https://nytimes.com/2023/04/17/science/astronomy-starlink-spacex-kuiper-amazon.html?searchResultPosition=5
 
-**It’s Beginning to Look a Lot Like 2024**\
-`Candidates are visiting early primary states, attending cattle calls and holding donor summits. The nascent campaign seems to be kicking into gear.`\
-https://nytimes.com/2023/04/17/us/politics/2024-presidential-campaign-trail.html?searchResultPosition=6
+**These Towns Built on Black History Shouldn’t Be for Sale**\
+`They should be recognized as treasures — not only as rich communities unto themselves, but also as living monuments.`\
+https://nytimes.com/2023/04/17/opinion/preservation-african-american-communities.html?searchResultPosition=6
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/04/17/crosswords/spelling-bee-forum.html?searchResultPosition=7
+**Peering Into Volcanoes at Tanzania’s Crater Highlands**\
+`Uninterested in the extreme altitudes of Kilimanjaro, a writer opted instead to explore the region’s vast calderas, abundant wildlife and rare forms of lava.`\
+https://nytimes.com/2023/04/17/travel/tanzania-crater-highlands.html?searchResultPosition=7
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: contains spoilers!`\
-https://nytimes.com/2023/04/17/crosswords/wordle-review-answer-667.html?searchResultPosition=8
+**As New York Bans Native American Mascots, Some Schools Try to Keep Them**\
+`The Board of Regents is expected to approve a policy barring school nicknames like “the Warriors.” A provision allows their use if a tribal nation endorses them.`\
+https://nytimes.com/2023/04/17/nyregion/ny-mascots.html?searchResultPosition=8
 
-**Word of the Day: treacherous**\
-`This word has appeared in 213 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/04/17/learning/word-of-the-day-treacherous.html?searchResultPosition=9
+**Chita Rivera on Love, Showbiz and All That Jazz**\
+`Her new memoir finds the 90-year-old singer-dancer hungry for acclaim, but generous to others on her way to getting it.`\
+https://nytimes.com/2023/04/17/books/chita-rivera-memoir.html?searchResultPosition=9
 
-**What’s on TV This Week: ‘Amityville: An Origin Story’ and ‘Revengineers’**\
-`A docuseries on MGM+ delves into the history of the real Amityville house of horrors, and a new prank show from Mark Rober and Jimmy Kimmel premieres on Discovery.`\
-https://nytimes.com/2023/04/17/arts/television/whats-on-tv-this-week-amityville-an-origin-story-and-revengineers.html?searchResultPosition=10
+**Just a Few Top Secrets Among Friends**\
+`What could go wrong?`\
+https://nytimes.com/2023/04/17/opinion/leaked-documents-desantis-biden-budget.html?searchResultPosition=10
 
