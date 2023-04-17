@@ -30,8 +30,8 @@ https://nytimes.com/2023/04/16/sports/boston-marathon-dog-spencer-retrievers.htm
 `Also, an extrajudicial killing on live TV in India.`\
 https://nytimes.com/2023/04/16/briefing/sudan-fighting-india-killing-asia.html?searchResultPosition=8
 
-**Fans Gather as ‘Phantom’ Ends a Record Broadway Run**\
-`The final day of “The Phantom of the Opera” was both jubilant and tear-stained as theatergoers bid it farewell. It is closing its run at the Majestic Theater on an unusually high note.`\
+**With Cheers and Tears, ‘Phantom of the Opera’ Ends Record Broadway Run**\
+`The show’s record-breaking 35-year Broadway run came to an end on Sunday night. Its famous chandelier got a bow, and its composer, Andrew Lloyd Webber, spoke after its emotional final performance.`\
 https://nytimes.com/2023/04/16/theater/phantom-of-the-opera-final-performance.html?searchResultPosition=9
 
 **Pharaonic Funkatizing at the Met Roof Garden**\
