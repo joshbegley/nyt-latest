@@ -1,4 +1,4 @@
-**An Eagle Who Adopted Rock Becomes a Real Dad**\
+**An Eagle Who Adopted a Rock Becomes a Real Dad**\
 `Murphy, a bald eagle at a bird sanctuary in Valley Park, Mo., had been incubating a rock, and his keepers did not have the heart to separate them. He seemed ready when an eaglet needed a dad.`\
 https://nytimes.com/2023/04/17/us/murphy-bald-eagle-rock.html?searchResultPosition=1
 
