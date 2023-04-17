@@ -16,7 +16,7 @@ https://nytimes.com/2023/04/17/your-money/charles-schwab-deposits-profit.html?se
 
 **Protest After Homeowner Shoots Black Teenager at Wrong House**\
 `Demonstrators in Kansas City, Mo., called for justice after a man who shot and critically injured Ralph Yarl, 16, was released from police custody without being charged. The teenager’s family said he rang the wrong doorbell after he was sent to pick up his brothers.`\
-https://nytimes.com/video/us/100000008862145/ralph-yarl-kansas-city-shooting-teenager.html?searchResultPosition=5
+https://nytimes.com/video/embedded/us/100000008862145/ralph-yarl-kansas-city-shooting-teenager.html?searchResultPosition=5
 
 **For the American Prison Writing Archive, a ‘Shadow Canon’ Sheds Light**\
 `Buoyed by a $2.3 million grant, the archive hopes increased visibility on the first-person accounts of incarcerated people can serve as a road map for policy reforms.`\
