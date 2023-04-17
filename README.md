@@ -23,7 +23,7 @@ https://nytimes.com/2023/04/17/sports/hellen-obiri-boston-marathon.html?searchRe
 https://nytimes.com/2023/04/17/us/politics/migrant-child-labor-biden.html?searchResultPosition=6
 
 **Evans Chebet wins back-to-back Boston Marathons.**\
-`It was a shocking upset finish for Eliud Kipchoge, the greatest marathon runner of all time, who finished in sixth place.`\
+`It was a shocking upset for Eliud Kipchoge, the greatest marathon runner of all time, who finished in sixth place.`\
 https://nytimes.com/2023/04/17/sports/evans-chebet-boston-marathon.html?searchResultPosition=7
 
 **American Single Malt Whiskey, a Freewheeling Cousin of Scotch, Comes of Age**\
