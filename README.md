@@ -18,23 +18,23 @@ https://nytimes.com/2023/04/17/opinion/letters/republicans-trump-alternatives.ht
 `A two-part documentary from The New York Times explores the work of a man who made the problems of Hollywood’s elite disappear.`\
 https://nytimes.com/video/NYT-Presents/100000008861867/the-new-york-times-presents-sin-eater-the-crimes-of-anthony-pellicano-part-2.html?searchResultPosition=5
 
+**How much prize money is at stake in the Boston Marathon?**\
+`The fastest finishers this year will share in more than $1 million in prize money, with bonuses awarded to the winners who set course records in the open and wheelchair divisions.`\
+https://nytimes.com/2023/04/17/sports/boston-marathon-prize-money.html?searchResultPosition=6
+
 **The New York Times Presents: ‘Sin Eater: The Crimes of Anthony Pellicano, Part 1’**\
 `A two-part documentary from The New York Times explores the work of a man who made the problems of Hollywood’s elite disappear.`\
-https://nytimes.com/video/NYT-Presents/100000008861860/the-new-york-times-presents-sin-eater-the-crimes-of-anthony-pellicano-part-1.html?searchResultPosition=6
+https://nytimes.com/video/NYT-Presents/100000008861860/the-new-york-times-presents-sin-eater-the-crimes-of-anthony-pellicano-part-1.html?searchResultPosition=7
 
 **The Buggles’ Song Launched MTV. After 45 Years, They’re Going on Tour.**\
 `Trevor Horn, half of the group behind “Video Killed the Radio Star” and a producer who helped engineer the sound of the ’80s, will be the opening act for Seal.`\
-https://nytimes.com/2023/04/17/arts/music/buggles-trevor-horn-tour.html?searchResultPosition=7
+https://nytimes.com/2023/04/17/arts/music/buggles-trevor-horn-tour.html?searchResultPosition=8
 
 **Evan Gershkovich, the detained Wall Street Journal reporter, has received a consular visit.**\
 `Mr. Gershkovich, 31, was arrested by Russian security services in late March and formally charged with espionage, an accusation that his employer and U.S. officials vehemently deny.`\
-https://nytimes.com/2023/04/17/world/evan-gershkovich-russia-us-ambassador.html?searchResultPosition=8
+https://nytimes.com/2023/04/17/world/evan-gershkovich-russia-us-ambassador.html?searchResultPosition=9
 
 **Judge Refuses to Grant Trump Delay in Trial of Suit Accusing Him of Rape**\
 `The judge rejected an argument by Donald J. Trump’s lawyers that the publicity around his recent indictment would prevent a fair hearing in the lawsuit brought by the writer E. Jean Carroll.`\
-https://nytimes.com/2023/04/17/nyregion/trump-rape-trial-e-jean-carroll.html?searchResultPosition=9
-
-**Buy Now and Save! Price War Over Electric Cars Erupts in China.**\
-`The intense competition among the country’s huge number of start-up carmakers has unsettled what had been a pillar of the economy in the last few years.`\
-https://nytimes.com/2023/04/17/business/china-electric-vehicle-prices.html?searchResultPosition=10
+https://nytimes.com/2023/04/17/nyregion/trump-rape-trial-e-jean-carroll.html?searchResultPosition=10
 
