@@ -34,7 +34,7 @@ https://nytimes.com/2023/04/17/us/politics/trump-desantis-tv-ads.html?searchResu
 `Mr. Walker, a 25-year-old Black man, was shot dozens of times after an attempted traffic stop and chase in Akron, Ohio, last year.`\
 https://nytimes.com/2023/04/17/us/jayland-walker-akron-grand-jury-decision.html?searchResultPosition=9
 
-**Axel Springer C.E.O. Apologizes for Remarks**\
-`Texts by Mathias Döpfner, the chief executive of the German media giant, included a request urging favorable coverage of a political party. They were published by a rival publication.`\
-https://nytimes.com/2023/04/17/world/europe/axel-springer-ceo-apologizes-for-remarks.html?searchResultPosition=10
+****\
+``\
+https://nytimes.com/video/embedded/admin/100000007093726/mosaic-sample-video-480-by-270-798.html?searchResultPosition=10
 
