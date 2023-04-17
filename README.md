@@ -8,7 +8,7 @@ https://nytimes.com/2023/04/17/realestate/home-prices-santa-barbara-rancho-mirag
 
 **The Defamation Trial of the Century Is Delayed**\
 `Dominion Voting Systems’ lawsuit against Fox News won’t start on Monday, as Rupert Murdoch’s media colossus reportedly pushes for an out-of-court settlement.`\
-https://nytimes.com/2023/04/17/business/dealbook/fox-news-trial-delayed.html?searchResultPosition=3
+https://nytimes.com/2023/04/17/business/dealbook/dominion-fox-news-trial-delayed.html?searchResultPosition=3
 
 **Fox News on Trial**\
 `A lawsuit against Fox News could help decide the boundaries of press freedom.`\
