@@ -1,6 +1,6 @@
 **Hospitals and Aid Groups Become Targets as Sudan Fighting Intensifies**\
 `Civilians are caught in the cross-fire, and two rival generals vying for power made it clear their forces had no intention of standing down.`\
-https://nytimes.com/2023/04/17/world/africa/sudan-fighting.html?searchResultPosition=1
+https://nytimes.com/2023/04/17/world/africa/sudan-khartoum-fighting.html?searchResultPosition=1
 
 **Judge Who Would Shift N.Y.’s Highest Court Left Sails Through Hearing**\
 `Judge Rowan Wilson, a prominent liberal jurist, would become the state’s first Black judge to lead the Court of Appeals, the state’s highest court.`\
