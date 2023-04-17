@@ -14,27 +14,27 @@ https://nytimes.com/2023/04/17/dining/nick-morgenstern-bananas-dairy-free-soft-s
 `Lawyers for the family of Ralph Yarl, 16, said he was in critical condition after being shot twice by a “white male assailant” in Kansas City, Mo. The gunman has not been charged.`\
 https://nytimes.com/2023/04/17/us/ralph-yarl-kansas-city-shooting.html?searchResultPosition=4
 
-****\
-``\
-https://nytimes.com/video/embedded/admin/100000007093705/mosaic-232141982-d7aa6c47-8e54-4907-a5da-c667f760788a-900.html?searchResultPosition=5
-
 **FIFA Silenced One World Cup Protest but May Face More This Year**\
 `FIFA threatened to suspend men’s captains if they took part in a social justice campaign in Qatar. Will the same rules apply at the Women’s World Cup?`\
-https://nytimes.com/2023/04/17/sports/soccer/womens-world-cup-lgbt-saudi.html?searchResultPosition=6
-
-****\
-``\
-https://nytimes.com/video/embedded/admin/100000007093699/mosaic-screen-recording-2023-04-17-at-1-254.html?searchResultPosition=7
-
-****\
-``\
-https://nytimes.com/video/embedded/admin/100000007093697/mosaic-screen-recording-2023-04-17-at-1-584.html?searchResultPosition=8
+https://nytimes.com/2023/04/17/sports/soccer/womens-world-cup-lgbt-saudi.html?searchResultPosition=5
 
 **Charles Schwab’s Deposits Shrink, but Profits Grow Faster Than Expected**\
 `The brokerage giant, which has been swept into the turmoil surrounding the banking sector, seemed to ease fears about its financial health in its latest earnings report.`\
-https://nytimes.com/2023/04/17/your-money/charles-schwab-deposits-profit.html?searchResultPosition=9
+https://nytimes.com/2023/04/17/your-money/charles-schwab-deposits-profit.html?searchResultPosition=6
 
-**standard interactive cases**\
-`summary`\
-https://nytimes.com/interactive/2023/us/17-TestInteractive-cases.html?searchResultPosition=10
+**Protest After Homeowner Shoots Black Teenager at Wrong House**\
+`Demonstrators in Kansas City, Mo., called for justice after a man who shot and critically injured Ralph Yarl, 16, was released from police custody without being charged. The teenager’s family said he rang the wrong doorbell after he was sent to pick up his brothers.`\
+https://nytimes.com/video/embedded/us/100000008862145/ralph-yarl-kansas-city-shooting-teenager.html?searchResultPosition=7
+
+**For the American Prison Writing Archive, a ‘Shadow Canon’ Sheds Light**\
+`Buoyed by a $2.3 million grant, the archive hopes increased visibility on the first-person accounts of incarcerated people can serve as a road map for policy reforms.`\
+https://nytimes.com/2023/04/17/arts/american-prison-writing-archive.html?searchResultPosition=8
+
+**A Biography of a Blues Legend, Five Decades in the Making**\
+`Mack McCormick’s long-awaited book about the musician Robert Johnson has arrived, in modest and expurgated form.`\
+https://nytimes.com/2023/04/17/books/mack-mccormick-robert-johnson-biography.html?searchResultPosition=9
+
+**Emma Bates, the top American woman in Boston, finishes fifth.**\
+`Bates, a native of Elk River, Minn., stayed in contention until the final mile and completed the course in 2 hours, 22 minutes and 10 seconds, a personal best.`\
+https://nytimes.com/2023/04/17/sports/emma-bates-boston-marathon.html?searchResultPosition=10
 
