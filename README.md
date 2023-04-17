@@ -18,7 +18,7 @@ https://nytimes.com/2023/04/17/climate/train-fire-palestine-plastics-pvc.html?se
 `Civilians are caught in the cross-fire, and two rival generals vying for power made it clear their forces had no intention of standing down.`\
 https://nytimes.com/2023/04/17/world/africa/sudan-khartoum-fighting.html?searchResultPosition=5
 
-**Judge Who Would Shift N.Y.’s Highest Court Left Sails Through Hearing**\
+**Judge Who Could Shift N.Y.’s Highest Court Left Sails Through Hearing**\
 `Judge Rowan Wilson, a prominent liberal jurist, would become the state’s first Black judge to lead the Court of Appeals, the state’s highest court.`\
 https://nytimes.com/2023/04/17/nyregion/chief-judge-rowan-wilson.html?searchResultPosition=6
 
