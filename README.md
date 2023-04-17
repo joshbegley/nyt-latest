@@ -34,7 +34,7 @@ https://nytimes.com/2023/04/17/nyregion/eric-adams-meat-emissions-nyc.html?searc
 `Here’s what you need to know at the end of the day.`\
 https://nytimes.com/2023/04/17/briefing/sudan-fighting-grand-jury-ohio-police.html?searchResultPosition=9
 
-****\
-``\
-https://nytimes.com/video/embedded/admin/100000007093764/mosaic-sample-video-480-by-270-678.html?searchResultPosition=10
+**Your Tuesday Briefing: A Long Sentence for a Putin Critic**\
+`Also, fighting roils Sudan’s capital.`\
+https://nytimes.com/2023/04/17/briefing/kara-murza-putin-sudan-war-pakistan.html?searchResultPosition=10
 
