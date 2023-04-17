@@ -1,5 +1,5 @@
-**No Corrections: April 18, 2023**\
-`No corrections appeared in print on Monday, Oct. 10, 2022.`\
+**No Corrections: April 17, 2023**\
+`No corrections appeared in print on Monday, April 17, 2023.`\
 https://nytimes.com/2023/04/16/pageoneplus/no-corrections-april-18-2023.html?searchResultPosition=1
 
 **Succession Style, Episode 4: Dressed for Mourning**\
