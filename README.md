@@ -10,7 +10,7 @@ https://nytimes.com/2023/04/17/us/ralph-yarl-kansas-city-shooting.html?searchRes
 `FIFA threatened to suspend men’s captains if they took part in a social justice campaign in Qatar. Will the same rules apply at the Women’s World Cup?`\
 https://nytimes.com/2023/04/17/sports/soccer/womens-world-cup-lgbt-saudi.html?searchResultPosition=3
 
-**Charles Schwab Sees Deposits Shrink but Profits Grow Faster Than Expected**\
+**Charles Schwab’s Deposits Shrink, but Profits Grow Faster Than Expected**\
 `The brokerage giant, which has been swept into the turmoil surrounding the banking sector, seemed to ease fears about its financial health in its latest earnings report.`\
 https://nytimes.com/2023/04/17/your-money/charles-schwab-deposits-profit.html?searchResultPosition=4
 
