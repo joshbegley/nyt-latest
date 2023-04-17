@@ -2,7 +2,7 @@
 `The club he started as a coach has helped young Black and Hispanic youths learn to swim and compete in the sport in urban areas not known as oases for it.`\
 https://nytimes.com/2023/04/17/sports/robert-trotman-dead.html?searchResultPosition=1
 
-**Homeowner Shoots Black Teenager at Wrong House**\
+**Police Investigate Shooting of Black Teenager**\
 `A man shot and critically injured Ralph Yarl, 16, at a house in Kansas City, Mo., last week. The teenager’s family said he rang the wrong doorbell after he was sent to pick up his brothers.`\
 https://nytimes.com/video/us/100000008862542/ralph-yarl-shooting-kansas-city.html?searchResultPosition=2
 
