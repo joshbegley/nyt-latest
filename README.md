@@ -4,7 +4,7 @@ https://nytimes.com/2023/04/18/us/politics/trump-desantis-deficit.html?searchRes
 
 **Happy 100th Birthday, 16-Millimeter Film**\
 `The format was initially a boon to amateurs. Now, with moviemaking gone digital, it’s the choice of auteurs like Darren Aronofsky and Kelly Reichardt.`\
-https://nytimes.com/2023/04/18/movies/happy-100th-birthday-16-millimeter-film.html?searchResultPosition=2
+https://nytimes.com/2023/04/18/movies/16mm-film-anniversary.html?searchResultPosition=2
 
 **Restaurant Review: Mam Serves the Most Exciting Vietnamese Food in New York**\
 `Not quite a pop-up, Mam brings the tastes of a Hanoi lunch to the Lower East Side. Can it put down firmer roots?`\
