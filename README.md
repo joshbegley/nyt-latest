@@ -3,7 +3,7 @@
 https://nytimes.com/2023/04/18/nyregion/kaylin-gillis-ny-shooting.html?searchResultPosition=1
 
 **Netflix Put His Photo in a True-Crime Film. Now, He’s Suing.**\
-`A Kentucky man is suing Netflix for using an image of him in “The Hatchet Wielding Hitchhiker,” a documentary about an internet folk hero turned convicted murderer.`\
+`A Kentucky man is suing Netflix for using his image in “The Hatchet Wielding Hitchhiker,” a documentary about an internet folk hero turned convicted murderer.`\
 https://nytimes.com/2023/04/18/business/netflix-hatchet-wielding-hitchiker-lawsuit.html?searchResultPosition=2
 
 **Texas Eighth Congressional District Primary Election Results**\
