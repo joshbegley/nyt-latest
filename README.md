@@ -1,6 +1,6 @@
 **It’s ‘Dinner With a Big Group’ Season**\
 `Warm days are returning, after all.`\
-https://nytimes.com/2023/04/18/dining/its-dinner-with-a-big-group-season.html?searchResultPosition=1
+https://nytimes.com/2023/04/18/dining/where-to-eat-nyc-big-group-large-party.html?searchResultPosition=1
 
 **The Wondrous Mysteries of Steely Dan**\
 `A new book takes a deep dive into the band’s lyrics.`\
