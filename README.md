@@ -22,13 +22,13 @@ https://nytimes.com/2023/04/18/pageoneplus/corrections-april-18-2023.html?search
 `From stopping turnstile jumpers to getting the police to look up from their phones, you have thoughts on improving the M.T.A.`\
 https://nytimes.com/2023/04/18/nyregion/fixing-subways-reader-ideas.html?searchResultPosition=6
 
-**Rangers-Devils: A Simmering Rivalry Gets Some Playoff Heat**\
-`The teams will begin their first-round series on Tuesday, but haven’t met in the N.H.L. playoffs since 2012, and who can forget the 1994 Eastern Conference finals of “Matteau, Matteau, Matteau!”`\
-https://nytimes.com/2023/04/18/sports/hockey/rangers-devils-nhl-playoffs.html?searchResultPosition=7
-
 **National Endowment for the Humanities Announces $35.6 Million in Grants**\
 `The first round of funding for the year will support over 250 projects across the country.`\
-https://nytimes.com/2023/04/18/arts/national-endowment-for-the-humanities-grants.html?searchResultPosition=8
+https://nytimes.com/2023/04/18/arts/national-endowment-for-the-humanities-grants.html?searchResultPosition=7
+
+**Rangers-Devils: A Simmering Rivalry Gets Some Playoff Heat**\
+`The teams will begin their first-round series on Tuesday, but haven’t met in the N.H.L. playoffs since 2012, and who can forget the 1994 Eastern Conference finals of “Matteau, Matteau, Matteau!”`\
+https://nytimes.com/2023/04/18/sports/hockey/rangers-devils-nhl-playoffs.html?searchResultPosition=8
 
 **Quotation of the Day: U.S. Builds War Crimes Case After American’s Execution in Syria**\
 `Quotation of the Day for Tuesday, April 18, 2023.`\
