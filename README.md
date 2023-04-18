@@ -1,5 +1,5 @@
 **Chelsea Exits Champions League, Its Next Destination Unknown**\
-`Real Madrid advanced to the semifinals at the expense of a Chelsea team long on cash and talk but bereft, it seems, of ideas on how to succeed.`\
+`Real Madrid advanced to the semifinals at the expense of a Chelsea team long on cash and talk but short, it seems, on ideas of how to succeed.`\
 https://nytimes.com/2023/04/18/sports/soccer/chelsea-real-madrid-champions-league.html?searchResultPosition=1
 
 **Undeterred Criminals Plus Demoralized Cops Equals More Crime**\
