@@ -6,7 +6,7 @@ https://nytimes.com/2023/04/18/us/credit-suisse-nazis.html?searchResultPosition=
 `Men and people with severe illnesses were more likely to develop the condition within a year. But the data does not prove that the coronavirus causes diabetes.`\
 https://nytimes.com/2023/04/18/health/covid-diabetes.html?searchResultPosition=2
 
-**Apple Opens First Store in India, a Promising Frontier for Tech Giant**\
+**Apple Opens First Store in India, a Promising Frontier for the Tech Giant**\
 `Tim Cook, the chief executive of the iPhone maker, visited Mumbai to inaugurate the store. Apple is pushing to grow its market share in India, as well as shift some production there.`\
 https://nytimes.com/2023/04/18/business/apple-stores-india-tim-cook.html?searchResultPosition=3
 
@@ -35,6 +35,6 @@ https://nytimes.com/2023/04/18/nyregion/john-j-doherty-dead.html?searchResultPos
 https://nytimes.com/2023/04/18/business/southwest-airlines-flights-halted.html?searchResultPosition=9
 
 **As Possible Debt Limit Crisis Nears, Wall Street Shrugs**\
-`Few investors have focused on the possibility that Congress will not raise the nation’s borrowing limit in time to avoid an economically catastrophic default.`\
+`Few investors have focused on the possibility that Congress will not raise the nation’s borrowing limit in time to avoid an economically catastrophic default`\
 https://nytimes.com/2023/04/18/business/debt-limit-wall-street.html?searchResultPosition=10
 
