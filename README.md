@@ -31,7 +31,7 @@ https://nytimes.com/2023/04/18/sports/baseball/oakland-athletics-boycott.html?se
 https://nytimes.com/2023/04/18/nyregion/art-dealer-sanctions-hezbollah.html?searchResultPosition=8
 
 **One Dead in Parking Garage Collapse in Lower Manhattan**\
-`The Ann Street structure fell in, leaving cars stacked atop one another and rubble down to street level. The number of those harmed and trapped was unknown.`\
+`A portion of the three-story Ann Street structure fell in, leaving cars stacked atop one another and rubble down to street level.`\
 https://nytimes.com/2023/04/18/nyregion/nyc-parking-garage-collapse.html?searchResultPosition=9
 
 **Here are the other legal cases Fox is entangled in.**\
