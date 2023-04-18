@@ -15,7 +15,7 @@ https://nytimes.com/2023/04/17/arts/television/perry-mason-season-finale-recap.h
 https://nytimes.com/2023/04/17/crosswords/daily-puzzle-2023-04-18.html?searchResultPosition=4
 
 **Man Charged With Murder in Shooting of Woman Who Went Up Wrong Driveway**\
-`Kevin Monahan shot Kayla Gillis, 20, when she and several friends wound up outside his house in a rural part of upstate New York, the authorities said.`\
+`Kevin Monahan shot Kaylin Gillis, 20, when she and several friends wound up outside his house in a rural part of upstate New York, the authorities said.`\
 https://nytimes.com/2023/04/17/nyregion/man-charged-kaylin-gillis-driveway-shooting.html?searchResultPosition=5
 
 **Republicans Attack Bragg, Spotlighting Crime Victims in New York**\
