@@ -11,7 +11,7 @@ https://nytimes.com/2023/04/18/arts/music/elisir-met-opera-review.html?searchRes
 https://nytimes.com/2023/04/18/nyregion/john-j-doherty-dead.html?searchResultPosition=3
 
 **Southwest Airlines Halts Takeoff of Flights**\
-`The airline, which experienced a large meltdown around Christmas, said technology problems had forced it suspend departures temporarily.`\
+`The airline, which experienced a large meltdown around Christmas, said technology problems had forced it to suspend departures temporarily.`\
 https://nytimes.com/2023/04/18/business/southwest-airlines-flights-halted.html?searchResultPosition=4
 
 **As Possible Debt Limit Crisis Nears, Wall Street Shrugs**\
