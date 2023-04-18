@@ -1,40 +1,40 @@
+**Late Night Skewers Clarence Thomas for Not Disclosing Gifts**\
+`“The Daily Show” guest host Jordan Klepper joked that Thomas has “taken more free vacations than all the Bravo housewives combined.”`\
+https://nytimes.com/2023/04/18/arts/television/late-night-clarence-thomas.html?searchResultPosition=1
+
 **Word of the Day: posterity**\
 `This word has appeared in 59 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/04/18/learning/word-of-the-day-posterity.html?searchResultPosition=1
+https://nytimes.com/2023/04/18/learning/word-of-the-day-posterity.html?searchResultPosition=2
 
 **We Have Two Visions of the Future, and Both Are Wrong**\
 `Our age of upheaval has blown everything open.`\
-https://nytimes.com/2023/04/18/opinion/global-crisis-future.html?searchResultPosition=2
+https://nytimes.com/2023/04/18/opinion/global-crisis-future.html?searchResultPosition=3
 
 **Your Tuesday Briefing**\
 `Hospitals are attacked in Sudan.`\
-https://nytimes.com/2023/04/18/briefing/sudan-hospitals-kremlin-sentence-europe.html?searchResultPosition=3
+https://nytimes.com/2023/04/18/briefing/sudan-hospitals-kremlin-sentence-europe.html?searchResultPosition=4
 
 **Corrections: April 18, 2023**\
 `Corrections that appeared in print on Tuesday, April 18, 2023.`\
-https://nytimes.com/2023/04/18/pageoneplus/corrections-april-18-2023.html?searchResultPosition=4
+https://nytimes.com/2023/04/18/pageoneplus/corrections-april-18-2023.html?searchResultPosition=5
 
 **Readers Sound Off on Fixing the Subways**\
 `From stopping turnstile jumpers to getting the police to look up from their phones, you have thoughts on improving the M.T.A.`\
-https://nytimes.com/2023/04/18/nyregion/fixing-subways-reader-ideas.html?searchResultPosition=5
+https://nytimes.com/2023/04/18/nyregion/fixing-subways-reader-ideas.html?searchResultPosition=6
 
 **Rangers-Devils: A Simmering Rivalry Gets Some Playoff Heat**\
 `The teams will begin their first-round series on Tuesday, but haven’t met in the N.H.L. playoffs since 2012, and who can forget the 1994 Eastern Conference finals of “Matteau, Matteau, Matteau!”`\
-https://nytimes.com/2023/04/18/sports/hockey/rangers-devils-nhl-playoffs.html?searchResultPosition=6
+https://nytimes.com/2023/04/18/sports/hockey/rangers-devils-nhl-playoffs.html?searchResultPosition=7
 
 **National Endowment for the Humanities Announces $35.6 Million in Grants**\
 `The first round of funding for the year will support over 250 projects across the country.`\
-https://nytimes.com/2023/04/18/arts/national-endowment-for-the-humanities-grants.html?searchResultPosition=7
+https://nytimes.com/2023/04/18/arts/national-endowment-for-the-humanities-grants.html?searchResultPosition=8
 
 **Quotation of the Day: U.S. Builds War Crimes Case After American’s Execution in Syria**\
 `Quotation of the Day for Tuesday, April 18, 2023.`\
-https://nytimes.com/2023/04/17/pageoneplus/quotation-of-the-day-us-builds-war-crimes-case-after-americans-execution-in-syria.html?searchResultPosition=8
+https://nytimes.com/2023/04/17/pageoneplus/quotation-of-the-day-us-builds-war-crimes-case-after-americans-execution-in-syria.html?searchResultPosition=9
 
 **The 100 Best Restaurants in New York City**\
 `Our critic, Pete Wells, ranks his favorites in all five boroughs.`\
-https://nytimes.com/interactive/2023/dining/best-nyc-restaurants.html?searchResultPosition=9
-
-**With ‘Zero Covid’ Behind It, China’s Economy Starts to Recover**\
-`The economy grew 4.5 percent in the first three months of the year, a sizable pickup from the end of 2022, when the relaxation of pandemic prevention measures led to a wave of illness.`\
-https://nytimes.com/2023/04/17/business/china-gdp-q1-2023.html?searchResultPosition=10
+https://nytimes.com/interactive/2023/dining/best-nyc-restaurants.html?searchResultPosition=10
 
