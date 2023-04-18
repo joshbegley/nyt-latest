@@ -34,7 +34,7 @@ https://nytimes.com/2023/04/18/sports/hockey/rangers-devils-nhl-playoffs.html?se
 `Quotation of the Day for Tuesday, April 18, 2023.`\
 https://nytimes.com/2023/04/17/pageoneplus/quotation-of-the-day-us-builds-war-crimes-case-after-americans-execution-in-syria.html?searchResultPosition=9
 
-**The 100 Best Restaurants in New York City**\
-`Our critic, Pete Wells, ranks his favorites in all five boroughs.`\
-https://nytimes.com/interactive/2023/dining/best-nyc-restaurants.html?searchResultPosition=10
+**A Novel From North Korea Offers Glimpses of the Everyday**\
+`First published in 1988, “Friend,” by Paek Nam-nyong, is a candid examination of domestic conflict and female ambition.`\
+https://nytimes.com/2020/05/05/books/review/paek-nam-nyong-friend.html?searchResultPosition=10
 
