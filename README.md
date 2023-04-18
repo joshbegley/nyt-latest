@@ -12,7 +12,7 @@ https://nytimes.com/2023/04/18/books/review/gravity-and-center-sonnets-henri-col
 
 **2023 Tribeca Festival Unveils a Lineup Filled With Stars Turned Directors**\
 `Chelsea Peretti, Michael Shannon and Randall Park, among others, are making their directorial debuts at the annual New York event, set for June.`\
-https://nytimes.com/2023/04/18/movies/2023-tribeca-festival-chelsea-peretti-michael-shannon.html?searchResultPosition=4
+https://nytimes.com/2023/04/18/movies/tribeca-film-festival-2023-lineup.html?searchResultPosition=4
 
 **Review: A Tenor Arrives at the Met Opera in ‘Elisir’**\
 `The 27-year-old Xabier Anduaga debuted in the role of Nemorino in a revival of Donizetti’s romantic comedy.`\
