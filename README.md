@@ -34,7 +34,7 @@ https://nytimes.com/2023/04/18/nyregion/art-dealer-sanctions-hezbollah.html?sear
 `The Ann Street structure fell in, leaving cars stacked atop one another and rubble down to street level. The number of those harmed and trapped was unknown.`\
 https://nytimes.com/2023/04/18/nyregion/nyc-parking-garage-collapse.html?searchResultPosition=9
 
-**Progressives to Challenge Adams Over Cuts to Schools and Libraries**\
-`The progressive caucus will rally on Wednesday to oppose the mayor’s budget and to call for more spending on housing, schools and mental health services.`\
-https://nytimes.com/2023/04/18/nyregion/eric-adams-budget-progressive-nyc.html?searchResultPosition=10
+**Here are the other legal cases Fox is entangled in.**\
+`Cases on libel and a discriminatory work environment are still pending.`\
+https://nytimes.com/2023/04/18/business/media/fox-lawsuits-legal-cases.html?searchResultPosition=10
 
