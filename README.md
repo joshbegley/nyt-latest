@@ -34,7 +34,7 @@ https://nytimes.com/2023/04/17/world/europe/kara-murza-russia-prison.html?search
 `It might be the greatest victory of this city and the world running community that the marathon bombings a decade ago had far from an overwhelming presence in Monday’s race.`\
 https://nytimes.com/2023/04/17/sports/boston-marathon-running-10-years-later.html?searchResultPosition=9
 
-**Texas to New Jersey: Tracking the Toxic Chemicals in the Ohio Train Inferno**\
-`Tankers of vinyl chloride were going halfway across the country, government records show, a trip highlighting the risks of transporting chemicals as plastics production grows.`\
-https://nytimes.com/2023/04/17/climate/train-fire-palestine-plastics-pvc.html?searchResultPosition=10
+**Who are the Rapid Support Forces, the paramilitary group fighting the Sudanese Army?**\
+`The unit traces its origins from the notorious Janjaweed militias, which in the 2000s helped Sudan’s Army crush a rebellion in the western region of Darfur.`\
+https://nytimes.com/2023/04/17/world/africa/paramilitary-rsf-explainer.html?searchResultPosition=10
 
