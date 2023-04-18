@@ -7,7 +7,7 @@ https://nytimes.com/interactive/2023/dining/best-nyc-restaurants.html?searchResu
 https://nytimes.com/2023/04/17/business/china-gdp-q1-2023.html?searchResultPosition=2
 
 **‘Perry Mason’ Season 2, Episode 7: Case Closed**\
-`The season finale offered some comeuppance and well-deserved praise, but if you thought this story would end with the world set to rights, you’re mistaken.`\
+`The season finale`\
 https://nytimes.com/2023/04/17/arts/television/perry-mason-season-finale-recap.html?searchResultPosition=3
 
 **Open Wide**\
