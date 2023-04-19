@@ -6,13 +6,13 @@ https://nytimes.com/2023/04/19/world/africa/sudan-fighting-ceasefire.html?search
 `Defense Secretary Lloyd J. Austin III, visiting Sweden, said he hoped that objections to adding the country to the alliance would be ironed out by midsummer, when member states meet in Lithuania.`\
 https://nytimes.com/2023/04/19/world/europe/nato-sweden-ukraine-austin.html?searchResultPosition=2
 
-**I Want to Be the Old Man With the Orange Socks**\
-`I’ve often been delighted by how older men lean into sartorial whimsy when they exit workplace life.`\
-https://nytimes.com/2023/04/19/opinion/orange-socks-older-age.html?searchResultPosition=3
-
 **Progressives Organize Fresh Nationwide Push for Changes at the Supreme Court**\
 `The drive by more than 30 organizations, some new to the effort, comes as ethics questions have engulfed Justice Clarence Thomas.`\
-https://nytimes.com/2023/04/19/us/politics/progressives-supreme-court-changes.html?searchResultPosition=4
+https://nytimes.com/2023/04/19/us/politics/progressives-supreme-court-changes.html?searchResultPosition=3
+
+**I Want to Be the Old Man With the Orange Socks**\
+`I’ve often been delighted by how older men lean into sartorial whimsy when they exit workplace life.`\
+https://nytimes.com/2023/04/19/opinion/orange-socks-older-age.html?searchResultPosition=4
 
 **Garage That Collapsed, Killing One, Was Due for Inspection This Year**\
 `The parking structure in Lower Manhattan, originally built in 1925, had unresolved safety violations, city officials said.`\
