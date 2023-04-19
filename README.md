@@ -1,40 +1,40 @@
+**Draymond Green’s Fire Could Burn the Whole House Down**\
+`The Golden State forward’s antics are a constant threat to his team’s championship hopes.`\
+https://nytimes.com/2023/04/19/sports/basketball/draymond-green-golden-state-warriors.html?searchResultPosition=1
+
 **Frank Ocean Pulls Out of Coachella, Citing Leg Injury**\
 `The singer-songwriter’s performance there on Sunday was his first large-scale concert in years, but his scheduled second act has been canceled in response to medical advice, a representative said.`\
-https://nytimes.com/2023/04/19/arts/frank-ocean-coachella-cancelled.html?searchResultPosition=1
+https://nytimes.com/2023/04/19/arts/frank-ocean-coachella-cancelled.html?searchResultPosition=2
 
 **Stampede in Yemen’s Capital Kills at Least 78 Seeking Food Aid, Houthis Say**\
 `Hundreds of people had gathered at a school for an event organized by merchants, according to the Houthi-run Interior Ministry.`\
-https://nytimes.com/2023/04/19/world/middleeast/yemen-stampede-food-aid.html?searchResultPosition=2
+https://nytimes.com/2023/04/19/world/middleeast/yemen-stampede-food-aid.html?searchResultPosition=3
 
 **Mayor Adams Criticizes Biden in Rare Public Rebuke Over Migrant Crisis**\
 `The mayor blamed the White House for not doing enough to help New York City deal with the influx of migrants, or helping them find work.`\
-https://nytimes.com/2023/04/19/nyregion/adams-biden-migrants.html?searchResultPosition=3
+https://nytimes.com/2023/04/19/nyregion/adams-biden-migrants.html?searchResultPosition=4
 
 **G.O.P. Immigration Agenda Faces Stiff Odds in Divided House**\
 `Not enough Republican members are yet on board with either impeachment proceedings against the Homeland Security secretary or border security legislation.`\
-https://nytimes.com/2023/04/19/us/politics/gop-immigration-house.html?searchResultPosition=4
+https://nytimes.com/2023/04/19/us/politics/gop-immigration-house.html?searchResultPosition=5
 
 **Inspector General Says U.S. Aid May Be Flowing to the Taliban**\
 `The special inspector general for Afghanistan’s reconstruction accused the Biden administration of blocking his efforts to track assistance.`\
-https://nytimes.com/2023/04/19/us/politics/us-aid-taliban-congress-afghanistan.html?searchResultPosition=5
+https://nytimes.com/2023/04/19/us/politics/us-aid-taliban-congress-afghanistan.html?searchResultPosition=6
 
 **Uneven Cease-Fire in Sudan Makes Escape Hard for Desperate Civilians**\
 `The army and the paramilitary group it is battling agreed to a 24-hour cease-fire. But many residents were unsure whether the truce was solid enough to safely flee.`\
-https://nytimes.com/2023/04/19/world/africa/sudan-fighting-ceasefire.html?searchResultPosition=6
+https://nytimes.com/2023/04/19/world/africa/sudan-fighting-ceasefire.html?searchResultPosition=7
 
 **U.S. Defense Secretary Urges Swift NATO Membership for Sweden**\
 `Defense Secretary Lloyd J. Austin III, visiting Sweden, said he hoped that objections to adding the country to the alliance would be ironed out by midsummer, when member states meet in Lithuania.`\
-https://nytimes.com/2023/04/19/world/europe/nato-sweden-ukraine-austin.html?searchResultPosition=7
+https://nytimes.com/2023/04/19/world/europe/nato-sweden-ukraine-austin.html?searchResultPosition=8
 
 **Progressives Organize Fresh Nationwide Push for Changes at the Supreme Court**\
 `The drive by more than 30 organizations, some new to the effort, comes as ethics questions have engulfed Justice Clarence Thomas.`\
-https://nytimes.com/2023/04/19/us/politics/progressives-supreme-court-changes.html?searchResultPosition=8
+https://nytimes.com/2023/04/19/us/politics/progressives-supreme-court-changes.html?searchResultPosition=9
 
 **I Want to Be the Old Man With the Orange Socks**\
 `I’ve often been delighted by how older men lean into sartorial whimsy when they exit workplace life.`\
-https://nytimes.com/2023/04/19/opinion/orange-socks-older-age.html?searchResultPosition=9
-
-**Garage That Collapsed, Killing One, Was Due for Inspection This Year**\
-`The parking structure in Lower Manhattan, originally built in 1925, had unresolved safety violations, city officials said.`\
-https://nytimes.com/2023/04/19/nyregion/nyc-garage-collapse.html?searchResultPosition=10
+https://nytimes.com/2023/04/19/opinion/orange-socks-older-age.html?searchResultPosition=10
 
