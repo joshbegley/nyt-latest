@@ -30,8 +30,8 @@ https://nytimes.com/2023/04/19/arts/music/moonbin-kpop-astro-dead.html?searchRes
 `Alvin L. Bragg, Manhattan’s district attorney, had tried to stop Mark F. Pomerantz from speaking with a U.S. House committee examining the criminal case against Donald J. Trump.`\
 https://nytimes.com/2023/04/19/nyregion/judge-bragg-jordan-trump-inquiry.html?searchResultPosition=8
 
-**A meteor? A falling spacecraft? A mysterious light over Kyiv prompts sirens and speculation.**\
-`Theories ran rampant among the public and officials after the Ukrainian capital was illuminated by a sudden flash late Wednesday night.`\
+**A flash of light over Kyiv prompts sirens and anxiety.**\
+`Theories ran rampant among the public and officials after the Ukrainian capital was illuminated Wednesday night, but Ukrainian agencies pointed to a satellite on re-entry or a meteor.`\
 https://nytimes.com/2023/04/19/world/europe/flash-over-kyiv.html?searchResultPosition=9
 
 **U.S. Authorizes a New Round of Covid Boosters**\
