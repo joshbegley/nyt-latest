@@ -18,7 +18,7 @@ https://nytimes.com/2023/04/19/sports/joasia-zakrzewski-ultramarathon-cheating.h
 `A year into the war, some residents of eastern Ukrainian towns still confound officials and the police with their support for Russia despite the constant bombardment from Russian forces.`\
 https://nytimes.com/2023/04/19/world/europe/ukraine-russia-donbas-propaganda.html?searchResultPosition=5
 
-**Bear That Killed Jogger Is Captured in Italy**\
+**Bear That Killed Jogger in Italy Is Captured**\
 `The governor of a province in a mountainous region of the country’s north sought to euthanize the bear, known as JJ4, but a court is reviewing the matter.`\
 https://nytimes.com/2023/04/19/world/europe/bear-captured-italy-jogger.html?searchResultPosition=6
 
