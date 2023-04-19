@@ -8,7 +8,7 @@ https://nytimes.com/2023/04/19/arts/television/the-diplomat-review.html?searchRe
 
 **Our Best Lemon Dessert Recipes**\
 `Bars, pies, cakes: We have all the sweet-tart classics and new favorites, too.`\
-https://nytimes.com/2023/04/19/dining/lemon-dessert-recipes.html?searchResultPosition=3
+https://nytimes.com/article/lemon-dessert-recipes.html?searchResultPosition=3
 
 **Is the World Really Turning Away from the United States?**\
 `Despite talk of multipolarity, the pull of American power remains strong.`\
