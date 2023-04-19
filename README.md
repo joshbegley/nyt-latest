@@ -4,7 +4,7 @@ https://nytimes.com/2023/04/19/arts/music/moonbin-kpop-astro-dead.html?searchRes
 
 **Judge Rules That Lawmakers Can Ask Ex-Prosecutor About Trump Inquiry**\
 `Alvin L. Bragg, Manhattan’s district attorney, had tried to stop Mark F. Pomerantz from speaking with a U.S. House committee examining the criminal case against Donald J. Trump.`\
-https://nytimes.com/2023/04/19/nyregion/judge-rules-that-lawmakers-can-ask-ex-prosecutor-about-trump-inquiry.html?searchResultPosition=2
+https://nytimes.com/2023/04/19/nyregion/judge-bragg-jordan-trump-inquiry.html?searchResultPosition=2
 
 **A meteor? A falling spacecraft? A mysterious light over Kyiv prompts sirens and speculation.**\
 `Theories ran rampant among the public and officials after the Ukrainian capital was illuminated by a sudden flash late Wednesday night.`\
