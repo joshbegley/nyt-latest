@@ -6,7 +6,7 @@ https://nytimes.com/2023/04/19/arts/television/mrs-davis-review.html?searchResul
 `The justices rejected key arguments from Halkbank, which is owned by the Turkish government. But they told a lower court to revisit one possible defense.`\
 https://nytimes.com/2023/04/19/us/supreme-court-turkish-bank-halkbank.html?searchResultPosition=2
 
-**Fox News Settled, but Similar 2020 Election Lawsuits Are Pending**\
+**Fox News Settled Its Suit, but Similar 2020 Election Cases Are Pending**\
 `Another election technology company, Smartmatic, is suing news outlets, including Fox, over false claims of election fraud, and Dominion has other cases pending.`\
 https://nytimes.com/2023/04/19/business/smartmatic-fox-dominion-lawsuits.html?searchResultPosition=3
 
