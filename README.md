@@ -2,7 +2,7 @@
 `“I just hope to God he dies in jail,” said Kaylin Gillis’s father of the man charged in the fatal shooting of his daughter.`\
 https://nytimes.com/2023/04/19/nyregion/kaylin-gillis-father-wrong-driveway-shooting.html?searchResultPosition=1
 
-**House G.O.P. Unveils Debt Limit Bill Lifting Borrowing Cap by One Year**\
+**House G.O.P. Unveils Debt Limit Bill Lifting Borrowing Cap for One Year**\
 `The proposal would impose work requirements on food stamp and Medicaid recipients and repeal funding to beef up tax enforcement.`\
 https://nytimes.com/2023/04/19/us/politics/house-republicans-debt-limit-bill.html?searchResultPosition=2
 
