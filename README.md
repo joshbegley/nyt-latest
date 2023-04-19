@@ -2,7 +2,7 @@
 `The settlement in federal court with people who were held in solitary while they awaited trials is one of the largest involving the city’s Correction Department and its troubled lockups, including Rikers Island.`\
 https://nytimes.com/2023/04/19/nyregion/rikers-settlement-solitary-confinement.html?searchResultPosition=1
 
-**Victory or Defeat? For Some Fox Critics, Defamation Case Was a Split Decision**\
+**Victory or Defeat? For Some Fox Critics, Defamation Case Was a Split Decision.**\
 `The $787.5 million settlement was among the highest ever for a defamation lawsuit. But some wanted to see Rupert Murdoch face a stiffer penalty.`\
 https://nytimes.com/2023/04/19/business/media/fox-dominion-settlement-murdoch.html?searchResultPosition=2
 
