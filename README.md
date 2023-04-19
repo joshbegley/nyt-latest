@@ -1,6 +1,6 @@
 **Moonbin, Member of K-Pop Band ASTRO, Dies at 25**\
 `The K-pop star was found dead on Wednesday at his home in Seoul.`\
-https://nytimes.com/2023/04/19/us/moonbin-kpop-astro-dead.html?searchResultPosition=1
+https://nytimes.com/2023/04/19/arts/music/moonbin-kpop-astro-dead.html?searchResultPosition=1
 
 **Judge Rules That Lawmakers Can Ask Ex-Prosecutor About Trump Inquiry**\
 `Alvin L. Bragg, Manhattan’s district attorney, had tried to stop Mark F. Pomerantz from speaking with a U.S. House committee examining the criminal case against Donald J. Trump.`\
