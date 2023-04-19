@@ -1,5 +1,5 @@
 **Otis Redding III, Who Followed His Father Into Music, Dies at 59**\
-`He said he was grateful for Otis Redding’s enduring legacy even if it overshadowed his efforts to make music of his own.`\
+`He was grateful for Otis Redding’s enduring legacy, he said,d even if it overshadowed his efforts to make music of his own.`\
 https://nytimes.com/2023/04/19/arts/music/otis-redding-iii-dead.html?searchResultPosition=1
 
 **An A.I. Hit of Fake ‘Drake’ and ‘The Weeknd’ Rattles the Music World**\
