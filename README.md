@@ -1,4 +1,4 @@
-**I Watched a De-mining Team at Work**\
+**I Watched a De-Mining Team at Work**\
 `For Ukraine’s counteroffensive to succeed, its army will have to traverse land covered in Russian mines. That’s where the Dragon comes in.`\
 https://nytimes.com/interactive/2023/04/19/world/ukraine-war-demining-team.html?searchResultPosition=1
 
