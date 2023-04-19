@@ -1,4 +1,4 @@
-**Victim’s Father Breaks Down After Bail Denied in Wrong-Driveway Shooting**\
+**Victim’s Father Breaks Down as Bail Is Denied in Wrong-Driveway Shooting**\
 `“I just hope to God he dies in jail,” said Kaylin Gillis’s father of the man charged in the fatal shooting of his daughter.`\
 https://nytimes.com/2023/04/19/nyregion/kaylin-gillis-father-wrong-driveway-shooting.html?searchResultPosition=1
 
