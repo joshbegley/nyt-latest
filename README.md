@@ -1,4 +1,4 @@
-**What’s Next for Dominion After Its $787.5 Million Settlement with Fox News?**\
+**What’s Next for Dominion After Its $787.5 Million Settlement With Fox News?**\
 `The election technology company has several more defamation lawsuits pending against public figures and news outlets.`\
 https://nytimes.com/2023/04/19/business/media/dominion-fox-news-settlement.html?searchResultPosition=1
 
