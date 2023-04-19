@@ -14,13 +14,13 @@ https://nytimes.com/slideshow/2023/04/19/realestate/what-goes-into-a-container-g
 `So far, nothing from the city’s curbside composting program has been composted. But gas produced by the scraps is now consistently flowing into pipelines to serve homes.`\
 https://nytimes.com/2023/04/19/nyregion/nyc-composting-food-waste.html?searchResultPosition=4
 
-**The Kylix Marvel: Why Experts Distrust the Story of an Ancient Cup’s Rebirth**\
-`Investigators seized the Attic Greek cup from the Met last year. They, and others, doubt the museum’s reconstruction of it from fragments was simply a product of genius.`\
-https://nytimes.com/2023/04/19/arts/kylix-cup-greek-metropolitan-museum.html?searchResultPosition=5
-
 **Sudan’s Generals Dined With Peace Negotiators. Then Started a War.**\
 `What led the two generals, recently allies, to turn their forces on each other — devastating a country of 45 million people?`\
-https://nytimes.com/2023/04/19/world/africa/sudan-war-army-paramilitary.html?searchResultPosition=6
+https://nytimes.com/2023/04/19/world/africa/sudan-war-army-paramilitary.html?searchResultPosition=5
+
+**The Kylix Marvel: Why Experts Distrust the Story of an Ancient Cup’s Rebirth**\
+`Investigators seized the Attic Greek cup from the Met last year. They, and others, doubt the museum’s reconstruction of it from fragments was simply a product of genius.`\
+https://nytimes.com/2023/04/19/arts/kylix-cup-greek-metropolitan-museum.html?searchResultPosition=6
 
 **California Has So Many Potholes, Arnold Schwarzenegger and Bikers Are Trying to Fill Them**\
 `A torrent of winter storms left an overwhelming number of potholes across the state, and road crews are struggling to keep up with the backlog.`\
