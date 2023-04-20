@@ -20,7 +20,7 @@ https://nytimes.com/2023/04/20/us/politics/biden-monica-bertagnolli-nih.html?sea
 
 **Peas and Feta Make Everything Better**\
 `These three recipes take 30 minutes or less, and sing of spring.`\
-https://nytimes.com/2023/04/20/dining/peas-and-feta-make-everything-better.html?searchResultPosition=6
+https://nytimes.com/2023/04/20/dining/pea-feta-spring-recipes.html?searchResultPosition=6
 
 **Israel’s Right-Wing Government Has Jewish Democrats at a Loss**\
 `American lawmakers defending Israel have often fallen back on what they call the countries’ shared democratic values. But defending the current far-right government is proving a lot harder.`\
