@@ -4,7 +4,7 @@ https://nytimes.com/interactive/2023/04/20/us/politics/money-financial-figures.h
 
 **Jan. 6 Defendant Opens Fire on Deputies Before Surrender to the F.B.I.**\
 `The Texas man, who had been charged with misdemeanors for entering the Capitol, was arrested on a felony count of shooting at local law enforcement officers.`\
-https://nytimes.com/2023/04/20/us/politics/jan-6-defendant-opens-fire-on-deputies-before-surrender-to-the-fbi.html?searchResultPosition=2
+https://nytimes.com/2023/04/20/us/politics/jan-6-defendant-texas-pelham.html?searchResultPosition=2
 
 **‘Twilight’ Review: Film Noir in the Hungarian Hills**\
 `A retired detective returns to his job to hunt down a child killer in this distinctive and Béla Tarr-influenced film.`\
