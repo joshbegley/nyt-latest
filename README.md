@@ -2,7 +2,7 @@
 `Anyone who had a U.S. Facebook account between May 2007 and December 2022 is eligible to apply, though payouts are likely to be small.`\
 https://nytimes.com/2023/04/20/business/facebook-settlement-apply.html?searchResultPosition=1
 
-**16 Percent Increases? New York City Panel Considers New Rent Hikes.**\
+**New York City Panel Weighs Rent Increases of Up to 16 Percent**\
 `A New York City panel may allow rents to rise in roughly one million rent-stabilized apartments. But increases as large as those discussed by the panel — up to 15.75 percent on two-year leases — are unlikely.`\
 https://nytimes.com/2023/04/20/nyregion/rent-stabilized-apartments-nyc.html?searchResultPosition=2
 
