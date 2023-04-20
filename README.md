@@ -2,8 +2,8 @@
 `Malachi Robinson lured a 16-year-old boy into a wooded area in Kansas City, Mo., in 2019 and shot him eight times, prosecutors said. The boy survived the attack.`\
 https://nytimes.com/2023/04/20/us/lgbtq-hate-crime-missouri-shooting.html?searchResultPosition=1
 
-**After 20 Years, an Arrest in Murder of an N.Y.P.D. Detective’s Daughter**\
-`Megan McDonald, 20, was found dead near a dirt path in Middletown, about two hours north of New York City. This week, her former boyfriend was arrested.`\
+**After 20 Years, an Arrest in the Murder of a Detective’s Daughter**\
+`Megan McDonald, whose father was a Police Department detective, was found dead near a dirt path outside Middletown, N.Y. This week, her former boyfriend was arrested.`\
 https://nytimes.com/2023/04/20/nyregion/megan-mcdonald-cold-case-arrest.html?searchResultPosition=2
 
 **Forensic Psychiatrist Calls Ex-C.I.A. Prisoner’s Confession Voluntary**\
@@ -18,8 +18,8 @@ https://nytimes.com/2023/04/20/sports/baseball/shohei-ohtani-bo-jackson.html?sea
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2023/04/20/books/review/9-new-books-we-recommend-this-week.html?searchResultPosition=5
 
-**City Worker Whose Job Was to Help People Is Charged With Abusing Them**\
-`An employee of a New York City agency threatened and harassed two customers whose inquiries he fielded, officials said.`\
+**They Called for Help With Bills. He Menaced Them Instead, Officials Say.**\
+`An employee of a New York City agency is charged with threatening and harassing two customers whose inquiries he fielded.`\
 https://nytimes.com/2023/04/20/nyregion/nyc-worker-customer-harassment.html?searchResultPosition=6
 
 **Making Manufacturing Greater Again**\
