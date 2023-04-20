@@ -28,7 +28,7 @@ https://nytimes.com/2023/04/20/learning/sunshine-and-rain.html?searchResultPosit
 
 **Deadly Weather Strikes Oklahoma**\
 `At least two people died in the storm that ripped through central Oklahoma.`\
-https://nytimes.com/video/us/100000008867286/deadly-tornado-storm-hit-oklahoma.html?searchResultPosition=8
+https://nytimes.com/video/us/100000008867286/tornado-deaths-cole-oklahoma.html?searchResultPosition=8
 
 **Jimmy Kimmel Chides Fox News for Not Covering Its Lawsuit Settlement**\
 `Kimmel joked the lack of coverage had to be an oversight: “Man, oh, man, is Rupert Murdoch going to be mad when he finds out about this!”`\
