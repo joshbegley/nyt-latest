@@ -1,6 +1,6 @@
 **Man Sentenced to 10 Months for Leaving Nooses and Racist Notes**\
 `Kenneth D. Pilon, 62, pleaded guilty in December to willfully intimidating and attempting to intimidate citizens from engaging in lawful speech and protests in support of the Black Lives Matter movement in 2020.`\
-https://nytimes.com/2023/04/19/us/man-sentenced-to-10-months-for-leaving-nooses-and-racist-notes.html?searchResultPosition=1
+https://nytimes.com/2023/04/19/us/blm-hate-crimes-man-sentenced.html?searchResultPosition=1
 
 **Todd Haimes, Who Rebuilt Roundabout Theater Company, Dies at 66**\
 `After rescuing the company from bankruptcy, he turned it into a major player on Broadway and one of the largest nonprofit theater companies in the country.`\
