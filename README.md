@@ -1,4 +1,4 @@
-**Deadly Tornado, Storm Hit Oklahoma**\
+**Deadly Weather Strikes Oklahoma**\
 `At least two people died in the storm that ripped through central Oklahoma.`\
 https://nytimes.com/video/us/100000008867286/deadly-tornado-storm-hit-oklahoma.html?searchResultPosition=1
 
