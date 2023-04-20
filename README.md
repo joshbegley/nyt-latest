@@ -1,4 +1,4 @@
-**After 20 Years, an Arrest in the Killing of an N.Y.P.D. Detective’s Daughter**\
+**After 20 Years, an Arrest in Murder of an N.Y.P.D. Detective’s Daughter**\
 `Megan McDonald, 20, was found dead near a dirt path in Middletown, about two hours north of New York City. This week, her former boyfriend was arrested.`\
 https://nytimes.com/2023/04/20/nyregion/megan-mcdonald-cold-case-arrest.html?searchResultPosition=1
 
