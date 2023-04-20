@@ -6,7 +6,7 @@ https://nytimes.com/video/us/politics/100000008867747/montana-zooey-zephyr-trans
 `Amid rising political tensions, the orchestra said it would perform in Hong Kong and Taiwan this summer and send a delegation of musicians to mainland China.`\
 https://nytimes.com/2023/04/20/arts/music/new-york-philharmonic-asia-tour.html?searchResultPosition=2
 
-**Man Charged With Torturing Teenage Siblings in the Bronx**\
+**Man Is Charged With Torturing Teenage Siblings in the Bronx**\
 `The siblings, ages 14 and 13, said they had been held captive in an apartment since January. The authorities charged a man with beating and whipping them and threatening them at gunpoint.`\
 https://nytimes.com/2023/04/20/nyregion/bronx-teenagers-tortured-abuse.html?searchResultPosition=3
 
