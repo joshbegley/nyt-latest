@@ -16,7 +16,7 @@ https://nytimes.com/2023/04/20/science/doctor-death-astrazeneca-covid-vaccine.ht
 
 **Twitter Begins Removing Check Marks From Accounts**\
 `Elon Musk, the owner of the social media service, has begun to charge a subscription fee for the verification symbol.`\
-https://nytimes.com/2023/04/20/technology/twitter-removes-check-marks.html?searchResultPosition=5
+https://nytimes.com/2023/04/20/technology/twitter-blue-check-marks.html?searchResultPosition=5
 
 **‘Don’t Say Gay’ Is Just ‘Don’t Ask, Don’t Tell’ for Kids**\
 `Laws like the Florida bill will cause harm whether or not direct censorship actually takes place.`\
