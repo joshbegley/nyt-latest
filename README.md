@@ -1,4 +1,4 @@
-**Richard Riordan, Former Mayor of Los Angeles, Dies at 92**\
+**Richard Riordan, Mayor of an Uneasy Los Angeles, Dies at 92**\
 `He was a successful businessman before taking office in 1993 amid civil unrest after the police beating of Rodney King. He became known for impolitic wisecracking.`\
 https://nytimes.com/2023/04/20/us/politics/richard-riordan-dead.html?searchResultPosition=1
 
