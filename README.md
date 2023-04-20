@@ -1,6 +1,6 @@
 **How Freeing Ukraine’s Trapped Grain Rankled Farmers Elsewhere in Europe**\
 `When Russia’s war blocked vitally needed grains at Ukrainian ports, officials succeeded in finding other routes out. But the solution brought its own problems.`\
-https://nytimes.com/2023/04/20/world/europe/ukrainian-grain-imports.html?searchResultPosition=1
+https://nytimes.com/2023/04/20/world/europe/ukraine-grain-imports-ban.html?searchResultPosition=1
 
 **How Hard Lines in Fox-Dominion Deal Talks Suddenly Softened**\
 `The $787.5 million settlement, believed to be the largest in a defamation case, came together quickly.`\
