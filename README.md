@@ -23,7 +23,7 @@ https://nytimes.com/video/world/africa/100000008867145/yemen-stampede-food-aid.h
 https://nytimes.com/2023/04/19/theater/peter-pan-goes-wrong-review.html?searchResultPosition=6
 
 **Mighty Patch Target**\
-`Simeon Siegel is back with a confounding and evil puzzle theme. I loved it.`\
+`Simeon Seigel is back with a confounding and evil puzzle theme. I loved it.`\
 https://nytimes.com/2023/04/19/crosswords/daily-puzzle-2023-04-20.html?searchResultPosition=7
 
 **Man Sentenced to 10 Months for Leaving Nooses and Racist Notes**\
