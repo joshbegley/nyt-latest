@@ -1,6 +1,6 @@
 **Rare Total Eclipse Visible From Australia**\
 `Exmouth in Western Australia was one of very few locations where star gazers could catch this solar eclipse.`\
-https://nytimes.com/video/science/space/100000008867151/hybrid-solar-eclipse-australia.html?searchResultPosition=1
+https://nytimes.com/video/science/space/100000008867151/total-solar-eclipse-australia.html?searchResultPosition=1
 
 **The New Tiffany, Unboxed**\
 `After a makeover that took nearly four years, the jewelry company’s famous flagship store in Manhattan is set to reopen under new ownership.`\
