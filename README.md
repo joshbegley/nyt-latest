@@ -1,5 +1,5 @@
-**Biden Re-election Announcement May Come Next Week**\
-`A campaign video is said to be in production, and donors are being mobilized, for a run that could be announced as early as Tuesday.`\
+**Biden in Final Stage of ’24 Planning, With Announcement as Soon as Tuesday**\
+`A campaign video is said to be in production, and donors are being mobilized, for a run that could be announced early next week.`\
 https://nytimes.com/2023/04/20/us/politics/biden-presidential-announcement.html?searchResultPosition=1
 
 **Christie, in New Hampshire, Reconnects With 2016 Supporters**\
