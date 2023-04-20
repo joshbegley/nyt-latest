@@ -1,5 +1,5 @@
-**Fox Can Claim a Big Tax Break From Its Dominion Settlement**\
-`The $787.5 million payout by Rupert Murdoch’s media empire to settle defamation claims by the voting machine company may not be that costly after all.`\
+**The Tax Break That Could Save Fox Millions in Its Dominion Settlement**\
+`The payout by Rupert Murdoch’s media empire to settle defamation claims by the voting machine company may be less costly than first thought.`\
 https://nytimes.com/2023/04/20/business/dealbook/fox-dominion-settlement-tax-break.html?searchResultPosition=1
 
 **Book Bans Rising Rapidly in the U.S., Free Speech Groups Find**\
