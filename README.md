@@ -10,7 +10,7 @@ https://nytimes.com/2023/04/20/business/media/fox-dominion-misinformation.html?s
 `A decade after its rebirth, the company is assured and radiant in a challenging Balanchine and a moody piece set to James Blake’s electronic soul music.`\
 https://nytimes.com/2023/04/20/arts/dance/dance-theater-of-harlem-review.html?searchResultPosition=3
 
-**Italy’s Senate Signs off on Meloni’s Migrant Crackdown**\
+**Italy’s Senate Signs Off on Meloni’s Migrant Crackdown**\
 `The package is the first major take on immigration by the hard-right government of Prime Minister Giorgia Meloni and would limit integration and create more detention facilities.`\
 https://nytimes.com/2023/04/20/world/europe/italy-immigration-crackdown.html?searchResultPosition=4
 
