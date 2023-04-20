@@ -1,40 +1,40 @@
+**The New Tiffany, Unboxed**\
+`After a makeover that took nearly four years, the jewelry company’s famous flagship store in Manhattan is set to reopen under new ownership.`\
+https://nytimes.com/2023/04/20/style/the-new-tiffany-unboxed.html?searchResultPosition=1
+
+**Why Solving Climate Change Is Not an Issue Where We ‘Succeed or Fail’**\
+`A climate reporter explains the findings of a distressing report and why the crisis never really fades from the news cycle, even if it seems otherwise.`\
+https://nytimes.com/2023/04/20/insider/why-solving-climate-change-is-not-an-issue-where-we-succeed-or-fail.html?searchResultPosition=2
+
+**Can Coach Get Shoppers to Buy Bags Made From Waste Scraps?**\
+`Coachtopia, a new sub-brand from the American fashion house, uses waste or recycled materials to make new products. Will it catch on?`\
+https://nytimes.com/2023/04/20/fashion/coach-coachtopia-sustainable-fashion.html?searchResultPosition=3
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2023/04/20/crosswords/spelling-bee-forum.html?searchResultPosition=4
+
+**Today’s Wordle Review**\
+`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
+https://nytimes.com/2023/04/20/crosswords/wordle-review-answer-670.html?searchResultPosition=5
+
+**Sunshine and Rain**\
+`What do you think this image is communicating?`\
+https://nytimes.com/2023/04/20/learning/sunshine-and-rain.html?searchResultPosition=6
+
 **Deadly Weather Strikes Oklahoma**\
 `At least two people died in the storm that ripped through central Oklahoma.`\
-https://nytimes.com/video/us/100000008867286/deadly-tornado-storm-hit-oklahoma.html?searchResultPosition=1
+https://nytimes.com/video/us/100000008867286/deadly-tornado-storm-hit-oklahoma.html?searchResultPosition=7
 
 **Jimmy Kimmel Chides Fox News for Not Covering Its Lawsuit Settlement**\
 `Kimmel joked the lack of coverage had to be an oversight: “Man, oh, man, is Rupert Murdoch going to be mad when he finds out about this!”`\
-https://nytimes.com/2023/04/20/arts/television/kimmel-fox-news.html?searchResultPosition=2
+https://nytimes.com/2023/04/20/arts/television/kimmel-fox-news.html?searchResultPosition=8
 
 **Word of the Day: capsize**\
 `This word has appeared in 14 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/04/20/learning/word-of-the-day-capsize.html?searchResultPosition=3
+https://nytimes.com/2023/04/20/learning/word-of-the-day-capsize.html?searchResultPosition=9
 
 **At Least 2 Dead as Tornado Hits Oklahoma**\
 `The deaths were reported in the area of Cole, a town of about 600 people south of Oklahoma City, the police said.`\
-https://nytimes.com/2023/04/20/us/tornado-deaths-cole-oklahoma.html?searchResultPosition=4
-
-**Naples Starts to Believe**\
-`For the first time in three decades, Napoli stands on the cusp of an Italian soccer championship. Its city did not want to waste any time celebrating.`\
-https://nytimes.com/2023/04/20/sports/soccer/napoli-serie-a-scudetto.html?searchResultPosition=5
-
-**Your Thursday Briefing**\
-`India will soon have the world’s largest population.`\
-https://nytimes.com/2023/04/20/briefing/india-china-population-yemen-europe.html?searchResultPosition=6
-
-**The Borscht Belt Is History. Now It Will Have a Museum.**\
-`A former bank building in Ellenville, N.Y., will house objects from resort hotels like Grossinger’s that were nestled in the Catskill Mountains.`\
-https://nytimes.com/2023/04/20/nyregion/borscht-belt-museum.html?searchResultPosition=7
-
-**Corrections: April 20, 2023**\
-`Corrections that appeared in print on Thursday, April 20, 2023.`\
-https://nytimes.com/2023/04/19/pageoneplus/corrections-april-20-2023.html?searchResultPosition=8
-
-**Quotation of the Day: Win, Lose or Draw? Making Sense of a Settlement.**\
-`Quotation of the Day for Thursday, April 20, 2023.`\
-https://nytimes.com/2023/04/19/pageoneplus/quotation-of-the-day-win-lose-or-draw-making-sense-of-a-settlement.html?searchResultPosition=9
-
-**Stampede in Yemen Kills Scores**\
-`Witnesses said that gunshots fired in an attempt to manage the crowd, which had gathered to receive financial aid, hit a wire and caused an explosion that sparked the panic.`\
-https://nytimes.com/video/world/africa/100000008867145/yemen-stampede-food-aid.html?searchResultPosition=10
+https://nytimes.com/2023/04/20/us/tornado-deaths-cole-oklahoma.html?searchResultPosition=10
 
