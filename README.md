@@ -10,7 +10,7 @@ https://nytimes.com/2023/04/20/opinion/marjorie-taylor-greene.html?searchResultP
 `From special menus for canine companions to food trucks and even tasting menus, some restaurateurs are pulling out all the stops for pets.`\
 https://nytimes.com/2023/04/20/dining/dog-menus-restaurants.html?searchResultPosition=3
 
-**U.S. Positioning Marines for Evacuation of American Embassy in Sudan**\
+**U.S. Positioning Troops for Evacuation of American Embassy in Sudan**\
 `Fierce fighting has trapped people in the capital, Khartoum, and the United States says it is “conducting prudent planning” to get diplomatic staff members out.`\
 https://nytimes.com/2023/04/20/world/africa/sudan-us-evacuation-marines.html?searchResultPosition=4
 
