@@ -1,6 +1,6 @@
 **Florida Apologizes After 4:45 A.M. Emergency Alert Test**\
 `The Florida Division of Emergency Management said the early morning alert was not supposed to disturb people who were asleep.`\
-https://nytimes.com/2023/04/20/technology/emergency-alert.html?searchResultPosition=1
+https://nytimes.com/2023/04/20/us/florida-emergency-alert.html?searchResultPosition=1
 
 **What’s in the House G.O.P. Debt Limit Bill**\
 `Republicans revealed a proposal on Wednesday that would cut federal spending and unravel parts of the Biden administration’s policy agenda in exchange for lifting the nation’s borrowing cap.`\
