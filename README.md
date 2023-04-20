@@ -32,7 +32,7 @@ https://nytimes.com/2023/04/20/sports/football/dave-wilcox-dead.html?searchResul
 
 **British Man Died of Rare Blood Syndrome Linked to AstraZeneca’s Vaccine**\
 `One expert said the blood-clotting syndrome was estimated to occur in one in 50,000 people under 40 and one in 100,000 over 40 who received AstraZeneca’s vaccine.`\
-https://nytimes.com/2023/04/20/science/doctor-death-astrazeneca-covid-vaccine.html?searchResultPosition=9
+https://nytimes.com/2023/04/20/health/doctor-death-astrazeneca-covid-vaccine.html?searchResultPosition=9
 
 **Twitter Begins Removing Check Marks From Accounts**\
 `Elon Musk, the owner of the social media service, has begun to charge a subscription fee for the verification symbol.`\
