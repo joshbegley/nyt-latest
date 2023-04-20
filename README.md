@@ -35,6 +35,6 @@ https://nytimes.com/2023/04/20/us/politics/chris-christie-trump-2024.html?search
 https://nytimes.com/2023/04/20/us/politics/roberts-testify-supreme-court-ethics.html?searchResultPosition=9
 
 **Republicans Call for Censure of Transgender Lawmaker Who Condemned Care Ban**\
-`After a Democratic Montana state representative, Zooey Zephyr, said the measure was “tantamount to torture,” Republicans misgendered her and said they would formally reprimand her.`\
+`Rep. Zooey Zephyr, a  Democratic state representative in Montana, pleaded for her colleagues to reject a bill that would ban transition care for transgender minors. Republicans misgendered her and called for her to be censured.`\
 https://nytimes.com/2023/04/20/us/politics/montana-zooey-zephyr-transgender-bill.html?searchResultPosition=10
 
