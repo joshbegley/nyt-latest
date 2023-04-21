@@ -1,4 +1,4 @@
-**Sudan Army Chief Commits to Civilian Rule, but Not a Cease-Fire**\
+**Sudan Army Chief Commits to Civilian Rule, but Not a Cease-Fire for End of Ramadan**\
 `Gunfights in the capital, Khartoum, continued for a seventh day, despite calls for a pause as the Muslim-majority nation marked the end of the holy month of Ramadan.`\
 https://nytimes.com/2023/04/21/world/africa/sudan-fighting-cease-fire-eid.html?searchResultPosition=1
 
