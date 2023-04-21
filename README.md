@@ -23,7 +23,7 @@ https://nytimes.com/2023/04/21/us/california-superbloom-wildflowers.html?searchR
 https://nytimes.com/2023/04/21/business/dealbook/buzzfeed-news-shuts-down.html?searchResultPosition=6
 
 **Videos Show Russian Jet Accidentally Bombing Russian City**\
-`Video posted on social media captured what the Russian Defense Ministry said it was a mistaken hit on Belgorod, a city near the border with Ukraine. The strike, which was followed by a large explosion, wounded three people and caused panic.`\
+`Video posted on social media captured what the Russian Defense Ministry said was a mistaken hit on Belgorod, a city near the border with Ukraine. The strike, which was followed by a large explosion, wounded three people and caused panic.`\
 https://nytimes.com/video/world/europe/100000008869306/videos-show-russian-jet-accidentally-bombing-russian-city.html?searchResultPosition=7
 
 **Warriors Win at Home, Which Is Part of Their Problem**\
