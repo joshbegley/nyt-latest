@@ -1,4 +1,4 @@
-**Why BuzzFeed Is Shutting Its News Division**\
+**Why BuzzFeed Is Closing Its News Division**\
 `The publisher ultimately couldn’t surmount the challenges facing digital journalism — and many of its peers are still struggling as well.`\
 https://nytimes.com/2023/04/21/business/dealbook/buzzfeed-news-shuts-down.html?searchResultPosition=1
 
