@@ -31,7 +31,7 @@ https://nytimes.com/2023/04/21/us/politics/desantis-trump-2024.html?searchResult
 https://nytimes.com/2023/04/21/business/energy-environment/volkswagen-battery-canada.html?searchResultPosition=8
 
 **Two Former Peruvian Leaders Share the Same Jail. Another May Soon Join Them.**\
-`Alejandro Toledo, who ruled Peru two decades ago, will be extradited from the United States. He has been charged in one of Latin America’s biggest corruption  scandals.`\
+`Alejandro Toledo, who ruled Peru two decades ago, will be extradited from the United States. He has been charged in one of Latin America’s biggest corruption scandals.`\
 https://nytimes.com/2023/04/21/world/alejandro-toledo-peru-corruption.html?searchResultPosition=9
 
 **Valda Setterfield Dies at 88; a Star in the Postmodern Dance Firmament**\
