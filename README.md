@@ -6,7 +6,7 @@ https://nytimes.com/2023/04/21/opinion/us-economy-gdp.html?searchResultPosition=
 `The animal, which had ingested a bathtub stopper, had severe weight loss, extreme anemia and infections, an autopsy showed.`\
 https://nytimes.com/2023/04/21/nyregion/alligator-prospect-park-dies.html?searchResultPosition=2
 
-**Fuel Tanker Explosion on Connecticut Bridge Kills at Least 1 Person**\
+**Fuel Tanker Explosion on Connecticut Bridge Kills at Least One Person**\
 `Injuries were also reported after the explosion, which shut down roads and snarled traffic on the state’s coast.`\
 https://nytimes.com/2023/04/21/us/connecticut-goldstar-bridge-explosion-i-95.html?searchResultPosition=3
 
