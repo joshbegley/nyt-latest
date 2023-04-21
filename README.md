@@ -1,5 +1,5 @@
 **Videos Show Russian Jet Accidentally Bombing Russian City**\
-`Video posted on social media captured what the Russian Defense Ministry confirmed was a mistaken hit on Belgorod, a city near the border with Ukraine. The strike, which was followed by a large explosion, wounded three people and caused panic.`\
+`Video posted on social media captured what the Russian Defense Ministry said it was a mistaken hit on Belgorod, a city near the border with Ukraine. The strike, which was followed by a large explosion, wounded three people and caused panic.`\
 https://nytimes.com/video/world/europe/100000008869306/videos-show-russian-jet-accidentally-bombing-russian-city.html?searchResultPosition=1
 
 **Warriors Win at Home, Which Is Part of Their Problem**\
