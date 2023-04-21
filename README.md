@@ -18,7 +18,7 @@ https://nytimes.com/2023/04/21/sports/gervonta-davis-boxing.html?searchResultPos
 `The Biden administration is asking states to use Medicaid funds to cover opioid addiction treatment in correctional facilities, where many people suffer intense cravings and withdrawal.`\
 https://nytimes.com/2023/04/21/us/politics/prisons-opioid-addiction-treatment.html?searchResultPosition=5
 
-**South Asian Muslims Herald in Eid al-Fitr With a Night of Communal Revelry**\
+**South Asian Muslims Herald Eid al-Fitr With a Night of Communal Revelry**\
 `The sighting of the new moon marks the end of fasting during Ramadan. South Asian Muslim communities gather all over New York City, including in Jackson Heights, to celebrate Chand Raat, night of the moon.`\
 https://nytimes.com/2023/04/21/style/south-asian-muslims-eid-al-fitr.html?searchResultPosition=6
 
