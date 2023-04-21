@@ -26,7 +26,7 @@ https://nytimes.com/2023/04/21/podcasts/the-daily/us-military-leak.html?searchRe
 `Residents of Port Isabel said that their city was covered in grime following SpaceX’s rocket launch on Thursday. The city said there was no “immediate concern for people’s health.”`\
 https://nytimes.com/2023/04/21/us/spacex-rocket-dust-texas.html?searchResultPosition=7
 
-**Sudan Army Chief Commits to Civilian Rule, but Not a Cease-Fire for Ramadan’s End**\
+**Sudan’s Army Chief Insists He Is Committed to Civilian Rule, but Is Mum on Cease-Fire**\
 `Gunfights in the capital, Khartoum, continued for a seventh day, despite calls for a pause as the Muslim-majority nation marked the end of the holy month of Ramadan.`\
 https://nytimes.com/2023/04/21/world/africa/sudan-fighting-cease-fire-eid.html?searchResultPosition=8
 
