@@ -30,7 +30,7 @@ https://nytimes.com/2023/04/21/nyregion/alligator-prospect-park-dies.html?search
 `Injuries were also reported after the explosion, which shut down roads and snarled traffic on the state’s coast.`\
 https://nytimes.com/2023/04/21/us/connecticut-goldstar-bridge-explosion-i-95.html?searchResultPosition=8
 
-**Any Questions? Biden Holds Fewest News Conferences Since Reagan**\
+**Biden Has Held the Fewest News Conferences Since Reagan. Any Questions?**\
 `As President Biden prepares to announce his bid for a second term as soon as Tuesday, his decision to keep the news media at arm’s length is part of a deliberate strategy.`\
 https://nytimes.com/2023/04/21/us/politics/biden-public-appearances-media.html?searchResultPosition=9
 
