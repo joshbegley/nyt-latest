@@ -1,5 +1,5 @@
 **Abortion has become politically fraught for Republicans.**\
-`The Republican Party has struggled to contend with abortion since the Supreme Court eliminated the constitutional right to  the procedure last summer and sent abortion policy to the states.`\
+`The Republican Party has struggled to contend with abortion since the Supreme Court eliminated the constitutional right to the procedure last summer and sent abortion policy to the states.`\
 https://nytimes.com/2023/04/21/us/texas-abortion-pill-republicans.html?searchResultPosition=4
 
 **Airman Shared Sensitive Intelligence More Widely and for Longer Than Previously Known**\
