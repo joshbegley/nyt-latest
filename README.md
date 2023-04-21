@@ -28,7 +28,7 @@ https://nytimes.com/interactive/2023/04/21/briefing/the-weekender.html?searchRes
 
 **Books to Help Understand Sudan**\
 `For a deeper understanding of what’s going on, here’s what to read.`\
-https://nytimes.com/2023/04/21/world/africa/interpreter-sudan-books.html?searchResultPosition=8
+https://nytimes.com/2023/04/21/world/africa/sudan-books.html?searchResultPosition=8
 
 **Poised for Change at a Company Where Dancers of Color Feel at Home**\
 `Three senior dancers at Dance Theater of Harlem reflect on working with Virginia Johnson, who is stepping down as its leader.`\
