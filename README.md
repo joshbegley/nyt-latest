@@ -2,7 +2,7 @@
 `People are already adopting the technology.`\
 https://nytimes.com/2023/04/21/briefing/ai-chatgpt.html?searchResultPosition=1
 
-**Three people are injured after Russia accidentally bombs its own city.**\
+**Three people are injured after Russia says it accidentally bombs its own city.**\
 `A blast in Belgorod, near the Ukrainian border, was the result of “an accidental discharge of aviation ammunition,” Russia’s Defense Ministry said.`\
 https://nytimes.com/2023/04/21/world/asia/russia-belgorod-bomb.html?searchResultPosition=2
 
