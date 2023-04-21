@@ -14,7 +14,7 @@ https://nytimes.com/2023/04/21/us/trump-voting-software-2020-election.html?searc
 `The actor is finishing the film in Montana, more than a year after a gun he was rehearsing with on set went off, killing its cinematographer.`\
 https://nytimes.com/2023/04/21/arts/alec-baldwin-rust-montana.html?searchResultPosition=7
 
-**Dominion’s C.E.O.: Why We Settled the Lawsuit Against Fox News**\
+**Dominion’s C.E.O.: We Settled the Lawsuit Against Fox News, but We’re Not Done Yet**\
 `The public has complicated feelings about our decision to end this trial before it ever began, and that’s OK. It’s bittersweet for us, too.`\
 https://nytimes.com/2023/04/21/opinion/dominion-ceo-fox-lawsuit.html?searchResultPosition=8
 
