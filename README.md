@@ -1,5 +1,5 @@
 **Killer Moms and Bloody Elevators: A Talk With the Stars of ‘Evil Dead Rise’**\
-`Alyssa Sutherland and Lily Sullivan discuss their gory roles in the latest addition to the “Evil Dead” franchise.`\
+`Lily Sullivan and Alyssa Sutherland discuss their gory roles in the latest addition to the “Evil Dead” franchise.`\
 https://nytimes.com/2023/04/21/movies/evil-dead-rise-interview-alyssa-sutherland-and-lily-sullivan.html?searchResultPosition=1
 
 **Foo Fighters Begin a New Chapter, and 8 More New Songs**\
