@@ -1,40 +1,17 @@
-**The Biggest, Darkest Sky in Australia**\
-`Looking for darkness in Australia’s biggest state.`\
-https://nytimes.com/2023/04/21/world/australia/western-australia-dark-sky.html?searchResultPosition=1
+**The New York Times News Quiz, April 21, 2023**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2023/04/21/briefing/quiz-fox-dominion-spacex-shootings.html?searchResultPosition=1
 
-**‘A Tourist’s Guide to Love’ Review: A Wearyingly Familiar Trip**\
-`Rachael Leigh Cook stars in this bland rom-com as a travel executive exploring Vietnam and getting over a breakup.`\
-https://nytimes.com/2023/04/21/movies/a-tourists-guide-to-love-review.html?searchResultPosition=2
+**An Artist-Run Dance Space That’s ‘All Presentation, Baby’**\
+`A new generation of choreographers, obsessed with composition and costumes, experiments at Pageant in East Williamsburg, Brooklyn.`\
+https://nytimes.com/2023/04/21/arts/dance/pageant-dance-space-brooklyn.html?searchResultPosition=2
 
-**As Gaza Celebrates Eid, a Gift for Women — and a Duty for Men**\
-`Palestinian Muslims give the eidiya — a gift of money — to female relatives and children on the Eid that marks the end of Ramadan. It is a revered tradition but one that can come with a heavy price.`\
-https://nytimes.com/2023/04/21/world/middleeast/eid-ramadan-gaza-palestinians.html?searchResultPosition=3
+**In Harlem, a 19th-Century Home That’s Playfully Modern Inside**\
+`Jenette Kahn, who ran DC Comics and MAD magazine for more than a quarter of a century, is selling her townhouse for $3.25 million — whimsical fireplaces, and all.`\
+https://nytimes.com/2023/04/21/realestate/harlem-townhouse-sale-jenette-kahn.html?searchResultPosition=3
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/04/21/crosswords/spelling-bee-forum.html?searchResultPosition=4
+**How Do Actors Find Housing When They Get Gigs Out of Town? Well, It Depends.**\
+`The big stars enjoy the red carpet treatment, while others get a plane ticket and a housing stipend. But sometimes it isn’t just about the money — it’s who you know.`\
+https://nytimes.com/2023/04/21/realestate/actors-temporary-housing.html?searchResultPosition=4
 
-**Band Practice**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2023/04/21/learning/band-practice.html?searchResultPosition=5
-
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/04/21/crosswords/wordle-review-answer-671.html?searchResultPosition=6
-
-**Late Night Laughs at Elon Musk’s SpaceX Explosion**\
-`“When people saw the rocket light up and start smoking, they were like, ‘All right, happy 4/20, everybody!’” Jimmy Fallon joked on Thursday.`\
-https://nytimes.com/2023/04/21/arts/television/late-night-spacex-musk.html?searchResultPosition=7
-
-**Word of the Day: defunct**\
-`This word has appeared in 180 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/04/21/learning/word-of-the-day-defunct.html?searchResultPosition=8
-
-**Your Friday Briefing**\
-`The U.S. prepares for a possible evacuation of its embassy in Sudan.`\
-https://nytimes.com/2023/04/21/briefing/sudan-us-spacex-ukraine-europe.html?searchResultPosition=9
-
-**Tomorrow Is Earth Day. Let’s Celebrate Our Harbor.**\
-`The New York-New Jersey estuary has been honored as a “hope spot” by an environmental group.`\
-https://nytimes.com/2023/04/21/nyregion/earth-day-new-york-estuary.html?searchResultPosition=10
-
+****\
