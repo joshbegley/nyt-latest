@@ -2,17 +2,17 @@
 `For a deeper understanding of what’s going on, here’s what to read.`\
 https://nytimes.com/2023/04/21/world/africa/interpreter-sudan-books.html?searchResultPosition=1
 
+**Benjamin Millepied Uses Movement to Reinvent ‘Carmen’ on Camera**\
+`The choreographer is trying his hand at filmmaking with an experiment that merges drama, dance and music.`\
+https://nytimes.com/2023/04/21/movies/carmen-millepied-paul-mezcal-melissa-barrera.html?searchResultPosition=2
+
 **Modern Body Horror Is Turning Breastfeeding Into an Act of Terror**\
 `“Infinity Pool,” “Barbarian” and other films tap into conflicting attitudes about nursing, forcing us to confront our most primal fears.`\
-https://nytimes.com/2023/04/21/movies/horror-breastfeeding-barbarian-infinity-pool.html?searchResultPosition=2
+https://nytimes.com/2023/04/21/movies/horror-breastfeeding-barbarian-infinity-pool.html?searchResultPosition=3
 
 **Poised for Change at a Company Where Dancers of Color Feel at Home**\
 `Three senior dancers at Dance Theater of Harlem reflect on working with Virginia Johnson, who is stepping down as its leader.`\
-https://nytimes.com/2023/04/21/arts/dance/dance-theater-of-harlem-dancers.html?searchResultPosition=3
-
-**Benjamin Millepied Uses Movement to Reinvent ‘Carmen’ on Camera**\
-`The choreographer is trying his hand at filmmaking with an experiment that merges drama, dance and music.`\
-https://nytimes.com/2023/04/21/movies/benjamin-millepied-carmen.html?searchResultPosition=4
+https://nytimes.com/2023/04/21/arts/dance/dance-theater-of-harlem-dancers.html?searchResultPosition=4
 
 **A Couple’s Retreat in the Woods Goes Awry in This Thriller**\
 `In “The Eden Test,” Adam Sternbergh folds a study of marital psychology into a mystery plot.`\
