@@ -26,13 +26,13 @@ https://nytimes.com/article/how-to-freeze-food-freezer-meals.html?searchResultPo
 `The man, who the police said was holding scissors and a kitchen knife when an officer shot him in the Bronx, was in critical condition.`\
 https://nytimes.com/2023/04/21/nyregion/police-shooting-bronx-morrisania.html?searchResultPosition=7
 
-**Could Peer Influence Be a Cause of the Global Baby Bust?**\
-`The decision to have or not have children isn’t made in isolation.`\
-https://nytimes.com/2023/04/21/opinion/birth-rate-peer-effects.html?searchResultPosition=8
-
 **Our Throuple Fell Apart. What Are the Rules of the Breakup?**\
 `The magazine’s Ethicist columnist on navigating the aftermath of a polyamorous relationship.`\
-https://nytimes.com/2023/04/21/magazine/polyamory-breakup-ethics.html?searchResultPosition=9
+https://nytimes.com/2023/04/21/magazine/polyamory-breakup-ethics.html?searchResultPosition=8
+
+**Could Peer Influence Be a Cause of the Global Baby Bust?**\
+`The decision to have or not have children isn’t made in isolation.`\
+https://nytimes.com/2023/04/21/opinion/birth-rate-peer-effects.html?searchResultPosition=9
 
 **The ‘Wrong House’ Shootings: A Culture of Fear**\
 `Reaction to stories involving innocent people shot for showing up at the wrong house. Also: Abusive chefs; clothes as an expression of freedom.`\
