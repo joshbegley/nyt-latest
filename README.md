@@ -10,8 +10,8 @@ https://nytimes.com/2023/04/21/opinion/dominion-ceo-fox-lawsuit.html?searchResul
 `A Times analysis of satellite imagery shows how a displaced persons camp lost a key source of food and supplies amid a fight for control of the country.`\
 https://nytimes.com/2023/04/21/world/africa/sudan-darfur-fires.html?searchResultPosition=3
 
-**Read the document**\
-`The Supreme Court decision on the abortion pill.`\
+**Read the Supreme Court’s Order on Abortion Pill Access**\
+`The Supreme Court order on an abortion pill.`\
 https://nytimes.com/interactive/2023/04/21/us/23-supreme-court-order.html?searchResultPosition=4
 
 **Read the Supreme Court decision.**\
