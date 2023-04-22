@@ -8,7 +8,7 @@ https://nytimes.com/2023/04/22/opinion/american-shootings-guns.html?searchResult
 
 **Religion Has Friends Among Judges in High Places**\
 `Will there ever be a religious claim anymore that goes too far?`\
-https://nytimes.com/2023/04/22/opinion/religion-has-friends-among-judges-in-high-places.html?searchResultPosition=3
+https://nytimes.com/2023/04/22/opinion/supreme-court-religion.html?searchResultPosition=3
 
 **Davis vs. Garcia: A Marquee Fight That Is Actually Happening**\
 `When Gervonta Davis and Ryan Garcia square off Saturday night, they’ll satisfy boxing fans who are often left disappointed by fight negotiations that go nowhere.`\
