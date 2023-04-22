@@ -1,4 +1,4 @@
-**Basketball and Hockey Fans in New York Are Busy This Spring**\
+**New York at the Center of the (Sports) Universe**\
 `All five professional winter-season teams in the metro area made the playoffs for the first time since 1994.`\
 https://nytimes.com/2023/04/22/sports/basketball/nhl-nba-playoffs-new-york.html?searchResultPosition=1
 
