@@ -1,40 +1,40 @@
+**Peter Singer: The Simplest Way to Change the Planet’s Fate**\
+`We can do something significant for the planet every time we eat.`\
+https://nytimes.com/2023/04/22/opinion/earth-day-climate-change-meat-vegan.html?searchResultPosition=1
+
+**A Gun in the Home Makes Murder More Likely, Not Less**\
+`Why should going to the wrong place be a deadly risk in America?`\
+https://nytimes.com/2023/04/22/opinion/american-shootings-guns.html?searchResultPosition=2
+
+**Religion Has Friends Among Judges in High Places**\
+`Will there ever be a religious claim anymore that goes too far?`\
+https://nytimes.com/2023/04/22/opinion/religion-has-friends-among-judges-in-high-places.html?searchResultPosition=3
+
+**Davis vs. Garcia: A Marquee Fight That Is Actually Happening**\
+`When Gervonta Davis and Ryan Garcia square off Saturday night, they’ll satisfy boxing fans who are often left disappointed by fight negotiations that go nowhere.`\
+https://nytimes.com/2023/04/22/sports/gervonta-davis-ryan-garcia-boxing.html?searchResultPosition=4
+
+**It’s Not the End of Work. It’s the End of Boring Work.**\
+`ChatGPT is actually good news for the office.`\
+https://nytimes.com/2023/04/22/opinion/jobs-ai-chatgpt.html?searchResultPosition=5
+
+**DeSantis’s Puddin’ Head Campaign**\
+`He’s sinking, even as he tests the waters.`\
+https://nytimes.com/2023/04/22/opinion/desantis-trump-2024.html?searchResultPosition=6
+
+**Biden Should Take Voters’ Concerns About Age Seriously**\
+`The president has not taken advantage of the chance to ease voters’ concerns by engaging regularly with the public.`\
+https://nytimes.com/2023/04/22/opinion/editorials/biden-age.html?searchResultPosition=7
+
+**The Flight to Red States**\
+`Readers discuss a column by David Brooks about why people are moving from blue to red states.`\
+https://nytimes.com/2023/04/22/opinion/letters/red-blue-states.html?searchResultPosition=8
+
 **Sudan Army Chief Claims U.S. Citizens and Some Other Foreigners Will Be Evacuated**\
 `Gen. Abdel Fattah al-Burhan said his troops would also facilitate the evacuation of British, Chinese and French diplomats and citizens. But his claims could not be verified, and it was unclear how and when any evacuations could take place.`\
-https://nytimes.com/2023/04/22/world/africa/sudan-fighting.html?searchResultPosition=1
+https://nytimes.com/2023/04/22/world/africa/sudan-fighting.html?searchResultPosition=9
 
 **Your Spring Soundtrack**\
 `The Morning’s springtime playlist provides an ideal sound for a joyful season.`\
-https://nytimes.com/2023/04/22/briefing/spring-soundtrack.html?searchResultPosition=2
-
-**Zelensky Signs Law Banning Russian Place Names**\
-`The action late Friday was the latest in a series of steps by Ukraine to distance itself from a long legacy of Russian domination.`\
-https://nytimes.com/2023/04/22/world/europe/zelensky-russian-ban-ukraine.html?searchResultPosition=3
-
-**No Major Disruption From Public Sector Strike, but Also No Solution in Sight**\
-`The walkout by federal public servants was spurred by inflation and the government’s return-to-office program.`\
-https://nytimes.com/2023/04/22/world/canada/no-major-disruption-from-public-sector-strike-but-also-no-solution-in-sight.html?searchResultPosition=4
-
-**Eureka! After California’s Heavy Rains, Gold Seekers Are Giddy.**\
-`The mother lode of winter storms has sent water blasting through rock crevices and rivers in the Sierra Nevada, leading to more glittering discoveries by prospectors.`\
-https://nytimes.com/2023/04/22/us/california-gold-prospectors.html?searchResultPosition=5
-
-**When Floods Destroy Homes, Hidden Costs Can Devastate Survivors**\
-`While government aid and organizations can ease the burden of major losses, disaster victims are burdened by small expenses to rebuild their lives.`\
-https://nytimes.com/2023/04/22/business/flood-damage-home-costs.html?searchResultPosition=6
-
-**The Crypto Detectives Are Cleaning Up**\
-`Early adopters thought cryptocurrencies would be free from prying eyes. But tracking the flow of funds has become a big business.`\
-https://nytimes.com/2023/04/22/business/crypto-blockchain-tracking-chainalysis.html?searchResultPosition=7
-
-**Russia’s Technocrats Embraced the West, Then Enabled Putin’s War**\
-`The expertise of economic officials who continue to work in the government has helped President Vladimir Putin largely keep the economy afloat in the face of Western sanctions.`\
-https://nytimes.com/2023/04/22/world/europe/russia-technocrats-putin-ukraine-war.html?searchResultPosition=8
-
-**What Older Voters Say About Biden 2024: From ‘He’s Fine’ to ‘Oh, God’**\
-`In interviews, dozens of left-leaning older Americans wrestled with the prospect of a president in his mid-80s, reflecting on their own abilities and changes to their lives — and even their mortality.`\
-https://nytimes.com/2023/04/22/us/politics/biden-2024-campaign-seniors.html?searchResultPosition=9
-
-**Merch Fit for a King**\
-`Products commemorating the coronation of King Charles III range from the usual (ceramics) to the unconventional (cereal boxes).`\
-https://nytimes.com/2023/04/22/style/king-charles-souvenirs.html?searchResultPosition=10
+https://nytimes.com/2023/04/22/briefing/spring-soundtrack.html?searchResultPosition=10
 
