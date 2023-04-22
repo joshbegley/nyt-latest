@@ -11,7 +11,7 @@ https://nytimes.com/2023/04/22/climate/menominee-forest-sustainable-earth-day.ht
 https://nytimes.com/2023/04/22/world/europe/germany-legal-marijuana-judge.html?searchResultPosition=3
 
 **Cellphones Across Britain Will Blast a ‘Loud Siren-like’ Alert This Weekend**\
-`Not everyone is happy about the test warning, which will sound at on Sunday at 3 p.m.`\
+`Not everyone is happy about the test warning, which will sound on Sunday at 3 p.m.`\
 https://nytimes.com/2023/04/22/world/europe/uk-emergency-alert-system.html?searchResultPosition=4
 
 **Just How Rare Is a ‘Rare’ Side Effect of a Fat-Zapping Procedure?**\
