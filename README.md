@@ -1,6 +1,6 @@
 **A Widow Said Her Husband Was Left in a Drinks Cooler After Dying on a Cruise**\
 `Marilyn Jones accused Celebrity Cruises in a lawsuit of storing her husband’s body in a cooler rather than the ship’s morgue and allowing it to become “horrifically decomposed.”`\
-https://nytimes.com/2023/04/22/us/a-widow-said-her-husband-was-left-in-a-drinks-cooler-after-dying-on-a-cruise.html?searchResultPosition=1
+https://nytimes.com/2023/04/22/us/cruise-ship-body-lawsuit.html?searchResultPosition=1
 
 **Why Those Super Low College Admissions Rates Can Be Misleading**\
 `Some of it amounts to marketing.`\
