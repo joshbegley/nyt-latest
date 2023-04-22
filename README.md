@@ -1,40 +1,40 @@
-**Japanese Ship, Torpedoed in 1942 With P.O.W.s Aboard, Is Found**\
-`When the Montevideo Maru sank in the South China Sea during World War II, it was carrying hundreds of prisoners, most of them Australian.`\
-https://nytimes.com/2023/04/22/world/australia/ww2-pows-shipwreck-japan-australia.html?searchResultPosition=1
+**Eureka! After California’s Heavy Rains, Gold Seekers Are Giddy.**\
+`The mother lode of winter storms has sent water blasting through rock crevices and rivers in the Sierra Nevada, leading to more glittering discoveries by prospectors.`\
+https://nytimes.com/2023/04/22/us/california-gold-prospectors.html?searchResultPosition=1
 
-**The Giving Forest**\
-`The Menominee tribe has sustainably logged its forest in Wisconsin for 160 years. But that careful balance faces a crisis: too many trees and too few loggers.`\
-https://nytimes.com/2023/04/22/climate/menominee-forest-sustainable-earth-day.html?searchResultPosition=2
+**When Floods Destroy Homes, Hidden Costs Can Devastate Survivors**\
+`While government aid and organizations can ease the burden of major losses, disaster victims are burdened by small expenses to rebuild their lives.`\
+https://nytimes.com/2023/04/22/business/flood-damage-home-costs.html?searchResultPosition=2
 
-**Stern German Judge Objects to ‘Absurd’ Law Criminalizing Pot**\
-`A social media star with regular appearances on German television, Judge Andreas Müller is unabashed in backing legal marijuana, whether he’s sitting on the bench or playing himself in a music video.`\
-https://nytimes.com/2023/04/22/world/europe/germany-legal-marijuana-judge.html?searchResultPosition=3
+**The Crypto Detectives Are Cleaning Up**\
+`Early adopters thought cryptocurrencies would be free from prying eyes. But tracking the flow of funds has become a big business.`\
+https://nytimes.com/2023/04/22/business/crypto-blockchain-tracking-chainalysis.html?searchResultPosition=3
 
-**Cellphones Across Britain Will Blast a ‘Loud Siren-like’ Alert This Weekend**\
-`Not everyone is happy about the test warning, which will sound on Sunday at 3 p.m.`\
-https://nytimes.com/2023/04/22/world/europe/uk-emergency-alert-system.html?searchResultPosition=4
+**Russia’s Technocrats Embraced the West, Then Enabled Putin’s War**\
+`The expertise of economic officials who continue to work in the government has helped President Vladimir Putin largely keep the economy afloat in the face of Western sanctions.`\
+https://nytimes.com/2023/04/22/world/europe/russia-technocrats-putin-ukraine-war.html?searchResultPosition=4
 
-**Just How Rare Is a ‘Rare’ Side Effect of a Fat-Zapping Procedure?**\
-`A New York Times examination found that a popular beauty treatment may be leading to disfigurement for more patients than previously known.`\
-https://nytimes.com/2023/04/22/insider/coolsculpting-investigation.html?searchResultPosition=5
+**What Older Voters Say About Biden 2024: From ‘He’s Fine’ to ‘Oh, God’**\
+`In interviews, dozens of left-leaning older Americans wrestled with the prospect of a president in his mid-80s, reflecting on their own abilities and changes to their lives — and even their mortality.`\
+https://nytimes.com/2023/04/22/us/politics/biden-2024-campaign-seniors.html?searchResultPosition=5
 
-**Say Hi to SoFi. It’s Suing to Force You to Repay Student Loans Faster.**\
-`A self-styled “anti-bank” poached good customers from the federal loan system. When pandemic relief made that harder, it sued the government.`\
-https://nytimes.com/2023/04/22/your-money/sofi-student-loans-lawsuit.html?searchResultPosition=6
+**Merch Fit for a King**\
+`Products commemorating the coronation of King Charles III range from the usual (ceramics) to the unconventional (cereal boxes).`\
+https://nytimes.com/2023/04/22/style/king-charles-souvenirs.html?searchResultPosition=6
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/04/22/crosswords/spelling-bee-forum.html?searchResultPosition=7
+**An Outsider Takes on Ireland, From Inside a Plastic Bag**\
+`The podcaster behind the popular “Blindboy Podcast,” who earlier gained fame as part of the Rubberbandits hip-hop duo, says that covering his face lets him say things he couldn’t otherwise.`\
+https://nytimes.com/2023/04/22/arts/ireland-blindboy-podcast.html?searchResultPosition=7
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/04/22/crosswords/wordle-review-answer-672.html?searchResultPosition=8
+**Seeing Opportunities, World Powers Take Sides in Sudan War**\
+`Even before its two leading generals went to war last week, “everyone wanted a chunk of Sudan,” an expert said of the strategically located country rich in natural resources.`\
+https://nytimes.com/2023/04/22/world/africa/sudan-war-international-relations.html?searchResultPosition=8
 
-**Corrections: April 22, 2023**\
-`Corrections that appeared in print on Saturday, April 22, 2023.`\
-https://nytimes.com/2023/04/22/pageoneplus/corrections-april-22-2023.html?searchResultPosition=9
+**Florida at Center of Debate as School Book Bans Surge Nationally**\
+`Proponents say the laws aim to give parents control over their children’s education. But many educators say the rules have brought chaos and fear.`\
+https://nytimes.com/2023/04/22/books/book-ban-florida.html?searchResultPosition=9
 
-**Quotation of the Day: Russian Prisoners Choose to Fight to Get Lifesaving Drugs**\
-`Quotation of the Day for Saturday, April 22, 2023.`\
-https://nytimes.com/2023/04/22/pageoneplus/quotation-of-the-day-russian-prisoners-choose-to-fight-to-get-lifesaving-drugs.html?searchResultPosition=10
+**Many States Are Trying to Restrict Gender Treatments for Adults, Too**\
+`Missouri has imposed sweeping rules to limit health care for trans adults. Other states have banned Medicaid coverage or introduced bills outlawing care for young adults.`\
+https://nytimes.com/2023/04/22/health/transgender-adults-treatment-bans.html?searchResultPosition=10
 
