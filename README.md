@@ -1,5 +1,5 @@
 **U.S. Agrees to Pay $5 Million to Family of Man Killed by Park Police Officers**\
-`The expected settlement came nearly six years after Bijan Ghaisar was shot by two U.S. Park Police offices following a fender bender that led to a car chase in Virginia.`\
+`The expected settlement came nearly six years after Bijan Ghaisar was shot by two U.S. Park Police officers following a fender bender that led to a car chase in Virginia.`\
 https://nytimes.com/2023/04/21/us/bijan-ghaisar-park-police-settlement.html?searchResultPosition=1
 
 **Abortion has become politically fraught for Republicans.**\
