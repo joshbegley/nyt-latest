@@ -10,17 +10,17 @@ https://nytimes.com/2023/04/22/opinion/american-shootings-guns.html?searchResult
 `Will there ever be a religious claim anymore that goes too far?`\
 https://nytimes.com/2023/04/22/opinion/supreme-court-religion.html?searchResultPosition=3
 
+**DeSantis’s Puddin’ Head Campaign**\
+`He’s sinking, even as he tests the waters.`\
+https://nytimes.com/2023/04/22/opinion/desantis-trump-2024.html?searchResultPosition=4
+
 **Davis vs. Garcia: A Marquee Fight That Is Actually Happening**\
 `When Gervonta Davis and Ryan Garcia square off Saturday night, they’ll satisfy boxing fans who are often left disappointed by fight negotiations that go nowhere.`\
-https://nytimes.com/2023/04/22/sports/gervonta-davis-ryan-garcia-boxing.html?searchResultPosition=4
+https://nytimes.com/2023/04/22/sports/gervonta-davis-ryan-garcia-boxing.html?searchResultPosition=5
 
 **It’s Not the End of Work. It’s the End of Boring Work.**\
 `ChatGPT is actually good news for the office.`\
-https://nytimes.com/2023/04/22/opinion/jobs-ai-chatgpt.html?searchResultPosition=5
-
-**DeSantis’s Puddin’ Head Campaign**\
-`He’s sinking, even as he tests the waters.`\
-https://nytimes.com/2023/04/22/opinion/desantis-trump-2024.html?searchResultPosition=6
+https://nytimes.com/2023/04/22/opinion/jobs-ai-chatgpt.html?searchResultPosition=6
 
 **Biden Should Take Voters’ Concerns About Age Seriously**\
 `The president has not taken advantage of the chance to ease voters’ concerns by engaging regularly with the public.`\
