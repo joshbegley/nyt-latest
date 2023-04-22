@@ -11,7 +11,7 @@ https://nytimes.com/2023/04/22/obituaries/elizabeth-wagner-reed-overlooked.html?
 https://nytimes.com/2023/04/22/sports/football/nfl-gambling-betting-suspensions.html?searchResultPosition=3
 
 **A Chastened, Humbled Fox News? Don’t Count on It.**\
-`There is little reason to think Fox News will adjust its coverage after paying a $757 million defamation settlement to Dominion Voting Systems. Its audience won’t let it.`\
+`There is little reason to think Fox News will adjust its coverage after paying a $787.5 million defamation settlement to Dominion Voting Systems. Its audience won’t let it.`\
 https://nytimes.com/2023/04/22/business/media/fox-news-dominion-settlement.html?searchResultPosition=4
 
 **Tim Scott Faces Long Odds**\
