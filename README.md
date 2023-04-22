@@ -19,7 +19,7 @@ https://nytimes.com/2023/04/22/world/canada/indigenous-languages-mohawk-canada.h
 https://nytimes.com/2023/04/22/science/pitcher-plants-insects-sents.html?searchResultPosition=5
 
 **DeSantis Faces Republican Scrutiny on Issues While Trump Skates By**\
-`Republican voters seem to be grading Donald Trump on a curve by in his third presidential campaign, while Gov. Ron DeSantis of Florida faces a more traditional form of scrutiny.`\
+`Republican voters seem to be grading Donald Trump on a curve in his third presidential campaign, while Gov. Ron DeSantis of Florida faces a more traditional form of scrutiny.`\
 https://nytimes.com/2023/04/22/us/politics/desantis-trump-republicans.html?searchResultPosition=6
 
 **Barry Humphries (Dame Edna to You, Possums) Is Dead at 89**\
