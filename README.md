@@ -1,40 +1,40 @@
-**A Spanish Team Endures on a Toehold in Africa**\
-`A.D. Ceuta, one of only two European soccer clubs based on the African continent, sees itself as a unifying force at a cultural crossroads.`\
-https://nytimes.com/2023/04/23/sports/soccer/cueta-soccer-migrants.html?searchResultPosition=1
+**What Angela Basset Wore to the Opera**\
+`The best looks from the premiere of “Champion” at the Metropolitan Opera and the New Museum Spring Gala.`\
+https://nytimes.com/2023/04/23/style/champion-met-opera-new-museum-gala.html?searchResultPosition=1
 
-**Leonardo’s Ferry Left High and Dry by Global Warming and Red Tape**\
-`A ferry used to traverse the banks of the Adda River, in northern Italy, but drought and an abundance of bureaucracy has closed it down.`\
-https://nytimes.com/2023/04/23/world/europe/italy-climate-drought-da-vinci-ferry-imbersago.html?searchResultPosition=2
+**Secrets of a Healthy Breakfast**\
+`The ideal breakfast is the one that makes you feel your best, experts say, though there are some important nutrients to keep in mind.`\
+https://nytimes.com/2023/04/23/well/eat/healthy-breakfast.html?searchResultPosition=2
 
-**At U.Va., an Alumnus Attacked Diversity Programs. Now He Is on the Board.**\
-`As D.E.I. programs come under attack, a plan at the University of Virginia for “more diversity, less Confederacy” enraged some alumni, who started organizing against it.`\
-https://nytimes.com/2023/04/23/us/uva-diversity-board-bert-ellis.html?searchResultPosition=3
+**After Front Door Shooting, Kansas City Grapples With Race**\
+`In a city that has seen a new wave of business investment, the shooting of Ralph Yarl, 16, drew new attention to persistent disparities between Black and white residents.`\
+https://nytimes.com/2023/04/23/us/kansas-city-shooting-race.html?searchResultPosition=3
 
-**How a Food, Drink and Lifestyle Expert Spends His Sundays**\
-`Maneesh Goyal, a bar and restaurant owner, is now intrigued by the city’s parks and playgrounds and has an earlier bedtime.`\
-https://nytimes.com/2023/04/23/nyregion/maneesh-goyal-sona-temple-bar.html?searchResultPosition=4
+**Chinese Censorship Is Quietly Rewriting the Covid-19 Story**\
+`Under government pressure, Chinese scientists have retracted studies and withheld or deleted data. The censorship has stymied efforts to understand the virus.`\
+https://nytimes.com/2023/04/23/world/europe/chinese-censorship-covid.html?searchResultPosition=4
 
-**Sacklers Gave Millions to Institution That Advises on Opioid Policy**\
-`Even as the nation’s drug crisis mounted, the National Academies of Sciences, Engineering and Medicine continued to accept funds from some members of the Sackler family, including those involved with Purdue Pharma.`\
-https://nytimes.com/2023/04/23/health/sacklers-opioids-national-academies-science.html?searchResultPosition=5
+**A Blockbuster Exhibition, Ripped in Two by Russia’s War**\
+`A major art show was supposed to unite masterpieces from London and Moscow, until Russia invaded Ukraine. Now, Russia is cut off from the West, and each side’s treasures are staying put.`\
+https://nytimes.com/2023/04/23/arts/design/russian-museums-after-impressionism.html?searchResultPosition=5
 
-**Creativity Passing Backward and Forward in Time**\
-`T magazine brought together 40 female artists and the younger women who inspire them.`\
-https://nytimes.com/2023/04/23/insider/t-magazine-female-artists.html?searchResultPosition=6
+**Supreme Hits the Sunset Strip**\
+`The once-scrappy brand moves its Los Angeles store to the famed Tower Records building, but is bigger actually better?`\
+https://nytimes.com/2023/04/23/style/supreme-hits-the-sunset-strip.html?searchResultPosition=6
 
-**‘I Noticed a Man Sitting Across the Room in a Booth’**\
-`A busy layover in Manhattan, good seats for a concert and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2023/04/23/nyregion/metropolitan-diary.html?searchResultPosition=7
+**Retelling U.S. History With Native Americans at the Center**\
+`A new account by the Yale historian Ned Blackhawk argues that Native peoples shaped the development of American democracy while being dispossessed of their land.`\
+https://nytimes.com/2023/04/23/books/review/the-rediscovery-of-america-ned-blackhawk.html?searchResultPosition=7
 
-**Yellow Plus Blue? One Answer, So Many Meanings**\
-`‘Green’ has been used to describe color, lack of experience and politics.`\
-https://nytimes.com/2023/04/23/pageoneplus/yellow-plus-blue-one-answer-so-many-meanings.html?searchResultPosition=8
+**Losing Ballot Issues on Abortion, G.O.P. Now Tries to Keep Them Off the Ballot**\
+`After abortion rights supporters swept six ballot measures last year, Republican legislatures seek to make it harder to get on the ballot, and harder to win if there is a vote.`\
+https://nytimes.com/2023/04/23/us/republicans-abortion-voting.html?searchResultPosition=8
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/04/23/crosswords/spelling-bee-forum.html?searchResultPosition=9
+**Face to Face With Culture’s ‘Monsters’**\
+`Claire Dederer’s deft and searching book surfaces a “fan’s dilemma” over such figures as Vladimir Nabokov, Woody Allen, Willa Cather and Roman Polanski.`\
+https://nytimes.com/2023/04/23/books/monsters-review-claire-dederer.html?searchResultPosition=9
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/04/23/crosswords/wordle-review-answer-673.html?searchResultPosition=10
+**In a Storm-Plagued South, a Broken Family Fights to Stay Afloat**\
+`A religious con woman, old grudges and nonstop hurricanes threaten the characters in Michael Farris Smith’s novel “Salvage This World.”`\
+https://nytimes.com/2023/04/23/books/review/michael-farris-smith-salvage-this-world.html?searchResultPosition=10
 
