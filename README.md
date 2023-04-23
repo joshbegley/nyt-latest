@@ -7,7 +7,7 @@ https://nytimes.com/2023/04/23/briefing/baseball.html?searchResultPosition=1
 https://nytimes.com/2023/04/23/business/the-week-in-business-fox-news-dominion.html?searchResultPosition=2
 
 **Bed Bath & Beyond Files for Bankruptcy**\
-`The company said it would seek to sell all or some of its business while its stores remain open.`\
+`The company said that it would seek to sell all or some of its business, and that store closing sales would begin on Wednesday.`\
 https://nytimes.com/2023/04/23/business/bed-bath-beyond-bankruptcy.html?searchResultPosition=3
 
 **Russia Pounds Cities Across the Country, Ukraine Says**\
