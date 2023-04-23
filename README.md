@@ -3,7 +3,7 @@
 https://nytimes.com/2023/04/23/us/politics/an-iowa-campaign-event-defined-more-by-those-who-were-not-there-than-those-who-were.html?searchResultPosition=1
 
 **Davis Floors Garcia, but Heads Into an Uncertain Future**\
-`Gervonta Davis stopped Ryan Garcia in seven rounds in a highly anticipated fight in Las Vegas. Next up for Davis: A sentencing and an arraignment in separate criminal cases against him.`\
+`Gervonta Davis stopped Ryan Garcia in seven rounds in a highly anticipated fight in Las Vegas. Next up for Davis: a sentencing and an arraignment in separate criminal cases against him.`\
 https://nytimes.com/2023/04/23/sports/davis-garcia.html?searchResultPosition=2
 
 **What Should Christians Do About Guns?**\
