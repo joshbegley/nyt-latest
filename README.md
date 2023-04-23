@@ -1,40 +1,40 @@
+**Leonardo’s Ferry Left High and Dry by Global Warming and Red Tape**\
+`A ferry used to traverse the banks of the Adda River, in northern Italy, but drought and an abundance of bureaucracy has closed it down.`\
+https://nytimes.com/2023/04/23/world/europe/italy-climate-drought-da-vinci-ferry-imbersago.html?searchResultPosition=1
+
+**At U.Va., an Alumnus Attacked Diversity Programs. Now He Is on the Board.**\
+`As D.E.I. programs come under attack, a plan at the University of Virginia for “more diversity, less Confederacy” enraged some alumni, who started organizing against it.`\
+https://nytimes.com/2023/04/23/us/uva-diversity-board-bert-ellis.html?searchResultPosition=2
+
+**How a Food, Drink and Lifestyle Expert Spends His Sundays**\
+`Maneesh Goyal, a bar and restaurant owner, is now intrigued by the city’s parks and playgrounds and has an earlier bedtime.`\
+https://nytimes.com/2023/04/23/nyregion/maneesh-goyal-sona-temple-bar.html?searchResultPosition=3
+
+**Sacklers Gave Millions to Institution That Advises on Opioid Policy**\
+`Even as the nation’s drug crisis mounted, the National Academies of Sciences, Engineering and Medicine continued to accept funds from some members of the Sackler family, including those involved with Purdue Pharma.`\
+https://nytimes.com/2023/04/23/health/sacklers-opioids-national-academies-science.html?searchResultPosition=4
+
+**Creativity Passing Backward and Forward in Time**\
+`T magazine brought together 40 female artists and the younger women who inspire them.`\
+https://nytimes.com/2023/04/23/insider/t-magazine-female-artists.html?searchResultPosition=5
+
+**‘I Noticed a Man Sitting Across the Room in a Booth’**\
+`A busy layover in Manhattan, good seats for a concert and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2023/04/23/nyregion/metropolitan-diary.html?searchResultPosition=6
+
+**Yellow Plus Blue? One Answer, So Many Meanings**\
+`‘Green’ has been used to describe color, lack of experience and politics.`\
+https://nytimes.com/2023/04/23/pageoneplus/yellow-plus-blue-one-answer-so-many-meanings.html?searchResultPosition=7
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2023/04/23/crosswords/spelling-bee-forum.html?searchResultPosition=8
+
+**Today’s Wordle Review**\
+`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
+https://nytimes.com/2023/04/23/crosswords/wordle-review-answer-673.html?searchResultPosition=9
+
 **Quotation of the Day: Ukraine Bans the Naming of Locations in Russian**\
 `Quotation of the Day for Sunday, April 23, 2023`\
-https://nytimes.com/2023/04/22/pageoneplus/quotation-of-the-day-ukraine-bans-the-naming-of-locations-in-russian.html?searchResultPosition=1
-
-**Corrections: April 23, 2023**\
-`Corrections that appeared in print on Sunday, April 23, 2023.`\
-https://nytimes.com/2023/04/22/pageoneplus/corrections-april-23-2023.html?searchResultPosition=2
-
-**Punctuation Matters**\
-`Katie Hale and Scott Hogan’s ingenious collaboration will possess you.`\
-https://nytimes.com/2023/04/22/crosswords/daily-puzzle-2023-04-23.html?searchResultPosition=3
-
-**Six Cattle Found Dead in Texas With Their Tongues Missing**\
-`There was no evidence of a struggle, footprints or tire tracks where the animals were found, and the grass around the carcasses was undisturbed, the authorities said.`\
-https://nytimes.com/2023/04/22/us/cattle-deaths-texas.html?searchResultPosition=4
-
-**New York at the Center of the (Sports) Universe**\
-`All five professional winter-season teams in the metro area made the playoffs for the first time since 1994.`\
-https://nytimes.com/2023/04/22/sports/basketball/nhl-nba-playoffs-new-york.html?searchResultPosition=5
-
-**The Anti-Abortion Messages Haunting Florida’s Highways**\
-`Billboards proliferate as a procedure become harder to obtain.`\
-https://nytimes.com/2023/04/22/opinion/anti-abortion-florida-billboards.html?searchResultPosition=6
-
-**Will Biden Face a Democratic Challenger?**\
-`A re-election campaign that lacks enthusiastic support and plausible rivals.`\
-https://nytimes.com/2023/04/22/opinion/biden-challenger-2024.html?searchResultPosition=7
-
-**Elisabeth Kopp, Swiss Politician Who Made History, Dies at 86**\
-`In 1984 she became the first woman elected to the country’s governing council, but a scandal prevented her from being the first woman to serve as president.`\
-https://nytimes.com/2023/04/22/world/europe/elisabeth-kopp-dead.html?searchResultPosition=8
-
-**Gail Christian, Trailblazing News Correspondent, Dies at 83**\
-`An on-air career seemed unlikely for a Black woman in the 1970s. It didn’t help that she had been imprisoned for armed robbery. But she broke barriers.`\
-https://nytimes.com/2023/04/22/business/media/gail-christian-dead.html?searchResultPosition=9
-
-**Overlooked No More: Elizabeth Wagner Reed, Who Resurrected Legacies of Women in Science**\
-`Reed made several discoveries in genetics and dedicated her career toward supporting women scientists. Yet she herself fell into obscurity.`\
-https://nytimes.com/2023/04/22/obituaries/elizabeth-wagner-reed-overlooked.html?searchResultPosition=10
+https://nytimes.com/2023/04/22/pageoneplus/quotation-of-the-day-ukraine-bans-the-naming-of-locations-in-russian.html?searchResultPosition=10
 
