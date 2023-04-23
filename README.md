@@ -1,6 +1,6 @@
 **An Iowa Campaign Event Defined More by Those Who Were Not There Than Those Who Were**\
 `Republicans gathered in the state Saturday in a kickoff event that lacked the attendance of two front-runners, though their presence was felt.`\
-https://nytimes.com/2023/04/23/us/politics/an-iowa-campaign-event-defined-more-by-those-who-were-not-there-than-those-who-were.html?searchResultPosition=1
+https://nytimes.com/2023/04/23/us/politics/iowa-faith-freedom-coalition-trump-pence.html?searchResultPosition=1
 
 **Davis Floors Garcia, but Heads Into an Uncertain Future**\
 `Gervonta Davis stopped Ryan Garcia in seven rounds in a highly anticipated fight in Las Vegas. Next up for Davis: a sentencing and an arraignment in separate criminal cases against him.`\
