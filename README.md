@@ -3,7 +3,7 @@
 https://nytimes.com/2023/04/23/us/disneyland-dragon-fire.html?searchResultPosition=1
 
 **Jeff Shell, C.E.O. of NBCUniversal, Steps Down After Inquiry**\
-`Comcast, the company’s owner, said he was leaving after an investigation into “an inappropriate workplace relationship.”`\
+`Comcast, the company’s owner, said he was leaving after an investigation into “an inappropriate relationship with a woman in the company.”`\
 https://nytimes.com/2023/04/23/business/media/jeff-shell-nbc-comcast.html?searchResultPosition=2
 
 **Review: Rebel Yells and Chants of ‘Adieu!’ From Ballet de Lorraine**\
