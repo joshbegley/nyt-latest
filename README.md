@@ -1,4 +1,4 @@
-**Russia Pounds Cities Across the Country, Ukraine Says.**\
+**Russia Pounds Cities Across the Country, Ukraine Says**\
 `Russian forces hit Ukrainian cities with missiles, mortars, artillery and airstrikes over the weekend, Ukrainian officials said.`\
 https://nytimes.com/2023/04/23/world/europe/ukraine-russia-kherson.html?searchResultPosition=1
 
