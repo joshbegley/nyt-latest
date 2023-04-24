@@ -11,7 +11,7 @@ https://nytimes.com/video/world/africa/100000008872142/sudan-evacuations-diploma
 https://nytimes.com/2023/04/24/sports/olympics/herb-douglas-dead.html?searchResultPosition=3
 
 **Don Lemon, CNN Star Anchor, to Leave the Network**\
-`Mr. Lemon, one of the network’s most recognizable stars, had been under scrutiny since making remarks about women and aging in February that were widely perceived to be sexist.`\
+`Mr. Lemon, one of the network’s most recognizable stars, had been under scrutiny since an uproar over on-air remarks he made about women and aging in February.`\
 https://nytimes.com/2023/04/24/business/media/don-lemon-cnn.html?searchResultPosition=4
 
 **Review: Byronic Heroism Can’t Save ‘Sardanapal’ in Berlin**\
