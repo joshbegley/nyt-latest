@@ -1,5 +1,5 @@
-**Why First Republic Has Not Done a Deal After Getting a Lifeline**\
-`Big banks gave the regional lender $30 billion following the collapse of Silicon Valley Bank, but it has yet to raise more cash, sell assets — or itself.`\
+**Why First Republic Has Not Done a Deal**\
+`Big banks gave the regional lender a $30 billion lifeline following the collapse of Silicon Valley Bank, but it has yet to raise more cash, sell assets — or itself.`\
 https://nytimes.com/2023/04/24/business/dealbook/first-republic.html?searchResultPosition=1
 
 **A Grim Anniversary for Survivors of the Rana Plaza Disaster**\
