@@ -35,6 +35,6 @@ https://nytimes.com/2023/04/24/realestate/1-1-million-homes-in-palm-springs-oxna
 https://nytimes.com/interactive/2023/04/24/books/banned-books-toni-morrison-lgbtq.html?searchResultPosition=9
 
 **Len Goodman, Judge of ‘Dancing With the Stars,’ Dies at 78**\
-`Mr. Goodman, who was also a longtime judge on the British show “Strictly Come Dancing,” was known for his wry humor and colorful phrases and delivery.`\
+`Mr. Goodman, who was also a longtime judge on the British show “Strictly Come Dancing,” was known for his wry humor, wit and colorful phrases.`\
 https://nytimes.com/2023/04/24/arts/television/len-goodman-dead.html?searchResultPosition=10
 
