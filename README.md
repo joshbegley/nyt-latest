@@ -1,6 +1,6 @@
 **‘Good Night, Oscar’ Review: Sean Hayes With Demerol and Cadenzas**\
 `The “Will & Grace” star is unrecognizable in a Broadway biography of Oscar Levant: wit, pianist and “Eeyore in a cheap suit.”`\
-https://nytimes.com/2023/04/24/theater/good-night-oscar-review-sean-hayes-with-demerol-and-cadenzas.html?searchResultPosition=1
+https://nytimes.com/2023/04/24/theater/good-night-oscar-review-sean-hayes.html?searchResultPosition=1
 
 **North Dakota Governor Signs Near-Total Abortion Ban**\
 `The governor approved the state’s prohibition on Monday, just a month after the State Supreme Court blocked an earlier ban.`\
