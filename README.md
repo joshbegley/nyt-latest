@@ -1,5 +1,5 @@
 **DeSantis, an Enigma on Foreign Policy, Praises U.S.-Japan Ties in Tokyo**\
-`The Florida governor Ron DeSantis had a chance to buff up his foreign policy credentials, after criticism from fellow Republicans over his comments on Ukraine.`\
+`The Florida governor, Ron DeSantis, had a chance to buff up his foreign policy credentials, after criticism from fellow Republicans over his comments on Ukraine.`\
 https://nytimes.com/2023/04/24/world/asia/ron-desantis-japan.html?searchResultPosition=1
 
 **Word of the Day: smug**\
