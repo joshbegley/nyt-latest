@@ -1,22 +1,22 @@
+**The Supreme Court’s Abortion Decision, ‘for Now’**\
+`Reaction to the justices’ ruling on the abortion pill mifepristone. Also: Conservatives against transgender rights; military aid for Ukraine.`\
+https://nytimes.com/2023/04/24/opinion/letters/supreme-court-abortion-pill.html?searchResultPosition=1
+
 **Governments Evacuate Diplomats and Other Foreigners From Sudan**\
 `Officials and citizens of other nations were airlifted from Sudan, where hundreds of people have been killed and thousands of others injured in violence between warring generals.`\
-https://nytimes.com/video/world/africa/100000008872142/sudan-evacuations-diplomats-foreign-citizens.html?searchResultPosition=1
+https://nytimes.com/video/world/africa/100000008872142/sudan-evacuations-diplomats-foreign-citizens.html?searchResultPosition=2
 
 **Herb Douglas, Olympic Medalist Inspired by Jesse Owens, Dies at 101**\
 `Believed to be the oldest living Olympic medalist at his death, he met Owens as a teenager, won bronze in the broad jump in 1948 and later created an award in his idol’s honor.`\
-https://nytimes.com/2023/04/24/sports/olympics/herb-douglas-dead.html?searchResultPosition=2
+https://nytimes.com/2023/04/24/sports/olympics/herb-douglas-dead.html?searchResultPosition=3
 
 **Don Lemon, CNN Star Anchor, to Leave the Network**\
 `Mr. Lemon, one of the network’s most recognizable stars, had been under scrutiny since making remarks about women and aging in February that were widely perceived to be sexist.`\
-https://nytimes.com/2023/04/24/business/media/don-lemon-cnn.html?searchResultPosition=3
+https://nytimes.com/2023/04/24/business/media/don-lemon-cnn.html?searchResultPosition=4
 
 **Review: Byronic Heroism Can’t Save ‘Sardanapal’ in Berlin**\
 `The director and star of the Volksbühne’s new show, based on a play by Lord Byron, picked up another role when one of the lead actors was missing in action.`\
-https://nytimes.com/2023/04/24/theater/sardanapal-volksbuehne-fabian-hinrichs.html?searchResultPosition=4
-
-**Fox News Parts Ways With Tucker Carlson**\
-`Mr. Carlson has been one of the network's top-rated hosts for many years.`\
-https://nytimes.com/2023/04/24/business/media/tucker-carlson-fox-news.html?searchResultPosition=5
+https://nytimes.com/2023/04/24/theater/sardanapal-volksbuehne-fabian-hinrichs.html?searchResultPosition=5
 
 **Making Art by Day, Guarding It at the Met by Night**\
 `Over 25 years walking the museum’s midnight shift, Greg Kwiatek learned how to look for the hidden subtleties of paintings, which helped inform his own.`\
