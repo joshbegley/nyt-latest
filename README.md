@@ -1,4 +1,4 @@
-**Apple Largely Prevails in Appeal of Epic Games’ App Store Lawsuit**\
+**Apple Largely Prevails in Appeal of Epic Games’ App Store Suit**\
 `A Ninth Circuit panel did agree with Epic that Apple was violating California law by barring app developers from directing customers to outside payment methods.`\
 https://nytimes.com/2023/04/24/business/apple-epic-games-appeal.html?searchResultPosition=1
 
