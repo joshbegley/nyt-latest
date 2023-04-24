@@ -32,7 +32,7 @@ https://nytimes.com/2023/04/24/science/leafcutter-ants-museum-insectarium.html?s
 
 **The Next Intelligence Leak Could Be Prevented**\
 `We need to start treating the protective end of the intelligence process like it’s as important as the collection part.`\
-https://nytimes.com/2023/04/24/opinion/the-next-intelligence-leak-could-be-prevented.html?searchResultPosition=9
+https://nytimes.com/2023/04/24/opinion/intelligence-leaks-us.html?searchResultPosition=9
 
 **The True Cost of a $12 T-Shirt**\
 `On the 10th anniversary of the Rana Plaza factory disaster that killed over 1,100 workers, Ben Skinner explains why millions of apparel workers are suffering in even worse conditions than before.`\
