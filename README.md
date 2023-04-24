@@ -1,5 +1,5 @@
 **Herb Douglas, Olympic Medalist Inspired by Jesse Owens, Dies at 101**\
-`The oldest living Black medalist at his death, he met Owens as a teenager, won bronze in the broad jump in 1948 and later created an award in his idol’s honor.`\
+`Believed to be the oldest living Olympic medalist at his death, he met Owens as a teenager, won bronze in the broad jump in 1948 and later created an award in his idol’s honor.`\
 https://nytimes.com/2023/04/24/sports/olympics/herb-douglas-dead.html?searchResultPosition=1
 
 **Don Lemon, CNN Star Anchor, to Leave the Network**\
