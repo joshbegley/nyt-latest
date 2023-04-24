@@ -34,7 +34,7 @@ https://nytimes.com/2023/04/24/realestate/1-1-million-homes-in-palm-springs-oxna
 `There has been a spike in book banning efforts across the United States over the past two years. In its most recent report, the American Library Association found that 2,571 titles were challenged last year, an increase of nearly 40 percent over 2021.`\
 https://nytimes.com/interactive/2023/04/24/books/banned-books-toni-morrison-lgbtq.html?searchResultPosition=9
 
-**Len Goodman, Judge of ‘Dancing With the Stars,’ Dies at 78**\
+**Len Goodman, ‘Dancing With the Stars’ Judge, Dies at 78**\
 `Mr. Goodman, who was also a longtime judge on the British show “Strictly Come Dancing,” was known for his wry humor, wit and colorful phrases.`\
 https://nytimes.com/2023/04/24/arts/television/len-goodman-dead.html?searchResultPosition=10
 
