@@ -3,7 +3,7 @@
 https://nytimes.com/2023/04/24/business/apple-epic-games-appeal.html?searchResultPosition=1
 
 **A brief timeline of Tucker Carlson’s rise: From CNN and PBS to Fox.**\
-`By Daniel Victor`\
+`Mr. Carlson, the popular prime-time anchor who parted ways with Fox News on Monday, began his career writing for an array of right-leaning and mainstream publications.`\
 https://nytimes.com/2023/04/24/business/media/tucker-carlson-career-history.html?searchResultPosition=2
 
 **If There Are No New Ideas, How Do We Keep Innovating?**\
