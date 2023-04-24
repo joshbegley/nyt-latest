@@ -30,11 +30,11 @@ https://nytimes.com/interactive/2023/04/24/magazine/pokimane-interview.html?sear
 `The market has been saturated and competitive for decades, but new shops keep coming with offerings like a taro doughnut from Hawaii.`\
 https://nytimes.com/2023/04/24/dining/los-angeles-doughnuts.html?searchResultPosition=8
 
-**Hillary Clinton: Republicans Are Playing Into the Hands of Putin and Xi**\
-`The former secretary of state on why the Republicans’ game with the debt ceiling is landing at a particularly perilous moment for the economy and for global security.`\
-https://nytimes.com/2023/04/24/opinion/hillary-clinton-debt-ceiling-republican-dollar.html?searchResultPosition=9
-
 **Thailand’s Most Polarizing Family Rises Again Ahead of Election**\
 `An ousted populist’s daughter seeks office, fueling concerns that the return of a divisive political dynasty may revive instability, too.`\
-https://nytimes.com/2023/04/24/world/asia/thailand-shinawatra-election.html?searchResultPosition=10
+https://nytimes.com/2023/04/24/world/asia/thailand-shinawatra-election.html?searchResultPosition=9
+
+**Hillary Clinton: Republicans Are Playing Into the Hands of Putin and Xi**\
+`The former secretary of state on why the Republicans’ game with the debt ceiling is landing at a particularly perilous moment for the economy and for global security.`\
+https://nytimes.com/2023/04/24/opinion/hillary-clinton-debt-ceiling-republican-dollar.html?searchResultPosition=10
 
