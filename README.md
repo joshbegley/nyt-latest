@@ -1,40 +1,40 @@
-**Final Days at Credit Suisse Were Marked by a $69 Billion Race for the Exits**\
-`Clients hurried to withdraw money as the Swiss bank faced collapse last month. It was eventually forced to sell itself to a rival, UBS.`\
-https://nytimes.com/2023/04/24/business/dealbook/credit-suisse-withdrawals.html?searchResultPosition=1
+**The Queen of Twitch Wonders What Turns Teenage Fans Into Trolls**\
+`“I’ve seen people realize things they said weren’t OK,” says Pokimane, the most-followed woman on the livestreaming platform. “It does make me think there can be redemption.”`\
+https://nytimes.com/interactive/2023/04/24/magazine/pokimane-interview.html?searchResultPosition=1
 
-**At Ukraine’s Gravesites, a Spring Ritual Hints at Renewal**\
-`A decimated village welcomes back displaced residents for a day of remembrance and hope.`\
-https://nytimes.com/2023/04/24/world/europe/ukraine-villages-ritual-cemeteries.html?searchResultPosition=2
+**Los Angeles Is a Doughnut Town**\
+`The market has been saturated and competitive for decades, but new shops keep coming with offerings like a taro doughnut from Hawaii.`\
+https://nytimes.com/2023/04/24/dining/los-angeles-doughnuts.html?searchResultPosition=2
 
-**What Young Workers Miss Without the ‘Power of Proximity’**\
-`One of the first major studies on remote work shows a hidden penalty of flexibility: less supervision.`\
-https://nytimes.com/2023/04/24/business/remote-work-feedback.html?searchResultPosition=3
+**Hillary Clinton: Republicans Are Playing Into the Hands of Putin and Xi**\
+`The former secretary of state on why the Republicans’ game with the debt ceiling is landing at a particularly perilous moment for the economy and for global security.`\
+https://nytimes.com/2023/04/24/opinion/hillary-clinton-debt-ceiling-republican-dollar.html?searchResultPosition=3
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/04/24/crosswords/spelling-bee-forum.html?searchResultPosition=4
+**Thailand’s Most Polarizing Family Rises Again Ahead of Election**\
+`An ousted populist’s daughter seeks office, fueling concerns that the return of a divisive political dynasty may revive instability, too.`\
+https://nytimes.com/2023/04/24/world/asia/thailand-shinawatra-election.html?searchResultPosition=4
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/04/24/crosswords/wordle-review-answer-674.html?searchResultPosition=5
+**How Democrats Learned to Cast Aside Reservations and Embrace Biden 2024**\
+`The president, who is expected to formally announce his re-election campaign this week, has won the full support of his party despite questions about his age and middling approval ratings.`\
+https://nytimes.com/2023/04/24/us/politics/biden-2024-democrats.html?searchResultPosition=5
 
-**DeSantis, an Enigma on Foreign Policy, Praises U.S.-Japan Ties in Tokyo**\
-`The Florida governor, Ron DeSantis, had a chance to buff up his foreign policy credentials, after criticism from fellow Republicans over his comments on Ukraine.`\
-https://nytimes.com/2023/04/24/world/asia/ron-desantis-japan.html?searchResultPosition=6
+**Ed Sheeran Trial: Did He Copy Marvin Gaye? Here’s What to Know.**\
+`The heirs of Ed Townsend, who co-wrote “Let’s Get It On” with Gaye, accused Sheeran of copying it in “Thinking Out Loud.” Sheeran’s lawyers said both songs are based on a common chord progression.`\
+https://nytimes.com/2023/04/24/arts/music/ed-sheeran-marvin-gaye-copyright-trial.html?searchResultPosition=6
 
-**Word of the Day: smug**\
-`This word has appeared in 59 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/04/24/learning/word-of-the-day-smug.html?searchResultPosition=7
+**Taylor Swift and the Sparkling Trap of Constant Reinvention**\
+`Why do our female pop stars have to keep changing their clothes?`\
+https://nytimes.com/2023/04/24/style/taylor-swift-eras-tour-looks.html?searchResultPosition=7
 
-**What’s on TV This Week: ‘Tom Jones’ and ‘Couples Therapy’**\
-`PBS’s literary adaptation series tackles Henry Fielding’s classic, and the Showtime docuseries returns with Dr. Orna Guralnik and a new group of couples.`\
-https://nytimes.com/2023/04/24/arts/television/whats-on-tv-this-week-tom-jones-and-couples-therapy.html?searchResultPosition=8
+**Inside the Scramble to Make a Half-Million Ants Feel at Home**\
+`The American`\
+https://nytimes.com/2023/04/24/science/leafcutter-ants-museum-insectarium.html?searchResultPosition=8
 
-**Your Monday Briefing**\
-`Evacuations of foreign officials from Sudan.`\
-https://nytimes.com/2023/04/24/briefing/sudan-evacuations-kherson-israel.html?searchResultPosition=9
+**The Next Intelligence Leak Could Be Prevented**\
+`We need to start treating the protective end of the intelligence process like it’s as important as the collection part.`\
+https://nytimes.com/2023/04/24/opinion/the-next-intelligence-leak-could-be-prevented.html?searchResultPosition=9
 
-**Writers Are Rewarded for Their Books About New York**\
-`Sidik Fofana wrote stories about Harlem tenants’ struggles, and John Wood Sweet examined a rape trial from the 1790s.`\
-https://nytimes.com/2023/04/24/nyregion/gotham-book-prize-winners.html?searchResultPosition=10
+**The True Cost of a $12 T-Shirt**\
+`On the 10th anniversary of the Rana Plaza factory disaster that killed over 1,100 workers, Ben Skinner explains why millions of apparel workers are suffering in even worse conditions than before.`\
+https://nytimes.com/2023/04/24/opinion/fast-fashion-apparel-worker-conditions-rana-plaza.html?searchResultPosition=10
 
