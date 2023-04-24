@@ -34,7 +34,7 @@ https://nytimes.com/2023/04/24/world/africa/burkina-faso-military-killings-civil
 `The justices agreed to hear a pair of cases on what the First Amendment has to say about social media accounts maintained by elected officials.`\
 https://nytimes.com/2023/04/24/us/elected-officials-social-media-supreme-court.html?searchResultPosition=9
 
-**In a Lawsuit, Tucker Carlson Is Accused of Promoting Hostile Work Environment**\
+**In a Lawsuit, Tucker Carlson Is Accused of Promoting a Hostile Work Environment**\
 `Carlson’s former head of booking, Abby Grossberg, said that male producers regularly used vulgarities to describe women and frequently made antisemitic jokes.`\
 https://nytimes.com/2023/04/24/business/media/tucker-carlson-abby-grossberg-lawsuit.html?searchResultPosition=10
 
