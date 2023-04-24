@@ -27,7 +27,7 @@ https://nytimes.com/2023/04/24/opinion/letters/supreme-court-abortion-pill.html?
 https://nytimes.com/video/world/africa/100000008872142/sudan-evacuations-diplomats-foreign-citizens.html?searchResultPosition=7
 
 **Herb Douglas, Olympic Medalist Inspired by Jesse Owens, Dies at 101**\
-`Believed to be the oldest living Olympic medalist at his death, he met Owens as a teenager, won bronze in the broad jump in 1948 and later created an award in his idol’s honor.`\
+`The oldest living U.S. Olympic medalist, he met Owens as a teenager, won bronze in the broad jump in 1948 and later created an award in his idol’s honor.`\
 https://nytimes.com/2023/04/24/sports/olympics/herb-douglas-dead.html?searchResultPosition=8
 
 **Don Lemon, CNN Star Anchor, to Leave the Network**\
