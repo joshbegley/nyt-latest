@@ -1,5 +1,5 @@
 **Northern Lights Are Seen in Places Where They Normally Aren’t**\
-`The lights, driven by a large burst of energy from the sun, illuminated an unusually wide area across the United States and Europe and may be visible again on Monday night.`\
+`The lights, driven by a large burst of energy from the sun, illuminated an unusually wide area across North America and Europe and may be visible again on Monday night.`\
 https://nytimes.com/2023/04/24/science/northern-lights-aurora-borealis.html?searchResultPosition=1
 
 **China Accuses a Liberal Columnist of Espionage**\
