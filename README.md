@@ -31,7 +31,7 @@ https://nytimes.com/2023/04/25/us/politics/isis-leader-killed-kabul-airport-bomb
 https://nytimes.com/2023/04/25/business/media/nate-silver-abc-disney-fivethirtyeight.html?searchResultPosition=8
 
 **Head of a Major Law Firm Bought Real Estate From Gorsuch**\
-`Legal experts said that the justice’s disclosure of the sale, which came right after the justice’s appointment, did not violate the law but underscored the need for ethics reforms.`\
+`Experts said that the justice’s disclosure of the sale, which came right after the justice’s appointment, did not violate the law but underscored the need for ethics reforms.`\
 https://nytimes.com/2023/04/25/us/neil-gorsuch-property-sale.html?searchResultPosition=9
 
 **Tucker Carlson and Don Lemon Hire a Top Hollywood Lawyer**\
