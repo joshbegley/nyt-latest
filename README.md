@@ -4,7 +4,7 @@ https://nytimes.com/2023/04/25/arts/music/tim-hecker-no-highs.html?searchResultP
 
 **Why 3 Liberal New York D.A.s Want to Change a Law Backed by Progressives**\
 `As attrition rates among prosecutors rise, and the number of dismissed cases soar, a law that helped defense lawyers is likely to be changed.`\
-https://nytimes.com/2023/04/25/nyregion/discovery-prosecutors-evidence-ny.html?searchResultPosition=2
+https://nytimes.com/2023/04/25/nyregion/discovery-laws-ny.html?searchResultPosition=2
 
 **Qatar Cultural Leader Says Heritage Can Be a Bridge to Art’s Future**\
 `The chairwoman of the Qatari museum board will speak at Art for Tomorrow about the role the past can play in bringing the world together.`\
