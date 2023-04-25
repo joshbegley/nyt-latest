@@ -34,7 +34,7 @@ https://nytimes.com/2023/04/25/science/hakuto-r-moon-lander.html?searchResultPos
 `A young woman training for a horse dancing competition confronts a medical crisis in this conventional family melodrama.`\
 https://nytimes.com/2023/04/25/movies/centurion-the-dancing-stallion-review.html?searchResultPosition=9
 
-**What a Party Switch in North Carolina Means for Democrats**\
-`In one Southern state, a Democratic message. `\
-https://nytimes.com/2023/04/25/opinion/north-carolina-democrat-cotham-switches.html?searchResultPosition=10
+**Who is E. Jean Carroll, the writer accusing Donald Trump of rape?**\
+`By Lola Fadulu`\
+https://nytimes.com/2023/04/25/nyregion/who-is-e-jean-carroll-the-writer-accusing-donald-trump-of-rape.html?searchResultPosition=10
 
