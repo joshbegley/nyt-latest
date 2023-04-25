@@ -1,40 +1,40 @@
-**Opposition Leader Says He Left Venezuela After Being Threatened**\
-`Juan Guaidó said he crossed the border into Colombia and hours later was put on a plane to the United States.`\
-https://nytimes.com/2023/04/25/world/americas/venezuela-juan-guaido-colombia.html?searchResultPosition=1
+**Wonder and Awe in Natural History’s New Wing. Butterflies, Too.**\
+`The stunning $465 million Richard Gilder Center for Science, designed like a canyon, is destined to become a colossal attraction.`\
+https://nytimes.com/2023/04/25/arts/design/gilder-center-natural-history-museum.html?searchResultPosition=1
 
-**Late Night Responds to Fox News’s Ouster of Tucker Carlson**\
-`Seth Meyers joked it would be funny if Fox News “replaced him at 8 p.m. with the new green M&M.”`\
-https://nytimes.com/2023/04/25/arts/television/late-night-tucker-carlson.html?searchResultPosition=2
+**‘Yoga for Jocks’ Keeps This N.B.A. Star Grounded**\
+`Everyone wants an edge during the N.B.A. playoffs. Some like naps. Some have lucky shoes. Golden State’s Kevon Looney does “Joga.”`\
+https://nytimes.com/2023/04/25/sports/basketball/kevon-looney-golden-state-warriors-yoga-joga.html?searchResultPosition=2
 
-**Can Africa Get Close to Vaccine Independence? Here’s What It Will Take.**\
-`Leaders on the continent have vowed that if there is another pandemic, they won’t be shut out of the vaccine market.`\
-https://nytimes.com/2023/04/25/health/africa-vaccine-independence.html?searchResultPosition=3
+**The Flavors and Flair of Latin America, in One Queens Market**\
+`Corona Plaza, a rare hub created by neighborhood food vendors, teems with the aromas and colors of many cuisines. But its future is uncertain.`\
+https://nytimes.com/2023/04/25/dining/queens-corona-plaza-food-vendors.html?searchResultPosition=3
 
-**John Mulaney Punctures His Persona in ‘Baby J’**\
-`In his highly anticipated new Netflix special, the comic changes his pace to deliver bristlingly funny material about addiction, rehab and what it means to be likable.`\
-https://nytimes.com/2023/04/25/arts/television/john-mulaney-netflix-baby-j.html?searchResultPosition=4
+**A Florida Garden Brings Louis Comfort Tiffany’s Work to Life, in Bloom**\
+`With hundreds of vibrant plants, and a gazebo turned into an Art Nouveau lamp, the outdoor exhibition is transporting — “like a little vacation.”`\
+https://nytimes.com/2023/04/25/arts/design/selby-gardens-louis-comfort-tiffany.html?searchResultPosition=4
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/04/25/crosswords/spelling-bee-forum.html?searchResultPosition=5
+**Museums Look Locally for Growth and, Sometimes, Survival**\
+`A combination of the Covid pandemic and changing demographics has led them to expand their visions and horizons.`\
+https://nytimes.com/2023/04/25/arts/design/museums-local-growth.html?searchResultPosition=5
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/04/25/crosswords/wordle-review-answer-675.html?searchResultPosition=6
+**Sorry, You’ve Been Rejected. Now Let’s Party.**\
+`Whether it’s with sheet cake or walls proudly displaying rejection letters, students and adults are finding a new joy in the word “no.”`\
+https://nytimes.com/2023/04/25/style/college-rejection-parties.html?searchResultPosition=6
 
-**Chess and Teens**\
-`Do you play? If you don’t, would you like to learn?`\
-https://nytimes.com/2023/04/25/learning/chess-and-teens.html?searchResultPosition=7
+**Making Art Accessible for All**\
+`Visiting a museum is still a challenge for someone with a disability. The Museum of Modern Art has been in the forefront of change by providing programs and training.`\
+https://nytimes.com/2023/04/25/arts/design/museum-accessibility.html?searchResultPosition=7
 
-**Deadly Blasts Destroy Police Station in Pakistan**\
-`Some officials said the explosions, which killed at least 15, were caused by an accident. But a rise in militant attacks has put the region on edge.`\
-https://nytimes.com/2023/04/25/world/asia/pakistan-swat-blasts.html?searchResultPosition=8
+**Dragonflies, Beetles, Cicadas — What’s Not to Love?**\
+`An entomologist at the American Museum of Natural History is helping choose the insects for the new Richard Gilder Center for Science, Education and Innovation. It’s a task she loves.`\
+https://nytimes.com/2023/04/25/arts/design/jessica-ware-insects-american-museum-natural-history.html?searchResultPosition=8
 
-**Word of the Day: oblige**\
-`This word has appeared in 39 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/04/25/learning/word-of-the-day-oblige.html?searchResultPosition=9
+**Coloring in the Margins: Pacita Abad**\
+`A retrospective in Minneapolis aims to give greater acclaim to an artist whose work expounded on the immigrant experience and challenged Western art practices.`\
+https://nytimes.com/2023/04/25/arts/design/walker-pacita-abad-minneapolis.html?searchResultPosition=9
 
-**Ukraine Diary: In front-line villages, animals are hard to leave behind.**\
-`By Maria Varenikova`\
-https://nytimes.com/2023/04/25/world/europe/ukraine-diary-in-front-line-villages-animals-are-hard-to-leave-behind.html?searchResultPosition=10
+**How to Make an Entrance, Whether You Have a Real Foyer or Not**\
+`Your entryway needs to be functional, but it also ought to spark some joy. Here’s how to make the most of whatever entry space you have.`\
+https://nytimes.com/2023/04/25/realestate/how-to-make-an-entrance-whether-you-have-a-real-foyer-or-not.html?searchResultPosition=10
 
