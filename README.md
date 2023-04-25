@@ -1,5 +1,5 @@
 **Dawn Davis Resigns as Bon Appétit Editor to Rejoin Simon & Schuster**\
-`Ms. Davis, who headed the food magazine after a time of turmoil, will head the publishing imprint she founded.`\
+`Ms. Davis, who took charge of the food magazine at a time of turmoil, will head the publishing imprint she founded.`\
 https://nytimes.com/2023/04/25/dining/bon-appetit-editor-dawn-davis-resigns.html?searchResultPosition=1
 
 **Ed Sheeran, Accused of Copying Marvin Gaye, Testifies He Wrote His Song**\
