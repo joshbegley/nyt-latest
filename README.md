@@ -1,4 +1,4 @@
-**Alton H. Maddox Jr., Lawyer in Tawana Brawley Rape Hoax, Dies at 77**\
+**Alton H. Maddox Jr., 77, Lawyer in Tawana Brawley Rape Hoax, Dies**\
 `The case inflamed racial tensions, with Mr. Maddox later calling New York “the Mississippi of the ’90s.” After the fraud was revealed, he was unrepentant.`\
 https://nytimes.com/2023/04/25/nyregion/alton-maddox-dead.html?searchResultPosition=1
 
