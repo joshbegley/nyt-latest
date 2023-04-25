@@ -1,6 +1,6 @@
 **Murdoch’s News Group Paid Settlement to Prince William, Court Filing Shows**\
 `A legal filing by Prince Harry in his own case against News Group claims his brother received “a huge sum of money’’ to settle phone-hacking allegations.`\
-https://nytimes.com/2023/04/25/world/prince-william-harry-hacking-murdoch.html?searchResultPosition=1
+https://nytimes.com/2023/04/25/world/europe/prince-william-harry-hacking-murdoch.html?searchResultPosition=1
 
 **Biden Says ‘MAGA Extremists Are Cut From a Different Cloth’**\
 `In his first public speech since announcing his re-election bid, President Biden called himself “the most pro-union president in American history” and said that Republicans support an agenda that favors the rich.`\
