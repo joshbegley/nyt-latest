@@ -14,7 +14,7 @@ https://nytimes.com/2023/04/25/nyregion/discovery-laws-ny.html?searchResultPosit
 `The chairwoman of the Qatari museum board will speak at Art for Tomorrow about the role the past can play in bringing the world together.`\
 https://nytimes.com/2023/04/25/arts/design/qatar-culture-sheikha-mayassaa.html?searchResultPosition=4
 
-**The Map, the Issues and the Incumbency Favoring Democrats**\
+**Analysis: The Map, the Issues and the Incumbency Favoring Democrats**\
 `President Biden’s poll numbers remain low, but structural advantages have Democrats insisting he is far better positioned than his Republican rivals.`\
 https://nytimes.com/2023/04/25/us/politics/biden-re-election.html?searchResultPosition=5
 
