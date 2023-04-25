@@ -14,7 +14,7 @@ https://nytimes.com/2023/04/25/science/goldfish-brain-computer-navigation.html?s
 `Listen to Mary J. Blige, Gang of Four, Outkast and one track that was far and away the most frequently suggested.`\
 https://nytimes.com/2023/04/25/arts/music/amplifier-newsletter-readers-workout-songs.html?searchResultPosition=4
 
-**2 Executives Are on Leave After Bud Light Transgender Turmoil**\
+**2 Executives Are on Leave After Bud Light Promotion With Transgender Influencer**\
 `Anheuser-Busch announced the moves after a conservative backlash to a promotion with the social media influencer Dylan Mulvaney.`\
 https://nytimes.com/2023/04/25/business/bud-light-dylan-mulvaney.html?searchResultPosition=5
 
