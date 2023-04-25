@@ -3,7 +3,7 @@
 https://nytimes.com/2023/04/25/sports/ncaafootball/transfer-portal-colorado.html?searchResultPosition=1
 
 **Manhattan D.A. Seeks to Limit Trump’s Access to Some Evidence**\
-`Citing the investigation into the former president’s handling of classified documents, a prosecutor asked that he only be allowed to review some material with his lawyers present.`\
+`Citing the investigation into Donald Trump’s handling of classified documents, a prosecutor asked a judge to only allow Mr. Trump to review some material with his lawyers present.`\
 https://nytimes.com/2023/04/25/nyregion/trump-bragg-gag-order.html?searchResultPosition=2
 
 **Harry Belafonte: A Life in Photos**\
