@@ -1,5 +1,5 @@
 **G.M.’s Profits Fell 18.5 Percent in the First Quarter**\
-`The decline over the first three months of 2022 were primarily the result of the short-term costs of job cuts and slower sales in China.`\
+`The decline over the first three months of 2022 was primarily the result of the short-term costs of job cuts and slower sales in China.`\
 https://nytimes.com/2023/04/25/business/gm-earnings-first-quarter.html?searchResultPosition=1
 
 **Biden Announces Re-Election Bid for 2024**\
