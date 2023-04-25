@@ -1,6 +1,6 @@
 **The Long Career Arc of Joe Biden**\
 `A timeline of Joseph R. Biden Jr.’s career highlights told through photographs.`\
-https://nytimes.com/interactive/2023/04/24/multimedia/25pol-biden-visual-announcement.html?searchResultPosition=1
+https://nytimes.com/interactive/2023/04/24/multimedia/biden-career-timeline.html?searchResultPosition=1
 
 **Police Remove Protesters From Montana House Chamber**\
 `Protesters were arrested for interrupting a Montana State House session after legislators refused to allow Representative Zooey Zephyr to speak.`\
