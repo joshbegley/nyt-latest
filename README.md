@@ -22,19 +22,19 @@ https://nytimes.com/2023/04/25/us/politics/biden-record-presidential-campaign.ht
 `Belafonte asked, “Where are the radical thinkers?” His question kept repeating in my head.`\
 https://nytimes.com/2023/04/25/opinion/harry-belafonte.html?searchResultPosition=6
 
+**‘Publicity here will only complicate the process,’ Lavrov says of any prisoner swap.**\
+`By Farnaz Fassihi`\
+https://nytimes.com/2023/04/25/world/europe/publicity-here-will-only-complicate-the-process-lavrov-says-of-any-prisoner-swap.html?searchResultPosition=7
+
 **Harry Belafonte, Folk Hero**\
 `Cool and charismatic, Belafonte channeled his stardom into activism. He was a true people person, who knew how to reach, teach and challenge us.`\
-https://nytimes.com/2023/04/25/arts/music/harry-belafonte-singer-activist.html?searchResultPosition=7
+https://nytimes.com/2023/04/25/arts/music/harry-belafonte-singer-activist.html?searchResultPosition=8
 
 **Don’t Call It a ‘Cut’: G.O.P. Tries to Rebrand Its Plan to Reduce Spending**\
 `House Republicans pitched their 2011 debt limit bill aggressively, trumpeting a zeal for deep spending cuts. Their latest fiscal plan tiptoes around them, with a milder slogan to match.`\
-https://nytimes.com/2023/04/25/us/politics/republicans-debt-limit-spending-cuts-biden.html?searchResultPosition=8
+https://nytimes.com/2023/04/25/us/politics/republicans-debt-limit-spending-cuts-biden.html?searchResultPosition=9
 
 **Transfer Portal Shows the Latest Revolving Door in College Football**\
 `Colorado has numerous scholarships available after a change in its coaching staff, serving as one of many examples of how the transfer portal has created a market similar to professional free agency.`\
-https://nytimes.com/2023/04/25/sports/ncaafootball/transfer-portal-colorado.html?searchResultPosition=9
-
-**Manhattan D.A. Seeks to Limit Trump’s Access to Some Evidence**\
-`Citing the investigation into Donald Trump’s handling of classified documents, a prosecutor asked a judge to only allow Mr. Trump to review some material with his lawyers present.`\
-https://nytimes.com/2023/04/25/nyregion/trump-bragg-gag-order.html?searchResultPosition=10
+https://nytimes.com/2023/04/25/sports/ncaafootball/transfer-portal-colorado.html?searchResultPosition=10
 
