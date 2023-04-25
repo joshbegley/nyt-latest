@@ -11,7 +11,7 @@ https://nytimes.com/2023/04/25/science/mars-deimos-moon-photos.html?searchResult
 https://nytimes.com/2023/04/25/us/ken-potts-dead.html?searchResultPosition=3
 
 **Michael Denneny, 80, Dies; Editor Created Outlets for Gay Literature**\
-`In addition to publishing mainstream books, he was a founder of a magazine devoted to gay and lesbian writing and an imprint devoted to L.G.B.T. fiction and nonfiction.`\
+`In a largely closeted era, he was a founder of a magazine devoted to gay and lesbian writing and an imprint devoted to L.G.B.T. fiction and nonfiction.`\
 https://nytimes.com/2023/04/25/books/michael-denneny-dead.html?searchResultPosition=4
 
 **Your Wednesday Briefing: Biden’s Re-Election Bid**\
