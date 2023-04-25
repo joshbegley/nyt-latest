@@ -1,4 +1,4 @@
-**Police Remove Protesters from Montana House Chamber**\
+**Police Remove Protesters From Montana House Chamber**\
 `Protesters were arrested for interrupting a Montana State House session after legislators refused to allow Representative Zooey Zephyr to speak.`\
 https://nytimes.com/video/us/politics/100000008874932/montana-zooey-zephyr-transgender.html?searchResultPosition=1
 
