@@ -22,9 +22,9 @@ https://nytimes.com/2023/04/25/us/politics/biden-record-presidential-campaign.ht
 `Belafonte asked, “Where are the radical thinkers?” His question kept repeating in my head.`\
 https://nytimes.com/2023/04/25/opinion/harry-belafonte.html?searchResultPosition=6
 
-**‘Publicity here will only complicate the process,’ Lavrov says of any prisoner swap.**\
-`By Farnaz Fassihi`\
-https://nytimes.com/2023/04/25/world/europe/publicity-here-will-only-complicate-the-process-lavrov-says-of-any-prisoner-swap.html?searchResultPosition=7
+**The Russian foreign minister hints of a possible prisoner swap for Gershkovich.**\
+`The channel to discuss detained American and Russian citizens, created in 2021, remains open, Sergey V. Lavrov said. But, he added, publicity ‘will only complicate the process.’`\
+https://nytimes.com/2023/04/25/world/europe/prisoner-swap-gershkovich-whelan.html?searchResultPosition=7
 
 **Harry Belafonte, Folk Hero**\
 `Cool and charismatic, Belafonte channeled his stardom into activism. He was a true people person, who knew how to reach, teach and challenge us.`\
