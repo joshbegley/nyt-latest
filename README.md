@@ -1,40 +1,40 @@
-**Singapore Hangs Man for Conspiring to Traffic 2 Pounds of Cannabis**\
-`Human rights groups called the punishment far too severe and raised questions about due process.`\
-https://nytimes.com/2023/04/26/world/asia/singapore-execution-cannabis.html?searchResultPosition=1
+**The Tree of Life Synagogue Shooting Could Have Destroyed My Family — but Jewish Tradition Rejects the Death Penalty**\
+`It is in the divine realm, not the human one, where justice will be served.`\
+https://nytimes.com/2023/04/26/opinion/tree-of-life-synagogue-jewish-tradition-death-penalty.html?searchResultPosition=1
 
-**British American Tobacco Is Fined $635 Million for Selling Cigarettes to North Korea**\
-`Prosecutors in the United States said the firm secretly did business with North Korea through an intermediary, violating sanctions. The company apologized.`\
-https://nytimes.com/2023/04/26/business/british-american-tobacco-north-korea-sanctions.html?searchResultPosition=2
+**How to Grow Dahlias? A Ceramist Has Some Advice for You**\
+`Frances Palmer has been making ceramics and growing dahlias in her Connecticut garden for three decades: “They’re just so joyous.”`\
+https://nytimes.com/2023/04/26/realestate/how-to-grow-dahlias-a-ceramist-has-some-advice-for-you.html?searchResultPosition=2
 
-**Inside Biden’s Renewed Promise to Protect South Korea From Nuclear Weapons**\
-`President Biden’s emphasis on America’s willingness to defend South Korea is a striking admission that North Korea’s arsenal is here to stay.`\
-https://nytimes.com/2023/04/26/us/politics/biden-korea-nuclear-weapons.html?searchResultPosition=3
+**Colorful Stories for Children, With the Darkest History as Backdrop**\
+`Whimsical children’s books signed El Pintor were a success in the Netherlands during World War II. Behind the pseudonym was a Jewish couple who used the proceeds to help the resistance.`\
+https://nytimes.com/2023/04/26/books/el-pintor-childrens-books-antiquarian-book-fair.html?searchResultPosition=3
 
-**‘War Has Just Erupted’: Reporting on the Conflict in Sudan**\
-`In an interview, The Times’s chief Africa correspondent explains how he and his colleagues are covering a struggle for power between two generals.`\
-https://nytimes.com/2023/04/26/insider/war-has-just-erupted-reporting-on-the-conflict-in-sudan.html?searchResultPosition=4
+**East Lyme, Conn.: ‘Clean, Safe, Peaceful and Quiet’**\
+`This shoreline town attracts buyers with its beaches and good schools. But available homes are scarce, and they sell very quickly.`\
+https://nytimes.com/2023/04/26/realestate/east-lyme-connnecticut-homes.html?searchResultPosition=4
 
-**Biden’s 2024 Campaign Begins. You Might Miss It at First.**\
-`The president has no immediate plans to barnstorm key states with large rallies. He will instead try to burnish his record, and hope Republican infighting continues.`\
-https://nytimes.com/2023/04/26/us/politics/biden-2024-campaign.html?searchResultPosition=5
+**Frances Palmer: Making Ceramics and Growing Dahlias**\
+`The art and garden of Ms. Palmer, a ceramist based in Weston, Conn., have intertwined over three decades, each informing the other.`\
+https://nytimes.com/slideshow/2023/04/26/realestate/frances-palmer-making-ceramics-and-growing-dahlias.html?searchResultPosition=5
 
-**Binance Faces Mounting Pressure as U.S. Crypto Crackdown Intensifies**\
-`The scrutiny on Binance, the giant cryptocurrency exchange, has sent new tremors through a market that is still bruised by the implosion of FTX.`\
-https://nytimes.com/2023/04/26/technology/binance-crypto-crackdown.html?searchResultPosition=6
+**As New York Boosts Tax Breaks for Movies, Some Critics Pan the Program**\
+`Gov. Kathy Hochul wants to increase incentives to film and television to $700 million a year, arguing that a lesser commitment would cause producers to go elsewhere.`\
+https://nytimes.com/2023/04/26/nyregion/film-subsidies-tax-credit-ny.html?searchResultPosition=6
 
-**Will Georgia’s Jalen Carter Still Be a Top N.F.L. Draft Pick?**\
-`After pleading no contest to two misdemeanor charges for his role in a fatal car crash, the defensive lineman has become one of the most inscrutable prospects in Thursday’s draft.`\
-https://nytimes.com/2023/04/26/sports/football/nfl-draft-jalen-carter-georgia-crash.html?searchResultPosition=7
+**She’s More Than the Creator of Peter Rabbit**\
+`An exhibition in Nashville of Beatrix Potter’s works explores her love of the world of science and the challenges facing women of the Victorian era.`\
+https://nytimes.com/2023/04/26/arts/design/beatrix-potter-peter-rabbit-science.html?searchResultPosition=7
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/04/26/crosswords/wordle-review-answer-676.html?searchResultPosition=8
+**An Exhibition Proposes Alternatives to Removing Contentious Statues**\
+`The Chazen Museum of Art in Wisconsin is presenting “re:mancipation,” a multifaceted effort to add context to a 130-year-old sculpture.`\
+https://nytimes.com/2023/04/26/arts/design/chazen-museum-emancipation.html?searchResultPosition=8
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/04/26/crosswords/spelling-bee-forum.html?searchResultPosition=9
+**Living In ... East Lyme, Conn.**\
+`This shoreline town attracts buyers with its beaches and good schools. But available homes are scarce — and they sell very quickly.`\
+https://nytimes.com/slideshow/2023/04/26/realestate/living-in-east-lyme-conn.html?searchResultPosition=9
 
-**A Surge in Book Bans**\
-`Has your school or local community been affected? What titles were removed? Why?`\
-https://nytimes.com/2023/04/26/learning/a-surge-in-book-bans.html?searchResultPosition=10
+**Kitsch to Creepy: Polish Town No Longer Relishes Soviet Past (or Rasputin)**\
+`A Polish town that was once occupied by the Soviets used to embrace its history with military re-enactments and Lenin banners. But “nobody wants to be reminded of Russia these days.”`\
+https://nytimes.com/2023/04/26/world/europe/poland-russia-borne-sulinowo.html?searchResultPosition=10
 
