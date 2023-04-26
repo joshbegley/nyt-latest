@@ -18,8 +18,8 @@ https://nytimes.com/2023/04/26/us/politics/jim-justice-joe-manchin-senate.html?s
 `Another reporter was hospitalized in the city of Kherson and described the attack to the paper, La Repubblica.`\
 https://nytimes.com/2023/04/26/world/europe/journalist-killed-ukraine-italian-newspaper.html?searchResultPosition=5
 
-**Montana House to Vote on Discipline of Transgender Lawmaker**\
-`At issue is the status of Representative Zooey Zephyr, the state’s only transgender legislator, who faces possible censure or other discipline.`\
+**Montana House Votes to Discipline Transgender Lawmaker**\
+`Legislators voted to bar Representative Zooey Zephyr, the state’s only transgender legislator, from the House chamber for the remainder of the legislative session.`\
 https://nytimes.com/2023/04/26/us/zooey-zephyr-transgender-montana-house.html?searchResultPosition=6
 
 **Oklahoma Panel Declines to Spare Death Row Prisoner Richard Glossip**\
