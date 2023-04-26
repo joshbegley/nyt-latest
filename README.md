@@ -6,7 +6,7 @@ https://nytimes.com/2023/04/26/style/claire-ptak-love-is-a-pink-cake-meghan-mark
 `The agreement is a centerpiece of this week’s state visit by President Yoon Suk Yeol of South Korea, who will appear with President Biden at the White House on Wednesday.`\
 https://nytimes.com/2023/04/26/us/politics/biden-south-korea-state-visit.html?searchResultPosition=2
 
-**In an Indian Village, Cultivating Girls’Big-League Dreams**\
+**In an Indian Village, Cultivating Girls’ Big-League Dreams**\
 `A new $500 million women’s cricket league is offering the kind of opportunities that never existed before in India. The girls of one Punjab village are ready.`\
 https://nytimes.com/2023/04/26/world/asia/india-women-cricket.html?searchResultPosition=3
 
