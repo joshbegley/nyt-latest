@@ -1,40 +1,40 @@
+**Fact-Checking the Kickoff to Biden’s Re-election Campaign**\
+`The president omitted key context when discussing the federal deficit, exaggerated his approval ratings and misstated his family history.`\
+https://nytimes.com/2023/04/26/us/politics/biden-fact-check-grandfather-approval-ratings-jobs.html?searchResultPosition=1
+
+**Trump Seeks to Have Intelligence Agencies Take Over Documents Inquiry**\
+`Lawyers for the former president asked a House committee to pass legislation stripping the Justice Department of authority to investigate his handling of classified material after leaving office.`\
+https://nytimes.com/2023/04/26/us/politics/trump-classified-documents.html?searchResultPosition=2
+
+**On His First Day as a Jet, Rodgers Says the Team Can Win It All**\
+`“I really try and listen to the signs and synchronicities that the universe puts in our face every day,” Aaron Rodgers said, “and this was basically the direction that everything was pointing.”`\
+https://nytimes.com/2023/04/26/sports/football/aaron-rodgers-jets.html?searchResultPosition=3
+
 **The Full Guest List for Biden’s State Dinner With South Korea**\
 `The Bidens invited more than 180 guests, including government officials, athletes, business leaders and prominent Asian Americans.`\
-https://nytimes.com/2023/04/26/us/politics/state-dinner-guest-list.html?searchResultPosition=1
+https://nytimes.com/2023/04/26/us/politics/state-dinner-guest-list.html?searchResultPosition=4
 
 **Michigan Students Sue School District Over ‘Let’s Go Brandon’ Ban**\
 `The case is seeking declaration that requiring students to remove “Let’s go Brandon” attire violated the students’ First Amendment rights.`\
-https://nytimes.com/2023/04/26/us/politics/lets-go-brandon-shirts-michigan-school.html?searchResultPosition=2
+https://nytimes.com/2023/04/26/us/politics/lets-go-brandon-shirts-michigan-school.html?searchResultPosition=5
 
 **Your Wednesday Evening Briefing**\
 `Here’s what you need to know at the end of the day.`\
-https://nytimes.com/2023/04/26/briefing/house-debt-limit-bill-disney-desantis-lawsuit.html?searchResultPosition=3
+https://nytimes.com/2023/04/26/briefing/house-debt-limit-bill-disney-desantis-lawsuit.html?searchResultPosition=6
 
 **Spielberg, Who Regrets Cutting ‘E.T.’ Guns, Says Don’t Revise Old Works**\
 `“No film should be revised based on the lenses we now are either voluntarily or being forced to peer through,” Steven Spielberg said.`\
-https://nytimes.com/2023/04/26/arts/steven-spielberg-et-guns-edits.html?searchResultPosition=4
+https://nytimes.com/2023/04/26/arts/steven-spielberg-et-guns-edits.html?searchResultPosition=7
 
 **Ex-Harvard Professor Sentenced in China Ties Case**\
 `Charles Lieber had been seen as a potential Nobel Prize-winning chemist, but was convicted in 2021 of lying to federal investigators and failing to report income.`\
-https://nytimes.com/2023/04/26/science/charles-lieber-sentence-china.html?searchResultPosition=5
+https://nytimes.com/2023/04/26/science/charles-lieber-sentence-china.html?searchResultPosition=8
 
 **Tweets Become Harder to Believe as Labels Change Meaning**\
 `The elimination of check marks that helped authenticate accounts has convulsed a platform that once seemed indispensable for following breaking news.`\
-https://nytimes.com/2023/04/26/technology/twitter-verification-problems.html?searchResultPosition=6
+https://nytimes.com/2023/04/26/technology/twitter-verification-problems.html?searchResultPosition=9
 
 **High-Ranking Iranian Cleric Gunned Down by Bank Guard**\
 `The killing comes as attacks on clerics are on the rise, following months of angry protests against the theocratic government.`\
-https://nytimes.com/2023/04/26/world/middleeast/iran-cleric-killing.html?searchResultPosition=7
-
-**Manchester City, Relentless and Ruthless, Strolls Past Arsenal**\
-`Reeling in the league leaders after a season-long chase, City won and positioned itself to claim its third straight Premier League title.`\
-https://nytimes.com/2023/04/26/sports/soccer/manchester-city-arsenal-premier-league.html?searchResultPosition=8
-
-**Biden Says He Has a ‘Job to Finish,’ Downplaying Concerns Over His Age**\
-`The president also said that he was not the only Democrat who could beat Donald J. Trump, but that “I know the danger he presents to our democracy.”`\
-https://nytimes.com/2023/04/26/us/politics/biden-downplays-concerns-age.html?searchResultPosition=9
-
-**Montana House Votes to Block Transgender Lawmaker**\
-`The Legislature voted to bar Representative Zooey Zephyr from the House floor for the remainder of the legislative session.`\
-https://nytimes.com/video/us/politics/100000008876453/montana-zooey-zephyr.html?searchResultPosition=10
+https://nytimes.com/2023/04/26/world/middleeast/iran-cleric-killing.html?searchResultPosition=10
 
