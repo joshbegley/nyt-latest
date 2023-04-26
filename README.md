@@ -1,6 +1,6 @@
 **Designers and Duchesses Like the Taste of Her Cakes**\
 `Claire Ptak, who is publishing her fifth cookbook in May, counts Meghan Markle, Simone Rocha and Christopher Kane as fans of her desserts.`\
-https://nytimes.com/2023/04/26/style/claire-ptak-love-is-a-pink-cake-meghan-markle.html?searchResultPosition=1
+https://nytimes.com/2023/04/26/style/claire-ptak-cookbook-meghan-markle.html?searchResultPosition=1
 
 **U.S. and South Korea Agree to Cooperate on Nuclear Weapons**\
 `The agreement is a centerpiece of this week’s state visit by President Yoon Suk Yeol of South Korea, who will appear with President Biden at the White House on Wednesday.`\
