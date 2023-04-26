@@ -22,8 +22,8 @@ https://nytimes.com/2023/04/26/world/africa/sudan-dictator-bashir.html?searchRes
 `The mayor had faced growing outrage over budget cuts to New York City libraries that would have forced many branches to close on weekends.`\
 https://nytimes.com/2023/04/26/nyregion/library-cuts-nyc.html?searchResultPosition=6
 
-**U.K. Blocks Microsoft’s Bid for Activision, a Blow to the Tech Giant**\
-`The decision barring the $69 billion takeover of a big video game publisher is a major loss for Microsoft, which also faces pushback from U.S. regulators.`\
+**U.K. Blocks Microsoft’s $69 Billion Bid for Activision, a Blow for Tech Deals**\
+`The decision barring the takeover of a big video game publisher is a major loss for Microsoft, which also faces pushback from U.S. regulators.`\
 https://nytimes.com/2023/04/26/technology/microsoft-activision-uk.html?searchResultPosition=7
 
 **Biden’s Quiet Re-election Strategy**\
