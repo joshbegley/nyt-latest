@@ -23,7 +23,7 @@ https://nytimes.com/2023/04/26/sports/basketball/ime-udoka-houston-rockets.html?
 https://nytimes.com/2023/04/26/business/china-censored-search-engine.html?searchResultPosition=7
 
 **California Reconsiders Its Boycotts of States Over Their L.G.B.T.Q. Laws**\
-`San Francisco repealed its ban on city employee travel to conservative states, and the state of California may follow suit.`\
+`San Francisco repealed its ban on city business with conservative states, and California may follow suit by rescinding a similar prohibition on state-funded travel.`\
 https://nytimes.com/2023/04/26/us/california-republican-state-travel-boycotts.html?searchResultPosition=8
 
 **In Bipartisan Bill, Senators Urge Supreme Court to Adopt Ethics Code**\
