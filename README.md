@@ -1,5 +1,5 @@
 **Street Chaos and Long Hours Push Farmers’ Market Workers to Unionize**\
-`Working at a New York City farmers’ market is not as idyllic as it might seem, employees say. Now they are unionizing, and their employer has recognized their unit.`\
+`Working at a New York City farmers’ market is not as idyllic as it might seem, employees say. Now they are unionizing, and their employer will recognize their unit.`\
 https://nytimes.com/2023/04/26/nyregion/nyc-farmers-market-union.html?searchResultPosition=1
 
 **Freedom and the American Flag Dominate First Ad for Biden**\
