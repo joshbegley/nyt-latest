@@ -1,5 +1,5 @@
 **Meta Returns to Growth After Struggling With Falling Sales**\
-`The owner of Facebook and Instagram reported a 3% revenue increase in the latest quarter, even as spending rose and profits fell.`\
+`The owner of Facebook and Instagram reported a 3 percent revenue increase in the latest quarter, even as spending rose and profits fell.`\
 https://nytimes.com/2023/04/26/technology/meta-quarterly-earnings.html?searchResultPosition=1
 
 **New Rules for Power Plants Could Give Carbon Capture a Boost. Here’s How.**\
