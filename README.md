@@ -23,7 +23,7 @@ https://nytimes.com/2023/04/26/sports/soccer/manchester-city-arsenal-premier-lea
 https://nytimes.com/2023/04/26/us/politics/biden-downplays-concerns-age.html?searchResultPosition=6
 
 **Montana House Votes to Block Transgender Lawmaker**\
-`The Legislature voted to bar the state’s only transgender lawmaker, Representative Zooey Zephyr, from the House floor for the remainder of the legislative session.`\
+`The Legislature voted to bar Representative Zooey Zephyr from the House floor for the remainder of the legislative session.`\
 https://nytimes.com/video/us/politics/100000008876453/montana-zooey-zephyr.html?searchResultPosition=7
 
 **A Century-Old Vaccine Fails to Protect Against Covid**\
