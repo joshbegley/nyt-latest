@@ -34,7 +34,7 @@ https://nytimes.com/2023/04/26/theater/sardanapal-volksbuehne-fabian-hinrichs.ht
 `He began his career during the 1950s folk revival and continued to record — and helped orchestrate “We Are the World” — while pursing his many other artistic and political interests.`\
 https://nytimes.com/2023/04/26/arts/music/harry-belafonte-songs.html?searchResultPosition=9
 
-**DeSantis Allies Vote to Nullify Disney’s Control of Florida Resort**\
-`The action is the latest in a string of moves against Disney by the governor and his allies, and the company is likely to fight back.`\
+**Disney Sues DeSantis Over Control of Its Florida Resort**\
+`The company claimed “a targeted campaign of government retaliation,” which it said stemmed from its criticism of a contentious state education law.`\
 https://nytimes.com/2023/04/26/business/disney-desantis-board-florida.html?searchResultPosition=10
 
