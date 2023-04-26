@@ -10,8 +10,8 @@ https://nytimes.com/2023/04/26/movies/nicolas-cage-renfield-performance.html?sea
 `After a late-night haggling session, it was still not clear whether Speaker Kevin McCarthy could pass his fiscal plan, which would tie a yearlong debt ceiling increase to spending cuts and policy changes.`\
 https://nytimes.com/2023/04/26/us/politics/debt-limit-vote-republicans.html?searchResultPosition=3
 
-**The U.K. Needs to Realize It’s Gotten Poorer, a Central Banker Says**\
-`The suggestion, from the Bank of England’s chief economist, was offered as a way to curb inflation. But the message has fallen flat.`\
+**Central Banker to Britons: You’re Worse Off. Accept It.**\
+`The comment, from the Bank of England’s chief economist, was offered as a way to curb inflation. But the message has fallen flat.`\
 https://nytimes.com/2023/04/26/business/uk-poorer-inflation-bank-of-england.html?searchResultPosition=4
 
 **Reducing Heart Attack Risk: Statins vs. Supplements**\
