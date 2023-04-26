@@ -1,40 +1,40 @@
+**Inside Biden’s Renewed Promise to Protect South Korea From Nuclear Weapons**\
+`President Biden’s emphasis on America’s willingness to defend South Korea is a striking admission that North Korea’s arsenal is here to stay.`\
+https://nytimes.com/2023/04/26/us/politics/biden-korea-nuclear-weapons.html?searchResultPosition=1
+
+**‘War Has Just Erupted’: Reporting on the Conflict in Sudan**\
+`In an interview, The Times’s chief Africa correspondent explains how he and his colleagues are covering a struggle for power between two generals.`\
+https://nytimes.com/2023/04/26/insider/war-has-just-erupted-reporting-on-the-conflict-in-sudan.html?searchResultPosition=2
+
+**Biden’s 2024 Campaign Begins. You Might Miss It at First.**\
+`The president has no immediate plans to barnstorm key states with large rallies. He will instead try to burnish his record, and hope Republican infighting continues.`\
+https://nytimes.com/2023/04/26/us/politics/biden-2024-campaign.html?searchResultPosition=3
+
+**Binance Faces Mounting Pressure as U.S. Crypto Crackdown Intensifies**\
+`The scrutiny on Binance, the giant cryptocurrency exchange, has sent new tremors through a market that is still bruised by the implosion of FTX.`\
+https://nytimes.com/2023/04/26/technology/binance-crypto-crackdown.html?searchResultPosition=4
+
+**Will Georgia’s Jalen Carter Still Be a Top N.F.L. Draft Pick?**\
+`After pleading no contest to two misdemeanor charges for his role in a fatal car crash, the defensive lineman has become one of the most inscrutable prospects in Thursday’s draft.`\
+https://nytimes.com/2023/04/26/sports/football/nfl-draft-jalen-carter-georgia-crash.html?searchResultPosition=5
+
+**Today’s Wordle Review**\
+`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
+https://nytimes.com/2023/04/26/crosswords/wordle-review-answer-676.html?searchResultPosition=6
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2023/04/26/crosswords/spelling-bee-forum.html?searchResultPosition=7
+
+**A Surge in Book Bans**\
+`Has your school or local community been affected? What titles were removed? Why?`\
+https://nytimes.com/2023/04/26/learning/a-surge-in-book-bans.html?searchResultPosition=8
+
 **Late Night Reacts to Biden’s Bid for Re-Election**\
 `“If the economy collapses, he could just find a never-ending supply of quarters behind your ear,” Desi Lydic joked on the “Daily Show” on Tuesday.`\
-https://nytimes.com/2023/04/26/arts/television/late-night-biden-re-election.html?searchResultPosition=1
+https://nytimes.com/2023/04/26/arts/television/late-night-biden-re-election.html?searchResultPosition=9
 
 **Word of the Day: morale**\
 `This word has appeared in 363 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/04/26/learning/word-of-the-day-morale.html?searchResultPosition=2
-
-**I Wrote a Book About the End of Dictatorships, and It Became a Best Seller in Russia**\
-`Political energy finds an outlet, no matter what.`\
-https://nytimes.com/2023/04/26/opinion/russia-putin-dictatorship-book.html?searchResultPosition=3
-
-**Your Wednesday Briefing**\
-`Joe Biden’s bid for re-election.`\
-https://nytimes.com/2023/04/26/world/europe/biden-election-taliban-heat.html?searchResultPosition=4
-
-**Swimming at Stuyvesant, and the Debate Over Religion in Schools**\
-`Some Muslim girls at the prestigious high school have objected to coed swimming classes and argue that the school should accommodate their beliefs.`\
-https://nytimes.com/2023/04/26/nyregion/swimming-at-stuyvesant-and-the-debate-over-religion-in-schools.html?searchResultPosition=5
-
-**One Way to Be Marked**\
-`Aaron Rosenberg brings us a dizzyingly fun Wednesday grid.`\
-https://nytimes.com/2023/04/25/crosswords/daily-puzzle-2023-04-26.html?searchResultPosition=6
-
-**N.B.A. Commissioner Adam Silver Defends Bridges Suspension**\
-`Miles Bridges, the former Hornets forward, was credited 20 games toward a suspension for domestic violence. Silver said he felt the move seemed fair since Bridges had not played this season.`\
-https://nytimes.com/2023/04/25/sports/adam-silver-miles-bridges-suspension.html?searchResultPosition=7
-
-**Chief Justice Declines to Testify Before Congress Over Ethics Concerns**\
-`In an accompanying statement on ethics practices, the Supreme Court’s justices insisted their current ethical guidelines on gifts, travel and financial deals are sufficient.`\
-https://nytimes.com/2023/04/25/us/politics/justice-roberts-supreme-court-ethics.html?searchResultPosition=8
-
-**Parts of Yosemite National Park Closing as Flooding Looms**\
-`The park will partly close starting on Friday as melting snowpack threatens floods.`\
-https://nytimes.com/2023/04/25/us/yosemite-closure-flood-weather.html?searchResultPosition=9
-
-**Lawmakers Want to Ban TikTok. Here’s What Users Say Is at Stake.**\
-`We spoke with nine young people across the country about how a ban would change their lives.`\
-https://nytimes.com/interactive/2023/04/25/business/tiktok-ban.html?searchResultPosition=10
+https://nytimes.com/2023/04/26/learning/word-of-the-day-morale.html?searchResultPosition=10
 
