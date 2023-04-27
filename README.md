@@ -1,40 +1,40 @@
-**President of South Korea Sings ‘American Pie’ at State Dinner**\
-`President Yoon Suk Yeol of South Korea put on a show at the White House after a bit of coaxing from President Biden.`\
-https://nytimes.com/video/world/asia/100000008877445/yoon-suk-yeol-american-pie-biden.html?searchResultPosition=1
+**In 100 Years in New York City, So Much Has Changed, and Yet …**\
+`The Museum of the City of New York is preparing to take visitors on a trip down its own version of Memory Lane.`\
+https://nytimes.com/2023/04/27/arts/design/new-york-city-museum.html?searchResultPosition=1
 
-**N.F.L. Draft: What You Need to Know**\
-`Who will be taken at No. 1 overall? Which teams will come out ahead? And, in a 32-team league, why are there only 31 picks in the first round?`\
-https://nytimes.com/2023/04/27/sports/football/nfl-draft-what-how-watch.html?searchResultPosition=2
+**As Interest in Wellness Stirs Up the Cocktail World, This Executive Gets Her Shot**\
+`Heidi Dillon is on the vanguard of the fast-growing nonalcoholic-drinks sector and is reshaping how the male-dominated spirits industry perceives the shifting landscape.`\
+https://nytimes.com/2023/04/27/business/no-alcohol-drinks-distill-ventures.html?searchResultPosition=2
 
-**Lesson Plan: A Wave of Anti-Transgender Legislation**\
-`Hundreds of laws that seek to regulate the lives of transgender youths have been proposed in state legislatures across the country. In this lesson, students explore these bills and their implications.`\
-https://nytimes.com/2023/04/27/learning/lesson-plans/lesson-plan-a-wave-of-anti-transgender-legislation.html?searchResultPosition=3
+**Buffalo Remakes its Museum in its Own Image**\
+`With a renowned collection of modern and contemporary art, the Buffalo AKG Art Museum has taken local concerns to heart in a $230 million transformation.`\
+https://nytimes.com/2023/04/27/arts/design/buffalo-art-museum.html?searchResultPosition=3
 
-**A Symbol of Loss in Almost Every Ukrainian Kitchen**\
-`Soledar, crushed in Russia’s long assault on Bakhmut, was only a little town. But its salt is a national staple, and a matter of pride.`\
-https://nytimes.com/2023/04/27/world/europe/ukraine-soledar-salt.html?searchResultPosition=4
+**A Photographer Whose Subject Is Everyday Life**\
+`Judith Joy Ross, who has been taking portraits for decades, is the subject of a large retrospective at the Philadelphia Museum of Art.`\
+https://nytimes.com/2023/04/27/arts/design/photography-judith-joy-ross-philadelphia.html?searchResultPosition=4
 
-**Seth Meyers Speculates About Why Fox Dumped Tucker Carlson**\
-`Meyers joked that “firing Tucker for racism now after tolerating it for so long would be like canceling ‘Sesame Street’ because you just found out they were puppets.”`\
-https://nytimes.com/2023/04/27/arts/television/meyers-late-night-tucker-carlson.html?searchResultPosition=5
+**Children’s Museums Are Growing Intellectually and Emotionally**\
+`Institutions around the United States are offering more interactive learning to a broader age group, including practices that address mental health.`\
+https://nytimes.com/2023/04/27/arts/design/childrens-museums.html?searchResultPosition=5
 
-**Southern Storms Hit Florida and Texas With Large Hail**\
-`In Texas, vehicles were damaged, flights were canceled and thousands of people lost power. In Florida, a meteorologist filmed a “river of ice” floating down his street.`\
-https://nytimes.com/video/us/100000008877382/texas-florida-hail-storm.html?searchResultPosition=6
+**Why ‘Are You There, God? It’s Me, Margaret’ Still Matters**\
+`Judy Blume’s coming-of-age story finally hits the big screen this month. The book will always have a spotlight of its own.`\
+https://nytimes.com/2023/04/27/books/judy-blume-are-you-there-its-me-margaret-movie.html?searchResultPosition=6
 
-**Karl and Anna, a Love Story in Clothes**\
-`Anna Wintour remembers the designer Karl Lagerfeld, and how she’s worn his clothes to the most important events in her life.`\
-https://nytimes.com/2023/04/27/fashion/anna-wintour-karl-lagerfeld.html?searchResultPosition=7
+**At These American Museums, You Can Travel the World**\
+`This year, art exhibitions explore the Parisian suburbs, Pacific islands, grand Indian palaces and more through paintings, photography, sculpture and sketches.`\
+https://nytimes.com/2023/04/27/arts/design/museums-exhibitions-spring-summer.html?searchResultPosition=7
 
-**Inside the Defamation Trial That Was ‘Over Before It Began’**\
-`Katie Robertson, a media reporter for The New York Times, was in court in Wilmington, Del., when Fox News and Dominion Voting Systems agreed to settle for a staggering $787.5 million.`\
-https://nytimes.com/2023/04/27/insider/fox-news-dominion-coverage.html?searchResultPosition=8
+**Hungary’s Habsburg Ambassador to the Pope, With an Offbeat Résumé**\
+`Eduard Habsburg, Viktor Orban’s man at the Vatican, took the post after a career as a zombie movie screenwriter, novelist and cartoon producer. “I can get along with anybody,” says the descendant of emperors.`\
+https://nytimes.com/2023/04/27/world/europe/hungary-habsburg-ambassador-vatican.html?searchResultPosition=8
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/04/27/crosswords/spelling-bee-forum.html?searchResultPosition=9
+**Why Are Insects Drawn to Light? A Perennial Question Gets a New Answer.**\
+`A new study offers an alternative to earlier explanations for why moths and other bugs are attracted to artificial sources of illumination.`\
+https://nytimes.com/2023/04/27/science/moths-to-a-flame-insects-light.html?searchResultPosition=9
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/04/27/crosswords/todays-wordle-review.html?searchResultPosition=10
+**Honoring Ellsworth Kelly’s Work by Giving it Away**\
+`Jack Shear, the widower of the artist Ellsworth Kelly, is donating many of his husband’s works to museums across the country and giving money to various causes.`\
+https://nytimes.com/2023/04/27/arts/design/ellsworth-kelly-jack-shear-donation.html?searchResultPosition=10
 
