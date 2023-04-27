@@ -1,5 +1,5 @@
 **Jerry Springer, Host of Unapologetically Brash Talk Show, Dies at 79**\
-`His raucous and often confrontational show, “The Jerry Springer Show,” ran for nearly three decades and became a cultural phenomenon.`\
+`The raucous and often confrontational “Jerry Springer Show” ran for nearly three decades and became a cultural phenomenon.`\
 https://nytimes.com/2023/04/27/arts/television/jerry-springer-dead.html?searchResultPosition=1
 
 **The Mysteries of Ovulation Pain**\
