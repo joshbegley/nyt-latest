@@ -30,8 +30,8 @@ https://nytimes.com/2023/04/26/us/politics/trump-pence-testimony-jan-6.html?sear
 `We trained six tiny language models starting from scratch to see how they learn.`\
 https://nytimes.com/interactive/2023/04/26/upshot/gpt-from-scratch.html?searchResultPosition=8
 
-**Crab Cakes, Gochujang and Irish Poetry: Biden’s State Dinner With South Korea**\
-`The White House festooned the East Room with cherry blossoms and organized a head table that included Angelina Jolie and the Olympic snowboarder Chloe Kim.`\
+**Korean Dressing, Irish Poetry and ‘American Pie’: A State Dinner of Harmony**\
+`The White House festooned the East Room with cherry blossoms, and President Biden enticed President Yoon Suk Yeol to belt out Don McLean’s iconic song about the day the music died.`\
 https://nytimes.com/2023/04/26/us/politics/biden-state-dinner-south-korea.html?searchResultPosition=9
 
 **‘New York, New York’ Review: The Big Apple, Without Bite**\
