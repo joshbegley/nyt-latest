@@ -1,6 +1,6 @@
 **Southern Storms Hit Florida and Texas With Large Hail**\
 `In Texas, vehicles were damaged, flights were canceled and thousands of people lost power. In Florida, a meteorologist filmed a “river of ice” floating down his street.`\
-https://nytimes.com/video/us/100000008877382/texas-hail-baseball-size.html?searchResultPosition=1
+https://nytimes.com/video/us/100000008877382/texas-florida-hail-storm.html?searchResultPosition=1
 
 **Karl and Anna, a Love Story in Clothes**\
 `Anna Wintour remembers the designer Karl Lagerfeld, and how she’s worn his clothes to the most important events in her life.`\
