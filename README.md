@@ -3,7 +3,7 @@
 https://nytimes.com/2023/04/27/us/politics/pence-grand-jury-trump.html?searchResultPosition=1
 
 **Ravens and Lamar Jackson Agree to 5-Year Contract Extension**\
-`Talks between the team and its star quarterback had stalled last month, with Jackson at one point announcing he had requested a trade. Instead, he is set to remain in Baltimore for the near future.`\
+`Talks between the N.F.L. team and its star quarterback had stalled last month, with Jackson at one point announcing he had requested a trade. Instead, he is set to be in Baltimore for the near future.`\
 https://nytimes.com/2023/04/27/sports/football/lamar-jackson-ravens-contract-extension.html?searchResultPosition=2
 
 **The 10 Best Things We Saw at Salone del Mobile**\
