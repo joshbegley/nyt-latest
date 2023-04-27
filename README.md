@@ -34,7 +34,7 @@ https://nytimes.com/2023/04/27/arts/music/yannick-nezet-seguin-met-opera-costume
 `The fictionalized film, with the boxer himself as one of its executive producers, crams a lot of events into its running time, leaving its charismatic cast on the ropes.`\
 https://nytimes.com/2023/04/27/movies/big-george-foreman-review.html?searchResultPosition=9
 
-**Newsmax Sees a Ratings Boost After Carlson’s Exit at Fox**\
+**Newsmax Ratings Climb After Tucker Carlson’s Exit at Fox**\
 `The niche conservative news channel is still small compared to Fox News, but its viewership has doubled and in some time slots even tripled since Tucker Carlson was dismissed.`\
 https://nytimes.com/2023/04/27/business/media/newsmax-fox-ratings-tucker-carlson.html?searchResultPosition=10
 
