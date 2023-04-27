@@ -15,7 +15,7 @@ https://nytimes.com/2023/04/27/us/politics/female-afghan-soldiers-us.html?search
 https://nytimes.com/2023/04/27/us/abortion-bans-nebraska-south-carolina.html?searchResultPosition=4
 
 **N.F.L. Draft Order and Picks: First Round Results**\
-`The Carolina Panthers selected Bryce Young, the Alabama quarterback, at No. 1 overall. Here’s a full list of the results as they happen.`\
+`The Carolina Panthers selected Bryce Young, the Alabama quarterback, at No. 1 overall. Other teams got busy quickly with trades. Here’s a full list of the results as they happen.`\
 https://nytimes.com/2023/04/27/sports/football/nfl-draft-picks-first-round-results.html?searchResultPosition=5
 
 **New York to Change Minimum Wage and Bail in $229 Billion Budget Deal**\
