@@ -30,7 +30,7 @@ https://nytimes.com/2023/04/27/opinion/biden-trump-soul-america-election-2024.ht
 `Ahead of a major legal change, U.S. officials announce the opening of new processing centers designed to screen migrants before they make the journey to the southern border.`\
 https://nytimes.com/2023/04/27/us/politics/biden-migration-title-42.html?searchResultPosition=8
 
-**Why Have One ‘Impossible’ Ring Around Your World When You Could Have Two?**\
+**Second ‘Impossible’ Ring Found Around Distant Dwarf Planet**\
 `Astronomers had already detected one unlikely ring around Quaoar, a small object far beyond Neptune’s orbit. Now they have found a second ring.`\
 https://nytimes.com/2023/04/27/science/quaoar-rings-kuiper-belt.html?searchResultPosition=9
 
