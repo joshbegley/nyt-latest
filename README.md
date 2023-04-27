@@ -11,7 +11,7 @@ https://nytimes.com/2023/04/27/nyregion/dna-evidence-trump-carroll-trial.html?se
 https://nytimes.com/2023/04/27/style/time-100-gala-save-venice.html?searchResultPosition=3
 
 **A German Soccer Team Will Test a New Ticket Price: Zero**\
-`Fortuna Düsseldorf will allow all fans, home and away, to attend a handful of matches for free next season. It hopes to extend the offer to all games by 2028.`\
+`Fortuna Düsseldorf will allow all fans to attend a handful of matches for free next season. It hopes to extend the offer to all games by 2028.`\
 https://nytimes.com/2023/04/27/sports/soccer/fortuna-dusseldorf-free-tickets.html?searchResultPosition=4
 
 **Jerry Springer, American Ringmaster**\
