@@ -1,40 +1,40 @@
+**President of South Korea Sings ‘American Pie’ at State Dinner**\
+`President Yoon Suk Yeol of South Korea put on a show at the White House after a bit of coaxing from President Biden.`\
+https://nytimes.com/video/world/asia/100000008877445/yoon-suk-yeol-american-pie-biden.html?searchResultPosition=1
+
 **N.F.L. Draft: What You Need to Know**\
 `Who will be taken at No. 1 overall? Which teams will come out ahead? And, in a 32-team league, why are there only 31 picks in the first round?`\
-https://nytimes.com/2023/04/27/sports/football/nfl-draft-what-how-watch.html?searchResultPosition=1
+https://nytimes.com/2023/04/27/sports/football/nfl-draft-what-how-watch.html?searchResultPosition=2
 
 **Lesson Plan: A Wave of Anti-Transgender Legislation**\
 `Hundreds of laws that seek to regulate the lives of transgender youths have been proposed in state legislatures across the country. In this lesson, students explore these bills and their implications.`\
-https://nytimes.com/2023/04/27/learning/lesson-plans/lesson-plan-a-wave-of-anti-transgender-legislation.html?searchResultPosition=2
+https://nytimes.com/2023/04/27/learning/lesson-plans/lesson-plan-a-wave-of-anti-transgender-legislation.html?searchResultPosition=3
 
 **A Symbol of Loss in Almost Every Ukrainian Kitchen**\
 `Soledar, crushed in Russia’s long assault on Bakhmut, was only a little town. But its salt is a national staple, and a matter of pride.`\
-https://nytimes.com/2023/04/27/world/europe/ukraine-soledar-salt.html?searchResultPosition=3
+https://nytimes.com/2023/04/27/world/europe/ukraine-soledar-salt.html?searchResultPosition=4
 
 **Seth Meyers Speculates About Why Fox Dumped Tucker Carlson**\
 `Meyers joked that “firing Tucker for racism now after tolerating it for so long would be like canceling ‘Sesame Street’ because you just found out they were puppets.”`\
-https://nytimes.com/2023/04/27/arts/television/meyers-late-night-tucker-carlson.html?searchResultPosition=4
+https://nytimes.com/2023/04/27/arts/television/meyers-late-night-tucker-carlson.html?searchResultPosition=5
 
 **Southern Storms Hit Florida and Texas With Large Hail**\
 `In Texas, vehicles were damaged, flights were canceled and thousands of people lost power. In Florida, a meteorologist filmed a “river of ice” floating down his street.`\
-https://nytimes.com/video/us/100000008877382/texas-florida-hail-storm.html?searchResultPosition=5
+https://nytimes.com/video/us/100000008877382/texas-florida-hail-storm.html?searchResultPosition=6
 
 **Karl and Anna, a Love Story in Clothes**\
 `Anna Wintour remembers the designer Karl Lagerfeld, and how she’s worn his clothes to the most important events in her life.`\
-https://nytimes.com/2023/04/27/fashion/anna-wintour-karl-lagerfeld.html?searchResultPosition=6
+https://nytimes.com/2023/04/27/fashion/anna-wintour-karl-lagerfeld.html?searchResultPosition=7
 
 **Inside the Defamation Trial That Was ‘Over Before It Began’**\
 `Katie Robertson, a media reporter for The New York Times, was in court in Wilmington, Del., when Fox News and Dominion Voting Systems agreed to settle for a staggering $787.5 million.`\
-https://nytimes.com/2023/04/27/insider/fox-news-dominion-coverage.html?searchResultPosition=7
+https://nytimes.com/2023/04/27/insider/fox-news-dominion-coverage.html?searchResultPosition=8
 
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/04/27/crosswords/spelling-bee-forum.html?searchResultPosition=8
+https://nytimes.com/2023/04/27/crosswords/spelling-bee-forum.html?searchResultPosition=9
 
 **Today’s Wordle Review**\
 `Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/04/27/crosswords/todays-wordle-review.html?searchResultPosition=9
-
-**Alone and Together**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2023/04/27/learning/alone-and-together.html?searchResultPosition=10
+https://nytimes.com/2023/04/27/crosswords/todays-wordle-review.html?searchResultPosition=10
 
