@@ -11,7 +11,7 @@ https://nytimes.com/2023/04/27/theater/irish-repertory-theater-letters-series.ht
 https://nytimes.com/2023/04/27/learning/teenagers-on-the-best-thing-about-being-their-age.html?searchResultPosition=3
 
 **Tucker Carlson Was Both More and Less Important Than You Think**\
-`By David French`\
+`The former anchor’s influence went beyond substance and style. He gave a platform to many of the right’s most fringe voices.`\
 https://nytimes.com/2023/04/27/opinion/tucker-carlson-trump-fox.html?searchResultPosition=4
 
 **Macron Honors Haitian Revolutionary, but Leaves Much Unsaid**\
