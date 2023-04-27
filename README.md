@@ -19,7 +19,7 @@ https://nytimes.com/2023/04/27/briefing/xi-jinping-libya-pope-women.html?searchR
 https://nytimes.com/2023/04/27/us/politics/jack-teixeira-leaks.html?searchResultPosition=5
 
 **‘Baseball Size’ Hail Falls in Texas as Storms Whip Across South**\
-`Thunderstorms on Wednesday damaged vehicles and disrupted travel. Nearly two million people in Texas and Louisiana were under a tornado watch.`\
+`Thunderstorms disrupted travel and large hail was observed in Texas and Florida. Tornado watches in the region expired early Thursday morning.`\
 https://nytimes.com/2023/04/27/us/texas-storms-hail-south.html?searchResultPosition=6
 
 **The President Whose Birthday (Today) Is Widely Ignored**\
