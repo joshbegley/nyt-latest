@@ -1,40 +1,40 @@
+**Southern Storms Hit Florida and Texas With Large Hail**\
+`In Texas, vehicles were damaged, flights were canceled and thousands of people lost power. In Florida, a meteorologist filmed a “river of ice” floating down his street.`\
+https://nytimes.com/video/us/100000008877382/texas-hail-baseball-size.html?searchResultPosition=1
+
 **Karl and Anna, a Love Story in Clothes**\
 `Anna Wintour remembers the designer Karl Lagerfeld, and how she’s worn his clothes to the most important events in her life.`\
-https://nytimes.com/2023/04/27/fashion/anna-wintour-karl-lagerfeld.html?searchResultPosition=1
+https://nytimes.com/2023/04/27/fashion/anna-wintour-karl-lagerfeld.html?searchResultPosition=2
 
 **Inside the Defamation Trial That Was ‘Over Before It Began’**\
 `Katie Robertson, a media reporter for The New York Times, was in court in Wilmington, Del., when Fox News and Dominion Voting Systems agreed to settle for a staggering $787.5 million.`\
-https://nytimes.com/2023/04/27/insider/fox-news-dominion-coverage.html?searchResultPosition=2
+https://nytimes.com/2023/04/27/insider/fox-news-dominion-coverage.html?searchResultPosition=3
 
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/04/27/crosswords/spelling-bee-forum.html?searchResultPosition=3
+https://nytimes.com/2023/04/27/crosswords/spelling-bee-forum.html?searchResultPosition=4
 
 **Today’s Wordle Review**\
 `Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/04/27/crosswords/todays-wordle-review.html?searchResultPosition=4
+https://nytimes.com/2023/04/27/crosswords/todays-wordle-review.html?searchResultPosition=5
 
 **Alone and Together**\
 `Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2023/04/27/learning/alone-and-together.html?searchResultPosition=5
+https://nytimes.com/2023/04/27/learning/alone-and-together.html?searchResultPosition=6
 
 **U.S. Consulting Firm Is the Latest Target of a Chinese Crackdown**\
 `Bain & Company employees were questioned less than a month after Chinese police officials raided the Beijing offices of another U.S. advisory firm.`\
-https://nytimes.com/2023/04/27/business/bain-china.html?searchResultPosition=6
+https://nytimes.com/2023/04/27/business/bain-china.html?searchResultPosition=7
 
 **Word of the Day: phlegmatic**\
 `This word has appeared in six articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/04/27/learning/word-of-the-day-phlegmatic.html?searchResultPosition=7
+https://nytimes.com/2023/04/27/learning/word-of-the-day-phlegmatic.html?searchResultPosition=8
 
 **Climate Change’s Fingerprints Turn Up in Parched East Africa**\
 `Droughts like the one that has ravaged Ethiopia, Kenya and Somalia are now 100 times as likely as in the preindustrial era, a new study has found.`\
-https://nytimes.com/2023/04/27/climate/horn-of-africa-somalia-drought.html?searchResultPosition=8
+https://nytimes.com/2023/04/27/climate/horn-of-africa-somalia-drought.html?searchResultPosition=9
 
 **They Wrecked Britain, and They’re Not Going Anywhere**\
 `Obituaries for the Conservative Party are premature.`\
-https://nytimes.com/2023/04/27/opinion/britain-conservative-party-coronation.html?searchResultPosition=9
-
-**Your Thursday Briefing**\
-`Here’s what you need to know.`\
-https://nytimes.com/2023/04/27/briefing/xi-jinping-libya-pope-women.html?searchResultPosition=10
+https://nytimes.com/2023/04/27/opinion/britain-conservative-party-coronation.html?searchResultPosition=10
 
