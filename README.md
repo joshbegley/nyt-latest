@@ -1,6 +1,6 @@
 **What Microsoft’s Activision Setback Means for Deal Making**\
 `A British agency’s move to block the company’s $69 billion bid for the video games company reflects a new regulatory reality for corporate buyers.`\
-https://nytimes.com/2023/04/27/business/dealbook/what-microsofts-activision-setback-means-for-deal-making.html?searchResultPosition=1
+https://nytimes.com/2023/04/27/business/dealbook/microsoft-activision-deal.html?searchResultPosition=1
 
 **The Hottest U.S. Rental Markets**\
 `A study ranked large metropolitan real estate markets based on availability and popularity of listings.`\
