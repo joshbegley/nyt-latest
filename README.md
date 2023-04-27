@@ -23,7 +23,7 @@ https://nytimes.com/2023/04/27/arts/design/heidi-horten-jewelry-christies-nazi-e
 https://nytimes.com/2023/04/27/movies/polite-society-review.html?searchResultPosition=6
 
 **Carolyn Bryant Donham Dies at 88; Her Words Doomed Emmett Till**\
-`She said Till, at 14, had accosted her, and her testimony in the 1955 trial of her husband and his half brother was crucial in their acquittal in one of the most epochal murders in American history.`\
+`She said Till, 14, had accosted her, and her testimony in the 1955 trial of her husband and his half brother was crucial in their acquittal in one of the most momentous murders in American history.`\
 https://nytimes.com/2023/04/27/us/carolyn-bryant-donham-dead.html?searchResultPosition=7
 
 **The Maestro Wore Blue: Bringing Pizazz to the Pit at the Met**\
