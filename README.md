@@ -22,13 +22,13 @@ https://nytimes.com/interactive/2023/04/26/upshot/gpt-from-scratch.html?searchRe
 `The White House festooned the East Room with cherry blossoms and organized a head table that included Angelina Jolie and the Olympic snowboarder Chloe Kim.`\
 https://nytimes.com/2023/04/26/us/politics/biden-state-dinner-south-korea.html?searchResultPosition=6
 
-**Alleviates Pain a Little**\
-`Michael Schlossberg is pushing boundaries.`\
-https://nytimes.com/2023/04/26/crosswords/daily-puzzle-2023-04-27.html?searchResultPosition=7
-
 **‘New York, New York’ Review: The Big Apple, Without Bite**\
 `Based loosely on the 1977 film, a show about performers making it in the big city comes to St. James Theater with the sharper edges of its source material sanded off.`\
-https://nytimes.com/2023/04/26/theater/new-york-new-york-review-broadway.html?searchResultPosition=8
+https://nytimes.com/2023/04/26/theater/new-york-new-york-review-broadway.html?searchResultPosition=7
+
+**Alleviates Pain a Little**\
+`Michael Schlossberg is pushing boundaries.`\
+https://nytimes.com/2023/04/26/crosswords/daily-puzzle-2023-04-27.html?searchResultPosition=8
 
 **Efforts to Restrict Transgender Health Care Face Pushback in Three States**\
 `As Republicans move to limit gender-transitioning treatments, a sustained veto in Kansas, a judge’s order in Missouri and federal intervention in Tennessee have emerged as barriers.`\
