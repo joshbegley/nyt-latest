@@ -19,7 +19,7 @@ https://nytimes.com/2023/04/27/arts/television/couples-therapy-showtime-rough-di
 https://nytimes.com/2023/04/27/us/politics/leaks-airman-teixeira-hearing.html?searchResultPosition=5
 
 **New York City Prosecutors Suddenly Flip on Change to Evidence Law**\
-`Prosecutors backed off on a change to a state law relating to evidence in criminal cases and pushed for more funds to implement it.`\
+`The reversal appeared to doom the proposed changes, which were fiercely opposed by Legal Aid and defense lawyers.`\
 https://nytimes.com/2023/04/27/nyregion/discovery-prosecutors-evidence-ny.html?searchResultPosition=6
 
 **Pence Appears Before Grand Jury on Trump’s Efforts to Retain Power**\
