@@ -15,7 +15,7 @@ https://nytimes.com/2023/04/28/world/europe/what-im-reading-wives-and-muses-edit
 https://nytimes.com/2023/04/28/science/ukraine-nuclear-radiation-sensors.html?searchResultPosition=4
 
 **African Farmers May Have a Coffee Robust Enough for the Climate Crisis**\
-`As global warming threatens two popular varieties, growers in Uganda are betting on a species that can stand up to heat, drought and pests.`\
+`As global warming threatens two popular species, growers in Uganda are betting on a variety that can stand up to heat, drought and pests.`\
 https://nytimes.com/2023/04/28/climate/coffee-liberica-uganda.html?searchResultPosition=5
 
 **Venus the Influencer? An Italian Tourism Campaign Prompts Backlash.**\
