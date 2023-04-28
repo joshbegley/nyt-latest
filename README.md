@@ -22,7 +22,7 @@ https://nytimes.com/2023/04/27/us/abortion-bans-nebraska-south-carolina.html?sea
 `The Carolina Panthers selected Bryce Young, the Alabama quarterback, at No. 1 overall. Other teams got busy quickly with trades. Here’s a full list of the results as they happen.`\
 https://nytimes.com/2023/04/27/sports/football/nfl-draft-picks-first-round-results.html?searchResultPosition=6
 
-**New York to Change Minimum Wage and Bail in $229 Billion Budget Deal**\
+**New York Would Change Minimum Wage and Bail in $229 Billion Budget Deal**\
 `After weeks of dissension, leaders in Albany reached a handshake agreement on a budget that saw Gov. Kathy Hochul fall short on some of her key objectives.`\
 https://nytimes.com/2023/04/27/nyregion/budget-minimum-wage-bail.html?searchResultPosition=7
 
