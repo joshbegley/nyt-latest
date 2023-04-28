@@ -10,7 +10,7 @@ https://nytimes.com/2023/04/28/world/europe/spain-heat-wave.html?searchResultPos
 `The cable host has left Fox News. But his dark and outsized influence on the conservative movement — and on American politics — is hardly over.`\
 https://nytimes.com/2023/04/28/opinion/tucker-carlson-fox.html?searchResultPosition=3
 
-**Mark Stewart, Fiery British Rocker, Is Dead at 61**\
+**Mark Stewart, Fiery British Rocker, Is Dead at 62**\
 `His band, the Pop Group, was anything but pop, blending anti-authoritarian fury with a ferocious mix of punk, funk and experimental jazz.`\
 https://nytimes.com/2023/04/28/arts/music/mark-stewart-dead.html?searchResultPosition=4
 
