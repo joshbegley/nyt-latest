@@ -1,4 +1,4 @@
-**Key Takeaways From Regulatory Review of Bank Failures**\
+**wKey Takeaways From Regulatory Review of Bank Failures**\
 `The Federal Reserve and the Federal Deposit Insurance Corp. reviewed what went wrong with oversight of two regional banks. A watchdog agency released its own take.`\
 https://nytimes.com/2023/04/28/business/takeaways-bank-failures.html?searchResultPosition=1
 
@@ -6,7 +6,7 @@ https://nytimes.com/2023/04/28/business/takeaways-bank-failures.html?searchResul
 `After her aunt died by suicide, a woman is given the opportunity to have a conversation that could be either cathartic or further devastating.`\
 https://nytimes.com/2023/04/28/style/love-letter-newsletter-was-it-worth-the-risk.html?searchResultPosition=2
 
-**California Social Media Influencer Convicted of Lying About Kidnapping**\
+**Social Media Influencer Convicted of Lying About Children’s Kidnapping**\
 `In December 2020, Katie Sorensen posted a widely shared Instagram video in which she claimed that a couple tried to kidnap her two children at a Michaels craft store in Petaluma.`\
 https://nytimes.com/2023/04/28/us/katie-sorenson-fake-kidnapping-convicted.html?searchResultPosition=3
 
