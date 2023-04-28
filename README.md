@@ -18,7 +18,7 @@ https://nytimes.com/2023/04/28/magazine/marriage-phone-privacy-ethics.html?searc
 `The economy used to be a reliable indicator of how elections might go, but not so much anymore.`\
 https://nytimes.com/2023/04/28/opinion/will-the-economy-make-or-break-biden-in-2024.html?searchResultPosition=5
 
-**wKey Takeaways From Regulatory Review of Bank Failures**\
+**Key Takeaways From Regulatory Review of Bank Failures**\
 `The Federal Reserve and the Federal Deposit Insurance Corp. reviewed what went wrong with oversight of two regional banks. A watchdog agency released its own take.`\
 https://nytimes.com/2023/04/28/business/takeaways-bank-failures.html?searchResultPosition=6
 
