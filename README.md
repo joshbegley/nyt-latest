@@ -3,7 +3,7 @@
 https://nytimes.com/2023/04/28/arts/dance/harrison-ball-retiring-new-york-city-ballet.html?searchResultPosition=1
 
 **Harry Kane and the End of the Line**\
-`The Tottenham star has given everything for the club he has supported since childhood. As he nears the end of his contact, he owes it nothing.`\
+`The Tottenham star has given everything for the club he has supported since childhood. As he nears the end of his contract, he owes it nothing.`\
 https://nytimes.com/2023/04/28/sports/soccer/harry-kane-tottenham-liverpool.html?searchResultPosition=2
 
 **What I’m Reading: Wives and Muses Edition**\
