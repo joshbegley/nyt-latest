@@ -19,7 +19,7 @@ https://nytimes.com/2023/04/28/us/california-art-favorites.html?searchResultPosi
 https://nytimes.com/2023/04/28/business/economy/inflation-march-federal-reserve.html?searchResultPosition=5
 
 **Wages Continue to Grow, Good for Workers but a Worry for the Fed**\
-`Compensation for workers rose 5.1 percent from a year earlier, good news for employees but a troubling sign for the Federal Reserve.`\
+`Wages and salaries for workers rose 5.1 percent from a year earlier, which helps employees keep up with the rising cost of living but complicates the Federal Reserve’s efforts to tamp down inflation.`\
 https://nytimes.com/2023/04/28/business/wage-inflation-march.html?searchResultPosition=6
 
 **First Republic’s Troubles Reignite Fears of a Banking Crisis**\
