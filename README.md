@@ -1,5 +1,5 @@
 **The Unemployment Gap Between Black and White New Yorkers Is Widening**\
-`The unemployment rate for Black New Yorkers was 12.2 percent in the first quarter of the year, while the white unemployment rate dropped to 1.3 percent, a new report says.`\
+`The unemployment rate for Black New Yorkers rose to 12.2 percent in the first quarter of the year, while the white unemployment rate dropped to 1.3 percent, a new report says.`\
 https://nytimes.com/2023/04/28/jobs/black-unemployment-rate-nyc.html?searchResultPosition=1
 
 **In Defense of Nostalgia**\
