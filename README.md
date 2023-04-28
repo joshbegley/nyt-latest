@@ -24,7 +24,7 @@ https://nytimes.com/2023/04/28/learning/plastic-head.html?searchResultPosition=6
 
 **Late Night Hosts Fight Over the Best Bits on the Final ‘Late Late Show’**\
 `Jimmy Kimmel suggested that after leaving late night, James Corden should “stick to corporate gigs, podcasts, maybe ‘The Masked Singer.’”`\
-https://nytimes.com/2023/04/28/arts/television/james-corden-last-show.html?searchResultPosition=7
+https://nytimes.com/2023/04/28/arts/television/james-corden-last-late-show.html?searchResultPosition=7
 
 **Word of the Day: curio**\
 `This word has appeared in 14 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
