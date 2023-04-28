@@ -26,7 +26,7 @@ https://nytimes.com/2023/04/28/books/review/eleanor-catton-on-birnam-wood.html?s
 `The award-winning company he co-founded, Theaterworks USA, went on the road to introduce millions of students to professional productions of plays and musicals.`\
 https://nytimes.com/2023/04/28/theater/charles-hull-dead.html?searchResultPosition=7
 
-**Women Are Missing Work Because of Menopause Symptoms, Study Shows**\
+**Study Shows the Staggering Cost of Menopause for Women in the Work Force**\
 `Some are taking sick days. Others are cutting back their hours. Still others end up quitting altogether.`\
 https://nytimes.com/2023/04/28/well/live/menopause-symptoms-work-women.html?searchResultPosition=8
 
