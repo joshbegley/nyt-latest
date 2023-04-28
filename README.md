@@ -30,8 +30,8 @@ https://nytimes.com/2023/04/28/style/nick-matcheck-and-lori-hu-wedding.html?sear
 `We’re asking readers about the moments that changed how they view the royals, ahead of King Charles’s coronation.`\
 https://nytimes.com/2023/04/27/world/british-royal-moments.html?searchResultPosition=8
 
-**Two U.S. Army Helicopters Crash in Alaska**\
-`The helicopters were returning from a training flight when they crashed near Healy, Alaska.`\
+**Two U.S. Army Helicopters Crash in Alaska, Killing 3 Soldiers**\
+`The helicopters were returning from a training flight on Thursday when they crashed near Healy, Alaska. The fourth soldier on board was injured.`\
 https://nytimes.com/2023/04/27/us/army-helicopter-crash-alaska.html?searchResultPosition=9
 
 **Quotation of the Day: In Almost Every Kitchen in Ukraine, a Symbol of What War Has Stolen**\
