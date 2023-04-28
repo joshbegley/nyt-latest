@@ -1,40 +1,40 @@
+**People Are Not Exactly Interested in Sydney Sweeney and Glen Powell’s New Film**\
+`Seemingly flirtatious moments between the two stars have fueled speculation about their relationship. But we’ve seen this all before.`\
+https://nytimes.com/2023/04/28/style/sydney-sweeney-and-glen-powell-rumors.html?searchResultPosition=1
+
+**The Luggage Designed Like a Swiss Army Knife**\
+`The nearly 140-year-old Victorinox company believes evolving trends require a rethinking of travel gear, yet stays true to its original design ethos.`\
+https://nytimes.com/paidpost/victorinox/the-luggage-designed-like-a-swiss-army-knife.html?searchResultPosition=2
+
 **Eleanor Catton on ‘Birnam Wood’**\
 `The New Zealand writer, who won the Man Booker Prize in 2013 for her novel “The Luminaries,” discusses her latest book.`\
-https://nytimes.com/2023/04/28/books/review/eleanor-catton-on-birnam-wood.html?searchResultPosition=1
+https://nytimes.com/2023/04/28/books/review/eleanor-catton-on-birnam-wood.html?searchResultPosition=3
 
 **Charles Hull, Who Brought Theater to Young Audiences, Dies at 92**\
 `The award-winning company he co-founded, Theaterworks USA, went on the road to introduce millions of students to professional productions of plays and musicals.`\
-https://nytimes.com/2023/04/28/theater/charles-hull-dead.html?searchResultPosition=2
+https://nytimes.com/2023/04/28/theater/charles-hull-dead.html?searchResultPosition=4
 
 **Women Are Missing Work Because of Menopause Symptoms, Study Shows**\
 `Some are taking sick days. Others are cutting back their hours. Still others end up quitting altogether.`\
-https://nytimes.com/2023/04/28/well/live/menopause-symptoms-work-women.html?searchResultPosition=3
+https://nytimes.com/2023/04/28/well/live/menopause-symptoms-work-women.html?searchResultPosition=5
 
 **In Nida Manzoor’s World, Martial Arts and Jane Austen Belong in the Same Movie**\
 `The writer-director set out to make “a joyful film about South Asian Muslim women” that didn’t revolve around trauma. The result is “Polite Society.”`\
-https://nytimes.com/2023/04/28/movies/polite-society-nida-manzoor-ritu-arya-priya-kansara.html?searchResultPosition=4
+https://nytimes.com/2023/04/28/movies/polite-society-nida-manzoor-ritu-arya-priya-kansara.html?searchResultPosition=6
 
 **Republicans Push Transgender Restrictions in More States**\
 `Another batch of bills restricting medical treatment for gender transitions made their way through state legislatures this week.`\
-https://nytimes.com/interactive/2023/04/28/us/trans-legislation-montana-kansas.html?searchResultPosition=5
+https://nytimes.com/interactive/2023/04/28/us/trans-legislation-montana-kansas.html?searchResultPosition=7
 
 **Spain Bakes in Summer-Like Heat, and Worries About What Comes Next**\
 `The April temperatures, over 100 degrees Fahrenheit in some places, come on top of a long-running drought that has depleted reservoirs and dried up fields.`\
-https://nytimes.com/2023/04/28/world/europe/spain-heat-wave.html?searchResultPosition=6
+https://nytimes.com/2023/04/28/world/europe/spain-heat-wave.html?searchResultPosition=8
 
 **We Will Never Be Rid of Tucker Carlson**\
 `The cable host has left Fox News. But his dark and outsized influence on the conservative movement — and on American politics — is hardly over.`\
-https://nytimes.com/2023/04/28/opinion/tucker-carlson-fox.html?searchResultPosition=7
+https://nytimes.com/2023/04/28/opinion/tucker-carlson-fox.html?searchResultPosition=9
 
 **Mark Stewart, Fiery British Rocker, Is Dead at 62**\
 `His band, the Pop Group, was anything but pop, blending anti-authoritarian fury with a ferocious mix of punk, funk and experimental jazz.`\
-https://nytimes.com/2023/04/28/arts/music/mark-stewart-dead.html?searchResultPosition=8
-
-**M.T.A. Averts Fiscal Crisis as New York Strikes Budget Deal**\
-`A budget agreement reached by Gov. Kathy Hochul and state lawmakers will provide desperately needed funding for the transit system, which faced a potential budget gap of nearly $3 billion by 2025.`\
-https://nytimes.com/2023/04/28/nyregion/mta-fare-hike-budget.html?searchResultPosition=9
-
-**Reversing Trend, 2022 Saw Small Uptick in National Security Surveillance in U.S.**\
-`A new report also said the F.B.I. is also changing how it measures queries for information about Americans in a repository of messages intercepted without a warrant.`\
-https://nytimes.com/2023/04/28/us/politics/2022-report-national-security-surveillance.html?searchResultPosition=10
+https://nytimes.com/2023/04/28/arts/music/mark-stewart-dead.html?searchResultPosition=10
 
