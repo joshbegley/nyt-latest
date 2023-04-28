@@ -1,6 +1,6 @@
 **Campaign, Interrupted: Pence May Run, but He Can’t Hide From Trump’s Legal Woes**\
 `The former vice president faces many challenges in his potential presidential run, perhaps none bigger than his complicated relationship with his old boss.`\
-https://nytimes.com/2023/04/28/us/politics/campaign-interrupted-pence-may-run-but-he-cant-hide-from-trumps-legal-woes.html?searchResultPosition=1
+https://nytimes.com/2023/04/28/us/politics/pence-2024-campaign-trump.html?searchResultPosition=1
 
 **McCarthy Brought His Detractors in From the Cold. Will They Stay?**\
 `The speaker’s all-carrots, no-sticks approach of empowering hard-right Republicans carries risks, and any negotiation with President Biden on the debt ceiling is likely to test them.`\
