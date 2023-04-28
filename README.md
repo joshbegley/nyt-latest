@@ -6,7 +6,7 @@ https://nytimes.com/interactive/2023/04/28/nyregion/heavy-d-sculpture-mount-vern
 `With a wide-reaching spiritual message in books like “When Bad Things Happen to Good People,” he drew on his own experience with grief and doubt.`\
 https://nytimes.com/2023/04/28/books/rabbi-harold-s-kushner-dead.html?searchResultPosition=2
 
-**Alito Says He Has a ‘Pretty Good Idea’ Who Leaked Abortion Ruling**\
+**Alito Says He Has ‘Pretty Good Idea’ Who Leaked Abortion Ruling**\
 `In an interview with The Wall Street Journal’s opinion pages, the justice rejected the theory that the leak had come from the right.`\
 https://nytimes.com/2023/04/28/us/alito-supreme-court-abortion-leak.html?searchResultPosition=3
 
