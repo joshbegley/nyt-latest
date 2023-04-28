@@ -1,40 +1,40 @@
+**Quotation of the Day: In Almost Every Kitchen in Ukraine, a Symbol of What War Has Stolen**\
+`Quotation of the Day for Friday, April 28, 2023.`\
+https://nytimes.com/2023/04/27/pageoneplus/quotation-of-the-day-in-almost-every-kitchen-in-ukraine-a-symbol-of-what-war-has-stolen.html?searchResultPosition=1
+
+**Corrections: April 28, 2023**\
+`Corrections that appeared in print on Friday, April 28, 2023.`\
+https://nytimes.com/2023/04/27/pageoneplus/corrections-april-28-2023.html?searchResultPosition=2
+
 **Variety: Split Decisions**\
 `Fred Piscop brings us a mid-spring diversion.`\
-https://nytimes.com/2023/04/27/crosswords/variety-split-decisions.html?searchResultPosition=1
+https://nytimes.com/2023/04/27/crosswords/variety-split-decisions.html?searchResultPosition=3
 
 **A Change in Setting**\
 `Malaika Handa and Erik Agard offer a Friday puzzle that may be challenging for some solvers.`\
-https://nytimes.com/2023/04/27/crosswords/daily-puzzle-2023-04-28.html?searchResultPosition=2
+https://nytimes.com/2023/04/27/crosswords/daily-puzzle-2023-04-28.html?searchResultPosition=4
 
 **Montana Governor’s Nonbinary Son Calls on Him to Reject Transgender Bills**\
 `The governor’s son, David Gianforte, told The Montana Free Press that he had asked his father to not sign “immoral” bills pertaining to the L.G.B.T.Q. community.`\
-https://nytimes.com/2023/04/27/us/montana-governor-son-nonbinary.html?searchResultPosition=3
+https://nytimes.com/2023/04/27/us/montana-governor-son-nonbinary.html?searchResultPosition=5
 
 **Trump Weighs Skipping Primary Debates**\
 `He took swipes at President Biden, Ron DeSantis and the Reagan presidential library during an event in New Hampshire.`\
-https://nytimes.com/2023/04/27/us/politics/trump-republican-primary-debates.html?searchResultPosition=4
+https://nytimes.com/2023/04/27/us/politics/trump-republican-primary-debates.html?searchResultPosition=6
 
 **Thunderstorms Lash Parts of the South, Spawning Tornadoes**\
 `The severe weather produced at least three tornadoes, one of which damaged homes in Hosford, Fla., the National Weather Service in Tallahassee said.`\
-https://nytimes.com/2023/04/27/us/tornado-storm-weather-florida.html?searchResultPosition=5
+https://nytimes.com/2023/04/27/us/tornado-storm-weather-florida.html?searchResultPosition=7
 
 **Freight Train Derails in Southwestern Wisconsin**\
 `The train, which carried lithium-ion batteries, derailed near the village of De Soto, Wis., sending containers into the Mississippi River but causing no environmental damage, officials said.`\
-https://nytimes.com/2023/04/27/us/train-derailment-mississippi-river-wisconsin.html?searchResultPosition=6
+https://nytimes.com/2023/04/27/us/train-derailment-mississippi-river-wisconsin.html?searchResultPosition=8
 
 **Afghan Women Who Fought With U.S. Military Seek Legal Immigration Status**\
 `Members of an all-female tactical combat unit in Afghanistan, who were evacuated during the United States withdrawal, are asking Congress to grant them permanent legal status.`\
-https://nytimes.com/2023/04/27/us/politics/female-afghan-soldiers-us.html?searchResultPosition=7
+https://nytimes.com/2023/04/27/us/politics/female-afghan-soldiers-us.html?searchResultPosition=9
 
 **Abortion Bans Fail in South Carolina and Nebraska**\
 `The conservative state legislatures couldn’t muster enough votes to pass bills that would have severely restricted the procedure.`\
-https://nytimes.com/2023/04/27/us/abortion-bans-nebraska-south-carolina.html?searchResultPosition=8
-
-**N.F.L. Draft Order and Picks: First Round Results**\
-`The Carolina Panthers selected Bryce Young, the Alabama quarterback, at No. 1 overall. Other teams got busy quickly with trades. Here’s a full list of the results as they happen.`\
-https://nytimes.com/2023/04/27/sports/football/nfl-draft-picks-first-round-results.html?searchResultPosition=9
-
-**New York Would Change Minimum Wage and Bail in $229 Billion Budget Deal**\
-`After weeks of dissension, leaders in Albany reached a handshake agreement on a budget that saw Gov. Kathy Hochul fall short on some of her key objectives.`\
-https://nytimes.com/2023/04/27/nyregion/budget-minimum-wage-bail.html?searchResultPosition=10
+https://nytimes.com/2023/04/27/us/abortion-bans-nebraska-south-carolina.html?searchResultPosition=10
 
