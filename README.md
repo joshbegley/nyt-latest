@@ -1,40 +1,40 @@
+**Life on the Edge of the Menu and More: The Week in Reporter Reads**\
+`Articles from around The Times, narrated just for you.`\
+https://nytimes.com/2023/04/28/podcasts/life-on-the-edge-of-the-menu-and-more-the-week-in-reporter-reads.html?searchResultPosition=1
+
+**War Court Proceedings Stream to Guantánamo From a Secret Chamber in Virginia**\
+`The tribunals were intentionally set up offshore. Now, increasingly, military judges are hearing testimony and arguments from a classified annex.`\
+https://nytimes.com/2023/04/28/us/politics/guantanamo-war-court-remote.html?searchResultPosition=2
+
 **Forgot to File Your 2019 Taxes? You Still Can if You Want Your Refund.**\
 `The forms were originally due in the early days of the pandemic. The I.R.S. estimates that 1.5 million people are owed money, but they must file by July 17.`\
-https://nytimes.com/2023/04/28/your-money/taxes-refund-2019.html?searchResultPosition=1
+https://nytimes.com/2023/04/28/your-money/taxes-refund-2019.html?searchResultPosition=3
 
 **Do You Know These Novels Set in New England?**\
 `The Northeast has a long literary tradition, but how much do you know about more recent novels set in the region? Take this quiz and find out.`\
-https://nytimes.com/interactive/2023/04/28/books/booksupdate/new-england-books-quiz.html?searchResultPosition=2
+https://nytimes.com/interactive/2023/04/28/books/booksupdate/new-england-books-quiz.html?searchResultPosition=4
 
 **Worried About a Recession? Patient Investors Can Ride It Out.**\
 `Economic downturns are rough on stocks, but history shows that handsome returns can pile up anyway if you stick with it, our columnist says.`\
-https://nytimes.com/2023/04/28/business/recession-stock-market-investing.html?searchResultPosition=3
+https://nytimes.com/2023/04/28/business/recession-stock-market-investing.html?searchResultPosition=5
 
 **Here Are Your Favorite Places to See Art in California**\
 `An “incorrect museum” in Napa. A walk celebrating artists working out of a former brewery. California has plenty of wonderful options.`\
-https://nytimes.com/2023/04/28/us/california-art-favorites.html?searchResultPosition=4
+https://nytimes.com/2023/04/28/us/california-art-favorites.html?searchResultPosition=6
 
 **Inflation Cooled in March, but Stubborn Price Increases Remain**\
 `The Federal Reserve’s preferred inflation gauge, the Personal Consumption Expenditures index, slowed in March. But signs point to staying power.`\
-https://nytimes.com/2023/04/28/business/economy/inflation-march-federal-reserve.html?searchResultPosition=5
+https://nytimes.com/2023/04/28/business/economy/inflation-march-federal-reserve.html?searchResultPosition=7
 
 **Wages Continue to Grow, Good for Workers but a Worry for the Fed**\
 `Wages and salaries for workers rose 5.1 percent from a year earlier, which helps employees keep up with the rising cost of living but complicates the Federal Reserve’s efforts to tamp down inflation.`\
-https://nytimes.com/2023/04/28/business/wage-inflation-march.html?searchResultPosition=6
+https://nytimes.com/2023/04/28/business/wage-inflation-march.html?searchResultPosition=8
 
 **First Republic’s Troubles Reignite Fears of a Banking Crisis**\
 `The troubled lender is working on a lifeline, but time is running out.`\
-https://nytimes.com/2023/04/28/business/dealbook/first-republic-deal.html?searchResultPosition=7
+https://nytimes.com/2023/04/28/business/dealbook/first-republic-deal.html?searchResultPosition=9
 
 **The E.U. will keep letting in Ukrainian grains without tariffs.**\
 `Five countries whose farmers have been hurt by the policy, including Poland, will get carve-outs and compensation, under an agreement reached Friday.`\
-https://nytimes.com/2023/04/28/world/europe/ukraine-grain-european-union.html?searchResultPosition=8
-
-**Exxon and Chevron Report More Modest Profits as Oil and Gas Prices Ease**\
-`The oil industry enjoyed record profits in 2022 after Russia invaded Ukraine, but the prices of oil and natural gas have fallen sharply in recent months.`\
-https://nytimes.com/2023/04/28/business/energy-environment/oil-exxon-chevron.html?searchResultPosition=9
-
-**Australia Eyes a Fraught Pivot from Coal Power to Renewables**\
-`As the country’s oldest power station closed, experts warn that the country needs a clearer strategy to manage its exit from coal power.`\
-https://nytimes.com/2023/04/28/world/australia/australia-eyes-a-fraught-pivot-from-coal-power-to-renewables.html?searchResultPosition=10
+https://nytimes.com/2023/04/28/world/europe/ukraine-grain-european-union.html?searchResultPosition=10
 
