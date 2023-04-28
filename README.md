@@ -1,5 +1,5 @@
 **Review: Where a Boxer’s Clinch Is a Slow-Dance Embrace**\
-`Shamel Pitts’s “A Touch of Red,” at New York Live Arts, takes place in a boxing ring. It’s not a competition, though. It’s a relationship.`\
+`Shamel Pitts’s “Touch of Red,” at New York Live Arts, takes place in a boxing ring. It’s not a competition, though. It’s a relationship.`\
 https://nytimes.com/2023/04/28/arts/dance/review-shamel-pitts-boxing-dance-nyla.html?searchResultPosition=1
 
 **Best of Late Night This Week**\
