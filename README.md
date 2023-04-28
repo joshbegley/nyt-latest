@@ -7,7 +7,7 @@ https://nytimes.com/2023/04/28/business/eurozone-economic-growth-01-percent.html
 https://nytimes.com/2023/04/28/podcasts/the-daily/ai-deepfake-drake.html?searchResultPosition=2
 
 **BBC Chairman Resigns, Deepening Turmoil at Britain’s Broadcaster**\
-`Richard Sharp stepped down after an investigation concluded that he improperly failed to disclose his involvement in arranging a loan for the former prime minister, Boris Johnson.`\
+`Richard Sharp stepped down after an investigation concluded that he failed to disclose his involvement in arranging a loan for the former prime minister, Boris Johnson.`\
 https://nytimes.com/2023/04/28/world/europe/bbc-chairman-resigns-richard-sharp.html?searchResultPosition=3
 
 **The Long Demise of the Stretch Limousine**\
