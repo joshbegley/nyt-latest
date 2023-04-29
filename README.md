@@ -2,7 +2,7 @@
 `The fragile peace that quieted years of genocidal violence in Darfur is at risk again.`\
 https://nytimes.com/2023/04/29/world/africa/sudan-darfur-war.html?searchResultPosition=1
 
-**Scientist Looks Anew at Raccoon Dog Data, Stressing the Unknowns**\
+**Scientist Revisits Data on Raccoon Dogs and Covid, Stressing the Unknowns**\
 `After analyzing genetic data swabbed from a Wuhan market in early 2020, a virologist said it was unclear if animals for sale there had been infected.`\
 https://nytimes.com/2023/04/29/science/raccoon-dogs-wuhan-market.html?searchResultPosition=2
 
