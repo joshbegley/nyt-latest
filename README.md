@@ -1,4 +1,4 @@
-**Tornado Strikes in Florida Near Palm Beach**\
+**Tornado Strikes Near Palm Beach Gardens, Fla.**\
 `The severe weather upended cars, broke windows and downed trees on Saturday. Residents were warned to stay clear of fallen power lines.`\
 https://nytimes.com/2023/04/29/us/tornado-florida-palm-beach.html?searchResultPosition=1
 
