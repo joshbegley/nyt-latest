@@ -15,7 +15,7 @@ https://nytimes.com/2023/04/29/arts/william-bache-album-smithsonian-arsenic.html
 https://nytimes.com/2023/04/29/world/europe/ticketmaster-coronation-concert.html?searchResultPosition=4
 
 **Gunman Kills Five People in Texas Home, Authorities Say**\
-`Three others were wounded, and the gunman is still at large, the authorities said, after the attack on Friday night at a residence north of Houston.`\
+`Three others were wounded and the gunman remained at large, officials said. The attack on Friday night started after the man was asked to stop shooting in his yard, the authorities said.`\
 https://nytimes.com/2023/04/29/us/shooting-texas-san-jacinto.html?searchResultPosition=5
 
 **The Pains and Privileges of Staging Mozart’s ‘Don Giovanni’**\
