@@ -22,7 +22,7 @@ https://nytimes.com/2023/04/29/style/stud-country-line-dancing-two-step-class.ht
 `President Yoon Suk Yeol’s foreign policy, aligning his country more closely with Washington and Tokyo, has polarized his country. And critics say he has won little to show for it.`\
 https://nytimes.com/2023/04/29/world/asia/yoon-biden-south-korea-analysis.html?searchResultPosition=6
 
-**Under the Hollywood Spotlight, a Fading Welsh Town is Reborn**\
+**Under the Hollywood Spotlight, a Fading Welsh Town Is Reborn**\
 `A former industrial hub, Wrexham had long been in decline. Now, it’s reviving as the globally famous star of a reality series about its once forlorn soccer team’s rejuvenation.`\
 https://nytimes.com/2023/04/29/world/europe/wrexham-afc-wales-reynolds-mcelhenney.html?searchResultPosition=7
 
