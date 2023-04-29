@@ -3,7 +3,7 @@
 https://nytimes.com/2023/04/29/us/politics/south-carolina-democrats-spain.html?searchResultPosition=1
 
 **Regulators Prepare to Seize and Sell First Republic**\
-`JPMorgan and PNC, two of the country’s largest banks, are said to be interested in acquiring the troubled lender after it is seized by the Federal Deposit Insurance Corporation.`\
+`JPMorgan, PNC and Bank of America are said to be interested in acquiring the troubled lender after it is seized by the Federal Deposit Insurance Corporation.`\
 https://nytimes.com/2023/04/29/business/first-republic-seizure-fdic.html?searchResultPosition=2
 
 **Forcing Game 7, the Youthful Kings Make Golden State Look ‘a Little Tired’**\
