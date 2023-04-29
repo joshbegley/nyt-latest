@@ -1,4 +1,4 @@
-**Forcing Game 7, the Kings Make Golden State Look ‘a Little Tired’**\
+**Forcing Game 7, the Youthful Kings Make Golden State Look ‘a Little Tired’**\
 `Sacramento, which hasn’t won a playoff series in 19 seasons, is using its youth to its advantage against the defending champions.`\
 https://nytimes.com/2023/04/29/sports/kings-warriors-force-game-7.html?searchResultPosition=1
 
