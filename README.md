@@ -30,11 +30,11 @@ https://nytimes.com/2023/04/30/opinion/loneliness-epidemic-america.html?searchRe
 `The First Amendment ramifications are substantial.`\
 https://nytimes.com/2023/04/30/opinion/disney-desantis-florida-lawsuit.html?searchResultPosition=8
 
+**The Hollywood Writers’ Strike Isn’t About Money, It’s About Survival**\
+`If the Writers Guild does go on strike, it will be because the current system isn’t sustainable for anyone.`\
+https://nytimes.com/2023/04/30/opinion/hollywood-writers-guild-strike.html?searchResultPosition=9
+
 **Our Covid Data Project Is Over, but the Need for Timely Data Is Not**\
 `Three years ago we were caught flat-footed, and many people died.`\
-https://nytimes.com/2023/04/30/opinion/pandemic-virus-response.html?searchResultPosition=9
-
-**The Hollywood Writers’ Strike Isn’t About Money, It’s About Survival**\
-`If the Writers Guild does decide to go on strike, it won’t be about money, it will be about survival.`\
-https://nytimes.com/2023/04/30/opinion/hollywood-writers-guild-strike.html?searchResultPosition=10
+https://nytimes.com/2023/04/30/opinion/pandemic-virus-response.html?searchResultPosition=10
 
