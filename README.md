@@ -26,13 +26,13 @@ https://nytimes.com/2023/04/30/learning/whats-going-on-in-this-picture-may-1-202
 `Why Twitter changed its account verifications.`\
 https://nytimes.com/2023/04/30/briefing/twitter.html?searchResultPosition=7
 
-**Challenging Our Ideas of Art**\
-`Art institutions are reaching out to new artists and attracting new audiences.`\
-https://nytimes.com/2023/04/30/us/art-race-ethnicity.html?searchResultPosition=8
-
 **The Week in Business: High-Profile Media Ousters**\
 `First Republic is struggling. The Fed faults its own oversight of Silicon Valley Bank. The U.S. economy is still growing but at a slower pace. And a jobs report is coming out.`\
-https://nytimes.com/2023/04/30/business/the-week-in-business-media-firings.html?searchResultPosition=9
+https://nytimes.com/2023/04/30/business/the-week-in-business-media-firings.html?searchResultPosition=8
+
+**Challenging Our Ideas of Art**\
+`Art institutions are reaching out to new artists and attracting new audiences.`\
+https://nytimes.com/2023/04/30/us/art-race-ethnicity.html?searchResultPosition=9
 
 **Biden Praises ‘Absolute Courage’ of U.S. Journalist Detained in Russia**\
 `In a speech at the annual White House Association Correspondents’ dinner, the president said his administration was “working every day” to secure the release of Evan Gershkovich.`\
