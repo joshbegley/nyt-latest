@@ -1,4 +1,4 @@
-**Knicks Are Still Kicking in Throwback Battle With Miami Heat**\
+**Knicks Absorb First Blow in Throwback Battle With Miami Heat**\
 `Losing Game 1 at home was a setback for the Knicks, but it’s not a reason to count them out. They still have their depth and defense.`\
 https://nytimes.com/2023/04/30/sports/basketball/knicks-miami-heat-game-1.html?searchResultPosition=1
 
