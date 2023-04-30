@@ -27,7 +27,7 @@ https://nytimes.com/2023/04/30/world/africa/sudan-hospitals-doctors-fighting.htm
 https://nytimes.com/2023/04/30/style/white-house-correspondents-dinner-fashion.html?searchResultPosition=7
 
 **After Student’s Suicide, an Elite School Says It Fell ‘Tragically Short’**\
-`The Lawrenceville School in New Jersey on Sunday released a remarkable admission of failure and committed to a new focus on mental health.`\
+`The Lawrenceville School in New Jersey on Sunday made a remarkable admission of failure and committed to a new focus on mental health.`\
 https://nytimes.com/2023/04/30/nyregion/lawrenceville-school-suicide.html?searchResultPosition=8
 
 **Biden Calls for Release of U.S. Journalist Detained Abroad**\
