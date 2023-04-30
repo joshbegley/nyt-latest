@@ -7,7 +7,7 @@ https://nytimes.com/2023/04/30/opinion/letters/reading-education.html?searchResu
 https://nytimes.com/2023/04/30/dining/you-dont-always-need-a-recipe.html?searchResultPosition=2
 
 **Ding Liren of China Wins World Chess Championship**\
-`Ding prevailed in a rapid-play tiebreaker to defeat Ian Nepomniachtchi of Russia. He is the first Chinese man to hold the world title.`\
+`Ding prevailed in a rapid-play tiebreaker against Ian Nepomniachtchi of Russia. He is the first Chinese man to hold the world title.`\
 https://nytimes.com/2023/04/30/sports/ding-liren-chess-world-championship.html?searchResultPosition=3
 
 **How Well Does Masking Work? And Other Pandemic Questions We Need to Answer.**\
