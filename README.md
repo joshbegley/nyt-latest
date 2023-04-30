@@ -1,40 +1,40 @@
-**Ferrari Looks Fast. Now It Needs to Finish.**\
-`Charles Leclerc will take a run at Red Bull from pole position on Sunday. But he will need his luck to change to grab his first win.`\
-https://nytimes.com/2023/04/30/sports/autoracing/f1-azerbaijan-grand-prix-results.html?searchResultPosition=1
+**Paraguay Picks a New President: What You Need to Know**\
+`The South American nation is deciding between a candidate from the entrenched conservative party and two opposition candidates —an anti-corruption crusader and a far-right firebrand.`\
+https://nytimes.com/2023/04/30/world/americas/paraguay-picks-a-new-president-what-you-need-to-know.html?searchResultPosition=1
 
-**If You Don’t Use Your Land, These Marxists May Take It**\
-`The Landless Workers Movement organizes Brazil’s poor to take land from the rich. It is perhaps the largest — and most polarizing — social movement in Latin America.`\
-https://nytimes.com/2023/04/30/world/americas/brazil-land-occupation.html?searchResultPosition=2
+**Many in U.K. Greet King Charles’s Coronation With a ‘Take It or Leave It’ Shrug**\
+`Images of the new king may be blanketing Britain, but many in the country are more focused on navigating a cost-of-living crisis than celebrating a dysfunctional royal family.`\
+https://nytimes.com/2023/04/30/world/europe/charles-coronation-mood.html?searchResultPosition=2
 
-**How Scalia Law School Became a Key Friend of the Court**\
-`The school cultivated ties to justices, with generous pay and unusual perks. In turn, it gained prestige, donations and influence.`\
-https://nytimes.com/2023/04/30/us/supreme-court-scalia-law-school.html?searchResultPosition=3
+**In San Francisco, a Troubled Year at a Whole Foods Market Reflects a City’s Woes**\
+`Tech workers have stayed home, and ongoing social problems downtown are forcing civic and business leaders to confront harsh realities about the city’s pandemic recovery.`\
+https://nytimes.com/2023/04/30/us/san-francisco-whole-foods-crime-economy.html?searchResultPosition=3
 
-**Inside New York’s ‘Most Bizarre’ Secret Penthouse**\
-`High above Bryant Park, painting, music, fashion and events are showcased in a quirky historic venue.`\
-https://nytimes.com/2023/04/30/nyregion/secret-penthouse-artist-studio.html?searchResultPosition=4
+**They Refused to Fight for Russia. The Law Did Not Treat Them Kindly.**\
+`Since Moscow’s invasion of Ukraine, hundreds of Russian men have faced criminal charges for becoming war refuseniks. That has not stopped others from going to unusual lengths to avoid battle.`\
+https://nytimes.com/2023/04/30/us/russia-military-deserters-ukraine.html?searchResultPosition=4
 
-**How a Classical Music Power Couple Spend Their Sundays**\
-`After tennis, swimming and some time in the sauna, Peter Gelb and Keri-Lynn Wilson work at their adjoining desks.`\
-https://nytimes.com/2023/04/30/nyregion/peter-gelb-keri-lynn-wilson.html?searchResultPosition=5
+**States’ Push to Protect Kids Online Could Remake the Internet**\
+`New age restrictions for minors on sites like TikTok and Pornhub could also hinder adults’ access to online services.`\
+https://nytimes.com/2023/04/30/business/louisiana-kids-age-porn-law.html?searchResultPosition=5
 
-**The Color of Style**\
-`More than anyone else, Allan M. Siegal shaped modern standards at The Times. He got his points across with a green felt-tip pen.`\
-https://nytimes.com/2023/04/30/insider/allan-siegal-standards.html?searchResultPosition=6
+**Needing Younger Workers, Federal Officials Relax Rules on Past Drug Use**\
+`As more states legalize marijuana and competition for talent grows fiercer, the U.S. government is loosening guidelines from the “Just Say No” era.`\
+https://nytimes.com/2023/04/30/us/marijuana-drugs-federal-jobs.html?searchResultPosition=6
 
-**He Bombed the Nazis. 75 Years Later, the Nightmares Began.**\
-`Like most of his generation, John Wenzel returned from World War II with no interest in sharing memories. Just shy of his 100th birthday, he found he could no longer ignore the past.`\
-https://nytimes.com/2023/04/30/nyregion/he-bombed-the-nazis-75-years-later-the-nightmares-began.html?searchResultPosition=7
+**Echoes of History in New National Push to Shield Children Online**\
+`In the 1990s, the U.S. government limited what young people could see online, but lost a court fight challenging those rules. Now it’s happening again.`\
+https://nytimes.com/2023/04/30/business/aclu-free-speech-online.html?searchResultPosition=7
 
-**I Now Pronounce You Married, or Not**\
-`For years, confusion over who could perform a legal marriage in New York State put The Times’s Weddings desk in an uncomfortable position.`\
-https://nytimes.com/2023/04/30/insider/marriage-officiant-legal.html?searchResultPosition=8
+**A Year of Pain: Victims Struggle After Brooklyn Subway Shooting**\
+`The rush hour attack killed no one. But every mass shooting has effects that persist unseen.`\
+https://nytimes.com/2023/04/30/nyregion/brooklyn-subway-shooting-victims.html?searchResultPosition=8
 
-**‘As We Walked, We Passed Two Women Sitting on Folding Chairs’**\
-`Outside a psychic’s place, in search of matzo ball soup and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2023/04/30/nyregion/metropolitan-diary.html?searchResultPosition=9
+**Must Love Dogs Was Not in the Job Description**\
+`Even an objectively perfect animal needs some workplace guidelines.`\
+https://nytimes.com/2023/04/30/business/roxane-gay-work-advice-office-pets.html?searchResultPosition=9
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/04/30/crosswords/wordle-review-answer-680.html?searchResultPosition=10
+**Writers, Seeking Pay Change for the Streaming Era, Prepare to Strike**\
+`In the 16 years since the entertainment industry’s last strike, sweeping technological change has upended the television and movie business.`\
+https://nytimes.com/2023/04/30/business/media/hollywood-writers-strike.html?searchResultPosition=10
 
