@@ -1,40 +1,40 @@
-**Biden Gets a Chance to Mock Fox News, and Gleefully Takes It**\
-`At the White House Correspondents’ Association dinner, President Biden also skewered CNN and made light of his age.`\
-https://nytimes.com/2023/04/30/us/biden-fox-carlson-cnn-lemon.html?searchResultPosition=1
+**If You Don’t Use Your Land, These Marxists May Take It**\
+`The Landless Workers Movement organizes Brazil’s poor to take land from the rich. It is perhaps the largest — and most polarizing — social movement in Latin America.`\
+https://nytimes.com/2023/04/30/world/americas/brazil-land-occupation.html?searchResultPosition=1
 
-**Corrections: April 30, 2023**\
-`Corrections that appeared in print on Sunday, April 30, 2023.`\
-https://nytimes.com/2023/04/30/pageoneplus/corrections-april-30-2023.html?searchResultPosition=2
+**How Scalia Law School Became a Key Friend of the Court**\
+`The school cultivated ties to justices, with generous pay and unusual perks. In turn, it gained prestige, donations and influence.`\
+https://nytimes.com/2023/04/30/us/supreme-court-scalia-law-school.html?searchResultPosition=2
 
-**Quotation of the Day: Belafonte on His Art and Activism, and American Racism**\
-`Quotation of the Day for Sunday, April 30, 2023.`\
-https://nytimes.com/2023/04/30/pageoneplus/quotation-of-the-day-belafonte-on-his-art-and-activism-and-american-racism.html?searchResultPosition=3
+**Inside New York’s ‘Most Bizarre’ Secret Penthouse**\
+`High above Bryant Park, painting, music, fashion and events are showcased in a quirky historic venue.`\
+https://nytimes.com/2023/04/30/nyregion/secret-penthouse-artist-studio.html?searchResultPosition=3
 
-**SpaceX Rocket Struggled to Self-Destruct as It Spun Out of Control**\
-`In an update on the first flight of the most powerful rocket ever, Elon Musk offered a timeline of what went wrong while staying optimistic about forthcoming launches.`\
-https://nytimes.com/2023/04/29/science/elon-musk-spacex-starship.html?searchResultPosition=4
+**How a Classical Music Power Couple Spend Their Sundays**\
+`After tennis, swimming and some time in the sauna, Peter Gelb and Keri-Lynn Wilson work at their adjoining desks.`\
+https://nytimes.com/2023/04/30/nyregion/peter-gelb-keri-lynn-wilson.html?searchResultPosition=4
 
-**Tornado Strikes Near Palm Beach Gardens, Fla.**\
-`The severe weather upended cars, broke windows and downed trees on Saturday. Residents were warned to stay clear of fallen power lines.`\
-https://nytimes.com/2023/04/29/us/tornado-florida-palm-beach.html?searchResultPosition=5
+**The Color of Style**\
+`More than anyone else, Allan M. Siegal shaped modern standards at The Times. He got his points across with a green felt-tip pen.`\
+https://nytimes.com/2023/04/30/insider/allan-siegal-standards.html?searchResultPosition=5
 
-**Who Won, and Who Lost, in the 2023 N.F.L. Draft**\
-`Philadelphia, Detroit and Green Bay all had their reasons for making the picks they did. Here’s what we learned in the draft aftermath.`\
-https://nytimes.com/2023/04/29/sports/football/nfl-draft-picks-results.html?searchResultPosition=6
+**He Bombed the Nazis. 75 Years Later, the Nightmares Began.**\
+`Like most of his generation, John Wenzel returned from World War II with no interest in sharing memories. Just shy of his 100th birthday, he found he could no longer ignore the past.`\
+https://nytimes.com/2023/04/30/nyregion/he-bombed-the-nazis-75-years-later-the-nightmares-began.html?searchResultPosition=6
 
-**Man Who Crashed Into Teens After Doorbell Prank Is Found Guilty of Murder**\
-`Anurag Chandra was convicted of first-degree murder and attempted murder after crashing his car into another vehicle, killing three teenagers and injuring three others.`\
-https://nytimes.com/2023/04/29/us/doorbell-prank-california-guilty.html?searchResultPosition=7
+**I Now Pronounce You Married, or Not**\
+`For years, confusion over who could perform a legal marriage in New York State put The Times’s Weddings desk in an uncomfortable position.`\
+https://nytimes.com/2023/04/30/insider/marriage-officiant-legal.html?searchResultPosition=7
 
-**Name Dropping**\
-`It’s not what you know; it’s Lewis Rothlein and Jeff Chen’s second Sunday collaboration.`\
-https://nytimes.com/2023/04/29/crosswords/daily-puzzle-2023-04-30.html?searchResultPosition=8
+**‘As We Walked, We Passed Two Women Sitting on Folding Chairs’**\
+`Outside a psychic’s place, in search of matzo ball soup and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2023/04/30/nyregion/metropolitan-diary.html?searchResultPosition=8
 
-**New California Rule Would Ban Sale of Diesel Trucks by 2036**\
-`The regulation, which must be approved by the federal government, is the latest in a series of ambitious moves by the state to cut planet-warming pollution from vehicles.`\
-https://nytimes.com/2023/04/29/us/california-diesel-truck-sale-ban.html?searchResultPosition=9
+**Today’s Wordle Review**\
+`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
+https://nytimes.com/2023/04/30/crosswords/wordle-review-answer-680.html?searchResultPosition=9
 
-**South Carolina Democrats Elect First Black Woman to Run State Party**\
-`Christale Spain won with the support of the party establishment, including Representative James E. Clyburn.`\
-https://nytimes.com/2023/04/29/us/politics/south-carolina-democrats-spain.html?searchResultPosition=10
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2023/04/30/crosswords/spelling-bee-forum.html?searchResultPosition=10
 
