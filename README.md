@@ -30,11 +30,11 @@ https://nytimes.com/2023/05/01/t-magazine/pablo-barba-art.html?searchResultPosit
 `If there were an affirmative action program for the descendants of enslaved people, would you consider that to be race-based?`\
 https://nytimes.com/2023/05/01/briefing/supreme-court.html?searchResultPosition=8
 
+**An explosion derails a freight train in a Russian border area, the local governor says.**\
+`The blast was the latest in a spate of apparent attacks to hit the area bordering Ukraine.`\
+https://nytimes.com/2023/05/01/world/europe/explosion-train-derailment-bryansk.html?searchResultPosition=9
+
 **Kevin McCarthy’s Debt Ceiling Dilemma**\
 `The looming crisis over the U.S. debt ceiling may soon require the House speaker to make a painful choice.`\
-https://nytimes.com/2023/05/01/podcasts/the-daily/debt-ceiling-bill.html?searchResultPosition=9
-
-**In ‘A Small Light,’ an Ordinary Woman Resists the Nazis**\
-`A new series on Disney+ and Hulu tells the story of Miep Gies, a secretary who helped Anne Frank and others hide in Amsterdam during World War II.`\
-https://nytimes.com/2023/05/01/arts/television/a-small-light-anne-frank.html?searchResultPosition=10
+https://nytimes.com/2023/05/01/podcasts/the-daily/debt-ceiling-bill.html?searchResultPosition=10
 
