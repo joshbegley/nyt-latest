@@ -19,7 +19,7 @@ https://nytimes.com/2023/04/30/arts/television/succession-season-4-episode-6-coo
 https://nytimes.com/2023/04/30/world/americas/paraguay-election-santiago-pena.html?searchResultPosition=5
 
 **Tornado Damages Homes and Uproots Trees in Virginia Beach**\
-`At least a dozen homes were damaged in the storm on Sunday, a city spokeswoman said, and numerous gas leaks were reported. The storm also left thousands of customers without power.`\
+`Dozens of homes were damaged in the storm on Sunday, a city advisory said. The storm had also left thousands of customers without power.`\
 https://nytimes.com/2023/04/30/us/virginia-beach-tornado.html?searchResultPosition=6
 
 **Stephen Curry Scores 50 Points to Knock Off Kings in Game 7**\
