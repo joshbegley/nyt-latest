@@ -7,7 +7,7 @@ https://nytimes.com/2023/05/01/nyregion/you-need-100000-a-year-just-to-get-by-he
 https://nytimes.com/2023/05/01/briefing/sudan-health-pope-ukraine.html?searchResultPosition=2
 
 **Florida Panthers Upset Record-Setting Boston Bruins**\
-`The Bruins had won an N.H.L.-best 65 games in the regular season and taken a 3-1 series lead, but the Panthers stunned them in Game 7 to eliminate the team in the first round.`\
+`The Bruins had won an N.H.L.-best 65 games in the regular season and taken a 3-1 series lead, but the Panthers stunned them in Game 7 to eliminate Boston in the first round.`\
 https://nytimes.com/2023/04/30/sports/hockey/florida-panthers-upset-boston-bruins-game-7.html?searchResultPosition=3
 
 **Manhunt for Suspect in Texas Shooting Is Underway**\
