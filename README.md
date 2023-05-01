@@ -4,11 +4,11 @@ https://nytimes.com/2023/05/01/us/politics/debt-limit-date-janet-yellen.html?sea
 
 **On the Origin of EGOTs**\
 `Many people were introduced to the idea of an EGOT — winning an Emmy, Grammy, Oscar and Tony — through “30 Rock.” But it’s an actor from the 1980s who deserves the credit.`\
-https://nytimes.com/article/egot-history-winners-30-rock.html?searchResultPosition=2
+https://nytimes.com/article/egot-winners-history.html?searchResultPosition=2
 
 **White House Considers Two Key Nominations at the Fed**\
 `Administration officials are considering Adriana Kugler, an official at the World Bank, for a Fed governor job, while elevating a sitting governor to the role of vice chair.`\
-https://nytimes.com/2023/05/01/us/politics/white-house-considers-two-key-nominations-at-the-fed.html?searchResultPosition=3
+https://nytimes.com/2023/05/01/us/politics/federal-reserve-nominations-biden.html?searchResultPosition=3
 
 **Transgender Lawmaker Sues Over Removal From Montana House Floor**\
 `The lawsuit filed by Representative Zooey Zephyr argues that her First Amendment rights are being violated by Republicans who won’t let her participate in debates.`\
