@@ -27,7 +27,7 @@ https://nytimes.com/2023/04/30/sports/basketball/knicks-miami-heat-game-1.html?s
 https://nytimes.com/2023/04/30/nyregion/adam-sullivan-resignation-hochul.html?searchResultPosition=7
 
 **‘Zero Leads’: Dragnet Continues for Man Sought in Fatal Shooting of 5 in Texas**\
-`More than 200 law enforcement officers were searching for Francisco Oropesa on Sunday. “We do not have any tips right now as to where he may be,” an F.B.I. agent said.`\
+`As survivors and the community came together at a vigil, more than 200 law enforcement officers were searching for Francisco Oropesa on Sunday.`\
 https://nytimes.com/2023/04/30/us/texas-shooting-manhunt-victims.html?searchResultPosition=8
 
 **Dr. LeRoy Carhart, Fierce Defender of Abortion Rights, Dies at 81**\
