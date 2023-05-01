@@ -1,40 +1,40 @@
-**First Republic Is Sold: What to Know**\
-`First Republic is the second-largest bank by assets to fail in U.S. history. Here are some answers to questions you may have about what comes next for the bank and for depositors’ money.`\
-https://nytimes.com/2023/05/01/business/first-republic-deposits-sale.html?searchResultPosition=1
+**In ‘A Small Light,’ an Ordinary Woman Resists the Nazis**\
+`A new series on Disney+ and Hulu tells the story of Miep Gies, a secretary who helped Anne Frank and others hide in Amsterdam during World War II.`\
+https://nytimes.com/2023/05/01/arts/television/a-small-light-anne-frank.html?searchResultPosition=1
 
-**First Republic Bank Is Seized by Regulators and Sold to JPMorgan Chase**\
-`As part of its deal, 84 First Republic branches in eight states will reopen as JPMorgan branches on Monday.`\
-https://nytimes.com/2023/05/01/business/first-republic-bank-jpmorgan.html?searchResultPosition=2
+**In Transylvania, Anyone With $200 Can Live Like a King. (Well, One Specific King.)**\
+`Just don’t expect luxury at the Prince of Wales Guesthouse, where the surrounding forest is the main draw.`\
+https://nytimes.com/2023/05/01/business/king-charles-romania-guest-house.html?searchResultPosition=2
 
-**Russian Attack Activates Ukraine’s Air Defenses**\
-`Ukraine’s air defense system lit up the early morning sky over Kyiv as officials said it destroyed Russian missiles that entered the city’s air space.`\
-https://nytimes.com/video/world/europe/100000008882586/ukraine-explosion-attack.html?searchResultPosition=3
+**New Orleans Mayor Moves Past Failed Recall Effort, but Unease Persists**\
+`LaToya Cantrell remains in office, but frustration and fatigue among residents have continued to spread as crime remains high and basic services sputter.`\
+https://nytimes.com/2023/05/01/us/new-orleans-latoya-cantrell-recall.html?searchResultPosition=3
 
-**Iranian Insider and British Spy: How a Double Life Ended on the Gallows**\
-`In January, Iran executed a former senior official who provided Britain with valuable intelligence on Iranian nuclear and military programs over a decade, according to Western intelligence officials.`\
-https://nytimes.com/2023/05/01/world/middleeast/british-spy-execution-iran.html?searchResultPosition=4
+**13 New Books Coming in May**\
+`A landmark biography of Martin Luther King Jr., Tom Hanks’s debut novel, a dystopian work of fiction about the prison industrial complex and more.`\
+https://nytimes.com/2023/05/01/books/new-may-books.html?searchResultPosition=4
 
-**Independents Saw Urgency in Ousting Trump. Will They Feel the Same About Re-electing Biden?**\
-`In Arizona, where independents are a crucial voting bloc, there might not be the same sense of urgency for a Biden-Trump rematch. And some voters might look elsewhere.`\
-https://nytimes.com/2023/05/01/us/politics/biden-trump-independent-voters-arizona-2024.html?searchResultPosition=5
+**Rome, Sacred Ground for Nearly 3,000 Years, and Counting**\
+`Christianity is just one chapter in the Eternal City’s rich spiritual history. Judaism, Islam and ancient Roman religions are also a big part of the picture.`\
+https://nytimes.com/2023/05/01/travel/rome-sacred-places.html?searchResultPosition=5
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/05/01/crosswords/wordle-review-answer-681.html?searchResultPosition=6
+**Filmmaker Joel Coen Puts His Spin on the Photos of Lee Friedlander**\
+`Working in his California home 3,000 miles away during Covid, the director struck a sympathetic chord with the venerated photographer. A book and two gallery shows resulted.`\
+https://nytimes.com/2023/05/01/arts/design/joel-coen-lee-friedlander-book-photography.html?searchResultPosition=6
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/05/01/crosswords/spelling-bee-forum.html?searchResultPosition=7
+**‘Oliver!’ Returns, With Darker Twists Intact**\
+`The emphasis Encores! puts on words and music rather than spectacle allows the cruel realities of Dickensian London to stand out amid the bouncy tunes.`\
+https://nytimes.com/2023/05/01/arts/oliver-returns-with-darker-twists-intact.html?searchResultPosition=7
 
-**Word of the Day: abyss**\
-`This word has appeared in 120 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/05/01/learning/word-of-the-day-abyss.html?searchResultPosition=8
+**A Hurricane-Resistant Hospital Is Coming to Coney Island**\
+`After Hurricane Sandy flooded a Brooklyn hospital, New York City built a new one that could withstand rising waters and flying debris.`\
+https://nytimes.com/2023/05/01/nyregion/coney-island-hospital-hurricane.html?searchResultPosition=8
 
-**What’s on TV This Week: ‘A Small Light’ and the Met Gala**\
-`A new series about the woman who hid Anne Frank and her family premieres on National Geographic, and E! streams “the party of the year.”`\
-https://nytimes.com/2023/05/01/arts/television/whats-on-tv-this-week-a-small-light-and-the-met-gala.html?searchResultPosition=9
+**Scotland’s Coronation Day: Charles Souvenirs, Anti-Monarchy Rallies and Shrugs**\
+`The crowning of King Charles III will be a test of sentiment about the monarchy in Scotland, where many supporters of independence see the royals as part of the Britain they want to leave behind.`\
+https://nytimes.com/2023/05/01/world/europe/scotland-king-charles-coronation.html?searchResultPosition=9
 
-**Quotation of the Day: A Crowning Is Coming. Among Britons, Apathy Reigns.**\
-`Quotation of the Day for Monday, May 1, 2023.`\
-https://nytimes.com/2023/05/01/pageoneplus/quotation-of-the-day-a-crowning-is-coming-among-britons-apathy-reigns.html?searchResultPosition=10
+**When A.I. Chatbots Hallucinate**\
+`Ensuring that chatbots aren’t serving false information to users has become one of the most important and tricky tasks in the tech industry.`\
+https://nytimes.com/2023/05/01/business/ai-chatbots-hallucinatation.html?searchResultPosition=10
 
