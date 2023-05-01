@@ -26,15 +26,15 @@ https://nytimes.com/2023/05/01/world/europe/france-protests-pension-law-may-day.
 `The police said they found the suspect, 36, with cyanide after the sudden death of a friend with whom she was traveling.`\
 https://nytimes.com/2023/05/01/world/asia/thailand-poisoning-murder.html?searchResultPosition=7
 
+**Battlefield Update: Russia and Ukraine each claim gains in Bakhmut.**\
+`The fight for Bakhmut, the ruined city in eastern Ukraine, has become a focal point of the war as both sides have poured troops into battle and sustained heavy casualties.`\
+https://nytimes.com/2023/05/01/world/europe/bakhmut-ukraine-russia.html?searchResultPosition=8
+
 **Pablo Barba’s Carnival of the Grotesque**\
 `Plus: fig leaf ice cream, a hotel in the hills of Majorca and more from T’s cultural compendium.`\
-https://nytimes.com/2023/05/01/t-magazine/pablo-barba-art.html?searchResultPosition=8
+https://nytimes.com/2023/05/01/t-magazine/pablo-barba-art.html?searchResultPosition=9
 
 **The Hard Question of Affirmative Action and Slavery**\
 `If there were an affirmative action program for the descendants of enslaved people, would you consider that to be race-based?`\
-https://nytimes.com/2023/05/01/briefing/supreme-court.html?searchResultPosition=9
-
-**An explosion derails a freight train in a Russian border area, the local governor says.**\
-`The blast was the latest in a spate of apparent attacks to hit the area bordering Ukraine.`\
-https://nytimes.com/2023/05/01/world/europe/explosion-train-derailment-bryansk.html?searchResultPosition=10
+https://nytimes.com/2023/05/01/briefing/supreme-court.html?searchResultPosition=10
 
