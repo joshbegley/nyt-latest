@@ -3,7 +3,7 @@
 https://nytimes.com/2023/04/30/world/americas/paraguay-election-santiago-pena.html?searchResultPosition=1
 
 **Tornado Damages Homes and Uproots Trees in Virginia Beach**\
-`At least a dozen homes were damaged in the storm on Sunday, a city spokeswoman said, and numerous gas leaks were reported.`\
+`At least a dozen homes were damaged in the storm on Sunday, a city spokeswoman said, and numerous gas leaks were reported. The storm also left thousands of customers without power.`\
 https://nytimes.com/2023/04/30/us/virginia-beach-tornado.html?searchResultPosition=2
 
 **Stephen Curry Scores 50 Points to Knock Off Kings in Game 7**\
