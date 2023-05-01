@@ -7,7 +7,7 @@ https://nytimes.com/2023/05/01/science/ancient-romans-coin-drains.html?searchRes
 https://nytimes.com/2023/05/01/us/politics/biden-marcos-philippines-china.html?searchResultPosition=2
 
 **An Art Professor Says A.I. Is the Future. It’s the Students Who Need Convincing**\
-`Lance Weiler is an A.I. convert. His art students at Columbia University are debating the creative value of  ChatGPT and Midjourney. Powerful tools or a crutch?`\
+`Lance Weiler is an A.I. convert. His art students at Columbia University are debating the creative value of ChatGPT and Midjourney. Powerful tools or a crutch?`\
 https://nytimes.com/2023/05/01/arts/design/ai-art-class.html?searchResultPosition=3
 
 **Ukraine Wants to Push Forward. Not So Fast, Says Its Black Soupy Mud.**\
