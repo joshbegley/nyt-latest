@@ -1,5 +1,5 @@
-**Has Boston Seen the Last of the Hockey Star Patrice Bergeron?**\
-`The Bruins captain is left to ponder his future as his team, which won an N.H.L. record 65 games in the regular season, grapples with its shocking first-round playoff exit.`\
+**Has Boston Seen the Last of Patrice Bergeron?**\
+`The Bruins captain is left to ponder retirement as his team, which won an N.H.L.-record 65 games in the regular season, grapples with its first-round playoff exit.`\
 https://nytimes.com/2023/05/01/sports/hockey/bergeron-boston-bruins-nhl-playoffs.html?searchResultPosition=1
 
 **Senator Ben Cardin Will Retire, Teeing Up Competitive Primaries in Maryland**\
