@@ -26,15 +26,15 @@ https://nytimes.com/2023/04/30/sports/hockey/florida-panthers-upset-boston-bruin
 `The F.B.I., having run into “dead ends,” said it was offering an $80,000 reward for information leading to the capture of Francisco Oropesa, who is accused of killing five people.`\
 https://nytimes.com/video/us/100000008882482/texas-shooting-manhunt.html?searchResultPosition=7
 
-**Explosions Over Kyiv as Ukraine Braces for Broad Russian Attack**\
-`The attacks follow explosions deep behind Russian lines, which a Ukrainian official said is part of preparations for “the broad, full-scale offensive” that Ukraine is expected to launch soon.`\
-https://nytimes.com/2023/04/30/world/europe/explosions-kyiv-russia.html?searchResultPosition=8
-
 **‘Succession’ Style, Episode 6: Straight to the Moon**\
 `Barefoot on the tarmac, Matsson continues to shock. Shiv bares her neck and Kendall tries a flight jacket.`\
-https://nytimes.com/2023/04/30/style/succession-style-episode-6.html?searchResultPosition=9
+https://nytimes.com/2023/04/30/style/succession-style-episode-6.html?searchResultPosition=8
 
 **‘Succession’ Season 4, Episode 6: Cool New Rule**\
 `This week, Kendall, Roman and Shiv are on a mission to impress the grown-ups watching them in what amounts to their public debut as the stewards of Logan’s legacy.`\
-https://nytimes.com/2023/04/30/arts/television/succession-season-4-episode-6-cool-new-rule.html?searchResultPosition=10
+https://nytimes.com/2023/04/30/arts/television/succession-season-4-episode-6-cool-new-rule.html?searchResultPosition=9
+
+**Paraguay Voters Elect Conservative Economist as President**\
+`The election of Santiago Peña keeps the right-wing Colorado Party in control of Paraguay, which it has run for all but five of the past 76 years.`\
+https://nytimes.com/2023/04/30/world/americas/paraguay-election-santiago-pena.html?searchResultPosition=10
 
