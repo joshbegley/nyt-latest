@@ -4,7 +4,7 @@ https://nytimes.com/2023/05/01/us/dust-storm-illinois-i55-crash.html?searchResul
 
 **White House Will End Most Covid Vaccine Mandates**\
 `The mandates helped end the public health emergency. But they also prompted a politically charged debate.`\
-https://nytimes.com/2023/05/01/us/politics/white-house-will-end-most-covid-vaccine-mandates.html?searchResultPosition=2
+https://nytimes.com/2023/05/01/us/politics/us-covid-vaccine-mandates.html?searchResultPosition=2
 
 **Times Asks Judge in Fox-Dominion Case to Rule on Redactions**\
 `A judge will now decide whether media outlets that challenged how Fox News kept internal messages hidden from public view have a case.`\
