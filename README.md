@@ -1,5 +1,5 @@
 **Anger Over Pensions Law Fuels May Day Protests in France**\
-`Protesters are still hoping to force the government to reverse its decision to raise the legal retirement age from 62 to 64.`\
+`Protesters are still hoping to force the government to reverse its decision to raise the legal retirement age to 64 from 62.`\
 https://nytimes.com/2023/05/01/world/europe/france-protests-pension-law-may-day.html?searchResultPosition=1
 
 **Woman Charged With 9 Murders in Series of Mysterious Deaths in Thailand**\
