@@ -6,8 +6,8 @@ https://nytimes.com/2023/05/01/us/missing-teens-bodies-oklahoma.html?searchResul
 `Aimee Lucido’s latest puzzle is here to shake things up.`\
 https://nytimes.com/2023/05/01/crosswords/daily-puzzle-2023-05-02.html?searchResultPosition=2
 
-**Gordon Lightfoot, Canadian Folk Singer-Songwriter, Dies at 84**\
-`His rich baritone and gift for melodies made him one of the most popular artists of the 1970s. His hits included “The Wreck of the Edmund Fitzgerald” and “If You Could Read My Mind.”`\
+**Gordon Lightfoot, Canadian Folk Singer, Dies at 84**\
+`Mr. Lightfoot’s rich baritone and gift for melodies made him one of the most popular artists of the 1970s. His hits included “The Wreck of the Edmund Fitzgerald.”`\
 https://nytimes.com/2023/05/01/arts/music/gordon-lightfoot-dead.html?searchResultPosition=3
 
 **Late-Night Negotiating Frenzy Left First Republic in JPMorgan’s Control**\
