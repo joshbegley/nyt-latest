@@ -1,6 +1,6 @@
 **Uber’s Revenue Up 29% as U.S. Ride-Hailing Business Improves**\
 `The company said its financial results in the most recent quarter were about in line with the expectations of investors.`\
-https://nytimes.com/2023/05/02/business/ubers-revenue-up-29-as-us-ride-hailing-business-improves.html?searchResultPosition=1
+https://nytimes.com/2023/05/02/business/uber-earnings-revenue.html?searchResultPosition=1
 
 **Another Bank Failure**\
 `Are we on the brink of a financial crisis — or has the threat been contained?`\
