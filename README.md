@@ -15,7 +15,7 @@ https://nytimes.com/2023/05/02/well/mind/loneliness-isolation-surgeon-general.ht
 https://nytimes.com/2023/05/02/us/tou-thao-verdict-george-floyd-death.html?searchResultPosition=4
 
 **More Than 100,000 Have Fled Sudan to Neighboring Countries**\
-`The United Nations predicted that the figure would rise to more than 800,000 by year end, in addition to more than 300,000 people internally displaced already.`\
+`The United Nations predicted that the figure would rise to more than 800,000 by year’s end, in addition to more than 300,000 people internally displaced already.`\
 https://nytimes.com/2023/05/02/world/africa/sudan-fighting-refugees-un.html?searchResultPosition=5
 
 **James Harden Gives Embiid-less Sixers an Unexpected Win**\
