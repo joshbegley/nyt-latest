@@ -15,7 +15,7 @@ https://nytimes.com/2023/05/01/us/missing-teens-bodies-oklahoma.html?searchResul
 https://nytimes.com/2023/05/01/crosswords/daily-puzzle-2023-05-02.html?searchResultPosition=4
 
 **Gordon Lightfoot, Hitmaking Singer-Songwriter, Is Dead at 84**\
-`His rich baritone and gift for melodies made him one of the most popular artists of the 1970s. His hits included “The Wreck of the Edmund Fitzgerald” and “If You Could Read My Mind.”`\
+`His rich baritone and gift for melodies made him one of the most popular artists of the 1970s with songs like “The Wreck of the Edmund Fitzgerald” and “If You Could Read My Mind.”`\
 https://nytimes.com/2023/05/01/arts/music/gordon-lightfoot-dead.html?searchResultPosition=5
 
 **Late-Night Negotiating Frenzy Left First Republic in JPMorgan’s Control**\
