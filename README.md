@@ -4,7 +4,7 @@ https://nytimes.com/2023/05/02/dining/restaurant-review-naro.html?searchResultPo
 
 **Doja Cat Made a Fashionably Feline Met Gala Debut**\
 `One could say she led the evening’s purr-ade of Choupette-inspired looks.`\
-https://nytimes.com/2023/05/02/style/doja-cat-made-a-fashionably-feline-met-gala-debut.html?searchResultPosition=2
+https://nytimes.com/2023/05/02/style/doja-cat-met-gala-choupette.html?searchResultPosition=2
 
 **For Audra McDonald, ‘the work is the true joy.’**\
 `With “Ohio State Murders,” the 10-time Tony nominee hopes people took away a better understanding of the destructive power of racism.`\
