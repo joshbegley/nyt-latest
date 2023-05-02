@@ -6,7 +6,7 @@ https://nytimes.com/interactive/2023/05/02/business/digital-remembrances.html?se
 `Preston Hemphill, who fired a Taser at Mr. Nichols but did not participate in the brutal beating that led to his death, has repeatedly met with prosecutors in recent weeks.`\
 https://nytimes.com/2023/05/02/us/memphis-officer-taser-tyre-nichols.html?searchResultPosition=2
 
-**With A.I., Let’s Not Move Fast and Break Things**\
+**We Are Opening the Lids on Two Giant Pandora’s Boxes**\
 `Social media illustrated some of the perils of unchecked technology.`\
 https://nytimes.com/2023/05/02/opinion/ai-tech-climate-change.html?searchResultPosition=3
 
