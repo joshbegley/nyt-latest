@@ -8,7 +8,7 @@ https://nytimes.com/2023/05/02/theater/tony-nominations-snubs-surprises.html?sea
 
 **Muses Upon Muses Inside the Met Gala Cocktail Party**\
 `Nicole Kidman, Kate Moss, Naomi Campbell and others discuss their roles as muse to Karl Lagerfeld.`\
-https://nytimes.com/2023/05/02/fashion/met-gala-cocktail-party.html?searchResultPosition=3
+https://nytimes.com/2023/05/02/fashion/met-gala-cocktail-party-naomi-campbell-kate-moss.html?searchResultPosition=3
 
 **As attacks on journalists rise in Ukraine and beyond, The Times’s publisher warns of risks to democracy.**\
 `The free press’s role in supporting human rights and democratic societies is “at great risk” amid increasing levels of violence against journalists worldwide, A.G. Sulzberger said.`\
