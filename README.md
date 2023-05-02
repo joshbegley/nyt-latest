@@ -35,6 +35,6 @@ https://nytimes.com/2023/05/01/briefing/first-republic-bank-ai-concerns-met-gala
 https://nytimes.com/2023/05/01/world/europe/russia-ukraine-war.html?searchResultPosition=9
 
 **2023 Met Gala: Red Carpet Roundup**\
-`Some of the biggest names from Hollywood, fashion, politics, media and music arrive to honor Karl Lagerfeld for fashion’s biggest night`\
+`Some of the biggest names from Hollywood, fashion, politics, media and music arrive to honor Karl Lagerfeld for fashion’s biggest night.`\
 https://nytimes.com/2023/05/01/fashion/met-gala-2023-photos.html?searchResultPosition=10
 
