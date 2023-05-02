@@ -1,40 +1,40 @@
+**How the Golden Poppy Became California’s State Flower**\
+`The orange-yellow blooms were adopted 120 years ago as an emblem of the Golden State.`\
+https://nytimes.com/2023/05/02/us/california-state-flower-golden-poppy.html?searchResultPosition=1
+
+**New York City Panel to Vote on Rent Increases for 2 Million People**\
+`The panel, known as the Rent Guidelines Board, will take a preliminary vote on potential rent hikes on Tuesday evening.`\
+https://nytimes.com/2023/05/02/nyregion/nyc-rent-stabilized-increase.html?searchResultPosition=2
+
+**A Triathlon Champion’s Positive Test Jolts the Sport, Creating a Soap Opera**\
+`Collin Chartier tested positive for erythropoietin, the well-known illegal stamina enhancer. It came as a shock to devotees of one of the ultimate endurance pursuits, where stamina is everything.`\
+https://nytimes.com/2023/05/02/sports/triathlon-doping-collin-chartier.html?searchResultPosition=3
+
+**What Would Karl Have Thought of It All?**\
+`Karl Lagerfeld was famous for not holding back. So what would he have said about the looks worn in his (and his cat’s) honor?`\
+https://nytimes.com/2023/05/02/style/met-gala-fashion.html?searchResultPosition=4
+
 **Marcos, Back in Arms of U.S., Is Making His Own Name in Foreign Policy**\
 `In his first months in power, the Philippines leader has reforged a strong alliance with the U.S., winning praise even as questions remain about his path and intent at home.`\
-https://nytimes.com/2023/05/02/world/asia/marcos-biden-philippines-china.html?searchResultPosition=1
+https://nytimes.com/2023/05/02/world/asia/marcos-biden-philippines-china.html?searchResultPosition=5
 
 **What Matters to You in the South?**\
 `Input from readers will help shape our coverage of the region.`\
-https://nytimes.com/2023/05/02/us/us-south-coverage.html?searchResultPosition=2
+https://nytimes.com/2023/05/02/us/us-south-coverage.html?searchResultPosition=6
 
 **Why Many on Wall Street Fear the Banking Crisis Isn’t Over**\
 `Even after the sale of First Republic, investors are worried about challenges that regional banks still face, imperiling the economy.`\
-https://nytimes.com/2023/05/02/business/dealbook/banking-crisis-first-republic.html?searchResultPosition=3
+https://nytimes.com/2023/05/02/business/dealbook/banking-crisis-first-republic.html?searchResultPosition=7
 
 **FIFA Threatens Women’s World Cup TV Blackout in Europe**\
 `Gianni Infantino said matches would not be shown in the continent’s biggest markets this summer unless broadcasters meet FIFA’s demands for higher fees.`\
-https://nytimes.com/2023/05/02/sports/soccer/infantino-womens-world-cup-blackout.html?searchResultPosition=4
+https://nytimes.com/2023/05/02/sports/soccer/infantino-womens-world-cup-blackout.html?searchResultPosition=8
 
 **Uber’s Revenue Up 29% as U.S. Ride-Hailing Business Improves**\
 `The company said its financial results in the most recent quarter were about in line with the expectations of investors.`\
-https://nytimes.com/2023/05/02/business/uber-earnings-revenue.html?searchResultPosition=5
+https://nytimes.com/2023/05/02/business/uber-earnings-revenue.html?searchResultPosition=9
 
 **Another Bank Failure**\
 `Are we on the brink of a financial crisis — or has the threat been contained?`\
-https://nytimes.com/2023/05/02/briefing/bank-failures-first-republic-bank.html?searchResultPosition=6
-
-**A Third Bank Implodes. Now What?**\
-`The seizing of First Republic by regulators could signal the end of the banking crisis.`\
-https://nytimes.com/2023/05/02/podcasts/the-daily/bank-first-republic.html?searchResultPosition=7
-
-**How ‘The Wreck of the Edmund Fitzgerald’ Defied Top 40 Logic**\
-`Gordon Lightfoot’s 1976 folk ballad told the true story of a shipwreck on Lake Superior. One of his old friends called it “a documentarian’s song.”`\
-https://nytimes.com/2023/05/02/arts/music/gordon-lightfoot-edmund-fitzgerald-song.html?searchResultPosition=8
-
-**Prominent Retired Judge Calls for Ethics Rules for Supreme Court Justices**\
-`In testimony released before a Senate Judiciary Committee hearing, the retired conservative judge J. Michael Luttig called for new ethics rules for Supreme Court justices.`\
-https://nytimes.com/2023/05/02/us/politics/supreme-court-ethics-judiciary-hearing.html?searchResultPosition=9
-
-**Eurozone Inflation Rises as Policymakers Weigh a Rate Increase**\
-`The annual rate of inflation reached 7 percent, but the underlying “core” rate eased for the first time in 10 months.`\
-https://nytimes.com/2023/05/02/business/eurozone-inflation-april.html?searchResultPosition=10
+https://nytimes.com/2023/05/02/briefing/bank-failures-first-republic-bank.html?searchResultPosition=10
 
