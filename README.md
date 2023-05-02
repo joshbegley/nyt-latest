@@ -2,7 +2,7 @@
 `The easing of Covid-era restrictions could lead to an increase in migrants, officials say.`\
 https://nytimes.com/2023/05/02/us/politics/biden-troops-border.html?searchResultPosition=1
 
-**Surprises, snubs and a watershed moment that wasn’t.**\
+**Surprises, Snubs and a Watershed Moment That Wasn’t**\
 `Tony nominators singled out new faces and set up fascinating face-offs, but missed the chance to recognize a Native American breakthrough.`\
 https://nytimes.com/2023/05/02/theater/tony-nominations-snubs-surprises.html?searchResultPosition=2
 
