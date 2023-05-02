@@ -22,7 +22,7 @@ https://nytimes.com/2023/05/02/arts/music/gordon-lightfoot-edmund-fitzgerald-son
 `In testimony released before a Senate Judiciary Committee hearing, the retired conservative judge J. Michael Luttig called for new ethics rules for Supreme Court justices.`\
 https://nytimes.com/2023/05/02/us/politics/supreme-court-ethics-judiciary-hearing.html?searchResultPosition=6
 
-**Eurozone Prices Rose in April, as Central Bank Seeks to Tame Inflation**\
+**Eurozone Inflation Rises as Policymakers Weigh a Rate Increase**\
 `The annual rate of inflation reached 7 percent, but the underlying “core” rate eased for the first time in 10 months.`\
 https://nytimes.com/2023/05/02/business/eurozone-inflation-april.html?searchResultPosition=7
 
