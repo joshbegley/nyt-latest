@@ -27,7 +27,7 @@ https://nytimes.com/2023/05/02/us/politics/supreme-court-ethics-judiciary-hearin
 https://nytimes.com/2023/05/02/business/eurozone-inflation-april.html?searchResultPosition=7
 
 **For King Charles’s Coronation, a Fancy Fish Pie Without the Fish**\
-`For most coronations over the past 800 years, the city of Gloucester in England has presented newly crowned monarchs with lamprey pies. Charles’s pie will be different.`\
+`For most coronations over the past 800 years, the city of Gloucester in England has presented newly crowned monarchs with lamprey pies. Charles’s pie was different.`\
 https://nytimes.com/2023/05/02/world/europe/king-charles-lamprey-pie.html?searchResultPosition=8
 
 **Film Club: ‘I Stutter. This Is What You’re Not Hearing.’**\
