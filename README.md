@@ -1,4 +1,4 @@
-**Hollywood Writers Go on Strike, Halting Production**\
+**Hollywood Writers Will Go on Strike, Halting Production**\
 `The dispute, which pits 11,500 television and screenwriters against the major studios, has shattered 15 years of labor peace in the entertainment business.`\
 https://nytimes.com/2023/05/01/business/media/hollywood-writers-strike.html?searchResultPosition=1
 
