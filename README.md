@@ -1,5 +1,5 @@
-**Ex-Officer Guilty of Abetting Manslaughter in George Floyd’s Death**\
-`A judge in Minneapolis ruled that the former officer, Tou Thao, was guilty of aiding and abetting manslaughter in Mr. Floyd’s death in 2020.`\
+**Ex-Officer Guilty of Abetting Manslaughter in George Floyd’s Murder**\
+`A judge in Minneapolis ruled that the former officer, Tou Thao, was guilty of aiding and abetting manslaughter in the killing of Mr. Floyd in 2020.`\
 https://nytimes.com/2023/05/02/us/tou-thao-verdict-george-floyd-death.html?searchResultPosition=1
 
 **More Than 100,000 Have Fled Sudan to Neighboring Countries**\
