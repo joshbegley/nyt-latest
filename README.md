@@ -22,7 +22,7 @@ https://nytimes.com/2023/05/02/arts/music/shed-sonic-sphere.html?searchResultPos
 `The largest bank is also the only one whose stability hasn’t been questioned. Its C.E.O. makes sure of that.`\
 https://nytimes.com/2023/05/02/business/jpmorgan-first-republic-jamie-dimon.html?searchResultPosition=6
 
-**Job Openings Slipped in March as Labor Market Continued Easing**\
+**Job Openings Slipped in March as Labor Market Continued Cooling**\
 `The ratio of open jobs to available unemployed workers fell to the lowest level since October 2021.`\
 https://nytimes.com/2023/05/02/business/economy/economy-jobs-jolts.html?searchResultPosition=7
 
