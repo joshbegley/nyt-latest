@@ -1,6 +1,6 @@
 **FIFA Threatens Women’s World Cup TV Blackout in Europe**\
 `Gianni Infantino said matches would not be shown in the continent’s biggest markets this summer unless broadcasters meet FIFA’s demands for higher fees.`\
-https://nytimes.com/2023/05/02/sports/infantino-womens-world-cup-blackout.html?searchResultPosition=1
+https://nytimes.com/2023/05/02/sports/soccer/infantino-womens-world-cup-blackout.html?searchResultPosition=1
 
 **Uber’s Revenue Up 29% as U.S. Ride-Hailing Business Improves**\
 `The company said its financial results in the most recent quarter were about in line with the expectations of investors.`\
