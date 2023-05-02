@@ -34,7 +34,7 @@ https://nytimes.com/2023/05/02/business/media/hadley-gamble-jeff-shell-fired.htm
 `Since leaving the White House, Donald J. Trump has favored more friendly, right-wing outlets. His decision to appear on CNN represents a shift in his media strategy ahead of the 2024 election.`\
 https://nytimes.com/2023/05/02/business/media/trump-cnn-fox.html?searchResultPosition=9
 
-**Alabama Third Congressional District Primary Election Results**\
-`See full results and maps from the Alabama primary elections.`\
-https://nytimes.com/interactive/2022/05/24/us/elections/results-alabama-us-house-district-3.html?searchResultPosition=10
+**For Helen Park, ‘KPOP’ nod ‘feels like an encouragement to continue.’**\
+`Park, the first Asian American female composer on Broadway, was nominated for best original score.`\
+https://nytimes.com/2023/05/02/theater/helen-park-kpop-tony-nomination.html?searchResultPosition=10
 
