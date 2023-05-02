@@ -23,7 +23,7 @@ https://nytimes.com/2023/05/02/us/oklahoma-bodies-missing-jesse-mcfadden.html?se
 https://nytimes.com/video/us/100000008888312/tv-movie-writers-strike.html?searchResultPosition=6
 
 **Man Arrested Outside Buckingham Palace as Police Conduct Controlled Explosion**\
-`Amid tension ahead of King Charles III’s coronation, a man threw what police called suspected shotgun cartridges onto the palace grounds, and a bag he carried was detonated as a precaution.`\
+`Ahead of King Charles III’s coronation, a man threw what police called suspected shotgun cartridges onto the palace grounds, and a bag he carried was detonated as a precaution.`\
 https://nytimes.com/2023/05/02/world/europe/buckingham-palace-arrest-explosion.html?searchResultPosition=7
 
 **Gordon Lightfoot’s 10 Essential Songs**\
