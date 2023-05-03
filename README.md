@@ -27,7 +27,7 @@ https://nytimes.com/2023/05/03/world/europe/king-charles-coronation-royal.html?s
 https://nytimes.com/2023/05/03/briefing/debt-ceiling.html?searchResultPosition=7
 
 **7th Grader Opens Fire at School in Serbia, Killing 8 Children**\
-`The suspect fired into a crowd at the school in Belgrade with his father’s handgun, the police said. A security guard was also killed in the shooting.`\
+`The suspect had planned the attack on the Belgrade school “for a long period,” the police said. A security guard was also killed in the shooting.`\
 https://nytimes.com/2023/05/03/world/europe/serbia-school-shooting.html?searchResultPosition=8
 
 **The Democrats’ Dianne Feinstein Problem**\
