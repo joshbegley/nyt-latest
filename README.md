@@ -1,40 +1,40 @@
-**How Did the Devils, Headed for the Second Round, Get So Fast, So Fast?**\
-`The Devils, who had gone a decade without winning a playoff series until Monday, beat the Rangers with speed and a sensational rookie goalie. Now they’re about to face a hurricane.`\
-https://nytimes.com/2023/05/03/sports/hockey/new-jersey-devils-nhl-playoffs.html?searchResultPosition=1
+**What’s Happening at New York’s Design Festival?**\
+`As New York City prepares to roll out its annual home design event starting in May, we share a plenitude of bright spots to look out for this year.`\
+https://nytimes.com/2023/05/03/arts/design/new-york-design-festival.html?searchResultPosition=1
 
-**El Niño, Global Weather Pattern Tied to Intense Heat, Is Expected by Fall**\
-`The United Nations forecasting agency says “a new spike” in global temperatures is likely.`\
-https://nytimes.com/2023/05/03/climate/el-nino-extreme-weather-2024.html?searchResultPosition=2
+**Danish Wind Pioneer Keeps Battling Climate Change**\
+`Henrik Stiesdal helped design the first modern wind turbines. A thousand patents later, he’s a green tech entrepreneur rolling out new innovations.`\
+https://nytimes.com/2023/05/03/business/energy-environment/denmark-wind-power-stiesdal.html?searchResultPosition=2
 
-**An Internet Reporter Invites You to Her Group Chat**\
-`Madison Malone Kircher, who covers online culture, recently started a newsletter that digs into the occasionally viral, sometimes strange and often heartwarming trends that take over the internet.`\
-https://nytimes.com/2023/05/03/insider/it-happened-online-newsletter.html?searchResultPosition=3
+**‘Whatever It Takes’: The Street Teams Who Help Mentally Ill New Yorkers**\
+`Half a year with the street counselors who dispense free sneakers, monthly injections and gentle encouragement to some of the city’s most vulnerable and volatile residents.`\
+https://nytimes.com/2023/05/03/nyregion/mental-health-intensive-mobile-treatment.html?searchResultPosition=3
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/05/03/crosswords/wordle-review-answer-683.html?searchResultPosition=4
+**The President, the Soccer Hooligans and an Underworld ‘House of Horrors’**\
+`A grisly trial in Serbia has raised questions about connections between the country’s top leadership and its violent drug gangs.`\
+https://nytimes.com/2023/05/03/magazine/aleksandar-vucic-veljko-belivuk-serbia.html?searchResultPosition=4
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/05/03/crosswords/spelling-bee-forum.html?searchResultPosition=5
+**Polo and Ponies: ‘My Money Pit of Choice’**\
+`The very wealthy recently gathered in South Florida for a weekend dedicated to the sport of kings.`\
+https://nytimes.com/2023/05/03/style/polo-tournaments-florida.html?searchResultPosition=5
 
-**Met Gala Looks**\
-`What were your favorite and least favorite costumes at this year’s show?`\
-https://nytimes.com/2023/05/03/learning/met-gala-looks.html?searchResultPosition=6
+**When the Circus Came to a Ghost Town**\
+`Nipton, Calif., has one main road and about two dozen residents. Entrepreneurs with dreams of turning it around have come and gone. Will this time be different?`\
+https://nytimes.com/2023/05/03/realestate/spiegelworld-circus-ghost-town-california-nipton.html?searchResultPosition=6
 
-**Word of the Day: temperamental**\
-`This word has appeared in 59 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/05/03/learning/word-of-the-day-temperamental.html?searchResultPosition=7
+**Will Poulter Is Just Getting Used to His Superhero Era**\
+`The once-gawky British actor buffed up to play Adam Warlock in “Guardians of the Galaxy Vol. 3.” But he says, in his head, he’s still 5-foot-4.`\
+https://nytimes.com/2023/05/03/movies/will-poulter-guardians-of-the-galaxy-vol-3-adam-warlock.html?searchResultPosition=7
 
-**Corrections: May 3, 2023**\
-`Corrections that appeared in print on Wednesday, May 3, 2023.`\
-https://nytimes.com/2023/05/03/pageoneplus/corrections-may-3-2023.html?searchResultPosition=8
+**As Traditional Bulbs Fade Out, LED Lights Keep Improving**\
+`They last much longer, can be dimmed and now produce light in a variety of colors.`\
+https://nytimes.com/2023/05/03/style/led-lights-improving.html?searchResultPosition=8
 
-**What Are Coronations For?**\
-`When it comes to some national spectacles, anachronism is a feature, not a bug.`\
-https://nytimes.com/2023/05/03/opinion/king-charles-coronation.html?searchResultPosition=9
+**Tiny Homes for the Formerly Homeless**\
+`A program that builds small energy-efficient houses in the backyards of Seattle residents is helping to address a persistent problem.`\
+https://nytimes.com/2023/05/03/style/seattle-homeless-tiny-homes.html?searchResultPosition=9
 
-**Your Wednesday Briefing**\
-`Russian pressure on civilians in occupied Ukraine.`\
-https://nytimes.com/2023/05/03/briefing/civilians-ukraine-manufacturing-united-states.html?searchResultPosition=10
+**At 6 Catskills Resorts: Retro Design, Modern Comfort and Games, Lots of Games**\
+`Lodgings in this bucolic region north of New York City are targeting a new generation of visitors with organized “experiences,” nostalgic style elements and serious cocktails.`\
+https://nytimes.com/2023/05/03/travel/new-york-catskills-new-resorts.html?searchResultPosition=10
 
