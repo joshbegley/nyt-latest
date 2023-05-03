@@ -35,6 +35,6 @@ https://nytimes.com/2023/05/02/business/media/tucker-carlson-text-message-white-
 https://nytimes.com/2023/05/02/us/vermont-assisted-suicide-nonresidents.html?searchResultPosition=9
 
 **Man Accused of Killing 5 in Texas Is Arrested**\
-`The man, Francisco Oropesa, was located just a few miles from the site of the shooting.`\
+`The man, Francisco Oropesa, was caught just a few miles from the site of the shooting hiding in a hamper under a pile of laundry, the county sheriff said.`\
 https://nytimes.com/2023/05/02/us/texas-shooting-suspect-arrested.html?searchResultPosition=10
 
