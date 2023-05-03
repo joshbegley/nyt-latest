@@ -1,6 +1,6 @@
 **Vermont Removes Residency Requirement for Medically Assisted Deaths**\
 `The change, signed into law by the state’s governor, followed a legal challenge brought by a 75-year-old Connecticut resident.`\
-https://nytimes.com/2023/05/02/us/vermont-removes-residency-requirement-for-medically-assisted-deaths.html?searchResultPosition=1
+https://nytimes.com/2023/05/02/us/vermont-assisted-suicide-nonresidents.html?searchResultPosition=1
 
 **Man Accused of Killing 5 in Texas Is Arrested**\
 `The man, Francisco Oropesa, was located just a few miles from the site of the shooting.`\
