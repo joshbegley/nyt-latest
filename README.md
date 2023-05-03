@@ -1,6 +1,6 @@
 **Bebe Buell, Rock ’n’ Roll Muse, Sings Her Own Song**\
 `Decades after those wild nights at Max’s Kansas City and her many rock-star romances, she is making the case for herself.`\
-https://nytimes.com/2023/05/03/style/bebe-buell-rock-n-roll-muse-sings-her-own-song.html?searchResultPosition=1
+https://nytimes.com/2023/05/03/style/bebe-buell.html?searchResultPosition=1
 
 **Secret ‘Mission’ for Peace in Ukraine May Show Limits of Pope’s Influence**\
 `Since Francis made cryptic reference to a Vatican peace effort, the suggestion had elicited denial or bewilderment by war’s protagonists.`\
