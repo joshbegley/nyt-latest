@@ -3,7 +3,7 @@
 https://nytimes.com/2023/05/03/sports/soccer/lionel-messi-suspension-psg.html?searchResultPosition=1
 
 **A Deadly Encounter on the Subway Raises Troubling Questions**\
-`A rider restrained a man on the subway, according to the police. The man died. Now, some are calling for charges, but legal specialists have said any criminal case could be complex.`\
+`A man died on the subway after others held him down. What happens next?`\
 https://nytimes.com/2023/05/03/nyregion/nyc-subway-chokehold-death.html?searchResultPosition=2
 
 **A South Korean Horror Story, Long Suppressed**\
