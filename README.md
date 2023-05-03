@@ -11,7 +11,7 @@ https://nytimes.com/2023/05/03/world/europe/blinken-gershkovich-world-press-free
 https://nytimes.com/2023/05/03/us/politics/chris-christie-trump-debates.html?searchResultPosition=3
 
 **Verified videos show two explosions over the Kremlin.**\
-`By Haley Willis and Riley Mellen`\
+`The explosions were separated by about 15 minutes and one caused a brief fire.`\
 https://nytimes.com/2023/05/03/world/europe/russia-kremlin-drone-attack-videos.html?searchResultPosition=4
 
 **Federal Reserve Raises Interest Rates by Another Quarter Point**\
