@@ -2,7 +2,7 @@
 `In a speech, Sultan al-Jaber, the Emirati official presiding over this year’s climate summit, spoke of emissions cuts, but experts also cited ambiguity in his statements.`\
 https://nytimes.com/2023/05/03/climate/un-climate-oil-uae-al-jaber.html?searchResultPosition=1
 
-**The debt limit standoff is a new economic headwind for the Fed.**\
+**The Debt Limit Standoff is a New Economic Headwind for the Fed**\
 `The central bank must consider how looming U.S. default could impact the economy as it makes a decision on raising interest rates.`\
 https://nytimes.com/2023/05/03/business/debt-ceiling-fed.html?searchResultPosition=2
 
