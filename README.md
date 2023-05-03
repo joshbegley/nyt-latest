@@ -1,5 +1,5 @@
-**Suspected Texas Gunman Arrested After Days-Long Manhunt**\
-`Officials said Francisco Oropesa was caught hiding in a closet just a few miles from the site of the shooting.`\
+**Suspect in Texas Shooting Arrested After Dayslong Manhunt**\
+`Law enforcement officials said Francisco Oropesa was caught hiding in a closet just a few miles from the site of the shooting.`\
 https://nytimes.com/video/us/100000008888713/texas-shooting-suspect-arrested.html?searchResultPosition=1
 
 **How New Yorkers’ Lives Will Be Altered by the $229 Billion State Budget**\
