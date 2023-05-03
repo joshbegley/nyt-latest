@@ -1,5 +1,5 @@
 **Tori Bowie, World Champion Sprinter, Is Dead at 32**\
-`She won three Olympic medals in 2016 and the world championship the next year in an intense 100-meter dash.`\
+`She won three Olympic medals in 2016, including a gold, and the world championship the next year in an intense 100-meter dash.`\
 https://nytimes.com/2023/05/03/sports/olympics/tori-bowie-dead.html?searchResultPosition=1
 
 **New Voter ID Rules Are Raising Hackles in Britain**\
