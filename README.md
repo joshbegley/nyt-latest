@@ -1,29 +1,40 @@
+**Rep. Colin Allred of Texas Will Challenge Ted Cruz for Senate**\
+`Mr. Allred, a Democrat and former N.F.L. linebacker, said he would try to unseat Mr. Cruz, who held off Beto O’Rourke in 2018.`\
+https://nytimes.com/2023/05/03/us/politics/colin-allred-ted-cruz-texas-senate.html?searchResultPosition=1
+
+**What Fed Rate Increases Mean for Mortgages, Credit Cards and More**\
+`Savers will benefit and borrowers can expect to pay more on credit cards, student loans and other forms of debt.`\
+https://nytimes.com/2023/05/03/business/rates-mortgages-credit-cards-savings.html?searchResultPosition=2
+
+**Tucker Carlson’s Text, and ‘an Internal Struggle With Morality’**\
+`Readers write that the text that contributed to his firing also showed a recognition of our common humanity.`\
+https://nytimes.com/2023/05/03/opinion/letters/tucker-carlson-text.html?searchResultPosition=3
+
 **Companies Flock to Biden’s Climate Tax Breaks, Driving Up Cost**\
 `A law to boost clean energy appears to be more potent than predicted, with big implications for both budget talks and efforts to fight climate change.`\
-https://nytimes.com/2023/05/03/business/ira-climate-tax-breaks-biden.html?searchResultPosition=1
+https://nytimes.com/2023/05/03/business/ira-climate-tax-breaks-biden.html?searchResultPosition=4
 
 **It’s the End of a World as We Know It**\
 `Astronomers spotted a dying star swallowing a large planet, a discovery that fills in a “missing link” in understanding the fates of Earth and many other planets.`\
-https://nytimes.com/2023/05/03/science/star-eating-planet.html?searchResultPosition=2
+https://nytimes.com/2023/05/03/science/star-eating-planet.html?searchResultPosition=5
 
 **A Bright Coronation Chicken Salad and a No-Slump Quiche Crust**\
 `A British classic is perked up with yogurt and curry paste, and a simple trick that will help your quiche crusts stand taller.`\
-https://nytimes.com/2023/05/03/dining/a-bright-coronation-chicken-salad-and-a-no-slump-quiche-crust.html?searchResultPosition=3
+https://nytimes.com/2023/05/03/dining/a-bright-coronation-chicken-salad-and-a-no-slump-quiche-crust.html?searchResultPosition=6
 
 **Chris Wheeldon’s ‘Dangerous and Exciting’ Adventure at City Ballet**\
 `Wheeldon is back at New York City Ballet, where he honed his choreographic skills, making a non-narrative work set to Schoenberg.`\
-https://nytimes.com/2023/05/03/arts/dance/christopher-wheeldon-new-york-city-ballet-gala-schoenberg.html?searchResultPosition=4
+https://nytimes.com/2023/05/03/arts/dance/christopher-wheeldon-new-york-city-ballet-gala-schoenberg.html?searchResultPosition=7
 
 **Jim Marchant, a Nevada Election Denier, Announces Senate Run**\
 `Mr. Marchant, who lost his bid for Nevada’s secretary of state last year, will now attempt to unseat Senator Jacky Rosen, the Democratic incumbent.`\
-https://nytimes.com/2023/05/03/us/politics/jim-marchant-senate-nevada.html?searchResultPosition=5
+https://nytimes.com/2023/05/03/us/politics/jim-marchant-senate-nevada.html?searchResultPosition=8
 
 **Can You Pass an 8th-Grade History Test?**\
 `Here are five questions of medium difficulty from the eighth-grade U.S. history test given by the federal government.`\
-https://nytimes.com/2023/05/03/nyregion/us-history-quiz.html?searchResultPosition=6
+https://nytimes.com/2023/05/03/nyregion/us-history-quiz.html?searchResultPosition=9
 
 **Howard University Selects a New President, a Historian**\
 `Ben Vinson III, the provost of Case Western Reserve, will lead an institution that has surged, with record research grants and high-profile academic hires.`\
-https://nytimes.com/2023/05/03/us/howard-university-president-ben-vinson.html?searchResultPosition=7
+https://nytimes.com/2023/05/03/us/howard-university-president-ben-vinson.html?searchResultPosition=10
 
-**Yellowstone National Park’s Obsidian Cliff**\
