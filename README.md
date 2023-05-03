@@ -18,7 +18,7 @@ https://nytimes.com/2023/05/03/us/atlanta-shooting.html?searchResultPosition=4
 `Among our critic’s recommendations are multiple “Ring” cycles, a premiere by Ellen Reid and the soprano Lise Davidsen in Strauss’s “Salome.”`\
 https://nytimes.com/2023/05/03/arts/music/europe-opera-season.html?searchResultPosition=5
 
-**In Blow to DeSantis, Florida Bills to Limit Press Protections Shelved**\
+**In Blow to DeSantis, Florida Bills to Limit Press Protections Are Shelved**\
 `Gov. Ron DeSantis usually gets what he wants from the State Legislature. But on high-profile defamation bills it was right-wing news media, not the Republican governor, that flexed its muscle.`\
 https://nytimes.com/2023/05/03/us/politics/desantis-florida-defamation-bills.html?searchResultPosition=6
 
