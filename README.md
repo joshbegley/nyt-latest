@@ -2,8 +2,8 @@
 `The outcome of the debt ceiling conflict is genuinely uncertain.`\
 https://nytimes.com/2023/05/03/briefing/debt-ceiling.html?searchResultPosition=1
 
-**7th-Grader Opens Fire at School in Serbia, Killing 8 Students**\
-`The suspect used his father’s handgun and opened fire into a crowd at the school in Belgrade, the police said. A security guard was also killed in the shooting.`\
+**7th Grader Opens Fire at School in Serbia, Killing 8 Children**\
+`The suspect fired into a crowd at the school in Belgrade with his father’s handgun, the police said. A security guard was also killed in the shooting.`\
 https://nytimes.com/2023/05/03/world/europe/serbia-school-shooting.html?searchResultPosition=2
 
 **The Democrats’ Dianne Feinstein Problem**\
