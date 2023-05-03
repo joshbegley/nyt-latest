@@ -19,7 +19,7 @@ https://nytimes.com/2023/05/03/us/politics/pamela-timmins-dead.html?searchResult
 https://nytimes.com/2023/05/03/briefing/russia-ukraine-drone-kremlin-asia.html?searchResultPosition=5
 
 **Tucker Carlson’s Code of Whiteness**\
-`What the former Fox News host’s text message reveals about his racial ideology.`\
+`The racial ideology revealed in the former Fox News host’s text message.`\
 https://nytimes.com/2023/05/03/books-review/tucker-carlson-text-message-whiteness.html?searchResultPosition=6
 
 **Eli Lilly Trial Finds Alzheimer’s Drug Can Slow Progress of Disease**\
