@@ -2,7 +2,7 @@
 `Former President Donald J. Trump, who had sued The Times, three of its reporters and his niece over an investigation into his tax returns, was ordered to pay The Times’s legal expenses.`\
 https://nytimes.com/2023/05/03/nyregion/donald-trump-new-york-times-lawsuit.html?searchResultPosition=1
 
-**Moscow Says Explosions Above the Kremlin Were an Attempt to Kill Putin**\
+**Moscow Claims Explosions Above the Kremlin Were an Attempt to Kill Putin**\
 `Russia said Ukraine had launched a drone attack, which Kyiv vehemently denied, accusing Russia of manufacturing a pretext for escalation.`\
 https://nytimes.com/2023/05/03/world/europe/russia-kremlin-drone-explosions.html?searchResultPosition=2
 
