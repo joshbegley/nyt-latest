@@ -1,5 +1,5 @@
 **7th-Grader Opens Fire at School in Serbia, Killing 8 Students**\
-`The suspect used his father’s handgun and opened fire into a crowd at the school in Belgrade, the police said.`\
+`The suspect used his father’s handgun and opened fire into a crowd at the school in Belgrade, the police said. A security guard was also killed in the shooting.`\
 https://nytimes.com/2023/05/03/world/europe/serbia-school-shooting.html?searchResultPosition=1
 
 **The Democrats’ Dianne Feinstein Problem**\
