@@ -14,7 +14,7 @@ https://nytimes.com/2023/05/03/nyregion/nyc-subway-chokehold-death.html?searchRe
 `The story of a brutal sex trade built for American soldiers shows how women have been exploited in service of political and economic goals.`\
 https://nytimes.com/2023/05/03/world/asia/south-korean-comfort-women-suppressed.html?searchResultPosition=4
 
-**One Dead and 3 Injured in Atlanta Shooting, Police Say**\
+**One Dead and 3 Injured in Shooting at Atlanta Medical Building, Police Say**\
 `The suspect was still at large, and the police told residents nearby to shelter in place.`\
 https://nytimes.com/2023/05/03/us/atlanta-shooting.html?searchResultPosition=5
 
