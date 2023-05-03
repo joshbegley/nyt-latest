@@ -3,7 +3,7 @@
 https://nytimes.com/2023/05/03/technology/dorsey-musk-twitter.html?searchResultPosition=1
 
 **‘Bone Valley’ Podcast Subject Denied Parole Again in Wife’s Murder**\
-`Leo Schofield will be transferred to a prison with a transitional program. He has maintained his innocence in his wife’s murder in 1987, and another man has since confessed to the killing.`\
+`Leo Schofield will be transferred to a prison with a transitional program. He has maintained innocence in his wife’s murder in 1987, and another man has since confessed to the killing.`\
 https://nytimes.com/2023/05/03/us/bone-valley-leo-schofield-parole.html?searchResultPosition=2
 
 **How U.S. Efforts to Guide Sudan to Democracy Ended in War**\
