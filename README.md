@@ -2,7 +2,7 @@
 `The story of a brutal sex trade built for American soldiers shows how women have been exploited in service of political and economic goals.`\
 https://nytimes.com/2023/05/03/world/asia/south-korean-comfort-women-suppressed.html?searchResultPosition=1
 
-**Injuries Reported in Shooting at Building in Atlanta, Police Say**\
+**One Dead and 3 Injured in Atlanta Shooting, Police Say**\
 `The suspect was still at large, and the police told residents nearby to shelter in place.`\
 https://nytimes.com/2023/05/03/us/atlanta-shooting.html?searchResultPosition=2
 
