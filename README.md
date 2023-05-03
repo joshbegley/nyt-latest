@@ -1,5 +1,5 @@
 **How Messi’s Marriage With P.S.G. Fell Apart**\
-`A missed practice, a Saudi vacation and a brief suspension bring a sudden end to a star’s transactional relationship with Paris St.-Germain, and Qatar.`\
+`A missed practice, a Saudi vacation and a brief suspension brought a sudden end to a star’s transactional relationship with Paris St.-Germain, and Qatar.`\
 https://nytimes.com/2023/05/03/sports/soccer/lionel-messi-suspension-psg.html?searchResultPosition=1
 
 **A Deadly Encounter on the Subway Raises Troubling Questions**\
