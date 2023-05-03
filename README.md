@@ -1,5 +1,5 @@
 **Man Accused of Killing 5 in Texas Is Arrested**\
-`The man, Francisco Oropesa, was located just a few miles from the site of shooting.`\
+`The man, Francisco Oropesa, was located just a few miles from the site of the shooting.`\
 https://nytimes.com/2023/05/02/us/texas-shooting-suspect-arrested.html?searchResultPosition=1
 
 **The Met Gala Was Just the Start. Welcome to the After-Parties.**\
