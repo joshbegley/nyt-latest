@@ -34,7 +34,7 @@ https://nytimes.com/2023/05/03/sports/baseball/el-duque-yankees-book.html?search
 `Layered with asparagus, spinach, peas and lemony ricotta, this springy recipe from Melissa Clark is the cheesy dish for right now.`\
 https://nytimes.com/2023/05/03/dining/vegetarian-spring-lasagna-recipe.html?searchResultPosition=9
 
-**Brazil’s Police Raid Bolsonaro Home in Fake Vaccine Cards Case**\
-`The authorities arrested a close aide of former President Jair Bolsonaro on charges that he forged vaccine records, possibly to help Mr. Bolsonaro enter the United States.`\
-https://nytimes.com/2023/05/03/world/americas/bolsonaro-brazil-police-covid-vaccine-cards.html?searchResultPosition=10
+**Zelensky says Russia is trying to stoke support at home by blaming Kyiv.**\
+`The Ukrainian president flatly denied that his country was behind any drone attack on the Kremlin.`\
+https://nytimes.com/2023/05/03/world/europe/zelensky-kremlin-drone-attack.html?searchResultPosition=10
 
