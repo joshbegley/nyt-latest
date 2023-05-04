@@ -18,8 +18,8 @@ https://nytimes.com/2023/05/04/movies/david-hammons-the-melt-goes-on-forever-rev
 `Solutions to social problems lie close to home.`\
 https://nytimes.com/2023/05/04/opinion/politics-civility.html?searchResultPosition=5
 
-**Why a Decision About Charges in Subway Chokehold Death May Take Time**\
-`Some New Yorkers called for a quick arrest after a man choked a homeless man. Law enforcement officials said they were still determining what happened and whether to charge the man responsible.`\
+**Why a Decision About an Arrest in Subway Chokehold Death May Take Time**\
+`Some New Yorkers called for a quick arrest after a man on the subway choked another man to death. Law enforcement officials said they were still determining what happened and whether to charge the man responsible.`\
 https://nytimes.com/2023/05/04/nyregion/subway-chokehold-arrest-decision.html?searchResultPosition=6
 
 **‘Oliver!’ Review: Tunes, Glorious Tunes, in a Grimly Cheerful Revival**\
