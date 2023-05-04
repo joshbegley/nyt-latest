@@ -1,6 +1,6 @@
 **Why Does This Cannibalistic Fish Keep Washing Ashore?**\
 `The lancetfish, one of the biggest species to roam the deep ocean, sometimes appears ashore along the West Coast, baffling scientists.`\
-https://nytimes.com/2023/05/04/us/lancetfish-orgeon-beaches.html?searchResultPosition=1
+https://nytimes.com/2023/05/04/us/lancetfish-oregon-beaches.html?searchResultPosition=1
 
 **A Chill Hotel in Every Way But One**\
 `The architect of the beachfront Hotel Terrestre, in Mexico, refused to incorporate air-conditioning.`\
