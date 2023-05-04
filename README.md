@@ -1,5 +1,5 @@
 **A Subway Killing Stuns, and Divides, New Yorkers**\
-`A political clash over how to solve some of the city’s biggest problems gapes wider after a subway rider choked and killed another passenger.`\
+`After a homeless man was killed on the subway, New Yorkers and elected officials are mourning his death and debating how the city should address mental health and public safety.`\
 https://nytimes.com/2023/05/04/nyregion/jordan-neely-death-subway-nyc.html?searchResultPosition=1
 
 **The Rays Are Better Than Everyone. At Everything.**\
