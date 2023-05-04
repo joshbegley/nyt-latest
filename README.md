@@ -11,7 +11,7 @@ https://nytimes.com/2023/05/04/opinion/north-carolina-republicans.html?searchRes
 https://nytimes.com/video/nyregion/100000008890954/subway-chokehold-death-jordan-neely.html?searchResultPosition=3
 
 **Goldman Says U.S. Is Investigating Its Work for Silicon Valley Bank**\
-`Hired to help with a capital raise, Goldman Sachs advised SVB to make a move that provoked a public panic and ended with the smaller bank’s collapse.`\
+`Hired to help with a capital raise, Goldman Sachs advised SVB to make a move that provoked a public panic and ended with the smaller bank collapsing.`\
 https://nytimes.com/2023/05/04/business/goldman-svb-investigation.html?searchResultPosition=4
 
 **Through Catastrophe, and in Community, the Art of Daniel Lind-Ramos**\
