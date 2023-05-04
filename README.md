@@ -1,5 +1,5 @@
 **Mayor Adams Says He Was Given a Divine Message: ‘Talk About God’**\
-`Mayor Eric Adams of New York City doubled down on his melding of politics and the pulpit, saying on Thursday that God has spoken to him on multiple occasions.`\
+`New York City’s mayor doubles down on his melding of politics and the pulpit, saying that God has spoken to him on occasions.`\
 https://nytimes.com/2023/05/04/nyregion/adams-religion-prayer.html?searchResultPosition=1
 
 **How The Legend of Zelda Changed the Game**\
