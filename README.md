@@ -15,7 +15,7 @@ https://nytimes.com/2023/05/04/us/politics/clarence-thomas-harlan-crow-tuition.h
 https://nytimes.com/2023/05/04/movies/whats-love-got-to-do-with-it-review.html?searchResultPosition=4
 
 **Ed Sheeran Wins Copyright Case Over Marvin Gaye’s ‘Let’s Get It On’**\
-`The British pop star was accused of borrowing from the 1973 classic for his 2014 ballad “Thinking Out Loud.”`\
+`The British pop star was accused of copying the 1973 classic for his 2014 ballad “Thinking Out Loud.”`\
 https://nytimes.com/2023/05/04/arts/music/ed-sheeran-marvin-gaye-copyright-trial-verdict.html?searchResultPosition=5
 
 **Anheuser-Busch Changes Beer Marketing Focus After Transgender Promotion**\
