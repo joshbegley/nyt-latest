@@ -8,7 +8,7 @@ https://nytimes.com/2023/05/04/business/dealbook/pacwest-deal-fed.html?searchRes
 
 **New York City’s Most Expensive Neighborhoods**\
 `The city’s real estate market continues to cool, the luxury sector included.`\
-https://nytimes.com/2023/05/04/realestate/new-york-citys-most-expensive-neighborhoods.html?searchResultPosition=3
+https://nytimes.com/2023/05/04/realestate/most-expensive-neighborhoods-nyc.html?searchResultPosition=3
 
 **PacWest Says It’s Exploring Options After Shares Plunge**\
 `An intensifying challenge for bankers and regulators is how to keep the turmoil in the stock market from spilling into the lenders’ day-to-day businesses.`\
@@ -34,7 +34,7 @@ https://nytimes.com/2023/05/04/your-money/college-application-essay-money.html?s
 `Religion comes between two girls falling in love in the 1990s in this sweet coming-of-age film bathed in grunge hues.`\
 https://nytimes.com/2023/05/04/movies/you-can-live-forever-review.html?searchResultPosition=9
 
-**‘Slava Ukraini’ Review: Tour of a War-Torn Nation**\
-`The French public intellectual Bernard-Henri Lévy travels to different parts of Ukraine in this dispatch-documentary, shot in the second half of 2022.`\
-https://nytimes.com/2023/05/04/movies/slava-ukraini-review.html?searchResultPosition=10
+**‘Anxious Nation’ Review: The Kids Aren’t All Right**\
+`Young people discuss their troubles with anxiety and panic in this unfocused advocacy documentary.`\
+https://nytimes.com/2023/05/04/movies/anxious-nation-review.html?searchResultPosition=10
 
