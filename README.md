@@ -1,6 +1,6 @@
 **Kremlin Blasts Were Real. The Rest Is Hazy, Maybe Intentionally.**\
 `Kyiv and Moscow angrily blamed each other after two explosions in an apparent drone attack on the heart of Russian power, but whose outrage is real?`\
-https://nytimes.com/2023/05/04/world/europe/kremlin-explosions-analysis.html?searchResultPosition=1
+https://nytimes.com/2023/05/04/world/europe/kremlin-drone-explosions-analysis.html?searchResultPosition=1
 
 **Should We Be Worried About Nuclear Waste?**\
 `Readers discuss a guest essay that asserted that such fears are unwarranted. Also: Health risks from polyvinyl chloride pipes.`\
