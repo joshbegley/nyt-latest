@@ -30,11 +30,11 @@ https://nytimes.com/2023/05/04/learning/has-forgiving-someone-ever-made-you-feel
 `The happiest spring suits are brought to life in deep pinks, bright lavenders and elegant pastels.`\
 https://nytimes.com/2023/05/04/t-magazine/pink-summer-fashion.html?searchResultPosition=8
 
-**Send Us Your College Application Essay About Money, Work or Social Class**\
-`Each year, we publish a handful of essays by high school seniors. We’d love to read yours. If we use it, we’ll pay you.`\
-https://nytimes.com/2023/05/04/your-money/college-application-essay-money.html?searchResultPosition=9
-
 **‘You Can Live Forever’ Review: Do You Love Me Now?**\
 `Religion comes between two girls falling in love in the 1990s in this sweet coming-of-age film bathed in grunge hues.`\
-https://nytimes.com/2023/05/04/movies/you-can-live-forever-review.html?searchResultPosition=10
+https://nytimes.com/2023/05/04/movies/you-can-live-forever-review.html?searchResultPosition=9
+
+**Send Us Your College Application Essay About Money, Work or Social Class**\
+`Each year, we publish a handful of essays by high school seniors. We’d love to read yours. If we use it, we’ll pay you.`\
+https://nytimes.com/2023/05/04/your-money/college-application-essay-money.html?searchResultPosition=10
 
