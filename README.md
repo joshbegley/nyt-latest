@@ -7,7 +7,7 @@ https://nytimes.com/2023/05/04/style/in-the-digital-age-wedding-film-photography
 https://nytimes.com/2023/05/04/opinion/north-carolina-republicans.html?searchResultPosition=2
 
 **Protesters Demand Justice for Man Killed on New York Subway**\
-`Witnesses said that Jordan Neely, who was homeless, had been acting in a “hostile and erratic manner” when another rider put him in a chokehold.`\
+`The death of Jordan Neely, after another rider put him in a chokehold, spurred advocates for the homeless, city officials and others to call for an arrest.`\
 https://nytimes.com/video/nyregion/100000008890954/subway-chokehold-death-jordan-neely.html?searchResultPosition=3
 
 **Goldman Says U.S. Is Investigating Its Work for Silicon Valley Bank**\
