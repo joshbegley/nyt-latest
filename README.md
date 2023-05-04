@@ -22,8 +22,8 @@ https://nytimes.com/2023/05/04/us/abortion-ban-north-carolina.html?searchResultP
 `She felt the monarchy folded her and other immigrants like her into Britishness.`\
 https://nytimes.com/2023/05/04/opinion/coronation-king-charles.html?searchResultPosition=6
 
-**21-Year-Old Arrested in Three Stabbings in California College Town**\
-`Residents in Davis reported seeing him pacing in a park not far from where one of the fatal stabbings occurred. The attacks left two men dead and one woman injured.`\
+**Recent College Student Arrested in Three Stabbings in California Town**\
+`Residents in Davis reported seeing the man, 21, pacing in a park not far from where one of the fatal stabbings occurred. The attacks left two men dead and one woman injured.`\
 https://nytimes.com/2023/05/04/us/davis-stabbings-arrest-california.html?searchResultPosition=7
 
 **Apple’s Slowdown Eases, but Sluggish Demand Hurts Results**\
