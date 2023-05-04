@@ -10,8 +10,8 @@ https://nytimes.com/2023/05/04/briefing/white-house-ai-leaders-proud-boys-trial.
 `Attorney General Merrick B. Garland said that prosecutors had now secured sedition convictions against leaders of both the Proud Boys and Oath Keepers.`\
 https://nytimes.com/video/us/100000008892191/proud-boys-sedition-conviction.html?searchResultPosition=3
 
-**Governor’s Wife Denied Trooper a Room to Pump Milk, Suit Charges**\
-`New Jersey’s first lady denied a state trooper access to a carriage house to pump breast milk because of “optics,” a lawsuit against the State Police says.`\
+**Governor’s Wife Denied Trooper a Room to Pump Breast Milk, Suit Charges**\
+`New Jersey’s first lady denied a state trooper access to a carriage house to pump milk because of “optics,” a lawsuit against the State Police says.`\
 https://nytimes.com/2023/05/04/nyregion/new-jersey-trooper-breastfeeding-first-lady.html?searchResultPosition=4
 
 **North Carolina Legislature Passes 12-Week Abortion Ban**\
