@@ -1,4 +1,4 @@
-**Biden Expected to Announce His Pick for Top Military Officer Soon**\
+**Biden to Name Air Force Chief to Top Military Post, Officials Say**\
 `The appointment of Gen. Charles Q. Brown Jr. would mean that the top two Pentagon leadership positions would be inhabited by Black men for the first time in American history.`\
 https://nytimes.com/2023/05/04/us/politics/joint-chiefs-chairman-charles-q-brown-milley.html?searchResultPosition=1
 
