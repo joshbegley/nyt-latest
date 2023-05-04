@@ -22,7 +22,7 @@ https://nytimes.com/2023/05/04/realestate/most-expensive-neighborhoods-nyc.html?
 `An intensifying challenge for bankers and regulators is how to keep the turmoil in the stock market from spilling into the lenders’ day-to-day businesses.`\
 https://nytimes.com/2023/05/04/business/pacwest-stock.html?searchResultPosition=6
 
-**Russia Blames U.S. for Apparent Drone Attack on the Kremlin**\
+**Russia Blames U.S. in Apparent Drone Attack on the Kremlin**\
 `President Vladimir Putin’s spokesman doubled down on accusing Washington of “direct involvement” in the war in Ukraine. The U.S. has denied advance knowledge of the Kremlin incident.`\
 https://nytimes.com/2023/05/04/world/europe/russia-drone-attack-us.html?searchResultPosition=7
 
