@@ -1,40 +1,40 @@
-**A Toast to Raising Alcohol Taxes**\
-`They’re among the most effective ways to reduce destructive drinking. What are politicians so afraid of?`\
-https://nytimes.com/video/opinion/100000008870638/alcohol-tax-costs.html?searchResultPosition=1
+**Britain’s Economy Needs a Pick-Me-Up. Is the Coronation Enough?**\
+`Caught between slow growth and high inflation, businesses are hoping King Charles’s coronation will bolster consumer confidence enough to last more than just one weekend.`\
+https://nytimes.com/2023/05/04/business/uk-economy-king-charles-coronation.html?searchResultPosition=1
 
-**Inside the Delirious Rise of ‘Superfake’ Handbags**\
-`Can you tell the difference between a $10,000 Chanel bag and a $200 knockoff? Almost nobody can, and it’s turning luxury fashion upside down.`\
-https://nytimes.com/2023/05/04/magazine/celine-chanel-gucci-superfake-handbags.html?searchResultPosition=2
+**First, a Run for the Roses. Then, a Dash to the Breeding Shed.**\
+`Enjoy today’s top racehorses while you can. It won’t be long before they quit racing and go where the real money is.`\
+https://nytimes.com/2023/05/04/sports/horse-racing/racehorses-breeding-kentucky-derby.html?searchResultPosition=2
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/05/04/crosswords/wordle-review-answer-684.html?searchResultPosition=3
+**Dogs (and Cats) on a Plane**\
+`As flying commercial with pets becomes increasingly difficult, animal owners are turning to private aviation. A new airline is making a bid for those with fur babies.`\
+https://nytimes.com/2023/05/04/travel/flying-pets-private-jets.html?searchResultPosition=3
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/05/04/crosswords/spelling-bee-forum.html?searchResultPosition=4
+**His Cousin Promised a Quake-Proof Building. Then the Walls Crumbled.**\
+`Turkish families got wealthy off a construction system rife with patronage. A Times investigation reveals just how fatally shaky that system was.`\
+https://nytimes.com/2023/05/04/world/europe/turkey-earthquake-corruption.html?searchResultPosition=4
 
-**Running**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2023/05/04/learning/running.html?searchResultPosition=5
+**Oakland Faces a ‘Devastating’ Future Without Pro Sports**\
+`Chants of “Sell the team!” ring out at Oakland Coliseum, but fans know the A’s are likely following the N.B.A.’s Warriors and the N.F.L.’s Raiders out of town.`\
+https://nytimes.com/2023/05/04/sports/baseball/oakland-athletics-fans-las-vegas.html?searchResultPosition=5
 
-**Bluster over explosions raises fears of retaliation by Russia.**\
-`By Daniel Victor`\
-https://nytimes.com/2023/05/04/world/europe/bluster-over-explosions-raises-fears-of-retaliation-by-russia.html?searchResultPosition=6
+**An Irish Abbey Where the Grass Is Always Warmer**\
+`The sisters at St. Mary’s Abbey in Ireland grow their own heating fuel.`\
+https://nytimes.com/2023/05/04/climate/an-irish-abbey-where-the-grass-is-always-warmer.html?searchResultPosition=6
 
-**Word of the Day: prow**\
-`This word has appeared in 10 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/05/04/learning/word-of-the-day-prow.html?searchResultPosition=7
+**Why Monumental Cream Puff Towers Are on the Rise**\
+`Croquembouche, the French pastry popularized in the early 19th century, is suddenly back on the banquet table.`\
+https://nytimes.com/2023/05/04/t-magazine/croquembouche-pastry-dessert-baking.html?searchResultPosition=7
 
-**Your Thursday Briefing**\
-`Accusations of an assassination attempt on Vladimir Putin.`\
-https://nytimes.com/2023/05/04/briefing/explosions-kremlin-serbia-school-shooting.html?searchResultPosition=8
+**One Family Has Spearheaded Montana’s Unflinching Conservatism**\
+`Three members of the Regier family now hold leadership positions in the Montana Legislature as the state’s conservative shift has left even some Republicans wary.`\
+https://nytimes.com/2023/05/04/us/montana-conservatism-zephyr-regier.html?searchResultPosition=8
 
-**It’s an Election Day in Much of the U.K. Here’s What’s at Stake.**\
-`Municipalities across England will face voters, including in areas that could sway the next national election. Here’s a guide to the ballots and how to interpret them.`\
-https://nytimes.com/2023/05/04/world/europe/uk-local-elections.html?searchResultPosition=9
+**How These Budding Entrepreneurs Won $20,000 for Their Start-Ups**\
+`A new competition encourages New Yorkers who live in public housing to pursue their own businesses.`\
+https://nytimes.com/2023/05/04/nyregion/nyc-boss-up.html?searchResultPosition=9
 
-**Even China Isn’t Convinced It Can Replace the U.S.**\
-`Treating China as an existential threat to America may lead to a self-fulfilling prophecy.`\
-https://nytimes.com/2023/05/04/opinion/china-us-world-order.html?searchResultPosition=10
+**Turning ‘Ashes and Sand’ Into Art**\
+`A design exhibition in an Austrian castle celebrates the possibilities of glass.`\
+https://nytimes.com/2023/05/04/arts/design/turning-ashes-and-sand-into-art.html?searchResultPosition=10
 
