@@ -30,8 +30,8 @@ https://nytimes.com/2023/05/04/health/long-telomeres-age-longevity.html?searchRe
 `As international support for an independent tribunal appears to be growing, the Ukrainian leader called for “true justice” for crimes in the war.`\
 https://nytimes.com/2023/05/04/world/europe/zelensky-ukraine-hague-netherlands.html?searchResultPosition=8
 
-**On the Eve of the Derby, Four Horse Deaths Renew Safety Concerns**\
-`At Churchill Downs, the site of Saturday’s Kentucky Derby, two horses were euthanized after injuries and two died while training. The track called the deaths “unusual” and “unacceptable.”`\
+**As the Derby Nears, Four Horse Deaths Renew Safety Concerns**\
+`At Churchill Downs, the site of Saturday’s Kentucky Derby, two horses died suddenly for unknown reasons and two died after sustaining injuries. The track called the deaths “unusual” and “unacceptable.”`\
 https://nytimes.com/2023/05/04/sports/horse-racing/kentucky-derby-horse-racing-deaths.html?searchResultPosition=9
 
 **European Central Bank Raises Rates Again, but Only a Quarter Point**\
