@@ -6,7 +6,7 @@ https://nytimes.com/2023/05/04/learning/advice-from-teenagers-for-getting-over-r
 `No group claimed responsibility for the attacks, near the Afghan border. The authorities said they believed there was a sectarian dimension to the violence.`\
 https://nytimes.com/2023/05/04/world/asia/pakistan-school-shootings.html?searchResultPosition=2
 
-**Justice Thomas’s Friend Defends Tuition Payments by Harlan Crow**\
+**Justice Thomas’s Friend Defends Failure to Disclose Tuition Payments by Harlan Crow**\
 `The revelation by ProPublica on Thursday added to the lavish gifts and travel from the Texas billionaire that Justice Clarence Thomas has not disclosed.`\
 https://nytimes.com/2023/05/04/us/politics/clarence-thomas-harlan-crow-tuition.html?searchResultPosition=3
 
