@@ -23,7 +23,7 @@ https://nytimes.com/2023/05/04/crosswords/variety-acrostic.html?searchResultPosi
 https://nytimes.com/2023/05/04/crosswords/daily-puzzle-2023-05-05.html?searchResultPosition=6
 
 **8 Dead in Shooting in Serbia, Day After School Massacre That Killed 9**\
-`At least 10 additional people were wounded in the latest shooting, about 30 miles outside of Serbia’s capital, Belgrade.`\
+`At least 13 additional people were wounded in the latest shooting, about 30 miles outside of Serbia’s capital, Belgrade.`\
 https://nytimes.com/2023/05/04/world/europe/serbia-shooting.html?searchResultPosition=7
 
 **Biden to Name Air Force Chief to Top Military Post, Officials Say**\
