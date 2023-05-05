@@ -2,7 +2,7 @@
 `Gold lace, gold orbs, gold spoons: The coronation of King Charles III may inspire you to learn more about the lavish history of British coronations, or about the monarchy itself.`\
 https://nytimes.com/2023/05/05/books/read-about-british-monarchs-and-coronations.html?searchResultPosition=1
 
-**The Wagner chief threatens to pull his soldiers out of Bakhmut.**\
+**Russian Mercenary Leader Threatens to Pull Out of Bakhmut Next Week**\
 `Yevgeny V. Prigozhin, the Wagner group’s founder, named top Russian defense officials as responsible for the deaths of his fighters in the embattled eastern Ukrainian city.`\
 https://nytimes.com/2023/05/05/world/europe/wagner-bakhmut-russia-ukraine-prigozhin.html?searchResultPosition=2
 
