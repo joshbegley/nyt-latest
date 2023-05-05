@@ -11,7 +11,7 @@ https://nytimes.com/2023/05/05/style/love-letter-newsletter-a-frozen-brick-of-bl
 https://nytimes.com/2023/05/05/opinion/carroll-trump-trial.html?searchResultPosition=6
 
 **Jan. 6 Rioter Gets 14 Years for Police Attacks, Longest Sentence Yet in Inquiry**\
-`A federal judge said he imposed the lengthy term because Peter Schwartz had an extensive criminal history and had shown little remorse for his actions.`\
+`The sentence was delivered the same day prosecutors recommended 25 years in prison for Stewart Rhodes, the leader of the Oath Keepers militia, who was convicted of seditious conspiracy in the attack.`\
 https://nytimes.com/2023/05/05/us/politics/peter-schwartz-jan-6-rioter-sentenced.html?searchResultPosition=7
 
 **N.Y. Congestion Pricing Plan Moves a Step Closer to Reality**\
