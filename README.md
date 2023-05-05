@@ -1,40 +1,40 @@
+**How to Respond to a Stranger in Mental Distress**\
+`Experts explain what to do if you feel threatened and how to offer help if the situation calls for it.`\
+https://nytimes.com/2023/05/05/well/live/mental-illness-distress-behavior.html?searchResultPosition=1
+
+**Tucker Carlson Wants to Return to TV Before 2025. Will Fox Let Him?**\
+`In conversations with his associates, Mr. Carlson has expressed interest in getting back to work before the agreement expires.`\
+https://nytimes.com/2023/05/05/business/media/tucker-carlson-wants-to-return-to-tv-before-2025-will-fox-let-him.html?searchResultPosition=2
+
 **A Police Funeral, 33 Years Waiting, for a Detective Shot in 1990**\
 `Detective Troy Patterson, mortally wounded during a robbery in Brooklyn, remained in a coma for more than three decades before dying last week.`\
-https://nytimes.com/2023/05/05/nyregion/troy-patterson-nypd-funeral.html?searchResultPosition=1
+https://nytimes.com/2023/05/05/nyregion/troy-patterson-nypd-funeral.html?searchResultPosition=3
 
 **Warring Parties in Sudan to Hold Talks in Saudi Arabia**\
 `American officials say they hope representatives of two rival Sudanese generals will agree to an enduring cease-fire and to allowing humanitarian aid into the country.`\
-https://nytimes.com/2023/05/05/us/politics/sudan-generals-peace-talks.html?searchResultPosition=2
+https://nytimes.com/2023/05/05/us/politics/sudan-generals-peace-talks.html?searchResultPosition=4
 
 **Home Insurance Premiums Rise as Americans Flock to Weather-Worn States**\
 `Since 2015, the average homeowner has seen the bill for their property coverage grow by roughly 21 percent.`\
-https://nytimes.com/2023/05/05/realestate/home-insurance-climate-change.html?searchResultPosition=3
+https://nytimes.com/2023/05/05/realestate/home-insurance-climate-change.html?searchResultPosition=5
 
 **Saudi-Financed LIV Golf Expands Its Reach Into Washington**\
 `A new deal gives the LIV Golf series ties to both former President Donald J. Trump and an adviser to Gov. Ron DeSantis.`\
-https://nytimes.com/2023/05/05/us/politics/liv-golf-saudi-arabia-trump-desantis.html?searchResultPosition=4
+https://nytimes.com/2023/05/05/us/politics/liv-golf-saudi-arabia-trump-desantis.html?searchResultPosition=6
 
 **DeSantis Signs Into Law Latest Wrinkle in Disney Feud**\
 `The bill would allow approved development agreements for Walt Disney World to be voided. The company has already sued the governor over the issue.`\
-https://nytimes.com/2023/05/05/business/disney-ron-desantis.html?searchResultPosition=5
+https://nytimes.com/2023/05/05/business/disney-ron-desantis.html?searchResultPosition=7
 
 **What We Know About Jordan Neely’s Killing**\
 `On May 1, a 24-year-old man named Daniel Penny choked Jordan Neely, 30, to death on a New York City subway train. Mr. Penny has not been charged.`\
-https://nytimes.com/2023/05/05/nyregion/jordan-neely-chokehold-death-subway.html?searchResultPosition=6
+https://nytimes.com/2023/05/05/nyregion/jordan-neely-chokehold-death-subway.html?searchResultPosition=8
 
 **What to Know About the Case of Richard Glossip, Death Row Prisoner**\
 `The U.S. Supreme Court has granted a stay of execution after Oklahoma’s attorney general urged that Mr. Glossip not be put to death, citing problems with his murder trial.`\
-https://nytimes.com/2023/05/05/us/oklahoma-richard-glossip-execution.html?searchResultPosition=7
+https://nytimes.com/2023/05/05/us/oklahoma-richard-glossip-execution.html?searchResultPosition=9
 
 **Amid Blasts and Leadership Rifts, Growing Russian Unease Over War**\
 `With a Ukrainian offensive looming, explosions in Crimea and inside Russia have rattled Moscow, sparking bureaucratic infighting among military commanders.`\
-https://nytimes.com/2023/05/05/world/europe/russia-ukraine-war.html?searchResultPosition=8
-
-**Supreme Court Stays Execution of Death Row Inmate Richard Glossip**\
-`The court acted after Oklahoma’s attorney general joined Mr. Glossip in urging it to halt the execution, which had been scheduled for May 18.`\
-https://nytimes.com/2023/05/05/us/supreme-court-richard-glossip-execution.html?searchResultPosition=9
-
-**The U.S. Job Market Remains Unexpectedly Strong**\
-`Also, the Wagner chief threatens to withdraw fighters. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2023/05/05/briefing/us-job-market-report-king-charles-coronation.html?searchResultPosition=10
+https://nytimes.com/2023/05/05/world/europe/russia-ukraine-war.html?searchResultPosition=10
 
