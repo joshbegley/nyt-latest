@@ -8,7 +8,7 @@ https://nytimes.com/2023/05/05/well/live/mental-illness-distress-behavior.html?s
 
 **Tucker Carlson Wants to Return to TV Before 2025. Will Fox Let Him?**\
 `In conversations with his associates, Mr. Carlson has expressed interest in getting back to work before the agreement expires.`\
-https://nytimes.com/2023/05/05/business/media/tucker-carlson-wants-to-return-to-tv-before-2025-will-fox-let-him.html?searchResultPosition=3
+https://nytimes.com/2023/05/05/business/media/tucker-carlson-tv-fox-news.html?searchResultPosition=3
 
 **A Police Funeral, 33 Years Waiting, for a Detective Shot in 1990**\
 `Detective Troy Patterson, mortally wounded during a robbery in Brooklyn, remained in a coma for more than three decades before dying last week.`\
