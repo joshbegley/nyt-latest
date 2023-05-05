@@ -18,7 +18,7 @@ https://nytimes.com/2023/05/05/arts/dance/review-city-ballet-christopher-wheeldo
 `For Álvarez, 2022 was something of a down year — though it certainly wouldn’t be seen that way by a lesser star. A fight Saturday in Guadalajara, his hometown, sets up a bounceback.`\
 https://nytimes.com/2023/05/05/sports/canelo-alvarez-fight.html?searchResultPosition=5
 
-**Bruce McCall, 87, Dies; Satirical Illustrator Conjured a ‘Retrofuture’**\
+**Bruce McCall, Satirical Artist Who Conjured a ‘Retrofuture,’ Dies at 87**\
 `On New Yorker covers and elsewhere, he lampooned the rich by forecasting a plutocratic fantasyland — or, as he put it, “looking back to see how yesterday viewed tomorrow.”`\
 https://nytimes.com/2023/05/05/arts/bruce-mccall-illustrator-dead.html?searchResultPosition=6
 
