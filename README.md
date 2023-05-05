@@ -22,19 +22,19 @@ https://nytimes.com/2023/05/05/sports/canelo-alvarez-fight.html?searchResultPosi
 `On New Yorker covers and elsewhere, he lampooned the rich by forecasting a plutocratic fantasyland — or, as he put it, “looking back to see how yesterday viewed tomorrow.”`\
 https://nytimes.com/2023/05/05/arts/bruce-mccall-illustrator-dead.html?searchResultPosition=6
 
+**The first lady, Jill Biden, greets children and veterans in London.**\
+`Dr. Biden attended several events on Friday with Akshata Murty, the wife of Britain’s prime minister, Rishi Sunak.`\
+https://nytimes.com/2023/05/05/world/europe/jill-biden-uk-king-charles-coronation.html?searchResultPosition=7
+
 **‘Yellowstone,’ TV’s Hit Western, Will End Its Run After This Season**\
 `The fifth season of the series, which stars Kevin Costner, will be its last, Paramount said. But a new sequel is in the works.`\
-https://nytimes.com/2023/05/05/arts/television/yellowstone-final-season.html?searchResultPosition=7
+https://nytimes.com/2023/05/05/arts/television/yellowstone-final-season.html?searchResultPosition=8
 
 **Roy Saltman, Who Warned About Hanging Chads, Dies at 90**\
 `He foresaw the problems with punch-card ballots that benumbed the nation after Florida’s chaotic vote in the 2000 presidential election. His warnings went largely unheeded.`\
-https://nytimes.com/2023/05/05/us/elections/roy-saltman-dead.html?searchResultPosition=8
+https://nytimes.com/2023/05/05/us/elections/roy-saltman-dead.html?searchResultPosition=9
 
 **Review: Dancers Fighting for Their Place in a Dystopian World**\
 `The choreographer Miguel Gutierrez presents the New York premiere of “I as another,” a duet with Laila Franklin, at Baryshnikov Arts Center.`\
-https://nytimes.com/2023/05/05/arts/dance/review-miguel-gutierrez-i-as-another-bac.html?searchResultPosition=9
-
-**Did the Rock & Roll Hall of Fame (Gasp) Get It Right?**\
-`Hear songs from the class of 2023’s seven inductees, including Sheryl Crow, Missy Elliott and Willie Nelson.`\
-https://nytimes.com/2023/05/05/arts/music/amplifier-newsletter-rock-hall-inductees.html?searchResultPosition=10
+https://nytimes.com/2023/05/05/arts/dance/review-miguel-gutierrez-i-as-another-bac.html?searchResultPosition=10
 
