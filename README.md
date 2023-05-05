@@ -4,7 +4,7 @@ https://nytimes.com/2023/05/05/books/read-about-british-monarchs-and-coronations
 
 **The Wagner chief threatens to pull his soldiers out of Bakhmut.**\
 `Yevgeny V. Prigozhin, the Wagner group’s founder, named top Russian defense officials as responsible for the deaths of his fighters in the embattled eastern Ukrainian city.`\
-https://nytimes.com/2023/05/05/world/europe/wagner-bakhmut-russia-ukraine.html?searchResultPosition=2
+https://nytimes.com/2023/05/05/world/europe/wagner-bakhmut-russia-ukraine-prigozhin.html?searchResultPosition=2
 
 **How Streaming Hurt Hollywood Writers**\
 `A writers’ strike has brought much of production to a standstill.`\
