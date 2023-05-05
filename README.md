@@ -14,7 +14,7 @@ https://nytimes.com/2023/05/05/health/covid-who-emergency-end.html?searchResultP
 `The site, discovered by marine archaeologists about 70 miles from Key West, Fla., once held a quarantine hospital and cemetery for those stationed at Fort Jefferson in the Dry Tortugas National Park.`\
 https://nytimes.com/2023/05/05/us/underwater-cemetery-hospital-dry-tortugas-florida.html?searchResultPosition=4
 
-**Wages climb rapidly, defying the Fed’s hopes for a slowdown.**\
+**Wages Climb Rapidly, Defying Fed’s Hopes for a Slowdown**\
 `Pay gains picked up last month, the opposite of what Federal Reserve officials are hoping for as they try to cool inflation.`\
 https://nytimes.com/2023/05/05/business/economy/wages-climb-rapidly-defying-the-feds-hopes-for-a-slowdown.html?searchResultPosition=5
 
