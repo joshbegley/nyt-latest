@@ -1,40 +1,40 @@
-**Early Results Show Tory Losses in England’s Local Elections**\
-`The Labour Party scored several significant victories in Conservative strongholds in votes viewed as a test of Prime Minister Rishi Sunak’s popularity.`\
-https://nytimes.com/2023/05/05/world/europe/england-election-results.html?searchResultPosition=1
+**The U.S. Has a Legal Responsibility to Those Seeking Refuge**\
+`America has legal obligations to provide protection to people who qualify as refugees under international law.`\
+https://nytimes.com/2023/05/05/opinion/title-42-immigration-usa.html?searchResultPosition=1
 
-**The Trees That Survived Hiroshima**\
-`Summary Tktk`\
-https://nytimes.com/2023/05/05/opinion/hiroshima-japan-trees.html?searchResultPosition=2
+**I Asked ChatGPT to Be My Stylist**\
+`It warned me I might “distract” my job interviewer. Is this thing from 2023 or 1953?`\
+https://nytimes.com/2023/05/05/style/chatgpt-ai-stylist-fashion.html?searchResultPosition=2
 
-**Australia vs. Warner Bros.?**\
-`The newest A.F.L. team will be in Tasmania. Can the club can be named after the island’s resident marsupial, the Tasmanian devil?`\
-https://nytimes.com/2023/05/05/world/australia/warner-bros-tasmania-australia.html?searchResultPosition=3
+**Political Stagnation Is Not Our Only Option**\
+`There’s nothing that says we can’t write new rules.`\
+https://nytimes.com/2023/05/05/opinion/constitutional-amendments-supreme-court.html?searchResultPosition=3
 
-**Diana’s Necklace, With Its 178 Diamonds, Is Up for Sale**\
-`The month after King Charles is crowned, a piece of jewelry that his first wife designed will be on the auction block.`\
-https://nytimes.com/2023/05/05/nyregion/diana-necklace-auction.html?searchResultPosition=4
+**‘Everybody Is Welcome Here.’**\
+`Kaig Lightner founded the Portland Community Football Club to give local youth an inexpensive chance to play. When he came out as transgender, they gave him a place to belong.`\
+https://nytimes.com/2023/05/05/sports/soccer/portland-youth-soccer-transgender-coach.html?searchResultPosition=4
 
-**900,000 New Yorkers Lost at Least 3 Loved Ones to Covid**\
-`Nearly one in four New Yorkers lost at least one person close to them, according to a newly released survey. The toll was even higher among people of color.`\
-https://nytimes.com/2023/05/05/nyregion/new-york-covid-losses.html?searchResultPosition=5
+**What Record Office Vacancies Mean for New York City’s Economy**\
+`Companies continue to downsize during the pandemic, creating a major challenge for the city over what to do with so many empty buildings.`\
+https://nytimes.com/2023/05/05/nyregion/nyc-office-space-vacancy-rates.html?searchResultPosition=5
 
-**Why the Horse Racing Beat Goes On**\
-`Joe Drape, The Times’s “turf writer,” is just as entranced by horse racing as his predecessors were.`\
-https://nytimes.com/2023/05/05/insider/why-the-horse-racing-beat-goes-on.html?searchResultPosition=6
+**Private Jet Travel Is Booming. And Shameful. And We’re All Paying For It.**\
+`At least one Patriotic Millionaire says he ‘just can’t continue to do it.’`\
+https://nytimes.com/2023/05/05/opinion/private-jet-travel-environment.html?searchResultPosition=6
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/05/05/crosswords/spelling-bee-forum.html?searchResultPosition=7
+**How to Spot a Wellness Scam**\
+`An expert shares tips for assessing health information.`\
+https://nytimes.com/2023/05/05/well/live/health-wellness-scam.html?searchResultPosition=7
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/05/05/crosswords/wordle-review-answer-685.html?searchResultPosition=8
+**Why E. Jean Carroll Will Always Tell You She Is ‘Fine, Fabulous’**\
+`Decades after the sexual revolution and before #MeToo, the writer tucked away her pain and projected a carefree attitude. Now she’s accused of having too much fun.`\
+https://nytimes.com/2023/05/05/nyregion/carroll-trump-rape-trial.html?searchResultPosition=8
 
-**Coins and People**\
-`What do you think this image is communicating?`\
-https://nytimes.com/2023/05/05/learning/coins-and-people.html?searchResultPosition=9
+**Wonks ‘Socialize’ Differently**\
+`The term has a special meaning for American central bankers, one that’s nearly the opposite of what you might think.`\
+https://nytimes.com/interactive/2023/05/05/business/what-is-socializing-fedspeak.html?searchResultPosition=9
 
-**Word of the Day: prudence**\
-`This word has appeared in 52 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/05/05/learning/word-of-the-day-prudence.html?searchResultPosition=10
+**All Hail the King (of the Termites)**\
+`The bugs are unique among colony-forming insects in that their queens cannot rule without a king.`\
+https://nytimes.com/2023/05/05/science/termite-kings.html?searchResultPosition=10
 
