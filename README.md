@@ -22,8 +22,8 @@ https://nytimes.com/2023/05/06/world/europe/charles-coronation-antimonarchists.h
 `Processions through central London will bookend a coronation service in Westminster Abbey. King Charles III and other members of the royal family will also make an appearance on the balcony of Buckingham Palace.`\
 https://nytimes.com/2023/05/06/world/europe/uk-coronation-schedule-timings.html?searchResultPosition=6
 
-**More than 13,000 Are Evacuated as Wildfires Burn in Western Canada**\
-`More than 100 wildfires were burning across Alberta on Friday night. Conditions conducive to fires were also expected in the U.S. Southwest over the weekend.`\
+**More Than 13,000 Are Evacuated as Wildfires Burn in Western Canada**\
+`Over 100 wildfires were burning across Alberta on Saturday morning. Conditions conducive to fires were also expected in the U.S. Southwest over the weekend.`\
 https://nytimes.com/2023/05/06/world/canada/wildfire-western-canada-evacuation.html?searchResultPosition=7
 
 **Your Coronation Briefing**\
