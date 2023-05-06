@@ -23,7 +23,7 @@ https://nytimes.com/2023/05/06/opinion/are-anti-trump-republicans-doomed-to-repe
 https://nytimes.com/2023/05/06/opinion/house-of-lords-boris-johnson-britain.html?searchResultPosition=6
 
 **Car Bombing Injures Prominent Russian Nationalist, State Media Reports**\
-`Zakhar Prilepin, who was elected in 2021 to Russia’s Parliament, has long advocated an imperialist foreign policy by Moscow.`\
+`Zakhar Prilepin, who fought in eastern Ukraine in support of a separatist rebellion, has long advocated an imperialist foreign policy by Moscow.`\
 https://nytimes.com/2023/05/06/world/europe/russia-prilepin-bombing.html?searchResultPosition=7
 
 **The Coronation of King Charles III, in Pictures**\
