@@ -1,5 +1,5 @@
 **Forte, the Derby Favorite, Is Scratched Hours Before the Race**\
-`The colt was taken out of the field by order of a veterinarian at the end of a difficult week for the Derby and the sport.`\
+`The colt was taken out of the field by order of veterinarians at the end of a difficult week for the Derby and the sport.`\
 https://nytimes.com/2023/05/06/sports/horse-racing/kentucky-derby-forte-scratched-horses.html?searchResultPosition=1
 
 **In Australia, He Was a ‘Great Father.’ Secretly, He Was an Escaped Convict.**\
