@@ -34,7 +34,7 @@ https://nytimes.com/2023/05/06/opinion/supremely-arrogant.html?searchResultPosit
 `High school students write about school shootings, bias against trans people, religion, Israel and more.`\
 https://nytimes.com/2023/05/06/opinion/letters/student-letters-competition.html?searchResultPosition=9
 
-**The First Scandal King Charles Could Face Is a Gift From Boris Johnson**\
-`Appointing people to the House of Lords can be complicated.`\
-https://nytimes.com/2023/05/06/opinion/house-of-lords-boris-johnson-britain.html?searchResultPosition=10
+**It’s Beginning to Feel a Lot Like 2016 Again**\
+`Things are different, but maybe not enough.`\
+https://nytimes.com/2023/05/06/opinion/are-anti-trump-republicans-doomed-to-repeat-2016.html?searchResultPosition=10
 
