@@ -11,7 +11,7 @@ https://nytimes.com/2023/05/06/arts/dance/coronation-formal-choreography.html?se
 https://nytimes.com/2023/05/06/world/as-king-charles-inherits-untold-riches-and-passes-control-of-his-own-vast-holdings-to-william.html?searchResultPosition=3
 
 **Even with a heavy crown, Camilla seems lighter in her new role.**\
-`The coronation was not just the moment Charles finally ascended to a role waited for his whole life, but also the final act in the long rehabilitation of the former Camilla Parker Bowles.`\
+`The coronation was not just the moment Charles finally ascended to a role in wait for his whole life, but also the final act in the long rehabilitation of the former Camilla Parker Bowles.`\
 https://nytimes.com/2023/05/06/world/europe/camilla-queen-uk-charles.html?searchResultPosition=4
 
 **The London police, with new powers against ‘serious disruption,’ arrest dozens of protesters.**\
