@@ -7,7 +7,7 @@ https://nytimes.com/2023/05/06/crosswords/daily-puzzle-2023-05-07.html?searchRes
 https://nytimes.com/2023/05/06/arts/music/don-sebesky-dead.html?searchResultPosition=2
 
 **Police Respond to Reports of Gunfire at Texas Outlet Mall**\
-`The police confirmed they were responding to the Allen Premium Outlets in Allen, Texas. There were no immediate reports of injuries.`\
+`The police confirmed they were responding to the Allen Premium Outlets in Allen, Texas, and that there were “possibly” some people wounded.`\
 https://nytimes.com/2023/05/06/us/allen-mall-texas-gunfire.html?searchResultPosition=3
 
 **Here’s something most racing fans agree on: 50 years later, Secretariat is still the GOAT.**\
