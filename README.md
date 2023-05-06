@@ -1,40 +1,40 @@
+**War of the Hats: Coronation vs. Kentucky Derby**\
+`Can you tell where each of these hats appeared? Take our quiz.`\
+https://nytimes.com/2023/05/06/style/kentucky-derby-hat-coronation.html?searchResultPosition=1
+
 **California Panel Calls for Billions in Reparations for Black Residents**\
 `A task force recommended that legislators enact a sweeping program to compensate for the economic harm from racism in the state’s history.`\
-https://nytimes.com/2023/05/06/business/economy/california-reparations.html?searchResultPosition=1
+https://nytimes.com/2023/05/06/business/economy/california-reparations.html?searchResultPosition=2
 
 **Mage Captures the Derby After an Agonizing Week at Churchill Downs**\
 `Mage, with Javier Castellano aboard, won by a length, bringing joy and relief to fans after a dispiriting run-up to the race in which seven horses died.`\
-https://nytimes.com/2023/05/06/sports/horse-racing/mage-kentucky-derby-winner.html?searchResultPosition=2
+https://nytimes.com/2023/05/06/sports/horse-racing/mage-kentucky-derby-winner.html?searchResultPosition=3
 
 **Shooting at Texas Outlet Mall Leaves Multiple People Injured**\
 `Shoppers were evacuated from the mall after the shooting.`\
-https://nytimes.com/video/us/100000008895221/texas-mall-shooting.html?searchResultPosition=3
+https://nytimes.com/video/us/100000008895221/texas-mall-shooting.html?searchResultPosition=4
 
 **Menahem Pressler, Pianist Who Co-Founded the Beaux Arts Trio, Dies at 99**\
 `Mr. Pressler, who fled Nazi Germany as a youth, was the anchor of a group that, with various lineups, performed all over the world for 53 years.`\
-https://nytimes.com/2023/05/06/arts/music/menahem-pressler-dead.html?searchResultPosition=4
+https://nytimes.com/2023/05/06/arts/music/menahem-pressler-dead.html?searchResultPosition=5
 
 **Sea Change**\
 `Will Nediger’s Sunday puzzle evolves as it’s solved.`\
-https://nytimes.com/2023/05/06/crosswords/daily-puzzle-2023-05-07.html?searchResultPosition=5
+https://nytimes.com/2023/05/06/crosswords/daily-puzzle-2023-05-07.html?searchResultPosition=6
 
 **Don Sebesky, Arranger Who Helped Broaden Jazz’s Audience, Dies at 85**\
 `He won Tonys for his orchestrations and Grammys for his compositions and arrangements. But he was best known for his genre-straddling work at CTI Records.`\
-https://nytimes.com/2023/05/06/arts/music/don-sebesky-dead.html?searchResultPosition=6
+https://nytimes.com/2023/05/06/arts/music/don-sebesky-dead.html?searchResultPosition=7
 
 **At Least 9 Injured in Shooting at Texas Outlet Mall**\
 `There were fatalities, the authorities said, but they did not offer specifics after gunfire erupted at the Allen Premium Outlets in Allen, Texas, on Saturday. Officials said the gunman was dead.`\
-https://nytimes.com/2023/05/06/us/allen-mall-texas-shooting.html?searchResultPosition=7
+https://nytimes.com/2023/05/06/us/allen-mall-texas-shooting.html?searchResultPosition=8
 
 **Here’s something most racing fans agree on: 50 years later, Secretariat is still the GOAT.**\
 `A record-setting Triple Crown run was such an achievement that it helped the horse known as Big Red serve as “a rallying cry for America.”`\
-https://nytimes.com/2023/05/06/sports/horse-racing/kentucky-derby-secretariat-fifty.html?searchResultPosition=8
+https://nytimes.com/2023/05/06/sports/horse-racing/kentucky-derby-secretariat-fifty.html?searchResultPosition=9
 
 **Newton N. Minow, F.C.C. Chief Who Deemed TV a ‘Vast Wasteland,’ Dies at 97**\
 `His stunning declaration caused an instant sensation when he made it in 1961 and ignited a national debate over Americans’ viewing habits.`\
-https://nytimes.com/2023/05/06/business/media/newton-n-minow-dead.html?searchResultPosition=9
-
-**Charles Is Crowned King in Ancient Ceremony With Modern Twists**\
-`The coronation, the first since Queen Elizabeth II’s in 1953, was a royal spectacle of the kind that only Britain still stages.`\
-https://nytimes.com/2023/05/06/world/europe/charles-king-coronation.html?searchResultPosition=10
+https://nytimes.com/2023/05/06/business/media/newton-n-minow-dead.html?searchResultPosition=10
 
