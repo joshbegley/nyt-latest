@@ -34,7 +34,7 @@ https://nytimes.com/2023/05/06/opinion/letters/student-letters-competition.html?
 `Appointing people to the House of Lords can be complicated.`\
 https://nytimes.com/2023/05/06/opinion/house-of-lords-boris-johnson-britain.html?searchResultPosition=9
 
-**Women Have Always Chosen Not to Have Kids. Get Used to It.**\
+**Why Women Not Having Kids Became a Panic**\
 `History is full of women without children`\
 https://nytimes.com/2023/05/06/opinion/women-without-children-history.html?searchResultPosition=10
 
