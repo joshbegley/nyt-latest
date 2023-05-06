@@ -16,7 +16,7 @@ https://nytimes.com/2023/05/06/opinion/columnists/homeless-jordan-neely.html?sea
 
 **Berkshire Reports Big Jump in Earnings**\
 `Gains in its insurance business offset lower revenue from its real estate and consumer products companies. The results came out at the start of the conglomerate’s 59th annual meeting.`\
-https://nytimes.com/2023/05/06/business/berkshire-reports-big-jump-in-earnings.html?searchResultPosition=5
+https://nytimes.com/2023/05/06/business/berkshire-hathaway-earnings.html?searchResultPosition=5
 
 **‘We Can’t Believe That’s Happening Here’: Serbia Reflects After Shootings**\
 `Back-to-back massacres have forced the country, still in mourning, to grapple with its complicated and long gun tradition.`\
