@@ -1,40 +1,40 @@
-**Canadians greet the coronation with a muted response.**\
-`The king’s representative in Canada, where he is head of state, recently appealed to people in the country to “give him a chance.”`\
-https://nytimes.com/2023/05/06/world/canada/canada-coronation-charles-uk.html?searchResultPosition=1
+**Asked to Delete References to Racism From Her Book, an Author Refused**\
+`The case, involving Scholastic, led to an outcry among authors and became an example of how the culture wars behind a surge in book banning in schools has reached publishers.`\
+https://nytimes.com/2023/05/06/books/scholastic-book-racism-maggie-tokuda-hall.html?searchResultPosition=1
 
-**DeSantis to Visit Wisconsin, a 2024 Battleground, as He Circles Trump**\
-`The Florida governor, who has slipped in polls as his expected entrance to the presidential race nears, is moving beyond early nominating states like Iowa and New Hampshire.`\
-https://nytimes.com/2023/05/06/us/politics/desantis-wisconsin-2024-president.html?searchResultPosition=2
+**‘Like He Was Going to Live Forever’: Making Jerome Robbins’s Last Ballet**\
+`His exuberant “Brandenburg,” which returns to City Ballet this month, was made near the end of his life, when he was physically and emotionally frail.`\
+https://nytimes.com/2023/05/06/arts/dance/brandenburg-city-ballet-jerome-robbins.html?searchResultPosition=2
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/05/06/crosswords/spelling-bee-forum.html?searchResultPosition=3
+**Hearing Aids Are Changing. Their Users Are, Too.**\
+`As more young people risk hearing loss, over-the-counter hearing aids are providing new options, but also confusing choices.`\
+https://nytimes.com/2023/05/06/us/otc-hearing-aids-young-users.html?searchResultPosition=3
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/05/06/crosswords/wordle-review-answer-686.html?searchResultPosition=4
+**Backup Power: A Growing Need, if You Can Afford It**\
+`Extreme weather linked to climate change is causing more blackouts. But generators and batteries are still out of reach of many.`\
+https://nytimes.com/2023/05/06/business/energy-environment/backup-power-generators-climate-change.html?searchResultPosition=4
 
-**Share Your Thoughts on the Crowning of King Charles III**\
-`The New York Times invites readers to share their comments and observations about the coronation of Britain’s King Charles III.`\
-https://nytimes.com/2023/05/06/world/europe/share-your-thoughts-on-the-crowning-of-king-charles-iii.html?searchResultPosition=5
+**Unwanted Epidurals, Untreated Pain: Black Women Tell Their Birth Stories**\
+`Regardless of income or education, Black mothers have worse birth outcomes.`\
+https://nytimes.com/2023/05/06/upshot/black-births-maternal-mortality.html?searchResultPosition=5
 
-**Anti-monarchists see an opportunity to prove their point in the coronation events.**\
-`Supporters of an elected head of state for Britain see the coronation as an opportunity to highlight the absurdity of having a royal family in the 21st century.`\
-https://nytimes.com/2023/05/06/world/europe/charles-coronation-antimonarchists.html?searchResultPosition=6
+**Before Dylan, There Was Connie Converse. Then She Vanished.**\
+`There’s a resurgence of interest in the pioneering singer-songwriter who disappeared when she was 50.`\
+https://nytimes.com/2023/05/06/nyregion/connie-converse-nyc.html?searchResultPosition=6
 
-**What Will Happen During the Coronation**\
-`Processions through central London will bookend a coronation service in Westminster Abbey. King Charles III and other members of the royal family will also make an appearance on the balcony of Buckingham Palace.`\
-https://nytimes.com/2023/05/06/world/europe/uk-coronation-schedule-timings.html?searchResultPosition=7
+**6 Great Y.A. Fantasy Novels**\
+`Tracy Deonn, the Coretta Scott King-John Steptoe Award-winning author of “Legendborn” and “Bloodmarked,” recommends a few of her favorite young adult fantasy titles.`\
+https://nytimes.com/2023/05/06/books/review/young-adult-fantasy-novel.html?searchResultPosition=7
 
-**More Than 13,000 Are Evacuated as Wildfires Burn in Western Canada**\
-`Over 100 wildfires were burning across Alberta on Saturday morning. Conditions conducive to fires were also expected in the U.S. Southwest over the weekend.`\
-https://nytimes.com/2023/05/06/world/canada/wildfire-western-canada-evacuation.html?searchResultPosition=8
+**Lewis Capaldi Will Break Your Heart. (But Don’t Take Him Too Seriously.)**\
+`The joke-cracking Scottish musician’s melodramatic ballad “Someone You Loved” is a blockbuster. Figuring out his next moves became more complicated than he’d anticipated.`\
+https://nytimes.com/2023/05/06/arts/music/lewis-capaldi-broken-by-desire-to-be-heavenly-sent.html?searchResultPosition=8
 
-**Your Coronation Briefing**\
-`A special edition on King Charles III.`\
-https://nytimes.com/2023/05/06/briefing/king-charles-coronation.html?searchResultPosition=9
+**Erika Kemp Wants to See More Runners Who Look Like Her**\
+`Kemp, who had a solid marathon debut in Boston during a race with racial controversy on the sidelines, did not run cross-country until college. “There wasn’t anyone that looked like me.”`\
+https://nytimes.com/2023/05/06/sports/erika-kemp-marathon-boston.html?searchResultPosition=9
 
-**Corrections: May 6, 2023**\
-`Corrections that appeared in print on Saturday, May 6, 2023.`\
-https://nytimes.com/2023/05/06/pageoneplus/corrections-may-6-2023.html?searchResultPosition=10
+**A Senior Tradition You Might Not Know About**\
+`Senior cords, which feature hand-drawn details, first appeared a on campuses in Indiana. Now there are high-fashion takes.`\
+https://nytimes.com/2023/05/06/style/bode-aujla-senior-cords-purdue-university.html?searchResultPosition=10
 
