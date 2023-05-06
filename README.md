@@ -2,7 +2,7 @@
 `On Saturday, Charles finally became the focal figure of the long-running royal TV drama — if only for a day.`\
 https://nytimes.com/2023/05/06/arts/television/charles-iii-coronation-tv.html?searchResultPosition=1
 
-**Were Will and Kate Late to the Coronation?**\
+**Were Will and Kate Late to the Coronation? The News Media Wonders.**\
 `The Prince and Princess of Wales arrived at Westminster Abbey after King Charles III, prompting speculation among the many journalists covering the ceremony.`\
 https://nytimes.com/2023/05/06/world/europe/prince-william-kate-coronation-late.html?searchResultPosition=2
 
