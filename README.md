@@ -1,40 +1,40 @@
+**Few Are Addressing One of Social Media’s Greatest Perils**\
+`Fear-inciting speech, which isn’t banned by the big tech platforms, is far more dangerous than hate speech.`\
+https://nytimes.com/2023/05/06/opinion/fear-speech-social-media.html?searchResultPosition=1
+
+**Supremely Arrogant**\
+`Are these men interpreting the law or settling scores?`\
+https://nytimes.com/2023/05/06/opinion/supremely-arrogant.html?searchResultPosition=2
+
+**What’s on Students’ Minds**\
+`High school students write about school shootings, bias against trans people, religion, Israel and more.`\
+https://nytimes.com/2023/05/06/opinion/letters/student-letters-competition.html?searchResultPosition=3
+
+**Women Have Always Chosen Not to Have Kids. Get Used to It.**\
+`History is full of women without children`\
+https://nytimes.com/2023/05/06/opinion/women-without-children-history.html?searchResultPosition=4
+
+**Are Anti-Trump Republicans Doomed to Repeat 2016?**\
+`Things are different, but maybe not enough.`\
+https://nytimes.com/2023/05/06/opinion/are-anti-trump-republicans-doomed-to-repeat-2016.html?searchResultPosition=5
+
+**The First Scandal King Charles Could Face Is a Gift From Boris Johnson**\
+`Appointing people to the House of Lords can be complicated.`\
+https://nytimes.com/2023/05/06/opinion/house-of-lords-boris-johnson-britain.html?searchResultPosition=6
+
+**Car Bombing Injures Prominent Russian Nationalist, State Media Reports**\
+`Zakhar Prilepin, who was elected in 2021 to Russia’s Parliament, has long advocated an imperialist foreign policy by Moscow.`\
+https://nytimes.com/2023/05/06/world/europe/russia-prilepin-bombing.html?searchResultPosition=7
+
 **The Coronation of King Charles III, in Pictures**\
 `Britain is crowning King Charles III. Here’s a selection of the best photographs from the coronation weekend.`\
-https://nytimes.com/2023/05/06/world/europe/king-charles-coronation-pictures.html?searchResultPosition=1
+https://nytimes.com/2023/05/06/world/europe/king-charles-coronation-pictures.html?searchResultPosition=8
 
 **Here’s the route that King Charles took from Buckingham Palace to Westminster Abbey.**\
 `His route is markedly shorter than the one taken by Queen Elizabeth II in 1953.`\
-https://nytimes.com/2023/05/06/world/europe/coronation-procession-route-map.html?searchResultPosition=2
+https://nytimes.com/2023/05/06/world/europe/coronation-procession-route-map.html?searchResultPosition=9
 
 **Gordon Lightfoot’s Death Is a Loss That Feels Personal**\
 `Lightfoot’s music created the soundtrack for the daily life of many Canadian families.`\
-https://nytimes.com/2023/05/06/world/canada/gordon-lightfoot-music-impact.html?searchResultPosition=3
-
-**Ukraine Says It Shot Down Russia’s Most Sophisticated Missile for First Time**\
-`The Air Force said it intercepted the missile with a newly delivered U.S.-made Patriot air-defense battery, the first time Kyiv has said it used the advanced weapon.`\
-https://nytimes.com/2023/05/06/world/europe/ukraine-russia-war-patriot.html?searchResultPosition=4
-
-**As Putin Bides His Time, Ukraine Faces a Ticking Clock**\
-`Ukraine is feeling short-term pressure from its Western backers for success in a looming counteroffensive. Vladimir Putin seems to be operating on a longer timeline.`\
-https://nytimes.com/2023/05/06/world/europe/ukraine-counteroffensive-russia.html?searchResultPosition=5
-
-**It’s Coronation Day**\
-`Come for the crown jewels and gold stagecoach; stay for the questions about the monarchy’s relevance.`\
-https://nytimes.com/2023/05/06/briefing/king-charles-iii-coronation-day.html?searchResultPosition=6
-
-**Asked to Delete References to Racism From Her Book, an Author Refused**\
-`The case, involving Scholastic, led to an outcry among authors and became an example of how the culture wars behind a surge in book banning in schools has reached publishers.`\
-https://nytimes.com/2023/05/06/books/scholastic-book-racism-maggie-tokuda-hall.html?searchResultPosition=7
-
-**‘Like He Was Going to Live Forever’: Making Jerome Robbins’s Last Ballet**\
-`His exuberant “Brandenburg,” which returns to City Ballet this month, was made near the end of his life, when he was physically and emotionally frail.`\
-https://nytimes.com/2023/05/06/arts/dance/brandenburg-city-ballet-jerome-robbins.html?searchResultPosition=8
-
-**Hearing Aids Are Changing. Their Users Are, Too.**\
-`As more young people risk hearing loss, over-the-counter hearing aids are providing new options, but also confusing choices.`\
-https://nytimes.com/2023/05/06/us/otc-hearing-aids-young-users.html?searchResultPosition=9
-
-**Backup Power: A Growing Need, if You Can Afford It**\
-`Extreme weather linked to climate change is causing more blackouts. But generators and batteries are still out of reach of many.`\
-https://nytimes.com/2023/05/06/business/energy-environment/backup-power-generators-climate-change.html?searchResultPosition=10
+https://nytimes.com/2023/05/06/world/canada/gordon-lightfoot-music-impact.html?searchResultPosition=10
 
