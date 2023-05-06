@@ -1,6 +1,6 @@
 **The Demonization of the Homeless Has Vile Consequences**\
 `Subway cars should not be homes — or deathbeds.`\
-https://nytimes.com/2023/05/06/opinion/homeless-jordan-neely.html?searchResultPosition=1
+https://nytimes.com/2023/05/06/opinion/columnists/homeless-jordan-neely.html?searchResultPosition=1
 
 **Berkshire Reports Big Jump in Earnings**\
 `Gains in its insurance business offset lower revenue from its real estate and consumer products companies. The results came out at the start of the conglomerate’s 59th annual meeting.`\
