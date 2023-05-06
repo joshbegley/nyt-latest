@@ -10,17 +10,17 @@ https://nytimes.com/2023/05/06/opinion/supremely-arrogant.html?searchResultPosit
 `High school students write about school shootings, bias against trans people, religion, Israel and more.`\
 https://nytimes.com/2023/05/06/opinion/letters/student-letters-competition.html?searchResultPosition=3
 
+**The First Scandal King Charles Could Face Is a Gift From Boris Johnson**\
+`Appointing people to the House of Lords can be complicated.`\
+https://nytimes.com/2023/05/06/opinion/house-of-lords-boris-johnson-britain.html?searchResultPosition=4
+
 **Women Have Always Chosen Not to Have Kids. Get Used to It.**\
 `History is full of women without children`\
-https://nytimes.com/2023/05/06/opinion/women-without-children-history.html?searchResultPosition=4
+https://nytimes.com/2023/05/06/opinion/women-without-children-history.html?searchResultPosition=5
 
 **Are Anti-Trump Republicans Doomed to Repeat 2016?**\
 `Things are different, but maybe not enough.`\
-https://nytimes.com/2023/05/06/opinion/are-anti-trump-republicans-doomed-to-repeat-2016.html?searchResultPosition=5
-
-**The First Scandal King Charles Could Face Is a Gift From Boris Johnson**\
-`Appointing people to the House of Lords can be complicated.`\
-https://nytimes.com/2023/05/06/opinion/house-of-lords-boris-johnson-britain.html?searchResultPosition=6
+https://nytimes.com/2023/05/06/opinion/are-anti-trump-republicans-doomed-to-repeat-2016.html?searchResultPosition=6
 
 **Car Bombing Injures Prominent Russian Nationalist, State Media Reports**\
 `Zakhar Prilepin, who fought in eastern Ukraine in support of a separatist rebellion, has long advocated an imperialist foreign policy by Moscow.`\
