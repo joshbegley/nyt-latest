@@ -1,40 +1,40 @@
+**Here’s something most racing fans agree on: 50 years later, Secretariat is still the GOAT.**\
+`A record-setting Triple Crown run was such an achievement that it helped the horse known as Big Red serve as “a rallying cry for America.”`\
+https://nytimes.com/2023/05/06/sports/horse-racing/kentucky-derby-secretariat-fifty.html?searchResultPosition=1
+
 **Newton N. Minow, F.C.C. Chief Who Deemed TV a ‘Vast Wasteland,’ Dies at 97**\
 `His stunning declaration caused an instant sensation when he made it in 1961 and ignited a national debate over Americans’ viewing habits.`\
-https://nytimes.com/2023/05/06/business/media/newton-n-minow-dead.html?searchResultPosition=1
+https://nytimes.com/2023/05/06/business/media/newton-n-minow-dead.html?searchResultPosition=2
 
 **Charles Is Crowned King in Ancient Ceremony With Modern Twists**\
 `The coronation, the first since Queen Elizabeth II’s in 1953, was a royal spectacle of the kind that only Britain still stages.`\
-https://nytimes.com/2023/05/06/world/europe/charles-king-coronation.html?searchResultPosition=2
+https://nytimes.com/2023/05/06/world/europe/charles-king-coronation.html?searchResultPosition=3
 
 **Choreographed Formality, Like an Elaborate Masque**\
 `As in ballet, the coronation provided spectacle and beauty tempered by discipline and focus.`\
-https://nytimes.com/2023/05/06/arts/dance/coronation-formal-choreography.html?searchResultPosition=3
+https://nytimes.com/2023/05/06/arts/dance/coronation-formal-choreography.html?searchResultPosition=4
 
 **As king, Charles inherits untold riches, and passes control of his own vast holdings to William.**\
 `By Jane Bradley and Euan Ward`\
-https://nytimes.com/2023/05/06/world/as-king-charles-inherits-untold-riches-and-passes-control-of-his-own-vast-holdings-to-william.html?searchResultPosition=4
+https://nytimes.com/2023/05/06/world/as-king-charles-inherits-untold-riches-and-passes-control-of-his-own-vast-holdings-to-william.html?searchResultPosition=5
 
 **Even with a heavy crown, Camilla seems lighter in her new role.**\
 `The coronation was not just the moment Charles finally ascended to a role in wait for his whole life, but also the final act in the long rehabilitation of the former Camilla Parker Bowles.`\
-https://nytimes.com/2023/05/06/world/europe/camilla-queen-uk-charles.html?searchResultPosition=5
+https://nytimes.com/2023/05/06/world/europe/camilla-queen-uk-charles.html?searchResultPosition=6
 
 **The London police, with new powers against ‘serious disruption,’ arrest dozens of protesters.**\
 `Prior to the coronation, the police had said that there would be little tolerance for disruptive protests. On the day itself, more than 50 people were arrested, most on offenses that appeared to be connected to protests.`\
-https://nytimes.com/2023/05/06/world/europe/coronation-protests-arrests.html?searchResultPosition=6
+https://nytimes.com/2023/05/06/world/europe/coronation-protests-arrests.html?searchResultPosition=7
 
 **Charles is Jamaica’s head of state. The island nation may break with the monarchy next year.**\
 `The Commonwealth country has scheduled a referendum in 2024 on whether to cut ties to the British monarchy, opening up a debate on how to reshape the society.`\
-https://nytimes.com/2023/05/06/world/americas/jamaica-monarchy-referendum.html?searchResultPosition=7
+https://nytimes.com/2023/05/06/world/americas/jamaica-monarchy-referendum.html?searchResultPosition=8
 
 **Judith Miller, ‘Antiques Roadshow’ Mainstay, Is Dead at 71**\
 `Known for her many guidebooks, she helped determine what was trash and what was treasure on the BBC series that inspired the American show.`\
-https://nytimes.com/2023/05/06/world/europe/judith-miller-dead.html?searchResultPosition=8
+https://nytimes.com/2023/05/06/world/europe/judith-miller-dead.html?searchResultPosition=9
 
 **Charles III Was Crowned King. But Can He Ever Be the Star?**\
 `On Saturday, Charles finally became the focal figure of the long-running royal TV drama — if only for a day.`\
-https://nytimes.com/2023/05/06/arts/television/charles-iii-coronation-tv.html?searchResultPosition=9
-
-**Were Will and Kate Late to the Coronation? The News Media Wonders.**\
-`The Prince and Princess of Wales arrived at Westminster Abbey after King Charles III, prompting speculation among the many journalists covering the ceremony.`\
-https://nytimes.com/2023/05/06/world/europe/prince-william-kate-coronation-late.html?searchResultPosition=10
+https://nytimes.com/2023/05/06/arts/television/charles-iii-coronation-tv.html?searchResultPosition=10
 
