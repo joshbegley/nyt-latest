@@ -1,5 +1,5 @@
 **The London police, with new powers against ‘serious disruption,’ arrest dozens of protesters.**\
-`By Emma Bubola and Megan Specia`\
+`Prior to the coronation, the police had said that there would be little tolerance for disruptive protests. On the day itself, more than 50 people were arrested, most on offenses that appeared to be connected to protests.`\
 https://nytimes.com/2023/05/06/world/europe/coronation-protests-arrests.html?searchResultPosition=1
 
 **Charles is Jamaica’s head of state. The island nation may break with the monarchy next year.**\
