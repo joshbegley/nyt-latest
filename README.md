@@ -8,7 +8,7 @@ https://nytimes.com/2023/05/06/arts/music/don-sebesky-dead.html?searchResultPosi
 
 **Police Respond to Reports of Gunfire at Texas Outlet Mall**\
 `The police confirmed they were responding to the Allen Premium Outlets in Allen, Texas, and that there were “possibly” some people wounded.`\
-https://nytimes.com/2023/05/06/us/allen-mall-texas-gunfire.html?searchResultPosition=3
+https://nytimes.com/2023/05/06/us/allen-mall-texas-shooting.html?searchResultPosition=3
 
 **Here’s something most racing fans agree on: 50 years later, Secretariat is still the GOAT.**\
 `A record-setting Triple Crown run was such an achievement that it helped the horse known as Big Red serve as “a rallying cry for America.”`\
