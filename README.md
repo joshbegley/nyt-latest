@@ -1,5 +1,5 @@
-**Inmate Pleads Guilty in Alabama Jail Escape**\
-`Casey White and a former corrections officer who helped him escape had been on the run for nearly two weeks when a police pursuit ended in his arrest and her death.`\
+**Inmate Pleads Guilty in Alabama Jail Escape That Officer Abetted**\
+`Casey White and a corrections officer who helped him escape had been on the run for nearly two weeks when a police pursuit ended in his arrest and her death.`\
 https://nytimes.com/2023/05/07/us/casey-white-guilty-alabama-jail.html?searchResultPosition=1
 
 **How to Overhaul the C.D.C.**\
