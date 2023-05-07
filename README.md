@@ -6,8 +6,8 @@ https://nytimes.com/interactive/2023/05/07/world/europe/coronation-street-partie
 `The Lakers star LeBron James, 38, has made it clear that he intends to team up with his son in the N.B.A. someday.`\
 https://nytimes.com/2023/05/07/sports/basketball/bronny-lebron-james-usc.html?searchResultPosition=2
 
-**At Least 7 Killed After Driver Plows Car Into Group in Texas**\
-`The driver of a Range Rover barreled into a crowd of migrants in Brownsville, Texas, an official said. It was unclear if the crash had been accidental or deliberate.`\
+**At Least 7 Killed After Driver Plows Car Into Group of Migrants in Texas**\
+`The driver of a Range Rover barreled into a crowd in Brownsville, Texas, on Sunday, officials said. It was unclear if the crash had been accidental or deliberate.`\
 https://nytimes.com/2023/05/07/us/car-pedestrians-brownsville-texas.html?searchResultPosition=3
 
 **The High Line Gets a New Bridge **\
