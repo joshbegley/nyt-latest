@@ -35,6 +35,6 @@ https://nytimes.com/2023/05/06/crosswords/daily-puzzle-2023-05-07.html?searchRes
 https://nytimes.com/2023/05/06/arts/music/don-sebesky-dead.html?searchResultPosition=9
 
 **At Least 9 Dead, Including Gunman, in Shooting at Texas Mall**\
-`The gunman was killed at the Allen Premium Outlets in Allen, Texas, on Saturday. The person acted alone and the motive was unclear.`\
+`A police officer on an unrelated assignment nearby rushed toward the sounds of gunfire and killed the gunman.`\
 https://nytimes.com/2023/05/06/us/allen-mall-texas-shooting.html?searchResultPosition=10
 
