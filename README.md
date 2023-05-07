@@ -14,7 +14,7 @@ https://nytimes.com/2023/05/06/business/economy/california-reparations.html?sear
 `Mage, with Javier Castellano aboard, won by a length, bringing joy and relief to fans after a dispiriting run-up to the race in which seven horses died.`\
 https://nytimes.com/2023/05/06/sports/horse-racing/mage-kentucky-derby-winner.html?searchResultPosition=4
 
-**Shooting at Texas Outlet Mall Leaves At Least 9 Dead**\
+**Shooting at Texas Outlet Mall Leaves at Least 9 Dead**\
 `Shoppers were evacuated from the mall after the shooting.`\
 https://nytimes.com/video/us/100000008895221/texas-mall-shooting.html?searchResultPosition=5
 
