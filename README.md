@@ -30,7 +30,7 @@ https://nytimes.com/2023/05/06/crosswords/daily-puzzle-2023-05-07.html?searchRes
 `He won Tonys for his orchestrations and Grammys for his compositions and arrangements. But he was best known for his genre-straddling work at CTI Records.`\
 https://nytimes.com/2023/05/06/arts/music/don-sebesky-dead.html?searchResultPosition=8
 
-**At Lead 9 Dead in Shooting at Texas Mall**\
+**At Least 9 Dead in Shooting at Texas Mall**\
 `The gunman was killed at the Allen Premium Outlets in Allen, Texas, on Saturday. The person acted alone and the motive was unclear.`\
 https://nytimes.com/2023/05/06/us/allen-mall-texas-shooting.html?searchResultPosition=9
 
