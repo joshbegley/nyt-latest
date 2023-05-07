@@ -1,40 +1,40 @@
-**Quotation of the Day: A Crowning Moment With Medieval Pomp and Modern Twists**\
-`Quotation of the Day for Sunday, May 7, 2023.`\
-https://nytimes.com/2023/05/07/pageoneplus/quotation-of-the-day-a-crowning-moment-with-medieval-pomp-and-modern-twists.html?searchResultPosition=1
+**The 2 Israels: Court Crisis Is Front Line for Dueling Visions of a Nation’s Future**\
+`For many Israelis, their country’s future rests on the fate of a government plan to overhaul the courts. In a remote part of northeastern Israel, ethnic and religious differences among Jews show why the issue has become so important.`\
+https://nytimes.com/2023/05/07/world/middleeast/the-2-israels-court-crisis-is-front-line-for-dueling-visions-of-a-nations-future.html?searchResultPosition=1
 
-**Corrections: May 7, 2023**\
-`Corrections that appeared in print on Sunday, May 7, 2023.`\
-https://nytimes.com/2023/05/07/pageoneplus/corrections-may-7-2023.html?searchResultPosition=2
+**An End to Pandemic Restrictions Could Bring Thousands to the Border**\
+`Title 42, the policy that has allowed the swift expulsion of many migrants at the southern border, will lift on Thursday. Officials are bracing for a new immigration surge.`\
+https://nytimes.com/2023/05/07/us/title-42-border-migrants.html?searchResultPosition=2
 
-**The Forces Behind South Korea’s and Japan’s Thaw**\
-`Eras of grievances between the two countries are giving way under the pressure of global changes, and with help from a personal outreach approach by both leaders.`\
-https://nytimes.com/2023/05/07/world/asia/south-korea-japan-kishida-yoon.html?searchResultPosition=3
+**How Ato Essandoh of ‘The Diplomat’ Spends His Sundays**\
+`The actor has analog tastes, like listening to records and walking in the park. He will sneak in a little “Flight Simulator,” though.`\
+https://nytimes.com/2023/05/07/nyregion/ato-essandoh-the-diplomat.html?searchResultPosition=3
 
-**​As Japan’s Leader Goes to Seoul, South Koreans Are All Ears**\
-`What the prime minister says about the fraught history between the two nations could continue a nascent thaw that is underway, or bring it to a halt.`\
-https://nytimes.com/2023/05/07/world/asia/south-korea-japan-summit-apology.html?searchResultPosition=4
+**The Unexpected Women Blocking South Carolina’s Near-Total Abortion Ban**\
+`They call themselves the “Sister Senators” and three of them are Republicans.`\
+https://nytimes.com/2023/05/07/us/south-carolina-abortion-ban.html?searchResultPosition=4
 
-**DeSantis Continues to Test the Waters of 2024 — and Supporters Are Getting Restless**\
-`The Florida governor looked to excite voters in Wisconsin, finding supporters — but also doubters — in the competitive Midwest.`\
-https://nytimes.com/2023/05/06/us/politics/ron-desantis-wisconsin.html?searchResultPosition=5
+**‘I See No Future’: Sherpas Leave the Job They Made Famous**\
+`Perils of the job and a scant safety net are pushing climbing guides to leave the industry and ensure the next generation has other options.`\
+https://nytimes.com/2023/05/07/world/asia/sherpas-everest.html?searchResultPosition=5
 
-**The Best Hats From the Kentucky Derby**\
-`The annual race brings out hats of mass proportions.`\
-https://nytimes.com/2023/05/06/style/hats-kentucky-derby.html?searchResultPosition=6
+**In New York City, Making the Invisible Visible**\
+`Andy Newman, a Metro reporter for The New York Times, shadowed Intensive Mobile Treatment teams that serve adults suffering from mental illness. Two of the stories he heard have stayed with him.`\
+https://nytimes.com/2023/05/07/insider/new-york-intensive-mobile-treatment-teams.html?searchResultPosition=6
 
-**War of the Hats: Coronation vs. Kentucky Derby**\
-`Can you tell where each of these hats appeared? Take our quiz.`\
-https://nytimes.com/2023/05/06/style/kentucky-derby-hat-coronation.html?searchResultPosition=7
+**‘I Was Walking on Columbus Avenue on a Cold Afternoon’**\
+`A good day for ice cream, folding paper hearts and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2023/05/07/nyregion/metropolitan-diary.html?searchResultPosition=7
 
-**California Panel Calls for Billions in Reparations for Black Residents**\
-`A task force recommended that legislators enact a sweeping program to compensate for the economic harm from racism in the state’s history.`\
-https://nytimes.com/2023/05/06/business/economy/california-reparations.html?searchResultPosition=8
+**What’s the (Meaning of) Buzz?**\
+`The answer lies in marketing, boozy beverages, bumblebees and more.`\
+https://nytimes.com/2023/05/07/insider/whats-the-meaning-of-buzz.html?searchResultPosition=8
 
-**Mage Captures the Derby After an Agonizing Week at Churchill Downs**\
-`Mage, with Javier Castellano aboard, won by a length, bringing joy and relief to fans after a dispiriting run-up to the race in which seven horses died.`\
-https://nytimes.com/2023/05/06/sports/horse-racing/mage-kentucky-derby-winner.html?searchResultPosition=9
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2023/05/07/crosswords/spelling-bee-forum.html?searchResultPosition=9
 
-**Shooting at Texas Outlet Mall Leaves at Least 9 Dead**\
-`Shoppers were evacuated from the mall after the shooting.`\
-https://nytimes.com/video/us/100000008895221/texas-mall-shooting.html?searchResultPosition=10
+**Today’s Wordle Review**\
+`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
+https://nytimes.com/2023/05/07/crosswords/wordle-review-answer-687.html?searchResultPosition=10
 
