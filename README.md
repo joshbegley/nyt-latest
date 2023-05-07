@@ -26,8 +26,8 @@ https://nytimes.com/2023/05/06/crosswords/daily-puzzle-2023-05-07.html?searchRes
 `He won Tonys for his orchestrations and Grammys for his compositions and arrangements. But he was best known for his genre-straddling work at CTI Records.`\
 https://nytimes.com/2023/05/06/arts/music/don-sebesky-dead.html?searchResultPosition=7
 
-**At Least 9 Injured in Shooting at Texas Outlet Mall**\
-`There were fatalities, the authorities said, but they did not offer specifics after gunfire erupted at the Allen Premium Outlets in Allen, Texas, on Saturday. Officials said the gunman was dead.`\
+**At Least 9 Killed in Shooting at Texas Outlet Mall**\
+`The gunman was killed at the Allen Premium Outlets in Allen, Texas, on Saturday. The person acted alone and the motive was unclear.`\
 https://nytimes.com/2023/05/06/us/allen-mall-texas-shooting.html?searchResultPosition=8
 
 **Here’s something most racing fans agree on: 50 years later, Secretariat is still the GOAT.**\
