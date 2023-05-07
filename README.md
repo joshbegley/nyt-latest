@@ -2,7 +2,7 @@
 `Also, the U.S. braces for a surge of immigrants this week.`\
 https://nytimes.com/2023/05/07/briefing/yoon-kishida-seoul-apology-asia.html?searchResultPosition=1
 
-**Don January, Who Won the 1967 P.G.A. Title, Dies at 93**\
+**Don January, Who Won the 1967 P.G.A. Title, Is Dead at 93**\
 `He won 10 tournaments in 10 different years on the PGA Tour and was an early star on the senior Champions Tour.`\
 https://nytimes.com/2023/05/07/obituaries/don-january-dead.html?searchResultPosition=2
 
