@@ -14,13 +14,13 @@ https://nytimes.com/2023/05/07/podcasts/the-daily/covid-school-family.html?searc
 `Wharton’s Ben Keys on how climate change is already reshaping the insurance and housing markets — and how our denial is only making the problem worse.`\
 https://nytimes.com/2023/05/07/opinion/climate-change-homeowners-insurance-housing-market.html?searchResultPosition=4
 
-**Why I Changed My Mind on the Debt Limit**\
-`Congress shouldn’t be able to invoke an arbitrary dollar limit to force the president to do its bidding.`\
-https://nytimes.com/2023/05/07/opinion/debt-limit.html?searchResultPosition=5
-
 **Kids Know Books About Abuse Are Not Pornography. ‘Moms’ Should, Too.**\
 `The organized movement to ban books in schools is betraying the young people it claims to protect.`\
-https://nytimes.com/2023/05/07/opinion/sexual-assualt-book-ban.html?searchResultPosition=6
+https://nytimes.com/2023/05/07/opinion/sexual-assualt-book-ban.html?searchResultPosition=5
+
+**Why I Changed My Mind on the Debt Limit**\
+`Congress shouldn’t be able to invoke an arbitrary dollar limit to force the president to do its bidding.`\
+https://nytimes.com/2023/05/07/opinion/debt-limit.html?searchResultPosition=6
 
 **The Drug That Saves Lives Even if It’s Never Used**\
 `Just handling Narcan and learning how to use it changes the way people think about drug addiction.`\
