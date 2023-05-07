@@ -2,8 +2,8 @@
 `The drumbeat of mass murder has fueled a new openness to gun regulation among some Texans, but it has done little to reshape the political realities in the State Capitol.`\
 https://nytimes.com/2023/05/07/us/texas-allen-shooting-gun-control.html?searchResultPosition=1
 
-**An Assertive James Harden Shows Up and Delivers for the Sixers**\
-`Harden took a back seat in Games 2 and 3 to Joel Embiid, but in Game 4, he summoned the scoring machine he had been for previous teams, and Philadelphia tied the series, 2-2.`\
+**James Harden Finds His Old Groove and Gets the Sixers Back on Track**\
+`Harden, the Sixers guard, summoned the scoring machine he had been for previous teams but had not been in Games 2 and 3, and Philadelphia tied its second-round series with Boston, 2-2.`\
 https://nytimes.com/2023/05/07/sports/76ers-celtics-game-4-james-harden.html?searchResultPosition=2
 
 **Twitter Criticized for Allowing Texas Shooting Images to Spread**\
