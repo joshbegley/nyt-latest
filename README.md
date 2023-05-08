@@ -1,40 +1,40 @@
-**At Least 22 Dead After Tourist Boat Capsizes in Southern India**\
-`Many victims of the tragedy in the state of Kerala were children who were sightseeing on a boat that officials said was overcrowded.`\
-https://nytimes.com/2023/05/08/world/asia/india-kerala-boat-capsized-accident.html?searchResultPosition=1
+**The Unfortunate, Unintended Consequence of the Inflation Reduction Act**\
+`The IRA will spur the takeover of our infrastructure by private entities, particularly large global asset managers, with likely negative consequences.`\
+https://nytimes.com/2023/05/08/opinion/inflation-reduction-act-global-asset-managers.html?searchResultPosition=1
 
-**Many Dead After Tourist Boat Capsizes in India**\
-`Rescuers searched for survivors of the boat that capsized in the southern Indian state of Kerala. Authorities said many of the victims were children.`\
-https://nytimes.com/video/world/asia/100000008896056/india-boat-capsize.html?searchResultPosition=2
+**In Parched Arizona, the Produce Gardens Bloom**\
+`Gardeners and small farmers are growing food with minimal water, in ways large and small that could help the Southwest survive an epochal drought.`\
+https://nytimes.com/2023/05/08/dining/arizona-drought-garden-produce.html?searchResultPosition=2
 
-**A Refugee From Another Time Gets an Eviction Notice**\
-`A Ukrainian immigrant, 82, has lived in a Manhattan hotel for decades. Now the owners want him out — while earning millions from the city to house others.`\
-https://nytimes.com/2023/05/08/nyregion/stewart-hotel-long-term-resident-eviction.html?searchResultPosition=3
+**Homemade, Cheap and Lethal, Attack Drones Are Vital to Ukraine**\
+`Fighting superior Russian firepower, Ukrainian forces turn off-the-shelf drones into deadly weapons by adapting them to carry explosives.`\
+https://nytimes.com/2023/05/08/world/europe/ukraine-russia-attack-drones.html?searchResultPosition=3
 
-**Deaths of Seniors in Hospital Fire Point to China’s Elder Care Shortfall**\
-`The country’s supply of nursing home beds has not kept pace with its rapidly aging population, leading some families to seek unlicensed alternatives.`\
-https://nytimes.com/2023/05/08/world/asia/china-hospital-fire-elderly.html?searchResultPosition=4
+**Flamenco and Fervor: Inside Spain’s El Rocío Pilgrimage**\
+`The annual spectacle, featuring fanciful caravans and riders on horseback, and is arguably the most potent visual representation of Andalusian culture.`\
+https://nytimes.com/2023/05/08/travel/el-rocio-pilgrimage-spain.html?searchResultPosition=4
 
-**‘It’s Going to Be a While’: No End in Sight for Hollywood Strike**\
-`The writers and entertainment companies remain far apart on several key issues, including money, and the standoff could last for months.`\
-https://nytimes.com/2023/05/08/business/media/writers-strike-hollywood.html?searchResultPosition=5
+**Willy Chavarria and Omar Apollo on Faith and Heartbreak**\
+`Two creative people in two different fields in one wide-ranging conversation. This time: the fashion designer and the “Ivory” musician.`\
+https://nytimes.com/2023/05/08/t-magazine/omar-apollo-willy-chavarria.html?searchResultPosition=5
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/05/08/crosswords/wordle-review-answer-688.html?searchResultPosition=6
+**Building a Better Colonial Williamsburg**\
+`Virginia’s reconstructed colonial capital, long criticized as presenting an idealized image of the American Revolution, brings its history into the 21st century.`\
+https://nytimes.com/2023/05/08/arts/building-a-better-colonial-williamsburg.html?searchResultPosition=6
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/05/08/crosswords/spelling-bee-forum.html?searchResultPosition=7
+**Why Do American Diners Have Such a Limited Palate for Textures?**\
+`Complex taste sensations play a crucial role in food around the world — but have long been shunned stateside.`\
+https://nytimes.com/2023/05/08/t-magazine/food-texture-eating.html?searchResultPosition=7
 
-**Word of the Day: efficiency**\
-`This word has appeared in 450 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/05/08/learning/word-of-the-day-efficiency.html?searchResultPosition=8
+**For This Glass Blower, Art Is a Full-Body Sport**\
+`The intense process of working with glass, Deborah Czeresko says, means “moving all the time.”`\
+https://nytimes.com/2023/05/08/special-series/glassblowing-deborah-czeresko.html?searchResultPosition=8
 
-**What’s on TV This Week: ‘Sam Now’ and ‘Jeopardy! Masters’**\
-`A coming-of-age documentary from PBS follows Sam Harkness and his family over 25 years, and a new iteration of the popular quiz show premieres on ABC.`\
-https://nytimes.com/2023/05/08/arts/television/whats-on-tv-this-week-sam-now-and-jeopardy-masters.html?searchResultPosition=9
+**Corporate Giants Buy Up Primary Care Practices at Rapid Pace**\
+`Large health insurers and other companies are especially keen on doctors’ groups that care for patients in private Medicare plans.`\
+https://nytimes.com/2023/05/08/health/primary-care-doctors-consolidation.html?searchResultPosition=9
 
-**On ‘Succession,’ Marriage Reveals Its Sting**\
-`Marriage is where the HBO series “Succession” hits viewers the closest.`\
-https://nytimes.com/2023/05/08/opinion/succession-shiv-tom.html?searchResultPosition=10
+**New York’s Smallest Businesses Face Some of Its Biggest Rent Hikes**\
+`Small businesses outside Manhattan helped fuel the city’s recovery from the pandemic. Their rents have soared, and people of color are bearing the brunt of the increases.`\
+https://nytimes.com/2023/05/08/nyregion/small-businesses-rent-hikes-nyc.html?searchResultPosition=10
 
