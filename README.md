@@ -1,4 +1,4 @@
-**El Bulli’s Philosophy of Food Lives on in a Gastronomic Series of Books**\
+**El Bulli’s Explores Gastronomy in an Expansive Series of Books**\
 `Read the El Bulli Foundation’s newest books on wine, pick up a Sweeney Todd apron and more food news.`\
 https://nytimes.com/2023/05/08/dining/el-bulli-books-bullipedia.html?searchResultPosition=1
 
