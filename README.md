@@ -1,5 +1,5 @@
 **Ronald Steel, Critic of American Cold War Policies, Dies at 92**\
-`In essays and books. he saw the postwar era as a series of misadventures, spawning unwise wars. He also wrote the definitive biography of the journalist Walter Lippmann.`\
+`In essays and books. he saw the U.S. postwar era as a series of misadventures spawning unwise wars. He also wrote the definitive biography of the journalist Walter Lippmann.`\
 https://nytimes.com/2023/05/08/us/ronald-steel-dead.html?searchResultPosition=1
 
 **When Mass Shootings Become Almost Daily Events**\
