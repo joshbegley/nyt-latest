@@ -23,7 +23,7 @@ https://nytimes.com/2023/05/08/theater/ars-nova-jenny-steingart-jon-steingart-an
 https://nytimes.com/video/us/100000008896671/brownsville-texas-deadly-car-crash.html?searchResultPosition=6
 
 **Driver Whose S.U.V. Struck and Killed Migrants in Texas Is Charged**\
-`The authorities in Brownsville, Texas, said George Alvarez was behind the wheel and that they were still trying to determine whether the crash was deliberate.`\
+`The authorities in Brownsville, Texas, said that George Alvarez was behind the wheel and that they were still trying to determine whether the crash was deliberate.`\
 https://nytimes.com/2023/05/08/us/brownsville-migrant-crash-george-alvarez.html?searchResultPosition=7
 
 **King Charles’s Photographer Wanted a ‘Little Piece of Theater’**\
