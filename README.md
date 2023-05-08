@@ -27,7 +27,7 @@ https://nytimes.com/2023/05/08/briefing/texas-mass-shooting-guns-asia.html?searc
 https://nytimes.com/2023/05/08/arts/music/sum-41-break-up-farewell-tour.html?searchResultPosition=7
 
 **Pulitzer Prizes: 2023 Winners List**\
-`Here are the winners and finalists.`\
+`Here is the full list of winners and finalists.`\
 https://nytimes.com/2023/05/08/business/pulitzer-prize-winners.html?searchResultPosition=8
 
 **Wildfires Burn Nearly 1 Million Acres in Western Canada**\
