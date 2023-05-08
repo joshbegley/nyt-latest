@@ -7,7 +7,7 @@ https://nytimes.com/2023/05/08/business/economy/the-fed-commercial-real-estate.h
 https://nytimes.com/2023/05/08/books/pulitzer-prize-books-winners-finalists.html?searchResultPosition=2
 
 **Behind the Scenes at the Westminster Dog Show**\
-`The annual event comes back to New York City this year, with Best in Show being decided at Arthur Ashe Stadium in Flushing.`\
+`The annual event comes back to New York City this year, with best in show being decided at Arthur Ashe Stadium in Flushing.`\
 https://nytimes.com/2023/05/08/sports/westminster-dog-show-photos.html?searchResultPosition=3
 
 **Stanley Deser, Whose Ideas on Gravity Help Explain the Universe, Dies at 92**\
