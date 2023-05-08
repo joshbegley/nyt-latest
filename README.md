@@ -14,8 +14,8 @@ https://nytimes.com/2023/05/07/business/media/texas-shooting-video-twitter.html?
 `Beneath the gilded continuity of the coronation celebrations, there were signs that both Britain and its royal family are preparing for a new era.`\
 https://nytimes.com/2023/05/07/world/europe/king-charles-coronation-uk.html?searchResultPosition=4
 
-**At Least 7 Dead After Car Strikes Migrants in Texas Border Town**\
-`The driver of the vehicle was detained after he drove into the crowd in Brownsville, Texas.`\
+**Car Fatally Strikes Migrants in Texas Border Town**\
+`The driver of the vehicle was detained after he plowed into a crowd in Brownsville, Texas, killing at least eight people.`\
 https://nytimes.com/video/us/100000008895810/brownsville-texas-car-crash.html?searchResultPosition=5
 
 **Suburbs Are Furious at Adams’s Plan to Send Migrants to Their Hotels**\
