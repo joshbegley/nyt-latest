@@ -6,8 +6,8 @@ https://nytimes.com/2023/05/08/us/california-water-allocations.html?searchResult
 `Entries for the week of May 1, 2023.`\
 https://nytimes.com/2023/05/08/crosswords/spelling-bee-fanatic.html?searchResultPosition=2
 
-**Suns Owner Sells a Flop as Phoenix Evens Series With Nuggets**\
-`Nikola Jokic was issued a technical foul, but wasn’t ejected, when he briefly tangled with Mat Ishbia on the sideline.`\
+**Suns Owner Sells a Flop as Phoenix Evens Series With Denver**\
+`Nikola Jokic was issued a technical foul, but wasn’t ejected, when he briefly tangled with the owner Mat Ishbia on the sideline.`\
 https://nytimes.com/2023/05/08/sports/basketball/nikola-jokic-mat-ishbia-nuggets-suns.html?searchResultPosition=3
 
 **‘Succession’ Season 4, Episode 7 Recap: The Scorpion and the Scorpion**\
