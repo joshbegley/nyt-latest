@@ -10,7 +10,7 @@ https://nytimes.com/2023/05/08/learning/how-can-we-bring-an-end-to-the-epidemic-
 `The new surge at the U.S.-Mexico border highlights a broader reality about immigration policy.`\
 https://nytimes.com/2023/05/08/briefing/migrants-southern-border-surge-title-42.html?searchResultPosition=3
 
-**China’s Foreign Minister Meets U.S. Envoy, Urges Washington to Reflect**\
+**China’s Foreign Minister Meets U.S. Envoy and Urges Washington to Reflect**\
 `The meeting was one of the highest-level engagements between American and Chinese officials since the downing of a suspected Chinese spy balloon in February.`\
 https://nytimes.com/2023/05/08/world/asia/china-us-meeting.html?searchResultPosition=4
 
