@@ -11,7 +11,7 @@ https://nytimes.com/2023/05/08/world/asia/china-us-meeting.html?searchResultPosi
 https://nytimes.com/2023/05/08/podcasts/the-daily/supreme-court-ethics.html?searchResultPosition=3
 
 **The Unfortunate, Unintended Consequence of the Inflation Reduction Act**\
-`The IRA will spur the takeover of our infrastructure by private entities, particularly large global asset managers, with likely negative consequences.`\
+`The I.R.A. will spur the takeover of our infrastructure by private entities, particularly large global asset managers, with likely negative consequences.`\
 https://nytimes.com/2023/05/08/opinion/inflation-reduction-act-global-asset-managers.html?searchResultPosition=4
 
 **In Parched Arizona, the Produce Gardens Bloom**\
