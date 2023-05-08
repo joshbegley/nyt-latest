@@ -1,5 +1,5 @@
 **Pulitzer Prizes: 2023 Winners List**\
-`Here are winners and finalists.`\
+`Here are the winners and finalists.`\
 https://nytimes.com/2023/05/08/business/pulitzer-prize-winners.html?searchResultPosition=1
 
 **Wildfires Burn Nearly 1 Million Acres in Western Canada**\
