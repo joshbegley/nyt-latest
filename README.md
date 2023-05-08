@@ -6,7 +6,7 @@ https://nytimes.com/2023/05/08/sports/basketball/nikola-jokic-mat-ishbia-nuggets
 `This week, the Roys throw the election eve party they inherited from Logan and as always, they arrive with their own discrete agendas.`\
 https://nytimes.com/2023/05/08/arts/television/succession-season-4-episode-7-recap.html?searchResultPosition=2
 
-**Fearing Attacks, and Perhaps Unrest, Russia Plans Muted Victory Day**\
+**Fearing Attacks and Perhaps Unrest, Russia Plans Muted Victory Day**\
 `The Kremlin will commemorate the Soviet Union’s defeat of Nazi Germany in World War II, but many towns have canceled events on Tuesday.`\
 https://nytimes.com/2023/05/08/world/europe/russia-victory-day-celebrations.html?searchResultPosition=3
 
