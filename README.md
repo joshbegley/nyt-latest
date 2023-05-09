@@ -7,7 +7,7 @@ https://nytimes.com/2023/05/09/us/politics/fbi-russia-malware.html?searchResultP
 https://nytimes.com/interactive/2023/05/09/nyregion/jury-verdict-form-trump-carroll.html?searchResultPosition=2
 
 **Fort Hood Is Renamed Fort Cavazos as Army Sheds Confederate Legacy**\
-`The third-largest U.S. military base will now honor Gen. Richard Edward Cavazos, the first Hispanic American person to be a four-star general.`\
+`The third-largest U.S. military base will now honor Gen. Richard Edward Cavazos, the first Hispanic American person to be a four-star Army general.`\
 https://nytimes.com/2023/05/09/us/fort-hood-rename-cavazos.html?searchResultPosition=3
 
 **She Wrote of Grief After Her Husband Died. Now She’s Charged in His Murder.**\
