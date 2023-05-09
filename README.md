@@ -1,4 +1,4 @@
-**Senate Democrats Seek Accounting of Gifts to Thomas, Other Justices**\
+**Senate Democrats Seek Accounting of Gifts to Thomas and Other Justices**\
 `In a new letter, Democrats on the Judiciary Committee asked Harlan Crow, a billionaire with extensive ties to Justice Clarence Thomas, to provide a list of any benefits he provided.`\
 https://nytimes.com/2023/05/09/us/politics/clarence-thomas-harlan-crow-senate-democrats.html?searchResultPosition=1
 
