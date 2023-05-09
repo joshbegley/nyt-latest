@@ -34,7 +34,7 @@ https://nytimes.com/2023/05/09/world/asia/imran-khan-arrest-pakistan.html?search
 `An emergency health rule used to swiftly expel migrants is about to expire, and a spike in arrivals is expected at the southern border.`\
 https://nytimes.com/2023/05/09/podcasts/the-daily/us-migrants-border-title-42.html?searchResultPosition=9
 
-**Film Club: ‘How to Fall Out of Love With Your Lawn’**\
-`Is it time to ditch a powerful symbol of the American dream: the perfect green lawn?`\
-https://nytimes.com/2023/05/09/learning/film-club-how-to-fall-out-of-love-with-your-lawn.html?searchResultPosition=10
+**The Cube Is Gone. But Soon It Will Spin Again.**\
+`The Astor Place cube, which has been stationary since 2021, is headed to Connecticut for some loving restoration.`\
+https://nytimes.com/2023/05/09/nyregion/astor-place-cube-restoration.html?searchResultPosition=10
 
