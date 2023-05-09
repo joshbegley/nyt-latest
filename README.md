@@ -1,6 +1,6 @@
 **‘Rip and Replace’: The Tech Cold War Is Upending Wireless Carriers**\
 `As China and the United States jockey for tech primacy, wireless carriers in dozens of states are tearing out Chinese equipment. That has turned into a costly, difficult process.`\
-https://nytimes.com/2023/05/09/technology/rip-and-replace-the-tech-cold-war-is-upending-wireless-carriers.html?searchResultPosition=1
+https://nytimes.com/2023/05/09/technology/cellular-china-us-zte-huawei.html?searchResultPosition=1
 
 **elNico, Latin American With a Skyline View, Opens in Williamsburg**\
 `The latest from the Edge Harlem team, a seasonal location of Torch & Crown in Union Square and more restaurant news.`\
