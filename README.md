@@ -1,40 +1,40 @@
+**Sam Bankman-Fried, in First Detailed Defense, Seeks to Dismiss Charges**\
+`The FTX founder, who has been charged with fraud, said the crypto exchange and its law firm had been acting against him and offering only the most incriminating evidence to prosecutors.`\
+https://nytimes.com/2023/05/08/technology/sam-bankman-fried-defense.html?searchResultPosition=1
+
 **Quotation of the Day: Driver Who Fatally Struck Migrants Is Charged**\
 `Quotation of the Day for Tuesday, May 9, 2023.`\
-https://nytimes.com/2023/05/08/pageoneplus/quotation-of-the-day-driver-who-fatally-struck-migrants-is-charged.html?searchResultPosition=1
+https://nytimes.com/2023/05/08/pageoneplus/quotation-of-the-day-driver-who-fatally-struck-migrants-is-charged.html?searchResultPosition=2
 
 **Corrections: May 9, 2023**\
 `Corrections that appeared in print on Tuesday, May 9, 2023.`\
-https://nytimes.com/2023/05/08/pageoneplus/corrections-may-9-2023.html?searchResultPosition=2
+https://nytimes.com/2023/05/08/pageoneplus/corrections-may-9-2023.html?searchResultPosition=3
 
 **Islamic Jihad Leaders Killed in Israeli Airstrikes on Gaza Strip**\
 `The targeted strikes killed at least three leaders of the military wing of Islamic Jihad, along with some of their family members.`\
-https://nytimes.com/video/world/middleeast/100000008897741/israel-airstrikes-islamic-jihad-gaza.html?searchResultPosition=3
+https://nytimes.com/video/world/middleeast/100000008897741/israel-airstrikes-islamic-jihad-gaza.html?searchResultPosition=4
 
 **Israeli Airstrikes Kill at Least 3 Leaders of Palestinian Militant Group in Gaza**\
 `The military wing of Islamic Jihad — which Israel, the United States and many other Western countries classify as a terrorist organization — confirmed the deaths of its leaders.`\
-https://nytimes.com/2023/05/08/world/middleeast/israel-airstrikes-islamic-jihad-gaza.html?searchResultPosition=4
+https://nytimes.com/2023/05/08/world/middleeast/israel-airstrikes-islamic-jihad-gaza.html?searchResultPosition=5
 
 **West Virginia Coach Bob Huggins Uses Homophobic Slur on Radio Show**\
 `The Hall of Famer used the word twice while discussing Cincinnati’s rivalry with Xavier. He said he would “fully accept” any consequences, as his employer reviewed the situation.`\
-https://nytimes.com/2023/05/08/sports/ncaabasketball/west-virginia-bob-huggins-slur-cincinnati-radio.html?searchResultPosition=5
+https://nytimes.com/2023/05/08/sports/ncaabasketball/west-virginia-bob-huggins-slur-cincinnati-radio.html?searchResultPosition=6
 
 **Tim Scott Was Given a Chance to Attack Biden as Too Old. He Didn’t.**\
 `Mr. Scott, a Republican senator from South Carolina weighing a 2024 bid, told a questioner that the president deserves to be criticized on his policies, not his age.`\
-https://nytimes.com/2023/05/08/us/politics/tim-scott-2024-biden.html?searchResultPosition=6
+https://nytimes.com/2023/05/08/us/politics/tim-scott-2024-biden.html?searchResultPosition=7
 
 **Person on a Beat**\
 `Margaret Seikel’s puzzle gives us a hand.`\
-https://nytimes.com/2023/05/08/crosswords/daily-puzzle-2023-05-09.html?searchResultPosition=7
+https://nytimes.com/2023/05/08/crosswords/daily-puzzle-2023-05-09.html?searchResultPosition=8
 
 **Among the Victims in Texas Shooting: A Wounded 6-Year-Old Who Lost His Parents and Brother**\
 `Some of the dead and injured belonged to the same families. The Mendoza sisters, in elementary school, both died.`\
-https://nytimes.com/2023/05/08/us/texas-mall-shooting-victims.html?searchResultPosition=8
+https://nytimes.com/2023/05/08/us/texas-mall-shooting-victims.html?searchResultPosition=9
 
 **China Raids Offices of Another Consulting Firm in Espionage Crackdown**\
 `The investigation of Capvision Partners comes amid increasing scrutiny by Beijing over national security that has sent a chill through the foreign business community.`\
-https://nytimes.com/2023/05/08/business/capvision-china-espionage-law.html?searchResultPosition=9
-
-**Canada Expels Chinese Diplomat Amid Influence Concerns**\
-`The diplomat, Zhao Wei, who was declared “persona non grata,” had been accused of gathering information on a Canadian lawmaker critical of Beijing’s treatment of Uyghur Muslims.`\
-https://nytimes.com/2023/05/08/world/canada/china-diplomat-expelled-canada.html?searchResultPosition=10
+https://nytimes.com/2023/05/08/business/capvision-china-espionage-law.html?searchResultPosition=10
 
