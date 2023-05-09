@@ -31,7 +31,7 @@ https://nytimes.com/2023/05/08/pageoneplus/corrections-may-9-2023.html?searchRes
 https://nytimes.com/video/world/middleeast/100000008897741/israel-airstrikes-islamic-jihad-gaza.html?searchResultPosition=8
 
 **Israeli Airstrikes Kill at Least 3 Leaders of Palestinian Militant Group in Gaza**\
-`The military wing of Islamic Jihad — which Israel, the United States and many other Western countries classify as a terrorist organization — confirmed the deaths of its leaders.`\
+`The military wing of Islamic Jihad confirmed the deaths of its leaders. At least nine civilians, some of them children, were also killed, according to officials.`\
 https://nytimes.com/2023/05/08/world/middleeast/israel-airstrikes-islamic-jihad-gaza.html?searchResultPosition=9
 
 **West Virginia Coach Bob Huggins Uses Homophobic Slur on Radio Show**\
