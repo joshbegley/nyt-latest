@@ -1,40 +1,40 @@
-**Now I’m in the Kitchen**\
-`A mother and daughter find a connection in a place they least expected.`\
-https://nytimes.com/video/opinion/100000008730917/now-im-in-the-kitchen.html?searchResultPosition=1
+**An Illustrator’s Paris Apartment That Couldn’t Be More Parisian**\
+`On a secluded cobblestone alley lined with former craftsmen’s workshops, Marin Montagut makes a home steeped in the city’s creative history.`\
+https://nytimes.com/2023/05/09/t-magazine/marin-montagut-paris-home.html?searchResultPosition=1
 
-**Meet the Roving Veterinarians Caring for Mexico’s Rural Horses**\
-`Horses, donkeys and mules can be a lifeline for families living in the countryside, but there haven’t always been vets around to treat them.`\
-https://nytimes.com/2023/05/09/science/mexico-horses-vetirinary-care.html?searchResultPosition=2
+**Why the Real Star of the New Bradley Cooper Film ‘Maestro’ May Be a House**\
+`Leonard Bernstein’s country house hasn’t changed much since the composer hosted Stephen Sondheim and Jerome Robbins there. Jamie Bernstein is OK with that.`\
+https://nytimes.com/2023/05/09/realestate/maestro-bradley-cooper-leonard-bernstein.html?searchResultPosition=2
 
-**Striker Will Never Know He Wasn’t Best in Show**\
-`A blindingly white Samoyed fell just short of the top spot at Westminster in consecutive years, but the now-retired champion is busy playing, romping, posing and shedding.`\
-https://nytimes.com/2023/05/09/sports/striker-samoyed-westminster-dog-show.html?searchResultPosition=3
+**At Home With Jamie Bernstein**\
+`Leonard Bernstein’s country house hasn’t changed much since he hosted Stephen Sondheim and Jerome Robbins there. His daughter is OK with that.`\
+https://nytimes.com/slideshow/2023/05/09/realestate/at-home-with-jamie-bernstein.html?searchResultPosition=3
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/05/09/crosswords/wordle-review-answer-689.html?searchResultPosition=4
+**Hong Kong Wants More Tourists, but Mostly ‘Good Quality’ Ones, Please**\
+`The return of budget tour groups from mainland China is sparking frustrations — and a dose of snobbery — in a city starved for business.`\
+https://nytimes.com/2023/05/09/world/asia/hong-kong-china-tourists.html?searchResultPosition=4
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/05/09/crosswords/spelling-bee-forum.html?searchResultPosition=5
+**William Burns, a C.I.A. Spymaster With Unusual Powers**\
+`Mr. Burns, a key figure in bolstering the Biden administration’s support for Ukraine, has amassed influence beyond most previous spy chiefs.`\
+https://nytimes.com/2023/05/09/us/politics/william-burns-cia-biden.html?searchResultPosition=5
 
-**Cat Cams**\
-`Why do you think these videos are so popular? What do they tell us about these creatures?`\
-https://nytimes.com/2023/05/09/learning/cat-cams.html?searchResultPosition=6
+**Nancy Mace, a ‘Caucus of One’ in the G.O.P., Says She’s Trying to Change Her Party**\
+`The South Carolina representative, who has publicly criticized her party but backed it on most legislation, is trying to figure out how to be a mainstream Republican in the hard-right House G.O.P.`\
+https://nytimes.com/2023/05/09/us/politics/nancy-mace.html?searchResultPosition=6
 
-**The Mother Who Changed: A Story of Dementia**\
-`As cognitive decline began to alter who Diane Norelius was, her adult daughters and her boyfriend wound up in a bitter dispute over which version of her should get to decide what she wanted.`\
-https://nytimes.com/2023/05/09/magazine/dementia-mother.html?searchResultPosition=7
+**Dancers’ Voices Across Time, in the Things Left Behind**\
+`In an art form that leaves few tangible traces, performers often become collectors of mementos from their careers. A lucky few find an archival home for their treasures.`\
+https://nytimes.com/2023/05/09/arts/dance/ballet-dancers-archives-patricia-wilde.html?searchResultPosition=7
 
-**Word of the Day: craggy**\
-`This word has appeared in 79 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/05/09/learning/word-of-the-day-craggy.html?searchResultPosition=8
+**New York Is Forcing Schools to Change How They Teach Children to Read**\
+`Half of children in grades three to eight fail reading tests. The city’s schools chancellor, who has faulted the current approach, will begin rolling out new curriculum next year.`\
+https://nytimes.com/2023/05/09/nyregion/reading-nyc-schools.html?searchResultPosition=8
 
-**The One Thing That United These 12 Biden and Trump Supporters**\
-`The group discusses the economy, union membership and politics.`\
-https://nytimes.com/interactive/2023/05/09/opinion/union-members-focus-group.html?searchResultPosition=9
+**Frank Ocean Shows Us a More Human Way to Perform**\
+`As live concert broadcasts have grown increasingly staid, his electrifying Coachella set gave us an unruly digital experience to share.`\
+https://nytimes.com/2023/05/09/magazine/frank-ocean-coachella.html?searchResultPosition=9
 
-**How Biden Can Call the G.O.P.’s Bluff on Debt and Protect the Economy**\
-`There might be short-term chaos in the economy and the markets, but we will be better off as a country in the long term.`\
-https://nytimes.com/2023/05/09/opinion/biden-mccarthy-debt-ceiling.html?searchResultPosition=10
+**Let the Post-Pandemic City Grow Wild**\
+`Cities contain too many perfected, simplified forms of nature, ones that look pretty but are biologically impoverished.`\
+https://nytimes.com/2023/05/09/opinion/urban-gardens-rewilding-cities-biodiversity.html?searchResultPosition=10
 
