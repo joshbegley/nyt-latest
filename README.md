@@ -26,7 +26,7 @@ https://nytimes.com/2023/05/08/us/texas-mall-shooting-victims.html?searchResultP
 `The investigation of Capvision Partners comes amid increasing scrutiny by Beijing over national security that has sent a chill through the foreign business community.`\
 https://nytimes.com/2023/05/08/business/capvision-china-espionage-law.html?searchResultPosition=7
 
-**Canada Says It Will Expel Chinese Diplomat Amid Influence Concerns**\
+**Canada Expels Chinese Diplomat Amid Influence Concerns**\
 `The diplomat, Zhao Wei, who was declared “persona non grata,” had been accused of gathering information on a Canadian lawmaker critical of Beijing’s treatment of Uyghur Muslims.`\
 https://nytimes.com/2023/05/08/world/canada/china-diplomat-expelled-canada.html?searchResultPosition=8
 
