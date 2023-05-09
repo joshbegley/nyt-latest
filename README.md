@@ -10,21 +10,21 @@ https://nytimes.com/2023/05/09/arts/music/matthias-pintscher-kansas-city-symphon
 `Also, protests in Pakistan after the arrest of Imran Khan.`\
 https://nytimes.com/2023/05/09/briefing/trump-sexual-abuse-suit-asia.html?searchResultPosition=3
 
-**An A.F.P. journalist was killed by rocket fire near the intense fighting in the area around Bakhmut.**\
-`By Anushka Patil`\
-https://nytimes.com/live/2023/05/09/world/russia-ukraine-news/an-afp-journalist-was-killed-by-rocket-fire-near-the-intense-fighting-in-the-area-around-bakhmut?searchResultPosition=4
-
 **Morgan Wallen Postpones Six Weeks of Shows After Vocal Cord Injury**\
 `The country superstar, who has held No. 1 on the Billboard album chart for nine straight weeks, said the pause was recommended by his doctors.`\
-https://nytimes.com/2023/05/09/arts/music/morgan-wallen-postpones-concerts.html?searchResultPosition=5
+https://nytimes.com/2023/05/09/arts/music/morgan-wallen-postpones-concerts.html?searchResultPosition=4
 
 **On Muted War Holiday, Putin Tries to Justify Invasion of Ukraine**\
 `With Russia struggling on the battlefield, Vladimir V. Putin presided over a scaled-down celebration of the Soviet Union’s victory in World War II, while using it to repeat false claims about Ukraine.`\
-https://nytimes.com/2023/05/09/world/europe/russia-ukraine-victory-day-putin.html?searchResultPosition=6
+https://nytimes.com/2023/05/09/world/europe/russia-ukraine-victory-day-putin.html?searchResultPosition=5
 
 **U.S. Says It Dismantled Russia’s ‘Most Sophisticated’ Malware Network**\
 `The Justice Department said the F.B.I. had turned the structure of the Russian intelligence service’s “Snake” network for spying on computers against itself.`\
-https://nytimes.com/2023/05/09/us/politics/fbi-russia-malware.html?searchResultPosition=7
+https://nytimes.com/2023/05/09/us/politics/fbi-russia-malware.html?searchResultPosition=6
+
+**The U.S. is providing $1.2 billion for Ukraine to buy air defense missiles and other crucial equipment.**\
+`A Pentagon spokesman also confirmed that Ukrainian troops using a U.S.-made Patriot air-defense system shot down a hypersonic Russian missile.`\
+https://nytimes.com/2023/05/09/world/europe/us-ukraine-missiles-weapons.html?searchResultPosition=7
 
 **Read the Blank Jury Verdict Form in the Trump-Carroll Case**\
 `A jury, which found on Tuesday that former President Donald J.`\
