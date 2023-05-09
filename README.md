@@ -2,7 +2,7 @@
 `Lehane’s new novel, “Small Mercies,” sets a crime story against the backdrop of the city’s school busing battles of the 1970s.`\
 https://nytimes.com/2023/05/09/books/review/dennis-lehane-small-mercies.html?searchResultPosition=1
 
-**How Wall Street is Preparing for a Debt Ceiling Showdown**\
+**How Wall Street Is Preparing for a Debt Ceiling Showdown**\
 `Stocks aren’t showing signs of panic about the government’s ability to pay its bills, but there is anxiety creeping into other markets.`\
 https://nytimes.com/2023/05/09/business/markets-investors-debt-ceiling.html?searchResultPosition=2
 
