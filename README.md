@@ -22,8 +22,8 @@ https://nytimes.com/2023/05/09/sports/football/joe-kapp-dead.html?searchResultPo
 `The former Republican congresswoman, a leading adversary of Donald J. Trump’s, accused him of “dereliction of duty” on Jan. 6, 2021.`\
 https://nytimes.com/2023/05/09/us/politics/liz-cheney-trump-ad.html?searchResultPosition=6
 
-**Amid Criticism and Seizures, the Met Sets Plan to Return Looted Art**\
-`A four-person provenance research team will scour the museum’s collection for works with tainted histories.`\
+**After Seizures, the Met Sets Plan to Scour Collections for Looted Art**\
+`A four-person provenance research team will review the museum’s collection for works with tainted histories.`\
 https://nytimes.com/2023/05/09/arts/met-museum-looted-art.html?searchResultPosition=7
 
 **How to Get the Forecast When Apple Weather Fails**\
