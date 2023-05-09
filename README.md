@@ -3,7 +3,7 @@
 https://nytimes.com/2023/05/09/us/politics/fbi-russia-malware.html?searchResultPosition=1
 
 **Read the Blank Jury Verdict Form in the Trump-Carroll Case**\
-`A jury, which found on Tuesday that former President Donald J. Trump was liable for the sexual abuse and defamation of the magazine writer E. Jean Carroll and awarded her $5 million in damages, had been given a blank verdict form to fill out as they considered different outcome for a verdict.`\
+`A jury, which found on Tuesday that former President Donald J. Trump was liable for the sexual abuse and defamation of the magazine writer E. Jean Carroll and awarded her $5 million in damages, had been given a blank verdict form to fill out as they considered different outcomes for a verdict.`\
 https://nytimes.com/interactive/2023/05/09/nyregion/jury-verdict-form-trump-carroll.html?searchResultPosition=2
 
 **Fort Hood Is Renamed Fort Cavazos as Army Sheds Confederate Legacy**\
