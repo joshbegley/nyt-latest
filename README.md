@@ -34,7 +34,7 @@ https://nytimes.com/2023/05/09/business/media/tucker-carlson-twitter-show.html?s
 `A federal judge presiding over the lawsuit against the former president walked jurors through each variety of wrongdoing, explaining their precise definitions.`\
 https://nytimes.com/2023/05/09/nyregion/jury-trump-carroll-verdict-options.html?searchResultPosition=9
 
-**Read the Filled-Out Jury Verdict Form in the Trump-Carroll Case**\
-`A jury, which held former President Donald J. Trump liable on Tuesday for the sexual abuse and defamation of E. Jean Carroll and awarded her $5 million, filled out a verdict form that spelled out possible findings.`\
+**Read the Completed Jury Verdict Form in the Trump-Carroll Case**\
+`A jury, which held former President Donald J. Trump liable on Tuesday for the sexual abuse and defamation of E. Jean Carroll and awarded her $5 million, completed a verdict form that spelled out possible findings.`\
 https://nytimes.com/interactive/2023/05/09/nyregion/trump-liable-verdict-form-jury.html?searchResultPosition=10
 
