@@ -18,7 +18,7 @@ https://nytimes.com/2023/05/09/sports/horse-racing/forte-kentucky-derby-doping.h
 `He will do anything to justify the terrible losses he has piled up in the name of a country where defeated leaders don’t retire peacefully.`\
 https://nytimes.com/2023/05/09/opinion/putin-ukraine-war.html?searchResultPosition=5
 
-**George Santos Is Charged by Federal Prosecutors in New York**\
+**George Santos Is Said to Face Federal Criminal Charges**\
 `The first-term Republican congressman’s extensive lies on the campaign trail and questionable financial dealings were the focus of criminal and ethical inquiries.`\
 https://nytimes.com/2023/05/09/nyregion/george-santos-federal-charges.html?searchResultPosition=6
 
