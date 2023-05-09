@@ -30,7 +30,7 @@ https://nytimes.com/2023/05/09/world/europe/us-ukraine-missiles-weapons.html?sea
 `A jury, which found on Tuesday that former President Donald J.`\
 https://nytimes.com/interactive/2023/05/09/nyregion/jury-verdict-form-trump-carroll.html?searchResultPosition=8
 
-**Fort Hood Is Renamed Fort Cavazos as Army Sheds Confederate Legacy**\
+**Fort Hood Gets a New Name: Fort Cavazos**\
 `The third-largest U.S. military base will now honor Gen. Richard Edward Cavazos, the first Hispanic American person to be a four-star Army general.`\
 https://nytimes.com/2023/05/09/us/fort-hood-rename-cavazos.html?searchResultPosition=9
 
