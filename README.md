@@ -7,7 +7,7 @@ https://nytimes.com/2023/05/10/world/asia/india-karnataka-election.html?searchRe
 https://nytimes.com/2023/05/10/business/new-york-times-1q-2023-earnings.html?searchResultPosition=2
 
 **Israel Strikes Gaza Again, Saying It Is Targeting Islamic Jihad Rockets**\
-`The airstrikes came as residents of Israel and Gaza braced for more violence after Israel killed three leaders of the militant group in an attack that Palestinian officials said also left nine civilians dead.`\
+`The airstrikes came as residents of Israel and Gaza braced for more violence after Israel killed three leaders of the militant group. Militants in Gaza began firing salvos of rockets toward Israel.`\
 https://nytimes.com/2023/05/10/world/middleeast/israel-gaza-airstrikes.html?searchResultPosition=3
 
 **$5 Million in Damages**\
