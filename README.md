@@ -30,11 +30,11 @@ https://nytimes.com/2023/05/09/opinion/jordan-neely-subway-death.html?searchResu
 `The colt went on to become America’s 2-year-old champion and was favored to win the Kentucky Derby until he was scratched from the race with an injury. The doping case still hasn’t been adjudicated.`\
 https://nytimes.com/2023/05/09/sports/horse-racing/forte-kentucky-derby-doping.html?searchResultPosition=8
 
+**Trump’s lawyer vows to appeal the verdict.**\
+`Joseph Tacopina said the former president had been mistreated in his hometown. ‘In New York you can’t get a fair trial,’ the attorney said.`\
+https://nytimes.com/2023/05/09/nyregion/trump-appeal-e-jean-carroll-verdict.html?searchResultPosition=9
+
 **Vladimir Putin Is the World’s Most Dangerous Fool**\
 `He will do anything to justify the terrible losses he has piled up in the name of a country where defeated leaders don’t retire peacefully.`\
-https://nytimes.com/2023/05/09/opinion/putin-ukraine-war.html?searchResultPosition=9
-
-**George Santos Is Said to Face Federal Criminal Charges**\
-`The first-term Republican congressman’s extensive lies on the campaign trail and questionable financial dealings were the focus of criminal and ethical inquiries.`\
-https://nytimes.com/2023/05/09/nyregion/george-santos-federal-charges.html?searchResultPosition=10
+https://nytimes.com/2023/05/09/opinion/putin-ukraine-war.html?searchResultPosition=10
 
