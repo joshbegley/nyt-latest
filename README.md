@@ -14,8 +14,8 @@ https://nytimes.com/2023/05/10/us/politics/biden-republican-moderates-mike-lawle
 `Do current protections account for how music is actually made now?`\
 https://nytimes.com/2023/05/10/arts/music/popcast-ed-sheeran-copyright.html?searchResultPosition=4
 
-**Tornado Warning Issued for Parts of Denver**\
-`A thunderstorm was detected about 16 miles south of Denver in Castle Pines and could bring hail and damaging winds to the city.`\
+**Denver Is Under a Tornado Watch**\
+`A thunderstorm was detected south of Denver, briefly prompting forecasters to place the region under a tornado warning, which was later downgraded to a tornado watch.`\
 https://nytimes.com/2023/05/10/us/denver-tornado-warning.html?searchResultPosition=5
 
 **Mexico Allows Tens of Thousands of Migrants to Travel to U.S. Border**\
