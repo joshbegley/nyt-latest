@@ -4,7 +4,7 @@ https://nytimes.com/2023/05/10/world/americas/david-miranda-dead.html?searchResu
 
 **‘The Habit of Art’ Review: Theater of the Creative Drive**\
 `A play within a play about W.H. Auden and Benjamin Britten structures this sex-spiked comedy for the Brits Off Broadway festival at 59E59 Theaters in Manhattan.`\
-https://nytimes.com/2023/05/10/theater/the-habit-of-art-review-theater-of-the-creative-drive.html?searchResultPosition=2
+https://nytimes.com/2023/05/10/theater/the-habit-of-art-review.html?searchResultPosition=2
 
 **In Trump’s Trial, a Secret Fight Over a Juror’s Right-Wing News Source**\
 `E. Jean Carroll’s lawyers tried to exclude the man, who listened to podcasts by the provocateur Tim Pool. He remained on the jury that found the ex-president liable.`\
