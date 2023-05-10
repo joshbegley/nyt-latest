@@ -18,7 +18,7 @@ https://nytimes.com/2023/05/10/dining/asparagus-recipes-soup-pasta-grain-bowl.ht
 `Bone-chilling temperatures, dramatic scenery and road trip interludes make the SCAR Swim a fan favorite in the niche sport of open water swimming.`\
 https://nytimes.com/2023/05/10/sports/scar-swim-arizona.html?searchResultPosition=5
 
-**Hiker, Missing for 2 Days, Is Rescued From National Glacier Park**\
+**Hiker Missing for 2 Days Is Rescued From National Glacier Park**\
 `A helicopter equipped with a heat-seeking device led to the rescue of a 19-year-old who had slipped off a mountain trail into chest-deep snow, the National Park Service said.`\
 https://nytimes.com/2023/05/10/us/missing-hiker-rescued-glacier-national-park.html?searchResultPosition=6
 
