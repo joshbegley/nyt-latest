@@ -3,7 +3,7 @@
 https://nytimes.com/2023/05/10/world/asia/india-karnataka-election.html?searchResultPosition=1
 
 **The Times Added 190,000 Subscribers Last Quarter**\
-`The increase was driven in part by subscriptions to a bundle of products that includes The Athletic sports site, bringing the company’s total digital subscriber base to nine million.`\
+`The increase was driven in part by subscriptions to a bundle of products that includes The Athletic sports site, bringing the company’s total subscriber base to 9.7 million.`\
 https://nytimes.com/2023/05/10/business/new-york-times-1q-2023-earnings.html?searchResultPosition=2
 
 **Israel Strikes Gaza Again, Saying It Is Targeting Islamic Jihad Rockets**\
