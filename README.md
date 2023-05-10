@@ -1,6 +1,6 @@
 **Pixel 7A Review: We’re Running Out of Reasons to Splurge on a ‘Pro’ Phone**\
 `Google’s latest entry-level phone, which costs $500, is just good as devices nearly double its price.`\
-https://nytimes.com/2023/05/10/technology/personaltech/pixel-7a-review-were-running-out-of-reasons-to-splurge-on-a-pro-phone.html?searchResultPosition=1
+https://nytimes.com/2023/05/10/technology/personaltech/pixel-7a-review.html?searchResultPosition=1
 
 **Turkey’s Election: What You Need to Know**\
 `With the economy in crisis, the vote on Sunday is shaping up to be one of President Recep Tayyip Erdogan’s toughest fights to hold onto power in his 20 years as the country’s premier politician.`\
