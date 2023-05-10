@@ -7,7 +7,7 @@ https://nytimes.com/2023/05/10/us/missing-hiker-rescued-glacier-national-park.ht
 https://nytimes.com/2023/05/10/sports/ncaabasketball/bob-huggins-west-virginia-suspension.html?searchResultPosition=2
 
 **Migrant Crossing Surges Aren’t New. Why Is the Border Overwhelmed?**\
-`Outdated immigration laws and global shifts in migration trends are some reasons behind the strained U.S. border with Mexico.`\
+`Outdated immigration laws, partisan gridlock and conflict abroad are some reasons behind the strained U.S. border with Mexico.`\
 https://nytimes.com/2023/05/10/us/politics/title-42-border-history-immigration.html?searchResultPosition=3
 
 **Pixel 7A Review: We’re Running Out of Reasons to Splurge on a ‘Pro’ Phone**\
