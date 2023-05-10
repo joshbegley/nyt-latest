@@ -14,7 +14,7 @@ https://nytimes.com/2023/05/10/world/europe/russia-eases-travel-restrictions-on-
 `Asylum seekers are pouring in at a fraught moment, when Chicago is changing mayors, its shelters are full, and a pandemic-driven restriction at the southern border is expected to end.`\
 https://nytimes.com/2023/05/10/us/chicago-migrants-title-42.html?searchResultPosition=4
 
-**7 Stylish Dogs at Westminster**\
+**9 Stylish Dogs at Westminster**\
 `We’re not certified canine judges, but we know an expert blowout when we see one.`\
 https://nytimes.com/2023/05/10/style/westminster-dog-show-photos.html?searchResultPosition=5
 
