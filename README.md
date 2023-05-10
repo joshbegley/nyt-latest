@@ -1,4 +1,4 @@
-**Biden Woos Republican Moderates in Debt-Ceiling Standoff**\
+**Biden Woos Republican Moderates in Debt Ceiling Standoff**\
 `A day after an unproductive meeting on the debt limit with Speaker McCarthy, the president assailed “extreme” Republicans who he said had “taken control of the House.”`\
 https://nytimes.com/2023/05/10/us/politics/biden-republican-moderates-mike-lawler.html?searchResultPosition=1
 
