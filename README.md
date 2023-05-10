@@ -1,9 +1,17 @@
+**New Defamation Suit Against Fox Signals Continued Legal Threat**\
+`The suit, brought by a specialist in Russian disinformation, cites parallels with the recently settled Dominion Voting Systems case against Fox.`\
+https://nytimes.com/2023/05/10/technology/defamation-suit-fox-nina-jankowicz.html?searchResultPosition=1
+
+**George Santos Is Charged With Fraud**\
+`Also, Inflation slowed again. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2023/05/10/briefing/george-santos-charges-inflation-data-slowing.html?searchResultPosition=2
+
 **Santos Pushed Campaign Money Abuse Past the Usual Line**\
 `So many campaign finance abuses are technically legal or occur in a gray area. But the scheme Mr. Santos is charged with is flagrant.`\
-https://nytimes.com/2023/05/10/opinion/george-santos-money-campaign.html?searchResultPosition=1
+https://nytimes.com/2023/05/10/opinion/george-santos-money-campaign.html?searchResultPosition=3
 
 **U.S. Warns Migrants Before End of Pandemic Restrictions That ‘Border Is Not Open’**\
 `Officials are bracing for an increase in illegal border crossings as Title 42, a pandemic-era health policy that allowed officials to expel migrants quickly, ends on Thursday.`\
-https://nytimes.com/2023/05/10/us/politics/mayorkas-title-42-migrants-border.html?searchResultPosition=2
+https://nytimes.com/2023/05/10/us/politics/mayorkas-title-42-migrants-border.html?searchResultPosition=4
 
 **Extreme Weather Maps: Track the Risks for Your Places**\
