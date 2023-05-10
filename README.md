@@ -20,7 +20,7 @@ https://nytimes.com/2023/05/10/health/addiction-treatment-buprenorphine-suboxone
 
 **New Defamation Suit Against Fox Signals Continued Legal Threat**\
 `The suit, brought by a specialist in Russian disinformation, cites parallels with the recently settled Dominion Voting Systems case against Fox.`\
-https://nytimes.com/2023/05/10/technology/defamation-suit-fox-nina-jankowicz.html?searchResultPosition=6
+https://nytimes.com/2023/05/10/business/media/defamation-suit-fox-nina-jankowicz.html?searchResultPosition=6
 
 **George Santos Is Charged With Fraud**\
 `Also, Inflation slowed again. Here’s the latest at the end of Wednesday.`\
