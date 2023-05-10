@@ -14,8 +14,8 @@ https://nytimes.com/2023/05/10/world/africa/khartoum-sudan-fighting.html?searchR
 `At the intersection of self-defense rights and the 2020 protests, the case against Daniel Perry gained national attention. Gov. Greg Abbott wants to pardon him.`\
 https://nytimes.com/2023/05/10/us/texas-daniel-perry-sentence.html?searchResultPosition=4
 
-**Santos is not just a co-sponsor of an unemployment fraud bill. He’s a target.**\
-`George Santos was accused of a scheme to fraudulently obtain unemployment benefits made available because of the coronavirus pandemic in 2020.`\
+**Santos could become a target of an unemployment fraud bill he co-sponsored.**\
+`George Santos was accused of carrying out a scheme to fraudulently obtain unemployment benefits made available because of the coronavirus pandemic in 2020.`\
 https://nytimes.com/2023/05/10/nyregion/george-santos-covid-unemployment.html?searchResultPosition=5
 
 **The George Santos Indictment, Annotated**\
