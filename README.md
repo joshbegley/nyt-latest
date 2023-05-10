@@ -3,7 +3,7 @@
 https://nytimes.com/video/world/asia/100000008900464/pakistan-protests.html?searchResultPosition=1
 
 **Russia eases travel restrictions on Georgian nationals, in the latest sign of thawing ties.**\
-`President Vladimir V. Putin on Wednesday ordered the restoration of direct flights from Russia to Georgia and abolished visas for Georgian nationals, .`\
+`President Vladimir V. Putin on Wednesday ordered the restoration of direct flights from Russia to Georgia and abolished visas for Georgian nationals.`\
 https://nytimes.com/2023/05/10/world/europe/russia-eases-travel-restrictions-on-georgian-nationals-in-the-latest-sign-of-thawing-ties.html?searchResultPosition=2
 
 **Open-Armed Chicago Feels the Strains of a Migrant Influx**\
