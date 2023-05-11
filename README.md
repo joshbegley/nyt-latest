@@ -14,8 +14,8 @@ https://nytimes.com/2023/05/10/crosswords/daily-puzzle-2023-05-11.html?searchRes
 `Saying New York City had “reached our limit,” the Adams  administration said it would loosen regulations that have protected homeless families seeking shelter.`\
 https://nytimes.com/2023/05/10/nyregion/nyc-right-to-shelter-migrants.html?searchResultPosition=4
 
-**McCarthy Blocks Tlaib Event Marking Palestinian Displacement**\
-`The speaker canceled a Capitol Hill gathering by a Palestinian group to commemorate what it calls the nakba, or disaster, of Palestinian displacement when the state of Israel was created.`\
+**McCarthy Blocks Tlaib Event at Capitol Marking Palestinian Displacement**\
+`The speaker prohibited the use of the Capitol Visitor Center for a gathering by a Palestinian group to commemorate the mass displacement of Palestinians when the state of Israel was created.`\
 https://nytimes.com/2023/05/10/us/mccarthy-tlaib-palestinian-nakba.html?searchResultPosition=5
 
 **Appeals Court Overturns Fraud and Conspiracy Convictions in Varsity Blues Scandal**\
