@@ -15,7 +15,7 @@ https://nytimes.com/2023/05/11/realestate/how-many-square-feet-does-1500-a-month
 https://nytimes.com/2023/05/11/arts/design/sarah-bernhardt-petit-palais.html?searchResultPosition=4
 
 **Bank of England Raises Interest Rates to Highest Level in 15 Years**\
-`The central bank lifted its benchmark rate a quarter point, to 4.5 percent, as part of its aggressive policy to tame inflation, which has remained stubbornly high.`\
+`The central bank lifted its benchmark rate a quarter point, to 4.5 percent, as part of its aggressive policy to tame inflation, but forecast that Britain was likely to avoid a recession.`\
 https://nytimes.com/2023/05/11/business/bank-of-england-interest-rates-uk.html?searchResultPosition=5
 
 **Reptilian Accessories That Make Coldblooded Look Cool**\
