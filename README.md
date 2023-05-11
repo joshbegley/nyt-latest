@@ -1,5 +1,5 @@
 **How Much Watching Time Do You Have This Weekend?**\
-`Our TV critic recommends the most recent season “Documentary Now!” and the American version of “The Great British Baking Show.” (It’s actually good!)`\
+`Our TV critic recommends the most recent season of “Documentary Now!” and the American version of “The Great British Baking Show.” (It’s actually good!)`\
 https://nytimes.com/2023/05/11/arts/television/documentary-now-netflix-great-american-baking-show.html?searchResultPosition=1
 
 **Kemal Dervis, Who Eased Turkey’s Economic Crisis, Dies at 74**\
