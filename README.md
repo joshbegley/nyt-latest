@@ -35,6 +35,6 @@ https://nytimes.com/2023/05/11/technology/elon-musk-ceo-twitter.html?searchResul
 https://nytimes.com/2023/05/11/briefing/thai-elections-thaksin-khan-pakistan.html?searchResultPosition=9
 
 **Jacklyn Zeman, Nurse Bobbie on ‘General Hospital,’ Dies at 70**\
-`Ms. Zeman, the Emmy-nominated actress who played the same role for nearly a half-century, died after a short battle with cancer, her family said.`\
+`Ms. Zeman, the Emmy-nominated actress who played the same role for nearly a half-century, died after a “short battle” with cancer, her family said.`\
 https://nytimes.com/2023/05/11/us/jackie-zeman-dead-general-hospital.html?searchResultPosition=10
 
