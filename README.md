@@ -19,7 +19,7 @@ https://nytimes.com/2023/05/11/us/politics/trump-cnn-town-hall-takeaways.html?se
 https://nytimes.com/2023/05/10/business/media/cnn-trump-town-hall.html?searchResultPosition=5
 
 **Suspect in Teenager’s Aruba Disappearance to Be Extradited to U.S.**\
-`Joran van der Sloot has been a suspect in the disappearance of the teenager, Natalee Holloway, in 2005.`\
+`Joran van der Sloot is a suspect in the 2005 disappearance of the American teenager, Natalee Holloway. He has been serving a 28-year prison sentence in Peru for a separate murder case.`\
 https://nytimes.com/2023/05/10/world/americas/natalee-holloway-aruba-suspect-extradited.html?searchResultPosition=6
 
 **Trump Revives Election Lies and False Boasts in CNN Town Hall**\
