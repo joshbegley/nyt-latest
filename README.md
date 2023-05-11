@@ -1,4 +1,4 @@
-**It’s Tennis Vs. Pickleball Vs. Padel. Or Is It?**\
+**It’s Tennis vs. Pickleball vs. Padel. Or Is It?**\
 `Private clubs and public facilities are striving to be more things to more people as they try to defuse the tension between tennis and fast-growing racket sports like pickleball.`\
 https://nytimes.com/2023/05/11/sports/tennis/pickleball-platform-tennis-padel.html?searchResultPosition=1
 
