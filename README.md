@@ -1,12 +1,12 @@
 **Meeting Between Biden and Republicans Delayed as Both Sides Work Toward Debt Limit Deal**\
-`The decision to delay Friday’s expected meeting was cast as a positive development, one that could allow both sides to find agreement before the United States defaults on its debt.`\
+`The decision to delay Friday’s expected meeting to next week was cast as a positive development, one that could allow both sides to find agreement before the United States defaults on its debt.`\
 https://nytimes.com/2023/05/11/business/economy/biden-republicans-debt-limit-meeting.html?searchResultPosition=1
 
 **George Santos Settles Stolen-Check Case in Brazil**\
 `The first-term congressman of New York accepted responsibility for his actions and agreed to pay a settlement in exchange for the charges to be dropped.`\
 https://nytimes.com/2023/05/11/nyregion/george-santos-brazil-checks.html?searchResultPosition=2
 
-**Daniel Penny Will Be Charged in Subway Choking Death of Jordan Neely**\
+**Daniel Penny Will Be Charged in Subway Chokehold Killing of Jordan Neely**\
 `Mr. Penny held Mr. Neely in a chokehold for several minutes, killing him. He is expected to surrender on Friday, though the specific charges were not yet known.`\
 https://nytimes.com/2023/05/11/nyregion/daniel-penny-charges-jordan-neely-subway-death.html?searchResultPosition=3
 
