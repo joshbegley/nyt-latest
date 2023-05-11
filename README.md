@@ -11,7 +11,7 @@ https://nytimes.com/2023/05/11/business/dealbook/back-to-office-battles-undersco
 https://nytimes.com/2023/05/11/science/hammerhead-sharks-breath-cold-temperature.html?searchResultPosition=3
 
 **N.F.L. Reveals Broadcast Ambitions With 2023 Schedule**\
-`Aaron Rodgers and the Jets will play the Miami Dolphins in a Black Friday game that will air on Amazon, as pro football continues its expansion of the regular season lineup.`\
+`Aaron Rodgers and the Jets will play the Miami Dolphins in a Black Friday game that will air on Amazon, as pro football continues its expansion of the regular-season lineup.`\
 https://nytimes.com/2023/05/11/sports/football/nfl-schedule-2023.html?searchResultPosition=4
 
 **New York Sues Maker of Device That Modified Buffalo Killer’s Gun**\
