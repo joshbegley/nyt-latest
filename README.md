@@ -16,7 +16,7 @@ https://nytimes.com/2023/05/11/business/dealbook/ftx-sam-bankman-fried.html?sear
 
 **How Many Square Feet Does $1,500 a Month Get You?**\
 `Here’s where renters get the most and least space for the money in large U.S. cities.`\
-https://nytimes.com/2023/05/11/realestate/how-many-square-feet-does-1500-a-month-get-you.html?searchResultPosition=5
+https://nytimes.com/2023/05/11/realestate/square-footage-rent-economy.html?searchResultPosition=5
 
 **Before Taylor Swift or David Bowie, There Was Sarah Bernhardt**\
 `A centenary exhibition in Paris honors the French actress who invented the concept of the global star.`\
