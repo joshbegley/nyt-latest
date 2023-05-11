@@ -1,4 +1,4 @@
-**Sudan’s Clashing Forces Sign Commitment to Allow Aid In, but Not a Truce**\
+**Sudan’s Clashing Forces Agree to Allow Aid In, but Not to a Truce, U.S. Says**\
 `Officials hope the agreement will allow the delivery of life-saving aid and ease conditions for the millions of Sudanese suffering after nearly four weeks of fighting between rival generals.`\
 https://nytimes.com/2023/05/11/world/africa/sudan-fighting-negotiations.html?searchResultPosition=1
 
