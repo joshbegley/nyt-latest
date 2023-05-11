@@ -1,5 +1,5 @@
 **Adams Weakens Right-to-Shelter Rules, Anticipating Migrant Surge**\
-`Saying New York City had “reached its limit,” Mayor Eric Adams said it would loosen regulations that have protected homeless people seeking shelter in the city.`\
+`Saying New York City had “reached our limit,” Mayor Eric Adams said it would loosen regulations that have protected homeless people seeking shelter in the city.`\
 https://nytimes.com/2023/05/10/nyregion/nyc-right-to-shelter-migrants.html?searchResultPosition=1
 
 **McCarthy Blocks Tlaib Event Marking Palestinian Displacement**\
