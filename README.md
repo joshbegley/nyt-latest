@@ -22,7 +22,7 @@ https://nytimes.com/2023/05/11/business/kemal-dervis-dead.html?searchResultPosit
 `Luis Arraez of the Miami Marlins is hitting nearly .400 despite having one of the game’s softest swings. He could become the third player with a batting title in each league.`\
 https://nytimes.com/2023/05/11/sports/baseball/luis-arraez-miami-marlins.html?searchResultPosition=6
 
-**Debt Limit Meeting Between Biden and Republicans Delayed as Both Sides Seek Deal**\
+**Meeting Between Biden and Republicans Delayed as Sides Pursue Debt Limit Deal**\
 `The decision to delay Friday’s expected meeting to next week was cast as a positive development, one that could allow officials to find agreement before the United States defaults on its debt.`\
 https://nytimes.com/2023/05/11/business/economy/biden-republicans-debt-limit-meeting.html?searchResultPosition=7
 
