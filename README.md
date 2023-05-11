@@ -1,6 +1,6 @@
 **Sudan’s Clashing Forces Sign Commitment to Allow Aid In, but Not a Truce**\
 `Officials hope the agreement will allow the delivery of life-saving aid and ease conditions for the millions of Sudanese suffering after nearly four weeks of fighting between rival generals.`\
-https://nytimes.com/2023/05/11/world/africa/sudan-fighting-cease-fire.html?searchResultPosition=1
+https://nytimes.com/2023/05/11/world/africa/sudan-fighting-negotiations.html?searchResultPosition=1
 
 **Trump’s Second-Term Goal: Shattering the Norms He Didn’t Already Break**\
 `The former president made it clearer than ever this week that on issues including Ukraine, the economy and the rule of law, his return to office would lead to a sharp departure from core American values.`\
