@@ -1,40 +1,40 @@
-**Five Photography Assignments That Invite You to Look Closely at the World**\
-`Students, try one of these exercises inspired by the visual series The Take. What can you learn about the world by looking at it through a particular lens?`\
-https://nytimes.com/2023/05/11/learning/lesson-plans/five-photography-assignments-that-invite-you-to-look-closely-at-the-world.html?searchResultPosition=1
+**Friends Once ‘Escaped’ Her Cooking. Now, She’s One of the World’s Best Chefs.**\
+`Ana Ros broke through the boys’ club of fine dining, earning Hisa Franko in Slovenia two Michelin stars and a spot on the list of the world’s best restaurants.`\
+https://nytimes.com/2023/05/11/business/ana-ros-michelin-woman-chef.html?searchResultPosition=1
 
-**How Do You Feel About Spoilers?**\
-`Do you like knowing how a book, a movie or a TV show is going to end? Or do you avoid spoilers at all costs?`\
-https://nytimes.com/2023/05/11/learning/how-do-you-feel-about-spoilers.html?searchResultPosition=2
+**U.S. Focuses on Invigorating ‘Chiplets’ to Stay Cutting-Edge in Tech**\
+`Chiplets, a way to design chips for higher performance, has become a key prong of U.S. industrial policy. But pushing for more of this activity domestically is challenging.`\
+https://nytimes.com/2023/05/11/technology/us-chiplets-tech.html?searchResultPosition=2
 
-**Why Are All Those People Outside H&M, Again?**\
-`How consumers became obsessed with fashion collaborations, courtesy of the Swedish mall staple.`\
-https://nytimes.com/2023/05/11/style/h-and-m-collaborations.html?searchResultPosition=3
+**Luxury Imports to Russia Take a Detour Around Sanctions — Through Dubai**\
+`More than a year into Vladimir Putin’s invasion, the web of global trade has adjusted to Western sanctions, with a network of middlemen sending cars, electronics and more to Russia.`\
+https://nytimes.com/2023/05/11/world/europe/dubai-russia-cars-export.html?searchResultPosition=3
 
-**On the Border, on the Cusp of Change**\
-`Miriam Jordan, The Times’s national immigration correspondent, is covering a major shift in border policy this week.`\
-https://nytimes.com/2023/05/11/insider/miriam-jordan-immigration.html?searchResultPosition=4
+**Families of Those Lost to Covid Wrestle With Mixed Emotions as Emergency Ends**\
+`More than 1.1 million Americans have died of Covid. An official end to the health emergency has landed in complicated ways for those affected most acutely.`\
+https://nytimes.com/2023/05/11/us/covid-deaths-pandemic.html?searchResultPosition=4
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/05/11/crosswords/wordle-review-answer-691.html?searchResultPosition=5
+**Van Gogh and the Consolation of Trees**\
+`A revelatory show at the Metropolitan Museum of Art reunites 24 paintings of cypresses and unchains them from their somber associations.`\
+https://nytimes.com/2023/05/11/arts/design/van-gogh-cypresses-met-museum.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/05/11/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**A Fantastical Art Gallery Masquerading as a Suburban Garage**\
+`In Arlington, Va., Margaret Bakke has made the exhibition space in her driveway a celebration of creativity.`\
+https://nytimes.com/2023/05/11/t-magazine/margaret-bakke-friends-artspace.html?searchResultPosition=6
 
-**Hundreds of Pounds of Pasta**\
-`Maybe you heard about the pasta that was found dumped along a creek in New Jersey? Make up a story that explains how and why it got there.`\
-https://nytimes.com/2023/05/11/learning/hundreds-of-pounds-of-pasta.html?searchResultPosition=7
+**Putting the ‘Springs’ Back in Palm Springs**\
+`A new spa at the California resort city’s original — and only — hot spring, adds to a growing number of retreats in the Coachella Valley where you can soak the stress away.`\
+https://nytimes.com/2023/05/11/travel/palm-springs-spa-travel-retreats.html?searchResultPosition=7
 
-**Word of the Day: splay**\
-`This word has appeared in seven articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/05/11/learning/word-of-the-day-splay.html?searchResultPosition=8
+**‘De-Americanize’: How China Is Remaking Its Chip Business**\
+`Seven months after Washington unveiled tough curbs, Chinese companies are doubling down on homegrown supply chains and drawing billions in cash from Beijing and investors.`\
+https://nytimes.com/2023/05/11/technology/china-us-chip-controls.html?searchResultPosition=8
 
-**Whatever Happens Next, Turkey Is in Trouble**\
-`Even if Recep Tayyip Erdogan is dethroned, his political project is going nowhere.`\
-https://nytimes.com/2023/05/11/opinion/turkey-election-erdogan.html?searchResultPosition=9
+**How Bailey Zimmerman Charmed Nashville**\
+`In short order, the 23-year-old singer-songwriter has the top song at country radio, a slot on the biggest tour of the summer and a rousing new album. He’s trying not to fumble.`\
+https://nytimes.com/2023/05/11/arts/music/bailey-zimmerman-religiously-the-album.html?searchResultPosition=9
 
-**Corrections: May 11, 2023**\
-`Corrections that appeared in print on Thursday, May 11, 2023.`\
-https://nytimes.com/2023/05/11/pageoneplus/corrections-may-11-2023.html?searchResultPosition=10
+**As Covid Emergency Ends, Surveillance Shifts to the Sewers**\
+`With other virus tracking efforts winding down, wastewater data is likely to become increasing important in the months ahead, scientists say.`\
+https://nytimes.com/2023/05/11/health/covid-sewage-wastewater-data.html?searchResultPosition=10
 
