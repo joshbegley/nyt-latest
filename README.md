@@ -15,7 +15,7 @@ https://nytimes.com/interactive/2023/05/11/arts/editors-recommendation-bellhooks
 https://nytimes.com/interactive/2023/05/11/science/murder-hornets-wasps.html?searchResultPosition=4
 
 **CNN Chairman Defends Decision to Host Trump Town Hall**\
-`“People woke up and they know what the stakes are in this election in a way that they didn’t the day before,” Chris Licht, said in a morning call at the network.`\
+`“People woke up and they know what the stakes are in this election in a way that they didn’t the day before,” Chris Licht said in a morning call at the network.`\
 https://nytimes.com/2023/05/11/business/media/cnn-donald-trump-chris-licht.html?searchResultPosition=5
 
 **What to Know About Prince Harry’s Lawsuits Against the British Tabloids**\
