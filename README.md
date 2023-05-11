@@ -1,6 +1,6 @@
 **Why Are All Those People Outside H&M, Again?**\
 `How consumers became obsessed with fashion collaborations, courtesy of the Swedish mall staple.`\
-https://nytimes.com/2023/05/11/style/fast-fashion-h-and-m-why-are-all-those-people-outside-hm-again.html?searchResultPosition=1
+https://nytimes.com/2023/05/11/style/h-and-m-collaborations.html?searchResultPosition=1
 
 **On the Border, on the Cusp of Change**\
 `Miriam Jordan, The Times’s national immigration correspondent, is covering a major shift in border policy this week.`\
