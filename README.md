@@ -20,7 +20,7 @@ https://nytimes.com/2023/05/11/us/politics/debt-limit-yellen-14th-amendment.html
 
 **What Comes Next for George Santos?**\
 `The fraud and money laundering charges unsealed on Wednesday do not immediately restrict Mr. Santos from serving in Congress, but the consequences in the months ahead could be severe.`\
-https://nytimes.com/2023/05/10/nyregion/what-comes-next-for-george-santos.html?searchResultPosition=6
+https://nytimes.com/2023/05/10/nyregion/george-santos-investigation.html?searchResultPosition=6
 
 **Kaitlan Collins, in a White Suit, Takes on Trump**\
 `Amid a night of verbal parrying, the CNN host made another statement.`\
