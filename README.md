@@ -7,7 +7,7 @@ https://nytimes.com/2023/05/11/business/economy/biden-republicans-debt-limit-mee
 https://nytimes.com/2023/05/11/nyregion/george-santos-brazil-checks.html?searchResultPosition=2
 
 **Daniel Penny Will Be Charged in Subway Chokehold Killing of Jordan Neely**\
-`Mr. Penny held Mr. Neely in a chokehold for several minutes, killing him. He is expected to surrender on Friday, though the specific charges were not yet known.`\
+`Mr. Penny choked Mr. Neely for several minutes on the floor of an F train. He is expected to surrender on Friday, though the specific charges were not yet known.`\
 https://nytimes.com/2023/05/11/nyregion/daniel-penny-charges-jordan-neely-subway-death.html?searchResultPosition=3
 
 **House Approves Stringent G.O.P. Border Bill, Attacking Biden on Immigration**\
