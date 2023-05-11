@@ -3,7 +3,7 @@
 https://nytimes.com/2023/05/10/crosswords/daily-puzzle-2023-05-11.html?searchResultPosition=1
 
 **Adams Weakens Right-to-Shelter Rules, Anticipating Migrant Surge**\
-`Saying New York City had “reached our limit,” Mayor Eric Adams said it would loosen regulations that have protected homeless people seeking shelter in the city.`\
+`Saying New York City had “reached our limit,” the Adams  administration said it would loosen regulations that have protected homeless families seeking shelter.`\
 https://nytimes.com/2023/05/10/nyregion/nyc-right-to-shelter-migrants.html?searchResultPosition=2
 
 **McCarthy Blocks Tlaib Event Marking Palestinian Displacement**\
