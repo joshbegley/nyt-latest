@@ -4,7 +4,7 @@ https://nytimes.com/2023/05/11/technology/elon-musk-ceo-twitter.html?searchResul
 
 **Your Friday Briefing: A Guide to the Thai Elections**\
 `Today, our Southeast Asia bureau chief explains what’s at stake in the Thai election. Also, a court in Pakistan ordered the release of Imran Khan.`\
-https://nytimes.com/2023/05/11/briefing/your-friday-briefing-a-guide-to-the-thai-elections.html?searchResultPosition=2
+https://nytimes.com/2023/05/11/briefing/thai-elections-thaksin-khan-pakistan.html?searchResultPosition=2
 
 **Jacklyn Zeman, Nurse Bobbie on ‘General Hospital,’ Dies at 70**\
 `Ms. Zeman, the Emmy-nominated actress who played the same role for nearly a half-century, died after a short battle with cancer, her family said.`\
