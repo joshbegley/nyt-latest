@@ -28,7 +28,7 @@ https://nytimes.com/2023/05/11/science/weather-forecast-joints-animals-clouds.ht
 
 **Why You’re Probably Hearing Less About Corporate Climate Initiatives**\
 `Amid accusations of “greenwashing” and “woke capitalism,” some business advisers say staying quiet might be the best option.`\
-https://nytimes.com/2023/05/11/business/dealbook/business-esg.html?searchResultPosition=8
+https://nytimes.com/2023/05/11/business/dealbook/climate-change-business.html?searchResultPosition=8
 
 **‘Daddy’ Review: Deeper Into the Internet’s Darkest Corners**\
 `In Marion Siéfert’s much-anticipated new show, the French director explores the dynamics of online grooming.`\
