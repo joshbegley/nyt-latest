@@ -22,8 +22,8 @@ https://nytimes.com/2023/05/12/crosswords/wordle-review-answer-692.html?searchRe
 `If you were going to write a letter to the editor of The New York Times this week, what article would you choose to respond to? Why?`\
 https://nytimes.com/2023/05/12/learning/student-letters-to-the-editor.html?searchResultPosition=6
 
-**Britain’s Economy Continues to Grow Slowly**\
-`The increase of 0.1 percent in the three months that ended in March, driven by construction and information services, matched the slow rise in the previous quarter.`\
+**Britain’s Economy Ekes Out Growth in First Quarter**\
+`The increase of 0.1 percent in the three months that ended in March, which was driven by construction and information services, matched the slow rise in the previous quarter.`\
 https://nytimes.com/2023/05/12/business/britain-economy-1q-gdp.html?searchResultPosition=7
 
 **Cyclone Mocha Moves Toward Myanmar and Bangladesh, Bringing Flood Threats**\
