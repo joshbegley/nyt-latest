@@ -14,7 +14,7 @@ https://nytimes.com/2023/05/12/us/politics/clean-energy-unions.html?searchResult
 `As Mr. Adams began speaking at the commencement service, many of the graduates, in their caps and gowns, turned away from him in a show of protest.`\
 https://nytimes.com/2023/05/12/nyregion/eric-adams-cuny-graduation.html?searchResultPosition=4
 
-**Crowds, but Not Chaos, at the U.S. Border as Pandemic Restrictions End**\
+**Border Is Calm as Crowds Continue to Cross and Administration Fights Court Ruling**\
 `Despite the relative calm, the Biden administration faces court challenges that they say may undermine efforts to deal with record levels of border crossings.`\
 https://nytimes.com/2023/05/12/us/politics/title-42-expires-border-migrants.html?searchResultPosition=5
 
