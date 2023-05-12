@@ -1,6 +1,6 @@
 **Immigration Politics Return to the Forefront as the 2024 Race Picks Up Pace**\
 `Donald J. Trump rode border security to the presidency in 2016. Republicans hope the issue will be at the center of the debate again.`\
-https://nytimes.com/2023/05/12/us/politics/immigration-politics-return-to-the-forefront-as-the-2024-race-picks-up-pace.html?searchResultPosition=1
+https://nytimes.com/2023/05/12/us/politics/immigration-politics-2024-election.html?searchResultPosition=1
 
 **The Los Angeles Opera, Post-Plácido Domingo**\
 `The star tenor played a central role at the company from the start. Since his ouster, it has worked to define itself on its own terms.`\
