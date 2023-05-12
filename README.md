@@ -1,5 +1,5 @@
 **Bernadine Strik, Whose Insights Helped Blueberries Thrive, Dies at 60**\
-`A horticulture professor at Oregon State University, she conducted meticulous studies that persuaded the blueberry industry to adopt more effective methods.`\
+`A horticulturist, she discovered farming methods that increased yields of the fruit as its health benefits became widely accepted and demand for it grew.`\
 https://nytimes.com/2023/05/12/science/bernadine-strik-dead.html?searchResultPosition=1
 
 **Can My New Boyfriend Stop My Ex From Visiting Our Dog?**\
