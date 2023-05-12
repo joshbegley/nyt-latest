@@ -1,6 +1,6 @@
 **Elon Musk Makes Sense. Yes, Really.**\
 `Elon Musk’s seemingly erratic behavior is rational if one looks at the true source of his wealth.`\
-https://nytimes.com/2023/05/12/opinion/elon-musk-makes-sense-yes-really.html?searchResultPosition=1
+https://nytimes.com/2023/05/12/opinion/elon-musk-twitter-tesla.html?searchResultPosition=1
 
 **Migrants, in Limbo After Title 42 Ends, Eye Next Steps**\
 `Pandemic-era migration restrictions were lifted without a fresh spike in border crossings. Thousands of migrants now find themselves in a holding pattern.`\
