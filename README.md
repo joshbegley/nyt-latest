@@ -1,5 +1,5 @@
 **Cyclone Mocha Moves Toward Myanmar and Bangladesh, Bringing Flood Threats**\
-`If current forecasts hold, the storm could be the strongest and most dangerous since 2010 to hit the area, which the site of many refugee camps.`\
+`If current forecasts hold, the storm could be the strongest and most dangerous since 2010 to hit the area, which is the site of many refugee camps.`\
 https://nytimes.com/article/cyclone-mocha-bangladesh-myanmar.html?searchResultPosition=1
 
 **Minutes After Title 42 Expired, Scenes of Anxiety and Weariness Along the Border**\
