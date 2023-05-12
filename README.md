@@ -3,7 +3,7 @@
 https://nytimes.com/2023/05/12/world/europe/ukraine-bakhmut-russia.html?searchResultPosition=1
 
 **Dan Snyder to Proceed With Sale of Washington Commanders to Josh Harris**\
-`The embattled N.F.L. owner had reached a $6 billion deal with a group led by Harris in April, but continued to seek higher bids. The franchise’s sale could be approved by the league at the end of the month.`\
+`The embattled N.F.L. owner had reached a $6 billion deal in April with a group led by Harris but continued to seek higher bids. The franchise’s sale could be approved by the league at the end of this month.`\
 https://nytimes.com/2023/05/12/sports/football/washington-commanders-sale-josh-harris.html?searchResultPosition=2
 
 **Garret Graves, Republicans’ ‘Assistant Coach,’ Sees Hope in Debt Limit Talks**\
