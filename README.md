@@ -3,7 +3,7 @@
 https://nytimes.com/2023/05/12/world/middleeast/turkey-election-erdogan.html?searchResultPosition=1
 
 **Backlogged Courts, and Years of Delays, Await Many Migrants**\
-`A severe shortage of immigration judges have led to long delays for asylum cases. The backlog is expected to grow now that pandemic-era border restrictions have been lifted.`\
+`A severe shortage of immigration judges has led to long delays for asylum cases. The backlog is expected to grow now that pandemic-era border restrictions have been lifted.`\
 https://nytimes.com/2023/05/12/us/politics/immigration-courts-delays-migrants-title-42.html?searchResultPosition=2
 
 **Immigration Politics Return to the Forefront as the 2024 Race Picks Up Pace**\
