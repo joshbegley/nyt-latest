@@ -1,40 +1,40 @@
+**The Original Influencer and More: The Week in Reporter Reads**\
+`Articles from around The Times, narrated just for you.`\
+https://nytimes.com/2023/05/12/podcasts/heather-armstrong-turkey-earthquake.html?searchResultPosition=1
+
 **Wendy Sherman, U.S. Diplomat Known for ‘Hard Conversations in Hard Places,’ to Retire**\
 `She began her first diplomatic job 30 years ago, led talks on the Iran nuclear deal and grapples with China and Russia. She is also the first woman to be deputy secretary of state.`\
-https://nytimes.com/2023/05/12/us/politics/wendy-sherman-diplomat-retire.html?searchResultPosition=1
+https://nytimes.com/2023/05/12/us/politics/wendy-sherman-diplomat-retire.html?searchResultPosition=2
 
 **How Chris Messina Forced Matt Damon to Up His Game in ‘Air’**\
 `The “actor’s actor” ad-libbed so many funny threats that the movie star couldn’t keep a straight face and resorted to improvisation to keep up.`\
-https://nytimes.com/2023/05/12/movies/chris-messina-air.html?searchResultPosition=2
+https://nytimes.com/2023/05/12/movies/chris-messina-air.html?searchResultPosition=3
 
 **New York Theater Workshop Announces New Artistic Director’s First Season**\
 `The Off Broadway nonprofit will embrace risk, said Patricia McGregor, its leader, favoring fresh over established works.`\
-https://nytimes.com/2023/05/12/theater/new-york-theater-workshop-season.html?searchResultPosition=3
+https://nytimes.com/2023/05/12/theater/new-york-theater-workshop-season.html?searchResultPosition=4
 
 **The Weekender**\
 `The “female Bob Dylan” and folk pioneer who vanished. Also in this edition: New York's pizza pop-ups, and the legacy of The Legend of Zelda.`\
-https://nytimes.com/interactive/2023/05/12/briefing/the-weekender.html?searchResultPosition=4
+https://nytimes.com/interactive/2023/05/12/briefing/the-weekender.html?searchResultPosition=5
 
 **Serbia Offers Amnesty for Illegal Firearms, and Thousands Are Turned In**\
 `The unregistered weapons were handed over to the authorities as the government vows to disarm the country after two mass shootings.`\
-https://nytimes.com/2023/05/12/world/europe/serbia-shooting-guns-amnesty.html?searchResultPosition=5
+https://nytimes.com/2023/05/12/world/europe/serbia-shooting-guns-amnesty.html?searchResultPosition=6
 
 **NBCUniversal Ad Chief, in Talks to Run Twitter, to Depart Immediately**\
 `The executive, Linda Yaccarino, is said to be in talks to become the chief executive of Twitter.`\
-https://nytimes.com/2023/05/12/business/media/yaccarino-twitter-ceo-musk.html?searchResultPosition=6
+https://nytimes.com/2023/05/12/business/media/yaccarino-twitter-ceo-musk.html?searchResultPosition=7
 
 **Hollywood Writers’ Strike Puts the Tony Awards in Jeopardy**\
 `The Tonys, set to be telecast on June 11, are Broadway’s biggest marketing moment. But the strike by the Writers Guild of America means the show might not go on.`\
-https://nytimes.com/2023/05/12/theater/writers-strike-tony-awards.html?searchResultPosition=7
+https://nytimes.com/2023/05/12/theater/writers-strike-tony-awards.html?searchResultPosition=8
 
 **Why P-22 Is Still Everywhere in Los Angeles**\
 `After his death, the mountain lion from Griffith Park was inescapable and celebrated in a museum exhibit as a “hero.”`\
-https://nytimes.com/2023/05/12/us/los-angeles-mountain-lion-p22.html?searchResultPosition=8
+https://nytimes.com/2023/05/12/us/los-angeles-mountain-lion-p22.html?searchResultPosition=9
 
 **More Options to Pay for Medical Care, but Some May Be Costly**\
 `Consumer experts are warning patients that some offerings charge much higher interest rates than regular credit cards.`\
-https://nytimes.com/2023/05/12/your-money/medical-care-credit-cards.html?searchResultPosition=9
-
-**Daniel Penny Surrenders to Face Charges in Subway Killing of Jordan Neely**\
-`The Manhattan district attorney’s office will charge Mr. Penny with second-degree manslaughter for choking Mr. Neely, a homeless man, to death.`\
-https://nytimes.com/2023/05/12/nyregion/daniel-penny-arrest-jordan-neely.html?searchResultPosition=10
+https://nytimes.com/2023/05/12/your-money/medical-care-credit-cards.html?searchResultPosition=10
 
