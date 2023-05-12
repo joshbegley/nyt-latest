@@ -15,7 +15,7 @@ https://nytimes.com/interactive/2023/05/12/us/politics/2024-republicans-presiden
 https://nytimes.com/2023/05/12/us/politics/clean-energy-unions.html?searchResultPosition=4
 
 **CUNY Law School Graduates Turn Their Backs to Mayor Adams**\
-`As Mr. Adams began speaking at the commencement service, many of the graduates, in their caps and gowns, turned away from him in a show of protest.`\
+`As Mayor Eric Adams began speaking at the law school’s commencement service, many of the graduates, in their caps and gowns, turned away from him in a show of protest.`\
 https://nytimes.com/2023/05/12/nyregion/eric-adams-cuny-graduation.html?searchResultPosition=5
 
 **Border Is Calm as Crowds Cross and Biden Administration Fights Court Ruling**\
