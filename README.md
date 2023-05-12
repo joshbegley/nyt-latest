@@ -1,6 +1,6 @@
 **NBCUniversal Ad Chief, in Talks to Run Twitter, to Depart Immediately**\
 `The executive, Linda Yaccarino, is said to be in talks to become the chief executive of Twitter.`\
-https://nytimes.com/2023/05/12/business/media/yaccarino-twitter-musk.html?searchResultPosition=1
+https://nytimes.com/2023/05/12/business/media/yaccarino-twitter-ceo-musk.html?searchResultPosition=1
 
 **Hollywood Writers’ Strike Puts the Tony Awards in Jeopardy**\
 `The Tonys, set to be telecast on June 11, are Broadway’s biggest marketing moment. But the strike by the Writers Guild of America means the show might not go on.`\
