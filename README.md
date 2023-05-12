@@ -1,40 +1,40 @@
-**How to Style a Coffee Table**\
-`It takes some effort to create a well-styled tablescape. But you can do it yourself.`\
-https://nytimes.com/interactive/2023/05/12/realestate/coffee-table-style-decor.html?searchResultPosition=1
+**The New York Times News Quiz, May 12, 2023**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2023/05/12/briefing/news-quiz-trump-covid-title-42.html?searchResultPosition=1
 
-**Chinese Dissident Sentenced to 8 Years After He Tried to Fly to His Dying Wife**\
-`The activist Yang Maodong said he had only wanted China to “fully realize authentic freedom, democracy, human rights and rule of law.”`\
-https://nytimes.com/2023/05/12/world/asia/china-dissident-guo-sentenced.html?searchResultPosition=2
+**A New Hope for Manhattan’s Chino Latino Restaurants: TikTok**\
+`These fading institutions, where lo mein and mofongo are served side by side, have found a new customer base.`\
+https://nytimes.com/2023/05/12/dining/chino-latino-food-nyc-tiktok.html?searchResultPosition=2
 
-**Mayorkas Vows Tough Penalties for Illegal Border Crossings**\
-`As Title 42 expired, the Homeland Security secretary said that people entering the United States illegally would face “tougher consequences.”`\
-https://nytimes.com/2023/05/12/us/us-mexico-border-mayorkas.html?searchResultPosition=3
+**A Crucial Question in Thailand’s Election: Can You Criticize the King?**\
+`Liberal voters have intensified their scrutiny of the Thai monarchy in recent years. Conservatives have responded with a campaign to defend the institution at all costs.`\
+https://nytimes.com/2023/05/12/world/asia/thailand-election-monarchy.html?searchResultPosition=3
 
-**‘Crater’ Review: A Rocking Road Trip**\
-`This Disney film is surprisingly nimble at incorporating an emotional core into its sci-fi adventure.`\
-https://nytimes.com/2023/05/12/movies/crater-review-a-rocking-road-trip.html?searchResultPosition=4
+**A Guide to Eurovision 2023**\
+`The international song contest — which has helped launch acts like ABBA and Maneskin — takes place in England this year. Here’s what to expect from this edition.`\
+https://nytimes.com/2023/05/12/arts/music/eurovision-2023-how-to-watch.html?searchResultPosition=4
 
-**To Meet Sky-High Expectations, Tears of the Kingdom Goes Vertical**\
-`The Legend of Zelda’s latest entry required the series producer Eiji Aonuma and the director Hidemaro Fujibayashi to optimize the location of floating islands and the thrill of skydiving.`\
-https://nytimes.com/2023/05/12/arts/zelda-tears-kingdom-aonuma-fujibayashi.html?searchResultPosition=5
+**Asylum Seekers Are Prey for Gangs and Officials**\
+`Migrants deported by the United States to Mexico face criminal horrors and an asylum system where cases linger for years without resolution.`\
+https://nytimes.com/2023/05/12/world/americas/migrants-deported-us-mexico.html?searchResultPosition=5
 
-**Dog Reporting Is No Fluffy Subject**\
-`Why hold back when covering the Westminster Kennel Club Dog Show? Write a profile of a retired Samoyed.`\
-https://nytimes.com/2023/05/12/insider/dog-reporting-is-no-fluffy-subject.html?searchResultPosition=6
+**The Myth of the Lone Wolf Latino**\
+`The Latino shooter in Allen, Texas, isn’t the first nonwhite proponent of white supremacy.`\
+https://nytimes.com/2023/05/12/opinion/allen-texas-shooting.html?searchResultPosition=6
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/05/12/crosswords/spelling-bee-forum.html?searchResultPosition=7
+**She Wrote a Blistering Satire About Publishing. The Publishing Industry Loves It.**\
+`In “Yellowface,” R.F. Kuang draws on her own experiences to tackle issues like cultural appropriation and representation. “I hate the feeling of being read just because somebody’s trying to tick off a diversity check box,” she says.`\
+https://nytimes.com/2023/05/12/books/yellowface-rf-kuang.html?searchResultPosition=7
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/05/12/crosswords/wordle-review-answer-692.html?searchResultPosition=8
+**‘Mommunes’: Mothers Are Living Single Together**\
+`Women are joining forces under one roof, using the age-old power of sisterhood to split the household bills and raise their children.`\
+https://nytimes.com/2023/05/12/realestate/single-mother-households-co-living.html?searchResultPosition=8
 
-**Student Letters to the Editor**\
-`If you were going to write a letter to the editor of The New York Times this week, what article would you choose to respond to? Why?`\
-https://nytimes.com/2023/05/12/learning/student-letters-to-the-editor.html?searchResultPosition=9
+**Group Tied to Influential Conservative Activist Spent $183 Million in a Year**\
+`The activist, Leonard Leo, has been instrumental in pushing the federal judiciary to the right. A new tax filing offers a glimpse of the deep pool of money flowing into conservative causes.`\
+https://nytimes.com/2023/05/12/us/politics/leonard-leo-marble-freedom-trust.html?searchResultPosition=9
 
-**Britain’s Economy Ekes Out Growth in First Quarter**\
-`The increase of 0.1 percent in the three months that ended in March, which was driven by construction and information services, matched the slow rise in the previous quarter.`\
-https://nytimes.com/2023/05/12/business/britain-economy-1q-gdp.html?searchResultPosition=10
+**With ‘Monica,’ Trace Lysette Is Ready for More**\
+`The transgender actress plays the title role in a new drama that, she says, is “not just a trans story, it’s a family story.”`\
+https://nytimes.com/2023/05/12/movies/with-monica-trace-lysette-is-ready-for-more.html?searchResultPosition=10
 
