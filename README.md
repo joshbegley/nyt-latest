@@ -22,7 +22,7 @@ https://nytimes.com/2023/05/12/us/politics/title-42-expires-border-migrants.html
 `Elon Musk’s seemingly erratic behavior is rational if one looks at the true source of his wealth.`\
 https://nytimes.com/2023/05/12/opinion/elon-musk-twitter-tesla.html?searchResultPosition=6
 
-**With Title 42 Expired, Migrants in Limbo Ponder Next Steps**\
+**In Migrant Camps, Anxiety and Relief: ‘It Was Worth It. We Are in America.’**\
 `Pandemic-era migration restrictions were lifted without a fresh spike in border crossings. Thousands of migrants now find themselves in a holding pattern.`\
 https://nytimes.com/2023/05/12/us/title-42-migrants.html?searchResultPosition=7
 
