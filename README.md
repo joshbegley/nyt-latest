@@ -1,14 +1,14 @@
+**Woman With ‘Doomsday’ Beliefs Found Guilty in Children’s Deaths**\
+`Lori Vallow Daybell was convicted in Idaho of murder in the deaths of two of her children and of conspiring to murder her husband’s previous wife. Prosecutors said she was driven by her extreme religious beliefs.`\
+https://nytimes.com/2023/05/12/us/lori-vallow-daybell-guilty.html?searchResultPosition=1
+
 **‘The Beautiful Lady’ Review: A Cabaret for the New Order**\
 `Artists and dreamers sing of revolution in a musical set on the cusp of the birth of the Soviet Union.`\
-https://nytimes.com/2023/05/12/theater/the-beautiful-lady-review.html?searchResultPosition=1
+https://nytimes.com/2023/05/12/theater/the-beautiful-lady-review.html?searchResultPosition=2
 
 **Behind the New Indictments of El Chapo’s Sons, Rivalry Seethed Between Agencies**\
 `When sweeping charges against the Chapitos were announced last month, the Justice Department presented a unified front. It was another story behind the scenes.`\
-https://nytimes.com/2023/05/12/us/el-chapo-sons-fentanyl-charges.html?searchResultPosition=2
-
-**Woman With ‘Doomsday’ Beliefs Found Guilty in Children’s Deaths**\
-`Lori Vallow Daybell was convicted in Idaho of murder in the deaths of two of her children and of conspiring to murder her husband’s previous wife. Prosecutors said she was driven by her extreme religious beliefs.`\
-https://nytimes.com/2023/05/12/us/lori-vallow-daybell-guilty.html?searchResultPosition=3
+https://nytimes.com/2023/05/12/us/el-chapo-sons-fentanyl-charges.html?searchResultPosition=3
 
 **Bernadine Strik, Whose Insights Helped Blueberries Thrive, Dies at 60**\
 `A horticulturist, she discovered farming methods that increased yields of the fruit as its health benefits became widely accepted and demand for it grew.`\
