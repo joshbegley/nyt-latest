@@ -31,7 +31,7 @@ https://nytimes.com/2023/05/12/us/taylor-swift-memoir-bts-fans.html?searchResult
 https://nytimes.com/2023/05/12/world/europe/ukraine-bakhmut-russia.html?searchResultPosition=8
 
 **Dan Snyder to Proceed With Sale of Washington Commanders to Josh Harris**\
-`The embattled N.F.L. owner had reached a $6 billion deal in April with a group led by Harris but continued to seek higher bids. Other league owners are expected to review the sale at the end of this month.`\
+`The embattled N.F.L. owner had reached a $6 billion deal in April with a group led by Harris but continued to seek higher bids. Other league owners are expected to review the sale at the end of this month.`\
 https://nytimes.com/2023/05/12/sports/football/washington-commanders-sale-josh-harris.html?searchResultPosition=9
 
 **Garret Graves, Republicans’ ‘Assistant Coach,’ Sees Hope in Debt Limit Talks**\
