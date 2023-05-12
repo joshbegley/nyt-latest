@@ -1,5 +1,5 @@
-**Hollywood Writers’ Strike Endangers Broadway’s Night to Shine**\
-`The Tony Awards, set to be telecast on June 11, is Broadway’s biggest marketing moment. But the strike by the Writers Guild of America means the show might not go on.`\
+**Hollywood Writers’ Strike Puts the Tony Awards in Jeopardy**\
+`The Tonys, set to be telecast on June 11, are Broadway’s biggest marketing moment. But the strike by the Writers Guild of America means the show might not go on.`\
 https://nytimes.com/2023/05/12/theater/writers-strike-tony-awards.html?searchResultPosition=1
 
 **Why P-22 Is Still Everywhere in Los Angeles**\
