@@ -35,6 +35,6 @@ https://nytimes.com/2023/05/12/style/allison-flynn-jeffrey-hood-wedding.html?sea
 https://nytimes.com/video/world/americas/100000008904055/title-42-immigration-afghanistan-border.html?searchResultPosition=9
 
 **Tornadoes Reported Near Oklahoma City**\
-`A tornado warning was in place for parts of Cleveland and McClain counties, south of Oklahoma City, until 10:15 p.m. Central time.`\
+`Tornadoes landed in areas south of Oklahoma City and were also spotted in Kansas and Nebraska.`\
 https://nytimes.com/2023/05/11/us/oklahoma-tornado-warnings.html?searchResultPosition=10
 
