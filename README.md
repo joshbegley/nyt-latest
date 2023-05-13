@@ -31,7 +31,7 @@ https://nytimes.com/2023/05/13/opinion/soft-hard-pants.html?searchResultPosition
 https://nytimes.com/2023/05/13/opinion/water-shortage-west.html?searchResultPosition=8
 
 **No Playing Ostrich With Trump**\
-`As Sun Tzu says, ‘Know your enemy.’`\
+`As Sun Tzu says, ‘Know the enemy.’`\
 https://nytimes.com/2023/05/13/opinion/trump-town-hall-cnn.html?searchResultPosition=9
 
 **I Know the Pressure of Being a Doctor. Motherhood Is Something Else.**\
