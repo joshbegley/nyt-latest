@@ -26,15 +26,15 @@ https://nytimes.com/video/world/americas/100000008905761/title-42-mexico-asylum.
 `The storm in Port Isabel did “extensive damage” to several structures and left 10 people injured, with two of them in critical condition, officials said.`\
 https://nytimes.com/2023/05/13/us/tornado-texas-port-isabel.html?searchResultPosition=7
 
+**Meet this year’s Eurovision hosts.**\
+`The most well-known to American viewers is the Emmy Award-winning actress Hannah Waddingham, who appears on TV’s “Ted Lasso.”`\
+https://nytimes.com/2023/05/13/arts/music/eurovision-hosts-hannah-waddingham.html?searchResultPosition=8
+
 **Biden Warns of ‘Sinister Forces’ Trying to Reverse Racial Progress**\
 `The president’s commencement address at Howard University, a historically Black institution, came as Democratic strategists have expressed concerns about muted enthusiasm for Mr. Biden among Black voters.`\
-https://nytimes.com/2023/05/13/us/politics/biden-howard-commencement-black-voters.html?searchResultPosition=8
+https://nytimes.com/2023/05/13/us/politics/biden-howard-commencement-black-voters.html?searchResultPosition=9
 
 **12 Million People Are Under a Heat Advisory in the Pacific Northwest**\
 `An area of high pressure will build a “heat dome” over the western United States and Canada, leading to potential record temperatures, forecasters said.`\
-https://nytimes.com/2023/05/13/us/heat-wave-pacific-northwest-canada.html?searchResultPosition=9
-
-**North Carolina Governor Vetoes Abortion Ban but Faces Override**\
-`The Republican-led legislature has a supermajority that could be used to override the governor’s veto and enact the 12-week ban.`\
-https://nytimes.com/2023/05/13/us/abortion-north-carolina-governor-veto.html?searchResultPosition=10
+https://nytimes.com/2023/05/13/us/heat-wave-pacific-northwest-canada.html?searchResultPosition=10
 
