@@ -1,40 +1,40 @@
+**Inside the Big World of Small Objects**\
+`For over 40 years, Tom Bishop’s dollhouse miniatures show has been the gold standard for serious collectors and hobbyists alike.`\
+https://nytimes.com/2023/05/13/style/tom-bishop-chicago-international-miniatures-show.html?searchResultPosition=1
+
+**The Florida Man of Formula 1**\
+`Logan Sargeant is F1’s first full-time American driver since 2007. Can his sport make the leap from Monte Carlo to Miami with its soul intact?`\
+https://nytimes.com/2023/05/13/business/media/formula-1-logan-sargeant.html?searchResultPosition=2
+
+**Inside the Last Old-School Seltzer Shop in New York**\
+`Brooklyn Seltzer Boys has a century-old carbonator and a museum with a spritzing station. Beat that, LaCroix.`\
+https://nytimes.com/2023/05/13/nyregion/brooklyn-seltzer-boys.html?searchResultPosition=3
+
+**‘A Daily Game of Russian Roulette’: Homeless in San Diego**\
+`As a record number of people die on America’s streets, Abdul Curry fights to stay alive.`\
+https://nytimes.com/2023/05/13/us/san-diego-homelessness.html?searchResultPosition=4
+
+**Biden Is Talking to Howard University Students. But Does He Speak to Them?**\
+`Conversations with students at the historically Black school reveal a more lukewarm support for the president than among their parents’ generation. Here’s what they have to say.`\
+https://nytimes.com/2023/05/13/us/politics/biden-howard-black-voters.html?searchResultPosition=5
+
+**At Eurovision, Ukrainians Find Community Far From Home**\
+`This year, the competition is hosted by Liverpool, England, on behalf of Ukraine. A discounted ticket plan means thousands of displaced Ukrainians can attend.`\
+https://nytimes.com/2023/05/13/arts/music/eurovision-ukraine-liverpool.html?searchResultPosition=6
+
+**Gone Are ‘Daddy’ Days. These Are ‘Mother’ Times.**\
+`Online, practically every famous woman is “mother,” a term with deep ties to the L.G.B.T.Q. ballroom community.`\
+https://nytimes.com/2023/05/13/style/mother-internet-slang-lgbtq.html?searchResultPosition=7
+
+**What Gustavo Dudamel’s Recordings Reveal About His Conducting**\
+`The discography of the New York Philharmonic’s future music director suggests that he is an often agreeable maestro with a lot of work still to do.`\
+https://nytimes.com/2023/05/13/arts/music/gustavo-dudamel-recordings.html?searchResultPosition=8
+
 **India Struggles to Eradicate an Old Scourge: Witch Hunting**\
 `Once driven largely by superstition, the brutal practice is now often simply a tool to oppress women, in many cases violently.`\
-https://nytimes.com/2023/05/13/world/asia/india-witch-hunting.html?searchResultPosition=1
+https://nytimes.com/2023/05/13/world/asia/india-witch-hunting.html?searchResultPosition=9
 
 **It’s May in Rome: A Time to Revere, and Fear, Fava Beans**\
 `Although favism, a blood disorder that can cause a violent reaction to fava beans, lurks throughout Italy, many Romans look forward to May, when the legumes are in season.`\
-https://nytimes.com/2023/05/13/world/europe/rome-fava-beans-favism.html?searchResultPosition=2
-
-**Deep-Sea Creatures of Bittersweet Orange and Metallic Opaline Green**\
-`In “The Bathysphere Book,” Brad Fox chronicles the fascinating Depression-era ocean explorations of William Beebe.`\
-https://nytimes.com/2023/05/13/books/review/bathysphere-book-brad-fox.html?searchResultPosition=3
-
-**Why Some Companies Are Saying ‘Diversity and Belonging’ Instead of ‘Diversity and Inclusion’**\
-`The changing terminology reflects new thinking among some consultants, who say traditional D.E.I. strategies haven’t worked out as planned.`\
-https://nytimes.com/2023/05/13/business/diversity-equity-inclusion-belonging.html?searchResultPosition=4
-
-**Jordan Neely Was on New York’s ‘Top 50’ List of Homeless People at Risk**\
-`Mr. Neely, who was killed by another subway rider, was on a watch list for a city task force that kept track of the New Yorkers of most concern.`\
-https://nytimes.com/2023/05/13/nyregion/jordan-neely-top-50-mental-illness.html?searchResultPosition=5
-
-**An Erdogan Loss in Turkey Would Stir Relief in the West and Anxiety in Moscow**\
-`European leaders would be delighted to have “an easier Turkey,” while Russia could lose an important economic and diplomatic partnership should the Turkish leader lose power in Sunday’s elections.`\
-https://nytimes.com/2023/05/13/world/europe/erdogan-turkey-russia.html?searchResultPosition=6
-
-**Lavish Indian Weddings Are Back and Bigger Than Ever**\
-`After a more intimate turn during the pandemic, some wealthy Indian couples are now sparing no expense when it comes to planning their extravagant, multiday celebrations.`\
-https://nytimes.com/2023/05/13/fashion/weddings/indian-weddings.html?searchResultPosition=7
-
-**Divorce Can Wreck a Woman’s Financial Future. Here’s How to Rebuild.**\
-`Women who have gone through a divorce often see their savings and retirement depleted. Building back means careful planning.`\
-https://nytimes.com/2023/05/13/business/divorce-retirement-savings-planning.html?searchResultPosition=8
-
-**New Play Looks for Dark Humor Beneath the Sarah Lawrence Sex Cult Ordeal**\
-`A small production that involves faculty and graduates largely mirrors Lawrence Ray’s yearslong exploitation of vulnerable students. Some of his victims object.`\
-https://nytimes.com/2023/05/13/nyregion/sarah-lawrence-sex-cult-play-runts.html?searchResultPosition=9
-
-**Welcome to the Era of Very Earnest Parenting**\
-`Millennials, guided by influencers like Dr. Becky and the women behind Big Little Feelings, are trying to deal with their children in a new way.`\
-https://nytimes.com/2023/05/13/style/millennial-earnest-parenting.html?searchResultPosition=10
+https://nytimes.com/2023/05/13/world/europe/rome-fava-beans-favism.html?searchResultPosition=10
 
