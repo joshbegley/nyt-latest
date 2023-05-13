@@ -11,7 +11,7 @@ https://nytimes.com/video/us/100000008906207/biden-howard-commencement-address.h
 https://nytimes.com/2023/05/13/us/title-42-asylum.html?searchResultPosition=3
 
 **‘That Fear Never Goes Away’: One Family Awaits a Decision on Asylum**\
-`Antonio and his family, who had been living in a Tijuana shelter for years while waiting for an appointment to seek asylum in the United States, are some of the first to be processed after the lifting of a pandemic-era policy.`\
+`Antonio and his family, who had been living in a Tijuana shelter for months while waiting for an appointment to seek asylum in the United States, are some of the first to be processed after the lifting of a pandemic-era policy.`\
 https://nytimes.com/video/world/americas/100000008905761/title-42-mexico-asylum.html?searchResultPosition=4
 
 **At Least One Dead as Tornado Strikes Gulf Coast of Texas**\
