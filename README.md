@@ -1,5 +1,5 @@
 **Violence Between Israel and Islamic Jihad Outlasts Their Previous Clashes**\
-`Meditation efforts led by Egypt failed to reach a cease-fire agreement as the fighting stretched into a fifth day on Saturday.`\
+`Mediation efforts led by Egypt failed to reach a cease-fire agreement as the fighting stretched into a fifth day on Saturday.`\
 https://nytimes.com/2023/05/13/world/middleeast/israel-islamic-jihad-violence.html?searchResultPosition=1
 
 **Native American Chief Standing Bear Is Honored on Postal Stamp**\
