@@ -15,7 +15,7 @@ https://nytimes.com/2023/05/13/us/title-42-asylum.html?searchResultPosition=3
 https://nytimes.com/video/world/americas/100000008905761/title-42-mexico-asylum.html?searchResultPosition=4
 
 **At Least One Dead as Tornado Strikes Gulf Coast of Texas**\
-`The storm in Port Isabel did “extensive damage” to several structures and left 10 people hospitalized, two of them in critical condition, officials said.`\
+`The storm in Port Isabel did “extensive damage” to several structures and left 10 people injured, with two of them in critical condition, officials said.`\
 https://nytimes.com/2023/05/13/us/tornado-texas-port-isabel.html?searchResultPosition=5
 
 **Biden Warns of ‘Sinister Forces’ Trying to Reverse Racial Progress**\
