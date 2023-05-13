@@ -1,40 +1,40 @@
-**Zelensky Arrives in Italy for Meeting With Pope Francis**\
-`The Ukrainian president’s visit comes at a potentially pivotal moment in the war against Russia, as Kyiv’s forces make advances near the key eastern city of Bakhmut.`\
-https://nytimes.com/2023/05/13/world/europe/zelensky-pope-francis-ukraine-war.html?searchResultPosition=1
+**India Struggles to Eradicate an Old Scourge: Witch Hunting**\
+`Once driven largely by superstition, the brutal practice is now often simply a tool to oppress women, in many cases violently.`\
+https://nytimes.com/2023/05/13/world/asia/india-witch-hunting.html?searchResultPosition=1
 
-**Quotation of the Day: Gift to Mom: Eliminating Her Old Debt**\
-`Quotation of the Day for Saturday, May 13, 2023.`\
-https://nytimes.com/2023/05/13/pageoneplus/quotation-of-the-day-gift-to-mom-eliminating-her-old-debt.html?searchResultPosition=2
+**It’s May in Rome: A Time to Revere, and Fear, Fava Beans**\
+`Although favism, a blood disorder that can cause a violent reaction to fava beans, lurks throughout Italy, many Romans look forward to May, when the legumes are in season.`\
+https://nytimes.com/2023/05/13/world/europe/rome-fava-beans-favism.html?searchResultPosition=2
 
-**First Came the Sports Betting Boom. Now Comes the Backlash.**\
-`In many U.S. states and across the world, regulators are cracking down on the sports gambling industry, citing harm to the public and, in some cases, to athletes.`\
-https://nytimes.com/2023/05/13/sports/online-sports-gambling-regulations.html?searchResultPosition=3
+**Deep-Sea Creatures of Bittersweet Orange and Metallic Opaline Green**\
+`In “The Bathysphere Book,” Brad Fox chronicles the fascinating Depression-era ocean explorations of William Beebe.`\
+https://nytimes.com/2023/05/13/books/review/bathysphere-book-brad-fox.html?searchResultPosition=3
 
-**The Daughter Who Got the Government to Cancel Her Mother’s Debt**\
-`Susan Miskin retired from her teaching job in 2019 and didn’t think she’d ever pay off her student loans. Then, her only child stepped in.`\
-https://nytimes.com/2023/05/13/your-money/parents-student-loans-forgiveness.html?searchResultPosition=4
+**Why Some Companies Are Saying ‘Diversity and Belonging’ Instead of ‘Diversity and Inclusion’**\
+`The changing terminology reflects new thinking among some consultants, who say traditional D.E.I. strategies haven’t worked out as planned.`\
+https://nytimes.com/2023/05/13/business/diversity-equity-inclusion-belonging.html?searchResultPosition=4
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/05/13/crosswords/wordle-review-answer-693.html?searchResultPosition=5
+**Jordan Neely Was on New York’s ‘Top 50’ List of Homeless People at Risk**\
+`Mr. Neely, who was killed by another subway rider, was on a watch list for a city task force that kept track of the New Yorkers of most concern.`\
+https://nytimes.com/2023/05/13/nyregion/jordan-neely-top-50-mental-illness.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/05/13/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**An Erdogan Loss in Turkey Would Stir Relief in the West and Anxiety in Moscow**\
+`European leaders would be delighted to have “an easier Turkey,” while Russia could lose an important economic and diplomatic partnership should the Turkish leader lose power in Sunday’s elections.`\
+https://nytimes.com/2023/05/13/world/europe/erdogan-turkey-russia.html?searchResultPosition=6
 
-**Golden State Falls to Lakers in Game 6, Ending Championship Hopes**\
-`It was the first playoff matchup of Stephen Curry and LeBron James since 2018. This time, James came out on top.`\
-https://nytimes.com/2023/05/13/sports/basketball/golden-state-warriors-los-angeles-lakers.html?searchResultPosition=7
+**Lavish Indian Weddings Are Back and Bigger Than Ever**\
+`After a more intimate turn during the pandemic, some wealthy Indian couples are now sparing no expense when it comes to planning their extravagant, multiday celebrations.`\
+https://nytimes.com/2023/05/13/fashion/weddings/indian-weddings.html?searchResultPosition=7
 
-**Corrections: May 13, 2023**\
-`Corrections that appeared in print on Saturday, May 13, 2023.`\
-https://nytimes.com/2023/05/12/pageoneplus/corrections-may-13-2023.html?searchResultPosition=8
+**Divorce Can Wreck a Woman’s Financial Future. Here’s How to Rebuild.**\
+`Women who have gone through a divorce often see their savings and retirement depleted. Building back means careful planning.`\
+https://nytimes.com/2023/05/13/business/divorce-retirement-savings-planning.html?searchResultPosition=8
 
-**New York City Plans to House Migrant Families in Public School Gymnasium**\
-`The plan faced immediate criticism from a Brooklyn councilman, but a spokesman for the mayor said, “We are opening emergency shelters and respite centers daily, but we are out of space.”`\
-https://nytimes.com/2023/05/12/nyregion/ny-migrants-public-school-gym.html?searchResultPosition=9
+**New Play Looks for Dark Humor Beneath the Sarah Lawrence Sex Cult Ordeal**\
+`A small production that involves faculty and graduates largely mirrors Lawrence Ray’s yearslong exploitation of vulnerable students. Some of his victims object.`\
+https://nytimes.com/2023/05/13/nyregion/sarah-lawrence-sex-cult-play-runts.html?searchResultPosition=9
 
-**Knicks Knocked Out of Playoffs in Game 6 Loss to Miami Heat**\
-`It was the first time the Knicks had been to the Eastern Conference semifinals in a decade.`\
-https://nytimes.com/2023/05/12/sports/basketball/knicks-eliminated-playoffs-miami-heat.html?searchResultPosition=10
+**Welcome to the Era of Very Earnest Parenting**\
+`Millennials, guided by influencers like Dr. Becky and the women behind Big Little Feelings, are trying to deal with their children in a new way.`\
+https://nytimes.com/2023/05/13/style/millennial-earnest-parenting.html?searchResultPosition=10
 
