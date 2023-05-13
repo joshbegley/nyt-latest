@@ -1,40 +1,40 @@
+**12 Million People Are Under a Heat Advisory in the Pacific Northwest**\
+`An area of high pressure will build a “heat dome” over the western United States and Canada, leading to potential record temperatures, forecasters said.`\
+https://nytimes.com/2023/05/13/us/heat-wave-pacific-northwest-canada.html?searchResultPosition=1
+
 **North Carolina Governor Vetoes Abortion Ban but Faces Override**\
 `The Republican-led legislature has a supermajority that could be used to override the governor’s veto and enact the 12-week ban.`\
-https://nytimes.com/2023/05/13/us/abortion-north-carolina-governor-veto.html?searchResultPosition=1
+https://nytimes.com/2023/05/13/us/abortion-north-carolina-governor-veto.html?searchResultPosition=2
 
 **Pema Tseden, Pioneering Tibetan Filmmaker, Is Dead at 53**\
 `His films captured contemporary Tibetan life as Tibetans saw it, devoid of the stereotypes long associated with their homeland.`\
-https://nytimes.com/2023/05/13/movies/pema-tseden-dead.html?searchResultPosition=2
+https://nytimes.com/2023/05/13/movies/pema-tseden-dead.html?searchResultPosition=3
 
 **Violence Between Israel and Islamic Jihad Outlasts Their Previous Clashes**\
 `Mediation efforts led by Egypt failed to reach a cease-fire agreement as the fighting stretched into a fifth day on Saturday.`\
-https://nytimes.com/2023/05/13/world/middleeast/israel-islamic-jihad-violence.html?searchResultPosition=3
+https://nytimes.com/2023/05/13/world/middleeast/israel-islamic-jihad-violence.html?searchResultPosition=4
 
 **Native American Chief Standing Bear Is Honored on Postal Stamp**\
 `Chief Standing Bear’s lawsuit in 1879 ensured that Native Americans would be considered persons with inherent rights under the law.`\
-https://nytimes.com/2023/05/13/us/chief-standing-bear-stamp-usps.html?searchResultPosition=4
+https://nytimes.com/2023/05/13/us/chief-standing-bear-stamp-usps.html?searchResultPosition=5
 
 **John Frankenheimer Pointed His Camera Toward the Things We Cannot Escape**\
 `In the film “Seconds,” he took on the darker side of the 1960s.`\
-https://nytimes.com/2023/05/13/opinion/frankenheimer-seconds-movie.html?searchResultPosition=5
+https://nytimes.com/2023/05/13/opinion/frankenheimer-seconds-movie.html?searchResultPosition=6
 
 **A Defeat for Modi’s Party in South India Heartens His Rivals**\
 `An overturn in Karnataka is a morale boost for the beleaguered opposition Congress party. But defeating the B.J.P. nationally remains a long shot.`\
-https://nytimes.com/2023/05/13/world/asia/india-modi-elections.html?searchResultPosition=6
+https://nytimes.com/2023/05/13/world/asia/india-modi-elections.html?searchResultPosition=7
 
 **Canada’s ‘Most Photographed House’ May Meet the Wrecking Ball**\
 `Municipal orders to tear down or fix the dilapidated 19th-century Ontario farmhouse have devastated photographers who see in it the faded grandeur of a bygone era.`\
-https://nytimes.com/2023/05/13/world/canada/canada-most-photographed-house-demolition.html?searchResultPosition=7
+https://nytimes.com/2023/05/13/world/canada/canada-most-photographed-house-demolition.html?searchResultPosition=8
 
 **Dooce and Other ‘Mommy Blogs’ Deserve Credit for Shaping the Internet**\
 `BuzzFeed and Gawker weren’t the only brands that moved the discourse.`\
-https://nytimes.com/2023/05/13/opinion/heather-armstrong.html?searchResultPosition=8
+https://nytimes.com/2023/05/13/opinion/heather-armstrong.html?searchResultPosition=9
 
 **Biden Wants Airlines to Pay Passengers for Delays. In Europe, they already do**\
 `The E.U.’s passenger rights law has changed how airlines schedule flights.`\
-https://nytimes.com/2023/05/13/business/dealbook/passenger-rights-europe.html?searchResultPosition=9
-
-**Germany Announces Its Biggest Military Aid Package Yet for Ukraine**\
-`The nearly $3 billion package is part of an effort by both sides to reset rocky relations, which have become increasingly important to maintaining European unity in backing the war.`\
-https://nytimes.com/2023/05/13/world/europe/ukraine-germany-zelensky-weapons.html?searchResultPosition=10
+https://nytimes.com/2023/05/13/business/dealbook/passenger-rights-europe.html?searchResultPosition=10
 
