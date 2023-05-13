@@ -30,8 +30,8 @@ https://nytimes.com/2023/05/13/us/abortion-north-carolina-governor-veto.html?sea
 `His films captured contemporary Tibetan life as Tibetans saw it, devoid of the stereotypes long associated with their homeland.`\
 https://nytimes.com/2023/05/13/movies/pema-tseden-dead.html?searchResultPosition=8
 
-**Violence Between Israel and Islamic Jihad Outlasts Their Previous Clashes**\
-`Mediation efforts led by Egypt failed to reach a cease-fire agreement as the fighting stretched into a fifth day on Saturday.`\
+**Israel and Islamic Jihad Agree to Cease-Fire After 5 days of Violence**\
+`Mediation efforts led by Egypt were expected to end fighting that has outlasted previous clashes between Israel and the militant group in Gaza.`\
 https://nytimes.com/2023/05/13/world/middleeast/israel-islamic-jihad-violence.html?searchResultPosition=9
 
 **Native American Chief Standing Bear Is Honored on Postal Stamp**\
