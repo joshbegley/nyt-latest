@@ -1,5 +1,5 @@
 **Germany Announces Its Biggest Military Aid Package for Ukraine**\
-`The 2.7 billion euro package amounts to roughly as much as the entirety of Germany’s military aid contribution to date.`\
+`The nearly $3 billion package is roughly as much as Germany’s total military aid contribution to Ukraine since the war began.`\
 https://nytimes.com/2023/05/13/world/europe/ukraine-germany-zelensky-weapons.html?searchResultPosition=1
 
 **The Best Thing to Emerge From the Pandemic: Permission to Wear Soft Pants**\
