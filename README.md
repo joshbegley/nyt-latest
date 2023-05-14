@@ -2,8 +2,8 @@
 `Real heroes stay behind.`\
 https://nytimes.com/2023/05/14/opinion/sudan-medicine-doctors.html?searchResultPosition=1
 
-**Jayson Tatum Shines as Boston Celtics Blow Out Sixers in Game 7**\
-`Tatum scored 51 points to help send the Celtics to the Eastern Conference finals, where they will face the Miami Heat.`\
+**Jayson Tatum Scores 51 as Boston Celtics Blow Out Sixers in Game 7**\
+`Tatum’s scoring output was an N.B.A. record for a Game 7, and it helped send the Celtics to the Eastern Conference finals, where they will face the Miami Heat.`\
 https://nytimes.com/2023/05/14/sports/basketball/jayson-tatum-boston-celtics-philadelphia-76ers.html?searchResultPosition=2
 
 **On the Right, Support and Donations Pour In for Daniel Penny**\
