@@ -1,40 +1,40 @@
+**Politics, Police, Pozole: The Battle for Sunset Park**\
+`An impromptu street market in a Brooklyn park was a lifeline for immigrants during the pandemic. But then came complaints and conflicts, and then the police.`\
+https://nytimes.com/2023/05/14/nyregion/sunset-park-street-vendors-protest.html?searchResultPosition=1
+
+**How the Head of a Filmmaking Center Spends His Sundays**\
+`Jon Alpert has shared his love for documentaries with New Yorkers for more than 50 years.`\
+https://nytimes.com/2023/05/14/nyregion/jon-alpert.html?searchResultPosition=2
+
+**He Told Followers to Starve to Meet Jesus. Why Did So Many Do It?**\
+`Hundreds were drawn to a remote wilderness in southeastern Kenya by the End Times preaching of pastor Paul Mackenzie. Relatives and ex-members tried to intervene, but some did not want to be rescued.`\
+https://nytimes.com/2023/05/14/world/africa/kenya-christian-cult-deaths.html?searchResultPosition=3
+
+**‘As I Entered the Gallery, I Saw a Well-Dressed, Middle-Aged Woman’**\
+`A surprise at the Met, a hot summer night in Brooklyn and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2023/05/14/nyregion/metropolitan-diary.html?searchResultPosition=4
+
+**A Lifetime of Stories, and Still More to Tell**\
+`Nearly 80 years ago, Milton Esterow began a career at The New York Times that would forever change art and culture reporting. At 94, he’s still churning out articles.`\
+https://nytimes.com/2023/05/14/insider/milton-esterow.html?searchResultPosition=5
+
+**Platform Agnostic for Nearly 100 Years**\
+`In 1928, The New York Times wrapped an electric bulletin board around its headquarters to deliver breaking news to the throng of Times Square.`\
+https://nytimes.com/2023/05/14/insider/platform-agnostic-for-nearly-100-years.html?searchResultPosition=6
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2023/05/14/crosswords/spelling-bee-forum.html?searchResultPosition=7
+
+**Today’s Wordle Review**\
+`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
+https://nytimes.com/2023/05/14/crosswords/wordle-review-answer-694.html?searchResultPosition=8
+
 **Corrections: May 14, 2023**\
 `Corrections that appeared in print on Sunday, May 14, 2023.`\
-https://nytimes.com/2023/05/14/pageoneplus/corrections-may-14-2023.html?searchResultPosition=1
+https://nytimes.com/2023/05/14/pageoneplus/corrections-may-14-2023.html?searchResultPosition=9
 
 **Quotation of the Day: The Struggle to Save Abdul**\
 `Quotation of the Day for Sunday, May 14, 2023.`\
-https://nytimes.com/2023/05/14/pageoneplus/quotation-of-the-day-the-struggle-to-save-abdul.html?searchResultPosition=2
-
-**Thailand’s Election: What to Watch and What’s at Stake**\
-`The vote is seen as a referendum on the military, which has ruled Thailand for nine years. Results could determine the path for democracy in the country.`\
-https://nytimes.com/2023/05/14/world/asia/thailands-election-issues.html?searchResultPosition=3
-
-**Tori Bowie’s Hometown Celebrates Her Life Amid Mystery of Her Death**\
-`Mourners at a visitation and funeral in Mississippi remembered Tori Bowie as an inspiration on the track while also searching for answers about how her life ended.`\
-https://nytimes.com/2023/05/13/sports/olympics/tori-bowie-death-funeral.html?searchResultPosition=4
-
-**Sweden Wins a Eurovision Song Contest That Showed Solidarity With Ukraine**\
-`After winning the competition last year, Ukraine should have been this year’s host, but Britain stepped in to help the war-torn nation.`\
-https://nytimes.com/2023/05/13/arts/music/eurovision-2023-final-sweden.html?searchResultPosition=5
-
-**Alternate Endings**\
-`Buckle up and look both ways (!) while navigating Sid Sivakumar’s Sunday puzzle.`\
-https://nytimes.com/2023/05/13/crosswords/daily-puzzle-2023-05-14.html?searchResultPosition=6
-
-**Tornado Strikes Gulf Coast of Texas**\
-`A severe thunderstorm spawned a tornado that hit Laguna Heights, as well as surrounding Gulf Coast communities in Texas.`\
-https://nytimes.com/video/us/100000008906270/texas-tornado-gulf-coast.html?searchResultPosition=7
-
-**Slava Zaitsev, Enduring Soviet-Era Fashion Designer, Dies at 85**\
-`He gave color, sparkle and opulence to a generation raised in drab Soviet gray and designed for pop stars, Olympic athletes, politicians and ballerinas.`\
-https://nytimes.com/2023/05/13/fashion/slava-zaitsev-dead.html?searchResultPosition=8
-
-**Biden Says ‘Sinister Forces’ Are Trying to Reverse Racial Progress**\
-`President Biden called white supremacy “the most dangerous terrorist threat” to the United States during his commencement speech at Howard University.`\
-https://nytimes.com/video/us/100000008906207/biden-howard-commencement-address.html?searchResultPosition=9
-
-**Awaiting an Uncertain Fate as Title 42 Expires**\
-`A family is among the first to seek asylum in the United States after the lifting of a pandemic-era policy.`\
-https://nytimes.com/2023/05/13/us/title-42-asylum.html?searchResultPosition=10
+https://nytimes.com/2023/05/14/pageoneplus/quotation-of-the-day-the-struggle-to-save-abdul.html?searchResultPosition=10
 
