@@ -28,7 +28,7 @@ https://nytimes.com/2023/05/14/learning/whats-going-on-in-this-picture-may-15-20
 
 **Who Would Want to Be a C.E.O.?**\
 `The challenges facing business leaders feel particularly acute right now. This week, DealBook delved into four of them.`\
-https://nytimes.com/2023/05/14/business/dealbook/who-would-want-to-be-a-ceo.html?searchResultPosition=8
+https://nytimes.com/2023/05/14/business/dealbook/ceo-politics-chatgpt.html?searchResultPosition=8
 
 **The Week in Business: Trump on TV**\
 `Inflation continues to slow. Elon Musk says he’s found a new C.E.O. for Twitter. And there will be a pair of Senate hearings on the banking crisis.`\
