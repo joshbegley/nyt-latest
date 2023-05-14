@@ -1,5 +1,5 @@
 **Bill Oesterle, Co-Founder of Angie’s List, Dies at 57**\
-`The company he helped found to review local contractors grew into a website with millions of subscribers. He was also involved in Republican Party politics in Indiana.`\
+`What began as a company to review local contractors grew into a website with millions of subscribers. He was also involved in Republican Party politics in Indiana.`\
 https://nytimes.com/2023/05/14/business/bill-oesterle-dead.html?searchResultPosition=1
 
 **Who will win the elections? Turkey’s astrologers find answers in the stars.**\
