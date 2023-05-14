@@ -1,40 +1,40 @@
-**Zelensky Meets With German Leaders After Their Massive Weapons Pledge**\
-`The two nations are trying to improve cooperation after a year marred by diplomatic spats over Berlin’s sluggish response to Ukrainian pleas for military aid.`\
-https://nytimes.com/2023/05/14/world/europe/ukraine-zelensky-berlin.html?searchResultPosition=1
+**Spring Dressing Isn’t Impossible**\
+`The key? Don’t worry about following rules.`\
+https://nytimes.com/2023/05/14/style/spring-fashion-street-style.html?searchResultPosition=1
 
-**How a Military Base’s New Name Honors a Military Spouse and Mother**\
-`Fort Benning is now officially Fort Moore, the only U.S. base named for a married couple.`\
-https://nytimes.com/2023/05/14/us/politics/fort-benning-renamed-fort-moore.html?searchResultPosition=2
+**Matthew Barney, Back in the Game**\
+`In his new video installation, the artist known for maximalist works like “The Cremaster Cycle” returns to the football fields of his childhood.`\
+https://nytimes.com/2023/05/14/arts/design/matthew-barney-secondary-football.html?searchResultPosition=2
 
-**Politics, Police, Pozole: The Battle for Sunset Park**\
-`An impromptu street market in a Brooklyn park was a lifeline for immigrants during the pandemic. But then came complaints and conflicts, and then the police.`\
-https://nytimes.com/2023/05/14/nyregion/sunset-park-street-vendors-protest.html?searchResultPosition=3
+**The Greatest Wealth Transfer in History Is Here, With Familiar (Rich) Winners**\
+`In an era of surging home and stock values, U.S. family wealth has soared. The trillions of dollars going to heirs will largely reinforce inequality.`\
+https://nytimes.com/2023/05/14/business/economy/wealth-generations.html?searchResultPosition=3
 
-**How the Head of a Filmmaking Center Spends His Sundays**\
-`Jon Alpert has shared his love for documentaries with New Yorkers for more than 50 years.`\
-https://nytimes.com/2023/05/14/nyregion/jon-alpert.html?searchResultPosition=4
+**Eric Adams Says He’s a Progressive. Democrats Beg to Differ.**\
+`Left-leaning New Yorkers say the mayor is moving the city in a more conservative direction on issues like policing, rent and providing shelter to those in need.`\
+https://nytimes.com/2023/05/14/nyregion/eric-adams-conservative-migrants.html?searchResultPosition=4
 
-**He Told Followers to Starve to Meet Jesus. Why Did So Many Do It?**\
-`Hundreds were drawn to a remote wilderness in southeastern Kenya by the End Times preaching of pastor Paul Mackenzie. Relatives and ex-members tried to intervene, but some did not want to be rescued.`\
-https://nytimes.com/2023/05/14/world/africa/kenya-christian-cult-deaths.html?searchResultPosition=5
+**An American Express Airport Lounge in the Sky? Not Quite.**\
+`American Express has opened its first Centurion members club, an 11,500-square-foot space with wraparound views of Manhattan.`\
+https://nytimes.com/2023/05/14/realestate/american-express-centurion-lounge-nyc.html?searchResultPosition=5
 
-**‘As I Entered the Gallery, I Saw a Well-Dressed, Middle-Aged Woman’**\
-`A surprise at the Met, a hot summer night in Brooklyn and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2023/05/14/nyregion/metropolitan-diary.html?searchResultPosition=6
+**As Ukraine Makes Inroads in Bakhmut, Devastation Still Reigns**\
+`The fight for Bakhmut is now the war’s single longest and bloodiest battle. Although the Ukrainians are making small gains, Russia still controls about 90 percent of the largely ruined city.`\
+https://nytimes.com/2023/05/14/world/europe/bakhmut-ukraine-battle.html?searchResultPosition=6
 
-**A Lifetime of Stories, and Still More to Tell**\
-`Nearly 80 years ago, Milton Esterow began a career at The New York Times that would forever change art and culture reporting. At 94, he’s still churning out articles.`\
-https://nytimes.com/2023/05/14/insider/milton-esterow.html?searchResultPosition=7
+**When Your Champions League Dream Runs Through a War Zone**\
+`Shakhtar Donetsk’s foreign stars fled Ukraine when Russia invaded. Now some are returning or signing up, proof that the lure of opportunity can trump fear.`\
+https://nytimes.com/2023/05/14/sports/soccer/shakhtar-donetsk-ukraine-soccer.html?searchResultPosition=7
 
-**Platform Agnostic for Nearly 100 Years**\
-`In 1928, The New York Times wrapped an electric bulletin board around its headquarters to deliver breaking news to the throng of Times Square.`\
-https://nytimes.com/2023/05/14/insider/platform-agnostic-for-nearly-100-years.html?searchResultPosition=8
+**Over Decades, Congress Failed Repeatedly to Address Immigration Dysfunction**\
+`Legislative initiatives to overhaul immigration policy have fallen flat as partisan differences and other rifts have scuttled attempts at compromise.`\
+https://nytimes.com/2023/05/14/us/politics/immigration-legislation-congress.html?searchResultPosition=8
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/05/14/crosswords/spelling-bee-forum.html?searchResultPosition=9
+**Two Memoirs of Chinese American Hunger, Three Decades Apart**\
+`Fae Myenne Ng’s “Orphan Bachelors” recalls her coming of age in midcentury San Francisco; Jane Wong’s “Meet Me Tonight in Atlantic City” recalls hers in 1980s and ’90s New Jersey.`\
+https://nytimes.com/2023/05/14/books/orphan-bachelors-fae-myenne-ng-meet-me-tonight-in-atlantic-city-jane-wong.html?searchResultPosition=9
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/05/14/crosswords/wordle-review-answer-694.html?searchResultPosition=10
+**Philadelphia Democrats Clash: 5 Things to Know About the Mayor’s Race**\
+`The winner of the Democratic contest is all but certain to become the next mayor of Philadelphia and could play a key role in the 2024 presidential election.`\
+https://nytimes.com/2023/05/14/us/politics/philadelphia-mayor-democratic-.html?searchResultPosition=10
 
