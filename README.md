@@ -4,7 +4,7 @@ https://nytimes.com/2023/05/15/nyregion/congestion-pricing-new-york-new-jersey.h
 
 **Appeals Court Pauses Ruling That Threatened Free Preventive Health Care**\
 `The action, which stayed a lower court ruling, will require health plans to fully cover preventive services while the appeals process plays out.`\
-https://nytimes.com/2023/05/15/health/appeals-court-pauses-ruling-that-threatened-free-preventive-health-care.html?searchResultPosition=2
+https://nytimes.com/2023/05/15/health/preventive-health-services-aca-appeals-court.html?searchResultPosition=2
 
 **Finding Order in a Thicket of Nonprofit Data**\
 `To investigate the practices of a group of political nonprofits, we first needed to conquer a pesky foil of data journalists: the PDF.`\
