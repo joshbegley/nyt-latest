@@ -15,7 +15,7 @@ https://nytimes.com/2023/05/15/style/skims-bridal-wedding.html?searchResultPosit
 https://nytimes.com/video/us/100000008908003/chicago-mayor-brandon-johnson.html?searchResultPosition=4
 
 **Staff Members Attacked With Bat at Congressman’s Virginia Office**\
-`Two people were hospitalized after the attack at the Fairfax office of Rep. Gerry Connolly, a Democrat, and someone was in custody, the police said.`\
+`Two people were hospitalized after the attack at the Fairfax office of Representative Gerry Connolly, a Democrat. A man was in custody, the police said.`\
 https://nytimes.com/2023/05/15/us/connolly-staffers-attacked.html?searchResultPosition=5
 
 **Hertz Apologizes After U.S. Citizen From Puerto Rico Is Denied Car Rental**\
