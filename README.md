@@ -11,7 +11,7 @@ https://nytimes.com/2023/05/15/business/dealbook/microsoft-activision-antitrust-
 https://nytimes.com/2023/05/15/theater/antigone-in-the-amazon-review.html?searchResultPosition=3
 
 **Four Takeaways from Turkey’s Nail-Biting Presidential Election**\
-`Recep Tayyip Erdogan appears to be headed for his — and his country’s — first presidential runoff vote. But the first round showed the longtime leader’s continued strength.`\
+`Recep Tayyip Erdogan is headed for his — and his country’s — first presidential runoff vote. But the first round showed the longtime leader’s continued strength.`\
 https://nytimes.com/2023/05/15/world/middleeast/turkey-election-results-erdogan-runoff.html?searchResultPosition=4
 
 **New Coalition in Thailand Challenges Military Rule After Election**\
