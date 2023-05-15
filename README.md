@@ -1,5 +1,5 @@
 **Vice, Decayed Digital Colossus, Files for Bankruptcy**\
-`The company, which had wooed media giants like Disney, has struggled to adjust to the punishing realities of digital publishing. A group of lenders is in the leading position to buy Vice for $225 million.`\
+`Vice, which had wooed media giants, has struggled to adjust to the punishing realities of digital publishing. A group of creditors could buy Vice for $225 million.`\
 https://nytimes.com/2023/05/15/business/media/vice-bankruptcy.html?searchResultPosition=1
 
 **What’s on TV This Week: ‘Ghosts of Beirut’ and ‘The Secrets of Hillsong’**\
