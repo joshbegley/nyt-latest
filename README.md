@@ -11,7 +11,7 @@ https://nytimes.com/2023/05/15/crosswords/spellingbee-diary.html?searchResultPos
 https://nytimes.com/2023/05/15/dining/outdoor-griddle-flattop-grill.html?searchResultPosition=3
 
 **Turkey Election Maps: Why Erdogan Is Headed For a Runoff**\
-`Maps show how every province in Turkey voted so far. Recep Tayyip Erdogan, Turkey’s longtime leader, appeared to be heading to a presidential election runoff for the first time.`\
+`Maps show how every province in Turkey voted so far. Recep Tayyip Erdogan, Turkey’s longtime leader, was headed to a presidential election runoff for the first time.`\
 https://nytimes.com/interactive/2023/05/15/world/europe/turkey-election-results.html?searchResultPosition=4
 
 **The $69 Billion Microsoft-Activision Deal Faces a Big E.U. Test**\
