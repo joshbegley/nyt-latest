@@ -7,7 +7,7 @@ https://nytimes.com/2023/05/15/business/dealbook/microsoft-activision-antitrust-
 https://nytimes.com/2023/05/15/theater/antigone-in-the-amazon-review.html?searchResultPosition=2
 
 **Four Takeaways from Turkey’s Nail-Biting Presidential Election**\
-`Recep Tayyip Erdogan is headed for his — and his country’s — first presidential runoff vote. But the first round showed the longtime leader’s continued strength.`\
+`Recep Tayyip Erdogan appears to be headed for his — and his country’s — first presidential runoff vote. But the first round showed the longtime leader’s continued strength.`\
 https://nytimes.com/2023/05/15/world/middleeast/turkey-election-results-erdogan-runoff.html?searchResultPosition=3
 
 **New Coalition in Thailand Challenges Military Rule After Election**\
@@ -20,7 +20,7 @@ https://nytimes.com/2023/05/15/briefing/the-case-for-journalistic-independence-a
 
 **China Sentences a U.S. Citizen to Life in Prison for Espionage**\
 `A court in southeastern China handed down a guilty verdict to John Shing-Wan Leung, a Hong Kong resident, as the authorities ramp up a crackdown on spying.`\
-https://nytimes.com/2023/05/15/world/asia/china-american-spy-life.html?searchResultPosition=6
+https://nytimes.com/2023/05/15/world/asia/china-american-spy-prison.html?searchResultPosition=6
 
 **The U.S. Banned Spyware — and Then Kept Trying to Use It**\
 `Inside the U.S. government’s double-edged relationship with the world’s most powerful and notorious hacking tool.`\
