@@ -1,4 +1,4 @@
-**Turkey Election Maps: Why Erdogan Appears Headed For a Runoff**\
+**Turkey Election Maps: Why Erdogan Is Headed For a Runoff**\
 `Maps show how every province in Turkey voted so far. Recep Tayyip Erdogan, Turkey’s longtime leader, appeared to be heading to a presidential election runoff for the first time.`\
 https://nytimes.com/interactive/2023/05/15/world/europe/turkey-election-results.html?searchResultPosition=1
 
