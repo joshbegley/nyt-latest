@@ -1,40 +1,40 @@
-**Mysterious Killing of Chinese Gold Miners Puts New Pressure on Beijing**\
-`The massacre of nine workers in the Central African Republic and other recent attacks raise questions about China’s ability to protect its citizens overseas.`\
-https://nytimes.com/2023/05/15/world/asia/china-africa-miners-wagner.html?searchResultPosition=1
+**A Crumbling New York Garage Collapsed. Dozens More Have Similar Problems.**\
+`The fatal failure of a building in Lower Manhattan raised questions about the state of parking structures across New York. Records and interviews reveal some answers.`\
+https://nytimes.com/2023/05/15/nyregion/nyc-garage-collapse.html?searchResultPosition=1
 
-**Abortion Showdown in North Carolina May Hinge on a Single Vote**\
-`After the G.O.P.-led legislature passed a 12-week ban, the Democratic governor vetoed the bill. The Republicans could override it, if all their members stay unified.`\
-https://nytimes.com/2023/05/15/us/north-carolina-abortion-veto-roy-cooper.html?searchResultPosition=2
+**One Secret to a Latin American Party’s Dominance: Buying Votes**\
+`In Paraguay, the Colorado Party has held power for seven decades. On Election Day, it rounds up Indigenous people and pays them for their votes.`\
+https://nytimes.com/2023/05/15/world/americas/paraguay-election-colorado-party.html?searchResultPosition=2
 
-**Why Some Countries Find It Hard to Move Away From Fossil Fuels**\
-`Trinidad and Tobago is the No. 2 exporter of liquefied natural gas in the Americas. Its output has been falling, but it remains committed to fossil fuels.`\
-https://nytimes.com/2023/05/15/business/energy-environment/trinidad-tobago-gas-oil.html?searchResultPosition=3
+**U.S.-Made Technology Is Flowing to Sanctioned Russian Airlines**\
+`Russian customs data shows that millions of dollars of aircraft parts made by Boeing, Airbus and others were sent to Russia last year despite sanctions.`\
+https://nytimes.com/2023/05/15/business/economy/russia-airlines-sanctions-ukraine.html?searchResultPosition=3
 
-**Climate Change Brings Warmer, Wetter Weather to Trinidad**\
-`Even as the leaders of Trinidad and Tobago double down on fossil fuels, climate change is bringing more extreme weather to the island nation.`\
-https://nytimes.com/2023/05/15/business/energy-environment/trinidad-tobago-climate-change.html?searchResultPosition=4
+**Tracey Rose, Artist and Provocateur, Gets a Major U.S. Retrospective**\
+`Raised in apartheid South Africa, Ms. Rose has been making art on race, recompense, and repatriation for decades. Finally, the world is catching up.`\
+https://nytimes.com/2023/05/15/arts/design/tracey-rose-queens-museum.html?searchResultPosition=4
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/05/15/crosswords/wordle-review-answer-695.html?searchResultPosition=5
+**An Unsigned Postcard Named Four Family Members Who Died in the Holocaust. Why?**\
+`The mysterious card, from 2003, is at the center of Anne Berest’s book, which is part detective story, part examination of French attitudes toward Judaism.`\
+https://nytimes.com/2023/05/15/books/anne-berest-the-postcard.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/05/15/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**The History of Hong Kong Is One of Bridged Divides**\
+`In “Fortune’s Bazaar,” Vaudine England rejects a tale-of-two-cities approach to the history of Hong Kong’s colonization, embracing the in-between lives of those who made it.`\
+https://nytimes.com/2023/05/15/books/review/vaudine-england-fortunes-bazaar.html?searchResultPosition=6
 
-**Coastal Cities Priced Out Low-Wage Workers. Now College Graduates Are Leaving, Too.**\
-`Educated workers are increasingly migrating away from the country’s most expensive major metros — and have been since before the pandemic.`\
-https://nytimes.com/interactive/2023/05/15/upshot/migrations-college-super-cities.html?searchResultPosition=7
+**Frieze New York’s Intimate Art Fair Pops Up at the Shed**\
+`With 68 galleries, the fair allows collectors to “spend quality time,” with works ranging from granite sculptures to contemporary Pointillist paintings.`\
+https://nytimes.com/2023/05/15/arts/design/frieze-new-york.html?searchResultPosition=7
 
-**Word of the Day: dissipate**\
-`This word has appeared in 67 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/05/15/learning/word-of-the-day-dissipate.html?searchResultPosition=8
+**Cannes 2023: The Films We’ve Excited About Seeing**\
+`Wes Anderson, Martin Scorsese and Todd Haynes have works premiering this year at the festival on the French Riviera.`\
+https://nytimes.com/2023/05/15/movies/cannes-film-festival-what-to-see.html?searchResultPosition=8
 
-**Vice, Decayed Digital Colossus, Files for Bankruptcy**\
-`Vice, which had wooed media giants, has struggled to adjust to the punishing realities of digital publishing. A group of creditors could buy Vice for $225 million.`\
-https://nytimes.com/2023/05/15/business/media/vice-bankruptcy.html?searchResultPosition=9
+**Fifty Years Post Roe v. Wade, the Art of ‘1973’ Frames a Turbulent Era**\
+`The show at Frieze New York, of works that women artists created the year of the landmark Supreme Court decision, gives a panoramic look at a watershed moment.`\
+https://nytimes.com/2023/05/15/arts/design/roe-wade-frieze-new-york.html?searchResultPosition=9
 
-**What’s on TV This Week: ‘Ghosts of Beirut’ and ‘The Secrets of Hillsong’**\
-`A spy drama based on a decades-long manhunt comes to Showtime, and a new FX documentary brings back former Hillsong pastors to reflect on the church’s scandal.`\
-https://nytimes.com/2023/05/15/arts/television/whats-on-tv-this-week-ghosts-of-beirut-and-the-secrets-of-hillsong.html?searchResultPosition=10
+**If Your House Was Falling Off a Cliff, Would You Leave?**\
+`Homeowners along the eastern coast of England are watching the North Sea swallow their communities. Help is on the way — but only for some.`\
+https://nytimes.com/2023/05/15/realestate/coast-england-homes-eroding.html?searchResultPosition=10
 
