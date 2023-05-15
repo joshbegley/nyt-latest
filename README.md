@@ -26,15 +26,15 @@ https://nytimes.com/2023/05/15/crosswords/spelling-bee-forum.html?searchResultPo
 `Educated workers are increasingly migrating away from the country’s most expensive major metros — and have been since before the pandemic.`\
 https://nytimes.com/interactive/2023/05/15/upshot/migrations-college-super-cities.html?searchResultPosition=7
 
-**Zelensky Heads to Britain for Talks on Military Aid**\
-`The visit to London comes after a whirlwind trip through Europe’s capitals over the weekend that included meetings with allies in Rome, Berlin and Paris.`\
-https://nytimes.com/2023/05/15/world/europe/zelensky-britain-sunak.html?searchResultPosition=8
-
 **Word of the Day: dissipate**\
 `This word has appeared in 67 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/05/15/learning/word-of-the-day-dissipate.html?searchResultPosition=9
+https://nytimes.com/2023/05/15/learning/word-of-the-day-dissipate.html?searchResultPosition=8
 
 **Vice, Decayed Digital Colossus, Files for Bankruptcy**\
 `Vice, which had wooed media giants, has struggled to adjust to the punishing realities of digital publishing. A group of creditors could buy Vice for $225 million.`\
-https://nytimes.com/2023/05/15/business/media/vice-bankruptcy.html?searchResultPosition=10
+https://nytimes.com/2023/05/15/business/media/vice-bankruptcy.html?searchResultPosition=9
+
+**What’s on TV This Week: ‘Ghosts of Beirut’ and ‘The Secrets of Hillsong’**\
+`A spy drama based on a decades-long manhunt comes to Showtime, and a new FX documentary brings back former Hillsong pastors to reflect on the church’s scandal.`\
+https://nytimes.com/2023/05/15/arts/television/whats-on-tv-this-week-ghosts-of-beirut-and-the-secrets-of-hillsong.html?searchResultPosition=10
 
