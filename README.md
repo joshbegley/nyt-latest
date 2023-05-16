@@ -22,19 +22,19 @@ https://nytimes.com/2023/05/16/us/down-syndrome-college-football-lawsuit-ohio.ht
 `Sam Altman, who leads ChatGPT’s parent company, is expected to call for some regulation of artificial intelligence as Washington weighs its next steps.`\
 https://nytimes.com/2023/05/16/business/dealbook/altman-openai-senate.html?searchResultPosition=6
 
+**Ukraine’s push around Bakhmut presents Russia with tough decisions about its resources.**\
+`Kyiv’s forces have reclaimed ground near the city that it took Russian forces months to seize, raising pressure on Moscow to devote more fighters and equipment there.`\
+https://nytimes.com/2023/05/16/world/europe/ukraine-russia-bakhmut.html?searchResultPosition=7
+
 **Mother Knows Best**\
 `What has your mother — or someone who is like a mother to you — been right about?`\
-https://nytimes.com/2023/05/16/learning/mother-knows-best.html?searchResultPosition=7
+https://nytimes.com/2023/05/16/learning/mother-knows-best.html?searchResultPosition=8
 
 **Pedro Almodóvar’s Answer to ‘Brokeback Mountain’**\
 `In “Strange Way of Life,” the director’s short western, Ethan Hawke and Pedro Pascal play a lawman and a cowboy looking back on a passionate affair.`\
-https://nytimes.com/2023/05/16/movies/strange-way-life-pedro-pascal-ethan-hawke.html?searchResultPosition=8
+https://nytimes.com/2023/05/16/movies/strange-way-life-pedro-pascal-ethan-hawke.html?searchResultPosition=9
 
 **A Nascent ‘YIMBY’ Movement**\
 `Housing has become so expensive that college graduates are leaving New York, Los Angeles and other expensive cities.`\
-https://nytimes.com/2023/05/16/briefing/cities-yimby-exodus-college-graduates.html?searchResultPosition=9
-
-**The Day Title 42 Ended**\
-`What happened at the United States’ southern border when the pandemic-era policy expired?`\
-https://nytimes.com/2023/05/16/podcasts/the-daily/title-42-border.html?searchResultPosition=10
+https://nytimes.com/2023/05/16/briefing/cities-yimby-exodus-college-graduates.html?searchResultPosition=10
 
