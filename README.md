@@ -2,7 +2,7 @@
 `Housing has become so expensive that college graduates are leaving New York, Los Angeles and other expensive cities.`\
 https://nytimes.com/2023/05/16/briefing/cities-yimby-exodus-college-graduates.html?searchResultPosition=1
 
-**The End of Title 42**\
+**The Day Title 42 Ended**\
 `What happened at the United States’ southern border when the pandemic-era policy expired?`\
 https://nytimes.com/2023/05/16/podcasts/the-daily/title-42-border.html?searchResultPosition=2
 
