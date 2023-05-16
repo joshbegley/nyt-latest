@@ -14,7 +14,7 @@ https://nytimes.com/2023/05/16/learning/how-did-you-grow-and-change-this-school-
 `Inspired by Times articles and features from across sections, these exercises can help both students and teachers think about their growth.`\
 https://nytimes.com/2023/05/16/learning/10-ideas-for-reflecting-at-the-end-of-the-school-year.html?searchResultPosition=4
 
-**Republicans Question Officials Who Cast Doubt on Hunter Biden Laptop Contents**\
+**Officials Who Cast Doubt on Hunter Biden Laptop Face Questions**\
 `House G.O.P. lawmakers who claim the federal government has tried to damage conservatives have seized on a 2020 letter signed by 51 former intelligence officials as a prime piece of evidence.`\
 https://nytimes.com/2023/05/16/us/politics/republicans-hunter-biden-laptop.html?searchResultPosition=5
 
