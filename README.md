@@ -24,7 +24,7 @@ https://nytimes.com/2023/05/16/movies/cannes-johnny-depp-jeanne-du-barry.html?se
 
 **What Ever Happened to Just Drinking Water?**\
 `#WaterTok has been a boon for water-flavoring companies as enthusiasts buy out shelves of sugar-free syrups. But when does a drink stop being water?`\
-https://nytimes.com/2023/05/16/dining/what-is-watertok.html?searchResultPosition=7
+https://nytimes.com/2023/05/16/dining/watertok-tiktok-recipes.html?searchResultPosition=7
 
 **In Search of an Antidote for Poisonous Mushrooms**\
 `Researchers are finding clues to a potential remedy for consumption of the death cap species, a potentially lethal mushroom.`\
