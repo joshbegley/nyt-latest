@@ -1,6 +1,6 @@
 **South Korea Wants More Babies, Just Not in These Places**\
 `Hundreds of restaurants, museums, cafes and other public places in the country ban children from entering. One lawmaker is pushing to get rid of the policy.`\
-https://nytimes.com/2023/05/16/world/asia/korea-no-kids.html?searchResultPosition=1
+https://nytimes.com/2023/05/16/world/asia/korea-no-kids-zones.html?searchResultPosition=1
 
 **How to Spy on Condor Parents With a High-Tech Egg**\
 `Scientists are working to improve the breeding success of the endangered California condor. Their secret assistant: a plastic, 3-D printed, sensor-laden “smart egg.”`\
