@@ -27,7 +27,7 @@ https://nytimes.com/2023/05/16/briefing/debt-talks-biden-mccarthy-tik-tok-water.
 https://nytimes.com/2023/05/16/sports/golf/rory-mcilroy-pga-championship.html?searchResultPosition=7
 
 **Congressional Leaders Hopeful That Debt Limit Deal Is Possible Soon**\
-`Congressional leaders in both parties expressed urgency in reaching a deal to raise the nation’s debt limit in the next couple weeks. President Biden said that he would shorten his trip to Asia over the debt ceiling talks.`\
+`Congressional leaders in both parties expressed urgency in reaching a deal to raise the nation’s debt limit in the next couple of weeks. President Biden said that he would shorten his trip to Asia to return to the talks.`\
 https://nytimes.com/video/us/politics/100000008910305/debt-ceiling-biden-congress.html?searchResultPosition=8
 
 **Ralph Lee, Father of Puppets and a New York Parade, Dies at 87**\
