@@ -2,7 +2,7 @@
 `The problems that have hindered Russia’s 15-month war are still festering: stretched resources and disunity in the ranks. Still, Mr. Putin’s resolve augurs a willingness to prosecute a long war.`\
 https://nytimes.com/2023/05/16/world/europe/putin-russia-military-prigozhin.html?searchResultPosition=1
 
-**Silicon Valley Bank’s Ex-C.E.O. is ‘Truly Sorry’ but Deflects Blame**\
+**Silicon Valley Bank’s Ex-C.E.O. Is ‘Truly Sorry’ but Deflects Blame**\
 `Senators derided Gregory Becker at a hearing about the failure of his bank. “It sounds a lot like ‘my dog ate my homework’,” one said.`\
 https://nytimes.com/2023/05/16/business/silicon-valley-bank-becker-testimony.html?searchResultPosition=2
 
@@ -26,15 +26,15 @@ https://nytimes.com/video/business/100000008909247/open-ai-artificial-intelligen
 `Somerville, Mass., has passed laws granting rights to people in polyamorous relationships — and it’s just getting started.`\
 https://nytimes.com/2023/05/16/style/polyamory-somerville.html?searchResultPosition=7
 
+**Meet this year’s Cannes jury.**\
+`This year’s jury choosing the winner of the Palme d’Or includes Brie Larson, Ruben Ostlund and Paul Dano.`\
+https://nytimes.com/2023/05/16/movies/cannes-jury-2023.html?searchResultPosition=8
+
 **‘Anna Nicole Smith: You Don’t Know Me’ Review: Mistreated**\
 `The tumultuous life and death of the model, actress and tabloid superstar is related with little insight in this facile Netflix documentary.`\
-https://nytimes.com/2023/05/16/movies/anna-nicole-smith-you-dont-know-me-review.html?searchResultPosition=8
+https://nytimes.com/2023/05/16/movies/anna-nicole-smith-you-dont-know-me-review.html?searchResultPosition=9
 
 **OpenAI’s Sam Altman Urges A.I. Regulation in Senate Hearing**\
 `The tech executive and lawmakers agreed that new A.I. systems must be regulated. Just how that would happen is not yet clear.`\
-https://nytimes.com/2023/05/16/technology/openai-altman-artificial-intelligence-regulation.html?searchResultPosition=9
-
-**Steven Wright, Master of the One-Liner, Tries His Hand at a Novel**\
-`The influential stand-up wanted to “pour everything I think about being alive” into the book, which is told from the point of view of a 7-year-old.`\
-https://nytimes.com/2023/05/16/arts/steven-wright-comedy-books.html?searchResultPosition=10
+https://nytimes.com/2023/05/16/technology/openai-altman-artificial-intelligence-regulation.html?searchResultPosition=10
 
