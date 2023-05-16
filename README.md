@@ -20,7 +20,7 @@ https://nytimes.com/2023/05/16/crosswords/spelling-bee-forum.html?searchResultPo
 
 **Overnight Missile and Drone Attacks Target Kyiv**\
 `Russia fired a wave of missiles and drones overnight, many aimed at Ukraine’s capital, Kyiv, but all were shot down, Ukrainian officials said.`\
-https://nytimes.com/video/world/europe/100000008908950/kyiv-ukraine-russia-missiles-blitz.html?searchResultPosition=6
+https://nytimes.com/video/world/europe/100000008908950/kyiv-ukraine-russia-missiles.html?searchResultPosition=6
 
 **Word of the Day: odyssey**\
 `This word has appeared in 202 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
