@@ -8,7 +8,7 @@ https://nytimes.com/2023/05/16/us/oakland-teachers-strike.html?searchResultPosit
 
 **German Court Convicts Five Men for Green Vault Jewel Heist**\
 `The trial brought to light the extraordinary story of how members of a notorious crime family broke into one of the most secure museums in Germany.`\
-https://nytimes.com/2023/05/16/world/europe/green-vault-jewel-heist.html?searchResultPosition=3
+https://nytimes.com/2023/05/16/arts/design/green-vault-jewel-heist.html?searchResultPosition=3
 
 **College Football Player With Down Syndrome Sues School Where He Made History**\
 `Caden Cox said he was traumatized by a campus supervisor who used slurs about people with disabilities and threatened him with a knife.`\
