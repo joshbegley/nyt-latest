@@ -19,7 +19,7 @@ https://nytimes.com/2023/05/16/learning/how-did-you-grow-and-change-this-school-
 https://nytimes.com/2023/05/16/learning/10-ideas-for-reflecting-at-the-end-of-the-school-year.html?searchResultPosition=5
 
 **Officials Who Cast Doubt on Hunter Biden Laptop Face Questions**\
-`House Republicans are pointing to a 2020 letter signed by 51 former intelligence officials as evidence that the federal government has tried to damage conservatives.`\
+`Dozens of former intelligence officials signed a letter discounting the laptop’s contents. Republicans say the missive was part of a Biden campaign operation.`\
 https://nytimes.com/2023/05/16/us/politics/republicans-hunter-biden-laptop.html?searchResultPosition=6
 
 **Bill Saluga, a Memorable Comedic Wiseguy, Is Dead at 85**\
