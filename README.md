@@ -1,6 +1,6 @@
 **Two Television Showrunners on ‘Creative Short Circuits’**\
 `Soo Hugh (“Pachinko”) and Damon Lindelof (“Lost,” “Mrs. Davis”) discuss learning from their staffs, wanting to hear “no” and navigating the writers’ strike.`\
-https://nytimes.com/2023/05/17/arts/television/tv-showrunners-damon-lindelhof-soo-hugh.html?searchResultPosition=1
+https://nytimes.com/2023/05/17/arts/television/damon-lindelhof-soo-hugh-tv-series.html?searchResultPosition=1
 
 **The Composer Carlos Simon Is Busier, and More Honest, Than Ever**\
 `On the rise before the pandemic, Simon has shot to even greater prominence since. His next premiere commemorates the murder of George Floyd.`\
