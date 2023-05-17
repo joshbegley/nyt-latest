@@ -14,7 +14,7 @@ https://nytimes.com/2023/05/17/sports/golf/liv-pga-antitrust-phil-mickelson.html
 `A lot gets lost in translation. The Chinese-born economist Keyu Jin wants to change that.`\
 https://nytimes.com/2023/05/17/opinion/china-keyu-jin.html?searchResultPosition=4
 
-**Fifth Circuit Judges Hear Arguments in Abortion Pill Case**\
+**Fifth Circuit Judges Is Hearing Arguments in Abortion Pill Case**\
 `A panel of three judges heard arguments by anti-abortion groups that the federal government should withdraw approval for a widely used drug.`\
 https://nytimes.com/2023/05/17/us/politics/abortion-pill-case-arguments.html?searchResultPosition=5
 
