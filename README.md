@@ -15,7 +15,7 @@ https://nytimes.com/2023/05/17/world/middleeast/turkey-runoff-election-sinan-oga
 https://nytimes.com/2023/05/17/nyregion/marijuana-mother-child-removed-lawsuit.html?searchResultPosition=4
 
 **Canada’s Wildfires Have Been Disrupting Lives. Now, Oil and Gas Take a Hit.**\
-`Alberta’s vast oil industry is cutting production as the flames menace wells and pipelines.`\
+`Alberta’s vast oil industry is cutting production as the flames menace wells and pipelines, highlighting the danger`\
 https://nytimes.com/2023/05/17/climate/canada-wildfires-fracking-oil-gas.html?searchResultPosition=5
 
 **Trounced, Conservatives Feel Voters’ Wrath in English Heartlands**\
