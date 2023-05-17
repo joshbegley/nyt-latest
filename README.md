@@ -1,6 +1,6 @@
 **Cherelle Parker Wins Democratic Mayoral Primary in Philadelphia**\
-`She drew support from prominent Democratic politicians and trade unions.`\
-https://nytimes.com/2023/05/16/us/elections/cherelle-parker-wins-democratic-mayoral-primary-in-philadelphia.html?searchResultPosition=1
+`She drew support from prominent Democratic politicians and trade unions. She is all but assured of becoming the city’s first woman mayor.`\
+https://nytimes.com/2023/05/16/us/elections/philadelphia-democratic-party-primary-mayor-cherelle-parker.html?searchResultPosition=1
 
 **DeSantis Goes 0-for-2 on Election Night**\
 `The 2024 hopeful made a dramatic, election-eve show of support in the Kentucky governor’s race, only for his chosen candidate to get clobbered. Another favored candidate in Jacksonville, Fla., lost, too.`\
