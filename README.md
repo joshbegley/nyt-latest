@@ -1,1 +1,1 @@
-**Cannes Film Festival 2023: What to Know **\
+**Cannes 2023: Best Looks from the Red Carpet **\
