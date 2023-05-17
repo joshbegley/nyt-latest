@@ -1,6 +1,6 @@
 **Fair Warning: Lots of Passes, But Sotheby’s Modern Sales Still Bring In $427 Million**\
 `The auction house offered nearly 65 paintings and sculptures, including 15 from the late Warner Bros. chairman Mo Ostin, whose Magritte sold for $42.3 million.`\
-https://nytimes.com/2023/05/16/arts/design/16sothebys-auctions-art.html?searchResultPosition=1
+https://nytimes.com/2023/05/16/arts/design/sothebys-auctions-art.html?searchResultPosition=1
 
 **Sounds of Recognition**\
 `Parker Higgins breaks things down for us.`\
