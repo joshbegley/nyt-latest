@@ -2,7 +2,7 @@
 `The 2024 hopeful made a dramatic, election-eve show of support in the Kentucky governor’s race, only for his chosen candidate to get clobbered. Another favored candidate in Jacksonville, Fla., lost, too.`\
 https://nytimes.com/2023/05/16/us/politics/desantis-kelly-craft-kentucky-governor.html?searchResultPosition=1
 
-**Fair Warning: Lots of Passes, But Sotheby’s Modern Sales Still Bring In $427 Million**\
+**Fair Warning: Lots of Passes, but Sotheby’s Modern Sales Still Bring in $427 Million**\
 `The Tuesday sales found stars in Magritte and Klimt, but the path for the art market is uncertain. Bidding is stingier than in the gonzo days of yesteryear.`\
 https://nytimes.com/2023/05/16/arts/design/sothebys-auctions-art.html?searchResultPosition=2
 
