@@ -26,8 +26,8 @@ https://nytimes.com/2023/05/17/world/europe/french-resistance-execution-german-p
 `Also, hot years ahead as global temperatures rise.`\
 https://nytimes.com/2023/05/17/briefing/g7-biden-pacific-japan-asia.html?searchResultPosition=7
 
-**With stakes at their highest, Manchester City rises.**\
-`By Rory Smith`\
+**With Stakes at Their Highest, Manchester City Rises**\
+`City defeated Real Madrid, 4-0, in the second leg of their Champions League semifinal to take another step toward the prize it has long sought.`\
 https://nytimes.com/2023/05/17/sports/soccer/with-stakes-at-their-highest-manchester-city-rises.html?searchResultPosition=8
 
 **Ukraine and Russia Renew a Deal to Allow Ukraine to Ship Grain**\
