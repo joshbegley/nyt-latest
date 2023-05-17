@@ -1,4 +1,4 @@
-**Temperatures Will Likely Soar Worldwide in Coming Years, a New Analysis Says**\
+**Heat Will Likely Soar to Record Levels in Next 5 Years, New Analysis Says**\
 `The World Meteorological Organization forecast “far-reaching repercussions for health, food security, water management and the environment.”`\
 https://nytimes.com/2023/05/17/climate/record-heat-forecast.html?searchResultPosition=1
 
