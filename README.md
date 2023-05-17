@@ -1,4 +1,4 @@
-**Kaitlan Collins, Moderator of Trump Forum, Named CNN’s 9 p.m. Anchor**\
+**Kaitlan Collins, Moderator of Trump Forum, Is Named CNN’s 9 P.M. Anchor**\
 `The appointment caps a fast rise at the network by Ms. Collins, 31, who previously covered the Trump and Biden administrations.`\
 https://nytimes.com/2023/05/17/business/media/cnn-kaitlan-collins.html?searchResultPosition=1
 
