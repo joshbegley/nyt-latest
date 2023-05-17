@@ -1,40 +1,40 @@
-**As China Looms Over Taiwan’s Presidential Race, the Opposition Picks a Moderate**\
-`The Kuomintang nominated Hou Yu-ih, a popular mayor who has said little about geopolitical issues, as the party tries to appeal to voters wary of Beijing.`\
-https://nytimes.com/2023/05/17/world/asia/taiwan-china-kmt-election.html?searchResultPosition=1
+**Baseball Returns to the ‘Hallowed Grounds’ of a Negro Leagues Stadium**\
+`Saved from demolition, Hinchliffe Stadium in New Jersey underwent a $100 million renovation. It will now serve as a minor league ballpark and a Negro leagues museum.`\
+https://nytimes.com/2023/05/17/sports/baseball/hinchliffe-stadium-new-jersey.html?searchResultPosition=1
 
-**Quotation of the Day: Drug Shortages Spur Rationing to Critically Ill**\
-`Quotation of the Day for Wednesday, May 17, 2023.`\
-https://nytimes.com/2023/05/17/pageoneplus/quotation-of-the-day-drug-shortages-spur-rationing-to-critically-ill.html?searchResultPosition=2
+**The Essential Neil Gaiman**\
+`The man behind the landmark reboot of “The Sandman” comic (and Netflix series) is going strong after decades of writing in just about every format. Here’s where to get started with his books for adults.`\
+https://nytimes.com/2023/05/17/books/neil-gaiman-best-books.html?searchResultPosition=2
 
-**North Carolina Passes 12-Week Abortion Ban**\
-`Just days after the governor vetoed the bill, the Republican-dominated legislature reapproved it. Crowds in the House gallery chanted, “Shame!”`\
-https://nytimes.com/video/us/politics/100000008910831/north-carolina-abortion-ban.html?searchResultPosition=3
+**The Religious Right’s Hidden Sway as Japan Trails Allies on Gay Rights**\
+`As a G7 summit nears in Hiroshima, Japan is under pressure to show greater support for equality. A national Shinto group has spread a more hostile message.`\
+https://nytimes.com/2023/05/17/world/asia/japan-same-sex-marriage.html?searchResultPosition=3
 
-**What Your Therapist Doesn't Tell You**\
-`A dozen counselors on what it’s really like to sit in the other armchair.`\
-https://nytimes.com/interactive/2023/05/17/magazine/therapists-confess.html?searchResultPosition=4
+**They Watched Jordan Neely Die. Did They Have a Duty to Intervene?**\
+`New York does not require bystanders to act when someone is in danger, but the killing on the F train has residents debating when they should step in.`\
+https://nytimes.com/2023/05/17/nyregion/jordan-neely-killing-bystanders-nyc.html?searchResultPosition=4
 
-**Russian-Controlled Dam Risks Flooding in Southern Ukraine**\
-`The development is a dramatic turnabout after the reservoir had reached a historic low. The dam, which lies along the front line, has been a point of tension throughout the war.`\
-https://nytimes.com/2023/05/17/world/europe/dam-flood-ukraine-kakhovka.html?searchResultPosition=5
+**In Broadway’s ‘Grey House,’ Something Nightmarish This Way Comes**\
+`Levi Holloway on his psychological thriller starring Laurie Metcalf: “It wears the jacket of horror. But I think it’s more heart than horror.”`\
+https://nytimes.com/2023/05/17/theater/grey-house-broadway-laurie-metcalf.html?searchResultPosition=5
 
-**Burning Man Becomes Latest Adversary in Geothermal Feud**\
-`Festival organizers are trying to block plans to build a clean energy plant in the Nevada desert, highlighting the struggle to combat climate change and the cost of clean power.`\
-https://nytimes.com/2023/05/17/business/burning-man-geothermal-plant-nevada.html?searchResultPosition=6
+**For Gen Z, Playing an Influencer on TikTok Comes Naturally**\
+`There’s stuff to promote now. The followers can come later.`\
+https://nytimes.com/2023/05/17/business/tiktok-influencers-gen-z.html?searchResultPosition=6
 
-**Johannesburg, Where Mayors Last Just Months, or Even Only Weeks**\
-`South Africa’s largest city is now on its sixth different mayor in 22 months. While politicians argue over power, residents struggle with dry taps, heaps of garbage and dilapidated buildings.`\
-https://nytimes.com/2023/05/17/world/africa/south-africa-johannesburg-mayor.html?searchResultPosition=7
+**The Liberty Took a Few Jets and a Boat to Become a Superteam**\
+`Clara Wu Tsai and Joe Tsai, the Liberty owners, improved their facilities and chartered flights, drawing a W.N.B.A. fine — and enticing top free agents.`\
+https://nytimes.com/2023/05/17/sports/basketball/wnba-liberty-joe-clara-wu-tsai.html?searchResultPosition=7
 
-**Drug Shortages Near an All-Time High, Leading to Rationing**\
-`A worrisome scarcity of cancer drugs has heightened concerns about the troubled generic drug industry. Congress and the White House are seeking ways to address widespread supply problems.`\
-https://nytimes.com/2023/05/17/health/drug-shortages-cancer.html?searchResultPosition=8
+**Julia Louis-Dreyfus and Nicole Holofcener on the Absurdity of Everyday Life**\
+`The star and director share a sensibility that comes through in their new film, “You Hurt My Feelings,” about a small thing that rocks a marriage.`\
+https://nytimes.com/2023/05/17/movies/julia-louis-dreyfus-you-hurt-my-feelings-nicole-holofcener.html?searchResultPosition=8
 
-**Meet the Pro Athlete Who Is Thrilled to Be in His 50s**\
-`Steven Alker’s golf career was largely unremarkable. Then he joined the senior circuit and won so big that he’ll play his debut P.G.A. Championship.`\
-https://nytimes.com/2023/05/17/sports/golf/pga-championship-steven-alker.html?searchResultPosition=9
+**Why Prosecutors Waited Before They Charged Daniel Penny**\
+`After the ruling that Jordan Neely’s death on a subway train was a homicide, the Manhattan district attorney’s office faced several choices over how to charge his killer.`\
+https://nytimes.com/2023/05/17/nyregion/jordan-neely-daniel-penny-charges.html?searchResultPosition=9
 
-**After Years of Political Hype, the Durham Inquiry Failed to Deliver**\
-`A dysfunctional investigation led by a Trump-era special counsel illustrates a dilemma about prosecutorial independence and accountability in politically sensitive matters.`\
-https://nytimes.com/2023/05/17/us/politics/durham-report-trump-russia.html?searchResultPosition=10
+**Casting a Bright Light on the Supreme Court’s ‘Shadow Docket’**\
+`A new book by the legal scholar Stephen Vladeck argues that unsigned and unexplained decisions issued through the court’s shadow docket have helped propel its jurisprudence to the right.`\
+https://nytimes.com/2023/05/17/books/review/the-shadow-docket-stephen-vladeck.html?searchResultPosition=10
 
