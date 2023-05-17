@@ -3,7 +3,7 @@
 https://nytimes.com/2023/05/17/nyregion/the-covid-emergency-is-over-covids-still-here.html?searchResultPosition=1
 
 **Cherelle Parker Wins Democratic Mayoral Primary in Philadelphia**\
-`She drew support from prominent Democratic politicians and trade unions. She is all but assured of becoming the city’s first woman mayor.`\
+`If she wins the general election in November, she will be the first woman to lead the city.`\
 https://nytimes.com/2023/05/16/us/elections/philadelphia-democratic-party-primary-mayor-cherelle-parker.html?searchResultPosition=2
 
 **DeSantis Goes 0-for-2 on Election Night**\
