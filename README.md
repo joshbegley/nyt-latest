@@ -8,7 +8,7 @@ https://nytimes.com/2023/05/17/us/politics/desantis-bills-trans-rights.html?sear
 
 **Brie Larson Did Watch ‘Jeanne du Barry’ at Cannes**\
 `On Day 1 of the festival, the juror who was active in Hollywood’s #MeToo response was asked if she would view the Johnny Depp film. She answered tersely.`\
-https://nytimes.com/2023/05/17/movies/brie-larson-johnny-depp.html?searchResultPosition=3
+https://nytimes.com/2023/05/17/movies/brie-larson-johnny-depp-cannes.html?searchResultPosition=3
 
 **Haven’t Checked Your Gmail in a While? Google May Delete Your Account.**\
 `Personal Google accounts that have not been used in at least two years could be removed starting in December as part of an effort to address security threats, the company said.`\
