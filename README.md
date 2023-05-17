@@ -4,7 +4,7 @@ https://nytimes.com/2023/05/17/podcasts/the-daily/erdogan-turkey-election-runoff
 
 **Listen to The Headlines, a Short Show on the Day’s Biggest News**\
 `Exclusively from New York Times Audio, our new app.`\
-https://nytimes.com/2023/05/17/podcasts/biden-g7-ai-regulation-coastal-cities-migration.html?searchResultPosition=2
+https://nytimes.com/2023/05/17/podcasts/headlines-nyt-audio-app.html?searchResultPosition=2
 
 **Gains Near Bakhmut Raise Ukraine’s Hopes of a Turning Tide**\
 `The advances have been small, and Russians still hold most of the city, but Ukrainians say they see a meaningful shift in momentum.`\
