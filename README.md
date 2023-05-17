@@ -1,5 +1,5 @@
 **Operator of Limo Service Is Convicted in 2018 Accident That Killed 20**\
-`The guilty verdict caps a nearly five-year ordeal for the families of the victims in the Schoharie, N.Y., crash.`\
+`The operator, Nauman Hussain, could face up to 15 years in prison for the tragic crash in Schoharie, N.Y.`\
 https://nytimes.com/2023/05/17/nyregion/ny-limo-accident-verdict.html?searchResultPosition=1
 
 **Oldest Nearly Complete Hebrew Bible Sells for $38.1 Million**\
