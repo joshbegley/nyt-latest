@@ -1,5 +1,5 @@
 **Texas Legislature Bans Transgender Medical Care for Children**\
-`Texas is poised to become the largest state to ban transition medical care for minors. Gov. Greg Abbott was likely to sign the bill.`\
+`Texas became the largest state to a pass a bill banning puberty blockers and hormone treatments. Gov. Greg Abbott was likely to sign it.`\
 https://nytimes.com/2023/05/17/us/texas-transgender-care-ban-children.html?searchResultPosition=1
 
 **F.B.I. Revokes Security Clearances of 3 Agents Over Jan. 6 Issues**\
