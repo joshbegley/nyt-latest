@@ -7,7 +7,7 @@ https://nytimes.com/2023/05/17/business/economy/robert-e-lucas-jr-dead.html?sear
 https://nytimes.com/2023/05/17/nyregion/ny-limo-accident-verdict.html?searchResultPosition=2
 
 **Oldest Nearly Complete Hebrew Bible Sells for $38.1 Million**\
-`The Codex Sassoon, believed to date from the late 9th or early 10th century, was bought at Sotheby’s by the American Friends of the ANU, Museum of the Jewish People.`\
+`The Codex Sassoon, believed to date from the late 9th or early 10th century, was bought at Sotheby’s by the American Friends of the ANU — Museum of the Jewish People.`\
 https://nytimes.com/2023/05/17/arts/oldest-bible-sothebys.html?searchResultPosition=3
 
 **Looking for Offense, the Mets Call Up a Top Prospect**\
