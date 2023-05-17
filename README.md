@@ -1,9 +1,13 @@
+**Your Thursday Briefing: The G7 Begins**\
+`Also, hot years ahead as global temperatures rise.`\
+https://nytimes.com/2023/05/17/briefing/g7-biden-pacific-japan-asia.html?searchResultPosition=1
+
 **Ukraine and Russia Renew a Deal to Allow Ukraine to Ship Grain**\
 `Russia last year blocked exports of Ukrainian grain across the Black Sea, a vital part of the global food supply, but they resumed last summer under a fragile pact.`\
-https://nytimes.com/2023/05/17/world/europe/ukraine-russia-grain-black-sea.html?searchResultPosition=1
+https://nytimes.com/2023/05/17/world/europe/ukraine-russia-grain-black-sea.html?searchResultPosition=2
 
 **An Insider’s View of the George Floyd Murder Trial**\
 `Minnesota’s attorney general, Keith Ellison, who jotted notes to himself daily as he oversaw the prosecution, has written a book about the case.`\
-https://nytimes.com/2023/05/17/us/keith-ellison-book-chauvin-trial.html?searchResultPosition=2
+https://nytimes.com/2023/05/17/us/keith-ellison-book-chauvin-trial.html?searchResultPosition=3
 
 **Cannes 2023: Best Looks from the Red Carpet **\
