@@ -1,40 +1,40 @@
+**A Vanished Bird Might Live On, or Maybe Not. The Video Is Grainy.**\
+`Scientists say they’ve compiled evidence showing that the ivory-billed woodpecker, a kind of Holy Grail for American birders, still exits.`\
+https://nytimes.com/2023/05/18/climate/ivory-billed-woodpecker.html?searchResultPosition=1
+
+**Homes for Sale in Manhattan and Brooklyn**\
+`This week’s properties are in Turtle Bay, Hamilton Heights and Bedford-Stuyvesant.`\
+https://nytimes.com/2023/05/18/realestate/homes-for-sale-in-manhattan-and-brooklyn.html?searchResultPosition=2
+
+**Homes for Sale in New York and New Jersey**\
+`This week’s properties are five-bedroom homes in Huntington, N.Y., and Glen Ridge, N.J.`\
+https://nytimes.com/2023/05/18/realestate/homes-for-sale-in-new-york-and-new-jersey.html?searchResultPosition=3
+
+**You Shared What You Love About California**\
+`Tributes to quaint beach towns, diverse neighborhoods and more.`\
+https://nytimes.com/2023/05/18/us/california-love-letters.html?searchResultPosition=4
+
+**A Hawaiian Bungalow Resort Reopens on the Big Island**\
+`Plus: playful lamps, Loewe Craft Prize finalists on view in Queens and more recommendations from T Magazine.`\
+https://nytimes.com/2023/05/18/t-magazine/kona-village-hawaii-resort.html?searchResultPosition=5
+
+**On ‘The Blog Era,’ Resurrecting Rap Media History**\
+`The new podcast from the brothers Eric and Jeff Rosenthal explores what made hip-hop blogs matter — and why they faded away.`\
+https://nytimes.com/2023/05/18/arts/blog-era-podcast-drake.html?searchResultPosition=6
+
+**‘White Men Can’t Jump’ Review: Bouncing Off the Rim**\
+`Even the trash talk in a remake of the 1992 street ball comedy has no spark, despite the best efforts of Sinqua Walls and Jack Harlow.`\
+https://nytimes.com/2023/05/18/movies/white-men-cant-jump-review.html?searchResultPosition=7
+
 **When Will the U.S. Run Out of Cash? The Answer Is Complicated.**\
 `The federal government is essentially living paycheck to paycheck, making the X-date hard to pin down.`\
-https://nytimes.com/2023/05/18/us/politics/debt-ceiling-xdate.html?searchResultPosition=1
+https://nytimes.com/2023/05/18/us/politics/debt-ceiling-xdate.html?searchResultPosition=8
 
 **What Is the F-16 Fighter Jet and Why Does Ukraine Want It?**\
 `The versatile and lightweight American warplane is seen by many of Ukraine’s allies as an important deterrent against Russia.`\
-https://nytimes.com/2023/05/18/world/europe/fighter-jet-f16-ukraine.html?searchResultPosition=2
+https://nytimes.com/2023/05/18/world/europe/fighter-jet-f16-ukraine.html?searchResultPosition=9
 
 **Corporate America Faces a Bankruptcy Boom**\
 `New data shows that 2023 is shaping up to be the biggest year for Chapter 11 filings in more than a decade.`\
-https://nytimes.com/2023/05/18/business/dealbook/corporate-bankruptcies-high-debt.html?searchResultPosition=3
-
-**Walmart Raises Its Outlook as Shoppers Look for Bargains**\
-`The retailer reported revenue that beat expectations and said it expected net sales to rise 3.5 percent for the year.`\
-https://nytimes.com/2023/05/18/business/walmart-earnings-1q-2023.html?searchResultPosition=4
-
-**Where Can You Find a No-Fee Rental?**\
-`A median-priced New York City rental apartment could come with a broker’s fee of nearly $7,000.`\
-https://nytimes.com/2023/05/18/realestate/no-fee-rental-apartment.html?searchResultPosition=5
-
-**Cyclone Aid Stalled in Myanmar: ‘I Just Hope We Get Help Before We Die.’**\
-`Aid groups in the war-torn country say they are having trouble gaining access to areas affected by the storm without approval from the junta.`\
-https://nytimes.com/2023/05/18/world/asia/myanmar-cyclone-mocha.html?searchResultPosition=6
-
-**‘White Building’ Review: Coming of Age in Cambodia**\
-`Kavich Neang’s lush feature tells a largely autobiographical tale of growing up in a building whose often painful history is a microcosm of his country’s.`\
-https://nytimes.com/2023/05/18/movies/white-building-review.html?searchResultPosition=7
-
-**‘Sanctuary’ Review: Who’s the Boss?**\
-`A wealthy heir and his longtime employee vie for control over their uncommon relationship in this twisty duet.`\
-https://nytimes.com/2023/05/18/movies/sanctuary-review-whos-the-boss.html?searchResultPosition=8
-
-**‘Come Out Fighting’ Review: The Battle of the Budget**\
-`A veteran cast attempts to fend off a deluge of clichés in this cheap-looking, pleasingly scrappy war film.`\
-https://nytimes.com/2023/05/18/movies/come-out-fighting-review.html?searchResultPosition=9
-
-**‘Moon Garden’ Review: Malice in Wonderland**\
-`The director Ryan Stevens Harris brings a young girl’s subconscious to eerie life in this unnerving feature.`\
-https://nytimes.com/2023/05/18/movies/moon-garden-review-malice-in-wonderland.html?searchResultPosition=10
+https://nytimes.com/2023/05/18/business/dealbook/corporate-bankruptcies-high-debt.html?searchResultPosition=10
 
