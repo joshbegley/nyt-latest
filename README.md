@@ -1,6 +1,6 @@
 **Where Can You Find a No-Fee Rental?**\
 `A median-priced New York City rental apartment could come with a broker’s fee of nearly $7,000.`\
-https://nytimes.com/2023/05/18/realestate/where-can-you-find-a-no-fee-rental.html?searchResultPosition=1
+https://nytimes.com/2023/05/18/realestate/no-fee-rental-apartment.html?searchResultPosition=1
 
 **Cyclone Aid Stalled in Myanmar: ‘I Just Hope We Get Help Before We Die.’**\
 `Aid groups in the war-torn country say they are having trouble gaining access to areas affected by the storm without approval from the junta.`\
