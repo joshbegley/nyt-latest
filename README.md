@@ -1,5 +1,5 @@
 **Peter Thiel Is Latest Billionaire Said to Have Met With Jeffrey Epstein**\
-`The venture capitalist Mr. Thiel was scheduled to meet with Mr. Epstein, a sex offender, on multiple occasions in 2014.`\
+`Mr. Thiel apparently had several meetings with Mr. Epstein in 2014, according to records of the disgraced financier reviewed by The New York Times.`\
 https://nytimes.com/2023/05/18/business/jeffrey-epstein-peter-thiel.html?searchResultPosition=1
 
 **‘Fast X’ Review: Drivers Wanted. Again.**\
