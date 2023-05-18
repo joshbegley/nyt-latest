@@ -27,7 +27,7 @@ https://nytimes.com/2023/05/18/arts/design/touria-el-glaoui-1-54-african-art-fai
 https://nytimes.com/2023/05/18/health/unions-nurses-upmc-antitrust.html?searchResultPosition=7
 
 **A Vanished Bird Might Live On, or Not. The Video Is Grainy.**\
-`Scientists say they’ve compiled evidence showing that the ivory-billed woodpecker, a kind of Holy Grail for American birders, still exits.`\
+`Scientists say they’ve compiled evidence showing that the ivory-billed woodpecker, a kind of Holy Grail for American birders, still exists.`\
 https://nytimes.com/2023/05/18/climate/ivory-billed-woodpecker.html?searchResultPosition=8
 
 **Homes for Sale in Manhattan and Brooklyn**\
