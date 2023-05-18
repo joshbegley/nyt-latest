@@ -19,7 +19,7 @@ https://nytimes.com/2023/05/18/movies/the-night-of-the-12th-review.html?searchRe
 https://nytimes.com/2023/05/18/us/supreme-court-warhol-copyright.html?searchResultPosition=5
 
 **Israelis March Through Jerusalem, Raising Tensions in a Divided City**\
-`The annual parade commemorated the unification of East and West Jerusalem after Israel captured it in 1967. The event is a celebration for Israelis but Palestinians see it as an insult.`\
+`The annual parade marks the unification of the city after Israel captured East Jerusalem in 1967. Israelis see it as a celebration, but Palestinians consider it an insult, and it was marred by incitement against Arabs.`\
 https://nytimes.com/2023/05/18/world/middleeast/israel-march-jerusalem-day.html?searchResultPosition=6
 
 **Explosions Derail Train in Russian-Occupied Crimea**\
