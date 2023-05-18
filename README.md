@@ -1,40 +1,40 @@
-**How Well Do You Sleep at Night?**\
-`Nearly a quarter of adolescents struggle with insomnia. Do you?`\
-https://nytimes.com/2023/05/18/learning/how-well-do-you-sleep-at-night.html?searchResultPosition=1
+**After a ‘Kill Shot’ to the Eye, a Wrestler Restarts His Life**\
+`Rich Perry was an Olympic hopeful when he sustained a gruesome injury at a training camp in 2018. The question now is whether he can ever fully be himself again.`\
+https://nytimes.com/2023/05/18/sports/olympics/olympics-wrestler-injury.html?searchResultPosition=1
 
-**Poem: wild and blue**\
-`A 21st-century troubadour’s lament, from the country musician and poet Julian Talamantez Brolaski.`\
-https://nytimes.com/2023/05/18/magazine/poem-wild-and-blue.html?searchResultPosition=2
+**This ‘Magic Flute’ Has Ringtones, Bird Tracks and a Foley Artist**\
+`The director Simon McBurney creates a magical sound world in his theatrical production of Mozart’s classic at the Metropolitan Opera.`\
+https://nytimes.com/2023/05/18/arts/music/die-zauberflote-simon-mcburney-metropolitan-opera.html?searchResultPosition=2
 
-**Judge John Hodgman on the Stuffed Coatrack**\
-`A couple can’t agree on who gets to hang their things.`\
-https://nytimes.com/2023/05/18/magazine/judge-john-hodgman-coatrack.html?searchResultPosition=3
+**A Centuries-Old Mystery: Did This Elusive Viking City Exist?**\
+`Was a “medieval New York” called Jomsborg a literary fantasy or a historical reality? New archaeological discoveries may provide a clue.`\
+https://nytimes.com/2023/05/18/world/europe/poland-vikings-wolin-jomsborg.html?searchResultPosition=3
 
-**I Had to Quit Therapy to Finally Be Ready for It**\
-`Giving up on psychoanalysis made it possible to imagine going back.`\
-https://nytimes.com/2023/05/18/magazine/quit-therapy.html?searchResultPosition=4
+**Another Casualty in Ukraine: Teenage Years**\
+`In a battered Ukrainian city, the war has stolen the normal experiences of teenage life. The youths mostly use humor to deal with the ferocity of the fighting around them.`\
+https://nytimes.com/2023/05/18/world/europe/ukraine-teenagers-war.html?searchResultPosition=4
 
-**Four Bedrooms for $275,000? An Upstate Couple Hoped to Find a Family Home to Grow In.**\
-`Outside Rochester, N.Y., the lakeside city of Geneva brims with historic homes. But when a young family went looking, they found few for sale. These were their options.`\
-https://nytimes.com/interactive/2023/05/18/realestate/18hunt-fingerlakes.html?searchResultPosition=5
+**A Secretive Early Release From Prison, Then a Frantic Manhunt**\
+`After a judge in South Carolina signed an order releasing Jeriod Price, a convicted murderer, the State Supreme Court overruled it. But Mr. Price remains at large.`\
+https://nytimes.com/2023/05/18/us/jeriod-price-south-carolina-prison.html?searchResultPosition=5
 
-**For a Queer Community in Los Angeles, This Public Park is a Lifeline**\
-`At a time when their right to exist is under attack, these young L.G.B.T.Q. adults have carved out a space of safety, intimacy and friendship for themselves.`\
-https://nytimes.com/interactive/2023/05/18/style/los-angeles-community-park.html?searchResultPosition=6
+**In Battle Over A.I., Meta Decides to Give Away Its Crown Jewels**\
+`The tech giant has publicly released its latest A.I. technology so people can build their own chatbots. Rivals like Google say that approach can be dangerous.`\
+https://nytimes.com/2023/05/18/technology/ai-meta-open-source.html?searchResultPosition=6
 
-**36 Hours in Buenos Aires**\
-`Buenos Aires, Argentina’s capital, can feel overwhelming. But elegance can be found everywhere.`\
-https://nytimes.com/interactive/2023/05/18/travel/things-to-do-buenos-aires.html?searchResultPosition=7
+**Killer Mike, Atlanta’s Rap Journeyman, Is at the Peak of His Powers**\
+`More than 20 years into an idiosyncratic career, the musician and activist is finally opening up for real on “Michael,” his first solo album in more than a decade.`\
+https://nytimes.com/2023/05/18/arts/music/killer-mike-michael.html?searchResultPosition=7
 
-**‘It’s Still an Emergency’: The Vulnerability of Queer Orthodox Jews**\
-`Seeking help, L.G.B.T.Q. members of religious communities may end up in conversion therapy without even realizing it.`\
-https://nytimes.com/video/opinion/100000008900818/conversion-therapy-jewish-orthodox.html?searchResultPosition=8
+**You Never Know, You Might Learn Something**\
+`What do these memoirs have in common? They contain subtle lessons in persistence, coping and, yes, cleanliness.`\
+https://nytimes.com/2023/05/18/books/review/new-memoirs.html?searchResultPosition=8
 
-**As the U.S. Attends the G7, China Hosts a Summit of Its Own**\
-`Xi Jinping of China is meeting with leaders of five countries in Central Asia, a region crucial to his geopolitical ambitions.`\
-https://nytimes.com/2023/05/18/world/asia/china-central-asia-g7.html?searchResultPosition=9
+**Want to Fix Your Mind? Let Your Body Talk.**\
+`Somatic therapy is surging, with the promise that true healing may reside in focusing on the physical rather than the mental.`\
+https://nytimes.com/2023/05/18/magazine/somatic-therapy.html?searchResultPosition=9
 
-**Quotation of the Day: A Scramble to Fill the Gaps Left by Bed Bath & Beyond**\
-`Quotation of the Day for Thursday, May 18, 2023.`\
-https://nytimes.com/2023/05/18/pageoneplus/quotation-of-the-day-a-scramble-to-fill-the-gaps-left-by-bed-bath-beyond.html?searchResultPosition=10
+**The Decade That Cannot Be Deleted**\
+`China’s efforts to suppress the memory of the Cultural Revolution have intensified.`\
+https://nytimes.com/2023/05/18/opinion/columnists/cultural-revolution-china-censor.html?searchResultPosition=10
 
