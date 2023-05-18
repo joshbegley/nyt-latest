@@ -26,13 +26,13 @@ https://nytimes.com/2023/05/18/sports/olympics/olympics-wrestler-injury.html?sea
 `The director Simon McBurney creates a magical sound world in his theatrical production of Mozart’s classic at the Metropolitan Opera.`\
 https://nytimes.com/2023/05/18/arts/music/die-zauberflote-simon-mcburney-metropolitan-opera.html?searchResultPosition=7
 
-**A Centuries-Old Mystery: Did This Elusive Viking City Exist?**\
-`Was a “medieval New York” called Jomsborg a literary fantasy or a historical reality? New archaeological discoveries may provide a clue.`\
-https://nytimes.com/2023/05/18/world/europe/poland-vikings-wolin-jomsborg.html?searchResultPosition=8
-
 **Another Casualty in Ukraine: Teenage Years**\
 `In a battered Ukrainian city, the war has stolen the normal experiences of teenage life. The youths mostly use humor to deal with the ferocity of the fighting around them.`\
-https://nytimes.com/2023/05/18/world/europe/ukraine-teenagers-war.html?searchResultPosition=9
+https://nytimes.com/2023/05/18/world/europe/ukraine-teenagers-war.html?searchResultPosition=8
+
+**A Centuries-Old Mystery: Did This Elusive Viking City Exist?**\
+`Was a “medieval New York” called Jomsborg a literary fantasy or a historical reality? New archaeological discoveries may provide a clue.`\
+https://nytimes.com/2023/05/18/world/europe/poland-vikings-wolin-jomsborg.html?searchResultPosition=9
 
 **A Secretive Early Release From Prison, Then a Frantic Manhunt**\
 `After a judge in South Carolina signed an order releasing Jeriod Price, a convicted murderer, the State Supreme Court overruled it. But Mr. Price remains at large.`\
