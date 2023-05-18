@@ -1,6 +1,6 @@
 **Larry Mahan, the Elvis of Rodeo, Is Dead at 79**\
 `His eight championships made him a legend to his fans. His mod style, swashbuckling lifestyle and flirtations with Hollywood made him a star.`\
-https://nytimes.com/2023/05/18/sports/larry-mahan-the-elvis-of-rodeo-is-dead-at-79.html?searchResultPosition=1
+https://nytimes.com/2023/05/18/sports/larry-mahan-dead.html?searchResultPosition=1
 
 **Supreme Court Dismisses Case on Pandemic-Era Immigration Measure**\
 `The justices acted after the Biden administration announced that the health emergency used to justify the measure, Title 42, was ending.`\
