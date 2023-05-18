@@ -1,40 +1,40 @@
+**How Well Do You Sleep at Night?**\
+`Nearly a quarter of adolescents struggle with insomnia. Do you?`\
+https://nytimes.com/2023/05/18/learning/how-well-do-you-sleep-at-night.html?searchResultPosition=1
+
+**Poem: wild and blue**\
+`A 21st-century troubadour’s lament, from the country musician and poet Julian Talamantez Brolaski.`\
+https://nytimes.com/2023/05/18/magazine/poem-wild-and-blue.html?searchResultPosition=2
+
+**Judge John Hodgman on the Stuffed Coatrack**\
+`A couple can’t agree on who gets to hang their things.`\
+https://nytimes.com/2023/05/18/magazine/judge-john-hodgman-coatrack.html?searchResultPosition=3
+
+**I Had to Quit Therapy to Finally Be Ready for It**\
+`Giving up on psychoanalysis made it possible to imagine going back.`\
+https://nytimes.com/2023/05/18/magazine/quit-therapy.html?searchResultPosition=4
+
+**Four Bedrooms for $275,000? An Upstate Couple Hoped to Find a Family Home to Grow In.**\
+`Outside Rochester, N.Y., the lakeside city of Geneva brims with historic homes. But when a young family went looking, they found few for sale. These were their options.`\
+https://nytimes.com/interactive/2023/05/18/realestate/18hunt-fingerlakes.html?searchResultPosition=5
+
+**For a Queer Community in Los Angeles, This Public Park is a Lifeline**\
+`At a time when their right to exist is under attack, these young L.G.B.T.Q. adults have carved out a space of safety, intimacy and friendship for themselves.`\
+https://nytimes.com/interactive/2023/05/18/style/los-angeles-community-park.html?searchResultPosition=6
+
+**36 Hours in Buenos Aires**\
+`Buenos Aires, Argentina’s capital, can feel overwhelming. But elegance can be found everywhere.`\
+https://nytimes.com/interactive/2023/05/18/travel/things-to-do-buenos-aires.html?searchResultPosition=7
+
+**‘It’s Still an Emergency’: The Vulnerability of Queer Orthodox Jews**\
+`Seeking help, L.G.B.T.Q. members of religious communities may end up in conversion therapy without even realizing it.`\
+https://nytimes.com/video/opinion/100000008900818/conversion-therapy-jewish-orthodox.html?searchResultPosition=8
+
 **As the U.S. Attends the G7, China Hosts a Summit of Its Own**\
 `Xi Jinping of China is meeting with leaders of five countries in Central Asia, a region crucial to his geopolitical ambitions.`\
-https://nytimes.com/2023/05/18/world/asia/china-central-asia-g7.html?searchResultPosition=1
+https://nytimes.com/2023/05/18/world/asia/china-central-asia-g7.html?searchResultPosition=9
 
 **Quotation of the Day: A Scramble to Fill the Gaps Left by Bed Bath & Beyond**\
 `Quotation of the Day for Thursday, May 18, 2023.`\
-https://nytimes.com/2023/05/18/pageoneplus/quotation-of-the-day-a-scramble-to-fill-the-gaps-left-by-bed-bath-beyond.html?searchResultPosition=2
-
-**Vocabulary in Context: TikTok Influencing**\
-`Test your vocabulary and reading comprehension with this quiz based on the Times article “For Gen Z, Playing an Influencer on TikTok Comes Naturally.”`\
-https://nytimes.com/interactive/2023/05/18/learning/18VocabQuiz.html?searchResultPosition=3
-
-**An Emo Band’s First U.S. Tour Began With a Robbery, but It Wasn’t All Sad**\
-`Forests, a band from Singapore, ended its tour in New York in high spirits, two weeks after being robbed in California.`\
-https://nytimes.com/2023/05/18/arts/music/singapore-band-forests-robbed-us.html?searchResultPosition=4
-
-**Meet the Woman Responsible for #AliyahCore**\
-`Aliyah Bah cultivated her quirky aesthetic — a hodgepodge of Y2K, alternative and harajuku style — and watched it take off online.`\
-https://nytimes.com/2023/05/18/style/meet-the-woman-responsible-for-aliyahcore.html?searchResultPosition=5
-
-**The Scramble to Take Over What Bed Bath & Beyond Left Behind**\
-`Couples are racing to find new wedding registries while suppliers seek other customers and competing retailers pledge to accept that big blue coupon.`\
-https://nytimes.com/2023/05/18/business/bed-bath-beyond-bankruptcy.html?searchResultPosition=6
-
-**Why the Catwalk Is Coming to Cannes**\
-`The next Indiana Jones movie isn’t the only big premiere at the Cannes Film Festival. Chopard is unveiling a full couture line, and Versace is showing a Dua Lipa collaboration.`\
-https://nytimes.com/2023/05/18/style/why-the-catwalk-is-coming-to-cannes.html?searchResultPosition=7
-
-**For A Reporter, Opportunity, or Its Absence, Is Everywhere**\
-`Talmon Joseph Smith, an economics reporter at The New York Times, is charting the greatest transfer of wealth in U.S. history.`\
-https://nytimes.com/2023/05/18/insider/for-a-reporter-opportunity-or-its-absence-is-everywhere.html?searchResultPosition=8
-
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/05/18/crosswords/wordle-review-answer-698.html?searchResultPosition=9
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/05/18/crosswords/spelling-bee-forum.html?searchResultPosition=10
+https://nytimes.com/2023/05/18/pageoneplus/quotation-of-the-day-a-scramble-to-fill-the-gaps-left-by-bed-bath-beyond.html?searchResultPosition=10
 
