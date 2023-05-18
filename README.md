@@ -3,7 +3,7 @@
 https://nytimes.com/2023/05/18/movies/indiana-jones-dial-of-destiny-harrison-ford-calista-flockhart-cannes.html?searchResultPosition=1
 
 **Married Couple Behind the L.A. Restaurant Horses Trade Charges of Violence**\
-`The high-profile chefs who ran several restaurants across the country have leveled troubling allegations against each other in court.`\
+`The high-profile chefs who ran the celebrity magnet and several other restaurants have leveled troubling allegations against each other in court.`\
 https://nytimes.com/2023/05/18/dining/los-angeles-restaurant-horses-marital-battle-liz-johnson-will-aghajanian.html?searchResultPosition=2
 
 **Kia and Hyundai to Pay $200 Million to Settle Suit Over Car Thefts**\
