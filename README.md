@@ -1,4 +1,4 @@
-**An Emo Band’s First U.S. Tour Began With a Robbery but Wasn’t All Sad**\
+**An Emo Band’s First U.S. Tour Began With a Robbery, but It Wasn’t All Sad**\
 `Forests, a band from Singapore, ended its tour in New York in high spirits, two weeks after being robbed in California.`\
 https://nytimes.com/2023/05/18/arts/music/singapore-band-forests-robbed-us.html?searchResultPosition=1
 
