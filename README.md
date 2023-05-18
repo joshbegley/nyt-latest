@@ -6,7 +6,7 @@ https://nytimes.com/2023/05/18/arts/design/touria-el-glaoui-1-54-african-art-fai
 `A coalition of unions has filed an antitrust complaint with the Justice Department, accusing the Pennsylvania hospital system of suppressing wages and worsening working conditions.`\
 https://nytimes.com/2023/05/18/health/unions-nurses-upmc-antitrust.html?searchResultPosition=2
 
-**A Vanished Bird Might Live On, or Maybe Not. The Video Is Grainy.**\
+**A Vanished Bird Might Live On, or Not. The Video Is Grainy.**\
 `Scientists say they’ve compiled evidence showing that the ivory-billed woodpecker, a kind of Holy Grail for American birders, still exits.`\
 https://nytimes.com/2023/05/18/climate/ivory-billed-woodpecker.html?searchResultPosition=3
 
