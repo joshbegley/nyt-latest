@@ -1,6 +1,6 @@
 **Extremism Finds Fertile Ground in Chat Rooms for Gamers**\
 `In the past year, about half the people who played online multiplayer games in the world’s major gaming markets encountered extremist statements, a new study found.`\
-https://nytimes.com/2023/05/18/business/extremism-finds-fertile-ground-in-chat-rooms-for-gamers.html?searchResultPosition=1
+https://nytimes.com/2023/05/18/business/video-games-extremism.html?searchResultPosition=1
 
 **Battered by War, Sudan Faces Many Possible Paths — None Good**\
 `As American-led peace efforts flounder, experts warn that Sudan risks spiraling into a state of anarchy akin to its most chaotic neighbors.`\
