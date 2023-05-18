@@ -22,13 +22,13 @@ https://nytimes.com/2023/05/18/realestate/homes-for-sale-in-new-york-and-new-jer
 `Tributes to quaint beach towns, diverse neighborhoods and more.`\
 https://nytimes.com/2023/05/18/us/california-love-letters.html?searchResultPosition=6
 
-**A Hawaiian Bungalow Resort Reopens on the Big Island**\
-`Plus: playful lamps, Loewe Craft Prize finalists on view in Queens and more recommendations from T Magazine.`\
-https://nytimes.com/2023/05/18/t-magazine/kona-village-hawaii-resort.html?searchResultPosition=7
-
 **On ‘The Blog Era,’ Resurrecting Rap Media History**\
 `The new podcast from the brothers Eric and Jeff Rosenthal explores what made hip-hop blogs matter — and why they faded away.`\
-https://nytimes.com/2023/05/18/arts/blog-era-podcast-drake.html?searchResultPosition=8
+https://nytimes.com/2023/05/18/arts/blog-era-podcast-drake.html?searchResultPosition=7
+
+**A Hawaiian Bungalow Resort Reopens on the Big Island**\
+`Plus: playful lamps, Loewe Craft Prize finalists on view in Queens and more recommendations from T Magazine.`\
+https://nytimes.com/2023/05/18/t-magazine/kona-village-hawaii-resort.html?searchResultPosition=8
 
 **‘White Men Can’t Jump’ Review: Bouncing Off the Rim**\
 `Even the trash talk in a remake of the 1992 street ball comedy has no spark, despite the best efforts of Sinqua Walls and Jack Harlow.`\
