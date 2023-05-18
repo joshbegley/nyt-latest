@@ -1,5 +1,5 @@
 **South Carolina House Passes Six-Week Abortion Ban**\
-`The approval brings both chambers of the legislature closer to agreement on a ban after nearly a year of debate.`\
+`The approval brings both chambers of the legislature closer to agreement on a ban after months of debate.`\
 https://nytimes.com/2023/05/17/us/south-carolina-abortion-ban.html?searchResultPosition=1
 
 **I, for One**\
