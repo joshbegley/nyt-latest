@@ -6,8 +6,8 @@ https://nytimes.com/2023/05/18/world/middleeast/israel-march-jerusalem-day.html?
 `No injuries were reported in the derailment of a freight train carrying grain in Crimea, the latest in a series of blasts that have hit Russian infrastructure.`\
 https://nytimes.com/video/world/europe/100000008912897/crimea-train-derailment-explosions.html?searchResultPosition=2
 
-**Rafael Nadal Withdraws From the French Open**\
-`Nadal, the Spanish star, has battled a core muscle injury since January and won’t defend his title at the Grand Slam tournament he has won 14 times.`\
+**Rafael Nadal Withdraws From the French Open, Wants to Play One More Year**\
+`Nadal, the Spanish star, has battled a core muscle injury since January. He said that next season is “probably is going to be my last year in the professional tour.”`\
 https://nytimes.com/2023/05/18/sports/tennis/nadal-withdraws-french-open.html?searchResultPosition=3
 
 **Extremism Finds Fertile Ground in Chat Rooms for Gamers**\
