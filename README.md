@@ -26,15 +26,15 @@ https://nytimes.com/2023/05/19/style/donald-brown-jennifer-kizza-wedding.html?se
 `After hitting it off on a dating app, Keith Jefferson and Constance Ejismekwu became travel partners, taking back-to-back trips until the pandemic.`\
 https://nytimes.com/2023/05/19/style/keith-jefferson-constance-ejismekwu-wedding.html?searchResultPosition=7
 
+**Zelensky Will Travel to Japan for the G7, Seeking Arms and Aid, Officials Say**\
+`President Volodymyr Zelensky of Ukraine was preparing to make the audacious trip halfway around the world as his country moves toward a counteroffensive against Russian forces.`\
+https://nytimes.com/2023/05/19/world/europe/zelensky-g7-japan-visit.html?searchResultPosition=8
+
 **Quotation of the Day: Robbed of Joy, Ukraine’s Teens Laugh to Keep From Weeping**\
 `Quotation of the Day for Friday, May 19, 2023.`\
-https://nytimes.com/2023/05/18/pageoneplus/quotation-of-the-day-robbed-of-joy-ukraines-teens-laugh-to-keep-from-weeping.html?searchResultPosition=8
+https://nytimes.com/2023/05/18/pageoneplus/quotation-of-the-day-robbed-of-joy-ukraines-teens-laugh-to-keep-from-weeping.html?searchResultPosition=9
 
 **Corrections: May 19, 2023**\
 `Corrections that appeared in print on Friday, May 19, 2023.`\
-https://nytimes.com/2023/05/18/pageoneplus/corrections-may-19-2023.html?searchResultPosition=9
-
-**Salman Rushdie Makes Surprise Appearance at PEN America Gala**\
-`The novelist, who was stabbed and gravely wounded at a literary event last year, received an award from the freedom of expression organization.`\
-https://nytimes.com/2023/05/18/arts/18salman-rushdie-pen-america.html?searchResultPosition=10
+https://nytimes.com/2023/05/18/pageoneplus/corrections-may-19-2023.html?searchResultPosition=10
 
