@@ -1,6 +1,6 @@
 **Finger-Pointing Won’t Save Anyone if Default Leads to Economic Collapse**\
 `While each party tries to blame the other for the crisis, some acknowledge that they would both share responsibility for a default.`\
-https://nytimes.com/2023/05/19/us/politics/finger-pointing-debt-default.html?searchResultPosition=1
+https://nytimes.com/2023/05/19/us/politics/debt-ceiling-economy.html?searchResultPosition=1
 
 **NADA Art Fair Takes Chelsea With High Energy**\
 `The New Art Dealers Alliance offers the chance to scout for treasures from Vancouver to Tokyo without actually leaving Manhattan.`\
