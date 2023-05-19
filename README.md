@@ -1,5 +1,5 @@
 **The Rev. Timothy Keller, Pioneering Manhattan Evangelist, Dies at 72**\
-`Shunning fire and brimstone, he became a best-selling author and founded the Redeemer Presbyterian Church, which drew young New Yorkers.`\
+`Shunning fire and brimstone, he became a best-selling author and founded Redeemer Presbyterian Church, which drew young New Yorkers.`\
 https://nytimes.com/2023/05/19/nyregion/the-rev-tim-keller-dead.html?searchResultPosition=1
 
 **A ‘Canadian Armageddon’ Sets Parts of Western Canada on Fire**\
