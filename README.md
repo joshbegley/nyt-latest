@@ -1,40 +1,40 @@
+**How a Hip Megachurch Became Entangled in Scandal**\
+`A new documentary series explores the history of Hillsong, known for its celebrity congregants and fashionable trappings before being struck by a series of scandals.`\
+https://nytimes.com/2023/05/19/us/hillsong-pastor-carl-lentz.html?searchResultPosition=1
+
 **The New York Times News Quiz, May 19, 2023**\
 `Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://nytimes.com/interactive/2023/05/19/briefing/news-quiz-turkey-tiktok-martha-stewart.html?searchResultPosition=1
+https://nytimes.com/interactive/2023/05/19/briefing/news-quiz-turkey-tiktok-martha-stewart.html?searchResultPosition=2
 
 **Rockets Sent Israelis Running From the Beach. A Rare Seal Brought Them Back.**\
 `The incongruous arrival of a large and endangered monk seal has distracted Israelis from a period of violence and political unrest.`\
-https://nytimes.com/2023/05/19/world/middleeast/israel-jaffa-monk-seal.html?searchResultPosition=2
+https://nytimes.com/2023/05/19/world/middleeast/israel-jaffa-monk-seal.html?searchResultPosition=3
 
 **How to Wear a Sari? A New Exhibition Counts the Ways.**\
 `“The Offbeat Sari” explores the influence and evolution of the traditional South Asian garment.`\
-https://nytimes.com/2023/05/19/style/sari-exhibit-design-museum-london.html?searchResultPosition=3
+https://nytimes.com/2023/05/19/style/sari-exhibit-design-museum-london.html?searchResultPosition=4
 
 **‘Movie Theaters Are the Marketplace of Free Ideas’**\
 `John Fithian spent nearly three decades as the top lobbyist for movie theaters. He says their future is bright, despite the power of streaming.`\
-https://nytimes.com/2023/05/19/business/media/corner-office-john-fithian.html?searchResultPosition=4
+https://nytimes.com/2023/05/19/business/media/corner-office-john-fithian.html?searchResultPosition=5
 
 **Fierce Competition and Lychee Martinis at an Underground Mahjong Club**\
 `For the Chinatown architectural firm Food New York, the fast-paced tile game offers a chance to find more seats at more tables for the city’s creative scene.`\
-https://nytimes.com/2023/05/19/t-magazine/mahjong-club-chinatown-tournament.html?searchResultPosition=5
+https://nytimes.com/2023/05/19/t-magazine/mahjong-club-chinatown-tournament.html?searchResultPosition=6
 
 **Requiem for the 7 Dead Horses of Kentucky Derby Week**\
 `When seven thoroughbreds died at Churchill Downs, it was significant news, but little was said about the individual horses. Here are their stories, beginning with a $13,000 colt called Snowball.`\
-https://nytimes.com/2023/05/19/sports/dead-horses-kentucky-derby.html?searchResultPosition=6
+https://nytimes.com/2023/05/19/sports/dead-horses-kentucky-derby.html?searchResultPosition=7
 
 **The Four Freedoms, According to Republicans**\
 `This is not what Franklin Roosevelt had in mind.`\
-https://nytimes.com/2023/05/19/opinion/republican-legislatures-abortion-trangender-education.html?searchResultPosition=7
+https://nytimes.com/2023/05/19/opinion/republican-legislatures-abortion-trangender-education.html?searchResultPosition=8
 
 **These Spiders Look Frightening, but They May Be Scaredy-Cats**\
 `Joro spiders are spreading around the United States and may turn up in New York soon. Recent experiments suggest that they may be shyer than other arachnids.`\
-https://nytimes.com/2023/05/19/science/joro-spiders.html?searchResultPosition=8
+https://nytimes.com/2023/05/19/science/joro-spiders.html?searchResultPosition=9
 
 **The Fast, the Furious and All of the Feuds**\
 `As “Fast X” races into theaters, here’s a look at the conflicts — star vs. star, star vs. director and more — that have kept this franchise in high gear.`\
-https://nytimes.com/2023/05/19/movies/fastx-furious-vin-diesel.html?searchResultPosition=9
-
-**Feinstein Faces Growing Scrutiny, but Voters Are Still Divided on Her Fitness**\
-`Senator Dianne Feinstein’s constituents in California expressed sympathy for her deteriorating health. Some thought it was time for her to step down, while others said it remains her decision to make.`\
-https://nytimes.com/2023/05/19/us/19nat-feinstein-california-voters.html?searchResultPosition=10
+https://nytimes.com/2023/05/19/movies/fastx-furious-vin-diesel.html?searchResultPosition=10
 
