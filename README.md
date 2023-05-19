@@ -4,7 +4,7 @@ https://nytimes.com/2023/05/19/briefing/debt-limit-deal-negotiations-mccarthy-bi
 
 **Zelensky Joins Arab Summit Before Participating in G7 Meeting**\
 `Mr. Zelensky said he had landed in Saudi Arabia and will meet with the kingdom’s leader, Crown Prince Mohammed bin Salman, and others.`\
-https://nytimes.com/2023/05/19/world/europe/zelensky-arab-league-saudi.html?searchResultPosition=2
+https://nytimes.com/2023/05/19/world/europe/zelensky-arab-league-saudi-arabia.html?searchResultPosition=2
 
 **When the Culture Wars Came for NASA**\
 `The naming of the James Webb telescope kindled an unexpected firestorm in the agency and across the wider scientific community.`\
