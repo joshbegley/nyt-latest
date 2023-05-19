@@ -1,5 +1,5 @@
 **Airman to Remain Detained as He Awaits Trial**\
-`The government had argued that it was too dangerous to release Airman Teixeira into his community outside Boston, presenting evidence that he had made racist and violent threats.`\
+`The government had argued that it was too dangerous to release Airman Jack Teixeira into his community outside Boston, presenting evidence that he had made racist and violent threats.`\
 https://nytimes.com/2023/05/19/us/politics/teixeira-detention-hearing.html?searchResultPosition=1
 
 **Jim Brown, Football Great and Civil Rights Champion, Dies at 87**\
