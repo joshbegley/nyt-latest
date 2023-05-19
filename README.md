@@ -30,8 +30,8 @@ https://nytimes.com/2023/05/19/business/jetblue-american-northeast-alliance-just
 `Eleven years after her death, the disco legend’s family has combed through her possessions, deciding to sell many of her glittering dresses, manuscripts and paintings.`\
 https://nytimes.com/2023/05/19/arts/music/donna-summer-auction.html?searchResultPosition=8
 
-**Airman to Remain Detained as He Awaits Trial**\
-`The government had argued that it was too dangerous to release Airman Jack Teixeira into his community outside Boston, presenting evidence that he had made racist and violent threats.`\
+**Airman in Leak Case to Remain Detained as He Awaits Trial**\
+`The apparent leak by the airman, Jack Teixeira, was “a profound breach” of his vow to protect sensitive information when he received his security clearance, a federal magistrate judge said.`\
 https://nytimes.com/2023/05/19/us/politics/teixeira-detention-hearing.html?searchResultPosition=9
 
 **Jim Brown, Football Great and Civil Rights Champion, Dies at 87**\
