@@ -1,4 +1,4 @@
-**Debt Limit Talks Hit A Snag As G.O.P. Declares A ‘Pause’**\
+**Debt Limit Talks Hit a Snag as G.O.P. Declares a ‘Pause’**\
 `Republicans left negotiations on Friday saying the White House was refusing to move its way on spending cuts.`\
 https://nytimes.com/2023/05/19/us/politics/debt-limit-talks-hit-a-snag-as-gop-declares-a-pause.html?searchResultPosition=1
 
