@@ -23,7 +23,7 @@ https://nytimes.com/2023/05/19/well/robin-guenther-dead.html?searchResultPositio
 https://nytimes.com/2023/05/19/climate/climate-rising-seas-big-cities.html?searchResultPosition=6
 
 **James Gorman, Morgan Stanley’s Long-Serving C.E.O., to Step Down Within a Year**\
-`James Gorman, one`\
+`A successor to Mr. Gorman has not been identified, but he said there were three internal candidates.`\
 https://nytimes.com/2023/05/19/business/james-gorman-morgan-stanley-ceo.html?searchResultPosition=7
 
 **A.I.-Generated Content Discovered on News Sites, Content Farms and Product Reviews**\
