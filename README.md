@@ -34,7 +34,7 @@ https://nytimes.com/2023/05/19/world/asia/liz-truss-taiwan-tsai.html?searchResul
 `Both parties seem more willing to compromise on the debt limit.`\
 https://nytimes.com/2023/05/19/briefing/debt-limit-deal-negotiations-mccarthy-biden.html?searchResultPosition=9
 
-**Zelensky Joins Arab Summit Before Participating in G7 Meeting**\
-`Mr. Zelensky said he had landed in Saudi Arabia and will meet with the kingdom’s leader, Crown Prince Mohammed bin Salman, and others.`\
+**Zelensky Urges Arab Leaders to Reject Russian Influence**\
+`President Volodymyr Zelensky of Ukraine appeared at the Arab League summit in Saudi Arabia, where he addressed the kingdom’s leader, Crown Prince Mohammed bin Salman, and others.`\
 https://nytimes.com/2023/05/19/world/europe/zelensky-arab-league-saudi-arabia.html?searchResultPosition=10
 
