@@ -19,7 +19,7 @@ https://nytimes.com/2023/05/19/arts/music/donna-summer-auction.html?searchResult
 https://nytimes.com/2023/05/19/us/politics/teixeira-detention-hearing.html?searchResultPosition=5
 
 **Jim Brown, Football Great and Civil Rights Champion, Dies at 87**\
-`After a Hall of Fame career in the N.F.L., he pursued social activism and Hollywood stardom, but his image was stained by accusations of abuse toward women.`\
+`After a Hall of Fame career in the N.F.L., he pursued social activism and a Hollywood career, but his image was stained by accusations of abuse toward women.`\
 https://nytimes.com/2023/05/19/sports/football/jim-brown-dead.html?searchResultPosition=6
 
 **Essential Neil Gaiman and A.I. Book Freakout**\
