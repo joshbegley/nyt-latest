@@ -10,7 +10,7 @@ https://nytimes.com/2023/05/19/us/politics/ukraine-republican-skeptics.html?sear
 `The Rev. Al Sharpton will eulogize Mr. Neely, who was choked to death earlier this month on the subway, in a case that has led to protests throughout New York City.`\
 https://nytimes.com/2023/05/19/nyregion/jordan-neely-funeral-al-sharpton.html?searchResultPosition=3
 
-**1 in 5 Young Chinese Are Jobless, and Millions More Are About to Graduate**\
+**1 in 5 Young Chinese Is Jobless, and Millions More Are About to Graduate**\
 `The youth unemployment rate, which spiked during the pandemic, reached a record high this week, showing the perils of China’s uneven economic recovery.`\
 https://nytimes.com/2023/05/19/business/china-youth-unemployment.html?searchResultPosition=4
 
