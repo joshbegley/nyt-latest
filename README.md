@@ -22,7 +22,7 @@ https://nytimes.com/2023/05/18/nyregion/outdoor-dining-law-nyc.html?searchResult
 `After paying tribute to an emotional Harrison Ford, the festival unspooled the newest sequel to decidedly mixed results.`\
 https://nytimes.com/2023/05/18/movies/indiana-jones-dial-of-destiny-harrison-ford-calista-flockhart-cannes.html?searchResultPosition=6
 
-**Married Couple Behind the L.A. Restaurant Horses Trade Charges of Violence**\
+**Married Couple Behind the L.A. Restaurant Horses Trade Allegations of Violence**\
 `The high-profile chefs who ran the celebrity magnet and several other restaurants have leveled troubling allegations against each other in court.`\
 https://nytimes.com/2023/05/18/dining/los-angeles-restaurant-horses-marital-battle-liz-johnson-will-aghajanian.html?searchResultPosition=7
 
