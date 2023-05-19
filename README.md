@@ -31,7 +31,7 @@ https://nytimes.com/2023/05/19/movies/white-men-cant-jump-woody-harrelson-wesley
 https://nytimes.com/2023/05/19/your-money/interest-rates-federal-student-loans.html?searchResultPosition=8
 
 **Andy Rourke, Bassist for the Smiths, Dies at 59**\
-`Mr. Rourke was a key, if habitually unsung, part of the influential British band’s success. He died of pancreatic cancer, his bandmate Johnny Marr said.`\
+`He was a key, if habitually unsung, part of the influential British band’s success, playing on all of its most well-known songs.`\
 https://nytimes.com/2023/05/19/arts/music/andy-rourke-the-smiths-dead.html?searchResultPosition=9
 
 **Small Earthquake Hits Just North of New York City**\
