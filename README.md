@@ -1,36 +1,40 @@
+**Brittney Griner Is Creating a New Normal, for Herself and the W.N.B.A.**\
+`Griner returns to basketball after her detention in Russia with a bigger platform and a desire to reshape women’s sports.`\
+https://nytimes.com/2023/05/19/sports/basketball/brittney-griner-wnba-season.html?searchResultPosition=1
+
+**How 86 Episodes of ‘The Office’ Solidified Their Connection**\
+`Samiyyah Ali wasn’t sure how Krystal Ramseur felt about her until Ms. Ramseur made her the equivalent of a comedic mixtape.`\
+https://nytimes.com/2023/05/19/style/samiyyah-ali-krystal-ramseur-wedding.html?searchResultPosition=2
+
+**She Warmed Up to Him After Burning Man**\
+`Andrew MacRae fell for Kaitlin Green at the annual desert arts festival, but Ms. Green kept her distance until members of their camp met virtually when Covid-19 hit.`\
+https://nytimes.com/2023/05/19/style/kaitlin-green-andrew-macrae-wedding.html?searchResultPosition=3
+
+**My Spectacular Betrayal**\
+`We had compromised in our marriages, denied parts of ourselves, often felt lonely, but who didn’t? Weren’t we happy enough?`\
+https://nytimes.com/2023/05/19/style/modern-love-affair-therapy-spectacular-betrayal.html?searchResultPosition=4
+
+**One Call, and Many Virtual Dates Later, They Found Love**\
+`Jennifer Kizza and Field Brown felt an immediate connection during their first phone conversation two years ago. “I knew that day, romantic or not, Field was going to be in my life for the rest of my life,” she said.`\
+https://nytimes.com/2023/05/19/style/donald-brown-jennifer-kizza-wedding.html?searchResultPosition=5
+
+**A Tinder Match Leads to Wanderlust and a Weed Wedding**\
+`After hitting it off on a dating app, Keith Jefferson and Constance Ejismekwu became travel partners, taking back-to-back trips until the pandemic.`\
+https://nytimes.com/2023/05/19/style/keith-jefferson-constance-ejismekwu-wedding.html?searchResultPosition=6
+
 **Quotation of the Day: Robbed of Joy, Ukraine’s Teens Laugh to Keep From Weeping**\
 `Quotation of the Day for Friday, May 19, 2023.`\
-https://nytimes.com/2023/05/18/pageoneplus/quotation-of-the-day-robbed-of-joy-ukraines-teens-laugh-to-keep-from-weeping.html?searchResultPosition=1
+https://nytimes.com/2023/05/18/pageoneplus/quotation-of-the-day-robbed-of-joy-ukraines-teens-laugh-to-keep-from-weeping.html?searchResultPosition=7
 
 **Corrections: May 19, 2023**\
 `Corrections that appeared in print on Friday, May 19, 2023.`\
-https://nytimes.com/2023/05/18/pageoneplus/corrections-may-19-2023.html?searchResultPosition=2
+https://nytimes.com/2023/05/18/pageoneplus/corrections-may-19-2023.html?searchResultPosition=8
 
 **Salman Rushdie Makes Surprise Appearance at PEN America Gala**\
 `The novelist, who was stabbed and gravely wounded at a literary event last year, received an award from the freedom of expression organization.`\
-https://nytimes.com/2023/05/18/arts/18salman-rushdie-pen-america.html?searchResultPosition=3
+https://nytimes.com/2023/05/18/arts/18salman-rushdie-pen-america.html?searchResultPosition=9
 
 **Variety: Acrostic**\
 `Jeff Chen takes a turn playing the heroic role of acrostic constructor.`\
-https://nytimes.com/2023/05/18/crosswords/variety-acrostic.html?searchResultPosition=4
-
-**Outdoor Dining in New York City Is Here to Stay. (Just Not in Winter.)**\
-`City officials intend to pass a law that formally allows roadway dining sheds, but with some design guidelines.`\
-https://nytimes.com/2023/05/18/nyregion/outdoor-dining-law-nyc.html?searchResultPosition=5
-
-**‘Indiana Jones and the Dial of Destiny’ Premieres at Cannes: First Reaction**\
-`After paying tribute to an emotional Harrison Ford, the festival unspooled the newest sequel to decidedly mixed results.`\
-https://nytimes.com/2023/05/18/movies/indiana-jones-dial-of-destiny-harrison-ford-calista-flockhart-cannes.html?searchResultPosition=6
-
-**Married Couple Behind the L.A. Restaurant Horses Trade Allegations of Violence**\
-`The high-profile chefs who ran the celebrity magnet and several other restaurants have leveled troubling allegations against each other in court.`\
-https://nytimes.com/2023/05/18/dining/los-angeles-restaurant-horses-marital-battle-liz-johnson-will-aghajanian.html?searchResultPosition=7
-
-**Kia and Hyundai to Pay $200 Million to Settle Suit Over Car Thefts**\
-`The agreement in the class-action suit, which awaits a judge’s approval, would affect the owners of about nine million vehicles. It came as the nation contends with a surge in auto thefts.`\
-https://nytimes.com/2023/05/18/business/kia-hyundai-settlement-car-thefts.html?searchResultPosition=9
-
-**In Montana, a TikTok Ban Could Be a ‘Kick in the Face’**\
-`Users of the popular social media site were less than pleased by the ban, enacted over fears that sensitive user data could end up in the hands of the Chinese government.`\
-https://nytimes.com/2023/05/18/us/tiktok-ban-montana-reaction.html?searchResultPosition=10
+https://nytimes.com/2023/05/18/crosswords/variety-acrostic.html?searchResultPosition=10
 
