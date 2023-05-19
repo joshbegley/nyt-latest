@@ -1,6 +1,6 @@
 **Debt Limit Talks Hit a Snag as G.O.P. Declares a ‘Pause’**\
 `Republicans left negotiations on Friday saying the White House was refusing to move its way on spending cuts.`\
-https://nytimes.com/2023/05/19/us/politics/debt-limit-talks-hit-a-snag-as-gop-declares-a-pause.html?searchResultPosition=1
+https://nytimes.com/2023/05/19/us/politics/debt-limit-gop-pause.html?searchResultPosition=1
 
 **F.B.I. Violated Surveillance Program Rules After George Floyd Protests and Jan. 6 Attack**\
 `The bureau made changes after the newly revealed violations of rules for querying messages intercepted under an expiring warrantless surveillance law.`\
