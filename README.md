@@ -6,7 +6,7 @@ https://nytimes.com/video/nyregion/100000008915229/jordan-neely-funeral.html?sea
 `Listen to 8 airy, cumulous songs (keeping in mind that not all ambient music sounds like this).`\
 https://nytimes.com/2023/05/19/arts/music/amplifier-playlist-ambient-tranquillity.html?searchResultPosition=2
 
-**Debt Limit Talks Hit a Snag as G.O.P. Declares a ‘Pause’**\
+**Debt Limit Talks Hit Snag as G.O.P. Declares a ‘Pause’**\
 `Republicans left negotiations on Friday saying the White House was refusing to move its way on spending cuts.`\
 https://nytimes.com/2023/05/19/us/politics/debt-limit-gop-biden.html?searchResultPosition=3
 
