@@ -1,40 +1,40 @@
+**There Is a Reason Ron DeSantis Wants History Told a Certain Way**\
+`Certain anxieties over education have a familiar ring.`\
+https://nytimes.com/2023/05/20/opinion/desantis-history-education.html?searchResultPosition=1
+
 **The E-Sports World Is Starting to Teeter**\
 `At least two organizations in America’s most prominent league for professional video game players are selling their teams, underscoring the industry’s uncertain future.`\
-https://nytimes.com/2023/05/20/technology/e-sports-revenue-video-gaming.html?searchResultPosition=1
+https://nytimes.com/2023/05/20/technology/e-sports-revenue-video-gaming.html?searchResultPosition=2
 
 **Cannes: You’ve Never Seen a Holocaust Film Like ‘The Zone of Interest’**\
 `The disorienting drama from “Under the Skin” director Jonathan Glazer may be in the running for a major prize at the festival.`\
-https://nytimes.com/2023/05/20/movies/zone-of-interest-jonathan-glazer-cannes.html?searchResultPosition=2
+https://nytimes.com/2023/05/20/movies/zone-of-interest-jonathan-glazer-cannes.html?searchResultPosition=3
 
 **An Auction of Prosthetics, Mermaids and Creepy Dolls to Benefit Sea Turtles**\
 `Some of the more curious pieces of marine debris that wash ashore along the Texas coastline are being sold to support the rehabilitation of marine wildlife.`\
-https://nytimes.com/2023/05/20/us/texas-beach-auction-sea-turtles.html?searchResultPosition=3
+https://nytimes.com/2023/05/20/us/texas-beach-auction-sea-turtles.html?searchResultPosition=4
 
 **The Optimist’s Guide to Artificial Intelligence and Work**\
 `The focus of much discussion is on how it will replace jobs, but nothing is inevitable.`\
-https://nytimes.com/2023/05/20/business/dealbook/the-optimists-guide-to-artificial-intelligence-and-work.html?searchResultPosition=4
+https://nytimes.com/2023/05/20/business/dealbook/the-optimists-guide-to-artificial-intelligence-and-work.html?searchResultPosition=5
 
 **Birds, Brooks and Beta Males**\
 `An editor recommends old and new books.`\
-https://nytimes.com/2023/05/20/books/read-like-wind-book-recommendations.html?searchResultPosition=5
+https://nytimes.com/2023/05/20/books/read-like-wind-book-recommendations.html?searchResultPosition=6
 
 **The Case for Obligation**\
 `When we show up for each other, we make our lives richer and create community.`\
-https://nytimes.com/2023/05/20/opinion/the-case-for-obligation.html?searchResultPosition=6
+https://nytimes.com/2023/05/20/opinion/the-case-for-obligation.html?searchResultPosition=7
 
 **Listen Early to This American Life: ‘Superpowers’**\
 `Plus, the best of the archive, found in New York Times Audio, a new app.`\
-https://nytimes.com/2023/05/20/podcasts/nyt-audio-this-american-life.html?searchResultPosition=7
+https://nytimes.com/2023/05/20/podcasts/nyt-audio-this-american-life.html?searchResultPosition=8
 
 **Fear Is for Sale on the U.S.-Mexico Border**\
 `The Border Security Expo attendees didn’t know what was coming, but they hoped to turn a profit.`\
-https://nytimes.com/2023/05/20/opinion/el-paso-border-expo.html?searchResultPosition=8
+https://nytimes.com/2023/05/20/opinion/el-paso-border-expo.html?searchResultPosition=9
 
 **How to Change a Life for 50 Cents**\
 `On my win-a-trip journey, a reminder that a fifth of the world’s people have worms.`\
-https://nytimes.com/2023/05/20/opinion/sierra-leone-deworming.html?searchResultPosition=9
-
-**Classical Crescendo**\
-`For cool kids, symphony halls are getting hotter.`\
-https://nytimes.com/2023/05/20/opinion/classical-music.html?searchResultPosition=10
+https://nytimes.com/2023/05/20/opinion/sierra-leone-deworming.html?searchResultPosition=10
 
