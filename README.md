@@ -3,7 +3,7 @@
 https://nytimes.com/2023/05/19/crosswords/daily-puzzle-2023-05-20.html?searchResultPosition=1
 
 **A Strengthened Zelensky Heads to the G7 meeting in Search of More Military aid**\
-`The Ukrainian president will address world leaders on Sunday after President Biden opened the door to other nations training Ukrainian pilots and sending their F-16s to Kyiv.`\
+`The Ukrainian president will address world leaders on Sunday after President Biden opened the door to other nations training Ukrainian pilots and sending F-16 fighters.`\
 https://nytimes.com/2023/05/19/world/asia/zelensky-japan-g7-russia.html?searchResultPosition=2
 
 **Scheffler, Hovland and Conners Share the Lead at P.G.A. Championship**\
