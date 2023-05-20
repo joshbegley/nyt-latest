@@ -1,5 +1,5 @@
 **Review: Gustavo Dudamel Leads His New York Philharmonic**\
-`Conducting Mahler’s Ninth Symphony, the superstar maestro was on the orchestra’s podium for the first time since being named its next music director.`\
+`Performing Mahler’s Ninth Symphony, the superstar maestro conducted the orchestra for the first time since being named its next music director.`\
 https://nytimes.com/2023/05/20/arts/music/review-gustavo-dudamel-new-york-philharmonic-classical-music.html?searchResultPosition=1
 
 **Jim Brown Should Be Seen Fully, Flaws and All**\
