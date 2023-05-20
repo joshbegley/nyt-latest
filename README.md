@@ -1,5 +1,5 @@
 **Listen Early to This American Life: ‘Superpowers’**\
-`Plus the best of the archive, found in New York Times Audio, a new app.`\
+`Plus, the best of the archive, found in New York Times Audio, a new app.`\
 https://nytimes.com/2023/05/20/podcasts/nyt-audio-this-american-life.html?searchResultPosition=1
 
 **Fear Is for Sale on the U.S.-Mexico Border**\
