@@ -2,7 +2,7 @@
 `Erica Hsiung Wojcik offers solvers a challenging 66-word puzzle.`\
 https://nytimes.com/2023/05/19/crosswords/daily-puzzle-2023-05-20.html?searchResultPosition=1
 
-**A strengthened Zelensky heads to the G7 meeting in search of more military aid.**\
+**A Strengthened Zelensky Heads to the G7 meeting in Search of More Military aid**\
 `The Ukrainian president will address world leaders on Sunday after President Biden opened the door to other nations training Ukrainian pilots and sending their F-16s to Kyiv.`\
 https://nytimes.com/2023/05/19/world/asia/zelensky-japan-g7-russia.html?searchResultPosition=2
 
