@@ -18,23 +18,23 @@ https://nytimes.com/2023/05/20/sports/horse-racing/preakness-stakes-watch.html?s
 `Erica Hsiung Wojcik offers solvers a challenging 66-word puzzle.`\
 https://nytimes.com/2023/05/19/crosswords/daily-puzzle-2023-05-20.html?searchResultPosition=5
 
-**A strengthened Zelensky heads to the G7 meeting in search of more military aid.**\
-`The Ukrainian president will address world leaders on Sunday after President Biden opened the door to other nations training Ukrainian pilots and sending F-16 fighters.`\
-https://nytimes.com/live/2023/05/19/world/russia-ukraine-news/a-strengthened-zelensky-heads-to-the-g7-meeting-in-search-of-more-military-aid?searchResultPosition=6
-
 **Scheffler, Hovland and Conners Share the Lead at P.G.A. Championship**\
 `Jordan Spieth, who needs a victory at Oak Hill to complete the career Grand Slam, and Justin Thomas, who won last year’s tournament, just made the cut at five over.`\
-https://nytimes.com/2023/05/19/sports/golf/pga-championship-second-round-leaders.html?searchResultPosition=7
+https://nytimes.com/2023/05/19/sports/golf/pga-championship-second-round-leaders.html?searchResultPosition=6
 
 **With Feinstein Ailing, Newsom’s Vow Looms Over Senate Race**\
 `Gov. Gavin Newsom of California promised in 2021 that he would appoint a Black woman to replace Senator Dianne Feinstein if she were to resign early.`\
-https://nytimes.com/2023/05/19/us/feinstein-newsom-senate-california.html?searchResultPosition=8
+https://nytimes.com/2023/05/19/us/feinstein-newsom-senate-california.html?searchResultPosition=7
 
 **Superstar Billy Graham, Model of the Buff, Blond Wrestler, Dies at 79**\
 `His spectacular physique, outrageous personality and blond dye job inspired Hulk Hogan and Jesse Ventura. But the steroids that built his body also destroyed it.`\
-https://nytimes.com/2023/05/19/sports/superstar-billy-graham-dead.html?searchResultPosition=9
+https://nytimes.com/2023/05/19/sports/superstar-billy-graham-dead.html?searchResultPosition=8
 
 **Jim Brown Piled Up Yards, but Never Wavered an Inch**\
 `In the fraternity of N.F.L. standouts, Brown was revered for his dominance on the field and for his willingness to walk away on his own terms.`\
-https://nytimes.com/2023/05/19/sports/football/jim-brown-cleveland-browns-retirement.html?searchResultPosition=10
+https://nytimes.com/2023/05/19/sports/football/jim-brown-cleveland-browns-retirement.html?searchResultPosition=9
+
+**DeSantis Lawyers Ask Judge in Disney Case to Recuse Himself**\
+`They argued that Judge Mark E. Walker’s comments in two unrelated proceedings displayed a bias toward the company.`\
+https://nytimes.com/2023/05/19/business/disney-ron-desantis-florida.html?searchResultPosition=10
 
