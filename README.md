@@ -1,40 +1,40 @@
+**Behind the Scenes, G7 Nations Wrangle Over Ambitious Climate Commitments**\
+`The U.S. finds itself caught between defending President Biden’s climate change agenda and aiding allies intent on increasing their access to fossil fuels.`\
+https://nytimes.com/2023/05/20/world/asia/climate-fossil-fuels-g7.html?searchResultPosition=1
+
 **Building Boom on Mykonos Reveals ‘Wretched’ Side of Greece’s Recovery**\
 `Investors are eager to cash in on soaring demand for luxury properties, but an attack on an archaeologist investigating building violations brought a darker underbelly to light.`\
-https://nytimes.com/2023/05/20/business/mykonos-greece-construction-tourism.html?searchResultPosition=1
+https://nytimes.com/2023/05/20/business/mykonos-greece-construction-tourism.html?searchResultPosition=2
 
 **Inside the Life of Influencer Barbers**\
 `These self-proclaimed “architects of swag” work closely with celebrities, post regularly on Instagram and earn six figures, taking what can be a monotonous job to new levels.`\
-https://nytimes.com/2023/05/20/business/lionel-harris-brownie-blendz-the-shop.html?searchResultPosition=2
+https://nytimes.com/2023/05/20/business/lionel-harris-brownie-blendz-the-shop.html?searchResultPosition=3
 
 **There’s No Ocean in Sight. But Many Hawaiians Make Las Vegas Their Home.**\
 `The scenery can’t compare. So why are Hawaiians increasingly moving there?`\
-https://nytimes.com/2023/05/20/us/hawaii-las-vegas-migration.html?searchResultPosition=3
+https://nytimes.com/2023/05/20/us/hawaii-las-vegas-migration.html?searchResultPosition=4
 
 **‘Approaching. Move In.’ How Ukraine Reversed the Momentum in Bakhmut**\
 `Seizing an opening as Russia rotated troops, Ukraine pressed ahead with three days of maneuvers that gained ground on the flanks of Bakhmut.`\
-https://nytimes.com/2023/05/20/world/europe/ukraine-bakhmut.html?searchResultPosition=4
+https://nytimes.com/2023/05/20/world/europe/ukraine-bakhmut.html?searchResultPosition=5
 
 **The Good (Even Saintly) Ship Dorothy Day**\
 `While the Vatican decides whether Dorothy Day is worthy of sainthood, New Yorkers can ride on a Staten Island ferry named in her honor.`\
-https://nytimes.com/2023/05/20/nyregion/the-good-even-saintly-ship-dorothy-day.html?searchResultPosition=5
+https://nytimes.com/2023/05/20/nyregion/the-good-even-saintly-ship-dorothy-day.html?searchResultPosition=6
 
 **Just Married. Now Pass the Scissors.**\
 `To celebrate the rite of passage, some women are opting for a mid-wedding haircut.`\
-https://nytimes.com/2023/05/20/fashion/weddings/haircut-at-wedding-brides.html?searchResultPosition=6
+https://nytimes.com/2023/05/20/fashion/weddings/haircut-at-wedding-brides.html?searchResultPosition=7
 
 **The Island Destination Wedding a MetroCard Swipe Away**\
 `The Sanctuary, a new wedding venue on Roosevelt Island, has become a hot spot. But change doesn’t always sit well with the small waterfront community.`\
-https://nytimes.com/2023/05/20/style/the-sanctuary-roosevelt-island.html?searchResultPosition=7
+https://nytimes.com/2023/05/20/style/the-sanctuary-roosevelt-island.html?searchResultPosition=8
 
 **Moving Is a Monumental Task for Many Older Americans. These Organizers Can Help.**\
 `Senior move managers may spend weeks or months helping seniors and their families sort through belongings, pack and move into a new home.`\
-https://nytimes.com/2023/05/20/health/elderly-move-managers.html?searchResultPosition=8
+https://nytimes.com/2023/05/20/health/elderly-move-managers.html?searchResultPosition=9
 
 **In Venice, Americans Explore Peace With Plastic**\
 `At the Architecture Biennale, the United States Pavilion’s artists and designers are considering how to live with an “everlasting” material.`\
-https://nytimes.com/2023/05/20/arts/design/plastic-venice-biennale.html?searchResultPosition=9
-
-**Deadly Traffic in Suburbia Points to Deep-Seated Structural Problems**\
-`Cities are forced to confront century-old suburban sprawl that was first and foremost designed to keep cars moving rather than people safe.`\
-https://nytimes.com/2023/05/20/nyregion/new-york-new-jersey-connecticut-suburbs-traffic-deaths.html?searchResultPosition=10
+https://nytimes.com/2023/05/20/arts/design/plastic-venice-biennale.html?searchResultPosition=10
 
