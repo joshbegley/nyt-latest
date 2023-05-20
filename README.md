@@ -34,7 +34,7 @@ https://nytimes.com/2023/05/20/opinion/the-case-for-obligation.html?searchResult
 `Plus, the best of the archive, found in New York Times Audio, a new app.`\
 https://nytimes.com/2023/05/20/podcasts/nyt-audio-this-american-life.html?searchResultPosition=9
 
-**Fear Is for Sale on the U.S.-Mexico Border**\
+**If You’re Hearing About the Border, Someone Is Trying to Scare You**\
 `The Border Security Expo attendees didn’t know what was coming, but they hoped to turn a profit.`\
 https://nytimes.com/2023/05/20/opinion/el-paso-border-expo.html?searchResultPosition=10
 
