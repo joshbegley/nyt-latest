@@ -1,5 +1,5 @@
-**Zelensky says images of a ruined Hiroshima remind him of Bakhmut.**\
-`By Motoko Rich`\
+**Images of a Ruined Hiroshima Remind Zelensky of Present-Day Bakhmut**\
+`While it “wouldn’t be fair” to compare Hiroshima to what is happening in his country, Ukraine’s president said the city’s atomic bomb museum offered grim echoes of fresh devastation.`\
 https://nytimes.com/2023/05/21/world/europe/zelensky-bakhmut-hiroshima.html?searchResultPosition=1
 
 **Haney and Lomachenko Give Lightweight Boxing Another Close Bout**\
