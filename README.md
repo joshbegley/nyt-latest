@@ -24,7 +24,7 @@ https://nytimes.com/2023/05/21/business/the-week-in-business-ban-tiktok.html?sea
 
 **What Christian Nationalism Has Done to My State and My Faith Is a Sin**\
 `Wyoming’s new crop of lawmakers seem intent on stripping us of our autonomy and our ability to make decisions for ourselves.`\
-https://nytimes.com/2023/05/21/opinion/wyomiing-republicans-christian-nationalism.html?searchResultPosition=7
+https://nytimes.com/2023/05/21/opinion/wyoming-republicans-christian-nationalism.html?searchResultPosition=7
 
 **Liberals Are Persuading Themselves of a Debt Ceiling Plan That Won’t Work**\
 `The limit Congress imposes is dumb, but Biden can’t just wave it away.`\
