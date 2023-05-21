@@ -3,7 +3,7 @@
 https://nytimes.com/2023/05/21/style/moma-ps1-gala-ali-wong-dwayne-wade.html?searchResultPosition=1
 
 **Greek Leader Claims ‘Political Earthquake’ as His Party Leads in Elections**\
-`Prime Minister Kyriakos Mitsotakis’s New Democracy party did not win enough votes to form a one-party government. But he appeared to rule out talks to form a coalition government, setting up a second vote in weeks.`\
+`Prime Minister Kyriakos Mitsotakis’s New Democracy party did not win enough votes to form a one-party government. But he appeared to rule out talks to form a coalition, setting the stage for a second vote in weeks.`\
 https://nytimes.com/2023/05/21/world/europe/greece-elections-new-democracy.html?searchResultPosition=2
 
 **‘Magic Flute’ Review: Pulling Back the Curtain at the Met**\
