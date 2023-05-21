@@ -1,40 +1,40 @@
+**The U.S. Left Them Behind. They Crossed a Jungle to Get Here Anyway.**\
+`For thousands of Afghans, the American withdrawal from Kabul was just the beginning of a long, dangerous search for safety.`\
+https://nytimes.com/2023/05/21/world/americas/darien-gap-afghan-migration.html?searchResultPosition=1
+
+**Where the Bees Are Famous (and the Goats Wear Cashmere)**\
+`Welcome to Flamingo Estate.`\
+https://nytimes.com/2023/05/21/style/flamingo-estate.html?searchResultPosition=2
+
+**Before Greek Vote, Leader Says Blocking Migrants Built ‘Good Will’ With Europe**\
+`Prime Minister Kyriakos Mitsotakis has taken a tough line on migrants as he turns around the country’s economy. It’s a trade-off that voters and the European Union seem more than willing to abide.`\
+https://nytimes.com/2023/05/21/world/europe/before-greek-vote-leader-says-blocking-migrants-built-good-will-with-europe.html?searchResultPosition=3
+
+**How a Food Stylist and Housewares Designer Spends Her Sundays**\
+`Mariana Velásquez likes to take long strolls through her new neighborhood and have friends over for a casual one-pot meal.`\
+https://nytimes.com/2023/05/21/nyregion/mariana-velasquez.html?searchResultPosition=4
+
+**‘The Crowd of People Waiting for Their Orders Was Packed to the Walls’**\
+`A busy bagel shop, a call gets a surprising response and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2023/05/21/nyregion/metropolitan-diary.html?searchResultPosition=5
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2023/05/21/crosswords/spelling-bee-forum.html?searchResultPosition=6
+
+**A Reporter Who Puts Herself Into Perspective**\
+`Susan Dominus uses first-person narration to humanize her reporting — even when she’s writing about topics such as therapy or menopause.`\
+https://nytimes.com/2023/05/21/insider/a-reporter-who-puts-herself-into-perspective.html?searchResultPosition=7
+
+**A History of ‘Record’ in the Newspaper of Record**\
+`The word saw, ahem, record usage in The New York Times in 2008.`\
+https://nytimes.com/2023/05/21/insider/a-history-of-record-in-the-newspaper-of-record.html?searchResultPosition=8
+
+**Today’s Wordle Review**\
+`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
+https://nytimes.com/2023/05/21/crosswords/wordle-review-answer-701.html?searchResultPosition=9
+
 **The Club That Wants Nothing to Do With Russia**\
 `In the 1990s, the G7 invited Russia to join, a sign of its ascendence. Today, Vladimir V. Putin is on the outside, as his enemy, Volodymyr Zelensky of Ukraine, is the honored guest.`\
-https://nytimes.com/2023/05/21/us/politics/the-club-that-wants-nothing-to-do-with-russia.html?searchResultPosition=1
-
-**As Rahm Emanuel Pushes Japan on Gay Rights, Conservatives Bristle**\
-`The U.S. ambassador has enthusiastically embraced his host country. But critics say he has overstepped diplomatic bounds with his advocacy on equality.`\
-https://nytimes.com/2023/05/21/world/asia/rahm-emanuel-japan-gay-rights.html?searchResultPosition=2
-
-**Quotation of the Day: Desert Provides a New Paradise for Hawaiians**\
-`Quotation of the Day for Sunday, May 21, 2023.`\
-https://nytimes.com/2023/05/21/pageoneplus/quotation-of-the-day-desert-provides-a-new-paradise-for-hawaiians.html?searchResultPosition=3
-
-**Russia’s Latest Sanctions on U.S. Officials Turn to Trump Enemies**\
-`Among the 500 people singled out for travel and financial restrictions were Americans seen as adversaries by former President Donald J. Trump.`\
-https://nytimes.com/2023/05/21/world/europe/russia-sanctions-trump.html?searchResultPosition=4
-
-**Corrections: May 21, 2023**\
-`Corrections that appeared in print on Sunday, May 21, 2023.`\
-https://nytimes.com/2023/05/21/pageoneplus/corrections-may-21-2023.html?searchResultPosition=5
-
-**DeSantis Skirts Abortion Ban Even When Speaking to His Base**\
-`The Florida governor is reluctant to talk about the restrictive law he signed as he seeks to attract support from across the Republican Party.`\
-https://nytimes.com/2023/05/21/us/politics/desantis-abortion.html?searchResultPosition=6
-
-**12 Dead in Soccer Stadium Stampede in El Salvador**\
-`It was not immediately clear what prompted the rush at Cuscatlán Stadium in the capital. President Nayib Bukele vowed to conduct a thorough investigation.`\
-https://nytimes.com/2023/05/21/world/americas/soccer-stadium-stampede-el-salvador.html?searchResultPosition=7
-
-**Putting the ‘Oak’ — More Than 40,000 of Them — in Oak Hill**\
-`Over 40 years, Dr. John R. Williams nurtured thousands of acorns, including some from Sherwood Forest and George Washington’s estate, into towering oak trees. His obsession had a singular goal — transform the grounds of this year’s P.G.A. Championship.`\
-https://nytimes.com/2023/05/21/sports/golf/oak-hill-pga-championship.html?searchResultPosition=8
-
-**Daniel Penny Gives First Interview Addressing Subway Killing**\
-`Mr. Penny, who has been charged in the killing of Jordan Neely on May 1, gave few details about the confrontation in an interview with The New York Post.`\
-https://nytimes.com/2023/05/20/nyregion/daniel-penny-jordan-neely-interview.html?searchResultPosition=9
-
-**How ‘Decoupling’ From China Became ‘De-risking’**\
-`The newly fashionable term, reflecting an evolution in the discussion over dealing with a rising, assertive China, has a vexing history in financial policy.`\
-https://nytimes.com/2023/05/20/world/decoupling-china-de-risking.html?searchResultPosition=10
+https://nytimes.com/2023/05/21/us/politics/the-club-that-wants-nothing-to-do-with-russia.html?searchResultPosition=10
 
