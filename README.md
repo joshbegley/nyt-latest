@@ -6,7 +6,7 @@ https://nytimes.com/2023/05/21/world/europe/biden-g7-ukraine-japan.html?searchRe
 `Jeremy O. Harris celebrated art stars, while Dwyane Wade and Gabrielle Union showed up for Loewe.`\
 https://nytimes.com/2023/05/21/style/moma-ps1-gala-ali-wong-dwayne-wade.html?searchResultPosition=2
 
-**Greek Leader Claims ‘Political Earthquake’ as His Party Leads in Elections**\
+**With His Party Ahead in Elections, Greek Leader Claims ‘Political Earthquake’**\
 `Prime Minister Kyriakos Mitsotakis’s New Democracy party did not win enough votes to form a one-party government. But he appeared to rule out talks to form a coalition, setting the stage for a second vote in weeks.`\
 https://nytimes.com/2023/05/21/world/europe/greece-elections-new-democracy.html?searchResultPosition=3
 
