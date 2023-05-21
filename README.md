@@ -14,7 +14,7 @@ https://nytimes.com/2023/05/21/style/moma-ps1-gala-ali-wong-dwayne-wade.html?sea
 `Prime Minister Kyriakos Mitsotakis’s New Democracy party did not win enough votes to form a one-party government. But he appeared to rule out talks to form a coalition, setting the stage for a second vote in weeks.`\
 https://nytimes.com/2023/05/21/world/europe/greece-elections-new-democracy.html?searchResultPosition=4
 
-**‘Magic Flute’ Review: Pulling Back the Curtain at the Met**\
+**Review: Pulling Back the Curtain on ‘The Magic Flute’ at the Met**\
 `Unveiling the trickery only enhances the delight of this interpretation of Mozart by the director Simon McBurney.`\
 https://nytimes.com/2023/05/21/arts/music/magic-flute-mozart-metropolitan-opera.html?searchResultPosition=5
 
