@@ -19,7 +19,7 @@ https://nytimes.com/2023/05/21/sports/golf/pga-championship-michael-block.html?s
 https://nytimes.com/2023/05/21/us/mosque-fire-arson-minnesota.html?searchResultPosition=5
 
 **Minnesota Passes Bill Seeking to Ensure Minimum Wage for Gig Workers**\
-`Lyft and Uber have opposed the legislation, with Uber threatening to leave the state if it is enacted.`\
+`Lyft and Uber have opposed the legislation, threatening to reduce operations or leave the state if it is enacted.`\
 https://nytimes.com/2023/05/21/technology/minnesota-uber-lyft-gig-work.html?searchResultPosition=6
 
 **Koepka Wins P.G.A. Championship, Vanquishing Demons and Boosting LIV**\
