@@ -1,4 +1,4 @@
-**Ukraine Is Finally Getting the F-16s It Asked For. Why Did It Want Them?**\
+**Ukraine May Be Finally Getting the F-16s It Asked For. Why Did It Want Them?**\
 `Ukraine’s air force already includes a sizable contingent of fighter jets, but they come with a few problems.`\
 https://nytimes.com/2023/05/21/world/europe/ukraine-f16-air-force.html?searchResultPosition=1
 
