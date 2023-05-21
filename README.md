@@ -1,40 +1,40 @@
+**Inside the Barbecue City That Is China’s Hottest Tourist Destination**\
+`Zibo has become a social media star for its distinctive barbecue style. Now the city is overrun with visitors.`\
+https://nytimes.com/2023/05/21/world/asia/zibo-barbecue.html?searchResultPosition=1
+
+**As Boston’s New Mayor Seeks Big Changes, Old Power Brokers Push Back**\
+`Mayor Michelle Wu is striving to keep her campaign promises, but powerful lobbies are throwing up roadblocks.`\
+https://nytimes.com/2023/05/21/us/michelle-wu-boston-mayor.html?searchResultPosition=2
+
+**The U.S. Needs Minerals for Electric Cars. Everyone Else Wants Them Too.**\
+`The United States is entering an array of agreements to secure the critical minerals necessary for the energy transition, but it’s not clear which of the arrangements can succeed.`\
+https://nytimes.com/2023/05/21/business/economy/the-us-needs-minerals-for-electric-cars-everyone-else-wants-them-too.html?searchResultPosition=3
+
+**What Number Comes Next? Ask the Encyclopedia of Integer Sequences.**\
+`This year the “mathematical equivalent to the FBI’s voluminous fingerprint files” enters its 50th year, with 362,765 entries (and counting).`\
+https://nytimes.com/2023/05/21/science/math-puzzles-integer-sequences.html?searchResultPosition=4
+
+**A Classic of Golden Age Detective Fiction Turns 100**\
+`Dorothy L. Sayers dealt with emotional and financial instability by writing “Whose Body?,” the first of many to star the detective Lord Peter Wimsey.`\
+https://nytimes.com/2023/05/21/books/review/dorothy-sayers-whose-body-at-100.html?searchResultPosition=5
+
+**Njideka Akunyili Crosby Wants to Take it Slow, Despite Her Rapid Rise**\
+`The Nigerian artist inaugurates Zwirner’s new Los Angeles gallery with paintings that showcase her artistic vernacular.`\
+https://nytimes.com/2023/05/21/arts/design/njideka-akunyili-crosby-zwirner.html?searchResultPosition=6
+
+**Tim Scott’s Run for President Shines a Spotlight on Black Republicans**\
+`The South Carolina senator’s bid for the White House — as the sole Black Republican in the Senate — could raise not only his profile, but those of Black conservatives across the country.`\
+https://nytimes.com/2023/05/21/us/politics/tim-scott-black-republicans.html?searchResultPosition=7
+
+**For ‘The Late Americans,’ Grad School Life Equals Envy, Sex and Ennui**\
+`Brandon Taylor’s novel circulates among Iowa City residents, some privileged, some not, but all aware that their possibilities are contracting.`\
+https://nytimes.com/2023/05/21/books/review-the-late-americans-brandon-taylor.html?searchResultPosition=8
+
 **Here’s What’s Dividing Republicans and Biden in Debt-Limit Talks**\
 `Discussions meant to avoid a default have bogged down amid disagreements over spending caps, work requirements and new Republican proposals.`\
-https://nytimes.com/2023/05/21/us/politics/biden-debt-limit.html?searchResultPosition=1
+https://nytimes.com/2023/05/21/us/politics/biden-debt-limit.html?searchResultPosition=9
 
 **The U.S. Left Them Behind. They Crossed a Jungle to Get Here Anyway.**\
 `For thousands of Afghans, the American withdrawal from Kabul was just the beginning of a long, dangerous search for safety.`\
-https://nytimes.com/2023/05/21/world/americas/darien-gap-afghan-migration.html?searchResultPosition=2
-
-**Where the Bees Are Famous (and the Goats Wear Cashmere)**\
-`Welcome to Flamingo Estate.`\
-https://nytimes.com/2023/05/21/style/flamingo-estate.html?searchResultPosition=3
-
-**Before Greek Vote, Leader Says Blocking Migrants Built ‘Good Will’ With Europe**\
-`Prime Minister Kyriakos Mitsotakis has taken a tough line on migrants as he turns around the country’s economy. It’s a trade-off that voters and the European Union seem more than willing to abide.`\
-https://nytimes.com/2023/05/21/world/europe/before-greek-vote-leader-says-blocking-migrants-built-good-will-with-europe.html?searchResultPosition=4
-
-**How a Food Stylist and Housewares Designer Spends Her Sundays**\
-`Mariana Velásquez likes to take long strolls through her new neighborhood and have friends over for a casual one-pot meal.`\
-https://nytimes.com/2023/05/21/nyregion/mariana-velasquez.html?searchResultPosition=5
-
-**‘The Crowd of People Waiting for Their Orders Was Packed to the Walls’**\
-`A busy bagel shop, a call gets a surprising response and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2023/05/21/nyregion/metropolitan-diary.html?searchResultPosition=6
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/05/21/crosswords/spelling-bee-forum.html?searchResultPosition=7
-
-**A Reporter Who Puts Herself Into Perspective**\
-`Susan Dominus uses first-person narration to humanize her reporting — even when she’s writing about topics such as therapy or menopause.`\
-https://nytimes.com/2023/05/21/insider/a-reporter-who-puts-herself-into-perspective.html?searchResultPosition=8
-
-**A History of ‘Record’ in the Newspaper of Record**\
-`The word saw, ahem, record usage in The New York Times in 2008.`\
-https://nytimes.com/2023/05/21/insider/a-history-of-record-in-the-newspaper-of-record.html?searchResultPosition=9
-
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/05/21/crosswords/wordle-review-answer-701.html?searchResultPosition=10
+https://nytimes.com/2023/05/21/world/americas/darien-gap-afghan-migration.html?searchResultPosition=10
 
