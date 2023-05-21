@@ -3,7 +3,7 @@
 https://nytimes.com/2023/05/21/technology/minnesota-uber-lyft-gig-work.html?searchResultPosition=1
 
 **Koepka Wins P.G.A. Championship, Vanquishing Demons and Boosting LIV**\
-`Koepka claimed his fifth major championship when he outlasted a swarm of stars on Sunday at Oak Hill Country Club.`\
+`Koepka claimed his fifth major championship when he outlasted a swarm of stars on Sunday at Oak Hill Country Club near Rochester, N.Y.`\
 https://nytimes.com/2023/05/21/sports/golf/pga-championship-brooks-koepka.html?searchResultPosition=2
 
 **N.A.A.C.P. Issues Florida Travel Advisory, Joining Latino and L.G.B.T.Q. Groups**\
