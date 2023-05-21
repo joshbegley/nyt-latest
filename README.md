@@ -1,6 +1,6 @@
 **How ‘Decoupling’ From China Became ‘De-risking’**\
 `The newly fashionable term, reflecting an evolution in the discussion over dealing with a rising, assertive China, has a vexing history in financial policy.`\
-https://nytimes.com/2023/05/20/world/australia/decoupling-china-de-risking.html?searchResultPosition=1
+https://nytimes.com/2023/05/20/world/decoupling-china-de-risking.html?searchResultPosition=1
 
 **At a Soaked P.G.A. Championship, Backward Ball Caps and the Umbrella Dance**\
 `Driving rain on Saturday at the P.G.A. Championship forced some golfers to buck the usual country club sartorial norms in order to keep the water out of their eyes.`\
