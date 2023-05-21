@@ -1,5 +1,5 @@
 **Brittney Griner Returns to the W.N.B.A. With a Weekend of Celebration**\
-`Griner, the Phoenix Mercury center, played in her first two official games since was freed from prison. She didn’t win either, but the moment meant far more than that.`\
+`Griner, the Phoenix Mercury center, played in her first two official games since she was freed from prison. She didn’t win either, but the moment meant far more than that.`\
 https://nytimes.com/2023/05/21/sports/brittney-griner-first-game-phoenix-release-russia.html?searchResultPosition=1
 
 **Welcome to the Era of W.N.B.A. Superteams. New Stars Need Not Apply.**\
