@@ -1,4 +1,4 @@
-**Minnesota Passes Bill to Ensure Minimum Wage for Gig Workers**\
+**Minnesota Passes Bill Seeking to Ensure Minimum Wage for Gig Workers**\
 `Lyft and Uber have opposed the legislation, with Uber threatening to leave the state if it is enacted.`\
 https://nytimes.com/2023/05/21/technology/minnesota-uber-lyft-gig-work.html?searchResultPosition=1
 
