@@ -18,8 +18,8 @@ https://nytimes.com/2023/05/21/pageoneplus/corrections-may-21-2023.html?searchRe
 `The Florida governor is reluctant to talk about the restrictive law he signed as he seeks to attract support from across the Republican Party.`\
 https://nytimes.com/2023/05/21/us/politics/desantis-abortion.html?searchResultPosition=5
 
-**At Least 9 Dead in Soccer Stadium Stampede in El Salvador**\
-`The country’s soccer federation said in a statement on Twitter that it would “immediately request a report on what happened.”`\
+**12 Dead in Soccer Stadium Stampede in El Salvador**\
+`It was not immediately clear what prompted the rush at Cuscatlán Stadium in the capital. President Nayib Bukele vowed to conduct a thorough investigation.`\
 https://nytimes.com/2023/05/21/world/americas/soccer-stadium-stampede-el-salvador.html?searchResultPosition=6
 
 **Putting the ‘Oak’ — More Than 40,000 of Them — in Oak Hill**\
