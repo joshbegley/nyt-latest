@@ -4,7 +4,7 @@ https://nytimes.com/2023/05/22/us/politics/trump-records-foreign-deals.html?sear
 
 **Portuguese Police to Renew Search for British Girl Missing Since 2007**\
 `The case of 3-year-old Madeleine McCann, who disappeared while vacationing with her family in Portugal, has drawn international attention for years.`\
-https://nytimes.com/2023/05/22/world/europe/madeleine-mccann-search.html?searchResultPosition=2
+https://nytimes.com/2023/05/22/world/europe/madeleine-mccann-portugal-search.html?searchResultPosition=2
 
 **E. Jean Carroll Seeks New Damages From Trump for Comments on CNN**\
 `The former president’s repeated denials that he sexually abused Ms. Carroll “show the depth of his malice” and merit heavy damages, her lawyer wrote.`\
