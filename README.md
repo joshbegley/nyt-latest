@@ -1,5 +1,5 @@
 **Republican Tim Scott Announces 2024 Presidential Bid**\
-`Senator Tim Scott of South Carolina will be one of potentially several challengers to former President Donald J. Trump for the Republican nomination.`\
+`Senator Tim Scott of South Carolina is one of several challengers to former President Donald J. Trump for the Republican nomination.`\
 https://nytimes.com/video/us/politics/100000008918580/tim-scott-presidential-announcement.html?searchResultPosition=1
 
 **Foo Fighters Introduce Josh Freese as Their New Drummer**\
