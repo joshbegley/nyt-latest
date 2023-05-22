@@ -26,7 +26,7 @@ https://nytimes.com/2023/05/22/opinion/letters/eric-adams-migrants-new-york-city
 `“Walk Around the Moon,” the group’s 10th album, faces troubles and searches for solace.`\
 https://nytimes.com/2023/05/22/arts/music/dave-matthews-band-walk-around-the-moon-review.html?searchResultPosition=7
 
-**Hell Hath No Fury**\
+**When TV Becomes a Window Into Women’s Rage**\
 `Over the last few years, TV has offered portraits of female rage that are striking within a culture that still prefers women to carry their anger calmly and silently.`\
 https://nytimes.com/2023/05/22/arts/television/tv-female-rage-beef.html?searchResultPosition=8
 
