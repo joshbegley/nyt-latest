@@ -22,7 +22,7 @@ https://nytimes.com/2023/05/22/us/arizona-tribe-member-shooting-border.html?sear
 `The so-called X-date could still come as early as next week.`\
 https://nytimes.com/2023/05/22/us/politics/yellen-debt-limit-default.html?searchResultPosition=6
 
-**Russia Claims Bakhmut, but Some See a ‘Pyrrhic Victory’ With a Staggering Toll**\
+**Russia Claims Bakhmut, but Some See a ‘Pyrrhic Victory’**\
 `A top Ukrainian official essentially acknowledged that the devastated city had been lost. Thousands of Ukrainian and Russian soldiers died there, but the cost for Moscow was especially steep, experts say.`\
 https://nytimes.com/2023/05/22/world/europe/bakhmut-russia-ukraine-retreat.html?searchResultPosition=7
 
