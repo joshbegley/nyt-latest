@@ -6,7 +6,7 @@ https://nytimes.com/2023/05/22/arts/television/happy-valley.html?searchResultPos
 `This Nobel Prize-winning author has had several novels adapted for film and television. Do you know who it is?`\
 https://nytimes.com/interactive/2023/05/22/books/booksupdate/guess-this-author.html?searchResultPosition=2
 
-**Do-or-Die Talks Reach Deal to Keep Colorado River From Going Dry, For Now**\
+**A Breakthrough Deal to Keep the Colorado River From Going Dry, for Now**\
 `The agreement on cuts, aided by a wet winter and $1.2 billion in federal payments, expires at the end of 2026.`\
 https://nytimes.com/2023/05/22/climate/colorado-river-deal.html?searchResultPosition=3
 
