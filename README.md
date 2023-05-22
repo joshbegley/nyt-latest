@@ -1,6 +1,6 @@
 **Yellen Warns Again That the U.S. Could Default as Soon as June 1**\
 `The so-called X-date could still come as early as next week.`\
-https://nytimes.com/2023/05/22/us/politics/yellen-xdate-debt-limit.html?searchResultPosition=1
+https://nytimes.com/2023/05/22/us/politics/yellen-debt-limit-default.html?searchResultPosition=1
 
 **‘Pyrrhic Victory’: Russians Claim Bakhmut Amid a Staggering Toll**\
 `A top Ukrainian official essentially acknowledged that the devastated city had been lost. Thousands of Ukrainian and Russian soldiers died there, but the cost for Moscow was especially steep, experts say.`\
