@@ -1,6 +1,6 @@
 **Greek PM Greets Supporters After Election Victory, Seeks Majority**\
 `Kyriakos Mitsotakis celebrated with supporters of the New Democracy Party, which fell short of the majority needed to lead a one-party government.`\
-https://nytimes.com/video/world/europe/100000008917593/greek-pm-greets-supporters-after-election-victory-seeks-majority.html?searchResultPosition=1
+https://nytimes.com/video/world/europe/100000008917593/greece-elections-new-democracy.html?searchResultPosition=1
 
 **Your Monday Briefing**\
 `Russia’s assertions of victory in Bakhmut.`\
