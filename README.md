@@ -31,7 +31,7 @@ https://nytimes.com/2023/05/21/style/the-two-michael-rovners.html?searchResultPo
 https://nytimes.com/2023/05/21/sports/golf/pga-championship-michael-block.html?searchResultPosition=8
 
 **‘Living in Fear’: Arson Is the Latest in a String of Attacks on Minnesota Mosques**\
-`A fire last week at a mosque in St. Paul, Minn., was at least the fifth such act of vandalism against Muslim houses of worship in the state so far this year, officials said.`\
+`A fire last week at a mosque in St. Paul, Minn., was at least the fifth such act of vandalism against Muslim houses of worship in the state so far this year, officials said. The suspect in the latest fire said he was Muslim and was protesting homelessness.`\
 https://nytimes.com/2023/05/21/us/mosque-fire-arson-minnesota.html?searchResultPosition=9
 
 **Minnesota Passes Bill Seeking to Ensure Minimum Wage for Gig Workers**\
