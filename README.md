@@ -1,40 +1,40 @@
+**Bakhmut Is Gone: An Aerial Look at the War’s Destruction**\
+`Drone footage taken by The New York Times captured the scorched buildings, destroyed schools and cratered parks that now define the city in eastern Ukraine.`\
+https://nytimes.com/2023/05/22/world/europe/bakhmut-ukraine.html?searchResultPosition=1
+
 **College Graduates, Too, Are Fleeing California’s Big Cities**\
 `A New York Times analysis finds that it isn’t just low-wage workers who are being priced out.`\
-https://nytimes.com/2023/05/22/us/california-housing-college-graduates.html?searchResultPosition=1
+https://nytimes.com/2023/05/22/us/california-housing-college-graduates.html?searchResultPosition=2
 
 **Diary of a Spelling Bee Fanatic**\
 `Entries for the week of May 15, 2023.`\
-https://nytimes.com/2023/05/22/crosswords/spelling-bee-diary.html?searchResultPosition=2
+https://nytimes.com/2023/05/22/crosswords/spelling-bee-diary.html?searchResultPosition=3
 
 **Belarus Pardons Opposition Activist Who Was Hauled Off a Ryanair Flight, State Media Says**\
 `Roman Protasevich had been sentenced to eight years in prison. The details of his 2021 arrest drew international attention.`\
-https://nytimes.com/2023/05/22/world/europe/belarus-protasevich-activist-pardon.html?searchResultPosition=3
+https://nytimes.com/2023/05/22/world/europe/belarus-protasevich-activist-pardon.html?searchResultPosition=4
 
 **Vinícius Júnior Charges Racism Is ‘Normal’ in Spain**\
 `Valencia fans called the Real Madrid star a monkey on Sunday, highlighting La Liga’s inability to stamp out racial abuse.`\
-https://nytimes.com/2023/05/22/sports/soccer/vinicius-junior-racism-tebas.html?searchResultPosition=4
+https://nytimes.com/2023/05/22/sports/soccer/vinicius-junior-racism-tebas.html?searchResultPosition=5
 
 **JPMorgan May Face New Questions About Succession**\
 `Revelations about rivals’ plans may prompt the bank’s shareholders to ask about who will replace Jamie Dimon at an annual investor gathering on Monday.`\
-https://nytimes.com/2023/05/22/business/dealbook/jpmorgan-dimon-succession.html?searchResultPosition=5
+https://nytimes.com/2023/05/22/business/dealbook/jpmorgan-dimon-succession.html?searchResultPosition=6
 
 **The Moment They Knew: Escalating From Phone Calls to a Football Card**\
 `When Troy and Tommi Vincent made the jump from marathon phone calls to exchanging photos, there was one problem: The Miami Dolphins football card he sent her “wasn’t personal enough.”`\
-https://nytimes.com/2023/05/22/style/troy-vincent-tommi-vincent.html?searchResultPosition=6
+https://nytimes.com/2023/05/22/style/troy-vincent-tommi-vincent.html?searchResultPosition=7
 
 **Fire in Guyana School Dormitory Kills at Least 20**\
 `Many of the victims in the overnight blaze were children, and the government was flying out some of the injured so they could receive treatment.`\
-https://nytimes.com/2023/05/22/world/americas/guyana-school-fire.html?searchResultPosition=7
+https://nytimes.com/2023/05/22/world/americas/guyana-school-fire.html?searchResultPosition=8
 
 **Resident Doctors Go on Strike at Elmhurst Hospital in Queens**\
 `The strike, the first by doctors in New York City since 1990, shows how the pandemic may be leading to rising activism among young doctors.`\
-https://nytimes.com/2023/05/22/nyregion/resident-doctors-strike-elmhurst-hospital-nyc.html?searchResultPosition=8
+https://nytimes.com/2023/05/22/nyregion/resident-doctors-strike-elmhurst-hospital-nyc.html?searchResultPosition=9
 
 **Columns That Scrutinized, and Skewered, the Literary World**\
 `“NB by J.C.” collects the variegated musings of James Campbell in the Times Literary Supplement.`\
-https://nytimes.com/2023/05/22/books/james-campbell-nb-by-jc.html?searchResultPosition=9
-
-**Supreme Court Criticism**\
-`Democrats used to criticize the Supreme Court respectfully. Increasingly, they see the court as irredeemable.`\
-https://nytimes.com/2023/05/22/briefing/supreme-court-criticism.html?searchResultPosition=10
+https://nytimes.com/2023/05/22/books/james-campbell-nb-by-jc.html?searchResultPosition=10
 
