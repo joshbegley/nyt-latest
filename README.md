@@ -18,7 +18,7 @@ https://nytimes.com/2023/05/22/technology/tiktok-montana-ban-lawsuit.html?search
 `As a psychological coach (and ex-player), he helped revive a woeful Cleveland baseball team. He had a WFAN show about youth sports and shepherded best sellers.`\
 https://nytimes.com/2023/05/22/sports/rick-wolff-dead.html?searchResultPosition=5
 
-**Sinn Fein Surges in Local Elections, Highlighting Northern Ireland’s Divides**\
+**Sinn Fein Surges in Local Elections, Highlighting Northern Ireland’s Divide**\
 `As the party climbs, its rivals, the Democratic Unionists, are stalled, which means any compromise that could revive its power-sharing national government may remain elusive.`\
 https://nytimes.com/2023/05/22/world/europe/northern-ireland-uk-sinn-fein-elections.html?searchResultPosition=6
 
