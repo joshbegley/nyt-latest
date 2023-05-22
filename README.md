@@ -1,40 +1,40 @@
+**Yellen Warns Again That the U.S. Could Default as Soon as June 1**\
+`The so-called X-date could still come as early as next week.`\
+https://nytimes.com/2023/05/22/us/politics/yellen-xdate-debt-limit.html?searchResultPosition=1
+
+**‘Pyrrhic Victory’: Russians Claim Bakhmut Amid a Staggering Toll**\
+`A top Ukrainian official essentially acknowledged that the devastated city had been lost. Thousands of Ukrainian and Russian soldiers died there, but the cost for Moscow was especially steep, experts say.`\
+https://nytimes.com/2023/05/22/world/europe/bakhmut-russia-ukraine-retreat.html?searchResultPosition=2
+
+**Despite Migrant Arrivals, There’s No Shortage of Hotel Rooms in New York**\
+`The mayor has said the influx of migrants staying in hotel rooms could affect tourism, but about 20,500 hotel rooms remain unoccupied.`\
+https://nytimes.com/2023/05/22/nyregion/hotel-nyc-migrants.html?searchResultPosition=3
+
 **TikTok Sues Montana, Calling State Ban Unconstitutional**\
 `The Chinese-owned video app filed the lawsuit days after Montana’s governor signed the ban, which takes effect on Jan. 1, into law.`\
-https://nytimes.com/2023/05/22/technology/tiktok-montana-ban-lawsuit.html?searchResultPosition=1
+https://nytimes.com/2023/05/22/technology/tiktok-montana-ban-lawsuit.html?searchResultPosition=4
 
 **Rick Wolff, Sports Radio Host and Much More, Is Dead at 71**\
 `As a psychological coach (and ex-player), he helped revive a woeful Cleveland baseball team. He had a WFAN show about youth sports and shepherded best sellers.`\
-https://nytimes.com/2023/05/22/sports/rick-wolff-dead.html?searchResultPosition=2
+https://nytimes.com/2023/05/22/sports/rick-wolff-dead.html?searchResultPosition=5
 
-**Sinn Fein Surges in Local Elections, Revealing a Divided Northern Ireland**\
+**Sinn Fein Surges in Local Elections, Highlighting Northern Ireland’s Divides**\
 `As the party climbs, its rivals, the Democratic Unionists, are stalled, which means any compromise that could revive its power-sharing national government may remain elusive.`\
-https://nytimes.com/2023/05/22/world/europe/northern-ireland-uk-sinn-fein-elections.html?searchResultPosition=3
+https://nytimes.com/2023/05/22/world/europe/northern-ireland-uk-sinn-fein-elections.html?searchResultPosition=6
 
 **5 Takeaways From Auction Week**\
 `Amid high inflation and low inventory, the art market correction appears to have landed. If it wasn’t a trophy, it probably struggled to command a high price.`\
-https://nytimes.com/2023/05/22/arts/design/art-auction-week-five-takeaways.html?searchResultPosition=4
+https://nytimes.com/2023/05/22/arts/design/art-auction-week-five-takeaways.html?searchResultPosition=7
 
 **Debt Limit Negotiators Debate Spending Caps to Break Standoff**\
 `The strategy, which was used in 2011, could allow both sides to save face but would most likely do little to chip away at the national debt.`\
-https://nytimes.com/2023/05/22/us/politics/debt-limit-spending-caps.html?searchResultPosition=5
+https://nytimes.com/2023/05/22/us/politics/debt-limit-spending-caps.html?searchResultPosition=8
 
 **Alert Level Is Raised in Central Mexico as Volcano Spews Smoke and Ash**\
 `Officials were preparing evacuation routes and shelters around the volcano, Popocatépetl, and some schools and parks were closed to minimize exposure to falling ash.`\
-https://nytimes.com/2023/05/22/world/americas/mexico-volcano-popocatepetl-eruption.html?searchResultPosition=6
+https://nytimes.com/2023/05/22/world/americas/mexico-volcano-popocatepetl-eruption.html?searchResultPosition=9
 
 **Volcano Spews Ash, Lava and Smoke in Mexico**\
 `Time-lapse videos show Popocatépetl, a volcano in central Mexico, spewing ash and volcanic gases. Its increased activity temporarily shut down Mexico City’s two main airports.`\
-https://nytimes.com/video/world/americas/100000008918032/volcano-mexico-popocatepetl.html?searchResultPosition=7
-
-**The Welfare Debate Stalling the Debt Talks**\
-`Work requirements are popular, but there’s a thin line between motivation and punishment.`\
-https://nytimes.com/2023/05/22/opinion/welfare-debate-debt-republicans.html?searchResultPosition=8
-
-**The QR-Code Menu Is Being Shown the Door**\
-`A dining innovation that once looked like the future has worn out its welcome with many restaurateurs, customers and servers who say it takes the joy out of dining.`\
-https://nytimes.com/2023/05/22/dining/restaurant-qr-code-menu.html?searchResultPosition=9
-
-**After the Warhol Decision, Another Major Copyright Case Looms**\
-`Richard Prince, an artist who appropriates images like Andy Warhol did, is being sued. But experts said the Supreme Court’s Warhol ruling may have little impact on the case.`\
-https://nytimes.com/2023/05/22/arts/warhol-prince-decision-copyright.html?searchResultPosition=10
+https://nytimes.com/video/world/americas/100000008918032/volcano-mexico-popocatepetl.html?searchResultPosition=10
 
