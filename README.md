@@ -10,7 +10,7 @@ https://nytimes.com/2023/05/22/us/politics/nashville-shooter-journals.html?searc
 `Ali Shamkhani was one of the most powerful men in Iran, but it was not enough to insulate him after a close associate was accused of selling information to Britain.`\
 https://nytimes.com/2023/05/22/world/middleeast/iran-ali-shamkhani-ousted.html?searchResultPosition=4
 
-**Texas Is Torturing Women Whose Pregnancies Fail**\
+**You Cannot Hear These 13 Women’s Stories and Believe the Anti-Abortion Narrative**\
 `If this isn’t what anti-abortion groups want, why won’t they fix it?`\
 https://nytimes.com/2023/05/22/opinion/abortion-law-texas-lawsuit.html?searchResultPosition=5
 
