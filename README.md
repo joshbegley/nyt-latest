@@ -1,4 +1,4 @@
-**Vinícius Júnior Charges Racism Is ‘Normal’ in Spanish Soccer**\
+**Vinícius Júnior Charges Racism Is ‘Normal’ in Spain**\
 `Valencia fans called the Real Madrid star a monkey on Sunday, highlighting La Liga’s inability to stamp out racial abuse.`\
 https://nytimes.com/2023/05/22/sports/soccer/vinicius-junior-racism-tebas.html?searchResultPosition=1
 
