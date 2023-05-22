@@ -34,7 +34,7 @@ https://nytimes.com/2023/05/22/dining/dallas-luxury-restaurants.html?searchResul
 `Records and interviews reveal a culture of cover-ups among correction officers who falsify reports and send beating victims to solitary confinement.`\
 https://nytimes.com/2023/05/22/nyregion/how-a-blue-wall-inside-ny-state-prisons-protects-abusive-guards.html?searchResultPosition=9
 
-**She’s Out to Save Rare Wildflowers, but First She Has to Find Them**\
-`A wet winter has provided a narrow window for botanists to search for wildflowers that have been lying dormant for years in California.`\
-https://nytimes.com/2023/05/22/us/california-wildflower-hunt.html?searchResultPosition=10
+**Spying in Mexico Strikes a New Victim: the President’s Ally**\
+`While looking into abuses by the armed forces, the country’s top human rights official was targeted with Pegasus, the world’s most notorious spyware, The Times found.`\
+https://nytimes.com/2023/05/22/world/americas/mexico-spying-pegasus-israel.html?searchResultPosition=10
 
