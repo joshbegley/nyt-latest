@@ -4,7 +4,7 @@ https://nytimes.com/2023/05/22/arts/music/morgan-wallen-11-weeks-billboard-chart
 
 **The Colorado River Is Shrinking. See What’s Using All the Water.**\
 `Hint: It’s less about long showers and more about what’s for dinner.`\
-https://nytimes.com/interactive/2023/05/22/us/colorado-river-water.html?searchResultPosition=2
+https://nytimes.com/interactive/2023/05/22/climate/colorado-river-water.html?searchResultPosition=2
 
 **Companies Are Taking a Harder Line on Union Organizers, Workers Say**\
 `Apple, Starbucks, Trader Joe’s and REI are accused of targeting union supporters after organizing efforts gained traction, charges the companies deny.`\
