@@ -14,13 +14,13 @@ https://nytimes.com/2023/05/22/sports/rick-hoyt-dead.html?searchResultPosition=3
 `He was a guide to a wonder-filled life.`\
 https://nytimes.com/2023/05/22/opinion/tim-keller-death.html?searchResultPosition=4
 
-**Working From Home and Realizing What Matters**\
-`Reduced commuting won’t raise G.D.P. So what?`\
-https://nytimes.com/2023/05/22/opinion/work-from-home-commuiting-gdp.html?searchResultPosition=5
-
 **Review: In ‘Bees & Honey,’ Love Is Both Sweet and Sticky**\
 `In this play by Guadalís Del Carmen, a couple’s shared heritage is integral to their meeting and the ups and downs of their daily relationship.`\
-https://nytimes.com/2023/05/22/theater/review-in-bees-honey-love-is-both-sweet-and-sticky.html?searchResultPosition=6
+https://nytimes.com/2023/05/22/theater/bees-and-honey-review.html?searchResultPosition=5
+
+**Working From Home and Realizing What Matters**\
+`Reduced commuting won’t raise G.D.P. So what?`\
+https://nytimes.com/2023/05/22/opinion/work-from-home-commuiting-gdp.html?searchResultPosition=6
 
 **Book Removals May Have Violated Students’ Rights, Education Department Says**\
 `The U.S. Department of Education reached a settlement with a Georgia school district after launching an investigation into whether book removals created a hostile environment for students.`\
