@@ -7,7 +7,7 @@ https://nytimes.com/2023/05/23/arts/television/american-born-chinese-review.html
 https://nytimes.com/2023/05/23/us/politics/biden-debt-ceiling-covid.html?searchResultPosition=2
 
 **Harlan Crow Declines to Provide Information Sought by Senate Democrats**\
-`Judiciary Committee members had asked for an accounting of gifts, travel provided to Associate Justice Clarence Thomas.`\
+`Judiciary Committee members had asked for an accounting of gifts and travel provided to Justice Clarence Thomas.`\
 https://nytimes.com/2023/05/23/us/politics/harlan-crow-clarence-thomas-judiciary-committee.html?searchResultPosition=3
 
 **Restaurant Review: Fluid Japanese-French Cuisine at House Brooklyn**\
