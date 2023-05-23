@@ -1,6 +1,6 @@
 **Anti-Kremlin Fighters Take War to Russian Territory for a Second Day**\
 `The cross-border attacks by fighters aligned with Ukraine were an effort to force Russia’s military to divert troops from the front line, an official said.`\
-https://nytimes.com/2023/05/23/world/europe/russia-border-ukraine-attacks.html?searchResultPosition=1
+https://nytimes.com/2023/05/23/world/europe/russia-belgorod-ukraine-attacks.html?searchResultPosition=1
 
 **Does Your Child Have an Unhealthy Relationship to Social Media? Here’s How to Tell.**\
 `The surgeon general has warned that it can pose a “profound risk” to the mental health of adolescents. We asked experts what problematic use could look like.`\
