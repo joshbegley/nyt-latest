@@ -1,5 +1,5 @@
-**Prince Harry Loses Bid to Pay for Own Security in U.K.**\
-`The decision comes a week after he and his wife said they were chased by paparazzi in Manhattan. The Home Office said that rich people should not be allowed to, in effect, hire the police as guards.`\
+**Prince Harry Loses Bid to Pay for Police Protection in U.K.**\
+`The decision comes a week after he and his wife, Meghan, said they were chased by paparazzi in Manhattan. The Home Office said that nobody should be allowed to, in effect, hire officers as guards.`\
 https://nytimes.com/2023/05/23/world/europe/prince-harry-security-uk.html?searchResultPosition=1
 
 **An A.I.-Generated Spoof Rattles the Markets**\
