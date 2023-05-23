@@ -11,7 +11,7 @@ https://nytimes.com/2023/05/23/pageoneplus/quotation-of-the-day-after-a-year-of-
 https://nytimes.com/2023/05/23/nyregion/new-yorks-a-lot-like-venice-its-sinking.html?searchResultPosition=3
 
 **Driver Detained After Truck Crashes Into Square Near the White House**\
-`The authorities said it was unclear whether the crash was accidental or intentional.`\
+`The authorities said that the driver may have intentionally struck the security barriers along Lafayette Square.`\
 https://nytimes.com/2023/05/23/us/politics/truck-crash-white-house.html?searchResultPosition=4
 
 **Meeting Between Biden and McCarthy Yields No Deal**\
