@@ -1,40 +1,40 @@
+**Sought Out by Science, and Then Forgotten**\
+`Four decades ago, medical researchers reached out to ailing families in Colombia for insights into Huntington’s disease. Scientists are just now following up, hoping it’s not too late.`\
+https://nytimes.com/2023/05/23/science/huntingtons-disease-colombia.html?searchResultPosition=1
+
+**Money, Sex and Rumors: Tanzania Faces Challenges to Protect Girls From HPV**\
+`Almost all cervical cancer deaths now occur in developing countries. Tanzania is trying to inoculate girls against the virus that causes the disease — nearly 20 years after rich countries began offering the shot.`\
+https://nytimes.com/2023/05/23/health/hpv-vaccine-tanzania.html?searchResultPosition=2
+
+**Today’s Wordle Review**\
+`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
+https://nytimes.com/2023/05/23/crosswords/wordle-review-answer-703.html?searchResultPosition=3
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2023/05/23/crosswords/spelling-bee-forum.html?searchResultPosition=4
+
+**Sad Songs**\
+`Do you turn on melancholy music when you’re feeling down?`\
+https://nytimes.com/2023/05/23/learning/sad-songs.html?searchResultPosition=5
+
 **4 Everest Ascents in 10 Days: Sherpas Battle for a Climbing Record**\
 `The friendly but grueling competition mixes monetary rewards with abundant dangers for a pair of veteran mountain guides.`\
-https://nytimes.com/2023/05/23/world/asia/sherpas-everest-competition.html?searchResultPosition=1
+https://nytimes.com/2023/05/23/world/asia/sherpas-everest-competition.html?searchResultPosition=6
 
 **Word of the Day: defer**\
 `This word has appeared in 109 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/05/23/learning/word-of-the-day-defer.html?searchResultPosition=2
+https://nytimes.com/2023/05/23/learning/word-of-the-day-defer.html?searchResultPosition=7
 
 **Cambodian Runner Finishes Race Despite Torrential Rain**\
 `Bou Samnang, of Cambodia, was lauded as an inspiration after completing her race despite a last-place finish during a torrential rainstorm at the Southeast Asian Games.`\
-https://nytimes.com/video/world/asia/100000008912613/bou-samnang-cambodian-runner-rain.html?searchResultPosition=3
+https://nytimes.com/video/world/asia/100000008912613/bou-samnang-cambodian-runner-rain.html?searchResultPosition=8
 
 **U.S. Shift to Support F-16s for Ukraine Began A Month Ago**\
 `The U.S. defense chief first asked Biden officials to support the plan after meeting with European allies. He made his pitch to President Biden last week.`\
-https://nytimes.com/2023/05/23/world/europe/ukraine-f16s-united-states.html?searchResultPosition=4
+https://nytimes.com/2023/05/23/world/europe/ukraine-f16s-united-states.html?searchResultPosition=9
 
 **Your Tuesday Briefing**\
 `Bakhmut is obliterated.`\
-https://nytimes.com/2023/05/23/briefing/bakhmut-obliteration-debt-migrants.html?searchResultPosition=5
-
-**Corrections: May 23, 2023**\
-`Corrections that appeared in print on Tuesday, May 23, 2023.`\
-https://nytimes.com/2023/05/23/pageoneplus/corrections-may-23-2023.html?searchResultPosition=6
-
-**Quotation of the Day: After a Year of Agony, Uvalde Is Fractured**\
-`Quotation of the Day for Tuesday, May 23, 2023.`\
-https://nytimes.com/2023/05/23/pageoneplus/quotation-of-the-day-after-a-year-of-agony-uvalde-is-fractured.html?searchResultPosition=7
-
-**New York’s a Lot Like Venice. It’s Sinking.**\
-`The city is subsiding between two millimeters and four millimeters a year under the weight of all its buildings, a scientist has found.`\
-https://nytimes.com/2023/05/23/nyregion/new-yorks-a-lot-like-venice-its-sinking.html?searchResultPosition=8
-
-**Driver Detained After Truck Crashes Into Square Near the White House**\
-`The authorities said that the driver may have intentionally struck the security barriers along Lafayette Square.`\
-https://nytimes.com/2023/05/23/us/politics/truck-crash-white-house.html?searchResultPosition=9
-
-**Meeting Between Biden and McCarthy Yields No Deal**\
-`The deadline to reach an agreement is June 1. House Speaker Kevin McCarthy said he expected to speak with President Biden daily until they reach an agreement.`\
-https://nytimes.com/video/us/politics/100000008919481/biden-mccarthy-debt-limit.html?searchResultPosition=10
+https://nytimes.com/2023/05/23/briefing/bakhmut-obliteration-debt-migrants.html?searchResultPosition=10
 
