@@ -7,7 +7,7 @@ https://nytimes.com/2023/05/23/us/politics/kari-lake-lawsuit-thrown-out.html?sea
 https://nytimes.com/2023/05/23/us/washington-tuberculosis-woman.html?searchResultPosition=2
 
 **DeSantis Set to Announce 2024 Run on Twitter With Elon Musk**\
-`The Florida governor is expected to appear on a live audio conversation with Mr. Musk, the social platform’s owner.`\
+`Adding a twist to the beginning of his presidential campaign, the Florida governor is expected to appear on a live audio conversation with Mr. Musk, the social platform’s owner, on Wednesday evening.`\
 https://nytimes.com/2023/05/23/us/politics/desantis-elon-musk-twitter.html?searchResultPosition=3
 
 **The Brilliance of Blur**\
