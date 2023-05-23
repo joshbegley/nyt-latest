@@ -1,40 +1,40 @@
-**Lessons From a Renters’ Utopia**\
-`Worldwide, housing has become a nightmare of expense and speculation. What did Vienna do right?`\
-https://nytimes.com/2023/05/23/magazine/vienna-social-housing.html?searchResultPosition=1
+**Australia Tries to Break Its Dependence on China for Lithium Mining**\
+`Half of the world’s supply of the critical battery ingredient is mined in Australia, which ships virtually all of it to China. The government and business are betting they can change that.`\
+https://nytimes.com/2023/05/23/business/australia-lithium-refining.html?searchResultPosition=1
 
-**Lesson Plan: ‘How to Print Money’**\
-`In this lesson, students will learn how the U.S. government creates the money we spend. Then, they will design their own currency.`\
-https://nytimes.com/2023/05/23/learning/lesson-plans/lesson-plan-how-to-print-money.html?searchResultPosition=2
+**Vivek Ramaswamy vs. the Void**\
+`He is what a pro-capitalism candidate looks like in post-Trump Republican politics, where the emphasis is on the creation of a totalizing national identity.`\
+https://nytimes.com/2023/05/23/opinion/vivek-ramaswamy-election-2024-republican-nomination.html?searchResultPosition=2
 
-**Indigenous TV Host Steps Down Following Online Racist Abuse**\
-`Stan Grant, a journalist and member of the Wiradjuri tribe of Indigenous Australians, called on the news media to reflect on its role during his final address on “Q+A,” a weekly program he hosted.`\
-https://nytimes.com/video/world/australia/100000008919596/australia-indigenous-stan-grant.html?searchResultPosition=3
+**For the Winner in Turkey, One Prize Is an Economy at the Edge of Crisis**\
+`A surge in government spending before the election this month and pressure on the country’s currency could hit the economy in coming months, experts say.`\
+https://nytimes.com/2023/05/23/world/middleeast/turkey-election-economy-president.html?searchResultPosition=3
 
-**Sought Out by Science, and Then Forgotten**\
-`Four decades ago, medical researchers reached out to ailing families in Colombia for insights into Huntington’s disease. Scientists are just now following up, hoping it’s not too late.`\
-https://nytimes.com/2023/05/23/science/huntingtons-disease-colombia.html?searchResultPosition=4
+**The Accidental Innkeeper: How an American Novelist Became a Hotelier in Guatemala**\
+`“These days, my role as an innkeeper occupies me almost as much as fiction,” writes Joyce Maynard, who, during the pandemic, hired locals in a Guatemalan village to turn her writing retreat into a guesthouse.`\
+https://nytimes.com/2023/05/23/travel/guatemala-joyce-maynard-hotel.html?searchResultPosition=4
 
-**Money, Sex and Rumors: Tanzania Faces Challenges to Protect Girls From HPV**\
-`Almost all cervical cancer deaths now occur in developing countries. Tanzania is trying to inoculate girls against the virus that causes the disease — nearly 20 years after rich countries began offering the shot.`\
-https://nytimes.com/2023/05/23/health/hpv-vaccine-tanzania.html?searchResultPosition=5
+**Emails, Chat Logs, Code and a Notebook: The Mountain of FTX Evidence**\
+`Prosecutors investigating Sam Bankman-Fried, the cryptocurrency exchange’s founder, have accumulated more than six million pages of documents and other records.`\
+https://nytimes.com/2023/05/23/technology/ftx-evidence-sam-bankman-fried.html?searchResultPosition=5
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/05/23/crosswords/wordle-review-answer-703.html?searchResultPosition=6
+**Inside Montauk’s Luxurious ‘Trailer Park’**\
+`An 800-square-foot beachfront home sold for $3.75 million in February, putting a spotlight on a wealthy community that has humble beginnings.`\
+https://nytimes.com/2023/05/23/realestate/montauk-ny-trailers-homes.html?searchResultPosition=6
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/05/23/crosswords/spelling-bee-forum.html?searchResultPosition=7
+**‘Death on the Floor or Death in the Streets’: Childbirth Amid War in Sudan**\
+`War in the northeast African nation has forced pregnant women to drive “through hell” to reach the dwindling number of hospitals and clinics, or turn to overworked midwives to give birth at home.`\
+https://nytimes.com/2023/05/23/world/africa/sudan-war-pregnant-women.html?searchResultPosition=7
 
-**Sad Songs**\
-`Do you turn on melancholy music when you’re feeling down?`\
-https://nytimes.com/2023/05/23/learning/sad-songs.html?searchResultPosition=8
+**How Uvalde Parents Learned to Grieve in Public**\
+`After 10-year-old Amerie Jo Garza was killed at Robb Elementary, Kimberly Garcia and Angel Garza had to face unimaginable loss without the solace of privacy.`\
+https://nytimes.com/2023/05/23/magazine/uvalde-parents.html?searchResultPosition=8
 
-**4 Everest Ascents in 10 Days: Sherpas Battle for a Climbing Record**\
-`The friendly but grueling competition mixes monetary rewards with abundant dangers for a pair of veteran mountain guides.`\
-https://nytimes.com/2023/05/23/world/asia/sherpas-everest-competition.html?searchResultPosition=9
+**Can You Cure Constipation Without Laxatives?**\
+`Many people want to avoid taking medications. Experts weigh in on what else works.`\
+https://nytimes.com/2023/05/23/well/eat/constipation-treatment-laxatives.html?searchResultPosition=9
 
-**Word of the Day: defer**\
-`This word has appeared in 109 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/05/23/learning/word-of-the-day-defer.html?searchResultPosition=10
+**How a Dive Bar in a Glam Beach Town Got a Second Chance**\
+`In Montauk, chic rooftop lounges with cover fees and $20 cocktails have yet to overtake one marina.`\
+https://nytimes.com/2023/05/23/nyregion/montauk-liars-dive-bars.html?searchResultPosition=10
 
