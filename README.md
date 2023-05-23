@@ -7,7 +7,7 @@ https://nytimes.com/2023/05/23/opinion/unemployment-black-americans.html?searchR
 https://nytimes.com/2023/05/23/nyregion/nyc-homeless-bills-adams.html?searchResultPosition=2
 
 **Surgeon General Warns That Social Media May Harm Children and Adolescents**\
-`The report by Dr. Vivek Murthy included practical recommendations to help families guide children’s social media use.`\
+`The report by Dr. Vivek Murthy cited a “profound risk of harm” to adolescent mental health and urged families to set limits and governments to set tougher standards for use.`\
 https://nytimes.com/2023/05/23/health/surgeon-general-social-media-mental-health.html?searchResultPosition=3
 
 **Boris Johnson Is Referred to Police Over Potential New Covid Rules Breach**\
