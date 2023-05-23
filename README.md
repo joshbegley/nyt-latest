@@ -22,7 +22,7 @@ https://nytimes.com/2023/05/23/world/americas/mexico-president-spying-pegasus.ht
 `Plus, Australian efforts to break with China on lithium.`\
 https://nytimes.com/2023/05/23/briefing/russia-ukraine-australia-explosion-asia.html?searchResultPosition=6
 
-**Surgeon General Warnings That Tried to Make a Difference**\
+**A Half-Century of Surgeon General Warnings**\
 `Public advisories from the nation’s top doctor are infrequent, but sometimes become turning points in American life.`\
 https://nytimes.com/2023/05/23/health/surgeon-general-warnings-history.html?searchResultPosition=7
 
