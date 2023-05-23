@@ -4,7 +4,7 @@ https://nytimes.com/2023/05/23/theater/monsoon-wedding-review.html?searchResultP
 
 **The Supreme Court vs. Andy Warhol**\
 `Inside a copyright case that dissenting justices say could stifle creativity.`\
-https://nytimes.com/2023/05/23/podcasts/the-daily/the-supreme-court-vs-andy-warhol.html?searchResultPosition=2
+https://nytimes.com/2023/05/23/podcasts/the-daily/supreme-court-andy-warhol.html?searchResultPosition=2
 
 **Listen to The Headlines, a New Way to Experience The Times**\
 `Exclusively from New York Times Audio, our new app.`\
