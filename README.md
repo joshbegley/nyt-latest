@@ -1,4 +1,4 @@
-**Who Will Protect the Workers Losing Jobs to A.I.?**\
+**A.I.’s Threat to Jobs Prompts Question of Who Protects Workers**\
 `Tens of millions of jobs could be automated by generative artificial intelligence. The makers of new technologies are looking to the government to step in.`\
 https://nytimes.com/2023/05/23/business/jobs-protections-artificial-intelligence.html?searchResultPosition=1
 
