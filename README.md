@@ -1,6 +1,6 @@
 **Surgeon General Warns That Social Media May Harm Children and Adolescents**\
 `The report by Dr. Vivek Murthy included practical recommendations to help families guide children’s social media use.`\
-https://nytimes.com/2023/05/23/health/surgeon-general-warns-that-social-media-may-harm-children-and-adolescents.html?searchResultPosition=1
+https://nytimes.com/2023/05/23/health/surgeon-general-social-media-mental-health.html?searchResultPosition=1
 
 **Boris Johnson Is Referred to Police Over Potential New Covid Rules Breach**\
 `The former prime minister was fined last year while still the head of government for breaking Covid rules in 2020, one of a series of scandals that eventually led to his resignation.`\
