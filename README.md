@@ -4,7 +4,7 @@ https://nytimes.com/2023/05/23/learning/lesson-plans/lesson-plan-how-to-print-mo
 
 **Indigenous TV Host Steps Down Following Online Racist Abuse**\
 `Stan Grant, a journalist and member of the Wiradjuri tribe of Indigenous Australians, called on the news media to reflect on its role during his final address on “Q+A,” a weekly program he hosted.`\
-https://nytimes.com/video/world/australia/100000008919596/indigenous-tv-host-steps-down-following-online-racist-abuse.html?searchResultPosition=2
+https://nytimes.com/video/world/australia/100000008919596/australia-indigenous-stan-grant.html?searchResultPosition=2
 
 **Sought Out by Science, and Then Forgotten**\
 `Four decades ago, medical researchers reached out to ailing families in Colombia for insights into Huntington’s disease. Scientists are just now following up, hoping it’s not too late.`\
