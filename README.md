@@ -10,7 +10,7 @@ https://nytimes.com/2023/05/23/crosswords/daily-puzzle-2023-05-24.html?searchRes
 `Christopher R. Grider had also tried to shut off the electricity at the U.S. Capitol, according to prosecutors.`\
 https://nytimes.com/2023/05/23/us/jan-6-texas-man-sentenced.html?searchResultPosition=3
 
-**The Times Reaches a Contract Deal With Newsroom Union**\
+**The Times Reaches a Contract Deal With Its Newsroom Union**\
 `The new agreement, if ratified, will give union members immediate salary increases of up to 12.5 percent.`\
 https://nytimes.com/2023/05/23/business/media/new-york-times-news-guild-contract.html?searchResultPosition=4
 
