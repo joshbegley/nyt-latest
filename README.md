@@ -15,7 +15,7 @@ https://nytimes.com/2023/05/24/us/politics/china-guam-malware-cyber-microsoft.ht
 https://nytimes.com/2023/05/24/opinion/unemployment-inflation-federal-reserve.html?searchResultPosition=4
 
 **Tina Turner, Magnetic Singer of Explosive Power, Is Dead at 83**\
-`First hailed in the 1960s for her dynamic performances with her husband, Ike, she went on to become one of the most successful recording artists of all time.`\
+`First hailed in the 1960s for her dynamic performances with her husband, Ike, she became one of the most successful recording artists of all time.`\
 https://nytimes.com/2023/05/24/arts/music/tina-turner-dead.html?searchResultPosition=5
 
 **After France Bans Short Domestic Flights, It’s Business as Usual**\
