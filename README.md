@@ -1,5 +1,5 @@
-**Fed Officials Were Split Over June Rate Pause**\
-`Minutes from the Federal Reserve’s last meeting showed that “several” participants thought rates may have moved high enough to get inflation under control.`\
+**Fed Officials Were Split Over June Rate Pause, Minutes Show**\
+`In the Federal Reserve’s last meeting, “several” participants thought rates may have moved high enough to get inflation under control.`\
 https://nytimes.com/2023/05/24/us/politics/federal-reserve-minutes.html?searchResultPosition=1
 
 **Florida’s First Lady, and Second in Command**\
