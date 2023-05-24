@@ -1,5 +1,5 @@
 **Jan. 6 Rioter Who Reclined in Pelosi’s Office Given Sentence of More Than 4 Years**\
-`Richard ‘Bigo’ Barnett, who was pictured with his foot on a desk in the speaker’s office, had been convicted of eight crimes for his role in the attack on the Capitol by Trump supporters.`\
+`Richard “Bigo” Barnett, who was pictured with his foot on a desk in the speaker’s office, had been convicted of eight crimes for his role in the attack on the Capitol by Trump supporters.`\
 https://nytimes.com/2023/05/24/us/politics/jan-6-barnett-sentence.html?searchResultPosition=1
 
 **On TikTok, Pop Music Speeds Up**\
