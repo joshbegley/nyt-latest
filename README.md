@@ -1,5 +1,5 @@
 **A Historic Skating Hub Returns**\
-`Decades ago, Brooklyn Banks was the epicenter of urban skateboarding. Now, it's back.`\
+`Decades ago, Brooklyn Banks was the epicenter of urban skateboarding. Now, it's back. `\
 https://nytimes.com/interactive/2023/05/24/nyregion/brooklyn-banks-reopens.html?searchResultPosition=1
 
 **Biden Marks Uvalde Anniversary With Renewed Call to ‘Do Something’**\
