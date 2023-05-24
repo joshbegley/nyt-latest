@@ -18,8 +18,8 @@ https://nytimes.com/2023/05/24/world/asia/china-comedy-music-crackdown.html?sear
 `The surgeon general said social media can be a ‘profound risk’ for America’s youth.`\
 https://nytimes.com/2023/05/24/opinion/social-media-smartphones.html?searchResultPosition=5
 
-**Bill Lee, Jazz Bassist and Composer, Is Dead at 94**\
-`He accompanied a wide range of musicians from the worlds of both folk and jazz. But he was probably best known for scoring the early films of his son Spike Lee.`\
+**Bill Lee, Bassist and Composer of Son Spike Lee’s Films, Dies at 94**\
+`He accompanied a wide range of jazz and folk musicians and scored “She’s Gotta Have It,” “School Daze” “Do the Right Thing” and “Mo’ Better Blues.”`\
 https://nytimes.com/2023/05/24/arts/music/bill-lee-dead.html?searchResultPosition=6
 
 **Take Control of Migraine Treatment**\
