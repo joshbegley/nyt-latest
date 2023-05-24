@@ -2,8 +2,8 @@
 `By Nicholas Kristof`\
 https://nytimes.com/2023/05/24/opinion/education-revolution-sierra-leone.html?searchResultPosition=1
 
-**Elon Musk’s Event With DeSantis Exposes Twitter’s Weaknesses**\
-`What was supposed to be a crowning moment for Mr. Musk’s Twitter — Ron DeSantis announcing his presidential run — turned into a series of technical glitches.`\
+**Elon Musk’s Event With Ron DeSantis Exposes Twitter’s Weaknesses**\
+`What was supposed to be a crowning moment for Mr. Musk’s Twitter turned into a series of technical glitches.`\
 https://nytimes.com/2023/05/24/technology/elon-musk-desantis-twitter.html?searchResultPosition=2
 
 **No Time Like the Present, Senator Feinstein**\
