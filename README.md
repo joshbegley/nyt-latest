@@ -6,7 +6,7 @@ https://nytimes.com/video/us/politics/100000008922722/biden-uvalde-anniversary.h
 `Commissioner Keechant Sewell has decided Jeffrey Maddrey should be punished for freeing a retired officer arrested after chasing three boys while armed with a gun.`\
 https://nytimes.com/2023/05/24/nyregion/nypd-police-commissioner-sewell-maddrey.html?searchResultPosition=2
 
-**Police Officer Charged With Punching Man, Breaking His Nose**\
+**Police Officer Charged With Punching Man Acting Erratically, Breaking His Nose**\
 `Prosecutors do not often charge officers for actions in the line of duty, but Alvin L. Bragg, Manhattan’s district attorney, has pressed for police accountability.`\
 https://nytimes.com/2023/05/24/nyregion/nypd-officer-charged-alvin-bragg.html?searchResultPosition=3
 
