@@ -23,7 +23,7 @@ https://nytimes.com/2023/05/24/arts/music/popcast-sped-up-tiktok-remixes.html?se
 https://nytimes.com/2023/05/24/style/bama-rush-documentary.html?searchResultPosition=6
 
 **George Washington University Drops Colonial Moniker**\
-`The move comes after criticism of the team’s nickname because of its association with violence toward Native Americans and other colonized people.`\
+`The move comes after years of criticism of the team’s nickname because of its connection with violence toward Native Americans and other colonized people.`\
 https://nytimes.com/2023/05/24/us/george-washington-university-name.html?searchResultPosition=7
 
 **Your Thursday Briefing: DeSantis’s Presidential Run**\
