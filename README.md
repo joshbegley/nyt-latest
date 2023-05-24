@@ -31,7 +31,7 @@ https://nytimes.com/2023/05/24/learning/womens-basketball.html?searchResultPosit
 https://nytimes.com/2023/05/24/business/uk-inflation-april.html?searchResultPosition=8
 
 **Typhoon Mawar Brings Hurricane-Force Winds to Guam**\
-`The island has issued evacuation orders and a flash flood warning and has halted commercial air traffic.`\
+`Winds knocked down trees and power lines, leaving much of the island without power.`\
 https://nytimes.com/video/us/100000008921401/typhoon-mawar-guam.html?searchResultPosition=9
 
 **Word of the Day: gait**\
