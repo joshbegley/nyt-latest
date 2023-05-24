@@ -1,5 +1,5 @@
 **Fetty Wap Is Sentenced to 6 Years in Prison for Running Drugs**\
-`Prosecutors said the rapper, best known for his hit “Trap Queen,” glamorized the drug trade — and sold them even as he made millions from his music.`\
+`Prosecutors said the rapper, best known for his hit “Trap Queen,” glamorized drugs — and sold them even as he made millions from his music.`\
 https://nytimes.com/2023/05/24/nyregion/fetty-wap-sentenced.html?searchResultPosition=1
 
 **New York City’s Housing Chief Is Resigning Amid a Homelessness Crisis**\
