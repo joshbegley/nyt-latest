@@ -10,7 +10,7 @@ https://nytimes.com/2023/05/24/us/politics/china-guam-malware-cyber-microsoft.ht
 `A Fed survey gives a detailed portrait of Americans’ financial lives.`\
 https://nytimes.com/2023/05/24/opinion/unemployment-inflation-federal-reserve.html?searchResultPosition=3
 
-**Tina Turner, Singer of Explosive Power, Is Dead at 83**\
+**Tina Turner, Singer of Explosive Power and Wide Reach, Is Dead at 83**\
 `First hailed in the 1960s for her dynamic performances with her husband, Ike, she went on to become one of the most successful recording artists of all time.`\
 https://nytimes.com/2023/05/24/arts/music/tina-turner-dead.html?searchResultPosition=4
 
