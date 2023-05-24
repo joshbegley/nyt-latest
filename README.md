@@ -6,7 +6,7 @@ https://nytimes.com/2023/05/24/arts/dance/review-dada-masilo-the-sacrifice.html?
 `For decades, many voters grew accustomed to a certain set of norms that seemed to govern political systems like rules. But elite groups have lost the power they once had to enforce those norms, or decided to change their own behavior.`\
 https://nytimes.com/2023/05/24/world/rules-norms-politics.html?searchResultPosition=2
 
-**Malware Discovered in Guam Raises a Question: Is China Prepping the Battlefield?**\
+**Chinese Malware Hits Systems on Guam. Is Taiwan the Real Target?**\
 `The code, which Microsoft said was installed by a Chinese government hacking group, set off alarms because Guam would be a centerpiece of any U.S. military response to a move against Taiwan.`\
 https://nytimes.com/2023/05/24/us/politics/china-guam-malware-cyber-microsoft.html?searchResultPosition=3
 
@@ -15,7 +15,7 @@ https://nytimes.com/2023/05/24/us/politics/china-guam-malware-cyber-microsoft.ht
 https://nytimes.com/2023/05/24/opinion/unemployment-inflation-federal-reserve.html?searchResultPosition=4
 
 **Tina Turner, Magnetic Singer of Explosive Power, Is Dead at 83**\
-`First hailed in the 1960s for her dynamic performances with her husband, Ike, she became one of the most successful recording artists of all time.`\
+`Hailed in the 1960s for dynamic performances with her husband, Ike, she became a sensation as a recording artist, often echoing her own struggles in her songs.`\
 https://nytimes.com/2023/05/24/arts/music/tina-turner-dead.html?searchResultPosition=5
 
 **After France Bans Short Domestic Flights, It’s Business as Usual**\
