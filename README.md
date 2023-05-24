@@ -1,40 +1,40 @@
+**Teenagers Resent Social Media. They Also Resent Efforts to Take It Away.**\
+`After the surgeon general warned that social media harms young people, young New Yorkers agreed. Some also said that the government — and their parents — should back off.`\
+https://nytimes.com/2023/05/24/nyregion/social-media-teenagers-health-nyc.html?searchResultPosition=1
+
+**For a Wine Critic, Experience and Experimentation Age Well**\
+`Eric Asimov, the wine critic for The New York Times, explains how a diversity of wines has transformed the industry he covers.`\
+https://nytimes.com/2023/05/24/insider/wine-critic-eric-asimov-nyt.html?searchResultPosition=2
+
+**DeSantis Allies’ $200 Million Plan for Beating Trump**\
+`As the Florida governor prepares to enter the 2024 race, his allies are building an army of organizers to flood the states with the first nominating contests.`\
+https://nytimes.com/2023/05/24/us/politics/ron-desantis-2024-super-pac.html?searchResultPosition=3
+
+**Today’s Wordle Review**\
+`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
+https://nytimes.com/2023/05/24/crosswords/wordle-review-answer-704.html?searchResultPosition=4
+
+**In ‘Taste the Nation’, Padma Lakshmi’s Focus Is on the Food**\
+`The host of “Taste the Nation” talks about the do-it-yourself nature of shooting her show.`\
+https://nytimes.com/2023/05/24/style/padma-lakshmi-taste-the-nat.html?searchResultPosition=5
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2023/05/24/crosswords/spelling-bee-forum.html?searchResultPosition=6
+
+**Women’s Basketball**\
+`Do women players deserve more respect — and pay?`\
+https://nytimes.com/2023/05/24/learning/womens-basketball.html?searchResultPosition=7
+
 **Britain’s Inflation Slowed in April, but Remains Stubbornly High**\
 `Consumer prices rose 8.7% from a year earlier, the slowest pace since March 2022.`\
-https://nytimes.com/2023/05/24/business/uk-inflation-april.html?searchResultPosition=1
+https://nytimes.com/2023/05/24/business/uk-inflation-april.html?searchResultPosition=8
 
 **Typhoon Mawar Brings Hurricane-Force Winds to Guam**\
 `The island has issued evacuation orders and a flash flood warning and has halted commercial air traffic.`\
-https://nytimes.com/video/us/100000008921401/typhoon-mawar-guam.html?searchResultPosition=2
+https://nytimes.com/video/us/100000008921401/typhoon-mawar-guam.html?searchResultPosition=9
 
 **Word of the Day: gait**\
 `This word has appeared in 68 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/05/24/learning/word-of-the-day-gait.html?searchResultPosition=3
-
-**Bill to Force Texas Public Schools to Display Ten Commandments Fails**\
-`A Republican effort to bring religion into classrooms faltered, though lawmakers were poised to allow chaplains to act as school counselors.`\
-https://nytimes.com/2023/05/24/us/texas-ten-commandments-legislature.html?searchResultPosition=4
-
-**Your Wednesday Briefing**\
-`Ron DeSantis’s presidential bid.`\
-https://nytimes.com/2023/05/24/briefing/desantis-russia-boris-johnson.html?searchResultPosition=5
-
-**Strong Winds Hit Guam as Typhoon Mawar Approaches**\
-`President Biden declared an emergency for Guam on Tuesday night, and the governor warned that the island could take a direct hit from the typhoon.`\
-https://nytimes.com/video/us/100000008921342/typhoon-mawar-guam.html?searchResultPosition=6
-
-**Corrections: May 24, 2023**\
-`Corrections that appeared in print on Wednesday, May 24, 2023.`\
-https://nytimes.com/2023/05/24/pageoneplus/corrections-may-24-2023.html?searchResultPosition=7
-
-**A Bridge of Dreams and Aspirations Opened 140 Years Ago Today**\
-`The Brooklyn Bridge still stands alone as an attraction and as a symbol of New York’s ability to strive for great things.`\
-https://nytimes.com/2023/05/24/nyregion/brooklyn-bridge-140-years.html?searchResultPosition=8
-
-**Quotation of the Day: She’s Out to Save Rare Wildflowers, but First She Has to Find Them**\
-`Quotation of the Day for Wednesday, May 24, 2023.`\
-https://nytimes.com/2023/05/24/pageoneplus/quotation-of-the-day-shes-out-to-save-rare-wildflowers-but-first-she-has-to-find-them.html?searchResultPosition=9
-
-**Chief Justice Says Supreme Court Is Working to Address Ethics Questions**\
-`In remarks at an awards ceremony, Chief Justice John G. Roberts Jr. also addressed heckling at law schools and security for members of the court.`\
-https://nytimes.com/2023/05/24/us/chief-justice-roberts-supreme-court-ethics.html?searchResultPosition=10
+https://nytimes.com/2023/05/24/learning/word-of-the-day-gait.html?searchResultPosition=10
 
