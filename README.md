@@ -12,7 +12,7 @@ https://nytimes.com/slideshow/2023/05/24/realestate/living-in-pleasantville-ny.h
 
 **DeSantis’s Big Event Underscores a Rightward Move for Twitter**\
 `The Florida governor’s plan to announce his presidential campaign on the social network is the latest sign of the company’s efforts to court conservatives.`\
-https://nytimes.com/2023/05/24/business/dealbook/desantis-twitter-conservatives.html?searchResultPosition=4
+https://nytimes.com/2023/05/24/business/dealbook/desantis-twitter-presidential-campaign.html?searchResultPosition=4
 
 **They Cuddled a Kiwi. New Zealand Said, ‘Stop That.’**\
 `Video of the national bird being handled by Miami zoo visitors caused an outcry in New Zealand. Even the prime minister weighed in.`\
