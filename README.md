@@ -1,5 +1,5 @@
 **Typhoon Mawar Lashes Guam With High Winds, Knocking Out Power**\
-`The slow-moving Pacific cyclone brought typhoon-strength winds to the American territory on Wednesday afternoon. Most of the island was without electricity.`\
+`The slow-moving Pacific cyclone brought strong winds to the American territory on Wednesday afternoon. Most of the island was without electricity.`\
 https://nytimes.com/2023/05/24/us/typhoon-mawar-guam.html?searchResultPosition=1
 
 **Teenagers Resent Social Media. They Also Resent Efforts to Take It Away.**\
