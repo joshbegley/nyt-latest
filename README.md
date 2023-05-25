@@ -22,8 +22,8 @@ https://nytimes.com/2023/05/25/nyregion/daniel-penny-jordan-neely-grand-jury.htm
 `The famous poet and his artist friend wanted to publish “The Sweet and Sour Animal Book” in 1936. But there were no takers. A Cleveland exhibition makes up for the lost time.`\
 https://nytimes.com/2023/05/25/arts/design/langston-hughes-elmer-brown-exhibition-cleveland.html?searchResultPosition=6
 
-**Woman Shoved Against Train Lies Awake, but Is Prisoner to a Ravaged Body**\
-`Emine Yilmaz Ozsoy is in critical condition, surrounded by an improvised web of support. Her story embodies New York’s post-pandemic fears and challenges.`\
+**Woman Shoved Against Train Faces ‘Very Scary Journey,’ Husband Says**\
+`Emine Yilmaz Ozsoy has been partially paralyzed and is in critical condition, surrounded by an improvised web of support. Her story embodies New York’s post-pandemic fears and challenges.`\
 https://nytimes.com/2023/05/25/nyregion/subway-attack-woman-shoved-manhattan.html?searchResultPosition=7
 
 **Republicans Report Progress in Debt Limit Talks as Negotiations Continue**\
