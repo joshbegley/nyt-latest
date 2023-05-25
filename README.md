@@ -1,4 +1,4 @@
-**Congress Can Impose Ethics Code if Supreme Court Won’t**\
+**Congress Can Impose an Ethics Code if the Supreme Court Won’t**\
 `That would help foster a culture of accountability and transparency for a small group of powerful officials who have long avoided both.`\
 https://nytimes.com/2023/05/25/opinion/supreme-court-ethics-act.html?searchResultPosition=1
 
