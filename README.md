@@ -1,40 +1,40 @@
+**‘Kandahar’ Review: Marooned in a Dull Movie**\
+`Gerard Butler plays an undercover C.I.A. agent hunted by various foes in an underwhelming action film devoid of any suspense or, well, action.`\
+https://nytimes.com/2023/05/25/movies/kandahar-review.html?searchResultPosition=1
+
+**‘The Wrath of Becky’ Review: Teenage Riot**\
+`The traumatized teen is back to finalize even more fascists in this comically bloody sequel.`\
+https://nytimes.com/2023/05/25/movies/the-wrath-of-becky-review-teenage-riot.html?searchResultPosition=2
+
+**‘Being Mary Tyler Moore’ Review: A Tip of the Hat to the Tossed Hat**\
+`This charming documentary aims to peek under the smile of a groundbreaking television star.`\
+https://nytimes.com/2023/05/25/movies/being-mary-tyler-moore-review.html?searchResultPosition=3
+
+**‘About My Father’ Review: De Niro in Dad Mode Again**\
+`The comedian Sebastian Maniscalco enlists his “Irishman” colleague in this labored comedy, where gags fall flat.`\
+https://nytimes.com/2023/05/25/movies/about-my-father-review.html?searchResultPosition=4
+
+**‘The Attachment Diaries’ Review: Love, Sick**\
+`A gynecologist and her patient form a horrifyingly twisted connection in this batty, bloody Argentine melodrama.`\
+https://nytimes.com/2023/05/25/movies/the-attachment-diaries-review.html?searchResultPosition=5
+
+**‘Influencer’ Review: Reading Between the Likes**\
+`This thriller, about a mysterious woman’s obsession with online influencers, treats social media as a breeding ground for fear and obsession`\
+https://nytimes.com/2023/05/25/movies/influencer-review.html?searchResultPosition=6
+
 **Ron DeSantis and the ‘Scaffle’ Vote**\
 `As DeSantis announces his campaign, we dig into what may be the single most important fact about U.S. politics.`\
-https://nytimes.com/2023/05/25/briefing/ron-desantis.html?searchResultPosition=1
+https://nytimes.com/2023/05/25/briefing/ron-desantis.html?searchResultPosition=7
 
 **Millions of Dollars, Thousands of Robocalls and 1 Legal Loophole**\
 `A New York Times analysis highlights a flaw in the regulation of political nonprofit groups.`\
-https://nytimes.com/2023/05/25/podcasts/the-daily/millions-of-dollars-thousands-of-robocalls-and-1-legal-loophole.html?searchResultPosition=2
+https://nytimes.com/2023/05/25/podcasts/the-daily/millions-of-dollars-thousands-of-robocalls-and-1-legal-loophole.html?searchResultPosition=8
 
 **Get the Best From ChatGPT With These Golden Prompts**\
 `Our personal tech columnist shares how to improve many parts of your life.`\
-https://nytimes.com/2023/05/25/technology/ai-chatbot-chatgpt-prompts.html?searchResultPosition=3
+https://nytimes.com/2023/05/25/technology/ai-chatbot-chatgpt-prompts.html?searchResultPosition=9
 
 **Our Quick Take on the DeSantis Announcement and the Day’s Top Stories**\
 `Exclusively from New York Times Audio, our new app.`\
-https://nytimes.com/2023/05/25/podcasts/headlines-nyt-audio-app.html?searchResultPosition=4
-
-**This Runner Finished Last, but Her Perseverance Won Over a Nation**\
-`Video of the Cambodian runner Bou Samnang’s rain-soaked performance in a 5,000-meter race resonated with fans who applauded her gritty determination.`\
-https://nytimes.com/2023/05/25/sports/bou-samnang-cambodian-runner-rain.html?searchResultPosition=5
-
-**U.K. Immigration Hits Record Level, Sharpening a Dilemma for Sunak**\
-`Net migration to Britain has exceeded 600,000 a year, new figures show, stirring tensions in a government that has promised both to stem arrivals and to revive a sluggish economy.`\
-https://nytimes.com/2023/05/25/world/europe/uk-migration.html?searchResultPosition=6
-
-**What Does Russia’s Success in Bakhmut Mean for the War in Ukraine?**\
-`Moscow has declared victory in its long, bloody assault. But a full capture of the ruined city may not help Russian forces advance deeper in the Donbas region.`\
-https://nytimes.com/2023/05/25/world/europe/bakhmut-ukraine-russia-war.html?searchResultPosition=7
-
-**The Best of Türkiye**\
-`In Turkey, time and place seem to take on an otherworldly quality. Let your feelings guide you on your next adventure with this interactive guidebook.`\
-https://nytimes.com/paidpost/go-turkiye/the-best-of-turkiye.html?searchResultPosition=8
-
-**Italy Now Has Conspiracy Theory as National Policy**\
-`Italian Prime Minister Giorgia Meloni believes in the racist great replacement theory—and is putting it into in practice.`\
-https://nytimes.com/audio/2023/05/25/podcasts/7forpol-italy-now-has-conspiracy-theory.html?searchResultPosition=9
-
-**The Policy Fights Where DeSantis Sees His Chance to Hit Trump**\
-`Donald Trump and Ron DeSantis are staking out conflicting positions on major issues, setting up an ideological battle that will play out over the next eight months.`\
-https://nytimes.com/2023/05/25/us/politics/trump-desantis-policy-clash.html?searchResultPosition=10
+https://nytimes.com/2023/05/25/podcasts/headlines-nyt-audio-app.html?searchResultPosition=10
 
