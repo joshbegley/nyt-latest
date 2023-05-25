@@ -28,7 +28,7 @@ https://nytimes.com/2023/05/25/briefing/ron-desantis.html?searchResultPosition=7
 
 **Millions of Dollars, Thousands of Robocalls and 1 Legal Loophole**\
 `A New York Times analysis highlights a flaw in the regulation of political nonprofit groups.`\
-https://nytimes.com/2023/05/25/podcasts/the-daily/millions-of-dollars-thousands-of-robocalls-and-1-legal-loophole.html?searchResultPosition=8
+https://nytimes.com/2023/05/25/podcasts/the-daily/republican-robocall-donors.html?searchResultPosition=8
 
 **Get the Best From ChatGPT With These Golden Prompts**\
 `Our personal tech columnist shares how to improve many parts of your life.`\
