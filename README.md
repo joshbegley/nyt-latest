@@ -1,6 +1,6 @@
 **The Joys of a Solo Bachelorette Trip**\
 `Some brides are bucking tradition and trading tiaras, sashes and bar hopping in major cities with their friends in favor of a more subdued celebration, alone.`\
-https://nytimes.com/2023/05/25/style/the-joys-of-a-solo-bachelorette-trip.html?searchResultPosition=1
+https://nytimes.com/2023/05/25/style/solo-bachelorette-trip.html?searchResultPosition=1
 
 **A Man Called 9-1-1. The Police Shot Him While He Was Still on the Phone.**\
 `A New Jersey man was fatally wounded by a police officer after reporting trespassers in his yard. The officer has been charged with manslaughter.`\
