@@ -6,7 +6,7 @@ https://nytimes.com/2023/05/24/us/nashville-covenant-school-shooter-writings.htm
 `Let’s pull apart Andrew Kingsley and Garrett Chalfin’s grid.`\
 https://nytimes.com/2023/05/24/crosswords/daily-puzzle-2023-05-25.html?searchResultPosition=2
 
-**Fact-Checking DeSantis’s Opening Bid for the Presidency**\
+**Fact-Checking DeSantis’s Opening Bid for the White House**\
 `We assessed the Republican candidate’s defense of his record as Florida governor, his dispute with Disney and his attack on President Biden.`\
 https://nytimes.com/2023/05/24/us/politics/ron-desantis-fact-check.html?searchResultPosition=3
 
