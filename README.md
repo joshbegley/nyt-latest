@@ -10,7 +10,7 @@ https://nytimes.com/2023/05/25/us/hurricane-season-forecast-noaa.html?searchResu
 `A British Beat poet, he wrote lyrics for the band Cream and, after it broke up, continued to collaborate with Jack Bruce, the group’s lead singer and bassist.`\
 https://nytimes.com/2023/05/25/arts/music/pete-brown-dead.html?searchResultPosition=3
 
-**He Made a Show About Grief. She Saw Herself In It.**\
+**He Made a Show About Grief. She Saw Herself in It.**\
 `Audible Theater’s leader and the creator of “Sorry for Your Loss” hope the autobiographical comedy helps others learn to talk about grief.`\
 https://nytimes.com/2023/05/25/theater/sorry-for-your-loss-grief-audible.html?searchResultPosition=4
 
