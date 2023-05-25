@@ -2,7 +2,7 @@
 `Gov. Tim Walz said the legislation would have raised costs for ordering an Uber or Lyft too high, potentially pricing out Minnesota customers.`\
 https://nytimes.com/2023/05/25/technology/minnesota-veto-gig-workers.html?searchResultPosition=1
 
-**DeSantis’s Twitter Event Falls Short of the Reach of Past Live Streams**\
+**DeSantis’s Twitter Event Falls Short of the Reach of Past Livestreams**\
 `The Republican presidential candidate’s announcement on Twitter had a high of about 300,000 concurrent listeners during the event and a total of 3.4 million listeners as of Thursday.`\
 https://nytimes.com/2023/05/25/technology/ron-desantis-twitter-spaces-live-stream.html?searchResultPosition=2
 
