@@ -7,7 +7,7 @@ https://nytimes.com/2023/05/25/arts/design/richard-mayhew-painter-gallery-review
 https://nytimes.com/paidpost/americorps-momentum-and-the-moment/americorps_brand-reputation-q2-q3/momentum-and-the-moment.html?searchResultPosition=2
 
 **House Passes Bill to Make Penalties Permanent for Fentanyl-Related Drugs**\
-`The legislation earned quiet endorsement by the Biden administration and a solid bloc of Democratic votes, but exposed divisions over how to tackle the country’s most pressing drug crisis.`\
+`The legislation earned quiet endorsement from the Biden administration and a solid group of Democratic votes, but exposed divisions over how to tackle the country’s most pressing drug crisis.`\
 https://nytimes.com/2023/05/25/us/politics/fentanyl-bill-house.html?searchResultPosition=3
 
 **Steve Bannon’s Criminal Trial Is Scheduled for Next May**\
