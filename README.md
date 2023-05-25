@@ -4,7 +4,7 @@ https://nytimes.com/2023/05/25/technology/minnesota-veto-gig-workers.html?search
 
 **DeSantis’s Twitter Event Falls Short of the Reach of Past Live Streams**\
 `The Republican presidential candidate’s announcement on Twitter had a high of about 300,000 concurrent listeners during the event and a total of 3.4 million listeners as of Thursday.`\
-https://nytimes.com/2023/05/25/technology/ron-desantis-twitter-event-reach-falls-short.html?searchResultPosition=2
+https://nytimes.com/2023/05/25/technology/ron-desantis-twitter-spaces-live-stream.html?searchResultPosition=2
 
 **Wagner Says It Is Leaving Bakhmut, Posing Challenge for Russia**\
 `After seizing the city in eastern Ukraine after a long, brutal fight, the Wagner mercenary force is turning it over to the depleted Russian Army to defend.`\
