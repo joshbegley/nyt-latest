@@ -3,7 +3,7 @@
 https://nytimes.com/2023/05/25/world/europe/tina-turner-switzerland-kusnacht.html?searchResultPosition=1
 
 **Neighbors Lay Flowers at Tina Turner’s Home in Switzerland**\
-`Mourners honored the trailblazing rock star at a memorial outside of her home in Küsnacht, Switzerland.`\
+`Mourners honored the trailblazing rock star at a memorial outside her home in Küsnacht, Switzerland.`\
 https://nytimes.com/video/arts/100000008923620/tina-turner-memorial-switzerland-neighbors.html?searchResultPosition=2
 
 **Tornado. Treasure. There Was Nobody Like Tina Turner.**\
