@@ -1,40 +1,40 @@
-**Australian Boot-Scooters Break ‘Nutbush’ World Record**\
-`More than 4,000 people danced to Tina Turner’s hit, ‘Nutbush City Limits,’ at the 2022 Birdsville Big Red Bash festival, setting a new record.`\
-https://nytimes.com/video/world/australia/100000008923286/tina-turner-nutbush-australia.html?searchResultPosition=1
+**Italy Now Has Conspiracy Theory as National Policy**\
+`Italian Prime Minister Giorgia Meloni believes in the racist great replacement theory—and is putting it into in practice.`\
+https://nytimes.com/audio/2023/05/25/podcasts/7forpol-italy-now-has-conspiracy-theory.html?searchResultPosition=1
 
-**Highways Have Sliced Through City After City. Can the U.S. Undo the Damage?**\
-`The Biden administration is funding projects around the country aimed at reconnecting communities that have been divided by transportation infrastructure.`\
-https://nytimes.com/2023/05/25/us/politics/biden-removing-highways.html?searchResultPosition=2
+**How Sexist Is Hollywood? Check Out Geena Davis’s Spreadsheet**\
+`When it comes to quantifying bias in popular entertainment, the Academy Award winner’s in a league of her own.`\
+https://nytimes.com/2023/05/25/business/geena-davis-hollywood-sexism-gender.html?searchResultPosition=2
 
-**Should Making It in Fashion Be This Hard?**\
-`The young designer Elena Velez may be headed for bankruptcy, cancellation or glory. This is her great experiment.`\
-https://nytimes.com/2023/05/25/style/should-making-it-in-fashion-be-this-hard.html?searchResultPosition=3
+**Reid Hoffman Is on a Mission: To Show A.I. Can Improve Humanity**\
+`Few are as involved in so many different artificial intelligence efforts as Mr. Hoffman, a Silicon Valley investor who co-founded LinkedIn.`\
+https://nytimes.com/2023/05/25/technology/reid-hoffman-artificial-intelligence.html?searchResultPosition=3
 
-**Thorns and Flowers**\
-`What do you think this GIF is communicating?`\
-https://nytimes.com/2023/05/25/learning/thorns-and-flowers.html?searchResultPosition=4
+**The Policy Fights Where DeSantis Sees His Chance to Hit Trump**\
+`Donald Trump and Ron DeSantis are staking out conflicting positions on major issues, setting up an ideological battle that will play out over the next eight months.`\
+https://nytimes.com/2023/05/25/us/politics/trump-desantis-policy-clash.html?searchResultPosition=4
 
-**A Complicated Nostalgia for Mary Tyler Moore**\
-`A new documentary examines the life of an actress who personified a certain kind of hopeful feminism.`\
-https://nytimes.com/2023/05/25/style/mary-tyler-moore-documentary-review.html?searchResultPosition=5
+**Russia’s Old Bombs Elude Ukraine’s Modern Defenses**\
+`Ukrainian and American officials say Russian warplanes are dropping Soviet-era bombs, some modified to glide long distances, which are almost impossible to shoot down.`\
+https://nytimes.com/2023/05/25/world/europe/russia-ukraine-soviet-bombs.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/05/25/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**The Surprising Obstacle to Overhauling How Children Learn to Read**\
+`New York is the latest large city to join a national push to change how children are taught to read. But principals and teachers can resist uprooting old practices.`\
+https://nytimes.com/2023/05/25/nyregion/nyc-public-schools-reading.html?searchResultPosition=6
 
-**This Reporter Wants to Know How You Got to Know Each Other**\
-`With her reported column, ‘Third Wheel,’ Gina Cherelus has made a beat with dating, relationships and sex.`\
-https://nytimes.com/2023/05/25/insider/third-wheel.html?searchResultPosition=7
+**The Leclerc Brothers Return Together to Race at Monaco**\
+`They grew up in the principality and come back as sibling racecar drivers. Arthur will compete in the F2 event there, his older brother, Charles, in the Grand Prix.`\
+https://nytimes.com/2023/05/25/sports/autoracing/charles-leclerc-arthur-leclerc-monaco-grand-prix.html?searchResultPosition=7
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/05/25/crosswords/wordle-review-answer-705.html?searchResultPosition=8
+**Strikes in Europe: How to Plan Around Them**\
+`Across Europe, workers have been walking out over pay disputes and labor conditions, and the turmoil will extend into the summer travel season. But they don’t have to disrupt your trip.`\
+https://nytimes.com/2023/05/25/travel/summer-strikes-europe.html?searchResultPosition=8
 
-**Word of the Day: relegate**\
-`This word has appeared in 23 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/05/25/learning/word-of-the-day-relegate.html?searchResultPosition=9
+**Security Lines: How to Speed Through**\
+`T.S.A. and Customs are making changes that they say will cut down on wait times, but you can also prepare yourself by joining programs and downloading apps.`\
+https://nytimes.com/2023/05/25/travel/summer-security-lines.html?searchResultPosition=9
 
-**Your Thursday Briefing**\
-`Celebrating the life of Tina Turner.`\
-https://nytimes.com/2023/05/25/briefing/tina-turner-desantis-kremlin-attack.html?searchResultPosition=10
+**Delays and Cancellations: Know Your Rights**\
+`The F.A.A. has made changes to cut down on chaos, but choosing your flights defensively, and knowing what you’re entitled to, can help.`\
+https://nytimes.com/2023/05/25/travel/summer-delays-and-cancellations.html?searchResultPosition=10
 
