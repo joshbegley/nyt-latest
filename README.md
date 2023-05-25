@@ -19,7 +19,7 @@ https://nytimes.com/2023/05/25/nyregion/summer-new-york-events.html?searchResult
 https://nytimes.com/2023/05/25/business/target-pride-lgbtq-companies-backlash.html?searchResultPosition=5
 
 **Car Crashes Into Downing Street Gates in London**\
-`A man was arrested on “suspicion of criminal damage and dangerous driving,” though there were early indications that no one was injured.`\
+`A man was arrested on “suspicion of criminal damage and dangerous driving,” though there were no initial reports of injuries.`\
 https://nytimes.com/2023/05/25/world/europe/downing-street-car-crash.html?searchResultPosition=6
 
 **Daniel Penny Plans to Testify Before Grand Jury in Subway Chokehold Case**\
