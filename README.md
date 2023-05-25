@@ -30,11 +30,11 @@ https://nytimes.com/paidpost/go-turkiye/the-best-of-turkiye.html?searchResultPos
 `Italian Prime Minister Giorgia Meloni believes in the racist great replacement theory—and is putting it into in practice.`\
 https://nytimes.com/audio/2023/05/25/podcasts/7forpol-italy-now-has-conspiracy-theory.html?searchResultPosition=8
 
+**The Policy Fights Where DeSantis Sees His Chance to Hit Trump**\
+`Donald Trump and Ron DeSantis are staking out conflicting positions on major issues, setting up an ideological battle that will play out over the next eight months.`\
+https://nytimes.com/2023/05/25/us/politics/trump-desantis-policy-clash.html?searchResultPosition=9
+
 **How Sexist Is Hollywood? Check Out Geena Davis’s Spreadsheet**\
 `When it comes to quantifying bias in popular entertainment, the Academy Award winner’s in a league of her own.`\
-https://nytimes.com/2023/05/25/business/geena-davis-hollywood-sexism-gender.html?searchResultPosition=9
-
-**Reid Hoffman Is on a Mission: To Show A.I. Can Improve Humanity**\
-`Few are as involved in so many different artificial intelligence efforts as Mr. Hoffman, a Silicon Valley investor who co-founded LinkedIn.`\
-https://nytimes.com/2023/05/25/technology/reid-hoffman-artificial-intelligence.html?searchResultPosition=10
+https://nytimes.com/2023/05/25/business/geena-davis-hollywood-sexism-gender.html?searchResultPosition=10
 
