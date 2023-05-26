@@ -1,6 +1,6 @@
 **Menendez Investigation Is Said to Involve Questions About Luxury Gifts**\
 `Senator Robert Menendez, Democrat of New Jersey, has said he is confident the inquiry will “end up in absolutely nothing.”`\
-https://nytimes.com/2023/05/25/nyregion/menendez-investigation-is-said-to-involve-questions-about-luxury-gifts.html?searchResultPosition=1
+https://nytimes.com/2023/05/25/nyregion/senator-menendez-investigation-luxury-gifts.html?searchResultPosition=1
 
 **Variety: Vowel-less Crossword**\
 `All consonants are welcome in this outrageous challenge by Evan Kalish.`\
