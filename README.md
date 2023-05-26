@@ -1,4 +1,4 @@
-**DeSantis’s Taxpayer-Funded Office Solicits Backing for 2024 Campaign**\
+**DeSantis’s Administration Solicits Endorsements and Money for His Campaign**\
 `The appeals for endorsements from lawmakers and donations from lobbyists, which were described by several people familiar with the outreach, blur the line between the governor’s administration and his campaign.`\
 https://nytimes.com/2023/05/26/us/politics/desantis-florida-donations.html?searchResultPosition=1
 
