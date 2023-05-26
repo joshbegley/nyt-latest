@@ -22,8 +22,8 @@ https://nytimes.com/2023/05/26/world/iran-belgium-prisoner-swap.html?searchResul
 `The bill, signed by Mayor Eric Adams on Friday, adds weight to the list of characteristics protected from discrimination in areas like employment and housing.`\
 https://nytimes.com/2023/05/26/nyregion/weight-discrimination-law-nyc.html?searchResultPosition=6
 
-**Conservative Canadians Rethink Choices After Party’s Hard Right Turn**\
-`The pandemic took the conservative party in the oil-rich province of Alberta to the hard right. An election on Monday is a test of whether its voters, traditionally among the most conservative in Canada, will follow.`\
+**Hard-Right Turn of Conservatives Forces Canadians to Rethink Choices**\
+`The pandemic took the conservative party in the oil-rich province of Alberta far to the right. An election on Monday will test if voters, traditionally among Canada’s most conservative, will follow.`\
 https://nytimes.com/2023/05/26/canada-alberta-election-conservative-party.html?searchResultPosition=7
 
 **Struggling to Attract Riders, BART Rethinks Its Service Schedule**\
