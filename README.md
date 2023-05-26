@@ -16,7 +16,7 @@ https://nytimes.com/2023/05/26/world/europe/ukraine-nato-germany.html?searchResu
 
 **The Ticking Clock of a U.S. Debt Default**\
 `Time is running out for Congress to raise the debt limit. What are the prospects of a compromise in the negotiations?`\
-https://nytimes.com/2023/05/26/podcasts/the-daily/a-looming-us-debt-default.html?searchResultPosition=5
+https://nytimes.com/2023/05/26/podcasts/the-daily/us-debt-default.html?searchResultPosition=5
 
 **Our Quick Take on the Oath Keepers Trial and the Day’s Top Stories**\
 `Exclusively from New York Times Audio, our new app.`\
