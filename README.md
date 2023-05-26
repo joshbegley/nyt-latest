@@ -10,7 +10,7 @@ https://nytimes.com/2023/05/26/us/politics/desantis-florida-donations.html?searc
 `There’s a reason great TV endings are often the most elusive endings of all.`\
 https://nytimes.com/2023/05/26/opinion/contributors/succession-finale-ending.html?searchResultPosition=3
 
-**Frantic Negotiations, Late Nights and No Deal on America’s Debt**\
+**Behind the Scenes: Midnight Calls and Marathon Meetings, Night After Night**\
 `What day is it, anyway? As talks drag on, the situation is getting painful for everyone from the negotiators to the tourists on Capitol Hill.`\
 https://nytimes.com/2023/05/26/us/politics/debt-ceiling-negotiations.html?searchResultPosition=4
 
