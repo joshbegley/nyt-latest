@@ -1,4 +1,4 @@
-**A Looming U.S. Debt Default**\
+**The Ticking Clock of a U.S. Debt Default**\
 `Time is running out for Congress to raise the debt limit. What are the prospects of a compromise in the negotiations?`\
 https://nytimes.com/2023/05/26/podcasts/the-daily/a-looming-us-debt-default.html?searchResultPosition=1
 
