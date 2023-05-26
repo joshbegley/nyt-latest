@@ -1,4 +1,4 @@
-**The Counteroffensive is Coming**\
+**The Counteroffensive Is Coming**\
 `We preview what is next in the war in Ukraine.`\
 https://nytimes.com/2023/05/26/briefing/ukraine-counteroffensive.html?searchResultPosition=1
 
