@@ -32,7 +32,7 @@ https://nytimes.com/2023/05/26/arts/music/amplifier-newsletter-tina-turner-cover
 
 **Map: Tracking Typhoon Mawar**\
 `Charting the storm’s location and potential path.`\
-https://nytimes.com/interactive/2023/05/26/world/map-typhoon-mawar.html?searchResultPosition=9
+https://nytimes.com/interactive/2023/world/map-typhoon-mawar.html?searchResultPosition=9
 
 **Ketamine Shows Promise for Hard-to-Treat Depression in New Study**\
 `Research this week presents the most robust evidence to date that ketamine is at least as effective as electroconvulsive therapy for patients with treatment-resistant depression who do not have psychosis.`\
