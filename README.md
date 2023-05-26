@@ -2,7 +2,7 @@
 `The jazz composer wrote a new concerto for the New York Philharmonic’s principal trombonist, Joseph Alessi, but died before its U.S. premiere.`\
 https://nytimes.com/2023/05/26/arts/music/review-new-york-philharmonic-chick-corea-trombone-concerto.html?searchResultPosition=1
 
-**succession quiz**\
+**How Well Do You Know ‘Succession’?**\
 `This is not a personality quiz.`\
 https://nytimes.com/interactive/2023/05/26/arts/television/succession-finale-quiz.html?searchResultPosition=2
 
