@@ -12,10 +12,10 @@ https://nytimes.com/2023/05/26/us/south-carolina-abortion-ban.html?searchResultP
 
 **Sedition Sentence for Oath Keepers Leader Marks Moment of Accountability**\
 `The 18 years in prison given to Stewart Rhodes for a rarely charged crime underscored the lengths to which the Justice Department and the courts have gone in addressing the assault on the Capitol.`\
-https://nytimes.com/2023/05/26/us/politics/sedition-sentence-oath-keepers-accountability.html?searchResultPosition=4
+https://nytimes.com/2023/05/26/us/politics/sedition-oath-keepers-stewart-rhodes.html?searchResultPosition=4
 
 **Treasury Expects to Run Out of Cash by June 5**\
-`The latest estimate is a slight extension from the previous June 1 deadline and comes as Republicans and the White House are trying to reach agreement to raise the debt ceiling and avoid a crippling default.`\
+`The latest estimate is a slight extension from the previous June 1 deadline and comes as Republicans and the White House are trying to reach an agreement to raise the debt ceiling and avoid a crippling default.`\
 https://nytimes.com/2023/05/26/business/yellen-treasury-x-date-us-debt.html?searchResultPosition=5
 
 **Ed Ames, Singing Star Who Became a Familiar Face on TV, Dies at 95**\
