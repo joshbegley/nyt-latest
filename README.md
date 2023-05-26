@@ -1,40 +1,40 @@
+**Roasted Potato Salad, Crisp-Edged Smash Burgers and Smoked Cabbage Slaw**\
+`With straight-up rhubarb pie and double strawberry shortcakes, to take full advantage of peak spring produce.`\
+https://nytimes.com/2023/05/26/dining/roasted-potato-salad-crisp-edged-smash-burgers-and-smoked-cabbage-slaw.html?searchResultPosition=1
+
+**Five Horror Movies to Stream Now**\
+`We can almost guarantee you’ll get the willies this month with movies about thirsty bloodsuckers, famished flesh eaters and other frights.`\
+https://nytimes.com/2023/05/26/movies/horror-movies-streaming.html?searchResultPosition=2
+
+**The Battle of the SoHo Pergola and More: The Week in Reporter Reads**\
+`Articles from around The Times, narrated just for you.`\
+https://nytimes.com/2023/05/26/podcasts/pergola-ulvade-little-mermaid.html?searchResultPosition=3
+
 **The On- and Off-Court Drama of Alexander Zverev**\
 `He’s a diligent player. He has also recently worked through an abuse claim and an on-court tantrum — and a serious injury at last year’s French Open.`\
-https://nytimes.com/2023/05/26/sports/tennis/alexander-zverev-interview.html?searchResultPosition=1
+https://nytimes.com/2023/05/26/sports/tennis/alexander-zverev-interview.html?searchResultPosition=4
 
 **The Difficulty of Coming Back From Serious Tennis Injuries**\
 `Getting hurt is part of the game, but sometimes it can take years for top players to return to form.`\
-https://nytimes.com/2023/05/26/sports/tennis/french-open-alexander-zverev-injury.html?searchResultPosition=2
+https://nytimes.com/2023/05/26/sports/tennis/french-open-alexander-zverev-injury.html?searchResultPosition=5
 
 **Coaching Is Now Allowed During Tennis Matches, but How Useful Is It?**\
 `The practice was long banned, but a change in the rules has permitted hand signals and some talking.`\
-https://nytimes.com/2023/05/26/sports/tennis/coaching-tennis-matches.html?searchResultPosition=3
+https://nytimes.com/2023/05/26/sports/tennis/coaching-tennis-matches.html?searchResultPosition=6
 
 **You Shouldn’t Squish These Bugs**\
 `Not since the nature-obsessed Victorian era have jewelry designers expressed so much interest in the tiny beings that crawl, fly and slither among us.`\
-https://nytimes.com/2023/05/26/fashion/jewelry-insect-motifs.html?searchResultPosition=4
+https://nytimes.com/2023/05/26/fashion/jewelry-insect-motifs.html?searchResultPosition=7
 
 **How Italy’s Heart of Gold is Melding with More Modern Jewelry Machinery**\
 `Manufacturers in Vicenza are experimenting with technological advances that would allow brands to go beyond traditional handcrafted methods.`\
-https://nytimes.com/2023/05/26/fashion/jewelry-technology-vicenza-italy.html?searchResultPosition=5
+https://nytimes.com/2023/05/26/fashion/jewelry-technology-vicenza-italy.html?searchResultPosition=8
 
 **Jewelry That Adds Face Value**\
 `Designers are adding lots of lip and septum creations to their collections.`\
-https://nytimes.com/2023/05/26/fashion/jewelry-facial-piercings.html?searchResultPosition=6
+https://nytimes.com/2023/05/26/fashion/jewelry-facial-piercings.html?searchResultPosition=9
 
 **A Designer’s Long Journey to Jewelry**\
 `Bernard Delettrez tried screenwriting and emerald mining, but eventually he understood that what he really wanted to focus on was good design.`\
-https://nytimes.com/2023/05/26/fashion/jewelry-bernard-delettrez.html?searchResultPosition=7
-
-**F.B.I. Documents Detail 1983 Assassination Threat Against Queen Elizabeth II**\
-`A newly released trove of documents describe a threat to kill the queen during a visit that she and her husband made to the United States 40 years ago.`\
-https://nytimes.com/2023/05/26/us/queen-fbi-assassination-plot-us.html?searchResultPosition=8
-
-**Stop Us if You’ve Heard This One: The A’s Have a Stadium Deal**\
-`From faking a rainout at a World Series game to a possum in a television booth, the Athletics have rarely been happy at home. Will Las Vegas be the answer?`\
-https://nytimes.com/2023/05/26/sports/baseball/oakland-athletics-las-vegas.html?searchResultPosition=9
-
-**Inside the Grassroots Granny Network That Helps Migrants**\
-`A state of emergency has been declared in several counties north of New York City because of the arrivals of migrants, which has inspired one nonprofit to spring into action.`\
-https://nytimes.com/interactive/2023/05/26/nyregion/migrants-newburgh.html?searchResultPosition=10
+https://nytimes.com/2023/05/26/fashion/jewelry-bernard-delettrez.html?searchResultPosition=10
 
