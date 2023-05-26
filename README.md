@@ -28,7 +28,7 @@ https://nytimes.com/2023/05/26/books/review/book-review-podcast-martin-amis.html
 
 **How a Default Could Unfold**\
 `Here’s a look at what markets are expecting and planning for, and how a default might happen.`\
-https://nytimes.com/2023/05/26/business/economy/how-a-default-could-unfold.html?searchResultPosition=8
+https://nytimes.com/2023/05/26/business/economy/debt-limit-default.html?searchResultPosition=8
 
 **7 Supporting Characters That Made ‘Succession’**\
 `"Succession" wasn't all about Logan, Kendall, Roman and Shiv.`\
