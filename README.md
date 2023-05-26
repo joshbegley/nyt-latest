@@ -1,40 +1,40 @@
-**‘Different Standards’: The Struggle of Indigenous Journalists in Australia**\
-`The departure of the TV host Stan Grant has set off a conversation about race and racism in the country’s media industry.`\
-https://nytimes.com/2023/05/26/world/australia/different-standards-the-struggle-of-indigenous-journalists-in-australia.html?searchResultPosition=1
+**Predawn Picket Lines Help Writers Disrupt Studio Productions**\
+`Workers from other unions have shown solidarity with the strikers, catching entertainment companies off guard.`\
+https://nytimes.com/2023/05/26/business/media/writers-strike-picket-lines.html?searchResultPosition=1
 
-**A ‘Plain-Spoken’ Way to Share Our Location**\
-`Datelines have announced the whereabouts of reporters for more than 150 years. The Times has introduced a change in the way it does that.`\
-https://nytimes.com/2023/05/26/insider/new-york-times-datelines.html?searchResultPosition=2
+**They Knew Little About Oysters. Now They Have a Farm With 2 Million.**\
+`Stefanie Bassett and Elizabeth Peeples left their city lives behind to raise mollusks.`\
+https://nytimes.com/2023/05/26/realestate/little-ram-oyster-long-island.html?searchResultPosition=2
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/05/26/crosswords/spelling-bee-forum.html?searchResultPosition=3
+**Fine Jewelry Moves to the Darker Side**\
+`The color black is showing up in designers’ gem and metal choices as an expression of everything from moody romanticism to downright Goth.`\
+https://nytimes.com/2023/05/26/fashion/jewelry-color-black.html?searchResultPosition=3
 
-**Out at Dusk**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2023/05/26/learning/out-at-dusk.html?searchResultPosition=4
+**A Japanese Pearl Farm Shows Nature’s Artistic Process**\
+`A visit to the Mikimoto Tatoku Pearl Farm where the culturing process was developed 130 years ago.`\
+https://nytimes.com/2023/05/26/fashion/jewelry-mikimoto-cultured-pearls-japan.html?searchResultPosition=4
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/05/26/crosswords/wordle-review-answer-706.html?searchResultPosition=5
+**Mourning Jewelry Leaves the Victorian Era Behind**\
+`Lab-grown diamonds made with cremation ashes are just one way people are honoring their loved ones.`\
+https://nytimes.com/2023/05/26/fashion/jewelry-mourning.html?searchResultPosition=5
 
-**Indiana Reprimands Doctor Who Provided Abortion to 10-Year-Old Rape Victim**\
-`Dr. Caitlin Bernard violated the privacy of her young patient by discussing the girl’s case with a reporter, the state’s medical board ruled.`\
-https://nytimes.com/2023/05/26/us/indiana-doctor-abortion-reprimand.html?searchResultPosition=6
+**They Sell Seashells (With Gems) From the Seashore**\
+`Designers from Glenn Spiro to Silvia Furmanovich are turning shells into fine jewelry.`\
+https://nytimes.com/2023/05/26/fashion/jewelry-shells.html?searchResultPosition=6
 
-**Word of the Day: unanimous**\
-`This word has appeared in 312 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/05/26/learning/word-of-the-day-unanimous.html?searchResultPosition=7
+**‘Translators’ Help a Jewelry Designer to Keep Creating**\
+`When Romilly Saumarez Smith lost her fine motor skills, she despaired. But then she remembered that even Michelangelo worked with collaborators.`\
+https://nytimes.com/2023/05/26/fashion/jewelry-romilly-saumarez-smith-london.html?searchResultPosition=7
 
-**Hyundai and LG Plan $4.3 Billion Battery Plant in Georgia**\
-`The facility is the second battery project under development in the state by Hyundai Motor Group and may bring 3,000 jobs.`\
-https://nytimes.com/2023/05/26/business/hyundai-lg-georgia-battery-plant.html?searchResultPosition=8
+**Exploring the Majesty and Mystery of Sor Juana in Dance**\
+`Michelle Manzaneles’s new work for Ballet Hispánico is, she says, “a way of going personal through another person’s story.”`\
+https://nytimes.com/2023/05/26/arts/dance/sor-juana-ballet-hispanico-michelle-manzanales.html?searchResultPosition=8
 
-**Corrections: May 26, 2023**\
-`Corrections that appeared in print on Friday, May 26, 2023.`\
-https://nytimes.com/2023/05/26/pageoneplus/corrections-may-26-2023.html?searchResultPosition=9
+**On Erdogan Campaign Trail, Invoking God, Reciting Poetry, Bashing Foes**\
+`President Recep Tayyip Erdogan has rock star appeal at his election rallies, promising to lead Turkey to claim its rightful place as a global power if he is re-elected in a runoff on Sunday.`\
+https://nytimes.com/2023/05/26/world/europe/turkey-erdogan-election.html?searchResultPosition=9
 
-**Quotation of the Day: Reorienting Turkey’s Culture for His Own Ends**\
-`Quotation of the Day for Friday, May 26, 2023.`\
-https://nytimes.com/2023/05/26/pageoneplus/quotation-of-the-day-reorienting-turkeys-culture-for-his-own-ends.html?searchResultPosition=10
+**Gasoline Prices, a Source of Pain Last Year, Have Come Way Down**\
+`Reasons include a stronger supply of oil and weaker-than-expected demand, energy experts say. Some people are saving hundreds of dollars on fuel.`\
+https://nytimes.com/2023/05/26/business/energy-environment/oil-gasoline-prices-summer.html?searchResultPosition=10
 
