@@ -10,7 +10,7 @@ https://nytimes.com/2023/05/26/movies/may-december-cannes-todd-haynes.html?searc
 `Many measures of Black achievement in the U.S. have stalled or reversed. A series from Headway looks back at historical gains for their lessons today.`\
 https://nytimes.com/2023/05/26/headway/black-americans-racial-progress.html?searchResultPosition=3
 
-**Mary Pattiz, Rock D.J. During FM’s Heyday, Dies at 76**\
+**Mary Turner Pattiz, Rock D.J. During FM’s Heyday, Dies at 76**\
 `She was known as “the Burner” for her seductive delivery, but off the air she was anything but a wild rock ’n’ roller. She later became an addiction counselor.`\
 https://nytimes.com/2023/05/26/arts/music/mary-turner-pattiz-dead.html?searchResultPosition=4
 
