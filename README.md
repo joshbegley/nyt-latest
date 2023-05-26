@@ -1,40 +1,40 @@
+**Murder, They Wrote**\
+`Our columnist looks at a clutch of summer crime novels, including “I Didn’t Do It,” set at a mystery writers’ conference.`\
+https://nytimes.com/2023/05/26/books/review/new-crime-fiction.html?searchResultPosition=1
+
+**This $50,000 Watch Kills Its Wearers by Slicing Their Wrists**\
+`Our columnist on “Death Watch,” “Going Zero” and other pulse-pounding summer novels.`\
+https://nytimes.com/2023/05/26/books/review/new-thrillers.html?searchResultPosition=2
+
+**When ‘Happily Ever After’ Is Just the Beginning**\
+`Our columnist recommends six dreamy new romance novels.`\
+https://nytimes.com/2023/05/26/books/review/new-romance-novels.html?searchResultPosition=3
+
+**During the Dog Days, Escape to the Old Days**\
+`These books rewind time, depositing readers in the Cumbrian countryside, coastal Maine, rural Wyoming and beyond.`\
+https://nytimes.com/2023/05/26/books/review/new-historical-fiction-novels.html?searchResultPosition=4
+
+**The Magic (and Malaise) of Families**\
+`New novels by Fonda Lee, Martha Wells, Nick Harkaway, Kelly Link and Emma Törzs.`\
+https://nytimes.com/2023/05/26/books/review/new-science-fiction-fantasy-books.html?searchResultPosition=5
+
+**From Subatomic Particles to the Cosmos, and Every Bird in Between**\
+`Five new audiobooks to download this summer include a breakdown of quantum computing and a tribute to Mary Oliver.`\
+https://nytimes.com/2023/05/26/books/new-audiobooks.html?searchResultPosition=6
+
+**To Be Enjoyed in a State of Repose, Preferably Near Water**\
+`These five novels go well with sand, sunscreen and hot afternoons. (Landlocked on a rainy day? That works, too.)`\
+https://nytimes.com/2023/05/26/books/review/beach-reads.html?searchResultPosition=7
+
+**Heads Exploding and ‘Bright Scarlet Ribbons Fountaining’**\
+`If your idea of a good summer read involves abject terror, we’ve got some recommendations for you.`\
+https://nytimes.com/2023/05/26/books/review/new-horror-fiction.html?searchResultPosition=8
+
 **Summer Is Coming. It’s Time to Check Your Feet.**\
 `Podiatrists suggest examining your feet year-round and implementing a few other habits during warmer months.`\
-https://nytimes.com/2023/05/26/well/live/feet-health-summer.html?searchResultPosition=1
+https://nytimes.com/2023/05/26/well/live/feet-health-summer.html?searchResultPosition=9
 
 **Celine Dion Cancels the Remainder of Her World Tour**\
 `The pop star, who announced in December that she was suffering from a rare neurological condition, said she was “working really hard to build back my strength.”`\
-https://nytimes.com/2023/05/26/arts/music/celine-dion-cancels-tour.html?searchResultPosition=2
-
-**Russian Public Appears to Be Souring on War Casualties, Analysis Shows**\
-`Support for the war in Ukraine remains high but could potentially turn if concern over the high numbers of casualties persists, according to FilterLabs AI.`\
-https://nytimes.com/2023/05/26/us/politics/russia-public-opinion-ukraine-war.html?searchResultPosition=3
-
-**‘Succession’: 5 Questions We Have Heading Into the Finale**\
-`Will a Roy sibling emerge victorious? Is the Shivorce off? And what about American democracy? Here are some plot lines we are hoping to see resolved.`\
-https://nytimes.com/2023/05/26/arts/television/succession-finale-questions.html?searchResultPosition=4
-
-**How a Novel About Video Games Became a Surprise Best Seller**\
-`Gabrielle Zevin didn’t expect a wide audience for “Tomorrow, and Tomorrow, and Tomorrow,” her novel about game developers. It became a blockbuster with staying power.`\
-https://nytimes.com/2023/05/26/books/gabrielle-zevin-tomorrow-and-tomorrow-and-tomorrow.html?searchResultPosition=5
-
-**In ‘Succession,’ the Very Rich Are Very, Very Different**\
-`The HBO drama, which ends on Sunday, updates past rich-people soaps like “Dallas.” But unlike those series, it argues that the problems of the hyper-wealthy inevitably become ours too.`\
-https://nytimes.com/2023/05/26/arts/television/succession-finale.html?searchResultPosition=6
-
-**Roasted Potato Salad, Crisp-Edged Smash Burgers and Smoked Cabbage Slaw**\
-`With straight-up rhubarb pie and double strawberry shortcakes, to take full advantage of peak spring produce.`\
-https://nytimes.com/2023/05/26/dining/roasted-potato-salad-crisp-edged-smash-burgers-and-smoked-cabbage-slaw.html?searchResultPosition=7
-
-**Five Horror Movies to Stream Now**\
-`We can almost guarantee you’ll get the willies this month with movies about thirsty bloodsuckers, famished flesh eaters and other frights.`\
-https://nytimes.com/2023/05/26/movies/horror-movies-streaming.html?searchResultPosition=8
-
-**The Battle of the SoHo Pergola and More: The Week in Reporter Reads**\
-`Articles from around The Times, narrated just for you.`\
-https://nytimes.com/2023/05/26/podcasts/pergola-ulvade-little-mermaid.html?searchResultPosition=9
-
-**The On- and Off-Court Drama of Alexander Zverev**\
-`He’s a diligent player. He has also recently worked through an abuse claim and an on-court tantrum — and a serious injury at last year’s French Open.`\
-https://nytimes.com/2023/05/26/sports/tennis/alexander-zverev-interview.html?searchResultPosition=10
+https://nytimes.com/2023/05/26/arts/music/celine-dion-cancels-tour.html?searchResultPosition=10
 
