@@ -1,6 +1,6 @@
 **Frantic Negotiations, Late Nights and No Deal on America’s Debt**\
 `What day is it, anyway? As talks drag on, the situation is getting painful for everyone from the negotiators to the tourists on Capitol Hill.`\
-https://nytimes.com/2023/05/26/us/politics/inside-debt-ceiling-negotiations.html?searchResultPosition=1
+https://nytimes.com/2023/05/26/us/politics/debt-ceiling-negotiations.html?searchResultPosition=1
 
 **Political Stagecraft Gone Awry**\
 `Ron DeSantis's Twitter rollout added him to a long line of politicians who have fallen victim to technical and logistical snafus.`\
