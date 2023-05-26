@@ -15,7 +15,7 @@ https://nytimes.com/2023/05/26/business/markets-debt-ceiling.html?searchResultPo
 https://nytimes.com/2023/05/26/business/economy/consumer-spending-april.html?searchResultPosition=4
 
 **More and More Teenagers Are Coming to School High, N.Y.C. Teachers Say**\
-`Students and teachers said in interviews that some classrooms were in disarray as more and younger students were smoking at school.`\
+`Students and teachers said in interviews that some classrooms were in disarray as more and younger students were smoking marijuana at school.`\
 https://nytimes.com/2023/05/26/nyregion/nyc-marijuana-kids-schools.html?searchResultPosition=5
 
 **How Much Watching Time Do You Have This Weekend?**\
