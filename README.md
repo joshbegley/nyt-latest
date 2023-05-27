@@ -30,8 +30,8 @@ https://nytimes.com/2023/05/27/us/politics/kamala-harris-west-point-commencement
 `The streaming company had said it was looking for ways to increase revenue. And one way was to make more people pay for the service.`\
 https://nytimes.com/2023/05/27/business/media/netflix-streaming-password.html?searchResultPosition=8
 
-**Hard-Right Republicans Gird for ‘War’ on Debt Ceiling Deal**\
-`As a top negotiator said an agreement was “hours or days” away, an ultraconservative group of lawmakers harshly criticized its emerging contours.`\
+**Biden and McCarthy Speak by Phone as They Push to Cement Debt Limit Deal**\
+`A top Republican negotiator said an agreement was “hours or days” away, as an ultraconservative group of lawmakers harshly criticized its emerging contours.`\
 https://nytimes.com/2023/05/27/us/politics/debt-ceiling-republicans.html?searchResultPosition=9
 
 **Who is Nate Paul, the donor at the center of the case?**\
