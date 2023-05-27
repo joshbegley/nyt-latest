@@ -1,6 +1,6 @@
 **What Carmelo Anthony Meant to New York City**\
 `Anthony, a Brooklyn native, rejuvenated a beleaguered Knicks fan base and embraced the city’s culture, on and off the court.`\
-https://nytimes.com/2023/05/27/sports/basketball/what-carmelo-anthony-meant-to-new-york-city.html?searchResultPosition=1
+https://nytimes.com/2023/05/27/sports/basketball/carmelo-anthony-nyc.html?searchResultPosition=1
 
 **Taylor Swift’s Eras Tour Touches Down in New Jersey**\
 `The pop megastar’s first of three shows at MetLife Stadium featured an appearance from the rising rapper Ice Spice, a fan-favorite song and loads of sequins.`\
