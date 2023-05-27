@@ -22,19 +22,19 @@ https://nytimes.com/2023/05/27/business/media/netflix-streaming-password.html?se
 `As a top negotiator said an agreement was “hours or days” away, an ultraconservative group of lawmakers harshly criticized its emerging contours.`\
 https://nytimes.com/2023/05/27/us/politics/debt-ceiling-republicans.html?searchResultPosition=6
 
+**Who is Nate Paul, the donor at the center of the case?**\
+`The real estate developer’s appeal for help from the Texas attorney general is under scrutiny.`\
+https://nytimes.com/2023/05/27/us/politics/nate-paul-ken-paxton-texas-impeachment.html?searchResultPosition=7
+
 **Biden Administration Announces Indo-Pacific Deal, Clashing With Industry Groups**\
 `The United States announced a deal to coordinate supply chains with allies, but prominent business groups said the deal fell short on reducing tariffs and other trade barriers.`\
-https://nytimes.com/2023/05/27/business/economy/biden-indo-pacific-trade-deal.html?searchResultPosition=7
+https://nytimes.com/2023/05/27/business/economy/biden-indo-pacific-trade-deal.html?searchResultPosition=8
 
 **Trump calls impeachment proceedings against Ken Paxton ‘very unfair.’**\
 `The former president took to social media to weigh in on the events in Texas.`\
-https://nytimes.com/2023/05/27/us/politics/trump-paxton-impeachment.html?searchResultPosition=8
+https://nytimes.com/2023/05/27/us/politics/trump-paxton-impeachment.html?searchResultPosition=9
 
 **Ingrid Haebler, Pianist Known for Her Mastery of Mozart, Is Dead**\
 `In concerts and on dozens of recordings, she applied a delicate touch that critics said set her apart from other performers.`\
-https://nytimes.com/2023/05/27/arts/music/ingrid-haebler-dead.html?searchResultPosition=9
-
-**What Carmelo Anthony Meant to New York City**\
-`Anthony, a Brooklyn native, rejuvenated a beleaguered Knicks fan base and embraced the city’s culture, on and off the court.`\
-https://nytimes.com/2023/05/27/sports/basketball/carmelo-anthony-nyc.html?searchResultPosition=10
+https://nytimes.com/2023/05/27/arts/music/ingrid-haebler-dead.html?searchResultPosition=10
 
