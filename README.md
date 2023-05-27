@@ -1,5 +1,5 @@
-**What to know about the whistle-blowers who accused Paxton of wrongdoing.**\
-`By Edgar Sandoval`\
+**What to know about the whistle-blowers who accused Ken Paxton of wrongdoing.**\
+`Four former employees and allies of the Texas attorney general joined forces to file a lawsuit in 2020.`\
 https://nytimes.com/2023/05/27/us/politics/texas-whistleblowers-ken-paxton.html?searchResultPosition=1
 
 **U-Haul**\
