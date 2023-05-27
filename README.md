@@ -10,7 +10,7 @@ https://nytimes.com/2023/05/26/us/ken-paxton-texas.html?searchResultPosition=2
 `The appeals for endorsements from lawmakers and donations from lobbyists, which were described by several people familiar with the outreach, blur the line between the governor’s administration and his campaign.`\
 https://nytimes.com/2023/05/26/us/politics/desantis-florida-donations.html?searchResultPosition=3
 
-**The ‘Succession’ Finale Is Almost Here. Will They Get It Right?**\
+**Why TV Finales Matter (And Why They Are So Hard to Get Right)**\
 `There’s a reason great TV endings are often the most elusive endings of all.`\
 https://nytimes.com/2023/05/26/opinion/contributors/succession-finale-ending.html?searchResultPosition=4
 
