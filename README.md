@@ -1,40 +1,40 @@
-**Ukrainian Soldiers Have Started Training on U.S. Abrams Tanks, Pentagon Says**\
-`Defense Department officials had previously said that about 31 tanks would be sent to Germany to be used in a training program that is expected to take 10 to 12 weeks.`\
-https://nytimes.com/2023/05/27/world/europe/ukraine-tanks-counteroffensive.html?searchResultPosition=1
+**Why New York City’s Lifeguard Shortage Is Even Worse This Year**\
+`Despite pay increases and efforts to simplify the notoriously difficult swim test, New York’s lifeguard shortage is dire. The city says the lifeguard unions are partly to blame.`\
+https://nytimes.com/2023/05/27/nyregion/nyc-lifeguard-shortage-unions.html?searchResultPosition=1
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/05/27/crosswords/wordle-review-answer-707.html?searchResultPosition=2
+**For These Veterans, ‘Free’ Health Care Is a 5-Hour Flight Away**\
+`With health services lacking at home, many veterans from three Pacific Island nations end up paying to use the subsidized, or in many cases free, care they have earned.`\
+https://nytimes.com/2023/05/27/world/asia/micronesia-veterans-health-care.html?searchResultPosition=2
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/05/27/crosswords/spelling-bee-forum.html?searchResultPosition=3
+**What’s the Deal With Men?**\
+`In his new essay collection, “The Male Gazed,” the writer and film critic Manuel Betancourt explores society’s portrayals of masculinity.`\
+https://nytimes.com/2023/05/27/books/review/the-male-gazed-manuel-betancourt.html?searchResultPosition=3
 
-**Corrections: May 27, 2023**\
-`Corrections that appeared in print on Saturday, May 27, 2023.`\
-https://nytimes.com/2023/05/27/pageoneplus/corrections-may-27-2023.html?searchResultPosition=4
+**German Plan Would Ease Path to Citizenship, but Not Without a Fight**\
+`Months of wrangling over a new law have Germans asking a fundamental question: Are we a country of immigrants?`\
+https://nytimes.com/2023/05/27/world/europe/german-citizenship-changes.html?searchResultPosition=4
 
-**Quotation of the Day: More and More Teenagers Are Coming to School High, Teachers Say**\
-`Quotation of the Day for Saturday, May 27, 2023.`\
-https://nytimes.com/2023/05/27/pageoneplus/quotation-of-the-day-more-and-more-teenagers-are-coming-to-school-high-teachers-say.html?searchResultPosition=5
+**Top 10 Hardest and Easiest Spelling Bee Words, May 20-26**\
+`Were you “blocked” from reaching Queen Bee?`\
+https://nytimes.com/2023/05/27/upshot/spelling-bee-words.html?searchResultPosition=5
 
-**Read the document**\
-`The 20 articles of impeachment against the Texas attorney general.`\
-https://nytimes.com/interactive/2023/05/27/us/27paxton-articles-of-impeachment-document.html?searchResultPosition=6
+**Finding Pain and Nobility in Everyday Americans**\
+`With a retrospective in Philadelphia, Judith Joy Ross is still seeking to capture a mysterious moment.`\
+https://nytimes.com/2023/05/27/arts/design/04judith-joy-ross-arts-leisure.html?searchResultPosition=6
 
-**It’s a Treat**\
-`Samuel Smalley’s debut puzzle makes for a wild ride!`\
-https://nytimes.com/2023/05/26/crosswords/daily-puzzle-2023-05-27.html?searchResultPosition=7
+**It’s ‘More Expensive to Live,’ and Workers Are Cracing 401(k)s for Help**\
+`Retirement plan administrators are noting an uptick in hardship withdrawals. But taking that money out can harm your future financial security.`\
+https://nytimes.com/2023/05/27/business/401k-hardship-withdrawals-retirement.html?searchResultPosition=7
 
-**DeSantis Steps Up Attacks on Trump, Hitting Him on Crime and Covid**\
-`Gov. Ron DeSantis of Florida vowed to repeal the First Step Act, a Trump-era criminal justice law, if elected president. He called it “basically a jailbreak bill.”`\
-https://nytimes.com/2023/05/26/us/politics/desantis-trump-crime-covid.html?searchResultPosition=8
+**Yellen’s Debt Limit Warnings Went Unheeded, Leaving Her to Face Fallout**\
+`The Treasury secretary, who considered ways to contain the fallout of a default when she was a Fed official in 2011, had urged Democrats to raise the limit while they still had control of Congress.`\
+https://nytimes.com/2023/05/27/us/politics/yellen-debt-limit.html?searchResultPosition=8
 
-**How Fighting for Conservative Causes Has Helped Ken Paxton Survive Legal Woes**\
-`With the Texas House set to vote on his impeachment, Mr. Paxton is counting on political support that he’s amassed as a Republican legal firebrand.`\
-https://nytimes.com/2023/05/26/us/ken-paxton-texas.html?searchResultPosition=9
+**Reparations Are a Financial Quandary. For Democrats, They’re a Political One, Too.**\
+`Republicans have criticized recent estimates of what Black Americans are owed in reparations. But for Democrats, they pose deeper problems for a party eager to retain the allegiance of Black voters.`\
+https://nytimes.com/2023/05/27/us/politics/reparations-democrats-black-americans.html?searchResultPosition=9
 
-**DeSantis’s Administration Solicits Endorsements and Money for His Campaign**\
-`The appeals for endorsements from lawmakers and donations from lobbyists, which were described by several people familiar with the outreach, blur the line between the governor’s administration and his campaign.`\
-https://nytimes.com/2023/05/26/us/politics/desantis-florida-donations.html?searchResultPosition=10
+**Missteps and Miscalculations: Inside Fox’s Legal and Business Debacle**\
+`Fox’s handling of the defamation suit brought by Dominion Voting Systems, which settled for $787.5 million, left many unanswered questions.`\
+https://nytimes.com/2023/05/27/business/media/fox-news-dominion-voting.html?searchResultPosition=10
 
