@@ -31,7 +31,7 @@ https://nytimes.com/2023/05/27/world/europe/russia-putin-ukraine-war.html?search
 https://nytimes.com/2023/05/27/nyregion/nyc-lifeguard-shortage-unions.html?searchResultPosition=8
 
 **For These Veterans, ‘Free’ Health Care Is a 5-Hour Flight Away**\
-`With health services lacking at home, many veterans from three Pacific Island nations end up paying to use the subsidized, or in many cases free, care they have earned.`\
+`Citizens of three Pacific Island nations, eligible to serve in the U.S. military, find it hard to make use of the health benefits they have earned.`\
 https://nytimes.com/2023/05/27/world/asia/micronesia-veterans-health-care.html?searchResultPosition=9
 
 **What’s the Deal With Men?**\
