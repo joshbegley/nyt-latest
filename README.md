@@ -1,5 +1,5 @@
 **White House and G.O.P. Strike Debt Limit Deal to Avert Default**\
-`With the government on track to reach its borrowing limit within days, negotiators sealed an agreement in principle to raise the debt ceiling for two years while cutting and capping certain federal programs.`\
+`With the government on track to reach its borrowing limit within days, negotiators sealed an agreement to raise the debt ceiling for two years while cutting and capping certain federal programs.`\
 https://nytimes.com/2023/05/27/us/politics/debt-limit-deal.html?searchResultPosition=1
 
 **What to know about the whistle-blowers who accused Ken Paxton of wrongdoing.**\
