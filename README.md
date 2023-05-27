@@ -35,6 +35,6 @@ https://nytimes.com/2023/05/27/us/politics/kamala-harris-west-point-commencement
 https://nytimes.com/2023/05/27/business/media/netflix-streaming-password.html?searchResultPosition=9
 
 **Biden and McCarthy Speak by Phone as They Push to Cement Debt Limit Deal**\
-`A top Republican negotiator said an agreement was “hours or days” away, as an ultraconservative group of lawmakers harshly criticized its emerging contours.`\
+`Earlier, a top Republican negotiator said an agreement was “hours or days” away, as an ultraconservative group of lawmakers harshly criticized its emerging contours.`\
 https://nytimes.com/2023/05/27/us/politics/debt-ceiling-republicans.html?searchResultPosition=10
 
