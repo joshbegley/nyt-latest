@@ -34,7 +34,7 @@ https://nytimes.com/2023/05/27/podcasts/listen-early-to-this-american-life-jane-
 `It’s Memorial Day Weekend, the start of summer, ready or not.`\
 https://nytimes.com/2023/05/27/briefing/summers-unofficial-start-memorial-day.html?searchResultPosition=9
 
-**¡Qué Vaina! What Flavor of Spanish Do You Speak?**\
+**The Newest Immigrants Will Change American Spanish. That’s a Good Thing.**\
 `Venezuelans are but the latest wave of migrants to invigorate American Spanish.`\
 https://nytimes.com/2023/05/27/opinion/american-spanish-language.html?searchResultPosition=10
 
