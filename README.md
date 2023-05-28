@@ -8,7 +8,7 @@ https://nytimes.com/2023/05/28/opinion/gop-masculinity-twitter-hawley.html?searc
 
 **Beyond the ‘Matrix’ Theory of the Human Mind**\
 `To make good on its promise, artificial intelligence needs to deepen human intelligence.`\
-https://nytimes.com/2023/05/28/opinion/artifical-intelligence-thinking-minds-concentration.html?searchResultPosition=3
+https://nytimes.com/2023/05/28/opinion/artificial-intelligence-thinking-minds-concentration.html?searchResultPosition=3
 
 **Tim Keller Showed Me What a Christian Leader Should Be**\
 `A pastor who truly loved his neighbors, even across deep divides.`\
