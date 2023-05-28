@@ -23,7 +23,7 @@ https://nytimes.com/2023/05/28/opinion/artificial-intelligence-thinking-minds-co
 https://nytimes.com/2023/05/28/opinion/tim-keller-appreciation-christianity.html?searchResultPosition=6
 
 **Can Formula 1’s Season Still Take a Turn?**\
-`Max Verstappen raced to the front in qualifying again, with Fernando Alonso right behind as usual, but danger is never far away on a tight Monaco circuit.`\
+`Max Verstappen raced to the front in qualifying, with Fernando Alonso right behind, but danger is never far away on a tight Monaco circuit.`\
 https://nytimes.com/2023/05/28/sports/autoracing/monaco-grand-prix-results.html?searchResultPosition=7
 
 **​Tennessee Law Sows Fear Among Drag Performers Ahead of Pride Month**\
