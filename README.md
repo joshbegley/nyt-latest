@@ -26,8 +26,8 @@ https://nytimes.com/2023/05/28/opinion/artificial-intelligence-thinking-minds-co
 `A pastor who truly loved his neighbors, even across deep divides.`\
 https://nytimes.com/2023/05/28/opinion/tim-keller-appreciation-christianity.html?searchResultPosition=7
 
-**Can Formula 1’s Season Still Take a Turn?**\
-`Max Verstappen raced to the front in qualifying, with Fernando Alonso right behind, but danger is never far away on a tight Monaco circuit.`\
+**Will Formula 1’s Season Take a Turn in Monaco?**\
+`Max Verstappen raced to the front in qualifying, with Fernando Alonso right behind, but danger is never far away on a tight downtown circuit.`\
 https://nytimes.com/2023/05/28/sports/autoracing/monaco-grand-prix-results.html?searchResultPosition=8
 
 **​Tennessee Law Sows Fear Among Drag Performers Ahead of Pride Month**\
