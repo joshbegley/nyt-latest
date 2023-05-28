@@ -2,13 +2,13 @@
 `Nothing delights the MAGA king more than curb-stomping the weak. Where does the Republican Party go from here?`\
 https://nytimes.com/2023/05/28/opinion/desantis-trump-2024.html?searchResultPosition=1
 
-**Beyond the ‘Matrix’ Theory of the Human Mind**\
-`To make good on its promise, artificial intelligence needs to deepen human intelligence.`\
-https://nytimes.com/2023/05/28/opinion/artificial-intelligence-thinking-minds-concentration.html?searchResultPosition=2
-
 **The Right Is All Wrong About Masculinity**\
 `Shrieking on Twitter is not a masculine virtue.`\
-https://nytimes.com/2023/05/28/opinion/gop-masculinity-twitter-hawley.html?searchResultPosition=3
+https://nytimes.com/2023/05/28/opinion/gop-masculinity-twitter-hawley.html?searchResultPosition=2
+
+**Beyond the ‘Matrix’ Theory of the Human Mind**\
+`To make good on its promise, artificial intelligence needs to deepen human intelligence.`\
+https://nytimes.com/2023/05/28/opinion/artificial-intelligence-thinking-minds-concentration.html?searchResultPosition=3
 
 **Tim Keller Showed Me What a Christian Leader Should Be**\
 `A pastor who truly loved his neighbors, even across deep divides.`\
