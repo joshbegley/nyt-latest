@@ -1,5 +1,5 @@
-**Everton Survived. But for How Long?**\
-`A win on the final day of the season kept Everton in the Premier League and relegated Leicester and Leeds. But those results, sadly, are subject to change.`\
+**Everton Saved Its Premier League Status. But for How Long?**\
+`A win on the final day of the season kept Everton in the league and relegated Leicester and Leeds. But those results may be subject to change.`\
 https://nytimes.com/2023/05/28/sports/soccer/everton-premier-league-leeds-leicester.html?searchResultPosition=1
 
 **With Debt Limit Deal in Hand, McCarthy and Biden Turn to Task of Selling It**\
