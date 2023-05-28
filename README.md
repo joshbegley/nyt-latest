@@ -14,7 +14,7 @@ https://nytimes.com/2023/05/28/world/asia/india-parliament.html?searchResultPosi
 `Leaders from both parties have reached an agreement.`\
 https://nytimes.com/2023/05/28/briefing/debt-limit.html?searchResultPosition=4
 
-**Holding Out for a Hero in the G.O.P.**\
+**The Chris Christie Scenario**\
 `Nothing delights the MAGA king more than curb-stomping the weak. Where does the Republican Party go from here?`\
 https://nytimes.com/2023/05/28/opinion/desantis-trump-2024.html?searchResultPosition=5
 
