@@ -1,6 +1,6 @@
 **Josef Newgarden Wins Indianapolis 500**\
 `Newgarden, the two-time IndyCar series champion, won his first career Indy 500 after a late sprint. He passed last year’s winner, Marcus Ericsson, who disagreed with the restart procedure.`\
-https://nytimes.com/2023/05/28/sports/autoracing/josef-newgarden-wins-indianapolis-500.html?searchResultPosition=1
+https://nytimes.com/2023/05/28/sports/autoracing/indy-500-josef-newgarden.html?searchResultPosition=1
 
 **With New Voting Bills, Texas Legislature Targets Elections in Democratic Stronghold**\
 `The bills’ passage was the culmination of a Republican effort to increase oversight of voting in Harris County, which includes Houston.`\
