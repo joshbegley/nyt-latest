@@ -10,8 +10,8 @@ https://nytimes.com/2023/05/28/pageoneplus/editors-note-may-28-2023.html?searchR
 `Details are trickling out about the accord that could avert a default on the national debt. Here’s what to know.`\
 https://nytimes.com/2023/05/28/us/politics/debt-ceiling-deal-takeaways.html?searchResultPosition=3
 
-**Russian Attack Leaves at Least 1 Dead in Kyiv**\
-`A person was killed by falling debris from an intercepted drone. Ukraine said it shot down more than 40 drones, the largest attack on Kyiv since the start of the war.`\
+**Deadly Night for Kyiv in Largest Drone Attack of War**\
+`Debris from an intercepted drone killed a man overnight Saturday as Ukraine said it shot down more than 40 drones over the capital.`\
 https://nytimes.com/2023/05/27/world/europe/russian-drone-death-kyiv.html?searchResultPosition=4
 
 **White House and G.O.P. Strike Debt Limit Deal to Avert Default**\
