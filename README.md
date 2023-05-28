@@ -34,7 +34,7 @@ https://nytimes.com/2023/05/28/opinion/artificial-intelligence-thinking-minds-co
 `A pastor who truly loved his neighbors, even across deep divides.`\
 https://nytimes.com/2023/05/28/opinion/tim-keller-appreciation-christianity.html?searchResultPosition=9
 
-**Will Formula 1’s Season Take a Turn in Monaco?**\
-`Max Verstappen raced to the front in qualifying, with Fernando Alonso right behind, but danger is never far away on a tight downtown circuit.`\
+**Verstappen Rules in Monaco’s Rain**\
+`Red Bull’s Max Verstappen raced to the front and then held his cool through a few frantic laps to cruise to his fourth win of the Formula 1 season.`\
 https://nytimes.com/2023/05/28/sports/autoracing/monaco-grand-prix-results.html?searchResultPosition=10
 
