@@ -1,6 +1,6 @@
 **With Debt Limit Deal in Hand, McCarthy and Biden Turn to Task of Selling It**\
 `With the right and the left up in arms about the agreement in principle reached by the president and the speaker, both sides started to make the case for its quick passage, a tall order in Congress.`\
-https://nytimes.com/2023/05/28/us/politics/debt-ceiling-deal.html?searchResultPosition=1
+https://nytimes.com/2023/05/28/us/politics/debt-ceiling-deal-biden-mccarthy.html?searchResultPosition=1
 
 **Henry Threadgill’s Musical Spring Is Varied and Extreme. Like He Is.**\
 `The Pulitzer Prize-winning composer has released a memoir, “Easily Slip Into Another World,” and a new album, “The Other One.”`\
