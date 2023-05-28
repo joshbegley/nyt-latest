@@ -3,7 +3,7 @@
 https://nytimes.com/2023/05/28/us/politics/debt-ceiling-deal-takeaways.html?searchResultPosition=1
 
 **Russian Attack Leaves at Least 1 Dead in Kyiv**\
-`A 41-year-old man was killed by falling debris from an intercepted drone, in what appears to be the first deadly strike this month on the capital, part of near-nightly assaults.`\
+`A person was killed by falling debris from an intercepted drone. Ukraine said it shot down more than 40 drones, the largest attack on Kyiv since the start of the war.`\
 https://nytimes.com/2023/05/27/world/europe/russian-drone-death-kyiv.html?searchResultPosition=2
 
 **White House and G.O.P. Strike Debt Limit Deal to Avert Default**\
