@@ -1,6 +1,6 @@
 **Russian Attack Leaves at Least 1 Dead in Kyiv**\
-`The person was killed by falling debris from an intercepted drone. It appears to be the first deadly strike this month on the capital, part of near-nightly assaults.`\
-https://nytimes.com/2023/05/27/world/europe/russian-attack-death-kyiv.html?searchResultPosition=1
+`A 41-year-old man was killed by falling debris from an intercepted drone, in what appears to be the first deadly strike this month on the capital, part of near-nightly assaults.`\
+https://nytimes.com/2023/05/27/world/europe/russian-drone-death-kyiv.html?searchResultPosition=1
 
 **White House and G.O.P. Strike Debt Limit Deal to Avert Default**\
 `With the government on track to reach its borrowing limit within days, negotiators sealed an agreement to raise the debt ceiling for two years while cutting and capping certain federal programs.`\
