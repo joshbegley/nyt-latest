@@ -1,40 +1,40 @@
+**In Third Place but Armed for a Run at the Top**\
+`The Yankees held steady as their starting rotation got healthy. With Luis Severino back, and Carlos Rodón on the way, there is reason to expect brighter days ahead.`\
+https://nytimes.com/2023/05/29/sports/baseball/yankees-rotation.html?searchResultPosition=1
+
+**Alberta’s Vote Will Test American-style Far-Right Politics**\
+`An election in Alberta will be a test of a premier who has said that she models her politics after those of prominent right-wing U.S. politicians.`\
+https://nytimes.com/2023/05/29/world/canada/alberta-election-canada.html?searchResultPosition=2
+
+**An Influencer With a Mission: Supporting New York Restaurants**\
+`For Jaeki Cho’s Righteous Eats, food is the hook, but the social media series is really a platform to celebrate the people who make up one of the world’s most diverse cities.`\
+https://nytimes.com/2023/05/29/nyregion/righteous-eats-social-media-restaurants-new-york-tiktok.html?searchResultPosition=3
+
+**A Provocative Satirist Left a Pervasive Legacy, Influencing African Writing**\
+`Binyavanga Wainaina attacked insulting clichés in the essay, “How to Write About Africa,” in 2005. In a posthumous collection of the same name, his range as a writer is on display.`\
+https://nytimes.com/2023/05/29/books/binyavanga-wainaina-how-to-write-about-africa.html?searchResultPosition=4
+
+**Women’s Tennis Suddenly Has a Big(ish) Three**\
+`Iga Swiatek, Elena Rybakina and Aryna Sabalenka have been winning just about everything important lately, emerging as a potential triumvirate unseen in the women’s game for about a decade.`\
+https://nytimes.com/2023/05/29/sports/tennis/french-open-women.html?searchResultPosition=5
+
+**Ukraine Sees New Virtue in Wind Power: It’s Harder to Destroy**\
+`Bombarding the power grid has been an essential part of Russia’s invasion, but officials say it would take many more missile strikes to badly damage a wind farm than a power plant.`\
+https://nytimes.com/2023/05/29/world/europe/ukraine-russia-wind-power.html?searchResultPosition=6
+
 **Will Erdogan’s Victory Soften Turkey’s Opposition to Sweden in NATO?**\
 `Recep Tayyip Erdogan, re-elected as Turkey’s president, is expected to toughen up at home but seek better ties with Washington and ratify Swedish membership of the military alliance.`\
-https://nytimes.com/2023/05/29/world/europe/erdogan-turkey-sweden-nato.html?searchResultPosition=1
+https://nytimes.com/2023/05/29/world/europe/erdogan-turkey-sweden-nato.html?searchResultPosition=7
 
 **In Tokyo, Skipping the Hot and New for Enduring Haunts**\
 `Using a guidebook published more than 20 years ago, a writer searches out the bars and restaurants that express the city’s traditional eating and drinking culture.`\
-https://nytimes.com/2023/05/29/travel/tokyo-restaurants-bars-guide.html?searchResultPosition=2
+https://nytimes.com/2023/05/29/travel/tokyo-restaurants-bars-guide.html?searchResultPosition=8
 
 **With Mpox at Risk of Flaring, Health Officials Advise, ‘Get Vaccinated’**\
 `Cases dropped after a successful public health campaign last summer. But the disease still has a low-level presence in the city, and many people remain at risk.`\
-https://nytimes.com/2023/05/29/nyregion/mpox-cases-nyc.html?searchResultPosition=3
+https://nytimes.com/2023/05/29/nyregion/mpox-cases-nyc.html?searchResultPosition=9
 
 **A Small Town’s Tragedy, Distorted by Trump’s Megaphone**\
 `When a teen’s killing became a right-wing talking point, the rush to outrage obscured a more complicated story.`\
-https://nytimes.com/2023/05/29/us/politics/north-dakota-teen-death-right-wing-trump.html?searchResultPosition=4
-
-**Why Spending Cuts Likely Won’t Shake the Economy**\
-`With low unemployment and above-trend inflation, the economy is well positioned to absorb the modest budget cuts that President Biden and Republicans negotiated.`\
-https://nytimes.com/2023/05/29/us/politics/debt-ceiling-economy.html?searchResultPosition=5
-
-**How Hard Will It Be for DeSantis to Beat Trump? Nixon vs. Reagan in 1968 Offers a Clue.**\
-`If Nixon 1968 is any guide, Trump will be very tough to beat.`\
-https://nytimes.com/2023/05/29/opinion/trump-desantis-nixon-reagan.html?searchResultPosition=6
-
-**Five Takeaways From Turkey’s Presidential Election**\
-`Crises including earthquakes and inflation did not stop the re-election of President Recep Tayyip Erdogan. The vote was seen as free but not fair, as he used his power to tilt the playing field.`\
-https://nytimes.com/2023/05/29/world/middleeast/turkey-election-takeaways.html?searchResultPosition=7
-
-**The Supreme Court Is Crippling Environmental Protections. Where Is Congress?**\
-`Will lawmakers allow what one justice called the court’s “appointment of itself as the national decision maker on environmental policy”?`\
-https://nytimes.com/2023/05/29/opinion/supreme-court-congress-environment.html?searchResultPosition=8
-
-**The Mystery of the Disappearing van Gogh**\
-`After a painting by the Dutch artist sold at auction, a movie producer claimed to be the owner. It later vanished from sight, with a trail leading to Caribbean tax havens and a jailed Chinese billionaire.`\
-https://nytimes.com/2023/05/29/world/asia/van-gogh-china-buyer.html?searchResultPosition=9
-
-**They Fought for the U.S. in Afghanistan. Now They’re Waiting for Asylum.**\
-`Members of the Afghan Army’s all-female platoon are some of the roughly 70,000 Afghans living in the United States whose temporary status has left them with an uncertain future.`\
-https://nytimes.com/2023/05/29/us/afghan-war-refugees.html?searchResultPosition=10
+https://nytimes.com/2023/05/29/us/politics/north-dakota-teen-death-right-wing-trump.html?searchResultPosition=10
 
