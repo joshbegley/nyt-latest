@@ -7,7 +7,7 @@ https://nytimes.com/2023/05/29/opinion/letters/breast-cancer-screening.html?sear
 https://nytimes.com/2023/05/29/briefing/memorial-day.html?searchResultPosition=2
 
 **Spanish Prime Minister Calls Snap Election for July**\
-`Pedro Sánchez made the announcement after his Socialist Workers’ Party suffered defeats in regional and local elections over the weekend.`\
+`Pedro Sánchez, who leads a fragile coalition government, made the announcement after his liberal party lost ground to conservatives in regional and local elections over the weekend.`\
 https://nytimes.com/2023/05/29/world/europe/spain-snap-election.html?searchResultPosition=3
 
 **She Said Her Professor Sexually Harassed Her. His Wife Won Damages.**\
