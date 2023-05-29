@@ -11,7 +11,7 @@ https://nytimes.com/video/world/middleeast/100000008928156/erdogan-turkey-electi
 https://nytimes.com/2023/05/29/dining/let-peak-produce-do-the-heavy-lifting.html?searchResultPosition=3
 
 **New Details in Debt Limit Deal: Where $136 Billion in Cuts Will Come From**\
-`Spending caps, additional work requirements for food stamps and a new natural gas pipeline are just several of the components.`\
+`Two years of spending caps, additional work requirements for food stamps and cuts to I.R.S. funding are among the components in the deal.`\
 https://nytimes.com/2023/05/29/business/debt-ceiling-agreement.html?searchResultPosition=4
 
 **Club Ebony, a Historic Blues Venue Tied to B.B. King, Rises Again**\
