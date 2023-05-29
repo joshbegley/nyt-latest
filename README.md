@@ -14,7 +14,7 @@ https://nytimes.com/2023/05/29/world/asia/japan-sexual-harassment-women.html?sea
 `The Yankees held steady as their starting rotation got healthy. With Luis Severino back, and Carlos Rodón on the way, there is reason to expect brighter days ahead.`\
 https://nytimes.com/2023/05/29/sports/baseball/yankees-rotation.html?searchResultPosition=4
 
-**Alberta’s Vote Will Test American-style Far-Right Politics**\
+**Alberta’s Vote Will Test American-Style Far-Right Politics**\
 `An election in Alberta will be a test of a premier who has said that she models her politics after those of prominent right-wing U.S. politicians.`\
 https://nytimes.com/2023/05/29/world/canada/alberta-election-canada.html?searchResultPosition=5
 
