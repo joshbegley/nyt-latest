@@ -10,7 +10,7 @@ https://nytimes.com/video/world/middleeast/100000008928156/erdogan-turkey-electi
 `Whole roasted red peppers are a vibrant meatless main, and tender lettuces are tossed in an onion-dip dressing.`\
 https://nytimes.com/2023/05/29/dining/let-peak-produce-do-the-heavy-lifting.html?searchResultPosition=3
 
-**New Details in Debt Limit Deal: Where Roughly $136 Billion in Cuts Will Come From**\
+**New Details in Debt Limit Deal: Where $136 Billion in Cuts Will Come From**\
 `Spending caps, additional work requirements for food stamps and a new natural gas pipeline are just several of the components.`\
 https://nytimes.com/2023/05/29/business/debt-ceiling-agreement.html?searchResultPosition=4
 
