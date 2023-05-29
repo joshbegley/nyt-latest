@@ -1,40 +1,40 @@
+**What’s on TV This Week: ‘The Idol’ and ‘Dave’**\
+`HBO premieres its new series from the creator of “Euphoria,” and the show starring Lil Dicky wraps up.`\
+https://nytimes.com/2023/05/29/arts/television/whats-on-tv-this-week-the-idol-and-dave.html?searchResultPosition=1
+
 **Who Was Bill Wambsganss, and Was He a ‘Succession’ Spoiler?**\
 `In the HBO series finale, Tom Wambsgans beat out three competitors at once, just like the Cleveland second baseman who turned the only unassisted triple play in World Series history.`\
-https://nytimes.com/2023/05/29/sports/baseball/tom-bill-wambsganss-succession.html?searchResultPosition=1
+https://nytimes.com/2023/05/29/sports/baseball/tom-bill-wambsganss-succession.html?searchResultPosition=2
 
 **The Miami Heat Are on the Brink of Bad History**\
 `No N.B.A. team has lost a best-of-seven playoff series after winning the first three games, but the Heat are one loss from being the first.`\
-https://nytimes.com/2023/05/29/sports/basketball/miami-heat-boston-celtics-blow-series-lead.html?searchResultPosition=2
+https://nytimes.com/2023/05/29/sports/basketball/miami-heat-boston-celtics-blow-series-lead.html?searchResultPosition=3
 
 **Your Monday Briefing**\
 `Erdogan’s victory in Turkey.`\
-https://nytimes.com/2023/05/28/briefing/erdogan-turkey-asylum-wagner-biden.html?searchResultPosition=3
+https://nytimes.com/2023/05/28/briefing/erdogan-turkey-asylum-wagner-biden.html?searchResultPosition=4
 
 **‘Succession’ Series Finale Recap: The Dotted Line**\
 `Who won? Who lost? Who was left staring off into the sea?`\
-https://nytimes.com/2023/05/28/arts/television/succession-series-finale-recap.html?searchResultPosition=4
+https://nytimes.com/2023/05/28/arts/television/succession-series-finale-recap.html?searchResultPosition=5
 
 **Sarah Goldberg on the ‘Barry’ Finale and Bad Decisions**\
 `‘It was definitely a comedy when we started,” the actress said. But in the end, it “was a morality tale” about the choices that make us who we are.`\
-https://nytimes.com/2023/05/28/arts/television/sarah-goldberg-barry-series-finale.html?searchResultPosition=5
+https://nytimes.com/2023/05/28/arts/television/sarah-goldberg-barry-series-finale.html?searchResultPosition=6
 
 **In the ‘Barry’ Finale, Hollywood Gets Away with Murder**\
 `Bill Hader’s dark comedy made the culture of violence and the culture of showbiz into collaborators.`\
-https://nytimes.com/2023/05/28/arts/television/barry-finale.html?searchResultPosition=6
+https://nytimes.com/2023/05/28/arts/television/barry-finale.html?searchResultPosition=7
 
 **‘Succession’ Is Over. Why Did We Care?**\
 `For five years, the series and the question of who would end up in charge captivated a chatty swath of the TV audience. But did anyone really win in the end?`\
-https://nytimes.com/2023/05/28/arts/television/succession-finale.html?searchResultPosition=7
+https://nytimes.com/2023/05/28/arts/television/succession-finale.html?searchResultPosition=8
 
 **After Death of Girl, 6, Mother Faces Charges Over Surviving Children**\
 `Jalayah Eason was found bruised and unconscious in the Bronx. Her mother has been charged with endangering the welfare of her surviving son and daughter.`\
-https://nytimes.com/2023/05/28/nyregion/jalayah-eason-death-bronx.html?searchResultPosition=8
+https://nytimes.com/2023/05/28/nyregion/jalayah-eason-death-bronx.html?searchResultPosition=9
 
 **Josef Newgarden Wins Indianapolis 500**\
 `Newgarden, the two-time IndyCar series champion, won his first career Indy 500 after a late sprint. He passed last year’s winner, Marcus Ericsson, who disagreed with the restart procedure.`\
-https://nytimes.com/2023/05/28/sports/autoracing/josef-newgarden-wins-indianapolis-500.html?searchResultPosition=9
-
-**With New Voting Bills, Texas Legislature Targets Elections in Democratic Stronghold**\
-`The bills’ passage was the culmination of a Republican effort to increase oversight of voting in Harris County, which includes Houston.`\
-https://nytimes.com/2023/05/28/us/texas-voting-laws-harris-county.html?searchResultPosition=10
+https://nytimes.com/2023/05/28/sports/autoracing/josef-newgarden-wins-indianapolis-500.html?searchResultPosition=10
 
