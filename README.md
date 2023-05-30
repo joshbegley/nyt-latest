@@ -6,7 +6,7 @@ https://nytimes.com/2023/05/29/world/europe/russia-ukraine-kyiv-strikes.html?sea
 `The Heat are just the second eighth seed to reach the N.B.A. championship series. They beat Boston, the No. 2 seed, in the Eastern Conference finals.`\
 https://nytimes.com/2023/05/29/sports/basketball/miami-heat-boston-celtics.html?searchResultPosition=2
 
-**Nine People Wounded in Memorial Day Shooting Near Florida Beach**\
+**9 People Wounded in Memorial Day Shooting Near Florida Beach**\
 `Gunfire erupted in a dispute between two groups at the Hollywood Beach Broadwalk, as crowds strolled by the stretch of beachfront near shops, restaurants and hotels.`\
 https://nytimes.com/2023/05/29/us/hollywood-boardwalk-shooting-florida.html?searchResultPosition=3
 
