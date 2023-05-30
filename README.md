@@ -19,7 +19,7 @@ https://nytimes.com/2023/05/30/opinion/turkey-election-erdogan-trump.html?search
 https://nytimes.com/2023/05/30/us/politics/taiwan-ambassador-ukraine-china.html?searchResultPosition=5
 
 **North Korean Rocket Triggers ‘False-Alarm’ Evacuation Order in South Korea**\
-`The North has said its space rocket will carry a spy satellite, the country’s first, that will allow it to watch its enemies in the region more closely.`\
+`The North has said its space rocket will carry a spy satellite, the country’s first, allowing it to watch its enemies in the region more closely.`\
 https://nytimes.com/2023/05/30/world/asia/north-korea-satellite.html?searchResultPosition=6
 
 **20 Looks That Did the Most at Cannes**\
