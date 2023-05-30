@@ -2,7 +2,7 @@
 `Erdogan’s manifest failures as a leader didn’t stop his re-election.`\
 https://nytimes.com/2023/05/30/opinion/turkey-election-erdogan-trump.html?searchResultPosition=1
 
-**Taiwan Ambassador Says Ukraine’s Success Against Russia Will Deter China**\
+**Taiwan Ambassador Says Ukraine’s Success Against Russia Will Help Deter China**\
 `Bi-khim Hsiao, the top Taiwanese diplomat in Washington, said the support of the United States and other nations for Ukraine sends an important message to China.`\
 https://nytimes.com/2023/05/30/us/politics/taiwan-ambassador-ukraine-china.html?searchResultPosition=2
 
