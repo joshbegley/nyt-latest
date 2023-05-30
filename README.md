@@ -30,7 +30,7 @@ https://nytimes.com/2023/05/30/us/iowa-building-collapse.html?searchResultPositi
 `The decision gives the Purdue Pharma owners long-sought protection, but it is a major step toward releasing billions of dollars from their fortune to states and communities to help cope with the costs of addiction.`\
 https://nytimes.com/2023/05/30/health/sacklers-purdue-liability-bankruptcy.html?searchResultPosition=8
 
-**Can These Russians Become Tennis’ Next Great Sister Act?**\
+**Can These Russians Become Tennis’s Next Great Sister Act?**\
 `Women’s tennis was headlined for more than two decades by Serena and Venus Williams. On Tuesday, the teenagers Mirra and Erika Andreeva made their French Open debuts.`\
 https://nytimes.com/2023/05/30/sports/tennis/french-open-andreeva-russia.html?searchResultPosition=9
 
