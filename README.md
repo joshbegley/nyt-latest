@@ -18,7 +18,7 @@ https://nytimes.com/2023/05/30/world/europe/venice-canal-green-water.html?search
 `Looking for nonalcoholic drinks beyond seltzer? You’re in luck.`\
 https://nytimes.com/2023/05/30/dining/where-to-find-family-style-dining-and-more-reader-questions.html?searchResultPosition=5
 
-**House Freedom Caucus Slams Biden-McCarthy Debt Limit Deal**\
+**House Freedom Caucus Slams Biden-McCarthy on Debt Limit Deal**\
 `Hard-right members of the House Freedom Caucus urged Republicans not to vote for Speaker Kevin McCarthy’s deal with President Biden to raise the debt ceiling.`\
 https://nytimes.com/video/us/politics/100000008929936/debt-limit-bill.html?searchResultPosition=6
 
