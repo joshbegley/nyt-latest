@@ -28,7 +28,7 @@ https://nytimes.com/2023/05/30/opinion/debt-limit-deal.html?searchResultPosition
 
 **Former First Lady Rosalynn Carter Has Dementia**\
 `The announcement by the Carter Center came just over three months after it said that Jimmy Carter, 98, had entered hospice care at the couple’s home in Plains, Ga.`\
-https://nytimes.com/2023/05/30/us/rosalynn-carter-dimentia.html?searchResultPosition=8
+https://nytimes.com/2023/05/30/us/rosalynn-carter-dementia.html?searchResultPosition=8
 
 **‘Succession’: Jeremy Strong on Kendall’s ‘Catastrophic’ Ending**\
 `Strong reflected on Kendall Roy’s place in his life and in the culture. “Kendall is seen as a try-hard,” he said. “I guess that’s become something to judge or deride.”`\
