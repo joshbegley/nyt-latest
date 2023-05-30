@@ -14,7 +14,7 @@ https://nytimes.com/2023/05/30/books/review/last-call-at-coogans-jon-michaud.htm
 `Raha Naddaf, one of the magazine’s story editors, explains the decision to zoom in on the Golden State.`\
 https://nytimes.com/2023/05/30/us/the-new-york-times-magazine-devotes-an-issue-to-california.html?searchResultPosition=4
 
-**The Moscow strike is a psychological blow to a nation trying to ignore the war, Russian nationalists say.**\
+**Moscow Drone Strikes a Psychological Blow, Russian Nationalists Say**\
 `The Kremlin says the Defense Ministry responded well to the attack, but critics argue that the assault shows a lack of leadership from a government that promised only a “special military operation” in Ukraine.`\
 https://nytimes.com/2023/05/30/world/europe/russians-war-moscow-drone-strike.html?searchResultPosition=5
 
