@@ -30,8 +30,8 @@ https://nytimes.com/2023/05/29/world/europe/ukraine-kherson-torture-detention-ce
 `If you can’t cut big costs and you won’t raise revenue, there’s only so much balancing you can do.`\
 https://nytimes.com/2023/05/29/opinion/debt-ceiling-deal.html?searchResultPosition=8
 
-**Russian Missile Attacks on Kyiv Send Civilians Racing for Cover**\
-`A barrage on Tuesday came after an attack on Monday sent schoolchildren screaming and running for shelter as explosions echoed across the Ukrainian capital, a rare daytime aerial assault on the city.`\
+**Russian Missile and Drone Attacks on Kyiv Send Civilians Racing for Cover**\
+`A drone attack on Tuesday came after a barrage of missiles on Monday sent schoolchildren running for shelter as explosions echoed across the Ukrainian capital, rare daytime aerial assaults on the city.`\
 https://nytimes.com/2023/05/29/world/europe/kyiv-attack-ukraine-russia.html?searchResultPosition=9
 
 **Congrats, You Made the French Open. You Get to Play Djokovic and Alcaraz.**\
