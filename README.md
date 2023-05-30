@@ -4,7 +4,7 @@ https://nytimes.com/2023/05/30/business/dealbook/climate-shareholder-activists-o
 
 **Celtics Hit Another Dead End, With No Clear Path Forward This Time**\
 `A team with N.B.A. championship aspirations fell short against Miami. Tough calls and new contracts await.`\
-https://nytimes.com/2023/05/30/sports/basketball/celtics-hit-another-dead-end-with-no-clear-path-forward-this-time.html?searchResultPosition=2
+https://nytimes.com/2023/05/30/sports/basketball/celtics-nba-playoffs-miami.html?searchResultPosition=2
 
 **Summer Heat**\
 `Why the next few months may be hotter than normal.`\
