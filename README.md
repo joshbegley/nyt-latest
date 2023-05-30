@@ -27,7 +27,7 @@ https://nytimes.com/2023/05/30/style/cannes-red-carpet-best-worst.html?searchRes
 https://nytimes.com/2023/05/30/us/iowa-building-collapse.html?searchResultPosition=7
 
 **Sacklers Can Be Shielded From Opioid Liability, Appeals Court Rules**\
-`The decision gives the Purdue Pharma owners long-sought protection, but it will release billions of dollars from their fortune to states and communities to help cope with the costs of addiction.`\
+`The decision gives the Purdue Pharma owners long-sought protection, but it is a major step toward releasing billions of dollars from their fortune to states and communities to help cope with the costs of addiction.`\
 https://nytimes.com/2023/05/30/health/sacklers-purdue-liability-bankruptcy.html?searchResultPosition=8
 
 **Can These Russians Become Tennis’ Next Great Sister Act?**\
