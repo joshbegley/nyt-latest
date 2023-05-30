@@ -31,7 +31,7 @@ https://nytimes.com/2023/05/30/us/politics/taiwan-ambassador-ukraine-china.html?
 https://nytimes.com/2023/05/30/world/asia/north-korea-satellite.html?searchResultPosition=8
 
 **20 Looks That Did the Most at Cannes**\
-`The film festival, which took place over almost two weeks, brought lots of fashion to French Riviera.`\
+`The film festival, which took place over almost two weeks, brought lots of fashion to the French Riviera.`\
 https://nytimes.com/2023/05/30/style/cannes-red-carpet-best-worst.html?searchResultPosition=9
 
 **Demolition of Collapsed Building Is Put on Hold as People Remain Missing**\
