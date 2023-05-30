@@ -22,8 +22,8 @@ https://nytimes.com/2023/05/30/nyregion/sherry-lehmann-missing-wine.html?searchR
 `The attack followed a rare daytime assault on Monday. Russia has stepped up attacks on the capital this month as Ukraine prepares for a counteroffensive.`\
 https://nytimes.com/2023/05/29/world/europe/russia-ukraine-kyiv-strikes.html?searchResultPosition=6
 
-**Heat to Face Nuggets in N.B.A. Finals After Beating Celtics in Game 7**\
-`The Heat are just the second eighth seed to reach the N.B.A. championship series. They beat Boston, the No. 2 seed, in the Eastern Conference finals.`\
+**The Miami Heat Earned a Trip to the N.B.A. Finals the Hard Way**\
+`The Heat, just the second eighth seed to reach the championship round, nearly blew a 3-0 series lead against the Celtics. Next they face the top-seeded Denver Nuggets.`\
 https://nytimes.com/2023/05/29/sports/basketball/miami-heat-boston-celtics.html?searchResultPosition=7
 
 **9 People Wounded in Memorial Day Shooting Near Florida Beach**\
