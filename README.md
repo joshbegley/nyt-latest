@@ -7,8 +7,8 @@ https://nytimes.com/2023/05/30/books/review/last-call-at-coogans-jon-michaud.htm
 https://nytimes.com/2023/05/30/us/the-new-york-times-magazine-devotes-an-issue-to-california.html?searchResultPosition=2
 
 **The Moscow strike is a psychological blow to a nation trying to ignore the war, Russian nationalists say.**\
-`The Kremlin says the Defense Ministry responded well to the attack, but critics argue the assault shows a lack of leadership from a government that promised only a “special military operation” in Ukraine.`\
-https://nytimes.com/2023/05/30/world/russians-war-moscow-drone-strike.html?searchResultPosition=3
+`The Kremlin says the Defense Ministry responded well to the attack, but critics argue that the assault shows a lack of leadership from a government that promised only a “special military operation” in Ukraine.`\
+https://nytimes.com/2023/05/30/world/europe/russians-war-moscow-drone-strike.html?searchResultPosition=3
 
 **Following Setbacks, Climate Activists Rethink Their Approach**\
 `Climate-focused shareholder activists have scored only a few victories in their efforts to push oil giants to adopt cleaner business strategies.`\
