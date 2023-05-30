@@ -3,7 +3,7 @@
 https://nytimes.com/2023/05/30/us/politics/student-loan-payments-biden-debt.html?searchResultPosition=1
 
 **Prosecutor Recounts a Day of Worship Turned Deadly in a Pittsburgh Synagogue**\
-`The Justice Department is seeking the death penalty for, Robert Bowers, the man accused of killing 11 people in 2018.`\
+`The Justice Department is seeking the death penalty for Robert Bowers, the man accused of killing 11 people in 2018.`\
 https://nytimes.com/2023/05/30/us/pittsburgh-synagogue-trial.html?searchResultPosition=2
 
 **A Plan to Avert a Vast Oil Spill Off Yemen Finally Moves Ahead**\
