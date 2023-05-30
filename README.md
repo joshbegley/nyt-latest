@@ -7,7 +7,7 @@ https://nytimes.com/2023/05/29/crosswords/hard-to-pin-down.html?searchResultPosi
 https://nytimes.com/2023/05/29/pageoneplus/no-corrections-may-30-2023.html?searchResultPosition=2
 
 **A 3-Month-Old Baby Was Found Dead Near a Bronx Expressway**\
-`The baby, whom police identified as Genevieve Comager, was found Sunday night in the woods. Her father was arrested and charged in connection with the death, according to police officials.`\
+`The baby, whom police identified as Genevieve Comager, was found Sunday night in the woods. Her parents were charged in connection with the death, according to police officials.`\
 https://nytimes.com/2023/05/29/nyregion/baby-death-bronx-arrest.html?searchResultPosition=3
 
 **Quotation of the Day: The Vanishing van Gogh: A $62 Million Mystery**\
