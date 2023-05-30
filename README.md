@@ -1,6 +1,6 @@
 **After a Hard-Right Turn, Alberta’s Conservatives Retain Power**\
 `But the United Conservative Party will hold substantially fewer seats in the legislature, in an apparent rebuff of the politics of its outspoken leader.`\
-https://nytimes.com/2023/05/30/alberta-canada-conservative-election.html?searchResultPosition=1
+https://nytimes.com/2023/05/30/world/americas/alberta-canada-conservative-election.html?searchResultPosition=1
 
 **A British Reporter Had a Big #MeToo Scoop. Her Editor Killed It.**\
 `Seven women say that a star columnist groped them or made unwanted sexual advances. But Britain’s news media has a complicated relationship with outing its own.`\
