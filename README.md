@@ -1,6 +1,6 @@
 **Hard to Pin Down**\
 `Kathryn Ladner’s Tuesday puzzle is one to watch.`\
-https://nytimes.com/2023/05/29/crosswords/hard-to-pin-down.html?searchResultPosition=1
+https://nytimes.com/2023/05/29/crosswords/daily-puzzle-2023-05-30.html?searchResultPosition=1
 
 **No Corrections: May 30, 2023**\
 `No corrections appeared in print on Tuesday, May 30, 2023.`\
