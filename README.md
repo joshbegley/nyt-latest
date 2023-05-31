@@ -22,7 +22,7 @@ https://nytimes.com/2023/05/31/us/chesa-boudin-san-francisco.html?searchResultPo
 `Mindful of costs, a reader wonders whether she and her husband are obligated to extend the same hospitality to their daughter’s best friend as to their son’s partner.`\
 https://nytimes.com/2023/05/31/style/family-vacation-costs.html?searchResultPosition=6
 
-**The Best Spaces Images From May**\
+**The Best Space Images From May**\
 `Scenes of the cosmos released this month by astronomers, spacecraft and photographers.`\
 https://nytimes.com/interactive/2023/05/31/science/space-astronomy-photos.html?searchResultPosition=7
 
