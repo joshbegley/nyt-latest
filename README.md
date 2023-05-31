@@ -1,40 +1,40 @@
-**Iiu Susiraja: She Has Issues? No, You Have Issues**\
-`In her first museum show in the United States, this Finnish artist uses her own XL body to bring a new emotional depth to the genre of setup photography.`\
-https://nytimes.com/2023/05/31/arts/design/iiu-susiraja-artist-moma-ps1-body-image.html?searchResultPosition=1
+**James Beard Foundation, Whose Awards Honor Chefs, Is Now Investigating Them**\
+`The group behind “the Oscars of the food world” created a new process to weed out nominees with problematic pasts. But that process has troubles of its own.`\
+https://nytimes.com/2023/05/31/dining/james-beard-foundation-awards-restaurants-investigation.html?searchResultPosition=1
 
-**Larger Screens, Heated Seats, Sushi: Theater Owners Want You Back**\
-`After scraping by during the pandemic, cinemas are hoping to lure back moviegoers by spending millions of dollars on upgrades.`\
-https://nytimes.com/2023/05/31/business/movie-theater-upgrade-pandemic.html?searchResultPosition=2
+**Ex-N.Y.P.D. Sergeant Accused of Doing China’s Bidding Goes on Trial**\
+`Michael McMahon, a former New York Police Department sergeant, faces federal charges with two other men. They are accused of intimidating Chinese citizens in the United States.`\
+https://nytimes.com/2023/05/31/nyregion/nypd-china-agents-stalking-trial.html?searchResultPosition=2
 
-**Wine at Wegmans? Not in New York, if Liquor Stores Can Help It.**\
-`Despite a state commission’s recommendations, New York lawmakers seem unlikely to make substantive changes to a 1934 law that traces to Prohibition.`\
-https://nytimes.com/2023/05/31/nyregion/liquor-law-wine-supermarkets.html?searchResultPosition=3
+**Climate Shocks Are Making Parts of America Uninsurable. It Just Got Worse.**\
+`The largest insurer in California said it would stop offering new coverage. It’s part of a broader trend of companies pulling back from dangerous areas.`\
+https://nytimes.com/2023/05/31/climate/climate-change-insurance.html?searchResultPosition=3
 
-**14th Amendment Questions Linger Despite Debt Limit Deal**\
-`President Biden has been considering ways to challenge the constitutionality of the debt limit to defuse the risk of default.`\
-https://nytimes.com/2023/05/31/us/politics/14th-amendment-debt-ceiling.html?searchResultPosition=4
+**‘We Have Fish, That’s Our Currency’**\
+`Along Ireland’s coast, fishing has been a way of life for generations. But changes to the industry — including a cut in quotas after Brexit and a government plan to scrap boats — may see a way of life disappear.`\
+https://nytimes.com/2023/05/31/world/europe/ireland-fishing-quotas-decommissioning.html?searchResultPosition=4
 
-**Damar Hamlin’s Return to Football Looks Almost Normal**\
-`The Bills safety participated in drills during the team’s off-season workouts for a second consecutive week and even caught a pass. It was a mundane scene in his surprising return to football.`\
-https://nytimes.com/2023/05/31/sports/damar-hamlin-bills-off-season.html?searchResultPosition=5
+**Get Lost in Clay, Even if It’s Just for the Weekend**\
+`Pottery workshops like those at the Watershed Center for Ceramic Arts in Maine are filling up with people who want to connect with others instead of screens.`\
+https://nytimes.com/2023/05/31/travel/pottery-ceramics-workshops.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/05/31/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**Why Are Remote Corporate Workers Having More Fun? Co-Working Spaces.**\
+`For many, shared offices have become an escape from often chaotic homes — and a chance to join a community. Are they the future of co-working?`\
+https://nytimes.com/2023/05/31/business/co-working-spaces-corporate-workers.html?searchResultPosition=6
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/05/31/crosswords/wordle-review-answer-711.html?searchResultPosition=7
+**Quiet, Please: You Are Not Alone in Your Garden**\
+`There’s a multicultural world outdoors — and even the gentlest gardeners often disrupt it. Here’s how to avoid that.`\
+https://nytimes.com/2023/05/31/realestate/gardens-animal-communication-sound.html?searchResultPosition=7
 
-**‘Ted Lasso’ Season Finale Recap: Family**\
-`Ted does what he has to do, Richmond plays for a title, and Rebecca finds what she (and we) have been waiting for.`\
-https://nytimes.com/2023/05/31/arts/television/ted-lasso-finale-recap.html?searchResultPosition=8
+**How Remote Work Connected Employees Making $19 an Hour and $80,000 a Year**\
+`At Amazon, warehouse workers have shown support for corporate colleagues, noting they have nothing to gain if office workers lose flexibility that the pandemic proved possible.`\
+https://nytimes.com/2023/05/31/business/work-home-return-office-amazon.html?searchResultPosition=8
 
-**Word of the Day: emanate**\
-`This word has appeared in 29 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/05/31/learning/word-of-the-day-emanate.html?searchResultPosition=9
+**Pakistan’s Powerful Military Faces New Resistance From Courts**\
+`Long seen as kowtowing to the military, the judiciary has defied it in recent rulings, signaling an important shift in Pakistan’s political landscape.`\
+https://nytimes.com/2023/05/31/world/asia/pakistan-courts-challenge-military.html?searchResultPosition=9
 
-**Who Needs a Dalmatian? This Firehouse Has a Pig.**\
-`Penny, the unofficial mascot of Engine Company 239 in Brooklyn, is no trouble, as long as the firefighters keep a supply of Cheerios.`\
-https://nytimes.com/2023/05/31/nyregion/piglet-penny-fire-department.html?searchResultPosition=10
+**The District Gained Republicans. Could a Liberal Democrat Take It Back?**\
+`Sue Altman, the leader of a progressive organization in New Jersey, is expected to announce a run for Congress against Rep. Tom Kean Jr.`\
+https://nytimes.com/2023/05/31/nyregion/sue-altman-tom-kean-new-jersey.html?searchResultPosition=10
 
