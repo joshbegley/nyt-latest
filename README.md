@@ -1,5 +1,5 @@
 **Reassessing the Board Fight That Was Meant to Transform Exxon**\
-`As investors press Exxon Mobil on climate issues, activists say that a hedge fund’s eco-focused victory over the oil giant two years ago has achieved little.`\
+`As investors press the oil giant on climate issues, activists say that a hedge fund’s eco-focused victory over the company two years ago has achieved little.`\
 https://nytimes.com/2023/05/31/business/dealbook/engine-no-1-exxon-mobil.html?searchResultPosition=1
 
 **Rise in Sightings of Honeybee Swarms Has U.K. Beekeepers Scrambling**\
