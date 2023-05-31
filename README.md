@@ -18,7 +18,7 @@ https://nytimes.com/2023/05/31/theater/new-york-city-center-encores.html?searchR
 `One of Freddie Mercury’s early drafts, which is being auctioned by Sotheby’s, shows that he crossed out “Mongolian” and substituted the now-famous title.`\
 https://nytimes.com/2023/05/31/arts/music/queen-freddie-mercury-bohemian-rhapsody.html?searchResultPosition=5
 
-**Fashion High: Inside New York’s Semi-Secret School for Style**\
+**Inside ‘the Hogwarts of Fashion’**\
 `Most schools rev up for the big game. At the High School of Fashion Industries, it’s the spring fashion show. And this year’s was bigger and sassier than ever.`\
 https://nytimes.com/2023/05/31/style/fashion-high-inside-new-yorks-semi-secret-school-for-style.html?searchResultPosition=6
 
