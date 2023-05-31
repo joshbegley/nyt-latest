@@ -1,40 +1,40 @@
+**Departures Force Los Angeles Philharmonic to Reinvent Itself, Again**\
+`Its beloved music director, Gustavo Dudamel, is leaving for New York, and its innovative chief executive, Chad Smith, is going to Boston. Now the esteemed orchestra is pondering what’s next.`\
+https://nytimes.com/2023/05/31/arts/music/los-angeles-philharmonic-dudamel.html?searchResultPosition=1
+
+**Create a Private Social Space, Far From the Maddening Crowd**\
+`Alternative apps and shared photo albums let you set up your own exclusive club for online conversations and digital pictures.`\
+https://nytimes.com/2023/05/31/technology/personaltech/social-media-alternatives.html?searchResultPosition=2
+
+**New Oral History Peers Back at Obama, His Era and the Tradeoffs He Made**\
+`The first of 470 interviews of Obama administration officials and others involved in the debates of the time offer a fresh inside look at a consequential presidency.`\
+https://nytimes.com/2023/05/31/us/politics/obama-oral-history.html?searchResultPosition=3
+
+**After 15 Years, the Nashville Punks Be Your Own Pet Are Roaring Back**\
+`After a quick rise and a fast burnout, this quartet has regrouped, acquired a fresh perspective, and made a new album, with Jack White’s encouragement.`\
+https://nytimes.com/2023/05/31/arts/music/be-your-own-pet-mommy.html?searchResultPosition=4
+
+**San Francisco’s Ousted District Attorney Has a New Job**\
+`A conversation with Chesa Boudin, who was rejected by voters last year, as he steps into a new role this week at U.C. Berkeley.`\
+https://nytimes.com/2023/05/31/us/chesa-boudin-san-francisco.html?searchResultPosition=5
+
+**Do We Have to Pay for Our Children’s ‘Platonic Partners’ on Family Vacations?**\
+`Mindful of costs, a reader wonders whether she and her husband are obligated to extend the same hospitality to their daughter’s best friend as to their son’s partner.`\
+https://nytimes.com/2023/05/31/style/family-vacation-costs.html?searchResultPosition=6
+
 **The Best Spaces Images From May**\
 `Scenes of the cosmos released this month by astronomers, spacecraft and photographers.`\
-https://nytimes.com/interactive/2023/05/31/science/space-astronomy-photos.html?searchResultPosition=1
+https://nytimes.com/interactive/2023/05/31/science/space-astronomy-photos.html?searchResultPosition=7
 
 **A Desperate Act Reveals the Dwindling Room for Dissent in India**\
 `Their protest dispersed, female wrestlers who have accused a powerful official of sexual harassment went to the Ganges intending to throw away their Olympic medals.`\
-https://nytimes.com/2023/05/31/world/asia/india-wrestler-protest.html?searchResultPosition=2
+https://nytimes.com/2023/05/31/world/asia/india-wrestler-protest.html?searchResultPosition=8
 
 **The Duggar Family and Reality TV’s Exploitation of Kids**\
 `A disturbing new documentary shows the mistreatment behind a ‘Shiny Happy’ facade.`\
-https://nytimes.com/2023/05/31/opinion/duggar-shiny-happy.html?searchResultPosition=3
+https://nytimes.com/2023/05/31/opinion/duggar-shiny-happy.html?searchResultPosition=9
 
 **Vandal Causes $250,000 in Damage to ‘Jurassic Park’ Exhibition, Police Say**\
 `At the show in Atlanta, based on the series of dinosaur films, a man was caught on video on top of one of the beasts, ripping off its skin. He was later arrested.`\
-https://nytimes.com/2023/05/31/us/jurassic-world-dinosaur-vandalism.html?searchResultPosition=4
-
-**Reassessing the Board Fight That Was Meant to Transform Exxon**\
-`As investors press the oil giant on climate issues, activists say that a hedge fund’s eco-focused victory over the company two years ago has achieved little.`\
-https://nytimes.com/2023/05/31/business/dealbook/engine-no-1-exxon-mobil.html?searchResultPosition=5
-
-**Rise in Sightings of Honeybee Swarms Has U.K. Beekeepers Scrambling**\
-`It’s swarming season in Britain, with honeybee colonies splitting in half in search of new homes. This year, beekeepers say they are getting an unusually high number of swarm sightings.`\
-https://nytimes.com/2023/05/31/world/europe/uk-honeybee-swarms.html?searchResultPosition=6
-
-**Florida Art Scammer Sentenced to Over 2 Years in Federal Prison**\
-`The art dealer, Daniel Elie Bouaziz, 69, was sentenced to 27 months in federal prison for laundering money made selling counterfeit art.`\
-https://nytimes.com/2023/05/31/us/fake-art-dealer-sentenced-florida.html?searchResultPosition=7
-
-**A Big Day for the Debt Ceiling**\
-`The bipartisan debt limit deal still isn’t assured of passing.`\
-https://nytimes.com/2023/05/31/briefing/debt-limit.html?searchResultPosition=8
-
-**German Court Convicts Left-Wing Group in Violent Attacks Against Far Right**\
-`A 28-year-old woman and three accomplices were sentenced to prison for their roles in a series of attacks on people they considered neo-Nazis.`\
-https://nytimes.com/2023/05/31/world/europe/germany-left-wing-activist-attacks-far-right.html?searchResultPosition=9
-
-**Israel Called Them ‘Precision’ Strikes. But Civilian Homes Were Hit, Too.**\
-`Palestinians in Gaza say that Israel’s strikes against Islamic Jihad amount to a collective punishment aimed at making them fearful about who their neighbors might be.`\
-https://nytimes.com/2023/05/31/world/middleeast/israel-gaza-precision-strikes-civilians.html?searchResultPosition=10
+https://nytimes.com/2023/05/31/us/jurassic-world-dinosaur-vandalism.html?searchResultPosition=10
 
