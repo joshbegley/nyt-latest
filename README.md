@@ -27,7 +27,7 @@ https://nytimes.com/interactive/2023/05/31/nyregion/prom-nyc.html?searchResultPo
 https://nytimes.com/2023/05/31/briefing/house-vote-debt-deal-firehouse-pig.html?searchResultPosition=7
 
 **Danny Masterson Is Convicted of Raping Two Women**\
-`The jury was unable to reach a verdict on a third count that the former star of “That ’70s Show” faced in a closely watched case.`\
+`The case against a star of the sitcom “That ’70s Show” drew widespread attention because of accusations that the Church of Scientology had tried to discourage his accusers.`\
 https://nytimes.com/2023/05/31/arts/television/danny-masterson-rape-retrial-guilty.html?searchResultPosition=8
 
 **In Iowa, DeSantis Signals the Start of a Slugfest With Trump**\
