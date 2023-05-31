@@ -1,4 +1,4 @@
-**Rise in Sightings of Honeybee Swarms Has U.K. Beekeepers Scrambling to Keep Up**\
+**Rise in Sightings of Honeybee Swarms Has U.K. Beekeepers Scrambling**\
 `It’s swarming season in Britain, with honeybee colonies splitting in half in search of new homes. This year, beekeepers say they are getting an unusually high number of swarm sightings.`\
 https://nytimes.com/2023/05/31/world/europe/uk-honeybee-swarms.html?searchResultPosition=1
 
