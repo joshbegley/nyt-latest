@@ -1,5 +1,17 @@
+**Job Openings Rose in April, Defying Cooling Trend**\
+`The Labor Department report may put pressure on the Federal Reserve to raise interest rates further to stem inflation.`\
+https://nytimes.com/2023/05/31/business/economy/jobs-layoffs-openings-jolts.html?searchResultPosition=1
+
+**Arctic Risks Loom Large as Blinken Tours NATO’s North**\
+`Russia may be having major difficulties in Ukraine, but it remains a vast power in the north and the Arctic, where climate change is opening new sea routes for trade and trouble.`\
+https://nytimes.com/2023/05/31/world/europe/blinken-arctic-nato-russia.html?searchResultPosition=2
+
+**As U.S. Races Ahead, Europe Frets About Battery Factory Subsidies**\
+`The European Union is trying to assemble the building blocks to produce electric cars, but subsidies are luring companies to the United States.`\
+https://nytimes.com/2023/05/31/business/energy-environment/europe-battery-factory-subisidies.html?searchResultPosition=3
+
 **Christian Cooper and the Birds of New York**\
 `Readers respond to an essay by a Central Park birder. Also: A worker shortage; wrongful convictions; politicized courts; reparations and tax relief.`\
-https://nytimes.com/2023/05/31/opinion/letters/christian-cooper-birds-new-york.html?searchResultPosition=1
+https://nytimes.com/2023/05/31/opinion/letters/christian-cooper-birds-new-york.html?searchResultPosition=4
 
 **How Viola Davis Became One of the Greatest Actors of Her Generation**\
