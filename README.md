@@ -10,8 +10,8 @@ https://nytimes.com/2023/05/31/arts/music/julia-wolfe-unearth-new-york-philharmo
 `After a triumphant house debut in 2019, the bass-baritone Tomasz Konieczny brought power and clarity to the title role in “The Flying Dutchman.”`\
 https://nytimes.com/2023/05/31/arts/music/flying-dutchman-review-met-opera.html?searchResultPosition=3
 
-**In Turkey’s L.G.B.T.Q. Community, ‘People Are Scared’ by Erdogan’s Attacks**\
-`President Recep Tayyip Erdogan vilified gay people during his re-election campaign, calling them a threat to society and rallying conservatives against them. It has left communities feeling threatened, and alone.`\
+**After Erdogan’s Attacks, Fear Spreads Among L.G.B.T.Q. People in Turkey**\
+`President Recep Tayyip Erdogan vilified gay people during his re-election campaign, calling them a threat to society and rallying conservatives against them. It has left people feeling threatened, and alone.`\
 https://nytimes.com/2023/05/31/world/middleeast/turkey-erdogan-gay-rights-lgbt.html?searchResultPosition=4
 
 **Chelsea Says Executive Accused of Bullying Has Left the Club**\
