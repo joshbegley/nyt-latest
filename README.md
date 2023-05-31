@@ -18,7 +18,7 @@ https://nytimes.com/interactive/2023/05/31/nyregion/prom-nyc.html?searchResultPo
 `Also, uninsurable climate risks. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2023/05/31/briefing/house-vote-debt-deal-firehouse-pig.html?searchResultPosition=5
 
-**Danny Masterson Is Convicted on Two Counts of Rape**\
+**Danny Masterson Is Convicted of Raping Two Women**\
 `The jury was unable to reach a verdict on a third count that the former star of “That ’70s Show” faced in a closely watched case.`\
 https://nytimes.com/2023/05/31/arts/television/danny-masterson-rape-retrial-guilty.html?searchResultPosition=6
 
@@ -35,6 +35,6 @@ https://nytimes.com/2023/05/31/style/ted-lasso-masculinity.html?searchResultPosi
 https://nytimes.com/2023/05/31/us/politics/nasa-ufo-hearing.html?searchResultPosition=9
 
 **This Sweet-Tart Roasted Salmon Is Ready in No Time**\
-`Paired with red rhubarb, this brilliantly pink fillets are on the table in 25 minutes.`\
+`Paired with red rhubarb, these brilliantly pink fillets are on the table in 25 minutes.`\
 https://nytimes.com/2023/05/31/dining/rhubarb-roasted-salmon-recipe.html?searchResultPosition=10
 
