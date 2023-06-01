@@ -27,7 +27,7 @@ https://nytimes.com/video/us/politics/100000008932267/debt-ceiling-house-vote.ht
 https://nytimes.com/2023/05/31/us/politics/kevin-mccarthy-debt-limit-republicans.html?searchResultPosition=7
 
 **Another Early Morning Attack in Kyiv Kills Three**\
-`Among the dead were two children, the city’s mayor said. Russia has recently increased the pace and intensity of its strikes on the capital.`\
+`At least one child was among the dead, local officials said. Russia has recently increased the pace and intensity of its strikes on the capital.`\
 https://nytimes.com/2023/05/31/world/europe/russia-strikes-kyiv-ukraine.html?searchResultPosition=8
 
 **Calling for Tails, Maybe**\
