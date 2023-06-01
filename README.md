@@ -19,7 +19,7 @@ https://nytimes.com/2023/06/01/movies/spider-man-across-the-spider-verse-review.
 https://nytimes.com/2023/06/01/well/move/menstrual-cycle-syncing-exercise.html?searchResultPosition=5
 
 **Debt Limit Fight Moves to the Senate as Default Date Nears**\
-`Leaders of both parties urged quick action to avoid a default, but some senators want changes.`\
+`Leaders of both parties urged quick action to avoid a default, but some senators want to consider changes.`\
 https://nytimes.com/2023/06/01/us/politics/debt-limit-senate.html?searchResultPosition=6
 
 **What’s in Our Queue? ChocQuibTown and More**\
