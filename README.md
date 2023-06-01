@@ -26,15 +26,15 @@ https://nytimes.com/video/us/politics/100000008932267/debt-ceiling-house-vote.ht
 `The speaker defied expectations and delivered a debt limit agreement that few thought he could manage, but left some of his Republican colleagues feeling betrayed.`\
 https://nytimes.com/2023/05/31/us/politics/kevin-mccarthy-debt-limit-republicans.html?searchResultPosition=7
 
-**Another Early Morning Attack in Kyiv Kills Three**\
-`At least one child was among the dead, local officials said. Russia has recently increased the pace and intensity of its strikes on the capital.`\
-https://nytimes.com/2023/05/31/world/europe/russia-strikes-kyiv-ukraine.html?searchResultPosition=8
-
 **Calling for Tails, Maybe**\
 `By Deb Amlen`\
-https://nytimes.com/2023/05/31/crosswords/daily-puzzle-2023-06-01.html?searchResultPosition=9
+https://nytimes.com/2023/05/31/crosswords/daily-puzzle-2023-06-01.html?searchResultPosition=8
 
 **The Big Part of the Debt Ceiling Deal Congress Isn’t Talking About**\
 `Why the budget cuts in the debt ceiling deal are smaller than advertised.`\
-https://nytimes.com/interactive/2023/05/31/upshot/debt-ceiling-side-deals.html?searchResultPosition=10
+https://nytimes.com/interactive/2023/05/31/upshot/debt-ceiling-side-deals.html?searchResultPosition=9
+
+**See Who Voted For and Against Raising the Debt Limit**\
+`Raising the Debt Limit: House Live Vote`\
+https://nytimes.com/interactive/2023/05/31/us/politics/house-debt-limit-live-vote.html?searchResultPosition=10
 
