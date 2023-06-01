@@ -6,7 +6,7 @@ https://nytimes.com/2023/06/01/movies/spider-man-across-the-spider-verse-review.
 `Professional athletes and fitness influencers say that timing workouts around their menstrual cycles has big benefits. Experts are less certain.`\
 https://nytimes.com/2023/06/01/well/move/menstrual-cycle-syncing-exercise.html?searchResultPosition=2
 
-**Debt Limit Fight Moves to the Senate**\
+**Debt Limit Fight Moves to the Senate as Default Date Nears**\
 `Leaders of both parties urged quick action to avoid a default, but some senators want changes.`\
 https://nytimes.com/2023/06/01/us/politics/debt-limit-senate.html?searchResultPosition=3
 
