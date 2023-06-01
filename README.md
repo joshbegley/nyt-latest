@@ -1,40 +1,40 @@
+**Review: In ‘Grey House,’ Broadway Gets an Expert Haunting**\
+`A new play about a sisterhood of sorrows brings something scary to the stage, but is delivering shocks and icks enough?`\
+https://nytimes.com/2023/06/01/theater/review-grey-house.html?searchResultPosition=1
+
+**What to See in N.Y.C. Galleries in June**\
+`Want to see new art in the city? Check out Joan Brown, Giorgio de Chirico and the making of Art-Rite magazine in Chelsea, and Rina Banerjee on the Lower East Side.`\
+https://nytimes.com/2023/06/01/arts/design/arts-design-nyc-art-galleries-june.html?searchResultPosition=2
+
 **In New Hampshire, DeSantis Avoids Talking About Florida’s Abortion Ban**\
 `As he traversed socially conservative Iowa this week, the 2024 contender highlighted his state’s six-week ban. But now, in more moderate New Hampshire, he is shying from the subject.`\
-https://nytimes.com/2023/06/01/us/politics/desantis-abortion-new-hampshire.html?searchResultPosition=1
+https://nytimes.com/2023/06/01/us/politics/desantis-abortion-new-hampshire.html?searchResultPosition=3
 
 **Jacques Bailly, the bee’s pronouncer, has a few tricks to ensure every word is said correctly.**\
 `Mr. Bailly, who won the competition in 1980, tries to make eye contact with the speller and humanize the moment.`\
-https://nytimes.com/2023/06/01/us/jacques-bailly-scripps-spelling-bee-pronouncer.html?searchResultPosition=2
+https://nytimes.com/2023/06/01/us/jacques-bailly-scripps-spelling-bee-pronouncer.html?searchResultPosition=4
 
 **Bill Cosby Accused in a Lawsuit of Sexually Assaulting a Woman in 1969**\
 `The accusation, which Mr. Cosby denies, is contained in a suit by Victoria Valentino, who filed it under a California law that has temporarily lifted the statute of limitations in sexual assault cases.`\
-https://nytimes.com/2023/06/01/arts/bill-cosby-lawsuit-sexual-assault.html?searchResultPosition=3
+https://nytimes.com/2023/06/01/arts/bill-cosby-lawsuit-sexual-assault.html?searchResultPosition=5
 
 **The Calm Man in the Capital: Biden Lets Others Spike the Ball but Notches a Win**\
 `President Biden brokered a debt limit deal by following instincts developed through long, hard and sometimes painful experience in Washington.`\
-https://nytimes.com/2023/06/01/us/politics/biden-mccarthy-debt-ceiling-deal-who-won.html?searchResultPosition=4
+https://nytimes.com/2023/06/01/us/politics/biden-mccarthy-debt-ceiling-deal-who-won.html?searchResultPosition=6
 
 **Recording of Trump Underscores Growing Evidence in Documents Case**\
 `A conversation in which the former president is said to have acknowledged that he could not declassify a sensitive document could undercut a defense he has offered.`\
-https://nytimes.com/2023/06/01/us/politics/trump-recording-documents-evidence.html?searchResultPosition=5
+https://nytimes.com/2023/06/01/us/politics/trump-recording-documents-evidence.html?searchResultPosition=7
 
 **Mother and Child’s Desperate Run for Cover in Kyiv Ends Outside Locked Shelter**\
 `They were among three people killed in a Russian missile attack, officials said. Ukraine opened an investigation, as Russians described shelling and evacuations in border regions.`\
-https://nytimes.com/2023/06/01/world/europe/russia-missiles-mother-daughter-kyiv.html?searchResultPosition=6
+https://nytimes.com/2023/06/01/world/europe/russia-missiles-mother-daughter-kyiv.html?searchResultPosition=8
 
 **The Case of the Disappearing Debt Disaster**\
 `One secret ingredient: Republicans don’t care about policy`\
-https://nytimes.com/2023/06/01/opinion/debt-ceiling-republicans-kevin-mccarthy.html?searchResultPosition=7
+https://nytimes.com/2023/06/01/opinion/debt-ceiling-republicans-kevin-mccarthy.html?searchResultPosition=9
 
 **Let’s Smash the College Admissions Process**\
 `If affirmative action goes, bigger changes are necessary.`\
-https://nytimes.com/2023/06/01/opinion/college-admissions-affirmative-action.html?searchResultPosition=8
-
-**Kamala Harris Says ‘Inequality Persists’ in Home Appraisals**\
-`The vice president announced new plans to prevent racial bias in home appraisals, following evidence of widespread discrimination against Black homeowners.`\
-https://nytimes.com/2023/06/01/realestate/kamala-harris-home-appraisals-discrimination.html?searchResultPosition=9
-
-**How Much Watching Time Do You Have This Weekend?**\
-`Our TV critic recommends a mesmerizing art series, a time-looping thriller and a dark Australian comedy.`\
-https://nytimes.com/2023/06/01/arts/television/how-much-watching-time-do-you-have-this-weekend.html?searchResultPosition=10
+https://nytimes.com/2023/06/01/opinion/college-admissions-affirmative-action.html?searchResultPosition=10
 
