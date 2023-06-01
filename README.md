@@ -7,7 +7,7 @@ https://nytimes.com/2023/06/01/world/europe/boris-johnson-texts-covid-inquiry.ht
 https://nytimes.com/2023/06/01/world/europe/ukraine-nato-russia.html?searchResultPosition=2
 
 **Arizona Limits New Construction in Phoenix Area, Citing Shrinking Water Supply**\
-`Officials say there’s not enough groundwater for housing construction already approved — a glimpse of the challenges facing the West as climate change worsens.`\
+`Officials say there’s not enough groundwater for housing construction already approved, a glimpse of the challenges facing the West as climate change worsens.`\
 https://nytimes.com/2023/06/01/climate/arizona-phoenix-permits-housing-water.html?searchResultPosition=3
 
 **High Temperatures Close Schools in Several U.S. Cities**\
