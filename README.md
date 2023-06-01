@@ -2,7 +2,7 @@
 `The photographer’s studio was destroyed during the civil war in the Central African Republic. But he built a new life in Paris, and his works are now in the collections of the world’s great museums.`\
 https://nytimes.com/2023/06/01/arts/design/samuel-fosso-paris-exhibit.html?searchResultPosition=1
 
-**Democrats Want Trump? They’re Out of Their Minds**\
+**Democrats Want Trump? They’re Out of Their Minds.**\
 `Do not underestimate his chances against Biden — or the damage he’d do with a second term.`\
 https://nytimes.com/2023/06/01/opinion/trump-desantis-2024-biden.html?searchResultPosition=2
 
