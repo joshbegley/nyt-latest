@@ -1,5 +1,5 @@
 **The House Passed the Bill. Who Won?**\
-`Biden both won and lost the debt-ceiling negotiation.`\
+`President Biden both won and lost the debt-ceiling negotiation.`\
 https://nytimes.com/2023/06/01/briefing/debt-limit-deal.html?searchResultPosition=1
 
 **Why the G.O.P. Is So Focused on Trans Kids**\
