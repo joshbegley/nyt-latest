@@ -35,6 +35,6 @@ https://nytimes.com/2023/06/01/movies/concerned-citizen-review.html?searchResult
 https://nytimes.com/2023/06/01/briefing/debt-limit-deal.html?searchResultPosition=9
 
 **How the G.O.P. Picked Trans Kids as a Rallying Cry**\
-`How a campaign against transgender rights mobilized conservatives.`\
+`The campaign against transgender rights has mobilized conservatives.`\
 https://nytimes.com/2023/06/01/podcasts/the-daily/anti-trans-bills.html?searchResultPosition=10
 
