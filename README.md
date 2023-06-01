@@ -14,7 +14,7 @@ https://nytimes.com/2023/06/01/briefing/senate-debt-bill-arizona-water-homes.htm
 `It's finally time for the N.B.A. and N.H.L. finals, and college softball takes the stage.`\
 https://nytimes.com/interactive/2023/06/01/sports/what-to-watch-nba-nhl-finals.html?searchResultPosition=4
 
-**Three Teens Killed and Ate a New York Village’s Beloved Swan, Police Say**\
+**3 Teens Killed and Ate a New York Village’s Beloved Swan, Police Say**\
 `The teenagers told the police that they thought the swan was a “very large duck,” and were not aware of the significance of swans to the village of Manlius.`\
 https://nytimes.com/2023/06/01/nyregion/manlius-ny-swan-eaten.html?searchResultPosition=5
 
