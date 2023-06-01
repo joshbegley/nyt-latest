@@ -2,7 +2,7 @@
 `Why the budget cuts in the debt ceiling deal are smaller than advertised.`\
 https://nytimes.com/interactive/2023/05/31/upshot/debt-ceiling-side-deals.html?searchResultPosition=1
 
-**Raising the Debt Limit: See Who Voted For and Against**\
+**See Who Voted For and Against Raising the Debt Limit**\
 `Raising the Debt Limit: House Live Vote`\
 https://nytimes.com/interactive/2023/05/31/us/politics/house-debt-limit-live-vote.html?searchResultPosition=2
 
