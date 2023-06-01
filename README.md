@@ -2,7 +2,7 @@
 `The N.B.A. finals are certain to feature some great passes. Can you guess who catches these ones?`\
 https://nytimes.com/interactive/2023/05/31/sports/basketball/nba-playoffs-passing-scoring.html?searchResultPosition=1
 
-**House Votes to Pass Debt Ceiling Bill**\
+**McCarthy Gives Remarks on Debt Ceiling Bill**\
 `In a 314-117 vote, lawmakers agreed to suspend the federal debt ceiling for two years, days before the U.S. was projected to exhaust its borrowing power.`\
 https://nytimes.com/video/us/politics/100000008932267/debt-ceiling-house-vote.html?searchResultPosition=2
 
