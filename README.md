@@ -4,7 +4,7 @@ https://nytimes.com/2023/06/01/technology/meta-privacy-lawsuit-district-of-colum
 
 **Capes, Couture and Prince William at the Royal Wedding in Jordan**\
 `Jill Biden and a whole lot of royals from around the world made for a study in modest chic at the wedding of Hussein, the crown prince of Jordan, to Rajwa Al Saif.`\
-https://nytimes.com/2023/06/01/style/the-jordanian-royal-fashion.html?searchResultPosition=2
+https://nytimes.com/2023/06/01/style/jordan-hussein-royal-wedding-fashion.html?searchResultPosition=2
 
 **9 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
