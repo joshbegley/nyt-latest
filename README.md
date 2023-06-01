@@ -12,7 +12,7 @@ https://nytimes.com/2023/06/01/us/politics/trump-desantis-cuomo-covid-florida.ht
 
 **30 Shows to Watch This Summer**\
 `The highlights includes new seasons of “Black Mirror,” “Reservation Dogs,” “What We Do in the Shadows” and “The Witcher.”`\
-https://nytimes.com/2023/06/01/arts/television/30-shows-to-watch-this-summer.html?searchResultPosition=4
+https://nytimes.com/2023/06/01/arts/television/summer-tv-shows.html?searchResultPosition=4
 
 **‘Shooting Stars’ Review: Brotherly Love and Basketball**\
 `While hard to justify, this fictionalized portrayal of a young LeBron James and his high school team’s rise is buoyed by five young actors.`\
