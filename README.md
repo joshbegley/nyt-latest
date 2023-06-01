@@ -1,40 +1,40 @@
-**Republican Ex-Candidate Faces Federal Charges Over Shootings**\
-`Solomon Peña, who lost a bid for a seat in the New Mexico Legislature in 2022, is accused of orchestrating shootings at Democratic officials’ homes. He also faces state charges.`\
-https://nytimes.com/2023/06/01/us/elections/solomon-pena-new-mexico-shootings.html?searchResultPosition=1
+**In California’s Heartland, a New Resistance Movement Is Taking Root**\
+`How do you change a place as polluted and desperately unequal as the San Joaquin Valley?`\
+https://nytimes.com/2023/06/01/magazine/fresno-politics-poverty.html?searchResultPosition=1
 
-**Conflict With the Far Right Shrouds Jerusalem’s Pride Parade**\
-`Much of Israel’s L.G.B.T.Q. community feels threatened by the right-wing government and its judicial overhaul plan — even with a gay speaker of Parliament.`\
-https://nytimes.com/2023/06/01/world/middleeast/jerusalem-gay-pride-parade.html?searchResultPosition=2
+**9 New Books Coming in June**\
+`Elliot Page discusses his gender transition in a new memoir, and S.A. Cosby returns with a police thriller. Also: New Lorrie Moore!`\
+https://nytimes.com/2023/06/01/books/new-books-summer-june.html?searchResultPosition=2
 
-**The Balenciaga Comeback Is Happening**\
-`At the Cannes Film Festival, the Met Gala and with a new collection. Is the world ready?`\
-https://nytimes.com/2023/06/01/style/balenciaga-cannes-comeback.html?searchResultPosition=3
+**Haiti Has Overcome Other Crises. This Time, We Can’t Do It Alone.**\
+`Over the past several months, it has become clear that we cannot recover without foreign intervention.`\
+https://nytimes.com/2023/06/01/opinion/international-world/haiti-crisis-foreign-intervention.html?searchResultPosition=3
 
-**Stony Brook University to Receive $500 Million, an Uncommonly Large Gift**\
-`Gifts of that size are rare for universities. They’re even rarer for a public institution like Stony Brook, part of New York’s state university system.`\
-https://nytimes.com/2023/06/01/nyregion/stony-brook-university-gift.html?searchResultPosition=4
+**The Newest High-End Amenity: Houses That Come With Horses**\
+`In Mexico, developers are raising the luxury game by offering buyers a herd of polo ponies to go with the infinity pools and ocean views.`\
+https://nytimes.com/2023/06/01/realestate/houses-sale-mexico-horses.html?searchResultPosition=4
 
-**What Your Mustache Says About You**\
-`Why does every man who catches your eye have a mustache?`\
-https://nytimes.com/2023/06/01/style/mustaches.html?searchResultPosition=5
+**I’m On Strike With the W.G.A. I Owe My Father at Least That Much.**\
+`I watched how corporate greed devoured my father’s life. So this W.G.A. strike feels personal to me.`\
+https://nytimes.com/2023/06/01/opinion/wga-hollywood-writers-strike-unions.html?searchResultPosition=5
 
-**In the N.B.A. Playoffs, Flopping Is a Welcome Sideshow**\
-`Basketball stars from Nikola Jokic to Kyle Lowry are hamming up their reactions to even the slightest contact, writes our columnist. They could benefit from an acting lesson.`\
-https://nytimes.com/2023/06/01/sports/basketball/nba-playoffs-flopping.html?searchResultPosition=6
+**The Inspirations Behind ‘Spider-Man: Across the Spider-Verse’**\
+`The directors of this sequel discuss their diverging influences, from Leonardo da Vinci to the movie “Say Anything.”`\
+https://nytimes.com/2023/06/01/movies/spider-man-across-the-spider-verse-influences.html?searchResultPosition=6
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/06/01/crosswords/spelling-bee-forum.html?searchResultPosition=7
+**Iceland Is a Magnet for Tourists. Its First Lady Has Some Advice for Them.**\
+`Eliza Reid, a former U.N. tourism ambassador and the wife of President Gudni Johannesson, welcomes her country’s many visitors, and has a few suggestions on safety, respect and how to meet locals.`\
+https://nytimes.com/2023/06/01/travel/iceland-tourism-eliza-reid.html?searchResultPosition=7
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/06/01/crosswords/wordle-review-answer-712.html?searchResultPosition=8
+**X-Ray Vision Brings New Life to a Fossil Flattened by Time**\
+`Scientists were able to unlock the identity of an ichthyosaur that had been reduced to a two-dimension jumble of bones.`\
+https://nytimes.com/2023/06/01/science/ichthyosaur-fossil-x-ray.html?searchResultPosition=8
 
-**Word of the Day: tentative**\
-`This word has appeared in 250 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/06/01/learning/word-of-the-day-tentative.html?searchResultPosition=9
+**Talk of Racism Proves Thorny for G.O.P. Candidates of Color**\
+`As candidates like Tim Scott and Nikki Haley bolster their biographies with stories of discrimination, they have often denied the existence of systemic racism in America while describing situations that sound just like it.`\
+https://nytimes.com/2023/06/01/us/politics/republicans-race-scott-haley.html?searchResultPosition=9
 
-**Your Thursday Briefing**\
-`Russia’s response to drone strikes on Moscow.`\
-https://nytimes.com/2023/06/01/briefing/moscow-drone-strikes-europe-batteries.html?searchResultPosition=10
+**Dave Eggers Wants Readers to See How the Sausage Is Made**\
+`Through the Young Editors Project, the author puts drafts of a work in progress in the hands of people it’s intended for.`\
+https://nytimes.com/2023/06/01/books/review/the-eyes-and-the-impossible-dave-eggers.html?searchResultPosition=10
 
