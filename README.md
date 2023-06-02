@@ -6,7 +6,7 @@ https://nytimes.com/2023/06/02/us/gavin-newsom-california-effect.html?searchResu
 `Roundabout Theater Company’s flagship theater will honor Haimes, the transformational leader who died in April.`\
 https://nytimes.com/2023/06/02/theater/todd-haimes-theater-broadway.html?searchResultPosition=2
 
-**Only 7 Black Students Are Admitted to Stuyvesant High School, Out of 762**\
+**Stuyvesant High School Admitted 762 New Students. Only 7 Are Black.**\
 `New York City’s specialized high schools represent perhaps the highest-profile symbol of segregation in the nation’s largest school system.`\
 https://nytimes.com/2023/06/02/nyregion/stuyvesant-high-school-black-students.html?searchResultPosition=3
 
