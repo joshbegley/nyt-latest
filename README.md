@@ -23,7 +23,7 @@ https://nytimes.com/2023/06/02/us/catholic-church-sex-abuse-investigations.html?
 https://nytimes.com/2023/06/02/sports/tennis/french-open-sabalenka-ukraine.html?searchResultPosition=6
 
 **This Year’s Spelling Bee Champion Didn’t Schweat the Schwa**\
-`After six years of studying, it took Dev Shah only 43 seconds to reach the apotheosis of his craft and become the national champion on Thursday night.`\
+`After three years of studying, it took Dev Shah about 45 seconds to reach the apotheosis of his craft and become the national champion on Thursday night.`\
 https://nytimes.com/2023/06/02/us/dev-shah-scripps-spelling-bee-winner.html?searchResultPosition=7
 
 **Steve Garvey, All-Star for the Dodgers and Padres, Explores Senate Run in California**\
