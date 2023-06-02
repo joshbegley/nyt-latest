@@ -4,7 +4,7 @@ https://nytimes.com/video/us/politics/100000008935693/biden-debt-ceiling.html?se
 
 **Cynthia Weil, Who Put Words to That ‘Lovin’ Feeling,’ Dies at 82**\
 `With her husband and songwriting partner, Barry Mann, she wrote lyrics for timeless hits by the Righteous Brothers, the Animals and Dolly Parton.`\
-https://nytimes.com/2023/06/02/arts/music/cynthia-weil-who-put-words-to-that-lovin-feeling-dies-at-82.html?searchResultPosition=2
+https://nytimes.com/2023/06/02/arts/music/cynthia-weil-dead.html?searchResultPosition=2
 
 **Go Forth and Argue**\
 `For University of Chicago graduates, I celebrated the need to profoundly disagree.`\
