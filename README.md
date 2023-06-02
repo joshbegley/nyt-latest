@@ -2,8 +2,8 @@
 `With mom-approved sheet-pan shrimp with white beans and lemon.`\
 https://nytimes.com/2023/06/02/dining/perfectly-grilled-chicken-roasted-mushroom-larb-and-spaghetti-with-fried-eggs.html?searchResultPosition=1
 
-**Ilya Kabakov, Soviet-Born Artist of Immersive Installations, Dies at 89**\
-`His work was witty and fantastical, and in paintings, drawings and installations, he explored the privations and indignities of life during the Soviet era.`\
+**Ilya Kabakov, 89, Dies; Soviet-Born Artist Skewered Grimness With Wit**\
+`In often fantastical paintings, drawings and immersive installations, he explored the privations and indignities of the Soviet life he would flee, landing on Long Island.`\
 https://nytimes.com/2023/06/02/arts/ilya-kabakov-dead.html?searchResultPosition=2
 
 **Review: Julia Wolfe’s ‘unEarth’ Is Crowded Out by Multimedia**\
