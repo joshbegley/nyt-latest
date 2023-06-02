@@ -19,7 +19,7 @@ https://nytimes.com/2023/06/02/us/yellowstone-park-bison-calf.html?searchResultP
 https://nytimes.com/2023/06/02/opinion/drug-shortage.html?searchResultPosition=5
 
 **Lawyers Unable to Find Document Trump Discussed in Recorded Conversation**\
-`Prosecutors issued a subpoena for a description of military options for Iran mentioned by the former president during an interview. But Mr. Trump’s legal team could find no such document.`\
+`Prosecutors issued a subpoena for a description of military options for Iran mentioned by the former president during an interview. But Mr. Trump’s legal team said they could find no such document.`\
 https://nytimes.com/2023/06/02/us/politics/classified-documents-trump-recording.html?searchResultPosition=6
 
 **In Finland, NATO’s Newest Member, Blinken Details Russia’s ‘Failures’**\
