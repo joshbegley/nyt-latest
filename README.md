@@ -10,7 +10,7 @@ https://nytimes.com/2023/06/02/technology/don-bateman-dead.html?searchResultPosi
 `A federal judge veered toward leniency with more junior members of the group who were involved in the attack on the Capitol, issuing lighter sentences than prosecutors had sought.`\
 https://nytimes.com/2023/06/02/us/politics/oath-keepers-sentences-sedition-capitol-riot.html?searchResultPosition=3
 
-**Atlanta Officials Target Bail Fund in Crackdown on ‘Cop City’ Protests**\
+**Georgia Officials Target Bail Fund in Crackdown on ‘Cop City’ Protests**\
 `The arrest of three activists for financial crimes has been assailed as retaliation for lawful protests. Officials said the three had “facilitated and encouraged domestic terrorism.”`\
 https://nytimes.com/2023/06/02/us/cop-city-atlanta-protests.html?searchResultPosition=4
 
