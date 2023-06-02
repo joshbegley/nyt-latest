@@ -1,40 +1,40 @@
-**A Barcelona Star Chases Trophies and Answers**\
-`In her quest to become a “complete” player, Aitana Bonmatí wants to know everything. As she prepares for a fourth Champions League final, it’s working.`\
-https://nytimes.com/2023/06/02/sports/soccer/barcelona-champions-league-final.html?searchResultPosition=1
+**‘It’s About Connections’: Alicia Graf Mack Remakes Juilliard Dance**\
+`Mack, whom one student called an agent of change, wants to “create a place where people feel like themselves” — and a model for the professional world.`\
+https://nytimes.com/2023/06/02/arts/dance/alicia-graf-mack-juilliard.html?searchResultPosition=1
 
-**Investors Have Soured on China’s Stocks, Renewing Fears About Economy**\
-`They initially reacted enthusiastically to China’s reversal of pandemic restrictions but have since taken a dimmer view of the country’s recovery.`\
-https://nytimes.com/2023/06/02/business/china-stocks-hang-seng-csi-300.html?searchResultPosition=2
+**Will a Dollar General Ruin a Rural Crossroads?**\
+`A fight over a proposed chain store is also about what “country” means to different people in a small community.`\
+https://nytimes.com/2023/06/02/business/dollar-general-ebony-virginia.html?searchResultPosition=2
 
-**She Attacked Israel and the N.Y.P.D. It Made Her Law School a Target.**\
-`A student gave a commencement address at the famously progressive CUNY law school. Two weeks later, she was attacked by the tabloids and the mayor, and the school disavowed her speech.`\
-https://nytimes.com/2023/06/02/nyregion/cuny-law-speech-mohammed.html?searchResultPosition=3
+**Beyond Bodrum, a Boom in Turkish Waterfront Homes**\
+`For years, Bodrum has been the focus of international tourism and investment. Recently, these three waterfront areas have started to catch up.`\
+https://nytimes.com/2023/06/02/realestate/turkey-waterfront-homes.html?searchResultPosition=3
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/06/02/crosswords/spelling-bee-forum.html?searchResultPosition=4
+**Priced Out of the City, They Bought a Tiny Suburban Home. Now What?**\
+`The 900-square-foot house had three bedrooms, but the children’s were shoe-box size. Updating them required ingenuity and ideas from “An American in Paris.”`\
+https://nytimes.com/2023/06/02/realestate/small-home-maplewood-nj.html?searchResultPosition=4
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/06/02/crosswords/wordle-review-answer-713.html?searchResultPosition=5
+**Summertime in America, Beneath the Surface**\
+`A new book of photographs by Larry Sultan captures recreational swimmers at public pools in 1970s and ‘80s California.`\
+https://nytimes.com/2023/06/02/books/larry-sultan-swimmers.html?searchResultPosition=5
 
-**The Sports to Watch This Weekend**\
-`We’re getting closer to crowning champions in pro hockey and basketball, while college softball is showcasing the best of its sport.`\
-https://nytimes.com/2023/06/02/sports/the-sports-to-watch-this-weekend.html?searchResultPosition=6
+**A TriBeCa Loft Where Rafael Viñoly Worked, and Played the Piano**\
+`The architect had used the prewar apartment on West Broadway as a design studio and a place to make music. It is now on the market for $2.5 million.`\
+https://nytimes.com/2023/06/02/realestate/tribeca-loft-sale-rafael-vinoly.html?searchResultPosition=6
 
-**Big, Incredible Journeys in an Incredibly Big Country**\
-`Trips across Australia are often necessarily trips at a striking scale.`\
-https://nytimes.com/2023/06/02/world/australia/australia-journeys-uni-scooter.html?searchResultPosition=7
+**An Avian Murder Case on a Quiet Back Porch**\
+`A nest was assaulted. The main suspect: A nonnative sparrow.`\
+https://nytimes.com/2023/06/02/climate/bird-nest-sparrows.html?searchResultPosition=7
 
-**Word of the Day: dismissive**\
-`This word has appeared in 174 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/06/02/learning/word-of-the-day-dismissive.html?searchResultPosition=8
+**The New York Times News Quiz, June 2, 2023**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2023/06/02/briefing/news-quiz-debt-ceiling-succession-holmes.html?searchResultPosition=8
 
-**A spell-off that wasn’t, and a gantlet of schwas: Takeaways from the spelling bee.**\
-`All of the finalists Thursday night could spell schwa, no doubt. It was the sound it makes that foiled many of them.`\
-https://nytimes.com/2023/06/02/us/scripps-national-spelling-bee-takeaways.html?searchResultPosition=9
+**Making the Most of 900 Square Feet**\
+`The tiny house had three bedrooms, but the children’s were shoe-box size. Updating them required ingenuity and ideas from “An American in Paris.”`\
+https://nytimes.com/slideshow/2023/06/02/realestate/making-the-most-of-900-square-feet.html?searchResultPosition=9
 
-**Tiananmen Exhibit Is ‘a Symbol of Defiance’**\
-`A new display on the 1989 massacre is set to open in Manhattan, two years after a Tiananmen museum closed in Hong Kong.`\
-https://nytimes.com/2023/06/02/nyregion/tiananmen-square-exhibit.html?searchResultPosition=10
+**Even in Prison, She’s ‘an Indomitable Voice’ for Freedom in Iran**\
+`Fighting for change has cost Narges Mohammadi her career, separated her from family and deprived her of liberty. But a jail cell has not succeeded in silencing her.`\
+https://nytimes.com/2023/06/02/world/middleeast/narges-mohammadi-iran-political-prisoner.html?searchResultPosition=10
 
