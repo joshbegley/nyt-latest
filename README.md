@@ -16,7 +16,7 @@ https://nytimes.com/2023/06/02/world/americas/remains-mexico-call-center.html?se
 
 **What the Latest Investigations Into Catholic Church Sex Abuse Mean**\
 `About 20 state attorneys general have mounted investigations that have cataloged decades of abuse but yielded few criminal prosecutions.`\
-https://nytimes.com/2023/06/02/us/what-the-latest-investigations-into-catholic-church-sex-abuse-mean.html?searchResultPosition=5
+https://nytimes.com/2023/06/02/us/catholic-church-sex-abuse-investigations.html?searchResultPosition=5
 
 **Sabalenka Skips French Open News Conference Citing Her Mental Health**\
 `The Belarusian player faced questions about the war earlier in the week from a Ukrainian reporter. On Friday, with the tournament’s blessing, she did not attend her post-match news conference.`\
