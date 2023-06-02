@@ -10,7 +10,7 @@ https://nytimes.com/2023/06/02/books/arkansas-book-banning-law-lawsuit.html?sear
 `With mom-approved sheet-pan shrimp with white beans and lemon.`\
 https://nytimes.com/2023/06/02/dining/perfectly-grilled-chicken-roasted-mushroom-larb-and-spaghetti-with-fried-eggs.html?searchResultPosition=3
 
-**Ilya Kabakov, 89, Dies; Soviet-Born Artist Skewered Grimness With Wit**\
+**Ilya Kabakov, 89, Dies; Soviet-Born Artist Depicted Grimness With Wit**\
 `In often fantastical paintings, drawings and immersive installations, he explored the privations and indignities of the Soviet life he would flee, landing on Long Island.`\
 https://nytimes.com/2023/06/02/arts/ilya-kabakov-dead.html?searchResultPosition=4
 
