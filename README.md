@@ -1,4 +1,4 @@
-**Turkey’s Weakened Economy Isn’t Looking Better Since Erdogan’s Victory**\
+**For Turkey, Erdogan Victory Brings More Risky Economic Policy**\
 `The Turkish lira has hit a new low, and analysts see few improvements ahead as re-elected President Erdogan pursues unconventional economic policies.`\
 https://nytimes.com/2023/06/02/business/economy/turkey-economy-erdogan-inflation.html?searchResultPosition=1
 
