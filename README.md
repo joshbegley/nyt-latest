@@ -2,7 +2,7 @@
 `The $1.19 billion agreement, announced by Chemours, DuPont and Corteva, wouldn’t resolve all the claims against them.`\
 https://nytimes.com/2023/06/02/business/pfas-pollution-settlement.html?searchResultPosition=1
 
-**‘Crisis Averted’ by the Debt Ceiling Deal, Biden Says**\
+**President Biden Speaks About the Debt Ceiling Deal**\
 `President Biden addressed the nation after Congress passed legislation that narrowly averted the first-ever default on the country’s debt.`\
 https://nytimes.com/video/us/politics/100000008935693/biden-debt-ceiling.html?searchResultPosition=2
 
