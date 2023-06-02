@@ -32,7 +32,7 @@ https://nytimes.com/video/world/africa/100000008935272/senegal-west-africa-prote
 
 **Up to 50 Feared Dead in Train Crash in India**\
 `Hundreds more were injured in the crash, which Indian news reports said occurred after at least 10 train cars derailed.`\
-https://nytimes.com/2023/06/02/world/canada/india-train-accident-odisha.html?searchResultPosition=9
+https://nytimes.com/2023/06/02/world/asia/india-train-accident-odisha.html?searchResultPosition=9
 
 **A Biography Sheds Light on an Unknown Brazilian Hero**\
 `Larry Rohter’s “Into the Amazon” celebrates the exploits of Cândido Rondon, the trailblazing explorer, scientist, statesman and more.`\
