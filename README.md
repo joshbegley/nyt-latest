@@ -1,6 +1,6 @@
 **Wait, When Did Mark Zuckerberg Go Rambo?**\
 `It’s been a tough run for Meta, and the boss seems to be getting out some aggression with military-style workouts and Brazilian jujitsu.`\
-https://nytimes.com/2023/06/02/style/wait-when-did-mark-zuckerberg-go-rambo.html?searchResultPosition=1
+https://nytimes.com/2023/06/02/style/mark-zuckerberg-workout.html?searchResultPosition=1
 
 **How to Use A.I. to Edit and Generate Stunning Photos**\
 `An A.I.-powered version of  Photoshop and the image generator Midjourney live up to the hype.`\
