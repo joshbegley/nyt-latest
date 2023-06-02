@@ -20,7 +20,7 @@ https://nytimes.com/interactive/2023/06/02/briefing/the-weekender.html?searchRes
 
 **Ajay Banga Era Begins at the World Bank**\
 `The incoming president will be under pressure to juggle the global institution’s ambitions to combat climate change and fight poverty.`\
-https://nytimes.com/2023/06/02/business/ajay-banga-world-bank.html?searchResultPosition=6
+https://nytimes.com/2023/06/02/business/economy/ajay-banga-world-bank.html?searchResultPosition=6
 
 **The Treasury Paradox**\
 `Treasuries have been threatened by a possible U.S. debt default, yet they remain more attractive than just about everything else, our columnist says.`\
