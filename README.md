@@ -1,4 +1,4 @@
-**Raising the Debt Limit: Live Senate Vote**\
+**Live: See How Each Senator Is Voting on the Debt Limit**\
 `Raising the Debt Limit: Senate Live Vote`\
 https://nytimes.com/interactive/2023/06/01/us/politics/senate-debt-limit-live-vote.html?searchResultPosition=1
 
