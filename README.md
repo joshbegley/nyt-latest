@@ -12,7 +12,7 @@ https://nytimes.com/video/us/politics/100000008934696/blinken-finland-nato-russi
 
 **Can You Survive Summer?**\
 `Are you prepared for the challenges of summer? Take our quiz to find out.`\
-https://nytimes.com/interactive/2023/06/02/well/live/well-summer-quiz.html?searchResultPosition=4
+https://nytimes.com/interactive/2023/06/02/well/live/summer-risks-quiz.html?searchResultPosition=4
 
 **Read the document**\
 `Wordle Golf rules card.`\
