@@ -6,7 +6,7 @@ https://nytimes.com/2023/06/01/us/politics/child-migrant-death.html?searchResult
 `The eighth grader from Florida won the Scripps National Spelling Bee — and $50,000. The winning word was “psammophile,” an organism that prefers or thrives in sandy areas.`\
 https://nytimes.com/video/us/100000008934294/spelling-bee-champion.html?searchResultPosition=2
 
-**See How Each Senator Voted on the Debt Limit**\
+**See How Each Senator Voted on Raising the Debt Limit**\
 `Raising the Debt Limit: Senate Live Vote`\
 https://nytimes.com/interactive/2023/06/01/us/politics/senate-debt-limit-live-vote.html?searchResultPosition=3
 
