@@ -14,7 +14,7 @@ https://nytimes.com/2023/06/02/nyregion/dead-humpback-whales-ny-nj.html?searchRe
 `Exclusively from New York Times Audio, our new app.`\
 https://nytimes.com/2023/06/02/podcasts/headlines-nyt-audio-app.html?searchResultPosition=4
 
-**1 N.B.A. Finals Team Will Get a Trophy. But Will Either Get Respect?**\
+**One N.B.A. Finals Team Will Get a Trophy. But Will Either Get Respect?**\
 `Both the Denver Nuggets and the Miami Heat believe they have been disrespected and are using that as motivation as they compete for a championship.`\
 https://nytimes.com/2023/06/02/sports/basketball/denver-nuggets-miami-heat-game-1.html?searchResultPosition=5
 
