@@ -16,7 +16,7 @@ https://nytimes.com/2023/06/01/crosswords/variety-acrostic.html?searchResultPosi
 
 **Party Animal**\
 `John Ewbank’s puzzle has our Friday jumping.`\
-https://nytimes.com/2023/06/01/crosswords/party-animal.html?searchResultPosition=5
+https://nytimes.com/2023/06/01/crosswords/daily-puzzle-2023-06-02.html?searchResultPosition=5
 
 **Corrections: June 2, 2023**\
 `Corrections that appeared in print on Friday, June 2, 2023.`\
