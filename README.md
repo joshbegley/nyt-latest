@@ -14,7 +14,7 @@ https://nytimes.com/2023/06/03/business/who-is-liable-for-ai-creations.html?sear
 `An editor recommends old and new books.`\
 https://nytimes.com/2023/06/03/books/larking-library-sales-and-yellow-silk-pajamas.html?searchResultPosition=4
 
-**Modi Arrives at Scene of Train Crash That Killed Over 260 in India**\
+**Modi Arrives at Scene of Train Crash That Killed Over 280 in India**\
 `The disaster, which officials said had involved three trains, had a stark toll even given India’s history of deadly crashes.`\
 https://nytimes.com/2023/06/03/world/asia/india-train-crash.html?searchResultPosition=5
 
