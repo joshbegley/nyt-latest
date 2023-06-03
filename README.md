@@ -7,7 +7,7 @@ https://nytimes.com/2023/06/03/world/europe/belgorod-russia-ukraine-war.html?sea
 https://nytimes.com/2023/06/03/crosswords/todays-wordle-answer-714.html?searchResultPosition=2
 
 **3 Israeli Soldiers Killed in Rare Attack on Egyptian Border**\
-`The suspect was identified by the Israeli and Egyptian authorities as an Egyptian security officer. The deadly sequence of events may be connected to a thwarted drug smuggling attempt, the Israeli military said.`\
+`The suspect was identified by the Israeli and Egyptian authorities as an Egyptian security officer. The deadly event may be connected to a thwarted drug smuggling attempt, the Israelis said.`\
 https://nytimes.com/2023/06/03/world/middleeast/israel-egypt-border-shootings.html?searchResultPosition=3
 
 **‘Doing the Work’ and the Obsession With Superficial Self-Improvement**\
