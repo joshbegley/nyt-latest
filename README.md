@@ -4,7 +4,7 @@ https://nytimes.com/2023/06/03/world/canada/canada-letter-privy-council-clerk.ht
 
 **Car Bombing in Russian-Occupied Ukraine Shows Reach of War**\
 `The blast in the Zaporizhzhia region of southern Ukraine killed a cafe owner who was registered to run in elections seen as an attempt to legitimize Moscow’s illegal annexation of the area.`\
-https://nytimes.com/2023/06/03/world/europe/ukraine-russia-war.html?searchResultPosition=2
+https://nytimes.com/2023/06/03/world/europe/ukraine-russia-war-car-bomb.html?searchResultPosition=2
 
 **10 Movies That Capture the Essence of New York**\
 `With the Tribeca Festival around the corner, it’s a fitting time to look back at the memorable ways cinema has given New York City a featured role.`\
