@@ -1,5 +1,5 @@
 **New Hampshire Man Is Arrested After Threatening to Kill U.S. Senator**\
-`In a voice mail message, the man told the senator was that he was “a dead man walking,” according to federal court documents. He was angry about the blocking of military promotions, prosecutors said.`\
+`In a voice mail message, the man told the senator that he was “a dead man walking,” according to federal court documents. He was angry about the blocking of military promotions, prosecutors said.`\
 https://nytimes.com/2023/06/03/us/politics/senator-death-threat-nh.html?searchResultPosition=1
 
 **These are some of the deadliest rail disasters in India’s recent history.**\
