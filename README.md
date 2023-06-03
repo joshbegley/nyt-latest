@@ -1,6 +1,6 @@
 **Biden Signs Fiscal Responsibility Act in End to Debt Limit Crisis**\
 `Now that the bill is law, the nation will not risk running out of money to pay its obligations for two years.`\
-https://nytimes.com/2023/06/03/us/politics/president-biden-signs-debt-bill.html?searchResultPosition=1
+https://nytimes.com/2023/06/03/us/politics/biden-debt-bill.html?searchResultPosition=1
 
 **Judge Finds Tennessee Law Aimed at Restricting Drag Shows Unconstitutional**\
 `The law, one of the first aimed at curbing drag performances in front of children, had been on hold for nearly two months as the legal battle went on.`\
