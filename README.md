@@ -1,6 +1,6 @@
 **Chuck Todd to Leave ‘Meet the Press’**\
 `He will be succeeded by Kristen Welker, NBC’s chief White House correspondent and the co-anchor of “Weekend Today.”`\
-https://nytimes.com/2023/06/04/business/media/chuck-todd-to-leave-meet-the-press.html?searchResultPosition=1
+https://nytimes.com/2023/06/04/business/media/chuck-todd-meet-the-press.html?searchResultPosition=1
 
 **College Grads, Do ‘Follow Your Passions’**\
 `Advice for college graduates. Also: Right-to-shelter laws; the work commute; teaching reading; Ron DeSantis and Clarence Thomas.`\
