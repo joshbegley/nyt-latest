@@ -36,5 +36,5 @@ https://nytimes.com/2023/06/04/world/asia/china-us-security-ships.html?searchRes
 
 **Verstappen Dominating Grand Prix in Spain**\
 `A comfortable race so far for Max Verstappen.`\
-https://nytimes.com/2023/06/04/sports/autoracing/spanish-grand-prix-tv-time-results.html?searchResultPosition=10
+https://nytimes.com/2023/06/04/sports/autoracing/f1-spanish-grand-prix-tv-time-results.html?searchResultPosition=10
 
