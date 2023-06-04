@@ -4,7 +4,7 @@ https://nytimes.com/2023/06/04/world/asia/india-train-crash.html?searchResultPos
 
 **Silent Greeting**\
 `Eric Rollfing lets us in.`\
-https://nytimes.com/2023/06/04/crosswords/daily-puzzle-06-05.html?searchResultPosition=2
+https://nytimes.com/2023/06/04/crosswords/daily-puzzle-2023-06-05.html?searchResultPosition=2
 
 **Will Alcaraz and Djokovic Finally Get to Play Each Other at the French Open?**\
 `If everything goes right in the quarterfinals Tuesday for Alcaraz and Djokovic, the two most dominant players on the men’s tour, the duel everyone has been waiting for will happen.`\
