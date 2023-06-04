@@ -10,7 +10,7 @@ https://nytimes.com/interactive/2023/06/04/world/asia/2023-06-03-india-train-cra
 `The noise, which startled residents and shook buildings, was caused by an authorized military flight, the emergency management agency in Annapolis, Md., said.`\
 https://nytimes.com/2023/06/04/us/sonic-boom-washington-dc-maryland.html?searchResultPosition=3
 
-**Anti-Government Protests in Serbia Grow in Size**\
+**Antigovernment Protests in Serbia Grow in Size**\
 `The protests, which began weeks earlier over back-to-back mass shootings, have grown into a wider revolt against Aleksandar Vucic, the country’s president.`\
 https://nytimes.com/video/world/europe/100000008936348/serbia-belgrade-protests.html?searchResultPosition=4
 
