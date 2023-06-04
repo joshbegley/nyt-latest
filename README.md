@@ -14,7 +14,7 @@ https://nytimes.com/2023/06/04/briefing/summer-cookout-tips.html?searchResultPos
 `As the team continues to celebrate its history, Gary Cohen, Howie Rose, Al Leiter and Howard Johnson were honored for their contributions over the years.`\
 https://nytimes.com/2023/06/04/sports/baseball/mets-hall-of-fame.html?searchResultPosition=4
 
-**China, U.S. Lay Out Rival Visions for Asia as Ships Nearly Collide**\
+**China and U.S. Lay Out Rival Visions for Asia as Ships Nearly Collide**\
 `China’s defense minister says the best way to avoid accidental conflict is for countries outside the region, like the United States, to leave and “mind your own business.”`\
 https://nytimes.com/2023/06/04/world/asia/china-us-security-ships.html?searchResultPosition=5
 
