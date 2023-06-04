@@ -26,8 +26,8 @@ https://nytimes.com/2023/06/04/sports/baseball/mets-hall-of-fame.html?searchResu
 `China’s defense minister says the best way to avoid accidental conflict is for countries outside the region, like the United States, to leave and “mind your own business.”`\
 https://nytimes.com/2023/06/04/world/asia/china-us-security-ships.html?searchResultPosition=7
 
-**Formula One Race Underway in Spain**\
-`To no one’s surprise, Max Verstappen took the early lead.`\
+**Verstappen Dominating Grand Prix in Spain**\
+`A comfortable race so far for Max Verstappen.`\
 https://nytimes.com/2023/06/04/sports/autoracing/spanish-grand-prix-tv-time-results.html?searchResultPosition=8
 
 **Ian Bostridge on Music’s Fuzzy Boundaries of Identity**\
