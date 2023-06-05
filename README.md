@@ -15,7 +15,7 @@ https://nytimes.com/2023/06/05/us/migrants-plane-sacramento-california.html?sear
 https://nytimes.com/2023/06/05/business/media/chris-licht-cnn-crisis.html?searchResultPosition=4
 
 **Robert Hanssen, F.B.I. Agent Exposed as Spy for Moscow, Dies at 79**\
-`He was sentenced to life in prison in 2002, bringing to a close one of the most lurid and damaging espionage cases in American history. His body was found in his cell.`\
+`Mr. Hanssen was sentenced to life in prison in 2002, bringing to a close one of the most lurid and damaging espionage cases in American history.`\
 https://nytimes.com/2023/06/05/us/robert-hanssen-spy-dead.html?searchResultPosition=5
 
 **Apple Debuts Its Next Big Product, a Virtual Reality Headset**\
