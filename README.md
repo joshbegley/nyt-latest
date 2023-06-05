@@ -16,7 +16,7 @@ https://nytimes.com/2023/06/05/world/europe/nazi-symbols-ukraine.html?searchResu
 
 **The Supreme Court Is Wrong About Andy Warhol**\
 `The artist was never concerned about copyright. He cared more about the right to copy, as an artistic method and a design for living.`\
-https://nytimes.com/2023/06/05/opinion/the-supreme-court-is-wrong-about-andy-warhol.html?searchResultPosition=5
+https://nytimes.com/2023/06/05/opinion/supreme-court-andy-warhol.html?searchResultPosition=5
 
 **Twitter’s U.S. Ad Sales Plunge 59% as Woes Continue**\
 `In internal forecasts, the company projected that ad sales would keep declining, handing a tough challenge to its new chief executive.`\
