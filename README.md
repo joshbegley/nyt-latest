@@ -31,7 +31,7 @@ https://nytimes.com/video/world/europe/100000008936478/poland-government-protest
 https://nytimes.com/2023/06/04/us/utah-bible-book-ban.html?searchResultPosition=8
 
 **California Officials Investigating Flight of Migrants to Sacramento**\
-`The state attorney general’s office said the migrants carried documents that specified a Florida government agency and a firm that dropped migrants in Martha’s Vineyard last year.`\
+`The state attorney general said the migrants carried documents that specified a Florida government agency and a company that dropped migrants in Martha’s Vineyard last year.`\
 https://nytimes.com/2023/06/04/us/migrants-california-church-texas.html?searchResultPosition=9
 
 **Kaija Saariaho’s Luminous Music Was a Personal Invitation**\
