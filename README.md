@@ -2,7 +2,7 @@
 `For months, U.S. officials said cross-border operations risked a dangerous escalation. But those fears have ebbed.`\
 https://nytimes.com/2023/06/05/us/politics/ukraine-attacks-inside-russia.html?searchResultPosition=1
 
-**‘The Idol’ Is the First Big TV Show of the Backlash Era**\
+**‘The Idol’ and Our Backlash Times**\
 `In HBO’s series, nostalgic sexism poses as transgression.`\
 https://nytimes.com/2023/06/05/opinion/the-idol-hbo-show-backlash.html?searchResultPosition=2
 
