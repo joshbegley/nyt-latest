@@ -1,5 +1,5 @@
 **In India, Trains Start Running Again by Devastating Crash Site**\
-`The restoration of service could help more families reach the area to identify the dead. Officials said about 100 still victims were still unclaimed.`\
+`The restoration of service could help more families reach the area to identify the dead. Officials said about 100 victims were still unclaimed.`\
 https://nytimes.com/2023/06/05/world/asia/india-train-crash.html?searchResultPosition=1
 
 **‘The Idol’ Series Premiere Recap: Does it Live Up (or Down) to the Hype?**\
