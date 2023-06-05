@@ -7,7 +7,7 @@ https://nytimes.com/2023/06/05/us/second-plane-carrying-migrants-arrives-in-sacr
 https://nytimes.com/2023/06/05/business/media/chris-licht-cnn-crisis.html?searchResultPosition=2
 
 **Robert Hanssen, F.B.I. Agent Exposed as Spy for Moscow, Dies at 79**\
-`Mr. Hanssen was sentenced to life in prison in 2002, bringing to a close one of the most lurid and damaging espionage cases in American history.`\
+`He was sentenced to life in prison in 2002, bringing to a close one of the most lurid and damaging espionage cases in American history. His body was found in his cell.`\
 https://nytimes.com/2023/06/05/us/robert-hanssen-spy-dead.html?searchResultPosition=3
 
 **Apple Debuts Its Next Big Product, a Virtual Reality Headset**\
