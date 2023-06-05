@@ -4,7 +4,7 @@ https://nytimes.com/2023/06/05/world/europe/poland-eu-rule-of-law-judicial-overh
 
 **Second Plane Carrying Migrants Arrives in Sacramento**\
 `About 20 migrants, who said they were mainly from Venezuela, arrived on Monday from the same airport in New Mexico where another planeload had taken off Friday.`\
-https://nytimes.com/2023/06/05/us/second-plane-carrying-migrants-arrives-in-sacramento.html?searchResultPosition=2
+https://nytimes.com/2023/06/05/us/migrants-plane-sacramento-california.html?searchResultPosition=2
 
 **Chris Licht of CNN Faces a Crisis. Here’s Why.**\
 `Mr. Licht, the network’s chief executive, said on an internal call on Monday that he would “fight like hell” to win back the trust of the network.`\
