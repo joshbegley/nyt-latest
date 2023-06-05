@@ -1,4 +1,4 @@
-**Dutch Rail System Is Disrupted, as Service to Amsterdam Is Halted**\
+**Dutch Rail System Is Disrupted as Service to Amsterdam Is Halted**\
 `Officials warned of delays across the country and told travelers not to come to the capital, as an IT problem persisted for a second day.`\
 https://nytimes.com/2023/06/05/world/europe/amsterdam-trains-netherlands.html?searchResultPosition=1
 
