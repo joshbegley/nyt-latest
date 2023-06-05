@@ -22,7 +22,7 @@ https://nytimes.com/2023/06/05/crosswords/todays-wordle-answer-716.html?searchRe
 `The highest levels of politics in the state are in chaos after the impeachment of a leading right-wing politician.`\
 https://nytimes.com/interactive/2023/06/05/us/politics/texas-ken-paxton-impeachment.html?searchResultPosition=6
 
-**Amsterdam Train Service Resumes After Disruption, but Problems Remain**\
+**Amsterdam Train Service Resumes, but Problems Remain**\
 `Officials in the Netherlands warned of delays across the country as technical issues persisted for a second day.`\
 https://nytimes.com/2023/06/05/world/europe/amsterdam-trains-netherlands.html?searchResultPosition=7
 
