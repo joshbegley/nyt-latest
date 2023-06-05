@@ -11,7 +11,7 @@ https://nytimes.com/2023/06/05/books/ama-ata-aidoo-dead.html?searchResultPositio
 https://nytimes.com/2023/06/05/world/americas/haiti-flooding-deaths.html?searchResultPosition=3
 
 **Oklahoma Approves First Religious Charter School in the U.S.**\
-`The school, which would offer online, Roman Catholic instruction funded by taxpayers, is almost certain to tee off a legal battle.`\
+`The approval of the school, which would offer online, Roman Catholic instruction funded by taxpayers, is almost certain to tee off a legal battle.`\
 https://nytimes.com/2023/06/05/us/oklahoma-first-religious-charter-school-in-the-us.html?searchResultPosition=4
 
 **Poland Rejects E.U. Ruling, Restarting a European Feud**\
