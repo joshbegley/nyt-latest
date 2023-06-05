@@ -8,7 +8,7 @@ https://nytimes.com/2023/06/05/world/asia/india-train-crash.html?searchResultPos
 
 **‘The Idol’ Series Premiere Recap: Does it Live Up (or Down) to the Hype?**\
 `Is this show about a pop star’s liberation or her subjugation? After Sunday night’s premiere, it’s still hard to tell.`\
-https://nytimes.com/2023/06/05/arts/television/the-idol-series-premiere-recap.html?searchResultPosition=3
+https://nytimes.com/2023/06/05/arts/television/the-idol-recap.html?searchResultPosition=3
 
 **As Assad’s Isolation Lifts, Syrian Refugees Fear Pressure to Return Home**\
 `Arab countries re-establishing diplomatic ties with Syria are making repatriation of Syrian refugees a top priority. “Even if they shoot me, I won’t go back,” a refugee in Lebanon said.`\
