@@ -34,7 +34,7 @@ https://nytimes.com/2023/06/05/theater/tony-awards-nominees-portraits-broadway.h
 `He is a broken human being who has not yet lost faith in the promise of wholeness.`\
 https://nytimes.com/2023/06/05/opinion/american-polarization-ted-lasso.html?searchResultPosition=9
 
-**When Society Collapses, These Traders Win Big**\
-`In “Chaos Kings,” Scott Patterson profiles the financiers who build their portfolios around daily losses, and — when disaster strikes — seismic gains.`\
-https://nytimes.com/2023/06/05/books/review/chaos-kings-scott-patterson.html?searchResultPosition=10
+**Biden-Trump, the Sequel, Has Quite a Few Plot Twists**\
+`For one thing, the president’s popularity — among Democrats and the public generally — is not where he (or his party) wants it to be.`\
+https://nytimes.com/2023/06/05/opinion/biden-trump-desantis-irs.html?searchResultPosition=10
 
