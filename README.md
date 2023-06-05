@@ -1,40 +1,40 @@
-**I’m Traveling in Both the City and the Country. What Shoes Should I Pack?**\
-`A suitcase can fit only so many shoes. A reader wonders which will guarantee style and comfort on an all-terrain vacation.`\
-https://nytimes.com/2023/06/05/style/vacation-packing-shoes.html?searchResultPosition=1
+**‘It’s Intoxicating’: 39 Tony-Nominated Performers on Why They Act**\
+`Each year we photograph Tony nominees, and talk with them about their craft. This year we focused on actors.`\
+https://nytimes.com/2023/06/05/theater/tony-awards-nominees-portraits-broadway.html?searchResultPosition=1
 
-**$1.3 Million Homes in California**\
-`A one-bedroom bungalow with a guesthouse in Los Osos, an 1870 Victorian in San Francisco and a three-bedroom cabin in Lake Arrowhead.`\
-https://nytimes.com/2023/06/05/realestate/million-dollar-homes-in-california.html?searchResultPosition=2
+**Why America Desperately Needed Ted Lasso**\
+`He is a broken human being who has not yet lost faith in the promise of wholeness.`\
+https://nytimes.com/2023/06/05/opinion/american-polarization-ted-lasso.html?searchResultPosition=2
 
-**How to Amplify Your Wordle Game**\
-`Introducing Wordle Golf, a new competitive way to play the daily guessing game.`\
-https://nytimes.com/2023/06/05/crosswords/wordle-golf.html?searchResultPosition=3
+**When Society Collapses, These Traders Win Big**\
+`In “Chaos Kings,” Scott Patterson profiles the financiers who build their portfolios around daily losses, and — when disaster strikes — seismic gains.`\
+https://nytimes.com/2023/06/05/books/review/chaos-kings-scott-patterson.html?searchResultPosition=3
 
-**No Corrections: June 5, 2023**\
-`No corrections appeared in print on Monday, June 5, 2023.`\
-https://nytimes.com/2023/06/05/pageoneplus/no-corrections-june-5-2023.html?searchResultPosition=4
+**Nazi Symbols on Ukraine’s Front Lines Highlight Thorny Issues of History**\
+`Troops’ use of patches bearing Nazi emblems risks fueling Russian propaganda and spreading imagery that the West has spent a half-century trying to eliminate.`\
+https://nytimes.com/2023/06/05/world/europe/nazi-symbols-ukraine.html?searchResultPosition=4
 
-**Oxford, but Not That Oxford: How a Tiny For-Profit School Suddenly Got Big**\
-`Oxford Business College and others like it make millions, largely by recruiting immigrants. They operate in an opaque corner of the British education system.`\
-https://nytimes.com/2023/06/05/world/europe/oxford-business-college.html?searchResultPosition=5
+**The Supreme Court Is Wrong About Andy Warhol**\
+`The artist was never concerned about copyright. He cared more about the right to copy, as an artistic method and a design for living.`\
+https://nytimes.com/2023/06/05/opinion/the-supreme-court-is-wrong-about-andy-warhol.html?searchResultPosition=5
 
-**Can Technology Solve the M.T.A.’s Persistent Fare Evasion Problem?**\
-`A study proposed new approaches to get riders to pay to ride New York City’s transit system, including replacing subway turnstiles with fare gates that are harder to jump over.`\
-https://nytimes.com/2023/06/05/nyregion/mta-fare-evasion.html?searchResultPosition=6
+**Twitter’s U.S. Ad Sales Plunge 59% as Woes Continue**\
+`In internal forecasts, the company projected that ad sales would keep declining, handing a tough challenge to its new chief executive.`\
+https://nytimes.com/2023/06/05/technology/twitter-ad-sales-musk.html?searchResultPosition=6
 
-**The 2024 G.O.P. Field Balloons This Week, Adding 3 New Candidates**\
-`Chris Christie, Mike Pence and Doug Burgum are set to announce their presidential campaigns this week, the latest entrants in a rapidly growing Republican primary.`\
-https://nytimes.com/article/christie-pence-burgum-2024-announce-president.html?searchResultPosition=7
+**Biden-Trump, the Sequel, Has Quite a Few Plot Twists**\
+`For one thing, the president’s popularity — among Democrats and the publicgenerally — is not where he (or his party) wants it to be.`\
+https://nytimes.com/2023/06/05/opinion/biden-trump-desantis-irs.html?searchResultPosition=7
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/06/05/crosswords/todays-wordle-answer-716.html?searchResultPosition=8
+**A Hijacked Plane, a Childhood Trauma Long Repressed**\
+`In a new memoir, the historian Martha Hodes explores her recollections of being held hostage on an airplane in 1970.`\
+https://nytimes.com/2023/06/05/books/review/my-hijacking-martha-hodes.html?searchResultPosition=8
 
-**A Political Earthquake in Texas**\
-`The highest levels of politics in the state are in chaos after the impeachment of a leading right-wing politician.`\
-https://nytimes.com/interactive/2023/06/05/us/politics/texas-ken-paxton-impeachment.html?searchResultPosition=9
+**The Relief: Finding an Apartment. The Remorse: Living In It.**\
+`A couple felt obligated to take the first apartment they saw in a crazy rental market. Then they wanted to move again, but cooler heads prevailed.`\
+https://nytimes.com/2023/06/05/realestate/rent-apartments-living-brooklyn.html?searchResultPosition=9
 
-**Amsterdam Train Service Resumes, but Problems Remain**\
-`Officials in the Netherlands warned of delays across the country as technical issues persisted for a second day.`\
-https://nytimes.com/2023/06/05/world/europe/amsterdam-trains-netherlands.html?searchResultPosition=10
+**Schools Received Billions in Stimulus Funds. It May Not Be Doing Enough.**\
+`Pandemic aid was supposed to help students recover from learning loss, but results have been mixed.`\
+https://nytimes.com/2023/06/05/us/politics/schools-stimulus-covid-pandemic-aid.html?searchResultPosition=10
 
