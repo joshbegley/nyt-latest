@@ -1,4 +1,4 @@
-**Stefanos Tsitsipas Takes On Doubles Tennis and His Kid Brother**\
+**Stefanos Tsitsipas Takes Up Doubles Tennis and His Kid Brother**\
 `Tsitsipas is aiming to beat Carlos Alcaraz in Paris on Tuesday in a French Open quarterfinal, but what he really wants is to help turn his younger brother Petros into a doubles champion.`\
 https://nytimes.com/2023/06/05/sports/tennis/french-open-tsitsipas-murray.html?searchResultPosition=1
 
