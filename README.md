@@ -2,7 +2,7 @@
 `Daniel Jaret achieves something wonderful.`\
 https://nytimes.com/2023/06/05/crosswords/daily-puzzle-2023-06-06.html?searchResultPosition=1
 
-**Trump Asks Judge to Stop New Defamation Case Filed by Carroll**\
+**Trump Asks Judge to Stop Carroll’s New Defamation Suit**\
 `Former President Donald J. Trump told a judge that he could not have defamed E. Jean Carroll by denying her rape accusation because a jury had found him liable only for sexually abusing her.`\
 https://nytimes.com/2023/06/05/nyregion/trump-e-jean-carroll-defamation-case.html?searchResultPosition=2
 
