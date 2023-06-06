@@ -1,5 +1,5 @@
 **Ukraine Dam Disaster: What We Know**\
-`A dam in southern Ukraine was split into half but it is unclear who caused the damage. Thousands are being evacuated as dangerous volumes of water gush downstream.`\
+`A dam in southern Ukraine was split in half, but it is unclear who caused the damage. Thousands are being evacuated as dangerous volumes of water gush downstream.`\
 https://nytimes.com/2023/06/06/world/europe/ukraine-dam-explainer.html?searchResultPosition=1
 
 **Corrections: June 6, 2023**\
@@ -12,7 +12,7 @@ https://nytimes.com/2023/06/06/world/europe/d-days-beaches-climate-change.html?s
 
 **Make Way for the Bike Bus**\
 `For the school commute, families are taking to the streets with two wheels. Some have termed the movement “kidical mass.”`\
-https://nytimes.com/2023/06/06/nyregion/make-way-for-the-bike-bus.html?searchResultPosition=4
+https://nytimes.com/2023/06/06/nyregion/bike-bus-cycling.html?searchResultPosition=4
 
 **Seven Underappreciated Birding Spots in New York**\
 `Sure, you know about Central Park and Flushing Meadows. But here are a few more birding locations worth checking out.`\
