@@ -1,40 +1,40 @@
-**Word of the Day: abeyance**\
-`This word has appeared in four articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/06/06/learning/word-of-the-day-abeyance.html?searchResultPosition=1
+**D-Day’s Historic Beaches Face a New Onslaught: Rising Seas**\
+`As climate change speeds coastal erosion in France, can memory be preserved if the famous landing sites of the Allied invasion disappear?`\
+https://nytimes.com/2023/06/06/world/europe/d-days-beaches-climate-change.html?searchResultPosition=1
 
-**Your Tuesday Briefing**\
-`Signs of a counteroffensive in Ukraine.`\
-https://nytimes.com/2023/06/06/briefing/ukraine-counteroffensive-flooding-haiti.html?searchResultPosition=2
+**Make Way for the Bike Bus**\
+`For the school commute, families are taking to the streets with two wheels. Some have termed the movement “kidical mass.”`\
+https://nytimes.com/2023/06/06/nyregion/make-way-for-the-bike-bus.html?searchResultPosition=2
 
-**Poland Isn’t the Friend the West Thinks It Is**\
-`Illiberalism in the country is alive and well.`\
-https://nytimes.com/2023/06/06/opinion/poland-ukraine-west-nato.html?searchResultPosition=3
+**Seven Underappreciated Birding Spots in New York**\
+`Sure, you know about Central Park and Flushing Meadows. But here are a few more birding locations worth checking out.`\
+https://nytimes.com/2023/06/06/science/new-york-city-birding.html?searchResultPosition=3
 
-**The Art of Reusing Plastic**\
-`The artists Beverly Barkat and Germane Barnes play with discarded plastic — including bottles, cups and printer cartridges — to explore the possibilities of reinventing waste.`\
-https://nytimes.com/2023/06/06/nyregion/the-art-of-reusing-plastic.html?searchResultPosition=4
+**A Reporter Investigated Sexual Misconduct. Then the Attacks Began.**\
+`After publishing an exposé, journalists in New Hampshire faced broken windows, vulgar graffiti and a legal brawl, with important First Amendment implications.`\
+https://nytimes.com/2023/06/06/business/media/eric-spofford-new-hampshire-public-radio.html?searchResultPosition=4
 
-**Critical Dam in Southern Ukraine Destroyed**\
-`Video verified by The New York Times shows a significant volume of water flowing freely through a destroyed dam and power plant in Nova Kakhovka, Ukraine, posing a threat to communities and infrastructure along the waterway.`\
-https://nytimes.com/video/world/europe/100000008938224/06ukraine-briefing-kakhovka-dam.html?searchResultPosition=5
+**Roadblocks and Red Tape: New York’s Cannabis Effort at a Crossroads**\
+`The state solicited entrepreneurs with cannabis convictions to open the first legal dispensaries, but the effort has fallen behind.`\
+https://nytimes.com/2023/06/06/nyregion/ny-marijuana-failing-rollout.html?searchResultPosition=5
 
-**Winners Get Their Due. But Losers Are Wonderfully Human.**\
-`There’s glory in defeat. Losses, at least, make athletes more relatable to the rest of us.`\
-https://nytimes.com/2023/06/06/sports/tennis/losers.html?searchResultPosition=6
+**Put a Bird on It? Ancient Egypt Was Way Ahead of Us.**\
+`A 3,300-year-old palace mural offers an exquisitely detailed view of several bird species, and presents an artistic mystery.`\
+https://nytimes.com/2023/06/06/science/ancient-egypt-birds.html?searchResultPosition=6
 
-**Prince Harry Puts Britain’s Press on Trial**\
-`The prince is getting his day in court as he takes on the tabloids that scrutinized his every move for years, even hacking his phone.`\
-https://nytimes.com/2023/06/06/world/europe/prince-harry-hacking-lawsuit.html?searchResultPosition=7
+**Another Debt-Limit Fight in the Halls of the Capitol**\
+`To cover an odd Washington spectacle, a reporter needs a combination of arcane knowledge and pure stamina.`\
+https://nytimes.com/2023/06/06/insider/another-debt-limit-fight-in-the-halls-of-the-capitol.html?searchResultPosition=7
 
-**The Full List of the 2023 James Beard Chef and Restaurant Award Winners**\
-`After facing questions about its new processes, the James Beard Foundation held its annual gala in Chicago on Monday.`\
-https://nytimes.com/2023/06/05/dining/2023-james-beard-award-chef-restaurant-winners.html?searchResultPosition=8
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2023/06/06/crosswords/spelling-bee-forum.html?searchResultPosition=8
 
-**Actors Authorize Potential Strike With Hollywood Writers Still Picketing**\
-`The vote does not guarantee a walkout. The actors and studios will begin negotiations on Wednesday.`\
-https://nytimes.com/2023/06/05/business/media/hollywood-actors-strike-vote.html?searchResultPosition=9
+**Cuba Gooding Jr. Faces Federal Lawsuit That Accuses Him of Rape**\
+`He pleaded guilty last year to a single charge that stemmed from an unwanted kiss. The civil trial that begins Tuesday will include the most serious accusation he has faced.`\
+https://nytimes.com/2023/06/06/nyregion/cuba-gooding-jr-rape-trial.html?searchResultPosition=9
 
-**Suffix for an Extravaganza**\
-`Daniel Jaret achieves something wonderful.`\
-https://nytimes.com/2023/06/05/crosswords/daily-puzzle-2023-06-06.html?searchResultPosition=10
+**Today’s Wordle Review**\
+`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
+https://nytimes.com/2023/06/06/crosswords/wordle-review-answer-717.html?searchResultPosition=10
 
