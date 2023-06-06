@@ -1,4 +1,4 @@
-**Merck Sues Over Law Empowering Medicare to Negotiate With Drug Makers**\
+**Merck Sues Over Law Empowering Medicare to Negotiate With Drugmakers**\
 `The company is heavily reliant on a cancer drug that could be targeted by a program intended to lower drug prices.`\
 https://nytimes.com/2023/06/06/business/merck-medicare-drug-prices.html?searchResultPosition=1
 
