@@ -2,7 +2,7 @@
 `After months of widespread protests failed to budge the government, opponents acknowledge that the chances of turning the tide now are slim.`\
 https://nytimes.com/2023/06/06/world/europe/france-pension-plan-protests.html?searchResultPosition=1
 
-**PGA Tour and LIV Golf to Merge**\
+**PGA Tour and LIV Golf Agree to Merger**\
 `In a stunning announcement, the tour, along with the DP World Tour and Saudi Arabia’s sovereign wealth fund, said the rivals had agreed to create a “new, collectively owned, for-profit entity.”`\
 https://nytimes.com/2023/06/06/sports/golf/pga-liv-merger.html?searchResultPosition=2
 
