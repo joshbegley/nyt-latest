@@ -31,7 +31,7 @@ https://nytimes.com/2023/06/06/opinion/biden-trump-ira-chips-manufacturing.html?
 https://nytimes.com/2023/06/06/arts/francoise-gilot-dead.html?searchResultPosition=8
 
 **Judge Sides With Families Fighting Florida’s Ban on Gender Care for Minors**\
-`A federal judge wrote that the plaintiffs suing to block the new law are “likely to prevail on their claim that the prohibition is unconstitutional.” t`\
+`A federal judge wrote that the plaintiffs suing to block the new law are “likely to prevail on their claim that the prohibition is unconstitutional.”`\
 https://nytimes.com/2023/06/06/us/florida-transgender-health-care-ban.html?searchResultPosition=9
 
 **Why I Can’t Bet Against Apple’s Mixed-Reality Prowess**\
