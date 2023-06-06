@@ -12,7 +12,7 @@ https://nytimes.com/2023/06/06/technology/personaltech/apple-vision-pro-headset-
 
 **The Refries That Bind: A Cavernous Cantina Returns, Cliff Divers and All**\
 `With “infinity dollars” poured in by the creators of “South Park,” a fabled Colorado restaurant reopens with the same 1970s vibe and drastically improved food.`\
-https://nytimes.com/2023/06/06/health/casa-bonita-restaurant.html?searchResultPosition=4
+https://nytimes.com/2023/06/06/us/casa-bonita-restaurant.html?searchResultPosition=4
 
 **DeSantis Stays Silent on Whether Florida Arranged Migrant Flights to California**\
 `The silence from Gov. Ron DeSantis, a Republican running for president, on such a high-profile incident is unusual.`\
