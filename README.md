@@ -1,40 +1,40 @@
-**Do Republican States Really Care About Election Integrity?**\
-`Some of them are rejecting what was, until a few months ago, widely agreed to be the single best program for keeping voter rolls accurate and up-to-date.`\
-https://nytimes.com/2023/06/06/opinion/republican-voter-fraud-eric.html?searchResultPosition=1
+**Storming a Trench Is Treacherous Business. Here’s How It’s Done.**\
+`Assaults on trenches can be stealthy, or deafeningly loud. Either way, they are nerve-racking. Here’s how one Ukrainian unit says it carried out a successful attack earlier this month.`\
+https://nytimes.com/2023/06/06/world/europe/ukraine-trench-warfare.html?searchResultPosition=1
 
-**Elliot Page, From Shame to Self-Acceptance, in Hollywood’s Glare**\
-`In the “brutally honest” memoir “Pageboy,” the actor recounts the fears and obstacles to gender transition, and the hard-won happiness that’s followed.`\
-https://nytimes.com/2023/06/06/books/review/review-elliot-page-pageboy.html?searchResultPosition=2
+**A Scrapbook Offers a Material Glimpse of Another World**\
+`“The Dress Diary” is an intimate record of one wardrobe — and its era.`\
+https://nytimes.com/2023/06/06/books/review/the-dress-diary-kate-strasdin.html?searchResultPosition=2
 
-**There Is One Group the Roberts Court Really Doesn’t Like**\
-`It is difficult to overstate the court’s hostility to organized labor and the rights of American workers.`\
-https://nytimes.com/2023/06/06/opinion/roberts-court-glacier-labor-workers.html?searchResultPosition=3
+**They’re Political Adversaries, and They’re in Love**\
+`In Cecilia Rabess’s novel, “Everything’s Fine,” a woman considers how to stay true to herself after she falls in love with her ideological antithesis and begins working in an industry she doubts.`\
+https://nytimes.com/2023/06/06/books/review/everythings-fine-cecilia-rabess.html?searchResultPosition=3
 
-**A Couple Returns to the Same Argument. Over and Over Again.**\
-`Two actors, partners at the time, discuss their own relationship conflicts between takes of a scripted scene`\
-https://nytimes.com/2023/06/06/opinion/relationships-dating-fighting.html?searchResultPosition=4
+**For Some, the Only Reason to Watch ‘The Idol’ Is for Blackpink’s Jennie**\
+`Fans of the K-pop group are tuning in to the new HBO series to marvel at the global pop star in her acting debut.`\
+https://nytimes.com/2023/06/06/style/the-idol-jennie-blackpink.html?searchResultPosition=4
 
-**Study of a Fight**\
-`Couples often rehash old disputes. Here, two actors, partners at the time, discuss some of their own relationship conflicts through a scripted scene.`\
-https://nytimes.com/video/opinion/100000008897239/study-of-a-fight.html?searchResultPosition=5
+**The Immigrant Experience in a Danish Butter Cookie Tin**\
+`Ubiquitous in immigrant households, the cookie tin might be a more apt metaphor for our journeys than the melting pot.`\
+https://nytimes.com/2023/06/06/magazine/danish-butter-cookie-india-canada.html?searchResultPosition=5
 
-**Who is leading Prince Harry’s legal team?**\
-`The lawyer leading the courtroom arguments, David Sherborne, has taken on Britain’s tabloid press several times.`\
-https://nytimes.com/2023/06/06/world/europe/prince-harry-lawyer-david-sherborne.html?searchResultPosition=6
+**The Climate Solution That’s Horrible for the Climate**\
+`Corn ethanol and soy biodiesel accelerate food inflation and global hunger, but they’re also a disaster for the climate and the environment.`\
+https://nytimes.com/2023/06/06/opinion/climate-change-biofuels-corn-ethanol.html?searchResultPosition=6
 
-**Ukraine Dam Disaster: What We Know**\
-`A dam in southern Ukraine was split in half, but it is unclear who caused the damage. Thousands are being evacuated as dangerous volumes of water gush downstream.`\
-https://nytimes.com/2023/06/06/world/europe/ukraine-dam-explainer.html?searchResultPosition=7
+**For Christie, Winning Would Be Great. Beating Trump Would Be a Close Second.**\
+`The former New Jersey governor’s presidential bid is a long shot. But if he takes out Donald J. Trump along the way, Chris Christie may consider it a victory.`\
+https://nytimes.com/2023/06/06/us/politics/chris-christie-donald-trump-2024.html?searchResultPosition=7
 
-**Corrections: June 6, 2023**\
-`Corrections that appeared in print on Tuesday, June 6, 2023.`\
-https://nytimes.com/2023/06/06/pageoneplus/corrections-june-6-2023.html?searchResultPosition=8
+**All Aboard the Most Extravagant Fashion Cruise**\
+`Chanel in Los Angeles, Dior in Mexico, Gucci in Seoul. Clothes are just a tiny part of the content.`\
+https://nytimes.com/2023/06/06/style/cruise-shows-chanel-dior-louis-vuitton.html?searchResultPosition=8
 
-**D-Day’s Historic Beaches Face a New Onslaught: Rising Seas**\
-`As climate change speeds coastal erosion in France, can memory be preserved if the famous landing sites of the Allied invasion disappear?`\
-https://nytimes.com/2023/06/06/world/europe/d-days-beaches-climate-change.html?searchResultPosition=9
+**Canvas of Clay**\
+`The iconic courts at Roland Garros can tell the tale of a match if you look closely enough.`\
+https://nytimes.com/interactive/2023/06/06/sports/tennis/french-open-clay-courts.html?searchResultPosition=9
 
-**Make Way for the Bike Bus**\
-`For the school commute, families are taking to the streets with two wheels. Some have termed the movement “kidical mass.”`\
-https://nytimes.com/2023/06/06/nyregion/bike-bus-cycling.html?searchResultPosition=10
+**A Tony Nominee Shows Off Her Snug Upper West Side Rental**\
+`Bonnie Milligan, a star of the musical “Kimberly Akimbo,” has been the lucky occupant of a rent-controlled apartment in Manhattan for 15 years.`\
+https://nytimes.com/2023/06/06/realestate/bonnie-milligan-upper-west-side-apartment.html?searchResultPosition=10
 
