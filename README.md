@@ -2,7 +2,7 @@
 `In running for the Republican nomination against Donald J. Trump, Mike Pence will be the first vice president to directly challenge the president who originally put him on the ticket.`\
 https://nytimes.com/2023/06/06/us/politics/pence-trump-presidential-campaign.html?searchResultPosition=1
 
-**A Critical dam is destroyed on Ukraine’s front line**\
+**A Critical Dam Is Destroyed on Ukraine’s Front Line**\
 `Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2023/06/06/briefing/ukraine-dam-livgolf-prince-harry-coinbase.html?searchResultPosition=2
 
