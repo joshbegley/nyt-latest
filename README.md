@@ -3,7 +3,7 @@
 https://nytimes.com/2023/06/06/arts/francoise-gilot-dead.html?searchResultPosition=1
 
 **Judge Sides With Families Fighting Florida’s Ban on Gender Care for Minors**\
-`A federal judge wrote that the plaintiffs suing to block the new law are “likely to prevail on their claim that the prohibition is unconstitutional,” though his ruling blocks the law only for the three children whose families requested it.`\
+`A federal judge wrote that the plaintiffs suing to block the new law are “likely to prevail on their claim that the prohibition is unconstitutional.” t`\
 https://nytimes.com/2023/06/06/us/florida-transgender-health-care-ban.html?searchResultPosition=2
 
 **Why I Can’t Bet Against Apple’s Mixed-Reality Prowess**\
