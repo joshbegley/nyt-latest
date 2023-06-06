@@ -6,7 +6,7 @@ https://nytimes.com/interactive/2023/06/06/us/elections/results-new-jersey.html?
 `Glamour and great menus abound.`\
 https://nytimes.com/2023/06/06/dining/these-hotel-restaurants-dont-only-cater-to-tourists.html?searchResultPosition=2
 
-**As Water From Destroyed Dam Rose, Ukrainians Face a Fresh New Horror**\
+**As Water From Destroyed Dam Rise, Ukrainians Face a Fresh New Horror**\
 `Many Ukrainians have learned to live with occupation and shelling. On Tuesday a new menace began lapping at their doors.`\
 https://nytimes.com/2023/06/06/world/europe/ukraine-dam-witnesses.html?searchResultPosition=3
 
