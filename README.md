@@ -14,13 +14,13 @@ https://nytimes.com/2023/06/05/crosswords/daily-puzzle-2023-06-06.html?searchRes
 `Former President Donald J. Trump told a judge that he could not have defamed E. Jean Carroll by denying her rape accusation because a jury had found him liable only for sexually abusing her.`\
 https://nytimes.com/2023/06/05/nyregion/trump-e-jean-carroll-defamation-case.html?searchResultPosition=4
 
-**Review: In ‘The Comeuppance,’ a Bigger, Chillier Big Chill**\
-`In his haunting new play, Branden Jacobs-Jenkins updates the reunion genre with too much jungle juice and an otherworldly visitor.`\
-https://nytimes.com/2023/06/05/theater/the-comeuppance-review.html?searchResultPosition=5
-
 **Review: In ‘Days of Wine and Roses,’ Two Souls Lost in an Ocean of Booze**\
 `In Craig Lucas and Adam Guettel’s jazzy new musical, Kelli O’Hara and Brian d’Arcy James are a glamorous couple succumbing to alcoholism.`\
-https://nytimes.com/2023/06/05/theater/days-of-wine-and-roses-review.html?searchResultPosition=6
+https://nytimes.com/2023/06/05/theater/days-of-wine-and-roses-review.html?searchResultPosition=5
+
+**Review: In ‘The Comeuppance,’ a Bigger, Chillier Big Chill**\
+`In his haunting new play, Branden Jacobs-Jenkins updates the reunion genre with too much jungle juice and an otherworldly visitor.`\
+https://nytimes.com/2023/06/05/theater/the-comeuppance-review.html?searchResultPosition=6
 
 **Biden Administration Shrugs Off Ukraine’s Attacks in Russia**\
 `For months, U.S. officials said cross-border operations risked a dangerous escalation. But those fears have ebbed.`\
