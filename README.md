@@ -1,5 +1,5 @@
 **Can HBO’s ‘The Idol’ Bring Back ’80s Sleaze?**\
-`Over-the-top locations and characters bathed in red light recall an all but dead genre that was once a staple of late-night cable television: the erotic thriller.`\
+`Over-the-top locations and characters bathed in red light recall an all but dead genre that was once a staple of late-night cable: the erotic thriller.`\
 https://nytimes.com/2023/06/06/style/hbo-the-idol-80s-sleaze-genre.html?searchResultPosition=1
 
 **Review: ‘Being Mr. Wickham’ Tracks a Rake’s Progress**\
