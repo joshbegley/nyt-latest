@@ -1,5 +1,5 @@
-**Trump Asks Judge to Stop Defamation Case Because He Didn’t Rape Carroll**\
-`Instead, he was liable for the lesser misconduct of sexual abuse, a jury found last month. He has repeatedly called her accusations of rape a lie.`\
+**Trump Asks Judge to Stop New Defamation Case Filed by Carroll**\
+`Former President Donald J. Trump told a judge that he could not have defamed E. Jean Carroll by denying her rape accusation because a jury had found him liable only for sexually abusing her.`\
 https://nytimes.com/2023/06/05/nyregion/trump-e-jean-carroll-defamation-case.html?searchResultPosition=1
 
 **Review: In ‘Days of Wine and Roses,’ Two Souls Lost in an Ocean of Booze**\
