@@ -14,13 +14,13 @@ https://nytimes.com/video/us/100000008940261/graduation-shooting-richmond-virgin
 `An extensive poll of 11 European countries finds citizens less eager for competition and rivalry with China than Washington — or European elites — have become.`\
 https://nytimes.com/2023/06/07/world/europe/europe-russia-china-poll.html?searchResultPosition=4
 
-**New York City Sues Queens Library Architects Over Lack of Accessibility**\
-`City officials argued that the building was not compliant with the Americans With Disabilities Act and other laws.`\
-https://nytimes.com/2023/06/07/nyregion/new-york-city-sues-queens-library-architects-over-lack-of-accessibility.html?searchResultPosition=5
-
 **‘Never Seen Pizza Boxes at a Wake Before’: Mourning a N.Y. Pizza Legend**\
 `In a city full of great pizza, Andrew Bellucci was New York’s “original pizza nerd.” After he died suddenly, admirers gathered to remember his wild life.`\
-https://nytimes.com/2023/06/07/nyregion/andrew-bellucci-pizza-funeral.html?searchResultPosition=6
+https://nytimes.com/2023/06/07/nyregion/andrew-bellucci-pizza-funeral.html?searchResultPosition=5
+
+**New York City Sues Queens Library Architects Over Lack of Accessibility**\
+`City officials argued that the building was not compliant with the Americans With Disabilities Act and other laws.`\
+https://nytimes.com/2023/06/07/nyregion/new-york-city-sues-queens-library-architects-over-lack-of-accessibility.html?searchResultPosition=6
 
 **Today’s Wordle Review**\
 `Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
