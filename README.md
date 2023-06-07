@@ -1,6 +1,6 @@
 **Tracking the Smoke From the Canadian Fires**\
 `See an hourly forecast of where smoke from the Canadian wildfires is traveling across the United States.`\
-https://nytimes.com/interactive/2023/06/06/us/smoke-maps-canada-fires.html?searchResultPosition=1
+https://nytimes.com/interactive/2023/us/smoke-maps-canada-fires.html?searchResultPosition=1
 
 **Go the Distance**\
 `Jennifer Lee and Victor Galson create a perfect storm.`\
