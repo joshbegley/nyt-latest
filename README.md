@@ -1,6 +1,6 @@
 **Doug Burgum, Wealthy North Dakota Governor, Enters Presidential Race**\
 `As the leader of a deep-red state, Mr. Burgum has promoted staunchly conservative policies, signing into law a near-total ban on abortion.`\
-https://nytimes.com/2023/06/07/us/politics/doug-burgum-wealthy-north-dakota-governor-enters-presidential-race.html?searchResultPosition=1
+https://nytimes.com/2023/06/07/us/politics/doug-burgum-2024-presidential-campaign.html?searchResultPosition=1
 
 **Hong Kong Asks Court to Stop Protest Anthem From Circulating Online**\
 `Efforts to ban “Glory to Hong Kong,” a song popularized during pro-democracy protests in 2019, could set up a legal battle between tech giants and Hong Kong.`\
