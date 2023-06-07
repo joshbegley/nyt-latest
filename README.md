@@ -1,6 +1,6 @@
 **5 Things to Know About Mike Pence**\
 `Mr. Pence is a once-loyal vice president who became a target of Trump supporters, and an evangelical Christian whose faith drives his hard-line opposition to abortion.`\
-https://nytimes.com/2023/06/07/us/politics/5-things-to-know-about-mike-pence.html?searchResultPosition=1
+https://nytimes.com/2023/06/07/us/politics/mike-pence.html?searchResultPosition=1
 
 **When Politics Saves Lives: a Good-News Story**\
 `The decision to fund medications to treat H.I.V.-AIDS patients in sub-Saharan Africa and the Caribbean flew in the face of expert advice. But the U.S. did it anyway.`\
