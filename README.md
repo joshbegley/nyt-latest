@@ -34,7 +34,7 @@ https://nytimes.com/2023/06/07/learning/word-of-the-day-veritable.html?searchRes
 `Mr. Johnston, a former Colorado state senator, benefited from far more outside spending than his opponent, who conceded on Tuesday night.`\
 https://nytimes.com/2023/06/07/us/elections/denver-mayor-mike-johnston.html?searchResultPosition=9
 
-**New York City’s air was “very unhealthy,” Adams said.**\
-`With air quality expected to deteriorate through the day Wednesday, the mayor said public schools would not offer outdoor activities.`\
+**New York City’s air was ‘very unhealthy,’ the mayor said.**\
+`With air quality expected to deteriorate through the day Wednesday, Mayor Eric Adams said public schools would not offer outdoor activities.`\
 https://nytimes.com/2023/06/07/us/nyc-smoke-air-quality.html?searchResultPosition=10
 
