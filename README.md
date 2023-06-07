@@ -6,8 +6,8 @@ https://nytimes.com/2023/06/06/sports/golf/pga-tour-liv-merger-saudi-arabia.html
 `The children of a severely alcoholic widower navigate his incapacity, and his legacy, in John J. Caswell Jr.’s pitch-black comedy about addiction.`\
 https://nytimes.com/2023/06/06/theater/wet-brain-review.html?searchResultPosition=2
 
-**7 People Shot Outside High School Graduation in Richmond**\
-`Three sustained life-threatening injuries, and others were hurt in the ensuing chaos. Two subjects were in custody, according to the police.`\
+**Two People Fatally Shot Outside High School Graduation in Richmond**\
+`Another five people were shot, the authorities said, and others were hurt in the ensuing chaos. A 19-year-old male suspect was in police custody.`\
 https://nytimes.com/2023/06/06/us/graduation-shooting-richmond-virginia.html?searchResultPosition=3
 
 **Chris Christie Launches Presidential Election Bid**\
