@@ -1,6 +1,6 @@
 **Saudi Arabia Relishes a Triumph That Transcends Sports**\
 `The deal to merge LIV Golf with the PGA Tour is a big win for the oil-rich kingdom, headlining a banner week that also includes a visit from the American secretary of state.`\
-https://nytimes.com/2023/06/07/world/middleeast/us-saudi-arabia-golf-blinken.html?searchResultPosition=1
+https://nytimes.com/2023/06/07/world/middleeast/us-saudi-arabia-liv-golf.html?searchResultPosition=1
 
 **N95 Masks Helped Protect Against the Coronavirus. They Also Work Against Wildfire Smoke.**\
 `Use N95, or better, masks and make sure they cover your nose and mouth.`\
