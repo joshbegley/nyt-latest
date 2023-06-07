@@ -1,40 +1,40 @@
-**The Merger of LIV Golf and the PGA Tour: Here’s What to Know**\
-`The announced deal to dramatically change golf is far from complete.`\
-https://nytimes.com/2023/06/07/sports/golf/pga-liv-golf-merger.html?searchResultPosition=1
+**Midland Park, N.J.: A ‘Forever Town’ Where You ‘Buy a House and Stay’**\
+`The Bergen County borough has an unhurried pace and a multigenerational flavor, because many who were raised there never want to leave.`\
+https://nytimes.com/2023/06/07/realestate/midland-park-nj-houses.html?searchResultPosition=1
 
-**LIV Golf Joins a Club That Will Have It as a Member**\
-`The PGA Tour’s merger with LIV is the perfect union of the tour’s lack of principle and LIV’s paucity of character.`\
-https://nytimes.com/2023/06/07/sports/golf/liv-pga-tour-saudi-arabia.html?searchResultPosition=2
+**Living In ... Midland Park, N.J.**\
+`The Bergen County borough has an unhurried pace and a multigenerational flavor, because many who were raised there never want to leave.`\
+https://nytimes.com/slideshow/2023/06/07/realestate/living-in-midland-park-nj.html?searchResultPosition=2
 
-**Two Killed in Shooting After High School Graduation in Richmond, Va.**\
-`The gunfire, which left five other people injured, sparked chaos after Huguenot High School’s ceremony. A 19-year-old man was in custody.`\
-https://nytimes.com/video/us/100000008940261/graduation-shooting-richmond-virginia.html?searchResultPosition=3
+**A ‘Dystopian Nightmare’ Unfolds in Sudan’s Battered Darfur Region**\
+`Hundreds have been killed in the western Darfur region since the nationwide conflict in Sudan began, raising fears of protracted warfare in an area already torn by decades of genocidal violence.`\
+https://nytimes.com/2023/06/07/world/africa/war-sudan-darfur-region.html?searchResultPosition=3
 
-**Europeans Now See Russia as an Adversary, but Not China**\
-`An extensive poll of 11 European countries finds citizens less eager for competition and rivalry with China than Washington — or European elites — have become.`\
-https://nytimes.com/2023/06/07/world/europe/europe-russia-china-poll.html?searchResultPosition=4
+**From Houston to Athens, Rick Lowe Takes His Social Sculpture Global**\
+`The artist, known for the influential Project Row Houses in Houston, discusses music, basketball and art’s ability to improve lives.`\
+https://nytimes.com/2023/06/07/t-magazine/rick-lowe-project-row-houses.html?searchResultPosition=4
 
-**‘Never Seen Pizza Boxes at a Wake Before’: Mourning a N.Y. Pizza Legend**\
-`In a city full of great pizza, Andrew Bellucci was New York’s “original pizza nerd.” After he died suddenly, admirers gathered to remember his wild life.`\
-https://nytimes.com/2023/06/07/nyregion/andrew-bellucci-pizza-funeral.html?searchResultPosition=5
+**It’s Never Too Late to Travel the World With Your Best Friend**\
+`At 81 years old, Eleanor Hamby and Dr. Sandra Hazelip traveled from the icy shores of Antarctica to the rocky majesty of the Grand Canyon — in 80 days.`\
+https://nytimes.com/2023/06/07/travel/travel-the-world.html?searchResultPosition=5
 
-**New York City Sues Queens Library Architects Over Lack of Accessibility**\
-`City officials argued that the building was not compliant with the Americans With Disabilities Act and other laws.`\
-https://nytimes.com/2023/06/07/nyregion/new-york-city-sues-queens-library-architects-over-lack-of-accessibility.html?searchResultPosition=6
+**They Fled San Francisco. The A.I. Boom Pulled Them Back.**\
+`Tech entrepreneurs who left the Bay Area during the pandemic say they can’t afford to miss out on the funding, hackathons and networking of the artificial intelligence frenzy.`\
+https://nytimes.com/2023/06/07/technology/ai-san-francisco-tech-industry.html?searchResultPosition=6
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/06/07/crosswords/wordle-review-answer-718.html?searchResultPosition=7
+**Russia and Saudi Arabia’s Oil Partnership Shows Strain**\
+`Analysts said the countries’ mutual need to keep energy prices high would help them maintain close ties, despite signs that Moscow has undercut previous deals.`\
+https://nytimes.com/2023/06/07/business/energy-environment/saudi-arabia-russia-oil-opec-plus.html?searchResultPosition=7
 
-**A Crackdown on Gay Rights Is Codified**\
-`In Uganda, the president recently signed a punitive anti-gay law that calls for imprisonment and even the death penalty. The Times’s East Africa correspondent is covering the consequences.`\
-https://nytimes.com/2023/06/07/insider/a-crackdown-on-gay-rights-is-codified.html?searchResultPosition=8
+**The G.O.P. Has Drifted, but Mike Pence Is as Conservative as Ever**\
+`The polls say Mr. Pence, who is set to announce his 2024 candidacy on Wednesday, has little chance, but he is driven by his faith, instead.`\
+https://nytimes.com/2023/06/07/us/politics/pence-announcement-analysis.html?searchResultPosition=8
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/06/07/crosswords/spelling-bee-forum.html?searchResultPosition=9
+**From British Columbia to Nova Scotia, Wildfires Spread Across Canada**\
+`Hundreds of wildfires are burning nationwide, expanding a sense of unease in the country as thick smoke billowed over Toronto, Ottawa and Montreal.`\
+https://nytimes.com/2023/06/07/world/americas/canada-wildfires.html?searchResultPosition=9
 
-**Word of the Day: veritable**\
-`This word has appeared in 58 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/06/07/learning/word-of-the-day-veritable.html?searchResultPosition=10
+**I Know Why Disney Is Fighting DeSantis**\
+`As corporate America gets dragged into the culture wars, Disney had no choice but to take on DeSantis and defend the L.G.B.T.Q. community.`\
+https://nytimes.com/2023/06/07/opinion/disney-ron-desantis.html?searchResultPosition=10
 
