@@ -1,6 +1,6 @@
 **Disaster Upon Disaster: Flood Deepens Misery in Ukraine War Zone**\
 `“We were getting used to the shelling, but I’ve never seen a situation like this,” said one woman rescued in Kherson after a dam upstream was destroyed.`\
-https://nytimes.com/2023/06/07/world/europe/ukraine-flooding-scene-kherson.html?searchResultPosition=1
+https://nytimes.com/2023/06/07/world/europe/ukraine-kherson-flooding.html?searchResultPosition=1
 
 **Floodwaters Engulf Front Line in Ukraine War**\
 `As rescue efforts plucked people from rooftops, and offered fresh water and shelter, Turkey’s president called for an international investigation into what caused a dam to fail.`\
