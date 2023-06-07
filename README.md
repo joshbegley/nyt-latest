@@ -1,40 +1,40 @@
+**Mayor Adams and the Brooklyn Apartment He Just Can’t Quit**\
+`Despite Mayor Eric Adams’s multiple claims that he had sold an apartment to an ex-girlfriend, he filed financial disclosure forms showing he still owns it.`\
+https://nytimes.com/2023/06/07/nyregion/eric-adams-apartment.html?searchResultPosition=1
+
 **Cisco Swank ‘Is Black Music. All of It.’**\
 `The 23-year-old pianist, drummer and rapper puts a pandemic-era spin on jazz-rap on his debut, “More Better,” and he always keeps the faith.`\
-https://nytimes.com/2023/06/07/arts/music/cisco-swank-more-better.html?searchResultPosition=1
+https://nytimes.com/2023/06/07/arts/music/cisco-swank-more-better.html?searchResultPosition=2
 
 **A Multi-Season Celebration of the Martha Graham Company at 100**\
 `Starting in fall, the company will present a three-year celebration featuring Graham classics and a new work by Jamar Roberts.`\
-https://nytimes.com/2023/06/07/arts/dance/martha-graham-company-announces-celebrations-for-100th-anniversary.html?searchResultPosition=2
+https://nytimes.com/2023/06/07/arts/dance/martha-graham-company-announces-celebrations-for-100th-anniversary.html?searchResultPosition=3
 
 **‘It just keeps coming’: Rescuers reach an inundated neighborhood to find fetid water and exhausted people.**\
 `Low-lying areas of Kherson were a panorama of water and floating debris. One man stood on a cabinet in his living room waiting for hours for help.`\
-https://nytimes.com/2023/06/07/world/europe/kherson-flooding-ukraine-dam.html?searchResultPosition=3
+https://nytimes.com/2023/06/07/world/europe/kherson-flooding-ukraine-dam.html?searchResultPosition=4
 
 **Welcome to Zev’s Los Angeles**\
 `A conversation with the Los Angeles civic leader Zev Yaroslavsky, whose new memoir illuminates the last half-century in the city.`\
-https://nytimes.com/2023/06/07/us/zev-yaroslavsky-los-angeles.html?searchResultPosition=4
+https://nytimes.com/2023/06/07/us/zev-yaroslavsky-los-angeles.html?searchResultPosition=5
 
 **What Can I Do About My Daughter’s Father Showing Up Drunk?**\
 `When an ex returns from out of the blue with the same drinking problem but a new desire to be in his daughter’s life, a reader is unsure how best to protect her child.`\
-https://nytimes.com/2023/06/07/style/co-parent-drinking-problem.html?searchResultPosition=5
+https://nytimes.com/2023/06/07/style/co-parent-drinking-problem.html?searchResultPosition=6
 
 **Saudi Arabia Relishes a Triumph That Transcends Sports**\
 `The deal to merge LIV Golf with the PGA Tour is a big win for the oil-rich kingdom, headlining a banner week that also includes a visit from the American secretary of state.`\
-https://nytimes.com/2023/06/07/world/middleeast/us-saudi-arabia-liv-golf.html?searchResultPosition=6
+https://nytimes.com/2023/06/07/world/middleeast/us-saudi-arabia-liv-golf.html?searchResultPosition=7
 
 **N95 Masks Helped Protect Against the Coronavirus. They Also Work Against Wildfire Smoke.**\
 `Use N95, or better, masks and make sure they cover your nose and mouth.`\
-https://nytimes.com/2023/06/07/us/masks-wildfire-smoke-air-quality.html?searchResultPosition=7
+https://nytimes.com/2023/06/07/us/masks-wildfire-smoke-air-quality.html?searchResultPosition=8
 
 **Chris Licht Is Out at CNN, Ending a Brief and Chaotic Run**\
 `Mr. Licht’s turbulent time running the network lasted slightly more than a year.`\
-https://nytimes.com/2023/06/07/business/media/chris-licht-cnn.html?searchResultPosition=8
+https://nytimes.com/2023/06/07/business/media/chris-licht-cnn.html?searchResultPosition=9
 
 **Saudi Arabia’s Golf Deal Bolsters Its Geopolitical Ambitions**\
 `An agreement to merge LIV Golf with the PGA Tour is the latest step in the kingdom’s push to become a global force beyond oil.`\
-https://nytimes.com/2023/06/07/business/dealbook/saudi-golf-pga-liv.html?searchResultPosition=9
-
-**Florida Woman Arrested in Fatal Shooting of Her Neighbor**\
-`Susan Louise Lorincz was charged on Tuesday with manslaughter with a firearm in the shooting death of Ajike Owens.`\
-https://nytimes.com/2023/06/07/us/florida-neighbor-shooting-ajike-owens-arrest.html?searchResultPosition=10
+https://nytimes.com/2023/06/07/business/dealbook/saudi-golf-pga-liv.html?searchResultPosition=10
 
