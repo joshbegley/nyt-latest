@@ -14,7 +14,7 @@ https://nytimes.com/2023/06/07/world/middleeast/us-saudi-arabia-liv-golf.html?se
 `Use N95, or better, masks and make sure they cover your nose and mouth.`\
 https://nytimes.com/2023/06/07/us/masks-wildfire-smoke-air-quality.html?searchResultPosition=4
 
-**Chris Licht Is Out at CNN**\
+**Chris Licht Is Out at CNN, Ending a Brief and Chaotic Run**\
 `Mr. Licht had a turbulent tenure that lasted slightly more than a year.`\
 https://nytimes.com/2023/06/07/business/media/chris-licht-cnn.html?searchResultPosition=5
 
