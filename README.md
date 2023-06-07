@@ -4,7 +4,7 @@ https://nytimes.com/2023/06/07/us/politics/trump-documents-florida-grand-jury.ht
 
 **As Smoke Darkens the Sky, the Future Becomes Clear**\
 `There’s nowhere to escape the harm from wildfires.`\
-https://nytimes.com/2023/06/07/opinion/as-smoke-darkens-the-sky-the-future-becomes-clear.html?searchResultPosition=2
+https://nytimes.com/2023/06/07/opinion/smoke-air-quality-new-york-canada.html?searchResultPosition=2
 
 **5 Things to Know About Doug Burgum**\
 `Elected governor of North Dakota in 2016 in a major upset, Mr. Burgum is seeking an even bigger one in the Republican presidential race.`\
