@@ -1,40 +1,40 @@
+**A $1 Trillion Borrowing Binge Looms After Debt Limit Standoff**\
+`The government has avoided default, but the effects of the debt-ceiling brinkmanship may still ripple across the economy.`\
+https://nytimes.com/2023/06/07/business/economy/debt-ceiling-borrowing-binge.html?searchResultPosition=1
+
+**George Winston, Pianist With a Soothing ‘New Age’ Sound, Dies at 74**\
+`His top-selling records for the Windham Hill label helped define a genre that took off in the 1970s, but his interests also included Hawaiian guitar and the Doors.`\
+https://nytimes.com/2023/06/07/arts/music/george-winston-dead.html?searchResultPosition=2
+
 **House Is Paralyzed as Far-Right Rebels Continue Mutiny Against McCarthy**\
 `Members of the ultraconservative House Freedom Caucus refused to surrender control of the floor, forcing G.O.P. leaders to scrap votes for the week and leaving the speaker facing what he conceded was “chaos.”`\
-https://nytimes.com/2023/06/07/us/politics/mccarthy-house-republicans-mutiny.html?searchResultPosition=1
+https://nytimes.com/2023/06/07/us/politics/mccarthy-house-republicans-mutiny.html?searchResultPosition=3
 
 **With Migrant Flights, DeSantis Shows Stoking Outrage Is the Point**\
 `The flights to California illustrate the broader bet Gov. Ron DeSantis has made that the animating energy in the G.O.P. has shifted from conservatism to confrontationalism.`\
-https://nytimes.com/2023/06/07/us/politics/desantis-migrant-flights-outrage.html?searchResultPosition=2
+https://nytimes.com/2023/06/07/us/politics/desantis-migrant-flights-outrage.html?searchResultPosition=4
 
 **The Republican Silly Season Has Begun**\
 `Raise your hand if your name’s not Trump.`\
-https://nytimes.com/2023/06/07/opinion/republicans-2024-election-trump.html?searchResultPosition=3
+https://nytimes.com/2023/06/07/opinion/republicans-2024-election-trump.html?searchResultPosition=5
 
 **Orange Skies and Burning Eyes as Smoke Shrouds New York City**\
 `New Yorkers are accustomed to dealing with weather. This was something very different.`\
-https://nytimes.com/2023/06/07/nyregion/nyc-wildfire-smoke-scenes.html?searchResultPosition=4
+https://nytimes.com/2023/06/07/nyregion/nyc-wildfire-smoke-scenes.html?searchResultPosition=6
 
 **Remembering a Massacre That China Keeps Trying to Erase**\
 `Tiananmen is caught in a larger “struggle of memory against forgetting.”`\
-https://nytimes.com/2023/06/07/opinion/tiananmen-square-chinese-massacre.html?searchResultPosition=5
+https://nytimes.com/2023/06/07/opinion/tiananmen-square-chinese-massacre.html?searchResultPosition=7
 
 **Smoke Leads to Cancellations of ‘Hamilton’ and ‘Camelot’ on Broadway and ‘Hamlet’ in Central Park**\
 `The poor air quality sent a star offstage mid-play and forced the cancellation of one of Broadway’s most popular musicals and the first two performances of Free Shakespeare in the Park.`\
-https://nytimes.com/2023/06/07/us/broadway-shows-canceled-nyc-hamilton-smoke.html?searchResultPosition=6
+https://nytimes.com/2023/06/07/us/broadway-shows-canceled-nyc-hamilton-smoke.html?searchResultPosition=8
 
 **Wildfire Smoke Blankets the East With Unhealthy Air**\
 `Stay indoors tonight and listen to New Orleans jazz. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2023/06/07/briefing/canada-wildfires-cnn-ukraine-dam.html?searchResultPosition=7
+https://nytimes.com/2023/06/07/briefing/canada-wildfires-cnn-ukraine-dam.html?searchResultPosition=9
 
 **‘No Next Steps’ as of Yet for Aaron Judge’s Toe Injury**\
 `Judge, the slugging Yankees outfielder, got an injection to aid healing in his sprained toe. He will be out at least 10 days.`\
-https://nytimes.com/2023/06/07/sports/baseball/aaron-judge-yankees.html?searchResultPosition=8
-
-**Louisiana Lawmakers Pass Ban on Transition Care for Transgender Minors**\
-`It was unclear on Wednesday how Gov. John Bel Edwards, a Democrat, would respond to the legislation, or if his input would make a difference.`\
-https://nytimes.com/2023/06/07/us/louisiana-transgender-health-care-ban.html?searchResultPosition=9
-
-**How a 14-Year-Old Came to Animate a Scene in ‘Across the Spider-Verse’**\
-`Preston Mutanga created a shot-for-shot version of the trailer with animated Lego characters. Then the producers asked him to work on the movie.`\
-https://nytimes.com/2023/06/07/movies/spider-man-across-the-spider-verse-lego.html?searchResultPosition=10
+https://nytimes.com/2023/06/07/sports/baseball/aaron-judge-yankees.html?searchResultPosition=10
 
