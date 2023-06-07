@@ -1,4 +1,4 @@
-**Yes, We’re in an L.G.B.T.Q. ‘State of Emergency’**\
+**Yes, We’re in an L.G.B.T.Q. State of Emergency**\
 `This year, there is a pall over Pride.`\
 https://nytimes.com/2023/06/07/opinion/pride-lgbtq-laws.html?searchResultPosition=1
 
