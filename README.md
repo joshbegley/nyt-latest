@@ -1,40 +1,40 @@
+**New York City Seeks to Unravel the Secret Mystery of Hospital Costs**\
+`The City Council is expected to approve a bill on Thursday that would allow New Yorkers to compare the cost of hospital procedures online.`\
+https://nytimes.com/2023/06/07/nyregion/hospital-costs-bills-transparency.html?searchResultPosition=1
+
 **How Solar Wind Flows From the Sun Like Water From a Shower Head**\
 `The Parker Solar Probe is providing NASA researchers with insights into how the sun accelerates particles to a million miles per hour.`\
-https://nytimes.com/2023/06/07/science/sun-solar-wind.html?searchResultPosition=1
+https://nytimes.com/2023/06/07/science/sun-solar-wind.html?searchResultPosition=2
 
 **Universal Says On-Demand Film Strategy Has Increased Audience**\
 `The studio let viewers rent or buy movies earlier for a higher price. This made more than $1 billion in less than three years, with nearly no decrease in box-office sales.`\
-https://nytimes.com/2023/06/07/business/media/universal-premium-video-on-demand.html?searchResultPosition=2
+https://nytimes.com/2023/06/07/business/media/universal-premium-video-on-demand.html?searchResultPosition=3
 
 **Biden’s Age, and His Achievements**\
 `Readers discuss President Biden’s age and his accomplishments. Also: The PGA-LIV golf merger; self-policing in Brooklyn.`\
-https://nytimes.com/2023/06/07/opinion/letters/joe-biden-age.html?searchResultPosition=3
+https://nytimes.com/2023/06/07/opinion/letters/joe-biden-age.html?searchResultPosition=4
 
 **Sunak to Talk Tech With Biden, but the War in Ukraine Is Likely to Surface**\
 `While economic corporation the challenges posed by artificial intelligence are on the agenda, Russia’s invasion presents immediate threats.`\
-https://nytimes.com/2023/06/07/world/europe/sunak-biden-britain.html?searchResultPosition=4
+https://nytimes.com/2023/06/07/world/europe/sunak-biden-britain.html?searchResultPosition=5
 
 **Justices Thomas and Alito Delay Release of Financial Disclosures**\
 `The justices asked for extensions to file annual disclosures that detail gifts, travel and real estate holdings.`\
-https://nytimes.com/2023/06/07/us/supreme-court-thomas-alito-financial-disclosures.html?searchResultPosition=5
+https://nytimes.com/2023/06/07/us/supreme-court-thomas-alito-financial-disclosures.html?searchResultPosition=6
 
 **Man Charged With Spraying Police With Insecticide on Jan. 6**\
 `The Justice Department also charged the Long Island man with assaulting a news photographer, in the latest reminder that the authorities are continuing to find rioters who assaulted the Capitol.`\
-https://nytimes.com/2023/06/07/us/politics/jan-6-rioter-insecticide.html?searchResultPosition=6
+https://nytimes.com/2023/06/07/us/politics/jan-6-rioter-insecticide.html?searchResultPosition=7
 
 **The Stars Are Shooting Again on the Tiber**\
 `Rome’s fabled Cinecittà movie studios are as full as they’ve ever been, as productions come for the tax incentives, high production values and Italian glamour.`\
-https://nytimes.com/2023/06/07/movies/cinecitta-studios-rome-filmmaking.html?searchResultPosition=7
+https://nytimes.com/2023/06/07/movies/cinecitta-studios-rome-filmmaking.html?searchResultPosition=8
 
 **For the First Time in Print, a Haunting Lost Classic**\
 `The enigmatic Susan Taubes wrote the coming-of-age novel “Lament for Julia” in the 1960s; 54 years after her death, its gothic splendors shine.`\
-https://nytimes.com/2023/06/07/books/review/lament-for-julia-susan-taubes.html?searchResultPosition=8
+https://nytimes.com/2023/06/07/books/review/lament-for-julia-susan-taubes.html?searchResultPosition=9
 
 **5 Things to Know About Mike Pence**\
 `Mr. Pence is a once-loyal vice president who became a target of Trump supporters, and an evangelical Christian whose faith drives his hard-line opposition to abortion.`\
-https://nytimes.com/2023/06/07/us/politics/mike-pence.html?searchResultPosition=9
-
-**When Politics Saves Lives: a Good-News Story**\
-`The decision to fund medications to treat H.I.V.-AIDS patients in sub-Saharan Africa and the Caribbean flew in the face of expert advice. But the U.S. did it anyway.`\
-https://nytimes.com/2023/06/07/world/africa/interpreter-hiv-aids-drugs-bush.html?searchResultPosition=10
+https://nytimes.com/2023/06/07/us/politics/mike-pence.html?searchResultPosition=10
 
