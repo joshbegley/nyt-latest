@@ -31,7 +31,7 @@ https://nytimes.com/2023/06/07/nyregion/nyc-wildfire-smoke-scenes.html?searchRes
 https://nytimes.com/2023/06/07/opinion/tiananmen-square-chinese-massacre.html?searchResultPosition=8
 
 **Smoke Leads to Cancellations of ‘Hamilton’ and ‘Camelot’ on Broadway and ‘Hamlet’ in Central Park**\
-`The poor air quality sent a star offstage mid-play and forced the cancellation of one of Broadway’s most popular musicals and the first two performances of Free Shakespeare in the Park.`\
+`The poor air quality sent a star offstage mid-play and forced the cancellation of one of Broadway’s most popular musicals, a classic revival, and Shakespeare in the Park.`\
 https://nytimes.com/2023/06/07/us/broadway-shows-canceled-nyc-hamilton-smoke.html?searchResultPosition=9
 
 **Wildfire Smoke Blankets the East With Unhealthy Air**\
