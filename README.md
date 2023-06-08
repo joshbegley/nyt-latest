@@ -3,8 +3,8 @@
 https://nytimes.com/2023/06/08/arts/music/juilliard-fires-professor-accused-of-sexually-harassing-students.html?searchResultPosition=1
 
 **The investigation reaches back to the end of Trump’s term.**\
-`By Maggie Haberman, Alan Feuer and Michael S. Schmidt`\
-https://nytimes.com/2023/06/08/us/politics/the-investigation-reaches-back-to-the-end-of-trumps-term.html?searchResultPosition=2
+`The Justice Department has spent months trying to ensure it had obtained all classified documents that may have ended up at Mar-a-Lago.`\
+https://nytimes.com/2023/06/08/us/politics/trump-classified-documents-investigation-indictment.html?searchResultPosition=2
 
 **Who Is Jack Smith, the Special Counsel Who Indicted Trump?**\
 `The former prosecutor was chosen for his experience in bringing high-stakes cases against politicians in the United States and abroad.`\
