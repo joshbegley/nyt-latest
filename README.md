@@ -1,40 +1,40 @@
+**A Wellness Chatbot Is Offline After Its ‘Harmful’ Focus on Weight Loss**\
+`The artificial intelligence tool, named Tessa, was presented by the National Eating Disorders Association as a way to discover coping skills. But activists say it instead veered into problematic weight-loss advice.`\
+https://nytimes.com/2023/06/08/us/ai-chatbot-tessa-eating-disorders-association.html?searchResultPosition=1
+
+**Homes for Sale in New Jersey and New York**\
+`This week’s properties are in Edgewater, N.J., and Rockville Centre, N.Y.`\
+https://nytimes.com/2023/06/08/realestate/housing-market-near-nyc.html?searchResultPosition=2
+
+**Homes for Sale in Manhattan and Queens**\
+`This week’s properties are in the Financial district, Lenox Hill and Long Island City.`\
+https://nytimes.com/2023/06/08/realestate/housing-market-nyc.html?searchResultPosition=3
+
+**These Are Your Favorite Places to See Art in California**\
+`Readers recommended street art in Eureka, a new Chicano art museum in Riverside and more across the state.`\
+https://nytimes.com/2023/06/08/us/california-art-recommendations.html?searchResultPosition=4
+
+**Father’s Day Gift Guide: Custom Vinyl Art, Elevated Picnic Fare and More**\
+`What T Magazine’s editors and contributors are eyeing for our own paternal figures, including outdoorsy accessories and psychedelia for all the senses.`\
+https://nytimes.com/2023/06/08/t-magazine/fathers-day-gift-guide.html?searchResultPosition=5
+
+**Our Local Black Hole Serves Up an ‘Awe Moment’**\
+`Filaments of radio energy from Sagittarius A*, the black hole at the center of the Milky Way galaxy, are turning astronomers’ heads.`\
+https://nytimes.com/2023/06/08/science/astronomy-cosmos-black-hole.html?searchResultPosition=6
+
+**New Yorkers May Soon Have to Compost, Whether They Want to or Not**\
+`The City Council is set to pass a bill on Thursday requiring New Yorkers to separate their food waste from regular trash, much as they do with recyclable items.`\
+https://nytimes.com/2023/06/08/nyregion/food-composting-nyc.html?searchResultPosition=7
+
 **Pope Francis Is Doing Well After Abdominal Surgery, Vatican Says**\
 `The 86-year old pontiff had a peaceful night, and was alert and breathing on his own a day after he underwent surgery to treat a hernia, an official statement reported.`\
-https://nytimes.com/2023/06/08/world/europe/pope-francis-abdominal-surgery-recovery.html?searchResultPosition=1
+https://nytimes.com/2023/06/08/world/europe/pope-francis-abdominal-surgery-recovery.html?searchResultPosition=8
 
 **Ukraine on the Attack in the South, Part of What Russia Calls a Counteroffensive**\
 `The fighting in the south follows a claim earlier this week that the counteroffensive had started farther east.`\
-https://nytimes.com/2023/06/08/world/europe/ukraine-counteroffensive-russia-war.html?searchResultPosition=2
+https://nytimes.com/2023/06/08/world/europe/ukraine-counteroffensive-russia-war.html?searchResultPosition=9
 
 **Pat Robertson, Who Gave Christian Conservatives Clout, Dies at 93**\
 `A Baptist minister and a broadcaster, he turned Christian conservatives into a powerful constituency that helped Republicans capture Congress in 1994.`\
-https://nytimes.com/2023/06/08/us/pat-robertson-dead.html?searchResultPosition=3
-
-**How the Lionel Messi Deal Stymied Saudi Arabia**\
-`A complex arrangement, involving Apple, to bring the soccer star to Miami shows how to trump the free-spending kingdom — and how hard that may be to duplicate.`\
-https://nytimes.com/2023/06/08/business/dealbook/messi-miami-saudi.html?searchResultPosition=4
-
-**Inter Milan, Facing Painful Reckoning, Tries to Live in the Now**\
-`Inter made the Champions League final with Italy’s oldest squad and its highest debts. Whatever happens in Istanbul cannot stop the financial squeeze to come.`\
-https://nytimes.com/2023/06/08/sports/soccer/champions-league-final-inter-milan.html?searchResultPosition=5
-
-**Poor Air Quality Is Routine in Many Parts of the World**\
-`On Wednesday, New York City briefly had the worst air in the world, eclipsing some of the poorest nations.`\
-https://nytimes.com/2023/06/08/us/air-pollution-china-india-global.html?searchResultPosition=6
-
-**The Eurozone Slipped Into a Mild Recession Early in the Year**\
-`A weak recovery has been underway since then, but growth is expected to remain tepid for the remainder of the year.`\
-https://nytimes.com/2023/06/08/business/eurozone-recession-economy.html?searchResultPosition=7
-
-**Gratitude Really is Good for You. Here’s What the Science Shows.**\
-`Giving, receiving and even witnessing gratitude can improve your well-being, especially during difficult times.`\
-https://nytimes.com/2023/06/08/well/mind/gratitude-health-benefits.html?searchResultPosition=8
-
-**A ‘Crown Jewel of Comedy’: The Joan Rivers Card Catalog of Jokes Finds a Home**\
-`Take a look at some of the artifacts from her archive, which includes 65,000 cross-referenced gags and is headed to the National Comedy Center.`\
-https://nytimes.com/2023/06/08/arts/television/joan-rivers-archive.html?searchResultPosition=9
-
-**‘Aloners’ Review: Plugged In but Shut Off**\
-`The director Hong Sung-eun’s debut feature is a quietly tragic tale of alienation and the ennui of modern life.`\
-https://nytimes.com/2023/06/08/movies/aloners-review.html?searchResultPosition=10
+https://nytimes.com/2023/06/08/us/pat-robertson-dead.html?searchResultPosition=10
 
