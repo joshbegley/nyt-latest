@@ -30,8 +30,8 @@ https://nytimes.com/2023/06/08/nyregion/food-composting-nyc.html?searchResultPos
 `The 86-year old pontiff had a peaceful night, and was alert and breathing on his own a day after he underwent surgery to treat a hernia, an official statement reported.`\
 https://nytimes.com/2023/06/08/world/europe/pope-francis-abdominal-surgery-recovery.html?searchResultPosition=8
 
-**Ukraine on the Attack in the South, Part of What Russia Calls a Counteroffensive**\
-`The fighting in the south follows a claim earlier this week that the counteroffensive had started farther east.`\
+**Ukraine on the Attack in the South in What a U.S. Official Calls a Main Thrust in Counteroffensive**\
+`A senior U.S. official said that fighting intensified overnight near Zaporizhzhia days after an attack farther east prompted claims the push had begun.`\
 https://nytimes.com/2023/06/08/world/europe/ukraine-counteroffensive-russia-war.html?searchResultPosition=9
 
 **Pat Robertson, Who Gave Christian Conservatives Clout, Dies at 93**\
