@@ -1,4 +1,4 @@
-**Louisiana Passes Bill Requiring Parental Consent for Kids’ Online Accounts**\
+**Louisiana Passes Bill That Would Require Parental Consent for Kids’ Online Accounts**\
 `The measure would allow parents to cancel the contracts underlying their children’s accounts on sites like TikTok, Instagram, Roblox and YouTube.`\
 https://nytimes.com/2023/06/08/business/louisiana-consent-minors-online.html?searchResultPosition=1
 
