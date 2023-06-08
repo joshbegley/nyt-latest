@@ -14,7 +14,7 @@ https://nytimes.com/2023/06/08/us/dog-toy-jack-daniels-supreme-court.html?search
 `Hundreds of blazes are producing dangerous smoke that has clouded a large swath of the U.S.`\
 https://nytimes.com/video/world/americas/100000008942642/canada-wildfires-smoke-satellite.html?searchResultPosition=4
 
-**Federal Monitor Overseeing Rikers Takes Aim at Head of N.Y.C. Jails**\
+**N.Y.C. Jails Chief Is Hiding Dysfunction at Rikers, Federal Monitor Says**\
 `Louis A. Molina, the jails commissioner, has failed to stop rampant violence, and officials have shut down avenues of information about what happens behind bars, according to a report filed in federal court.`\
 https://nytimes.com/2023/06/08/nyregion/rikers-island-jail-report.html?searchResultPosition=5
 
