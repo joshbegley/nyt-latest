@@ -16,7 +16,7 @@ https://nytimes.com/2023/06/07/us/san-andreas-fault-researchers.html?searchResul
 
 **Jay Johnston, ‘Bob’s Burgers’ Actor, Is Arrested on Jan. 6 Charges**\
 `The actor was banned from the animated sitcom in 2021 after he was accused of participating in the Capitol riot.`\
-https://nytimes.com/2023/06/07/us/jay-johnston-actor-january-6.html?searchResultPosition=5
+https://nytimes.com/2023/06/07/us/politics/jay-johnston-actor-january-6.html?searchResultPosition=5
 
 **Yes, We’re in an L.G.B.T.Q. State of Emergency**\
 `This year, there is a pall over Pride.`\
