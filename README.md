@@ -10,17 +10,17 @@ https://nytimes.com/2023/06/08/world/asia/china-mosques-dome-crackdown.html?sear
 `A vast fungal web braids together life on Earth. Merlin Sheldrake wants to help us see it.`\
 https://nytimes.com/2023/06/08/magazine/merlin-sheldrake-fungi.html?searchResultPosition=3
 
+**Record Pollution and Heat Herald a Season of Climate Extremes**\
+`Scientists have long warned that global warming will increase the chance of severe wildfires like those burning across Canada and heat waves like the one smothering Puerto Rico.`\
+https://nytimes.com/2023/06/08/climate/canada-wildfires-smoke-extreme-weather.html?searchResultPosition=4
+
 **Hey, Alexa, What Should Students Learn About A.I.?**\
 `While schools debate what to teach students about powerful new A.I. tools, tech giants, universities and nonprofits are intervening with free lessons.`\
-https://nytimes.com/2023/06/08/business/ai-literacy-schools-amazon-alexa.html?searchResultPosition=4
+https://nytimes.com/2023/06/08/business/ai-literacy-schools-amazon-alexa.html?searchResultPosition=5
 
 **Martin Luther King Jr.’s High-Stakes Gamble in Birmingham**\
 `In “You Have to Be Prepared to Die Before You Can Begin to Live,” Paul Kix brings cinematic flair to the story of the civil rights leader’s risky 1963 campaign to integrate the city.`\
-https://nytimes.com/2023/06/08/books/review/you-have-to-be-prepared-to-die-before-you-can-begin-to-live-paul-kix.html?searchResultPosition=5
-
-**Record Pollution and Heat Herald a Season of Climate Extremes**\
-`Scientists have long warned that global warming will increase the chance of severe wildfires like those burning across Canada and heat waves like the one smothering Puerto Rico.`\
-https://nytimes.com/2023/06/08/climate/canada-wildfires-smoke-extreme-weather.html?searchResultPosition=6
+https://nytimes.com/2023/06/08/books/review/you-have-to-be-prepared-to-die-before-you-can-begin-to-live-paul-kix.html?searchResultPosition=6
 
 **Those Businesses That Pivoted During the Pandemic? Some Are Still Pivoting.**\
 `A challenging time proved to be fertile ground for experimentation that continues to pay off.`\
