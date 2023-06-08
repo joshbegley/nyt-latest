@@ -14,7 +14,7 @@ https://nytimes.com/2023/06/08/opinion/letters/wildfires-smoke-haze.html?searchR
 `His interrogation helped lead to a Supreme Court ruling that established rights that protect criminal suspects from incriminating themselves while in custody.`\
 https://nytimes.com/2023/06/08/us/carroll-cooley-dead.html?searchResultPosition=4
 
-**I Loved Watching Chris Christie Tear Into Trump. That’s a Problem for Him.**\
+**I Loved Watching Chris Christie Tear Into Trump. That’s a Problem.**\
 `The ex-governor is trying to appeal to a version of the G.O.P. that no longer exists.`\
 https://nytimes.com/2023/06/08/opinion/christie-townhall-trump.html?searchResultPosition=5
 
