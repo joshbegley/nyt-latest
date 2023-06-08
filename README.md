@@ -1,40 +1,40 @@
+**‘How Could This Happen?’: Canadian Fires Burning Where They Rarely Have Before**\
+`Of the more than 400 fires burning in Canada, more than one-third are in Quebec, which has little experience with so many and such large wildfires.`\
+https://nytimes.com/2023/06/08/world/canada/quebec-canada-wildfires-locations.html?searchResultPosition=1
+
+**Justice Department Charges Trump in Documents Case**\
+`The indictment, filed Thursday in Federal District Court in Miami, is the first time in U.S. history a former president has faced federal charges.`\
+https://nytimes.com/2023/06/08/us/politics/justice-department-charges-trump-in-documents-case.html?searchResultPosition=2
+
 **School Shooter’s Parents Will Hand Ownership of Writings to Victims**\
 `The family’s decision to relinquish legal ownership of writings left by the Nashville school shooter comes amid a fierce legal battle over whether the writings should be made public.`\
-https://nytimes.com/2023/06/08/us/nashville-school-shooting-writings-victims.html?searchResultPosition=1
+https://nytimes.com/2023/06/08/us/nashville-school-shooting-writings-victims.html?searchResultPosition=3
 
 **John Roberts Throws a Curveball**\
 `The Voting Rights Act lives to see another day.`\
-https://nytimes.com/2023/06/08/opinion/milligan-roberts-court-voting-right-act.html?searchResultPosition=2
+https://nytimes.com/2023/06/08/opinion/milligan-roberts-court-voting-right-act.html?searchResultPosition=4
 
 **N.Y. Democrats, at Odds Over Tenant Protections, Fail to Reach Housing Deal**\
 `State lawmakers will leave Albany, N.Y., this week without passing any housing policies, sparking a new round of finger-pointing among Democrats.`\
-https://nytimes.com/2023/06/08/nyregion/housing-good-cause-eviction.html?searchResultPosition=3
+https://nytimes.com/2023/06/08/nyregion/housing-good-cause-eviction.html?searchResultPosition=5
 
 **Supreme Court Gives the Voting Rights Act a Tenuous New Lease on Life**\
 `The main remaining power of the landmark 1965 law, over racial bias in political mapmaking, gets an unexpected buttressing from a court that had been weakening the law for years.`\
-https://nytimes.com/2023/06/08/us/voting-rights-act-supreme-court.html?searchResultPosition=4
+https://nytimes.com/2023/06/08/us/voting-rights-act-supreme-court.html?searchResultPosition=6
 
 **This Is Not the Time for a Third Presidential Candidate**\
 `The No Labels plan is just too risky.`\
-https://nytimes.com/2023/06/08/opinion/third-party-president-election-2024.html?searchResultPosition=5
+https://nytimes.com/2023/06/08/opinion/third-party-president-election-2024.html?searchResultPosition=7
 
 **How Pat Robertson Created the Religious Right’s Model for Political Power**\
 `The celebrity minister, who died Thursday, built a media empire and openly sought to leverage his popularity among evangelicals to influence government and the culture.`\
-https://nytimes.com/2023/06/08/us/pat-robertson-religious-right-politics.html?searchResultPosition=6
+https://nytimes.com/2023/06/08/us/pat-robertson-religious-right-politics.html?searchResultPosition=8
 
 **No. 2 Official at Transportation Department Is Named F.A.A.’s Interim Leader**\
 `Polly Trottenberg, the deputy transportation secretary, will lead the Federal Aviation Administration on an interim basis after the departure of the agency’s acting leader, Billy Nolen.`\
-https://nytimes.com/2023/06/08/us/politics/polly-trottenberg-faa.html?searchResultPosition=7
+https://nytimes.com/2023/06/08/us/politics/polly-trottenberg-faa.html?searchResultPosition=9
 
 **Supreme Court Ruling on Voting Rights Could Resound Across the South**\
 `A decision that said Alabama’s congressional voting maps were detrimental to Black voters was celebrated by advocates — and could mean changes to voting in other states.`\
-https://nytimes.com/2023/06/08/us/politics/supreme-court-voting-rights-alabama.html?searchResultPosition=8
-
-**21 Teenagers Injured in Walkway Collapse at Beach Park in Texas**\
-`Five were airlifted from Surfside Beach, Texas, to a Houston hospital, and 16 were being treated locally, officials said. They were at a summer camp run by a church when the walkway collapsed.`\
-https://nytimes.com/2023/06/08/us/boardwalk-collapse-surfside-beach-texas.html?searchResultPosition=9
-
-**Texas Will Place a Floating Barrier Between U.S. and Mexico**\
-`Gov. Greg Abbott said the state will put a 1,000-foot string of buoys in the middle of the Rio Grande to deter migrants from entering the United States.`\
-https://nytimes.com/2023/06/08/us/texas-abbott-border-wall.html?searchResultPosition=10
+https://nytimes.com/2023/06/08/us/politics/supreme-court-voting-rights-alabama.html?searchResultPosition=10
 
