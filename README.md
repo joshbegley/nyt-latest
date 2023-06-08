@@ -34,7 +34,7 @@ https://nytimes.com/2023/06/08/podcasts/headlines-nyt-audio-app.html?searchResul
 `The motive for the attack, in the southeastern city of Annecy, was not immediately clear. President Emmanuel Macron said that several children and one adult were “between life and death.”`\
 https://nytimes.com/2023/06/08/world/europe/france-stabbing-annecy.html?searchResultPosition=9
 
-**As China Cracks Down on Mosque Domes, One Town Pushes Back**\
+**Behind a Rare Clash, a Fight Over Faith in China**\
 `China is destroying Arab-style architectural features of mosques, such as domes and minarets. The tightened control on religion has been met with rare resistance.`\
 https://nytimes.com/2023/06/08/world/asia/china-mosques-dome-crackdown.html?searchResultPosition=10
 
