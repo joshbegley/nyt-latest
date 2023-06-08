@@ -19,7 +19,7 @@ https://nytimes.com/2023/06/08/us/politics/desantis-deepfakes-trump-fauci.html?s
 https://nytimes.com/2023/06/08/world/europe/ukraine-offensive-russia.html?searchResultPosition=5
 
 **House Mutiny Leaves McCarthy Facing Tough Choices**\
-`Lawmakers in both parties fear that the rebellion by the extreme right could endanger spending bills and other big legislative initiatives if it persists, defining the speakership in the most difficult of ways.`\
+`Lawmakers in both parties fear that the rebellion by the extreme right could endanger spending bills and other big legislative initiatives if it persists, shaping the speakership in the most difficult of ways.`\
 https://nytimes.com/2023/06/08/us/politics/kevin-mccarthy-house-republicans-mutiny.html?searchResultPosition=6
 
 **Dr. Ashish Jha, White House Covid Coordinator, Set to Depart This Month**\
