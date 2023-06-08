@@ -1,40 +1,40 @@
+**Pope Francis Is Doing Well After Abdominal Surgery, Vatican Says**\
+`The 86-year old pontiff had a peaceful night, and was alert and breathing on his own a day after he underwent surgery to treat a hernia, an official statement reported.`\
+https://nytimes.com/2023/06/08/world/europe/pope-francis-abdominal-surgery-recovery.html?searchResultPosition=1
+
 **Ukraine on the Attack in the South, Part of What Russia Calls a Counteroffensive**\
 `The fighting in the south follows a claim earlier this week that the counteroffensive had started farther east.`\
-https://nytimes.com/2023/06/08/world/europe/ukraine-counteroffensive-russia-war.html?searchResultPosition=1
+https://nytimes.com/2023/06/08/world/europe/ukraine-counteroffensive-russia-war.html?searchResultPosition=2
 
 **Pat Robertson, Who Gave Christian Conservatives Clout, Dies at 93**\
 `A Baptist minister and a broadcaster, he turned Christian conservatives into a powerful constituency that helped Republicans capture Congress in 1994.`\
-https://nytimes.com/2023/06/08/us/pat-robertson-dead.html?searchResultPosition=2
+https://nytimes.com/2023/06/08/us/pat-robertson-dead.html?searchResultPosition=3
 
 **How the Lionel Messi Deal Stymied Saudi Arabia**\
 `A complex arrangement, involving Apple, to bring the soccer star to Miami shows how to trump the free-spending kingdom — and how hard that may be to duplicate.`\
-https://nytimes.com/2023/06/08/business/dealbook/messi-miami-saudi.html?searchResultPosition=3
+https://nytimes.com/2023/06/08/business/dealbook/messi-miami-saudi.html?searchResultPosition=4
 
 **Inter Milan, Facing Painful Reckoning, Tries to Live in the Now**\
 `Inter made the Champions League final with Italy’s oldest squad and its highest debts. Whatever happens in Istanbul cannot stop the financial squeeze to come.`\
-https://nytimes.com/2023/06/08/sports/soccer/champions-league-final-inter-milan.html?searchResultPosition=4
+https://nytimes.com/2023/06/08/sports/soccer/champions-league-final-inter-milan.html?searchResultPosition=5
 
 **Poor Air Quality Is Routine in Many Parts of the World**\
 `On Wednesday, New York City briefly had the worst air in the world, eclipsing some of the poorest nations.`\
-https://nytimes.com/2023/06/08/us/air-pollution-china-india-global.html?searchResultPosition=5
+https://nytimes.com/2023/06/08/us/air-pollution-china-india-global.html?searchResultPosition=6
 
 **The Eurozone Slipped Into a Mild Recession Early in the Year**\
 `A weak recovery has been underway since then, but growth is expected to remain tepid for the remainder of the year.`\
-https://nytimes.com/2023/06/08/business/eurozone-recession-economy.html?searchResultPosition=6
+https://nytimes.com/2023/06/08/business/eurozone-recession-economy.html?searchResultPosition=7
 
 **Gratitude Really is Good for You. Here’s What the Science Shows.**\
 `Giving, receiving and even witnessing gratitude can improve your well-being, especially during difficult times.`\
-https://nytimes.com/2023/06/08/well/mind/gratitude-health-benefits.html?searchResultPosition=7
+https://nytimes.com/2023/06/08/well/mind/gratitude-health-benefits.html?searchResultPosition=8
 
 **A ‘Crown Jewel of Comedy’: The Joan Rivers Card Catalog of Jokes Finds a Home**\
 `Take a look at some of the artifacts from her archive, which includes 65,000 cross-referenced gags and is headed to the National Comedy Center.`\
-https://nytimes.com/2023/06/08/arts/television/joan-rivers-archive.html?searchResultPosition=8
+https://nytimes.com/2023/06/08/arts/television/joan-rivers-archive.html?searchResultPosition=9
 
 **‘Aloners’ Review: Plugged In but Shut Off**\
 `The director Hong Sung-eun’s debut feature is a quietly tragic tale of alienation and the ennui of modern life.`\
-https://nytimes.com/2023/06/08/movies/aloners-review.html?searchResultPosition=9
-
-**‘Flamin’ Hot’ Review: Neon Dust, Hollywood Corn**\
-`The actor Eva Longoria’s feature directing debut is a fictionalized account of the birth of a spicy, profitable snack.`\
-https://nytimes.com/2023/06/08/movies/flamin-hot-review.html?searchResultPosition=10
+https://nytimes.com/2023/06/08/movies/aloners-review.html?searchResultPosition=10
 
