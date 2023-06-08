@@ -1,4 +1,4 @@
-**Federal Monitor of Rikers Takes Direct Aim at Head of N.Y.C. Jails**\
+**Federal Monitor Overseeing Rikers Takes Aim at Head of N.Y.C. Jails**\
 `Louis A. Molina, the jails commissioner, has failed to stop rampant violence, and officials have shut down avenues of information about what happens behind bars, according to a report filed in federal court.`\
 https://nytimes.com/2023/06/08/nyregion/rikers-island-jail-report.html?searchResultPosition=1
 
