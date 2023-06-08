@@ -26,8 +26,8 @@ https://nytimes.com/2023/06/08/us/california-art-recommendations.html?searchResu
 `What T Magazine’s editors and contributors are eyeing for our own paternal figures, including outdoorsy accessories and psychedelia for all the senses.`\
 https://nytimes.com/2023/06/08/t-magazine/fathers-day-gift-guide.html?searchResultPosition=7
 
-**New Yorkers May Soon Have to Compost, Whether They Want to or Not**\
-`The City Council is set to pass a bill on Thursday requiring New Yorkers to separate their food waste from regular trash, much as they do with recyclable items.`\
+**New York City Residents Will Soon Have to Compost Their Food Scraps**\
+`The City Council is set to pass a bill on Thursday requiring New Yorkers to separate their food waste from regular trash, with mandatory composting coming to all five boroughs by next year.`\
 https://nytimes.com/2023/06/08/nyregion/food-composting-nyc.html?searchResultPosition=8
 
 **Our Local Black Hole Serves Up an ‘Awe Moment’**\
