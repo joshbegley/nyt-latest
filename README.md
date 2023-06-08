@@ -1,5 +1,5 @@
-**Jamal Murray Lets His Game Do the Talking**\
-`Murray, the Denver Nuggets star guard, is often overshadowed by his teammate Nikola Jokic, but he has proved his value in the N.B.A. finals against the Miami Heat.`\
+**Jamal Murray Lets His Play Do the Talking**\
+`Murray is often overshadowed by his teammate Nikola Jokic, but he has proved his value in leading the Nuggets to a 2-1 lead over the Heat in the N.B.A. finals.`\
 https://nytimes.com/2023/06/08/sports/basketball/jamal-murray-denver-nuggets.html?searchResultPosition=1
 
 **How to Clear 500,000 Feral Cats From New York’s Streets**\
