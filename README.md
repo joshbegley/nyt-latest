@@ -1,6 +1,6 @@
 **Why the wildfire smoke makes the sky turn wild colors.**\
 `It has to do with the way light scatters.`\
-https://nytimes.com/2023/06/08/us/sky-color-wildfire-smoke-orange.html?searchResultPosition=1
+https://nytimes.com/2023/06/08/science/sky-color-wildfire-smoke-orange.html?searchResultPosition=1
 
 **Alcaraz vs. Djokovic: The Next Kid Up Faces the Game’s Steeliest Brain**\
 `Carlos Alcaraz and Novak Djokovic, who have played each other only once, will finally do so again on Friday in the French Open semifinals. Can the ultimate young talent beat the ultimate tennis mind?`\
