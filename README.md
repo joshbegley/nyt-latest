@@ -2,7 +2,7 @@
 `The fighting in the south follows a claim earlier this week that the counteroffensive had started farther east.`\
 https://nytimes.com/2023/06/08/world/europe/ukraine-counteroffensive-russia-war.html?searchResultPosition=1
 
-**Pat Robertson, Who Brought Christian Conservatives Clout, Dies at 93**\
+**Pat Robertson, Who Gave Christian Conservatives Clout, Dies at 93**\
 `A Baptist minister and a broadcaster, he turned Christian conservatives into a powerful constituency that helped Republicans capture Congress in 1994.`\
 https://nytimes.com/2023/06/08/us/pat-robertson-dead.html?searchResultPosition=2
 
