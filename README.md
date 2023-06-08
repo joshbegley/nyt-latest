@@ -1,5 +1,5 @@
-**Man Stabs Several People in Southeastern France, Authorities Say**\
-`The interior minister said that children were among those injured. The assailant’s motive was not immediately clear.`\
+**Man Stabs Several People, Including Children, in France, Authorities Say**\
+`The motive in the attack, in the southeastern city of Annecy, was not immediately clear.`\
 https://nytimes.com/2023/06/08/world/europe/france-stabbing-annecy.html?searchResultPosition=1
 
 **As China Cracks Down on Mosque Domes, One Town Pushes Back**\
