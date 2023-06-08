@@ -1,5 +1,5 @@
 **Wildfire Smoke Envelops the U.S.**\
-`It “looks like Mars” and “smells like cigars,” one meteorologist said.`\
+`New York City experienced its worst air quality on record. Here’s how to stay safe as the smoke spreads.`\
 https://nytimes.com/2023/06/08/briefing/new-york-wildfires-smoke.html?searchResultPosition=1
 
 **Satellite Images Show Scale of Flooding From Ukraine Dam Collapse**\
