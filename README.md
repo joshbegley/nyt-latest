@@ -1,40 +1,40 @@
+**‘Persian Lessons’ Review: Performing for His Life**\
+`A Jewish Frenchman posing as a Persian eludes death by teaching a fictional form of the Persian language to a Nazi commandant in this improbable Holocaust drama.`\
+https://nytimes.com/2023/06/08/movies/persian-lessons-review.html?searchResultPosition=1
+
+**‘The Angry Black Girl and Her Monster’ Review: Death Transforms Her**\
+`A teenage girl handles her grief in an enterprising way in this horror film from Bomani J. Story.`\
+https://nytimes.com/2023/06/08/movies/the-angry-black-girl-and-her-monster-review.html?searchResultPosition=2
+
+**Eerie Days: Smoke and Haze, All Around**\
+`Reaction to the smoke from the Canadian wildfires. Also: Sexism and xenophobia in Hollywood; Target’s L.G.B.T.Q. merchandise; “The View”; migrant opportunity.`\
+https://nytimes.com/2023/06/08/opinion/letters/wildfires-smoke-haze.html?searchResultPosition=3
+
+**Carroll Cooley, Detective in Landmark Miranda Case, Dies at 87**\
+`His interrogation helped lead to a Supreme Court ruling that established rights that protect criminal suspects from incriminating themselves while in custody.`\
+https://nytimes.com/2023/06/08/us/carroll-cooley-dead.html?searchResultPosition=4
+
+**I Loved Watching Chris Christie Tear Into Trump. That’s a Problem for Him.**\
+`The ex-governor is trying to appeal to a version of the G.O.P. that no longer exists.`\
+https://nytimes.com/2023/06/08/opinion/christie-townhall-trump.html?searchResultPosition=5
+
 **They’re Here to Save Indie Media**\
 `A new web publication from a founder of the print-only newspaper The Drunken Canal tries to make a splash in a space where giants have sputtered. Can it work?`\
-https://nytimes.com/2023/06/08/style/the-drunken-canal-byline-media.html?searchResultPosition=1
+https://nytimes.com/2023/06/08/style/the-drunken-canal-byline-media.html?searchResultPosition=6
 
 **Maitreyi Ramakrishnan Is Done With School. On TV, Anyway.**\
 `With the final season of “Never Have I Ever,” the actress is graduating from her first onscreen role. Next up: a (nonfictional) college degree.`\
-https://nytimes.com/2023/06/08/arts/television/maitreyi-ramakrishnan-never-have-i-ever-final-season.html?searchResultPosition=2
+https://nytimes.com/2023/06/08/arts/television/maitreyi-ramakrishnan-never-have-i-ever-final-season.html?searchResultPosition=7
 
 **Sun, Sea and Books Make This Festival an Enticing Destination**\
 `Among the host of literary gatherings that have sprung up in the last 20 years, Calabash in Jamaica brings the party off the page.`\
-https://nytimes.com/2023/06/08/books/literary-festivals-calabash-jamaica.html?searchResultPosition=3
+https://nytimes.com/2023/06/08/books/literary-festivals-calabash-jamaica.html?searchResultPosition=8
 
 **Richard E. Snyder, 93, Dies; Drove Simon & Schuster to New Heights**\
 `In two decades of leadership at the publishing house, he helped remold a clubby book industry into a diversified and highly profitable corporate enterprise.`\
-https://nytimes.com/2023/06/08/business/media/richard-e-snyder-dead.html?searchResultPosition=4
+https://nytimes.com/2023/06/08/business/media/richard-e-snyder-dead.html?searchResultPosition=9
 
 **Grilled Vegetables for Maximum Summer Whimsy**\
 `Try these three easy techniques to get more from your market haul.`\
-https://nytimes.com/2023/06/08/dining/grilled-vegetables-for-maximum-summer-whimsy.html?searchResultPosition=5
-
-**Why the wildfire smoke makes the sky turn wild colors.**\
-`It has to do with the way light scatters.`\
-https://nytimes.com/2023/06/08/science/sky-color-wildfire-smoke-orange.html?searchResultPosition=6
-
-**Alcaraz vs. Djokovic: The Next Kid Up Faces the Game’s Steeliest Brain**\
-`Carlos Alcaraz and Novak Djokovic, who have played each other only once, will finally do so again on Friday in the French Open semifinals. Can the ultimate young talent beat the ultimate tennis mind?`\
-https://nytimes.com/2023/06/08/sports/tennis/french-open-alcaraz-djokovic.html?searchResultPosition=7
-
-**Louisiana Passes Bill That Would Require Parental Consent for Kids’ Online Accounts**\
-`The measure would allow parents to cancel the contracts underlying their children’s accounts on sites like TikTok, Instagram, Roblox and YouTube.`\
-https://nytimes.com/2023/06/08/business/louisiana-consent-minors-online.html?searchResultPosition=8
-
-**Latin American Artists Reinvent Their Histories**\
-`Our critic says “Chosen Memories” at MoMA is one of the most stirring recent collection shows. The theme of change and instability is a binding thread.`\
-https://nytimes.com/2023/06/08/arts/design/cisneros-moma-art-gift-latin-america.html?searchResultPosition=9
-
-**‘A Woman Escapes’ Review: Screen Sharing**\
-`In this moody epistolary film, a woman in Paris works through a close friend’s death with the help of video correspondences.`\
-https://nytimes.com/2023/06/08/movies/a-woman-escapes-review.html?searchResultPosition=10
+https://nytimes.com/2023/06/08/dining/grilled-vegetables-for-maximum-summer-whimsy.html?searchResultPosition=10
 
