@@ -1,10 +1,10 @@
+**Alabama Inmate Is Sentenced to Life in Officer-Aided Escape**\
+`Casey White pleaded guilty to first-degree escape, a surprise move in a case that one defense attorney called “very unusual.” His 11-day jailbreak led to a manhunt.`\
+https://nytimes.com/2023/06/08/us/casey-white-sentencing-alabama-jail.html?searchResultPosition=1
+
 **‘How Could This Happen?’: Canadian Fires Burning Where They Rarely Have Before**\
 `Of the more than 400 fires burning in Canada, more than one-third are in Quebec, which has little experience with so many and such large wildfires.`\
-https://nytimes.com/2023/06/08/world/canada/quebec-canada-wildfires-locations.html?searchResultPosition=1
-
-**Justice Department Charges Trump in Documents Case**\
-`The indictment, filed Thursday in Federal District Court in Miami, is the first time in U.S. history a former president has faced federal charges.`\
-https://nytimes.com/live/2023/06/08/us/trump-indictment-documents/justice-department-charges-trump-in-documents-case?searchResultPosition=2
+https://nytimes.com/2023/06/08/world/canada/quebec-canada-wildfires-locations.html?searchResultPosition=2
 
 **School Shooter’s Parents Will Hand Ownership of Writings to Victims**\
 `The family’s decision to relinquish legal ownership of writings left by the Nashville school shooter comes amid a fierce legal battle over whether the writings should be made public.`\
