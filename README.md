@@ -35,6 +35,6 @@ https://nytimes.com/2023/06/08/world/europe/pope-francis-abdominal-surgery-recov
 https://nytimes.com/2023/06/08/world/europe/ukraine-counteroffensive-russia-war.html?searchResultPosition=9
 
 **Pat Robertson, Who Gave Christian Conservatives Clout, Dies at 93**\
-`A Baptist minister and a broadcaster, he turned Christian conservatives into a powerful constituency that helped Republicans capture Congress in 1994.`\
+`As a Baptist minister and a broadcaster, he turned Christian conservatives into a powerful constituency that helped Republicans capture Congress in 1994.`\
 https://nytimes.com/2023/06/08/us/pat-robertson-dead.html?searchResultPosition=10
 
