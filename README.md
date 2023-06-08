@@ -2,7 +2,7 @@
 `A Baptist minister and a broadcaster, he turned Christian conservatives into a powerful constituency that helped Republicans capture Congress in 1994.`\
 https://nytimes.com/2023/06/08/us/pat-robertson-dead.html?searchResultPosition=1
 
-**How the Lionel Messi Deal Stymies Saudi Arabia’s Ambitions**\
+**How the Lionel Messi Deal Stymied Saudi Arabia**\
 `A complex arrangement, involving Apple, to bring the soccer star to Miami shows how to trump the free-spending kingdom — and how hard that may be to duplicate.`\
 https://nytimes.com/2023/06/08/business/dealbook/messi-miami-saudi.html?searchResultPosition=2
 
