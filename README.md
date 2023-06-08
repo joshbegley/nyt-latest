@@ -1,40 +1,40 @@
+**How to Clear 500,000 Feral Cats From New York’s Streets**\
+`After the pandemic boom in pet adoption gave way to pet abandonment, locals in Brooklyn are trying a controversial approach to population control.`\
+https://nytimes.com/2023/06/08/nyregion/feral-cats-nyc.html?searchResultPosition=1
+
+**Liberal Prosecutors Are Revisiting Police Killings but Charging Few Officers So Far**\
+`Pamela Price, a new district attorney in Northern California, is the latest to reopen cases that had seemingly been shut, including one from more than 15 years ago.`\
+https://nytimes.com/2023/06/08/us/police-killings-charges.html?searchResultPosition=2
+
+**Lawyer Who Used ChatGPT Faces Penalty for Made Up Citations**\
+`A judge may sanction the lawyer, Steven A. Schwartz, for submitting opinions and citations invented by the chat bot.`\
+https://nytimes.com/2023/06/08/nyregion/lawyer-chatgpt-sanctions.html?searchResultPosition=3
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2023/06/08/crosswords/spelling-bee-forum.html?searchResultPosition=4
+
+**Talking Trash, in a City Overflowing With It**\
+`Emma G. Fitzsimmons, the City Hall bureau chief for The New York Times, discusses a sticky subject that engrosses (and grosses out) New Yorkers: garbage.`\
+https://nytimes.com/2023/06/08/insider/talking-trash-in-a-city-overflowing-with-it.html?searchResultPosition=5
+
+**New York City Has Lost Tens of Thousands of Retail Jobs, Report Finds**\
+`Despite a nearly recovered employment market, retail jobs fell 11.1 percent, according to the new study, widening racial disparities and narrowing opportunities for those without a college degree.`\
+https://nytimes.com/2023/06/08/nyregion/new-york-city-loses-retail-jobs.html?searchResultPosition=6
+
 **Today’s Wordle Review**\
 `Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/06/08/crosswords/todays-wordle-answer-719.html?searchResultPosition=1
+https://nytimes.com/2023/06/08/crosswords/todays-wordle-answer-719.html?searchResultPosition=7
 
 **Word of the Day: forum**\
 `This word has appeared in 1,140 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/06/08/learning/word-of-the-day-forum.html?searchResultPosition=2
+https://nytimes.com/2023/06/08/learning/word-of-the-day-forum.html?searchResultPosition=8
 
 **5 Takeaways From Mike Pence’s CNN Town Hall**\
 `Donald Trump’s former vice president sought to draw a contrast with his old boss while also embracing the actions of their administration.`\
-https://nytimes.com/2023/06/08/us/politics/pence-cnn-town-hall-takeaways.html?searchResultPosition=3
+https://nytimes.com/2023/06/08/us/politics/pence-cnn-town-hall-takeaways.html?searchResultPosition=9
 
 **Quotation of the Day:**\
 `Quotation of the Day for Thursday, June 8, 2023.`\
-https://nytimes.com/2023/06/08/pageoneplus/quotation-of-the-day.html?searchResultPosition=4
-
-**Your Thursday Briefing**\
-`Residents along the Dnipro River face devastation after the destruction of a key dam.`\
-https://nytimes.com/2023/06/08/briefing/flooding-dam-ukraine-sudan-fighting.html?searchResultPosition=5
-
-**And the Masks Came Back On: New York’s Day in Smoke**\
-`Smoke, up close and personal, shrouded the day. Also, a testy meeting between would-be cannabis retailers and state officials.`\
-https://nytimes.com/2023/06/08/nyregion/and-the-masks-came-back-on-new-yorks-day-in-smoke.html?searchResultPosition=6
-
-**Comer Cancels Wray Contempt Vote as F.B.I. Agrees to Share Document**\
-`The Oversight Committee chairman canceled a vote to begin contempt proceedings against the F.B.I. leader after he agreed to more widely distribute a document on a claim against President Biden.`\
-https://nytimes.com/2023/06/07/us/politics/congress-wray-contempt-fbi-biden-document.html?searchResultPosition=7
-
-**The Iron Sheik, Villainous Hall of Fame Wrestler, Is Dead**\
-`Khosrow Vaziri drew on his Iranian heritage to create a caricature of a Middle Eastern villain and became one of the most memorable heels in wrestling history.`\
-https://nytimes.com/2023/06/07/arts/television/iron-sheik-dead.html?searchResultPosition=8
-
-**One Who’s Bound to Succeed**\
-`Philip Koski wants us to untangle his puzzle.`\
-https://nytimes.com/2023/06/07/crosswords/daily-puzzle-2023-06-08.html?searchResultPosition=9
-
-**All About the Deep-Pocketed Saudi Wealth Fund That Rocked Golf**\
-`The secretive $700 billion investment fund has set its sights on tourism, job creation, private equity and, now, golf.`\
-https://nytimes.com/2023/06/07/world/middleeast/saudi-arabia-sovereign-wealth-fund.html?searchResultPosition=10
+https://nytimes.com/2023/06/08/pageoneplus/quotation-of-the-day.html?searchResultPosition=10
 
