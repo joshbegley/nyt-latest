@@ -4,7 +4,7 @@ https://nytimes.com/2023/06/08/world/canada/quebec-canada-wildfires-locations.ht
 
 **Justice Department Charges Trump in Documents Case**\
 `The indictment, filed Thursday in Federal District Court in Miami, is the first time in U.S. history a former president has faced federal charges.`\
-https://nytimes.com/2023/06/08/us/politics/justice-department-charges-trump-in-documents-case.html?searchResultPosition=2
+https://nytimes.com/live/2023/06/08/us/trump-indictment-documents/justice-department-charges-trump-in-documents-case?searchResultPosition=2
 
 **School Shooter’s Parents Will Hand Ownership of Writings to Victims**\
 `The family’s decision to relinquish legal ownership of writings left by the Nashville school shooter comes amid a fierce legal battle over whether the writings should be made public.`\
