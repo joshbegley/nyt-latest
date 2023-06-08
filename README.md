@@ -1,40 +1,40 @@
+**24 Hours of Le Mans: 100 Years of Endurance and Innovation**\
+`The famous race, often a testing ground for the automotive industry, has hit its centennial.`\
+https://nytimes.com/2023/06/08/sports/autoracing/24-hours-lemans-anniversary.html?searchResultPosition=1
+
+**Automakers Are Crashing Toyota’s Le Mans Party**\
+`It has won the top class for the past five years, but Cadillac, Peugeot, Porsche and Ferrari have returned to try to take the crown.`\
+https://nytimes.com/2023/06/08/sports/autoracing/24-hours-le-mans-toyota.html?searchResultPosition=2
+
+**Bringing Some Loud NASCAR to Le Mans**\
+`A modified Camaro ZL1, with a big V8, will be the Garage 56 entry this year.`\
+https://nytimes.com/2023/06/08/sports/autoracing/nascar-le-mans-24-hours.html?searchResultPosition=3
+
 **Orange Skies, Red Alerts and the Future**\
 `The climate crisis has started, but there’s worse to come.`\
-https://nytimes.com/2023/06/08/opinion/wildfires-smoke-climate-crisis.html?searchResultPosition=1
+https://nytimes.com/2023/06/08/opinion/wildfires-smoke-climate-crisis.html?searchResultPosition=4
 
 **Man Sentenced to Life in Prison For Killing of Camper in California**\
 `Anthony Rauda was sentenced to 119 years to life in prison for the 2018 shooting of a man who was camping with his children in Malibu Creek State Park.`\
-https://nytimes.com/2023/06/08/us/malibu-camping-shooting-sentencing.html?searchResultPosition=2
+https://nytimes.com/2023/06/08/us/malibu-camping-shooting-sentencing.html?searchResultPosition=5
 
 **This Week in Audio: Biden’s Age, Cringe Comedy and Beyoncé’s World Tour**\
 `Each week, we share the best of new audio journalism and storytelling.`\
-https://nytimes.com/2023/06/08/podcasts/this-week-in-audio.html?searchResultPosition=3
+https://nytimes.com/2023/06/08/podcasts/this-week-in-audio.html?searchResultPosition=6
 
 **‘Everything is dirty’ as wildfire smoke thickens over Toronto.**\
 `Downtown Toronto was at a “moderate risk” rating on its air quality scale at midday Thursday, but government forecasts said conditions would worsen.`\
-https://nytimes.com/2023/06/08/us/toronto-smoke-wildfires-air-quality.html?searchResultPosition=4
+https://nytimes.com/2023/06/08/us/toronto-smoke-wildfires-air-quality.html?searchResultPosition=7
 
 **Oklahoma Breaches the Wall Between Church and State**\
 `Religious liberty, not religious authority, should be the aim of the American right.`\
-https://nytimes.com/2023/06/08/opinion/oklahoma-church-state-religion.html?searchResultPosition=5
+https://nytimes.com/2023/06/08/opinion/oklahoma-church-state-religion.html?searchResultPosition=8
 
 **After a Rocky Year, Zuckerberg Lays Out Meta’s Road Map to Employees**\
 `In an internal all-hands meeting, the chief executive explained his plans for artificial intelligence, the metaverse and rebooting Meta’s culture.`\
-https://nytimes.com/2023/06/08/technology/mark-zuckerberg-meta.html?searchResultPosition=6
+https://nytimes.com/2023/06/08/technology/mark-zuckerberg-meta.html?searchResultPosition=9
 
 **For Under the Radar, the Experiment Is Over, for Now**\
 `“It wasn’t a choice I would have made,” said Mark Russell, whose festival of experimental work will no longer be produced by the Public Theater.`\
-https://nytimes.com/2023/06/08/theater/under-the-radar-public-theater.html?searchResultPosition=7
-
-**Supreme Court Narrows the Reach of an Aggravated Identity Theft Law**\
-`The justices rejected the government’s interpretation of a 2004 law that adds two years in prison for certain felonies if they involved misusing another person’s identification.`\
-https://nytimes.com/2023/06/08/us/supreme-court-identity-theft-law.html?searchResultPosition=8
-
-**How to Layer Rugs**\
-`A step-by-step guide to mastering the art of layering rugs`\
-https://nytimes.com/interactive/2023/06/08/realestate/how-to-layer-rugs.html?searchResultPosition=9
-
-**Supreme Court Rules Against Dog Toy Resembling Liquor Bottle**\
-`The case, a trademark dispute, pitted Jack Daniel’s against Bad Spaniels Silly Squeakers, which looks like the distiller’s distinctive bottle and adds potty humor.`\
-https://nytimes.com/2023/06/08/us/dog-toy-jack-daniels-supreme-court.html?searchResultPosition=10
+https://nytimes.com/2023/06/08/theater/under-the-radar-public-theater.html?searchResultPosition=10
 
