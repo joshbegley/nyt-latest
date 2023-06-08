@@ -6,7 +6,7 @@ https://nytimes.com/2023/06/08/arts/television/the-architect-muster-dogs.html?se
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2023/06/08/books/review/new-books-recommendations.html?searchResultPosition=2
 
-**Trump Turns to a Familiar Playback in Effort to Undermine Documents Inquiry**\
+**Trump Turns to a Familiar Playbook in Effort to Undermine Documents Inquiry**\
 `The former president is stepping up efforts to delegitimize the investigation into his handling of classified material after leaving office, a tactic he has used throughout his career in business and politics.`\
 https://nytimes.com/2023/06/08/us/politics/trump-classified-documents-prosecutors.html?searchResultPosition=3
 
