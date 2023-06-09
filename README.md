@@ -34,7 +34,7 @@ https://nytimes.com/2023/06/09/climate/air-quality-index-500.html?searchResultPo
 `The former president, who faces seven criminal charges for mishandling classified documents, is expected to surrender to authorities next week.`\
 https://nytimes.com/2023/06/09/business/dealbook/trump-indictment-2024.html?searchResultPosition=9
 
-**Sweden says it will allow NATO troops on its soil even before it joins the alliance.**\
+**Sweden says it will allow NATO troops on its soil even before joining the alliance**\
 `NATO is more optimistic that Turkey will approve Sweden’s membership before or soon after an alliance summit next month.`\
 https://nytimes.com/2023/06/09/world/europe/nato-sweden.html?searchResultPosition=10
 
