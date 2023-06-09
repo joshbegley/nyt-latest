@@ -1,40 +1,40 @@
-**Quotation of the Day: Energy Drinks Are Surging. So Are Their Caffeine Levels.**\
-`Quotation of the Day for Friday, June 9, 2023.`\
-https://nytimes.com/2023/06/09/pageoneplus/quotation-of-the-day-energy-drinks-are-surging-so-are-their-caffeine-levels.html?searchResultPosition=1
+**Upstart News Site Has Youth on Its Side, and Albany in Its Sights**\
+`New York Focus zeros in on the details of what goes on in the state capital. And the reporting has had some impressive results.`\
+https://nytimes.com/2023/06/09/nyregion/new-york-focus.html?searchResultPosition=1
 
-**A Landscape of Organized Chaos: Nigerian Photographers at MoMA**\
-`The museum’s celebrated series on emerging talents in photography turns to the first group show focusing on West Africa.`\
-https://nytimes.com/2023/06/09/arts/design/lagos-nigeria-moma-photography.html?searchResultPosition=2
+**For G.O.P. Rivals, an Unhappy Task: Defend the Man Dominating the Polls**\
+`The pressure on Republicans was quick: line up behind Donald Trump or risk looking like they weren’t on Team G.O.P. at a moment of heightened tribal politics.`\
+https://nytimes.com/2023/06/09/us/politics/trump-republicans-polls-2024.html?searchResultPosition=2
 
-**Tony Predictions: Expect Wins for ‘Kimberly Akimbo’ and ‘Leopoldstadt’**\
-`Our theater reporter talked to one-fifth of the Tony voters ahead of Sunday’s ceremony. Here’s hoping they steered him right.`\
-https://nytimes.com/2023/06/09/theater/tony-awards-predictions.html?searchResultPosition=3
+**24 Works of Fiction to Read This Summer**\
+`A sequel to Colson Whitehead’s “Harlem Shuffle,” new stories from Jamel Brinkley, a debut novel about a teenager who worked for Andy Warhol — and more.`\
+https://nytimes.com/2023/06/09/books/fiction-summer-books.html?searchResultPosition=3
 
-**They Spoke Up for Free Speech. Now They Are Being Sued for Defamation.**\
-`In Thailand, companies and people in positions of power often use libel suits to intimidate and punish activists and critics.`\
-https://nytimes.com/2023/06/09/world/asia/thailand-defamation-lawsuits.html?searchResultPosition=4
+**A Rising India Is Also, in One Remote Pocket, a Blood-Soaked War Zone**\
+`An outburst of ethnic hatreds has fractured an ancient kingdom and turned neighbors into enemies.`\
+https://nytimes.com/2023/06/09/world/asia/india-manipur-conflict.html?searchResultPosition=4
 
-**Energy Drinks Are Surging. So Are Their Caffeine Levels.**\
-`More companies are pushing low-calorie, sugar-free beverages they say are healthy. Some servings have nearly the same level of caffeine as a six-pack of Coca-Cola.`\
-https://nytimes.com/2023/06/09/business/prime-monster-energy-drinks-caffeine.html?searchResultPosition=5
+**Ready for a Nice, Soothing Bath? Just Head to the Backyard.**\
+`Cheaper than pools and more private than hot tubs, the bathtub is leaving the bathroom and has designs on your garden, or even your treehouse.`\
+https://nytimes.com/2023/06/09/realestate/bathtubs-backyard-outdoors.html?searchResultPosition=5
 
-**Did N.Y. Leaders Leave Residents Unprepared for the Air Quality Crisis?**\
-`Some experts and elected officials say that New York’s leaders should have moved more quickly to respond to the crisis.`\
-https://nytimes.com/2023/06/09/nyregion/adams-hochul-response-air-quality.html?searchResultPosition=6
+**Mastering the Art of Layering Rugs: a Step-by-Step Guide**\
+`Layering rugs is cheaper than buying a single large one, and cozier, too: “When you start layering rugs, it begins to feel like home.”`\
+https://nytimes.com/2023/06/09/realestate/rug-layering-sizes-tips.html?searchResultPosition=6
 
-**Justice Department Charges Trump in Documents Case**\
-`The indictment, handed up by a grand jury in Miami, is the first time a former U.S. president has faced federal charges.`\
-https://nytimes.com/2023/06/09/us/politics/trump-indictment-charges-documents-justice-department.html?searchResultPosition=7
+**The ‘Haunting’ of Gary Simmons**\
+`In new shows in Chicago and London, the artist uses ghostly erasure lines to look at ideas about race — forcing us to confront the images before they slip away.`\
+https://nytimes.com/2023/06/09/arts/design/gary-simmons-mca-chicago-artist.html?searchResultPosition=7
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/06/09/crosswords/spelling-bee-forum.html?searchResultPosition=8
+**14 Nonfiction Books to Read This Summer**\
+`Biographies of Anna May Wong and Alice Marble, a deep-sea exploration, the race to the North Pole: Here’s what to watch for this season.`\
+https://nytimes.com/2023/06/09/books/nonfiction-summer-books.html?searchResultPosition=8
 
-**The Tony Awards, and a Theater Reporter, Go Off Script**\
-`Ahead of the 76th Tony Awards, Michael Paulson, a theater reporter for The New York Times, shares what viewers can expect at this year’s ceremony amid a writers’ strike.`\
-https://nytimes.com/2023/06/09/insider/tony-awards-writers-strike.html?searchResultPosition=9
+**The New York Times News Quiz, June 9, 2023**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2023/06/09/briefing/news-quiz-canada-wildfires-liv-golf-trump.html?searchResultPosition=9
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/06/09/crosswords/wordle-review-answer-720.html?searchResultPosition=10
+**Can He Fix ‘Palace of Scaffolding’ in Time for Belgium’s 200th Birthday?**\
+`For an architect trying to renovate his beloved but crumbling Palace of Justice in Brussels, once the largest building in the world, the design challenges pale compared with the political ones.`\
+https://nytimes.com/2023/06/09/world/europe/brussels-palace-of-justice.html?searchResultPosition=10
 
