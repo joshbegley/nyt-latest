@@ -1,5 +1,5 @@
 **Federal charges do not bar Trump from running for president.**\
-`The indictment does not block Mr. Trump from continuing his 2024 campaign — nor would a conviction.`\
+`The 45th president could continue his 2024 campaign even if he were convicted of a felony — though it would be extraordinary.`\
 https://nytimes.com/2023/06/09/us/politics/trump-president-indictment-charges.html?searchResultPosition=1
 
 **Canada’s Ability to Prevent Forest Fires Lags Behind the Need**\
