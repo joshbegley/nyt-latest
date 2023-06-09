@@ -1,4 +1,4 @@
-**Harald zur Hausen, Nobelist Who Found Cause of Cervical Cancer, Dies at 87**\
+**Harald zur Hausen, 87, Nobelist Who Found Cause of Cervical Cancer, Dies**\
 `When he proposed that the human papillomavirus caused cervical cancer, he was ridiculed. He persevered, and today a vaccine exists.`\
 https://nytimes.com/2023/06/09/health/harald-zur-hausen-dead.html?searchResultPosition=1
 
