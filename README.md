@@ -28,7 +28,7 @@ https://nytimes.com/2023/06/09/arts/music/playlist-pinkpantheresss-rosalia.html?
 
 **Following the Bloodlines**\
 `In new crime novels from Victoria Kielland, James Wolff, Katie Siegel and Michael McGarrity, the past is hard to shake.`\
-https://nytimes.com/2023/06/09/books/review/new-crime-fiction.html?searchResultPosition=8
+https://nytimes.com/2023/06/09/books/review/new-crime-books-june.html?searchResultPosition=8
 
 **George Santos Says His Family Helped Bail Him Out. (Just Don’t Ask Who.)**\
 `Mr. Santos, a New York representative, said his relatives had helped guarantee his bail, but asked a judge to keep their names sealed out of privacy concerns.`\
