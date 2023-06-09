@@ -1,40 +1,40 @@
+**Pride, Illustrated: 6 Comics and Graphic Novels to Read This June**\
+`These recent, new and upcoming books with L.G.B.T.Q. characters offer adventure stories, personal recollections, a riff on a famous novel and more.`\
+https://nytimes.com/2023/06/09/arts/lgbtq-pride-comics-graphic-novels.html?searchResultPosition=1
+
+**A New Hiroshi Sugimoto Sculpture in San Francisco Reaches for Infinity**\
+`His sliver of an artwork, “Point of Infinity,” marks the start of the city’s Treasure Island Art Program.`\
+https://nytimes.com/2023/06/09/arts/design/hiroshi-sugimoto-point-of-infinity-san-francisco.html?searchResultPosition=2
+
+**A drone factory that Iran is helping Russia build could be operational next year, the U.S. says.**\
+`Washington is trying to raise the pressure on Tehran and make it more difficult to complete the work on the factory, which would enable Russia’s military to produce drones domestically.`\
+https://nytimes.com/2023/06/09/world/europe/iran-russia-drone-factory.html?searchResultPosition=3
+
+**In Paris, Young Theater Makers Swing Big**\
+`Ariane Mnouchkine, a grande dame of French theater, helped to set up a new festival where emerging companies can try out ambitious stagings.`\
+https://nytimes.com/2023/06/09/theater/depart-d-incendies-ariane-mnouchkine.html?searchResultPosition=4
+
 **U.S. Official Says Spy Satellites Detected Explosion Just Before Dam Collapse**\
 `U.S. spy agencies still do not have any solid evidence to determine who caused the destruction, the senior administration official said.`\
-https://nytimes.com/2023/06/09/world/europe/ukraine-dam-collapse-explosion.html?searchResultPosition=1
+https://nytimes.com/2023/06/09/world/europe/ukraine-dam-collapse-explosion.html?searchResultPosition=5
+
+**Trump was recorded saying he knew he had a classified document.**\
+`The recording, confirmed by a person briefed on the matter, is expected to be a critical piece of evidence in the case against him that the special counsel Jack Smith brought this week.`\
+https://nytimes.com/2023/06/09/us/politics/trump-classified-document-recording-evidence.html?searchResultPosition=6
 
 **Four Australian Shows and Movies for Your Watchlist**\
 `Love stories, survival reality and stop motion animation: What we’re enjoying.`\
-https://nytimes.com/2023/06/09/world/australia/four-australian-shows-and-movies-for-your-watchlist.html?searchResultPosition=2
+https://nytimes.com/2023/06/09/world/australia/four-australian-shows-and-movies-for-your-watchlist.html?searchResultPosition=7
 
 **The Players Are the Trophies Now**\
 `Soccer is the ultimate prize in Saudi Arabia’s push in sports. Karim Benzema’s signing offered a glimpse of the price tag. Lionel Messi’s rejection showed its limits.`\
-https://nytimes.com/2023/06/09/sports/soccer/lionel-messi-karim-benzema-saudi-arabia.html?searchResultPosition=3
+https://nytimes.com/2023/06/09/sports/soccer/lionel-messi-karim-benzema-saudi-arabia.html?searchResultPosition=8
 
 **While Downtown Flounders, This San Francisco Neighborhood Is Thriving**\
 `The Outer Sunset’s success reflects how some cities have evolved during the pandemic.`\
-https://nytimes.com/2023/06/09/us/while-downtown-flounders-this-san-francisco-neighborhood-is-thriving.html?searchResultPosition=4
+https://nytimes.com/2023/06/09/us/while-downtown-flounders-this-san-francisco-neighborhood-is-thriving.html?searchResultPosition=9
 
 **Summer Reading Contest, Week 1: What Got Your Attention in The Times This Week?**\
 `To participate, submit your response here by June 16 at 9 a.m. Eastern. This week’s winners will be announced on June 27.`\
-https://nytimes.com/2023/06/09/learning/summer-reading-contest-week-1-what-got-your-attention-in-the-times-this-week.html?searchResultPosition=5
-
-**Ben Bernanke Talks About Bank Runs, Inflation, A.I., Market Bubbles and More**\
-`The former Fed chairman shared his thoughts with our columnist.`\
-https://nytimes.com/2023/06/09/business/bernanke-banks-inflation-ai.html?searchResultPosition=6
-
-**The Risks of Storing Money in Apps Like Venmo and Cash App**\
-`The Consumer Financial Protection Bureau is warning that the funds may be at risk if the app’s parent company runs into trouble.`\
-https://nytimes.com/2023/06/09/your-money/venmo-cash-app-paypal-payment-apps.html?searchResultPosition=7
-
-**Macron Meets Victims and ‘Backpack Hero’ After Stabbing Attack in France**\
-`Two adults and four children were injured in the assault, which shocked the country and could have been worse if not for the intervention of a 24-year-old man known only as Henri.`\
-https://nytimes.com/2023/06/09/world/europe/france-stabbing-backpack-hero.html?searchResultPosition=8
-
-**An Everest Climber Had ‘No Energy, No Oxygen, Nothing.’ A Sherpa Saved Him.**\
-`The arduous six-hour rescue in May came during an especially deadly spring climbing season on the world’s highest mountain.`\
-https://nytimes.com/2023/06/09/world/asia/sherpa-rescue-mount-everest.html?searchResultPosition=9
-
-**What Happens When the Air Quality Index Surpasses 500?**\
-`The toxic air in the United States this week has flirted with the upper range of the 500-point scale. In the past decade, there have been times when the air quality was even worse.`\
-https://nytimes.com/2023/06/09/climate/air-quality-index-500.html?searchResultPosition=10
+https://nytimes.com/2023/06/09/learning/summer-reading-contest-week-1-what-got-your-attention-in-the-times-this-week.html?searchResultPosition=10
 
