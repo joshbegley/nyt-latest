@@ -30,7 +30,7 @@ https://nytimes.com/2023/06/09/arts/music/popcast-mailbag-frank-ocean-peso-pluma
 `In diaries, articles and letters, he pushed for the medical community’s acceptance of men who were assigned female at birth and identified as gay.`\
 https://nytimes.com/2023/06/09/obituaries/lou-sullivan-overlooked.html?searchResultPosition=8
 
-**Trump- Appointed Judge Is Said to Be Initially Handling Documents Case**\
+**Trump-Appointed Judge Is Said to Be Handling Documents Case**\
 `It was not clear whether the judge, Aileen M. Cannon, would remain assigned for the entirety of the case. A higher court criticized some of her rulings in the investigation.`\
 https://nytimes.com/2023/06/09/us/politics/aileen-cannon-trump-judge.html?searchResultPosition=9
 
