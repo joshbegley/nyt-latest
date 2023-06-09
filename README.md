@@ -1,40 +1,40 @@
-**Word of the Day: admonish**\
-`This word has appeared in 16 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/06/09/learning/word-of-the-day-admonish.html?searchResultPosition=1
+**Quotation of the Day: Energy Drinks Are Surging. So Are Their Caffeine Levels.**\
+`Quotation of the Day for Friday, June 9, 2023.`\
+https://nytimes.com/2023/06/09/pageoneplus/quotation-of-the-day-energy-drinks-are-surging-so-are-their-caffeine-levels.html?searchResultPosition=1
 
-**Binance Halts Trading in Dollars on Its U.S. Exchange**\
-`Banks have signaled that they will stop working with the company’s American branch, it said, after the Securities and Exchange Commission sued it this week.`\
-https://nytimes.com/2023/06/09/business/binance-us-trading-halt.html?searchResultPosition=2
+**A Landscape of Organized Chaos: Nigerian Photographers at MoMA**\
+`The museum’s celebrated series on emerging talents in photography turns to the first group show focusing on West Africa.`\
+https://nytimes.com/2023/06/09/arts/design/lagos-nigeria-moma-photography.html?searchResultPosition=2
 
-**Given What We Know, Not Charging Trump Would Be the Greater Scandal**\
-`The available evidence supports the indictment by the special counsel Jack Smith.`\
-https://nytimes.com/2023/06/09/opinion/trump-indictment-evidence.html?searchResultPosition=3
+**Tony Predictions: Expect Wins for ‘Kimberly Akimbo’ and ‘Leopoldstadt’**\
+`Our theater reporter talked to one-fifth of the Tony voters ahead of Sunday’s ceremony. Here’s hoping they steered him right.`\
+https://nytimes.com/2023/06/09/theater/tony-awards-predictions.html?searchResultPosition=3
 
-**Oklahoma Softball Caps Banner Season With 3rd Straight Title**\
-`The Sooners became only the second team to claim three straight Division I softball titles and did so by ending the season on a record 53-game winning streak.`\
-https://nytimes.com/2023/06/09/sports/oklahoma-softball-national-championship.html?searchResultPosition=4
+**They Spoke Up for Free Speech. Now They Are Being Sued for Defamation.**\
+`In Thailand, companies and people in positions of power often use libel suits to intimidate and punish activists and critics.`\
+https://nytimes.com/2023/06/09/world/asia/thailand-defamation-lawsuits.html?searchResultPosition=4
 
-**Your Friday Briefing**\
-`Federal charges against Donald Trump.`\
-https://nytimes.com/2023/06/09/briefing/trump-indictment-rishi-sunak-beige-flags.html?searchResultPosition=5
+**Energy Drinks Are Surging. So Are Their Caffeine Levels.**\
+`More companies are pushing low-calorie, sugar-free beverages they say are healthy. Some servings have nearly the same level of caffeine as a six-pack of Coca-Cola.`\
+https://nytimes.com/2023/06/09/business/prime-monster-energy-drinks-caffeine.html?searchResultPosition=5
 
-**A Musical Walk With Gershwin, Rachmaninoff and Papageno**\
-`The Dutch baritone Thomas Oliemans visits the haunts of great composers. And the air clears, just a little.`\
-https://nytimes.com/2023/06/09/nyregion/a-musical-walk-with-gershwin-rachmaninoff-and-papageno.html?searchResultPosition=6
+**Did N.Y. Leaders Leave Residents Unprepared for the Air Quality Crisis?**\
+`Some experts and elected officials say that New York’s leaders should have moved more quickly to respond to the crisis.`\
+https://nytimes.com/2023/06/09/nyregion/adams-hochul-response-air-quality.html?searchResultPosition=6
 
-**Inside Trump’s Club When the Call Came: You’re Indicted**\
-`It was a more familiar drill this time for the former president, his aides and allies, who cranked their political spin machine and fund-raising operation into action.`\
-https://nytimes.com/2023/06/09/us/politics/trump-indictment-club-bedminster-nj.html?searchResultPosition=7
+**Justice Department Charges Trump in Documents Case**\
+`The indictment, handed up by a grand jury in Miami, is the first time a former U.S. president has faced federal charges.`\
+https://nytimes.com/2023/06/09/us/politics/trump-indictment-charges-documents-justice-department.html?searchResultPosition=7
 
-**It Was Banned for Decades. Now the Miami Heat May Use It to Win a Title.**\
-`The odds are against the Heat in their N.B.A. finals matchup with the Denver Nuggets. But the maligned zone defense may be their secret weapon.`\
-https://nytimes.com/2023/06/09/sports/basketball/miami-heat-zone-defense.html?searchResultPosition=8
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2023/06/09/crosswords/spelling-bee-forum.html?searchResultPosition=8
 
-**Two Complicated Princes of the Sport of Kings**\
-`The excitement of thoroughbred horse racing — and many of the sport’s most vexing problems — are exemplified by the careers of the trainers Bob Baffert and Todd Pletcher.`\
-https://nytimes.com/2023/06/09/sports/horse-racing/09baffert-pletcher-horse-racing.html?searchResultPosition=9
+**The Tony Awards, and a Theater Reporter, Go Off Script**\
+`Ahead of the 76th Tony Awards, Michael Paulson, a theater reporter for The New York Times, shares what viewers can expect at this year’s ceremony amid a writers’ strike.`\
+https://nytimes.com/2023/06/09/insider/tony-awards-writers-strike.html?searchResultPosition=9
 
-**Sharing the ‘Call for Service’ and a Life Together**\
-`Sofia Gross joined the Navy about a year after she and Michael Haft, a former Marine, began dating. She planned much of their wedding from a military base in Bahrain.`\
-https://nytimes.com/2023/06/09/style/sofia-gross-michael-haft-wedding.html?searchResultPosition=10
+**Today’s Wordle Review**\
+`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
+https://nytimes.com/2023/06/09/crosswords/wordle-review-answer-720.html?searchResultPosition=10
 
