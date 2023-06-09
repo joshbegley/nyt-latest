@@ -3,7 +3,7 @@
 https://nytimes.com/2023/06/09/opinion/wildfire-smoke-climate.html?searchResultPosition=1
 
 **6 New Paperbacks to Read This Week**\
-`Recommended reading from the Book Review, featuring titles by Chelsea Manning, Werner Herzog, and more. `\
+`Recommended reading from the Book Review, featuring titles by Chelsea Manning, Werner Herzog, and more.`\
 https://nytimes.com/interactive/2023/06/09/books/new-paperbacks-manning.html?searchResultPosition=2
 
 **Wonking Out: How Low Must Inflation Go?**\
