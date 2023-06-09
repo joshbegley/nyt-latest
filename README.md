@@ -4,7 +4,7 @@ https://nytimes.com/2023/06/08/us/wildfire-smoke-health-risks.html?searchResultP
 
 **James G. Watt, Interior Secretary Under Reagan, Dies at 85**\
 `Mr. Watt once declared that Interior Department policies over years had swung too far toward conservation under the influence of “environmental extremists.”`\
-https://nytimes.com/2023/06/08/obituaries/james-watt-dead.html?searchResultPosition=2
+https://nytimes.com/2023/06/08/us/politics/james-watt-dead.html?searchResultPosition=2
 
 **Variety: Cryptic Crossword**\
 `Fred Piscop charms with a very American cryptic crossword.`\
