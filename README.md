@@ -1,26 +1,26 @@
+**A Sex-Shaming Rant About Margaritas Accidentally Became the Song of the Summer**\
+`Angel Laketa Moore, a comedian and actor​, remixed a ​sexually explicit Evangelical sermon​.`\
+https://nytimes.com/2023/06/09/style/margarita-song-tiktok.html?searchResultPosition=1
+
 **Love Letter: An Old Woman Raising Three Little Children**\
 `“What if I abandon them again by dying?”`\
-https://nytimes.com/2023/06/09/style/love-letter-newsletter-an-old-woman-raising-three-little-children.html?searchResultPosition=1
+https://nytimes.com/2023/06/09/style/love-letter-newsletter-an-old-woman-raising-three-little-children.html?searchResultPosition=2
 
 **Don’t Wear the Goggles. Their Vision Is Bleak.**\
 `Why Silicon Valley wants you to live inside a virtual pod.`\
-https://nytimes.com/2023/06/09/opinion/virtual-reality-goggles.html?searchResultPosition=2
+https://nytimes.com/2023/06/09/opinion/virtual-reality-goggles.html?searchResultPosition=3
 
 **First Favorite Songs Are Like Sonic Baby Pictures**\
 `How a minor 1989 George Harrison single from the “Lethal Weapon 2” soundtrack opened a young listener’s ears.`\
-https://nytimes.com/2023/06/09/arts/music/amplifier-newsletter-first-favorite-songs.html?searchResultPosition=3
+https://nytimes.com/2023/06/09/arts/music/amplifier-newsletter-first-favorite-songs.html?searchResultPosition=4
 
 **F.B.I. Investigating Spy Ring’s Political Contributions**\
 `Prosecutors are scrutinizing a series of campaign contributions made by right-wing operatives who were part of a political spying operation based in Wyoming.`\
-https://nytimes.com/2023/06/09/us/politics/fbi-spy-ring-political-contributions.html?searchResultPosition=4
+https://nytimes.com/2023/06/09/us/politics/fbi-spy-ring-political-contributions.html?searchResultPosition=5
 
 **What We Learned From the Trump Indictment**\
 `The indictment said the former president had illegally kept documents concerning “United States nuclear programs; potential vulnerabilities of the United States and its allies to military attack; and plans for possible retaliation in response to a foreign attack.”`\
-https://nytimes.com/2023/06/09/nyregion/trump-indictment-highlights.html?searchResultPosition=5
-
-**A Sex-Shaming Rant About Margaritas Accidentally Became the Song of the Summer**\
-`Angel Laketa Moore, a comedian and actor​, remixed a ​sexually explicit Evangelical sermon​.`\
-https://nytimes.com/2023/06/09/style/margarita-song-tiktok.html?searchResultPosition=6
+https://nytimes.com/2023/06/09/nyregion/trump-indictment-highlights.html?searchResultPosition=6
 
 **She Gave the ‘Father of Gynecology’ His Prowess, Against Her Will**\
 `“Say Anarcha” is J.C. Hallman’s meticulous biography of the enslaved woman who suffered unimaginable horrors at the hands of a lauded doctor.`\
