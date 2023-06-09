@@ -18,7 +18,7 @@ https://nytimes.com/2023/06/09/arts/music/amplifier-newsletter-first-favorite-so
 `Prosecutors are scrutinizing a series of campaign contributions made by right-wing operatives who were part of a political spying operation based in Wyoming.`\
 https://nytimes.com/2023/06/09/us/politics/fbi-spy-ring-political-contributions.html?searchResultPosition=5
 
-**What We Learned From the Trump Indictment**\
+**Here’s what’s we learned from the indictment.**\
 `The indictment said the former president had illegally kept documents concerning “United States nuclear programs; potential vulnerabilities of the United States and its allies to military attack; and plans for possible retaliation in response to a foreign attack.”`\
 https://nytimes.com/2023/06/09/nyregion/trump-indictment-highlights.html?searchResultPosition=6
 
