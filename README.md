@@ -4,7 +4,7 @@ https://nytimes.com/2023/06/09/theater/david-byrne-here-lies-love-broadway-music
 
 **Indictment Presents Evidence Trump’s Actions Were More Blatant Than Known**\
 `The accounts in the 49-page indictment reveal a shocking indifference toward some of the country’s most sensitive secrets.`\
-https://nytimes.com/2023/06/09/us/politics/indictment-trump-actions-blatant.html?searchResultPosition=2
+https://nytimes.com/2023/06/09/us/politics/trump-indictment-documents-handling.html?searchResultPosition=2
 
 **Biden Sticks to ‘Say Nothing’ Strategy on the Trump Indictment**\
 `President Biden and his advisers have concluded that commenting on the indictment would only feed into Republican accusations of a politically motivated prosecution.`\
