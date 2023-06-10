@@ -2,7 +2,7 @@
 `The four siblings had been missing after a plane they were traveling in crashed in the Colombian rainforest in May. Rescuers first found the bodies of the three adults who died in the crash, and then launched a search for the children.`\
 https://nytimes.com/video/world/americas/100000008946932/colombia-children-rescue.html?searchResultPosition=1
 
-**Assignment of Documents Case to Trump Appointee Was Random, Clerk Says**\
+**Trump Appointee Was Randomly Assigned to Documents Case, Clerk Says**\
 `The chief clerk of the courts for the Southern District of Florida added that Judge Aileen M. Cannon’s assignment to the case is not temporary.`\
 https://nytimes.com/2023/06/10/us/politics/judge-aileen-cannon-trump-documents.html?searchResultPosition=2
 
