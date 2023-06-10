@@ -1,5 +1,5 @@
-**Iga Swiatek Grabs Another French Open Championship**\
-`Swiatek has been a clear No. 1 atop women’s tennis, and this singles championship at Roland Garros is her third in four years.`\
+**Iga Swiatek, With an Enthralling Duel, Captures Another French Open Title**\
+`Swiatek was drawn into a tight match with Karolina Muchova, and emerged with her third singles championship at Roland Garros in four years.`\
 https://nytimes.com/2023/06/10/sports/tennis/french-open-swiatek-muchova.html?searchResultPosition=1
 
 **Zelensky Signals Ukraine’s Counteroffensive Has Begun**\
