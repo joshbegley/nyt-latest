@@ -1,5 +1,5 @@
 **4 Missing Children Found Alive After 40 Days in Colombian Jungle**\
-`Rescuers had been searching for the four children — aged 13, 9, 4 and 1 — ever since they survived a plane crash that killed the three adults on board.`\
+`Rescuers had been searching for the children — aged 13, 9, 4 and 1 — ever since they survived a plane crash that killed the three adults on board.`\
 https://nytimes.com/2023/06/09/world/americas/missing-colombian-children-found.html?searchResultPosition=1
 
 **Trump Put National Secrets at Risk, Prosecutors Say in Historic Indictment**\
