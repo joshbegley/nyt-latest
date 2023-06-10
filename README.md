@@ -14,7 +14,7 @@ https://nytimes.com/2023/06/10/world/europe/ukraine-russia-dam-fighting.html?sea
 `Francis, who had abdominal surgery on Wednesday, has been advised by his medical team to rest and not recite his usual weekly prayer from his hospital balcony on Sunday.`\
 https://nytimes.com/2023/06/10/world/europe/pope-francis-hospital.html?searchResultPosition=4
 
-**Can Federal Investment Persuade Red America to Go Green?**\
+**Giving Red America a Reason to Love Electric Vehicles**\
 `Giving people an economic stake in green energy may be the nation’s best chance to build a consensus to confront global warming.`\
 https://nytimes.com/2023/06/10/opinion/federal-investment-green-energy-global-warming.html?searchResultPosition=5
 
