@@ -1,5 +1,5 @@
 **Kaczynski Died by Suicide in Prison, Sources Say**\
-`The F.B.I. is investigating the death of the man known as the “Unabomber,” who was transferred to a federal prison medical center in 2021.`\
+`The man known as the “Unabomber” was transferred to a federal prison medical center in 2021 after more than 25 years at a maximum security facility.`\
 https://nytimes.com/2023/06/10/us/politics/kaczynski-unabomber-suicide-prison.html?searchResultPosition=1
 
 **Really Relish**\
