@@ -1,4 +1,4 @@
-**Iga Swiatek, With an Enthralling Duel, Captures Another French Open Title**\
+**Iga Swiatek, With an Enthralling Duel, Captures Another French Open Trophy**\
 `Swiatek was drawn into a tight match with Karolina Muchova, and emerged with her third singles championship at Roland Garros in four years.`\
 https://nytimes.com/2023/06/10/sports/tennis/french-open-swiatek-muchova.html?searchResultPosition=1
 
