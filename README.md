@@ -10,8 +10,8 @@ https://nytimes.com/2023/06/10/sports/golf/pga-liv-merger-monahan-rumayyan.html?
 `The four siblings had been missing after a plane they were traveling in crashed in the Colombian rainforest in May. Rescuers first found the bodies of the three adults who died in the crash, and then launched a search for the children.`\
 https://nytimes.com/video/world/americas/100000008946932/colombia-children-rescue.html?searchResultPosition=3
 
-**Trump Appointee Was Randomly Assigned to Documents Case, Clerk Says**\
-`The chief clerk of the courts for the Southern District of Florida added that Judge Aileen M. Cannon’s assignment to the case is not temporary.`\
+**Trump Appointee Will Remain Judge in Documents Case, Clerk Says**\
+`The chief clerk of the courts for the Southern District of Florida added that Judge Aileen M. Cannon had been randomly assigned to the case.`\
 https://nytimes.com/2023/06/10/us/politics/judge-aileen-cannon-trump-documents.html?searchResultPosition=4
 
 **Suspect in Natalee Holloway’s Death Pleads Not Guilty to Extorting Her Mother**\
