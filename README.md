@@ -1,40 +1,40 @@
+**The Revolution on Your Plate**\
+`Peter Singer and the modern animal rights movement have had a global impact — but there’s so much left to do.`\
+https://nytimes.com/2023/06/10/opinion/animal-rights-movement-welfare.html?searchResultPosition=1
+
+**Does the U.S. Government Want You to Believe in U.F.O.s?**\
+`Are there crashed alien ships kept hidden in hangars?`\
+https://nytimes.com/2023/06/10/opinion/ufos-government.html?searchResultPosition=2
+
+**Harry Is a More Interesting Prince Than We Deserved**\
+`He is not the first royal to give evidence. But he is the first to go to court to seek revenge for his life.`\
+https://nytimes.com/2023/06/10/opinion/prince-harry-court.html?searchResultPosition=3
+
+**Bathroom Reading at Mar-a-Lago**\
+`Let’s Make America Great Again — by getting Trump out of politics.`\
+https://nytimes.com/2023/06/10/opinion/bathroom-reading-at-mar-a-lago.html?searchResultPosition=4
+
 **Is Masculinity in Crisis?**\
 `Readers discuss a column by David French about the virtues of masculinity and how they get distorted.`\
-https://nytimes.com/2023/06/10/opinion/letters/masculinity.html?searchResultPosition=1
+https://nytimes.com/2023/06/10/opinion/letters/masculinity.html?searchResultPosition=5
 
 **Trump’s Indictment Is Unavoidably Political**\
 `The prosecutors’ audience is not only the judge and jurors. It is also the American public.`\
-https://nytimes.com/2023/06/10/briefing/trump-indictment-political.html?searchResultPosition=2
+https://nytimes.com/2023/06/10/briefing/trump-indictment-political.html?searchResultPosition=6
 
 **Orange and Smoky Skies Over a Province That Rolled Back Climate Measures**\
 `Doug Ford, Ontario’s premier, has a long history of opposition to renewable energy programs and an agenda that favors highway construction.`\
-https://nytimes.com/2023/06/10/world/canada/orange-and-smoky-skies-over-a-province-that-rolled-back-climate-measures.html?searchResultPosition=3
+https://nytimes.com/2023/06/10/world/canada/orange-and-smoky-skies-over-a-province-that-rolled-back-climate-measures.html?searchResultPosition=7
 
 **With Probes of Russian Lines, Ukraine’s Counteroffensive Takes Shape**\
 `Ukraine is using its new arsenal of Western tanks and armored vehicles in what is expected to be one of the largest military operations in Europe since World War II.`\
-https://nytimes.com/2023/06/10/world/europe/ukraine-counteroffensive.html?searchResultPosition=4
+https://nytimes.com/2023/06/10/world/europe/ukraine-counteroffensive.html?searchResultPosition=8
 
 **Why Do Team Owners Raise the Championship Trophy First?**\
 `It’s a decidedly American tradition, even if it can be a buzz-kill.`\
-https://nytimes.com/2023/06/10/sports/why-do-team-owners-raise-the-championship-trophy-first.html?searchResultPosition=5
+https://nytimes.com/2023/06/10/sports/why-do-team-owners-raise-the-championship-trophy-first.html?searchResultPosition=9
 
 **A 20-Minute Boxing Workout to Build Strength and Endurance**\
 `One short workout can help you build fitness, achieve better balance and even ward off injuries. No punching bag needed.`\
-https://nytimes.com/2023/06/10/well/move/boxing-workout-strength-endurance.html?searchResultPosition=6
-
-**Robert F. Kennedy Jr. Wants to Be President. Cheryl Hines Is Along for the Ride.**\
-`The “Curb Your Enthusiasm” actress is beloved in Hollywood. In supporting her husband’s campaign, is she normalizing his often dangerous ideas?`\
-https://nytimes.com/2023/06/10/style/cheryl-hines-robert-f-kennedy-jr.html?searchResultPosition=7
-
-**The Spy Who Called Me**\
-`For years, Spanish society has been rocked by revelations from the secret tapes of José Manuel Villarejo Pérez, a former intelligence agent now facing prison. He told me his story.`\
-https://nytimes.com/2023/06/10/magazine/spanish-spy-villarejo.html?searchResultPosition=8
-
-**From ‘Pariah’ to Partner, Saudi Leader Defies Threats to Isolate Him**\
-`Crown Prince Mohammed bin Salman has repeatedly leveraged Saudi Arabia’s wealth and influence to overcome international condemnation of the kingdom’s human rights violations.`\
-https://nytimes.com/2023/06/10/world/middleeast/saudi-leader-prince-mohammed.html?searchResultPosition=9
-
-**When Chopping Down Trees Is a Gift to the Environment**\
-`We can’t afford to rob biodiversity to pay for the climate.`\
-https://nytimes.com/2023/06/10/opinion/climate-change-planting-trees-grasslands-biodiversity.html?searchResultPosition=10
+https://nytimes.com/2023/06/10/well/move/boxing-workout-strength-endurance.html?searchResultPosition=10
 
