@@ -1,5 +1,5 @@
 **Trump Put National Secrets at Risk, Prosecutors Say in Historic Indictment**\
-`The account provided by prosecutors details evidence that the former president placed national security secrets in jeopardy and schemed to thwart the investigation.`\
+`The indictment details evidence that the former president placed national security secrets in jeopardy and schemed to thwart the investigation into the matter.`\
 https://nytimes.com/2023/06/09/us/politics/trump-indictment-charges-classified-documents.html?searchResultPosition=1
 
 **Toronto Blue Jays Cut Player Who Defended Anti-Queer Post**\
