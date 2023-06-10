@@ -10,8 +10,8 @@ https://nytimes.com/2023/06/10/us/unabomber-ted-kaczynski.html?searchResultPosit
 `“Ruinous Gods,” an exploration of the trauma of mass displacement, will be staged in Charleston, S.C., next year.`\
 https://nytimes.com/2023/06/10/arts/music/spoleto-festival-usa-ruinous-gods-opera.html?searchResultPosition=3
 
-**Arcangelo Holds Off the Pack to Win the Belmont Stakes**\
-`Arcangelo, a gray colt that had won on the same track previously, bested a pack that included National Treasure, the Preakness winner.`\
+**Arcangelo’s Belmont Victory Makes Trainer First Woman to Win a Triple Crown Race**\
+`Jena Antonucci became the first female trainer to win a Triple Crown race, a series that spans more than a century. “I wish more people can be like horses,” she said.`\
 https://nytimes.com/2023/06/10/sports/arcangelo-belmont-stakes-2023.html?searchResultPosition=4
 
 **Kaczynski Is Said to Have Died by Suicide in Prison**\
