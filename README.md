@@ -1,5 +1,5 @@
-**Ukraine Attacks Along a 600-Mile Front, While Grappling With Flood Crisis**\
-`As the floodwaters began to recede, Ukrainian forces were trying to break through stout Russian defenses in the south and east.`\
+**Zelensky Signals Ukraine’s Counteroffensive Has Begun**\
+`As waters from the flooding of a burst dam began to recede, Ukrainian forces were trying to break through stout Russian defenses in the south and east.`\
 https://nytimes.com/2023/06/10/world/europe/ukraine-russia-dam-fighting.html?searchResultPosition=1
 
 **Pope’s Doctors Say He’s on the Mend, but Advise Rest and No Events**\
