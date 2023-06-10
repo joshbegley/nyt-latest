@@ -15,7 +15,7 @@ https://nytimes.com/2023/06/10/world/europe/ukraine-russia-dam-fighting.html?sea
 https://nytimes.com/2023/06/10/world/europe/pope-francis-hospital.html?searchResultPosition=4
 
 **Giving Red America a Reason to Love Electric Vehicles**\
-`Giving people an economic stake in green energy may be the nation’s best chance to build a consensus to confront global warming.`\
+`Federal investment that gives people an economic stake in green energy may be the nation’s best chance to build a consensus to confront global warming.`\
 https://nytimes.com/2023/06/10/opinion/federal-investment-green-energy-global-warming.html?searchResultPosition=5
 
 **Syrian Refugee Charged With Attempted Murder After Stabbing in France**\
