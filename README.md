@@ -7,7 +7,7 @@ https://nytimes.com/2023/06/10/arts/music/spoleto-festival-usa-ruinous-gods-oper
 https://nytimes.com/2023/06/10/sports/arcangelo-belmont-stakes-2023.html?searchResultPosition=2
 
 **Kaczynski Died by Suicide in Prison, Sources Say**\
-`The man known as the “Unabomber” was transferred to a federal prison medical center in 2021 after more than 25 years at a maximum security facility.`\
+`The man known as the “Unabomber” had been transferred to a federal prison medical center in 2021 after more than 25 years at a maximum security facility.`\
 https://nytimes.com/2023/06/10/us/politics/kaczynski-unabomber-suicide-prison.html?searchResultPosition=3
 
 **Really Relish**\
