@@ -1,40 +1,40 @@
-**As Ukraine Launches Counteroffensive, Definitions of ‘Success’ Vary**\
-`Privately, U.S. and European officials concede that pushing all of Russia’s forces out of occupied Ukrainian land is highly unlikely.`\
-https://nytimes.com/2023/06/10/us/politics/ukraine-counteroffensive-russia.html?searchResultPosition=1
+**Why Do Team Owners Raise the Championship Trophy First?**\
+`It’s a decidedly American tradition, even if it can be a buzz-kill.`\
+https://nytimes.com/2023/06/10/sports/why-do-team-owners-raise-the-championship-trophy-first.html?searchResultPosition=1
 
-**Expert Picks: Who Will Win the Belmont Stakes?**\
-`Joe Drape and Melissa Hoppert assess the contenders for the 155th Belmont Stakes on Saturday.`\
-https://nytimes.com/2023/06/10/sports/horse-racing/expert-picks-who-will-win-the-belmont-stakes.html?searchResultPosition=2
+**A 20-Minute Boxing Workout to Build Strength and Endurance**\
+`One short workout can help you build fitness, achieve better balance and even ward off injuries. No punching bag needed.`\
+https://nytimes.com/2023/06/10/well/move/boxing-workout-strength-endurance.html?searchResultPosition=2
 
-**One Last Job? 60-Somethings With Mob Ties Charged in Jewel Heists**\
-`Four older men with extensive criminal records, including killings and a jailbreak, were charged this week in two brazen armed robberies in Manhattan.`\
-https://nytimes.com/2023/06/10/nyregion/men-robberies-nyc-organized-crime.html?searchResultPosition=3
+**Robert F. Kennedy Jr. Wants to Be President. Cheryl Hines Is Along for the Ride.**\
+`The “Curb Your Enthusiasm” actress is beloved in Hollywood. In supporting her husband’s campaign, is she normalizing his often dangerous ideas?`\
+https://nytimes.com/2023/06/10/style/cheryl-hines-robert-f-kennedy-jr.html?searchResultPosition=3
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/06/10/crosswords/spelling-bee-forum.html?searchResultPosition=4
+**The Spy Who Called Me**\
+`For years, Spanish society has been rocked by revelations from the secret tapes of José Manuel Villarejo Pérez, a former intelligence agent now facing prison. He told me his story.`\
+https://nytimes.com/2023/06/10/magazine/spanish-spy-villarejo.html?searchResultPosition=4
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/06/10/crosswords/wordle-review-answer-721.html?searchResultPosition=5
+**From ‘Pariah’ to Partner, Saudi Leader Defies Threats to Isolate Him**\
+`Crown Prince Mohammed bin Salman has repeatedly leveraged Saudi Arabia’s wealth and influence to overcome international condemnation of the kingdom’s human rights violations.`\
+https://nytimes.com/2023/06/10/world/middleeast/saudi-leader-prince-mohammed.html?searchResultPosition=5
 
-**The Heat Say They Love Adversity. Did They Have to Make It This Hard?**\
-`Only one team has come back from a 3-1 series deficit in the N.B.A. finals, but the Miami Heat seem confident they can be the second.`\
-https://nytimes.com/2023/06/10/sports/basketball/miami-heat-denver-nuggets.html?searchResultPosition=6
+**When Chopping Down Trees Is a Gift to the Environment**\
+`We can’t afford to rob biodiversity to pay for the climate.`\
+https://nytimes.com/2023/06/10/opinion/climate-change-planting-trees-grasslands-biodiversity.html?searchResultPosition=6
 
-**Corrections: June 10, 2023**\
-`Corrections that appeared in print on Saturday, June 10, 2023.`\
-https://nytimes.com/2023/06/10/pageoneplus/corrections-june-10-2023.html?searchResultPosition=7
+**Colombia’s Mustard Lovers Grow Desperate Amid Saucy Shortage of Dijon**\
+`Colombians are scrambling to find the beloved French condiment as a new health law removes it from shelves, leaving a tangy void in their hearts and sandwiches.`\
+https://nytimes.com/2023/06/10/world/americas/colombia-dijon-mustard-shortage.html?searchResultPosition=7
 
-**Quotation of the Day: In South Florida, a Packed Calendar Is Reason to Cheer**\
-`Quotation of the Day for Saturday, June 10, 2023.`\
-https://nytimes.com/2023/06/10/pageoneplus/quotation-of-the-day-in-south-florida-a-packed-calendar-is-reason-to-cheer.html?searchResultPosition=8
+**Arizona, Low on Water, Weighs Taking It From the Sea. In Mexico.**\
+`A $5 billion plan to desalinate seawater in Mexico and pipe it to Phoenix is testing the notion that desert cities can keep growing as the Earth warm.`\
+https://nytimes.com/2023/06/10/climate/arizona-desalination-water-climate.html?searchResultPosition=8
 
-**Secretariat’s Legend Rolls on Like, Well, a Tremendous Machine**\
-`Fifty years after Secretariat clinched the Triple Crown with a runaway win in the Belmont Stakes, fans still long to connect with his story.`\
-https://nytimes.com/2023/06/10/sports/horse-racing/secretariat-triple-crown.html?searchResultPosition=9
+**Trump Heads to Georgia and North Carolina for His First Post-Indictment Public Remarks**\
+`Donald J. Trump will speak on Saturday at the state G.O.P. conventions in Georgia and North Carolina, as his federal indictment dominates the political landscape.`\
+https://nytimes.com/2023/06/10/us/politics/trump-georgia-north-carolina.html?searchResultPosition=9
 
-**What to Know About Canada’s Exceptional Wildfire Season**\
-`Wild fires started earlier, are higher in number and spread across much of the country, burning millions of acres as climate change turns more of the country’s forest into a tinderbox.`\
-https://nytimes.com/article/canada-wildfires-what-to-know.html?searchResultPosition=10
+**The Hottest Thing in Real Estate Is a Loan From Two Years Ago**\
+`Real estate agents are pushing sub-3 percent mortgages as an amenity, just like marble countertops or a view of the mountains.`\
+https://nytimes.com/2023/06/10/business/economy/mortgage-rates-real-estate.html?searchResultPosition=10
 
