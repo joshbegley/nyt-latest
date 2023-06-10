@@ -3,7 +3,7 @@
 https://nytimes.com/2023/06/10/world/europe/ukraine-russia-dam-fighting.html?searchResultPosition=1
 
 **Pope’s Doctors Say He’s on the Mend, but Advise Rest and No Events**\
-`Francis, who had abdominal surgery on Wednesday, has been advised by his medical to rest and not recite his usual weekly prayer from his hospital balcony on Sunday.`\
+`Francis, who had abdominal surgery on Wednesday, has been advised by his medical team to rest and not recite his usual weekly prayer from his hospital balcony on Sunday.`\
 https://nytimes.com/2023/06/10/world/europe/pope-francis-hospital.html?searchResultPosition=2
 
 **Can Federal Investment Persuade Red America to Go Green?**\
