@@ -12,7 +12,7 @@ https://nytimes.com/2023/06/10/opinion/prince-harry-court.html?searchResultPosit
 
 **Bathroom Reading at Mar-a-Lago**\
 `Let’s Make America Great Again — by getting Trump out of politics.`\
-https://nytimes.com/2023/06/10/opinion/bathroom-reading-at-mar-a-lago.html?searchResultPosition=4
+https://nytimes.com/2023/06/10/opinion/trump-indicted-documents.html?searchResultPosition=4
 
 **Is Masculinity in Crisis?**\
 `Readers discuss a column by David French about the virtues of masculinity and how they get distorted.`\
