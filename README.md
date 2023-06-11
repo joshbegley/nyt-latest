@@ -31,7 +31,7 @@ https://nytimes.com/2023/06/11/opinion/desantis-trump-power-2024.html?searchResu
 https://nytimes.com/2023/06/11/opinion/discord-leaks.html?searchResultPosition=8
 
 **‘Everything Will Die’: A Dam Blast Imperils Ukraine’s Vital Lifeline**\
-`A disaster unfolds in slow motion after a blast destroys the dam at the Kakhovka Reservoir, emptying its waters and threatening livelihoods and industries crucial to Ukraine.`\
+`A disaster unfolds in slow motion after an explosion destroyed the dam at the Kakhovka Reservoir, emptying its waters and threatening livelihoods and crucial industries.`\
 https://nytimes.com/2023/06/11/world/europe/ukraine-dam-reservoir-explosion.html?searchResultPosition=9
 
 **Faceless, Nameless and Dead by the Dozen in a Train’s Cheapest Cars**\
