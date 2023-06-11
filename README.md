@@ -1,6 +1,6 @@
 **Michael Arden Wins Best Direction of a Musical, Drawing Cheers for Calling Out Homophobic Slur**\
 `He won for his direction of the revival of “Parade.”`\
-https://nytimes.com/2023/06/11/theater/michael-arden-wins-best-direction-of-a-musical-for-parade-revival.html?searchResultPosition=1
+https://nytimes.com/2023/06/11/theater/michael-arden-tony-awards.html?searchResultPosition=1
 
 **Trump Indictment Shows Critical Evidence Came From One of His Own Lawyers**\
 `M. Evan Corcoran, who was hired to represent the former president after the Justice Department issued a subpoena for classified documents at Mar-a-Lago, could be a key witness in the trial.`\
