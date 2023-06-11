@@ -14,7 +14,7 @@ https://nytimes.com/video/us/100000008947479/philadelphia-highway-fire-collapse.
 `The candidates challenging Donald Trump have to decide how to run against the indicted former president. And it could determine where the party goes from here.`\
 https://nytimes.com/2023/06/11/us/politics/trump-indictment-republicans.html?searchResultPosition=4
 
-**A U.S. citizen has been arrested in Russia, State Department says.**\
+**A U.S. Citizen Has Been Arrested in Russia, State Department Says**\
 `The man, Michael Travis Leake, has been accused of drug trafficking, according to Russian state media.`\
 https://nytimes.com/2023/06/11/world/europe/us-citizen-arrested-russia-drug-trafficking.html?searchResultPosition=5
 
