@@ -1,40 +1,40 @@
+**‘Everything Will Die’: A Dam Blast Imperils Ukraine’s Vital Lifeline**\
+`A disaster unfolds in slow motion after a blast destroys the dam at the Kakhovka Reservoir, emptying its waters and threatening livelihoods and industries crucial to Ukraine.`\
+https://nytimes.com/2023/06/11/world/europe/ukraine-dam-reservoir-explosion.html?searchResultPosition=1
+
+**Faceless, Nameless and Dead by the Dozen in a Train’s Cheapest Cars**\
+`In India’s worst railway disaster in decades, nearly all of the 288 dead were in three crowded cars where passengers stand for long stretches.`\
+https://nytimes.com/2023/06/11/world/asia/india-train-crash.html?searchResultPosition=2
+
+**It’s All Fun and Games Until Someone Gets Hurt**\
+`Always looking for an edge, some batters stand their ground and let pitches hit them. As Pete Alonso’s wrist injury shows, the downside can be extreme.`\
+https://nytimes.com/2023/06/11/sports/baseball/pete-alonso-hit-by-pitch.html?searchResultPosition=3
+
+**Silicon Valley Confronts the Idea That the ‘Singularity’ Is Here**\
+`The frenzy over artificial intelligence may be ushering in the long-awaited moment when technology goes wild. Or maybe it’s the hype that is out of control.`\
+https://nytimes.com/2023/06/11/technology/silicon-valley-confronts-the-idea-that-the-singularity-is-here.html?searchResultPosition=4
+
+**How Walt Nauta, a Personal Aide, Came to be Charged as Trump’s Co-Conspirator**\
+`A Navy veteran and a regular presence at Donald Trump’s side, he is said to have played a central role in helping to thwart government efforts to retrieve classified documents.`\
+https://nytimes.com/2023/06/11/us/politics/walt-nauta-trump-documents.html?searchResultPosition=5
+
+**With Hollywood Change Stagnating, a Call to ‘Burn It Down’**\
+`The journalist Maureen Ryan is mad as hell about what goes on behind the entertainment-biz scenes. Her new book tells tales, and proposes remedies.`\
+https://nytimes.com/2023/06/11/books/review/burn-it-down-maureen-ryan.html?searchResultPosition=6
+
+**Emily Morse Wants You to Think Seriously About an Open Relationship**\
+`“You need to be self-aware and have self-knowledge about your sexual desires,” the sex therapist, author and podcaster says.`\
+https://nytimes.com/interactive/2023/06/11/magazine/emily-morse-interview.html?searchResultPosition=7
+
 **The Failed Affirmative Action Campaign That Shook Democrats**\
 `The Supreme Court will soon rule on race-conscious college admissions, a core Democratic issue. But an analysis of a California referendum points to a divide between the party and voters.`\
-https://nytimes.com/2023/06/11/us/supreme-court-affirmative-action.html?searchResultPosition=1
+https://nytimes.com/2023/06/11/us/supreme-court-affirmative-action.html?searchResultPosition=8
 
 **How the Head of a Theater Nonprofit Spends His Sundays**\
 `There is usually a matinee in store for Michael Presser, who is the founder of Inside Broadway.`\
-https://nytimes.com/2023/06/11/nyregion/inside-broadway-michael-presser.html?searchResultPosition=2
+https://nytimes.com/2023/06/11/nyregion/inside-broadway-michael-presser.html?searchResultPosition=9
 
 **‘I Heard a Voice Coming From Behind a Nearby Stack of Books’**\
 `Taking shelter in the Strand, an encounter with a very tall man and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2023/06/11/nyregion/metropolitan-diary.html?searchResultPosition=3
-
-**Thousands of Bylines to His Name, and One That’s Not**\
-`A sports reporter reflects on his 30-year career and the mistake that started it all.`\
-https://nytimes.com/2023/06/11/insider/thousands-of-bylines-to-his-name-and-one-thats-not.html?searchResultPosition=4
-
-**A Pier Deal Is Full of Developer Perks, but Is It Good for the City?**\
-`Generous incentives will secure a project that keeps New York’s motion picture industry competitive, officials say. Critics call the price too steep.`\
-https://nytimes.com/2023/06/11/nyregion/soccer-stadium-film-studio-adams-nyc.html?searchResultPosition=5
-
-**Their Reports About a Woman’s Death Set Off a Revolt. Iran Put Them on Trial.**\
-`Two female journalists, Niloufar Hamedi and Elaheh Mohammadi, covered some of the first reports of the death of Mahsa Amini in police custody, which ignited nationwide protests against Iran’s clerical rulers.`\
-https://nytimes.com/2023/06/11/world/middleeast/iran-protests-journalists-trial.html?searchResultPosition=6
-
-**Hands Bound, but Still Reporting**\
-`A pair of zip-tie cuffs, on display in the Museum at The Times, serve as a stark reminder of the risk and significance of on-the-ground journalism.`\
-https://nytimes.com/2023/06/11/insider/hands-bound-but-still-reporting.html?searchResultPosition=7
-
-**A Skating Affair**\
-`When her husband takes up a new interest, she begins to wonder what is really going on.`\
-https://nytimes.com/2023/06/11/style/episode-a-skating-affair.html?searchResultPosition=8
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/06/11/crosswords/spelling-bee-forum.html?searchResultPosition=9
-
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/06/11/crosswords/wordle-review-answer-722.html?searchResultPosition=10
+https://nytimes.com/2023/06/11/nyregion/metropolitan-diary.html?searchResultPosition=10
 
