@@ -1,5 +1,5 @@
 **Joni Mitchell Returns to the Stage, Golden, Glorious and in Control**\
-`The singer-songwriter’s first announced concert in more than 20 years was a nearly three-hour reimagining of her catalog that showcased her evolving, rich voice and her ever-sharp wit.`\
+`The singer-songwriter’s first announced concert in more than 20 years was a nearly-three-hour reimagining of her catalog that showcased her evolving, rich voice and her ever-sharp wit.`\
 https://nytimes.com/2023/06/11/arts/music/joni-mitchell-gorge-concert.html?searchResultPosition=1
 
 **Tony Award Winners 2023: Updating List**\
