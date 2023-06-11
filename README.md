@@ -10,13 +10,13 @@ https://nytimes.com/2023/06/11/opinion/donald-trump-and-reality-winner-espionage
 `School closures and culture wars turned classrooms into battlegrounds — and made the head of one of the country’s largest teachers’ unions a lightning rod for criticism.`\
 https://nytimes.com/2023/06/11/podcasts/the-daily/teacher-union-weingarten.html?searchResultPosition=3
 
-**If the Supreme Court Abolishes Affirmative Action, Here’s What Women Need to Do**\
-`These programs have historically benefited women more than anyone else. Now they must help others in underrepresented communities.`\
-https://nytimes.com/2023/06/11/opinion/affirmative-action-supreme-court.html?searchResultPosition=4
-
 **Ron DeSantis Thinks Power Corrupts … Everyone Else**\
 `He is trying to show that he has both the will and the discipline to do what Trump did not.`\
-https://nytimes.com/2023/06/11/opinion/desantis-trump-power-2024.html?searchResultPosition=5
+https://nytimes.com/2023/06/11/opinion/desantis-trump-power-2024.html?searchResultPosition=4
+
+**If the Supreme Court Abolishes Affirmative Action, Here’s What Women Need to Do**\
+`These programs have historically benefited women more than anyone else. Now they must help others in underrepresented communities.`\
+https://nytimes.com/2023/06/11/opinion/affirmative-action-supreme-court.html?searchResultPosition=5
 
 **Why Secrets Lost Their Sizzle**\
 `Unlike previous leaks, the revelations in the “Discord Leaks” have largely failed to capture the American public’s attention.`\
