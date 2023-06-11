@@ -35,6 +35,6 @@ https://nytimes.com/2023/06/11/arts/dance/review-royal-ballet-wayne-mcgregor.htm
 https://nytimes.com/2023/06/11/movies/jessie-maple-dead.html?searchResultPosition=9
 
 **Novak Djokovic Captures the French Open and a 23rd Grand Slam Title**\
-`Djokovic beat Casper Ruud to win the men’s singles championship, passing Rafael Nadal for the most Grand Slam tournament titles in the Open era.`\
+`Djokovic beat Casper Ruud to win the men’s singles championship, passing Rafael Nadal for the most major tournament titles in the Open era.`\
 https://nytimes.com/2023/06/11/sports/tennis/french-open-men-djokovic-ruud.html?searchResultPosition=10
 
