@@ -2,7 +2,7 @@
 `The proposed deal would settle a suit on behalf of victims who were sexually abused by Jeffrey Epstein, over claims the bank ignored warnings about him.`\
 https://nytimes.com/2023/06/12/business/jpmorgan-settlement-jeffrey-epstein-victims.html?searchResultPosition=1
 
-**NATO Kicks Off Its Biggest Air Force Drills Since End of Cold War**\
+**NATO Nations Kick Off Giant Air Force Drills**\
 `More than 250 aircraft from 24 NATO countries and Japan will participate in a two-week military exercise.`\
 https://nytimes.com/2023/06/12/world/europe/nato-air-exercises-drills-germany.html?searchResultPosition=2
 
