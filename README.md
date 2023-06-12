@@ -3,7 +3,7 @@
 https://nytimes.com/2023/06/12/world/middleeast/benjamin-netanyahu-trial-yair-lapid.html?searchResultPosition=1
 
 **One Dead After Boat Capsizes on Underground Cave Tour, Officials Say**\
-`At least seven other people were hospitalized in stable condition after a boat traveling through a man-made cavern in Lockport, N.Y., tipped over, officials said.`\
+`Eleven other people were hospitalized with minor injuries after a boat traveling through a man-made cavern in Lockport, N.Y., tipped over, officials said.`\
 https://nytimes.com/2023/06/12/nyregion/boat-capsize-lockport-cave.html?searchResultPosition=2
 
 **Saudi Arabia and China Flaunt Growing Ties at Investment Forum**\
