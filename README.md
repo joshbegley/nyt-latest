@@ -34,7 +34,7 @@ https://nytimes.com/2023/06/12/opinion/trump-indictment-wildfires-smoke.html?sea
 `With a clever opening number and repeated support for striking writers, the Tonys celebrated Broadway’s shows, performers and creative teams.`\
 https://nytimes.com/2023/06/12/theater/tony-awards-best-worst-moments.html?searchResultPosition=9
 
-**If the Supreme Court Won’t Fix Its Ethics Mess, Congress Should**\
-`Lawmakers will share responsibility for the ethics mess at the Supreme Court if they don’t step in.`\
-https://nytimes.com/2023/06/12/opinion/ethics-supreme-court-congress.html?searchResultPosition=10
+**DeSantis Finds a New Set of Laws to Ignore**\
+`The Florida governor is skirting campaign finance rules in pathbreaking ways.`\
+https://nytimes.com/2023/06/12/opinion/editorials/desantis-superpac.html?searchResultPosition=10
 
