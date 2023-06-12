@@ -15,7 +15,7 @@ https://nytimes.com/2023/06/12/us/one-million-pennies-los-angeles.html?searchRes
 https://nytimes.com/2023/06/12/podcasts/headlines-nyt-audio-app.html?searchResultPosition=4
 
 **Silvio Berlusconi, a Showman Who Upended Italian Politics and Culture, Dies at 86**\
-`He introduced sex and glamour to Italian TV, and then brought the same formula to politics, dominating the country and its culture for more than 20 years.`\
+`He introduced sex and glamour to Italian TV and then brought the same formula to politics, dominating the country and its culture for more than 20 years.`\
 https://nytimes.com/2023/06/12/world/europe/silvio-berlusconi-dead.html?searchResultPosition=5
 
 **Seeing Yourself Onscreen Is Good, but Not Good Enough**\
