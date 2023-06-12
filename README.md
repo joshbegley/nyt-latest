@@ -3,7 +3,7 @@
 https://nytimes.com/2023/06/12/us/politics/trump-espionage-act.html?searchResultPosition=1
 
 **Kylian Mbappé Tells P.S.G. He Will Leave Club Next Summer**\
-`Mbappé, the star forward, has told his French team he will not renew his contract next year. His decision could force the team to pursue a sale of his rights this summer.`\
+`Mbappé, the star forward, has told his French team he will not renew his contract next year. His decision could force a long-awaited move to Real Madrid.`\
 https://nytimes.com/2023/06/12/sports/soccer/kylian-mbappe-psg.html?searchResultPosition=2
 
 **Diablo IV Breaks Blizzard Records, Surpassing ‘$666 Million’ in Sales**\
