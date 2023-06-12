@@ -1,6 +1,6 @@
 **Fred Ryan, Publisher of Washington Post, to Step Down**\
 `He said that Jeff Bezos, the owner of The Post, would name a new leader later on Monday.`\
-https://nytimes.com/2023/06/12/business/media/fred-ryan-publisher-of-washington-post-to-step-down.html?searchResultPosition=1
+https://nytimes.com/2023/06/12/business/media/fred-ryan-publisher-washington-post.html?searchResultPosition=1
 
 **Franz Leichter, 92, Maverick Albany Legislator Who Got Results, Dies**\
 `A former refugee from Nazi-held Austria, he fought successfully in New York for gay marriage, legalizing marijuana and, in a signal moment, abortion rights.`\
