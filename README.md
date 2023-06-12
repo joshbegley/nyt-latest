@@ -1,4 +1,4 @@
-**Pat Sajak, Longtime ‘Wheel of Fortune’ Host, Says He Will Retire**\
+**Pat Sajak, Longtime ‘Wheel of Fortune' Host, Says He Will Retire**\
 `The game show host, a mainstay of American television, has starred on the program since 1981. He said he will step down in 2024.`\
 https://nytimes.com/2023/06/12/arts/television/pat-sajak-retire-wheel-of-fortune.html?searchResultPosition=1
 
