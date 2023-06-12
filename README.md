@@ -8,7 +8,7 @@ https://nytimes.com/2023/06/12/business/media/the-athletic-layoffs.html?searchRe
 
 **Where Are Their Heads? Hordes of Ancient Statues Pose That Puzzle**\
 `Many museums would like to match their headless torsos with their missing heads, but as a debate between Turkey and a Danish institution makes clear, it’s not always so easy.`\
-https://nytimes.com/2023/06/12/arts/where-are-their-heads-hordes-of-ancient-statues-pose-that-puzzle.html?searchResultPosition=3
+https://nytimes.com/2023/06/12/arts/headless-statues-museums.html?searchResultPosition=3
 
 **Sock-It-to-Me Cake for Your Summer Celebrations**\
 `Millie Peartree’s take on the classic Bundt cake is chock-full of brown-sugary pecans and topped with a shiny vanilla glaze.`\
