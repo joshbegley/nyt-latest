@@ -1,40 +1,40 @@
-**Why the U.S. Electric Grid Isn’t Ready for the Energy Transition**\
-`The current system makes it hard to build the long-distance power lines needed to transport wind and solar nationwide.`\
-https://nytimes.com/interactive/2023/06/12/climate/us-electric-grid-energy-transition.html?searchResultPosition=1
+**Seeing Yourself Onscreen Is Good, but Not Good Enough**\
+`In her essay collection “Wannabe,” Aisha Harris argues that Black critics can both appreciate, and demand more from, shifts in popular culture.`\
+https://nytimes.com/2023/06/12/books/review/wannabe-pop-culture-aisha-harris.html?searchResultPosition=1
 
-**His Home Sits Alongside America’s First Superfund Site. No One Told Him.**\
-`Love Canal was one of the nation’s worst toxic waste catastrophes and now — 45 years later — the site for a new, and sometimes unknowing, generation of homesteaders.`\
-https://nytimes.com/2023/06/12/nyregion/his-home-sits-alongside-americas-first-superfund-site-no-one-told-him.html?searchResultPosition=2
+**Fear and Mayhem as Russia’s War Comes Home**\
+`Attacks from Ukraine have killed at least a dozen Russian civilians and displaced thousands. But they have not fundamentally changed the calculus for Vladimir Putin.`\
+https://nytimes.com/2023/06/12/world/europe/russia-war-belgorod.html?searchResultPosition=2
 
-**As the Fed Meets, It Shares an Inflation Problem With the World**\
-`Inflation is stubborn across a range of economies. Given its staying power, investors expect the Fed to pause rate moves only temporarily.`\
-https://nytimes.com/2023/06/12/business/economy/fed-interest-rates-inflation.html?searchResultPosition=3
+**Ballad of a Beautiful, Blood-Soaked Landscape**\
+`The photographer Kristine Potter captures the South through a dark but lyrical lens.`\
+https://nytimes.com/2023/06/12/opinion/south-photographs-kristine-potter-dark-waters.html?searchResultPosition=3
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/06/12/crosswords/spelling-bee-forum.html?searchResultPosition=4
+**WeWork Faces More Turmoil After Its Chief Executive Departs**\
+`The company’s top boss, a real estate industry veteran, abruptly left in May after growing frustrated with SoftBank, its largest shareholder and lender.`\
+https://nytimes.com/2023/06/12/business/wework-softbank-sandeep-mathrani.html?searchResultPosition=4
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/06/12/crosswords/wordle-review-answer-723.html?searchResultPosition=5
+**‘The State Killed My Brother’: Senegal in Uproar After Deadly Protests**\
+`After several protesters were killed by live ammunition this month in Senegal, many in the usually stable West African nation wonder what comes next.`\
+https://nytimes.com/2023/06/12/world/africa/senegal-protests.html?searchResultPosition=5
 
-**Word of the Day: eponym**\
-`This word has appeared in two articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/06/12/learning/word-of-the-day-eponym.html?searchResultPosition=6
+**Norton, a Defiant Indie Book Publisher, Celebrates 100 Years**\
+`Rita Dove, Michael Lewis and Richard Powers were among the authors who took part in a crowded, swinging party at Cipriani in Midtown Manhattan.`\
+https://nytimes.com/2023/06/12/style/norton-100-year-anniversary-party.html?searchResultPosition=6
 
-**What’s on TV This Week: ‘How Do You Measure a Year?’ and ‘Project Runway’**\
-`HBO airs a documentary about a father and daughter. And the fashion competition show is back for its 20th season.`\
-https://nytimes.com/2023/06/12/arts/television/tv-this-week-how-do-you-measure-a-year-project-runway.html?searchResultPosition=7
+**Donald Trump’s Big Mess**\
+`“You get the sense that most of these Republican Lilliputians are running to be Trump’s veep pick or his pet rock.”`\
+https://nytimes.com/2023/06/12/opinion/trump-indictment-wildfires-smoke.html?searchResultPosition=7
 
-**No Corrections: June 12, 2023**\
-`No corrections appeared in print on Monday, June 12, 2023.`\
-https://nytimes.com/2023/06/12/pageoneplus/no-corrections-june-12-2023.html?searchResultPosition=8
+**Best and Worst Moments of the 76th Tony Awards**\
+`With a clever opening number and repeated support for striking writers, the Tonys celebrated Broadway’s shows, performers and creative teams.`\
+https://nytimes.com/2023/06/12/theater/tony-awards-best-worst.html?searchResultPosition=8
 
-**Quote of the Day: The West’s Kingdom of Stone Is Losing Its River**\
-`Quotation of the Day for Monday, June 12th, 2023.`\
-https://nytimes.com/2023/06/12/pageoneplus/quote-of-the-day-the-wests-kingdom-of-stone-is-losing-its-river.html?searchResultPosition=9
+**DeSantis Finds a New Set of Laws to Ignore**\
+`The Florida governor is skirting campaign finance rules in pathbreaking ways.`\
+https://nytimes.com/2023/06/12/opinion/editorials/desantis-superpac.html?searchResultPosition=9
 
-**Your Monday Briefing**\
-`Nicola Sturgeon is arrested in Scotland.`\
-https://nytimes.com/2023/06/12/briefing/sturgeon-scotland-counteroffensive-trump-europe.html?searchResultPosition=10
+**If the Supreme Court Won’t Fix Its Ethics Mess, Congress Should**\
+`Lawmakers will share responsibility for the ethics mess at the Supreme Court if they don’t step in.`\
+https://nytimes.com/2023/06/12/opinion/ethics-supreme-court-congress.html?searchResultPosition=10
 
