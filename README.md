@@ -18,7 +18,7 @@ https://nytimes.com/2023/06/12/us/judge-aileen-cannon-trump-trial.html?searchRes
 `“I just don’t know what’s going on,” Fitzpatrick, the reigning U.S. Open champion, said Monday of the PGA Tour’s merger with LIV Golf. “I don’t think anyone knows what’s going on.”`\
 https://nytimes.com/2023/06/12/sports/golf/us-open-fitzpatrick-smith-pga-liv.html?searchResultPosition=6
 
-**The U.S. Lawmakers’ Letter on South Africa**\
+**Read the Lawmakers’ Letter on South Africa**\
 `The letter is the first concrete effort at retaliation by members of the U.S. government over the growing view that South Africa’s ties with Russia is moving in a direction that threatens America’s national interests.`\
 https://nytimes.com/interactive/2023/06/12/world/africa/us-letter-south-africa-russia.html?searchResultPosition=7
 
