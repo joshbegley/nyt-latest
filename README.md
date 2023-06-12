@@ -24,7 +24,7 @@ https://nytimes.com/2023/06/12/world/asia/china-coast-guard.html?searchResultPos
 
 **The Nuggets Almost Won a Title in 1976. Denver Can Make History Now.**\
 `Four players from the 1975-76 Nuggets team that went to the A.B.A. finals share their memories and what it would mean for Denver to win a championship this year.`\
-https://nytimes.com/2023/06/12/sports/basketball/the-nuggets-almost-won-a-title-in-1976-denver-can-make-history-now.html?searchResultPosition=7
+https://nytimes.com/2023/06/12/sports/basketball/denver-nuggets-1976.html?searchResultPosition=7
 
 **‘Kimberly Akimbo’ Wins Best Musical Tony and ‘Leopoldstadt’ Best Play**\
 `The Tony Awards went off with out a hitch despite a screenwriters’ strike. Among the highlights: The first acting awards for out nonbinary performers, and prizes for two shows about antisemitism.`\
