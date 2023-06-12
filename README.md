@@ -1,6 +1,6 @@
 **‘Kimberly Akimbo’ Wins Best Musical Tony and ‘Leopoldstadt’ Best Play**\
 `The Tony Awards went off with out a hitch despite a screenwriters’ strike. Among the highlights: The first acting awards for out nonbinary performers, and prizes for two shows about antisemitism.`\
-https://nytimes.com/2023/06/11/theater/tony-awards.html?searchResultPosition=1
+https://nytimes.com/2023/06/11/theater/tony-awards-kimberly-akimbo-leopoldstadt.html?searchResultPosition=1
 
 **‘Leopoldstadt’ and ‘Parade,’ Which Grapple With Antisemitism, Win Tony Awards**\
 `Two productions about the horrors of antisemitism won several awards on Sunday, bringing statements about intolerance to the fore.`\
