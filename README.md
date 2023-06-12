@@ -36,5 +36,5 @@ https://nytimes.com/2023/06/12/opinion/ethics-supreme-court-congress.html?search
 
 **Best and Worst Moments of the 76th Tony Awards**\
 `With a clever opening number and repeated support for striking writers, the Tonys celebrated Broadway’s shows, performers and creative teams.`\
-https://nytimes.com/2023/06/12/theater/tony-awards-best-worst.html?searchResultPosition=10
+https://nytimes.com/2023/06/12/theater/tony-awards-best-worst-moments.html?searchResultPosition=10
 
