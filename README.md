@@ -6,9 +6,9 @@ https://nytimes.com/2023/06/12/arts/design/outsider-architecure-catalonia-jo-far
 `Jimmy Donaldson, a.k.a. MrBeast, has become a viral sensation for his absurd acts of altruism. Why do so many people think he’s evil?`\
 https://nytimes.com/2023/06/12/magazine/mrbeast-youtube.html?searchResultPosition=2
 
-**The head of the U.N.’s nuclear watchdog travels to Ukraine to assess the aftermath of the dam disaster.**\
+**U.N. Nuclear Watchdog Chief to Assess Aftermath of Ukraine Dam Disaster**\
 `Rafael Mariano Grossi said he would meet with President Volodymyr Zelensky of Ukraine and present a plan for assistance in the aftermath of floods unleashed by the Kakhovka dam’s destruction.`\
-https://nytimes.com/2023/06/12/world/ukraine-dam-damage.html?searchResultPosition=3
+https://nytimes.com/2023/06/12/world/europe/ukraine-dam-damage.html?searchResultPosition=3
 
 **From the Ballot Box to the Jury Box, South Florida Voters Ponder Trump**\
 `The complicated feelings among some residents about Mr. Trump and the case against him reflect the complicated politics of the state.`\
