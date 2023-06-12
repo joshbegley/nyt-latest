@@ -30,11 +30,11 @@ https://nytimes.com/2023/06/12/style/norton-100-year-anniversary-party.html?sear
 `“You get the sense that most of these Republican Lilliputians are running to be Trump’s veep pick or his pet rock.”`\
 https://nytimes.com/2023/06/12/opinion/trump-indictment-wildfires-smoke.html?searchResultPosition=8
 
-**If the Supreme Court Won’t Fix Its Ethics Mess, Congress Should**\
-`Lawmakers will share responsibility for the ethics mess at the Supreme Court if they don’t step in.`\
-https://nytimes.com/2023/06/12/opinion/ethics-supreme-court-congress.html?searchResultPosition=9
-
 **Best and Worst Moments of the 76th Tony Awards**\
 `With a clever opening number and repeated support for striking writers, the Tonys celebrated Broadway’s shows, performers and creative teams.`\
-https://nytimes.com/2023/06/12/theater/tony-awards-best-worst-moments.html?searchResultPosition=10
+https://nytimes.com/2023/06/12/theater/tony-awards-best-worst-moments.html?searchResultPosition=9
+
+**If the Supreme Court Won’t Fix Its Ethics Mess, Congress Should**\
+`Lawmakers will share responsibility for the ethics mess at the Supreme Court if they don’t step in.`\
+https://nytimes.com/2023/06/12/opinion/ethics-supreme-court-congress.html?searchResultPosition=10
 
