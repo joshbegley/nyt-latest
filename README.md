@@ -1,6 +1,6 @@
 **U.S. Will Rejoin UNESCO in July, Agency Says**\
 `The decision came after over a decade of turbulent relations between American administrations and the United Nation’s cultural organization.`\
-https://nytimes.com/2023/06/12/world/europe/us-will-rejoin-unesco-in-july-agency-says.html?searchResultPosition=1
+https://nytimes.com/2023/06/12/world/europe/us-china-unesco.html?searchResultPosition=1
 
 **JPMorgan Moves to Put the Epstein Case Behind It**\
 `After weeks of embarrassing disclosures, the Wall Street giant reached a tentative settlement with the convicted sex offender's victims.`\
