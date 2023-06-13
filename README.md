@@ -23,7 +23,7 @@ https://nytimes.com/2023/06/13/arts/music/harvey-averne-latin-music.html?searchR
 https://nytimes.com/2023/06/13/special-series/question-identity-judith-butler.html?searchResultPosition=6
 
 **3 Dead and 3 Wounded in Nottingham Attacks; Man Held by U.K. Police**\
-`The police in the English city arrested one man, giving few details but saying they believed the deaths and injuries were linked and that they saw no sign anyone else was involved.`\
+`The police gave few details but said they believed the deaths and injuries were linked and that they had seen no sign anyone else was involved.`\
 https://nytimes.com/2023/06/13/world/europe/nottingham-uk-incident-deaths.html?searchResultPosition=7
 
 **Food Prices Ticked Higher in May**\
