@@ -20,7 +20,7 @@ https://nytimes.com/2023/06/13/dining/nyc-summer-sandwiches-cocktails.html?searc
 
 **Binance Spars With U.S. Regulators Over Asset Freeze**\
 `A judge urged the Securities and Exchange Commission to reach a compromise with Binance that would allow the world’s largest cryptocurrency exchange to continue operating in the United States.`\
-https://nytimes.com/2023/06/13/technology/binance-spars-with-us-regulators-over-asset-freeze.html?searchResultPosition=6
+https://nytimes.com/2023/06/13/technology/binance-sec-cryptocurrency.html?searchResultPosition=6
 
 **‘Based on a True Story’: The Vogue of Killer Content**\
 `A new Peacock satire puts the ethics of America’s true-crime obsession on trial by making a serial killer more than just a subject. He’s also the star.`\
