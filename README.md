@@ -1,6 +1,6 @@
 **TV news covered the court hearing with wall-to-wall coverage.**\
 `Three of the major broadcast networks — ABC, NBC and CBS — interrupted their usual afternoon programming to cover the news.`\
-https://nytimes.com/2023/06/13/business/media/tv-news-covered-the-court-hearing-with-wall-to-wall-coverage.html?searchResultPosition=1
+https://nytimes.com/2023/06/13/business/media/trump-indictment-arraignment-tv-news-coverage.html?searchResultPosition=1
 
 **U.N. Monitor Aims to Cross Front Line in Ukraine to Inspect Nuclear Plant**\
 `The destruction of a hydroelectric dam last week unleashed a flood and threatened the water supply needed to cool the battle-scarred Zaporizhzhia plant.`\
