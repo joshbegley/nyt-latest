@@ -2,13 +2,13 @@
 `That was the question one couple asked themselves on a vacation to the Massachusetts island during the early days of the pandemic.`\
 https://nytimes.com/2023/06/13/realestate/nantucket-home-renovation.html?searchResultPosition=1
 
-**They Married for a Life Abroad. But They Never Saw Their Husbands Again.**\
-`Thousands of Indian women have been abandoned by men working overseas, leaving them trapped in their in-laws’ homes and often defrauded of dowry money.`\
-https://nytimes.com/2023/06/13/world/asia/india-brides-women.html?searchResultPosition=2
-
 **Living the Dream: a Home on Nantucket**\
 `Why stay in Los Angeles when you could work remotely from the charming Massachusetts island?`\
-https://nytimes.com/slideshow/2023/06/13/realestate/living-the-dream-a-home-on-nantucket.html?searchResultPosition=3
+https://nytimes.com/slideshow/2023/06/13/realestate/living-the-dream-a-home-on-nantucket.html?searchResultPosition=2
+
+**They Married for a Life Abroad. But They Never Saw Their Husbands Again.**\
+`Thousands of Indian women have been abandoned by men working overseas, leaving them trapped in their in-laws’ homes and often defrauded of dowry money.`\
+https://nytimes.com/2023/06/13/world/asia/india-brides-women.html?searchResultPosition=3
 
 **Revenge Spending Helped Push Prices Higher. The Trend Is Turning.**\
 `Spending on hotels, airline tickets and dinners surged after the pandemic. This summer could mark a shift back to normal.`\
