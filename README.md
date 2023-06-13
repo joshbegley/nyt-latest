@@ -2,8 +2,8 @@
 `A former federal prosecutor, Chris Christie said he expected the government had much more evidence in its case against the former president.`\
 https://nytimes.com/2023/06/12/us/politics/chris-christie-trump-cnn-town-hall.html?searchResultPosition=1
 
-**Treat Williams, Actor Known for Film Version of “Hair,” Dies at 71**\
-`The veteran actor also starred in the movie “Deep Rising” and the TV show “Everwood.” He died after a motorcyle accident in Vermont.`\
+**Treat Williams, Actor Known for Film Version of ‘Hair,’ Dies at 71**\
+`The veteran actor also starred in the movie “Deep Rising” and the TV show “Everwood.” He died after a motorcycle accident in Vermont.`\
 https://nytimes.com/2023/06/12/obituaries/treat-williams-dead.html?searchResultPosition=2
 
 **Quotation of the Day: Framing Case to G.O.P. as a Battle With Biden**\
