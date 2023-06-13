@@ -14,4 +14,8 @@ https://nytimes.com/2023/06/13/arts/dance/van-cleef-arpels-bring-dance-festival-
 `A day after Silvio Berlusconi’s death, some Italians said goodbye, others said good riddance, and many debated whether the billionaire and former prime minister did more good or bad for Italy.`\
 https://nytimes.com/2023/06/13/world/europe/silvio-berlusconi-italy.html?searchResultPosition=4
 
+**A long-shot G.O.P. hopeful, Vivek Ramaswamy, wants candidates to promise Trump a pardon.**\
+`The Republican presidential hopeful, who has been one of Donald Trump’s most vocal supporters, said he had reached out to other candidates about such a pledge.`\
+https://nytimes.com/2023/06/13/us/politics/vivek-ramaswamy-trump-pardon.html?searchResultPosition=5
+
 **Halle Bailey Makes a Splash in ‘The Little Mermaid’**\
