@@ -15,7 +15,7 @@ https://nytimes.com/2023/06/13/opinion/shiny-happy-people.html?searchResultPosit
 https://nytimes.com/2023/06/13/dining/restaurant-review-wylie-dufresne-pizzeria.html?searchResultPosition=4
 
 **Met Museum Trains ‘Monuments Men’ to Save Ukrainian Cultural Heritage**\
-`Curators are teaching military officers to save imperiled treasures abroad, but their efforts to credit Ukrainian artists has met with mixed response.`\
+`Curators are teaching military officers to save imperiled treasures abroad, but their efforts to credit Ukrainian artists have been met with a mixed response.`\
 https://nytimes.com/2023/06/13/arts/design/met-museum-trains-monuments-men-ukraine.html?searchResultPosition=5
 
 **Map: Tracking Cyclone Biparjoy**\
