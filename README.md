@@ -1,5 +1,5 @@
 **Jacques Rozier, Last of the French New Wave Directors, Dies at 96**\
-`Though he never achieved the fame of Jean-Luc Godard or François Truffaut, he was considered by many to their equal.`\
+`Though he never achieved the fame of Jean-Luc Godard or François Truffaut, he was considered by many to be their equal.`\
 https://nytimes.com/2023/06/13/movies/jacques-rozier-dead.html?searchResultPosition=1
 
 **G.O.P. Rebels Are Breaking the Rule on Rules, Upending How the House Works**\
