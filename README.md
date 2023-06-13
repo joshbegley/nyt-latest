@@ -1,6 +1,6 @@
 **Stream These Five Cormac McCarthy Film Adaptations**\
 `The Coens and Ridley Scott are among the directors who took big swings at the novelist’s work. The distinctive writer left his mark on the big screen.`\
-https://nytimes.com/2023/06/13/movies/cormac-mccarthy-movies.html?searchResultPosition=1
+https://nytimes.com/2023/06/13/movies/cormac-mccarthy-film-adaptations-stream.html?searchResultPosition=1
 
 **Colombian Children Rescued in Jungle Had Been Fleeing for Their Lives**\
 `The father of two of the survivors said the family had feared the children would be recruited by a violent armed group.`\
