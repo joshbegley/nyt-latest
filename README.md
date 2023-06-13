@@ -1,6 +1,6 @@
 **Riley Keough to Pay Priscilla Presley to End Family Trust Dispute**\
 `Keough had been locked in a court fight with her grandmother over control of the family trust, but under a settlement Keough will be its sole trustee.`\
-https://nytimes.com/2023/06/13/arts/riley-keough-to-pay-priscilla-presley-to-end-family-trust-dispute.html?searchResultPosition=1
+https://nytimes.com/2023/06/13/arts/elvis-trust-priscilla-presley-riley-keough.html?searchResultPosition=1
 
 **Inside the Turmoil That Led N.Y.P.D.’s Commissioner to Walk Away**\
 `Keechant Sewell walked into Mayor Eric Adams’ office unannounced on Monday and told him she would be leaving. No one but her closest aides saw it coming.`\
