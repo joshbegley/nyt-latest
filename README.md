@@ -1,6 +1,6 @@
 **Here’s How Much Hotter Than Normal This June Has Been**\
 `Record global warmth this month could portend a summer of extreme weather.`\
-https://nytimes.com/interactive/2023/06/13/climate/2023-06-12-record-heat-index.html?searchResultPosition=1
+https://nytimes.com/interactive/2023/06/13/climate/global-warming-heat-june.html?searchResultPosition=1
 
 **Saving the Flailing Humanities**\
 `Responses to a column by Maureen Dowd about the importance of studying literature. Also: “Parade” and a history of hate; body donors; paying fair wages.`\
