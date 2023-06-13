@@ -14,7 +14,7 @@ https://nytimes.com/2023/06/13/opinion/trump-indictment-presidency.html?searchRe
 `Republicans have increasingly likened his indictment to corruption and political oppression in Latin America.`\
 https://nytimes.com/2023/06/13/us/politics/trump-versailles-miami.html?searchResultPosition=4
 
-**In Court, an Edgy Trump and a Stone-Faced Smith Finally Cross Paths**\
+**In Court, a Tense Trump and a Poker-Faced Smith Finally Cross Paths**\
 `The former president and the special counsel were 20 feet from each other. But they exchanged not a word during their first, nearly hourlong encounter.`\
 https://nytimes.com/2023/06/13/us/politics/trump-arraignment-miami-court.html?searchResultPosition=5
 
