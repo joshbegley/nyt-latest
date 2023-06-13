@@ -2,8 +2,8 @@
 `Wage growth has increased faster than expected, and investors are betting the Bank of England will have to keep interest rates higher for longer.`\
 https://nytimes.com/2023/06/13/business/uk-interest-rates-inflation.html?searchResultPosition=1
 
-**Nikki Haley and Tim Scott shift their tone, showing a new openness to criticizing Trump.**\
-`The two 2024 Republican contenders have begun to move away from solely denouncing the Justice Department.`\
+**G.O.P. Hopefuls Haley and Scott Show Openness to Criticizing Trump**\
+`The two candidates for the 2024 Republican nomination have begun to move away from solely denouncing the Justice Department.`\
 https://nytimes.com/2023/06/13/us/politics/nikki-haley-tim-criticize-trump.html?searchResultPosition=2
 
 **New Zealand’s public broadcaster investigates ‘pro-Kremlin’ changes to some articles.**\
