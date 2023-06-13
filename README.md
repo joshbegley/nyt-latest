@@ -14,7 +14,7 @@ https://nytimes.com/2023/06/12/health/obamacare-preventive-care.html?searchResul
 `The findings in the death of Oswaldo Payá contradict the Cuban government’s official version of what happened 11 years ago.`\
 https://nytimes.com/2023/06/12/world/americas/cuba-oswaldo-paya-death.html?searchResultPosition=4
 
-**Pat Sajak, Longtime ‘Wheel of Fortune' Host, Says He Will Retire**\
+**Pat Sajak, Longtime ‘Wheel of Fortune’ Host, Says He Will Retire**\
 `The game show host, a mainstay of American television, has starred on the program since 1981. He said he will step down in 2024.`\
 https://nytimes.com/2023/06/12/arts/television/pat-sajak-retire-wheel-of-fortune.html?searchResultPosition=5
 
