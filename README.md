@@ -35,6 +35,6 @@ https://nytimes.com/2023/06/13/sports/golf/us-open-tiger-woods.html?searchResult
 https://nytimes.com/2023/06/13/arts/elvis-trust-priscilla-presley-riley-keough.html?searchResultPosition=9
 
 **Inside the Turmoil That Led N.Y.P.D.’s Commissioner to Walk Away**\
-`Keechant Sewell walked into Mayor Eric Adams’ office unannounced on Monday and told him she would be leaving. No one but her closest aides saw it coming.`\
+`Keechant Sewell walked into Mayor Eric Adams’s office unannounced on Monday and told him she would be leaving. No one but her closest aides saw it coming.`\
 https://nytimes.com/2023/06/13/nyregion/keechant-sewell-nypd-resignation.html?searchResultPosition=10
 
