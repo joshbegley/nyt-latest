@@ -1,4 +1,4 @@
-**Hoping to Avert Nuclear Crisis, U.S. Seeks Informal Agreement with Iran**\
+**Hoping to Avert Nuclear Crisis, U.S. Seeks Informal Agreement With Iran**\
 `The talks reflect a resumption of diplomacy between the United States and Iran after the collapse of negotiations to restore the 2015 nuclear deal.`\
 https://nytimes.com/2023/06/14/us/politics/biden-iran-nuclear-program.html?searchResultPosition=1
 
