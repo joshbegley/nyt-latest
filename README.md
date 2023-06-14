@@ -1,5 +1,5 @@
-**Scores Dead After Migrant Ship Sinks Near Greece**\
-`The disaster appeared to be one of the deadliest such episodes off the country’s shores in years, and there were fears that the toll would rise. The cause was not immediately clear.`\
+**At Least 78 Die as Migrant Ship Sinks Near Greece**\
+`The disaster was the deadliest such episode off the country’s shores since the 2015 migrant crisis, and there were fears that the toll would rise. The cause was not immediately clear.`\
 https://nytimes.com/2023/06/14/world/europe/greece-migrants-boat-sank.html?searchResultPosition=1
 
 **Markets Await a Fed Pause — but Not an End to Rate Increases**\
