@@ -10,7 +10,7 @@ https://nytimes.com/2023/06/14/podcasts/headlines-nyt-audio-app.html?searchResul
 `Some of the parks have become popular dark-sky havens and are hosting stargazing events for people who want to marvel at the cosmic views this summer and fall.`\
 https://nytimes.com/2023/06/14/us/stargazing-festivals-national-parks.html?searchResultPosition=3
 
-**Germany Is Expected to Introduce Its First National Security Strategy**\
+**Germany Introduces Its First National Security Strategy**\
 `The announcement comes as the war in Ukraine has heightened Germany’s sense that it has become vulnerable to new military, economic and geopolitical threats.`\
 https://nytimes.com/2023/06/14/world/europe/germany-security-strategy-scholz.html?searchResultPosition=4
 
