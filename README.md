@@ -3,7 +3,7 @@
 https://nytimes.com/2023/06/14/world/europe/greece-migrants-boat-sank.html?searchResultPosition=1
 
 **Markets Await a Fed Pause — but Not an End to Rate Increases**\
-`A breather in the central bank’s anti-inflation policy is expected, but with still-rising inflation has investors bracing for another raise later this year.`\
+`A breather in the central bank’s anti-inflation policy is expected, but  still-rising inflation has investors bracing for another raise later this year.`\
 https://nytimes.com/2023/06/14/business/dealbook/fed-rates-pause-inflation.html?searchResultPosition=2
 
 **Google’s Online Advertising Practices Violate Antitrust Laws, E.U. Says**\
