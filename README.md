@@ -1,6 +1,6 @@
 **For Trump, the Show and the Campaign Must Trudge On**\
 `On the calendar for the Republicans’ 2024 front-runner: rallies and primaries mixed with court dates.`\
-https://nytimes.com/2023/06/13/us/politics/trump-indictment-day.html?searchResultPosition=1
+https://nytimes.com/2023/06/13/us/politics/trump-indictment-2024-campaign.html?searchResultPosition=1
 
 **Insist No More**\
 `Everything is not as it seems in Jennifer Hoelzer’s puzzle debut.`\
