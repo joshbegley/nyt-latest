@@ -1,40 +1,40 @@
-**The Fierce, Flourishing World of Battle Rap**\
-`Battle rap is an art form and a sport, as well as an industry that has been slowly growing over the last decade. While there are proving grounds all over the country, New York is its epicenter.`\
-https://nytimes.com/2023/06/14/arts/music/battle-rap.html?searchResultPosition=1
+**I Pledged $1 Million to Plant New Trees. I Wish I Could Invest the Money in Saving Old Ones.**\
+`A recent study said preserving existing forests was more important than planting new ones in the limited time we have to slow global warming.`\
+https://nytimes.com/2023/06/14/opinion/climate-change-trees-global-warming.html?searchResultPosition=1
 
-**‘It Doesn’t Count as a War Crime if You Had Fun’: Inside the Minds of Some Russian Soldiers**\
-`At a bar in a once-occupied Ukrainian village, dehumanizing messages on the walls were a stark reminder that the Kremlin wants to stamp out Ukraine and its culture.`\
-https://nytimes.com/2023/06/14/world/europe/ukraine-russia-war-occupied-village.html?searchResultPosition=2
+**Dreaming of a New Iran**\
+`Amid a historic protest movement, three women chronicle their hopes and disappointments — and the daily acts of defiance that have already transformed their country.`\
+https://nytimes.com/interactive/2023/06/14/magazine/iran-women-protests.html?searchResultPosition=2
 
-**In This ‘Full Monty,’ the Clothes Stay On**\
-`A new series on Hulu and FX reunites the feel-good British film’s characters and its writer, 25 years later and in another age of austerity.`\
-https://nytimes.com/2023/06/14/arts/television/full-monty.html?searchResultPosition=3
+**Jack Johnson’s Oahu**\
+`The Hawaii-born singer-songwriter and activist recommends some places he loves on the island he still calls home. And yes, surfing and music are involved.`\
+https://nytimes.com/2023/06/14/travel/oahu-hawaii-jack-johnson.html?searchResultPosition=3
 
-**Danny McBride Keeps It Righteous**\
-`The creator and star of “The Righteous Gemstones” has played a lot of hard-partying blowhards, but those guys aren’t him. Well, maybe the partying part.`\
-https://nytimes.com/2023/06/14/arts/television/danny-mcbride-the-righteous-gemstones.html?searchResultPosition=4
+**Meet the First Woman to Sail the ‘Voyage for Madmen’**\
+`Kirsten Neuschäfer talks about winning the nonstop, round-the-world Golden Globe race and the possibility of another circumnavigation.`\
+https://nytimes.com/2023/06/14/travel/kirsten-neuschafer-golden-globe.html?searchResultPosition=4
 
-**Investors Are Putting Big Money Into Japan Again. Here’s Why.**\
-`The Japanese stock market is up nearly 30 percent this year, far ahead of the S&P 500, as firms bet that changes in how companies are run might just finally last.`\
-https://nytimes.com/2023/06/14/business/japan-stock-markets.html?searchResultPosition=5
+**Battle Lines Harden Over Big Oil’s Role at Climate Talks in Dubai**\
+`The hosts of the United Nations global climate summit later this year aim to give fossil fuel companies a bigger voice, despite loud objections.`\
+https://nytimes.com/2023/06/14/climate/oil-fossil-fuel-climate-cop28.html?searchResultPosition=5
 
-**Lip Readers Apply Their Skill to Celebrity Conversations**\
-`There are millions of views to be had for those who can decode the caught-on-camera conversations of royal family members, Taylor Swift, and Ben and Jennifer Affleck.`\
-https://nytimes.com/2023/06/14/style/lip-readers-apply-their-skill-to-celebrity-conversations.html?searchResultPosition=6
+**At This U.S. Open, Golfers Will Face a Rare Collection of Par 3s**\
+`There will be five of them at Los Angeles Country Club, including one with a stunning view of the city.`\
+https://nytimes.com/2023/06/14/sports/golf/us-open-2023-los-angeles-country-club-par-threes.html?searchResultPosition=6
 
-**Catering to a Fashionable Crowd**\
-`At his restaurants Sant Ambroeus and Casa Lever, Gherardo Guarducci seduces and pampers patrons. He knows they are not for everyone.`\
-https://nytimes.com/2023/06/14/style/gherardo-guarducci-sant-ambroeus.html?searchResultPosition=7
+**What to Watch For at the Fed’s Meeting**\
+`Central bankers are expected to leave interest rates unchanged on Wednesday, but the decision is an unusual nail-biter. Also: Keep an eye on the economic forecasts.`\
+https://nytimes.com/2023/06/14/business/economy/fed-interest-rate-decision.html?searchResultPosition=7
 
-**He Exposed Corruption in Guatemala. Now He Faces Prison.**\
-`The trial of José Rubén Zamora, the founder of a newspaper that long shone a spotlight on government graft, comes as critics say democracy in Guatemala is crumbling.`\
-https://nytimes.com/2023/06/14/world/americas/jose-ruben-zamora-journalist-guatemala.html?searchResultPosition=8
+**Read Your Way Through the U.S.-Mexico Borderlands**\
+`The poet and novelist Luis Alberto Urrea thinks the borderlands are the most interesting book in the world, being rewritten every day. These are his recommendations.`\
+https://nytimes.com/2023/06/14/books/us-mexico-border-books.html?searchResultPosition=8
 
-**How South Korea Puts Its Food Scraps to Good Use**\
-`When wasted food rots in landfills, it pollutes soil and water — and warms the planet. Here’s how one country keeps that from happening.`\
-https://nytimes.com/2023/06/14/world/asia/south-korea-food-waste.html?searchResultPosition=9
+**The Impossible Task of Defending Donald Trump**\
+`Kevin McCarthy is far from alone in debasing himself for the benefit of the former president.`\
+https://nytimes.com/2023/06/14/opinion/donald-trump-indictment.html?searchResultPosition=9
 
-**New Obesity Drugs Come With a Side Effect of Shaming**\
-`Wegovy and other drugs expose a social tension between a quest to medicate illness and a stigmatizing belief that obese people lack sufficient willpower to lose weight.`\
-https://nytimes.com/2023/06/14/health/obesity-drugs-wegovy-ozempic.html?searchResultPosition=10
+**If Democrats Win Back the House, They Will Have John Roberts to Thank**\
+`The Supreme Court strikes a blow for democracy — and Democrats.`\
+https://nytimes.com/2023/06/14/opinion/milligan-voting-rights-2024.html?searchResultPosition=10
 
