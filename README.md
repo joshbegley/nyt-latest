@@ -28,7 +28,7 @@ https://nytimes.com/2023/06/14/special-series/jon-batiste-juilliard-community.ht
 
 **Allies of Russia’s Navalny get years in prison as part of a widening crackdown on dissent.**\
 `Lilia Chanysheva and Rustem Mulyukov are the first of Mr. Navalny’s organization to be convicted of charges related to national security since the Russian government declared his group an “extremist organization.”`\
-https://nytimes.com/2023/06/14/world/europe/navalny-chanysheva-prison.html?searchResultPosition=8
+https://nytimes.com/2023/06/14/world/europe/russia-navalny-chanysheva-mulyukov-prison.html?searchResultPosition=8
 
 **A Relief Pitcher’s Journey From ‘Bulk Guy’ to ‘Guy’ to Star**\
 `Evan Phillips doesn’t have the name recognition of some other closers, but his devastating sweeper is a secret weapon for the Los Angeles Dodgers.`\
