@@ -1,40 +1,40 @@
-**N.Y. Police Chief’s Exit Is Latest in Exodus From Adams Administration**\
-`New York City’s top officials overseeing crime, housing and homelessness have stepped down. Critics say the mayor’s management style is part of the problem.`\
-https://nytimes.com/2023/06/14/nyregion/eric-adams-keechant-sewell.html?searchResultPosition=1
+**The Fierce, Flourishing World of Battle Rap**\
+`Battle rap is an art form and a sport, as well as an industry that has been slowly growing over the last decade. While there are proving grounds all over the country, New York is its epicenter.`\
+https://nytimes.com/2023/06/14/arts/music/battle-rap.html?searchResultPosition=1
 
-**How to Get More Affordable Home Insurance as Costs Soar**\
-`Weather-driven disasters are causing rates to skyrocket in high-risk regions. But there are things owners can do to save on costs.`\
-https://nytimes.com/2023/06/14/your-money/affordable-homeowners-insurance-wildfires.html?searchResultPosition=2
+**‘It Doesn’t Count as a War Crime if You Had Fun’: Inside the Minds of Some Russian Soldiers**\
+`At a bar in a once-occupied Ukrainian village, dehumanizing messages on the walls were a stark reminder that the Kremlin wants to stamp out Ukraine and its culture.`\
+https://nytimes.com/2023/06/14/world/europe/ukraine-russia-war-occupied-village.html?searchResultPosition=2
 
-**Democrats Celebrate and Fear the Indictment of a ‘Chaos Machine’**\
-`In interviews, dozens of Democratic officials nearly all agreed that Donald Trump deserved his latest indictment, but were far more divided over whether the case was good for the country.`\
-https://nytimes.com/2023/06/14/us/politics/democrats-trump-indictment.html?searchResultPosition=3
+**In This ‘Full Monty,’ the Clothes Stay On**\
+`A new series on Hulu and FX reunites the feel-good British film’s characters and its writer, 25 years later and in another age of austerity.`\
+https://nytimes.com/2023/06/14/arts/television/full-monty.html?searchResultPosition=3
 
-**A Beautiful Evening of Music Emerged From a New York City Sewer**\
-`New Yorkers gathered on the shores of the East River to hear musicians — aboard a barge and canoe — taking advantage of the unique acoustics of a drainage tunnel.`\
-https://nytimes.com/2023/06/14/nyregion/new-york-sewer-concert.html?searchResultPosition=4
+**Danny McBride Keeps It Righteous**\
+`The creator and star of “The Righteous Gemstones” has played a lot of hard-partying blowhards, but those guys aren’t him. Well, maybe the partying part.`\
+https://nytimes.com/2023/06/14/arts/television/danny-mcbride-the-righteous-gemstones.html?searchResultPosition=4
 
-**He Was a Revolutionary at the Birth of a Nation. Does Anyone Care?**\
-`From freedom fighter to war hero to business leader to immigrant cabdriver, one man’s quest to keep his past alive among in a new land.`\
-https://nytimes.com/2023/06/14/nyregion/bangladesh-veterans-new-york.html?searchResultPosition=5
+**Investors Are Putting Big Money Into Japan Again. Here’s Why.**\
+`The Japanese stock market is up nearly 30 percent this year, far ahead of the S&P 500, as firms bet that changes in how companies are run might just finally last.`\
+https://nytimes.com/2023/06/14/business/japan-stock-markets.html?searchResultPosition=5
 
-**Affordable Housing Woes Paint a ‘Bleak Picture’**\
-`So many developments have been sidetracked or delayed that some experts expect a “production cliff” to hit in a year or so, meaning fewer new homes coming onto the market.`\
-https://nytimes.com/2023/06/14/business/affordable-housing-developers.html?searchResultPosition=6
+**Lip Readers Apply Their Skill to Celebrity Conversations**\
+`There are millions of views to be had for those who can decode the caught-on-camera conversations of royal family members, Taylor Swift, and Ben and Jennifer Affleck.`\
+https://nytimes.com/2023/06/14/style/lip-readers-apply-their-skill-to-celebrity-conversations.html?searchResultPosition=6
 
-**A Meteorologist Weathers the Storm**\
-`Judson Jones, a member of The Times’s Weather Data team, tracks how global weather patterns affect even the most remote regions. He’s been busy.`\
-https://nytimes.com/2023/06/14/insider/a-meteorologist-weathers-the-storm.html?searchResultPosition=7
+**Catering to a Fashionable Crowd**\
+`At his restaurants Sant Ambroeus and Casa Lever, Gherardo Guarducci seduces and pampers patrons. He knows they are not for everyone.`\
+https://nytimes.com/2023/06/14/style/gherardo-guarducci-sant-ambroeus.html?searchResultPosition=7
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/06/14/crosswords/spelling-bee-forum.html?searchResultPosition=8
+**He Exposed Corruption in Guatemala. Now He Faces Prison.**\
+`The trial of José Rubén Zamora, the founder of a newspaper that long shone a spotlight on government graft, comes as critics say democracy in Guatemala is crumbling.`\
+https://nytimes.com/2023/06/14/world/americas/jose-ruben-zamora-journalist-guatemala.html?searchResultPosition=8
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/06/14/crosswords/wordle-review-answer-725.html?searchResultPosition=9
+**How South Korea Puts Its Food Scraps to Good Use**\
+`When wasted food rots in landfills, it pollutes soil and water — and warms the planet. Here’s how one country keeps that from happening.`\
+https://nytimes.com/2023/06/14/world/asia/south-korea-food-waste.html?searchResultPosition=9
 
-**The war is an afterthought at the St. Petersburg forum, once a marquee event for Putin.**\
-`The real clue that the state-run St. Petersburg International Economic Forum is a shadow of its former self is the scant international presence.`\
-https://nytimes.com/2023/06/14/us/st-petersburg-forum-russia.html?searchResultPosition=10
+**New Obesity Drugs Come With a Side Effect of Shaming**\
+`Wegovy and other drugs expose a social tension between a quest to medicate illness and a stigmatizing belief that obese people lack sufficient willpower to lose weight.`\
+https://nytimes.com/2023/06/14/health/obesity-drugs-wegovy-ozempic.html?searchResultPosition=10
 
