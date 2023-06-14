@@ -4,7 +4,7 @@ https://nytimes.com/2023/06/14/us/southern-baptist-women-pastors-ouster.html?sea
 
 **Ukraine’s Counteroffensive: What to Know**\
 `The Ukrainians are now on the offense. But measuring their progress is difficult this early on.`\
-https://nytimes.com/2023/06/14/us/politics/ukraines-counteroffensive-what-to-know.html?searchResultPosition=2
+https://nytimes.com/article/ukraine-counteroffensive-what-to-know.html?searchResultPosition=2
 
 **‘Do You Even Want Us to Exist?’ A Bank Chief Fights to Survive.**\
 `The banks at the center of the recent crisis, like Western Alliance, are engaged in collective soul-searching.`\
