@@ -30,7 +30,7 @@ https://nytimes.com/2023/06/15/briefing/trump.html?searchResultPosition=7
 `The shows of bonhomie between the two leaders reflect the bond between Russia and China, which could become more fraught as Russian dependence deepens.`\
 https://nytimes.com/2023/06/15/world/asia/xi-putin-china-russia.html?searchResultPosition=8
 
-**Grossi arrives at the Zaporizhzhia nuclear plant to assess safety.**\
+**U.N. Nuclear Official Arrives at Zaporizhzhia Plant to Assess Safety**\
 `Rafael Mariano Grossi, the head of the United Nations’ atomic agency, is investigating conditions at the plant, which is held by Russian forces.`\
 https://nytimes.com/2023/06/15/world/europe/zaporizhzhia-nuclear-plant-iaea-grossi-visit.html?searchResultPosition=9
 
