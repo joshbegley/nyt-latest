@@ -4,7 +4,7 @@ https://nytimes.com/2023/06/15/world/europe/irma-capece-minutolo-dead.html?searc
 
 **F.D.A. Panel Advises Vaccine Makers to Aim at Only One Covid Variant**\
 `An F.D.A. advisory panel told manufacturers to aim the latest coronavirus vaccine for the fall at the dominant SARS-CoV-2 variant.`\
-https://nytimes.com/2023/06/15/health/fda-covid-shots.html?searchResultPosition=2
+https://nytimes.com/2023/06/15/health/fda-covid-vaccine-boosters-xbb.html?searchResultPosition=2
 
 **‘Flamin’ Hot’: Biden to Host Screening of the (Kind of) True Story of the Spicy Chip**\
 `The film will be shown at the White House to dozens of Latino organizers and community leaders, as well as its director, Eva Longoria.`\
