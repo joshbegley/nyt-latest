@@ -19,7 +19,7 @@ https://nytimes.com/2023/06/15/us/minneapolis-police-justice-department-report.h
 https://nytimes.com/interactive/2023/06/15/sports/what-to-watch-us-open.html?searchResultPosition=5
 
 **Justice Neil Gorsuch Is a Committed Defender of Tribal Rights**\
-`In soaring opinions steeped in history, Justice Gorsuch, the only Westerner on the Supreme Court, has demonstrated a distinctive dedication to Native American rights.`\
+`In soaring opinions steeped in history, Justice Gorsuch has demonstrated a distinctive dedication to Native American rights.`\
 https://nytimes.com/2023/06/15/us/politics/neil-gorsuch-supreme-court-opinions.html?searchResultPosition=6
 
 **Penguins in Your Fridge? These 7-Year-Olds Have Climate Solutions.**\
