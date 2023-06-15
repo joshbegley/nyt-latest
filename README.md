@@ -1,4 +1,4 @@
-**Penguins in Your Fridge? These 7-Year Olds Have Climate Solutions.**\
+**Penguins in Your Fridge? These 7-Year-Olds Have Climate Solutions.**\
 `New Jersey is the first state to require that climate change be taught at all grade levels. The focus is on problem solving, not doom and gloom.`\
 https://nytimes.com/2023/06/15/climate/climate-education-schools-children.html?searchResultPosition=1
 
