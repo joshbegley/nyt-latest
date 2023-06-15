@@ -1,40 +1,40 @@
+**‘Nobody’s Hero’ Review: Little Desires Everywhere**\
+`In this slippery farce, a schlubby coder falls in love with a prostitute and takes in a teenager he suspects is a terrorist.`\
+https://nytimes.com/2023/06/15/movies/nobodys-hero-review.html?searchResultPosition=1
+
 **Ticket Giants, Under Pressure From Biden, Promise Transparency on Fees**\
 `Live Nation and SeatGeek said they would show customers the full cost of concerts, after the White House’s complaints that “junk fees” for tickets and hotel stays can mislead consumers.`\
-https://nytimes.com/2023/06/15/arts/music/live-nation-ticketmaster-junk-fees.html?searchResultPosition=1
+https://nytimes.com/2023/06/15/arts/music/live-nation-ticketmaster-junk-fees.html?searchResultPosition=2
 
 **Holmes Says She Can’t Afford $250 Payments to Theranos Victims**\
 `Elizabeth Holmes, the founder of a blood-testing company, was ordered to pay $250 a month to defrauded investors after her prison term. Her lawyers said she had “limited financial resources.”`\
-https://nytimes.com/2023/06/15/business/elizabeth-holmes-theranos-victim-payments.html?searchResultPosition=2
+https://nytimes.com/2023/06/15/business/elizabeth-holmes-theranos-victim-payments.html?searchResultPosition=3
 
 **Men’s College World Series: Future Pros and Plenty of Contenders**\
 `Wake Forest has had the best pitching this baseball season, led by Rhett Lowder. But there are several fellow M.L.B. prospects in the championship field.`\
-https://nytimes.com/2023/06/15/sports/baseball/mens-college-world-series.html?searchResultPosition=3
+https://nytimes.com/2023/06/15/sports/baseball/mens-college-world-series.html?searchResultPosition=4
 
 **A ‘Win-Win’ for Restaurants and Migrants: Subsidized Free Meals**\
 `Rethink Food, a nonprofit that feeds the hungry, has started an initiative with New York City that pays restaurants to prepare and distribute meals to migrants.`\
-https://nytimes.com/interactive/2023/06/15/nyregion/rethink-migrant-meals-nyc.html?searchResultPosition=4
+https://nytimes.com/interactive/2023/06/15/nyregion/rethink-migrant-meals-nyc.html?searchResultPosition=5
 
 **Ebony G. Patterson Brings a Crowd to the New York Botanical Garden**\
 `All that glitters isn’t what you expect at the Enid A. Haupt Conservatory. The vultures have landed.`\
-https://nytimes.com/2023/06/15/arts/design/patterson-new-york-botanical-garden-review-vultures.html?searchResultPosition=5
+https://nytimes.com/2023/06/15/arts/design/patterson-new-york-botanical-garden-review-vultures.html?searchResultPosition=6
 
 **In Barcelona, City of Mega-Festivals, Small Venues Struggle**\
 `Thousands of visitors flock to the city for events like Sónar and Primavera Sound. But complaints from locals about noise and overcrowding create tough conditions for local acts.`\
-https://nytimes.com/2023/06/15/arts/music/barcelona-small-venues-sonar-primavera.html?searchResultPosition=6
+https://nytimes.com/2023/06/15/arts/music/barcelona-small-venues-sonar-primavera.html?searchResultPosition=7
 
 **Kenyan Cult Survivors, Still Refusing to Eat, Face Suicide Charges**\
 `Dozens of members rescued from a church whose pastor is accused of telling followers to starve themselves appeared in court. A judge sent them to rehab rather than jail to await another hearing.`\
-https://nytimes.com/2023/06/15/world/africa/kenya-cult-survivors-suicide-charges.html?searchResultPosition=7
+https://nytimes.com/2023/06/15/world/africa/kenya-cult-survivors-suicide-charges.html?searchResultPosition=8
 
 **Newly Published Visual Books, From Asylum Seekers to Ruth E. Carter**\
 `A selection of recently published books.`\
-https://nytimes.com/2023/06/15/books/review/new-this-week.html?searchResultPosition=8
+https://nytimes.com/2023/06/15/books/review/new-this-week.html?searchResultPosition=9
 
 **‘Menace II Society’ at 30: A Bleak Nightmare Then, a Milestone Now**\
 `With a tragic hero at its heart, the Hughes brothers’ debut drama painted nuanced portraits of characters rarely fleshed out in other films.`\
-https://nytimes.com/2023/06/15/movies/menace-ii-society.html?searchResultPosition=9
-
-**Supreme Court Upholds Native American Adoption Law**\
-`At issue in the case was whether a law aimed at keeping Native American adoptees within tribes is constitutional.`\
-https://nytimes.com/2023/06/15/us/supreme-court-native-american-children-tribes.html?searchResultPosition=10
+https://nytimes.com/2023/06/15/movies/menace-ii-society.html?searchResultPosition=10
 
