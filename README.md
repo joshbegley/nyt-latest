@@ -22,7 +22,7 @@ https://nytimes.com/2023/06/15/climate/oceans-global-warming.html?searchResultPo
 `Carlo Mondavi takes on climate change by pushing regenerative and organic agriculture, with the help of a smart electric tractor.`\
 https://nytimes.com/2023/06/15/dining/drinks/carlo-mondavi-monarch-electric-tractor.html?searchResultPosition=6
 
-**Airman Is Indicted on Charges of Mishandling Secrets**\
+**Airman Who Leaked Files Is Indicted on Charges of Mishandling Secrets**\
 `The airman, Jack Teixeira, 21, was arrested at his home in North Dighton, Mass., on April 13.`\
 https://nytimes.com/2023/06/15/us/politics/jack-teixeira-indicted-document-leaks.html?searchResultPosition=7
 
