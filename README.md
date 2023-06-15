@@ -27,7 +27,7 @@ https://nytimes.com/2023/06/15/sports/cricket/ashes-england-australia-cricket.ht
 https://nytimes.com/2023/06/15/world/europe/pope-francis-hospital.html?searchResultPosition=7
 
 **European Central Bank Raises Rates to Highest Level Since 2001**\
-`Inflation is “projected to remain too high for too long,” the central bank said as it raised interest rates by a quarter-point, its eighth consecutive increase.`\
+`Inflation is “projected to remain too high for too long,” the central bank said as it raised interest rates by a quarter-point, and signaled more increases may be coming.`\
 https://nytimes.com/2023/06/15/business/ecb-interest-rates-europe.html?searchResultPosition=8
 
 **The White House Renews Its Attack on ‘Surprise Fees’**\
