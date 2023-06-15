@@ -32,7 +32,7 @@ https://nytimes.com/2023/06/15/world/europe/zaporizhzhia-nuclear-plant-iaea-gros
 
 **Why Saudi Arabia Came for Golf and Why the PGA Let Them In**\
 `The surprise merging of golf’s rival circuits is expected to transform the sport.`\
-https://nytimes.com/2023/06/15/podcasts/the-daily/why-saudi-arabia-came-for-golf-and-why-the-pga-let-them-in.html?searchResultPosition=9
+https://nytimes.com/2023/06/15/podcasts/the-daily/saudi-liv-golf-pga.html?searchResultPosition=9
 
 **Greece Continues Search for Migrants After Crowded Ship Capsizes**\
 `The authorities revised the official toll of the deadly shipwreck down by one, to 78, but there are fears that hundreds of people may be missing.`\
