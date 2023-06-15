@@ -6,7 +6,7 @@ https://nytimes.com/2023/06/15/special-series/terence-blanchard-black-identity.h
 `The conventional method for chest compressions doesn’t have a great success rate. Doctors are pumping it up with a high-tech plunger.`\
 https://nytimes.com/2023/06/15/health/neuroprotective-cpr-plunger.html?searchResultPosition=2
 
-**The Instant Pot Was Beloved. Now Its Maker Has Filed for Bankruptcy**\
+**The Instant Pot Was Beloved. Now Its Maker Has Filed for Bankruptcy.**\
 `Since sales surged during the pandemic, Instant Brands has struggled to find new fans for its beloved Instant Pot and other products.`\
 https://nytimes.com/2023/06/15/business/instant-brands-bankruptcy.html?searchResultPosition=3
 
