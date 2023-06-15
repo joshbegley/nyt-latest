@@ -1,6 +1,6 @@
 **At Least 15 Die in Highway Crash in Canada**\
 `A bus and a semitruck collided on a rural stretch of the Trans-Canada Highway in Manitoba on Thursday, the police said.`\
-https://nytimes.com/2023/06/15/world/canada/highway-crash-carbery-manitoba.html?searchResultPosition=1
+https://nytimes.com/2023/06/15/world/canada/highway-crash-carberry-manitoba.html?searchResultPosition=1
 
 **America’s Invisible Shield Against Cyberattacks**\
 `How Google's cybersecurity defenses are protecting America’s critical infrastructure`\
