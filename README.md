@@ -27,7 +27,7 @@ https://nytimes.com/2023/06/15/us/politics/biden-flamin-hot-screening.html?searc
 https://nytimes.com/2023/06/15/briefing/ukraine-counteroffensive-china-police-outposts-thailand-election.html?searchResultPosition=7
 
 **Ocean Warmth Set a Record for May**\
-`North and South America had their warmest Mays on record, as rising temperatures posed risks to both aquatic life and humans.`\
+`North and South America had their warmest Mays on record, as the heat contributed to wildfires and posed risks to people and wildlife.`\
 https://nytimes.com/2023/06/15/climate/oceans-global-warming.html?searchResultPosition=8
 
 **Robert Mondavi Changed Wine. His Grandson Aims to Change Farming.**\
