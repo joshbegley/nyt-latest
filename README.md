@@ -30,7 +30,7 @@ https://nytimes.com/2023/06/15/us/ap-psychology-college-board-florida.html?searc
 `For a few years with the Giants, he was among the most feared pass catchers in the N.F.L. — and the acknowledged inventor of an end-zone celebration.`\
 https://nytimes.com/2023/06/15/sports/football/homer-jones-dead.html?searchResultPosition=8
 
-**In Liberated Villages, Ukrainian Troops Still Face Lethal Threats**\
+**Retaking Villages Leaves Ukrainian Troops Exposed and Diving for Cover**\
 `The Ukrainian counteroffensive has enjoyed some early successes, but with every step forward, the soldiers are increasingly exposed to Russian firepower.`\
 https://nytimes.com/2023/06/15/world/europe/ukraine-recapures-villages.html?searchResultPosition=9
 
