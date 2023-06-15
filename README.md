@@ -1,5 +1,5 @@
 **Finance Executive Accused of Drugging and Raping Teen in Midtown Hotel**\
-`Michael Olson, 54, flew her around the country, passing her off as his daughter, prosecutors said. He kept spreadsheets of children he contacted, they said.`\
+`Michael Olson, 54, flew the girl around the country, passing her off as his daughter, prosecutors said. He kept spreadsheets of children he contacted, they said.`\
 https://nytimes.com/2023/06/15/nyregion/michael-olson-rape-charges-14-year-old.html?searchResultPosition=1
 
 **At the Heart of the Documents Case: Trump’s Attachment to His Boxes**\
