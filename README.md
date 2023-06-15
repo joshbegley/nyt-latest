@@ -1,6 +1,6 @@
 **German Police Investigate Rammstein Singer Over Sexual Assault Accusations**\
 `Accusations against the band’s frontman had been swirling on social media and in reports by German news outlets for nearly two weeks.`\
-https://nytimes.com/2023/06/15/world/europe/german-police-investigate-rammstein-singer-over-sexual-assault-accusations.html?searchResultPosition=1
+https://nytimes.com/2023/06/15/arts/music/rammstein-singer-sexual-assault-accusations.html?searchResultPosition=1
 
 **Black Real Estate Agent Wins Racial Bias Case Against Hamptons Firm**\
 `Shauncy Claud claimed that Brown Harris Stevens of the Hamptons terminated her contract after she told a supervisor that her white colleagues received more favorable treatment.`\
