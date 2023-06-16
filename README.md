@@ -14,8 +14,8 @@ https://nytimes.com/2023/06/16/world/europe/ukraine-zaporizhzhia-nuclear-power-p
 `When the party of the country’s political rock star, former Prime Minister Sanna Marin, lost in April, a center-right party’s power rose.`\
 https://nytimes.com/2023/06/16/world/europe/finland-finns-party.html?searchResultPosition=4
 
-**A Psychiatrist and a Psychologist Analyze Donald Trump**\
-`Mental health professionals are among those offering explanations. Also: Protecting the ex-president; compassionate doctors; sex and the G.O.P.`\
+**What Makes Trump Act That Way? A Psychiatrist and a Psychologist Weigh In.**\
+`Mental health professionals offer explanations. Also: Protecting the ex-president; sealing criminal records; compassionate doctors; sex and the G.O.P.`\
 https://nytimes.com/2023/06/16/opinion/letters/donald-trump-behavior.html?searchResultPosition=5
 
 **U.S. Orchestras Gradually Diversify but Are Slow to Hire Black Musicians**\
