@@ -20,7 +20,7 @@ https://nytimes.com/2023/06/16/world/canada/manitoba-car-crash-canada.html?searc
 
 **Gregg Berhalter Rehired as U.S. Men’s Coach**\
 `Berhalter was removed from the post after the World Cup, but the results of an investigation cleared the way for his return.`\
-https://nytimes.com/2023/06/16/sports/soccer/gregg-berhalter-rehired-as-us-mens-coach.html?searchResultPosition=6
+https://nytimes.com/2023/06/16/sports/soccer/gregg-berhalter-world-cup.html?searchResultPosition=6
 
 **The Rev. C. Welton Gaddy, Defender of Church-State Divide, Dies at 81**\
 `He started out in the Southern Baptist Convention, but when that group took a sharp conservative turn he became a voice for tolerance and diversity.`\
