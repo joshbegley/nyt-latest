@@ -18,7 +18,7 @@ https://nytimes.com/2023/06/16/business/economy/federal-debt-32-trillion.html?se
 `The company has reached out to regulators about its plans, which could set off privacy and safety concerns for parents and watchdogs.`\
 https://nytimes.com/2023/06/16/technology/meta-virtual-reality-headset-children-safety.html?searchResultPosition=5
 
-**What’s Going on with Reddit?**\
+**What’s Going On With Reddit?**\
 `Thousands of subreddits have gone dark in protest.`\
 https://nytimes.com/2023/06/16/style/whats-going-on-with-reddit.html?searchResultPosition=6
 
