@@ -34,7 +34,7 @@ https://nytimes.com/2023/06/16/arts/music/playlist-meshell-ndegeocello-doja-cat.
 `From estranged parents making amends, to harsh battles for homelands, this month’s action picks feature appeals to families.`\
 https://nytimes.com/2023/06/16/movies/action-movies-streaming.html?searchResultPosition=9
 
-**Nuclear Plant in Ukraine, Occupied by Russia, Faces a New Risk**\
+**Ukraine Nuclear Plant in No Near-Term Risk After Dam Breach, U.N. Says**\
 `The destruction of a dam endangered the main source of water used for the critical task of cooling Zaporizhzhia’s reactors and spent fuel rods.`\
 https://nytimes.com/2023/06/16/world/europe/ukraine-zaporizhzhia-nuclear-power-plant-dam.html?searchResultPosition=10
 
