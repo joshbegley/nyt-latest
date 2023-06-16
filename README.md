@@ -30,11 +30,11 @@ https://nytimes.com/interactive/2023/06/16/briefing/the-weekender.html?searchRes
 `Social platforms are entering a strange and uncertain future.`\
 https://nytimes.com/2023/06/16/podcasts/reddit-revolts-mrbeasts-youtube-empire-and-peak-trust-and-safety.html?searchResultPosition=8
 
-**After an Epic Meltdown, Ample Hills Creamery Aims to Rise Again**\
-`The Brooklyn-based ice cream chain boomed with the help of Oprah and Disney, then went bust. But the couple behind it are opening new shops and thinking small.`\
-https://nytimes.com/2023/06/16/dining/ample-hills-creamery-brooklyn.html?searchResultPosition=9
-
 **As Blinken Heads to China, a Wall of Suspicion Awaits Him**\
 `Even as Beijing prepares for a visit by the secretary of state, China’s leader has made clear his expectations of more hostile superpower competition.`\
-https://nytimes.com/2023/06/16/world/asia/blinken-china-us-xi.html?searchResultPosition=10
+https://nytimes.com/2023/06/16/world/asia/blinken-china-us-xi.html?searchResultPosition=9
+
+**After an Epic Meltdown, Ample Hills Creamery Aims to Rise Again**\
+`The Brooklyn-based ice cream chain boomed with the help of Oprah and Disney, then went bust. But the couple behind it are opening new shops and thinking small.`\
+https://nytimes.com/2023/06/16/dining/ample-hills-creamery-brooklyn.html?searchResultPosition=10
 
