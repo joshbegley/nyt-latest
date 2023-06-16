@@ -1,5 +1,5 @@
 **Woman Accused of Killing Mother on Bali Trip Pleads Guilty**\
-`In an agreement with federal prosecutors, Heather Mack, 27, pleaded guilty to one count of conspiring to kill a U.S. national in the 2014 death of her mother. .`\
+`In an agreement with federal prosecutors, Heather Mack, 27, pleaded guilty to one count of conspiring to kill a U.S. national in the 2014 death of her mother.`\
 https://nytimes.com/2023/06/16/us/bali-killing-heather-mack.html?searchResultPosition=1
 
 **Judge Mostly Blocks Indiana Ban on Transition Care for Minors**\
