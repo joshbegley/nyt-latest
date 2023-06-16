@@ -18,7 +18,7 @@ https://nytimes.com/2023/06/16/nyregion/ranked-choice-voting-nyc.html?searchResu
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2023/06/16/crosswords/spelling-bee-forum.html?searchResultPosition=5
 
-**Pope Francis Leaves Hospital After Surgery**\
+**Pope Francis Leaves Rome Hospital After Surgery**\
 `Doctors have advised the 86-year-old pontiff to take it easy after undergoing treatment to deal with a hernia that caused painful intestinal blockages.`\
 https://nytimes.com/2023/06/16/world/europe/pope-francis-hospital.html?searchResultPosition=6
 
