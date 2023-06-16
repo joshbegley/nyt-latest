@@ -6,7 +6,7 @@ https://nytimes.com/2023/06/15/pageoneplus/corrections-june-16-2023.html?searchR
 `Quotation of the Day for Friday, June 16, 2023`\
 https://nytimes.com/2023/06/15/pageoneplus/quotation-of-the-day-some-starbucks-are-banning-pride-decor-union-says.html?searchResultPosition=2
 
-**Thieves’ Loot: A Warhol, a Pollock and 9 of Bera’s World Series Rings**\
+**Thieves’ Loot: A Warhol, a Pollock and 9 of Berra’s World Series Rings**\
 `Federal prosecutors announced charges against nine people in a scheme that spanned two decades and targeted museums, halls of fame and businesses in five states.`\
 https://nytimes.com/2023/06/15/us/yogi-berra-sports-memorabilia-thefts.html?searchResultPosition=3
 
