@@ -1,6 +1,6 @@
 **Deadly Tornado Rips Through Perryton, Texas**\
 `People assessing the damage in Perryton filmed the rubble of a bank, a fire department and a natural gas facility.`\
-https://nytimes.com/video/us/100000008955773/texas-heat-wave-power-outages.html?searchResultPosition=1
+https://nytimes.com/video/us/100000008955773/tornado-texas-perryton.html?searchResultPosition=1
 
 **Corrections: June 16, 2023**\
 `Corrections that appeared in print on Friday, June 16, 2023.`\
