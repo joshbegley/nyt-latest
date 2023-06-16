@@ -10,7 +10,7 @@ https://nytimes.com/interactive/2023/06/16/smarter-living/wirecutter/how-to-clea
 `Doing product research, making grocery lists and booking travel can be easier with tools like ChatGPT.`\
 https://nytimes.com/2023/06/16/technology/how-to-use-ai-as-a-shopping-assistant.html?searchResultPosition=3
 
-**Jury Convicts Man in Killings of 11 in Pittsburgh Synagogue**\
+**Jury Convicts Man in Killing of 11 in Pittsburgh Synagogue**\
 `Jurors will next hear arguments about whether Robert Bowers should be sentenced to death.`\
 https://nytimes.com/2023/06/16/us/pittsburgh-synagogue-shooting-verdict.html?searchResultPosition=4
 
