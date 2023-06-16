@@ -11,7 +11,7 @@ https://nytimes.com/2023/06/16/us/indiana-transgender-care-ban.html?searchResult
 https://nytimes.com/interactive/2023/06/16/world/europe/ukraine-kakhovka-dam-collapse.html?searchResultPosition=3
 
 **At the U.S. Open, Wyndham Clark Is Confident, and It Shows**\
-`Bold play had Clark flirting with the top of the leaderboard for part of his second round on Friday.`\
+`Bold play in honor of his mother, who died nearly 10 years ago, had Clark flirting with the top of the leaderboard for part of his second round on Friday.`\
 https://nytimes.com/2023/06/16/sports/golf/us-open-wyndham-clark.html?searchResultPosition=4
 
 **Calling for New Gun Laws, Biden Says U.S. Children Are Suffering Like Soldiers in War**\
