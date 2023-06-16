@@ -1,40 +1,40 @@
+**Top Grammy Categories Are Returning to 8 Nominees, From 10**\
+`The event is also moving two competitions into its “general” field, adding three awards, and setting a new threshold for collaborators in album of the year.`\
+https://nytimes.com/2023/06/16/arts/music/grammy-awards-top-categories-8-nominees.html?searchResultPosition=1
+
+**What Greta Lee, Lizzy Caplan and Spike Lee Wore to Party This Week**\
+`At an Apollo Theater benefit and a Tribeca Film Festival party, attendees showed off multicolored sequins and pastel tulle.`\
+https://nytimes.com/2023/06/16/style/nyc-fashion-spike-lee-greta-lizzy-caplan.html?searchResultPosition=2
+
+**The Titanic Truthers of TikTok**\
+`On the short-form video app, long-established facts about the 1912 disaster at sea are being newly litigated as musty rumors merge with fresh misinformation and manipulated content.`\
+https://nytimes.com/2023/06/16/business/titanic-tiktok-misinformation.html?searchResultPosition=3
+
+**Summer Reading Contest, Week 2: What Got Your Attention in The Times This Week?**\
+`To participate, submit your response here by June 23 at 9 a.m. Eastern. This week’s winners will be announced on July 5.`\
+https://nytimes.com/2023/06/16/learning/summer-reading-contest-week-2-what-got-your-attention-in-the-times-this-week.html?searchResultPosition=4
+
+**Overdraft Fees Are Dwindling, Study Finds**\
+`But the share of people paying the fees remains unchanged, and they’re often among the most financial vulnerable.`\
+https://nytimes.com/2023/06/16/your-money/overdraft-fees-banks.html?searchResultPosition=5
+
+**Why Has California Been So Cloudy Lately?**\
+`“June Gloom” has felt extra gloomy this year.`\
+https://nytimes.com/2023/06/16/us/california-june-gloom-weather.html?searchResultPosition=6
+
 **Do You Know These Dublin Locations Mentioned in “Ulysses”?**\
 `Happy Bloomsday! Test your knowledge of James Joyce’s classic novel with this short quiz.`\
-https://nytimes.com/interactive/2023/06/16/books/review/ulysses-dublin-quiz.html?searchResultPosition=1
+https://nytimes.com/interactive/2023/06/16/books/review/ulysses-dublin-quiz.html?searchResultPosition=7
 
 **Coast Guard Ends Post-9/11 Antiterrorism Patrols at Guantánamo Bay**\
 `Special teams were sent to the U.S. outpost in Cuba after the Sept. 11 attacks. The Coast Guard said a Navy sea patrol assumed their duties.`\
-https://nytimes.com/2023/06/16/us/politics/guantanamo-coast-guard-patrols.html?searchResultPosition=2
+https://nytimes.com/2023/06/16/us/politics/guantanamo-coast-guard-patrols.html?searchResultPosition=8
 
 **American Woman Dies at Neuschwanstein Castle After Push Down Cliff**\
 `The woman, 21, was visiting the popular German site with a friend when they met a man who persuaded them to take a little-used trail and then assaulted them both, the police said.`\
-https://nytimes.com/2023/06/16/world/europe/woman-dead-attack-neuschwanstein-castle.html?searchResultPosition=3
+https://nytimes.com/2023/06/16/world/europe/woman-dead-attack-neuschwanstein-castle.html?searchResultPosition=9
 
 **Saudi Arabia Arrives in Paris, Shopping for Deals**\
 `A contingent from the kingdom, including its powerful crown prince, are in the French capital looking to spend big on investments.`\
-https://nytimes.com/2023/06/16/business/dealbook/saudi-paris-deals.html?searchResultPosition=4
-
-**Germany’s security strategy aims to set priorities after Russia’s invasion, but offers few hard commitments.**\
-`By Steven Erlanger and Christopher F. Schuetze`\
-https://nytimes.com/2023/06/16/world/europe/germanys-security-strategy-aims-to-set-priorities-after-russias-invasion-but-offers-few-hard-commitments.html?searchResultPosition=5
-
-**Donald Trump Has a Polling Problem**\
-`Most Republicans still support Trump. But the polls still suggest the federal indictment is hurting him.`\
-https://nytimes.com/2023/06/16/briefing/donald-trump-polling.html?searchResultPosition=6
-
-**Japan Changes Its Rape Laws to Require Consent**\
-`Japan’s previous laws on sexual assault did not mention permission and required that the crime include physical force. The new law also raises the age of consent to 16, from 13.`\
-https://nytimes.com/2023/06/16/world/asia/japan-rape-law-consent.html?searchResultPosition=7
-
-**The Kids Take the Climate Change Fight to Court**\
-`A group of young environmentalists argue that Montana’s embrace of fossil fuels is robbing them of their future.`\
-https://nytimes.com/2023/06/16/podcasts/the-daily/climate-change-case-montana.html?searchResultPosition=8
-
-**Today’s Top News: An Investigation Into the Minneapolis Police, and More**\
-`Exclusively from New York Times Audio, our new app.`\
-https://nytimes.com/2023/06/16/podcasts/headlines-nyt-audio-app.html?searchResultPosition=9
-
-**Bill Gates, in First Visit to China Since 2019, Meets With Xi**\
-`China’s president, Xi Jinping, calls Mr. Gates “the first American friend I met in Beijing this year.”`\
-https://nytimes.com/2023/06/16/business/bill-gates-xi-jinping.html?searchResultPosition=10
+https://nytimes.com/2023/06/16/business/dealbook/saudi-paris-deals.html?searchResultPosition=10
 
