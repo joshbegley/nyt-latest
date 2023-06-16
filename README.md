@@ -19,7 +19,7 @@ https://nytimes.com/2023/06/16/sports/golf/us-open-wyndham-clark.html?searchResu
 https://nytimes.com/2023/06/16/us/politics/biden-gun-control-laws.html?searchResultPosition=5
 
 **3 Men Charged in Case That Spotlights Attacks on the Media**\
-`The homes of New Hampshire Public Media journalists were vandalized after they aired a sexual harassment investigation involving a prominent businessman in the state.`\
+`The homes of New Hampshire Public Radio journalists were vandalized after they aired a sexual harassment investigation involving a prominent businessman in the state.`\
 https://nytimes.com/2023/06/16/business/media/nhpr-attacks-arrests.html?searchResultPosition=6
 
 **U.S. Open Shows a Fiercer Side, but Low Scores Abound Anyway**\
