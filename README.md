@@ -11,7 +11,7 @@ https://nytimes.com/2023/06/16/arts/television/endeavour-final-season-review.htm
 https://nytimes.com/2023/06/16/books/review/what-its-like-to-write-an-mlk-jr-biography.html?searchResultPosition=3
 
 **Richard Severo, Times Reporter in Internal Clash Over Book, Dies at 90**\
-`In a public confrontation, he said he was punished because he had not given a Times publishing subsidiary first rights to a book based on his reporting. An arbitrator disagreed.`\
+`He challenged a company’s prerogative to transfer an employee and a news organization’s ability to assert publishing rights when a reporter’s articles are used for a book.`\
 https://nytimes.com/2023/06/16/business/media/richard-severo-dead.html?searchResultPosition=4
 
 **‘It Could Have Been So Much Worse’: Mountain Collapse Narrowly Misses Swiss Village**\
