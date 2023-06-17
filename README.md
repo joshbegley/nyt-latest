@@ -1,40 +1,40 @@
-**Uganda School Attack Leaves at Least 25 Dead**\
-`The authorities say the attack, one of the deadliest to hit the landlocked nation in years, was carried out by the Allied Democratic Forces, an extremist group operating in neighboring Congo.`\
-https://nytimes.com/2023/06/17/world/africa/uganda-school-attack.html?searchResultPosition=1
+**A Long-Shot Candidate’s Defense of Trump Could Undermine the Rule of Law**\
+`Vivek Ramaswamy is the lone Republican rival of Donald Trump to wholeheartedly claim the federal indictment is a Democratic attempt to jail the political opposition.`\
+https://nytimes.com/2023/06/17/us/politics/trump-ramaswamy-indictment.html?searchResultPosition=1
 
-**What a Commissioner’s Abrupt Exit Says About the N.Y.P.D. Under Adams**\
-`The next N.Y.P.D. commissioner will have to contend with the mayor, a wary police force eager for clear leadership and a city worried about both crime and the use of force.`\
-https://nytimes.com/2023/06/17/nyregion/keechant-sewell-nypd.html?searchResultPosition=2
+**It’s Story Time at Ballet Theater, With a Best Seller Twist**\
+`Christopher Wheeldon’s “Like Water for Chocolate” is a new kind of endeavor for the company: a full-length work based on a contemporary novel and popular film.`\
+https://nytimes.com/2023/06/17/arts/dance/american-ballet-theater-like-water-for-chocolate-wheeldon.html?searchResultPosition=2
 
-**Harlem City Council Election Tests Limits of Progressive Politics**\
-`Three moderate Democrats are running to replace Kristin Richardson Jordan, one of the city’s most left-leaning politicians, who is not seeking re-election.`\
-https://nytimes.com/2023/06/17/nyregion/harlem-city-council-primary-election.html?searchResultPosition=3
+**In Branson, Missouri, a Two-Wheeled Fix for the Commuter Blues**\
+`Much of the affordable housing in the tourist town is far from its famous entertainment strip. One solution: motor scooters offered for no money down.`\
+https://nytimes.com/2023/06/17/us/branson-missouri-motor-scooters.html?searchResultPosition=3
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/06/17/crosswords/wordle-review-answer-728.html?searchResultPosition=4
+**Biden Administration Engages in Long-Shot Attempt for Saudi-Israel Deal**\
+`The president and his aides are pressing an aggressive diplomatic effort as Riyadh makes significant demands in exchange for normalization, including a nuclear deal and a robust U.S. security pact.`\
+https://nytimes.com/2023/06/17/us/politics/biden-saudi-arabia-israel-palestine-nuclear.html?searchResultPosition=4
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/06/17/crosswords/spelling-bee-forum.html?searchResultPosition=5
+**‘The Fires Here Are Unstoppable’**\
+`The first foreign firefighters to reach Quebec amid Canada’s worst wildfire season on record said that some of the blazes were 100 times bigger than any they had ever seen.`\
+https://nytimes.com/2023/06/17/world/americas/canada-wildfires-season.html?searchResultPosition=5
 
-**At Least 4 Killed as Storm Batters Brazil With Heavy Rain**\
-`The governor of Rio Grande do Sul said it was a priority “to find the missing and save people who may still be stranded by the floods.”`\
-https://nytimes.com/2023/06/17/world/americas/brazil-storm-flood.html?searchResultPosition=6
+**For Riccardo Muti, a Grand Sort-of-Finale in Chicago**\
+`The eminent maestro is ending an acclaimed 13-year run at the Chicago Symphony Orchestra. But with his successor not yet named, he’s sticking around.`\
+https://nytimes.com/2023/06/17/arts/music/muti-chicago-symphony-classical-music.html?searchResultPosition=6
 
-**Investor and His Hedge Fund Are Rocked by Sex Assault Allegations**\
-`After accusations were published in Britain, Crispin Odey was severed from his own investment firm, which is now dissolving itself.`\
-https://nytimes.com/2023/06/17/business/dealbook/crispin-odey-asset-management.html?searchResultPosition=7
+**Bagging a New Generation**\
+`Baggu, a 16-year-old brand best known for its lightweight, foldable totes, is all over TikTok, where Gen Z fans are driving renewed interest.`\
+https://nytimes.com/2023/06/17/style/baggu-tiktok-gen-z.html?searchResultPosition=7
 
-**Quotation of the Day: Fatal Flaws Overlooked**\
-`Quotation of the Day for Saturday, June 17, 2023`\
-https://nytimes.com/2023/06/16/pageoneplus/quotation-of-the-day-fatal-flaws-overlooked.html?searchResultPosition=8
+**The Taliban Government Runs on WhatsApp. There’s Just One Problem.**\
+`The Taliban administration is stuck in a cat-and-mouse game with WhatsApp, which is off-limits to the nascent government because of U.S. sanctions.`\
+https://nytimes.com/2023/06/17/world/asia/taliban-whatsapp-afghanistan.html?searchResultPosition=8
 
-**Corrections: June 17, 2023**\
-`Corrections that appeared in print on Saturday, June 17, 2023.`\
-https://nytimes.com/2023/06/16/pageoneplus/corrections-june-17-2023.html?searchResultPosition=9
+**South Asian College Students Are Fake Marrying for the Vibes**\
+`Across North American schools, South Asian students are holding elaborately planned pretend weddings with the pomp and circumstance of real ones.`\
+https://nytimes.com/2023/06/17/style/fake-weddings-students-south-asia.html?searchResultPosition=9
 
-**Cut the Cards, Perhaps**\
-`Ryan McCarty deals us a wild Saturday puzzle.`\
-https://nytimes.com/2023/06/16/crosswords/daily-puzzle-2023-06-17.html?searchResultPosition=10
+**Loorie Moore’s Intimate Secrets**\
+`In a literary culture obsessed with confessionals, her brilliant short stories — and, now, a new novel — have always been about art, not autobiography.`\
+https://nytimes.com/2023/06/17/magazine/loorie-moore-novel.html?searchResultPosition=10
 
