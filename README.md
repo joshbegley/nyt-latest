@@ -16,7 +16,7 @@ https://nytimes.com/2023/06/17/us/politics/nikki-haley-fack-check.html?searchRes
 
 **The Space Industry Is Taking Off. Space Law Is Still a Mystery.**\
 `Estimated to be worth about $460 billion, space businesses sometimes operate in legal black holes.`\
-https://nytimes.com/2023/06/17/business/dealbook/the-space-industry-is-taking-off-space-law-is-still-a-mystery.html?searchResultPosition=5
+https://nytimes.com/2023/06/17/business/dealbook/space-industry-laws.html?searchResultPosition=5
 
 **Jezebels, Jazz and Rijsttafel**\
 `An editor recommends old and new books.`\
