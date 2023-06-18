@@ -15,7 +15,7 @@ https://nytimes.com/interactive/2023/06/18/us/pride-month-protests-backlash.html
 https://nytimes.com/2023/06/18/briefing/blinken-beijing-qin-ukraine-asia.html?searchResultPosition=4
 
 **Barr Says Documents Case Against Trump Is ‘Entirely of His Own Making’**\
-`The former attorney general, who has become a vocal critic of the former president, also attacked his character in extraordinary language.`\
+`The former attorney general, who has become a vocal critic of Donald Trump, was one of two former members of the former president’s cabinet to question his judgment on Sunday.`\
 https://nytimes.com/2023/06/18/us/politics/barr-trump-documents-russia.html?searchResultPosition=5
 
 **Both of the One of Us**\
