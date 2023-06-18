@@ -14,7 +14,7 @@ https://nytimes.com/2023/06/18/world/africa/uganda-school-attack.html?searchResu
 `The pontiff, giving a public address for the first time since undergoing abdominal surgery, expressed gratitude for the “affection, care and friendship” he had received.`\
 https://nytimes.com/2023/06/18/world/europe/pope-vatican-hospital.html?searchResultPosition=4
 
-**Not So Fast: Penalties Shuffle the Grid in Montreal**\
+**Not So Fast: Penalties Shuffle Grid at Canadian Grand Prix**\
 `A surprise second place for Nico Hulkenberg in qualifying disappeared with a three-place penalty. Max Verstappen? He’s on pole again.`\
 https://nytimes.com/2023/06/18/sports/autoracing/f1-canadian-grand-prix-tv-results.html?searchResultPosition=5
 
