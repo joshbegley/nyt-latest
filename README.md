@@ -34,7 +34,7 @@ https://nytimes.com/2023/06/18/us/illinois-mass-shooting.html?searchResultPositi
 `Samantha Irby is akin to our poet laureate of peevishness.`\
 https://nytimes.com/2023/06/18/briefing/samantha-irby.html?searchResultPosition=9
 
-**Ukrainian Forces Claim Strike on Russian Ammunition Dump as Counteroffensive Continues**\
-`Kyiv said Sunday that its forces had destroyed the facility in a Russian-occupied area of the south, where Ukraine has been fighting to recapture territory.`\
+**Ukraine Appears to Make a Small Gain in the South as Counteroffensive Continues**\
+`A Russian official and military bloggers said Sunday that Kyiv’s forces had retaken another village in their fight to recapture territory, a claim the Russian Defense Ministry denied.`\
 https://nytimes.com/2023/06/18/world/europe/ukraine-strike-russian-ammunition-dump.html?searchResultPosition=10
 
