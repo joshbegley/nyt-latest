@@ -1,4 +1,4 @@
-**No Birdies, but One Double Bogey, on the Shortest-Ever U.S. Open Hole**\
+**No Eagles, but One Double Bogey, on the Shortest-Ever U.S. Open Hole**\
 `The 15th hole at Los Angeles Country Club on Saturday was only 81 yards long, but the field struggled mightily.`\
 https://nytimes.com/2023/06/17/sports/golf/us-open-15th-shortest-hole.html?searchResultPosition=1
 
