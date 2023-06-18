@@ -10,7 +10,7 @@ https://nytimes.com/2023/06/18/theater/lizard-boy-review.html?searchResultPositi
 `In addition to her prizewinning writing, she was known for editing the correspondence between the poet Robert Lowell and the writer Elizabeth Hardwick.`\
 https://nytimes.com/2023/06/18/books/saskia-hamilton-poet-who-edited-another-poets-letters-dies-at-56.html?searchResultPosition=3
 
-**How the Pentagon Papers Leaker Tried to Get Prosecuted Near His Life’s End**\
+**Why the Pentagon Papers Leaker Tried to Get Prosecuted Near His Life’s End**\
 `When Daniel Ellsberg was 42, a judge threw out Espionage Act charges against him. At 90, he sought such charges again in hope of challenging their constitutionality.`\
 https://nytimes.com/2023/06/18/us/politics/daniel-ellsberg-espionage-act-pentagon-papers.html?searchResultPosition=4
 
