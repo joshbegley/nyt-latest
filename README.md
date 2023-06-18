@@ -22,8 +22,8 @@ https://nytimes.com/2023/06/17/crosswords/daily-puzzle-2023-06-18.html?searchRes
 `After he helped collar the men behind New York City’s biggest jewel heist, he worked as a private investigator for defendants like O.J. Simpson and Patty Hearst.`\
 https://nytimes.com/2023/06/17/nyregion/jack-mcnally-dead.html?searchResultPosition=6
 
-**West Virginia’s Bob Huggins Arrested, Charged With Drunken Driving**\
-`The men’s basketball coach was suspended and had his pay cut in May after he used a homophobic slur in a radio interview.`\
+**Bob Huggins Resigns From West Virginia After Drunken Driving Charges**\
+`The men’s basketball coach, who was arrested Friday in Pittsburgh, had been suspended in May after he used a homophobic slur in a radio interview.`\
 https://nytimes.com/2023/06/17/sports/ncaabasketball/bob-huggins-charged-west-virginia.html?searchResultPosition=7
 
 **I-95 in Philadelphia Expected to Reopen Within Two Weeks, Governor Says**\
