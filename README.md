@@ -26,7 +26,7 @@ https://nytimes.com/2023/06/18/world/europe/pope-vatican-hospital.html?searchRes
 `A surprise second place for Nico Hulkenberg in qualifying disappeared with a three-place penalty. Max Verstappen? He’s on pole again.`\
 https://nytimes.com/2023/06/18/sports/autoracing/f1-canadian-grand-prix-tv-results.html?searchResultPosition=7
 
-**1 Dead and 19 Wounded in Shooting at Illinois Celebration**\
+**20 Shot, 1 Fatally, at an Illinois Celebration, Officials Say**\
 `Gunfire erupted during “some kind of celebration” attended by hundreds of people at a shopping mall parking lot, officials said.`\
 https://nytimes.com/2023/06/18/us/illinois-mass-shooting.html?searchResultPosition=8
 
