@@ -1,40 +1,40 @@
-**What’s Behind the Widening Divide Between New York City and Its Suburbs?**\
-`Tension between the city and its surrounding areas over issues like crime, immigration and congestion pricing has grown since the pandemic.`\
-https://nytimes.com/2023/06/18/nyregion/suburbs-new-york-city-tension.html?searchResultPosition=1
+**Addicts Went in for Treatment. Instead They Were Enslaved.**\
+`Families in Indonesia thought they were sending their sons to a rehab facility run by a powerful local official. Those who stayed there say it was a brutal human slavery operation.`\
+https://nytimes.com/2023/06/18/world/asia/indonesia-slavery-drugs.html?searchResultPosition=1
 
-**Pharrell Williams, Louis Vuitton’s New Don**\
-`The American star steps into shoes once filled by Virgil Abloh at Louis Vuitton. His first collection debuts in Paris this week.`\
-https://nytimes.com/2023/06/18/style/louis-vuitton-menswear-pharrell-williams-louis-vuittons.html?searchResultPosition=2
+**Egypt Spars With Dutch Museum Over Ancient History**\
+`A new exhibit in the Netherlands explores how Black musicians have drawn inspiration and pride from the idea that ancient Egypt was an African culture. Egyptians say it distorts their history and identity.`\
+https://nytimes.com/2023/06/18/world/middleeast/egypt-spars-with-dutch-museum-over-ancient-history.html?searchResultPosition=2
 
-**Why It Seems Everything We Knew About the Global Economy Is No Longer True**\
-`While the world’s eyes were on the pandemic, the war in Ukraine and China, the paths to prosperity and shared interests have grown murkier.`\
-https://nytimes.com/2023/06/18/business/economy/global-economy-us-china.html?searchResultPosition=3
+**After a Winter Deluge, California Rivers Are Too Dangerous to Enjoy**\
+`Several counties have banned recreation on rivers that flow from the Sierra Nevada because of swift currents and fatalities.`\
+https://nytimes.com/2023/06/18/us/california-rivers-safety-currents.html?searchResultPosition=3
 
-**The ‘Fiercely Loyal’ Adams Adviser Agitating From Inside City Hall**\
-`Ingrid Lewis-Martin may be the second most powerful person in New York City government. But her views, leadership style and ethics have raised questions.`\
-https://nytimes.com/2023/06/18/nyregion/ingrid-lewis-martin-adams.html?searchResultPosition=4
+**He Went After Crypto Companies. Then Someone Came After Him.**\
+`Kyle Roche was a rising star in the field of cryptocurrency law — until his career imploded. Who orchestrated his downfall?`\
+https://nytimes.com/2023/06/18/business/kyle-roche-crypto-leaks-satoshi.html?searchResultPosition=4
 
-**How the Head of the Universal Hip Hop Museum Spends His Sundays**\
-`For Rocky Bucano, who fell for the music after buying a Salt-N-Pepa CD in 1986, his work in the Bronx “doesn’t feel like work.”`\
-https://nytimes.com/2023/06/18/nyregion/universal-hip-hop-museum-rocky-bucano.html?searchResultPosition=5
+**How Local Officials Seek Revenge on Their Hometown Newspapers**\
+`When coverage upsets them, towns and counties are revoking newspapers’ lucrative contracts to print public notices.`\
+https://nytimes.com/2023/06/18/business/newspapers-public-notices.html?searchResultPosition=5
 
-**‘I Saw a $20 Bill Float Through the Air Into the Intersection’**\
-`Mesmerized by flying cash, returning to a favorite haunt and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2023/06/18/nyregion/metropolitan-diary.html?searchResultPosition=6
+**With Everything Going Wrong, the Cardinals Still See Opportunity**\
+`St. Louis, a perennial playoff contender, is having its worst season in decades, forcing it into an unfamiliar position: underdogs.`\
+https://nytimes.com/2023/06/18/sports/baseball/oliver-marmol-cardinals.html?searchResultPosition=6
 
-**Ron DeSantis Is Young, Has Little Kids and Wants America to Know It**\
-`At 44, he is more than three decades younger than Donald Trump and Joe Biden. He is subtly playing up that age gap, even if his right-wing views leave him out of step with many younger voters.`\
-https://nytimes.com/2023/06/18/us/politics/ron-desantis-age.html?searchResultPosition=7
+**Black Experience, Past and Present, Made Haunting and Surreal**\
+`In his new story collection, “Fat Time and Other Stories,” Jeffery Renard Allen distorts reality to explore the lives of Black people.`\
+https://nytimes.com/2023/06/18/books/review/fat-time-and-other-stories-jeffery-renard-allen.html?searchResultPosition=7
 
-**Where a Photographer’s Curiosity Became a Two-Year Commitment**\
-`In 2021, Jonah Markowitz took an interest in the section of Kensington, Brooklyn, known as “Little Bangladesh.” He hasn’t stopped visiting.`\
-https://nytimes.com/2023/06/18/insider/where-a-photographers-curiosity-became-a-two-year-commitment.html?searchResultPosition=8
+**It’s Sunday at the U.S. Open, and the Leaders Are Tied**\
+`Los Angeles Country Club has sometimes seemed forgiving. But the final round could pose a formidable test for the contenders.`\
+https://nytimes.com/2023/06/18/sports/golf/us-open-final-round.html?searchResultPosition=8
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/06/18/crosswords/spelling-bee-forum.html?searchResultPosition=9
+**Where Did We Go Wrong in Afghanistan?**\
+`In “By All Means Available,” the veteran strategist Michael G. Vickers tallies achievements and missteps across the Cold War and the war on terror.`\
+https://nytimes.com/2023/06/18/books/review/by-all-means-available-michael-vickers.html?searchResultPosition=9
 
-**A Word That Became a Point of Pride**\
-`This June, we explored the evolution of the word “pride” and how it became connected with the modern gay rights movement.`\
-https://nytimes.com/2023/06/18/insider/pride-word-meaning.html?searchResultPosition=10
+**As Trump Battles Charges, Biden Focuses on the Business of Governing**\
+`The past week appears to provide a blueprint for the way the White House wants to handle the politically touchy subject of former President Donald J. Trump’s legal troubles.`\
+https://nytimes.com/2023/06/18/us/politics/biden-trump-contrast.html?searchResultPosition=10
 
