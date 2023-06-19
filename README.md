@@ -26,8 +26,8 @@ https://nytimes.com/2023/06/19/style/lube-sex-packaging-design.html?searchResult
 `The former prime minister may lose his pass to Parliament, another stinging blow from the fallout of lockdown-breaking parties during the pandemic.`\
 https://nytimes.com/2023/06/19/world/europe/boris-johnson-parliament-uk.html?searchResultPosition=7
 
-**At Least 4 Palestinians Killed After Israeli Arrest Raid in West Bank**\
-`A 15-year-old boy was among the dead and dozens more were wounded, according to Palestinian officials. Seven Israeli soldiers were also hurt and a helicopter was later deployed, the military said.`\
+**At Least 5 Palestinians Killed in Clashes After Israeli Raid in West Bank**\
+`A 15-year-old boy was among the dead and dozens more were wounded, Palestinian officials said. Seven Israeli security officers were hurt and a helicopter was later deployed, the military reported.`\
 https://nytimes.com/2023/06/19/world/middleeast/israel-west-bank-raid.html?searchResultPosition=8
 
 **Once Scorned, Far Right Secures Foothold in Spanish Cities**\
