@@ -7,7 +7,7 @@ https://nytimes.com/2023/06/19/us/politics/trump-classified-documents-evidence.h
 https://nytimes.com/2023/06/19/world/americas/uruguay-nazi-eagle-dove.html?searchResultPosition=2
 
 **Submersible Disappears in Area of Titanic Wreck**\
-`A search-and-rescue mission was underway after the craft went missing in the North Atlantic, the Coast Guard said. It was unclear how many people were onboard.`\
+`A search-and-rescue mission was underway after the craft went missing in the North Atlantic, the Coast Guard said. It was unclear how many people were on board.`\
 https://nytimes.com/2023/06/19/us/titanic-missing-submarine-tourist-tour.html?searchResultPosition=3
 
 **Red Rice and Freedom**\
