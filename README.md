@@ -16,7 +16,7 @@ https://nytimes.com/2023/06/19/world/europe/navalny-russia-new-trial.html?search
 
 **The Racial Wage Gap Is Shrinking**\
 `Though still enormous, the gap has shrunk over the past five years.`\
-https://nytimes.com/2023/06/19/briefing/juneteenth.html?searchResultPosition=5
+https://nytimes.com/2023/06/19/briefing/juneteenth-racial-wage-gap.html?searchResultPosition=5
 
 **This Little Amsterdam Improv Club Launched Big American Careers**\
 `Seth Meyers, Jordan Peele, Amber Ruffin and some of the Ted Lasso creators honed their comedy chops thousands of miles from the United States at Boom Chicago, which is turning 30 this year.`\
