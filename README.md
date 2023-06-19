@@ -6,9 +6,9 @@ https://nytimes.com/2023/06/19/us/politics/trump-classified-documents-evidence.h
 `President Luis Lacalle Pou said that he was canceling a project to melt down and recast a 700-pound relic of World War II after thousands signed a petition calling for it to be preserved in a museum.`\
 https://nytimes.com/2023/06/19/world/americas/uruguay-nazi-eagle-dove.html?searchResultPosition=2
 
-**Submersible Disappears in Area of Titanic Wreck**\
+**Vessel Disappears in Area of Titanic Wreck**\
 `A search-and-rescue mission was underway after the craft went missing in the North Atlantic, the Coast Guard said. It was unclear how many people were on board.`\
-https://nytimes.com/2023/06/19/us/titanic-missing-submarine-tourist-tour.html?searchResultPosition=3
+https://nytimes.com/2023/06/19/us/titanic-missing-sub-tourist-tour.html?searchResultPosition=3
 
 **Red Rice and Freedom**\
 `Red foods are traditional for Juneteenth, and we have loads of brightly hued inspiration for you.`\
