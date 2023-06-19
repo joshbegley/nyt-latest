@@ -1,40 +1,40 @@
+**DeSantis Raises Cash in California and Pokes at Governor**\
+`The Florida governor made a fund-raising stop in Sacramento not far from the home of Gov. Gavin Newsom. The two are in the midst of a mutually beneficial feud.`\
+https://nytimes.com/2023/06/19/us/desantis-newsom-california.html?searchResultPosition=1
+
 **Max Morath, Pianist Who Staged a One-Man Ragtime Revival, Dies at 96**\
 `A student of both music and history, he entertained audiences in the 1960s and beyond while educating them about a genre whose heyday had ended decades earlier.`\
-https://nytimes.com/2023/06/19/arts/music/max-morath-dead.html?searchResultPosition=1
+https://nytimes.com/2023/06/19/arts/music/max-morath-dead.html?searchResultPosition=2
 
 **Tropical Storm Bret Forms in the Atlantic**\
 `The storm formed Monday east of the Windward Islands, the National Hurricane Center said. It is forecast to strengthen into a hurricane by the end of the week.`\
-https://nytimes.com/article/tropical-storm-bret-hurricane.html?searchResultPosition=2
+https://nytimes.com/article/tropical-storm-bret-hurricane.html?searchResultPosition=3
 
 **Coast Guard Searching for Lost Submersible Near Site of Titanic**\
 `The U.S. Coast Guard launched a search and rescue mission after a submersible disappeared during a dive to the site of the Titanic.`\
-https://nytimes.com/video/us/100000008959351/titanic-submersible-coast-guard.html?searchResultPosition=3
+https://nytimes.com/video/us/100000008959351/titanic-submersible-coast-guard.html?searchResultPosition=4
 
 **‘Beowulf’ and Beyond: A Poet Who Embraced Translation**\
 `As seen in a new collection, “The Translations of Seamus Heaney,” the Nobel laureate was a prolific and skilled interpreter of other poets’ work.`\
-https://nytimes.com/2023/06/19/books/review/translations-of-seamus-heaney.html?searchResultPosition=4
+https://nytimes.com/2023/06/19/books/review/translations-of-seamus-heaney.html?searchResultPosition=5
 
 **Jeffrey Epstein Acted Like an Adviser to JPMorgan Executive**\
 `A court document shows that James E. Staley of JPMorgan Chase consulted with Mr. Epstein, a registered sex offender, on a wide variety of matters.`\
-https://nytimes.com/2023/06/19/business/jeffrey-epstein-jpmorgan.html?searchResultPosition=5
+https://nytimes.com/2023/06/19/business/jeffrey-epstein-jpmorgan.html?searchResultPosition=6
 
 **Your Tuesday Briefing: Xi and Blinken Meet**\
 `Also, New Zealand slipped into a recession.`\
-https://nytimes.com/2023/06/19/briefing/xi-blinken-beijing-asia.html?searchResultPosition=6
+https://nytimes.com/2023/06/19/briefing/xi-blinken-beijing-asia.html?searchResultPosition=7
 
 **Digging Up Old Graves to Make Room for Newly Fallen Soldiers**\
 `Funerals have taken on a grim routine in the Ukrainian city of Lviv, and as the fighting grows more intense during the counteroffensive, gravediggers say they are bracing for more bodies.`\
-https://nytimes.com/2023/06/19/world/europe/ukraine-soldier-funerals-lviv.html?searchResultPosition=7
+https://nytimes.com/2023/06/19/world/europe/ukraine-soldier-funerals-lviv.html?searchResultPosition=8
 
 **Machines and Morality**\
 `A conversation with an unhinged Bing made me rethink what gives humans moral value.`\
-https://nytimes.com/2023/06/19/special-series/chatgpt-and-morality.html?searchResultPosition=8
+https://nytimes.com/2023/06/19/special-series/chatgpt-and-morality.html?searchResultPosition=9
 
 **Chris Paul Found Out About the Suns’ Trade From His Son**\
 `Paul, a 12-time All-Star, was on a promotional tour for a book he wrote about his grandfather and his N.B.A. career.`\
-https://nytimes.com/2023/06/19/sports/basketball/chris-paul-phoenix-suns.html?searchResultPosition=9
-
-**At River to River, Dancers Tackle Weighty Topics With a Smile**\
-`The Lower Manhattan Cultural Council’s free summer arts festival presented several pieces, including “duel c” on Governors Island, that employed humor for serious purposes.`\
-https://nytimes.com/2023/06/19/arts/dance/river-to-river-festival.html?searchResultPosition=10
+https://nytimes.com/2023/06/19/sports/basketball/chris-paul-phoenix-suns.html?searchResultPosition=10
 
