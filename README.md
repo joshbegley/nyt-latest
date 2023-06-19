@@ -16,7 +16,7 @@ https://nytimes.com/2023/06/19/nyregion/james-ray-montclair-dead.html?searchResu
 
 **In a Flash, How Sasha Calle Became Supergirl**\
 `The actress, making her feature film debut, discusses auditioning for “The Flash” without being told the role, or movie she was up for.`\
-https://nytimes.com/2023/06/19/movies/in-a-flash-how-sasha-calle-became-supergirl.html?searchResultPosition=5
+https://nytimes.com/2023/06/19/movies/sasha-calle-the-flash-supergirl.html?searchResultPosition=5
 
 **Hawaii’s ‘Local Food,’ a Rich Mix That Isn’t Strictly Hawaiian**\
 `A blend of influences and ingredients from the many groups who have settled there, this cooking tradition is still sparking creativity, and some complications.`\
