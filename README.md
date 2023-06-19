@@ -1,4 +1,4 @@
-**Vessel Vanishes on a Dive to Titanic Wreck, Setting Off a Search**\
+**Vessel Vanishes on Dive to Titanic Wreck, Setting Off a Search**\
 `A spokesman for the U.S. Coast Guard said the five people on the submersible theoretically had 70 to 96 hours of oxygen before the situation became dire.`\
 https://nytimes.com/2023/06/19/world/canada/submersible-titanic-missing-search.html?searchResultPosition=1
 
