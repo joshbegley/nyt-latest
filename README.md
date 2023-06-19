@@ -2,7 +2,7 @@
 `In this Netflix documentary about a young girl who was held in a hospital and barred from seeing her family, we hear their side of the story.`\
 https://nytimes.com/2023/06/19/movies/take-care-of-maya-review-a-chronicle-of-a-familys-pain.html?searchResultPosition=1
 
-**Ex-Lawyer Who Killed Girlfriend Dies in Jail Days Before Sentencing**\
+**Ex-Lawyer Who Killed Girlfriend Dies in Custody Days Before Sentencing**\
 `James Ray III faced a life sentence after being convicted of murder. He was found unconscious in his New Jersey jail cell on Father’s Day.`\
 https://nytimes.com/2023/06/19/nyregion/james-ray-montclair-dead.html?searchResultPosition=2
 
