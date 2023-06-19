@@ -1,14 +1,14 @@
+**Creating a Path for More Black Economists**\
+`The dearth of Black economists has many causes, but mentorship is clearly part of the solution.`\
+https://nytimes.com/2023/06/19/opinion/black-economists.html?searchResultPosition=1
+
 **How Classified Evidence Could Complicate the Trump Documents Case**\
 `Prosecutors and defense lawyers appear to be preparing for a pretrial fight over showing sensitive evidence to the jury and the public.`\
-https://nytimes.com/2023/06/19/us/politics/trump-classified-documents-evidence.html?searchResultPosition=1
+https://nytimes.com/2023/06/19/us/politics/trump-classified-documents-evidence.html?searchResultPosition=2
 
 **Uruguay’s President Halts Plan to Turn Bronze Nazi Eagle Into Peace Dove**\
 `President Luis Lacalle Pou said that he was canceling a project to melt down and recast a 700-pound relic of World War II after thousands signed a petition calling for it to be preserved in a museum.`\
-https://nytimes.com/2023/06/19/world/americas/uruguay-nazi-eagle-dove.html?searchResultPosition=2
-
-**Vessel Disappears in Area of Titanic Wreck**\
-`A search-and-rescue mission was underway after the craft went missing in the North Atlantic, the Coast Guard said. It was unclear how many people were on board.`\
-https://nytimes.com/2023/06/19/us/titanic-missing-sub-tourist-tour.html?searchResultPosition=3
+https://nytimes.com/2023/06/19/world/americas/uruguay-nazi-eagle-dove.html?searchResultPosition=3
 
 **Red Rice and Freedom**\
 `Red foods are traditional for Juneteenth, and we have loads of brightly hued inspiration for you.`\
