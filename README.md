@@ -3,7 +3,7 @@
 https://nytimes.com/2023/06/19/business/economy/china-economy-stimulus.html?searchResultPosition=1
 
 **Pakistan Declares Day of Mourning for Migrant Ship Disaster Off Greece**\
-`Officials say more than 100 Pakistanis were among those killed when a fishing boat overloaded with migrants capsized in deep Mediterranean waters. The toll is expected to rise.`\
+`Officials say more than 100 Pakistanis were among those killed when a fishing boat overloaded with migrants capsized in deep Mediterranean waters. The death toll of the disaster is expected to rise.`\
 https://nytimes.com/2023/06/19/world/asia/pakistan-mourning-greece-migrant-ship.html?searchResultPosition=2
 
 **‘Take Care of Maya’ Review: A Chronicle of a Family’s Pain**\
