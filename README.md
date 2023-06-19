@@ -35,6 +35,6 @@ https://nytimes.com/2023/06/19/arts/amsterdam-boom-chicago-comedy-club.html?sear
 https://nytimes.com/2023/06/19/us/black-rodeo-oregon-juneteenth.html?searchResultPosition=9
 
 **The Tropicana, a Relic on the Las Vegas Strip, Could Be Demolished**\
-`Built in 1957, the Tropicana Las Vegas held the city’s longest-running cabaret and was synonymous with its swinging midcentury glory. It could be torn down to make way for a baseball stadium.`\
+`The Tropicana Las Vegas, built in 1957, held the city’s longest-running cabaret and was synonymous with its swinging midcentury glory. It could be torn down to make way for a baseball stadium.`\
 https://nytimes.com/2023/06/19/us/vegas-tropicana-casino-closing.html?searchResultPosition=10
 
