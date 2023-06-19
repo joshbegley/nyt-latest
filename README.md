@@ -2,8 +2,8 @@
 `Top political leaders said the botched May 31 launch, which was meant to put a military spy satellite in orbit, had been “irresponsibly” planned.`\
 https://nytimes.com/2023/06/18/world/asia/north-korea-satellite-launch.html?searchResultPosition=1
 
-**In China, Blinken Holds Talks to Restart High-Level Diplomacy**\
-`The talks between Antony J. Blinken, the secretary of state, and Wang Yi, Beijing’s top foreign policy official, were a prelude to a likely meeting with China’s leader, Xi Jinping.`\
+**In China, Blinken Holds ‘Candid’ Talks to Restart High-Level Diplomacy**\
+`The talks between Antony J. Blinken, the secretary of state, and Wang Yi, Beijing’s top foreign policy official, were a prelude to an expected meeting with China’s leader, Xi Jinping.`\
 https://nytimes.com/2023/06/18/world/asia/blinken-china-xi-diplomacy.html?searchResultPosition=2
 
 **Wyndham Clark Captures the U.S. Open**\
