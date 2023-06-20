@@ -8,7 +8,7 @@ https://nytimes.com/2023/06/20/us/missing-titanic-submersible-search.html?search
 
 **Inside the Titan: Quiet and Cramped, With a Single Porthole**\
 `“You just drop like a stone for two and a half hours,” said a writer for “The Simpsons” who made the trip to the Titanic wreckage.`\
-https://nytimes.com/2023/06/20/us/inside-titan-submersible.html?searchResultPosition=3
+https://nytimes.com/2023/06/20/us/missing-titanic-submersible-inside.html?searchResultPosition=3
 
 **Titan Pilot Is a Booster of Deep-Sea Tourism**\
 `Stockton Rush, the chief executive of OceanGate Expeditions, is one of the five occupants of the missing submersible.`\
