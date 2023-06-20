@@ -35,6 +35,6 @@ https://nytimes.com/2023/06/20/well/move/tai-chi-workout.html?searchResultPositi
 https://nytimes.com/2023/06/20/books/review/k-patrick-mrs-s.html?searchResultPosition=9
 
 **Friends, Tourists, Countrymen, See Where Julius Caesar Was Killed**\
-`The site where the emperor was assassinated by a group of senators in 44 B.C., nestled among four ancient temples, has been opened to the public for the first time in a century.`\
+`The site where Caesar was assassinated by a group of senators in 44 B.C., nestled among four ancient temples, has been opened to the public for the first time in a century.`\
 https://nytimes.com/2023/06/20/world/europe/rome-julius-caesar-assassination.html?searchResultPosition=10
 
