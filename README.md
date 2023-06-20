@@ -2,7 +2,7 @@
 `The judge, Aileen M. Cannon, set an aggressive schedule for moving the case forward, though the proceedings are likely to be delayed by pretrial clashes.`\
 https://nytimes.com/2023/06/20/us/politics/trump-classified-documents-trial-date.html?searchResultPosition=1
 
-**Hunter Biden to Plead Guilty on Misdemeanor Tax Charges**\
+**The deal likely resolves Hunter Biden’s federal investigation without prison time.**\
 `Under a deal with the Justice Department, the president’s son agreed to probation for filing his taxes late, and he can avoid a charge that he lied about his drug use when he purchased a handgun.`\
 https://nytimes.com/2023/06/20/us/politics/hunter-biden-plea-deal.html?searchResultPosition=2
 
