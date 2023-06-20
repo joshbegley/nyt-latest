@@ -34,7 +34,7 @@ https://nytimes.com/2023/06/20/world/asia/china-blinken-xi-economy.html?searchRe
 `Shannon Maldonado quit her job in fashion design to open a home-goods store, Yowie. Now she’s opening a Yowie hotel where nearly all the décor is for sale.`\
 https://nytimes.com/2023/06/20/style/yowie-hotel-philadelphia-shannon-maldonado.html?searchResultPosition=9
 
-**Federal Policy on Homelessness Becomes New Target of the Right**\
-`The approach known as Housing First has long enjoyed bipartisan support. But conservatives are pushing efforts to replace it with programs that put more emphasis on sobriety and employment.`\
-https://nytimes.com/2023/06/20/us/politics/federal-policy-on-homelessness-becomes-new-target-of-the-right.html?searchResultPosition=10
+**Collective Force of Head Hits, Not Just the Number of Them, Increases Odds of C.T.E.**\
+`The largest study of chronic traumatic encephalopathy to date found that the cumulative force of head hits absorbed by players in their careers is the best predictor of future brain disease.`\
+https://nytimes.com/2023/06/20/sports/football/cte-study-concussions-brain-tackle.html?searchResultPosition=10
 
