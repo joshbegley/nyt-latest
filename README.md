@@ -15,7 +15,7 @@ https://nytimes.com/2023/06/20/sports/soccer/us-womens-world-cup-roster.html?sea
 https://nytimes.com/2023/06/20/sports/baseball/roger-craig-dodgers-mets-giants.html?searchResultPosition=4
 
 **The Black-Owned Restaurants of Bed-Stuy**\
-`Watching in real-time as a neighborhood changes while trying to cling to its identity.`\
+`Watching in real time as a neighborhood changes while trying to cling to its identity.`\
 https://nytimes.com/2023/06/20/dining/the-black-owned-restaurants-of-bed-stuy.html?searchResultPosition=5
 
 **Restaurant Review: Okdongsik Serves Two Things, and Both Are Outstanding**\
