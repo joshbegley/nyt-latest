@@ -20,7 +20,7 @@ https://nytimes.com/2023/06/20/sports/baseball/roger-craig-dodgers-mets-giants.h
 
 **The Black-Owned Restaurants of Bed-Stuy**\
 `Watching in real time as a neighborhood changes while trying to cling to its identity.`\
-https://nytimes.com/2023/06/20/dining/the-black-owned-restaurants-of-bed-stuy.html?searchResultPosition=6
+https://nytimes.com/2023/06/20/dining/black-owned-restaurants-bed-stuy.html?searchResultPosition=6
 
 **Restaurant Review: Okdongsik Serves Two Things, and Both Are Outstanding**\
 `The tiny counter from one of South Korea’s star chefs is a near-replica of its counterpart in Seoul.`\
