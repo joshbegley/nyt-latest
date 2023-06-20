@@ -27,7 +27,7 @@ https://nytimes.com/2023/06/20/world/paris-subway.html?searchResultPosition=6
 https://nytimes.com/2023/06/20/us/california-homelessness-study.html?searchResultPosition=7
 
 **Going Back in Time, M.L.B. Will Play a Game at Rickwood Field**\
-`The Birmingham, Ala. stadium was home to Willie Mays in his Negro leagues days. It will host a game between Mays’s Giants and the Cardinals in 2024.`\
+`The Birmingham, Ala., stadium was home to Willie Mays in his Negro leagues days. It will host a game between Mays’s Giants and the Cardinals in 2024.`\
 https://nytimes.com/2023/06/20/sports/baseball/rickwood-field-giants-cardinals.html?searchResultPosition=8
 
 **Improper Covid Aid Flowed to Fishery Businesses, Official Finds**\
