@@ -27,7 +27,7 @@ https://nytimes.com/2023/06/20/us/nargeolet-titanic-submarine.html?searchResultP
 https://nytimes.com/2023/06/20/world/europe/eu-china-economic-strategy.html?searchResultPosition=7
 
 **We Are Beauty; We Are Dignity**\
-`The clothes we wear signals who we are, and how we want to be perceived.`\
+`Our clothing signals who we are, and how we want to be perceived.`\
 https://nytimes.com/2023/06/20/special-series/willy-chavarria-fashion-identity.html?searchResultPosition=8
 
 **Judge in Trump Documents Case Sets Tentative Trial Date as Soon as August**\
