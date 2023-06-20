@@ -1,10 +1,10 @@
+**We Are Beauty; We Are Dignity**\
+`The clothes we wear signals who we are, and how we want to be perceived.`\
+https://nytimes.com/2023/06/20/special-series/willy-chavarria-fashion-identity.html?searchResultPosition=1
+
 **Judge in Trump Documents Case Sets Tentative Trial Date as Soon as August**\
 `The judge, Aileen M. Cannon, set an aggressive schedule for moving the case forward, though the proceedings are likely to be delayed by pretrial clashes.`\
-https://nytimes.com/2023/06/20/us/politics/trump-classified-documents-trial-date.html?searchResultPosition=1
-
-**The deal likely resolves Hunter Biden’s federal investigation without prison time.**\
-`Under a deal with the Justice Department, the president’s son agreed to probation for filing his taxes late, and he can avoid a charge that he lied about his drug use when he purchased a handgun.`\
-https://nytimes.com/2023/06/20/us/politics/hunter-biden-plea-deal.html?searchResultPosition=2
+https://nytimes.com/2023/06/20/us/politics/trump-classified-documents-trial-date.html?searchResultPosition=2
 
 **The U.K. moves to use frozen Russian assets to help Ukraine rebuild.**\
 `The government’s announcement follows a pledge made by Group of 7 nations at their annual gathering last month to freeze Russian assets until Moscow pays for the damage done in Ukraine.`\
