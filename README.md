@@ -30,11 +30,11 @@ https://nytimes.com/2023/06/20/podcasts/headlines-nyt-audio-app.html?searchResul
 `Xi Jinping and nationalistic Chinese see recent U.S. actions as an effort to contain another superpower rather than compete with it — and they’re pushing back.`\
 https://nytimes.com/2023/06/20/world/asia/china-blinken-xi-economy.html?searchResultPosition=8
 
-**Federal Policy on Homelessness Becomes New Target of the Right**\
-`The approach known as Housing First has long enjoyed bipartisan support. But conservatives are pushing efforts to replace it with programs that put more emphasis on sobriety and employment.`\
-https://nytimes.com/2023/06/20/us/politics/federal-policy-on-homelessness-becomes-new-target-of-the-right.html?searchResultPosition=9
-
 **The Hotel That Started as a Gift Shop**\
 `Shannon Maldonado quit her job in fashion design to open a home-goods store, Yowie. Now she’s opening a Yowie hotel where nearly all the décor is for sale.`\
-https://nytimes.com/2023/06/20/style/yowie-hotel-philadelphia-shannon-maldonado.html?searchResultPosition=10
+https://nytimes.com/2023/06/20/style/yowie-hotel-philadelphia-shannon-maldonado.html?searchResultPosition=9
+
+**Federal Policy on Homelessness Becomes New Target of the Right**\
+`The approach known as Housing First has long enjoyed bipartisan support. But conservatives are pushing efforts to replace it with programs that put more emphasis on sobriety and employment.`\
+https://nytimes.com/2023/06/20/us/politics/federal-policy-on-homelessness-becomes-new-target-of-the-right.html?searchResultPosition=10
 
