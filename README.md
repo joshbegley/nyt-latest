@@ -1,5 +1,5 @@
-**What Business Learned From Blinken’s Trip to China**\
-`The secretary of state’s visit raised hopes that the world’s two biggest economies might stabilize relations, but the biggest challenges were not unresolved.`\
+**Business Lessons From Blinken’s Trip to China**\
+`The secretary of state’s talks with Xi Jinping raised hopes that the world’s two biggest economies might stabilize relations, but the big challenges were not resolved.`\
 https://nytimes.com/2023/06/20/business/dealbook/blinken-china-beijing-business.html?searchResultPosition=1
 
 **Sex, Identity and the Eternal Anxieties of Growing Up**\
