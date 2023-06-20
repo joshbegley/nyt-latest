@@ -1,5 +1,5 @@
-**Titan Pilot Was a Booster of Deep-Sea Tourism**\
-`Stockton Rush, the chief executive of OceanGate Expeditions, was one of the five occupants of the missing submersible.`\
+**Titan Pilot Is a Booster of Deep-Sea Tourism**\
+`Stockton Rush, the chief executive of OceanGate Expeditions, is one of the five occupants of the missing submersible.`\
 https://nytimes.com/2023/06/20/us/titan-pilot-stockton-rush.html?searchResultPosition=1
 
 **Take Bobby Kennedy Jr. Seriously, Not Literally**\
