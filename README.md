@@ -1,4 +1,4 @@
-**Alibaba Says Its Chairman, Daniel Zhang, Will Leave Post in September**\
+**Alibaba Says Its Chairman, Daniel Zhang, Will Step Down in September**\
 `In a shake-up, Joseph Tsai, an Alibaba veteran and executive vice chairman, will take over as chairman. Another Alibaba executive, Eddie Wu, will become C.E.O.`\
 https://nytimes.com/2023/06/20/business/alibaba-daniel-zhang-joseph-tsai.html?searchResultPosition=1
 
