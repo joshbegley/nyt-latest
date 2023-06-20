@@ -1,5 +1,5 @@
-**4 Die in Fire That Began in E-Bike Store Near Chinatown**\
-`The blaze, which left two others in critical condition, started on the first floor of a building at 80 Madison St., shortly after midnight.`\
+**4 Die in Fire That Began at E-Bike Shop Near Chinatown**\
+`The blaze, which left two others in critical condition, began on the first floor of a building at 80 Madison Street shortly after midnight.`\
 https://nytimes.com/2023/06/20/nyregion/nyc-chinatown-fire.html?searchResultPosition=1
 
 **Republicans Against Inequality**\
