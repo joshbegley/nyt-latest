@@ -1,40 +1,40 @@
-**Dobbs Could Mark the End of the American Bargain**\
-`Less for more. That’s the fundamental bargain, as it’s been construed since Roe v. Wade and the Reagan Revolution.`\
-https://nytimes.com/2023/06/21/opinion/american-freedom-after-dobbs.html?searchResultPosition=1
+**In Hosting Modi, Biden Pushes Democracy Concerns to the Background**\
+`The president who declared “the battle between democracy and autocracy” to be the defining struggle of his time has concluded that he needs to accept some imperfect but important friends.`\
+https://nytimes.com/2023/06/21/us/politics/biden-modi-visit.html?searchResultPosition=1
 
-**$450,000 Homes in Oklahoma, Missouri and Rhode Island**\
-`A Craftsman bungalow in Oklahoma City, a Tudor Revival house in St. Louis and a Colonial Revival cottage in Cranston.`\
-https://nytimes.com/2023/06/21/realestate/450000-dollar-homes-oklahoma-missouri-rhode-island.html?searchResultPosition=2
+**Italian Men’s Wear Does a Power Edit**\
+`Lauren showed psychedelic tuxedos, Armani and Zegna stripped things down and Chris Pine made the rounds during a potent fashion season in Florence and Milan.`\
+https://nytimes.com/2023/06/21/style/italian-mens-wear.html?searchResultPosition=2
 
-**These Fish Tacos Couldn’t Be More Brilliant**\
-`Golden pineapple and a deep-red marinade make this dish pop with color and flavor.`\
-https://nytimes.com/2023/06/21/magazine/fish-tacos-recipe.html?searchResultPosition=3
+**Glastonbury, Conn.: A Friendly Community With Grand Historic Homes**\
+`The Hartford suburb draws residents with its bustling downtown, plentiful activities and long history (including a ferry established in 1655).`\
+https://nytimes.com/2023/06/21/realestate/glastonbury-connecticut.html?searchResultPosition=3
 
-**One Man’s Inspiring Journey to Lift His Country Out of Poverty**\
-`We’re told education can end poverty. The truth is more complicated.`\
-https://nytimes.com/video/opinion/100000008952486/one-mans-inspiring-journey-to-lift-his-country-out-of-poverty.html?searchResultPosition=4
+**Odesa Was Ready to Reclaim Its Beaches. Then a Dam Broke.**\
+`Wartime fears closed the Ukrainian city’s famed beaches last year, but crowds were starting to return — until the destruction of a faraway dam dumped debris and dangers into the Black Sea.`\
+https://nytimes.com/2023/06/21/world/europe/ukraine-odesa-mines-beaches-dam.html?searchResultPosition=4
 
-**How E-Bike Battery Fires Became a Deadly Crisis in New York City**\
-`City leaders are racing to regulate battery-powered mobility devices, which have been the source of over 100 fires so far this year.`\
-https://nytimes.com/2023/06/21/nyregion/e-bike-lithium-battery-fires-nyc.html?searchResultPosition=5
+**Affirmative Action, From Those Who Lived It**\
+`Black and Hispanic college graduates, whose lives were directly shaped by race-conscious college admissions, have complicated thoughts about the expected Supreme Court decision.`\
+https://nytimes.com/2023/06/21/us/affirmative-action-student-experiences.html?searchResultPosition=5
 
-**Rents for 2 Million New Yorkers Set to Rise Again This Year**\
-`Rent-stabilized apartments have enabled many people to stay in a city that grows ever more expensive. But for the second year in a row, rents are set to rise.`\
-https://nytimes.com/2023/06/21/nyregion/rent-stabilized-apartment-homes-rise.html?searchResultPosition=6
+**So Your Plant Is Sick? Here’s How to Get a Diagnosis.**\
+`Welcome to the ‘disease garden’: It’s not pretty, but it’s full of answers.`\
+https://nytimes.com/2023/06/21/realestate/sick-dying-plant-treatment.html?searchResultPosition=6
 
-**Our Plan to Attract a Flock of Birders**\
-`In its first-ever citizen science project, The Times is encouraging readers to go birding and help researchers gather data on the avian world.`\
-https://nytimes.com/2023/06/21/insider/our-plan-to-attract-a-flock-of-birders.html?searchResultPosition=7
+**Senators Have Perfected the Art of Obstruction**\
+`What’s new about the latest version of these Senate holds is the breadth and long-term nature of their effects.`\
+https://nytimes.com/2023/06/21/opinion/senate-nomination-holds.html?searchResultPosition=7
 
-**Property Taxes Could Be Cut in Half for Most Older N.J. Homeowners**\
-`The budget deal is expected to result in taxpayer savings of as much as $6,500 a year, representing one of the largest tax cuts in New Jersey history.`\
-https://nytimes.com/2023/06/21/nyregion/property-tax-cut-new-jersey.html?searchResultPosition=8
+**Going Bankrupt in the Name of Efficiency**\
+`Two new books offer harsh assessments of private equity firms that specializes in buying up companies only to saddle them with debt and squeeze them for profits.`\
+https://nytimes.com/2023/06/21/books/review/plunder-brendan-ballou-these-are-the-plunderers-gretchen-morgenson-joshua-rosner.html?searchResultPosition=8
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/06/21/crosswords/wordle-review-answer-732.html?searchResultPosition=9
+**Is the Inflation Battle Won? Not Yet.**\
+`Inflation has come down from its 2022 heights, but economists are worried about its stubbornness.`\
+https://nytimes.com/2023/06/21/business/economy/is-the-inflation-battle-won-not-yet.html?searchResultPosition=9
 
-**N.Y. Lawmakers Confront Hot-Button Issues in Rare Return to Albany**\
-`The State Assembly reconvened on Tuesday to consider contentious bills on immigration, abortion, criminal justice and climate change.`\
-https://nytimes.com/2023/06/21/nyregion/assembly-convictions-ny.html?searchResultPosition=10
+**Living In ... Glastonbury, Conn.**\
+`The Hartford suburb draws residents with its bustling downtown, plentiful activities and long history (including a ferry established in 1655).`\
+https://nytimes.com/slideshow/2023/06/21/realestate/living-in-glastonbury-conn.html?searchResultPosition=10
 
