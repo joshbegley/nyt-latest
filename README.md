@@ -2,7 +2,7 @@
 `A Royal Canadian Air Force aircraft searched the surface of the Atlantic Ocean and used sub-surface acoustic detection capabilities to look for the missing submersible.`\
 https://nytimes.com/video/world/americas/100000008962826/titanic-sub-canada.html?searchResultPosition=1
 
-**Alito’s Reply in Rival Paper Surprises ProPublica**\
+**Alito’s Reply in a Rival Publication Surprises ProPublica**\
 `The Wall Street Journal made the unusual decision to let Justice Samuel A. Alito Jr. pre-empt ProPublica’s article about him in its opinion pages.`\
 https://nytimes.com/2023/06/21/business/media/alito-propublica-wall-street-journal.html?searchResultPosition=2
 
