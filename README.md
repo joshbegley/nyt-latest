@@ -15,7 +15,7 @@ https://nytimes.com/2023/06/21/opinion/religion-dechurching.html?searchResultPos
 https://nytimes.com/article/andrew-tate-romania-charges.html?searchResultPosition=4
 
 **Business Leaders Join Biden in Welcoming Modi to the U.S.**\
-`India’s fast-growing economy is drawing American business giants, even as the country faces scrutiny over ties to Russia and limits on political freedoms.`\
+`India’s fast-growing economy is drawing American corporate giants, even as the country faces scrutiny over ties to Russia and limits on political freedoms.`\
 https://nytimes.com/2023/06/21/business/dealbook/business-leaders-join-biden-in-welcoming-modi-to-the-us.html?searchResultPosition=5
 
 **Waiting for the Justices**\
