@@ -26,7 +26,7 @@ https://nytimes.com/2023/06/21/us/politics/airman-jack-teixeira-leaks-case.html?
 `John H. Durham, the Trump-era special counsel, criticized the F.B.I. during a six-hour hearing before the House Judiciary Committee.`\
 https://nytimes.com/2023/06/21/us/politics/john-durham-special-counsel-russia.html?searchResultPosition=7
 
-**This Boot Camp Is for N.B.A. Hot Takes**\
+**The Boot Camp for N.B.A. Hot Takes and Analysis**\
 `A two-day camp trains current and former basketball players in the lucrative art of broadcasting, podcasting and throwing verbal bombs on camera.`\
 https://nytimes.com/2023/06/21/sports/basketball/nba-broadcasting-camp.html?searchResultPosition=8
 
