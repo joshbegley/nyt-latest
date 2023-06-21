@@ -14,7 +14,7 @@ https://nytimes.com/2023/06/21/world/asia/pakistan-greek-migrants-ship.html?sear
 `Jason McDonald became a glassblower knowing that throughout history, there’s little to no record of Black glassblowers. He’d like to change that.`\
 https://nytimes.com/2023/06/21/style/solange-knowles-jason-mcdonald-glass.html?searchResultPosition=4
 
-**At the U.N., Indian Prime Minister Trumpets the Benefits of Yoga**\
+**At U.N., Narendra Modi Celebrates Yoga, and Joins In on a Pose**\
 `Prime Minister Narendra Modi has cracked down on dissent in India. In New York on Wednesday, he stressed inclusivity.`\
 https://nytimes.com/2023/06/21/nyregion/narendra-modi-yoga-united-nations.html?searchResultPosition=5
 
