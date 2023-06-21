@@ -11,7 +11,7 @@ https://nytimes.com/2023/06/21/us/politics/secret-videos-guantanamo-prison.html?
 https://nytimes.com/2023/06/21/science/alvin-submersible-ocean.html?searchResultPosition=3
 
 **House Censures Adam Schiff Over His Role Investigating Trump**\
-`The move by the Republican-led House was the first in what could be a series of votes seeking to punish those they have deemed enemies of the party.`\
+`The move by the G.O.P.-led House was the first in what could be a series of votes seeking to punish those whom Republicans have deemed enemies of the party.`\
 https://nytimes.com/2023/06/21/us/politics/house-censures-adam-schiff.html?searchResultPosition=4
 
 **Oscars’ Best Picture Hopefuls Must Spend More Time in Theaters**\
