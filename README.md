@@ -1,40 +1,40 @@
+**Gooped at a Gwyneth Paltrow Drag Show**\
+`Partygoers donned glitter and gowns in homage to the actress and jade egg enthusiast at a party in Brooklyn.`\
+https://nytimes.com/2023/06/21/style/gywneth-paltrow-goop-drag-show.html?searchResultPosition=1
+
+**A Quick and Easy Skillet Chocolate Chip Cookie**\
+`Treat yourself, too, to 7Up sheet cake and sweet cream cold foam to marble into your iced coffee.`\
+https://nytimes.com/2023/06/21/dining/a-quick-and-easy-skillet-chocolate-chip-cookie.html?searchResultPosition=2
+
+**The war is worsening the effects of climate change, Kerry says.**\
+`The forced movement of people, the destruction of agricultural land and the increased instability are being felt not just in Ukraine, but much further afield, he said in an interview.`\
+https://nytimes.com/2023/06/21/world/europe/ukraine-war-climate-change-john-kerry.html?searchResultPosition=3
+
 **Hidden in a Mini-Mall in Flushing, a Home for Art**\
 `In a Queens neighborhood with a diverse community of East Asian immigrants, an unlikely exhibition in an unexpected place offers a sense of belonging.`\
-https://nytimes.com/2023/06/21/arts/design/mini-mall-flushing-art-asia.html?searchResultPosition=1
+https://nytimes.com/2023/06/21/arts/design/mini-mall-flushing-art-asia.html?searchResultPosition=4
 
 **F.T.C. Sues Amazon for Inducing Users to Subscribe to Prime**\
 `The lawsuit was the first time that the Federal Trade Commission under chair Lina Khan has taken Amazon to court.`\
-https://nytimes.com/2023/06/21/technology/ftc-amazon-prime-lawsuit.html?searchResultPosition=2
+https://nytimes.com/2023/06/21/technology/ftc-amazon-prime-lawsuit.html?searchResultPosition=5
 
 **‘Dear England’ Review: When Soccer Success Becomes a Moral Victory**\
 `A new James Graham play about the soccer coach Gareth Southgate is a lively romp, but its core message about embracing male vulnerability feels soppy.`\
-https://nytimes.com/2023/06/21/theater/dear-england-review-national-theater.html?searchResultPosition=3
+https://nytimes.com/2023/06/21/theater/dear-england-review-national-theater.html?searchResultPosition=6
 
 **Maxine Waters Proposes Billions to Expand Low-Income Housing**\
 `Nearly one in three Americans living on the street and in shelters are in the representative’s home state of California.`\
-https://nytimes.com/2023/06/21/realestate/california-housing-laws-maxine-waters.html?searchResultPosition=4
+https://nytimes.com/2023/06/21/realestate/california-housing-laws-maxine-waters.html?searchResultPosition=7
 
 **What Horror Means to Me**\
 `Growing up in 1970s Argentina, fear was everywhere. It was also essential.`\
-https://nytimes.com/2023/06/21/special-series/mariana-enriquez-horror-literature-identity.html?searchResultPosition=5
+https://nytimes.com/2023/06/21/special-series/mariana-enriquez-horror-literature-identity.html?searchResultPosition=8
 
 **In Iran, Some Are Chasing the Last Drops of Water**\
 `Lawmakers are warning that one province will run out within three months, and the shortage is inflaming tensions with the country’s neighbors.`\
-https://nytimes.com/2023/06/21/world/middleeast/iran-drought-water-climate.html?searchResultPosition=6
+https://nytimes.com/2023/06/21/world/middleeast/iran-drought-water-climate.html?searchResultPosition=9
 
 **SoftBank’s Masayoshi Son Shifts to ‘Offense’ in A.I. Race**\
 `After lying low last year and “crying for days,” the founder and chief executive of the tech conglomerate said that he was excited again about the future.`\
-https://nytimes.com/2023/06/21/business/dealbook/softbanks-masayoshi-son-ai.html?searchResultPosition=7
-
-**Attack by Palestinian Gunmen Prompts Building Plan and Settler Violence**\
-`In response to a deadly shooting, Israeli arsonists set fires in Palestinian villages and the Israeli government advanced plans for new settlement homes in the occupied West Bank.`\
-https://nytimes.com/2023/06/21/world/middleeast/west-bank-settlement-palestinian-israeli-violence.html?searchResultPosition=8
-
-**In Search Of The New Israel**\
-`In a land where ancient meets avant-garde and tradition gives birth to innovation, visitors can discover venerable sights amid the freshest of local tastes and sensations.`\
-https://nytimes.com/paidpost/israel-ministry-of-tourism/in-search-of-the-new-israel.html?searchResultPosition=9
-
-**Why California Transit Agencies Are Rebounding at Such Different Rates**\
-`Who rides public transportation has shifted since the onset of the coronavirus pandemic.`\
-https://nytimes.com/2023/06/21/us/california-transit-agencies.html?searchResultPosition=10
+https://nytimes.com/2023/06/21/business/dealbook/softbanks-masayoshi-son-ai.html?searchResultPosition=10
 
