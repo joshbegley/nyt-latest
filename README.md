@@ -1,4 +1,4 @@
-**A Britney Spears Jukebox Musical Hopes For #SeeBritney Energy**\
+**A Britney Spears Jukebox Musical Hopes for #SeeBritney Energy**\
 `“Once Upon a One More Time” is bringing hits like “Toxic” and “Circus” to Broadway. Will Spears’s fiercely protective base embrace it?`\
 https://nytimes.com/2023/06/21/theater/britney-spears-once-upon-a-one-more-time.html?searchResultPosition=1
 
