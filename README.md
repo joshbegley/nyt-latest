@@ -31,7 +31,7 @@ https://nytimes.com/2023/06/21/business/media/daniel-ellsberg-pentagon-papers-ny
 https://nytimes.com/2023/06/21/world/europe/spain-migrants-canary-islands.html?searchResultPosition=8
 
 **How a Scientific Fraud Reinvented Himself**\
-`The reinvention of Hwang Woo-suk.`\
+`The rehabilitation of Hwang Woo-suk speaks volumes.`\
 https://nytimes.com/2023/06/21/opinion/cloning-science-fraud.html?searchResultPosition=9
 
 **Learning About Freedom at a Black Rodeo**\
