@@ -27,7 +27,7 @@ https://nytimes.com/2023/06/21/nyregion/assembly-convictions-ny.html?searchResul
 https://nytimes.com/2023/06/21/crosswords/spelling-bee-forum.html?searchResultPosition=7
 
 **U.K. Inflation Remains Stuck at 8.7 Percent**\
-`The rate, which had been expected to edge lower in May, shows that Britain’s cost-of-living persists, and is likely to prompt the Bank of England to raise interest rates again.`\
+`The rate, which had been expected to edge lower in May, shows that Britain’s cost-of-living crisis persists, and is likely to prompt the Bank of England to raise interest rates again.`\
 https://nytimes.com/2023/06/21/business/uk-inflation-may.html?searchResultPosition=8
 
 **Why Is Narendra Modi So Popular? Tune In to Find Out.**\
