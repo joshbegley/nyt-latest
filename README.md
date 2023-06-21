@@ -4,7 +4,7 @@ https://nytimes.com/2023/06/21/style/gywneth-paltrow-goop-drag-show.html?searchR
 
 **A Quick and Easy Skillet Chocolate Chip Cookie**\
 `Treat yourself, too, to 7Up sheet cake and sweet cream cold foam to marble into your iced coffee.`\
-https://nytimes.com/2023/06/21/dining/a-quick-and-easy-skillet-chocolate-chip-cookie.html?searchResultPosition=2
+https://nytimes.com/2023/06/21/dining/easy-skillet-chocolate-chip-cookie.html?searchResultPosition=2
 
 **The war is worsening the effects of climate change, Kerry says.**\
 `The forced movement of people, the destruction of agricultural land and the increased instability are being felt in Ukraine and beyond, said John Kerry, President Biden’s climate envoy.`\
