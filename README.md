@@ -1,6 +1,6 @@
 **Student Loan Pause Is Ending, With Consequences for Economy**\
 `Three years of relief from payments on $1.6 trillion in student debt allowed for other borrowing and spending — and will shift into reverse.`\
-https://nytimes.com/2023/06/21/business/economy/student-debt-economy.html?searchResultPosition=1
+https://nytimes.com/2023/06/21/business/economy/student-loan-payments-debt-economy.html?searchResultPosition=1
 
 **Gooped at a Gwyneth Paltrow Drag Show**\
 `Partygoers donned glitter and gowns in homage to the actress and jade egg enthusiast at a party in Brooklyn.`\
