@@ -30,7 +30,7 @@ https://nytimes.com/2023/06/21/realestate/glastonbury-connecticut.html?searchRes
 `Wartime fears closed the Ukrainian city’s famed beaches last year, but crowds were starting to return — until the destruction of a faraway dam dumped debris and dangers into the Black Sea.`\
 https://nytimes.com/2023/06/21/world/europe/ukraine-odesa-mines-beaches-dam.html?searchResultPosition=8
 
-**Affirmative Action, From Those Who Lived It**\
+**How It Feels to Have Your Life Changed By Affirmative Action**\
 `Black and Hispanic college graduates, whose lives were directly shaped by race-conscious college admissions, have complicated thoughts about the expected Supreme Court decision.`\
 https://nytimes.com/2023/06/21/us/affirmative-action-student-experiences.html?searchResultPosition=9
 
