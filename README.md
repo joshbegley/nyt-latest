@@ -1,5 +1,5 @@
-**Powell Expects High Inflation to Remain ‘Persistent’**\
-`Jerome H. Powell, the Fed chair, told House lawmakers that while inflation has moderated some since last year, inflation remains high and is far from stabilizing.`\
-https://nytimes.com/video/us/politics/100000008962088/powell-house-inflation.html?searchResultPosition=1
+**Kansas Man Accused of Threatening to Attack Nashville Pride Event**\
+`Joshua Hensley, 25, wrote on Facebook that he planned to make pressure-cooker bombs and to “commit a mass shooting” at Nashville Pride this weekend, prosecutors said.`\
+https://nytimes.com/2023/06/21/us/nashville-pride-attack-threats.html?searchResultPosition=1
 
-**SUMMER MOVIES 2023**\
+**‘The Flash’: What to Know **\
