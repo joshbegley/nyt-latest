@@ -24,7 +24,7 @@ https://nytimes.com/2023/06/21/world/europe/paris-explosion.html?searchResultPos
 
 **Biggest Threat to Submersible’s Passengers May Now Be Dwindling Oxygen**\
 `There may be less than a day’s worth of breathable air left in the Titan, limiting the window for possible rescue of the five people on board.`\
-https://nytimes.com/2023/06/21/us/submersibles-passengers-oxygen.html?searchResultPosition=7
+https://nytimes.com/2023/06/21/us/submersible-passengers-oxygen.html?searchResultPosition=7
 
 **‘Good Vibrations’ Review: The Saving Power of Punk**\
 `In a big-hearted musical about a 1970s Belfast record store owner and the punk movement he nurtured, music is the real hero.`\
