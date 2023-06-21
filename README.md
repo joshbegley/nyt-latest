@@ -1,6 +1,6 @@
 **The Re-Militarization of Germany**\
 `The invasion of Ukraine is forcing Europe’s economic giant to dispense with taboos dating back to the postwar years.`\
-https://nytimes.com/2023/06/21/podcasts/the-daily/the-re-militarization-of-germany.html?searchResultPosition=1
+https://nytimes.com/2023/06/21/podcasts/the-daily/germany-military-identity.html?searchResultPosition=1
 
 **Today’s Top News: The Missing Titan Submersible, and More**\
 `Exclusively from New York Times Audio, our new app.`\
