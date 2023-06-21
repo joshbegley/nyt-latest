@@ -18,23 +18,23 @@ https://nytimes.com/2023/06/21/world/europe/ukraine-war-climate-change-john-kerr
 `In a Queens neighborhood with a diverse community of East Asian immigrants, an unlikely exhibition in an unexpected place offers a sense of belonging.`\
 https://nytimes.com/2023/06/21/arts/design/mini-mall-flushing-art-asia.html?searchResultPosition=5
 
+**Ukraine’s soccer fans team up to support the war effort.**\
+`At the Corner Pub in Kyiv, supporters are cheering on their team, but they have also become fund-raisers, military boosters and logistics experts providing equipment to the front lines.`\
+https://nytimes.com/2023/06/21/world/europe/ukraine-soccer.html?searchResultPosition=6
+
 **F.T.C. Sues Amazon for Inducing Users to Subscribe to Prime**\
 `The lawsuit was the first time that the Federal Trade Commission under chair Lina Khan has taken Amazon to court.`\
-https://nytimes.com/2023/06/21/technology/ftc-amazon-prime-lawsuit.html?searchResultPosition=6
+https://nytimes.com/2023/06/21/technology/ftc-amazon-prime-lawsuit.html?searchResultPosition=7
 
 **‘Dear England’ Review: When Soccer Success Becomes a Moral Victory**\
 `A new James Graham play about the soccer coach Gareth Southgate is a lively romp, but its core message about embracing male vulnerability feels soppy.`\
-https://nytimes.com/2023/06/21/theater/dear-england-review-national-theater.html?searchResultPosition=7
+https://nytimes.com/2023/06/21/theater/dear-england-review-national-theater.html?searchResultPosition=8
 
 **Maxine Waters Proposes Billions to Expand Low-Income Housing**\
 `Nearly one in three Americans living on the street and in shelters are in the representative’s home state of California.`\
-https://nytimes.com/2023/06/21/realestate/california-housing-laws-maxine-waters.html?searchResultPosition=8
+https://nytimes.com/2023/06/21/realestate/california-housing-laws-maxine-waters.html?searchResultPosition=9
 
 **What Horror Means to Me**\
 `Growing up in 1970s Argentina, fear was everywhere. It was also essential.`\
-https://nytimes.com/2023/06/21/special-series/mariana-enriquez-horror-literature-identity.html?searchResultPosition=9
-
-**In Iran, Some Are Chasing the Last Drops of Water**\
-`Lawmakers are warning that one province will run out within three months, and the shortage is inflaming tensions with the country’s neighbors.`\
-https://nytimes.com/2023/06/21/world/middleeast/iran-drought-water-climate.html?searchResultPosition=10
+https://nytimes.com/2023/06/21/special-series/mariana-enriquez-horror-literature-identity.html?searchResultPosition=10
 
