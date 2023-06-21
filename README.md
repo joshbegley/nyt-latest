@@ -7,7 +7,7 @@ https://nytimes.com/2023/06/21/style/gywneth-paltrow-goop-drag-show.html?searchR
 https://nytimes.com/2023/06/21/dining/a-quick-and-easy-skillet-chocolate-chip-cookie.html?searchResultPosition=2
 
 **The war is worsening the effects of climate change, Kerry says.**\
-`The forced movement of people, the destruction of agricultural land and the increased instability are being felt not just in Ukraine, but much further afield, he said in an interview.`\
+`The forced movement of people, the destruction of agricultural land and the increased instability are being felt in Ukraine and beyond, said John Kerry, President Biden’s climate envoy.`\
 https://nytimes.com/2023/06/21/world/europe/ukraine-war-climate-change-john-kerry.html?searchResultPosition=3
 
 **Hidden in a Mini-Mall in Flushing, a Home for Art**\
