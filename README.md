@@ -4,7 +4,7 @@ https://nytimes.com/2023/06/22/arts/kennedy-center-honors.html?searchResultPosit
 
 **Where Do New Yorkers Want to Rent?**\
 `The city’s most popular areas based on traffic to rental listings.`\
-https://nytimes.com/2023/06/22/realestate/where-do-new-yorkers-want-to-rent.html?searchResultPosition=2
+https://nytimes.com/2023/06/22/realestate/nyc-apartments-rent.html?searchResultPosition=2
 
 **Lina Khan Raises the Heat on Amazon**\
 `The F.T.C. chair shot to fame six years ago after publishing a legal article that Amazon needed to be contained. Legal experts wonder if that time has come.`\
