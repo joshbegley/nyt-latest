@@ -2,7 +2,7 @@
 `In a wide-ranging new book, the scholar Jackson Lears locates a “countercultural” hunger for vigor and spontaneity on the trading floor, the dance floor and beyond.`\
 https://nytimes.com/2023/06/22/books/review/animal-spirits-jackson-lears.html?searchResultPosition=1
 
-**Fortress Investment Group to Acquire Vice Out of Bankruptcy**\
+**Fortress Investment Group Set to Acquire Vice Out of Bankruptcy**\
 `The company was part of a group of bidders that offered $225 million to acquire the bankrupt media company.`\
 https://nytimes.com/2023/06/22/business/fortress-vice-bankruptcy.html?searchResultPosition=2
 
