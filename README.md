@@ -18,7 +18,7 @@ https://nytimes.com/2023/06/22/opinion/dodgers-lgbtq-controversy.html?searchResu
 `Mr. Dawood, a British Pakistani businessman, was the vice chairman of Engro Corporation, a conglomerate owned by one of the richest families in Pakistan.`\
 https://nytimes.com/2023/06/22/world/asia/shahzada-dawood-titan-submersible.html?searchResultPosition=5
 
-**Former L.S.U. Men’s Basketball Coach Will Wade Suspended 10 Games**\
+**Former L.S.U. Men’s Basketball Coach Will Wade Suspended for 10 Games**\
 `Wade, who was hired this year to coach at McNeese State, was not cited for the most notorious charge against him: that he lured recruits with illicit payments.`\
 https://nytimes.com/2023/06/22/sports/ncaabasketball/will-wade-lsu-coach.html?searchResultPosition=6
 
