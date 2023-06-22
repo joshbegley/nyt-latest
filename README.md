@@ -1,4 +1,4 @@
-**In Federal Hearing, Microsoft Says it Could Abandon Activision Deal if Judge Delays It**\
+**Microsoft Says It Could Abandon Activision Deal if Judge Delays It**\
 `A five-day hearing over Microsoft’s $70 billion acquisition, which the Federal Trade Commission hopes to block, began Thursday in federal court.`\
 https://nytimes.com/2023/06/22/business/microsoft-activision-federal-hearing.html?searchResultPosition=1
 
