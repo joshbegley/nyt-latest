@@ -35,6 +35,6 @@ https://nytimes.com/2023/06/22/arts/music/kesha-dr-luke-settle-lawsuit.html?sear
 https://nytimes.com/2023/06/22/nyregion/lawyers-chatgpt-schwartz-loduca.html?searchResultPosition=9
 
 **TikTok Shakes Up Leadership Amid Questions About Its Future**\
-`The app’s chief operating officer is stepping down, and the company is bringing in a new executive to run its sprawling communications department.`\
+`The app’s chief operating officer is stepping down, and the company is bringing in a new executive to run its communications department.`\
 https://nytimes.com/2023/06/22/business/tiktok-leadership-shake-up-v-pappas.html?searchResultPosition=10
 
