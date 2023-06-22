@@ -18,23 +18,23 @@ https://nytimes.com/2023/06/22/crosswords/spelling-bee-forum.html?searchResultPo
 `Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
 https://nytimes.com/2023/06/22/crosswords/wordle-review-answer-733.html?searchResultPosition=5
 
+**The Wall Street Journal reporter jailed in Russia is scheduled to appear in court.**\
+`Evan Gershkovich, an American journalist who has been based in Russia for years, was arrested in March and charged with spying, which he denies.`\
+https://nytimes.com/2023/06/22/world/europe/russia-evan-gershkovich-wall-street-journal.html?searchResultPosition=6
+
 **Dozens Die After Explosion in a Barbecue Restaurant in China**\
 `The deadly blast, in the northwestern city of Yinchuan, was blamed on a gas leak, and it is likely to prompt closer scrutiny of restaurants that feature gas grills.`\
-https://nytimes.com/2023/06/22/world/asia/china-barbecue-restaurant-explosion.html?searchResultPosition=6
+https://nytimes.com/2023/06/22/world/asia/china-barbecue-restaurant-explosion.html?searchResultPosition=7
 
 **The Price of Making Friends With Modi**\
 `Mr. Modi’s version of India is no less skewed than Donald Trump’s of the United States, even if Mr. Modi has been more successful at getting the media and global elite to buy into it.`\
-https://nytimes.com/2023/06/22/opinion/narendra-modi-india-democracy.html?searchResultPosition=7
+https://nytimes.com/2023/06/22/opinion/narendra-modi-india-democracy.html?searchResultPosition=8
 
 **Nine Kansas Women Try to Make Sense of America’s Hardest Issue**\
 `The group discusses the first anniversary of the overturning of Roe v. Wade and the issue of abortion in Kansas.`\
-https://nytimes.com/interactive/2023/06/22/opinion/dobbs-abortion-kansas-focus-group.html?searchResultPosition=8
+https://nytimes.com/interactive/2023/06/22/opinion/dobbs-abortion-kansas-focus-group.html?searchResultPosition=9
 
 **Explosion Kills Dozens at Barbecue Restaurant in China**\
 `At least 31 people died in the explosion at a barbecue restaurant in Yinchuan.`\
-https://nytimes.com/video/world/asia/100000008963375/china-barbecue-restaurant-explosion.html?searchResultPosition=9
-
-**Quotation of the Day: Technology and the Ban on Shifts Help Ground Crews Create Fields of Dreams**\
-`Quotation of the Day for Thursday, June 22, 2023.`\
-https://nytimes.com/2023/06/22/pageoneplus/quote-of-the-day-technology-and-the-ban-on-shifts-help-ground-crews-create-fields-of-dreams.html?searchResultPosition=10
+https://nytimes.com/video/world/asia/100000008963375/china-barbecue-restaurant-explosion.html?searchResultPosition=10
 
