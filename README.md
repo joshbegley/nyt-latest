@@ -8,7 +8,7 @@ https://nytimes.com/2023/06/22/us/politics/india-television-modi-us.html?searchR
 
 **Violent Druggings in Lower Manhattan Left a Trail of Bodies, Police Say**\
 `The police said Kenwood Allen and Sean Shirley targeted 26 victims for robberies, among them an up-and-coming fashion designer found dead in bed.`\
-https://nytimes.com/2023/06/22/nyregion/violent-druggings-in-lower-manhattan-left-a-trail-of-bodies-police-say.html?searchResultPosition=3
+https://nytimes.com/2023/06/22/nyregion/deadly-druggings-robberies-manhattan.html?searchResultPosition=3
 
 **Mexican Court Strikes Down President’s Bid to Remake Election Laws**\
 `The ruling from the country’s top court came as President Andrés Manuel López Obrador ramps up his attacks on the judicial system.`\
