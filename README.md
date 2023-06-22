@@ -1,6 +1,6 @@
 **New Jason Robert Brown Musical Highlights MCC Theater Season**\
 `A honky-tonk lesbian romance and a new musical by Gavin Creel are also slated for the Off Broadway theater’s 2023-24 lineup.`\
-https://nytimes.com/2023/06/22/arts/new-jason-robert-brown-musical-highlights-mcc-theater-season.html?searchResultPosition=1
+https://nytimes.com/2023/06/22/arts/jason-robert-brown-musical.html?searchResultPosition=1
 
 **Overstock.com Wins $21.5 Million Bid for Bed Bath & Beyond’s Assets**\
 `If the acquisition is approved at a court hearing next week, the company will own the intellectual property of the bankrupt home goods retailer.`\
