@@ -1,5 +1,5 @@
 **Bank of England Pushes Interest Rates Up by a Half Point**\
-`The central bank raised rates more than expected as inflation shows signs of persistence in Britain.`\
+`‘We know this is hard,’ the bank’s governor said, after raising rates higher than expected to fight persistent inflation.`\
 https://nytimes.com/2023/06/22/business/economy/bank-of-england-interest-rates-inflation.html?searchResultPosition=1
 
 **‘2023 Sundance Film Festival Short Film Tour Review: Small Bites**\
