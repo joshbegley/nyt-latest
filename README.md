@@ -24,7 +24,7 @@ https://nytimes.com/2023/06/22/world/asia/south-korea-hostel-seoul-kcia.html?sea
 
 **Belarus Is Fast Becoming a ‘Vassal State’ of Russia**\
 `Allowing Moscow to place tactical nuclear weapons on its soil is just the latest sign of its loss of sovereignty to the Kremlin, military experts and pro-democracy activists say.`\
-https://nytimes.com/2023/06/22/world/europe/belarus-is-fast-becoming-a-vassal-state-of-russia.html?searchResultPosition=7
+https://nytimes.com/2023/06/22/world/europe/belarus-russia-lukashenko.html?searchResultPosition=7
 
 **‘The Country Is His Family’: Why Modi and Other Indian Leaders Stay Single**\
 `India’s politicians need a lot of time to attend to 1.4 billion people. And with corruption widespread, those without families are often seen as less likely to steal.`\
