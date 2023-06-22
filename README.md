@@ -6,7 +6,7 @@ https://nytimes.com/2023/06/22/nyregion/violent-druggings-in-lower-manhattan-lef
 `The ruling from the country’s top court came as President Andrés Manuel López Obrador ramps up his attacks on the judicial system.`\
 https://nytimes.com/2023/06/22/world/americas/mexico-electoral-bill-supreme-court.html?searchResultPosition=2
 
-**Accused Art Trafficker’s Daughter Forfeits $12 Million to End Case**\
+**Accused Art Trafficker’s Estate Forfeits $12 Million to End Case**\
 `The payment will settle a civil suit brought by U.S. officials who accused Douglas A.J. Latchford of being a major dealer of looted antiquities.`\
 https://nytimes.com/2023/06/22/arts/douglas-latchford-antiquities-trafficker-daughter.html?searchResultPosition=3
 
