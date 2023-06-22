@@ -1,40 +1,40 @@
+**Divided House Sidesteps Biden Impeachment Vote but Starts Inquiry**\
+`The Republican-led chamber moved to refer articles of impeachment to two House committees, charging that the president’s immigration policies are an impeachable offense.`\
+https://nytimes.com/2023/06/22/us/politics/house-biden-impeachment-vote.html?searchResultPosition=1
+
 **A House Museum Has a New Message: New York Had Slavery, Too**\
 `Reopening after years of restoration, the Lefferts Historic House in Brooklyn now also acknowledges the enslaved people who lived and worked there.`\
-https://nytimes.com/2023/06/22/arts/design/lefferts-historic-house.html?searchResultPosition=1
+https://nytimes.com/2023/06/22/arts/design/lefferts-historic-house.html?searchResultPosition=2
 
 **‘Rust’ Armorer Transferred Narcotics on Day of Shooting, Prosecutor Says**\
 `A new charge of evidence tampering was announced as a departing investigator accused the Santa Fe County Sheriff’s Office of “reprehensible and unprofessional” conduct.`\
-https://nytimes.com/2023/06/22/arts/rust-armorer-new-charge.html?searchResultPosition=2
+https://nytimes.com/2023/06/22/arts/rust-armorer-new-charge.html?searchResultPosition=3
 
 **In Turkey, Erdogan Signals Shift to Conventional Economics**\
 `In his choices of top officials, and with a leap in interest rates, Mr. Erdogan aims to tame inflation and defuse a looming economic crisis.`\
-https://nytimes.com/2023/06/22/world/middleeast/erdogan-turkey-interest-rates-economy.html?searchResultPosition=3
+https://nytimes.com/2023/06/22/world/middleeast/erdogan-turkey-interest-rates-economy.html?searchResultPosition=4
 
 **Supreme Court Rules Against Navajo Nation in Water Rights Case**\
 `The vote was 5 to 4, with the majority finding that an 1868 treaty did not require the federal government to ensure the tribe had access to water.`\
-https://nytimes.com/2023/06/22/us/politics/supreme-court-navajo-nation-colorado-river-water.html?searchResultPosition=4
+https://nytimes.com/2023/06/22/us/politics/supreme-court-navajo-nation-colorado-river-water.html?searchResultPosition=5
 
 **Microsoft Says It Could Abandon Activision Deal if Judge Delays It**\
 `A five-day hearing over Microsoft’s $70 billion acquisition, which the Federal Trade Commission hopes to block, began Thursday in federal court.`\
-https://nytimes.com/2023/06/22/technology/microsoft-activision-federal-hearing.html?searchResultPosition=5
+https://nytimes.com/2023/06/22/technology/microsoft-activision-federal-hearing.html?searchResultPosition=6
 
 **Biden Welcomes Indian Prime Minister to the White House**\
 `President Biden and Prime Minister Narendra Modi of India emphasized cooperation between the two countries during a state visit.`\
-https://nytimes.com/video/us/politics/100000008964000/biden-modi-white-house.html?searchResultPosition=6
+https://nytimes.com/video/us/politics/100000008964000/biden-modi-white-house.html?searchResultPosition=7
 
 **E-Cigarette Sales Tapered Off Last Year After Big Surge**\
 `Flavors proliferated and disposable vapes took hold as purchases of vaping devices increased steadily from January 2020 to mid-2022.`\
-https://nytimes.com/2023/06/22/health/e-cigarette-sales-cdc-vaping.html?searchResultPosition=7
+https://nytimes.com/2023/06/22/health/e-cigarette-sales-cdc-vaping.html?searchResultPosition=8
 
 **You Don’t Have to Wait for Peak Tomato**\
 `Tomato sandwiches in the sand, chilled tomato salads in the grass, icy pitchers of gazpacho on the patio. Summer is here.`\
-https://nytimes.com/2023/06/22/dining/you-dont-have-to-wait-for-peak-tomato.html?searchResultPosition=8
+https://nytimes.com/2023/06/22/dining/you-dont-have-to-wait-for-peak-tomato.html?searchResultPosition=9
 
 **Senator Rick Scott Has Been Weighing a Presidential Run**\
 `If he runs, Mr. Scott would become the fourth Republican presidential candidate from Florida, joining Donald Trump, Gov. Ron DeSantis and Mayor Francis X. Suarez of Miami.`\
-https://nytimes.com/2023/06/22/us/politics/rick-scott-presidential-run-2024.html?searchResultPosition=9
-
-**How to Change an Entrenched Police Culture**\
-`Readers discuss police reforms after the George Floyd murder. Also: The submersible; Justice Alito’s ethics; a theory about President Trump’s behavior.`\
-https://nytimes.com/2023/06/22/opinion/letters/police-minneapolis.html?searchResultPosition=10
+https://nytimes.com/2023/06/22/us/politics/rick-scott-presidential-run-2024.html?searchResultPosition=10
 
