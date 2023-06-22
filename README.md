@@ -1,4 +1,4 @@
-**Storm Barrels Through Tiny Texas Town, Killing at Least 1**\
+**Storm Barrels Through Tiny Texas Town, Killing at Least 3**\
 `The storm, which the National Weather Service said most likely produced a tornado, also caused a “whole lot of damage” in Matador, the mayor of the northern Texas town said.`\
 https://nytimes.com/2023/06/21/us/matador-storm-tornado.html?searchResultPosition=1
 
