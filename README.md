@@ -10,13 +10,13 @@ https://nytimes.com/2023/06/22/t-magazine/queer-postwar-books-plays-poems.html?s
 `One superstorm could send walls of water sweeping through populated areas. There’s not much time to act.`\
 https://nytimes.com/2023/06/22/magazine/the-trillion-gallon-question-what-if-californias-dams-fail.html?searchResultPosition=3
 
-**The Bridal Industry Is Having a Swimsuit Moment**\
-`Beaded and bedazzled, fancy and frilly, lacy and Lycra-fitted — bridal bikinis are here. Brides are embracing swimwear for after parties, honeymoons and even ceremonies.`\
-https://nytimes.com/2023/06/22/style/bridal-swimsuits.html?searchResultPosition=4
-
 **Countries on Front Lines of Climate Change Seek New Lifeline in Paris**\
 `Hundreds of representatives from about 80 countries are gathering in Paris to talk about rebuilding a monetary system many say is ill-suited to a changing planet.`\
-https://nytimes.com/2023/06/22/world/europe/paris-climate-economy-conference.html?searchResultPosition=5
+https://nytimes.com/2023/06/22/world/europe/paris-climate-economy-conference.html?searchResultPosition=4
+
+**The Bridal Industry Is Having a Swimsuit Moment**\
+`Beaded and bedazzled, fancy and frilly, lacy and Lycra-fitted — bridal bikinis are here. Brides are embracing swimwear for after parties, honeymoons and even ceremonies.`\
+https://nytimes.com/2023/06/22/style/bridal-swimsuits.html?searchResultPosition=5
 
 **A Basement of Horrors in Seoul, Where Past and Present Collide**\
 `A building where South Korean dissidents were interrogated and tortured by a powerful government agency is now home to a popular youth hostel.`\
