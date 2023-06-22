@@ -18,8 +18,8 @@ https://nytimes.com/2023/06/22/learning/word-of-the-day-ominous.html?searchResul
 `Rules adopted by the State Senate include a Sept. 5 start date for the trial of Texas attorney general, in a case that has divided the state’s Republicans.`\
 https://nytimes.com/2023/06/22/us/texas-paxton-impeachment-rules.html?searchResultPosition=5
 
-**Bank of England Pushes Interest Rates Up by a Half Point**\
-`‘We know this is hard,’ the bank’s governor said, after raising rates higher than expected to fight persistent inflation.`\
+**Bank of England Raises Rates More Than Expected, as Inflation Persists**\
+`‘We know this is hard,’ the central bank’s governor said, after increasing interest rates by a half point, to 5 percent.`\
 https://nytimes.com/2023/06/22/business/economy/bank-of-england-interest-rates-inflation.html?searchResultPosition=6
 
 **‘2023 Sundance Film Festival Short Film Tour Review: Small Bites**\
