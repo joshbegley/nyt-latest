@@ -27,7 +27,7 @@ https://nytimes.com/2023/06/22/us/meteorologist-resigns-harrassment.html?searchR
 https://nytimes.com/2023/06/22/us/titan-submersible-navy-acoustic-sensors.html?searchResultPosition=7
 
 **Bob Brown, Intimidator on N.F.L. Offensive Lines, Dies at 81**\
-`As an offensive tackle for three teams in a Hall of Fame career, he said prided himself on being the “beater” and not the “beatee.”`\
+`As an offensive tackle for three teams in a Hall of Fame career, he said he prided himself on being the “beater” and not the “beatee.”`\
 https://nytimes.com/2023/06/22/sports/football/sports-bob-brown-dead.html?searchResultPosition=8
 
 **3M Reaches $10.3 Billion Settlement in ‘Forever Chemicals’ Suits**\
