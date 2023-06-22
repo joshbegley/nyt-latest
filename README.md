@@ -1,6 +1,6 @@
 **Microsoft Says It Could Abandon Activision Deal if Judge Delays It**\
 `A five-day hearing over Microsoft’s $70 billion acquisition, which the Federal Trade Commission hopes to block, began Thursday in federal court.`\
-https://nytimes.com/2023/06/22/business/microsoft-activision-federal-hearing.html?searchResultPosition=1
+https://nytimes.com/2023/06/22/technology/microsoft-activision-federal-hearing.html?searchResultPosition=1
 
 **Biden Welcomes Indian Prime Minister to the White House**\
 `President Biden and Prime Minister Narendra Modi of India emphasized cooperation between the two countries during a state visit.`\
