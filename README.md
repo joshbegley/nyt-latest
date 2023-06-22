@@ -7,7 +7,7 @@ https://nytimes.com/2023/06/22/sports/basketball/victor-wembanyama-spurs-nba-dra
 https://nytimes.com/2023/06/22/us/titanic-missing-submarine-implosion.html?searchResultPosition=2
 
 **Modi Praises ‘Limitless’ Potential of U.S.-India Partnership**\
-`In a speech to the U.S. Congress, Prime Minister Narendra Modi promoted India’s development and said that the relationship between both nations was important for democracy’s future.`\
+`In a speech to Congress, Prime Minister Narendra Modi of India promoted his nation’s development and said the relationship between his country and the United States was important for democracy’s future.`\
 https://nytimes.com/video/us/politics/100000008965567/india-modi-us-congress.html?searchResultPosition=3
 
 **I.R.S. Agent Told Congress of Hunter Biden Invoking His Father in Business Deal**\
