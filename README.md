@@ -4,7 +4,7 @@ https://nytimes.com/2023/06/22/arts/television/glamorous-miss-benny.html?searchR
 
 **Chris Paul Headed to Golden State in Trade From Wizards**\
 `Paul, who has spent the past three seasons in Phoenix, is expected to be traded to Washington and then to Golden State.`\
-https://nytimes.com/2023/06/22/sports/chris-paul-warriors-wizards.html?searchResultPosition=2
+https://nytimes.com/2023/06/22/sports/basketball/chris-paul-warriors-wizards.html?searchResultPosition=2
 
 **Your Friday Briefing: The Titan Sub’s ‘Catastrophic Implosion’**\
 `Plus, Prime Minister Narendra Modi’s meetings at the White House.`\
