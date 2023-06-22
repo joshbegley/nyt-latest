@@ -26,7 +26,7 @@ https://nytimes.com/video/us/100000008963605/matador-texas-storm-tornado.html?se
 `In this documentary, transgender sex workers speak for themselves without sanitizing or sensationalizing their experiences.`\
 https://nytimes.com/2023/06/22/movies/the-stroll-review-documentary.html?searchResultPosition=7
 
-**Musk Proposes ‘Cage Match’ With Zuckerberg**\
+**Elon Musk Proposes ‘Cage Match’ With Mark Zuckerberg**\
 `The technology moguls who run Twitter and Meta appeared to agree to a fight, the latest twist in a long-running feud.`\
 https://nytimes.com/2023/06/22/business/musk-zuckerberg-cage-match.html?searchResultPosition=8
 
