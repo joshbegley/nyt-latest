@@ -19,7 +19,7 @@ https://nytimes.com/2023/06/22/us/politics/modi-speech-biden-boycott.html?search
 https://nytimes.com/2023/06/22/arts/music/hip-hop-lyrics-favorite.html?searchResultPosition=5
 
 **Hamish Harding, an Explorer Who Knew No Bounds, Dies at 58**\
-`An aviation tycoon who forever pushed the limits, he went to the depths of the ocean and the blackness of space before his fateful dive to the Titanic.`\
+`An aviation tycoon who pushed the limits, he went to the depths of the ocean and the blackness of space before his fateful dive to the Titanic on Sunday.`\
 https://nytimes.com/2023/06/22/us/hamish-harding-dead.html?searchResultPosition=6
 
 **Oregon County Sues Fossil Fuel Companies Over 2021 Heat Dome**\
