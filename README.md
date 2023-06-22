@@ -1,4 +1,4 @@
-**Hamish Harding, an Explorer Who Knew No Bounds Until He Found One, Dies at 58**\
+**Hamish Harding, an Explorer Who Knew No Bounds, Dies at 58**\
 `An aviation tycoon who forever pushed the limits, he went to the depths of the ocean and the blackness of space before his fateful dive to the Titanic.`\
 https://nytimes.com/2023/06/22/us/hamish-harding-dead.html?searchResultPosition=1
 
