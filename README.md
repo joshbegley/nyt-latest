@@ -1,4 +1,4 @@
-**Secret acoustic sensors gave the U.S. Navy signs of an ‘anomaly’ when the Titan’s communications failed.**\
+**Secret Navy sensors detected a possible implosion around the time the Titan’s communications failed.**\
 `Two senior Navy officials said the information was shared with the Coast Guard official in charge of the search. But without certainty of a disaster, one said, the search continued.`\
 https://nytimes.com/2023/06/22/us/titan-submersible-navy-acoustic-sensors.html?searchResultPosition=1
 
