@@ -6,7 +6,7 @@ https://nytimes.com/2023/06/22/briefing/us-politics-class.html?searchResultPosit
 `The origin of the explosion, which gutted a building in the Fifth Arrondissement and injured about 50 people, is still unclear.`\
 https://nytimes.com/2023/06/22/world/europe/paris-fire-explosion.html?searchResultPosition=2
 
-**Unheeded Warnings and a Lost Submersible**\
+**Lost 2 Miles Below the Ocean**\
 `Experts had worries about the vessel that has gone missing on its way to the wreck of the Titanic long before it disappeared.`\
 https://nytimes.com/2023/06/22/podcasts/the-daily/lost-submersible.html?searchResultPosition=3
 
