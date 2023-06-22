@@ -1,4 +1,4 @@
-**In Bronx D.A. Race, Incumbent Faces a Challenge from the Left**\
+**In Bronx D.A. Race, Incumbent Faces a Challenge From the Left**\
 `Darcel Clark is running for a third term, emphasizing a balance between public safety and justice. Her opponent, Tess Cohen, is focused on alternatives to incarceration.`\
 https://nytimes.com/2023/06/22/nyregion/darcel-clark-tess-cohen-bronx-da.html?searchResultPosition=1
 
