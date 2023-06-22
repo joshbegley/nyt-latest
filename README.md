@@ -7,7 +7,7 @@ https://nytimes.com/2023/06/22/arts/kennedy-center-honors.html?searchResultPosit
 https://nytimes.com/2023/06/22/realestate/nyc-apartments-rent.html?searchResultPosition=2
 
 **Lina Khan Raises the Heat on Amazon**\
-`The F.T.C. chair shot to fame six years ago after publishing an academic article that Amazon needed to be contained. Legal experts wonder if that time has come.`\
+`The F.T.C. chair shot to fame six years ago after publishing an academic article that the company needed to be contained. Legal experts wonder if that time has come.`\
 https://nytimes.com/2023/06/22/business/dealbook/ftc-lina-khan-amazon.html?searchResultPosition=3
 
 **Word of the Day: ominous**\
