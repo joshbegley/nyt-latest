@@ -10,8 +10,8 @@ https://nytimes.com/2023/06/23/arts/design/ancient-bronzes-italy-san-casciano-de
 `The star Jharrel Jerome and senior members of the creative team discuss how they created the distinctive look of this ambitious new Amazon series.`\
 https://nytimes.com/2023/06/23/arts/television/im-a-virgo.html?searchResultPosition=3
 
-**Why Power Grids Are Teetering**\
-`Extreme heat in Texas is increasing electricity demand as people crank up the AC. The strain could be too much.`\
+**Power Grids Are Teetering Worldwide. Here’s Why.**\
+`Extreme is increasing electricity demand as people crank up the AC. The strain could be too much.`\
 https://nytimes.com/2023/06/23/climate/texas-heat-power-grid.html?searchResultPosition=4
 
 **Yes, There Are Alternatives to Stocks**\
