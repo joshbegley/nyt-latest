@@ -18,8 +18,8 @@ https://nytimes.com/2023/06/23/nyregion/china-fentanyl-companies-charged.html?se
 `Robert Smith’s band cast a spell on New York this week. Listen to a playlist that showcases the long-running group’s onstage power.`\
 https://nytimes.com/2023/06/23/arts/music/amplifier-newsletter-the-cure-live.html?searchResultPosition=5
 
-**6 New Paperbacks to Read This Week**\
-`Selected paperbacks from the Book Review, including titles from Annie Proulx, Beth Macy and more.`\
+**6 New Paperbacks to Read This Week **\
+`Selected paperbacks from the Book Review, including titles from Annie Proulx, Beth Macy and more. `\
 https://nytimes.com/interactive/2023/06/23/books/new-paperbacks-proulx.html?searchResultPosition=6
 
 **A New Line of Subtle, Glamorous Clothes**\
