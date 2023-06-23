@@ -2,7 +2,7 @@
 `The attorney general denied assertions that he had interfered with the case and blocked a prosecutor from lodging more charges.`\
 https://nytimes.com/2023/06/23/us/politics/garland-irs-weiss-hunter-biden-investigation.html?searchResultPosition=1
 
-**7.5 Million Baby Shark Bath Toys Are Reports of Children Being Injured**\
+**7.5 Million Baby Shark Bath Toys After Reports of Children Being Injured**\
 `At least a dozen people have reported being injured by the toy. The top fins pose a risk of “impalement, lacerations and punctures,” the U.S. Consumer Product Safety Commission said.`\
 https://nytimes.com/2023/06/23/business/baby-shark-bath-toy-recall.html?searchResultPosition=2
 
