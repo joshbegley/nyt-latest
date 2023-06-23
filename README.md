@@ -6,7 +6,7 @@ https://nytimes.com/2023/06/23/business/daily-beast-sale-talks-end.html?searchRe
 `Gov. Katie Hobbs, a Democrat, says she is doing what she can to protect abortion rights in a state with a 15-week ban on the procedure.`\
 https://nytimes.com/2023/06/23/us/arizona-governor-prosecutors-abortion-law.html?searchResultPosition=2
 
-**Biden Slams Abortion Bans, Warning That Privacy Is Next**\
+**Biden Denounces Abortion Bans, Warning That Privacy Is Next**\
 `The president sought to galvanize supporters a year after the Supreme Court overturned Roe v. Wade as Democrats hope the issue helps them win next year’s elections.`\
 https://nytimes.com/2023/06/23/us/politics/biden-abortion.html?searchResultPosition=3
 
