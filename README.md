@@ -1,40 +1,40 @@
+**Canada Forces Google and Facebook to Pay News Outlets for Linking to Articles**\
+`A new Canadian law will require technology companies to license news content. Facebook’s owner said it would drop news from the platform.`\
+https://nytimes.com/2023/06/23/business/media/meta-google-canada-news-facebook-instagram.html?searchResultPosition=1
+
+**After Midnight at the N.B.A. Draft, Dreams Still Come True**\
+`The crowds had thinned by the second round, but several players lingered in the stands waiting to hear their names called. Dozens of fans waited to cheer them on.`\
+https://nytimes.com/2023/06/23/sports/basketball/nba-draft-last-pick.html?searchResultPosition=2
+
 **Word of the Day: persistent**\
 `This word has appeared in 805 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/06/23/learning/word-of-the-day-persistent.html?searchResultPosition=1
+https://nytimes.com/2023/06/23/learning/word-of-the-day-persistent.html?searchResultPosition=3
 
 **Your Friday Briefing**\
 `The discovery of wreckage from the Titan submersible.`\
-https://nytimes.com/2023/06/23/briefing/titan-submersible-modi-biden.html?searchResultPosition=2
+https://nytimes.com/2023/06/23/briefing/titan-submersible-modi-biden.html?searchResultPosition=4
 
 **Quotation of the Day: Paris Climate Summit Seeks Financial Reforms to Confront a Crisis**\
 `Quotation of the Day for Friday, June 23, 2023.`\
-https://nytimes.com/2023/06/23/pageoneplus/quotation-of-the-day-paris-climate-summit-seeks-financial-reforms-to-confront-a-crisis.html?searchResultPosition=3
+https://nytimes.com/2023/06/23/pageoneplus/quotation-of-the-day-paris-climate-summit-seeks-financial-reforms-to-confront-a-crisis.html?searchResultPosition=5
 
 **Tipping Gets ‘More in Your Face,’ and Not Everyone Likes It**\
 `Tipping is not unheard-of in Australia, but an increasing number of apps and payment platforms are actively asking for an extra dollar, or five, on bills.`\
-https://nytimes.com/2023/06/23/world/australia/tipping-gets-more-in-your-face-and-not-everyone-likes-it.html?searchResultPosition=4
+https://nytimes.com/2023/06/23/world/australia/tipping-gets-more-in-your-face-and-not-everyone-likes-it.html?searchResultPosition=6
 
 **My Last Shopping List for Him**\
 `For exhuming my husband’s bones, I was told to bring a bottle of red wine, chlorine, powdered soap and a white bedsheet.`\
-https://nytimes.com/2023/06/23/style/modern-love-greece-loss-last-shopping-list.html?searchResultPosition=5
+https://nytimes.com/2023/06/23/style/modern-love-greece-loss-last-shopping-list.html?searchResultPosition=7
 
 **After a Single Glance, an Unspoken Connection Blossomed**\
 `Six months after seeing Alexis Bittar at the gym, Jack Miner remained intentionally “aloof” toward him. Once the silence was broken, a relationship and a family followed.`\
-https://nytimes.com/2023/06/23/style/alexis-bittar-jack-miner-wedding.html?searchResultPosition=6
+https://nytimes.com/2023/06/23/style/alexis-bittar-jack-miner-wedding.html?searchResultPosition=8
 
 **First a Key to the Apartment, Then to Her Heart**\
 `For years, Katerina Jeng and Jocelyn Ueng were friends on Instagram. When Ms. Jeng visited Ms. Ueng in Copenhagen in 2021, a 48-hour first date kicked off a long-distance relationship.`\
-https://nytimes.com/2023/06/23/style/katerina-jeng-jocelyn-ueng-wedding.html?searchResultPosition=7
+https://nytimes.com/2023/06/23/style/katerina-jeng-jocelyn-ueng-wedding.html?searchResultPosition=9
 
 **They Talked About Age, Yes. They Talked Even More About Fine Wine.**\
 `A difference of four years initially gave Jacqueline Coleman pause, but ultimately Robert Crapsey won her over.`\
-https://nytimes.com/2023/06/23/style/jacqueline-coleman-robert-crapsey-wedding.html?searchResultPosition=8
-
-**Who Was That Knocking at Her Door? That ‘Cute Guy.’**\
-`Meechka Marcelin was studying for a genetics exam in her room off campus when Ian Patrick knocked on her door to invite her to hang out.`\
-https://nytimes.com/2023/06/23/style/meechka-marcelin-ian-patrick-wedding.html?searchResultPosition=9
-
-**A ‘Risky Text’ Helped Jump-Start Their Relationship**\
-`Karina Rodriguez and Andrew Levin had crushes on each other early on in high school, but after an “awkward” first date, they avoided each other for two years. Until prom.`\
-https://nytimes.com/2023/06/23/style/karina-rodriguez-andrew-levin-wedding.html?searchResultPosition=10
+https://nytimes.com/2023/06/23/style/jacqueline-coleman-robert-crapsey-wedding.html?searchResultPosition=10
 
