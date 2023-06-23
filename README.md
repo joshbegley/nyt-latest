@@ -1,6 +1,6 @@
 **How to Turn Your Chatbot Into a Life Coach**\
 `A chatbot can be an effective motivator that helps you set goals and organize your schedule to achieve them.`\
-https://nytimes.com/2023/06/23/technology/how-to-turn-your-chatbot-into-a-life-coach.html?searchResultPosition=1
+https://nytimes.com/2023/06/23/technology/ai-chatbot-life-coach.html?searchResultPosition=1
 
 **Can Plants Think?**\
 `In “Planta Sapiens,” Paco Calvo addresses our “plant blindness.”`\
