@@ -11,7 +11,7 @@ https://nytimes.com/2023/06/23/us/severe-weather-warning-safety.html?searchResul
 https://nytimes.com/2023/06/23/theater/one-woman-show-review-liz-kingsman.html?searchResultPosition=3
 
 **How to Talk to Someone With Alzheimer’s**\
-`The family of the celebrity zookeeper Jack Hanna is speaking publicly about their difficulties communicating with him now that he has Alzheimer’s. Experts say that such interactions take patience and sensitivity.`\
+`The family of the celebrity zookeeper Jack Hanna is speaking publicly about the difficulties communicating with him now that he has Alzheimer’s. Experts say that such interactions take patience and sensitivity.`\
 https://nytimes.com/2023/06/23/well/family/alzheimers-talk-caregivers.html?searchResultPosition=4
 
 **Review: In ‘Like Water for Chocolate,’ Plot Overtakes Ballet**\
