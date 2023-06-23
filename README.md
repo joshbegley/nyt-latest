@@ -14,13 +14,13 @@ https://nytimes.com/2023/06/23/us/texas-heat-wave.html?searchResultPosition=3
 `An insurance company bought the naming rights to the $270 million complex in Manchester, in a clear sign of its distance from the D.I.Y. scenes of decades past.`\
 https://nytimes.com/2023/06/23/arts/design/factory-aviva-studios-manchester.html?searchResultPosition=4
 
-**88 Temples, 750 Miles, Untold Gifts: Japan’s Shikoku Pilgrimage**\
-`A famed route on the smallest of Japan’s four main islands offers breathtaking views and an array of lessons on history, culture and generosity.`\
-https://nytimes.com/2023/06/23/travel/shikoku-pilgrimage-japan.html?searchResultPosition=5
-
 **In Charleston, a Museum Honors a Journey of Grief and Grace**\
 `The International African American Museum, in a former slave port, is about more than slavery. It’s about survival and resilience.`\
-https://nytimes.com/2023/06/23/arts/design/charleston-african-american-museum.html?searchResultPosition=6
+https://nytimes.com/2023/06/23/arts/design/charleston-african-american-museum.html?searchResultPosition=5
+
+**88 Temples, 750 Miles, Untold Gifts: Japan’s Shikoku Pilgrimage**\
+`A famed route on the smallest of Japan’s four main islands offers breathtaking views and an array of lessons on history, culture and generosity.`\
+https://nytimes.com/2023/06/23/travel/shikoku-pilgrimage-japan.html?searchResultPosition=6
 
 **Embracing Their Strength (or Lack Thereof)**\
 `Tampa Bay’s outrageous season has been fueled by home runs. Cleveland barely hits any. Both teams follow the numbers and emphasize what they do well.`\
