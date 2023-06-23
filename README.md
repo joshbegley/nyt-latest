@@ -2,7 +2,7 @@
 `The office of the special counsel is negotiating with Michael Roman, who was closely involved in the efforts to create slates of pro-Trump electors in states won in 2020 by Joseph R. Biden Jr.`\
 https://nytimes.com/2023/06/23/us/politics/michael-roman-trump-jan-6-jack-smith.html?searchResultPosition=1
 
-**Money Can Buy a Visit to Space or the Deep Sea, but It Can’t Buy Safety**\
+**Money Can Buy a Visit to Space or the Deep Sea, but It Can’t Guarantee Safety**\
 `The Titan submersible tragedy spotlights the issues around rescue operations and government oversight as an increasing number of wealthy thrill seekers undertake risky adventures and expeditions.`\
 https://nytimes.com/2023/06/23/travel/titan-sub-oceangate-adventure-travel.html?searchResultPosition=2
 
