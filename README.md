@@ -20,7 +20,7 @@ https://nytimes.com/2023/06/23/nyregion/manhattan-casino-larry-silverstein.html?
 
 **Is There a Price That Keeps Trump Quiet? E. Jean Carroll May Find Out.**\
 `The writer’s lawyers are going after him again for defamation, but is there an award high enough to keep the former president from saying what he wants to?`\
-https://nytimes.com/2023/06/23/nyregion/is-there-a-price-that-keeps-trump-quiet-e-jean-carroll-may-find-out.html?searchResultPosition=6
+https://nytimes.com/2023/06/23/nyregion/trump-e-jean-carroll-lawsuit-money.html?searchResultPosition=6
 
 **Lights, Camera, Criminal Defense: Lawyers Pick Up Cameras to Help Clients**\
 `Wealthy defendants can hire video crews to help them argue for more lenient treatment. Public defenders are trying to get in on it, too.`\
