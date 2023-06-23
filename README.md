@@ -1,40 +1,40 @@
-**With a Hand From the U.S. Military, Aid Finally Reaches a Syrian Camp**\
-`“I saw people eating plants that are usually only used to feed animals,” said one resident of a camp for displaced Syrians that sits in the shadow of an American military base but has been cut off from aid for years.`\
-https://nytimes.com/2023/06/23/world/middleeast/us-aid-syria-camp.html?searchResultPosition=1
+**88 Temples, 750 Miles, Untold Gifts: Japan’s Shikoku Pilgrimage**\
+`A famed route on the smallest of Japan’s four main islands offers breathtaking views and an array of lessons on history, culture and generosity.`\
+https://nytimes.com/2023/06/23/travel/shikoku-pilgrimage-japan.html?searchResultPosition=1
 
-**In Myanmar, Birthday Wishes for Aung San Suu Kyi Lead to a Wave of Arrests**\
-`People across Myanmar wore flowers on Monday to show support for the jailed civilian leader. Since then, the ruling military has been rounding them up.`\
-https://nytimes.com/2023/06/23/world/asia/aung-san-suu-kyi-myanmar.html?searchResultPosition=2
+**In Charleston, a Museum Honors a Journey of Grief and Grace**\
+`The International African American Museum, in a former slave port, is about more than slavery. It’s about survival and resilience.`\
+https://nytimes.com/2023/06/23/arts/design/charleston-african-american-museum.html?searchResultPosition=2
 
-**A Freewheeling 91-Year-Old Principal Retires**\
-`Elaine Schwartz didn’t have an office because she wanted to “hear the kids.” And the cost (to Trump) of Trump’s big mouth.`\
-https://nytimes.com/2023/06/23/nyregion/a-freewheeling-91-year-old-principal-retires.html?searchResultPosition=3
+**Embracing Their Strength (or Lack Thereof)**\
+`Tampa Bay’s outrageous season has been fueled by home runs. Cleveland barely hits any. Both teams follow the numbers and emphasize what they do well.`\
+https://nytimes.com/2023/06/23/sports/baseball/rays-guardians-home-runs.html?searchResultPosition=3
 
-**‘World’s Best’ Review: Straight Outta Calculus**\
-`A math prodigy channels the spirit of his rapper father in this lively musical.`\
-https://nytimes.com/2023/06/23/movies/worlds-best-review.html?searchResultPosition=4
+**Chinese Firm Sent Large Shipments of Gunpowder to Russian Munitions Factory**\
+`The previously unreported shipments between a state-owned Chinese company and a Russian munitions factory last year raise new questions about Beijing’s role in Russia’s war against Ukraine.`\
+https://nytimes.com/2023/06/23/business/economy/china-russia-ammunition.html?searchResultPosition=4
 
-**Mogul’s Manhattan Casino Pitch: A Location People Won’t Hate**\
-`Larry Silverstein joins a crowded, well-financed field of developers competing for three casino licenses in the New York City region.`\
-https://nytimes.com/2023/06/23/nyregion/manhattan-casino-larry-silverstein.html?searchResultPosition=5
+**As Lord Mayor, a 22-Year-Old Vaulted From Public Housing Into London’s Elite**\
+`Hamza Taouzzale became the first Muslim and youngest ever Lord Mayor of Westminster, a ceremonial post that outranks many of the capital’s most powerful and privileged.`\
+https://nytimes.com/2023/06/23/world/europe/as-lord-mayor-a-22-year-old-vaulted-from-public-housing-into-londons-elite.html?searchResultPosition=5
 
-**Is There a Price That Keeps Trump Quiet? E. Jean Carroll May Find Out.**\
-`The writer’s lawyers are going after him again for defamation, but is there an award high enough to keep the former president from saying what he wants to?`\
-https://nytimes.com/2023/06/23/nyregion/trump-e-jean-carroll-lawsuit-money.html?searchResultPosition=6
+**In ‘Loisaida,’ Photos of a Bygone New York**\
+`Between 1984 and 1990, Tria Giovan captured everyday life on the Lower East Side.`\
+https://nytimes.com/2023/06/23/books/loisaida-tria-giovan.html?searchResultPosition=6
 
-**Lights, Camera, Criminal Defense: Lawyers Pick Up Cameras to Help Clients**\
-`Wealthy defendants can hire video crews to help them argue for more lenient treatment. Public defenders are trying to get in on it, too.`\
-https://nytimes.com/2023/06/23/nyregion/mitigation-videos.html?searchResultPosition=7
+**When Parents Go Their Separate Ways**\
+`Stories, both new and evergreen, to help children of divorce heal.`\
+https://nytimes.com/2023/06/23/books/review/childrens-books-about-divorce-and-separation.html?searchResultPosition=7
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/06/23/crosswords/wordle-review-answer-734.html?searchResultPosition=8
+**Reddit Wants to Grow Up. Will Its Community Let It?**\
+`As the social media site matures, its users and moderators have made their displeasure about corporate changes known, putting the company into a bind.`\
+https://nytimes.com/2023/06/23/technology/reddit-moderators-users-api-protest.html?searchResultPosition=8
 
-**A Dance Critic Visits an Extraordinary Stage**\
-`Performing rudimentary moves, inmates in the California state prison system were uncommonly open with their stories.`\
-https://nytimes.com/2023/06/23/insider/a-dance-critic-visits-an-extraordinary-stage.html?searchResultPosition=9
+**How a Year Without Roe Shifted American Views on Abortion**\
+`New and extensive polling shows public opinion increasingly supports legal abortion, with potential political consequences for 2024.`\
+https://nytimes.com/2023/06/23/us/roe-v-wade-abortion-views.html?searchResultPosition=9
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/06/23/crosswords/spelling-bee-forum.html?searchResultPosition=10
+**Altitude Meets Adrenaline: Running the Dolomites**\
+`The limestone pinnacles and green meadows of one of the most scenic mountain ranges on earth provide the backdrop to a seven-day adventure in Italy.`\
+https://nytimes.com/2023/06/23/travel/dolomites-hiking-running-travel.html?searchResultPosition=10
 
