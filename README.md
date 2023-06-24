@@ -6,7 +6,7 @@ https://nytimes.com/2023/06/24/pageoneplus/corrections-june-24-2023.html?searchR
 `Quotation of the Day for Saturday, June 24, 2023.`\
 https://nytimes.com/2023/06/24/pageoneplus/quotation-of-the-day-if-you-can-outrun-the-green-flashes-youll-set-a-record.html?searchResultPosition=2
 
-**Debris From Russian Missile Kills Two in Kyiv Apartment Building**\
+**Debris From Russian Missile Kills Three in Kyiv Apartment Building**\
 `The capital came under attack as anxiety grew in Russia over a confrontation between Yevgeny V. Prigozhin, the founder of the Wagner mercenary group, and Moscow’s military leadership.`\
 https://nytimes.com/2023/06/24/world/europe/kyiv-deadly-attack.html?searchResultPosition=3
 
