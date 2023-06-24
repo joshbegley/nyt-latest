@@ -26,7 +26,7 @@ https://nytimes.com/2023/06/24/opinion/save-turner-classic-movies.html?searchRes
 `It isn’t about presidential corruption but a determined parent battling his son’s addiction with unconditional love.`\
 https://nytimes.com/2023/06/24/opinion/father-hunter-biden-addiction.html?searchResultPosition=7
 
-**What ‘The Bear’ Revealed About My Grief**\
+**I Thought No One Had Felt Grief Like Mine. Then I Saw ‘The Bear.’**\
 `A lot of television shows portray the experience of grieving. But after my own tragic experience, only “The Bear” felt authentic to me.`\
 https://nytimes.com/2023/06/24/opinion/the-bear-fx-grief.html?searchResultPosition=8
 
