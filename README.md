@@ -1,40 +1,40 @@
+**As Putin’s Trusted Partner, Prigozhin Was Always Willing to Do the Dirty Work**\
+`Yevgeny V. Prigozhin, the mercenary leader of the Wagner Group, had earned the trust of Vladimir V. Putin. Then he staged a mutiny that rattled the Kremlin.`\
+https://nytimes.com/2023/06/24/world/europe/prigozhin-russia-wagner-putin.html?searchResultPosition=1
+
 **Timeline: What Led to the Standoff Between Russia and Prigozhin**\
 `The leader of the Wagner mercenary group had kept a low profile for years, only acknowledging his force’s existence in September of last year.`\
-https://nytimes.com/2023/06/24/world/europe/russia-military-prigozhin-wagner-timeline.html?searchResultPosition=1
+https://nytimes.com/2023/06/24/world/europe/russia-military-prigozhin-wagner-timeline.html?searchResultPosition=2
 
 **Living in a Barbie World, Through the Decades**\
 `A new project from the Real Estate desk uses stop-motion to take readers inside Barbie’s Dreamhouses.`\
-https://nytimes.com/2023/06/24/insider/living-in-a-barbie-world-through-the-decades.html?searchResultPosition=2
+https://nytimes.com/2023/06/24/insider/living-in-a-barbie-world-through-the-decades.html?searchResultPosition=3
 
 **Tracking the Military Convoys on the Route to Moscow**\
 `Wagner’s leader announced that his troops marching on Moscow would “turn around.”`\
-https://nytimes.com/2023/06/24/world/europe/wagner-moscow-russia-map.html?searchResultPosition=3
+https://nytimes.com/2023/06/24/world/europe/wagner-moscow-russia-map.html?searchResultPosition=4
 
 **Ship That Launched Ill-Fated Titan Submersible Returns to Newfoundland**\
 `Investigators boarded the Polar Prince, which docked at the Atlantic headquarters of the Canadian Coast Guard, looking for answers.`\
-https://nytimes.com/2023/06/24/world/canada/polar-prince-titan-newfoundland.html?searchResultPosition=4
+https://nytimes.com/2023/06/24/world/canada/polar-prince-titan-newfoundland.html?searchResultPosition=5
 
 **How a Crypto Fugitive Upended the Politics of a Troubled Balkan Nation**\
 `Only days before an election in Montenegro, a letter from Do Kwon, the fugitive founder of the Luna digital coin, claimed that crypto “friends” had provided campaign funding to a leading candidate.`\
-https://nytimes.com/2023/06/24/world/europe/montenegro-do-kwon-crypto.html?searchResultPosition=5
+https://nytimes.com/2023/06/24/world/europe/montenegro-do-kwon-crypto.html?searchResultPosition=6
 
 **Extreme Floods and Heat in China Ravage Farms and Kill Animals**\
 `China’s leader has made it a national priority to ensure the country can feed its large population. But weather shocks have disrupted wheat harvests and threatened pig and fish farming.`\
-https://nytimes.com/2023/06/24/world/asia/extreme-weather-china-food.html?searchResultPosition=6
+https://nytimes.com/2023/06/24/world/asia/extreme-weather-china-food.html?searchResultPosition=7
 
 **The Hollywood Producer Who Could Bring Down Israel’s Netanyahu**\
 `Arnon Milchan, the movie mogul, billionaire spy and old friend of Benjamin Netanyahu, is about to testify at the Israeli prime minister’s corruption trial.`\
-https://nytimes.com/2023/06/24/world/middleeast/israel-netanyahu-corruption-milchan.html?searchResultPosition=7
+https://nytimes.com/2023/06/24/world/middleeast/israel-netanyahu-corruption-milchan.html?searchResultPosition=8
 
 **Republicans Serve Up Red Meat for a Reason**\
 `Why haven’t we heard a serious discussion on climate change from G.O.P. candidates?`\
-https://nytimes.com/2023/06/24/opinion/republicans-2024-climate-change-base.html?searchResultPosition=8
+https://nytimes.com/2023/06/24/opinion/republicans-2024-climate-change-base.html?searchResultPosition=9
 
 **Paul Ickovic, Photographer at Home on the Street, Dies at 79**\
 `His camera captured the variety of the human experience, but changing tastes in photography kept him from the acclaim he sought — as did his own idiosyncrasies.`\
-https://nytimes.com/2023/06/24/arts/paul-ickovic-dead.html?searchResultPosition=9
-
-**Top Russian General Calls Wagner Rebellion a ‘Coup’**\
-`In a video posted Saturday and filmed from an undisclosed location, Vladimir Alekseyev, Russia’s deputy military intelligence director, called the Wagner private military group’s actions in Rostov-on-Don a “stab in the back” and “a coup.”`\
-https://nytimes.com/video/world/europe/100000008968899/top-russian-general-calls-wagner-rebellion-a-coup.html?searchResultPosition=10
+https://nytimes.com/2023/06/24/arts/paul-ickovic-dead.html?searchResultPosition=10
 
