@@ -1,4 +1,4 @@
-**President Putin Calls Wagner Chief’s Rebellion ‘Treasonous’**\
+**Putin Addresses Nation Over Rebellion**\
 `In a five-minute address to the Russian nation, President Vladimir V. Putin called the armed rebellion by the head of the Wagner paramilitary group “a betrayal of our people.”`\
 https://nytimes.com/video/world/europe/100000008968845/president-putin-calls-wagner-chiefs-rebellion-treasonous.html?searchResultPosition=1
 
