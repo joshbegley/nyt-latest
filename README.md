@@ -1,40 +1,40 @@
+**What to Know About the Election in Sierra Leone**\
+`In Saturday’s vote, President Julius Maada Bio is seeking a second five-year term to pursue an ambitious if unfulfilled education initiative, while the country is facing a crippling economic crisis.`\
+https://nytimes.com/article/sierra-leone-election.html?searchResultPosition=1
+
+**After Extra Large Rate Increase, Bank of England’s Critics Multiply**\
+`Pressure is building in Britain for the bank’s governor, Andrew Bailey, to show that policymakers have a handle on the inflation problem.`\
+https://nytimes.com/2023/06/24/business/bank-of-england-inflation.html?searchResultPosition=2
+
+**In N.Y. Primaries, Democrats Face a Swell of Challengers From the Right**\
+`The Queens district attorney and several City Council members face more conservative challengers who are criticizing them on issues including public safety.`\
+https://nytimes.com/2023/06/24/nyregion/ny-primaries-democrats.html?searchResultPosition=3
+
+**Harvard Scholar Who Studies Honesty Is Accused of Fabricating Findings**\
+`Questions about a widely cited paper are the latest to be raised about methods used in behavioral research.`\
+https://nytimes.com/2023/06/24/business/economy/francesca-gino-harvard-dishonesty.html?searchResultPosition=4
+
+**Today’s Wordle Review**\
+`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
+https://nytimes.com/2023/06/24/crosswords/wordle-review-answer-735.html?searchResultPosition=5
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2023/06/24/crosswords/spelling-bee-forum.html?searchResultPosition=6
+
 **What’s happening in Russia? Here’s what we know.**\
 `The Wagner chief’s broadside against the Russian military establishment has escalated tensions drastically, but it’s not yet clear how much of a threat the situation poses to the Kremlin.`\
-https://nytimes.com/2023/06/24/world/europe/russia-prigozhin-wagner-chief-rostov.html?searchResultPosition=1
+https://nytimes.com/2023/06/24/world/europe/russia-prigozhin-wagner-chief-rostov.html?searchResultPosition=7
 
 **Videos show the scene as Wagner fighters surround Russian military headquarters**\
 `Men in military uniforms, whom filmers and bystanders identified as Wagner fighters, surrounded and then occupied a Russian military headquarters compound in the city of Rostov-on-Don on June 24.`\
-https://nytimes.com/video/world/asia/100000008968718/videos-show-the-scene-as-wagner-fighters-surround-russian-military-headquarters.html?searchResultPosition=2
+https://nytimes.com/video/world/asia/100000008968718/videos-show-the-scene-as-wagner-fighters-surround-russian-military-headquarters.html?searchResultPosition=8
 
 **Wagner Chief Prigozhin Appears in Videos at a Russian Military Headquarters**\
 `The head of the mercenary group claimed to have control of parts of the complex in the southern city of Rostov-on-Don.`\
-https://nytimes.com/2023/06/24/world/europe/prigozhin-videos-rostov.html?searchResultPosition=3
+https://nytimes.com/2023/06/24/world/europe/prigozhin-videos-rostov.html?searchResultPosition=9
 
 **Corrections: June 24, 2023**\
 `Corrections that appeared in print on Saturday, June 24, 2023.`\
-https://nytimes.com/2023/06/24/pageoneplus/corrections-june-24-2023.html?searchResultPosition=4
-
-**Quotation of the Day: If You Can Outrun the Green Flashes, You’ll Set a Record**\
-`Quotation of the Day for Saturday, June 24, 2023.`\
-https://nytimes.com/2023/06/24/pageoneplus/quotation-of-the-day-if-you-can-outrun-the-green-flashes-youll-set-a-record.html?searchResultPosition=5
-
-**Debris From Russian Missile Kills Three in Kyiv Apartment Building**\
-`The capital came under attack as anxiety grew in Russia over a confrontation between Yevgeny V. Prigozhin, the founder of the Wagner mercenary group, and Moscow’s military leadership.`\
-https://nytimes.com/2023/06/24/world/europe/kyiv-deadly-attack.html?searchResultPosition=6
-
-**Prosecutors Seek to Delay Trump Documents Trial to December**\
-`The special counsel argued that the August date set by the judge did not allow enough time to deal with the complications of classified evidence, but still proposed a relatively speedy timetable.`\
-https://nytimes.com/2023/06/23/us/politics/trump-documents-trial-delay.html?searchResultPosition=7
-
-**Hollywood Directors Ratify Their Contract as Writers Continue to Strike**\
-`The vote prevented the doomsday scenario of three major Hollywood unions striking simultaneously. The actors’ union is still negotiating.`\
-https://nytimes.com/2023/06/23/business/media/hollywood-directors-ratify-contract.html?searchResultPosition=8
-
-**Line on a Map?**\
-`Spencer Leach and Quiara Vasquez combine forces on a scintillating Saturday challenge.`\
-https://nytimes.com/2023/06/23/crosswords/daily-puzzle-2023-06-24.html?searchResultPosition=9
-
-**Who is Yevgeny Prigozhin, the mercenary leader Russia accused of mounting a coup?**\
-`Mr. Prigozhin has risen from a businessmen known as President Vladimir V. Putin’s ‘chef’ to a symbol of wartime Russia, controlling a private army operating from Ukraine to Central African Republic.`\
-https://nytimes.com/2023/06/23/world/europe/yevgeny-prigozhin-russia-wagner-coup.html?searchResultPosition=10
+https://nytimes.com/2023/06/24/pageoneplus/corrections-june-24-2023.html?searchResultPosition=10
 
