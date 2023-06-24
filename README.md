@@ -1,40 +1,40 @@
+**What’s happening in Russia? Here’s what we know.**\
+`The Wagner chief’s broadside against the Russian military establishment has escalated tensions drastically, but it’s not yet clear how much of a threat the situation poses to the Kremlin.`\
+https://nytimes.com/2023/06/24/world/europe/russia-prigozhin-wagner-chief-rostov.html?searchResultPosition=1
+
 **Videos show the scene as Wagner fighters surround Russian military headquarters**\
 `Men in military uniforms, whom filmers and bystanders identified as Wagner fighters, surrounded and then occupied a Russian military headquarters compound in the city of Rostov-on-Don on June 24.`\
-https://nytimes.com/video/world/asia/100000008968718/videos-show-the-scene-as-wagner-fighters-surround-russian-military-headquarters.html?searchResultPosition=1
+https://nytimes.com/video/world/asia/100000008968718/videos-show-the-scene-as-wagner-fighters-surround-russian-military-headquarters.html?searchResultPosition=2
 
 **Wagner Chief Prigozhin Appears in Videos at a Russian Military Headquarters**\
 `The head of the mercenary group claimed to have control of parts of the complex in the southern city of Rostov-on-Don.`\
-https://nytimes.com/2023/06/24/world/europe/prigozhin-videos-rostov.html?searchResultPosition=2
+https://nytimes.com/2023/06/24/world/europe/prigozhin-videos-rostov.html?searchResultPosition=3
 
 **Corrections: June 24, 2023**\
 `Corrections that appeared in print on Saturday, June 24, 2023.`\
-https://nytimes.com/2023/06/24/pageoneplus/corrections-june-24-2023.html?searchResultPosition=3
+https://nytimes.com/2023/06/24/pageoneplus/corrections-june-24-2023.html?searchResultPosition=4
 
 **Quotation of the Day: If You Can Outrun the Green Flashes, You’ll Set a Record**\
 `Quotation of the Day for Saturday, June 24, 2023.`\
-https://nytimes.com/2023/06/24/pageoneplus/quotation-of-the-day-if-you-can-outrun-the-green-flashes-youll-set-a-record.html?searchResultPosition=4
+https://nytimes.com/2023/06/24/pageoneplus/quotation-of-the-day-if-you-can-outrun-the-green-flashes-youll-set-a-record.html?searchResultPosition=5
 
 **Debris From Russian Missile Kills Three in Kyiv Apartment Building**\
 `The capital came under attack as anxiety grew in Russia over a confrontation between Yevgeny V. Prigozhin, the founder of the Wagner mercenary group, and Moscow’s military leadership.`\
-https://nytimes.com/2023/06/24/world/europe/kyiv-deadly-attack.html?searchResultPosition=5
+https://nytimes.com/2023/06/24/world/europe/kyiv-deadly-attack.html?searchResultPosition=6
 
 **Prosecutors Seek to Delay Trump Documents Trial to December**\
 `The special counsel argued that the August date set by the judge did not allow enough time to deal with the complications of classified evidence, but still proposed a relatively speedy timetable.`\
-https://nytimes.com/2023/06/23/us/politics/trump-documents-trial-delay.html?searchResultPosition=6
+https://nytimes.com/2023/06/23/us/politics/trump-documents-trial-delay.html?searchResultPosition=7
 
 **Hollywood Directors Ratify Their Contract as Writers Continue to Strike**\
 `The vote prevented the doomsday scenario of three major Hollywood unions striking simultaneously. The actors’ union is still negotiating.`\
-https://nytimes.com/2023/06/23/business/media/hollywood-directors-ratify-contract.html?searchResultPosition=7
+https://nytimes.com/2023/06/23/business/media/hollywood-directors-ratify-contract.html?searchResultPosition=8
 
 **Line on a Map?**\
 `Spencer Leach and Quiara Vasquez combine forces on a scintillating Saturday challenge.`\
-https://nytimes.com/2023/06/23/crosswords/daily-puzzle-2023-06-24.html?searchResultPosition=8
+https://nytimes.com/2023/06/23/crosswords/daily-puzzle-2023-06-24.html?searchResultPosition=9
 
 **Who is Yevgeny Prigozhin, the mercenary leader Russia accused of mounting a coup?**\
 `Mr. Prigozhin has risen from a businessmen known as President Vladimir V. Putin’s ‘chef’ to a symbol of wartime Russia, controlling a private army operating from Ukraine to Central African Republic.`\
-https://nytimes.com/2023/06/23/world/europe/yevgeny-prigozhin-russia-wagner-coup.html?searchResultPosition=9
-
-**U.S. Intelligence Agencies Remain Divided Over Lab Leak Theory**\
-`A declassified report says that the illnesses of three laboratory researchers in 2019 do not support or refute the theory that the virus that causes Covid could have slipped out of a lab.`\
-https://nytimes.com/2023/06/23/us/politics/covid-lab-leak-wuhan-report.html?searchResultPosition=10
+https://nytimes.com/2023/06/23/world/europe/yevgeny-prigozhin-russia-wagner-coup.html?searchResultPosition=10
 
