@@ -3,7 +3,7 @@
 https://nytimes.com/2023/06/23/us/politics/trump-documents-trial-delay.html?searchResultPosition=1
 
 **Hollywood Directors Ratify Their Contract as Writers Continue to Strike**\
-`The vote prevented the doomsday scenario of three major Hollywood unions striking simultaneously. The writers’ union vowed to fight on.`\
+`The vote prevented the doomsday scenario of three major Hollywood unions striking simultaneously. The actors’ union is still negotiating.`\
 https://nytimes.com/2023/06/23/business/media/hollywood-directors-ratify-contract.html?searchResultPosition=2
 
 **Line on a Map?**\
