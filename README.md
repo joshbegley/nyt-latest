@@ -1,40 +1,40 @@
-**What to Know About the Election in Sierra Leone**\
-`In Saturday’s vote, President Julius Maada Bio is seeking a second five-year term to pursue an ambitious if unfulfilled education initiative, while the country is facing a crippling economic crisis.`\
-https://nytimes.com/article/sierra-leone-election.html?searchResultPosition=1
+**In the U.S., an Accomplished Cuban Boxer Takes His First Pro Steps**\
+`Andy Cruz won a gold medal at the Tokyo Olympics for Cuba. Now he’s learning to fight like a professional in Philadelphia.`\
+https://nytimes.com/2023/06/24/sports/boxing-cuba-andy-cruz.html?searchResultPosition=1
 
-**After Extra Large Rate Increase, Bank of England’s Critics Multiply**\
-`Pressure is building in Britain for the bank’s governor, Andrew Bailey, to show that policymakers have a handle on the inflation problem.`\
-https://nytimes.com/2023/06/24/business/bank-of-england-inflation.html?searchResultPosition=2
+**Greek Youths, Shaped by Debt Crisis, Plan to Vote for Stability**\
+`Many children of Greece’s traumatic years of economic collapse have opted for pragmatism over radicalism and say they will back a conservative on Sunday.`\
+https://nytimes.com/2023/06/24/world/europe/greece-election-youths.html?searchResultPosition=2
 
-**In N.Y. Primaries, Democrats Face a Swell of Challengers From the Right**\
-`The Queens district attorney and several City Council members face more conservative challengers who are criticizing them on issues including public safety.`\
-https://nytimes.com/2023/06/24/nyregion/ny-primaries-democrats.html?searchResultPosition=3
+**Why Hunter, Britain’s Best Known Wellie, Fell From Grace**\
+`Blaming supply chains, inflation and changing weather patterns, the Wellington boot brand stumbled toward the brink of extinction this week. Can it be saved by a new (American) owner?`\
+https://nytimes.com/2023/06/24/fashion/why-hunter-britains-best-known-wellie-fell-from-grace.html?searchResultPosition=3
 
-**Harvard Scholar Who Studies Honesty Is Accused of Fabricating Findings**\
-`Questions about a widely cited paper are the latest to be raised about methods used in behavioral research.`\
-https://nytimes.com/2023/06/24/business/economy/francesca-gino-harvard-dishonesty.html?searchResultPosition=4
+**Family Politics as a Predictor of Mayhem on a Bigger Scale**\
+`In her new novel, “Little Monsters,” Adrienne Brodeur takes readers on a stressful march toward a patriarch’s 70th birthday party.`\
+https://nytimes.com/2023/06/24/books/review/little-monsters-adrienne-brodeur.html?searchResultPosition=4
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/06/24/crosswords/wordle-review-answer-735.html?searchResultPosition=5
+**What Is Love? For This Fractured Family, the Answer Is Not So Clear.**\
+`In Thao Thai’s debut novel, “Banyan Moon,” the contentious relationship between a mother and daughter comes to a head when their family’s beloved matriarch dies.`\
+https://nytimes.com/2023/06/24/books/review/banyan-moon-thao-thai.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/06/24/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**Tiny Bundles of Hope: Critically Endangered Turtles Hatch in Myanmar**\
+`Local conservationists at Indawgyi Lake captured the first known videos of rare Burmese peacock turtles hatching.`\
+https://nytimes.com/2023/06/24/climate/tiny-bundles-of-hope-critically-endangered-turtles-hatch-in-myanmar.html?searchResultPosition=6
 
-**What’s happening in Russia? Here’s what we know.**\
-`The Wagner chief’s broadside against the Russian military establishment has escalated tensions drastically, but it isn’t yet clear how much of a threat the situation poses to the Kremlin.`\
-https://nytimes.com/2023/06/24/world/europe/russia-prigozhin-wagner-chief-rostov.html?searchResultPosition=7
+**Saudi Arabia Wants Tourists. It Didn’t Expect Christians.**\
+`In a fluid new age for the conservative Islamic kingdom, evangelicals have become some of its most enthusiastic visitors.`\
+https://nytimes.com/2023/06/24/world/middleeast/saudi-arabia-christian-tourists.html?searchResultPosition=7
 
-**Video Shows Wagner Fighters Surrounding Military Headquarters**\
-`Men in military uniforms, whom filmers and bystanders identified as Wagner fighters, surrounded and then occupied a Russian military headquarters compound in the city of Rostov-on-Don on June 24.`\
-https://nytimes.com/video/world/asia/100000008968718/videos-show-the-scene-as-wagner-fighters-surround-russian-military-headquarters.html?searchResultPosition=8
+**This City Had Quietly Celebrated Pride Before. In 2023, That Was Not an Option.**\
+`After right-wing activists portrayed a Pride event in Franklin, Tenn., as a threat to children, the small city unexpectedly found itself at the center of a backlash.`\
+https://nytimes.com/2023/06/24/us/politics/franklin-tennessee-pride.html?searchResultPosition=8
 
-**Wagner Chief Prigozhin Appears in Videos at a Russian Military Headquarters**\
-`The head of the mercenary group claimed to have control of parts of the complex in the southern city of Rostov-on-Don.`\
-https://nytimes.com/2023/06/24/world/europe/prigozhin-videos-rostov.html?searchResultPosition=9
+**‘Padam Padam’: You Hear It and You Know It’s Pride**\
+`Kylie Minogue’s latest single appears to be on the fast track to gay-classic status. We asked D.J.s booked for Pride events to weigh in on the track’s devoted cult following.`\
+https://nytimes.com/2023/06/24/style/padam-padam-pride.html?searchResultPosition=9
 
-**Corrections: June 24, 2023**\
-`Corrections that appeared in print on Saturday, June 24, 2023.`\
-https://nytimes.com/2023/06/24/pageoneplus/corrections-june-24-2023.html?searchResultPosition=10
+**Top 10 Hardest and Easiest Spelling Bee Words, June 17-23**\
+`In pursuit of Queen Bee, it was good to find “king” and hard to find “nankeen.”`\
+https://nytimes.com/2023/06/24/upshot/spelling-bee-words.html?searchResultPosition=10
 
