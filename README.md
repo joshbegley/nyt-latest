@@ -23,7 +23,7 @@ https://nytimes.com/2023/06/24/crosswords/wordle-review-answer-735.html?searchRe
 https://nytimes.com/2023/06/24/crosswords/spelling-bee-forum.html?searchResultPosition=6
 
 **What’s happening in Russia? Here’s what we know.**\
-`The Wagner chief’s broadside against the Russian military establishment has escalated tensions drastically, but it’s not yet clear how much of a threat the situation poses to the Kremlin.`\
+`The Wagner chief’s broadside against the Russian military establishment has escalated tensions drastically, but it isn’t yet clear how much of a threat the situation poses to the Kremlin.`\
 https://nytimes.com/2023/06/24/world/europe/russia-prigozhin-wagner-chief-rostov.html?searchResultPosition=7
 
 **Videos show the scene as Wagner fighters surround Russian military headquarters**\
