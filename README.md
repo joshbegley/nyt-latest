@@ -1,6 +1,6 @@
 **Tracking the Military Convoys Approaching Moscow**\
 `Fighting has broken out in at least two places along the convoys’ route.`\
-https://nytimes.com/2023/06/24/world/europe/tracking-the-military-convoys-approaching-moscow.html?searchResultPosition=1
+https://nytimes.com/2023/06/24/world/europe/wagner-moscow-russia-map.html?searchResultPosition=1
 
 **Ship That Launched Ill-Fated Titan Submersible Returns to Newfoundland**\
 `Investigators boarded the Polar Prince, which docked at the Atlantic headquarters of the Canadian Coast Guard, looking for answers.`\
