@@ -1,5 +1,5 @@
 **Tracking the Military Convoys on the Route to Moscow**\
-`Fighting has broken out in at least two places along the convoys’ route.`\
+`Wagner’s leader announced that his troops marching on Moscow would “turn around.”`\
 https://nytimes.com/2023/06/24/world/europe/wagner-moscow-russia-map.html?searchResultPosition=1
 
 **Ship That Launched Ill-Fated Titan Submersible Returns to Newfoundland**\
