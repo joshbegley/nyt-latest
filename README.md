@@ -6,9 +6,9 @@ https://nytimes.com/2023/06/24/us/montana-train-derailment-yellowstone.html?sear
 `The armed standoff on the road to Moscow, brief as it was, represented the most dramatic struggle for power in Russia in decades.`\
 https://nytimes.com/2023/06/24/us/politics/us-russia-putin.html?searchResultPosition=2
 
-**U.S. Suspected Prigozhin Was Preparing to Take Military Action Against Russia**\
+**U.S. Was Aware Prigozhin Was Preparing to Take Military Action Against Russia**\
 `The information was considered both solid and alarming because of the possibility that a major nuclear-armed rival of the United States could descend into chaos.`\
-https://nytimes.com/2023/06/24/world/europe/us-suspected-prigozhin-was-preparing-to-take-military-action-against-russia.html?searchResultPosition=3
+https://nytimes.com/2023/06/24/world/europe/us-intel-prigozhin-warning.html?searchResultPosition=3
 
 **Victor Wembanyama Buzz Has San Antonio Businesses Eager to Cash In**\
 `The Spurs selected Wembanyama, a French basketball star, No. 1 overall in the N.B.A. draft on Thursday. San Antonio has been celebrating for weeks.`\
