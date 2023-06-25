@@ -3,7 +3,7 @@
 https://nytimes.com/2023/06/25/us/texas-heat-wave.html?searchResultPosition=1
 
 **Blinken Says Wagner Rebellion Shows the Cracks in Putin’s Power**\
-`A brief revolt by the leader of the Wagner mercenary group was a challenge to the authority of Russian President Vladimir Putin, the secretary of state said during TV appearances on Sunday.`\
+`A brief revolt by the leader of the Wagner mercenary group was a challenge to the authority of President Vladimir Putin of Russia, the secretary of state said during TV appearances on Sunday.`\
 https://nytimes.com/2023/06/25/world/europe/blinken-russia-prigozhin-wagner.html?searchResultPosition=2
 
 **A Séance With Ryuichi Sakamoto at the Shed**\
