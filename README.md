@@ -1,40 +1,40 @@
+**He Tried to Save a Friend. They Charged Him With Murder.**\
+`They bought $30 worth of fentanyl before making it into rehab. One overdosed. The other was charged in his death.`\
+https://nytimes.com/2023/06/25/us/fentanyl-murder-charge.html?searchResultPosition=1
+
+**Today’s Wordle Review**\
+`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
+https://nytimes.com/2023/06/25/crosswords/wordle-review-answer-736.html?searchResultPosition=2
+
+**How Far Would You Go for Midcentury Furniture?**\
+`The owners of Lanoba, a shop that specializes in Danish modern design, find most pieces by going door to door.`\
+https://nytimes.com/2023/06/25/style/danish-midcentury-modern-furniture-lanoba.html?searchResultPosition=3
+
+**A Badge of Solidarity**\
+`The U.S. government named 22 defendants in its suit to stop The Times from publishing the Pentagon Papers. Two Times journalists designed a way to show support for their colleagues.`\
+https://nytimes.com/2023/06/25/insider/pentagon-papers-times-solidarity.html?searchResultPosition=4
+
+**He Was Handcuffed and Hospitalized. Now He’s on Track for Housing.**\
+`A contentious New York City policy to send more mentally ill homeless people to hospitals has helped some move into permanent homes.`\
+https://nytimes.com/2023/06/25/nyregion/mentally-ill-homeless-nyc.html?searchResultPosition=5
+
+**‘His Friends Joined In Excitedly and Filmed the Encounter’**\
+`A birthday on the 1 train, a terrific coat stands out and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2023/06/25/nyregion/metropolitan-diary.html?searchResultPosition=6
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2023/06/25/crosswords/spelling-bee-forum.html?searchResultPosition=7
+
+**Ahead of New York Pride Parade, Worries About L.G.B.T.Q. Rights**\
+`Support for L.G.B.T.Q. people has risen, but so have attacks against them, even in a city known for the strength of its community.`\
+https://nytimes.com/2023/06/25/nyregion/nyc-pride-march.html?searchResultPosition=8
+
 **Corrections: June 25, 2023**\
 `Corrections that appeared in print on Sunday, June 25, 2023.`\
-https://nytimes.com/2023/06/25/pageoneplus/corrections-june-25-2023.html?searchResultPosition=1
+https://nytimes.com/2023/06/25/pageoneplus/corrections-june-25-2023.html?searchResultPosition=9
 
 **Quotation of the Day: H. Lee Sarokin, 94, Judge Who Freed ‘Hurricane’ Carter, Is Dead**\
 `Quotation of the Day for Sunday, June 25, 2023.`\
-https://nytimes.com/2023/06/25/pageoneplus/quotation-of-the-day-h-lee-sarokin-94-judge-who-freed-hurricane-carter-is-dead.html?searchResultPosition=2
-
-**‘Everybody in the N.F.L. Understands That It’s a Violent Game.’**\
-`Luke Kuechly retired from the N.F.L. while at his peak and has worked to raise awareness of brain trauma. The former linebacker discussed his love for football and what he tells parents of the 12-year-olds he coaches.`\
-https://nytimes.com/2023/06/25/sports/football/luke-kuechly-retired-football-concussions.html?searchResultPosition=3
-
-**In Pitch to Evangelicals, Trump Casts Himself as Christian Crusader Who Helped End Roe v. Wade**\
-`Former President Donald J. Trump told an evangelical gathering that no president had done more for Christians than he did.`\
-https://nytimes.com/2023/06/24/us/politics/trump-abortion-evangelicals.html?searchResultPosition=4
-
-**How a Rebellion in Russia Unfolded Over 36 Hours**\
-`From 11 a.m. Friday to 11 p.m. Saturday, here are the key events from Yevgeny V. Prigozhin’s armed uprising.`\
-https://nytimes.com/interactive/2023/06/24/world/europe/prigozhin-putin-russia.html?searchResultPosition=5
-
-**Montana Derailment Sends at Least 7 Freight Cars Into the Yellowstone River**\
-`Three cars with hot asphalt and four cars with molten sulfur fell into the river after a Montana Rail Link train derailed and a bridge collapsed on Saturday, officials said.`\
-https://nytimes.com/2023/06/24/us/montana-train-derailment-yellowstone.html?searchResultPosition=6
-
-**Short-Lived Mutiny in Russia Sheds Light on Putin’s Hold on Power**\
-`The armed standoff on the road to Moscow, brief as it was, represented the most dramatic struggle for power in Russia in decades.`\
-https://nytimes.com/2023/06/24/us/politics/us-russia-putin.html?searchResultPosition=7
-
-**U.S. Suspected Prigozhin Was Preparing to Take Military Action Against Russia**\
-`The information was considered both solid and alarming because of the possibility that a major nuclear-armed rival of the United States could descend into chaos.`\
-https://nytimes.com/2023/06/24/world/europe/us-intel-prigozhin-warning.html?searchResultPosition=8
-
-**Victor Wembanyama Buzz Has San Antonio Businesses Eager to Cash In**\
-`The Spurs selected Wembanyama, a French basketball star, No. 1 overall in the N.B.A. draft on Thursday. San Antonio has been celebrating for weeks.`\
-https://nytimes.com/2023/06/24/sports/basketball/victor-wembanyama-san-antonio-spurs.html?searchResultPosition=9
-
-**Three San Antonio Police Officers Charged With Murder in Woman’s Shooting Death**\
-`The officers fired at Melissa Perez after responding to a call outside her home.`\
-https://nytimes.com/2023/06/24/us/san-antonio-police-shooting-murder-charges.html?searchResultPosition=10
+https://nytimes.com/2023/06/25/pageoneplus/quotation-of-the-day-h-lee-sarokin-94-judge-who-freed-hurricane-carter-is-dead.html?searchResultPosition=10
 
