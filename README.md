@@ -2,8 +2,8 @@
 `Record-setting temperatures above 100 degrees are expected to linger across much of the state well into the coming week.`\
 https://nytimes.com/2023/06/25/us/texas-heat-wave.html?searchResultPosition=1
 
-**The short-lived rebellion in Russia shows cracks in Putin’s power, Blinken says.**\
-`The White House and military leaders were closely monitoring developments in Russia following what appeared to be an aborted coup by the leader of the Wagner mercenary group.`\
+**Blinken Says Wagner Rebellion Shows the Cracks in Putin’s Power**\
+`A brief revolt by the leader of the Wagner mercenary group was a challenge to the authority of Russian President Vladimir Putin, the secretary of state said during TV appearances on Sunday.`\
 https://nytimes.com/2023/06/25/world/europe/blinken-russia-prigozhin-wagner.html?searchResultPosition=2
 
 **A Séance With Ryuichi Sakamoto at the Shed**\
