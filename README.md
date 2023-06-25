@@ -1,40 +1,40 @@
+**After the Club Q Shooting, Questions of Money and Justice for Victims**\
+`Just before they are set to face the accused shooter in court, some survivors of the Colorado mass shooting are frustrated over payouts from a fund to help them.`\
+https://nytimes.com/2023/06/25/us/club-q-survivors-colorado-springs-.html?searchResultPosition=1
+
 **Can Everyone Take a Sabbatical?**\
 `We all need a rest.`\
-https://nytimes.com/2023/06/25/opinion/sabbatical-work-life-balance.html?searchResultPosition=1
+https://nytimes.com/2023/06/25/opinion/sabbatical-work-life-balance.html?searchResultPosition=2
 
 **Hollywood Tycoon Testifies in Netanyahu’s Corruption Trial**\
 `Arnon Milchan, a movie mogul, billionaire spy and old friend of Prime Minister Benjamin Netanyahu of Israel, is a key witness. He gave the Netanyahus gifts, he said, sometimes at their request.`\
-https://nytimes.com/2023/06/25/world/middleeast/netanyahu-milchan-corruption-trial.html?searchResultPosition=2
+https://nytimes.com/2023/06/25/world/middleeast/netanyahu-milchan-corruption-trial.html?searchResultPosition=3
 
 **Overlooked No More: Dolores Alexander, Feminist Journalist and Activist**\
 `She was a reporter, executive director of the National Organization for Women and owner of the restaurant Mother Courage, which became a hub for women.`\
-https://nytimes.com/2023/06/25/obituaries/dolores-alexander-overlooked.html?searchResultPosition=3
+https://nytimes.com/2023/06/25/obituaries/dolores-alexander-overlooked.html?searchResultPosition=4
 
 **Crisis Abated**\
 `Vladimir Putin averted a threat that came closer than anything else has to endangering his hold on power.`\
-https://nytimes.com/2023/06/25/briefing/russia-crisis-putin-prigozhin.html?searchResultPosition=4
+https://nytimes.com/2023/06/25/briefing/russia-crisis-putin-prigozhin.html?searchResultPosition=5
 
 **The Pittsburgh Gunman Didn’t Just Kill 11 Jews. He Killed a Minyan.**\
 `Jews need 10 Jews to pray. When one of the 10 is killed, our religious practice is radically altered.`\
-https://nytimes.com/2023/06/25/opinion/the-pittsburgh-gunman-didnt-just-kill-11-jews-he-killed-a-minyan.html?searchResultPosition=5
+https://nytimes.com/2023/06/25/opinion/the-pittsburgh-gunman-didnt-just-kill-11-jews-he-killed-a-minyan.html?searchResultPosition=6
 
 **It’s Not Too Late for the Republican Party**\
 `The G.O.P. needs to have the reckoning with Trump that it vainly hoped would never be necessary.`\
-https://nytimes.com/2023/06/25/opinion/trump-republican-party.html?searchResultPosition=6
+https://nytimes.com/2023/06/25/opinion/trump-republican-party.html?searchResultPosition=7
 
 **Death and Displacement Return to Darfur**\
 `The violent conflict in Sudan is expanding quickly.`\
-https://nytimes.com/2023/06/25/opinion/darfur-sudan-war-genocide.html?searchResultPosition=7
+https://nytimes.com/2023/06/25/opinion/darfur-sudan-war-genocide.html?searchResultPosition=8
 
 **The Legal Foundation of Women’s Sports Is Under Fire**\
 `Evidence is overwhelming that there is a significant average difference between male and female athletic performance.`\
-https://nytimes.com/2023/06/25/opinion/womens-sports-under-fire.html?searchResultPosition=8
+https://nytimes.com/2023/06/25/opinion/womens-sports-under-fire.html?searchResultPosition=9
 
 **As a Gay Man, I’ll Never Be Normal**\
 `As a closeted teen, I prayed fervently to be normal. What I was really praying for is comfort.`\
-https://nytimes.com/2023/06/25/opinion/as-a-gay-man-ill-never-be-normal.html?searchResultPosition=9
-
-**A Vast Lake Has Captivated California Where Farms Stood a Year Ago**\
-`Tulare Lake re-emerged after intense storms battered the state this winter, and will likely remain in the Central Valley for months — and maybe years — to come.`\
-https://nytimes.com/2023/06/25/us/california-storms-tulare-lake.html?searchResultPosition=10
+https://nytimes.com/2023/06/25/opinion/as-a-gay-man-ill-never-be-normal.html?searchResultPosition=10
 
