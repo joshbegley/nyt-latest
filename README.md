@@ -26,8 +26,8 @@ https://nytimes.com/2023/06/25/obituaries/harry-m-markowitz-dead.html?searchResu
 `Mr. Sands, 65, was reported missing in January after he went hiking alone on a trail on Mount Baldy in Southern California.`\
 https://nytimes.com/2023/06/25/us/julian-sands-search-california-remains.html?searchResultPosition=7
 
-**Belarus President Lukashenko May Be the Rebellion’s Biggest Winner**\
-`Aleksandr Lukashenko’s role in the deal to end the revolt by the Wagner paramilitary group has given him the opportunity to reclaim some of his rapidly eroding sovereignty.`\
+**One Big Winner of Kremlin-Wagner Clash? The Dictator Next Door.**\
+`The strongman leader of Belarus, a dependable ally of Vladimir Putin’s, may see a chance to rebrand himself as a statesman.`\
 https://nytimes.com/2023/06/25/world/europe/belarus-lukashenko-russia-wagner.html?searchResultPosition=8
 
 **At 80, Meredith Monk Is Still Seeking Ways to Communicate**\
