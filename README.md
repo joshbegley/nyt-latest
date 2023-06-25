@@ -2,8 +2,8 @@
 `Supporters and party officials from the All Peoples’ Congress were sifting through polling data from the presidential vote when the military surrounded party headquarters.`\
 https://nytimes.com/2023/06/25/world/africa/sierra-leone-election-violence.html?searchResultPosition=1
 
-**Tornadoes Strike Indiana City, Destroying Buildings**\
-`An official in Martin County, Ind., said that teams were searching for victims.`\
+**Storms Strike Indiana, Killing at Least 1**\
+`An official in Martin County, Ind., said that one person died and another was injured, but that rescuers were continuing to search for victims.`\
 https://nytimes.com/2023/06/25/us/indiana-tornado-storm-hail.html?searchResultPosition=2
 
 **Gripped by Uncertainty After Mutiny, Russians Note Absence of Kremlin Leaders**\
