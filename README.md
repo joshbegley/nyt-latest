@@ -7,7 +7,7 @@ https://nytimes.com/2023/06/25/us/politics/wagner-future-ukraine-war.html?search
 https://nytimes.com/2023/06/25/world/europe/greece-election-kyriakos-mitsotakis.html?searchResultPosition=2
 
 **In Texas, Heat That Can Make You Faint**\
-`Record-setting temperatures above 100 degrees are expected to linger across much of the state well into the coming week.`\
+`Soaring temperatures above 100 degrees are expected to linger across much of the state well into the coming week.`\
 https://nytimes.com/2023/06/25/us/texas-heat-wave.html?searchResultPosition=3
 
 **Blinken Says Wagner Rebellion Shows the Cracks in Putin’s Power**\
