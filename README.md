@@ -1,5 +1,5 @@
 **Tornadoes Strike Indiana City, Destroying Buildings**\
-`An official in Martin County, Ind. said that teams were searching for victims.`\
+`An official in Martin County, Ind., said that teams were searching for victims.`\
 https://nytimes.com/2023/06/25/us/indiana-tornado-storm-hail.html?searchResultPosition=1
 
 **Gripped by Uncertainty After Mutiny, Russians Note Absence of Kremlin Leaders**\
