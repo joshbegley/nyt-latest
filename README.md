@@ -1,5 +1,5 @@
 **With Resounding Win in Greece, Kyriakos Mitsotakis Tightens Grip on Power**\
-`His party’s election victory comes as the country experiences strong economic growth, with voters seemingly willing to look past scandals and disasters that have tarnished his government.`\
+`His party’s landslide victory comes as the country experiences strong economic growth, with voters seemingly willing to look past scandals and disasters that have tarnished his government.`\
 https://nytimes.com/2023/06/25/world/europe/greece-election-kyriakos-mitsotakis.html?searchResultPosition=1
 
 **In Texas, Heat That Can Make You Faint**\
