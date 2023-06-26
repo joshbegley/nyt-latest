@@ -24,7 +24,7 @@ https://nytimes.com/video/us/politics/100000008970372/biden-russia-wagner.html?s
 
 **Anticorruption Candidate’s Strong Showing Upends Guatemala’s Presidential Race**\
 `Bernardo Arévalo, a professorial lawmaker, stunned the country’s establishment by advancing to a second round against Sandra Torres, a former first lady.`\
-https://nytimes.com/2023/06/26/world/guatemala-election-runoff-arevalo.html?searchResultPosition=7
+https://nytimes.com/2023/06/26/world/americas/guatemala-election-runoff-arevalo.html?searchResultPosition=7
 
 **Love Letter: The Strongest Bone**\
 `“Gruesome? Perhaps, but I need something of you with me, and this will have to do.”`\
