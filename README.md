@@ -19,7 +19,7 @@ https://nytimes.com/2023/06/26/briefing/murder-rate.html?searchResultPosition=4
 https://nytimes.com/2023/06/26/world/canada/mayor-toronto-election.html?searchResultPosition=5
 
 **Belgium Was Out of Hurdlers. So a Shot-Putter Agreed to Run.**\
-`Jolien Boumkwo’s 100-meter hurdles debut was not a joke or a stunt. Her team needed the points in a European meet.`\
+`Jolien Boumkwo’s 100-meter hurdles debut was not a stunt. Her team needed the points, and she volunteered.`\
 https://nytimes.com/2023/06/26/sports/olympics/belgium-hurdles-jolien-boumkwo.html?searchResultPosition=6
 
 **A 36-Hour Rebellion in Russia**\
