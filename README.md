@@ -30,11 +30,11 @@ https://nytimes.com/2023/06/26/arts/design/h-art-museum-hermitage-amsterdam.html
 `Ms. Ferguson, the ex-wife of Prince Andrew, had a single mastectomy after a routine mammogram. A spokesperson said her prognosis was good.`\
 https://nytimes.com/2023/06/26/world/europe/sarah-ferguson-breast-cancer-surgery.html?searchResultPosition=8
 
+**Minefields and Menace: Why Ukraine’s Pushback Is Off to a Halting Start**\
+`The Ukrainian Army is encountering an array of challenges that has complicated the early stages of its counteroffensive, especially the large swaths of minefields. But its leaders are urging patience, insisting the main push is yet to come.`\
+https://nytimes.com/2023/06/26/world/europe/ukraine-counteroffensive.html?searchResultPosition=9
+
 **French Montana Lists His Los Angeles Mansion**\
 `The seven-bedroom house also has garages for five cars, a game room and a wine cellar, but the rapper is ready to move on and diversify his real estate portfolio.`\
-https://nytimes.com/2023/06/26/realestate/french-montana-los-angeles-mansion.html?searchResultPosition=9
-
-**A Big Leaguer Lost His Fastball but Not His Will to Compete**\
-`Julio Teheran’s journey from All-Star to the independent leagues and back has been crucial for the Brewers. It doesn’t matter that he can’t break 90 miles per hour.`\
-https://nytimes.com/2023/06/26/sports/baseball/julio-teheran-brewers.html?searchResultPosition=10
+https://nytimes.com/2023/06/26/realestate/french-montana-los-angeles-mansion.html?searchResultPosition=10
 
