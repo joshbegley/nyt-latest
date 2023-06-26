@@ -7,7 +7,7 @@ https://nytimes.com/2023/06/26/us/california-river-safety.html?searchResultPosit
 https://nytimes.com/2023/06/26/crosswords/spelling-bee-fanatic.html?searchResultPosition=2
 
 **Prigozhin has not been seen publicly since Saturday, and reports say the case against him remains open.**\
-`By Valerie Hopkins`\
+` `\
 https://nytimes.com/2023/06/26/world/europe/prigozhin-russia-criminal-case-belarus.html?searchResultPosition=3
 
 **Inside Yevgeny Prigozhin’s Money-Making Machine**\
