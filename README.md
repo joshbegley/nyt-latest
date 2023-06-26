@@ -1,5 +1,5 @@
 **Richard Ravitch, Rescuer of the Subways and New York’s Finances, Dies at 89**\
-`He helped New York City avoid bankruptcy in the mid-1970s, ran the Metropolitan Transportation Authority. and later served as lieutenant governor.`\
+`He helped New York City avoid bankruptcy in the mid-1970s, ran the Metropolitan Transportation Authority and later served as lieutenant governor.`\
 https://nytimes.com/2023/06/26/nyregion/richard-ravitch-dead.html?searchResultPosition=1
 
 **The Terror of Threes in the Heavens and on Earth**\
