@@ -3,7 +3,7 @@
 https://nytimes.com/2023/06/26/world/europe/prigozhin-russia-criminal-case-belarus.html?searchResultPosition=1
 
 **Inside Yevgeny Prigozhin’s Money-Making Machine**\
-`Despite Western sanctions, the ally of President Vladimir Putin has grown his sprawling mercenary operation well beyond Russia.`\
+`The man who led a rebellion against President Vladimir Putin built a multinational commercial enterprise that helped fund his military operations.`\
 https://nytimes.com/2023/06/26/business/dealbook/prigozhins-wagner-money.html?searchResultPosition=2
 
 **How New Democracy Surged to Victory in Greece**\
