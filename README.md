@@ -36,5 +36,5 @@ https://nytimes.com/2023/06/26/learning/word-of-the-day-betrothal.html?searchRes
 
 **Deal for Formula 1 Team Reflects Growing U.S. Interest in the Sport**\
 `The actor Ryan Reynolds, the private equity firm RedBird Capital and Otro Capital are among the investors taking a stake in Renault’s Alpine team.`\
-https://nytimes.com/2023/06/26/business/dealbook/formula-1-deal-alpine-renault.html?searchResultPosition=10
+https://nytimes.com/2023/06/26/business/dealbook/formula-1-deal-ryan-reynolds-alpine.html?searchResultPosition=10
 
