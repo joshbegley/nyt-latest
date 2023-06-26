@@ -3,7 +3,7 @@
 https://nytimes.com/2023/06/26/theater/brooklyn-academy-of-music-layoffs.html?searchResultPosition=1
 
 **Jury to Decide Fate of Deputy Who Did Not Confront Parkland Gunman**\
-`A Florida jury will soon begin deliberations in the case against Scot Peterson, in a rare trial against a police officer over inaction in a school shooting.`\
+`A Florida jury began deliberations in the case against Scot Peterson, in a rare trial against a police officer over inaction in a school shooting.`\
 https://nytimes.com/2023/06/26/us/scot-peterson-parkland-school-shooting-trial.html?searchResultPosition=2
 
 **The Dangerous Heat Wave Will Continue to Bake the U.S. This Week**\
