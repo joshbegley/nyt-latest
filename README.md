@@ -15,7 +15,7 @@ https://nytimes.com/2023/06/26/world/europe/prigozhin-russia-criminal-case-belar
 https://nytimes.com/2023/06/26/business/dealbook/prigozhins-wagner-money.html?searchResultPosition=4
 
 **How New Democracy Surged to Victory in Greece**\
-`Voters seemed to embrace Kyriakos Mitsotakis’s tough stance on migration and approach to the economy, and were less concerned about revelations of spying on the opposition.`\
+`Voters seemed to embrace Kyriakos Mitsotakis’s approach to the economy and tough stance on migration, and were less concerned about revelations of spying on the opposition.`\
 https://nytimes.com/2023/06/26/world/europe/greece-election-mitsotakis.html?searchResultPosition=5
 
 **The Most Expensive Team in Baseball Is Not Getting Any Better**\
