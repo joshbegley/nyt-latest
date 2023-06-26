@@ -23,7 +23,7 @@ https://nytimes.com/2023/06/26/us/politics/trump-witness-list.html?searchResultP
 https://nytimes.com/2023/06/26/us/idaho-murders-kohberger-death-penalty.html?searchResultPosition=6
 
 **Kamala Harris, at Stonewall, Seeks to Reassure L.G.B.T.Q. Community**\
-`Vice President Kamala Harris visited the Stonewall Inn, a landmark for the gay rights movement, a day after New York’s governor signed a bill to protect transgender youth.`\
+`The vice president visited the Stonewall Inn, a landmark for the gay rights movement, a day after New York’s governor signed a bill to protect transgender youth.`\
 https://nytimes.com/2023/06/26/nyregion/kamala-harris-stonewall-inn-lgbtq-rights.html?searchResultPosition=7
 
 **Biden Expresses Confidence on the Economy. Voters May Be Skeptical.**\
