@@ -1,40 +1,40 @@
-**How to Stop Sweating So Much**\
-`Excessive swampiness can be an inconvenience, especially in the summer, but several treatments are available.`\
-https://nytimes.com/2023/06/26/well/live/excessive-sweating-treatment.html?searchResultPosition=1
+**French Montana Lists His Los Angeles Mansion**\
+`The seven-bedroom house also has garages for five cars, a game room and a wine cellar, but the rapper is ready to move on and diversify his real estate portfolio.`\
+https://nytimes.com/2023/06/26/realestate/french-montana-los-angeles-mansion.html?searchResultPosition=1
 
-**U.S. Vaccine Program Now Flush With Cash, but Short on Key Details**\
-`A $5 billion federal program aims to make better Covid vaccines. But vaccine makers are confused by murky regulatory guidance.`\
-https://nytimes.com/2023/06/26/health/covid-vaccines-nextgen.html?searchResultPosition=2
+**A Big Leaguer Lost His Fastball but Not His Will to Compete**\
+`Julio Teheran’s journey from All-Star to the independent leagues and back has been crucial for the Brewers. It doesn’t matter that he can’t break 90 miles per hour.`\
+https://nytimes.com/2023/06/26/sports/baseball/julio-teheran-brewers.html?searchResultPosition=2
 
-**Flamin’ Hot Propaganda**\
-`By depicting a world in which Latinos need the approval of white people to feel good about ourselves, it reinforces the myth of white superiority.`\
-https://nytimes.com/2023/06/26/opinion/flamin-hot-propaganda.html?searchResultPosition=3
+**Minefields and Menace: Why Ukraine’s Pushback Is Off to a Halting Start**\
+`The Ukrainian Army is encountering an array of challenges that has complicated the early stages of its counteroffensive, especially the large swaths of minefields. But its leaders are urging patience, insisting the main push is yet to come.`\
+https://nytimes.com/2023/06/26/world/europe/ukraine-counteroffensive.html?searchResultPosition=3
 
-**How Review-Bombing Can Tank a Book Before It’s Published**\
-`The website Goodreads has become an essential avenue for building readership, but the same features that help generate excitement can also backfire.`\
-https://nytimes.com/2023/06/26/books/how-review-bombing-can-tank-a-book-before-its-published.html?searchResultPosition=4
+**Why the 1932 Movie ‘Freaks’ Is a Touchstone for Disability Representation**\
+`Though it has detractors, scholars and advocates have largely embraced this film for the way it shows people just living their lives while disabled.`\
+https://nytimes.com/2023/06/26/movies/freaks-disability-representation.html?searchResultPosition=4
 
-**Prigozhin and the Long and Infamous History of Failed Russian Rebellions**\
-`Putin may emerge weakened, strengthened or vindictive.`\
-https://nytimes.com/2023/06/26/opinion/international-world/putin-russia-uprising.html?searchResultPosition=5
+**The Buffet Is Back, Stretching Dollars and Slinging Crab Legs**\
+`These big, communal all-you-can-eat spreads faltered amid pandemic fears, but inflation and a hunger for an experience are giving them new life and variety.`\
+https://nytimes.com/2023/06/26/dining/buffet-restaurants-us.html?searchResultPosition=5
 
-**How Are New Yorkers Handling the Costs of Child Care?**\
-`The New York Times is interested in exploring how New York City residents are navigating the costs and challenges of care.`\
-https://nytimes.com/2023/06/26/nyregion/nyc-child-care-costs.html?searchResultPosition=6
+**75 Years After ‘The Lottery’ Was Published, the Chills Linger**\
+`Stephen King, David Sedaris, Carmen Maria Machado and others on how Shirley Jackson’s eerie classic first got under their skin.`\
+https://nytimes.com/2023/06/26/books/review/the-lottery-75th-anniversary-shirley-jackson.html?searchResultPosition=6
 
-**Accused Club Q Shooter Expected to Face More Than 300 Charges in Court**\
-`The accused faces counts of murder, attempted murder and hate crimes after a rampage at an L.G.B.T.Q. bar in Colorado Springs last year that left five people dead.`\
-https://nytimes.com/2023/06/26/us/accused-club-q-shooter-expected-to-face-more-than-300-charges-in-court.html?searchResultPosition=7
+**They Ride and Lasso Like Texans. They Live 8,000 Miles Away.**\
+`In the Philippines, men and women compete in an annual rodeo that celebrates a thriving cowboy culture with roots in the Spanish and American colonial eras.`\
+https://nytimes.com/2023/06/26/world/asia/philippines-rodeo-masbate-cowboys.html?searchResultPosition=7
 
-**While We Wait for the Supreme Court to Make Up Its Mind …**\
-`The fine print is what really matters when it comes to affirmative action.`\
-https://nytimes.com/2023/06/26/opinion/supreme-court-affirmative-action-presidential-race.html?searchResultPosition=8
+**Bingeing in Comfort This Summer**\
+`Dinner and a show — that is, eating in front of the TV — only gets easier with the right furniture and a can-do attitude.`\
+https://nytimes.com/2023/06/26/realestate/living-room-tv-dining.html?searchResultPosition=8
 
-**The Uneven Effect of Remote Work, in One List**\
-`This ranking of jobs by percentage of remote work also helps explain why the pandemic has left more scars in certain areas.`\
-https://nytimes.com/2023/06/26/upshot/remote-work-jobs-list.html?searchResultPosition=9
+**Review: ‘The Bear’ Changes Course(s)**\
+`Season 2 of the restaurant dramedy is more uplifting, more team-focused and more magnificent.`\
+https://nytimes.com/2023/06/26/arts/television/the-bear-review.html?searchResultPosition=9
 
-**A Dangerous Shift Is Underway in the West Bank**\
-`Ultranationalist West Bank settlers who have recently attacked Palestinian towns and villages seem to want to wedge out their Palestinian neighbors.`\
-https://nytimes.com/2023/06/26/opinion/international-world/west-bank-israel-palestine.html?searchResultPosition=10
+**In Isolated Guam, Abortion Is Legal. And Nearly Impossible to Get.**\
+`The tiny U.S. territory in the western Pacific Ocean is thousands of miles from the nearest state, and has no resident doctors who perform abortions. Court decisions could cut access to pills, the only legal option left.`\
+https://nytimes.com/2023/06/26/us/in-isolated-guam-abortion-is-legal-and-nearly-impossible-to-get.html?searchResultPosition=10
 
