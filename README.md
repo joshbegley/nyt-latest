@@ -22,7 +22,7 @@ https://nytimes.com/2023/06/26/podcasts/the-daily/russia-coup-putin.html?searchR
 `Sarah McBride is no stranger to firsts: In 2012, she became the first openly transgender person to work at the White House, during the Obama administration.`\
 https://nytimes.com/2023/06/26/us/politics/sarah-mcbride-transgender-congress.html?searchResultPosition=6
 
-**Today’s Top News: How the Wagner Revolt Challenges Putin’s Power, and More**\
+**Today’s Top News: Harsh New Fentanyl Laws, and More**\
 `Exclusively from New York Times Audio, our new app.`\
 https://nytimes.com/2023/06/26/podcasts/headlines-nyt-audio-app.html?searchResultPosition=7
 
