@@ -3,7 +3,7 @@
 https://nytimes.com/2023/06/26/briefing/putin-wagner-revolt-heat-waves-ai.html?searchResultPosition=1
 
 **A Boy’s Life on the Front Lines**\
-`In a Ukrainian town once teeming with families, an 11-year -old navigates a childhood transformed by war.`\
+`In a Ukrainian town once teeming with families, an 11-year-old navigates a childhood transformed by war.`\
 https://nytimes.com/interactive/2023/06/26/magazine/ukraine-war-childhood.html?searchResultPosition=2
 
 **Your Tuesday Briefing: Putin Addresses Russia**\
