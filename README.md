@@ -8,7 +8,7 @@ https://nytimes.com/2023/06/27/upshot/wordlebot-wordle-new-features.html?searchR
 
 **Korean Corn Dogs and Uyghur Noodles Near Forest Hills Stadium**\
 `If you’re headed to a concert at this former tennis complex, here are a few options for food.`\
-https://nytimes.com/2023/06/27/dining/korean-corn-dogs-and-uyghur-noodles-near-forest-hills-stadium.html?searchResultPosition=3
+https://nytimes.com/2023/06/27/dining/forest-hills-stadium-restaurants-food.html?searchResultPosition=3
 
 **Schools Bring Police Back to Campuses, Reversing Racial Justice Decisions**\
 `Denver’s school system is the latest to reinstate officers, responding to parental concerns over campus violence. Critics say the move will disproportionately hurt students of color.`\
