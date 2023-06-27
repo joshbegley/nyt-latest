@@ -2,7 +2,7 @@
 `Focusing heavily on Florida at his first town-hall event in the Granite State, Ron DeSantis drew a reception that was sometimes warm, sometimes more skeptical — especially on the issue of abortion.`\
 https://nytimes.com/2023/06/27/us/politics/desantis-new-hampshire-town-hall.html?searchResultPosition=1
 
-**Murray Hill Had a Very Busy Pride Month**\
+**Murray Hill Is Having a Very Busy Pride Month**\
 `From “Family Feud” and Citi Field appearances to being in a happy relationship and producing a hit drag king show, it’s been a full few weeks for the “Somebody Somewhere” star.`\
 https://nytimes.com/2023/06/27/style/murray-hill-pride-month.html?searchResultPosition=2
 
