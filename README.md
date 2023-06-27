@@ -30,11 +30,11 @@ https://nytimes.com/2023/06/27/sports/baseball/gerrit-cole-yankees-all-star.html
 `Right-wing anger over the speaker’s debt deal with President Biden has brought the House to a grinding halt.`\
 https://nytimes.com/2023/06/27/podcasts/the-daily/gop-mccarthy-house.html?searchResultPosition=8
 
+**Russia Drops Criminal Charges Against Prigozhin After Wagner Rebellion**\
+`The Russian authorities said that Wagner members would face no criminal charges for the mutiny and would hand over equipment, but the fate of the group’s thousands of fighters was unclear.`\
+https://nytimes.com/2023/06/27/world/europe/russia-prigozhin-wagner-charges.html?searchResultPosition=9
+
 **Today’s Top News: The Implications of the Failed Wagner Rebellion, and More**\
 `Exclusively from New York Times Audio, our new app.`\
-https://nytimes.com/2023/06/27/podcasts/headlines-nyt-audio-app.html?searchResultPosition=9
-
-**If Biden Wanted to Ease U.S.-China Tensions, Would Americans Let Him?**\
-`In polls, Americans’ views of China are starting to resemble their views of the Soviet Union decades ago. That could make it harder to mend ties.`\
-https://nytimes.com/2023/06/27/upshot/us-china-cold-war.html?searchResultPosition=10
+https://nytimes.com/2023/06/27/podcasts/headlines-nyt-audio-app.html?searchResultPosition=10
 
