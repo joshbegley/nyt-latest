@@ -1,6 +1,6 @@
 **Julian Sands, Who Played Shelley, a Warlock and a King, Dies at 65**\
 `Over a 40-year screen career, the instantly recognizable Mr. Sands displayed great versatility onscreen. He died while hiking in the San Gabriel Mountains.`\
-https://nytimes.com/2023/06/27/obituaries/julian-sands-dead.html?searchResultPosition=1
+https://nytimes.com/2023/06/27/movies/julian-sands-dead.html?searchResultPosition=1
 
 **Remains Found in California Wilderness Are Identified as Those of Julian Sands**\
 `The British actor was reported missing in January after he went hiking alone on a trail on Mount Baldy. Last weekend, after months of intense searches, hikers found human remains in the area.`\
