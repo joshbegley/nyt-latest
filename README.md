@@ -27,7 +27,7 @@ https://nytimes.com/2023/06/27/opinion/ron-desantis-florida-bills.html?searchRes
 https://nytimes.com/2023/06/27/us/politics/desantis-new-hampshire-town-hall.html?searchResultPosition=7
 
 **Murray Hill Is Ready to Share His Personal Life**\
-`“I’m really inspired by the younger generation to be more open,” said the “Somebody Somewhere” star, who has had a very busy Pride month.`\
+`“I’m really inspired by the younger generation to be more open,” said the famous drag king, who shared photos of his very busy Pride month.`\
 https://nytimes.com/2023/06/27/style/murray-hill-pride-month.html?searchResultPosition=8
 
 **Tiny Love Stories: ‘I Left Any Room She Entered’**\
