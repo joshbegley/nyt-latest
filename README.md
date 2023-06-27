@@ -1,40 +1,40 @@
-**Anthony Fauci Will Join Faculty at Georgetown University**\
-`Dr. Fauci was the federal government’s top infectious disease expert for decades, and helped steer the U.S. response to Covid-19.`\
-https://nytimes.com/2023/06/27/health/anthony-fauci-georgetown.html?searchResultPosition=1
+**If Biden Wanted to Ease U.S.-China Tensions, Would Americans Let Him?**\
+`In polls, Americans’ views of China are starting to resemble their views of the Soviet Union decades ago. That could make it harder to mend ties.`\
+https://nytimes.com/2023/06/27/upshot/us-china-cold-war.html?searchResultPosition=1
 
-**Call of the Rewild: Restoring Ecological Health to the Emerald Isle**\
-`Centuries of overgrazing and deforestation have eliminated most native flora in Ireland, creating what ecologists see as a man-made desert in places. A growing “rewilding” push aims to change that.`\
-https://nytimes.com/2023/06/27/world/europe/ireland-rewilding-deforestation-ecology.html?searchResultPosition=2
+**The Indigenous Guardsmen Who Rescued Colombia’s Missing Children**\
+`Colombia’s Indigenous Guard has long had to fight for a space in the national narrative. Today, it is at the center of the country’s biggest story.`\
+https://nytimes.com/2023/06/27/world/americas/children-rescue-plane-crash-colombia.html?searchResultPosition=2
 
-**How Vivek Ramaswamy Made the Fortune Fueling His Presidential Run**\
-`Mr. Ramaswamy calls himself a scientist from the biotech industry, but his vast fortune stems from two huge paydays that speak to hope and hype in the world of finance.`\
-https://nytimes.com/2023/06/27/us/politics/vivek-ramaswamy-wealth.html?searchResultPosition=3
+**Life in the Throes of Postpartum Depression**\
+`Four new mothers open up about the common yet isolating struggle.`\
+https://nytimes.com/2023/06/27/well/mind/postpartum-depression-mental-health.html?searchResultPosition=3
 
-**Why Migrant Women Are Turning Toward Construction Jobs**\
-`Women who have come to New York City seeking asylum are entering the male-dominated construction industry, despite dangerous conditions, exploitation and sexism on the job.`\
-https://nytimes.com/2023/06/27/nyregion/migrant-women-construction-jobs.html?searchResultPosition=4
+**St. Louis Is the Struggling Downtown You Haven’t Heard Of — and Right-Wing Policies Are Making Things Worse**\
+`St. Louis, rather than San Francisco, is the post-pandemic city that is really struggling — and conservative policies are making things worse.`\
+https://nytimes.com/2023/06/27/opinion/st-louis-downtown-doom-loop-pandemic-return-to-office.html?searchResultPosition=4
 
-**To Let Your Mind Roam, Travel on Foot**\
-`For a new Travel package, 13 writers took scenic, personal, inventive and multicultural strolls, often getting advice from locals along the way.`\
-https://nytimes.com/2023/06/27/insider/best-walks.html?searchResultPosition=5
+**A Giant Wind Farm Is Taking Root Off Massachusetts**\
+`The offshore energy project will have turbines taller than any building in Boston, but they will be barely visible from Martha’s Vineyard.`\
+https://nytimes.com/2023/06/27/business/energy-environment/marthas-vineyard-wind-farm-massachusetts.html?searchResultPosition=5
 
-**Tesla May Have Already Won the Charging Wars**\
-`Deals with Ford and G.M. will make it easier to find a charger but could give Elon Musk control of critical infrastructure.`\
-https://nytimes.com/2023/06/27/business/energy-environment/tesla-gm-ford-charging-electric-vehicles.html?searchResultPosition=6
+**Can DeSantis Break Trump’s Hold on New Hampshire?**\
+`Donald Trump is looking to the state as an early chance to clear a crowded field, while Ron DeSantis’s camp is banking on winnowing the Republican race to two.`\
+https://nytimes.com/2023/06/27/us/politics/trump-desantis-new-hampshire-campaign.html?searchResultPosition=6
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/06/27/crosswords/wordle-review-answer-738.html?searchResultPosition=7
+**When Going Home Becomes a Fact-Finding Mission**\
+`In her new memoir, the Ukrainian-born journalist Victoria Belim returns to her homeland to find the missing pieces in the puzzle of her family’s history.`\
+https://nytimes.com/2023/06/27/books/review/the-rooster-house-victoria-belim.html?searchResultPosition=7
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/06/27/crosswords/spelling-bee-forum.html?searchResultPosition=8
+**More Data in the Cloud Means More Centers on the Ground to Move It**\
+`The need for data centers has soared, fueled by remote work and the growth of high-speed streaming. But finding the necessary land and energy can be a challenge.`\
+https://nytimes.com/2023/06/27/business/data-centers-internet-infrastructure-development.html?searchResultPosition=8
 
-**Tree Loss Increases in Crucial Tropical Forests**\
-`Deforestation rates appear “headed in the wrong direction” despite international pledges to halt destruction, according to an annual assessment.`\
-https://nytimes.com/2023/06/27/climate/trees-tropical-forests-deforestation.html?searchResultPosition=9
+**Going to Europe This Summer? You’re Not Alone.**\
+`After three years of pandemic restrictions, travelers are flocking to Europe in record numbers, despite high airfares, limited accommodations and crowded sites. Here’s what you might encounter.`\
+https://nytimes.com/2023/06/27/travel/overcrowded-europe-summer.html?searchResultPosition=9
 
-**Corrections: June 27, 2023**\
-`Corrections that appeared in print on Tuesday, June 27, 2023.`\
-https://nytimes.com/2023/06/27/pageoneplus/corrections-june-27-2023.html?searchResultPosition=10
+**A New Law Aims to Stop Pregnancy Discrimination at Work**\
+`Here’s what the legislation entails.`\
+https://nytimes.com/2023/06/27/well/live/pregnancy-workers-fairness-act-discrimination.html?searchResultPosition=10
 
