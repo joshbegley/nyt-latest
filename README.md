@@ -1,12 +1,12 @@
 **Smoky Skies Menace U.S. Cities, Driving Residents Indoors**\
 `Across the nation’s middle, unhealthy air from Canadian wildfires sent summer campers home and left residents coughing, and asking when this would end.`\
-https://nytimes.com/2023/06/28/us/wildfire-smoke-midwest.html?searchResultPosition=1
+https://nytimes.com/2023/06/28/us/canada-wildfire-smoke-air-quality-midwest.html?searchResultPosition=1
 
 **Madonna Postpones ‘Celebration’ Tour After ‘Serious Bacterial Infection’**\
 `The 64-year-old pop icon was hospitalized for several days and remains under medical care, her agent said. A new start date for her tour has not been announced.`\
 https://nytimes.com/2023/06/28/arts/music/madonna-hospitalized-celebration-tour-postponed.html?searchResultPosition=2
 
-**Auto-Industry Group Blasts Biden’s Plan to Electrify America’s Cars**\
+**Auto-Industry Group Assails Biden’s Plan to Electrify America’s Cars**\
 `The E.P.A.’s plan is “neither reasonable nor achievable,” the lobbying group said, using strong language in the face of the urgency to cut planet-warming emissions from vehicles.`\
 https://nytimes.com/2023/06/28/climate/epa-electric-cars-auto-industry-criticism.html?searchResultPosition=3
 
