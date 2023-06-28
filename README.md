@@ -1,6 +1,6 @@
 **Chris Printup, Founder of Streetwear Brand Born X Raised, Dies at 42**\
 `Mr. Printup, known as Spanto, died on Wednesday morning in Albuquerque, N.M., from injuries sustained in a car accident on Sunday, the brand confirmed.`\
-https://nytimes.com/2023/06/28/us/chris-spanto-printup-dead.html?searchResultPosition=1
+https://nytimes.com/2023/06/28/us/chris-printup-spanto-dead.html?searchResultPosition=1
 
 **The Cosmos Is Thrumming With Gravitational Waves, Astronomers Find**\
 `Radio telescopes around the world picked up a telltale hum reverberating across the cosmos, most likely from supermassive black holes merging in the early universe.`\
