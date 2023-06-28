@@ -1,5 +1,5 @@
 **What’s In Our Queue? ‘The Silences of the Palace’ and More**\
-`Here are five things I've read, seen and watched lately.`\
+`I’m The Times’s North Africa bureau chief. Here are five things I've read, seen and watched lately.`\
 https://nytimes.com/interactive/2023/06/28/arts/editors-recommendations-the-silences.html?searchResultPosition=1
 
 **School Official Convicted of Serving Students Chicken With Bits of Metal**\
