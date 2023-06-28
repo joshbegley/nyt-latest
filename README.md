@@ -1,4 +1,4 @@
-**Anger in France After Police Shoot and Kill Teenage Driver**\
+**Anger Flares in France After Police Shoot and Kill Teenage Driver**\
 `Protesters burned cars and clashed with riot officers in the suburbs of Paris after an officer shot a 17-year-old during a traffic stop.`\
 https://nytimes.com/2023/06/28/world/europe/france-police-shooting-paris-nanterre.html?searchResultPosition=1
 
