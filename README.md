@@ -1,21 +1,25 @@
+**Summer Airline Woes Are Here: What to Expect Traveling This Weekend.**\
+`Delays and cancellations have hit airports in the Northeast, just in time for the July 4 holiday. Airlines and regulators are bickering about who is to blame. Here’s what you need to know.`\
+https://nytimes.com/2023/06/28/business/summer-airline-woes-july-fourth.html?searchResultPosition=1
+
 **Ben Helfgott, Holocaust Survivor Turned Weight Lifter, Dies at 93**\
 `He was one of more than 700 child survivors flown to Britain after World War II. He later became a leader in efforts to remember the Nazi horrors.`\
-https://nytimes.com/2023/06/28/world/europe/ben-helfgott-dead.html?searchResultPosition=1
+https://nytimes.com/2023/06/28/world/europe/ben-helfgott-dead.html?searchResultPosition=2
 
 **Your Thursday Briefing: Who knew about the mutiny?**\
 `Also, China looks to boost its exports.`\
-https://nytimes.com/2023/06/28/briefing/russia-mutiny-india-jobs-china-economy.html?searchResultPosition=2
+https://nytimes.com/2023/06/28/briefing/russia-mutiny-india-jobs-china-economy.html?searchResultPosition=3
 
 **Debris From Lost Titan Recovered**\
 `Debris from the Titan was returned to land off Newfoundland, nearly a week after an international search-and-rescue effort for the vessel ended and its five passengers were presumed dead.`\
-https://nytimes.com/2023/06/28/world/titan-submersible-debris-recovered.html?searchResultPosition=3
+https://nytimes.com/2023/06/28/world/titan-submersible-debris-recovered.html?searchResultPosition=4
 
 **Stress Tests Show Largest Banks Are Sturdy, Fed Says**\
 `The Federal Reserve tested banks’ ability to endure a real estate crash, high unemployment and trading turmoil.`\
-https://nytimes.com/2023/06/28/business/stress-test-banks-federal-reserve.html?searchResultPosition=4
+https://nytimes.com/2023/06/28/business/stress-test-banks-federal-reserve.html?searchResultPosition=5
 
 **Popcast (Deluxe): Kim Petras’s New LP and Jennifer Lawrence’s Return**\
 `Up for discussion this week: “The Idol” approaches its finale, the conclusion of Kesha and Dr. Luke’s legal battle and more.`\
-https://nytimes.com/2023/06/28/arts/music/popcast-deluxe-drake-kesha-kim-petras.html?searchResultPosition=5
+https://nytimes.com/2023/06/28/arts/music/popcast-deluxe-drake-kesha-kim-petras.html?searchResultPosition=6
 
 **The Best Carry-On Luggage**\
