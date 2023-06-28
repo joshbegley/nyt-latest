@@ -6,7 +6,7 @@ https://nytimes.com/2023/06/28/sports/soccer/rainbow-armbands-fifa-world-cup.htm
 `No country has had more export success than China. But Beijing faces risks in turning to the tested method of selling more abroad.`\
 https://nytimes.com/2023/06/28/business/china-exports-economy.html?searchResultPosition=2
 
-**What to Know About Kevin Spacey’s U.K. Trial**\
+**What to Know About Kevin Spacey’s U.K. Sexual Offenses Trial**\
 `The actor will appear in a London courtroom on Wednesday to face a four-week trial over allegations of sexual assault.`\
 https://nytimes.com/2023/06/28/arts/kevin-spacey-trial-uk.html?searchResultPosition=3
 
