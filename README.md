@@ -1,40 +1,40 @@
-**FIFA May Allow Rainbow Armbands at Women’s World Cup**\
-`Captains could be offered choices reflecting anti-discrimination efforts and at least one design that was banned at the men’s World Cup in Qatar.`\
-https://nytimes.com/2023/06/28/sports/soccer/rainbow-armbands-fifa-world-cup.html?searchResultPosition=1
+**The Slave Sale That Saved — and Stained — Georgetown**\
+`“The 272,” by Rachel L. Swarns, recounts the decision by the university’s early leaders to sell nearly 300 people enslaved on Jesuit-owned plantations in Maryland in 1838.`\
+https://nytimes.com/2023/06/28/books/review/the-272-rachel-swarns.html?searchResultPosition=1
 
-**Can China Export Its Way Out of Its Economic Slump?**\
-`No country has had more export success than China. But Beijing faces risks in turning to the tested method of selling more abroad.`\
-https://nytimes.com/2023/06/28/business/china-exports-economy.html?searchResultPosition=2
+**Can You Mix Booze and Exercise?**\
+`You really shouldn’t drink alcohol before, after or during an intense workout. But if you do, here’s what to know.`\
+https://nytimes.com/2023/06/28/well/move/alcohol-exercise-workout.html?searchResultPosition=2
 
-**What to Know About Kevin Spacey’s U.K. Sexual Offenses Trial**\
-`The actor will appear in a London courtroom on Wednesday to face a four-week trial over allegations of sexual assault.`\
-https://nytimes.com/2023/06/28/arts/kevin-spacey-trial-uk.html?searchResultPosition=3
+**Are Democrats Actually Winning Older Voters?**\
+`Some intriguing signs that the party may be doing better among seniors than is commonly thought.`\
+https://nytimes.com/2023/06/28/upshot/democrats-polling-older-voters.html?searchResultPosition=3
 
-**How Might Congestion Pricing Actually Work in New York?**\
-`The tolls will mostly be collected electronically through the E-ZPass system, and drivers should expect penalties for late payments.`\
-https://nytimes.com/2023/06/28/nyregion/congestion-pricing-nyc.html?searchResultPosition=4
+**This Myth About Innovation May Have Doomed the Titan**\
+`Government is not an obstacle to new ideas.`\
+https://nytimes.com/2023/06/28/opinion/titanic-titan-oceangate-innovation.html?searchResultPosition=4
 
-**Richard Ravitch and the Matzo Summit That Saved New York**\
-`In the 1970s, New York City was rescued by a collaboration of union leaders and money men. Could such an alliance happen today?`\
-https://nytimes.com/2023/06/28/nyregion/richard-ravitch-unions-fiscal-crisis.html?searchResultPosition=5
+**‘That’s Not Us!’: Blank Slate Coffee Would Like You to Know It Is Not Blank Street**\
+`A Manhattan coffee outpost changed its name this month in an effort to distance itself from a fast-growing chain that elicits strong feelings from New Yorkers.`\
+https://nytimes.com/2023/06/28/style/blank-street-coffee-slate-cafe.html?searchResultPosition=5
 
-**The Secret Deal for a Tribal Casino and Why It Imploded**\
-`As a deadline looms for reaching a gambling deal with the Seneca Nation of Indians, Gov. Kathy Hochul’s office tried to give the tribe a new casino near Rochester. It backfired.`\
-https://nytimes.com/2023/06/28/nyregion/hochul-casino-rochester-senecas.html?searchResultPosition=6
+**21 Miles of Obstacles**\
+`The Ukrainian counteroffensive faces an enemy nearly as daunting as the Russians: the terrain.`\
+https://nytimes.com/interactive/2023/06/28/world/europe/ukraine-counteroffensive-obstacles.html?searchResultPosition=6
 
-**No Job, No Marriage, No Kid: China’s Workers and the Curse of 35**\
-`It’s widely discussed in China: Employers don’t want you after 35. Some job listings say it plainly, leaving a generation of prime-age workers feeling defeated.`\
-https://nytimes.com/2023/06/28/business/china-jobs-age-discrimination-35.html?searchResultPosition=7
+**The Philosophers Who Used Word Puzzles to Understand the World**\
+`“A Terribly Serious Adventure,” by Nikhil Krishnan, brings to life the 20th-century Oxford thinkers whose methods of linguistic analysis were deeply influential and vigorously debated.`\
+https://nytimes.com/2023/06/28/books/review/a-terribly-serious-adventure-nikhil-krishnan.html?searchResultPosition=7
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/06/28/crosswords/spelling-bee-forum.html?searchResultPosition=8
+**How Hard Could It Be to Translate a Picture Book?**\
+`With so few words, most of them kid-friendly, it should be a piece of cake. But it depends on who’s holding the whisk.`\
+https://nytimes.com/2023/06/28/books/review/translating-childrens-picture-books.html?searchResultPosition=8
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/06/28/crosswords/todays-wordle-review-answer-739.html?searchResultPosition=9
+**Eid Does Not Care About Your Schedule. That’s So Liberating.**\
+`The Muslim holiday is a reminder that there is more than one way to think about time. `\
+https://nytimes.com/2023/06/28/opinion/eid-celebration.html?searchResultPosition=9
 
-**Word of the Day: vainglorious**\
-`This word has appeared in eight articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/06/28/learning/word-of-the-day-vainglorious.html?searchResultPosition=10
+**Translating Tolstoy While Inciting Revolution**\
+`The radical politics of Russian literature’s most famous English translator, Constance Garnett.`\
+https://nytimes.com/2023/06/28/books/review/constance-garnett-russia-revolution-translation.html?searchResultPosition=10
 
