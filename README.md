@@ -12,7 +12,7 @@ https://nytimes.com/2023/06/28/books/review/iliad-translations.html?searchResult
 
 **Mark Your Calendars: ‘Barbenheimer’ Is Coming**\
 `The “Barbie” and “Oppenheimer” movies look very different. But some fans are planning a double feature for their release on July 21.`\
-https://nytimes.com/2023/06/28/arts/barbie-oppenheimer-release-day.html?searchResultPosition=4
+https://nytimes.com/2023/06/28/movies/barbie-oppenheimer-release-day.html?searchResultPosition=4
 
 **Mixtape Sites Like DatPiff Propelled Rap. Can They Be Preserved?**\
 `Websites offering up free — and not always legal — music flourished in the gap between the fall of the CD era and the rise of streaming. Keeping those archives intact is proving difficult.`\
