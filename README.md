@@ -1,40 +1,40 @@
+**In ‘The Bear,’ Molly Gordon Is More Than the Girl Next Door**\
+`A new addition to the cast for Season 2, the actress plays Chef Carmy’s love interest — “a human woman,” she said, “not just this sweet, sweet girl.”`\
+https://nytimes.com/2023/06/28/arts/television/molly-gordon-the-bear-season-2.html?searchResultPosition=1
+
+**This Is Why Trump Lies Like There’s No Tomorrow**\
+`It’s a strategy and it works.`\
+https://nytimes.com/2023/06/28/opinion/donald-trump-presidency-lies.html?searchResultPosition=2
+
+**In Battle Over Direction of Texas, an Unlikely Casualty: Water Breaks**\
+`A new law pre-empting local labor rules is part of an effort by Republicans in the Capitol to exert control over the state’s Democratic-led major cities.`\
+https://nytimes.com/2023/06/28/us/texas-heat-water-breaks.html?searchResultPosition=3
+
+**Something Was Messing With Earth’s Axis. The Answer Has to Do With Us.**\
+`Scientists knew the planet’s centerline could move. But it took a sharp turn sometime around the start of the 2000s.`\
+https://nytimes.com/2023/06/28/climate/groundwater-earth-spin-axis.html?searchResultPosition=4
+
 **Religious Freedom Arguments Underpin Wave of Challenges to Abortion Bans**\
 `In lawsuits challenging state abortion bans, lawyers for abortion rights plaintiffs are employing religious liberty arguments the Christian right has used for decades.`\
-https://nytimes.com/2023/06/28/health/abortion-religious-freedom.html?searchResultPosition=1
+https://nytimes.com/2023/06/28/health/abortion-religious-freedom.html?searchResultPosition=5
 
 **What Opera Singers Gained, and Lost, Performing While Pregnant**\
 `Women in the industry are speaking out about what they feel are cancellations motivated by their appearance rather than sound, even as there is a belief that pregnancy and childbirth have positive effects on the voice.`\
-https://nytimes.com/2023/06/28/arts/music/women-pregnancy-opera-classical-music.html?searchResultPosition=2
+https://nytimes.com/2023/06/28/arts/music/women-pregnancy-opera-classical-music.html?searchResultPosition=6
 
 **Barred From Grocery Stores by Facial Recognition**\
 `British merchants are increasingly using the technology to combat shoplifting, raising questions about its spread as artificial intelligence rapidly improves it.`\
-https://nytimes.com/2023/06/28/technology/facial-recognition-shoplifters-britain.html?searchResultPosition=3
+https://nytimes.com/2023/06/28/technology/facial-recognition-shoplifters-britain.html?searchResultPosition=7
 
 **Deconstructing Men’s Dress Codes**\
 `Outside the men’s wear shows in Milan and Paris, almost everything seemed possible when it came to getting dressed.`\
-https://nytimes.com/2023/06/28/style/paris-milan-fashion-week-men-street-style.html?searchResultPosition=4
+https://nytimes.com/2023/06/28/style/paris-milan-fashion-week-men-street-style.html?searchResultPosition=8
 
 **Red States, Rainbow Towns**\
 `Fire Island or Provincetown? Not exactly. We asked L.G.B.T.Q. people in four queer-friendly enclaves what they love about their communities and why they’re worth a visit.`\
-https://nytimes.com/2023/06/28/travel/lgbtq-friendly-towns-pride.html?searchResultPosition=5
+https://nytimes.com/2023/06/28/travel/lgbtq-friendly-towns-pride.html?searchResultPosition=9
 
 **How Migrants Flown to Martha’s Vineyard Came to Call It Home**\
 `Florida flew 49 migrants from Texas to the liberal enclave last year. Since then, a few of them have found work, friends and a new life on the wealthy island.`\
-https://nytimes.com/2023/06/28/us/migrants-desantis-marthas-vineyard.html?searchResultPosition=6
-
-**Too Many Workers, or Too Few: India’s Colossal Employment Challenge**\
-`In some places, educated young people are desperate for steady employment in the world’s most populous nation. In others, factory owners struggle to retain workers.`\
-https://nytimes.com/2023/06/28/world/asia/india-workforce-economy.html?searchResultPosition=7
-
-**It’s Never Too Late to Become a Nurse**\
-`During the pandemic, Joanna Patchett spent 18 harrowing months in the intensive care unit. She discovered that medicine isn’t just about science — it’s also about heart.`\
-https://nytimes.com/2023/06/28/health/nursing-school-program.html?searchResultPosition=8
-
-**More Clematis, Please: How to Make Those Flowers Last All Season**\
-`Because there’s no such thing as too much Clematis, here’s how to get a little more — and make it last a little longer.`\
-https://nytimes.com/2023/06/28/realestate/clematis-flowers.html?searchResultPosition=9
-
-**Wagner’s Mutiny Has Century-Old Echoes of Another Russian Debacle**\
-`Amid a flagging war effort, a popular commander turned his troops toward Russia’s own capital, undermining the government. It happened last weekend — and in 1917.`\
-https://nytimes.com/2023/06/28/world/europe/russia-rebellion-prigozhin-1917-kornilov.html?searchResultPosition=10
+https://nytimes.com/2023/06/28/us/migrants-desantis-marthas-vineyard.html?searchResultPosition=10
 
