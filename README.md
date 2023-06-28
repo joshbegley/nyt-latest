@@ -3,7 +3,7 @@
 https://nytimes.com/2023/06/28/briefing/prigozhin-belarus-russia-greece.html?searchResultPosition=1
 
 **The M.T.A. Does Not Have a Property Empire**\
-`The authority owns some real estate, but a lot less than people think.`\
+`The authority owns some real estate, but a lot less than people may think.`\
 https://nytimes.com/2023/06/28/nyregion/mta-real-estate.html?searchResultPosition=2
 
 **German Defense Minister Vows Stronger Geopolitical Role Ahead of U.S. Visit**\
