@@ -1,5 +1,5 @@
-**Justices’ Rejection of a Disputed Legal Theory on Elections**\
-`A majority on the Supreme Court ruled against the “independent state legislature” theory. Also: Race and class; tax relief; reading; the German far right.`\
+**The Supreme Court’s Rejection of a Disputed Legal Theory on Elections**\
+`A majority on the court ruled against the “independent state legislature” theory. Also: Race and class; tax relief; reading; the German far right.`\
 https://nytimes.com/2023/06/28/opinion/letters/supreme-court-elections.html?searchResultPosition=1
 
 **Simone Biles Indicates a Return to Elite Competition**\
