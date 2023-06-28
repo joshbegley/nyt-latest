@@ -1,5 +1,5 @@
 **Satellite images show rapid construction at a deserted military base in Belarus. Is it Wagner’s new home?**\
-`By Christoph Koettl, Riley Mellen and Dmitriy Khavin`\
+`The images reveal a possible location for the mercenaries who were given the option of relocating to Belarus after the group’s failed rebellion against President Vladimir V. Putin of Russia.`\
 https://nytimes.com/2023/06/28/world/europe/belarus-military-base-wagner-photos.html?searchResultPosition=1
 
 **Stream These Three Great Documentaries**\
