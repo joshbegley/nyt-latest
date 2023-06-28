@@ -3,7 +3,7 @@
 https://nytimes.com/2023/06/28/movies/indiana-jones-and-the-dial-of-destiny-review.html?searchResultPosition=1
 
 **Biden Has Begun Using a CPAP Machine for Sleep Apnea**\
-`Sleep apnea causes frequent pauses in breathing while a person is asleep. The president has had the condition for more than a decade.`\
+`Sleep apnea is a common disorder in which one’s breathing is interrupted as one sleeps. The president has had the condition for more than a decade.`\
 https://nytimes.com/2023/06/28/us/politics/biden-cpap-sleep-apnea.html?searchResultPosition=2
 
 **Cuttlefish Are Constantly Reinventing Themselves**\
