@@ -1,5 +1,5 @@
-**A Night Out for Dinner Ends in Destruction and Death**\
-`A Russian missile strike on a popular restaurant in Kramatorsk, Ukraine killed at least 11 people, wounded dozens more, and showed the peril of trying to claim pieces of ordinary life during war.`\
-https://nytimes.com/2023/06/28/world/europe/ukraine-restaurant-russian-missile.html?searchResultPosition=1
+**Popcast (Deluxe): Kim Petras’s New LP and Jennifer Lawrence’s Return**\
+`Up for discussion this week: “The Idol” approaches its finale, the conclusion of Kesha and Dr. Luke’s legal battle and more.`\
+https://nytimes.com/2023/06/28/arts/music/popcast-deluxe-drake-kesha-kim-petras.html?searchResultPosition=1
 
-**Our Best Fourth of July Recipes**\
+**The Best Carry-On Luggage**\
