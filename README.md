@@ -1,40 +1,40 @@
-**The Slave Sale That Saved — and Stained — Georgetown**\
-`“The 272,” by Rachel L. Swarns, recounts the decision by the university’s early leaders to sell nearly 300 people enslaved on Jesuit-owned plantations in Maryland in 1838.`\
-https://nytimes.com/2023/06/28/books/review/the-272-rachel-swarns.html?searchResultPosition=1
+**What Opera Singers Gained, and Lost, Performing While Pregnant**\
+`Women in the industry are speaking out about what they feel are cancellations motivated by their appearance rather than sound, even as there is a belief that pregnancy and childbirth have positive effects on the voice.`\
+https://nytimes.com/2023/06/28/arts/music/women-pregnancy-opera-classical-music.html?searchResultPosition=1
 
-**Can You Mix Booze and Exercise?**\
-`You really shouldn’t drink alcohol before, after or during an intense workout. But if you do, here’s what to know.`\
-https://nytimes.com/2023/06/28/well/move/alcohol-exercise-workout.html?searchResultPosition=2
+**Barred From Grocery Stores by Facial Recognition**\
+`British merchants are increasingly using the technology to combat shoplifting, raising questions about its spread as artificial intelligence rapidly improves it.`\
+https://nytimes.com/2023/06/28/technology/facial-recognition-shoplifters-britain.html?searchResultPosition=2
 
-**Are Democrats Actually Winning Older Voters?**\
-`Some intriguing signs that the party may be doing better among seniors than is commonly thought.`\
-https://nytimes.com/2023/06/28/upshot/democrats-polling-older-voters.html?searchResultPosition=3
+**Deconstructing Men’s Dress Codes**\
+`Outside the men’s wear shows in Milan and Paris, almost everything seemed possible when it came to getting dressed.`\
+https://nytimes.com/2023/06/28/style/paris-milan-fashion-week-men-street-style.html?searchResultPosition=3
 
-**This Myth About Innovation May Have Doomed the Titan**\
-`Government is not an obstacle to new ideas.`\
-https://nytimes.com/2023/06/28/opinion/titanic-titan-oceangate-innovation.html?searchResultPosition=4
+**Red States, Rainbow Towns**\
+`Fire Island or Provincetown? Not exactly. We asked L.G.B.T.Q. people in four queer-friendly enclaves what they love about their communities and why they’re worth a visit.`\
+https://nytimes.com/2023/06/28/travel/lgbtq-friendly-towns-pride.html?searchResultPosition=4
 
-**‘That’s Not Us!’: Blank Slate Coffee Would Like You to Know It Is Not Blank Street**\
-`A Manhattan coffee outpost changed its name this month in an effort to distance itself from a fast-growing chain that elicits strong feelings from New Yorkers.`\
-https://nytimes.com/2023/06/28/style/blank-street-coffee-slate-cafe.html?searchResultPosition=5
+**How Migrants Flown to Martha’s Vineyard Came to Call It Home**\
+`Florida flew 49 migrants from Texas to the liberal enclave last year. Since then, a few of them have found work, friends and a new life on the wealthy island.`\
+https://nytimes.com/2023/06/28/us/migrants-desantis-marthas-vineyard.html?searchResultPosition=5
 
-**21 Miles of Obstacles**\
-`The Ukrainian counteroffensive faces an enemy nearly as daunting as the Russians: the terrain.`\
-https://nytimes.com/interactive/2023/06/28/world/europe/ukraine-counteroffensive-obstacles.html?searchResultPosition=6
+**Too Many Workers, or Too Few: India’s Colossal Employment Challenge**\
+`In some places, educated young people are desperate for steady employment in the world’s most populous nation. In others, factory owners struggle to retain workers.`\
+https://nytimes.com/2023/06/28/world/asia/india-workforce-economy.html?searchResultPosition=6
 
-**The Philosophers Who Used Word Puzzles to Understand the World**\
-`“A Terribly Serious Adventure,” by Nikhil Krishnan, brings to life the 20th-century Oxford thinkers whose methods of linguistic analysis were deeply influential and vigorously debated.`\
-https://nytimes.com/2023/06/28/books/review/a-terribly-serious-adventure-nikhil-krishnan.html?searchResultPosition=7
+**It’s Never Too Late to Become a Nurse**\
+`During the pandemic, Joanna Patchett spent 18 harrowing months in the intensive care unit. She discovered that medicine isn’t just about science — it’s also about heart.`\
+https://nytimes.com/2023/06/28/health/nursing-school-program.html?searchResultPosition=7
 
-**How Hard Could It Be to Translate a Picture Book?**\
-`With so few words, most of them kid-friendly, it should be a piece of cake. But it depends on who’s holding the whisk.`\
-https://nytimes.com/2023/06/28/books/review/translating-childrens-picture-books.html?searchResultPosition=8
+**More Clematis, Please: How to Make Those Flowers Last All Season**\
+`Because there’s no such thing as too much Clematis, here’s how to get a little more — and make it last a little longer.`\
+https://nytimes.com/2023/06/28/realestate/clematis-flowers.html?searchResultPosition=8
 
-**Eid Does Not Care About Your Schedule. That’s So Liberating.**\
-`The Muslim holiday is a reminder that there is more than one way to think about time. `\
-https://nytimes.com/2023/06/28/opinion/eid-celebration.html?searchResultPosition=9
+**Wagner’s Mutiny Has Century-Old Echoes of Another Russian Debacle**\
+`Amid a flagging war effort, a popular commander turned his troops toward Russia’s own capital, undermining the government. It happened last weekend — and in 1917.`\
+https://nytimes.com/2023/06/28/world/europe/russia-rebellion-prigozhin-1917-kornilov.html?searchResultPosition=9
 
-**Translating Tolstoy While Inciting Revolution**\
-`The radical politics of Russian literature’s most famous English translator, Constance Garnett.`\
-https://nytimes.com/2023/06/28/books/review/constance-garnett-russia-revolution-translation.html?searchResultPosition=10
+**‘His Ability to Do Pretty Much Anything Is Crazy’**\
+`Corbin Carroll is off to a blazing start with the Arizona Diamondbacks. The rookie outfielder is already being compared to Mike Trout and Mookie Betts.`\
+https://nytimes.com/2023/06/28/sports/baseball/corbin-carroll-diamondbacks.html?searchResultPosition=10
 
