@@ -2,8 +2,8 @@
 `The storm was about 360 miles southwest of Manzanillo, a coastal city in Mexico, and was moving away from land on Wednesday.`\
 https://nytimes.com/2023/06/28/world/americas/hurricane-adrian-mexico-pacific.html?searchResultPosition=1
 
-**NATO allies stress the need for vigilance over the possibility of a Wagner base in Belarus.**\
-`By Cora Engelbrecht and Steven Erlanger`\
+**NATO Stresses Risk of Wagner Group’s Potential Relocation to Belarus**\
+`“Belarus is unpredictable and dangerous, and this has not changed,” the Estonian prime minister, Kaja Kallas, said in Brussels at a news conference with NATO’s secretary general. “We are ready for any developments.”`\
 https://nytimes.com/2023/06/28/world/europe/wagner-belarus-nato-estonia-poland.html?searchResultPosition=2
 
 **N.F.L. Players’ Union Selects New Leader**\
