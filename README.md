@@ -1,40 +1,40 @@
+**Can China Export Its Way Out of Its Economic Slump?**\
+`No country has had more export success than China. But Beijing faces risks in turning to the tested method of selling more abroad.`\
+https://nytimes.com/2023/06/28/business/china-exports-economy.html?searchResultPosition=1
+
+**What to Know About Kevin Spacey’s U.K. Trial**\
+`The actor will appear in a London courtroom on Wednesday to face a four-week trial over allegations of sexual assault.`\
+https://nytimes.com/2023/06/28/arts/kevin-spacey-trial-uk.html?searchResultPosition=2
+
+**How Might Congestion Pricing Actually Work in New York?**\
+`The tolls will mostly be collected electronically through the E-ZPass system, and drivers should expect penalties for late payments.`\
+https://nytimes.com/2023/06/28/nyregion/congestion-pricing-nyc.html?searchResultPosition=3
+
+**Richard Ravitch and the Matzo Summit That Saved New York**\
+`In the 1970s, New York City was rescued by a collaboration of union leaders and money men. Could such an alliance happen today?`\
+https://nytimes.com/2023/06/28/nyregion/richard-ravitch-unions-fiscal-crisis.html?searchResultPosition=4
+
+**The Secret Deal for a Tribal Casino and Why It Imploded**\
+`As a deadline looms for reaching a gambling deal with the Seneca Nation of Indians, Gov. Kathy Hochul’s office tried to give the tribe a new casino near Rochester. It backfired.`\
+https://nytimes.com/2023/06/28/nyregion/hochul-casino-rochester-senecas.html?searchResultPosition=5
+
+**No Job, No Marriage, No Kid: China’s Workers and the Curse of 35**\
+`It’s widely discussed in China: Employers don’t want you after 35. Some job listings say it plainly, leaving a generation of prime-age workers feeling defeated.`\
+https://nytimes.com/2023/06/28/business/china-jobs-age-discrimination-35.html?searchResultPosition=6
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2023/06/28/crosswords/spelling-bee-forum.html?searchResultPosition=7
+
+**Today’s Wordle Review**\
+`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
+https://nytimes.com/2023/06/28/crosswords/todays-wordle-review-answer-739.html?searchResultPosition=8
+
 **Word of the Day: vainglorious**\
 `This word has appeared in eight articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/06/28/learning/word-of-the-day-vainglorious.html?searchResultPosition=1
+https://nytimes.com/2023/06/28/learning/word-of-the-day-vainglorious.html?searchResultPosition=9
 
 **Corrections: June 28, 2023**\
 `Corrections that appeared in print on Wednesday, June 28, 2023.`\
-https://nytimes.com/2023/06/28/pageoneplus/corrections-june-28-2023.html?searchResultPosition=2
-
-**Quotation of the Day: Suggestions of Pizza’s Past in a Pompeii Fresco**\
-`Quotation of the Day for Wednesday, June 28, 2023.`\
-https://nytimes.com/2023/06/28/pageoneplus/quotation-of-the-day-suggestions-of-pizzas-past-in-a-pompeii-fresco.html?searchResultPosition=3
-
-**Your Wednesday Briefing**\
-`Prigozhin’s whereabouts.`\
-https://nytimes.com/2023/06/28/briefing/prigozhin-belarus-russia-greece.html?searchResultPosition=4
-
-**The M.T.A. Does Not Have a Property Empire**\
-`The authority owns some real estate, but a lot less than people may think.`\
-https://nytimes.com/2023/06/28/nyregion/mta-real-estate.html?searchResultPosition=5
-
-**German Defense Minister Vows Stronger Geopolitical Role Ahead of U.S. Visit**\
-`In an interview before his first official trip to Washington, Boris Pistorius made clear he is intent on helping the United States by taking a more assertive stance.`\
-https://nytimes.com/2023/06/28/world/europe/german-defense-minister-pistorius-stronger-geopolitical-role.html?searchResultPosition=6
-
-**Completely Disoriented**\
-`Matt Fuchs and Victor Sloan have us cross-eyed.`\
-https://nytimes.com/2023/06/27/crosswords/daily-puzzle-2023-06-28.html?searchResultPosition=7
-
-**Russian General Knew About Mercenary Chief’s Rebellion Plans, U.S. Officials Say**\
-`Yevgeny Prigozhin, the head of Wagner, may have believed he had support in Russia’s military.`\
-https://nytimes.com/2023/06/27/us/politics/russian-general-prigozhin-rebellion.html?searchResultPosition=8
-
-**4 More Arrested in Human Smuggling Case That Left 53 Dead in Texas**\
-`Four men from Mexico were arrested this week, bringing to six the number of people charged after a tractor-trailer was found carrying dead migrants near San Antonio last year.`\
-https://nytimes.com/2023/06/27/us/texas-migrants-smuggling-deaths-arrests.html?searchResultPosition=9
-
-**PGA Tour Board Meets as Scrutiny of Saudi Deal Swells**\
-`The 11-member board did not vote on the surprise pact, whose most significant details are still being negotiated.`\
-https://nytimes.com/2023/06/27/sports/golf/pga-tour-board-liv-saudi-merger.html?searchResultPosition=10
+https://nytimes.com/2023/06/28/pageoneplus/corrections-june-28-2023.html?searchResultPosition=10
 
