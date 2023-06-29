@@ -30,7 +30,7 @@ https://nytimes.com/2023/06/29/briefing/ukraine-russia.html?searchResultPosition
 `The right-wing government of Prime Minister Benjamin Netanyahu has taken steps to increase the number of homes in Jewish settlements in the occupied West Bank, prompting international condemnation.`\
 https://nytimes.com/2023/06/29/world/middleeast/israel-west-bank-settlements-expansion.html?searchResultPosition=8
 
-**U.K. Plan to Send Asylum Seekers to Rwanda Is Unlawful, Court Rules**\
+**Court Rejects U.K. Plan to Fly Asylum Seekers to Rwanda as Unlawful**\
 `A three-judge court of appeals said the African country was not a safe country for migrants seeking asylum. The government is now expected to appeal to the Supreme Court.`\
 https://nytimes.com/2023/06/29/world/europe/uk-rwanda-migrants-unlawful.html?searchResultPosition=9
 
