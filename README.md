@@ -1,4 +1,4 @@
-**Yankees Add Fourth Perfect Game**\
+**A History of Yankees Perfect Games**\
 `A look at the four perfect games thrown by Yankees pitchers, from Don Larsen all the way to Domingo Germán.`\
 https://nytimes.com/interactive/2023/06/29/sports/baseball/yankees-perfect-games.html?searchResultPosition=1
 
