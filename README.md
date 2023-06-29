@@ -1,40 +1,40 @@
-**Domingo Germán Proves Perfection Can Come at Any Time**\
-`Booed off the mound in his last start for the Yankees, Germán joined a fraternity of pitchers that runs the gamut from Hall of Famers to otherwise forgettable fill-ins.`\
-https://nytimes.com/2023/06/29/sports/baseball/perfect-game-domingo-german-larsen.html?searchResultPosition=1
+**In These Corners of Kabul, Western Influences Live On**\
+`While the Taliban have erased most obvious vestiges of the U.S. nation-building effort in Afghanistan, the cultural legacy of two decades of American occupation has been harder to stamp out.`\
+https://nytimes.com/2023/06/29/world/asia/kabul-afghanistan-western-influence.html?searchResultPosition=1
 
-**Tour de France: Vingegaard vs. Pogacar Is the Race to Watch**\
-`The 110th edition of cycling’s greatest race begins Saturday in Spain. Here’s a primer on the stars, the squads and the story lines.`\
-https://nytimes.com/2023/06/29/sports/cycling/tour-de-france-tv-preview.html?searchResultPosition=2
+**Through Pandemics and Wildfires, Can Air Sensors Keep Offices Safe?**\
+`Some companies are turning to technology to illuminate potential hazards in indoor air.`\
+https://nytimes.com/2023/06/29/health/air-quality-pandemic-wildfires.html?searchResultPosition=2
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/06/29/crosswords/spelling-bee-forum.html?searchResultPosition=3
+**12 New Books Coming in July**\
+`Watch for new novels by Colson Whitehead, Silvia Moreno-Garcia and Richard Russo, a climate journalist’s damning study of rising temperatures — and plenty more.`\
+https://nytimes.com/2023/06/29/books/review/new-july-books.html?searchResultPosition=3
 
-**How Bad Will the Ticks Be This Summer?**\
-`Thanks to migrating birds and deer vasectomies, new tick species are settling in New York City, as some experts prepare for the worst.`\
-https://nytimes.com/2023/06/29/nyregion/nyc-tick-diseases-species.html?searchResultPosition=4
+**Prigozhin May Be Gone, but Not the Failings He Ranted About**\
+`The Russian military still suffers from poor communication, coordination and leadership, but most of all, analysts say, from a morale-sapping lack of accountability.`\
+https://nytimes.com/2023/06/29/world/europe/prigozhin-shoigu-gerasimov-surovikin-russia-military.html?searchResultPosition=4
 
-**The Reverberations of Pain and Its Dismissal**\
-`On ‘The Retrievals,’ a new podcast presented by Serial Productions and The New York Times, a dozen women speak about their traumatic experiences at a fertility clinic, where pain medication was secretly swapped out for saline.`\
-https://nytimes.com/2023/06/29/insider/the-reverberations-of-pain-and-its-dismissal.html?searchResultPosition=5
+**Former Ohio House Speaker Awaits Sentence on $60 Million Bribery Scheme**\
+`A federal jury found Larry L. Householder guilty in March of participating in a racketeering conspiracy that resulted in a $1.3 billion bailout for two struggling nuclear power plants.`\
+https://nytimes.com/2023/06/29/us/ohio-speaker-bribery.html?searchResultPosition=5
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/06/29/crosswords/wordle-review-answer-740.html?searchResultPosition=6
+**Cheaper Than Water? Retailers Try to Unload Bud Light.**\
+`The brand is still struggling to win back customers. Nowhere is that more apparent than at stores, where cases of the beer sit untouched.`\
+https://nytimes.com/2023/06/29/business/bud-light-sales.html?searchResultPosition=6
 
-**Word of the Day: lucent**\
-`This word has appeared in three articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/06/29/learning/word-of-the-day-lucent.html?searchResultPosition=7
+**Twitter’s New Chief Eases Into the Hot Seat**\
+`Linda Yaccarino, who initially could not take ad sales meetings because of a noncompete clause, is adjusting to her new role reporting to Elon Musk.`\
+https://nytimes.com/2023/06/29/technology/twitter-ceo-linda-yaccarino.html?searchResultPosition=7
 
-**A History of Yankees Perfect Games**\
-`A look at the four perfect games thrown by Yankees pitchers, from Don Larsen all the way to Domingo Germán.`\
-https://nytimes.com/interactive/2023/06/29/sports/baseball/yankees-perfect-games.html?searchResultPosition=8
+**‘My Body Is a Clock’: The Private Life of Chronic Care**\
+`Every 28 days, I point the camera toward myself to document my illness, care and time.`\
+https://nytimes.com/2023/06/29/opinion/photography-multiple-sclerosis-chronic-care.html?searchResultPosition=8
 
-**Corrections: June 29, 2023**\
-`Corrections that appeared in print on Thursday, June 29, 2023.`\
-https://nytimes.com/2023/06/29/pageoneplus/corrections-june-29-2023.html?searchResultPosition=9
+**This Broadcast TV Genre Continues to Thrive. (What Are Game Shows?)**\
+`“Wheel of Fortune,” “Jeopardy!” and “Family Feud” continue to attract big audiences even as streaming upends viewing habits.`\
+https://nytimes.com/2023/06/29/business/media/tv-game-shows-thrive.html?searchResultPosition=9
 
-**Quotation of the Day: As Creators Sue Montana, It’s TikTok Footing the Bill**\
-`Quotation of the Day for Thursday, June 29, 2023.`\
-https://nytimes.com/2023/06/29/pageoneplus/quotation-of-the-day-as-creators-sue-montana-its-tiktok-footing-the-bill.html?searchResultPosition=10
+**Democrats to Use $20 Million Equal Rights Push to Aid 2024 N.Y. House Bids**\
+`Numerous left-leaning groups are behind a statewide effort to focus attention on a 2024 equal-rights referendum, hoping to increase voter turnout.`\
+https://nytimes.com/2023/06/29/nyregion/equal-rights-amendment-ny.html?searchResultPosition=10
 
