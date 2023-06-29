@@ -1,6 +1,6 @@
-**The court previously endorsed taking account of race to promote educational diversity.**\
-`In earlier decisions, the court had endorsed taking account of race as one factor among many to promote educational diversity.`\
-https://nytimes.com/live/2023/06/29/us/affirmative-action-supreme-court/supreme-court-admissions-affirmative-action-harvard-unc?searchResultPosition=1
+**Extreme Heat Is Here to Stay. Why Are We Not More Afraid?**\
+`In “The Heat Will Kill You First,” Jeff Goodell documents the lethal effects of rising temperatures and argues that we need to take hot weather a lot more seriously.`\
+https://nytimes.com/2023/06/29/books/review/the-heat-will-kill-you-first-jeff-goodell.html?searchResultPosition=1
 
 **False Teeth, Fine Art and a ‘Bag Man’: New Details Emerge in Murder Plot**\
 `Sean Caddle, a New Jersey political operative who pleaded guilty to hiring two men to kill a friend, is scheduled to be sentenced on Thursday.`\
