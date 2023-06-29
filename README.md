@@ -1,6 +1,6 @@
 **Hunter Biden Settles Child-Support Case**\
 `The child will receive some of Hunter Biden’s paintings as part of a settlement that ended a yearslong court battle.`\
-https://nytimes.com/2023/06/29/us/politics/hunter-biden-settles-child-support-case.html?searchResultPosition=1
+https://nytimes.com/2023/06/29/us/politics/hunter-biden-child-support-settlement.html?searchResultPosition=1
 
 **With Supreme Court Decision, College Admissions Could Become More Subjective**\
 `Colleges have a game plan, like emphasizing the personal essay, but so do conservative groups that promise to monitor and, if necessary, go back to court.`\
