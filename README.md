@@ -12,7 +12,7 @@ https://nytimes.com/2023/06/29/nyregion/jonathan-majors-accuser.html?searchResul
 
 **Assemblyman Injured at Armstrong Center Opening By Fleeing Man**\
 `Assemblyman Jeffrion L. Aubry had just spoken at the opening of the Louis Armstrong Center in Queens when a man ran through the crowd and collided with him, witnesses said.`\
-https://nytimes.com/2023/06/29/arts/louis-armstrong-center-jeffrion-aubry-injured.html?searchResultPosition=4
+https://nytimes.com/2023/06/29/arts/jeffrion-aubry-injured-louis-armstrong-center.html?searchResultPosition=4
 
 **Volkswagen Replaces Audi Chief Amid Pressure to Electrify**\
 `Gernot Döllner, who is considered close to Volkswagen’s chief executive, Oliver Blume, will take over at the luxury brand starting Sept. 1.`\
