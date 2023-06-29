@@ -1,4 +1,4 @@
-**U.K. Court Rules Against Plan to Send Asylum Seekers to Rwanda**\
+**U.K. Plan to Send Asylum Seekers to Rwanda Is Unlawful, Court Rules**\
 `A three-judge court of appeals said the African country was not a safe country for migrants seeking asylum. The government is now expected to appeal to the Supreme Court.`\
 https://nytimes.com/2023/06/29/world/europe/uk-rwanda-migrants-unlawful.html?searchResultPosition=1
 
