@@ -10,7 +10,7 @@ https://nytimes.com/2023/06/29/briefing/affirmative-action-us-france-shein-asia.
 `Would Republicans allow the ailing California Democrat to be replaced on the Judiciary Committee if she resigned from her seat? It’s a political question as well as an institutional one.`\
 https://nytimes.com/2023/06/29/us/politics/dianne-feinstein-senate.html?searchResultPosition=3
 
-**Libraries Spared, Rikers Faces Cuts in $107 Billion N.Y.C. Budget Deal**\
+**Libraries Spared but Rikers Suffers in $107 Billion N.Y.C. Budget Deal**\
 `Mayor Eric Adams and the City Council agreed to a “bittersweet” budget that restores funding for key services while cutting others.`\
 https://nytimes.com/2023/06/29/nyregion/new-york-mayor-city-council-budget-deal.html?searchResultPosition=4
 
