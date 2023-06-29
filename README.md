@@ -1,4 +1,4 @@
-**What’s Behind Kennedy’s Popularity With Silicon Valley Moguls**\
+**Why Silicon Valley Moguls Are Backing Kennedy’s Presidential Run**\
 `Robert Kennedy Jr.’s contentious claims on issue including vaccines are drawing acclaim from tech executives who are giving him money and exposure.`\
 https://nytimes.com/2023/06/29/business/dealbook/rfk-tech-dorsey-sacks.html?searchResultPosition=1
 
