@@ -1,40 +1,40 @@
+**Pence Meets With Zelensky in Ukraine, Highlighting G.O.P. Split Over War**\
+`Former President Donald J. Trump has been critical of U.S. involvement in Ukraine’s defense, as has Gov. Ron DeSantis of Florida.`\
+https://nytimes.com/2023/06/29/us/mike-pence-ukraine.html?searchResultPosition=1
+
+**Man Arrested in Attack on Connecticut Lawmaker After Eid Prayer Service**\
+`Representative Maryam Khan had just left an Eid service in downtown Hartford when a man attacked her outside the building.`\
+https://nytimes.com/2023/06/29/nyregion/connecticut-lawmaker-khan-eid-prayer-attack.html?searchResultPosition=2
+
+**Dangerous Heat, Heavy Wildfire Smoke March Across North America**\
+`The twin threats have sickened people across the continent with little relief in sight.`\
+https://nytimes.com/2023/06/29/climate/heat-wave-wildfires-canada-climate.html?searchResultPosition=3
+
+**The Supreme Court Rejected Affirmative Action at Colleges**\
+`Also, the U.S. faces wildfire haze and dangerous heat. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2023/06/29/briefing/supreme-court-affirmative-action-heat-smoke.html?searchResultPosition=4
+
 **Fire Dept. Targets E-Bike Shops in Crackdown on Battery Hazards**\
 `A Manhattan shop was closed after inspectors found more than 100 lithium-ion batteries inside.`\
-https://nytimes.com/2023/06/29/nyregion/e-bike-shop-lithium-ion-batteries.html?searchResultPosition=1
+https://nytimes.com/2023/06/29/nyregion/e-bike-shop-lithium-ion-batteries.html?searchResultPosition=5
 
 **April Kingsley, Curator Who Championed Unsung Artists, Dies at 82**\
 `In shows she organized, and in her writing, she highlighted women and Black artists at a time when they were seldom drawing mainstream attention.`\
-https://nytimes.com/2023/06/29/arts/april-kingsley-dead.html?searchResultPosition=2
+https://nytimes.com/2023/06/29/arts/april-kingsley-dead.html?searchResultPosition=6
 
 **Hunter Biden Settles Child-Support Case**\
 `The child will receive some of Hunter Biden’s paintings as part of a settlement that ended a yearslong court battle.`\
-https://nytimes.com/2023/06/29/us/politics/hunter-biden-child-support-settlement.html?searchResultPosition=3
+https://nytimes.com/2023/06/29/us/politics/hunter-biden-child-support-settlement.html?searchResultPosition=7
 
 **With Supreme Court Decision, College Admissions Could Become More Subjective**\
 `Colleges have a game plan, like emphasizing the personal essay, but so do conservative groups that promise to monitor and, if necessary, go back to court.`\
-https://nytimes.com/2023/06/29/us/affirmative-action-college-admissions-future.html?searchResultPosition=4
+https://nytimes.com/2023/06/29/us/affirmative-action-college-admissions-future.html?searchResultPosition=8
 
 **Your Friday Briefing: Top U.S. Court Rules Against Affirmative Action**\
 `Also, more protests in France and a backlash at Shein.`\
-https://nytimes.com/2023/06/29/briefing/affirmative-action-us-france-shein-asia.html?searchResultPosition=5
+https://nytimes.com/2023/06/29/briefing/affirmative-action-us-france-shein-asia.html?searchResultPosition=9
 
 **When’s the best time to go birding? Whenever you read this.**\
 `By Camille Baker`\
-https://nytimes.com/article/time-to-go-birding.html?searchResultPosition=6
-
-**The Senate’s Feinstein Question**\
-`Would Republicans allow the ailing California Democrat to be replaced on the Judiciary Committee if she resigned from her seat? It’s a political question as well as an institutional one.`\
-https://nytimes.com/2023/06/29/us/politics/dianne-feinstein-senate.html?searchResultPosition=7
-
-**Libraries Spared but Rikers Suffers in $107 Billion N.Y.C. Budget Deal**\
-`Mayor Eric Adams and the City Council agreed to a “bittersweet” budget that restores funding for key services while cutting others.`\
-https://nytimes.com/2023/06/29/nyregion/new-york-mayor-city-council-budget-deal.html?searchResultPosition=8
-
-**In Sherry Country, Wines of the Future That Look to the Past**\
-`Using older methods and sometimes forgotten grapes, these producers hope to revel the magic of the terroir to a new generation of consumers.`\
-https://nytimes.com/2023/06/29/dining/drinks/sherry-country-spanish-wine.html?searchResultPosition=9
-
-**Ruling Raises Uncertainty for High School Students Heading to College**\
-`“I think this will alter my entire application process,” one student said. The Supreme Court left open the possibility that colleges could consider discussions of race in student essays.`\
-https://nytimes.com/2023/06/29/us/politics/affirmative-action-students.html?searchResultPosition=10
+https://nytimes.com/article/time-to-go-birding.html?searchResultPosition=10
 
