@@ -1,4 +1,4 @@
-**N.F.L. Suspends Three Players for Betting on Football in Latest Gambling Violations**\
+**N.F.L. Suspends 3 More Players for Betting on Football**\
 `The league suspended Isaiah Rodgers and Rashod Berry of the Indianapolis Colts and Demetrius Taylor, a free agent, for at least a full season. A fourth player received a six-game penalty for betting on other sports.`\
 https://nytimes.com/2023/06/29/sports/football/nfl-player-suspension-betting.html?searchResultPosition=1
 
@@ -14,7 +14,7 @@ https://nytimes.com/2023/06/29/dining/your-recipes-of-the-summer.html?searchResu
 `A new documentary delves into the infectious curiosity and passions of the Italian scholar and author of “The Name of the Rose.”`\
 https://nytimes.com/2023/06/29/movies/umberto-eco-a-library-of-the-world-review.html?searchResultPosition=4
 
-**Draft subject line here for visibility and workshopping (It will not show up in newsletter) .**\
+**Listen: Serial’s New Series on the Dismissal of Women’s Pain**\
 `Each week, we share the best of new audio journalism and storytelling.`\
 https://nytimes.com/2023/06/29/podcasts/listen-serials-new-series-on-the-dismissal-of-womens-pain.html?searchResultPosition=5
 
