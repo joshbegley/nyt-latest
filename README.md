@@ -26,13 +26,13 @@ https://nytimes.com/2023/06/29/world/canada/canada-stabbing-university-waterloo.
 `Botswana, in southern Africa, has partnered with the London-based diamond giant De Beers for decades. Many in the country are pushing to get a better deal from the industry.`\
 https://nytimes.com/2023/06/29/world/africa/botswana-diamonds-de-beers.html?searchResultPosition=7
 
+**I Teach at an Elite College. Here’s a Look Inside the Racial Gaming of Admissions.**\
+`The end of affirmative action will only cause students and parents to get even more creative about gaming college admissions.`\
+https://nytimes.com/2023/06/29/opinion/college-admissions-affirmative-action.html?searchResultPosition=8
+
 **Neutrinos Build a Ghostly Map of the Milky Way**\
 `Astronomers for the first time detected neutrinos that originated within our local galaxy using a new technique.`\
-https://nytimes.com/2023/06/29/science/neutrinos-milky-way-map.html?searchResultPosition=8
-
-**I Teach at an Elite College. A New Era of Admission Games Is About to Begin.**\
-`The end of affirmative action will only cause students and parents to get even more creative about gaming college admissions.`\
-https://nytimes.com/2023/06/29/opinion/college-admissions-affirmative-action.html?searchResultPosition=9
+https://nytimes.com/2023/06/29/science/neutrinos-milky-way-map.html?searchResultPosition=9
 
 **N.Y.P.D. Has Evidence to Arrest Woman Who Said Jonathan Majors Hit Her**\
 `A lawyer for Mr. Majors, a star of Marvel movies, has said that he was the victim in the domestic violence investigation.`\
