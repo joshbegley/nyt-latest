@@ -34,7 +34,7 @@ https://nytimes.com/2023/06/28/theater/grief-hotel-liza-berkenmeier.html?searchR
 `Why would Biden “reset” relations with a crown prince who seeks a nuclear program?`\
 https://nytimes.com/2023/06/28/opinion/putin-mbs-saudi-arabia-biden.html?searchResultPosition=9
 
-**In Harlem and Beyond, City Election Points to a Generational Power Shift**\
+**In Harlem and Beyond, N.Y.C. Election Points to Generational Power Shift**\
 `Yusef Salaam, exonerated as part of the Central Park 5 in 2002, appeared to be heading toward a City Council victory as voters embraced more moderate candidates.`\
 https://nytimes.com/2023/06/28/nyregion/yusef-salaam-new-york-city-council.html?searchResultPosition=10
 
