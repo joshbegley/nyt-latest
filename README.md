@@ -1,4 +1,4 @@
-**Towing Company Charged in Multimillion-Dollar Catalytic Converter Scheme**\
+**Towing Company Charged in Multimillion-Dollar Catalytic Converter Ring**\
 `TDI Towing in Philadelphia spent millions buying stolen catalytic converters off the street and selling them at a profit, prosecutors said. The case is among the latest to target a growing crime.`\
 https://nytimes.com/2023/06/29/us/philadelphia-catalytic-converter-theft.html?searchResultPosition=1
 
