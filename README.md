@@ -1,6 +1,6 @@
 **The Debate Over Affirmative Action Isn’t Over**\
 `Reader offer a range of reactions to the Supreme Court ruling. Also: Do the justices have any regrets over their Dobbs decision?`\
-https://nytimes.com/2023/06/30/opinion/letters/surpeme-court-affirmative-action.html?searchResultPosition=1
+https://nytimes.com/2023/06/30/opinion/letters/supreme-court-affirmative-action.html?searchResultPosition=1
 
 **The Big Number: 29(ish)**\
 `Ryan Seacrest is essentially a one-man TV and radio hosting monopoly. We add up his time at the microphone.`\
