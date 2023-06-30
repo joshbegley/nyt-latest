@@ -30,8 +30,8 @@ https://nytimes.com/2023/06/30/business/executive-compensation-highest-pay.html?
 `It was the 14th arrest stemming from the dismantling of what officials say was a plot to sabotage arms shipments to Ukraine.`\
 https://nytimes.com/2023/06/30/world/europe/poland-russia-spy-suspect.html?searchResultPosition=8
 
-**A Key Inflation Gauge Cooled in May, Welcome News for the Fed**\
-`The Federal Reserve is monitoring “core” price increases for a hint at how inflation will develop. A slowdown in May is likely to come as a welcome development.`\
+**Key Inflation Gauge Cooled in May, a Glimmer of Good News for the Fed**\
+`The Federal Reserve is monitoring “core” price increases for a hint at how inflation will develop. They slowed slightly in May.`\
 https://nytimes.com/2023/06/30/business/economy/inflation-may-federal-reserve.html?searchResultPosition=9
 
 **Consumer Spending Stalled Last Month**\
