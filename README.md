@@ -3,7 +3,7 @@
 https://nytimes.com/2023/06/30/sports/baseball/harrison-bader-yankees-cardinals.html?searchResultPosition=1
 
 **Why Corporate America Is Worried About Affirmative Action**\
-`Many businesses have adopted policies to diversify hiring. The Supreme Court’s ruling ending affirmative action in higher education likely endangers those efforts.`\
+`Many businesses have adopted policies to diversify hiring but the Supreme Court’s ruling to end the policy in universities endangers those efforts.`\
 https://nytimes.com/2023/06/30/business/dealbook/corporate-diversity-affirmative-action.html?searchResultPosition=2
 
 **Kevin Spacey Called ‘Sexual Bully’ by Prosecutor in U.K. Trial**\
