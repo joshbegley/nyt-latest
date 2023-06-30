@@ -18,8 +18,8 @@ https://nytimes.com/2023/06/29/us/boston-woman-high-school-student-fraud.html?se
 `Scot Peterson, a former Florida deputy who failed to confront the gunman in the Parkland shooting, was found not guilty of child neglect and other crimes.`\
 https://nytimes.com/video/us/100000008976794/scot-peterson-parkland-verdict.html?searchResultPosition=5
 
-**Biden’s Iran Envoy Is Placed on Unpaid Leave**\
-`The veteran diplomat’s security clearance is under review, news media outlets reported.`\
+**Biden’s Iran Envoy Is Placed on Leave Amid Security Clearance Review**\
+`Even before the news about his leave, Robert Malley seemed to be playing a less prominent role in U.S. policy toward Iran in recent months.`\
 https://nytimes.com/2023/06/29/us/politics/iran-envoy-malley-leave.html?searchResultPosition=6
 
 **In Nahel M., a Stranger Killed by Police, French Protesters See Friend and Kin**\
