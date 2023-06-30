@@ -1,6 +1,6 @@
 **What is the HEROES Act?**\
 `Lawyers for the Biden administration told the Supreme Court that it could cancel billions of dollars in student debt because Congress had given it that authority using the HEROES Act in 2003.`\
-https://nytimes.com/2023/06/30/us/politics/what-is-the-heroes-act.html?searchResultPosition=1
+https://nytimes.com/2023/06/30/us/politics/heroes-act.html?searchResultPosition=1
 
 **Brazil Set to Bar Bolsonaro From Office for Election-Fraud Claims**\
 `Brazil’s electoral court had enough votes to block former President Jair Bolsonaro from office until 2030 for spreading false claims about voting.`\
