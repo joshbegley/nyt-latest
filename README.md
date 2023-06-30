@@ -23,7 +23,7 @@ https://nytimes.com/2023/06/30/world/americas/bolsonaro-brazil-banned-office.htm
 https://nytimes.com/2023/06/30/movies/netflix-expiring-july-skyfall-streaming.html?searchResultPosition=6
 
 **Student Loans Decision Unravels One of Biden’s Signature Efforts**\
-`President Biden has a new challenge: how to respond to the disappointment of millions of his supporters who whose thousands of dollars in debt is coming due.`\
+`President Biden has a new challenge: how to respond to the disappointment of millions of his supporters whose thousands of dollars in debt is coming due.`\
 https://nytimes.com/2023/06/30/us/politics/biden-student-loans.html?searchResultPosition=7
 
 **In a Mutiny or Coup, the Scramble to Persuade and Pick a Side Is Critical**\
