@@ -30,7 +30,7 @@ https://nytimes.com/interactive/2023/06/30/world/europe/russia-ukraine-war-zapor
 `Exclusively from New York Times Audio, our new app.`\
 https://nytimes.com/2023/06/30/podcasts/headlines-nyt-audio-app.html?searchResultPosition=8
 
-**Cambodian Ruler’s Facebook Account Goes Dark After Spat with Meta**\
+**Cambodian Ruler’s Facebook Account Goes Dark After Spat With Meta**\
 `Prime Minister Hun Sen, an avid user of the platform, had vowed to delete his account after Meta’s oversight board said he had used it to threaten political violence.`\
 https://nytimes.com/2023/06/30/world/asia/cambodia-hun-sen-meta-facebook.html?searchResultPosition=9
 
