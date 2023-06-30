@@ -1,18 +1,18 @@
+**What the Affirmative Action Ruling Means for Colleges and Universities**\
+`The end of race-conscious admissions could have wide-ranging effects. Here’s what might happen.`\
+https://nytimes.com/2023/06/30/us/affirmative-action-diversity-college-education.html?searchResultPosition=1
+
 **G.O.P. Presidential Candidates Applaud the Court’s Student Loan Decision**\
 `Former Vice President Mike Pence sought credit for having “played a role” in appointing conservative justices to the court.`\
-https://nytimes.com/2023/06/30/us/politics/republican-candidate-reaction-student-loans.html?searchResultPosition=1
+https://nytimes.com/2023/06/30/us/politics/republican-candidate-reaction-student-loans.html?searchResultPosition=2
 
 **Highlights of the Student Loan Forgiveness Opinions and Dissent**\
 `The court’s Republican-appointed conservative majority ruled over the vigorous dissent of its three Democratic-appointed liberal justices. Here are some key excerpts.`\
-https://nytimes.com/2023/06/30/us/politics/student-loan-forgiveness-opinions-dissent-scotus-highlights.html?searchResultPosition=2
+https://nytimes.com/2023/06/30/us/politics/student-loan-forgiveness-opinions-dissent-scotus-highlights.html?searchResultPosition=3
 
 **Shein’s Influencer Fiasco**\
 `How the brand’s use of creators triggered a backlash.`\
-https://nytimes.com/2023/06/30/style/shein-influencer.html?searchResultPosition=3
-
-**What the Affirmative Action Ruling Means for Colleges and Universities**\
-`The end of race-conscious admissions could have wide-ranging effects. Here’s what might happen.`\
-https://nytimes.com/2023/06/30/us/affirmative-action-diversity-college-education.html?searchResultPosition=4
+https://nytimes.com/2023/06/30/style/shein-influencer.html?searchResultPosition=4
 
 **Why We Don’t Recommend the Ninja Creami**\
 `It's hard to clean and expensive for what it is.`\
