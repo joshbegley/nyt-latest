@@ -18,7 +18,7 @@ https://nytimes.com/2023/06/30/well/family/sex-drive-relationships.html?searchRe
 `To participate, submit your response here by July 7 at 9 a.m. Eastern. This week’s winners will be announced on July 18.`\
 https://nytimes.com/2023/06/30/learning/summer-reading-contest-week-4-what-got-your-attention-in-the-times-this-week.html?searchResultPosition=5
 
-**‘Now, Let’s Be a Starfish!’: Learning With ‘Ms. Rachel,’ Song by Song**\
+**‘Now, Let’s Be a Starfish!’: Learning With Ms. Rachel, Song by Song**\
 `The YouTube star of “Songs for Littles,” an online video series that pulls millions of views, says she’s found her calling in encouraging children to speak.`\
 https://nytimes.com/2023/06/30/style/ms-rachel-youtube-videos.html?searchResultPosition=6
 
