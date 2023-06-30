@@ -10,7 +10,7 @@ https://nytimes.com/2023/06/30/podcasts/transcript-ezra-klein-interviews-stephen
 `The settlement with a former producer, Abby Grossberg, is the latest development in a series of legal battles involving Fox.`\
 https://nytimes.com/2023/06/30/business/media/abby-grossberg-fox-news-settlement.html?searchResultPosition=3
 
-**Social Media Influencer Sentenced for False Report of Kidnapping Attempt**\
+**Influencer Gets 90 Days in Jail for False Report of Kidnapping Attempt**\
 `In 2020, Katie Sorensen posted an Instagram video describing how a couple tried to kidnap her two children at a craft store in Petaluma, Calif.`\
 https://nytimes.com/2023/06/30/us/katie-sorensen-fake-kidnapping-california-jail.html?searchResultPosition=4
 
