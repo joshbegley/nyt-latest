@@ -1,6 +1,6 @@
 **N.Y.C. Mayor Compares Housing Activist to Plantation Owner**\
 `Mayor Eric Adams told Jeanie Dubnau to “treat me with the same level of respect I treat you” and compared her to a plantation owner when she pointedly asked about back-to-back rent hikes.`\
-https://nytimes.com/video/us/politics/100000008976950/nyc-mayor-compares-housing-activist-to-plantation-owner.html?searchResultPosition=1
+https://nytimes.com/video/us/politics/100000008976950/nyc-eric-adams-plantation-owner.html?searchResultPosition=1
 
 **Variety: Acrostic**\
 `Mark Halpin returns with a quiet acrostic that resonates.`\
