@@ -1,40 +1,40 @@
+**Summer Reading Contest, Week 4: What Got Your Attention in The Times This Week?**\
+`To participate, submit your response here by July 7 at 9 a.m. Eastern. This week’s winners will be announced on July 18.`\
+https://nytimes.com/2023/06/30/learning/summer-reading-contest-week-4-what-got-your-attention-in-the-times-this-week.html?searchResultPosition=1
+
+**‘Now, Let’s Be a Starfish!’: Learning With ‘Ms. Rachel,’ Song by Song**\
+`The YouTube star of “Songs for Littles,” an online video series that pulls millions of views, says she’s found her calling in encouraging children to speak.`\
+https://nytimes.com/2023/06/30/style/ms-rachel-youtube-videos.html?searchResultPosition=2
+
+**From Up Here, You Can See Manhattan, and Houses Left to Crumble**\
+`Neither development nor demolition has occurred in a community on a cliff in New Jersey since an investor group bought 12 houses in the late 2000s.`\
+https://nytimes.com/2023/06/30/realestate/union-city-new-jersey-houses.html?searchResultPosition=3
+
+**Retiree Medical Costs Are Expected to Moderate, but Still High**\
+`An estimate puts the average cost over a 20-year retirement at about $157,000. That’s almost double the estimate in 2002.`\
+https://nytimes.com/2023/06/30/your-money/retiree-health-care-costs.html?searchResultPosition=4
+
+**Two California Companies Will Soon Sell Lab-Grown Meat**\
+`Upside Foods and Good Meat, both based in the Bay Area, are the first companies approved by the U.S. to sell meat grown from animal cells.`\
+https://nytimes.com/2023/06/30/us/california-lab-grown-meat.html?searchResultPosition=5
+
+**How Sweet It Is, if You’re the Boss**\
+`C.E.O. pay has risen again, reaching levels that were unthinkable a generation ago. Google, Hertz, Peloton and Live Nation lead the list.`\
+https://nytimes.com/2023/06/30/business/executive-compensation-highest-pay.html?searchResultPosition=6
+
 **Polish Authorities Detain Athlete Suspected of Being Russian Spy**\
 `It was the 14th arrest stemming from the dismantling of what officials say was a plot to sabotage arms shipments to Ukraine.`\
-https://nytimes.com/2023/06/30/world/europe/poland-russia-spy-suspect.html?searchResultPosition=1
+https://nytimes.com/2023/06/30/world/europe/poland-russia-spy-suspect.html?searchResultPosition=7
 
 **A Key Inflation Gauge Cooled in May, Welcome News for the Fed**\
 `The Federal Reserve is monitoring “core” price increases for a hint at how inflation will develop. A slowdown in May is likely to come as a welcome development.`\
-https://nytimes.com/2023/06/30/business/economy/inflation-may-federal-reserve.html?searchResultPosition=2
+https://nytimes.com/2023/06/30/business/economy/inflation-may-federal-reserve.html?searchResultPosition=8
 
 **Consumer Spending Stalled Last Month**\
 `The slowdown is good news for policymakers worried about inflation, but a sign that the engine of the economy could be losing steam.`\
-https://nytimes.com/2023/06/30/business/consumer-spending-may.html?searchResultPosition=3
+https://nytimes.com/2023/06/30/business/consumer-spending-may.html?searchResultPosition=9
 
 **To Unlock His Potential, He Needed to Come Home**\
 `Harrison Bader loved St. Louis but couldn’t thrive there. A weekend series between the Yankees and the Cardinals offers a reminder of a trade that helped both teams.`\
-https://nytimes.com/2023/06/30/sports/baseball/harrison-bader-yankees-cardinals.html?searchResultPosition=4
-
-**Why Corporate America Is Worried About Affirmative Action**\
-`Many businesses have adopted policies to diversify hiring but the Supreme Court’s ruling to end the policy in universities endangers those efforts.`\
-https://nytimes.com/2023/06/30/business/dealbook/corporate-diversity-affirmative-action.html?searchResultPosition=5
-
-**Kevin Spacey Called ‘Sexual Bully’ by Prosecutor in U.K. Trial**\
-`The prosecution outlined its case against the actor, who has pleaded not guilty to 12 sexual assault charges.`\
-https://nytimes.com/2023/06/30/movies/kevin-spacey-trial.html?searchResultPosition=6
-
-**Smoky Conditions Persist Across Large Parts of U.S.**\
-`Smoke driven by the wildfires in Canada lingered over the Northeast and Midwest on Friday. Conditions were expected to improve over the Fourth of July weekend.`\
-https://nytimes.com/2023/06/30/us/air-quality-wildfires-smoke-forecast.html?searchResultPosition=7
-
-**Group Accuses Ukraine of Using Prohibited Land Mines**\
-`Human Rights Watch found evidence in May that Ukrainian soldiers had fired 15 rockets at Russian forces, each containing hundreds of small antipersonnel land mines.`\
-https://nytimes.com/2023/06/30/us/ukraine-land-mines-report.html?searchResultPosition=8
-
-**For a Documentary on Intersex Lives, a Director Champions the Power of Activism**\
-`With “Every Body,” Julie Cohen looks at both what her subjects have been through and how they are translating those experiences into action.`\
-https://nytimes.com/2023/06/30/movies/intersex-documentary.html?searchResultPosition=9
-
-**‘The Democracy Project’ Puts America Onstage, Warts and All**\
-`In a show staged in Federal Hall, five prominent playwrights tell the story of the site of significant events in the country’s founding, without glossing over the uglier parts.`\
-https://nytimes.com/2023/06/30/theater/the-democracy-project-federal-hall.html?searchResultPosition=10
+https://nytimes.com/2023/06/30/sports/baseball/harrison-bader-yankees-cardinals.html?searchResultPosition=10
 
