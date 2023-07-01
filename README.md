@@ -1,6 +1,6 @@
 **On ‘The Bear,’ Interning at a Fine-Dining Restaurant Is Rosier Than Reality**\
 `Real-life chefs said the portrayal of haute cuisine work was a bit soft-focus.`\
-https://nytimes.com/2023/06/30/dining/fx-the-bear-internship-accuracy.html?searchResultPosition=1
+https://nytimes.com/2023/06/30/dining/the-bear-stage-restaurant.html?searchResultPosition=1
 
 **Certain Surprise Party?**\
 `Ben Tolkin makes a hip debut.`\
