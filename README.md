@@ -1,40 +1,40 @@
+**Hunter Biden’s Daughter and a Tale of Two Families**\
+`The story surrounding the president’s sixth grandchild, who has not yet met her father or her grandfather, is about money, corrosive politics and what it means to have the Biden birthright.`\
+https://nytimes.com/2023/07/01/us/politics/arkansas-hunter-biden-daughter.html?searchResultPosition=1
+
+**Along With Conservative Triumphs, Signs of New Caution at Supreme Court**\
+`Chief Justice Roberts delivered both landmark victories for the right and significant rulings in which he forged alliances with the liberal justices.`\
+https://nytimes.com/2023/07/01/us/supreme-court-liberal-conservative.html?searchResultPosition=2
+
 **DeSantis, Seeking Attention, Uses L.G.B.T.Q Issues to Attack Trump**\
 `The Florida governor sought to contrast his record opposing gay and transgender rights in a video highlighting comments made by the former president during the 2016 campaign — but has gotten some pushback.`\
-https://nytimes.com/2023/07/01/us/politics/desantis-video-lgbtq-trump.html?searchResultPosition=1
+https://nytimes.com/2023/07/01/us/politics/desantis-video-lgbtq-trump.html?searchResultPosition=3
 
 **Protests Continue Across France After Police Killing of Teenager**\
 `Demonstrators have burned hundreds of cars and damaged buildings in protests that erupted after a French police officer shot and killed a 17-year-old during a traffic stop.`\
-https://nytimes.com/video/world/europe/100000008979228/france-protests-nahel-police-shooting.html?searchResultPosition=2
+https://nytimes.com/video/world/europe/100000008979228/france-protests-nahel-police-shooting.html?searchResultPosition=4
 
 **At Funeral for Nahel M. Near Paris, Anguish, Anger and Racial Tensions**\
 `For many in the crowd, including hundreds who could not fit in the mosque to mourn the teenager killed by a police officer, his story felt familiar.`\
-https://nytimes.com/2023/07/01/world/europe/nahel-funeral-france-protests.html?searchResultPosition=3
+https://nytimes.com/2023/07/01/world/europe/nahel-funeral-france-protests.html?searchResultPosition=5
 
 **In the Paris Suburb Where Police Shot a Teenager, Violence and Vigilance**\
 `French suburbs have been rocked by riots that have tapped into a deep-seated resentment toward the police. Many residents understand the anger, but not the violence.`\
-https://nytimes.com/2023/07/01/world/europe/paris-shooting-protests-violence.html?searchResultPosition=4
+https://nytimes.com/2023/07/01/world/europe/paris-shooting-protests-violence.html?searchResultPosition=6
 
 **From the Docks to Dodger Stadium, Los Angeles Workers Are Feeling Emboldened**\
 `California union members are pressuring employers over wages in one of the nation’s most labor-friendly states.`\
-https://nytimes.com/2023/07/01/us/workers-labor-unions-los-angeles-california.html?searchResultPosition=5
+https://nytimes.com/2023/07/01/us/workers-labor-unions-los-angeles-california.html?searchResultPosition=7
 
 **Dutch King Apologizes for His Country’s Role in the Slave Trade**\
 `The Netherlands formally abolished slavery in its colonies in 1863, but has only recently begun to actively acknowledge its participation in the practice.`\
-https://nytimes.com/2023/07/01/world/europe/netherlands-king-slavery-apology.html?searchResultPosition=6
+https://nytimes.com/2023/07/01/world/europe/netherlands-king-slavery-apology.html?searchResultPosition=8
 
 **Elena Kagan Has Had Enough**\
 `Her dissent on the student loan decision is revealing.`\
-https://nytimes.com/2023/07/01/opinion/elena-kagan-dissent-supreme-court.html?searchResultPosition=7
+https://nytimes.com/2023/07/01/opinion/elena-kagan-dissent-supreme-court.html?searchResultPosition=9
 
 **Fireworks Have a New Competitor: Drones**\
 `The light displays are quieter, safer and better for the environment.`\
-https://nytimes.com/2023/07/01/business/dealbook/fourth-of-july-fireworks-drones.html?searchResultPosition=8
-
-**Why Platonic Friendships Are So Hard to Keep**\
-`On the show ‘Platonic’ and what research says about old straight married people and opposite-sex friends.`\
-https://nytimes.com/2023/07/01/opinion/platonic-married.html?searchResultPosition=9
-
-**Child’s Play**\
-`An editor recommends old and new books.`\
-https://nytimes.com/2023/07/01/books/childs-play.html?searchResultPosition=10
+https://nytimes.com/2023/07/01/business/dealbook/fourth-of-july-fireworks-drones.html?searchResultPosition=10
 
