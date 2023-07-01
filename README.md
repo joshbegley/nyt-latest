@@ -10,7 +10,7 @@ https://nytimes.com/2023/07/01/us/politics/hunter-biden-daughter-arkansas.html?s
 `Chief Justice Roberts delivered both landmark victories for the right and significant rulings in which he forged alliances with the liberal justices.`\
 https://nytimes.com/2023/07/01/us/supreme-court-liberal-conservative.html?searchResultPosition=3
 
-**DeSantis, Seeking Attention, Uses L.G.B.T.Q Issues to Attack Trump**\
+**DeSantis, Seeking Attention, Uses L.G.B.T.Q. Issues to Attack Trump**\
 `The Florida governor sought to contrast his record opposing gay and transgender rights in a video highlighting comments made by the former president during the 2016 campaign — but has gotten some pushback.`\
 https://nytimes.com/2023/07/01/us/politics/desantis-video-lgbtq-trump.html?searchResultPosition=4
 
