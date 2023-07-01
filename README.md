@@ -1,6 +1,6 @@
 **Biden Rules Tighten Limits on Drone Strikes**\
 `The New York Times obtained a declassified version of rules for drone strikes and commando raids, along with a counterterrorism strategy document, via a Freedom of Information Act lawsuit.`\
-https://nytimes.com/2023/07/01/us/biden-rules-tighten-limits-on-drone-strikes.html?searchResultPosition=1
+https://nytimes.com/2023/07/01/us/biden-drone-strikes.html?searchResultPosition=1
 
 **Hunter Biden’s Daughter and a Tale of Two Families**\
 `The story surrounding the president’s sixth grandchild, who has not yet met her father or her grandfather, is about money, corrosive politics and what it means to have the Biden birthright.`\
