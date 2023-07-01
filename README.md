@@ -16,7 +16,7 @@ https://nytimes.com/2023/07/01/opinion/elena-kagan-dissent-supreme-court.html?se
 
 **Fireworks Have a New Competitor: Drones**\
 `The light displays are quieter, safer and better for the environment.`\
-https://nytimes.com/2023/07/01/business/dealbook/fireworks-have-a-new-competitor-drones.html?searchResultPosition=5
+https://nytimes.com/2023/07/01/business/dealbook/fourth-of-july-fireworks-drones.html?searchResultPosition=5
 
 **Why Platonic Friendships Are So Hard to Keep**\
 `On the show ‘Platonic’ and what research says about old straight married people and opposite-sex friends.`\
