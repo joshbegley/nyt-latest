@@ -3,7 +3,7 @@
 https://nytimes.com/2023/07/01/us/biden-drone-strikes.html?searchResultPosition=1
 
 **Hunter Biden’s Daughter and a Tale of Two Families**\
-`The story surrounding the president’s sixth grandchild, who has not yet met her father or her grandfather, is about money, corrosive politics and what it means to have the Biden birthright.`\
+`The story surrounding the president’s grandchild in Arkansas, who has not yet met her father or her grandfather, is about money, corrosive politics and what it means to have the Biden birthright.`\
 https://nytimes.com/2023/07/01/us/politics/hunter-biden-daughter-arkansas.html?searchResultPosition=2
 
 **Along With Conservative Triumphs, Signs of New Caution at Supreme Court**\
