@@ -1,5 +1,5 @@
 **Red Bull Rolls Onto Home Soil in Austria**\
-`Max Verstappen will look to extend his season points lead, and his winning streak to five races, on Red Bull’s home track.`\
+`Max Verstappen will look to extend his season points lead, and his winning streak, on Red Bull’s home track.`\
 https://nytimes.com/2023/07/02/sports/autoracing/f1-time-tv-results-austrian-grand-prix.html?searchResultPosition=1
 
 **Russian Forces Launch Overnight Drone Attacks on Kyiv**\
