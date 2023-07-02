@@ -1,5 +1,5 @@
 **Yellen to Visit China in Bid to Steady Economic Ties**\
-`The trip to Beijing will be her first as Treasury Secretary and is intended to ease tensions between the world’s two largest economies.`\
+`The trip to Beijing will be her first as Treasury secretary and is intended to ease tensions between the world’s two largest economies.`\
 https://nytimes.com/2023/07/02/business/janet-yellen-china-visit.html?searchResultPosition=1
 
 **Chicago and NASCAR, an Odd Couple With High Hopes, Take It to the Streets**\
