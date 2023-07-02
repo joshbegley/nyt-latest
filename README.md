@@ -1,6 +1,6 @@
 **Tesla Sales Surge as Tax Credits Fuel Demand**\
 `Incentives and price cuts made Tesla electric cars cheaper than comparable gasoline models. But the company faces growing competition in China, a key market.`\
-https://nytimes.com/2023/07/02/business/tesla-second-quarter-sales-electric-vehicles.html?searchResultPosition=1
+https://nytimes.com/2023/07/02/business/tesla-q2-sales-deliveries.html?searchResultPosition=1
 
 **Jon Haggins, Designer Who Slipped Into and Out of Fashion, Dies at 79**\
 `He was a member of a cohort of Black designers celebrated in the late 1960s and early ’70s. But struggles with financing led to several changes in direction.`\
