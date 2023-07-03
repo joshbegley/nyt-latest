@@ -14,7 +14,7 @@ https://nytimes.com/2023/07/03/us/politics/rfk-jr-fundraising.html?searchResultP
 `A supposed request for a website for a same-sex wedding played a minor role in a major clash between free speech and gay rights at the Supreme Court.`\
 https://nytimes.com/2023/07/03/us/politics/same-sex-marriage-document-supreme-court.html?searchResultPosition=4
 
-**At Wimbledon, Novak Djokovic Eyes Cleaning Up on the Grass**\
+**At Wimbledon, Novak Djokovic Aims to Clean Up on the Grass**\
 `If Djokovic can win his fifth consecutive title at the All England Club, he will be three-quarters of the way to a Grand Slam.`\
 https://nytimes.com/2023/07/03/sports/tennis/wimbledon-novak-djokovic.html?searchResultPosition=5
 
