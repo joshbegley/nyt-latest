@@ -15,7 +15,7 @@ https://nytimes.com/2023/07/03/business/saudi-arabia-russia-oil-cuts.html?search
 https://nytimes.com/2023/07/03/realestate/dementia-villages-senior-living.html?searchResultPosition=4
 
 **‘The Idol’ Season Finale Recap: What Was the Point?**\
-`The season finale, like most of the rest of the series, had shockingly little to say about either pop music or power dynamics.`\
+`The season finale, like the rest of the series, had little of substance to say about either pop music or power dynamics.`\
 https://nytimes.com/2023/07/03/arts/television/the-idol-season-finale-recap.html?searchResultPosition=5
 
 **With Indiana Jones’s Return, Looking Back at the Opening Scene of ‘Raiders’**\
