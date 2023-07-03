@@ -1,5 +1,5 @@
 **Israeli Military Launches Airstrikes on Jenin Refugee Camp**\
-`Smoke rose from buildings during an Israeli raid on militant targets in a densely populated area of the occupied West Bank.`\
+`Smoke rose from buildings during an Israeli raid in a densely populated area of the occupied West Bank.`\
 https://nytimes.com/video/world/middleeast/100000008980222/israel-jenin-raid-airstrike.html?searchResultPosition=1
 
 **The Secret to an Excellent Sandwich**\
