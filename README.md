@@ -1,5 +1,5 @@
 **Judge Investigated Over His Profane TikTok Videos**\
-`The New Jersey judge, Gary Wilcox, posted the videos using an alias. In some, he wore judicial robes. AOthers were recorded from bed.`\
+`The New Jersey judge, Gary Wilcox, posted the videos using an alias. In some, he wore judicial robes. At least one was recorded from bed.`\
 https://nytimes.com/2023/07/03/nyregion/new-jersey-judge-gary-wilcox-tiktok.html?searchResultPosition=1
 
 **Senegal’s President Rules Out a Divisive Third Term**\
