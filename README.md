@@ -18,7 +18,7 @@ https://nytimes.com/2023/07/03/sports/cricket/england-australia-ashes-dispute.ht
 `Visit the Koreatown shop from Bobby Kwak, enjoy a family barbecue sauce from a grandmother and more food news.`\
 https://nytimes.com/2023/07/03/dining/sundaes-best-ktown-nyc.html?searchResultPosition=5
 
-**G.O.P. Threatens Spy Agencies’ Premier Surveillance Tool**\
+**G.O.P. Threatens Spy Agencies’ Surveillance Tool**\
 `With hard-right Republicans attacking federal law enforcement agencies and unwilling to extend their broad powers, a major warrantless surveillance program targeting foreigners overseas may face new limits from Congress.`\
 https://nytimes.com/2023/07/03/us/section-702-spying.html?searchResultPosition=6
 
