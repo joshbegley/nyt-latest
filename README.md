@@ -23,7 +23,7 @@ https://nytimes.com/2023/07/03/sports/baseball/mets-yankees-all-stars.html?searc
 https://nytimes.com/2023/07/03/crosswords/spelling-bee-fanatic.html?searchResultPosition=6
 
 **Saudi Arabia and Russia to Extend Oil Cuts**\
-`The major exporters announced production cuts amid concerns about weaker demand’s effects on prices.`\
+`The major exporters announced supply cuts amid concerns about weaker demand’s effects on prices.`\
 https://nytimes.com/2023/07/03/business/saudi-arabia-russia-oil-cuts.html?searchResultPosition=7
 
 **As Cases Soar, ‘Dementia Villages’ Look Like the Future of Home Care**\
