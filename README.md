@@ -1,40 +1,40 @@
-**She’s Going Into 6th Grade and Already Saving for College**\
-`A New York City program encourages children to save from kindergarten.`\
-https://nytimes.com/2023/07/03/nyregion/college-savings-accounts-new-york.html?searchResultPosition=1
+**The 20 Best Texas Barbecue Restaurants From the New Generation**\
+`Over the last decade, the rule book for barbecue has been rewritten. Here are some the most important new authors of this singular cuisine.`\
+https://nytimes.com/2023/07/03/dining/best-texas-bbq-restaurants-new-generation.html?searchResultPosition=1
 
-**GOATs Are Everywhere in Sports. So What Really Defines Greatness?**\
-`Athletes from Tom Brady to Serena Williams to LeBron James have all been tabbed the Greatest of All Time. Faced with the term’s pervasive use, our columnist considers how sports heroes become transcendent.`\
-https://nytimes.com/2023/07/03/sports/tennis/greatest-athlete-of-all-time.html?searchResultPosition=2
+**Texas Barbecue Is the Best It Has Ever Been. Here’s Why.**\
+`In a new golden age, younger pitmasters are advancing the form using dynamic flavors from Black, Mexican and Asian cuisines, among others.`\
+https://nytimes.com/2023/07/03/dining/texas-barbecue.html?searchResultPosition=2
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/07/03/crosswords/spelling-bee-forum.html?searchResultPosition=3
+**The Ultramarathoner Racing Against the Course, and Himself**\
+`Nickademus de la Rosa, an ultrarunning prodigy who has run across Death Valley and the Alps, is taking a pause from the sport as he copes with borderline personality disorder.`\
+https://nytimes.com/2023/07/03/sports/ultramarathon-mental-illness.html?searchResultPosition=3
 
-**New Migrants Have a Year to Apply for Asylum. Many Won’t Make It.**\
-`Tens of thousands of people who crossed the border in the last year planned to apply for asylum. But the complexities of the process mean many will fail.`\
-https://nytimes.com/2023/07/03/nyregion/migrants-asylum-nyc.html?searchResultPosition=4
+**In Tuna-Obsessed Tunisia, a Favorite Food Becomes a Lot Less Affordable**\
+`Tunisians put canned tuna on pizza, pastries and pretty much everything else. Don’t even ask for a tuna-free sandwich. But inflation risks turning an everyday essential into a luxury out of reach.`\
+https://nytimes.com/2023/07/03/world/middleeast/tunisia-tuna-fish.html?searchResultPosition=4
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/07/03/crosswords/wordle-review-answer-744.html?searchResultPosition=5
+**Can Couture Be More Socially Responsible?**\
+`Renaissance, a French nonprofit, focuses on producing upcycled pieces made in the couture style while providing job training opportunities.`\
+https://nytimes.com/2023/07/03/style/upcycled-couture-fashion-renaissance.html?searchResultPosition=5
 
-**Who’s Winning the Trump vs. DeSantis Meme Wars?**\
-`The battle reflects the importance of social media for campaigns, and the growing threat of fake images and videos.`\
-https://nytimes.com/interactive/2023/07/03/us/politics/trump-desantis-memes.html?searchResultPosition=6
+**Will America Be Ready for Its 250th Birthday?**\
+`History is a partisan battleground. A troubled national planning commission is attempting a reboot. Here comes the Semiquincentennial, ready or not.`\
+https://nytimes.com/2023/07/03/arts/america-250-anniversary-1776.html?searchResultPosition=6
 
-**Word of the Day: disdainful**\
-`This word has appeared in 26 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/07/03/learning/word-of-the-day-disdainful.html?searchResultPosition=7
+**How Stalin’s Control of Foreign Reporters Helped Shape Russia Coverage Today**\
+`In “The Red Hotel,” Alan Philps, a former Moscow correspondent, documents the lives of Western journalists under Stalin and traces through lines to media relations in Russia today.`\
+https://nytimes.com/2023/07/03/books/red-hotel-alan-philps-moscow.html?searchResultPosition=7
 
-**No Corrections: July 3, 2023**\
-`No corrections that appeared in print on Monday, July 3, 2023.`\
-https://nytimes.com/2023/07/03/pageoneplus/no-corrections-july-3-2023.html?searchResultPosition=8
+**The False Patriotism of Putting Our Complaints Aside**\
+`Frederick Douglass expanded the meaning of American patriotism by reminding the nation what it still owed its populous.`\
+https://nytimes.com/2023/07/03/opinion/july-fourth-patriotism-douglass.html?searchResultPosition=8
 
-**Quotation of the Day: ‘Urban Explorers,’ or Russian Agents?**\
-`Quotation of the Day for Monday, July 3, 2023.`\
-https://nytimes.com/2023/07/03/pageoneplus/quotation-of-the-day-urban-explorers-or-russian-agents.html?searchResultPosition=9
+**Why Car Repairs Have Become So Expensive**\
+`More technology and creature comforts, as well as a parade of new electric vehicles, have complicated the job after accidents.`\
+https://nytimes.com/2023/07/03/business/car-repairs-electric-vehicles.html?searchResultPosition=9
 
-**What’s on TV This Week: Fourth of July Fireworks and ‘Moonshine’**\
-`Networks air specials for Independence Day, and the CW premieres a Canadian comedy about a dysfunctional family running a summer resort.`\
-https://nytimes.com/2023/07/03/arts/television/whats-on-tv-this-week-fourth-of-july-fireworks-and-moonshine.html?searchResultPosition=10
+**A New Kind of Disaster Aid: Pay People Cash, Before Disaster Strikes**\
+`Experiments suggest that sums as low as $50 can help the world’s poorest protect themselves and their property in ways they couldn’t otherwise.`\
+https://nytimes.com/2023/07/03/climate/cash-disaster-relief.html?searchResultPosition=10
 
