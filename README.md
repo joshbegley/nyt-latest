@@ -1,4 +1,4 @@
-**Meta’s Twitter Killer App Is Coming**\
+**Meta’s ‘Twitter Killer’ App Is Coming**\
 `Meta, which owns Facebook and Instagram, teased a new app called Threads that is set to take on Twitter for real-time digital conversations.`\
 https://nytimes.com/2023/07/03/technology/meta-app-twitter.html?searchResultPosition=1
 
