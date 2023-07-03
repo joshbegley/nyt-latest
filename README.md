@@ -14,7 +14,7 @@ https://nytimes.com/2023/07/03/us/politics/-2023-07-02-us-politics-republicans-p
 `After the Supreme Court banned race-conscious affirmative action, activists filed a complaint, saying legacy admissions helped students who are overwhelmingly rich and white.`\
 https://nytimes.com/2023/07/03/us/harvard-alumni-children-affirmative-action.html?searchResultPosition=4
 
-**Can Social Security Be Fixed Forever?**\
+**How to Deal with the Coming Social Security Shortfall**\
 `Experts disagree on how far we should kick the can down the road.`\
 https://nytimes.com/2023/07/03/opinion/fix-social-security.html?searchResultPosition=5
 
