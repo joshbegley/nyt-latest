@@ -1,5 +1,5 @@
 **Gunman Kills Four in Southwest Philadelphia, Police Say**\
-`Four others were injured, and at least two of those shot were juveniles, the police said.`\
+`The suspect was wearing body armor and three guns were recovered, the police said.`\
 https://nytimes.com/2023/07/03/us/philadelphia-shooting-kingsessing.html?searchResultPosition=1
 
 **Summer Setting in N.Y.C.**\
