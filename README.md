@@ -10,7 +10,7 @@ https://nytimes.com/2023/07/04/sports/cte-female-athlete-heather-anderson.html?s
 `Readers offer their opinions as well as ideas for alternatives. Also: Grief and “The Bear”; straight spouses left behind; Brazil’s example for the U.S.`\
 https://nytimes.com/2023/07/04/opinion/letters/supreme-court-student-loans.html?searchResultPosition=3
 
-**Edward Fredkin, Who Saw the Universe as One Big Computer, Dies at 88**\
+**Edward Fredkin, 88, Who Saw the Universe as One Big Computer, Dies**\
 `An influential M.I.T. professor and an outside-the-box scientific theorist, he gained fame with unorthodox views as a pioneer in digital physics.`\
 https://nytimes.com/2023/07/04/science/edward-fredkin-dead.html?searchResultPosition=4
 
