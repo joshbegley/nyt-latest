@@ -1,6 +1,6 @@
 **Criticism of Jewelry Sale With Nazi Shadow Trails Christie’s**\
 `Jewish organizations have rejected donations from the auction house, which sold gems from an estate that profited during the Holocaust.`\
-https://nytimes.com/2023/07/04/arts/criticism-of-jewelry-sale-with-nazi-shadow-trails-christies.html?searchResultPosition=1
+https://nytimes.com/2023/07/04/arts/christies-jewelry-sale-nazi-holocaust.html?searchResultPosition=1
 
 **After Protests, France Holds Hasty Trials for Hundreds**\
 `The streets are calmer, after days of unrest over the police shooting of a teenager, but the courts are going into overdrive. Lawyers for those arrested often have just 30 minutes to prepare.`\
