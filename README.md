@@ -1,4 +1,4 @@
-**Meta Loses Appeal on How it Harvests Data in Germany**\
+**Meta Loses Appeal on How It Harvests Data in Germany**\
 `The ruling by the European Court of Justice clears the way for Germany’s top antitrust enforcer to block Meta from combining user data across its platforms.`\
 https://nytimes.com/2023/07/04/business/meta-germany-data.html?searchResultPosition=1
 
