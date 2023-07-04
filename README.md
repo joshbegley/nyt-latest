@@ -1,4 +1,4 @@
-**Gunman Kills Four in Philadelphia, Police Say**\
+**Gunman Kills Four in Southwest Philadelphia, Police Say**\
 `Four others were injured, and at least two of those shot were juveniles, the police said.`\
 https://nytimes.com/2023/07/03/us/philadelphia-shooting-kingsessing.html?searchResultPosition=1
 
