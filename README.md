@@ -3,8 +3,8 @@
 https://nytimes.com/2023/07/04/dining/restaurant-review-rafs-nyc.html?searchResultPosition=1
 
 **David Adjaye Relinquishes Roles After Reported Accusations of Misconduct**\
-`The acclaimed architect stepped back from a number of positions after The Financial Times reported that he had been accused of sexual assault.  Mr. Adjaye called the allegations “untrue.”`\
-https://nytimes.com/2023/07/04/arts/design/david-adjaye-relinquishes-roles-after-reported-accusations-of-misconduct.html?searchResultPosition=2
+`The acclaimed architect stepped back from a number of positions after The Financial Times reported that he had been accused of sexual assault. Mr. Adjaye called the allegations “untrue.”`\
+https://nytimes.com/2023/07/04/arts/design/david-adjaye-architect-sexual-assault.html?searchResultPosition=2
 
 **Tiny Love Stories: ‘My Entire Body Shook With Passionate Interest’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
