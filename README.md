@@ -7,7 +7,7 @@ https://nytimes.com/2023/07/04/arts/design/david-adjaye-relinquishes-roles-after
 https://nytimes.com/2023/07/04/style/tiny-modern-love-stories-my-entire-body-shook-with-passionate-interest.html?searchResultPosition=2
 
 **Her Symphony Reclaims an Ancestral Story, and Classical Music**\
-`Tamar-Kali, a former punk rocker, wove episodes of Gullah Geechee history into “Sea Island Symphony,” premiering at Lincoln Center in Manhattan.`\
+`Tamar-kali, a former punk rocker, wove episodes of Gullah Geechee history into “Sea Island Symphony,” premiering at Lincoln Center in Manhattan.`\
 https://nytimes.com/2023/07/04/arts/music/tamar-kali-sea-island-symphony-lincoln-center.html?searchResultPosition=3
 
 **Missing Massachusetts Woman Is Found Stuck in Mud in a State Park**\
