@@ -30,8 +30,8 @@ https://nytimes.com/2023/07/04/magazine/unintentional-asmr-videos.html?searchRes
 `Her painstaking blends are dazzling diners and critics — and upending long-held notions about how winemaking is supposed to work.`\
 https://nytimes.com/2023/07/04/magazine/maggie-harrison-wine-antica-terra.html?searchResultPosition=8
 
-**Israeli Military Combs West Bank City for More Militant Targets**\
-`Israel’s major incursion into Jenin, which has involved airstrikes, entered a second day. Thousands of residents in the area have fled their homes.`\
+**Attack in Tel Aviv Wounds 8 as Israel’s Deadly Raid in West Bank Continues**\
+`On the second day of the major military incursion into the Palestinian city of Jenin, Israeli officials said a car had rammed civilians in Tel Aviv, an assault praised by the militant group Hamas.`\
 https://nytimes.com/2023/07/04/world/middleeast/israel-jenin-west-bank-raid.html?searchResultPosition=9
 
 **Meta Loses Appeal on How It Harvests Data in Germany**\
