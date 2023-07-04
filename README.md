@@ -1,40 +1,40 @@
-**How ‘Barbie’ Landed in Hot Water in Vietnam**\
-`Greta Gerwig’s upcoming film has been banned in the country for its use of a map depicting territory that both China and Vietnam claim as their own.`\
-https://nytimes.com/2023/07/04/world/asia/barbie-vietnam-south-china-sea.html?searchResultPosition=1
+**The Republican Not Heading to a July 4 Parade? Trump.**\
+`But for early-state G.O.P. voters hoping for more attention on Independence Day, the pickings will be plentiful: Mike Pence, Ron DeSantis and others will be on the trail.`\
+https://nytimes.com/2023/07/04/us/politics/trump-republican-campaign-july-4.html?searchResultPosition=1
 
-**Hong Kong Offers Bounties as It Pursues Dissidents Overseas**\
-`The rewards of $128,000 for information leading to the prosecution of dissidents who have fled Hong Kong reflect stepped-up pressure to intimidate activists beyond the reach of the government.`\
-https://nytimes.com/2023/07/04/world/asia/hong-kong-bounties-dissidents.html?searchResultPosition=2
+**Biden Sidesteps Any Notion That He’s a ‘Flaming Woke Warrior’**\
+`Despite his alliance with abortion-rights supporters and L.G.B.T.Q. advocates, the president has deftly avoided becoming enmeshed in battles over hotly contested social issues.`\
+https://nytimes.com/2023/07/04/us/politics/biden-abortion-lgbtq-issues.html?searchResultPosition=2
 
-**Tunnel Five Fire Burns Hundreds of Acres in Washington**\
-`An estimated 250 homes were threatened by the fire, and officials issued evacuation orders for residents in a two-mile radius.`\
-https://nytimes.com/video/us/100000008981586/washington-tunnel-five-fire.html?searchResultPosition=3
+**How William Byrd Influences Music, 400 Years After His Death**\
+`Four popular composers explain how this Englishman’s ideas ricochet through their own works today.`\
+https://nytimes.com/2023/07/04/arts/music/how-william-byrd-influences-music-400-years-after-his-death.html?searchResultPosition=3
 
-**Quick-Moving Wildfire in Washington Threatens Homes and Residents**\
-`The Tunnel Five Fire started on Sunday, and more than 150 emergency workers have been tending to it, according to the authorities.`\
-https://nytimes.com/2023/07/04/us/washington-tunnel-five-fire.html?searchResultPosition=4
+**The Enemies of Slavery Gave New Meaning to the Declaration of Independence**\
+`The story of the changing importance of the Declaration should be a reminder that our nation had more than one founding.`\
+https://nytimes.com/2023/07/04/opinion/declaration-independence-antislavery-movement.html?searchResultPosition=4
 
-**The Gray Suit Takes Center Stage**\
-`Thom Browne makes his couture debut, while Schiaparelli, Dior and Iris Van Herpen spin their own dreamy tales.`\
-https://nytimes.com/2023/07/04/style/couture-dior-schiaparelli-thom-browne-paris.html?searchResultPosition=5
+**After Armed Rebellion, Putin Tries to Reinforce His Defenses**\
+`Long focused on security, the Russian president is rewarding loyalty among the ruling elite and showering his most important constituency — the men with guns — with cash.`\
+https://nytimes.com/2023/07/04/world/europe/russia-putin-prigozhin.html?searchResultPosition=5
 
-**It’s Getting Hard to Stage a School Play Without Political Drama**\
-`At a time when lawmakers and parents are seeking to restrict what can and cannot be taught in classrooms, many teachers are seeing efforts to limit what can be staged in their auditoriums.`\
-https://nytimes.com/2023/07/04/theater/school-plays-politics.html?searchResultPosition=6
+**Corporate Landscaping Lets Its Hair Down**\
+`More companies are eschewing manicured grass in favor of native plants, a shift driven by the environmental costs of installing and maintaining lawns.`\
+https://nytimes.com/2023/07/04/business/corporate-landscaping-native-plants.html?searchResultPosition=6
 
-**A Summer Basketball Refuge Thrives in the Bronx’s Largest Housing Complex**\
-`Basketball gave Rasheem Jenkins “an escape from the reality of the projects.” Now he runs a summer league in the Bronx development where he grew up.`\
-https://nytimes.com/2023/07/04/nyregion/a-summer-basketball-refuge-thrives-in-the-bronxs-largest-housing-complex.html?searchResultPosition=7
+**Why Abortion Stories Matter**\
+`The stories abortion doctors tell about their work play a vital role in exposing the substandard care endured by patients since Dobbs.`\
+https://nytimes.com/2023/07/04/opinion/abortion-dobbs-doctors-story.html?searchResultPosition=7
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/07/04/crosswords/spelling-bee-forum.html?searchResultPosition=8
+**Does the Hudson Valley Beat Malibu? Ask Lorraine Toussaint.**\
+`After losing her California home in the 2018 wildfires, the actress bought an early-19th-century farmhouse near Rhinebeck, N.Y.`\
+https://nytimes.com/2023/07/04/realestate/lorraine-toussaint-hudson-valley.html?searchResultPosition=8
 
-**A Year After July 4 Parade Shooting, Some Americans Rethink Big Gatherings**\
-`Concerns about gun violence at large public events leave some contemplating safety measures or even staying home.`\
-https://nytimes.com/2023/07/04/us/parades-safety-highland-park-anniversary.html?searchResultPosition=9
+**In Scotland, Taking the Traditional and Making It New**\
+`Tartan, whisky, restaurants in the middle of nowhere — all are being reimagined in newly fashionable “Outlander” territory.`\
+https://nytimes.com/2023/07/04/travel/scotland-restaurants-hotels-distilleries.html?searchResultPosition=9
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/07/04/crosswords/wordle-review-answer-745.html?searchResultPosition=10
+**At Home With Lorraine Toussaint**\
+`After losing her California home in the 2018 wildfires, the actress bought an early 19th-century farmhouse near Rhinebeck, N.Y.`\
+https://nytimes.com/slideshow/2023/07/04/realestate/at-home-with-lorraine-toussaint.html?searchResultPosition=10
 
