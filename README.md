@@ -11,7 +11,7 @@ https://nytimes.com/2023/07/05/health/vaccines-rsv-covid-flu.html?searchResultPo
 https://nytimes.com/video/world/middleeast/100000008982613/jenin-palestinians-funeral-israel-raid.html?searchResultPosition=3
 
 **China Took Her Husband. She Was Left to Uncover His Secret Cause.**\
-`He was brilliant, quirky and intensely private. Also, she now suspects, an anonymous dissident blogger, who had won fame for years of evading the surveillance state.`\
+`He was brilliant, quirky and intensely private — and also, she now suspects, an anonymous dissident blogger who had won fame for years of evading the surveillance state.`\
 https://nytimes.com/2023/07/05/world/asia/china-dissident-blog-program-think.html?searchResultPosition=4
 
 **The Man Who Wants to Be the Biggest Thing in Fashion**\
