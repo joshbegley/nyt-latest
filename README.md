@@ -30,7 +30,7 @@ https://nytimes.com/2023/07/05/world/asia/north-korea-spy-satellite-useless-fail
 `Rabbi Azman sprang into action when Russia invaded in February 2022, working to help evacuate Jewish Ukrainians.`\
 https://nytimes.com/2023/07/05/world/europe/rabbi-ukraine-viral-russia.html?searchResultPosition=8
 
-**Israel’s Military Says It Withdrew From West Bank City After Deadly Raid**\
+**Israel’s Military Says It Has Withdrawn From West Bank City After Deadly Raid**\
 `The major military incursion into the Palestinian city of Jenin left at least 12 Palestinians and one Israeli soldier dead, while an assault on civilians in Tel Aviv wounded at least eight.`\
 https://nytimes.com/2023/07/05/world/middleeast/israel-withdraws-jenin-west-bank.html?searchResultPosition=9
 
