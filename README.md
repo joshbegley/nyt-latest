@@ -1,40 +1,40 @@
+**How Extreme Weather Could Threaten California’s Dams**\
+`A conversation with Christopher Cox, who wrote about the near-failure of the Oroville Dam and whether it could happen again.`\
+https://nytimes.com/2023/07/05/us/california-dams-extreme-weather.html?searchResultPosition=1
+
+**A Tech Checklist for the Dark Side of Summer Weather**\
+`This season has seen excessive heat, violent storms and hazardous smoke already, but you can prepare for future events with a few apps and tools.`\
+https://nytimes.com/2023/07/05/technology/personaltech/summer-weather-apps.html?searchResultPosition=2
+
+**Meet Blackbraid, a Black Metal Musician With Native American Roots**\
+`Sgah’gahsowáh, the artist behind the one-man band, combines the genre’s traditional heavy sounds with a focus on nature. His new album, “Blackbraid II,” is out Friday.`\
+https://nytimes.com/2023/07/05/arts/music/blackbraid-native-american-black-metal.html?searchResultPosition=3
+
+**I Had an Affair With Someone My Spouse and I See Socially. Help!**\
+`After ending a yearslong extramarital affair, a reader worries about a coming dinner party that will be attended by both the former lover and the reader’s spouse.`\
+https://nytimes.com/2023/07/05/style/extramarital-affair-social-interactions.html?searchResultPosition=4
+
+**Easy Mode: Clues for Friday, July 7, 2023**\
+`Get some help on the Friday crossword puzzle.`\
+https://nytimes.com/2023/07/05/crosswords/easy-mode-clues-for-july-5.html?searchResultPosition=5
+
 **A New Ruling Could Complicate Biden’s Policy on Social Media**\
 `A judge’s decision to limit how the administration can interact with platforms could chill the White House’s efforts to utilize and police big tech.`\
-https://nytimes.com/2023/07/05/business/dealbook/biden-policy-social-media.html?searchResultPosition=1
+https://nytimes.com/2023/07/05/business/dealbook/biden-policy-social-media.html?searchResultPosition=6
 
 **Pro-Vaccine Views Are Winning. Don’t Fear the Skeptics.**\
 `Robert F. Kennedy Jr. is getting a lot of play. But his views are in the minority.`\
-https://nytimes.com/2023/07/05/opinion/kennedy-vaccines.html?searchResultPosition=2
+https://nytimes.com/2023/07/05/opinion/kennedy-vaccines.html?searchResultPosition=7
 
 **Social Class Is Not About Only Race**\
 `Class diversity has been a blind spot for many colleges. Will that now change?`\
-https://nytimes.com/2023/07/05/briefing/affirmative-action.html?searchResultPosition=3
+https://nytimes.com/2023/07/05/briefing/affirmative-action.html?searchResultPosition=8
 
 **‘Smallville’ Actress Who Recruited Women for Nxivm Is Released From Prison**\
 `Allison Mack, the former “Smallville” actress, was sentenced to three years in prison in 2021.`\
-https://nytimes.com/2023/07/05/us/allison-mack-released-nxivm.html?searchResultPosition=4
+https://nytimes.com/2023/07/05/us/allison-mack-released-nxivm.html?searchResultPosition=9
 
 **How MrBeast Became the Willy Wonka of YouTube**\
 `The social media megastar regularly goes viral for giving away money in extremely extravagant and colorful ways.`\
-https://nytimes.com/2023/07/05/podcasts/the-daily/mr-beast-youtube.html?searchResultPosition=5
-
-**Today’s Top News: Israel’s Deadly Operation in the West Bank, and More**\
-`Exclusively from New York Times Audio, our new app.`\
-https://nytimes.com/2023/07/05/podcasts/headlines-nyt-audio-app.html?searchResultPosition=6
-
-**A Drone and a Crane Save the Day as China Reels From Extreme Weather**\
-`Heavy rains and heat waves have affected parts of China and the Asia Pacific region this week. More of the same was in the forecast.`\
-https://nytimes.com/2023/07/05/world/asia/china-asia-flooding-building-collapse.html?searchResultPosition=7
-
-**An Artist Whose Language Is Painting**\
-`Christina Quarles discusses representation, trades and protein shakes.`\
-https://nytimes.com/2023/07/05/t-magazine/an-artist-whose-language-is-painting.html?searchResultPosition=8
-
-**The D.N.C. Has a Primary Problem**\
-`The White House wanted South Carolina to vote first in 2024. The Democratic National Committee obliged. It hasn’t gone according to plan.`\
-https://nytimes.com/2023/07/05/magazine/democratic-national-committee-2024.html?searchResultPosition=9
-
-**In ‘The Horror of Dolores Roach,’ the Empanadas Are to Die For**\
-`Justina Machado and Aaron Mark went uptown to sample the savory pastries that play a central role in their new horror-comedy — minus the mystery meat.`\
-https://nytimes.com/2023/07/05/arts/television/the-horror-of-dolores-roach-justina-machado-aaron-mark.html?searchResultPosition=10
+https://nytimes.com/2023/07/05/podcasts/the-daily/mr-beast-youtube.html?searchResultPosition=10
 
