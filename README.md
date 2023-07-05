@@ -7,7 +7,7 @@ https://nytimes.com/2023/07/05/health/medicare-mental-health-shortage.html?searc
 https://nytimes.com/2023/07/05/podcasts/the-gift-of-holiday-men.html?searchResultPosition=2
 
 **U.S. ‘Fully’ Supports Sweden’s Bid to Join NATO, Biden Says**\
-`President Recep Tayyip Erdogan of Turkey has blocked Sweden’s NATO membership bid, making its acceptance highly unlikely.`\
+`President Recep Tayyip Erdogan of Turkey has blocked Sweden’s NATO membership bid.`\
 https://nytimes.com/video/us/politics/100000008983510/biden-sweden-nato-membership.html?searchResultPosition=3
 
 **Years After Iranian Missiles Downed a Passenger Jet, a Suit Seeks Answers**\
