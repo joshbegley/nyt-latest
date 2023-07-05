@@ -22,7 +22,7 @@ https://nytimes.com/2023/07/05/us/texas-el-paso-gunman-sentencing.html?searchRes
 `A pop star across Asia by her early 20s, Ms. Lee reached international recognition with an Oscar-nominated song in 2001.`\
 https://nytimes.com/2023/07/05/arts/music/coco-lee-dead.html?searchResultPosition=6
 
-**The Supreme Court Enshrines Racial Imbalance**\
+**The Supreme Court Didn’t Put Racism on a Leash. It Granted It License.**\
 `By striking down affirmative action, justices take the absurd position that racism must be ignored for racism to be overcome.`\
 https://nytimes.com/2023/07/05/opinion/supreme-court-affirmative-action.html?searchResultPosition=7
 
