@@ -14,7 +14,7 @@ https://nytimes.com/2023/07/05/world/us-democracy-voting-rights-act.html?searchR
 `Elizabeth Tsurkov, an Israeli researcher, was seized in late March by an Iraqi Shiite group shortly after leaving a Baghdad cafe, Prime Minister Benjamin Netanyahu said.`\
 https://nytimes.com/2023/07/05/world/middleeast/iraq-iran-elizabeth-tsurkov.html?searchResultPosition=4
 
-**In an Ambivalent Scotland, a Second Coronation for Charles**\
+**With the Stone of Destiny and Mary’s Crown, Scotland Names Charles King**\
 `While this one was purely ceremonial, it offered the king a chance to mend fences with a nation that is not hugely enamored of him or the monarchy.`\
 https://nytimes.com/2023/07/05/world/europe/king-charles-scotland-coronation.html?searchResultPosition=5
 
