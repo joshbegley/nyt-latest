@@ -11,8 +11,8 @@ https://nytimes.com/2023/07/05/world/europe/tourist-colosseum-rome-apology.html?
 https://nytimes.com/2023/07/05/sports/soccer/mbappe-paris-st-germain.html?searchResultPosition=3
 
 **Fed Officials Were Wary About Slow Inflation Progress at June Meeting**\
-`Federal Reserve officials are debating how high to raise interest rates to fully wrangle inflation. The debate was in focus at their June meeting.`\
-https://nytimes.com/2023/07/05/business/economy/fed-officials-were-wary-about-slow-inflation-progress-at-june-meeting.html?searchResultPosition=4
+`Federal Reserve officials are debating how high to raise interest rates to fully wrangle inflation. The debate was in focus at their meeting last month.`\
+https://nytimes.com/2023/07/05/business/economy/federal-reserve-june-minutes.html?searchResultPosition=4
 
 **Yusef Salaam Is Declared Winner of Harlem City Council Race**\
 `Mr. Salaam was one of the Central Park Five who were wrongly convicted and then exonerated in the rape and assault of a jogger in Central Park in 1989.`\
