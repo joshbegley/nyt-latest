@@ -15,7 +15,7 @@ https://nytimes.com/2023/07/05/business/media/gq-david-zaslav-warner-bros-discov
 https://nytimes.com/2023/07/05/world/us-democracy-voting-rights-act.html?searchResultPosition=4
 
 **Israeli Woman Held for Months in Iraq by a Shiite Militia**\
-`Elizabeth Tsurkov, an Israeli researcher, was seized in late March by an Iraqi Shiite group shortly after leaving a Baghdad cafe, Prime Minister Benjamin Netanyahu said.`\
+`Elizabeth Tsurkov, an Israeli researcher, was seized in late March by an Iraqi Shiite group shortly after leaving a Baghdad cafe. Prime Minister Benjamin Netanyahu confirmed she was being held.`\
 https://nytimes.com/2023/07/05/world/middleeast/iraq-iran-elizabeth-tsurkov.html?searchResultPosition=5
 
 **With the Stone of Destiny and Mary’s Crown, Scotland Names Charles King**\
