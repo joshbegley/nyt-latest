@@ -27,7 +27,7 @@ https://nytimes.com/2023/07/05/insider/in-a-ukrainian-hospital-interviewing-a-wo
 https://nytimes.com/2023/07/05/world/asia/north-korea-spy-satellite-useless-failure.html?searchResultPosition=7
 
 **Rabbi’s Brush With Danger in Ukraine Went Viral**\
-`Rabbi Azman sprang into action when Russia invaded in February 2022, working to help evacuate Jewish Ukrainians.`\
+`A video put a fresh spotlight on the chief rabbi of Ukraine, whose renown predates his humanitarian efforts since Russia’s full-scale invasion.`\
 https://nytimes.com/2023/07/05/world/europe/rabbi-ukraine-viral-russia.html?searchResultPosition=8
 
 **Israel’s Military Says It Has Withdrawn From West Bank City After Deadly Raid**\
