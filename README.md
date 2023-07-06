@@ -26,8 +26,8 @@ https://nytimes.com/2023/07/06/realestate/homes-for-sale-in-manhattan-and-queens
 `This week’s properties are three-bedroom homes in Westport, Conn., and Sea Cliff, N.Y.`\
 https://nytimes.com/2023/07/06/realestate/housing-market-near-nyc.html?searchResultPosition=7
 
-**Car Crashes Into London School, Injuring 7 Children**\
-`A vehicle smashed into a private elementary school for girls, the police said, adding that two adults had also been hurt. Officials said they were not treating the incident as terrorism-related.`\
+**Car Crashes Into London School, Killing a Child and Injuring Others**\
+`The driver of the vehicle that smashed into a private elementary school for girls has been arrested, but officials were not treating the incident as terrorism-related.`\
 https://nytimes.com/2023/07/06/world/europe/car-crash-school-london-wimbledon.html?searchResultPosition=8
 
 **Advertisers Pay Attention as Meta’s Twitter Rival Surges**\
