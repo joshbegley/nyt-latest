@@ -1,5 +1,5 @@
 **At Wimbledon, Sofia Kenin Rediscovers Her Fighting Form**\
-`Kenin’s straight-sets win over Xinyu Wang on Thursday was only the fourth time all year that she had won two matches in a row.`\
+`With her straight-sets win over Xinyu Wang on Thursday, Kenin had won a second consecutive match for only the fourth time all year.`\
 https://nytimes.com/2023/07/06/sports/tennis/wimbledon-sofia-kenin.html?searchResultPosition=1
 
 **Your Friday Briefing: Global Heat Shatters Records**\
