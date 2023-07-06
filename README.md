@@ -4,7 +4,7 @@ https://nytimes.com/2023/07/06/world/africa/zambia-conservation-delia-owens.html
 
 **What 120 Degrees Looks Like in One of Mexico’s Hottest Cities**\
 `During the most recent heat wave, residents of the northern city of Hermosillo struggled to breathe in the scorching temperatures.`\
-https://nytimes.com/2023/07/06/admin/hermosillo-mexico-heat.html?searchResultPosition=2
+https://nytimes.com/2023/07/06/world/americas/hermosillo-mexico-heat.html?searchResultPosition=2
 
 **Two Firefighters Die in Blaze on Cargo Ship in Newark**\
 `Firefighters responded to a fire on a cargo ship docked at Port Newark, which was carrying more than a thousand vehicles when the blaze started.`\
