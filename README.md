@@ -4,7 +4,7 @@ https://nytimes.com/2023/07/06/business/dealbook/advertisers-threads-twitter.htm
 
 **List Prices Are Creeping Downward After Years of Inflation**\
 `Is the tiny change a pivotal moment in the housing market?`\
-https://nytimes.com/2023/07/06/realestate/list-prices-are-creeping-downward-after-years-of-inflation.html?searchResultPosition=2
+https://nytimes.com/2023/07/06/realestate/home-prices-inflation.html?searchResultPosition=2
 
 **U.S. Expected to Provide Cluster Munitions to Ukraine, Official Says**\
 `Ukraine has pressed the United States to supply it with the munitions. Here’s a guide to why this type of weapon is controversial and widely banned — and why Kyiv wants it.`\
