@@ -3,7 +3,7 @@
 https://nytimes.com/2023/07/06/health/abortion-misoprostol.html?searchResultPosition=1
 
 **2 Newark Firefighters Brought Years of Service to Their Final Fire**\
-`Augusto “Augie” Acabou and Wayne Brooks Jr., who died fighting a blaze on a cargo ship, were products of Engine 16 in Newark’s Ironbound neighborhood.`\
+`Augusto Acabou and Wayne Brooks Jr., who died fighting a blaze on a cargo ship, were products of Engine 16 in Newark’s Ironbound neighborhood.`\
 https://nytimes.com/2023/07/06/nyregion/port-newark-firefighters.html?searchResultPosition=2
 
 **John Kerry to Visit China to Restart Climate Negotiations**\
