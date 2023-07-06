@@ -1,6 +1,6 @@
 **Welcome to the Age of the Cage Match**\
 `These days, powerful men want to beat one another. Literally.`\
-https://nytimes.com/2023/07/06/style/welcome-to-the-age-of-the-cage-match.html?searchResultPosition=1
+https://nytimes.com/2023/07/06/style/cage-match-fight.html?searchResultPosition=1
 
 **We Are Breaking Heat Records Around the World**\
 `Also, Prigozhin is in Russia. Here’s the latest at the end of Thursday.`\
