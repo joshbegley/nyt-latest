@@ -1,40 +1,40 @@
+**NBC’s New Chief Overhauls Top Ranks**\
+`Donna Langley will gain broader oversight of creative decisions for the company’s entertainment content. Mark Lazarus is getting a wider purview over some business decisions for creative content.`\
+https://nytimes.com/2023/07/06/business/media/nbcuniversal-cavanagh-executives.html?searchResultPosition=1
+
 **Eagles Join Parade of Acts on Final Tours With a ‘Long Goodbye’**\
 `The band, which performed a “farewell” tour in 2003, will begin what’s billed as a last run of dates in September.`\
-https://nytimes.com/2023/07/06/arts/music/eagles-final-tour.html?searchResultPosition=1
+https://nytimes.com/2023/07/06/arts/music/eagles-final-tour.html?searchResultPosition=2
 
 **‘The YouTube Effect’ Review: Tracing a Platform’s Cultural Footprint**\
 `Alex Winter offers an overview of the world’s second most popular website in this unfocused tech documentary.`\
-https://nytimes.com/2023/07/06/movies/the-youtube-effect-review.html?searchResultPosition=2
+https://nytimes.com/2023/07/06/movies/the-youtube-effect-review.html?searchResultPosition=3
 
 **Winnie Ewing, Who Transformed Scottish Politics, Dies at 93**\
 `Her charismatic nationalism made independence from Britain a mainstream idea. She championed that idea for her many decades in office.`\
-https://nytimes.com/2023/07/06/world/europe/winnie-ewing-dead.html?searchResultPosition=3
+https://nytimes.com/2023/07/06/world/europe/winnie-ewing-dead.html?searchResultPosition=4
 
 **Pieces of Munich Synagogue, Destroyed on Hitler’s Orders, Found in River**\
 `The demolition of the city’s main synagogue was an early sign of the terrible destruction to come under the Nazi regime.`\
-https://nytimes.com/2023/07/06/world/europe/munich-synagogue-hitler-germany.html?searchResultPosition=4
+https://nytimes.com/2023/07/06/world/europe/munich-synagogue-hitler-germany.html?searchResultPosition=5
 
 **Ron DeSantis Is Running One Freaky Campaign**\
 `Rather than try to lift people up, he seems to be running on contempt.`\
-https://nytimes.com/2023/07/06/opinion/ron-desantis-presidential-campaign.html?searchResultPosition=5
+https://nytimes.com/2023/07/06/opinion/ron-desantis-presidential-campaign.html?searchResultPosition=6
 
 **3 Easy Dishes, One Near-Effortless Summer Dinner Party**\
 `Turmeric potato salad, smoky pork chops and lemony shortcakes: These recipes from David Tanis are as bright and refreshing as the season should be.`\
-https://nytimes.com/2023/07/06/dining/easy-summer-recipes-dinner-party.html?searchResultPosition=6
+https://nytimes.com/2023/07/06/dining/easy-summer-recipes-dinner-party.html?searchResultPosition=7
 
 **Trump Aide Pleads Not Guilty in Classified Documents Case**\
 `Walt Nauta, the former president’s personal aide, entered his plea in federal court in Miami. He is charged with conspiring to obstruct the government’s efforts to retrieve highly sensitive material.`\
-https://nytimes.com/2023/07/06/us/walt-nauta-trump-documents.html?searchResultPosition=7
+https://nytimes.com/2023/07/06/us/walt-nauta-trump-documents.html?searchResultPosition=8
 
 **Heat Records Fall Around the Globe as Earth Warms, Fast**\
 `From north to south, temperatures are surging as greenhouse gases trap heat in the atmosphere and combine with effects from El Niño.`\
-https://nytimes.com/2023/07/06/climate/climate-change-record-heat.html?searchResultPosition=8
+https://nytimes.com/2023/07/06/climate/climate-change-record-heat.html?searchResultPosition=9
 
 **Should Colleges End Legacy Admissions?**\
 `Readers offer different views of a complaint against Harvard. Also: Lifesaving care; victim impact statements; relief from the gloom.`\
-https://nytimes.com/2023/07/06/opinion/letters/legacy-admissions-college.html?searchResultPosition=9
-
-**Child Killed After Car Crashes Into London Elementary School**\
-`A vehicle crashed into a private elementary school for girls in southwestern London.`\
-https://nytimes.com/video/world/europe/100000008984671/london-school-car-crash.html?searchResultPosition=10
+https://nytimes.com/2023/07/06/opinion/letters/legacy-admissions-college.html?searchResultPosition=10
 
