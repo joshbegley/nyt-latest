@@ -1,6 +1,6 @@
 **U.S. Expected to Provide Cluster Munitions to Ukraine, Official Says**\
 `Ukraine has pressed the United States to supply it with the munitions. Here’s a guide to why this type of weapon is controversial and widely banned — and why Kyiv wants it.`\
-https://nytimes.com/2023/07/06/world/europe/us-expected-to-provide-cluster-munitions-to-ukraine-official-says.html?searchResultPosition=1
+https://nytimes.com/2023/07/06/world/europe/ukraine-cluster-munitions.html?searchResultPosition=1
 
 **‘Amanda’ Review: My Loneliness Is Killing Me**\
 `A delusional college grad befriends an agoraphobic misanthrope in this stylish dark comedy by the Italian director Carolina Cavalli.`\
