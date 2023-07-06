@@ -26,7 +26,7 @@ https://nytimes.com/2023/07/06/learning/word-of-the-day-banquet.html?searchResul
 `The mayor of Lviv called this the worst attack on the city since the war started.`\
 https://nytimes.com/video/world/europe/100000008984220/russia-ukraine-lviv-missile.html?searchResultPosition=7
 
-**Ship Burns at Newark Port**\
+**Ship Catches Fire at Port Newark in New Jersey**\
 `The Port Authority of New York and New Jersey said it had responded to the fire on Wednesday night. No other details were immediately available.`\
 https://nytimes.com/2023/07/06/nyregion/newark-ship-firefirefighters-new-jersey.html?searchResultPosition=8
 
