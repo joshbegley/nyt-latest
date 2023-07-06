@@ -4,7 +4,7 @@ https://nytimes.com/2023/07/06/learning/word-of-the-day-banquet.html?searchResul
 
 **Russia Attacks Lviv With Deadly Missile Strike**\
 `The mayor of Lviv called this the worst attack on the city since the war started.`\
-https://nytimes.com/video/world/europe/100000008984220/russia-attacks-lviv-with-deadly-missile-strike.html?searchResultPosition=2
+https://nytimes.com/video/world/europe/100000008984220/russia-ukraine-lviv-missile.html?searchResultPosition=2
 
 **Ship Burns at Newark Port**\
 `The Port Authority of New York and New Jersey said it had responded to the fire on Wednesday night. No other details were immediately available.`\
