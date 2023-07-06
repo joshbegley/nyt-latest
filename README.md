@@ -1,40 +1,40 @@
+**‘Amanda’ Review: My Loneliness Is Killing Me**\
+`A delusional college grad befriends an agoraphobic misanthrope in this stylish dark comedy by the Italian director Carolina Cavalli.`\
+https://nytimes.com/2023/07/06/movies/amanda-review.html?searchResultPosition=1
+
+**‘The Lesson’ Review: Carefully Taut**\
+`A tense standoff between two writers kindles familial fireworks in this wittily self-aware melodrama.`\
+https://nytimes.com/2023/07/06/movies/the-lesson-review.html?searchResultPosition=2
+
+**Chloé Bids Goodbye to Gabriela Hearst**\
+`The designer’s departure from the French fashion house is the latest in a string of exits at the top of the luxury industry this year.`\
+https://nytimes.com/2023/07/06/fashion/chloe-gabriela-hearst-departure.html?searchResultPosition=3
+
+**‘The League’ Review: A Crucial Baseball Legacy**\
+`Sam Pollard’s new documentary traces the history of the Negro leagues.`\
+https://nytimes.com/2023/07/06/movies/the-league-review.html?searchResultPosition=4
+
+**‘The Out-Laws’ Review: Adam Devine, Funny at Last**\
+`Devine channels Jack Lemmon as a law-abiding Everyman whose fiancée’s parents rob the bank he manages. (Awkward.)`\
+https://nytimes.com/2023/07/06/movies/the-out-laws-review.html?searchResultPosition=5
+
+**‘Biosphere’ Review: It’s the End of the World (and They Caused It)**\
+`What happens when a petulant, anti-intellectual president destroys the planet and he and his childhood buddy, the brainy one, are the only survivors?`\
+https://nytimes.com/2023/07/06/movies/biosphere-review.html?searchResultPosition=6
+
 **Why Does New Hampshire Go First?**\
 `New Hampshire has a strikingly poor record of identifying the strongest Democratic presidential candidates.`\
-https://nytimes.com/2023/07/06/briefing/new-hampshire.html?searchResultPosition=1
+https://nytimes.com/2023/07/06/briefing/new-hampshire.html?searchResultPosition=7
 
 **Russia After the Rebellion**\
 `What Vladimir Putin’s reaction to the Wagner mutiny indicates about the state of his power.`\
-https://nytimes.com/2023/07/06/podcasts/the-daily/russia-rebellion-prigozhin.html?searchResultPosition=2
+https://nytimes.com/2023/07/06/podcasts/the-daily/russia-rebellion-prigozhin.html?searchResultPosition=8
 
 **Episode 2: The Nurse**\
 `From Serial Productions. Patients know what happened to them at the clinic. Now they find out who did it.`\
-https://nytimes.com/2023/07/06/podcasts/serial-the-retrievals-yale-fertility-clinic.html?searchResultPosition=3
+https://nytimes.com/2023/07/06/podcasts/serial-the-retrievals-yale-fertility-clinic.html?searchResultPosition=9
 
 **Today’s Top News: The Roadblocks to Sweden’s NATO Membership, and More**\
 `Exclusively from New York Times Audio, our new app.`\
-https://nytimes.com/2023/07/06/podcasts/headlines-nyt-audio-app.html?searchResultPosition=4
-
-**As Germany’s Business Model Wobbles, Firms Reassess Reliance on China**\
-`Geopolitical risks involving Russia and China have exposed long-ignored strains on Germany’s socioeconomic model. The family businesses underpinning its economy are seeking a new path.`\
-https://nytimes.com/2023/07/06/world/europe/germany-china-business-economy.html?searchResultPosition=5
-
-**U.S. Is Destroying the Last of Its Once-Vast Chemical Weapons Arsenal**\
-`Decades behind its initial schedule, the dangerous job of eliminating the world’s only remaining declared stockpile of lethal chemical munitions will be completed as soon as Friday.`\
-https://nytimes.com/2023/07/06/us/chemical-weapons-stockpile.html?searchResultPosition=6
-
-**In Paris, a Dinner at a Former Taxidermy Workshop**\
-`The traveling culinary studio We Are Ona laid down roots in its founder Luca Pronzato’s home city and invited friends to celebrate.`\
-https://nytimes.com/2023/07/06/t-magazine/paris-dinner-party-we-are-ona.html?searchResultPosition=7
-
-**Fight or Flight: Transgender Care Bans Leave Families and Doctors Scrambling**\
-`Laws in 20 states have left the fate of clinics in doubt and families with transgender children searching for medical care across state lines.`\
-https://nytimes.com/2023/07/06/us/transgender-health-care-bans.html?searchResultPosition=8
-
-**6 Paris Bistros to Try Now**\
-`The city’s restaurant scene is back in full force, and a half-dozen bistro-style eateries showcase the best of what’s new, including a refreshingly simple style of cooking.`\
-https://nytimes.com/2023/07/06/travel/paris-bistros-best.html?searchResultPosition=9
-
-**‘Joy Ride’ Review: A Raunch-Com Roller Coaster**\
-`Four friends travel to China in a trip that goes entertainingly off the rails in this terrific comedy, starring Ashley Park and Sherry Cola.`\
-https://nytimes.com/2023/07/06/movies/joy-ride-review.html?searchResultPosition=10
+https://nytimes.com/2023/07/06/podcasts/headlines-nyt-audio-app.html?searchResultPosition=10
 
