@@ -1,6 +1,6 @@
 **Russia After the Rebellion**\
 `What Vladimir Putin’s reaction to the Wagner mutiny indicates about the state of his power.`\
-https://nytimes.com/2023/07/06/podcasts/the-daily/russia-after-the-rebellion.html?searchResultPosition=1
+https://nytimes.com/2023/07/06/podcasts/the-daily/russia-rebellion-prigozhin.html?searchResultPosition=1
 
 **Episode 2: The Nurse**\
 `From Serial Productions. Patients know what happened to them at the clinic. Now they find out who did it.`\
