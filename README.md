@@ -23,7 +23,7 @@ https://nytimes.com/article/heat-forecast-us-south.html?searchResultPosition=5
 https://nytimes.com/video/us/politics/100000008987149/ukraine-cluster-munitions-biden.html?searchResultPosition=6
 
 **The 50 Best Movies on Netflix Right Now**\
-`Movies upon movies await, and you don't even have to drill down to find them.`\
+`Movies upon movies await, and you don’t even have to drill down to find them.`\
 https://nytimes.com/article/best-movies-netflix.html?searchResultPosition=7
 
 **Teen Arrested After Shooting in Baltimore Leaves 2 Dead and 28 Wounded**\
