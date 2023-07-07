@@ -6,8 +6,8 @@ https://nytimes.com/2023/07/07/us/politics/vivek-ramaswamy-wealth-plane.html?sea
 `The Biden administration and the family of the Wall Street Journal reporter take note of his reaching 100 days in jail.`\
 https://nytimes.com/2023/07/07/world/europe/evan-gershkovich-prison-swap-russia.html?searchResultPosition=2
 
-**Trump Asked About Having the I.R.S. Investigate F.B.I. Officials, Former Top Aide Says**\
-`In a court filing, John Kelly, who was a chief of staff under Donald Trump, said the president had inquired about having the tax agency look into Peter Strzok and Lisa Page.`\
+**Trump Asked About I.R.S. Inquiry of F.B.I. Officials, Ex-Aide Says Under Oath**\
+`In a court filing, John Kelly, who was a chief of staff under Donald Trump, said the president had asked about having the tax agency look into Peter Strzok and Lisa Page.`\
 https://nytimes.com/2023/07/07/us/politics/trump-kelly-irs-fbi-strozk-page.html?searchResultPosition=3
 
 **Cluster Weapons U.S. Is Sending Ukraine Often Fail to Detonate**\
