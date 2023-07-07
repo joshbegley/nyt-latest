@@ -1,6 +1,6 @@
-**The 50 Best Movies on Netflix Right Now**\
-`Movies upon movies await, and you don't even have to drill down to find them.`\
-https://nytimes.com/article/best-movies-netflix.html?searchResultPosition=1
+**U.S. to Send Cluster Munitions to Ukraine**\
+`President Biden and his advisers had reservations about supplying the weapons to Ukraine, but ultimately decided to provide the cluster munitions to its military forces since they were running out of artillery rounds.`\
+https://nytimes.com/video/us/politics/100000008987149/ukraine-cluster-munitions-biden.html?searchResultPosition=1
 
 **Teen Arrested After Shooting in Baltimore Leaves 2 Dead and 28 Wounded**\
 `The police called the 17-year-old a “person of interest” in the shooting on Sunday and said he had been charged with possession of an assault weapon and other crimes.`\
