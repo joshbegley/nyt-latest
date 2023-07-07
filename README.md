@@ -7,7 +7,7 @@ https://nytimes.com/2023/07/07/us/politics/vivek-ramaswamy-wealth-plane.html?sea
 https://nytimes.com/2023/07/07/world/europe/evan-gershkovich-prison-swap-russia.html?searchResultPosition=2
 
 **Trump Asked About I.R.S. Inquiry of F.B.I. Officials, Ex-Aide Says Under Oath**\
-`In a court filing, John Kelly, who was a chief of staff under Donald Trump, said the president had asked about having the tax agency look into Peter Strzok and Lisa Page.`\
+`In a court filing, John Kelly, who was a chief of staff under Donald Trump, said the former president had asked about having the tax agency look into Peter Strzok and Lisa Page.`\
 https://nytimes.com/2023/07/07/us/politics/trump-kelly-irs-fbi-strozk-page.html?searchResultPosition=3
 
 **Cluster Weapons U.S. Is Sending Ukraine Often Fail to Detonate**\
