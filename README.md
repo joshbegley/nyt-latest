@@ -26,7 +26,7 @@ https://nytimes.com/2023/07/07/world/asia/india-gandhi-modi-court.html?searchRes
 `The primary drug used to treat the sexually transmitted infection could be scarce into next year, Pfizer warns.`\
 https://nytimes.com/2023/07/07/health/syphilis-epidemic-antibiotic-shortage-pfizer.html?searchResultPosition=7
 
-**Yan Mingfu, Who Sought to Defuse Tiananmen Powder Keg, Dies at 91**\
+**Yan Mingfu, Who Tried to Defuse the Tiananmen Powder Keg, Dies at 91**\
 `As an envoy the to the pro-democracy protesters, Mr. Yan, who was also Mao’s interpreter, tried to find a peaceful way out of the crisis.`\
 https://nytimes.com/2023/07/07/world/asia/yan-mingfu-dead.html?searchResultPosition=8
 
