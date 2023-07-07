@@ -2,8 +2,8 @@
 `The primary drug used to treat the sexually transmitted infection could be scarce into next year, Pfizer warns.`\
 https://nytimes.com/2023/07/07/health/syphilis-epidemic-antibiotic-shortage-pfizer.html?searchResultPosition=1
 
-**Yan Mingfu, Mao’s Interpreter and Tiananmen Negotiator, Dies at 91**\
-`As an envoy the to the pro-democracy protesters in Tiananmen Square in 1989, he tried to find a peaceful way out of the crisis.`\
+**Yan Mingfu, Who Sought to Defuse Tiananmen Powder Keg, Dies at 91**\
+`As an envoy the to the pro-democracy protesters, Mr. Yan, who was also Mao’s interpreter, tried to find a peaceful way out of the crisis.`\
 https://nytimes.com/2023/07/07/world/asia/yan-mingfu-dead.html?searchResultPosition=2
 
 **Transcript: Ezra Klein Interviews Robinson Meyer**\
