@@ -15,7 +15,7 @@ https://nytimes.com/2023/07/07/us/politics/trump-iowa-rally.html?searchResultPos
 https://nytimes.com/2023/07/07/dining/summer-chicken-recipes.html?searchResultPosition=4
 
 **Dutch Government Collapses Over Plan to Further Limit Immigration**\
-`The country’s prime minister wanted to limit entry for children of war refugees already in the country, among other things. The proposal went too far for some members of the coalition government.`\
+`Prime Minister Mark Rutte, one of Europe’s longest-serving leaders, had struggled to reach agreement with his coalition partners about migration, including more restrictions.`\
 https://nytimes.com/2023/07/07/world/europe/dutch-government-collapses.html?searchResultPosition=5
 
 **Evva Hanes, Who Made Moravian Cookies World Famous, Dies at 90**\
