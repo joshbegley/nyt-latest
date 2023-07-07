@@ -4,7 +4,7 @@ https://nytimes.com/2023/07/07/sports/soccer/ukraine-shevchenko-soccer.html?sear
 
 **Five Science Fiction Movies to Stream Now**\
 `This month’s picks include a hiking trip gone wrong and a luxury vacation that takes a depraved turn.`\
-https://nytimes.com/2023/07/07/movies/five-science-fiction-movies-to-stream-now.html?searchResultPosition=2
+https://nytimes.com/2023/07/07/movies/science-fiction-movies-streaming.html?searchResultPosition=2
 
 **Pepperoncini Tuna Salad, Stuffed Into a Split Croissant**\
 `Or maybe you’d like a turkey sandwich with savory blueberry jam, a fried eggplant hero or sliced radishes in a baguette with butter and salt.`\
