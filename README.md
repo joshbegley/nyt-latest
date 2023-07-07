@@ -1,6 +1,6 @@
-**U.S. to Give Cluster Munitions to Ukraine, Biden Administration Says**\
-`With Ukraine burning through stockpiles of conventional artillery, and amid fears that Russia would gain the upper hand, administration officials decided they had little choice but to provide the weapons.`\
-https://nytimes.com/2023/07/07/us/politics/ukraine-cluster-munitions-biden.html?searchResultPosition=1
+**The Weekender**\
+`The last hours of the Titan. Also in this edition: the tale of Hunter Biden’s child and how Tom Brady’s crypto ambitions collided with reality.`\
+https://nytimes.com/interactive/2023/07/07/briefing/the-weekender.html?searchResultPosition=1
 
 **Special Counsel Inquiries Into Trump Cost at Least $5.4 Million**\
 `The Justice Department also disclosed $616,000 in spending by the special counsel scrutinizing President Biden’s handling of classified files.`\
