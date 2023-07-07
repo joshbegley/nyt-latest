@@ -11,7 +11,7 @@ https://nytimes.com/2023/07/07/dining/summer-chicken-recipes.html?searchResultPo
 https://nytimes.com/2023/07/07/world/europe/dutch-government-collapses.html?searchResultPosition=3
 
 **Evva Hanes, Who Made Moravian Cookies World Famous, Dies at 90**\
-`She made several varieties of the thin, crispy cookie in a factory next door to her home, and sold 10 million of them a year.`\
+`She made several varieties of the thin, crispy cookie in a factory next door to her North Carolina home, and sold 10 million of them a year.`\
 https://nytimes.com/2023/07/07/dining/evva-hanes-dead.html?searchResultPosition=4
 
 **The Job Market Cools, but Remains Strong**\
