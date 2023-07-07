@@ -1,4 +1,4 @@
-**China Hits Ant Group with $985 Million Fine**\
+**China Fines Ant Group $985 Million, in Sign Crackdown Is Over**\
 `After nearly three years of regulatory scrutiny, the fine is seen as a sign that Beijing is wrapping up its crackdown on technology firms.`\
 https://nytimes.com/2023/07/07/business/alibaba-ant-group-fine.html?searchResultPosition=1
 
