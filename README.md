@@ -1,40 +1,40 @@
-**America’s House of the Moment**\
-`In a divided country, a clean look and a neutral color palette is the aesthetic comforting communities around the country.`\
-https://nytimes.com/interactive/2023/07/07/realestate/farmhouse-style-homes.html?searchResultPosition=1
+**The America That Americans Forget**\
+`As tensions with China mount, the U.S. military continues to build up Guam and other Pacific territories — placing the burdens of imperial power on the nation’s most ignored and underrepresented citizens.`\
+https://nytimes.com/2023/07/07/magazine/guam-american-military.html?searchResultPosition=1
 
-**Fire Breaks Out at Milan Retirement Home, Killing at Least 6**\
-`The cause of the blaze, which also sent dozens of people to the hospital, was under investigation. “It could have been much worse,” said the city’s mayor.`\
-https://nytimes.com/2023/07/07/world/europe/milan-italy-retirement-home-fire.html?searchResultPosition=2
+**This Time, Herzog & de Meuron Are Inside the Museum**\
+`The architects behind museums in San Francisco, Miami and Minneapolis, and the Powerhouse Arts Complex, in Brooklyn, are the subjects of a major exhibition, in London.`\
+https://nytimes.com/2023/07/07/arts/design/herzog-and-de-meuron-royal-academy.html?searchResultPosition=2
 
-**He Nearly Gave Up on Tennis to Sell Insurance. Then a Friend Called.**\
-`After years of frustration in singles, Austin Krajicek nearly quit tennis. Then an old friend asked him if he wanted to give the sport one more shot.`\
-https://nytimes.com/2023/07/07/sports/tennis/wimbledon-doubles-austin-krajicek.html?searchResultPosition=3
+**The New York Times News Quiz, July 7, 2023**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2023/07/07/briefing/news-quiz-threads-israel-wimbledon.html?searchResultPosition=3
 
-**Turning New York’s Stately Public Library Into a Place ‘to Hang Out In’**\
-`Behind the stone lions on Fifth Avenue, the New York Public Library’s imposing Fifth Avenue branch has added a new visitor center and an expanded gift shop and cafe.`\
-https://nytimes.com/2023/07/07/nyregion/ny-public-library.html?searchResultPosition=4
+**As a Mexican Fighter Rises, U.F.C. Hopes Others Will Follow**\
+`Even with a long history of fighters of Mexican heritage in combat sports, Brandon Moreno is the first U.F.C. champion born in Mexico. His rise comes as the company looks to expand its reach.`\
+https://nytimes.com/2023/07/07/sports/ufc-brandon-moreno.html?searchResultPosition=4
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/07/07/crosswords/spelling-bee-forum.html?searchResultPosition=5
+**Penn Station Is a Perpetual Mess. Change May Be at Hand.**\
+`There may finally be hope for New York’s busiest, dreariest train hub, with a new plan to improve it, the stars aligning and the clock ticking.`\
+https://nytimes.com/2023/07/07/arts/design/penn-station-renovation-proposals.html?searchResultPosition=5
 
-**Why Backers Say a New Tunnel to Manhattan Benefits the Broader Economy**\
-`A $6.88 billion grant will mean more trains, more passengers, and a boost to the region’s economy.`\
-https://nytimes.com/2023/07/07/nyregion/nyc-gateway-tunnel.html?searchResultPosition=6
+**Millions Danced Joyfully to Her Song. She Drew on Her Pain to Write It.**\
+`Nomcebo Zikode, the South African singer of the pandemic hit “Jerusalema” that inspired a global dance challenge, wrote the chorus while battling her own depression.`\
+https://nytimes.com/2023/07/07/world/africa/jerusalema-nomcebo-zikode-south-africa.html?searchResultPosition=6
 
-**Creator of ‘The Wire’ Asks Mercy for Man Charged in Actor’s Death**\
-`David Simon said the man, who was part of a crew that sold Michael K. Williams the fentanyl that killed him, deserves leniency as a victim of addiction himself.`\
-https://nytimes.com/2023/07/07/nyregion/david-simon-michael-k-williams-death.html?searchResultPosition=7
+**An Uneasy Quiet at NATO’s Newest Border With Russia**\
+`Finland’s membership in the Western military alliance has increased NATO’s borders with Russia by 830 miles — and angered Moscow.`\
+https://nytimes.com/2023/07/07/us/politics/russia-finland-nato-border.html?searchResultPosition=7
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/07/07/crosswords/wordle-review-answer-748.html?searchResultPosition=8
+**5 National Park Destinations That Aren’t Parks**\
+`The National Park Service isn’t just the 63 big-name parks. Here are national monuments, a lakeshore and two other less crowded alternatives to explore the country’s natural beauty and attractions.`\
+https://nytimes.com/2023/07/07/travel/national-parks-attractions.html?searchResultPosition=8
 
-**The Contentious U.S.-China Relationship, by the Numbers**\
-`From movie theaters to military spending, here’s how one of the world’s most important economic relationships stacks up.`\
-https://nytimes.com/2023/07/07/business/economy/us-china-relationship-facts.html?searchResultPosition=9
+**Washington Raises Pressure on China to Combat U.S.’s Fentanyl Crisis**\
+`The Biden administration push comes after cooperation on halting the flow of the drug into the United States was derailed by wider geopolitical tensions.`\
+https://nytimes.com/2023/07/07/world/asia/us-china-fentanyl.html?searchResultPosition=9
 
-**Yellen, in Beijing, Criticizes China’s Treatment of U.S. Companies**\
-`Treasury Secretary Janet Yellen’s concerns reflected continuing tensions between the two countries.`\
-https://nytimes.com/2023/07/07/business/yellen-china-companies-meetings.html?searchResultPosition=10
+**There Is No Separating the Black Dancer From the Dance**\
+`I am both the artist and the artwork, and there can be no separation.`\
+https://nytimes.com/2023/07/07/opinion/black-dancer-american-ballet-theater.html?searchResultPosition=10
 
