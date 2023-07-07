@@ -11,7 +11,7 @@ https://nytimes.com/2023/07/06/crosswords/variety-puns-and-anagrams.html?searchR
 https://nytimes.com/2023/07/06/crosswords/daily-puzzle-2023-07-07.html?searchResultPosition=3
 
 **Britney Spears Seeks Apology After Encounter With Victor Wembanyama’s Security**\
-`The singer said on Twitter that a member of an athlete’s detail had hit her outside a Las Vegas restaurant Wednesday night.`\
+`Spears said on Twitter that a member of an athlete’s detail had hit her outside a Las Vegas restaurant Wednesday night.`\
 https://nytimes.com/2023/07/06/sports/basketball/britney-spears-victor-wembanyama-security.html?searchResultPosition=4
 
 **DeSantis Boasts $20 Million Haul, but Full Picture of Money Race Is Still Hazy**\
