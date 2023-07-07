@@ -6,7 +6,7 @@ https://nytimes.com/2023/07/07/style/threads-logo.html?searchResultPosition=1
 `Why the greenback’s dominance remains durable.`\
 https://nytimes.com/2023/07/07/opinion/dollar-strength-reserve-currency.html?searchResultPosition=2
 
-**The Long-Shot Presidential Hopefuls Making Their Pitches on Threads**\
+**These 2024 Candidates Have Signed Up For Threads, Meta’s Twitter Alternative**\
 `The bulk of the G.O.P. field is there, with some notable holdouts: Donald J. Trump, the front-runner, and his top rival, Ron DeSantis.`\
 https://nytimes.com/2023/07/07/us/politics/threads-twitter-politicians.html?searchResultPosition=3
 
