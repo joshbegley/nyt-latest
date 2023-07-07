@@ -7,7 +7,7 @@ https://nytimes.com/2023/07/06/sports/basketball/britney-spears-victor-wembanyam
 https://nytimes.com/2023/07/06/us/politics/desantis-fund-raising-trump-2024.html?searchResultPosition=2
 
 **Ex-Amazon Manager Sentenced to 16 Years in Prison in $9 Million Theft Scheme**\
-`Federal prosectors said that Kayricka Wortham, a former operations manager at an Amazon warehouse in Georgia, was the leader of a group that stole money from the company.`\
+`Federal prosecutors said that Kayricka Wortham, a former operations manager at an Amazon warehouse in Georgia, was the leader of a group that stole money from the company.`\
 https://nytimes.com/2023/07/06/us/amazon-manager-scheme-sentencing-atlanta.html?searchResultPosition=3
 
 **‘Uncle Vanya’ Review: Confidences by Candlelight**\
