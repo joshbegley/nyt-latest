@@ -1,5 +1,5 @@
 **Giuliani Should Lose His Law License in D.C., Bar Panel Says**\
-`The recommendation for disbarment of Rudolph W. Giuliani followed a hearing where evidence was presented that he had improperly sought to help Donald Trump overturn the results of the 2020 election.`\
+`The recommendation for disbarment of Rudolph W. Giuliani followed a hearing where evidence was presented that he had improperly sought to help Donald J. Trump overturn the results of the 2020 election.`\
 https://nytimes.com/2023/07/07/us/politics/giuliani-law-license-dc-bar.html?searchResultPosition=1
 
 **Abraham Lincoln Letter From Early Civil War Era Sells for $85,000**\
