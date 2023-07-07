@@ -35,6 +35,6 @@ https://nytimes.com/2023/07/07/us/politics/trump-iowa-rally.html?searchResultPos
 https://nytimes.com/2023/07/07/dining/summer-chicken-recipes.html?searchResultPosition=9
 
 **Dutch Government Collapses Over Plan to Further Limit Immigration**\
-`Prime Minister Mark Rutte, one of Europe’s longest-serving leaders, had struggled to reach agreement with his coalition partners about migration, including more restrictions.`\
+`Prime Minister Mark Rutte, one of Europe’s longest-serving leaders, had struggled to reach an agreement with his coalition partners about migration, including more restrictions.`\
 https://nytimes.com/2023/07/07/world/europe/dutch-government-collapses.html?searchResultPosition=10
 
