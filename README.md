@@ -22,7 +22,7 @@ https://nytimes.com/2023/07/07/sports/autoracing/silverstone-f1-british-grand-pr
 `The team keeps making changes, and now its drivers are climbing onto the podium.`\
 https://nytimes.com/2023/07/07/sports/autoracing/f1-mercedes-car-performance.html?searchResultPosition=6
 
-**Fed watchers will parse this jobs report closely.**\
+**Fed Watchers to Parse June Jobs Report Closely**\
 `How much more the Federal Reserve raises interest rates this year will hinge on the strength of the economy — particularly the labor market.`\
 https://nytimes.com/2023/07/07/business/economy/jobs-report-fed.html?searchResultPosition=7
 
