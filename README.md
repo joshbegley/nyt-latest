@@ -26,8 +26,8 @@ https://nytimes.com/2023/07/08/sports/olympics/russia-ukraine-olympics-fencing.h
 `And the best of the archive, found in our new audio app.`\
 https://nytimes.com/2023/07/08/podcasts/listen-to-this-american-life-americans-in-paris.html?searchResultPosition=7
 
-**In Ukraine, Amputees Are Ready to Give More**\
-`Some are planning their return to the battlefield on artificial legs.`\
+**They’re Ready to Fight Again, on Artificial Legs**\
+`Even after so much loss, Ukrainian war veterans plan to return to the front.`\
 https://nytimes.com/2023/07/08/opinion/ukraine-war-amputees.html?searchResultPosition=8
 
 **Life Under the Heat Dome, a Glimpse of the Future**\
