@@ -1,6 +1,6 @@
 **In Guam, the U.S. Military Presence Is in Full View**\
 `A photographer spent three weeks documenting life on the island, which is a strategic location for American military operations.`\
-https://nytimes.com/2023/07/08/insider/in-guam-the-us-military-presence-is-in-full-view.html?searchResultPosition=1
+https://nytimes.com/2023/07/08/insider/pictures-guam-military.html?searchResultPosition=1
 
 **Corrections: July 8, 2023**\
 `Corrections that appeared in print on Saturday, July 8, 2023.`\
