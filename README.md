@@ -1,4 +1,4 @@
-**Six Are Dead After Small Plane Crash in California**\
+**Six Are Dead After a Small Plane Crash in California**\
 `The authorities said the plane, which took off from Las Vegas, crashed outside of an airport in Murrieta, Calif., during the pilot’s second approach.`\
 https://nytimes.com/2023/07/08/us/cessna-plane-crash-california.html?searchResultPosition=1
 
