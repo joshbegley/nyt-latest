@@ -2,8 +2,8 @@
 `The multibillion-dollar restoration and expansion of Canada’s main Parliament building is finishing its first phase.`\
 https://nytimes.com/2023/07/08/world/canada/centre-block-restoration.html?searchResultPosition=1
 
-**On War’s 500th Day, Zelensky Makes Show of Resolve Against Russia**\
-`President Volodymyr Zelensky of Ukraine shared a video of himself visiting Snake Island, a strip of land in the Black Sea that has become a symbol of his country’s fight against Moscow’s aggression.`\
+**As Russia Launches Another Deadly Strike, Zelensky Makes Show of Resolve**\
+`On the war’s 500th day, President Volodymyr Zelensky of Ukraine shared a video of himself visiting Snake Island, which has become a symbol of his country’s fight.`\
 https://nytimes.com/2023/07/08/world/europe/russia-ukraine-war.html?searchResultPosition=2
 
 **Far-Right Parties Are Rising to Power Around Europe. Is Spain Next?**\
