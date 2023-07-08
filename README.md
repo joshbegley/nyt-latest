@@ -7,7 +7,7 @@ https://nytimes.com/2023/07/08/briefing/sleep-changes-with-age.html?searchResult
 https://nytimes.com/2023/07/08/world/canada/centre-block-restoration.html?searchResultPosition=2
 
 **On Ukraine War’s 500th Day, Zelensky Shows Defiance and Russia Strikes**\
-`President Volodymyr Zelensky of Ukraine shared a video of himself visiting Snake Island, which has become a symbol of his country’s fight, as a Russian strike in the east killed six.`\
+`President Volodymyr Zelensky of Ukraine shared a video of himself visiting Snake Island, which has become a symbol of his country’s fight, as a Russian strike in the east killed at least eight.`\
 https://nytimes.com/2023/07/08/world/europe/russia-ukraine-war.html?searchResultPosition=3
 
 **Far-Right Parties Are Rising to Power Around Europe. Is Spain Next?**\
