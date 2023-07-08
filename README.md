@@ -18,7 +18,7 @@ https://nytimes.com/2023/07/08/us/politics/transgender-care-ban-tennessee.html?s
 `The authorities said the plane, which took off from Las Vegas, crashed outside of an airport in Murrieta, Calif., during the pilot’s second approach.`\
 https://nytimes.com/2023/07/08/us/cessna-plane-crash-california.html?searchResultPosition=5
 
-**Megan Rapinoe Announces This is Her Last World Cup**\
+**Megan Rapinoe Announces This Is Her Last World Cup**\
 `The women’s national team star made an unexpected retirement announcement ahead of a U.S. friendly against Wales.`\
 https://nytimes.com/2023/07/08/sports/soccer/megan-rapinoe-retirement-world-cup.html?searchResultPosition=6
 
