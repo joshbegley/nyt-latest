@@ -1,6 +1,6 @@
 **Collapse of Dutch Government Highlights Europe’s New Migration Politics**\
 `Prime Minister Mark Rutte resigned after his coalition partners rejected his tough new line on refugees, favoring his own political future, critics say, over compromise.`\
-https://nytimes.com/2023/07/08/world/europe/netherlands-refugees-migration-politics-rutte.html?searchResultPosition=1
+https://nytimes.com/2023/07/08/world/europe/netherlands-refugees-government-collapse.html?searchResultPosition=1
 
 **Yellen Calls on China to Work With the U.S. to Address Climate Change**\
 `Janet L. Yellen, the secretary of the Treasury, said that the United States and China had a joint responsibility to back international climate finance funds to combat climate change.`\
