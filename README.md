@@ -1,4 +1,4 @@
-**Why Mark Zuckerberg’s Threads Poses a Conundrum for Regulators**\
+**Mark Zuckerberg’s Threads Poses a Conundrum for Regulators**\
 `Meta’s new rival to Twitter has been hugely popular among consumers but raises awkward questions about how big tech companies expand.`\
 https://nytimes.com/2023/07/08/business/dealbook/zuckerberg-meta-threads-antitrust.html?searchResultPosition=1
 
