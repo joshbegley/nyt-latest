@@ -30,7 +30,7 @@ https://nytimes.com/2023/07/08/opinion/ukraine-war-amputees.html?searchResultPos
 `Extreme heat is the engine of planetary chaos. We ignore it at our peril.`\
 https://nytimes.com/2023/07/08/opinion/heat-texas-climate.html?searchResultPosition=8
 
-**Has the Supreme Court Gone Overboard in How It Favors Religion?**\
+**The Supreme Court’s Disorienting Elevation of Religion**\
 `The country will feel the impact of this sharp shift in the years ahead — and the court may not be done.`\
 https://nytimes.com/2023/07/08/opinion/supreme-court-religion.html?searchResultPosition=9
 
