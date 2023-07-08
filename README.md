@@ -1,5 +1,5 @@
 **Gunman in Custody After Killing One Person in Queens**\
-`A gunman on a scooter randomly fired at people and stores within a two-hour period across Brooklyn and Queens, the New York Police Department said. Several others were injured, with one in critical condtion.`\
+`A gunman on a scooter randomly fired at people and stores within a two-hour period across Brooklyn and Queens, the New York Police Department said. Several others were injured, with one in critical condition.`\
 https://nytimes.com/video/nyregion/100000008987909/queens-brooklyn-shootings.html?searchResultPosition=1
 
 **Iowa Republicans Set the Date for the Party’s Caucuses — and It’s Early**\
