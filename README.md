@@ -6,8 +6,8 @@ https://nytimes.com/2023/07/08/world/europe/netherlands-refugees-government-coll
 `Janet L. Yellen, the secretary of the Treasury, said that the United States and China had a joint responsibility to back international climate finance funds to combat climate change.`\
 https://nytimes.com/video/business/energy-environment/100000008987811/yellen-us-china-climate.html?searchResultPosition=2
 
-**Four Killed in Early Morning House Fire Outside Albany**\
-`Local roads in the rural community were shut down as firefighters hauled water to the scene.`\
+**Four Killed in an Early Morning House Fire Outside Albany**\
+`The victims were a 5-year-old girl, two men and a woman. A teenage boy survived the fire, jumping to safety from a second-floor window.`\
 https://nytimes.com/2023/07/08/nyregion/upstate-new-york-fatal-fire.html?searchResultPosition=3
 
 **Peter Nero, Pianist Who Straddled Genres, Is Dead at 89**\
