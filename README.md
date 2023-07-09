@@ -15,7 +15,7 @@ https://nytimes.com/2023/07/09/business/dealbook/advisory-firms-joele-frank.html
 https://nytimes.com/2023/07/09/nyregion/port-newark-ship-fire.html?searchResultPosition=4
 
 **At a French Opera Festival, Premieres in Pursuit of Happiness**\
-`Two works at the Aix-en-Provence Festival, by two inventive partnerships in opera, use fables to explore grief and queer utopian dreams.`\
+`Two works at the Aix-en-Provence Festival, by two inventive opera partnerships, use fables to explore grief and queer utopian dreams.`\
 https://nytimes.com/2023/07/09/arts/music/aix-festival-picture-a-day-like-this-friends-between-revolutions.html?searchResultPosition=5
 
 **Henry Kamm, Pulitzer-Winning New York Times Journalist, Dies at 98**\
