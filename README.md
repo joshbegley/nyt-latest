@@ -24,7 +24,7 @@ https://nytimes.com/2023/07/09/business/janet-yellen-china-trip.html?searchResul
 
 **Is Aretha Franklin’s True Will the One Found in the Couch or a Cabinet?**\
 `A trial starting on Monday is to decide whether either of two handwritten documents represents the singer’s last wishes. Her sons have battled in court for years over the question.`\
-https://nytimes.com/2023/07/09/arts/aretha-franklin-will-couch.html?searchResultPosition=7
+https://nytimes.com/2023/07/09/arts/music/aretha-franklin-will-couch.html?searchResultPosition=7
 
 **The Supreme Court’s Tarnished Reputation**\
 `A member of the court’s bar is resigning, and others express their dismay. Also: Groundwater and the Earth’s wobble; politicians as messiahs; helping the homeless.`\
