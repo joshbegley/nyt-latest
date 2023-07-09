@@ -28,7 +28,7 @@ https://nytimes.com/2023/07/09/opinion/patel-eboo-organized-religion.html?search
 
 **Ukraine Celebrates Return of Azov Commanders Held as Prisoners of War**\
 `Five members of the regiment returned home from Turkey to a heroes’ welcome on Saturday. The Kremlin accused Ankara of violating the terms of the deal that freed them.`\
-https://nytimes.com/2023/07/09/world/europe/09-ukraine-russia-war-azov-news.html?searchResultPosition=8
+https://nytimes.com/2023/07/09/world/europe/ukraine-war-prisoners-azov.html?searchResultPosition=8
 
 **Threads Takes on Twitter**\
 `How Meta did what no other Twitter competitor could.`\
