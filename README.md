@@ -22,8 +22,8 @@ https://nytimes.com/2023/07/09/us/politics/nikki-haley-2024-new-hampshire-primar
 `Andrew Lipstein’s shrewd novel finds a moneyed Brooklynite so unmoored that he starts to identify with animals he has long overlooked.`\
 https://nytimes.com/2023/07/09/books/review/the-vegan-andrew-lipstein.html?searchResultPosition=6
 
-**A Look Back at Megan Rapinoe’s Best Moments on the Pitch**\
-`The women’s soccer star, who announced her retirement on Saturday, is known for the creativity of her offense.`\
+**A Look Back at Megan Rapinoe’s Best Moments**\
+`The women’s soccer star, who announced on Saturday that she would retire later this year, always seemed to deliver in the biggest games.`\
 https://nytimes.com/2023/07/09/sports/soccer/megan-rapinoe-highlights.html?searchResultPosition=7
 
 **Substance Abuse Is Climbing Among Seniors**\
