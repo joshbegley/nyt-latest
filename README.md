@@ -26,13 +26,13 @@ https://nytimes.com/2023/07/09/sports/tennis/wimbledon-chris-eubanks.html?search
 `Graveyard shift on the Marine Parkway Bridge, taking a chance, and more reader tales of New York City in this week’s Metropolitan Diary.`\
 https://nytimes.com/2023/07/09/nyregion/metropolitan-diary.html?searchResultPosition=7
 
-**For North Koreans in China, Seeking Freedom Is More Perilous Than Ever**\
-`Recent rescue efforts to escape Kim Jong-un’s regime via China have been thwarted by digital surveillance, profiteering and the pandemic.`\
-https://nytimes.com/2023/07/09/world/asia/north-korea-china-defectors.html?searchResultPosition=8
-
 **In Line? Online? Either Way, a Ticket to Frustration for Pantheon Tourists**\
 `There is now a 5 euro fee to get into one of Italy’s most popular sites, but the process has been bewildering for some, and there are fears the system could be abused.`\
-https://nytimes.com/2023/07/09/world/europe/italy-pantheon-tickets.html?searchResultPosition=9
+https://nytimes.com/2023/07/09/world/europe/italy-pantheon-tickets.html?searchResultPosition=8
+
+**For North Koreans in China, Seeking Freedom Is More Perilous Than Ever**\
+`Recent rescue efforts to escape Kim Jong-un’s regime via China have been thwarted by digital surveillance, profiteering and the pandemic.`\
+https://nytimes.com/2023/07/09/world/asia/north-korea-china-defectors.html?searchResultPosition=9
 
 **Today’s Wordle Review**\
 `Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
