@@ -7,7 +7,7 @@ https://nytimes.com/2023/07/09/nyregion/port-newark-ship-fire.html?searchResultP
 https://nytimes.com/2023/07/09/arts/music/aix-festival-picture-a-day-like-this-friends-between-revolutions.html?searchResultPosition=2
 
 **Henry Kamm, Pulitzer-Winning New York Times Journalist, Dies at 98**\
-`In a 47-year career at The Times, he covered Cold War diplomacy in Europe, famine in Africa and genocide in Indochina.`\
+`In a 47-year career at The Times, he covered Cold War diplomacy in Europe, famine in Africa and genocide in Southeast Asia.`\
 https://nytimes.com/2023/07/09/business/media/henry-kamm-dead.html?searchResultPosition=3
 
 **Pogacar Cuts Further Into Vingegaard’s Tour de France Lead**\
