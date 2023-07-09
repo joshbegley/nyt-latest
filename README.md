@@ -1,40 +1,40 @@
-**In the Mississippi Delta, Hoping for Opportunity After a Ruinous Tornado**\
-`Rolling Fork, Miss., like much of the Delta, had already been wrecked by disinvestment and decline before a giant tornado swept through in late March, leaving residents to ponder whether to rebuild or move on.`\
-https://nytimes.com/2023/07/09/us/mississippi-delta-tornado-poverty.html?searchResultPosition=1
+**Crop Tops for the Boys**\
+`Men are stepping out in stomach-baring shirts that some have cropped at home and others have bought from stores’ women’s sections.`\
+https://nytimes.com/2023/07/09/style/crop-top-men.html?searchResultPosition=1
 
-**Where Clarence Thomas Entered an Elite Circle and Opened a Door to the Court**\
-`The exclusive Horatio Alger Association brought the justice access to wealthy members and unreported V.I.P. treatment. He, in turn, offered another kind of access.`\
-https://nytimes.com/2023/07/09/us/clarence-thomas-horatio-alger-association.html?searchResultPosition=2
+**An Era of Dynamic Catchers Is Upon Us**\
+`Sean Murphy, Adley Rutschman, Jonah Heim, Will Smith and Gabriel Moreno lead a generation of catchers as good with their bats as they are with their gloves.`\
+https://nytimes.com/2023/07/09/sports/baseball/sean-murphy-jonah-heim-catchers.html?searchResultPosition=2
 
-**From Cell to City Hall: Candidate’s Win Shows Shift in Politics of Crime**\
-`After a wrongful conviction in a notorious rape, Yusef Salaam was freed and won an election. His case was part of a wave of exonerations created by the discredited police tactics of a long-ago New York.`\
-https://nytimes.com/2023/07/09/nyregion/yusef-salaam-nyc-crime-politics.html?searchResultPosition=3
+**Number of Migrants at the Border Plunges as Mexico Helps U.S. to Stem Flow**\
+`Mexico is taking steps to keep migrants from massing along the border. But as they flow into southern Mexico the calm may be short-lived.`\
+https://nytimes.com/2023/07/09/world/americas/border-mexico-us-migrants.html?searchResultPosition=3
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/07/09/crosswords/spelling-bee-forum.html?searchResultPosition=4
+**Nikki Haley Makes Her Pitch in New Hampshire. It’s Unclear Whether Voters Will Swing.**\
+`The former South Carolina governor and United Nations ambassador is intensely focused on the state. But her brand of politics may not resonate in the 2024 political climate.`\
+https://nytimes.com/2023/07/09/us/politics/nikki-haley-2024-new-hampshire-primary.html?searchResultPosition=4
 
-**Vivek Ramaswamy Leans Into His Hindu Faith to Court Christian Voters**\
-`The Republican candidate for president makes a pitch that the faiths have much in common, but for many religious conservatives, the difference is a hurdle.`\
-https://nytimes.com/2023/07/09/us/vivek-ramaswamy-hindu-republican-christianj.html?searchResultPosition=5
+**Grazed and Confused: In ‘The Vegan,’ a Guilty Hedge Funder Eats His Feelings**\
+`Andrew Lipstein’s shrewd novel finds a moneyed Brooklynite so unmoored that he starts to identify with animals he has long overlooked.`\
+https://nytimes.com/2023/07/09/books/review/the-vegan-andrew-lipstein.html?searchResultPosition=5
 
-**Chris Eubanks Arrives on the Grandest Stage in Tennis**\
-`The former Georgia Tech star took a long and meandering road to the round of 16 at Wimbledon. He’s OK with that, and looks more than ready.`\
-https://nytimes.com/2023/07/09/sports/tennis/wimbledon-chris-eubanks.html?searchResultPosition=6
+**A Look Back at Megan Rapinoe’s Best Moments on the Pitch**\
+`The women’s soccer star, who announced her retirement on Saturday, is known for the creativity of her offense.`\
+https://nytimes.com/2023/07/09/sports/soccer/megan-rapinoe-highlights.html?searchResultPosition=6
 
-**‘I Watched as a Car Careened Down the Bridge Toward My Booth’**\
-`Graveyard shift on the Marine Parkway Bridge, taking a chance, and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2023/07/09/nyregion/metropolitan-diary.html?searchResultPosition=7
+**Substance Abuse Is Climbing Among Seniors**\
+`Many aging baby boomers have long histories with drugs, cannabis and alcohol. “The field wasn’t ready for that,” said one expert.`\
+https://nytimes.com/2023/07/09/health/seniors-substance-abuse.html?searchResultPosition=7
 
-**In Line? Online? Either Way, a Ticket to Frustration for Pantheon Tourists**\
-`There is now a 5 euro fee to get into one of Italy’s most popular sites, but the process has been bewildering for some, and there are fears the system could be abused.`\
-https://nytimes.com/2023/07/09/world/europe/italy-pantheon-tickets.html?searchResultPosition=8
+**When Life Resembles a 17th-Century Dutch Painting**\
+`In her memoir “Thunderclap,” the British art critic Laura Cumming explores her passion for the virtuosic images of everyday life by painters from Dutch art’s golden age.`\
+https://nytimes.com/2023/07/09/books/review/thunderclap-laura-cumming.html?searchResultPosition=8
 
-**For North Koreans in China, Seeking Freedom Is More Perilous Than Ever**\
-`Recent rescue efforts to escape Kim Jong-un’s regime via China have been thwarted by digital surveillance, profiteering and the pandemic.`\
-https://nytimes.com/2023/07/09/world/asia/north-korea-china-defectors.html?searchResultPosition=9
+**In Djuna’s Space-Elevator Sci-Fi, Corporate Conspiracies Abound**\
+`The pseudonymous South Korean author’s first novel to be translated into English pits a multinational conglomerate against life on earth.`\
+https://nytimes.com/2023/07/09/books/review/djuna-counterweight.html?searchResultPosition=9
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/07/09/crosswords/wordle-review-answer-750.html?searchResultPosition=10
+**It’s Toxic Slime Time on Florida’s Lake Okeechobee**\
+`Electric green algal blooms are spreading, threatening wildlife, pets, people and cities. And algae season is only getting started.`\
+https://nytimes.com/interactive/2023/07/09/climate/florida-lake-okeechobee-algae.html?searchResultPosition=10
 
