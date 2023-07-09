@@ -18,8 +18,8 @@ https://nytimes.com/2023/07/09/us/prisoner-escape-manhunt-pennsylvania.html?sear
 `One day after announcing her plan to retire this year, Megan Rapinoe began her farewell tour as an unused substitute in her team’s send-off match.`\
 https://nytimes.com/2023/07/09/sports/soccer/uswnt-rapinoe-world-cup-wales.html?searchResultPosition=5
 
-**At Least 1 Dead, as Heavy Rains Set Off Flash Flooding in New York**\
-`County officials, police departments and other agencies were fielding dozens of emergency calls prompted by the flooding.`\
+**At Least 1 Dead as Heavy Rains Set Off Flash Flooding in New York**\
+`The Hudson Valley was the most affected by the storm system on Sunday, with sections getting up to eight inches of rain, the National Weather Service said.`\
 https://nytimes.com/2023/07/09/nyregion/flooding-west-point-orange-county.html?searchResultPosition=6
 
 **Message Concealers**\
