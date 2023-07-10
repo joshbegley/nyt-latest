@@ -35,6 +35,6 @@ https://nytimes.com/video/us/100000008989447/storm-rain-vermont-flooding.html?se
 https://nytimes.com/video/nyregion/100000008989522/new-york-flooding.html?searchResultPosition=9
 
 **Biden Arrives in Lithuania for NATO Summit**\
-`NATO members will convene in Vilnius, Lithuania, and determine if they will accept Sweden into the alliance.`\
+`NATO members will convene in Vilnius, Lithuania, as Sweden now appears close to being accepted into the alliance.`\
 https://nytimes.com/video/us/politics/100000008989474/biden-nato-summit.html?searchResultPosition=10
 
