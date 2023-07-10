@@ -1,6 +1,6 @@
 **13 Looks That Did the Most at the ‘Barbie’ Premiere**\
 `Margot Robbie, Ryan Gosling, Issa Rae, Kingsley Ben-Adir, Billie Eilish and many more stars came out on the pink carpet.`\
-https://nytimes.com/2023/07/10/style/13-looks-that-did-the-most-at-the-barbie-premiere.html?searchResultPosition=1
+https://nytimes.com/2023/07/10/style/barbie-premiere-pink-carpet-margot-robbie.html?searchResultPosition=1
 
 **For a President and a King, the View From the Top Is Curiously Similar**\
 `Despite hints of tension between Washington and London, President Biden and King Charles III share interests — and have faced comparable challenges — that should help smooth their meeting.`\
