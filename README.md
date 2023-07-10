@@ -19,7 +19,7 @@ https://nytimes.com/2023/07/10/sports/tennis/wimbledon-line-judges-hawkeye.html?
 https://nytimes.com/2023/07/10/us/politics/nato-biden-ukraine.html?searchResultPosition=5
 
 **See Pictures of the Flooding in New York**\
-`At least one person died as heavy rain inundated the Hudson Valley and nearby areas of the state.`\
+`At least one person died as heavy rain inundated the Hudson Valley and nearby areas of the state. More rain is expected on Monday.`\
 https://nytimes.com/2023/07/10/nyregion/new-york-state-flooding-pictures.html?searchResultPosition=6
 
 **It’s Too Hot to Cook. Make These Cool Summer Recipes Instead.**\
