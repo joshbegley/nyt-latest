@@ -1,5 +1,5 @@
-**A PGA Tour Director’s Exit Casts a Pall Over Proposed Saudi Deal**\
-`In resigning from the body’s board, Randall Stephenson said he could not support the group’s potential tie-up with the Saudi-backed LIV Golf.`\
+**A PGA Tour Director’s Exit Casts a Pall Over Deal With LIV Golf**\
+`In resigning from the body’s board, Randall Stephenson said he could not support the group’s potential tie-up with its Saudi-backed rival.`\
 https://nytimes.com/2023/07/10/business/dealbook/pga-stephenson-resign-saudi.html?searchResultPosition=1
 
 **State Senator Roland Gutierrez Seeks to Unseat Ted Cruz, Widening Democratic Field**\
