@@ -14,7 +14,7 @@ https://nytimes.com/2023/07/10/us/politics/nikki-haley-fundraising-2024.html?sea
 `A Senate hearing on Tuesday is just one part of Washington’s scrutiny of the PGA Tour’s deal with Saudi Arabia’s sovereign wealth fund.`\
 https://nytimes.com/2023/07/10/sports/golf/pga-tour-liv-saudi-senate-hearing.html?searchResultPosition=4
 
-**When the Water Rushed in, Help Rushed Over**\
+**When the Water Rushed In, Help Rushed Over**\
 `Flooding from a monster rainfall overwhelmed an apartment complex in Highland Falls, N.Y.`\
 https://nytimes.com/2023/07/10/nyregion/new-york-highland-flooding-rescue.html?searchResultPosition=5
 
