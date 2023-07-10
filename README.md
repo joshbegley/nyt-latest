@@ -1,40 +1,40 @@
+**They Caught the Fish, but the $3.5 Million Prize Got Away**\
+`The guys aboard Sensation celebrated like lottery winners when they boated a monster marlin in the last hours of the fishing tournament. The party ended when they got back to shore.`\
+https://nytimes.com/2023/07/10/sports/marlin-fishing-disqualified.html?searchResultPosition=1
+
+**How Biden Might Try to Cancel Student Debt Next**\
+`The administration proposed to use its “compromise and settlement” powers under the Higher Education Act of 1965. But what does that mean?`\
+https://nytimes.com/2023/07/10/your-money/biden-compromise-settlement-student-debt.html?searchResultPosition=2
+
+**The Afterlife of Forlorn Office Furniture**\
+`Some office furniture in the New York City area has been caught in pandemic limbo. What happens to it if no one really wants it?`\
+https://nytimes.com/2023/07/10/nyregion/office-furniture-nyc.html?searchResultPosition=3
+
+**The Case That Could Be Fox’s Next Dominion**\
+`Tucker Carlson, before he was sidelined by Fox, repeatedly endorsed a conspiracy theory about an Arizona man, who may sue for defamation. Legal experts say it would be a viable case.`\
+https://nytimes.com/2023/07/10/business/media/fox-news-defamation-ray-epps-tucker-carlson.html?searchResultPosition=4
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2023/07/10/crosswords/spelling-bee-forum.html?searchResultPosition=5
+
+**A Snapshot of 2024 Candidates’ Financial Strength Is Coming Up**\
+`The deadline for campaigns to file their quarterly fund-raising reports is Saturday, offering a look at their momentum.`\
+https://nytimes.com/interactive/2023/07/10/us/politics/2024-candidates-fec-filing.html?searchResultPosition=6
+
+**Tuberville Blockade Over Abortion Policy Threatens Top Military Promotions**\
+`The Alabama Republican’s bid to force the Pentagon to drop a policy ensuring access to abortion services for personnel could leave the Joint Chiefs of Staff with more temporary occupants than it has ever faced.`\
+https://nytimes.com/2023/07/10/us/politics/tuberville-abortion-joint-chiefs.html?searchResultPosition=7
+
+**Today’s Wordle Review**\
+`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
+https://nytimes.com/2023/07/10/crosswords/wordle-review-answer-751.html?searchResultPosition=8
+
+**Six Dead After Stabbing at a Preschool in China**\
+`The police in southern China arrested a 25-year-old man in relation to the attack. Knife attacks are not uncommon in China, and many have targeted schools.`\
+https://nytimes.com/2023/07/10/world/asia/china-kindergarten-stabbing.html?searchResultPosition=9
+
 **Word of the Day: dilettante**\
 `This word has appeared in 16 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/07/10/learning/word-of-the-day-dilettante.html?searchResultPosition=1
-
-**What’s on TV This Week: ‘What We Do in the Shadows’ and ‘Barbie Dreamhouse Challenge’**\
-`The series about Staten Island vampires is back for a fifth season on FX and HGTV premieres a “Barbie” themed show.`\
-https://nytimes.com/2023/07/10/arts/television/whats-on-tv-this-week-what-we-do-in-the-shadows-and-barbie-dreamhouse-challenge.html?searchResultPosition=2
-
-**The Flawed Moral Logic of Sending Cluster Munitions to Ukraine**\
-`The weapons will remain a threat to the people of Ukraine no matter what the outcome of this conflict.`\
-https://nytimes.com/2023/07/10/opinion/cluster-munitions-ukraine-biden.html?searchResultPosition=3
-
-**Quotation of the Day: Relying on Desperate Measure to Save Lifeline of Everglades**\
-`Quotation of the Day for Monday, July 10, 2023.`\
-https://nytimes.com/2023/07/10/pageoneplus/quotation-of-the-day-relying-on-desperate-measure-to-save-lifeline-of-everglades.html?searchResultPosition=4
-
-**No Corrections: July 10, 2023**\
-`No corrections appeared in print on Monday, July 10, 2023.`\
-https://nytimes.com/2023/07/10/pageoneplus/corrections-july-10-2023.html?searchResultPosition=5
-
-**Your Monday Briefing**\
-`A setback in Ukraine’s bid for NATO membership.`\
-https://nytimes.com/2023/07/10/briefing/ukraine-nato-yellen-china.html?searchResultPosition=6
-
-**13 Looks That Did the Most at the ‘Barbie’ Premiere**\
-`Margot Robbie, Ryan Gosling, Issa Rae, Kingsley Ben-Adir, Billie Eilish and many more stars came out on the pink carpet.`\
-https://nytimes.com/2023/07/10/style/barbie-premiere-pink-carpet-margot-robbie.html?searchResultPosition=7
-
-**For a President and a King, the View From the Top Is Curiously Similar**\
-`Despite hints of tension between Washington and London, President Biden and King Charles III share interests — and have faced comparable challenges — that should help smooth their meeting.`\
-https://nytimes.com/2023/07/10/us/politics/biden-king-charles.html?searchResultPosition=8
-
-**Glow of Baseball’s All-Star Game Can’t Obscure Athletics’ Departure**\
-`Major League Baseball’s midsummer celebration comes on the heels of an announced agreement to build a stadium for the Athletics that would relocate the franchise to Las Vegas from Oakland.`\
-https://nytimes.com/2023/07/10/sports/baseball/oakland-as-relocation-all-star-game.html?searchResultPosition=9
-
-**Heavy Rain Causes Flash Flooding in New York**\
-`Some towns declared states of emergency, and authorities said the storm killed at least one.`\
-https://nytimes.com/video/nyregion/100000008988638/flooding-rockland-putnam-orange-county.html?searchResultPosition=10
+https://nytimes.com/2023/07/10/learning/word-of-the-day-dilettante.html?searchResultPosition=10
 
