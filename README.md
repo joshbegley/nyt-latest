@@ -1,40 +1,40 @@
-**Jazz in the Garden: A Summertime Delight in Brooklyn**\
-`The Brooklyn Botanic Garden began outdoor programming during the pandemic.`\
-https://nytimes.com/2023/07/10/nyregion/jazz-brooklyn-botanic-garden.html?searchResultPosition=1
+**It’s Too Hot to Cook. Make These Cool Summer Recipes Instead.**\
+`Here are 24 no-cook recipes for when it’s too sweltering outside to sear, roast, sauté, boil or even think of turning on the stove.`\
+https://nytimes.com/article/no-cook-recipes.html?searchResultPosition=1
 
-**They Caught the Fish, but the $3.5 Million Prize Got Away**\
-`The guys aboard Sensation celebrated like lottery winners when they boated a monster marlin in the last hours of the fishing tournament. The party ended when they got back to shore.`\
-https://nytimes.com/2023/07/10/sports/marlin-fishing-disqualified.html?searchResultPosition=2
+**How a Distant War Is Threatening Livelihoods in the Arctic Circle**\
+`The fighting in Ukraine has disrupted a region in northern Norway that had thrived on cross-border trade and cooperation with Russia.`\
+https://nytimes.com/2023/07/10/world/europe/ukraine-war-arctic-circle.html?searchResultPosition=2
 
-**How Biden Might Try to Cancel Student Debt Next**\
-`The administration proposed to use its “compromise and settlement” powers under the Higher Education Act of 1965. But what does that mean?`\
-https://nytimes.com/2023/07/10/your-money/biden-compromise-settlement-student-debt.html?searchResultPosition=3
+**An Art-Filled Swiss Idyll in Lausanne and the Joux Valley**\
+`Breathtaking modern architecture, museums dedicated to watch-making, and bucolic views from a train window await visitors willing to venture beyond Switzerland’s major cities.`\
+https://nytimes.com/2023/07/10/travel/switzerland-lausanne-joux-valley-museums-watches.html?searchResultPosition=3
 
-**The Afterlife of Forlorn Office Furniture**\
-`Some office furniture in the New York City area has been caught in pandemic limbo. What happens to it if no one really wants it?`\
-https://nytimes.com/2023/07/10/nyregion/office-furniture-nyc.html?searchResultPosition=4
+**Why China’s Young People Are Not Getting Married**\
+`Marriages in China are at a record low. Recent political and economic turmoil have added another reason to postpone tying the knot.`\
+https://nytimes.com/2023/07/10/world/asia/china-marriage-rate.html?searchResultPosition=4
 
-**The Case That Could Be Fox’s Next Dominion**\
-`Tucker Carlson, before he was sidelined by Fox, repeatedly endorsed a conspiracy theory about an Arizona man, who may sue for defamation. Legal experts say it would be a viable case.`\
-https://nytimes.com/2023/07/10/business/media/fox-news-defamation-ray-epps-tucker-carlson.html?searchResultPosition=5
+**The Renaissance Is Having a Renaissance**\
+`In revisiting early modern European history, artists and designers are finding old ways to address contemporary anxieties.`\
+https://nytimes.com/2023/07/10/t-magazine/renaissance-art-fashion-film.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/07/10/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**Future of Wagner Leader’s Business Empire Is Cloudy After Rebellion**\
+`Over decades, Yevgeny V. Prigozhin amassed considerable clout in Russia and built businesses in at least 15 countries. His whereabouts and the future of his extensive portfolio are now uncertain.`\
+https://nytimes.com/2023/07/10/world/europe/prigozhin-empire-wagner-group.html?searchResultPosition=6
 
-**A Snapshot of 2024 Candidates’ Financial Strength Is Coming Up**\
-`The deadline for campaigns to file their quarterly fund-raising reports is Saturday, offering a look at their momentum.`\
-https://nytimes.com/interactive/2023/07/10/us/politics/2024-candidates-fec-filing.html?searchResultPosition=7
+**It’s Never Been a Better Time for Vegan Ice Cream**\
+`As the bases for nondairy versions have improved, so have the offerings at plant-based dessert shops around the country.`\
+https://nytimes.com/2023/07/10/dining/best-vegan-ice-cream.html?searchResultPosition=7
 
-**Tuberville Blockade Over Abortion Policy Threatens Top Military Promotions**\
-`The Alabama Republican’s bid to force the Pentagon to drop a policy ensuring access to abortion services for personnel could leave the Joint Chiefs of Staff with more temporary occupants than it has ever faced.`\
-https://nytimes.com/2023/07/10/us/politics/tuberville-abortion-joint-chiefs.html?searchResultPosition=8
+**A Tangled Past Complicates Poland’s Welcome to Ukrainian Refugees**\
+`Polish memories of ethnic pogroms by Ukrainian nationalists in the 1940s jostle with the trauma left by Russia and its war in Ukraine.`\
+https://nytimes.com/2023/07/10/world/europe/ukraine-poland-volhynia-massacre-history.html?searchResultPosition=8
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/07/10/crosswords/wordle-review-answer-751.html?searchResultPosition=9
+**A Love of the Worn**\
+`Celebrities appreciate the antique look of Magnolia Pearl, a brand that takes inspiration from Victoriana, carnivals and “hobos,” and has recently drawn ire on social media.`\
+https://nytimes.com/2023/07/10/style/a-love-of-the-worn.html?searchResultPosition=9
 
-**Six Dead After Stabbing at a Preschool in China**\
-`The police in southern China arrested a 25-year-old man in relation to the attack. Knife attacks are not uncommon in China, and many have targeted schools.`\
-https://nytimes.com/2023/07/10/world/asia/china-kindergarten-stabbing.html?searchResultPosition=10
+**Travel Confessions: Tell Us About the Time You Crossed the Line**\
+`Maybe you didn’t deface a monument or endanger anyone, but have you ever committed a travel foul, accidental or otherwise? Share your story with us.`\
+https://nytimes.com/2023/07/10/travel/travel-tourist-confessions.html?searchResultPosition=10
 
