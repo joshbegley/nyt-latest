@@ -10,9 +10,9 @@ https://nytimes.com/2023/07/10/business/economy/michael-barr-banking-regulations
 `Three prisoners are accused of terrorism, murder and conspiracy in bombings in Indonesia 20 years ago that killed more than 200 people.`\
 https://nytimes.com/2023/07/10/us/politics/bali-jakarta-bombings-trial-guide.html?searchResultPosition=3
 
-**‘Like something out of a horror movie’: New York flooding causes millions of dollars’ worth of damage.**\
-`By Jesse McKinley`\
-https://nytimes.com/2023/07/10/us/like-something-out-of-a-horror-movie-new-york-flooding-causes-millions-of-dollars-worth-of-damage.html?searchResultPosition=4
+**Deadly New York Floods Cause Millions of Dollars In Damage**\
+`The flash floods killed one woman in New York, who was swept away by rising waters while she tried to save herself and her dog.`\
+https://nytimes.com/2023/07/10/us/new-york-flash-flooding.html?searchResultPosition=4
 
 **Behind ‘Oppenheimer,’ a Prizewinning Biography 25 Years in the Making**\
 `Martin Sherwin struck the deal and dove into the research. But it was only when Kai Bird joined as a collaborator that “American Prometheus” came to be.`\
