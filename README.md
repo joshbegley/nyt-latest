@@ -10,8 +10,8 @@ https://nytimes.com/2023/07/10/business/economy/michael-barr-banking-regulations
 `Three prisoners are accused of terrorism, murder and conspiracy in bombings in Indonesia 20 years ago that killed more than 200 people.`\
 https://nytimes.com/2023/07/10/us/politics/bali-jakarta-bombings-trial-guide.html?searchResultPosition=3
 
-**Deadly New York Floods Cause Millions of Dollars In Damage**\
-`The flash floods killed one woman in New York, who was swept away by rising waters while she tried to save herself and her dog.`\
+**Deadly New York Floods Are ‘Like Something Out of a Horror Movie’**\
+`The flash floods killed one woman in New York, who was swept away by rising waters while she tried to save herself and her dog, and caused tens of millions of dollars in damage.`\
 https://nytimes.com/2023/07/10/us/new-york-flash-flooding.html?searchResultPosition=4
 
 **Behind ‘Oppenheimer,’ a Prizewinning Biography 25 Years in the Making**\
