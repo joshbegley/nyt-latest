@@ -15,7 +15,7 @@ https://nytimes.com/2023/07/10/us/politics/nikki-haley-fundraising-2024.html?sea
 https://nytimes.com/2023/07/10/sports/golf/pga-tour-liv-saudi-senate-hearing.html?searchResultPosition=4
 
 **When the Water Rushed In, Help Rushed Over**\
-`Flooding from a monster rainfall overwhelmed an apartment complex in Highland Falls, N.Y.`\
+`When the flooding came, it was as if a river had suddenly been diverted into an apartment complex in Highland Falls, N.Y.`\
 https://nytimes.com/2023/07/10/nyregion/new-york-highland-flooding-rescue.html?searchResultPosition=5
 
 **Judge Should Consider Contempt of Court Action Over Rikers, Monitor Says**\
