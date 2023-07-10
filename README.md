@@ -1,5 +1,5 @@
-**Putin Met With Prigozhin Days After Rebellion, Kremlin Says**\
-`President Vladimir V. Putin held a three-hour meeting with Yevgeny V. Prigozhin and his top Wagner commanders on June 29, according to the Kremlin.`\
+**The meeting is the first known contact between Putin and Prigozhin since the mutiny.**\
+`President Vladimir V. Putin held a three-hour meeting with`\
 https://nytimes.com/2023/07/10/world/europe/putin-prigozhin-meeting.html?searchResultPosition=1
 
 **State Senator Roland Gutierrez Seeks to Unseat Ted Cruz, Widening Democratic Field**\
