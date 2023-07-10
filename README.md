@@ -1,6 +1,6 @@
 **The meeting is the first known contact between Putin and Prigozhin since the mutiny.**\
 `President Vladimir V. Putin held a three-hour meeting with`\
-https://nytimes.com/2023/07/10/world/europe/putin-prigozhin-meeting.html?searchResultPosition=1
+https://nytimes.com/live/2023/07/10/world/russia-ukraine-news/putin-prigozhin-meeting?searchResultPosition=1
 
 **State Senator Roland Gutierrez Seeks to Unseat Ted Cruz, Widening Democratic Field**\
 `The state senator, who represents Uvalde, Texas, vowed to make his passionate appeals for gun control a centerpiece of his campaign.`\
