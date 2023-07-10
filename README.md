@@ -15,7 +15,7 @@ https://nytimes.com/2023/07/10/us/politics/david-weiss-hunter-biden-irs.html?sea
 https://nytimes.com/2023/07/10/theater/malvolio-review.html?searchResultPosition=4
 
 **Downpours Cause Dangerous Flooding in Vermont**\
-`Torrential rain washed out roads and flooded residential areas in Vermont.`\
+`Rain washed out roads and swept through residential areas in Vermont.`\
 https://nytimes.com/video/us/100000008989447/storm-rain-vermont-flooding.html?searchResultPosition=5
 
 **Rain Floods New York’s Hudson Valley**\
