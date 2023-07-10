@@ -1,6 +1,6 @@
 **Were You at a Wedding During the 2003 Blackout? We Want to Hear From You.**\
 `A massive blackout in New York City interrupted many celebrations 20 years ago. We want to hear from couples and guests who were at a wedding during the power outage.`\
-https://nytimes.com/2023/07/10/style/were-you-at-a-wedding-during-the-2003-blackout-we-want-to-hear-from-you.html?searchResultPosition=1
+https://nytimes.com/2023/07/10/style/wedding-nyc-blackout-2003.html?searchResultPosition=1
 
 **Summer Heat Waves Killed 61,000 in Europe Last Year, Study Says**\
 `Researchers suggest that strategies to cope with higher temperatures aren’t keeping pace with global warming.`\
