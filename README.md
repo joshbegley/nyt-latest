@@ -2,7 +2,7 @@
 `The conviction of a 21-year-old drug dealer in a fatal fentanyl overdose is believed to be the first of its kind in the state.`\
 https://nytimes.com/2023/07/10/us/california-fentanyl-murder-conviction.html?searchResultPosition=1
 
-**Philadelphia Police Officials Detail Botched Response to Fatal Shooting**\
+**Philadelphia Police Officials Detail Botched Response to a Fatal Shooting**\
 `Officers were sent to the wrong address, delaying discovery of the victim who investigators believe was the first of five people killed by the gunman.`\
 https://nytimes.com/2023/07/10/us/philadelphia-shooting-police-response.html?searchResultPosition=2
 
