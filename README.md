@@ -2,13 +2,13 @@
 `More than 20 people died over the weekend amid unusually heavy downpours that have pummeled the northern part of the country and caused widespread damage.`\
 https://nytimes.com/2023/07/10/world/asia/india-monsoon-flooding-landslides.html?searchResultPosition=1
 
-**California to Provide $20 Million to Flooded Central Valley Farm Town**\
-`The undocumented status of many residents of Planada, east of Merced, meant they were ineligible for federal aid after winter storms ravaged their town.`\
-https://nytimes.com/2023/07/10/us/california-flood-relief-central-valley.html?searchResultPosition=2
-
 **Hill Harper, ‘Good Doctor’ Actor, Enters Senate Race in Michigan**\
 `Mr. Harper is challenging Representative Elissa Slotkin from the left and will have an uphill climb in a heated Democratic primary race in a 2024 presidential swing state.`\
-https://nytimes.com/2023/07/10/us/politics/hill-harper-senate-michigan.html?searchResultPosition=3
+https://nytimes.com/2023/07/10/us/politics/hill-harper-senate-michigan.html?searchResultPosition=2
+
+**California to Provide $20 Million to Flooded Central Valley Farm Town**\
+`The undocumented status of many residents of Planada, east of Merced, meant they were ineligible for federal aid after winter storms ravaged their town.`\
+https://nytimes.com/2023/07/10/us/california-flood-relief-central-valley.html?searchResultPosition=3
 
 **Diary of a Spelling Bee Fanatic**\
 `Entries for the week of July 3, 2023.`\
