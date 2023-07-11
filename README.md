@@ -1,40 +1,40 @@
-**Hardly Working**\
-`As background extras in video games, some nonplayer characters are programmed to do one thing forever: drudgery.`\
-https://nytimes.com/video/opinion/100000008862977/hardly-working.html?searchResultPosition=1
+**Gotta Save the Castle? Start a Podcast.**\
+`The Duchess of Rutland learned the art of running a castle on the job. Then she started interviewing other duchesses on how they make it work.`\
+https://nytimes.com/2023/07/11/style/gotta-save-the-castle-start-a-podcast.html?searchResultPosition=1
 
-**Flooding and Landslides Hit Japan**\
-`The deluge hit the island of Kyushu with what one official called the “heaviest rain ever experienced” in the region.`\
-https://nytimes.com/video/world/asia/100000008990533/japan-kyushu-flooding-landslides.html?searchResultPosition=2
+**Dirty Socks and Rotting Bodies: What Russians Left Behind in the Trenches**\
+`As Ukrainian troops inch forward in the counteroffensive, they are occupying positions abandoned by enemy troops. Says one: “It’s not very pleasant.”`\
+https://nytimes.com/2023/07/11/world/europe/russia-ukraine-counteroffensive-trenches.html?searchResultPosition=2
 
-**North Korea Ramps Up Rhetoric Ahead of U.S. Nuclear Submarine Visit**\
-`The country warned that it would shoot down American spy planes, escalating verbal attacks on the U.S. as South Korea’s leader traveled to attend a NATO summit.`\
-https://nytimes.com/2023/07/11/world/asia/north-korea-us-submarine.html?searchResultPosition=3
+**A Bond Villain’s Lair in the Hamptons? That’s Only the Half of It.**\
+`The interior designer who renovated the Southampton, N.Y., house indulged his obsessions: James Bond movies and modernism. And he did it on a budget.`\
+https://nytimes.com/2023/07/11/realestate/hamptons-house-james-bond.html?searchResultPosition=3
 
-**Tracing Mining’s Threat to U.S. Waters**\
-`Environmental concerns are raised anew about potential contamination from Canadian open-mit mines flowing through the waterways into Montana’s lakes, harming fish.`\
-https://nytimes.com/2023/07/11/science/us-canada-mining-pollution.html?searchResultPosition=4
+**A Hamptons Home Fit for a James Bond Villain**\
+`The interior designer who renovated the Southampton, N.Y., house indulged his obsessions: James Bond movies and modernism. And he did it on a budget.`\
+https://nytimes.com/slideshow/2023/07/11/realestate/a-hamptons-home-fit-for-a-james-bond-villain.html?searchResultPosition=4
 
-**A Tiny Fish That Fuels an Atlantic Ecosystem Now Fuels Industry Debates**\
-`A mainstay of the commercial fishing industry, menhaden are the primary food source for all sorts of fish and birds along the Eastern Seaboard.`\
-https://nytimes.com/2023/07/11/science/menhaden-chesapeake-bay-fishing.html?searchResultPosition=5
+**Looking to Trade a Cat for a Burial Plot? Tune In to Tradio.**\
+`Instead of using Craigslist and Facebook Marketplace, some people in rural America call their local radio stations to buy, sell and barter goods.`\
+https://nytimes.com/2023/07/11/style/tradio-radio-stations.html?searchResultPosition=5
 
-**What Haunts Child Abuse Victims? The Memory, Study Finds**\
-`A study of adults who were mistreated in childhood found that those who did not recall it showed fewer psychological aftereffects.`\
-https://nytimes.com/2023/07/11/health/childhood-abuse-memory.html?searchResultPosition=6
+**They Know the Blessing and Curse of Warhol and Basquiat**\
+`Paige Powell and Brigid Berlin documented the world of artists who overshadowed them. With shows in New York and Paris, can these women escape their connections?`\
+https://nytimes.com/2023/07/11/arts/design/paige-powell-brigid-berlin-warhol-basquiat.html?searchResultPosition=6
 
-**A Reckoning in Real Estate**\
-`Debra Kamin interviewed real estate agents who have been sexually harassed while on the job and left with little recourse.`\
-https://nytimes.com/2023/07/11/insider/real-estate-sexual-harassment.html?searchResultPosition=7
+**Blocked Rail Crossings Snarl Towns, but Congress Won’t Act**\
+`The industry has used its muscle to prevent federal, state and local governments from penalizing companies that park freight trains across roads for hours or days.`\
+https://nytimes.com/2023/07/11/business/blocked-rail-crossings-congress.html?searchResultPosition=7
 
-**A Second Strike Is Threatening Hollywood**\
-`If actors go on strike when their deal with studios ends on Wednesday, it will be the first time they and the writers have been out at the same time since 1960.`\
-https://nytimes.com/2023/07/11/business/media/actors-sag-strike-hollywood.html?searchResultPosition=8
+**Heat Down Below Is Making the Ground Shift Under Chicago**\
+`Basements and train tunnels constantly leak heat, causing the land to sink and straining building foundations. Scientists call it “underground climate change.”`\
+https://nytimes.com/2023/07/11/climate/chicago-underground-heat.html?searchResultPosition=8
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/07/11/crosswords/spelling-bee-forum.html?searchResultPosition=9
+**Greta Gerwig’s ‘Barbie’ Dream Job**\
+`Mattel wanted a summer blockbuster to kick off its new wave of brand-extension movies. She wanted it to be a work of art.`\
+https://nytimes.com/2023/07/11/magazine/greta-gerwig-barbie.html?searchResultPosition=9
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/07/11/crosswords/wordle-review-answer-752.html?searchResultPosition=10
+**Scientists Have Found a Hot Spot on the Moon’s Far Side**\
+`Data from two Chinese orbiters helped a team of scientists explain why a patch of lunar terrain is so much warmer than the surrounding area.`\
+https://nytimes.com/2023/07/11/science/moon-hot-spot-granite.html?searchResultPosition=10
 
