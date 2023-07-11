@@ -12,7 +12,7 @@ https://nytimes.com/2023/07/11/climate/climate-change-floods-preparedness.html?s
 
 **Judge Rejects F.T.C. Delay of $70 Billion Microsoft-Activision Deal**\
 `Microsoft could now complete its purchase of the video game giant as soon as this month, but it is still blocked from closing in Britain.`\
-https://nytimes.com/2023/07/11/business/microsoft-activision-deal-ftc.html?searchResultPosition=4
+https://nytimes.com/2023/07/11/technology/microsoft-activision-deal-ftc.html?searchResultPosition=4
 
 **Raw Milk Is Being Legalized in More States. Is It Safe?**\
 `Health experts warn that drinking it could come with risks.`\
