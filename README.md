@@ -1,40 +1,40 @@
+**A Centuries-Long Manhunt Stretches Across Mexico and Beyond**\
+`“Not Even the Dead,” a novel by Juan Gómez Bárcena, is a transhistorical epic with echoes of Cormac McCarthy and Joseph Conrad.`\
+https://nytimes.com/2023/07/11/books/review/juan-gomez-barcena-not-even-the-dead.html?searchResultPosition=1
+
 **A Hollywood Diner Becomes a Writers’ Room of a Different Sort**\
 `In their third month on the picket lines, Los Angeles screenwriters are drawing inspiration — and sustenance — from a local restaurant as their industry faces pressures from changing viewer habits.`\
-https://nytimes.com/2023/07/11/us/writers-strike-hollywood-diner.html?searchResultPosition=1
+https://nytimes.com/2023/07/11/us/writers-strike-hollywood-diner.html?searchResultPosition=2
 
 **Vermont Floods Show Limits of America’s Efforts to Adapt to Climate Change**\
 `The lack of a comprehensive national rainfall database and current flood maps hampers the ability to prepare for storms intensified by climate change.`\
-https://nytimes.com/2023/07/11/climate/climate-change-floods-preparedness.html?searchResultPosition=2
+https://nytimes.com/2023/07/11/climate/climate-change-floods-preparedness.html?searchResultPosition=3
 
 **Judge Rejects F.T.C. Delay of $70 Billion Microsoft-Activision Deal**\
 `Microsoft could now complete its purchase of the video game giant as soon as this month, but it is still blocked from closing in Britain.`\
-https://nytimes.com/2023/07/11/business/microsoft-activision-deal-ftc.html?searchResultPosition=3
+https://nytimes.com/2023/07/11/business/microsoft-activision-deal-ftc.html?searchResultPosition=4
 
 **Raw Milk Is Being Legalized in More States. Is It Safe?**\
 `Health experts warn that drinking it could come with risks.`\
-https://nytimes.com/2023/07/11/well/eat/raw-milk-risks.html?searchResultPosition=4
+https://nytimes.com/2023/07/11/well/eat/raw-milk-risks.html?searchResultPosition=5
 
 **Japan’s Supreme Court Lifts Restroom Restriction at Work for Trans Woman**\
 `The decision represents some forward momentum in L.G.B.T.Q. rights in Japan, which lags behind other G7 nations in extending them.`\
-https://nytimes.com/2023/07/11/world/asia/japan-transgender-supreme-court.html?searchResultPosition=5
+https://nytimes.com/2023/07/11/world/asia/japan-transgender-supreme-court.html?searchResultPosition=6
 
 **No-Cook Puttanesca Chickpea Salad and One-Pot Sesame Salmon Rice Bowls**\
 `Weeknight meals that feel weekend fancy.`\
-https://nytimes.com/2023/07/11/dining/no-cook-puttanesca-chickpea-salad-and-one-pot-sesame-salmon-rice-bowls.html?searchResultPosition=6
+https://nytimes.com/2023/07/11/dining/no-cook-puttanesca-chickpea-salad-and-one-pot-sesame-salmon-rice-bowls.html?searchResultPosition=7
 
 **Heat Endures in the Southwest as the Monsoon Season Lags**\
 `A high-pressure dome parked over the Southwest is elevating temperatures from Florida to California, a heat wave that forecasters say could last two weeks.`\
-https://nytimes.com/2023/07/11/us/heat-wave-south-arizona-texas.html?searchResultPosition=7
+https://nytimes.com/2023/07/11/us/heat-wave-south-arizona-texas.html?searchResultPosition=8
 
 **DeSantis’s Striking, Risky Strategy: Not Trying to Trick Small Donors**\
 `Diverging from Donald Trump, who has often cajoled, guilt-tripped and even misled small donors, the DeSantis team is pledging to avoid “smoke and mirrors” in its online fund-raising.`\
-https://nytimes.com/2023/07/11/us/politics/desantis-donations-trump.html?searchResultPosition=8
+https://nytimes.com/2023/07/11/us/politics/desantis-donations-trump.html?searchResultPosition=9
 
 **A Pie Shop on Chicago’s South Side Serves More Than Dessert**\
 `With her first brick-and-mortar bakery, Justice of the Pies, the pastry chef Maya-Camille Broussard focuses on creativity — and inclusivity for people with disabilities.`\
-https://nytimes.com/2023/07/11/dining/pie-shop-chicago-south-side.html?searchResultPosition=9
-
-**Suspecting Clandestine Plots Behind Every Door**\
-`In “Under the Eye of Power,” Colin Dickey unearths the long, disturbing history of fearmongering in American politics and culture.`\
-https://nytimes.com/2023/07/11/books/review/under-the-eye-of-power-colin-dickey.html?searchResultPosition=10
+https://nytimes.com/2023/07/11/dining/pie-shop-chicago-south-side.html?searchResultPosition=10
 
