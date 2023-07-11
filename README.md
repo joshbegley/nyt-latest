@@ -2,7 +2,7 @@
 `The bank double-charged overdraft fees, withheld card perks and opened unauthorized accounts, regulators said. It will repay customers more than $80 million.`\
 https://nytimes.com/2023/07/11/business/bank-of-america-fine.html?searchResultPosition=1
 
-**‘Mission: Impossible — Dead Reckoning Part 1’ Review: Still Running**\
+**‘Mission: Impossible — Dead Reckoning Part One’ Review: Still Running**\
 `In this franchise’s seventh entry, Tom Cruise’s mission includes increasingly improbable leaps, chases and stunts. Luckily for us, he chooses to accept it.`\
 https://nytimes.com/2023/07/11/movies/mission-impossible-dead-reckoning-part-one-review.html?searchResultPosition=2
 
