@@ -2,7 +2,7 @@
 `Arizona is used to scorching summers, but the region’s 11th straight day of 110-degree temperatures is straining patience and resources.`\
 https://nytimes.com/2023/07/11/us/phoenix-heat-wave.html?searchResultPosition=1
 
-**BBC Crisis Grows as 2nd Young Person Describes Abuse by Staff Member**\
+**BBC Crisis Grows as Staff Member Is Accused of Abuse by 2nd Person**\
 `The British broadcaster was facing questions about its handling of an internal inquiry over explicit photos after another person accused the male staff member of sending abusive messages over a dating app.`\
 https://nytimes.com/2023/07/11/world/europe/bbc-presenter-photos-dating-app.html?searchResultPosition=2
 
