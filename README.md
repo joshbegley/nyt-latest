@@ -3,7 +3,7 @@
 https://nytimes.com/interactive/2023/07/11/us/politics/trump-trial-postponement.html?searchResultPosition=1
 
 **Trump Lawyers Seek Indefinite Postponement of Documents Trial**\
-`The former president’s legal team argued in a court filing that no trial date should be set until all ‘substantive motions’ in the case are resolved, setting up an early key decision by Judge Aileen Cannon.`\
+`The former president’s legal team argued in a court filing that no trial date should be set until all “substantive motions” in the case are resolved, setting up an early key decision by Judge Aileen Cannon.`\
 https://nytimes.com/2023/07/11/us/politics/trump-documents-trial-postponement.html?searchResultPosition=2
 
 **‘Heaviest Rain Ever’ in Japan’s South Sets Off Floods and Landslides**\
