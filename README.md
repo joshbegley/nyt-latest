@@ -1,4 +1,4 @@
-**Ruth Fitzpatrick, 90, Dies; Pressed Church to Let Women Be Priests**\
+**Ruth Fitzpatrick, Crusader for Letting Women Be Priests, Dies at 90**\
 `Feeling called to the Roman Catholic priesthood but denied entry, she became a leader of a national group that has pushed the Vatican to ordain women.`\
 https://nytimes.com/2023/07/11/us/ruth-fitzpatrick-dead.html?searchResultPosition=1
 
