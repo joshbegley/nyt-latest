@@ -1,6 +1,6 @@
 **Trump Lawyers Seek Indefinite Postponement of Documents Trial**\
 `The former president’s legal team argued in a court filing that no trial date should be set until all ‘substantive motions’ in the case are resolved, setting up an early key decision by Judge Aileen Cannon.`\
-https://nytimes.com/2023/07/11/us/politics/trump-lawyers-seek-indefinite-postponement-of-documents-trial.html?searchResultPosition=1
+https://nytimes.com/2023/07/11/us/politics/trump-documents-trial-postponement.html?searchResultPosition=1
 
 **‘Heaviest Rain Ever’ in Japan’s South Sets Off Floods and Landslides**\
 `Unusually heavy rain on the mountainous island of Kyushu has killed at least six people and left three others missing.`\
