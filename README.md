@@ -1,6 +1,6 @@
 **Torrential Rains Bring Floods, Landslides to India**\
 `The monsoon season has led to dozens of fatalities.`\
-https://nytimes.com/video/world/asia/100000008990431/torrential-rain-brings-floods-landslides-to-india.html?searchResultPosition=1
+https://nytimes.com/video/world/asia/100000008990431/India-Flooding-Landslides-Monsoon.html?searchResultPosition=1
 
 **NATO Isn’t What It Says It Is**\
 `From its origins, the alliance was never primarily concerned with military power.`\
