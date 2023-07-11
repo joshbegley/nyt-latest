@@ -8,7 +8,7 @@ https://nytimes.com/2023/07/11/automobiles/collectibles/classic-car-shows.html?s
 
 **Gotta Save the Castle? Start a Podcast.**\
 `The Duchess of Rutland learned the art of running a castle on the job. Then she started interviewing other duchesses on how they make it work.`\
-https://nytimes.com/2023/07/11/style/gotta-save-the-castle-start-a-podcast.html?searchResultPosition=3
+https://nytimes.com/2023/07/11/style/duchess-podcast-belvoir-castle-rutland.html?searchResultPosition=3
 
 **Dirty Socks and Rotting Bodies: What Russians Left Behind in the Trenches**\
 `As Ukrainian troops inch forward in the counteroffensive, they are occupying positions abandoned by enemy troops. Says one: “It’s not very pleasant.”`\
