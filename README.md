@@ -1,5 +1,5 @@
-**A Missing Russian General is ‘Taking a Rest’ a Top Lawmakers Says**\
-`Gen. Sergei Surovikin, the commander of the Russian Aerospace Forces, has not been seen in public since a short-lived mutiny on June 24.`\
+**A Missing Russian General Is ‘Taking a Rest’ a Top Lawmakers Says**\
+`Gen. Sergei Surovikin, the commander of the Russian Aerospace Forces, has not been seen in public since a short-lived mutiny of mercenaries on June 24.`\
 https://nytimes.com/2023/07/12/world/europe/sergei-surovikin-russian-general-missing.html?searchResultPosition=1
 
 **The Full-Body Pool Workout That Doesn’t Involve Swimming**\
