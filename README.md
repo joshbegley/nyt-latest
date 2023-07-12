@@ -34,7 +34,7 @@ https://nytimes.com/2023/07/12/sports/baseball/elias-diaz-all-star-game.html?sea
 `Mr. Kundera, the author of “The Unbearable Lightness of Being,” was known for sexually charged novels that captured the suffocating absurdity of life in his native Czechoslovakia.`\
 https://nytimes.com/2023/07/12/world/europe/milan-kundera-dead.html?searchResultPosition=9
 
-**On the Front Line of a War Over Bullfighting Traditions**\
-`Opponents of Spain’s comic shows at bullfights by people with dwarfism say they are banned by a new law. But performers say the show must go on.`\
-https://nytimes.com/2023/07/12/world/europe/spain-bullfights.html?searchResultPosition=10
+**She Steals Surfboards by the Seashore. She’s a Sea Otter.**\
+`California wildlife officials are hoping to apprehend a 5-year-old sea otter, who has a knack for riding the waves after committing longboard larceny.`\
+https://nytimes.com/2023/07/12/science/sea-otter-surfboard.html?searchResultPosition=10
 
