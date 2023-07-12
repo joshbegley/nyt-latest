@@ -26,8 +26,8 @@ https://nytimes.com/2023/07/12/science/nasa-webb-telescope-one-year-anniversary.
 `The “Shrinking” star discussed her first nomination while picketing outside Disney. “It’s a crazy day today,” she said. “I have to stand in solidarity.”`\
 https://nytimes.com/2023/07/12/arts/television/jessica-williams-shrinking-emmy-nomination.html?searchResultPosition=7
 
-**Iger to Remain as Head of Disney Through 2026**\
-`The 72-year-old chief executive previously said he planned to leave when his contract ended at the end of 2024.`\
+**Bob Iger to Remain as Head of Disney Through 2026**\
+`The 72-year-old chief executive previously said he planned to leave a the end of his contract in 2024.`\
 https://nytimes.com/2023/07/12/business/media/disney-bob-iger.html?searchResultPosition=8
 
 **Football Superfan Caught in California and Charged in $70,000 Bank Theft**\
