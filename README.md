@@ -18,7 +18,7 @@ https://nytimes.com/2023/07/12/podcasts/headlines-nyt-audio-app.html?searchResul
 `The stage was set for Julio Rodríguez of the Mariners to deliver a win in Seattle. Instead, the National League got its first win since 2012 thanks to Elias Díaz.`\
 https://nytimes.com/2023/07/12/sports/baseball/elias-diaz-all-star-game.html?searchResultPosition=5
 
-**Milan Kundera, Literary Star and Communist Party Outcast, Dies at 94**\
+**Milan Kundera, Czech Literary Star and Communist Party Outcast, Dies at 94**\
 `Mr. Kundera, the author of “The Unbearable Lightness of Being,” was known for sexually charged novels that captured the suffocating absurdity of life in his native Czechoslovakia.`\
 https://nytimes.com/2023/07/12/world/europe/milan-kundera-dead.html?searchResultPosition=6
 
