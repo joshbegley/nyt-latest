@@ -23,7 +23,7 @@ https://nytimes.com/2023/07/12/movies/tubi-cinnamon-murder-city-black-noir-cinem
 https://nytimes.com/2023/07/12/us/politics/defense-bill-republicans-ukraine-war.html?searchResultPosition=7
 
 **Demolition of House Where Idaho Students Were Killed Is Postponed**\
-`Make sure you toggle the Summary off before publishing.`\
+`The college had planned to demolish the home where four students were fatally stabbed overnight in November.`\
 https://nytimes.com/2023/07/12/us/idaho-murders-house-demolition.html?searchResultPosition=8
 
 **Murderer Released in Secretive Deal Is Recaptured After Months on the Run**\
