@@ -2,7 +2,7 @@
 `The magazine’s Ethicist columnist on revealing a past romance to a current partner.`\
 https://nytimes.com/2023/07/12/magazine/celebrity-marriage-ethics.html?searchResultPosition=1
 
-**A Missing Russian General Is ‘Taking a Rest’ a Top Lawmakers Says**\
+**A Missing Russian General Is ‘Taking a Rest’ a Top Lawmaker Says**\
 `Gen. Sergei Surovikin, the commander of the Russian Aerospace Forces, has not been seen in public since a short-lived mutiny of mercenaries on June 24.`\
 https://nytimes.com/2023/07/12/world/europe/sergei-surovikin-russian-general-missing.html?searchResultPosition=2
 
