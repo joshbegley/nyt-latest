@@ -10,7 +10,7 @@ https://nytimes.com/2023/07/12/business/england-high-street-retail-recovery.html
 `A private firm’s proposal for the station tries to restore some of its old romance, unlike the M.T.A. plan, our architecture critic says.`\
 https://nytimes.com/2023/07/12/nyregion/penn-station-plan-kimmelman.html?searchResultPosition=3
 
-**Chinese Hackers Gained Access to Government Email Accounts, Microsoft Says**\
+**Chinese Hackers Breached Government Email Accounts, Microsoft Says**\
 `The hack, by a Chinese group that the company said was intent on conducting espionage, went undetected for a month.`\
 https://nytimes.com/2023/07/11/us/politics/china-hack-us-government-microsoft.html?searchResultPosition=4
 
