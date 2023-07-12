@@ -1,5 +1,5 @@
 **Therapy Where the Clothes Come Off (Sometimes)**\
-`By combining talk therapy with the elements of physical touch, surrogate partners assist people who are struggling with sex and intimacy.`\
+`By combining talk therapy with elements of physical touch, surrogate partners assist people who are struggling with sex and intimacy.`\
 https://nytimes.com/2023/07/12/style/surrogate-partners.html?searchResultPosition=1
 
 **Mountain Valley Pipeline Halted as Legal Wrangling Heats Up**\
