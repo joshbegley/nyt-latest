@@ -18,7 +18,7 @@ https://nytimes.com/2023/07/12/world/europe/biden-nato-lithuania-ukraine.html?se
 `The State Medical Board of Ohio voted on Wednesday to revoke Katharine Roxanne Grawe’s medical license after she broadcast some patients’ procedures.`\
 https://nytimes.com/2023/07/12/us/dr-roxy-tiktok-operations-livestream.html?searchResultPosition=5
 
-**J. Smith-Cameron: ‘Succession’ Was ‘More Than the Sum of Its Parts’**\
+**For J. Smith-Cameron, ‘Succession’ Was ‘More Than the Sum of Its Parts’**\
 `The actor was one of many “Succession” stars to receive Emmy nominations on Wednesday. “But performances can only be as good as what’s written,” she said.`\
 https://nytimes.com/2023/07/12/arts/television/j-smith-cameron-succession-emmy-nomination.html?searchResultPosition=6
 
