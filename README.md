@@ -1,40 +1,40 @@
-**Far From the Tour de France, Colombia Falls Hard for Cycling**\
-`Soccer still reigns supreme in Latin America, but a popular ride in the hills above Medellín showcases a nation’s second love.`\
-https://nytimes.com/2023/07/12/sports/cycling/tour-de-france-colombia.html?searchResultPosition=1
+**On the Front Line of a War Over Bullfighting Traditions**\
+`Opponents of Spain’s comic shows at bullfights by people with dwarfism say they are banned by a new law. But performers say the show must go on.`\
+https://nytimes.com/2023/07/12/world/europe/spain-bullfights.html?searchResultPosition=1
 
-**From 400 Feet Above, a Lake’s Algae Problems Look Clear**\
-`To understand the challenges at Lake Okeechobee, a vast inland sea in Florida, The New York Times piloted a drone.`\
-https://nytimes.com/2023/07/12/insider/lake-okeechobee-photography.html?searchResultPosition=2
+**How a Peaceful Country Became a Gold Rush State for Drug Cartels**\
+`In Ecuador, an intelligence official said: “People consume abroad, but they don’t understand the consequences that take place here.”`\
+https://nytimes.com/2023/07/12/world/americas/ecuador-drug-cartels.html?searchResultPosition=2
 
-**The Energy Transition Is Underway. Fossil Fuel Workers Could Be Left Behind.**\
-`The Biden administration is trying to increase renewable energy investments in distressed regions, but some are skeptical those measures would be enough to make up for job losses.`\
-https://nytimes.com/2023/07/12/us/politics/coal-gas-workers-transition.html?searchResultPosition=3
+**She Steals Surfboards by the Seashore. She’s a Sea Otter.**\
+`California wildlife officials are hoping to apprehend a 5-year-old sea otter, who has a knack for riding the waves after committing longboard larceny.`\
+https://nytimes.com/2023/07/12/science/sea-otter-surfboard.html?searchResultPosition=3
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/07/12/crosswords/spelling-bee-forum.html?searchResultPosition=4
+**F.B.I. Director to Testify Before House Panel as It Assails the Bureau**\
+`Stoked by former President Donald J. Trump, congressional Republicans have been trying to undermine the F.B.I.’s legitimacy with the public.`\
+https://nytimes.com/2023/07/12/us/politics/christopher-wray-fbi-house-judiciary-committee.html?searchResultPosition=4
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/07/12/crosswords/wordle-review-answer-753.html?searchResultPosition=5
+**Why a Tiny Trough Garden Always Attracts an Audience**\
+`They may not be the showiest thing on the patio, but these miniature landscapes inevitably take center stage: “It’s about being in Lilliputian land.”`\
+https://nytimes.com/2023/07/12/realestate/succulent-alpine-garden.html?searchResultPosition=5
 
-**Word of the Day: versatile**\
-`This word has appeared in 199 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/07/12/learning/word-of-the-day-versatile.html?searchResultPosition=6
+**The Five Players to Watch at the Scottish Open**\
+`Many of the top golfers will be in Scotland. Here are a few hoping to break into their ranks.`\
+https://nytimes.com/2023/07/12/sports/golf/scottish-open-players.html?searchResultPosition=6
 
-**Scapegoated by Everyone, Wanted by No One**\
-`Syrians in Turkey do not want to go home. They may not have the choice.`\
-https://nytimes.com/2023/07/12/opinion/syria-refugees-turkey.html?searchResultPosition=7
+**The Genesis Scottish Open Rises in Stature**\
+`The course is considered a solid testing ground for the British Open, a major played just down the road a few days later.`\
+https://nytimes.com/2023/07/12/sports/golf/scottish-open-course.html?searchResultPosition=7
 
-**Your Wednesday Briefing**\
-`Developments on Ukraine’s bid to join NATO.`\
-https://nytimes.com/2023/07/12/briefing/ukraine-nato-israel-protests-syria.html?searchResultPosition=8
+**DeSantis Confronts a Murdoch Empire No Longer Quite So Supportive**\
+`The Florida governor has faced tough questions and critical coverage lately from Fox News and other conservative outlets, in a sign of growing skepticism.`\
+https://nytimes.com/2023/07/12/us/politics/desantis-fox-news-rupert-murdoch.html?searchResultPosition=8
 
-**How to Revive a Dying Main Street? One U.K. Landlord Offered Free Rent.**\
-`In a coastal English town, a floundering shopping district was given new life after 10 local businesses were given free rent for two years.`\
-https://nytimes.com/2023/07/12/business/england-high-street-retail-recovery.html?searchResultPosition=9
+**‘An Act of War’: Inside America’s Silicon Blockade Against China**\
+`The Biden administration thinks it can slow China’s economic growth by cutting it off from advanced computer chips. Could the plan backfire?`\
+https://nytimes.com/2023/07/12/magazine/semiconductor-chips-us-china.html?searchResultPosition=9
 
-**Penn Station Is a Disgrace. Can a New Plan Improve It?**\
-`A private firm’s proposal for the station tries to restore some of its old romance, unlike the M.T.A. plan, our architecture critic says.`\
-https://nytimes.com/2023/07/12/nyregion/penn-station-plan-kimmelman.html?searchResultPosition=10
+**An Exiled Publisher Creates a ‘Brotherhood Across Tibetans’**\
+`Buchung Sonam co-founded a press to nurture the writing of Tibetans, helping provide through literature a sense of home for a stateless population.`\
+https://nytimes.com/2023/07/12/books/booksupdate/tibetan-literature-tibetwrites.html?searchResultPosition=10
 
