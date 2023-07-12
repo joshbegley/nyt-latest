@@ -8,7 +8,7 @@ https://nytimes.com/2023/07/12/world/middleeast/mahmoud-abbas-jenin-israel-pales
 
 **Zayn Malik Talks Life Since One Direction in His First Interview in Years**\
 `The “Pillowtalk” singer speaks candidly of his departure from the group: “We’d got sick of each other.”`\
-https://nytimes.com/2023/07/12/us/zayn-malik-one-direction-interview.html?searchResultPosition=3
+https://nytimes.com/2023/07/12/arts/music/zayn-malik-one-direction-interview.html?searchResultPosition=3
 
 **Arizona Man Cited in Conspiracy Theories Sues Fox News for Defamation**\
 `Ray Epps, a two-time Trump voter, says Tucker Carlson repeatedly and falsely named him as a covert government agent who incited the Jan. 6 attacks.`\
