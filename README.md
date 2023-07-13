@@ -7,7 +7,7 @@ https://nytimes.com/2023/07/13/briefing/hollywood-actors-strike-fda-birth-contro
 https://nytimes.com/2023/07/13/science/ula-vulcan-rocket-launch-delay.html?searchResultPosition=2
 
 **Minnie Bruce Pratt, Celebrated Poet of Lesbian Life, Dies at 76**\
-`Her collection “Crime Against Nature,” which recounts her losing custody of her children after she came out — made her a literary star, and a target of conservatives.`\
+`Her collection “Crime Against Nature,” which recounts her losing custody of her children after she came out, made her a literary star — and a target of conservatives.`\
 https://nytimes.com/2023/07/13/books/minnie-bruce-pratt-dead.html?searchResultPosition=3
 
 **Justice Dept. to Investigate Georgia Jail Where Inmate Died Covered in Lice**\
