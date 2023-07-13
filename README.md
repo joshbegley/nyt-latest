@@ -12,7 +12,7 @@ https://nytimes.com/2023/07/13/nyregion/green-wood-cemetery-public-lots.html?sea
 
 **In California, a Math Problem: Does Data Science = Algebra II?**\
 `After faculty protests and a debate over racial equity, the state’s public universities reconsider whether high school students can skip a foundational course.`\
-https://nytimes.com/2023/07/13/us/california-math-standards-data-science-algebra.html?searchResultPosition=4
+https://nytimes.com/2023/07/13/us/california-math-data-science-algebra.html?searchResultPosition=4
 
 **Guatemala’s Election Thrown Into Turmoil After Top Party Is Suspended**\
 `The move threatens the presidential bid of Bernardo Arévalo, an anticorruption candidate who made a surprisingly strong showing in the initial voting, propelling him into a runoff.`\
