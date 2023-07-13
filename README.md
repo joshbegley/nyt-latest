@@ -27,7 +27,7 @@ https://nytimes.com/2023/07/13/nyregion/new-rochelle-police-shooting-jarrell-gar
 https://nytimes.com/2023/07/13/arts/television/lola-tung-the-summer-i-turned-pretty.html?searchResultPosition=7
 
 **Secret Service Closes White House Cocaine Case Without Any Suspects**\
-`The agency said there was no surveillance video footage that provided concrete leads to identify who may have left the baggie in the White House’s guest lobby.`\
+`The agency said there was no surveillance video footage that provided concrete leads to identify who may have left the bag in the White House’s guest lobby.`\
 https://nytimes.com/2023/07/13/us/politics/cocaine-white-house.html?searchResultPosition=8
 
 **‘Final Cut’ Review: A Feeble Rise of the Living Dead**\
