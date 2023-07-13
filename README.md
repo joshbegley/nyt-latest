@@ -6,7 +6,7 @@ https://nytimes.com/video/us/100000008995596/hollywood-actors-strike.html?search
 `Kathryn A. Spletstoser, a retired U.S. Army colonel, had accused Gen. John E. Hyten of unwanted sexual advances and touching. General Hyten, who was later vice chairman of the Joint Chiefs of Staff, denied the allegations.`\
 https://nytimes.com/2023/07/13/us/air-force-general-sexual-assault-lawsuit-settlement.html?searchResultPosition=2
 
-**Carlo Vittorini, Longtime Publisher of Parade Magazine, Dies at 94**\
+**Carlo Vittorini, Publisher Who Lifted Parade Magazine, Dies at 94**\
 `He spent two decades running the business side of the popular newspaper supplement, which at one point had a circulation of nearly 40 million.`\
 https://nytimes.com/2023/07/13/business/media/carlo-vittorini-dead.html?searchResultPosition=3
 
