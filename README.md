@@ -1,6 +1,6 @@
 **The Brief, Dry Life of Burger King's All-Cheese ‘Burger’**\
 `The latest fast-food stunt to sweep the internet is the “Real Cheeseburger” from Burger King Thailand, 20 slices of American cheese on a bun with no sauce or meat.`\
-https://nytimes.com/2023/07/13/world/asia/burger-king-thailand-cheeseburger-please.html?searchResultPosition=1
+https://nytimes.com/2023/07/13/world/asia/burger-king-thailand-cheeseburger.html?searchResultPosition=1
 
 **This Florida Sinkhole Killed a Man in 2013. It’s Open for a Third Time.**\
 `No homes in Seffner, Fla., were threatened by the sinkhole, which also reopened in 2015.`\
