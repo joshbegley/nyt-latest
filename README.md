@@ -19,7 +19,7 @@ https://nytimes.com/2023/07/13/world/africa/mass-grave-darfur-sudan.html?searchR
 https://nytimes.com/2023/07/13/dining/drinks/new-french-wine-book.html?searchResultPosition=5
 
 **Gabby Douglas, a Trailblazer in Gymnastics, Announces Her Return**\
-`“Let’s do this,” the Olympian wrote alongside a picture of herself performing on the beam.`\
+`“Let’s do this,” the former Olympian wrote alongside a picture of herself performing on the beam.`\
 https://nytimes.com/2023/07/13/sports/olympics/gabby-douglas-gymnastics-comeback.html?searchResultPosition=6
 
 **A French Festival Focuses (Timidly) on English**\
