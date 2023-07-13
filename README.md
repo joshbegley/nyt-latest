@@ -8,7 +8,7 @@ https://nytimes.com/2023/07/13/sports/golf/pga-tour-liv-saudi-merger-deal.html?s
 
 **Don’t cook dinner. Assemble it.**\
 `Adult Lunchables? “Girl dinner”? Whatever you call them, these vibrant platters are delicious.`\
-https://nytimes.com/2023/07/13/dining/dont-cook-dinner-assemble-it.html?searchResultPosition=3
+https://nytimes.com/2023/07/13/dining/snack-plates-girl-dinner.html?searchResultPosition=3
 
 **New York Primary Election Results**\
 `See all results from the New York primary election.`\
