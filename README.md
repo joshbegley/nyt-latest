@@ -1,40 +1,40 @@
+**Biden Pledges Long-Term Backing for Ukraine, but a U.S. Election Looms**\
+`Citing American politics, some NATO leaders expressed concern that Washington could waver in its support if there were a shift in power.`\
+https://nytimes.com/2023/07/13/world/europe/ukraine-biden-nato-support.html?searchResultPosition=1
+
+**‘Have You Got It Yet?’ Review: A Pink Floyd Enigma Illuminated**\
+`The founding frontman of Pink Floyd, Syd Barrett was irresistibly charismatic, but this crazy diamond didn’t shine for long, as this comprehensive portrait shows.`\
+https://nytimes.com/2023/07/13/movies/have-you-got-it-yet-the-story-of-syd-barrett-and-pink-floyd-review.html?searchResultPosition=2
+
+**‘Lakota Nation vs. United States’ Review: A 150-Year Clash**\
+`In 1980, the Lakota were offered money for their stolen Black Hills land. They refused to accept the settlement and continue to fight today.`\
+https://nytimes.com/2023/07/13/movies/lakota-nation-vs-united-states-review.html?searchResultPosition=3
+
+**‘The Miracle Club’ Review: A Pleasant Pilgrimage**\
+`Set in 1967 Dublin, this mild-mannered comedy explores grief and grievances with an ensemble that includes Maggie Smith, Kathy Bates and Laura Linney.`\
+https://nytimes.com/2023/07/13/movies/the-miracle-club-review.html?searchResultPosition=4
+
+**‘Black Ice’ Review: A Troubled Hockey History**\
+`The Canadian filmmaker Hubert Davis amplifies the voices of hockey players of color and reveals the sport’s lesser-known pioneers in this smart, sensitive documentary.`\
+https://nytimes.com/2023/07/13/movies/black-ice-review.html?searchResultPosition=5
+
+**Frieze Art Fair Acquires Armory Show and Expo Chicago**\
+`Both fairs will continue to operate under their existing brands with their current teams.`\
+https://nytimes.com/2023/07/13/arts/frieze-acquires-armory-show-expo-chicago.html?searchResultPosition=6
+
+**‘Two Tickets to Greece’ Review: Advisory Travel**\
+`Former middle-school friends with clashing temperaments take an Aegean excursion in this contrived French fluff.`\
+https://nytimes.com/2023/07/13/movies/two-tickets-to-greece-review.html?searchResultPosition=7
+
+**‘Bird Box Barcelona’ Review: Blind Faith**\
+`The blindfolds are back in this companion movie to Susanne Bier’s 2018 original as a traumatized man finds horrifying purpose in mass slaughter.`\
+https://nytimes.com/2023/07/13/movies/bird-box-barcelona-review.html?searchResultPosition=8
+
+**‘Gray Matter’ Review: Unusual Abilities, the Usual Plot Possibilities**\
+`Things don’t go well when a teenage girl with mental superpowers ends up at a secret facility in this Max movie entirely devoid of suspense or character.`\
+https://nytimes.com/2023/07/13/movies/gray-matter-review.html?searchResultPosition=9
+
 **Compounding Disasters**\
 `America’s compounding natural disasters show the reality of climate change.`\
-https://nytimes.com/2023/07/13/briefing/extreme-weather.html?searchResultPosition=1
-
-**How Affirmative Action Changed Their Lives**\
-`Three Americans discuss how their prospects were shaped by the policy and what they think about a future without it.`\
-https://nytimes.com/2023/07/13/podcasts/the-daily/affirmative-action-stories.html?searchResultPosition=2
-
-**Episode 3: The Sentence**\
-`From Serial Productions. The patients watch as the nurse who caused their pain is sentenced.`\
-https://nytimes.com/2023/07/13/podcasts/serial-the-retrievals-yale-fertility-clinic.html?searchResultPosition=3
-
-**Today’s Top News: What Ukraine Got From the NATO Summit, and More**\
-`Exclusively from New York Times Audio, our new app.`\
-https://nytimes.com/2023/07/13/podcasts/headlines-nyt-audio-app.html?searchResultPosition=4
-
-**Anchor Brewing, the Oldest Craft Brewer in the U.S., Will Close After 127 Years**\
-`“The stake through the heart of Anchor was the pandemic,” a company spokesman said.`\
-https://nytimes.com/2023/07/13/dining/anchor-brewing-closing-beer.html?searchResultPosition=5
-
-**As Politicians Cry ‘Crisis,’ Some Migrants Are Finding Their Way**\
-`New York City’s leadership says housing and caring for migrants is costing billions, and “destroying” the city. But economists say their arrival will eventually be a boon.`\
-https://nytimes.com/2023/07/13/nyregion/migrants-nyc-politics.html?searchResultPosition=6
-
-**‘I Never Wanted to Be Just an Offensive Player’**\
-`Even after he returns, Aaron Judge could have his mobility limited by his toe injury all season. That would be quite a blow for a Yankee captain who takes pride in his defense and his athleticism.`\
-https://nytimes.com/2023/07/13/sports/baseball/aaron-judge-yankees-defense.html?searchResultPosition=7
-
-**How Netflix Plans Total Global Domination, One Korean Drama at a Time**\
-`As “Squid Game” showed, success with audiences around the world can come from a laser focus on local taste.`\
-https://nytimes.com/2023/07/13/business/media/netflix-korea-asia-drama.html?searchResultPosition=8
-
-**Banana Republic Wants to Outfit Your Home, Too**\
-`Responding to a volatile market for work clothes, the retailer hopes that selling home goods will help stabilize its business.`\
-https://nytimes.com/2023/07/13/business/banana-republic-home-goods-furniture.html?searchResultPosition=9
-
-**How Hubert Humphrey Tried to Make Minneapolis, and America, Less Racist**\
-`In “Into the Bright Sunshine,” Samuel G. Freedman makes the case that Humphrey was part of the vanguard in the fight for civil rights.`\
-https://nytimes.com/2023/07/13/books/review/into-the-bright-sunshine-samuel-g-freedman.html?searchResultPosition=10
+https://nytimes.com/2023/07/13/briefing/extreme-weather.html?searchResultPosition=10
 
