@@ -12,7 +12,7 @@ https://nytimes.com/2023/07/13/us/pittsburgh-synagogue-trial-gunman-death-penalt
 
 **Oil Prices Projected Higher on Supply Cuts by Saudi Arabia and Russia**\
 `Prices have been creeping higher, despite uncertainty about the strength of the global economy.`\
-https://nytimes.com/2023/07/13/business/oil-prices-projected-higher-on-supply-cuts-by-saudi-arabia-and-russia.html?searchResultPosition=4
+https://nytimes.com/2023/07/13/business/oil-prices-saudi-arabia-russia.html?searchResultPosition=4
 
 **When Spider-Man Met Jeff Koons**\
 `Our critic spots references to Hilma af Klint and Lichtenstein in “Across the Spider-Verse.” Koons, who inspired the film’s creative team, gets top billing with an animated survey (before his work is destroyed).`\
