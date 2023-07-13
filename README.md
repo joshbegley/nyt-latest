@@ -18,23 +18,23 @@ https://nytimes.com/2023/07/13/science/evelyn-m-witkin-dead.html?searchResultPos
 `Each week, we share the best of new audio journalism and storytelling.`\
 https://nytimes.com/2023/07/13/podcasts/listen-saving-elephants-in-zambia-serials-new-episode-the-sound-of-music.html?searchResultPosition=5
 
+**Biden said the U.S. is open to a prisoner swap to free Evan Gershkovich.**\
+`The president confirmed that a ‘process is underway’ during a news conference in Finland.`\
+https://nytimes.com/2023/07/13/world/europe/evan-gershkovich-prisoner-swap-biden.html?searchResultPosition=6
+
 **What the Hollywood Actors and Writers Strikes Mean for TV and Movies**\
 `After two months without new late-night TV shows, viewers are likely to notice the effects of the dual walkouts more broadly within the next couple of months unless agreements are reached quickly.`\
-https://nytimes.com/2023/07/13/business/hollywood-actors-writers-strike-tv-movies.html?searchResultPosition=6
+https://nytimes.com/2023/07/13/business/hollywood-actors-writers-strike-tv-movies.html?searchResultPosition=7
 
 **The BBC Aired Saturation Coverage of Anchor’s Behavior. Was It Too Much?**\
 `The BBC is no ordinary media outlet and its presenter is no ordinary journalist. But the network’s wall-to-wall coverage has raised questions of its own.`\
-https://nytimes.com/2023/07/13/world/europe/bbc-huw-edwards-saturation-coverage.html?searchResultPosition=7
+https://nytimes.com/2023/07/13/world/europe/bbc-huw-edwards-saturation-coverage.html?searchResultPosition=8
 
 **The Brief, Dry Life of Burger King's All-Cheese ‘Burger’**\
 `The latest fast-food stunt to sweep the internet is the “Real Cheeseburger” from Burger King Thailand, 20 slices of American cheese on a bun with no sauce or meat.`\
-https://nytimes.com/2023/07/13/world/asia/burger-king-thailand-cheeseburger.html?searchResultPosition=8
+https://nytimes.com/2023/07/13/world/asia/burger-king-thailand-cheeseburger.html?searchResultPosition=9
 
 **This Florida Sinkhole Killed a Man in 2013. It’s Open for a Third Time.**\
 `No homes in Seffner, Fla., were threatened by the sinkhole, which also reopened in 2015.`\
-https://nytimes.com/2023/07/13/us/florida-sinkhole-reopens.html?searchResultPosition=9
-
-**Flash Floods Soak Parts of Mississippi**\
-`The National Weather Service in Jackson, Miss., issued several flash-flood warnings as heavy rains drenched the state on Thursday.`\
-https://nytimes.com/2023/07/13/us/mississippi-rain-flooding-road-closures.html?searchResultPosition=10
+https://nytimes.com/2023/07/13/us/florida-sinkhole-reopens.html?searchResultPosition=10
 
