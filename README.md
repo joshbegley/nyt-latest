@@ -1,40 +1,40 @@
+**F.T.C. Opens Investigation Into ChatGPT Maker Over Technology’s Potential Harms**\
+`The agency sent OpenAI, which makes ChatGPT, a letter this week over the chatbot’s potential harms and the company’s security practices.`\
+https://nytimes.com/2023/07/13/technology/chatgpt-investigation-ftc-openai.html?searchResultPosition=1
+
 **‘The Five Demands’ Review: Occupying a College for Racial Justice**\
 `In the wake of the Supreme Court’s decision on affirmative action, a documentary recalls the occupation of City College 50 years ago.`\
-https://nytimes.com/2023/07/13/movies/the-five-demands-review.html?searchResultPosition=1
+https://nytimes.com/2023/07/13/movies/the-five-demands-review.html?searchResultPosition=2
 
 **Treasury Taps Sanctions Architect to Lead Financial Crimes Team**\
 `Andrea Gacki has played a leading role in designing sanctions that the U.S. has imposed on Russia as punishment for its invasion of Ukraine.`\
-https://nytimes.com/2023/07/13/business/treasury-andrea-gacki-financial-crimes.html?searchResultPosition=2
+https://nytimes.com/2023/07/13/business/treasury-andrea-gacki-financial-crimes.html?searchResultPosition=3
 
 **Jury in Pittsburgh Synagogue Trial Finds Gunman’s Crimes Eligible for Death Penalty**\
 `Next, in the final phase of the federal trial, jurors will weigh whether to recommend sentencing Robert Bowers to death or to life in prison.`\
-https://nytimes.com/2023/07/13/us/pittsburgh-synagogue-trial-gunman-death-penalty.html?searchResultPosition=3
+https://nytimes.com/2023/07/13/us/pittsburgh-synagogue-trial-gunman-death-penalty.html?searchResultPosition=4
 
 **Oil Prices Projected Higher on Supply Cuts by Saudi Arabia and Russia**\
 `Prices have been creeping higher, despite uncertainty about the strength of the global economy.`\
-https://nytimes.com/2023/07/13/business/oil-prices-saudi-arabia-russia.html?searchResultPosition=4
+https://nytimes.com/2023/07/13/business/oil-prices-saudi-arabia-russia.html?searchResultPosition=5
 
 **When Spider-Man Met Jeff Koons**\
 `Our critic spots references to Hilma af Klint and Lichtenstein in “Across the Spider-Verse.” Koons, who inspired the film’s creative team, gets top billing with an animated survey (before his work is destroyed).`\
-https://nytimes.com/2023/07/13/arts/design/spider-man-jeff-koons-art.html?searchResultPosition=5
+https://nytimes.com/2023/07/13/arts/design/spider-man-jeff-koons-art.html?searchResultPosition=6
 
 **Marketa Vondrousova Ends Elina Svitolina’s Wimbledon Run**\
 `Vondrousova beat Svitolina, the Ukrainian tennis star who had won the hearts of fans, in straight sets to advance to the women’s singles final.`\
-https://nytimes.com/2023/07/13/sports/tennis/wimbledon-svitolina-ukraine-vondrousova.html?searchResultPosition=6
+https://nytimes.com/2023/07/13/sports/tennis/wimbledon-svitolina-ukraine-vondrousova.html?searchResultPosition=7
 
 **Call It Dance, Puppetry or Sculpture, It Is Eerily Beautiful**\
 `Throughout the 21-minute arc of “Divine Generations,” a silent four-person ensemble pulls cords around the room, coaxing inert discs into motion.`\
-https://nytimes.com/2023/07/13/arts/design/call-it-dance-puppetry-or-sculpture-it-is-eerily-beautiful.html?searchResultPosition=7
+https://nytimes.com/2023/07/13/arts/design/call-it-dance-puppetry-or-sculpture-it-is-eerily-beautiful.html?searchResultPosition=8
 
 **Homes for Sale in Brooklyn and Manhattan**\
 `This week’s properties are in Prospect Heights, Morningside Heights and East Chelsea.`\
-https://nytimes.com/2023/07/13/realestate/housing-market-nyc.html?searchResultPosition=8
+https://nytimes.com/2023/07/13/realestate/housing-market-nyc.html?searchResultPosition=9
 
 **Homes for Sale in New York and New Jersey**\
 `This week’s properties are four-bedroom in Yonkers, N.Y., and Saddle River, N.J.`\
-https://nytimes.com/2023/07/13/realestate/housing-market-near-nyc.html?searchResultPosition=9
-
-**A Major Heat Wave Arrives in California**\
-`Triple-digit temperatures are expected this weekend, and the weather could remain hotter than normal for weeks.`\
-https://nytimes.com/2023/07/13/us/california-heat-wave.html?searchResultPosition=10
+https://nytimes.com/2023/07/13/realestate/housing-market-near-nyc.html?searchResultPosition=10
 
