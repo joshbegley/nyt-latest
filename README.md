@@ -19,7 +19,7 @@ https://nytimes.com/2023/07/14/dining/easy-vegetarian-recipes-everyday-produce.h
 https://nytimes.com/video/us/100000008996830/fran-drescher-actors-strike.html?searchResultPosition=5
 
 **What’s in a Screenshot?**\
-`Leaked text messages list the “boundaries for romantic partnership”`\
+`Leaked text messages list the “boundaries for romantic partnership.”`\
 https://nytimes.com/2023/07/14/style/whats-in-a-screenshot.html?searchResultPosition=6
 
 **Wonking Out: In Economics, a Game of Teams**\
