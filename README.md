@@ -16,7 +16,7 @@ https://nytimes.com/2023/07/14/nyregion/mayors-new-york-city.html?searchResultPo
 
 **A.I. Wrote a Housing Bill. Critics Say It’s Not Intelligent.**\
 `A Queens assemblyman used an artificial intelligence program to identify gaps in New York law. But the resulting bill’s potential impact is murky at best.`\
-https://nytimes.com/2023/07/14/nyregion/ai-wrote-a-housing-bill-critics-say-its-not-intelligent.html?searchResultPosition=5
+https://nytimes.com/2023/07/14/nyregion/ai-ny-housing-bill.html?searchResultPosition=5
 
 **Today’s Wordle Review**\
 `Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
