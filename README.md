@@ -1,6 +1,6 @@
 **Fire Kills Dozens of Animals at a Florida Rescue Center**\
 `Up to half of the 250 animals — mostly rescued exotic pets, including chinchillas, a genet and a Vietnamese potbellied pig — perished, the rescue center said.`\
-https://nytimes.com/2023/07/13/us/fire-kills-dozens-of-animals-at-a-florida-rescue-center.html?searchResultPosition=1
+https://nytimes.com/2023/07/13/us/fire-animals-killed-florida.html?searchResultPosition=1
 
 **Variety: Acrostic**\
 `David Balton and Jane Stewart give us an acrostic full of remembrance.`\
