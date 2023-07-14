@@ -16,7 +16,7 @@ https://nytimes.com/2023/07/14/podcasts/headlines-nyt-audio-app.html?searchResul
 
 **The Strangest Trees Grow in East Hampton**\
 `At the Folly Tree Arboretum, a natural museum curated by an artist with a historian’s eye, every oak, magnolia and sycamore has its own peculiar tale.`\
-https://nytimes.com/2023/07/14/style/the-strangest-trees-grow-in-east-hampton.html?searchResultPosition=5
+https://nytimes.com/2023/07/14/style/folly-tree-arboretum-east-hampton-ny.html?searchResultPosition=5
 
 **Ruined, Empty, Mined and Overgrown: Ukraine’s Forgotten Villages**\
 `Settlements along Ukraine’s eastern steppe were reduced to wreckage as the war passed through them. Now choked with weeds and with few residents, they are at risk of disappearing.`\
