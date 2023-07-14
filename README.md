@@ -8,7 +8,7 @@ https://nytimes.com/2023/07/14/world/australia/fireworks-regulations.html?search
 
 **How Clarence Thomas Came to Reject Affirmative Action**\
 `The Supreme Court justice has long been among the most ardent critics of the policy.`\
-https://nytimes.com/2023/07/14/podcasts/the-daily/how-clarence-thomas-came-to-reject-affirmative-action.html?searchResultPosition=3
+https://nytimes.com/2023/07/14/podcasts/the-daily/clarence-thomas-affirmative-action-scotus.html?searchResultPosition=3
 
 **Today’s Top News: Hollywood Actors Go on Strike, and More**\
 `Exclusively from New York Times Audio, our new app.`\
