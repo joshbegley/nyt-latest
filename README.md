@@ -1,6 +1,6 @@
 **The Case Against Rex Heuermann: Read the Document**\
 `Suffolk County, N.`\
-https://nytimes.com/interactive/2023/07/14/us/lti-bail-application-form-2023-7-14-23-final-1-redacted-1.html?searchResultPosition=1
+https://nytimes.com/interactive/2023/07/14/us/rex-heuermann-gilgo-beach-court-document.html?searchResultPosition=1
 
 **Without Hollywood, What Happens to Los Angeles?**\
 `With actors and screenwriters on strike, Hollywood is shut down for the foreseeable future. Los Angeles isn’t a pure company town, but the industry is inextricable from the city in many ways.`\
