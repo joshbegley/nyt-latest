@@ -26,7 +26,7 @@ https://nytimes.com/2023/07/14/sports/tennis/wimbledon-novak-djokovic-sinner-alc
 `The Iowa evangelical leader Bob Vander Plaats gathered Republican White House hopefuls in Des Moines, then gave Tucker Carlson the microphone.`\
 https://nytimes.com/2023/07/14/us/politics/republicans-iowa-tucker-carlson-ukraine.html?searchResultPosition=7
 
-**John Uelses, First to Pole-Vault 16 Feet, Dies at 85**\
+**John Uelses, First to Pole-Vault 16 Feet, Is Dead at 85**\
 `In an era when track and field athletes could rise to national celebrity, Uelses became a newsreel idol and made the cover of Sports Illustrated.`\
 https://nytimes.com/2023/07/14/sports/john-uelses-dead.html?searchResultPosition=8
 
