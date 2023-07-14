@@ -6,7 +6,7 @@ https://nytimes.com/2023/07/14/arts/music/notre-dame-de-paris-musical.html?searc
 `An arrest warrant for the Russian leader from the International Criminal Court has created a diplomatic quandary ahead of an August summit.`\
 https://nytimes.com/2023/07/14/world/europe/putin-russia-south-africa-brics-summit.html?searchResultPosition=2
 
-**The Year Is Half Over. Here Are the Books You’ve Missed.**\
+**The Year Is Half Over. Here Are the Books You Might Have Missed.**\
 `A look back at 2023’s buzziest titles so far.`\
 https://nytimes.com/2023/07/14/books/review/great-books-first-half-2023.html?searchResultPosition=3
 
