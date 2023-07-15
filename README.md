@@ -4,7 +4,7 @@ https://nytimes.com/2023/07/15/world/europe/poland-migrant-workers-immigration.h
 
 **Home Is Where the Horses Are for a Threatened Culture**\
 `The Appleby Horse Fair draws tens of thousands of Gypsies and Irish Travellers each year to a rural patch of England to celebrate their culture. Our photographer spent four days there.`\
-https://nytimes.com/2023/07/15/world/europe/home-is-where-the-horses-are-for-a-threatened-culture.html?searchResultPosition=2
+https://nytimes.com/2023/07/15/world/europe/appleby-horse-fair.html?searchResultPosition=2
 
 **Search for a Century-Old Shipwreck Turns Up One Even Older**\
 `Researchers and a television crew were looking for two naval ships lost in Lake Superior a century ago. Instead, they found a tugboat that mysteriously sank in 1879.`\
