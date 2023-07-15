@@ -30,7 +30,7 @@ https://nytimes.com/2023/07/15/opinion/russian-speakers-ukraine-putin.html?searc
 `Hollywood is about to get even more phony!`\
 https://nytimes.com/2023/07/15/opinion/writers-actors-strike.html?searchResultPosition=8
 
-**The Social Media Wars Are Here**\
+**How the Social Media Wars Will Change the Internet**\
 `The chaos is a sign that the industry is undergoing a major shift.`\
 https://nytimes.com/2023/07/15/opinion/social-media-threads-twitter-reddit.html?searchResultPosition=9
 
