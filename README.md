@@ -1,5 +1,5 @@
 **Marketa Vondrousova Wins Wimbledon and Her First Grand Slam Title**\
-`Vondrousova of the Czech Republic overpowered Ons Jabeur of Tunisia in the first set and never looked back, winning 6-6, 6-4.`\
+`Vondrousova of the Czech Republic overpowered Ons Jabeur of Tunisia in the first set and never looked back, winning 6-4, 6-4.`\
 https://nytimes.com/2023/07/15/sports/tennis/wimbledon-championship-jabeur-vondrousova.html?searchResultPosition=1
 
 **Melvin Wulf, Prominent Civil Liberties Lawyer, Dies at 95**\
