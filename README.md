@@ -10,8 +10,8 @@ https://nytimes.com/2023/07/15/world/middleeast/israel-reservists-resignations-j
 `Some who volunteered for the force commissioned by Gov. Ron DeSantis said the group, billed as a natural disaster relief organization, had become too militarized.`\
 https://nytimes.com/2023/07/15/us/florida-state-guard-desantis.html?searchResultPosition=3
 
-**Netanyahu Rushed to Hospital, but in ‘Good Condition,’ His Office Says**\
-`Israel’s prime minister, Benjamin Netanyahu, went to the hospital suddenly on Saturday afternoon after feeling dizzy. Mr. Netanyahu, 73, is currently facing one of the most testing phases of his political career.`\
+**Netanyahu Says He’s ‘Very Well’ After Being Rushed to Hospital**\
+`Israel’s prime minister, Benjamin Netanyahu, said he was feeling better on Saturday after feeling dizzy and rushing to the hospital. Mr. Netanyahu, 73, is currently facing one of the most testing phases of his political career.`\
 https://nytimes.com/2023/07/15/world/middleeast/netanyahu-hospital.html?searchResultPosition=4
 
 **Marketa Vondrousova Wins Wimbledon and Her First Grand Slam Title**\
