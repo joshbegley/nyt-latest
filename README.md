@@ -7,7 +7,7 @@ https://nytimes.com/2023/07/15/pageoneplus/corrections-july-15-2023.html?searchR
 https://nytimes.com/2023/07/15/pageoneplus/quotation-of-the-day-uaw-talks-quite-likely-to-be-testy.html?searchResultPosition=2
 
 **Floods and Landslides in South Korea Kill 7 and Leave 3 Missing**\
-`The deaths occurred on Friday and Saturday, the authorities said. Seven others were injured.`\
+`Seven others were injured, and the monsoon rains that swept across the country were expected to intensify.`\
 https://nytimes.com/2023/07/14/world/asia/south-korea-floods-rain.html?searchResultPosition=3
 
 **Where Spies Work**\
