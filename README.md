@@ -1,4 +1,4 @@
-**The Southwest Tries to Stay Cool Amid Record-Breaking Heat**\
+**The Southwest Braces for Record-Breaking Heat**\
 `The National Weather Service forecast 45 record-high temperatures across the country, mostly in the Southwest, ahead of the weekend.`\
 https://nytimes.com/2023/07/15/us/heat-wave-arizona-california-nevada.html?searchResultPosition=1
 
