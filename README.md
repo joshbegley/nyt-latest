@@ -1,40 +1,40 @@
+**How a Master of Japanese Ink Painting Spends Her Sundays**\
+`Koho Yamamoto studied her art in an internment camp for Japanese Americans during World War II and then opened a school. At 101, she still finds time to teach.`\
+https://nytimes.com/2023/07/15/nyregion/koho-yamamoto-sumi-e.html?searchResultPosition=1
+
+**The Gilgo Beach Victims Were Always More Than Escorts**\
+`From the beginning, the women who were found murdered were reduced to being prostitutes. More than a decade after they went missing, that seems to have changed.`\
+https://nytimes.com/2023/07/15/nyregion/gilgo-beach-serial-killer-rex-heuermann.html?searchResultPosition=2
+
+**New York Has $1.1 Billion to Fight Flooding. Will It Be Enough?**\
+`“It’s kind of like we’re patching the boat but it’s already filling up with water,” one climate researcher said.`\
+https://nytimes.com/2023/07/15/nyregion/ny-flooding-climate-change.html?searchResultPosition=3
+
+**Suspect in Gilgo Beach Killings Led a Life of Chaos and Control**\
+`Rex Heuermann was painstaking in his Manhattan professional pursuits. At home in Massapequa Park, he left neighbors discomfited.`\
+https://nytimes.com/2023/07/15/nyregion/rex-heuermann-gilgo-beach-killings.html?searchResultPosition=4
+
+**What to Watch in the 2024 Money Wars as a Big Deadline Arrives**\
+`Which presidential and Senate candidates are swimming in cash? Which ones are growing desperate? That and more will become clearer on Saturday, when campaigns must file their latest federal reports.`\
+https://nytimes.com/2023/07/15/us/politics/presidential-election-fundraising-money-2024.html?searchResultPosition=5
+
+**Carlos Alcaraz Gets a Shot at Novak Djokovic in Wimbledon Singles Final**\
+`“For Novak, it is one more day, one more moment,” Alcaraz said of Sunday’s final. “For me, it’s going to be the best moment of my life, I think.”`\
+https://nytimes.com/2023/07/15/sports/tennis/wimbledon-carlos-alcaraz-djokovic.html?searchResultPosition=6
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2023/07/15/crosswords/spelling-bee-forum.html?searchResultPosition=7
+
+**Today’s Wordle Review**\
+`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
+https://nytimes.com/2023/07/15/crosswords/wordle-review-answer-756.html?searchResultPosition=8
+
 **Corrections: July 15, 2023**\
 `Corrections that appeared in print on Saturday, July 15, 2023.`\
-https://nytimes.com/2023/07/15/pageoneplus/corrections-july-15-2023.html?searchResultPosition=1
+https://nytimes.com/2023/07/15/pageoneplus/corrections-july-15-2023.html?searchResultPosition=9
 
 **Quotation of the Day: U.A.W. Talks Quite Likely to Be Testy**\
 `Quotation of the Day for Saturday, July 15, 2023.`\
-https://nytimes.com/2023/07/15/pageoneplus/quotation-of-the-day-uaw-talks-quite-likely-to-be-testy.html?searchResultPosition=2
-
-**Floods and Landslides in South Korea Kill 7 and Leave 3 Missing**\
-`Seven others were injured, and the monsoon rains that swept across the country were expected to intensify.`\
-https://nytimes.com/2023/07/14/world/asia/south-korea-floods-rain.html?searchResultPosition=3
-
-**Where Spies Work**\
-`Jeff Chen’s themeless grid is stacked with surprises.`\
-https://nytimes.com/2023/07/14/crosswords/daily-puzzle-2023-07-15.html?searchResultPosition=4
-
-**Women React to News About an Over-the-Counter Birth Control Pill**\
-`Most potential consumers were excited by the prospect, though sticker price and safety were lingering concerns.`\
-https://nytimes.com/2023/07/14/well/live/opill-birth-control-over-the-counter.html?searchResultPosition=5
-
-**The Case Against Rex Heuermann: Read the Document**\
-`Suffolk County, N.`\
-https://nytimes.com/interactive/2023/07/14/us/rex-heuermann-gilgo-beach-court-document.html?searchResultPosition=6
-
-**Without Hollywood, What Happens to Los Angeles?**\
-`With actors and screenwriters on strike, Hollywood is shut down for the foreseeable future. Los Angeles isn’t a pure company town, but the industry is inextricable from the city in many ways.`\
-https://nytimes.com/2023/07/14/us/hollywood-los-angeles-economy.html?searchResultPosition=7
-
-**An Oasis in the Middle of a Scorching Texas Summer**\
-`Barton Springs, whose cool, natural waters have created summer memories for generations in Austin, Texas, has become an important refuge during the current heat wave.`\
-https://nytimes.com/2023/07/14/us/texas-heat-austin-barton-springs.html?searchResultPosition=8
-
-**Wagner Troops Can Keep Fighting, but Without Prigozhin, Putin Says**\
-`As Russia’s president reasserts control after a failed mutiny, he wants to sideline the Wagner leader while keeping its fighters — who have started training troops in Belarus — working for him.`\
-https://nytimes.com/2023/07/14/world/europe/putin-wagner-prigozhin-ukraine.html?searchResultPosition=9
-
-**Northwestern Fires Baseball Coach Amid Turmoil Over Culture in Athletics**\
-`Jim Foster had been the team’s head coach for a season. His firing came days after the university fired Pat Fitzgerald, its longtime football coach.`\
-https://nytimes.com/2023/07/14/sports/northwestern-baseball-coach-fired.html?searchResultPosition=10
+https://nytimes.com/2023/07/15/pageoneplus/quotation-of-the-day-uaw-talks-quite-likely-to-be-testy.html?searchResultPosition=10
 
