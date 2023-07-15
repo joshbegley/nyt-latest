@@ -6,7 +6,7 @@ https://nytimes.com/2023/07/15/world/middleeast/netanyahu-hospital.html?searchRe
 `Vondrousova of the Czech Republic overpowered Ons Jabeur of Tunisia in the first set and never looked back, winning 6-4, 6-4.`\
 https://nytimes.com/2023/07/15/sports/tennis/wimbledon-championship-jabeur-vondrousova.html?searchResultPosition=2
 
-**Melvin Wulf, Prominent Civil Liberties Lawyer, Dies at 95**\
+**Melvin Wulf, Transformative Civil Liberties Lawyer, Dies at 95**\
 `As legal director for 15 years, he made the A.C.L.U. a more aggressive organization and worked with Ruth Bader Ginsburg before she became a United States Supreme Court justice.`\
 https://nytimes.com/2023/07/15/us/melvin-wulf-dead.html?searchResultPosition=3
 
