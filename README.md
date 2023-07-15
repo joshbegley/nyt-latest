@@ -11,7 +11,7 @@ https://nytimes.com/2023/07/15/opinion/writers-actors-strike.html?searchResultPo
 https://nytimes.com/2023/07/15/opinion/social-media-threads-twitter-reddit.html?searchResultPosition=3
 
 **Amanda Gorman: In Memory of Those Still in the Water**\
-`By writing an elegy through the words of history, I hope to unearth, or unwater, the dead from beneath a mass of waves. ¶`\
+`By writing an elegy through the words of history, I hope to unearth, or unwater, the dead from beneath a mass of waves.`\
 https://nytimes.com/2023/07/15/opinion/migrant-slave-ship-disaster-poem.html?searchResultPosition=4
 
 **At the University of Chicago: Was It Free Speech, or Harassment?**\
