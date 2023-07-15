@@ -7,7 +7,7 @@ https://nytimes.com/2023/07/15/world/middleeast/israel-reservists-resignations-j
 https://nytimes.com/2023/07/15/us/florida-state-guard-desantis.html?searchResultPosition=2
 
 **Netanyahu Rushed to Hospital, but in ‘Good Condition,’ His Office Says**\
-`Israel’s prime minister, Benjamin Netanyahu, went to the hospital suddenly on Saturday afternoon. Mr. Netanyahu, 73, is currently facing one of the most testing phases of his political career.`\
+`Israel’s prime minister, Benjamin Netanyahu, went to the hospital suddenly on Saturday afternoon after feeling dizzy. Mr. Netanyahu, 73, is currently facing one of the most testing phases of his political career.`\
 https://nytimes.com/2023/07/15/world/middleeast/netanyahu-hospital.html?searchResultPosition=3
 
 **Marketa Vondrousova Wins Wimbledon and Her First Grand Slam Title**\
