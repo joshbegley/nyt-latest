@@ -20,7 +20,7 @@ https://nytimes.com/2023/07/15/opinion/do-we-have-a-right-to-beauty.html?searchR
 
 **Why Deep-Sea Mining Is the Next Battleground in the Energy Transition**\
 `Countries and companies are in a fight between those that want to excavate minerals used in electric vehicles and others that warn the cost is too high.`\
-https://nytimes.com/2023/07/15/business/dealbook/why-deep-sea-mining-is-the-next-battleground-in-the-energy-transition.html?searchResultPosition=6
+https://nytimes.com/2023/07/15/business/dealbook/deep-sea-mining-energy-transition.html?searchResultPosition=6
 
 **‘And Just Like That,’ Everyone Is Part of the 1 Percent**\
 `‘Sex and the City’ explored complications of work, money and identity that are missing from the reboot.`\
