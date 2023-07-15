@@ -3,7 +3,7 @@
 https://nytimes.com/2023/07/15/us/alabama-missing-woman.html?searchResultPosition=1
 
 **Police Capture ‘Survivalist’ Murder Suspect Who Escaped Jail**\
-`The police said that the escapee, Michael Burham, might have been hiding in the rugged wilderness near Warren, Pa., which borders a national forest.`\
+`The police said that the escapee, Michael Burham, was found in the woods on Saturday in a “worn-out” state, with his clothes dirty and wet.`\
 https://nytimes.com/2023/07/15/us/michael-burham-prison-escape-caught-pennsylvania.html?searchResultPosition=2
 
 **The Game Is Afoot**\
