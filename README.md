@@ -1,5 +1,5 @@
 **4 Dead and Gunman at Large in Georgia Shooting, Police Say**\
-`The police said there were four different crime scenes in Hampton, Ga., outside of Atlanta. The gunman’s connections to the victims and motive were unknown.`\
+`The police said there were four different crime scenes in Hampton, Ga., south of Atlanta. The gunman’s connections to the victims and motive were unknown.`\
 https://nytimes.com/2023/07/15/us/georgia-shooting-henry-county.html?searchResultPosition=1
 
 **Marga Minco, Who Chronicled Jewish Life in Wartime, Dies at 103**\
