@@ -34,7 +34,7 @@ https://nytimes.com/2023/07/15/us/shipwrecks-lake-superior.html?searchResultPosi
 `The stars of the Food Network help a teenage patient make it through the long days in the hospital with no solid food.`\
 https://nytimes.com/2023/07/15/style/crohns-disease-food-network.html?searchResultPosition=9
 
-**Do We Have a Right to Beauty?**\
+**In Brazil, Beauty Is a Right. Are They On To Something?**\
 `Brazil’s unique plastic surgery subsidies represent the country’s view that beauty is a form of self-care.`\
 https://nytimes.com/2023/07/15/opinion/do-we-have-a-right-to-beauty.html?searchResultPosition=10
 
