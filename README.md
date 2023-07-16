@@ -6,8 +6,8 @@ https://nytimes.com/interactive/2023/07/16/magazine/joyce-carol-oates-interview.
 `She was making her name in New York journalism in the footsteps of her famous father and becoming an outspoken feminist when she met an Indian guru.`\
 https://nytimes.com/2023/07/16/business/media/sally-kempton-dead.html?searchResultPosition=2
 
-**Four Dead in Flash Flooding in Pennsylvania**\
-`Sudden, torrential rains struck the area of Bucks County, trapping people in their cars. Three people remained missing.`\
+**Four Dead in Flash Flooding in Philadelphia Suburbs**\
+`Sudden, torrential rains struck the area of Bucks County, Pa., trapping people in their cars. Three people remained missing.`\
 https://nytimes.com/2023/07/16/us/pennsylvania-flooding-family.html?searchResultPosition=3
 
 **Jane Birkin, Singer, Actress and Fashion Inspiration, Dies at 76**\
