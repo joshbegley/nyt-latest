@@ -18,7 +18,7 @@ https://nytimes.com/2023/07/15/pageoneplus/corrections-july-16-2023.html?searchR
 `Quotation of the Day for Sunday, July 16, 2023.`\
 https://nytimes.com/2023/07/15/pageoneplus/quotation-of-the-day-two-sports-connected-by-squabbling.html?searchResultPosition=5
 
-**DeSantis Burns Cash, and Pence Struggles: 4 Takeaways From 2024 Filings**\
+**DeSantis Burns Cash, and Pence Struggles: 5 Takeaways From 2024 Filings**\
 `Warning signs for Ron DeSantis were among the biggest developments of the latest campaign filings, which created a fuller financial picture of the 2024 field.`\
 https://nytimes.com/2023/07/15/us/politics/desantis-pence-trump-fundraising.html?searchResultPosition=6
 
