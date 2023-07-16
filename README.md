@@ -34,7 +34,7 @@ https://nytimes.com/2023/07/15/pageoneplus/quotation-of-the-day-two-sports-conne
 `Warning signs for Ron DeSantis were among the biggest developments of the latest campaign filings, which created a fuller financial picture of the 2024 field.`\
 https://nytimes.com/2023/07/15/us/politics/desantis-pence-trump-fundraising.html?searchResultPosition=9
 
-**Alabama Woman Missing After Stopping to Help a Child on a Highway**\
-`Carlee Russell told a 911 dispatcher on Thursday night that there was a toddler walking along the side of an interstate, the police said. She has not been seen since.`\
+**Alabama Woman Who Went Missing After Claiming to Help a Child on a Highway Is Found**\
+`Carlee Russell told a 911 dispatcher on Thursday night that there was a toddler walking along the side of an interstate, the police said. She was not seen again until late Saturday.`\
 https://nytimes.com/2023/07/15/us/alabama-missing-woman.html?searchResultPosition=10
 
