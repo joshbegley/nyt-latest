@@ -7,7 +7,7 @@ https://nytimes.com/2023/07/16/briefing/remembering-the-dead.html?searchResultPo
 https://nytimes.com/2023/07/16/world/europe/black-sea-grain-deal-deadline-looms.html?searchResultPosition=2
 
 **America Must Rebuild Itself. The Question Is How.**\
-`The Question Is How.`\
+`The question is how.`\
 https://nytimes.com/2023/07/16/opinion/climate-change-biden-building-investment.html?searchResultPosition=3
 
 **Biden Is Beating China on Chips. It May Not Be Enough.**\
