@@ -18,8 +18,8 @@ https://nytimes.com/2023/07/16/opinion/letters/chronic-illness.html?searchResult
 `Fans are saying goodbye, again, to the band that was once the Grateful Dead.`\
 https://nytimes.com/2023/07/16/briefing/remembering-the-dead.html?searchResultPosition=5
 
-**Black Sea Grain Deal Hangs On 11th-Hour Talks, Again**\
-`Russia has repeatedly threatened to pull out of the wartime export agreement, which has helped stabilize global grain prices and avert famines. The latest deadline to renew it is midnight Monday.`\
+**Black Sea Grain Deal Hangs on 11th-Hour Talks, Again**\
+`Russia has repeatedly threatened to pull out of the wartime export agreement, which has helped stabilize global grain prices and avert famines. The latest deadline to renew it is Monday.`\
 https://nytimes.com/2023/07/16/world/europe/black-sea-grain-deal-deadline-looms.html?searchResultPosition=6
 
 **Two Theories of What I’m Getting Wrong**\
