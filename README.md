@@ -4,7 +4,7 @@ https://nytimes.com/2023/07/16/sports/soccer/womens-world-cup-vietnam-uswnt.html
 
 **‘Mission: Impossible’ for Tom Cruise: Meeting Hollywood Expectations**\
 `The seventh film in the 27-year-old movie franchise was No. 1 at the box office, taking in $80 million over its first five days. But the movie industry was hoping for more.`\
-https://nytimes.com/2023/07/16/business/mission-impossible-tom-cruise-box-office.html?searchResultPosition=2
+https://nytimes.com/2023/07/16/business/media/mission-impossible-tom-cruise-box-office.html?searchResultPosition=2
 
 **How Julie Ertz Got Her Game Back**\
 `Ertz, a two-time World Cup winner, knew she had to hustle to return to the national team after having a baby. A boys’ team offered a helping hand.`\
