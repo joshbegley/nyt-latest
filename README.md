@@ -15,7 +15,7 @@ https://nytimes.com/interactive/2023/07/16/magazine/joyce-carol-oates-interview.
 https://nytimes.com/2023/07/16/business/media/sally-kempton-dead.html?searchResultPosition=4
 
 **Four Dead in Flash Flooding in Philadelphia Suburbs**\
-`Sudden, torrential rains struck the area of Bucks County, Pa., trapping people in their cars. Three people remained missing.`\
+`Sudden, torrential rains struck areas within Bucks County, Pa., trapping people in their cars. Three people remained missing.`\
 https://nytimes.com/2023/07/16/us/pennsylvania-flooding-family.html?searchResultPosition=5
 
 **Jane Birkin, Singer, Actress and Fashion Inspiration, Dies at 76**\
