@@ -1,4 +1,4 @@
-**DeSantis Cuts Staff in Campaign Shake-Up**\
+**DeSantis Sheds Staff Amid Heavy Spending**\
 `The dismissals come as his campaign for the Republican nomination for president struggles to gain traction against former President Donald J. Trump, who is leading in polls.`\
 https://nytimes.com/2023/07/16/us/politics/desantis-staff-campaign-shakeup.html?searchResultPosition=1
 
