@@ -1,5 +1,5 @@
 **Robert F. Kennedy Jr.’s Covid Remarks Raise Questions of Antisemitism**\
-`The long-shot candidate for the Democratic presidential nomination has a history of conspiracy theories. His latest comments claimed the virus spared certain ethnic and religious groups.`\
+`The long-shot candidate for the Democratic presidential nomination has a history of embracing conspiracy theories. His latest comments claimed the virus spared certain ethnic and religious groups.`\
 https://nytimes.com/2023/07/15/us/politics/rfk-jr-covid-remarks.html?searchResultPosition=1
 
 **Corrections: July 16, 2023**\
