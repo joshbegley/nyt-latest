@@ -26,7 +26,7 @@ https://nytimes.com/2023/07/16/opinion/biden-china-ai-chips-trade.html?searchRes
 `The powerful moral message of FX’s hit show.`\
 https://nytimes.com/2023/07/16/opinion/the-bear-fx.html?searchResultPosition=7
 
-**My Brave, Brilliant Friend Has Been Kidnapped in Iraq. Who Will Help Her?**\
+**My Brave, Brilliant Friend Was Kidnapped in Iraq. Will the World Stand Up for Her?**\
 `Elizabeth Tsurkov, the Russian-Israeli researcher who has been kidnapped in Iraq, took risks in pursuit of knowledge, understanding and doing what she felt was right.`\
 https://nytimes.com/2023/07/16/opinion/elizabeth-tsurkov-kidnapping-iraq.html?searchResultPosition=8
 
