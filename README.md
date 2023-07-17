@@ -3,7 +3,7 @@
 https://nytimes.com/2023/07/17/us/georgia-supreme-court-trump-investigation.html?searchResultPosition=1
 
 **Beverly Moss Spatt, Protector of Landmarks in New York, Dies at 99**\
-`Grand Central Terminal. Grand Army Plaza. The Queensboro Bridge. They, and more, were preserved as historic treasures under her fierce watch at a landmarks commission.`\
+`Grand Central Terminal. Grand Army Plaza. The Queensboro Bridge. They, and more, were preserved as historic treasures under her fierce watch at the city’s landmarks commission.`\
 https://nytimes.com/2023/07/17/nyregion/beverly-moss-spatt-dead.html?searchResultPosition=2
 
 **DeSantis, Attacking Biden Policies, Seeks to Burnish Pro-Israel Credentials**\
