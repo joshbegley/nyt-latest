@@ -28,7 +28,7 @@ https://nytimes.com/2023/07/17/realestate/book-store-apartment-rent-brooklyn.htm
 
 **The Gilgo Beach Serial-Killing Case: What We Know**\
 `A Long Island architect has been charged with killing three women. The victims were among 10 people whose remains were found along a stretch of beach on Long Island.`\
-https://nytimes.com/2023/07/17/nyregion/gilgo-beach-serial-killing-heuermann.html?searchResultPosition=8
+https://nytimes.com/article/gilgo-beach-serial-killing-heuermann.html?searchResultPosition=8
 
 **One Reason China Is Willing to Engage Again: Its Troubled Economy**\
 `China was on track to recover after closing itself off during the pandemic. Now the country’s growth is staggering and Beijing is signaling it is open to talking.`\
