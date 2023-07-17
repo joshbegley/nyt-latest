@@ -2,7 +2,7 @@
 `In “The Country of the Blind,” Andrew Leland explores the history, the culture and the experiences of blind people`\
 https://nytimes.com/2023/07/17/books/booksupdate/country-blind-andrew-leland.html?searchResultPosition=1
 
-**Iran Steps Up Policing of Women Who Violate Strict Dress Code**\
+**Iran Steps Up Policing of Women Who Defy Strict Dress Code**\
 `The country’s morality police disappeared from the streets late last year as the authorities tried to calm anti-government protests. Now, patrols are once again watching for violators.`\
 https://nytimes.com/2023/07/17/world/middleeast/iran-women-protests-hijab.html?searchResultPosition=2
 
