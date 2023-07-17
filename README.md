@@ -1,40 +1,40 @@
-**Word of the Day: glyph**\
-`This word has appeared in six articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/07/17/learning/word-of-the-day-glyph.html?searchResultPosition=1
+**After Arrest in Serial Killings, a Profile Looks Prescient**\
+`In several ways, Rex Heuermann, the suspect in the Gilgo Beach killings, fits a profile that criminologists assembled more than a decade ago.`\
+https://nytimes.com/2023/07/17/nyregion/after-arrest-in-serial-killings-a-profile-looks-prescient.html?searchResultPosition=1
 
-**Traffic Stoppage on Vital Russian Bridge in Crimea Suggests Attack by Ukraine**\
-`Russian military bloggers reported that Ukraine had attacked the Kerch Strait Bridge, although Russian and allied authorities in Crimea only described the episode as an “emergency.”`\
-https://nytimes.com/2023/07/17/world/europe/crimea-kerch-bridge-attack.html?searchResultPosition=2
+**A Long, Shining River of Verse, Flowing From a Rower and Writer**\
+`Spend a day on the water with Wang Ping and you will discover a source of her poetry.`\
+https://nytimes.com/2023/07/17/sports/poet-rower-wang-ping.html?searchResultPosition=2
 
-**What’s on TV This Week: ‘Below Deck’ and FIFA Women’s World Cup**\
-`One “Below Deck” spinoff wraps up its season, as another begins on Bravo. And Fox begins coverage of the women’s soccer championship.`\
-https://nytimes.com/2023/07/17/arts/television/whats-on-tv-this-week-below-deck-and-fifa-womens-world-cup.html?searchResultPosition=3
+**The Contenders**\
+`As the Women’s World Cup has expanded, so, too, has the group of nations with the firm belief that they can win it.`\
+https://nytimes.com/2023/07/17/sports/soccer/womens-world-cup-favorites.html?searchResultPosition=3
 
-**Lionel Messi Gives M.L.S. First Taste of the Weight of His Star**\
-`One day after Messi’s contract with Inter Miami became official, the club presented him to fans in a rain-soaked stadium and on the league’s streaming platform.`\
-https://nytimes.com/2023/07/17/sports/soccer/lionel-messi-inter-miami-introduction.html?searchResultPosition=4
+**At N.Y.C. Police Union, Will the New Boss Be a Lot Like the Old Boss?**\
+`Patrick Hendry, a reserved, behind-the-scenes power, is succeeding fiery Patrick Lynch, who ran the Police Benevolent Association at top volume.`\
+https://nytimes.com/2023/07/17/nyregion/patrick-hendry-nyc-police-union.html?searchResultPosition=4
 
-**Your Monday Briefing**\
-`Britain’s troubled health service.`\
-https://nytimes.com/2023/07/17/world/europe/nhs-britain-demographics-change.html?searchResultPosition=5
+**Riots in France Highlight a Vicious Cycle Between Police and Minorities**\
+`Calls to overhaul the police go back decades. But violent episodes of police enforcement continue. So do violent outpourings on the street.`\
+https://nytimes.com/2023/07/17/world/europe/france-riots-police-poor.html?searchResultPosition=5
 
-**Quotation of the Day: After 75 Years, Health Service in U.K. Teeters**\
-`Quotation of the Day for Monday, July 17, 2023.`\
-https://nytimes.com/2023/07/17/pageoneplus/quotation-of-the-day-after-75-years-health-service-in-uk-teeters.html?searchResultPosition=6
+**Trump and Allies Forge Plans to Increase Presidential Power in 2025**\
+`The former president and his backers aim to strengthen the power of the White House and limit the independence of federal agencies.`\
+https://nytimes.com/2023/07/17/us/politics/trump-plans-2025.html?searchResultPosition=6
 
-**No Corrections: July 17, 2023**\
-`No corrections appeared in print on Monday, July 17, 2023.`\
-https://nytimes.com/2023/07/17/pageoneplus/corrections-july-17-2023.html?searchResultPosition=7
+**Labor Day Looms as Crisis Point in Hollywood Stalemate**\
+`Ongoing strikes could disrupt the entertainment industry in fundamental ways, putting the 2024 box office and the fall broadcast lineup in jeopardy.`\
+https://nytimes.com/2023/07/17/business/media/hollywood-actors-writers-strikes.html?searchResultPosition=7
 
-**Tim Baltz on How B.J. Grabbed a Win in ‘The Righteous Gemstones’**\
-`Sunday’s episode was a test for Baltz’s character, but B.J. seized the moment. Still, his victory came at a price.`\
-https://nytimes.com/2023/07/16/arts/television/tim-baltz-the-righteous-gemstones-naked-fight-scene.html?searchResultPosition=8
+**Is the Future of Twitter Hanging by Threads?**\
+`Ryan Mac, a New York Times technology reporter, discussed Twitter’s latest competitor and what it was like to be blocked from the platform he covered.`\
+https://nytimes.com/2023/07/17/insider/is-the-future-of-twitter-hanging-by-threads.html?searchResultPosition=8
 
-**China’s Rebound Falters, Tripped Up by Debt and Weak Exports**\
-`Government data shows gross domestic product growth slowed in the second quarter from earlier in the year, even though it rose over the same period in 2022.`\
-https://nytimes.com/2023/07/16/business/economy/china-gdp-q2.html?searchResultPosition=9
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2023/07/17/crosswords/spelling-bee-forum.html?searchResultPosition=9
 
-**A Pro-Trump Crowd, Sensing Disloyalty, Drowns Out Dissent**\
-`A day after former President Donald J. Trump headlined the Turning Point conference in Florida, two of his Republican opponents were booed and heckled at the same event.`\
-https://nytimes.com/2023/07/16/us/politics/trump-turning-point-conference.html?searchResultPosition=10
+**Today’s Wordle Review**\
+`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
+https://nytimes.com/2023/07/17/crosswords/wordle-review-answer-758.html?searchResultPosition=10
 
