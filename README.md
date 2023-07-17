@@ -34,7 +34,7 @@ https://nytimes.com/2023/07/17/arts/music/harriet-goldberg-hold-music-song.html?
 `Entries for the week of July 10, 2023.`\
 https://nytimes.com/2023/07/17/crosswords/spelling-bee-diary.html?searchResultPosition=9
 
-**China’s Economy is Stuttering, Posing a Challenge for Global Growth**\
+**China’s Economy Is Stuttering, Posing a Challenge for Global Growth**\
 `New data published on Monday shows a post-pandemic recovery has not materialized after restrictions were lifted last year.`\
 https://nytimes.com/2023/07/17/business/china-economy-slowdown-global-growth.html?searchResultPosition=10
 
