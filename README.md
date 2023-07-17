@@ -1,9 +1,13 @@
+**More Than 50 Whales Die After Being Stranded in Scotland**\
+`Only one pilot whale survived out of the 55 beached on the Isle of Lewis in northwest Scotland on Sunday. It was the largest mass stranding in the region in over a decade.`\
+https://nytimes.com/2023/07/17/world/europe/pilot-whales-stranding-scotland.html?searchResultPosition=1
+
 **Russia Stops Ukraine Grain Deal, Shaking World Food Markets**\
 `Moscow, which has repeatedly complained that the U.N.-brokered agreement is one-sided in Ukraine’s favor, said it could return to the deal if its demands were met.`\
-https://nytimes.com/2023/07/17/world/europe/ukraine-grain-deal-russia-war.html?searchResultPosition=1
+https://nytimes.com/2023/07/17/world/europe/ukraine-grain-deal-russia-war.html?searchResultPosition=2
 
 **Your Tuesday Briefing: China Engages as Its Economy Sputters**\
 `Also, an attack on a bridge between Russia and Crimea.`\
-https://nytimes.com/2023/07/17/world/china-economy-climate-crimea-netanyahu.html?searchResultPosition=2
+https://nytimes.com/2023/07/17/world/china-economy-climate-crimea-netanyahu.html?searchResultPosition=3
 
 **An Art-Filled Swiss Journey**\
