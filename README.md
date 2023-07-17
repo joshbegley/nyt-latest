@@ -8,7 +8,7 @@ https://nytimes.com/2023/07/17/business/wheat-prices-russia-ukraine-grain-deal.h
 
 **Ford Slashes Price of Electric F-150 as Demand Weakens**\
 `Sales of electric vehicles have slowed recently partly because prices of some models like the F-150 Lightning had risen a lot.`\
-https://nytimes.com/2023/07/17/business/electric-vehicle-prices-ford-f150-lightning.html?searchResultPosition=3
+https://nytimes.com/2023/07/17/business/ford-f150-lightning-electric-vehicle-prices.html?searchResultPosition=3
 
 **Taylor Swift Now Has More No. 1 Albums Than Any Woman in History**\
 `The pop superstar’s “Speak Now (Taylor’s Version)” debuts at No. 1 this week as the year’s biggest new album, and three of her other titles also made the Top 10.`\
