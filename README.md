@@ -15,7 +15,7 @@ https://nytimes.com/2023/07/17/movies/oppenheimer-imax-christopher-nolan.html?se
 https://nytimes.com/2023/07/17/arts/design/chisholm-monument-sculpture-approved.html?searchResultPosition=4
 
 **Former N.Y.C. Buildings Chief Expected to Face Bribery-Related Charges**\
-`Eric Ulrich, who was the commissioner of New York City’s Buildings Department, resigned in May amid an investigation by the Manhattan district attorney’s office.`\
+`Eric Ulrich, who was the commissioner of New York City’s Buildings Department, resigned in November amid an investigation by the Manhattan district attorney’s office.`\
 https://nytimes.com/2023/07/17/nyregion/former-new-york-city-buildings-chief-bribery.html?searchResultPosition=5
 
 **Mystery Object Is Found on Remote Beach in Western Australia**\
