@@ -1,10 +1,10 @@
-**No Corrections: July 17, 2023**\
-`No corrections appeared in print on Monday, July 17, 2023.`\
-https://nytimes.com/2023/07/17/pageoneplus/corrections-july-17-2023.html?searchResultPosition=1
-
 **Quotation of the Day: After 75 Years, Health Service in U.K. Teeters**\
 `Quotation of the Day for Monday, July 17, 2023.`\
-https://nytimes.com/2023/07/17/pageoneplus/quotation-of-the-day-after-75-years-health-service-in-uk-teeters.html?searchResultPosition=2
+https://nytimes.com/2023/07/17/pageoneplus/quotation-of-the-day-after-75-years-health-service-in-uk-teeters.html?searchResultPosition=1
+
+**No Corrections: July 17, 2023**\
+`No corrections appeared in print on Monday, July 17, 2023.`\
+https://nytimes.com/2023/07/17/pageoneplus/corrections-july-17-2023.html?searchResultPosition=2
 
 **Tim Baltz on How B.J. Grabbed a Win in ‘The Righteous Gemstones’**\
 `Sunday’s episode was a test for Baltz’s character, but B.J. seized the moment. Still, his victory came at a price.`\
