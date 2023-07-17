@@ -7,7 +7,7 @@ https://nytimes.com/2023/07/17/dining/personal-chef-beyonce-lizzo-tour.html?sear
 https://nytimes.com/2023/07/17/arts/television/justified-city-primeval-review.html?searchResultPosition=2
 
 **Jerome Powell’s Prized Labor Market Is Back. Can He Keep It?**\
-`The Federal Reserve chair spent the early pandemic bemoaning the loss a strong job market. It roared back — and now its fate is in his hands.`\
+`The Federal Reserve chair spent the early pandemic bemoaning the loss of a strong job market. It roared back — and now its fate is in his hands.`\
 https://nytimes.com/2023/07/17/business/economy/jerome-powell-job-market-employment.html?searchResultPosition=3
 
 **Do Legacy Admissions Also Benefit the Less Elite?**\
