@@ -1,5 +1,5 @@
-**Harry G. Frankfurt, Philosopher Who Explored Will and Deceit, Dies at 94**\
-`He became a publishing success with a bluntly titled essay, and later a best-selling book, that concluded that one particular strain of dishonesty was worse than lying.`\
+**Harry G. Frankfurt, Philosopher With a Surprise Best Seller, Dies at 94**\
+`He spent his career exploring will and deceit. Then came a sudden success: a bluntly titled book that found that one strain of dishonesty with a barnyard name was worse than lying.`\
 https://nytimes.com/2023/07/17/books/harry-g-frankfurt-dead.html?searchResultPosition=1
 
 **Israeli President’s White House Visit Highlights Biden’s Anger at Netanyahu**\
