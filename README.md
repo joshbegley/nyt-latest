@@ -1,5 +1,5 @@
 **Former N.Y.C. Buildings Chief Expected to Face Bribery-Related Charges**\
-`Eric Ulrich, who was the commissioner of New York City’s buildings department, resigned in May amid an investigation by the Manhattan district attorney’s office.`\
+`Eric Ulrich, who was the commissioner of New York City’s Buildings Department, resigned in May amid an investigation by the Manhattan district attorney’s office.`\
 https://nytimes.com/2023/07/17/nyregion/former-new-york-city-buildings-chief-bribery.html?searchResultPosition=1
 
 **Mystery Object Is Found on Remote Beach in Western Australia**\
