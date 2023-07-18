@@ -4,7 +4,7 @@ https://nytimes.com/2023/07/18/business/gucci-ceo-leaves-kering.html?searchResul
 
 **Las Vegas Police Search Home in Investigation of Tupac Shakur’s Murder**\
 `Nearly three decades after the rapper was killed in a drive-by shooting after leaving a boxing match, the police said that they had searched a home in Henderson, Nev.`\
-https://nytimes.com/2023/07/18/arts/tupac-shakur-investigation.html?searchResultPosition=2
+https://nytimes.com/2023/07/18/arts/music/tupac-shakur-investigation.html?searchResultPosition=2
 
 **Your Wednesday Briefing: Another Trump Indictment May Loom**\
 `Also, North Korea arrests a U.S. soldier and our reporter in Bangkok explains the power struggle in Thailand.`\
