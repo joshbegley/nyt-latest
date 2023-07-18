@@ -1,5 +1,5 @@
 **Michigan Charges 16 in False Elector Scheme to Overturn Trump’s 2020 Loss**\
-`Among those facing felony charges was Meshawn Maddock, a Trump ally and the co-chair of the Michigan Republican Party at the time.`\
+`Among those facing felony charges was Meshawn Maddock, a Trump ally and a former co-chair of the Michigan Republican Party at the time.`\
 https://nytimes.com/2023/07/18/us/politics/michigan-attorney-general-charges-false-electors.html?searchResultPosition=1
 
 **Sailor and His Dog Survive Three Months Lost at Sea**\
