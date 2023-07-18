@@ -1,40 +1,40 @@
+**Trump Says He’s a Target in Special Counsel’s Investigation Into Jan. 6**\
+`It would be the second time the special counsel has notified the former president that he is likely to face indictment, this time in connection with the criminal investigation into the events leading up to the Capitol attack.`\
+https://nytimes.com/2023/07/18/us/politics/trump-jan-6-letter.html?searchResultPosition=1
+
 **The Economic Fallout From Extreme Heat Will Rise Over Time**\
 `Among the costs of very high temperatures: reduced labor productivity, damaged crops, higher mortality rates, trade disruption and dampened investment.`\
-https://nytimes.com/2023/07/18/business/extreme-heat-economy.html?searchResultPosition=1
+https://nytimes.com/2023/07/18/business/extreme-heat-economy.html?searchResultPosition=2
 
 **As Heat Waves Descend on Europe, So Do Tourists**\
 `Soaring temperatures have gripped the continent during one of its most popular travel seasons.`\
-https://nytimes.com/2023/07/18/world/europe/europe-heat-wave-tourists-travel.html?searchResultPosition=2
+https://nytimes.com/2023/07/18/world/europe/europe-heat-wave-tourists-travel.html?searchResultPosition=3
 
 **Palm Springs Is Heating Up, and Only Getting Hotter**\
 `California’s desert getaway is expected to face its highest temperatures of the summer later this week.`\
-https://nytimes.com/2023/07/18/us/palm-springs-heat-wave.html?searchResultPosition=3
+https://nytimes.com/2023/07/18/us/palm-springs-heat-wave.html?searchResultPosition=4
 
 **Artistic Director of HERE to Depart After 30 Years**\
 `“I’m not retiring,” Kristin Marting said about her decision to leave the cross-genre avant-garde company next June.`\
-https://nytimes.com/2023/07/18/theater/kristin-marting-here-artistic-director.html?searchResultPosition=4
+https://nytimes.com/2023/07/18/theater/kristin-marting-here-artistic-director.html?searchResultPosition=5
 
 **Residents flee Greek seaside villages as the dry, hot days leave them vulnerable to wildfires.**\
 `Thousands of acres have burned, leaving residents and firefighters scrambling.`\
-https://nytimes.com/2023/07/18/world/europe/greece-fires-residents.html?searchResultPosition=5
+https://nytimes.com/2023/07/18/world/europe/greece-fires-residents.html?searchResultPosition=6
 
 **Wildfires Near Greek Capital Force Residents to Flee**\
 `Thousands of people evacuated as multiple wildfires burned near Athens.`\
-https://nytimes.com/video/world/europe/100000009000727/greece-wildfires-europe.html?searchResultPosition=6
+https://nytimes.com/video/world/europe/100000009000727/greece-wildfires-europe.html?searchResultPosition=7
 
 **Bank of America Reports Big Profit Jump on Higher Interest Rates**\
 `One of the nation’s largest banks reported across-the-board strength in its latest quarter, with sales and earnings that surpassed analysts’ expectations.`\
-https://nytimes.com/2023/07/18/business/bank-of-america-earnings.html?searchResultPosition=7
+https://nytimes.com/2023/07/18/business/bank-of-america-earnings.html?searchResultPosition=8
 
 **Moscow Warns Ukraine Against Shipping Grain Across the Black Sea Without Its Consent**\
 `The Kremlin’s comments came after Ukraine’s leader called for the shipments to continue despite Russia’s withdrawal from a landmark grain deal.`\
-https://nytimes.com/2023/07/18/world/europe/moscow-ukraine-grain-black-sea.html?searchResultPosition=8
+https://nytimes.com/2023/07/18/world/europe/moscow-ukraine-grain-black-sea.html?searchResultPosition=9
 
 **BlackRock Forges a New Bond With Big Oil**\
 `The financial giant, which has embraced including climate concerns in investment decisions, named the chief executive of Saudi Aramco to its board.`\
-https://nytimes.com/2023/07/18/business/dealbook/blackrock-aramco-nasser-board.html?searchResultPosition=9
-
-**U.S. Nuclear-Capable Sub Visits South Korea for First Time in Decades**\
-`The submarine made a port call as part of Washington’s effort to show its commitment to defending its East Asian ally.`\
-https://nytimes.com/2023/07/18/world/asia/south-korea-us-nuclear-submarine.html?searchResultPosition=10
+https://nytimes.com/2023/07/18/business/dealbook/blackrock-aramco-nasser-board.html?searchResultPosition=10
 
