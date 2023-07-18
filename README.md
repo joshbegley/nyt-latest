@@ -11,7 +11,7 @@ https://nytimes.com/2023/07/18/briefing/donald-trump-target-letter-heat-wave.htm
 https://nytimes.com/2023/07/18/us/in-n-out-doctors-note-employees-masks.html?searchResultPosition=3
 
 **U.S. Blacklists Two Spyware Firms Run by an Israeli Former General**\
-`The moves by the Commerce Department against the Europe-based firms is the latest effort to rein in a spyware industry that has spiraled out of control in recent years.`\
+`The moves by the Commerce Department against the Europe-based firms are the latest effort to rein in a spyware industry that has spiraled out of control in recent years.`\
 https://nytimes.com/2023/07/18/us/politics/spyware-blacklist-israel-us.html?searchResultPosition=4
 
 **Gucci C.E.O. to Exit Amid Leadership Shake-Up at Kering**\
