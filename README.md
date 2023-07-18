@@ -3,7 +3,7 @@
 https://nytimes.com/2023/07/18/world/asia/south-korea-us-nuclear-submarine.html?searchResultPosition=1
 
 **North Korea Detains U.S. Citizen After Unauthorized Border Crossing**\
-`The man is the first known American to be held in North Korean custody since Otto F. Warmbier, the student who was arrested in Pyongyang in 2016.`\
+`The man is the first known American to be held in North Korean custody since​ Bruce Byron Lowrance​ was detained for a month after illegally entering the country from China in 2018.​`\
 https://nytimes.com/2023/07/18/world/asia/north-korea-detained-american.html?searchResultPosition=2
 
 **Can a Poem Be Too Short? It Depends on the Poem, and the Reader.**\
