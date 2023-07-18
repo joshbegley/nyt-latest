@@ -26,7 +26,7 @@ https://nytimes.com/2023/07/18/world/europe/greece-fires-residents.html?searchRe
 `Thousands of people evacuated as multiple wildfires burned near Athens.`\
 https://nytimes.com/video/world/europe/100000009000727/greece-wildfires-europe.html?searchResultPosition=7
 
-**Bank of America Reports Big Profit Jump on Higher Interest Rates**\
+**Bank of America Reports Profit Jump on Higher Interest Rates**\
 `One of the nation’s largest banks reported across-the-board strength in its latest quarter, with sales and earnings that surpassed analysts’ expectations.`\
 https://nytimes.com/2023/07/18/business/bank-of-america-earnings.html?searchResultPosition=8
 
