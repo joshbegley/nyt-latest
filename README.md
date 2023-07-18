@@ -1,4 +1,4 @@
-**Trump Says He’s Target in Special Counsel’s Investigation Into Jan. 6**\
+**The letter is a sign that he is likely to be indicted in the case.**\
 `It would be the second time the special counsel has notified the former president that he is likely to face indictment, this time in connection with the criminal investigation into the events leading up to the Capitol attack.`\
 https://nytimes.com/live/2023/07/18/us/trump-jan-6-letter/trump-jan-6-letter?searchResultPosition=1
 
