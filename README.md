@@ -1,40 +1,40 @@
-**Protesters Rally Across Israel in New Push Against Legal Overhaul**\
-`Thousands of Israelis blocked roads and demonstrated over Benjamin Netanyahu’s plans to limit the power of the judiciary.`\
-https://nytimes.com/2023/07/18/world/middleeast/israel-protests-judicial-overhaul.html?searchResultPosition=1
+**Zucchini to Go at Gwyneth Paltrow’s Home and 125 Years of the Parrish Museum**\
+`On Saturday night in the Hamptons, Goop and Gucci held an intimate dinner, while the art museum hosted a gala.`\
+https://nytimes.com/2023/07/18/style/gwyneth-paltrow-goop-gucci-party-parrish-gala.html?searchResultPosition=1
 
-**What Is War to a Grieving Child?**\
-`Every day, Ukrainian children lose their fathers in Putin’s war. A grief camp is fighting to protect their youth.`\
-https://nytimes.com/video/opinion/100000008822685/ukraine-russia-war-children-parents.html?searchResultPosition=2
+**Spanish Vote Threatens Efforts to Recover Franco’s Victims**\
+`Spain’s left-wing government has tried to accelerate exhumations of mass graves left from the dictatorship. If it wins Sunday’s election, the right may end that.`\
+https://nytimes.com/2023/07/18/world/europe/spain-franco-victims-recover.html?searchResultPosition=2
 
-**Australian State Backs Out of Hosting the 2026 Commonwealth Games**\
-`The state of Victoria cited budget issues in deciding not to stage the multisports competition, originally known as the British Empire Games, raising questions about the event’s fading prestige.`\
-https://nytimes.com/2023/07/18/world/australia/victoria-australia-commonwealth-games-2026.html?searchResultPosition=3
+**If You’re Looking for a Real Taste of Alaska, Try a Food Truck**\
+`Pop-ups, trailers, carts and trucks serve rockfish tacos, halibut ceviche and more at affordable prices on a homegrown coastal culinary trail.`\
+https://nytimes.com/2023/07/18/travel/alaska-food-trucks.html?searchResultPosition=3
 
-**A Mother’s Precious Few Words, and My Own**\
-`Adriana Vance’s son was killed in a mass shooting at a nightclub in Colorado. As she prepared to address the killer, a reporter tried to tell her story with care.`\
-https://nytimes.com/2023/07/18/insider/a-mothers-precious-few-words-and-my-own.html?searchResultPosition=4
+**In Phoenix, 18 Days of Extreme Heat With No End in Sight**\
+`As much of the South bakes, Phoenix is poised to break a record set half a century ago of consecutive days with 110-degree or higher temperatures.`\
+https://nytimes.com/2023/07/18/us/phoenix-heat-record.html?searchResultPosition=4
 
-**First Hispanic Police Commissioner Has Deep Roots in the N.Y.P.D.**\
-`Edward Caban, an officer of Puerto Rican descent who joined the department in 1991, has been named its 47th commissioner. Mayor Eric Adams has championed his rise.`\
-https://nytimes.com/2023/07/18/nyregion/edward-caban-nypd-commissioner.html?searchResultPosition=5
+**Big Histories for the Big Future**\
+`In “The Fourth Turning Is Here” and “End Times,” the historian Neil Howe and the social scientist Peter Turchin use generational analysis and Big Data to predict the crises to come.`\
+https://nytimes.com/2023/07/18/books/review/the-fourth-turning-is-here-neil-howe-end-times-peter-turchin.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/07/18/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**A Yiddish Haven Thrives in Australia**\
+`Australia has the largest proportion of Holocaust survivors of any country besides Israel. In Melbourne, some of their descendants are leading the way to preserve the Yiddish language.`\
+https://nytimes.com/2023/07/18/world/australia/yiddish-melbourne-australia.html?searchResultPosition=6
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/07/18/crosswords/wordle-review-answer-759.html?searchResultPosition=7
+**A Look Back at Our Coming War With China**\
+`In a batch of recent books on U.S.-China relations, a war between the two superpowers is already raging.`\
+https://nytimes.com/2023/07/18/opinion/china-usa-relations-books-war.html?searchResultPosition=7
 
-**In Gilgo Beach Slayings, a Wife Nearby but Apparently Unknowing**\
-`Asa Ellerup, married to defendant Rex Heuermann, cut a glum figure. She was away when the killings happened, yet became central to the investigation.`\
-https://nytimes.com/2023/07/18/nyregion/gilgo-beach-rex-heuermann-wife.html?searchResultPosition=8
+**A Blessing and a Boogeyman: Advertisers Warily Embrace A.I.**\
+`Many ads are easier to make with the fast-improving technology. It also poses a threat to an industry already in flux.`\
+https://nytimes.com/2023/07/18/business/media/ai-advertising.html?searchResultPosition=8
 
-**Host Backs Out of 2026 Commonwealth Games**\
-`The state premier of Victoria, Australia, where the Games were to be held, described hosting them as “all cost and no benefit.” The move left the event’s fate in doubt.`\
-https://nytimes.com/video/world/asia/100000009000427/victoria-2026-commonwealth-games.html?searchResultPosition=9
+**What to Do With Overnight Guests if You Don’t Have a Guest Room**\
+`Designers share their secrets for adding sleeping space to any home — without relying on the dreaded pullout sofa.`\
+https://nytimes.com/2023/07/18/realestate/overnight-guests-bedroom-space.html?searchResultPosition=9
 
-**Word of the Day: languorous**\
-`This word has appeared in 17 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/07/18/learning/word-of-the-day-languorous.html?searchResultPosition=10
+**You Had to Be There. ‘Encounterism’ Argues You Still Do.**\
+`Conceived before the pandemic, Andy Field’s ode to sharing space in person glosses over the ways our everyday habits seem to have changed for good.`\
+https://nytimes.com/2023/07/18/books/review/encounterism-andy-field.html?searchResultPosition=10
 
