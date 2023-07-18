@@ -1,6 +1,6 @@
 **So far, Europe’s electricity systems are coping with the heat.**\
 `Greater energy efficiency and renewables are easing some of the pressure from air-conditioning.`\
-https://nytimes.com/2023/07/18/business/so-far-europes-electricity-systems-are-coping-with-the-heat.html?searchResultPosition=1
+https://nytimes.com/2023/07/18/business/europe-heat-power-grid-electricity.html?searchResultPosition=1
 
 **Illinois Supreme Court Upholds Measure Designed to End Cash Bail**\
 `A law ending cash bail was supported by Democratic legislators and Gov. J.B. Pritzker but challenged by prosecutors who said it would make the state less safe.`\
