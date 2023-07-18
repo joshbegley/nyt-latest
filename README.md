@@ -14,8 +14,8 @@ https://nytimes.com/2023/07/17/us/politics/no-labels-manchin-huntsman-event.html
 `After a leading progressive called Israel “a racist state,” Democratic leaders criticized the statement. But a planned boycott of the Israeli president’s speech by liberals underscored tensions.`\
 https://nytimes.com/2023/07/17/us/congress-israel-democrats.html?searchResultPosition=4
 
-**Robert F. Kennedy Jr.’s Relatives Condemn His Comments Once More**\
-`His sister Kerry Kennedy criticized his remarks about Covid, and his brother Joseph Kennedy II said “they play on antisemitic myths and stoke mistrust of the Chinese.”`\
+**Robert F. Kennedy Jr.’s Relatives Condemn His Bigoted Comments on Covid**\
+`His sister Kerry Kennedy criticized his remarks, and his brother Joseph Kennedy II said “they play on antisemitic myths and stoke mistrust of the Chinese.”`\
 https://nytimes.com/2023/07/17/us/politics/rfk-jr-remarks-covid-relatives.html?searchResultPosition=5
 
 **The Hysterical Overreaction to Jayapal’s ‘Racist State’ Gaffe**\
