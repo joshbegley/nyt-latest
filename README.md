@@ -1,5 +1,5 @@
 **Australian State Backs Out of Hosting the 2026 Commonwealth Games**\
-`The state of Victoria cited budget issues in canceling the multisports competition, originally known as the British Empire Games, raising pointed questions about the event’s fading prestige.`\
+`The state of Victoria cited budget issues in deciding not to stage the multisports competition, originally known as the British Empire Games, raising questions about the event’s fading prestige.`\
 https://nytimes.com/2023/07/18/world/australia/victoria-australia-commonwealth-games-2026.html?searchResultPosition=1
 
 **A Mother’s Precious Few Words, and My Own**\
