@@ -30,8 +30,8 @@ https://nytimes.com/2023/07/18/movies/barbie-oppenheimer-box-office.html?searchR
 `The company said it would give outside programmers access to the latest version of its core artificial intelligence technology.`\
 https://nytimes.com/2023/07/18/technology/meta-ai-open-source.html?searchResultPosition=8
 
-**DeSantis, Trying to Reboot Campaign, Will Appear in Rare CNN Interview**\
-`The Florida governor discussed military policy in South Carolina after days of new doubts about his campaign, as his top rival faced new legal peril.`\
+**DeSantis, Set for Rare CNN Interview, Struggles to Reboot**\
+`After days of new doubts about his campaign, the Florida governor vowed a crackdown on transgender rights in the military and again defended his top rival, Donald Trump.`\
 https://nytimes.com/2023/07/18/us/politics/ron-desantis-cnn-south-carolina.html?searchResultPosition=9
 
 **Heat Divide Leaves Low-Income Workers Among the Most Vulnerable**\
