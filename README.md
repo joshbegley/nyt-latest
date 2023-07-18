@@ -1,6 +1,6 @@
-**Trump Says He’s a Target in Special Counsel’s Investigation Into Jan. 6**\
+**Trump Says He’s Target in Special Counsel’s Investigation Into Jan. 6**\
 `It would be the second time the special counsel has notified the former president that he is likely to face indictment, this time in connection with the criminal investigation into the events leading up to the Capitol attack.`\
-https://nytimes.com/2023/07/18/us/politics/trump-jan-6-letter.html?searchResultPosition=1
+https://nytimes.com/live/2023/07/18/us/trump-jan-6-letter/trump-jan-6-letter?searchResultPosition=1
 
 **The Economic Fallout From Extreme Heat Will Rise Over Time**\
 `Among the costs of very high temperatures: reduced labor productivity, damaged crops, higher mortality rates, trade disruption and dampened investment.`\
