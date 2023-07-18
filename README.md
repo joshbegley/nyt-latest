@@ -18,8 +18,8 @@ https://nytimes.com/2023/07/18/us/yellowstone-bison-woman-gored.html?searchResul
 `A highbrow-lowbrow stunt right out of Jeff Koons, it’s the star dish at one of the year’s most inventive restaurants.`\
 https://nytimes.com/2023/07/18/dining/restaurant-review-mischa-pete-wells.html?searchResultPosition=5
 
-**Would South Africa arrest Putin if he visits next month? Its president says that would risk war.**\
-`By John Eligon`\
+**South Africa’s President Warns That Arresting Putin if He Visits Would Risk War**\
+`The assertion, made in a court affidavit, was the clearest indication yet that South Africa was seeking any way possible to avoid arresting the Russian leader on an international warrant at a long-planned BRICS summit in Johannesburg next month.`\
 https://nytimes.com/2023/07/18/world/europe/putin-arrest-south-africa.html?searchResultPosition=6
 
 **Spotted Lanternflies Are Back. You Should Still Kill Them.**\
