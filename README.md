@@ -18,13 +18,13 @@ https://nytimes.com/2023/07/19/nyregion/hudson-river-swim-lewis-pugh.html?search
 `Acequias, a network of water channels created by the Moors over 1,000 years ago, are being excavated and brought back to life to adapt to the crises of climate change.`\
 https://nytimes.com/2023/07/19/world/europe/spain-drought-acequias.html?searchResultPosition=5
 
-**For These Ukrainian Soldiers, the Fight Is Personal**\
-`Ukraine lets soldiers from towns occupied by the Russian military join the battle to reclaim them.`\
-https://nytimes.com/2023/07/19/world/europe/ukraine-counteroffensive-soldiers.html?searchResultPosition=6
-
 **There’s a British Open Winner Coaching High School Golf in Ohio**\
 `Ben Curtis was an international sensation after he won a major tournament on his first try. He is thrilled to have a quieter life now.`\
-https://nytimes.com/2023/07/19/sports/golf/british-open-ben-curtis.html?searchResultPosition=7
+https://nytimes.com/2023/07/19/sports/golf/british-open-ben-curtis.html?searchResultPosition=6
+
+**For These Ukrainian Soldiers, the Fight Is Personal**\
+`Ukraine lets soldiers from towns occupied by the Russian military join the battle to reclaim them.`\
+https://nytimes.com/2023/07/19/world/europe/ukraine-counteroffensive-soldiers.html?searchResultPosition=7
 
 **As Sunak Makes His Case to Britons, the Economy Undermines It**\
 `Britain’s stubbornly high inflation rate has come to symbolize a deeper economic malaise — a morass of problems, some new, others longstanding, that are stymying Prime Minister Rishi Sunak.`\
