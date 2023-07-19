@@ -1,6 +1,6 @@
 **Starving Orcas and the Fate of Alaska’s Disappearing King Salmon**\
 `With the fish numbers at historic lows, scientists, chefs and others are asking whether we should be eating them anymore, and what it means for the future of all wild salmon.`\
-https://nytimes.com/2023/07/19/dining/alsaska-king-salmon-orcas.html?searchResultPosition=1
+https://nytimes.com/2023/07/19/dining/alaska-king-salmon-orcas.html?searchResultPosition=1
 
 **Should You Check Your Bag, or Bring a Carry-On?**\
 `Readers react to a guest essay urging passengers not to check their luggage. Also: Musing about artificial intelligence; affirmative action.`\
