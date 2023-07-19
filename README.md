@@ -1,5 +1,5 @@
 **Aldean Video for ‘Try That in a Small Town’ Pulled Amid Backlash**\
-`Jason Aldean, the country singer who released the song in May, said the tune is an ode to the “feeling of a community” he had growing up. Critics say it is of.`\
+`Jason Aldean, the country singer who released the song in May, said the tune is an ode to the “feeling of a community” he had growing up. Critics say it is offensive.`\
 https://nytimes.com/2023/07/19/us/jason-aldean-try-that-in-a-small-town-cmt.html?searchResultPosition=1
 
 **Putin Is Doubling Down on Failure**\
