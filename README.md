@@ -1,6 +1,6 @@
 **Britain’s Spy Master Says Putin Cut Deal With Wagner Mercenary Chief**\
 `Richard Moore, the head of MI6, said the Russian leader acted “to save his skin,” offering rare insights into the events surrounding the sudden end of Yevgeny V. Prigozhin’s march on Moscow.`\
-https://nytimes.com/2023/07/19/world/europe/putin-moore-mi6.html?searchResultPosition=1
+https://nytimes.com/2023/07/19/world/europe/mi6-moore-putin-wagner.html?searchResultPosition=1
 
 **Stanford President Will Resign After Report Found Flaws in His Research**\
 `Marc Tessier-Lavigne was cleared of accusations of scientific fraud and misconduct. But the review said his work had “multiple problems” and “fell below customary standards of scientific rigor.”`\
