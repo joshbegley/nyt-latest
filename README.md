@@ -26,8 +26,8 @@ https://nytimes.com/2023/07/19/learning/word-of-the-day-megalopolis.html?searchR
 `Coaching sessions at the People’s Improv Theater were aimed at helping math experts connect with laypeople and give engaging presentations.`\
 https://nytimes.com/2023/07/19/nyregion/improv-theater-mathematicians.html?searchResultPosition=7
 
-**Aldean Video for ‘Try That in a Small Town’ Pulled Amid Backlash**\
-`Jason Aldean, the country singer who released the song in May, said the tune is an ode to the “feeling of a community” he had growing up. Critics say it is offensive.`\
+**Jason Aldean Video for ‘Try That in a Small Town’ Pulled Amid Backlash**\
+`The country singer, who released the song in May, said the tune is an ode to the “feeling of a community” he had growing up. Critics say it is offensive.`\
 https://nytimes.com/2023/07/19/arts/music/jason-aldean-try-that-in-a-small-town-cmt.html?searchResultPosition=8
 
 **Putin Is Doubling Down on Failure**\
