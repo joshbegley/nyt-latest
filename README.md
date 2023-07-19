@@ -27,7 +27,7 @@ https://nytimes.com/2023/07/19/business/why-britains-mortgage-holders-are-being-
 https://nytimes.com/2023/07/18/us/politics/funding-ban-wuhan-institute-virology.html?searchResultPosition=7
 
 **Kissinger Makes Unannounced Visit to China, Meets Defense Minister**\
-`At age 100, Henry Kissinger met with China’s defense minister, who last month had rejected an invitation to meet with the current American defense minister.`\
+`At age 100, Henry Kissinger met with China’s defense minister, who last month had rejected an invitation to meet with the current American defense secretary.`\
 https://nytimes.com/2023/07/18/world/asia/kissinger-china-defense.html?searchResultPosition=8
 
 **Biden to Netanyahu: Please Stop Trying to Rush Through Your Judicial Overhaul. Build a Consensus First.**\
