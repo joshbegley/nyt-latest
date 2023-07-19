@@ -14,7 +14,7 @@ https://nytimes.com/2023/07/19/business/biden-student-loans-repayment.html?searc
 `Two veteran investigators spent several hours detailing to a House committee the ways in which they believed President Biden’s son received preferential treatment.`\
 https://nytimes.com/2023/07/19/us/politics/irs-hunter-biden-whistle-blowers.html?searchResultPosition=4
 
-**2 Killed in New Zealand Shooting as World Cup Is Set to Begin**\
+**2 Dead in New Zealand Shooting as World Cup Is Set to Begin**\
 `There were also multiple injuries, the police said, and the gunman was among those killed. The shooting was not far from where Norway’s national team is staying for the Women’s World Cup.`\
 https://nytimes.com/2023/07/19/world/asia/auckland-new-zealand-shooting-world-cup.html?searchResultPosition=5
 
