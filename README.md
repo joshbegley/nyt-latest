@@ -15,7 +15,7 @@ https://nytimes.com/2023/07/19/us/california-state-parks-summer.html?searchResul
 https://nytimes.com/2023/07/19/style/sleeping-in-separate-bedrooms.html?searchResultPosition=4
 
 **Microsoft and Activision Delay Deal to Settle British Regulatory Issues**\
-`The extension is likely a signal that the companies believe they will eventually received needed approvals.`\
+`The extension is likely a signal that the companies believe they will eventually receive needed approvals.`\
 https://nytimes.com/2023/07/19/business/microsoft-activision-deal-delay-uk.html?searchResultPosition=5
 
 **Steep Profit Fall at Goldman Sachs Highlights Wall St. Giant’s Woes**\
