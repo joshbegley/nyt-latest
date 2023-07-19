@@ -32,7 +32,7 @@ https://nytimes.com/2023/07/19/business/economy/pandemic-labor-market-myths.html
 
 **This Soy-Butter Corn Ramen Has Peak Summer Flavor**\
 `Hetty Lui McKinnon’s new recipes make the most of everyday produce.`\
-https://nytimes.com/2023/07/19/dining/this-soy-butter-corn-ramen-has-peak-summer-flavor.html?searchResultPosition=9
+https://nytimes.com/2023/07/19/dining/soy-butter-corn-ramen.html?searchResultPosition=9
 
 **Dermot Doran, Priest Who Rallied Aid for Biafran Airlift, Dies at 88**\
 `In 1968, Father Doran, who had been in Nigeria as an educator, became the linchpin of one of the largest civilian humanitarian efforts in history.`\
