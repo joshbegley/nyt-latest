@@ -26,7 +26,7 @@ https://nytimes.com/2023/07/19/us/stanford-president-resigns-tessier-lavigne.htm
 `President Isaac Herzog of Israel delivered a speech to lawmakers that focused on the foundations of his country’s relationship with the U.S. amid tensions between the United States and Prime Minister Benjamin Netanyahu of Israel.`\
 https://nytimes.com/video/us/politics/100000009002904/herzog-israel-congress-biden.html?searchResultPosition=7
 
-**Chris Sununu Won’t Run for Re-Election as Governor of New Hampshire**\
+**Chris Sununu Won’t Run for Re-election as Governor of New Hampshire**\
 `The decision by Mr. Sununu, a moderate Republican, sets up a competitive race next year to lead a battleground state, and Democrats will be eager to take advantage.`\
 https://nytimes.com/2023/07/19/us/politics/chris-sununu-new-hampshire-governor.html?searchResultPosition=8
 
