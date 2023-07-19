@@ -1,5 +1,5 @@
 **An Anxious Thailand Awaits a New Leader: Here’s What to Know**\
-`After failing to form a government, Parliament has convened again to vote for prime minister. The process is a test for democracy in a nation with a history of coups.`\
+`After failing to choose a prime minister, Parliament will vote again as protesters gather outside. The process is a test for democracy in a nation with a history of coups.`\
 https://nytimes.com/2023/07/19/world/asia/pita-limjaroenrat-prime-minister-thailand.html?searchResultPosition=1
 
 **Word of the Day: megalopolis**\
