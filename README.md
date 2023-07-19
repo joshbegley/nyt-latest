@@ -34,7 +34,7 @@ https://nytimes.com/2023/07/19/business/microsoft-activision-deal-delay-uk.html?
 `The investment bank reported a profit half as large as its rival Morgan Stanley, to say nothing of larger lenders.`\
 https://nytimes.com/2023/07/19/business/goldman-sachs-profit.html?searchResultPosition=9
 
-**Biden’s Antitrust Team Isn’t Backing Down From a Fight**\
-`Newly released guidelines for mergers show that despite legal setbacks, top competition officials intend to keep scrutinizing takeovers and technology giants.`\
+**Biden’s Antitrust Team Isn’t Backing Down From a Fight on Deals**\
+`New guidelines show that despite legal setbacks, top competition officials intend to maintain a tough approach to takeovers and technology giants.`\
 https://nytimes.com/2023/07/19/business/ftc-justice-dept-mergers-antitrust.html?searchResultPosition=10
 
