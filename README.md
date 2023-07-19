@@ -1,4 +1,4 @@
-**Global Warming Is Bring More Change Than Just Heat**\
+**Global Warming Is Bringing More Change Than Just Heat**\
 `Climate change is already affecting the world in powerful ways. But it could also drive mass migration and reshape societies as its consequences add up.`\
 https://nytimes.com/2023/07/19/world/climate-change-migration.html?searchResultPosition=1
 
