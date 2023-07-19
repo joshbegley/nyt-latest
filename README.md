@@ -1,5 +1,5 @@
-**Stanford President Will Resign After Report Found Significant Flaws in His Scientific Studies**\
-`Marc Tessier-Lavigne, a neuroscientist, was cleared of accusations of fraud and misconduct. But the review said a study had “multiple problems” and “fell below customary standards of scientific rigor.”`\
+**Stanford President Will Resign After Report Found Flaws in His Research**\
+`Marc Tessier-Lavigne was cleared of accusations of scientific fraud and misconduct. But the review said his work had “multiple problems” and “fell below customary standards of scientific rigor.”`\
 https://nytimes.com/2023/07/19/us/stanford-president-resigns-tessier-lavigne.html?searchResultPosition=1
 
 **Israeli President Addresses Congress**\
