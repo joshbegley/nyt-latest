@@ -1,5 +1,5 @@
 **James Reston Jr., Author With a Hand in Nixon Apology, Dies at 82**\
-`A historian and novelist, he provided research for David Frost’s TV interviews that prodded Nixon to admit his Watergate role and say, “I let the American people down.”`\
+`A historian and novelist, he provided a 96-page “interrogation” memo for David Frost’s TV interviews that prodded Nixon to say, “I let the American people down” over Watergate.`\
 https://nytimes.com/2023/07/19/us/james-reston-jr-dead.html?searchResultPosition=1
 
 **Women’s World Cup Schedule: Teams, Kickoff Times and TV**\
