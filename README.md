@@ -8,7 +8,7 @@ https://nytimes.com/2023/07/20/world/europe/heat-wave-siesta-spain-germany.html?
 
 **Should You Hire a Bridal Stylist?**\
 `These fashion experts will not only help you find the perfect wedding day look, but also curate a collection of ensembles for related events.`\
-https://nytimes.com/2023/07/20/style/should-you-hire-a-bridal-stylist.html?searchResultPosition=3
+https://nytimes.com/2023/07/20/style/wedding-bridal-stylist.html?searchResultPosition=3
 
 **Russia Attacks Ukrainian Port Cities**\
 `Russia targeted the cities of Odesa and Mykolaiv in an attempt to block Ukraine’s ability to export grain.`\
