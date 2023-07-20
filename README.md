@@ -1,4 +1,4 @@
-**Kevin Mitnick, Hacker Who Eluded Authorities, Is Dead at 59**\
+**Kevin Mitnick, Hacker Who Once Eluded Authorities, Is Dead at 59**\
 `Mr. Mitnick, best known for a crime spree during the 1990s that involved the theft of computer data and credit card numbers, died from pancreatic cancer. He later became a security consultant, writer and public speaker.`\
 https://nytimes.com/2023/07/20/technology/kevin-mitnick-dead-hacker.html?searchResultPosition=1
 
