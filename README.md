@@ -3,7 +3,7 @@
 https://nytimes.com/2023/07/20/podcasts/the-daily/the-man-trying-to-save-phoenix-from-historic-heat.html?searchResultPosition=1
 
 **Frustrated by Biden, China Courts ‘Old Friends’ Like Kissinger**\
-`Beijing is turning to American contacts outside the Biden administration, especially those it deems more likely to listen, to try to influence Washington’s thinking on China.`\
+`In meeting with Henry Kissinger, China’s leader, Xi Jinping, is turning to American contacts outside the Biden administration to try to influence Washington’s thinking on China.`\
 https://nytimes.com/2023/07/20/world/asia/china-kissinger-visit-us.html?searchResultPosition=2
 
 **Today’s Top News: Russia Targets Ukraine’s Ports, and More**\
