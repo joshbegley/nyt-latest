@@ -1,40 +1,40 @@
-**Video of Sexual Assault Goes Viral in India, Renewing Attention on Ethnic Conflict**\
-`The attack on two women in the state of Manipur led to the first public comments from Prime Minister Narendra Modi, however indirect, about the monthslong violence in the state.`\
-https://nytimes.com/2023/07/20/world/asia/india-manipur-video-woman.html?searchResultPosition=1
+**Homes for Sale in Manhattan and the Bronx**\
+`This week’s properties are on the Upper East Side, in the East Village and Spuyten Duyvil.`\
+https://nytimes.com/2023/07/20/realestate/homes-for-sale-in-manhattan-and-the-bronx.html?searchResultPosition=1
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/07/20/crosswords/wordle-review-answer-761.html?searchResultPosition=2
+**New Zealand’s Fruit-Rich Ice Cream Gets a Sugary American Makeover**\
+`The wholesome summer favorite is catching on in the U.S., but with sprinkles, drizzles and even cookies to satisfy the nation’s sweet tooth.`\
+https://nytimes.com/2023/07/20/dining/new-zealands-fruit-rich-ice-cream-gets-a-sugary-american-makeover.html?searchResultPosition=2
 
-**It’s By-election Day in the U.K. What Does That Mean?**\
-`Three seats in Parliament recently occupied by Conservatives are up for grabs in an election that may show which way the political winds are blowing.`\
-https://nytimes.com/2023/07/20/world/europe/uk-by-elections-johnson-sunak.html?searchResultPosition=3
+**Catch Them if You Can**\
+`Corbin Carroll changed everything for Arizona and Elly De La Cruz has revitalized Cincinnati. The phenoms, and their contending teams, face off this weekend.`\
+https://nytimes.com/2023/07/20/sports/baseball/corbin-carroll-elly-de-la-cruz.html?searchResultPosition=3
 
-**Gilgo Beach Suspect’s House Draws Avid Onlookers: ‘I’m So Into This’**\
-`On Long Island, the fascinated and obsessed come to gawk at the house where Rex Heuermann lived. Some bring the children.`\
-https://nytimes.com/2023/07/20/nyregion/gilgo-beach-rex-heuermann-home-tourists.html?searchResultPosition=4
+**Christopher Nolan and the Contradictions of J. Robert Oppenheimer**\
+`The biopic director argues that the physicist who oversaw creation of the atomic bomb was both the most important person who ever lived and hopelessly naïve.`\
+https://nytimes.com/2023/07/20/movies/christopher-nolan-oppenheimer.html?searchResultPosition=4
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/07/20/crosswords/spelling-bee-forum.html?searchResultPosition=5
+**The Strange Unseriousness of No Labels**\
+`Plenty of people fear a second Trump term and are dissatisfied with life in America. The No Labels group is here to take advantage of that sadness with a half-finished idea.`\
+https://nytimes.com/2023/07/20/opinion/no-labels-election-2024.html?searchResultPosition=5
 
-**Protesters in Baghdad Storm Swedish Embassy**\
-`The demonstrators, upset over Quran burnings in Sweden, protested throughout the night, setting part of the embassy on fire.`\
-https://nytimes.com/video/world/middleeast/100000009004226/baghdad-sweden-embassy-quran.html?searchResultPosition=6
+**The Shows May Be Over. But John Mayer’s ‘Guitar Face’ Lives On.**\
+`For some fans of Dead & Company, which just finished its Final Tour, the faces made by John Mayer while performing are almost as memorable as the music.`\
+https://nytimes.com/2023/07/20/style/john-mayer-dead-and-company.html?searchResultPosition=6
 
-**Why the Mayor Could Lose Control of Rikers Island**\
-`It will be up to a judge to decide if an outside authority will run the troubled jails complex. She appears to be losing patience with the city.`\
-https://nytimes.com/2023/07/20/nyregion/why-the-mayor-could-lose-control-of-rikers-island.html?searchResultPosition=7
+**Quick to Mock MAGA, Biden Stays Silent on Trump Indictments**\
+`The president has taken swipes at Republicans, including a video playfully featuring Marjorie Taylor Greene as a narrator, but he and his allies are avoiding one target: his predecessor’s legal woes.`\
+https://nytimes.com/2023/07/20/us/politics/biden-trump-indictments.html?searchResultPosition=7
 
-**Spain Is Going to Be Absolutely Fine**\
-`Sunday’s election will determine the country’s political direction, not the fate of its democracy.`\
-https://nytimes.com/2023/07/20/opinion/spain-election-sanchez-vox.html?searchResultPosition=8
+**‘And Just Like That …’ Fashion: No Way to Dress for the Weather**\
+`In the sixth episode of the season, Carrie and her friends brave the streets of New York City in a blizzard.`\
+https://nytimes.com/2023/07/20/style/and-just-like-that-fashion.html?searchResultPosition=8
 
-**Your Thursday Briefing**\
-`China pushes back against U.S. climate pressure.`\
-https://nytimes.com/2023/07/20/world/china-climate-sweden-embassy-world-cup-europe.html?searchResultPosition=9
+**Heat Affects Older People More. Here’s How to Stay Safe.**\
+`If you’re over 65, it’s important to take high temperatures seriously.`\
+https://nytimes.com/2023/07/20/well/live/heat-illness-safety-older-people.html?searchResultPosition=9
 
-**Why Heat Waves Are Deepening China’s Addiction to Coal**\
-`While pledging to reduce carbon emissions, the country is greatly increasing its use of the fossil fuel to generate electricity.`\
-https://nytimes.com/2023/07/20/business/china-coal-climate-change.html?searchResultPosition=10
+**Homes for Sale in Connecticut and New York**\
+`This week’s properties are a four-bedroom in Redding, Conn., and a three-bedroom in Rye, N.Y.`\
+https://nytimes.com/2023/07/20/realestate/homes-for-sale-in-connecticut-and-new-york.html?searchResultPosition=10
 
