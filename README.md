@@ -6,7 +6,7 @@ https://nytimes.com/2023/07/20/business/delta-air-lines-heat-las-vegas-plane.htm
 `Adding Rodgers, the star quarterback, to a team with young talent and a strong defense has players eyeing the Super Bowl. It is a big jump for a franchise that has missed the past 12 postseasons.`\
 https://nytimes.com/2023/07/20/sports/football/aaron-rodgers-jets-camp.html?searchResultPosition=2
 
-**Hacking of Government Email Was Traditional Espionage, Official Says**\
+**China’s Hacking of Government Email Was Traditional Espionage, Official Says**\
 `The hackers penetrated the accounts of senior State Department officials, including the U.S. ambassador to China.`\
 https://nytimes.com/2023/07/20/us/politics/china-hacking-official-email.html?searchResultPosition=3
 
