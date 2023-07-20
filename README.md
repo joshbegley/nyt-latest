@@ -4,7 +4,7 @@ https://nytimes.com/2023/07/20/opinion/no-labels-president-2024-election.html?se
 
 **9 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
-https://nytimes.com/2023/07/20/books/review/new-books-recommendations.html?searchResultPosition=2
+https://nytimes.com/2023/07/20/books/review/new-books-recommendations-elliot-page-jeff-goodell-katie-williams.html?searchResultPosition=2
 
 **Kenya Stares Into ‘Abyss’ as Soaring Prices and Feuding Leaders Bring Chaos**\
 `Antigovernment protests over price hikes and new taxes have left at least 29 people dead in recent weeks, prompting the country’s news outlets to join together to issue a dire warning.`\
