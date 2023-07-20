@@ -6,8 +6,8 @@ https://nytimes.com/2023/07/20/world/asia/india-flood-maharashtra-monsoon.html?s
 `The company is best suited among media giants to cope with the Hollywood shutdown. But a lengthy strike by writers and actors will eventually cause damage.`\
 https://nytimes.com/2023/07/20/business/dealbook/netflix-earnings-hollywood-strike.html?searchResultPosition=2
 
-**Belarus Says Wagner Fighters are Training Troops on the Polish Border**\
-`The Belarusian defense ministry said the country’s special operations units had been jointly training with Wagner for a week at a military range near the city of Brest.`\
+**Belarus Says Wagner Fighters Are Training Troops on the Polish Border**\
+`The Belarusian defense ministry said the country’s special operations units were jointly training with Wagner at a military range near the city of Brest.`\
 https://nytimes.com/2023/07/20/world/europe/belarus-wagner-fighters-poland-border.html?searchResultPosition=3
 
 **‘While We Watched’ Review: A Lament and a Battle Cry**\
