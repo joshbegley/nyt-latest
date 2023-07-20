@@ -26,7 +26,7 @@ https://nytimes.com/2023/07/20/us/politics/trump-united-auto-workers-electric-ve
 `Her wide range of subjects included the actress Jayne Mansfield, the novelist Louisa May Alcott and Mary Washington, the mother of a president.`\
 https://nytimes.com/2023/07/20/books/martha-saxton-dead.html?searchResultPosition=7
 
-**N.F.L. Says Snyder Sexually Harassed Employee, Withheld League Revenue**\
+**N.F.L. Fines Snyder $60 Million for Sexually Harassing Employee, Withholding Revenue**\
 `Daniel Snyder will pay $60 million in restitution after a league investigation found that he sexually harassed a female employee and improperly withheld revenue when he owned the Washington Commanders.`\
 https://nytimes.com/2023/07/20/sports/football/dan-snyder-mary-jo-white-investigation.html?searchResultPosition=8
 
