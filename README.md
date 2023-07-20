@@ -1,10 +1,10 @@
-**Homes for Sale in Manhattan and the Bronx**\
-`This week’s properties are on the Upper East Side, in the East Village and Spuyten Duyvil.`\
-https://nytimes.com/2023/07/20/realestate/homes-for-sale-in-manhattan-and-the-bronx.html?searchResultPosition=1
-
 **New Zealand’s Fruit-Rich Ice Cream Gets a Sugary American Makeover**\
 `The wholesome summer favorite is catching on in the U.S., but with sprinkles, drizzles and even cookies to satisfy the nation’s sweet tooth.`\
-https://nytimes.com/2023/07/20/dining/new-zealands-fruit-rich-ice-cream-gets-a-sugary-american-makeover.html?searchResultPosition=2
+https://nytimes.com/2023/07/20/dining/new-zealand-real-fruit-ice-cream.html?searchResultPosition=1
+
+**Homes for Sale in Manhattan and the Bronx**\
+`This week’s properties are on the Upper East Side, in the East Village and Spuyten Duyvil.`\
+https://nytimes.com/2023/07/20/realestate/homes-for-sale-in-manhattan-and-the-bronx.html?searchResultPosition=2
 
 **Catch Them if You Can**\
 `Corbin Carroll changed everything for Arizona and Elly De La Cruz has revitalized Cincinnati. The phenoms, and their contending teams, face off this weekend.`\
