@@ -1,40 +1,40 @@
+**Ukrainian Children With Cancer Fight Their Own War Within a War**\
+`The war with Russia compounds the struggles of pediatric cancer patients and their families, but it has also prompted positive changes in treatment in Ukraine.`\
+https://nytimes.com/2023/07/20/world/europe/ukraine-children-cancer-war.html?searchResultPosition=1
+
+**On the Map, Nothing. On the Ground, a Hidden Maya City.**\
+`In a biological preserve in Mexico’s Campeche State, a team of archaeologists has documented pyramids, palaces, a ball court and other remains of an ancient city they call Ocomtún.`\
+https://nytimes.com/2023/07/20/world/americas/maya-city-yucatan-archaeology-ocomtun.html?searchResultPosition=2
+
+**Theme Park’s Selective History Appeals to a New Spanish Nationalism**\
+`Puy du Fou España has drawn visitors with spectacular shows about Spanish history. But part of its success lies in what goes unsaid.`\
+https://nytimes.com/2023/07/20/world/europe/spain-history-puy-du-fou.html?searchResultPosition=3
+
+**The Joys of Links Golf Never Get Old**\
+`No matter which seaside, windswept course hosts the British Open, the final major tournament of the year puts a golfer’s imagination to work, and captures ours.`\
+https://nytimes.com/2023/07/20/sports/golf/british-open-royal-liverpool-links.html?searchResultPosition=4
+
+**Stranded in a Strange Land, and Waiting for Death**\
+`Tunisia has pushed African migrants to scorching no-man’s lands along its borders with little food and water. Under a deal with the European Union, Tunisia agreed to tighten border controls in exchange for aid.`\
+https://nytimes.com/2023/07/20/world/africa/tunisia-african-migrants.html?searchResultPosition=5
+
+**Tesla Wants to Double the Size of Its European Assembly Plant**\
+`The electric automaker wants to produce a million cars a year at its plant near Berlin, a step that would make it Europe’s largest car factory.`\
+https://nytimes.com/2023/07/20/world/europe/tesla-germany-assembly-plant.html?searchResultPosition=6
+
+**Trump’s Legal Woes Mount as Trial Dates and Campaign Calendar Collide**\
+`The Republican front-runner is facing a growing tangle of criminal and civil trials that will overlap with next year’s presidential primaries.`\
+https://nytimes.com/2023/07/20/us/politics/trump-trials-2024-campaign.html?searchResultPosition=7
+
 **Ponzi Schemer Freed From Prison by Trump Faces New Fraud Charges**\
 `Eliyahu Weinstein, whose 24-year sentence President Donald J. Trump commuted, is now accused of bilking 150 million people out of more than $35 million.`\
-https://nytimes.com/2023/07/19/nyregion/ponzi-scheme-fraud-trump-commute-sentence.html?searchResultPosition=1
+https://nytimes.com/2023/07/19/nyregion/ponzi-scheme-fraud-trump-commute-sentence.html?searchResultPosition=8
 
 **Google Tests A.I. Tool That Is Able to Write News Articles**\
 `The product, pitched as a helpmate for journalists, has been demonstrated for executives at The New York Times, The Washington Post and News Corp, which owns The Wall Street Journal.`\
-https://nytimes.com/2023/07/19/business/google-artificial-intelligence-news-articles.html?searchResultPosition=2
+https://nytimes.com/2023/07/19/business/google-artificial-intelligence-news-articles.html?searchResultPosition=9
 
 **Corrections: July 20, 2023**\
 `Corrections that appeared in print on Thursday, July 20, 2023.`\
-https://nytimes.com/2023/07/19/pageoneplus/corrections-july-20-2023.html?searchResultPosition=3
-
-**Quotation of the Day: Kissinger, 100, Gets Accolades in China Visits**\
-`Quotation of the Day for Thursday, July 20, 2023`\
-https://nytimes.com/2023/07/19/pageoneplus/quotation-of-the-day-kissinger-100-gets-accolades-in-china-visits.html?searchResultPosition=4
-
-**Chart Topper**\
-`Drew Schmenner takes on Thursday puzzle trickiness.`\
-https://nytimes.com/2023/07/19/crosswords/daily-puzzle-2023-07-20.html?searchResultPosition=5
-
-**Swedish Embassy in Baghdad Is Set Afire Amid Protests Over Quran**\
-`Episodes of Quran burning in Sweden have angered many in the Muslim world and drawn condemnation from the country’s authorities.`\
-https://nytimes.com/2023/07/19/world/middleeast/iraq-sweden-embassy.html?searchResultPosition=6
-
-**Australia’s New Queen**\
-`Sam Kerr is the face of the World Cup. She has the weight of a nation on her shoulders. She does not seem to have noticed.`\
-https://nytimes.com/2023/07/19/sports/soccer/sam-kerr-australia-world-cup.html?searchResultPosition=7
-
-**Dallas Police Arrest Man in Killings of 3 Women**\
-`The women’s bodies were found over a three-month period in an area south of downtown.`\
-https://nytimes.com/2023/07/19/us/dallas-oak-cliff-murders-arrest.html?searchResultPosition=8
-
-**Traveling to Europe? Here’s What You Need to Know About the Heat Wave.**\
-`The top tourist destinations of Italy, Spain and Greece are sweltering this summer. Travelers can take precautionary measures to protect themselves.`\
-https://nytimes.com/2023/07/19/travel/heat-europe-vacation-tourism-safety.html?searchResultPosition=9
-
-**Deadly Shooting in Auckland Before Women’s World Cup**\
-`Prime Minister Chris Hipkins of New Zealand said that there was no national security risk after the shooting and that the games would proceed as planned.`\
-https://nytimes.com/video/world/asia/100000009003950/auckland-new-zealand-shooting.html?searchResultPosition=10
+https://nytimes.com/2023/07/19/pageoneplus/corrections-july-20-2023.html?searchResultPosition=10
 
