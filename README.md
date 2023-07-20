@@ -26,7 +26,7 @@ https://nytimes.com/2023/07/20/world/europe/russia-ukraine-ports-mines.html?sear
 `Our economy has done well lately. Don’t become complacent.`\
 https://nytimes.com/2023/07/20/opinion/american-economny-europe-triumphalism.html?searchResultPosition=8
 
-**A 6-Year-Old Suffocated and Bus Monitor Didn’t Notice, Prosecutor Says**\
+**6-Year-Old Suffocated and Bus Monitor Didn’t Notice, Prosecutor Says**\
 `The girl, who was unable to speak, was in a wheelchair at the back of the bus, and the monitor had her earbuds in. A New Jersey prosecutor charged the woman with manslaughter.`\
 https://nytimes.com/2023/07/20/nyregion/new-jersey-school-bus-death.html?searchResultPosition=9
 
