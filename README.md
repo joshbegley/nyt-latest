@@ -30,7 +30,7 @@ https://nytimes.com/2023/07/20/theater/how-to-dance-in-ohio-broadway.html?search
 `The new supercomputer, made by the Silicon Valley start-up Cerebras, was unveiled as the A.I. boom drives demand for chips and computing power.`\
 https://nytimes.com/2023/07/20/technology/an-ai-supercomputer-whirs-to-life-powered-by-giant-computer-chips.html?searchResultPosition=8
 
-**Gretchen Whitmer Would Like You to Call Her ‘Governor Barbie’**\
+**Gretchen Whitmer Would Like You to Meet ‘Governor Barbie’**\
 `It’s part of a social media stunt by the pink-loving politician. But does it represent a shift for women in politics?`\
 https://nytimes.com/2023/07/20/style/gretchen-whitmer-barbie.html?searchResultPosition=9
 
