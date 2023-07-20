@@ -1,6 +1,6 @@
 **Review: ‘Minx’ Returns, Confident and Fully Exposed**\
 `Saved from cancellation, the porn-mag comedy is still a chaotic ride, but its ideas are more than skin-deep.`\
-https://nytimes.com/2023/07/20/arts/television/review-minx-season-2.html?searchResultPosition=1
+https://nytimes.com/2023/07/20/arts/television/minx-season-2-starz-review.html?searchResultPosition=1
 
 **Robert F. Kennedy Jr. Is Where Paranoia Meets Legacy Admissions**\
 `R.F.K. Jr. and Trump belong to a new breed of arrogant oxymorons.`\
