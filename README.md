@@ -7,7 +7,7 @@ https://nytimes.com/2023/07/21/world/europe/russia-interest-rate-inflation.html?
 https://nytimes.com/2023/07/21/briefing/trump-trial-date-biden-ai-leaders.html?searchResultPosition=2
 
 **Actors’ Strike Leaves Celebrity Podcasts in Grey Zone**\
-`Rewatch podcasts and podcasts affiliated with Hollywood studios may violate union rules in letter or spirit. “Nobody really knows,” says Sophia Bush of “One Tree Hill.”`\
+`Rewatch podcasts and podcasts affiliated with Hollywood studios were at the center of a week of confusion over union policies. “Nobody really knows,” said Sophia Bush of “One Tree Hill.”`\
 https://nytimes.com/2023/07/21/arts/actors-strike-podcasts-rewatch.html?searchResultPosition=3
 
 **For Trump and Allies, Outcome of Georgia Election Inquiry Nears**\
