@@ -34,7 +34,7 @@ https://nytimes.com/2023/07/21/arts/music/jason-aldean-song-video-lynching-court
 `Brian Harman has never won a major tournament but led the field at 10 under heading into the weekend, with Rory McIlroy nine back.`\
 https://nytimes.com/2023/07/21/sports/golf/british-open-mcilroy-harman-fleetwood.html?searchResultPosition=9
 
-**Catherine Burks-Brooks, Freedom Rider Who Had the Last Word, Dies at 83**\
+**Catherine Burks-Brooks, 83, Freedom Rider Who Had the Last Word, Dies**\
 `She was among a small group of students who restarted the Freedom Rides after the first attempt ended in violence and nearly destroyed the movement.`\
 https://nytimes.com/2023/07/21/us/catherine-burks-brooks-dead.html?searchResultPosition=10
 
