@@ -20,7 +20,7 @@ https://nytimes.com/2023/07/21/nyregion/bitfinex-heist-laundering-plea-deal.html
 
 **Barbenheimer: The Unofficial Playlist**\
 `10 songs marked by aesthetic contrasts for the movies’ big opening weekend.`\
-https://nytimes.com/2023/07/21/arts/music/amplifier-newsletter-barbenheimer-playlist.html?searchResultPosition=6
+https://nytimes.com/2023/07/21/arts/music/barbie-oppenheimer-playlist.html?searchResultPosition=6
 
 **Tony Bennett and Lady Gaga Dueted. Their Stars Were Reborn.**\
 `The crooner and the pop star seemed like unlikely collaborators when they joined up in 2014. But the two masters of reinvention inspired and bolstered each other’s careers.`\
