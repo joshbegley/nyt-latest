@@ -12,7 +12,7 @@ https://nytimes.com/2023/07/21/business/fed-inflation-recession.html?searchResul
 
 **Who’s Who in ‘Oppenheimer’: A Guide to the Real People and Events**\
 `Christopher Nolan’s complex drama depicts the development of the nuclear bomb and midcentury political machinations. Here’s the back story.`\
-https://nytimes.com/2023/07/21/movies/oppenheimer-real-life-players.html?searchResultPosition=4
+https://nytimes.com/2023/07/21/movies/oppenheimer-cast-real-life.html?searchResultPosition=4
 
 **A Conversation With California State University’s Next Chancellor**\
 `Mildred García will face a range of challenges when she takes the reins of the country’s largest four-year public university system this fall.`\
