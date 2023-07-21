@@ -1,40 +1,40 @@
-**The Markets Are Counting on the Fed to Solve a Tricky Puzzle**\
-`Lowering inflation to 2 percent without causing a recession and throwing people out of work would be a rare achievement. The markets are acting as if it has already happened.`\
-https://nytimes.com/2023/07/21/business/fed-inflation-recession.html?searchResultPosition=1
+**Summer Reading Contest, Week 7: What Got Your Attention in The Times This Week?**\
+`To participate, submit your response here by July 28 at 9 a.m. Eastern. This week’s winners will be announced on Aug. 8.`\
+https://nytimes.com/2023/07/21/learning/summer-reading-contest-week-7-what-got-your-attention-in-the-times-this-week.html?searchResultPosition=1
 
 **Is Gen Z Down to Clown? The Circus Is Counting on It.**\
 `Cirque de Soleil is hoping that it can expand its audience, perhaps with perfume that smells like a trapeze artist or a couch that embodies the spirit of clowning.`\
 https://nytimes.com/2023/07/21/business/is-gen-z-down-to-clown-the-circus-is-counting-on-it.html?searchResultPosition=2
 
+**The Markets Are Counting on the Fed to Solve a Tricky Puzzle**\
+`Lowering inflation to 2 percent without causing a recession and throwing people out of work would be a rare achievement. The markets are acting as if it has already happened.`\
+https://nytimes.com/2023/07/21/business/fed-inflation-recession.html?searchResultPosition=3
+
 **Who’s Who in ‘Oppenheimer’: A Guide to the Real People and Events**\
 `Christopher Nolan’s complex drama depicts the development of the nuclear bomb and midcentury political machinations. Here’s the back story.`\
-https://nytimes.com/2023/07/21/movies/oppenheimer-real-life-players.html?searchResultPosition=3
+https://nytimes.com/2023/07/21/movies/oppenheimer-real-life-players.html?searchResultPosition=4
 
 **A Conversation With California State University’s Next Chancellor**\
 `Mildred García will face a range of challenges when she takes the reins of the country’s largest four-year public university system this fall.`\
-https://nytimes.com/2023/07/21/us/california-mildred-garcia-cal-state.html?searchResultPosition=4
+https://nytimes.com/2023/07/21/us/california-mildred-garcia-cal-state.html?searchResultPosition=5
 
 **Why It’s Smart to Revisit New Year’s Savings Goals Now**\
 `There’s still time this year to make adjustments, especially with the coming resumption of student loan payments.`\
-https://nytimes.com/2023/07/21/your-money/savings-financial-goals-july.html?searchResultPosition=5
+https://nytimes.com/2023/07/21/your-money/savings-financial-goals-july.html?searchResultPosition=6
 
 **Can You Understand Bird? Test Your Recognition of Calls and Songs**\
 `It might sound like all chirps to you, but birds convey different messages, even across species.`\
-https://nytimes.com/interactive/2023/07/21/science/bird-calls-songs-quiz.html?searchResultPosition=6
+https://nytimes.com/interactive/2023/07/21/science/bird-calls-songs-quiz.html?searchResultPosition=7
 
 **Russia Detains Igor Girkin, a Critic of Putin’s War Effort in Ukraine: What to Know**\
 `The arrest was a sign that Russia was clamping down further on dissent, even among prominent nationalists, after last month’s brief mutiny by Wagner mercenaries.`\
-https://nytimes.com/2023/07/21/world/europe/igor-girkin-strelkov-detained-russia-war.html?searchResultPosition=7
+https://nytimes.com/2023/07/21/world/europe/igor-girkin-strelkov-detained-russia-war.html?searchResultPosition=8
 
 **7 A.I. Companies Agree to Safeguards After Pressure From the White House**\
 `Amazon, Google and Meta are among the companies that will announce the new commitments on Friday as they race to outdo each other with versions of artificial intelligence.`\
-https://nytimes.com/2023/07/21/us/politics/ai-regulation-biden.html?searchResultPosition=8
+https://nytimes.com/2023/07/21/us/politics/ai-regulation-biden.html?searchResultPosition=9
 
 **Tony Bennett, Champion of the Great American Songbook, Is Dead at 96**\
 `From his initial success as a jazzy crooner through his generation-spanning duets, his career was remarkable for both its longevity and its consistency.`\
-https://nytimes.com/2023/07/21/arts/music/tony-bennett-dead.html?searchResultPosition=9
-
-**The White House Pushes Tech Leaders To Get Tough on A.I. Safety**\
-`Leading A.I. firms, including Microsoft, Google and OpenAI, will agree to voluntary guidelines that may be a first step to wider regulations.`\
-https://nytimes.com/2023/07/21/business/biden-ai-safety-meta-openai-google-microsoft.html?searchResultPosition=10
+https://nytimes.com/2023/07/21/arts/music/tony-bennett-dead.html?searchResultPosition=10
 
