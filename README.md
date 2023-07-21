@@ -6,8 +6,8 @@ https://nytimes.com/2023/07/20/pageoneplus/quotation-of-the-day-stranded-along-t
 `Corrections that appeared in print on Friday, July 21, 2023.`\
 https://nytimes.com/2023/07/20/pageoneplus/corrections-july-21-2023.html?searchResultPosition=2
 
-**U.K. Voters Hand Sunak’s Party a Defeat and a Win in By-elections**\
-`The governing Conservative Party lost in one electoral district but avoided defeat in Uxbridge and South Ruislip, Boris Johnson’s former seat. A third contest was still to be decided.`\
+**U.K. Voters Hand Sunak’s Party Two Defeats and a Win in By-elections**\
+`The governing Conservative Party lost in two electoral districts to Labour and the Liberal Democrats, but avoided defeat in Uxbridge and South Ruislip, Boris Johnson’s former seat in Parliament.`\
 https://nytimes.com/2023/07/20/world/europe/uk-elections-sunak-conservatives.html?searchResultPosition=3
 
 **Variety: Chain Link**\
