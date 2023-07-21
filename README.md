@@ -4,7 +4,7 @@ https://nytimes.com/2023/07/21/us/politics/trump-classified-documents-trial-date
 
 **What to Read to Understand the Unrest in France**\
 `Severe protests have roiled France in recent weeks, after a police officer fatally shot a French teenager of Algerian and Moroccan descent in a suburb of Paris. The demonstrations fit a longstanding pattern.`\
-https://nytimes.com/2023/07/21/world/reading-unrest-france.html?searchResultPosition=2
+https://nytimes.com/2023/07/21/world/europe/reading-unrest-france.html?searchResultPosition=2
 
 **A Long Dip in the Hudson and More: The Week in Reporter Reads**\
 `Articles from around The Times, narrated just for you.`\
