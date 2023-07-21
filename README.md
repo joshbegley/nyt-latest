@@ -1,4 +1,4 @@
-**U.K. Voters Hand Sunak’s Party a Crushing Defeat and a Win in By-elections**\
+**U.K. Voters Hand Sunak’s Party a Defeat and a Win in By-elections**\
 `The governing Conservative Party lost in one electoral district but avoided defeat in Uxbridge and South Ruislip, Boris Johnson’s former seat. A third contest was still to be decided.`\
 https://nytimes.com/2023/07/20/world/europe/uk-elections-sunak-conservatives.html?searchResultPosition=1
 
