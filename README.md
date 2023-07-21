@@ -3,7 +3,7 @@
 https://nytimes.com/interactive/2023/07/21/business/media/barbie-openheimer-ticket-sales.html?searchResultPosition=1
 
 **Michael Cohen Expected to Settle Lawsuit With Trump Organization**\
-`Donald J. Trump’s former fixer had accused the company of failing to abide by the terms of a deal and refusing to pay more than $1 million in legal costs`\
+`Donald J. Trump’s former fixer had accused the company of failing to abide by the terms of a deal and refusing to pay more than $1 million in legal costs.`\
 https://nytimes.com/2023/07/21/nyregion/michael-cohen-trump-org-lawsuit.html?searchResultPosition=2
 
 **Buddhist Art From India: Where the Natural Meets the Supernatural**\
