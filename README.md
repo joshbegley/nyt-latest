@@ -8,7 +8,7 @@ https://nytimes.com/2023/07/21/learning/summer-reading-contest-week-7-what-got-y
 
 **Is Gen Z Down to Clown? The Circus Is Counting on It.**\
 `Cirque de Soleil is hoping that it can expand its audience, perhaps with perfume that smells like a trapeze artist or a couch that embodies the spirit of clowning.`\
-https://nytimes.com/2023/07/21/business/is-gen-z-down-to-clown-the-circus-is-counting-on-it.html?searchResultPosition=3
+https://nytimes.com/2023/07/21/business/gen-z-cirque-de-soleil.html?searchResultPosition=3
 
 **The Markets Are Counting on the Fed to Solve a Tricky Puzzle**\
 `Lowering inflation to 2 percent without causing a recession and throwing people out of work would be a rare achievement. The markets are acting as if it has already happened.`\
