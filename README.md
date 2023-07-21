@@ -34,7 +34,7 @@ https://nytimes.com/2023/07/21/briefing/trump-trial-date-biden-ai-leaders.html?s
 `Rewatch podcasts and podcasts affiliated with Hollywood studios were at the center of a week of confusion over union policies. “Nobody really knows,” said Sophia Bush of “One Tree Hill.”`\
 https://nytimes.com/2023/07/21/arts/actors-strike-podcasts-rewatch.html?searchResultPosition=9
 
-**For Trump and Allies, Outcome of Georgia Election Inquiry Nears**\
-`The prosecutor overseeing the investigation into election interference will make her case next month to a grand jury in Atlanta that could hand up indictments.`\
+**For Trump and Allies, a Waiting Game as Georgia Indictment Decisions Loom**\
+`The prosecutor overseeing the investigation into election interference will make her case next month to a grand jury in Atlanta. Nearly 20 people have been warned that they could face charges.`\
 https://nytimes.com/2023/07/21/us/trump-georgia-investigation-indictment.html?searchResultPosition=10
 
