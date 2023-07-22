@@ -1,4 +1,4 @@
-**Hurricane Don Forms in the Atlantic Ocean**\
+**Hurricane Don Forms, Becoming the First of the Atlantic Season**\
 `The storm is the first Atlantic hurricane of the season, but it does not pose a threat to land, meteorologists said.`\
 https://nytimes.com/article/tropical-storm-don-hurricane.html?searchResultPosition=1
 
