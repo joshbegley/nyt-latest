@@ -1,6 +1,6 @@
 **Stars Muted No More at British Open, Rahm Roars Up Leaderboard**\
 `Jon Rahm’s 63 was a record for an Open at Royal Liverpool, but Brian Harman will enter Sunday with a five-shot lead.`\
-https://nytimes.com/2023/07/22/sports/golf/british-open-rham-scheffler-mcilroy.html?searchResultPosition=1
+https://nytimes.com/2023/07/22/sports/golf/british-open-rahm-scheffler-mcilroy.html?searchResultPosition=1
 
 **Richard Barancik, Last of the World War II Monuments Men, Dies at 98**\
 `He played a role in the celebrated Allied operation to preserve European artworks and cultural treasures stolen by the Nazis.`\
