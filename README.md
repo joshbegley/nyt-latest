@@ -11,7 +11,7 @@ https://nytimes.com/2023/07/22/us/politics/ron-desantis-covid.html?searchResultP
 https://nytimes.com/2023/07/22/sports/soccer/france-herve-renard-world-cup.html?searchResultPosition=3
 
 **11 Killed in Suspected Arson in Mexico Club**\
-`Prosecutors say a man hurled a Molotov cocktail at the bar after being ejected. Mexico has struggled to tamp down on raging violent crime.`\
+`Prosecutors say a man hurled a firebomb at the bar after being ejected. Mexico has struggled to tamp down on raging violent crime.`\
 https://nytimes.com/2023/07/22/world/americas/san-luis-rio-colorado-arson.html?searchResultPosition=4
 
 **A Thrilling, Rediscovered Nina Simone Set, and 9 More New Songs**\
