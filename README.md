@@ -18,8 +18,8 @@ https://nytimes.com/2023/07/22/us/mike-reynolds-dead.html?searchResultPosition=4
 `The heavily armed search that upended the southern edge of the German capital met an anti-climactic end — and left some scratching their heads: “A wild boar doesn’t really look like a lion.”`\
 https://nytimes.com/2023/07/22/world/europe/berlin-lioness-boar.html?searchResultPosition=5
 
-**Wildfires Imperil Greek Isle of Rhodes, Forcing Big Evacuation**\
-`Greek Coast Guard vessels were dispatched to rescue visitors and residents on the large island, a leading tourist destination. Some fled in their bathing suits.`\
+**Wildfires Imperil Greek Isle of Rhodes, Forcing Big Relocation**\
+`Greek Coast Guard vessels were dispatched to rescue visitors and residents trapped in threatened seaside villages on the large island, a leading tourist destination. Some fled in their bathing suits.`\
 https://nytimes.com/2023/07/22/world/europe/greece-fires-rhodes-evacuation.html?searchResultPosition=6
 
 **Kidnapped Girl’s ‘Help Me!’ Sign Leads to Her Rescue**\
