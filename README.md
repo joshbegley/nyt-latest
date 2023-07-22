@@ -34,7 +34,7 @@ https://nytimes.com/2023/07/22/opinion/the-stagnation-of-ron-desantis.html?searc
 `The search for a mysterious family who disappeared without a trace.`\
 https://nytimes.com/2023/07/22/podcasts/house-on-loon-lake-this-american-life.html?searchResultPosition=9
 
-**Whatever You Think of the Movies, the Barbenheimer Memes Are Glorious**\
-`This explosion of fan-driven creativity is so much more entertaining than mere marketing could ever be.`\
-https://nytimes.com/2023/07/22/opinion/barbie-oppenheimer-meme-culture.html?searchResultPosition=10
+**With Israel, It’s Time to Start Discussing the Unmentionable**\
+`Does it make sense for the United States to provide $3.8 billion annually to another rich country, indefinitely?`\
+https://nytimes.com/2023/07/22/opinion/israel-military-aid.html?searchResultPosition=10
 
