@@ -35,6 +35,6 @@ https://nytimes.com/2023/07/22/sports/super-shoes-training.html?searchResultPosi
 https://nytimes.com/2023/07/22/world/middleeast/jerusalem-protest-march-israel.html?searchResultPosition=9
 
 **Far Right May Rise as Kingmaker in Spanish Election**\
-`A messier political landscape has lent leverage to the extremes, leaving a hard-right party poised to share power for the first time since Franco.`\
+`A messier political landscape has lent leverage to the extremes, leaving a hard-right party with a chance to share power for the first time since Franco.`\
 https://nytimes.com/2023/07/22/world/europe/spains-election-extremes.html?searchResultPosition=10
 
