@@ -1,40 +1,40 @@
+**How a YouTube Sensation Spends His Sundays**\
+`Marc Rebillet, who became known during pandemic lockdowns for livestreaming improvised songs featuring electronic loops, takes his grooves to the streets.`\
+https://nytimes.com/2023/07/22/nyregion/marc-rebillet-we-outside.html?searchResultPosition=1
+
+**An All-Star Lineup**\
+`To boost its sagging fortunes, The Times introduced six new daily sections in the late 1970s. One of them was SportsMonday, a visual knockout.`\
+https://nytimes.com/2023/07/22/pageoneplus/an-all-star-lineup.html?searchResultPosition=2
+
+**UPS Contract Talks Go Down to the Wire as a Possible Strike Looms**\
+`With the Teamsters contract set to expire Aug. 1, pay for part-time workers is a major hurdle. A walkout could rattle the U.S. economy.`\
+https://nytimes.com/2023/07/22/business/economy/ups-teamsters-strike.html?searchResultPosition=3
+
+**Today’s Wordle Review**\
+`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
+https://nytimes.com/2023/07/22/crosswords/wordle-review-answer-763.html?searchResultPosition=4
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2023/07/22/crosswords/spelling-bee-forum.html?searchResultPosition=5
+
 **Beijing Offers Love, but Chinese Entrepreneurs Aren’t Buying It**\
 `The government’s new 31-point guidelines meant to inspire confidence feel empty to businesspeople after a three-year clampdown and no concrete changes.`\
-https://nytimes.com/2023/07/22/business/china-private-enterprise.html?searchResultPosition=1
+https://nytimes.com/2023/07/22/business/china-private-enterprise.html?searchResultPosition=6
 
 **Gunman in Fargo Attack Looked Up Mass Shootings Online, Officials Say**\
 `The slain gunman had a large stockpile of weapons and had made troubling online searches before the shooting in North Dakota that left an officer dead.`\
-https://nytimes.com/2023/07/21/us/fargo-north-dakota-shooting.html?searchResultPosition=2
+https://nytimes.com/2023/07/21/us/fargo-north-dakota-shooting.html?searchResultPosition=7
 
 **Quotation of the Day: Vegans Make Smaller Mark on the Planet Than Others**\
 `Quotation of the Day for Saturday, July 22, 2023`\
-https://nytimes.com/2023/07/21/pageoneplus/quotation-of-the-day-vegans-make-smaller-mark-on-the-planet-than-others.html?searchResultPosition=3
+https://nytimes.com/2023/07/21/pageoneplus/quotation-of-the-day-vegans-make-smaller-mark-on-the-planet-than-others.html?searchResultPosition=8
 
 **Corrections: July 22, 2023**\
 `Corrections that appeared in print on Saturday, July 22, 2023.`\
-https://nytimes.com/2023/07/21/pageoneplus/corrections-july-22-2023.html?searchResultPosition=4
+https://nytimes.com/2023/07/21/pageoneplus/corrections-july-22-2023.html?searchResultPosition=9
 
 **Extreme Challenges**\
 `Buckle up for Robert Logan’s tough Saturday puzzle.`\
-https://nytimes.com/2023/07/21/crosswords/daily-puzzle-2023-07-22.html?searchResultPosition=5
-
-**New Yorkers Got Broken Promises. Developers Got 20 Million Sq. Ft.**\
-`It was supposed to be an even trade: Permission to raise larger buildings in exchange for airy, open spaces for the public. The reality has been different.`\
-https://nytimes.com/interactive/2023/07/21/nyregion/nyc-developers-private-owned-public-spaces.html?searchResultPosition=6
-
-**‘Barbenheimer’ Is a Huge Hollywood Moment and Maybe the Last for a While**\
-`The big launch of “Barbie” and “Oppenheimer” should have been a celebratory moment, but an industry on pause has darkened the mood.`\
-https://nytimes.com/2023/07/21/movies/barbenheimer-strike.html?searchResultPosition=7
-
-**Booz Allen Pays $377.5 Million to Settle Government Billing Case**\
-`The consulting firm was accused of falsely charging for expenses that should have been paid under its nongovernment contracts from 2011 to 2021.`\
-https://nytimes.com/2023/07/21/business/booz-allen-billing-settlement.html?searchResultPosition=8
-
-**An Untested Judge in the Trump Documents Case**\
-`Judge Aileen M. Cannon’s ruling to start the Trump documents trial in May 2024 showed, for now, that she is the jurist defenders have described: level-headed and not beholden to the man who appointed her.`\
-https://nytimes.com/2023/07/21/us/judge-cannon.html?searchResultPosition=9
-
-**In Black Sea Showdown, Russia Batters Ukraine’s Ability to Export Grain**\
-`Russia held exercises demonstrating its power to sink ships and stop those that try to run its blockade. For Ukrainian food exports to resume, Moscow said, a list of demands must be met.`\
-https://nytimes.com/2023/07/21/world/europe/ukraine-russia-grain-shipping.html?searchResultPosition=10
+https://nytimes.com/2023/07/21/crosswords/daily-puzzle-2023-07-22.html?searchResultPosition=10
 
