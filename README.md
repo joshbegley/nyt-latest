@@ -3,7 +3,7 @@
 https://nytimes.com/2023/07/22/world/europe/berlin-lioness-boar.html?searchResultPosition=1
 
 **Wildfires Imperil Greek Isle of Rhodes, Forcing Big Evacuation**\
-`Greek Coast Guard vessels were dispatched to rescue visitors and residents on the large island, a leading tourist destination,`\
+`Greek Coast Guard vessels were dispatched to rescue visitors and residents on the large island, a leading tourist destination. Some fled in their bathing suits.`\
 https://nytimes.com/2023/07/22/world/europe/wildfires-imperil-greek-isle-of-rhodes-forcing-big-evacuation.html?searchResultPosition=2
 
 **Kidnapped Girl’s ‘Help Me!’ Sign Leads to Her Rescue**\
