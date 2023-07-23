@@ -19,7 +19,7 @@ https://nytimes.com/article/tropical-storm-don-hurricane.html?searchResultPositi
 https://nytimes.com/2023/07/22/arts/jamie-foxx-video-condition.html?searchResultPosition=5
 
 **No Opposition. No Choice. Cambodia’s Election Paves Way for Dynastic Rule.**\
-`Hun Sen, the prime minister for nearly four decades, applied familiar tactics ahead of the vote to guarantee he would run virtually unopposed, and set the stage for his son to rule the country.`\
+`Hun Sen, the prime minister for nearly four decades, applied familiar tactics ahead of Sunday’s vote to guarantee he would run virtually unopposed, and set the stage for his son to rule the country.`\
 https://nytimes.com/2023/07/22/world/asia/no-opposition-no-choice-cambodias-election-paves-way-for-dynastic-rule.html?searchResultPosition=6
 
 **Aural Surgery**\
