@@ -6,7 +6,7 @@ https://nytimes.com/2023/07/23/arts/music/henri-viii-bard-opera.html?searchResul
 `A second firefighter was also shot in the attack at a Birmingham fire station this month. A motive for the shooting is unknown.`\
 https://nytimes.com/2023/07/23/us/alabama-firefighter-dead-shot.html?searchResultPosition=2
 
-**As Inquires Compound, Justice System Pours Resources Into Scrutinizing Trump**\
+**As Inquiries Compound, Justice System Pours Resources Into Scrutinizing Trump**\
 `For all their complexity, the Trump-related prosecutions have not significantly constrained the ability of prosecutors to carry out their regular duties, officials have said.`\
 https://nytimes.com/2023/07/23/us/politics/trump-investigations-jack-smith-justice-department.html?searchResultPosition=3
 
