@@ -1,5 +1,5 @@
 **Inconclusive Election Thrusts Spain Into Political Muddle**\
-`Preliminary results showed no party winning the support needed to govern, leaving the country facing weeks of uncertainty.`\
+`The returns showed no party winning the support needed to govern, leaving the country facing weeks of uncertainty.`\
 https://nytimes.com/2023/07/23/world/europe/spanish-election-inconclusive-results.html?searchResultPosition=1
 
 **Your Monday Briefing: A Major Vote in Israel**\
