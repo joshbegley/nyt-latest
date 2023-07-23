@@ -35,6 +35,6 @@ https://nytimes.com/2023/07/23/crosswords/spelling-bee-forum.html?searchResultPo
 https://nytimes.com/2023/07/23/world/europe/1-dead-in-odesa-as-russia-strikes-cathedral-and-apartment-buildings.html?searchResultPosition=9
 
 **Netanyahu Hospitalized for Heart Defect as Israel’s Turmoil Intensifies**\
-`Doctors said Benjamin Netanyahu, the Israeli prime minister, was “doing very well” after an unexpected heart surgery early Sunday. But the news compounded the chaos prompted by a government plan to limit judicial power.`\
+`Doctors said Prime Minister Benjamin Netanyahu was “doing very well” after unexpected heart surgery early Sunday. But the news only compounded the chaos over a government plan to limit judicial power.`\
 https://nytimes.com/2023/07/23/world/middleeast/netanyahu-hospitalized-heart-implant.html?searchResultPosition=10
 
