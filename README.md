@@ -1,5 +1,5 @@
 **Wildfires on Greek Island Force Mass Evacuations**\
-`Thousands of tourists and residents spent the night in makeshift shelters as raging blazes threatened seaside areas on the Greek island of Rhodes.`\
+`Thousands of tourists and residents spent the night in makeshift shelters as raging blazes threatened seaside areas on Rhodes.`\
 https://nytimes.com/video/world/europe/100000009008607/greece-rhodes-wildfires.html?searchResultPosition=1
 
 **Spain General Election Results**\
