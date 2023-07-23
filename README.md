@@ -31,7 +31,7 @@ https://nytimes.com/2023/07/23/us/politics/whistle-blower-biden.html?searchResul
 https://nytimes.com/video/world/europe/100000009008708/odesa-ukraine-cathedral.html?searchResultPosition=8
 
 **Brian Harman Romps to British Open Victory at Royal Liverpool**\
-`Harman came close to winning the 2017 U.S. Open, but his triumph on Sunday gave the 36-year-old American golfer his first major title.`\
+`Harman, a 36-year-old American, came close to winning the 2017 U.S. Open, but his triumph on Sunday gave him his first major title.`\
 https://nytimes.com/2023/07/23/sports/golf/british-open-brian-harman.html?searchResultPosition=9
 
 **Elon Musk Says Twitter Will Change Its Logo**\
