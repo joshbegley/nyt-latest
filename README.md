@@ -14,8 +14,8 @@ https://nytimes.com/2023/07/23/arts/music/tony-bennett-civil-rights.html?searchR
 `Mr. President, this Israeli government needs another dose of your tough love about our shared interests and about U.S. strategic interests.`\
 https://nytimes.com/2023/07/23/opinion/israel-biden.html?searchResultPosition=4
 
-**Box Office to the World: The Pandemic Is Officially Over**\
-`With the biggest revenues since 2019, “Barbenheimer” gives the usual franchises a run for their money, selling out even predawn features.`\
+**‘Barbie’ Box Office to the World: The Pandemic Is Officially Over**\
+`With the biggest revenues since 2019, “Barbenheimer” gives the usual franchises a run for their money, selling out even predawn screenings.`\
 https://nytimes.com/2023/07/23/movies/barbie-oppenheimer-box-office-numbers.html?searchResultPosition=5
 
 **Israel’s Identity Hangs in the Balance Ahead of Key Vote on New Law**\
