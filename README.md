@@ -27,7 +27,7 @@ https://nytimes.com/2023/07/23/us/cheri-pies-dead.html?searchResultPosition=6
 https://nytimes.com/2023/07/23/opinion/maternal-mortality.html?searchResultPosition=7
 
 **Pacific Seabed Mining Delayed as International Agency Finalizes Rules**\
-`Efforts to extract the  metals used in car batteries have been pushed off amid pressure from environmentalists and nations that oppose them.`\
+`Efforts to extract the metals used in car batteries have been pushed off amid pressure from environmentalists and nations that oppose them.`\
 https://nytimes.com/2023/07/23/us/politics/pacific-seabed-mining-delayed.html?searchResultPosition=8
 
 **Raging Fires on Rhodes Force Thousands to Scramble for Refuge**\
