@@ -3,7 +3,7 @@
 https://nytimes.com/2023/07/23/world/europe/1-dead-in-odesa-as-russia-strikes-cathedral-and-apartment-buildings.html?searchResultPosition=1
 
 **Netanyahu Hospitalized for Heart Defect as Israel’s Turmoil Intensifies**\
-`Doctors said Benjamin Netanyahu, the Israeli prime minister, was “doing very well” after an unexpected heart operation early Sunday. But the news compounded the chaos prompted by a government plan to limit judicial power.`\
+`Doctors said Benjamin Netanyahu, the Israeli prime minister, was “doing very well” after an unexpected heart surgery early Sunday. But the news compounded the chaos prompted by a government plan to limit judicial power.`\
 https://nytimes.com/2023/07/23/world/middleeast/netanyahu-hospitalized-heart-implant.html?searchResultPosition=2
 
 **Spain Votes on Sunday: Here’s What to Know**\
