@@ -1,4 +1,4 @@
-**Weary Soldiers,Unreliable Munitions: Ukraine’s Many Challenges**\
+**Weary Soldiers, Unreliable Munitions: Ukraine’s Many Challenges**\
 `A month of reporting by New York Times journalists found the fighting mostly stalemated and Ukraine facing an array of obstacles against a determined foe.`\
 https://nytimes.com/2023/07/23/world/europe/weary-soldiersunreliable-munitions-ukraines-many-challenges.html?searchResultPosition=1
 
