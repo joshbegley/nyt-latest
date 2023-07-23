@@ -1,6 +1,6 @@
 **Elon Musk Says Twitter Will Change Its Logo**\
 `The tech billionaire indicated he would replace the company’s blue bird silhouette with an X.`\
-https://nytimes.com/2023/07/23/business/elon-musk-says-twitter-will-change-its-logo.html?searchResultPosition=1
+https://nytimes.com/2023/07/23/business/elon-musk-twitter-logo.html?searchResultPosition=1
 
 **Tony Bennett Used His Celebrity to Promote Civil Rights**\
 `The singer witnessed racism in the military and in the music industry, experiences that informed his decision to join the Selma-to-Montgomery march in 1965.`\
