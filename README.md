@@ -1,6 +1,6 @@
 **Friendly Gathering**\
 `With this theme, John Ewbank traces a clear arc.`\
-https://nytimes.com/2023/07/23/crosswords/daily-puzzle-07-24.html?searchResultPosition=1
+https://nytimes.com/2023/07/23/crosswords/daily-puzzle-2023-07-24.html?searchResultPosition=1
 
 **‘Futurama’ Review: Latest Go-Round Mines the Past**\
 `The animated sci-fi comedy, now on Hulu as a reboot of a reboot of a reboot, is the same show as ever. For fans, that will be enough.`\
