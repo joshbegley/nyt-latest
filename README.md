@@ -14,8 +14,8 @@ https://nytimes.com/2023/07/23/us/politics/trump-investigations-jack-smith-justi
 `Fans nationwide shopped their closets for the rosiest interpretations of the Barbie ethos: sparkly bags, open-toed pumps, stretchy headbands and more.`\
 https://nytimes.com/2023/07/23/movies/barbie-fans-outfits.html?searchResultPosition=4
 
-**Jonas Vingegaard Wins Tour de France Again, After Vanquishing His Rival**\
-`What started as a tense two-man battle became a foregone conclusion when Tadej Pogacar couldn’t stay with Vingegaard in the 17th stage.`\
+**Jonas Vingegaard Wins Tour de France Again After Vanquishing His Rival**\
+`What started as a tense two-man battle became a foregone conclusion when Tadej Pogacar couldn’t stay with Vingegaard in the 17th stage of the race.`\
 https://nytimes.com/2023/07/23/sports/cycling/vingegaard-tour-de-france.html?searchResultPosition=5
 
 **U.S. Confronts Tight but Turbulent Relationship With Israel**\
