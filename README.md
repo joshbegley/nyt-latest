@@ -4,7 +4,7 @@ https://nytimes.com/2023/07/24/t-magazine/amsterdam-dinner-party-summer.html?sea
 
 **Iranian Mothers Choose Exile for Sake of Their Daughters**\
 `Some have risked their lives to escape to Iraq or other nearby countries, where they have found havens to start over.`\
-https://nytimes.com/2023/07/24/world/middleeast/iranian-mothers-choose-exile-for-sake-of-their-daughters.html?searchResultPosition=2
+https://nytimes.com/2023/07/24/world/middleeast/iran-women-girls-leave.html?searchResultPosition=2
 
 **Seeking Full Honors, Some Ukrainian Families Wait to Bury Their Dead**\
 `Thousands of families have buried soldiers in cemeteries across Ukraine in “Alleys of Heroes.” But some have held off, awaiting a version of Arlington National Cemetery.`\
