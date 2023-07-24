@@ -1,5 +1,5 @@
-**Russia Says It Destroyed 2 Drones Targeting Moscow**\
-`The authorities closed part of a highway after finding the wreckage of a drone. Video verified by The New York Times shows smoke and damage to several buildings.`\
+**Russia Says It Destroyed 2 Drones Targeting Moscow, Blames Ukraine**\
+`Two buildings were hit and there were no reports of casualties. Video verified by The New York Times shows smoke and damage to several buildings.`\
 https://nytimes.com/2023/07/23/world/europe/explosions-moscow-drones.html?searchResultPosition=1
 
 **Well-Traveled Stars Find Their Forever Home in Cooperstown**\
