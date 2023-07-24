@@ -30,7 +30,7 @@ https://nytimes.com/2023/07/24/world/europe/ukraine-unburied-dead-cemetery.html?
 `Chronic pain, fatigue, rashes: As tick territories are expanding, so too are the number of illnesses they cause.`\
 https://nytimes.com/2023/07/24/well/live/tick-lyme-disease.html?searchResultPosition=8
 
-**Short-Term Pain for Long-term Gain? Nigerians Buckle Under Painful Cuts.**\
+**Short-Term Pain for Long-Term Gain? Nigerians Buckle Under Painful Cuts.**\
 `In his first two months in office, President Bola Tinubu has ripped the Band-Aid off Nigeria’s ailing economy. Time will tell if it can heal, but for now, Nigerians are feeling the pain.`\
 https://nytimes.com/2023/07/24/world/africa/nigeria-tinubu-crisis.html?searchResultPosition=9
 
