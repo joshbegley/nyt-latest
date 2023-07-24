@@ -1,40 +1,40 @@
-**Woman Is Found Dead Near Bear Tracks Outside Yellowstone, Officials Say**\
-`The woman’s body was discovered on a trail near the national park after an apparent encounter with a grizzly bear, officials said.`\
-https://nytimes.com/2023/07/24/us/bear-attack-death-montana.html?searchResultPosition=1
+**Iranian Mothers Choose Exile for Sake of Their Daughters**\
+`Some have risked their lives to escape to Iraq or other nearby countries, where they have found havens to start over.`\
+https://nytimes.com/2023/07/24/world/middleeast/iranian-mothers-choose-exile-for-sake-of-their-daughters.html?searchResultPosition=1
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/07/24/crosswords/spelling-bee-forum.html?searchResultPosition=2
+**Seeking Full Honors, Some Ukrainian Families Wait to Bury Their Dead**\
+`Thousands of families have buried soldiers in cemeteries across Ukraine in “Alleys of Heroes.” But some have held off, awaiting a version of Arlington National Cemetery.`\
+https://nytimes.com/2023/07/24/world/europe/ukraine-unburied-dead-cemetery.html?searchResultPosition=2
 
-**From Norway, a Voice Unafraid to Call Out FIFA From the Inside**\
-`Lise Klaveness is a rarity in soccer: a woman leading a national federation. But in pointing out her sport’s failures, she has made powerful enemies.`\
-https://nytimes.com/2023/07/24/sports/soccer/world-cup-norway-lise-klaveness-fifa.html?searchResultPosition=3
+**What It’s Like to Live With a Tick-Borne Disease**\
+`Chronic pain, fatigue, rashes: As tick territories are expanding, so too are the number of illnesses they cause.`\
+https://nytimes.com/2023/07/24/well/live/tick-lyme-disease.html?searchResultPosition=3
 
-**Not to Jinx It, but Is the Commute Easier Lately?**\
-`With most hybrid workers in the office only three days a week, getting to work on Mondays and Fridays is surprisingly not bad.`\
-https://nytimes.com/2023/07/24/nyregion/commute-new-york-hybrid-work.html?searchResultPosition=4
+**Short-Term Pain for Long-term Gain? Nigerians Buckle Under Painful Cuts.**\
+`In his first two months in office, President Bola Tinubu has ripped the Band-Aid off Nigeria’s ailing economy. Time will tell if it can heal, but for now, Nigerians are feeling the pain.`\
+https://nytimes.com/2023/07/24/world/africa/nigeria-tinubu-crisis.html?searchResultPosition=4
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/07/24/crosswords/wordle-review-answer-765.html?searchResultPosition=5
+**On the Road With Will Hurd, the Bipartisan Candidate in Search of a Base**\
+`Hoping to break through a crowded presidential field in 2024, the former Texas congressman is pitching himself as a modern and moderate Republican with a bipartisan vision.`\
+https://nytimes.com/2023/07/24/us/politics/will-hurd-2024-republican-primary.html?searchResultPosition=5
 
-**Word of the Day: composure**\
-`This word has appeared in 81 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/07/24/learning/word-of-the-day-composure.html?searchResultPosition=6
+**Are You Ready? Gen Z Is Bringing Nu Metal Back.**\
+`Bands like Deftones and Slipknot are resonating with younger fans, thanks to TikTok, the Y2K revival and, of course, enduring teenage angst.`\
+https://nytimes.com/2023/07/24/style/nu-metal-gen-z.html?searchResultPosition=6
 
-**Passenger Boat in Indonesia Capsizes, Killing 15**\
-`Most passengers traveling on the overcrowded boat survived Monday’s accident off the island of Sulawesi.`\
-https://nytimes.com/2023/07/24/world/asia/indonesia-boat-missing.html?searchResultPosition=7
+**Hollywood Strikes Mean Steady Diet of Reruns, Game Shows and Reality TV**\
+`TV viewers across the U.S. will see fewer new scripted shows, a trend that could continue well into next year if the walkouts continue.`\
+https://nytimes.com/2023/07/24/business/media/tv-strikes-series-delays.html?searchResultPosition=7
 
-**Quotation of the Day: In Philadelphia, City Pools Bring Joy. At Least, the Ones That Opened.**\
-`Quotation of the Day for Monday, July 24, 2023.`\
-https://nytimes.com/2023/07/24/pageoneplus/quotation-of-the-day-in-philadelphia-city-pools-bring-joy-at-least-the-ones-that-opened.html?searchResultPosition=8
+**In Search of a Crowd-Free Summer Getaway? Try These 6 Hotels.**\
+`A guest ranch in Wyoming, a boutique hotel in Argentina’s wine country, a revamped beachside motel in New York: Here’s where to go if you want to ditch big-city crowds.`\
+https://nytimes.com/2023/07/24/travel/hotels-for-a-quiet-summer-getaway.html?searchResultPosition=8
 
-**No Corrections: July 24, 2023**\
-`No corrections appeared in print on Monday, July 24, 2023.`\
-https://nytimes.com/2023/07/24/corrections/no-corrections-july-24-2023.html?searchResultPosition=9
+**Making Peace With the House Wrens’ Havoc**\
+`When you are paying attention to nature, you will always see something you don’t want to see.`\
+https://nytimes.com/2023/07/24/opinion/birds-nature-beauty-violence.html?searchResultPosition=9
 
-**Buckle Your (DeLorean) Seatbelt: ‘Back to the Future’ Lands on Broadway**\
-`In adapting a beloved franchise for the stage, the creative team sought to develop the story for new audiences while remaining true to the spirit of the films.`\
-https://nytimes.com/2023/07/24/theater/back-to-the-future-broadway.html?searchResultPosition=10
+**We’ve Been on the Front Lines. We Know What Ukraine Needs.**\
+`The war in Ukraine is changing fast. The U.S. must also be ready to pivot in its military assistance.`\
+https://nytimes.com/2023/07/24/opinion/ukraine-russia-war-military-aid.html?searchResultPosition=10
 
