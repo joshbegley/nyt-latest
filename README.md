@@ -2,7 +2,7 @@
 `The disappearance and killing of Gretchen Harrington in Broomall, Pa., had been a mystery for decades. The authorities said on Monday that a former leader at the girl’s church had been charged.`\
 https://nytimes.com/2023/07/24/us/gretchen-harrington-cold-case-david-zandstra.html?searchResultPosition=1
 
-**Jan. 6 Rioter Who Beat Officer With Flagpole Gets 52-Month Sentence**\
+**Jan. 6 Rioter Who Beat Officer With Flagpole Gets Four-Year Sentence**\
 `Peter Stager, a truck driver from Arkansas, is one of nine men charged in one of the most disturbing attacks on police officers during the assault on the Capitol.`\
 https://nytimes.com/2023/07/24/us/politics/jan-6-flagpole-sentence.html?searchResultPosition=2
 
