@@ -14,7 +14,7 @@ https://nytimes.com/2023/07/24/sports/soccer/kylian-mbappe-saudi-arabia.html?sea
 `Political figures of all types grabbed for the legs of a doll-turned-movie-turned-cultural moment, with predictable results.`\
 https://nytimes.com/2023/07/24/us/politics/barbie-movie-newsom-gaetz.html?searchResultPosition=4
 
-**A Student Was Suspended After Posting Memes About His Principal**\
+**A Student Sues After Suspension for Mocking Principal on Instagram**\
 `A lawsuit filed on behalf of the 17-year-old student accuses his Tennessee school district and two administrators of violating his First Amendment rights.`\
 https://nytimes.com/2023/07/24/us/student-memes-tennessee-suspended.html?searchResultPosition=5
 
