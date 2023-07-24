@@ -1,4 +1,4 @@
-**Flood of Workers Has Made the Fed’s Job Less Painful. Can It Persist?**\
+**A Flood of New Workers Has Made the Fed’s Job Less Painful. Can It Persist?**\
 `Federal Reserve officials thought job gains would taper off more, but they’ve remained strong. An improving supply of workers has been crucial.`\
 https://nytimes.com/2023/07/24/business/economy/labor-supply-federal-reserve.html?searchResultPosition=1
 
