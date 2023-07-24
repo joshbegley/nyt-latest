@@ -1,4 +1,4 @@
-**Far Right’s Collapse in Spain Brings Relief for Europe**\
+**What the Collapse of Spain’s Far Right Means Going Forward**\
 `About the only thing clear from Spain’s muddled election results was that Spaniards were turning away from the political extremes.`\
 https://nytimes.com/2023/07/24/world/europe/spain-election-vox-party.html?searchResultPosition=1
 
