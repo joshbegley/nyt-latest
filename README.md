@@ -8,7 +8,7 @@ https://nytimes.com/2023/07/24/world/europe/macron-france-riots.html?searchResul
 
 **From Twitter to X: Elon Musk Begins Erasing an Iconic Internet Brand**\
 `The tech billionaire started removing the bird logo that has been part of Twitter’s identity since 2006.`\
-https://nytimes.com/2023/07/24/technology/twitter-to-x-brand-elon-musk.html?searchResultPosition=3
+https://nytimes.com/2023/07/24/technology/twitter-x-elon-musk.html?searchResultPosition=3
 
 **How Do You Party — Barbie Style?**\
 `Infusing themes, characters and — of course — the color pink, people used the movie to inspire their own celebrations.`\
