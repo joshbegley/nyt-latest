@@ -7,7 +7,7 @@ https://nytimes.com/2023/07/24/world/middleeast/israel-judiciary-reasonableness-
 https://nytimes.com/2023/07/24/opinion/new-york-congestion-charge.html?searchResultPosition=2
 
 **Obama Family Chef Dies While Paddleboarding on Martha’s Vineyard**\
-`Tafari Campbell was as a sous chef at the White House during the Obama administration and stayed on with the family when they moved to private life.`\
+`Tafari Campbell was a sous chef at the White House during the Obama administration and stayed on with the family when they moved to private life.`\
 https://nytimes.com/2023/07/24/us/obama-chef-drowned-paddleboard.html?searchResultPosition=3
 
 **Former Church Minister Charged With 1975 Murder of 8-Year-Old Girl**\
