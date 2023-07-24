@@ -6,8 +6,8 @@ https://nytimes.com/2023/07/24/dining/lemon-bars.html?searchResultPosition=1
 `“Try That in a Small Town” went from overlooked to almost topping the charts after a week of controversy.`\
 https://nytimes.com/2023/07/24/arts/music/jason-aldean-small-town-billboard.html?searchResultPosition=2
 
-**Kylian Mbappé Is Being Pursued by a Saudi Team for a Transfer**\
-`Al Hilal of the Saudi Professional League made a bid to Paris St.-Germain to acquire Mbappé in what would be the most expensive transfer on record.`\
+**Saudi Team Makes Record Offer for Kylian Mbappé: $332 Million**\
+`Al Hilal of the Saudi Professional League made a bid to Paris St.-Germain to acquire the French striker in what would be the most expensive soccer transfer in history.`\
 https://nytimes.com/2023/07/24/sports/soccer/kylian-mbappe-saudi-arabia.html?searchResultPosition=3
 
 **C’mon Barbie, Let’s Go Argue About Politics**\
