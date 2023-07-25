@@ -10,8 +10,8 @@ https://nytimes.com/2023/07/25/style/attenzione-pickpocket.html?searchResultPosi
 `A picnic kit from Shake Shack, a branch of Fieldtrip opens in Morningside Heights and more restaurant news.`\
 https://nytimes.com/2023/07/25/dining/restaurant-openings-nyc.html?searchResultPosition=3
 
-**UPS Announces Contract Accord With Teamsters to Head Off Strike**\
-`United Parcel Service faced a potential walkout by more than 325,000 union members when their five-year contract expired next week.`\
+**UPS Reaches Tentative Deal With Teamsters to Head Off Strike**\
+`United Parcel Service faced a potential walkout by more than 325,000 union members after their five-year contract expires next week.`\
 https://nytimes.com/2023/07/25/business/economy/ups-teamsters-contract-strike.html?searchResultPosition=4
 
 **Christie Brinkley, Candace Bushnell and Laurie Anderson Party in the Hamptons**\
