@@ -1,40 +1,40 @@
+**Could the Next Pandemic Start at the County Fair?**\
+`Since 2011, there have been more human swine flu cases reported in the United States than anywhere else in the world. Most have occurred at farm-animal showcases.`\
+https://nytimes.com/2023/07/25/health/swine-flu-pigs-agriculture.html?searchResultPosition=1
+
+**Tech Firms Once Powered New York’s Economy. Now They’re Scaling Back.**\
+`After years of steady growth, many technology companies are laying off workers and giving up millions of square feet of office space in the city.`\
+https://nytimes.com/2023/07/25/business/economy/technology-companies-office-space.html?searchResultPosition=2
+
+**Once Praised, Jails Chief Draws Ire Over Lack of Transparency on Rikers**\
+`Under pressure to stem violence in New York City jails, the commissioner, Louis A. Molina, has angered federal officials by withholding information on sensitive investigations.`\
+https://nytimes.com/2023/07/25/nyregion/once-praised-jails-chief-draws-ire-over-lack-of-transparency-on-rikers.html?searchResultPosition=3
+
+**Judge Suggests 20 Years for Doctor Who Abused Women, but Delays Sentence**\
+`Robert A. Hadden, a gynecologist, was convicted of luring women across state lines to appointments in Manhattan where he abused them.`\
+https://nytimes.com/2023/07/25/nyregion/manhattan-gynecologist-sexual-abuse-hadden.html?searchResultPosition=4
+
+**Vital Places of Refuge in the Bronx, Community Gardens Gain Recognition**\
+`Lawmakers in Albany voted to designate community gardens statewide as crucial to the urban environment, especially in the fight against climate change. The bill awaits the governor’s signature but the role of these gardens stretches back decades.`\
+https://nytimes.com/2023/07/25/nyregion/community-garden-bronx-climate-change.html?searchResultPosition=5
+
+**School District Woes Likened to ‘Environmental Racism’ in Flint, Mich.**\
+`All 13 school buildings in East Ramapo received a failing rating in a recent state-mandated survey. The New York Civil Liberties Union is calling for a state takeover.`\
+https://nytimes.com/2023/07/25/nyregion/east-ramapo-school-water.html?searchResultPosition=6
+
+**Today’s Wordle Review**\
+`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
+https://nytimes.com/2023/07/25/crosswords/wordle-review-answer-766.html?searchResultPosition=7
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2023/07/25/crosswords/spelling-bee-forum.html?searchResultPosition=8
+
 **Texas Installs Floating Border Barrier in Rio Grande**\
 `The Justice Department has sued Texas over its 1,000-foot buoy barrier, which it installed earlier this month to keep migrants from crossing the river.`\
-https://nytimes.com/video/us/100000009010948/texas-migrants-border-rio-grande-justice-department.html?searchResultPosition=1
+https://nytimes.com/video/us/100000009010948/texas-migrants-border-rio-grande-justice-department.html?searchResultPosition=9
 
 **Word of the Day: discern**\
 `This word has appeared in 183 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/07/25/learning/word-of-the-day-discern.html?searchResultPosition=2
-
-**Logo Starts to Comes Down @Twitter Headquarters**\
-`A worker began removing the logo of the company recently renamed X before the San Francisco police stopped him for doing “unauthorized work” on Monday.`\
-https://nytimes.com/video/business/media/100000009010913/twitter-x-logo-elon-musk.html?searchResultPosition=3
-
-**Powerful Typhoon May Graze the Philippines on Its Way to China**\
-`Typhoon Doksuri, packing winds equivalent to those of a Category 4 hurricane, is expected to hit China later this week. It also threatens Taiwan.`\
-https://nytimes.com/2023/07/25/world/asia/typhoon-doksuri-philippines-china.html?searchResultPosition=4
-
-**How Israel’s Supreme Court Might React to the Challenge to Its Power**\
-`The court could strike down the law passed on Monday that seeks to curb its power. Or it might narrowly interpret it. Or it might simply put off any decision.`\
-https://nytimes.com/2023/07/25/world/middleeast/israel-supreme-court-judicial-overhaul-netanyahu.html?searchResultPosition=5
-
-**Your Tuesday Briefing**\
-`Here’s what you need to know.`\
-https://nytimes.com/2023/07/25/world/europe/climate-israel-judiciary-overhaul.html?searchResultPosition=6
-
-**Some July Heat: ‘Virtually Impossible’ Without Climate Change, Analysis Finds**\
-`The latest study from World Weather Attribution scientists predicts that extreme heat waves will return more frequently.`\
-https://nytimes.com/2023/07/25/climate/heat-waves-climate-change-attrribution.html?searchResultPosition=7
-
-**Senate Committee Presses Leon Black on Epstein Tax Advice**\
-`The billionaire investor paid Jeffrey Epstein $158 million for tax and estate planning services. Lawmakers want to know if the fees should have been taxed as a gift.`\
-https://nytimes.com/2023/07/25/business/leon-black-jeffrey-epstein-senate.html?searchResultPosition=8
-
-**Waves Lash Coastal Town as Philippines Prepares for Typhoon**\
-`Residents of Mamburao, the Philippines, prepared for Typhoon Doksuri by working to reinforce a seawall, which was damaged during previous storms.`\
-https://nytimes.com/video/world/asia/100000009010792/typhoon-doksuri-philippines-mamburao.html?searchResultPosition=9
-
-**Corrections: July 25, 2023**\
-`Corrections that appeared in print on Tuesday, July 25, 2023.`\
-https://nytimes.com/2023/07/24/pageoneplus/corrections-july-25-2023.html?searchResultPosition=10
+https://nytimes.com/2023/07/25/learning/word-of-the-day-discern.html?searchResultPosition=10
 
