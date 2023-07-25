@@ -4,7 +4,7 @@ https://nytimes.com/2023/07/25/science/bowhead-whales-pregnancy.html?searchResul
 
 **Man Sentenced to 30 Months in Death of ‘The Wire’ Actor**\
 `Carlos Macci, 72, was part of a crew that sold Michael K. Williams fentanyl-laced heroin that killed him 2021.`\
-https://nytimes.com/2023/07/25/nyregion/man-sentenced-to-30-months-in-death-of-the-wire-actor.html?searchResultPosition=2
+https://nytimes.com/2023/07/25/nyregion/michael-k-williams-death-sentencing.html?searchResultPosition=2
 
 **With Grain in the Cross Hairs Again, So Is a Jewel of Ukraine**\
 `Odesa, a port city long beloved by travelers, had been largely spared the worst of the war, but that began changing this week.`\
