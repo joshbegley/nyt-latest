@@ -6,7 +6,7 @@ https://nytimes.com/2023/07/25/world/middleeast/israel-judiciary-opposition.html
 `Here’s how SECURE 2.0 can help you better prepare for retirement at every stage of life.`\
 https://nytimes.com/paidpost/2023-06-22/retirement-savings-relief-for-every-stage-of-life.html?searchResultPosition=2
 
-**Thousands of reservists threatened to quit. It’s unclear if they’re actually doing that.**\
+**Israeli Reservists Threaten to Quit Over Judicial Changes, Though Few Have**\
 `More than 11,000 Israelis in the military reserve said last week they’d resign if the government’s judicial overhaul went ahead.`\
 https://nytimes.com/2023/07/25/world/middleeast/israel-military-reservists-quit.html?searchResultPosition=3
 
