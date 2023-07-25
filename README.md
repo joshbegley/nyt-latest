@@ -26,7 +26,7 @@ https://nytimes.com/2023/07/25/us/ohio-abortion-rights-amendment.html?searchResu
 `Immigrant advocacy groups had challenged the administration’s decision to dramatically limit who is allowed to apply for asylum in the U.S.`\
 https://nytimes.com/2023/07/25/us/politics/biden-asylum-policy-immigration.html?searchResultPosition=7
 
-**Booksellers Move to the Front Lines of the Fight Against Books Bans in Texas**\
+**Booksellers Move to the Front Lines of the Fight Against Book Bans in Texas**\
 `With a book-rating law set to take effect in September, a group of booksellers, along with publishers and authors, filed suit to argue that it is unconstitutional.`\
 https://nytimes.com/2023/07/25/books/book-banning-texas-lawsuit.html?searchResultPosition=8
 
