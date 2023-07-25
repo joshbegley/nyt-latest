@@ -30,7 +30,7 @@ https://nytimes.com/2023/07/25/us/dna-testing-pennsylvania-nickens.html?searchRe
 `Backers of a proposal to establish a right to abortion in the Ohio Constitution submitted enough valid signatures to put the question on the November ballot.`\
 https://nytimes.com/2023/07/25/us/ohio-abortion-rights-amendment.html?searchResultPosition=8
 
-**Federal Judge Blocks New Biden Asylum Policy**\
+**Federal Judge Blocks Biden Administration’s New Asylum Policy**\
 `Immigrant advocacy groups challenged the administration’s decision to sharply limit who is allowed to apply for asylum in the United States.`\
 https://nytimes.com/2023/07/25/us/politics/biden-asylum-policy-immigration.html?searchResultPosition=9
 
