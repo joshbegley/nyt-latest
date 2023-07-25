@@ -16,7 +16,7 @@ https://nytimes.com/2023/07/25/us/ohio-abortion-rights-amendment.html?searchResu
 
 **Federal Judge Blocks New Biden Asylum Policy**\
 `Immigrant advocacy groups had challenged the administration’s decision to dramatically limit who is allowed to apply for asylum in the U.S.`\
-https://nytimes.com/2023/07/25/us/politics/federal-judge-blocks-new-biden-asylum-policy.html?searchResultPosition=5
+https://nytimes.com/2023/07/25/us/politics/biden-asylum-policy-immigration.html?searchResultPosition=5
 
 **Booksellers Move to the Front Lines of the Fight Against Books Bans in Texas**\
 `With a book-rating law set to take effect in September, a group of booksellers, along with publishers and authors, filed suit to argue that it is unconstitutional.`\
