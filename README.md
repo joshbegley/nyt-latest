@@ -2,7 +2,7 @@
 `His presidential campaign has faced questions from allies and donors about the long-term strength of his candidacy.`\
 https://nytimes.com/2023/07/25/us/politics/desantis-campaign-staff-cuts.html?searchResultPosition=1
 
-**Education Dept. Opens Civil Rights Inquiry Into Harvard Admissions**\
+**Education Dept. Opens Civil Rights Inquiry Into Harvard’s Legacy Admissions**\
 `An inquiry into admissions preferences for family of alumni and donors began after the Supreme Court’s decision last month limiting affirmative action.`\
 https://nytimes.com/2023/07/25/us/politics/harvard-admissions-civil-rights-inquiry.html?searchResultPosition=2
 
