@@ -12,7 +12,7 @@ https://nytimes.com/2023/07/24/theater/the-cottage-review-broadway.html?searchRe
 
 **Alabama Woman Admits She Lied About Abduction and Report of Wandering Child**\
 `Carlee Russell, 25, said through a lawyer that she was sorry she had fabricated her disappearance, which captured national attention and prompted a flurry of search efforts.`\
-https://nytimes.com/2023/07/24/us/carlee-russell-alabama-abudction-hoax.html?searchResultPosition=4
+https://nytimes.com/2023/07/24/us/carlee-russell-alabama-abduction-hoax.html?searchResultPosition=4
 
 **Netanyahu Scores Another Victory, but at What Price?**\
 `The Israeli prime minister has pushed through the first part of his judicial overhaul, but in doing so has deepened a rift in Israeli society and propelled the country into an uncertain new era.`\
