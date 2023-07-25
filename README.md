@@ -1,5 +1,5 @@
 **DeSantis Involved in Car Crash; He and His Team Are Unhurt**\
-`The crash occurred in Tennessee, as Mr. DeSantis and his team were traveling to an event in Chattanooga, a spokesman said. He did not provide further details.`\
+`The crash occurred as Mr. DeSantis and his team were traveling to an event in Chattanooga, Tenn., a spokesman said. He did not provide further details.`\
 https://nytimes.com/2023/07/25/us/politics/desantis-car-crash.html?searchResultPosition=1
 
 **Venice Film Festival Lineup Largely Unscathed by Hollywood Strikes**\
