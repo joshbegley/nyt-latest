@@ -1,6 +1,6 @@
 **Texas Installs Floating Border Barrier in Rio Grande**\
 `The Justice Department has sued Texas over its 1,000-foot buoy barrier, which it installed earlier this month to keep migrants from crossing the river.`\
-https://nytimes.com/video/us/100000009010948/texas-installs-floating-border-barrier-in-rio-grande.html?searchResultPosition=1
+https://nytimes.com/video/us/100000009010948/texas-migrants-border-rio-grande-justice-department.html?searchResultPosition=1
 
 **Word of the Day: discern**\
 `This word has appeared in 183 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
