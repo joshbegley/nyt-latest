@@ -26,8 +26,8 @@ https://nytimes.com/2023/07/25/arts/television/dirty-pictures-from-a-revolution.
 `Prosecutors say Timothy Shea and his group stole over a million dollars, spending some on jewelry, boat payments and a Trump-themed energy drink.`\
 https://nytimes.com/2023/07/25/nyregion/shea-trump-border-wall-fraud-sentencing.html?searchResultPosition=7
 
-**DeSantis Involved in Car Crash; He and His Team Are Unhurt**\
-`The crash occurred as Mr. DeSantis and his team were traveling to an event in Chattanooga, Tenn., a spokesman said. He did not provide further details.`\
+**DeSantis Involved in Car Crash in Tennessee; He Is Unhurt**\
+`The crash occurred in Chattanooga as Mr. DeSantis and his team were traveling to a fund-raiser there, a spokesman said.`\
 https://nytimes.com/2023/07/25/us/politics/desantis-car-crash.html?searchResultPosition=8
 
 **Venice Film Festival Lineup Largely Unscathed by Hollywood Strikes**\
