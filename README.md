@@ -11,7 +11,7 @@ https://nytimes.com/2023/07/25/business/ukraine-war-divorce.html?searchResultPos
 https://nytimes.com/2023/07/25/dining/baked-chicken-bbq-orzo-dinner-recipes.html?searchResultPosition=3
 
 **Bronny James, Son of LeBron James, Is Stable After Cardiac Arrest**\
-`Bronny a basketball recruit at the University of Southern California, was stricken during a practice on Monday. He is out of intensive care and in stable condition, his family said.`\
+`Bronny, a basketball recruit at the University of Southern California, was stricken during a practice on Monday. He is out of intensive care and in stable condition, his family said.`\
 https://nytimes.com/2023/07/25/sports/ncaabasketball/bronny-james-cardiac-arrest-lebron.html?searchResultPosition=4
 
 **X: The Brand, the Generation and Elon Musk**\
