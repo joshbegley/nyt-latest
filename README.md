@@ -7,7 +7,7 @@ https://nytimes.com/2023/07/25/business/microsoft-earnings.html?searchResultPosi
 https://nytimes.com/2023/07/25/opinion/translation-apps-foreign-languages.html?searchResultPosition=2
 
 **Alphabet Steams Past Lingering Ad Worries, Fueled by Google’s Search Engine**\
-`Despite worries of a shaky ad market and growing competition in A.I., Google said it was aided by accelerating revenue from its search engine and the video platform YouTube in the second quarter.`\
+`Despite concerns of a shaky ad market and growing competition in A.I., Google said it was aided by accelerating revenue from its search engine and the video platform YouTube in the second quarter.`\
 https://nytimes.com/2023/07/25/technology/alphabet-google-earnings-second-quarter.html?searchResultPosition=3
 
 **Voting by Formerly Imprisoned in Tennessee, Already Hard, Gets Harder**\
