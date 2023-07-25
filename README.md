@@ -12,7 +12,7 @@ https://nytimes.com/2023/07/25/business/economy/technology-companies-office-spac
 
 **Once Praised, Jails Chief Draws Ire Over Lack of Transparency on Rikers**\
 `Under pressure to stem violence in New York City jails, the commissioner, Louis A. Molina, has angered federal officials by withholding information on sensitive investigations.`\
-https://nytimes.com/2023/07/25/nyregion/once-praised-jails-chief-draws-ire-over-lack-of-transparency-on-rikers.html?searchResultPosition=4
+https://nytimes.com/2023/07/25/nyregion/rikers-island-jail-chief-molina.html?searchResultPosition=4
 
 **Judge Suggests 20 Years for Doctor Who Abused Women, but Delays Sentence**\
 `Robert A. Hadden, a gynecologist, was convicted of luring women across state lines to appointments in Manhattan where he abused them.`\
