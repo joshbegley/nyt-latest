@@ -10,8 +10,8 @@ https://nytimes.com/2023/07/25/world/europe/ales-pushkin-dead.html?searchResultP
 `How the museum and Indian institutions overcame eight years of physical and diplomatic challenges to bring 125 rare Buddhist art works to New York.`\
 https://nytimes.com/2023/07/25/arts/design/buddhist-art-india-met.html?searchResultPosition=3
 
-**‘Attenzione, Pickpocket!’**\
-`Monica Poli has spent years patrolling the streets of Venice. Now she’s famous on TikTok. Well, at least her voice is.`\
+**‘Attenzione, Pickpocket!’ A TikTok Star Watches Out for Tourists in Italy**\
+`Monica Poli has spent years patrolling the streets of Venice. Now she’s famous on social media. Well, at least her voice is.`\
 https://nytimes.com/2023/07/25/style/attenzione-pickpocket.html?searchResultPosition=4
 
 **Blue Bird, in the East Village, Goes All-In on Cocktails With Fruits and Veggies**\
