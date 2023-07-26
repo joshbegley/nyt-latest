@@ -1,4 +1,4 @@
-**Giuliani Admits to False Statements About Georgia Election Workers**\
+**Giuliani Concedes to Making False Statements About Georgia Election Workers**\
 `Rudolph W. Giuliani said he still had “legal defenses” in a case brought by two election workers who said he had defamed them as he asserted that the 2020 election was marred by fraud.`\
 https://nytimes.com/2023/07/26/us/politics/giuliani-georgia-election-workers.html?searchResultPosition=1
 
