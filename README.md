@@ -35,6 +35,6 @@ https://nytimes.com/2023/07/26/learning/over-75-new-york-times-graphs-for-studen
 https://nytimes.com/slideshow/2023/07/26/learning/graphs-charts-and-maps-from-whats-going-on-in-this-graph-sept-2020-may-2023.html?searchResultPosition=9
 
 **Crane Partially Collapses in Midtown Manhattan, Injuring 6**\
-`It was unknown whether the crane was occupied when it collapsed near Hudson Yards about 7:30 a.m., the police said. Streets around the area were closed.`\
+`Four civilians and two firefighters received minor injuries when the crane on 10th Avenue collapsed, officials said.`\
 https://nytimes.com/2023/07/26/nyregion/crane-collapse-nyc-hudson-yards.html?searchResultPosition=10
 
