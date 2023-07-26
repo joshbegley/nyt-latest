@@ -10,7 +10,7 @@ https://nytimes.com/slideshow/2023/07/26/learning/graphs-charts-and-maps-from-wh
 `It was unknown whether the crane was occupied when it collapsed near Hudson Yards about 7:30 a.m., the police said. Streets around the area were closed.`\
 https://nytimes.com/2023/07/26/nyregion/crane-collapse-nyc-hudson-yards.html?searchResultPosition=3
 
-**Russian Officials Say Ukraine Has Launched New Push in South**\
+**The area south of Orikhiv is a key battleground in Ukraine’s counteroffensive.**\
 `A Russian occupation official in the Zaporizhzhia region said Ukrainian forces newly equipped with Western weapons had begun a significant attack south of the town of Orikhiv.`\
 https://nytimes.com/2023/07/26/world/europe/russia-ukraine-war-orikhiv-attack.html?searchResultPosition=4
 
