@@ -1,40 +1,40 @@
+**A Shoe Entrepreneur’s Globally Inspired Barbecue**\
+`Mickey Ashmore, the founder of the footwear brand Sabah, gathered friends at his Long Island ranch house for Texas ribs, Middle Eastern sides and Thai desserts.`\
+https://nytimes.com/2023/07/26/t-magazine/mickey-ashmore-sabah-long-island-summer-barbecue.html?searchResultPosition=1
+
 **War Brought Putin Closer to Africa. Now It’s Pushing Them Apart.**\
 `As President Vladimir V. Putin of Russia prepares to host African leaders at a summit, a collapsed grain deal and the uncertain fate of Wagner mercenaries have cast a shadow.`\
-https://nytimes.com/2023/07/26/world/africa/putin-africa-russia-war.html?searchResultPosition=1
+https://nytimes.com/2023/07/26/world/africa/putin-africa-russia-war.html?searchResultPosition=2
 
 **Crane Catches Fire and Partially Collapses in Manhattan**\
 `A thick plume of black smoke rose over the crane in midtown Manhattan.`\
-https://nytimes.com/video/nyregion/100000009012926/crane-collapse-fire-manhattan-new-york.html?searchResultPosition=2
+https://nytimes.com/video/nyregion/100000009012926/crane-collapse-fire-manhattan-new-york.html?searchResultPosition=3
 
 **Kevin Spacey Found Not Guilty of Sexual Assault**\
 `A British jury on Wednesday found the actor not guilty of nine charges.`\
-https://nytimes.com/2023/07/26/arts/kevin-spacey-verdict-not-guilty.html?searchResultPosition=3
+https://nytimes.com/2023/07/26/arts/kevin-spacey-verdict-not-guilty.html?searchResultPosition=4
 
 **Russia’s Online Censorship Has Soared 30-Fold During Ukraine War**\
 `A report from Citizen Lab laid out how much online censorship has increased on one of Russia’s biggest social media sites.`\
-https://nytimes.com/2023/07/26/technology/russia-censorship-ukraine-war.html?searchResultPosition=4
+https://nytimes.com/2023/07/26/technology/russia-censorship-ukraine-war.html?searchResultPosition=5
 
 **Simpson Kalisher, Photographer Who Captured Urban Grit, Dies at 96**\
 `He emerged from a largely commercial background to join the towering figures who defined an art form — street photography — in the 1950s and ’60s`\
-https://nytimes.com/2023/07/26/arts/simpson-kalisher-dead.html?searchResultPosition=5
+https://nytimes.com/2023/07/26/arts/simpson-kalisher-dead.html?searchResultPosition=6
 
 **Israel’s High Court to Hear Case Against Netanyahu’s Judicial Overhaul**\
 `The justices will hear petitions in September against a new law that curbs their own authority, which Prime Minister Benjamin Netanyahu has pushed ahead despite Israel’s political turmoil.`\
-https://nytimes.com/2023/07/26/world/middleeast/israel-supreme-court-judicial-overhaul-netanyahu.html?searchResultPosition=6
+https://nytimes.com/2023/07/26/world/middleeast/israel-supreme-court-judicial-overhaul-netanyahu.html?searchResultPosition=7
 
 **Giuliani Concedes He Made False Statements About Georgia Election Workers**\
 `Rudolph W. Giuliani said he still had “legal defenses” in a case brought by two election workers who said he had defamed them as he asserted that the 2020 election was marred by fraud.`\
-https://nytimes.com/2023/07/26/us/politics/giuliani-georgia-election-workers.html?searchResultPosition=7
+https://nytimes.com/2023/07/26/us/politics/giuliani-georgia-election-workers.html?searchResultPosition=8
 
 **Batteries in E-Bikes and Other Devices Are Sparking Fires in San Francisco**\
 `Two people jumped out of an apartment window on Monday to escape what was the city’s 24th fire this year linked to rechargeable batteries.`\
-https://nytimes.com/2023/07/26/us/california-escooter-battery-fires.html?searchResultPosition=8
+https://nytimes.com/2023/07/26/us/california-escooter-battery-fires.html?searchResultPosition=9
 
 **Easy Mode: Clues for July 28**\
 `Get some help on the Friday crossword puzzle.`\
-https://nytimes.com/2023/07/26/crosswords/easy-mode-clues-for-july-28.html?searchResultPosition=9
-
-**I Am Estranged From My Toxic Mother. Should I Go on Her Birthday Trip?**\
-`A reader doesn’t want to upset his father, who requested his presence, but the idea of taking a vacation to celebrate a woman he has cut out of his life makes him squirm.`\
-https://nytimes.com/2023/07/26/style/i-am-estranged-from-my-toxic-mother-should-i-go-on-her-birthday-trip.html?searchResultPosition=10
+https://nytimes.com/2023/07/26/crosswords/easy-mode-clues-for-july-28.html?searchResultPosition=10
 
