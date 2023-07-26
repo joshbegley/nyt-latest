@@ -2,7 +2,7 @@
 `The justices will hear petitions in September against a new law that curbs their own authority, which Prime Minister Benjamin Netanyahu has pushed ahead despite Israel’s political turmoil.`\
 https://nytimes.com/2023/07/26/world/middleeast/israel-supreme-court-judicial-overhaul-netanyahu.html?searchResultPosition=1
 
-**Giuliani Concedes to Making False Statements About Georgia Election Workers**\
+**Giuliani Concedes He Made False Statements About Georgia Election Workers**\
 `Rudolph W. Giuliani said he still had “legal defenses” in a case brought by two election workers who said he had defamed them as he asserted that the 2020 election was marred by fraud.`\
 https://nytimes.com/2023/07/26/us/politics/giuliani-georgia-election-workers.html?searchResultPosition=2
 
