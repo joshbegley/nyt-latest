@@ -11,7 +11,7 @@ https://nytimes.com/2023/07/26/pageoneplus/quotation-of-the-day-taliban-shut-bea
 https://nytimes.com/2023/07/26/world/europe/climate-russia-china.html?searchResultPosition=3
 
 **‘They Shoot Without Stopping:’ Where Russia Is on the Attack in Ukraine**\
-`Along the vast 600-mile frontline, Russia is mostly playing defense. In the northeast, it is once again mounting fierce offensive operations.`\
+`Along the vast 600-mile front line, Russia is mostly playing defense. In the northeast, it is once again mounting fierce offensive operations.`\
 https://nytimes.com/2023/07/26/world/europe/ukraine-russia-offensive-northeast.html?searchResultPosition=4
 
 **Why I’m Rooting for Haiti**\
