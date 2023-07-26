@@ -3,10 +3,10 @@
 https://nytimes.com/2023/07/26/world/europe/natwest-nigel-farage-coutts-bank.html?searchResultPosition=1
 
 **Biden Orders U.S. to Share Evidence of Russian War Crimes With Hague Court**\
-`The step signals a major shift in American policy and ends months of resistance by Pentagon officials who feared setting a precedent to prosecute American troops.`\
+`The step signals a major shift in American policy and ends months of resistance by Pentagon officials who feared setting a precedent that could pave the way for the court to prosecute U.S. troops.`\
 https://nytimes.com/2023/07/26/us/politics/biden-russia-war-crimes-hague.html?searchResultPosition=2
 
-**Sinead O’Connor, Outspoken and Evocative Singer, Dies at 56**\
+**Sinead O’Connor, Evocative and Outspoken Singer, Is Dead at 56**\
 `She broke out with the single “Nothing Compares 2 U,” then caused an uproar a few years later by ripping up a photo of Pope John Paul II on “S.N.L.”`\
 https://nytimes.com/2023/07/26/arts/music/sinead-oconnor-dead.html?searchResultPosition=3
 
