@@ -1,6 +1,6 @@
 **A Brexit Champion’s Feud With His Elite Bank Brings a C.E.O. Down**\
 `Nigel Farage, a political insurgent and ally of Donald J. Trump, exposed his bank for dropping him over “reputational risks.” Some analysts say he could parlay his situation into a comeback.`\
-https://nytimes.com/2023/07/26/world/europe/a-brexit-champions-feud-with-his-elite-bank-brings-a-ceo-down.html?searchResultPosition=1
+https://nytimes.com/2023/07/26/world/europe/natwest-nigel-farage-coutts-bank.html?searchResultPosition=1
 
 **Biden Orders U.S. to Share Evidence of Russian War Crimes With Hague Court**\
 `The step signals a major shift in American policy and ends months of resistance by Pentagon officials who feared setting a precedent to prosecute American troops.`\
