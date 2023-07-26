@@ -22,7 +22,7 @@ https://nytimes.com/2023/07/26/learning/over-75-new-york-times-graphs-for-studen
 `A slide show including some of our favorite graphs from the weekly “What’s Going On in This Graph?” activity.`\
 https://nytimes.com/slideshow/2023/07/26/learning/graphs-charts-and-maps-from-whats-going-on-in-this-graph-sept-2020-may-2023.html?searchResultPosition=6
 
-**Crane Partially Collapses in Midtown Manhattan, Injuring at Least 1**\
+**Crane Partially Collapses in Midtown Manhattan, Injuring 6**\
 `It was unknown whether the crane was occupied when it collapsed near Hudson Yards about 7:30 a.m., the police said. Streets around the area were closed.`\
 https://nytimes.com/2023/07/26/nyregion/crane-collapse-nyc-hudson-yards.html?searchResultPosition=7
 
