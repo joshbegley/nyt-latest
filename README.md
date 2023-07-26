@@ -1,40 +1,40 @@
+**A Brexit Champion’s Feud With His Elite Bank Brings a C.E.O. Down**\
+`Nigel Farage, a political insurgent and ally of Donald J. Trump, exposed his bank for dropping him over “reputational risks.” Some analysts say he could parlay his situation into a comeback.`\
+https://nytimes.com/2023/07/26/world/europe/a-brexit-champions-feud-with-his-elite-bank-brings-a-ceo-down.html?searchResultPosition=1
+
+**Biden Orders U.S. to Share Evidence of Russian War Crimes With Hague Court**\
+`The step signals a major shift in American policy and ends months of resistance by Pentagon officials who feared setting a precedent to prosecute American troops.`\
+https://nytimes.com/2023/07/26/us/politics/biden-russia-war-crimes-hague.html?searchResultPosition=2
+
 **Sinead O’Connor, Outspoken and Evocative Singer, Dies at 56**\
 `She broke out with the single “Nothing Compares 2 U,” then caused an uproar a few years later by ripping up a photo of Pope John Paul II on “S.N.L.”`\
-https://nytimes.com/2023/07/26/arts/music/sinead-oconnor-dead.html?searchResultPosition=1
+https://nytimes.com/2023/07/26/arts/music/sinead-oconnor-dead.html?searchResultPosition=3
 
 **A Pancaked Turtle Fossil’s 150-Million-Year-Old Tale**\
 `A beautifully preserved shelled reptile recovered from a Bavarian limestone deposit helps tell the story of how turtles first took to the seas.`\
-https://nytimes.com/2023/07/26/science/turtle-pancake-fossil.html?searchResultPosition=2
+https://nytimes.com/2023/07/26/science/turtle-pancake-fossil.html?searchResultPosition=4
 
 **Review: Wagner Would Have Liked AR, but Not This ‘Parsifal’**\
 `Cutting-edge technology has again come to the Bayreuth Festival, where Wagner premiered his final opera with the latest stagecraft in 1882.`\
-https://nytimes.com/2023/07/26/arts/music/wagner-parsifal-bayreuth-review.html?searchResultPosition=3
+https://nytimes.com/2023/07/26/arts/music/wagner-parsifal-bayreuth-review.html?searchResultPosition=5
 
 **16 People Sickened in Salmonella Outbreak Linked to Ground Beef**\
 `People who became ill reported eating lean ground beef that was sold at ShopRite locations in New Jersey, New York and Connecticut, the C.D.C. said.`\
-https://nytimes.com/2023/07/26/health/salmonella-ground-beef.html?searchResultPosition=4
+https://nytimes.com/2023/07/26/health/salmonella-ground-beef.html?searchResultPosition=6
 
 **Who Is Maryellen Noreika, the Judge in the Hunter Biden Case?**\
 `Judge Noreika was appointed by President Donald J. Trump, but had the support of Delaware’s two Democratic senators.`\
-https://nytimes.com/2023/07/26/us/politics/hunter-biden-case-judge.html?searchResultPosition=5
+https://nytimes.com/2023/07/26/us/politics/hunter-biden-case-judge.html?searchResultPosition=7
 
 **Review: At Mostly Mozart, the Sense of an Ending**\
 `Louis Langrée, in his last season with the Mostly Mozart Festival Orchestra, conducted a classic Langrée program: Mozart and a premiere by Amir ElSaffar.`\
-https://nytimes.com/2023/07/26/arts/music/review-mostly-mozart-langree-amir-elsaffar.html?searchResultPosition=6
+https://nytimes.com/2023/07/26/arts/music/review-mostly-mozart-langree-amir-elsaffar.html?searchResultPosition=8
 
 **A Looming Retraction Casts a Shadow Over a Field of Physics**\
 `Misconduct allegations are leading scientists to question the work of Ranga Dias, including his claimed discovery of a room-temperature superconductor.`\
-https://nytimes.com/2023/07/26/science/ranga-dias-retraction-physics.html?searchResultPosition=7
+https://nytimes.com/2023/07/26/science/ranga-dias-retraction-physics.html?searchResultPosition=9
 
 **Restaurateur Who Bribed New York Politicians Faces Sentencing**\
 `Harendra Singh pleaded guilty to paying off the former executive of Nassau County, and admitted he also tried to bribe former Mayor Bill de Blasio.`\
-https://nytimes.com/2023/07/26/nyregion/restauraunt-bribery-new-york.html?searchResultPosition=8
-
-**A Dusty Fast-Food Costume Sets Off a Very Canadian Bidding War**\
-`The government of Alberta is auctioning off an adult-size suit shaped like a donair, a uniquely Canadian take on the gyro and doner kebab that is a beloved late-night staple in Nova Scotia.`\
-https://nytimes.com/2023/07/26/world/canada/alberta-donair-costume-auction.html?searchResultPosition=9
-
-**What to Know About Bronny James’s Cardiac Arrest**\
-`James was hospitalized after a cardiac arrest during a practice at the University of Southern California. He was treated at a hospital and was in stable condition, his family said.`\
-https://nytimes.com/2023/07/26/sports/ncaabasketball/bronny-james-status.html?searchResultPosition=10
+https://nytimes.com/2023/07/26/nyregion/restauraunt-bribery-new-york.html?searchResultPosition=10
 
