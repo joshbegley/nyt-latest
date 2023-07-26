@@ -7,7 +7,7 @@ https://nytimes.com/2023/07/26/world/africa/putin-africa-russia-war.html?searchR
 https://nytimes.com/video/nyregion/100000009012926/crane-collapse-fire-manhattan-new-york.html?searchResultPosition=2
 
 **Kevin Spacey Found Not Guilty of Sexual Assault**\
-`A British jury on Wednesday found the actor not guilty of nine charges. Mr. Spacey cried when the verdict was delivered.`\
+`A British jury on Wednesday found the actor not guilty of nine charges.`\
 https://nytimes.com/2023/07/26/arts/kevin-spacey-verdict-not-guilty.html?searchResultPosition=3
 
 **Russia’s Online Censorship Has Soared 30-Fold During Ukraine War**\
