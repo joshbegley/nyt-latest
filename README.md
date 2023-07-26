@@ -19,7 +19,7 @@ https://nytimes.com/2023/07/26/arts/music/popcast-deluxe-barbie-jason-aldean-dra
 https://nytimes.com/2023/07/26/briefing/ukraine-counteroffensive-cambodia-shinjiro-atae.html?searchResultPosition=5
 
 **101°F in the Ocean Off Florida: Was It a World Record?**\
-`Measuring and comparing sea surface temperatures is complex, but scientists agree on one thing: Extreme heat is bad news for wildlife.`\
+`Measuring and comparing sea surface temperatures is complex, but scientists agree on one thing: A high reading this week is bad news for wildlife.`\
 https://nytimes.com/2023/07/26/climate/florida-100-degree-water.html?searchResultPosition=6
 
 **How Hunter Biden’s Judge Came to Have Doubts on the Deal**\
