@@ -2,7 +2,7 @@
 `At what was billed as an Education Department “summit” in Washington on Wednesday, college admissions practices across the board were on the table.`\
 https://nytimes.com/2023/07/26/us/affirmative-action-college-admissions-harvard.html?searchResultPosition=1
 
-**The Night Sinead O’Connor Took on the Pope on ‘SNL’**\
+**The Night Sinead O’Connor Took on the Pope on ‘S.N.L.’**\
 `Tearing up a photo was the moment nobody forgot. The performance that preceded it was just as powerful.`\
 https://nytimes.com/2023/07/26/arts/music/sinead-oconnor-snl-pope.html?searchResultPosition=2
 
