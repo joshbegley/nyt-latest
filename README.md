@@ -7,7 +7,7 @@ https://nytimes.com/2023/07/26/world/europe/climate-russia-china.html?searchResu
 https://nytimes.com/2023/07/26/world/europe/ukraine-russia-offensive-northeast.html?searchResultPosition=2
 
 **Why I’m Rooting for Haiti**\
-`The 2023 Women’s World Cup has the largest field of competitors in tournament history. Les Grenadiers, as the Haitian team is known, may be the scrappiest of them all, our columnist writes.`\
+`The 2023 Women’s World Cup has the largest field of competitors in tournament history. Les Grenadiers, as the Haitian team is known, may be the scrappiest of them all.`\
 https://nytimes.com/2023/07/26/sports/soccer/haiti-womens-world-cup.html?searchResultPosition=3
 
 **A Commitment to Green Policy Is Tested by an Election Win**\
