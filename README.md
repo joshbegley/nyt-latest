@@ -12,7 +12,7 @@ https://nytimes.com/2023/07/26/nyregion/crane-collapse-nyc-hudson-yards.html?sea
 
 **The area south of Orikhiv is a key battleground in Ukraine’s counteroffensive.**\
 `A Russian occupation official in the Zaporizhzhia region said Ukrainian forces newly equipped with Western weapons had begun a significant attack south of the town of Orikhiv.`\
-https://nytimes.com/2023/07/26/world/europe/russia-ukraine-war-orikhiv-attack.html?searchResultPosition=4
+https://nytimes.com/live/2023/07/26/world/russia-ukraine-news/russia-ukraine-war-orikhiv-attack?searchResultPosition=4
 
 **Soldiers Attempt Coup in Niger, Its President’s Office Says**\
 `If the claim is confirmed, Niger would be the latest West African country to face a coup attempt in the past two years. The president’s fate was unclear.`\
