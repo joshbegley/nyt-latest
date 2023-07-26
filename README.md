@@ -12,7 +12,7 @@ https://nytimes.com/2023/07/26/arts/music/wagner-parsifal-bayreuth-review.html?s
 
 **16 People Sickened in Salmonella Outbreak Linked to Ground Beef**\
 `People who became ill reported eating lean ground beef that was sold at ShopRite locations in New Jersey, New York and Connecticut, the C.D.C. said.`\
-https://nytimes.com/2023/07/26/us/16-people-sickened-in-salmonella-outbreak-linked-to-ground-beef.html?searchResultPosition=4
+https://nytimes.com/2023/07/26/us/salmonella-ground-beef.html?searchResultPosition=4
 
 **Who Is Maryellen Noreika, the Judge in the Hunter Biden Case?**\
 `Judge Noreika was appointed by President Donald J. Trump, but had the support of Delaware’s two Democratic senators.`\
