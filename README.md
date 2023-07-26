@@ -1,4 +1,4 @@
-**Crane Partially Collapses in Midtown Manhattan**\
+**Crane Partially Collapses in Midtown Manhattan; at Least 1 Injured**\
 `It was unknown whether the crane was occupied when it collapsed near Hudson Yards about 7:30 a.m., the police said. Streets around the area were closed.`\
 https://nytimes.com/2023/07/26/nyregion/crane-collapse-nyc-hudson-yards.html?searchResultPosition=1
 
