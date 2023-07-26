@@ -34,7 +34,7 @@ https://nytimes.com/2023/07/26/world/europe/cargo-ship-fire-ameland-unesco-herit
 `Staff at this Crown Heights restaurant voted to join Workers United, making the pizzeria New York City’s first to have a unionized staff.`\
 https://nytimes.com/2023/07/26/dining/barboncino-brooklyn-pizza-union.html?searchResultPosition=9
 
-**Meta Profit Up 16 Percent to $7.8 Billion in Recent Quarter**\
+**Meta Profit Up 16% to $7.8 Billion in Recent Quarter**\
 `Wall Street investors were hoping the social media giant would regain its footing after more than a year of problems, including slumping ad sales.`\
 https://nytimes.com/2023/07/26/technology/meta-earnings-second-quarter.html?searchResultPosition=10
 
