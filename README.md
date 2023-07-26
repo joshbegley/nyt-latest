@@ -7,7 +7,7 @@ https://nytimes.com/2023/07/26/nyregion/crane-collapse-nyc-hudson-yards.html?sea
 https://nytimes.com/2023/07/26/world/europe/russia-ukraine-war-orikhiv-attack.html?searchResultPosition=2
 
 **Soldiers Attempt Coup in Niger, Its President’s Office Says**\
-`The presidency of the West African country said that members of the presidential guard were trying to rally the military in an “anti-republican move.” The president’s fate was unclear.`\
+`If the claim is confirmed, Niger would be the latest West African country to face a coup attempt in the past two years. The president’s fate was unclear.`\
 https://nytimes.com/2023/07/26/world/africa/niger-coup-attempt.html?searchResultPosition=3
 
 **Why Won’t Simon Ateba Stop Shouting?**\
