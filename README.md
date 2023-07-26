@@ -1,6 +1,6 @@
 **Sinead O’Connor’s Life in Pictures**\
 `The Irish singer had an evocative voice and cast a powerful silhouette onstage.`\
-https://nytimes.com/2023/07/26/arts/music/sinead-oconnors-life-in-pictures.html?searchResultPosition=1
+https://nytimes.com/2023/07/26/arts/music/sinead-oconnor-photos-life.html?searchResultPosition=1
 
 **How and Why Illegal Border Crossings Have Dropped So Dramatically**\
 `The Biden administration’s new asylum policy, which a judge blocked this week, has contributed to a plunge in illegal border crossings at the southern U.S. border.`\
