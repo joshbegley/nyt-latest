@@ -19,7 +19,7 @@ https://nytimes.com/2023/07/27/us/politics/house-republicans-spending.html?searc
 https://nytimes.com/2023/07/27/world/europe/sinead-oconnor-irish-village.html?searchResultPosition=5
 
 **Trump Faces Major New Charges in Documents Case**\
-`The office of the special counsel accused the former president of seeking to delete security camera footage at Mar-a-Lago. A maintenance worker, Carlos De Oliveria, was also named as a new defendant.`\
+`The office of the special counsel accused the former president of seeking to delete security camera footage at Mar-a-Lago. A maintenance worker, Carlos De Oliveira, was also named as a new defendant.`\
 https://nytimes.com/2023/07/27/us/politics/trump-documents-carlos-de-oliveira-charged.html?searchResultPosition=6
 
 **Sinead O’Connor Condemned Church Abuse Early. America Didn’t Listen.**\
