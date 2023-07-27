@@ -20,7 +20,7 @@ https://nytimes.com/2023/07/27/arts/dance/alvin-aileys-65th-anniversary-season.h
 
 **Don’t Take Zucchini for Granted**\
 `Summer’s ubiquitous squash shines when raw, sliced and smashed into panzanella and salads.`\
-https://nytimes.com/2023/07/27/dining/dont-take-zucchini-for-granted.html?searchResultPosition=6
+https://nytimes.com/2023/07/27/dining/zucchini-recipes-summer.html?searchResultPosition=6
 
 **DeSantis’s Campaign Reboot Faces Donor Skepticism and Deepening Divisions**\
 `As the Florida governor debuts his leaner campaign in Iowa, tensions still plague the highest levels of his operation and a supportive super PAC.`\
