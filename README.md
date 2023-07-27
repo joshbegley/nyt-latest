@@ -1,6 +1,6 @@
 **‘Oppenheimer’ Fans Are Rediscovering a 40-Year-Old Documentary**\
 `“The Day After Trinity,” made available without a subscription until August, shot to the top of the Criterion Channel’s most-watched films.`\
-https://nytimes.com/2023/07/27/arts/day-after-trinity-oppenheimer-documentary.html?searchResultPosition=1
+https://nytimes.com/2023/07/27/movies/day-after-trinity-oppenheimer-documentary.html?searchResultPosition=1
 
 **Citigroup Says Its Predecessors Likely Benefited From Slavery**\
 `The bank’s latest historical review, done as part of its racial equity pledge, shows indirect ties rather than direct profits.`\
