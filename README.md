@@ -1,5 +1,5 @@
 **6 Paperbacks to Read this Week**\
-`This week's selection includes titles by Randall Kenan, Barry Meier, Jen Beagin and more. `\
+`This week's selection includes titles by Randall Kenan, Barry Meier, Jen Beagin and more.`\
 https://nytimes.com/interactive/2023/07/27/books/new-paperbacks-kenan.html?searchResultPosition=1
 
 **Divided Over Money and Policy, House G.O.P. Punts on Spending Bill**\
