@@ -1,40 +1,40 @@
-**North Korea Vows Support for Moscow in Visit by Russian Delegation**\
-`Pyongyang vowed increased military cooperation against the United States, a common enemy, during a visit by Russia’s defense minister.`\
-https://nytimes.com/2023/07/27/world/asia/north-korea-russia-visit.html?searchResultPosition=1
+**More Public Pools Could Save Thousands of Lives**\
+`The biggest reason so many Americans can’t swim is that they have too few places to learn how.`\
+https://nytimes.com/2023/07/27/opinion/drowning-public-pools-america.html?searchResultPosition=1
 
-**South Korea Unveils Truman Statue on Armistice Anniversary**\
-`Conservatives appreciate Truman’s decision to send U.S. troops to fight for their country in the Korean War.`\
-https://nytimes.com/2023/07/27/world/asia/korean-war-truman-statue-armistice.html?searchResultPosition=2
+**Don’t Call Her ‘Karen’**\
+`A viral video about a dispute over a rental bike was about much more. Or perhaps much less.`\
+https://nytimes.com/2023/07/27/opinion/columnists/citi-bike-karen-white-woman.html?searchResultPosition=2
 
-**How Aimé Leon Dore Took New York**\
-`The brand, which bridges the streetwear-luxury gap and has taken on investment from LVMH, is a template for the future of men’s wear.`\
-https://nytimes.com/2023/07/27/style/how-aime-leon-dore-took-new-york.html?searchResultPosition=3
+**‘And Just Like That …’ Episode 7 Fashion: Aidan’s Return**\
+`Carrie’s other great love reappears just in time for Valentine’s Day.`\
+https://nytimes.com/2023/07/27/style/and-just-like-that-fashion-aiden.html?searchResultPosition=3
 
-**The Roller Rink Popcorn Factory and the Jailhouse Pub**\
-`A look at the endless reinvention of the forgotten old buildings of the Hudson Valley.`\
-https://nytimes.com/2023/07/27/nyregion/hudson-valley-abandoned-buildings-businesses.html?searchResultPosition=4
+**Labor Department Decries Surge in Exploited Migrant Children**\
+`The agency said it had found thousands of cases where minors were employed in illegal, often dangerous jobs. Congress has accused the health secretary of failing to protect them.`\
+https://nytimes.com/2023/07/27/us/migrant-child-labor.html?searchResultPosition=4
 
-**A Self-Portrait of the Roma, Without the Stereotypes**\
-`The exhibition “Barvalo” is billed as the first show of its kind to combine contributions from multiple Romani artists and curators. They are sharing their culture on their own terms.`\
-https://nytimes.com/2023/07/27/arts/design/roma-exhibition-mucem.html?searchResultPosition=5
+**Has Scott Joplin’s ‘Thoroughly American Opera’ Found Its Moment?**\
+`“Treemonisha” — brilliant, flawed and unfinished — is ripe for creative reimagining at a time when opera houses are looking to diversify the canon.`\
+https://nytimes.com/2023/07/27/arts/music/treemonisha-scott-joplin-productions.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/07/27/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**What Happened When 15 of Twitter’s Top Celebrities Joined Threads**\
+`We examined the daily activity of Ellen DeGeneres, Wiz Khalifa, Selena Gomez and others among Twitter’s most-followed to deduce if Threads has staying power.`\
+https://nytimes.com/2023/07/27/technology/threads-twitter-celebrities.html?searchResultPosition=6
 
-**Biden’s Fight With Harvard Is a Political Winner and Policy ‘Band-Aid’**\
-`After an affirmative action ruling, legacy admissions are a ripe target. Still, skyrocketing tuition costs and mountains of debt remain far greater worries for many Americans.`\
-https://nytimes.com/2023/07/27/us/politics/biden-legacy-admissions-harvard.html?searchResultPosition=7
+**How Clever Tech Can Keep You Safe Outdoors**\
+`These apps and devices allow you to find your way, triage an injury and generally stay out of trouble on the trail.`\
+https://nytimes.com/2023/07/27/well/move/best-outdoor-apps-trackers-safety-camping-hiking.html?searchResultPosition=7
 
-**How Big Is the Legacy Boost at Elite Colleges?**\
-`In the same week as a civil rights inquiry into Harvard, new data shows legacies are slightly more qualified yet are four times as likely to get into top schools.`\
-https://nytimes.com/2023/07/27/upshot/ivy-league-legacy-admissions.html?searchResultPosition=8
+**A Time Capsule of Human Creativity, Stored in the Sky**\
+`The Lunar Codex, an archive of contemporary art, poetry and other cultural artifacts of life on Earth, is headed to the moon.`\
+https://nytimes.com/2023/07/27/arts/design/lunar-codex-time-capsule-moon.html?searchResultPosition=8
 
-**Atop a Mountain, a Reporter in Search of New Heights**\
-`For Jesse McKinley, a Metro correspondent, searching for the perfect dateline proved to be an uphill battle. An 8.7-mile one, to be exact.`\
-https://nytimes.com/2023/07/27/insider/hudson-river-lewis-pugh.html?searchResultPosition=9
+**Where to Drink Wine in Madrid**\
+`This warm, generous city overflows with great wine lists in restaurants and wine and tapas bars. Here are nine places you should try.`\
+https://nytimes.com/2023/07/27/dining/drinks/madrid-wine-bars-restaurants.html?searchResultPosition=9
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/07/27/crosswords/wordle-review-answer-768.html?searchResultPosition=10
+**A Jets Star Emerges, and Helps to Pull in Another**\
+`Garrett Wilson broke out in his rookie season as the dynamic receiver the Jets have long lacked. Now he’s reminding Aaron Rodgers of a productive partnership from the past.`\
+https://nytimes.com/2023/07/27/sports/football/garrett-wilson-jets.html?searchResultPosition=10
 
