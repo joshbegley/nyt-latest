@@ -15,7 +15,7 @@ https://nytimes.com/2023/07/26/arts/zwirner-changes-chelsea-gallery-plan.html?se
 https://nytimes.com/2023/07/26/nyregion/teen-beaten-bronx-juvenile-detention.html?searchResultPosition=4
 
 **Affirmative Action Ruling Shakes Universities Over More Than Race**\
-`At what was billed as an Education Department “summit” in Washington on Wednesday, college admissions practices across the board were on the table.`\
+`At what was billed as an Education Department “summit” in Washington on Wednesday, a wide range of college admissions practices were on the table.`\
 https://nytimes.com/2023/07/26/us/affirmative-action-college-admissions-harvard.html?searchResultPosition=5
 
 **The Night Sinead O’Connor Took on the Pope on ‘S.N.L.’**\
