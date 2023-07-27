@@ -26,9 +26,9 @@ https://nytimes.com/2023/07/27/arts/design/edvard-munch-clark-art-institute.html
 `It takes five years to connect a new wind or solar farm to the electric grid. New federal rules would only partly resolve the issue, experts say.`\
 https://nytimes.com/2023/07/27/climate/electric-grid-ferc-bottleneck.html?searchResultPosition=7
 
-**LeBron James Returns to the Court, Says His Family Is ‘Doing Great’**\
-`Three days after LeBron James Jr., known as Bronny, collapsed on the basketball court, his father indicated that things were returning to normal.`\
-https://nytimes.com/2023/07/27/sports/lebron-james-bronny-james-cardiac-arrest.html?searchResultPosition=8
+**Bronny James, Recovering from Cardiac Arrest, Goes Home from the Hospital**\
+`LeBron James Jr.’s release was one of several indications that things were returning to normal three days after he collapsed on a basketball court.`\
+https://nytimes.com/2023/07/27/sports/ncaabasketball/lebron-james-bronny-james-cardiac-arrest.html?searchResultPosition=8
 
 **Is It Too Hot for Fun in the Summertime?**\
 `Extreme weather is upending the way we experience the season.`\
