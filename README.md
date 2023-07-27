@@ -1,4 +1,4 @@
-**Justice Dept. to Investigate for Civil Rights Abuses by Memphis Police**\
+**Justice Dept. Opens Civil Rights Investigation of Memphis Police**\
 `The department will examine allegations of pervasive problems with excessive force and unlawful stops of Black residents that were amplified by the fatal beating of Tyre Nichols.`\
 https://nytimes.com/2023/07/27/us/memphis-police-civil-rights-investigation.html?searchResultPosition=1
 
