@@ -18,8 +18,8 @@ https://nytimes.com/2023/07/27/us/politics/house-republicans-spending.html?searc
 `For three years, the singer, who died this week, found simplicity and happiness in a mountain sanctuary where she was just another neighbor.`\
 https://nytimes.com/2023/07/27/world/europe/sinead-oconnor-irish-village.html?searchResultPosition=5
 
-**Prosecutors Charge Mar-a-Lago Worker in Trump Documents Case**\
-`The office of the special counsel, Jack Smith, added the new charges to the existing indictment of former President Donald J. Trump and an aide for mishandling classified materials and obstructing efforts to retrieve them.`\
+**Trump Faces Major New Charges in Documents Case**\
+`The office of the special counsel accused former President Donald J. Trump of seeking to delete security camera footage at Mar-a-Lago. A maintenance worker, Carlos De Oliveria, was also named as a new defendant in the case.`\
 https://nytimes.com/2023/07/27/us/politics/trump-documents-carlos-de-oliveira-charged.html?searchResultPosition=6
 
 **Sinead O’Connor Condemned Church Abuse Early. America Didn’t Listen.**\
