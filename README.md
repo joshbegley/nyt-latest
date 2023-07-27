@@ -2,7 +2,7 @@
 `The Federal Reserve has raised interest rates again. When should it stop?`\
 https://nytimes.com/2023/07/27/briefing/federal-reserve-rate-increase.html?searchResultPosition=1
 
-**A Moment of Rage Led to a Moment of Brilliance for the U.S.**\
+**Flash of Anger Led to a Moment of Brilliance for U.S.**\
 `Lindsey Horan’s tying goal against the Netherlands saved her team at the World Cup. But it came from a dark place she knows well.`\
 https://nytimes.com/2023/07/27/sports/soccer/us-netherlands-lindsey-horan.html?searchResultPosition=2
 
