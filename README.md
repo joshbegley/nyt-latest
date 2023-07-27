@@ -14,8 +14,8 @@ https://nytimes.com/2023/07/27/briefing/federal-reserve-rate-increase.html?searc
 `Lindsey Horan’s tying goal against the Netherlands saved her team at the World Cup. But it came from a dark place she knows well.`\
 https://nytimes.com/2023/07/27/sports/soccer/us-netherlands-lindsey-horan.html?searchResultPosition=4
 
-**Slack Experiences a Widespread Outage, Company Says**\
-`Offices around the world use the messaging system to communicate.`\
+**Slack Experiences a Brief but Widespread Outage**\
+`For a little over an hour, desk workers scrambled to find other ways to communicate.`\
 https://nytimes.com/2023/07/27/technology/slack-down.html?searchResultPosition=5
 
 **Affirmative Action for the 1 Percent**\
