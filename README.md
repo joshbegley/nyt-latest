@@ -1,40 +1,40 @@
+**Prominent Horse Trainer Sentenced to 4 Years in Prison in Doping Scheme**\
+`Jason Servis, the highest-profile defendant among more than two dozen people charged after a sprawling F.B.I. investigation, pleaded guilty to two counts related to the use of banned substances.`\
+https://nytimes.com/2023/07/26/sports/servis-horse-doping-scheme.html?searchResultPosition=1
+
 **Bars for Checking People Out**\
 `Guilherme Gilioli adds another New York Times Crossword to his body of work.`\
-https://nytimes.com/2023/07/26/crosswords/daily-puzzle-2023-07-27.html?searchResultPosition=1
+https://nytimes.com/2023/07/26/crosswords/daily-puzzle-2023-07-27.html?searchResultPosition=2
 
 **10 Essential Songs by Sinead O’Connor**\
 `Her catalog is full of raw passion and raw nerve.`\
-https://nytimes.com/2023/07/26/arts/music/10-essential-songs-by-sinead-oconnor.html?searchResultPosition=2
+https://nytimes.com/2023/07/26/arts/music/10-essential-songs-by-sinead-oconnor.html?searchResultPosition=3
 
 **Black History Is a Casualty in Ron DeSantis’s Christian Nationalist Quest**\
 `Florida’s distortion of the history of slavery is more consequential than many comprehend.`\
-https://nytimes.com/2023/07/26/opinion/desantis-slavery.html?searchResultPosition=3
+https://nytimes.com/2023/07/26/opinion/desantis-slavery.html?searchResultPosition=4
 
 **Zwirner Pivots on Plans for New Chelsea Gallery**\
 `Because of financial problems encountered during the pandemic, the gallerist is abandoning a 21st Street development and pursuing another building project.`\
-https://nytimes.com/2023/07/26/arts/zwirner-changes-chelsea-gallery-plan.html?searchResultPosition=4
+https://nytimes.com/2023/07/26/arts/zwirner-changes-chelsea-gallery-plan.html?searchResultPosition=5
 
 **2 Supervisors at Juvenile Lockup in Bronx Are Charged in Beating of Teenager**\
 `The charges were another sign of the problems that have plagued New York’s detention of adults and minors alike.`\
-https://nytimes.com/2023/07/26/nyregion/teen-beaten-bronx-juvenile-detention.html?searchResultPosition=5
+https://nytimes.com/2023/07/26/nyregion/teen-beaten-bronx-juvenile-detention.html?searchResultPosition=6
 
 **Affirmative Action Ruling Shakes Universities Over More Than Race**\
 `At what was billed as an Education Department “summit” in Washington on Wednesday, a wide range of college admissions practices were on the table.`\
-https://nytimes.com/2023/07/26/us/affirmative-action-college-admissions-harvard.html?searchResultPosition=6
+https://nytimes.com/2023/07/26/us/affirmative-action-college-admissions-harvard.html?searchResultPosition=7
 
 **The Night Sinead O’Connor Took on the Pope on ‘S.N.L.’**\
 `Tearing up a photo was the moment nobody forgot. The performance that preceded it was just as powerful.`\
-https://nytimes.com/2023/07/26/arts/music/sinead-oconnor-snl-pope.html?searchResultPosition=7
+https://nytimes.com/2023/07/26/arts/music/sinead-oconnor-snl-pope.html?searchResultPosition=8
 
 **Main Thrust of Ukraine’s Offensive May Be Underway, U.S. Officials Say**\
 `After holding back many of its units trained and armed by the West, Ukraine is now committing them, the officials said, but it remained unclear whether a full-scale assault was taking place.`\
-https://nytimes.com/2023/07/26/world/europe/ukraine-counteroffensive.html?searchResultPosition=8
+https://nytimes.com/2023/07/26/world/europe/ukraine-counteroffensive.html?searchResultPosition=9
 
 **U.S. Moves to Improve Airplane Bathrooms for People With Disabilities**\
 `New regulations announced by the Transportation Department will mandate that more new planes have accessible lavatories, though the requirement will not take effect for years.`\
-https://nytimes.com/2023/07/26/us/politics/airplane-bathrooms-disabilities-accessibility.html?searchResultPosition=9
-
-**Court Rejects New Sentencing for Al Qaeda Recruiter**\
-`Ali Hamza al-Bahlul is the only convict serving a life sentence at Guantánamo Bay. Lawyers have appealed his case six times.`\
-https://nytimes.com/2023/07/26/us/guantanamo-al-qaeda-recruiter.html?searchResultPosition=10
+https://nytimes.com/2023/07/26/us/politics/airplane-bathrooms-disabilities-accessibility.html?searchResultPosition=10
 
