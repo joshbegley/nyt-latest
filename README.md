@@ -26,7 +26,7 @@ https://nytimes.com/2023/07/27/world/africa/niger-coup-president-bazoum.html?sea
 `On the surface, Piet Mondrian and Hilma af Klint made very different work. But an exhibition at Tate Modern explores the pair’s shared obsessions, including astrology, X-rays and atoms.`\
 https://nytimes.com/2023/07/27/arts/design/mondrian-af-klint-tate-modern-review.html?searchResultPosition=7
 
-**This Looks Like Earth’s Warmest Month. Even Hotter Ones Could Be in Store.**\
+**This Looks Like Earth’s Warmest Month. Even Hotter Ones Appear to Be in Store.**\
 `July is on track to break all records for any month, scientists say, as the planet enters an extended period of exceptional warmth.`\
 https://nytimes.com/2023/07/27/climate/july-heat-hottest-month.html?searchResultPosition=8
 
