@@ -26,9 +26,9 @@ https://nytimes.com/2023/07/28/books/jean-fagan-yellin-dead.html?searchResultPos
 `The prime minister said he planned to reinstate an ally barred from the government. He declined to say if he would respect a Supreme Court decision on the overhaul plan that has divided the country.`\
 https://nytimes.com/2023/07/28/world/middleeast/netanyahu-judicial-overhaul-israel.html?searchResultPosition=7
 
-**Facing an arduous path to the sea, Ukraine seeks an interim advantage.**\
-`Ukraine is hoping that mile-by-mile gains could bring its weapons closer to Russian supply lines, giving it a better shot at Russian targets.`\
-https://nytimes.com/2023/07/28/world/europe/facing-an-arduous-path-to-the-sea-ukraine-seeks-an-interim-advantage.html?searchResultPosition=8
+**With Slow Advance, Ukraine Aims for Better Shot at Russian Targets**\
+`Ukraine is hoping that mile-by-mile gains could bring its weapons closer to Russian supply lines, if its forces can overcome Russia’s heavy defense.`\
+https://nytimes.com/2023/07/28/world/europe/ukraine-counteroffensive-russia.html?searchResultPosition=8
 
 **Australian TV Deal Has World Cup Viewers Asking: Where Are the Games?**\
 `When FIFA sold Australia’s World Cup broadcast rights to a streaming service, it made it harder for casual fans to find the matches.`\
