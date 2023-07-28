@@ -1,40 +1,40 @@
-**Social Security’s Next Cost-of-Living Raise Is Forecast Around 3%**\
-`Analysts say the 2024 adjustment, which helps older Americans keep up with inflation, won’t be nearly as high as his year’s but will still be significant.`\
-https://nytimes.com/2023/07/28/business/social-security-cola-medicare.html?searchResultPosition=1
+**The Lost Art of Fouling the Ball Off (on Purpose)**\
+`Spoiling difficult pitches to stay alive was equal parts strategy and party trick. The modern approach to hitting has left it behind.`\
+https://nytimes.com/2023/07/28/sports/baseball/foul-balls.html?searchResultPosition=1
 
-**Let the Tragedy in My Homeland Be a Lesson**\
-`The defense of Uyghurs’ human rights is the defense of human rights everywhere.`\
-https://nytimes.com/2023/07/28/opinion/uyghur-china-internment-authoritarian.html?searchResultPosition=2
+**If the Survivors of the Tulsa Race Massacre Can’t Receive Reparations, Who Will?**\
+`The courts refused to punish the attackers or offer redress to hundreds of newly destitute people. This injustice continues.`\
+https://nytimes.com/2023/07/28/opinion/tulsa-race-massacre-reparations.html?searchResultPosition=2
 
-**From a Death Investigator to Elliot Page, Memoirists Reading Their Own Words**\
-`Three recent audiobooks feature authors narrating their own personal stories, directly into your ear.`\
-https://nytimes.com/2023/07/28/books/review/pageboy-elliot-page-what-the-dead-know-barbara-butcher-the-forgotten-girls-monica-potts.html?searchResultPosition=3
+**I Thought We Learned Mandatory Minimums Don’t Solve Drug Epidemics**\
+`The opioid epidemic is a nightmare. Revisiting draconian drug sentencing laws will make it worse.`\
+https://nytimes.com/2023/07/28/opinion/mandatory-minimum-sentences-fentanyl-wont-end-drug-epidemic.html?searchResultPosition=3
 
-**Late to the Reading Circle**\
-`“Writing for kids had long been an ambition of mine, but until recently I didn’t know it had long been an ambition.”`\
-https://nytimes.com/2023/07/28/books/review/bruce-handy-becoming-a-childrens-picture-book-author-in-his-60s.html?searchResultPosition=4
+**Class Is in Session. The Teacher? Mark Morris.**\
+`The choreographer has long taught company class. It’s part of what makes his distinctly individual dancers seem so natural — and coherent as a group.`\
+https://nytimes.com/2023/07/28/arts/dance/choreographer-mark-morris-as-teacher.html?searchResultPosition=4
 
-**Biden to Overhaul Military Justice Code, Seeking to Curb Sexual Assault**\
-`The largest overhaul of the Uniform Code of Military Justice since its creation in 1950 will remove commanders’ authority over cases of sexual assault and a handful of other high-profile crimes.`\
-https://nytimes.com/2023/07/28/us/politics/biden-military-sexual-assault.html?searchResultPosition=5
+**Three Impressive, Deceptively Easy Summer Dishes**\
+`The French chef Yann Nury elevates classic seasonal recipes with fresh flavor combinations and a few luxurious additions.`\
+https://nytimes.com/2023/07/28/t-magazine/yann-nury-summer-recipes.html?searchResultPosition=5
 
-**Elon’s X Machina, Crypto Orbs and a Visit to Google’s Robot Lab**\
-`X marks the spot where Twitter died.`\
-https://nytimes.com/2023/07/28/podcasts/elons-x-machina-crypto-orbs-and-a-visit-to-googles-robot-lab.html?searchResultPosition=6
+**Three Debuts Explore the Trials — and Horrors — of Growing Up**\
+`From a house haunted by phantom children to younger siblings haunted by sexual trauma, three new novels feature protagonists struggling to be or raise kids.`\
+https://nytimes.com/2023/07/28/books/review/a-good-house-for-children-kate-collins-i-will-greet-the-sun-again-khashayar-j-khabushani-all-night-pharmacy-ruth-madievsky.html?searchResultPosition=6
 
-**Wall St. Pessimists Are Getting Used to Being Wrong**\
-`The S&P 500 is up about 20 percent this year, but some still warn that the future may not be as rosy as that implies.`\
-https://nytimes.com/2023/07/28/business/stock-market-bears.html?searchResultPosition=7
+**72 Regional Theaters, One Shared Crisis**\
+`Michael Paulson spoke with producers and artistic directors at nonprofit theaters across the country about the crisis their industry is facing.`\
+https://nytimes.com/2023/07/28/insider/regional-theater-crisis.html?searchResultPosition=7
 
-**How Did We Do? A Review of 2022 Before Our First Poll of 2023.**\
-`Trying to learn from a strong midterm run as we start surveying the G.O.P. primary.`\
-https://nytimes.com/2023/07/28/upshot/polling-2022-review.html?searchResultPosition=8
+**He Held Up a Bank to Get His Own Money**\
+`Amid severe limits on withdrawals and a yearslong financial crisis, Lebanese depositors are resorting to force to demand their own money, earning the moniker “the world’s most honorable bank robbers.”`\
+https://nytimes.com/2023/07/28/world/middleeast/lebanese-bank-depositors-robbery.html?searchResultPosition=8
 
-**The Conditions Are Ripe for a Third Party in 2024. Is No Labels It?**\
-`Katherine Miller shares her impressions after attending the nonpartisan group’s first town hall.`\
-https://nytimes.com/2023/07/28/opinion/no-labels-joe-biden.html?searchResultPosition=9
+**Unhappy With Right-Wing Leaders, Some Israelis Hatch Escape Plans**\
+`Reacting to efforts by the government to take greater control of the judiciary, some people are transferring money overseas and applying for other passports if they are eligible.`\
+https://nytimes.com/2023/07/28/world/middleeast/israelis-relocate-netanyahu-overhaul.html?searchResultPosition=9
 
-**Fighting With Your Partner? Use These 4 Phrases.**\
-`Brevity is key, experts say.`\
-https://nytimes.com/2023/07/28/well/mind/make-up-fight-relationships.html?searchResultPosition=10
+**Make It New and Difficult: The Music of Arnold Schoenberg**\
+`John Adams reviews “Schoenberg: Why He Matters,” in which Harvey Sachs explores the artistic, academic and spiritual life of a 20th-century cultural giant.`\
+https://nytimes.com/2023/07/28/books/review/schoenberg-why-he-matters-harvey-sachs.html?searchResultPosition=10
 
