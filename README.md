@@ -30,7 +30,7 @@ https://nytimes.com/2023/07/28/world/europe/russia-ukraine-weddings.html?searchR
 `Some California regions have experienced heat waves, but most of the state has not had to endure the sweltering stretches felt elsewhere this summer.`\
 https://nytimes.com/2023/07/28/us/california-extreme-heat.html?searchResultPosition=8
 
-**Quantum Tech Intended for National Security Is Testing U.S. Alliances**\
+**Quantum Tech Will Transform National Security. It’s Testing U.S. Alliances Now.**\
 `A global race to harness the power of atoms for navigation, computing and encryption is pitting concerns over protectionism against the spirit of cooperation.`\
 https://nytimes.com/2023/07/28/world/australia/quantum-technology-aukus.html?searchResultPosition=9
 
