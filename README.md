@@ -20,7 +20,7 @@ https://nytimes.com/2023/07/28/opinion/tulsa-race-massacre-reparations.html?sear
 
 **I Thought We Learned Mandatory Minimums Don’t Solve Drug Epidemics**\
 `The opioid epidemic is a nightmare. Revisiting draconian drug sentencing laws will make it worse.`\
-https://nytimes.com/2023/07/28/opinion/fentanyl-opioid-epidemic-mandatory-sentences.html?searchResultPosition=6
+https://nytimes.com/2023/07/28/opinion/fentanyl-mandatory-drug-sentences.html?searchResultPosition=6
 
 **Class Is in Session. The Teacher? Mark Morris.**\
 `The choreographer has long taught company class. It’s part of what makes his distinctly individual dancers seem so natural — and coherent as a group.`\
