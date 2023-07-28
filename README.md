@@ -3,7 +3,7 @@
 https://nytimes.com/2023/07/28/nyregion/nyc-apartments-world-trade-center.html?searchResultPosition=1
 
 **Wage Growth Slowed in Second Quarter, a Sign the Economy is Cooling**\
-`Pay and benefits increased 1 percent, down from 1.2 percent in the first three months of the year.`\
+`Pay and benefits increased 1 percent, down from 1.2 percent in the first three months of the year. The cooling will be welcomed by policymakers who have been worried that rapidly rising wages could make it harder to get inflation under control.`\
 https://nytimes.com/2023/07/28/business/inflation-wages-economy.html?searchResultPosition=2
 
 **The Fed’s Preferred Inflation Measure Cooled in June**\
