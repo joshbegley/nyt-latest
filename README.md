@@ -2,7 +2,7 @@
 `The most majestic dance in “Barbie” is an emotional release for the Kens, but in subtle ways movement touches, and enhances, everything in the movie.`\
 https://nytimes.com/2023/07/28/arts/dance/ken-dance-barbie-movie.html?searchResultPosition=1
 
-**Europe Vowed to ‘Make Russia Pay’ for the War. It’s Not That Easy.**\
+**Europe Vowed to Make Russia Pay for the War. It’s Not That Easy.**\
 `Confiscating Russian state assets frozen by the United States and Europe could breach international law and set a dangerous precedent, experts say.`\
 https://nytimes.com/2023/07/28/world/europe/ukraine-russia-assets.html?searchResultPosition=2
 
