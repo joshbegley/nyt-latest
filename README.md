@@ -4,7 +4,7 @@ https://nytimes.com/2023/07/28/opinion/sinead-oconnor-meaning-death-ireland.html
 
 **John Fetterman, Hoodie and All, Is Adjusting to Life in the Senate**\
 `In an interview with The New York Times, the Pennsylvania senator spoke about the dysfunction in Congress, his health challenges and why he hasn’t traded his loungewear for a business suit.`\
-https://nytimes.com/2023/07/28/us/politics/john-fetterman-hoodie-and-all-is-adjusting-to-life-in-the-senate.html?searchResultPosition=2
+https://nytimes.com/2023/07/28/us/politics/john-fetterman-pennsylvania-interview.html?searchResultPosition=2
 
 **As His Campaign Craters, DeSantis Walls Himself In**\
 `Ron DeSantis is selling the wrong message to Republicans, but he’s too deep in his bubble to realize it.`\
