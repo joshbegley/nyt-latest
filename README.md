@@ -1,40 +1,40 @@
+**A Recipe For Love? Add ‘Water and Sunlight.’**\
+`Before meeting Jennifer Ziegler, Rebecca Woodfork said she was always “looking down and getting through life.” One month together in Boston and a trip to St. Lucia changed that.`\
+https://nytimes.com/2023/07/28/style/jennifer-ziegler-rebecca-woodfork-wedding.html?searchResultPosition=1
+
+**Wanting More Than ‘Thank You, Next!’**\
+`Auditioning for romance, friendship and acting roles has a lot in common — especially when it comes to hearing ‘No.’`\
+https://nytimes.com/2023/07/28/style/modern-love-wanting-more-than-thank-you-next.html?searchResultPosition=2
+
+**He Asked Her if She Wanted to Fall in Love. She Said Let’s Dance First.**\
+`Marissa Bergmann met Retta Abraham when he sat down next to her at a rooftop party. What unraveled then was a sequence of events out of an old movie.`\
+https://nytimes.com/2023/07/28/style/marissa-bergmann-retta-abraham-wedding.html?searchResultPosition=3
+
+**An Awkward Elevator Ride Leads to Love**\
+`Christena Pyle and Rosemary Kalonaros spent weeks awkwardly bumping into each other at work. Then, they kissed at the company holiday party.`\
+https://nytimes.com/2023/07/28/style/christena-pyle-rosemary-kalonaros-wedding.html?searchResultPosition=4
+
+**A Facebook Internship That Led to a 650-Guest Wedding Celebration**\
+`In New York, Hamza Choudery and Zabreen Khan quickly bonded over a shared culture and cricket. This month they were married in Lahore.`\
+https://nytimes.com/2023/07/28/style/zabreen-khan-hamza-choudery-wedding.html?searchResultPosition=5
+
 **Your Friday Briefing**\
 `Donald Trump faces major new charges.`\
-https://nytimes.com/2023/07/27/briefing/trump-counteroffensive-heat.html?searchResultPosition=1
+https://nytimes.com/2023/07/27/briefing/trump-counteroffensive-heat.html?searchResultPosition=6
 
 **Corrections: July 28, 2023**\
 `Corrections that appeared in print on Friday, July 28, 2023.`\
-https://nytimes.com/2023/07/27/pageoneplus/corrections-july-28-2023.html?searchResultPosition=2
+https://nytimes.com/2023/07/27/pageoneplus/corrections-july-28-2023.html?searchResultPosition=7
 
 **Variety: Acrostic**\
 `David Balton and Jane Stewart say: Come on in. The puzzle’s fine!`\
-https://nytimes.com/2023/07/27/crosswords/variety-acrostic.html?searchResultPosition=3
+https://nytimes.com/2023/07/27/crosswords/variety-acrostic.html?searchResultPosition=8
 
 **Gathering to Show Off a New Rock Band**\
 `Rafael Musa and Hoang-Kim Vu reach out to us.`\
-https://nytimes.com/2023/07/27/crosswords/daily-puzzle-2023-07-28.html?searchResultPosition=4
+https://nytimes.com/2023/07/27/crosswords/daily-puzzle-2023-07-28.html?searchResultPosition=9
 
 **Randy Meisner, Founding Member of the Eagles, Dies at 77**\
 `Meisner, the group’s original bass player, helped form the band in 1971.`\
-https://nytimes.com/2023/07/27/us/randy-meisner-dead.html?searchResultPosition=5
-
-**Senate Passes Bipartisan Defense Bill, Setting Up a Clash With the House**\
-`Senators steered clear of the social policy dictates that sapped Democratic support for the House bill, but the legislation was headed for a contentious negotiation to reach a final agreement.`\
-https://nytimes.com/2023/07/27/us/politics/senate-passes-bipartisan-defense-bill.html?searchResultPosition=6
-
-**Casino Mogul Steve Wynn Reaches Settlement Over Sexual Misconduct Claims**\
-`Mr. Wynn, who resigned from Wynn Resorts in 2018, agreed to pay Nevada $10 million and to step back from its gambling industry.`\
-https://nytimes.com/2023/07/27/business/steve-wynn-settlement-casinos-misconduct.html?searchResultPosition=7
-
-**Four Decades Later, a Victim of the Highway Killer Is Finally Identified**\
-`Four bodies were found on an Indiana farm in 1983. The remains of Keith Lavell Bibbs, 16, of Chicago, were the last to be identified. All were victims of the serial killer Larry Eyler.`\
-https://nytimes.com/2023/07/27/us/larry-eyler-victim-keith-bibbs-identified.html?searchResultPosition=8
-
-**Judge Orders Release of Three of ‘Newburgh Four,’ Criticizing F.B.I.**\
-`Judge Colleen McMahon of U.S. District Court suggested that the federal agency had “invented” a conspiracy.`\
-https://nytimes.com/2023/07/27/nyregion/newburgh-four-terrorism-fbi.html?searchResultPosition=9
-
-**Hunter Biden Judge, Defying a ‘Rubber Stamp,’ Jumps Into the Spotlight**\
-`Judge Maryellen Noreika was not an especially high-profile figure in the small legal community in the nation’s second-smallest state. That’s changed.`\
-https://nytimes.com/2023/07/27/us/politics/judge-hunter-biden.html?searchResultPosition=10
+https://nytimes.com/2023/07/27/us/randy-meisner-dead.html?searchResultPosition=10
 
