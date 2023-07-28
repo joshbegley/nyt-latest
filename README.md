@@ -2,7 +2,7 @@
 `Quotation of the Day for Friday, July 28, 2023.`\
 https://nytimes.com/2023/07/28/pageoneplus/quotation-of-the-day-a-lonely-voice-for-change-until-her-country-changed-with-her.html?searchResultPosition=1
 
-**O’Connor Was a Lonely Voice for Change — Until Ireland Changed With Her**\
+**O’Connor Was a Lonely Voice for Change, Until Ireland Changed With Her**\
 `Sinead O’Connor shocked her strongly Catholic country when she tore up the pope’s picture. But the Church’s sexual abuse scandals made Ireland more secular, and more understanding of her criticisms.`\
 https://nytimes.com/2023/07/28/world/europe/sinead-oconnor-changed-ireland.html?searchResultPosition=2
 
