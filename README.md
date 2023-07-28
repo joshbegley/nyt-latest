@@ -34,7 +34,7 @@ https://nytimes.com/2023/07/28/books/jean-fagan-yellin-dead.html?searchResultPos
 `The prime minister said he planned to reinstate an ally barred from the government. He declined to say if he would respect a Supreme Court decision on the overhaul plan that has divided the country.`\
 https://nytimes.com/2023/07/28/world/middleeast/netanyahu-judicial-overhaul-israel.html?searchResultPosition=9
 
-**With Slow Advance, Ukraine Aims for Better Shot at Russian Targets**\
+**With Grinding Advance, Ukraine Aims for Better Shot at Russian Targets**\
 `Ukraine is hoping that mile-by-mile gains could bring its weapons closer to Russian supply lines, if its forces can overcome Russia’s heavy defense.`\
 https://nytimes.com/2023/07/28/world/europe/ukraine-counteroffensive-russia.html?searchResultPosition=10
 
