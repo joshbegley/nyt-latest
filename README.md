@@ -1,5 +1,5 @@
 **Mastercard Moves to Stop Use of Debit Cards at Cannabis Shops**\
-`The decision places more strain on the cannabis industry, which largely operates with cash only, and is not uniformly regulated across the United States. The drug is still illegal on the federal level.`\
+`The decision places more strain on the cannabis industry, which largely operates with cash and is not uniformly regulated across the United States. The drug is still illegal on the federal level.`\
 https://nytimes.com/2023/07/28/business/mastercard-debit-cannabis-transactions.html?searchResultPosition=1
 
 **The Weekender**\
