@@ -2,7 +2,7 @@
 `In a defense white paper, Tokyo presents its case for engagement with allies to respond to threats posed by China and by Russia’s invasion of Ukraine.`\
 https://nytimes.com/2023/07/28/world/asia/japan-military-white-paper.html?searchResultPosition=1
 
-**Japan’s Central Bank Loosens Its Grip on Easy Money Policy**\
+**Japan’s Central Bank Signals a Move Away From Easy Money Policy**\
 `Bank of Japan takes a step toward allowing interest rates to rise, saying it will be more flexible in managing its bond market.`\
 https://nytimes.com/2023/07/28/business/bank-of-japan-flexible-yield-control.html?searchResultPosition=2
 
