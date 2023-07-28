@@ -1,5 +1,5 @@
 **Randy Meisner, Founding Member of the Eagles, Dies at 77**\
-`Meisner, the group’s original bassist, helped form the band in 1971.`\
+`Meisner, the group’s original bass player, helped form the band in 1971.`\
 https://nytimes.com/2023/07/27/us/randy-meisner-dead.html?searchResultPosition=1
 
 **Senate Passes Bipartisan Defense Bill, Setting Up a Clash With the House**\
