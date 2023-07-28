@@ -1,6 +1,6 @@
 **Florida’s New Black History Standards Have Drawn Backlash. Who Wrote Them?**\
 `In updating the standards to comply with a new law that limits how racism can be taught, officials largely bypassed the state’s African American History Task Force.`\
-https://nytimes.com/2023/07/28/us/african-american-history-standards-floirda-task-force.html?searchResultPosition=1
+https://nytimes.com/2023/07/28/us/african-american-history-standards-florida-task-force.html?searchResultPosition=1
 
 **Mastercard Moves to Stop Use of Debit Cards at Cannabis Shops**\
 `The decision places more strain on the cannabis industry, which largely operates with cash and is not uniformly regulated across the United States. The drug is still illegal on the federal level.`\
