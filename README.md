@@ -1,5 +1,5 @@
-**G.O.P. Rivals Don’t Attack Trump in Iowa. But He Goes After Them.**\
-`Almost every one of the former president’s 13 rivals who attended declined to go after the primary’s front-runner. He did not return the favor.`\
+**G.O.P. Rivals Don’t Attack Trump in Iowa. But He Doesn’t Return the Favor.**\
+`Almost every one of former President Trump’s 13 rivals who attended the dinner declined to even mention the primary’s front-runner.`\
 https://nytimes.com/2023/07/28/us/politics/lincoln-dinner-iowa-2024.html?searchResultPosition=1
 
 **Corrections: July 29, 2023**\
