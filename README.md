@@ -34,7 +34,7 @@ https://nytimes.com/2023/07/29/opinion/letters/loneliness.html?searchResultPosit
 `Get comfortable with accomplishing less.`\
 https://nytimes.com/2023/07/29/opinion/do-one-thing-at-a-time-management.html?searchResultPosition=9
 
-**‘The Agreement Is Broken’: Israeli Reservists Resign to Protest New Law**\
+**A Sense of Mission at Risk as Israeli Reservists Resign to Protest New Law**\
 `Military reservists are key to Israel’s defense capacity and a shared sense of national mission. But scores of reservists have resigned over a new law curbing judicial power, reflecting a widening rift in Israeli society.`\
 https://nytimes.com/2023/07/29/world/middleeast/israel-reservists-judicial-overhaul.html?searchResultPosition=10
 
