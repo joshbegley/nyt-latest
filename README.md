@@ -1,40 +1,40 @@
-**Savannah DeMelo’s World Cup Trial by Fire**\
-`DeMelo had never played for the United States women’s team when she was named to the World Cup roster. Thrust into a starting role, she’s doing her best to fit in.`\
-https://nytimes.com/2023/07/29/sports/soccer/savannah-demelo-uswnt-world-cup.html?searchResultPosition=1
+**The Robots We Were Afraid of Are Already Here**\
+`The long-anticipated automation revolution has begun. Robots are ready to operate forklifts and do laundry. It’s not as scary as it sounds.`\
+https://nytimes.com/2023/07/29/business/robots-workers-future.html?searchResultPosition=1
 
-**Fighting for Anthony: The Struggle to Save Portland, Oregon**\
-`The city has long grappled with street homelessness and a shortage of housing. Now fentanyl has turned a perennial problem into a deadly crisis and a challenge to the city’s progressive identity.`\
-https://nytimes.com/2023/07/29/us/portland-oregon-fentanyl-homeless.html?searchResultPosition=2
+**In Border Towns, a ‘Dangerous Combination’ of Heat and Water Cutoffs**\
+`Trying to keep cool during a record-setting summer is a social divide for residents of low-income colonias, where running water can be in short supply.`\
+https://nytimes.com/2023/07/29/us/texas-heat-colonias.html?searchResultPosition=2
 
-**A Summer Spectacle Where Fireflies Are the Guiding Light**\
-`Bill and Mary-Ellen McDonald host firefly viewing parties, hoping to inspire their neighbors to stop using pesticides and consider rewilding their lawns.`\
-https://nytimes.com/2023/07/29/nyregion/connecticut-firefly-sanctuary.html?searchResultPosition=3
+**It’s Been a Hellish Summer for the Mediterranean. And It’s Not Over.**\
+`Record heat and wildfires have turned summer holidays into nightmares and called into question the future of cherished tourist destinations.`\
+https://nytimes.com/2023/07/29/world/europe/italy-greece-wildfires-heat.html?searchResultPosition=3
 
-**How a Creator of a Women-Centric Whiskey Brand Spends Her Sundays**\
-`Kate Rosante, who co-founded the bourbon company Boss Molly, makes themed cocktails for movie nights at her summer house in Amagansett.`\
-https://nytimes.com/2023/07/29/nyregion/boss-molly-bourbon-kate-rosante.html?searchResultPosition=4
+**Why Are Dave Matthews Band Fans So Loyal?**\
+`Some have spent thousands of dollars and traveled hundreds of miles to see them since their summer tours started in the early ’90s.`\
+https://nytimes.com/2023/07/29/style/dave-matthews-band-dmb.html?searchResultPosition=4
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/07/29/crosswords/wordle-review-answer-770.html?searchResultPosition=5
+**‘We Can Never Forgive This’: In Odesa, Attacks Stoke Hatred of Russia**\
+`President Vladimir V. Putin of Russia views Odesa as a culturally important part of his nation. But many in the Ukrainian city reject the connection and view the country that has been attacking it with loathing.`\
+https://nytimes.com/2023/07/29/world/europe/odesa-ukraine-war.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/07/29/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**They Put the Heart in ‘Heartstopper’**\
+`Kit Connor and Joe Locke discuss the pressure of expectations and how the global success of their Netflix hit, returning Aug. 3, has changed their lives.`\
+https://nytimes.com/2023/07/29/arts/television/they-put-the-heart-in-heartstopper.html?searchResultPosition=6
 
-**In Mississippi, Open Secrets Lay in a Pile of Records**\
-`Accusations against the powerful sheriff in Clay County were there for anybody to find.`\
-https://nytimes.com/2023/07/29/pageoneplus/mississippi-open-secrets-records.html?searchResultPosition=7
+**‘A Dangerous Combination’: Teenagers’ Accidents Expose E-Bike Risks**\
+`The e-bike industry is booming, but many vehicles are not legal for teenagers, and accidents are on the rise.`\
+https://nytimes.com/2023/07/29/health/ebikes-safety-teens.html?searchResultPosition=7
 
-**Reluctant to Retire, Leaders Raise a Tough Question: How Old Is Too Old?**\
-`Two troubling moments involving Senators Dianne Feinstein and Mitch McConnell thrust questions about aging in office out of Congress and into the national conversation.`\
-https://nytimes.com/2023/07/29/us/politics/mcconnell-feinstein-biden-age.html?searchResultPosition=8
+**Jennifer Brady, Finally Healthy, Tries to Get Back to Work**\
+`After a star turn in 2020 and ’21, Brady was sidelined for nearly two years by a chronic foot condition and a knee injury that, combined, sometimes left her in “a very dark place.”`\
+https://nytimes.com/2023/07/29/sports/tennis/jennifer-brady-citi-open.html?searchResultPosition=8
 
-**Trump, Spared Attacks by Rivals in Iowa, Doesn’t Return the Favor**\
-`Almost every one of former President Trump’s 13 rivals who attended the dinner declined to even mention the primary’s front-runner.`\
-https://nytimes.com/2023/07/28/us/politics/lincoln-dinner-iowa-2024.html?searchResultPosition=9
+**Coast to Coast, a Corridor of Coups Brings Turmoil in Africa**\
+`This past week’s military takeover in Niger completed a domino chain of countries ruled by leaders who seized power by force, fueling instability and presenting a conundrum for the United States.`\
+https://nytimes.com/2023/07/29/world/africa/africa-coups-niger.html?searchResultPosition=9
 
-**Corrections: July 29, 2023**\
-`Corrections that appeared in print on Saturday, July 29, 2023.`\
-https://nytimes.com/2023/07/28/pageoneplus/corrections-july-29-2023.html?searchResultPosition=10
+**What Is an E-Bike, and How Safe Are They?**\
+`Surprisingly tricky questions about an increasingly popular vehicle.`\
+https://nytimes.com/2023/07/29/health/ebikes-safety-regulation.html?searchResultPosition=10
 
