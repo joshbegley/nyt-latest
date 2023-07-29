@@ -1,6 +1,6 @@
 **Colombian President’s Son Is Arrested in Money Laundering Inquiry**\
 `The arrest of Nicolás Petro poses another test for President Gustavo Petro, who has struggled to push many of his reforms through a divided Congress.`\
-https://nytimes.com/2023/07/29/world/americas/colombian-president-son-arrested.html?searchResultPosition=1
+https://nytimes.com/2023/07/29/world/americas/colombia-gustavo-petro-son-arrested.html?searchResultPosition=1
 
 **Biden Presses Ahead With Effort to Broker Israeli-Saudi Rapprochement**\
 `The president sent Jake Sullivan, his national security adviser, on the latest diplomatic mission seeking to forge ties between Saudi Arabia and Israel.`\
