@@ -18,7 +18,7 @@ https://nytimes.com/2023/07/29/podcasts/nyt-audio-this-american-life.html?search
 `For the landless who work in the British countryside but do not own a piece of it, it’s a place of profound inequality.`\
 https://nytimes.com/2023/07/29/opinion/british-countryside-working-class.html?searchResultPosition=5
 
-**In the Age of the Smartphone, We Need War Reporters More Than Ever**\
+**‘If You Don’t Do Anything You Feel Like a Criminal’**\
 `The work of conflict journalism is now more dangerous than ever. Does it still serve a purpose?`\
 https://nytimes.com/2023/07/29/opinion/journalism-foreign-correspondents-atrocities.html?searchResultPosition=6
 
