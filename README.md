@@ -1,5 +1,5 @@
 **$60 Million Refund Request Shows Financial Pressure on Trump From Legal Fees**\
-`The decision of Mr. Trump’s political team to ask for a refund of money that was meant to help his 2024 campaign, and was instead diverted to an account paying his legal bills, is extraordinary.`\
+`The decision of the former president’s political action committee to ask for a refund of money that was initially raised as he  sought donations to combat what he falsely claimed was widespread fraud is extraordinary.`\
 https://nytimes.com/2023/07/29/us/trump-pac-legal-fees.html?searchResultPosition=1
 
 **Worms Revived After 46,000 Years Frozen in Siberian Permafrost**\
