@@ -20,7 +20,7 @@ https://nytimes.com/2023/07/29/opinion/letters/loneliness.html?searchResultPosit
 
 **Today’s Superpower Is Doing One Thing at a Time**\
 `Get comfortable with accomplishing less.`\
-https://nytimes.com/2023/07/29/opinion/sunday/todays-superpower-is-doing-one-thing-at-a-time.html?searchResultPosition=6
+https://nytimes.com/2023/07/29/opinion/do-one-thing-at-a-time-management.html?searchResultPosition=6
 
 **‘The Agreement Is Broken’: Israeli Reservists Resign to Protest New Law**\
 `Military reservists are key to Israel’s defense capacity and a shared sense of national mission. But after a new law curbing judicial power, scores of reservists have resigned — reflecting a widening rift in Israeli society.`\
