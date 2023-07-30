@@ -30,8 +30,8 @@ https://nytimes.com/2023/07/30/world/africa/west-africa-niger-coup.html?searchRe
 `Hillary Simms is the first woman to become a member of the American Brass Quintet. She says the field needs more role models.`\
 https://nytimes.com/2023/07/30/arts/music/hillary-simms-american-brass-quintet.html?searchResultPosition=8
 
-**At Least 35 Killed in Blast at Political Rally in Pakistan**\
-`An explosion at a political rally on Sunday in northwest Pakistan killed at least 35 people and injured 200 more, officials said, the latest sign of the deteriorating security situation in Pakistan, where some militant groups have become more active over the past two years.`\
+**At Least 43 Killed in Blast at Political Rally in Pakistan**\
+`An explosion at a political rally on Sunday in northwest Pakistan killed dozens of people and injured 200 more, officials said, the latest sign of the deteriorating security situation in Pakistan, where some militant groups have become more active over the past two years.`\
 https://nytimes.com/2023/07/30/world/asia/pakistan-rally-explosion.html?searchResultPosition=9
 
 **A New Recipe for a Very Old Hummus**\
