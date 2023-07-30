@@ -1,40 +1,40 @@
+**Megan Rapinoe Is Not Going Quietly**\
+`Relegated to a reserve role in her fourth World Cup, the outspoken U.S. forward said she has plenty left to give. And that she’s still expecting to win it all.`\
+https://nytimes.com/2023/07/30/sports/soccer/megan-rapinoe-uswnt.html?searchResultPosition=1
+
+**My Reporting Led to the Resignation of Stanford’s President, but the Issue of Research Manipulation Is Bigger Than One Man**\
+`Scientific journals need to harden their defenses against research manipulation.`\
+https://nytimes.com/2023/07/30/opinion/stanford-president-student-journalist.html?searchResultPosition=2
+
+**The Sunday Read: ‘The America That Americans Forget’**\
+`As tensions with China mount, the U.S. military continues to build up Guam and other Pacific territories — placing the burdens of imperial power on the nation’s most ignored and underrepresented citizens.`\
+https://nytimes.com/2023/07/30/podcasts/the-daily/the-sunday-read-the-america-that-americans-forget.html?searchResultPosition=3
+
+**The Butterfly Net and the Magic of Attention**\
+`Make very little of yourself if you wish to see clearly. Shut up, deeply, if you wish to hear.`\
+https://nytimes.com/2023/07/30/opinion/butterfly-hunting-attention.html?searchResultPosition=4
+
+**How Trump Could Wreck Things for Republicans in 2024**\
+`The governor’s race in New Hampshire offers a window into the ways Trump could complicate the lives of down-ballot G.O.P. candidates.`\
+https://nytimes.com/2023/07/30/opinion/donald-trump-new-hampshire.html?searchResultPosition=5
+
+**What ‘Oppenheimer’ Doesn’t Tell You About the Trinity Test**\
+`As a new generation of Americans learns about the world’s first nuclear test, the people who lived through it are being left out of the story again.`\
+https://nytimes.com/2023/07/30/opinion/international-world/oppenheimer-nuclear-bomb-cancer.html?searchResultPosition=6
+
+**For One Weekend, We Remembered the Magic of Movie Theaters**\
+`The Barbenheimer phenomenon reminded us of something we’d forgotten: The moviegoing experience is about so much more than what’s onscreen.`\
+https://nytimes.com/2023/07/30/opinion/contributors/barbenheimer-magic-of-movie-theaters.html?searchResultPosition=7
+
 **What Is It About Montecito?**\
 `Trying to understand the allure of a place that’s home to Oprah, the self-exiled royals, a celebrity juicer, Katy Perry’s dad — and the New American Dream.`\
-https://nytimes.com/2023/07/30/style/montecito-california.html?searchResultPosition=1
+https://nytimes.com/2023/07/30/style/montecito-california.html?searchResultPosition=8
 
 **Inside the Party Switch that Blew Up North Carolina Politics**\
 `Tricia Cotham, a Democrat who supported abortion rights, was encouraged to run for a state House seat by powerful Republicans. After she was elected, she joined them and delivered a G.O.P. supermajority.`\
-https://nytimes.com/2023/07/30/business/inside-the-party-switch-that-blew-up-north-carolina-politics.html?searchResultPosition=2
+https://nytimes.com/2023/07/30/business/inside-the-party-switch-that-blew-up-north-carolina-politics.html?searchResultPosition=9
 
 **But Who Gets the Comic Books?**\
 `When collectors die, their families face a lot of decisions, including what to do with a hundred Superman figurines.`\
-https://nytimes.com/2023/07/30/style/collectors-estates.html?searchResultPosition=3
-
-**Russia Takes Its Ukraine Information War Into Video Games**\
-`Propaganda is appearing in Minecraft and other popular games and discussion groups as the Kremlin tries to win over new audiences.`\
-https://nytimes.com/2023/07/30/technology/russia-propaganda-video-games.html?searchResultPosition=4
-
-**The Legacy Dilemma: What to Do About Privileges for the Privileged?**\
-`Alumni of many colleges are wrestling with whether the practice of legacy admissions should survive after the Supreme Court gutted race-based admissions programs.`\
-https://nytimes.com/2023/07/30/us/politics/legacy-admissions-college-alumni.html?searchResultPosition=5
-
-**Excavations Uncover Hints of Nero’s Theater in Rome, and Much More**\
-`A dig at a palace set to become a hotel has unearthed traces of a theater that archaeologists hypothesize was built by Nero, the emperor with a disputed reputation for tyranny and debauchery.`\
-https://nytimes.com/2023/07/30/world/europe/rome-nero-theater.html?searchResultPosition=6
-
-**A Theory of Childbirth’s Evolution May Not Be What You’re Expecting**\
-`Scientists are revisiting an influential theory that the evolution of big brains made human childbirth risky.`\
-https://nytimes.com/2023/07/30/science/childbirth-evolution-obstetrical-dilemma.html?searchResultPosition=7
-
-**‘Tom Lake’ Finds Ann Patchett in a Chekhovian Mood**\
-`This time the celebrated novelist spins the cozy tale of a former actress, her three daughters and their rueful memories. There’s a cherry orchard, too.`\
-https://nytimes.com/2023/07/30/books/review/ann-patchett-tom-lake.html?searchResultPosition=8
-
-**A Relationship That Transcends Analytics**\
-`Adding a new catcher at the trading deadline is a fairly rare occurrence. One reason for that is the time it takes to bond with a pitching staff.`\
-https://nytimes.com/2023/07/30/sports/baseball/catchers-trading-deadline.html?searchResultPosition=9
-
-**In Israel, High Stakes for High Court: Democracy’s Fate**\
-`From Hungary to India to Brazil, how judges responded to attacks on their independence helped decide whether would-be autocrats prevailed in constraining the courts.`\
-https://nytimes.com/2023/07/30/world/middleeast/israel-court-democracys.html?searchResultPosition=10
+https://nytimes.com/2023/07/30/style/collectors-estates.html?searchResultPosition=10
 
