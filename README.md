@@ -14,7 +14,7 @@ https://nytimes.com/2023/07/30/briefing/the-retrievals-serial.html?searchResultP
 `Relegated to a reserve role in her fourth World Cup, the outspoken U.S. forward said she has plenty left to give. And that she’s still expecting to win it all.`\
 https://nytimes.com/2023/07/30/sports/soccer/megan-rapinoe-uswnt.html?searchResultPosition=4
 
-**The Story of the Student Journalist and the Stanford President**\
+**The Research Scandal at Stanford Is More Common Than You Think**\
 `Scientific journals need to harden their defenses against research manipulation.`\
 https://nytimes.com/2023/07/30/opinion/stanford-president-student-journalist.html?searchResultPosition=5
 
