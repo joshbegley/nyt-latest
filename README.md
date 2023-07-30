@@ -26,7 +26,7 @@ https://nytimes.com/2023/07/30/opinion/donald-trump-new-hampshire.html?searchRes
 `As a new generation of Americans learns about the world’s first nuclear test, the people who lived through it are being left out of the story again.`\
 https://nytimes.com/2023/07/30/opinion/international-world/oppenheimer-nuclear-bomb-cancer.html?searchResultPosition=7
 
-**For One Weekend, We Remembered the Magic of Movie Theaters**\
+**A Deeply Human Experience You’ll Never Have on Your Couch**\
 `The Barbenheimer phenomenon reminded us of something we’d forgotten: The moviegoing experience is about so much more than what’s onscreen.`\
 https://nytimes.com/2023/07/30/opinion/contributors/barbenheimer-magic-of-movie-theaters.html?searchResultPosition=8
 
