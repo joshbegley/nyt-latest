@@ -1,5 +1,5 @@
 **Coup Supporters Attack the French Embassy in Niger**\
-`Coup supporters in Niger’s capital waved Russian flags and called for the withdrawal of French troops from the country.`\
+`People who back the coup waved Russian flags in Niger’s capital and called for French troops to withdraw from the country.`\
 https://nytimes.com/video/world/africa/100000009019014/niger-pro-coup-protesters.html?searchResultPosition=1
 
 **A Left-Right Alliance Puts Iowa’s CO2 Pipelines on the Presidential Agenda**\
