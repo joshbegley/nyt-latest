@@ -1,40 +1,40 @@
-**The Secret History of Gun Rights: How Lawmakers Armed the N.R.A.**\
-`They served in Congress and on the N.R.A.’s board at the same time. Over decades, a small group of legislators led by a prominent Democrat pushed the gun lobby to help transform the law, the courts and views on the Second Amendment.`\
-https://nytimes.com/2023/07/30/us/politics/nra-congress-firearms.html?searchResultPosition=1
+**What Is It About Montecito?**\
+`Trying to understand the allure of a place that’s home to Oprah, the self-exiled royals, a celebrity juicer, Katy Perry’s dad — and the New American Dream.`\
+https://nytimes.com/2023/07/30/style/montecito-california.html?searchResultPosition=1
 
-**Could Ethnic Conflict in India Become an Issue Modi Cannot Ignore?**\
-`India’s opposition is trying to force the prime minister to address the violence in Manipur, which has killed more than 150 people and displaced 60,000 others.`\
-https://nytimes.com/2023/07/30/world/asia/india-manipur-modi.html?searchResultPosition=2
+**Inside the Party Switch that Blew Up North Carolina Politics**\
+`Tricia Cotham, a Democrat who supported abortion rights, was encouraged to run for a state House seat by powerful Republicans. After she was elected, she joined them and delivered a G.O.P. supermajority.`\
+https://nytimes.com/2023/07/30/business/inside-the-party-switch-that-blew-up-north-carolina-politics.html?searchResultPosition=2
 
-**New York City Had a Migrant Crisis. It Hired a Covid Expert to Help.**\
-`DocGo, a medical services company, received a $432 million no-bid contract to move hundreds of asylum seekers outside the city. Many say they have been threatened, mistreated and lied to.`\
-https://nytimes.com/2023/07/30/nyregion/migrants-albany-docgo.html?searchResultPosition=3
+**But Who Gets the Comic Books?**\
+`When collectors die, their families face a lot of decisions, including what to do with a hundred Superman figurines.`\
+https://nytimes.com/2023/07/30/style/collectors-estates.html?searchResultPosition=3
 
-**‘We Are a Romantic Country’: On the Set of a Steamy Hit in Italy**\
-`Italy falls for “Mare Fuori,” a television melodrama about the inmates of a juvenile detention center who pass the time making out — when not scowling at or occasionally stabbing one another.`\
-https://nytimes.com/2023/07/30/world/europe/italy-television-mare-fuori.html?searchResultPosition=4
+**Russia Takes Its Ukraine Information War Into Video Games**\
+`Propaganda is appearing in Minecraft and other popular games and discussion groups as the Kremlin tries to win over new audiences.`\
+https://nytimes.com/2023/07/30/technology/russia-propaganda-video-games.html?searchResultPosition=4
 
-**‘I Opened the Envelope and Found Three Pictures of Me in an Incubator’**\
-`An unlikely source of baby photos, a sharp jab to the ribs and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2023/07/30/nyregion/metropolitan-diary.html?searchResultPosition=5
+**The Legacy Dilemma: What to Do About Privileges for the Privileged?**\
+`Alumni of many colleges are wrestling with whether the practice of legacy admissions should survive after the Supreme Court gutted race-based admissions programs.`\
+https://nytimes.com/2023/07/30/us/politics/legacy-admissions-college-alumni.html?searchResultPosition=5
 
-**A Federal Food Safety Case Reveals Latest New York City Rat Horror Story**\
-`Prosecutors reached a settlement with the operator of a meat and poultry warehouse that had been infested with rodents before it was shuttered.`\
-https://nytimes.com/2023/07/30/nyregion/meat-poultry-warehouse-rodents-settlement.html?searchResultPosition=6
+**Excavations Uncover Hints of Nero’s Theater in Rome, and Much More**\
+`A dig at a palace set to become a hotel has unearthed traces of a theater that archaeologists hypothesize was built by Nero, the emperor with a disputed reputation for tyranny and debauchery.`\
+https://nytimes.com/2023/07/30/world/europe/rome-nero-theater.html?searchResultPosition=6
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/07/30/crosswords/wordle-review-answer-771.html?searchResultPosition=7
+**A Theory of Childbirth’s Evolution May Not Be What You’re Expecting**\
+`Scientists are revisiting an influential theory that the evolution of big brains made human childbirth risky.`\
+https://nytimes.com/2023/07/30/science/childbirth-evolution-obstetrical-dilemma.html?searchResultPosition=7
 
-**A Word That Never Goes Out of Style**\
-`Style isn’t just about fashion or punctuation. It’s “a way of moving through the world.”`\
-https://nytimes.com/2023/07/30/insider/a-word-that-never-goes-out-of-style.html?searchResultPosition=8
+**‘Tom Lake’ Finds Ann Patchett in a Chekhovian Mood**\
+`This time the celebrated novelist spins the cozy tale of a former actress, her three daughters and their rueful memories. There’s a cherry orchard, too.`\
+https://nytimes.com/2023/07/30/books/review/ann-patchett-tom-lake.html?searchResultPosition=8
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/07/30/crosswords/spelling-bee-forum.html?searchResultPosition=9
+**A Relationship That Transcends Analytics**\
+`Adding a new catcher at the trading deadline is a fairly rare occurrence. One reason for that is the time it takes to bond with a pitching staff.`\
+https://nytimes.com/2023/07/30/sports/baseball/catchers-trading-deadline.html?searchResultPosition=9
 
-**Russia Says 2 Drones Strike Buildings in Moscow in Latest Wave of Attacks**\
-`The strike was the third in the past week in Moscow, a sign of how no city in Russia or Ukraine appears to be safe from the war. Russia blamed Ukraine, which has yet to comment.`\
-https://nytimes.com/2023/07/30/world/europe/moscow-attacks-done.html?searchResultPosition=10
+**In Israel, High Stakes for High Court: Democracy’s Fate**\
+`From Hungary to India to Brazil, how judges responded to attacks on their independence helped decide whether would-be autocrats prevailed in constraining the courts.`\
+https://nytimes.com/2023/07/30/world/middleeast/israel-court-democracys.html?searchResultPosition=10
 
