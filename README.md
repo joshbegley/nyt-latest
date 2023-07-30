@@ -1,5 +1,5 @@
 **Judge Dismisses Trump’s $475 Million Defamation Suit Against CNN**\
-`The network’s statements were opinion, the ruling said, and did not a claim of libel and slander.`\
+`The network’s statements were opinion, the ruling said, and did not support a claim of libel and slander.`\
 https://nytimes.com/2023/07/30/business/media/trump-cnn-lawsuit.html?searchResultPosition=1
 
 **Your Monday Briefing: Dozens Dead in Pakistan**\
