@@ -2,7 +2,7 @@
 `Relegated to a reserve role in her fourth World Cup, the outspoken U.S. forward said she has plenty left to give. And that she’s still expecting to win it all.`\
 https://nytimes.com/2023/07/30/sports/soccer/megan-rapinoe-uswnt.html?searchResultPosition=1
 
-**My Reporting Led to the Resignation of Stanford’s President, but the Issue of Research Manipulation Is Bigger Than One Man**\
+**The Story of the Student Journalist and the Stanford President**\
 `Scientific journals need to harden their defenses against research manipulation.`\
 https://nytimes.com/2023/07/30/opinion/stanford-president-student-journalist.html?searchResultPosition=2
 
