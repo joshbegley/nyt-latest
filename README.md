@@ -23,7 +23,7 @@ https://nytimes.com/2023/07/30/us/colorado-police-conviction-train-tracks.html?s
 https://nytimes.com/video/world/africa/100000009019014/niger-pro-coup-protesters.html?searchResultPosition=6
 
 **A Left-Right Alliance Puts Iowa’s CO2 Pipelines on the Presidential Agenda**\
-`Liberal environmentalists and conservative landowners, led by the former congressman Steve King, are pressuring Republican candidates to block two huge Midwestern pipelines.`\
+`Liberal environmentalists and conservative landowners, led by the former congressman Steve King, are pressuring Republican candidates to oppose three Midwestern pipelines.`\
 https://nytimes.com/2023/07/30/us/politics/iowa-pipelines-trump.html?searchResultPosition=7
 
 **Finally on Top, the Rangers Hope to Stay There**\
