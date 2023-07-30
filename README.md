@@ -1,40 +1,40 @@
+**The Secret History of Gun Rights: How Lawmakers Armed the N.R.A.**\
+`They served in Congress and on the N.R.A.’s board at the same time. Over decades, a small group of legislators led by a prominent Democrat pushed the gun lobby to help transform the law, the courts and views on the Second Amendment.`\
+https://nytimes.com/2023/07/30/us/politics/nra-congress-firearms.html?searchResultPosition=1
+
+**Could Ethnic Conflict in India Become an Issue Modi Cannot Ignore?**\
+`India’s opposition is trying to force the prime minister to address the violence in Manipur, which has killed more than 150 people and displaced 60,000 others.`\
+https://nytimes.com/2023/07/30/world/asia/india-manipur-modi.html?searchResultPosition=2
+
+**New York City Had a Migrant Crisis. It Hired a Covid Expert to Help.**\
+`DocGo, a medical services company, received a $432 million no-bid contract to move hundreds of asylum seekers outside the city. Many say they have been threatened, mistreated and lied to.`\
+https://nytimes.com/2023/07/30/nyregion/migrants-albany-docgo.html?searchResultPosition=3
+
+**‘We Are a Romantic Country’: On the Set of a Steamy Hit in Italy**\
+`Italy falls for “Mare Fuori,” a television melodrama about the inmates of a juvenile detention center who pass the time making out — when not scowling at or occasionally stabbing one another.`\
+https://nytimes.com/2023/07/30/world/europe/italy-television-mare-fuori.html?searchResultPosition=4
+
+**‘I Opened the Envelope and Found Three Pictures of Me in an Incubator’**\
+`An unlikely source of baby photos, a sharp jab to the ribs and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2023/07/30/nyregion/metropolitan-diary.html?searchResultPosition=5
+
+**A Federal Food Safety Case Reveals Latest New York City Rat Horror Story**\
+`Prosecutors reached a settlement with the operator of a meat and poultry warehouse that had been infested with rodents before it was shuttered.`\
+https://nytimes.com/2023/07/30/nyregion/meat-poultry-warehouse-rodents-settlement.html?searchResultPosition=6
+
+**Today’s Wordle Review**\
+`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
+https://nytimes.com/2023/07/30/crosswords/wordle-review-answer-771.html?searchResultPosition=7
+
+**A Word That Never Goes Out of Style**\
+`Style isn’t just about fashion or punctuation. It’s “a way of moving through the world.”`\
+https://nytimes.com/2023/07/30/insider/a-word-that-never-goes-out-of-style.html?searchResultPosition=8
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2023/07/30/crosswords/spelling-bee-forum.html?searchResultPosition=9
+
 **Russia Says 2 Drones Strike Buildings in Moscow in Latest Wave of Attacks**\
 `The strike was the third in the past week in Moscow, a sign of how no city in Russia or Ukraine appears to be safe from the war. Russia blamed Ukraine, which has yet to comment.`\
-https://nytimes.com/2023/07/30/world/europe/moscow-attacks-done.html?searchResultPosition=1
-
-**Terence Crawford Knocks Out Errol Spence in One-Sided Bout**\
-`The rare matchup of two of the best pound-for-pound boxers ended with Crawford dominating the whole fight.`\
-https://nytimes.com/2023/07/30/sports/boxing-spence-crawford.html?searchResultPosition=2
-
-**Quotation of the Day: In Sweltering Border Towns, Water Cutoffs Add to Misery**\
-`Quotation of the Day for Sunday, July 30, 2023.`\
-https://nytimes.com/2023/07/30/pageoneplus/quotation-of-the-day-in-sweltering-border-towns-water-cutoffs-add-to-misery.html?searchResultPosition=3
-
-**Corrections: July 30, 2023**\
-`Corrections that appeared in print on Sunday, July 30, 2023.`\
-https://nytimes.com/2023/07/30/pageoneplus/corrections-july-30-2023.html?searchResultPosition=4
-
-**Alok Vaid-Menon Is ‘Fighting for Trans Ordinariness’**\
-`The activist and social media star just wants to worry about basic things, not their safety.`\
-https://nytimes.com/interactive/2023/07/29/magazine/alok-vaid-menon-interview.html?searchResultPosition=5
-
-**Trump Threatens Republicans Who Don’t Help Him Exact Vengeance**\
-`Casting Republicans as meek, former President Donald J. Trump said members of his party should pursue investigations against Democrats — or risk losing their seats.`\
-https://nytimes.com/2023/07/29/us/politics/trump-pennsylvania-rally.html?searchResultPosition=6
-
-**A Climate Warning from the Cradle of Civilization**\
-`How extreme temperatures and dwindling water are pushing the Fertile Crescent toward the brink.`\
-https://nytimes.com/2023/07/29/world/middleeast/iraq-water-crisis-desertification.html?searchResultPosition=7
-
-**The Mets Trade a Star and Embrace the Future**\
-`Max Scherzer is headed to the Texas Rangers as the Mets, the most expensive team in M.L.B. history, acknowledge that you can’t buy your way to the top.`\
-https://nytimes.com/2023/07/29/sports/baseball/max-scherzer-trade-mets-rangers.html?searchResultPosition=8
-
-**2 Dead and 2 Hurt in Midair Collision at Wisconsin Airport**\
-`The collision happened at an Oshkosh, Wis., airport that was hosting an air show on Saturday. The victims were attendees of the show, an official said.`\
-https://nytimes.com/2023/07/29/us/midair-collision-oshkosh-wisconsin.html?searchResultPosition=9
-
-**$60 Million Refund Request Shows Financial Pressure on Trump From Legal Fees**\
-`The situation signals a potential money crisis as the former president runs a campaign while under indictment in two jurisdictions and, soon, potentially a third.`\
-https://nytimes.com/2023/07/29/us/trump-pac-legal-fees.html?searchResultPosition=10
+https://nytimes.com/2023/07/30/world/europe/moscow-attacks-done.html?searchResultPosition=10
 
