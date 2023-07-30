@@ -22,7 +22,7 @@ https://nytimes.com/2023/07/30/opinion/stanford-president-student-journalist.htm
 `As tensions with China mount, the U.S. military continues to build up Guam and other Pacific territories — placing the burdens of imperial power on the nation’s most ignored and underrepresented citizens.`\
 https://nytimes.com/2023/07/30/podcasts/the-daily/the-sunday-read-the-america-that-americans-forget.html?searchResultPosition=6
 
-**The Butterfly Net and the Magic of Attention**\
+**It Was Never Just About the Butterflies**\
 `Make very little of yourself if you wish to see clearly. Shut up, deeply, if you wish to hear.`\
 https://nytimes.com/2023/07/30/opinion/butterfly-hunting-attention.html?searchResultPosition=7
 
