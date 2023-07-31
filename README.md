@@ -10,7 +10,7 @@ https://nytimes.com/2023/07/31/us/politics/carlos-de-oliveira-trump-documents-ca
 `Readers point to flaws in U.S. immigration policy. Also: Cruelty at the border; presidential pardon power; A.I. weapons; poor food choices.`\
 https://nytimes.com/2023/07/31/opinion/letters/immigration-policy.html?searchResultPosition=3
 
-**Clashes in a Palestinian Refugee Camp in Lebanon Kill 5**\
+**Clashes in a Palestinian Refugee Camp in Lebanon Kill 11**\
 `Rival factions have been fighting for three days, at times with heavy weaponry, in the densely populated Ein al-Hilweh camp in the coastal city of Sidon, south of Beirut.`\
 https://nytimes.com/2023/07/31/world/middleeast/lebanon-palestine-refugee-camp.html?searchResultPosition=4
 
