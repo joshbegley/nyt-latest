@@ -6,13 +6,13 @@ https://nytimes.com/2023/07/31/health/ebikes-super73-motorcycles.html?searchResu
 `After a Times report, the bureau canceled its contract with a government contractor that used the tool on its behalf. But questions remain.`\
 https://nytimes.com/2023/07/31/us/politics/nso-spy-tool-landmark-fbi.html?searchResultPosition=2
 
-**Heat Is Costing the U.S. Economy Billions in Lost Productivity**\
-`From meatpackers to home health aides, workers are struggling in sweltering temperatures and productivity is taking a hit.`\
-https://nytimes.com/2023/07/31/climate/heat-labor-productivity-climate.html?searchResultPosition=3
-
 **Trump Crushing DeSantis and G.O.P. Rivals, Times/Siena Poll Finds**\
 `The twice-indicted former president leads across nearly every category and region, as primary voters wave off concerns about his escalating legal jeopardy.`\
-https://nytimes.com/2023/07/31/us/politics/2024-poll-nyt-siena-trump-republicans.html?searchResultPosition=4
+https://nytimes.com/2023/07/31/us/politics/2024-poll-nyt-siena-trump-republicans.html?searchResultPosition=3
+
+**Heat Is Costing the U.S. Economy Billions in Lost Productivity**\
+`From meatpackers to home health aides, workers are struggling in sweltering temperatures and productivity is taking a hit.`\
+https://nytimes.com/2023/07/31/climate/heat-labor-productivity-climate.html?searchResultPosition=4
 
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
