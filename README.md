@@ -11,7 +11,7 @@ https://nytimes.com/2023/07/31/podcasts/the-daily/giorgia-meloni-italy.html?sear
 https://nytimes.com/2023/07/31/podcasts/nyt-audio-headlines-show.html?searchResultPosition=3
 
 **Flash Floods and Landslides Sweep Chinese Cities**\
-`As Typhoon Doksuri moved north towards Beijing, it left parts of southern China in muddy disarray.`\
+`As Typhoon Doksuri moved north toward Beijing, it left parts of southern China in flooded disarray.`\
 https://nytimes.com/video/world/asia/100000009019443/china-rain-beijing-flooding-typhoon.html?searchResultPosition=4
 
 **A New Era of Soccer Moms Navigates a Rapidly Changing Game**\
