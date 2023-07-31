@@ -1,4 +1,4 @@
-**Biden Cancels Space Force Move to Alabama Amid Tuberville Feud**\
+**Biden Cancels Space Command Move to Alabama Amid Tuberville Feud**\
 `The Pentagon said the decision was because of military readiness, but it comes as the Republican senator from Alabama has held up military promotions to protest an abortion access policy.`\
 https://nytimes.com/2023/07/31/us/biden-space-force-alabama-colorado.html?searchResultPosition=1
 
