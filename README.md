@@ -12,7 +12,7 @@ https://nytimes.com/2023/07/31/theater/liz-kingsman-one-woman-show.html?searchRe
 
 **A Fast, Fresh Pasta for Those Perfect Peak Tomatoes**\
 `Grating your tomatoes preserves their juicy acidity, which sings when swirled into hot garlic oil with handfuls of basil.`\
-https://nytimes.com/2023/07/31/dining/a-fast-fresh-pasta-for-those-perfect-peak-tomatoes.html?searchResultPosition=4
+https://nytimes.com/2023/07/31/dining/fast-tomato-pasta.html?searchResultPosition=4
 
 **Did You Make It to the End of These Popular Novels?**\
 `The last sentence of many books can stick with a reader for years. Can you identify the five novels in this short quiz?`\
