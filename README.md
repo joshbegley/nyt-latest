@@ -1,6 +1,6 @@
 **Trump Employee Released on Bond After Court Appearance in Documents Case**\
 `Carlos De Oliveira, the property manager of Mar-a-Lago, made his first court appearance after his indictment on charges of conspiring with Donald J. Trump to obstruct the retrieval of classified material.`\
-https://nytimes.com/2023/07/31/us/politics/trump-documents-de-oliveira.html?searchResultPosition=1
+https://nytimes.com/2023/07/31/us/politics/carlos-de-oliveira-trump-documents-case.html?searchResultPosition=1
 
 **Our Immigration System: ‘A Waste of Talent’**\
 `Readers point to flaws in U.S. immigration policy. Also: Cruelty at the border; presidential pardon power; A.I. weapons; poor food choices.`\
