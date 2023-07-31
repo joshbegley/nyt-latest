@@ -1,5 +1,5 @@
 **A Desperate Push to Save Florida’s Coral: Get It Out of the Sea**\
-`Teams dedicated to ocean restoration are urgently moving samples to tanks on land as a marine heat devastates entire reefs.`\
+`Teams dedicated to ocean restoration are urgently moving samples to tanks on land as a marine heat wave devastates entire reefs.`\
 https://nytimes.com/2023/07/31/climate/coral-reefs-heat-florida-ocean-temperatures.html?searchResultPosition=1
 
 **Trump Employee Released on Bond After Court Appearance in Documents Case**\
