@@ -1,6 +1,6 @@
 **Women’s World Cup Bracket: The Knockout Stage**\
 `The 2023 Women’s World Cup will soon reach its knockout stage: win or go home. The teams in the bracket will be updated as the round of 16 matchups are determined in the group stage.`\
-https://nytimes.com/interactive/2023/07/31/sports/world-cup/womens-world-cup-bracket.html?searchResultPosition=1
+https://nytimes.com/interactive/2023/sports/world-cup/womens-world-cup-bracket.html?searchResultPosition=1
 
 **Paul Reubens, Creator of Pee-wee Herman, Is Dead at 70**\
 `With his signature bow tie, short drainpipe pants and flattop hairdo, Pee-wee, as embodied by Mr. Reubens, became enshrined in the popular imagination as a symbol of childlike whimsy.`\
