@@ -1,4 +1,4 @@
-**A Strong Peso Gives Mexicans Working Abroad Less Bang for Their Buck**\
+**The Peso Is Strong and a Problem for Mexicans Working Abroad**\
 `The peso’s soaring value means the money that Mexicans in the United States send home doesn’t go as far as it used to.`\
 https://nytimes.com/2023/07/31/business/strong-peso-mexico-remittances.html?searchResultPosition=1
 
