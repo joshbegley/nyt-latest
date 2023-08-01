@@ -4,7 +4,7 @@ https://nytimes.com/2023/08/01/world/europe/moscow-drone-attack-ukraine.html?sea
 
 **Where to Eat After Visiting the Metropolitan Museum of Art, and More Reader Questions**\
 `An Italian restaurant with a little elbow room? No problem.`\
-https://nytimes.com/2023/08/01/dining/where-to-eat-after-visiting-the-metropolitan-museum-of-art-and-more-reader-questions.html?searchResultPosition=2
+https://nytimes.com/2023/08/01/dining/where-to-eat-met-museum.html?searchResultPosition=2
 
 **‘Let’s Call Her Patty’ Review: Unseen Depths of an Uptown Matriarch**\
 `Rhea Perlman stars as a quintessential Upper West Sider in Zarina Shea’s snapshot of affluent, self-flagellating motherhood`\
