@@ -10,13 +10,13 @@ https://nytimes.com/2023/08/01/realestate/jose-llana-hamptons.html?searchResultP
 `When he’s not performing in “Here Lies Love,” this Broadway star finds refuge in the Hamptons.`\
 https://nytimes.com/slideshow/2023/08/01/realestate/at-home-with-jose-llana.html?searchResultPosition=3
 
-**A School Bus Crosses the Nation, Connecting Mass Shooting Families**\
-`As mass shootings multiply, loved ones find support in “the worst club imaginable.” One child’s parents are on a road trip to connect with others like them.`\
-https://nytimes.com/2023/08/01/us/mass-shooting-bus-tour-oliver.html?searchResultPosition=4
-
 **At the Roosevelt Library, an Unflinching Look at Race**\
 `A new exhibition at the Franklin D. Roosevelt Presidential Library explores the president’s “mixed” record on civil rights — and the charged debate over racism in the New Deal.`\
-https://nytimes.com/2023/08/01/arts/at-the-roosevelt-library-an-unflinching-look-at-race.html?searchResultPosition=5
+https://nytimes.com/2023/08/01/arts/fdr-library.html?searchResultPosition=4
+
+**A School Bus Crosses the Nation, Connecting Mass Shooting Families**\
+`As mass shootings multiply, loved ones find support in “the worst club imaginable.” One child’s parents are on a road trip to connect with others like them.`\
+https://nytimes.com/2023/08/01/us/mass-shooting-bus-tour-oliver.html?searchResultPosition=5
 
 **Oklahoma’s Religious Public Charter School Would Be an Affront to Taxpayers Everywhere**\
 `Christian nationalists right see charter schools as fertile ground for a full-on assault on the separation of church and state in public education.`\
