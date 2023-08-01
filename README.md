@@ -14,7 +14,7 @@ https://nytimes.com/2023/08/01/sports/soccer/us-women-soccer-fans-watch-parties.
 `The group behind Ron DeSantis had more money than those backing his rivals, including Donald J. Trump. But big spending has not helped his standing so far.`\
 https://nytimes.com/2023/08/01/us/politics/desantis-campaign-finance-donation-super-pac.html?searchResultPosition=4
 
-**New Round of Deadly Protests in Senegal as Opposition Leader is Detained**\
+**Deadly Protests in Senegal as Opposition Leader is Detained**\
 `Ousmane Sonko, a fiery figure with a loyal youth following, was charged with fomenting insurrection, and his party dissolved.`\
 https://nytimes.com/2023/08/01/world/africa/senegal-protests-sonko.html?searchResultPosition=5
 
