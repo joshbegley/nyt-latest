@@ -18,7 +18,7 @@ https://nytimes.com/2023/08/01/us/politics/trump-indictment-election-co-conspira
 `Kenya has offered to lead a police force to help restore order to Haiti, where gangs that control vast parts of the country’s capital have fomented violence.`\
 https://nytimes.com/2023/08/01/world/americas/haiti-international-intervention.html?searchResultPosition=5
 
-**Migrants Languish in Midtown, the Face of a Shelter System on the Brink**\
+**Migrants Sleep on the Sidewalk, the Face of a Failing Shelter System**\
 `People have come from all over the globe to a city that is legally required to give them a place to stay. This week, city officials said they had run out of room.`\
 https://nytimes.com/2023/08/01/nyregion/nyc-migrants-homelessness.html?searchResultPosition=6
 
