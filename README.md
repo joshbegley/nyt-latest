@@ -1,4 +1,4 @@
-**U.K.’s New Alcohol Taxes Aim to Keep Pubs Open and Votes Flowing**\
+**U.K.’s New Alcohol Taxes Are Aimed at Keeping Pubs Open and Votes Flowing**\
 `The changes are the biggest shake-up to Britain’s alcohol levies in 140 years, according to a government whose leader was clearly on the campaign trail in announcing them.`\
 https://nytimes.com/2023/08/01/world/europe/uk-alcohol-levies.html?searchResultPosition=1
 
