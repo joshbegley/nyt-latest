@@ -1,10 +1,10 @@
-**Tiny Love Stories: ‘I Felt Like a Particle of Light’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2023/08/01/style/tiny-modern-love-stories-i-felt-like-a-particle-of-light.html?searchResultPosition=1
-
 **The Woman Behind the ‘Hot Girl Summer’ Necklace**\
 `Taylor Sade is the founder of Vertigo, which sells chokers, pendants and belts made of beads that look as if they were plucked from the beach.`\
-https://nytimes.com/2023/08/01/style/taylor-sade-vertigo-hot-girl-summer-necklace.html?searchResultPosition=2
+https://nytimes.com/2023/08/01/style/taylor-sade-vertigo-hot-girl-summer-necklace.html?searchResultPosition=1
+
+**Tiny Love Stories: ‘I Felt Like a Particle of Light’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2023/08/01/style/tiny-modern-love-stories-i-felt-like-a-particle-of-light.html?searchResultPosition=2
 
 **U.K.’s New Alcohol Taxes Are Aimed at Keeping Pubs Open and Votes Flowing**\
 `The changes are the biggest shake-up to Britain’s alcohol levies in 140 years, according to a government whose leader was clearly on the campaign trail in announcing them.`\
