@@ -22,7 +22,7 @@ https://nytimes.com/2023/07/31/well/women-alcohol-deaths.html?searchResultPositi
 `After finding the gunman guilty of deadly hate crimes, the jurors now must decide whether to vote for a death sentence.`\
 https://nytimes.com/2023/07/31/us/pittsburgh-synagogue-deliberations-death-penalty.html?searchResultPosition=7
 
-**Biden Spoke With Son’s Associates Repeatedly, Former Partner Testifies**\
+**Biden Spoke With Son’s Associates, but Not About Business, Former Partner Says**\
 `Republicans accused the president of lying, while Democrats said the testimony of Devon Archer, who worked with Hunter Biden, showed that his son was selling the illusion of access to his father.`\
 https://nytimes.com/2023/07/31/us/politics/hunter-biden-devon-archer.html?searchResultPosition=8
 
