@@ -19,7 +19,7 @@ https://nytimes.com/2023/08/01/world/asia/chinese-zoo-sun-bear-costume.html?sear
 https://nytimes.com/interactive/2023/08/01/arts/music/hip-hop-rap-mahogany-browne.html?searchResultPosition=5
 
 **Who Has Made It to the First Republican Debate So Far?**\
-`At least seven candidates appear to have made the cut for the first debate in August so far. Donald J. Trump has indicated he may not attend.`\
+`At least seven candidates appear to have made the cut so far for the first debate in August. Donald J. Trump has indicated he may not attend.`\
 https://nytimes.com/interactive/2023/08/01/us/elections/republican-debate-qualifications.html?searchResultPosition=6
 
 **8 Songs About August**\
