@@ -1,5 +1,5 @@
 **A Drone Strike in Moscow and a Message: Russia Is Not Safe**\
-`The same building housing Russian government offices was hit twice with the same 48-hour period.`\
+`The same building housing Russian government offices was hit twice within 48 hours.`\
 https://nytimes.com/2023/08/01/world/europe/moscow-drone-attack-ukraine.html?searchResultPosition=1
 
 **Where to Eat After Visiting the Metropolitan Museum of Art, and More Reader Questions**\
