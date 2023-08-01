@@ -18,7 +18,7 @@ https://nytimes.com/2023/08/01/dining/summer-done-simply-sheet-pan-chicken-with-
 `With the addition of Woods, players will outnumber independent directors, giving them the final say in the tour’s plan to form a partnership with Saudi Arabia’s sovereign wealth fund.`\
 https://nytimes.com/2023/08/01/sports/golf/tiger-woods-pga-tour-golf.html?searchResultPosition=5
 
-**Job Turnover Eased in June as Labor Market Cooled**\
+**Job Turnover Eased in June as the Labor Market Cooled**\
 `Openings were little changed, but hiring and quitting both declined.`\
 https://nytimes.com/2023/08/01/business/economy/jolts-jobs-openings-layoffs-quits.html?searchResultPosition=6
 
