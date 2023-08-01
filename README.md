@@ -30,7 +30,7 @@ https://nytimes.com/2023/08/01/theater/lets-call-her-patty-review.html?searchRes
 `“Some people think I look too human when I stand up,” the Hangzhou Zoo’s statement said, after a video prompted internet conspiracy theories. “I am a Malayan sun bear!”`\
 https://nytimes.com/2023/08/01/world/asia/chinese-zoo-sun-bear-costume.html?searchResultPosition=8
 
-**A Hip-Hop Love Story**\
+**A Hip-Hop Love Story in Lyrics**\
 `To celebrate the 50th anniversary of hip-hop, we asked the poet and author Mahogany L. Browne to write a love letter to the genre, composed entirely of lyrics both beloved and obscure.`\
 https://nytimes.com/interactive/2023/08/01/arts/music/hip-hop-rap-mahogany-browne.html?searchResultPosition=9
 
