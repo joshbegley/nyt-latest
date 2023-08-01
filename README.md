@@ -4,7 +4,7 @@ https://nytimes.com/2023/08/01/style/paul-reubens-pee-wee-herman-pinky-lee.html?
 
 **Trump’s Long History of Casting the Justice Department as a Villain**\
 `As the former president’s grip on power became threatened, his rhetoric became more vitriolic. And with each criminal indictment, he has further demonized the federal government.`\
-https://nytimes.com/2023/08/01/us/politics/trump-justice-department-weaponization.html?searchResultPosition=2
+https://nytimes.com/live/2023/08/01/us/trump-indictment-jan-6/trump-justice-department-weaponization?searchResultPosition=2
 
 **‘We’re Left Outside’: Nearly 200 Migrants Wait as N.Y.C. Struggles to Provide Shelter**\
 `A day after Mayor Eric Adams said New York City had run out of shelter space, migrants tell us how they are spending their days eating and sleeping outside the Roosevelt Hotel, hoping to get into the city’s intake center.`\
