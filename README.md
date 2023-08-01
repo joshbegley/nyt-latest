@@ -1,5 +1,5 @@
 **Back From the Edge, U.S. Tries to Focus on What Comes Next**\
-`A near miss against Portugal gave the United States a chance to consider what might have been, and then move past it.`\
+`A close call against Portugal at the Women’s World Cup gave the United States a chance to consider what might have been, and then move past it.`\
 https://nytimes.com/2023/08/01/sports/soccer/uswnt-megan-rapinoe.html?searchResultPosition=1
 
 **How to Talk About Wordle**\
