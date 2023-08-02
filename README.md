@@ -1,40 +1,40 @@
+**Teens Are Dying on E-Bikes. Should California Regulate Them?**\
+`Electric bicycles are convenient, affordable and popular, but on busy roads built for cars, their speed can be dangerous, especially for young riders.`\
+https://nytimes.com/2023/08/02/us/california-ebikes-legislation.html?searchResultPosition=1
+
+**Why Nina Simone Was Always Ahead of Her Time**\
+`A recently unearthed live version of “Blues for Mama,” written by Simone and Abbey Lincoln in the 1960s, took on domestic abuse in a momentous way.`\
+https://nytimes.com/2023/08/02/arts/music/nina-simone-blues-for-mama-newport.html?searchResultPosition=2
+
+**How to Self-Publish Your E-Book**\
+`If you have a story you want to share, you can easily publish your work in popular electronic bookstores — and maybe even make a little money.`\
+https://nytimes.com/2023/08/02/technology/personaltech/self-publish-e-book.html?searchResultPosition=3
+
+**As Objects Fly Onstage, Stars Become Part of the Audience’s Show**\
+`Disrupting a celebrity may now be the ultimate concert souvenir. No pop star wants to be unsafe, but some are increasingly making themselves part of the crowd.`\
+https://nytimes.com/2023/08/02/arts/music/crowds-throwing-objects-at-musicians.html?searchResultPosition=4
+
+**With ‘Talk to Me,’ Directors Leap From Phone Screens to the Big Screen**\
+`The twin brothers Danny and Michael Philippou, who first gained popularity on YouTube, discuss their pivot to a theatrical release.`\
+https://nytimes.com/2023/08/02/movies/talk-to-me-directors-interview.html?searchResultPosition=5
+
+**‘Spamalot’ Revival to Open on Broadway This Fall**\
+`The new production, directed by Josh Rhodes, had a brief run at the Kennedy Center in Washington in May. Casting has not yet been announced.`\
+https://nytimes.com/2023/08/02/theater/spamalot-revival-broadway.html?searchResultPosition=6
+
+**My New Boyfriend Is a Dud at Buying Gifts. What Can I Do?**\
+`A reader asks whether she should be more blunt about her wish for birthday and anniversary presents from a man who isn’t the gift-giving type.`\
+https://nytimes.com/2023/08/02/style/relationship-gift-giving.html?searchResultPosition=7
+
+**Easy Mode: Clues for Aug. 4**\
+`Get some help on the Friday crossword puzzle.`\
+https://nytimes.com/2023/08/02/crosswords/easy-mode-clues-for-august-4.html?searchResultPosition=8
+
+**As Russia Strikes Ports, Ukraine’s Farmers Scramble to Keep Exporting**\
+`Their grain and sunflower oil once helped feed the world. Now, even their backup routes to the international market have become targets.`\
+https://nytimes.com/2023/08/02/world/europe/russia-ukraine-grain-exports.html?searchResultPosition=9
+
 **Putin Speaks With Erdogan for 1st Time Since Russia Canceled Grain Deal**\
 `The Turkish president urged a resumption of the agreement that allowed Ukraine to ship grain through the Black Sea, and called on both Russia and Ukraine not to escalate tensions.`\
-https://nytimes.com/2023/08/02/world/europe/putin-erdogan-grain-deal.html?searchResultPosition=1
-
-**A President Accused of Betraying His Country**\
-`The criminal justice system of the United States has never seen an indictment of this magnitude, in which a former president is accused of defrauding his country.`\
-https://nytimes.com/2023/08/02/opinion/trump-jan-6-indictment.html?searchResultPosition=2
-
-**The Rays Plan to Keep Calm and Carry On**\
-`A red-hot start followed by a brutal July knocked Tampa Bay out of first place, but the Rays believe they are back on track.`\
-https://nytimes.com/2023/08/02/sports/baseball/tampa-bay-rays-trade-deadline.html?searchResultPosition=3
-
-**2nd Supermoon of the Year Illuminates the Night Sky Around the World**\
-`On Tuesday night, the Sturgeon Moon was visible from Greece to Brazil. Two more supermoons are expected this year: one in late August and the other in September.`\
-https://nytimes.com/2023/08/02/us/supermoon-sturgeon-moon-photos.html?searchResultPosition=4
-
-**‘Huberman Husbands,’ ‘Bro Diets’ and the ‘Masculine’ Branding of Fitness Culture**\
-`Men are increasingly enthusiastic about comparing notes on health regimens.`\
-https://nytimes.com/2023/08/02/opinion/huberman-husband.html?searchResultPosition=5
-
-**Paris Bookstalls Are Told to Relocate During Next Year’s Olympics**\
-`The “bouquinistes” along the River Seine have objected after being told that most of them will have to move temporarily for security reasons.`\
-https://nytimes.com/2023/08/02/world/europe/paris-olympics-booksellers.html?searchResultPosition=6
-
-**Fitch’s Warning About America’s Fiscal Future**\
-`A downgrade of the nation’s credit rating admonished Washington for persistent political fighting over federal spending. But the move drew sharp criticism.`\
-https://nytimes.com/2023/08/02/business/dealbook/fitch-us-credit-rating-downgrade.html?searchResultPosition=7
-
-**Ukraine Says Russia Targeted Kyiv With Overnight Drone Attacks**\
-`Moscow launched at least 10 drones at the city, with an administrative building among those damaged by debris from interceptions, local officials said.`\
-https://nytimes.com/2023/08/02/world/europe/russia-drone-attack-ukraine.html?searchResultPosition=8
-
-**Trump Indicted, Again**\
-`The latest indictment of Trump raises issues at the core of American democracy.`\
-https://nytimes.com/2023/08/02/briefing/trump-indicted-again.html?searchResultPosition=9
-
-**Xi’s Surprise Shake-Up Exposes Problems at Top of China’s Nuclear Force**\
-`The Chinese leader’s replacement of two commanders has fanned speculation about corruption or failings in the force that manages China’s nuclear missiles.`\
-https://nytimes.com/2023/08/02/world/asia/china-nuclear-shakeup.html?searchResultPosition=10
+https://nytimes.com/2023/08/02/world/europe/putin-erdogan-grain-deal.html?searchResultPosition=10
 
