@@ -1,5 +1,5 @@
 **Roger Sprung, Banjo Virtuoso of N.Y.C. Folk Scene, Dies at 92**\
-`The so-called godfather of progressive bluegrass, he honed his skills in the mountains of the South, fusing the music with swing, pop, ragtime and classical.`\
+`The “godfather” of progressive bluegrass, he grew up in New York, honed his skills in the mountains and flourished in Greenwich Village in the ’60s.`\
 https://nytimes.com/2023/08/02/arts/roger-sprung-dead.html?searchResultPosition=1
 
 **The Far-Reaching Consequences of the Latest Trump Indictment**\
