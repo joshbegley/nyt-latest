@@ -14,8 +14,8 @@ https://nytimes.com/2023/08/02/podcasts/i-needed-david-schwimmers-help.html?sear
 `The police said no shooter had been found or shots confirmed, but the report led to a panicked situation across from the Capitol on an otherwise sleepy summer afternoon with lawmakers out of town.`\
 https://nytimes.com/2023/08/02/us/politics/capitol-senate-active-shooter.html?searchResultPosition=4
 
-**To Not Charge Trump for His Election Scheme Would Be the True Politicization of Justice**\
-`The new indictment from Jack Smith acts as a check against a two-tiered system of justice.`\
+**The New Jack Smith Indictment Is Where Whataboutism Goes to Die**\
+`To not charge Trump for his election scheme would be the true politicization of justice.`\
 https://nytimes.com/2023/08/02/opinion/jack-smith-trump-jan-6-indictment.html?searchResultPosition=5
 
 **How Rudy Giuliani Became Co-Conspirator 1**\
