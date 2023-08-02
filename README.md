@@ -16,7 +16,7 @@ https://nytimes.com/2023/08/02/arts/music/review-braxton-trillium-x-prague.html?
 
 **Meta Begins Blocking News in Canada**\
 `The change came in response to a new law in Canada that requires tech companies to pay news outlets for using their content.`\
-https://nytimes.com/2023/08/02/business/media/meta-news-canada.html?searchResultPosition=5
+https://nytimes.com/2023/08/02/business/media/meta-news-in-canada.html?searchResultPosition=5
 
 **Messages Point to Identity of Co-Conspirator 6 in Trump Indictment**\
 `An email sent by Boris Epshteyn, an adviser to the Trump campaign, matches the description of an email that the indictment attributed to one of six unnamed co-conspirators.`\
