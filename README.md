@@ -15,7 +15,7 @@ https://nytimes.com/2023/08/02/us/lizzo-dancers-lawsuit-harassment.html?searchRe
 https://nytimes.com/2023/08/02/briefing/trump-indictment-niger-evacuations.html?searchResultPosition=4
 
 **Under Fire and Understaffed: The Fight to Save Ukraine’s Wounded**\
-`Positioned close to the front lines,, temporary medical posts are a critical lifeline for the constant inflow of soldiers hurt in the counteroffensive.`\
+`Positioned close to the front lines, temporary medical posts are a critical lifeline for the constant inflow of soldiers hurt in the counteroffensive.`\
 https://nytimes.com/2023/08/02/world/europe/ukraine-war-casualties-wounded.html?searchResultPosition=5
 
 **Pope Francis Embraces ‘Youth Day,’ With an Eye on the Future**\
