@@ -1,6 +1,6 @@
 **He Spent Decades Collecting Presidential Signatures. Then Lost Them in an Instant.**\
 `Carl Sferrazza Anthony, a historian, had collected the signatures of eight presidents and eight first ladies on an engraved card. He lost it in Washington last week.`\
-https://nytimes.com/2023/08/02/us/he-spent-decades-collecting-presidential-signatures-then-lost-them-in-an-instant.html?searchResultPosition=1
+https://nytimes.com/2023/08/02/us/presidential-signatures-lost-card.html?searchResultPosition=1
 
 **Ukrainian Troops Trained by the West Stumble in Battle**\
 `Ukraine’s army has for now set aside U.S. fighting methods and reverted to tactics it knows best.`\
