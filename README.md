@@ -1,6 +1,6 @@
 **Former Tour Dancers Accuse Lizzo of Harassment and Hostile Work Environment in Lawsuit**\
 `In a lawsuit filed Tuesday, three dancers claim that touring with the Grammy winner meant working in an “overtly sexual atmosphere” that subjected them to harassment.`\
-https://nytimes.com/2023/08/02/us/lizzo-dancers-lawsuit-harrassment.html?searchResultPosition=1
+https://nytimes.com/2023/08/02/us/lizzo-dancers-lawsuit-harassment.html?searchResultPosition=1
 
 **Wednesday Briefing**\
 `Donald Trump faces significant new federal charges.`\
@@ -15,7 +15,7 @@ https://nytimes.com/2023/08/02/world/europe/ukraine-war-casualties-wounded.html?
 https://nytimes.com/2023/08/02/world/europe/pope-francis-portugal-youth-day.html?searchResultPosition=4
 
 **French Journalists Call Off Strike, Failing to Block ‘Far-Right’ Editor**\
-`Reporters and editors at a leading newspaper, Le Journal du Dimanche, ended a 40-day walkout, but many were expected resign.`\
+`Reporters and editors at a leading newspaper, Le Journal du Dimanche, ended a 40-day walkout, but many were expected to resign.`\
 https://nytimes.com/2023/08/02/business/jdd-france-newspaper-strike.html?searchResultPosition=5
 
 **Corrections: Aug. 2, 2023**\
