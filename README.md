@@ -2,7 +2,7 @@
 `The indictment of former President Donald J. Trump over his efforts to retain power accuses him of conspiracies built on knowing falsehoods. His supporters say he is protected by the First Amendment.`\
 https://nytimes.com/2023/08/02/us/politics/trump-indictment-lies-vs-free-speech.html?searchResultPosition=1
 
-**For the Court of Public Opinion, Trump Relies on ‘Whataboutism’ Defense**\
+**For the Court of Public Opinion, Trump Relies on a ‘Whataboutism’ Defense**\
 `As the former president faces multiple criminal indictments, he and his defenders try to shift attention by pointing to President Biden’s son Hunter.`\
 https://nytimes.com/2023/08/02/us/politics/trump-indictment-hunter-biden.html?searchResultPosition=2
 
