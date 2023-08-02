@@ -14,7 +14,7 @@ https://nytimes.com/2023/08/02/opinion/letters/donald-trump-indictment.html?sear
 `The Fox leaders appealed to the former president to participate in the first G.O.P. debate, which is being hosted by the network.`\
 https://nytimes.com/2023/08/02/us/politics/trump-fox-news-indictment.html?searchResultPosition=4
 
-**Justin Trudeau To Separate From Wife, Sophie Grégoire**\
+**Justin Trudeau to Separate From Wife, Sophie Grégoire**\
 `The Canadian prime minister and his wife have been married for 18 years and share three children.`\
 https://nytimes.com/2023/08/02/world/americas/justin-trudeau-separate-wife-sophie-gregoire.html?searchResultPosition=5
 
