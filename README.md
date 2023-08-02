@@ -19,7 +19,7 @@ https://nytimes.com/2023/08/02/business/economy/fitch-credit-rating-downgrade.ht
 https://nytimes.com/2023/08/02/us/politics/stanley-woodward-trump-documents.html?searchResultPosition=5
 
 **A Leader of Niger’s Coup Visits Mali, Raising Fears of Wagner Alliance**\
-`A dozen military officials who took power from the president in Niger last week met with the leaders of Mali, a country where the Kremlin-backed Wagner mercenary group has deployed about 1,500 troops.`\
+`Several military officials who took power from the president in Niger last week met with the leaders of Mali, a country where the Kremlin-backed Wagner mercenary group has deployed about 1,500 troops.`\
 https://nytimes.com/2023/08/02/world/africa/niger-coup-mali-wagner.html?searchResultPosition=6
 
 **‘Trump Asked Me to Put Him Over the Constitution,’ Pence Says**\
