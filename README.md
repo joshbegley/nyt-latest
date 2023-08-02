@@ -1,5 +1,5 @@
 **100 Today, She Remembers: ‘We Sewed, We Talked’**\
-`Ruth Taube taught sewing at the Henry Street Settlement on the Lower East Side for 65 years.`\
+`Ruth Taube taught sewing at the Henry Street Settlement on the Lower East Side for more than 60 years.`\
 https://nytimes.com/2023/08/02/nyregion/sewing-teacher-100-henry-street.html?searchResultPosition=1
 
 **As States Confront a Reading Crisis in Schools, New York Lags Behind**\
