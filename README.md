@@ -1,4 +1,4 @@
-**Pence Lands at the Heart of Trump’s Prosecution Over the 2020 Election**\
+**From Right-Hand Man to Critical Witness: Pence at Heart of Trump Prosecution**\
 `“Anyone who puts himself over the Constitution should never be president of the United States,” the former vice president said shortly after the indictment of Donald Trump.`\
 https://nytimes.com/2023/08/02/us/politics/mike-pence-trump-indictment.html?searchResultPosition=1
 
