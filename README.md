@@ -3,7 +3,7 @@
 https://nytimes.com/2023/08/02/us/college-park-md-mayor-child-porn.html?searchResultPosition=1
 
 **Trump Prepares to Make Familiar Trip to Courthouse, This Time in Washington**\
-`Mr. Trump’s appearance before Magistrate Judge Moxila A. Upadhyaya, a Biden appointee, comes about six weeks after his arraignment in Miami for mishandling government documents after he left the White House and seeking to block investigators.`\
+`The former president’s appearance before Magistrate Judge Moxila A. Upadhyaya, a Biden appointee, on election subversion charges comes about six weeks after his arraignment over sensitive documents.`\
 https://nytimes.com/2023/08/02/us/politics/trump-courthouse-arraignment.html?searchResultPosition=2
 
 **Teach Writing With The New York Times: Our 2023-24 Curriculum**\
