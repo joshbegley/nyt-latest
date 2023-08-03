@@ -1,5 +1,5 @@
 **Trump Prepares to Make Familiar Trip to Courthouse, This Time in Washington**\
-`The former president is set to appear at the E. Barrett Prettyman courthouse on Thursday, where he is expected to enter a not guilty plea for the latest set of charges.`\
+`Mr. Trump’s appearance before Magistrate Judge Moxila A. Upadhyaya, a Biden appointee, comes about six weeks after his arraignment in Miami for mishandling government documents after he left the White House and seeking to block investigators.`\
 https://nytimes.com/2023/08/02/us/politics/trump-courthouse-arraignment.html?searchResultPosition=1
 
 **Teach Writing With The New York Times: Our 2023-24 Curriculum**\
