@@ -10,17 +10,17 @@ https://nytimes.com/2023/08/03/sports/boxing-seniesa-estrada.html?searchResultPo
 `For the children’s book creators Doug Salati, Brian Floca, Sophie Blackall, Rowboat Watkins, Johnny Marciano and Dasha Tolstikova, the light-filled space has become much more than just a place to work.`\
 https://nytimes.com/2023/08/03/books/review/in-an-open-loft-in-gowanus-six-authors-and-artists-collaborate-and-commune.html?searchResultPosition=3
 
+**For an Ailing Feinstein, a Fight Over the Family Fortune**\
+`As Dianne Feinstein, 90, struggles to function in the Senate, a dispute within her family over control of her late husband’s estate is another difficult chapter at the end of a long career.`\
+https://nytimes.com/2023/08/03/us/feinstein-husband-estate-family-fortune.html?searchResultPosition=4
+
 **Jennette McCurdy Now Qualifies as a Veteran Best Seller**\
 `Some publishers balked at the title but, just shy of its first birthday, “I’m Glad My Mom Died” has stood the test of time.`\
-https://nytimes.com/2023/08/03/books/review/im-glad-my-mom-died-jennette-mccurdy.html?searchResultPosition=4
+https://nytimes.com/2023/08/03/books/review/im-glad-my-mom-died-jennette-mccurdy.html?searchResultPosition=5
 
 **Mayor Adams Turns His Back on Immigrants and New York’s Legacy**\
 `New York City was built by immigrants, which makes City Hall’s tepid response to asylum seekers sleeping on its streets particularly disappointing.`\
-https://nytimes.com/2023/08/03/opinion/editorials/new-york-city-immigrant-shelters.html?searchResultPosition=5
-
-**For an Ailing Feinstein, a Fight Over the Family Fortune**\
-`As Dianne Feinstein, 90, struggles to function in the Senate, a dispute within her family over control of her late husband’s estate is another difficult chapter at the end of a long career.`\
-https://nytimes.com/2023/08/03/us/feinstein-husband-estate-family-fortune.html?searchResultPosition=6
+https://nytimes.com/2023/08/03/opinion/editorials/new-york-city-immigrant-shelters.html?searchResultPosition=6
 
 **Why It’s No Surprise That Trump Is Being Charged Under a Reconstruction-Era Law**\
 `The law was designed in part to prosecute political leaders who, while in office and after, sought to cancel the votes of millions to hold power.`\
