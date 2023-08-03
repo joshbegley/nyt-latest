@@ -1,40 +1,40 @@
+**The Bank of England Raises Rates Again**\
+`Britain’s central bank raised rates for a 14th consecutive time as it warned that some risks from persistent inflation were “crystallizing.”`\
+https://nytimes.com/2023/08/03/business/bank-of-england-interest-rates.html?searchResultPosition=1
+
 **A New Subject for a Veteran Documentary Maker: Herself**\
 `The French director Claire Simon was making a movie about a Paris hospital when she found out she had cancer. So she became a character in her own film.`\
-https://nytimes.com/2023/08/03/movies/claire-simon.html?searchResultPosition=1
+https://nytimes.com/2023/08/03/movies/claire-simon.html?searchResultPosition=2
 
 **‘Our Body’ Review: Patience**\
 `The French director Claire Simon’s profoundly humane documentary focuses on patients in the gynecology ward of a Paris hospital.`\
-https://nytimes.com/2023/08/03/movies/our-body-review.html?searchResultPosition=2
+https://nytimes.com/2023/08/03/movies/our-body-review.html?searchResultPosition=3
 
 **‘Passages’ Review: A Toxic Ménage**\
 `In Ira Sachs’ latest wince-inducing romance, Tomas (Franz Rogowski) has wedged himself into a love triangle with Ben Whishaw and Adèle Exarchopoulos.`\
-https://nytimes.com/2023/08/03/movies/passages-review.html?searchResultPosition=3
+https://nytimes.com/2023/08/03/movies/passages-review.html?searchResultPosition=4
 
 **‘Dreamin’ Wild’ Review: What Happens to a Teenage Dream Deferred?**\
 `A new film dramatizes the true story of two brothers thrust into the spotlight 30 years after the album they recorded as teenagers is discovered.`\
-https://nytimes.com/2023/08/03/movies/dreamin-wild-review.html?searchResultPosition=4
+https://nytimes.com/2023/08/03/movies/dreamin-wild-review.html?searchResultPosition=5
 
 **‘Brother’ Review: Growing Up Grieving**\
 `This drama about two brothers coming of age in Toronto is imbued with big emotions, but has trouble sustaining its story.`\
-https://nytimes.com/2023/08/03/movies/brother-review.html?searchResultPosition=5
+https://nytimes.com/2023/08/03/movies/brother-review.html?searchResultPosition=6
 
 **Hundreds Fall Ill From Heat at Scout Gathering in South Korea**\
 `As the country endures its hottest summer in years, at least 125 people were hospitalized and many others were treated for symptoms during baking conditions at the World Scout Jamboree.`\
-https://nytimes.com/2023/08/03/world/asia/south-korea-heat-scout-jamboree.html?searchResultPosition=6
+https://nytimes.com/2023/08/03/world/asia/south-korea-heat-scout-jamboree.html?searchResultPosition=7
 
 **A Legal Breakdown of the Trump Case**\
 `It is the biggest what-if of the latest Trump indictment: The Senate’s vote to acquit him in 2021.`\
-https://nytimes.com/2023/08/03/briefing/trump-indictment.html?searchResultPosition=7
+https://nytimes.com/2023/08/03/briefing/trump-indictment.html?searchResultPosition=8
 
 **Australia Will Return Looted Sculptures to Cambodia**\
 `A centuries-old Buddhist sculpture was taken from a rural area in Cambodia nearly 30 years ago. It was later sold with two other statues to the National Gallery of Australia.`\
-https://nytimes.com/2023/08/03/world/asia/australia-cambodia-looted-sculptures.html?searchResultPosition=8
+https://nytimes.com/2023/08/03/world/asia/australia-cambodia-looted-sculptures.html?searchResultPosition=9
 
 **Fall in Bud Light Sales Puts Dent in Beer Maker’s Earnings**\
 `Anheuser-Busch InBev is struggling in the United States after a conservative-led boycott of Bud Light, leaving other brands in the company’s portfolio to pick up the slack.`\
-https://nytimes.com/2023/08/03/business/bud-light-sales-decline.html?searchResultPosition=9
-
-**Episode 5: The Outcomes**\
-`From Serial Productions. The patients wrestle with the lasting effects of their experiences at the clinic.`\
-https://nytimes.com/2023/08/03/podcasts/serial-the-retrievals-yale-fertility-clinic.html?searchResultPosition=10
+https://nytimes.com/2023/08/03/business/bud-light-sales-decline.html?searchResultPosition=10
 
