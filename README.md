@@ -1,40 +1,40 @@
+**‘Not Another Coup as Usual’: What to Know About Niger’s Crisis**\
+`Amid an unpredictable military coup, neighboring countries have threatened to go to war — some to scuttle the coup, and others to ensure its success.`\
+https://nytimes.com/article/niger-coup-military-explainer.html?searchResultPosition=1
+
+**Pastor or Traitor? Ukrainians Shun a Church Seen as a Kremlin Tool**\
+`The village parishioners’ decision to oust their priest reflects a broader push within Ukraine to reduce the influence of an Orthodox church that answers to Moscow.`\
+https://nytimes.com/2023/08/03/world/europe/ukraine-orthodox-church.html?searchResultPosition=2
+
+**‘A Nice Bike, When It Works’: Riders Fret After E-Bike Maker Goes Bust**\
+`VanMoof’s sleek electric bikes attracted fans, but the Dutch company’s demise has left owners unable to get repairs and worried that app-enabled functions may stop working.`\
+https://nytimes.com/2023/08/03/business/vanmoof-bankruptcy-ebikes.html?searchResultPosition=3
+
 **Ron DeSantis Accepts Gavin Newsom’s Challenge to Debate on Fox News**\
 `The California governor had taunted his Florida counterpart for months. Now, with his presidential campaign struggling, Mr. DeSantis agreed to a debate hosted by Sean Hannity.`\
-https://nytimes.com/2023/08/02/us/politics/desantis-newsom-debate.html?searchResultPosition=1
+https://nytimes.com/2023/08/02/us/politics/desantis-newsom-debate.html?searchResultPosition=4
 
 **Scion of Family Tied to 2014 Ferry Disaster Is Being Extradited to South Korea**\
 `Yoo Hyuk-kee’s family company ran the Sewol ferry, whose sinking off the South Korean coast left hundreds dead. Prosecutors have charged Mr. Yoo, a U.S. resident, with embezzlement.`\
-https://nytimes.com/2023/08/02/world/asia/yoo-hyuk-kee-south-korea-ferry.html?searchResultPosition=2
+https://nytimes.com/2023/08/02/world/asia/yoo-hyuk-kee-south-korea-ferry.html?searchResultPosition=5
 
 **Bidding for Simon & Schuster Draws to a Close**\
 `The move to acquire the publisher, one of the five largest in the country, comes after the government blocked a deal last year on antitrust concerns.`\
-https://nytimes.com/2023/08/02/books/paramount-sale-simon-schuster.html?searchResultPosition=3
+https://nytimes.com/2023/08/02/books/paramount-sale-simon-schuster.html?searchResultPosition=6
 
 **Carry Zero Weight**\
 `Simeon Seigel tells us not to work so hard.`\
-https://nytimes.com/2023/08/02/crosswords/daily-puzzle-2023-08-03.html?searchResultPosition=4
+https://nytimes.com/2023/08/02/crosswords/daily-puzzle-2023-08-03.html?searchResultPosition=7
 
 **Ex-Mayor Pleads Guilty to Child Sex Abuse Imagery Charges**\
 `Under a plea deal, Patrick Wojahn, who served as mayor of College Park, Md., from 2015 until his resignation in March, agreed to serve 30 years in prison. A judge will sentence him in November.`\
-https://nytimes.com/2023/08/02/us/college-park-md-mayor-child-porn.html?searchResultPosition=5
+https://nytimes.com/2023/08/02/us/college-park-md-mayor-child-porn.html?searchResultPosition=8
 
 **Trump Prepares to Make Familiar Trip to Courthouse, This Time in Washington**\
 `The former president’s appearance before Magistrate Judge Moxila A. Upadhyaya on election subversion charges comes about six weeks after his arraignment over sensitive documents.`\
-https://nytimes.com/2023/08/02/us/politics/trump-courthouse-arraignment.html?searchResultPosition=6
+https://nytimes.com/2023/08/02/us/politics/trump-courthouse-arraignment.html?searchResultPosition=9
 
 **Teach Writing With The New York Times: Our 2023-24 Curriculum**\
 `Our eight writing units, each with its own practical step-by-step guide, are based on real-world features like reviews, photo essays, narratives, podcasts and more.`\
-https://nytimes.com/2023/08/02/learning/teach-writing-with-the-new-york-times-our-2023-24-curriculum.html?searchResultPosition=7
-
-**Trump Election Charges Set Up Clash of Lies Versus Free Speech**\
-`The indictment of former President Donald J. Trump over his efforts to retain power accuses him of conspiracies built on knowing falsehoods. His supporters say he is protected by the First Amendment.`\
-https://nytimes.com/2023/08/02/us/politics/trump-indictment-lies-vs-free-speech.html?searchResultPosition=8
-
-**For the Court of Public Opinion, Trump Relies on a ‘Whataboutism’ Defense**\
-`As the former president faces multiple criminal indictments, he and his defenders try to shift attention by pointing to President Biden’s son Hunter.`\
-https://nytimes.com/2023/08/02/us/politics/trump-indictment-hunter-biden.html?searchResultPosition=9
-
-**The N.B.A. and Its Owners Fight for Change. But Not Necessarily the Same Change.**\
-`The league embraces progressive causes supported by players. But some team owners pull in the opposite direction, as apparent in the Orlando Magic’s donation to Gov. Ron DeSantis of Florida.`\
-https://nytimes.com/2023/08/02/sports/basketball/adam-silver-nba-politics.html?searchResultPosition=10
+https://nytimes.com/2023/08/02/learning/teach-writing-with-the-new-york-times-our-2023-24-curriculum.html?searchResultPosition=10
 
