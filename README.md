@@ -1,6 +1,6 @@
 **Trump’s day in court included another encounter with Jack Smith and a swearing in, but not the kind he is running for.**\
 `This time the seriousness of the charges facing the former president gave the proceedings a sense of historical weight.`\
-https://nytimes.com/2023/08/03/us/politics/trumps-day-in-court-included-another-encounter-with-jack-smith-and-a-swearing-in-but-not-the-kind-he-is-running-for.html?searchResultPosition=1
+https://nytimes.com/2023/08/03/us/politics/trump-court-appearance-arraignment.html?searchResultPosition=1
 
 **The Next Affirmative Action Battle May Be at West Point**\
 `Students for Fair Admissions won its Supreme Court case against Harvard and the University of North Carolina. Now, it’s focusing on a possible new target: the military academies.`\
@@ -26,15 +26,15 @@ https://nytimes.com/2023/08/03/arts/design/what-to-see-nyc-galleries-august.html
 `Former President Donald Trump’s supporters have made inaccurate claims about the judge presiding over his case and misleadingly compared his conduct to that of other politicians.`\
 https://nytimes.com/2023/08/03/us/politics/trump-indictment-fact-check.html?searchResultPosition=7
 
+**The next steps in the case include setting a timetable for getting to trial.**\
+`By Charlie Savage`\
+https://nytimes.com/2023/08/03/us/politics/trump-jan-6-election-trial-timetable.html?searchResultPosition=8
+
 **District Attorney’s Investigations Burrow Into Adams’s Circle of Support**\
 `Mayor Eric Adams has not been implicated in any wrongdoing, but District Attorney Alvin L. Bragg has targeted people who are in the mayor’s circle.`\
-https://nytimes.com/2023/08/03/nyregion/eric-adams-manhattan-da-investigation.html?searchResultPosition=8
+https://nytimes.com/2023/08/03/nyregion/eric-adams-manhattan-da-investigation.html?searchResultPosition=9
 
 **‘Birds Are My Eyesight’**\
 `For some blind birders, avian soundscapes are a way to map the world around them. Increasing noise pollution is imperiling that navigation.`\
-https://nytimes.com/interactive/2023/08/03/style/birding-blind-low-vision.html?searchResultPosition=9
-
-**He Raised Millions for Bibles but Spent It on Gambling and Gold, U.S. Says**\
-`Prosecutors issued a warrant for Jason Gerald Shenk, saying he defrauded Amish and Mennonite communities of $30 million he claimed would be used to spread Christianity in China.`\
-https://nytimes.com/2023/08/03/us/bibles-christian-charity-scheme.html?searchResultPosition=10
+https://nytimes.com/interactive/2023/08/03/style/birding-blind-low-vision.html?searchResultPosition=10
 
