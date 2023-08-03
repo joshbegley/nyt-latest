@@ -18,23 +18,23 @@ https://nytimes.com/2023/08/03/us/affirmative-action-military-academies.html?sea
 `The dream of becoming the new New York is fading.`\
 https://nytimes.com/2023/08/03/opinion/columnists/miami-finance-new-york.html?searchResultPosition=5
 
+**Four takeaways from Trump’s court appearance.**\
+`A quick proceeding that was mostly straightforward.`\
+https://nytimes.com/2023/08/03/us/politics/trump-arraignment-takeaways.html?searchResultPosition=6
+
 **Texas A&M Agrees to $1 Million Settlement With Journalism Professor**\
 `A university report found that fears of a conservative backlash botched the effort to hire a Black professor, Kathleen McElroy, to run its journalism program.`\
-https://nytimes.com/2023/08/03/us/texas-am-mcelroy-settlement.html?searchResultPosition=6
+https://nytimes.com/2023/08/03/us/texas-am-mcelroy-settlement.html?searchResultPosition=7
 
 **Take the Quiz! Pick the Worst New York City Summer Plagues.**\
 `Roaches. Aphids. Rats. How many scourges can one city have? Lately, old annoyances have been joined by new terrors. In this quiz, you get to choose your own nightmare!`\
-https://nytimes.com/interactive/2023/08/03/nyregion/nyc-summer-quiz-rats-roaches.html?searchResultPosition=7
+https://nytimes.com/interactive/2023/08/03/nyregion/nyc-summer-quiz-rats-roaches.html?searchResultPosition=8
 
 **What to See in N.Y.C. Galleries in August**\
 `Want to see new art in New York this weekend? Check out diagrammatic paintings in Chelsea or Catharine Czudej’s fun house on the Upper East Side. And don’t miss Lap-See Lam’s first U.S. solo show on the East Village.`\
-https://nytimes.com/2023/08/03/arts/design/what-to-see-nyc-galleries-august.html?searchResultPosition=8
+https://nytimes.com/2023/08/03/arts/design/what-to-see-nyc-galleries-august.html?searchResultPosition=9
 
 **Fact-Checking the Defenses of Trump After His Latest Indictment**\
 `Former President Donald Trump’s supporters have made inaccurate claims about the judge presiding over his case and misleadingly compared his conduct to that of other politicians.`\
-https://nytimes.com/2023/08/03/us/politics/trump-indictment-fact-check.html?searchResultPosition=9
-
-**The next steps in the case include setting a timetable for getting to trial.**\
-`Lawyers will be filing briefs over the course of the month before appearing in court again on Aug. 28.`\
-https://nytimes.com/2023/08/03/us/politics/trump-jan-6-election-trial-timetable.html?searchResultPosition=10
+https://nytimes.com/2023/08/03/us/politics/trump-indictment-fact-check.html?searchResultPosition=10
 
