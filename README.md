@@ -34,7 +34,7 @@ https://nytimes.com/2023/08/03/business/apple-revenue.html?searchResultPosition=
 `The American Academy of Pediatrics renewed its support of gender care for minors while commissioning a fresh look at the evidence.`\
 https://nytimes.com/2023/08/03/health/aap-gender-affirming-care-evidence-review.html?searchResultPosition=9
 
-**Six Former Mississippi Officers Face Civil Rights Charges in Assault on 2 Black Men**\
-`Prosecutors said that the two men were stripped naked, beaten and shocked with Tasers.`\
+**Six Former Mississippi Officers Plead Guilty to Civil Rights Charges in Assault on 2 Black Men**\
+`The authorities said that the two men had been stripped naked, beaten and shocked with Tasers. A sex toy was forced into both men’s mouths, and one also was shot in the mouth during a “mock execution,” federal prosecutors said.`\
 https://nytimes.com/2023/08/03/us/mississippi-officers-charged-civil-rights.html?searchResultPosition=10
 
