@@ -1,6 +1,6 @@
 **Rent Increases Are Softening, but Not Everywhere**\
 `Rents are still up over last year in just over half of the 100 largest U.S. cities.`\
-https://nytimes.com/2023/08/03/realestate/rent-increases-are-softening-but-not-everywhere.html?searchResultPosition=1
+https://nytimes.com/2023/08/03/realestate/rent-increase-us.html?searchResultPosition=1
 
 **Markets Still Weigh the Meaning of a U.S. Credit Rating Cut**\
 `Stocks were down and Treasury yields were up after Fitch Ratings’ downgrade. But the biggest effects of the move may play out over time.`\
