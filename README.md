@@ -6,8 +6,8 @@ https://nytimes.com/2023/08/03/realestate/rent-increase-us.html?searchResultPosi
 `Stocks were down and Treasury yields were up after Fitch Ratings’ downgrade. But the biggest effects of the move may play out over time.`\
 https://nytimes.com/2023/08/03/business/dealbook/fitch-credit-rating-markets.html?searchResultPosition=2
 
-**The Bank of England Raises Rates Again**\
-`Britain’s central bank raised rates for a 14th consecutive time as it warned that some risks from persistent inflation were “crystallizing.”`\
+**The Bank of England Raises Rates for 14th Meeting in a Row**\
+`Britain’s central bank raised rates to 5.25 percent, the highest since 2008, as it warned that some risks from persistent inflation were “crystallizing.”`\
 https://nytimes.com/2023/08/03/business/bank-of-england-interest-rates.html?searchResultPosition=3
 
 **A New Subject for a Veteran Documentary Maker: Herself**\
