@@ -3,7 +3,7 @@
 https://nytimes.com/2023/08/03/world/asia/seiichi-morimura-dead.html?searchResultPosition=1
 
 **Richard O. Simpson, First U.S. Product Safety Czar, Dies at 93**\
-`He was the first chairman of the Consumer Product Safety Commission, where he protected the public from buying 25 million risky goods.`\
+`As Nixon’s choice to lead the Consumer Product Safety Commission, he protected the public from buying 25 million risky goods.`\
 https://nytimes.com/2023/08/03/business/richard-o-simpson-dead.html?searchResultPosition=2
 
 **Two U.S. Navy Sailors Charged With Helping Chinese**\
