@@ -14,17 +14,17 @@ https://nytimes.com/2023/08/03/pageoneplus/quotation-of-the-day-researchers-brac
 `The future of U.S. politics after Donald Trump’s indictment.`\
 https://nytimes.com/2023/08/03/briefing/trump-niger-ukraine.html?searchResultPosition=4
 
+**Pastor or Traitor? Ukrainians Shun a Church Seen as a Kremlin Tool**\
+`The village parishioners’ decision to oust their priest reflects a broader push within Ukraine to reduce the influence of an Orthodox church that answers to Moscow.`\
+https://nytimes.com/2023/08/03/world/europe/ukraine-orthodox-church.html?searchResultPosition=5
+
 **‘A Nice Bike, When It Works’: Riders Fret After E-Bike Maker Goes Bust**\
 `VanMoof’s sleek electric bikes attracted fans, but the Dutch company’s demise has left owners unable to get repairs and worried that app-enabled functions may stop working.`\
-https://nytimes.com/2023/08/03/business/vanmoof-bankruptcy-ebikes.html?searchResultPosition=5
+https://nytimes.com/2023/08/03/business/vanmoof-bankruptcy-ebikes.html?searchResultPosition=6
 
 **‘Not Another Coup as Usual’: What to Know About Niger’s Crisis**\
 `Amid an unpredictable military coup, neighboring countries have threatened to go to war — some to scuttle the coup, and others to ensure its success.`\
-https://nytimes.com/article/niger-coup-military-explainer.html?searchResultPosition=6
-
-**Pastor or Traitor? Ukrainians Shun a Church Seen as a Kremlin Tool**\
-`The village parishioners’ decision to oust their priest reflects a broader push within Ukraine to reduce the influence of an Orthodox church that answers to Moscow.`\
-https://nytimes.com/2023/08/03/world/europe/ukraine-orthodox-church.html?searchResultPosition=7
+https://nytimes.com/article/niger-coup-military-explainer.html?searchResultPosition=7
 
 **Ron DeSantis Accepts Gavin Newsom’s Challenge to Debate on Fox News**\
 `The California governor had taunted his Florida counterpart for months. Now, with his presidential campaign struggling, Mr. DeSantis agreed to a debate hosted by Sean Hannity.`\
