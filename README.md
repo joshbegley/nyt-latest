@@ -1,40 +1,40 @@
-**Armories, Hotels, Offices: Where New York Could House Migrants**\
-`There are no easy answers for officials trying to find shelter beds, but “everything is on the table,” a deputy mayor said.`\
-https://nytimes.com/2023/08/03/nyregion/armories-hotels-offices-where-new-york-could-house-migrants.html?searchResultPosition=1
+**In an Open Loft in Gowanus, Six Authors and Artists Collaborate and Commune**\
+`For the children’s book creators Doug Salati, Brian Floca, Sophie Blackall, Rowboat Watkins, Johnny Marciano and Dasha Tolstikova, the light-filled space has become much more than just a place to work.`\
+https://nytimes.com/2023/08/03/books/review/in-an-open-loft-in-gowanus-six-authors-and-artists-collaborate-and-commune.html?searchResultPosition=1
 
-**So What Do We Call Twitter Now Anyway?**\
-`With Elon Musk’s rebranding of the app, is Twitter’s name really retired? What about tweets? We unravel the terminology puzzle.`\
-https://nytimes.com/2023/08/03/technology/twitter-x-tweets-elon-musk.html?searchResultPosition=2
+**Jennette McCurdy Now Qualifies as a Veteran Best Seller**\
+`Some publishers balked at the title but, just shy of its first birthday, “I’m Glad My Mom Died” has stood the test of time.`\
+https://nytimes.com/2023/08/03/books/review/im-glad-my-mom-died-jennette-mccurdy.html?searchResultPosition=2
 
-**What Happens When New York’s Shelters Run Out of Room?**\
-`As migrants sleep on sidewalks outside a Midtown hotel, the city is struggling to avoid a homelessness crisis that resembles Los Angeles’s or San Francisco’s.`\
-https://nytimes.com/2023/08/03/nyregion/nyc-migrant-homeless-crisis.html?searchResultPosition=3
+**Mayor Adams Turns His Back on Immigrants and New York’s Legacy**\
+`New York City was built by immigrants, which makes City Hall’s tepid response to asylum seekers sleeping on its streets particularly disappointing.`\
+https://nytimes.com/2023/08/03/opinion/editorials/new-york-city-immigrant-shelters.html?searchResultPosition=3
 
-**Covering the Women’s World Cup Takes Stamina and Coffee**\
-`Juliet Macur, a Sports reporter, is chasing the story of the U.S. national women’s soccer team at this year’s tournament.`\
-https://nytimes.com/2023/08/03/insider/covering-the-womens-world-cup-takes-stamina-and-coffee.html?searchResultPosition=4
+**For an Ailing Feinstein, a Fight Over the Family Fortune**\
+`As Dianne Feinstein, 90, struggles to function in the Senate, a dispute within her family over control of her late husband’s estate is another difficult chapter at the end of a long career.`\
+https://nytimes.com/2023/08/03/us/feinstein-husband-estate-family-fortune.html?searchResultPosition=4
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/08/03/crosswords/spelling-bee-forum.html?searchResultPosition=5
+**Why It’s No Surprise That Trump Is Being Charged Under a Reconstruction-Era Law**\
+`The law was designed in part to prosecute political leaders who, while in office and after, sought to cancel the votes of millions to hold power.`\
+https://nytimes.com/2023/08/03/opinion/trump-indictment-civil-rights-reconstruction.html?searchResultPosition=5
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/08/03/crosswords/wordle-review-answer-775.html?searchResultPosition=6
+**This Jazz Artist Makes Pro Football Hall of Fame Speeches Sing**\
+`When the Pro Football Hall of Fame’s inductees began to ramble, executives turned to Jezra Kaye to help them rein it in.`\
+https://nytimes.com/2023/08/03/sports/football/football-hall-of-fame-induction-speeches.html?searchResultPosition=6
 
-**Word of the Day: divulge**\
-`This word has appeared in 76 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/08/03/learning/word-of-the-day-divulge.html?searchResultPosition=7
+**‘And Just Like That …’ Episode 8 Fashion: Losing the Spanx**\
+`In the new episode, Carrie and Aidan lean into their relationship, and Charlotte and Miranda start new jobs.`\
+https://nytimes.com/2023/08/03/style/and-just-like-that-fashion.html?searchResultPosition=7
 
-**Corrections: Aug. 3, 2023**\
-`Corrections that appeared in print on Thursday, Aug. 3, 2023.`\
-https://nytimes.com/2023/08/03/corrections/corrections-month-xx-20xx.html?searchResultPosition=8
+**The Brand Stories of Our Lives**\
+`Worshiping brands may be our one shared value.`\
+https://nytimes.com/2023/08/03/opinion/barbie-brand-movies-american-dream.html?searchResultPosition=8
 
-**Quotation of the Day: Researchers Brace for the ‘New Normal Respiratory Season’ as Covid Cases Tick Upward**\
-`Quotation of the Day for Thursday, August 3, 2023.`\
-https://nytimes.com/2023/08/03/pageoneplus/quotation-of-the-day-researchers-brace-for-the-new-normal-respiratory-season-as-covid-cases-tick-upward.html?searchResultPosition=9
+**The Art of Telling Forbidden Stories in China**\
+`Many writers are looking for ways to capture the everyday realities that the government keeps hidden — sometimes at their own peril.`\
+https://nytimes.com/2023/08/03/magazine/chinese-literature-censorship.html?searchResultPosition=9
 
-**Thursday Briefing**\
-`The future of U.S. politics after Donald Trump’s indictment.`\
-https://nytimes.com/2023/08/03/briefing/trump-niger-ukraine.html?searchResultPosition=10
+**Mike Pence Knows What He’s Getting Himself Into**\
+`The line between “responsible influence, working to contain the worst impulses in private” and “passive bystander” and “amoral chump” is difficult to discern.`\
+https://nytimes.com/2023/08/03/opinion/mike-pence-january-6-trump-2024.html?searchResultPosition=10
 
