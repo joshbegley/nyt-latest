@@ -2,7 +2,7 @@
 `The nonprofit said it would not remove a section on gender and sexual orientation, as Florida had requested, and advised districts not to offer the course.`\
 https://nytimes.com/2023/08/03/us/florida-ap-psychology-courses.html?searchResultPosition=1
 
-**Trump’s day in court included another encounter with Jack Smith and a swearing in, but not the kind he is running for.**\
+**Trump’s day in court included another encounter with Jack Smith but no eye contact.**\
 `This time the seriousness of the charges facing the former president gave the proceedings a sense of historical weight.`\
 https://nytimes.com/2023/08/03/us/politics/trump-court-appearance-arraignment.html?searchResultPosition=2
 
