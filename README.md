@@ -1,6 +1,6 @@
 **Conflict Erupts Among Russia’s Pro-War Bloggers**\
 `A new tone has set in among the uninhibited military bloggers, whose support for the invasion has given them unusual powers to speak out.`\
-https://nytimes.com/2023/08/03/world/europe/ukraine-war-russia.html?searchResultPosition=1
+https://nytimes.com/2023/08/03/world/europe/ukraine-war-russia-bloggers.html?searchResultPosition=1
 
 **Giuliani Maligns Jews and Women in Transcript Filed in Harassment Case**\
 `Rudolph Giuliani, the former mayor and presidential lawyer, faces a variety of legal troubles and has been identified as a co-conspirator in Donald Trump’s indictment.`\
