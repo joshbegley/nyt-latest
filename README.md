@@ -15,7 +15,7 @@ https://nytimes.com/2023/08/03/theater/back-to-the-future-review-broadway.html?s
 https://nytimes.com/2023/08/03/crosswords/daily-puzzle-2023-08-04.html?searchResultPosition=4
 
 **Appeals Court Allows Biden’s Asylum Restrictions to Continue for Now**\
-`A federal judge had struck down the policy last month, but his ruling had not yet taken effect.`\
+`A federal judge had struck down the policy last week, but his ruling had not yet taken effect.`\
 https://nytimes.com/2023/08/03/us/politics/biden-asylum-appeal.html?searchResultPosition=5
 
 **Trump, Arraigned on Election Charges, Pleads Not Guilty**\
