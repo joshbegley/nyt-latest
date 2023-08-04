@@ -8,7 +8,7 @@ https://nytimes.com/2023/08/04/business/carl-icahn-shares-dividend.html?searchRe
 
 **A Mystery on the ‘Planet of the Bass’**\
 `Is the ’90s Eurodance parody an ironic hit — or just a hit?`\
-https://nytimes.com/2023/08/04/style/a-mystery-on-the-planet-of-the-bass.html?searchResultPosition=3
+https://nytimes.com/2023/08/04/style/tiktok-planet-of-the-bass-90s-eurodance.html?searchResultPosition=3
 
 **Mississippi Primary Election Results**\
 `See all results from the 2023 Mississippi primary election.`\
