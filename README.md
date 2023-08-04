@@ -1,5 +1,5 @@
-**A verdict is expected today in the latest trial against Navalny.**\
-`By Aaron Boxerman`\
+**Verdict Expected in Latest Trial of Russian Opposition Leader Navalny**\
+`Aleksei A. Navalny, who is already in prison, is facing charges of supporting “extremism” that could extend his sentence by two decades.`\
 https://nytimes.com/2023/08/04/world/europe/a-verdict-is-expected-today-in-the-latest-trial-against-navalny.html?searchResultPosition=1
 
 **Some of the Things You’ll Be Paying More For**\
