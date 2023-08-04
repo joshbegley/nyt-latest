@@ -1,40 +1,40 @@
+**Shares of Carl Icahn’s Firm Tank After Dividend Is Cut**\
+`Bowing to pressure from a short seller, Mr. Icahn halved his company’s quarterly dividend and said he would return to the style of investing that made him famous.`\
+https://nytimes.com/2023/08/04/business/carl-icahn-shares-dividend.html?searchResultPosition=1
+
+**A Mystery on the ‘Planet of the Bass’**\
+`Is the ’90s Eurodance parody an ironic hit — or just a hit?`\
+https://nytimes.com/2023/08/04/style/a-mystery-on-the-planet-of-the-bass.html?searchResultPosition=2
+
+**Mississippi Primary Election Results**\
+`See all results from the 2023 Mississippi primary election.`\
+https://nytimes.com/interactive/2023/08/08/us/elections/results-mississippi.html?searchResultPosition=3
+
+**New Florida Immigration Rules Start to Strain Some Businesses**\
+`Some employers said they were losing workers because of the new law, which was championed by Gov. Ron DeSantis.`\
+https://nytimes.com/2023/08/04/us/florida-immigration-law-businesses.html?searchResultPosition=4
+
+**Ohio Issue 1 Election Results: Amendment Approval Threshold**\
+`See full results and maps from the Ohio election.`\
+https://nytimes.com/interactive/2023/08/08/us/elections/results-ohio-issue-1.html?searchResultPosition=5
+
 **Does It Matter What Trump Really Believes?**\
 `Readers discuss the latest indictment of the former president. Also: Anti-Trump Republicans; racial disparities in the pool; multitasking; dog behavior.`\
-https://nytimes.com/2023/08/04/opinion/letters/donald-trump-indictment.html?searchResultPosition=1
+https://nytimes.com/2023/08/04/opinion/letters/donald-trump-indictment.html?searchResultPosition=6
 
 **Digital Replicas, a Fear of Striking Actors, Already Fill Screens**\
 `The technology for morphing flesh-and-blood performers into virtual avatars has been improving for years. Now it has become an issue in the actors’ strike.`\
-https://nytimes.com/2023/08/04/arts/television/actors-strike-digital-replicas.html?searchResultPosition=2
+https://nytimes.com/2023/08/04/arts/television/actors-strike-digital-replicas.html?searchResultPosition=7
 
 **Ann Patchett on Summer Love and Her New Novel**\
 `The author discusses “Tom Lake,” bookstore secrets and the play “Our Town.”`\
-https://nytimes.com/2023/08/04/books/review/ann-patchett-on-summer-love-and-her-new-novel.html?searchResultPosition=3
+https://nytimes.com/2023/08/04/books/review/ann-patchett-on-summer-love-and-her-new-novel.html?searchResultPosition=8
 
 **Chris Christie Visits War Sites in Ukraine**\
 `The Republican former New Jersey governor who is running for president made a surprise trip to meet with President Volodymyr Zelensky.`\
-https://nytimes.com/video/world/europe/100000009027187/chris-christie-zelensky-ukraine.html?searchResultPosition=4
+https://nytimes.com/video/world/europe/100000009027187/chris-christie-zelensky-ukraine.html?searchResultPosition=9
 
 **The Big Number: $15 Million**\
 `George Clooney and Meryl Streep have helped raise $15 million for striking actors`\
-https://nytimes.com/interactive/2023/08/04/business/media/clooney-streep-actors-strike-donations.html?searchResultPosition=5
-
-**Prosecutors Identify Human Remains Found in 2011 Near Gilgo Beach**\
-`The skull belonged to Karen Vergata, who had worked as an escort and went missing in 1996. Other parts of her body had been found on Fire Island years before.`\
-https://nytimes.com/2023/08/04/nyregion/gilgo-beach-killings-human-remains.html?searchResultPosition=6
-
-**Where ‘No One Wanted Girls,’ a Dad in India Takes On the Patriarchy**\
-`A delivery room epiphany transformed a village headman into an unlikely and highly successful campaigner against prenatal sex testing, which often led to aborting female fetuses.`\
-https://nytimes.com/2023/08/04/world/asia/sunil-jaglan-india-haryana-womens-rights.html?searchResultPosition=7
-
-**How the ‘Spider-Verse’ Movies Have Changed Animation for the Better**\
-`The new Teenage Mutant Ninja Turtles movie and other C.G.I. cartoons are taking a looser, imperfect approach. The style represents a shift made possible by Spidey’s success.`\
-https://nytimes.com/2023/08/04/movies/spider-man-versus-teenage-mutant-ninja-turtles.html?searchResultPosition=8
-
-**Five Science Fiction Movies to Stream Now**\
-`Dinosaurs, androids, darkness and superheroes factor into this months sci-fi picks.`\
-https://nytimes.com/2023/08/04/movies/five-science-fiction-movies-to-stream-now.html?searchResultPosition=9
-
-**Recipes That Meet You Where You Are**\
-`Chilaquiles verdes for when you want to get lost in your kitchen, and kimchi carbonara for when you don’t.`\
-https://nytimes.com/2023/08/04/dining/recipes-that-meet-you-where-you-are.html?searchResultPosition=10
+https://nytimes.com/interactive/2023/08/04/business/media/clooney-streep-actors-strike-donations.html?searchResultPosition=10
 
