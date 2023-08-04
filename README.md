@@ -1,5 +1,5 @@
 **Mark Margolis, Scene Stealer from ‘Breaking Bad,’ Dies at 83**\
-`His character, an ex-drug lord in a wheelchair, was unable to speak, but the actor, who also appeared in “Better Call Saul,” didn’t need dialogue to wield fearsome power.`\
+`His character, an ex-drug lord in a wheelchair, was unable to speak, but the actor, who also appeared in the prequel “Better Call Saul,” didn’t need dialogue to wield fearsome power.`\
 https://nytimes.com/2023/08/04/arts/television/mark-margolis-dead.html?searchResultPosition=1
 
 **Ukraine Hits a Distant Russian Ship, Showing Reach of Naval Drones**\
