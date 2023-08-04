@@ -7,7 +7,7 @@ https://nytimes.com/2023/08/04/briefing/from-portugal-to-portland.html?searchRes
 https://nytimes.com/2023/08/04/world/asia/china-flood-beijing-rain.html?searchResultPosition=2
 
 **Andrew Tate Is Released From House Arrest in Romania**\
-`The online influencer and his brother, Tristan Tate, must remain in the country while they await trail on charges of human trafficking, a court in Bucharest ruled.`\
+`The online influencer and his brother, Tristan Tate, must remain in the country while they await trial on charges of human trafficking, a court in Bucharest ruled.`\
 https://nytimes.com/2023/08/04/world/europe/andrew-tate-romania-house-arrest.html?searchResultPosition=3
 
 **To Spare Beijing, China Diverts Floodwaters Toward Nearby Cities**\
