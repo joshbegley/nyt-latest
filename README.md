@@ -15,7 +15,7 @@ https://nytimes.com/2023/08/04/world/asia/china-flood-beijing-rain.html?searchRe
 https://nytimes.com/2023/08/04/world/europe/andrew-tate-romania-house-arrest.html?searchResultPosition=4
 
 **To Spare Beijing, China Diverts Floodwaters Toward Nearby Cities**\
-`Some residents of Zhuozhou in Hebei Province say they did not get enough of a warning from local officials who made the decision to use the area as a “moat” to protect the capital.`\
+`Some residents of Zhuozhou in Hebei Province say they did not get enough of a warning from local officials before the water was rerouted.`\
 https://nytimes.com/video/world/asia/100000009026871/beijing-hebei-zhuozhou-flooding-doksuri.html?searchResultPosition=5
 
 **Fighting Canada’s Unending Fires**\
