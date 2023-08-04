@@ -18,7 +18,7 @@ https://nytimes.com/2023/08/04/us/davis-california-stabbings-mental-competency.h
 `The president is experiencing a flurry of good news on the economy, crime, immigration and other areas, but voters so far have not given the president much credit.`\
 https://nytimes.com/2023/08/04/us/politics/biden-approval-rating.html?searchResultPosition=5
 
-**YouTubers’ PlayStation Giveaway Draws Huge Crowd to Union Square Park**\
+**YouTubers’ PlayStation Giveaway Causes Chaos in Union Square Park**\
 `Hundreds of people descended on the Manhattan park after two YouTube streamers, Kai Cenat and Fanum, promised to hand out free game consoles.`\
 https://nytimes.com/2023/08/04/nyregion/union-square-kai-cenat-twitch-giveaway.html?searchResultPosition=6
 
