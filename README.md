@@ -4,7 +4,7 @@ https://nytimes.com/2023/08/04/movies/kids-movies-streaming.html?searchResultPos
 
 **From Portugal to Portland**\
 `Oregon decriminalized all drugs, and overdoses have surged.`\
-https://nytimes.com/2023/08/04/briefing/from-portugal-to-portland.html?searchResultPosition=2
+https://nytimes.com/2023/08/04/briefing/portugal-portland-decriminalization-overdoses.html?searchResultPosition=2
 
 **Anger Builds in Towns Deliberately Flooded, in Part, to Save Beijing**\
 `A provincial leader set off an outcry by urging cities to serve as a “moat” for the capital, as diverted floodwaters sent scores of residents fleeing.`\
