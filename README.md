@@ -1,40 +1,40 @@
-**Thousands of Scouts Are Leaving Heat-Plagued Jamboree Early**\
-`The British, Singaporean and U.S. scouting organizations cited health concerns for their departure from a much-anticipated youth event in South Korea.`\
-https://nytimes.com/2023/08/05/world/asia/scout-jamboree-heat-wave-south-korea.html?searchResultPosition=1
+**An Israeli City Where Compromise and Division Swim Side by Side**\
+`At a time when Israeli Jews can seem irreconcilably divided, an unusual swimming center in the city of Rehovot illustrates the compromises that many Israelis make daily.`\
+https://nytimes.com/2023/08/05/world/middleeast/israel-two-pools-religious-secular.html?searchResultPosition=1
 
-**Ukraine Attacks Russian Oil Tanker off Crimea**\
-`The strike, near a bridge vital to Russia, is the second Ukrainian sea drone assault on one of the country’s ships in two days.`\
-https://nytimes.com/2023/08/05/world/asia/russia-ukraine-crimea-attack.html?searchResultPosition=2
+**Studying the Limits of Human Perfection, Through Darts**\
+`Why do athletes always seem to get better, generation by generation? It’s not always for the reasons you might think.`\
+https://nytimes.com/2023/08/05/upshot/darts-sports-perfection.html?searchResultPosition=2
 
-**How the Artistic Director at SummerStage Spends Her Sundays**\
-`Rain or shine, Erika Elliott drives from borough to borough to check in on the performances happening in city parks as part of the annual music festival.`\
-https://nytimes.com/2023/08/05/nyregion/summerstage-erika-elliott.html?searchResultPosition=3
+**Is This the End of the Summer Vacation as We Know It?**\
+`This year, everything from scorching heat to fires, floods, tornadoes and hail storms driven by climate change have disrupted the plans of travelers around the world. A summer getaway remains a powerful desire, but it’s at a tipping point.`\
+https://nytimes.com/2023/08/05/travel/summer-travel-climate-change.html?searchResultPosition=3
 
-**A Global Web of Chinese Propaganda Leads to a U.S. Tech Mogul**\
-`The Times unraveled a financial network that stretches from Chicago to Shanghai and uses American nonprofits to push Chinese talking points worldwide.`\
-https://nytimes.com/2023/08/05/world/europe/neville-roy-singham-china-propaganda.html?searchResultPosition=4
+**What They Paid for Their Weddings**\
+`Former brides reveal where they splurged and where they scrimped for their nuptials — and what (if anything) they would have done differently.`\
+https://nytimes.com/2023/08/05/style/couples-wedding-expenses.html?searchResultPosition=4
 
-**They Make Some of New York’s Best Food. They Want the Right to Sell It.**\
-`New York City officials cracked down on Corona Plaza, a celebrated Queens hub for Latin American street vendors. Its merchants are fighting to legitimize their businesses.`\
-https://nytimes.com/2023/08/05/nyregion/corona-plaza-street-food-vendors.html?searchResultPosition=5
+**A Shrinking Footprint in Africa for France, the Former Colonizer That Stayed**\
+`A recent military takeover in Niger has thrown into uncertainty the future of France’s presence in West and Central Africa, raising doubts about the future of U.S. military involvement there, too.`\
+https://nytimes.com/2023/08/05/world/africa/niger-coup-france-west-africa.html?searchResultPosition=5
 
-**For Mayor Adams, Any Day Has the Makings of Flag Day**\
-`From Belgium to the Bahamas, Mayor Eric Adams has raised the flags of at least 31 countries since taking office, a civic gesture with political benefits.`\
-https://nytimes.com/2023/08/05/nyregion/eric-adams-flags.html?searchResultPosition=6
+**Is It Possible to Buy a House in Your 20s? Yes, but Only With Some Help.**\
+`For some young people, a path to homeownership often involves a mix of diligent saving combined with assistance from family or government loans and programs.`\
+https://nytimes.com/2023/08/05/business/buying-house-20s-mortgage.html?searchResultPosition=6
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/08/05/crosswords/spelling-bee-forum.html?searchResultPosition=7
+**Man of the People? Jolted by a Mutiny, Putin Works the Crowds.**\
+`His contained interactions with crowds this summer are a noticeable change for the Russian leader, who disdains retail politics and operated in extreme seclusion during the pandemic.`\
+https://nytimes.com/2023/08/05/world/europe/putin-russia-war-mutiny-crowd.html?searchResultPosition=7
 
-**Trump’s Legal Team Is Enmeshed in a Tangle of Possible Conflicts**\
-`Former President Donald J. Trump’s growing cast of lawyers is marked by a web of overlapping interests encompassing witnesses, co-defendants and potential targets.`\
-https://nytimes.com/2023/08/05/us/politics/trump-charges-lawyer-conflicts.html?searchResultPosition=8
+**How Taylor Swift’s Eras Tour Conquered the World**\
+`The pop star’s record-breaking, career-spanning show has dominated the summer, commanding attention and whipping up demand at a level thought unachievable in a fragmented age.`\
+https://nytimes.com/2023/08/05/arts/music/taylor-swift-eras-tour.html?searchResultPosition=8
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/08/05/crosswords/wordle-review-answer-777.html?searchResultPosition=9
+**How a Sexual Assault in a School Bathroom Became a Political Weapon**\
+`It was an explosive claim — that a Virginia school district covered up a crime in order to protect transgender rights. But was it true?`\
+https://nytimes.com/2023/08/05/magazine/loudoun-county-bathroom-sexual-assault.html?searchResultPosition=9
 
-**Quotation of the Day: After Catastrophe of Dam’s Destruction, a Trove of Artifacts Is Revealed**\
-`Quotation of the Day for Saturday, August 5, 2023.`\
-https://nytimes.com/2023/08/05/pageoneplus/quotation-of-the-day-after-catastrophe-of-dams-destruction-a-trove-of-artifacts-is-revealed.html?searchResultPosition=10
+**‘We Are Feeling Overpoliced’: State Troopers Join Patrols in Austin**\
+`The city ended a partnership with the Texas Department of Public Safety this month after troubling incidents. In response, Gov. Greg Abbott sent in more troopers.`\
+https://nytimes.com/2023/08/05/us/austin-police-texas-state-troopers.html?searchResultPosition=10
 
