@@ -1,6 +1,6 @@
 **The Big Ten Lands Oregon and Washington, Leaving the Pac-12 Bereft**\
 `The Big Ten booms to 18 schools with the move, powered by TV money, and the once-great Pac-12 dwindles to four after three more schools leave for the Big 12.`\
-https://nytimes.com/2023/08/04/sports/pac-12-oregon-washington-big-ten-big-12.html?searchResultPosition=1
+https://nytimes.com/2023/08/04/sports/ncaafootball/pac-12-oregon-washington-big-ten-big-12.html?searchResultPosition=1
 
 **In a Reversal, A.P. Psychology May Be Allowed in Florida Schools After All**\
 `The College Board and the Florida Department of Education had been feuding over the inclusion of a section on gender and sexual orientation.`\
