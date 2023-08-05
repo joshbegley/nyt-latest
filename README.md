@@ -1,5 +1,5 @@
 **Florence Berger, Who Helped People Find Enduring Love, Dies at 83**\
-`The first woman to become a tenured professor at Cornell’s hotel administration school, she found a second calling as a successful matchmaker.`\
+`A tenured professor at Cornell with a feel for human chemistry, she found a second calling as a successful matchmaker. Almost all of her pairings lasted.`\
 https://nytimes.com/2023/08/05/style/florence-berger-dead.html?searchResultPosition=1
 
 **What’s Hanging?**\
