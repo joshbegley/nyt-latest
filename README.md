@@ -14,7 +14,7 @@ https://nytimes.com/2023/08/05/business/berkshire-hathaway-earnings.html?searchR
 `The vehicle is a key part of the justice’s just-folks persona. It’s also a luxury motor coach that was funded by someone else’s money.`\
 https://nytimes.com/2023/08/05/us/clarence-thomas-rv-anthony-welters.html?searchResultPosition=4
 
-**Ukrainians Dismayed as Pope Declines to Chide Russia at World Youth Day**\
+**Ukrainians Dismayed as Pope Declines to Condemn Russia at World Youth Day**\
 `“It’s not enough just to listen — he has to do something,” said Dmytro Bohak, one of about 500 young Ukrainian pilgrims who attended the event and staged a demonstration.`\
 https://nytimes.com/2023/08/05/world/europe/pope-francis-fatima-ukraine-russia.html?searchResultPosition=5
 
