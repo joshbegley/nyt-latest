@@ -1,40 +1,40 @@
+**How the Artistic Director at SummerStage Spends Her Sundays**\
+`Rain or shine, Erika Elliott drives from borough to borough to check in on the performances happening in city parks as part of the annual music festival.`\
+https://nytimes.com/2023/08/05/nyregion/summerstage-erika-elliott.html?searchResultPosition=1
+
+**A Global Web of Chinese Propaganda Leads to a U.S. Tech Mogul**\
+`The Times unraveled a financial network that stretches from Chicago to Shanghai and uses American nonprofits to push Chinese talking points worldwide.`\
+https://nytimes.com/2023/08/05/world/europe/neville-roy-singham-china-propaganda.html?searchResultPosition=2
+
+**They Make Some of New York’s Best Food. They Want the Right to Sell It.**\
+`New York City officials cracked down on Corona Plaza, a celebrated Queens hub for Latin American street vendors. Its merchants are fighting to legitimize their businesses.`\
+https://nytimes.com/2023/08/05/nyregion/corona-plaza-street-food-vendors.html?searchResultPosition=3
+
+**For Mayor Adams, Any Day Has the Makings of Flag Day**\
+`From Belgium to the Bahamas, Mayor Eric Adams has raised the flags of at least 31 countries since taking office, a civic gesture with political benefits.`\
+https://nytimes.com/2023/08/05/nyregion/eric-adams-flags.html?searchResultPosition=4
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2023/08/05/crosswords/spelling-bee-forum.html?searchResultPosition=5
+
+**Trump’s Legal Team Is Enmeshed in a Tangle of Possible Conflicts**\
+`Former President Donald J. Trump’s growing cast of lawyers is marked by a web of overlapping interests encompassing witnesses, co-defendants and potential targets.`\
+https://nytimes.com/2023/08/05/us/politics/trump-charges-lawyer-conflicts.html?searchResultPosition=6
+
+**Today’s Wordle Review**\
+`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
+https://nytimes.com/2023/08/05/crosswords/wordle-review-answer-777.html?searchResultPosition=7
+
 **Quotation of the Day: After Catastrophe of Dam’s Destruction, a Trove of Artifacts Is Revealed**\
 `Quotation of the Day for Saturday, August 5, 2023.`\
-https://nytimes.com/2023/08/05/pageoneplus/quotation-of-the-day-after-catastrophe-of-dams-destruction-a-trove-of-artifacts-is-revealed.html?searchResultPosition=1
+https://nytimes.com/2023/08/05/pageoneplus/quotation-of-the-day-after-catastrophe-of-dams-destruction-a-trove-of-artifacts-is-revealed.html?searchResultPosition=8
 
 **Ukraine Starts New Diplomatic Push to Weaken Russia**\
 `Some 40 countries that have largely remained on the sidelines of the war were invited to talks this weekend in Saudi Arabia, as Ukraine redoubles international efforts to isolate Moscow.`\
-https://nytimes.com/2023/08/05/world/europe/ukraine-war-saudi-arabia-russia.html?searchResultPosition=2
+https://nytimes.com/2023/08/05/world/europe/ukraine-war-saudi-arabia-russia.html?searchResultPosition=9
 
 **The Big Ten Lands Oregon and Washington, Leaving the Pac-12 Bereft**\
 `The Big Ten booms to 18 schools with the move, powered by TV money, and the once-great Pac-12 dwindles to four after three more schools leave for the Big 12.`\
-https://nytimes.com/2023/08/04/sports/ncaafootball/pac-12-oregon-washington-big-ten-big-12.html?searchResultPosition=3
-
-**In a Reversal, A.P. Psychology May Be Allowed in Florida Schools After All**\
-`The College Board and the Florida Department of Education had been feuding over the inclusion of a section on gender and sexual orientation.`\
-https://nytimes.com/2023/08/04/us/florida-ap-psychology.html?searchResultPosition=4
-
-**Luxury Vantage Point**\
-`John Guzzetta returns with a high-flying Saturday puzzle.`\
-https://nytimes.com/2023/08/04/crosswords/daily-puzzle-2023-08-05.html?searchResultPosition=5
-
-**Texas Judge Says Doctors Can Use ‘Good Faith Judgment’ in Providing Abortions**\
-`The ruling sought to clarify the medical exceptions in the state’s bans, and was in a response to a lawsuit from women who were denied abortions despite medical emergencies.`\
-https://nytimes.com/2023/08/04/us/texas-abortion-ban-lawsuit-ruling.html?searchResultPosition=6
-
-**Man Who Threatened Arizona Election Officials Gets More Than 3 Years in Prison**\
-`The man called for a mass shooting of poll workers and also threatened the families of two county officials, saying that someone needed to get “these people and their children.”`\
-https://nytimes.com/2023/08/04/us/texas-election-threats-man-sentenced.html?searchResultPosition=7
-
-**Key Witness Doesn’t Back Up G.O.P.’s Biggest Allegations on Bidens**\
-`The testimony of Devon Archer, a Hunter Biden associate, paints an unflattering portrait of Hunter’s business dealings, but contradicts reports of bribes or material involvement by the president.`\
-https://nytimes.com/2023/08/04/us/politics/biden-devon-archer-testimony.html?searchResultPosition=8
-
-**How Jack Smith Structured the Trump Election Indictment to Reduce Risks**\
-`The special counsel layered varied charges atop the same facts, while sidestepping a free-speech question by not charging incitement.`\
-https://nytimes.com/2023/08/04/us/politics/trump-indictment-jack-smith-charges.html?searchResultPosition=9
-
-**Oklahoma Man Pleads Guilty to Threatening DeSantis, Cruz and Other Republicans**\
-`Tyler Jay Marshall, 37, threatened on social media to shoot a number of Republican politicians. He faces up to five years in prison.`\
-https://nytimes.com/2023/08/04/us/politics/desantis-cruz-republican-death-threats-guilty.html?searchResultPosition=10
+https://nytimes.com/2023/08/04/sports/ncaafootball/pac-12-oregon-washington-big-ten-big-12.html?searchResultPosition=10
 
