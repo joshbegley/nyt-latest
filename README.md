@@ -36,5 +36,5 @@ https://nytimes.com/2023/08/05/us/hip-hop-rap-birthday.html?searchResultPosition
 
 **‘Vindicating’: An Analyst Who Lowered the U.S.’s Credit Rating in 2011 on Fitch’s Downgrade**\
 `Nikola Swan played a key role at S&P when the agency became the first to strip America of its top ranking in 2011.`\
-https://nytimes.com/2023/08/05/business/dealbook/vindicating-an-analyst-who-lowered-the-uss-credit-rating-in-2011-on-fitchs-downgrade.html?searchResultPosition=10
+https://nytimes.com/2023/08/05/business/dealbook/fitch-us-credit-rating.html?searchResultPosition=10
 
