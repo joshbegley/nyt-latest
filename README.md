@@ -34,7 +34,7 @@ https://nytimes.com/2023/08/05/podcasts/this-american-life-eight-fights-nyt-audi
 `Having a hard time keeping up with all your dining options? Here are some tips.`\
 https://nytimes.com/2023/08/05/briefing/restaurant-tracking-tips.html?searchResultPosition=9
 
-**The Truth About Your Bacon**\
-`Newly released videos by undercover investigators underscore the abuse of hogs on factory farms.`\
-https://nytimes.com/2023/08/05/opinion/hog-farming-secret-video.html?searchResultPosition=10
+**The Normal Paths to Beating Trump Are Closing**\
+`How the indictments are making it harder to fight 2024 on any grounds except Trump’s fitness.`\
+https://nytimes.com/2023/08/05/opinion/trump-2024-strategy-campaign.html?searchResultPosition=10
 
