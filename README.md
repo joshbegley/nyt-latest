@@ -1,6 +1,6 @@
 **How the U.S. Was Eliminated, Shot by Shot**\
 `The ending of penalty shots was rapid-fire, but still agonizing for both Sweden, which moved to the World Cup quarterfinals, and the United States, which was eliminated.`\
-https://nytimes.com/2023/08/06/sports/soccer/us-sweden-penalty-shots-sequence.html?searchResultPosition=1
+https://nytimes.com/2023/08/06/sports/soccer/us-sweden-penalty-shots-womens-world-cup.html?searchResultPosition=1
 
 **At Bessie Awards, Mourning and Celebration**\
 `Joyce Edwards, Dormeshia and J. Bouey were among the winners. The ceremony included a tribute to O’Shae Sibley, the dancer who was killed in July.`\
