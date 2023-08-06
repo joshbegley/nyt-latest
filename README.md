@@ -1,6 +1,6 @@
 **Trump’s Actions in Effort to Overturn Election Were ‘Aspirational,’ His Lawyer Says**\
 `John F. Lauro, a lawyer for the former president, ran through a gantlet of interviews Sunday morning, as Donald J. Trump spent the weekend on the attack on Truth Social.`\
-https://nytimes.com/2023/08/06/us/politics/trump-lawyer-indictment.html?searchResultPosition=1
+https://nytimes.com/2023/08/06/us/politics/trump-lawyer-pence-truth-social.html?searchResultPosition=1
 
 **Houston Volunteers Fight Tickets for Serving Meals to Homeless People**\
 `A Food Not Bombs chapter faces $23,500 in fines for serving meals to homeless people in violation of a city ordinance.`\
