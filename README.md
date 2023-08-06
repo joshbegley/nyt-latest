@@ -1,6 +1,6 @@
 **At Least 24 Killed in Minibus Crash in Morocco**\
 `The vehicle overturned at a curve on its way to a weekly town market southeast of Marrakesh, officials said.`\
-https://nytimes.com/2023/08/06/world/africa/at-least-24-killed-in-minibus-crash-in-morocco.html?searchResultPosition=1
+https://nytimes.com/2023/08/06/world/africa/morocco-bus-crash.html?searchResultPosition=1
 
 **At Santa Fe Opera, the Oldest Work Is Also the Freshest**\
 `Among the company’s annual summer offerings, Monteverdi’s “L’Orfeo,” from 1607 but newly reorchestrated and imaginatively staged, stands out.`\
