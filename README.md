@@ -1,5 +1,5 @@
-**Trump’s Actions in Effort to Overturn Election Were ‘Aspirational,’ His Lawyer Says**\
-`John F. Lauro, a lawyer for the former president, ran through a gantlet of interviews Sunday morning, as Donald J. Trump spent the weekend on the attack on Truth Social.`\
+**Trump Calls for Judge’s Recusal as His Lawyer Deems Effort to Overturn Election ‘Aspirational’**\
+`Former President Donald J. Trump spent the weekend on the attack on Truth Social while his lawyer, John F. Lauro, ran through a gantlet of interviews Sunday morning.`\
 https://nytimes.com/2023/08/06/us/politics/trump-lawyer-pence-truth-social.html?searchResultPosition=1
 
 **Houston Volunteers Fight Tickets for Serving Meals to Homeless People**\
