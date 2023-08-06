@@ -1,40 +1,40 @@
-**As War Grinds On, It Expands Beyond Old Battlefields**\
-`Russia has turned to regular attacks on the Black Sea, a vital economic hub, while Ukraine has grown bolder, with strikes hitting Moscow and Russian ships.`\
-https://nytimes.com/2023/08/06/world/europe/ukraine-war-expands-beyond-battlefields.html?searchResultPosition=1
+**Putin’s Forever War**\
+`Vladimir Putin wants to lead Russians into a civilizational conflict with the West far larger than Ukraine. Will they follow him?`\
+https://nytimes.com/2023/08/06/world/europe/putins-forever-war.html?searchResultPosition=1
 
-**Soccer’s Favorite Headband Is Supposed to Go Around Your Ankle**\
-`Pre-wrap, a type of medical gauze intended for injured joints, has found a second life as stylish headwear in women’s soccer and other sports.`\
-https://nytimes.com/2023/08/06/sports/soccer/headband-pre-wrap-uswnt.html?searchResultPosition=2
+**The N.B.A. Player Who Might See His Mom at Union Meetings**\
+`Jaren Jackson Jr. is active in the N.B.A. players’ union. His mother, Terri, works for the W.N.B.A. players’ union. When he was elected vice president, she did her best not to embarrass him.`\
+https://nytimes.com/2023/08/06/sports/basketball/basketball-players-union-jackson.html?searchResultPosition=2
 
-**Heat Waves Are Killing Older Women. Are They Also Violating Their Rights?**\
-`A group of Swiss women over 64 have filed a lawsuit against Switzerland with Europe’s top human rights court, saying the country has violated their rights by failing to curb emissions.`\
-https://nytimes.com/2023/08/06/world/europe/heat-wave-older-women-lawsuit.html?searchResultPosition=3
+**Anguish in Camelot: Kennedy Campaign Roils Storied Political Family**\
+`The presidential bid by Robert F. Kennedy Jr. has tested the bonds of an iconic Democratic clan that does not want him to run and does not know what to do about it.`\
+https://nytimes.com/2023/08/06/us/politics/rfk-campaign-kennedy-family.html?searchResultPosition=3
 
-**Summer Camp: Sun, Swimming, Archery. And Therapy.**\
-`As the United States grapples with a mental-health crisis, summer camps are looking more closely at the children in their care.`\
-https://nytimes.com/2023/08/06/health/summer-camp-mental-health.html?searchResultPosition=4
+**Indiana Tests if the Heartland Can Transform Into a Chip Hub**\
+`The state has little experience with semiconductors, but the Biden administration has promised to unleash opportunity in “the heartland of America” through the $52 billion CHIPS Act.`\
+https://nytimes.com/2023/08/06/technology/indiana-chips-act.html?searchResultPosition=4
 
-**For Pulse Massacre Victims, a New Push for Answers**\
-`Questions about the Orlando nightclub where a shooting occurred in 2016 have persisted. Now survivors want to know: Were there adequate paths to escape?`\
-https://nytimes.com/2023/08/06/us/pulse-shooting-building-complaints.html?searchResultPosition=5
+**Looking for Peace in the Long History of War**\
+`The U.C.L.A. sociologist Michael Mann seeks to uncover the causes of war across the globe, from the classical era to the Russian invasion of Ukraine.`\
+https://nytimes.com/2023/08/06/books/review/on-wars-michael-mann.html?searchResultPosition=5
 
-**The Fight Over the Dune Shacks of Cape Cod: No Power, No Water — but Eugene O’Neill Was Here**\
-`The shacks have been cared for by locals, activists and artists. Now the National Park Service plans  to lease them to bidders.`\
-https://nytimes.com/2023/08/06/us/cape-cod-dune-shacks.html?searchResultPosition=6
+**James McBride’s Latest Is a Murder Mystery Inside a Great American Novel**\
+`“The Heaven & Earth Grocery Store” opens with the discovery of a skeleton in a well, and then flashes back to explore its connection to a town’s Black, Jewish and immigrant history.`\
+https://nytimes.com/2023/08/06/books/review/the-heaven-and-earth-grocery-store-james-mcbride.html?searchResultPosition=6
 
-**‘The Pathway I Was Walking on Was Next to a Fenced-In Basketball Court’**\
-`A buzzing sound uptown, undecided about dinner and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2023/08/06/nyregion/metropolitan-diary.html?searchResultPosition=7
+**Are G.O.P. Voters Tiring of the War on ‘Wokeness’?**\
+`New polling shows national Republicans and Iowa Republican caucusgoers were more interested in “law and order” than battling “woke” schools, media and corporations.`\
+https://nytimes.com/2023/08/06/us/politics/woke-republicans-poll.html?searchResultPosition=7
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/08/06/crosswords/spelling-bee-forum.html?searchResultPosition=8
+**Eight Months Pregnant and Arrested After False Facial Recognition Match**\
+`Porsha Woodruff thought the police who showed up at her door to arrest her for carjacking were joking. She is the first woman known to be wrongfully accused as a result of facial recognition technology.`\
+https://nytimes.com/2023/08/06/technology/facial-recognition-false-arrest.html?searchResultPosition=8
 
-**Twilight of the Serial Killer: Cases Like Gilgo Beach Become Ever Rarer**\
-`Serial murders have dwindled, thanks to a cautious citizenry and improved technology. But sociopaths have found new methods of mayhem.`\
-https://nytimes.com/2023/08/06/nyregion/serial-killers-gilgo-beach-rex-heuermann.html?searchResultPosition=9
+**Schumer Wields Political Heft in Bid for New York Chips Funds**\
+`The Senate majority leader helped deliver billions of dollars in federal funding for semiconductors. Now he’s pushing for his state to reap benefits.`\
+https://nytimes.com/2023/08/06/business/economy/schumer-new-york-chips-funds.html?searchResultPosition=9
 
-**An Ambiguous Account**\
-`A Times journalist observed the creation of the atomic bomb, but questions persist about his version of the events.`\
-https://nytimes.com/2023/08/06/reader-center/oppenheimer-william-laurence.html?searchResultPosition=10
+**Why ‘Barbie’ Became a Sleeper Hit in China**\
+`The movie has exceeded box office expectations, as China’s female moviegoers celebrate a film that addresses women’s rights head-on.`\
+https://nytimes.com/2023/08/06/world/asia/china-barbie-women-feminism.html?searchResultPosition=10
 
