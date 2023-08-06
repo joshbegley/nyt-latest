@@ -10,7 +10,7 @@ https://nytimes.com/2023/08/06/sports/soccer/world-cup-alessia-russo-england.htm
 `A bloc of other West African nations gave the military junta a deadline to reinstate the ousted president. That limit is about to run out.`\
 https://nytimes.com/2023/08/06/world/africa/niger-coup-deadline.html?searchResultPosition=3
 
-**Train Derails in Pakistan, Killing at Least 20**\
+**Train Derails in Pakistan, Killing at Least 30**\
 `An express train carrying about 950 passengers was traveling from Karachi to Havelian when 11 carriages fell off the tracks, officials said.`\
 https://nytimes.com/2023/08/06/world/asia/pakistan-train-derails.html?searchResultPosition=4
 
