@@ -14,7 +14,7 @@ https://nytimes.com/2023/08/06/opinion/dog-parks-bad.html?searchResultPosition=3
 `Unpredictable climate change is the new status quo.`\
 https://nytimes.com/2023/08/06/opinion/california-skiing-climate-change.html?searchResultPosition=4
 
-**A Brief and Futile Argument in Defense of the Incandescent Bulb**\
+**A Lightbulb Went Off**\
 `I get that we have to let them go, but the chilly, shrill light of their replacements doesn’t compare.`\
 https://nytimes.com/2023/08/06/opinion/incandescent-led-bulbs.html?searchResultPosition=5
 
