@@ -7,7 +7,7 @@ https://nytimes.com/2023/08/05/nyregion/kai-cenat-union-square-riot.html?searchR
 https://nytimes.com/2023/08/05/us/idaho-school-bus-crash.html?searchResultPosition=2
 
 **Back in Competition, It’s Like Simone Biles Never Left**\
-`Biles seemed back to her old form, winning the U.S. Classic by 5 points in her return to elite gymnastics.`\
+`Biles won the U.S. Classic by 5 points in her return to elite gymnastics.`\
 https://nytimes.com/2023/08/05/sports/olympics/simone-biles-gymnastics-us-classic.html?searchResultPosition=3
 
 **Henri Konan Bédié, Ivory Coast President Deposed in a Coup, Dies at 89**\
