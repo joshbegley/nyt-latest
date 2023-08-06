@@ -2,8 +2,8 @@
 `Readers respond to the video of a dispute between a white woman and Black teens over a bike. Also: Racial bias in U.S. immigration policy; Melania Trump.`\
 https://nytimes.com/2023/08/06/opinion/letters/woman-teenagers-viral-video.html?searchResultPosition=1
 
-**For Megan Rapinoe, an End Not Even She Could Have Imagined**\
-`A missed penalty kick was cruel way to draw the curtain on a star’s World Cup career. But her influence and her legacy were never about soccer alone.`\
+**For Megan Rapinoe, an Ending Not Even She Could Have Imagined**\
+`A missed penalty kick was a cruel way to draw down the curtain on a star’s World Cup career. But her influence and legacy were never about soccer alone.`\
 https://nytimes.com/2023/08/06/sports/soccer/megan-rapinoe-womens-world-cup.html?searchResultPosition=2
 
 **A Lush, Buttery, Perfect Peach Crisp**\
