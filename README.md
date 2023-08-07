@@ -26,7 +26,7 @@ https://nytimes.com/2023/08/07/briefing/desantis-republican-economics.html?searc
 `The Motherland Monument — a 335-foot-tall stainless steel behemoth towering over Ukraine’s capital — was unveiled in 1981 and designed to assert Soviet invincibility.`\
 https://nytimes.com/2023/08/07/world/europe/ukraine-motherland-statue-soviet-symbol.html?searchResultPosition=7
 
-**South Korea Tells Scouts to Quit World Jamboree Site as Typhoon Nears**\
+**South Korea Tells Scouts to Leave World Jamboree Site as Typhoon Nears**\
 `The main campsite for the troubled gathering will be packed up and thousands of scouts will disperse across the country until the event ends on Saturday.`\
 https://nytimes.com/2023/08/07/world/asia/world-scout-jamboree-south-korea-typhoon.html?searchResultPosition=8
 
