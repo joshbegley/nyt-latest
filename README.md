@@ -1,4 +1,4 @@
-**Paramount Agrees to Sell Simon and Schuster to KKR, a Private Equity Firm**\
+**Paramount Agrees to Sell Simon & Schuster to KKR, a Private Equity Firm**\
 `The deal, for $1.62 billion, will put control of a cultural touchstone in the hands of a financial buyer.`\
 https://nytimes.com/2023/08/07/books/booksupdate/paramount-simon-and-schuster-kkr-sale.html?searchResultPosition=1
 
