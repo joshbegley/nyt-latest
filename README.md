@@ -1,6 +1,6 @@
 **Ex-F.B.I. Official in Talks to Resolve Charges of Working for Oligarch**\
 `Once the F.B.I.’s top counterintelligence official in New York City, Charles F. McGonigal was charged with concealing contacts with foreign nationals.`\
-https://nytimes.com/2023/08/07/nyregion/ex-fbi-official-in-talks-to-resolve-charges-of-working-for-oligarch.html?searchResultPosition=1
+https://nytimes.com/2023/08/07/nyregion/charles-mcgonigal-fbi-criminal-charges.html?searchResultPosition=1
 
 **A Trucking Giant Is Bankrupt, and Finger-Pointing Begins**\
 `Yellow, which received billions in federal pandemic aid, failed after being a laggard for years in a part of the industry where rivals are doing well.`\
