@@ -2,7 +2,7 @@
 `The idea that the United States was eliminated from the Women’s World Cup by a millimeter is an illusion. Denying that will only guarantee more failures.`\
 https://nytimes.com/2023/08/07/sports/soccer/uswnt-sweden-rapinoe.html?searchResultPosition=1
 
-**After Turbulence in China’s Military, Xi to Redouble Quest for Control**\
+**Xi Remade China’s Military to His Liking. Now a Purge Threatens Its Image.**\
 `Xi Jinping, China’s leader, set out to clean up the military a decade ago. But now his crown jewel, the missile force, is under a shadow.`\
 https://nytimes.com/2023/08/07/world/asia/china-nuclear-military-xi.html?searchResultPosition=2
 
