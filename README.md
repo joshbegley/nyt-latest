@@ -14,8 +14,8 @@ https://nytimes.com/2023/08/07/sports/baseball/baltimore-orioles.html?searchResu
 `Also, South Korea relocates an international scout convention as a typhoon looms.`\
 https://nytimes.com/2023/08/07/world/asia/china-general-rocket-force-xi-asia.html?searchResultPosition=4
 
-**Mimicking Trump, G.O.P. Contenders Feed Voter Distrust in Institutions**\
-`As Donald J. Trump has escalated his attacks on the justice system and the “deep state,” his competitors for the Republican nomination have followed his lead.`\
+**G.O.P. Contenders Feed Voter Distrust in Courts, Schools and Military**\
+`As Donald J. Trump has escalated his attacks on the justice system and other core institutions, his competitors for the Republican nomination have followed his lead.`\
 https://nytimes.com/2023/08/07/us/politics/trump-republican-primary-candidate-trust.html?searchResultPosition=5
 
 **William Friedkin’s Final Film to Premiere at the Venice Film Festival**\
