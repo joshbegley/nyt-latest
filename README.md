@@ -10,8 +10,8 @@ https://nytimes.com/2023/08/07/travel/southwest-airlines-lawsuit-racial-profilin
 `The first woman to be named executive director of Consumers Union, the publisher of Consumer Reports, she expanded its readership and its influence in Washington.`\
 https://nytimes.com/2023/08/07/business/rhoda-karpatkin-dead.html?searchResultPosition=3
 
-**Russia attacked civilians, then rescue crews, in double strikes in eastern Ukraine, officials said.**\
-`By Anushka Patil`\
+**Ukraine Says Russian Missiles Struck Town of Pokrovsk, Killing 5**\
+`The strikes hit the center of the small city in eastern Ukraine twice within 40 minutes, officials said. At least 31 people were injured.`\
 https://nytimes.com/2023/08/07/world/europe/russia-missile-strikes-ukraine-pokrovsk.html?searchResultPosition=4
 
 **Russian Strikes Kill Several in Eastern Ukraine**\
