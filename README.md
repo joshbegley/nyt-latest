@@ -6,8 +6,8 @@ https://nytimes.com/2023/08/07/movies/neil-breen-films.html?searchResultPosition
 `Entries for the week of July 31, 2023.`\
 https://nytimes.com/2023/08/07/crosswords/diary-of-a-spelling-bee-fanatic.html?searchResultPosition=2
 
-**‘Funny Girl’ Recoups on Broadway**\
-`The show, which opened in the spring of 2022, has had a remarkable box office turnaround after Lea Michele replaced its original star.`\
+**Lifted by Lea Michele, ‘Funny Girl’ Recoups on Broadway**\
+`The show, which opened in the spring of 2022, has had a remarkable box office turnaround after Michele replaced its original star.`\
 https://nytimes.com/2023/08/07/theater/funny-girl-broadway-recoupment.html?searchResultPosition=3
 
 **Why So Many Los Angeles Landmarks Are Turning 100 This Year**\
