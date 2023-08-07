@@ -11,7 +11,7 @@ https://nytimes.com/2023/08/07/books/booksupdate/paramount-simon-and-schuster-kk
 https://nytimes.com/2023/08/07/dining/new-york-food-festival-spiedie-sandwich.html?searchResultPosition=3
 
 **A Quaint French Bookstore, a Vicious Dog and a Dead Toy Poodle**\
-`An Upper East Side bookstore was known for its children’s books and its unfriendly dogs, who neighbors say often attacked other pets.`\
+`An Upper East Side bookstore was known for its children’s books and for Syko the German shepherd, who often attacked other pets.`\
 https://nytimes.com/2023/08/07/nyregion/nyc-bookstore-dog-attack.html?searchResultPosition=4
 
 **The Wide World of Puppetry Converges on New York**\
