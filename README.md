@@ -1,14 +1,14 @@
+**Lifted by Lea Michele, ‘Funny Girl’ Recoups on Broadway**\
+`The show, which opened in the spring of 2022, has had a remarkable box office turnaround after Michele replaced its original star.`\
+https://nytimes.com/2023/08/07/theater/funny-girl-broadway-recoupment.html?searchResultPosition=1
+
 **What Distinguishes a Neil Breen Film? Neil Breen.**\
 `The producer, writer, director and star has made five imaginative, bewildering low-budget paranormal thrillers, spurring both ridicule and awe.`\
-https://nytimes.com/2023/08/07/movies/neil-breen-films.html?searchResultPosition=1
+https://nytimes.com/2023/08/07/movies/neil-breen-films.html?searchResultPosition=2
 
 **Diary of a Spelling Bee Fanatic**\
 `Entries for the week of July 31, 2023.`\
-https://nytimes.com/2023/08/07/crosswords/diary-of-a-spelling-bee-fanatic.html?searchResultPosition=2
-
-**Lifted by Lea Michele, ‘Funny Girl’ Recoups on Broadway**\
-`The show, which opened in the spring of 2022, has had a remarkable box office turnaround after Michele replaced its original star.`\
-https://nytimes.com/2023/08/07/theater/funny-girl-broadway-recoupment.html?searchResultPosition=3
+https://nytimes.com/2023/08/07/crosswords/diary-of-a-spelling-bee-fanatic.html?searchResultPosition=3
 
 **Why So Many Los Angeles Landmarks Are Turning 100 This Year**\
 `The Hollywood sign, the Memorial Coliseum and more are celebrating centennials.`\
