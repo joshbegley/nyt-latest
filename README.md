@@ -1,6 +1,6 @@
 **Airports ground flights across the Eastern U.S. because of the severe weather threat.**\
-`By Jesus Jiménez`\
-https://nytimes.com/2023/08/07/us/airports-ground-flights-across-the-eastern-us-because-of-the-severe-weather-threat.html?searchResultPosition=1
+`The groundings caused a ripple effect of delays across the country.`\
+https://nytimes.com/2023/08/07/us/flight-delays-cancellations-storms-weather.html?searchResultPosition=1
 
 **Ex-F.B.I. Official in Talks to Resolve Charges of Working for Oligarch**\
 `Once the F.B.I.’s top counterintelligence official in New York City, Charles F. McGonigal was charged with concealing contacts with foreign nationals.`\
