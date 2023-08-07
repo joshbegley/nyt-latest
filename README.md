@@ -1,40 +1,40 @@
-**A Fed Official Wonders: ‘Do We Need to Do Another Rate Increase?’**\
-`The head of the powerful New York Fed said that it was an “open question,” and that rates could fall next year.`\
-https://nytimes.com/2023/08/07/business/economy/john-williams-fed-interest-rates.html?searchResultPosition=1
+**‘It’s Not a Sprint,’ Ukraine’s Marines Insist. ‘It’s a Marathon.’**\
+`Journalists from The Times spent two weeks with troops from brigades trained and supplied by NATO to get their take on how, and where, the counteroffensive is going.`\
+https://nytimes.com/2023/08/07/world/europe/ukraine-marines-counteroffensive.html?searchResultPosition=1
 
-**The New York Fed President Sees Interest Rates Coming Down With Inflation**\
-`In a wide-ranging interview with The New York Times, John C. Williams pondered the economy’s future. This is the full transcript.`\
-https://nytimes.com/2023/08/07/business/economy/john-williams-new-york-fed-transcript.html?searchResultPosition=2
+**The Rally-Around-Trump Effect**\
+`Mr. Trump is unlikely to be taken down by the very authorities he says are corrupt and arrayed against him.`\
+https://nytimes.com/2023/08/07/opinion/trump-indictment-republicans.html?searchResultPosition=2
 
-**Do These Shoes Make Me Look Like a Tourist?**\
-`A reader asks: to sneaker or not to sneaker?`\
-https://nytimes.com/2023/08/07/style/shoes-tourist-vacation.html?searchResultPosition=3
+**The Greatest Show in Nashville Is Happening in the Sky**\
+`Too often conflicts with wildlife end in the death of inconvenient animals that are only trying to live out their lives.`\
+https://nytimes.com/2023/08/07/opinion/purple-martins-birds-nashville.html?searchResultPosition=3
 
-**A Tiny Gap Reveals a Yawning One for the U.S. Women’s Team**\
-`The idea that the United States was eliminated from the Women’s World Cup by a millimeter is an illusion. Denying that will only guarantee more failures.`\
-https://nytimes.com/2023/08/07/sports/soccer/uswnt-sweden-rapinoe.html?searchResultPosition=4
+**Is Social Justice for the Birds? Audubon Attempts an Answer.**\
+`A battle over the group namesake’s ties to slavery grew into a conflict over diversity, highlighting complications that have arisen in the aftermath of George Floyd’s death.`\
+https://nytimes.com/2023/08/07/us/audubon-society-birding-racism.html?searchResultPosition=4
 
-**Xi Remade China’s Military to His Liking. Now a Purge Threatens Its Image.**\
-`Xi Jinping, China’s leader, set out to clean up the military a decade ago. But now his crown jewel, the missile force, is under a shadow.`\
-https://nytimes.com/2023/08/07/world/asia/china-nuclear-military-xi.html?searchResultPosition=5
+**5 Wellness Trends to Watch**\
+`A look back at pills, products and practices that popped up in the first half of this year.`\
+https://nytimes.com/2023/08/07/well/live/wellness-trends-2023.html?searchResultPosition=5
 
-**In War on Congestion Pricing, Governor Turns to Courts and Trash Talk**\
-`A lawsuit that Gov. Philip Murphy of New Jersey has filed against New York’s congestion pricing plan has reignited a border war and led to charges of hypocrisy.`\
-https://nytimes.com/2023/08/07/nyregion/congestion-pricing-phil-murphy-new-jersey.html?searchResultPosition=6
+**Seeking Love, With Help From the City Government**\
+`Singles are signing up in droves for city-hosted blind-dating events, but some point to their inability to address real issues with family planning.`\
+https://nytimes.com/2023/08/07/world/asia/south-korea-city-matchmaker.html?searchResultPosition=6
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/08/07/crosswords/spelling-bee-forum.html?searchResultPosition=7
+**Native Americans Caught in Border Strife on Their Own Land**\
+`The killing of an Arizona tribal member by border agents has stirred up long-running resentments.`\
+https://nytimes.com/2023/08/07/us/border-patrol-killing-raymond-mattia.html?searchResultPosition=7
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/08/07/crosswords/wordle-review-answer-779.html?searchResultPosition=8
+**If Mike Pence Is a Big Hero, We’re in Big Trouble**\
+`Maybe Chris Christie can redeem himself, though.`\
+https://nytimes.com/2023/08/07/opinion/trump-indictment-pence-congress.html?searchResultPosition=8
 
-**Word of the Day: aptitude**\
-`This word has appeared in 40 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/08/07/learning/word-of-the-day-aptitude.html?searchResultPosition=9
+**After a Long and Painful Absence, Writing Her Way Home Again**\
+`After early success with her first book, Mona Susan Power sank into years of depression. A new one, “A Council of Dolls,” offered her a chance to heal.`\
+https://nytimes.com/2023/08/07/books/mona-susan-power-council-of-dolls-indigenous-book.html?searchResultPosition=9
 
-**In Iowa, the Cattle Calls. And Republican Candidates Look to Answer.**\
-`Every four years, politicians flock to Iowa to prove their mettle. It’s different in the Trump era.`\
-https://nytimes.com/2023/08/07/us/politics/republican-primary-2024-iowa.html?searchResultPosition=10
+**Microgrids Are Giving Power to the People**\
+`Around the country, developers are building energy-resilient communities that act as their own miniature power grids.`\
+https://nytimes.com/2023/08/07/realestate/microgrid-solar-power-energy.html?searchResultPosition=10
 
