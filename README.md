@@ -1,5 +1,5 @@
 **Mayor Adams and New York’s Immigration Crisis**\
-`Clashing assessment of the city’s approach. Also: Donald Trump’s threat on social media; a Republican climate plan; children of elite soccer moms.`\
+`Clashing assessments of the city’s approach. Also: Donald Trump’s threat on social media; a Republican climate plan; children of elite soccer moms.`\
 https://nytimes.com/2023/08/07/opinion/letters/eric-adams-immigration-new-york.html?searchResultPosition=1
 
 **What to Know About Prosecutors’ Request for Protective Order in Jan. 6 Case**\
