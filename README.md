@@ -1,5 +1,5 @@
-**This Ancient Reptile Had Something in Common With Whales**\
-`The creature’s surprising anatomy suggests that rapid and unusual evolution was occurring in the seas after a period known as “The Great Dying.”`\
+**First Came ‘the Great Dying,’ Then This Strange Reptile Evolved**\
+`The creature’s surprising anatomy suggests that rapid and unusual evolution was occurring in the seas after a period of massive extinction.`\
 https://nytimes.com/2023/08/07/science/filter-feeding-reptile-whale.html?searchResultPosition=1
 
 **Trump Cheers the Defeat of Rapinoe and the U.S. Women’s Soccer Team**\
