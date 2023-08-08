@@ -11,7 +11,7 @@ https://nytimes.com/2023/08/08/nyregion/drug-overdoses-supervised-consumption-ny
 https://nytimes.com/2023/08/08/dining/restaurant-four-day-workweek.html?searchResultPosition=3
 
 **DeSantis Replaces Campaign Manager in Major Shake-Up**\
-`As Ron DeSantis tries to put his campaign back on track, he is replacing Generra Peck with James Uthmeier, one of the most trusted aides in the governor’s office.`\
+`In another effort to put his struggling campaign back on track, Ron DeSantis is replacing Generra Peck with James Uthmeier, one of the most trusted aides in the governor’s office.`\
 https://nytimes.com/2023/08/08/us/politics/desantis-campaign-manager-generra-peck.html?searchResultPosition=4
 
 **Five Weeknight Tomato Dishes**\
