@@ -26,7 +26,7 @@ https://nytimes.com/2023/08/08/us/politics/kerik-giuliani-trump-jan-6.html?searc
 `The Canadian rapper, who was found guilty last year, shot her several times in the feet during an argument about their music careers and relationships.`\
 https://nytimes.com/2023/08/08/arts/tory-lanez-megan-thee-stallion-sentence.html?searchResultPosition=7
 
-**Soldier Who Called Out Torture in Iraq Is Laid to Rest at Arlington Cemetery**\
+**Soldier Who Called Out Torture in Iraq Is Laid to Rest at Arlington**\
 `Ian Fishback, who left the Army with the rank of major, was a dissident-in-uniform who died at the age of 42 after entering a dizzying mental health spiral.`\
 https://nytimes.com/2023/08/08/us/ian-fishback-army-burial-arlington-cemetery.html?searchResultPosition=8
 
