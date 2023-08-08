@@ -1,5 +1,5 @@
 **Cleanup Begins After Severe Storms Tear Through Eastern U.S.**\
-`Air travel was slowly returning to normal, as thousands of homes and business remained without power. The powerful storm system moved on to New England, bringing heavy rains and floods.`\
+`Air travel was slowly returning to normal, as thousands of homes and businesses remained without power. The powerful storm system moved on to New England, bringing heavy rains and floods.`\
 https://nytimes.com/2023/08/08/us/us-severe-storms-damage.html?searchResultPosition=1
 
 **Back in Black and White: It’s the Hives**\
