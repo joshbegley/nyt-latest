@@ -6,8 +6,8 @@ https://nytimes.com/2023/08/08/business/china-economy-exports.html?searchResultP
 `Aaron Kim, 16, writes about what happened when he put advice from a Well article about staycations to the test.`\
 https://nytimes.com/2023/08/08/learning/making-summer-special-the-week-7-winner-of-our-summer-reading-contest.html?searchResultPosition=2
 
-**Nigeria’s players have enlisted help to ensure they get paid.**\
-`By Andrew Das`\
+**Nigeria’s Players Have Enlisted Help to Ensure They Get Paid**\
+`Some of the overdue pay claims, the team said, go back more than two years.`\
 https://nytimes.com/2023/08/08/sports/soccer/nigerias-players-have-enlisted-help-to-ensure-they-get-paid.html?searchResultPosition=3
 
 **Justin Simien on Releasing ‘Haunted Mansion’ in the Midst of a Strike**\
