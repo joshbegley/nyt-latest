@@ -14,7 +14,7 @@ https://nytimes.com/2023/08/08/pageoneplus/quotation-of-the-day-crypto-concept-h
 `The mayor has attended flag-raising ceremonies for more than 30 countries. It’s all about the art of getting votes.`\
 https://nytimes.com/2023/08/08/nyregion/why-eric-adams-likes-to-raise-flags.html?searchResultPosition=4
 
-**Extreme Weather Is Coming. Someone Has To Tell The Chimps.**\
+**Extreme Weather Is Coming. Someone Has to Tell the Chimps.**\
 `How do you teach 300 chimpanzees to seek safety in a storm? With cowbells, sound machines and a bright orange Frisbee.`\
 https://nytimes.com/2023/08/08/science/extreme-weather-chimpanzees.html?searchResultPosition=5
 
