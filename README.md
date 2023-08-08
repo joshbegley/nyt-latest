@@ -1,4 +1,4 @@
-**Twist in Dancer’s Killing as Key Detail About Suspect Is Challenged**\
+**Twist in Dancer’s Killing as Key Detail About Suspect Is Corrected**\
 `When O’Shae Sibley was killed, initial reports said that his attacker was Muslim, and officials feared that relations between gay people and Muslims in New York could be affected.`\
 https://nytimes.com/2023/08/08/nyregion/oshae-sibley-stabbing-suspect-dimitry-popov.html?searchResultPosition=1
 
