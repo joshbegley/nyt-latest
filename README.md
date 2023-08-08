@@ -26,15 +26,15 @@ https://nytimes.com/2023/08/08/fashion/watches-mbandf-stephen-mcdonnell-chronogr
 `The story of hip-hop can be told through the stunning and surreal evolution of the jewelry the artists wear.`\
 https://nytimes.com/2023/08/08/magazine/bling-hip-hop.html?searchResultPosition=7
 
+**An Oil-Rich Ally Tests Its Relationship With the U.S.**\
+`The United Arab Emirates, which has translated its wealth into outsize global influence, is diverging from U.S. foreign policy — particularly when it comes to isolating Russia and limiting ties with China.`\
+https://nytimes.com/2023/08/08/world/middleeast/uae-russia-china-us.html?searchResultPosition=8
+
 **From the Women’s World Cup to Wimbledon, a Victory Everyone Can Share**\
 `Across sports, female athletes are fighting a battle over what they put on their bodies and how much of those bodies they display.`\
-https://nytimes.com/2023/08/08/style/womens-sports-uniforms-change.html?searchResultPosition=8
+https://nytimes.com/2023/08/08/style/womens-sports-uniforms-change.html?searchResultPosition=9
 
 **The Magic of Block Party Season**\
 `During the dog days of summer in New York, city dwellers gather in the streets to celebrate community and fun.`\
-https://nytimes.com/2023/08/08/arts/summer-block-party-nyc.html?searchResultPosition=9
-
-**An Oil-Rich Ally Tests Its Relationship With the U.S.**\
-`The United Arab Emirates, which has translated its wealth into outsize global influence, is diverging from U.S. foreign policy — particularly when it comes to isolating Russia and limiting ties with China.`\
-https://nytimes.com/2023/08/08/world/middleeast/uae-russia-china-us.html?searchResultPosition=10
+https://nytimes.com/2023/08/08/arts/summer-block-party-nyc.html?searchResultPosition=10
 
