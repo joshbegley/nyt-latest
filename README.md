@@ -11,7 +11,7 @@ https://nytimes.com/2023/08/08/style/corporate-journaling-workshops.html?searchR
 https://nytimes.com/2023/08/08/us/alaska-juneau-flooding.html?searchResultPosition=3
 
 **An Overdose Prevention Center Faces Legal Scrutiny**\
-`A nonprofit said it has stopped 1,000 overdoses. A federal law enforcement official said he is eyeing its methods, which are against the law.`\
+`A nonprofit said it had stopped 1,000 overdoses. A federal law enforcement official said he was eyeing its methods, which are against the law.`\
 https://nytimes.com/2023/08/08/nyregion/drug-overdoses-supervised-consumption-nyc.html?searchResultPosition=4
 
 **Can the Dream of the Four-Day Workweek Start With Restaurants?**\
