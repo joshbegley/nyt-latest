@@ -1,5 +1,5 @@
 **Georgia’s Trump case looms**\
-`Tonight, Tonight, stream one these William Friedkin films.`\
+`Tonight, stream one these William Friedkin films.`\
 https://nytimes.com/2023/08/08/briefing/trump-georgia-storms-blacksea-wegovy.html?searchResultPosition=1
 
 **Amazon Countries, Led by Brazil, Sign a Rainforest Pact**\
