@@ -1,4 +1,4 @@
-**DeSantis Replaces Campaign Manager in Latest Shake-Up**\
+**DeSantis Replaces Campaign Manager in Major Shake-Up**\
 `As Ron DeSantis tries to put his campaign back on track, he is replacing Generra Peck with James Uthmeier, one of the most trusted aides in the governor’s office.`\
 https://nytimes.com/2023/08/08/us/politics/desantis-campaign-manager-generra-peck.html?searchResultPosition=1
 
