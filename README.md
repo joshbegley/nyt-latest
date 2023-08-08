@@ -3,7 +3,7 @@
 https://nytimes.com/2023/08/08/science/crocodiles-crying-babies.html?searchResultPosition=1
 
 **A Missile Strikes the Heart of a Ukrainian City — and Then Another**\
-`Ukrainians say the explosions 37 minutes apart in Pokrovsk, which killed at least seven and injured 82 others, were a “double tap” intended to kill rescuers responding to the first strike.`\
+`Ukrainians say the explosions 37 minutes apart in Pokrovsk, which killed at least nine people and injured 82 others, were a “double tap” intended to kill rescuers responding to the first strike.`\
 https://nytimes.com/2023/08/08/world/europe/russia-ukraine-pokrovsk-missiles.html?searchResultPosition=2
 
 **The ‘Never-Again Trumper’ Sham**\
