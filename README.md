@@ -1,40 +1,40 @@
+**Vape-Related Exposures Among Children Are Increasing**\
+`Here’s how to keep kids safe from potentially toxic e-liquid nicotine.`\
+https://nytimes.com/2023/08/08/well/family/vape-exposures-children-nicotine-poisoning.html?searchResultPosition=1
+
+**Why Are Groceries So Expensive?**\
+`We may shop locally, but on prices you have to think global.`\
+https://nytimes.com/2023/08/08/opinion/inflation-us-groceries-economy.html?searchResultPosition=2
+
 **The Long, Long Reign of ‘Big Brother’**\
 `Now entering its 25th season, the reality TV staple has weathered controversy and continues to endure by remaining true to its evergreen formula.`\
-https://nytimes.com/2023/08/08/arts/television/big-brother-season-25.html?searchResultPosition=1
+https://nytimes.com/2023/08/08/arts/television/big-brother-season-25.html?searchResultPosition=3
 
 **Life After the Lab**\
 `For the residents of Chimp Haven, retirement is bananas.`\
-https://nytimes.com/interactive/2023/08/08/science/chimp-haven-retirement.html?searchResultPosition=2
+https://nytimes.com/interactive/2023/08/08/science/chimp-haven-retirement.html?searchResultPosition=4
 
 **Supreme Court Revives Biden’s Regulation of ‘Ghost Guns’**\
 `The president’s administration, citing a rise in violence involving untraced firearms, had asked the justices to step in. The court provisionally allowed the regulation while a challenge moves forward.`\
-https://nytimes.com/2023/08/08/us/supreme-court-biden-ghost-guns.html?searchResultPosition=3
+https://nytimes.com/2023/08/08/us/supreme-court-biden-ghost-guns.html?searchResultPosition=5
 
 **Deadly Thunderstorms Batter Eastern U.S.**\
 `Severe storms brought down trees, power lines and damaged homes across a stretch of states from Georgia to New York.`\
-https://nytimes.com/video/us/100000009031564/thunderstorms-eastern-us-weather.html?searchResultPosition=4
+https://nytimes.com/video/us/100000009031564/thunderstorms-eastern-us-weather.html?searchResultPosition=6
 
 **A New Bazaar From José Andrés Opens in NoMad**\
 `The Spanish chef combines dishes from his homeland with Japanese cooking techniques for this NoMad restaurant and more food news.`\
-https://nytimes.com/2023/08/08/dining/bazaar-jose-andres-nyc-restaurant-news.html?searchResultPosition=5
+https://nytimes.com/2023/08/08/dining/bazaar-jose-andres-nyc-restaurant-news.html?searchResultPosition=7
 
 **Covid Didn’t Take a Summer Vacation**\
 `Many people don’t want to think about the virus, but an increase in cases means it’s time for a refresher on how to protect yourself and others.`\
-https://nytimes.com/2023/08/08/well/live/covid-summer-surge.html?searchResultPosition=6
+https://nytimes.com/2023/08/08/well/live/covid-summer-surge.html?searchResultPosition=8
 
 **When the Scientific Method Is an Accessory to Murder**\
 `In Stephen Kearse’s new novel, “Liquid Snakes,” two epidemiologists race to stop a grieving biochemist who has been killing people after the stillborn death of his daughter.`\
-https://nytimes.com/2023/08/08/books/review/liquid-snakes-stephen-kearse.html?searchResultPosition=7
+https://nytimes.com/2023/08/08/books/review/liquid-snakes-stephen-kearse.html?searchResultPosition=9
 
 **Transcript: Jane Coaston interviews Ben Domenech**\
 `The Aug. 8, 2023, episode of “The Ezra Klein Show.”`\
-https://nytimes.com/2023/08/08/podcasts/transcript-jane-coaston-interviews-ben-domenech.html?searchResultPosition=8
-
-**Taiwan’s Chip Giant Will Build a Plant in Germany**\
-`TSMC, the world’s largest maker of semiconductors, said it would invest $3.8 billion in a joint project with three German industrial firms.`\
-https://nytimes.com/2023/08/08/world/europe/tsmc-germany-chips-semiconductors.html?searchResultPosition=9
-
-**Trying to Process Your Q3? Journal About It.**\
-`Laura Rubin, a journaling coach, believes there’s a group that is in desperate need of her services: corporate America.`\
-https://nytimes.com/2023/08/08/style/corporate-journaling-workshops.html?searchResultPosition=10
+https://nytimes.com/2023/08/08/podcasts/transcript-jane-coaston-interviews-ben-domenech.html?searchResultPosition=10
 
