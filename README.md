@@ -11,7 +11,7 @@ https://nytimes.com/2023/08/08/us/california-love-letters.html?searchResultPosit
 https://nytimes.com/2023/08/08/business/energy-environment/gm-backup-electric-power.html?searchResultPosition=3
 
 **Rockaway Beach Closed After Woman Is Bitten by a Shark**\
-`Officials said that there had been no reports of shark bites on Rockaway Beach “in recent memory” before the attack Monday afternoon.`\
+`Officials said that before the attack Monday afternoon, there had been no reports of shark bites at Rockaway Beach “in recent memory.”`\
 https://nytimes.com/2023/08/08/nyregion/rockaway-beach-closed-shark-attack.html?searchResultPosition=4
 
 **Goldman Sachs’s C.E.O. Whisperer Takes a Step Back**\
