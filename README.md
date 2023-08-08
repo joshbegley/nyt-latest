@@ -1,4 +1,4 @@
-**Ian Fishback, Who Called Out Torture in Iraq, is Laid to Rest at Arlington National Cemetery**\
+**Ian Fishback, Who Called Out Torture in Iraq, Is Laid to Rest at Arlington National Cemetery**\
 `Mr. Fishback, who left the Army with the rank of major, was a dissident-in-uniform who died at the age of 42 after entering a dizzying mental health spiral.`\
 https://nytimes.com/2023/08/08/us/ian-fishback-army-burial-arlington-cemetery.html?searchResultPosition=1
 
