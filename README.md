@@ -15,7 +15,7 @@ https://nytimes.com/2023/08/08/briefing/ohio-election.html?searchResultPosition=
 https://nytimes.com/2023/08/08/arts/design/switzerland-museum-cashier-theft.html?searchResultPosition=4
 
 **Man Is Wounded in Knife Attack Outside British Museum in London**\
-`A suspect has been arrested, the police said, adding that the stabbing appeared to be an isolated incident.`\
+`The stabbing outside the popular tourist attraction appeared to be an isolated incident, the police said. A suspect has been arrested.`\
 https://nytimes.com/2023/08/08/world/europe/british-museum-stabbing-uk.html?searchResultPosition=5
 
 **The Legal Strategy Behind the Latest Trump Indictment**\
