@@ -4,7 +4,7 @@ https://nytimes.com/2023/08/08/us/politics/desantis-campaign-manager-generra-pec
 
 **Five Weeknight Tomato Dishes**\
 `Burst in a coconut-ginger sauce for fish, stir-fried with basil and eggs in fried rice and grated into garlicky pasta.`\
-https://nytimes.com/2023/08/08/dining/five-weeknight-tomato-dishes.html?searchResultPosition=2
+https://nytimes.com/2023/08/08/dining/weeknight-tomato-recipes.html?searchResultPosition=2
 
 **Banks Fined $549 Million Over Use of WhatsApp and Other Messaging Apps**\
 `The penalties add to nearly $2 billion in record-keeping fines last year for the improper policing of employee communications on private messaging services.`\
