@@ -1,40 +1,40 @@
-**Control**\
-`A Northern Irish man’s relationship with a peregrine falcon reveals a personal history of torture during the Troubles.`\
-https://nytimes.com/video/opinion/100000008463563/control.html?searchResultPosition=1
+**A Brief History of Bling**\
+`The story of hip-hop can be told through the stunning and surreal evolution of the jewelry the artists wear.`\
+https://nytimes.com/2023/08/08/magazine/bling-hip-hop.html?searchResultPosition=1
 
-**Ireland Says Goodbye to Sinéad O’Connor**\
-`In the coastal town of Bray, south of Dublin, the site of Ms. O’Connor’s last Irish home, mourners prepared to pay their last respects to the singer.`\
-https://nytimes.com/2023/08/08/world/europe/sinead-oconnor-funeral-ireland.html?searchResultPosition=2
+**From the Women’s World Cup to Wimbledon, a Victory Everyone Can Share**\
+`Across sports, female athletes are fighting a battle over what they put on their bodies and how much of those bodies they display.`\
+https://nytimes.com/2023/08/08/style/womens-sports-uniforms-change.html?searchResultPosition=2
 
-**Under a Hellish Ocean Habitat, Bizarre Animals Are Lurking**\
-`For the first time, scientists observed tubeworms and other complex ocean creatures dwelling beneath hydrothermal vents.`\
-https://nytimes.com/2023/08/08/science/hydrothermal-vent-animals.html?searchResultPosition=3
+**The Magic of Block Party Season**\
+`During the dog days of summer in New York, city dwellers gather in the streets to celebrate community and fun.`\
+https://nytimes.com/2023/08/08/arts/summer-block-party-nyc.html?searchResultPosition=3
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/08/08/crosswords/spelling-bee-forum.html?searchResultPosition=4
+**An Oil-Rich Ally Tests Its Relationship With the U.S.**\
+`The United Arab Emirates, which has translated its wealth into outsize global influence, is diverging from U.S. foreign policy — particularly when it comes to isolating Russia and limiting ties with China.`\
+https://nytimes.com/2023/08/08/world/middleeast/uae-russia-china-us.html?searchResultPosition=4
 
-**How New York Lost and Regained Control of Union Square**\
-`The mayhem touched off by a social media personality’s game console giveaway tested the New York Police Department’s response.`\
-https://nytimes.com/2023/08/08/nyregion/kai-cenat-union-square-nyc-riot.html?searchResultPosition=5
+**Repeat After Her: There Is No Dance Without Dance Education**\
+`Jody Gottfried Arnhold has a mission (and the means) to cultivate dance education. To her, it is a basic human right — and vital to democracy.`\
+https://nytimes.com/2023/08/08/arts/dance/jody-arnhold-dance-education.html?searchResultPosition=5
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/08/08/crosswords/wordle-review-answer-780.html?searchResultPosition=6
+**Judy Holliday’s Old Home in the Village Deserved a Renovation**\
+`He was hoping to find a turnkey apartment in Manhattan, but how could he resist a place with such a sense of history?`\
+https://nytimes.com/2023/08/08/realestate/judy-holliday-west-village-apartment.html?searchResultPosition=6
 
-**Word of the Day: bedraggled**\
-`This word has appeared in 27 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/08/08/learning/word-of-the-day-bedraggled.html?searchResultPosition=7
+**An Apartment With Character in the West Village**\
+`He was hoping to find a turnkey apartment in Manhattan, but how could he resist a place with such a sense of history?`\
+https://nytimes.com/slideshow/2023/08/08/realestate/an-apartment-with-character-in-the-west-village.html?searchResultPosition=7
 
-**Typhoon Khanun Heads Back Toward Japan, With South Korea in Its Path**\
-`The storm, which battered Okinawa last week, made an unusual zigzag move and now threatens the Japanese island of Kyushu.`\
-https://nytimes.com/article/typhoon-khanun-japan-south-korea.html?searchResultPosition=8
+**Why Do I Get Constipated When I Travel?**\
+`Our bowels don’t love vacation as much as we do. But there are ways to keep a blockage from slowing down your trip.`\
+https://nytimes.com/2023/08/08/well/eat/travel-constipation.html?searchResultPosition=8
 
-**Corrections: Aug. 8, 2023**\
-`Corrections that appeared in print on Tuesday, Aug. 8, 2023.`\
-https://nytimes.com/2023/08/08/pageoneplus/corrections-aug-8-2023.html?searchResultPosition=9
+**What You Discover When You Garden at Night**\
+`Daytime heat forced a writer with a green thumb to change her routine. She found unexpected pleasures.`\
+https://nytimes.com/2023/08/08/climate/night-gardening.html?searchResultPosition=9
 
-**Quotation of the Day: Crypto Concept Hopes to Scan 8 Billion Eyes**\
-`Quotation of the Day for Tuesday, August 8, 2023.`\
-https://nytimes.com/2023/08/08/pageoneplus/quotation-of-the-day-crypto-concept-hopes-to-scan-8-billion-eyes.html?searchResultPosition=10
+**What’s at Stake in Ohio’s Referendum on Amending the State Constitution**\
+`The vote could play a big role in the future of abortion rights in Ohio. But it also raises questions about the power of ordinary citizens over elected politicians.`\
+https://nytimes.com/2023/08/08/us/ohio-referendum-constitution-abortion.html?searchResultPosition=10
 
