@@ -26,8 +26,8 @@ https://nytimes.com/2023/08/08/us/california-love-letters.html?searchResultPosit
 `As extreme weather events lead to more power outages, the carmaker said it would equip all its electric vehicles to act as sources of emergency power.`\
 https://nytimes.com/2023/08/08/business/energy-environment/gm-backup-electric-power.html?searchResultPosition=7
 
-**Rockaway Beach Closed After Woman Is Bitten by a Shark**\
-`Officials said that before the attack Monday afternoon, there had been no reports of shark bites at Rockaway Beach “in recent memory.”`\
+**Woman Is Bitten by Shark in First New York City Attack in Recent Years**\
+`Officials said there had been no reports of shark bites at Rockaway Beach “in recent memory” before Monday’s attack.`\
 https://nytimes.com/2023/08/08/nyregion/rockaway-beach-closed-shark-attack.html?searchResultPosition=8
 
 **Goldman Sachs’s C.E.O. Whisperer Takes a Step Back**\
