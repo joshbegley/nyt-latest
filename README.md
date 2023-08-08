@@ -30,8 +30,8 @@ https://nytimes.com/interactive/2023/08/08/us/elections/results-ohio-issue-1.htm
 `The district attorney in Atlanta is expected to take the findings from an election interference investigation to a grand jury, which could issue indictments.`\
 https://nytimes.com/2023/08/08/us/trump-georgia-election-grand-jury.html?searchResultPosition=8
 
-**Michael Boyd, Who Invigorated the Royal Shakespeare Company, Dies at 68**\
-`He is credited with stabilizing that venerable British troupe while energizing it with ambitious projects including “Matilda the Musical.”`\
+**Michael Boyd, 68, Who Invigorated the Royal Shakespeare Company, Dies**\
+`He is credited with stabilizing that venerable British troupe while energizing it with ambitious projects, including Broadway’s “Matilda the Musical.”`\
 https://nytimes.com/2023/08/08/theater/michael-boyd-dead.html?searchResultPosition=9
 
 **Tiny Love Stories: ‘Take a Bath With Me’**\
