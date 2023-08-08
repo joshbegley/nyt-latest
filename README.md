@@ -7,7 +7,7 @@ https://nytimes.com/2023/08/08/arts/television/big-brother-season-25.html?search
 https://nytimes.com/interactive/2023/08/08/science/chimp-haven-retirement.html?searchResultPosition=2
 
 **Supreme Court Revives Biden’s Regulation of ‘Ghost Guns’**\
-`The president’s administration, citing a rise in violence involving untraced firearms, asked the justices to step in. The court provisionally allowed the regulation while a challenge moves forward.`\
+`The president’s administration, citing a rise in violence involving untraced firearms, had asked the justices to step in. The court provisionally allowed the regulation while a challenge moves forward.`\
 https://nytimes.com/2023/08/08/us/supreme-court-biden-ghost-guns.html?searchResultPosition=3
 
 **Deadly Thunderstorms Batter Eastern U.S.**\
