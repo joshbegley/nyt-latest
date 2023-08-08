@@ -22,7 +22,7 @@ https://nytimes.com/2023/08/08/style/corporate-journaling-workshops.html?searchR
 `A river that winds through the state capital of Alaska was overflowing with runoff from the Mendenhall Glacier over the weekend.`\
 https://nytimes.com/2023/08/08/us/alaska-juneau-flooding.html?searchResultPosition=6
 
-**An Overdose Prevention Center Faces Legal Scrutiny**\
+**Federal Officials May Shut Down Overdose Prevention Centers in Manhattan**\
 `A nonprofit said it had stopped 1,000 overdoses. A federal law enforcement official said he was eyeing its methods, which are against the law.`\
 https://nytimes.com/2023/08/08/nyregion/drug-overdoses-supervised-consumption-nyc.html?searchResultPosition=7
 
