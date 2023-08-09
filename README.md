@@ -1,40 +1,40 @@
-**Long Taken for Granted, Frozen Peas Seek a New Appeal in the U.K.**\
-`Britain’s vegetable producers are hoping this is a moment for the humble frozen pea, a cost-effective staple at a time of rising food prices.`\
-https://nytimes.com/2023/08/09/world/europe/uk-peas-frozen.html?searchResultPosition=1
+**On Dates, I Now Look for Climate Compatibility**\
+`If being alive right now sometimes feels like standing on a cliff, I want to be with someone who’s not afraid to peer at the frothing tides.`\
+https://nytimes.com/2023/08/09/opinion/climate-change-dating-okcupid.html?searchResultPosition=1
 
-**Hurricane Dora’s High Winds Fuel Wildfires in Hawaii**\
-`The Category 4 storm was well south of the archipelago, but its winds fanned wildfires that damaged structures and prompted evacuations.`\
-https://nytimes.com/2023/08/09/us/hurricane-dora-hawaii-wildfires.html?searchResultPosition=2
+**The Return of Manual-Wind Watches**\
+`One industry executive describes the old-fashioned way of keeping a watch working as “a moment of contemplation, a moment to take for yourself.”`\
+https://nytimes.com/2023/08/09/fashion/watches-manual-wind-oris.html?searchResultPosition=2
 
-**3 Deaths, and a Host of Questions, After a Family Lunch in Australia**\
-`The three guests, and a fourth who fell ill, had symptoms consistent with mushroom poisoning, the police say. The woman who served the meal has been questioned by the police.`\
-https://nytimes.com/2023/08/09/world/australia/mushroom-poisoning-suspect.html?searchResultPosition=3
+**Ticking the Boxes on a Watch Brand’s 10-Year Plan**\
+`Greubel Forsey has already increased some production and reorganized distribution to safeguard what its chief executive called ‘rarity and exclusivity.’`\
+https://nytimes.com/2023/08/09/fashion/watches-greubel-forsey-switzerland.html?searchResultPosition=3
 
-**How 4 Countries Are Preparing to Bring Stolen Treasures Home**\
-`While attention is focused on western museums and governments giving back looted items, heritage workers in the global south are laying the groundwork for new claims.`\
-https://nytimes.com/2023/08/09/arts/design/restitution-nepal-indonesia-democratic-republic-of-congo-cameroon.html?searchResultPosition=4
+**California Battles Fentanyl With a New Tactic: Treating Addiction in Prison**\
+`In response to soaring overdose deaths in state prisons, California started a sprawling addiction program. But keeping people on medication during and after a sentence can be difficult.`\
+https://nytimes.com/2023/08/09/us/politics/opioid-overdoses-prison-fentanyl-california.html?searchResultPosition=4
 
-**Confusion in Hollywood as Some Productions Are Allowed to Continue**\
-`The striking actors’ union is granting waivers to some projects not affiliated with the major studios, but questions persist about who qualifies and why.`\
-https://nytimes.com/2023/08/09/business/media/sag-waivers-strike.html?searchResultPosition=5
+**A Baseball Trip to Mexico City. But First, a Pilgrimage.**\
+`When in the capital for road games, many Mexican League players join the throngs paying their respects at the Basílica de Santa María de Guadalupe.`\
+https://nytimes.com/2023/08/09/sports/baseball/mexico-basilica-guadalupe.html?searchResultPosition=5
 
-**Union Square Melee Shows an Influencer’s Power Unleashed in Real Life**\
-`Kai Cenat is a perfect example of the new type of celebrity. How did he summon a crowd of thousands to Manhattan last week?`\
-https://nytimes.com/2023/08/09/nyregion/union-square-melee-shows-an-influencers-power-unleashed-in-real-life.html?searchResultPosition=6
+**Jon Batiste Has Got the Whole Wide Music World in His Hands**\
+`The pianist is following his Grammy win with “World Music Radio,” a concept album that challenges genre borders and carries a message of open-armed inclusivity.`\
+https://nytimes.com/2023/08/09/arts/music/jon-batiste-world-music-radio.html?searchResultPosition=6
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/08/09/crosswords/spelling-bee-forum.html?searchResultPosition=7
+**Too Short’s Long (and Very Raunchy) Life in Rap**\
+`The West Coast rapper is an unsung pioneer of some of the genre’s most central elements.`\
+https://nytimes.com/2023/08/09/magazine/too-short-rap.html?searchResultPosition=7
 
-**Word of the Day: soiree**\
-`This word has appeared in 24 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/08/09/learning/word-of-the-day-soiree.html?searchResultPosition=8
+**Two Vintage Clothing Dealers’ Greatest Find: Their House**\
+`The pair behind the boutique Desert Vintage have made a home in an 1860s adobe-brick bungalow in Tucson, Ariz.`\
+https://nytimes.com/2023/08/09/t-magazine/salima-boufelfel-roberto-cowan-tucson-home.html?searchResultPosition=8
 
-**The Concorde Is Taking a Slow Boat to Brooklyn**\
-`The once-glamorous supersonic jet needs a paint job after spending the last 15 years at the Intrepid museum.`\
-https://nytimes.com/2023/08/09/nyregion/concorde-intrepid-paint-job.html?searchResultPosition=9
+**First Scorched, Then Soaked: Weather Whiplash Confounds Farmers**\
+`As the war in Ukraine disrupts the global grain market, a volatile climate leaves Kansas on track to harvest its smallest wheat crop in decades.`\
+https://nytimes.com/2023/08/09/us/kansas-wheat-harvest-drought.html?searchResultPosition=9
 
-**Wednesday Briefing**\
-`A troubled Black Sea.`\
-https://nytimes.com/2023/08/09/briefing/ukraine-black-sea-weather-europe.html?searchResultPosition=10
+**China’s Economy Faces Yet Another Threat: Falling Prices**\
+`A deepening slowdown in the world’s second-biggest economy has now raised fears of deflation, which could be crippling for heavily indebted China.`\
+https://nytimes.com/2023/08/09/business/china-economy-inflation.html?searchResultPosition=10
 
