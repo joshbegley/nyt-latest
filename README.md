@@ -16,7 +16,7 @@ https://nytimes.com/2023/08/09/t-magazine/womens-fall-fashion-pleats-india.html?
 
 **A Winning Streak**\
 `Ballot initiatives appear to be one of the few ways for advocates to expand abortion access in conservative states.`\
-https://nytimes.com/2023/08/09/briefing/a-winning-streak.html?searchResultPosition=5
+https://nytimes.com/2023/08/09/briefing/ohio-election-abortion-rights.html?searchResultPosition=5
 
 **Elon Musk’s Quest to Own the Stars**\
 `Charting the rise and revolutionary promise of Starlink, the billionaire’s satellite internet company.`\
