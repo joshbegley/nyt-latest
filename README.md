@@ -10,7 +10,7 @@ https://nytimes.com/2023/08/09/travel/hawaii-wildfires-travel.html?searchResultP
 `It was the 12th time in the past three weeks that Russian officials had reported intercepting such aerial attacks in the heart of the capital.`\
 https://nytimes.com/2023/08/09/world/europe/russia-drones-moscow-warehouse-explosion.html?searchResultPosition=3
 
-**A Russian missile hits a bedroom community in the city of Zaporizhzia, killing 2.**\
+**A Russian missile hits a bedroom community in the city of Zaporizhzhia, killing 2.**\
 `Officials said seven people were injured, a church building and several local shops were destroyed, and the windows were blown out of several high-rise buildings.`\
 https://nytimes.com/2023/08/09/world/europe/russia-missile-zaporizhzia-ukraine.html?searchResultPosition=4
 
