@@ -7,7 +7,7 @@ https://nytimes.com/2023/08/09/world/americas/haiti-kidnapping-us-nurse-alix-dor
 https://nytimes.com/2023/08/09/world/canada/trudeau-wife-separation-image.html?searchResultPosition=2
 
 **DeSantis Suspends Second Elected Prosecutor in Florida**\
-`The Republican governor accused Monique H. Worrell, the state attorney in Orlando and a Democrat, of leniency against violent criminals, a charge her office has denied.`\
+`The Republican governor accused Monique H. Worrell, the state attorney in Orlando and a Democrat, of leniency toward violent criminals, a charge her office has denied.`\
 https://nytimes.com/2023/08/09/us/desantis-orlando-prosecutor.html?searchResultPosition=3
 
 **Woman Is Sentenced for Stealing Dead Baby’s Identity and $1.5 Million**\
