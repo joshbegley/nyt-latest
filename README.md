@@ -6,7 +6,7 @@ https://nytimes.com/2023/08/09/world/canada/trudeau-wife-separation-image.html?s
 `The Republican governor accused Monique H. Worrell, the state attorney in Orlando and a Democrat, of leniency against violent criminals, a charge her office has denied.`\
 https://nytimes.com/2023/08/09/us/desantis-orlando-prosecutor.html?searchResultPosition=2
 
-**Woman Is Sentenced for Stealing Dead Baby’s Identity and $1.5 Million in Pandemic Relief**\
+**Woman Is Sentenced for Stealing Dead Baby’s Identity and $1.5 Million**\
 `The Ohio woman, Ava Misseldine, used the identity of a baby who died in 1979 to obtain fake IDs. She was sentenced to six years in prison.`\
 https://nytimes.com/2023/08/09/us/ohio-bakery-baby-covid-fraud-sentenced.html?searchResultPosition=3
 
