@@ -1,5 +1,5 @@
 **WM, 51, Separated, Looks to Rekindle Old Bond — With Voters**\
-`Justin Trudeau cultivated the image of a modern husband, father and political figure in his political rise. How does he redefine himself after the breakup of his 18-year marriage?`\
+`Justin Trudeau has portrayed himself as a modern husband, father and political figure in his rise to prime minister. How does he redefine himself after the breakup of his 18-year marriage?`\
 https://nytimes.com/2023/08/09/world/canada/trudeau-wife-separation-image.html?searchResultPosition=1
 
 **DeSantis Suspends Second Elected Prosecutor in Florida**\
