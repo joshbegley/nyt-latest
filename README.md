@@ -34,7 +34,7 @@ https://nytimes.com/2023/08/09/arts/design/wounded-indian-chrysler-museum-boston
 `Plus, Taylor Swift’s dance moves.`\
 https://nytimes.com/2023/08/09/briefing/us-restricts-investment-in-china.html?searchResultPosition=9
 
-**Stressed About Your Step Count? Even 4,000 Can Have Big Health Benefits.**\
+**Even 4,000 Steps a Day Can Have Big Health Benefits.**\
 `But the more you walk, the better off you’ll be.`\
 https://nytimes.com/2023/08/09/well/move/steps-walking-health-benefits.html?searchResultPosition=10
 
