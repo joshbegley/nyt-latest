@@ -3,7 +3,7 @@
 https://nytimes.com/2023/08/09/opinion/montgomery-brawl.html?searchResultPosition=1
 
 **The Barnes Foundation Loosens Its Straitjacket**\
-`A judge allowed the Philadelphia institution to loan paintings from the storied collection of Dr. Albert C. Barnes. It will look and behave a lot more like a global museum.`\
+`A judge allowed the Philadelphia institution to lend paintings from the storied collection of Dr. Albert C. Barnes. It will look and behave a lot more like a global museum.`\
 https://nytimes.com/2023/08/09/arts/design/barnes-foundation-loan-painting-decision.html?searchResultPosition=2
 
 **Rodriguez, Singer Whose Career Was Resurrected, Dies at 81**\
