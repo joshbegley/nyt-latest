@@ -3,7 +3,7 @@
 https://nytimes.com/2023/08/09/us/politics/feinstein-fall-hospitalized.html?searchResultPosition=1
 
 **Why Ohio Voters Said No to Ballot Measure**\
-`In addition to their views on abortion, many who cast ballots in Ohio’s referendum on Tuesday said they were turned off by a sense that the measure’s backers weren’t being honest about its purpose.`\
+`In addition to their views on abortion, many who cast ballots in Ohio’s referendum on Tuesday said they felt the measure’s backers weren’t honest about its purpose.`\
 https://nytimes.com/2023/08/09/us/ohio-voters-issue-1-constitution.html?searchResultPosition=2
 
 **Vacation Home Blaze in France Kills 11**\
