@@ -15,7 +15,7 @@ https://nytimes.com/article/covid-booster-fall.html?searchResultPosition=3
 https://nytimes.com/2023/08/09/business/media/disney-earnings.html?searchResultPosition=4
 
 **Biden Orders Ban on U.S. Investments in China’s Sensitive High-Tech Industries**\
-`The new limits, aimed at preventing American help to Beijing as it modernizes its military, escalates a conflict pitting the world’s two largest economies against each other.`\
+`The new limits, aimed at preventing American help to Beijing as it modernizes its military, escalate a conflict pitting the world’s two largest economies against each other.`\
 https://nytimes.com/2023/08/09/us/politics/biden-ban-china-investment.html?searchResultPosition=5
 
 **De Blasio’s Security Chief Admits Hindering Corruption Investigation**\
