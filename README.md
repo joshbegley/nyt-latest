@@ -10,7 +10,7 @@ https://nytimes.com/2023/08/08/business/economy/biden-china-companies-restrictio
 `The former president, who has made his 2024 campaign principally about his own personal grievances, is attempting to convince supporters to see themselves in him.`\
 https://nytimes.com/2023/08/08/us/politics/trump-indictments-2024-campaign.html?searchResultPosition=3
 
-**Secret Memo Laid Out Strategy for Trump to Overturn Biden’s Win**\
+**Previously Secret Memo Laid Out Strategy for Trump to Overturn Biden’s Win**\
 `The House Jan. 6 committee’s investigation did not uncover the memo, whose existence first came to light in last week’s indictment.`\
 https://nytimes.com/2023/08/08/us/politics/trump-indictment-fake-electors-memo.html?searchResultPosition=4
 
