@@ -1,5 +1,5 @@
-**Doing Business in China Is Getting Harder**\
-`New investment limits by the Biden administration and the exit of a big law firm from the country underscore the growing challenges facing Western companies.`\
+**Lessons From a Law Firm’s Decision to Leave China**\
+`Dentons’ decision to quit the country and new investment limits by the Biden administration underscore the growing challenges facing Western companies there.`\
 https://nytimes.com/2023/08/09/business/dealbook/china-biden-dentons.html?searchResultPosition=1
 
 **98 Arrests in Child Abuse Inquiry That Followed Killing of F.B.I. Agents**\
