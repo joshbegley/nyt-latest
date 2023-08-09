@@ -35,6 +35,6 @@ https://nytimes.com/2023/08/09/world/europe/interpreter-social-media.html?search
 https://nytimes.com/2023/08/09/movies/justin-h-min-shortcomings-beef-umbrella-academy.html?searchResultPosition=9
 
 **Special Counsel Obtained Search Warrant for Trump’s Twitter Account**\
-`The warrant, obtained in January, adds a new dimension to the scope of the federal inquiry into the events of Jan. 6, 2021.`\
+`The warrant, obtained in January, is the first known example of prosecutors directly searching Donald J. Trump’s communications and adds a new dimension to the scope of the federal inquiry into the events of Jan. 6, 2021.`\
 https://nytimes.com/2023/08/09/us/politics/trump-twitter-account-search-warrant.html?searchResultPosition=10
 
