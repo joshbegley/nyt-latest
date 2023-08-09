@@ -1,40 +1,40 @@
+**Distinctive Flair**\
+`Caryn Robbins and Matthew Stock make their collaboration debut.`\
+https://nytimes.com/2023/08/08/crosswords/daily-puzzle-2023-08-09.html?searchResultPosition=1
+
 **Biden to Restrict Investments in China, Citing National Security Threats**\
 `The measure to clamp down on investments in certain industries deemed to pose security risks, set to be issued Wednesday, appears likely to open a new front in the U.S.-China economic conflict.`\
-https://nytimes.com/2023/08/08/business/economy/biden-china-companies-restrictions.html?searchResultPosition=1
+https://nytimes.com/2023/08/08/business/economy/biden-china-companies-restrictions.html?searchResultPosition=2
 
 **Trump Tells Supporters His Criminal Indictments Are About ‘You’**\
 `The former president, who has made his 2024 campaign principally about his own personal grievances, is attempting to convince supporters to see themselves in him.`\
-https://nytimes.com/2023/08/08/us/politics/trump-indictments-2024-campaign.html?searchResultPosition=2
+https://nytimes.com/2023/08/08/us/politics/trump-indictments-2024-campaign.html?searchResultPosition=3
 
 **Secret Memo Laid Out Strategy for Trump to Overturn Biden’s Win**\
 `The House Jan. 6 committee’s investigation did not uncover the memo, whose existence first came to light in last week’s indictment.`\
-https://nytimes.com/2023/08/08/us/politics/trump-indictment-fake-electors-memo.html?searchResultPosition=3
+https://nytimes.com/2023/08/08/us/politics/trump-indictment-fake-electors-memo.html?searchResultPosition=4
 
 **Ohio Voters Reject Constitutional Change Intended to Thwart Abortion Amendment**\
 `The contest was seen as a test of efforts by Republicans nationwide to curb voters’ use of ballot initiatives.`\
-https://nytimes.com/2023/08/08/us/ohio-election-issue-1-results.html?searchResultPosition=4
+https://nytimes.com/2023/08/08/us/ohio-election-issue-1-results.html?searchResultPosition=5
 
 **‘Ghost Guns’: What They Are and Why There’s a Fight Over Them**\
 `A rule regulating the firearm kits was a centerpiece of President Biden’s gun control initiative. The Supreme Court has temporarily revived it, but it has been troubled by significant challenges.`\
-https://nytimes.com/article/what-are-ghost-guns.html?searchResultPosition=5
+https://nytimes.com/article/what-are-ghost-guns.html?searchResultPosition=6
 
 **Twist in Dancer’s Killing as Key Detail About Suspect Is Corrected**\
 `When O’Shae Sibley was killed, initial reports said that his attacker was Muslim, and officials feared that relations between gay people and Muslims in New York could be affected.`\
-https://nytimes.com/2023/08/08/nyregion/oshae-sibley-stabbing-suspect-dimitry-popov.html?searchResultPosition=6
+https://nytimes.com/2023/08/08/nyregion/oshae-sibley-stabbing-suspect-dimitry-popov.html?searchResultPosition=7
 
 **Guggenheim Museum Staff Ratifies Union Contract**\
 `The contract will provide an average salary increase of 11 percent, similar to what other museum workers across the country have obtained during the industry’s multiyear union push.`\
-https://nytimes.com/2023/08/08/arts/design/guggenheim-union-ratify.html?searchResultPosition=7
+https://nytimes.com/2023/08/08/arts/design/guggenheim-union-ratify.html?searchResultPosition=8
 
 **With National Monument Designation, Biden Tries to Balance Electoral Realities**\
 `The president has highlighted his climate actions as a way to spur domestic energy production and create blue-collar jobs, while nodding to environmental activists and tribal leaders.`\
-https://nytimes.com/2023/08/08/us/politics/biden-national-monument-election.html?searchResultPosition=8
+https://nytimes.com/2023/08/08/us/politics/biden-national-monument-election.html?searchResultPosition=9
 
 **ESPN Enters Sports Gambling in $2 Billion Deal With Casino Company**\
 `ESPN Bet will be operated by Penn Entertainment, which said it was selling its platform’s previous brand, Barstool Sports, back to its founder.`\
-https://nytimes.com/2023/08/08/business/espn-penn-entertainment-gambling.html?searchResultPosition=9
-
-**WeWork Cites ‘Substantial Doubt’ That It Can Stay in Business**\
-`The co-working company will seek to raise capital as it searches for a chief executive. Its battered stock plunged further.`\
-https://nytimes.com/2023/08/08/business/wework-earnings-future.html?searchResultPosition=10
+https://nytimes.com/2023/08/08/business/espn-penn-entertainment-gambling.html?searchResultPosition=10
 
