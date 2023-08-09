@@ -2,8 +2,8 @@
 `Dianne Feinstein, 90, has struggled to navigate the Senate this year after suffering a severe case of shingles in February.`\
 https://nytimes.com/2023/08/09/us/politics/feinstein-fall-hospitalized.html?searchResultPosition=1
 
-**Ohio Voters Saw ‘a Little Bit of a Magical Trick’**\
-`Many who cast ballots in Ohio’s referendum on Tuesday said they were turned off by a sense that the measure’s backers weren’t being honest about its purpose.`\
+**Why Ohio Voters Said No to Ballot Measure**\
+`In addition to their views on abortion, many who cast ballots in Ohio’s referendum on Tuesday said they were turned off by a sense that the measure’s backers weren’t being honest about its purpose.`\
 https://nytimes.com/2023/08/09/us/ohio-voters-issue-1-constitution.html?searchResultPosition=2
 
 **Vacation Home Blaze in France Kills 11**\
