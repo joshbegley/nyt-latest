@@ -1,4 +1,4 @@
-**Another Giant Chinese Real Estate Company Is in Deep Money Trouble**\
+**Another Chinese Property Giant Teeters, Raising Worries About the Economy**\
 `Country Garden, China’s last big property developer to avoid default, has spooked investors after missing key debt payments, rekindling memories of China Evergrande.`\
 https://nytimes.com/2023/08/09/business/country-garden-china-real-estate.html?searchResultPosition=1
 
