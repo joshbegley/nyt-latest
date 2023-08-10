@@ -7,7 +7,7 @@ https://nytimes.com/2023/08/09/us/politics/biden-environment-southwest.html?sear
 https://nytimes.com/2023/08/09/sports/baseball/michael-lorenzen-phillies-no-hitter.html?searchResultPosition=2
 
 **Presidential Candidate in Ecuador Is Assassinated During Rally**\
-`The candidate, Fernando Villavicencio, was one of eight running in a race to be held in days.`\
+`The candidate, Fernando Villavicencio, was outspoken about the link between organized crime and government officials.`\
 https://nytimes.com/2023/08/09/world/americas/ecuador-presidential-candidate-killed.html?searchResultPosition=3
 
 **Typhoon Khanun Makes Landfall in South Korea**\
