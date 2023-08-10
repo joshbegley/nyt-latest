@@ -14,7 +14,7 @@ https://nytimes.com/2023/08/10/podcasts/the-daily/extreme-heat.html?searchResult
 `Exclusively from New York Times Audio, our new app.`\
 https://nytimes.com/2023/08/10/podcasts/nyt-audio-headlines-show.html?searchResultPosition=4
 
-**Here Are Some Ways to Help Victims of the Hawaii Wildfires**\
+**Here’s How to Help Victims of the Hawaii Wildfires**\
 `Volunteers and aid groups have mobilized to help those who have been affected by the disaster. Here is some guidance on how to donate.`\
 https://nytimes.com/2023/08/10/us/hawaii-fires-how-to-help.html?searchResultPosition=5
 
