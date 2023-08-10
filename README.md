@@ -7,7 +7,7 @@ https://nytimes.com/2023/08/10/sports/golf/trump-liv-golf-bedminster.html?search
 https://nytimes.com/2023/08/10/us/michigan-trooper-acquitted-assault-police-dog.html?searchResultPosition=2
 
 **Supreme Court Pauses Opioid Settlement With Sacklers Pending Review**\
-`A federal appeals court had signed off on the agreement that would shield members of the wealthy Sackler family from opioid-related lawsuits in exchange for $6 billion for victims.`\
+`A federal appeals court had signed off on the agreement, which would shield members of the wealthy Sackler family from opioid-related lawsuits in exchange for $6 billion for victims.`\
 https://nytimes.com/2023/08/10/us/supreme-court-purdue-pharma-opioid-settlement.html?searchResultPosition=3
 
 **The New Look in Cocktails? Layers and Stripes.**\
@@ -27,7 +27,7 @@ https://nytimes.com/2023/08/10/world/europe/crooked-house-pub-fire.html?searchRe
 https://nytimes.com/2023/08/10/health/columbia-drug-trials-suicide.html?searchResultPosition=7
 
 **Special Counsel Proposes January Date for Trump’s Election Interference Trial**\
-`Mr. Trump’s legal team will get to suggest its own timetable for the case next week and will surely object to the government’s proposal.`\
+`The former president’s legal team will get to suggest its own timetable for the case next week and will surely object to the government’s proposal.`\
 https://nytimes.com/2023/08/10/us/politics/trump-jan-6-trial-date.html?searchResultPosition=8
 
 **Judge Strikes Down F.D.A. Rule Regulating Premium Cigars**\
