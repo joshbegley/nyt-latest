@@ -1,4 +1,4 @@
-**A Conservative Case Emerges to Disqualify Trump for His Role on Jan. 6**\
+**Conservative Case Emerges to Disqualify Trump for Role on Jan. 6**\
 `Two law professors active in the Federalist Society wrote that the original meaning of the 14th Amendment makes Donald Trump ineligible to hold government office.`\
 https://nytimes.com/2023/08/10/us/trump-jan-6-insurrection-conservatives.html?searchResultPosition=1
 
