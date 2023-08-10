@@ -23,7 +23,7 @@ https://nytimes.com/2023/08/10/us/politics/iran-us-prisoners-nuclear-program.htm
 https://nytimes.com/2023/08/10/opinion/china-economy-decline.html?searchResultPosition=6
 
 **Pence Avoids Trump’s Name as He Fields a Jan. 6 Question**\
-`The former vice president refers to his “former running mate” and “former president, but declined to refer to the Republican front-runner by name.`\
+`The former vice president refers to his “former running mate” and to the “former president,” but he declined to refer to the Republican front-runner by name.`\
 https://nytimes.com/2023/08/10/us/politics/pence-trump-iowa.html?searchResultPosition=7
 
 **Planning Travel to Hawaii? Here’s What You Need to Know**\
