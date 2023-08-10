@@ -1,4 +1,4 @@
-**3 Men Charged with Assault After Alabama Riverfront Brawl**\
+**3 Men Charged With Assault After Alabama Riverfront Brawl**\
 `Three men have turned themselves in to the Montgomery police this week after an attack on a Black boat captain that garnered heavy backlash on social media.`\
 https://nytimes.com/2023/08/10/us/montgomery-alabama-river-boat-brawl-arrests.html?searchResultPosition=1
 
