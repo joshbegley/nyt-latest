@@ -2,7 +2,7 @@
 `Ms. Drummond will be the first woman to lead the technology magazine in its 30-year history.`\
 https://nytimes.com/2023/08/10/business/media/wired-katie-drummond.html?searchResultPosition=1
 
-**New York’s Attorney General Breaks With Governor Over Migrant Crisis**\
+**New York’s Attorney General Breaks With Gov. Hochul Over Migrant Crisis**\
 `Letitia James, the state attorney general, has declined to represent Gov. Kathy Hochul in a court proceeding over how to care for thousands of asylum seekers.`\
 https://nytimes.com/2023/08/10/nyregion/perez-migrants-james-hochul.html?searchResultPosition=2
 
