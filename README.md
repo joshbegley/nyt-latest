@@ -6,8 +6,8 @@ https://nytimes.com/2023/08/10/sports/golf/trump-liv-golf-bedminster.html?search
 `The man, who was bitten several times, could be heard in dashboard camera footage pleading with Trooper Parker Surbrook to pull the dog off him.`\
 https://nytimes.com/2023/08/10/us/michigan-trooper-acquitted-assault-police-dog.html?searchResultPosition=2
 
-**Supreme Court Pauses Purdue Pharma Bankruptcy Deal**\
-`A federal appeals court had signed off on an agreement, now on hold, that would shield members of the wealthy Sackler family from opioid-related lawsuits in exchange for $6 billion for victims.`\
+**Supreme Court Pauses Opioid Settlement With Sacklers Pending Review**\
+`A federal appeals court had signed off on the agreement that would shield members of the wealthy Sackler family from opioid-related lawsuits in exchange for $6 billion for victims.`\
 https://nytimes.com/2023/08/10/us/supreme-court-purdue-pharma-opioid-settlement.html?searchResultPosition=3
 
 **The New Look in Cocktails? Layers and Stripes.**\
