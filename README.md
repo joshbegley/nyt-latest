@@ -6,7 +6,7 @@ https://nytimes.com/2023/08/10/us/politics/biden-utah-veterans-benefits.html?sea
 `Plus, the U.S. reached a deal with Iran to free Americans. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2023/08/10/briefing/biden-declares-disaster-for-maui.html?searchResultPosition=2
 
-**Gen Z Can’t Afford  the Rent**\
+**Gen Z Can’t Afford the Rent**\
 `Here’s what young people from coast to coast are saying about how they manage to keep a roof over their heads.`\
 https://nytimes.com/interactive/2023/08/10/us/gen-z-rent-homeowner.html?searchResultPosition=3
 
