@@ -1,40 +1,40 @@
+**What to Know About the New Dominant Covid Variant**\
+`EG.5 is spreading quickly, but experts say it’s no more dangerous than previous versions.`\
+https://nytimes.com/2023/08/11/well/live/covid-variant-eris-eg5.html?searchResultPosition=1
+
 **Maui Fires Come at a Moment of Turmoil for the Insurance Industry**\
 `Hawaii has the nation’s lowest rates for homeowner coverage because it has not suffered many natural disasters. That may change.`\
-https://nytimes.com/2023/08/11/us/insurance-wildfires-maui-hawaii.html?searchResultPosition=1
+https://nytimes.com/2023/08/11/us/insurance-wildfires-maui-hawaii.html?searchResultPosition=2
 
 **Wonking Out: How Super Is Your Superpower?**\
 `Is China now #1, or does America still lead? Yes.`\
-https://nytimes.com/2023/08/11/opinion/china-us-economy.html?searchResultPosition=2
+https://nytimes.com/2023/08/11/opinion/china-us-economy.html?searchResultPosition=3
 
 **Teenager Pleads Not Guilty in Hate Crime Killing of Gay Dancer**\
 `A lawyer for Dmitriy Popov said he might pursue a self-defense argument in a case stemming from a deadly dispute at a Brooklyn gas station.`\
-https://nytimes.com/2023/08/11/nyregion/oshae-sibley-stabbing-dmitriy-popov-arraignment.html?searchResultPosition=3
+https://nytimes.com/2023/08/11/nyregion/oshae-sibley-stabbing-dmitriy-popov-arraignment.html?searchResultPosition=4
 
 **‘Fast Car’ and 5 More Cross-Generational Covers**\
 `With Luke Combs’s version of Tracy Chapman’s hit at No. 2 on the Hot 100, revisit the origins of Björk, the Clash and Nirvana songs.`\
-https://nytimes.com/2023/08/11/arts/music/amplifier-newsletter-fast-car-cross-generational-covers.html?searchResultPosition=4
+https://nytimes.com/2023/08/11/arts/music/amplifier-newsletter-fast-car-cross-generational-covers.html?searchResultPosition=5
 
 **Biden Describes China as a Time Bomb Over Economic Problems**\
 `The sharply worded comments are the latest example of the president’s willingness to criticize China even as he tries to ease tensions.`\
-https://nytimes.com/2023/08/11/us/politics/biden-china-criticism-economy.html?searchResultPosition=5
+https://nytimes.com/2023/08/11/us/politics/biden-china-criticism-economy.html?searchResultPosition=6
 
 **Should Trump’s Jan. 6 Trial Be Televised?**\
 `Readers offer different opinions and propose alternatives. Also: The Republican loyalty pledge; pig farming; driverless cabs; homesick at camp.`\
-https://nytimes.com/2023/08/11/opinion/letters/trump-jan-6-trial-tv.html?searchResultPosition=6
+https://nytimes.com/2023/08/11/opinion/letters/trump-jan-6-trial-tv.html?searchResultPosition=7
 
 **‘Big Brother’ Contestant Is Expelled for Using Racial Slur**\
 `“Well, I’m in trouble now,” Luke Valentine said after using a slur for Black people in a conversation on the reality show.`\
-https://nytimes.com/2023/08/11/arts/television/big-brother-racial-slur.html?searchResultPosition=7
+https://nytimes.com/2023/08/11/arts/television/big-brother-racial-slur.html?searchResultPosition=8
 
 **Judge Limits Trump’s Ability to Share Jan. 6 Evidence**\
 `During a 90-minute hearing in Washington, Judge Tanya S. Chutkan also warned the former president against any attempt to intimidate witnesses or prejudice potential jurors.`\
-https://nytimes.com/2023/08/11/us/politics/trump-judge-protective-order.html?searchResultPosition=8
+https://nytimes.com/2023/08/11/us/politics/trump-judge-protective-order.html?searchResultPosition=9
 
 **Iowa’s Republican Governor Offers Candidates a Safe Space at the Fair**\
 `Gov. Kim Reynolds of Iowa is hosting “chats” at the Iowa State Fair, providing the Republican contenders with a friendly forum to connect with voters.`\
-https://nytimes.com/2023/08/11/us/politics/kim-reynolds-fairside-chats-2024.html?searchResultPosition=9
-
-**Swallowed by a Whale, and Other August Books**\
-`Sarah Lyall discusses the thriller “Whalefall,” by Daniel Kraus, and Joumana Khatib rounds up the month’s other big books.`\
-https://nytimes.com/2023/08/11/books/review/swallowed-by-a-whale-and-other-august-books.html?searchResultPosition=10
+https://nytimes.com/2023/08/11/us/politics/kim-reynolds-fairside-chats-2024.html?searchResultPosition=10
 
