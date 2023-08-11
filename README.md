@@ -28,7 +28,7 @@ https://nytimes.com/2023/08/11/sports/soccer/womens-world-cup-japan-sweden.html?
 
 **Make the Whole Place Shimmer: America Spends Big for Beyoncé and Taylor Swift**\
 `The artists’ fans have been shelling out on lavish wardrobes, parties and travel, generating business and boosting spending in host cities.`\
-https://nytimes.com/2023/08/11/business/beyonce-taylor-swift-econ-revenge-spending.html?searchResultPosition=8
+https://nytimes.com/2023/08/11/business/beyonce-taylor-swift-tour-spending.html?searchResultPosition=8
 
 **A ‘Digital Heist’ Recaptures the Rosetta Stone**\
 `The collective Looty in London virtually reclaims items from Western museums to give people from former colonies a chance to learn about their stolen heritage.`\
