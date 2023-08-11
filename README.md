@@ -1,5 +1,5 @@
 **Sweden Ousts Japan, Ensuring World Cup Will Have First-Time Champion**\
-`Sweden, a perennial bridesmaid, followed up its elimination of the United States by holding off Japan, the last former titlist in the field.`\
+`Sweden, a perennial bridesmaid, followed up its elimination of the United States by holding off Japan, the last former winner in the field.`\
 https://nytimes.com/2023/08/11/sports/soccer/womens-world-cup-japan-sweden.html?searchResultPosition=1
 
 **Make the Whole Place Shimmer: America Spends Big for Beyoncé and Taylor Swift**\
