@@ -2,7 +2,7 @@
 `Attorney General Merrick B. Garland announced that David C. Weiss, the U.S. attorney in Delaware, would become the special counsel in the Hunter Biden inquiry.`\
 https://nytimes.com/video/us/politics/100000009037668/hunter-biden-investigation.html?searchResultPosition=1
 
-**Photos from the Hawaii Fires and the Aftermath**\
+**Photos From the Hawaii Fires and the Aftermath**\
 `The historic town of Lahaina was devastated by the fires that moved through the island of Maui this week.`\
 https://nytimes.com/2023/08/11/us/hawaii-fires-photos.html?searchResultPosition=2
 
