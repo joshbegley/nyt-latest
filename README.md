@@ -3,15 +3,15 @@
 https://nytimes.com/2023/08/11/well/mind/suicide-deaths-2022-cdc.html?searchResultPosition=1
 
 **Hawaii’s governor orders a review of whether warning systems worked properly.**\
-`By Emily Cochrane`\
-https://nytimes.com/2023/08/11/us/governor-orders-review-of-warning-systems.html?searchResultPosition=2
+`‘We will do all that we can to find out how to protect our people more going forward,’ said Gov. Josh Green.`\
+https://nytimes.com/2023/08/11/us/hawaii-maui-fires-warning-systems.html?searchResultPosition=2
 
 **Joan Kaplan Davidson, Philanthropist Who Championed New York, Dies at 96**\
 `As president of a foundation established by her father, she focused her grant making on issues related to the city’s architecture, design and quality of life.`\
 https://nytimes.com/2023/08/11/nyregion/joan-kaplan-davidson-dead.html?searchResultPosition=3
 
-**For Biden, a Festering Wound That May Not Go Away Soon After All**\
-`The collapse of a plea deal and the appointment of a special counsel to investigate Hunter Biden mean  the president could face political fallout for months to come.`\
+**For President Biden, a Political Liability That May Not Go Away Soon**\
+`The collapse of a plea deal and the appointment of a special counsel to investigate Hunter Biden mean the president could face political fallout for months to come.`\
 https://nytimes.com/2023/08/11/us/politics/president-biden-hunter.html?searchResultPosition=4
 
 **The Latest Migrant Battleground: New York City Soccer Fields**\
