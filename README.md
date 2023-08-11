@@ -1,40 +1,40 @@
+**Friday Briefing**\
+`The toll from wildfires in Hawaii.`\
+https://nytimes.com/2023/08/11/briefing/hawaii-maui-ruble-russia.html?searchResultPosition=1
+
+**The N.F.L.’s Betting Crackdown Has Followed Players to Training Camp**\
+`Some within the sport think the league’s discipline for betting has been heavy-handed. But that has meant more presentations, not softer rules.`\
+https://nytimes.com/2023/08/11/sports/football/nfl-sports-betting-training-camps.html?searchResultPosition=2
+
+**A Happiness That Took 90 Years to Achieve**\
+`When Kenneth Felts began work on a memoir at age 90, he found himself filled with regrets over a secret gay love affair. So he came out — privately and publicly — which inspired Johnny Hau to do the same.`\
+https://nytimes.com/2023/08/11/style/kenneth-felts-johnny-hau-wedding.html?searchResultPosition=3
+
+**Never Give Your Child Five Names**\
+`If you do, he may never be able to leave you.`\
+https://nytimes.com/2023/08/11/style/modern-love-never-give-your-child-five-names.html?searchResultPosition=4
+
+**When the Matchmaker Made Herself the Perfect Match**\
+`Emily Dobies wanted to set up Sal Steiner, a co-worker, with a mutual friend seven years ago. But Ms. Dobies and Mr. Steiner were more interested in each other.`\
+https://nytimes.com/2023/08/11/style/emily-dobies-sal-steiner-wedding.html?searchResultPosition=5
+
+**Making Wedding Plans Before the First Date**\
+`Melissa D’Andrea and Karissa Sullivan, who matched on the dating app Her, were instantly attracted to each other. Five months after meeting, they were engaged.`\
+https://nytimes.com/2023/08/11/style/melissa-dandrea-karissa-sullivan-wedding.html?searchResultPosition=6
+
+**Mapping Out Their Future on a Spreadsheet**\
+`After 16 years together, Sachi Takahashi-Rial and George Carollo drew up a timeline, which included a decision to legally tie the knot in 2023.`\
+https://nytimes.com/2023/08/11/style/sachi-takahashi-rial-george-carollo-wedding.html?searchResultPosition=7
+
+**Quotation of the Day: With Breathtaking Speed, Blast of Fire Erases a Town in Hawaii**\
+`Quotation of the Day for Friday, August 11, 2023.`\
+https://nytimes.com/2023/08/11/pageoneplus/quotation-of-the-day-with-breathtaking-speed-blast-of-fire-erases-a-town-in-hawaii.html?searchResultPosition=8
+
 **Corrections: Aug. 11, 2023**\
 `Corrections that appeared in print on Friday, Aug. 11, 2023.`\
-https://nytimes.com/2023/08/10/pageoneplus/corrections-aug-11-2023.html?searchResultPosition=1
+https://nytimes.com/2023/08/10/pageoneplus/corrections-aug-11-2023.html?searchResultPosition=9
 
 **Review: A Bloodless Postscript to ‘Jaws’ in ‘The Shark Is Broken’**\
 `Just when you thought it was safe to go back in the theater, a play about the making of Hollywood’s first summer blockbuster bobs up on Broadway.`\
-https://nytimes.com/2023/08/10/theater/the-shark-is-broken-review.html?searchResultPosition=2
-
-**Some Fire Survivors Say Flames Reached Them Before Evacuation Orders**\
-`A fire near Lahaina that had initially been contained flared up again and threatened homes, but some residents said they received no evacuation orders.`\
-https://nytimes.com/2023/08/10/us/lahaina-maui-fires-evacuation-orders.html?searchResultPosition=3
-
-**Infant Was Decapitated During Delivery, Georgia Couple’s Lawsuit Claims**\
-`A complaint says an obstetrician used too much force during the delivery and that a hospital had tried to conceal what had happened.`\
-https://nytimes.com/2023/08/10/us/baby-decapitated-lawsuit-georgia.html?searchResultPosition=4
-
-**Variety: Acrostic**\
-`David Balton and Jane Stewart bring us a behemoth of a puzzle, but we can take it down.`\
-https://nytimes.com/2023/08/10/crosswords/variety-acrostic.html?searchResultPosition=5
-
-**Dreaming Big**\
-`John-Clark Levin opens our solving weekend.`\
-https://nytimes.com/2023/08/10/crosswords/daily-puzzle-2023-08-11.html?searchResultPosition=6
-
-**Russia’s Luna-25 Moon Mission Launches**\
-`The spacecraft is expected to land on the surface of the moon later this month.`\
-https://nytimes.com/video/science/space/100000009036644/russia-moon-launch-luna-25.html?searchResultPosition=7
-
-**Driverless Taxis Can Expand San Francisco Services, Regulators Say**\
-`Autonomous Cruise and Waymo cars have been buzzing around the city for some time, and now can offer paid rides throughout it around the clock.`\
-https://nytimes.com/2023/08/10/technology/driverless-cars-san-francisco.html?searchResultPosition=8
-
-**‘Heart of Stone’ Review: Mission Improbable**\
-`Gal Gadot plays an international superspy who teams up with an all-powerful computer in this ludicrous and derivative Netflix espionage thriller.`\
-https://nytimes.com/2023/08/10/movies/heart-of-stone-review.html?searchResultPosition=9
-
-**Air Taxi Rivals End Legal Fight and Agree to Collaborate**\
-`Wisk Aero, owned by Boeing, entered a financial and technological partnership with Archer Aviation and dropped a lawsuit claiming theft of trade secrets.`\
-https://nytimes.com/2023/08/10/business/archer-boeing-wisk-settlement.html?searchResultPosition=10
+https://nytimes.com/2023/08/10/theater/the-shark-is-broken-review.html?searchResultPosition=10
 
