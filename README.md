@@ -1,5 +1,5 @@
-**Spain Goes the Distance to Reach First World Cup Semifinal**\
-`Salma Paralluelo’s goal in extra time delivered victory over the Netherlands and a date with the Japan-Sweden winner.`\
+**Spain Goes the Distance to Reach Its First Women’s World Cup Semifinal**\
+`Salma Paralluelo’s goal in extra time delivered a victory over the Netherlands and a date with the Japan-Sweden winner.`\
 https://nytimes.com/2023/08/11/sports/soccer/spain-netherlands-world-cup.html?searchResultPosition=1
 
 **Friday Briefing**\
