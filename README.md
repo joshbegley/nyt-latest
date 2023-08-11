@@ -1,6 +1,6 @@
 **Why the Fed Might not Be Done Raising Rates**\
 `Volatile energy prices could put new pressures on the economy, despite some cautious optimism after the latest inflation data.`\
-https://nytimes.com/2023/08/11/business/why-the-fed-might-not-be-done-raising-rates.html?searchResultPosition=1
+https://nytimes.com/2023/08/11/business/fed-interest-rates.html?searchResultPosition=1
 
 **‘We’re All Water-Bottle Freaks’**\
 `Americans are drinking more water. How best to contain it: That’s the burning question.`\
