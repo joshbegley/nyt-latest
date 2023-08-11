@@ -14,8 +14,8 @@ https://nytimes.com/2023/08/10/crosswords/daily-puzzle-2023-08-11.html?searchRes
 `The spacecraft is expected to land on the surface of the moon later this month.`\
 https://nytimes.com/video/science/space/100000009036644/russia-moon-launch-luna-25.html?searchResultPosition=4
 
-**Regulators Agree to Expansion of Driverless Car Services in San Francisco**\
-`Autonomous Cruise and Waymo taxis have been buzzing around the city for some time, and now they can offer round-the-clock rides for pay.`\
+**Driverless Taxis Can Expand San Francisco Services, Regulators Say**\
+`Autonomous Cruise and Waymo cars have been buzzing around the city for some time, and now can offer paid rides throughout it around the clock.`\
 https://nytimes.com/2023/08/10/technology/driverless-cars-san-francisco.html?searchResultPosition=5
 
 **‘Heart of Stone’ Review: Mission Improbable**\
