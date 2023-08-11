@@ -1,6 +1,6 @@
 **Republican 2024 Hopefuls Scoff at Hunter Biden Special Counsel Move**\
 `Candidates, including Donald J. Trump, cast doubt on the newly-named special counsel’s independence.`\
-https://nytimes.com/2023/08/11/us/republicans-2024-hunter-biden.html?searchResultPosition=1
+https://nytimes.com/2023/08/11/us/politics/republicans-2024-hunter-biden.html?searchResultPosition=1
 
 **Fox General Counsel Will Depart**\
 `Viet Dinh, Fox’s top lawyer, advised the company through its landmark $787.5 million settlement with Dominion Voting Systems.`\
