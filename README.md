@@ -6,8 +6,8 @@ https://nytimes.com/2023/08/11/us/illinois-supreme-court-guns.html?searchResultP
 `Candidates, including Donald J. Trump, cast doubt on the newly-named special counsel’s independence.`\
 https://nytimes.com/2023/08/11/us/politics/republicans-2024-hunter-biden.html?searchResultPosition=2
 
-**Fox General Counsel Will Depart**\
-`Viet Dinh, Fox’s top lawyer, advised the company through its landmark $787.5 million settlement with Dominion Voting Systems.`\
+**Fox’s Chief Legal Officer Will Depart**\
+`Viet Dinh advised the company through its landmark $787.5 million settlement with Dominion Voting Systems.`\
 https://nytimes.com/2023/08/11/business/media/viet-dinh-fox-departing.html?searchResultPosition=3
 
 **Sam Bankman-Fried to Be Sent to Jail After Judge Revokes Bail**\
