@@ -1,6 +1,6 @@
 **What the Supreme Court’s Decision to Hear the Purdue Pharma Case Means**\
 `A federal appeals court had signed off on a deal that would shield members of the wealthy Sackler family from lawsuits in exchange for billions for those harmed by the opioid epidemic.`\
-https://nytimes.com/2023/08/11/us/supreme-court-purdue-bankruptcy-what-it-means.html?searchResultPosition=1
+https://nytimes.com/2023/08/11/us/supreme-court-purdue-case.html?searchResultPosition=1
 
 **U.S. Suicide Deaths Rose in 2022, C.D.C. Estimates Say**\
 `Provisional data from the Centers for Disease Control and Prevention show that deaths by suicide were up last year — but not for all groups.`\
