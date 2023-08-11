@@ -22,7 +22,7 @@ https://nytimes.com/2023/08/11/us/politics/kim-reynolds-fairside-chats-2024.html
 `Sarah Lyall discusses the thriller “Whalefall,” by Daniel Kraus, and Joumana Khatib rounds up the month’s other big books.`\
 https://nytimes.com/2023/08/11/books/review/swallowed-by-a-whale-and-other-august-books.html?searchResultPosition=6
 
-**What Makes Pasta Alla Vodka So Delicious? It’s All in the Sauce.**\
+**What Makes Penne Alla Vodka So Delicious? It’s All in the Sauce.**\
 `The exact origin story of vodka sauce is uncertain, but its legacy is bold, spicy and ubiquitous.`\
 https://nytimes.com/2023/08/11/dining/penne-all-vodka-recipe.html?searchResultPosition=7
 
