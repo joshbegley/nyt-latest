@@ -2,8 +2,8 @@
 `Mr. Bankman-Fried had been under house arrest at his parents’ home as he awaited trial on charges stemming from the collapse of his cryptocurrency company, FTX.`\
 https://nytimes.com/2023/08/11/technology/sam-bankman-fried-jail.html?searchResultPosition=1
 
-**Naming Weiss Special Counsel in the Hunter Biden Case Doesn’t Change Much**\
-`By Charlie Savage`\
+**Why Naming Weiss Special Counsel in the Hunter Biden Case Isn’t Likely to Change Much**\
+`Special counsel status essentially formalizes a degree of independence the prosecutor already had.`\
 https://nytimes.com/2023/08/11/us/weiss-special-counsel-hunter-biden.html?searchResultPosition=2
 
 **The Weekender**\
