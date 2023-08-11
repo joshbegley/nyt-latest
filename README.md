@@ -1,6 +1,6 @@
 **Sam Bankman-Fried to Be Sent to Jail After Judge Revokes Bail**\
 `Mr. Bankman-Fried had been under house arrest at his parents’ home as he awaited trial on charges stemming from the collapse of his cryptocurrency company, FTX.`\
-https://nytimes.com/2023/08/11/technology/sam-bankman-fried-to-be-sent-to-jail-after-judge-revokes-bail.html?searchResultPosition=1
+https://nytimes.com/2023/08/11/technology/sam-bankman-fried-jail.html?searchResultPosition=1
 
 **Naming Weiss Special Counsel in the Hunter Biden Case Doesn’t Change Much**\
 `By Charlie Savage`\
