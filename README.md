@@ -26,7 +26,7 @@ https://nytimes.com/2023/08/11/crosswords/daily-puzzle-2023-08-12.html?searchRes
 `In an analysis of satellite imagery, The Times identified about 1,900 structures that had been visibly damaged or destroyed by the blaze.`\
 https://nytimes.com/interactive/2023/08/11/us/hawaii-wildfire-lahaina-damage.html?searchResultPosition=7
 
-**FEMA’s support for Maui will likely be closely watched.**\
+**FEMA’s Support for Maui Will Likely Be Closely Watched**\
 `The agency has been criticized for slow responses to major disasters in the past.`\
 https://nytimes.com/2023/08/11/us/fema-hawaii-fires.html?searchResultPosition=8
 
