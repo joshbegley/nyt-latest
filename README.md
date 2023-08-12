@@ -1,14 +1,14 @@
-**The Clean Energy Future Is Roiling Both Friends and Foes**\
-`Resistance to wind and solar projects from environmentalists is among an array of impediments to widespread conversion to renewables.`\
-https://nytimes.com/interactive/2023/08/12/climate/wind-solar-clean-energy.html?searchResultPosition=1
-
 **The Clean Energy Future Is a Battle for Hearts and Minds**\
 `A broad, and sometimes quixotic, retail effort to win the fight against global warming is playing out one person at a time, with nary a mention of climate change.`\
-https://nytimes.com/interactive/2023/08/12/climate/electric-car-politics-chevy-general-motors.html?searchResultPosition=2
+https://nytimes.com/interactive/2023/08/12/climate/electric-car-politics-chevy-general-motors.html?searchResultPosition=1
 
 **The Clean Energy Future Is Arriving Faster Than You Think**\
 `The United States is pivoting away from fossil fuels and toward wind, solar and other renewable energy, even in areas dominated by the oil and gas industries.`\
-https://nytimes.com/interactive/2023/08/12/climate/clean-energy-us-fossil-fuels.html?searchResultPosition=3
+https://nytimes.com/interactive/2023/08/12/climate/clean-energy-us-fossil-fuels.html?searchResultPosition=2
+
+**The Clean Energy Future Is Roiling Both Friends and Foes**\
+`Resistance to wind and solar projects from environmentalists is among an array of impediments to widespread conversion to renewables.`\
+https://nytimes.com/interactive/2023/08/12/climate/wind-solar-clean-energy.html?searchResultPosition=3
 
 **Trump and DeSantis Converge in Iowa, Showing Who’s More Popular**\
 `Nicholas Nehamas, a Times campaign reporter, was at the Iowa State Fair, where Gov. Ron DeSantis and former President Donald J. Trump competed for attention.`\
