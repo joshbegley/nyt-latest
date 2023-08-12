@@ -1,6 +1,6 @@
 **Long-Shot Vivek Ramaswamy Says He Has a 50 percent Chance at Presidency**\
 `Despite polling in the mid-single digits, the biotech mogul projected outsize confidence at the Iowa State Fair.`\
-https://nytimes.com/2023/08/12/us/long-shot-vivek-ramaswamy-says-he-has-a-50-percent-chance-at-presidency.html?searchResultPosition=1
+https://nytimes.com/2023/08/12/us/vivek-ramaswamy-iowa-state-fair.html?searchResultPosition=1
 
 **K2 Climbers Criticized Over Continuing Ascent After Finding Dying Porter**\
 `One of the climbers, Kristin Harila, said she continued her summit of the mountain after finding a porter who fell from a cliff and later died.`\
