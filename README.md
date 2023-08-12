@@ -1,40 +1,40 @@
-**Romance Readers Swoon for Brooklyn’s Newest Bookstore**\
-`The Ripped Bodice opened in Park Slope to an engaged fan base with hearts in their eyes.`\
-https://nytimes.com/2023/08/12/nyregion/ripped-bodice-brooklyn-romance-book-store.html?searchResultPosition=1
+**In Istanbul, Revered Shrines Receive the Wishes and Woes of a Modern City**\
+`Turkey’s largest city is dotted with the tombs of religious figures, where pilgrims seek divine intervention. “When you ask for something from God, those who are beloved by God can be a go-between.”`\
+https://nytimes.com/2023/08/12/world/europe/istanbul-turkey-sufi-shrines.html?searchResultPosition=1
 
-**‘These Old Guys?’ Short on Lifeguards, the City’s Oldest Swimmers Step Up**\
-`Among the rookie recruits monitoring New York’s pools, at least four were born in the Eisenhower administration. But they all passed the notorious lifeguard test, and the city needs them.`\
-https://nytimes.com/2023/08/12/nyregion/senior-lifeguards-shortage.html?searchResultPosition=2
+**Fassbinder’s World: A Refuge for Outcasts**\
+`Rethinking the German filmmaker’s vast body of work while reading a new book about him.`\
+https://nytimes.com/2023/08/12/movies/fassbinders-world-a-refuge-for-outcasts.html?searchResultPosition=2
 
-**With an Array of Tactics, Conservatives Seek to Oust Progressive Prosecutors**\
-`In Florida, Gov. Ron DeSantis suspended a second prosecutor. In Texas, activists are trying a new way to get rid of D.A.s they dislike.`\
-https://nytimes.com/2023/08/12/us/conservatives-progressive-district-attorneys.html?searchResultPosition=3
+**A Hotbed of Distance Running Talent Emerges in Uganda**\
+`Led by a duo of world record holders, athletes from Uganda’s Mount Elgon are challenging decades of Kenyan and Ethiopian dominance.`\
+https://nytimes.com/2023/08/12/sports/jacob-kiplimo-joshua-cheptegei-uganda.html?searchResultPosition=3
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/08/12/crosswords/spelling-bee-forum.html?searchResultPosition=4
+**Zelensky Called Him a Criminal. Now Ukraine Calls Him for Guns and Ammo.**\
+`In its hunt for weapons, Ukraine has rolled back anticorruption rules and turned to people once seen as relics of an anything-goes era.`\
+https://nytimes.com/2023/08/12/world/europe/ukraine-arms-dealer-serhiy-pashinsky.html?searchResultPosition=4
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/08/12/crosswords/wordle-review-answer-784.html?searchResultPosition=5
+**Growing Segregation by Sex in Israel Raises Fears for Women’s Rights**\
+`Ultra-Orthodox members of Prime Minister Benjamin Netanyahu’s far-right coalition want to expand the powers of all-male rabbinical courts, and to bar women and men from mixing in many public arenas.`\
+https://nytimes.com/2023/08/12/world/middleeast/israel-women-rights.html?searchResultPosition=5
 
-**Dwyane Wade Was Destined for the Hall of Fame — and Politics?**\
-`Wade, the former Miami Heat guard, will cap his basketball career with a Hall of Fame induction this weekend. Some are hoping his next phase is as a political star.`\
-https://nytimes.com/2023/08/12/sports/basketball/dwyane-wade-hall-of-fame.html?searchResultPosition=6
+**As Hunter Biden Saga Endures, Democrats Avert Eyes and Dismiss Worries**\
+`After a setback for President Biden, Democrats pointed to Donald Trump’s indictments and suggested that swing voters would ultimately not care about the sins of a candidate’s son.`\
+https://nytimes.com/2023/08/12/us/politics/democrats-hunter-biden.html?searchResultPosition=6
 
-**Married During the 2003 Blackout**\
-`Couples who married during the widespread power outage reflect on their chaotic but fulfilling wedding days as they approach their 20th anniversaries.`\
-https://nytimes.com/2023/08/12/style/nyc-blackout-2003-weddings.html?searchResultPosition=7
+**Inexpensive Add-on Spawns a New Era of Machine Guns**\
+`Popular devices known as “switches” are turning ordinary pistols into fully automatic weapons, making them deadlier and a growing threat to bystanders.`\
+https://nytimes.com/2023/08/12/us/guns-switch-devices.html?searchResultPosition=7
 
-**At Asian Weddings, Cash Is King**\
-`Forget registries — in Asia, it is common to give marrying couples envelopes of cash. But unwritten rules on how much to give depend on who you are and which superstitions you believe.`\
-https://nytimes.com/2023/08/12/business/asian-weddings-cash-gifts.html?searchResultPosition=8
+**A ‘Perfect Marriage’ Between Team and Player**\
+`Jason Heyward is on a winning club, has been reunited with Freddie Freeman and is having fun playing baseball again. The Dodgers are loving every minute.`\
+https://nytimes.com/2023/08/12/sports/baseball/jason-heyward-dodgers.html?searchResultPosition=8
 
-**Quotation of the Day: It Tasted Like Nothing, but the Fervor Around a Japanese Candy Was Everything**\
-`Quotation of the Day for Saturday, August 12, 2023.`\
-https://nytimes.com/2023/08/12/pageoneplus/quotation-of-the-day-it-tasted-like-nothing-but-the-fervor-around-a-japanese-candy-was-everything.html?searchResultPosition=9
+**As Hollywood Strikes Roll On, Viewers Have a Chance to Catch Up**\
+`After years of being inundated with new shows, some are using a pause in production to finally watch all the stuff they missed when it came out.`\
+https://nytimes.com/2023/08/12/business/media/hollywood-strikes-old-shows.html?searchResultPosition=9
 
-**3-Year-Old Migrant Dies During Trip to Chicago on Bus Sponsored by Texas**\
-`The death appeared to be the first linked to Gov. Greg Abbott’s program of sending migrants from the border to Democratic-run cities.`\
-https://nytimes.com/2023/08/11/us/migrant-child-abbott-bus.html?searchResultPosition=10
+**Trump and DeSantis Take On the Iowa State Fair, and Each Other**\
+`The leading Republican presidential rivals will be circling each other at the event on Saturday, just months before the crucial Iowa caucuses.`\
+https://nytimes.com/2023/08/12/us/politics/trump-desantis-iowa-state-fair.html?searchResultPosition=10
 
