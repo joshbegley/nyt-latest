@@ -3,7 +3,7 @@
 https://nytimes.com/2023/08/12/world/asia/pakistan-prime-minister-elections.html?searchResultPosition=1
 
 **Trump Election Interference Case to Go to Grand Jury in Georgia Early Next Week**\
-`The district attorney in Fulton County, Ga., has spent two-and-a-half years investigating whether the former president interfered in the 2020 election in the state.`\
+` `\
 https://nytimes.com/2023/08/12/us/trump-georgia-election-trial.html?searchResultPosition=2
 
 **Keith Waldrop, Professor and Award-Winning Poet, Dies at 90**\
