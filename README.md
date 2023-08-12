@@ -27,7 +27,7 @@ https://nytimes.com/2023/08/12/us/politics/iowa-state-fair-desantis-trump.html?s
 https://nytimes.com/2023/08/12/us/pence-iowa-evangelicals.html?searchResultPosition=7
 
 **A survivor made a desperate dash into the sea to escape an inferno.**\
-`Help from a Good Samaritan`\
+`Direction from a Good Samaritan helped get a group of trapped residents to a safe spot.`\
 https://nytimes.com/2023/08/12/us/survivor-maui-fires-escape.html?searchResultPosition=8
 
 **Heat, golfers and other obstacles to birding success**\
