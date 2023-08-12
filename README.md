@@ -1,5 +1,5 @@
-**Australia Outlasts France to Reach World Cup Semifinals**\
-`With the host nation roaring its approval, Australia needed 10 rounds of penalty kicks to confirm its place in the team’s first semifinal.`\
+**Australia Outlasts France on Penalties, and a Host Nation Exhales**\
+`Australia needed 10 rounds of penalty kicks to confirm its place in the team’s first semifinal, and extend its country’s wild ride.`\
 https://nytimes.com/2023/08/12/sports/soccer/world-cup-australia-france.html?searchResultPosition=1
 
 **Ukraine Makes Progress Along 2 Lines of Attack**\
