@@ -19,7 +19,7 @@ https://nytimes.com/2023/08/14/us/politics/hunter-biden-plea-deal-weiss.html?sea
 https://nytimes.com/video/world/europe/100000009040164/odesa-ukraine-strikes-fire.html?searchResultPosition=5
 
 **Russian Ruble Slides Past 100 to the Dollar, Lowest Since Just After War’s Start**\
-`The decline past the symbolic level of a penny per ruble will increase pressure on the nation’s financial authorities as fears of inflation grow.`\
+`The currency’s weakening, which took it past the symbolic level of a penny per ruble, will increase pressure on the nation’s financial authorities as fears of inflation grow.`\
 https://nytimes.com/2023/08/14/world/europe/russia-ruble-dollar-inflation-war.html?searchResultPosition=6
 
 **How to Think About Rising Covid Cases in California**\
