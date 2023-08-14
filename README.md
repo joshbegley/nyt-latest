@@ -1,6 +1,6 @@
 **‘Blind Side’ Player Says He Was Conned With Adoption Promise**\
 `Michael Oher, whose life was depicted in the 2009 film, says in a lawsuit that he was never fully adopted by the family that took him in and was swindled into signing away his decision-making powers at 18.`\
-https://nytimes.com/2023/08/14/sports/football/blind-side-lawsuit.html?searchResultPosition=1
+https://nytimes.com/2023/08/14/sports/football/michael-oher-blind-side-lawsuit.html?searchResultPosition=1
 
 **Nevada G.O.P. Sets February Caucus, Jumping Ahead of South Carolina**\
 `Nevada will now come third, after Iowa and New Hampshire, on the Republicans’ presidential nominating calendar.`\
