@@ -11,7 +11,7 @@ https://nytimes.com/video/us/100000009040058/hawaii-maui-kula-wildfire.html?sear
 https://nytimes.com/2023/08/14/sports/basketball/wnba-40-points-breanna-stewart.html?searchResultPosition=3
 
 **Hunter Biden Says Prosecutors Reneged on Major Part of Plea Deal**\
-`The move, is the latest salvo in the back and forth between Mr. Biden and David C. Weiss, the federal prosecutor who was appointed special counsel last week.`\
+`The move is the latest salvo in the back and forth between Mr. Biden and David C. Weiss, the federal prosecutor who was appointed special counsel last week.`\
 https://nytimes.com/2023/08/14/us/politics/hunter-biden-plea-deal-weiss.html?searchResultPosition=4
 
 **Russian Attack Destroys Supermarket in Odesa**\
