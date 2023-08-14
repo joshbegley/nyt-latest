@@ -1,40 +1,40 @@
+**Families of Hawaii’s Missing Endure Wrenching Wait for Answers**\
+`Nearly a week after the fires started, relatives are receiving little information as search and identification efforts move slowly.`\
+https://nytimes.com/2023/08/14/us/hawaii-missing-answers.html?searchResultPosition=1
+
 **Two Months in Georgia: How Trump Tried to Overturn the Vote**\
 `The Georgia case offers a vivid reminder of the extraordinary lengths Mr. Trump and his allies went to in the Southern state to reverse the election.`\
-https://nytimes.com/2023/08/14/us/trump-georgia-election-results.html?searchResultPosition=1
+https://nytimes.com/2023/08/14/us/trump-georgia-election-results.html?searchResultPosition=2
 
 **Fast Living and Foreign Dealings: An F.B.I. Spy Hunter’s Rise and Fall**\
 `Charles McGonigal had a family, a house in the suburbs and an influential job as a counterintelligence leader in New York. Federal prosecutors suggest it wasn’t enough for him.`\
-https://nytimes.com/2023/08/14/nyregion/fbi-mcgonigal-oligarch-nyc.html?searchResultPosition=2
+https://nytimes.com/2023/08/14/nyregion/fbi-mcgonigal-oligarch-nyc.html?searchResultPosition=3
 
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/08/14/crosswords/spelling-bee-forum.html?searchResultPosition=3
+https://nytimes.com/2023/08/14/crosswords/spelling-bee-forum.html?searchResultPosition=4
 
 **Today’s Wordle Review**\
 `Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/08/14/crosswords/wordle-review-answer-786.html?searchResultPosition=4
+https://nytimes.com/2023/08/14/crosswords/wordle-review-answer-786.html?searchResultPosition=5
 
 **What to Know About a Potential Fourth Trump Indictment**\
 `An investigation in Georgia into 2020 election interference by Donald J. Trump and his allies could soon result in another round of criminal charges for the former president.`\
-https://nytimes.com/interactive/2023/08/14/us/politics/trump-indictment-jan-6.html?searchResultPosition=5
+https://nytimes.com/interactive/2023/08/14/us/politics/trump-indictment-jan-6.html?searchResultPosition=6
 
 **Word of the Day: dynamo**\
 `This word has appeared in 32 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/08/14/word-of-the-day-dynamo.html?searchResultPosition=6
+https://nytimes.com/2023/08/14/word-of-the-day-dynamo.html?searchResultPosition=7
 
 **What’s on TV This Week: The Weeknd in Concert and ‘Praise Petey’**\
 `HBO airs the concert filmed in Los Angeles and the animated Freeform show wraps up its first season.`\
-https://nytimes.com/2023/08/14/arts/television/whats-on-tv-this-week-the-weeknd-in-concert-and-praise-petey.html?searchResultPosition=7
+https://nytimes.com/2023/08/14/arts/television/whats-on-tv-this-week-the-weeknd-in-concert-and-praise-petey.html?searchResultPosition=8
 
 **No Corrections: Aug. 14, 2023**\
 `No corrections appeared in print on Monday, Aug. 14, 2023.`\
-https://nytimes.com/2023/08/14/corrections/no-corrections-aug-14-2023.html?searchResultPosition=8
+https://nytimes.com/2023/08/14/corrections/no-corrections-aug-14-2023.html?searchResultPosition=9
 
 **‘His Name Was Bélizaire’: Rare Portrait of Enslaved Child Arrives at the Met**\
 `The Met recently acquired “Bélizaire and the Frey Children,” a 19th-century Louisiana portrait with a secret: For over 100 years, the image of an enslaved youth was erased. This is his story.`\
-https://nytimes.com/interactive/2023/08/14/video/belizaire-frey-children-portrait-met.html?searchResultPosition=9
-
-**Exclusive: Rare Portrait of Enslaved Child Arrives at the Met**\
-`The Met recently acquired “Bélizaire and the Frey Children,” a 19th-century Louisiana portrait with a secret: For over a 100 years, the image of an enslaved child was erased. This is his story.`\
-https://nytimes.com/video/arts/100000008080944/belizaire-frey-children-met.html?searchResultPosition=10
+https://nytimes.com/interactive/2023/08/14/video/belizaire-frey-children-portrait-met.html?searchResultPosition=10
 
