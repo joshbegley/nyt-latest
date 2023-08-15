@@ -1,6 +1,6 @@
 **Superconductor Scientist Faces Investigation as a Paper Is Retracted**\
 `The University of Rochester will examine the work of Ranga Dias, who was an author of a materials science paper unrelated to his superconductor research that was retracted on Tuesday.`\
-https://nytimes.com/2023/08/15/science/retraction-rangia-dias-rochester.html?searchResultPosition=1
+https://nytimes.com/2023/08/15/science/retraction-ranga-dias-rochester.html?searchResultPosition=1
 
 **Beirut’s Nightmare Could Become Israel’s Future**\
 `Netanyahu’s power grab violates a principle that has held the country together.`\
