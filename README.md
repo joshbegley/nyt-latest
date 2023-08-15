@@ -4,7 +4,7 @@ https://nytimes.com/2023/08/15/movies/tiktok-movie-reviews-critics.html?searchRe
 
 **8 TikTokers Redefining the Movie Review**\
 `The personalities of MovieTok are not critics in the traditional sense. But their upbeat videos earn them the devotion of movie lovers.`\
-https://nytimes.com/2023/08/15/movies/8-tiktokers-redefining-the-movie-review.html?searchResultPosition=2
+https://nytimes.com/2023/08/15/movies/tiktok-movie-reviewers.html?searchResultPosition=2
 
 **Hunter Biden’s Lawyer Steps Down From Case**\
 `The decision by the lawyer, Christopher J. Clark, is the latest development in the long-running negotiation between the Justice Department and Hunter Biden.`\
