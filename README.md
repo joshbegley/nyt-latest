@@ -12,7 +12,7 @@ https://nytimes.com/2023/08/15/well/mind/adhd-adderall-shortage-children.html?se
 
 **Five Easy Dinners for Peak Zucchini**\
 `Summer’s low-key charmer shines in a velvety chilled soup, kid-friendly chicken meatballs and Korean scallion pancakes.`\
-https://nytimes.com/2023/08/15/dining/five-easy-dinners-for-peak-zucchini.html?searchResultPosition=4
+https://nytimes.com/2023/08/15/dining/summer-zucchini-recipes.html?searchResultPosition=4
 
 **Transcript: Jane Coaston Interviews Mary Katharine Ham**\
 `The Aug. 15, 2023, episode of “The Ezra Klein Show.”`\
