@@ -4,7 +4,7 @@ https://nytimes.com/2023/08/15/podcasts/transcript-jane-coaston-interviews-mary-
 
 **Trump Could Face an Extraordinary Trial Schedule Next Year**\
 `Trials in two criminal cases involving the former president are already scheduled, and prosecutors are seeking dates for two more, all falling in the first half of 2024.`\
-https://nytimes.com/2023/08/15/us/elections/trump-indictment-trial-dates-timeline.html?searchResultPosition=2
+https://nytimes.com/article/trump-indictment-trial-dates-timeline.html?searchResultPosition=2
 
 **‘I Couldn’t Help Comparing Myself’: The Week 8 Winner of Our Summer Reading Contest**\
 `Jolie, a young woman with Tourette’s syndrome, writes about her reaction to the article, “How Teens Recovered From the ‘TikTok Tics’.”`\
