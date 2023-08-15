@@ -10,7 +10,7 @@ https://nytimes.com/2023/08/15/us/trump-jury-fulton-county-georgia.html?searchRe
 `They told a judge that Mr. Jones should not be allowed to use a Chapter 11 filing to skirt more than $1 billion in damages awarded for his lies.`\
 https://nytimes.com/2023/08/15/us/alex-jones-bankruptcy-sandy-hook.html?searchResultPosition=3
 
-**Inside Hawaii’s Only Burn Unit, Doctors Rushed to Treat Maui Victims**\
+**Honolulu Burn Unit Put to the Test by Fires in Maui**\
 `An island airlift brought some of the fire’s most severely wounded survivors to a Honolulu hospital unit created for just that kind of mass-casualty moment.`\
 https://nytimes.com/2023/08/15/us/maui-fire-hawaii-burn-unit.html?searchResultPosition=4
 
