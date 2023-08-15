@@ -1,4 +1,4 @@
-**Hillary Clinton Calls Trump Indictments a ‘Terrible Moment for Our Country’**\
+**Hillary Clinton Says ‘I Don’t Feel Any Satisfaction’ From Trump Indictments**\
 `In an interview on MSNBC, Mrs. Clinton pointed to the investigations into election interference and said that “the only satisfaction may be that the system is working.”`\
 https://nytimes.com/2023/08/15/us/hillary-clinton-trump-georgia-indictments.html?searchResultPosition=1
 
