@@ -19,7 +19,7 @@ https://nytimes.com/2023/08/14/us/hawaiian-electric-maui-wildfire.html?searchRes
 https://nytimes.com/2023/08/14/technology/sam-bankman-fried-ftx-prosecutors.html?searchResultPosition=5
 
 **Roaring Back From Pandemic, Japan’s Economy Grows by 6 Percent**\
-`The rapid expansion came as exports have risen and tourists have flooded the country.`\
+`The rapid expansion came as exports have risen and tourists have flooded the country. But a drop in domestic consumption worried economists.`\
 https://nytimes.com/2023/08/14/business/japan-economy-gdp.html?searchResultPosition=6
 
 **At a College Targeted by DeSantis, Gender Studies Is Out, Jocks Are In**\
