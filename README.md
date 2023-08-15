@@ -14,7 +14,7 @@ https://nytimes.com/2023/08/15/dining/where-i-ate-in-new-york-city.html?searchRe
 `A mohel who became a boldface name, he said his record in 45 years of performing the Jewish religious rite was 11 in a single day (including two pairs of twins).`\
 https://nytimes.com/2023/08/15/nyregion/philip-l-sherman-dead.html?searchResultPosition=4
 
-**How did a publicist tied to Kanye West get caught up in the Georgia investigation?**\
+**A Publicist Tied to Kanye West Got Caught Up in the Georgia Trump Investigation**\
 `Trevian Kutti is better known for her work in the cannabis and entertainment industries, where she has been tied to Ye, the rapper formerly known as Kanye West.`\
 https://nytimes.com/2023/08/15/us/elections/trevian-kutti-trump-georgia-kanye-west.html?searchResultPosition=5
 
