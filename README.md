@@ -15,7 +15,7 @@ https://nytimes.com/2023/08/14/us/politics/trump-indictments-georgia-criminal-ch
 https://nytimes.com/2023/08/14/us/trump-georgia-rico-charges.html?searchResultPosition=4
 
 **Read the Trump Georgia Indictment**\
-`A grand jury in Fulton County, Ga.`\
+`A grand jury in Fulton County, Ga., on Monday unveiled the fourth criminal indictment of former President Donald J. Trump. The indictment, over Mr. Trump’s efforts to overturn his 2020 election loss, also charges 18 other defendants.`\
 https://nytimes.com/interactive/2023/08/14/us/georgia-indictment-trump.html?searchResultPosition=5
 
 **Cards Handed to a Bouncer**\
