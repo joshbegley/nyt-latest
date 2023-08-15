@@ -1,40 +1,40 @@
-**Typhoon Lan Knocks Out Power for Thousands in Western Japan**\
-`The heavy rains and winds brought by the storm prompted evacuation warnings and the cancellation of hundreds of flights.`\
-https://nytimes.com/2023/08/15/world/asia/typhoon-lan-japan.html?searchResultPosition=1
+**Your Clothes Were Never Meant to Fit You**\
+`The fashion industry was never built to cater to women’s bodies. But there’s a simple solution: Just make it, toots.`\
+https://nytimes.com/2023/08/15/opinion/clothes-plus-size-women.html?searchResultPosition=1
 
-**Reviving the Redwoods**\
-`A mission to undo decades of damage to the redwoods of California caused by unchecked logging involves even more logging — and chain saws.`\
-https://nytimes.com/2023/08/15/science/redwood-trees-logging-california.html?searchResultPosition=2
+**Dinner With Huma Abedin and a Bit of Texas in the Hamptons**\
+`Ms. Abedin, the longtime political aide, co-hosted a dinner, and the West Texas art and performance space drew supporters to a fund-raiser.`\
+https://nytimes.com/2023/08/15/style/huma-abedin-hamptons-dinner.html?searchResultPosition=2
 
-**A Private Equity Firm Might Be Your Next Landlord**\
-`Investment firms are buying smaller buildings in the boroughs from families and smaller landlords. Some tenants are wary.`\
-https://nytimes.com/2023/08/15/nyregion/private-equity-apartments-nyc.html?searchResultPosition=3
+**At 89, Still Making Art (and Bread) With a Message**\
+`Peter Schumann’s Bread and Puppet Theater is going strong and, at 89, so is he. But what will happen to his company when he is gone?`\
+https://nytimes.com/2023/08/15/theater/bread-and-puppet-theater-peter-schumann.html?searchResultPosition=3
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/08/15/crosswords/spelling-bee-forum.html?searchResultPosition=4
+**In the Battle Between Bots and Comedians, A.I. Is Killing**\
+`In roast battles and stage shows, comics are experimenting with ChatGPT and other models. But inspired stand-ups shouldn’t fear for their jobs — yet.`\
+https://nytimes.com/2023/08/15/arts/television/comedy-artificial-intelligence-chatgpt.html?searchResultPosition=4
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/08/15/crosswords/wordle-review-answer-787.html?searchResultPosition=5
+**A View of the Met From Behind the Information Desk**\
+`On and off throughout the 1990s, the poet Robyn Schiff fielded questions — many bathroom-related — as part of her job working the museum’s famous octagonal information desk.`\
+https://nytimes.com/2023/08/15/style/robyn-schiff-metropolitan-museum-of-art.html?searchResultPosition=5
 
-**Sentenced to Life as Boys, They Made Their Case for Release**\
-`At age 17, Donnell Drinks was one of many young men in Philadelphia who went to prison for life without parole. Today, the city has resentenced more of those prisoners than any other jurisdiction.`\
-https://nytimes.com/2023/08/15/headway/prison-life-sentence-release.html?searchResultPosition=6
+**With Racketeering Charges, Georgia Prosecutor Aims to ‘Tell the Whole Story’**\
+`Prosecutors have found racketeering laws to be powerful tools in targeting not only foot soldiers in a criminal enterprise, but also high-level decision makers.`\
+https://nytimes.com/2023/08/15/us/trump-rico-charges-georgia.html?searchResultPosition=6
 
-**Word of the Day: eschew**\
-`This word has appeared in 52 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/08/15/learning/word-of-the-day-eschew.html?searchResultPosition=7
+**The Long, Lonely Wait for Justice for 17 Fallen U.S. Sailors**\
+`Families of the sailors who were killed in the bombing of the U.S.S. Cole and survivors having been making the trek to the war court at Guantánamo Bay for pretrial hearings since 2011.`\
+https://nytimes.com/2023/08/15/us/politics/uss-cole-bombing-case.html?searchResultPosition=7
 
-**Fulton County D.A. Indicts Trump and 18 Others**\
-`The criminal indictment, brought by District Attorney Fani T. Willis, was the fourth for former President Donald Trump.`\
-https://nytimes.com/video/us/elections/100000009041773/trump-indictment-fulton-county-2020-election.html?searchResultPosition=8
+**A Slow-Fuse Tale of Obsession and Marital Claustrophobia**\
+`In Maud Ventura’s “My Husband,” a Frenchwoman cannot stop surveilling her spouse: “I think of my husband all the time; I wish I could text him all day.”`\
+https://nytimes.com/2023/08/15/books/review/new-thrillers.html?searchResultPosition=8
 
-**Dozens Said to Be Missing After Myanmar Jade Mine Landslide**\
-`The disaster occurred in Kachin State, where wildcat jade miners toil in dangerous conditions and landslides are common during the monsoon season.`\
-https://nytimes.com/2023/08/15/world/asia/myanmar-jade-mine-landslide.html?searchResultPosition=9
+**Searching in Sweden for Berries, Herbs and Understanding**\
+`For over a decade, Eva Gunnare has been trying to restore people’s relationship with nature — by teaching them how to forage.`\
+https://nytimes.com/2023/08/15/travel/sweden-foraging-eva-gunnare.html?searchResultPosition=9
 
-**Tuesday Briefing**\
-`Donald Trump’s indictment on racketeering charges in Georgia.`\
-https://nytimes.com/2023/08/15/briefing/tuesday-briefing.html?searchResultPosition=10
+**You Can Take Your Dog to a National Park, but You’ll Both Need to Be Very, Very Good**\
+`With expanded park programs and new online resources, planning a park-centric trip with a dog — or a dog-centric trip to a park — has gotten easier in recent years. Here’s what you need to know.`\
+https://nytimes.com/2023/08/15/travel/national-parks-dogs.html?searchResultPosition=10
 
