@@ -11,7 +11,7 @@ https://nytimes.com/2023/08/14/us/politics/trump-indictments-georgia-criminal-ch
 https://nytimes.com/2023/08/14/us/trump-georgia-rico-charges.html?searchResultPosition=3
 
 **Read The Trump Georgia Indictment**\
-`The federal indictment unveiled on Tuesday charges former President Donald J. Trump with four crimes related to his efforts to overturn the 2020 election, culminating in the Capitol riot on Jan. 6, 2021.`\
+`A grand jury in Fulton County, Ga.`\
 https://nytimes.com/interactive/2023/08/14/us/georgia-indictment-trump.html?searchResultPosition=4
 
 **Cards Handed to a Bouncer**\
