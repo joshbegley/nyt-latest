@@ -22,8 +22,8 @@ https://nytimes.com/2023/08/15/movies/untold-hall-of-shame-review.html?searchRes
 `The fourth indictment against Trump presents unique challenges for him.`\
 https://nytimes.com/2023/08/15/briefing/georgia-trump-indictment.html?searchResultPosition=6
 
-**Spain, Getting Last Word, Reaches First World Cup Final**\
-`A late goal by Spain, an answer from Sweden, and then a dramatic winner by Olga Carmona that moved the Spanish one win from the trophy.`\
+**Spain Gets Last Word, and Reaches First World Cup Final**\
+`A late swing of goals and emotions ends with a dramatic winner by Olga Carmona, and Spain one win from its first world championship.`\
 https://nytimes.com/2023/08/15/sports/soccer/womens-world-cup-spain-sweden.html?searchResultPosition=7
 
 **Iced Coffee and Flip-Flops as Europe Broils? Not So Fast, Americans.**\
