@@ -1,6 +1,6 @@
 **Trump Indictment, Part IV: A Spectacle That Has Become Surreally Routine**\
 `The former president has sought to systematically drain the suspense from his criminal cases. But the Trial(s) of the Century loom.`\
-https://nytimes.com/2023/08/14/us/politics/trump-indictment-spectacle.html?searchResultPosition=1
+https://nytimes.com/2023/08/14/us/politics/trump-indictments-georgia-criminal-charges.html?searchResultPosition=1
 
 **Trump and Allies in Georgia Face RICO Charges. Here’s What That Means.**\
 `The Racketeering Influenced and Corrupt Organizations Act is a powerful law enforcement tool.`\
@@ -22,7 +22,7 @@ https://nytimes.com/2023/08/14/us/politics/fema-maui-hawaii-wildfires.html?searc
 `Unconfirmed reports from a Russian news agency said the death toll from the explosion, whose cause was not yet known, could be 25 or more.`\
 https://nytimes.com/2023/08/14/world/europe/dagestan-russia-gas-station-blast.html?searchResultPosition=6
 
-**Hawaiian Electric Draws Scrutiny in Search for What Sparked Deadly Wildfire**\
+**Experts Scrutinize Hawaiian Electric in Their Search for the Maui Wildfire Cause**\
 `The main utility serving Hawaii did not pre-emptively shut off power before high winds reached Maui, and power lines fell in the windstorm.`\
 https://nytimes.com/2023/08/14/us/hawaiian-electric-maui-wildfire.html?searchResultPosition=7
 
