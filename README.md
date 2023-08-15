@@ -26,8 +26,8 @@ https://nytimes.com/2023/08/14/crosswords/daily-puzzle-2023-08-15.html?searchRes
 `FEMA is typically the first agency to face scrutiny after disasters. But while the federal agency plays a critical role in disaster response, it is not meant to be the first on the scene.`\
 https://nytimes.com/2023/08/14/us/politics/fema-maui-hawaii-wildfires.html?searchResultPosition=7
 
-**At Least 5 Dead in Blast at Gas Station in Russia’s Dagestan Region**\
-`Unconfirmed reports from a Russian news agency said the death toll from the explosion, whose cause was not yet known, could be 25 or more.`\
+**Dozens Reported Dead in Fire at Gas Station in Southern Russia**\
+`Reports from news agencies said at least 25 people were killed and 66 injured. The fire in the Dagestan region caused multiple explosions, one report said.`\
 https://nytimes.com/2023/08/14/world/europe/dagestan-russia-gas-station-blast.html?searchResultPosition=8
 
 **Experts Scrutinize Hawaiian Electric as They Search for the Maui Wildfire Cause**\
