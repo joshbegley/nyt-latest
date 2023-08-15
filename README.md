@@ -1,5 +1,5 @@
 **The Trump Georgia Indictment, Annotated**\
-`The federal indictment unveiled on Monday, August 14 charges former President Donald J. Trump with 13 crimes related to his efforts to reverse his election loss in Georgia.`\
+`The indictment unveiled on Monday, August 14 charges former President Donald J. Trump with 13 crimes related to his efforts to reverse his election loss in Georgia.`\
 https://nytimes.com/interactive/2023/08/15/us/politics/trump-georgia-indictment-annotated.html?searchResultPosition=1
 
 **Mark Meadows, Trump’s Chief of Staff, Is a Key Figure in Georgia Election Case**\
