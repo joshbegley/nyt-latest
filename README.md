@@ -1,5 +1,5 @@
 **Spain, Getting Last Word, Reaches First World Cup Final**\
-`A late goal by Spain, an answer from Sweden, and then the shot that moved the Spanish one win from the trophy.`\
+`A late goal by Spain, an answer from Sweden, and then a dramatic winner by Olga Carmona that moved the Spanish one win from the trophy.`\
 https://nytimes.com/2023/08/15/sports/soccer/womens-world-cup-spain-sweden.html?searchResultPosition=1
 
 **Iced Coffee and Flip-Flops as Europe Broils? Not So Fast, Americans.**\
