@@ -2,7 +2,7 @@
 `Britain’s counterterrorism unit arrested the five on suspicion of spying on British intelligence, the authorities said following a BBC report that three of the same people had been accused of spying for Russia.`\
 https://nytimes.com/2023/08/15/world/europe/uk-spies-arrested-russia.html?searchResultPosition=1
 
-**Comparing the Four Criminal Cases Against Donald J. Trump**\
+**Comparing the Four Criminal Cases Against Donald Trump**\
 `An assessment of the four indictments against the former president, including notable features, strengths and weaknesses.`\
 https://nytimes.com/2023/08/15/us/politics/trump-cases-counts-charges-strengths.html?searchResultPosition=2
 
