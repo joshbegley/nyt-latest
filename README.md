@@ -28,7 +28,7 @@ https://nytimes.com/2023/08/15/us/politics/election-deniers-charges-indictment.h
 
 **Can She Revive the Largest Museum on the African Continent?**\
 `“There was a feeling that we cannot let this fail,” Koyo Kouoh said of taking the top job at Zeitz MOCAA. She wants to make it relevant to the Pan-African world and beyond.`\
-https://nytimes.com/2023/08/15/arts/design/zeitz-museum-contemporary-art-koyo-kuouh.html?searchResultPosition=8
+https://nytimes.com/2023/08/15/arts/design/zeitz-museum-south-africa-kouoh.html?searchResultPosition=8
 
 **Woman Is Awarded $1.2 Billion in ‘Revenge Porn’ Lawsuit**\
 `A jury ruled in favor of a Texas woman who said her ex-boyfriend had psychologically and sexually abused her by sharing intimate images of her online without her consent.`\
