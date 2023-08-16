@@ -26,8 +26,8 @@ https://nytimes.com/2023/08/16/world/europe/britain-tony-blair-labour-election.h
 `The action comes days after a U.S.-led coalition accused Riad Salameh of decades of corruption to enrich himself at the expense of his country.`\
 https://nytimes.com/2023/08/16/business/lebanon-former-central-bank-governor-riad-salameh.html?searchResultPosition=7
 
-**First, a Ferocious Fire. Now a Slow, Grim Search for the Dead.**\
-`As families face an agonizing wait for word on missing loved ones, the final death toll from the fire is likely to rise.`\
+**First, a Ferocious Fire. Now, a Slow, Grim Search for the Dead.**\
+`As families face an agonizing wait for word on missing loved ones, the death toll from the fire is likely to rise.`\
 https://nytimes.com/2023/08/16/us/maui-wildfire-victims-deaths-search.html?searchResultPosition=8
 
 **Bring Back to Life**\
