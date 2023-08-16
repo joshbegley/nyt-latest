@@ -10,7 +10,7 @@ https://nytimes.com/2023/08/16/movies/iran-filmmaker-saeed-roustaee-jailed.html?
 `A teaser for the Netflix biopic has ignited a new round of criticism that the family described as a misunderstanding.`\
 https://nytimes.com/2023/08/16/movies/bradley-cooper-prosthetic-nose-leonard-bernstein.html?searchResultPosition=3
 
-**Rishi Sunak’s Vacation: Taylor Swift and Disneyland. (The Rest is a Secret.)**\
+**Rishi Sunak’s Vacation: Taylor Swift and Disneyland. (The Rest Is a Secret.)**\
 `Thanks in part to careful media handling, the British prime minister, who has been criticized for his wife’s wealth and his U.S. ties, survived a trip to California with barely a peep of reproach.`\
 https://nytimes.com/2023/08/16/world/europe/uk-rishi-sunak-vacation.html?searchResultPosition=4
 
