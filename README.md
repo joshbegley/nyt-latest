@@ -1,6 +1,6 @@
 **Germany Government Approves Plan to Legalize Some Marijuana Use**\
 `Germany’s federal cabinet signed off on legalization legislation, but the plan was weaker than the government’s initial proposal.`\
-https://nytimes.com/2023/08/16/world/europe/germany-government-approves-plan-to-legalize-some-marijuana-use.html?searchResultPosition=1
+https://nytimes.com/2023/08/16/world/europe/germany-legal-marijuana.html?searchResultPosition=1
 
 **Jackie Kennedy as You’ve Never Seen Her**\
 `The former first lady, Naomi Campbell and Anne Hathaway are among those whose faces Hugh Findletar has reimagined as glass vases.`\
