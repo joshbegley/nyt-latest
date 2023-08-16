@@ -1,40 +1,40 @@
-**China Scuttles a $5.4 Billion Microchip Deal Led by U.S. Giant Intel**\
-`Intel calls off its planned acquisition of Tower Semiconductor, an Israeli chip maker, after waiting in vain for 18 months for a review by Chinese regulators.`\
-https://nytimes.com/2023/08/16/business/intel-tower-semiconductor-china.html?searchResultPosition=1
+**Manasquan, N.J.: A Beach Town Where Kids ‘Have a Little More Freedom’**\
+`This shoreline borough is becoming more polished, but residents still cherish its old-fashioned vibe: “That’s the cool part about growing up here.”`\
+https://nytimes.com/2023/08/16/realestate/manasquan-new-jersey.html?searchResultPosition=1
 
-**U.K. Inflation Eases to 6.8% as Energy Prices Fall**\
-`The slowdown in price pressures comes as wages are rising at a record pace, which could lead to further increases in interest rates by the Bank of England.`\
-https://nytimes.com/2023/08/16/business/uk-inflation-july.html?searchResultPosition=2
+**Living In ... Manasquan, N.J.**\
+`This beach town is becoming more polished, but residents still cherish its old-fashioned vibe: “That’s the cool part about growing up here.”`\
+https://nytimes.com/slideshow/2023/08/16/realestate/living-in-manasquan-nj.html?searchResultPosition=2
 
-**‘Biased.’ ‘Corrupt.’ ‘Deranged.’ Trump’s Taunts Test Limits of Release.**\
-`Some lawyers have said that if the former president were an ordinary citizen issuing these attacks, he would be in jail by now. The question is whether he will face similar consequences.`\
-https://nytimes.com/2023/08/16/us/politics/trump-chutkan-2020-election-truth-social.html?searchResultPosition=3
+**Why Are People Still Pressing Flowers? It’s a Form of Storytelling.**\
+`For 500 years, we’ve documented the science and beauty of the natural world by pressing plants. It’s a tradition that anyone can join.`\
+https://nytimes.com/2023/08/16/realestate/pressed-flowers-plants.html?searchResultPosition=3
 
-**Synagogues in 12 States Targeted in Hoax Calls to Police**\
-`The Anti-Defamation League has tracked 26 calls threatening violence at synagogues from New York to California over the last month.`\
-https://nytimes.com/2023/08/16/nyregion/synagogues-swatting-antisemitism.html?searchResultPosition=4
+**Pharrell Williams Shares His Inspirations, From Henry Taylor to ‘Jabberjaw’**\
+`The multifaceted producer, designer and new creative director of men’s wear at Louis Vuitton gives T a glimpse of his creative world.`\
+https://nytimes.com/2023/08/16/t-magazine/pharrell-williams-louis-vuitton.html?searchResultPosition=4
 
-**Cannabis Vendors in Limbo as Judge Halts N.Y. License Program**\
-`The state made convicted weed dealers the first legal sellers. Those left out sued, and a judge paused the program.`\
-https://nytimes.com/2023/08/16/nyregion/new-york-marijuana-rollout-delay.html?searchResultPosition=5
+**Sean Paul Is Still Busy**\
+`For more than 20 years he’s taught generations to let loose on the dance floor. He’s not stopping anytime soon.`\
+https://nytimes.com/2023/08/16/magazine/sean-paul.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/08/16/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**A Harvard President’s Reflections on a Southern Girlhood**\
+`In “Necessary Trouble,” Drew Gilpin Faust, Harvard’s former leader, wrestles with her conservative Southern upbringing, and the unfinished business of the Civil War.`\
+https://nytimes.com/2023/08/16/arts/drew-gilpin-faust-harvard-necessary-trouble.html?searchResultPosition=6
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/08/16/crosswords/wordle-review-answer-788.html?searchResultPosition=7
+**When Hackers Descended to Test A.I., They Found Flaws Aplenty**\
+`The hackers had the blessing of the White House and leading A.I. companies, which want to learn about vulnerabilities before those with nefarious intentions do.`\
+https://nytimes.com/2023/08/16/technology/when-hackers-descended-to-test-ai-they-found-flaws-aplenty.html?searchResultPosition=7
 
-**Corrections: Aug. 16, 2023**\
-`Corrections that appeared in print on Wednesday, Aug. 16, 2023.`\
-https://nytimes.com/2023/08/16/pageoneplus/corrections-aug-16-2023.html?searchResultPosition=8
+**In Georgia Case Against Trump, a Trial Within Six Months Could Be a Stretch**\
+`The prosecutor in the racketeering case against Donald Trump and 18 allies has an ambitious timeline. Experts have their doubts.`\
+https://nytimes.com/2023/08/16/us/trump-georgia-trial-schedule.html?searchResultPosition=8
 
-**Quotation of the Day: She Was Brazil’s Barbie. She Has Some Regrets.**\
-`Quotation of the Day for Wednesday, August 16, 2023.`\
-https://nytimes.com/2023/08/16/pageoneplus/quotation-of-the-day-she-was-brazils-barbie-she-has-some-regrets.html?searchResultPosition=9
+**Romance Novels That Celebrate the Hard Work of Love**\
+`In these books, love is a choice you make over and over, not just on one day in a white dress.`\
+https://nytimes.com/2023/08/16/books/review/new-romance-novels.html?searchResultPosition=9
 
-**Word of the Day: chromatic**\
-`This word has appeared in 28 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/08/16/learning/word-of-the-day-chromatic.html?searchResultPosition=10
+**A Dormant Dome for Cinephiles Is Unsettling Hollywood**\
+`The shuttered ArcLight theater complex, whose striking Cinerama Dome evokes a Technicolor past, is a symbol of a movie industry in turmoil, even in its own backyard.`\
+https://nytimes.com/2023/08/16/movies/arclight-theater-hollywood.html?searchResultPosition=10
 
