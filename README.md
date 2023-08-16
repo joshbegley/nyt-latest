@@ -3,7 +3,7 @@
 https://nytimes.com/interactive/2023/08/16/arts/editors-recommendations-past-lives.html?searchResultPosition=1
 
 **Santos Aide Who Impersonated McCarthy Staff Member Faces Federal Charges**\
-`The aide, Samuel Miele, was accused of impersonating the staff member in fund-raising appeals and was charged with wire fraud and identity theft.`\
+`The aide, Samuel Miele, impersonated Speaker Kevin McCarthy’s chief of staff in fund-raising appeals and was charged with wire fraud and identity theft.`\
 https://nytimes.com/2023/08/16/nyregion/sam-miele-charged-george-santos.html?searchResultPosition=2
 
 **Trump’s Indictment Has Georgia Republicans Fearing Replay of 2020**\
