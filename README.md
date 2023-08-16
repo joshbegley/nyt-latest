@@ -1,40 +1,40 @@
+**One Family’s Toxic Train Wreck Ordeal: Illness, Exile and Debt**\
+`The Albright family left town after a train carrying toxic chemicals derailed near their Ohio home. Now, they are back, facing personal, medical and financial crises in a newly divided community.`\
+https://nytimes.com/2023/08/16/health/east-palestine-ohio-train-derailment-crisis.html?searchResultPosition=1
+
+**How a Small Group of Firms Changed the Math for Insuring Against Natural Disasters**\
+`Climate change, inflation and global instability have thrust companies that sell insurance to insurers into the spotlight.`\
+https://nytimes.com/2023/08/16/business/reinsurance-global-crises.html?searchResultPosition=2
+
+**Clue to Pterosaur Origins Found in Fossil of Flightless ‘Rabbit Reptile’**\
+`A Brazilian team’s finding helps fill in the fossil record to explain how the flightless reptiles evolved in the dinosaur era.`\
+https://nytimes.com/2023/08/16/science/pterosaur-fossil-brazil.html?searchResultPosition=3
+
+**Crispy Rice, Spicy Tuna, Easy Dinner**\
+`Tuna salad, spiked with soy and Sriracha, tops toasted slabs of sushi rice in this weeknight winner from Ali Slagle.`\
+https://nytimes.com/2023/08/16/dining/crispy-rice-spicy-tuna-easy-dinner.html?searchResultPosition=4
+
 **Target’s Sales Hit by Pride Month Merchandise Backlash**\
 `The retailer’s quarterly sales fell, in part because of boycotts over Pride-themed displays, and it cut its forecast for the full year.`\
-https://nytimes.com/2023/08/16/business/target-sales-pride-backlash.html?searchResultPosition=1
+https://nytimes.com/2023/08/16/business/target-sales-pride-backlash.html?searchResultPosition=5
 
 **Two American Tourists Caught Sleeping in the Eiffel Tower**\
 `The two men posed no threat and were handed over to the police, officials said.`\
-https://nytimes.com/2023/08/16/world/europe/us-tourists-eiffel-tower.html?searchResultPosition=2
+https://nytimes.com/2023/08/16/world/europe/us-tourists-eiffel-tower.html?searchResultPosition=6
 
 **Read the letter**\
 `New York City’s request for additional assistance from New York State in response to the migrant crisis.`\
-https://nytimes.com/interactive/2023/08/16/nyregion/new-york-city-request-from-new-york-state-in-migrant-case.html?searchResultPosition=3
+https://nytimes.com/interactive/2023/08/16/nyregion/new-york-city-request-from-new-york-state-in-migrant-case.html?searchResultPosition=7
 
 **Read the letter**\
 `New York State’s response to New York City’s request for additional help to handle the migrant crisis.`\
-https://nytimes.com/interactive/2023/08/16/us/new-york-state-response-to-new-york-city-in-migrant-case.html?searchResultPosition=4
+https://nytimes.com/interactive/2023/08/16/us/new-york-state-response-to-new-york-city-in-migrant-case.html?searchResultPosition=8
 
 **Neither Messi Nor Miami Has Come Back to Earth**\
 `The goals keep coming, and a team that once looked poor keeps winning.`\
-https://nytimes.com/2023/08/16/sports/lionel-messi-inter-miami-philadelphia-union.html?searchResultPosition=5
+https://nytimes.com/2023/08/16/sports/lionel-messi-inter-miami-philadelphia-union.html?searchResultPosition=9
 
 **How an L.A.-Based New York Times Reporter Covered the Maui Fires**\
 `Like many Californians, I have long felt in Hawaii a kind of cultural home. I flew to Maui last week to witness the devastation.`\
-https://nytimes.com/2023/08/16/us/california-lahaina-maui-fires-reporting.html?searchResultPosition=6
-
-**Leaving the Office at 5 Is Not a Moral Failing**\
-`Not everyone is gunning for the corner office, and that’s a good thing.`\
-https://nytimes.com/2023/08/16/opinion/corporate-work-life-balance.html?searchResultPosition=7
-
-**My Old Friend Told My Stepbrother That I Used to Hate Him. Now What?**\
-`A stray comment on a dating app brought to light some hard feelings a reader once shared with a former friend. Should she confront her about it and talk to her stepbrother?`\
-https://nytimes.com/2023/08/16/style/dating-app-confrontation.html?searchResultPosition=8
-
-**In Scathing Letter, New York State Criticizes Adams’s Migrant Response**\
-`The letter, responding to New York City’s list of demands for state help, said the city had already rebuffed some of the state’s offers and had been slow to aid migrants.`\
-https://nytimes.com/2023/08/16/nyregion/ny-migrants-adams-hochul-letter.html?searchResultPosition=9
-
-**Cargo Ship Travels From Port of Odesa in Test of Ukraine’s New Black Sea Corridor**\
-`Kyiv is aiming to resume traffic to its seaports despite Russia’s threats to ships moving to and from Ukraine.`\
-https://nytimes.com/2023/08/16/world/europe/odesa-cargo-ship-black-sea-ukraine.html?searchResultPosition=10
+https://nytimes.com/2023/08/16/us/california-lahaina-maui-fires-reporting.html?searchResultPosition=10
 
