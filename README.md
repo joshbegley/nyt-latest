@@ -30,7 +30,7 @@ https://nytimes.com/2023/08/15/us/alex-jones-bankruptcy-sandy-hook.html?searchRe
 `An island airlift brought some of the fire’s most severely wounded survivors to a Honolulu hospital unit created for just that kind of mass-casualty moment.`\
 https://nytimes.com/2023/08/15/us/maui-fire-hawaii-burn-unit.html?searchResultPosition=8
 
-**After 3 Years at Large, Man Accused of Selling Fake Covid-19 Cure Is Arrested**\
+**Utah Fugitive Accused of Selling Fake Covid-19 Cure Is Arrested**\
 `Gordon Hunter Petersen is accused of posing as a doctor and making at least $2 million selling a bogus Covid-19 cure.`\
 https://nytimes.com/2023/08/15/us/fake-doctor-covid-cure-arrested-utah.html?searchResultPosition=9
 
