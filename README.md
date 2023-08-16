@@ -18,8 +18,8 @@ https://nytimes.com/2023/08/16/arts/design/berenice-abbott-photographs-new-york.
 `Tracks by Morgan Wallen, Olivia Rodrigo, Taylor Swift and more have dominated this summer — or at least attempted to.`\
 https://nytimes.com/2023/08/16/arts/music/popcast-deluxe-song-of-the-summer.html?searchResultPosition=5
 
-**Trump Allies, and Possibly Trump, Likely to Be Booked at Notorious Atlanta Jail**\
-`The local sheriff has said that even high-profile defendants would be treated like everyone else should they surrender at the county jail.`\
+**Trump Allies Likely to Be Booked at Notorious Atlanta Jail**\
+`The local sheriff has said the defendants would be treated like everyone else should they surrender at the jail; the process for former President Trump could be different.`\
 https://nytimes.com/2023/08/16/us/trump-georgia-indictment-atlanta-jail.html?searchResultPosition=6
 
 **Thursday Briefing: China’s stock market slump**\
