@@ -30,8 +30,8 @@ https://nytimes.com/2023/08/16/books/amazon-books-justice-department.html?search
 `Ms. Scotto, a leading Italian soprano, sang more than two dozen roles at the Metropolitan Opera and was a charismatic and demanding stage partner.`\
 https://nytimes.com/2023/08/16/arts/music/renata-scotto-dead.html?searchResultPosition=8
 
-**England Ends Australia’s Run and Reaches World Cup Final**\
-`Answering a Sam Kerr goal with two of their own, the Lionesses advanced to an all-European final against Spain.`\
+**A Dream Ending for England, a Dream Denied for Australia**\
+`Answering Sam Kerr’s tying goal with two of their own, England advanced to an all-European Women’s World Cup final against Spain.`\
 https://nytimes.com/2023/08/16/sports/soccer/womens-world-cup-australia-england.html?searchResultPosition=9
 
 **With Investors on Edge, Fed Minutes Take on New Urgency**\
