@@ -1,4 +1,4 @@
-**Technical Glitch Turns Into Brief Windfall for Customers of Irish Bank**\
+**Free Cash in Ireland, at Least for a Moment, Thanks to a Bank Glitch**\
 `Some A.T.M.s around the country attracted long lines — and a police presence — after customers were apparently allowed to transfer money they did not have.`\
 https://nytimes.com/2023/08/16/world/europe/bank-ireland-technical-glitch.html?searchResultPosition=1
 
