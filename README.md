@@ -2,8 +2,8 @@
 `Some A.T.M.s around the country attracted long lines — and a police presence — after customers were apparently allowed to transfer money they did not have.`\
 https://nytimes.com/2023/08/16/world/europe/bank-ireland-technical-glitch.html?searchResultPosition=1
 
-**Germany Government Approves Plan to Legalize Some Marijuana Use**\
-`Germany’s federal cabinet signed off on legalization legislation, but the plan was weaker than the government’s initial proposal.`\
+**Germany Takes Step Toward Legalizing Marijuana**\
+`The government signed off on legislation that would allow adults to buy and possess small amounts of cannabis. Parliament still needs to approve the measure.`\
 https://nytimes.com/2023/08/16/world/europe/germany-legal-marijuana.html?searchResultPosition=2
 
 **Jackie Kennedy as You’ve Never Seen Her**\
