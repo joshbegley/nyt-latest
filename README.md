@@ -11,7 +11,7 @@ https://nytimes.com/interactive/2023/08/16/nyregion/new-york-city-request-from-n
 https://nytimes.com/interactive/2023/08/16/us/new-york-state-response-to-new-york-city-in-migrant-case.html?searchResultPosition=3
 
 **Neither Messi, Nor Miami, Has Come Back to Earth**\
-`The goals keep coming, And a team that once looked poor keeps winning.`\
+`The goals keep coming, and a team that once looked poor keeps winning.`\
 https://nytimes.com/2023/08/16/sports/lionel-messi-inter-miami-philadelphia-union.html?searchResultPosition=4
 
 **How an L.A.-Based New York Times Reporter Covered the Maui Fires**\
