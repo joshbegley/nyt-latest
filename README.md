@@ -11,7 +11,7 @@ https://nytimes.com/2023/08/16/arts/music/maxime-pascal-le-balcon.html?searchRes
 https://nytimes.com/2023/08/16/business/media/authorities-return-items-kansas-newspaper-raid.html?searchResultPosition=3
 
 **British Museum Fires Worker Accused of Stealing Gold and Gems**\
-`The museum said that it had dismissed a worker accused of stealing jewelry and gems, some thousands of years old, from a storeroom. The police are investigating.`\
+`The museum said that it had dismissed a worker accused of taking the items, some thousands of years old, from a storeroom. The police are investigating.`\
 https://nytimes.com/2023/08/16/arts/design/british-museum-theft.html?searchResultPosition=4
 
 **Coup in Niger Upends U.S. Terrorism Fight and Could Open a Door for Russia**\
