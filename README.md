@@ -19,7 +19,7 @@ https://nytimes.com/2023/08/16/arts/design/berenice-abbott-photographs-new-york.
 https://nytimes.com/2023/08/16/arts/music/popcast-deluxe-song-of-the-summer.html?searchResultPosition=5
 
 **Trump Allies Likely to Be Booked at Notorious Atlanta Jail**\
-`The local sheriff has said the defendants would be treated like everyone else should they surrender at the jail; the process for former President Trump could be different.`\
+`The local sheriff has said the defendants would be treated like everyone else should they surrender at the jail; the process for Donald J. Trump could be different.`\
 https://nytimes.com/2023/08/16/us/trump-georgia-indictment-atlanta-jail.html?searchResultPosition=6
 
 **Thursday Briefing: China’s stock market slump**\
