@@ -19,7 +19,7 @@ https://nytimes.com/2023/08/16/t-magazine/upholstered-chairs-furniture-design.ht
 https://nytimes.com/2023/08/16/style/female-designers-metropolitan-museum-musee-des-arts-decortifs.html?searchResultPosition=5
 
 **Windmill Made Famous in ‘Chitty Chitty Bang Bang’ Is for Sale in England**\
-`The property, which was the home of Dick Van Dyke’s character in the 1968 film, is listed for 9 million pounds, or $11.4 million.`\
+`The property, which was the home of Dick an Dyke’s character in the 1968 film, is listed for 9 million pounds, or $11.4 million.`\
 https://nytimes.com/2023/08/16/world/europe/chitty-chitty-bang-bang-windmill-sale.html?searchResultPosition=6
 
 **Trump in the Middle**\
