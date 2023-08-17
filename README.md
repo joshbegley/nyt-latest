@@ -6,7 +6,7 @@ https://nytimes.com/2023/08/17/health/alcohol-binge-marijuana-drugs.html?searchR
 `Tatyana Koltunyuk, an immigrant from Ukraine, has a “permanent disability” after being bitten by a shark at Rockaway Beach last week, her family said.`\
 https://nytimes.com/2023/08/17/nyregion/shark-attack-victim-rockaway-beach.html?searchResultPosition=5
 
-**Prosecutors Charge Two Men With Defrauding Donors in Telemarketing Schemes**\
+**Prosecutors Charge 2 Men With Defrauding Donors in Telemarketing Schemes**\
 `Federal prosecutors say the men bilked tens of millions of dollars from donors who had wanted to support causes such as aid to military veterans.`\
 https://nytimes.com/2023/08/17/us/politics/donor-fraud-telemarketing-schemes.html?searchResultPosition=6
 
