@@ -4,7 +4,7 @@ https://nytimes.com/2023/08/17/climate/david-uhlmann-epa.html?searchResultPositi
 
 **Houses Are Still Big. Prices Are Much Bigger.**\
 `New U.S. homes sold in 2022 were slightly smaller than those sold a decade earlier. But the prices have skyrocketed.`\
-https://nytimes.com/2023/08/17/realestate/houses-are-still-big-prices-are-much-bigger.html?searchResultPosition=2
+https://nytimes.com/2023/08/17/realestate/housing-prices.html?searchResultPosition=2
 
 **Ukraine Says Kyiv Won’t Receive F-16 Fighter Jets This Year**\
 `A spokesman for the Ukrainian Air Force said the advanced planes won’t arrive by winter, meaning they won’t play a role in the latest counteroffensive push.`\
