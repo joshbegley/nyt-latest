@@ -1,5 +1,5 @@
 **Economic Optimism**\
-`Sentiments around the economy aren’t as bleak.`\
+`Sentiments around the economy are improving.`\
 https://nytimes.com/2023/08/17/briefing/economy.html?searchResultPosition=1
 
 **Villages on Ukraine’s Front Line Face Constant Threat of Bombardment**\
