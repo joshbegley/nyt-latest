@@ -1,40 +1,40 @@
+**In the Vermont Woods, a Loftier Place for Leaf-Peeping**\
+`Plus: Jean Cocteau’s countryside house, sustainable Nordic fashion — and more recommendations from T Magazine.`\
+https://nytimes.com/2023/08/17/t-magazine/twin-farms-vermont-tree-houses.html?searchResultPosition=1
+
+**Readers Recommend the Best Places to Experience Art in California**\
+`Favorite offerings include an art walk in Santa Rosa, a public library dedicated to the arts in Glendale and the Broad family’s collection in L.A.`\
+https://nytimes.com/2023/08/17/us/california-best-art-museums.html?searchResultPosition=2
+
+**Homes for Sale in Manhattan and Queens**\
+`This week’s listings are in Lincoln Square, Kips Bay and Long Island City.`\
+https://nytimes.com/2023/08/17/realestate/housing-market-nyc.html?searchResultPosition=3
+
+**Homes for Sale in New York and Connecticut**\
+`This week’s listings are four-bedroom homes in East Quogue, N.Y., and Stamford, Conn.`\
+https://nytimes.com/2023/08/17/realestate/housing-market-near-nyc.html?searchResultPosition=4
+
 **What to Know About E-Bikes in New York City**\
 `Next month, a new city law will ban the sale of e-bikes and e-scooters that have not been certified for safety.`\
-https://nytimes.com/article/ebike-laws-nyc.html?searchResultPosition=1
+https://nytimes.com/article/ebike-laws-nyc.html?searchResultPosition=5
 
 **Why Wall Street is Gung-ho on the Housing Market**\
 `Despite mortgage rates hitting multidecade highs and jitters in the bond market, demand for new homes is strong and prices are rising.`\
-https://nytimes.com/2023/08/17/business/wall-street-housing-market-mortgages.html?searchResultPosition=2
+https://nytimes.com/2023/08/17/business/wall-street-housing-market-mortgages.html?searchResultPosition=6
 
 **Walmart Records Strong Sales as It Draws More Shoppers**\
 `The retail giant raised its forecasts for revenue and profit this year, as it attracts consumers seeking cheaper groceries and other essentials.`\
-https://nytimes.com/2023/08/17/business/walmart-consumer-spending.html?searchResultPosition=3
+https://nytimes.com/2023/08/17/business/walmart-consumer-spending.html?searchResultPosition=7
 
 **Houses Are Still Big. Prices Are Much Bigger.**\
 `New U.S. homes sold in 2022 were slightly smaller than those sold a decade earlier. But the prices have skyrocketed.`\
-https://nytimes.com/2023/08/17/realestate/housing-prices.html?searchResultPosition=4
+https://nytimes.com/2023/08/17/realestate/housing-prices.html?searchResultPosition=8
 
 **New Top Cop at the E.P.A. Aims to Get Enforcement Back on Track**\
 `The head of the unit that investigates environmental crimes is promising to “hold polluters accountable.”`\
-https://nytimes.com/2023/08/17/climate/david-uhlmann-epa.html?searchResultPosition=5
+https://nytimes.com/2023/08/17/climate/david-uhlmann-epa.html?searchResultPosition=9
 
 **Ukraine Says Kyiv Won’t Receive F-16 Fighter Jets This Year**\
 `A spokesman for the Ukrainian Air Force said the advanced planes won’t arrive by winter, meaning they won’t play a role in the latest counteroffensive push.`\
-https://nytimes.com/2023/08/17/world/europe/ukraine-f16-jets-nato.html?searchResultPosition=6
-
-**‘Back on the Strip’ Review: Just Some Mikes in Need of Magic**\
-`Wesley Snipes plays the leader of a has-been group of strippers vying for a second act in this ensemble comedy, which struggles to turn its gimmicky ideas into laughs.`\
-https://nytimes.com/2023/08/17/movies/back-on-the-strip-review.html?searchResultPosition=7
-
-**‘Landscape With Invisible Hand’ Review: Hit Subscribe, Alien Overlords**\
-`The latest film from Cory Finley follows two teens on an alien-controlled earth who stream their love life to an extraterrestrial audience.`\
-https://nytimes.com/2023/08/17/movies/landscape-with-invisible-hand-review.html?searchResultPosition=8
-
-**‘Simone: Woman of the Century’ Review: An Admired Leader in Focus**\
-`Elsa Zylberstein and Rebecca Marder play the French politician Simone Veil in this heavy-handed biopic.`\
-https://nytimes.com/2023/08/17/movies/simone-woman-of-the-century-review.html?searchResultPosition=9
-
-**‘Birth/Rebirth’ Review: Staying (Not Quite) Alive**\
-`Two women nurture a reanimated child in this grisly gynecological horror movie.`\
-https://nytimes.com/2023/08/17/movies/birth-rebirth-review.html?searchResultPosition=10
+https://nytimes.com/2023/08/17/world/europe/ukraine-f16-jets-nato.html?searchResultPosition=10
 
