@@ -1,40 +1,40 @@
-**They Live in Constant Pain, but Their Doctors Won’t Help Them**\
-`Pain patients have become the unintended victims of a national crackdown on opioid prescribing.`\
-https://nytimes.com/video/opinion/100000008971121/opioids-chronic-pain-patients.html?searchResultPosition=1
+**What Alex Jones, Woody Allen and Robert F. Kennedy Jr. Share**\
+`Skyhorse Publishing has built a reputation for taking on authors that other houses avoid. And its founder has helped Kennedy mount a bid for president.`\
+https://nytimes.com/2023/08/17/books/skyhorse-robert-kennedy-jr-president.html?searchResultPosition=1
 
-**Eye on China, Biden Pulls Japan and South Korea Closer**\
-`The president will host the leaders of the two Asian democracies at Camp David, as Russia’s invasion of Ukraine spurs them to rapidly mend relations.`\
-https://nytimes.com/2023/08/17/world/asia/camp-david-summit-japan-south-korea-biden.html?searchResultPosition=2
+**The Essential Ursula K. Le Guin**\
+`Her powerful imagination turned hypothetical elsewheres into vivid worlds governed by forces of nature, technology, gender, race and class a far cry from our own.`\
+https://nytimes.com/article/ursula-k-leguin-best-books.html?searchResultPosition=2
 
-**Eric Adams Promised to Be the Bus Mayor. Riders Are Still Waiting.**\
-`Mayor Eric Adams pledged to create 150 miles of bus lanes in New York City in four years. Then politics interfered.`\
-https://nytimes.com/2023/08/17/nyregion/eric-adams-buses-nyc.html?searchResultPosition=3
+**Yes, These Gays Are Trying to Murder You**\
+`Queer villains are all over our screens these days. What do they have to say?`\
+https://nytimes.com/2023/08/17/t-magazine/gay-villains-white-lotus-ripley.html?searchResultPosition=3
 
-**Following the Science, Above the Ground and Below**\
-`Raymond Zhong has experienced highs and lows while reporting on the environment. Literally.`\
-https://nytimes.com/2023/08/17/insider/following-the-science-above-the-ground-and-below.html?searchResultPosition=4
+**We Know Where New Weight Loss Drugs Came From, but Not Why They Work**\
+`The empty auditoriums, Gila monsters, resistant pharmaceutical executives and enigmas that led to Ozempic and other drugs that may change how society thinks about obesity.`\
+https://nytimes.com/2023/08/17/health/weight-loss-drugs-obesity-ozempic-wegovy.html?searchResultPosition=4
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/08/17/crosswords/spelling-bee-forum.html?searchResultPosition=5
+**Bring Back the Parasol**\
+`And other time-tested ways to cope with extreme heat from cultures around the world.`\
+https://nytimes.com/2023/08/17/well/live/heat-hydration-advice.html?searchResultPosition=5
 
-**Can’t Hear the Dialogue in Your Streaming Show? You’re Not Alone.**\
-`Many of us stream shows and movies with the subtitles on all the time — and not because it’s cool.`\
-https://nytimes.com/2023/08/17/technology/personaltech/subtitles-streaming-shows-speech-enhancers.html?searchResultPosition=6
+**‘And Just Like That …’ Episode 10 Fashion: Statement Lingerie**\
+`In the new episode, Charlotte navigates her work-life balance, and Aidan gets a bad phone call.`\
+https://nytimes.com/2023/08/17/style/and-just-like-that-fashion.html?searchResultPosition=6
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/08/17/crosswords/wordle-review-answer-789.html?searchResultPosition=7
+**A Centuries-Old Fiber Supplement Entices the Ozempic Generation**\
+`Psyllium husks, a staple of South Asian medicine, are catching on in America for all kinds of uses, like easing digestion, curbing appetites and gluten-free baking.`\
+https://nytimes.com/2023/08/17/dining/psyllium-husks.html?searchResultPosition=7
 
-**More Than 60 Migrants Feared Dead After Boat Accident Off Cape Verde**\
-`The vessel carrying mostly Senegalese nationals was found off the coast of the West African archipelago. Thirty-eight people survived.`\
-https://nytimes.com/2023/08/17/world/africa/cape-verde-migrant-boat-capsizes.html?searchResultPosition=8
+**Assessing the Breadth of Trump’s Election Lies**\
+`The former president faces multiple charges related to his lies about the 2020 election. Here’s a look at some of his most repeated falsehoods.`\
+https://nytimes.com/2023/08/17/us/politics/trump-election-lies-fact-check.html?searchResultPosition=8
 
-**Word of the Day: doozy**\
-`This word has appeared in 34 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/08/17/learning/word-of-the-day-doozy.html?searchResultPosition=9
+**What It Means to Call Prostitution ‘Sex Work’**\
+`The euphemism is hardly a sign of liberation.`\
+https://nytimes.com/2023/08/17/opinion/prostitution-sex-work.html?searchResultPosition=9
 
-**Megachurch Founder Acquitted of Hiding Sexual Abuse Committed by His Father**\
-`Brian Houston, who once led Hillsong, was charged because he did not inform the police after his father admitted in 1999 to sexually assaulting a young boy decades before.`\
-https://nytimes.com/2023/08/17/world/australia/hillsong-church-abuse-not-guilty.html?searchResultPosition=10
+**YouTube Ads May Have Led to Online Tracking of Children, Research Says**\
+`YouTube’s advertising practices on kids’ channels could have resulted in companies tracking children across the web, a report said.`\
+https://nytimes.com/2023/08/17/technology/youtube-google-children-privacy.html?searchResultPosition=10
 
