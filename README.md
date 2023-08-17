@@ -1,14 +1,14 @@
+**Ramaswamy’s Faith Singled Out in DeSantis Super PAC Memo**\
+`An opposition research memo suggests that Vivek Ramaswamy, who has been gaining on Gov. Ron DeSantis of Florida in some polls, “was very much ingrained in India’s caste system.”`\
+https://nytimes.com/2023/08/17/us/politics/vivek-ramaswamy-desantis-documents.html?searchResultPosition=1
+
 **Calls for Georgia Leaders to Stymie Trump Prosecution Fall Flat, So Far**\
 `Appeals by the former president’s supporters to change the state’s rules on pardons, and to investigate or even impeach the prosecutor in the case, will likely go nowhere, at least for now.`\
-https://nytimes.com/2023/08/17/us/trump-georgia-fani-willis-republicans.html?searchResultPosition=1
+https://nytimes.com/2023/08/17/us/trump-georgia-fani-willis-republicans.html?searchResultPosition=2
 
 **A Timeline of Britney Spears and Sam Asghari’s Relationship**\
 `The singer’s relationship with Mr. Asghari, who filed for divorce on Wednesday, unfolded against the backdrop of her conservatorship struggle.`\
-https://nytimes.com/2023/08/17/style/britney-spears-sam-asghari-marriage-divorce.html?searchResultPosition=2
-
-**Ramaswamy’s Faith Singled Out in DeSantis Super PAC Memo**\
-`An opposition research memo suggests that Vivek Ramaswamy, who has been gaining on Gov. Ron DeSantis of Florida in some polls, “was very much ingrained in India’s caste system.”`\
-https://nytimes.com/2023/08/17/us/politics/vivek-ramaswamy-desantis-documents.html?searchResultPosition=3
+https://nytimes.com/2023/08/17/style/britney-spears-sam-asghari-marriage-divorce.html?searchResultPosition=3
 
 **Mortgage Rates Jumped to the Highest Level Since 2002**\
 `Also, a new era of weight loss drugs. Here’s the latest at the end of Thursday.`\
