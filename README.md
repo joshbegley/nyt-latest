@@ -30,8 +30,8 @@ https://nytimes.com/article/ebike-laws-nyc.html?searchResultPosition=7
 `Despite mortgage rates hitting multidecade highs and jitters in the bond market, demand for new homes is strong and prices are rising.`\
 https://nytimes.com/2023/08/17/business/wall-street-housing-market-mortgages.html?searchResultPosition=8
 
-**Walmart Records Strong Sales as It Draws More Shoppers**\
-`The retail giant raised its forecasts for revenue and profit this year, as it attracts consumers seeking cheaper groceries and other essentials.`\
+**Walmart Draws More Shoppers, Helping to Bolster the Economy**\
+`The company raised its forecasts for revenue and profit this year, a sign that consumers, the engine of the U.S. economy, remain resilient.`\
 https://nytimes.com/2023/08/17/business/walmart-consumer-spending.html?searchResultPosition=9
 
 **Houses Are Still Big. Prices Are Much Bigger.**\
