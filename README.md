@@ -31,7 +31,7 @@ https://nytimes.com/2023/08/17/movies/the-adults-review.html?searchResultPositio
 https://nytimes.com/2023/08/17/world/europe/nato-ukraine-russia.html?searchResultPosition=8
 
 **Another Record Summer**\
-`July had record global temperatures and high ocean threatens coral reefs and sea ice.`\
+`July had record global temperatures and high ocean heat is threatening coral reefs and sea ice.`\
 https://nytimes.com/interactive/2023/08/17/climate/noaa-climate-science.html?searchResultPosition=9
 
 **For Classical Music, Every Summer Is a Liberation**\
