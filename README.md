@@ -7,7 +7,7 @@ https://nytimes.com/2023/08/18/movies/streaming-horror-movies.html?searchResultP
 https://nytimes.com/2023/08/18/dining/pork-chops-with-cherry-peppers-with-linguine-with-clams.html?searchResultPosition=2
 
 **Architect of Fake Electors Scheme Appeared to Be Outside Capitol on Jan. 6**\
-`It remains unclear why the lawyer, Kenneth Chesebro, seemed to be with the conspiracy theorist Alex Jones outside the Capitol or how he came to be with them.`\
+`It remains unclear why the lawyer, Kenneth Chesebro, seemed to be with the conspiracy theorist Alex Jones outside the Capitol or how he came to be with Mr. Jones and his entourage.`\
 https://nytimes.com/2023/08/18/us/politics/kenneth-chesebro-jan-6-trump.html?searchResultPosition=3
 
 **Beyoncé and Taylor’s Economy and More: The Week in Reporter Reads**\
