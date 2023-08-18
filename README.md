@@ -15,7 +15,7 @@ https://nytimes.com/2023/08/17/crosswords/daily-puzzle-2023-08-18.html?searchRes
 https://nytimes.com/interactive/2023/08/17/us/state-flags-quiz.html?searchResultPosition=4
 
 **How States Are Threading the Needle on Flag Design**\
-`Utah had a state flag that didn't stand out from the crowd. The state embarked on a redesign, and found the process was far from simple`\
+`Utah had a state flag that didn't stand out from the crowd. The state embarked on a redesign, and found the process was far from simple.`\
 https://nytimes.com/interactive/2023/08/17/us/us-state-flag-design.html?searchResultPosition=5
 
 **China Evergrande, Giant Real Estate Firm, Files for U.S. Bankruptcy**\
