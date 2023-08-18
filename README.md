@@ -1,5 +1,5 @@
 **Hurricane Hilary: What Travelers Need to Know**\
-`Flights and other travel plans may be disrupted by the powerful storm moving up the Baja California Peninsula and toward the Southwestern United States.`\
+`Flights and other travel plans may be disrupted by the powerful storm moving up the Baja California Peninsula and toward the southwestern United States.`\
 https://nytimes.com/2023/08/18/travel/hurricane-hilary-travel-california.html?searchResultPosition=1
 
 **Ada Deer, Native American Voice Inside Government and Out, Dies at 88**\
