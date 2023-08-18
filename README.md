@@ -1,40 +1,40 @@
-**33 Years, Stiffest Jan. 6 Sentence So Far, Sought for Proud Boys Leaders**\
-`Federal prosecutors recommended the sentence for the group’s former chairman and a top lieutenant, while also asking for long prison terms for the other three defendants in the case.`\
-https://nytimes.com/2023/08/17/us/politics/proud-boys-prison-sentence.html?searchResultPosition=1
+**Friday Briefing**\
+`A deadly boat accident off Cape Verde.`\
+https://nytimes.com/2023/08/18/briefing/cape-verde-accident-russia-ecocide.html?searchResultPosition=1
 
-**Allies to Be Allowed to Send F-16s to Ukraine, U.S. Official Says**\
-`The jets can be sent once Ukrainian pilots are trained to operate them.`\
-https://nytimes.com/2023/08/17/world/europe/allies-to-be-allowed-to-send-f-16s-to-ukraine-us-official-says.html?searchResultPosition=2
+**‘Splash Spots’ Reinvent the Hydrant Spray Cap and Save Water**\
+`A staple of summer in the city lets children have fun without depleting firefighters’ water supply.`\
+https://nytimes.com/2023/08/18/nyregion/splash-spots-hydrant-cap.html?searchResultPosition=2
 
-**Southern Baptist Convention Leader Resigns Over False Résumé**\
-`Willie McLaurin, the interim head of a powerful committee, said he listed schools he did not attend, according to the denomination.`\
-https://nytimes.com/2023/08/17/us/southern-baptist-willie-mclaurin-resignation.html?searchResultPosition=3
+**How Geopolitics Is Complicating the Move to Clean Energy**\
+`The fate of Indonesia’s unrivaled stocks of nickel — a critical mineral used to make batteries for electric vehicles — is caught in the conflict between the United States and China.`\
+https://nytimes.com/2023/08/18/business/indonesia-nickel-china-us.html?searchResultPosition=3
 
-**Plane Crash in Malaysia Kills 10**\
-`Dash cam video and closed circuit TV footage captured the moment a private jet crashed in Elmina, Malaysia.`\
-https://nytimes.com/video/world/asia/100000009046848/malaysia-plane-crash-elmina.html?searchResultPosition=4
+**China’s Nickel Plants in Indonesia Created Needed Jobs, Plus Pollution**\
+`An influx of Chinese investment into nickel-processing on the Indonesian island of Sulawesi is sowing pollution while generating economic opportunity.`\
+https://nytimes.com/2023/08/18/business/indonesia-nickel-sulawesi-china.html?searchResultPosition=4
 
-**10 California Officers Face Corruption Charges in F.B.I. Inquiry**\
-`The arrests came after a two-year investigation that uncovered evidence that officers in two Bay Area cities, who also face civil rights charges, had “acted as though they were above the law,” a prosecutor said.`\
-https://nytimes.com/2023/08/17/us/police-officers-fbi-raid-antioch-california.html?searchResultPosition=5
+**A Fifth Grade Crush Revisited**\
+`When Christopher Anderson and Joan Winter first met in elementary school, they felt an instant connection. They picked up where they left off when they reunited as adults over a half-century later.`\
+https://nytimes.com/2023/08/18/style/joan-winter-christopher-anderson-wedding.html?searchResultPosition=5
 
-**Corrections: Aug. 18, 2023**\
-`Corrections that appeared in print on Friday, Aug. 18, 2023.`\
-https://nytimes.com/2023/08/17/pageoneplus/corrections-aug-18-2023.html?searchResultPosition=6
+**After Several Years of Dating, Jumping the Broom ‘Felt Right’**\
+`From their first date, Dennis Bates could see himself marrying Eva McKend. And Ms. McKend was confident that he was the partner she deserved.`\
+https://nytimes.com/2023/08/18/style/eva-mckend-cnn-dennis-bates-wedding.html?searchResultPosition=6
 
-**Variety: Split Decisions**\
-`Fred Piscop brings us a diversion full of deductions.`\
-https://nytimes.com/2023/08/17/crosswords/variety-split-decisions.html?searchResultPosition=7
+**A Walk Around the Lake During the Pandemic Was Poetry to Their Ears**\
+`Aria Aber and Noah Warren, both published authors, met in person for the first time in February 2021 when they took a casual stroll.`\
+https://nytimes.com/2023/08/18/style/aria-aber-noah-warren-wedding.html?searchResultPosition=7
 
-**Name on the Marquis**\
-`Kameron Austin Collins sure knows how to stack ’em.`\
-https://nytimes.com/2023/08/17/crosswords/daily-puzzle-2023-08-18.html?searchResultPosition=8
+**Out of the Closet and Into the Garden**\
+`My Jamaican mother’s hopes for life in America did not include me being gay. So how would I ever bloom?`\
+https://nytimes.com/2023/08/18/style/modern-love-gay-immigrant-jamaica-deportation.html?searchResultPosition=8
 
-**Quiz: How Much Do You Know About the U.S. State Flags?**\
-`With lawmakers in several states considering new designs, here’s a chance to test your knowledge on the country’s 50 state flags.`\
-https://nytimes.com/interactive/2023/08/17/us/state-flags-quiz.html?searchResultPosition=9
+**An Unexpected Meet-Cute, Thanks to Their Moms**\
+`Maria Antonaccio and Harry Gural met at a senior living community where each regularly visited their mothers. Before long, they bonded over bike rides, jovial dinners and shared values.`\
+https://nytimes.com/2023/08/18/style/maria-antonaccio-harry-gural-wedding.html?searchResultPosition=9
 
-**How States Are Threading the Needle on Flag Design**\
-`Utah had a state flag that didn't stand out from the crowd. The state embarked on a redesign, and found the process was far from simple.`\
-https://nytimes.com/interactive/2023/08/17/us/us-state-flag-design.html?searchResultPosition=10
+**Quotation of the Day: As Dolphins Wash Ashore, Ukraine Builds Ecocide Case Against Russia**\
+`Quotation of the Day for Friday, August 18, 2023.`\
+https://nytimes.com/2023/08/18/pageoneplus/quotation-of-the-day-as-dolphins-wash-ashore-ukraine-builds-ecocide-case-against-russia.html?searchResultPosition=10
 
