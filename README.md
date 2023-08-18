@@ -11,7 +11,7 @@ https://nytimes.com/2023/08/18/podcasts/beyonce-and-taylors-economy-and-more-the
 https://nytimes.com/2023/08/18/us/politics/desantis-republican-debate-memo.html?searchResultPosition=3
 
 **Troop Deaths and Injuries in Ukraine War Near 500,000, U.S. Officials Say**\
-`Ukraine and Russia have lost a staggering number of troops as Kyiv’s counteroffensive drags on. A lack of medical care has added to the toll.`\
+`Ukraine and Russia have lost a staggering number of troops as Kyiv’s counteroffensive drags on. A lack of rapid medical care has added to the toll.`\
 https://nytimes.com/2023/08/18/us/politics/ukraine-russia-war-casualties.html?searchResultPosition=4
 
 **How Many Former Vanity Fair Staffers Does It Take to Build a Roof?**\
