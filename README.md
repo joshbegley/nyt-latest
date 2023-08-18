@@ -1,8 +1,8 @@
 **In California and Mexico, a Rare Hurricane Sends Disaster Prep Into High Gear**\
 `Hurricane Hilary, now a Category 4 storm, has prompted flood warnings in Southern California and temporary shelters in Baja California, Mexico.`\
-https://nytimes.com/2023/08/18/us/california-hurricane-hilary-baja.html?searchResultPosition=1
+https://nytimes.com/2023/08/18/us/hurricane-hilary-flooding-california-mexico.html?searchResultPosition=1
 
-**Lolita the Orca, a Mainstay of Miami Seaquarium for 50 Years, Dies**\
+**Lolita the Orca, Mainstay of Miami Seaquarium for 50 Years, Dies**\
 `The Seaquarium said in February that it was preparing to return the killer whale to the ocean.`\
 https://nytimes.com/2023/08/18/us/lolita-orca-whale-miami-seaquarium.html?searchResultPosition=2
 
