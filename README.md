@@ -18,8 +18,8 @@ https://nytimes.com/2023/08/18/your-money/credit-card-debt.html?searchResultPosi
 `Close scrutiny of a recent image from the Webb Space Telescope revealed some questionable punctuation.`\
 https://nytimes.com/2023/08/18/science/space/question-mark-space-webb-telescope.html?searchResultPosition=5
 
-**The Genes That Let Female Butterflies See a More Colorful World**\
-`Male zebra longwing vision sticks to a duller pallette, perhaps for mating reasons. Understanding why may help unlock how differences between sexes evolve.`\
+**Why Some Male Butterflies Don’t See the World in Vivid Color**\
+`Male zebra longwing vision sticks to a duller pallette than females see, perhaps for mating reasons. The genes that explain this may help unlock how differences between sexes evolve.`\
 https://nytimes.com/2023/08/18/science/butterfly-vision-genes.html?searchResultPosition=6
 
 **British Nurse Is Convicted of Killing Seven Newborns**\
