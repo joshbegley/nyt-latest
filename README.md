@@ -30,7 +30,7 @@ https://nytimes.com/2023/08/18/opinion/heat-wave-utah-climate-change.html?search
 `Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
 https://nytimes.com/interactive/2023/08/18/briefing/news-quiz-trump-georgia-michael-oher-maui.html?searchResultPosition=8
 
-**Belief or Betrayal? Ukraine’s Conscientious Objectors Face Hostility**\
+**Belief or Betrayal? Ukraine’s Conscientious Objectors Face Hostility.**\
 `The option of “alternative service” vanished after martial law was declared last year. But some have refused to serve, and now face jail time and skepticism about their motives.`\
 https://nytimes.com/2023/08/18/world/europe/ukraine-conscientious-objectors.html?searchResultPosition=9
 
