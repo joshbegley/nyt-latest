@@ -1,40 +1,40 @@
-**Kitchen-Sink Drama, With the Color Turned Up**\
-`Charlotte Regan’s debut feature “Scrapper” is part of a lineage of British social-realist films, but its pastel palette and surreal humor resist the genre’s dreariness.`\
-https://nytimes.com/2023/08/18/movies/scrapper-charlotte-regan.html?searchResultPosition=1
+**The Most Impressive World Championship Team Isn’t a Country. It’s a Brand.**\
+`Three years ago, the high-end sports apparel company On made a pandemic-era gamble by launching a track and field team that will be one of the most visible starting Saturday in Budapest.`\
+https://nytimes.com/2023/08/18/sports/world-athletics-championships-oac.html?searchResultPosition=1
 
-**Up the Matildas!**\
-`Australia’s national women’s soccer team have walked away with the nation’s hearts clasped firmly in their hands.`\
-https://nytimes.com/2023/08/18/world/australia/matildas-australia-world-cup.html?searchResultPosition=2
+**This St. Louis House Is a Pattern-Filled Time Portal to the ’80s**\
+`In her home, the artist Katherine Bernhardt conjures the giddy heyday of the Memphis design group.`\
+https://nytimes.com/2023/08/18/t-magazine/st-louis-katherine-bernhardt-home-memphis-design.html?searchResultPosition=2
 
-**Intercepted Drone Falls on Moscow Expo Center**\
-`No one was injured, and there was no significant damage to the building.`\
-https://nytimes.com/video/world/europe/100000009046997/moscow-russia-ukraine-drone-expocenter.html?searchResultPosition=3
+**As the Red Rock Desert Broils Us in Beauty, Will We Have to Leave?**\
+`The heat of the desert landscape bears down on our shoulders with the weight of a burning world.`\
+https://nytimes.com/2023/08/18/opinion/heat-wave-utah-climate-change.html?searchResultPosition=3
 
-**Hong Kong Stocks Are in a Bear Market, Another Sign of Trouble in China**\
-`The Hang Seng Index has fallen more than 20 percent from its recent high, as investors grow more pessimistic about China’s post-pandemic recovery.`\
-https://nytimes.com/2023/08/18/business/hong-kong-stocks-bear-market.html?searchResultPosition=4
+**The New York Times News Quiz, August 18, 2023**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2023/08/18/briefing/news-quiz-trump-georgia-michael-oher-maui.html?searchResultPosition=4
 
-**Darryl Strawberry Is Not Trying to Save You**\
-`But if you want to hear what he has learned about lost promise and the prison of yearning, ask him. He’ll talk to anybody.`\
-https://nytimes.com/2023/08/18/sports/baseball/darryl-strawberry-mets-addiction-ministry.html?searchResultPosition=5
+**Belief or Betrayal? Ukraine’s Conscientious Objectors Face Hostility**\
+`The option of “alternative service” vanished after martial law was declared last year. But some have refused to serve, and now face jail time and skepticism about their motives.`\
+https://nytimes.com/2023/08/18/world/europe/ukraine-conscientious-objectors.html?searchResultPosition=5
 
-**How Many of Trump’s Trials Will Happen Before the Election?**\
-`Donald J. Trump is the target of four separate criminal indictments, but the prosecutions could drag on for months or even years.`\
-https://nytimes.com/2023/08/18/nyregion/trump-indictments-trial-2024-election.html?searchResultPosition=6
+**Did Gérard Grisey’s Music Predict His Own Death?**\
+`Eerie coincidences make the composer’s final work, “Four Songs for Crossing the Threshold,” seem like a requiem written for himself.`\
+https://nytimes.com/2023/08/18/arts/music/gerard-grisey.html?searchResultPosition=6
 
-**What’s Holding Up the Rollout of Legal Marijuana in New York?**\
-`Court challenges and bureaucratic roadblocks have created hurdles for would-be cannabis sellers in the state.`\
-https://nytimes.com/2023/08/18/nyregion/nys-legal-marijuana-rollout-stalled.html?searchResultPosition=7
+**To Stop an Extinction, He’s Flying High, Followed by His Beloved Birds**\
+`Using an ultralight aircraft, Johannes Fritz once taught endangered ibises a migration path over the Alps. Because of climate change, he is now showing them a much longer route to a winter’s refuge.`\
+https://nytimes.com/2023/08/18/world/europe/johannes-fritz-ibises-migration.html?searchResultPosition=7
 
-**At Camp David Summit, Japan, South Korea and U.S. Present a United Front**\
-`President Biden will host the leaders of the two Asian nations to overcome historical grievances and present a united front in the face of an increasingly assertive China.`\
-https://nytimes.com/2023/08/18/us/politics/biden-japan-south-korea-sum.html?searchResultPosition=8
+**In ‘Bad Things,’ a Filmmaker Puts a Queer Spin on ‘The Shining’**\
+`Stewart Thorndike sets her gory tale at a hotel reminiscent of the Overlook. The director says her movies are “mirroring” male stories she grew up loving.`\
+https://nytimes.com/2023/08/18/movies/bad-things-shudder-stewart-thorndike.html?searchResultPosition=8
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/08/18/crosswords/spelling-bee-forum.html?searchResultPosition=9
+**We Need Black-Majority States**\
+`An argument for consolidating Black political power.`\
+https://nytimes.com/2023/08/18/opinion/reverse-migration-black-majority-states.html?searchResultPosition=9
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/08/18/crosswords/wordle-review-answer-790.html?searchResultPosition=10
+**House Tour | Katherine Bernhardt**\
+`The artist restages the ’80s in her Memphis design-inspired St. Louis home.`\
+https://nytimes.com/video/t-magazine/100000009043955/house-tour-katherine-bernhardt.html?searchResultPosition=10
 
