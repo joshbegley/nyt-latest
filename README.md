@@ -10,17 +10,17 @@ https://nytimes.com/2023/08/19/opinion/maui-wildfires-hawaii-sirens.html?searchR
 `Readers respond to a guest essay by a prominent conservative critic of such efforts.`\
 https://nytimes.com/2023/08/19/opinion/letters/diversity-equity-inclusion-college.html?searchResultPosition=3
 
+**Enrique Tarrio Is a Curious Case of Latino White Supremacy**\
+`It should come as no surprise that some Latinos are racist.`\
+https://nytimes.com/2023/08/19/opinion/enrique-tarrio-proud-boys-latinos-racism.html?searchResultPosition=4
+
 **I Refuse the Graceful Slide Into Cultural Irrelevance**\
 `Why I, an aging millennial, am not prepared to give up on cool just yet.`\
-https://nytimes.com/2023/08/19/opinion/aging-millennials-cool.html?searchResultPosition=4
+https://nytimes.com/2023/08/19/opinion/aging-millennials-cool.html?searchResultPosition=5
 
 **Live by RICO, Die by RICO**\
 `The toxic alliance between a former mob slayer and a wannabe mob boss.`\
-https://nytimes.com/2023/08/19/opinion/rudy-giuliani-donald-trump-rico.html?searchResultPosition=5
-
-**Enrique Tarrio Is a Curious Case of Latino White Supremacy**\
-`It should come as no surprise that some Latinos are racist.`\
-https://nytimes.com/2023/08/19/opinion/enrique-tarrio-proud-boys-latinos-racism.html?searchResultPosition=6
+https://nytimes.com/2023/08/19/opinion/rudy-giuliani-donald-trump-rico.html?searchResultPosition=6
 
 **Russian Strike Hits City Center in Northern Ukraine, Kyiv Says**\
 `The attack came hours after the Kremlin said that President Vladimir V. Putin had met with military commanders in Rostov-on-Don, a Russian city that was briefly seized during a mutiny by the Wagner mercenary group.`\
