@@ -1,40 +1,40 @@
+**Inside a ‘Nightmare’ Lockdown at a Wisconsin Prison**\
+`Inmates who have been confined mostly to their cells for more than four months describe unsanitary conditions and a dearth of medical care. Experts say dire staffing shortages are likely to blame and are leading to lockdowns across the country.`\
+https://nytimes.com/2023/08/19/us/wisconsin-prison-lockdown.html?searchResultPosition=1
+
+**At South Brooklyn’s Beaches, a Battle of the Buoys**\
+`Despite a state law, boats and Jet Skis were coming dangerously close to shore at Coney Island and Brighton Beach. A swimmer took matters into her own hands.`\
+https://nytimes.com/2023/08/19/nyregion/brooklyn-beach-buoys-jet-ski.html?searchResultPosition=2
+
+**How a Comedian With a One-Woman Show Spends Her Sundays**\
+`Judy Gold loves Provincetown, Mass., where she has been performing since 1992, but she hates the slow drivers.`\
+https://nytimes.com/2023/08/19/nyregion/judy-gold-provincetown.html?searchResultPosition=3
+
+**Giuliani Repeatedly Sought Financial Lifeline From Trump**\
+`As Rudolph Giuliani has neared a financial breaking point with a pile of legal bills, the former president has largely demurred, despite making a vague promise to pay up.`\
+https://nytimes.com/2023/08/19/us/politics/giuliani-trump-legal-finances.html?searchResultPosition=4
+
+**Recreating a Bygone China, One Miniature Home at a Time**\
+`China’s rapid economic growth has meant the demolition of countless rural homes, and a burgeoning nostalgia. That’s where the miniaturists come in.`\
+https://nytimes.com/2023/08/19/world/asia/china-miniature-homes-nostalgia.html?searchResultPosition=5
+
+**Electric Cars Are the Future. But Renting One? Good Luck.**\
+`This carless New Yorker was determined to rent an electric vehicle for environmental reasons. But from booking to driving, there’s a learning curve.`\
+https://nytimes.com/2023/08/19/nyregion/electric-cars-are-the-future-but-renting-one-good-luck.html?searchResultPosition=6
+
+**One Long Reporting Trip Around the World**\
+`Sports have always been my ticket to travel: to a surf spot above the Arctic Circle, to a volcano in Mexico and to soccer games in New Zealand.`\
+https://nytimes.com/2023/08/19/insider/one-long-reporting-trip-around-the-world.html?searchResultPosition=7
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2023/08/19/crosswords/spelling-bee-forum.html?searchResultPosition=8
+
+**Today’s Wordle Review**\
+`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
+https://nytimes.com/2023/08/19/crosswords/wordle-review-answer-791.html?searchResultPosition=9
+
 **At World Cup, England’s Lionesses Aim to Show Men’s Team How It’s Done**\
 `The women play Spain on Sunday, hoping to end a nearly six-decade national wait for a World Cup win — a reminder of the travails of the Three Lions, the country’s long-suffering men’s team.`\
-https://nytimes.com/2023/08/19/world/europe/england-world-cup-lionesses.html?searchResultPosition=1
-
-**The Oldest Plant-Eating Dinosaur Has Been Found in India**\
-`Researchers say the find highlights how much more there is to learn about Earth’s prehistory with fossil digs on the subcontinent.`\
-https://nytimes.com/2023/08/19/science/india-fossil-discovery.html?searchResultPosition=2
-
-**In Warning to Taiwan, China Announces Military Patrols**\
-`The joint air and sea drills, widely expected in response to a presidential candidate’s visit to the United States, so far appear to be relatively limited.`\
-https://nytimes.com/2023/08/18/world/asia/taiwan-china-military-patrols.html?searchResultPosition=3
-
-**Wildfire Prompts Evacuations in Washington State Communities**\
-`The Gray Fire had burned more than 3,000 acres as of Friday night in areas near Medical Lake, a city of about 4,800 residents, officials said.`\
-https://nytimes.com/2023/08/18/us/washington-wildfire-four-lakes.html?searchResultPosition=4
-
-**Cruise Agrees to Reduce Driverless Car Fleet in San Francisco After Crash**\
-`A driverless Cruise taxi with a passenger collided with a fire truck Thursday night, just one week after state officials allowed the service to expand.`\
-https://nytimes.com/2023/08/18/technology/cruise-crash-driverless-car-san-francisco.html?searchResultPosition=5
-
-**Labor Demand?**\
-`Solving this David P. Williams puzzle is tough stuff, but you’ll pull through.`\
-https://nytimes.com/2023/08/18/crosswords/daily-puzzle-2023-08-19.html?searchResultPosition=6
-
-**Acclaimed New York City Restaurant Closes Amid Dispute Between Chef and Owner**\
-`Chef’s Table at Brooklyn Fare, which earned three Michelin stars and wide praise for its inventive single-bite dishes, closed in July, according to court documents.`\
-https://nytimes.com/2023/08/18/dining/chefs-table-brooklyn-fare-closed-nyc.html?searchResultPosition=7
-
-**Flesh-Eating Bacteria at the Beach? What You Need to Know.**\
-`Infections with Vibrio vulnificus are rare, especially in the Northeast. But a few recent cases suggest that precautions are wise for some wading into the water.`\
-https://nytimes.com/2023/08/18/science/flesh-eating-bacteria-beach.html?searchResultPosition=8
-
-**Looming Over a New Security Pact: China, North Korea and Donald Trump**\
-`While the former president’s name appeared nowhere in the communique issued by three leaders, one of the subtexts was the possibility that he could return to power in next year’s election and disrupt ties with America’s two closest allies in the Indo-Pacific region.`\
-https://nytimes.com/2023/08/18/us/politics/biden-japan-south-korea-summit.html?searchResultPosition=9
-
-**In California and Mexico, a Rare Hurricane Sends Disaster Prep Into High Gear**\
-`Hurricane Hilary, now a Category 4 storm, has prompted flood warnings in Southern California and temporary shelters in Baja California, Mexico.`\
-https://nytimes.com/2023/08/18/us/hurricane-hilary-flooding-california-mexico.html?searchResultPosition=10
+https://nytimes.com/2023/08/19/world/europe/england-world-cup-lionesses.html?searchResultPosition=10
 
