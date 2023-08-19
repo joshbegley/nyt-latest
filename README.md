@@ -1,5 +1,5 @@
 **Trump Wasn’t Invited to This Georgia Event, but His Presence Was Still Felt**\
-`Republican presidential hopefuls flocked to a conservative conference in Atlanta, but while the Republican front-runner was not in attendance, he was still top of mind.`\
+`Although the Republican front-runner was absent at a conservative conference where other candidates were in attendance, he was still top of mind.`\
 https://nytimes.com/2023/08/19/us/politics/trump-georgia-gop-2024.html?searchResultPosition=1
 
 **Mexico Warns of Hilary Hit on Baja**\
