@@ -1,5 +1,5 @@
-**Putin Visits Military Command in Russian City Seized During Mutiny**\
-`President Vladimir V. Putin met with military commanders in Rostov-on-Don in his first publicized trip to the city since an uprising by the Wagner mercenary group in June.`\
+**Russian Strike Hits City Center in Northern Ukraine, Kyiv Says**\
+`The attack came hours after the Kremlin said that President Vladimir V. Putin had met with military commanders in Rostov-on-Don, a Russian city that was briefly seized during a mutiny by the Wagner mercenary group.`\
 https://nytimes.com/2023/08/19/world/europe/putin-rostov-on-don-mutiny.html?searchResultPosition=1
 
 **The Post-Vacation Clarity**\
