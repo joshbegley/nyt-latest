@@ -1,5 +1,5 @@
 **Mexico Warns of Hilary Hit on Baja**\
-`The torrential rain and flooding that threaten Southern California also menaced Baja California, the western Mexico state that is popular with tourists.`\
+`The torrential rain and flooding that threaten Southern California also menaced Baja California, the western Mexico peninsula that is popular with tourists.`\
 https://nytimes.com/2023/08/19/world/americas/hurricane-hilary-mexico-baja-california.html?searchResultPosition=1
 
 **Vivek Ramaswamy Loves Eminem. And He Doesn’t Care If the Feeling Is Mutual.**\
