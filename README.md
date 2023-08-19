@@ -1,4 +1,4 @@
-**Flashback: Your Weekly History Quiz**\
+**Flashback: Your Weekly History Quiz, August 20, 2023**\
 `Test your knowledge of history by sorting eight events in chronological order.`\
 https://nytimes.com/interactive/2023/08/19/upshot/flashback.html?searchResultPosition=1
 
