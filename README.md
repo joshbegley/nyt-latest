@@ -6,8 +6,8 @@ https://nytimes.com/2023/08/19/sports/baseball/baseball-brooklyn-cyclones-coney-
 `In “Barbie,” “Bombshell” and “I, Tonya,” the actress subverts expectations.`\
 https://nytimes.com/2023/08/19/opinion/margot-robbie-barbie-feminine-idea.html?searchResultPosition=2
 
-**French General in Charge of Rebuilding Notre-Dame Cathedral Dies at 74**\
-`President Emmanuel Macron had appointed Gen. Jean-Louis Georgelin, a former army chief of staff, to lead the complex restoration project.`\
+**Jean-Louis Georgelin, Face of the Notre-Dame Reconstruction, Dies at 74**\
+`A former army chief of staff, he was put in charge of the cathedral’s restoration and prided himself on keeping the project on track.`\
 https://nytimes.com/2023/08/19/world/europe/jean-louis-georgelin-dead.html?searchResultPosition=3
 
 **The Next Frontier for Corporate Benefits: Menopause**\
