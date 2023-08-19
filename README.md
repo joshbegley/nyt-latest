@@ -26,7 +26,7 @@ https://nytimes.com/2023/08/19/business/dealbook/pickleball-business.html?search
 `An episode inspired by the twisty histories of the longtime radio broadcaster Paul Harvey.`\
 https://nytimes.com/2023/08/19/podcasts/this-american-life-rest-of-the-story-nyt-audio.html?searchResultPosition=7
 
-**Hawaii’s Next Disaster Doesn’t Have to Be So Ghastly**\
+**Why Didn’t Hawaii Evacuate Sooner During the Fires?**\
 `As good as Hawaii’s warning system is, it needs to be improved.`\
 https://nytimes.com/2023/08/19/opinion/maui-wildfires-hawaii-sirens.html?searchResultPosition=8
 
