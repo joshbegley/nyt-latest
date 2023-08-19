@@ -1,5 +1,5 @@
 **Listen Early to ‘This American Life’: The Rest of the Story**\
-`And the best of the archive, found in our new audio app.`\
+`An episode inspired by the twisty histories of the longtime radio broadcaster Paul Harvey.`\
 https://nytimes.com/2023/08/19/podcasts/this-american-life-rest-of-the-story-nyt-audio.html?searchResultPosition=1
 
 **Hawaii’s Next Disaster Doesn’t Have to Be So Ghastly**\
