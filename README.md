@@ -26,8 +26,8 @@ https://nytimes.com/2023/08/20/opinion/donald-trump-republicans.html?searchResul
 `A hapless effort to protect a shrinking caribou herd has come in for criticism by wildlife experts.`\
 https://nytimes.com/2023/08/20/opinion/alaska-brown-bear-killing.html?searchResultPosition=7
 
-**Republicans Are Making the Liberal Arts Scarce in the Poorest States**\
-`Just look at West Virginia University.`\
+**What Just Happened at West Virginia University Should Worry All of Us**\
+`Republicans are making the liberal arts scarce in the poorest states.`\
 https://nytimes.com/2023/08/20/opinion/west-virginia-university-cuts.html?searchResultPosition=8
 
 **The Sunday Read: ‘The Ongoing Mystery of Covid’s Origin’**\
