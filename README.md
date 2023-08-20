@@ -1,6 +1,6 @@
 **Six Weather Takeaways on Hilary Right Now**\
 `The rain is picking up in the United States, Monday should be calmer, and other things to know about the tropical storm.`\
-https://nytimes.com/2023/08/20/us/six-weather-takeaways-on-hilary-right-now.html?searchResultPosition=1
+https://nytimes.com/2023/08/20/us/tropical-storm-hilary-us-now.html?searchResultPosition=1
 
 **Ron Cephas Jones, Emmy Winner for ‘This Is Us,’ Dies at 66**\
 `After facing homelessness in his youth, he became an admired theater and television actor, playing tough and weathered but vulnerable characters.`\
