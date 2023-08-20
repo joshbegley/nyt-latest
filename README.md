@@ -14,7 +14,7 @@ https://nytimes.com/2023/08/20/briefing/state-flags.html?searchResultPosition=3
 `Local news organizations are in crisis, and courts need to protect their constitutional freedom to report the news.`\
 https://nytimes.com/2023/08/20/opinion/kansas-press-freedom.html?searchResultPosition=4
 
-**There’s No Cure for the Campsick Child (and That’s OK)**\
+**‘Campsickness’ Is Real and a Sign of Something Special**\
 `During my first trip to summer camp at 9, I cried twice: on the day I got there and the day I had to leave. I finally understand why.`\
 https://nytimes.com/2023/08/20/opinion/camp-summer-campsickness.html?searchResultPosition=5
 
