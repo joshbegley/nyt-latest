@@ -1,40 +1,40 @@
+**A New York City Migrant Contractor Faces Scrutiny in Sexual Assault Cases**\
+`The city gave DocGo contracts worth hundreds of millions of dollars to care for migrants. Now it faces problems, including a police investigation.`\
+https://nytimes.com/2023/08/20/nyregion/docgo-migrant-sexual-assaults.html?searchResultPosition=1
+
+**Security Is the Main Worry as Ecuador Votes on Sunday. Here’s What to Know.**\
+`With the country’s attention riveted on violence perpetrated by gangs and drug cartels, the security issue is paramount — and may be decisive.`\
+https://nytimes.com/2023/08/20/world/americas/ecuador-election-assassination-explainer.html?searchResultPosition=2
+
+**Think the Police Should Wear Body Cameras? That Will Cost Taxpayers Extra.**\
+`The public increasingly expects that police interactions will be recorded. And police unions increasingly expect a raise for doing the recording.`\
+https://nytimes.com/2023/08/20/us/police-body-cameras-pay.html?searchResultPosition=3
+
+**One Neighborhood, 90 Trees and an 82-Year-Old Crusader**\
+`Ed Rodriguez is on a mission to convince his neighbors that they need trees to help combat summer heat — and to make the world a better place. It’s not always so easy.`\
+https://nytimes.com/2023/08/20/us/trees-heat-wave-new-haven-ct.html?searchResultPosition=4
+
+**‘I Saw a Woman Standing and Staring Up at the Sky’**\
+`Pausing one evening on the Upper West Side, subway sketching and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2023/08/20/nyregion/metropolitan-diary.html?searchResultPosition=5
+
+**A Dinner for One**\
+`During a race to the North Pole in 1909, The New York Times supported one explorer, while the rival New York Herald backed another.`\
+https://nytimes.com/2023/08/20/pageoneplus/north-pole-cook-peary.html?searchResultPosition=6
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/08/20/crosswords/spelling-bee-forum.html?searchResultPosition=1
+https://nytimes.com/2023/08/20/crosswords/spelling-bee-forum.html?searchResultPosition=7
 
 **Today’s Wordle Review**\
 `Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/08/20/crosswords/wordle-review-answer-792.html?searchResultPosition=2
+https://nytimes.com/2023/08/20/crosswords/wordle-review-answer-792.html?searchResultPosition=8
 
 **Corrections: Aug. 20, 2023**\
 `Corrections that appeared in print on Sunday, Aug. 20, 2023.`\
-https://nytimes.com/2023/08/20/corrections/corrections-aug-20-2023.html?searchResultPosition=3
+https://nytimes.com/2023/08/20/corrections/corrections-aug-20-2023.html?searchResultPosition=9
 
 **Quotation of the Day: Artists Recreate a Bygone China, One Miniature Home at a Time**\
 `Quotation of the Day for Sunday, August 20, 2023.`\
-https://nytimes.com/2023/08/20/pageoneplus/quotation-of-the-day-artists-recreate-a-bygone-china-one-miniature-home-at-a-time.html?searchResultPosition=4
-
-**In Palm Springs, Where Rain Is Rare, Residents Brace for Hilary’s Downpour**\
-`Throughout the desert resort city in California, anxiety set in as the storm approached.`\
-https://nytimes.com/2023/08/19/us/hurrricane-hilary-palm-springs.html?searchResultPosition=5
-
-**Flashback: Your Weekly History Quiz, August 20, 2023**\
-`Test your knowledge of history by sorting eight events in chronological order.`\
-https://nytimes.com/interactive/2023/08/19/upshot/flashback.html?searchResultPosition=6
-
-**Crunch Time**\
-`Michael Schlossberg presents a puzzle that takes us to the edge of metamorphosis.`\
-https://nytimes.com/2023/08/19/crosswords/daily-puzzle-2023-08-20.html?searchResultPosition=7
-
-**Inside the Collapse of Hunter Biden’s Plea Deal**\
-`An examination of confidential correspondence and interviews with those close to Mr. Biden and lawyers involved in the case show how the deal ultimately fell apart amid schisms and withering external pressures.`\
-https://nytimes.com/2023/08/19/us/politics/inside-hunter-biden-plea-deal.html?searchResultPosition=8
-
-**British Columbia Wildfire in Photos: ‘A Long-Lasting Scar’**\
-`Fire is raging in the suburban fringes of the resort town of Kelowna, British Columbia, as a state of emergency across the province continued.`\
-https://nytimes.com/2023/08/19/world/canada/canada-wildfires-british-columbia-kelowna.html?searchResultPosition=9
-
-**Trump Wasn’t Invited to This Georgia Event, but His Presence Was Still Felt**\
-`Although the Republican front-runner was absent at a conservative conference where other candidates were in attendance, he was still top of mind.`\
-https://nytimes.com/2023/08/19/us/politics/trump-georgia-gop-2024.html?searchResultPosition=10
+https://nytimes.com/2023/08/20/pageoneplus/quotation-of-the-day-artists-recreate-a-bygone-china-one-miniature-home-at-a-time.html?searchResultPosition=10
 
