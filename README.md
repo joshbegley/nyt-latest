@@ -6,7 +6,7 @@ https://nytimes.com/2023/08/20/us/hilary-flooding-mexico-santa-rosalia.html?sear
 `A team that had endured all that Spain has in the past 12 months should not be able to win a World Cup. And yet that is precisely what it did.`\
 https://nytimes.com/2023/08/20/sports/soccer/womens-world-cup-win-spain-vilda-bonmati.html?searchResultPosition=2
 
-**For Girls in Spain, Women’s World Cup Win is a Joy and a Catalyst**\
+**For Girls in Spain, Women’s World Cup Win Is a Joy and a Catalyst**\
 `The final against England brought out fans of all stripes and rallied girls in both countries to hit the field and play.`\
 https://nytimes.com/2023/08/20/world/europe/spain-womens-world-cup.html?searchResultPosition=3
 
