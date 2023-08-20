@@ -1,40 +1,40 @@
+**‘Where to?’**\
+`Jennifer Nutt washes away any fears solvers may have about completing this puzzle.`\
+https://nytimes.com/2023/08/20/crosswords/daily-puzzle-2023-08-21.html?searchResultPosition=1
+
 **Overlooked No More: Robert M. Budd, Whose Newsstand Was Unlike Any Other**\
 `He built a thriving business in New York selling back numbers, or old issues of newspapers and magazines, recognizing their value and the history they contained.`\
-https://nytimes.com/2023/08/20/obituaries/overlooked-no-more-robert-m-budd.html?searchResultPosition=1
+https://nytimes.com/2023/08/20/obituaries/overlooked-no-more-robert-m-budd.html?searchResultPosition=2
 
 **Catholic School System Directs Students to Use Pronouns Assigned at Birth**\
 `The policy will affect more than 5,000 students who attend Catholic schools in the Diocese of Worcester in Massachusetts.`\
-https://nytimes.com/2023/08/20/us/massachusetts-catholic-schools-pronouns-lgbtq.html?searchResultPosition=2
+https://nytimes.com/2023/08/20/us/massachusetts-catholic-schools-pronouns-lgbtq.html?searchResultPosition=3
 
 **A Kiss After Spain’s World Cup Win Prompts Many to Cry Foul**\
 `A soccer federation chief kissed the Spanish forward Jennifer Hermoso fully on the lips during the medals ceremony, an unpleasant reminder to many of the sexism that has plagued women’s soccer.`\
-https://nytimes.com/2023/08/20/world/europe/hermoso-kiss-world-cup-spain-rubiales.html?searchResultPosition=3
+https://nytimes.com/2023/08/20/world/europe/hermoso-kiss-world-cup-spain-rubiales.html?searchResultPosition=4
 
 **Monday Briefing: A Tricky Opportunity in Indonesia**\
 `Also, the nostalgic craft of miniatures in China.`\
-https://nytimes.com/2023/08/20/briefing/indonesia-electric-vehicle-china-us-ukraine-spain.html?searchResultPosition=4
+https://nytimes.com/2023/08/20/briefing/indonesia-electric-vehicle-china-us-ukraine-spain.html?searchResultPosition=5
 
 **DeSantis Tweaks His Messaging and Tactics After a Tough Campaign Stretch**\
 `The Florida governor, who has been losing ground in polls and dealing with staffing, spending and messaging issues, looks to right his campaign in New Hampshire.`\
-https://nytimes.com/2023/08/20/us/politics/desantis-stump-speech.html?searchResultPosition=5
+https://nytimes.com/2023/08/20/us/politics/desantis-stump-speech.html?searchResultPosition=6
 
 **Pence Undercuts Trump’s Defense in Classified Documents Case**\
 `The former vice president said he knew of no broad order by Donald Trump that would have declassified documents the former president took with him when he left the White House.`\
-https://nytimes.com/2023/08/20/us/politics/pence-trump-classified-documents.html?searchResultPosition=6
+https://nytimes.com/2023/08/20/us/politics/pence-trump-classified-documents.html?searchResultPosition=7
 
 **Six Weather Takeaways on Hilary Right Now**\
 `The rain is picking up in the United States, Monday should be calmer, and other things to know about the tropical storm.`\
-https://nytimes.com/2023/08/20/us/tropical-storm-hilary-us-now.html?searchResultPosition=7
+https://nytimes.com/2023/08/20/us/tropical-storm-hilary-us-now.html?searchResultPosition=8
 
 **Ron Cephas Jones, Emmy Winner for ‘This Is Us,’ Dies at 66**\
 `After facing homelessness in his youth, he became an admired theater and television actor, playing tough and weathered but vulnerable characters.`\
-https://nytimes.com/2023/08/20/obituaries/ron-cephas-jones-dead.html?searchResultPosition=8
+https://nytimes.com/2023/08/20/obituaries/ron-cephas-jones-dead.html?searchResultPosition=9
 
 **Torrential rains cause flooding in Santa Rosalía, one of Baja’s ‘magical’ towns.**\
 `In recent years, the mining town in Mexico’s state of Baja California Sur has emerged as a popular tourist destination.`\
-https://nytimes.com/2023/08/20/us/hilary-flooding-mexico-santa-rosalia.html?searchResultPosition=9
-
-**For Spain, a World Cup Title Built on Talent, Not Harmony**\
-`A team that had endured all that Spain has in the past 12 months should not be able to win a World Cup. And yet that is precisely what it did.`\
-https://nytimes.com/2023/08/20/sports/soccer/womens-world-cup-win-spain-vilda-bonmati.html?searchResultPosition=10
+https://nytimes.com/2023/08/20/us/hilary-flooding-mexico-santa-rosalia.html?searchResultPosition=10
 
